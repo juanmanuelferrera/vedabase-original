@@ -14,9 +14,7 @@ All texts are sourced from [vedabase.bhaktiyoga.es](https://vedabase.bhaktiyoga.
 
 ## Technical Methodology
 
-### Verification Approach
-
-Every book was compared word-by-word against **68 scanned PDFs** of the first editions published during Srila Prabhupada's lifetime.
+To eliminate human error and guarantee absolute accuracy, this version of the Vedabase uses a **hybrid process combining advanced automation with rigorous manual verification**, taking the original printed books as the sole authority.
 
 ### Statistics
 
@@ -26,6 +24,44 @@ Every book was compared word-by-word against **68 scanned PDFs** of the first ed
 | Volumes verified | 66 across 20 titles |
 | Source scan PDFs | 68 documents |
 | Zero-diff volumes | 16 books required no corrections |
+
+---
+
+### Mechanisms to Eliminate Human Error
+
+- **100% Verification:** Every book was compared word-by-word against **68 scanned PDFs** of the first editions published during Srila Prabhupada's lifetime.
+
+- **Single Source of Authority:** The scans were established as the only valid source, invalidating any prior digital source where editorial changes may have crept in.
+
+- **"Philosophical Changes" Audit:** A specific review was conducted of phrases known to have been altered in later editions, to confirm that Srila Prabhupada's original language was correctly restored.
+
+- **Double Verification:** The process included a phase of difference identification using automated tools, always followed by **manual verification**.
+
+---
+
+### Tools and Technologies Used
+
+#### PyMuPDF (fitz)
+A high-precision text extraction library that allowed obtaining content from the original PDFs while preserving **IAST diacritics** (special Sanskrit characters) and formatting.
+
+#### Custom Python Scripts
+Programs were developed with multi-strategy matching algorithms to apply surgical corrections to the text.
+
+#### Similarity Algorithms
+To ensure text patches were exact, the following were used:
+- **Trigrams:** Character sequence comparison using `difflib` and `SequenceMatcher` libraries
+- **Jaccard Index:** Used for statistical similarity analysis between texts
+
+#### Advanced Text Processing
+Tools were designed to handle:
+- **Multibyte UTF-8** (necessary for Sanskrit)
+- Whitespace normalization
+- Typographic quote variants
+
+#### Automated Diffing
+Specialized software to detect discrepancies between the digital database and text extracted from scans.
+
+---
 
 ### Processing Pipeline
 
@@ -42,6 +78,8 @@ Every book was compared word-by-word against **68 scanned PDFs** of the first ed
 - Whitespace and punctuation normalization
 - Low-similarity rejection for misaligned paragraphs
 - Manual verification of every flagged difference
+
+---
 
 ### Correction Methods
 
