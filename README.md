@@ -192,4 +192,6 @@ All files are in **Markdown** format with:
 
 ## License
 
-These texts are shared for educational and devotional purposes. The original works are the property of the Bhaktivedanta Book Trust.
+**Scripts:** [MIT License](LICENSE) - free to copy, modify, and use.
+
+**Texts:** Shared for educational and devotional purposes. The original works are the literary property of His Divine Grace A.C. Bhaktivedanta Swami Prabhupada.
