@@ -107,6 +107,20 @@ Specialized software to detect discrepancies between the digital database and te
 
 ---
 
+## Scripts
+
+The [`scripts/`](scripts/) folder contains working implementations of the verification tools:
+
+| Script | Purpose |
+|--------|---------|
+| [`sync_from_source.py`](scripts/sync_from_source.py) | Download and update texts from vedabase.bhaktiyoga.es |
+| [`compare.py`](scripts/compare.py) | Text comparison engine with 5-layer noise filtering |
+| [`strip_diacritics.py`](scripts/strip_diacritics.py) | IAST diacritic processing utilities |
+
+See [`scripts/README.md`](scripts/README.md) for detailed documentation and usage examples.
+
+---
+
 ## Independent Verification
 
 Original scanned PDFs are available for independent verification:
