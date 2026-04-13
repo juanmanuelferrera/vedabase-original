@@ -8,7 +8,7 @@ To preserve Srila Prabhupada's teachings in their originally published form, fre
 
 ## Source
 
-All texts are sourced from [vedabase.site](https:www.vedabase.site), which maintains the gold standard for original edition digital texts.
+All texts are sourced from [vedabase.site](https//:www.vedabase.site), which maintains the gold standard for original edition digital texts.
 
 ---
 
