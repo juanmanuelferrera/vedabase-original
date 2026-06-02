@@ -1,42 +1,7 @@
 # Beyond Birth and Death
 
-Beyond Birth and Death
 
-
-
-Table of Contents
-
-
-
-His Divine Grace
-
-A.C. Bhaktivedanta Swami Prabhupāda
-
-Founder-Ācārya of the International Society for Krishna Consciousness
-
-
-
-
-
-BBD 1: We Are Not These Bodies
-
-BBD 2: Elevation at Death
-
-BBD 3: Liberation from Material Planets
-
-BBD 4: The Sky Beyond the Universe
-
-BBD 5: Associating with Krsna
-
-
-
-
-
-Chapter One
-
-
-
-
+# Chapter 1: We Are Not These Bodies
 
 We Are Not These Bodies
 
@@ -249,8 +214,7 @@ To establish ourselves on the pure brahma-bhūta spiritual platform, above the t
 Chapter Two
 
 
-
-
+# Chapter 2: Elevation at Death
 
 Elevation at Death
 
@@ -437,8 +401,7 @@ In India I lived in Vṛndāvana, and now I am in America, but this does not mea
 Chapter Three
 
 
-
-
+# Chapter 3: Liberation from Material Planets
 
 Liberation from Material Planets
 
@@ -533,8 +496,7 @@ We should be very serious about attaining our eternal life full of bliss and kno
 Chapter Four
 
 
-
-
+# Chapter 4: The Sky Beyond the Universe
 
 The Sky Beyond the Universe
 
@@ -763,8 +725,7 @@ He who has progressed in devotional life and who is relishing service to Kṛṣ
 Chapter Five
 
 
-
-
+# Chapter 5: Associating with Krsna
 
 Associating with Kṛṣṇa
 
@@ -927,3 +888,4 @@ yogī paraṁ sthānam upaiti cādyam
 
 
 "A person who accepts the path of devotional service is not bereft of the results derived from studying the *Vedas*, performing austere sacrifices, giving charity, or pursuing philosophical and fruitive activities. At the end he reaches the supreme abode." (Bg. 8.28) Here Kṛṣṇa says that the purpose of all Vedic instructions is to achieve the ultimate goal of life-to go back to Godhead. All scriptures from all countries aim at this goal. This has also been the message of all religious reformers or ācāryas. In the West, for example, Lord Jesus Christ spread this same message. Similarly, Lord Buddha and Muhammad. No one advises us to make our permanent settlement here in this material world. There may be small differences according to country, time, and circumstance, and according to scriptural injunction, but the main principle that we are not meant for this material world but for the spiritual world is accepted by all genuine transcendentalists. All indications for the satisfaction of our soul's innermost desires point to those worlds of Kṛṣṇa beyond birth and death.
+

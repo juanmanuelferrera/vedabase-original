@@ -1,64 +1,7 @@
-# Isopanisad
-
-Sri Isopanisad - 1974 Edition
+# Śrī Īśopaniṣad
 
 
-
-Table of Contents
-
-
-
-His Divine Grace
-
-A.C. Bhaktivedanta Swami Prabhupāda
-
-Founder-Ācārya of the International Society for Krishna Consciousness
-
-
-
-
-
-Iso Introduction
-
-Iso Invocation
-
-Iso 1
-
-Iso 2
-
-Iso 3
-
-Iso 4
-
-Iso 5
-
-Iso 6
-
-Iso 7
-
-Iso 8
-
-Iso 9
-
-Iso 10
-
-Iso 11
-
-Iso 12
-
-Iso 13
-
-Iso 14
-
-Iso 15
-
-Iso 16
-
-Iso 17
-
-Iso 18
-
-# Īśo Introduction
+# Introduction
 
 ## “Teachings of the Vedas”
 
@@ -94,27 +37,32 @@ Originally there was only one *Veda,* and there was no necessity of reading it. 
 
 Vyāsadeva personally wrote the *Vedānta-sūtra* under the instructions of Nārada, his Guru Mahārāja (spiritual master), but still he was not satisfied. That is a long story, described in *Śrīmad-Bhāgavatam.* Vedavyāsa was not very satisfied even after compiling many *Purāṇas* and *Upaniṣads,* and even after writing the *Vedānta-sūtra.* Then his spiritual master, Nārada, instructed him, "You explain the *Vedānta-sūtra.*" *Vedānta* means "ultimate knowledge," and the ultimate knowledge is Kṛṣṇa. Kṛṣṇa says that throughout all the *Vedas* one has to understand Him: *vedānta-kṛd veda-vid eva cāham.* Kṛṣṇa says, "I am the compiler of the *Vedānta-sūtra,* and I am the knower of the *Vedas.*" Therefore the ultimate objective is Kṛṣṇa. That is explained in all the Vaiṣṇava commentaries on *Vedānta* philosophy. We Gauḍīya Vaiṣṇavas have our commentary on *Vedānta* philosophy, called *Govinda-bhāṣya,* by Baladeva Vidyābhūṣaṇa. Similarly, Rāmānujācārya has a commentary, and Madhvācārya has one. The version of Śaṅkarācārya is not the only commentary. There are many *Vedānta* commentaries, but because the Vaiṣṇavas did not present the first *Vedānta* commentary, people are under the wrong impression that Śaṅkarācārya's is the only *Vedānta* commentary. Besides that, Vyāsadeva himself wrote the perfect *Vedānta* commentary, *Śrīmad-Bhāgavatam. Śrīmad-Bhāgavatam* begins with the first words of the *Vedānta-sūtra: janmādy asya yataḥ* [[sb/1/1/1|[SB 1.1.1] ]]. And that *janmādy asya yataḥ* is fully explained in *Śrīmad-Bhāgavatam.* The *Vedānta-sūtra* simply hints at what is Brahman, the Absolute Truth: "The Absolute Truth is that from whom everything emanates." This is a summary, but it is explained in detail in *Śrīmad-Bhāgavatam.* If everything is emanating from the Absolute Truth, then what is the nature of the Absolute Truth? That is explained in *Śrīmad-Bhāgavatam.* The Absolute Truth must be consciousness. He is self-effulgent (*sva-rāṭ*). We develop our consciousness and knowledge by receiving knowledge from others, but for Him it is said that He is self-effulgent. The whole summary of Vedic knowledge is the *Vedānta-sūtra,* and the *Vedānta-sūtra* is explained by the writer himself in *Śrīmad-Bhāgavatam.* We finally request those who are actually after Vedic knowledge to try to understand the explanation of all Vedic knowledge from *Śrīmad-Bhāgavatam* and the *Bhagavad-gītā.*
 
-# Īśo Invocation
+
+## Īśo 0b
 
 > ॐ पूर्णमदः पूर्णमिदं पूर्णात् पूर्णमुदच्यते।
 > पूर्णस्य पूर्णमादाय पूर्णमेवावशिष्यते॥
 
-## Text
+
+### Text
 
 > oṁ pūrṇam adaḥ pūrṇam idaṁ
 > pūrṇāt pūrṇam udacyate
 > pūrṇasya pūrṇam ādāya
 > pūrṇam evāvaśiṣyate
 
-## Synonyms
+
+### Synonyms
 
 *oṁ*—the Complete Whole; *pūrṇam*—perfectly complete; *adaḥ*—that; *pūrṇam*—perfectly complete; *idam*—this phenomenal world; *pūrṇāt*—from the all-perfect; *pūrṇam*—complete unit; *udacyate*—is produced; *pūrṇasya*—of the Complete Whole; *pūrṇam*—completely, all; *ādāya*—having been taken away; *pūrṇam*—the complete balance; *eva*—even; *avaśiṣyate*—is remaining.
 
-## Translation
+
+### Translation
 
 **The Personality of Godhead is perfect and complete, and because He is completely perfect, all emanations from Him, such as this phenomenal world, are perfectly equipped as complete wholes. Whatever is produced of the Complete Whole is also complete in itself. Because He is the Complete Whole, even though so many complete units emanate from Him, He remains the complete balance.**
 
-## Purport
+
+### Purport
 
 The Complete Whole, or the Supreme Absolute Truth, is the complete Personality of Godhead. Realization of impersonal Brahman or of Paramātmā, the Supersoul, is incomplete realization of the Absolute Complete. The Supreme Personality of Godhead is *sac-cid-ānanda-vigraha* [Bs. 5.1]. Realization of impersonal Brahman is realization of His *sat* feature, or His aspect of eternity, and Paramātmā realization is realization of His *sat* and *cit* features, His aspects of eternity and knowledge. But realization of the Personality of Godhead is realization of all the transcendental features—*sat, cit* and *ānanda,* bliss. When one realizes the Supreme Person, he realizes these aspects of the Absolute Truth in their completeness. *Vigraha* means "form." Thus the Complete Whole is not formless. If He were formless, or if He were less than His creation in any other way, He could not be complete. The Complete Whole must contain everything both within and beyond our experience; otherwise He cannot be complete.
 
@@ -126,27 +74,32 @@ Because we do not know that there is a complete arrangement in nature for our ma
 
 The completeness of human life can be realized only when one engages in the service of the Complete Whole. All services in this world—whether social, political, communal, international or even interplanetary—will remain incomplete until they are dovetailed with the Complete Whole. When everything is dovetailed with the Complete Whole, the attached parts and parcels also become complete in themselves.
 
-# Īśo 1
+
+## Īśo 1
 
 > ॐ ईशावास्यमिदँ सर्वं यत्किञ्च जगत्यां जगत्।
 > तेन त्यक्तेन भुञ्जीथा मा गृधः कस्यस्विद्धनम्॥१॥
 
-## Text
+
+### Text
 
 > īśāvāsyam idam sarvaṁ
 > yat kiñca jagatyāṁ jagat
 > tena tyaktena bhuñjīthā
 > mā gṛdhaḥ kasya svid dhanam
 
-## Synonyms
+
+### Synonyms
 
 *īśa*—by the Lord; *āvāsyam*—controlled; *idam*—this; *sarvam*—all; *yat kiñca*—whatever; *jagatyām*—within the universe; *jagat*—all that is animate or inanimate; *tena*—by Him; *tyaktena*—set-apart quota; *bhuñjīthāḥ*—you should accept; *mā*—do not; *gṛdhaḥ*—endeavor to gain; *kasya svit*—of anyone else; *dhanam*—the wealth.
 
-## Translation
+
+### Translation
 
 **Everything animate or inanimate that is within the universe is controlled and owned by the Lord. One should therefore accept only those things necessary for himself, which are set aside as his quota, and one should not accept other things, knowing well to whom they belong.**
 
-## Purport
+
+### Purport
 
 Vedic knowledge is infallible because it comes down through the perfect disciplic succession of spiritual masters, beginning with the Lord Himself. Since He spoke the first word of Vedic knowledge, the source of this knowledge is transcendental. The words spoken by the Lord are called *apauruṣeya,* which indicates that they are not delivered by any mundane person. A living being who lives in the mundane world has four defects: (1) he is certain to commit mistakes; (2) he is subject to illusion; (3) he has a propensity to cheat others; and (4) his senses are imperfect. No one with these four imperfections can deliver perfect knowledge. The *Vedas* are not produced by such an imperfect creature. Vedic knowledge was originally imparted by the Lord into the heart of Brahmā, the first created living being, and Brahmā in his turn disseminated this knowledge to his sons and disciples, who have handed it down through history.
 
@@ -166,31 +119,36 @@ Human beings are not meant to quarrel like cats and dogs. They must be intellige
 
 The standard of life for human beings cannot be applied to animals. The tiger does not eat rice and wheat or drink cow's milk, because he has been given food in the shape of animal flesh. Among the many animals and birds, some are vegetarian and others are carnivorous, but none of them transgress the laws of nature, which have been ordained by the will of the Lord. Animals, birds, reptiles and other lower life forms strictly adhere to the laws of nature; therefore there is no question of sin for them, nor are the Vedic instructions meant for them. Human life alone is a life of responsibility.
 
-It is wrong, however, to think that simply by becoming a vegetarian one can avoid transgressing the laws of nature. Vegetables also have life, and while it is nature's law that one living being is meant to feed on another, for human beings the point is to recognize the Supreme Lord. Thus one should not be proud of being a strict vegetarian. Animals do not have developed consciousness by which to recognize the Lord, but a human being is sufficiently intelligent to take lessons from the Vedic literature and thereby know how the laws of nature are working and derive profit out of such knowledge. If a man neglects the instructions of the Vedic literature, his life becomes very risky. A human being is therefore required to recognize the authority of the Supreme Lord and become His devotee. He must offer everything for the Lord's service and partake only of the remnants of food offered to the Lord. This will enable him to discharge his duty properly. In the *Bhagavad-gītā* (9.26) the Lord directly states that He accepts vegetarian food from the hands of a pure devotee. Therefore a human being should not only become a strict vegetarian but should also become a devotee of the Lord, offer the Lord all his food and then partake of such *prasādam,* or the mercy of God. Only those who act in this way can properly discharge the duties of human life. Those who do not offer their food to the Lord eat nothing but sin and subject themselves to various types of distress, which are the results of sin [[bg/3/13|(Bg. 3.13)]].
+It is wrong, however, to think that simply by becoming a vegetarian one can avoid transgressing the laws of nature. Vegetables also have life, and while it is nature's law that one living being is meant to feed on another, for human beings the point is to recognize the Supreme Lord. Thus one should not be proud of being a strict vegetarian. Animals do not have developed consciousness by which to recognize the Lord, but a human being is sufficiently intelligent to take lessons from the Vedic literature and thereby know how the laws of nature are working and derive profit out of such knowledge. If a man neglects the instructions of the Vedic literature, his life becomes very risky. A human being is therefore required to recognize the authority of the Supreme Lord and become His devotee. He must offer everything for the Lord's service and partake only of the remnants of food offered to the Lord. This will enable him to discharge his duty properly. In the *Bhagavad-gītā* (9.26) the Lord directly states that He accepts vegetarian food from the hands of a pure devotee. Therefore a human being should not only become a strict vegetarian but should also become a devotee of the Lord, offer the Lord all his food and then partake of such *prasādam,* or the mercy of God. Only those who act in this way can properly discharge the duties of human life. Those who do not offer their food to the Lord eat nothing but sin and subject themselves to various types of distress, which are the results of sin (Bg. 3.13).
 
 The root of sin is deliberate disobedience of the laws of nature through disregarding the proprietorship of the Lord. Disobeying the laws of nature or the order of the Lord brings ruin to a human being. Conversely, one who is sober, who knows the laws of nature, and who is not influenced by unnecessary attachment or aversion is sure to be recognized by the Lord and thus become eligible to go back to Godhead, back to the eternal home.
 
-# Īśo 2
+
+## Īśo 2
 
 > कुर्वन्नेवेह कर्माणि जिजीविषेच्छतँ समाः।
 > एवं त्वयि नान्यथेतोऽस्ति न कर्म लिप्यते नरे॥२॥
 
-## Text
+
+### Text
 
 > kurvann eveha karmāṇi
 > jijīviṣec chataṁ samāḥ
 > evaṁ tvayi nānyatheto 'sti
 > na karma lipyate nare
 
-## Synonyms
+
+### Synonyms
 
 *kurvan*—doing continuously; *eva*—thus; *iha*—during this span of life; *karmāṇi*—work; *jijīviṣet*—one should desire to live; *śatam*—one hundred; *samāḥ*—years; *evam*—so living; *tvayi*—unto you; *na*—no; *anyathā*—alternative; *itaḥ*—from this path; *asti*—there is; *na*—not; *karma*—work; *lipyate*—can be bound; *nare*—unto a man.
 
-## Translation
+
+### Translation
 
 **One may aspire to live for hundreds of years if he continuously goes on working in that way, for that sort of work will not bind him to the law of karma. There is no alternative to this way for man.**
 
-## Purport
+
+### Purport
 
 No one wants to die: everyone wants to live as long as he can drag on. This tendency is visible not only individually but also collectively in the community, society and nation. There is a hard struggle for life by all kinds of living entities, and the *Vedas* say that this is quite natural. The living being is eternal by nature, but due to his bondage in material existence he has to change his body over and over. This process is called transmigration of the soul or *karma-bandhana,* bondage by one's work. The living entity has to work for his livelihood because that is the law of material nature, and if he does not act according to his prescribed duties, he transgresses the law of nature and binds himself more and more to the cycle of birth and death in the many species of life.
 
@@ -206,27 +164,32 @@ When altruistic activities are executed in the spirit of *Śrī Īśopaniṣad,*
 
 How one can execute God-centered activities is elaborately explained in the *Bhakti-rasāmṛta-sindhu,* by Śrīla Rūpa Gosvāmī. We have rendered this book into English as *The Nectar of Devotion.* We recommend this valuable book to all who are interested in performing their activities in the spirit of *Śrī Īśopaniṣad.*
 
-# Īśo 3
+
+## Īśo 3
 
 > असुर्या नाम ते लोका अन्धेन तमसाऽऽवृताः।
 > ताँस्ते प्रेत्याभिगच्छन्ति ये के चात्महनो जनाः॥३॥
 
-## Text
+
+### Text
 
 > asuryā nāma te lokā
 > andhena tamasāvṛtāḥ
 > tāṁs te pretyābhigacchanti
 > ye ke cātma-hano janāḥ
 
-## Synonyms
+
+### Synonyms
 
 *asuryāḥ*—meant for the asuras; *nāma*—famous by the name; *te*—those; *lokāḥ*—planets; *andhena*—by ignorance; *tamasā*—by darkness; *āvṛtāḥ*—covered; *tān*—those planets; *te*—they; *pretya*—after death; *abhigacchanti*—enter into; *ye*—anyone; *ke*—everyone; *ca*—and; *ātma-hanaḥ*—the killers of the soul; *janāḥ*—persons.
 
-## Translation
+
+### Translation
 
 **The killer of the soul, whoever he may be, must enter into the planets known as the worlds of the faithless, full of darkness and ignorance.**
 
-## Purport
+
+### Purport
 
 Human life is distinguished from animal life due to its heavy responsibilities. Those who are cognizant of these responsibilities and who work in that spirit are called *suras* (godly persons), and those who are neglectful of these responsibilities or who have no information of them are called *asuras* (demons). Throughout the universe there are only these two types of human being. In the *Ṛg Veda* it is stated that the *suras* always aim at the lotus feet of the Supreme Lord Viṣṇu and act accordingly. Their ways are as illuminated as the path of the sun.
 
@@ -240,27 +203,32 @@ In the *Bhagavad-gītā* (6.41-43) it is stated that a man who enters upon the p
 
 The conclusion is that as human beings we are meant not simply for solving economic problems on a tottering platform but for solving all the problems of the material life into which we have been placed by the laws of nature.
 
-# Īśo 4
+
+## Īśo 4
 
 > अनेजदेकं मनसो जवीयो नैनद्देवा आप्नुवन्पूर्वमर्षत्।
 > तद्धावतोऽन्यानत्येति तिष्ठत्तस्मिन्नपो मातरिश्वा दधाति॥४॥
 
-## Text
+
+### Text
 
 > anejad ekaṁ manaso javīyo
 > nainad devā āpnuvan pūrvam arṣat
 > tad dhāvato 'nyān atyeti tiṣṭhat
 > tasminn apo mātariśvā dadhāti
 
-## Synonyms
+
+### Synonyms
 
 *anejat*—fixed; *ekam*—one; *manasaḥ*—than the mind; *javīyaḥ*—more swift; *na*—not; *enat*—this Supreme Lord; *devāḥ*—the demigods like Indra, etc.; *āpnuvan*—can approach; *pūrvam*—in front; *arṣat*—moving quickly; *tat*—He; *dhāvataḥ*—those who are running; *anyān*—others; *atyeti*—surpasses; *tiṣṭhat*—remaining in one place; *tasmin*—in Him; *apaḥ*—rain; *mātariśvā*—the gods who control the wind and rain; *dadhāti*—supply.
 
-## Translation
+
+### Translation
 
 **Although fixed in His abode, the Personality of Godhead is swifter than the mind and can overcome all others running. The powerful demigods cannot approach Him. Although in one place, He controls those who supply the air and rain. He surpasses all in excellence.**
 
-## Purport
+
+### Purport
 
 Through mental speculation, even the greatest philosopher cannot know the Supreme Lord, who is the Absolute Personality of Godhead. He can be known only by His devotees through His mercy. In the *Brahma-saṁhitā* (5.34) it is stated that even if a nondevotee philosopher travels through space at the speed of the wind or the mind for hundreds of millions of years, he will still find that the Absolute Truth is far, far away from him. The *Brahma-saṁhitā* (5.37) further describes that the Absolute Personality of Godhead has His transcendental abode, known as Goloka, where He remains and engages
 
@@ -278,27 +246,32 @@ Every part and parcel of the Complete Whole is endowed with some particular ener
 
 All power is obtained from the Lord; therefore each particular power must be utilized to execute the will of the Lord and not otherwise. The Lord can be known by one who has adopted such a submissive service attitude. Perfect knowledge means knowing the Lord in all His features, knowing His potencies and knowing how these potencies work by His will. These matters are described by the Lord in the *Bhagavad-gītā,* the essence of all the *Upaniṣads.*
 
-# Īśo 5
+
+## Īśo 5
 
 > तदेजति तन्नैजति तद्दूरे तद्वन्तिके।
 > तदन्तरस्य सर्वस्य तदु सर्वस्यास्य बाह्यतः॥५॥
 
-## Text
+
+### Text
 
 > tad ejati tan naijati
 > tad dūre tad v antike
 > tad antar asya sarvasya
 > tad u sarvasyāsya bāhyataḥ
 
-## Synonyms
+
+### Synonyms
 
 *tat*—this Supreme Lord; *ejati*—walks; *tat*—He; *na*—not; *ejati*—walks; *tat*—He; *dūre*—far away; *tat*—He; *u*—also; *antike*—very near; *tat*—He; *antaḥ*—within; *asya*—of this; *sarvasya*—of all; *tat*—He; *u*—also; *sarvasya*—of all; *asya*—of this; *bāhyataḥ*—external to.
 
-## Translation
+
+### Translation
 
 **The Supreme Lord walks and does not walk. He is far away, but He is very near as well. He is within everything, and yet He is outside of everything.**
 
-## Purport
+
+### Purport
 
 Here is a description of some of the Supreme Lord's transcendental activities, executed by His inconceivable potencies. The contradictions given here prove the inconceivable potencies of the Lord. "He walks, and He does not walk." Ordinarily, if someone can walk, it is illogical to say he cannot walk. But in reference to God, such a contradiction simply serves to indicate His inconceivable power. With our limited fund of knowledge we cannot accommodate such contradictions, and therefore we conceive of the Lord in terms of our limited powers of understanding. For example, the impersonalist philosophers of the Māyāvāda school accept only the Lord's impersonal activities and reject His personal feature. But the members of the *Bhāgavata* school, adopting the perfect conception of the Lord, accept His inconceivable potencies and thus understand that He is both personal and impersonal. The *bhāgavatas* know that without inconceivable potencies there can be no meaning to the words "Supreme Lord."
 
@@ -320,27 +293,32 @@ In the *Brahma-saṁhitā* (5.35) it is said that Govinda, the primeval Lord, en
 
 The fact is that there is nothing but God within and without. Everything is a manifestation of His different energies, like the heat and light emanating from a fire, and in this way there is a oneness among His diverse energies. Although there is oneness, however, the Lord in His personal form still enjoys unlimitedly all the pleasures enjoyed minutely by the tiny part-and-parcel living entities.
 
-# Īśo 6
+
+## Īśo 6
 
 > यस्तु सर्वाणि भूतान्यात्मन्येवानुपश्यति।
 > सर्वभूतेषु चात्मानं ततो न विजुगुप्सते॥६॥
 
-## Text
+
+### Text
 
 > yas tu sarvāṇi bhūtāny
 > ātmany evānupaśyati
 > sarva-bhūteṣu cātmānaṁ
 > tato na vijugupsate
 
-## Synonyms
+
+### Synonyms
 
 *yaḥ*—he who; *tu*—but; *sarvāṇi*—all; *bhūtāni*—living entities; *ātmani*—in relation to the Supreme Lord; *eva*—only; *anupaśyati*—observes in a systematic way; *sarva-bhūteṣu*—in every living being; *ca*—and; *ātmānam*—the Supersoul; *tataḥ*—thereafter; *na*—not; *vijugupsate*—hates anyone.
 
-## Translation
+
+### Translation
 
 **He who  sees everything in relation to the Supreme Lord, who sees all living entities as His parts and parcels, and who sees the Supreme Lord within everything never hates anything or any being.**
 
-## Purport
+
+### Purport
 
 This is a description of the *mahā-bhāgavata,* the great personality who sees everything in relation to the Supreme Personality of Godhead. The Supreme Lord's presence is realized in three stages. The *kaniṣṭha-adhikārī* is in the lowest stage of realization. He goes to a place of worship, such as a temple, church or mosque, according to his religious faith, and worships there according to scriptural injunctions. Devotees in this stage consider the Lord to be present at the place of worship and nowhere else. They cannot ascertain who is in what position in devotional service, nor can they tell who has realized the Supreme Lord. Such devotees follow the routine formulas and sometimes quarrel among themselves, considering one type of devotion better than another. These *kaniṣṭha-adhikārīs* are actually materialistic devotees who are simply trying to transcend the material boundary to reach the spiritual plane.
 
@@ -358,27 +336,32 @@ commentary that contradicts the principles of the *Bhagavad-gītā* or *Śrīmad
 
 According to the *Bhagavad-gītā* (18.54), only one who is already on the liberated platform (*brahma-bhūta* [[sb/4/30/20|[SB 4.30.20] ]]) can become an *uttama-adhikārī* devotee and see every living being as his own brother. This vision cannot be had by politicians, who are always after some material gain. One who imitates the symptoms of an *uttama-adhikārī* may serve another's outward body for the purpose of fame or material reward, but he does not serve the spirit soul. Such an imitator can have no information of the spiritual world. The *uttama-adhikārī* sees the spirit soul within the material body and serves him as spirit. Thus the material aspect is automatically served.
 
-# Īśo 7
+
+## Īśo 7
 
 > यस्मिन्सर्वाणि भूतान्यात्मैवाभूद्विजानतः।
 > तत्र को मोहः कः शोक एकत्वमनुपश्यतः॥७॥
 
-## Text
+
+### Text
 
 > yasmin sarvāṇi bhūtāny
 > ātmaivābhūd vijānataḥ
 > tatra ko mohaḥ kaḥ śoka
 > ekatvam anupaśyataḥ
 
-## Synonyms
+
+### Synonyms
 
 *yasmin*—in the situation; *sarvāṇi*—all; *bhūtāni*—living entities; *ātmā*—the cit-kaṇa, or spiritual spark; *eva*—only; *abhūt*—exist as; *vijānataḥ*—of one who knows; *tatra*—therein; *kaḥ*—what; *mohaḥ*—illusion; *kaḥ*—what; *śokaḥ*—anxiety; *ekatvam*—oneness in quality; *anupaśyataḥ*—of one who sees through authority, or one who sees constantly like that.
 
-## Translation
+
+### Translation
 
 **One who always sees all living entities as spiritual sparks, in quality one with the Lord, becomes a true knower of things. What, then, can be illusion or anxiety for him?**
 
-## Purport
+
+### Purport
 
 Except for the *madhyama-adhikārī* and *uttama-adhikārī* discussed above, no one can correctly see the spiritual position of a living being. The living entities are qualitatively one with the Supreme Lord, just as the sparks of a fire are qualitatively one with the fire. Yet sparks are not fire as far as quantity is concerned, for the quantity of heat and light present in the sparks is not equal to that in fire. The *mahā-bhāgavata,* the great devotee, sees oneness in the sense that he sees everything as the energy of the Supreme Lord. Since there is no difference between the energy and the energetic, there is the sense of oneness. Although from the analytical point of view heat and light are different from fire, there is no meaning to the word "fire" without heat and light. In synthesis, therefore, heat, light and fire are the same.
 
@@ -392,28 +375,33 @@ The results of our activities must be used to serve the interest of the Lord, an
 
 The Parabrahman is as much a person as the individual entities. Neither the Lord nor the living entities are impersonal. Such transcendental personalities are full of transcendental bliss, knowledge and life eternal. That is the real position of spiritual existence, and as soon as one is fully cognizant of this transcendental position, he at once surrenders unto the lotus feet of the Supreme Being, Śrī Kṛṣṇa. But such a *mahātmā,* or great soul, is very rarely seen because such transcendental realization is achieved only after many, many births. Once it is attained, however, there is no longer any illusion or lamentation or the miseries of material existence or birth and death, which are all experienced in our present life. That is the information we get from this *mantra* of *Śrī Īśopaniṣad.*
 
-# Īśo 8
+
+## Īśo 8
 
 > स पर्यगाच्छुक्रमकायमव्रणमस्नाविरँ शुद्धमपापविद्धम्।
 > कविर्मनीषी परिभूः स्वयम्भूर्याथातथ्यतोऽर्थान्
 > व्यदधाच्छाश्वतीभ्यः समाभ्यः॥८॥
 
-## Text
+
+### Text
 
 > sa paryagāc chukram akāyam avraṇam
 > asnāviram śuddham apāpa-viddham
 > kavir manīṣī paribhūḥ svayambhūr
 > yāthātathyato 'rthān vyadadhāc chāśvatībhyaḥ samābhyaḥ
 
-## Synonyms
+
+### Synonyms
 
 *saḥ*—that person; *paryagāt*—must know in fact; *śukram*—the omnipotent; *akāyam*—unembodied; *avraṇam*—without reproach; *asnāviram*—without veins; *śuddham*—antiseptic; *apāpa-viddham*—prophylactic; *kaviḥ*—omniscient; *manīṣī*—philosopher; *paribhūḥ*—the greatest of all; *svayambhūḥ*—self-sufficient; *yāthātathyataḥ*—just in pursuance of; *arthān*—desirables; *vyadadhāt*—awards; *śāśvatībhyaḥ*—immemorial; *samābhyaḥ*—time.
 
-## Translation
+
+### Translation
 
 **Such a person must factually know the greatest of all, the Personality of Godhead, who is unembodied, omniscient, beyond reproach, without veins, pure and uncontaminated, the self-sufficient philosopher who has been fulfilling everyone's desire since time immemorial.**
 
-## Purport
+
+### Purport
 
 Here is a description of the transcendental and eternal form of the Absolute Personality of Godhead. The Supreme Lord is not formless. He has His own transcendental form, which is not at all similar to the forms of the mundane world. The forms of the living entities in this world are embodied in material nature, and they work like any material machine. The anatomy of a material body must have a mechanical construction with veins and so forth, but the transcendental body of the Supreme Lord has nothing like veins. It is clearly stated here that He is un-embodied, which means that there is no difference between His body and His soul. Nor is He forced to accept a body according to the laws of nature, as we are. In materially conditioned life, the soul is different from the gross embodiment and subtle mind. For the Supreme Lord, however, there is never any such difference between Him and His body and mind. He is the Complete Whole, and His mind, body and He Himself are all one and the same.
 
@@ -431,27 +419,32 @@ God is described here as *paribhūḥ,* the greatest of all. No one is greater t
 
 Only the Supreme Lord is self-sufficient. When Lord Kṛṣṇa appeared on earth five thousand years ago, He displayed His full manifestation as the Personality of Godhead through His various activities. In His childhood He killed many powerful demons, such as Aghāsura, Bakāsura and Śakaṭāsura, and there was no question of His having acquired such power through any extraneous endeavor. He lifted Govardhana Hill without ever practicing weight-lifting. He danced with the *gopīs* without social restriction and without reproach. Although the *gopīs* approached Him with a paramour's feelings of love, the relationship between the *gopīs* and Lord Kṛṣṇa was worshiped even by Lord Caitanya, who was a strict *sannyāsī* and rigid follower of disciplinary regulations. To confirm that the Lord is always pure and uncontaminated, *Śrī Īśopaniṣad* describes Him as *śuddham* (antiseptic) and *apāpa-viddham* (prophylactic). He is antiseptic in the sense that even an impure thing can become purified just by touching Him. The word "prophylactic" refers to the power of His association. As mentioned in the *Bhagavad-gītā* (9.30-31), a devotee may appear to be *su-durācāra,* not well behaved, in the beginning, but he should be accepted as pure because he is on the right path. This is due to the prophylactic nature of the Lord's association. The Lord is also *apāpa-viddham* because sin cannot touch Him. Even if He acts in a way that appears to be sinful, such actions are all-good, for there is no question of His being affected by sin. Because in all circumstances He is *śuddham,* most purified, He is often compared to the sun. The sun extracts moisture from many untouchable places on the earth, yet it remains pure. In fact, it purifies obnoxious things by virtue of its sterilizing powers. If the sun, which is a material object, is so powerful, then we can hardly begin to imagine the purifying strength of the all-powerful Lord.
 
-# Īśo 9
+
+## Īśo 9
 
 > अन्धं तमः प्रविशन्ति येऽविद्यामुपासते।
 > ततो भूय इव ते तमो य उ विद्यायाँ रताः॥९॥
 
-## Text
+
+### Text
 
 > andhaṁ tamaḥ praviśanti
 > ye 'vidyām upāsate
 > tato bhūya iva te tamo
 > ya u vidyāyām ratāḥ
 
-## Synonyms
+
+### Synonyms
 
 *andham*—gross ignorance; *tamaḥ*—darkness; *praviśanti*—enter into; *ye*—those who; *avidyām*—nescience; *upāsate*—worship; *tataḥ*—than that; *bhūyaḥ*—still more; *iva*—like; *te*—they; *tamaḥ*—darkness; *ye*—those who; *u*—also; *vidyāyām*—in the culture of knowledge; *ratāḥ*—engaged.
 
-## Translation
+
+### Translation
 
 **Those who engage in the culture of nescient activities shall enter into the darkest region of ignorance. Worse still are those engaged in the culture of so-called knowledge.**
 
-## Purport
+
+### Purport
 
 This *mantra* offers a comparative study of *vidyā* and *avidyā. Avidyā,* or ignorance, is undoubtedly dangerous, but *vidyā,* or knowledge, is even more dangerous when mistaken or misguided. This *mantra* of *Śrī Īśopaniṣad* is more applicable today than at any time in the past. Modern civilization has advanced considerably in the field of mass education, but the result is that people are more unhappy than ever before because of the stress placed on material advancement to the exclusion of the most important part of life, the spiritual aspect.
 
@@ -471,27 +464,32 @@ One must approach a bona fide spiritual master in order to understand the transc
 
 The *māyayāpahṛta-jñāna* class of men are self-made "Gods." Such men think that they themselves are God and that there is no need of worshiping any other God. They will agree to worship an ordinary man if he happens to be rich, but they will never worship the Personality of Godhead. Such men, unable to recognize their own foolishness, never consider how it is that God can be entrapped by *māyā,* His own illusory energy. If God were ever entrapped by *māyā, māyā* would be more powerful than God. Such men say that God is all-powerful, but they do not consider that if He is all-powerful there is no possibility of His being overpowered by *māyā.* These self-made "Gods" cannot answer all these questions very clearly; they are simply satisfied to have become "God" themselves.
 
-# Īśo 10
+
+## Īśo 10
 
 > अन्यदेवाहुर्विद्ययाऽन्यदाहुरविद्यया।
 > इति शुश्रुम धीराणां ये नस्तद्विचचक्षिरे॥१०॥
 
-## Text
+
+### Text
 
 > anyad evāhur vidyayā-
 > nyad āhur avidyayā
 > iti śuśruma dhīrāṇāṁ
 > ye nas tad vicacakṣire
 
-## Synonyms
+
+### Synonyms
 
 *anyat*—different; *eva*—certainly; *āhuḥ*—said; *vid-yayā*—by culture of knowledge; *anyat*—different; *āhuḥ*—said; *avidyayā*—by culture of nescience; *iti*—thus; *śuśruma*—I heard; *dhīrāṇām*—from the sober; *ye*—who; *naḥ*—to us; *tat*—that; *vicacakṣire*—explained.
 
-## Translation
+
+### Translation
 
 **The wise have explained that one result is derived from the culture of knowledge and that a different result is obtained from the culture of nescience.**
 
-## Purport
+
+### Purport
 
 As advised in Chapter Thirteen of the *Bhagavad-gītā* (13.8-12), one should culture knowledge in the following way:
 
@@ -549,27 +547,32 @@ To follow the regulative principles, one must take shelter of a bona fide spirit
 
 An *adhīra* (one who has not undergone the training of a *dhīra*) cannot be an instructive leader. Modern politicians who pose themselves as *dhīras* are actually *adhīras,* and one cannot expect perfect knowledge from them. They are simply busy seeing to their own remuneration in dollars and cents. How, then, can they lead the mass of people to the right path of self-realization? Thus one must hear submissively from a *dhīra* in order to attain actual education.
 
-# Īśo 11
+
+## Īśo 11
 
 > विद्यां चाविद्यां च यस्तद्वेदोभयँ सह।
 > अविद्यया मृत्युं तीर्त्वा विद्ययाऽमृतमश्नुते॥११॥
 
-## Text
+
+### Text
 
 > vidyāṁ cāvidyāṁ ca yas
 > tad vedobhayaṁ saha
 > avidyayā mṛtyuṁ tīrtvā
 > vidyayāmṛtam aśnute
 
-## Synonyms
+
+### Synonyms
 
 *vidyām*—knowledge in fact; *ca*—and; *avidyām*—nescience; *ca*—and; *yaḥ*—a person who; *tat*—that; *veda*—knows; *ubhayam*—both; *saha*—simultaneously; *avidyayā*—by culture of nescience; *mṛtyum*—repeated death; *tīrtvā*—transcending; *vidyayā*—by culture of knowledge; *amṛtam*—deathlessness; *aśnute*—enjoys.
 
-## Translation
+
+### Translation
 
 **Only one who can learn the process of nescience and that of transcendental knowledge side by side can transcend the influence of repeated birth and death and enjoy the full blessings of immortality.**
 
-## Purport
+
+### Purport
 
 Since the creation of the material world, everyone has been trying to attain a permanent life, but the laws of nature are so cruel that no one has been able to avoid the hand of death. No one wants to die, nor does anyone want to become old or diseased. The law of nature, however, does not allow anyone immunity from old age, disease or death. Nor has the advancement of material knowledge solved these problems. Material science can discover the nuclear bomb to accelerate the process of death, but it cannot discover anything that can protect man from the cruel hands of old age, disease and death.
 
@@ -606,27 +609,32 @@ The guaranteed path to the aim of *vidyā* is described by Śrīla Rūpa Gosvām
 
 Unless religion, economic development and sense gratification aim toward the attainment of devotional service to the Lord, they are all simply different forms of nescience, as *Śrī Īśopaniṣad* indicates in the following *mantras.*
 
-# Īśo 12
+
+## Īśo 12
 
 > अन्धं तमः प्रविशन्ति येऽसम्भूतिमुपासते।
 > ततो भूय इव ते तमो य उ सम्भूत्याँ रताः॥१२॥
 
-## Text
+
+### Text
 
 > andhaṁ tamaḥ praviśanti
 > ye 'sambhūtim upāsate
 > tato bhūya iva te tamo
 > ya u sambhūtyām ratāḥ
 
-## Synonyms
+
+### Synonyms
 
 *andham*—ignorance; *tamaḥ*—darkness; *praviśanti*—enter into; *ye*—those who; *asambhūtim*—demigods; *upāsate*—worship; *tataḥ*—than that; *bhūyaḥ*—still more; *iva*—like that; *te*—those; *tamaḥ*—darkness; *ye*—who; *u*—also; *sambhūtyām*—in the Absolute; *ratāḥ*—engaged.
 
-## Translation
+
+### Translation
 
 **Those who are engaged in the worship of demigods enter into the darkest region of ignorance, and still more so do the worshipers of the impersonal Absolute.**
 
-## Purport
+
+### Purport
 
 The Sanskrit word *asambhūti* refers to those who have no independent existence. *Sambhūti* is the Absolute Personality of Godhead, who is absolutely independent of everything. In the *Bhagavad-gītā* (10.2), the Absolute Personality of Godhead, Śrī Kṛṣṇa, states:
 
@@ -662,27 +670,32 @@ The Lord states that as soon as one reaches Him by devotional service—which is
 
 These rogues are the most dangerous elements in human society. Because there is no religious government, they escape punishment by the law of the state. They cannot, however, escape the law of the Supreme, who has clearly declared in the *Bhagavad-gītā* that envious demons in the garb of religious propagandists shall be thrown into the darkest regions of hell (Bg. 16.19-20). *Śrī Īśopaniṣad* confirms that these pseudo religionists are heading toward the most obnoxious place in the universe after the completion of their spiritual master business, which they conduct simply for sense gratification.
 
-# Īśo 13
+
+## Īśo 13
 
 > अन्यदेवाहुः सम्भवादन्यदाहुरसम्भवात्।
 > इति शुश्रुम धीराणां ये नस्तद्विचचक्षिरे॥१३॥
 
-## Text
+
+### Text
 
 > anyad evāhuḥ sambhavād
 > anyad āhur asambhavāt
 > iti śuśruma dhīrāṇāṁ
 > ye nas tad vicacakṣire
 
-## Synonyms
+
+### Synonyms
 
 *anyat*—different; *eva*—certainly; *āhuḥ*—it is said; *sambhavāt*—by worshiping the Supreme Lord, the cause of all causes; *anyat*—different; *āhuḥ*—it is said; *asambhavāt*—by worshiping what is not the Supreme; *iti*—thus; *śuśruma*—I heard it; *dhīrāṇām*—from the undisturbed authorities; *ye*—who; *naḥ*—unto us; *tat*—about that subject matter; *vicacakṣire*—perfectly explained.
 
-## Translation
+
+### Translation
 
 **It is said that one result is obtained by worshiping the supreme cause of all causes and that another result is obtained by worshiping what is not supreme. All this is heard from the undisturbed authorities, who clearly explained it.**
 
-## Purport
+
+### Purport
 
 The system of hearing from undisturbed authorities is approved in this *mantra.* Unless one hears from a bona fide *ācārya,* who is never disturbed by the changes of the material world, one cannot have the real key to transcendental knowledge. The bona fide spiritual master, who has also heard the *śruti-mantras,* or Vedic knowledge, from his undisturbed *ācārya,* never presents anything that is not mentioned in the Vedic literature. In the *Bhagavad-gītā* (9.25) it is clearly said that those who worship the *pitṛs,* or forefathers, attain the planets of the forefathers, that the gross materialists who make plans to remain here stay in this world, and that the devotees of the Lord who worship none but Lord Kṛṣṇa, the supreme cause of all causes, reach Him in His spiritual sky. Here also in *Śrī Īśopaniṣad* it is verified that one achieves different results by different modes of worship. If we worship the Supreme Lord, we will certainly reach Him in His eternal abode, and if we worship demigods like the sun-god or moon-god, we can reach their respective planets without a doubt. And if we wish to remain on this wretched planet with our planning commissions and our stopgap political adjustments, we can certainly do that also.
 
@@ -695,11 +708,11 @@ Nowhere in authentic scriptures is it said that one will ultimately reach the sa
 
 "This supreme science was thus received through the chain of disciplic succession, and the saintly kings understood it in that way. But in course of time the succession was broken, and therefore the science as it is appears to be lost."
 
-When Lord Śrī Kṛṣṇa was present on this earth, the *bhakti-yoga* principles defined in the *Bhagavad-gītā* had become distorted; therefore the Lord had to reestablish the disciplic system beginning with Arjuna, who was the most confidential friend and devotee of the Lord. The Lord clearly told Arjuna [[bg/4/3|(Bg. 4.3)]] that it was because Arjuna was His devotee and friend that he could understand the principles of the *Bhagavad-gītā.* In other words, only the Lord's devotee and friend can understand the *Gītā.* This also means that only one who follows the path of Arjuna can understand the *Bhagavad-gītā.*
+When Lord Śrī Kṛṣṇa was present on this earth, the *bhakti-yoga* principles defined in the *Bhagavad-gītā* had become distorted; therefore the Lord had to reestablish the disciplic system beginning with Arjuna, who was the most confidential friend and devotee of the Lord. The Lord clearly told Arjuna (Bg. 4.3) that it was because Arjuna was His devotee and friend that he could understand the principles of the *Bhagavad-gītā.* In other words, only the Lord's devotee and friend can understand the *Gītā.* This also means that only one who follows the path of Arjuna can understand the *Bhagavad-gītā.*
 
 At the present moment there are many interpreters and translators of this sublime dialogue who care nothing for Lord Kṛṣṇa or Arjuna. Such interpreters explain the verses of the *Bhagavad-gītā* in their own way and postulate all sorts of rubbish in the name of the *Gītā.* Such interpreters believe neither in Śrī Kṛṣṇa nor in His eternal abode. How, then, can they explain the *Bhagavad-gītā*?
 
-Kṛṣṇa clearly says that only those who have lost their sense worship the demigods for paltry rewards (Bg. 7.20, 23). Ultimately He advises that one give up all other ways and modes of worship and fully surrender unto Him alone [[bg/18/66|(Bg. 18.66)]]. Only those who are cleansed of all sinful reactions can have such unflinching faith in the Supreme Lord. Others will continue hovering on the material platform with their paltry ways of worship and thus will be misled from the real path under the false impression that all paths lead to the same goal.
+Kṛṣṇa clearly says that only those who have lost their sense worship the demigods for paltry rewards (Bg. 7.20, 23). Ultimately He advises that one give up all other ways and modes of worship and fully surrender unto Him alone (Bg. 18.66). Only those who are cleansed of all sinful reactions can have such unflinching faith in the Supreme Lord. Others will continue hovering on the material platform with their paltry ways of worship and thus will be misled from the real path under the false impression that all paths lead to the same goal.
 
 In this *mantra* of *Śrī Īśopaniṣad* the word *sam-bhavāt,* "by worship of the supreme cause," is very significant. Lord Kṛṣṇa is the original Personality of Godhead, and everything that exists has emanated from Him. In the *Bhagavad-gītā* (10.8) the Lord says,
 
@@ -739,27 +752,32 @@ Any lowborn person can be purified by the guidance of a pure devotee of the Lord
 
 When one attains brahminical qualifications, he becomes happy and enthusiastic to render devotional service to the Lord. Automatically the science of God is unveiled before him. By knowing the science of God, one gradually becomes freed from material attachments, and one's doubtful mind becomes crystal clear by the grace of the Lord. One who attains this stage is a liberated soul and can see the Lord in every step of life. This is the perfection of *sambhava,* as described in this *mantra* of *Śrī Īśopaniṣad.*
 
-# Īśo 14
+
+## Īśo 14
 
 > सम्भूतिं च विनाशं च यस्तद्वेदोभयँ सह।
 > विनाशेन मृत्युं तीर्त्वा सम्भूत्याऽमृतमश्नुते॥१४॥
 
-## Text
+
+### Text
 
 > sambhūtiṁ ca vināśaṁ ca
 > yas tad vedobhayaṁ saha
 > vināśena mṛtyuṁ tīrtvā
 > sambhūtyāmṛtam aśnute
 
-## Synonyms
+
+### Synonyms
 
 *sambhūtim*—the eternal Personality of Godhead, His transcendental name, form, pastimes, qualities and paraphernalia, the variegatedness of His abode, etc.; *ca*—and; *vināśam*—the temporary material manifestation of demigods, men, animals, etc., with their false names, fame, etc.; *ca*—also; *yaḥ*—one who; *tat*—that; *veda*—knows; *ubhayam*—both; *saha*—along with; *vināśena*—with everything liable to be vanquished; *mṛtyum*—death; *tīrtvā*—surpassing; *sam-bhūtyā*—in the eternal kingdom of God; *amṛtam*—deathlessness; *aśnute*—enjoys.
 
-## Translation
+
+### Translation
 
 **One should know perfectly the Personality of Godhead Śrī Kṛṣṇa and His transcendental name, form, qualities and pastimes, as well as the temporary material creation with its temporary demigods, men and animals. When one knows these, he surpasses death and the ephemeral cosmic manifestation with it, and in the eternal kingdom of God he enjoys his eternal life of bliss and knowledge.**
 
-## Purport
+
+### Purport
 
 By its so-called advancement of knowledge, human civilization has created many material things, including spaceships and atomic energy. Yet it has failed to create a situation in which people need not die, take birth again, become old or suffer from disease. Whenever an intelligent man raises the question of these miseries before a so-called scientist, the scientist very cleverly replies that material science is progressing and that ultimately it will be possible to render man deathless, ageless and diseaseless. Such answers prove the scientists' gross ignorance of material nature. In material nature, everyone is under the stringent laws of matter and must pass through six stages of existence: birth, growth, maintenance, production of by-products, deterioration and finally death. No one in contact with material nature can be beyond these six laws of transformation; therefore no one—whether demigod, man, animal or plant—can survive forever in the material world.
 
@@ -796,27 +814,32 @@ In this *mantra, Śrī Īśopaniṣad* teaches that one must perfectly know both
 
 We must therefore save ourselves and our fellow man in the right way. There is no question of liking or disliking the truth. It is there. If we want to be saved from repeated birth and death, we must take to the devotional service of the Lord. There can be no compromise, for this is a matter of necessity.
 
-# Īśo 15
+
+## Īśo 15
 
 > हिरण्मयेन पात्रेण सत्यस्यापिहितं मुखम्।
 > तत्त्वं पूषन्नपावृणु सत्यधर्माय दृष्टये॥१५॥
 
-## Text
+
+### Text
 
 > hiraṇmayena pātreṇa
 > satyasyāpihitaṁ mukham
 > tat tvaṁ pūṣann apāvṛṇu
 > satya-dharmāya dṛṣṭaye
 
-## Synonyms
+
+### Synonyms
 
 *hiraṇmayena*—by a golden effulgence; *pātreṇa*—by a dazzling covering; *satyasya*—of the Supreme Truth; *apihitam*—covered; *mukham*—the face; *tat*—that covering; *tvam*—Yourself; *pūṣan*—O sustainer; *apāvṛṇu*—kindly remove; *satya*—pure; *dharmāya*—unto the devotee; *dṛṣṭaye*—for exhibiting.
 
-## Translation
+
+### Translation
 
 **O my Lord, sustainer of all that lives, Your real face is covered by Your dazzling effulgence. Kindly remove that covering and exhibit Yourself to Your pure devotee.**
 
-## Purport
+
+### Purport
 
 In the *Bhagavad-gītā* (14.27), the Lord explains His personal rays (*brahmajyoti*), the dazzling effulgence of His personal form, in this way:
 
@@ -883,28 +906,33 @@ The conclusion is that one who has no knowledge of the potencies of the Supreme 
 
 In the *Bhagavad-gītā* (6.46-47) there is a comparative analysis of the three types of transcendentalists—the worshipers of the impersonal Brahman (*jñānīs*), the worshipers of the Paramātmā feature (*yogīs*) and the devotees of Lord Śrī Kṛṣṇa (*bhaktas*). It is stated there that the *jñānīs,* those who have cultivated Vedic knowledge, are better than ordinary fruitive workers, that the *yogīs* are still greater than the *jñānīs,* and that among all *yogīs,* those who constantly serve the Lord with all their energies are the topmost. In summary, a philosopher is better than a laboring man, a mystic is superior to a philosopher, and of all the mystic *yogīs,* he who follows *bhakti-yoga,* constantly engaging in the service of the Lord, is the highest. *Śrī Īśopaniṣad* directs us toward this perfection.
 
-# Īśo 16
+
+## Īśo 16
 
 > पूषन्नेकर्षे यम सूर्य प्राजापत्य व्यूह रश्मीन् समूह तेजः।
 > यत्ते रूपं कल्याणतमं तत्ते
 > पश्यामि योऽसावसौ पुरुषः सोऽहमस्मि॥१६॥
 
-## Text
+
+### Text
 
 > pūṣann ekarṣe yama sūrya prājāpatya
 > vyūha raśmīn samūha
 > tejo yat te rūpaṁ kalyāṇa-tamaṁ
 > tat te paśyāmi yo 'sāv asau puruṣaḥ so 'ham asmi
 
-## Synonyms
+
+### Synonyms
 
 *pūṣan*—O maintainer; *eka-ṛṣe*—the primeval philosopher; *yama*—the regulating principle; *sūrya*—the destination of the sūris (great devotees); *prājāpatya*—the well-wisher of the prajāpatis (progenitors of mankind); *vyūha*—kindly remove; *raśmīn*—the rays; *samūha*—kindly withdraw; *tejaḥ*—effulgence; *yat*—so that; *te*—Your; *rūpam*—form; *kalyāṇa-tamam*—most auspicious; *tat*—that; *te*—Your; *paśyāmi*—I may see; *yaḥ*—one who is; *asau*—like the sun; *asau*—that; *puruṣaḥ*—Personality of Godhead; *saḥ*—myself; *aham*—I; *asmi*—am.
 
-## Translation
+
+### Translation
 
 **O my Lord, O primeval philosopher, maintainer of the universe, O regulating principle, destination of the pure devotees, well-wisher of the progenitors of mankind, please remove the effulgence of Your transcendental rays so that I can see Your form of bliss. You are the eternal Supreme Personality of Godhead, like unto the sun, as am I.**
 
-## Purport
+
+### Purport
 
 The sun and its rays are one and the same qualitatively. Similarly, the Lord and the living entities are one and the same in quality. The sun is one, but the molecules of the sun's rays are innumerable. The sun's rays constitute part of the sun, and the sun and its rays conjointly constitute the complete sun. Within the sun itself resides the sun-god, and similarly within the supreme spiritual planet, Goloka Vṛndāvana, from which the *brahmajyoti* effulgence is emanating, the Lord enjoys His eternal pastimes, as verified in the *Brahma-saṁhitā* (5.29):
 
@@ -929,27 +957,32 @@ Thus there is a gulf of difference between the living entity (*ātmā*) and the 
 
 The all-pervading feature of the Lord—which exists in all circumstances of waking and sleeping as well as in potential states and from which the *jīva-śakti* (living force) is generated as both conditioned and liberated souls—is known as Brahman. Since the Lord is the origin of both Paramātmā and Brahman, He is the origin of all living entities and all else that exists. One who knows this engages himself at once in the devotional service of the Lord. Such a pure and fully cognizant devotee of the Lord is fully attached to Him in heart and soul, and whenever such a devotee assembles with similar devotees, they have no engagement but the glorification of the Lord's transcendental activities. Those who are not as perfect as the pure devotees—namely, those who have realized only the Brahman or Paramātmā features of the Lord—cannot appreciate the activities of the perfect devotees. The Lord always helps the pure devotees by imparting necessary knowledge within their hearts, and thus out of His special favor He dissipates all the darkness of ignorance. The speculative philosophers and *yogīs* cannot imagine this, because they more or less depend on their own strength. As stated in the *Kaṭha Upaniṣad* (1.2.23), the Lord can be known only by those whom He favors, and not by anyone else. Such special favors are bestowed upon His pure devotees only. *Śrī Īśopaniṣad* thus points to the favor of the Lord, which is beyond the purview of the *brahmajyoti.*
 
-# Īśo 17
+
+## Īśo 17
 
 > वायुरनिलममृतमथेदं भस्मांतँ शरीरम्।
 > ॐ क्रतो स्मर कृतँ स्मर क्रतो स्मर कृतँ स्मर॥१७॥
 
-## Text
+
+### Text
 
 > vāyur anilam amṛtam
 > athedaṁ bhasmāntaṁ śarīram
 > oṁ krato smara kṛtaṁ smara
 > krato smara kṛtaṁ smara
 
-## Synonyms
+
+### Synonyms
 
 *vāyuḥ*—air of life; *anilam*—total reservoir of air; *amṛtam*—indestructible; *atha*—now; *idam*—this; *bhasmāntam*—after being turned to ashes; *śarīram*—body; *oṁ*—O Lord; *krato*—O enjoyer of all sacrifices; *smara*—please remember; *kṛtam*—all that has been done by me; *smara*—please remember; *krato*—O supreme beneficiary; *smara*—please remember; *kṛtam*—all that I have done for You; *smara*—please remember.
 
-## Translation
+
+### Translation
 
 **Let this temporary body be burnt to ashes, and let the air of life be merged with the totality of air. Now, O my Lord, please remember all my sacrifices, and because You are the ultimate beneficiary, please remember all that I have done for You.**
 
-## Purport
+
+### Purport
 
 The temporary material body is certainly a foreign dress. The *Bhagavad-gītā* (2.20) clearly says that after the destruction of the material body the living entity is not annihilated, nor does he lose his identity. The identity of the living entity is never impersonal or formless; on the contrary, it is the material dress that is formless and that takes a shape according to the form of the indestructible person. No living entity is originally formless, as is wrongly thought by those with a poor fund of knowledge. This *mantra* verifies the fact that the living entity exists after the annihilation of the material body.
 
@@ -989,33 +1022,38 @@ Mahārāja Parīkṣit's main question was: "What is the duty of every man, spec
 > śrotavyaḥ kīrtitavyaś ca
 > smartavyaś cecchatābhayam
 
-"Everyone who desires to be free from all anxieties should always hear about, glorify and remember the Personality of Godhead, who is the supreme director of everything, the extinguisher of all difficulties, and the Supersoul of all living entities." [[sb/2/1/5|(SB 2.1.5)]]
+"Everyone who desires to be free from all anxieties should always hear about, glorify and remember the Personality of Godhead, who is the supreme director of everything, the extinguisher of all difficulties, and the Supersoul of all living entities." (SB 2.1.5)
 
 So-called human society is generally engaged at night in sleeping and having sex and during the daytime in earning as much money as possible or else in shopping for family maintenance. People have very little time to talk about the Personality of Godhead or to inquire about Him. They have dismissed God's existence in so many ways, primarily by declaring Him to be impersonal, that is, without sense perception. But in the Vedic literature—whether the *Upaniṣads, Vedānta-sūtra, Bhagavad-gītā* or *Śrīmad-Bhāgavatam*—it is declared that the Lord is a sentient being and is supreme over all other living entities. His glorious activities are identical with Himself. One should therefore not indulge in hearing and speaking of the rubbish activities of worldly politicians and so-called big men in society but should mold his life in such a way that he can engage in godly activities without wasting a second. *Śrī Īśopaniṣad* directs us toward such godly activities.
 
 Unless one is accustomed to devotional practice, what will he remember at the time of death, when the body is dislocated, and how can he pray to the almighty Lord to remember his sacrifices? Sacrifice means denying the interest of the senses. One has to learn this art by employing the senses in the service of the Lord during one's lifetime. One can utilize the results of such practice at the time of death.
 
-# Īśo 18
+
+## Īśo 18
 
 > अग्ने नय सुपथा राये अस्मान् विश्वानि देव वयुनानि विद्वान्।
 > युयोध्यस्मज्जुहुराणमेनो भूयिष्ठां ते नमउक्तिं विधेम॥१८॥
 
-## Text
+
+### Text
 
 > agne naya supathā rāye asmān
 > viśvāni deva vayunāni vidvān
 > yuyodhy asmaj juhurāṇam eno
 > bhūyiṣṭhāṁ te nama-uktiṁ vidhema
 
-## Synonyms
+
+### Synonyms
 
 *agne*—O my Lord, as powerful as fire; *naya*—kindly lead; *supathā*—by the right path; *rāye*—for reaching You; *asmān*—us; *viśvāni*—all; *deva*—O my Lord; *vayunāni*—actions; *vidvān*—the knower; *yuyodhi*—kindly remove; *asmat*—from us; *juhurāṇam*—all hindrances on the path; *enaḥ*—all vices; *bhūyiṣṭhām*—most numerous; *te*—unto You; *namaḥ uktim*—words of obeisance; *vidhema*—I do.
 
-## Translation
+
+### Translation
 
 **O my Lord, as powerful as fire, O omnipotent one, now I offer You all obeisances, falling on the ground at Your feet. O my Lord, please lead me on the right path to reach You, and since You know all that I have done in the past, please free me from the reactions to my past sins so that there will be no hindrance to my progress.**
 
-## Purport
+
+### Purport
 
 By surrendering to the Lord and praying for His causeless mercy, the devotee can progress on the path of complete self-realization. The Lord is addressed as fire because He can burn anything into ashes, including the sins of the surrendered soul. As described in the previous *mantras,* the real or ultimate aspect of the Absolute is His feature as the Personality of Godhead, and His impersonal *brahmajyoti* feature is a dazzling covering over His face. Fruitive activities, or the *karma-kāṇḍa* path of self-realization, is the lowest stage in this endeavor. As soon as such activities even slightly deviate from the regulative principles of the *Vedas,* they are transformed into *vikarma,* or acts against the interest of the actor. Such *vikarma* is enacted by the illusioned living entity simply for sense gratification, and thus such activities become hindrances on the path of self-realization.
 
@@ -1041,3 +1079,4 @@ Vedic knowledge is transcendental and cannot be understood by mundane educationa
 Hearing and chanting the glories of the Lord is itself an act of piety. The Lord wants everyone to hear and chant His glories because He is the well-wisher of all living entities. By hearing and chanting the glories of the Lord, one becomes cleansed of all undesirable things, and then one's devotion becomes fixed upon the Lord. At this stage the devotee acquires the brahminical qualifications, and the effects of the lower modes of nature (passion and ignorance) completely vanish. The devotee becomes fully enlightened by virtue of his devotional service, and thus he comes to know the path of the Lord and the way to attain Him. As all doubts diminish, he becomes a pure devotee.
 
 *Thus end the Bhaktivedanta Purports to Śrī Īśopaniṣad, the knowledge that brings one nearer to the Supreme Personality of Godhead, Kṛṣṇa.*
+

@@ -1,32 +1,7 @@
-# *Easy Journey to Other Planets*
-
-*Easy Journey to Other Planets* - 1972 Edition
+# Easy Journey to Other Planets
 
 
-
-Table of Contents
-
-
-
-His Divine Grace
-
-A.C. Bhaktivedanta Swami Prabhupāda
-
-Founder-Ācārya of the International Society for Krishna Consciousness
-
-
-
-
-
-EJ Preface
-
-EJ 1: Antimaterial Worlds
-
-EJ 2: Varieties of Planetary Systems
-
-
-
-
+# Preface
 
 Preface
 
@@ -50,8 +25,7 @@ One can attain this stage of perfection very easily by his individual effort. He
 Chapter One
 
 
-
-
+# Chapter 1: Antimaterial Worlds
 
 Antimaterial Worlds
 
@@ -724,8 +698,7 @@ Those who are followers of sanātana-dharma may henceforward take up those princ
 Chapter Two
 
 
-
-
+# Chapter 2: Varieties of Planetary Systems
 
 Varieties of Planetary Systems
 
@@ -1012,3 +985,4 @@ We have to give up this body, willingly or unwillingly. The day will come when w
 
 
 The purpose of our developed human consciousness is to understand how nature works. Aside from human consciousness, there is consciousness in dogs, cats, worms, trees, birds, beasts and all other species. But we are not meant to live in that consciousness. The *Śrīmad-Bhāgavatam* says that after many, many births we have attained the human form of body. Now we should not misuse it. Please utilize this human life to develop Kṛṣṇa consciousness and be happy.
+
