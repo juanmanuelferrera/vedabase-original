@@ -1,0 +1,162 @@
+# Śrīmad-Bhāgavatam 6.1.19 and Conversation
+
+*Śrīmad-Bhāgavatam 6.1.19  and Conversation Type: Srimad-Bhagavatam Dated: November 15th 1970 Location: Bombay Audio file: 701115SB-BOMBAY.mp3*
+
+**Prabhupāda:** ...inform that man, he'll come at about ten.
+
+**Haṁsadūta:** He'll come at ten tonight? It's on the way to Gorakhpur?
+
+**Prabhupāda:** Yes, we can go via that way also. Then it would be time?
+
+**Haṁsadūta:** When do they want us to come there?
+
+**Prabhupāda:** Huh?
+
+**Haṁsadūta:** When do they want us? If we leave... The day we leave here, we can go there? Sixteenth or seventeenth?
+
+**Prabhupāda:** No, we are leaving on the seventeenth, so we can get that place on the eighteenth and live there for three, four days, if they'll provide a good bungalow. And they have promised. So this is the position. Now you can consider.
+
+**Haṁsadūta:** They can arrange a program for you?
+
+**Prabhupāda:** Oh, yes. They'll do everything.
+
+**Yamunā:** [indistinct] make arrangements [indistinct].
+
+**Prabhupāda:** Then we can cancel that. So the possibility is on the eighteenth. [break]
+
+**Devotee:** In order that you should leave by the eighteenth, actually we have to go by plane. And so the plane reservation has already been made, and [indistinct].
+
+**Prabhupāda:** So you, amongst yourself, consider all these. I cannot tax my brain. So whatever is good, you do it. At Gurudāsa's meeting we shall be required all to represent there? Some of them may go.
+
+**Yamunā:** Not all.
+
+**Prabhupāda:** Not all. Then some of them may go directly to Delhi, and some of them may go via Krishnanagar. What do you think, Haṁsadūta?
+
+**Haṁsadūta:** I think so, yes.
+
+**Prabhupāda:** So you consider. Make a meeting amongst yourselves. Decide what to do.
+
+**Haṁsadūta:** [indistinct conversation with other devotee]
+
+**Prabhupāda:** And here, for opening a center it is already proposed that they will give us land and they will give us a temple also. Other buildings we have to manage.
+
+**Haṁsadūta:** They will give us a temple also?
+
+**Prabhupāda:** Yes.
+
+**Haṁsadūta:** Where is that temple?
+
+**Prabhupāda:** Temple we have to construct.
+
+**Haṁsadūta:** Oh!
+
+**Prabhupāda:** But for that construction, temple, they will pay. But for residential and other buildings and maintenance, we have to arrange. That's not a bad proposal. It is nice proposal. They are giving us land, giving us a temple. And we can raise funds and construct as we increase men. In the meantime we can manage the temple. It is good proposal.
+
+[knocking noise] [Hums] Open it. Somebody is knocking. Keep it open. No, don't keep it ope... Yes, open, open. Keep it open like that. Yes. [indistinct comment by devotee]
+
+Another thing: that Gopāla is not offered sacred thread? You were not doubly initiated? So he can be initiated doubly. And Bruce, what it is? He is not going to be initiated?
+
+**Yamunā:** I'll have to ask him [indistinct].
+
+**Prabhupāda:** Huh? No, you can ask later on. He is now practiced to our habits. So he can be initiated. Yes. There is sufficient place. You can sit down here. [break] [Hindi]
+
+You can sit down behind the women. *Aiye, aiye.* [Hindi] Come. Come on forward. Come forward. [Hindi] Now the difficulty is if I speak in English, most probably the ladies will not be able to understand. And if I speak in Hindi, then these... [laughs]
+
+**Guest (2):** [indistinct]
+
+**Prabhupāda:** Huh?
+
+[discussion among guests and Prabhupāda; ladies say they understand English]
+
+**Prabhupāda:** Speak in English? You can do one thing. You can translate. Huh? That will be nice. So you come here. *Svalpam apy asya dharmasya trāyate mahato bhayāt* *Bg.* 2.40.
+
+**Guest (2):** The Sanskrit... I don't read Sanskrit.
+
+**Prabhupāda:** No, I will speak in English, but you will...
+
+**Guest (3):** [indistinct]
+
+**Prabhupāda:** *Svalpam apy asya dharmasya?*
+
+**Guest (3):** Yes.
+
+**Prabhupāda:** [Hindi] [pause] So Śukadeva Gosvāmī says,
+
+> sakṛn manaḥ kṛṣṇa-padāravindayor
+> niveśitaṁ tad-guṇa-rāgī yair iha
+> na te yamaṁ pāśa-bhṛtaś ca tad-bhaṭān
+> svapne 'pi paśyanti hi cīrṇa-niṣkṛtāḥ
+
+[*SB 6.1.19*]
+
+*Sakṛt. Sakṛt* means very a little, *svalpam,* very little. *Sakṛt manaḥ.* If one accepts this process of devotional service as very good—not that he has got full knowledge, but simply accepts it, simply accepts it... That is stated in the *Bhagavad-gītā, svalpam apy asya dharmasya trāyate mahato bhayāt.*
+
+[Indian man translates] [Prabhupāda speaks in Hindi]
+
+We have no other business, simply Kṛṣṇa consciousness. Therefore anyone who joins with us even for a moment, even for a few minutes, still, it is so powerful that it can help you to save you from the greatest danger.
+
+[Indian man translates throughout]
+
+For this reason the temple is situated. In the temple, generally ordinary man, woman, they come to see the Deities, hear the chanting, and sometimes play some instrument. All these help him progressing toward devotional service. *Niveśitaṁ tad-guṇa-rāgī yair iha.* Śrīdhara Svāmī says, *bhaktiḥ svalpāpi punāti:*
+
+"*Bhakti,* devotional service, is so nice that even it is done very little, still it purifies." Just like fire. Even a small fire can burn wherever it is placed. *Tasya guṇeṣu rāga-mātram asti na tu janānām.* Śrīdhāra Svāmī says, "Simply a little attraction for Kṛṣṇa, not full knowledge even, simple little attraction, can purify one from all sinful reaction."
+
+> atra codāharantīmam
+> itihāsaṁ purātanam
+> dūtānāṁ viṣṇu-yamayoḥ
+> saṁvādas taṁ nibodha me
+
+[*SB 6.1.20*]
+
+Now he again says that "Those who are attracted to devotional service of Kṛṣṇa even to a very little extent, for them," *na te yamaṁ pāśa-bhṛtaś ca tad-bhaṭān svapne 'pi paśyanti hi cīrṇa-niṣkṛtāḥ,* "they do not even dream the Yamarāja or his constables." Because at the time of death those who are very sinful, they are taken away to Yamarāja's place. That's a fact. Not only that: he even in dream does not see them, because that little service to Kṛṣṇa has made him freed from all sinful contamination. [Hindi] The very word is used, *cīrṇa-niṣkṛtāḥ.*
+
+> atra codāharantīmam
+> itihāsaṁ purātanam
+> dūtānāṁ viṣṇu-yamayoḥ
+> saṁvādas taṁ nibodha me
+
+[*SB 6.1.20*]
+
+Now Śukadeva Gosvāmī is giving an example from the history. Now it is explicitly stated here, *itihāsaṁ purāṇam.* All the *Purāṇas* that we have got, they are not legends; they are all history. They are all histories. Just like there is no chronological history one after another, but any incident which has taken actually place, they are reciting.
+
+They are not fiction or imaginary stories, all the *Purāṇas. Itihāsa,* yes. So Śukadeva Gosvāmī is giving an instance from the history which is very instructive. *Atra codāharantīmam itihāsaṁ purātanam. Purāṇa* means old history, actually *Purāṇa. Purāṇa* means old. So *purātaṇam itihāsam.*
+
+Now he gives that,
+
+> kānyakubje dvijaḥ kaścid
+> dāsī-patir ajāmilaḥ
+> nāmnā naṣṭa-sadācāro
+> dāsyāḥ saṁsarga-dūṣitaḥ
+
+[*SB 6.1.21*]
+
+He says, "In the city of Kānyakubja..." Kānyakubja is still existing. That is also historical place. That place is now known as Kanauj. Yes.
+
+[some discussion in Hindi between guests and Prabhupāda]
+
+"In the city of Kānyakubja, formerly there was a *brāhmaṇa.*" *Kānyakubje dvijaḥ kaścit.* "There was a *brāhmaṇa.*" *Āsīd dāsī-patir ajāmilaḥ. Dāsī-pati* means one who keeps woman; it is not married. He kept one woman, *dāsī;* therefore he was the husband of a *dāsī.* He was living with a woman who was not married wife. So a *brāhmaṇa* of the name Ajāmila who was husband of a kept woman, *kānyakubje dvijaḥ kaścid dāsī-patir ajāmilaḥ, nāmnā naṣṭa-sadācāraḥ.* But he lost all good qualification of a *brāhmaṇa.* That is the result of illegitimate connection with women.
+
+So this point is very important, that if one is addicted to illicit sex life, if one is addicted to meat-eating and if one is addicted in intoxicants, then he is immediately fallen from the standard of human society. [Hindi]
+
+The present state of Hindu society is so fallen because a *brāhmaṇa,* in spite of his *sadācāra,* he claims to become a *brāhmaṇa.* Do you follow? The *śāstra* says that as soon as you give up your good habits, the behavior of a *brāhmaṇa...* The behavior *brāhmaṇa* or... Just like it is stated in the *Bhagavad-gītā, satya-śama-dama-titikṣa-ārjavam, jñānaṁ vijñānaṁ āstikyaṁ brahma-karma svabhāva-jam* *Bg.* 18.42.
+
+So we have to select a *brāhmaṇa* by the symptoms of his life, not that because he is born of a *brāhmaṇa* family he remains a *brāhmaṇa.* No. He must continue the brahminical qualification; otherwise he is not a... *Naṣṭa-sadācāra.* He is lost. *Sadācāra* must be continued. This is the conclusion of the *Bhāgavata.* Unfortunately, not only *brāhmaṇas—kṣatriyas* or *śūdras,* they are practically... They have lost all *sadācāra.* Still, they are claiming that "I am born in higher family." *Naṣṭa-sadācāra dāsyāḥ sam...*
+
+And why he was lost of his good behavior? *Dāsyāḥ saṁsarga-duṣitaḥ:* because he was contaminated by that illicit sex life. And at the present moment a gentleman keeps woman and goes there, and still, he passes on as *brāhmaṇa.* He does not know that he has fallen down. [Hindi] For this reason the present Hindu society is so degraded.
+
+> bandy-akṣaiḥ kaiṭavaiś cauryair
+> garhitāṁ vṛttim āsthitaḥ
+> bibhrat kuṭumbam aśucir
+> yātayām āsa dehinaḥ
+
+[*SB 6.1.22*]
+
+Now his profession was... When a man falls down, then he lives by this profession. What are these? *Bandy-akṣaiḥ:* gambling, cheating and stealing. All these abominable activities they adopt. And he does not think that "I am doing something bad because I have no other means to maintain my family." He gives the reason that "What can I do? I have to maintain my family, so somehow or other I must get money."
+
+So there is a practical example in Patna high court. I do not wish to name, but there was a big high-court judge. He was taking bribe, and he was detected one day. When he was just to deliver one judgment, the chief judge called him and he asked him that "You immediately resign on health condition and go away." But when his friends asked him that "Why you were doing so?" he replied that "I have got expenditure ten thousand rupees per month, and I get only four thousand. What can I do?"
+
+So the... [door opens] [aside:] Come on.
+
+Just see practically. Even a high-court judge, because he has to spend more than his income, he adopted these vile means of living. The trend of modern civilization is like that. They unnecessarily increase their expenditure and adopt these all vile means. [Hindi]
+
+So your party is ready? [Hindi with guest] So you can go with him. Yes. So we'll... [Hindi] [end]

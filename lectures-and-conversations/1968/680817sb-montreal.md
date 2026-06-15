@@ -1,0 +1,223 @@
+# Śrīmad-Bhāgavatam 7.9.11
+
+*Type: Srimad-Bhagavatam Dated: August 17th 1968 Location: Montreal Audio file: 680817SB-MONTREAL.mp3*
+
+*Govindam ādi-puruṣaṁ tam ahaṁ bhajāmi.* [devotees chant responsively]
+
+**Prabhupāda:**
+
+> naivātmanaḥ prabhur ayaṁ nija-lābha-pūrṇo
+> mānaṁ janād aviduṣaḥ karuṇo vṛṇīte
+> yad yaj jano bhagavate vidadhīta mānaṁ
+> tac cātmane prati-mukhasya yathā mukha-śrīḥ
+
+[*SB* *7.9.11*]
+
+**[The Supreme Lord, the Supreme Personality of Godhead, is always fully satisfied in Himself. Therefore when something is offered to Him, the offering, by the Lord's mercy, is for the benefit of the devotee, for the Lord does not need service from anyone. To give an example, if one's face is decorated, the reflection of one's face in a mirror is also seen to be decorated.]**
+
+Now in the previous verse it has been explained that neither any material opulence nor a qualified *brāhmaṇa* with twelve high qualification can satisfy the Lord simply by such acquisition. One can satisfy the Lord simply by love and devotional service. Why? Doesn't He not... Then why so much opulence is created in erecting nice temple or churches, and so much money is expended? Does it not satisfy the Lord? Why they are spending so much money?
+
+The modern economist says that this is unproductive investment. Because if you construct a very big temple... Just like in India we have got many temples, especially in South India, each of them is just like a fort, very big fort. There is a temple in Raṅganātham, it is a few miles' temple. There are seven gates. Very big temple.
+
+Many other temples. Similarly, in your country also there are many nice churches. I have traveled all over America, and I have seen very big churches. Here also, in Montreal, there are many big churches. So why they are spending so much money, although the modern economist will say it is nonproductive investment?
+
+So this church building or temple building or mosque building is coming down from time immemorial. People are investing their money, hard-earned money. Why? Uselessly? Nonproductive? No. They do not know. They do not know how much productive that is. Therefore in this godless civilization they have stopped building nice, decorated...
+
+In Vṛndāvana there is a temple of Govindajī that was seven-storied. Four stories was broken by Aurangzeb on political grounds. Still, three stories are still remaining. If somebody goes there, he'll see how wonderful workmanship is there in that temple. So does it mean that those kings or rich men, they were all fools? Simply at the present moment we are very intelligent? No. They are not fools.
+
+That is explained in the Prahlāda Mahārāja's prayers: *naivātmanaḥ prabhur ayaṁ nija-lābha-pūrṇo* SB 7.9.11*.* You cannot satisfy the Supreme Lord by constructing a nice temple, but still He is satisfied. Still, He is satisfied. He is *nija-lābha-pūrṇo.* He is fully satisfied in Himself because He has no want. We are in want. Suppose I am renting one small apartment.
+
+If somebody says, "Swāmījī, come on. I shall construct a very nice, palatial temple. You come here." Oh, I shall be very much obliged. But does Kṛṣṇa, or God, is like that? He can construct so many nice planets, not only one, two, but millions and billions, with so many nice oceans and hills and mountains and forests, and full of living entities. And why He is hankering after a temple constructed by me? No. That is not the fact.
+
+The fact is that these fools, these rascals who are thinking that this world is for their enjoyment, this money belongs to him... It is stated here, *aviduṣaḥ. Aviduṣaḥ* means rascal, without any education. Without any education. "They have got all these university degrees, and without education?" Yes. "Why?" Because they have no spiritual education. So *aviduṣaḥ.*
+
+So *mānaṁ janam aviduṣaḥ karuṇo vṛṇīte* SB 7.9.11*.* When Kṛṣṇa says or God says that "Give Me this..." Just like He is begging from Bali Mahārāja, Vāmanadeva, "My dear King, will you give Me a little land?" So his spiritual master, he was a demon. He forbade Bali Mahārāja not to promise, because He is Viṣṇu. "He'll take everything from you." That's a nice story.
+
+Some of you know how Bali Mahārāja became a great devotee of the Lord. Now here it is stated that *mānaṁ janād aviduṣaḥ karuṇo vṛṇīte* SB 7.9.11*.* Whatever He wants from any person, provided he is a devotee... The Lord does not accept anything from nondevotee. That is clearly stated in *Bhagavad-gītā. Patraṁ puṣpaṁ phalaṁ toyaṁ yo me bhaktyā prayacchati* *Bg.* 9.26*.*
+
+**[If one offers Me with love and devotion a leaf, a flower, fruit or water, I will accept it.]**
+
+Here it is stated, *nija-lābha-pūrṇo.* He is so opulent that He has no hankering. Complete. *Ṣaḍ-aiśvarya pūrṇaḥ.* He is complete with full six opulences. He is the richest, He is the wisest, He is the most famous, He is the most strong, influential, and renounced order. Everything is complete there. Then why He is asking that *patraṁ puṣpaṁ phalaṁ toyaṁ yo me bhaktyā prayacchati* *Bg.* 9.26? He is so rich, so opulent, still He is begging that "Little flower, a little water, a little fruit, if offered to Me with devotion and love, I accept and eat it."
+
+So the real fact is that we have lost our devotion, faith, in God. So He is begging therefore that love and faith. Not your money. Because He is already opulent. What you can give Him? And what belongs to you? Nothing belongs to you. You come from the womb of your mother openhanded, and when you die you go openhanded. So what does it belong to you? Nothing belongs to you. That's a fact. Simply by illusion you come here for some days and you think, "This is mine." That's all. This is called *māyā.* Actually, nothing belongs to you. Everything belongs to God, or Kṛṣṇa. But you claim that it belongs to you. That is your *māyā.*
+
+Therefore here it is said, *mānaṁ janād aviduṣaḥ karuṇo vṛṇīte.* Out of His causeless mercy He begs sometimes, "Give Me this." Just like sometimes father asks his child, "My dear boy, will you kindly give me a little cake from your portion?" And if the child is very fond of her [him], immediately gives. And sometimes he refuses, "No, I shall not give it." Similarly, Kṛṣṇa is full. Why He's begging? He's begging your love. That's all. Whenever Kṛṣṇa wants some service from you or begs something from you, it does not mean that He is in need of it. He is not in need of it. But He is in need of your love because you have forgotten how to love God, how to love Kṛṣṇa. That He is practiced[?].
+
+There is a story that some *sannyāsī* went to a householder, because a *sannyāsī* goes to householder for begging. They are begging also like that. They are not beggars, but they introduce as beggar so that the householder may receive and take some advantage of his knowledge. He is not beggar. So one beggar went to a householder, and the housewife said, "Oh, this beggar has come from door to door. Give him some ashes." So the *sannyāsī* replied, "All right. Give me some ashes. Just begin your charity." "Just begin your charity."
+
+So similarly, Kṛṣṇa, when He wants, "Give Me a little flower, a little fruit, a little water," it does not mean that He is begging. He is just inducing me to the practice of offering everything which belongs to Kṛṣṇa.
+
+> īśāvāsyam idaṁ sarvaṁ
+> yad kiñcid jagatyāṁ jagat
+> tena tyaktena bhuñjīthā
+> mā gṛdhaḥ kasya svid dhanam
+
+[*Īśo* *mantra 1*]
+
+**[Everything animate or inanimate that is within the universe is controlled and owned by the Lord. One should therefore accept only those things necessary for himself, which are set aside as his quota, and one should not accept other things, knowing well to whom they belong.]**
+
+The *Īśopaniṣad* instructs us that everything that is within your vision, it belongs to Īśa, the Supreme Lord. Whatever you see, whatever you have got, that does not belong to you; it belongs to God. *Tena tyaktena bhuñjīthā.* This is the first verse in *Īśopaniṣad. Tena tyaktena bhuñjīthā.* You can simply enjoy whatever is given to you as *prasādam. Mā gṛdhaḥ kasya svid dhanam.* Don't touch any other's property. This is the instruction of *Īśopaniṣad.*
+
+So we have forgotten this. So in order to instruct us the principle that everything belongs to God, this is the beginning, that we should try to offer whatever we have got. Kṛṣṇa is ready to accept from you a little bit of water, little bit of flower, a little bit of leaf or fruit. Practically it has no value, but when you begin to give to Kṛṣṇa, then gradually a time will come when you'll be prepared to give everything to Kṛṣṇa like the *gopīs.* This is the process. *Sarvātmanā. Sarvātmanā. Sarvātmanā* means with everything. That is our natural life. When we are in consciousness that "Nothing belongs to me. Everything belongs to God, and everything is meant for God's enjoyment, not for my sense enjoyment," that is called Kṛṣṇa consciousness.
+
+Kṛṣṇa consciousness means to be situated in the actual fact. Whenever we claim something that "This is mine," it is called *moha,* illusion. *Ahaṁ mameti* *SB* 5.5.8*.*
+
+**[The attraction between male and female is the basic principle of material existence. On the basis of this misconception, which ties together the hearts of the male and female, one becomes attracted to his body, home, property, children, relatives and wealth. In this way one increases life's illusions and thinks in terms of "I and mine."]**
+
+*Janasya moho ayam.* This conception of "mine" and "I" is the platform of illusion. *Janasya moho 'yam.* This world, whole world, is moving under this illusion that "I am this body, and everything..." "I am the monarch of all I survey." This is the philosophy. "Whatever I can acquire, that is mine." This is wrong. This is called illusion.
+
+Therefore we should try to give to Kṛṣṇa, not to ask. Because He has given us everything without asking. Without asking. We go to temple or churches to ask for our daily bread, but the birds and beasts, they have no churches, no temples, they do not ask. But how do they get their bread? Therefore according to *Śrīmad-Bhāgavatam,* there is no actually bread problem. The only problem is that we have forgotten our relationship with God. Whatever... *Tasyaiva hetoḥ prayateta kovido* [***SB*** 1.5.18]*.*
+
+**[Persons who are actually intelligent and philosophically inclined should endeavor only for that purposeful end which is not obtainable even by wandering from the topmost planet [Brahmaloka] down to the lowest planet [Pātāla]. As far as happiness derived from sense enjoyment is concerned, it can be obtained automatically in course of time, just as in course of time we obtain miseries even though we do not desire them.]**
+
+Therefore the instruction of *Bhāgavata* is, "Just try to revive your lost relationship with God, or Kṛṣṇa." That relationship is never extinguished, but sometimes it is covered. Just like a crazy boy forgets his father and mother and home, goes away. But the relationship between the son and the parents cannot be lost. As soon as the son comes back, the parents receives him very nicely. Similarly, we are all sons of the Supreme Lord.
+
+We have forgotten our father, we have forgotten our relationship, and we are loitering in this material world as helpless, and if we revive our consciousness, our Kṛṣṇa consciousness, that "My home is in the spiritual world. I am a foreigner in this material world..." Just like a foreigner is traveling from one place to another, similarly, I am also changing my body from one body to another, one planet to another. But there is no permanent settlement anywhere in this material world. This is our condition.
+
+So Kṛṣṇa consciousness means to be rightly situated in the original consciousness that we are all sons of God, Kṛṣṇa. We have got eternal relationship with Him, and He is the richest, the most opulent. As a rich man's son has no scarcity, no want, everything is supplied amply... Just like the Americans, they are... American or many other Western countries, the young men, they belong to a rich nation, so practically they have no want.
+
+But still, why they are becoming hopeless and confused? Because this material want is not all. There is spiritual want. Unless that spiritual want is fulfilled, unless that spiritual relationship is reestablished, nobody can be happy. So in order to make us happy, Kṛṣṇa says that "Begin with little flower, little water or little fruit, and try to offer Me."
+
+> mānaṁ janād aviduṣaḥ karuṇo vṛṇīte
+> yad yaj jano bhagavate vidadhīta mānaṁ
+> tac cātmane prati-mukhasya yathā mukha-śrīḥ
+
+[*SB* *7.9.11*]
+
+**[The Supreme Lord, the Supreme Personality of Godhead, is always fully satisfied in Himself. Therefore when something is offered to Him, the offering, by the Lord's mercy, is for the benefit of the devotee, for the Lord does not need service from anyone. To give an example, if one's face is decorated, the reflection of one's face in a mirror is also seen to be decorated.]**
+
+Just like if you decorate your face very nicely, how your face has become beautiful you cannot see. You cannot see. But as soon as you bring one mirror before your face, you'll see that in the mirror the reflection of your face is very nicely decorated. The same example is given here. We are reflection. We are reflection of God. Just like in the Bible it is said, "Man is made after God." God is not made after man. That is a mistake. The modern atheist class of men, they suggest that we manufacture a form of God according to our own form. Just like Kṛṣṇa and Rādhā, the picture is there. They allege that we have made a Kṛṣṇa form—maybe very beautiful—according to my form. But actually it is not.
+
+The Biblical truth is that man is made after God. Because we are sons of God, therefore God has got two hands, you have got also two hands. Just like your father has got two hands and you have got two hands, so you are made according to the body of your father, not that your father's body is made after your body. This is rationalism. Similarly, God's body is not made according to your body, but your body is made according to God's body. But this body is material; therefore we have to change. When we come to the spiritual platform, we get as good a body as that of Kṛṣṇa, which is eternal, full of bliss and full of knowledge. This is called Kṛṣṇa consciousness.
+
+Now here it is said, *yad yaj jano bhagavate vidadhīta mānam* SB 7.9.11*.* Whatever you are offering to Kṛṣṇa... Practically, we see that we are offering so many nice foodstuff to Kṛṣṇa, but Kṛṣṇa, apparently it appears that Kṛṣṇa has not eaten. The *prasādam* is distributed among the devotees. Similarly, whatever is offered to the Supreme Lord, He is not in need of it, but He accepts it. He spiritualizes it, and it is meant for you. You are gainer. Whenever there is some special function to offer some nice foodstuff to the Lord, you can take the *prasādam,* so actual gainer you are. But you are gainer in both ways. You taste very nice foodstuff, at the same time you regain your spiritual consciousness.
+
+So *yad yaj bhagavat..., yad yaj jano bhagavate vidadhīta mānam* SB 7.9.11*.* Whatever honor, respect or presentation is given to the Lord, it is enjoyed by Him. It is enjoyed by Him. So how it is so? Just the same example: just like you decorate your face, but you cannot see directly how your face is beautiful. But when you put your mirror before the face, on the reflection you see very nice decoration. Similarly, if you decorate the Supreme Lord, Kṛṣṇa... That is the system of temple worship: very nicely decorated temple, very nicely decorated Deity, all nice foodstuff offered to the Deity—you will feel enjoyment. The more you do that, you'll feel enjoyment.
+
+It is not nonproductive. It is very spiritually productive process. *Yad yaj jano vidadhīta. Ayaṁ prabhur īśvara. Īśvara. Prabhu* means *īśvara. Naivātmanaḥ prabhur ayaṁ nija-lābha-pūrṇo* SB 7.9.11*. Prabhu* means *īśvara. Prabhu* means master, controller. If a person is controller, master of a big establishment, so what the laborer can offer him? He is already the proprietor. So here it is said, *īśvara aviduṣaḥ akalpād janād mānaṁ pūjām ātmano 'rthe na vṛṇīte* SB 7.9.11*.* So do not foolishly think that the prescription given in the *śāstras* that whatever you have got, offered to Kṛṣṇa or offered to God, it is not that God is in want; it is your interest. The more you give to God, the more you become benefited. It is your interest.
+
+But the foolish persons, they do not know it. Therefore God... Like Bali Mahārāja. He goes, like Vāmanadeva, He goes to beg from Bali Mahārāja. And His representative, devotees of God, *sannyāsīs,* they also go to beg: "My dear sir, give us some contribution for our temple." It is not that he's beggar. It is for the person's benefit. He's spoiling his life in sense enjoyment, and this representative goes to him and takes some money from that hell-going activity and offers it to the Deity, so he'll be saved. *Svalpam apy asya dharmasya trāyate mahato bhayāt* *Bg.* 2.40.
+
+**[In this endeavor there is no loss or diminution, and a little advancement on this path can protect one from the most dangerous type of fear.]**
+
+Willingly or unwillingly, if you offer something to God, that will be a permanent credit. A permanent credit. *Svalpam apy asya dharmasya trāyate mahato bhayāt* *Bg.* 2.40*.*
+
+**[In this endeavor there is no loss or diminution, and a little advancement on this path can protect one from the most dangerous type of fear.]**
+
+Even little done, it can act so nicely that sometimes it can save you from the greatest danger.
+
+Just like Ajāmila. The story of Ajāmila is that he was a son of a *brāhmaṇa,* and he was very nice boy. He was married, and he was acting just like a *brāhmaṇa* boy. One day he went to collect some flowers and some wood from the forest for his father's worship. His father was worshiping Deity, and he was helping. On the path he saw that one *śūdra* and his wife, without any shame, they were embracing and kissing. This young boy became attracted.
+
+Therefore this system, that loving exchange or affairs should not be exhibited on the street. This is not very civilized form. In India it is not at all allowed. It is calculated indecent. There is punishment by law. But here the practice is different. But why it is so strict according to Vedic scripture? Here is the example. A young man was passing, and another young man and girl was embracing. Naturally he became excited. And of course, this kind of embracing and kissing on the public street is done not by any high class. So he was a *śūdra.*
+
+So this Ajāmila was standing there, and the *śūdrāṇī,* or the *śūdra* woman, also called, and he became more excited, and he embraced and kissed her, and gradually became attracted to her. And he left his wife and home and father and mother, then became drunkard and everything for that prostitute. At the last moment, when he was old enough, when he could not earn, he could not cheat to bring money, the man Ajāmila was thrown in the street by that woman. Because she was not his legalized wife, she was prostitute, so did not like him.
+
+But this man had a youngest son whose name was Nārāyaṇa. So when he was in precarious condition, he was just asking his youngest son Nārāyaṇa, "My dear boy, please come here." And by reciting this word "Nārāyaṇa," he remembered the same Nārāyaṇa whom he worshiped in his early age. Just see. Because under the direction of his father, as a *brāhmaṇa* boy he was being trained up to become a devotee of Nārāyaṇa, but unfortunately, he was misled by a prostitute, but still, he was saved at the last moment. And this is confirmed in the *Bhagavad-gītā, svalpam apy asya dharmasya trāyate mahato bhayāt* *Bg.* 2.40.
+
+**[In this endeavor there is no loss or diminution, and a little advancement on this path can protect one from the most dangerous type of fear.]**
+
+So anybody who is chanting Hare Kṛṣṇa, even for a moment, it will never go in vain. It will act. It will act, and it will act so nicely that sometimes you'll be saved from the greatest danger. That experience some of our students have already expressed. One girl is present here, she also experienced this. She was attacked by some black Negroes, and she began to chant Hare Kṛṣṇa, and she was saved. So these things are actual fact. There are many instances. So *svalpam apy asya trāyate mahato* *Bg.* 2.40*.* So anything, a little flower, a little fruit, a little water, you offer to Kṛṣṇa, or if you chant for a little while Hare Kṛṣṇa, or if you make association with devotees for a moment, this will never go in vain.
+
+So the purpose of opening so many centers of Kṛṣṇa consciousness is to give chance to these forgotten men, Kṛṣṇa consciousness. It is not a business. It is a charitable institution. It is hospital to cure the material disease. So unfortunately, people are not taking very much advantage, but those who are fortunate, *ei rūpe brahmāṇḍa bhramite kono bhāgyavān jīva* [*Cc.* *Madhya* 19.151]*.*
+
+**[“According to their karma, all living entities are wandering throughout the entire universe. Some of them are being elevated to the upper planetary systems, and some are going down into the lower planetary systems. Out of many millions of wandering living entities, one who is very fortunate gets an opportunity to associate with a bona fide spiritual master by the grace of Kṛṣṇa. By the mercy of both Kṛṣṇa and the spiritual master, such a person receives the seed of the creeper of devotional service.]**
+
+*Bhāgyavān.* So only the fortunate persons. As it is also expressed in the *Bhagavad-gītā, yeṣām anta-gataṁ pāpam* *Bg.* 7.28*.*
+
+**[Persons who have acted piously in previous lives and in this life, whose sinful actions are completely eradicated and who are freed from the duality of delusion, engage themselves in My service with determination.]**
+
+One who is completely free from all sinful reaction, such person can take to Kṛṣṇa consciousness. But the door is open for everyone. Everyone can come here and chant Hare Kṛṣṇa. It is not difficult job. We distribute *prasādam.* So take advantage and be benefited in Kṛṣṇa consciousness.
+
+Thank you. Hare Kṛṣṇa. [break]
+
+**Nanda-kiśora:** When a living entity becomes pure soul...
+
+**Prabhupāda:** Oh, where is your neck...?
+
+**Nanda-kiśora:** Oh, I... [indistinct]. [break]
+
+**Prabhupāda:** What is the harm? All right? Then?
+
+**Nanda-kiśora:** When a living entity becomes pure, purified, he is called *sac-cid-ānanda,* he has perfect knowledge. And Kṛṣṇa is also *sac-cid-ānanda.* Is that knowledge the same?
+
+**Prabhupāda:** No. A living entity is subjected to be deluded by *māyā.* But Kṛṣṇa is not deluded by *māyā.* That is the difference between Kṛṣṇa and living entity.
+
+**Nanda-kiśora:** But the knowledge that a pure devotee has, that's not the sa... Even though it's perfect knowledge...
+
+**Prabhupāda:** No. It cannot be as perfect as Kṛṣṇa's. That is not possible. Because you are part and parcel of Kṛṣṇa. Just like a drop of ocean water and the vast mass of water, quantitatively they are different. Qualitatively they are one. Similarly, Kṛṣṇa has knowledge and you have knowledge, but the quantity of Kṛṣṇa's knowledge and your knowledge is different. He is full of all knowledge. You are almost full of all knowledge, but not exactly like Kṛṣṇa. And especially in your conditional life you are covered. All your knowledge is covered. Even that fragmental knowledge is also covered. Therefore you are in illusion.
+
+Because we are fragmental, therefore we are subjected to be covered by the illusory spell. Just like the sky and the sun. Sometimes there is covering by cloud. The cloud covers a few miles or the cloud covers the eyes of living entities like us, but the cloud does not cover the sun or the whole sky. That is not possible. But a fragmental portion of the sky is covered by cloud, and because we are very teeny, if the cloud is spread only for ten miles we think, "Now the sun is covered." The sun is never covered. Similarly, the illusory energy cannot cover Kṛṣṇa, but it can cover you. And we are in this covering condition. Therefore we have forgotten our relationship with Kṛṣṇa.
+
+Now we have to uncover by Kṛṣṇa's grace, or we'll have to go to the sunlight. It is not that the sun is covered by cloud. Where there is no cloud, if you go there, you'll get full advantage of the sunlight. Similarly, we have to search out place where there is no cloudy understanding. There must be clear understanding. Then you'll find yourself satisfied in the light. [break]
+
+**Haṁsadūta:** Swāmījī, in one of Professor Sanyal's books he says that the mind is an organ of the soul. Is that correct? I always thought the mind was part of the material..., the subtle body, the subtle material body.
+
+**Prabhupāda:** No. Organ of the self. It is covered by the material energy. Originally, you have got everything. You have got mind, ego and everything. Just like when I think *ahaṁ brahmāsmi,* "I am servant of Kṛṣṇa," that is also ego, "I am." But that is pure. But as soon as I think "I am American," "I am Indian," "I am this body," that is impure. This is impure egoism, and that is pure egoism.
+
+So ego is there. Similarly, mind is also there, intelligence is also there, but when it is covered by this material contamination it is called *māyā,* and when it is out of material contamination, *ahaṁ brahmāsmi,* "I am servant of Kṛṣṇa. I shall act for Kṛṣṇa, I shall live for Kṛṣṇa, I shall eat for Kṛṣṇa, I shall prepare foodstuff for Kṛṣṇa, I shall sing for Kṛṣṇa—everything Kṛṣṇa," that is liberated stage.
+
+**Haṁsadūta:** So that mind is part of the soul. It's just, it's polluted.
+
+**Prabhupāda:** Yes. That is a symptom of... Mind is the active principle. Without mind, how can you act? The mind is there. But at the present moment, becoming covered by the material energy, everything is contaminated. Mind is contaminated, the intelligence is contaminated, the ego is contaminated, I, or self, I am contaminated. Everything is contaminated.
+
+When you have got fever, there is pain all over the body. There is temperature all over the body. And when the fever is off, there is no temperature. Similarly, it is the difference of consciousness only. As soon as we take material consciousness, it is to be understood in feverish condition. And as soon as we take to Kṛṣṇa consciousness, we are out of feverish condition.
+
+You want to ask? Yes, you can ask.
+
+**Nanda-kiśora:** Swāmījī, what is... The material elements are described, the mind, intelligence and false ego. What's the..., what is that mind, you know, that material mind? In other words, there's a spiritual mind and a material mind?
+
+**Prabhupāda:** What is the difference of your material life and spiritual life?
+
+**Nanda-kiśora:** One is for Kṛṣṇa, and one is for...
+
+**Prabhupāda:** That is the difference between material mind and spiritual mind. Because you are thinking that you are this body, this is material conception. Therefore everything is material—mind, intelligence and identification, everything material. Similarly, if you think, that thinking means mind, that you are Kṛṣṇa's, then everything is spiritual. That we have to practice. That is Kṛṣṇa consciousness.
+
+We have to keep ourselves always in Kṛṣṇa consciousness. *Īhā yasya harer dāsye.* And what is Kṛṣṇa consciousness? Kṛṣṇa consciousness means to... *Īhā. Īhā* means desire. Desire is a function of mind. So *īhā* means desire. So what is that desire? *Īhā yasya harer dāsye:* anyone whose desire is to engage himself in the service of Kṛṣṇa.
+
+So whole Kṛṣṇa consciousness activity is purification of the mind, of the intelligence, of the ego, everything, purifying process. *Sarvopādhi-vinirmuktaṁ tat-paratvena nirmalam* [*Cc. Madhya* 19.170]*.* The impurification is that *upādhi,* designation. I'm thinking, "I am American," "I am Indian." This is designation. Actually, spirit soul is neither American nor Indian nor Hindu nor Muslim. So one has to get out of this entanglement, material entanglement. *Sarvopādhi-vinirmuktaṁ tat-paratvena nirmalam* [*Cc. Madhya* 19.170]*.*
+
+**[“’Bhakti, or devotional service, means engaging all our senses in the service of the Lord, the Supreme Personality of Godhead, the master of all the senses. When the spirit soul renders service unto the Supreme, there are two side effects. One is freed from all material designations, and one’s senses are purified simply by being employed in the service of the Lord.’]**
+
+And how one can become purified? *Tat-paratvena,* when he identifies himself *ahaṁ brahmāsmi,* "I am servant of Kṛṣṇa. I am Brahman, I am pure self. I'm not matter. I'm not this body." This is the stage of purification. And when one is purified, then *hṛṣīkena hṛṣīkeśa-sevanaṁ bhaktir ucyate. Hṛṣīka* means senses. So mind is also one of the senses. There are eleven senses: five senses gathering knowledge and five senses working, and mind is the center. So mind is also accepted as sense. So *hṛṣīkena hṛṣīkeśa-sevanam* [*Cc. Madhya* 19.170]*.* When your purified senses are applied in the service of the master of the senses, Hṛṣīkeśa, that is called *bhakti.* This is the definition of *bhakti.*
+
+So mind required there. You are thinking that "I shall decorate Kṛṣṇa in such a way." That is a function of mind. And as soon as you think that "I shall decorate my such-and-such person in this way," that is *māyā.* So mind is there. Sometimes it is acting for *māyā,* and when it is acting for Kṛṣṇa, then it is purified. So in the Kṛṣṇa consciousness nothing has to be eradicated. Everything has to be purified. This is the Kṛṣṇa consciousness process.
+
+Yes?
+
+**Mālatī:** ...when they go back to Godhead, some people can remember their past lives.
+
+**Prabhupāda:** Yes.
+
+**Mālatī:** Some people can remember their past lives.
+
+**Prabhupāda: **Yes.
+
+**Mālatī:** In the mind.
+
+**Prabhupāda:** Yes.
+
+**Mālatī:** I thought the mind was left behind.
+
+**Prabhupāda:** No. Actually mind carries you to the next body. So mind goes with you. The material mind, material ego, material intelligence become nil when you are completely liberated. But at that time your spiritual mind acts. It is not very difficult to understand. Somebody is acting under the impression...
+
+Just like one of our student, he was acting under the impression that he is Frenchman and doing something subversive, and now he is thinking that "I am Kṛṣṇa's." [chuckles] He has stopped all those nonsense.
+
+[break] When he was thinking that he's a Frenchman, that mind was there. And now he's thinking that "I am Kṛṣṇa's," the mind is there. So where is the chance of losing the mind?
+
+You want to question anything?
+
+[break] This boy?
+
+**Haṁsadūta:** She. It's a girl.
+
+**Prabhupāda:** It is a girl? Oh. That's all right. [chuckles] So any other question? Otherwise chant Kṛṣṇa. Yes?
+
+**Mālatī:** I don't understand how materialistic people, if they have material minds, they can remember their past lives.
+
+**Prabhupāda:** Material mind has to be treated by spiritual medicine, then the material mind will be spiritual. Just the same example, that a man has got some bowel disturbance by drinking excessive milk, and the physician gives him another milk preparation, curd, and he is cured.
+
+Similarly, the Kṛṣṇa consciousness movement is just to treat the mind by Kṛṣṇa engagement. Then he becomes freed from material contamination. And actually it is happening. Those who are taking to this treatment, they are experiencing how it is happening.
+
+[aside:] The door is closed? Why? Open. Chant.
+
+[*kīrtana*] [end]

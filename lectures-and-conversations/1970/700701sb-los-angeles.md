@@ -1,0 +1,109 @@
+# Śrīmad-Bhāgavatam 2.1.1
+
+*Type: Srimad-Bhagavatam Dated: July 1st 1970 Location: Los Angeles Audio file: 700701SB-LOS-ANGELES.mp3*
+
+**Prabhupāda:** Hare Kṛṣṇa. So we have got new book, *The First Step in God-Realization.* Yes. Hare Kṛṣṇa.
+
+**Devotees:** Hare Kṛṣṇa.
+
+**Prabhupāda:** First, Invocation.
+
+*Oṁ namo bhagavate vāsudevāya. Oṁ namo bhagavate vāsudevāya. Oṁ namo vāsudevaya.*
+
+Text one.
+
+> śrī-śuka uvāca
+> varīyān eṣa te praśnaḥ
+> kṛto loka-hitaṁ nṛpa
+> ātmavit-sammataḥ puṁsāṁ
+> śrotavyādiṣu yaḥ paraḥ
+
+[*SB 2.1.1*]
+
+Now you recite independently, *oṁ namo bhagavate.*
+
+**Devotees:** [recite *oṁ namo bhagavate vāsudevāya* and the verse]
+
+**Prabhupāda:** Very good. All right. Again.
+
+This last line, it is *śrotavyādiṣu yaḥ paraḥ.* Like this:* śrotavyā...*
+
+**Devotees: ***Śrotavyādiṣu...*
+
+**Prabhupāda:** *Diṣu,* short. *Śrotavyādiṣu yaḥ paraḥ.*
+
+**Devotees:** *Śrotavyādiṣu yaḥ paraḥ.*
+
+**Prabhupāda:** So these *Bhāgavata* verses, if it is chanted with little tune, then it is very nice. The tune should be like this: [repeats verse with tune]
+
+> śrī-śuka uvāca
+> varīyān eṣa te praśnaḥ
+> kṛto loka-hitaṁ nṛpa
+> ātmavit-sammataḥ puṁsāṁ
+> śrotavyādiṣu yaḥ paraḥ
+
+[*SB 2.1.1*]
+
+Like that.
+
+**Devotees:** *Jaya.* [laughing] Nectar.
+
+**Prabhupāda:** Yes. Try to hear and... [chanting with tune:] *varīyān eṣa te praśnaḥ.*
+
+**Devotees:** *Varīyān eṣa te praśnam.*
+
+**Prabhupāda:** *Kṛto loka-hitaṁ nṛpa.*
+
+**Devotees:** *Kṛto loka-hitaṁ nṛpa.*
+
+**Prabhupāda:** *Ātmavit-sammato puṁsām.*
+
+**Devotees:** *Ātmavit-sammato puṁsām.*
+
+**Prabhupāda:** *Śrotavyādiṣu yaḥ param.*
+
+**Devotees:** *Śrotavyādiṣu yaḥ param.*
+
+[verse is repeated three more times]
+
+**Prabhupāda:** Now chant independently.
+
+Again.
+
+Very good. So read the translation. Yes.
+
+**Gargamuni:** First with the Invocation?
+
+**Prabhupāda:** Yes.
+
+[08:10]
+
+**Gargamuni:** Translation: "O my Lord, the all-pervading Personality of Godhead, I offer my respectful obeisances unto You."
+
+**Prabhupāda:** Purport. Go on.
+
+**Gargamuni:** Purport. "*Vāsudevāya* means to Kṛṣṇa, the son of Vasudeva. As by chanting the name of Kṛṣṇa, Vāsudeva, one can achieve all the good results of charity, austerity and penances, so by the chanting of this *mantra, oṁ namo bhagavate vāsudevāya,* it is to be understood that the author or the speaker or any one of the readers of *Śrīmad-Bhāgavatam* offer respectful obeisances unto the Supreme Lord Kṛṣṇa, the reservoir of all pleasure. In the First Canto of *Śrīmad-Bhāgavatam,* the principles of creation are described, and as such the First Canto can be called 'Creation.' "
+
+**Prabhupāda:** So this *oṁ* means addressing the Lord. In the all the Vedic *mantras* they are addressing. Our this Hare Kṛṣṇa *mantra, mahā-mantra,* that is also addressing. Hare, Hare, addressing the energy of the Lord, Harā. The energy is Harā, Rādhā, Sītā. So when a female is addressed, it is like that: Hare, Late, Sīte, Rādhe. So Hare means addressing first, first of all the energy. The impersonalists, they do not know this, this addressing first of all Kṛṣṇa's energy. We Gauḍīya Vaiṣṇava, we don't worship Kṛṣṇa alone, *ekala-vāsudeva.* No. We must worship Kṛṣṇa along with His energy. Just like Kṛṣṇārjuna, Kṛṣṇa and Arjuna. Arjuna is also energy, living entity, and Kṛṣṇa, Rādhā-Kṛṣṇa, His internal energy and marginal energy.
+
+So Kṛṣṇa means with His energy. *Oṁ namo bhagavate vāsudevāya.* This *bhagavate* means full of energies. I have several times explained *bhagavān. Bhaga* means opulence, and *vān* means one who possesses. Bhagavān. That is the meaning of word *bhagavān.* So when this *bhagavān* word is addressed, it is addressed as *bhagavate.* The word is *bhagavat, bhagavat-śabda.*
+
+Of course, these are grammatical arrangement. *Vat,* this affix, is there when it is meant... Sanskrit, every word, every syllable, has got meaning. That is Sanskrit language. It is not like that "beauty but," "beauty put." No. If you say "beauty but," then you must say "beauty put." But in English, "beauty but, beauty put." So in Sanskrit language, you cannot do like that. If you have to follow the rules, then the same rule will go on. So *bhagavate* address, *oṁ namo bhagavate vāsudevāya. Vāsudevāya,* this is the form of..., fourth form of *śabda,* sound vibration. Fourth form. Just like *kṛṣṇāya.* When I offer something, *kṛṣṇāya, viṣṇave.* Similarly, *bhagavate, vāsudevāya.*
+
+So the beginning is, *Śrīmad-Bhāgavatam* means Kṛṣṇa. It cannot be otherwise. This is *kṛṣṇa-kathā.* The *Bhagavad-gītā* is also *kṛṣṇa-kathā. Kathā* means words. So Kṛṣṇa words spoken by Kṛṣṇa, that is *Bhagavad-gītā.* And words spoken about Kṛṣṇa, that is *Śrīmad-Bhāgavatam.* Or about Kṛṣṇa's devotees, that is *bhāgavata.* So *bhāgavata,* there are two kinds of *bhāgavata.* One, this book *Bhāgavata,* and another, the person *bhāgavata,* the devotee. He is also *bhāgavata.* Caitanya Mahāprabhu recommends that *bhāgavata para giya bhāgavata sthāne:* "You should go and read *Śrīmad-Bhāgavatam* from the *bhāgavata,* person *bhāgavata.*" Otherwise you will misunderstand. *Bhāgavata para giya bhāgavata sthāne.*
+
+One big poet, he composed some songs when Caitanya Mahāprabhu was at Purī. And many people used to come and see Him. Because in those days there were many scholars, and Caitanya Mahāprabhu was also a very great scholar, so they used to compose and come to see Him, and they would get some applause. But before seeing Him, the rule was that it must be passed through His secretary, Svarūpa Dāmodara. Svarūpa Dāmodara was Lord Caitanya's personal secretary, so unless something is passed through Svarūpa Dāmodara, nobody can directly approach Caitanya Mahāprabhu.
+
+So one learned scholar, he composed some poetries, and he wanted the poetries to be heard by Caitanya Mahāprabhu. But Svarūpa Dāmodara, he knew that "This man is mundane. What he will write?" So he was avoiding: "All right, we shall see later on." But when he insisted... And one of his uncle, he was amongst the associates of Lord Caitanya, so he also requested Svarūpa Dāmodara that "This boy has come so long. If you kindly hear."
+
+So because he requested, a Vaiṣṇava, so Svarūpa Dāmodara agreed to hear. But he pointed out his all faults, and he chastised him, that "You don't write poetry in this way. You first of all read *Bhāgavata* from the *bhāgavata.* Then try to write." So that you will find in the *Caitanya-caritāmṛta.* He advised that "Go and read *Bhāgavatam* from *bhāgavatam.* Then try to write."
+
+Recently one gentleman from India... He is a man of very good position, ICS, the old ICS, the British ICS, Indian Civil Service. They are the topmost service. So he sent me one translation of *Śrīmad-Bhāgavatam.* So perhaps you know. Gargamuni knows. So I rejected it, that "No, this [indistinct] cannot be published. There are so many anomalies." And so his daughter is here in Los Angeles. So she came with her husband and took back.
+
+So we do not publish anything which is not approved by the *ācāryas.* We are not like ordinary press, that anything and anything will come and we shall publish. No. That is not our business. It must be approved, as we are presenting *Bhagavad-gītā* as it is, no mental concoction. We don't allow any mental concoction. It must be approved by the *ācārya,* disciplic succession. Then it is nice.
+
+So the next verse... All right. This much today. We shall discuss tomorrow again. Thank you. Hare Kṛṣṇa.
+
+**Devotees:** *Jaya. A*ll glories to Prabhupāda!
+
+**Prabhupāda:** Chant. [end]

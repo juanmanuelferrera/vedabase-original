@@ -1,0 +1,214 @@
+# Śrīmad-Bhāgavatam 1.5.17–18
+
+*Type: Srimad-Bhagavatam Dated: June 21st 1969 Location: New Vrindavan Audio file: 690621SB-NEW-VRINDAVAN.mp3*
+
+**Prabhupāda:** [chants *maṅgalācaraṇa*]
+
+...cakṣur unmīlitaṁ yena tasmai śrī-gurave-namaḥ
+
+**[I offer my respectful obeisances unto my spiritual master, who with the torchlight of knowledge has opened my eyes, which were blinded by the darkness of ignorance.]**
+
+> śrī-caitanya-mano-'bhīṣṭaṁ sthāpitaṁ yena bhū-tale
+> svayaṁ rūpaḥ kadā mahyaṁ dadāti sva-padāntikam
+
+**[When will Śrīla Rūpa Gosvāmī Prabhupāda, who has established within this material world the mission to fulfill the desire of Lord Caitanya, give me shelter under his lotus feet?]**
+
+> vande 'haṁ śrī-guroḥ śrī-yuta-pada-kamalaṁ śrī-gurūn vaiṣṇavāṁś ca
+> śrī-rūpaṁ sāgrajātaṁ saha-gaṇa-raghunāthānvitaṁ taṁ sa-jīvam
+> sādvaitaṁ sāvadhūtaṁ parijana-sahitaṁ kṛṣṇa-caitanya-devaṁ
+> śrī-rādhā-kṛṣṇa-pādān saha-gaṇa-lalitā-śrī-viśākhānvitāṁś ca
+
+**[I offer my respectful obeisances unto the lotus feet of my spiritual master and of all the other preceptors on the path of devotional service. I offer my respectful obeisances unto all the Vaiṣṇavas and unto the six Gosvāmīs, including Śrīla Rūpa Gosvāmī, Śrīla Sanātana Gosvāmī, Raghunātha dāsa Gosvāmī, Jīva Gosvāmī and their associates. I offer my respectful obeisances unto Śrī Advaita Ācārya Prabhu, Śrī Nityānanda Prabhu, Śrī Caitanya Mahāprabhu and all His devotees, headed by Śrīvāsa Ṭhākura. I then offer my respectful obeisances unto the lotus feet of Lord Kṛṣṇa, Śrīmatī Rādhārāṇī and all the *gopīs,* headed by Lalitā and Viśākhā.]**
+
+> he kṛṣṇa karuṇā-sindho dīna-bandho jagat-pate
+> gopeśa gopikā-kānta rādhā-kānta namo 'stu te
+
+**[O my dear Kṛṣṇa, ocean of mercy, You are the friend of the distressed and the source of creation. You are the master of the cowherd men and the lover of the *gopīs,* especially Rādhārāṇī. I offer my respectful obeisances unto You.]**
+
+> tapta-kāñcana-gaurāṅgi rādhe vṛndāvaneśvari
+> vṛṣabhānu-sute devi praṇamāmi hari-priye
+
+**[I offer my respects to Rādhārāṇī, whose bodily complexion is like molten gold and who is the Queen of Vṛndāvana. You are the daughter of King Vṛṣabhānu, and You are very dear to Lord Kṛṣṇa.]**
+
+> vāñchā-kalpa-tarubhyaś ca
+> kṛpā-sindhubhya eva ca
+> patitānāṁ pāvanebhyo
+> vaiṣṇavebhyo namo namaḥ
+
+**[I offer my respectful obeisances unto all the Vaiṣṇava devotees of the Lord. They are just like desire trees who can fulfill the desires of everyone, and they are full of compassion for the fallen conditioned souls.]**
+
+> śrī-kṛṣṇa-caitanya
+> prabhu-nityānanda
+> śrī-advaita gadādhara
+> śrīvāsādi-gaura-bhakta-vṛnda
+
+**[I offer my obeisances to Śrī Kṛṣṇa Caitanya, Prabhu Nityānanda, Śrī Advaita, Gadādhara, Śrīvāsa and all others in the line of devotion.]**
+
+> hare kṛṣṇa hare kṛṣṇa kṛṣṇa kṛṣṇa hare hare
+> hare rāma hare rāma rāma rāma hare hare
+
+**[My dear Lord, and the spiritual energy of the Lord, kindly engage me in Your service. I am now embarrassed with this material service. Please engage me in Your service.]**
+
+So we are discussing Nārada Muni's instruction to Vyāsadeva to make him correct. Vyāsadeva, such a scholar, Vedavyāsa... He is known as the topmost scholar in Vedic knowledge. Not only that; he has compiled so many books, literary achievement, there is no comparison in the world. But still, he is not satisfied, and Nārada Muni is instructing him that "You should write exclusively on the activities of the Supreme Personality of Godhead, hearing which, there will be actual peace and prosperity all over the world." This is the secret. Without God consciousness, or Kṛṣṇa consciousness, there cannot be any peace in the world.
+
+So we were discussing in our last meeting that if a person, by sentiment or by persuasion or by some material gain or somehow or other, decides to accept the statement of *Bhagavad-gītā,* Kṛṣṇa... Kṛṣṇa says that *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja* *Bg.* 18.66*.*
+
+**[Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear.]**
+
+*Ekam:* "Only unto Me." He even does not say that there are many incarnations of Kṛṣṇa, but He says, *mām ekam.* This *ekam* can be understood in this way, that when we speak "Kṛṣṇa," this term includes everything Kṛṣṇa, all-attractive. But we can capture everything in Kṛṣṇa simply by...
+
+Just like the same example, as we have repeatedly..., that by supplying food in the stomach, you supply food to all the limbs of the body. You don't require... This is practical. Or pouring water on the root of the tree, you supply water to all the branches, leaves, everywhere. We see every day. This is practical example. Simply... Similarly, there must be something central point of all this manifestation. That is Kṛṣṇa. If we simply capture Kṛṣṇa, then we capture everything.
+
+And the *Vedas* also says, *yasmin vijñāte sarvam idaṁ vijñātaṁ bhavati* [*Muṇḍaka Upaniṣad* 1.3]*.*
+
+**[If one can understand the Supreme Personality of Godhead, the controller of all controllers, one can understand everything else.]**
+
+We are searching after departmental knowledge, but if you simply understand Kṛṣṇa, the central point, then you understand everything. You understand everything. Just like we sometimes speak which great scientists cannot speak. Why? Because we have captured the central point: Kṛṣṇa.
+
+So in the last day's meeting we discussed that even by sentiment, without understanding Kṛṣṇa, simply by sentiment, "All right, these..., all these boys and girls are dancing in 'Kṛṣṇa, Kṛṣṇa.' So let me also join this Kṛṣṇa Movement and dance," he will derive the greatest benefit. Simply... *Tyaktvā sva-dharmam* *SB* 1.5.17.
+
+**[One who has forsaken his material occupations to engage in the devotional service of the Lord may sometimes fall down while in an immature stage, yet there is no danger of his being unsuccessful. On the other hand, a nondevotee, though fully engaged in occupational duties, does not gain anything.]**
+
+Everyone is engaged, busy in his own occupation—businessman, student, lawyer, engineer, politician, so many. But Nārada says that "If these people give up everything..." The same instruction, as Kṛṣṇa says, "Give up everything. Surrender unto Me," Nārada says the same thing.
+
+That is the, I mean to say, significance, that whatever God, or Kṛṣṇa, says, His devotee also will say the same thing. There is no difference. Therefore it is called *paramparā.* Devotee will not manufacture something, interpretation, which is against the version of Kṛṣṇa. Then he is not devotee. Just like Caitanya Mahāprabhu: He is playing the role of a devotee. Kṛṣṇa says that "You surrender unto Me," and Caitanya Mahāprabhu says, "You surrender unto Kṛṣṇa." So there is no difference between the teaching..., teachings of Lord Caitanya and teachings of Lord Kṛṣṇa. The object is the same.
+
+So we are... What we are doing? We are also asking people, "Chant Hare Kṛṣṇa," the same thing. There is no difference. Therefore one has to accept the real thing from the *paramparā* system, serious devotee. Then... Because a serious devotee will speak the same thing as Kṛṣṇa says. There is no invention.
+
+So Nārada Muni says... Because Nārada Muni is our previous *ācārya,* disciplic succession from Brahmā to Nārada, Nārada to Vyāsadeva, and Vyāsadeva to others. So Nārada Muni's instructing his disciple that *tyaktvā sva-dharmam:* "If somebody gives..., gives up his occupational duty..." Just like sometimes we are taken as some crazy fellows. We have no concern with any political movement or social movement. We have taken simply Kṛṣṇa consciousness movement. So they may think that "This is a society of crazy fellows. They have given up everything, simply chanting 'Kṛṣṇa, Kṛṣṇa, Kṛṣṇa, Kṛṣṇa, Kṛṣṇa.' " But Nārada Muni confirms, it is the first-class thing.
+
+He says that "If somebody, giving up everything, simply takes to Kṛṣṇa..." *Tyaktvā sva-dharmaṁ caraṇāmbujaṁ hareḥ* *SB* 1.5.17
+
+**[One who has forsaken his material occupations to engage in the devotional service of the Lord may sometimes fall down while in an immature stage, yet there is no danger of his being unsuccessful. On the other hand, a nondevotee, though fully engaged in occupational duties, does not gain anything.]**
+
+*Caraṇāmbujaṁ hareḥ,* he takes, determines: "Now, from this day, I shall simply chant Hare Kṛṣṇa. I shall do nothing..." "So," Nārada Muni says, "if somebody does like that..." *Bhajana...* And Śrīdhara Svāmī says that *svadharma tyāgena, nānusvadharma tyāgena bhajana paripakena yadi kṛtārtho bhavet tadā na kadācit cintā*[?]*:* "All right, this boy has taken to Kṛṣṇa consciousness. It is very good. Let him do that. If he comes to the perfectional point of Kṛṣṇa consciousness, it is very good." But *yadi punar apakva eva mriyate:* "But if he does not prosecute Kṛṣṇa consciousness rightly, maturely, and if he dies..."
+
+Because death is expected every moment. So suppose we are prosecuting this Kṛṣṇa consciousness. Now death may come immediately. We all die. So Nārada Muni gives us encouragement that *punar eva tato svedva*[?]: "Either we die or sometimes we fall down..." Because *māyā* and Kṛṣṇa, side by side. "So it is all right. We are in Kṛṣṇa consciousness. But if we fall down...," *vrase vā tadā sva-dharma tyāga nimitta narthāśraya*[?], "then you have given up your all other duties. So for giving up your duty, there must be some punishment."
+
+I don't mean in this worldly punishment. Just like, according to Vedic system, there are *brāhmaṇas, kṣatriyas;* for example, just like Kṛṣṇa was advising Arjuna that "You are *kṣatriya.* So if you die in this fight, then your heavenly door is open." Because, according to *śāstra,* if a *kṣatriya* dies while fighting, then automatically he gets promotion in the heavenly planet. And if he goes away, giving up the fighting, then he goes to hell. So similarly, if one does not discharge his duties, prescribed duties, then he falls down.
+
+Nārada Muni says, "Even if he falls down, still, there is no loss. Even if he falls down, there is no loss." *Sva-dharma tyāgena anartha syād asam kara tato bhajanam pated katancid vrasyed mriyate vā yadi tathāpi bhaktir asikasya karmaṇy adhikarad na.*[?]. Even there is such chance that I may fall down or I may not be mature, still, Nārada Muni gives, "There is no question of hesitation. Accept it. Even if you think that you'll not be able to prosecute Kṛṣṇa consciousness in full, still, you accept it." *Na sāṅkhya.*
+
+*Ami krte apy aha va śabda kathake*[?]. Śrīdhara Svāmī says that this word, here... *Bhajann apakvo 'tha patet tato yadi vā. Vā* means "What is there, even if he falls down?" *Yatra kva vā nica-yony apy amuṣya bhaktir eka sya abhūt kim*[?]. Now... Now, suppose a *brāhmaṇa,* a *brāhmaṇa,* he is..., he has got so many duties. As a brahminical, he has to perform so many sacrifices, *nitya*... There are different... *Satya, śamo damas titikṣā. Satya* means truthfulness; *śama* means controlling the senses; *dama* means... *Dama* means controlling senses; *śama* means controlling the mind. *Satya, śama, dama, titikṣā,* tolerance *Bg.* 18.42
+
+**[Peacefulness, self-control, austerity, purity, tolerance, honesty, wisdom, knowledge, and religiousness—these are the qualities by which the brāhmaṇas work.]**
+
+There are so many nice qualification. So if a *brāhmaṇa* does not discharge his duties, it is said that he becomes a *śūdra,* or falls down. *Sthānād bhraṣṭaḥ patanty adhaḥ* *SB* 11.5.3.
+
+**[Any members of the four *varṇas* and four *āśramas* who fail to worship the Personality of Godhead, the source of their own creation, or who intentionally disrespect Him will fall down from their position into a hellish state of life.]**
+
+So Nārada Muni says that "Suppose next life a *brāhmaṇa* falls down, he takes to Kṛṣṇa consciousness. Neither he executes the brahminical duties, nor he could prosecute Kṛṣṇa consciousness to perfection, still," Nārada Muni says, "there is no loss." There is no loss. *Yatra kva va nica-yony apy amuṣya abhadra abhūt kim*[?]. Now, if the *brāhmaṇa,* by not executing his prescribed duties, he becomes a *śūdra*—next life he takes birth in a *śūdra* family or lower than *śūdra* family—so Nārada Muni says, "What is the loss there? Because Kṛṣṇa consciousness is so nice that it will not leave the person who has once taken to Kṛṣṇa consciousness. It will revive even in that lower status of life."
+
+Just like, according to Hindu civilization... Now, in this country, so the boys and girls who are taking to Kṛṣṇa consciousness, previous to this, they were meat-eater; they were so many things which, according to brahminical religion, these are abominable condition. But see the practical. Even they were fallen this abominable condition some way or other, but because in their last life they had some advancement of Kṛṣṇa consciousness, immediately they are taking up.
+
+So those who are joining in this movement in this country, they are supposed to be previously Kṛṣṇa conscious. Somehow or other, they could not execute Kṛṣṇa consciousness in full. So although they are born in a country where there is no trace of Kṛṣṇa consciousness, there is no, I mean to, even purity of life, still, they are taking up. So where is the loss? There is no loss. Nārada Muni wants to point out that anywhere... *Bhagavad-gītā* also confirms it, that one who has once taken to Kṛṣṇa consciousness, anywhere he is in the next birth, he will again take it up. This is natural.
+
+So Nārada Muni stresses this point, that *yatra kva vā abhadram abhūd amuṣya kim.* There is no loss. The... Because the seed, once sown, it will grow. It will grow. This example is given in the *Caitanya-caritāmṛta* by Lord Caitanya to Rūpa Gosvāmī: *bhakti-latā,* the plant of *bhakti,* growing. Simply we have to water it.
+
+Those who have taken to Kṛṣṇa consciousness, they should not be satisfied that whatever they have done, it is nice—"Even I fall down, there is no..." No. You have to execute as far as possible. But this is spoken. If by chance there is falldown, there is no loss. But we should not take that... We should not be careless. *Śravaṇa-kīrtana-jale karaye secana* [*Cc.* *Madhya* 19.152]*.*
+
+**[“When a person receives the seed of devotional service, he should take care of it by becoming a gardener and sowing the seed in his heart. If he waters the seed gradually by the process of śravaṇa and kīrtana [hearing and chanting], the seed will begin to sprout.]**
+
+Just like our program in this New Vrindaban, very nice program. From four-thirty in the morning till ten o'clock, there is nice program. So this program should be continued. Then there is no question of falling down. Simply executing this program.
+
+Next verse: *bhakti-vāsanā sad-bhāva iti bhava avayad vistu kevalam sva dharma pakvo 'tha vayaptya abhajatam*[?]. Now, once this Kṛṣṇa consciousness awakens, it is so nice that it will not let the person fall down. No. The... Rest assured. Fall down. It will grow simply. If it is checked for the time being, but that checking is for temporary checking. It will again come out. So don't lose this opportunity. Go on with Kṛṣṇa consciousness, the simple method. So there is no question of falldown. *Bhakti-vāsanā sad-bhāvāt*[?]*. Bhakti-vāsanā,* this desire, that "I'll serve Kṛṣṇa," this desire is sufficient to keep him, I mean to say, intact. This very desire, *bhakti-sad-bhāvāt.* This desire will never die.
+
+> tasyaiva hetoḥ prayateta kovido
+> na labhyate yad bhramatām upary adhaḥ
+> tal labhyate duḥkhavad anyataḥ sukhaṁ
+> kālena sarvatra gabhīra-raṁhasā
+
+[***SB** 1.5.18*]
+
+**[Persons who are actually intelligent and philosophically inclined should endeavor only for that purposeful end which is not obtainable even by wandering from the topmost planet [Brahmaloka] down to the lowest planet [Pātāla]. As far as happiness derived from sense enjoyment is concerned, it can be obtained automatically in course of time, just as in course of time we obtain miseries even though we do not desire them.]**
+
+*Nanu svadharma matrad api karmana pitṛloka srute, pitṛloka-prāpti phalaṁ asti va tatraha tasyaite kovida viveki tasyaiva hetoḥ tad arthaṁ yatra kuryād yad upary brahmaloka paryantam adhaḥ sthāvara paryantam brahmadbi jivena na labhate*[?]. Now, those who are *karma-kāṇḍīya, karmīs... Karmīs* means those who follow strictly the ritualistic ceremonies, as it is indicated in the *Vedas.* They are *karmīs. Karma, akarma* and *vikarma.* There are three divisions of our activities. Generally we say *karmīs,* ordinary men, who are working hard to earn some money and enjoy. Actually, they are not *karmīs;* they are *vikarmīs.*
+
+**Real *karmīs*... Just like a thief. A thief is stealing. That is also certain kind of activity. It is not inactivity. So we cannot say that this is bona fide activity. He's also planning. He's also making plan: how to steal, how to go upstairs of the house and then come down. So there is activity. But such kind of activity is not bona fide activity. Therefore, according to *śāstra,* it is called *vikarma. Vikarma* means it is counteractivity. Activity means you have to work legally. That is activity. If you say that "I am very much active in stealing," then that is not excused. Then you'll... Government will say, "Please stop your activity. You come into the prison." Yes. [chuckles]**
+
+So similarly, this kind of activity, sense-gratificatory activities, they are not *karmīs* even. They are *vikarmīs.* Because they are preparing their ground-*adānta-gobhir viśatāṁ tamisram* *SB* 7.5.30
+
+**[Prahlāda Mahārāja replied: Because of their uncontrolled senses, persons too addicted to materialistic life make progress toward hellish conditions and repeatedly chew that which has already been chewed. Their inclinations toward Kṛṣṇa are never aroused, either by the instructions of others, by their own efforts, or by a combination of both.]**
+
+"By such activities they are going to the darkest region of hell." *Adānta*... Why? Now *adānta-gobhiḥ. Adānta* means uncontrolled, and *go* means senses. Such activities, impulse by uncontrolled senses, they will lead... Such activities will lead him to the darkest region of hellish conditional life.
+
+So activi..., real activity means to elevate yourself. That is..., that is called *karma. Karma, akarma* and *vikarma. Vikarma* means such activities will, which will lead him to the hellish condition of life. And *karma* means that activity which will promote you to the higher standard of life, in the higher planetary system, where the standard of life is far, far greater than in this planet. So that is called *karma.*
+
+Therefore generally, Vedic..., those who are following the Vedic principles, they become active in the ritualistic ceremony. The idea is they'll be promoted to higher planets and will be able to enjoy better sense gratification. Suppose a man is very rich and he has got ten thousands of years' living condition. Then he thinks, "Oh, how happy I am. For ten thousand of years I shall be able to gratify my senses."
+
+So the *karmīs* are like that. They want actually sense gratification, but they want higher standard of sense gratification. Yes. That is their... We are... Economic development, in this planet. What is this economic development? That means if we get to go more money, then we shall be able to gratify our senses more perfectly and more satisfactorily. That is the idea. Actually, either you become *karmī* or *vikarmī,* they are all on the platform of sense gratification. So one is going down, and one is going up. So Nārada Muni says that,
+
+> tasyaiva hetoḥ prayateta kovido
+> na labhyate yad bhramatām upary adhaḥ
+
+[***SB** 1.5.18*]
+
+**[Persons who are actually intelligent and philosophically inclined should endeavor only for that purposeful end which is not obtainable even by wandering from the topmost planet [Brahmaloka] down to the lowest planet [Pātāla]. As far as happiness derived from sense enjoyment is concerned, it can be obtained automatically in course of time, just as in course of time we obtain miseries even though we do not desire them.]**
+
+"You should try... One should try to achieve that thing which cannot be gained even by going up or going down." "Up" means upper planetary system, and "down" means lower planetary system. And *Bhagavad-gītā* also confirms this: *ūrdhvaṁ gacchanti sattva-sthāḥ.* There are three modes of material nature. "Those who are situated on the modes of goodness, they are promoted to the higher planetary system." And *ūrdhvaṁ gacchanti sattva-sthā madhye tiṣṭhanti rājasāḥ* [*Bg*. 14.18]*.*
+
+**[Those situated in the mode of goodness gradually go upward to the higher planets; those in the mode of passion live on the earthly planets; and those in the mode of ignorance go down to the hellish worlds.]**
+
+There are seven... According to Vedic information, there are fourteen different spheres of planetary system: seven down and seven up. So we are in the middle. This is called Bhūrloka. Above this, there is Bhuvarloka. Above that, there is Svargaloka, heavenly. The moon planet and similar other planets in the orbit, they are called Svargaloka. Bhūrloka, Bhuvarloka, Svargaloka.
+
+Then Janaloka. In Janaloka... Great saintly persons, after death, they go to Janaloka or Maharloka. Then there is Satyaloka, or Brahmaloka. In this way there are seven planetary spheres. Similarly, down also: Tala, Atala, Vitala, Talātala, Rasātala, Pātāla. They are also named, down, down, down, down. The lowest down planetary system is called Pātāla.
+
+So here Nārada Muni says that "Try to achieve that thing which is not gained even if you go to the highest planetary system or if you go to the lowest planetary system—or if you remain in this planetary system, middle." That means..., going up means to be situated in the modes of goodness. *Ūrdhvaṁ gacchanti sattva-sthāḥ* *Bg.* 14.18*. Sattva-sthā,* "Those who are situated in the mode of goodness, they can be elevated to the higher planetary system." *Madhye tiṣṭhanti rājasāḥ:* "And those who are in the modes of passion, they remain within this world."
+
+And *adho gacchanti... Jaghanya-guṇa-vṛtti-sthāḥ:* "Those whose habits are very abominable," *jaghanya. Jaghanya* means very abominable, hateful. "One who is addicted to such hateful habits..." *Jaghanya-guṇa-vṛtti, adho gacchanti. Adho gacchanti* means either they go down planetary system or down living condition just like animals. Just like animals, they are *jaghanya-guṇa-vṛtti-sthāḥ.*
+
+They can lie down anywhere. They can eat anything. They have no sense that "This is not good, I am doing this." They have no sense. Just like tree. We go sometimes in the jungle. A tree is standing for several thousands of years, but it has no sense, "Oh, I am standing like this, alone?" These are the births of *jaghanya-guṇa-vṛtti-sthā adho gacchanti.* If our character and behavior is very low and abominable, then we are awaiting such condition of life.
+
+But here Nārada Muni says that there is another thing, which is neither achieved either in the higher planetary system or lower planetary system. That means *pāpa-puṇya.* You go to the higher planetary system by pious activities, and you go to the lower, I mean to say, less than human life or lower planetary system, by *papa,* or sinful activities. But Kṛṣṇa says that "Don't be attracted by pious activities; neither go down to abominable condition of life. Simply capture Me." *Mām ekaṁ śaraṇaṁ vraja.*
+
+That is the whole instruction of *Bhagavad-gītā.* He has also explained,
+
+> ābrahma-bhuvanāl lokāḥ
+> punar āvartino 'rjuna
+> mām upetya kaunteya
+> punar janma na vidyate
+
+[*Bg*. *8.16]*
+
+**[From the highest planet in the material world down to the lowest, all are places of misery wherein repeated birth and death take place. But one who attains to My abode, O son of Kuntī, never takes birth again.]**
+
+"My dear Arjuna, even if you go up to the Brahmaloka, with so much long duration of life..." Kṛṣṇa does not speak that "You go down." Of course, that is for the third class, lowest class of men. That is another thing. But even if you first-class man, and by your pious activities you go up to the Brahmaloka, so *punar āvartinaḥ,* you have to again fall down. *Mām upetya kaunteya:* "But if you come to Me, then there is no such fear that you'll fall down." *Mām upetya kaunteya punar janma na vidyate:* "Then you haven't got to come here and again take birth."
+
+So Nārada Muni also, the same thing. This is called *paramparā* system.
+
+> tasyaiva hetoḥ prayateta kovido
+> na labhyate yad bhramatām upary adhaḥ
+> tal labhyate duḥkhavad anyataḥ sukhaṁ
+> kālena sarvatra gabhīra-raṁhasā
+
+[***SB** 1.5.18*]
+
+**[Persons who are actually intelligent and philosophically inclined should endeavor only for that purposeful end which is not obtainable even by wandering from the topmost planet [Brahmaloka] down to the lowest planet [Pātāla]. As far as happiness derived from sense enjoyment is concerned, it can be obtained automatically in course of time, just as in course of time we obtain miseries even though we do not desire them.]**
+
+The nature's law is acting. So you don't try for being elevated to the higher standard of life or higher planetary system. There is no need of wasting your energy in that way. So higher or lower, that will come. That will come without... Just like we try to become happy or peaceful, but by circumstances we are put into unhappiness, disturbed condition of life. Nobody asks for it, but we are sometimes obliged to accept this. Similarly, by..., without your endeavor, if you can be put into distressed condition of life, why not without your endeavor you may be put in the happy condition of life? So don't try to be elevated in happy condition of life or distressed condition of life. Try for Kṛṣṇa consciousness. Then your energy will be properly utilized.
+
+This human form of life is so important that in this life only we can try to execute Kṛṣṇa consciousness. In the higher planetary system... Just like Yamala-Arjuna... That story is narrated in our book, *Kṛṣṇa.* Yamala-Arjuna, they were two sons, Nalakūvara and Maṇigrīva, two sons of Kuvera. Kuvera is supposed to be the treasurer of the heavenly planets. So very rich man's son. So they were enjoying swimming in a very nice lake in the Śivaloka. That description is there. And with young girls and intoxicated.
+
+So they forgot that they are demigods, and they were naked. To become naked is the most uncivilized way. In the Vedic system, to..., nakedness is... Why Vedic system? Suppose if you go naked on the street, immediately you'll be punished. You cannot say that "I have got my independence. I can..." No. Against the etiquette.
+
+So these boys, Nalakūvara, they were intoxicated and naked, and were enjoying swimming with other girls. And Nārada was passing through that way, and he saw, "Oh, they have fallen into such abominable condition? They are forgotten that they belong to very respectable family, and I am passing here with..." So they were cursed. Not cursed; they were given the benediction that... By devotee, either a man is cursed or given benediction, it is the same thing. Just like these boys, they were cursed to take birth of the tree, who has no sense. Tree is naked, or a animal is..., an animal is naked, but they have no sense. But if a human being becomes like that, then he is considered uncivilized.
+
+So Nārada Muni says that *kālena sarvatra gabhīra-raṁhasā.* We should try for Kṛṣṇa consciousness. Otherwise, even if we go in higher standard of life, our..., sometimes our consciousness is so degraded that, that that two sons of Kuvera, although they were..., they got the body of demigods, still, they had to come down to take the birth of the life of trees, Yamala-Arjuna.
+
+So there is every chance, every chance of falldown. Why there are so many species of life? Why we are thinking that "Our life is guaranteed; we shall continue like this"? This is called ignorance. Any moment this standard of life, this comfortable standard of life, may be lost. Therefore Nārada says that "Everyone should try to achieve that benefit of life which is not available within the fourteen worlds, fourteen," I mean to say, "different types of planetary system."
+
+So Narottama dāsa Ṭhākura has captured this idea. And he sings, *golokera prema-dhana, hari-nāma-saṅkīrtana* [*Prārthanā*]:
+
+**[The treasure of divine love in Goloka Vṛndāvana has descended as the congregational chanting of Lord Hari's holy names. Why did my attraction for that chanting never come about? Day and night my heart burns in the fire of the poison of worldliness, and I have not accepted the means for relieving it.]**
+
+"This *hari-nāma-saṅkīrtana,* this Kṛṣṇa consciousness movement, is not anything of this material world, either of the higher planetary system or the lower planetary system." It is *golokera prema-dhana.* It is the happy mode, not this mode of passion or goodness or ignorance. The happy mode, imported from Kṛṣṇaloka, Goloka. Therefore it is transcendental vibration. It is not of this material world.
+
+*Golokera prema-dhana, hari-nāma-saṅkīrtana, rati nā janmilo kene tāy:* "I am so unfortunate that this *hari-nāma-saṅkīrtana,* this Kṛṣṇa consciousness movement, is imported from Goloka Vṛndāvana, transcendental platform." *Rati nā janmilo kene tāy,* "But I have no attraction for this." *Biṣaya-biṣānale, dibā-niśi hiyā jvale:* "Although I am suffering always with the anxieties of this material adjustment of things..." *Biṣaya-biṣānale, dibā-niśi hiyā jvale, tore bare nā koinu upāy. Tore bare* means "There is way to get out of this anxious status of life, but I have no attraction." Caitanya Mahāprabhu also says like that. *Enechi auṣadhi māyā nāśibāro lāgi':* "I have brought a nice medicine to kill the spell of *māyā.* So you take it."
+
+So Nārada Muni also says the same thing what Caitanya Mahāprabhu says, what Narottama dāsa Ṭhākura says, what Kṛṣṇa says. This is *paramparā* system. He says that "Don't be," I mean to say, "very much anxious how to adjust your material comforts of life. Let it come as it is destined. You simply try to develop Kṛṣṇa consciousness, because this consciousness is not available." In higher planetary system... Just like this example. They are puffed up with so much opulence. A man... Just like we are inviting, we are attracting, middle class of men. Those who are too much rich, in consideration of this..., they are not attracted. They think that "All right, these boys are chanting in the street. All right." Not..., I don't think very rich men contributes. They also, middle class of men, they contribute something.
+
+So to become too much rich, too much puffed up with opulence like the two sons of Kuvera, is another chance of being degraded. To remain a little poor is better condition for developing Kṛṣṇa consciousness. Therefore our duty should be not to become a very great man in the consideration of these materialistic men. If he wants thousands and millions of dollars, become like a Rockefeller or Ford, that will be great a estimation of these common, materialistic man, but from spiritual point of view, such things have no value—unless such opulence is engaged in the service of the Lord. Otherwise, it is the cause of falldown.
+
+So Nārada Muni says that "Just try to save people to take to this Kṛṣṇa consciousness movement, and other things will automatically... Whatever is destined by the laws of nature, they will get it. So there is no need of performing ritualistic ceremonies for being promoted to the heavenly planets or this or that. It is useless. What does he gain by that? He'll come down again. So don't teach them like that. Simply teach them to chant Hare Kṛṣṇa. That will make their life successful."
+
+Thank you. [end]

@@ -1,7 +1,8 @@
 # Life Comes from Life
 
+### 0a
 
-# Foreword
+Foreword
 
 For people who have come to accept every pronouncement of modern scientists as tested and proven truth, this book will be an eye-opener. *Life Comes From Life* is an impromptu but brilliant critique of some of the dominant policies, theories and presuppositions of modern science and scientists by one of the greatest philosophers and scholars of the century, His Divine Grace A.C. Bhaktivedanta Swami Prabhupāda. Śrīla Prabhupāda's vivid analysis uncovers the hidden and blatantly unfounded assumptions that underlie currently fashionable doctrines concerning the origins and purpose of life.
 
@@ -13,8 +14,9 @@ Each day, wherever in the world he happened to be, Śrīla Prabhupāda would go 
 
 —The Publishers
 
+### 0b
 
-# Science: Truth and Fiction
+Science: Truth and Fiction
 
 Once upon a time (as in a fairy tale), most of us believed that the food we ate was basically wholesome, nutritious and free from dangerous chemicals, that advertising may have been believable, and that product labels truly described the qualities and contents of what we fed ourselves and our families. Once upon a time, most of the world believed in the integrity of our heads of state, high-ranking political officials and local leaders. Once upon a time, we thought our children were getting a solid education in the public school system. Once upon a time, many of us believed atomic energy had "peacetime uses" that were perfectly safe and completely congruous with a happy and healthy society.
 
@@ -34,8 +36,9 @@ Dazzling technological achievements have given modern scientists an aura of infa
 
 The dialogues in *Life Comes From Life* may seem revolutionary, but then were not Newton, Pasteur and Einstein scientific revolutionaries? *Life Comes From Life* does not simply criticize those who support the theory that matter is the origin of life. Rather, this book encourages them to rededicate themselves to a more genuine and intense quest for truth and knowledge, and to thereby redirect their valuable intelligence, resources and work toward the true benefit of the world.
 
+### 1
 
-# Chapter 1: The First Morning Walk: April 18, 1973
+The First Morning Walk: April 18, 1973
 
 Recorded on April 18, 1973, 
 In Cheviot Hills Park, Los Angeles.
@@ -153,8 +156,9 @@ Someone who has never gone out of his village thinks that his village is the who
 **Śrīla Prabhupāda:**
 Yes. The frog is always thinking in terms relative to his well. He has no power to think otherwise. The ocean is great, but he is thinking of the ocean's greatness in terms relative to his *own* greatness. Similarly, God is great, but we are thinking of God in terms of relative greatness, greatness relative to our own. There are certain insects that are born at night, and they grow, bear offspring and die—all before daybreak. They never see the morning. So if they conclude that there is no morning, that is nonsense. In the same way, as soon as we hear from the *śāstras* [revealed scriptures] that Brahmā's duration of life is equivalent to millions of our years, we do not believe it. We say, "How can it be?" But *Bhagavad-gītā* (8.17) says, *sahasra-yuga-paryantam ahar yad brahmaṇo viduḥ:* "Four billion three hundred million earth years equal Brahmā's twelve hours." Even a leading Indian politician who was known as a great scholar of the *Gītā* could not accept this information. He said it is mental speculation. Such a rascal! Yet he is passing as an important scholar. This is the problem. Rascals and fools are passing as scholars, scientists and philosophers, and therefore the whole world is being misguided.
 
+### 2
 
-# Chapter 2: The Second Morning Walk: April 19, 1973
+The Second Morning Walk: April 19, 1973
 
 Recorded on April 19, 1973, 
 In Cheviot Hills Park, Los Angeles
@@ -176,7 +180,7 @@ Nothing is extinct. The monkey is not extinct. Darwin's immediate forefather, th
 Darwin said there must be a natural selection. But selection means choice. So who is choosing?
 
 **Śrīla Prabhupāda:**
-That must be a person. Who is allowing someone to survive and someone to be killed? There must be some authority with discretion to give such an order. That is our first proposition. Who that authority is, is explained in *Bhagavad-gītā.* Kṛṣṇa says, *mayādhyakṣeṇa prakṛtiḥ:* "Nature is working under My supervision." (Bg. 9.10)
+That must be a person. Who is allowing someone to survive and someone to be killed? There must be some authority with discretion to give such an order. That is our first proposition. Who that authority is, is explained in *Bhagavad-gītā.* Kṛṣṇa says, *mayādhyakṣeṇa prakṛtiḥ:* "Nature is working under My supervision." [[bg/9/10|(Bg. 9.10)]]
 
 **Dr. Singh:**
 Darwin also says that the different species were not created simultaneously, but evolved gradually.
@@ -278,7 +282,7 @@ He has created great misfortune, and he has left his money for creating further 
 The *Gītā* says that demoniac people perform acts meant to destroy the world.
 
 **Śrīla Prabhupāda:**
-Yes. *Ugra-karmāṇaḥ kṣayāya jagato 'hitaḥ* (Bg. 16.9). They perform acts meant for inauspiciousness and the destruction of the world.
+Yes. *Ugra-karmāṇaḥ kṣayāya jagato 'hitaḥ* [[bg/16/9|(Bg. 16.9)]]. They perform acts meant for inauspiciousness and the destruction of the world.
 
 ## The Difference Between the Living and the Nonliving
 
@@ -362,10 +366,11 @@ That means that they are not human beings. A human being thinks twice before say
 > tathā dehāntara-prāptir
 > dhīras tatra na muhyati
 
-["As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change." [[bg/2/13|(Bg. 2.13)] ]] In these two lines, Kṛṣṇa solves the whole biological problem. That is knowledge. Minimum words, maximum solution. Volumes of books expounding nonsense have no meaning. Materialistic scientists are like croaking frogs: *ka-ka-ka, ka-ka-ka.* [Śrīla Prabhupāda imitates the sound of a croaking frog, and the others laugh.] The frogs are thinking, "Oh, we are talking very nicely," but the result is that the snake finds them and says, "Oh, here is a nice frog!" [Śrīla Prabhupāda imitates the sound of a snake eating a frog.] *Bup!* Finished. When death comes, everything is finished. The materialistic scientists are croaking—*ka-ka-ka*—but when death comes, their scientific industry is finished, and they become dogs, cats or something like that.
+["As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change." [[bg/2/13|[[bg/2/13|(Bg. 2.13)]]] ]] In these two lines, Kṛṣṇa solves the whole biological problem. That is knowledge. Minimum words, maximum solution. Volumes of books expounding nonsense have no meaning. Materialistic scientists are like croaking frogs: *ka-ka-ka, ka-ka-ka.* [Śrīla Prabhupāda imitates the sound of a croaking frog, and the others laugh.] The frogs are thinking, "Oh, we are talking very nicely," but the result is that the snake finds them and says, "Oh, here is a nice frog!" [Śrīla Prabhupāda imitates the sound of a snake eating a frog.] *Bup!* Finished. When death comes, everything is finished. The materialistic scientists are croaking—*ka-ka-ka*—but when death comes, their scientific industry is finished, and they become dogs, cats or something like that.
 
+### 3
 
-# Chapter 3: The Third Morning Walk: April 28, 1973
+The Third Morning Walk: April 28, 1973
 
 Recorded on April 28, 1973, 
 In Cheviot Hills Park, Los Angeles
@@ -435,8 +440,9 @@ So the material universe is like a mirage?
 **Śrīla Prabhupāda:**
 Yes. Suppose I think I see water in the desert when there is not water. This is an illusion. Water exists, but not in the mirage. Similarly, the material varieties we see—the varieties of enjoyment—are like that mirage. We, the living entities, are meant for enjoyment, but we are seeking enjoyment in a false place—in an illusion. We are like the desert animals who run after water in a mirage and eventually die of thirst. They cannot relieve their thirst with such illusory water. Similarly, we are trying to manufacture many things to satisfy our thirst for enjoyment, but we are being baffled at every turn because material existence is an illusion. Therefore real intelligence means to inquire, "Where is the reality? Where is the eternal substance behind the illusion?" if we can find *that* out, we can experience real enjoyment.
 
+### 4
 
-# Chapter 4: The Fourth Morning Walk: April, 29, 1973
+The Fourth Morning Walk: April, 29, 1973
 
 Recorded on April, 29, 1973, 
 On the shores of the Pacific Ocean 
@@ -460,7 +466,7 @@ Yes.
 ## Word Jugglery and World Crisis
 
 **Śrīla Prabhupāda:**
-It is said in the *Vedas, yasmin vijñāte sarvam evaṁ vijñātaṁ bhavati* (*Muṇḍaka Upaniṣad* 1.3): "If one knows the Absolute Truth, then all other things become known." I am not a Ph.D., yet I can challenge the scientists. Why? Because I know Kṛṣṇa, the Absolute Truth. *Yasmin sthito na duḥkhena guruṇāpi vicālyate:* "If one is situated in Kṛṣṇa consciousness, then even in the greatest calamities he will not be disturbed." (Bg. 6.22) *Śrīmad-Bhāgavatam* (1.5.22) declares, *avicyuto 'rthaḥ kavibhir nirūpito yad uttamaśloka-guṇānuvarṇanam:* "Great personalities have decided that Kṛṣṇa consciousness is the perfection of life." This kind of knowledge is required. Not that we do some research, come up with a theory, and after fifteen years say, "No, no, it is not right—it is another thing." That is not science; that is child's play.
+It is said in the *Vedas, yasmin vijñāte sarvam evaṁ vijñātaṁ bhavati* (*Muṇḍaka Upaniṣad* 1.3): "If one knows the Absolute Truth, then all other things become known." I am not a Ph.D., yet I can challenge the scientists. Why? Because I know Kṛṣṇa, the Absolute Truth. *Yasmin sthito na duḥkhena guruṇāpi vicālyate:* "If one is situated in Kṛṣṇa consciousness, then even in the greatest calamities he will not be disturbed." [[bg/6/22|(Bg. 6.22)]] *Śrīmad-Bhāgavatam* (1.5.22) declares, *avicyuto 'rthaḥ kavibhir nirūpito yad uttamaśloka-guṇānuvarṇanam:* "Great personalities have decided that Kṛṣṇa consciousness is the perfection of life." This kind of knowledge is required. Not that we do some research, come up with a theory, and after fifteen years say, "No, no, it is not right—it is another thing." That is not science; that is child's play.
 
 **Dr. Singh:**
 That is how they discover things—by research.
@@ -550,8 +556,9 @@ Scientists do not know that there are two types of energy—inferior and superio
 
 People are amazed at seeing a big machine with many, many parts, but an intelligent person knows that however wonderful a machine may be, it does not work unless an operator comes and pushes the proper button. Therefore, who is more important—the operator or the machine? So we are concerned not with the material machine—this cosmic manifestation—but with its operator, Kṛṣṇa. Now you may say, "Well, how do I *know* that He is the operator?" Kṛṣṇa says, *mayādhyakṣeṇa prakṛtiḥ sūyate sacarācaram: [[bg/9/10|[Bg. 9.10] ]]* "Under My direction the whole cosmic manifestation is working." If you say, "No, Kṛṣṇa is not the operator behind the cosmos," then you have to accept another operator, and you must *present* him. But this you cannot do. Therefore, in the absence of your proof, you should accept mine.
 
+### 5
 
-# Chapter 5: The Fifth Morning Walk: May 3, 1973
+The Fifth Morning Walk: May 3, 1973
 
 Recorded on May 3, 1973, 
 On the shores of the Pacific Ocean 
@@ -623,8 +630,9 @@ They have several theories.
 **Śrīla Prabhupāda:**
 Suppose you know the cause of cancer. What is the benefit? Even if you could stop cancer, you could not make a man live forever. That is not possible. Cancer or no cancer, a man has to die. He cannot stop death. Death may be caused, if not by cancer, simply by an accident. Real scientific research should aim at stopping death. That is real science, and that is Kṛṣṇa consciousness. Simply to discover some medicine to cure disease is not a triumph. The real triumph is to stop *all* disease. *Bhagavad-gītā* (8.16) asserts that the real trouble is birth, death, old age and disease. *Ābrahma-bhuvanāl lokāḥ punar āvartino 'rjuna:* "From the highest planet in the material world down to the lowest, all are places of misery wherein repeated birth and death take place." The solution to the problem of repeated birth and death is Kṛṣṇa consciousness, which we are practicing and offering to everyone. The perfect result of this practice is that after the present body becomes useless and dies, one is no longer forced to accept a material body subject to birth, death, disease and old age. This is *real* science.
 
+### 6
 
-# Chapter 6: The Sixth Morning Walk: May 7, 1973
+The Sixth Morning Walk: May 7, 1973
 
 Recorded on May 7, 1973, 
 On the shores of the Pacific Ocean 
@@ -692,8 +700,9 @@ But the average man does not think he is dying.
 **Śrīla Prabhupāda:**
 That is due to foolishness. Every moment he is dying, but he is thinking, "I shall live forever." Actually, death begins from the very moment of birth. Our analysis of the problem is that since people are dying, we should *stop* their death. But the so-called scientists are not only accelerating the process of death, but also refusing to take constructive advice to correct themselves.
 
+### 7
 
-# Chapter 7: The Seventh Morning Walk: May 8, 1973
+The Seventh Morning Walk: May 8, 1973
 
 Recorded on May 8, 1973, 
 On the shores of the Pacific Ocean 
@@ -757,8 +766,9 @@ As long as you are conditioned, you are dependent on matter. For example, a man 
 
 When you are conditioned, you think in terms of dualities like hot and cold, pain and pleasure. But when you are liberated, you have no such conditioned thoughts. Spiritual life means to become unconditioned—to come to the *brahma-bhūta* stage. [[sb/4/30/20|[SB 4.30.20] ]] That is the perfection of life. Being conditioned means that although the living entity is eternal, due to his conditioning he thinks that he is born, he is dying, he is diseased and he is old. But an unconditioned person is not even old. Kṛṣṇa is described in the *Brahma-saṁhitā* as *advaitam acyutam anādim ananta rūpam ādyaṁ purāṇa-puruṣaṁ nava-yauvanaṁ ca* [Bs. 5.33]. This means that He is the oldest person, the first person, but that He has no old age. He always appears just like a young man of twenty because He is fully spiritual.
 
+### 8
 
-# Chapter 8: The Eighth Morning Walk: May 11, 1973
+The Eighth Morning Walk: May 11, 1973
 
 Recorded on May 11, 1973, 
 On the shores of the Pacific Ocean 
@@ -845,7 +855,7 @@ Yes, that is the difference. As Kṛṣṇa says in the *Bhagavad-gītā* (2.17)
 > bhūtāni yānti bhūtejyā
 > yānti mad-yājino 'pi mām
 
-"Those who worship the demigods will take birth among the demigods; those who worship ghosts and spirits will take birth among such beings; those who worship ancestors go to the ancestors; and those who worship Me will live with Me." (Bg. 9.25)
+"Those who worship the demigods will take birth among the demigods; those who worship ghosts and spirits will take birth among such beings; those who worship ancestors go to the ancestors; and those who worship Me will live with Me." [[bg/9/25|(Bg. 9.25)]]
 
 ## Darwin Condemned
 
@@ -877,8 +887,9 @@ Darwin and his followers are rascals. If originally there were no higher species
 
 *Bhagavad-gītā* clearly says that all the species exist simultaneously, and that you can go to whichever species you like. You can even go up to the kingdom of God, if you so desire. All this is declared in *Bhagavad-gītā* by Lord Kṛṣṇa.
 
+### 9
 
-# Chapter 9: The Ninth Morning Walk: May 13, 1973
+The Ninth Morning Walk: May 13, 1973
 
 Recorded on May 13, 1973, 
 In Cheviot Hills Park, Los Angeles
@@ -888,7 +899,7 @@ In Cheviot Hills Park, Los Angeles
 ## Evolution from Human to Dog
 
 **Śrīla Prabhupāda:**
-The so-called scientists are putting their faith in a fraudulent theory. Kṛṣṇa says, *ahaṁ sarvasya prabhavaḥ:* "I am the origin of everything." (Bg. 10.8) Kṛṣṇa is life; Kṛṣṇa is not a dead stone.
+The so-called scientists are putting their faith in a fraudulent theory. Kṛṣṇa says, *ahaṁ sarvasya prabhavaḥ:* "I am the origin of everything." [[bg/10/8|(Bg. 10.8)]] Kṛṣṇa is life; Kṛṣṇa is not a dead stone.
 
 **Dr. Singh:**
 So matter is caused by life?
@@ -914,7 +925,7 @@ Animals transmigrate in only one direction—upward—but human beings can trans
 The scientists have no information that there is evolution up *or* down from the human platform.
 
 **Śrīla Prabhupāda:**
-Therefore I say they are rascals. They have no knowledge, yet they still claim to be scientists. Real science is in the *Bhagavad-gītā,* where Kṛṣṇa says, *yānti deva-vratā devān pitṝn yānti pitṛ-vratāḥ* (Bg. 9.25). This means that whatever one worships in this life will determine the type of body he gets in his next life. But if one worships Kṛṣṇa, he ends the process of transmigration entirely. *Yaṁ prāpya na nivartante tad dhāma*/ "When one goes to that supreme abode of Mine, he never returns [to this material world of birth and death]." (Bg. 8.21) Promotion to the spiritual world (*saṁsiddhiṁ paramām*) is the ultimate perfection of human life. Read *Bhagavad-gītā;* everything is there. But the scientists have no idea of this perfection; they do not even believe in the existence of the living entity apart from the gross body.
+Therefore I say they are rascals. They have no knowledge, yet they still claim to be scientists. Real science is in the *Bhagavad-gītā,* where Kṛṣṇa says, *yānti deva-vratā devān pitṝn yānti pitṛ-vratāḥ* [[bg/9/25|(Bg. 9.25)]]. This means that whatever one worships in this life will determine the type of body he gets in his next life. But if one worships Kṛṣṇa, he ends the process of transmigration entirely. *Yaṁ prāpya na nivartante tad dhāma*/ "When one goes to that supreme abode of Mine, he never returns [to this material world of birth and death]." [[bg/8/21|(Bg. 8.21)]] Promotion to the spiritual world (*saṁsiddhiṁ paramām*) is the ultimate perfection of human life. Read *Bhagavad-gītā;* everything is there. But the scientists have no idea of this perfection; they do not even believe in the existence of the living entity apart from the gross body.
 
 **Dr. Singh:**
 They do not speak of the living entity; they speak only of bodies.
@@ -944,7 +955,7 @@ The soul already has a spiritual body, which the material body covers. My materi
 > ahaṅkāra-vimūḍhātmā
 > kartāham iti manyate
 
-"The bewildered spirit soul, under the influence of the three modes of material nature, thinks himself to be the doer of activities that are In actuality carried out by nature." (Bg. 3.27) The source of this bewilderment is that the living entity thinks, "I am this body."
+"The bewildered spirit soul, under the influence of the three modes of material nature, thinks himself to be the doer of activities that are In actuality carried out by nature." [[bg/3/27|(Bg. 3.27)]] The source of this bewilderment is that the living entity thinks, "I am this body."
 
 > īśvaraḥ sarva-bhūtānāṁ
 > hṛd-deśe 'rjuna tiṣṭhati
@@ -1051,8 +1062,9 @@ It would certainly be stupid to say that a beautiful instrument like a violin wa
 **Śrīla Prabhupāda:**
 Yes. It is most regrettable that such a rascal can get recognition. He is talking foolishness and getting recognition.
 
+### 10
 
-# Chapter 10: The Tenth Morning Walk: May 14, 1973
+The Tenth Morning Walk: May 14, 1973
 
 Recorded on May 14, 1973, 
 In Cheviot Hills Park, Los Angeles
@@ -1074,7 +1086,7 @@ Yes.
 And matter is also created from the superior energy?
 
 **Śrīla Prabhupāda:**
-*Ahaṁ sarvasya prabhavo mattaḥ sarvaṁ pravartate.* Kṛṣṇa says, "I am the source of all spiritual and material worlds. Everything emanates from Me." (Bg. 8.10) Kṛṣṇa is the creator of everything, bad or good. Actually, "bad and good" is a material creation. Kṛṣṇa's creation is good; God is good. What you think is bad is good for God. Therefore, we cannot understand Kṛṣṇa. He is doing something that in our consideration may be bad, but for Him there is no such thing as good or bad. For example, Kṛṣṇa married sixteen thousand wives. Some people may criticize, "Ah, He is so mad after women." But they do not see the whole picture. Kṛṣṇa's power is so great that He expanded Himself into sixteen thousand different husbands.
+*Ahaṁ sarvasya prabhavo mattaḥ sarvaṁ pravartate.* Kṛṣṇa says, "I am the source of all spiritual and material worlds. Everything emanates from Me." [[bg/8/10|(Bg. 8.10)]] Kṛṣṇa is the creator of everything, bad or good. Actually, "bad and good" is a material creation. Kṛṣṇa's creation is good; God is good. What you think is bad is good for God. Therefore, we cannot understand Kṛṣṇa. He is doing something that in our consideration may be bad, but for Him there is no such thing as good or bad. For example, Kṛṣṇa married sixteen thousand wives. Some people may criticize, "Ah, He is so mad after women." But they do not see the whole picture. Kṛṣṇa's power is so great that He expanded Himself into sixteen thousand different husbands.
 
 ## “Everything Is One” Is Nonsense
 
@@ -1321,8 +1333,9 @@ In my childhood I was taught by my parents never to waste Kṛṣṇa's energy. 
 
 "For one who sees Me everywhere and sees everything in Me, I am never lost, nor is he ever lost to Me."
 
+### 11
 
-# Chapter 11: The Eleventh Morning Walk: May 15, 1973
+The Eleventh Morning Walk: May 15, 1973
 
 Recorded on May 15, 1973, 
 In Cheviot Hills Park, Los Angeles
@@ -1420,8 +1433,9 @@ Kṛṣṇa is the supreme enjoyer. Actually, except for those who are Kṛṣ�
 
 Therefore, in *Śrīmad-Bhāgavatam* the conditioned soul is likened to the camel. The camel is very fond of eating thorny twigs that cut his tongue. While he is eating them, blood issues from his tongue and mixes with the thorny twigs. They become a little tasty, and he is thinking, "Oh, these twigs are very nice." That is called *māyā. Māyā* means "that which is not." *Mā* means "not," and *yā* means "this." So *māyā* means "not this." That is the explanation of *māyā,* or illusion. The scientists are in *māyā* because they think they are improving things and becoming happy. But this world, along with everything in it, will eventually be finished because it is *māyā;* it is not what we think it is. As *Śrīmad-Bhāgavatam* explains, the materialists are thinking they are becoming victorious, but they are actually being defeated.
 
+### 12
 
-# Chapter 12: The Twelfth Morning Walk: May 17, 1973
+The Twelfth Morning Walk: May 17, 1973
 
 Recorded on May 17, 1973, 
 A Misty Morning, 
@@ -1533,8 +1547,9 @@ They are simply childish. In my childhood I used to watch the tramcars go along 
 
 To give another example, the scientists act like foolish ducks. In India we may sometimes observe a duck following all day behind a bull. The duck is thinking that the testicles of the bull are a fish. In India this is a common sight. The bull is walking, and all day the duck is walking behind, following that big fish and thinking, "It will drop, and I will eat it."
 
+### 13
 
-# Chapter 13: The Thirteenth Morning Walk: December 2, 1973
+The Thirteenth Morning Walk: December 2, 1973
 
 Recorded on December 2, 1973, 
 On the shores of the Pacific Ocean 
@@ -1660,8 +1675,9 @@ You have said that this material world is like a correction house to teach one t
 **Śrīla Prabhupāda:**
 Yes. Therefore you must practice Kṛṣṇa consciousness.
 
+### 14
 
-# Chapter 14: The Fourteenth Morning Walk: December 3, 1973
+The Fourteenth Morning Walk: December 3, 1973
 
 Recorded on December 3, 1973, 
 On the shores of the Pacific Ocean 
@@ -1829,7 +1845,7 @@ In nature there are no mistakes. Kṛṣṇa says:
 > hetunānena kaunteya
 > jagad viparivartate
 
-"This material nature is working under My direction, O son of Kuntī, and producing all moving and nonmoving beings." (Bg. 9.10) Nature works under the supervision of God, Kṛṣṇa, so how can nature make mistakes? But *we* commit mistakes, we are illusioned, our senses are imperfect, and we cheat. That is the difference between God and man. God does not have imperfect senses; His senses are perfect.
+"This material nature is working under My direction, O son of Kuntī, and producing all moving and nonmoving beings." [[bg/9/10|(Bg. 9.10)]] Nature works under the supervision of God, Kṛṣṇa, so how can nature make mistakes? But *we* commit mistakes, we are illusioned, our senses are imperfect, and we cheat. That is the difference between God and man. God does not have imperfect senses; His senses are perfect.
 
 ## Satisfied Animals
 
@@ -1860,8 +1876,9 @@ It is said that even the pauper is proud of his penny.
 **Śrīla Prabhupāda:**
 Yes. In some parts of India one may sometimes see a dog starving to death. But as soon as it gets a female dog, it is satisfied with having sex. Is that satisfaction? The dog is starving, but still it is satisfied with sex.
 
+### 15
 
-# Chapter 15: The Fifteenth Morning Walk: December 7, 1973
+The Fifteenth Morning Walk: December 7, 1973
 
 Recorded on December 7, 1973, 
 On the shores of the Pacific Ocean 
@@ -1950,7 +1967,7 @@ One kick of *māyā* and all their dominance is finished in one second. That is 
 > rākṣasīm āsurīṁ caiva
 > prakṛtiṁ mohinīṁ śritāḥ
 
-"Those who are bewildered are attracted by demoniac and atheistic views. In that deluded condition, their hopes for liberation, their fruitive activities and their culture of knowledge are all defeated." (Bg. 9.12) Because they are bewildered, all their hopes are frustrated. That is stated here in *Bhagavad-gītā,* and that is actually happening. So many of their big plans, like this moon project, are frustrated, but they still claim that they can dominate nature.
+"Those who are bewildered are attracted by demoniac and atheistic views. In that deluded condition, their hopes for liberation, their fruitive activities and their culture of knowledge are all defeated." [[bg/9/12|(Bg. 9.12)]] Because they are bewildered, all their hopes are frustrated. That is stated here in *Bhagavad-gītā,* and that is actually happening. So many of their big plans, like this moon project, are frustrated, but they still claim that they can dominate nature.
 
 **Dr. Singh:**
 They do not want to come to their senses.
@@ -2028,8 +2045,9 @@ Their plans are being frustrated at every moment, but still they are hoping.
 **Śrīla Prabhupāda:**
 Suppose I go into a dark room and say to the person inside, "The sun has risen. Come out!" The person in darkness may say, "Where is the proof that there is light? First prove it to me; then I will come out." I may plead with him, "Please, please, just come out and see." But if he does not come out to see, he remains ignorant, waiting for proof. So, if you simply read *Bhagavad-gītā* you will see everything. Come and see. Here is the proof.
 
+### 16
 
-# Chapter 16: The Sixteenth Morning Walk: December 10, 1973
+The Sixteenth Morning Walk: December 10, 1973
 
 Recorded on December 10, 1973, 
 On the shores of the Pacific Ocean 
@@ -2142,4 +2160,3 @@ They are diseased, but they do not want to be treated. If they do not agree to b
 > jñāninas tattva-darśinaḥ
 
 "Just try to learn the truth by approaching a spiritual master. Inquire from him submissively and render service unto him. The self-realized soul can impart knowledge unto you because he has seen the truth."
-

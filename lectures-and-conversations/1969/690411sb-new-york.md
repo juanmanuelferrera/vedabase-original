@@ -1,0 +1,25 @@
+# Śrīmad-Bhāgavatam Lecture [partially recorded]
+
+*Type: Srimad-Bhagavatam Dated: April 11th 1969 Location: New York Audio file: 690411SB-NEW-YORK.mp3*
+
+**Prabhupāda: **So *loka-hitam. Varīyān eṣa te praśnaḥ* *SB* 2.1.1*.*
+
+[Please let me know what a man should hear, chant, remember and worship, and also what he should not do. Please explain all this to me.]
+
+*Varīyān* means glorify; *eṣa,* this; *praśnaḥ,* question; *kṛtaḥ,* what you have done; *loka-hitam,* the best welfare activities. This kind of question and answer. And not only that. One may say that "In your Society, you are talking something of Kṛṣṇa. That is your hobby. You may take pleasure." Because everyone has got some..., his hobby. But it is not like hobby. Not only *loka-hitam;* it is said *ātmavit-sammataḥ:* it is approved by the transcendentalist.
+
+Just like in the *Bhagavad-gītā* Arjuna says that "You are accepted as the Supreme Personality of Godhead, Kṛṣṇa. Not that because I am Your friend, out of my whims or affection I am talking of You as the Supreme Personality; You are accepted by such great sages like Nārada, Vyāsa, Asita." Great stalwarts, Vedic scholars.
+
+So Kṛṣṇa is accepted by all Vedic scholars. Not only in the bygone ages, just like Nārada, Vyāsa, but in the recent ages, within, say, one thousand years. Within one thousand years, there happened to be many great scholars, just like Madhvācārya, Rāmānujācārya, Viṣṇu Svāmī, Lord Caitanya. They were very, very learned scholars. They have accepted Kṛṣṇa the Supreme Person... Even Śaṅkarācārya. Śaṅkarācārya is more than one thousand years ago. Śaṅkarācārya's time is just after Buddha's age. Buddha, 2,500; Śaṅkarācārya, about 1,500 years ago. He also accepted.
+
+Although he was impersonalist, he accepted, *sa bhagavān svayam kṛṣṇa.* "Kṛṣṇa, the Supreme Personality of Godhead, has come, has descended as the son of Vasudeva and Devakī." He has clearly mentioned. Because one may not misunderstand, "This Kṛṣṇa may be different." But he has specif... Just like identification. If you go to the court, you give your identification by your father's name. So Śaṅkarācārya has given identification of Kṛṣṇa by His father's name, by His mother's name. *Devakī vasudevāsya.* We also say Devakī-nandana, Vāsudeva.
+
+So *ātmavit-sammataḥ.* It must be approved by great *ācāryas.* We are pushing on this Kṛṣṇa consciousness not by whims. It is approved by great *ācāryas.* We are following their footsteps. That's all. That is our business. *Ātmavit tattva, ātmavit-sammataḥ.* And then *puṁsām,* for the people in general, *śrotavyādiṣu yaḥ paraḥ* *SB* 2.1.1*.*
+
+**[Please let me know what a man should hear, chant, remember and worship, and also what he should not do. Please explain all this to me.]**
+
+They have got many subject matter for hearing, ordinary people. But this subject matter, hearing of this Kṛṣṇa consciousness, is the..., *śrotavyādi.* Whatever subject matter you have got for hearing, this is the topmost. This is the topmost. *Śrotavyādiṣu yaḥ paraḥ.*
+
+So he's beginning, Śukadeva Gosvāmī is beginning to talk about Kṛṣṇa, and this book is *The First Step in God-Realization.* How, for ordinary common men, how one can realize God, these things will be described. We shall describe.
+
+Thank you very much. Hare Kṛṣṇa. [end]

@@ -1,0 +1,121 @@
+# Room Conversation
+
+*Type: Conversation Dated: April 12th 1969 Location: New York Audio file: 690412R1-NEW-YORK.mp3*
+
+**Brahmānanda:** It's the capital. [indistinct]
+
+**Gargamuni:** Tallahassee.
+
+**Prabhupāda:** Miami is the capital.
+
+**Brahmānanda:** No. Miami is a big tourist city.
+
+**Prabhupāda:** Oh.
+
+**Janārdana:** It's all tourist, the whole place.
+
+**Gargamuni:** There's an Indian fellow in the San Francisco temple. He comes very often. He's a student, and his name is Vinode.
+
+**Prabhupāda:** Vinode.
+
+**Gargamuni:** Yes. And he helps us cook *prasādam.* And he cooks in the kitchen, and oh, he says, "Kṛṣṇa is my only life." He says he was so happy to find a temple here.
+
+**Prabhupāda:** Very good.
+
+**Gargamuni:** He mentioned to me that he's married and that he has a child in India. And he asked, "Oh, were you married?" And I said, "No. My wife was taken away." And he came over and he hugged me. "Oh," he said, "you are so lucky." [laughter] He hugged me. He said, "Oh, you are so lucky."
+
+**Prabhupāda:** [chuckling] There is a Tulasī dāsa poetry, *din ka ḍākinī, rāt ka bāghinī, palak palak rahe cuṣe duniyā sab bhora hoye, ghara ghara bāghinī pūse**.* *Bhāginī.* Tulasī dāsa had very good, beautiful wife, and he was very much attached to her. So the system is that after the girl is staying with her husband... Because young girls, very minor age they were married, say, ten years, nine years, twelve years. But they're allowed to live with husband, say, after thirteen years or fourteen years, when she has attained puberty.
+
+So the system is six months father house and six months husband. In this way, going and coming. But when she is elderly, she can remain continually. But in the beginning... Because after all, she is girl, so she cannot tolerate the separation from father and mother. So six months here, six months... So Tulasī dāsa, as soon as the..., his father-in-law will come to take his daughter, he won't allow. He won't allow.
+
+**Brahmānanda:** Oh, he's so attached.
+
+**Prabhupāda:** Yes. "She'll go later on. She'll go." So he went back. The father used to..., went back. In this way, several times. Then it was agreed that the girl would go there, father's house, and the father took the girl in the morning, and in the evening Tulasī dāsa went there. [laughs] His wife chastised, "You are so rascal fool that I have come this morning, and you have..., evening you are here? You have so much attachment for the skin?" Just like husband and wife talking.
+
+That struck him very badly, and he immediately left that place and went to... Left home for good. Yes. And that was the initiation that he took up writing about Rāma. That is Tulasī dāsa's life. Just being, I mean to say, hurt by the words of wife, that "I love her..." Later on he understood, "Yes, she is right. So why should I be so much attached?" She uttered this words, "If you have got so much attachment for this skin and bone, oh, if you had so much attachment for Rāma, then your life would have been different." So he took it seriously: "Why not attachment for Rāma?"
+
+So he became a great devotee of Rāma, Tulasī dāsa. His book, *Rāma-carita-mānasa—*means "Thinking always of Rāma"—that is his book. It is very famous book, and that is the only important literature in the Hindi language, *Rāma-carita-mānasa.* It is very popular in India. Village to village, every... Practically Gītā Press has flourished simply by selling the *Rāma-carita-mānasa* and *Gītā. Gītā* and *Rāma-carita-mānasa.* Two books. Millions of books they print and sell, this *Rāma-carita-mānasa* and *Bhagavad-gītā.*
+
+So he has written that *din ka dakini:* in the daytime she is just like, what is called, witches. Witch? Witch?
+
+**Brahmānanda:** Witch, yes.
+
+**Prabhupāda:** *Ḍākinī.* And *rat ka bhāginī:* at night she is tigress.
+
+**Devotee:** She's what?
+
+**Brahmānanda:** Tigress.
+
+**Prabhupāda:** Tigress. At daytime she is witches. Witch or witches?
+
+**Brahmānanda:** Witch.
+
+**Prabhupāda:** Witch. And at night she is tigress. So that is the nature of woman. But the world is so mad that everyone is keeping such tigress. [laughs heartily] *Din ka ḍākinī rat ka bhāginī.* [Hindi] Every moment she is sucking blood. She is such a dangerous tigress. Every moment sucking blood. But [Hindi] the people, the world, people of the world has gone so crazy that each one is keeping one tigress. [laughs]
+
+**Brahmānanda:** Right in the home.
+
+**Prabhupāda:** Yes. That is Tulasī dāsa's remark. So in many passages of his poetry he has not done very justice to woman. And another poetry, he writes, *dhol guṇār śūdra narī. Dhol guṇār śūdra narī ihe sab śaśan ke adhikārī. Dhol guṇār paśu śūdra narī, ihe sab śaśan ke adhikārī. Dhol, dhol* means drum, *mṛdaṅga. Guṇār, guṇār* means... What is called English? A fool, fool. Illiterate fool, what is one word?
+
+**Brahmānanda:** Buffoon?
+
+**Prabhupāda:** Maybe buffoon. Buffoon is sometimes troublesome. But *guṇār* means he doesn't understand very nicely.
+
+**Brahmānanda:** Dullard.
+
+**Prabhupāda:** Dull, dull. *Dhol guṇār, dhol* means drum and *guṇār* means that dull. *Dhol guṇār śūdra,* and the laborer class, *śūdra.* Three. *Dhol, guṇār, śūdra,* and *paśu,* household animals, just like cows, dogs.
+
+**Brahmānanda:** Pet.
+
+**Prabhupāda:** Pet, like that. *Dhol guṇār śūdra paśu* and *narī. Narī* means woman. [laughs] Just see. He has classified the *narī* amongst these class, *dhol, guṇār, śūdra, paśu, narī. Ihe sab śaśan ke adhikārī. Sasan ke adhikārī* means all these are subjected for punishment.
+
+[aside:] And what about the guest?
+
+**Lady devotee:** Oh, the guest? It's coming.
+
+**Prabhupāda:** So *śaśan ke adhikārī* means they should be punished. [laughs] Punished means, just like *dhol,* when the, I mean to say, sound is not very hard,* dag-dag,* if you beat it on the border, then it comes to be nice tune. Similarly, *paśu,* animals, if you request, "My dear dog, please do not go there." *Hut!* [laughter] "No, my dear dog." *Hut!* This is the way.[?]
+
+Similarly, woman. If you become lenient, then she will be troublesome. So in India still, in villages, whenever there is some quarrel between husband-wife, the husband beats and she is tamed. [laughs] In civilized society, "Oh, you have done this?" Immediately some criminal case. But in uncivilized society they don't care for court or civilized way of...
+
+*Kicharī.* [*prasādam* being served]
+
+**Rāyarāma:** Swāmījī, Janārdana told me that from Vedic sources, you drew some conclusion that there are different universes visible? The stars are different universes? What is that?
+
+**Prabhupāda:** Yes.
+
+**Rāyarāma:** So each star is a different universe.
+
+**Prabhupāda:** Begin, begin. [eating *prasādam*] Yes. Gargamuni, you distribute this *purī*.
+
+**Gargamuni:** Made some curry.
+
+[everyone eating for a long time; devotees discussing different preparations]
+
+**Prabhupāda:** Everything hot.
+
+**Brahmānanda:** Yes.
+
+[long pause]
+
+**Prabhupāda:** Before Kṛṣṇa consciousness, was there any *purī* manufactured here? No. [laughs]
+
+**Gargamuni:** No. None of this.
+
+**Brahmānanda:** When I first came to Kṛṣṇa consciousness, I'd only been coming, I think, maybe two days to Kṛṣṇa consciousness, and then Mukunda had his wedding. Oh, that hooked me. Nice wedding and nice feasting. I was hooked.
+
+**Rāyarāma:** That was the day after our initiations. They initiated the night before. We had two days feasting.
+
+**Devotee:** I came into San Francisco looking for a spiritual teacher, and I came to *prasādam* and I never left.
+
+**Gargamuni:** I think that's what hooked all of us. [laughter]
+
+**Prabhupāda:** *Prasāde sarva-duhkhānāṁ hanir asyopajāyate.*
+
+[long pause] Thank you. Govinda dāsī has become very good housewife. Yes.
+
+[long pause] Rāyarāma, come.
+
+*Kṛṣṇa baṛo doyāmoy koribāre jihvā jay sva-prasād-anna dilo bhāi.*
+
+**[ “O Lord, this material body is a lump of ignorance, and the senses are a network of paths leading to death. Somehow or other we have fallen into the ocean of material sense enjoyment, and of all the senses the tongue is the most voracious and uncontrollable. It is very difficult to conquer the tongue in this world. But You, dear Lord Kṛṣṇa, are very kind to us. You have given us this nice prasādam just to control the tongue. So now let us take this prasādam to our full satisfaction and glorify Their Lordships Śrī Śrī Radha and Kṛṣṇa, and in love call for the help of Lord Caitanya and Prabhu Nityānanda.” ]**
+
+No more. [end]

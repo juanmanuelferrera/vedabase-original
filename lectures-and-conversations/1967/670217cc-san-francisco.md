@@ -1,0 +1,133 @@
+# Śrī Caitanya-caritāmṛta, Ādi-līlā 7.106-107
+
+*Type: Caitanya-caritamrta Dated: February 17th 1967 Location: San Francisco Audio file: 670217CC-SAN-FRANCISCO.mp3*
+
+**Prabhupāda:**
+
+> ...īśvara-vacana
+> vyāsa-rūpe kaila yāhā śrī-nārāyaṇa
+
+[*Cc. Ādi 7.106*]
+
+**[The Lord said, ”Vedānta philosophy consists of words spoken by the Supreme Personality of Godhead Nārāyaṇa in the form of Vyāsadeva.]**
+
+> bhrama, pramāda, vipralipsā, karaṇāpāṭava
+> īśvarera vākye nāhi doṣa ei saba
+
+[*Cc. Ādi 7.107*]
+
+**[The material defects of mistakes, illusions, cheating and sensory inefficiency do not exist in the words of the Supreme Personality of Godhead.]**
+
+We have been discussing this point, that *īśvara-vacana,* what is spoken by the Supreme Personality of Godhead, there is no flaw. In our statement, in our writing, because we are conditioned, therefore we have got four kinds of flaws: we are subjected to commit mistakes, we are sometimes illusioned, and sometimes we try to cheat, and always our senses are imperfect. So therefore, whatever knowledge I will present or I will tell you, that is all imperfect.
+
+You cannot expect perfect knowledge from imperfect person. Just like a medical man, a doctor, when he's sick, he puts himself under the care of another medical man. He does not take care of himself, because he's at that time imperfect physician. Because he's diseased, therefore he's imperfect, although he's a physician. But in his diseased condition, he does not take charge of himself. He puts himself in the charge of another medical man. This is the system.
+
+So when rascals and fools think in their imperfect stage as perfect, the whole anomalies of this world begins. The rascals and fools, they do not think themselves that "I am rascal and fool." Just like Caitanya Mahāprabhu presents Himself before His spiritual master... Not He presented—His spiritual master found Him that "You are fool number one." So we should be always prepared to admit our imperfection. But such imperfection is not in..., on the *īśvara. Īśvara* means controller. If the controller is imperfect... Suppose a man is in charge, director of such-and-such department, education department, and if he's a fool, then what is the use of keeping such man?
+
+Therefore *īśvara,* those who are controllers, they have no such flaw. That is to be admitted first. They are flawless. And what to speak of the Parameśvara. There are two kinds of *īśvara. Īśvara,* you can..., you are also *īśvara,* but you are now in imperfect stage. When you become perfect, you become *īśvara,* controller. For example, just like, at the present conditioned stage, we are all controlled by the senses. So when you at least become the controller of the senses, then you become *īśvara.* Now we are controlled by the senses, but when you become actually controller of the senses, then you become *īśvara.* Then there will be less mistake, less illusion, less cheating, and perfection.
+
+So the Lord, God... God is out of all these imperfections. And what are the scriptures? The scriptures are the words of God. In every scripture we'll find, "God said." In Bible it is said, "God said, 'Let there be creation.' " So therefore why God..., we are bringing God for creation? Because that will be perfect. If God said, "Let there be creation," that creation will be perfect.
+
+Don't you see how this creation is perfect? We require water, and so much, a large quantity. So God has created this earth in such a way that three-fourth of the earth is covered with water. And the water is salty. Why? The water is reserved. Unless it is salty, it will decompose. And how the water is distributed?
+
+Oh, there is sun. Sun evaporates the water, and that means salt is made minus and the pure water is evaporated on the sky, and that is distributed all over the world. And it is kept on the highest summit of the mountain so that it can come down by gravitation throughout the whole year through the rivers, channel, and you can get water.
+
+Now see—nature study—how it is perfectly made. Can you do that? No. It is not possible. When there is scarcity of water, you have to see to the sky. You have no power. Your science cannot acquire when there is scarcity, there is no rain—you cannot create rain. You have to wait. So therefore everything made by the Lord, that is perfect. There is no question of imperfection.
+
+Pūrṇasya pūrṇam ādāyapūrṇam eva avaśiṣyate,pūrṇam adaḥ pūrṇam idaṁpūrṇāt pūrṇam udacyate
+
+*Īśo* Invocation.
+
+**[The Personality of Godhead is perfect and complete, and because He is completely perfect, all emanations from Him, such as this phenomenal world, are perfectly equipped as complete wholes. Whatever is produced of the Complete Whole is also complete in itself. Because He is the Complete Whole, even though so many complete units emanate from Him, He remains the complete balance.]**
+
+In the Vedic language it is said that the Supreme Lord is full and perfect. Therefore whatever He creates, it is also perfect and full. Actually, there is no scarcity in this material world. We have created scarcity by our mismanagement. By our mismanagement.
+
+Actually the whole world, the whole earthly planet belongs to the, all the living entities there. They are meant for them. God has created vegetables for the animals, and He has created fruits, flowers, grains, and you take milk from the animals. All live peacefully. But we nonsense, rascals, we have created all these distinction: "Oh, this is American," "This is Indian," "This is Chinese," "This is Russian," "I am this," "I am that," "Oh, I am Christian," "I am Hindu." Why? All of you, you are God's servant, dependent on God. The leader is God. Just think in that way; the whole thing becomes perfect.
+
+Everything is there, perfect. The arrangement, nature's arrangement, is such that you eat nicely; whatever your bodily wants are there, there is sufficient supply. You take, eat nicely and live peacefully, and utilize the words of God. There are Bible. There are, I mean to say, Koran. There is *Vedas.* And try to understand God and make your life perfect and go back to Godhead. This is the whole policy.
+
+So there is no flaw in the arrangement of God. That is to be understood first of all. So Caitanya Mahāprabhu says that *Vedānta, Vedānta* is compiled by God Himself. That we have explained yesterday. Lord Kṛṣṇa also says that
+
+vedānta vid vedānta kṛd ca aham
+
+*Bg.* 15.15:
+
+**[I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness. By all the Vedas am I to be known; indeed I am the compiler of Vedānta, and I am the knower of the Vedas.]**
+
+"I am the compiler of *Vedānta* and I am the knower of *Vedānta.*" If God, if Kṛṣṇa, is not knower of *Vedānta,* then how He can compile *Vedānta*?* Vedānta* means "the last word in knowledge." We are, everyone, seeking knowledge, and *Vedānta* means the last word of knowledge.
+
+So Caitanya Mahāprabhu first of all establishes that in the *Vedānta-sūtra* you cannot find any flaw; therefore you have no right to interpret. Because you are nonsense rascal, so how you can touch and comment on the *sūtras,* which is compiled by God, the Supreme Perfect? But we do not admit that "I am rascal." I think that I am very much learned, I have no flaw, I am perfect." So these are foolishness.
+
+Caitanya Mahāprabhu's point is this, that why the foolish person go to interpret and comment on *Vedānta,* which is perfect itself? Do you require to see the sun with this light? How it is possible? The sun is itself illuminated so nicely that you don't require any other light to see sun. If I say, "My dear boy, please come with me and take this light. I'll show you sun in the sky," oh, you'll think, "Oh, Swāmījī is a nonsense. What is the use of this light? What is the use of this light?" Similarly, what knowledge you have got that you have to..., you want to comment on the *Vedānta-sūtra*? It is already illuminated.
+
+In the beginning: *athāto brahma jijñāsā**.* Now you have got this human form of life. Now you have got full consciousness. You are not like animal. We are not like dogs and cats. Now you try to understand what you are, Brahman, what is spirit. Is it not your duty? You should simply be satisfied like animals, eating, drinking and mating and begetting children, and sometimes death is come and gone? Do you think that is your perfection of life? No. The *Vedānta* says, *athāto brahma jijñāsā**.* This life is for spiritual realization. It is not meant for cats' and dogs' life, sense gratification.
+
+They are doing. The hogs are doing sense gratification all day, eating, and as soon as there is female, oh, there is sex. Do you think this is human life? No. *Vedānta* says no, it is not human life. The human life is to understand what is spirit, what is the background of this manifestation, *janma.* So at once the *Vedānta-sūtra* replies, *janmādy asya yataḥ*: "Brahman, the Supreme Absolute Truth, is that who is the background of all these manifestation."
+
+Now, if Brahman is background of this manifestation, so we are all living entities, and we are intelligent. We know how to do things very nicely. We have got intelligence. And do you think from whom we have emanated, He has no intelligence? He has no sense? He is impersonal? What is this nonsense?
+
+I am born of my father. Suppose I have not seen; just after my birth, my father died. So, in my childhood or even when my mother was pregnant, my father died, so I did not see my father. There are so many cases. Just like Mahārāja Parīkṣit. His father died while he was in the womb of his mother. Now, he has not seen his father. Does this mean that his father is impersonal? Any common man [can] understand, "I have got this body from my father, and I am so intelligent. I can do things nicely. So naturally my father is a person. How he can become imperson?" although I have not seen it.
+
+So these require, *janmādy asya yataḥ..*.* Vedānta-sūtra* says that "from whom everything is emanated." So He's not imperson. Therefore *Bhāgavata* explains this verse, this *sūtra,* very nicely. *Janmādy asya yataḥ anvayād itarataś ca artheṣu abhijñaḥ svarāṭ* [*SB 1.1.1*].
+
+**[O my Lord, Śrī Kṛṣṇa, son of Vasudeva, O all-pervading Personality of Godhead, I offer my respectful obeisances unto You. I meditate upon Lord Śrī Kṛṣṇa because He is the Absolute Truth and the primeval cause of all causes of the creation, sustenance and destruction of the manifested universes. He is directly and indirectly conscious of all manifestations, and He is independent because there is no other cause beyond Him. It is He only who first imparted the Vedic knowledge unto the heart of Brahmājī, the original living being. By Him even the great sages and demigods are placed into illusion, as one is bewildered by the illusory representations of water seen in fire, or land seen on water. Only because of Him do the material universes, temporarily manifested by the reactions of the three modes of nature, appear factual, although they are unreal. I therefore meditate upon Him, Lord Śrī Kṛṣṇa, who is eternally existent in the transcendental abode, which is forever free from the illusory representations of the material world. I meditate upon Him, for He is the Absolute Truth.]**
+
+That Supreme Person, God, is cognizant. He's sentient, not imperson, because He knows everything. Because everything is... Just like your father knows almost everything of you, because he has created you. This is crude example. But He's perfect. We fathers, we are not perfect. But He's perfect.
+
+Therefore, because He's perfect, He knows everything in the nook and corner of this creation. He knows everything. And *Bhāgavata* says *abhijñaḥ. Abhijñaḥ* means He knows. How He knows?
+
+Yac-cakṣur eṣa savitā sakala-grahāṇām
+
+[*Bs.* 5.52].
+
+**[The sun who is the king of all the planets, full of infinite effulgence, the image of the good soul, is as the eye of this world. I adore the primeval Lord Govinda in pursuance of whose order the sun performs his journey mounting the wheel of time.]**
+
+His knowing process is different. And we simply apply our nonsense, I mean to say, ideas to God. Now here, *Vedas, Vedas* says now this sun is the eye of God. *Yac-cakṣur eṣa savitā sakalā-grahāṇāṁ rājā samasta-sura-mūrtir aśeṣa-tejāḥ.* This sun, which is so illuminating and so powerful, it is the eye of God.
+
+Now how we can hide yourself from the eyes of God? The sunshine is within your room. You are thinking that "I am alone in this room. Nobody can see. Let us do all nonsense." Oh, the sunshine is there. How can you hide yourself? Therefore He's perfect. He can see what... Besides that, that is outside looking. And inside—
+
+īśvaraḥ sarva-bhūtānāṁ hṛd-deśe 'rjuna tiṣṭhati
+
+[*Bg*. *18.61*]*.*
+
+**[The Supreme Lord is situated in everyone's heart, O Arjuna, and is directing the wanderings of all living entities, who are seated as on a machine, made of the material energy.]**
+
+He's sitting within you. So how can you hide yourself? So this is not possible. There is no flaw. His seeing, His working, His writing, His instructing—everything is perfect. First of all, you have to understand this. And the *Bhāgavata* says,
+
+dharmaṁ tu sākṣād bhagavat-praṇītam
+
+*SB* 6.3.19*.*
+
+**[Real religious principles are enacted by the Supreme Personality of Godhead. Although fully situated in the mode of goodness, even the great ṛṣis who occupy the topmost planets cannot ascertain the real religious principles, nor can the demigods or the leaders of Siddhaloka, to say nothing of the asuras, ordinary human beings, Vidyādharas and Cāraṇas.]**
+
+*Dharma,* any religion, any religion or religious principle, *sākṣād bhagavat-praṇītam,* it is compiled and made by the Supreme Lord. Therefore in every scripture, you'll find the beginning is God. Beginning is God.
+
+So just like the state laws, the state laws are made by the state administrators. So how can you make change? You cannot make change. The state law is that you must go to the right. Can you make any change, "No, I shall go to the left"? Oh, at once you'll be arrested. If you cannot change the laws of your state, how you can change the laws of God? That means the more you violate the laws of God, the more you become sinful. This is called sin. As you violate the laws of the state and become a criminal, similarly, as you violate the laws of God, you become sinful. You become sinful. This is the definition of sin and piety. If you follow the rules of God, then you are pious.
+
+Now, in the *Bhagavad-gītā,* it is said that "Sex intercourse for begetting children is I am." That means this is pious. But if sex intercourse for sense gratification, that is sin. That is sin. Now fools may inquire, "Oh, what is the difference between married sex life and non-married sex life?" That is the fool's question. But if we follow the rules, the rule is that like, that you require sex life, so you just become gentleman: you marry.
+
+You get yourself married and peacefully live. That is nice. That is righteous. So why should we not accept? Similarly, there are so many things. In everything, there is God's law, and that is perfect. That is perfect. And Kṛṣṇa consciousness means always to be conscious, in contact with God. That is called Kṛṣṇa consciousness.
+
+Kṛṣṇa consciousness is not an artificial thing, that we have manufactured some ideas and advertising that we are Kṛṣṇa conscious. No. Kṛṣṇa consciousness means just a obedient citizen of the state, he's always conscious of the state's supremacy, similarly, a person who is always conscious of the supremacy of God, or Kṛṣṇa, he is called Kṛṣṇa conscious. He's called Kṛṣṇa conscious.
+
+And if we say that "Why should we become Kṛṣṇa conscious?" If you do not become Kṛṣṇa conscious, then you become criminal. You become sinful. You have to suffer. The laws of nature is so strong that it will not let you go without suffering. As the state laws are so stringent that if you commit some criminal thing... Simply by keeping marijuana and LSD you are still immediately arrested. You see? So what so speak of using them. [laughs] You see?
+
+So this is to be known. This is Kṛṣṇa consciousness, that we should not violate. And whatever, everything is there, whatever is spoken... The Caitanya Mahāprabhu wants to stress on this point, that nobody can interpret that in the, either in Bible or *Vedānta-sūtra* or Koran. That is the principle. You cannot make any change. If you do not understand, then you go to the right person.
+
+Who is the right person? That right person is who is receiving the knowledge by the *paramparā* system. Not the right person like Dr. Radhakrishnan, because he's very much educated and world-famous, oh, a philosopher, therefore he's the right person. No. He's not the right person. The right person is... He may be a illiterate person, but if he follows the *guru-paramparā,* the disciplic succession, he's the right person. He's the right person. He may be illiterate. He may not know.
+
+Just like Lord Caitanya confirmed that *brāhmaṇa,* he was illiterate, but he was studying *Bhagavad-gītā,* and Caitanya Mahāprabhu said, "Yes." He embraced him. "My dear *brāhmaṇa,* you are really understanding *Bhagavad-gītā.*" Because he knows the central point of *Bhagavad-gītā.* The central point.
+
+I have several times recited this narration, that Caitanya Mahāprabhu, when He was traveling in South India, He saw that one *brāhmaṇa* was reading *Bhagavad-gītā,* and his neighbors, they knew it that "This *brāhmaṇa* is illiterate and he does not know even what is A-B-C-D, and still he's reading *Bhagavad-gītā.*" So they were joking, sometimes criticizing him. The *brāhmaṇa,* of course, he was reading as far as possible. What possible?
+
+So Caitanya Mahāprabhu saw the fun and approached the *brāhmaṇa:* "Oh, My dear *brāhmaṇa,* what you are reading?" He understood that "Here is a sincere person. He's not joking me. He's simply inquiring." So he said, "My dear Sir, I am illiterate. I do not know even the alphabets. But my Guru Mahārāja asked me to read every day eighteen chapters of *Bhagavad-gītā.* So what can I do? I have taken this *Bhagavad-gītā* in pursuance of my spiritual master. So I am simply seeing the cover and trying to understand what is there."
+
+Now, he's illiterate. By seeing the cover, he's trying to understand *Bhagavad-gītā* by the order of his spiritual master. This is called Kṛṣṇa consciousness. "Because my spiritual master has ordered me to read *Bhagavad-gītā*—I know I'm illiterate, I cannot read—oḥ, let me see what it is." Caitanya Mahāprabhu asked him, "Well, you are illiterate, but I see that with feeling you are crying." "Yes, Sir, I am crying." "Why?"
+
+"Now, soon as I take this book, the picture of Kṛṣṇa and Arjuna comes before me. I see that Kṛṣṇa is driving the chariot and Arjuna is hearing, and I simply appreciate, 'Oh, Kṛṣṇa is so kind that He has become his chariot driver of His devotee.' Therefore I am crying. Oh, He's so kind." Caitanya Mahāprabhu said, "You are reading *Bhagavad-gītā.*" At once He embraced him.
+
+This is reading *Bhagavad-gītā.* Kṛṣṇa minus *Bhagavad-gītā* commentation, all rascaldom. Be careful of these, all these fools and rascals. That is not *Bhagavad-gītā.* Maybe Dr. Radhakrishnan, Swami Nikhilananda... All rascals, because they have made minus Kṛṣṇa. They want to interpret.
+
+Similarly, they interpret *Vedānta* and all this minus God. Minus God. So Kṛṣṇa..., Caitanya Mahāprabhu warns you that "Don't go to such rascals." There is no mistake. Try to understand *Bhagavad-gītā* or *Vedānta-sūtra* or any scripture as it is. Don't try to change it.
+
+Thank you very much. [end]

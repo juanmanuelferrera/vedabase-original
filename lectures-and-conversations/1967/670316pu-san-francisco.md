@@ -1,0 +1,101 @@
+# Purport to Bhajahu Re Mana
+
+*Type: Purport Dated: March 16th 1967 Location: San Francisco Audio file: 670316PU-SAN-FRANCISCO.mp3*
+
+**Prabhupāda:**
+
+Bhajahū re mana śrī-nanda-nandana-abhaya-caraṇāravinda re.
+
+**[O mind, just worship the lotus feet of the son of Nanda, which make one fearless. Having obtained this rare human birth, cross over this ocean of worldly existence by associating with saintly persons.]**
+
+*Bhaja, bhaja* means worship; *hu,* hello; *mana,* mind. The poet Govinda dāsa, a great philosopher and devotee of the Lord, he is praying. He is requesting his mind, because mind is the friend and mind is the enemy of everyone. If one can train his mind in Kṛṣṇa consciousness, then he is successful. If he cannot to train his mind, then life is failure. Therefore Govinda dāsa, a great devotee of Lord Kṛṣṇa...
+
+His very name suggests, Govinda dāsa... Govinda, Kṛṣṇa, and *dāsa* means servant. This is the attitude of all devotee. They always put, affix this *dāsa,* means servant. So Govinda dāsa is praying, "My dear mind, please you try to worship the son of Nanda, who is *abhaya-caraṇa,* whose lotus feet is secure. There is no fear." *Abhaya. Abhaya* means there is no fear, and *caraṇa, caraṇa* means lotus feet.
+
+So he is advising his mind, "My dear mind, please you engage yourself in worshiping the fearless lotus feet of the son of Nanda." *Bhajahū re mana śrī-nanda-nandana. Nanda-nandana* means a son of Nanda Mahārāja, Kṛṣṇa. And His lotus feet is *abhaya,* fearless. So Govinda dāsa is requesting his mind, "Please be engaged in the transcendental loving service of the lotus feet of Kṛṣṇa."
+
+So far other things are concerned... And he says also that *durlabha mānava-janama. Durlabha* means very rare to obtain; *mānava-janma* means this human form of life. It comes after a very long rotation. Once chance is given to become Kṛṣṇa conscious so that one may get out of the cycle of birth and death. Therefore he advises that this life, this human form of life, is very important, *durlabha.*
+
+*Durlabha* means... *Duḥ* means with great difficulty, and *labha* means obtainable. So foolish people, they do not know what..., how much important this human form of life. They are simply wasting in sense gratification like animals. So this is very instructing, that he is training his mind that "You engage your mind in the worship of Lord Kṛṣṇa." *Durlabha mānava-janama sat-saṅge.*
+
+And this training of the mind is possible only in good association, *sat-saṅga. Sat-saṅga* means persons who are simply, cent percent, engaged in the service of the Lord. They are called *sat.*
+
+Satāṁ prasaṅgāt
+
+*SB* 3.25.25*.*
+
+**[In the association of pure devotees, discussion of the pastimes and activities of the Supreme Personality of Godhead is very pleasing and satisfying to the ear and the heart. By cultivating such knowledge one gradually becomes advanced on the path of liberation, and thereafter he is freed, and his attraction becomes fixed. Then real devotion and devotional service begin.]**
+
+Without association of devotees, it is impossible to train the mind. It is not possible by the so-called *yoga* system or meditation. One has to associate with devotees; otherwise it is not possible. Therefore we have formed this Kṛṣṇa consciousness society so that one may take advantage of this association. So Govinda dāsa, poet and devotee, is advising, *durlabha mānava-janama sat-saṅge:* "You have got this very nice, rare human body. Now associate with devotees and engage your mind on the fearless lotus feet of Kṛṣṇa." He is requesting his mind.
+
+Then he is pointing out the frustration of life. What is that? *Śīta ātapa bāta bariṣaṇa e dina jāminī jāgi re. Śīta* means winter; *ātapa* means summer, when there is scorching sunshine. *Śīta ātapa bāta,* cold; *bariṣaṇa,* torrents of rain. So these disturbances are always there. Sometimes it is severe cold. Sometimes it is scorching heat. Sometimes there is torrents of rain.
+
+Sometimes this or that is going on. So he says, *śīta ātapa bāta bariṣaṇa e dina jāminī jāgi re.* Whole day and night, people are working very hard without caring, severe cold, severe heat, and torrents of rain, and keeping night, going to the desert, going underneath the sea—everywhere they are so busy. *Śīta ātapa bāta bariṣaṇa e dina jāminī jāgi re.* There is night duty and so many other engagements.
+
+So he says,
+
+> śīta ātapa bāta bariṣaṇa
+> e dina jāminī jāgi re
+> biphale sevinu kṛpaṇa durajana
+> capala sukha-laba lāgi' re
+
+**[Day and night I remain sleepless, suffering heat and cold, wind and rain. For a bit of flickering happiness I have vainly served wicked and miserly men.]**
+
+"Now, with all this hard labor, what I have done? I have served some persons who are not at all favorable to my Kṛṣṇa consciousness. And why I have served them?"
+
+Capala sukha-laba lāgi' re:
+
+**[Day and night I remain sleepless, suffering heat and cold, wind and rain. For a bit of flickering happiness I have vainly served wicked and miserly men.]**
+
+"*Capala,* very flickering happiness. I think if my small child smiles, I will be happy. I think if my wife is pleased, I think I am happy. But all this temporary smiling or feeling of happiness, they are all flickering." That one has to realize.
+
+There are many other poets also, similarly have sung that this is..., this mind is just like a desert, and it is hankering after oceans of water. In a desert, if a ocean is transferred, then it can be inundated. And what benefit can be achieved there if drop of water is there?
+
+Similarly, our mind, our consciousness, is hankering after ocean of happiness. And this temporary happiness in family life, in society life, they are just like drop of water. So those who are philosophers, those who have actually studied the world situation, they can understand that "This flickering happiness cannot make me happy."
+
+Then he says,
+
+kamala-dala-jala, jīvana talamala.
+
+**[What assurance of real happiness is there in all one’s wealth, youth, sons, and relatives? This life totters like a drop of water on a lotus petal; therefore you should always worship the lotus feet of Lord Hari.]**
+
+*Kamala-dala-jala* means the lily, lily flower. You have all seen lily flower on the lakes. They are tottering, always in the water. Tottering. Any way, any time, it can be overflooded. Similarly, this life is full of danger always. Always in danger. Any moment it can be finished. There are so many instances. People look it, but they forget. That is the wonderful thing. They are seeing every day, every moment, that he is himself in danger, others are in danger.
+
+Still, he is thinking that "I am secure.'' This is the position. So life is very tottering and in dangerous position. Therefore one should take advantage of this human form of life and immediately engage in Kṛṣṇa consciousness. That should be the request of everyone to his mind: "My dear mind, don't drag me in the dangerous position. Please keep me in Kṛṣṇa consciousness.''
+
+Thus Kṛṣṇa consciousness, how it can be achieved, that is also being described by Govinda dāsa. He says,
+
+> śravaṇa, kīrtana, smaraṇa, vandana,
+> pāda-sevana, dāsya re,
+> pūjana, sakhī-jana, ātma-nivedana
+> govinda-dāsa-abhilāṣa re
+
+**[Govinda Dāsa longs to hear the glories of Lord Hari, chant His glories, constantly remember Him, offer Him prayers, serve His lotus feet, become His servant, worship Him, serve Him as a friend, and completely offer Him his very self.]**
+
+*Abhilāṣa* means aspiration, hope, or ambition. He is ambitious of becoming a devotee in nine different ways. The first thing is *śravaṇa. Śravaṇa* means hearing. One has to hear from authorities. That is the beginning of spiritual life, or Kṛṣṇa consciousness. Just like Arjuna: he achieved his spiritual consciousness, or Kṛṣṇa consciousness, by hearing from Kṛṣṇa.
+
+Similarly, one has to hear from Kṛṣṇa or from the representative of Kṛṣṇa. One who presents Kṛṣṇa's words as it is—from him one has to hear, because at the present moment we have no opportunity to hear directly. To hear directly from Kṛṣṇa is there. The arrangement is there. Kṛṣṇa is situated in everyone's heart, and one can hear from Him very easily, anywhere and everywhere, but he must have the training how to hear. For that purpose one requires the help of the representative of Kṛṣṇa.
+
+Therefore Caitanya Mahāprabhu says that one can achieve devotional service of Kṛṣṇa by the combined mercy of Kṛṣṇa and the spiritual master. *Guru-kṛṣṇa-kṛpāya pāya bhakti-latā-bīja* [*Cc.* *Madhya* 19.151]*.*
+
+**[”According to their karma, all living entities are wandering throughout the entire universe. Some of them are being elevated to the upper planetary systems, and some are going down into the lower planetary systems. Out of many millions of wandering living entities, one who is very fortunate gets an opportunity to associate with a bona fide spiritual master by the grace of Kṛṣṇa. By the mercy of both Kṛṣṇa and the spiritual master, such a person receives the seed of the creeper of devotional service.]**
+
+By the grace of spiritual master, *guru,* and by the grace of Kṛṣṇa, one achieves the opportunity of serving Kṛṣṇa in devotional service. So in the *Caitanya-caritāmṛta* it is also said that spiritual master is the direct manifestation of Kṛṣṇa. Kṛṣṇa comes before the devotee as spiritual master just like sun enters your room by the sunshine.
+
+Although the sun does not enter your room or your city or your country—he is so many millions and millions of miles away—still, he can enter everywhere by his potency, the sunshine. Similarly, Kṛṣṇa enters everywhere by His different potencies. And to receive this light from Kṛṣṇa, one has to hear. Hearing is so important. Therefore Govinda dāsa says *śravaṇa. Śravaṇa* means hearing.
+
+And one who has heard nicely, his next stage will be *kīrtanam.* Just like our boys who have heard a little nicely, now they are very eager to chant, going from street to street. This is natural sequence. It is not that you hear, but you remain stopped. No.
+
+The next stage will be *kīrtanam.* Either by chanting vibration or by writing or by speaking or by preaching, the *kīrtana* will be there. So *śravaṇaṁ kīrtanam,* first hearing and then chanting. And hearing and chanting about whom? About Viṣṇu, not for any nonsense. *Śravaṇaṁ kīrtanaṁ viṣṇoḥ* [*SB* 7.5.23]*.*
+
+**[There are six principles favorable to the execution of pure devotional service: (1) being enthusiastic, (2) endeavoring with confidence, (3) being patient, (4) acting according to regulative principles [such as *śravaṇaṁ kīrtanaṁ viṣṇoḥ smaraṇam* [SB 7.5.23**]—hearing, chanting and remembering Kṛṣṇa], (5) abandoning the association of nondevotees, and (6) following in the footsteps of the previous ācāryas. These six principles undoubtedly assure the complete success of pure devotional service.]
+
+These things are stated in the *śāstra.* The ordinary people, they are also engaged in hearing and chanting. They are hearing in the newspaper of some politician, and the whole day they are discussing and chanting, "Oh, this man is going to be elected. This man is going to be elected.'' So hearing and chanting is there everywhere. But if you want spiritual salvation, then you have to hear and chant about Viṣṇu, nobody else. *Śravaṇaṁ kīrtanaṁ viṣṇoḥ.*
+
+So the poet sings, *śravaṇa kīrtana smaraṇa vandana, pāda-sevana dāsya re.* So there are different processes: hearing, chanting, remembering, worshiping in the temple, engaging oneself in the service. So he is desiring all nine kinds of devotional service. Ultimately, *pūjana sakhī-jana.*
+
+*Sakhī-jana* means those who are confidential devotees of the Lord, to please them. And *ātma-nivedana. Ātmā* means self, and *nivedana* means surrender. *Govinda-dāsa-abhilāṣa.*
+
+**[Govinda Dāsa longs to hear the glories of Lord Hari, chant His glories, constantly remember Him, offer Him prayers, serve His lotus feet, become His servant, worship Him, serve Him as a friend, and completely offer Him his very self.]**
+
+The poet's name is Govinda dāsa, and he expresses that his desires are only this. He wants to utilize the opportunity of his human form of life in this way. This is the sum and substance of this song. [end]

@@ -1,0 +1,139 @@
+# Śrī Īśopaniṣad, Mantra 1
+
+*Type: Sri Isopanisad Dated: May 2nd 1970 Location: Los Angeles Audio file: 700502IP-LOS-ANGELES.mp3*
+
+**Prabhupāda:**
+
+> oṁ pūrṇam adaḥ pūrṇam idaṁ
+> pūrṇāt pūrṇam udacyate
+> pūrṇasya pūrṇam ādāya
+> pūrṇam evāvaśiṣyate
+
+[*Īśo Invocation*]
+
+> īśāvāsyam idam sarvaṁ
+> yat kiñca jagatyāṁ jagat
+> tena tyaktena bhuñjīthā
+> mā gṛdhaḥ kasya svid dhanam
+
+[*Īśo mantra 1*]
+
+> kurvann eveha karmāṇi
+> jijīviṣec chataṁ samāḥ
+> evaṁ tvayi nānyatheto 'sti
+> na karma lipyate nare
+
+[*Īśo mantra 2*]
+
+> asuryā nāma te lokā
+> andhena tamasāvṛtāḥ
+> tāṁs te pretyābhigacchanti
+> ye ke cātma-hano janāḥ
+
+[*Īśo mantra 3*]
+
+> anejad ekaṁ manaso javīyo
+> nainad devā āpnuvan pūrvam arṣat
+> tad dhāvato 'nyān atyeti tiṣṭhat
+> tasminn apo mātariśvā dadhāti
+
+[*Īśo mantra 4*]
+
+> tad ejati tan naijati
+> tad dūre tad v antike
+> tad antar asya sarvasya
+> tad u sarvasyāsya bāhyataḥ
+
+[*Īśo mantra 5*]
+
+> yas tu sarvāṇi bhūtāny
+> ātmany evānupaśyati
+> sarva-bhūteṣu cātmānaṁ
+> tato na vijugupsate
+
+[*Īśo mantra 6*]
+
+> yasmin sarvāṇi bhūtāny
+> ātmaivābhūd vijānataḥ
+> tatra ko mohaḥ kaḥ śoka
+> ekatvam anupaśyataḥ
+
+[*Īśo mantra 7*]
+
+> sa paryagāc chukram akāyam avraṇam
+> asnāviram śuddham apāpa-viddham
+> kavir manīṣī paribhūḥ svayambhūr
+> yāthātathyato 'rthān vyadadhāc chāśvatībhyaḥ samābhyaḥ
+
+[*Īśo mantra 8*]
+
+> andhaṁ tamaḥ praviśanti
+> ye 'vidyām upāsate
+> tato bhūya iva te tamo
+> ya u vidyāyām ratāḥ
+
+[*Īśo mantra 9*]
+
+> anyad evāhur vidyayā-
+> nyad āhur avidyayā
+> iti śuśruma dhīrāṇāṁ
+> ye nas tad vicacakṣire
+
+[*Īśo mantra 10*]
+
+> vidyāṁ cāvidyāṁ ca yas
+> tad vedobhayaṁ saha
+> avidyayā mṛtyuṁ tīrtvā
+> vidyayāmṛtam aśnute
+
+[*Īśo mantra 11*]
+
+> andhaṁ tamaḥ praviśanti
+> ye 'sambhūtim upāsate
+> tato bhūya iva te tamo
+> ya u sambhūtyām ratāḥ
+
+[*Īśo mantra 12*]
+
+[03:37]
+
+**Prabhupāda:** Hare Kṛṣṇa. Read.
+
+**Gargamuni:** Fourteen.
+
+**Prabhupāda:** Yes.
+
+**Gargamuni:** The last sentence. "This point is confirmed by the *Bhagavad-gītā* in the Seventh Chapter, where *parā* and *aparā prakṛti* are discussed. The elements of nature—earth, fire, water, air, sky, mind, intelligence and ego—all belong to the inferior, or material, energy of the Lord, whereas the living being, the organic energy, is the superior energy, the *parā prakṛti,* of the Lord. Both the *prakṛtis,* or energies, are emanations from the Lord, and ultimately He is the controller of everything that exists. There is nothing in the universe which does not belong either to the *parā* or *aparā prakṛti,* and therefore everything is under the..."
+
+**Prabhupāda:** "...proprietary right of the Supreme Being." So here, in the *Īśopaniṣad* also, the same thing is explained, that *īśāvāsyam idaṁ sarvam* [*Īśo mantra 1*]. Whatever we are seeing, animate or inanimate, there is control of the Supreme Lord. The same thing is explained in the *Bhagavad-gītā,* that His energies are working.
+
+In the *Viṣṇu Purāṇa* it is said just like fire staying in one place distributes its heat and light... *Eka-deśa-sthitasyāgner jyotsnā vistāriṇī yathā. Agni, agni* means fire. Fire is... Just like the sun. Sun is also fire, very high temperature fire. So it is staying in one place, but it is distributing its light and heat all over the universe. *Eka-deśa-sthitasyāgner jyotsnā yathā vistāriṇī tathaiva parasya brahmaṇaḥ śaktiḥ* [*Viṣṇu Purāṇa* 1.22.53]. Similarly, two energies from the Supreme Lord is being distributed all over the creation. One kind of energy is called material energy, and the other kind of energy is called the spiritual energy.
+
+So in this world, in this temporary material world, the spiritual energy is there. That is prominent. But it is covered by the material energy. Just like there is sunshine—sunshine, nobody can check—but it is sometimes covered by cloud. When it is covered by the cloud, the sunshine is dim. The more it is covered... Just like in Western countries, in the northern countries, it is very much covered. Practically, there is no sunshine. In London I saw the sunshine is very rare. At ten o'clock it is early in the morning, and at half past three again evening, so long I was there.
+
+So this covering of the sunshine is temporary. Actually, sunshine cannot be covered. The whole sunshine cannot be covered. That is not possible. An insignificant portion of the sunshine may be covered, or is covered sometimes by the cloud. Similarly, this material world is an insignificant portion of the spiritual world, covered by this material energy. That's all. And what is the position of material energy? The material energy is also another form of the spiritual energy. That means absence of spiritual activity, that is material. That's all.
+
+Just like what is this cloud? This cloud is another transformation of the sunshine. The sunshine evaporates water from the sea, and the cloud is formed. Therefore sunshine is the cause of the cloud. Similarly, this material energy is also caused by the Supreme Lord, because it is His energy.
+
+So two energies are working in this material world: the spiritual energy and the material energy. The material energy means these eight kinds of material elements, *bhūmir āpo 'nalo vāyuḥ* *Bg.* 7.4: earth, water, fire, air, sky, mind, intelligence and ego. These are all material. And similarly, finer, finer, finer, finer, and grosser, grosser, grosser. Just like water is finer than the earth, then fire is finer than the water, then air is finer than the fire, then sky, or ether, is finer than the air. Similarly, intelligence is finer than the ether, or mind is finer than the ether. The mind... You know, I have given several times example: the speed of mind. Many thousands of miles within a second you can go.
+
+So the finer it becomes, it is powerful. Similarly, ultimately, when you come to the spiritual part, finer, from which everything is emanating, oh, that is very powerful. That's spiritual energy. So that is given in the *Bhagavad-gītā.* What is that spiritual energy? That spiritual energy is this living entity. *Apareyam itas tu viddhi me prakṛtiṁ parā* [*Bg*. 7.5]. Kṛṣṇa says, "These are material energies. Beyond this there is another, spiritual energy." *Apareyam. Aparā* means inferior. *Apareyam.* "All these described material elements, they're inferior energy. And beyond this there is superior energy, My dear Arjuna." What is that? *Jīva-bhūta mahā-bāho:* "These living entities."
+
+They are also energy. We living entities, we are also energy, but superior energy. How superior? Because *yayedaṁ dhāryate jagat* *Bg.* 7.5. The superior energy is controlling the inferior energy. Matter has no power. The big airplane, nice machine, is flying in the sky, made of material things. But unless the spiritual energy, pilot, is there, it is useless. It is useless. Thousands of years the jet plane will stand on the airport; it will not be flying unless the small particle spiritual energy, that pilot, comes and touches.
+
+So what is the difficulty to understand God? So plain thing, that if this huge machine... There are so many huge machineries; they cannot move without the touch of the spiritual energy, a human being or a living being. How can you expect that this whole material energy is working out of automatically or without any control? How you can put your arguments in that way? That is not possible.
+
+Therefore less intelligent class of men, they cannot understand how this material energy is being controlled by the Supreme Lord. The godless men, those who are of opinions that this material energy is working automatically, they are fools. That is the explanation of *Īśopaniṣad. Īśāvāsyam idaṁ sarvam* [*Īśo mantra 1*]. Everything is being controlled by the Supreme Personality of Godhead. And therefore, because He is the supreme controller, therefore He is the supreme proprietor.
+
+We can see in our practical experience, the man who controls the whole establishment, he is proprietor, or the president. Similarly, if it is being controlled by some superior person, then He is God. That is confirmed in the *Bhagavad-gītā: mayādhyakṣeṇa prakṛtiḥ sūyate sa-carācaram.* Kṛṣṇa says, "Under My superintendence this material energy is working, and all these animate and inanimate objects are being produced."
+
+> mayādhyakṣeṇa prakṛtiḥ
+> sūyate sa-carācaram
+> hetunanena kaunteya
+> jagad viparivartate
+
+[*Bg. 9.10*]
+
+So unless there is some living force, energy, behind any material manifestation, it cannot work. If we simply understand this fact, that everywhere there is control of the Supreme Lord, that is Kṛṣṇa consciousness. Kṛṣṇa consciousness means to understand things as it is. That's all.
+
+Thank you very much. [devotees offer obeisances] [end]

@@ -1,0 +1,63 @@
+# Bhagavad-gītā 6.41
+
+*Type: Bhagavad-gita Dated: July 17th 1971 Location: Detroit Audio file: 710717BG-DETROIT.mp3*
+
+[small child playing *karatālas*]
+
+**Prabhupāda:** Oh, very good. [laughs]
+
+**Devotees:** Jaya Prabhupāda!
+
+**Prabhupāda:**
+
+> śucīnāṁ śrīmatāṁ gehe
+> yoga bhraṣṭa sañjāyate
+
+*Bg.* 6.41
+
+When Arjuna asked Kṛṣṇa that "Persons who are trying to make perfection in the *bhakti-yoga*..." Because the *māyā's* influence is very strong. Anyone practicing *bhakti-yoga,* sometimes he may fall down. But there is assurance that even one falls down, there is no loss. That has been advised by Nārada Muni, that *tyaktvā sva-dharmaṁ caraṇāmbujaṁ harer bhajann apakvo 'tha patet tato yadi* *SB* 1.5.17.
+
+Just like in our movement somebody joins. A few cases have happened also that joined, doing nice, but all of a sudden drifted from our Society. So Nārada Muni advised that even some..., sometimes somebody may not continue but falls down, there is no loss. *Tyaktvā sva-dharmaṁ caraṇāmbujam*.
+
+And those who are sticking to their work, prescribed duties, but not in Kṛṣṇa consciousness, what they are gaining? Just try to understand. A person, say, out of sentiment, or some other influence, he joins this movement, Kṛṣṇa consciousness, but could not follow strictly the rules and regulation and falls down. Nārada Muni says there is no loss, even though he has fallen.
+
+But another person, who is sticking to their material activities, a material... A *karmī's* thinking, "What these people are doing? Simply wasting time. Let us do our duty. Let us produce something"—so-called production. So *Bhāgavata* says such person who are very nicely done their materialistic way of life, duties, but has not taken to Kṛṣṇa consciousness, what does he gain?
+
+This is the comparison. One joins this movement; due to some reason, immaturity, he falls down. For him the assurance is that he does not lose. He's still gainer. But one who is sticking to the material duties but does not take to Kṛṣṇa consciousness, *Bhāgavata* says, "What does he gain?" It is very important question. The spiritualistic duties, transcendental duties, Kṛṣṇa conscious duty is so nice that even if you fall down, whatever you have done, that is your guaranteed property. That is your guaranteed property.
+
+And anything, whatever you gain in this material world... Suppose you become very rich man, good factory, working. But as soon as this body's ended, everything is ended. Lost everything. These things will not go with you. Your factory, your skyscraper building, your millions of dollars' bank balance, that you'll have to leave behind you. You have to go with your work only, what you have done, pious or sinful activities. That will go with you. The result of pious activity and sinful activity will go with you.
+
+But in Kṛṣṇa consciousness, whatever you have done, it will go with you, and to give you other chance you'll have your birth in two nice places: *śucīnāṁ śrīmatāṁ gehe.* Those who have fallen from this Kṛṣṇa consciousness platform due to many reasons, maybe—he's guaranteed next life a human form of life. And where? *Śucīnāṁ śrīmatāṁ gehe.* You'll take your birth in a nice devotee or *brāhmaṇa's* house or in a rich man's family. Not only your human form of life is guaranteed, but also in a better house, in a better family.
+
+So these children who are born in our Kṛṣṇa consciousness Society, they are those children, those who could not finish Kṛṣṇa consciousness last life. They have been given to take birth in the family of devotee husband and wife; therefore he's playing *karatāla.* [laughter] Otherwise it is not possible. He had practice in his last life; therefore he's quickly... He had got the chance.
+
+**Devotees:** *Jaya* Prabhupāda!
+
+**Prabhupāda: **Again he's remembering and playing. This is the fact. So we have to study from the *śāstric* vision. *Śāstra-cakṣuṣāt.* How you'll see? You'll see through the authority, scriptures. So these are the statements of authoritative scriptures. *Śucīnāṁ śrīmatāṁ gehe.* So this child is born of a devotee father and devotee mother. Now he'll again begin from the point where he lost last life. Suppose Kṛṣṇa consciousness he executed fifty percent. So he'll begin from this life fifty-one percent. That fifty percent was in his stock.
+
+But ordinary *karmīs—*cent percent lost. He has to begin another chapter of life according to his *karma.* Either he'll become a man or dog, there is no guarantee. If he has maintained a dog mentality, then he'll get a dog's body. All this property he made in this life goes to hell. He becomes a dog if he has maintained a dog mentality. And if he has maintained a god's mentality, then he becomes a god also. But that will depend on his work.
+
+But generally the *karmīs,* they are not very good mentality. So there is risk. You do not know. *Karmaṇā daiva netreṇa* *SB* 3.31.1. The judgment will be done by the superior authority, and he'll be given a particular type of body, as he has maintained the consciousness.
+
+Therefore our business, this Kṛṣṇa consciousness movement, is to train the followers to Kṛṣṇa consciousness so that next life he gets Kṛṣṇa consciousness atmosphere, if not promoted immediately, directly to the abode of Kṛṣṇa. That is also possible. *Mad-yājino 'pi yānti mām* [*Bg*. *9.25*]: "Those who are My devotees, they come to My place." Kṛṣṇa says.
+
+So if you perfect your Kṛṣṇa consciousness in this life, then you are guaranteed to be promoted to go back to home, back to Kṛṣṇa. If you do not perfect, then next life is guaranteed a very nice human body, either in a rich man's family or in a Kṛṣṇa conscious family. Just try to understand how nice this movement is.
+
+Thank you very much. Hare Kṛṣṇa. [devotees offer obeisances]
+
+[break] Yes. Now here is a question: If one takes a birth in a rich man family, rich man's family, how it is good? Nowadays, actually, now...; not nowadays—practically always. That is also stated in the *Bhagavad-gītā:*
+
+> bhogaiśvarya-prasaktānāṁ
+> tayā apahṛta-cetasām
+
+*Bg.* 2.44
+
+Those who get facilities of material sense gratification, *bhoga, aiśvarya—*means great opulence, wealthy—for them it is very difficult to come to Kṛṣṇa consciousness. In other words, too much rich, richness, is a disqualification for coming to Kṛṣṇa consciousness.
+
+But it is not always the same. There are many persons, if they have associated, they... Unfortunately, they do not associate with spiritually advanced men. That is their defect. They think the spiritual advancement is poor man's business: "They have no sufficient to eat; therefore they are chanting Hare Kṛṣṇa. What they can do? We have got this factory. We have to go to the factory." That is their mentality. Therefore it is not good.
+
+But if one is intelligent, if he has got good association, then he understands the verdict of *Bhagavad-gītā, śucīnāṁ śrīmatāṁ gehe, yoga bhraṣṭa sañjāyate.* If he thinks that "I have got this opportunity of opulence. I have nothing to bother about my living and eating. I am born rich man. Why I am given so much chance? Because last, my..., I executed Kṛṣṇa consciousness, *yoga;* I could not finish. Therefore Kṛṣṇa has given me this chance that I'll not have to bother about my eating, sleeping. I save my time and engage myself in Kṛṣṇa consciousness."
+
+Unfortunately, due to bad association, they think, "I have..., we have got so much money, father's money, for nothing, without any labor. So either let me become a great sense enjoyer or a hippy." That's all. [laughter] It is due to bad association. Therefore it is our duty to go door to door and inform them the message of Kṛṣṇa, without any discrimination, so that they will come to Kṛṣṇa consciousness.
+
+All right, give me... [end]

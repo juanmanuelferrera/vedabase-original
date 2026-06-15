@@ -1,0 +1,108 @@
+# Śrī Īśopaniṣad, Mantra 6
+
+*Type: Sri Isopanisad Dated: May 8th 1970 Location: Los Angeles Audio file: 700508IP-LOS-ANGELES.mp3*
+
+**Prabhupāda:** Come on. Hare Kṛṣṇa. *Jaya.* Chant *Oṁ..*.
+
+> oṁ pūrṇam adaḥ pūrṇam idaṁ
+> pūrṇāt pūrṇam udacyate
+> pūrṇasya pūrṇam ādāya
+> pūrṇam evāvaśiṣyate
+
+[*Īśo Invocation*]
+
+> īśāvāsyam idam sarvaṁ
+> yat kiñca jagatyāṁ jagat
+> tena tyaktena bhuñjīthā
+> mā gṛdhaḥ kasya svid dhanam
+
+[*Īśo mantra 1*]
+
+> kurvann eveha karmāṇi
+> jijīviṣec chataṁ samāḥ
+> evaṁ tvayi nānyatheto 'sti
+> na karma lipyate nare
+
+[*Īśo mantra 2*]
+
+> asuryā nāma te lokā
+> andhena tamasāvṛtāḥ
+> tāṁs te pretyābhigacchanti
+> ye ke cātma-hano janāḥ
+
+[*Īśo mantra 3*]
+
+> anejad ekaṁ manaso javīyo
+> nainad devā āpnuvan pūrvam arṣat
+> tad dhāvato 'nyān atyeti tiṣṭhat
+> tasminn apo mātariśvā dadhāti
+
+[*Īśo mantra 4*]
+
+> tad ejati tan naijati
+> tad dūre tad v antike
+> tad antar asya sarvasya
+> tad u sarvasyāsya bāhyataḥ
+
+[*Īśo mantra 5*]
+
+Again repeat this *mantra.*
+
+After this we have been... So repeat from beginning again. *Oṁ*.
+
+Again repeat this.
+
+Then next.
+
+> yas tu sarvāṇi bhūtāny
+> ātmany evānupaśyati
+> sarva-bhūteṣu cātmānaṁ
+> tato na vijugupsate
+
+[*Īśo mantra 6*]
+
+Now you chant.
+
+Again repeat.
+
+[07:03]
+
+Yes.
+
+**"A person who sees everything in relation to the Supreme Lord and sees all entities as His parts and parcels, and who sees the Supreme Lord within everything, never hates anything, nor any being."**
+
+This is the stage of *mahā-bhāgavata.* In devotional service there are three stages. In the beginning it is called neophyte stage, beginners. The beginners are concentrated in the Deity worship. That is very important thing, to purify.
+
+> arcāyām eva haraye
+> [pūjāṁ] yas tu śraddhayehate
+> na tad-bhakteṣu cānyeṣu
+> sa bhaktaḥ prākṛtaḥ smṛtaḥ
+
+[*SB 11.2.47*]
+
+*Prākṛtaḥ* means from material platform, one is coming to the spiritual platform. At that stage one is taught or trained to worship the Deity with great faith and devotion under regulative principle. But in the neophyte stage, *na tad-bhakteṣu cānyeṣu,* he, the neophyte devotee, cannot understand who is highly elevated or devotee or what is his interest with other people. He cannot discriminate. *Na tad-bhakteṣu cānyeṣu sa bhaktaḥ prākṛtaḥ smṛtaḥ.* That neophyte devotee is almost material.
+
+Then next stage is to make friendship, to love God and to make friendship with devotees, and to be merciful to the innocent and to reject the atheist. Four classes of men. You have to offer all your love for Kṛṣṇa and you have to make friendship with the devotees of Kṛṣṇa. And those who are innocent, just preach this Hare Kṛṣṇa *mantra* and try to attract them to Kṛṣṇa. And another class, atheists, don't go there. Don't try there. Hopeless. Not hopeless; for a person who is not very much elevated, for him it is hopeless.
+
+But when one is on the higher stage of devotional service, that system is explained here:
+
+> yas tu sarvāṇi bhūtāny
+> ātmany evānupaśyati
+> sarva bhūteṣu cātmānaṁ
+> tato na vijugupsate
+
+[*Īśo mantra 6*]
+
+He has no discrimination who is devotee, who is nondevotee, who is atheist or theist, or who is... In this way, he sees everyone the part and parcel of the Supreme Lord. And everyone is engaged... One who is suffering, he's also engaged, because... Just like the prisoner. The prisoner, he's also serving the government—by force. Therefore one who is elevated, even those who are in abominable stage of life, the *mahā-bhāgavata* sees, "Oh, he's also obeying." Actually, it is obeying. The prisoners, they are obeying the government, although by force, but they're obeying.
+
+Similarly, those who are materialist, they are also obeying. Caitanya Mahāprabhu's this philosophy, that *jīvera svarūpa haya nitya kṛṣṇa dāsa* [*Cc. Madhya* 20.108-109]. A living entity's eternally servant of Kṛṣṇa, either he admits or not admits. That doesn't matter. He's a servant. Just like any citizen is law abider or subservient to the state. He may say that "I don't care for the state," by the police, by the military, he'll be forced to accept.
+
+So one is being forced to accept Kṛṣṇa as the master, and the other is voluntarily offering service. That is the difference. But nobody is free from the service of Kṛṣṇa. That is not possible. Therefore Caitanya Mahāprabhu's philosophy that eternal servant. Either you accept or not accept, you are servant. You are never equal or greater than God.
+
+So this Kṛṣṇa consciousness movement is for that purpose, that people should be taught that "You are eternal servant of God. Don't falsely claim that you are God, you don't care for God. You have to care." Just like this Hiraṇyakaśipu. He didn't care for God, but God came, and at the time of his last moment. You see? Similarly, God is visible to atheist as death and to the theist as lover. That is the difference. Everyone sees God. Nobody can say, "I do not see God." Everyone sees God. But one sees as death, and one sees as lover. That is the difference.
+
+Chant Hare Kṛṣṇa. [devotees offer obeisances]
+
+**Devotees:** Hare Kṛṣṇa. All glories to Śrīla Prabhupāda.
+
+[13:15] [*kīrtana*] [Prabhupāda plays gong] [end]

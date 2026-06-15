@@ -1,0 +1,62 @@
+# Lecture
+
+*Type: Lectures and Addresses Dated: January 15th 1969 Location: Los Angeles Audio file: 690115LE-LOS-ANGELES.mp3*
+
+**Prabhupāda:** So this *yoga* system, *bhakti-yoga,* means to concentrate only to Kṛṣṇa. Kṛṣṇa, when we speak of Kṛṣṇa: Kṛṣṇa and His expansion also. In the *Brahma-saṁhitā* Kṛṣṇa's expansions are described:
+
+> rāmādi-mūrtiṣu kalā-niyamena tiṣṭhan
+> nānāvatāram akarod bhuvaneṣu kintu
+> kṛṣṇaḥ svayaṁ samabhavat paramaḥ pumān yo
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+
+[*Bs.* *5.39*]
+
+**[I worship Govinda, the primeval Lord, who manifested Himself personally as Kṛṣṇa and the different avatāras in the world in the forms of Rāma, Nṛsiṁha, Vāmana, etc., as His subjective portions.]**
+
+Kṛṣṇa is always existing with innumerable forms. How? *Aṇḍāntara-sthaṁ paramāṇu-cayāntara-stham* [*Bs.* 5.35]*.*
+
+[He is an undifferentiated entity as there is no distinction between potency and the possessor thereof. In His work of creation of millions of worlds, His potency remains inseparable. All the universes exist in Him and He is present in His fullness in every one of the atoms that are scattered throughout the universe, at one and the same time. Such is the primeval Lord whom I adore.]
+
+*Aṇḍāntara-stham. Aṇḍa* means this universe. It is just like an egg. *Aṇḍa* means egg. All these planets and universes, they are made on the shape of egg. *Aṇḍāntara-stham.* So each and every universe, Kṛṣṇa enters as Garbhodakaśāyī Viṣṇu. Just like within matter, when there is male and female, sex, it becomes just like a small pea. That is also egglike, emulsified. And the living entity entered, and then the pea form becomes developed into a body.
+
+Similarly, without entrance of spirit, no matter can develop. Matter itself cannot develop. There must be spirit soul; then it develops. Pregnancy is formed when the spirit soul is there within the matter. Not that simply material secretion makes life. That is foolish understanding. Without spiritual spark being entered within the matter, it does not develop. Just like if a dead child is born, the form of the child may be preserved some by chemical process, but it will not develop. The developing process is stopped immediately, as soon as the spirit spark is gone out of it.
+
+So the conclusion is, matter cannot develop without spirit being within. So this material world, it is developing. The modern scientists also agree that the universe is increasing in volume. Why? Because Kṛṣṇa has entered within this universe as Garbhodakaśāyī Viṣṇu. Therefore it is developing.
+
+So there are innumerable universes, and so therefore there are innumerable Garbhodakaśāyī Viṣṇu. Because without Viṣṇu entering, this universe cannot develop. And the first creature is Brahmā. From the navel of Garbhodakaśāyī Viṣṇu, a lotus flower is grown. And upon that, Brahmā is the first creature. So the first creature is the most intelligent person.
+
+So Darwin's theory cannot be applicable, because his theory is that human form develops after many evolution. That is another process. That is also stated in the *Padma Purāṇa.* That is called *jīva-paryāyā.* But this is not a fact, that in the..., during..., in the beginning of the creation there was no human being or intelligent creature. The first creature is Brahmā, who has created this universe.
+
+So our point is, when we speak of Kṛṣṇa, we mean with all His different forms, *rāmādi-mūrtiṣu kalā-niyamena tiṣṭhan* [*Bs.* 5.39]*.*
+
+**[I worship Govinda, the primeval Lord, who manifested Himself personally as Kṛṣṇa and the different avatāras in the world in the forms of Rāma, Nṛsiṁha, Vāmana, etc., as His subjective portions.]**
+
+So *bhakti-yoga* can be applicable to any one of these forms, either Kṛṣṇa or Rāma or Viṣṇu or Nārāyaṇa, so many forms. Generally, Vaiṣṇava worship the form of Kṛṣṇa, Rādhā-Kṛṣṇa, and Lakṣmī-Nārāyaṇa. In our conditional stage we cannot worship Rādhā-Kṛṣṇa. Rādhā-Kṛṣṇa-*sevā* is for them who has developed spontaneous love for God. For them. Spontaneous.
+
+The spontaneous love... The example is given: just like a young man, young girl, without any acquaintance, when they see each other, there is some loving propensity. That is called spontaneous. Not that one has to learn how to love. Simply very sight will invoke some loving propensity. That is called spontaneous. When we are advanced in the matter of loving God, so much so that as soon as you see or remember anything about God, immediately you become ecstatic, that is spontaneous. Just like Lord Caitanya, when He entered the temple of Jagannātha, as soon as He saw Jagannātha, immediately fainted: "Here is My Lord."
+
+So this spontaneous love, those who have developed this spontaneous love, there is a stage. By practice one will come to that stage. Because that spontaneous love is eternal. It is not artificial. We have got, but it is now covered by our material association. So it has to be uncovered. And when you come to that stage, spontaneous, without any paraphernalia.
+
+Here we are trying to love Kṛṣṇa with so many paraphernalia. We must have a nice temple, nice dress, everything very favorable. Then we have some spiritual, ecstatic love. We have to create the groundwork. But spontaneous, there is no necessity of groundwork. Immediately one remembers of Kṛṣṇa, he becomes ecstatic. So that is the highest perfection of love of Godhead: spontaneous, without any external influence.
+
+Now, we are teaching devotional service by the order of spiritual master: "Our spiritual master has said this; we must follow." That is required—routine, practice. Just like in India, formerly, the boys and girls were married at very early age. So I was also married very early age. My wife was only eleven years old. So I have heard my mother-in-law was married, she was seven years old and my father-in-law was eleven years old. So this marriage was performed, but it is not that the husband and wife live together unless they are mature, grown-up.
+
+So there was a system to, in order to... Because premixing is still not allowed in India, but the husband and wife... The wife by the elderly members was asked that "Just take this foodstuff, tiffin, to your husband." So she comes, offers little foodstuff, *pān*. In this way they gradually develop their relationship, loving relationship. But actually, when that love is mature, there is no need of introduction. In the beginning it is required.
+
+So devotional service is divided into two portions. *Vidhi. Vidhi-mārga* [regulative devotional principles]*, rāga-mārga* [devotional service in spontaneous love]*.*
+
+*Vidhi* means by following the regulative principles according to the* sastra,* according to the order of the spiritual master. Then, when it is fully developed, then no more *vidhi.* Automatically one will be anxious to serve Kṛṣṇa: "How I shall make nice dress. How I shall serve Kṛṣṇa. How I shall cleanse the temple." There is no question of ordering. Spontaneous love. By rendering service, he feels transcendental bliss. That is spontaneous.
+
+So our Kṛṣṇa consciousness means we have to increase our attachment for Kṛṣṇa to the perfectional stage, when there is no more order, but automatically. Automatic. That is required. *Mayy asakta-manaḥ pārtha yogaṁ yuñjan mad-āśrayaḥ* *Bg.* 7.1
+
+**[Now hear, O son of Pṛthā [Arjuna], how by practicing yoga in full consciousness of Me, with mind attached to Me, you can know Me in full, free from doubt.]**
+
+That *yoga* system... At that time there is no* yoga.* It is already... *Yoga* system means a process which helps uniting with the Supreme. That is called *yoga* system. But when there is spontaneous love, that is not a *yoga* system; it is *yoga* already. United. The Māyāvādī philosophers, they say that united means the individual soul has no more any separate existence, monism. They become one. But Vaiṣṇava philosophy, they say they become one, but at the same time they remain separate.
+
+So these things are to be realized. As we make advance in spontaneous love for God, then these things become automatically revealed. It is... Simply by theoretical exposition they cannot be understood. Therefore we have to practice. *Vidhi-mārga...* That *vidhi-mārga* is called *bhakti-yoga. Vidhi-mārga* means by following the regulative principles of *śāstra,* orders of the spiritual master, when we engage ourself in devotional service, that is called *vidhi-mārga.*
+
+So we should not at once try to rise up to the *rāga-mārga,* or spontaneous. It is not an artificial thing. When one is, I mean to say, raised to the platform of spontaneous love, there is no question of falling back. During *rāga-mārga,* or regulative principle, there is chance of falling back, because that is not mature. But when it is mature, then there is no falldown. At that time, without Kṛṣṇa, without serving Kṛṣṇa, nobody can live.
+
+Just like Caitanya Mahāprabhu, He said that "I have no love for Kṛṣṇa." Just try to understand. Caitanya Mahāprabhu said that "I have no love for Kṛṣṇa." Why? Then why You are crying? So Caitanya Mahāprabhu says, "I am crying just to make a show to others that I am a devotee. Actually I am not a devotee. If I would have been actually devotee, how I am living without Kṛṣṇa? I should have died." This is ecstasy. "If I had any love for Kṛṣṇa, how I am living without Kṛṣṇa? That means I do not love Kṛṣṇa."
+
+So these are the highest stage. We should not imitate. We should follow the regulative principle. But some day will come when you'll be feeling the separation of Kṛṣṇa as death, as good as death. [end]

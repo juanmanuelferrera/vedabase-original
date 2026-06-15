@@ -1,0 +1,134 @@
+# Bhagavad-gītā 8.21–22
+
+*Type: Bhagavad-gita Dated: November 4th 1966 Location: New York Audio file: 661104BG-NEW-YORK.mp3*
+
+**Prabhupāda:**
+
+> avyakto 'kṣara ity uktas
+> tam āhuḥ paramāṁ gatim
+> yaṁ prāpya na nivartante
+> tad dhāma paramaṁ mama
+
+[*Bg* *8.21*]
+
+**[That supreme abode is called unmanifested and infallible, and it is the supreme destination. When one goes there, he never comes back. That is My supreme abode.]**
+
+This verse we have been discussing last day, that *avyaktam akṣaram. Avyaktam* means which is not manifested. This material world is manifested, but the spiritual world is not manifested before us. But, although not manifested, that part of this creation is eternal, *akṣaram. Akṣaram* means "which has no annihilation."
+
+In the material world everything is born, it stays for some times, it develops, it gives some by-products, then it dwindles and then vanishes. These six forms of changes of the material form—*ṣaḍ-vikāra.* This is called in Sanskrit word *ṣaḍ-vikāra,* six kinds of changes. But the spiritual world, *avyakta,* which is not manifested at the present moment before us, that is *akṣaram. Akṣaram* means it is eternal. It does not annihilate.
+
+Now, this spiritual vision at the present moment, because we are covered by the material dress, or material senses, therefore the spiritual world or anything spiritual is not conceivable, due to our material senses. But we can feel that there is something spiritual. That is possible. Although we are fully in ignorance of the spiritual matter, still, we can feel. If you analyze yourself silently, "What I am? I am this finger? I am this body? I am this hair?" you will deny, "No, I am not this." So beyond this body, what is, that is spiritual. That we can feel.
+
+Similarly, as we cannot find ourselves within this matter, although I'm here, that we can distinguish, the distinction between dead body and living body, something minus. That something is spirit. That something is spirit. Although we have no eyes to see, but the spirit is there. That is the beginning of *Bhagavad-gītā. Avināśi tu tad viddhi yena sarvam idaṁ tatam* [*Bg* 2.17]*.*
+
+**[Know that which pervades the entire body is indestructible. No one is able to destroy the imperishable soul.]**
+
+That spiritual existence is eternal, whereas this body is not eternal. Now, here it is said that *avyaktaḥ akṣaram:* "That nonmanifested, spiritual atmosphere is nonmanifested." But how it can be manifested? We have little feeling of it, but how it can be manifested? Yes. It can be manifested. And that is Kṛṣṇa consciousness, which we are preaching. In the Vedic literature it is said that *ataḥ śrī-kṛṣṇa-nāmādi na bhaved grāhyam indriyaiḥ* [*Cc Madhya* 17.136]*.*
+
+**[Therefore material senses cannot appreciate Kṛṣṇa’s holy name, form, qualities and pastimes. When a conditioned soul is awakened to Kṛṣṇa consciousness and renders service by using his tongue to chant the Lord’s holy name and taste the remnants of the Lord’s food, the tongue is purified, and one gradually comes to understand who Kṛṣṇa really is.]**
+
+*Indriya* means the senses. We perceive, or we get knowledge, through the instruments of different senses—eyes, ear, or smelling, tongue, touch. These are our five senses for gathering knowledge. And there are five senses for working. So we have got ten senses. And the ten senses are being conducted by the mind. So *ataḥ śrī-kṛṣṇa-nāmādi na bhaved grāhyam indriyaiḥ.*
+
+Now, because Kṛṣṇa, Kṛṣṇa is complete spirit and He's absolute, therefore His name is also spirit. His name, His form, His quality, His, I mean to say, opulence, His paraphernalia—everything is spiritual. But at the present moment, due to our material bondage or condition, we cannot understand what is spiritual. But this ignorance can be moved by this process, chanting Hare Kṛṣṇa. How it is?
+
+I'll give you example. Just like a man is sleeping. A man is sleeping. How you can awake him? By vibration of sound. "Mr. Such-and-such, just get up. Get up! The time is up." Although he is now practically unconscious, he cannot see, he cannot..., er, still, that hearing process is so prominent that a sleeping man can be awakened by vibration of sound. Similarly, the spirit soul, although it is now overpowered by this material bondage, or material condition, that spiritual consciousness can be revived by this transcendental vibration, Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare / Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. And for practical example, we are experiencing, and some of you...
+
+Now, this is Sanskrit word. Some of you do not know what is the meaning of this Hare Kṛṣṇa. This meaning of Hare Kṛṣṇa is... It is just addressing the Supreme Lord and His energy, Harā. Harā is the energy, and Kṛṣṇa is the Supreme Lord. So we are addressing: Hare Kṛṣṇa, Hare Kṛṣṇa: "O the energy of the Lord, O the Lord, please accept me." That's all. "Please accept me." We have no other prayer. "Please accept me."
+
+Lord Caitanya taught that we should simply cry, and we shall simply pray for accepting us. That's all. So this vibration is simply a cry for addressing the Supreme Lord, requesting Him, "Please accept me. Please accept me."
+
+> ayi nanda-tanuja patitaṁ kiṅkaraṁ
+> māṁ viṣame bhavāmbudhau
+> kṛpayā tava pāda-paṅkaja-
+> sthita-dhūlī-sadṛśaṁ vicintaya
+
+[*Cc Antya* *20.32*, *Śikṣāṣṭaka* *5*]
+
+**[O My Lord, O Kṛṣṇa, son of Mahārāja Nanda, I am Your eternal servant, but because of My own fruitive acts I have fallen into this horrible ocean of nescience. Now please be causelessly merciful to Me. Consider Me a particle of dust at Your lotus feet.]**
+
+This prayer was offered by Lord Caitanya. He's praying, "O my dear Kṛṣṇa, the son of Nanda..." Kṛṣṇa appeared as a foster son of Nanda Mahārāja. And Kṛṣṇa is very delighted when He is connected with some of His devotees' name.
+
+So Lord Caitanya addresses Him, "O the son of Nanda, somehow or other, I am now fallen in this ocean of nescience, ignorance. Please pick me up and fix me as one of the atoms of Your lotus feet." That's all. Just like a man fallen in the ocean, the only survival is if somebody goes and picks him just one inch above the water; he feels immediately relieved. Immediately. So as soon as we are fixed up in Kṛṣṇa consciousness, the immediate relief. Immediate. There is no question about it. It is such a nice thing.
+
+So although we cannot perceive the transcendental nature of the Supreme Lord, His name, His fame... Simply by speculating that what is the name of God, he cannot understand what is the name of God. Simply by speculating what is the form of God, it is not possible to understand. But as soon as you become situated in Kṛṣṇa consciousness, *sevonmukhe hi jihvādau svayam eva sphuraty adaḥ* [*Bhakti-rasāmṛta-sindhu* 1.2.234]*.*
+
+**[No one can understand the transcendental nature of the name, form, quality and pastimes of Śrī Kṛṣṇa through his materially contaminated senses. Only when one becomes spiritually saturated by transcendental service to the Lord are the transcendental name, form, quality and pastimes of the Lord revealed to him.]**
+
+If you engage yourself in this Kṛṣṇa consciousness business, then gradually God will reveal Himself before you. Oh, you cannot see God by your own endeavor. But if you qualify yourself, God will reveal Himself and you'll see Him. This is the process. You cannot order, "O God, please come before me and dance before me." No. He cannot be order-supplier. But you have to do in such a way that He will be pleased to reveal Himself before you, and you'll see Him fully.
+
+So here it is said, *avyaktaḥ akṣaraḥ.* The transcendental, there is. Because it is spoken in the *Bhagavad-gītā* and the Supreme Personality of Godhead is speaking Himself, there is no cause of doubting. There is no cause of doubting. The only thing is how to feel it, how to understand it. That understanding will gradually be developed, and it will be..., the truth will be revealed to you if you go on with this chanting Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare / Hare Rāma, Hare Rāma, Rāma Rāma...
+
+This is simple process, very simple process. Even children can take part in it. Even a child of six months took part in it. Perhaps in the last meeting you have seen. There was a small child, sitting on the lap of his father, and he was also [claps] joining. You see. Because automatic. A dog will dance, a cat will dance, a child will dance. There is no necessity of preliminary qualification for understanding, because it is from the spiritual platform. It is from the spiritual platform.
+
+So this simple process will reveal before you what is spiritual kingdom, what is God, what you are, what is this material world, why you are conditioned, what is the remedy. Everything will be... *Ceto-darpaṇa-mārjanaṁ bhava-mahā-dāvāgni-nirvāpaṇam* [*Cc Antya* *20.12*]*.*
+
+**[Let there be all victory for the chanting of the holy name of Lord Kṛṣṇa, which can cleanse the mirror of the heart and stop the miseries of the blazing fire of material existence. That chanting is the waxing moon that spreads the white lotus of good fortune for all living entities. It is the life and soul of all education. The chanting of the holy name of Kṛṣṇa expands the blissful ocean of transcendental life. It gives a cooling effect to everyone and enables one to taste full nectar at every step.]**
+
+Gradually, step by step by step by step.
+
+So *avyakto 'kṣara ity uktaḥ:* "It is..., in the Vedic literature it is said that that spiritual world and the spirit, everything is nonmanifested, but still, that is eternal." Eternal. We have to see through the books of knowledge. We have to believe. And it will be revealed, if you follow. Just like you purchase a ticket for going to India, some India Airline or Pan American Airline, you purchase. But why do you purchase? You can disbelieve. So what is the evidence that I shall go to India by purchasing the ticket? But still, with faith, because people are going there, the company's running, under certain circumstances you create some faith, "Yes, it will take me." And actually, when you purchase ticket and sit down on the plane, ah, next morning you get down.
+
+So you have to be... But faith, why you are accepting that faith? Because it is a company which is authorized, which is recognized; therefore you are creating faith. Faith you must have. Without faith, you cannot go a step forward in your ordinary life. You must have faith. But faith, what faith? Ah, the belief and faith should be in the authorized—authorized place. That is the process. Faith we must have. Without faith, we cannot make progress. But not blind faith, but to accept something which is recognized.
+
+So here *Bhagavad-gītā* is recognized. *Bhagavad-gītā* is recognized, so far India is concerned, cent percent. Either they may be theist or atheist, that doesn't matter; *Bhagavad-gītā* is accepted by all classes of men in India. And so far outside India is concerned, all scholars, all religionist, all philosophers, they have accepted this *Bhagavad-gītā* as authority. So there is no doubt about *Bhagavad-gītā's* being authority. Even Professor Einstein, he was reading regularly this *Bhagavad-gītā,* such a great scientist. So there are many evidences.
+
+So you believe this, that there is a spiritual atmosphere and that is the kingdom of God. And here it is stated that *yaṁ prāpya na nivartante:* if you somehow or other, you can reach that spiritual atmosphere, then the result is *na nivartante,* you'll have no more to take this material body, *na nivartante. Tad dhāma paramaṁ mama.* So you'll become quietly and happily situated in your eternal life. Don't you think?
+
+Now, suppose if you are placed in some country where you can understand that "In this country I'll have no more death, no more miseries, no more old age, no more disease," will you not be happy? Suppose you are transferred to a country where these things are available. Oh, yes, I shall..., I must be happy. If I can get some place where going I'll have not to die again or not to become old and not to have any diseases, oh, certainly I shall accept it. That is my desire, heart's desire. I want. I want that.
+
+Why you want that? Because you have got the right to have that prerogative. You have got the right. Therefore you want. You are eternal. You are blissful. You are full of knowledge. Simply you are covered by this material entanglement; therefore you have forgotten yourself. Now, here is the chance. Here is the chance to take advantage and revive my original status of life. Original status of life. Here it is clearly said, *yaṁ prāpya na nivartante:* "If you somehow or other can approach that spiritual atmosphere, then you haven't got to return again in this land of miseries of the atmosphere."
+
+We have already discussed that we are trying to become happy by transferring ourself to the moon planet. Now the present movement is going there. We are thinking that if we can transfer ourself to the moon planet, we shall be happy. Oh, it is useless. *Bhagavad-gītā* has already informed you that even if you go to the highest planet, *ābrahma-bhuvanāl lokāḥ punar āvartino 'rjuna* [*Bg* 8.16]*,* even if you go by some way or other...
+
+**[From the highest planet in the material world down to the lowest, all are places of misery wherein repeated birth and death take place. But one who attains to My abode, O son of Kuntī, never takes birth again.]**
+
+You cannot go. That is a dream only. But still, if you go by your sputnik or by aeronautic means, but still, the four principles of material miseries, namely birth, death, old age and disease, you cannot avoid.
+
+So it is not our business to have our place anywhere within this material world, either this country or that country or this planet or that planet. You'll never be happy. Here it is information. *Avyaktaḥ akṣara ity uktas tam āhuḥ paramāṁ gatim.* If you can reach that highest perfectional stage of life, then only you will no longer be required to come back again to this nonsense material world. Yes. This is the information you get.
+
+And where you shall do, what you shall do there? Some philosophers think that that spiritual atmosphere must be impersonal—impersonal, void. There are some philosophers, they think like that, that "There is. We accept the spiritual atmosphere." The impersonalist, Śaṅkarites, even the Buddhists, they also, some how or other, they accept that there is the voidness.
+
+But the *Bhagavad-gītā* does not disappoint you in that way. That voidness philosophy has created atheism. Because, just try to understand clearly: I am spiritual being. I want enjoyment. That is my life. I want enjoyment. But as soon as my future is void, I must be inclined to enjoy this material life. Therefore they simply discuss this voidness, impersonalism, but they enjoy as much as possible this material life. Simply armchair philosophical discussion. But as soon as we see their behavior, they're too much attached with the material enjoyment. So that is simply you can enjoy some speculation. That's all. But that is..., there is no benefit.
+
+But really if one has any spiritual sense, he'll at once cease from all this nonsense enjoyment. That is the symptom of any idea of spirituality. *Bhaktiḥ pareśānubhavo viraktir anyatra syāt* *SB* 11.2.42*.*
+
+**[Devotion, direct experience of the Supreme Lord, and detachment from other things—these three occur simultaneously for one who has taken shelter of the Supreme Personality of Godhead, in the same way that pleasure, nourishment and relief from hunger come simultaneously and increasingly, with each bite, for a person engaged in eating.]**
+
+The test is... If you have developed your Kṛṣṇa consciousness, if you have developed your devotional spirit, spiritual realization, the result will be that you'll be at once detached from these all kinds of material enjoyment. How it is? The example is given that just like a hungry man, if he's given nice foodstuff, and as soon as he eats and feels satisfaction, he says, "No, I don't want any more. I am satisfied." *Svāmin kṛtārtho 'smi varaṁ na yāce* [*Cc Madhya 22.42*]*.*
+
+**[[When he was being blessed by the Supreme Personality of Godhead, Dhruva Mahārāja said:] ’O my Lord, because I was seeking an opulent material position, I was performing severe types of penance and austerity. Now I have gotten You, who are very difficult for the great demigods, saintly persons and kings to attain. I was searching after a piece of glass, but instead I have found a most valuable jewel. Therefore I am so satisfied that I do not wish to ask any benediction from You.]**
+
+This is also stated in the *Bhagavad-gītā.* You'll find,
+
+> brahma-bhūtaḥ prasannātmā
+> na śocati na kāṅkṣati
+> samaḥ sarveṣu bhūteṣu
+> mad-bhaktiṁ labhate parām
+
+[*Bg* *18.54*]
+
+**[And of all yogīs, he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in yoga and is the highest of all.]**
+
+Oh, one who is spiritually realized, his symptom will be full satisfaction. He'll no longer be hankering after this nonsense material enjoyment. That is spiritual realization. *Paraṁ dṛṣṭvā nivartate. Rasa-varjaṁ raso 'py asya* [*Bg* 2.59]*. Raso 'py asya.*
+
+**[The embodied soul may be restricted from sense enjoyment, though the taste for sense objects remains. But, ceasing such engagements by experiencing a higher taste, he is fixed in consciousness.]**
+
+Now, just like... It is very clearly stated in the *Bhagavad-gītā.* Just like a diseased man, he's forbidden by the doctor, "Oh, you don't eat. You don't have sex life. You don't, don't..." So many don't. But he is forced to accept that don't, but inner side he feels, "Oh, if I get, I'll be happy." Inner side is want. But a spiritualist, inner side is strong. He's not impotent, but he'll don't like sex intercourse. Doesn't like. He hates. That is spiritual life. Inner side is strong enough. He can marry thrice, but he has got a detachment. That is spiritual life. *Paraṁ dṛṣṭvā nivartate* [*Bg* 2.59]*.* Just like if you get something superior, naturally you give up all inferior things.
+
+So we want enjoyment, but this atheism or this voidness, this impersonalism, they have created such an atmosphere that we are simply speculating, but we are addicted to this material enjoyment. That is not the process. Here it is said, *puruṣaḥ sa paraḥ pārtha bhaktyā labhyas tv ananyayā.* If you accept this principle of Kṛṣṇa consciousness, the devotional path, and if you worship that Supreme Personality of Godhead, then you can have the spiritual realization and you prepare yourself and you become detached from this material enjoyment. Your life becomes sublime. Oh. That is the process of Kṛṣṇa consciousness.
+
+*Puruṣa.* Here it is clearly said, *puruṣa, puruṣa,* the Supreme Personality of Godhead. *Puruṣaḥ sa paraḥ. Paraḥ* means Supreme. "Partha, O My dear Arjuna, that in that spiritual atmosphere there is the Supreme Personality." He's a person, just like you and me. Just we have got talking face to face, when you'll reach there you'll talk face to face with God. You'll play, you'll eat, everything. *Puruṣaḥ sa paraḥ pārtha.*
+
+How can I attain that state? *Bhaktyā.* Not by speculating, but *bhakti.* You have to submit. You have to render transcendental loving service. That is the way. *Bhaktyā tv ananyayā. Tv ananyayā* means without any adulteration. Adulter... What is that adulteration? "Now, I love God for some material benefit," that is adulteration. "I love God to become one with Him," that is adulteration. This sort of adulteration in devotional service will not help you. Unadulterated. *Tv ananyayā. Ananyayā.*
+
+Yasyāntaḥ-sthāni bhūtāni yena sarvam idaṁ tatam
+
+[*Bg* 8.22].
+
+**[The Supreme Personality of Godhead, who is greater than all, is attainable by unalloyed devotion. Although He is present in His abode, He is all-pervading, and everything is situated within Him.]**
+
+And that Supreme Personality, although He's just like a person, like you and me, still, He's so widespread that everything is within Him and everything in Him, He's outside and inside. That is the conception of God. God is everywhere, but still, He has got His kingdom, abode. He has got His association, everything. Just like the sun. The sunshine is all over the universe, but it has got his own planet, his own residence, localized, everything.
+
+So that is the conception of God. And that God, or Kṛṣṇa, is in that spiritual atmosphere. If we approach, then our life will be successful, our aims will be fulfilled, and we'll be happy, and we'll be prosperous eternally—not for temporary, but eternally.
+
+Thank you very much. Any question? [end]

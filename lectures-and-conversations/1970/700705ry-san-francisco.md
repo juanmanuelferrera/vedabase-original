@@ -1,0 +1,53 @@
+# Ratha-yātrā Address
+
+*Type: Lectures and Addresses Dated: July 5th 1970 Location: San Francisco Audio file: 700705RY-SAN-FRANCISCO.mp3*
+
+**Prabhupāda:** My dear boys and girls, those who have come here, I welcome you on behalf of Lord Caitanya Mahāprabhu. Lord Caitanya Mahāprabhu appeared five hundred years ago, and He introduced this Kṛṣṇa consciousness movement. This Ratha-yātrā is one of the item of this Kṛṣṇa consciousness movement.
+
+Jagannātha..., just try to understand Jagannātha. *Jagat* means the moving world. *Gacchati iti jagat*, Sanskrit word, *gacchati* means which is moving. So all these planets, this universe, even the sun, everything is moving, as we are moving. We are, of course, animate. Even inanimate things are moving. Your motorcar moving, your machine is moving, but they are moving under the control of some animate object.
+
+But animate objects moving, some of the animate objects are standstill, just like trees, but ultimately they are also moving in this sense: that one species of life is being transmigrated to another species of life. Therefore it is called *jagat. Jagat* means moving. And *Jagat-nātha*, *nātha* means the proprietor—master, proprietor.
+
+So Jagannātha means the proprietor or the master of all these movements, He is Jagannātha. And Balabhadra, Balarāma, *bala* means strength, and *rāma* means enjoyment. So Balarāma means who gives you spiritual strength for enjoying eternal blissful life. He is Balarāma. And Subhadrā, *su* means auspicious, and *bhadra* means well-being. Subhadrā, Jagannātha and Balarāma combined together are present before you to reclaim you all from your miserable condition of life. That is the purport of this Ratha-yātrā Festival. Ratha-yā... [break] If anyone sees on the car Jagannātha, Subhadrā and Baladeva, then he does not take birth again in this material world. *Ratheja vamanaṁ dṛṣṭa.*
+
+So I shall not take much of your time; you are tired. But some of the important things I may inform you, that this Kṛṣṇa consciousness movement is not a religious type; it is a great culture. It is a great culture for spiritual emancipation. Try to understand that we are in this world—not only we are; everything is combination of matter and spirit. Just like your body, this body is matter; but within this body, you, the spirit soul, is encaged or embodied. So anywhere you see, the tree... There are so many species of life; every species, every individual living entity is combination of spirit and matter. When the spirit is out of this body, then the body is matter only. Just like in your Bible also it is said, "Dust thou art, dust thou be-est." That dust is this body but not this spirit soul.
+
+So in this material world we are part and parcel of God, Jagannātha, and we are under the auspicious protection of Subhadrā, and we have got, I mean to say, implicitly the spiritual strength. In the Vedic literature you will find, *nāyam ātmā bala-hīnena labhyo* [*Muṇḍaka Upaniṣad* 3.2.4]*. Bala, bala* means this Balarāma, the spiritual strength. The spiritual realization can be achieved by the grace of Lord Balarāma.
+
+So this human form of life is meant for spiritual realization. Please try to understand that this human form of life is a chance to get out of this material entanglement. In other than human life—animal life, trees life, beast life, birds life, aquatic life—there are so many, 8,400,000 species of life... Out of that, this human form of life is a boon wherein you can get out of this material entanglement and, being freed from this material entanglement, you can enter into the spiritual world, the kingdom of God. *Yad gatvā na nivartante* [*Bg. 15.6*]. And if you go there, then you haven't got to come back in this material world, which is called *duḥkhālayam aśāśvatam* *Bg.* 8.15. It is the place of miseries as well as temporary.
+
+Even if we accept this place, miserable place, you will not be allowed to live here for long. You will have to quit this stage. Therefore it is called *aśāśvatam*. This is our position. In the *Bhagavad-gītā*, the Supreme Personality of Godhead Himself says that this is *duḥkhālayam aśāśvatam*. So the human form of life should endeavor how to get out of it.
+
+In this country especially, in all other countries also, the younger generation are not very satisfied. In your country, they say that the frustrated community, the confused community, the hippies. But I have got all sympathy for these frustrated community, everywhere. They should be frustrated. In the *Vedānta-sūtra* it is said that *athāto brahma jijñāsā*. This human form of life should feel frustration. If he does not feel frustration, then it is animal life.
+
+The symptom of human life is that he should be very much pessimistic, not optimistic, of this material world. Then there is path of liberation. And if we think that we are very much happy here, that is called illusion, *māyā*. Nobody is actually happy here. But if anyone wrongly thinks that he is happy, that is called *māyā*, illusion.
+
+So my request to you, those who are feeling frustration, confused: this is a good qualification. Good qualification in this sense: that those who are feeling frustration and confused, they are disgusted with this materialistic way of life. That is a good qualification for spiritual advancement. But if you are not properly guided, then that will be another frustration. That will be another frustration.
+
+To save you from that frustration, this Kṛṣṇa consciousness movement has come to your country, Lord Caitanya's movement. A great devotee, Narottama dāsa Ṭhākura, he sings, *patita-pāvana-hetu tava avatāra* [from *Prārthanā*]: "My dear Lord, Your incarnation is to reclaim all kinds of fallen souls." *Mo sama patita prabhu nā paibe āra*.
+
+"But I am the most fallen. Therefore, my claim is first. Because You have advented Yourself to claim all fallen souls, I am the most fallen; therefore You take care of me first."
+
+So actually, who is a fallen soul? Fallen soul means anyone who has taken birth in this material world, he is a fallen soul, never mind what he is—he may be Brahmā or he may be an insignificant ant. Anyone who is within this material world... Because our constitutional position is spirit soul. Spirit means *ānandamayo 'bhyāsāt* [*Vedānta-sūtra* 1.1.12], by nature joyful. That is spirit.
+
+So because we have been put into some awkward position of this material existence, therefore we are... Although constitutionally we are joyful, we do not find anything joyful. Try to understand this point. In this material world, because we have been encaged with this material body, although our endeavor is to become joyful, on account of this encagement of this material body, we are not joyful.
+
+So in the Vedic literature, the whole *Vedas*, there are four *Vedas* originally—*Sāma, Yajur, Ṛg, Atharva*—and from that *Vedas*, four *Vedas*, there are so many *Upaniṣads*, hundred and eight *Upaniṣads*. And the cream of the *Upaniṣads* is the *Vedānta-sūtra*. And the *Vedānta-sūtra* is very clearly explained by *Śrīmad-Bhāgavatam.* So this Vedic literature is giving us the help and the clue how we can get out of this miserable condition of life.
+
+This Kṛṣṇa consciousness movement is the essence, or cream, of all these Vedic literature. In the *Bhagavad-gītā*, you will find that *vedaiś ca sarvair aham eva vedyam* *Bg.* 15.15: by studying all the Vedic literature, you will have to find out Kṛṣṇa. And Kṛṣṇa is so kind..., rather, Kṛṣṇa's incarnation, Lord Caitanya, is so kind that He is giving you Kṛṣṇa in the form of His name. *Nāma rūpe kṛṣṇa avatāra* [*Cc. Ādi* 17.22]. So this Kṛṣṇa, Hare Kṛṣṇa movement, practically you can see also, Kṛṣṇa, this name Kṛṣṇa and the original Supreme Personality of Kṛṣṇa is nondifferent. If you simply chant this Hare Kṛṣṇa *mantra*, then you are associating constantly with Kṛṣṇa. That is a fact.
+
+So my request to you, those who are feeling frustration or confused: please take to this *maha-mantra*, chanting, Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. When I was coming, I was waiting there to see the procession, so many boys and girls, they are not within our Kṛṣṇa conscious group, they are outsiders, but they are also chanting this Hare Kṛṣṇa *mantra* very feelingly. I was very much satisfied.
+
+Therefore my request is, I have specially come to you. I was not very feeling well to come here. But because I have come to San Francisco, I must give you the message. It is very important message. Those of you who are feeling frustration and confused, kindly take to this chanting of Hare Kṛṣṇa *mantra*, that's all. You... There is no expenditure, there is no loss. We are not charging anything. It is not a business, that we are asking you to pay something because I am giving this information. No. It is freely distributed. You please chant this Hare Kṛṣṇa *mantra* twenty-four hours. You can work, you can walk, and at the same time chant this Hare Kṛṣṇa *mantra*.
+
+So this Ratha-yātrā Festival is a mass movement for enlightening people to this Kṛṣṇa consciousness movement. We have got many other festivities in Kṛṣṇa consciousness movement. We have got Janmāṣṭamī, Śrī Rāma-navamī, Dola-yātrā, Jhulana-yātrā. So there are twelve months, but we have got twenty-four festivals big as..., as big as this Ratha-yātrā Festival. So if you kindly take to them, then as advised by Lord Caitanya, *kīrtanīyaḥ sadā hariḥ* [*Cc. Ādi* 17.31], you will always be in Kṛṣṇa consciousness, and there will be no scope of your frustration and confusion.
+
+For this purpose especially I came in this meeting, that you kindly accept this, I mean to say, humble instruction that wherever you may be, in whatever position, in whatever condition, you kindly chant these sixteen names [everyone chants], Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.
+
+Chant again: Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.
+
+Again: Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.
+
+Thank you very much.
+
+**Audience:** *Jaya!!!* [end]

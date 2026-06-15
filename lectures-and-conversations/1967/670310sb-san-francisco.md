@@ -1,0 +1,257 @@
+# Śrīmad-Bhāgavatam 7.7.22-26
+
+*Type: Srimad-Bhagavatam Dated: March 10th 1967 Location: San Francisco Audio file: 670310SB-SAN-FRANCISCO.mp3*
+
+**Prabhupāda:**
+
+> aṣṭau prakṛtayaḥ proktās
+> traya eva hi tad-guṇāḥ
+> vikārāḥ ṣoḍaśācāryaiḥ
+> pumān ekaḥ samanvayāt
+
+[*SB* *7.6.22*]
+
+**[The Supreme Personality of Godhead, the supreme controller, who is infallible and indefatigable, is present in different forms of life, from the inert living beings [sthāvara], such as the plants, to Brahmā, the foremost created living being. He is also present in the varieties of material creations and in the material elements, the total material energy and the modes of material nature [*sattva-guṇa, rajo-guṇa* and *tamo-guṇa*], as well as the unmanifested material nature and the false ego.
+**Although He is one, He is present everywhere, and He is also the transcendental Supersoul, the cause of all causes, who is present as the observer in the cores of the hearts of all living entities. He is indicated as that which is pervaded and as the all-pervading Supersoul, but actually He cannot be indicated. He is changeless and undivided. He is simply perceived as the supreme sac-cid-ānanda [eternity, knowledge and bliss]. Being covered by the curtain of the external energy, to the atheist He appears nonexistent.]
+
+Now we are presenting self-analysis. What is that self? Prahlāda Mahārāja is describing. This is self-realization, Kṛṣṇa consciousness. A boy of five years old, because he has received the knowledge from the right source, he is presenting everything very competently and very scientifically. This is the beauty of knowledge received from the authorities.
+
+So...
+
+[pause] So we have discussed this *aṣṭau prakṛtayaḥ*..., eight different, differential elements, material elements. What is that? Earth, water, fire, air, ether, mind, intelligence and false ego. And these eight elements are described in the *Bhagavad-gītā* as separated energy. Separated energy you'll understand: just like I am speaking, and my speech is being recorded in the tape recorder. So even I am not here, if you apply the machine, it will exactly speak like me. That is my energy, but now it is separated. It cannot be changed. Suppose I am personally sitting here. If I want to speak something and I can change into another, but that machine cannot change. It will simply produce the sound, what is recorded there. Therefore it is separated energy.
+
+Similarly, these eight elements, they are called separated energy. God, from God's inconceivable potencies, this energy has come out, this material energy. And it is acting mechanically, just like the same way, tape recorder. Nobody has got power to change it, but it is working. It is working. And it is working so nicely because it is emanated from the Absolute Truth. It is appearing just like truth.
+
+Just like another example: if you find some beautiful doll in the shopkeeper's window, oh, it appears, oh, just like, exactly a beautiful, nice girl. But it is not. But how it looks so nice? It is the craftsmanship of the person who has manufactured that doll. Similarly, this separated energy, material energy, it is false, just like the doll. Nobody's attracted. Nobody's going to love offer..., offer love to that doll girl, because everyone knows, "This is false."
+
+Similarly, those who are intelligent, they are not interested to take any serious part in this material world, because it is separated energy, and it is acting so nicely, with the complication of three modes of nature, goodness, passion and ignorance... This is also discussed, that there are three *guṇas,* and if you multiply it with three, three into three equal..., it becomes nine. Then nine into nine equal to eighty-one. Then go on, eighty-one into eighty-one. It will..., increases infinitely.
+
+So this energy is acting in such a way that those who are not in exactly knowledge, they are bewildered. They think, "This is the end, nature, material nature." But this material nature is temporary—everyone knows it—as your body is temporary. It is born, it is stays for sometimes, it grows, it becomes very beautiful, and it produces some by-products, some children, or nice boys and girls, then becomes old and then vanishes. These six changes.
+
+Similarly, you should know anything material, they are under these six changes, and when vanishes, it will never come back again. It finishes forever. Your this nice body, when it will vanish, nobody can get it back. Suppose one man's very beautiful son or daughter has died. There is no power in this world which can bring back that body again. That is not possible. Therefore any sane man, any intelligent man, they should understand that "This is false. Behind this body, what is there?" That is being analyzed. This is self-analysis.
+
+So Prahlāda Mahārāja: *vikārāḥ ṣoḍaśācāryaiḥ pumān ekaḥ samanvayāt* [SB 7.6.22]*.* Now, these eight elements, they have changed by the interaction of the three *guṇas* into another sixteen items. What are those sixteen items? Ten items are the senses: five senses for acquiring knowledge and five senses for enjoying, and five *tan-mātra,* or objects of sense enjoyment. Just like you have got your eyes. This is the sense for enjoying. What is that? You want to see beautiful things, so there must be beauty.
+
+So this beauty is another change, and this eye is also is another change—out of those eight elements. Similarly, you have got your nose. You want to smell very nice aroma. So there is. Nice aromas, there is. You have got nice flower, or you see rose flower, how nice aroma is there. But everything, whatever you see, they are simply interaction of those eight different..., differentiated energy and the three *guṇas,* three qualities.
+
+So this analytical study is called *sāṅkhya* philosophy. *Sāṅkhya* philosophy, you have heard the name. They very nicely analyze these material elements, and this *sāṅkhya* philosophy of India is very much appreciated by European philosophers, because they are more or less materialist. But the *sāṅkhya* philosophy, *sāṅkhya kara,* has become very popular in European circle. So *vikārāḥ ṣoḍaśācāryaiḥ pumān ekaḥ samanvayāt.* Now, within this, these sixteen interactional presentation and eight differentiated energy, it makes twenty-four. Within these twenty-four interaction of this material energy, I am sitting. I am soul, spirit soul.
+
+Dehas tu sarva-saṅghāto jagat tasthur iti dvidhā
+
+[*SB* 7.6.23]*.*
+
+**[There are two kinds of bodies for every individual soul—a gross body made of five gross elements and a subtle body made of three subtle elements. Within these bodies, however, is the spirit soul. One must find the soul by analysis, saying, "This is not it. This is not it." Thus one must separate spirit from matter.]**
+
+Now, these twenty-four, I mean to say, manifestation, is called this body. And that body are also two kinds. What are? That some bodies are moving and some bodies are stationary. Just like trees, plants, they are also living entities. They are also living entities, and we, human being or animals...
+
+There are divisions. Several times we have discussed. There are 8,400,000's of species of life. Out of these, trees and plants they are 2,000,000's. And the aquatics, there are 900,000's. Similarly, the bacteria, worms and reptiles, they are... *Sthāvarā lakṣa-viṁśati kṛmayo rudra-saṇkhayakāḥ* [*Padma Purāṇa*], eleven..., 1,100,000's.
+
+**[There are 900,000 species living in the water. There are 2,000,000 nonmoving living entities [sthāvara] such as trees and plants. There are 1,100,000 species of insects and reptiles, and 1,000,000 species of birds. As far as quadrupeds are concerned, there are 3,000,000 varieties, and there are 400,000 human species.]**
+
+There are analytical study in the Vedic knowledge. They are experimented, and if you like, can experiment yourself also. Just like the information is that there are 900,000's of aquatics.
+
+Now, if you have got power to study how many aquatics are there, you can corroborate. Or 2,000,000's of plants and trees and creepers—that also, you can corroborate. But we get from Vedic literature these informations. So these are the different manufactures, different presentation of this interaction of these twenty-four elements.
+
+Dehas tu sarva-saṅghāto jagat tasthur iti dvidhā
+
+*SB* 7.7.23*.*
+
+**[There are two kinds of bodies for every individual soul—a gross body made of five gross elements and a subtle body made of three subtle elements. Within these bodies, however, is the spirit soul. One must find the soul by analysis, saying, "This is not it. This is not it." Thus one must separate spirit from matter.]**
+
+And this *deha,* this body, is divided into two classes of body: one class moving, and one class not moving, standing stationary.
+
+*Atraiva mṛgyaḥ puruṣaḥ neti netīty atat tyajan* *SB* 7.7.23*.* Now, if you are intelligent enough, then you can find out the *puruṣa.* *Purusa* means the enjoyer. We... I have got this body because I wanted a certain type of enjoyment. So nature has given me a certain type of body. You wanted certain type of enjoyment: the nature has given you a certain type of body.
+
+The tiger wanted a certain type of enjoyment, so he..., it has got a certain type of body. Similarly, every one of us in the 8,400,000's of species of life, we have got different bodies. But the soul is there. The soul, the individual soul, is within the elephant, and the individual soul is within the bacteria. Bacteria you cannot find with your open eyes. You have to see with a microscope. It has got the same soul. As the elephant has got the same soul, similarly, the bacteria has also got the same soul.
+
+*Atraiva mṛgyaḥ puruṣo neti neti.* Now you have to analyze. You have to analyze what is soul and what is not soul. That requires intelligence. Just like the other day I explained to you that if you think yourself, meditate on your self, that "Am I this hand? Am I this leg? Am I these eyes? Am I this ear?" oh, you'll say, "No, no, no, I am not this hand. I am not this leg." You'll understand. If you meditate, you'll understand. But when you come to the point of consciousness, you'll say, "Yes, I am this." This is meditation. This is meditation, analytical study of yourself.
+
+So *anvaya-vyatirekeṇa vivekena uśatātmanā.* Those who are advanced in knowledge, directly and indirectly, by contemplating, by meditation, they can find out. It is not difficult. The process is *anvaya,* directly, and *vyatirekeṇa,* indirectly, and *vivekena*... *Vivekena* means with deliberation. That "This finger is..., I am this finger," no, you are not this finger, because if you cut your finger, then you'll live. Therefore you are not finger. This is *viveka.* This is deliberation. Similarly, you can study; it is not very difficult. Prahlāda Mahārāja says.
+
+*Svarga-sthāna-samāmnāyair vimṛśadbhir asatvaraiḥ.*
+
+> anvaya-vyatirekena
+> vivekenośatātmanā
+> svarga-sthāna-samāmnāyair
+> vimṛśadbhir asatvaraiḥ
+
+[*SB* *7.6.24*]
+
+**[Sober and expert persons should search for the spirit soul with minds purified through analytical study in terms of the soul's connection with and distinction from all things that undergo creation, maintenance and destruction.]**
+
+So very soon, if you try to meditate what you are and what you are not, by this analytical self-study you can understand that you are not this body, you are this consciousness. And this consciousness, what is that consciousness? It is the effulgence of the soul. Consciousness is also not you are. It is just like this lamp has got some effulgence and illumination; similarly, the soul has got illumination. That illumination is this consciousness.
+
+So this illumination, this consciousness, is also limited. Your consciousness, my consciousness, they are limited. You cannot perceive or understand what I am thinking; I cannot perceive or understand what you are thinking. If you are feeling, I mean to say, uncomfortable, I do not understand it. And if I am feeling happy, you do not understand it. In this way, if you make analytical study, you'll know that every one of us is individual, and we have got individual consciousness, limited consciousness, not extensive.
+
+The Māyāvādī philosophers who mistake that "I am unlimited consciousness," no. If you deliberate, if you think wisely, then you are not unlimited consciousness. Your consciousness cannot approach my perception. Therefore I am limited consciousness. But because I have got consciousness, you have got consciousness, we are living soul; therefore the Supreme Soul, He has got His consciousness, and that is unlimited consciousness.
+
+This, this subject matter is very nicely described in the *Bhagavad-gītā*, Thirteenth Chapter. Those who have read *Bhagavad-gītā*, you'll find there that
+
+kṣetra-jṣāṁ cāpi māṁ viddhi sarva-kṣetreṣu pāṇḍava
+
+*Bg.* 13.3*.*
+
+**[O scion of Bharata, you should understand that I am also the knower in all bodies, and to understand this body and its owner is called knowledge. That is My opinion.]**
+
+Kṛṣṇa says that "My dear Arjuna, this body is *kṣetra,* is field of activities. So your body is field of activities, and similarly, there are all the living entities, they have got their different kinds of field of activities. But the actor who is occupier of the field, he is called *kṣetra-jṣā.*
+
+And the field, or this body, is called *kṣetra.* So in every *kṣetra,* or in every field, there is a owner of this field of activity, but so far I am concerned, I am situated in all the *kṣetras* and all the fields." That means God is situated both within your heart, within my heart, in everyone's heart.
+
+Īśvaraḥ sarva-bhūtānāṁ hṛd-deśe 'rjuna tiṣṭhati
+
+[*Bg.* *18.61*]*.*
+
+**[The Supreme Lord is situated in everyone's heart, O Arjuna, and is directing the wanderings of all living entities, who are seated as on a machine, made of the material energy.]**
+
+This is also explained in the *Bhagavad-gītā*, that the Supreme Lord, by His plenary expansion, by Paramātmā expansion, He is situated in everyone's heart. Therefore, what you are feeling individually, that is known to God. What you are thinking individually, that is known to God. What I am thinking individually, that is known to God. Therefore we cannot hide anything from God. He is situated within.
+
+So if you are sincerely in God's service, if you are sincerely in Kṛṣṇa consciousness, He knows it. He knows it that you are not anxious. So he will give you intelligence so that you can make progress towards God. And if you don't want, if you want to make progress in this material change of body, then God will give you such intelligence so that you can make your advancement materially. He has given you full freedom.
+
+Sarvasya cāhaṁ hṛdi sanniviṣṭo
+
+*Bg.* 15.15*.*
+
+**[I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness. By all the Vedas am I to be known; indeed I am the compiler of Vedānta, and I am the knower of the Vedas.]**
+
+In the *Bhagavad-gītā* you'll find this verse, that He is situated in everyone's heart, and He is giving intelligence. If you want to enjoy this material world by changing different... Because you have to change your body. You are making your next body in this body. There is no certainty what kind of body you are making, but you are responsible for making your next body, as I have several times discussed that the, at the time of death, the mental condition will help you to have another next body, mental condition.
+
+So if your mental condition is very nice, whatever you think, God has given you chance: you get next immediately. Similarly, if you think of Kṛṣṇa, then your next body is like Kṛṣṇa. Therefore Kṛṣṇa consciousness is so important.
+
+What is the advantage of Kṛṣṇa consciousness? If you acquire the body like Kṛṣṇa,
+
+sac-cid-ānanda vigraha
+
+[*Bs.* 5.1]
+
+**[Kṛṣṇa who is known as Govinda is the Supreme Godhead. He has an eternal blissful spiritual body. He is the origin of all. He has no other origin and He is the prime cause of all causes.]**
+
+Eternal, blissful and full of knowledge, then your botheration of this constant change of body, *bhūtvā bhūtvā pralīyate* *Bg.* 8.19*,* you become relieved from this business.
+
+**[Again and again the day comes, and this host of beings is active; and again the night falls, O Pārtha, and they are helplessly dissolved.]**
+
+Nobody wants this, but because we want to enjoy this material world, so we have to accept it. So this is going on.
+
+Sarvasya cāhaṁ hṛdi sanniviṣṭo
+
+*Bg.* 15.15*.*
+
+**[I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness. By all the Vedas am I to be known; indeed I am the compiler of Vedānta, and I am the knower of the Vedas.]**
+
+> buddher jāgaraṇaṁ svapnaḥ
+> suṣuptir iti vṛttayaḥ
+> tā yenaivānubhūyante
+> so 'dhyakṣaḥ puruṣaḥ paraḥ
+
+[*SB* *7.6.25*]
+
+**[Nothing is unobtainable for devotees who have satisfied the Supreme Personality of Godhead, who is the cause of all causes, the original source of everything. The Lord is the reservoir of unlimited spiritual qualities. For devotees, therefore, who are transcendental to the modes of material nature, what is the use of following the principles of religion, economic development, sense gratification and liberation, which are all automatically obtainable under the influence of the modes of nature? We devotees always glorify the lotus feet of the Lord, and therefore we need not ask for anything in terms of dharma, kāma, artha and mokṣa.]**
+
+Now he's giving another hint, that "We have got our three stages of activities." What are those? Intelligent. We are working intelligently while we are awake. Just like we are not asleep, so whatever we work, oh, we work very intelligently, as far as we have got intelligence. Then when you sleep, our intelligence stops. Then mind works.
+
+So according to the mind, mind is taking me sometimes somewhere. I am thinking that "I am flying." I am thinking, "I am on somebody's place" or "I have become king." Or "I have become poverty." Or "Somebody is... Some tiger is eating me," and so many things, you sleeping, you dreaming. This is another stage, active stage. Then sleeping stage.
+
+And then another stage is which is called deep sleep. Deep sleep. Just like you are under chloroform or LSD. That is a kind of sleep only. It is not..., does not mean that you have become free from this material bondage. You are simply under some mental condition, sleeping condition. *Suṣuptiḥ.* Just like our death. What is this death? Death means a sound sleep for seven months. That's all. A sound sleep for seven months. As soon as I give up this body, I enter into another body in sound sleep. And sound sleep, just like you are sleeping sound, somebody is taking away to another place; you do not know.
+
+I have got experience. I have got..., underwent some, some surgical operation. So I was under chloroform. So I did not know when I was operated, when I was in the operation table, then who brought me again to my bed. And in this way I did not... But when gradually I got my consciousness, I remember still, that I am sleeping and then I am dreaming. Then I come to consciousness, active consciousness. This is the position.
+
+So there are three stages. So when you are very sound sleep, you do not know what is happening, but you are still there; you are not dead. Therefore soul is never dead, even it is unconscious. Just remember this chloroformic condition. You were not dead. Similarly, when you change your body, by nature's way, you wanted certain kind of body, so nature takes you.
+
+Nature takes you to such a father and mother and you are placed into the semina of similar father, and by sexual intercourse the father puts the semina in the mother's body, and the mother develops your body, particular. If you are put into the mother dog, then you develop the body of a dog. And if you are put in the mother god, then you develop the body of a god. This the process.
+
+*Daive,* uh, *daiva-netreṇa.* That carrying out, from this body to another body, that is not in your hand. That is not scientific..., scientist's hand or experimental, I say, philosopher's hand. It is completely under the hand of the material nature. Therefore *Bhagavad-gītā* says that
+
+daivī hy eṣā guṇa-mayī mama māyā duratyayā
+
+*Bg.* 7.14*.*
+
+**[This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it.]**
+
+The material nature is so powerful that your so-called fighting against the material nature is simply waste of time. You cannot. You cannot, by material science, transfer yourself from this planet to another planet or according to your desire. No. That will be managed by laws of nature, material nature.
+
+So you are transferred. You are transferred to a certain body, and you develop a similar body, and then you come out and enjoy. Because you wanted to enjoy certain type of things, so unless you have got certain type of body... Just like the hog: it wanted to eat certain types of nonsense, so therefore it has been given the body so that it can very pleasantly eat stools. You see? Without that hog's body, nobody can eat stool.
+
+So our different kinds of body is being offered by material nature as we want it, and we are enjoying this material world. So Prahlāda Mahārāja says that,
+
+> buddher jāgaraṇaṁ svapnaḥ
+> suṣuptir iti vṛttayaḥ
+> tā yenaivānubhūyante
+> so 'dhyakṣaḥ puruṣaḥ paraḥ
+
+[*SB* *7.6.25*]
+
+**[Nothing is unobtainable for devotees who have satisfied the Supreme Personality of Godhead, who is the cause of all causes, the original source of everything. The Lord is the reservoir of unlimited spiritual qualities. For devotees, therefore, who are transcendental to the modes of material nature, what is the use of following the principles of religion, economic development, sense gratification and liberation, which are all automatically obtainable under the influence of the modes of nature? We devotees always glorify the lotus feet of the Lord, and therefore we need not ask for anything in terms of dharma, kāma, artha and mokṣa.]**
+
+Now, our point is: never mind what kind of body we are getting next, but I am existing. Whether I am intelligently working during the time when I am awake, or whether I am working under dreams, or whether I am being transferred to another body—I am having sound sleep under chloroform—I am the same. I am the same. I am that eternal soul. This is self-realization. So under all circumstances, either this body or that body, either sleeping or working or under sound sleep, any condition, I am there. This is my identification.
+
+> ebhis tri-varṇaiḥ paryastair
+> buddhi-bhedaiḥ kriyodbhavaiḥ
+> svarūpam ātmano budhyed
+> gandhair vāyum ivānvayāt
+
+[*SB* *7.6.26*]
+
+**[Religion, economic development and sense gratification—these are described in the Vedas as tri-varga, or three ways to salvation. Within these three categories are education and self-realization; ritualistic ceremonies performed according to Vedic injunction; logic; the science of law and order; and the various means of earning one's livelihood. These are the external subject matters of study in the Vedas, and therefore I consider them material. However, I consider surrender to the lotus feet of Lord Viṣṇu to be transcendental.]**
+
+So how I am being carried to different kinds of body, although I am this eternal and existing? How? Now, the very example is here, that *gandhair vāyum.* Just like *vāyu.* *Vāyu* means air. Air is passing through a, I mean to say, garden of rose. So air is carrying the flavor. The aroma of rose is being carried by the air. Now the air is passing through some filthy place, obnoxious, very bad smell, so everywhere is catching. So air has neither this flavor nor this bad or good, but as it is passing on, according to the association, it is getting certain time of..., certain type of flavor and aroma.
+
+Similarly, by your association, you are getting different types of body. If you make your association with Kṛṣṇa consciousness, then you get next your Kṛṣṇa body. And if you make your association with non–Kṛṣṇa consciousness, then you'll have this material body, and you'll have to undergo birth and death repeatedly.
+
+Thank you very much. Any question? [break]
+
+**Guest (1):** ...how I become unconscious when I die?
+
+**Prabhupāda:** You are never unconscious.
+
+**Guest (1):** You mean I experience the seven months of being in a sleeping state?
+
+**Prabhupāda:** Yes.
+
+**Guest (1):** And I am aware of it?
+
+**Prabhupāda:** Yes. You are aware, but you were a little deep, deep sleep. Just like I remember my chloroform case. So I remember very slightly, but there is remembrance. The consciousness is still there, but for some time it is curbed down. So if you become Kṛṣṇa conscious once, even if at that time you are so-called unconscious, still, Kṛṣṇa is with you; He is not forgetful. He is not forgetful. Therefore He will give you the proper result.
+
+Don't think that at the..., at the time of your death, because you are so completely out of consciousness, therefore there is frustration. No. There is no frustration. There is no frustration. Because your activities are already recorded by the Supreme Personality of Godhead, who is situated within your heart, so therefore there is no question of frustration. You just practice. While you are in good health, while you are in good body, while you are in good consciousness, just practice this Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare / Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare, and the result is guaranteed.
+
+**Guest (2):** Does any physical change take place in your body when you become Kṛṣṇa conscious?
+
+**Prabhupāda:** Yes. There are so many physical changes. We have seen it practically. Yes. Some of our student, so long he was here, he was so nice. He was so glowing. And as soon as he has left, he has become just like damn rascal. Yes. We are experiencing practically. There are so many instances. Because my face is the index of mind, so similarly, what is going on within you, that will be reflected. That will be reflected.
+
+Caitanya Mahāprabhu was asked that "How can I understand...?" One of His disciple inquired from Caitanya Mahāprabhu, "How can I understand that a man is in Kṛṣṇa consciousness?" He immediately replied, "If you see a man and at once you remember Kṛṣṇa, you must know that he is in Kṛṣṇa consciousness." It is such a nice thing. By seeing the face, by seeing the appearance of a person, if you remember Kṛṣṇa, you should know that "This man is in Kṛṣṇa consciousness." So there is change of physical feature also.
+
+**Guest (2):** Isn't that a mental manifestation, like if you feel that someone's Kṛṣṇa conscious? It's not a physical manifestation, right?
+
+**Prabhupāda:** Yes. Yes, physical..., physical change, physical, I mean to say, body is no impediment, simply because you are aloof from physical body always. That we have explained. So if you take to Kṛṣṇa consciousness, then your physical impediments will not be a check.
+
+Ahaituky apratihatā yayātmā suprasīdati
+
+[*SB* 1.2.6].
+
+**[The supreme occupation [dharma] for all humanity is that by which men can attain to loving devotional service unto the transcendent Lord. Such devotional service must be unmotivated and uninterrupted to completely satisfy the self.]**
+
+You'll feel yourself transcendentally joyful in spite of your physical..., present physical body. You'll... Just like if you eat, you'll know yourself that you are eating, you are feeling strength, you are getting enlightened, similarly, if you take this process of Kṛṣṇa consciousness, in spite of your present physical body, you'll know that you are having something transcendental. That feeling will come with you.
+
+**Guest (3):** Is that a feeling of unity with the universe?
+
+**Prabhupāda:** Eh?
+
+**Guest (3):** A feeling of oneness with the universe?
+
+**Prabhupāda:** Well, when you feel Kṛṣṇa, that is, He is... Kṛṣṇa is the central point. If you know what is milk, then you know what is butter, what is cheese, what is yogurt, everything, because everything is milk product. So if you know Kṛṣṇa, everything is Kṛṣṇa product, so you know everything. That is universal knowledge. That is oneness.
+
+When you know what is milk, then, in spite of so many varieties of preparation of milk, you know it is milk. That is oneness. When you know, understand, Kṛṣṇa, that "Whatever we are seeing in our presence, experiencing, they're all different energies of Kṛṣṇa..." Just like you are sitting here, and if there is fire, you, you see the li..., by the light of the fire, it is illuminated. By the heat of the fire, you are feeling warm. So whatever there is, it is due to fire.
+
+Therefore Kṛṣṇa consciousness means to understand Kṛṣṇa, and as soon as you understand Kṛṣṇa, you understand everything. That is stated in the Vedic language, *yasmin eva vijṣāte sarvam eva vijṣātaṁ bhavati* [*Muṇḍaka Upaniṣad* 1.3]:
+
+**[If one can understand the Supreme Personality of Godhead, the controller of all controllers, one can understand everything else.]**
+
+"One who understands that one Supreme, he understands everything, immediately." There is no need of understanding separately or analyzing things separately. That will defeat.
+
+[alarm clock sounds]
+
+So Kṛṣṇa consciousness means real oneness. But that oneness is not of the oneness of the impersonalist. That oneness is a little different. It is called *śuddhādvaita,* pure oneness. In spite of that being one Kṛṣṇa, He is manifested by His different varieties of energies. Just like the fire. Fire is one, electricity is one, but it is acting in different varieties. It is acting in your refrigerator. It is acting in your heater. It is acting in your machine. It is acting in your television.
+
+Act... Everywhere. But the what is that? That electricity. Similarly, if you understand electricity, as of Kṛṣṇa, then you understand your whole thing one; but there are varieties. Just like in electricity there are so many varieties at work. This is Kṛṣṇa consciousness.
+
+[alarm clock buzzes for second time]
+
+[aside:] You stop this dis... [end]

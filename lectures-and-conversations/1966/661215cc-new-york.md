@@ -1,0 +1,191 @@
+# Śrī Caitanya-caritāmṛta, Madhya-līlā 20.164–173
+
+*Śrī Caitanya-caritāmṛta,  Madhya-līlā 20.164–173 Type: Caitanya-caritamrta Dated: December 15th 1966 Location: New York Audio file: 661215CC-NEW-YORK.mp3*
+
+**Prabhupāda:**
+
+> 'bhaktye' bhagavānera anubhava—pūrṇa-rūpa
+> eka-i vigrahe tāṅra ananta svarūpa
+
+[Cc Madhya 20.164]
+
+**[Only by devotional activity can one understand the transcendental form of the Lord, which is perfect in all respects. Although His form is one, He can expand His form into unlimited numbers by His supreme will.]**
+
+By expansion of Kṛṣṇa, that is being described by Lord Caitanya. They are described in different Vedic literatures, and we are getting the information in one place from Lord Caitanya. So that is the advantage, to be in the disciplic succession. To find out in different information from different scriptures, it is very difficult, but if we become in the line of disciplic succession, all the experience is at once achieved. If you want to fight in the law court and if you want to find out all the law sections from the law book, it is very difficult for you. Better to go to a lawyer who knows the law section and take help, and it is all right. Similarly, there are different kinds of descriptions of the Supreme Lord. The experienced spiritual master gives us the information in one place.
+
+So about the expansion of Lord Kṛṣṇa, in *Brahma-saṁhitā, Īśopaniṣad,* there are various Vedic literatures... They are all, I mean to say, taken together, calculated and presented by Lord Caitanya. He says,
+
+> svayaṁ-rūpa tad-ekātma-rūpa, āveśa—nāma
+> prathamei tina-rūpe rahena bhagavān
+
+[*Cc Madhya 20.165*]
+
+**[The Supreme Personality of Godhead exists in three principal forms—*svayaṁ-rūpa, tad-ekātma-rūpa* and *āveśa-rūpa*.]**
+
+*Svayaṁ-rūpa,* the Supreme Personality of Godhead Himself, He is called *svayaṁ-rūpa,* His personal feature. Then *tad-ekātmā.* So *tad-ekātma-rūpa* means not exactly the same person, but almost the same. *Tad-ekātma.* And *āveśa. Āveśa* means that empowered.
+
+There is always difference between the individual soul and the Supreme Absolute Soul. When the individual soul is specially empowered by the Supreme Soul, that is called *āveśa.* He can act almost like God. We accept, according to this *āveśa, āveśa-avatāra* incarnation, authorized incarnation, we accept, my Guru Mahārāja accepted Lord Jesus Christ and Hazrat Muhammad, this *āveśa* incarnation, almost the same powerful.
+
+> svayaṁ-rūpa tad-ekātma-rūpa, āveśa—nāma
+> prathamei tina-rūpe rahena bhagavān
+
+[*Cc Madhya 20.165*]
+
+**Now, in the first instance the Supreme Personality of Godhead Himself, and *tad-ekātmā,* His next expansion with the same features, and *āveśa,* a powerful incarnation or powerful living entity...**
+
+> 'svayaṁ-rūpa' 'svayaṁ-prakāśa'—dui rūpe sphūrti
+> svayaṁ-rūpe—eka 'kṛṣṇa' vraje gopa-mūrti
+
+[*Cc Madhya 20.166*]
+
+**[The original form of the Lord [*svayaṁ-rūpa*] is exhibited in two forms—*svayaṁ-rūpa* and *svayaṁ-prakāśa*. In His original form as *svayaṁ-rūpa*, Kṛṣṇa is observed as a cowherd boy in Vṛndāvana.]**
+
+*Svayaṁ-rūpa,* the supreme personal feature, and *svayaṁ-prakāśa...* His immediate expansion is called *svayaṁ-prakāśa.*
+
+So in His *svayaṁ-rūpa,* in His personal feature, He always remains at Vṛndāvana, and He is just like a cowherd boy. That is His real feature, Kṛṣṇa. The Kṛṣṇa in the Battlefield of Kurukṣetra, that is not the real feature of Kṛṣṇa. Just like a person, high-court judge, where you will find his real feature? His real feature you will find at his home, not on the bench. In the bench, even his father comes, the high-court judge's father, he will have to address the judge, "My lord." That is the court. The same person at home and same person in the court is different, although the same person.
+
+Similarly, the real Personality of Godhead, Kṛṣṇa, He never goes out of Vṛndāvana. He remains always a cowherd boy. That's all.
+
+> cintāmaṇi-prakara-sadmasu kalpa-vṛkṣa-
+> lakṣāvṛteṣu surabhīr abhipālayantam
+
+[*Bs 5.29*]
+
+**[I worship Govinda, the primeval Lord, the first progenitor who is tending the cows, yielding all desire, in abodes built with spiritual gems, surrounded by millions of purpose trees, always served with great reverence and affection by hundreds of thousands of *lakṣmīs*** or ***gopīs*.]**
+
+*Surabhī* means transcendental cows. He is engaged in that pastime. So *svayaṁ-rūpa eka kṛṣṇa vraje gopa-mūrti. Gopa-mūrti* means cowherd boy.
+
+> 'prābhava-vaibhava'-rūpe dvividha prakāśe
+> eka-vapu bahu rūpa yaiche haila rāse
+
+[*Cc Madhya 20.167*]
+
+**[In His original form, Kṛṣṇa manifests Himself in two features—*prābhava* and *vaibhava*. He expands His one original form into many, as He did during the *rāsa-līlā* dance.]**
+
+Then *prakāśa,* expansion. From expansion, there are two kinds of division: *prābhava* and *vaibhava.* So *prābhava,* what is the *prābhava* expansion? It is given: *eka-vapu bahu rūpa yaiche haila. Prābhava* expansion means the same feature, the same body, but it is distributed in innumerable places. That is called *prābhava* expansion. The example is, *eka-vapu bahu rūpa yaiche haila rāse.* In the *rāsa* dance, Kṛṣṇa performed the *rāsa* dance, not exactly the ball dance, but it is an imitation of that *rāsa* dance. Because you cannot have any idea of anything without its being originally in Kṛṣṇa. *Janmādy asya yataḥ* [*SB* *1.1.1*]*.* That is the version of *Vedānta-sūtra.* Any idea, whatever you... But they are simply perverted reflection. That's all. You cannot get anything, any idea, without its being situated in Kṛṣṇa.
+
+The *rāsa* dance, that is described in the Thirty-second Chapter of the Tenth Canto in *Bhaga..., Śrīmad-Bhāgavatam.* Five chapters, from Twenty-ninth Chapter to Thirty-fourth Chapter, Kṛṣṇa's *rāsa* dance is described there. The *rāsa* dance... The short history of *rāsa* dance is that Kṛṣṇa was sixteen years old, and the girls of the village, Vṛndāvana, and the boys, they were all friends. Naturally in India the girls were early married, some at the age of twelve years, some at the age of thirteen years, some at the age of ten years. The boys remain...
+
+So the girls who were friends of Kṛṣṇa, they always prayed to different demigods, Lord Śiva, that "Kṛṣṇa may be our husband." So that desire was there, but it was not possible to get Kṛṣṇa to become everyone's..., because He was only a boy. But they maintained that idea, although they were married and some of them were mothers. Some of them were unmarried.
+
+So Kṛṣṇa, to fulfill their desire, He blew on His flute on a nice moonlight night, and all the *gopīs,* all those girls, they came. And Kṛṣṇa advised them, "Oh, you are now married. You have come at dead of night to Me. It is not good." In this way He advised so many things. They were very moral instruction. But the *gopīs* denied to go back, and they arranged that dancing. That is called *rāsa* dance.
+
+In the *rāsa* dance there were hundreds of* gopīs,* but Kṛṣṇa expanded Himself to dance with each one of them. That is called *vaibhava-vilāsa.* He expanded.
+
+> 'prābhava-vaibhava'-rūpe dvividha prakāśe
+> eka-vapu bahu rūpa yaiche haila rāse
+
+[*Cc Madhya 20.167*]
+
+The same Kṛṣṇa, I mean to say, expanded Himself in many Kṛṣṇas. That is expansion, *vaibhava* expansion.
+
+Another expansion is,
+
+> mahiṣī-vivāhe haila bahu-vidha mūrti
+> 'prābhava prakāśa'—ei śāstra-parasiddhi
+
+[*Cc Madhya 20.168*]
+
+**[When the Lord married 16, 108 wives at Dvārakā, He expanded Himself into many forms. These expansions and the expansions at the rāsa dance are called *prābhava-prakāśa*, according to the directions of revealed scriptures.]**
+
+So one expansion is *vaibhava* at Vṛndāvana, and another expansion was made by Kṛṣṇa at Dvārakā when He was grown up and He was obliged to marry sixteen thousand wives. Sixteen thousand wives. He had actually... Because the *kṣatriyas,* the administrator, the royal family, royal class, they are allowed to marry more than one wife; not other class. Because they were rich, they were royal, kingly order, they had sufficient means. They could maintain many wives with the same comforts. So they were allowed; not others, not the poor *brāhmaṇas* or others. No.
+
+So Kṛṣṇa's father had sixteen wives, and one of the wives' name was Devakī, and Kṛṣṇa happened to be her son, Devakī. Otherwise, Kṛṣṇa's father, Vasudeva, had sixteen wives. He was also king. So Kṛṣṇa similarly had three or four wives..., eight wives, yes. But He got information, prayer, application, prayer application, from sixteen thousand girls who were kidnapped by a demon, Narakāsura. And they sent application to Kṛṣṇa, "Please save us." So Kṛṣṇa is always responsive to His devotees, so He went to save the girls. He killed that Narakāsura and rescued those all sixteen thousand girls.
+
+Now those sixteen thousand girls prayed to Kṛṣṇa that "We are kidnapped." They were all king's daughters. They were also all princess. "But because we are kidnapped, so nobody will marry us." That is the system. Once a girls goes out of the home, it is very difficult for her to be married in the society. Still that system is going on in India. Unmarried girls, young girls, they cannot go out unless she is married. If she goes out and if she passes some night with other boys, then no more place in the society.
+
+So those girls prayed to Kṛṣṇa that "Because we are kidnapped by this Narakāsura from our father's custody, now nobody will marry. So You become our husband. Otherwise there is no other way." So they appealed, they cried, and Kṛṣṇa accepted: "Yes. I will accept you all My wives." Therefore He brought those sixteen thousand girls.
+
+But what kind of husband? He is God, not a ordinary husband. So He constructed sixteen thousand palaces for all the wives, and equally all decorated houses. They are described that the houses did not require any external light. It was all bedecked with jewels. And in sixteen thousand forms He used to live with each wife. That is God. You see?
+
+So somebody may say..., somebody questioned that "How is that, sixteen thousand? He was very lusty," somebody says, poor fund of knowledge. Or "It is simply story." No. It is... Kṛṣṇa is neither lusty, nor it is story. He is Supreme, full in Himself. He did not require even one wife. Because we require the association of wife or girl because we feel the need, if God is in need, then He is not God. He must be full. But just because His devotees wanted Him her husband, therefore He played the part of a perfect husband. That is the position.
+
+Nobody, no husband, can expand himself in many ways. Suppose one has got many girls friend. Oh, he can go to one girlfriend, not to many. This is. Another point is that *īśvaraḥ sarva-bhūtānāṁ hṛd-deśe arjuna tiṣṭhati* [*Bg 18.61*]:
+
+**[The Supreme Lord is situated in everyone's heart, O Arjuna, and is directing the wanderings of all living entities, who are seated as on a machine, made of the material energy.]**
+
+"The Lord is situated in everyone's heart." So if the girls prayed God that "You become our husband," so if God comes out of the heart and becomes her husband, what is the difficulty for God?
+
+So not sixteen thousand; if He would marry sixteen millions of wife, still it was insufficient, because He is everywhere. *Īśvaraḥ sarva-bhūtānāṁ hṛd-deśe 'rjuna tiṣṭhati.* This is called *vaibhava-vilāsa, vaibhava-vilāsa,* inconceivable. Lord Caitanya is presenting the real, factual features of Kṛṣṇa, what is Kṛṣṇa.
+
+So,
+
+> mahiṣī-vivahe haila bahu-vidha mūrti
+> prābhava vilāsa—ei śāstra-parasiddhi
+
+[*Cc Madhya 20.168*]
+
+Now, the *yogīs*..., some of the *yogīs,* not all the *yogīs.* Those who are highly qualified and advanced *yogīs* always remain in... There is a name of Saubhari Muni, Ṛṣi, and he was in meditation, in trance within the water. Because the trance, there is no breathing, so there is no difficulty to remain even in water, because breathing causes difficulty within water. Within goes... So he was in trance, and he was a great *yogī*. He was meditating within water. But he..., some way or other, he was agitated by sex desire, by seeing the fish having sex intercourse. Just see. The sex power is so strong that even such a *yogī* who could meditate within the water, he was also agitated by sex desire.
+
+So he came out of the water and went to the king and asked him that "You give me your daughter as my wife." Oh, he was a great *ṛṣi,* and he was..., because he was in the water, so his feature was very ugly. So the king became perplexed: "Oh, how my daughter will select such a nasty body [chuckles] as my son-in-law?" So he was *yogī;* he could understand: "Then all right..." He [snaps fingers] became very nice. Because *yogīs,* they can do anything, very nice bodily feature. Then the king tried to avoid him, and the king told him, "Well, sir, my determination is I have got eight daughters. So I can offer my daughters to one who can become eight at least." He wanted to see how much he was *yogī*. And he bifurcated himself at once into eight forms.
+
+So here it is stated,
+
+> saubhary-ādi-prāya sei kāya-vyūha naya
+> kāya-vyūha haile nāradera vismaya nā haya
+
+[*Cc Madhya 20.169*]
+
+**[The *prābhava-prakāśa* expansions of Lord Kṛṣṇa are not like the expansions of the sage Saubhari. Had they been so, Nārada would not have been astonished to see them.]**
+
+Because that sort..., that oneness... Just like in photograph. In photograph you can expand yourself in millions, but that is not actually expansion. So similarly, the *yogī* Saubhari Ṛṣi, he expanded into eight, but that was not actually expansion. That was merely a show, just like photograph. But Kṛṣṇa's expansion, here it is compared, He actually expanded in different houses, in different feature, and differently dealing. That is mentioned in the *Bhāgavata.*
+
+So He is giving evidence from *Śrīmad-Bhāgavatam* as it was experienced by Nārada. Nārada doubted, that "How Kṛṣṇa is married with sixteen thousand wives, and how He is dealing with them?" So when he came, in whichever house he entered, palace, he saw Kṛṣṇa was there. Somewhere He was taking bath, somewhere He was playing with the children, somewhere... Just like if you go in different houses, the householder, you will find differently engaged. So he went each of those sixteen thousand palaces and saw Kṛṣṇa differently engaged.
+
+Then he was surprised, and he recited this *śloka, dvy-aṣṭa-sāhasram.*
+
+> citraṁ bataitad ekena
+> vapuṣā yugapat pṛthak
+> gṛheṣu dvy-aṣṭa-sāhasraṁ
+> striya eka udāvahat
+
+[*Cc Madhya* *20.170*]
+
+**[It is astounding that Lord Śrī Kṛṣṇa, who is one without a second, expanded Himself in sixteen thousand similar forms to marry sixteen thousand queens in their respective homes.]**
+
+*Dvy* means double, and *aṣṭa* means eight, and *sāhasra* means thousand. That means double eight thousand, or sixteen thousand. *Dvy-aṣṭa-sāhasraṁ striya eka udāvahat.* And Kṛṣṇa, one, He married, and He was expanded in sixteen thousand forms and features.
+
+> sei vapu, sei ākṛti pṛthak yadi bhāse
+> bhāvāveśa-bhede sa 'vaibhava-prakāśe'
+
+[*Cc Madhya* *20.171*]
+
+**[If one form or feature is differently manifested according to different emotional features, it is called *vaibhava-prakāśa*.]**
+
+Now, the feature, the body, is the same, but in different house with different devotees, the exchange of feelings is different. That is called *vaibhava-prakāśa.*
+
+So it is a very complicated idea, which of them is *vaibhava,* which of them is *prābhava,* which of them is *vilāsa,* which of them is *tad-ekātmā, āveśa...* There are different divisions of Kṛṣṇa's expansion. But we can note down if we like from original Kṛṣṇa how many, I mean to say, expansions, innumerable expansions Kṛṣṇa has got. But some of them were shown when He was present before us just to prove that He is the Supreme Personality of Godhead. Because in future so many fools will imitate to become Kṛṣṇa as the incarnation of God or God, but Kṛṣṇa has in His life so many uncommon features, nobody can show that.
+
+Just like Govardhana. You have seen that picture. At seven years old, He lifted the hill. And when He was young He married sixteen thousand wives, and sixteen thousand features... So... And when He was in Battle of Kurukṣetra, He showed the universal form. So before claiming oneself as "I am God," they should be prepared to show these uncommon features. Otherwise, no sane man will accept any fool as God.
+
+> ananta prakāśe kṛṣṇera nāhi mūrti-bheda
+> ākāra-varṇa-astra-bhede nāma-vibheda
+
+[*Cc Madhya* *20.172*]
+
+**[When the Lord expands Himself in innumerable forms, there is no difference in the forms, but due to different features, bodily colors and weapons, the names are different.]**
+
+Then He says, "There are unlimited expansions of Kṛṣṇa in the spiritual world, and..." *Nāhi mūrti-bheda.* Just like His expansions in the spiritual world... He is originally two-handed, but in the spiritual planets... There are innumerable spiritual planet, and He is situated in each of them in four hand.
+
+Now this four hand, each hand... There are four symbols: conchshell and wheel and club and a lotus flower. Now these, these four symbols are differently manifested in. Just like four hands. Beginning from right, this is lotus flower, club, and then conchshell, then wheel. And some of them, here begins wheel, here begins club, here... In this way the four has about sixteen divisions, and they are represented in... Not sixteen; twenty-four. Twenty-four, I mean to say, change of the place of the symbols. And according to the change of symbols, you will find different names.
+
+In the cover of the book *Śrīmad-Bhāgavatam,* you have seen. These symbols are there. And there are different names. Some of Them named Hṛṣīkeśa, some of Them as Pradyumna, Aniruddha, Vāsudeva, Saṅkarṣaṇa, Padmanābha... In this way there are different names according to the different change of the symbolic representation.
+
+> anye ca saṁskṛtātmāno
+> vidhinābhihitena te
+> yajanti tvan-mayās tvāṁ vai
+> bahu-mūrtyeka-mūrtikam
+
+[*Cc Madhya* *20.173*]
+
+**[In different Vedic scriptures, there are prescribed rules and regulative principles for worshiping different types of forms. When one is purified by these rules and regulations, he worships You, the Supreme Personality of Godhead. Although manifested in many forms, You are one.]**
+
+So there are different kinds of devotees also. Some devotee worships the Nārāyaṇa feature, some devotee worships Kṛṣṇa feature, some devotee worships Rama feature, some devotees Padmanābha feature, Nṛsiṁha-deva... So there are innumerable devotees and innumerable forms also of Kṛṣṇa. But not these ordinary demigods. No. When Kṛṣṇa says, *ye yathā māṁ prapadyante tāṁs tathaiva bhajāmy aham* [*Bg* 4.11]:
+
+**[All of them—as they surrender unto Me—I reward accordingly. Everyone follows My path in all respects, O son of Pṛthā.]**
+
+"Any devotee who wants to worship Me in My different features, I offer him in that feature..." Just like Hanumān, he was a devotee of Rāma. So there is one verse by Hanumān, that "I know Rāma and Nṛsiṁha and Nārāyaṇa, Kṛṣṇa, is the same. But still, I want to worship Rāma." Just like we, ourself, we know Lord Rāma and Lord Kṛṣṇa the same, but we want to worship Kṛṣṇa.
+
+So different devotees have different inclination to offer his service to different features of God. And therefore He has got innumerable features of the presentation. They are differently named.
+
+Thank you very much. [end]

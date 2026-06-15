@@ -1,0 +1,479 @@
+# Room Conversation
+
+*Type: Conversation Dated: July 20th 1971 Location: New York Audio file: 710720R1-NEW-YORK.mp3*
+
+**Devotee (1):** And here is the... I found the tape, [indistinct] ask you to put it on.
+
+**Prabhupāda:** [indistinct] has come?
+
+**Devotee (1):** Yes, [indistinct] has come. Here is the foot pedals lead and earplug.
+
+**Prabhupāda:** Keep [indistinct].
+
+**Devotee (1): **And... *Jaya.* I think there is... there an outlet here, Śrīla Prabhupāda?
+
+**Devotee (2):** There's an outlet there. There's an outlet right there. Here.
+
+**Devotee (1):** [indistinct] here.
+
+**Prabhupāda:** Join?
+
+**Devotee (1):** Is this desk lamp work all right for you, Śrīla Prabhupāda?
+
+**Prabhupāda:** Yes. There is two or one?
+
+**Devotee (1):** I think there's one, so that means I'll have to get an adaptor.
+
+**Prabhupāda:** Adaptor [indistinct].
+
+**Devotee (1):** [indistinct, moving equipment] This cord is not reaching well. I think perhaps it would be nice to keep it on the floor?
+
+**Devotee (2): **Sure.
+
+**Devotee (1):** [tapping sound] Not working.
+
+**Prabhupāda:** Oh, there is no bulb.
+
+**Devotee (1):** No bulb. Oh.
+
+**Prabhupāda:** Yes, yes. You can sit it here. I wanted that box covered; then I would have kept here.
+
+**Devotee (1):** All right, I'll ask for the cover. Light bulb [indistinct].
+
+**Prabhupāda: **Yes. [devotee enters] Pratyatoṣa. You know what is the *pratyatoṣa*? *Prati*, *pratyatoṣa.*
+
+**Pratyatoṣa:** What is the translation, Śrīla Prabhupāda?
+
+**Prabhupāda:** He can satisfy everyone.
+
+**Pratyatoṣa:** *Haribol.*
+
+**Prabhupāda:** Yes. Only Kṛṣṇa consciousness person satisfy everyone...
+
+[aside] You can [indistinct] this light. Switch on.
+
+**Pratyatoṣa:** Śrīla Prabhupāda?
+
+**Prabhupāda:** Yes?
+
+**Pratyatoṣa:** I'd like to give you this.
+
+**Prabhupāda:** [aside:] Get that.
+
+**Pratyatoṣa:** This here. It's my savings account, and there's a deposit slip in there, eleven hundred and thirty-three dollars and thirty-four cents, and I would like to present it as a gift.
+
+**Prabhupāda: **So you can...
+
+**Śyāmasundara: **Ātreya Ṛṣi can take care of all this.
+
+**Prabhupāda:** What is this?
+
+**Pratyatoṣa:** It's a withdrawal slip. That's just... That's Ātreya Ṛṣi..., and Ātreya Ṛṣi can take care of the details of getting the money out of the account to do whatever you want with it.
+
+**Prabhupāda:** [indistinct] the amount, you can charge my account [indistinct].
+
+**Pratyatoṣa:** You see, originally we were planning on...
+
+**Prabhupāda:** That's all. It is all right.
+
+**Devotee (1):** This is a presentation from Mahāpuruṣa. It's a dollar and *brāhmaṇa's* thread. It's a humble presentation.
+
+**Prabhupāda:** What is that?
+
+**Devotee (1):** You're not going to be working this immediately? I want to get...
+
+**Prabhupāda:** No, no. If you want to join, join there.
+
+**Devotee (1):** I want to do it nicely, so it's not in your way. And also...
+
+**Prabhupāda:** [indistinct]
+
+**Devotee (1):** No, just later on I can do it.
+
+**Prabhupāda:** Why later on? Why not now. [indistinct]
+
+**Pratyatoṣa:** Śrīla Prabhupāda, I just wanted to ask you about... I'd like to get you a tape recorder. I wanted to get a real, really nice one. And I was thinking of getting one that has four channels. You could record four channels simultaneously or you could record, if you want to, one channel at a time.
+
+**Prabhupāda:** Stanberg? Stanberg?
+
+**Pratyatoṣa:** Well, no, it's a Sony, it's a Sony Professional.
+
+**Devotee (4):** Eight track. It has eight tracks.
+
+**Pratyatoṣa:** It'll work anywhere in the world.
+
+**Prabhupāda:** Oh!
+
+**Pratyatoṣa:** Because the speed is electronically controlled, so you don't have to worry about the current, how many cycles per second. It'll work at different voltages, so it'll work anywhere in the world. And you could record, like, your voice on one channel and *karatālas* on the other channel and *mṛdaṅga* on another channel, and you can mix them together at the end.
+
+**Prabhupāda:** [indistinct aside] It is very big?
+
+**Pratyatoṣa:** Well, I think this one probably might be kind of big.
+
+**Prabhupāda:** Can you carry it?
+
+**Pratyatoṣa:** Oh, sure. Sonys are actually pretty compact. You can tell by the size of the reels, you know. But, see, there's four meters, so you could record four tracks, four channels simultaneously.
+
+**Prabhupāda:** And it is stereo?
+
+**Pratyatoṣa:** Stereo and quadraphonic.
+
+**Devotee (1):** That means eight..., just like yours, four-track, Śrīla Prabhupāda. This is eight-track.
+
+**Pratyatoṣa:** No, this isn't eight-track.
+
+**Devotee (1):** No?
+
+**Pratyatoṣa:** This is eight channel. You can only record in one direction when you use four channels. But you can also use it as a standard stereo and record in both directions.
+
+**Prabhupāda:** First of all this way, then this way.
+
+**Pratyatoṣa:** Yeah, you can do that, or else you could use all four tracks at the same time and just record in one direction if you want all four channels.
+
+**Prabhupāda:** There are four microphones?
+
+**Pratyatoṣa:** Yeah, you can have four microphones at the same time. To make good stereo recordings of music, it's nice to have four channels, because then you can mix them together afterwards and you can make it perfect.
+
+**Prabhupāda:** It is Sony?
+
+**Pratyatoṣa:** See, these are really Kṛṣṇa's mercy. They have microphones. These are microphones. They're made in Sweden. They're really about the best line you can get, and they're very inexpensive.
+
+**Prabhupāda:** Why the sound is not...
+
+**Pratyatoṣa:** It's on very low now. This is very low.
+
+**Prabhupāda:** No, it comes one, two.
+
+**Pratyatoṣa:** It's on zero.
+
+**Prabhupāda:** It is zero. Then one it comes. [sound of Prabhupāda's voice on tape recorder]
+
+**Devotee: **Coming very low.
+
+**Pratyatoṣa:** That's all right.
+
+**Prabhupāda:** That's all right.
+
+**Pratyatoṣa:** It goes up to ten.
+
+**Prabhupāda:** I know that.
+
+**Pratyatoṣa:** So this is what I planned on doing with the money, but then Bhavānanda and the GBC wondered about whether maybe the Book Fund or the around-the-world trip would have higher priority. So that's why I just wanted to donate the money, so maybe after I'm *gṛhastha* I could get this for you.
+
+**Prabhupāda:** This money?
+
+**Devotee (4):** Yeah, he wanted to donate this money for a tape recorder.
+
+**Pratyatoṣa:** Yeah, but...
+
+**Devotee (4):** The GBC suggested that he give it just to your Book Fund or else to pay for the around-the-world tour, to help pay for it.
+
+**Pratyatoṣa:** They thought that might have higher priority than... It's a project, I wanted to set up a library of all of your tapes and make them available to everybody and preserve them, and have them all indexed.
+
+**Prabhupāda:** Yes, I wanted a tape recorder.
+
+**Pratyatoṣa:** Do you think this would fit your needs, Śrīla Prabhupāda?
+
+**Prabhupāda:** Yes, I wanted. I wanted to purchase one Stanberg.
+
+**Pratyatoṣa:** Tandberg?
+
+**Prabhupāda:** Yes.
+
+**Pratyatoṣa:** Well, we have a Tandberg here that you can use. I had it in Detroit, remember? It's a very, very good machine, and I'm going to leave it here in New York because I have to go to Minneapolis for some training because of my job.
+
+I have a job as a computer programmer, so I have to go there for a while, but I'll be back in New York. But I'm going to show Gadādhara and Candanācārya how to use it so they can use it, and then you can use it during the daytime. It's a really good machine.
+
+**Prabhupāda:** So where is that machine?
+
+**Pratyatoṣa:** Pardon?
+
+**Prabhupāda:** Where is that machine?
+
+**Pratyatoṣa:** That's a Tandberg.
+
+**Devotee (4):** Now it's in the temple. I use it when Your Divine Grace is speaking.
+
+**Prabhupāda:** So where is that machine?
+
+**Pratyatoṣa:** It's in the temple room right now. It's connected to the P.A. system and a microphone.
+
+**Prabhupāda:** So you bring it and we will see. Hmm?
+
+**Pratyatoṣa:** Okay. I have to leave tonight, but I'll instruct Gadādhara and Candanācārya how to use it while I'm gone.
+
+**Prabhupāda:** Tandberg machine is nice.
+
+**Pratyatoṣa:** Yeah, it's a good machine. It's made in Norway.
+
+**Prabhupāda:** And that is not very costly also.
+
+**Pratyatoṣa:** No, I ordered it directly from Norway, saved quite a bit on it.
+
+**Prabhupāda:** What did you pay for it?
+
+**Pratyatoṣa:** Two hundred and twenty-five, and the list price at the time was five hundred and fifty. I got this before I came into the movement.
+
+**Prabhupāda:** So it is five hundred and fifty, the same machine?
+
+**Pratyatoṣa:** Yeah, that's what they charged in the United States, five hundred fifty, and I ordered it for two hundred and twenty-five.
+
+**Prabhupāda:** [indistinct]
+
+**Pratyatoṣa:** In Norway I got it, and then there's duty.
+
+**Prabhupāda:** The same machine?
+
+**Pratyatoṣa:** Yes, exactly.
+
+**Prabhupāda:** Then bring it; it is working. Then we can utilize this one for other things.
+
+**Pratyatoṣa:** Okay, fine. Okay, but maybe someday then I can get this, do you think?
+
+**Prabhupāda:** Hmm?
+
+**Pratyatoṣa:** Do you think someday we could use that machine?
+
+**Prabhupāda:** I do not know, but I have got experience Tandberg is very nice.
+
+**Pratyatoṣa:** Yeah, they're very reliable. They're reliable machines. And also, my job is computer programming, and I think that computers could be used.
+
+**Prabhupāda:** Computer?
+
+**Pratyatoṣa:** Yeah, they could be used in many, many ways in the Society. Like one... I think the most important use it could be put to is for helping in transcribing and editing and composing. A computer can do composing automatically, and so...
+
+**Prabhupāda:** Automatically?
+
+**Pratyatoṣa:** Sure. It's all automatic, because it's actually just a mechanical process, just getting the lines to come out even at the end and everything.
+
+**Prabhupāda:** You can learn that?
+
+**Devotee (4):** I already know computer programming, Prabhupāda.
+
+**Prabhupāda:** Oh.
+
+**Devotee (4):** I learned it in high school, and I was working as a programmer.
+
+**Prabhupāda:** Then why not take a computer?
+
+**Pratyatoṣa:** Sure. And we can get a terminal. You can buy a computer terminal for about $600.
+
+**Devotee (4):** Oh, really?
+
+**Pratyatoṣa:** And for $185 a month, we could have forty hours a week of computer time, eight hours a day. And they have courses. This company gives computerized courses that'll teach children how to read and how to do arithmetic through the terminal, you know. And also, it has a fantastic editor. If you type in the text, and any mistakes you make, you can just type in a few instructions with a computer and it'll change them.
+
+Then after you get all the text the way you want it, it's stored on a magnetic disk at the computer. And then when you get it perfect—you can change it a hundred times if you want—but when you get it perfect, then you just have the computer automatically type out the whole thing.
+
+**Devotee (4): **Type it out and paste it up... finished.
+
+**Prabhupāda:** You know how to do that?
+
+**Devotee (4):** Yes, Prabhupāda. I got A's in that.
+
+**Pratyatoṣa: **These terminals have paper tape punches. You can punch the paper tape and then feed the paper tape into a machine called a photon machine, and you get out a perfectly composed page with... You can have any type size you want, you can have any type of, what do you call it, the face, you know, the typeface, and it'll be perfect for publishing. It'll come right out of that. The whole process is automatic.
+
+**Devotee (4):** Those tapes can be kept, stored, all the tapes.
+
+**Pratyatoṣa:** Sure, they can be kept stored. And then... Oh, also, you get free storage with this for 300,000 characters. That's about 100 pages at least.
+
+**Devotee (4):** This is a wonderful idea, Śrīla Prabhupāda. I don't know why no one thought of this before.
+
+**Pratyatoṣa:** I'll leave this here, okay? I'll leave this here.
+
+**Prabhupāda:** All right, you read it.
+
+**Pratyatoṣa:** And this tells... This is the basis of the whole language. They have Fortran...
+
+**Devotee (4):** Honeywell machine?
+
+**Pratyatoṣa:** It's Honeywell, yeah. And see, this is educational.
+
+**Devotee (4):** What language...? Could we use Fortran to program this language?
+
+**Pratyatoṣa:** Yeah, there's four languages. There's the...
+
+**Devotee (4):** But what is best for programming Śrīla Prabhupāda's books? Fortran?
+
+**Pratyatoṣa:** No, there's an editor, it's called Edit, you see, and it's designed for editing text.
+
+**Devotee (4):** Similar to Fortran?
+
+**Pratyatoṣa:** Well, no, it's just a special language by itself, but it's real easy to learn.
+
+**Devotee (4):** Easy language?
+
+**Pratyatoṣa:** It's very easy.
+
+**Devotee (4):** See, I was mostly doing Fortran. I'm a little out of practice now.
+
+**Pratyatoṣa:** You could learn this like nothing. This is Edit. But you only have to type in the text once, just a rough, and that's it. No retyping is necessary from start to finish.
+
+**Devotee (4):** Śrīla Prabhupāda, this is wonderful. Get the books composed in no time, so fast, and pasted up.
+
+**Pratyatoṣa:** Sure. And the composers are available. VIP system.
+
+**Devotee (4):** Śrīla Prabhupāda, not only that, but no paste-up is required, because the pages will come out perfect, and it can just be photographed.
+
+**Pratyatoṣa:** Yeah, right. The layout is almost eliminated. Composing is completely eliminated, and the editing is so easy and so fast that it'll be... The thing is, you'll be able to get a final copy that's really perfect, because it doesn't matter how many changes you make, it's so easy.
+
+Even if there's... You have one word you want to change, and it's just a minor change. Normally you might not want to do it because that means retyping the whole thing. But with this, it's no trouble, because the computer just types it out in no time.
+
+**Devotee (4):** I used to think, Śrīla Prabhupāda, "I wonder when the day is going to come when we're going to be able to use computers in Kṛṣṇa consciousness?" and now maybe it's come. Composing can be eliminated, done automatically, and the layout can be done automatically, because the pages will come out perfect. When they're typed out, they will come out perfect. Therefore, there's no need of layout. You simply photograph those pages.
+
+**Pratyatoṣa:** With a photon machine, you can do a whole book. You could have a thousand-page book done in one night. It would type the whole thing in one night. That's all you'd need is a [indistinct].
+
+**Devotee (4):** Those machines are fantastic.
+
+**Pratyatoṣa:** They're so fast.
+
+**Devotee (4):** They are fantastic.
+
+**Pratyatoṣa:** They turn out a page in a couple of seconds.
+
+**Devotee (4):** Electric brain.
+
+**Pratyatoṣa:** Yeah.
+
+**Devotee (4):** Big electric.
+
+**Pratyatoṣa:** And they're always perfect. There's no variation in the characters or anything like this.
+
+**Prabhupāda:** But as soon as an electronic is a little sick, the whole thing stop.
+
+**Devotee (4):** No, they're reliable machines. These are just...
+
+**Prabhupāda:** That's all right.
+
+**Devotee (4):** Yeah, that possibility is there.
+
+**Prabhupāda:** The brain goes bad, then it is very difficult to bring it into...
+
+**Pratyatoṣa:** Well, they have maintenance men on the spot all the time. It's very reliable.
+
+**Prabhupāda:** But I am moving from one place to another.
+
+**Pratyatoṣa:** Well, they have... This Honeywell system is being combined into a nationwide network so that these computers are available in every major city in the United States right now, and they're going to be eventually all tied together. We can actually communicate with other temples through the system.
+
+**Devotee (4):** Why is Honeywell better than IBM for this?
+
+**Pratyatoṣa:** Well, because they just concentrated on this more.
+
+**Devotee (4):** On this editing program?
+
+**Pratyatoṣa:** Oh, yeah, for the editing..., for our purposes, this is the best time-sharing system. I've used almost every one. It's unbelievable. It's so fast, it's so reliable. I used that for months and months, and it never... There wasn't..., maybe... I can't even remember a time when the thing wasn't working. It was always working. So reliable.
+
+**Prabhupāda:** That they charge $180 per month?
+
+**Pratyatoṣa:** $185 per month for 40 hours a week.
+
+**Devotee (4):** That means eight hours a day, five hours...
+
+**Pratyatoṣa:** Yeah, that's just a little over a dollar an hour for the computer time, and it's a really... Normally it would be about twelve hundred or thirteen hundred dollars a month, but because... See, there's another thing, you've got to...
+
+The time is only between 6:00 p.m. and 2:00 a.m., that's why it's less expensive. But that's a better time, actually, because it's after hours, and you get a faster response on the computer because there's hardly anybody on it. It's really good. And normally it's...
+
+**Prabhupāda:** What is the whole price?
+
+**Pratyatoṣa:** Well, the terminal would cost $700 for one that handled upper and lower case. You can get 132 characters across.
+
+**Prabhupāda:** $700 altogether?
+
+**Pratyatoṣa:** Yeah, $700...
+
+**Devotee (4):** Is that a rental?
+
+**Pratyatoṣa:** No, that's the purchase price. Rental would be about $85 a month.
+
+**Devotee (4):** In addition to the $185?
+
+**Pratyatoṣa:** In addition to the $185, yes.
+
+**Devotee (4):** Or else to purchase the machine for $700.
+
+**Pratyatoṣa:** But then if you purchase it, you either have to...
+
+**Prabhupāda:** If somebody pays $700 at a time, then?
+
+**Pratyatoṣa:** Well, that's for purchasing it. Then you have to maintain it yourself, or else you have to hire somebody else to maintain it for you. But you could just lease it for about $85 a month, and the maintenance and paper and paper tape and supplies...
+
+**Prabhupāda:** You have to purchase at $700, then you have to pay maintenance service.
+
+**Pratyatoṣa:** Yeah, unless you can maintain yourself. I don't think they're too difficult to maintain. Teletype terminals are very reliable.
+
+**Prabhupāda:** No, no, that's all right. Maintenance is different. Either you maintain yourself or pay that.
+
+**Pratyatoṣa:** Correct.
+
+**Devotee (4):** The machine is like a typewriter. It's hooked up with a computer... By telephone cables?
+
+**Pratyatoṣa:** Oh, yeah. You just dial over an ordinary telephone. You can use more than one time-sharing service on the same terminal just by dialing different numbers. In Washington, D.C., I was using four different computers through the same terminal, just by dialing different numbers.
+
+And they can be thousands of miles away; it doesn't matter. In Minneapolis, I'm using a computer that's located in..., near Baltimore, near Washington, D.C. And it's just like... It doesn't matter how far away it is.
+
+**Prabhupāda:** You receive the phone call?
+
+**Pratyatoṣa:** Yeah, just by a phone call. Just by calling a local number, too, because they have lines already set up.
+
+**Devotee (4):** Like you were talking with that big [indistinct].
+
+**Pratyatoṣa:** I was communicating with a *karmī* friend of mine in Baltimore through the computer system. He was using the same computer. So that's another thing I could do, communications. And we could do accounting with...
+
+**Prabhupāda:** We haven't got much communication with outside.
+
+**Pratyatoṣa:** We could communicate with all the temples through the... If another temple had a terminal on the same computer system, they could communicate, they could share common...
+
+**Prabhupāda:** [referring to tape recorders] What is the difference between this machine and that machine?
+
+**Pratyatoṣa:** This one... This is only two channels, and this one's four channels. This one, the one that's shown, can take the large-size professional reels, ten-and-a-half inch. You can also get one of these with the ten-and-a-half inch, which is really an advantage to be able to use that, that size.
+
+Because you can purchase those in cases, professional lots, and then you can put them on smaller reels if you wanted to—just cut the tape for however size the recording is and put it on a smaller reel.
+
+**Prabhupāda:** So first of all you bring this Tandberg, then I shall see.
+
+**Pratyatoṣa:** Okay. I'll just leave all this here. [aside:] Take this. This is with the microphone. These are Kona microphones. They're unbelievable, they're so good. You want to keep that?
+
+**Devotee (4):** I just want to see... I want to see the computer booklet.
+
+**Pratyatoṣa:** Okay.
+
+**Devotee (4):** [indistinct]
+
+**Pratyatoṣa:** Okay.
+
+**Devotee (4):** Śrīla Prabhupāda, actually...
+
+**Prabhupāda:** What is the price of this machine?
+
+**Pratyatoṣa:** I'm not too sure, but it'd probably be about two hundred and fifty, something like that. The numbers usually sort of correspond to the price more or less.
+
+**Prabhupāda:** I found Tandberg better than Sony.
+
+**Pratyatoṣa:** Well the very expensive Sonys are good. The less expensive Sonys aren't very good, but the motors aren't powerful enough. But like that real expensive Sony has three motors, and it's got..., it's all electronically controlled with solenoids, so that there's very few moving parts, and I think it would be a really good machine.
+
+**Prabhupāda: **All right [indistinct]
+
+**Devotee (4):** What is this?
+
+**Pratyatoṣa:** That's different from this. That's if you aren't getting this educational package, then you've got to pay all these rates. Some of these rates apply anyway.
+
+**Devotee (4):** All this rate business, you know about it. I just want to look at the program. What is this?
+
+**Pratyatoṣa:** That's a Dolby system for recording with less noise. That's for tape recorders.
+
+**Devotee (4):** Why don't you take that? I'll just keep this [indistinct]. What's this?
+
+**Pratyatoṣa:** That's for the computer system. That's courses that are available over the computer.
+
+**Devotee (4):** Over the computer?
+
+**Pratyatoṣa:** Yeah, the computer teaches, you see.
+
+**Devotee (4):** Oh, yeah. Just like these computers, you can learn the language.
+
+**Pratyatoṣa:** This is like a mechanical tutor.
+
+**Devotee (4):** But you can even learn this Edit language over the machine, right?
+
+**Prabhupāda:** Machine teach language?
+
+**Pratyatoṣa:** There's a language called Teach, so we can write our own programs for teaching. We could write programs to teach *Bhagavad-gītā.* We could have all the scriptures on the computer programs. [end]

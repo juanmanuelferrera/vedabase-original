@@ -1,0 +1,29 @@
+# Lecture [partially recorded]
+
+*Type: Lectures and Addresses Dated: February 10th 1969 Location: Los Angeles Audio file: 690210LE-LOS-ANGELES.mp3*
+
+**Prabhupāda:** After each and every verse we chant, *govindam ādi-puruṣaṁ tam ahaṁ bhajāmi** ****.* Similarly, we repeat "Kṛṣṇa"—Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. Why we repeat? The more we repeat means we learn to love. That is required.
+
+Anything which you do not love, you cannot repeat. It will be disgusting. Anything, any other word you take, if you simply repeat, you'll feel disgusted. Sometimes those who are not in the Kṛṣṇa conscious life, they also feel this repetition as disgusting, hackneyed, because they have not developed love.
+
+Rūpa Gosvāmī says that "What shall I chant with one tongue, and what shall I hear with two ears? If millions of tongue I would have possessed, then I could chant little." And they're tasting... Because they have got love for Kṛṣṇa, they are tasting the nectarean of chanting. They cannot give up. In the material world also there are many slogans. We repeat because we love.
+
+So real thing is to develop love for Kṛṣṇa. That is the Vṛndāvana standard. In Vṛndāvana, Nanda Mahārāja and Yaśodā-mayī, Rādhārāṇī, *gopīs,* the cowherdsmen, boys, cows, calves, trees, they do not know that Kṛṣṇa is God. You have read in *Kṛṣṇa* book, sometimes when Kṛṣṇa does something wonderful, they take Him as a wonderful child, boy, that's all, or child. They do not know that Kṛṣṇa is God.
+
+But they love Kṛṣṇa more than anything. They do not know except Kṛṣṇa. That is wanted. Not very much philosophy. Whether Kṛṣṇa is God or not, whether the symptoms of God are there or not, the Vṛndāvana-*vāsī,* inhabitants, they do not care for it. Kṛṣṇa may be God or a man, but they love Him. That's all. That is wanted.
+
+We have to increase our love for Kṛṣṇa; therefore this worship, temple worship. If you always be engaged in Kṛṣṇa's service, naturally you develop love for Kṛṣṇa. That is wanted. *Premā pumartho mahān.* *premā pumartho mahān* [*Caitanya-manjusa*]
+
+**[“The most important thing is how to love God.”]**
+
+Caitanya Mahāprabhu says that *prema,* love for Kṛṣṇa, love for God, that is the highest achievement in human life. *Premā pumartho mahān.* It is not religiosity. Religiosity is different thing. Everyone goes to church or temple with some material purpose generally, to get... Just like church they go: "God, give us our daily bread." That is material purpose. Not only church, everywhere, that is the system. *Ārto arthārthī.*
+
+[One who is in want of money.]
+
+Of course, that is good. Four classes of men whose background is pious life, they go to God, church or temple, when they're distressed. Others, those whose background is not piety, simply mischief, they cannot go. Therefore even one goes to God for praying something material, they're better than those who does not go to God. Just like in Communist country, they do not believe in God: "Why we shall go to God? We shall create things. We shall create bread."
+
+In the Communist country the propaganda was that these Communists would go to villages, ask the villagers to come to the church and pray to God, "Give us our daily bread," and they would ask, "Whether you have got bread?" Of course, in the church where is the bread? They will say, "No, we haven't got bread." "All right, you ask us." And they ask the Communist leader, "Give us our daily bread," and they give sumptuously. "Why should you go to church?"
+
+They preached godlessness in this way, that "You are not getting bread from the church; you are getting bread from us. Why not worship Lenin and his followers? He gave sufficient bread." In this way they tried to make people godless, that "Don't go to church." Still their propaganda.
+
+But our relationship with God is so permanent that artificially we may try to banish God some way or other—it cannot be. To become atheist, not to believe in God, they're simply artificial. These godless persons, when they're actually in danger, they think of God. I have seen it. Automatically they think of God. So this godlessness is not our natural life. To love God, that is our natural life. [end]

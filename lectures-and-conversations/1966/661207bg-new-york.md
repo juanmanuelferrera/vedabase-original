@@ -1,0 +1,150 @@
+# Bhagavad-gītā 9.20–22
+
+*Type: Bhagavad-gita Dated: December 7th 1966 Location: New York Audio file: 661207BG-NEW-YORK.mp3*
+
+**Prabhupāda:**
+
+> trai-vidyā māṁ soma-pāḥ pūta-pāpā
+> yajñair iṣṭvā svargatiṁ prārthayante
+> te puṇyam āsādya surendra-lokam
+> aśnanti divyān divi deva-bhogān
+
+[*Bg 9.20*]
+
+**[Those who study the Vedas and drink the soma juice, seeking the heavenly planets, worship Me indirectly. They take birth on the planet of Indra, where they enjoy godly delights.]**
+
+Now, Lord Kṛṣṇa has described different types of transcendentalist. The first He has described about the *mahātmā—mahātmā,* the great soul. And their symptoms have been described, that* satataṁ kīrtayanto mām* [*Bg* 9.14]*.*
+
+**[Always chanting My glories, endeavoring with great determination, bowing down before Me, these great souls perpetually worship Me with devotion.]**
+
+They are engaged twenty-four hours, cent percent, in the transcendental loving service of the Lord, *yatantaś ca dṛḍha-vratāḥ,* and trying to serve the Lord very carefully, with vow. So they are first-class transcendentalist, or the great soul.
+
+Then? Second class? Those who are trying to understand the Supreme, the Absolute Truth, by identify himself with the Supreme, that "I am, I am the Supreme." This I have already explained. This "I am Supreme" means "I am part and parcel of the Supreme, of the same quality." So these people, these devotees—not exactly devotees; transcendentalist—they, doing that, when they are little more advanced, and if by chance they get association of another pure devotee, then he can understand that "I am not Supreme, but I am the part and parcel of the Supreme." Then he makes further advance, and the ultimate goal, as I have several times explained before you, ultimate goal is to know Kṛṣṇa, or the Supreme Lord. That is the ultimate goal.
+
+So this is direct method. The Kṛṣṇa consciousness, which we are trying to popularize, this is direct method and just suitable for this age. As Lord Caitanya introduced, *kalau nāsty eva nāsty eva nāsty eva gatir anyathā.* In this age of Kali, the age of quarrel and hypocrisy—this is called Kali—in this age this is the simplest method and direct, direct action. Just like in military art there is a word "direct action," so this is the spiritual direct action, this Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare / Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.
+
+But because it is very simple, sometimes those who think themselves as very intelligent and advanced, they think, "Oh, what they are doing, 'Hare Kṛṣṇa, Hare Kṛṣṇa'? We are meditating, we are philosophizing, and we are doing penance and austerities and following the rituals, so many things." So practically they are, according to *Bhagavad-gītā,* they are not directly in touch with the Supreme Lord, but they have taken different paths as *ahaṅgrahopāsanam,* thinking himself as one with the Lord, pantheism, thinking everything the symbol of God, and thinking the universal form as the Supreme, in different ways.
+
+So anyway, all of them, the first-class* mahātmā* and all these people, they are transcendentalist. They are trying to realize the Absolute Truth. May be in a different grades, but they are trying. And besides that, besides them, there is another class who are..., more or less can be called not transcendentalist but materialist. And what they...? That is described here:
+
+> trai-vidyā māṁ soma-pāḥ pūta-pāpā
+> yajñair iṣṭvā svargatiṁ prārthayante
+> te puṇyam āsādya surendra-lokam
+> aśnanti divyān divi deva-bhogān
+
+[*Bg 9.20*]
+
+**[Those who study the Vedas and drink the soma juice, seeking the heavenly planets, worship Me indirectly. They take birth on the planet of Indra, where they enjoy godly delights.]**
+
+*Deva-bhogān* means this is with reference to the standard of living. As in this world we have got different standard of living, and it may be that your standard of living in America or Europe may be, from material point of view, very high, and standard of living in other country may be lower... Different standard of living there are. But in other planets also, there are different standard of living. They are called *deva-bhogān.* That standard of living we cannot imagine here—in the moon planet and other, *surendra-lokam. Surendra-lokam* means where the demigods live. They are also human being, but they are highly intellectual, and their duration of life is very long, and their standard of living is very high, most costly. We cannot imagine even.
+
+So they are *soma-pāḥ. Soma-pāḥ* is a kind of beverage, just like in this material world we have got different kinds of liquors. It is not intoxicating, but there is mention. Here in the *Bhagavad-gītā* is also mentioned,* soma-pāḥ, soma-rasa.* And in *Śrīmad-Bhāgavatam* we get information that in the moon planet they also drink this* soma-rasa.* But the *soma-rasa* is not an intoxicant. It is a different thing. Here it is said,* soma-pāḥ pūta-pāpāḥ.* One who will drink the *soma-rasa,* he will be freed from sinful reaction. Just the opposite.
+
+Here, just like when we become intoxicated, we become addicted to so many sinful actions, it is *soma-pāḥ.* When we drink *soma-rasa,* it is just the opposite. We become freed from all sinful reaction. So that *soma-pāḥ* is recommended here also. So either they try to go to other planets, or they manufacture here* soma-pāḥ, soma-rasa.* Of course, at the present moment we have no such facility. But from *Bhagavad-gītā* it is understood that there was a method.
+
+Anyway, the process is mentioned, described, in the Vedic literature,* trai-vidyā. Trai-vidyā* means *Vedas.* There are three kinds of knowledge in the* Vedas, trai-vidyā: karma-kāṇḍa, upāsanā-kāṇḍa* and* jñāna-kāṇḍa. Karma-kāṇḍa* means this how we can adjust material happiness or material living very nice. That is called* karma-kāṇḍa.* And then* upāsanā-kāṇḍa. Upāsanā-kāṇḍa* means how to worship the Supreme Lord or the demigod or different types of... There are demigods. The demigods are living beings like us, but they are very powerful. So that *upāsanā-kāṇḍa,* worship of different demigods, is also mentioned there in the *Vedas.* That is called *upāsanā-kāṇḍa.* And *jñāna-kāṇḍa. Jñāna-kāṇḍa* means knowledge, philosophical.
+
+So therefore *Veda* is known as *trai-vidyā, trayī. Trayī* means three kinds of knowledge there are. So the persons who are more or less materialist—they are not transcendentalist—they take shelter of this Vedic *trai-vidyā,* three kinds of knowledge. And to prepare themself to be transferred in other planets they become freed from all sinful reaction.
+
+As I have several times mentioned that your standard of living in America is very nice. So other, people from other parts, they also try to come here and settle here. But you have got restriction, visa department. There is restriction department. You do not allow. So similarly, if you want to go to the moon planet, then you have to qualify yourself. You have to obtain the visa. That is mentioned in the *Bhagavad-gītā:*
+
+> yānti deva-vratā devān
+> pitṝn yānti pitṛ-vratāḥ
+> bhūtejyā yānti bhūtāni
+> mad-yājino 'pi yānti mām
+
+[*Bg* *9.25*]
+
+**[Those who worship the demigods will take birth among the demigods; those who worship ghosts and spirits will take birth among such beings; those who worship ancestors go to the ancestors; and those who worship Me will live with Me.]**
+
+So any planet, wherever you want to go... Of course, you may try to go there by sputnik, but we have no such mention in the *śāstras* that you can manufacture some machine and you can go there. You have to qualify yourself. You have to qualify yourself. Just like even there is machine, jet plane, still, you require the visa to enter into America or any other country, similarly, even if you can manufacture some machine, although it is not possible, but you have to qualify yourself to be a resident in the better planets.
+
+So those who are after going to the better planets—sun planet, moon planet, and heavenly planet... There are many. Svargaloka, Janaloka, Tapoloka, Maharloka. They are in Sanskrit names. So here it is mentioned,* trai-vidyā soma-pāḥ pūta-pāpāḥ.* They, after preparing themselves to be transferred in other planets, they become free from all sinful reaction.
+
+The higher planet, as you go, you have to become free from sinful action. The lower-grade life and higher-grade life in this material world means those who are proportionately less sinful, they are promoted in higher planets. You cannot be free from sinful reaction in this material world. There will be some portion, some percentage. So the higher-grade life and lower-grade life means those who are proportionately greater sinful, they have got lower-grade life, and those who have got greater pious life, they get higher-grade life in higher planets, in Brahmaloka, Janaloka, Tapoloka.
+
+Tapoloka means those who have performed here severe penances, and they are transferred there in Tapoloka. In Tapoloka, when there is destruction, annihilation of this material world, in the Tapoloka there is no destruction. They get information, "Now annihilation has begun." There is a great fire, and they still feel that heat, and at that time they transfer themselves to the spiritual sky. That mention we have got. So *yajñair iṣṭvā svargatiṁ prārthayante.*
+
+So these materialist... Anyone, even if you go to the higher planets, still, you are materialist. Even you go to the highest planet, Brahmaloka, where the duration of life you cannot calculate, still there is death. The material pangs— birth, death, old age and disease—there is. So in the* Bhagavad-gītā* we get all this information, where other planets are, what is the condition. Simply we have to know it from this book.
+
+Similarly, we have got information of the supreme planet Kṛṣṇaloka, or the planet of Kṛṣṇa, where you can go. The Lord says, *yad gatvā na nivartante tad dhāma paramaṁ mama* [*Bg* *15.6*]:
+
+**[That abode of Mine is not illumined by the sun or moon, nor by electricity. One who reaches it never returns to this material world.]**
+
+"The planet where going you have no more to come back." Now, these planets, these material planets, as it is mentioned here, *surendra-loka... Surendra* means highly qualified demigods, their planets. *Surendra-lokam aśnanti. Aśnanti* means they enjoy. And what do they enjoy? *Divyān divi deva-bhogān.* They enjoy godly comforts,* deva-bhogān.* Now, Lord Kṛṣṇa says, then what is after? The after result is, is said here,
+
+> te taṁ bhuktvā svarga-lokaṁ viśālaṁ
+> kṣīṇe puṇye martya-lokaṁ viśanti
+> evaṁ trayī-dharmam anuprapannā
+> gatāgataṁ kāma-kāmā labhante
+
+[*Bg* *9.21*]
+
+**[When they have thus enjoyed heavenly sense pleasure, they return to this mortal planet again. Thus, through the Vedic principles, they achieve only flickering happiness.]**
+
+So those who are so materially attached, their business is that they qualify themselves to be promoted in higher planets, undoubtedly. And there... *Te taṁ bhuktvā svarga-lokaṁ viśālam:* and they enjoy life for a very, very long duration of life and godly facilities. That's all right. But *kṣīṇe puṇye martya-lokaṁ viśanti.* Then, when their pious, I mean to say, assets of pious activities finished, then they are again driven out from that planet; they come to here, this material, I mean to say, earthly planet. And again they try here. Again they try here by sacrifices, by other means, to go there.
+
+So Lord Kṛṣṇa says these materialists, they,* gatāgataṁ kāma-kāmā labhante:* sometimes up, sometimes down. This is going on, sometimes up, sometimes down. Just like... What is called, that wheel? Sometimes go up, the boys enjoy in this way. What is the name of that wheel?
+
+**Devotee:** Ferris wheel.
+
+**Prabhupāda: **Uh?
+
+**Devotee:** Ferris wheel.
+
+**Prabhupāda:** Oh. So it is something like that. Sometimes you go, *sarva-ga, sarva-ga. Sarva... Jīva. Jīva* means the living entities, they have got a propensity to go from here to there, there to here. That is their... Because they are living force, they cannot stay at one place. That is not their nature. Even in this life also, you Americans, you try to go to India; the Indians try to come here or some other country. This is nature. In the birds, beasts, everywhere, they want to transfer in some different... So it is going on.
+
+So the materialist who want to go to the higher planets by pious activities, they can go there, but they will have to come back again. But what is the idea of going there? The idea of going there is the materialist, they are always seeking of better comforts of life. There is no limit where is better comfort. In this earth also, people are trying, advancement of material... Just like in your city I see very nice building. They are being dismantled, very strong, nice building. When I go to that Chamber side. I see that one very nice building, very strong building. But you think that "After dismantling this building we shall prepare another skyscraper covered by nice glasses, and we will be comfortable." That is the idea. You see?
+
+So materialist, they do not know where their advancement of material civilization will be perfect. They do not know that. *Na te viduḥ svārtha-gatiṁ hi viṣṇum* *SB* 7.5.31*.*
+
+**[Persons who are strongly entrapped by the consciousness of enjoying material life, and who have therefore accepted as their leader or guru a similar blind man attached to external sense objects, cannot understand that the goal of life is to return home, back to Godhead, and engage in the service of Lord Viṣṇu. As blind men guided by another blind man miss the right path and fall into a ditch, materially attached men led by another materially attached man are bound by the ropes of fruitive labor, which are made of very strong cords, and they continue again and again in materialistic life, suffering the threefold miseries.]**
+
+That perfection will never come, but they are after that perfection, dismantling and building. And after fifty years they will dismantle this building and prepare another kind of building. That will be... At that time further material advancement will be there.
+
+So this is going on,* gatāgatam. Gatāgatam* means, what is called, stereotyped. Everyone is going. The exact Hindi word is *variyāgasan*[?]*.* *Variyāgasan.*They call *variyāgasan. Variyāgasan* means that the goats, the goats, the goat merchant, they are taking to the slaughterhouse, and they are going hither and thither. But if one goat enters the door, all the *variyas,* they will enter. You see? So because one has entered... But nobody will consider that he has entered the slaughterhouse. No. "One has entered; therefore let us enter all." This is advancement. "Oh, one has entered, therefore I must enter also. I do not care where I am entering. That I do not know." So this is going on,* gatāgatam.*
+
+*Gatāgatam kāma-kāmā labhante. Kāma-kāmāḥ* means sense gratification. Sense gratification. But transcendentalist, they have understood that "This sense gratification process will not help me." This is called Kṛṣṇa consciousness. One must understand perfectly well that this process of sense gratification, *variyāgasan,* that will not help me. He is very intelligent. I will have to search out something else, not this sense gratification. So long I have got a pinch of desire for sense gratification, I will have to take this material body. And as soon as I have got this material body, then all the material miseries are along with it.
+
+So those who are serious about, that "I do not want any more..." But we have become callous. We don't think that "What is miseries of...?" But those who are actually in knowledge, those who want to live, those who want to have perfect knowledge, those who want to have blissful life, they understand that "This material existence, either this Svargaloka or the heavenly planet or this planet or that, will never give me happiness. I will have to... As Kṛṣṇa informs herein, that *yad gatvā na nivartante tad dhāma paramaṁ mama* [*Bg* *15.6*]*,*
+
+**[That abode of Mine is not illumined by the sun or moon, nor by electricity. One who reaches it never returns to this material world.]**
+
+I will have to enter the kingdom of God, spiritual planet, where going I will have not to return back again to accept this material body." That seriousness, one who has taken that serious attitude, they can actually perform this Kṛṣṇa consciousness very nicely.
+
+But those who are still under the impression that "Material advancement will make me happy," they are still under the spell of illusion. *Daivī hy eṣā guṇamayī mama māyā duratyayā* [*Bg* 7.14]*.*
+
+**[This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it.]**
+
+This planet, that planet, that planet, that planet, that planet—but in no planet, nowhere, you can have perfect peace of life. That is impossible. Therefore those who are intelligent, those who are by God's grace, Kṛṣṇa's grace, or by good association one who can understand that "This sort of life is not desirable. I must perform* dṛḍha-vrata,* with great determination and vow, in this life so that,"* yad gatvā na nivartante* [*Bg* *15.6*]*,* "I may be transferred into the Kṛṣṇaloka planet, where going I shall not have to return back..."
+
+Now, the materialist says, "All right, you do not know whether you are going or not. You are giving up this material enjoyment. You are simply living on *cāpāṭis.* [laughter] Oh, we have got so many palatable dishes, and you are not enjoying this. You are fooled." So to these poor devotees who are taking *cāpāṭi,* the Lord says a very nice thing. What is that?
+
+> ananyāś cintayanto māṁ
+> ye janāḥ paryupāsate
+> teṣāṁ nityābhiyuktānāṁ
+> yoga-kṣemaṁ vahāmy aham
+
+[*Bg* *9.22*]
+
+**[But those who worship Me with devotion, meditating on My transcendental form-to them I carry what they lack and preserve what they have.]**
+
+Well, materialist, Mr. Materialist, you have to work very hard. But here the assurance is from the Lord that "Those who are unflinching and cent percent devoted in the transcendental service of Me, for them I take charge of the maintenance, all comforts." *Nityābhiyuktānāṁ yoga-kṣemaṁ vahāmy aham.*
+
+Now, this *śloka* is very important for the devotees. There was a great devotee. His name was Ānandācārya. So when he was writing commentaries on this particular *śloka,* verse, he saw that *teṣāṁ nityābhiyuktānāṁ yoga-kṣemaṁ vahāmy aham,* the Lord says that "I myself take the burden and take the load on My head, and I deliver them to My devotees, what they require, what they require. He doesn't require to go outside. I Myself go and deliver the goods, whatever he requires." This is written here.
+
+*Teṣāṁ nityābhiyuktānām.* Those who are cent percent engaged in the loving service of the Lord,* teṣāṁ nityābhiyuktānāṁ yoga-kṣemaṁ vahāmy aham. Yoga* means what is required by him, and *kṣemam* means what he has got, he requires to be protected. So these two things the Lord takes charge, that "I personally do it." For whom? *Ananyāś cintayanto mām:* those who have no other thought than Kṛṣṇa, Kṛṣṇa conscious. *Ananyāś cintayanto mām. Ye janāḥ paryupāsate,* and engaged in that way always. He has no other business, simply Kṛṣṇa. For him these things the Lord does. It is specifically mentioned here.
+
+Now, therefore this is an encouragement. This is an encouragement by the Lord that "Do not think that because you are not trying for going to the other planet you will be unhappy. You will have happiness." What is happiness? Happiness is within your mind. If you are assured of your peaceful existence and the next life you are transferred to the supreme planet, or supreme place, then that is happiness—not for trying life after life to adjust happiness. Here is an assurance.
+
+Now this Arjunācārya... That's a very nice story. When he was writing commentaries, oh, he thought, "How is that, the Lord will come Himself and deliver the goods? Oh, it is not possible. He might be sending through some agents." So he wanted to cut* vahāmy aham,* "I bear the burden and deliver." He wrote in a way that "I send some agent who delivers." So that Arjunācārya went to take bath, and in the meantime two boys, very beautiful boys, They brought some very nice foodstuff, very large..., in large quantity. And in India there is a process to taking two sides burden on the bamboo. Just like a scale it is balanced.
+
+So these two boys brought some very highly valuable foodstuff and grains and *ghee* and of the same, and his wife was there. And the boys said, "My dear mother, Arjunācārya has sent these goods to you. Please take delivery." And "Oh, You are so nice boy, You are so beautiful boys, and he has given. And Ācārya is not so cruel. How is that? He has given so much burden to You, and he is not kind...?" "Oh, I was not taking; just see, he has beaten Me. Here is cane mark. Oh, see." His wife became very much astonished, that "Ācārya is not so cruel. How he has become so cruel?"
+
+So she was thinking in that way. Then "All right, my dear boys. You come on," and gave Him shelter. And, "No. I shall go, because Arjunācārya again comes. He will chastise Us." "No, no. You sit down, take foodstuff." He [she] prepared foodstuff, and then They went away. And when Arjunācārya came back, then he saw that his wife is eating. Because it is the system of Indian family that after the husband has taken the food, the wife will take. So they don't take together. After the family members—the boys and the husband—is sumptuously fed, then the housewife takes.
+
+So Arjunācārya, "Oh, you are taking food? What is that?" No. He did not; I am mistaken. Sorry. He said that "You are..." So the wife said, "Ācārya, you have become so much cruel nowadays?" "Oh, what is that?" "Now, two boys, very nice boys, They have brought so many foodstuff. You loaded on Their head, and They denied to take it, and you have beaten Them, chastised?" He said, "No. I have never done this. Why shall I do it?" Then she described, "Oh, such a nice, beautiful boy." Then Arjunācārya understood that "Because I wanted that God does not deliver, so He has delivered these goods, and because I cut these alphabets that He does not give personally, so He has shown that beating mark." There is an incidence in southern India of Yāmunācārya. That story is there. Of course, you may believe or not believe. That's a different thing. But here the Lord says that "I personally deliver."
+
+So those who are in Kṛṣṇa consciousness, those who are actually busy in the matter of discharging their duties as a Kṛṣṇa conscious person, they may be assured that so far their living condition is concerned or their comforts of life is concerned, that is assured by the Lord. There will be no hampering.
+
+Thank you very much. Any question? [end]

@@ -1,0 +1,57 @@
+# Bhajan & Purport to Jīv Jāgo
+
+*Bhajan &amp; Purport to Jīv Jāgo Type: Purport Dated: May 20th 1969 Location: Colombus Audio file: 690520PU-COLUMBUS.mp3*
+
+**Prabhupāda:** [sings:]
+
+> jīv jāgo, jīv jāgo, gauracānda bole
+> kota nidrā jāo māyā-piśācīra kole
+
+**[Lord Gaurāṅga is calling, "Wake up, sleeping souls! Wake up, sleeping souls! You have slept so long on the lap of the witch Māyā!]**
+
+> bhajibo boliyā ese saṁsāra-bhitare
+> bhuliyā rohile tumi avidyāra bhare
+
+**["You came into this world of birth and death saying 'My Lord, I will certainly worship You,' but you have forgotten this promise and remained in great ignorance.]**
+
+> tomāre loite āmi hoinu avatāra
+> āmi binā bandhu āra ke āche tomāra
+
+**["I have descended just to save you. Except for Me, who is your friend?]**
+
+> enechi auṣadhi māyā nāśibāro lāgi'
+> hari-nāma mahā-mantra lao tumi māgi'
+
+**["I have brought the medicine to eradicate the disease of illusion. Now pray for this Hare Kṛṣṇa mahā-mantra and take it."]**
+
+> bhakativinoda prabhu-caraṇe pariyā
+> sei hari-nāma-mantra loilo māgiyā
+
+**[Bhaktivinoda fell at the lotus feet of Lord Gaurāṅga, and after begging for the holy name, he received that mahā-mantra.]**
+
+[16:30]
+
+*Jīv jāgo, jīv jāgo, gauracānda bole. Jīv* means the living entities. Lord Caitanya Mahāprabhu is asking all living entities to "Wake up. Please wake up. Please get up." *Jāgo. Jāgo* means "Wake up."
+
+> jīv jāgo, jīv jāgo, gauracānda bole
+> kota nidrā jāo māyā-piśācīra kole
+
+**[Lord Gaurāṅga is calling, "Wake up, sleeping souls! Wake up, sleeping souls! You have slept so long on the lap of the witch Māyā!]**
+
+"How long you shall go on sleeping on the lap of the witches, *māyā*?"* Bhajibo boliyā ese saṁsāra-bhitare:* "In the womb of your mother you promised that this life you shall engage in the matter of developing your Kṛṣṇa consciousness." *Bhuliyā rohile tumi avidyāra bhare:* "But you are forgotten everything under the spell of illusory energy."
+
+Actually, when the child remains within the womb of his mother, packed up in airtight bag, at the age of seven months within the womb, when he develops his consciousness, he feels very uncomfortable, and the fortunate baby prays to God, "Please relieve me from this awkward position, and this life I shall fully engage myself in developing my God consciousness, or Kṛṣṇa consciousness." But as soon as the child comes out of the womb of his mother, under the spell of these three modes of material nature he forgets, and he cries, and the parents take care, and the whole thing is forgotten.
+
+There is one instance of Parīkṣit Mahārāja. When he was in the womb of his mother, their paternal, I mean to say, enemy, Droṇa..., son of Droṇācārya, Aśvatthāmā, he released a weapon called *brahmāstra.* The *brahmāstra* could kill even within the womb. So at that time Lord Kṛṣṇa entered and saved the child. The child saw the form of Kṛṣṇa and was remembering. And when the child came out, he was trying to find out where is that form. He was searching after Kṛṣṇa. So the astrologers who were present there, they could understand that "This child is seeking something." Therefore his name was given, Parīkṣit. *Parīkṣit* means one who is trying to test. *Parikṣa. Parikṣa* means test, examination.
+
+So there are many examples. Of course, very rare the child remembers. Generally forgets. So Lord Caitanya is trying to wake up all children of *māyā,* nature's son, to wake up. The similar instruction is in the Vedic *Upaniṣad: uttiṣṭhata jāgrata.* The advice is that "Everyone should now wake up. They should not sleep under the spell of illusion, material nature. This human form of body must be utilized." The same thing Lord Caitanya is speaking in ordinary song, *jīv jāgo, jīv jāgo, gauracānda bole:* "All living entities wake up. Don't miss this opportunity." *Kota nidrā jāo māyā-piśācīra:* "How long you shall remain asleep in this way, under the spell of *māyā*? This is the opportunity. Don't sleep."
+
+Then He says, "You have forgotten. But I have brought one medicine so that..." Just like when a man remains unconscious under some intoxication or snake bite, there are some herbs. If it is put before the nostril and if the patient smells, immediately he gets consciousness. Similarly, Caitanya Mahāprabhu said that "I have brought also one medicine." *Enechi auśādhi māyā nasibaro lagi':* "This medicine can dissipate your this forgetfulness under the spell of *māyā.*" *Enechi auṣadhi māyā nāśibāro.* What is that? *Hari-nāma mahā-mantra lao tumi:* "This is this chanting Hare Kṛṣṇa *mantra.* You please take it."
+
+The idea is that if one simply chants Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare, his unconscious stage, or sleeping stage under the spell of illusory *māyā,* will gradually vanish. *Ceto-darpaṇa-mārjanam* [*Cc. Antya* *20.12*]*.*
+
+**[“’Let there be all victory for the chanting of the holy name of Lord Kṛṣṇa, which can cleanse the mirror of the heart and stop the miseries of the blazing fire of material existence. That chanting is the waxing moon that spreads the white lotus of good fortune for all living entities. It is the life and soul of all education. The chanting of the holy name of Kṛṣṇa expands the blissful ocean of transcendental life. It gives a cooling effect to everyone and enables one to taste full nectar at every step.’]**
+
+So this is a song composed by Bhaktivinoda Ṭhākura. So he says that *bhakativinoda prabhu-caraṇe pariyā:* "Bhaktivinoda Ṭhākura took the advantage of the instruction of Lord Caitanya and immediately fell down on the lotus feet of the Lord," *hari-nāma mahā-mantra loilo māgiyā,* "and very humbly he begged Lord Caitanya, 'Kindly give me this medicine, and I shall utilize it.' ''
+
+The whole instruction is that all sleeping members of the human society, they should take advantage of this Kṛṣṇa consciousness movement, and willingly they should accept. Then there will be immediate effect, and everyone will be out of the clutches of *māyā,* and his original consciousness, or Kṛṣṇa consciousness, will be awakened, and his life will be sublime. [end]

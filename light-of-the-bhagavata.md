@@ -1,15 +1,16 @@
 # Light of the Bhāgavata
 
+### 0a
 
-# Preface
+Preface
 
-We offer our respectful obeisances unto the lotus feet of His Divine Grace A.C. Bhaktivedanta Swami Prabhupāda, Founder-*Ācārya* of the International Society for Krishna Consciousness, who has delivered the light of the *Bhāgavata* to the whole world. We are pleased to present for his pleasure this publication of his sublime work *Light of the Bhāgavata.*
+We offer our respectful obeisances unto the lotus feet of His Divine Grace A.C. Bhaktivedanta Swami Prabhupāda, Founder-*Ācārya* of the International Society for Krishna Consciousness, who has delivered the light of the *Bhāgavata* to the whole world. We are pleased to present for his pleasure this publication of his sublime work *"Light of the Bhagawata" in the English language.*
 
 Of all His Divine Grace's writings, this work is perhaps the most unique. It was written in Vṛndāvana in 1961 in response to an invitation to attend a world conference, the Congress for Cultivating the Human Spirit, held in Japan. As most of the participants to the Conference were from the Orient, Śrīla Prabhupāda considered deeply how he could best present the timeless teachings of the *Śrīmad-Bhāgavatam* suitable to the Oriental people. The original *Bhāgavatam* was written over five thousand years ago as an extremely large book composed of eighteen thousand verses. Participants to the conference would not have the time to hear it all. He therefore chose one chapter from the original version for presentation.
 
 The chapter he selected was a description of the autumn season in Vṛndāvana, the place of Lord Kṛṣṇa's appearance. Śrīla Prabhupāda knew that the Oriental people were very fond of hearing descriptions of nature and that the time of the autumn season is particularly auspicious to them. Presenting spiritual philosophy by examples from nature would be best for their understanding. For each seasonal phenomenon, a parallel teaching could be given. For example, the dark, cloudy evening of the rainy autumn season when no stars are visible is compared to the present materialistic, godless civilization when the bright stars of the *Bhāgavata's* wisdom (the devotees and scriptures) are temporarily obscured. Altogether Śrīla Prabhupāda composed forty-eight commentaries to go along with the verses of the chapter.
 
-Śrīla Prabhupāda's plan was that the organizers of the conference should find a qualified Oriental artist to illustrate each verse, and he wrote directions from which the artist could design each painting. He hoped that the paintings and their accompanying explanations would make an impressive display for visitors to the conference. If possible, he wished that there might be published a book containing the illustrations and the texts.
+Śrīla Prabhupāda's plan was that the organizers of the conference should find a qualified Oriental artist to illustrate each verse, and he wrote directions from which the artist could design each painting. He hoped that the paintings and their accompanying explanations would make an impressive display for visitors to the conference. If possible, he wished that a book might be published a book containing the illustrations and the texts.
 
 Due to unfortunate circumstances, Śrīla Prabhupāda was unable to attend the conference, and the whole project of *Light of the Bhāgavata* was postponed. In fact, at the time of Śrīla Prabhupāda's disappearance the *Light of the Bhāgavata* still remained unpublished and the illustrations not yet painted.
 
@@ -21,8 +22,9 @@ Those readers who wish to go more deeply into the philosophy of the *Light of th
 
 —The Publisher
 
+### 1
 
-# Chapter 1: Light of the Bhāgavata 1
+Light of the Bhāgavata 1
 
 **The arrival of clouds, accompanied by thunder and flashes of lightning all over the sky, provides a picture of life-giving hope. Covered by deep bluish clouds, the sky appears artificially dressed. The thunder and lightning within the clouds are signs of hope for a new way of life.**
 
@@ -30,10 +32,11 @@ The serene sky, limitlessly expansive, is compared to the Absolute Truth. The li
 
 The limitless sky, or the all-pervading Absolute Truth (Brahman), is nondifferent from the covered portion of the sky, but simultaneously the whole sky is different from the fractional portion that is liable to be covered by the dark cloud. The cloud, accompanied by thunder and lightning, cannot possibly cover the limitless sky. Therefore the Absolute Truth, which is compared to the whole sky, is simultaneously one with the manifested living being and different from him. The living being is only a sample of the Absolute Truth and is Prone to be covered by the circumstantial cloud of ignorance.
 
-There are two parties of philosophers, generally known as the monists and the dualists. The monist believes in the oneness of the Absolute Truth and the living entity, but the dualist believes in the separate identities of the living being and the Absolute Truth. Above these two classes of philosophers is the philosophy of *acintya-bhedābheda tattva,* or the truth of simultaneous oneness and difference. This philosophy was propounded by Lord Śrī Caitanya Mahāprabhu in His explanation of the *Vedānta-sūtras.* The Vedānta is the medium of philosophical interpretations, and thus the Vedānta cannot be the absolute property of any particular class of philosopher. A sincere seeker of the Absolute Truth is called a Vedantist. *Veda* means "knowledge." Any department of knowledge is called a part of the Vedic knowledge, and *vedānta* means the ultimate conclusion of all branches of knowledge. As philosophy is called the science of all sciences, Vedānta is the ultimate philosophy of all philosophical speculations.
+There are two parties of philosophers, generally known as the monists and the dualists. The monist believes in the oneness of the Absolute Truth and the living entity, but the dualist believes in the separate identity of the living being and the Absolute Truth. Above these two classes of philosophers is the philosophy of *acintya-bhedābheda tattva,* or the truth of simultaneous oneness and difference. This philosophy was propounded by Lord Śrī Caitanya Mahāprabhu in His explanation of the *Vedānta-sūtras.* The Vedānta is the medium of philosophical interpretations, and thus the Vedānta cannot be the absolute property of any particular class of philosopher. A sincere seeker of the Absolute Truth is called a Vedantist. *Veda* means "knowledge." Any department of knowledge is called a part of the Vedic knowledge, and *vedānta* means the ultimate conclusion of all branches of knowledge. As philosophy is called the science of all sciences, Vedānta is the ultimate philosophy of all philosophical speculations.
 
+### 2
 
-# Chapter 2: Light of the Bhāgavata 2
+Light of the Bhāgavata 2
 
 **The scorching heat of the sun evaporates water from the seas, rivers, lakes, and reservoirs, and there is little water anywhere. The people become thirsty and always look overhead for rain, but in despair. Yet just at the right moment, torrents of rain begin to fall everywhere in the land, even on the hard stones, and the land becomes overflooded.**
 
@@ -43,23 +46,25 @@ The common man supposes the unequal distribution of rain to represent nature's w
 
 In ancient days the kings were taught lessons in political philosophy by ideal teachers, and the citizens from village to village were taught the principles of self-realization according to the Vedic codes for both the material and the spiritual upliftment of society. Therefore the citizens were God conscious and honest in their dealings, and the kings were responsible for the welfare of the state. The same basic principles are accepted in the democratic governments of the present day, for the irresponsible party of the people is always voted out of power and must yield to the responsible party for a better government. In the cosmic administration there is only one party, which consists of the servants of God, and the responsible deities of the various planets maintain the cosmic laws in terms of the orders of the Supreme Lord. But the people suffer on account of their own folly.
 
-And what is that folly? In *Bhagavad-gītā* it is said that people should perform *yajñas,* or sacrifices for the satisfaction of the Supreme. The Supreme is all-pervading. Therefore people must learn to perform *yajñas* to satisfy the all-pervading Supreme Truth. There are different *yajñas* prescribed for different ages, and in the present age of iron industry the *yajña* that enlightens the mind of the masses for God consciousness is recommended. This process of *yajña* is called the *saṅkīrtana-yajña,* or mass agitation for invoking man's lost spiritual consciousness. As soon as this movement is taken up through spiritual singing, dancing, and feasting, the people will automatically become obedient and honest.
+And what is that folly? In *Bhagavad-gītā* it is said that people should perform *yajñas,* or sacrifices for the satisfaction of the Supreme. The Supreme is all-pervading. Therefore people must learn to perform *yajñas* to satisfy the all-pervading Supreme Truth. There are different *yajñas* prescribed for different ages, and in the present age of iron industry the *yajña* that enlightens the mind of the masses for God consciousness is recommended. This process of *yajña* is called the *saṅkīrtana-yajña,* or mass congregation for invoking man's lost spiritual consciousness. As soon as this movement is taken up through spiritual singing, dancing, and feasting, the people will automatically become obedient and honest.
 
 Obedience is the first law of discipline. The people have become disobedient to the laws of God, and therefore neither rain nor wealth is equally distributed. A man who is ultimately disobedient cannot have any good qualifications. When disobedient leaders lead the disobedient people, the whole atmosphere of the administration becomes polluted and full of dangers, as when a blind man leads several other blind men. The state taxes, therefore, should be spent to build the character of the people in general. That will bring happiness to the citizens of the state.
 
+### 3
 
-# Chapter 3: Light of the Bhāgavata 3
+Light of the Bhāgavata 3
 
 **Attracted by electricity throughout the sky and driven by forceful winds, clouds gradually cover the surface of the earth to satisfy the needy people by supplying water, which is the substance of their life. The clouds bestow rains upon man as the mercy of the Lord, who is always kind to the needy living being.**
 
-We should always know that God is ever kind to us. Despite our gross disobedience to the laws of God's nature, the Lord is kind enough to look after our maintenance. Water is one of the most important items for our maintenance, because without water we can neither produce food grains nor quench our thirst. Water is also required very liberally for many other purposes. Thus the Lord has preserved water on three fourths of the globe and has made it salty to preserve it. Salty water does not decompose, and that is the arrangement of providence. The Lord has engaged the powerful sun to evaporate the water of planets like earth and distill it into clear water in the clouds and then stock it on the peaks of mountains, as we stock water in overhead tanks for later distribution. part of the stock of water is refrigerated into ice, so that it will not flood the earth for no good purpose. The ice melts gradually throughout the year, flows down through the great rivers, and glides down to the sea again for preservation.
+We should always know that God is always kind to us. Despite our gross disobedience to the laws of God's nature, the Lord is kind enough to look after our maintenance. Water is one of the most important items for our maintenance, because without water we can neither produce food grains nor quench our thirst. Water is also required very liberally for many other purposes. Thus the Lord has preserved water on three fourths of the globe and has made it salty to preserve it. Salty water does not decompose, and that is the arrangement of providence. The Lord has engaged the powerful sun to evaporate the water of planets like earth and distill it into clear water in the clouds and then stock it on the peaks of mountains, as we stock water in overhead tanks for later distribution. part of the stock of water is refrigerated into ice, so that it will not flood the earth for no good purpose. The ice melts gradually throughout the year, flows down through the great rivers, and glides down to the sea again for preservation.
 
 Therefore the laws of God's nature are neither blind nor accidental, as men with a poor fund of knowledge conclude. Behind the laws of nature is the living brain of God, just as there is always a lawmaker behind all the laws of the state. It does not matter whether or not we see the lawmaker behind the common laws; we must admit that there is a lawmaker. Matter can never work automatically, without a living hand, and therefore we must admit the existence of God, the supreme living being, behind the laws of nature. The Lord says in *Bhagavad-gītā* that nature works under His superintendence. Nature is only a power, and behind the power is a powerhouse and a brain, just as behind electrical power there is an electrical powerhouse, where everything is conducted by the brain of the resident engineer. The material nature works so nicely, and not blindly, because of the superintendence of the supreme powerful God. In the Vedic hymns (*Atharva Veda*) the same thing is confirmed. It is only under the superintendence of God that all the natural laws are conducted.
 
 The Lord distributes His mercy in the form of rains on the scorched earth at times of dire necessity. He supplies rain when we are practically on the verge of death for want of water. God is merciful undoubtedly, but He bestows His mercy on us when we need it most. This is so because we forget God as soon as we obtain this mercy. We should therefore remember the mercy of God constantly if we want to avoid distress. We are eternally related with Him, despite the state of forgetfulness already described above. *Bhagavad-gītā* confirms that the laws of nature are stringent because they are conducted by three different modes. But one who surrenders unto the Lord overcomes the stringency of nature easily.
 
+### 4
 
-# Chapter 4: Light of the Bhāgavata 4
+Light of the Bhāgavata 4
 
 **After heavy rain showers, the fields and forests in all directions appear green and healthy. Thus they resemble a man who has undergone severe austerities for some material gain and has achieved his end, for such a man is strong, hearty, and good-looking.**
 
@@ -69,19 +74,21 @@ This ultimate gain is possible to achieve in the human form of life. permanent h
 
 We should not try to be beautiful like seasonal flowers or greenery that flourish in the rainy season but are weary in the winter. To be enlivened by the clouds of ignorance overhead and to enjoy the sight of temporary greenery is not at all desirable. One should try to live in the unlimited clear sky overflooded with the rays of the sun and moon. That is what we actually desire. A life of freedom in eternity, complete knowledge, and a blissful atmosphere is the heart's desire of an enlightened soul. We should undertake all sorts of penances and austerities to attain that permanent source of happiness.
 
+### 5
 
-# Chapter 5: Light of the Bhāgavata 5
+Light of the Bhāgavata 5
 
 **The evening in the rainy season is dark all around. There is no sight of the twinkling stars on the horizon or the pleasing moon. They are covered by clouds. And the insignificant glowworms become prominent in the absence of the luminaries in the open sky.**
 
 As there are seasonal changes within a year, so there are changing ages in the duration of the manifest cosmic world. These changing ages are called *yugas,* or periods. As there are three modes of nature, there are also various ages dominated by these three modes. The period dominated by the mode of goodness is called Satya-yuga, the period of passion is called Tretā-yuga, the period of mixed passion and ignorance is called Dvāpara-yuga, and the period of darkness and ignorance (the last period) is called Kali-yuga, or the age of quarrel. The word *kali* means "quarrel." Kali-yuga is compared to the rainy season because many difficulties in life are experienced during this damp season.
 
-In Kali-yuga there is a dearth of proper guidance. One may take guidance in the evening from the stars and moon, but in the rainy season the light of guidance comes from insignificant glowworms. The real light in life is the Vedic knowledge. *Bhagavad-gītā* affirms that the purpose of the *Veda* is to know the all-powerful Personality of Godhead. But in this age of quarrel there are quarrels even over the point of the existence of Godhead. In the godless civilization of the age of quarrel there are countless religious societies, them trying to banish God from religion. Glowworms want to be prominent in the absence of the sun and the stars, and these small groups following various religious conceptions are like glowworms trying to be prominent before the eyes of the ignorant mass of people. There are now a number of self-made incarnations people follow without authority from the Vedic literatures, and there is regular competition between one incarnation's group and another's.
+In Kali-yuga there is a dearth of proper guidance. One may take guidance in the evening from the stars and moon, but in the rainy season the light of guidance comes from insignificant glowworms. The real light in life is the Vedic knowledge. *Bhagavad-gītā* affirms that the purpose of the *Veda* is to know the all-powerful Personality of Godhead. But in this age of quarrel there are quarrels even over the point of the existence of Godhead. In the godless civilization of the age of quarrel there are numberless societies, them trying to banish God from religion. Glowworms want to be prominent in the absence of the sun and the stars, and these small groups following various religious conceptions are like glowworms trying to be prominent before the eyes of the ignorant mass of people. There are now a number of self-made incarnations people follow without authority from the Vedic literatures, and there is regular competition between one incarnation's group and another's.
 
 The Vedic knowledge comes in a tradition from the spiritual master through the chain of disciplic succession, and the knowledge must be acquired through this chain, without deviation. In the present age of quarrel the chain has been broken here and there, and thus the *Veda* is now interpreted by unauthorized men who have no realization. The so-called followers of the *Vedas* deny the existence of God, as in the darkness of a cloudy evening the glowworms deny the existence of the moon and stars. Saner people should not be waylaid by such unscrupulous men. *Bhagavad-gītā* is the summary of all Vedic knowledge because it is spoken by the same Personality of Godhead who imparted the Vedic knowledge into the heart of Brahmā, the first created being in the universe. *Śrīmad-Bhāgavatam* was especially spoken for the guidance of the people of this age, which is darkened by the cloud of ignorance.
 
+### 6
 
-# Chapter 6: Light of the Bhāgavata 6
+Light of the Bhāgavata 6
 
 **On hearing the sound of the torrential rains, the frogs come out of the mountain caves and begin to chant, like brahmacārīs who chant the Vedic hymns by the order of the spiritual master.**
 
@@ -89,8 +96,9 @@ In this age of a godless civilization, the sages of world-recognized religious s
 
 The warning is already there, and responsible leaders of religious sects must meet together and form a common platform of a league of devotees of the Lord. There is no need for self-realized souls to live in a secluded place. Perfect self-realized souls, engaged in the service of the Lord, are unafraid of *māyā,* just as law-abiding citizens of a state never fear the police. Such fearless devotees of God always speak scientifically about the existence of God, even at the risk of death. Such devotees of God feel compassion for the mass of people, who have completely forgotten the Supreme Lord and who engage in the false pursuit of happiness that ends in the sense pleasures enjoyed by the hogs and dogs.
 
+### 7
 
-# Chapter 7: Light of the Bhāgavata 7
+Light of the Bhāgavata 7
 
 **The small rivulets that almost dried up during the months of May and June now begin to overflow their banks, like upstarts that suddenly overflow the limits of expenditure.**
 
@@ -100,8 +108,9 @@ Human beings have two kinds of temperament. Some are introspective, and the othe
 
 Although the animal propensities of the body should be minimized, those who are extravagant temporarily overflow in material enjoyment. Nonetheless, as soon as the rainy season of life is over, they become as dry as dry river beds. Life is meant for the right cause, or *sat*—that which exists for all time. In the material world, nothing is *sat,* or eternal, but the bad bargain of the material world can be used for the best purpose. The mind dedicated to extravagance is a bad bargain, but one can make the best use of the mind by introspection.
 
+### 8
 
-# Chapter 8: Light of the Bhāgavata 8
+Light of the Bhāgavata 8
 
 **The colorful greenery of the newly grown grass, the seaonal flowers, the frog's umbrellas, the butterflies, and the other variegatedness of the rainy season perfectly represent a well-to-do family absorbed in vanity over their personal assets.**
 
@@ -111,8 +120,9 @@ When the same man was as dry as fallow land and had none of these opulences, he 
 
 Material manifestations of things are but shadowy representations of reality. They are compared to mirages in the desert. In the desert there is no water, but the foolish deer runs after illusory water in the desert to quench his thirsty heart. Water is not unreal, but the place where we seek it is misleading. The advancement of materialistic civilization is just like a mirage in the desert. The deer runs after water in the desert with full speed, and the illusion of water moves ahead at the same speed as the foolish deer. Water is not false, but we must not seek it in the desert. A living entity, by his past experience, remembers the real happiness of his original, spiritual existence, but since he has forgotten himself he seeks spiritual or permanent happiness in matter, although this is impossible to achieve.
 
+### 9
 
-# Chapter 9: Light of the Bhāgavata 9
+Light of the Bhāgavata 9
 
 **A picturesque scene of green paddy fields enlivens the heart of the poor agriculturalist, but it brings gloom to the face of the capitalist who lives by exploiting the poor farmers.**
 
@@ -122,8 +132,9 @@ Trade is meant only for transporting surplus produce to places where the produce
 
 No one can produce rice and wheat in big iron factories. The industrialist goes to the villagers to purchase the food grains he is unable to produce in his factory. The poor agriculturalist takes advances from the capitalist and sells his produce at a lower price. Hence when food grains are produced abundantly the farmers become financially stronger, and thus the capitalist becomes morose at being unable to exploit them.
 
+### 10
 
-# Chapter 10: Light of the Bhāgavata 10
+Light of the Bhāgavata 10
 
 **Just as a living being attains a transcendentally attractive form by rendering service to Lord Hari, similarly, all the inhabitants of the land and the water assume beautiful forms by taking advantage of the newly fallen water.**
 
@@ -131,36 +142,41 @@ We have practical experience of this with our students in the International Soci
 
 The residents of the water are the fish, frogs, and so on, and the residents of the land are the cows, deer, and so on. By constantly drinking and taking bath in the fresh rainwater of the rainy season, the tired and parched animals are refreshed, and their complexions become brilliant as their health is invigorated by the arrival of new rainwater. The lakes, ponds, and rivers are cleansed and invigorated by the downpour of new rainwater and thus become most beautiful. Similarly, a devotee of the Supreme Lord who takes advantage of the beautiful and invigorating downpour of the transcendental descriptions of God found in Vedic literature finds his spiritual consciousness invigorated and refreshed. In this way his spiritualized body becomes very beautiful.
 
+### 11
 
-# Chapter 11: Light of the Bhāgavata 11
+Light of the Bhāgavata 11
 
 **In the rainy season, when the rivers swell and rush to the ocean, and as the wind blows the waves about, the ocean appears to be agitated. Similarly, if a person engaged in the mystic yoga process is not very advanced in spiritual life, he can be affected by the modes of nature and thus will be agitated by the sex impulse.**
 
-A person fixed in spiritual knowledge will not be attracted by the allurement of material nature in the form of beautiful women and the sex pleasure enjoyed in their association. One, however, who is still immature in the cultivation of spiritual knowledge may be attracted at any moment by the illusion of temporary happiness, just as the ocean is agitated by the rushing rivers and blowing wind that occur during the rainy season. It is therefore very important to fix oneself at the lotus feet of a bona fide spiritual master who is a representative of God so that one will not be carried away by sex agitation.
+A person fixed in spiritual knowledge will not be attracted by the allurement of material nature in the form of beautiful women and the sex pleasure enjoyed in their association. One, however, who is still immature in the cultivation of spiritual knowledge may be attracted at any moment by the illusion of temporary happiness, just as the ocean is agitated by the rushing rivers and blowing wind which occur during the rainy season. It is therefore very important to fix oneself at the lotus feet of a bona fide spiritual master who is a representative of God so that one will not be carried away by sex agitation.
 
+### 12
 
-# Chapter 12: Light of the Bhāgavata 12
+Light of the Bhāgavata 12
 
 **The mountains, although being struck by torrents of rain during the rainy season, are not shaken, just as those whose hearts are dedicated to the transcendental Personality of Godhead are never disturbed, even when harassed by great misfortune.**
 
-Because a person who is spiritually advanced accepts any adverse condition of life as the mercy of the Lord, he is completely eligible to enter into the spiritual kingdom. Even though a person takes to the devotional service of the Supreme Lord, he may sometimes become diseased, impoverished, or disappointed by life's events. A true devotee of the Lord always considers these sufferings to be due to past sinful activities, and thus without becoming disturbed he patiently awaits the mercy of the Supreme Lord. Such devotees are compared to high mountains, which are never agitated in any way, even when struck by powerful torrents of rain in the rainy season. Rather, such devotees remain humble in spiritual enlightenment. Free from pride and envy, they easily gain the mercy of the Lord and go back home, back to Godhead.
+Because a person who is spiritually advanced accepts any adverse condition of life as the mercy of the Lord, he is completely eligible to enter into the spiritual kingdom. Even though a person takes to the devotional service of the Supreme Lord, he may sometimes become diseased, impoverished, or disappointed by life's events. A true devotee of the Lord always considers these sufferings to be due to past sinful activities, and thus without becoming disturbed he patiently awaits the mercy of the Supreme Lord. Such devotees are compared to high mountains, which are never agitated in any way, even when struck by powerful torrents of rain in the rainy season. Rather, they remain humble in spiritual enlightenment. Free from pride and envy, they easily gain the mercy of the Lord and go back home, back to Godhead.
 
+### 13
 
-# Chapter 13: Light of the Bhāgavata 13
+Light of the Bhāgavata 13
 
-**In the rainy season some of the roads are not frequently used and become covered with long grasses, and thus it becomes very difficult to see the road. Similarly, in this age the transcendental scriptures are not properly studied by the brāhmaṇas. Being covered by the effects of time, the scriptures are practically lost, and it becomes very difficult to understand or follow them.**
+**In the rainy season some of the roads are not frequently used and become covered with long grasses, on account of which it becomes very difficult to see the road. Similarly, in this age the transcendental scriptures are not properly studied by the brāhmaṇas. Being covered by the effects of time, the scriptures are practically lost, and it becomes very difficult to understand or follow them.**
 
 A covered road is exactly like a *brāhmaṇa* who is not accustomed to studying and practicing the reformatory practices of Vedic injunctions-he becomes covered with the long grasses of illusion. In that condition, forgetful of his constitutional nature, he forgets his position of eternal servitorship to the Supreme Personality of Godhead. By being deviated by the seasonal overgrowth of long grasses created by *māyā,* a person identifies himself with illusory productions of nature and succumbs to illusion, forgetting his spiritual life.
 
+### 14
 
-# Chapter 14: Light of the Bhāgavata 14
+Light of the Bhāgavata 14
 
 **The lightning becomes unsteady in its friendship, failing to remain faithfully in any one of the clouds, although they are the friends of the entire world, just as lusty women do not remain steady even in the company of men who possess excellent qualities.**
 
 During the rainy season, lightning appears in one group of clouds and then immediately in another group of clouds. This phenomenon is compared to a lusty woman who does not fix her mind on one man. A cloud is compared to a qualified person because it pours rain and gives sustenance to many people; a man who is qualified similarly gives sustenance to many living creatures, such as family members or many workers in business. Unfortunately, his whole life can be disturbed by a wife who divorces him. When the husband is disturbed, the whole family is ruined, the children are dispersed, or the business is closed, and everything is affected. It is therefore recommended that a woman desiring to advance in Kṛṣṇa consciousness peacefully live with a husband and that the couple should not separate under any condition. The husband and wife should control sex indulgence and concentrate their minds on Kṛṣṇa consciousness so their life may be successful. After all, in the material world a man requires a woman, and a woman requires a man. When they are combined, they should live peacefully in Kṛṣṇa consciousness and should not be restless, like the lightning, flashing from one group of clouds to another.
 
+### 15
 
-# Chapter 15: Light of the Bhāgavata 15
+Light of the Bhāgavata 15
 
 **In the midst of the thunder in the cloudy sky there appears a rainbow that has no string. Its appearance is compared to the appearance of the Supreme Personality of Godhead or His servants in the midst of the material atmosphere.**
 
@@ -170,8 +186,9 @@ The transcendental Supreme Lord is eternally the form of transcendental existenc
 
 By His inconceivable energy, the Supreme Lord can appear and disappear like a rainbow, which appears and disappears without being affected by the roaring thunder and the cloudy sky. The Lord is eternally the biggest of the big and the smallest of the small. The living beings, who are His parts and parcels, are the smallest of the small, and He is the biggest of the big as the Absolute Truth, the Supreme Personality of Godhead.
 
+### 16
 
-# Chapter 16: Light of the Bhāgavata 16
+Light of the Bhāgavata 16
 
 **At night, by the grace of the moonlight, the clouds in the sky can be seen moving. Yet the moon itself also appears to be moving, just as a living being appears to be moving because of false identification with matter.**
 
@@ -183,8 +200,9 @@ The moon is far away from the clouds and is fixed in its own orbit, but illusion
 
 The spiritual living force is always active by nature. By illusion his activities are wrongly directed in relation with the body, but in the liberated condition of complete knowledge his activities are conducted in spiritual devotion. Liberation does not mean stopping activities; it means being purified of illusory activities and becoming transcendental to relations with the gross and subtle bodies.
 
+### 17
 
-# Chapter 17: Light of the Bhāgavata 17
+Light of the Bhāgavata 17
 
 **When the clouds appear in the sky the peacock begins to dance in ecstasy, as a sincere soul becomes overwhelmed with joy on the appearance of a saint at his house.**
 
@@ -194,8 +212,9 @@ In the age of Kali, as described before, people in general no longer take pleasu
 
 It is the duty of the saints and sages to enlighten the fallen souls, and reciprocally it is the duty of the householder to receive the saints and sages cordially, as the peacock dances in ecstasy at the presence of clouds in the sky. The fire of threefold miseries experienced by materialistic men can be extinguished only by the cloud of mercy of the saints and sages who can pour down the water of transcendental messages to put an end to the miseries of the householders.
 
+### 18
 
-# Chapter 18: Light of the Bhāgavata 18
+Light of the Bhāgavata 18
 
 **Many plants and creepers that were almost dead during the months of April and May are now visible again in various forms, for they are nourished by their roots in the moist earth. These numberless plants and creepers resemble persons who dry up in severe penances for some material gain but then achieve their objectives and become luxuriously fat, nourished by sense enjoyment.**
 
@@ -205,8 +224,9 @@ Even when the plants and creepers are no longer to be seen, their seeds remain, 
 
 To attain liberation, one must be completely purified of perverted forms of desire. A living being cannot snuff out desires, and to practice artificially erasing the actions of desire is more dangerous than the active desires themselves. All desires should be reformed and directed toward spiritual activities; otherwise those same desires will repeatedly manifest themselves in different varieties of material enjoyment, thus conditioning the living being perpetually in material bondage.
 
+### 19
 
-# Chapter 19: Light of the Bhāgavata 19
+Light of the Bhāgavata 19
 
 **A crane stands on the edge of a pond that is always disturbed by flowing water, mud, and stones. The crane is like a householder who is disturbed in the shelter of his home but who, because of too much attachment, does not want to change his position.**
 
@@ -218,19 +238,21 @@ Unfortunately, for want of sufficient culture of the human spirit, no one wants 
 
 Unfortunately, for want of sufficient culture of this spirit, the materialistic man always sticks to this false place in spite of all its turmoils. It is said that a man should give up the order of householder life at the age of fifty. But in this era of ignorance even an old man wants to rejuvenate his bodily functions, put on artificial teeth, and make a pretense of youthful life, even on the verge of death. Cranelike politicians especially are too much attached to the false prestige of position and rank, and so they always seek reelection, even at the fag end of life. These are some of the symptoms of an uncultured life.
 
+### 20
 
-# Chapter 20: Light of the Bhāgavata 20
+Light of the Bhāgavata 20
 
 **Fierce torrents of rain break over the strands and the partition walls of the paddy field. These disturbances resemble those created by the seasonal opponents of the standard principles of the Vedas, who are influenced by the age of Kali.**
 
 Originally the path of self-realization was established by the standard direction of the *Vedas.* Śrīla Vyāsadeva divided the original *Veda* into four divisions, namely *Sāma, Atharva, Ṛg,* and *Yajur.* Then he divided the same *Vedas* into eighteen *Purāṇas* (supplements) and the *Mahābhārata,* and then again the same author summarized them in the *Vedānta-sūtras.* The purpose of all these Vedic literatures is to realize one's self to be a spiritual being, eternally related with the Supreme Personality of Godhead, the all-attractive form (Śrī Kṛṣṇa).
 
-But all these different Vedic literatures were systematically distorted by the onslaught of the age of Kali, as the walls of the paddy field and the strand of the river are distorted by the onslaught of heavy rains. The attacks of distortion are offered by atheistic philosophers who are concerned only with eating, drinking, being merry, and enjoying. These atheists are all against the revealed scriptures because such persons are intimately attached to sense pleasures and gross materialism. There are also others who do not believe in the eternity of life. Some of them propose that life is ultimately to be annihilated and that only the material energy is conserved. Others are less concerned with physical laws but do not believe anything beyond their experience. And still others equate spirit and matter and declare the distinction between them to be illusory.
+But all these different Vedic literatures were systematically distorted by the onslaught of the age of Kali, as the walls of the paddy field and the strand of the river are distorted by the onslaught of heavy rains. The attacks of distortion are offered by atheistic philosophers who are connected only with eating, drinking, being merry, and enjoying. These atheists are all against the revealed scriptures because such persons are intimately attached to sense pleasures and gross materialism. There are also others who do not believe in the eternity of life. Some of them propose that life is ultimately to be annihilated and that only the material energy is conserved. Others are less concerned with physical laws but do not believe anything beyond their experience. And still others equate spirit and matter and declare the distinction between them to be illusory.
 
 There is no doubt that the *Vedas* stand as the most recognized books of knowledge, from every angle of vision. But over the course of time the Vedic path has been attacked by philosophers like Cārvāka, Buddha, Arhat, Kapila, Patañjali, Śaṅkara, Vaikāraṇa, Jaimini, the Nyāyakas, the Vaiśeṣikas, the Saguṇists, the empiricists, the Pāśupata Śaivas, the Saguṇa Śaivas, the Brāhmas, the Aryas, and many others (the list of non-Vedic speculators grows daily, without restriction). The path of the *Vedas* does not accord with any principle devoid of an eternal relation with God, attainment of His devotional service, and culmination in transcendental love for Him.
 
+### 21
 
-# Chapter 21: Light of the Bhāgavata 21
+Light of the Bhāgavata 21
 
 **The wind carries the clouds to different parts of the globe, and the clouds distribute rains, to the satisfaction of the people in general, just as rich kings and merchants distribute their accumulated wealth, inspired by religious priests.**
 
@@ -240,8 +262,9 @@ In this age of Kali, when a slight difference of opinion leads to quarrel, even 
 
 The most intelligent men in society are the saints and sages who have sacrificed everything for the service of spiritual culture. Their duty is to travel throughout human society and inspire its members to engage themselves in acts of spiritual culture by sacrificing their words, money, intelligence, and life. That should be the theme of human life in order to make it a complete success. A society with no taste for spiritual culture is a blazing fire, and everyone in that fire perpetually suffers the threefold miseries. As clouds pour water on a blazing fire in the forest and thus extinguish it, the intelligent men who work as the spiritual masters of society pour water on the blazing fire of miseries by disseminating spiritual knowledge and inspiring the richer section of the society to help in the cause. Temples of worship, for example, are constructed by the rich, and these temples are meant to impart spiritual education to people in general. The periodic spiritual ceremonies are held for inspiration, and not for exploitation. If there are flaws now because of the age of Kali, they should be rectified, but the institutions must be saved.
 
+### 22
 
-# Chapter 22: Light of the Bhāgavata 22
+Light of the Bhāgavata 22
 
 **After the complete rainy season, the forest of Vṛndāvana was full of fruits like dates and blackberries ripening on the trees and bushes. Lord Śrī Kṛṣṇa, along with His elder brother, Śrī Baladeva, and other cowherd boys of the vicinity, entered the beautiful forest, accompanied by the cows, to display transcendental pastimes with His eternal friends.**
 
@@ -251,8 +274,9 @@ Therefore the Absolute Personality of Godhead, out of His limitless and causeles
 
 Lord Śrī Kṛṣṇa, the Supreme Personality of Godhead, appeared at Vṛndāvana about five thousand years ago, and the relics of His appearance at Vṛndāvana were lost from view. But Lord Śrī Caitanya Mahāprabhu, who is the very same Lord Śrī Kṛṣṇa in the form of a great devotee, appeared at Navadvīpa, a district in West Bengal, and excavated the holy places of Lord Śrī Kṛṣṇa's transcendental pastimes. He instructed the above-mentioned six Gosvāmīs to compose authorized literature on the cult of Vṛndāvana, and any serious student anxious to know about the Supreme Lord may take advantage of this invaluable literature and the guidance of authorized scholars and thus know about the Lord of Vṛndāvana, Śrī Kṛṣṇa, the Personality of Godhead.
 
+### 23
 
-# Chapter 23: Light of the Bhāgavata 23
+Light of the Bhāgavata 23
 
 **The cows that followed the Lord within the forest moved slowly because of their heavy, milk-laden udders. But when the Lord called them by their specific names they at once became alert, and as they hastened toward Him their milk bags overflowed and poured milk on the ground because of affection for the Lord.**
 
@@ -262,8 +286,9 @@ All of us living beings are differentiated expansions of the Lord, but our affec
 
 For spiritual realization one has to purify the heart and know things in their true perspective. As soon as one does this, the flow of one's natural affection begins to glide toward the Lord, and with the progress of this flow one becomes more and more self-realized in various relations with the Lord. The Lord is the center of all the affection of all living beings, who are all His parts and parcels. When the flow of natural affection for the Lord is clogged by desires to imitate His Lordship, one is said to be in *māyā,* or illusion. *Māyā* has no substantial existence, but as long as its hallucinations go on, their reactions are felt. The Lord, by His causeless mercy, displays the reality of life so that our hallucinations may be completely dissipated.
 
+### 24
 
-# Chapter 24: Light of the Bhāgavata 24
+Light of the Bhāgavata 24
 
 **When the Lord entered the forest of Vṛndāvana, all the inhabitants of the forest, both animate and inanimate, were eager to receive Him. He saw that the flowers of the forest, all fully blossoming, were weeping in ecstasy, honey flowing down their petals. The waterfalls on the hilly rocks were gladly flowing, and one could hear sweet sounds from the caves nearby.**
 
@@ -275,8 +300,9 @@ Flowers, waterfalls, trees, fruits, hills, caves, birds, beasts, and human being
 
 There are different stages of spiritual development in matter. In the material world the spiritual sparks of the Personality of Godhead are covered by the material energy in different proportions, and gradually they become spiritualized in various species of life. The human form of life represents the complete development of the senses for spiritual realization of one's original affection for the Lord. Therefore if despite this opportunity for human life we are unable to revive our natural affection for the Lord, we must know that we are wasting our life for nothing. By the grace of the Lord, however, the spiritual consciousness of every species of life can occupy its proper place, and these species can express their spiritual affection for the Lord in the *śānta-rasa,* as displayed by the land, water, hills, trees, fruits, and flowers of Vṛndāvana during the presence of Lord Śrī Kṛṣṇa, the Personality of Godhead.
 
+### 25
 
-# Chapter 25: Light of the Bhāgavata 25
+Light of the Bhāgavata 25
 
 **The Lord reciprocated the feelings of the inhabitants of the forest of Vṛndāvana. When there was rainfall, the Lord took shelter at the feet of the trees or in the caves and enjoyed the taste of different fruits with his eternal associates the cowherd boys. He played with them, sat with them, and ate fruits with them.**
 
@@ -284,8 +310,9 @@ Becoming one with God does not always indicate that a living being merges into t
 
 In Vṛndāvana all the spiritual entities—the cowherd boys, the cow maids, the forest, the trees, the hills, the water, the fruits, the cows, and all others—enjoy life spiritually in association with the Lord, Śrī Kṛṣṇa. They are simultaneously one with and different from the Lord. But ultimately they are one in different varieties.
 
+### 26
 
-# Chapter 26: Light of the Bhāgavata 26
+Light of the Bhāgavata 26
 
 **The Lord enjoyed in the company of Lord Baladeva and the other cowherd boys and sometimes sat with them on the same stone slab. While sitting they ate simple food like rice, dal, vegetables, bread, and curd, which they had brought from their homes and which they shared in friendly exchanges.**
 
@@ -293,8 +320,9 @@ In *Bhagavad-gītā* the Lord has expressed His willingness to accept fruit, flo
 
 The Lord is never hungry, nor does He require any food to fill His empty stomach. He is complete in Himself. Yet He always mercifully eats the foods offered by His devotees in sincere affection. The cowherd boys brought simple foodstuffs from home, and the Lord, who is constantly served by hundreds and thousands of goddesses of fortune, is always glad to accept such simple foodstuffs from His devotee friends. All the relatives of the Lord are His devotees only, and they are situated in different transcendental mellows as friends, parents, and lovers. The Lord derives transcendental pleasure by accepting services from His various grades of devotees, who are situated in various grades of *rasas.* These transcendental *rasas* are pervertedly reflected in the material atmosphere, and thus the spiritual living being, out of ignorance only, vainly seeks the same bliss in matter.
 
+### 27
 
-# Chapter 27: Light of the Bhāgavata 27
+Light of the Bhāgavata 27
 
 **After good rains the grazing ground for the animals was full of green pasture, and both the bulls and the cows sat down on the grass fully satisfied. The cows, followed by their calves, appeared tired of grazing, because of full milk bags. Calmly and quietly the cows and calves rested and ruminated, chewing their cud.**
 
@@ -304,17 +332,19 @@ Less intelligent people underestimate the value of cow's milk. Cow's milk is als
 
 If we really want to cultivate the human spirit in society we must have first-class intelligent men to guide the society, and to develop the finer tissues of our brains we must assimilate vitamin values from milk. Devotees worship Lord Śrī Kṛṣṇa by addressing Him as the well-wisher of the *brāhmaṇas* and the cows. The most intelligent class of men, who have perfectly attained knowledge in spiritual values, are called the *brāhmaṇas.* No society can improve in transcendental knowledge without the guidance of such first-class men, and no brain can assimilate the subtle form of knowledge without fine brain tissues. For such important brain tissues we require a sufficient quantity of milk and milk preparations. Ultimately, we need to protect the cow to derive the highest benefit from this important animal. The protection of cows, therefore, is not merely a religious sentiment but a means to secure the highest benefit for human society.
 
+### 28
 
-# Chapter 28: Light of the Bhāgavata 28
+Light of the Bhāgavata 28
 
 **The fully beautiful scenery after the rainy season was attractive to the eyes of everyone, including Śrī Kṛṣṇa, the cause of all causes.**
 
 We should always appreciate the creative energy of the Supreme Lord. Beautiful nature, even though material and therefore temporary, is always full of the glories of the creator. There is a class of philosophers who condemn the material creation as false. They say that Brahman is truth but the creation is false. This is not good. The temporary creation is also a relative truth. It is in fact the temporary picture of the eternal creation. The forgetful soul has no information of the spiritual creation, known as the *sanātana-dhāma,* but the temporary creation gives an idea of this original creation. The devotees of the Lord, therefore, make the best use of the bad bargain by utilizing the temporary creation in the service of the Lord.
 
-Everything emanates as different energies from the Lord, and thus everything should be engaged for His service only. As soon as even temporary things are engaged in His service, they take on permanent values. The process of such engagement in the service of the Lord is what the sages call *cikitsitam,* or "well treated." If we have some kind of trouble in the stomach from drinking milk, the physician prescribes the same milk in the form of yogurt, which is nothing but treated milk. Similarly, the temporary creation of the material world is undoubtedly full of miseries, but when accepted in terms of its relation with the Supreme Lord, the whole thing becomes as well treated as the yogurt. Everything accepted in full God consciousness has its spiritual value, and by the grace of the Almighty its material effects are diminished in terms of the increasing degree of spiritual consciousness. That is the process for cultivating the human spirit.
+Everything emanates as different energies from the Lord, and thus everything should be engaged for His service only. As soon as even temporary things are engaged in His service, they take on permanent values. The process of such engagement in the service of the Lord is what the sages call *cikitsitam,* or "well treated." If we have some kind of trouble in the stomach from drinking milk, the physician prescribes the same milk in the form of curd, which is nothing but treated milk. Similarly, the temporary creation of the material world is undoubtedly full of miseries, but when accepted in terms of its relation with the Supreme Lord, the whole thing becomes as well treated as the yogurt. Everything accepted in full God consciousness has its spiritual value, and by the grace of the Almighty its material effects are diminished in terms of the increasing degree of spiritual consciousness. That is the process for cultivating the human spirit.
 
+### 29
 
-# Chapter 29: Light of the Bhāgavata 29
+Light of the Bhāgavata 29
 
 **Thus the rainy season came to an end. The autumn began, and there were no more clouds in the sky. All the reservoirs of water became crystal clear, and the wind was no longer forceful. Lord Kṛṣṇa, along with His elder brother, Lord Baladeva, lived at Vṛndāvana in this auspicious season.**
 
@@ -324,8 +354,9 @@ The material sky is also the spiritual sky, but it is covered by the modes of ma
 
 There are two kinds of living entities, namely the conditioned and the pure. It is for the conditioned living entities that the material nature is created, and the conditioned souls are put into it to become pure, unconditioned souls. Those who become unconditioned by devotional service enter into the eternal kingdom of God, and those who lose the chance rot in dormant material conditions, sometimes manifested and sometimes unmanifested. Lord Śrī Kṛṣṇa descends to reclaim the conditioned souls.
 
+### 30
 
-# Chapter 30: Light of the Bhāgavata 30
+Light of the Bhāgavata 30
 
 **In autumn all the reservoirs of water become enriched with growing lotuses. The muddy water again becomes normally clear and decorated, just as fallen, conditioned souls once more become spiritually enriched in devotional service.**
 
@@ -340,8 +371,9 @@ Unfortunately, cheap neophytes make a show of the transcendental ecstasies of th
 > śraddhāvān bhajate yo māṁ
 > sa me yuktatamo mataḥ
 
+### 31
 
-# Chapter 31: Light of the Bhāgavata 31
+Light of the Bhāgavata 31
 
 **The four prominent features of autumn are that there is no water in the sky, the weeds that grew here and there in the rainy season all wither away, the muddy roads and fields dry up, and the ponds of water become crystal clear. These four features of the autumn atmosphere are compared to the four orders of life.**
 
@@ -353,8 +385,9 @@ The *vānaprasthas,* who voluntarily avoid cleaning themselves and who allow the
 
 Therefore, in all four spiritual orders and four grades of social life, devotional service to the Lord is essential. Without this relationship, all the regulative principles of *varṇa* and *āśrama* become burdensome duties, as they have in the age of Kali. When the regulative principles have no aim, the *varṇas* become a caste system and the *āśramas* become the business of various shopkeepers. All these anomalies of the present social system can be reformed only by cultivation of the human spirit in the devotional service of the Lord.
 
+### 32
 
-# Chapter 32: Light of the Bhāgavata 32
+Light of the Bhāgavata 32
 
 **The beautiful white clouds, freed from all burdens of water distribution, float in midair, like mendicants freed from all family responsibilities.**
 
@@ -366,17 +399,19 @@ In Kali-yuga, however, the entire system has gone topsy-turvy. The student lives
 
 But that does not mean that there is no reality in them. One should not conclude that there is no good money simply because one has met with counterfeit coins. The *sannyāsa-āśrama* is meant for complete freedom from all anxieties, and it is meant for uplifting the fallen souls, who are merged in materialism. But unless the *sannyāsī* is freed from all cares and anxieties, like a white cloud, it is difficult for him to do anything good for society.
 
+### 33
 
-# Chapter 33: Light of the Bhāgavata 33
+Light of the Bhāgavata 33
 
 **There are waterfalls flowing from the hills of the forest, but sometimes water does not flow from them. So the waterfalls are not like ordinary rainfall. They are compared to great reformers, who speak or do not speak, as the time requires.**
 
 There are two different kinds of religious preachers. One of them is called the professional preacher, and the other is called the *ācārya.* The professional preachers are like the rainfall from the sky, but the *ācāryas* are like waterfalls. The professional traders in *Bhāgavatam* and *Rāmāyaṇa* will speak from the portion of the scripture that will appeal to the mundane senses of the audience. For example, the professional *Bhāgavatam* reciter will generally speak on the subject of *rāsa-līlā,* which appears to the layman to be something like the dealings of ordinary men and women. Thus the professional reciters earn money from their so-called admirers. But an *ācārya* will never speak on *rāsa-līlā* to the general mass of people. The *rāsa-līlā* chapters of the *Bhāgavatam* are the most confidential part of the scripture, and they are meant for advanced students of spiritual realization. In the *Bhāgavatam* there are twelve cantos, and the *rāsa-līlā* is in the tenth. So before one comes to the Tenth Canto, the *Bhāgavatam* tries to convince him of the transcendental nature of the Absolute Truth. Unless one has grasped the spiritual status of the Supreme Personality of Godhead, one is sure to accept Him as an ordinary man and thereby commit offenses at His lotus feet by so many unwanted activities.
 
-The *ācārya* is he who knows the scriptures well and teaches his disciples in terms of the disciple's capacity to understand and advance in spiritual realization. Therefore he sometimes speaks and sometimes does not speak. The holy messages of Godhead have to be received from the realized soul, and not from the professional man. Although rainwater and the waterfalls are the same, the water from the waterfalls has a different effect than ordinary rainwater. One should not accept messages from the professional men, as one should not accept milk touched by the tongue of a serpent. Milk is good, but as soon as it is touched by the snake it becomes poisonous. The *ācārya,* therefore, is not a mercenary order-supplier like the professional reciter of scriptures.
+The *ācārya* is he who knows the scriptures well and teaches his disciples in terms of the disciple's capacity to understand and advance in spiritual realization. Therefore he sometimes speaks and sometimes does not speak and sometimes speaks. The holy messages of Godhead have to be received from the realized soul, and not from the professional man. Although rainwater and the waterfalls are the same, the water from the waterfalls has a different effect than ordinary rainwater. One should not accept messages from the professional men, as one should not accept milk touched by the tongue of a serpent. Milk is good, but as soon as it is touched by the snake it becomes poisonous. The *ācārya,* therefore, is not a mercenary order-supplier like the professional reciter of scriptures.
 
+### 34
 
-# Chapter 34: Light of the Bhāgavata 34
+Light of the Bhāgavata 34
 
 **Small pools of water accumulate during the rainy season, and in the autumn they gradually dry up. The little creatures playing in those small pools do not understand that their days are now numbered and will end very soon. Thus they are like foolish men who, not caring for the nearing day of their death, become absorbed in the so-called enjoyment of family life.**
 
@@ -384,8 +419,9 @@ Foolish politicians are too attached to family life. A big politician means a bi
 
 As already mentioned, the human life must be divided into four component parts: the student life, the householder life, the preparative life, and the life of dedication to the service of the Lord. One must retire from all sorts of family life, big or small, at the age of fifty, and thus prepare for the next life. That is the process of human culture. The householders are allowed a pension from service so that they can live for a higher cultural life. But foolish men, reluctant even to accept this pension, want to artificially increase the duration of their life. Such foolish men should take lessons from the drying pools of water and should know, in their own interests, that life is eternal, continuing even after death. Only the body changes, whether spiritually or materially. An intelligent man should be careful to know what sort of body is going to be awarded him, and thus he must prepare for a better life in other planets, even if he is reluctant to go back to Godhead.
 
+### 35
 
-# Chapter 35: Light of the Bhāgavata 35
+Light of the Bhāgavata 35
 
 **When the small pools of water become too hot because of the scorching heat of the autumn sun, the poor, small creatures, with their many family members, suffer terribly, as poor householders with too many family members suffer economic strains and yet go on begetting children because of uncontrolled senses.**
 
@@ -397,8 +433,9 @@ Spiritual culture means pursuing a better engagement in life. When a man engages
 
 The attention of a human being, therefore, should be drawn to the cultivation of the human spirit, for this will gradually protect him from all sorts of discomfiture and elevate him to a higher status of life for real and eternal enjoyment in personal contact with the Personality of Godhead, Śrī Kṛṣṇa.
 
+### 36
 
-# Chapter 36: Light of the Bhāgavata 36
+Light of the Bhāgavata 36
 
 **With the progress of the autumn season the moist earth and muddy places begin to dry up, and the green vegetation begins to fade. This drying up and fading resembles the gradual disappearance of the false sense of affinity and ego.**
 
@@ -408,8 +445,9 @@ The ultimate goal of cultivating the human spirit is God realization and surrend
 
 Cultivation of the human spirit is not, therefore, mere adjustment of materialistic anomalies. It is the process for preparing oneself to be promoted to the spiritual kingdom. No one can adjust the sufferings of material existence, but by spiritual culture one can elevate himself from the effects of such miserable life. As an example one may cite the condition of a dry coconut. The dry coconut pulp automatically becomes separated from its outer skin. Similarly, the outer skin, or the gross and subtle material coverings of the soul, automatically separates from the spirit soul, and the spirit soul can then exist in spiritual existence, even though apparently within the dry skin. This freedom from the false sense of ego is called the liberation of the soul.
 
+### 37
 
-# Chapter 37: Light of the Bhāgavata 37
+Light of the Bhāgavata 37
 
 **With the inauguration of the autumn season the rough sea becomes calm and quiet, just like a philosopher after self-realization, who is no longer troubled by the modes of nature.**
 
@@ -421,8 +459,9 @@ Too much of an external view of the world gives rise to an overly large-scale an
 
 According to the *varṇāśrama* principle, it is compulsory that one retire after the age of fifty, without considering other circumstances. Business offices close at a fixed hour no matter what balance of work remains. Similarly, after the age of fifty one must retire from the active, external life and devote oneself to the introspective cultivation of the human spirit. This retirement must be compulsory, so that foolish old men will no longer disturb the peaceful progress of spiritual culture. In the modern democratic government, no one should be elected after the age of fifty. Otherwise the storm of the ocean of nescience cannot be stopped to allow the ships and boats to sail back to Godhead. The greatest enemies of progressive spiritual culture in human society are the old fossils of political parties who are blind themselves and who try to lead other blind men. They bring about disaster in a peaceful human society. The members of the younger generation are not as stupid as the old politicians, and therefore by state law the foolish old politicians must retire from active life at the age of fifty.
 
+### 38
 
-# Chapter 38: Light of the Bhāgavata 38
+Light of the Bhāgavata 38
 
 **After the rainy season, the farmers begin to rebuild the partitioning walls of the paddy fields so that the water will be conserved, just as yogīs try to use their conserved energy for self-realization.**
 
@@ -434,8 +473,9 @@ The energy of our senses is meant to be diverted, not stopped. The senses are to
 
 As there is no chance of rain from the sky in autumn, we shall not immediately have a chance to get a human body again if we spend our conserved energy for sense enjoyment. The senses have their utility for the service of the Lord, and if properly engaged they can reach the highest perfection by being directly engaged in the service of the Lord in His personal presence. When the living entity thus goes back home, back to Godhead, and engages in the personal service of the Lord, he is said to have attained *saṁsiddhi paramā,* the highest perfection. This is confirmed in *Bhagavad-gītā.*
 
+### 39
 
-# Chapter 39: Light of the Bhāgavata 39
+Light of the Bhāgavata 39
 
 **In the autumn there is a gulf of difference between the day and the night. During the day the extreme heat of the sun is unbearable, but at night the moonlight is extremely soothing and refreshing. Similarly, Lord Śrī Kṛṣṇa is soothing for both the gopīs and the mundane man in illusion, who accepts the body as the soul.**
 
@@ -443,8 +483,9 @@ As long as the living being, under illusion, accepts the body or the mind as the
 
 The example of the damsels of Vrajabhūmi Vṛndāvana (the *gopīs*) is given here because these eternal consorts of the Lord terribly suffered the separation of Lord Kṛṣṇa when the Lord was absent from their presence for His engagement in tending the cows in the forest. During the absence of Kṛṣṇa, the entire day would appear to the *gopīs* to be as unbearable as a hot day in autumn. The Lord so much appreciated this natural feeling of the *gopīs* that He declared His inability to repay their intense love. Lord Caitanya recommended the feeling of the *gopīs* as the highest mode of worship that can be rendered to the Lord. The conclusion is that the regular practice of *bhakti-yoga* will lead the devotee to the plane of intense love for the Lord, and that is the single qualification by which the conditioned soul is allowed to reenter the eternal life of bliss in the kingdom of God. The threefold miseries of material existence are at once nullified by intense love of God, which is the ultimate goal of cultivating the human spirit.
 
+### 40
 
-# Chapter 40: Light of the Bhāgavata 40
+Light of the Bhāgavata 40
 
 **In the clear autumn sky the twinkling stars appear brighter and brighter, just like a transcendentalist clear vision of the purpose of the Vedas.**
 
@@ -469,16 +510,17 @@ The Lord says that in the *Vedas* it is mentioned that there are two kinds of li
 
 "Besides these innumerable fallible and infallible living beings there is another, superior personality, known as the Paramātmā. He pervades all the three worlds and exists as the supreme controller.
 
-"And because I [Lord Śrī Kṛṣṇa] am transcendental to all of them, even those who are infallible, I am known in all the *Vedas* and histories [the *Purāṇas, Mahābhārata, Rāmāyaṇa,* etc.] as the Absolute Supreme Personality of Godhead." (Bg. 15.17-18)
+"And because I [Lord Śrī Kṛṣṇa] am transcendental to all of them, even those who are infallible, I am known in all the *Vedas* and histories [the *Purāṇas, Mahābhārata, Rāmāyaṇa,* etc.] as the Absolute Supreme Person." (Bg. 15.17-18)
 
 The import of the *Vedas* is still more explicitly explained in *Śrīmad-Bhāgavatam.* The conclusion of the Vedic literatures is that Lord Śrī Kṛṣṇa is the primeval Lord and the cause of all causes. He has His eternal two-armed form as Śyāmasundara, with features exactly like those of a most beautiful young man, and that is the sum and substance of the *Vedas* concerning God. God is one, but the living entities, including both the liberated and the conditioned, are many and have many different grades of positions. The living entities are never equal to God, but as parts and parcels of the Lord they are eternally His servitors. As long as the living entities are situated normally as His servitors they are happy; otherwise they are always unhappy. That is the Vedic conclusion.
 
+### 41
 
-# Chapter 41: Light of the Bhāgavata 41
+Light of the Bhāgavata 41
 
 **In the clear sky of autumn, the beautiful moon among the beautiful stars becomes the cynosure of all eyes, just as Lord Śrī Kṛṣṇa is the central attraction in the Vṛṣṇi dynasty or in the family of Yadu.**
 
-The Personality of Godhead, Śrī Kṛṣṇa, appeared in the family of Yadu, and since then the Yadu dynasty has been luminous like the moon in autumn. The appearance and disappearance of the Lord are similar to the appearance and disappearance of the sun. The sun is first seen on the eastern horizon, but that does not mean that the sun is the son of that side. The sun is fixed in its own orbit, and it neither rises nor sets. But because we first see it on the eastern horizon we may say that the sun rises on that side. Similarly, the appearance of Godhead in some particular family does not mean that He is limited by obligations to that family. He is fully independent and may appear and disappear. anywhere and everywhere, because He is all-pervading.
+The Personality of Godhead, Śrī Kṛṣṇa, appeared in the family of Yadu, and since then the Yadu dynasty has been luminous like the moon in autumn. The appearance and disappearance of the Lord are similar to the appearance and disappearance of the sun. The sun is first seen on the eastern horizon, but that does not mean that the sun is the sun of that side. The sun is fixed in its own orbit, and it neither rises nor sets. But because we first see it on the eastern horizon we may say that the sun rises on that side. Similarly, the appearance of Godhead in some particular family does not mean that He is limited by obligations to that family. He is fully independent and may appear and disappear. anywhere and everywhere, because He is all-pervading.
 
 Less intelligent persons cannot accommodate the appearance and disappearance of the Lord as an incarnation, but there is no sound reasoning to support such unbelievers. If God is all-pervading, like the power of electricity, He can manifest Himself at any place within His creation. When He is within we cannot see Him, but when He is without He is seen by everyone, although very few know Him as He is. Everyone sees the sun every day, but that does not mean that everyone knows what the sun actually is. Similarly, when Lord Śrī Kṛṣṇa was present five thousand years ago, very few could know what He was.
 
@@ -500,8 +542,9 @@ But there are foolish persons who take Him to be an ordinary man, not knowing th
 
 "Fools deride Me when I descend in the human form. They do not know My transcendental nature and My supreme dominion over all that be."
 
+### 42
 
-# Chapter 42: Light of the Bhāgavata 42
+Light of the Bhāgavata 42
 
 **At night in autumn the atmosphere is pleasant because it is neither very hot nor very cold. The mild wind blowing through the gardens of fruits and flowers in Vṛndāvana appeared very much pleasing to all—all but the gopīs, who were always overtaken by heartfelt sorrow in the absence of Kṛṣṇa.**
 
@@ -513,8 +556,9 @@ In the mundane world there is also some shadow of such *viraha.* A loving wife, 
 
 The spiritual situation, however, is completely different. A bona fide lover of God could never forget Him, even in exchange for everything else. The devotee of the Lord cannot be happy in any circumstance without the Lord. In the absence of the Lord the devotee associates with Him by remembering His separation, and because the Lord is absolute, the devotee's feeling of separation is transcendentally more relishable than direct contact. This is possible only when we develop genuine love for Him. In that state the devotee is always with the Lord by feelings of separation, which become more acute and intolerable in suitable circumstances. The mild wind reminded the *gopīs* of the association of the Lord, and they felt separation from Him acutely.
 
+### 43
 
-# Chapter 43: Light of the Bhāgavata 43
+Light of the Bhāgavata 43
 
 **In the autumn season all the birds, beasts, and men become sexually disposed, and the bull, the stag, the male bird, the man, and other male creatures forcibly impregnate the fair sex. A similar impregnation takes place as a result of devotional service to the Lord.**
 
@@ -526,8 +570,9 @@ A devotee, therefore, should execute his devotional services with full energy, e
 
 We should not consider going back to Godhead a plaything. We must take it seriously, as enjoined in the scriptures. For a strict follower, the result is sure and certain, and when the time is right the result will come of its own force. Dhruva Mahārāja went to worship God to gain something, but when he actually came in contact with God he did not want anything from the Lord. The Lord, however, awarded Dhruva Mahārāja both benefits—that is, the Lord fulfilled his desires and also gave him eternal salvation. Such are the lessons we learn from all the revealed scriptures. The almighty God awards the results we desire, and therefore we should desire that which is eternal, blissful, and full of knowledge. In devotional service we should not endeavor for that which is temporary and useless.
 
+### 44
 
-# Chapter 44: Light of the Bhāgavata 44
+Light of the Bhāgavata 44
 
 **In the autumn season all the reservoirs of water are full of lotus flowers. There are also flowers that resemble the lotus but are of a different class. Among them is a flower called kumuda. When the sun rises, all the flowers but the kumuda blossom beautifully. Similarly, lotuslike men take pleasure in the advent of a responsible king, but men who are like the kumuda do not like the existence of a king.**
 
@@ -535,10 +580,11 @@ In this age of Kali the people want their own government, because the kings have
 
 In a monarchy, one man sufficiently trained was competent enough to conduct alone the business of the state. But in a democracy no one is trained like a prince; instead, politicians are voted to responsible posts of administration by diplomatic arrangements. In place of one king or supreme executive officer, in a democracy there are so many quasi-kings: the president, the ministers, the deputy ministers, the secretaries, the assistant secretaries, the private secretaries, and the undersecretaries. There are a number of parties—political, social, and communal—and there are party whips, party whims, and so on. But no one is well enough trained to look after the factual interests of the governed. In a so-called democratic government, corruption is even more rampant than in an autocracy or monarchy.
 
-Men who want to flourish in the guise of servants of the people do not want a good king at the head of the state. They are like the *kumuda* flowers, which do not take pleasure in the sunrise. The word *ku* means "bad," and *mud* means "pleasure." Persons who want to exploit the administrative power for their own self-interest do not like the presence of a good king. Although professing democracy, they want to be kings themselves. Thus they compete for votes by bad propaganda and take pleasure in having politics but no king. Thieves and dacoits also take no pleasure in the presence of a good king, but it is in the interest of the people to have a well-trained king as the head of the state.
+Men who want to flourish in the guise of servants of the people do not want a good king at the head of the state. They are like the *kumuda* flowers, which do not take pleasure in the sunrise. The word *ku* means "bad," and *mud* means "pleasure." Persons who want to exploit the administrative power for their own self-interest do not like the presence of a good king. Although professing democracy, they want to be kings. Thus they compete for votes by bad propaganda and take pleasure in having politics but no king. Thieves and dacoits also take no pleasure in the presence of a good king, but it is in the interest of the people to have a well-trained king as the head of the state.
 
+### 45
 
-# Chapter 45: Light of the Bhāgavata 45
+Light of the Bhāgavata 45
 
 **After the new grains were cut and brought home from the paddy fields, the people began to observe the navānna ceremony everywhere, in the presence of the Lord as Śrī Kṛṣṇa and Baladeva.**
 
@@ -550,8 +596,9 @@ We should always acknowledge the mercy of God. We should not think that we can p
 
 When Lord Kṛṣṇa and Baladeva were present, the good men of Vṛndāvana realized that it was due to the presence of the Lord that their supply of food grains was sufficient. Some of the people of Vṛndāvana, including Lord Kṛṣṇa's father, Nanda Mahārāja, used to perform sacrifices to propitiate King Indra, the king of heaven, because he is the controller of rains. Without good rains, grains cannot be produced, and therefore the people would offer sacrifices to Indra. Lord Śrī Kṛṣṇa, however, stopped this age-old ceremony and advised His father to offer the same sacrifice to the Supreme Lord. His purpose was to teach that we need not satisfy the various demigods in charge of the various departments of cosmic affairs; instead we must offer sacrifices to the Supreme Lord, for the Lord is the master and all others are His servants. The famous *anna-kūṭa* ceremony, performed in Vṛndāvana especially and also in all other parts of India, was thus introduced by the Lord, and people still follow this path by worshiping Govardhana Hill, where the Lord used to take pleasure in tending cows. People also worship Giri Govardhana as identical with the Lord, because there is no difference between God and His paraphernalia and pastimes.
 
+### 46
 
-# Chapter 46: Light of the Bhāgavata 46
+Light of the Bhāgavata 46
 
 **The merchants, preachers, kings, and students who were confined to home during the four months June, July, August, and September began to flow out and attain success in life, just as perfected souls attain the required body as soon as they leave the present one.**
 
@@ -561,14 +608,15 @@ In the same way, one cannot achieve the desired results of one's penances until 
 
 The merchants, preachers, kings, and students form the four important sections of human society. The merchants should see that everyone gets his proper share of the food given as a gift by God. The *sannyāsī* preachers should go from door to door to preach the sense of God consciousness, not to build *maṭhas* and temples but to enlighten the people. The king should go out from his home to see with his own eyes how things are going on. (Mahārāja Parīkṣit, while on tour, saw a man, Kali, attempting to kill a cow, so the king at once punished him.) And students should gather knowledge wherever it is available. The combined work of these four sections is meant for the general welfare of society.
 
+### 47
 
-# Chapter 47: Light of the Bhāgavata 47
+Light of the Bhāgavata 47
 
 **From the Transcendence, which is called Kṛṣṇaloka, there emanates a glowing effulgence that resembles the tail of a comet. This glowing effulgence is unlimited, immeasurable, and unfathomable. Within this effulgence there are innumerable glowing planets, each of them self-luminous. Somewhere, a limited part of that glowing effulgence is covered by material energy, just as a part of the sky is covered by a cloud. Within this material energy there are innumerable universes, in every universe there are innumerable material planets, and the earth is one of these planets. Thus we can understand what an insignificant part of the entire cosmos is this globe on which we live.**
 
 Kṛṣṇaloka, as above mentioned, is the residence of the Personality of Godhead, the original Transcendence. The glowing effulgence emanating from Kṛṣṇaloka is the personal glow of the Lord. The almighty Lord, being full of inconceivable energies, expands Himself in various forms and energies. There are forms from His energy as well as forms from His person. He has innumerable energies, and therefore He can do anything and everything as He desires, and these things take place immediately, with all perfection. His energies are like the heat and light that expand from a fire. The entire cosmic manifestation is nothing but an expansion of His energies; the energies are emanations from Him, and therefore the emanations are simultaneously one with and different from Him.
 
-The Transcendence is compared to milk, and the emanations are compared to yogurt. Yogurt is nothing but milk, but at the same time it is different from milk. Yogurt is a milk preparation, but it cannot be used in place of milk. The Lord is also sometimes compared to a tree. The root of the tree is the cause of the trunk, branches, twigs, leaves, and fruits, yet the trunk is not the fruit, the fruit is not the leaf, nor is the leaf the root. When water is needed it has to be poured on the root, not on the leaves. Pouring water on the leaves serves no purpose, but pouring water on the root serves all purposes. This is the essence of the philosophy of spiritual culture.
+The Transcendence is compared to milk, and the emanations are compared to curd. Curd is nothing but milk, but at the same time it is different from milk. Curd is a milk preparation, but it cannot be used in place of milk. The Lord is also sometimes compared to a tree. The root of the tree is the cause of the trunk, branches, twigs, leaves, and fruits, yet the trunk is not the fruit, the fruit is not the leaf, nor is the leaf the root. When water is needed it has to be poured on the root, not on the leaves. Pouring water on the leaves serves no purpose, but pouring water on the root serves all purposes. This is the essence of the philosophy of spiritual culture.
 
 Kṛṣṇaloka is also called Goloka Vṛndāvana. Beneath this Goloka are Hari-dhāma, Maheśa-dhāma, and Devī-dhāma. Hari (Viṣṇu, Nārāyaṇa) is the formal expansion of the Lord, Maheśa (Śiva) is the formal energetic expansion of the Lord, and Devī is the Lord's energetic expansion. The living entities are also energetic expansions of the Lord. There are two different kinds of living entities, called the liberated souls and the conditioned souls.
 
@@ -580,8 +628,9 @@ The conditioned living entities who wish to enjoy and not serve are given a chan
 
 The system of *bhakti-yoga* makes one eligible to enter Hari-dhāma, the system of *jñāna-yoga* makes one eligible to enter Maheśa-dhāma, and the system of *karma-yoga* obliges one to remain in Devī-dhāma and repeatedly be born and die, changing his material covering according to the standard of *karma* he performs.
 
+### 48
 
-# Chapter 48: Light of the Bhāgavata 48
+Light of the Bhāgavata 48
 
 **The moon, or Candraloka, is one of the four important places of residence for the demigods. Beyond Mānasa Lake is Sumeru Mountain. On the eastern side of this mountain is the planet Devadhānī, where Indra resides. On the southern side is the planet known as Saṁyamanī, where Yamarāja resides. On the western side is the planet known as Nimlocanī, the residence of Vāyu, the demigod who controls the wind. And on the northern side of the mountain is the moon, which is also known as Vibhāvarī.**
 
@@ -590,4 +639,3 @@ All these various planets are within the universe in which our planet is situate
 The moon is too cold for the inhabitants of this earth, and therefore ordinary persons who want to go there with earthly bodies are attempting to do so in vain. Merely seeing the moon from a distance cannot enable one to understand the real situation of the moon. One has to cross Mānasa Lake and then Sumeru Mountain, and only then can one trace out the orbit of the moon. Besides that, no ordinary man is allowed to enter that planet. Even those admitted there after death must have performed the prescribed duties to satisfy the *pitās* and *devas.* Yet even they are sent back to earth after a fixed duration of life—on the moon.
 
 Men with developed consciousness, therefore, do not waste time making excursions, real or imaginary, to the moon. Such intelligent persons do not endeavor to achieve temporary sense enjoyment. Rather, they apply their conserved energy for the sake of spiritual cultivation. They discharge religious duties for the satisfaction of the Supreme Lord, and not for personal sense enjoyment. The signs of such exceptional devotees of the Lord are that they are unattached to material enjoyment, contented, pure in heart, attached to devotional service, free from affection for temporary things, and devoid of false ego. According to Vedic injunctions, such great personalities ultimately attain the place where the Supreme Personality of Godhead predominates and where there is no death, no birth, no old age, and no disease. On the way to these spiritual planets, such personalities pass through the sun line called *arcir-mārga.* And on the way they can see all the planets between here and the spiritual world.
-

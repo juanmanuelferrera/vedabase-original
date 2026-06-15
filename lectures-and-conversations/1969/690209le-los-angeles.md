@@ -1,0 +1,47 @@
+# Lecture [partially recorded]
+
+*Type: Lectures and Addresses Dated: February 9th 1969 Location: Los Angeles Audio file: 690209LE-LOS-ANGELES.mp3*
+
+**Prabhupāda:** ...it is taken, orphans are very much forlorn. But in the presence of parents also, many children are suffering. And [in] the presence of good medicine, good physician, many people are dying. It is not guaranteed. Suppose one is diseased, suffering. If you engage good, qualified physician, good medicine, and therefore there is guarantee of cure? No. There is no guarantee. The medical practitioners say, "We cannot guarantee. We are trying our best. That's all." Similarly, when a person is drowning in the water, if you send a good boat to save him, that is also not guaranteed.
+
+In this way if we study, that we are completely dependent on something else. Our process of making ourself independent... We may manufacture so many things for our independence, but *śāstra* says unless there is protection from the Supreme Personality of Godhead, these methods and processes will not save us. *Tāvat tanu-bhṛtāṁ tvad-upekṣitānām.* If Kṛṣṇa does not [sic] like, does not wish that "These children will suffer in spite of good parents," so that suffering nobody can check. "This man must drown in spite of very nice, good boat and ship"—nobody can check. "This man must die in spite of good physician and medicine"—he must die.
+
+Therefore our first relief, guaranteed relief, is this shelter of Kṛṣṇa. If we take shelter of Kṛṣṇa, even there is some deficiencies in the matter of protecting us, Kṛṣṇa will save. Therefore we should depend on Kṛṣṇa. That is called *śaraṇāgati,* surrender, to believe that "Kṛṣṇa will give us protection." Without Kṛṣṇa's protection, no other protection is valid. There is no guarantee. So in every way we shall surrender to Kṛṣṇa. Kṛṣṇa also guarantees, *ahaṁ tvāṁ sarva-pāpebhyo mokṣayiṣyāmi* *Bg.* 18.66*.*
+
+**[Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear.]**
+
+Our sufferings are due to our sinful activities. So Kṛṣṇa gives guarantee that *ahaṁ tvāṁ sarva-pāpebhyo mokṣayiṣyāmi:* "I shall save you from all kinds of sinful reaction."
+
+So *śaraṇāgati,* surrender to Kṛṣṇa, is our only business. This Kṛṣṇa consciousness movement is trying to teach people to..., not to declare independence, which is not possible, not to try to make this world happy without Kṛṣṇa. That is not possible. That is our propaganda. Whatever you do, you take shelter of Kṛṣṇa, or God. "Kṛṣṇa" is the most explicit term for God. God may have many names. Kṛṣṇa is the perfect name.
+
+God has no name; some philosophers say like that. "No name" means that His name is understood by His different action. Just like Kṛṣṇa is sometimes called Yaśodā-nandana. Because He has accepted Mother Yaśodā, to become her son, therefore Kṛṣṇa's name is Yaśodā-nandana. Kṛṣṇa's name is Pārtha-sārathi. Why? Because Kṛṣṇa has accepted to become a chariot driver of Arjuna. Pārtha means Arjuna, and *sārathi* means chariot driver. So Kṛṣṇa's name became Pārtha-sārathi. Kṛṣṇa used to steal butter from the stock of His mother's butter stock; therefore Kṛṣṇa's name is Mākhana-cora. So in this way Kṛṣṇa's name are varieties.
+
+Kṛṣṇa has unlimited number of activities, and according to such activity He has got unlimited names. But the primary name which is applicable in all circumstances is "Kṛṣṇa." *Kṛṣṇa* means "all-attractive." Kṛṣṇa attracts everyone. Otherwise, how you're attracted? If Kṛṣṇa is not all-attractive... From the beginning of your life you never heard of Kṛṣṇa, neither you knew about Kṛṣṇa. Why you are attracted? Huh? So Kṛṣṇa is all-attractive. That is the perfect name of God, "Kṛṣṇa." Otherwise, Kṛṣṇa has got many names, *sahasra* name, thousands of names. This name is...
+
+[aside:] Just, time is up? Or...
+
+So *kṛṣṇas tu bhagavān svayam* *SB* 1.3.28*.*
+
+**[All of the above-mentioned incarnations are either plenary portions or portions of the plenary portions of the Lord, but Lord Śrī Kṛṣṇa is the original Personality of Godhead. All of them appear on planets whenever there is a disturbance created by the atheists. The Lord incarnates to protect the theists.]**
+
+According to Vedic literature, Kṛṣṇa is the Supreme Personality of Godhead, *svayam. Svayam* means original. Kṛṣṇa has many extension, incarnation. We are also Kṛṣṇa's extension. We are, all living entities, we are also Kṛṣṇa's extension. We are called *vibhinnāṁśa,* separated extension. Separated extension means just like this finger is the part of your body, but when it is separated from the body some..., for reason... The finger's name is "finger," but it is separated; it is no longer used for the whole body.
+
+Similarly, the conditioned souls, we... We have come to this material world being conditioned by the laws of material nature; therefore our so-called independence is bogus. There is no independence. We are completely under the grip of material nature, so therefore we are separated. When we are again joined with Kṛṣṇa, then we are one with Kṛṣṇa.
+
+Just like this finger is one with this body; although it is called finger, but it is the same. The importance of the finger is as good as the whole body. Similarly, when we shall join again with Kṛṣṇa, then we become as good as Kṛṣṇa, *advaya-jñāna,* Absolute. Just yesterday, day before yesterday, I was explaining, *aṅgāni yasya sakalendriya-vṛtti-manti* [*Bs*. 5.32]*.*
+
+**[I worship Govinda, the primeval Lord, whose transcendental form is full of bliss, truth, substantiality and is thus full of the most dazzling splendor. Each of the limbs of that transcendental figure possesses in Himself, the full-fledged functions of all the organs, and eternally sees, maintains and manifests the infinite universes, both spiritual and mundane.]**
+
+Every part, every limb of Kṛṣṇa has got the potency of acting like other limb. We can see only with our eyes, but Kṛṣṇa can eat also with His eyes. Therefore Absolute.
+
+So Kṛṣṇa's part and parcel, also one with Kṛṣṇa. In the spiritual world there is no two. All one, one unit. This will take time to understand. Theoretically we can understand. And here, in this material world, we are all separated. Therefore, just like if electric bulbs are separated from the powerhouse practically it has no value, similarly, so long we are separated from Kṛṣṇa, we have no value. *Sthānād bhraṣṭāḥ patanty adhaḥ* *SB* 11.5.3.
+
+**[Any members of the four *varṇas* and four *āśramas* who fail to worship the Personality of Godhead, the source of their own creation, or who intentionally disrespect Him will fall down from their position into a hellish state of life.]**
+
+*Sthānād bhraṣṭāḥ patanty adhaḥ. Sthānāt* means from the right position one falls down.
+
+So by Kṛṣṇa consciousness, by reviving your Kṛṣṇa consciousness, by engaging yourself in Kṛṣṇa's service, you'll revive your original position. That is called liberation. Now we are not liberated; we are dependent on so many laws, so many conditions, although we are very much proud and puffed-up, independent. Who is independent? Nobody is independent. It is not possible to become independent. It is simply false pride, independent.
+
+So don't try to become independent. Please try to become dependent on Kṛṣṇa. That will make your life successful.
+
+Thank you. Hare Kṛṣṇa. [end]

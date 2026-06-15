@@ -1,0 +1,359 @@
+# Bhagavad-gītā 3.18-30
+
+*Type: Bhagavad-gita Dated: December 30th 1968 Location: Los Angeles Audio file: 681230BG-LOS-ANGELES.mp3*
+
+**Prabhupāda:** All glories to the assembled devotees.
+
+**Devotees:** *Jaya! Haribol!* [cheers]
+
+**Tamāla Kṛṣṇa: **Page 98.
+
+**Prabhupāda:** Go on. Purport.
+
+**Tamāla Kṛṣṇa: **Verse 18 is that good? Verse 18.
+
+**Prabhupāda: **Yes. Ninety-eight. Oh, yes.
+
+**Tamāla Kṛṣṇa:** This is the chapter entitled *Karma-yoga.*
+
+**Prabhupāda:** Yes. Yes, go on. Go on reading.
+
+**Tamāla Kṛṣṇa:** Eighteen: "A self-realized man has no purpose to fulfill in the discharge of his prescribed duties, nor has he any reason not to perform such work. Nor has he any need to depend on any other living being."
+
+**Prabhupāda:** Hmm. This is very important. What is actually self-realization? All processes, religious process, *yoga* practice, philosophical speculation or anything for self-realization, any method, what is the purpose? And what is the ultimate goal of the self-realization?
+
+That ultimate goal is to understand that "I am eternal servant of God, Kṛṣṇa." That's all. This is self-realization. So long one is identifying oneself with this material world, with this body, with this mind, it is not self-realization. Self-realization means that I am spirit, and the Supreme Lord is also spirit, so I am part and parcel of the Supreme.
+
+Just like take for example this finger. The finger is the part and parcel of this body. So when the finger can understand that "I am part and parcel of this whole body and my duty is to serve the whole body," that is self-realization. So long one is not understanding this point, he is illusioned. What is the position of this finger? Suppose this finger is a person. Any individual spirit is a person. That we have discussed in the Second Chapter. Everyone, every one of us, individual person.
+
+So as individual person what is my position? My position is... Just like you are individual citizen of the state. What is your position? To serve the state. That is your position. That is good citizenship. What does it mean, a good citizen? One who is trying to serve the state. Take, for example, in Russia, in China: they have made the state as worshipable.
+
+Any component part of the state, citizen, is to sacrifice everything for the state. In your country also, the draft board is calling, "Come on. You have to go to the fight." But you cannot say "No," because you are component part of the state. If you deny, then you are not a good citizen. You'll be arrested, you'll be harassed by the government.
+
+Similarly, we are component parts of the whole, supreme whole. This is self-realization. It is very simple thing. Self-realization does not mean anything very extraordinary. *Hitvā anyathā-rūpaṁ svarūpeṇa vyavasthitiḥ* *SB* 2.10.6*.*
+
+**[The merging of the living entity, along with his conditional living tendency, with the mystic lying down of the Mahā-Viṣṇu is called the winding up of the cosmic manifestation. Liberation is the permanent situation of the form of the living entity after he gives up the changeable gross and subtle material bodies.]**
+
+*Mukti,* this is called... *Mukti* means liberation or self-realization. What is that? *Hitvā anyathā-rūpam:* giving up a different identity. In the conditioned state we are identifying, "I am American," "I am Indian," "I am human being," "I am this," "I am that," "I am white," "I am black." These are all designation. Actually, this is not self-realization.
+
+Self-realization is that "I am neither American nor Indian nor black nor white, nor anything. I am a spirit soul, part and parcel of the whole, Kṛṣṇa." This is self-realization. So long it is not completely realized, so long we have got doubt, we have to make progress. And as soon as we come to the point and firmly convinced, that is self-realization.
+
+Therefore here it is stated, "A self-realized man has no purpose to fulfill in the discharge of his prescribed duties." Prescribed duties, either take for... Any scripture—take your Bible, take Koran, take *Vedas—*there are some prescribed duties. Just like in your Bible, there are ten commandments: "Thou shall not kill." So for whom? One who is not self-realized.
+
+One who is self-realized that "I am part and parcel of the Supreme God, everyone is part and parcel of the Supreme God, and human being, animal, ant, aquatic, beast, bird, every living entity is part and parcel of the Supreme Lord...,"that is self-realization. Then how can you kill? If everyone is part and parcel, son of the Supreme, how you can kill your brother? This is self-realization. You'll not... You'll hesitate even to kill even an ant.
+
+Just like we published that picture in our *Back to Godhead,* "The Hunter." The hunter was taking pleasure in killing animals half dead, and when he was self-realized, he was hesitating to kill even an ant. You see? Why? Self-realized. So he has no prescribed duties. To him you haven't got to say, "Thou shall not kill." He will automatically not kill, because he is self-realized.
+
+Self-realized person does not do any harm to anyone, because he knows everyone in relationship with the Supreme. His central point is Kṛṣṇa. Neither he'll misuse anything. He makes everything proper use. "This nice foodstuff, it is given by Kṛṣṇa. Let it be offered to Kṛṣṇa." That is not misuse; that is the proper use. "Here is nice rose flower, it is manufactured by Kṛṣṇa's energy. Let it be offered to Kṛṣṇa." This is self-realization.
+
+So one who has got this Kṛṣṇa consciousness, he is self-realized. Everything dovetailing with Kṛṣṇa. So what he has got to follow any other prescribed? Everything is complete there. *Ārādhito yadi haris tapasā tataḥ kim* [*Nārada Pañcarātra* 1.2.6].
+
+**[If one worships Lord Kṛṣṇa and considers Him the goal of life, then there is no need to execute severe types of austerity. And, if after executing all kinds of tapasya, one cannot reach Kṛṣṇa, then all his tapasya has no value, for without Kṛṣṇa consciousness different types of austerities are wasted labor.]**
+
+If one has realized the Supreme Lord, then he has no more any duty for undergoing austerities, penance, this or that, all prescribed rules. His business is finished. When a man is cured, there is no more requisition of medicine. He's in healthy state. To be engaged in devotional service, in Kṛṣṇa consciousness, means he's in healthy state. He has no more any prescribed duty. You see? So [he] not has any reason not to perform such work.
+
+Another thing: one should not think, "Because I am in Kṛṣṇa consciousness, therefore, oh, I shall not rise early in the morning. This is prescribed duty for one who is..." No. You have to do that. *Loka-saṅgraha.* So he practically has no duty, but to show example to the general mass of people, he has got so many duty. Even Kṛṣṇa.
+
+Kṛṣṇa is the Supreme Personality of Godhead; He was also going to school to study. He accepted spiritual master. He was offering respect to His elderly brother in relationship. So he does not... A self-realized person is always engaged in Kṛṣṇa consciousness, but he does not deviate with the prescribed duties also, because others will follow. Others will also, "Oh, I am also self-realized." Therefore one has to do.
+
+Nor has he any need to depend on any other living being. He is free, because he knows that "I am part and parcel of Kṛṣṇa, so I'm dependent on Kṛṣṇa. Kṛṣṇa is providing millions and trillions of living entities. Why not me? I am directly engaged in Kṛṣṇa's service." This is the position of self-realized. *Nārāyaṇa-parāḥ sarve na kutaścana bibhyati* *SB* 6.17.28*.*
+
+**[Devotees solely engaged in the devotional service of the Supreme Personality of Godhead, Nārāyaṇa, never fear any condition of life. For them the heavenly planets, liberation and the hellish planets are all the same, for such devotees are interested only in the service of the Lord.]**
+
+Go on.
+
+**Tamāla Kṛṣṇa:** "Therefore, without being attached to the fruits of activity, one should act as a matter of duty, for by working without attachment one attains the Supreme." [*Bg*. 3.19]
+
+**[Therefore, without being attached to the fruits of activities, one should act as a matter of duty; for by working without attachment, one attains the Supreme.]**
+
+**Prabhupāda:** Yes.
+
+**Tamāla Kṛṣṇa:** Purport: "This Supreme is the Personality of Godhead for the devotees and liberation for the impersonalists."
+
+**Prabhupāda:** Then what is that Supreme? The conception of Supreme... For the impersonalist, the impersonal Brahman effulgence is the Supreme. Just like light. When you come to the sunshine, that is light. But the devotee, they are not satisfied with the sunshine.
+
+They want to penetrate into the sun planet and see the sun-god. That is devotee's position. And one who cannot do so, he is satisfied with the sunshine. Everything is light. Sunshine is light, sun globe is light and, if you enter in the sun globe, there is also light.
+
+So these are all spiritual position, impersonalist or personalist. But the impersonalist goal is partial, because they are satisfied simply by seeing the light. And the devotees, they are not satisfied simply by seeing the light. They want to enter within the light to see wherefrom the light is coming. That is the difference between impersonalist and personalist. They are farther advanced.
+
+*Sac-cid-ānanda-vigrahaḥ* [*Bs.* 5.1]*.*
+
+**[Kṛṣṇa who is known as Govinda is the Supreme Godhead. He has an eternal blissful spiritual body. He is the origin of all. He has no other origin and He is the prime cause of all causes.]**
+
+The Lord is full bliss, eternal knowledge. So the impersonalists, they are satisfied with only knowledge, *jñāna,* light. That's all. Knowledge is light. But farther advanced, say, the *yogīs,* they want to see the localized, just like the sun globe. And the devotees, they want to see the person who is predominating over the sun globe. This is a crude example.
+
+So the goal, ultimate goal, it is described, "The Supreme is the Personality of Godhead for the devotees and liberation for the impersonalist." The impersonalists, they simply want to be free from this material atmosphere and go to the spiritual atmosphere. Just like one who is in the darkness of a room, his aspiration is how to see light. That's all. The impersonalist means simply to see light, knowledge. And personalist means to direct, to be in direct touch with the Supreme Personality of Godhead.
+
+Go on.
+
+**Tamāla Kṛṣṇa:** "A person acting for Kṛṣṇa, or in Kṛṣṇa consciousness, under proper guidance and without attachment to the result of the work, is certainly making progress toward the supreme goal of life. Indirectly, Arjuna is told that he should fight the Battle of Kurukṣetra without attachment in the interest of Kṛṣṇa, because Kṛṣṇa wanted him to fight.
+
+"To be a good man or a nonviolent man is also a personal attachment, but to act on behalf of the Supreme's desire is to act without attachment for the result. That is the perfect action of the highest degree, recommended by the Supreme Personality of Godhead, Śrī Kṛṣṇa.
+
+"Vedic rituals, like prescribed sacrifices, are performed by persons for purification of impious activities that were performed in the field of sense gratification. But a person who is acting in Kṛṣṇa consciousness is transcendental to the actions and reactions of good or evil work. A Kṛṣṇa conscious person has no attachment for the result, but acts on behalf of Kṛṣṇa alone. He engages in all kinds of activities, but is completely nonattached."
+
+**Prabhupāda:** Yes. Just like you go to your office. You are working on behalf of the particular office. So your duty is to discharge the occupation which is entrusted upon you. So far the loss or gain of that department or that establishment, you have nothing to do.
+
+So a Kṛṣṇa conscious person acts on behalf of Kṛṣṇa. These boys, they are going to preach Kṛṣṇa consciousness. People may receive it or not receive it, that doesn't matter; their duty is to preach. The fortunate person will be attracted, unfortunate may not be attracted, but they have to do the duty. It is very simple.
+
+So a Kṛṣṇa conscious person should not be disturbed whether his preaching work is being accepted by the people or not. It doesn't matter. My Guru Mahārāja used to say that... If somebody said that "We went to preach in such-and-such place. Only there were three or four, attendance," so my Guru Mahārāja used to encourage them—and it is factual—that "Why, two, three men were there was sufficient. If there were none, you could speak and the walls would hear you." You see? "Why you are disappointed?"
+
+So even the walls, they hear, then our *kīrtana* is sufficient. You don't mind. Because only fortunate person... *Bahūnāṁ janmanām ante* [*Bg*. 7.19]*.*
+
+**[After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare.]**
+
+*Manuṣyāṇāṁ sahasreṣu* [*Bg.* *7.3*]*.*
+
+**[Out of many thousands among men, one may endeavor for perfection, and of those who have achieved perfection, hardly one knows Me in truth.]**
+
+So to become God conscious, to [become] Kṛṣṇa conscious, is not very cheap thing. It requires a great amount of austerity, penance to come to this stage. So never be disappointed that because people are not responding. You see?
+
+There are many good examples. When Lord Jesus Christ also preached God consciousness, only a few followers were there, and still, he had to sacrifice his life. But he was never disappointed. That should be attitude of the preacher. People may accept it or not accept it, we should go on. Because if Kṛṣṇa is satisfied, if Kṛṣṇa sees, "Oh, these boys are doing very nice. They are trying their best to preach," that is your reward. That's all. People may accept or not accept, it doesn't matter.
+
+Go on.
+
+**Tamāla Kṛṣṇa:** Twenty: "Even kings like Janaka and others attained the perfectional stage by performance of prescribed duties. Therefore just for the sake of educating the people in general you should perform your work." Purport...
+
+**Prabhupāda:** There is no cause of disappointment. You have to do your duty, that's all. *Kāryam. Kāryam* means "It is my duty, I have to do it." Go on.
+
+**Tamāla Kṛṣṇa:** Purport: "Kings like Janaka and others were all self-realized souls; consequently they had no obligation to perform the prescribed duties in the *Vedas.* Nonetheless, they performed all prescribed activities just to set examples for the people in general. Janaka was the father of Sītā and father-in-law of Lord Śrī Rāma. A great devotee of the Lord like King Janaka was transcendentally situated. But because he was the king of Mithilā [a subdivision of Bihar province in India] he had to teach his subjects how to act.
+
+"In the Battle of Kurukṣetra, the Lord wanted to teach people in general that violence is also necessary in a situation where good arguments fail. Before the Battle of Kurukṣetra there was every effort to avoid the war, even by the Supreme Personality of Godhead, but the other party was determined to fight. So in such a right cause there is a necessity for fighting. Therefore although one who is situated in Kṛṣṇa consciousness may not have any interest in the world, he still works to teach the people how to live and how to act. Experienced persons in Kṛṣṇa consciousness can act in such a way that others will follow, and this is explained in the following verse."
+
+**Prabhupāda:** Yes.
+
+**Tamāla Kṛṣṇa:** Twenty-one: "Whatever action is performed by a great man, common men will follow in his footsteps. And whatever standards he sets by exemplary acts, all the world pursues."
+
+**Prabhupāda:** This is very important. Therefore leaders must be very ideal men. Then automatically the country or the society becomes nicely situated. Because if the leader of the society is perfect... Therefore formerly, monarchy, monarchy was current, and the king was educated very highly how to administer state.
+
+Just like Mahārāja Yudhiṣṭhira. Mahārāja Yudhiṣṭhira, ideal king. Lord Rāmacandra, ideal king. Somebody came to Lord Rāmacandra and made Him responsible, that "How Your kingdom is going that my son, in the presence of his father, has died?" You see? King was responsible for that. If there is severe cold, the king is responsible for that. If there is severe heat, the king is responsible for that.
+
+Just try to understand how much a king was responsible for the happiness of the citizen. They were ideal king, and therefore the citizens also followed. They became Kṛṣṇa conscious. They became all devotees. And if the leader is a sinful man and doing all impious activities, then how you can expect the citizens to be all good and pious? It is not possible.
+
+Therefore here, it is a very important subject matter: "Whatever action is performed by a great man, common men will follow in his footprints." Therefore good leader wanted. You haven't got to educate individually every citizen. If you have got a good leader, then the citizens automatically become good. "And whatever standard he sets by exemplary acts, all the world pursues."
+
+Go on.
+
+**Tamāla Kṛṣṇa:** Twenty-two: "O son of Pṛthā, there is no work prescribed for Me within all the three planetary systems. Neither am I in want of anything, nor have I need to obtain anything, and yet I am engaged in work."
+
+**Prabhupāda:** Yes. Just see. Kṛṣṇa, He's the Supreme Personality of Godhead. We work because we need something, but what need He has? He is full. He's self-sufficient, but still, He comes. As it is stated, *yadā yadā hi dharmasya glānir bhavati bhārata* [*Bg*. 4.7]:
+
+**[Whenever and wherever there is a decline in religious practice, O descendant of Bharata, and a predominant rise of irreligion—at that time I descend Myself.]**
+
+"As soon as there is discrepancies in the discharge of religious principle," *abhyutthānam adharmasya,* "and there is prominence of irreligiosity," *tadātmānaṁ sṛjāmy aham,* "at that time, I descend."
+
+Why Kṛṣṇa descends? That is explained by Kṛṣṇa. He comes Himself, He sends His representative, He sends His son to reform. Kṛṣṇa or Kṛṣṇa's devotee or Kṛṣṇa's son... Why Lord Jesus Christ sacrificed his life? Just to show that the human society must be God conscious. But unfortunately, people do not take care.
+
+They are following, they are calling themselves as Christian, but they're not following the example of Lord Jesus Christ. But they should follow, everyone. A person in Kṛṣṇa consciousness, they also should follow what Kṛṣṇa's devotee and Kṛṣṇa... That is required.
+
+So either Kṛṣṇa or His representative who come on this planet or in this world just to show example how you should live, how you should utilize your human form of life, they have nothing to gain. They are complete. Those who are coming from spiritual kingdom or kingdom of..., they have no want. They haven't got to do anything. They are all perfect. But still, they do.
+
+Similarly, those who want to be leader of the society, they should be ideal persons, they should be Kṛṣṇa conscious person. Then the whole world will be happy. Otherwise, these nonsense, simply by manipulating votes if they become leader, what they can do? They have no education. They have no training how to do good to the people. They cannot do. Only those who are devotees, those who are Kṛṣṇa conscious or God conscious, they can do actual benefit to the society. Others cannot do.
+
+**Tamāla Kṛṣṇa:** "Everything being in full opulence in the Personality of Godhead and naturally existing in all truth, there is no duty for the Supreme Personality of Godhead to perform. One who must receive the results of work has some designated duty, but one who has nothing to achieve within the three planetary systems certainly has no duty. And yet, Lord Kṛṣṇa is engaged on the Battlefield of Kurukṣetra as the leader of the *kṣatriyas* because the *kṣatriyas* are duty-bound to give protection to the distressed. Although He is above all the regulations of revealed scriptures, He does not do anything which is not directed in the revealed scriptures."
+
+Twenty-three: "For if I did not engage in work, O Pārtha, certainly all men would follow My path."
+
+Twenty-four: "If I should cease to work, then all these worlds would be put to ruination, and I would be the cause of creating unwanted population and thereby destroy the peace of all sentient beings."
+
+Purport: "*Varṇa-saṅkara* is unwanted population which disturbs the peace of the general society. In order to check this social disturbance there are prescribed rules and regulations by which the population can automatically become peaceful and organized for spiritual progress in life. When Lord Kṛṣṇa descends, naturally He deals with such rules and regulations in order to maintain the prestige and necessity of such important performances.
+
+"The Lord is said to be the father of all living entities, and if the living entities are misguided, indirectly the responsibility goes to the Lord. Therefore whenever there is general disregard for such regulative principles, the Lord Himself descends and corrects the society. We should, however, note carefully that although we have to follow in the footsteps of the Lord, we still have to remember that we cannot imitate Him. Following and imitating are not on the same level."
+
+**Prabhupāda:** Now Kṛṣṇa, at the age of seven years old, He lifted Govardhana Hill. So if we try to imitate, "Oh, Kṛṣṇa lifted the Govardhana Hill. Let me also try," that is not following. You cannot do that. [chuckling] You see? Because sometimes the foolish rascals, they say, "Oh, Kṛṣṇa performed *rāsa-līlā.* Let me also perform *rāsa-līlā.*" Therefore I forbid, that don't discuss Kṛṣṇa's *rāsa-līlā* with the ordinary persons. They cannot understand. They'll simply think that "Oh, it is very nice to dance with girls, boys and girls dancing." No.
+
+We have to follow His instruction, what is given in the *Bhagavad-gītā.* We cannot imitate Him. He is all-powerful. That the same example, just like the sunshine. The sunshine can absorb moisture from filthy place, but he..., it is not infected. Sun is not infected. But if you go to a filthy place, you become contaminated immediately. Yes. So nobody should try to imitate the all-powerful, but one should try to follow His instruction. That should be the motto of life.
+
+Go on. "Following and imitating are not the same thing, same level." Yes.
+
+**Tamāla Kṛṣṇa:** "We cannot imitate the Lord by lifting Govardhana Hill as the Lord did in His childhood. It is impossible for any human being. We have to follow His instructions, but we may not imitate Him in any level. The *Śrīmad-Bhāgavatam* affirms this as follows: 'One should simply follow the instructions of the controllers and should not imitate them in their activities. Their instructions are all good for us, and any intelligent person must perform them as instructed. However, one should guard against trying to imitate their actions. One should not try to drink the ocean of poison, imitating Lord Śiva.'
+
+"We should always remember the position of the *īśvaras,* or those who actually control the movements of the sun and moon. Without such power, one cannot imitate *īśvara,* or the superpowerful. The example set herein is very appropriate. Lord Śiva drank poison to the extent of swallowing an ocean, but if any common man tries to drink even a fragment of such poison he will be killed.
+
+"There are many pseudo-devotees of Lord Śiva who want to indulge in smoking *gāñjā* [marijuana] and similar intoxicating drugs, forgetting that by so imitating the acts of Lord Śiva they are calling death very near. Similarly, there are some pseudo-devotees of Lord Kṛṣṇa who prefer to imitate the Lord in the matter of the *rāsa-līlā,* or dance of love, forgetting their inability to lift the Govardhana Hill.
+
+"It is best, therefore, that one not try to imitate the powerful, but simply endeavor to follow their instructions. Nor should one try to occupy the posts of the powerful without qualification. There are so many 'incarnations' of God without the powers of the Supreme Godhead."
+
+Twenty-five: "As the ignorant perform their duties with attachment to results, similarly..."
+
+**Prabhupāda:** This morning, the press representative, he was astonished that "Swāmījī, so many people are coming, they are declaring that 'I am God.' What is this?" So these rascals are like that. Therefore there are so many incarnation of God without the powers of. So people, why they should be cheated? If somebody comes and says that "I am God," why don't you test? For testing this... When Kṛṣṇa assumed, the Supreme Personality of Godhead... Of course, Arjuna was convinced. He accepted, *paraṁ brahma paraṁ dhāma* [*Bg*. 10.12]*,*
+
+**[Arjuna said: You are the Supreme Brahman, the ultimate, the supreme abode and purifier, the Absolute Truth and the eternal divine person. You are the primal God, transcendental and original, and You are the unborn and all-pervading beauty. All the great sages such as Nārada, Asita, Devala, and Vyāsa proclaim this of You, and now You Yourself are declaring it to me.]**
+
+But for future guidance, he requested Kṛṣṇa, "Please show me Your universal form." Otherwise, without showing universal [form], they're still claiming that "I am God." God is not so cheap thing. They're imitating, trying to imitate. This is very dangerous.
+
+And those who are accepting such rascals, they are also not intelligent. They should know. Just like I asked the press representative, "Suppose if I come and say that I am President Johnson, would you accept me?" So similarly, people should know what is God, what is the definition of God. How can I accept a rascal as God? They have no sense also. Somebody comes, "I am God," and he accepts, "Yes, he's God." What is this nonsense?
+
+Go on.
+
+**Tamāla Kṛṣṇa:** "As the ignorant perform their duties with attachment to results, similarly, the learned may also act, but without attachment, for the sake of leading people on the right path."
+
+Twenty-six: "Let not the wise disrupt the minds of the ignorant who are attached to fruitive action. They should not be encouraged to refrain from work but to engage in work in the spirit of devotion."
+
+Twenty-seven: "The bewildered..."
+
+**Prabhupāda:** Just like Haridāsa Ṭhākura. Haridāsa Ṭhākura was chanting in a secluded place always. Now, if somebody, without being elevated to such high position, imitates, "Oh, Haridāsa Ṭhākura chanted. Let me sit down in a solitary place and chant," he cannot do that. It is not possible. He'll simply imitate and he'll do all nonsense.
+
+Therefore everyone should be engaged in his own work, and by the fruit of his work, he should serve Kṛṣṇa. We cannot imitate Haridāsa Ṭhākura. That is a different position. If one is elevated to that position, that is a different thing, but generally, that is not meant for ordinary person. Therefore everyone should do his occupational duty and try to serve the Lord by the result of his work. That should be the motto of life.
+
+Go on.
+
+**Tamāla Kṛṣṇa:** "The bewildered spirit soul, under the influence of the three modes of material nature, thinks himself to be the doer of activities which are in actuality carried out by nature." [*Bg*. 3.27]
+
+[The bewildered spirit soul, under the influence of the three modes of material nature, thinks himself to be the doer of activities, which are in actuality carried out by nature.]
+
+Purport: "Two persons, one in Kṛṣṇa consciousness and the other in material consciousness working on the same level, may appear to be working on the same platform, but there is a wide gulf of difference in their respective positions. The person in material consciousness is convinced by false ego that he is the doer of everything. With him there is no consideration that the mechanism of the body is produced by material nature or that material nature is under the supervision of the Supreme Personality of Godhead.
+
+"A materialistic person has no knowledge that ultimately he is under the control of Kṛṣṇa. The person in false ego takes all credit for doing everything independently, and that is the symptom of his nescience. He does not know that this gross and subtle body is the creation of material nature under the order of the Supreme Personality of Godhead, and as such his bodily and mental activities should be engaged in the service of Kṛṣṇa in Kṛṣṇa consciousness.
+
+"He does not know that the Supreme Personality of Godhead is known as Hṛṣīkeśa, or the master of all senses. But due to his long misuse of the senses he is factually bewildered by the false ego, and that is the cause of his forgetfulness of his eternal relationship with Kṛṣṇa."
+
+Twenty-eight: "One who is in knowledge of the Absolute Truth, O mighty-armed, does not engage himself in the senses and sense gratification, knowing well the differences between work in devotion and work for fruitive result."
+
+Purport: "The knower of the Absolute Truth is convinced of his awkward position in material association. He knows that he is part and parcel of the Supreme Personality of Godhead, Kṛṣṇa, and that his position should not be in the material creation. He knows his real identity as part and parcel of the Supreme, who is eternal bliss and knowledge, and he realizes that somehow or other he is now entrapped in the material conception of life.
+
+"In his pure state of existence, he is meant to dovetail his activities in devotional service to the Supreme Personality of Godhead, Kṛṣṇa. He therefore engages himself in the activities of Kṛṣṇa consciousness and becomes naturally unattached to the activities of the material senses, which are all circumstantial and temporary. He knows that his material condition of life is under the supreme control of the Lord; consequently he is not disturbed by any kind of material reaction, which he considers to be the mercy of the Lord.
+
+"According to the *Śrīmad-Bhāgavatam,* one who knows the Absolute Truth in three different features—namely Brahman, Paramātmā and the Supreme Personality of Godhead—is called *tattva-vit,* for he knows also his own factual position in relationship with the Supreme."
+
+**Prabhupāda:** There is a verse in *Śrīmad-Bhāgavatam, vadanti tat tattva-vidas tattvaṁ yaj jñānam advayam* *SB* 1.2.11*.*
+
+**[Learned transcendentalists who know the Absolute Truth call this nondual substance Brahman, Paramātmā or Bhagavān.]**
+
+*Tattva-vit. Tattva* means truth, and *vit* means one who knows. So a person who knows all these things, he's called *tattva-vit.*
+
+Go on.
+
+**Tamāla Kṛṣṇa:** Twenty-nine: "Bewildered by the modes of material nature, the ignorant fully engage themselves in material activities and become attached. But the wise should not unsettle them, although these duties are inferior due to the performers' lack of knowledge."
+
+Purport: "Men who are ignorant cannot appreciate activities in Kṛṣṇa consciousness, and therefore Lord Kṛṣṇa advises us not to disturb them and simply waste valuable time. But the devotees of the Lord are more kind than the Lord, because they understand the purpose of the Lord. Consequently, they undertake all kinds of risks, even to the point of approaching ignorant men to try and engage them in the acts of Kṛṣṇa consciousness, which are absolutely necessary for the human being."
+
+Thirty:...
+
+**Prabhupāda:** Yes. Kṛṣṇa said that devotees, that you should not disturb them. But devotees are so kind that taking all risk. Just like Nityānanda Prabhu took all risk, Lord Jesus Christ took all risk. Therefore a devotee is more kind than God. A devotee is more merciful than God Himself. We should always remember this.
+
+And therefore Kṛṣṇa says, *mad-bhaktaḥ pūjyābhyādhika:* "Anyone who worships My devotee, he worships more than what he can do for Me." That means He appreciates the worship of His devotee than to Himself. So actually, devotees are so kind. Kṛṣṇa says, "Those who are absorbed too much in material consciousness, don't disturb them."
+
+But devotees take the risks, even at the cost of life. Therefore devotee is so, I mean to say, dear to Kṛṣṇa. That will be explained in the Eighteenth Chapter, that "Person who takes all risk for preaching God consciousness, nobody is dearer than him in the human society." Kṛṣṇa says like that.
+
+Go on.
+
+**Tamāla Kṛṣṇa:** Thirty: "Therefore, O Arjuna, surrendering all your works unto Me, with mind intent on Me, and without desire for gain and free from egoism and lethargy, fight."
+
+Purport: "This verse clearly indicates the whole purpose of the *Bhagavad-gītā.* The Lord instructs that one has to become fully Kṛṣṇa conscious to discharge duties, as if in military discipline. Such an injunction may make things a little difficult, but that is the constitutional position of the living entity.
+
+"The living entity cannot be happy independent of the cooperation of the Supreme Lord, because the eternal constitutional position of the living entity is to become subordinate to the desires of the Lord. Arjuna was therefore ordered by Śrī Kṛṣṇa to fight as if the Lord were his military commander.
+
+"One has to sacrifice everything for the good will of the Supreme Lord, and at the same time discharge his prescribed duties without claims of proprietorship. Arjuna did not have to consider the order of the Lord; he had only to execute His order. The Supreme Lord is the soul of all souls. Therefore one who depends solely and wholly on the Supreme Soul without personal consideration, or in other words, one who is fully Kṛṣṇa conscious, is called *adhyātma-cetas...*"
+
+**Prabhupāda:** *Adhyātma-cetasa.*
+
+**Tamāla Kṛṣṇa:** "...full of self-knowledge."
+
+**Prabhupāda:** Yes.
+
+**Tamāla Kṛṣṇa:** "One has to act on the order of the master. One should not expect any fruitive results. The cashier may count millions of dollars for his employer, but he does not claim a cent out of the great amount of money. Similarly, one has to take it for granted that nothing in the world belongs to any individual person, but everything belongs to the Supreme Personality of Godhead. That is the real purport of Kṛṣṇa saying 'unto Me.' And when one acts in such Kṛṣṇa consciousness, certainly he does not claim proprietorship over anything. So this consciousness is called *nirmama,* or 'nothing is mine.'
+
+"And if there is any reluctance to execute such a stern order, which is without consideration of so-called kinsmen in the bodily relationship, that reluctance should be thrown off. In this way one may become without feverish mentality or lethargy. Everyone, according to his quality and position, has a particular type of work to discharge, and all such duties may be discharged in Kṛṣṇa consciousness as described above. That will lead one to the path of liberation."
+
+**Prabhupāda:** Thank you. That's all.
+
+**Devotees:** Hare Kṛṣṇa. [obeisances]
+
+**Prabhupāda:** Now if anybody has any question?
+
+**Tamāla Kṛṣṇa:** In the past, when there were men who practiced *yoga,* concentration on Kṛṣṇa within the heart, when they perfected this, were they rendering devotional service?
+
+**Prabhupāda:** Yes. Devotional service, there are nine kinds of:
+
+> śravaṇaṁ kīrtanaṁ viṣṇoḥ
+> smaraṇaṁ pāda-sevanam
+> arcanaṁ vandanaṁ dāsyaṁ
+> sakhyam ātma-nivedanam
+
+[*SB* *7.5.23*]
+
+**[Prahlāda Mahārāja said: Hearing and chanting about the transcendental holy name, form, qualities, paraphernalia and pastimes of Lord Viṣṇu, remembering them, serving the lotus feet of the Lord, offering the Lord respectful worship with sixteen types of paraphernalia, offering prayers to the Lord, becoming His servant, considering the Lord one's best friend, and surrendering everything unto Him (in other words, serving Him with the body, mind and words)—these nine processes are accepted as pure devotional service. One who has dedicated his life to the service of Kṛṣṇa through these nine methods should be understood to be the most learned person, for he has acquired complete knowledge.]**
+
+So *śravaṇam,* just you are very kindly hearing. This is also devotional service. Those who are patiently hearing these topics of Kṛṣṇa consciousness, they are also discharging devotional service, hearing. *Śravaṇaṁ kīrtanam,* and just you are reading, you are also rendering service.
+
+Similarly, those who are always thinking of Kṛṣṇa, he's also rendering service. *Śravaṇaṁ kīrtanaṁ viṣṇoḥ smaraṇaṁ pāda-sevanam.* Those who are engaged in the service of this temple, they are discharging devotional service, *pāda-sevanam.*
+
+*Arcanam:* those who are engaged in the service of the Deity, they are executing devotional service. *Vandanam:* those who are offering prayers, they are engaged in devotional service. Just like in Christian church or mosque, they have no Deity, but they offer prayer. That is devotional service.
+
+So everyone, in relationship with God... There are so many formulas. If he follows all the formulas, or some of them, or at least one of them, sincerely, then he'll get perfection. That is the way.
+
+> śravaṇaṁ kīrtanaṁ viṣṇoḥ
+> smaraṇaṁ pāda-sevanam
+> arcanaṁ vandanaṁ dāsyaṁ
+> sakhyam ātma-nivedanam
+
+[*SB* *7.5.23*]
+
+But for all devotional service, the main pillar is *śravaṇam,* hearing. Without hearing, other processes of devotional service will not be perfect. Therefore hearing is most important. Hearing, according to our Vaiṣṇava philosophy, especially Lord Caitanya's, this hearing and chanting are two main pillars for devotional service. [aside:] Drink water. Yes.
+
+So those who are concentrating mind, thinking of Kṛṣṇa, that is the perfection of *yoga* system. But they have no idea of Kṛṣṇa. They make some circle, they concentrate. That is a practice only, how to engage one's mind. Because mind is so flickering, I am thinking of a red circle, and then next moment, I think something red, and from that red, I go to something red, something red, oh... Mind is gone. You see?
+
+So this concentration of mind is very difficult in this age, because mind is so agitated. Therefore force them to hear Hare Kṛṣṇa. Even they have no mind to hear, you chant loudly Hare Kṛṣṇa, they will hear. Their mind will be dragged. It is so nice thing. He hasn't got to [chuckling] concentrate. I'll force him. You see? So as soon as he hears "Kṛṣṇa," oh, he advances immediately one step. This is the nicest and the great service to the humanity: chant Hare Kṛṣṇa. And then they'll be profited. You see? Yes?
+
+**Bīrabhadra:** When you talk about Lord Śiva and you shouldn't imitate him, and people do imitate him and then they say, "Oh, we smoke marijuana because Śiva does it," is it all right to say, "Oh? You want to imitate him? Then you must also drink an ocean of poison."? Then if they want to imitate him, then let 'em imitate him.
+
+**Prabhupāda:** Yes, they will die, because they're imitating. The result will be death. That's all. Yes?
+
+**Jaya-gopāla:** Is it all right to disturb the minds of the envious?
+
+**Prabhupāda:** Huh?
+
+**Jaya-gopāla:** Is it all right to disturb the minds of the envious?
+
+**Prabhupāda:** Envious?
+
+**Jaya-gopāla:** Yes. So many people are so envious of God...
+
+**Prabhupāda:** Everyone is envious. This world is envious. They have declared that God is dead. You see? [laughs] [Bengali] There is a proverb in Bengali that one person wanted to see how many thieves are there in this village, and when he began to scrutinize, he saw that everyone is a thief. [laughter]
+
+Similarly, envious, you begin from President Johnson and go to anyone, they are all envious of God consciousness. You see? Otherwise in Los Angeles city, there are millions and trillions of people, and only a dozen people are coming here. You see? Why? They are envious: "What is this nonsense God consciousness, Kṛṣṇa consciousness?" You see?
+
+So we have to disturb them. That is our duty. [laughter] We have to disturb these envious persons, "Hare Kṛṣṇa!" [laughter] That is our duty, to disturb them. And that is the greatest service. Just like a man is sleeping, and somebody is coming to kill him, and other friend, "Mr. Such-and-such, wake up! Wake up! Wake up!"
+
+So he may say, "Why you are disturbing me?" But that is the greatest service. He'll be saved. *Māyā* is coming to kill him, to send him to the darkest region of hell, and you are saving him: "Chant Hare Kṛṣṇa and be saved." *Daivī hy eṣā guṇamayī mama māyā duratyayā* [*Bg*. 7.14]*.*
+
+**[This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it.]**
+
+These people, they do not know how much they are under the trap of *māyā,* illusion. *Daivī hy eṣā guṇamayī mama māyā duratyayā.* They are thinking that they are very happy, they are making progress, but they do not know actually the position. This is called illusion.
+
+Any other question? Yes?
+
+**Devotee:** Prabhupāda, in this age of Kali, when there is no social structure or *varṇāśrama-dharma,* how can one discriminate how he is utilizing his energies for his prescribed duties? How can one determine his prescribed duties, as Lord Kṛṣṇa has described here, for Arjuna to follow his prescribed duties?
+
+**Prabhupāda:** Yes. Before coming to Kṛṣṇa consciousness, were you in the *varṇāśrama*?
+
+**Devotee:** No.
+
+**Prabhupāda:** Then how you have come?
+
+**Devotee:** Pardon?
+
+**Prabhupāda: **How you have come to this position?
+
+**Devotee:** Out of misery.
+
+**Prabhupāda:** No, no, no. You have come to execute Kṛṣṇa consciousness. Before coming to this Kṛṣṇa consciousness, were you in *varṇāśrama-dharma*? No. So at the present moment, there is no possibility of persons following the principles of *varṇāśrama-dharma,* either here or anywhere. Everyone is *varṇa-saṅkara. Kalau śūdra-sambhavaḥ.* In this age, everyone is a *śūdra.* Nobody is *brāhmaṇa,* nobody is *kṣatriya,* nobody is *vaiśya. Śūdra.* So in this age, you won't find anybody following the *varṇāśrama-dharma.*
+
+Therefore this is the panacea, to engage everyone in Kṛṣṇa consciousness, chanting Hare Kṛṣṇa. He comes above the highest principle of brāhmaṇism. This is the greatest gift to the humanity, that even he is in the, I mean to say, fallen condition, the most degraded position, he can be raised to the highest position simply by chanting. This is the only remedy.
+
+Now you cannot again introduce this system of *varṇāśrama.* It is not possible. If one takes to Kṛṣṇa consciousness, automatically he becomes immediately a *brāhmaṇa* and above the *brāhmaṇa.* A Vaiṣṇava is above the *brāhmaṇa.* Just like when we initiate, give Hare Kṛṣṇa *mantra,* he is supposed to be above the all material modes of nature. And when he has practiced, we offer him the sacred thread. This is the prescription of this age.
+
+Otherwise, you cannot select who is *brāhmaṇa,* who is *śūdra,* who is *kṣatriya.* It is very difficult. Only one who takes to Kṛṣṇa consciousness, he comes to the transcendental platform, and he's above the *brāhmaṇas.* He is no longer a *śūdra, kṣatriya.* He's above the *brāhmaṇas:* a Vaiṣṇava. So this is the only process to raise a person from the lowest position to the highest standard. And that is factual.
+
+Now, take a *brāhmaṇa* who has come from India and compare his character and the character of our student, how he has become more than a *brāhmaṇa,* the so-called *brāhmaṇa.* This is practical. The so-called *brāhmaṇas,* they have come here, they are doing all nonsense, not following any rules and regulation. But still, they are claiming that they are *brāhmaṇas. Brāhmaṇa* is not meant like that. Kṛṣṇa says, *cātur-varṇyaṁ mayā sṛṣṭaṁ guṇa-karma-vibhāgaśaḥ* [*Bg*. 4.13]:
+
+**[According to the three modes of material nature and the work ascribed to them, the four divisions of human society were created by Me. And, although I am the creator of this system, you should know that I am yet the non-doer, being unchangeable.]**
+
+"The four castes, they are introduced by Me according to quality and work." There is no question of birth. Kṛṣṇa never said birth. Otherwise He would have said, *cātur-varṇyaṁ mayā sṛṣṭaṁ janma-karma-vibhāgaśaḥ.* No. He says *guṇa-karma. Guṇa* means quality, and *karma.*
+
+Just like if you have achieved the quality of a medical practitioner, then your work shall be a medical practitioner. Similarly, if one has achieved the quality of a *brāhmaṇa* or Vaiṣṇava, then his activities should be like that. If I become Kṛṣṇa conscious and if I work as a butcher, that will not be. You have to work just like a Vaiṣṇava. So *guṇa-karma-vibhāgaśaḥ.* You have to acquire the qualities and work like that. Then it is perfect.
+
+So this Kṛṣṇa consciousness movement is teaching people to work for Kṛṣṇa and to qualify himself for Kṛṣṇa consciousness. That is the highest perfection. Without any consideration of His previous position or qualification or social standard. There is no such thing. Simply if he takes to Hare Kṛṣṇa* mantra* and prosecutes nicely according to direction, he becomes the, I mean to say, in transcendental position. Highest position. More than a *brāhmaṇa.*
+
+Yes. Chant. [end]

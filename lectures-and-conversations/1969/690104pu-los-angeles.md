@@ -1,0 +1,55 @@
+# Bhajan & Purport to Parama Koruṇa
+
+*Bhajan &amp; Purport to  Parama Koruṇa Type: Purport Dated: January 4th 1969 Location: Los Angeles Audio file: 690104PU-LOS-ANGELES.mp3*
+
+**Prabhupāda:** [sings:]
+
+> parama koruṇa, pahū dui jana
+> nitāi gauracandra
+> saba avatāra-sāra śiromaṇi
+> kevala ānanda-kanda
+
+**[Lord Nitāi and Lord Gauracandra are very merciful. They are the essence of all incarnations. The specific significance of these incarnations is that They introduced a process of chanting and dancing that is simply joyful.]**
+
+> bhajo bhajo bhāi, caitanya nitāi
+> sudṛḍha biśwāsa kori
+> viṣaya chāḍiyā, se rase majiyā,
+> mukhe bolo hari hari
+
+**[My dear brothers, I request that you just worship Lord Caitanya and Nityānanda with firm conviction and faith. If one wants to be Kṛṣṇa conscious by this process, one has to give up his engagement in sense gratification. Become absorbed in worshiping Lord Caitanya and Nityananda and simply chant “Hare Kṛṣṇa! Hari Hari!” without any material motive.]**
+
+> dekho ore bhāi, tri-bhuvane nāi,
+> emona doyāla dātā
+> paśu pākhī jhure, pāṣāṇa vidare,
+> śuni' jāṅra guṇa-gāthā
+
+**[My dear brothers, just try to examine this. Within the three worlds there is no one like Lord Caitanya or Lord Nityānanda. Their merciful qualities are so great that upon hearing them even birds and beasts cry and stones melt.]**
+
+> saṁsāre majiyā, rohili poriyā,
+> se pade nahilo āśa
+> āpana karama, bhuñjāye śamana,
+> kahoye locana-dāsa
+
+**[But I, Locana Dāsa, regret that I am entrapped by sense gratification. I have no attraction for the lotus feet of Lord Caitanya and Lord Nityānanda, and therefore Yamarāja, the superintendent of death, is punishing me by not allowing me to be attracted by this movement.]**
+
+**Prabhupāda:** *Parama koruṇa, pahū dui jana, nitāi gauracandra.* This is a song by Locana dāsa Ṭhākura, a great devotee and *ācārya* of the Gauḍīya-sampradāya. He is declaring that *pahū dui jana. Pahū* means lords. *Dui jana* means two. Who are the two Lords? Nitāi Gauracandra. One is Lord Nitāi, Nityānanda; another is Lord Śrī Caitanya Mahāprabhu.
+
+So he says that "These two Lords are very merciful.'' *Parama koruṇa, pahū dui jana. Parama koruṇa* means very merciful. Nitai Gauracandra. *Saba avatāra, sāra śiromaṇi. Avatāra* means incarnation, and *saba* means all. "They are the essence of all incarnations.'' *Saba avatāra, sāra śiromaṇi, kevala ānanda-kanda:* "And the specific significance of these incarnations is that to prosecute Their ways of self-realization is simply joyful,'' *ānanda-kanda.*
+
+They introduced chanting and dancing. No other incarnation... There are many incarnation, just like Lord Rāma. Even Kṛṣṇa, He taught *Bhagavad-gītā.* That requires knowledge, understanding. But here Lord Caitanya, Nityānanda, introduced some process which is simply joyful: simply chant and dance. *Kevala ānanda-kanda. Saba avatāra, sāra śiromaṇi, kevala ānanda-kanda.*
+
+Therefore he requests everyone, *bhajo bhajo bhāi, caitanya nitāi:* "My dear brothers, I request you. Just you worship Lord Caitanya and Nityānanda,'' *sudṛḍha biśwāsa kori',* "with firm conviction and faith.'' Don't think that this chanting and dancing will not lead you to the desired goal. It will, because there is assurance of Lord Caitanya Mahāprabhu that you will get all perfection by this process.
+
+Therefore Locana dāsa Ṭhākura says that "You must have firm faith and conviction.'' It will act. *Bhajo bhajo bhāi, caitanya nitāi, sudṛḍha. Sudṛḍha* means firm; *biśwāsa kori',* with faith and conviction. But what is the process? The process is *viṣaya chāḍiyā, se rase majiyā.* If you want to be Kṛṣṇa conscious under that process, then you have to give up your engagement of sense gratification. That is the only restriction. You cannot do that. Then it will be very nice.
+
+If you give up sense gratification and come to this stage, then it is sure that you will reach to the desired goal. *Viṣaya chāḍiya, se rase majiyā, mukhe bolo hari hari:* "And you have to simply chant Hare Kṛṣṇa, 'Hari Hari,' that's all, without any motive of sense gratification.''
+
+*Dekho dekho bhāi, tri-bhuvane nāi.* He says, "My dear brothers, you just try and examine that within these three worlds there is nobody like Lord Caitanya or Nityānanda Prabhu.'' Because, *paśu pākhī jhure, pāṣāṇa vidare:* "Their mercy and qualities are so great that even birds and beasts, they are crying, what to speak of human being?''
+
+Actually, when Lord Caitanya Mahāprabhu passed through the forest of Jhārigrāma, the tigers, the elephants, the snake, the deer, all joined Him in chanting Hare Kṛṣṇa. It is so nice. Anyone can join. Animals can join, what to speak of human being? Of course, it is not possible for ordinary man to enthuse animals to chant, but Caitanya Mahāprabhu did it actually.
+
+So even if we cannot enthuse animals, we can enthuse at least human being to this path of Hare Kṛṣṇa *mantra* chanting. *Paśu pākhī jhure, pāṣāṇa vidare.* And it is so nice that even the most stonehearted men will be melted. *Pāṣāṇa vidare. Pāṣāṇa* means stone, and *vidare. Pāṣāṇa,* even stone, will melt, it is so nice.
+
+But he regrets that, *viṣaya majiyā:* "Being entrapped by sense gratification...'' *Viṣaya majiyā, rohili bhuliyā.* He's addressing himself, "My dear mind, you are entrapped in the sense gratification process and you have no attraction for chanting Hare Kṛṣṇa.'' *Viṣaya bhuliyā, rohili majiyā, se pade nahilo āśa:* "You have no attraction for the lotus feet of Caitanya-Nityānanda. So what can I say? It is only...''
+
+*Āpana karama, bhuñjāya śamana:* "I can simply think of my misfortune only that Yamarāja, the superintendent of death, he is punishing me in this way, that he is not allowing me to be attracted to this movement.'' This is the statement of... *Kahoye locana-dāsa:* "This is the statement of Locana dāsa Ṭhākura.'' [end]

@@ -1,0 +1,150 @@
+# Śrīmad-Bhāgavatam 6.2.12–14 at Kumbha-melā
+
+*Type: Srimad-Bhagavatam Dated: January 17th 1971 Location: Allahabad Audio file: 710117SB-ALLAHABAD.mp3*
+
+**Devotee:** [introduction on recording] Next morning lecture, 17th January, 1971. [break]
+
+**Prabhupāda:** There are so many persons following their own principles of religious, ritualistic performances, but...
+
+[break] ...by remaining in the same standard. They are not improving. Spiritual life, or religious life, means that one should make advance towards back to home, back to Godhead, not that religious life should be followed to make some material improvement. That is not religious life.
+
+*Dharma-artha-kāma-mokṣa* [*SB 4.8.41, Cc. Ādi 1.90*]: these are the principles for elevating a living entity to the highest platform. But they have taken it, generally... They perform religious ritualistic performances for getting some more money, *artha.* Of course, we require some money for our maintenance; that is necessary. But if we simply perform ritualistic performances to acquire money only, that is misguided.
+
+Generally people do so. They give in charity so that they may get more money. They open *dharmaśālās* so that they can get more houses. That is their purpose. Or they may be elevated to the heavenly kingdom. Because they do not know what is his actual interest. The actual interest is to go back to home, go back to Godhead. This idea, perhaps not even one percent men know that the ultimate end of, ultimate goal of life is to go back to home, back to Godhead.
+
+*Na te viduḥ svārtha-gatiṁ hi viṣṇum* SB 7.5.31—Viṣṇu, God, the Supreme Personality of Godhead. They do not know that the real interest is to go back home, go back to Godhead. *Durāśayā ye bahir-artha-māninaḥ.* They have accepted that "We shall be happy by adjusting this material world." Therefore they cannot make any progress.
+
+Actually, religion does not mean to improve your material condition. That is not religion. *Śrīmad-Bhāgavata* therefore says that *sa vai puṁsāṁ paro dharmo yato bhaktir adhokṣaje* *SB* 1.2.6: "That type of religion is first class which elevates one to the platform of pure devotional service to the Absolute Truth." That is religion.
+
+People are not attracted to the *bhāgavata-dharma*, or the religion. *Bhāgavata-dharma* is actually *sanātana-dharma. Sanātana-dharma* does not mean that one must have a certain type of religious life. *Sanātana-dharma* means the eternal religion. *Sanātana-dharma* is applicable for all living entities. A living entity is eternal, God is eternal, and there is an eternal abode also.
+
+*Paras tasmāt tu bhāvo 'nyo 'vyakto 'vyaktāt sanātanaḥ* [*Bg. 8.20*]*.* So the religious principles which promote a follower to the highest platform of serving the eternal, supreme God, that is called *sanātana-dharma. Nityo nityānāṁ cetanaś cetanānām* [*Kaṭha Upaniṣad* 2.2.13]. That is first-class religion.
+
+Therefore here it is said, *naikāntikam. Naikāntikaṁ tad dhi kṛte 'pi niṣkṛte* *SB* 6.2.12. Even one becomes free from all contamination of sinful life by prosecuting the particular type of religious principles, that is not sufficient, because ultimately it cannot give any good result.
+
+> naikāntikaṁ tad dhi kṛte 'pi niṣkṛte
+> manaḥ punar dhāvati ced asat-pathe
+
+[*SB 6.2.12*]
+
+Because the mind is so disturbing that even after being freed from all contamination of sinful life, the mind again goes to that sinful activity.
+
+It is very difficult to control the mind. Arjuna, when he was advised to perform the *haṭha-yoga* system to control the mind, he flatly refused, that "I am unable to control my mind in this way." He stated that *cañcalaṁ hi manaḥ kṛṣṇa* [*Bg*. 6.34]: "Kṛṣṇa, the mind is so agitating and moving," *cañcalaṁ hi manaḥ kṛṣṇa pramāthi,* "it is just like a madman." Just like you cannot control a madman. Sometimes you have to chain a madman for doing mischievous activities. Sometimes you have to send to some hospital for special care.
+
+So Arjuna said, *cañcalaṁ hi manaḥ kṛṣṇa pramāthi,* mad,* balavat.* And not only *balavat,* "is very strong," and *dṛḍham,* and "very strong and determined." *Tasyāhaṁ nigrahaṁ manye:* "If You ask me to control my mind, it is very difficult for me." *Tasyāhaṁ nigrahaṁ manye vāyor api suduṣkaram:* "If there is some wind, strong wind, and if one thinks that 'I shall control this wind, stop this strong blowing of wind,' as it is impossible, similarly, the movement of my mind is so strong that I cannot promise that I can control this mind."
+
+And after the statement of Arjuna, Kṛṣṇa said... Kṛṣṇa saw that His friend was becoming disappointed. Because he cannot prosecute the yogic system, so he's becoming disappointed. But He knew that Arjuna was always thinking of Kṛṣṇa. That..., that was certain. Although his mind was very agitated because he was politician, he was warrior, still, his mind was fixed up in Kṛṣṇa. That He knew. Therefore He said that *yoginām api sarveṣāṁ mad-gatenāntar-ātmanā* *Bg.* 6.47.
+
+The Kṛṣṇa consciousness movement, the technique is that you may be engaged in various types of work, but the mind must be always fixed up in Kṛṣṇa. That art you have to learn. How it is possible? It is possible. Perhaps you have not seen—in India the women, they go to draw water from the well, and they keep on the head. They are going, but the head is so balanced that the waterpot will never fall down. There are many instances that if you learn how to keep the balance, in spite of your movement, the waterpot on the head will not fall.
+
+Similarly, if you mold your life in such a way that Kṛṣṇa should always be remembered, then, in spite of your mind being very agitated, your mind will be fixed up in Kṛṣṇa. That is required. Therefore in the devotional service we have got so many engagements.
+
+> śravaṇaṁ kīrtanaṁ viṣṇoḥ
+> smaraṇaṁ pāda-sevanam
+> arcanaṁ vandanaṁ dāsyaṁ
+> sakhyam ātma-nivedanam
+
+[*SB 7.5.23*]
+
+This is the art. Just like Ambarīṣa Mahārāja. He was also great emperor, and he had to rule over all over the world. Still, *sa vai manaḥ kṛṣṇa-padāravindayoḥ* [*SB 9.4.18*]: he always fixed up his mind on the lotus feet of Kṛṣṇa. *Sa vai manaḥ kṛṣṇa-padāravindayor vacāṁsi vaikuṇṭha-guṇānuvarṇane.*
+
+That is the art of Kṛṣṇa consciousness. In spite of your all engagement, your mind should be fixed up in Kṛṣṇa.
+
+> naikāntikaṁ tad dhi kṛte 'pi niṣkṛte
+> manaḥ punar dhāvati ced asat-pathe
+
+[*SB 6.2.12*]
+
+Because mind is inclined, inclined to go astray. *Asat-pathe. Asat* means this material, and *pathe* means way. Mind is generally attracted to this *asat-pathe,* but you have to draw the mind to the *sat-pathe. Sat* means spiritual, eternal. That is the practice.
+
+> tat karma-nirhāram abhīpsatāṁ harer
+> guṇānuvādaḥ khalu sattva-bhāvanaḥ
+
+[*SB 6.2.12*]
+
+Therefore, *tat karma-nirhāram abhīpsatām. Karma.* Because if you are engaged in ordinary *karma*... *Karma* I have already explained. *Karma* means doing something for your personal benefit. That is called *karma.* Or, in plain words, doing something for sense gratification, that is called *karma.* And as soon as you engage your activities for such sense gratification or for your personal benefit, then you have to commit sins. That's a fact. Therefore we are entangled in this birth and death problem.
+
+So here the Viṣṇudūta advises that "If you want..." *Tat karma-nirhāram abhīpsatām:* "If you desire at all that 'I shall be freed from the resultant action of *karma,*' then your duty should be *harer guṇānuvādaḥ khalu sattva-bhāvanaḥ.* You simply try to glorify the Supreme Lord always, twenty-four hours. That will purify you." *Khalu sattva-bhāvanaḥ. Sattva-bhāvanaḥ.* Śrīdhara Svāmī says,
+
+[pause] *sattva-bhāvanaḥ citta-śodhakaḥ. Sattva-bhāvana* means *citta-śodhaka. Citta* means the heart, and *śodhaka,* the purifying process.
+
+So instead of taking yourself to these prescribed ritualistic ceremonies, if you simply engage your mind in describing or glorifying the Supreme Personality of Godhead... That is our process. Our only objective is how to glorify the Supreme Personality of Godhead. We are writing books, we are publishing magazines, we are preaching, we are going everywhere—just to glorify the Supreme Personality of Godhead, Kṛṣṇa. That is our only business.
+
+This process is recommended here, *citta-śodhaka.* If you sit down and write some article on Kṛṣṇa, that means you have to concentrate on Kṛṣṇa's activities or Kṛṣṇa's devotees' activities, and that very process will purify your heart. Therefore we always recommend to our students that you write articles, read our magazine, read our book. In this way if we keep ourself... Work for Kṛṣṇa. This... We have come here in this *paṇḍal,* or in this Kumbha-melā, not for any other purpose than to glorify the Supreme Lord so that people may understand the importance of this movement.
+
+So *citta-śodhaka,* here recommended by the Viṣṇudūta. Viṣṇudūta means the direct associates of Lord Viṣṇu. *Tat karma-nirhāram abhīpsatāṁ harer guṇānuvādaḥ khalu sattva-bhāvanaḥ.* Be always engaged in glorifying the transcendental qualities of Hari. Again it is said *hareḥ,* not any other person, Hari, Viṣṇu, the Supreme Personality of Godhead.
+
+> athainaṁ māpanayata
+> kṛtāśeṣāgha-niṣkṛtam
+> yad asau bhagavan-nāma
+> mriyamāṇaḥ samagrahīt
+
+[*SB 6.2.13*]
+
+Now, the Viṣṇudūta concludes that "This Ajāmila, we know that throughout his whole life he has simply committed sinful activities. That's a fact. We know. But at the time of his death," *mriyamāṇaḥ, yad asau bhagavan-nāma samagrahīt,* "simply chanted the name of Hari, Nārāyaṇa," *samagrahīt,* "perfectly, without any offense." Just try to understand that simply by chanting one name only, Nārāyaṇa, *samagrahīt,* without any offense, he became immediately purified from all sinful activities.
+
+These are not exaggeration. This is the fact. Otherwise, why Caitanya Mahāprabhu should encourage,
+
+> harer nāma harer nāma harer nāmaiva kevalam
+> kalau nāsty eva nāsty eva nāsty eva gatir anyathā
+
+[*Cc. Ādi 17.21*]
+
+You'll never find any disagreement with the *śāstra, sādhu* and *guru.* Therefore Narottama dāsa Ṭhākura says, *sādhu-śāstra-guru-vākya.* That is our guidance. *Sādhu.* If you say Caitanya Mahāprabhu was a *sādhu* or a devotee, so His words and the words of the scriptures are the same. The *sādhu* will speak only on the authorities of *śāstra.* And *śāstra* means the description given by the *sādhu.* They are correlative. And *guru* means who follows the *sādhu* and the *śāstra.*
+
+So these are very instructive. *Sādhu* who is always engaged in the service of the Lord, he is *sādhu, bhakta.* And *śāstra. Śāstra* means description of the activities of the *sādhu* and Bhagavān. Just like *Śrīmad-Bhāgavatam.* We are reading the story of Ajāmila. He became a *sādhu;* therefore his description of his life is inserted here. Prahlāda Mahārāja a *sādhu;* Dhruva Mahārāja, a *sādhu;* Ambarīṣa Mahārāja, a *sādhu.*
+
+Formerly the kings were all *sādhus, rājarṣi.* Just like in the *Bhagavad-gītā* you have heard, *imaṁ rājarṣayo viduḥ* [*Bg*. 4.2]. Formerly the kings were so exalted and they were so nice that they were, although they were sitting on the throne, they were dealing in politics, still, they were *sādhu,* just like *ṛṣi.* There are many instances.
+
+So if there is one *sādhu,* he can make many other *sādhus. Sādhu. Sādhu* does not mean that he is alone enjoying the fruits of his spiritual life. *Sādhu* means who is trying to make others *sādhu.* He is *sādhu.* Kṛṣṇa likes such *sādhu,* as He has described in the last portion of *Bhagavad-gītā: na ca tasmān manuṣyeṣu kaścin me priya-kṛttamaḥ* *Bg.* 18.69*.*
+
+The *sādhu*... And *sādhu* means he should preach according to the scriptures, not outside the scriptures. *Sādhu* does not mean he malinterprets the *śāstra.* He should present the *śāstra* as it is. He should understand the *śāstra* as it is. And *guru* means who is following *sādhu* and *śāstra.* He is *guru.*
+
+Therefore Narottama dāsa Ṭhākura says that *sādhu, śāstra,* these things should be confirmed by the spiritual master, and if we follow these principles, *sādhu-śāstra-guru-vākya, cittete kariyā aikya*... We should confirm one thing by the other, the other by another. In this way we have to make our conclusion.
+
+So, *yad asau bhagavan-nāma mriyamāṇaḥ samagrahīt.* Because the Yamadūta here, yes, Viṣṇudūta says that, "We know that this person was addicted to sinful activities throughout his whole life, but at the time of his death he has remembered. He has uttered offenselessly once the name of Nārāyaṇa." But one should not think that "All right. Let us go on committing all sinful activities, and at the time of my death I shall think of Nārāyaṇa or Kṛṣṇa." That is not possible.
+
+That is explained in the *Bhagavad-gītā.* If you practice when you are alive, when you are strong, for chanting the holy name of Kṛṣṇa or Nārāyaṇa, then there may be chance. Otherwise it is not possible. Not that a layman will all of a sudden will chant "Nārāyaṇa." He must have previous practice. Therefore Caitanya Mahāprabhu has recommended, *kīrtanīyaḥ sadā hariḥ* [*Cc. Ādi* 17.31]*. Amāninā mānadena kīrtanīyaḥ sadā hariḥ. Sadā tad-bhāva-bhāvitaḥ.* In the *Bhagavad-gītā* Śrī Kṛṣṇa says, *sadā tad-bhāva-bhāvitaḥ* *Bg.* 8.6*.* If you practice in your life chanting the holy name of Kṛṣṇa...
+
+I remember one of our teachers in our school life, he instructed that "If you always think that 'I shall pass my examination with distinction,' then you can pass in first division. If you think that 'I shall pass my examination in the first division,' then you may pass in the third division. And if you think that 'I shall some way pass my examination in the third division,' then you will fail." That means if you expect more than your capacity, then it may be possible that at the time of examination you get the right number and pass your exam.
+
+So the chanting of Hare Kṛṣṇa *mantra,* Caitanya Mahāprabhu has said, *sadā, kīrtanīyaḥ sadā hariḥ:* not that two hours or one hour, but one should practice. And that is the recommendation as it was followed by Haridāsa Ṭhākura. But because we cannot do that, therefore we have to engage always in the service of Kṛṣṇa. That will make me remembering Kṛṣṇa. Real fact is how to remember Kṛṣṇa.
+
+So this remembering of Kṛṣṇa by Ajāmila was not accidental. He chanted. He served Nārāyaṇa in his previous life when he was young man, but by bad association he fell down. But the effect was there at the time of his death, so much effective that the Viṣṇudūta recommends that "Because he has chanted at the time of his death the holy name of Lord, he is now free from all sinful reaction."
+
+Now,
+
+> sāṅketyaṁ pārihāsyaṁ vā
+> stobhaṁ helanam eva vā
+> vaikuṇṭha-nāma-grahaṇam
+> aśeṣāgha-haraṁ viduḥ
+
+[*SB 6.2.14*]
+
+Now, it is very nice conclusion. He says, the Viṣṇudūta says, *sāṅketyam. Sāṅketyam* means "simply by indication." *Sāṅketyaṁ pārihāsyam,* "or by joking." Sometimes people joke us, "Hare Kṛṣṇa. Hare Kṛṣṇa. *Haribol.*" That is... That has also its effect, *pārihāsyam. Sāṅketyaṁ pārihāsyaṁ vā stobham,* "or with devotion and reverence," *stobhaṁ helanam eva vā.*
+
+Or *helanam* means "without giving any importance, if one chants." *Helanam eva vā vaikuṇṭha-nāma-grahaṇam. Vaikuṇṭha* means Kṛṣṇa or Nārāyaṇa. *Vaikuṇṭha-nāma-grahaṇam aśeṣāgha-haraṁ viduḥ.* But even in such way one chants the holy name, then it can vanquish immediately many millions of sinful reactions.
+
+There is another Bengali verse, *eka hari-nāme, yata pāpa hare, pāpī haya tata pāpa, karibāre nahe*: "Once chanted Hare Kṛṣṇa, or Kṛṣṇa's name, it has so potency, so much potencies that it can vanquish millions and millions of sinful reaction that so much a sinful man cannot commit."
+
+A sinful man can commit hundreds of thousands of sinful activities, but the holy name of Kṛṣṇa is so powerful that a sinful man will be unable to commit so many sins as the name can vanquish simply by chanting once offenselessly. This is the conclusion.
+
+> sāṅketyaṁ pārihāsyaṁ vā
+> stobhaṁ helanam eva vā
+> vaikuṇṭha-nāma-grahaṇam
+> aśeṣāgha-haraṁ viduḥ
+
+> patitaḥ skhalito bhagnaḥ
+> sandaṣṭas tapta āhataḥ
+> harir ity avaśenāha
+> pumān nārhati yātanāḥ
+
+[*SB 6.2.14-15*]
+
+Somehow or other if we chant Hare Kṛṣṇa *mantra,* then we can save ourselves from so many troubles, as it is example. This verse we shall explain tomorrow again.
+
+Thank you very much.
+
+**Devotee:** *Haribol.*
+
+**Prabhupāda:** Hare Kṛṣṇa. [end]

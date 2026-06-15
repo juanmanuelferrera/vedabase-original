@@ -1,0 +1,29 @@
+# The Nectar of Devotion [First Publication]
+
+*Type: Nectar of Devotion Dated: June 23rd 1970 Location: Los Angeles Audio file: 700623ND-LOS-ANGELES.mp3*
+
+**Prabhupāda:** Everything all right?
+
+**Devotees:** *Jaya.*
+
+**Prabhupāda:** Hare Kṛṣṇa. So we have published our *Nectar of Devotion.* So every one of you should read this *Nectar of Devotion* repeatedly. The whole substance of Vaiṣṇava philosophy and activities, everything is there. So every one of you read this *Nectar of Devotion* once, twice, thrice. Unless you have got full-fledged ideas what is this devotional service.
+
+That was written by... Actually, it was spoken by Lord Caitanya to Rūpa Gosvāmī. For ten days continually He instructed Rūpa Gosvāmī at Prayāga, Daśāśvamedha-ghāṭa [*Cc. Madhya* 23.102]. You have seen the picture in *TLC* [Teachings of Caitanya]. Caitanya Mahāprabhu was Allahabad, Prayāga, and Rūpa Gosvāmī met Him there. He was offering obeisances flat. You have seen that picture.
+
+So at that time Caitanya Mahāprabhu personally gave him instruction what is this cult of *bhakti.* So for ten days. And he took note of it, and later on he placed this book in the form of *Bhakti-rasāmṛta-sindhu.* That is in Sanskrit. It will be difficult for you. Therefore I have presented a summary study, and the summary study has come to 407 pages. If we would have elaborately described each and every verse, then it would have come to at least thousand pages.
+
+So the whole substance is creamed. You should take advantage of this. And don't indulge in much unnecessary talks. Time should be very properly utilized. *Āyuṣaḥ kṣaṇa eko 'pi na labhyaḥ svarṇa-koṭibhiḥ* [Cāṇakya Paṇḍita]. Value of time is so great that one moment of your life lost, it cannot be returned even in exchange of millions of dollars. Therefore every moment should be properly utilized. *Avyartha kālatvam* [*Cc.* *Madhya* 23.18-19]. When one is advanced in Kṛṣṇa consciousness, his business becomes to see, "Whether I am wasting my time?" That is one of the sign, advanced devotee. *Avyartha kālatvam.*
+
+*Nāma-gāne sadā ruci* [*Cc. Madhya* 23.32]: attachment for chanting always. *Prītis tad-vasati sthale* [*Cc.* *Madhya* 23.18-19]: and attraction or attachment for living in the temple, *vasati,* where Kṛṣṇa lives. Kṛṣṇa lives everywhere, but specifically, to give us chance to meet, He lives in the temple or in places like Vṛndāvana. So *prītis tad-vasati sthale:* one should be enhanced in attachment for living where Kṛṣṇa is living. *Prītis tad... Nāma-gāne sadā ruci*: and taste for singing always the holy name. These are development.
+
+*Ādau śraddhā tataḥ sādhu-saṅgaḥ* [*Cc. Madhya* 23.14-15]. All of you who come here, it is out of *śraddhā,* some, what is called... What is the exact English word for *śraddhā*? Devotion, you can take. Devotion. Those who come here, that first principle is they have some regard that "This Kṛṣṇa consciousness movement is nice. Let me see." So this is the beginning. *Ādau śraddhā.* And then *sādhu-saṅgaḥ:* then associate with these devotees. Then, after some time, when he's little advanced more, then he is eager to become initiated. This is third stage, as some of these students are going to be initiated today.
+
+The initiation means *bhajana-kriyā,* actually executing devotional service: initiation. And if one actually executes devotional service, then *anartha-nivṛttiḥ syāt,* then all nonsense habits will disappear. Then I'll not have to stress on the point these four regulative principles. Automatically it will go away. That is the test. How one has properly utilized his initiation will be tested that he has no more attraction for these four principles: illicit sex, intoxication, gambling and meat-eating. They will automatically go. There is no need of asking. *Anartha-nivṛttiḥ syāt.*
+
+Then *ruci.* When one is freed from all these prohibitive principles, then he develops a taste, *tato ruci. Tato niṣṭhā:* then he's steadily confirmed. *Tathāsaktiḥ.* Then attachment: he cannot go. He cannot go. *Tathāsaktis tato bhāvaḥ.* Then ecstasy. Then he comes to the platform of love of Godhead. So [break] when that platform is reached, then everything is successful. And if that platform is not reached, then everything is simply waste of time. But in the beginning, if you follow these principles, as laid down by Śrīla Rūpa Gosvāmī and other *ācāryas...*
+
+So these things, one after another, everything is very clearly explained in this *Nectar of Devotion.* So each chapter you should read very carefully. And if you cannot understand, read it repeatedly. Don't all of a sudden, reading one or two page, immediately question, "Prabhupāda, what is this? What is this? What is this?" Go on reading, and the answers will automatically come.
+
+So this book is..., this valuable book is now published. You should take full advantage.
+
+So chant this *mantra...* [end]

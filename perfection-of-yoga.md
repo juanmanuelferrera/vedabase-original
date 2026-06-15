@@ -1,7 +1,8 @@
-# Perfection of Yoga
+# The Perfection of Yoga
 
+### 1
 
-# Chapter 1: Yoga as Rejected by Arjuna
+1. Yoga as Rejected by Arjuna
 
 There have been many *yoga* systems popularized in the Western world, especially in this century, but none of them have actually taught the perfection of *yoga.* In the *Bhagavad-gītā,* Śrī Kṛṣṇa, the Supreme Personality of Godhead, teaches Arjuna directly the perfection of *yoga.* If we actually want to participate in the perfection of the *yoga* system, in *Bhagavad-gītā* we will find the authoritative statements of the Supreme Person.
 
@@ -14,7 +15,7 @@ However, within the discourse, when Arjuna heard the explanation of the meditati
 > etasyāhaṁ na paśyāmi
 > cañcalatvāt sthitiṁ sthirām
 
-**"O Madhusūdana, the system of *yoga* which You have summarized appears impractical and unendurable to me, for the mind is restless and unsteady."** (Bg. 6.33)
+**"O Madhusūdana, the system of *yoga* which You have summarized appears impractical and unendurable to me, for the mind is restless and unsteady."** [[bg/6/33|(Bg. 6.33)]]
 
 This is important. We must always remember that we are in a material circumstance wherein at every moment our mind is subject to agitation. Actually we are not in a very comfortable situation. We are always thinking that by changing our situation we will overcome our mental agitation, and we are always thinking that when we reach a certain point, all mental agitations will disappear. But it is the nature of the material world that we cannot be free from anxiety. Our dilemma is that we are always trying to make a solution to our problems, but this universe is so designed that these solutions never come.
 
@@ -25,7 +26,7 @@ Not being a cheater, being very frank and open, Arjuna tells Kṛṣṇa that th
 > tasyāhaṁ nigrahaṁ manye
 > vāyor iva suduṣkaram
 
-**"for the mind is restless, turbulent, obstinate and very strong, O Kṛṣṇa, and to subdue it is, it seems to me, more difficult than controlling the wind."** (Bg. 6.34)
+**"for the mind is restless, turbulent, obstinate and very strong, O Kṛṣṇa, and to subdue it is, it seems to me, more difficult than controlling the wind."** [[bg/6/34|(Bg. 6.34)]]
 
 It is indeed a fact that the mind is always telling us to go here, go there, do this, do that—it is always telling us which way to turn. Thus the sum and substance of the *yoga* system is to control the agitated mind. In the meditational *yoga* system the mind is controlled by focusing on the Supersoul—that is the whole purpose of *yoga.* But Arjuna says that controlling this mind is more difficult than stopping the wind from blowing. One can imagine a man stretching out his arms trying to stop a hurricane. Are we to assume that Arjuna is simply not sufficiently qualified to control his mind? The actual fact is that we cannot begin to understand the immense qualifications of Arjuna. After all, he was a personal friend of the Supreme Personality of Godhead. This is a highly elevated position and is one that cannot be at all attained by one without great qualifications. In addition to this, Arjuna was renowned as a great warrior and administrator. He was such an intelligent man that he could understand *Bhagavad-gītā* within one hour, whereas at the present moment great scholars cannot even understand it in the course of a lifetime. Yet Arjuna was thinking that controlling the mind was simply not possible for him. Are we then to assume that what was impossible for Arjuna in a more advanced age is possible for us in this degenerate age? We should not for one moment think that we are in Arjuna's category. We are a thousand times inferior.
 
@@ -35,8 +36,9 @@ Now when we turn to the *Śrīmad-Bhāgavatam,* in the Twelfth Canto we find Śu
 
 Today we have great difficulties living fifty or sixty years. A man may live at the utmost eighty or a hundred years. In addition, these brief years are always fraught with anxiety, with difficulties due to circumstances of war, pestilence, famine and so many other disturbances. We're also not very intelligent, and, at the same time, we're unfortunate. These are the characteristics of man living in Kali-yuga, a degraded age. So properly speaking, we can never attain success in this meditational *yoga* system described by Kṛṣṇa. At the utmost we can only gratify our personal whims by some pseudoadaptation of this system. Thus people are paying money to attend some classes in gymnastic exercises and deep-breathing, and they're happy if they think they can lengthen their lifetimes by a few years or enjoy better sex life. But we must understand that this is not the actual *yoga* system. In this age that meditational system cannot be properly executed. Instead, all of the perfections of that system can be realized through *bhakti-yoga,* the sublime process of Kṛṣṇa consciousness, specifically *mantra-yoga,* the glorification of Śrī Kṛṣṇa through the chanting of Hare Kṛṣṇa. That is recommended in Vedic scriptures and is introduced by great authorities like Caitanya Mahāprabhu. Indeed, the *Bhagavad-gītā* proclaims that the *mahātmās,* the great souls, are always chanting the glories of the Lord. If one wants to be a *mahātmā* in terms of the Vedic literature, in terms of *Bhagavad-gītā* and in terms of the great authorities, then one has to adopt this process of Kṛṣṇa consciousness and of chanting Hare Kṛṣṇa. But if we're content at making a show of meditation by sitting very straight in lotus position and going into a trance like some sort of performer, then that is a different thing. But we should understand that such show-bottle performances have nothing to do with the actual perfection of *yoga.* The material disease cannot be cured by artificial medicine. We have to take the real cure straight from Kṛṣṇa.
 
+### 2
 
-# Chapter 2: Yoga as Work in Devotion
+2. Yoga as Work in Devotion
 
 We have heard the names of so many different *yogas* and *yogīs,* but in *Bhagavad-gītā* Kṛṣṇa says that the actual *yogī* is he who has surrendered himself "fully unto Me." Kṛṣṇa proclaims that there is no difference between renunciation (*sannyāsa*) and *yoga.*
 
@@ -45,7 +47,7 @@ We have heard the names of so many different *yogas* and *yogīs,* but in *Bhaga
 > na hy asannyasta-saṅkalpo
 > yogī bhavati kaścana
 
-**"What is called renunciation is the same as *yoga,* or linking oneself with the Supreme; for no one can become a *yogī* unless he renounces the desire for sense gratification."** (Bg. 6.2)
+**"What is called renunciation is the same as *yoga,* or linking oneself with the Supreme; for no one can become a *yogī* unless he renounces the desire for sense gratification."** [[bg/6/2|(Bg. 6.2)]]
 
 In *Bhagavad-gītā* there are three basic types of *yoga* delineated—*karma-yoga, jñāna-yoga* and *bhakti-yoga.* The systems of *yoga* may be likened to a staircase. Someone may be on the first step, someone may be halfway up, or someone may be on the top step. When one is elevated to certain levels, he is known as a *karma-yogī, jñāna-yogī,* etc. In all cases, the service to the Supreme Lord is the same. It is a difference in elevation only. Thus Śrī Kṛṣṇa tells Arjuna that he must understand that renunciation (*sannyāsa*) and *yoga* are the same, because without being freed from desire and sense gratification one can become neither a *yogī* nor a *sannyāsī.*
 
@@ -55,10 +57,11 @@ In the Sixth Chapter of *Bhagavad-gītā,* Śrī Kṛṣṇa instructs Arjuna ho
 
 In the preliminary stage one is advised to always work for Kṛṣṇa. One must be always searching out some duty or some engagement, for it is a bad policy to remain idle even for a second. When one actually becomes advanced through such engagements, then he may not work physically, but he is always engaged within by constantly thinking of Kṛṣṇa. In the preliminary stage, however, one is always advised to engage one's senses in the service of Kṛṣṇa. There are a variety of activities one can perform in serving Kṛṣṇa. The International Society for Krishna Consciousness is intended to help direct aspirant devotees in these activities. for those working in Kṛṣṇa consciousness, there are simply not enough hours in the day to serve Kṛṣṇa. There are always activities, engagements both day and night, which the student of Kṛṣṇa consciousness performs joyfully. That is the stage of real happiness—constant engagement for Kṛṣṇa and spreading Kṛṣṇa consciousness around the world. In the material world one may become very tired if he works all the time, but if one works in Kṛṣṇa consciousness, he can chant Hare Kṛṣṇa and engage in devotional service twenty-four hours a day and never get tired. But if we vibrate some mundane vibration, then we soon become exhausted. There is no question of becoming tired on the spiritual platform. The spiritual platform is absolute. In the material world everyone is working for sense gratification. The profits of one's labor in the material world are used to gratify one's senses. But a real *yogī* does not desire such fruits. He has no desire other than Kṛṣṇa, and Kṛṣṇa is already there.
 
+### 3
 
-# Chapter 3: Yoga as Meditation on Kṛṣṇa
+3. Yoga as Meditation on Kṛṣṇa
 
-In India there are sacred places where *yogīs* go to meditate in solitude, as prescribed in *Bhagavad-gītā.* Traditionally, *yoga* cannot be executed in a public place, but insofar as *kīrtana-mantra-yoga,* or the *yoga* of chanting the Hare Kṛṣṇa *mantra:* Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare—is concerned, the more people present, the better. When Lord Caitanya Mahāprabhu was performing *kīrtana* in India some five hundred years ago, He organized in each group sixteen people to lead the chanting, and thousands of people chanted with them. This participation in *kīrtana,* in the public chanting of the names and glories of God, is very possible and is actually easy in this age; but as far as the meditational process of *yoga* is concerned, that is very difficult. It is specifically stated in *Bhagavad-gītā* that to perform meditational *yoga* one should go to a secluded and holy place. In other words, it is necessary to leave home. In this age of overpopulation it is not always possible to find a secluded place, but this is not necessary in *bhakti-yoga.*
+In India there are sacred places where *yogīs* go to meditate in solitude, as prescribed in *Bhagavad-gītā.* Traditionally, *yoga* cannot be executed in a public place, but insofar as *kīrtana-mantra-yoga,* or the *yoga* of chanting the Hare Kṛṣṇa *mantra:* Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare—is concerned, the more people present, the better. When Lord Caitanya Mahāprabhu was performing *kīrtana* in India some five hundred years ago, He organized in each group sixteen people to lead the chanting, and thousands of personss chanted with them. This participation in *kīrtana,* in the public chanting of the names and glories of God, is very possible and is actually easy in this age; but as far as the meditational process of *yoga* is concerned, that is very difficult. It is specifically stated in *Bhagavad-gītā* that to perform meditational *yoga* one should go to a secluded and holy place. In other words, it is necessary to leave home. In this age of overpopulation it is not always possible to find a secluded place, but this is not necessary in *bhakti-yoga.*
 
 In the *bhakti-yoga* system there are nine different processes: hearing, chanting, remembering, serving, worshiping the Deity in the temple, praying, carrying out orders, serving Kṛṣṇa as a friend and sacrificing for Him. Out of these, *śravaṇaṁ kīrtanam* [[sb/7/5/23-24|[SB 7.5.23] ]], hearing and chanting, are considered the most important. At a public *kīrtana* one person can chant Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare, while a group listens, and at the end of the *mantra,* the group can respond, and in this way there is a reciprocation of hearing and chanting. This can easily be performed in one's own home, with a small group of friends or with many people in a large public place. One may attempt to practice meditational *yoga* in a large city or in a society, but one must understand that this is one's own concoction and is not the method recommended in *Bhagavad-gītā.*
 
@@ -81,7 +84,7 @@ In *yoga* it is necessary to control all of the senses, and when all the senses 
 > jitātmanaḥ praśāntasya
 > paramātmā samāhitaḥ
 
-**"for one who has conquered the mind, the Supersoul is already reached, for he has attained tranquillity."** (Bg. 6.7)
+**"for one who has conquered the mind, the Supersoul is already reached, for he has attained tranquillity."** [[bg/6/7|(Bg. 6.7)]]
 
 This material world has been likened to a great forest fire. As in the forest, fire may automatically take place, so in this material world, although we may try to live peacefully, there is always a great conflagration. It is not possible to live in peace anywhere in the material world. But for one who is transcendentally situated—either by the meditational *yoga* system or by the empirical philosophical method or by *bhakti-yoga*—peace is possible. All forms of *yoga* are meant for transcendental life, but the method of chanting is especially effective in this age. *Kīrtana* may go on for hours, and one may not feel tired, but it is difficult to sit in lotus position perfectly still for more than a few minutes. Yet regardless of the process, once the fire of material life is extinguished, one does not simply experience what is called impersonal void. Rather, as Kṛṣṇa tells Arjuna, one enters into the supreme abode.
 
@@ -90,12 +93,13 @@ This material world has been likened to a great forest fire. As in the forest, f
 > śāntiṁ nirvāṇa-paramāṁ
 > mat-saṁsthām adhigacchati
 
-**"By meditating in this manner, always controlling the body, mind and activities, the mystic transcendentalist attains to the kingdom of God through cessation of material existence."** (Bg. 6.15)
+**"By meditating in this manner, always controlling the body, mind and activities, the mystic transcendentalist attains to the kingdom of God through cessation of material existence."** [[bg/6/15|(Bg. 6.15)]]
 
 Kṛṣṇa's abode is not void. It is like an establishment, and in an establishment there is a variety of engagements. The successful *yogī* actually attains to the kingdom of God, where there is spiritual variegatedness. The *yoga* processes are simply ways to elevate oneself to enter into that abode. Actually we belong to that abode, but being forgetful, we are put in this material world. Just as a madman becomes crazy and is put into a lunatic asylum, so we, losing sight of our spiritual identity, become crazy and are put into this material world. Thus the material world is a sort of lunatic asylum, and we can easily notice that nothing is done very sanely here. Our real business is to get out and enter into the kingdom of God. In *Bhagavad-gītā* Kṛṣṇa gives information of this kingdom and also gives instructions about His position and our position—of what He is and what we are. All the information necessary is set forth in *Bhagavad-gītā,* and a sane man will take advantage of this knowledge.
 
+### 4
 
-# Chapter 4: Yoga as Body and Mind Control
+4. Yoga as Body and Mind Control
 
 Throughout *Bhagavad-gītā,* Kṛṣṇa was encouraging Arjuna to fight, for he was a warrior, and fighting was his duty. Although Kṛṣṇa delineates the meditational *yoga* system in the Sixth Chapter, He does not stress it or encourage Arjuna to pursue it as his path. Kṛṣṇa admits that this meditational process is very difficult:
 
@@ -105,7 +109,7 @@ Throughout *Bhagavad-gītā,* Kṛṣṇa was encouraging Arjuna to fight, for h
 > abhyāsena tu kaunteya
 > vairāgyeṇa ca gṛhyate
 
-**"The Blessed Lord said: O mighty-armed son of Kuntī, it is undoubtedly very difficult to curb the restless mind, but it is possible by constant practice and by detachment."** (Bg. 6.35)
+**"The Blessed Lord said: O mighty-armed son of Kuntī, it is undoubtedly very difficult to curb the restless mind, but it is possible by constant practice and by detachment."** [[bg/6/35|(Bg. 6.35)]]
 
 Here Kṛṣṇa emphasizes practice and renunciation as ways to control the mind. But what is that renunciation? Today it is hardly possible for us to renounce anything, for we are so habituated to such a variety of material sense pleasures. Despite leading a life of uncontrolled sense indulgence, we attend *yoga* classes and expect to attain success. There are so many rules and regulations involved in the proper execution of *yoga,* and most of us can hardly give up a simple habit like smoking. In His discourse on the meditational *yoga* system, Kṛṣṇa proclaims that *yoga* cannot be properly performed by one who eats too much or eats too little. One who starves himself cannot properly perform *yoga.* Nor can the person who eats more than required. The eating process should be moderate, just enough to keep body and soul together; it should not be for the enjoyment of the tongue. When palatable dishes come before us, we are accustomed to take not just one of the preparations but two, three and four—and upwards. Our tongue is never satisfied. But it is not unusual in India to see a *yogī* take only a small spoonful of rice a day and nothing more. Nor can one execute the meditational *yoga* system if one sleeps too much or does not sleep sufficiently. Kṛṣṇa does not say that there is such a thing as dreamless sleep. As soon as we go to sleep, we will have a dream, although we may not remember it. In the *Gītā* Kṛṣṇa cautions that one who dreams too much while sleeping cannot properly execute *yoga.* One should not sleep more than six hours daily. Nor can one infected by insomnia, who cannot sleep at night, successfully execute *yoga,* for the body must be kept fit. Thus Kṛṣṇa outlines so many requirements for disciplining the body. All these requirements, however, can essentially be broken down into four basic rules: no illicit sexual connection, no intoxication, no meat-eating and no gambling. These are the four minimum regulations for the execution of any *yoga* system. And in this age who can refrain from these activities? We have to test ourselves accordingly to ascertain our success in *yoga* execution.
 
@@ -114,7 +118,7 @@ Here Kṛṣṇa emphasizes practice and renunciation as ways to control the min
 > ekākī yata-cittātmā
 > nirāśīr aparigrahaḥ
 
-**"A transcendentalist should always try to concentrate his mind on the Supreme Self; he should live alone in a secluded place and should always carefully control his mind. He should be free from desires and feelings of possessiveness."** (Bg. 6.10)
+**"A transcendentalist should always try to concentrate his mind on the Supreme Self; he should live alone in a secluded place and should always carefully control his mind. He should be free from desires and feelings of possessiveness."** [[bg/6/10|(Bg. 6.10)]]
 
 From this verse we can understand that it is the duty of the *yogī* to always remain alone. Meditational *yoga* cannot be performed in an assembly, at least not according to *Bhagavad-gītā.* In the meditational system it is not possible to concentrate the mind upon the Supersoul except in a secluded place. In India, there are still many *yogīs* who assemble at the Kumba Melā. Generally they are in seclusion, but on rare occasions they come to attend special functions. In India there are still thousands of *yogīs* and sages, and every twelve years or so they meet in particular holy places—Allahabad, etc.—just as in America they have businessmen's conventions. The *yogī,* in addition to living in a secluded place, should also be free from desires and should not think that he is performing *yoga* to achieve some material powers. Nor should he accept gifts or favors from people. If he is properly executing this meditational *yoga,* he stays alone in the jungles, forests or mountains and avoids society altogether. At all times he must be convinced for whom he has become a *yogī.* He does not consider himself alone because at all times the Paramātmā—Supersoul—is with him. from this we can see that in modern civilization it is indeed very difficult to execute this meditational form of *yoga* properly. Contemporary civilization in this age of Kali has actually made it impossible for us to be alone, to be desireless and to be possessionless.
 
@@ -143,9 +147,9 @@ Of course everyone is motivated by sex life, but sex life is not actually discou
 > vaśyātmanā tu yatatā
 > śakyo 'vāptum upāyataḥ
 
-"for one whose mind is unbridled," Kṛṣṇa further says, "self-realization is difficult work." (Bg. 6.36) 
+"for one whose mind is unbridled," Kṛṣṇa further says, "self-realization is difficult work." [[bg/6/36|(Bg. 6.36)]] 
 
-Anyone knows that an unbridled horse is dangerous to ride. He can go in any direction at any speed, and his rider is likely to come to some harm. Insofar as the mind is unbridled, Kṛṣṇa agrees with Arjuna that the *yoga* system is very difficult work indeed. "But," Kṛṣṇa adds, "he whose mind is controlled and strives by right means is assured of success. That is My judgment." (Bg. 6.36) What is meant by "strives by right means"? One has to try to follow the four basic regulative principles as mentioned and execute his activities absorbed in Kṛṣṇa consciousness.
+Anyone knows that an unbridled horse is dangerous to ride. He can go in any direction at any speed, and his rider is likely to come to some harm. Insofar as the mind is unbridled, Kṛṣṇa agrees with Arjuna that the *yoga* system is very difficult work indeed. "But," Kṛṣṇa adds, "he whose mind is controlled and strives by right means is assured of success. That is My judgment." [[bg/6/36|(Bg. 6.36)]] What is meant by "strives by right means"? One has to try to follow the four basic regulative principles as mentioned and execute his activities absorbed in Kṛṣṇa consciousness.
 
 If one wants to engage in *yoga* at home, then he has to make certain that his other engagements are moderate. He cannot spend long hours of the day working hard to simply earn a livelihood. One should work very moderately, eat very moderately, gratify the senses very moderately and keep his life as free from anxiety as possible. In this way practice of *yoga* may be successful.
 
@@ -156,7 +160,7 @@ What is the sign by which we can tell that one has attained perfection in *yoga*
 > nispṛhaḥ sarva-kāmebhyo
 > yukta ity ucyate tadā
 
-**"When the *yogī,* by practice of *yoga,* disciplines his mental activities and becomes situated in Transcendence—devoid of all material desires—he is said to have attained *yoga.*"** (Bg. 6.18)
+**"When the *yogī,* by practice of *yoga,* disciplines his mental activities and becomes situated in Transcendence—devoid of all material desires—he is said to have attained *yoga.*"** [[bg/6/18|(Bg. 6.18)]]
 
 One who has attained *yoga* is not dependent on the dictations of his mind; rather, the mind comes under his control. Nor is the mind put out or extinguished, for it is the business of the *yogī* to think of Kṛṣṇa, or Viṣṇu, always. The *yogī* cannot allow his mind to go out. This may sound very difficult, but it is possible in Kṛṣṇa consciousness. When one is always engaged in Kṛṣṇa consciousness, in the service of Kṛṣṇa, then how is it possible for the mind to wander away from Kṛṣṇa? In the service of Kṛṣṇa, the mind is automatically controlled.
 
@@ -169,7 +173,7 @@ In the execution of *yoga,* it is very important that the mind is not agitated.
 > yogino yata-cittasya
 > yuñjato yogam ātmanaḥ
 
-**"As a lamp in a windless place does not waver, so the transcendentalist, whose mind is controlled, remains always steady in his meditation on the transcendent self."** (Bg. 6.19)
+**"As a lamp in a windless place does not waver, so the transcendentalist, whose mind is controlled, remains always steady in his meditation on the transcendent self."** [[bg/6/19|(Bg. 6.19)]]
 
 When a candle is in a windless place, its flame remains straight and does not waver. The mind, like the flame, is susceptible to so many material desires that with the slightest agitation it will move. A little movement of the mind can change the whole consciousness. Therefore in India one seriously practicing *yoga* traditionally remained *brahmacārī,* or celibate. There are two kinds of *brahmacārī:* one is completely celibate and the other is *gṛhastha-brahmacārī,* that is to say he has a wife, he does not associate with any other woman, and his relations with his own wife are strictly regulated. In this way, either by complete celibacy or restricted sex life, one's mind is kept from being agitated. Yet when one takes a vow to remain a complete celibate, his mind may still be agitated by sexual desire; therefore in India those practicing the traditional *yoga* under strict vows of celibacy are not allowed to sit alone even with a mother, sister or daughter. The mind is so fickle that the slightest suggestion can create havoc.
 
@@ -220,7 +224,7 @@ We have to raise ourselves to the spiritual standard by ourselves. In this sense
 > anātmanas tu śatrutve
 > vartetātmaiva śatru-vat
 
-**"For he who has conquered the mind, the mind is the best of friends; but for one who has failed to do so, his very mind will be the greatest enemy."** (Bg. 6.6)
+**"For he who has conquered the mind, the mind is the best of friends; but for one who has failed to do so, his very mind will be the greatest enemy."** [[bg/6/6|(Bg. 6.6)]]
 
 How is it possible for one to become his own friend? This is explained here. *Ātmā* means "mind," "body" and "soul." When we speak of *ātmā,* insofar as we are in the bodily conception, we refer to the body. However, when we transcend the bodily conception and rise to the mental platform, *ātmā* refers to the mind. But actually when we are situated on the truly spiritual platform, then *ātmā* refers to the soul. In actuality we are pure spirit. In this way, according to one's spiritual development, the meaning of the word *ātmā* differs. As far as the *Nirukti* Vedic dictionary is concerned, *ātmā* refers to body, mind and soul. However, in this verse of *Bhagavad-gītā, ātmā* refers to mind.
 
@@ -235,12 +239,13 @@ In *Bhagavad-gītā* the material conception of life is condemned in so many pla
 > śītoṣṇa-sukha-duḥkheṣu
 > tathā mānāpamānayoḥ
 
-**"For one who has conquered the mind, the Supersoul is already reached, for he has attained tranquillity. To such a man happiness and distress, heat and cold, honor and dishonor are all the same."** (Bg. 6.7)
+**"For one who has conquered the mind, the Supersoul is already reached, for he has attained tranquillity. To such a man happiness and distress, heat and cold, honor and dishonor are all the same."** [[bg/6/7|(Bg. 6.7)]]
 
-By training the mind, one actually attains tranquillity, for the mind is always dragging us over nonpermanent things, just as an unbridled horse will pull a chariot on a perilous course. Although we are permanent and eternal, somehow or other we have become attracted to nonpermanent things. But the mind can be easily trained if it is simply fixed on Kṛṣṇa. Just as a fort is safe when it is defended by a great general, if Kṛṣṇa is placed in the fort of the mind, there will be no possibility of the enemy's entering. Material education, wealth and power will not help one to control the mind. A great devotee prays, ' 'When will I be able to think of You constantly? My mind is always dragging me about, but as soon as I am able to fix my mind on the lotus feet of Kṛṣṇa, it becomes clear." When the mind is clear, it is possible to meditate on the Supersoul. The Paramātmā, or Supersoul, is always seated within the heart along with the individual soul. The *yoga* system involves concentrating the mind and focusing it on the Paramātmā, or Supersoul, seated within the heart. The previously quoted verse from *Bhagavad-gītā* indicates that one who has conquered the mind and has overcome all attachment to nonpermanent things can be absorbed in thought of the Paramātmā. One so absorbed becomes free from all duality and false designations.
+By training the mind, one actually attains tranquillity, for the mind is always dragging us over nonpermanent things, just as an unbridled horse will pull a chariot on a perilous course. Although we are permanent and eternal, somehow or other we have become attracted to nonpermanent things. But the mind can be easily trained if it is simply fixed on Kṛṣṇa. Just as a fort is safe when it is defended by a great general, if Kṛṣṇa is placed in the fort of the mind, there will be no possibility of the enemy's entering. Material education, wealth and power will not help one to control the mind. A great devotee prays, ' 'When will I be able to think of You constantly? My mind is always dragging me about, but as soon as I am able to fix my mind on the lotus feet of Kṛṣṇa, it becomes clear." When the mind is clear, it is possible to meditate on the Supersoul. The Paramātmā, or Supersoul, is always seated within the heart along with the individual soul. The *yoga* system involves concentrating the mind and focusing it on the Paramātmā, or Supersoul, seated within the heart. The above quoted verse from *Bhagavad-gītā* indicates that one who has conquered the mind and has overcome all attachment to nonpermanent things can be absorbed in thought of the Paramātmā. One so absorbed becomes free from all duality and false designations.
 
+### 5
 
-# Chapter 5: Yoga as Freedom from Duality and Designation
+5. Yoga as Freedom from Duality and Designation
 
 This material world is a world of duality—at one moment we are subjected to the heat of the summer season and at the next moment the cold of winter. Or at one moment we're happy and at the next moment distressed. At one moment honored, at the next dishonored. In the material world of duality, it is impossible to understand one thing without understanding its opposite. It is not possible to understand what honor is unless I understand dishonor. Similarly, I cannot understand what misery is if I have never tasted happiness. Nor can I understand what happiness is unless I have tasted misery. One has to transcend such dualities, but as long as this body is here these dualities will be here also. Insofar as one strives to get out of bodily conceptions—not out of the body but out of bodily conceptions—one has to learn to tolerate such dualities. In the Second Chapter of *Bhagavad-gītā* Kṛṣṇa informs Arjuna that the duality of distress and happiness is due to the body alone. It's like a skin disease, or skin itch. Just because there is itching, one should not be mad after it to scratch it. We should not go mad or give up our duty just because mosquitoes bite us. There are so many dualities one has to tolerate, but if the mind is fixed in Kṛṣṇa consciousness, all these dualities will seem insignificant.
 
@@ -251,7 +256,7 @@ How is it one can tolerate such dualities?
 > yukta ity ucyate yogī
 > sama-loṣṭrāśma-kāñcanaḥ
 
-**"A person is said to be established in self-realization and is called a *yogī* (or mystic) when he is fully satisfied by virtue of acquired knowledge and realization. Such a person is situated in transcendence and is self-controlled. He sees everything—whether it be pebbles, stones or gold—as the same."** (Bg. 6.8)
+**"A person is said to be established in self-realization and is called a *yogī* (or mystic) when he is fully satisfied by virtue of acquired knowledge and realization. Such a person is situated in transcendence and is self-controlled. He sees everything—whether it be pebbles, stones or gold—as the same."** [[bg/6/8|(Bg. 6.8)]]
 
 *Jñāna* means theoretical knowledge, and *vijñāna* refers to practical knowledge. for instance, a science student has to study theoretical scientific conceptions as well as applied science. Theoretical knowledge alone will not help. One has to be able to also apply this knowledge. Similarly, in *yoga* one should have not only theoretical knowledge but practical knowledge. Simply understanding "I am not this body" and at the same time acting in a nonsensical way will not help. There are so many societies where the members seriously discuss Vedānta philosophy while smoking and drinking and enjoying a sensual life. It will not help if one only has knowledge theoretically. This knowledge must be demonstrated. One who truly understands "I am not this body" will actually reduce his bodily necessities to a minimum. When one increases the demands of the body while thinking "I am not this body," then of what use is that knowledge? A person can only be satisfied when there is *jñāna* and *vijñāna* side by aide.
 
@@ -262,12 +267,13 @@ When a person is situated on the practical level of spiritual realization, it sh
 > sādhuṣv api ca pāpeṣu
 > sama-buddhir viśiṣyate
 
-**"A person is said to be still further advanced when he regards all—the honest well-wisher, friends and enemies, the envious, the pious, the sinner and those who are indifferent and impartial—with an equal mind."** (Bg. 6.9)
+**"A person is said to be still further advanced when he regards all—the honest well-wisher, friends and enemies, the envious, the pious, the sinner and those who are indifferent and impartial—with an equal mind."** [[bg/6/9|(Bg. 6.9)]]
 
 There are different kinds of friends. There is *suhṛt,* who is by nature a well-wisher and is always desiring one's welfare. *Mitra* refers to an ordinary friend, and *udāsīna* is one who is neutral. In this material world someone may be my well-wisher, friend or neither friend nor enemy but neutral. Someone else may serve as a mediator between me and my enemies, and in this verse he is called *madhya-stha* One may also see someone as pious and another as sinful according to his own calculations. But when he is situated in transcendence, all of these—friends, enemies or whatever—cease to exist. When one becomes actually learned, he does not see any enemy or any friend because in actuality "no one is my enemy, no one is my friend, no one is my father, no one is my mother, etc." We are all simply living entities playing on a stage in the dress of father, mother, children, friend, enemy, sinner and saint, etc. It is like a great drama with so many characters playing their parts. However, on the stage a person may be an enemy or whatever, but off the stage all the actors are friends. Similarly, with these bodies we are playing on the stage of material nature, and we attach so many designations to one another. I may be thinking, "This is my son," but in actuality I cannot beget any son. It is not possible. At the utmost I can only beget a body. It is not within any man's power to beget a living entity. Merely by sexual intercourse a living entity cannot be begotten. The living entity must be *placed* in the emulsification of secretions. This is the verdict of *Śrīmad-Bhāgavatam.* Thus all the multifarious relationships between bodies are just so much stage play. One who is actually realized and has actually attained *yoga* no longer sees these bodily distinctions.
 
+### 6
 
-# Chapter 6: The Fate of the Unsuccessful Yogī
+6. The Fate of the Unsuccessful Yogī
 
 It is not that *Bhagavad-gītā* rejects the meditational *yoga* process; it recognizes it as a bona fide method, but it further indicates that it is not possible in this age. Thus the subject in the Sixth Chapter of *Bhagavad-gītā* is quickly dropped by Śrī Kṛṣṇa and Arjuna. Arjuna next asks,
 
@@ -276,7 +282,7 @@ It is not that *Bhagavad-gītā* rejects the meditational *yoga* process; it rec
 > aprāpya yoga-saṁsiddhiṁ
 > kāṁ gatiṁ kṛṣṇa gacchati
 
-**"What is the destination of the man of faith who does not persevere, who in the beginning takes to the process of self-realization but who later desists due to worldly-mindedness and thus does not attain perfection in mysticism?"** (Bg. 6.37)
+**"What is the destination of the man of faith who does not persevere, who in the beginning takes to the process of self-realization but who later desists due to worldly-mindedness and thus does not attain perfection in mysticism?"** [[bg/6/37|(Bg. 6.37)]]
 
 In other words, he is asking what becomes of the unsuccessful *yogī,* or the person who attempts to perform *yoga* but somehow desists and does not succeed. It is something like a student who does not get his degree because he drops out of school. Elsewhere in the *Gītā,* Śrī Kṛṣṇa points out to Arjuna that out of many men, few strive for perfection, and out of those who strive for perfection, only a few succeed. So Arjuna is inquiring after the vast number of failures. Even if a man has faith and strives for perfection in the *yoga* system, Arjuna points out that he may not attain this perfection due to "worldly-mindedness."
 
@@ -285,7 +291,7 @@ In other words, he is asking what becomes of the unsuccessful *yogī,* or the pe
 > apratiṣṭho mahā-bāho
 > vimūḍho brahmaṇaḥ pathi
 
-**"O mighty-armed Kṛṣṇa," Arjuna continues, "does not such a man, being deviated from the path of Transcendence, perish like a riven cloud, with no position in any sphere?"** (Bg. 6.38)
+**"O mighty-armed Kṛṣṇa," Arjuna continues, "does not such a man, being deviated from the path of Transcendence, perish like a riven cloud, with no position in any sphere?"** [[bg/6/38|(Bg. 6.38)]]
 
 When a cloud is torn apart by the wind, it does not mend back together again.
 
@@ -294,7 +300,7 @@ When a cloud is torn apart by the wind, it does not mend back together again.
 > tvad-anyaḥ saṁśayasyāsya
 > chettā na hy upapadyate
 
-**"This is my doubt, O Kṛṣṇa, and I ask You to dispel it completely. But for Yourself, no one is to be found who can destroy this doubt."** (Bg. 6.39)
+**"This is my doubt, O Kṛṣṇa, and I ask You to dispel it completely. But for Yourself, no one is to be found who can destroy this doubt."** [[bg/6/39|(Bg. 6.39)]]
 
 Arjuna is asking this question about the fate of the unsuccessful *yogī* so that in the future people would not be discouraged. By a *yogī,* Arjuna is referring to the *haṭha-yogī, jñāna-yogī* and *bhakti-yogī;* it is not that meditation is the only form of *yoga.* The meditator, the philosopher and the devotee are all to be considered *yogīs.* Arjuna is questioning for all those who are attempting to become successful transcendentalists. And how does Śrī Kṛṣṇa answer him?
 
@@ -304,7 +310,7 @@ Arjuna is asking this question about the fate of the unsuccessful *yogī* so tha
 > na hi kalyāṇa-kṛt kaścid
 > durgatiṁ tāta gacchati
 
-Here, as in many other places throughout the *Gītā,* Śrī Kṛṣṇa is referred to as Bhagavān. This is another of the Lord's innumerable names. *Bhagavān* indicates that Kṛṣṇa is the proprietor of six opulences: He possesses all beauty, all wealth, all power, all fame, all knowledge and all renunciation. Living entities partake of these opulences in finite degrees. One may be famous in a family, in a town, in a country or on one planet, but no one is famous throughout the creation, as is Śrī Kṛṣṇa. The leaders of the world may be famous for a few years only, but Lord Śrī Kṛṣṇa appeared five thousand years ago and is still being worshiped. So one who possesses all six of these opulences in completeness is considered to be God. In *Bhagavad-gītā* Kṛṣṇa speaks to Arjuna as the Supreme Personality of Godhead, and as such it is to be understood that He has complete knowledge. *Bhagavad-gītā* was imparted to the sun-god and to Arjuna by Kṛṣṇa, but nowhere is it mentioned that *Bhagavad-gītā* was imparted to Kṛṣṇa. Why? Complete knowledge means that He knows everything that is to be known. This is an attribute of God alone. Being that Kṛṣṇa knows everything, Arjuna is putting this question to Him about the fate of the unsuccessful *yogī.* There is no possibility for Arjuna to research the truth. He simply has to receive the truth from the complete source, and this is the system of disciplic succession. Kṛṣṇa is complete, and the knowledge that comes from Kṛṣṇa is also complete. If Arjuna receives this complete knowledge and we receive it from Arjuna as it was spoken to him, then we also receive complete knowledge. And what is this knowledge? "The Blessed Lord said: Son of Pṛthā, a transcendentalist engaged in auspicious activities does not meet with destruction either in this world or in the spiritual world; one who does good, My friend, is never overcome by evil." (Bg. 6.40) Here Kṛṣṇa indicates that the very striving for *yoga* perfection is a most auspicious attempt. When one attempts something so auspicious, he is never degraded.
+Here, as in many other places throughout the *Gītā,* Śrī Kṛṣṇa is referred to as Bhagavān. This is another of the Lord's innumerable names. *Bhagavān* indicates that Kṛṣṇa is the proprietor of six opulences: He possesses all beauty, all wealth, all power, all fame, all knowledge and all renunciation. Living entities partake of these opulences in finite degrees. One may be famous in a family, in a town, in a country or on one planet, but no one is famous throughout the creation, as is Śrī Kṛṣṇa. The leaders of the world may be famous for a few years only, but Lord Śrī Kṛṣṇa appeared five thousand years ago and is still being worshiped. So one who possesses all six of these opulences in completeness is considered to be God. In *Bhagavad-gītā* Kṛṣṇa speaks to Arjuna as the Supreme Personality of Godhead, and as such it is to be understood that He has complete knowledge. *Bhagavad-gītā* was imparted to the sun-god and to Arjuna by Kṛṣṇa, but nowhere is it mentioned that *Bhagavad-gītā* was imparted to Kṛṣṇa. Why? Complete knowledge means that He knows everything that is to be known. This is an attribute of God alone. Being that Kṛṣṇa knows everything, Arjuna is putting this question to Him about the fate of the unsuccessful *yogī.* There is no possibility for Arjuna to research the truth. He simply has to receive the truth from the complete source, and this is the system of disciplic succession. Kṛṣṇa is complete, and the knowledge that comes from Kṛṣṇa is also complete. If Arjuna receives this complete knowledge and we receive it from Arjuna as it was spoken to him, then we also receive complete knowledge. And what is this knowledge? "The Blessed Lord said: Son of Pṛthā, a transcendentalist engaged in auspicious activities does not meet with destruction either in this world or in the spiritual world; one who does good, My friend, is never overcome by evil." [[bg/6/40|(Bg. 6.40)]] Here Kṛṣṇa indicates that the very striving for *yoga* perfection is a most auspicious attempt. When one attempts something so auspicious, he is never degraded.
 
 Actually Arjuna is asking a very appropriate and intelligent question. It is not unusual for one to fall down from the platform of devotional service. Sometimes a neophyte devotee does not keep the rules and regulations. Sometimes he yields to intoxication or is trapped by some feminine attractions. These are impediments on the path of *yoga* perfection. But Śrī Kṛṣṇa gives an encouraging answer, for He tells Arjuna that even if one sincerely cultivates only one-percent worth of spiritual knowledge, he will never fall down into the material whirlpool. That is due to the sincerity of his effort. It should always be understood that we are weak and that the material energy is very strong. To adopt spiritual life is more or less to declare war against the material energy. The material energy is trying to entrap the conditioned soul as much as possible, and when the conditioned soul tries to get out of her clutches by spiritual advancement of knowledge, material nature becomes more stringent and vigorous in her efforts to test how much the aspiring spiritualist is sincere. The material energy, or *māyā,* will then offer more allurements.
 
@@ -339,21 +345,22 @@ Kṛṣṇa further indicates that of all good families to be born into—famili
 > yatate ca tato bhūyaḥ
 > saṁsiddhau kuru-nandana
 
-**"On taking such a birth, he again revives the divine consciousness of his previous life, and he tries to make further progress in order to achieve complete success, O son of Kuru."** (Bg. 6.43)
+**"On taking such a birth, he again revives the divine consciousness of his previous life, and he tries to make further progress in order to achieve complete success, O son of Kuru."** [[bg/6/43|(Bg. 6.43)]]
 
 Being born in a family of those who execute *yoga* or devotional service, one remembers his spiritual activities executed in his previous life. Anyone who takes to Kṛṣṇa consciousness seriously is not an ordinary person; he must have taken to the same process in his previous life. Why is this?
 
 > pūrvābhyāsena tenaiva
 > hriyate hy avaśo 'pi saḥ
 
-**"By virtue of the divine consciousness of his previous life, he automatically becomes attracted to the yogic principles—even without seeking them."** (Bg. 6.44)
+**"By virtue of the divine consciousness of his previous life, he automatically becomes attracted to the yogic principles—even without seeking them."** [[bg/6/44|(Bg. 6.44)]]
 
 In the material world, we have experience that we do not carry our assets from one life to another. I may have millions of dollars in the bank, but as soon as my body is finished, my bank balance is also. At death, the bank balance does not go with me; it remains in the bank to be enjoyed by somebody else. This is not the case with spiritual culture. Even if one enacts a very small amount on the spiritual platform, he takes that with him to his next life, and he picks up again from that point.
 
 When one picks up this knowledge that was interrupted, he should know that he should now finish the balance and complete the yogic process. One should not take the chance of finishing up the process in another birth but should resolve to finish it in this life. We should be determined in this way: "Somehow or other in my last life, I did not finish my spiritual cultivation. Now Kṛṣṇa has given me another opportunity, so let me finish it up in this life." Thus after leaving this body one will not again take birth in this material world, where birth, old age, disease and death are omnipresent, but will return to Kṛṣṇa. One who takes shelter under the lotus feet of Kṛṣṇa sees this material world simply as a place of danger. For one who takes to spiritual culture, this material world is actually unfit. Śrīla Bhaktisiddhānta Sarasvatī used to say, "This place is not fit for a gentleman." Once one has approached Kṛṣṇa and has attempted to make spiritual progress, Kṛṣṇa, who is situated within the heart, begins to give directions. In the *Gītā,* Śrī Kṛṣṇa says that for one who wants to remember Him, He gives remembrance, and for one who wants to forget Him, He allows him to forget.
 
+### 7
 
-# Chapter 7: Yoga as Reestablishing Relations with Kṛṣṇa
+7. Yoga as Reestablishing Relations with Kṛṣṇa
 
 We have heard many times of the *yoga* system. The *yoga* system is approved by *Bhagavad-gītā,* but the *yoga* system in *Bhagavad-gītā* is especially meant for purification. The aim is threefold: to control the senses, to purify activities and to link oneself to Kṛṣṇa in a reciprocal relationship.
 
@@ -366,7 +373,7 @@ When we read or study *Bhagavad-gītā* under a bona fide spiritual master we sh
 > sa sannyāsī ca yogī ca
 > na niragnir na cākriyaḥ
 
-**"One who is unattached to the fruits of his work and who works as he is obligated is in the renounced order of life, and he is the true mystic; not he who lights no fire and performs no work."** (Bg. 6.1)
+**"One who is unattached to the fruits of his work and who works as he is obligated is in the renounced order of life, and he is the true mystic; not he who lights no fire and performs no work."** [[bg/6/1|(Bg. 6.1)]]
 
 Everyone is working and expecting some result. One may ask, What is the purpose of working if no result is expected? A remuneration or salary is always demanded by the worker. But here Kṛṣṇa indicates that one can work out of a sense of duty alone, not expecting the results of his activities. If one works in this way, then he is actually a *sannyāsī;* he is in the renounced order of life.
 
@@ -398,8 +405,9 @@ Lord Śrī Kṛṣṇa was then very much pleased with Bali Mahārāja, and He a
 
 "Yes," the Lord said, "but from My side I have something for you. I shall remain always as an order-carrier servant in your court." In this way the Lord became Bali Mahārāja's doorman, and that was his return. If we offer something to the Lord, it is returned millions of times. But we should not expect this. The Lord is always eager to return the service of His servant. Whoever thinks that the service of the Lord is actually his duty is perfect in knowledge and has attained the perfection of *yoga.*
 
+### 8
 
-# Chapter 8: The Perfection of Yoga
+8. The Perfection of Yoga
 
 It is a fact, therefore, that in the progress of the living entity toward the perfection of *yoga,* birth in a family of *yogīs* or devotees is a great boon, for such a birth gives one special impetus.
 
@@ -408,7 +416,7 @@ It is a fact, therefore, that in the progress of the living entity toward the pe
 > aneka-janma-saṁsiddhas
 > tato yāti parāṁ gatim
 
-**"But when the *yogī* engages himself with sincere endeavor in making further progress, being washed of all contaminations, then ultimately, after many, many births of practice, he attains the supreme goal."** (Bg. 6.45)
+**"But when the *yogī* engages himself with sincere endeavor in making further progress, being washed of all contaminations, then ultimately, after many, many births of practice, he attains the supreme goal."** [[bg/6/45|(Bg. 6.45)]]
 
 When one is finally freed from all contaminations, he attains the supreme perfection of the *yoga* system—Kṛṣṇa consciousness. Absorption in Kṛṣṇa is the perfect stage, as Kṛṣṇa Himself confirms:
 
@@ -417,7 +425,7 @@ When one is finally freed from all contaminations, he attains the supreme perfec
 > vāsudevaḥ sarvam iti
 > sa mahātmā sudurlabhaḥ
 
-**"After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare."** (Bg. 7.19)
+**"After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare."** [[bg/7/19|(Bg. 7.19)]]
 
 Thus after many lifetimes of executing pious activities, when one becomes freed from all contaminations arising from illusory dualities, he engages in the transcendental service of the Lord. Śrī Kṛṣṇa concludes His discourse on this subject in this way:
 
@@ -426,9 +434,8 @@ Thus after many lifetimes of executing pious activities, when one becomes freed 
 > śraddhāvān bhajate yo māṁ
 > sa me yuktatamo mataḥ
 
-**"And of all *yogīs,* he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in *yoga* and is the highest of all."** (Bg. 6.47)
+**"And of all *yogīs,* he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in *yoga* and is the highest of all."** [[bg/6/47|(Bg. 6.47)]]
 
 It therefore follows that the culmination of all *yogas* lies in *bhakti-yoga,* the rendering of devotional service unto Kṛṣṇa. Actually, all of the *yogas* delineated in *Bhagavad-gītā* end on this note, for Kṛṣṇa is the ultimate destination of all the *yoga* systems. from the beginning of *karma-yoga* to the end of *bhakti-yoga* is a long way to self-realization. *Karma-yoga,* without fruitive results, is the beginning of this path. When *karma-yoga* increases in knowledge and renunciation, the stage is called *jñāna-yoga,* or the *yoga* of knowledge. When *jñāna-yoga* increases in meditation on the Supersoul by different physical processes, and the mind is on Him, it is called *aṣṭāṅga-yoga.* And, when one surpasses *aṣṭāṅga-yoga* and comes to worship the Supreme Personality of Godhead, Kṛṣṇa, that is called *bhakti-yoga,* the culmination. factually, *bhakti-yoga* is the ultimate goal, but to analyze *bhakti-yoga* minutely one has to understand the other processes. The *yogī* who is progressive is therefore on the true path to eternal good fortune. One who sticks to a particular point and does not make further progress is called by that particular name—*karma-yogī, jñāna-yogī, dhyāna-yogī, rāja-yogī, haṭha-yogī,* etc.—but if one is fortunate enough to come to the point of *bhakti-yoga,* Kṛṣṇa consciousness, it is to be understood that he has surpassed all the other *yoga* systems.
 
 Kṛṣṇa consciousness is the last link in the yogic chain, the link that binds us to the Supreme Person, Lord Śrī Kṛṣṇa. Without this final link, the chain is practically useless. Those who are truly interested in the perfection of the *yoga* process should immediately take to Kṛṣṇa consciousness by chanting Hare Kṛṣṇa, understanding *Bhagavad-gītā,* and rendering service to Kṛṣṇa through this society for Kṛṣṇa consciousness and thereby surpass all other systems and attain the ultimate goal of all *yoga*—love of Kṛṣṇa.
-

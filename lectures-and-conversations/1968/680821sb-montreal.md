@@ -1,0 +1,227 @@
+# Śrīmad-Bhāgavatam 7.9.13
+
+*Type: Srimad-Bhagavatam Dated: August 21st 1968 Location: Montreal Audio file: 680821SB-MONTREAL.mp3*
+
+[Warped audio]
+
+**Prabhupāda:**
+
+> sarve hy amī vidhi-karās tava sattva-dhāmno
+> brahmādayo vayam iveśa na codvijantaḥ
+> kṣemāya bhūtaya utātma-sukhāya cāsya
+> vikrīḍitaṁ bhagavato rucirāvatāraiḥ
+
+[*SB* *7.9.13*]
+
+**[O my Lord, all the demigods, headed by Lord Brahmā, are sincere servants of Your Lordship, who are situated in a transcendental position. Therefore they are not like us [Prahlāda and his father, the demon Hiraṇyakaśipu]. Your appearance in this fearsome form is Your pastime for Your own pleasure. Such an incarnation is always meant for the protection and improvement of the universe.]**
+
+Prahlāda Mahārāja is induced to pray Lord Nṛsiṁha-deva to pacify. He was in violent feature. So he's requesting, "My dear Lord," *sarve hy amī vidhi-karās tava sattva-dhāmno,* "now, all these demigods, they are Your assistants, and they are situated in transcendental position." *Sattva-dhāmno. Sattvaṁ viśuddhaṁ vāsudeva-śabditam.*
+
+Our situation are differently calculated. Not that every one of us is situated on the same platform. On the material platform, we are situated in three different positions: *sattva-raja-tama. Sattva* means goodness, *raja* means passion and *tama* means ignorance or darkness. So, so long we are in the material platform, the highest positional situation is in the modes of goodness.
+
+So here it is stated that all these demigods, they are in the modes of goodness. *Brahma jānāti iti brāhmaṇa.* Modes of goodness means those who are *brāhmaṇas.* And who are *brāhmaṇas*?* Brahma jānāti:* one who knows what is Brahman, or the Absolute Truth, he is called *brāhmaṇa.* And he is situated in the modes of goodness. The less intelligent, that means those who are less aware of the Absolute Truth, according to the less awareness, the position is different.
+
+The first-class position is one who is aware of the Absolute Truth, he is in the goodness. Less than..., less awareness is the *kṣatriya,* or in the modes of passion. Less awareness is the *vaiśyas,* the mercantile class of people. They are in the third position. And the *śūdra,* they are in the fourth position, in the darkness, unawareness.
+
+And again, the degree of unawareness makes more and more abominable condition of life, just like animal life. So here Prahlāda Mahārāja says that "You have nothing to be disturbed by these people, because they are in the modes of goodness." Therefore if we can produce population in the modes of goodness, there will be no problem in this material world even.
+
+Just like in the Satya-yuga, they were all *brāhmaṇas,* in the modes of goodness, so there was no trouble. And again, Tretā-yuga, seventy-five percent modes of goodness. In the Dvāpara-yuga, fifty percent, and the Kali-yuga, seventy-five percent calculated to be in the modes of ignorance. Therefore we are feeling so much disturbances in the social condition, in the political condition.
+
+So Prahlāda Mahārāja assures that *brahmādayo sarve hy amī vidhi-karāḥ* SB 7.9.13*.*
+
+**[O my Lord, all the demigods, headed by Lord Brahmā, are sincere servants of Your Lordship, who are situated in a transcendental position. Therefore they are not like us [Prahlāda and his father, the demon Hiraṇyakaśipu]. Your appearance in this fearsome form is Your pastime for Your own pleasure. Such an incarnation is always meant for the protection and improvement of the universe.]**
+
+*Vidhi-karāḥ* means administrators. The demigods are different administrators appointed on behalf of the Supreme Lord. Just like the sun-god, he is also called god, because he is godly. So he is supplying us heat and light. Similarly, there is Indra; he is supplying us water. Candra is supplying us moonlight. Varuna is supplying us air. So there are different controllers. Don't think that there is no controller. There is controller.
+
+In the *Bhagavad-gītā* it is said, *mayādhyakṣeṇa prakṛtiḥ sūyate sa-carācaram* [*Bg. 9.10*]:
+
+**[This material nature is working under My direction, O son of Kuntī, and it is producing all moving and unmoving beings. By its rule this manifestation is created and annihilated again and again.]**
+
+"All these natural rules and regulations, they are being conducted under My superintendence."
+
+It is foolishness to understand that there is no director or no supreme controller or superintendent in these affairs. This is scanty explanation, that "Nature is doing." No. Nature cannot do. Nature is dull. Nothing can move without spiritual touch. Matter is dull. A stone, however great it may be, without touch of a spiritual individual soul, the stone cannot move.
+
+So similarly, the whole gigantic material cosmic manifestation is being moved by the spiritual touch, and there are different departments, and they are called *vidhi-karāḥ. Vidhi* means regulative, and *karāḥ* means the performer. So he says, *sarve hy amī vidhi-karās tava sattva-dhāmno brahmādayo* SB 7.9.13*.* And he specifically mentions now *brahma adayo:* headed by Lord Brahmā. Brahmā is considered to be the head of all demigods.
+
+So *brahmādayo vayam iveśa na codvijantaḥ. Vayam iva.* He is taking the part of his father. He's born of a father, a first-class atheist. So he is taking the side of his father, although he's more than Brahmā. Because Brahmā could not pacify the Lord. Brahmā requested Prahlāda, "My dear boy, the Lord has appeared to mitigate your trouble; so you try to pacify Him. We have failed." But just see. This is the behavior of Vaiṣṇava. He is the prominent personality in that assembly.
+
+Still, he says that "All these demigods, they are not like us, disturbing. I am born of atheistic father. Our family, our community, our society"—*vayam, vayam* means "we"—"our society, country, family, they're all disturbing." Prahlāda Mahārāja says, "We are all disturbing because we are atheistic." In other words, the more the population is atheistic, the more disturbance in the society.
+
+So he says that these demigods... As I explained the other day, there are two classes of men everywhere: one godly and the other atheist. The atheistic are always disturbing, and godly persons, they're peaceful; they're not disturbing. Whenever we'll find disturbance, you must know there is atheistic population. And peaceful country or a godly persons, they are never disturbing.
+
+So Prahlāda Mahārāja takes the side of the atheistic population because he was born of atheistic father, and he recommends that "These *brahmādayo,* these demigods headed by Brahmā," *he īśa,* "my dear Lord," *vayam iva,* "just like us," *na ca udvijantaḥ,* "they are not disturbing. They are very peaceful."
+
+So they do not know the peace formula. They are creating atheistic population and they want peace. How it is possible? Just like I remember in a..., I read in a paper that Archbishop of Canterbury, he said in a lecture that "You want kingdom of God without God." So similarly, the world is after peace. There are so many associations, societies, United Nation. They are after peace, but they are all groups of atheistic people.
+
+Therefore the members of the United Nation, they are themselves fighting some way or other. How there can be peace, because they are themselves disturbing? How they can be in peace? You cannot expect any peace in atheistic society or animalistic society. So they must be made godly, God conscious, Kṛṣṇa conscious. Then there will be peace.
+
+God conscious and atheistic people, what is the difference? The difference is that atheistic person thinks "my," everything "my." "I am the lord of all I survey. I am the king. I am the leader. I am everything, and everything belongs to me." This is atheistic temperament. And godly persons? They think everything God's. That is the difference. The thing is there. Take anything—your country, your home, your wealth, anything—as soon as you say "It is mine," then it is atheistic. And as soon as you say "It is God's," then you are godly. You are there; the things are there. Simply change of consciousness. That's all. Simply change of consciousness.
+
+Just like in India, twenty years ago, say, in 1947, we were under the British rule. Now, what is the independence? Independence means they're thinking that "I'm not in British rule." That's all. The government is the same: the clerk, the minister, the secretary, the government house, the administrative, I mean to say, process—everything is there. Simply a change of consciousness. A change of rubber stamp. That's all. Formerly the rubber stamp was "His Majesty's Government," and now the rubber stamp is "Indian Government." That's all.
+
+So Kṛṣṇa consciousness does not mean... God consciousness does not mean that you have to revolutionize everything. No. Simply you have to change. And actually that is the fact. When I think it is God's... Say, for my country. I am claiming now "my country," but actually it is not my country. Everything God's. Who has created this country, this vast land, the sky, the sea, the ocean? I have not created. So how can I claim that this is mine? I have come empty-handed from the womb of my mother, and I shall go empty-handed. So why do I claim it is mine?
+
+So this is ignorance. Actually, I am claiming others' property as mine. This is atheistic. Just like thieves. It is... *Bhagavad-gītā* it is said, *stena eva sa ucyate* [*Bg*. *3.12*]*.*
+
+**[In charge of the various necessities of life, the demigods, being satisfied by the performance of yajña [sacrifice], supply all necessities to man. But he who enjoys these gifts, without offering them to the demigods in return, is certainly a thief.]**
+
+*Stena eva sa ucyate.* One who thinks that "The world belongs to me or "to my nation" or "to my family" or "to my community," he is thief. *Īśāvāsyam idaṁ sarvam* [*Īśo* *mantra 1*]*.*
+
+**[Everything animate or inanimate that is within the universe is controlled and owned by the Lord. One should therefore accept only those things necessary for himself, which are set aside as his quota, and one should not accept other things, knowing well to whom they belong.]**
+
+The Vedic literature informs us that everything belongs to Īśa, God. *Īśāvāsyam idaṁ sarvaṁ yad kiñcit jagatyāṁ jagat.* And by Him it is going on: the Supreme Spirit. In the *Bhagavad-gītā* also it is said, *yayedam dhāryate jagat* *Bg.* 7.5*.*
+
+**[Besides this inferior nature, O mighty-armed Arjuna, there is a superior energy of Mine, which are all living entities who are struggling with material nature and are sustaining the universe.]**
+
+Just like what is the value of this city of Montreal? Because there are so many living entities. That's all. If the all men and women immediately becomes dead, what is the value of this city? Is there any value of the matter? No. Because the living entities, the living force, is there, therefore the city has value, the land has value. Suppose if everyone was dead, what was the value of this apartment? Nobody would come and ask for rent. Valueless.
+
+So we have to understand that behind every value there is spirit, Supreme. And the Supreme Spirit is the real value. So Vedic instruction is *īśāvāsyam idaṁ sarvam* [*Īśo* *mantra 1*]*:*
+
+**[Everything animate or inanimate that is within the universe is controlled and owned by the Lord. One should therefore accept only those things necessary for himself, which are set aside as his quota, and one should not accept other things, knowing well to whom they belong.]**
+
+"Everything belongs to God." The world is moving due to that Supreme Spirit or the small spirit. We are small spirit, and God is Supreme Spirit. So we are changing... We are under Him. *Nityo nityānāṁ cetanaś cetanānām* [*Kaṭha Upaniṣad* 2.2.13]*.*
+
+**[The Supreme Lord is eternal and the living beings are eternal. The Supreme Lord is cognizant and the living beings are cognizant. The difference is that the Supreme Lord is supplying all the necessities of life for the many other living entities.]**
+
+We are under His control. So we are also moving; we are also creating. But He is the greatest creator, He's the greatest mover. God is great; we are small. Actually, it belongs to the great. *Yat kiñcid jagatyaṁ jagat tena tyaktena bhuñjīthā* [*Īśo* *mantra 1*]*.* Therefore *tena. Tena* means "therefore." *Tyaktena bhuñjīthā. Tyaktena bhuñjīthā* means *tyakta. Tyakta* means "sacrificing." Because it is God's, therefore you must go to the God. That mentality is Kṛṣṇa conscious.
+
+Just like suppose in this room there is one note, hundred dollars. Somebody finds: "Here is a hundred dollar note." Now, it belongs to somebody. It has fallen some way. Somebody has lost. So how to utilize this hundred dollar found by me? If I take it in my pocket, then I am thief. And if I neglect it, somebody may take it away; it is misused. The best use is to find out the man, the owner, and hand it over to him. That is the best use. Similarly, if everything belongs to God, if I want to occupy it by force, I am thief. *Stena eva sa ucyate* [*Bg*. *3.12*]*.*
+
+[In charge of the various necessities of life, the demigods, being satisfied by the performance of yajña [sacrifice], supply all necessities to man. But he who enjoys these gifts, without offering them to the demigods in return, is certainly a thief.]
+
+Every one of us who is trying to occupy some portion of land, country, in the name of "It is my country," and fighting, both of them, they are thieves, because that land does not belong to anyone. No nation. It belongs to God. If we can understand, if the United Nation passed resolution that "The whole planet belongs to God; we are sons of God, so let us live peacefully as sons of God," oh, there is no quarrel. But that they will never understand. They'll simply try to divide.
+
+Just like some gangs of thieves, they have stolen some property. Now they have come out, and they're dividing, and one of them is asking, "My dear brothers, let us divide piously. Let us divide piously." [laughs] Nonsense. The whole property is impious. So what is the meaning of your piously divided?
+
+Just like in India, nonvegetarian diet, according to Vedic system, it is condemned. Nobody can eat any meat. But now they have learned how to eat meat, they are doing that. So somebody is saying, "Yes, today I have cooked meat, but in the Ganges water." Ganges water is considered to be pious. So he thinks by cooking meat in the Ganges water, it has become purified. You see? This is our mentality.
+
+We are bent upon doing all nonsense, and we want to get it supported by religious cover. Just like recently, the Christian world, they wanted support from the Pope of contraceptive method. That contraceptive method is condemned, but they want to be supported by the religious head. "If you don't support, then you are not good man. And if you support my nonsense, then you are very good man."
+
+Just like that Maharshi came here, and he supported that "Whatever nonsense you like, you do. You simply pay me thirty-five dollars and I give you one *mantra,* and within six months you become God." Oh, he looted your country. And after looting, he said, "Oh, my mission is failure." Because he has got his money, now he'll go.
+
+This is going on, because we want to be cheated. Therefore cheaters come and cheat us. And as soon as we say, "No. Everything belongs to God, my dear friend. You don't claim anything as yours. Because it belongs to God, or Kṛṣṇa, you employ everything for His service"—"Swāmījī is very conservative." You see? So actually, it is the fact.
+
+So *brahmādaya.* Prahlāda Mahārāja says that "These demigods, they are not disturbing like that." *Brahmādaya. Brahmādaya vayam* means "We are disturbing because we are atheistic. We do not accept God. My father never accepted God, and he wanted to teach me that there is no God. So I refused my father's teaching. So he tortured me so much." Still, he is taking his father's side.
+
+Now we have to study this fact, that a Vaiṣṇava is never proud of his assessment. He'll never think, "Because I am Kṛṣṇa conscious, so I have become so great." No. He thinks always very humble and meek. This is the example. Just like Haridāsa Ṭhākura: He was so powerful devotee that Lord Caitanya used to come daily at his place. But he was thinking, "Oh, I am born in Muhammadan family, so I cannot enter into Jagannātha temple."
+
+Similarly Sanātana Gosvāmī, he was also not entering the temple of Jagannātha. That does not mean that they were lower than somebody else. No. But it is the, I mean to say, general tendency of a devotee that he always thinks that "I am lower than the lowest. Lower than the lowest."
+
+*Purīṣera kīṭa haite muñi se laghiṣṭha* [*Cc.* *Ādi* 5.205]*.*
+
+**[I am more sinful than Jagāi and Mādhāi and even lower than the worms in the stool.]**
+
+Kṛṣṇa dāsa Kavirāja Gosvāmī, the author of a literature, *Caitanya-caritāmṛta,* unique in the world, he said that "I am lower than the worm in the stool." *Purīṣera kīṭa haite. Purīṣa* means stool, and *kīṭa* means worms. There are some worms in the stool. So he said that "I am lower than that worm in the stool." Just see.
+
+Similarly, Prahlāda Mahārāja says, "My dear Lord, these demigods, they are all devotees. They are Your obedient servant, *sattva-dhāmno.* And they are not like us, disturbing." *Kṣemāya bhūtaya utātma-sukhāya cāsya vikrīḍitaṁ bhagavato rucirāvatāraiḥ* SB 7.9.13*.*
+
+**[O my Lord, all the demigods, headed by Lord Brahmā, are sincere servants of Your Lordship, who are situated in a transcendental position. Therefore they are not like us [Prahlāda and his father, the demon Hiraṇyakaśipu]. Your appearance in this fearsome form is Your pastime for Your own pleasure. Such an incarnation is always meant for the protection and improvement of the universe.]**
+
+"And Your appearance as Nṛsiṁha-deva is not for me, but for them. Because I am born in atheistic family. It is Your determination that You want to cut down the atheistic people. So it is automatically You have cut down, You have killed my father. But Your real business was to protect these demigods, Your devotees."
+
+In the *Bhagavad-gītā* it is said, *paritrāṇāya sādhūnāṁ vināśāya ca duṣkṛtām, yuge yuge sambhavāmi* *Bg.* 4.8*.*
+
+**[In order to deliver the pious and to annihilate the miscreants, as well as to reestablish the principles of religion, I advent Myself millennium after millennium.]**
+
+*Dharma saṁsthāpanārthāya yuge yuge sambhavāmi.* So the Lord appears with two missions. *Paritrāṇāya sādhūnām:* just to rescue the devotees, or the persons in goodness, *sādhu. Sādhu...* There is description, definition of who is a *sādhu. Sādhu* means saintly person. In French language, I think it is called saint? Saint? But actually the "saint" is in Sanskrit language also. *Santa. Santa. Santaḥ sadaiva hṛdayeṣu vilokayanti* [*Bs.* 5.38].
+
+**[I worship Govinda, the primeval Lord, who is Śyāmasundara, Kṛṣṇa Himself with inconceivable innumerable attributes, whom the pure devotees see in their heart of hearts with the eye of devotion tinged with the salve of love.]**
+
+In Sanskrit language the saintly persons are called *santa.* Maybe it is Latin derivative, because in Latin there are many words resembling Sanskrit. And Professor Rowe, a great English scholar in India, an Englishman, professor in Presidency College, he wrote one grammar, English grammar. In our childhood we had to read. He has stated that "Sanskrit is the mother of all languages."
+
+Anyway... So when God appears, incarnates, descends, His business is to protect the devotees, *paritrāṇāya sādhūnām.* That is His first business. *Vināśāya ca duṣkṛtām* [*Bg*. 4.8]*:*
+
+**[In order to deliver the pious and to annihilate the miscreants, as well as to reestablish the principles of religion, I advent Myself millennium after millennium.]**
+
+And to kill the unfaithful, miscreants. For them, God does not require to come Himself. But side by side, He does so. If God likes, He can kill thousands of miscreants by one stroke.
+
+So that business does not depend on Him, that He would come to kill a demonic person. The real business is to protect the devotees, the faithful. Therefore Prahlāda Mahārāja says, *kṣemāya bhūtaya utātma-sukhāya cāsya vikrīḍitam:* "Actually, You have appeared for these persons, to protect them, for their happiness," *sukhāya,* "and for their elevation."
+
+Just like *Bhagavad-gītā, Śrīmad-Bhāgavatam,* or Vedic literature, or any scripture. For whom they are meant? Those who are godly, for their elevation, so that they can elevate more and more. It is not for the atheistic persons. They do not believe in God. So Bible or *Bhagavad-gītā* or *Śrīmad-Bhāgavata,* they are not meant for the atheistic person. So whatever auspicious things are in the world, they are meant for the faithful, not for the atheistic person.
+
+Thank you. Any questions? [break]
+
+**Devotee:** ...from the modes of ignorance to the modes of passion to the modes of goodness is a very gradual process?
+
+[Warped audio]
+
+**Prabhupāda:** Why gradual? You can immediately transcend all the processes by becoming Kṛṣṇa conscious. Immediately.
+
+> māṁ ca vyabhicāriṇi
+> bhakti yogena yaḥ sevate
+> sa guṇān samatītyaitān
+> brahma-bhūyāya kalpate
+
+[*Bg.* *14.26*]
+
+**[One who engages in full devotional service, who does not fall down in any circumstance, at once transcends the modes of material nature and thus comes to the level of Brahman.]**
+
+In the *Bhagavad-gītā* it is said, the Lord says, "Anyone who is engaged in unalloyed devotional service unto Me, so he is transcendental." *Sa guṇān samatītyaitān. Guṇān* means these modes, different modes—modes of ignorance, modes of passion, modes of goodness. Goodness is also material. That is not spiritual. If you become very good moralist or very religious, following all the rules and regulation, that is good but that is not spiritual. Spiritually, far above. So one... We have to transcend the position of worldly goodness.
+
+Somebody asked me this question, "Swāmījī, if a person is moral and dutiful and benevolent, all the good qualification, so what is the use of worshiping God?" My reply was that anyone who is not God conscious or Kṛṣṇa conscious, he cannot be good, cannot be moral. It is not possible. *Harāv abhakta...* I am not manufacturing this. This is the statement of *Śrīmad-Bhagavatam. Harāv abhaktasya kuto mahad-guṇa mano-rathenāsati dhāvato bahiḥ* *SB* 5.18.12*.*
+
+**[All the demigods and their exalted qualities, such as religion, knowledge and renunciation, become manifest in the body of one who has developed unalloyed devotion for the Supreme Personality of Godhead, Vāsudeva. On the other hand, a person devoid of devotional service and engaged in material activities has no good qualities. Even if he is adept at the practice of mystic yoga or the honest endeavor of maintaining his family and relatives, he must be driven by his own mental speculations and must engage in the service of the Lord's external energy. How can there be any good qualities in such a man?]**
+
+So take for example that our, in our country, Mahatma Gandhi, he was considered to be a very good man...
+
+[break] ...religiosity. They may be good, but they are not ultimate good. The ultimate good is Kṛṣṇa consciousness. That is good for you and good for all. Anyone who is in Kṛṣṇa consciousness, he is good in this sense, because he is in transcendental position, and whatever he speaks, because he speaks about God, therefore speaking is not adulterated.
+
+So this position, as soon as you take it a principle of your life, that "I shall simply be engaged in Kṛṣṇa's service, or God's service. I shall talk about Kṛṣṇa, I shall work for Kṛṣṇa, I shall write for Kṛṣṇa, I shall read for Kṛṣṇa. Everything for Kṛṣṇa," that is the transcendental position beyond goodness, better than goodness. So one can be situated in this position immediately by surrendering to Kṛṣṇa. It is not very difficult.
+
+Yes, what is your...?
+
+**Young woman:** All right. You answered my question. Thank you very much for answering my question. You said that... I asked you what goodness was, Swāmījī, and you said goodness was knowledge.
+
+**Prabhupāda:** Yes.
+
+**Young woman:** Now could you explain what you meant by knowledge? What? Spiritual knowledge or...?
+
+**Prabhupāda:** No. First of all what is knowledge?
+
+**Young woman:** Knowledge is material.
+
+**Prabhupāda:** Knowledge means that you must know what you are. This is knowledge. If you don't know what you are, then what is the meaning of your knowledge? So real knowledge means that *ahaṁ brahmāsmi:* "I am not matter, I am a spirit soul." That is real knowledge. On the basis of this real knowledge, whatever is done, that is done in knowledge; otherwise it is done in ignorance. That is the difference. Knowledge and difference.
+
+Knowledge is not that you have to get degrees from the university, big, big degrees. No. Real knowledge is that "I am...," *ahaṁ brahmāsmi,* "I am spirit soul." If one has realized this one word only, then he is knowledge. He's in knowledge. One who has not realized this thing, he's in ignorance. *Yasyātma-buddhiḥ kuṇape tri-dhātuke* *SB* 10.84.13*.*
+
+**[One who identifies his self as the inert body composed of mucus, bile and air, who assumes his wife and family are permanently his own, who thinks an earthen image or the land of his birth is worshipable, or who sees a place of pilgrimage as merely the water there, but who never identifies himself with, feels kinship with, worships or even visits those who are wise in spiritual truth—such a person is no better than a cow or an ass.]**
+
+Anyone who has accepted this body, which is made of three elements, *sva-dhiḥ kalatrādiṣu bhauma-ijya-dhīḥ,* and therefore accepted the bodily productions as his own or the place or the land where this body is produced is worshipable... There are so many other things. Naturally, at the present moment, knowledge means that "This is my country." "I am American," "I am Indian," "I am Chinese." Why? "Because my body is produced from this land."
+
+So this is ignorance. Your body... Why your body? The cow's body is also produced from this land. Why do you kill? It has got also right. But because he has no knowledge actually, therefore he is trying to protect his body, but he's not protecting the other's body produced from the land. This is want of knowledge. If he has real knowledge that "I am Brahman, I am spirit," then he can see, *samaḥ sarveṣu bhūteṣu* *Bg.* 18.54*:*
+
+**[And of all yogīs, he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in yoga and is the highest of all.]**
+
+"Oh, the spirit. The cow is also spirit soul, the dog is also spirit soul, I am also spirit soul. Otherwise how I am moving?" The cow is moving, the dog is moving. So,
+
+> vidyā-vinaya-sampanne
+> brāhmaṇe gavi hastini
+> śuni caiva śva-pāke ca
+> paṇḍitāḥ sama-darśinaḥ
+
+[*Bg.* *5.18*]
+
+**[The humble sage, by virtue of true knowledge, sees with equal vision a learned and gentle brāhmaṇa, a cow, an elephant, a dog and a dog-eater [outcaste].]**
+
+This equal vision is possible for a learned man who sees a learned *brāhmaṇa,* a dog, an elephant, a cow on the same basis. What is that basis? Spiritual understanding.
+
+So unless you are in the spiritual platform, the so-called knowledge has no value. That is not knowledge; that is ignorance. So real knowledge means spiritual knowledge, that "I am Brahman. I am spirit." Then,
+
+> brahma-bhūtaḥ prasannātmā
+> na śocati na kāṅkṣati
+> samaḥ sarveṣu bhūteṣu
+> mad-bhaktiṁ labhate parām
+
+[*Bg.* *18.54*]
+
+Other things will follow, and he will be very jolly. This is... A person in knowledge should be in, I mean to say, happiness. That is a sign of knowledge. So one who is in knowledge, he is not disturbed. What was my answer? Huh?
+
+[break] *yad anyat tad ajñānam iti matam. Bhagavad-gītā,* Bhagavān said. He has given the definition of knowledge, eight..., eighteen items. You'll find in the Thirteenth Chapter. *Ahiṁsā.* What is called? There are eighteen items. You'll find in the Thirteenth Chapter. The most important point is *māṁ ca vyabhicāreṇa bhakti-yogena sevate* *Bg.* 14.26.
+
+**[One who engages in full devotional service, who does not fall down in any circumstance, at once transcends the modes of material nature and thus comes to the level of Brahman.]**
+
+The principal point is to become Kṛṣṇa conscious. That is knowledge. Then all knowledge will come automatically. *Yasyāsti bhaktir bhagavaty akiñcana* *SB* 5.18.12*.*
+
+**[All the demigods and their exalted qualities, such as religion, knowledge and renunciation, become manifest in the body of one who has developed unalloyed devotion for the Supreme Personality of Godhead, Vāsudeva. On the other hand, a person devoid of devotional service and engaged in material activities has no good qualities. Even if he is adept at the practice of mystic yoga or the honest endeavor of maintaining his family and relatives, he must be driven by his own mental speculations and must engage in the service of the Lord's external energy. How can there be any good qualities in such a man?]**
+
+If you take to this knowledge, that Kṛṣṇa, or the Supreme Lord, Absolute Truth, He is eternal master and we are all eternal servitors, this very knowledge will elevate you to other platforms of knowledge. *Yasyāsti bhaktir bhagavaty akiñcana sarvair guṇais tatra samāsate surāḥ* *SB* 5.18.12*.* Then all the symptoms of knowledge will automatically manifest in his person. Therefore this is the best process of becoming a man of knowledge, or wise..., wise man. [end]

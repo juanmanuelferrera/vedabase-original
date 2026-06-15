@@ -1,0 +1,96 @@
+# Śrī Caitanya-caritāmṛta, Madhya-līlā 20.137
+
+*Śrī Caitanya-caritāmṛta,  Madhya-līlā 20.137 Type: Caitanya-caritamrta Dated: December 6th 1966 Location: New York Audio file: 661206CC-NEW-YORK.mp3*
+
+**Prabhupāda:**
+
+> ...yati māṁ yogaḥ
+> na sāṅkhyaṁ dharma uddhava
+> na svādhyāyas tapas tyāgaḥ
+> yathā bhaktir mamorjitā
+
+[*Cc Madhya 20.137*]
+
+**[The Supreme Personality of Godhead, Kṛṣṇa, said: ’My dear Uddhava, neither through aṣṭāṅga-yoga [the mystic yoga system to control the senses], nor through impersonal monism or an analytical study of the Absolute Truth, nor through study of the Vedas, nor through austerities, charity or acceptance of sannyāsa can one satisfy Me as much as by developing unalloyed devotional service unto Me.]**
+
+So Lord Caitanya explained to the poverty-stricken man that simile. The astrologer is foretelling about the poverty-stricken man that "You are a very rich man's son. Your father has got so much wealth, but you do not know; therefore you are suffering." To be poor man in this world, material world, is a curse for ordinary, general people. Those who are spiritually enriched, they have nothing to do with this poverty or richness of this material world. But those who are under the concept of material life, poverty is a curse for them.
+
+So living entity, they are not meant for being poverty-stricken, because they are part and parcel of the Supreme Lord, the supreme proprietor. Therefore he has, by his birthright, to enjoy the God's property. That is the law. But under spell of illusion, we have forgotten our relationship with the supreme father; therefore we are suffering. This is the diagnosis.
+
+Now we have to find out how to go home, back to go..., back to home, back to Godhead. That should be the mission of human life. Never mind under what circumstances and why we are in contact with this material world, but we should come to this point by the instruction of the astrologer-like Vedic literature. Just like the astrologer is giving hint to the poor man, similarly, the Vedic literature is also giving us hint, astrological instruction, that we can become the richest by reviving our lost relationship with our father.
+
+So that process of reviving, there are different paths, different rituals. So Lord Caitanya says that no other method... Not only... Not Caitanya, but the Vedic literature says. So He is quoting one evidence from *Śrīmad-Bhāgavatam: na sādhayati māṁ yogaḥ.* The Lord says that "The *yoga* process cannot achieve success in reaching Me." *Na sāṅkhyam. Sāṅkhyam* means philosophical speculation. "That also cannot reach Me." *Na dharma. Dharma* means religious principles.
+
+Uddhava: "O My dear Uddhava." This is an instruction just like Lord Kṛṣṇa gave instruction to Arjuna in the *Bhagavad-gītā;* similarly, He gave instruction to one of His cousin-brother whose name was Uddhava. And that is stated in the *Śrīmad-Bhāgavatam.* So in course of that instruction He says, "My dear Uddhava, *yoga* cannot achieve Me, neither *sāṅkhya.*" *Sāṅkhya* means...*Yoga* means, real *yoga* means "connect," "plus." Real *yoga* means "plus," "addition," just like in mathematics we have got addition and subtraction.
+
+So at the present moment we are in subtraction—God minus myself. I have no sense of God; therefore I am in minus condition. So *yoga* means God plus I. That is the real meaning of *yoga.* So long I was God-minus; now God-plus. But you must always remember: in the spiritual, absolute sense, God plus me He is also God, and God minus me He is also God. When I am minus, that does not mean God has lost some of His capacity. No. He is full. And when I am plus, it does not mean that God has increased in some capacity. No.
+
+The very good example is given, *āpūryamāṇam acala-pratiṣṭha* [*Bg* 2.70]*.*
+
+**[A person who is not disturbed by the incessant flow of desires—that enter like rivers into the ocean which is ever being filled but is always still—can alone achieve peace, and not the man who strives to satisfy such desires.]**
+
+Just like the ocean, Atlantic Ocean. In the... During summer season, rainy season, millions of tons water is evaporated by the sun to make..., to create cloud, but if you see the Atlantic Ocean, it is the same. Similarly, after rainy season, millions of tons of water are poured into the ocean by overflow of rivers, but still, you see the ocean is the same. In the material world, if you can find out such things that an ordinary ocean... I say "ordinary" because there are millions of oceans floating in the air. Therefore we should not be very much astonished to see the Atlantic Ocean. Within this space, even within this material space, you have got millions and trillions of ocean like Atlantic. Just like a drop of water or less than that, an atomic portion of water, they are floating in the air. So that is the potency of God.
+
+So* yoga... Yoga* means God plus myself. Plus myself. The system is: those who are too much engrossed with this bodily conception of life, for them, *yoga* system is very good because it is a practice to withdraw the senses from their engagement in the external world to the inside. *Pratyāhāra.* And *yama, niyama, asana, prāṇāyāma, dhyāna, dhāraṇā, pratyāhāra, samādhi—*there are eight different stages of *yoga* practice. The first practice is *yama. Yama, niyama.* Under regulative principle one has to try, endeavor, to control the senses about eating, about sleeping, about working. These are called *yama-niyama.* Then there are different kinds of sitting posture. They are called *āsana.*
+
+So *yama-niyama* means the first principle of *yoga* is to abstain from sex life. That is real *yoga.* Those who are indulging in sex life, intoxication and so many nonsense things, they have no chance for any success in *yoga.* There... this is called *yama-niyama.*
+
+And then, after controlling, after sitting, then one has to sit nicely in a secluded place, in a sanctified place, and sit straight, with your neck, head and body in one straight line. Then you have to see the tip of your nose without closing your eyes and not opening your eyes. If you open your eyes, then all this material manifestation will disturb you. And if you close your eyes, then you snap. [snores] I have seen, so many *yogīs* are doing that, sleeping. [laughter] Yes. So these are the process.
+
+Then *dhyāna,* then concentration of the mind. Then what is the purpose of concentrating the mind? Just to find out myself, where I am within this body, and then find out where is Lord. This is the perfection of *yoga.* Simply that I am doing all nonsense whole day and night and I am attending *yoga* class, paying five dollars to the class, and I am thinking, "Oh, I am a great *yogī*"—this is all nonsense. *Yoga* is not so easy thing. You see? So simply this... This is the simply exploitating, the so-called society. I tell frankly they are society of the cheater and the cheated. This is not the process of *yoga.*
+
+So *yoga* process is very difficult at the present moment. *Yoga.*.. Because it is stated in the Vedic literature, that is a approved method. That's all right. But that method is very difficult in the modern age to perform. And what to speak of us, even five thousand years before, when the circumstances were more favorable and people were not so polluted and they were advanced in so many things, still, at that time a personality like Arjuna, he refused. When Kṛṣṇa asked him that "You become a *yogī* like this," he said, "It is not possible for me. It is not possible for me." So this is an overendeavor, to practice *yoga* in this age, which was refused by a personality like Arjuna.
+
+So *yoga* is not at all possible. It was possible in the Satya-yuga, when every man was in the modes of goodness. Every man was highly elevated. The *yoga* process is meant for the highly elevated personalities, not for ordinary man. So even that *yoga* practice is done very nicely and perfectly, that cannot take you to the Supreme Lord. That is denied here. What to speak of this pseudo *yoga* process, even if you perform it rightly, even if you do it nicely, perfectly, still, you cannot reach God. That is denied here. *Na sādhayati māṁ yogaḥ na sāṅkhya. Sāṅkhya* means just discriminate what is spirit and what is matter. That is called *sāṅkhya. Samyak khyāpayate.*
+
+So by philosophical speculation this process is... Now, what is that philosophical speculation? What is this material world? They are divided into twenty-four parts, this material world. What are those? Now, the first thing is that what we see, the five material elements: the earth, water, fire, air, ether. These are material elements. These are studied. Then finer than the ether is the mind, then finer than the mind is the intelligence, and finer than the intelligence... *Mana, buddhi, ahaṅkāra. Ahaṅkāra* means ego, ego, false conception, that "I am this matter." These are eight elements.
+
+Then your senses, five working senses and five knowledge-acquiring senses. Just like our eyes, ear, tongue, hand—all these five senses, they are acquiring knowledge. And five senses, just like hands, legs, and evacuating hole, genital—these are five senses by which we are enjoying or suffering. And the five objects of senses. What is that? Form, *rūpa; rasa,* taste; smell; and... *Rūpa; rasa; gandha; śabda,* sound; *sparśā,* touch. So these five. So five plus eleven, and mind. Five plus eleven equal to sixteen, and these eight elements, twenty-four.
+
+The whole material world is analyzed into twenty-four parts. That analytical study is called *sāṅkhya. Samyak khyāpayati iti sāṅkhya:* complete, full analysis of this, whatever we are experiencing. And above that, that spirit soul, above that. Because these twenty-four elements, they are combination. Whatever we are thinking, whatever seeing in this material world, they are combination of these twenty-four elements. And above that, there is the soul. And above that, there is God.
+
+So Sāṅkhyites, those who are simply analyzing this material world, they cannot find out what is soul. *Sāṅkhya* means the material scientist, one may..., you may call. Just like material scientists, they are simply studying these material objects. They have no information above that. They have no information. Now I am talking with you, so they cannot explain what is that thing which is talking. They cannot analyze this body. Medical doctor, after dissecting this body, they cannot find out what is the spiritual force, what is working. That they cannot.
+
+So because they cannot find out even the particles of the Supreme Lord—we living entities, we are all particles of the Supreme Lord—so if they cannot find out the particle, what there is chance to find out God? So they cannot also find out God. Neither this *yogī,* they cannot find out the Supreme Lord, neither these materialists who are simply analyzing these material elements, they cannot. *Na sāṅkhya.*
+
+*Dharma. Dharm*a means rituals. Everyone has got some faith, and faith means... Just like Hindus are going to the church, er, in temple, and the Christians are going to the church, or Muslims, they are going to the mosque, they..., with idea that "Here is God." That is, of course, beginning. It is nice. But because they are trapped in simply the rituals, they have no other, further knowledge, so that also cannot help to reach, because they are trapped.
+
+Every religious faith, because the fai... Of course, that conviction must be there. But they do not try to make any further advance. They think that "Here it is ended. Everything is ended here." Therefore they cannot make any progress.
+
+[aside:] Please sit down. Don't... So they cannot also.
+
+Then *svādhyāya. Svādhyāya* means study, study of these Vedic literature. Without any guidance, if you... Just like so many ladies and gentlemen, they purchase books from the market. They have heard that *Bhagavad-gītā* is very nice book. So *svādhyāya. Svādhyāya* means studying the scriptures. Studying the Vedic literatures, that is called *svādhyāya. Svādhyāya.* And *tapaḥ. Tapaḥ* means penance. Somebody is fasting. Somebody is in the solitary place in the jungle. They are meditating. So many, there are process of penances and austerities. And *tyāga,* and renunciation. Just like *sannyāsī,* renounced order of life.
+
+So Lord says, "All these processes—the *yoga* process, the *sāṅkhya* process, the ritualistic process, or studying the *Vedas* or undergoing severe type of penance and austerities—all these processes, combined together or individually, they are not suitable for achieving Me. They are not."
+
+So practically every process is condemned herewith by the Supreme Lord, condemned in this sense, that they can approach to a certain degree, certain extent, towards the final goal. But that process will never be able to achieve to the final goal unless this devotional process is added there. Plus this must be, the devotion, this Kṛṣṇa consciousness, because ultimate end is Kṛṣṇa, the Supreme Lord. As we have several times discussed that verse from the *Bhagavad-gītā, bahūnāṁ janmanām ante jñānavān māṁ prapadyante* [*Bg* 7.19]:
+
+**[After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare.]**
+
+"After many, many births, those who are actually intellectual, they come to Me and surrender to God, that 'Here is...' *Vāsudevaḥ sarvam iti:* 'God is everything.' Then he surrenders."
+
+So one has to come. Maybe you go by the *yoga* process, maybe you go by the philosophical process, maybe you go by the ritualistic process, maybe that you go by penances and by study. But unless you reach to this point of Kṛṣṇa consciousness, your attempt..., not failure, but there are different degrees. So people are satisfied with that different degrees only. They... Hardly they try to reach the final goal. But if anyone wants to reach the final goal, then he has to take this process of Kṛṣṇa consciousness, *bhaktir mamorjitā.* That process alone can take you to the Supreme Lord.
+
+So those who are intelligent, they take this simple process. Now, especially in this age, even you cannot perform any other process. You cannot perform perfectly* yoga,* you cannot perform the religious rituals, neither you can study. The circumstances are so unfavorable that these processes are not possible in this age. Therefore Lord Caitanya, by His causeless mercy, He has given us this process:
+
+> harer nāma harer nāma harer nāma iva kevalam
+> kalau nāsty eva nāsty eva nāsty eva gatir anyathā
+
+[*Cc Ādi 17.21*]
+
+**[In this Age of Kali there is no other means, no other means, no other means for self-realization than chanting the holy name, chanting the holy name, chanting the holy name of Lord Hari.]**
+
+"In this age of Kali," *harer nāma,* "simply by chanting the holy name," *harer nāma,* "simply by chanting the holy name," *harer nāma,* again, thrice, "simply by chanting the holy name of Kṛṣṇa..." *Harer nāma harer nāma harer nāma iva kevalam.* You should always do this. *Kalau:* "In this age"; *nāsty eva,* "there is no other alternative," *nāsty eva,* "there is no other alternative," *nāsty eva,* "there is no other alternative." Three times again, *nāsty eva nāsty eva nāsty eva gatir anyathā:* "There is no other process." So these are stressed by the Vedic literature. This verse is quoted from *Bṛhad-Nāradīya Purāṇa.* Out of eighteen *Purāṇas,* this *Bṛhad-Nāradīya Purāṇa* is also... So this is recommended.
+
+So Lord Caitanya's recommendation also is corroborating. He is not recommending this process by manufacturing Himself, but He is quoting from the authorized scripture and authorized sources so that people can accept it. So we should accept this process—
+
+> harer nāma harer nāma harer nāma iva kevalam
+> kalau nāsty eva nāsty eva nāsty eva gatir anyathā
+
+[*Cc Ādi* *17.21*]
+
+**[In this Age of Kali there is no other means, no other means, no other means for self-realization than chanting the holy name, chanting the holy name, chanting the holy name of Lord Hari.]**
+
+—and practically see that this is the only process for swiftly realizing the supreme truth, Absolute Truth. So we should follow Kṛṣṇa consciousness very seriously and sincerely.
+
+Thank you very much. Any question? [end]

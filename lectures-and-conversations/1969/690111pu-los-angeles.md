@@ -1,0 +1,32 @@
+# Purport to Śrī Kṛṣṇa Caitanya Prabhu
+
+*Purport to  Śrī Kṛṣṇa Caitanya Prabhu Type: Purport Dated: January 11th 1969 Location: Los Angeles Audio file: 690111PU-LOS-ANGELES.mp3*
+
+**Prabhupāda: **
+
+> śrī-kṛṣṇa-caitanya prabhu doyā koro more,
+> tomā binā ke doyālu jagata-māyāre
+
+**[My dear Lord Caitanya, please be merciful to me, because who can be more merciful than Your Lordship within these three worlds?]**
+
+This is a song composed by Narottama dāsa Ṭhākura. He is praying Lord Caitanya that "My dear Lord, please be merciful upon me, because who can be more merciful than Your Lordship within these three worlds?'' Actually, this is the fact. Not only Narottama dāsa Ṭhākura, but also Rūpa Gosvāmī, he also prayed for Lord Caitanya when both of them met at Prayāga, Allahabad, in the first meeting of Lord Caitanya and Rūpa Gosvāmī at Prayāga. At that time, Śrīla Rūpa Gosvāmī also said, "My dear Lord, You are the most munificent of all incarnations, because You are distributing love of Kṛṣṇa, Kṛṣṇa consciousness.''
+
+In other words, when Kṛṣṇa was personally present, He simply asked us to surrender, but He did not distribute Himself so easily. He made condition that, "First of all you surrender.'' But here, in this incarnation, Lord Caitanya, although He's Kṛṣṇa Himself, He makes no condition. He simply distributes, "take love of Kṛṣṇa.'' Therefore Lord Caitanya is approved as the most munificent incarnation, and Narottama dāsa Ṭhākura says that,
+
+"Please be merciful upon me. You are so magnanimous, because You have seen the fallen souls of this age, and You are very much compassionate upon them. But you should know also that I am the most fallen. Nobody is a greater fallen than me.''
+
+*Patita-pāvana-hetu tava avatāra:* "Your incarnation is just to reclaim the conditioned souls, fallen souls. But I assure You that You will not find a greater fallen than me. Therefore my claim is first."
+
+Then he prays to Lord Nityānanda. He says, *hā hā prabhu nityānanda, premānanda sukhī:* "My dear Lord Nityānanda, You are always joyful, in spiritual bliss, and You appear always very happy. So I have come to You because I am most unhappy. So if You kindly put Your glance over me, then I may also become happy."
+
+Then he prays to Advaita Prabhu: *hā hā prabhu sītā-pati advaita gosāi.* Advaita Prabhu's wife's name was Sītā. Therefore He is sometimes addressed as *sītā-pati.* So "My dear Advaita Prabhu, the husband of Sītā, please You also be kind upon me, because if You become kind upon me, then naturally Lord Caitanya and Nityānanda also will be kind upon me."
+
+The reason is that actually, Advaita Prabhu invited Lord Caitanya to come down. When Advaita Prabhu saw the fallen souls, they are all engaged simply in sense gratificatory processes without understanding Kṛṣṇa consciousness, He felt very much compassionate upon the fallen souls, and He also felt Himself as incapable of claiming all these fallen souls. He therefore prayed to Lord Kṛṣṇa that "You come Yourself. Without Your personal presence, it is not possible to deliver these fallen souls." So by His invitation Lord Caitanya appeared. "Naturally...," Narottama dāsa Ṭhākura prays Advaita Prabhu that "if You be kind upon me, naturally Lord Caitanya and Nityānanda also will be kind upon me."
+
+Then he prays to the Gosvāmīs. *Hā hā svarūpa, sanātana, rūpa, raghunātha.* "My dear Gosvāmī Prabhus, Svarūpa.'' Svarūpa was... Svarūpa Dāmodara was personal secretary of Lord Caitanya. He was always keeping with Caitanya Mahāprabhu, and whatever He wanted, he immediately arranged for that. Two personal attendants, Svarūpa Dāmodara and Govinda, they were always, constantly with Lord Caitanya. So Narottama dāsa Ṭhākura also praying Svarūpa Dāmodara. And then the Gosvāmīns.
+
+The next disciples of Lord Caitanya were the six Gosvāmīs: Śrī Rūpa, Śrī Sanātana, Śrī Bhaṭṭa Raghunātha, Śrī Gopāla Bhaṭṭa Gosvāmī, Jīva Gosvāmī and Raghunātha dāsa Gosvāmī. These six Gosvāmīs were directly instructed by Lord Caitanya for spreading this movement of Kṛṣṇa consciousness. So Narottama dāsa Ṭhākura is praying also their mercy. And after the six Gosvāmīns, the next *ācārya* was Śrīnivāsa Ācārya. So he's also praying Śrīnivāsa Ācārya.
+
+Actually, Narottama dāsa Ṭhākura was in the disciplic succession after Śrīnivāsa Ācārya. Or almost he was contemporary. And his personal friend was Rāmacandra, Rāmacandra Cakravartī. So he is praying that "I always desire the company of Rāmacandra"—devotee's company. The whole process is that we should always be praying mercy of the superior *ācāryas,* and we should keep company with pure devotee. Then it will be easier for us to advance in Kṛṣṇa consciousness, to receive the mercy of Lord Caitanya and Lord Kṛṣṇa.
+
+This is the sum and substance of this song sung by Narottama dāsa Ṭhākura. [end]

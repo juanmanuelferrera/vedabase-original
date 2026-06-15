@@ -1,0 +1,149 @@
+# Śrī Caitanya-caritāmṛta, Madhya-līlā 20.100–108
+
+*Śrī Caitanya-caritāmṛta,  Madhya-līlā 20.100–108 Type: Caitanya-caritamrta Dated: November 29th 1966 Location: New York Audio file: 661129CC-NEW-YORK.mp3*
+
+**Prabhupāda:**
+
+> āpanāra hitāhita kichui nā jāni
+> grāmya-vyavahāre paṇḍita, tāi satya māni
+
+[*Cc Madhya 20.100*]
+
+**[I do not know what is beneficial for me or what is detrimental. Nonetheless, in ordinary dealings people consider me a learned scholar, and I am also thinking of myself as such.]**
+
+> kṛpā kari' yadi more kariyācha uddhāra
+> āpana-kṛpāte kaha 'kartavya' āmāra
+
+[*Cc Madhya 20.101*]
+
+**[Out of Your causeless mercy, You have delivered me from the materialistic path. Now, by the same causeless mercy, please tell me what my duty is.]**
+
+Now, Sanātana Gosvāmī, he's *ācārya* in this disciplic succession from Caitanya Mahāprabhu, Lord Caitanya. He is the first disciple of Lord Caitanya, and from him, Sanātana Gosvāmī, six Gosvāmīs*.* There were six, I mean, the first followers of Lord Caitanya. And then, from next step comes Raghunātha Gosvāmī, and then this author of this book, Kṛṣṇa dāsa Kavirāja Gosvāmī, and from him, Narottama dāsa Ṭhākura, and then from him, Viśvanātha Cakravartī, Baladeva Vidyābhūṣaṇa. In this way, this disciplic succession is coming from Lord Caitanya.
+
+So as *ācārya... Ācārya* means one who knows the principles of scriptures, properly being initiated by authority who knows things as they are, and they apply those things in their own life. They are called *ācārya. Acinoti śāstrāṇi:* he must know all the principles from authorities, and he should apply in his life in those principles. Not that he knows but does not apply. He cannot be *ācārya. Āpani ācari prabhu* *jīvere śikhāya.* Lord Caitanya, He, although He is accepted as the, I mean to say, the personal, He's Kṛṣṇa Himself, still, He behaved in such a way that others can follow. He also accepted Īśvara Purī. Īśvara..., Īśvara Purī was His spiritual master, Lord Caitanya's. This is the disciplic succession.
+
+Now, how to present himself before the spiritual master? He said that "Actually I am not learned, because I do not know my own position, what I am. But people say that 'You are *paṇḍita,*' and I am puffed-up, and I think, 'Yes, I am *paṇḍita.* I am learned.' " This is the situation of the world. Everyone who has no spiritual knowledge, who does not know what he is, still, he is very much proud that he's very learned.
+
+So such kind of learning may be praised materially, but spiritually it has no value. Spiritually it has no value, because this is temporary. Temporary. Just like by force, so many people is posted on the king's position, but after five years, ten years, again he's a common man. So similarly, all this material acquisition, they have no permanent value. Therefore those who are actually learned, they don't give any importance to this material acquisition.
+
+So Sanātana *prabhu* is, by his personal behavior, he's presenting himself that "People say that I am very learned, but actually I am not learned." This should be the position. *Jijñāsuḥ śreya uttama* *SB* 11.3.21*.*
+
+**[Therefore any person who seriously desires real happiness must seek a bona fide spiritual master and take shelter of him by initiation. The qualification of the bona fide *guru* is that he has realized the conclusions of the scriptures by deliberation and is able to convince others of these conclusions. Such great personalities, who have taken shelter of the Supreme Godhead, leaving aside all material considerations, should be understood to be bona fide spiritual masters.]**
+
+Now, "Because I am not learned, and very kindly You have delivered me from the *māyā* of illusion, kindly now let me know what is my duty." This is the position one should present himself to the spiritual master, not that... We have to first of all select spiritual master. The selection is required. Because as soon as you accept one spiritual master, you cannot say that "I don't agree with you." No. That you cannot say. Then it is useless, simply waste of time.
+
+First of all you have to select a person who is actually representative, just like Sanātana Gosvāmī is representative of, I mean to say, Lord Caitanya. Just like Arjuna is representative of Kṛṣṇa. Because he's directly receiving instruction from Kṛṣṇa, and he's assimilating, therefore he is representative. So this is the *paramparā* system. So we have to select a person who is actually representative of the Supreme. Then we have to surrender, and then we can... Of course, before [indistinct] and do not understand, we must put our question, then the procedure is nice.
+
+So here, Sanātana Gosvāmī's asking that *ke āmi kene āmāya jāre tāpa-traya* [*Cc Madhya* 20.102]: "Now I place myself that I do not know, but I request You to explain what I am." Now this "what I am..." Sanātana Gosvāmī' is such a learned man, he's asking from Caitanya Mahāprabhu, "What I am, I cannot know." If one thinks, "What I am?" I shall think myself that "There are so many foolish people, they're meditating, 'What I am? What I am?' 'What I am,' you are a foolish. You cannot know 'What I am.' " Just like Arjuna did not know what he is. He thought that "I am this body, and these persons who are in relationship with my body, they're my own men, they're my kinsmen." That was his knowledge.
+
+So you cannot know, we cannot know "What I am." A superior authority will let you know what you are. You cannot know. This is the mistaken idea, that "I shall find out what I am." No. You cannot know. Just see. Sanātana Gosvāmī said that *ke āmi:* "Kindly, as You have very kindly delivered me from this illusory position, now I am surrendered soul to You. Please let me know what I am." *Ke āmi kene āmāya jāre tāpa-traya.*
+
+*Tāpa-traya* means three kinds of material miseries. *Tāpa* means miseries; *traya* means three. So, "What I am, and why I am placed in this miserable condition of material nature?" This is called *jijñāsuḥ śreya uttamam.* This enquiry should be in the human form of life. Then his life is perfect. *Ke āmi...* In the *Brahma-sūtra* it is called *athāto brahma jijñāsā**,* and in *Śrīmad-Bhāgavatam* it is said, *tasmād guruṁ prapadyeta jijñāsuḥ śreya uttamam* *SB* 11.3.21: "One who is inquisitive to enquire, to understand about his real position, he should accept a spiritual master." Not a formality.
+
+So Caitanya Mahāprabhu is being asked, *ke āmi kene āmāya jāre tāpa-traya. Tāpa-traya* means threefold miseries. What are these threefold miseries? They are miseries pertaining to this body and mind; miseries pertaining to the, I mean to say, disturbance of material nature; and miseries pertaining to the other living entities. We are always under threefold miseries. We may accept or not accept; that is our position. I am in miserable condition due to others' arrangement—my enemies, other animals or other enemies. And I am in miserable condition due to material disturbances, nature's disturbances. And I am always under miseries due to my bodily and mental conditions. These called..., they are called threefold miseries.
+
+So out of these three... We are always under three kinds of miseries, but sometimes one is slackened, other is greater, in this way, but we are always under miserable condition. When a sane man comes to this understanding, he is eligible for spiritual evolution. And one is dull, who cannot understand what are these miseries, then he has no need of approaching a spiritual master or inquiring about transcendental subject matter.
+
+Just like a man who is not, I mean to say, aware of his disease, he does not go to a physician. He thinks, "I'm all right." Just like the drunkards in the Bowery Street, oh, they think that "We...," they're all right. There, there is nothing miserable condition for them. But what do they know about miserable...? They are so much accustomed to this miserable condition that they cannot understand what is meaning of his miserable condition. Yes.
+
+So when people are in this lowest stage of ignorance, they cannot understand what is needed. But when they are elevated, just like Sanātana Gosvāmī, they..., he goes to a bona fide spiritual master like Caitanya Mahāprabhu and His representative and asks, "What are the causes of my miseries, and what I am? What is my position?"
+
+> 'ke āmi', 'kene āmāya jāre tāpa-traya'
+> ihā nāhi jāni-'kemane hita haya'
+
+[*Cc Madhya 20.102*]
+
+**[Who am I? Why do the threefold miseries always give me trouble? If I do not know this, how can I be benefited?]**
+
+"And I also do not know what is the path of my welfare."
+
+> 'sādhya'-'sādhana'-tattva puchite nā jāni
+> kṛpā kaha ta' āpani kari' saba tattva
+
+[*Cc Madhya 20.103*]
+
+**[Actually I do not know how to inquire about the goal of life and the process for obtaining it. Being merciful upon me, please explain all these truths.]**
+
+"And I also do not know how to place my question." Yes. The blank slate. Completely. "I do not know, but I am feeling that I am in a miserable condition. But kindly explain me, what is my duty, what I am, and why I am fallen in the miserable condition. So You kindly explain to me."
+
+> prabhu kahe,—'kṛṣṇa-kṛpā tomāte pūrṇa haya
+> saba tattva jāna, tomāra nāhi tāpa-traya
+
+[*Cc Madhya 20.104*]
+
+**[Śrī Caitanya Mahāprabhu said, 'Lord Kṛṣṇa has bestowed His full mercy upon you so that all these things are known to you. For you, the threefold miseries certainly do not exist.']**
+
+And Lord Caitanya encourages him that "Because you have come to this understanding, now all your miseries are over." "All your miseries are over." Just like a man suffering from certain kind of disease, if he approaches a right physician, that means he is beginning of..., beginning of..., ending of all diseases is there. Similarly, if we can find out a bona fide spiritual master, and if we are actually anxious to end our miserable life, then it is actually done. The beginning is there. *Saba tattva jāna, tomāra nāhi tāpa-traya*. "Now don't be discouraged. You have no threefold miseries. Because you have come to this position, therefore you are above all these threefold miseries."
+
+> kṛṣṇa-bhakti dhara tumi, jāna tattva-bhāva
+> jāni' dārḍhya lāgi' puche-sādhura svabhāva
+
+[*Cc Madhya 20.105*]
+
+**[Since you possess Lord Kṛṣṇa’s potency, you certainly know these things. However, it is the nature of a sādhu to inquire. Although he knows these things, the sādhu inquires for the sake of strictness.]**
+
+A *sādhu*, a sage or a devotee, although he knows everything, still, he always places himself as he does not know anything. He never says that "I know everything." But actually, it is not possible to know everything. That is not possible. But one... Just like Sir Isaac Newton, he agrees that people say, "I am very much learned, but I do not know how much I have learned. I am simply collecting some pebbles on the sea shore." So that is the position. If a man who is actually learned, he'll never say that "I am learned." He'll simply say, "I am the fool number one. I do not know."
+
+So Caitanya Mahāprabhu appreciated his humbleness, because actually he was a very learned and very man of position in the society, so as a matter of reciprocation, exchange of, I mean to say, etiquette, he also accepted, "No, you are not fallen. You don't be discouraged. Simply it is the duty of any learned man to place himself like that. But you are not fool." *Kṛṣṇa śakti dhara tumi*: "Because you are already devotee."
+
+Before retirement, and before coming to Caitanya Mahāprabhu, these Gosvāmīs, as I told you, they're very learned Sanskrit scholar. They used to read *Bhāgavata.* When he gave false report to the Nawab Shah, that "I am not well. I cannot attend office," then Nawab Shah went to his house one day personally, that "This gentleman is not attending office and simply submitting sick report. What is that?" So when he approached and Nawab Shah saw that he's engaged with learned *paṇḍitas* in reading *Śrīmad-Bhāgavatam,* then he understood, "Oh, this is your disease. You are now taken to the *Śrīmad-Bhāgavatam.*" So actually he was very learned, but out of his humble behavior he is submitting himself to Lord Caitanya in that gentle way.
+
+So Caitanya Mahāprabhu says,
+
+> sad-dharmasyāvabodhāya
+> yeṣāṁ nirbandhinī matiḥ
+> acirād eva sarvārthaḥ
+> sidhyaty eṣām abhīpsitaḥ
+
+[*Cc Madhya 20.106*]
+
+**[Those who are eager to awaken their spiritual consciousness and who thus have unflinching, undeviated intelligence certainly attain the desired goal of life very soon.]**
+
+He says that "Your desire is to get perfection; therefore you are so much humble." So he quotes one verse from *Nāradīya Purāṇa,* that anyone who is very serious, one who is serious about knowing himself perfectly, and if he seeks in that way, then his perfection is guaranteed. The only thing is that one should be very serious.
+
+This purport, purport of this verse is *sad-dharmasyāvabodhāya yeṣāṁ nirbandhinī matiḥ. Nirbandhinī matiḥ* means he has already determined that "In this life I shall make my life perfect." Then, for him, perfection is guaranteed. If he thinks, "Oh, let me try. Let me test also this department of Kṛṣṇa consciousness, at the same time test other department. Let us go this way..." No. One should be very much serious to make complete perfection in this life.
+
+So a man should be serious like Sanātana Gosvāmī. And for that purpose he sacrificed everything, he became a beggar. So we should be prepared to sacrifice anything for perfection of this human form of life. Then perfection is guaranteed. Simply we should be very serious, that's all.
+
+Now, Lord Caitanya says that "Yes. I will have to give you instruction." Actually, this Sanātana Gosvāmī is eternal associated..., associate of Lord Caitanya. Just like Arjuna, he's also eternal associate of Kṛṣṇa. Now, he placed himself as an ordinary man, and as if he was in illusion of this relationship of this body. Actually he was not so, but by the energy of Kṛṣṇa he was so-called illusion. Otherwise he would not place himself in that condition, would not question Kṛṣṇa, then *Bhagavad-gītā* would not come. That is the purpose. Just like playing.
+
+He is... Similarly the some of the associates of Lord Kṛṣṇa. When Lord Kṛṣṇa, His incarnation comes on this earth, His associates are also present there without. So some of the associates, they play like this, a fool, a personality like this ordinary man, and they question to the Lord, and the answer is there for the benefit of us. Just like Lord Caitanya, He's supposed to be Kṛṣṇa Himself. Because people derided at Him when He was actually present as Kṛṣṇa—*avajānanti māṁ mūḍhā* [*Bg* 9.11]:
+
+**[Fools deride Me when I descend in the human form. They do not know My transcendental nature and My supreme dominion over all that be.]**
+
+"Foolish persons deride at Me because I am playing just like a man"—so He came again as a devotee, Lord Caitanya, how to teach, how to grasp *kṛṣṇa-bhakti,* devotional service. So He practically demonstrated.
+
+So He is eternal as Sanātana Gosvāmī is also, he is eternal associate. So as if he is taking lesson, representing ourself, he is taking lesson from the Lord. The Lord is confirming that,
+
+> yogya-pātra hao tumi bhakti pravartāite
+> krame saba tattva śuna, kahiye tomāte
+
+[*Cc Madhya 20.107*]
+
+**[You are fit to propagate the cult of devotional service. Therefore gradually hear all the truths about it from Me. I shall tell you about them.]**
+
+The Lord is also... This is a process. It is the duty of the spiritual master to select a disciple, and at the same time it is the duty of the disciple to select a spiritual master. Now the selection is very nice. Sanātana Gosvāmī is the right person to understand the science of devotional service, and Śrī Caitanya Mahāprabhu is the right person to give lesson to the disciple about this science. So He says, *yogya-pātra:* "You are just the proper person to understand this science of devotion." Now, *krame saba tattva śuna, kahiye tomāte:* "Now I shall gradually explain to you about this devotional service, and you'll understand."
+
+Now the first question was, of Sanātana Gosvāmī, that is, that should be the first question of everyone: "What I am?" Because if I do not know what I am, there is no question of my duties and my destination, everything. Everything will depend first to know what I am. Just like in the *Bhagavad-gītā,* Arjuna did not know what he was; therefore Kṛṣṇa first of all taught him that "You are not this body." "You are not this body." That was the first instruction. *Dehino 'smin yathā dehe kaumāraṁ yau...* [*Bg* 2.13].
+
+**[As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change.]**
+
+"You are so much absorbed in bodily conception of life, and you are thinking that you are a learned man. That is your foolishness."
+
+In the *Bhagavad-gītā* you'll find the first instruction of Lord Kṛṣṇa is there, *aśocyān anvaśocas tvaṁ prajñā-vādāṁś ca bhāṣase* [*Bg* 2.11]:
+
+**[The Blessed Lord said: While speaking learned words, you are mourning for what is not worthy of grief. Those who are wise lament neither for the living nor the dead.]**
+
+"You are thinking, you are talking with Me just like a very learned man. You are arguing with me. But from your behavior I can understand you are a fool number one." Because such kind of topics never, is I mean to say, placed by a learned man. So indirectly He said that "You are a fool."
+
+And "Why you are fool?" He said that "You are not this body. You are changing every moment your body. Why don't you think that you are not this body? Why you are identifying yourself as this body?" *Dehino 'smin yathā dehe kaumāraṁ yauvanaṁ jarā* [*Bg* 2.13]: "You are changing your body at every moment. From the mother's womb up to the death point, you are changing every moment. Then why you are thinking that you are body? But you are the same. In spite of all changes, you are the same." I think, my childhood, I think that I am the same. I forget that I am so much grown-up. That is my position.
+
+So the first lesson, the enquiry of Śrī Caitanya..., of Sanātana Gosvāmī, is that "What I am? What I am?" Arjuna did not place himself "What I am?" but here, because the instruction which is given in the *Caitanya-caritāmṛta* is practically higher than *Bhagavad-gītā*—it is postgraduate study, higher than *Bhagavad-gītā.* In the *Bhagavad-gītā* the, Arjuna, he did not question "What I am?" He was perplexed with this bodily conception of life. Now here, Sanātana Gosvāmī he, he thinks that "I'm not..., I do not know what I am." So he's advanced than Arjuna. He accepts that "I do not know."
+
+So because he inquired that *ke āmi*—*ke āmi* means "What I am?"—therefore Lord Caitanya directly informs him first that *jīvera svarūpa haya kṛṣṇera nitya dāsa* [*Cc* *Madhya* 20.108]*.*
+
+**[It is the living entity’s constitutional position to be an eternal servant of Kṛṣṇa because he is the marginal energy of Kṛṣṇa and a manifestation simultaneously one with and different from the Lord, like a molecular particle of sunshine or fire. Kṛṣṇa has three varieties of energy.]**
+
+*Jīva,* the living entity, is eternally a servitor of the Supreme Lord. Eternal. He gets..., He says, *jīvera svarūpa haya kṛṣṇera nitya dāsa.* That is his identity. So he refused all nonsensical ideas that "I am God," "I am equal with God." In the first beginning, he refused this idea, that "This is your... You are living entity. Your position is that you are eternally servitor of Kṛṣṇa, or the Supreme Lord."
+
+Now we shall begin tomorrow. [end]

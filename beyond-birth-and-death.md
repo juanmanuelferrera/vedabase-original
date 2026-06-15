@@ -1,7 +1,8 @@
 # Beyond Birth and Death
 
+### 1
 
-# Chapter 1: We Are Not These Bodies
+We Are Not These Bodies
 
 We Are Not These Bodies
 
@@ -21,7 +22,7 @@ na tvaṁ śocitum arhasi
 
 
 
-The very first step in self-realization is realizing one's identity as separate from the body. "I am not this body but am spirit soul" is an essential realization for anyone who wants to transcend death and enter into the spiritual world beyond. It is not simply a matter of saying "I am not this body," but of actually realizing it. This is not as simple as it may seem at first. Although we are not these bodies but are pure consciousness, somehow or other we have become encased within the bodily dress. If we actually want the happiness and independence that transcend death, we have to establish ourselves and remain in our constitutional position as pure consciousness.
+The very first step in self-realization is realizing one's identity as separate from the body. "I am not this body but am spirit soul" is an essential realization for anyone who wants to transcend death and enter into the spiritual world beyond. It is not simply a matter of saying "I am not this body," but of actually realizing it. This is not as simple as it may seem at first. Although we are not these bodies but are pure consciousness, somehow or other we have become encased with the bodily dress. If we actually want the happiness and independence that transcend death, we have to establish ourselves and remain in our constitutional position as pure consciousness.
 
 
 
@@ -33,7 +34,7 @@ Consciousness cannot be denied. A body without consciousness is a dead body. As 
 
 
 
-The impersonalist followers of Śaṅkarācārya, as well as the Vaiṣṇavas following in the disciplic succession from Lord Śrī Kṛṣṇa, acknowledge the factual existence of the soul, but the Buddhist philosophers do not. The Buddhists contend that at a certain stage the combination of matter produces consciousness, but this argument is refuted by the fact that although we may have all the constituents of matter at our disposal, we cannot produce consciousness from them. All the material elements may be present in a dead man, but we cannot revive that man to consciousness. This body is not like a machine. When a part of a machine breaks down, it can be replaced, and the machine will work again, but when the body breaks down and consciousness leaves the body, there is no possibility of our replacing the broken part and rejuvenating the consciousness. The soul is different from the body, and as long as the soul is there, the body is animate. But there is no possibility of making the body animate in the absence of the soul.
+The impersonalist school of Śaṅkarācārya, as well as the Vaiṣṇavas following in the disciplic succession from Lord Śrī Kṛṣṇa, acknowledge the factual existence of the soul, but the Buddhist philosophers do not. The Buddhists contend that at a certain stage the combination of matter produces consciousness, but this argument is refuted by the fact that although we may have all the constituents of matter at our disposal, we cannot produce consciousness from them. All the material elements may be present in a dead man, but we cannot revive that man to consciousness. This body is not like a machine. When a part of a machine breaks down, it can be replaced, and the machine will work again, but when the body breaks down and consciousness leaves the body, there is no possibility of our replacing the broken part and rejuvenating the consciousness. The soul is different from the body, and as long as the soul is there, the body is animate. But there is no possibility of making the body animate in the absence of the soul.
 
 
 
@@ -117,7 +118,7 @@ niryoga-kṣema ātmavān
 
 
 
-The word veda means "book of knowledge." There are many books of knowledge, which vary according to the country, population, environment, etc. In India the books of knowledge are referred to as the *Vedas*. In the West they are called the Old Testament and New Testament. The Muhammadans accept the Koran. What is the purpose for all these books of knowledge? They are to train us to understand our position as pure soul. Their purpose is to restrict bodily activities by certain rules and regulations, and these rules and regulations are known as codes of morality. The Bible, for instance, has ten commandments intended to regulate our lives. The body must be controlled in order for us to reach the highest perfection, and without regulative principles, it is not possible to perfect our lives. The regulative principles may differ from country to country or from scripture to scripture, but that doesn't matter, for they are made according to the time and circumstances and the mentality of the people. But the principle of regulated control is the same. Similarly, the government sets down certain regulations to be obeyed by its citizens. There is no possibility of making advancement in government or civilization without some regulations. In the previous verse, Śrī Kṛṣṇa tells Arjuna that the regulative principles of the *Vedas* are meant to control the three modes of material nature-goodness, passion, and ignorance (traiguṇya-viṣayā vedāḥ). However, Kṛṣṇa is advising Arjuna to establish himself in his pure constitutional position as spirit soul, beyond the dualities of material nature.
+The word veda means "book of knowledge." There are many books of knowledge, which vary according to the country, population, environment, etc. In India the books of knowledge are referred to as the *Vedas*. In the West they are called the Old Testament and New Testament. The Muhammadans accept the Koran. What is the purpose for all these books of knowledge? They are to train us to understand our position as pure soul. Their purpose is to restrict bodily activities by certain rules and regulations, and these rules and regulations are known as codes of morality. The Bible, for instance, has ten commandments intended to regulate our lives. The body must be controlled in order for us to reach the highest perfection, and without regulated principles, it is not possible to perfect our lives. The regulative principles may differ from country to country or from scripture to scripture, but that doesn't matter, for they are made according to the time and circumstances and the mentality of the people. But the principle of regulated control is the same. Similarly, the government sets down certain regulations to be obeyed by its citizens. There is no possibility of making advancement in government or civilization without some regulations. In the verse above, Śrī Kṛṣṇa tells Arjuna that the regulative principles of the *Vedas* are meant to control the three modes of material nature-goodness, passion, and ignorance (traiguṇya-viṣayā vedāḥ). However, Kṛṣṇa is advising Arjuna to establish himself in his pure constitutional position as spirit soul, beyond the dualities of material nature.
 
 
 
@@ -213,8 +214,9 @@ To establish ourselves on the pure brahma-bhūta spiritual platform, above the t
 
 Chapter Two
 
+### 2
 
-# Chapter 2: Elevation at Death
+Elevation at Death
 
 Elevation at Death
 
@@ -362,7 +364,7 @@ Those who are satisfied with temporary life, temporary pleasure, and temporary f
 
 
 
-For the impersonalists to get out of this temporary body, Kṛṣṇa here advises that they vibrate the syllable oṁ. In this way they can be assured of transmigration into the spiritual world. However, although they may enter the spiritual world, they cannot enter into any of the planets there. They remain outside, in the brahmajyoti. The brahmajyoti may be compared to the sunshine, and the spiritual planets may be compared to the sun itself. In the spiritual sky the impersonalists remain in the effulgence of the Supreme Lord, the brahmajyoti. The impersonalists are placed in the brahmajyoti as spiritual sparks, and in this way the brahmajyoti is filled with spiritual sparks. This is what is meant by merging into the spiritual existence. It should not be considered that one merges into the brahmajyoti in the sense of becoming one with it; the individuality of the spiritual spark is retained, but because the impersonalist does not want to take a personal form, he is found as a spiritual spark in that effulgence. Just as the sunshine is composed of so many atomic particles, so the brahmajyoti is composed of so many spiritual sparks.
+For the impersonalists to get out of this temporary body, Kṛṣṇa here advises that they vibrate the syllable oṁ. In this way they can be assured of transmigration into the spiritual world. However, although they may enter the spiritual world, they cannot enter into any of the planets there. They remain outside, in the brahmajyoti. The brahmajyoti may be likened unto the sunshine, and the spiritual planets may be compared to the sun itself. In the spiritual sky the impersonalists remain in the effulgence of the Supreme Lord, the brahmajyoti. The impersonalists are placed in the brahmajyoti as spiritual sparks, and in this way the brahmajyoti is filled with spiritual sparks. This is what is meant by merging into the spiritual existence. It should not be considered that one merges into the brahmajyoti in the sense of becoming one with it; the individuality of the spiritual spark is retained, but because the impersonalist does not want to take a personal form, he is found as a spiritual spark in that effulgence. Just as the sunshine is composed of so many atomic particles, so the brahmajyoti is composed of so many spiritual sparks.
 
 
 
@@ -370,7 +372,7 @@ However, as living entities we want enjoyment. Being, in itself, is not enough. 
 
 
 
-It is of utmost importance, therefore, that we know the nature of our constitutional position: we want eternity, complete knowledge, and also pleasure. When we are left alone for a long time in the impersonal brahmajyoti, we cannot have pleasure, and therefore we accept the pleasure given by the material world. But in Kṛṣṇa consciousness, real pleasure is enjoyed. In the material world it is generally accepted that the highest pleasure is sex. This is a perverted reflection of the sex pleasure in the spiritual world, the pleasure of association with Kṛṣṇa. But we should not think that the pleasure there is like the sex pleasure in the material world. No, it is different. But unless sex life is there in the spiritual world, it cannot be reflected here. Here it is simply a perverted reflection, but the actual life is there in Kṛṣṇa, who is full of all pleasure. Therefore, the best process is to train ourselves now, so that at the time of death we may transfer ourselves to the spiritual universe, to Kṛṣṇaloka, and there associate with Kṛṣṇa. In Brahma-saṁhitā (5.29) Śrī Kṛṣṇa and His abode are described thus:
+It is of utmost importance, therefore, that we know the nature of our constitutional position: we want eternity, complete knowledge, and also pleasure. When we are left alone for a long time, we cannot have pleasure, and therefore we accept the pleasure given by the material world. But in Kṛṣṇa consciousness, real pleasure is enjoyed. In the material world it is generally accepted that the highest pleasure is sex. This is a perverted reflection of the sex pleasure in the spiritual world, the pleasure of association with Kṛṣṇa. But we should not think that the pleasure there is like the sex pleasure in the material world. No, it is different. But unless sex life is there in the spiritual world, it cannot be reflected here. Here it is simply a perverted reflection, but the actual life is there in Kṛṣṇa, who is full of all pleasure. Therefore, the best process is to train ourselves now, so that at the time of death we may transfer ourselves to the spiritual universe, to Kṛṣṇaloka, and there associate with Kṛṣṇa. In Brahma-saṁhitā (5.29) Śrī Kṛṣṇa and His abode are described thus:
 
 
 
@@ -400,8 +402,9 @@ In India I lived in Vṛndāvana, and now I am in America, but this does not mea
 
 Chapter Three
 
+### 3
 
-# Chapter 3: Liberation from Material Planets
+Liberation from Material Planets
 
 Liberation from Material Planets
 
@@ -411,7 +414,7 @@ The jñānīs and yogīs are generally impersonalists, and although they attain 
 
 
 
-In *Bhagavad-gītā* Arjuna is hearing about God from the lips of Śrī Kṛṣṇa Himself. In this way Arjuna set the criterion for understanding the Supreme by submissive hearing. It is our position to hear *Bhagavad-gītā* from the lips of Arjuna or his bona fide representative, the spiritual master. After hearing, it is necessary to practice this acquired knowledge in daily life. "My dear Lord, You are unconquerable," the devotee prays, "but by this process, by hearing, You are conquered." God is unconquerable, but He is conquered by the devotee who abandons mental speculation and listens to authoritative sources.
+In *Bhagavad-gītā* Arjuna is hearing about God from the lips of Śrī Kṛṣṇa Himself. In this way Arjuna set the criteria for understanding the Supreme by submissive hearing. It is our position to hear *Bhagavad-gītā* from the lips of Arjuna or his bona fide representative, the spiritual master. After hearing, it is necessary to practice this acquired knowledge in daily life. "My dear Lord, You are unconquerable," the devotee prays, "but by this process, by hearing, You are conquered." God is unconquerable, but He is conquered by the devotee who abandons mental speculation and listens to authoritative sources.
 
 
 
@@ -419,7 +422,7 @@ According to Brahma-saṁhitā there are two ways of acquiring knowledge-the asc
 
 
 
-The proper process for approaching Kṛṣṇa was given to humanity by Lord Caitanya Mahāprabhu, and Rūpa Gosvāmī, His first disciple, appreciated it. Rūpa Gosvāmī was a minister in the Muhammadan government, but he left the government to become a disciple of Caitanya Mahāprabhu. When he first went to see the Lord, Rūpa Gosvāmī approached Him with the following verse:
+The proper process for approaching Kṛṣṇa was given to humanity by Lord Caitanya Mahāprabhu, and Rūpa Gosvāmī, His first disciple, appreciated it. Rūpa Gosvāmī was a minister in the Mohammedan government, but he left the government to become a disciple of Caitanya Mahāprabhu. When he first went to see the Lord, Rūpa Gosvāmī approached Him with the following verse:
 
 
 
@@ -469,7 +472,7 @@ An intelligent person knows that he does not want miseries, but they are inflict
 
 
 
-One may point out that although the devotees of Kṛṣṇa are trying to enter Kṛṣṇa's planet, everyone else is interested in going to the moon. Isn't going to the moon also perfection? The tendency to travel to other planets is always present in the living entity. One name for the living entity is sarva-gata, which means "one who wants to travel everywhere." Travel is part of the nature of the living entity. The desire to go to the moon is not a new thing. The yogīs also are interested in entering the higher planets, but in *Bhagavad-gītā* (8.16) Kṛṣṇa points out that this will not be of any help.
+One may point out that although the devotees of Kṛṣṇa are trying to enter Kṛṣṇa's planet, our interest is in going to the moon. Isn't going to the moon also perfection? The tendency to travel to other planets is always present in the living entity. One name for the living entity is sarva-gata, which means "one who wants to travel everywhere." Travel is part of the nature of the living entity. The desire to go to the moon is not a new thing. The yogīs also are interested in entering the higher planets, but in *Bhagavad-gītā* (8.16) Kṛṣṇa points out that this will not be of any help.
 
 
 
@@ -495,8 +498,9 @@ We should be very serious about attaining our eternal life full of bliss and kno
 
 Chapter Four
 
+### 4
 
-# Chapter 4: The Sky Beyond the Universe
+The Sky Beyond the Universe
 
 The Sky Beyond the Universe
 
@@ -566,7 +570,7 @@ naśyatsu na vinaśyati
 
 
 
-Paras tu bhāvaḥ means "superior nature," and vyaktaḥ refers to what we see manifested. We can see that the material universe is manifested through the earth, sun, stars, and planets. And beyond this universe is another nature, an eternal nature. Avyaktāt sanātanaḥ. This material nature has a beginning and an end, but that spiritual nature is sanātanaḥ-eternal. It has neither beginning nor end. How is this possible? A cloud may pass over the sky, and it may appear to cover a great distance, but actually it is only a small speck covering an insignificant part of the whole sky. Because we are so small, if only a few hundred miles is covered by cloud, it appears that the whole sky is covered. Similarly, this whole material universe is like a small, insignificant cloud in the vast spiritual sky. It is encased by the mahat-tattva, matter. As a cloud has a beginning and an end, this material nature also has a beginning and an end. When the clouds disappear and the sky clears, we see everything as it is. Similarly, the body is like a cloud passing over the spirit soul. It stays for some time, gives some by-products, dwindles, and then vanishes. Any kind of material phenomenon that we observe is subject to these six transformations of material nature-it comes into being, grows, stays for a while, produces some by-products, dwindles, and then vanishes. Kṛṣṇa indicates that beyond this changing, cloudlike nature there is a spiritual nature, which is eternal. In addition, when this material nature is annihilated, that avyaktāt sanātanaḥ will remain.
+Paras tu bhāvaḥ means "superior nature," and vyaktaḥ refers to what we see manifested. We can see that the material universe is manifested through the earth, sun, stars, and planets. And beyond this universe is another nature, an eternal nature. Avyaktāt sanātanaḥ. This material nature has a beginning and an end, but that spiritual nature is sanātanaḥ-eternal. It has neither beginning nor end. How is this possible? A cloud may pass over the sky, and it may appear to cover a great distance, but actually it is only a small speck covering an insignificant part of the whole sky. Because we are so small, if only a few hundred miles is covered by cloud, it appears that the whole sky is covered. Similarly, this whole material universe is like a small, insignificant cloud in the vast spiritual sky. It is encased by the mahat-tattva, matter. As a cloud has a beginning and an end, this material nature also has a beginning and an end. When the clouds disappear and the sky clears, we see everything as it is. Similarly, the body is like a cloud passing over the spirit soul. It stays for some time, gives some by-products, dwindles, and then vanishes. Any kind of material phenomena that we observe is subject to these six transformations of material nature-it comes into being, grows, stays for a while, produces some by-products, dwindles, and then vanishes. Kṛṣṇa indicates that beyond this changing, cloudlike nature there is a spiritual nature, which is eternal. In addition, when this material nature is annihilated, that avyaktāt sanātanaḥ will remain.
 
 
 
@@ -664,7 +668,7 @@ santaḥ sadaiva hṛdayeṣu vilokayanti
 
 
 
-"I worship the original Personality of Godhead, Govinda, whom the pure devotees whose eyes are smeared with the ointment of love of Godhead always observe within their hearts." (Brahma-saṁhitā 5.38) Those who are filled with love of God see God constantly before them. It is not that we saw God last night and He is no longer present. No. For one who is Kṛṣṇa conscious, Kṛṣṇa is always present and can be perceived constantly. We simply have to develop the eyes to see Him.
+"I worship the original Personality of Godhead, Govinda, whom the pure devotees whose eyes are smeared with the ointment of love of Godhead always observe within their hearts." (Brahma-saṁhitā 5.38) Those who are filled with love of God see God constantly before them. It is not that we saw God yesterday night and He is no longer present. No. For one who is Kṛṣṇa conscious, Kṛṣṇa is always present and can be perceived constantly. We simply have to develop the eyes to see Him.
 
 
 
@@ -724,14 +728,15 @@ He who has progressed in devotional life and who is relishing service to Kṛṣ
 
 Chapter Five
 
+### 5
 
-# Chapter 5: Associating with Krsna
+Associating with Krsna
 
 Associating with Kṛṣṇa
 
 
 
-If one gets something superior, he naturally gives up all inferior things. We want enjoyment, but impersonalism and voidism have created such an atmosphere that we have become addicted to material enjoyment. There must be enjoyment in connection with the Supreme Person (puruṣaḥ sa paraḥ), whom we can see face to face. In the spiritual sky we are able to speak personally with God, play with Him, eat with Him, etc. All of this can be attained by bhaktyā-transcendental loving service. However, this service must be without adulteration, that is to say, we must love God without expecting material remuneration. Loving God to become one with Him is also a form of adulteration.
+If one gets something superior, he naturally gives up all inferior things. We want enjoyment, but impersonalism and voidism have created such an atmosphere that we have become addicted to material enjoyment. There must be enjoyment in connection with the Supreme Person (puruṣaḥ sa paraḥ), whom we can see face to face. In the spiritual sky we are able to speak personally with God, to play, eat with Him, etc. All of this can be attained by bhaktyā-transcendental loving service. However, this service must be without adulteration, that is to say, we must love God without expecting material remuneration. Loving God to become one with Him is also a form of adulteration.
 
 
 
@@ -888,4 +893,3 @@ yogī paraṁ sthānam upaiti cādyam
 
 
 "A person who accepts the path of devotional service is not bereft of the results derived from studying the *Vedas*, performing austere sacrifices, giving charity, or pursuing philosophical and fruitive activities. At the end he reaches the supreme abode." (Bg. 8.28) Here Kṛṣṇa says that the purpose of all Vedic instructions is to achieve the ultimate goal of life-to go back to Godhead. All scriptures from all countries aim at this goal. This has also been the message of all religious reformers or ācāryas. In the West, for example, Lord Jesus Christ spread this same message. Similarly, Lord Buddha and Muhammad. No one advises us to make our permanent settlement here in this material world. There may be small differences according to country, time, and circumstance, and according to scriptural injunction, but the main principle that we are not meant for this material world but for the spiritual world is accepted by all genuine transcendentalists. All indications for the satisfaction of our soul's innermost desires point to those worlds of Kṛṣṇa beyond birth and death.
-

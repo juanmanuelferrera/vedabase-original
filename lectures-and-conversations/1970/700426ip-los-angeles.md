@@ -1,0 +1,38 @@
+# Śrī Īśopaniṣad Invocation [partially recorded]
+
+*Type: Sri Isopanisad Dated: April 26th 1970 Location: Los Angeles Audio file: 700426IP-LOS-ANGELES.mp3*
+
+**Prabhupāda:** There is complete facility, because *pūrṇam,* whatever is done by Kṛṣṇa, that is complete. You cannot find out any flaw in it. His potencies are so complete that *svābhāvikī jñāna-bala-kriyā ca* [*Śvetāśvatara Upaniṣad* 6.8]. Just like a child, if you love, immediately there is some reponse. And if you slap the child, immediately crying response. So these things are not to be learned. *Svābhāvikī:* automatically.
+
+Similarly, because Kṛṣṇa, or God, is complete, whatever He does, it is complete. You cannot find out any flaw. You cannot say, "Oh, why God has done this?" Just like sometimes some foolish persons, they say, "Why God has made somebody poor and somebody rich?" This is most foolish question. Yes. If God has done it, then it is complete. There is no flaw. Just like if the state orders somebody to be murdered, to be killed, that is complete. You cannot find out any law, er, any flaw. That is complete execution of the law. So if we cannot find out in man-made laws, how we can find out a fault in God-made laws? That is not possible.
+
+So if you want to get out of this entanglement, there is complete arrangement, facility, complete facility. *Teṣāṁ satata-yuktānāṁ bhajatāṁ prīti-pūrvakam* *Bg.* 10.10. There is another verse, that "Those who are engaged in devotional service," Kṛṣṇa says, *yoga-kṣemaṁ vahāmy aham* *Bg.* 9.22*,* "I take personal charge for their maintenance." This is complete arrangement.
+
+Just look to the *karmī* world. Now, so far we are concerned, we have to pay installment, two thousand dollars, for this house, and we have to spend another two thousand dollars for our maintenance. So four thousand, five thousand dollars we are spending. Can any *karmī* depend like that? Take practical example. Can they depend for paying five thousand dollars bills without any arrangement? They will have no sleep at night. And we are freely moving, [laughter] because we are sure that Kṛṣṇa will provide, and He is providing.
+
+Go anywhere in the *karmī's* world. Find out such nice place, just like our temple. There is none. Whole Los Angeles city, you cannot find. Such beautiful faces, such bright faces, you cannot find anywhere. So this is complete facility. If you want to take advantage of your life, Kṛṣṇa consciousness, then there is complete facility. Come to the practical point. There is no theoretical. It is practical, experimented.
+
+So therefore there is complete facility for the small complete units. We are complete units, small. God is great and we are small. So small... Just like a big machine, and there is a small screw. So the complete facility, completeness of that small screw, is to become fitted in that particular place. Then it has got value. And if it is out of touch of the machine, falls down, it has no value. So complete facility is there. Just yourself dovetail into that hole and the screw is placed there, oh, it has value. When a screw is lost, you have to purchase from the store at the cost of two dollars. And when it is fallen down, it is not even worth one cent, the same screw.
+
+[break] So we are complete units so long we are attached to Kṛṣṇa. Otherwise useless.
+
+> ya eṣāṁ puruṣaṁ sākṣād
+> ātma-prabhavam īśvaram
+> na bhajanty...
+> sthānād bhraṣṭāḥ patanty adhaḥ
+
+[*SB 11.5.3*]
+
+Why India is fallen down? Because the so-called rascal, they are claiming that "I am *brāhmaṇa.*" But what is our occupation, sir? "Oh, I am serving as a coolie." Is that *brāhmaṇa's* business? Actually I have seen, India, a person, *ṭhelā**-walaji*, born of a *brāhmaṇa* family, and he's pulling hand cart with great labor. And some foolish person also offering respect, and he is offering blessings while drawing the cart. [laughter] [chuckles] I have seen it. You see? These things are going on. He does not know that "Now I am fallen. Why should I claim as *brāhmaṇa*? I am cheating."
+
+So one should keep in his own position. If you want to become a *brāhmaṇa,* then you keep your position as the mouth of the Lord. Simply if you take thread ceremony and become something else, no, then you don't take the advantage, facility. Mouth of the Lord is when Kṛṣṇa speaks from His mouth. He spoke the *Bhagavad-gītā* from His mouth. So if you keep yourself to the business of His mouth, then you have to preach. Then you are a *brāhmaṇa.*
+
+*Mukha-bāhūru-pāda-jāḥ.* As we have got divisions in this body—this mouth, the arm, the belly and the leg—similarly, the gigantic body of Kṛṣṇa, *virāṭ-puruṣa,* His mouth is these *brāhmaṇas,* His arms are the *kṣatriyas,* His belly is the *vaiśyas* and the legs are the *śūdras.* Or the *brahmacārī, gṛhastha, vānaprastha, sannyāsa.* So they have got different position in the different parts of the body of the whole, complete whole. So if you keep to your position and act like that, take the facility, then you are complete. Otherwise, like the screw, you are thrown away. You have no value.
+
+So here it is stated, "There is complete facility for the small complete units, namely the living being, to realize the complete." To realize the complete, what is my relationship with the Complete. "And all forms of incompleteness are experienced only on account of incomplete knowledge of the Complete." We are thinking that "I am equal to God. I am God." This is incomplete knowledge. But if you know that "I am part and parcel of God," that is complete knowledge. The Māyāvādī philosophers, the atheists, they are claiming that "Who is God? I am God." That is incomplete knowledge.
+
+"The human form of life is a complete manifestation of the consciousness." Now, this complete consciousness you can revive in this human form of life. The cats and dogs, they cannot understand. So if you don't take the facility, then you are *ātma-hanaḥ janāḥ.* You are killing yourself, committing suicide. As it is said, *ātmā andhena tamasāvṛtāḥ tāṁs te pretyābhigacchanti ye ke cātma-hano janāḥ* [*Īśo* ***mantra ***3]. After death, *pretyābhi... Pretya* means after death. So don't be *ātma-hano janāḥ.* Utilize your life in complete facility. That is our business.
+
+Thank you.
+
+**Devotees:** *Jaya*. *Jaya* Śrīla Prabhupāda. [end]

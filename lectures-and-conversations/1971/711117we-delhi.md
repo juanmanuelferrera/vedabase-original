@@ -1,0 +1,59 @@
+# Wedding Lecture [partially recorded]
+
+*Type: Lectures and Addresses Dated: November 17th 1971 Location: Delhi Audio file: 711117WE-DELHI.mp3*
+
+**Prabhupāda:** This marriage is being performed as *gandharva* marriage, simply by changing the garland. In the Kali-yuga, the other kinds of marriage, selected by the parents, that is not possible. Therefore, one of the marriage system, *gandharva* marriage, is accepted. And simply by changing the garland and promising.
+
+*Svīkāra eva hi udvāhe.* That is stated in the *Śrīmad-Bhāgavatam*. In the Kali-yuga, simply by accepting, the man accepts the woman as wife and the woman accepts the man as husband, that is the vow. *Svīkāra eva hi udvāhe. Udvā* means the vow. Simply by acceptance. Because other things are not possible.
+
+And without marriage, that is not civilized life. Because in the animal society there is no marriage, but in any form of civilized society there is marriage. Everyone has got sex appetite. Therefore, marriage is allowed by the Vedic system. And Kṛṣṇa says in the *Bhagavad-gītā* that *dharmāviruddho kāmo 'smi:* "*Kāma*, lust, which is not against religious principles, that is I am."
+
+So marriage is essential. So far our Society is concerned, we don't allow anybody to remain in our Society as friends, girlfriend or boyfriend. No. They must be married. And these boys and girls, after being married, they are preaching nicely Kṛṣṇa consciousness. All my students who are married, they are doing preaching work more than *sannyāsī*. Yes. In the Kali-yuga, practically it is forbidden. *Sannyāsaṁ pala-paitṛkam kalau pañca vivarjayet, aśvamedhaṁ gavālambhaṁ...*
+
+> aśvamedhaṁ gavālambhaṁ
+> sannyāsaṁ pala-paitṛkam
+> devareṇa sutotpattiṁ
+> kalau pañca vivarjayet
+
+[*Cc. Ādi 17.164*]
+
+Formerly there was a system: if the husband is unable, then a son can be begotten by the husband's younger brother, *devareṇa*. But in this age, Kali-yuga, that is forbidden. Similarly, *aśvamedha yajña, gomedha yajña* is also forbidden, because there is no yajñic *brāhmaṇa*. Formerly, when an animal was put into the fire, sacrificed, and by Vedic *mantra* it was given a new, fresh life. That was the test of Vedic *mantra* pronouncing. But that is not possible nowadays.
+
+In the Kali-yuga, the only *yajña* is the *sañkīrtana yajña*.
+
+> kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ
+> sāṅgopāṅgāstra-pārṣadam
+> yajñaiḥ saṅkīrtana-prāyair
+> yajanti hi su-medhasaḥ
+
+[*SB 11.5.32*]
+
+Those who are highly intellectual, *su-medhasaḥ*, they perform the *saṅkīrtana yajña,* and by that *saṅkīrtana yajña*, the Lord, whose complexion is not black and who is always chanting Hare Kṛṣṇa *mantra* and is accompanied by His associates, *sāṅgopāṅgāstra-pārṣadam, yajñaiḥ saṅkīrtana-prāyair yajanti hi su-medhasaḥ*.
+
+So in this Kṛṣṇa consciousness movement, everything is being performed according to the scriptural injunction. It is not that we are manufacturing something.
+
+> yaḥ śāstra-vidhim utsṛjya
+> vartate kāma-kārataḥ
+> na sa siddhim avāpnoti
+> na sukhaṁ na parāṁ gatim
+
+[*Bg. 16.23*]
+
+So our initiation, our accepting a disciple as *brāhmaṇa*, they are all strictly according to Vedic injunctions. In this Kali-yuga, there is no *vaidika dīkṣā,* because *vaidika dīkṣā* depends on the persons being a, I mean to say, sanctified *brāhmaṇa*. A sanctified *brāhmaṇa* means that before his birth, the *garbhādhāna-saṁskāra* is observed. If it is not observed, then he immediately falls down to the category of *śūdra*. *Kalau śūdra sambhava*.
+
+But there is *pāñcarātrikī-vidhi* given by Nārada, who said that one should be accepted in the category of *brāhmaṇa, kṣatriya, vaiśya* and *śūdra* according to symptoms. *Yasya hi ya svabhāvasya.*
+
+> yasya hi yad lakṣaṇaṁ syat
+> varṇābhivyañjakam
+> yad anyatrāpi dṛśyeta
+> tat tenaiva vinirdiśet
+
+[*SB 7.11.35*]
+
+There are symptoms of brahminical qualification, there are symptoms of *kṣatriya* qualification. So if these symptoms are observed in a different place, namely if the brahminical qualification is observed in the person of a *śūdra*, then that *śūdra* should not be called a *śūdra;* he should be accepted as *brāhmaṇa*. Similarly, if the *śūdra* qualification is observed in the family of a *brāhmaṇa*, then that person should be accepted as *śūdra*. This is the definition given by Nārada Muni while he was speaking about *varṇāśrama-dharma* to Mahārāja Yudhiṣṭhira.
+
+So this Kṛṣṇa consciousness movement, the initiation ceremony, the marriage ceremony, the sacred thread ceremony, whatever we observe, they are strictly according to the *śāstra*. That is our point.
+
+So for spiritual progress of life, it is necessary that all kinds of sinful activities must be stopped. Without being freed from contamination of sinful life, nobody can make progress in spiritual life. Therefore, who is strictly observe these four principles to avoid, I mean to..., sinful life. One of them is *avaida stri saṅga*. Therefore marriage is necessary.
+
+So next. [break] [end]

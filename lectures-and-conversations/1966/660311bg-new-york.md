@@ -1,0 +1,273 @@
+# Bhagavad-gītā 2.13
+
+*Type: Bhagavad-gita Dated: March 11th 1966 Location: New York Audio file: 660311BG-NEW-YORK.mp3*
+
+**Prabhupāda:**
+
+> dehino 'smin yathā dehe
+> kaumāraṁ yauvanaṁ jarā
+> tathā dehāntara-prāptir
+> dhīras tatra na muhyati
+
+[*Bg* *2.13*]
+
+**[As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change.]**
+
+This is thirteenth *śloka.* You can open it. The Sanskrit word is,
+
+> dehino 'smin yathā dehe
+> kaumāraṁ yauvanaṁ jarā
+> tathā dehāntara-prāptir
+> dhīras tatra na muhyati
+
+[*Bg* *2.13*]
+
+**Student:** This is thirteenth?
+
+**Prabhupāda:** Thirteen, yes.
+
+**Student:** "Just as boyhood, youth and old age are attributed to the soul through this body, he, the soul, obtains another body. The wise man does not get deluded about this."
+
+**Prabhupāda:** Yes. Now, this wise man, the word, Sanskrit word, is *dhīra. Dhīra* means that one who is undisturbed in mind. And our disturbance of the mind is due to our ignorance. Suppose I want to go somewhere. Now I am in the station. And actually, it so happened when I came to New York first from India. I was to be dispatched to Butler by the bus station. But I was a new man; I did not know the rules and regulation. Of course, somebody was guiding me. Still, I was very much in disturbed condition, how to get on the bus, how to get the ticket, how... All these things. So disturbance of mind is due to our ignorance.
+
+[someone enters] Yes. Come in. [chuckles] Yes. So disturbance of mind is due to our ignorance. So here, a very nice word.
+
+[aside:] You can come here. All right.
+
+Here a very nice word is used: *dhīra. Dhīra. Dhīra* means undisturbed. Undisturbed.
+
+So this we should, we should carefully note, that our mind in the material condition is always disturbed, always disturbed. And this is due to our unfavorable condition. Because we are actually spirit in identity, and we have been put into material conditions. We can very well experience. And we have..., I got experience, and here is Captain Pandia. He has also experienced. He may be more than experienced than me. When we passed through the sea on the ship, although we are on the sea, quite safe, still, when there is some storm, when there is some disturbance on the ocean, we also become very much disturbed, because that situation is foreign to us. You see? We are not so much disturbed in the land as we are disturbed in the ocean, because we know that our position in the ocean is not our natural condition. So we should note, that disturbance is due to our unnatural condition. Otherwise, there is no question of disturbance.
+
+So whole disturbance of mind... It is described in the *Bhagavad-gītā..*., er, *Śrīmad-Bhāgavatam,*
+
+> tat sādhu manye 'sura-varya dehināṁ
+> sadā samudvigna-dhiyām asad-grahāt
+> hitvātma-pātaṁ gṛham andha-kūpaṁ
+> vanaṁ gato yad dharim āśrayeta
+
+[*SB* *7.5.5*]
+
+**[Prahlāda Mahārāja replied: O best of the asuras, King of the demons, as far as I have learned from my spiritual master, any person who has accepted a temporary body and temporary household life is certainly embarrassed by anxiety because of having fallen in a dark well where there is no water but only suffering. One should give up this position and go to the forest [vana]. More clearly, one should go to Vṛndāvana, where only Kṛṣṇa consciousness is prevalent, and should thus take shelter of the Supreme Personality of Godhead.]**
+
+The... This is a verse in connection with talks between Mahārāja Prahlāda and his father, Hiraṇyakaśipu. His father was gross materialist, Hiraṇyakaśipu. *Hiraṇya* means gold, and *kaśipu* means soft bed. So materialist, they are concerned with gold and soft bed for enjoyment. You see? So his name was Hiraṇyakaśipu. And the Prahlāda, his son... Prahlāda means *prakṛṣṭa-rūpeṇa āhlāda. Āhlāda* means pleasure. He's always full of pleasure. He has nothing to do with material...
+
+Because material pleasure cannot give us pleasure. It is our mistake. But because we have no information of the spiritual pleasure, and because we are conditioned by this material body, therefore we seek pleasure through matter. Now, we have to raise ourself from this position. Then we can get unlimited pleasure. We want pleasure, but we do not want such pleasure which ends. We want nonending pleasure. That is our heart's desire. But in material pleasure we cannot have that bliss. Even if you take a very good foodstuff, just delicious, still, after taking some portion of it, you will feel yourself satiated. Then that very foodstuff, you'll say, "No, no, I don't want any more." Because that ends.
+
+So that is not real pleasure. Real pleasure is defined: *ananta. Ananta* means that which has no end. So that pleasure you can have only when you are spiritually realized soul. That is possible. That is possible. We are reading all these scriptures, *Bhagavad-gītā, Śrīmad-Bhāgavatam,* and there are so many Vedic literatures, that if anyone wants to have spiritual life, there is complete facility. There is complete facility.
+
+Now, this Prahlāda... Prahlāda was a boy—a child, not boy; he was only five years old. So his father called him, "My dear son, what you have learned from your teacher best? Please explain." So he is explaining this, that,
+
+> tat sādhu manye 'sura-varya dehināṁ
+> sadā samudvigna-dhiyām asad-grahāt
+> hitvātma-pātaṁ gṛham andha-kūpaṁ
+> vanaṁ gato yad dharim āśrayeta
+
+[*SB* *7.5.5*]
+
+**[Prahlāda Mahārāja replied: O best of the asuras, King of the demons, as far as I have learned from my spiritual master, any person who has accepted a temporary body and temporary household life is certainly embarrassed by anxiety because of having fallen in a dark well where there is no water but only suffering. One should give up this position and go to the forest [vana]. More clearly, one should go to Vṛndāvana, where only Kṛṣṇa consciousness is prevalent, and should thus take shelter of the Supreme Personality of Godhead.]**
+
+"My dear father..." And his father was materialist. Therefore materialists are called in Sanskrit language *asura. Asura.* There are two kinds of human being all the time: *asura* and *deva.* *Deva, deva* means human beings who are connected with the Supreme Lord. Their life is for realization of the Supreme Truth. They are called *deva.* Just like in higher planets, there are also living beings. They are called *devatās,* demigods, because their magnitude of pleasure is far, far greater than ours. But because they do everything in relation with the Supreme Lord, therefore they are called *devatā. Devatā. Devatā* means demigods. And *asura. Asura* means just the opposite. They simply enjoy life for the matter of sense pleasure. That's all.
+
+So those who are interested in sense pleasure, they are called *asuras,* and those who are interested unending spiritual pleasure, they are called *devatās. Devatā* and *asura* does not mean that *asuras* are very ugly and *devatās* are very beautiful. Even the ugly man can become a *devatā,* or even a beautiful man may become a *asura.* That is due to his mentality. Because, after all, the soul is pure. When he is in unnatural condition of life, wants to enjoy simply the material senses, he becomes *asura.* So *asura* can be turned into *devatā.* There is no hindrance.
+
+So Prahlāda Mahārāja... Just see. The father was *asura,* and the son was *devatā.* So *asura's* son can be *devatā.* And a *devatā's* son can be *asura.* Just like in India. In India nowadays there is a great movement for removing the caste system, because the higher caste, *brāhmaṇas,* they are claiming, due to their birthright, higher position, and the other, they are in inconvenience: "Nowadays the *brāhmaṇas* are doing the same thing, what we are doing, a *śūdra.* Why he should claim?" So there is that quarrel. You see?
+
+So *devatā* and *asura,* the division is that, of course, the... Of course, according to our *śāstra,* the *brāhmaṇa* family means *devatā* family. But because nowadays they are descendants, they have deviated, deviated from the brahminical culture, they are not to be considered as *devatās.* That is also mentioned in the *śāstras.* They are called *brahma-bandhus.* According to *śāstra,* they are called *brahma-bandhus. Brahma-bandhus* means son of a *brāhmaṇa* but not the *brāhmaṇa.* You see? Just like a son of high-court justice. He can claim that "I am the son of a high-court justice," that's all. But because he's the son of a high-court justice, he cannot claim that "I am also the justice of the high court." So that consideration is there.
+
+So *asura, devatā,* there is no such formula that "In this line only the *asuras* will come, and in this line only the *devatās* will come." The *asura* can be converted into *devatā,* and the *devatās* also can be converted into *asuras,* according to their action. *Cātur-varṇyaṁ mayā sṛṣṭaṁ guṇa-karma-vibhāgaśaḥ* [*Bg* 4.13]*.*
+
+**[According to the three modes of material nature and the work ascribed to them, the four divisions of human society were created by Me. And, although I am the creator of this system, you should know that I am yet the non-doer, being unchangeable.]**
+
+In the *Bhagavad-gītā* you'll find that "This whole division of caste, that is created by Me." *Mayā sṛṣṭam:* "I have created." But how it is? Now, according to *guṇa* and *karma,* according to quality and according to his work. He never says, "According to birth." So just see.
+
+Now here, Hiraṇyakaśipu... Hiraṇyakaśipu is *asura,* but his son is *devatā,* Prahlāda. Now, according to birthright, he should be also *asura.* But no. He is *devatā,* Prahlāda Mahārāja. Prahlāda Mahārāja is counted one of the great pers..., twelve great personalities who can distribute transcendental knowledge. They are called *mahājana. Mahājana.*
+
+Now, this Prahlāda Mahārāja, because he's *mahājana,* his statement should be accepted. So he's saying to his father, *asura-varya:* "My dear father, you are the greatest of the *asuras.*" *Asura-varya. Varya* means greatest. So even if he is father, he addresses his father *asura-varya,* *asura,* "Because your aim is simply sense pleasure." You see?
+
+So *tat sādhu manye asura-varya dehinām.* The father asked the son, "What you have learned, the best thing?" So he's also saying sincerely before his father the best thing, that "My dear father, for the *dehinām...*" Here also the same thing, *dehinām. Dehino 'smin yathā dehe* [*Bg* 2.13]*.*
+
+**[As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change.]**
+
+*Dehinaḥ. Dehinaḥ* means the spiritual spark who has accepted this material body. This material body is foreign. That will be explained. Just like your coat and shirt is foreign to your self. Similarly, this material body is foreign. So *dehinām... Dehinām* means one who has accepted this material body.
+
+So we are accepted, mean... "Accepted" means we have done something by which we have been forced to accept. Forced to accept. Just like if we are put into the prison house, the prison house has got separate dress. So when you are put into the prison house, you have to keep aside your own household dress, and you have to take that particular dress. If you say, "No, no. I cannot accept this dress. I am a gentleman. I have got costly dress. I shall put on that," no, you must—forced.
+
+Similarly, we, we living entities, we are forced to accept different kind of dress. There are 8,400,000 kinds of dresses like this body. And your body, my body, you see? Now we are here, several ladies and gentlemen, but you'll find that nobody's body will be similar to the other's body. God's arrangement is so nice that everyone has got his particular body according to his work. It is so nice arrangement. You see? You'll find millions of persons, and everyone you'll find different from the other. You won't find two similar person. You see?
+
+So *dehinām.* Because there are different kinds of mentality, not that all our mentality is one and the same. No, no. When the law of nature is so finer that, according to the different kinds of mentality, they have got different kinds of body also. So *dehino 'smin.*
+
+So Prahlāda Mahārāja says that, *tat sādhu manye 'sura-varya dehinām. Dehinām* means "of those who have accepted this material body, for them." And what is their condition? Now, *dehināṁ sadā samudvigna-dhiyām. Dehinām,* one who has accepted this material body, his conditional life is always full of anxiety. Not that, that we are always in want. Even in your duty.
+
+Just like our Captain *sāheb* is here. I have seen in the ship he has got very serious duty in the ocean. He's always consulting the chart and the latitude, longitude, which side the ship is going. That is anxiety, because so many lives, so many property is under his control. Any, a slight mistake, would play havoc. We do not know. I was asking the Captain *sāheb,* "Where you are going?" But I do not know. I see simply vast of water. But he has got responsibility. He knows the thing.
+
+So any responsible officer... Any responsible... Your President Johnson, he's also full of anxiety. I am also full of anxiety. You are also full of anxiety. Even a, a small bird, you'll find... You give a small bird some grains, you'll see like this: "Is there enemy? Somebody's coming. Somebody's killing me." So full of anxiety. This is the condition. This is the condition. So you cannot..., you cannot be free from the anxiety, *dehinaḥ.* Prahlāda Mahārāja says, *sadā samudvigna-dhiyām.*
+
+And why this anxiety? Now, *asad-grahāt. Asad-grahāt:* "Because he has accepted this temporary body." He is eternal. A living spirit is eternal, but he has been forced to accept this temporary body. This is my position. One should be conscious of his precarious position, that "I am eternal, but I am encaged in a temporary body which will not exist. However I may try to make it youthful by so many arrangement, but no." The science cannot give you permanent life. Oh, that is not possible. You may..., however you may be proud of your scientific advancement of knowledge, but *Bhagavad-gītā* says that four things... *Janma-mṛtyu-jarā-vyādhi-duḥkha-doṣānudarśanam* [*Bg 13.9*]:
+
+[Humility, pridelessness, nonviolence, tolerance, simplicity, approaching a bona fide spiritual master, cleanliness, steadiness and self-control; renunciation of the objects of sense gratification, absence of false ego, the perception of the evil of birth, death, old age and disease; nonattachment to children, wife, home and the rest, and evenmindedness amid pleasant and unpleasant events; constant and unalloyed devotion to Me, resorting to solitary places, detachment from the general mass of people; accepting the importance of self-realization, and philosophical search for the Absolute Truth—all these I thus declare to be knowledge, and what is contrary to these is ignorance.]
+
+"My dear sir, however you may make advancement in scientific knowledge, you cannot stop birth, you cannot stop death, you cannot stop old age, neither you can stop diseases." You see?
+
+So, so long we have got this body, so we must have anxieties. That is the law of nature. Now here, here it is said that... Now let us finish that. Prahlāda Mahārāja said, *sadā samudvigna-dhiyām* *SB* 7.5.5*:*
+
+**[Prahlāda Mahārāja replied: O best of the asuras, King of the demons, as far as I have learned from my spiritual master, any person who has accepted a temporary body and temporary household life is certainly embarrassed by anxiety because of having fallen in a dark well where there is no water but only suffering. One should give up this position and go to the forest [vana]. More clearly, one should go to Vṛndāvana, where only Kṛṣṇa consciousness is prevalent, and should thus take shelter of the Supreme Personality of Godhead.]**
+
+"My dear father, for persons who have accepted this temporary material body and is full of anxiety always, for them, my idea is that they should give up this materialistic life and surrender unto Hari." Hari means Bhagavān, the Supreme Lord. That is the way of getting out of... And actually, this is so. In the *Bhagavad-gītā* you'll find in the last instruction to Arjuna is, *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja* [*Bg* 18.66]:
+
+**[Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear.]**
+
+"This is the most confidential knowledge I am giving you, because you are My friend and because I love you very much. Therefore this is My last word."
+
+So we can get free from all anxieties as soon as we are surrendered to Hari. That is the whole system of spiritual knowledge. *Ārādhito yadi haris tapasa tatha kim* [*Nārada Pañcarātra* 1.2.6].
+
+**[If one worships Lord Kṛṣṇa and considers Him the goal of life, then there is no need to execute severe types of austerity. And, if after executing all kinds of tapasya, one cannot reach Kṛṣṇa, then all his tapasya has no value, for without Kṛṣṇa consciousness different types of austerities are wasted labor.]**
+
+If you accept from the very beginning this principle, that "I must surrender unto the Supreme Lord," then there is no other necessity of prosecuting your spiritual knowledge. That is the final spiritual knowledge. *Ārādhito yadi haris tapasa tatah kim. Tapasya* means penances, accepting penances for spiritual realization.
+
+Now, one who has accepted the worship of the Supreme Lord, he has no more anything to do for spiritual realization. He has realized. And *nārādhito yadi haris tapasa tatah kim:* and after undergoing so much severe penances, if one does not understand what is God, then whole thing is spoiled. *Tapasa tatah kim.* Whole penances is spoiled, because he could not reach to the ultimate goal. So *ārādhito yadi haris tapasa tatah kim, nārādhito yadi haris tapasa tatah kim.*
+
+*Antar-bahir yadi haris tapasa tatah kim:* one who has achieved that knowledge, that he can see within himself and outside always the Supreme Lord, he has no more necessity of any penance. And after undergoing all sorts of penances, if I cannot realize that God is within me and God is without, everywhere, then all my penances are spoiled. You see? These are very nice.
+
+So here, here it is said that *dhīra. Dhīra.*
+
+> dehino 'smin yathā dehe
+> kaumāraṁ yauvanaṁ jarā
+> tathā dehāntara-prāptir
+> dhīras tatra na muhyati
+
+[*Bg* *2.13*]
+
+**[As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change.]**
+
+*Dehinaḥ. Dehinaḥ* means "one who has accepted this material body." *Asmin. Asmin* means "in this world" or "in this life." *Yathā,* "as." *Dehe. Dehe* means "within this body." Because *dehinaḥ* means one who has accepted this body, and *dehe,* "within this body." So I am sitting within this body.
+
+Now, I am not this body. Just like you are within this shirt and coat, similarly, I am also within this body, this gross body and the subtle body. This gross body is made of this earth, water and fire, air and ether, this gross body, this our whole material body. Now, in this Earth, in this planet, earth is prominent. Anywhere, the body, material body, is made of these five elements: earth, water, fire, air and ether. These are the five ingredients.
+
+Just like this building. This whole building is made of earth, water and fire. You have taken some earth, and then you have made bricks and burnt into the fire, and after mixing the earth with water, you make a shape of brick, and then you put into the fire, and then when it is strong enough, then you set it just like a big building. So it is nothing but a display of earth, water and fire, simply. That's all.
+
+Similarly, our body is also made in that way: earth, water, fire, air and ether. Air... Air is passing, we breathing. You know that the air is always there. This, this outer skin is earth, and there is heat in the stomach. Without heat, you cannot digest anything. You see? As soon as the heat is diminished, your digesting power becomes bad. So many things. This is arrangement.
+
+Now, in this planet we have got this body which is where earth is very prominent. Similarly, in other planets, other planets, somewhere water is very prominent, somewhere fire is very prominent. In the sun planet, the bodies there... There are also living entities, but their body is so made that it is fiery. They can exist in the fire. They can exist in the fire. Similarly, Varuṇaloka, in the Venus, all these planets, they have got different types of body. Just like here you can experience that in the water the aquatics, they have got a different type of body. For years and years together there are aquatic animals, they are within the water. They are very comfortable. But the moment you'll drag it to the land, it dies.
+
+Similarly, you are very comfortable on the land, but the moment you are put into the water, you die. Because your body, bodily construction is different; his body, the bodily construction different; the bird's bodily... The bird, heavy bird, it can fly, but, God's made flying instrument. But your man-made instrument, it crashes. Crashes. You see? Because artificial.
+
+So this is the arrangement. Every living being has got a particular type of body. *Dehino 'smin yathā dehe.* And what is the nature of that body? Now, here the matter is being explained that how we change our body, how... But, but, but, because that is a difficult problem for us, because we are engrossed with the idea of identifying this body with the soul. Now, the first A-B-C-D of spiritual knowledge is to understand that "I am not this body." Unless one is firmly convinced that "I am not this body," he cannot make progress in the spiritual line. So the first lesson in the *Bhagavad-gītā* is taken in that way. So here it is, that *dehino 'smin.* Now, *dehī,* the soul, soul. *Dehī* means soul. One who has accepted this body, material body, he's called *dehī.* So *asmin,* he is there. He is there, but his body is changing. The body is changing.
+
+Now, our body was formed in the womb of my mother. That is also described in the *Śrīmad-Bhāgavata,* the physiology, physiology of this body. It is said there that according to our *karma* we are put through the semina of the father, injected into the womb of the mother. And the father's secretion and the mother's secretion, that is emulsified and takes the form of a pea, and that pea gradually develops. In three months, there are holes, nine holes: the eyes, ears, nose and the..., just like we have got nine holes. And in seven months the whole body is complete. Then the child gets consciousness. And ten months it is just ready to come out.
+
+So by air, the same air, forces the child to come out of the mother's connection. Because so long a child remains within the womb of the mother, she, she takes through the mother, so there is intestinal connection between the child and the mother. So after the child comes out, the intestinal connection is cut away and he becomes a separate identity. That is the law.
+
+Now, the..., our point is, as from the mother's womb, from the very beginning of our birth as the body develops, develops, similarly, after coming out of the body, it also develops. But the spirit spark is there, the same; the body takes development. So... Now, that development—from this small child, he becomes a bigger child, then he becomes a boy, then becomes a youth, then gradually a old man like me. And then gradually, when this body is no longer useful, then it is..., it has to be given up and another body has to be taken—this is the process of transmigration of soul. I think there is no difficulty to understand this simple process.
+
+Now, the soul is there, and the body's transforming every moment, every moment, imperceptibly. Just like if you have seen some, some your friend's child small, and after five years, you go to that friend's house and see the child: "Oh, you have grown so big? You have grown so big?" But the father, mother cannot see. Because they are seeing daily, they do not see that "How my child is growing, daily," but a man who comes all of a sudden after five years, he says, "Oh, the child is grown up."
+
+So imperceptibly we are changing our body every moment. Every moment. That is also medical science, that we are changing our blood corpuscles every moment. You see? Similarly, what is the difficulty to understand that..., that the soul transmigrates from one body to another? It is very nicely explained here: "As the owner of the body is there within the body, but the body is changing, one after another, one after another..." *Dehino 'smin yathā dehe, kaumāraṁ yauvanam.*
+
+Here two examples are given: *kaumāram... Kaumāram* means the age up to fifteen years. The age up to fifteen years, that is called *kaumāra.* And after fif..., from sixteen years, so upwards, say up to forty years, one is youth. And then, after forty years, one becomes old. This is the process of this body. But it will be later on explained the spirit soul within this body, that is not changing. The body is changing.
+
+So,
+
+> dehino 'smin yathā dehe
+> kaumāraṁ yauvanaṁ jarā
+> tathā dehāntara-prāptir
+> dhīras tatra...
+
+[*Bg* 2.13]
+
+**[As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change.]**
+
+*Dhīra* means the man who is out of ignorance.
+
+[aside:] You are... You sit down. That's all right.
+
+*Dhīras tatra na muhyati. Dhīra* means—we began first explanation—*dhīra* means one who is..., one who is out of ignorance. That means. So one who knows, one who knows the process of the body, changing every moment, then why he should lament when this body is left and another body is taken? Suppose if I throw away this covering of my body and take another covering, then what is there lamentation? What is the cause of lamentation there? And one should be, rather, glad that the old garment is thrown away and one new garment is taken up.
+
+So this, this question... Because Arjuna was disturbed that "How can I fight with my grandfather? That is all right. That is my duty to fight. But how can I fight with my grandfather, Bhīṣmadeva, with my teacher, Droṇācārya? It is not possible." So he is playing the part of a fool, but he was not a fool, but just to teach us. Unless he becomes a fool like us, why this *Bhagavad-gītā* will come?
+
+The *Bhagavad-gītā...* Just like it is play. Kṛṣṇa is constant companion of Arjuna. So Arjuna cannot be put into that ignorance. It is for our benefit that by the will of the Lord, Kṛṣṇa, Arjuna is put into that sort of ignorance. So he is asking Kṛṣṇa all these questions just like a foolish man, and Kṛṣṇa is giving instruction so that it is being recorded in the history of *Mahābhārata* for future generation. You see?
+
+So here Arjuna, he was declining fight, declining fight, that "How can I fight with my grandfather?" You see? "He is respectable. He has brought me up since my father's death. And here is my teacher, Droṇācārya. He has taught me this military art. Whatever I am warrior, my expertness is due to him. And do you think, Kṛṣṇa, I shall kill them? No, I can fight with them, I can kill them, but it is not my duty." So Arjuna,... and says like that. But Kṛṣṇa says, "No. You must be dutiful. Never mind who is that, your grandfather or your teacher. No. When there is fight... You are a *kṣatriya.* A *kṣatriya* should not be..., has no other consideration in the fight. He must fight."
+
+So here is the thing, you see, that Kṛṣṇa does not say that "You become a nonviolent." No. Never says that. When there is question of fight for right cause, you must fight. There is no question of becoming nonviolent. You see? Now, now, He is saying that "Don't be aggrieved. Even your grandfather, Bhīṣmadeva, dies, even your Droṇācārya..., it will be good for them, because they are now old enough, and as soon as they are dead, they get a new body. So you should not be discouraged."
+
+Then one thing is that "Do you mean to say that therefore a man should be killed?" No. We cannot kill without reason. No. That will be a great sin. But this is a fight. This is a fight for a cause. They are not killers. It is said that a *kṣatriya* who lays down his life in the battlefield, he at once rises up to the higher planets. You see? Because for right cause, if one lays down his life... Just like so many people, they lay..., lay down their life for the cause of the country. Do you mean to say they are sinful or they are going to hell? No, no, no. Those who are laying down for the good cause their life, their next life is very brilliant. But if you commit suicide without any reason and written or without any cause, then you will be sinful. You'll be sinful. These are... Of course, we get knowledge from this...
+
+So,
+
+> dehino 'smin yathā dehe
+> kaumāraṁ yauvanaṁ jarā
+> tathā dehāntara-prāptir
+> dhīras tatra na muhyati
+
+[*Bg* *2.13*]
+
+**[As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change.]**
+
+So *dhīra,* one who has got complete knowledge of the constitution of this body and the constitution of the spirit soul, they are not aggrieved when a soul transmigrates from one body to another. That is the sum and substance of the whole this verse.
+
+Now, here some philosophical..., philosophical question may be raised. There are two classes of philosopher, that after liberation, after getting out of this body, the soul amalgamates with the Supreme Soul. That question we have already discussed. Still, there is no harm discussing it again, because any, I mean to say, substantial knowledge, if it is discussed one after another, twice, thrice, it is better.
+
+Now, Kṛṣṇa points out that every soul is individual soul. Every soul. And that is our experience, that every one of us, we have got some individual consciousness, not that my consciousness is just equal to your consciousness. I do not know what is going in your soul. We are all individual souls. But according to Māyāvādī philosophers, they say, "Just like the sky, the ether"—ether is everywhere, within your body and within mine, within everyone's—that "the ether has taken a form due to this particular body. But when the body is vanquished, the ether, I mean to say, amalgamates with the greater ether." This is called *ghaṭākāśa-poṭākāśa.* *Ghaṭākāśa-poṭākāśa* means this *ākāśa* is here.
+
+Now, *ākāśa* means ether. Ether is here. Now, that ether... Now, my this body... Now, this body, there is also ether. "Now, as soon as this body's destroyed, it is burned or it is in another way destroyed, that this ether within my body becomes amalgamated with the greater ether."
+
+So this sort of assertion is not accepted in the *Bhagavad-gītā,* because the first reason is that ether is a material thing. Ether is a material thing. And the soul is spirit. We'll have, in the later *ślokas,* that soul cannot be cut. Soul cannot be cut into pieces. And the spirit cannot be... *Acchedyo 'yam adāhyo 'yam* [*Bg* 2.24]*.*
+
+**[This individual soul is unbreakable and insoluble, and can be neither burned nor dried. He is everlasting, all-pervading, unchangeable, immovable and eternally the same.]**
+
+We'll get those *ślokas.* Soul is..., never can be cut into pieces. You see? Just like here is a paper. I can, I can tore this paper into pieces, but it is not possible for the soul. Then it, then it loses its eternity or its stability. You see?
+
+So we cannot compare ether with soul, because they are two different subject matter. You see? Analogy... Now, those who, those who are present here, those who have knowledge of logic, analogy... Analogy is possible when the two things are... When there are greatest number of similarities of two things, then there can be analogy. Otherwise there is no question of ana..., analogy. Just like if I say, "Oh, this lady's face is just like moon," now there must be some similarity in this face and the moon. As the moon is bright and a very beautiful looker, therefore this face must be very beautiful and very bright. But if the face is ugly, how can I compare with this moon? So whenever we make some analogy, there must be points, greater number of points of similarity. Now, here ether is a material thing, and soul is spiritual thing, so there is no similarity at all. At all. And besides that...
+
+So. A soul, the individual soul, is different from the very beginning. *Nitya. Nityaḥ śāśvato 'yam.* In later verses we will come to understand. The Lord says that "These individual souls, they are My parts and parcels." *Mamaivāṁśo jīva-bhūtaḥ* [*Bg* 15.7]:
+
+**[The living entities in this conditioned world are My eternal, fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind.]**
+
+"*Jīva-bhūtaḥ,* or these living entities, they are My parts and parcels." How it is that? I can give you a very good example: Just like the sun, sun and the sun ray. What is the sun ray? Sun ray, if you analyze physically, you'll find small molecules of raysing atoms, shining atoms. This is material. You see? The sun ray is nothing but combination of, I mean to say, shining atoms. It is not a homogeneous thing.
+
+Anything you take. Anything you take. You are artist. You take a point, any color, and you photograph. If you analyze it with a microscope or magnifying glass, you'll find so many spots. Is it not? You are also artist. So in God's nature, there is no..., nothing homogeneous. There is nothing homogeneous. All molecules, atoms, particles, even in the matter.
+
+So similarly, we, we living entities, we are also spiritual atoms. We are spiritual atoms. And our magnitude also has been assessed in the *śāstras.* That magnitude is stated in the *Purāṇas* that *keśāgra-śata-bhāgasya śatadhā kalpitasya ca* [Ś*vetāśvatara* *Upaniṣad* 5.9]*.*
+
+[When the upper point of a hair is divided into one hundred parts and again each of such parts is further divided into one hundred parts, each such part is the measurement of the dimension of the spirit soul.]
+
+*Keśāgra,* your hair. I have no long hair; you have got. Now, you can see the point of the hair, *keśa-agra. Agra* means the point of the hair. *Keśāgra-śata-bhāgasya.* Now, the point of the hair, you divide into hundred. That is imaginable..., that is not imaginable by you, how the point of the hair can be divided into hundred. *Keśāgra-śata-bhāgasya.* Now, you take one part of that division and again divide into hundred. This is beyond your experience, beyond your power.
+
+The, by arithmetic calculation the mathematicians say that "The point has no length and breadth." Oh, this is..., this is, this is a disappointment. Because he cannot measure the length and breadth of the point, therefore he says like that. But point has length and breadth. *Aṇor aṇīyān mahato mahīyān* [*Kaṭha Upaniṣad* 1.2.20]*.*
+
+**[Greater than the greatest, smaller than the smallest.]**
+
+Therefore a certain class of philosophers, they are astonished simply by seeing the great magnitude of the Lord. But there is smaller, smallest, *aṇor aṇīyān.* These are much smaller than the atom magnitude. But that is beyond our experience. Therefore we say *nirākāra.*
+
+*Nirākāra* means we cannot calculate the *ākāra,* the actual form. *Nirākāra* does not mean that it has no form. It has form. Just see. That they say, that the point has no length and breadth. Similarly, the soul has everything, length and... Within that point it has got his head, leg, everything, consciousness, everything there. And because it is beyond the calculation of our human knowledge, therefore they are disappointed: "*Nirākāra, nirākāra, nirākāra.*" Not *nirākāra.* It has *ākāra.* But we are so..., our senses are so blunt that we cannot calculate.
+
+Now, now this, in these days of scientific advancement, you take a dead man. You sit down. Now, we shall see how the soul transmigrates from this body to another. You cannot see. You cannot see. Our eyes are not qualified to see it. Therefore the all the senses, they should be spiritualized. If we want to see the spirit whole... The Lord is spirit whole. We cannot see even the spirit part. Our, our... We are very much proud of our senses, but our senses are so imperfect that... Now I see with my eyes, but I cannot see my eyelid. You see? The eyelid is always attached with my eye, but I cannot see.
+
+So our power of using the senses, that is very limited. So we should not depend only on the senses. *Pratyakṣa.* It is called *pratyakṣa-anumāna.* There are three kinds of evidences: *pratyakṣa, anumāna* and *aitihya. Pratyakṣa* means that you can directly perceive. That is called *pratyakṣa.* And *anumāna, anumāna* means you can conjecture, make an..., "It may be like this. It may be like this. Perhaps it is like this." This is called *anumāna.* And the other evidence is *aitihya. Aitihya* means to take evidences from the authority.
+
+So according... Out of these three evidences, this *aitihya* evidence, just like we are taking instruction of *Bhagavad-gītā,* sound, sound vibrated by the greatest personality, Śrī Kṛṣṇa. That sort of *pramāṇa* is acceptable. That is the best. This is the best way of acquiring knowledge. Because so far direct evidence is concerned, it is impossible. Because our senses are so imperfect, we cannot have anything. We can..., we can have some direct experience of certain things, but not for all, especially for these spiritual things, which is beyond our experience.
+
+So *pratyakṣa* means direct evidence you cannot have. And *anumāna* means speculation, simply, "It may be like this. It may be like that," oh, that is also imperfect, because our thinking power is also limited, because our senses are limited. So our thinking power, mind, is one of the senses. Out of the ten, mind is considered to be the eleventh sense. There are five *karmendriya* and..., five sensory organs and working organs, ten, and the mind is the chief. So mind is also considered as one of the senses, the chief senses. You see? So because it is sense, it is imperfect.
+
+So by mental speculation we cannot have into a right conclusion, by mental speculation. Those are simply speculating on mind, they can make some progress to a certain extent, but they cannot reach the ultimate goal. It is not possible by mental speculation, neither it is possible by direct evidence. The only, only possible evidence is authority. Authority.
+
+Just like yesterday also I gave you that example. Just like if a child asks his mother that "Who is my father?" now the mother says, "Here is your father." Now, if the child says, "I don't believe it," so he has no other source of knowledge. Except the fath..., mother's version, that "Here is your father," he has no other alternative to know who is father. It is such a thing that neither he can imagine, speculate, "Oh, he may be my father, he may be my father, he may be my father." Lots of father he can gather. That is not possible. And neither it is possible for direct perception. The only possibility is the mother's evidence.
+
+Similarly, as the mother is authority for the child, similarly, the *śruti,* the *Vedas,* they are called mother, mother of knowledge. So for such spiritual knowledge we have to accept the authority. Now here, the *Bhagavad-gītā* is authority. It is accepted... Don't think that it is a scripture of the Hindus. No. It is for all human being. There is reason. There is science. There is philosophy. It is not dogmatic. So it is to be understood simply. And not only that; actually it is accepted by all countries. Not only in your country, but in other countries also, *Bhagavad-gītā* is accepted as one of the greatest book of authority.
+
+So this is the process. You should know it that the spirit soul, as it is stated in the *Bhagavad-gītā,*
+
+> dehino 'smin yathā dehe
+> kaumāraṁ yauvanaṁ jarā
+> tathā dehāntara-prāptir
+> dhīras tatra na muhyati
+
+[*Bg* *2.13*]
+
+**[As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change.]**
+
+As the soul is within the body and the body is changing every moment, similarly the last stage of change is called death. Death is nothing but the final change of this present body. That's all. And our death condition is for seven months only. As soon as I leave this body, at once I am injected into other's mother's body according to my *karma.* I may be injected to a queen's womb; I may be injected to a dog's mother. You see? That is due to my *karma.* You see? The father is present there. The dog father is present there. The king father is present there. The *devatā* father is present there. There is no scarcity of father, but it will depend on my *karma* which kind of father I shall take shelter. You see?
+
+So these things are..., have to be accepted from the authoritative scriptures like *Śrīmad Bhagavad-gītā* and *Śrīmad-Bhāgavata.* And then it will be possible for us to understand the things as they are. There is no question of sectarianism. There is no question of this "ism" or that "ism." It is a question of pure knowledge.
+
+Thank you very much. [end]

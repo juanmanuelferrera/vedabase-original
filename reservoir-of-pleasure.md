@@ -1,7 +1,8 @@
 # Kṛṣṇa, the Reservoir of Pleasure
 
+### 1
 
-# Chapter 1: Kṛṣṇa, the Reservoir of Pleasure
+Kṛṣṇa, the Reservoir of Pleasure
 
 ---
 
@@ -98,4 +99,3 @@ So, we must not be concerned with pious activities or impious activities. We mus
 We seek happiness by some extraneous, artificial means, but how long does it last? It will not endure. We again come back to sorrow. Suppose, by intoxication, we feel happy. That is not our actual happiness. Suppose I am made unconscious by chloroform, and I don't feel the pain of an operation. That does not mean that I am not having an operation. This is artificial. Real pleasure, real life exists.
 
 As is commanded in the *Bhagavad-gītā* by Śrī Kṛṣṇa, the thoughtful give up the reaction of work, being situated on the level of pure consciousness. The result is that this bondage of birth and death, disease and old age comes to an end. This end is in union with the true identity, Kṛṣṇa, the reservoir of pleasure and eternal bliss. There, indeed, is the true happiness for which we are intended.
-

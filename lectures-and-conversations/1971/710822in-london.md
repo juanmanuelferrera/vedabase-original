@@ -1,0 +1,198 @@
+# Initiation Lecture
+
+*Type: Initiation Dated: August 22nd 1971 Location: London Audio file: 710822IN-LONDON.mp3*
+
+**Prabhupāda:** [*prema-dhvani*] [Background conversations and japa] [chants, with devotees responding]
+
+> oṁ apavitraḥ pavitro vā
+> sarvāvasthāṁ gato 'pi vā
+> yaḥ smaret puṇḍarīkākṣaṁ
+> sa bahyābhyantaraḥ śuciḥ
+
+[*Garuḍa Purāṇa*]
+
+*śrī-viṣṇu śrī-viṣṇu śrī-viṣṇu.*
+
+The purpose of this *mantra, apavitraḥ pavitro vā... Apavitraḥ* means contaminated, infected, and *pavitra* means purified. So the *mantras* says, "Either one is in contaminated stage or purified stage..." *Apavitraḥ pavitro vā sarvāvasthām. Sarva* means all; *avastha* means circumstances. "In all circumstances, in whatever circumstances one may be, either in contaminated stage or purified stage," *yaḥ smaret,* "anyone who remembers Puṇḍarīkākṣam..."
+
+Puṇḍarīkākṣam means Kṛṣṇa or Viṣṇu. *Puṇḍarīka-akṣam,* lotus-eyed. So Lord Viṣṇu's eyes are just like lotus petals, so He's called *puṇḍarīkākṣam.* So such person who remembers, chants the name of the lord, *puṇḍarīkākṣam, sa bahya... Bahya* means external, and internal, *abhyantaram, śuciḥ. Śuciḥ* means purified. *Śrī viṣṇu śrī viṣṇu śrī viṣṇu.* So simply by remembering the holy name of the Lord, Viṣṇu, one is purified in any stage of life.
+
+That is a fact. It is said..., there is a Bengali verse which says, *eka kṛṣṇa nāme yata pāpa hare, ai haya tati pāpa karibare nare*[?]: "By chanting once the holy name of Kṛṣṇa, the sinful man can vanquish so much volumes of sinful activities, reaction, that he's unable to perform." A sinful man is very expert to commit sinful activities, but the holy name of Kṛṣṇa is so strong that he will be unable to commit so much sins as can be extinguished simply by uttering once the name of Lord Viṣṇu or Kṛṣṇa. This is a fact.
+
+But unfortunately, we, by chanting, vanquish all kinds of sinful activities— that's all right—but the next moment we again begin. So that is the defect. Just like I have taken some poison. Now you go to a doctor, he gives you medicine. The poisonous effect is finished, or gone. You are now free. And just after coming from the doctor's house, again you take poison, and again go to the doctor.
+
+The doctor will give you medicine, but what is this business, that you go to the doctor and counteract the poisonous effect and again come back and again take poison? What is this business? Is it very intelligent business? If you want to take poison, then take poison and die. Why you go to the physician and counteract it and again take poison? You see?
+
+So there are certain systems that... Just like in Christian religion, they go weekly to the church and confess their sinful activities, and it is counteracted. That's all right. God can counteract anything, or God's representative can do that. But again, just coming from the church, again I begin the same thing? It is the gravest type of sinful act. That is the Vedic injunction. *Nāmno balād yasya hi pāpa-buddhiḥ* [*Padma Purāṇa**, Brahma-kaṇḍha* 25.16]. Anyone who commits sin on the strength of chanting the holy name of Viṣṇu, oh, his sinful activities cannot be vanquished even by so much attempt performing sacrifices or penances. No. It is not possible. He's condemned.
+
+Just like you have committed some criminal act, and you are presented in the court, and you say, "My lord, I did not know this act; I have committed this. I may be excused. I'll not do this." Then you are excused, there is a... "That's all right." But if you are excused and again come back and again do the same sinful activities, criminal activities, and if you are again arrested, then you'll be very, very severely punished. It is a common sense. How people think that "Because I chant Hare Kṛṣṇa or I take the holy name of God or I go to church, therefore I can commit so much sins, never mind. It will be counteracted next week or next moment when I shall chant"?
+
+This is one of the gravest offense in chanting Hare Kṛṣṇa *mantra.* You should always remember. By this initiation, by chanting Hare Kṛṣṇa *mantra,* your sinful activities will be counteracted, undoubtedly. But don't commit again. Then it will be the gravest offense. There are ten kinds of offenses. You should be careful. You have got those printed papers, ten kinds of offenses? Yes, you take. This is a fact. *Yaḥ smaret puṇḍarīkākṣaṁ sa bahyābhyantaraḥ śuciḥ.* As soon as you chant the holy name of Kṛṣṇa, Hare Kṛṣṇa, you become relieved from all reaction of sinful activities.
+
+Every one of us, anyone who has come to this material world, beginning from Lord Brahmā, what to speak of ourselves, down to the small ant, everyone is..., to some extent we have committed sinful activities; therefore we are in this material world. This is a fact. Now, in this materialist world there are different stages, different species of life. That you know, that there are 8,400,000 species of life, and we are passing through all the species of life. And according to our sinful position we are placed in different kinds of places also in God's creation. There are different kinds of places also. So this is going on. We are traveling, wandering throughout the universe, through many species of life and in many planets. This is going on.
+
+So *Caitanya-caritāmṛta* says, *ei rūpe brahmāṇḍa bhramite kona bhāgyavān jīva* [Cc. *Madhya* 19.151]. In this way, the living entities while wandering throughout the whole universe... Sometimes in nice place, nice life, nice society... There is no nice place, but we accept, "This is good," "This is bad." That is our mental concoction. Actually, in the material world there is no happiness, there is no nice place, because wherever you go... As it is stated in the *Bhagavad-gītā, punar āvartino 'rjuna* *Bg.* 8.16.
+
+Even if you go to the highest planetary system, Brahmaloka, then there also *punar āvartinaḥ,* means the four principles of material existence, namely birth, death, old age and disease, they will accompany you. Wherever you go. You may have a long duration of life, but you have to meet death. That is compulsory. And as soon as you meet death, you have to enter into the womb of a certain type of mother and develop another body and come out again and begin another life. This is going on.
+
+So Kṛṣṇa says in the *Bhagavad-gītā, ā-bhrama-bhuvanāl lokāḥ punar āvartino 'rjuna:* Even if you go to the highest planetary system, Brahmaloka, within this material world, that process will go on, repetition of birth, death, old age and disease. Because this material body, wherever you get it, either you are American or Englishman or Indian or moon planet or sun planet or Brahmā planet, Brahmaloka planet, anywhere you go, you'll get a certain type of body, but that material body is subjected to these four principles: birth, death, disease and old age.
+
+That is stated in the *Bhagavad-gītā* in the Thirteenth Chapter, that *janma-mṛtyu-jarā-vyādhi-duḥkha-doṣānudarśanam* [*Bg. 13.9*]. This prescription is given for the man who is cultivating knowledge. For fools, everything is all right. That is a different thing. For a child, if you give the child a little poison, oh, it will eat, because it does not know—whatever he gets. If you'll give fire, oh, it will try to eat it. So... But those who are in knowledge, cultivating knowledge, for them there are twenty items in the *Bhagavad-gītā. Amānitvam adambhitvam ahiṁsā kṣāntir ārjavam ācāryopāsanam* [*Bg. 13.8*].
+
+*Ācāryopāsanam,* accepting spiritual master, this is also one of the items, twenty items, for advancing in knowledge. So this initiation process is *ācāryopāsanam,* beginning of worshiping the spiritual master. So in that, I mean to say, list of how to progress in knowledge, so these four principles, *janma-mṛtyu-jarā-vyādhi-duḥkha-doṣānudarśanam...* One should always put in his front that "However expert I may be, I'll have to meet death, I'll have to take birth, I'll have to become old man and I'll have to suffer the pangs of diseases." Then what is advancement? Either you become very rich man or become a Brahmā or become a small ant, you have to die.
+
+Just like when Hiraṇyakaśipu worshiped Lord Brahmā and asked him the benediction that "Sir, make me immortal." And Brahmā said, "I, myself, is not immortal. How can I make you immortal?" So immortality is not possible. Then how it is possible? We want immortality. Now we are sitting here. If there is some siren, then immediately on the roof of this house, atom bomb will be dropped. Then immediately we shall flee away from this place. Why? Because we are not prepared to meet death. We do not wish to die. That's a fact. But death is forced.
+
+This is knowledge, that "I do not wish to die. Why death is forced upon me? Or if there is any means to avoid death?" The *śāstra* says, "Yes, there is." *Bhagavad-gītā* says, Kṛṣṇa says that... Kṛṣṇa says, *yad gatvā na nivartante tad dhāma paramaṁ mama* [*Bg. 15.6*]*,* that if you... *Mad-dhāma gatvā punar janma na vidyate:* "If you come to my planet, *dhāma,*" *dhāma* means planet, place, "then you'll never come back to take birth again in this material world."
+
+So any intelligent man, if he's actually has got sense, he should try for this. And especially in this human form of life, it is possible to achieve this benediction, that I can become immortal, I can become blissful, I can become full of knowledge—*sac-cid-ānanda.* Kṛṣṇa is *sac-cid-ānanda-vigraha* [*Bs.* 5.1]*,* and if you become Kṛṣṇa conscious, then ultimately you also become exactly like Him, *sac-cid-ānanda-vigraha. Vigraha* means form, body, and *sat* means eternal, and *cit* means knowledge. *Sat, cit, ānanda. Ānanda* means blissfulness.
+
+So this body, however you may be... You may be American, you may be Englishman, you may be very rich man, you may be very poor man, you may be white man, you may be black man, whatever you may be, but this body is not *sac-cid-ānanda.* It is not eternal; it will end. It is full of ignorance. We do not know what will happen if I go just out of this door. Full of ignorance. We do not know what is happening beyond this wall. So... And always full of anxieties. Where is *ānanda*? There is no *ānanda.* So this body is not *sac-cid-ānanda vigraha.* But if you become Kṛṣṇa conscious and act accordingly, then you will, at the end, you'll get *sac-cid-ānanda* form.
+
+Your form is *sac-cid-ānanda* because you are part and parcel of *sac-cid-ānanda,* Kṛṣṇa. *Mamaivāṁśo jīva-bhūta* *Bg.* 15.7: "All living entities are My parts and parcels," Kṛṣṇa says. And another place He says,
+
+> sarva-yoniṣu kaunteya
+> sambhavanti mūrtayaḥ yāḥ
+> tāsāṁ mahad yonir brahma
+> ahaṁ bīja-pradaḥ pitā
+
+[*Bg. 14.4*]
+
+He's the father of everyone.
+
+So just like here also, the father is diseased, the son gets the body diseased, infects. If the father is healthy, the son is also healthy, child is also healthy. Similarly, if Kṛṣṇa is *sac-cid-ānanda vigraha,* if Kṛṣṇa is the original father, then we are also *sac-cid-ānanda vigraha* [*Bs.* 5.1]. But at the present moment, what is our condition? *Manaḥ ṣaṣṭhānīndriyāṇi prakṛti-sthāni karṣati* *Bg.* 15.7. Now because we have got this material body, we have come in contact of this external energy, material energy, we have got this material body; therefore we are engaged in struggle for existence with mind and the material senses. That is our position. *Manaḥ ṣaṣṭhānīndriyāṇi-prakṛti-sthāni. Prakṛti-sthāni* means material; *karṣati,* hard struggle. So this is our position.
+
+And if you want to get out of it... If you are foolish, that "Whatever it is, that's... Let it... Let us enjoy now. Don't talk talk of all these...," oh, that is another thing. But those who are sensible, those who are actually after knowledge, those who actually want a solution of this material miserable condition of life, they must take to this Kṛṣṇa consciousness. That is the only remedy. *Kṛṣṇa nāma kara āra saba miche*[?]. Simply take to Kṛṣṇa consciousness. All other things are simply illusion, false. *Palaibe phat yei jo mache piche*[?]. You cannot escape. The death is awaiting always. You are given a chance. If you don't take, properly utilize use this chance, then another death is coming, and you are awaiting another type of body according to your *karma.* We are manufacturing our next body. This is our position.
+
+So this initiation means to enter into transcendental life. Why? Now, to make a solution, complete solution of this material existence. This is called illusion. *Ādau gurvāśrayaṁ sad-dharma-prcchāt sādhu-mārganugamanam* [*Brs* 1.1.74]. You will read all these things in our book the *Nectar of Devotion,* and *Bhagavad-gītā* also. You should read all these books and appear in the next year examination. Just like this year, so many boys have appeared, they're going to get the title *Bhakti-śāstri.*
+
+So utilize your life. And this Kṛṣṇa consciousness movement is not for a particular place. Kṛṣṇa is not Indian. Kṛṣṇa says, "Everyone, in all species[?] of life, are My sons." He's claiming to be the father of everyone. You don't reject Him, that "Kṛṣṇa is Indian," "Kṛṣṇa is Hindu," "Kṛṣṇa is something." No. He's for everyone. So if Kṛṣṇa says, "I am everyone's father," why should you reject Him? That is intelligence. That is intelligence. Father claiming, "You are my son," and if the son says, "No, you are not my father," then what can be done? That is another thing.
+
+So this initiation means beginning of Kṛṣṇa consciousness. You are already associating with our Society. You have already learned some of the elementary knowledge, and you should be careful about the four principles of prohibition. What are those? You tell me what are our prohibitions? Huh?
+
+**Devotee:** No meat, no eggs, no intoxicants...
+
+**Prabhupāda:** Tell me loudly so that others hear.
+
+**Devotee:** No meat...
+
+**Prabhupāda:** No meat-eating. No, no. No meat—no meat-eating.
+
+**Devotee:** No meat-eating.
+
+**Prabhupāda:** Yes.
+
+**Devotee:** No eating of eggs...
+
+**Prabhupāda:** Meat is there. You cannot say, "No meat." [laughter] But no meat-eating. Yes.
+
+**Devotee:** No intoxicants, and no smoking.
+
+**Prabhupāda:** No intoxicant means including smoking. Smoking is also an intoxicant. Tea-drinking is also intoxication. Coffee-drinking is also intoxication. So in order to come the position of... And...
+
+**Devotee:** No illicit sex.
+
+**Prabhupāda:** No meat-eating, no eggs, no fish, no chicken, nothing of the sort. Simply vegetarian. Kṛṣṇa... Not even vegetarian; *kṛṣṇa-prasādam.* We don't accept even vegetarian diet. We simply accept *kṛṣṇa-prasādam.* So *kṛṣṇa-prasādam* which is vegetable. Kṛṣṇa does not eat meat, because He says in the *Bhagavad-gītā, patraṁ puṣpaṁ phalaṁ toyaṁ yo me bhaktyā prayacchati* *Bg.* 9.26.
+
+Kṛṣṇa says that "Foodstuff prepared from vegetable kingdom, anyone offering Me with devotion and faith, I eat." He says, "I eat." So when Kṛṣṇa says He eats, so you should offer Him such nice *prasādam* so that He can eat and you take *kṛṣṇa-prasādam. Prasāde sarva-duḥkhānāṁ hānir asyopajāyate.* So you take *kṛṣṇa-prasādam.* And what is the other?
+
+**Devotee:** No illicit sex.
+
+**Prabhupāda:** No illicit sex. You cannot have illicit sex life. Here I have gotten married all these boys and girls. I don't allow to live as boyfriend, girlfriend. No. [laughter] That is not allowed in our Society. All these married girls and boys, they have been married by me. Perhaps that is the first instance that a *sannyāsī* is creating householders. [laughter] *Sannyāsī* creates *sannyāsī.* People are afraid of mixing with *sannyāsī* because they think that "A *sannyāsī* will make me a *sannyāsī.*" But actually, that fear is not here. Here is a *sannyāsī* who is creating *gṛhasthas*.
+
+**Indian guest:** Swāmījī, [Hindi or Bengali].
+
+**Prabhupāda:** [Hindi or Bengali] *brahmacārī.* [Hindi or Bengali] illicit sex. Illicit sex, [Hindi or Bengali]... one should not have more than one woman or one man. That is nice. And therefore in the human society there is marriage. Not in the animal society. Married means that one should be satisfied with one woman and one man. That's all. And there is no question of divorce. Divorce is introduced by the modern rascals, but it is not sanctioned by any religious person. You see?
+
+So we are observing these rules: no illicit sex life, no meat-eating, no intoxication, no gambling. So all my students, they strictly follow these rules, and therefore they're advancing so quickly. Yes. You see the advancement so quickly because they follow my instruction. They follow very obedient, and they have therefore, by grace of Kṛṣṇa... *Yasya deve parā bhaktir yathā deve tathā gurau* [*ŚU* 6.23].
+
+It is the statement of the *Upaniṣad.* "Anyone who has got unflinching faith in God and spiritual master..." *Yasya deve parā bhaktir. Deve* means God. *Parā bhaktir,* unflinching faith. *Tathā gurau:* and similarly, in *guru. Tasyaite kathitā hy arthāḥ prakāśante mahātmanaḥ* [*ŚU* 6.23]. To him all this Vedic knowledge becomes revealed automatically.
+
+So my students, all... Not only here in England, in London; in all places, if you go, if you travel, if you go to Los Angeles, San Francisco and New York, and many other places—I've got twenty branches—in Japan and Honolulu, so they are strictly following, and they are making wonderful stride. Now here, I came here for the first time.
+
+Before me I sent my six students, married students. They were only with me utmost for one year. I sent them, "You go to London and try." And they tried their best. So they have created some impression amongst the Londoners, which... One of my Godbrother came forty years ago. He could not do. He was a *sannyāsī.* But how these boys and girls have done? Because they are so sincere. Yes.
+
+The sincerity... In spiritual life, sincerity is the first qualification. *Ārjavam. Ārjavaṁ saralaksa*[?]. *Ārjavam. Satyaṁ śaucam ārjavam.* These are the brahminical qualifications. One should be very sincere. Duplicity may be very good qualification for this material world, but duplicity in spiritual life is no qualification. So these boys, although they are very young—they're not even thirty; within twenty-five, twenty-six years, all the boys and girls—but they have made some impressions. Many Indians, they have openly admitted, "Swāmījī, you have made wonderful. These boys and girls are very nice."
+
+So that is my pride, that these boys and girls following my instruction, and... I am not giving you..., them any money or any bribe. No. [laughter] They are simply sincerely following my instruction. I am a mendicant. I have no money, I'm a beggar. But Kṛṣṇa is helping them. So you follow these principles. Then, surely, success will be there.
+
+Rūpa Gosvāmī has said that how one can make success in devotional life. So,
+
+> utsāhān dhairyāt niścayād
+> tat-tat-karma-pravartanāt
+> sato vṛtteḥ sādhu-saṅge
+> ṣaḍbhir bhaktiḥ prasidhyati
+
+[*Upadeśāmṛta* 3]
+
+These six principles. One must be very much enthusiastic: "Yes, in this life I shall complete my Kṛṣṇa consciousness business. I'll not wait for the next life. This life I shall finish." This is called *utsāhān.* And *dhairya. Dhairya* means patience. Not that "Sometimes I do not find that I'm making much improvement." But still, you should have patience. And *niścayāt,* with confidence: "Because we are following the standard rules and regulation, success is sure." That confidence must be there. Just like two plus two equal to four. That is a fact. Similarly, if you follow the principles as laid down in the *śāstras,* then success is sure. But if you don't follow, Kṛṣṇa says, *yaḥ śāstra-vidhim utsṛjya vartate kāma-kārataḥ, na siddhiṁ savāpnoti* [*Bg*. 16.23]: anyone who does not follow rigid principle, then he cannot have success.
+
+So our principle is very simple. We avoid these four principles of restrictions and chant Hare Kṛṣṇa, sixteen rounds, and take Kṛṣṇa *prasādam.* Very happy life. So there is no difficulty, but if we simply follow the rules and regulation with faith and confidence... *Utsāhān dhairyāt niścayād tat-tat-karma-pravartanāt. Tat-tat-karma* means you have to follow the prescribed rules and regulation. *Tat-tat-karma-pravar... Sato vṛtteḥ,* and you must be honest, not dishonest. You accept before the spiritual master that "I shall do it," and if you do not do it, that's not good.
+
+You must do it. So *sato vṛtteḥ sādhu-saṅge,* and the association of devotees. *Asādhu-sange,* those who are not devotees, if you mix with them, then whatever you learned, you'll forget. Their influence is so bad. Because we are not very strong; therefore there is every possibility that whatever we learn in bad association we may forget. *Sato vṛtteḥ sādhu-saṅge ṣaḍbhiḥ. Ṣaḍbhiḥ,* by following these six principles, *bhaktiḥ prasidhyati,* your devotional life will be developed, you'll be enlightened.
+
+> utsāhān dhairyāt niścayād
+> tat-tat-karma-pravartanāt
+> sato vṛtteḥ sādhu-saṅge
+> ṣaḍbhir bhaktiḥ prasidhyati
+
+So you follow, success is sure. And cooperate with your Godbrothers, learn how to act, and your life will be successful. Now chant. [devotees offer obeisances]
+
+> vande 'haṁ śrī-guroḥ śrī-yuta-pada-kamalaṁ śrī-gurun vaiṣṇavāṁś ca
+> śrī-rūpaṁ sāgrajātaṁ saha-gaṇa-raghunāthānvitaṁ taṁ sa jīvam
+> sādvaitaṁ sāvadhūtaṁ parijana-sahitaṁ kṛṣṇa-caitanya-devaṁ
+> śrī-rādhā-kṛṣṇa-pādān saha-gaṇa-lalitā- śrī-viśākhānvitāṁś ca
+
+[I offer my respectful obeisances unto the lotus feet of my spiritual master and of all the other preceptors on the path of devotional service. I offer my respectful obeisances unto all the Vaiṣṇavas and unto the six Gosvāmīs, including Śrīla Rūpa Gosvāmī, Śrīla Sanātana Gosvāmī, Raghunātha dāsa Gosvāmī, Jīva Gosvāmī, and their associates. I offer my respectful obeisances unto Advaita Ācārya Prabhu, Śrī Nityānanda Prabhu, Śrī Caitanya Mahāprabhu, and all His devotees, headed by Śrīvāsa Ṭhākura. I then offer my respectful obeisances unto the lotus feet of Lord Kṛṣṇa, Śrīmatī Rādhārānī, and all the gopīs, headed by Lalitā and Viśākhā.]
+
+> nama oṁ viṣṇu-pādāya kṛṣṇa-preṣṭhāya bhū-tale
+> śrīmate bhaktivedānta-svāminn iti nāmine
+
+[I offer my respectful obeisances unto His Divine Grace A.C. Bhaktivedanta Swami Prabhupāda, who is very dear to Lord Kṛṣṇa on this earth, having taken shelter at His lotus feet.]
+
+> nama oṁ viṣṇu-pādāya kṛṣṇa-preṣṭhāya bhū-tale
+> śrīmate bhaktisiddhānta-sarasvatīti nāmine
+
+[I offer my respectful obeisances unto His Divine Grace Bhaktisiddhānta Sarasvatī, who is very dear to Lord Kṛṣṇa, having taken shelter at His lotus feet.]
+
+> śrī-vārṣabhānavī-devī-dayitāya kṛpābdhaye
+> kṛṣṇa-sambandha-vijñāna-dāyine prabhave namaḥ
+
+[I offer my respectful obeisances to Śrī Vārṣabhānavī-devī-dayita dāsa [another name of Śrīla Bhaktisiddhānta Sarasvatī], who is favored by Śrīmatī Rādhārāṇī and who is the ocean of transcendental mercy and the deliverer of the science of Kṛṣṇa.]
+
+> mādhuryojjvala-premāḍhya-śrī-rūpānuga-bhaktida
+> śrī-gaura-karuṇā-śakti-vigrahāya namo 'stu te
+
+[I offer my respectful obeisances unto you, the personified energy of Śrī Caitanya's mercy, who deliver devotional service which is enriched with conjugal love of Rādhā and Kṛṣṇa, coming exactly in the line of revelation of Śrīla Rūpa Gosvāmī.]
+
+> namas te gaura-vāṇī-śrī-mūrtaye dīna-tāriṇe
+> rūpānuga-viruddhāpasiddhānta-dhvānta-hāriṇe
+
+[I offer my respectful obeisances unto you, who are the personified teachings of Lord Caitanya. You are the deliverer of the fallen souls. You do not tolerate any statement which is against the teachings of devotional service enunciated by Śrīla Rūpa Gosvāmī.]
+
+> namo gaura-kiśorāya sākṣād-vairāgya-mūrtaye
+> vipralambha-rasāmbhode pādāmbujāya te namaḥ
+
+[I offer my respectful obeisances unto Gaura-kiśora dāsa Bābājī Mahārāja [the spiritual master of Śrīla Bhaktisiddhānta Sarasvatī], who is renunciation personified. He is always merged in a feeling of separation and intense love of Kṛṣṇa.]
+
+> namo bhaktivinodāya sac-cid-ānanda-nāmine
+> gaura-śakti-svarūpāya rūpānuga-varāya te
+
+[I offer my respectful obeisances unto Saccidānanda Bhaktivinoda, who is transcendental energy of Caitanya Mahāprabhu. He is a strict follower of the Gosvāmīs, headed by Śrīla Rūpa.]
+
+> gaurāvirbhāva-bhūmes tvaṁ nirdeṣṭā saj-jana-priyaḥ
+> vaiṣṇava-sārvabhaumaḥ ṣrī-jagannāthāya te namaḥ
+
+[I offer my respectful obeisances to Jagannātha dāsa Bābājī, who is respected by the entire Vaiṣṇava community and who discovered the place where Lord Caitanya appeared.]
+
+> vāñchā-kalpatarubhyaś ca kṛpā-sindhubhya eva ca
+> patitānāṁ pāvanebhyo vaiṣṇavebhyo namo namaḥ
+
+[I offer my respectful obeisances unto all the Vaiṣṇava devotees of the Lord. They are just like desire trees who can fulfill the desires of everyone, and they are full of compassion for the fallen conditioned souls.]
+
+> namo mahā-vadānyāya kṛṣṇa-prema-pradāya te
+> kṛṣṇāya kṛṣṇa-caitanya-nāmne gaura-tviṣe namaḥ
+
+[O most munificent incarnation! You are Kṛṣṇa Himself appearing as Śrī Kṛṣṇa Caitanya Mahāprabhu. You have assumed the golden color of Śrīmatī Rādhārāṇī, and You are widely distributing pure love of Kṛṣṇa. We offer our respectful obeisances unto You.]
+
+[end]

@@ -1,0 +1,195 @@
+# Śrī Caitanya-caritāmṛta, Madhya-līlā 20.318–329
+
+*Śrī Caitanya-caritāmṛta,  Madhya-līlā 20.318–329 Type: Caitanya-caritamrta Dated: December 23rd 1966 Location: New York Audio file: 661223CC-NEW-YORK.mp3*
+
+**Prabhupāda:**
+
+> sṛjāmi tan-niyukto 'haṁ
+> haro harati tad-vaśaḥ
+> viśvaṁ puruṣa-rūpena
+> paripāti triśakti-dhṛk
+
+[*Cc Madhya 20.318*]
+
+**[Lord Brahmā said: ’I am engaged by the Supreme Personality of Godhead to create. Following His orders, Lord Śiva dissolves everything. The Supreme Personality of Godhead in His form of Kṣīrodakaśāyī Viṣṇu maintains all the affairs of material nature. Thus the supreme controller of the three modes of material nature is Lord Viṣṇu.’]**
+
+This is a quotation from *Śrīmad-Bhāgavatam* in which Brahmā, the creator of this particular universe, he says that "I am engaged, I am appointed, by the Supreme Lord." So the creator and the annihilator, Śiva, they are appointed agents of the Supreme Lord. They are not supreme. *Sṛjāmi tan-niyukto 'haṁ haro harati tad-vaśaḥ. Tad-vaśaḥ* means we are under the control of the Supreme Lord. Nobody is free, or independent. Only Kṛṣṇa. *Mattaḥ parataraṁ nānyat asti kiñcid dhanañjaya* [*Bg* 7.7]*.*
+
+**[O conqueror of wealth [Arjuna], there is no Truth superior to Me. Everything rests upon Me, as pearls are strung on a thread.]**
+
+You have this statement in the *Bhagavad-gītā,* Ninth Chapter, that "Nobody is greater than Him." And another version is there, *na tat-samaś cābhyadhikaś ca dṛśyate* [*Śvetāśvatara Upaniṣad* 6.8]:
+
+**[The Supreme Lord has nothing to do. Nothing is equal to Him or greater than Him. He acts in different phases by manifesting His parts and parcels, which are all simultaneously differently situated by His unlimited, variegated potencies. Each potency acts quite naturally in sequences, providing Him full knowledge, power and pastimes.]**
+
+"Nobody is equal or greater than Him." There are so many statements in the Vedic literature. So here is also another statement from *Śrīmad-Bhāgavatam.* This was spoken by Brahmā to his disciple Nārada. Nārada questioned him that "So far we know that you are the supreme, but you also sometimes meditate and worship somebody." So in that connection Brahmā explained that "We are not supreme. We are all appointed agents. Supreme is the Supreme Personality of Godhead."
+
+*Viśvaṁ puruṣa-rūpeṇa paripāti triśakti-dhṛk. Viśvam,* this cosmic manifestation, is being maintained by His threefold energies. *Triśakti-dhṛk. Triśakti* means three kinds of energies. When it is materially conceived, the three kinds of energies are the modes of goodness, the modes of passion and the modes of ignorance. And when they are spiritually conceived, the same three kinds of energies are manifested as spiritual potency, material potency and marginal potency. So anyway, the Lord is always full with different kinds of energies, of which these three are main divisions.
+
+> manvantarāvatāra ebe śuna, sanātana
+> asaṅkhya gaṇana tāṅra, śunaha kāraṇa
+
+[*Cc Madhya 20.319*]
+
+**[O Sanātana, now just hear about the incarnations associated with the reign of each Manu [*manvantara-avatāras*]. They are unlimited, and no one can count them. Just hear of their source.]**
+
+Now Lord Caitanya has explained about... Out of six kinds of incarnations, He has explained to you the incarnation of *puruṣāvatāra,* three, then *līlāvatāra,* then *guṇāvatāra.* Three kinds of incarnations are already explained. Now the remainder three kinds of incarnations, *manvantarāvatāra, yugāvatāra* and *śaktyāveśāvatāra,* He is going... Out of that three, first the *manvantarāvatāra,* Manu. So Lord Caitanya says that "I shall now explain to you about the *manvantavatāra.*" And He says, *manvantarāvatāra ebe śuna, sanātana:* "My dear Sanātana, just now I shall explain to you about the *manvantarāvatāra.* You hear it."
+
+*Asaṅkhya gaṇana tāṅra, śunaha kāraṇa:* "And this *manvantarāvatāra...* So far other incarnations are concerned, we have somehow counted three or say ten, like that. But here, when we speak of *manvantarāvatāra,* oh, they are countless." *Asaṅkhya. Asaṅkhya* means countless. Nobody can count how many *manvantarāvatāras* are there. How it is so? He is explaining.
+
+Brahmāra eka-dine haya caudda manvantara
+
+[*Cc Madhya 20.320*]*:*
+
+**[In one day of Brahmā, there are fourteen changes of the Manus, and during the reign of each of those fourteen Manus, an incarnation is manifested by the Supreme Personality of Godhead.]**
+
+"In one day of Brahmā..., in one day of Brahmā..." That you have calculated according to *Bhagavad-gītā, sahasra-yuga-paryantam ahar yad brahmaṇo viduḥ* [*Bg* 8.17]*.*
+
+**[By human calculation, a thousand ages taken together is the duration of Brahmā's one day. And such also is the duration of his night.]**
+
+*Brahmaṇo,* or Brahmā, *arhat. Arhat* means one day, twelve hours. What is that twelve hours according to our calculation? *Sahasra-yuga-paryantam. Sahasra,* one thousand *yugas.* And what is the duration of *yuga*? Four million, three hundred thousands of years, one *yuga.* Such one thousand, that makes Brahmā's one day, twelve hours. Similarly night, twelve hours. Similarly one month. In this way he has got hundred years' duration of life.
+
+Now, this one day, twelve hours, within this twelve hours, there are fourteen Manus. Twelve hours of Brahmā means Four, three, five zero..., eight zero. What is that, four, three, eight zeroes? What is the calculation according to your arithmetic, four, three, eight zeroes? Huh?
+
+**Hayagrīva:** 4,300,000,000.
+
+**Rūpānuga:** Four billion three hundred and eight.
+
+**Prabhupāda:** Four, three, eight zeroes.
+
+**Devotee:** 4,300,000,000.
+
+**Rūpānuga:** Yes. That's right.
+
+**Prabhupāda:** Four billion...
+
+**Rūpānuga:** ...three hundred million.
+
+**Prabhupāda:** 4,300,000,000. That's all right. Within that 4,300,000,000's divide into fourteen. That is the duration of one Manu. Four billion, three hundred millions divide into fourteen, that will make... That one part is the duration of a Manu.
+
+So anyway, fourteen Manus are taking place in one day of Brahmā.
+
+> brahmāra eka-dine haya caudda manvantara
+> ei caudda avatāra tāhāṅ karena īśvara
+
+[*Cc Madhya 20.320*]
+
+**[In one day of Brahmā, there are fourteen changes of the Manus, and during the reign of each of those fourteen Manus, an incarnation is manifested by the Supreme Personality of Godhead.]**
+
+These are also... They are also incarnation of the Supreme Lord.
+
+Caudda eka dine, māse cāri-śata biśa
+
+[*Cc Madhya 20.321*]*.*
+
+**[There are 14 manvantara-avatāras in one day of Brahmā, 420 in one month, and 5,040 in one year.]**
+
+If in one day of Brahmā there are fourteen Manus, then in one month of Brahmā it comes to *cāri-śata,* 420. Thirty days a month. So 420 Manus in one month of Brahmā. *Brahmāra vatsare pañca-sahasra calliśa* [*Cc Madhya* 20.321]*.* Similarly, in one year of Brahmā there is 5,040 Manus in one year, and he lives for hundred years. So 5,040 Manus in one month, er, one year. Now hundred. So 5,040 plus two zero.
+
+So it comes to *pañca-lakṣa cāri-sahasra manvantarāvatāra* [*Cc Madhya* 20.322]*.*
+
+**[During the hundred years of Brahmā’s life, there are 504,000 *manvantara-avatāras.*]**
+
+*Pañca-lakṣa* means fifty millions. Not fifty millions; ten millions a *lakṣa.* That means five millions... Five millions and four thousands of Manus are there in one Brahmā's life. Five thousand and..., er, five million and four hundred thousand of *manvantarāvatāra,* incarnation of Manu, in one *brahmāṇḍa.* And Lord Caitanya... *Ananta brahmāṇḍe aiche karaha* [*Cc Madhya* 20.323]*.* And there are innumerable *brahmāṇḍas,* universes. Now you can calculate how many Manus are there. Therefore you cannot calculate. He says "innumerable."
+
+> ananta brahmāṇḍe aiche karaha gaṇana
+> mahā-viṣṇu eka-śvāse brahmāra jīvana
+
+[*Cc Madhya 20.323*]
+
+**[The number of *manvantara-avatāras* for only one universe has been given. One can only imagine how many *manvantara-avatāras* exist in the innumerable universes. And all these universes and Brahmās exist only during one exhalation of Mahā-Viṣṇu.]**
+
+And all these Manus and Brahmās, they are living only on the breathing period of Mahā-Viṣṇu.
+
+Mahā-viṣṇura niśvāsera nāhika paryanta
+
+[*Cc Madhya 20.324*]*.*
+
+**[There is no limit to the exhalations of Mahā-Viṣṇu. Just see how impossible it is to speak or write of only the *manvantara-avatāras*!]**
+
+And just imagine what is that breathing. *Eka manvantarāvatārera dekha lekhāra anta.*
+
+So in one breathing of Mahā-Viṣṇu, you cannot calculate how many Manus are there. This is called, what is called, unlimited. We say "unlimited," but we should have some knowledge how it is unlimited. There is no question of counting the energies displayed by the Supreme Lord in so many ways. Because we cannot explain something, we dismiss the whole thing. "There is void. Nothing. Void." Because my mind, my intelligence, cannot go so far, we say, "Perhaps," "It may be it was like this." So this is all mental speculation.
+
+And how we can say? Now, the opposite party may say, "How you can say?" Now, we have got evidence from the Vedic literature. But the other party, they have no evidence. They are simply speculationist. We can give some evidence. The *Vedas* are accepted by *ācāryas,* and they are following, and they are getting the result.
+
+So therefore, *śruti-pramāṇa. Śruti-pramāṇa.* There are three kinds of evidences. Out of that, *śruti-pramāṇa,* evidence from higher authorities, that is the first-class evidence. What are those evidence? *Pratyakṣa, aitihya* and *śruti. Pratyakṣa* means direct perception. Direct perception, that is evidence. People with poor fund of knowledge, they want direct perception of everything. But that is not possible. Direct perception of everything is not possible. Therefore *aitihya. Aitihya, aitihya* means historical, historical, *paramparā,* hearing, traditional.
+
+And the next first-class evidence is *śruti. Śruti* means to hear from the authority. That is *śruti.* Just like the example we have several times cited here that the evidence "Who is my father?" that evidence is to hear from my mother. That's all. There is no other evidence. The mother says that "This is your father. He is your father." This is *śruti,* hearing from the mother, authority. And we have no other authority to understand father. Similarly, we have to understand our supreme father from the *śruti* mother, *Vedas* mother, mother Vedic mother. We have to accept *Vedas* as mother, *śruti.* The *Vedas* are considered as mother, and the *Purāṇas* are considered as sister. That is explained. So, *śruti-pramāṇa. Śruti-pramāṇa.*
+
+> mahā-viṣṇura niśvāsera nāhika paryanta
+> eka manvantarāvatārera dekha lekhāra anta
+
+[*Cc Madhya* *20.324*]
+
+**[There is no limit to the exhalations of Mahā-Viṣṇu. Just see how impossible it is to speak or write of only the *manvantara-avatāras*!]**
+
+Simply one *manvantara* in one universe, we cannot count how many *manvantaras* are there, and what to speak of...? There are innumerable, uncountable universes, and there are so many *manvantarāvatāras.*
+
+Now He is giving the names of Manus. Just like the sun, the present sun-god is named as Vivasvān, similarly, in every planet there are heads: sun-god, moon-god, heavenly god, Indra, Candra, Varuṇa, Vāyu, so many, thirty-three *koṭi. Koṭi* means ten millions. Such thirty-three [million] demigods are there, and each of them has got a separate planet, and their names are similarly there. So here Lord Caitanya is giving some of the names of the Manu.
+
+You cannot count how many Manus are there, but for one day the fourteen Manus are named, and that is given here.
+
+Svāyaṁbhuve 'yajña', svārociṣe 'vibhu' nāma
+
+[*Cc Madhya* *20.325*]*.*
+
+**[In the *Svāyambhuva-manvantara*, the *avatāra* is named Yajña. In the *Svārociṣa-manvantara*, he is named Vibhu. In the Auttama-manvantara, He is named Satyasena, and in the *Tāmasa-manvantara*, He is named Hari.]**
+
+A different period of Manus are differently named. So the fourteen names are Yajña, Vibhu, Satyasena, Hari, fourth; then Vaikuṇṭha, Ajita, Vāmana, Sārvabhauma, Ṛṣabha, Viṣvaksena, Dharmasāvarṇye, Sudhāmā, Indra-sāvarṇya, Bṛhadbhānu. In this..., fourteen Manus. Bṛhadbhānu.
+
+[aside:] Yes. I will answer your question.
+
+> yugāvatāra ebe śuna, sanātana
+> satya-tretā-dvāpara-kali-yugera gaṇana
+
+[*Cc Madhya* *20.329*]
+
+**[O Sanātana, now hear from Me about the *yuga-avatāras*, the incarnations for the millenniums. First of all, there are four *yugas*—*Satya-yuga*, *Tretā-yuga*, *Dvāpara-yuga* and *Kali-yuga*.]**
+
+Now *yugāvatāra.* We have finished *manvantarāvatāra.* This is fourth. *Puruṣāvatāra, līlāvatāra, guṇāvatāra* and the *manvantarāvatāra,* fourth. *Puruṣa* incarnation, and then quality, modes of nature, three modes, *guṇāvatāra,* then *līlāvatāra.* Then *manvantarāvatāra* we have finished.
+
+Now Lord Caitanya is explaining about the *yugāvatāra,* incarnation in every millennium, *yuga.* What is that?
+
+> yugāvatāra ebe śuna, sanātana
+> satya-tretā-dvāpara-kali-yugera gaṇana
+
+[*Cc Madhya* *20.329*]
+
+Now, there are four *yugas.* Each *yuga* is divided into four: Satya, Tretā, Dvāpara, Kali. This is the Kali, this age we are passing. Similarly, these four *yugas,* such thousand four *yugas,* when passed away, then one twelve hours of Brahmā is finished, when such thousand four *yugas* passes away. So *satya-tretā-dvāpara-kali-yugera gaṇana.* So each *yuga* is divided into four. Satya-yuga is about eighteen *lakhs.* Eighteen *lakhs* means 1,800,000's of years. That is Satya-yuga, 1,800,000's. And the next *yuga,* Tretā, is 1,200,000's of years; and the next *yuga,* Dvāpara, 800,000's of years; and this Kali-yuga is 400,000's of years, 427,000's of years...., er, 32,000's of years Out of that, five thousands of years we have already passed. Now there is balance: 427,000 years, there is balance of this Kali-yuga. And the symptoms of Kali-yuga we have already seen, how it is.
+
+So the more we will pass this Kali-yuga, the symptoms will be more acute, intolerable. So we should care. We should take care of this so that we may not come back again to this Kali-yuga. [laughter] You see? This life should be utilized. Now we are conscious, Kṛṣṇa conscious. It should be so utilized that no more coming back to United States of America and no more coming back of this condemned earthly planet. That should be the aim. *Yad gatvā na nivartante tad dhāma paramaṁ mama* [*Bg 15.6*]*.*
+
+**[That abode of Mine is not illumined by the sun or moon, nor by electricity. One who reaches it never returns to this material world.]**
+
+We have to be determined to go back to Godhead, to Kṛṣṇa, where going nobody will come to this condemned place. One should know that this is a condemned place. Unless one is fully convinced that this is a place condemned, one cannot make progress. If he is satisfied with this condemned condition... Just like these [chuckles] Bowery Street men, they are lying on the footpath. They are satisfied. Condemned condition, but they are satisfied. We should not be satisfied in that way. That is very wretched condition. So we are all in wretched condition under the grip of material nature, always suffering threefold miseries. So we should be conscious. Unless we are conscious about this fact, then our human life is spoiled. They say that "You spiritualist, you are very pessimistic." Yes. He should be pessimistic. There is no question of being optimistic. Where is the optimistic view?
+
+So unless one becomes very much pessimistic of this material world... Actually, they are, but they want to forget. Somebody is trying to forget it by liquor, somebody is trying to forget by LSD, and somebody is marijuana, or *gañja.* But that forgetfulness will not save you. You have to actually forget it, that "This is a condemned place." And you cannot forget this unless you have got ideal place before you. Therefore this *śruti-pramāṇa,* the Vedic knowledge, will give you: "Here is your ideal place: Kṛṣṇa. Come back to Kṛṣṇa. Try for it. Try your best for this." That is the life. That is human life. And unless one is not conscious to this platform, he is defeated.
+
+*Parābhavas tāvad abodha-jātaḥ.* We are born ignorant. And if we are educated more, more, more into the platform of ignorance, then our life is all defeat, *parābhava. Parābhavas tāvad abodha-jāto yāvan na jijñāsata ātma-tattvam* *SB* 5.5.5.
+
+**[As long as one does not inquire about the spiritual values of life, one is defeated and subjected to miseries arising from ignorance. Be it sinful or pious, *karma* has its resultant actions. If a person is engaged in any kind of *karma*, his mind is called *karmātmaka*, colored with fruitive activity. As long as the mind is impure, consciousness is unclear, and as long as one is absorbed in fruitive activity, he has to accept a material body.]**
+
+So long one is not awakened to spiritual consciousness... "What I am? Why I am suffering? Is there any remedy? How I can save me?"—these questions should arise. This is called *brahma-jijñāsa.*
+
+The *Vedānta-sūtra* explains this *brahma-jijñāsa.* *Athāto brahma jijñāsā**. Athāto:* "Now. Now it is the time for you to enquire about your Brahman realization, of your Brahman life." That Brahman life begins when we understand that "I am not this material body. I am spirit soul." That is *brahma-jñāna.* And one who has got this knowledge, he is *brāhmaṇa.* He is *brāhmaṇa.* One who has actually attained this knowledge, that "I am not this body; I am spirit soul," that is *brahma-jñāna.*
+
+Now, simply to have *brahma-jñāna* is not sufficient. When you act like Brahman, that is called Vaiṣṇava. That is Vaiṣṇava. That is Kṛṣṇa consciousness. To understand yourself, that you are not this body, you are Brahman, and when you act factually in that Brahman stage, that is called *bhakti. Bhakti.* That is explained in the *Bhagavad-gītā,*
+
+> māṁ ca [yo] 'vyabhicāreṇa
+> bhakti-yogena yaḥ sevate
+> sa guṇān samatītyaitān
+> brahma-bhūyāya kalpate
+
+[*Bg 14.26*]
+
+**[One who engages in full devotional service, who does not fall down in any circumstance, at once transcends the modes of material nature and thus comes to the level of Brahman.]**
+
+So as soon as you begin your activities in Kṛṣṇa consciousness, you at once come to the stage of Brahman. And the more you execute functions for satisfaction of Kṛṣṇa, the more you realize yourself and more you are well situated in spiritual life. And *kaunteya prati...* I was discussing. *Kaunteya pratijānīhi na me bhaktaḥ praṇaśyati* [*Bg* 9.31]*.*
+
+**[He quickly becomes righteous and attains lasting peace. O son of Kuntī, declare it boldly that My devotee never perishes.]**
+
+The Lord declares through Arjuna, "My dear Arjuna, declare it to all the world that anyone who is My devotee, he will never be destroyed." So we should take up this Kṛṣṇa consciousness very seriously and try to execute it thoroughly under the guidance of the *śruti-pramāṇa.* The Vedic literatures are there. Everything is there. We should utilize it.
+
+Thank you very much. Any question? Yes.
+
+**Kīrtanānanda:** You spoke of the energy of the Lord as being threefold... [end]

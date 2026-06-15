@@ -1,0 +1,115 @@
+# Lecture
+
+*Type: Lectures and Addresses Dated: April 25th 1969 Location: Boston Audio file: 690425LE-BOSTON.mp3*
+
+**Prabhupāda:** When I was in Buffalo, my last lecture was at the Buffalo University college. So I began a series of lecture for the young boys and girls. This series of lecture is not manufactured by me. Our process is not manufacturing. The Vedic process is not personal opinion. Our process is simply to carry the transcendental message to the people. Our system is so nice that we haven't got to manufacture daily a new thesis.
+
+The difficulty of modern age is... Not modern age; it is also old system, because in the *Śrīmad-Bhāgavatam* we find one verse which says, *tarko apratiṣṭhaḥ* [*Cc. Madhya* 25.57, *Mahābhārata, Vana-parva* 313.117]
+
+**[“’Dry arguments are inconclusive. A great personality whose opinion does not differ from others is not considered a great sage. Simply by studying the Vedas, which are variegated, one cannot come to the right path by which religious principles are understood. The solid truth of religious principles is hidden in the heart of an unadulterated, self-realized person. Consequently, as the śāstras confirm, one should accept whatever progressive path the mahājanas advocate.’]**
+
+"Simple arguments and logic will not carry you to the Absolute Truth." *Tarkaḥ. Tarkaḥ* means arguments. You may be very good logician, you can argue very nicely, but another logician may come and defeat you. That is going on. New philosopher, new logician, new thinker means he defeats his previous thinkers, logicians, and philosophers, and becomes prominent.
+
+That is the materialistic way of gaining name, fame and popularity. But our process is different. *Tarko 'pratiṣṭhaḥ.* We accept that simply by arguments and logic, it is not possible to approach the Absolute Truth. Absolute Truth is not subjected to our deficient logic and argument.
+
+So *tarko 'pratiṣṭhaḥ śrutayo vibhinnā* [*Cc. Madhya* 25.57, *Mahābhārata, Vana-parva* 313.117]*.* If somebody says that "Well, argument and logic is not the way to approach the Absolute Truth. Then let us take scriptures, the authority of the scriptures," that is also very nice. In every human society there is some sort of scripture. Just like in your country there is Bible or any other scripture. We have got *Vedas.*
+
+The Muhammadans, they have got Korans. They can help also, because that is also authority. But you will find that one scripture is differing from the other scripture in some details. Of course, on the average there is no difference. Just like Bible preaches, Lord Jesus Christ preaches love of God, we are also preaching the same thing, love of God. But our process is little different. That's all. That process may be different according to time, circumstances, people. That is natural.
+
+Therefore, for a neophyte, simply by consulting scriptures, he will not be able to reach to the absolute goal. Because he'll find, "Oh..." Sometimes they become skeptic. Just like in the modern age, the youngsters, you all boys and girls, they are becoming skeptic. They don't believe in any scripture now, because they find some differences.
+
+Therefore *Bhāgavata* said that *tarko 'pratiṣṭhaḥ śrutayo vibhinnā* [*Cc. Madhya* 25.57, *Mahābhārata, Vana-parva* 313.117]: "Simply by argument you cannot establish what is Absolute Truth, and if you consult different scriptures, you will find difference of opinion, or difference of procedures, rituals."
+
+So *śrutayo vibhinnā nāsāv munir yasya mataṁ na bhinnam.* And if we consult great thinkers or philosophers, they have got their different opinion also. Some philosopher says, "I think this is right," "I think this is right." So whom you will accept? They are also of difference opinion. *Tarko 'pratiṣṭhaḥ śrutayo vibhinnā nāsāv munir yasya mataṁ na bhinnam* [*Cc. Madhya* 25.57, *Mahābhārata, Vana-parva* 313.117].
+
+You won't find a single philosopher whose opinion is not different from the previous philosopher, or *muni. Muni* means thinker, thoughtful man, *muni,* from "mind." *Nāsāv munir yasya mataṁ na bhinnam, dharmasya tattvaṁ nihitaṁ guhāyām.*
+
+Therefore to understand the Absolute Truth, it is very difficult to find out how to have it. But the only one way recommended in the Vedic scripture, that *mahājano yena gataḥ sa panthāḥ* [*Cc. Madhya* 17.186].* Mahājana. Mahājana* means great personality. *Mahājano yena gataḥ sa panthāḥ.* That is the real path, if you follow the great personality. Now, there is a difference of great personalities also. You think that he is great personality; he thinks another great personality. But there is a definition of great personality.
+
+That definition is given in the *Bhagavad-gītā,* that,
+
+> bahūnāṁ janmanām ante
+> jñānavān māṁ prapadyate
+> vasudevaḥ sarvam iti
+> sa mahātmā su-durlabhaḥ
+
+[*Bg. 7.19*]
+
+**[After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare.]**
+
+"After many, many transmigration, or changing the body..." We should always remember that our this Kṛṣṇa consciousness begins from the fact that we living entities, we are not material product. We are part and parcel of God. We are qualitatively one with God but quantitatively different from Him. That is our philosophy.
+
+Living entity and God, as it is stated in the *Bhagavad-gītā,* they are qualitatively one. God is also a living entity like you and me, but He is qualitatively unlimitedly powerful. That is the difference. Just like we find, every one of us sitting here, you will find some difference. You may be a greater personality than me.
+
+Another gentleman may be a greater personality than you. And somebody may be greater than him, somebody may be greater than him. Similarly, if you go up to the post of your president, Mr. Nixon, he is supposed to be the greatest personality in your country. But you will find a greater personality than him also. Go on searching.
+
+So these greater personality... You may be greater than me, but you are also person, I am also person. President Nixon is also a person. All this greatness may be different, but so far we are personally concerned, the personal propensities, the personal needs, personal necessities, everything, they are the equal.
+
+[aside:] Come on.
+
+There is no difference. So God is also a person, but His personality is different from us because we know that God is great. He is omnipotent, omniscient, omnipresent. There are so many qualification we qualify God.
+
+So, *mahātmānas tu māṁ pārtha daivīṁ prakṛtim āśritāḥ* *Bg.* 9.13*.*
+
+**[O son of Pṛthā, those who are not deluded, the great souls, are under the protection of the divine nature. They are fully engaged in devotional service because they know Me as the Supreme Personality of Godhead, original and inexhaustible.]**
+
+The great personality... So far we are concerned, a great personality is he who is a devotee of God. He is great personality. Just like in your country, you accept Lord Jesus Christ as great personality. He is son of God. Or take him as personality, one of the human beings; still, he is great, because he preached God consciousness, Kṛṣṇa consciousness. That is the test of great personality. *Mahājano yena gataḥ sa panthāḥ* [*Cc. Madhya* 17.186]*.*
+
+**[Śrī Caitanya Mahāprabhu continued, “’Dry arguments are inconclusive. A great personality whose opinion does not differ from others is not considered a great sage. Simply by studying the Vedas, which are variegated, one cannot come to the right path by which religious principles are understood. The solid truth of religious principles is hidden in the heart of an unadulterated, self-realized person. Consequently, as the śāstras confirm, one should accept whatever progressive path the mahājanas advocate.’”]**
+
+So in Buffalo I was instructing the younger boys and girls in the college that "You are very nicely situated. Your country is economically very well equipped. You are very good looking. Your education is very nice. You have got hundreds of universities in your country. Practically there is no man or woman illiterate.
+
+So your situation, comparatively with other nations or other country, is very good. That is admitted by everyone. So you should utilize this opportunity. That is my request. Your well situation, your material prosperity, your intelligence, your education should be properly utilized. It should not be misused."
+
+What is misused and what is proper utilization? That is also explained by Ṛṣabhadeva in this instruction. He says that *nāyaṁ deho deha-bhājāṁ nṛloke.* You have got this opportunity. Ṛṣabhadeva was instructing to His sons. Ṛṣabhadeva was the emperor of the world. Naturally, His sons were also princes; they were not ordinary boys.
+
+They were not ordinary boys. He had hundred sons, and He was instructing them before retirement. He was instructing them, "My dear boys," that "this body, if you think that you have very, very nice princely body and you are the son of a great emperor, so if you simply utilize your opportunity for sense gratification, that is not good. That is not good."
+
+Because every conditioned soul, every living entity, is prone to certain types of sense gratification. So when one is very nicely situated, sense gratification can be seen, can be acquired, can be had, even in the lower animals. So Ṛṣabhadeva instructed His sons, "My dear boys, you do not misuse your opportunity simply by sense gratification. Because sense gratification is also possible in the lower animals like cats, dogs and hogs.
+
+They have got also ample opportunity for sense gratification." The dog in the street, he can gratify his senses, sex life, with so many dogs. The hogs also, he can also satisfy his senses in so many she-hogs. So that opportunity is there in the cats' and dogs' and hogs' life. So Ṛṣabhadeva advised His sons, "Don't spoil your opportunity simply by imitating the cats, dogs and hogs."
+
+So the same thing... Not I am manufacturing; I am just following the footprints of Ṛṣabhadeva, although I am not emperor of the world, but I am a teacher. It is my duty not only to you; to everyone. But I take your country..., I have come to your country with a special purpose, with a special mission, that if the American boys and girls take this Kṛṣṇa consciousness movement very seriously, then that will be followed by other countries, and the face of the world will change. That is my request.
+
+And I am glad also that my students, my disciples, who are already under my instruction and following, they are all boys and girls. None of them are above twenty-five years. Our, I think, oldest student is Kīrtanānanda. He is thirty or thirty-one years. Otherwise, all our students are young boys. You see all these boys, they are sitting.
+
+So I am very hopeful that youngsters of this country are taking this movement a little seriously. Therefore I am hopeful. And I request also that you have got all opportunities; you don't misuse it simply for sense gratification. That is my request.
+
+Then what should be the purpose of life? This opportunity, this nice intelligence, nice education, nice beautiful body, nice economic condition—that should be utilized for *tapasya. Tapasya* means austerity, restriction. Restriction. Just like our students: we advise our students—and they follow—that "You don't have illicit sex life."
+
+Boys and girls, they are mixing, making friendship. That is nice. That is natural. A young boy is attracted by a young girl, or young girl is attracted by young boy. That is not unnatural, because it is in the Supreme Lord. That nice love attraction is Rādhā-Kṛṣṇa. Kṛṣṇa is a boy, sixteen-years-old boy, and Rādhārāṇī is also a fifteen-years-old girl. Not even one year's... I think, fifteen days younger.
+
+So our worshipable object is that spiritual love, Rādhā and Kṛṣṇa. But the so-called love in this material world is only a perverted reflection. It is only lust. So you have, by austerity, you have to change that lust into love. If you love one girl, if you love one boy, that is very nice. That is natural. That is not unnatural. But don't change that love. Be combined permanently. Be combined. Not that "After few months I give up this girl," "I give up this boy," "I capture another." No. That is austerity. That is austerity.
+
+Oh, I purposely... Although I am a *sannyāsī*—I have no interest with family life, neither we are expected to take part in this man and woman relationship—but still, purposely I have married so many couples, boys and girls, just to see them happy. Without happiness, without being in good mood of mind, you cannot prosecute Kṛṣṇa consciousness.
+
+That is also stated in the *Śrīmad-Bhāgavatam.*
+
+> evaṁ prasanna-manaso
+> bhagavad-bhakti-yogataḥ
+> bhagavat-tattva-vijñānaṁ
+> mukta-saṅgasya jāyate
+
+[*SB 1.2.20*]
+
+**[Thus established in the mode of unalloyed goodness, the man whose mind has been enlivened by contact with devotional service to the Lord gains positive scientific knowledge of the Personality of Godhead in the stage of liberation from all material association.]**
+
+*Prasanna-manaso.* Unless you become joyful in your mind by executing devotional service... *Evaṁ prasanna. Prasanna* means joyful. *Manasa, manasa* means mind. When you are fully joyful in your mind by executing devotional service... *Evaṁ prasanna-manaso bhagavad-bhakti-yogataḥ.* How one can become joyful? Simply by executing Kṛṣṇa consciousness. Not otherwise. It is not possible.
+
+So austerity means we are not imposing upon you that you go to the forest and you live in a cave or you don't eat or don't see any human being; you just meditate for three hundred years. No. That is not possible. That is not possible. You cannot go to the forest, you cannot go to the mountain, neither you can meditate. All these are not recommended in this age. That is not possible. If somebody imitates or tries to imitate, he is simply wasting time. Only austerity is that don't have illicit sex life just like cats and dogs.
+
+Because marriage is recommended in the human society. There is no marriage in cat society, dog society, hog society. Any human society you take, either in the Western world or in the Eastern world, or in Christian society, Hindu society, Muhammadan society—in every civilized human society there is a ceremony called marriage. And that is also Vedic system, that one should not have any illicit sex life, but one should be combined according to religious rite and live peacefully and execute Kṛṣṇa consciousness. This much austerity.
+
+The next austerity we say, that "Don't take any animal food." There is no need of taking. Perhaps you are coming to our Love Feast. We can prepare... Of course, these boys and girls, they are not very expert, but still, whatever they have learned, and they are supplying *prasādam* to your American boys and girls, and people, they are appreciating very much. In Los Angeles—that is our biggest temple in your country—we get in every Love Feast day not less than two hundred guests. They come from far away with their car and they take. They like it. You see?
+
+So if you accept this austerity, that "We shall not eat meat, but we can have very nice foodstuff from grains, from fruits, from vegetables, milk, sugar, so many nice foodstuff," you will forget. Simply you have to learn. That is not very severe austerity. Simply our process is Kṛṣṇa consciousness, how from this present consciousness we want to change to Kṛṣṇa consciousness.
+
+So these austerities are required: no illicit sex life, no meat-eating, no intoxication. No intoxication. Our boys and girls, they do not even smoke, they do not take tea, coffee, and what to speak of other intoxicants. They were intoxicated. Some of them were LSD, but they have given up to this Kṛṣṇa consciousness movement. And no gambling. These four principles you accept. It is not very difficult, not very severe. Simply you have to be willing, "Yes. Why? If I can live on such nice foodstuff, why shall I take to animal food, for which so many animals have to be killed, so many birds have to be killed?"
+
+So Ṛṣabhadeva... It is not new introduction. Ṛṣabhadeva also instructed His boys, princes, that "My dear boys, if you simply indulge in sense gratification, then the result will be that you cannot get real, unlimited happiness." The whole program, austerity, He is advising to His sons, that "My dear boys, this beautiful body, this opportunity, you cannot misuse it simply for sense gratification." But *tapa putrakā:* "My dear boys, you please accept austerity."
+
+Now I have explained what is our austerity. It is very simple, four items of austerity, nothing more. We are not stopping your love or your sex life. No. Simply we are trying to regulate it. That's all. There is no question of stopping your eating or stopping your mating or stopping your sleeping or stopping your defending. Nothing. No stop. But don't increase the degree to the death point.
+
+Just like for to live, when we live, we must have some temperature. When there is no temperature, that means he is dead body. But that temperature should not be increased to the 107 degree. That should be controlled. You see? We must have some temperature. Without temperature, if our body is cold completely, then it is finished.
+
+Temperature must be there, but not more than 96.6 degree..., or 98.6 degree. Yes. But if we increase the temperature to 107 degree, that means death. When there is 105 degree temperature the doctors take very precautionary measure so that it may not increase further. And actually I have see, as soon as one gets 107 degree, he collapses. So... [break] [end]

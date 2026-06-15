@@ -1,7 +1,8 @@
 # The Nectar of Devotion
 
+### 0a
 
-# Preface
+Preface
 
 *The Nectar of Devotion* is a summary study of *Bhakti-rasāmṛta-sindhu,* which was written in Sanskrit by Śrīla Rūpa Gosvāmī Prabhupāda. He was the chief of the six Gosvāmīs who were the direct disciples of Lord Caitanya Mahāprabhu. When he first met Lord Caitanya, Śrīla Rūpa Gosvāmī Prabhupāda was engaged as a minister in the Mohammedan government of Bengal. He and his brother Sanātana were then named Sākara Mallik and Dabir Khās respectively, and they held responsible posts as ministers of Nawab Hussain Shah. At that time, five hundred years ago, the Hindu society was very rigid, and if a member of the *brāhmaṇa* caste accepted the service of a Mohammedan ruler he was at once rejected from *brāhmaṇa* society. That was the position of the two brothers, Dabir Khās and Sākara Mallik. They belonged to the highly situated *sārasvata-brāhmaṇa* community, but they were ostracized due to their acceptance of ministerial posts in the government of Hussain Shah. It is the grace of Lord Caitanya that He accepted these two exalted personalities as His disciples and raised them to the position of *gosvāmīs,* the highest position of brahminical culture. Similarly, Lord Caitanya accepted Haridāsa Thākur as His disciple although he happened to be born of a Mohammedan family, and Lord Caitanya later on made him the *ācārya* of the chanting of the holy name of the Lord: Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.
 
@@ -36,8 +37,9 @@ ISKCON Headquarters
 3764 Watseka Ave. 
 Los Angeles, California
 
+### 0b
 
-# Introduction
+Introduction
 
 Invoking auspiciousness: Lord Śrī Kṛṣṇa is the Supreme Personality of Godhead, the cause of all causes, the reservoir of all *rasas,* or relationships, which are called neutrality (passive adoration), servitorship, friendship, parenthood, conjugal love, comedy, compassion, fear, chivalry, ghastliness, wonder and devastation. He is the supreme attractive form, and by His universal and transcendental attractive features He has captivated all the *gopīs,* headed by Tārakā, Pālikā, Śyāmā, Lalitā, and ultimately, Śrīmatī Rādhārāṇī. Let His Lordship's grace be on us so that there may not be any hindrance in the execution of this duty of writing *The Nectar of Devotion,* impelled by His Divine Grace Śrī Śrīmad Bhaktisiddhānta Sarasvatī Gosvāmī Prabhupāda.
 
@@ -81,8 +83,9 @@ The definition of a pure devotee, as given by Rūpa Gosvāmī in *Bhakti-rasām�
 
 As long as one identifies himself as belonging to a certain family, a certain society or a certain person, he is said to be covered with designations. When one is fully aware that he does not belong to any family, society or country, but is eternally related to Kṛṣṇa, he then realizes that his energy should be employed not in the interests of so-called family, society or country, but in the interests of Kṛṣṇa. This is purity of purpose and the platform of pure devotional service in Kṛṣṇa consciousness.
 
+### 1
 
-# Chapter 1: Characteristics of Pure Devotional Service
+1. Characteristics of Pure Devotional Service
 
 In the *Śrīmad-Bhāgavatam,* Third Canto, 29th Chapter, 10th verse, Śrīla Kapiladeva, while instructing His mother, has given the following characteristics of pure devotional service: "My dear mother, those who are My pure devotees, and who have no desire for material benefit or philosophical speculation, have their minds so much engaged in My service that they are never interested in asking Me for anything-except to be engaged in that service. They do not even beg to live in My abode with Me."
 
@@ -143,7 +146,7 @@ One who is not in Kṛṣṇa consciousness usually cannot sit silently even for
 
 Śrīla Rūpa Gosvāmī has analyzed the different sources of happiness. He has divided happiness into three categories, which are: 1) happiness derived from material enjoyment, 2) happiness derived by identifying oneself with the Supreme Brahman and 3) happiness derived from Kṛṣṇa consciousness.
 
-In the *Tantra-śāstra* Lord Śiva speaks to his wife, Satī, in this way: "My dear wife, a person who has surrendered himself at the lotus feet of Govinda and who has thus developed pure Kṛṣṇa consciousness can be very easily awarded all the perfections desired by the impersonalists; and beyond this, he can enjoy the happiness achieved by the pure devotees."
+In the *T* antra-śāstra Lord Śiva speaks to his wife, Satī, in this way: "My dear wife, a person who has surrendered himself at the lotus feet of Govinda and who has thus developed pure Kṛṣṇa consciousness can be very easily awarded all the perfections desired by the impersonalists; and beyond this, he can enjoy the happiness achieved by the pure devotees."
 
 Happiness derived from pure devotional service is the highest because it is eternal. But the happiness derived from material perfection or understanding oneself to be Brahman is inferior because it is temporary. There is no preventing one's falling down from material happiness, and there is even every chance of falling down from the spiritual happiness derived out of identifying oneself with the impersonal Brahman.
 
@@ -201,12 +204,15 @@ How Kṛṣṇa becomes attracted by the devotional service of His devotees is d
 
 In the *Bhagavad-gītā,* when Kṛṣṇa appeared in His universal form, Arjuna prayed: "My dear Kṛṣṇa, I thought of You as my cousin-brother, and so I have shown disrespect to You in so many ways, calling You Kṛṣṇa, or friend. But You are so great that I could not understand." So that was the position of the Pāṇḍavas; although Kṛṣṇa is the Supreme Personality of Godhead, the greatest among all greats, still He remained with those royal brothers, being attracted by their devotion, by their friendship and by their love. That is the proof of how great this process of devotional service is. It can attract even the Supreme Personality of Godhead. God is great, but devotional service is greater than God because it attracts Him. People who are not in devotional service can never understand what great value there is in rendering service to the Lord.
 
+### 2
 
-# Chapter 2: The First Stages of Devotion
+2. The First Stages of Devotion
+
+## The First Stages of Devotion
 
 The three categories of devotional service which Śrīla Rūpa Gosvāmī describes in *Bhakti-rasāmṛta-sindhu* are listed as devotional service in practice, devotional service in ecstasy and devotional service in pure love of Godhead. There are many sub-headings in each of these categories. Generally it is understood that in the category of devotional service in practice there are two different qualities; devotional service in ecstasy has four qualities, and devotional service in pure love of Godhead has six qualities. These qualities will be explained by Śrīla Rūpa Gosvāmī later on.
 
-In this connection, Śrīla Rūpa Gosvāmī suggests that the person eligible for Kṛṣṇa consciousness, or devotional service can be classified by his particular taste. He says that devotional service is a continual process from one's previous life. No one can take to devotional service unless he has had some previous connection with it. For example, suppose in this life I practice devotional service to some extent. Even though it is not one hundred percent perfectly performed, still whatever I have done will not be lost. In my next life, from the very point where I stop in this life, I shall begin again. In this way there is always a continuity. But even if there is no continuity, if only by chance a person takes interest in a pure devotee's instruction, he can be accepted and can advance in devotional service. Anyway, for persons who have a natural taste for understanding books like the *Bhagavad-gītā* and *Śrīmad-Bhāgavatam,* devotional service is easier than for those who are simply accustomed to mental speculation and argumentative processes.
+In this connection, Śrīla Rūpa Gosvāmī suggests that the person eligible for Kṛṣṇa consciousness, or devotional service can be classified by his particular taste. He says that devotional service is a continual process from one's previous life. No one can take to devotional service unless he has had some previous connection with it. For example, suppose in this life I practice devotional service to some extent. Even though it is not one hundred percent perfectly performed, still whatever I have done will not be lost. In my next life, from the very point where I stopped in this life, I shall begin again. In this way there is always a continuity. But even if there is no continuity, if only by chance a person takes interest in a pure devotee's instruction, he can be accepted and can advance in devotional service. Anyway, for persons who have a natural taste for understanding books like the *Bhagavad-gītā* and *Śrīmad-Bhāgavatam,* devotional service is easier than for those who are simply accustomed to mental speculation and argumentative processes.
 
 To support this statement there are many authoritative assertions by the learned scholars of bygone ages. According to their general opinion, a person may become governed by certain convictions derived by his own arguments and decisions. Then another person, who may be a greater logician, will nullify these conclusions and establish another thesis. In this way the path of argument will never be safe or conclusive. The *Śrīmad-Bhāgavatam* recommends, therefore, that one follow in the footsteps of the authorities.
 
@@ -256,8 +262,11 @@ There is a similar statement by Śrī Kṛṣṇa Himself to Uddhava in the Elev
 
 Thus the Kṛṣṇa consciousness movement is so nice that there is no need of even designating oneself *brāhmaṇa, kṣatriya, vaiśya, śūdra, brahmacārī, gṛhastha, vānaprastha* or *sannyāsī.* Let everyone be engaged in whatever occupation he now has. Simply let him worship Lord Kṛṣṇa by the result of his activities in Kṛṣṇa consciousness. That will adjust the whole situation and everyone will be happy and peaceful within this world. In the *Nārada-pañcarātra* the regulative principles of devotional service are described as follows: "Any activities sanctioned in the revealed scriptures and aiming at the satisfaction of the Supreme Personality of Godhead are accepted by saintly teachers as the regulative principles of devotional service. If somebody regularly executes such service unto the Supreme Personality of Godhead under the direction of a bona fide spiritual master, then gradually he rises to the platform of serving in pure love of God."
 
+### 3
 
-# Chapter 3: Eligibility of the Candidate for Accepting Devotional Service
+3. Eligibility of the Candidate for Accepting Devotional Service
+
+## Eligibility of the Candidate for Accepting Devotional Service
 
 On account of his association with *mahātmās,* or great souls one hundred percent in the devotional service of the Lord, one may attain a little bit of attraction for Śrī Kṛṣṇa. But at the same time one may remain very much attached to fruitive activities and material sense enjoyment and not be prepared to undergo the different types of renunciation. Such a person, if he has unflinching attraction to Kṛṣṇa, becomes an eligible candidate for discharging devotional service.
 
@@ -269,7 +278,7 @@ The second-class devotee has been defined by the following symptoms: he is not v
 
 The neophyte or third-class devotee is one whose faith is not strong and, at the same time, does not recognize the decision of the revealed scripture. The neophyte's faith can be changed by someone else with strong arguments or by an opposite decision. Unlike the second-class devotee, who also cannot put forward arguments and evidences from the scripture, but who still has all faith in the objective, the neophyte has no firm faith in the objective. Thus he is called the neophyte devotee.
 
-Further classification of the neophyte devotee is made in the *Bhagavad-gītā.* It is stated there that four classes of men—namely those who are distressed, those who are in need of money, those who are inquisitive and those who are wise—begin devotional service and come to the Lord for relief in the matter of their respective self-satisfaction. They go into some place of worship and pray to God for mitigation of material distress, or for some economic development, or to satisfy their inquisitiveness. And a wise man who simply realizes the greatness of God is also counted among the neophytes. Such beginners can be elevated to the second-class or first-class platform if they associate with pure devotees.
+Further classification of the neophyte devotee is made in the *Bhagavad-gītā.* It is stated there that four classes of men—namely those who are distressed, those who are in need of money, those who are inquisitive and those who are wise—begin devotional service and come to the Lord for relief in the matter of their respective self-satisfaction. They go into some place of worship and pray to God for mitigation of material distress, or for some economic development, or to satisfy their inquisitiveness. And a wise man who simply realizes the greatness of God is also counted amongst the neophytes. Such beginners can be elevated to the second-class or first-class platform if they associate with pure devotees.
 
 An example of the neophyte class is Mahārāj Dhruva. He was in need of his father's kingdom and therefore engaged himself in devotional service to the Lord. Then in the end when he was completely purified he declined to accept any material benediction from the Lord. Similarly, Gajendra was distressed and prayed to Kṛṣṇa for protection, after which he became a pure devotee. Similarly, Sanaka, Sanātana, Sananda and Sanat-kumāra were all in the category of wise, saintly persons, and they were also attracted by devotional service. A similar thing happened to the assemblage in the Naimiṣāraṇya Forest, headed by the sage Śaunaka. They were inquisitive and were always asking Sūta Gosvāmī about Kṛṣṇa. Thus they achieved the association of a pure devotee and became pure devotees themselves. So that is the way of elevating oneself. In whatever condition one may be, if he is fortunate enough to associate with pure devotees, then very quickly he is elevated to the second-class or first-class platform.
 
@@ -301,8 +310,11 @@ A similar passage appears in the Third Canto, 25th Chapter, 31st verse, wherein 
 
 In the *Śrīmad-Bhāgavatam,* Fourth Canto, 9th Chapter, 10th verse, King Dhruva says, "My dear Lord, the transcendental pleasure derived by meditation upon Your lotus feet, which is enjoyed by the pure devotees, cannot be approached by the transcendental pleasure derived by the impersonalists through self-realization. So how can the fruitive workers, who at most can aspire to promotion to the higher heavenly planets, understand You, and how can they be described as enjoying a happiness similar to the devotees' happiness?"
 
+### 4
 
-# Chapter 4: Devotional Service Surpasses All Liberation
+4. Devotional Service Surpasses All Liberation
+
+## Devotional Service Surpasses All Liberation
 
 How much a devotee is seriously attached to the devotional service of the Supreme Personality of Godhead can be understood from the statement of Mahārāj Pṛthu (Ādirāja) which is described in *Śrīmad-Bhāgavatam,* Fourth Canto, 20th Chapter, 21st verse. He prays to the Supreme Personality of Godhead thusly: "My dear Lord, if after taking liberation I have no chance of hearing the glories of Your Lordship, glories chanted by pure devotees from the core of their hearts in praise of Your lotus feet, and if I have no chance for this honey of transcendental bliss, then I shall never ask for liberation or this so-called spiritual emancipation. I shall simply always pray unto Your Lordship that You may give me millions of tongues and millions of ears so that I can constantly chant and hear of Your transcendental glories."
 
@@ -336,7 +348,7 @@ In the Eleventh Canto of *Śrīmad-Bhāgavatam,* 20th Chapter, 34th verse, Lord 
 
 Similarly, there is a statement in *Padma Purāṇa* describing the ritualistic function during the month of Kārttika (October-November). During this month, in Vṛndāvana it is the regulative principle to pray daily to Lord Kṛṣṇa in His Dāmodara form. The Dāmodara form refers to Kṛṣṇa in His childhood when He was tied up with rope by His mother, Yaśodā. *Dāma* means ropes, and *udara* means the abdomen. So Mother Yaśodā, being very disturbed by naughty Kṛṣṇa, bound Him round the abdomen with a rope, and thus Kṛṣṇa is named Dāmodara. During the month of Kārttika, Dāmodara is prayed to as follows: "My dear Lord, You are the Lord of all, the giver of all benedictions." There are many demigods like Lord Brahmā and Lord Śiva who sometimes offer benedictions to their respective devotees. For example, Rāvaṇa was blest with many benedictions by Lord Śiva, and Hiraṇyakaśipu was blest by Lord Brahmā. But even Lord Śiva and Lord Brahmā depend upon the benedictions of Lord Kṛṣṇa, and therefore Kṛṣṇa is addressed as the Lord of all benefactors. As such, Lord Kṛṣṇa can offer His devotees anything they want, but still, the devotee's prayer continues, "I do not ask You for liberation or any material facility up to the point of liberation. What I want as Your favor is that I may always think of Your form as I see You now as Dāmodara. You are so beautiful and attractive that my mind does not want anything else besides this wonderful form." In this same prayer, there is another passage in which it is said, "My dear Lord Dāmodara, once when You were playing as a naughty boy in the house of Nanda Mahārāj, You broke the box containing yogurt, and because of that Mother Yaśodā considered You an offender and tied You with rope to the household grinding mortar. At that time You delivered two sons of Kubera, Nalakūvara and Maṇigrīva, who were staying there as two *arjuna* trees in the yard of Nanda Mahārāj. My only request is that by Your merciful pastimes You may similarly deliver me."
 
-The story behind this verse is that the two sons of Kubera (the treasurer of the demigods) were puffed up on account of the opulence of their father, and so once on a heavenly planet they were enjoying themselves in a lake with some naked damsels of heaven. At that time the great saint Nārada Muni was passing on the road and was sorry to see the behavior of the sons of Kubera. Seeing Nārada passing by, the damsels of heaven covered their bodies with cloth, but the two sons, being drunkards, did not have this decency. Nārada became angry with their behavior and cursed them thusly: "You have no sense, so it is better if you become trees instead of the sons of Kubera." Upon hearing this, the boys came to their senses and begged Nārada to be pardoned for their offenses. Nārada then said, "Yes, you shall become trees, *arjuna* trees, and you will stand at the courtyard of Nanda Mahārāj. But Kṛṣṇa Himself will appear in time as the foster son of Nanda, and He will deliver you." In other words, the curse of Nārada was a benediction to the sons of Kubera because indirectly it was foretold that they would be able to receive the favor of Lord Kṛṣṇa. After that, Kubera's two sons stood as two big *arjuna* trees in the courtyard of Nanda Mahārāj until Lord Dāmodara, in order to fulfill the desire of Nārada, dragged the milling pestle to which He was tied and struck the two trees, violently causing them to fall down. From out of these fallen trees came Nalakūvara and Maṇigrīva, who had by then become great devotees of the Lord.
+The story behind this verse is that the two sons of Kubera (the treasurer of the demigods) were puffed up on account of the opulence of their father, and so once on a heavenly planet they were enjoying themselves in a lake with some naked damsels of heaven. At that time the great saint Nārada Muni was passing on the road and was sorry to see the behavior of the sons of Kuvera. Seeing Nārada passing by, the damsels of heaven covered their bodies with cloth, but the two sons, being drunkards, did not have this decency. Nārada became angry with their behavior and cursed them thusly: "You have no sense, so it is better if you become trees instead of the sons of Kuvera." Upon hearing this, the boys came to their senses and begged Nārada to be pardoned for their offenses. Nārada then said, "Yes, you shall become trees, *arjuna* trees, and you will stand at the courtyard of Nanda Mahārāj. But Kṛṣṇa Himself will appear in time as the foster son of Nanda, and He will deliver you." In other words, the curse of Nārada was a benediction to the sons of Kubera because indirectly it was foretold that they would be able to receive the favor of Lord Kṛṣṇa. After that, Kubera's two sons stood as two big *arjuna* trees in the courtyard of Nanda Mahārāj until Lord Dāmodara, in order to fulfill the desire of Nārada, dragged the milling pestle to which He was tied and struck the two trees, violently causing them to fall down. From out of these fallen trees came Nalakūvara and Maṇigrīva, who had by then become great devotees of the Lord.
 
 There is a passage in the *Hayaśīrṣa Purāṇa* which states, "My dear Lord, O Supreme Personality of Godhead, I do not want any resultant benediction from my religious life, nor do I want any economic development, nor do I want to enjoy sense gratification, nor liberation. I simply pray to be an eternal servant at Your lotus feet. Kindly oblige me and give me this benediction."
 
@@ -360,8 +372,11 @@ Out of many kinds of devotees of the Supreme Personality of Godhead, the one who
 
 A devotee who is attached to a particular form of the Lord does not wish to change his devotion to other forms. For example, Hanumān, the devotee of Lord Rāmacandra, knew that there is no difference between Lord Rāmacandra and Lord Nārāyaṇa, and yet he still wanted to render service only unto Lord Rāmacandra. That is due to the specific attraction of a particular devotee. There are many, many forms of the Lord, but Kṛṣṇa is still the original form. Though all of the devotees of the different forms of the Lord are in the same category, still it is said that those who are devotees of Lord Kṛṣṇa are the topmost in the list of all devotees.
 
+### 5
 
-# Chapter 5: Purity of Devotional Service
+5. Purity of Devotional Service
+
+## Purity of Devotional Service
 
 All of the previous instructions imparted by Śrīla Rūpa Gosvāmī in his broad statements can be summarized thus: as long as one is materially inclined or desirous of merging into the spiritual effulgence, one cannot enter into the realm of pure devotional service. Next, Rūpa Gosvāmī states that devotional service is transcendental to all material considerations and that it is not limited to any particular country, class, society or circumstance. As stated in *Śrīmad-Bhāgavatam,* devotional service is transcendental and has no cause. Devotional service is executed without any hope for gain, and it cannot be checked by any material circumstances. It is open for all, without any distinction, and it is the constitutional occupation of the living entities.
 
@@ -375,7 +390,7 @@ Thus a Vaiṣṇava automatically becomes a *brāhmaṇa.* This idea is also sup
 
 Śrīla Rūpa Gosvāmī warns, however, that if a person is properly initiated by a bona fide spiritual master, he should not think that simply by the acceptance of such initiation his business is then finished. One still has to follow the rules and regulations very carefully. If after accepting the spiritual master and being initiated one does not follow the rules and regulations of devotional service, then he is again fallen. One must be very vigilant to remember that he is the part and parcel of the transcendental body of Kṛṣṇa, and that it is his duty as part and parcel to give service to the whole, or Kṛṣṇa. If we do not render service to Kṛṣṇa then again we fall down. In other words, simply becoming initiated does not elevate one to the position of a high-class *brāhmaṇa.* One also has to discharge the duties and follow the regulative principles very rigidly.
 
-Śrī Rūpa Gosvāmī also says that if anyone is regularly discharging devotional service there will be no question of a falldown. But even if circumstantially there is some falldown, the Vaiṣṇava need have nothing to do with the *prāyaścitta,* the ritualistic ceremony for purification. If someone falls down from the principles of devotional service, he need not take to the *prāyaścitta* performances for reformation. He has simply to execute the rules and regulations for discharging devotional service, and this is sufficient for his reinstatement. This is the mystery of the Vaiṣṇava (devotional) cult.
+Śrī Rūpa Gosvāmī also says that if anyone is regularly discharging devotional service there will be no question of a falldown. But even if circumstantially there is some falldown, the Vaiṣṇava need have nothing to do with the *prāyaścitta,* the ritualistic ceremony for purification. If someone falls down from the principles of devotional service, he need not take to the *prāyaścitta* performances for reformation. He has simply to execute the rules and regulations for discharging devotional service, and this is sufficient for his reinstatement. This is the mystery of the *Vaisnava*(devotional) cult.
 
 Practically there are three processes for elevating one to the platform of spiritual consciousness. These processes are called *karma, jñāna* and *bhakti.* Ritualistic performances are in the field of *karma.* Speculative processes are in the field of *jñāna.* One who has taken to *bhakti,* the devotional service of the Lord, need have nothing to do with *karma* or *jñāna.* It has been already explained that pure devotional service is without any tinge of *karma* or *jñāna. Bhakti* should have no tinge of philosophical speculation or ritualistic performances.
 
@@ -399,27 +414,29 @@ There is additional evidence in the *Agastya-saṁhitā:* "As the regulative pri
 
 Similarly, in the Eleventh Canto of *Śrīmad-Bhāgavatam,* 5th Chapter, Karabhājana Muni addresses King Nimi and says, "My dear King, a person who has given up the worship of the demigods and has completely concentrated his energy in the devotional service of the Supreme Personality of Godhead has become very, very dear to the Lord. As such, if by chance or mistake he does something which is forbidden, there is no need for him to perform any purificatory ceremonies. Because the Lord is situated within his heart, He takes compassion for the devotee's accidental mistake and corrects him from within." It is also confirmed in the *Bhagavad-gītā* in many places that the Supreme Personality of Godhead, Kṛṣṇa, takes a special interest in His devotees and declares emphatically that nothing can cause His devotees to fall down. He is always protecting them.
 
+### 6
 
-# Chapter 6: How to Discharge Devotional Service
+6. How to Discharge Devotional Service
+
+## How to Discharge Devotional Service
 
 Śrīla Rūpa Gosvāmī states that his elder brother (Sanātana Gosvāmī) has compiled *Hari-bhakti-vilāsa* for the guidance of the Vaiṣṇavas and therein has mentioned many rules and regulations to be followed by the Vaiṣṇavas. Some of them are very important and prominent, and he will now mention these very important items for our benefit. The purport of this statement is that Śrīla Rūpa Gosvāmī proposes to mention only basic principles, not details. For example, a basic principle is that one has to accept a spiritual master. Exactly how one follows the instructions of his spiritual master is considered a detail. For example, if one is following the instruction of his spiritual master and that instruction is different from the instructions of another spiritual master, this is called detailed information. But the basic principle of acceptance of a spiritual master is good everywhere, although the details may be different. Śrīla Rūpa Gosvāmī does not wish to enter into details here, but wants to place before us only the principles.
 
-He mentions the basic principles as follows: 1) accepting the shelter of the lotus feet of a bona fide spiritual master, 2) becoming initiated by the spiritual master and learning how to discharge devotional service from him, 3) obeying the orders of the spiritual master with faith and devotion, 4) following in the footsteps of great *ācāryas* (teachers) under the direction of the spiritual master, 5) inquiring from the spiritual master how to advance in Kṛṣṇa consciousness, 6) being prepared to give up anything material for the satisfaction of the Supreme Personality of Godhead, Śrī Kṛṣṇa (This means that when we are engaged in the devotional service of Kṛṣṇa, we must be prepared to give up something which we may not like to give up, and also we have to accept something which we may not like to accept.), 7) residing in a sacred place of pilgrimage like Dvārakā or Vṛndāvana, 8)  dealing with the material world only as far as necessary, 9) observing the fasting day on Ekādaśī, and 10) worshiping sacred trees like the banyan tree.
-
-These ten items are preliminary necessities for beginning the discharge of devotional service in regulative principles. In the beginning, if a neophyte devotee observes the above-mentioned ten principles, surely he will quickly make good advancement in Kṛṣṇa consciousness.
+He mentions the basic principles as follows: 1) accepting the shelter of the lotus feet of a bona fide spiritual master, 2) becoming initiated by the spiritual master and learning how to discharge devotional service from him, 3) obeying the orders of the spiritual master with faith and devotion, 4) following in the footsteps of great *ācāryas* (teachers) under the direction of the spiritual master, 5) inquiring from the spiritual master how to advance in Kṛṣṇa consciousness, 6) being prepared to give up anything material for the satisfaction of the Supreme Personality of Godhead, Śrī Kṛṣṇa (This means that when we are engaged in the devotional service of Kṛṣṇa, we must be prepared to give up something which we may not like to give up, and also we have to accept something which we may not like to accept.), 7) residing in a sacred place of pilgrimage like Dvārakā or Vṛndāvana, 8)  dealing with the material world only as far as necessary, 9) observing the fasting day on *Ekadasi,*and 10) worshiping sacred trees like the banyan tree These ten items are preliminary necessities for beginning the discharge of devotional service in regulative principles. In the beginning, if a neophyte devotee observes the above-mentioned ten principles, surely he will quickly make good advancement in Kṛṣṇa consciousness.
 
 The next set of instructions is listed as follows: 1) One should rigidly give up the company of nondevotees. 2) One should not instruct a person who is not desirous of accepting devotional service. 3) One should not be very enthusiastic about constructing costly temples or monasteries. 4) One should not try to read too many books, nor should one develop the idea of earning his livelihood by lecturing on or by professionally reciting *Śrīmad-Bhāgavatam* or the *Bhagavad-gītā.* 5) One should not be neglectful in ordinary dealings. 6) One should not be under the spell of lamentation in loss or tribulation in gain. 7) One should not disrespect the demigods. 8) One should not give unnecessary trouble to any living entity. 9) One should carefully avoid the various offenses in chanting the holy name of the Lord, or in worshiping the Deity in the temple. 10) One should be very intolerant towards the blasphemy of the Supreme Personality of Godhead, Kṛṣṇa, or His devotees.
 
 Without following the above-mentioned ten principles, one cannot properly elevate himself to the platform of *sādhana-bhakti,* or devotional service in practice. Altogether, Śrīla Rūpa Gosvāmī mentions twenty items, and all of them are very important. Out of the twenty, the first three—namely, accepting the shelter of a bona fide spiritual master, taking initiation from him and serving him with respect and reverence—are the most important.
 
-The next important items are as follows: 1) One should decorate the body with *tilaka,* which is the sign of the Vaiṣṇavas. (The idea is that as soon as a person sees these marks on the body of the Vaiṣṇava, he will immediately remember Kṛṣṇa. Lord Caitanya said that a Vaiṣṇava is he whom, when seen, reminds one of Kṛṣṇa. Therefore, it is essential that a Vaiṣṇava mark his body with *tilaka* to remind others of Kṛṣṇa.) 2) In marking such *tilaka,* sometimes one may write Hare Kṛṣṇa on the body. 3) One should accept flowers and garlands that have been offered to the Deity and the spiritual master and put them on his body. 4) One should learn to dance before the Deity. 5) One should learn to bow down immediately upon seeing the Deity or the spiritual master. 6) As soon as one visits a temple of Lord Kṛṣṇa, one must stand up. 7) When the Deity is being borne for a stroll in the street, a devotee should immediately follow the procession. (In this connection it may be noted that in India, especially in Viṣṇu temples, the system is that apart from the big Deity who is permanently situated in the main area of the temple, there is another set of smaller Deities which are taken in procession in the evening. In some temples it is the custom to hold a big procession in the evening with a band playing and a nice big umbrella over the Deities, who sit on decorated thrones on the cart or palanquin, which is carried by devotees. The Deities come out onto the street and travel in the neighborhood while the people of the neighborhood come out to offer *prasādam.* The residents of the neighborhood all follow the procession so that it is a very nice scene. When the Deity is coming out, the servitors in the temple put forward the daily accounts before Them: so much was the collection, so much was the expenditure. The whole idea is that the Deity is considered to be the proprietor of the whole establishment, and all the priests and other people taking care of the temple are considered to be the servants of the Deity. This system is very, very old and is still followed. So, therefore, it is mentioned here that when the Deity is on stroll the people should follow behind.) 8) A devotee must visit a Viṣṇu temple at least once or twice every day, morning and evening. (In Vṛndāvana this system is followed very strictly. All the devotees in town go every morning and evening to visit different temples. Therefore during these times there are considerable crowds all over the city. There are about 5,000 temples in Vṛndāvana City. Of course it is not possible to visit all the temples, but there are at least one dozen very big and important temples which were started by the Gosvāmīs and which should be visited.) 9) One must circumambulate the temple building at least three times. (In every temple there is an arrangement to go around the temple at least three times. Some devotees go around more than three times: ten times, fifteen times-according to their vows. The Gosvāmīs used to circumambulate Govardhan Hill.) 10) One should circumambulate the whole Vṛndāvana area. 11) One must worship the Deity in the temple according to the regulative principles. (Offering *ārātrika* and *prasādam,* decorating the Deity, etc.-these things must be observed regularly.) 12) Rendering personal service to the Deities. 13) Singing. 14) S*aṅkīrtana.* 15) Chanting. 16) Offering prayers. 17) Reciting notable prayers. 18) Tasting *mahā-prasādam* (food from the very plate offered before the Deities). 19) Drinking *caraṇāmṛtam* (water from the bathing of the Deities which is offered to guests). 20) One must smell the incense and flowers offered to the Deity. 21) One must touch the lotus feet of the Deity. 22) One must see the Deity with great devotion. 23) One must offer *ārātrika* at different times. 24) One must hear about the Lord and His pastimes from *Śrīmad-Bhāgavatam, the Bhagavad-gītā,* and similar books. 25) One must pray to the Deity for His mercy. 26) One should remember the Deity. 27) One should meditate upon the Deity. 28) One should render some voluntary service. 29) One should think of the Lord as his friend. 30) One should offer everything to the Lord. 31) One should offer a favorite article (as food or a garment). 32) One should take all kinds of risks for Kṛṣṇa's benefit. 33) In every condition, be a surrendered soul. 34) Pour water on the *tulasī* tree. 35) Regularly hear *Śrīmad-Bhāgavatam* and similar literature. 36) Live in a sacred place like Mathurā, Vṛndāvana or Dvārakā. 37) Offer service to Vaiṣṇavas (devotees). 38) Arrange your devotional service according to your means. 39) In the month of Kārttika (October and November), make arrangements for special services. 40) During Janmāṣṭamī (the time of Kṛṣṇa's appearance in this world) observe a special service. 41) Do whatever is done with great care and devotion for the Deity. 42) Relish the pleasure of *Bhāgavatam* reading amongst devotees and not amongst outsiders. 43) Associate with devotees who are considered more advanced. 44) Live in the jurisdiction of Mathurā.
+The next important items are as follows: 1) One should decorate the body with *tilaka,* which is the sign of the Vaiṣṇavas. (The idea is that as soon as a person sees these marks on the body of the Vaiṣṇava, he will immediately remember Kṛṣṇa. Lord Caitanya said that a Vaiṣṇava is he whom, when seen, reminds one of Kṛṣṇa. Therefore, it is essential that a Vaiṣṇava mark his body with *tilaka* to remind others of Kṛṣṇa.) 2) In marking such *tilaka,* sometimes one may write Hare Kṛṣṇa on the body. 3) One should accept flowers and garlands that have been offered to the Deity and the spiritual master and put them on his body. 4) One should learn to dance before the Deity. 5) One should learn to bow down immediately upon seeing the Deity or the spiritual master. 6) As soon as one visits a temple of Lord Kṛṣṇa, one must stand up. 7) When the Deity is being borne for a stroll in the street, a devotee should immediately follow the procession. (In this connection it may be noted that in India, especially in Viṣṇu temples, the system is that apart from the big Deity who is permanently situated in the main area of the temple, there is another set of smaller Deities which are taken in procession in the evening. In some temples it is the custom to hold a big procession in the evening with a band playing and a nice big umbrella over the Deities, who sit on decorated thrones on the cart or palanquin, which is carried by devotees. The Deities come out onto the street and travel in the neighborhood while the people of the neighborhood come out to offer *prasādam.* The residents of the neighborhood all follow the procession so that it is a very nice scene. When the Deity is coming out, the servitors in the temple put forward the daily accounts before Them: so much was the collection, so much was the expenditure. The whole idea is that the Deity is considered to be the proprietor of the whole establishment, and all the priests and other people taking care of the temple are considered to be the servants of the Deity. This system is very, very old and is still followed. So, therefore, it is mentioned here that when the Deity is on stroll the people should follow behind.) 8) A devotee must visit a Viṣṇu temple at least once or twice every day, morning and evening. (In Vṛndāvana this system is followed very strictly. All the devotees in town go every morning and evening to visit different temples. Therefore during these times there are considerable crowds all over the city. There are about 5,000 temples in Vṛndāvana City. Of course it is not possible to visit all the temples, but there are at least one dozen very big and important temples which were started by the Gosvāmīs and which should be visited.) 9) One must circumambulate the temple building at least three times. (In every temple there is an arrangement to go around the temple at least three times. Some devotees go around more than three times: ten times, fifteen times-according to their vows. The Gosvāmīs used to circumambulate Govardhan Hill.) 10) One should circumambulate the whole Vṛndāvana area. 11) One must worship the Deity in the temple according to the regulative principles. (Offering *ārātrika* and *prasādam,* decorating the Deity, etc.-these things must be observed regularly.) 12) Rendering personal service to the Deities. 13) Singing. 14) *S* aṅkīrtana. 15) Chanting. 16) Offering prayers. 17) Reciting notable prayers. 18) Tasting *mahā-prasādam* (food from the very plate offered before the Deities). 19) Drinking *caraṇāmṛtam* (water from the bathing of the Deities which is offered to guests). 20) One must smell the incense and flowers offered to the Deity. 21) One must touch the lotus feet of the Deity. 22) One must see the Deity with great devotion. 23) One must offer *ārātrika* at different times. 24) One must hear about the Lord and His pastimes from Srimad-Bhagavatam,*the* Bhagavad-gītā,* and similar books. 25) One must pray to the Deity for His mercy. 26) One should remember the Deity. 27) One should meditate upon the Deity. 28) One should render some voluntary service. 29) One should think of the Lord as his friend. 30) One should offer everything to the Lord. 31) One should offer a favorite article (as food or a garment). 32) One should take all kinds of risks for Kṛṣṇa's benefit. 33) In every condition, be a surrendered soul. 34) Pour water on the *tulasī* tree. 35) Regularly hear *Śrīmad-Bhāgavatam* and similar literature. 36) Live in a sacred place like Mathurā, Vṛndāvana or Dvārakā. 37) Offer service to Vaiṣṇavas (devotees). 38) Arrange your devotional service according to your means. 39) In the month of *Karttika*(October and November), make arrangements for special services. 40) During Janmāṣṭamī (the time of Kṛṣṇa's appearance in this world) observe a special service. 41) Do whatever is done with great care and devotion for the Deity. 42) Relish the pleasure of *Bhāgavatam* reading amongst devotees and not amongst outsiders. 43) Associate with devotees who are considered more advanced. 44) Live in the jurisdiction of Mathurā.
 
 Now, the total regulative principles come to an aggregate of sixty-four items. As we have mentioned, the first are the primary ten regulative principles. Then come the secondary ten regulative principles, and added to these are forty-four other activities. So all together there are sixty-four items for discharging the regulative practice of devotional service. Out of these sixty-four items, five items—namely, offering water to the tulasī tree, hearing *Śrīmad-Bhāgavatam,* associating amongst the devotees, *saṅkīrtana* and living in Mathurā—are very important.
 
 The sixty-four items of devotional service should include all of our activities of body, mind and speech. As stated in the beginning, the regulative principle of devotional service enjoins that all of our senses must be employed in the service of the Lord. Exactly how they can be thus employed is described in the above sixty-four items. Now, Śrīla Rūpa Gosvāmī will give evidences from different scriptures supporting the authenticity of many of these points.
 
+### 7
 
-# Chapter 7: Evidence Regarding Devotional Principles
+7. Evidence Regarding Devotional Principles
 
 In the Eleventh Canto of *Śrīmad-Bhāgavatam,* Prabuddha tells Mahārāj Nimi, "My dear King, please know for certain that in the material world there is no happiness. It is simply a mistake to think that there is happiness here, because this place is full of nothing but miserable conditions. Any person who is seriously desirous of achieving real happiness must seek out a bona fide spiritual master and take shelter of him by initiation. The qualification of a spiritual master is that he must have realized the conclusion of the scriptures by deliberation and arguments and thus be able to convince others of these conclusions. Such great personalities who have taken shelter of the Supreme Godhead, leaving aside all material considerations, are to be understood as bona fide spiritual masters. Everyone should try to find such a bona fide spiritual master in order to fulfill his mission of life, which is to transfer himself to the plane of spiritual bliss."
 
@@ -509,8 +526,11 @@ This is the statement of *Mahābhārata:* "A person who does not disturb or caus
 
 In so-called civilized society there is sometimes agitation against cruelty to animals, but at the same time regular slaughterhouses are always maintained. A Vaiṣṇava is not like that. A Vaiṣṇava can never support animal slaughter nor even give pain to any living entity.
 
+### 8
 
-# Chapter 8: Offenses to Be Avoided
+8. Offenses to Be Avoided
+
+## Offenses to Be Avoided
 
 In the supplementary Vedic literature, there is the following list of 32 offenses in the matter of serving the Lord:
 **1**) One should not enter the temple of the Deity in a car or palanquin or with shoes on the feet.
@@ -577,7 +597,7 @@ This is a list of 32 offenses. Besides these, there are a number of offenses whi
 **28**) One should not decorate his forehead with the three-lined *tilaka.*
 **29**) One should not enter the temple without washing his hands and feet.
 
-Other rules are that one should not offer foodstuff which is cooked by a non-Vaiṣṇava. One should not worship the Deity before a nondevotee. One should not engage himself in the worship of the Lord while seeing a nondevotee. One should begin the worship of the demigod Gaṇapati, who drives away all impediments in the execution of devotional service. In the *Brahma-saṁhitā* it is stated that Gaṇapati worships the lotus feet of Lord Nṛsiṁhadeva, and in that way has become auspicious for the devotees in clearing out all impediments. Therefore, all devotees should worship Gaṇapati. The Deities should not be bathed in water which has been touched by the nails or fingers. When a devotee is perspiring, he should not engage himself in worshiping the Deity. Similarly, there are many other prohibitions, such as one should not cross or step over the flowers offered to the Deities, nor should one take a vow in the name of God. These are all different kinds of offenses in the matter of executing devotional service, and one should be careful to avoid them.
+Other rules are that one should not offer foodstuff which is cooked by a non-*Vaisnava.*One should not worship the Deity before a nondevotee. One should not engage himself in the worship of the Lord while seeing a nondevotee. One should begin the worship of the demigod Gaṇapati, who drives away all impediments in the execution of devotional service. In the *Brahma-saṁhitā* it is stated that Gaṇapati worships the lotus feet of Lord Nṛsiṁhadeva, and in that way has become auspicious for the devotees in clearing out all impediments. Therefore, all devotees should worship Gaṇapati. The Deities should not be bathed in water which has been touched by the nails or fingers. When a devotee is perspiring, he should not engage himself in worshiping the Deity. Similarly, there are many other prohibitions, such as one should not cross or step over the flowers offered to the Deities, nor should one take a vow in the name of God. These are all different kinds of offenses in the matter of executing devotional service, and one should be careful to avoid them.
 
 In the *Padma Purāṇa* it is stated that even a person whose life is completely sinful will be completely protected by the Lord if he simply surrenders unto Him. So it is accepted that one who surrenders unto the Supreme Personality of Godhead becomes freed from all sinful reactions. And even when a person becomes an offender unto the Supreme Personality of Godhead Himself, he can still be delivered simply by taking shelter of the holy names of the Lord: Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. In other words, the chanting of Hare Kṛṣṇa is beneficial for eradicating all sins; but if one becomes an offender to the holy names of the Lord, then he has no chance of being delivered.
 
@@ -595,8 +615,9 @@ The offenses against the chanting of the holy name are as follows:
 
 Every devotee who claims to be a Vaiṣṇava must guard against these offenses in order to quickly achieve the desired success.
 
+### 9
 
-# Chapter 9: Further Consideration of Devotional Principles
+9. Further Consideration of Devotional Principles
 
 ## Blasphemy
 
@@ -608,13 +629,13 @@ There are three ways of dealing with such insults. If someone is heard blasphemi
 
 ## Tilaka, Tulasī Beads and Flower Garlands
 
-In the *Padma Purāṇa* there is a statement describing how a Vaiṣṇava should decorate his body with *tilaka* and beads: "Persons who put *tulasī* beads on the neck, who mark twelve places of their body as Viṣṇu temples with Viṣṇu's symbolic representations [the four items held in the four hands of Lord Viṣṇu-conch, mace, disc and lotus], and who have V*iṣṇu tilaka* on their forehead, are to be understood as the devotees of Lord Viṣṇu in this world. Their presence makes the world purified, and anywhere they remain they make that place as good as Vaikuṇṭha."
+In the *Padma Purāṇa* there is a statement describing how a Vaiṣṇava should decorate his body with *tilaka* and beads: "Persons who put *tulasī* beads on the neck, who mark twelve places of their body as Viṣṇu temples with Viṣṇu's symbolic representations [the four items held in the four hands of Lord Viṣṇu-conch, mace, disc and lotus], and who have V* isnu*tilaka on their forehead, are to be understood as the devotees of Lord Viṣṇu in this world. Their presence makes the world purified, and anywhere they remain they make that place as good as Vaikuṇṭha."
 
 A similar statement is in the *Skanda Purāṇa,* which says: "Persons who are decorated with *tilaka* or *gopī-candana* [a kind of clay resembling fuller's earth which is produced in certain quarters of Vṛndāvana], and who mark their bodies all over with the holy names of the Lord, and on whose neck and breast there are *tulasī* beads, are never approached by the Yama-dūtas." The Yama-dūtas are the constables of King Yama (the Lord of death), who punishes all sinful men. Vaiṣṇavas are never called for by such constables of Yamarāj. In the *Śrīmad-Bhāgavatam,* in the narration of Ajāmila's deliverance, it is said that Yamarāj gave clear instructions to his assistants not to approach the Vaiṣṇavas. Vaiṣṇavas are beyond the jurisdiction of Yamarāj's activities.
 
 In the *Padma Purāṇa* it is also mentioned: "A person whose body is decorated with the pulp of sandalwood, with paintings of the holy name of the Lord, is delivered from all sinful reactions, and after his death he goes directly to Kṛṣṇa-loka to live in association with the Supreme Personality of Godhead."
 
-The next instruction is that one should put on flower garlands which are offered to the Deity. In this connection, in the Eleventh Canto, 6th Chapter, 31st verse, of *Śrīmad-Bhāgavatam,* Uddhava says to Kṛṣṇa, "My dear Kṛṣṇa, I have taken things which You have used and enjoyed, such as garlands of flowers, saintly articles, garments and ornaments, and I eat only the remnants of Your foodstuff because I am Your menial servant. So, therefore, I am sure that I shall not be attacked by the spell of material energy." The purport of this verse is that for any person who simply follows these rules and regulations of decorating the body with the marks of *tilaka* of *gopī-candana* or sandalwood pulp, and who puts on the garlands which were offered to Kṛṣṇa, there is no question of being conquered by the spell of material energy. At the time of death, there is no question of such a person being called by the constables of Yamarāj. Even if one does not accept all the Vaiṣṇava principles, but still takes the remnants of foodstuff offered to Kṛṣṇa, or K*ṛṣṇa-prasādam,* he will gradually become qualified to rise to the platform of a Vaiṣṇava.
+The next instruction is that one should put on flower garlands which are offered to the Deity. In this connection, in the Eleventh Canto, 6th Chapter, 31st verse, of *Śrīmad-Bhāgavatam,* Uddhava says to Kṛṣṇa, "My dear Kṛṣṇa, I have taken things which You have used and enjoyed, such as garlands of flowers, saintly articles, garments and ornaments, and I eat only the remnants of Your foodstuff because I am Your menial servant. So, therefore, I am sure that I shall not be attacked by the spell of material energy." The purport of this verse is that for any person who simply follows these rules and regulations of decorating the body with the marks of *tilaka* of *gopī-candana* or sandalwood pulp, and who puts on the garlands which were offered to Kṛṣṇa, there is no question of being conquered by the spell of material energy. At the time of death, there is no question of such a person being called by the constables of Yamarāj. Even if one does not accept all the Vaiṣṇava principles, but still takes the remnants of foodstuff offered to Kṛṣṇa, or *K* ṛṣṇa-prasādam, he will gradually become qualified to rise to the platform of a Vaiṣṇava.
 
 Similarly, in the *Skanda Purāṇa* Lord Brahmā tells Nārada, "My dear Nārada: anyone who puts on his neck the flower garland which was formerly used by Kṛṣṇa becomes relieved from all disease and reactions to sinful activities, and gradually he gets liberated from the contamination of matter."
 
@@ -680,7 +701,7 @@ In the *Skanda Purāṇa* there is a statement about submission unto the lotus f
 
 ### Submission in Feeling
 
-In the *Skanda Purāṇa* there is a statement by devotees praying to the Lord: "My Lord, I know that young girls have natural affection for young boys, and that young boys have natural affection for young girls. I am praying at Your lotus feet that my mind may become attracted unto You in the same spontaneous way." The example is very appropriate. When a young boy or girl sees a member of the opposite sex there is a natural attraction, without the need for any introduction. Without any training there is a natural attraction due to the sex impulse. This is a material example, but the devotee is praying that he may develop a similar spontaneous attachment for the Supreme Lord, free from any desire for profit and without any other cause. This natural attraction for the Lord is the perfectional stage of self-realization.
+In the *S* kāṇḍa Purāṇa* there is a statement by devotees praying to the Lord: "My Lord, I know that young girls have natural affection for young boys, and that young boys have natural affection for young girls. I am praying at Your lotus feet that my mind may become attracted unto You in the same spontaneous way." The example is very appropriate. When a young boy or girl sees a member of the opposite sex there is a natural attraction, without the need for any introduction. Without any training there is a natural attraction due to the sex impulse. This is a material example, but the devotee is praying that he may develop a similar spontaneous attachment for the Supreme Lord, free from any desire for profit and without any other cause. This natural attraction for the Lord is the perfectional stage of self-realization.
 
 In the same *Skanda Purāṇa* there is a statement about submission and humbleness. It is stated there: "My dear Lord, there is no sinful living entity who is more of a sinner than myself. Nor is there a greater offender than myself. I am so greatly sinful and offensive that when I come to confess my sinful activities before You, I am ashamed." This is a natural position for a devotee. As far as the conditioned soul is concerned, there is no wonder that he has some sinful activities in his past life, and this should be admitted and confessed before the Lord. As soon as this is done the Lord excuses the sincere devotee. But that does not mean that one should take advantage of the Lord's causeless mercy and expect to be excused over and over again, while he commits the same sinful activities. Such a mentality is only for shameless persons. Here it is clearly said, "When I come to confess my sinful activities I become ashamed." So if a person is not ashamed of his sinful activities and continues to commit the same sinful activities with the knowledge that the Lord will excuse him, that is a most nonsensical proposition. Such an idea is not accepted in any part of the Vedic literature. It is a fact that by chanting the holy name of the Lord one becomes washed clean of all sinful activities from his past life. But that does not mean that after being washed off, one should again begin sinful activities and expect to be washed again. These are nonsensical propositions and are not admitted in the devotional service. Someone may think: "For a whole week I may commit sinful activities, and for one day I will go to the temple or church and admit my sinful activities so that I can become washed off and again begin my sinning." This is most nonsensical and offensive and is not acceptable to the author of *Bhakti-rasāmṛta-sindhu.*
 
@@ -720,7 +741,7 @@ In the *Viṣṇu-dharmottara* there is a statement about touching the lotus fee
 
 But anyway, the present law is the law of all scripture-that if anyone is purified he can enter into the temple. Actually, that is the position. Only one who is properly initiated, who is properly following the rules and regulations, can enter and touch the Deity-not all. And one who touches the body of the Deity, following such regulative principles, is immediately delivered from the contamination of material sins, and all of his desires become fulfilled without delay.
 
-In the *Varāha Purāṇa, also,* there is a statement praising the touching of the Deity of Śrī Kṛṣṇa in the temple. A devotee says there: "My dear Vasundharā, any person who goes to Vṛndāvana and sees the Deity of Govindadeva is free from the courthouse of Yamarāj and is allowed to enter into the highest planetary system, in which reside the demigods." This means that even an ordinary person who goes to Vṛndāvana out of inquisitiveness and by chance sees the temple, especially that of Govindadeva, even if he is not elevated to the spiritual kingdom, is still assured promotion to the higher planetary systems. This means that simply by visiting the Deity of Govinda in Vṛndāvana one becomes highly elevated in pious life.
+In the *Varāha Purana,*also,* there is a statement praising the touching of the Deity of Śrī Kṛṣṇa in the temple. A devotee says there: "My dear Vasundharā, any person who goes to Vṛndāvana and sees the Deity of Govindadeva is free from the courthouse of Yamarāj and is allowed to enter into the highest planetary system, in which reside the demigods." This means that even an ordinary person who goes to Vṛndāvana out of inquisitiveness and by chance sees the temple, especially that of Govindadeva, even if he is not elevated to the spiritual kingdom, is still assured promotion to the higher planetary systems. This means that simply by visiting the Deity of Govinda in Vṛndāvana one becomes highly elevated in pious life.
 
 ## Observing Ārātrika and Celebrations of the Lord
 
@@ -730,8 +751,9 @@ As we have already explained, there are different ceremonies to be observed, suc
 
 In the *Garuḍa Purāṇa* it is stated: "Any person who in gladness sees the worship of the Deity in the temple will obtain the results of *kriyā-yoga* which are described in the *Pañcarātra* scripture." *Kriyā-yoga* is a system of practice much like practical devotional service, but it is especially meant for the mystic *yogīs.* In other words, by this gradual process, the mystic *yogīs* are eventually elevated to the devotional service of the Lord.
 
+### 10
 
-# Chapter 10: Techniques of Hearing and Memorizing
+10. Techniques of Hearing and Memorizing
 
 The beginning of Kṛṣṇa consciousness and devotional service is hearing, in Sanskrit called *śravaṇam.* All people should be given the chance to come and join devotional parties so that they may hear. This hearing is very important for progressing in Kṛṣṇa consciousness. When one links his ears to give aural reception to the transcendental vibrations he can quickly become purified and cleansed in the heart. Lord Caitanya has affirmed that this hearing is very important. It cleanses the heart of the contaminated soul so that he becomes quickly qualified to enter into devotional service and to understand Kṛṣṇa consciousness.
 
@@ -767,14 +789,15 @@ In the *Padma Purāṇa* there is a statement about remembering the activities o
 
 In some of the *Purāṇas* the evidence is given that if someone is simply meditating on devotional activities, he has achieved the desired result and has seen face to face the Supreme Personality of Godhead. In this connection, there is a story in the *Brahma-vaivarta Purāṇa* that in the city of Pratiṣṭhānapura in South India there was once a *brāhmaṇa* who was not very well-to-do, but who was nevertheless satisfied in himself, thinking that because of his past misdeeds, and by the desire of Kṛṣṇa, he did not get sufficient money and opulence. So he was not at all sorry for his poor material position, and he used to live very peacefully. He was very openhearted, and sometimes he went to hear some lectures delivered by great realized souls. At one such meeting, while he was very faithfully hearing about Vaiṣṇava activities, he was informed that these activities can be performed even by meditation. In other words, if a person is unable to actually perform Vaiṣṇava activities physically, he can meditate upon the Vaiṣṇava activities and thereby acquire all of the same results. Because the *brāhmaṇa* was not very well-to-do financially, he decided that he would simply meditate on grand, royal devotional activities, and he began this business thusly:
 
-Sometimes he would take his bath in the River Godāvarī. After taking his bath he would sit in a secluded place on the bank of the river, and, by practicing the *yoga* exercises of *prāṇāyāma,* the usual breathing exercise, he would concentrate his mind. This breathing exercise is meant to mechanically make the mind fixed upon a particular subject. That is the result of the breathing exercise and also of the different sitting postures of *yoga.* Formerly, even quite ordinary persons used to know how to fix the mind upon the remembrance of the Lord, and so the *brāhmaṇa* was doing this. When he had fixed the form of the Lord in his mind, he began to imagine in his meditations that he was dressing the Lord very nicely in costly clothing, with ornaments, helmets and other paraphernalia. Then he offered his respectful obeisances by bowing down before the Lord. After finishing the dressing he began to imagine that he was cleaning the temple very nicely. After cleansing the temple, he imagined that he had many water jugs made of gold and silver, and he took all those jugs to the river and filled them with the holy water. Not only did he collect water from Godāvarī, but he collected from the Ganges, Yamunā, Narmadā and Kāverī. Generally a Vaiṣṇava, while worshiping the Lord, collects water from all these rivers by *mantra* chanting. This *brāhmaṇa,* instead of chanting some *mantra,* imagined that he was physically securing water from all these rivers in golden and silver water pots. Then he collected all kinds of worshipful paraphernalia-flowers, fruits, incense and sandalwood pulp. He collected everything to place before the Deity. All these waters, flowers and scented articles were then very nicely offered to the Deities to Their satisfaction. Then he offered *ārātrika,* and with the regulative principles he finished all these activities in the correct worshiping method.
+Sometimes he would take his bath in the River Godāvarī. After taking his bath he would sit in a secluded place on the bank of the river, and, by practicing the *yoga* exercises of *prāṇāyāma,* the usual breathing exercise, he would concentrate his mind. This breathing exercise is meant to mechanically make the mind fixed upon a particular subject. That is the result of the breathing exercise and also of the different sitting postures of *yoga.* Formerly, even quite ordinary persons used to know how to fix the mind upon the remembrance of the Lord, and so the *brāhmaṇa* was doing this. When he had fixed the form of the Lord in his mind, he began to imagine in his meditations that he was dressing the Lord very nicely in costly clothing, with ornaments, helmets and other paraphernalia. Then he offered his respectful obeisances by bowing down before the Lord. After finishing the dressing he began to imagine that he was cleaning the temple very nicely. After cleansing the temple, he imagined that he had many water jugs made of gold and silver, and he took all those jugs to the river and filled them with the holy water. Not only did he collect water from Godāvarī, but he collected from the Ganges, Yamunā, Narmadā and Kāverī. Generally a *Vaisnava,*while worshiping the Lord, collects water from all these rivers by *mantra* chanting. This *brāhmaṇa,* instead of chanting some *mantra,* imagined that he was physically securing water from all these rivers in golden and silver water pots. Then he collected all kinds of worshipful paraphernalia-flowers, fruits, incense and sandalwood pulp. He collected everything to place before the Deity. All these waters, flowers and scented articles were then very nicely offered to the Deities to Their satisfaction. Then he offered *ārātrika,* and with the regulative principles he finished all these activities in the correct worshiping method.
 
 He would daily execute similar performances as his routine work, and he continued to do so for many, many years. Then one day the *brāhmaṇa* imagined in his meditations that he had prepared some sweet rice with milk and sugar and offered the preparation to the Deity. However, he was not very satisfied with the offering because the sweet rice had been prepared recently and it was still very hot. (This preparation, sweet rice, should not be taken hot. The cooler the sweet rice, the better its taste.) So because the sweet rice was prepared by the *brāhmaṇa* very recently, he wanted to touch it so that he could know whether it was fit for eating by the Lord. As soon as he touched the sweet rice pot with his finger, he immediately was burnt by the heat of the pot. In this way, his meditation broke. Now, when he looked at his finger, he saw that it was burnt, and he was wondering in astonishment how this could have happened. Because he was simply meditating on touching the hot sweet rice, he never thought that his finger would actually become burnt.
 
 While he was thinking like this, in Vaikuṇṭha Lord Nārāyaṇa, seated with the goddess of fortune, Lakṣmī, began to smile humorously. On seeing this smiling of the Lord, all the goddesses of fortune who were attending the Lord became very curious and asked Lord Nārāyaṇa why He was smiling. The Lord, however, did not reply to their inquisitiveness, but instead immediately sent for the *brāhmaṇa.* An airplane sent from Vaikuṇṭha immediately brought the *brāhmaṇa* into Lord Nārāyaṇa's presence. When the *brāhmaṇa* was thus present before the Lord and the goddesses of fortune, the Lord explained the whole story. The *brāhmaṇa* was then fortunate enough to get an eternal place in Vaikuṇṭha in the association of the Lord and His Lakṣmīs. This shows how the Lord is all-pervading, in spite of His being locally situated in His abode. Although the Lord was present in Vaikuṇṭha, He was present also in the heart of the *brāhmaṇa* when he was meditating on the worshiping process. Thus, we can understand that things offered by the devotees even in meditation are accepted by the Lord, and they help one achieve the desired result.
 
+### 11
 
-# Chapter 11: Aspects of Transcendental Service
+11. Aspects of Transcendental Service
 
 ## Servitorship
 
@@ -802,7 +825,7 @@ Sometimes it is found that a pure devotee lies down in the temple of the Lord in
 
 Regarding complete self-surrender, there is a nice description in the Eleventh Canto of *Śrīmad-Bhāgavatam,* 29th Chapter, 32nd verse, where the Lord says: "A person who has completely surrendered unto Me and has completely given up all other activities is protected by Me personally, both in this life and in the next. In other words, I wish to help him become more and more advanced in spiritual life. Such a person is to be understood as having already achieved *sārṣṭi* [having equal opulences with the supreme]." It is also confirmed in the  *Bhagavad-gītā* that as soon as a person surrenders unto the lotus feet of Kṛṣṇa, Kṛṣṇa takes charge of him and gives him a guarantee of protection from all sinful reactions. He also instructs from within, so that the devotee may very quickly make advancement towards spiritual perfection.
 
-This self-surrender is called *ātma-nivedana.* According to different authorities, "*self"* is differently defined. "S*elf"* is sometimes considered to refer to the spirit self, or soul, and "*self"* is sometimes considered to refer to the mind or to the body. Full self-surrender, therefore, means not only surrendering one's self as spirit soul, but also surrendering one's mind and body to the service of the Lord. Śrīla Bhaktivinode Thākur has sung a nice song in this connection. While offering himself as a fully surrendered soul, he said, "My mind, my household affairs, my body, whatever is in my possession, my dear Lord, I offer to You for Your service. Now You can do with them as You like. You are the supreme possessor of everything, so if You like You can kill me, or if You like You can give me protection. All authority belongs to You. I have nothing to claim as my own."
+This self-surrender is called *ātma-nivedana.* According to different authorities, "*self"* is differently defined. "S* elf"* is sometimes considered to refer to the spirit self, or soul, and "*self"* is sometimes considered to refer to the mind or to the body. Full self-surrender, therefore, means not only surrendering one's self as spirit soul, but also surrendering one's mind and body to the service of the Lord. Śrīla Bhaktivinode Thākur has sung a nice song in this connection. While offering himself as a fully surrendered soul, he said, "My mind, my household affairs, my body, whatever is in my possession, my dear Lord, I offer to You for Your service. Now You can do with them as You like. You are the supreme possessor of everything, so if You like You can kill me, or if You like You can give me protection. All authority belongs to You. I have nothing to claim as my own."
 
 Śrī Yāmunācārya, in his prayers to the Lord, has expressed a similar idea in the following words: "My dear Lord, I may be living within some body as a human being or as a demigod, but whatever mode of life, I do not mind, because these bodies are simply by-products of the three modes of material nature, and I, who am in possession of these bodies, am surrendering myself unto You."
 
@@ -826,8 +849,9 @@ In India every Hindu, even those not belonging to the Vaiṣṇava group, take s
 
 In the *Skanda Purāṇa* there is another statement about *tulasī,* as follows: "*Tulasī* is auspicious in all respects. Simply by seeing, simply by touching, simply by remembering, simply by praying to, simply by bowing before, simply by hearing about or simply by sowing this tree, there is always auspiciousness. Anyone who comes in touch with the *tulasī* tree in the above-mentioned ways lives eternally in the Vaikuṇṭha world."
 
+### 12
 
-# Chapter 12: Revealed Scriptures
+12. Revealed Scriptures
 
 According to Śrīla Rūpa Gosvāmī, any book which gives enlightenment in the matter of advancing devotional service is considered to be revealed scripture. Śrīla Madhvācārya has also defined *revealed scriptures* as referring to books such as the *Rāmāyaṇa, Mahābhārata, Purāṇas, Upaniṣads, Vedānta*—and any other literature which is written in pursuance of such revealed scriptures.
 
@@ -865,7 +889,7 @@ This statement of the *Bhaviṣya Purāṇa* gives evidence that by observing di
 
 ## Recitation of Śrīmad-Bhāgavatam
 
-*Śrīmad-Bhāgavatam* is the desire-tree of Vedic wisdom. *Veda* itself means the aggregate of knowledge. And whatever knowledge is required for human society is perfectly presented in the *Śrīmad-Bhāgavatam.* There are different branches of knowledge in the Vedic writings, including sociology, politics, medicine and military art. All these and other branches of knowledge are perfectly described in the *Vedas.* So, as far as spiritual knowledge is concerned, that is also perfectly described there, and *Śrīmad-Bhāgavatam* is considered to be the ripened fruit of this desire-fulfilling tree of the *Vedas.* A tree is honored by the production of its fruit. For example, a mango tree is considered very valuable because it produces the king of all fruits, the mango. When the mango fruit becomes ripened it is the greatest gift of that tree, and *Śrīmad-Bhāgavatam* is similarly held to be the ripened fruit of the Vedic tree. And, as ripened fruit becomes more relishable when first touched by the beak of a parrot, or *śuka, so Śrīmad-Bhāgavatam* has become more relishable by being delivered through the transcendental mouth of Śukadeva Gosvāmī.
+*Śrīmad-Bhāgavatam* is the desire-tree of Vedic wisdom. *Veda* itself means the aggregate of knowledge. And whatever knowledge is required for human society is perfectly presented in the *Śrīmad-Bhāgavatam.* There are different branches of knowledge in the Vedic writings, including sociology, politics, medicine and military art. All these and other branches of knowledge are perfectly described in the *Vedas.* So, as far as spiritual knowledge is concerned, that is also perfectly described there, and *Śrīmad-Bhāgavatam* is considered to be the ripened fruit of this desire-fulfilling tree of the *Vedas.* A tree is honored by the production of its fruit. For example, a mango tree is considered very valuable because it produces the king of all fruits, the mango. When the mango fruit becomes ripened it is the greatest gift of that tree, and *Śrīmad-Bhāgavatam* is similarly held to be the ripened fruit of the Vedic tree. And, as ripened fruit becomes more relishable when first touched by the beak of a parrot, or suka,*so*Srimad-Bhāgavatam has become more relishable by being delivered through the transcendental mouth of Śukadeva Gosvāmī.
 
 *Śrīmad-Bhāgavatam* should be received in disciplic succession without any breakage. When a ripened fruit comes from the upper part of the tree onto the ground by the process of being handed down from a higher branch to a lower branch by persons in the tree, the fruit does not break. *Śrīmad-Bhāgavatam,* when received in the *paramparā* system, or disciplic succession, will likewise remain unbroken. It is stated in the *Bhagavad-gītā* that the disciplic succession, or *paramparā,* is the way of receiving transcendental knowledge. Such knowledge must come down through the disciplic succession, through authorized persons who know the real purpose of the *śāstra.*
 
@@ -877,8 +901,11 @@ The importance of discussing *Śrīmad-Bhāgavatam* in the society of pure devot
 
 In the *Hari-bhakti-sudhodaya* there is a conversation between Prahlāda Mahārāj and his father, Hiraṇyakaśipu, in which Hiraṇyakaśipu addresses Prahlāda in this way: "My dear son, association is very important. It acts just like a crystal- stone which will reflect anything which is put before it." Similarly, if we associate with the flowerlike devotees of the Lord, and if our hearts are crystal clear, then certainly the same action will be there. Another example given in this connection is that if a man is potent and if a woman is not diseased, then by their conjugation there will be conception. In the same way, if the recipient of spiritual knowledge and the deliverer of spiritual knowledge are sincere and bona fide, there will be good results.
 
+### 13
 
-# Chapter 13: The Mahā-mantra
+13. The Mahā-mantra
+
+## The Mahā-mantra
 
 The importance of chanting Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare is very strongly stressed in the Second Canto, 1st Chapter, 11th verse, of the *Śrīmad-Bhāgavatam* in the following way. Śukadeva Gosvāmī tells Mahārāj Parīkṣit: "My dear King, if one is spontaneously attached to the chanting of the Hare Kṛṣṇa *mahā-mantra,* it is to be understood that he has attained the highest perfectional stage." It is specifically mentioned that the *karmīs* who are aspiring after the fruitive results of their activities, the salvationists who are aspiring to become one with the Supreme Person, and the *yogīs* who are aspiring after mystic perfections can achieve the results of all perfectional stages simply by chanting the *mahā-mantra.* Śukadeva uses the word *nirṇītam,* which means "it is already decided." He was a liberated soul and therefore could not accept anything which was not conclusive. So Śukadeva Gosvāmī especially stresses that it is already concluded that one who has come to the stage of chanting the Hare Kṛṣṇa *mantra* with determination and steadiness must be considered to have already passed the trials of fruitive activities, mental speculation and mystic *yoga.*
 
@@ -888,7 +915,7 @@ In the *Padma Purāṇa* also it is stated: "The chanting of the Hare Kṛṣṇ
 
 Caitanya Mahāprabhu has recommended that everyone chant the Hare Kṛṣṇa *mantra* just to cleanse the dust from the heart. If the dust of the heart is cleansed away, then one can actually understand the importance of the holy name. For persons who are not inclined to clean the dust from their heart and want to keep things as they are, it is not possible to derive the transcendental result of chanting the Hare Kṛṣṇa *mantra.* One should, therefore, be encouraged to develop his service attitude toward the Lord, because this will help him to chant without any offense. And so, under the guidance of a spiritual master, the disciple is trained simultaneously to render service and at the same time to chant the Hare Kṛṣṇa *mantra.* As soon as one develops his spontaneous service attitude, he can immediately understand the transcendental nature of the holy names of the *mahā-mantra.*
 
-In the *Padma Purāṇa* there is a statement about the importance of living at holy places like Mathurā or Dvārakā. It is stated there: "To travel to different places of pilgrimage means to attain emancipation from material bondage. This emancipation, however, is not the highest perfectional stage. After attaining this liberated stage, one has to become engaged in devotional service to the Lord. After attainment of the *brahma-bhūta* [[sb/4/30/20|[SB 4.30.20] ]] [liberation] stage one can further advance to engagement in devotional service. So this attainment of transcendental loving devotional service to the Lord is the goal of life, and it can be achieved very easily for one who lives in Mathurā-maṇḍala even for a few seconds."
+In the *Padma Purāṇa* there is a statement about the importance of living at holy places like Mathurā or Dvārakā. It is stated there: "To travel to different places of pilgrimage means to attain emancipation from material bondage. This emancipation, however, is not the highest perfectional stage. After attaining this liberated stage, one has to become engaged in devotional service to the Lord. After attainment of the brahma-bhuta*[*SB 4.30.20] ]] [liberation] stage one can further advance to engagement in devotional service. So this attainment of transcendental loving devotional service to the Lord is the goal of life, and it can be achieved very easily for one who lives in Mathurā-maṇḍala even for a few seconds."
 
 It is further said: "Who is that person who will not agree to worship the land of Mathurā? Mathurā can deliver all the desires and ambitions of the fruitive workers and of the salvationists, who desire to become one with the supreme Brahman. Certainly Mathurā will deliver the desires of the devotees, who simply aspire to be engaged in the devotional service of the Lord." In the Vedic literature it is also stated: "How wonderful it is that simply by residing in Mathurā even for one day, one can achieve a transcendental loving attitude toward the Supreme Personality of Godhead! This land of Mathurā must be more glorious than Vaikuṇṭha-dhāma, the kingdom of God!"
 
@@ -916,8 +943,11 @@ Some scholars argue that simply by following the principles of *varṇa* and *ā
 
 In the Eleventh Canto, 20th Chapter, 8th verse, of the *Śrīmad-Bhāgavatam* the Lord Himself says: "One should execute the prescribed duties of *varṇa* and *āśrama* as long as he has not developed spontaneous attachment for hearing about My pastimes and activities." In other words, the prescribed forms of *varṇa* and *āśrama* are ritualistic ceremonies of religion intended for economic development, sense gratification or for salvation. All of these things are recommended for persons who have not developed Kṛṣṇa consciousness; in fact, all such activities are recommended in the revealed scriptures only to bring one to the point of Kṛṣṇa consciousness. But one who has already developed spontaneous attachment for Kṛṣṇa does not require to execute the duties prescribed in the scriptures.
 
+### 14
 
-# Chapter 14: Devotional Qualifications
+14. Devotional Qualifications
+
+## Devotional Qualifications
 
 Some scholars recommend that knowledge and renunciation are important factors for elevating oneself to devotional service. But actually that is not a fact. Actually, the cultivation of knowledge or renunciation, which are favorable for achieving a footing in Kṛṣṇa consciousness, may be accepted in the beginning, but ultimately they may also come to be rejected, for devotional service is dependent on nothing other than the sentiment or desire for such service. It requires nothing more than sincerity.
 
@@ -953,14 +983,17 @@ In this connection, there is a story in the *Skanda Purāṇa* about a hunter wh
 
 There are concrete examples of how a devotee discharged one of these services and achieved perfection. King Parīkṣit achieved the desired goal of life simply by hearing *Śrīmad-Bhāgavatam.* Śukadeva Gosvāmī achieved the desired goal of life simply by reciting *Śrīmad-Bhāgavatam.* Prahlāda Mahārāj became successful in his devotional service by always remembering the Lord. Lakṣmī, the goddess of fortune, was successful by engaging herself in massaging the lotus feet of the Lord. King Pṛthu became successful by worshiping in the temple. Akrūra became successful by offering prayers. Hanumān became successful by rendering personal service to Lord Rāmacandra. Arjuna became successful by being a friend of Kṛṣṇa. And Bali Mahārāj became successful simply by offering all of his possessions to Kṛṣṇa.
 
-There are also examples of devotees who discharged all the different items together. In the Ninth Canto, 4th Chapter, 15th, 16th and 17th verses, of the *Śrīmad-Bhāgavatam,* there is a statement about Mahārāj Ambarīṣa, who followed every one of the devotional processes. In these verses, Śukadeva Gosvāmī says, "King Ambarīṣa first of all concentrated his mind on the lotus feet of Lord Kṛṣṇa and then engaged his speech in describing the pastimes and activities of the Lord. He engaged his hands in washing the temple of the Lord. He engaged his ears in hearing of the transcendental glories of the Lord. He engaged his eyes in seeing the beautiful Deity in the temple. He engaged his body in associating with the pure devotees of the Lord. [When you associate with someone you have to sit down together, eat together, etc.-and in this way the touch of your body with their body is inevitable. Ambarīṣa Mahārāj made his association only with pure devotees and did not allow his body to be touched by anyone else.] He engaged his nostrils in smelling the flowers and *tulasī* offered to Kṛṣṇa, and he engaged his tongue in tasting Kṛṣṇa-*prasādam* [food prepared specifically for offering to the Lord, the remnants of which are taken by the devotees]. Mahārāj Ambarīṣa was able to offer very nice *prasādam* to Kṛṣṇa because he was a king and had no scarcity of finance. He used to offer Kṛṣṇa the most royal dishes and would then taste the remnants as K*ṛṣṇa-prasādam.* There was no scarcity in his royal style, because he had a very beautiful temple wherein the Deity of the Lord was decorated with costly paraphernalia and offered high grade food. So everything was available, and his engagement was always completely in Kṛṣṇa consciousness."
+There are also examples of devotees who discharged all the different items together. In the Ninth Canto, 4th Chapter, 15th, 16th and 17th verses, of the *Śrīmad-Bhāgavatam,* there is a statement about Mahārāj Ambarīṣa, who followed every one of the devotional processes. In these verses, Śukadeva Gosvāmī says, "King Ambarīṣa first of all concentrated his mind on the lotus feet of Lord Kṛṣṇa and then engaged his speech in describing the pastimes and activities of the Lord. He engaged his hands in washing the temple of the Lord. He engaged his ears in hearing of the transcendental glories of the Lord. He engaged his eyes in seeing the beautiful Deity in the temple. He engaged his body in associating with the pure devotees of the Lord. [When you associate with someone you have to sit down together, eat together, etc.-and in this way the touch of your body with their body is inevitable. Ambarīṣa Mahārāj made his association only with pure devotees and did not allow his body to be touched by anyone else.] He engaged his nostrils in smelling the flowers and *tulasī* offered to Kṛṣṇa, and he engaged his tongue in tasting Kṛṣṇa-*prasādam* [food prepared specifically for offering to the Lord, the remnants of which are taken by the devotees]. Mahārāj Ambarīṣa was able to offer very nice *prasādam* to Kṛṣṇa because he was a king and had no scarcity of finance. He used to offer Kṛṣṇa the most royal dishes and would then taste the remnants as K* rsna*-prasādam. There was no scarcity in his royal style, because he had a very beautiful temple wherein the Deity of the Lord was decorated with costly paraphernalia and offered high grade food. So everything was available, and his engagement was always completely in Kṛṣṇa consciousness."
 
 The idea is that we should follow in the footsteps of great devotees. If we are unable to execute all the different items of devotional service, we must try to execute at least one of them, as exemplified by previous *ācāryas.* If we are engaged in the execution of all the items of devotional service, as was Mahārāj Ambarīṣa, then the perfection of devotional service is guaranteed from each one of these items. With the first complete engagement, one becomes automatically detached from material contamination, and liberation becomes the maidservant of the devotee. This idea is confirmed by Bilvamaṅgala Thākur: If one develops unalloyed devotion to the Lord, liberation will follow the devotee as his maidservant.
 
 Śrīla Rūpa Gosvāmī says that the regulative principles of devotional service are sometimes described by authorities as the path of serving the Lord in opulence.
 
+### 15
 
-# Chapter 15: Spontaneous Devotional Service
+15. Spontaneous Devotional Service
+
+## Spontaneous Devotional Service
 
 The examples of spontaneous devotional service can be easily seen in Kṛṣṇa's direct associates in Vṛndāvana. The spontaneous dealings of the residents of Vṛndāvana in relationship with Kṛṣṇa are called *rāgānugā.* These beings don't have to learn anything about devotional service; they are already perfect in all regulative principles and have achieved the spontaneous loving service of the Supreme Personality of Godhead. For example, the cowherd boys who are playing with Kṛṣṇa do not have to learn by austerities or penances or yogic practice how to play with Him. They have passed all tests of regulative principles in their previous lives, and as a result they are now elevated to the position of direct association with Kṛṣṇa as His dear friends. Their spontaneous attitude is called *rāgānugā-bhakti.*
 
@@ -994,8 +1027,9 @@ Great devotees up to the standard of Uddhava are very dear friends of the Lord, 
 
 On the other hand, the lusty desire of Kubjā is described by learned scholars as being "almost lusty desire." Kubjā was a hunchback woman who also wanted Kṛṣṇa with a great ecstatic love. But her desire for Kṛṣṇa was almost mundane, and so her love cannot be compared with the love of the *gopīs.* Her loving affection for Kṛṣṇa is called *kāma-prāyā,* or almost like the *gopīs'* love for Kṛṣṇa.
 
+### 16
 
-# Chapter 16: Varieties of Love for Kṛṣṇa
+16. Varieties of Love for Kṛṣṇa
 
 ## Parental Relationship
 
@@ -1041,8 +1075,11 @@ In the *Skanda Purāṇa* there is a story of an old man residing in Hastināpur
 
 There is a statement in the *Nārāyaṇa-vyūha-stava* prayers that persons who are always engaged in thinking of the Lord as their husband, friend, father or well-wisher are always worshipable by everyone. This spontaneous love for Kṛṣṇa can only be developed by the special mercy of Kṛṣṇa or His pure devotee. This process of devotional service is sometimes called *puṣṭi-mārga. Puṣṭi* means nourishing, and *mārga* means path. Such development of sentiment nourishes devotional service to the highest standard. Thus it is called the path of nourishment, or *puṣṭi-mārga.* The Vallabha-sampradāya, which belongs to the Viṣṇu-svāmī sect of Vaiṣṇava religion, worships Kṛṣṇa in this *puṣṭi-mārga.* Generally devotees in Gujarat worship Bāla-Kṛṣṇa, under this heading of *puṣṭi-mārga.*
 
+### 17
 
-# Chapter 17: Ecstatic Love
+17. Ecstatic Love
+
+## Ecstatic Love
 
 By the process of executing regulated devotional service, one is actually elevated onto the transcendental stage, beyond the material modes of nature. At that time one's heart becomes illuminated like the sun. The sun is far above the planetary systems, and there is no possibility of its being covered by any kind of cloud; similarly, when a devotee is purified like the sun, from his pure heart there is a diffusion of ecstatic love which is more glorious than the sunshine. Only at that time is the attachment to Kṛṣṇa perfect. Spontaneously, the devotee becomes eager to serve the Lord in his ecstatic love. At this stage the devotee is on the platform of *uttama adhikārī,* perfect devotion. Such a devotee has no agitation from material affections and is interested only in the service of Rādhā and Kṛṣṇa.
 
@@ -1074,8 +1111,9 @@ There is a statement in the *Skanda Purāṇa* wherein Parvata Muni tells Nārad
 
 This ecstatic love for Kṛṣṇa can be divided into five divisions, which will be described by Śrī Rūpa Gosvāmī later on.
 
+### 18
 
-# Chapter 18: Character of One in Ecstatic Love
+18. Character of One in Ecstatic Love
 
 Rūpa Gosvāmī next describes the characteristics of a person who has actually developed his ecstatic love for Kṛṣṇa. The characteristics are as follows:
 
@@ -1153,8 +1191,9 @@ If one can gradually advance his status in devotional service, it is to be under
 
 In the *Nṛsiṁha Purāṇa* it is stated: "If a person has completely engaged his mind, body and activities in the service of the Supreme Godhead, and externally he is found to be engaged in some abominable activities, these abominable activities will surely be very quickly vanquished by the influence of his staunch devotional force." The example is given that on the full moon there are some spots which may appear to be pockmarks. Still, the illumination spread by the full moon cannot be checked. Similarly, a little fault in the midst of volumes of devotional service is not at all to be counted as fault. Attachment for Kṛṣṇa is transcendental bliss. Amidst unlimited volumes of transcendental bliss, a spot of some material defect cannot act in any way.
 
+### 19
 
-# Chapter 19: Devotional Service in Love of God
+19. Devotional Service in Love of God
 
 When one's desire to love Kṛṣṇa in his particular relationship becomes intensified, this is known as pure love of Godhead. In the beginning a devotee is engaged in the regulative principles of devotional service by the order of his spiritual master. When one thereby becomes completely purified of all material contamination, there develops an attachment and taste for devotional service. This taste and attachment, when gradually intensified in the course of time, becomes love. The word "*love"* can only be actually applied in relationship with the Personality of Godhead. In the material world, love is not applicable at all. What goes on under the name of love in the material world is nothing but lust. There is a gulf of difference between love and lust, like the difference between gold and iron. In the *Nārada-pañcarātra* it is clearly stated that when lust is completely transferred to the Supreme Godhead and the concept of kinship is completely reposed in Him, such is accepted as pure love of God by great authorities like Bhīṣma, Prahlāda, Uddhava and Nārada.
 
@@ -1186,10 +1225,11 @@ Affection and the dealings of love are different branches of the original tree o
 
 Śrī Rūpa Gosvāmī thus concludes the first division of the *Bhakti-rasāmṛta-sindhu,* offering up his treatise for the transcendental pleasure of Sanātana Gosvāmī, who has established the transcendental beauty, and of Gopāla Bhaṭṭa Gosvāmī, Śrī Raghunātha Bhaṭṭa Gosvāmī and Raghunāthadās Gosvāmī. It appears from this statement that the great Śrīla Jīva Gosvāmī was not yet active when *Bhakti-rasāmṛta-sindhu* was written.
 
-*Thus ends the Bhaktivedanta summary study of the first division of* Bhakti-rasāmṛta-sindhu, *up to the descriptions of ecstatic love of Godhead, which are to follow next.*
+### 20
 
+20. Transcendental Mellow
 
-# Chapter 20: Transcendental Mellow
+## Transcendental Mellow
 
 In this second division of *Bhakti-rasāmṛta-sindhu* the author offers his respectful obeisances unto "Sanātana." This Sanātana can be interpreted as either Śrī Kṛṣṇa Himself or as Sanātana Gosvāmī, the elder brother and spiritual master of Rūpa Gosvāmī. In the case where Sanātana is accepted to mean Śrī Kṛṣṇa, the obeisances are offered to Kṛṣṇa because He is naturally so beautiful and because He is the killer of the demon Agha. If it is interpreted to mean Sanātana Gosvāmī, then it is because he is so greatly favored by Rūpa Gosvāmī, being always served by him, and because he is the annihilator of all kinds of sinful activities. In this division of *Bhakti-rasāmṛta-sindhu* the author wants to describe the general symptoms of the transcendental mellow (loving mood) of discharging devotional service.
 
@@ -1211,8 +1251,9 @@ There are eight transcendental symptoms found in the body during ecstasy, and al
 
 Lord Kṛṣṇa, who is the possessor of inconceivable potencies and qualities of transcendental knowledge and bliss, is the basic cause of ecstatic love. Lord Kṛṣṇa also becomes the reservoir (impetus) of ecstatic love by His different incarnations and expansions. In the *Śrīmad-Bhāgavatam* there is a statement in connection with the *brahma-vimohana-līlā,* which demonstrates something of this impetuous feature of ecstatic love. When Brahmā was deluded by Kṛṣṇa, who expanded Himself into so many cowherd boys, calves and cows, Kṛṣṇa's elder brother, Śrī Baladeva (a direct expansion of Kṛṣṇa Himself), felt astonishment and said, "How wonderful it is that My ecstatic love for Kṛṣṇa is again being attracted to so many cowherd boys, calves and cows!" He was struck with wonder by thinking in this way. This is one of the examples in which Kṛṣṇa Himself becomes the object and reservoir of ecstatic love in the impetuous aspect.
 
+### 21
 
-# Chapter 21: Qualities of Śrī Kṛṣṇa
+21. Qualities of Śrī Kṛṣṇa
 
 Personal features can be divided into two: one feature is covered, and the other feature is manifested. When Kṛṣṇa is covered by different kinds of dress, His personal feature is covered. There is an example of His covered personal feature in the *Śrīmad-Bhāgavatam* in connection with His *Dvārakā līlā* (His residence in Dvārakā as its king). Sometimes Lord Kṛṣṇa began to play by dressing Himself like a woman. Seeing this form, Uddhava said, "How wonderful it is that this woman is attracting my ecstatic love exactly as Lord Kṛṣṇa does. I think she must be Kṛṣṇa covered by the dress of a woman!"
 
@@ -1294,7 +1335,7 @@ When a person is highly educated and acts strictly on moral principles, he is ca
 
 Kṛṣṇa's receiving education from Sāndīpani Muni is described by Śrī Nārada Muni as follows: "In the beginning, Lord Brahmā and others are as clouds of evaporated water from the great ocean of Kṛṣṇa. In other words, Brahmā first received the Vedic education from Kṛṣṇa, as the clouds receive water from the ocean. That Vedic education or instruction which was spoken by Brahmā to the world was then reposed upon the mountain of Sāndīpani Muni. Sāndīpani Muni's instructions to Kṛṣṇa are like a reservoir of water on the mountain, which flows as a river and goes again to mix with the source, the ocean of Kṛṣṇa." To be more clear, the idea is that Kṛṣṇa actually cannot be instructed by anyone, just as the ocean does not receive water from any source but itself. It only appears that the rivers are pouring water into the ocean. So it is clear that Brahmā received his education from Kṛṣṇa, and from Brahmā, via the disciplic succession, this Vedic instruction was distributed. Sāndīpani Muni is likened to the river which is flowing down again to that same original ocean of Kṛṣṇa.
 
-The Siddhas, the inhabitants of Siddha-loka (where all are born with fully developed mystic powers), and the Cāraṇas, the inhabitants of a similar planet, pray to Kṛṣṇa as follows: "My Lord Govinda, the goddess of learning, who is decorated with fourteen kinds of educational ornaments, whose intelligence is all-pervading within the four departments of the *Vedas,* whose attention is always on the lawbooks given by great sages like Manu, and who is appareled in six kinds of expert knowledge—namely Vedic evidence, grammar, astrology, rhetoric, vocabulary, and logic, and whose constant friends are the supplements of the *Vedas* and *Purāṇas,* decorated with the final conclusion of all education—has now acquired an opportunity to sit with You as a class friend in school, and she is now engaged in Your service."
+The Siddhas, the inhabitants of Siddha-loka (where all are born with fully developed mystic powers), and the Cāraṇas, the inhabitants of a similar planet, pray to Kṛṣṇa as follows: "My Lord Govinda, the goddess of learning, who is decorated with fourteen kinds of educational ornaments, whose intelligence is all-pervading within the four departments of the *Vedas,* whose attention is always on the lawbooks given by great sages like Manu, and who is appareled in six kinds of expert knowledge—namely Vedic evidence, grammar, astrology, rhetoric, vocabulary, and logic, and whose constant friends are the supplements of the *Vedas* and *Purāṇas,* decorated with the final conclusion of all education- has now acquired an opportunity to sit with You as a class friend in school, and she is now engaged in Your service."
 
 Kṛṣṇa, the Supreme Personality of Godhead, does not require any education, but He gives a chance to the goddess of learning to serve Him. Being self-sufficient, Kṛṣṇa does not require the service of any living entity, although He has many devotees. It is because Kṛṣṇa is so kind and merciful that He gives the opportunity to everyone to serve Him, as though He required the service of His devotees.
 
@@ -1346,7 +1387,7 @@ There is another promise by Kṛṣṇa in the *Bhagavad-gītā* to the effect t
 
 Kṛṣṇa showed how He fulfills His promise by delivering the *pārijāta* flower to Satyabhāmā, by saving Draupadī from being insulted and by freeing Arjuna from the attacks of all enemies.
 
-The promise of Kṛṣṇa that His devotees are never vanquished had also previously been admitted by Indra when he was defeated in the *Govardhana-līlā.* When Kṛṣṇa stopped the villagers of Braja (Vṛndāvana) from worshiping Indra, Indra became angry and therefore inundated Vṛndāvana with continuous rain. Kṛṣṇa, however, protected all of the citizens and animals of Vṛndāvana by lifting Govardhan Hill, which served as an umbrella. After the incident was over, Indra surrendered to Kṛṣṇa with many prayers, in which he admitted, "By Your lifting Govardhan Hill and protecting the citizens of Vṛndāvana, You have kept Your promise that Your devotees are never to be vanquished."
+The promise of Kṛṣṇa that His devotees are never vanquished had also previously been admitted by Indra when he was defeated in the *Govardhana-līlā.* When Kṛṣṇa stopped the villagers of Braja (Vṛndāvana) from worshiping Indra, Indra became angry and therefore inundated Vṛndāvana with continual rain. Kṛṣṇa, however, protected all of the citizens and animals of Vṛndāvana by lifting Govardhan Hill, which served as an umbrella. After the incident was over, Indra surrendered to Kṛṣṇa with many prayers, in which he admitted, "By Your lifting Govardhan Hill and protecting the citizens of Vṛndāvana, You have kept Your promise that Your devotees are never to be vanquished."
 
 ## 19. Expert Judge of Time and Circumstances
 
@@ -1360,7 +1401,7 @@ A person who acts exactly according to the tenets of scripture is called *śāst
 
 There are two kinds of supreme purity. When one type is possessed, one is able to deliver a sinful person. When the other type is possessed, one does not do anything which is impure. A person who possesses either of these qualities is called supremely pure. Kṛṣṇa is both; He can deliver all sinful conditioned souls, and at the same time, He never does anything by which He can be contaminated.
 
-In this connection, Vidura, while trying to detach his elder brother, Dhṛtarāṣṭra, from his familial attachments, said, "My dear brother, you just fix your mind on the lotus feet of Kṛṣṇa, who is worshiped with beautiful erudite verses by great sages and saintly persons. Kṛṣṇa is the supreme deliverer amongst all other deliverers. Undoubtedly there are great demigods like Lord Śiva and Lord Brahmā, but their positions as deliverers depend always upon the mercy of Kṛṣṇa." Therefore Vidura advised his elder brother Dhṛtarāṣṭra to concentrate his mind and worship only Kṛṣṇa. If one simply chants the holy name of Kṛṣṇa, this holy name will rise within one's heart like the powerful sun and will immediately dissipate all the darkness of ignorance. Vidura advised Dhṛtarāṣṭra to therefore think always of Kṛṣṇa so that the volumes of contaminations due to sinful activities would be washed off immediately. In the *Bhagavad-gītā* also Kṛṣṇa is addressed by Arjuna as *paraṁ brahma paraṁ dhāma pavitram* [[bg/10/12-13|[Bg. 10.12] ]]—the supreme pure. There are many other instances exhibiting Kṛṣṇa's supreme purity.
+In this connection, Vidura, while trying to detach his elder brother, Dhṛtarāṣṭra, from his familial attachments, said, "My dear brother, you just fix your mind on the lotus feet of Kṛṣṇa, who is worshiped with beautiful erudite verses by great sages and saintly persons. Kṛṣṇa is the supreme deliverer amongst all other deliverers. Undoubtedly there are great demigods like Lord Śiva and Lord Brahmā, but their positions as deliverers depend always upon the mercy of Kṛṣṇa." Therefore Vidura advised his elder brother Dhṛtarāṣṭra to concentrate his mind and worship only Kṛṣṇa. If one simply chants the holy name of Kṛṣṇa, this holy name will rise within one's heart like the powerful sun and will immediately dissipate all the darkness of ignorance. Vidura advised Dhṛtarāṣṭra to therefore think always of Kṛṣṇa so that the volumes of contaminations due to sinful activities would be washed off immediately. In the *Bhagavad-gītā* also Kṛṣṇa is addressed by Arjuna as *paraṁ brahma paraṁ dhāma pavitram* [*Bg*.*10.12*]*-the supreme pure. There are many other instances exhibiting Kṛṣṇa's supreme purity.
 
 ## 22. Self-controlled
 
@@ -1424,8 +1465,9 @@ It is said that because Kṛṣṇa was constantly performing various types of s
 
 Sometimes it is inquired, "Why don't the demigods from higher planetary systems come to this earth planet nowadays?" The plain answer is that since Lord Buddha appeared and began to deprecate the performance of sacrifice in order to stop animal killing on this planet, the process of offering sacrifices has been stopped, and the demigods do not care to come here anymore.
 
+### 22
 
-# Chapter 22: Qualities of Kṛṣṇa Further Explained
+22. Qualities of Kṛṣṇa Further Explained
 
 ## 31. Heroic
 
@@ -1583,7 +1625,7 @@ This means that Kṛṣṇa's transcendental body is eternal, full of knowledge 
 
 It is confirmed by the statement of *Brahma-saṁhitā* that the Brahman effulgence is the bodily ray of Kṛṣṇa; the Brahman effulgence is simply an exhibition of the energy of Kṛṣṇa. Kṛṣṇa is the source of the Brahman effulgence, as He Himself confirms in the *Bhagavad-gītā.* From this we can conclude that the impersonal feature of the absolute truth is not the ultimate end; Kṛṣṇa is the ultimate end of the absolute truth.
 
-The Vaiṣṇava schools therefore never try to merge into the Brahman effulgence in their pursuit of spiritual perfection. They accept Kṛṣṇa as the ultimate goal of self-realization. Therefore Kṛṣṇa is called parambrahman (the Supreme Brahman) or parameśvara (the supreme controller). Śrī Yāmunācārya has prayed as follows: "My dear Lord, I know that the gigantic universe and gigantic space and time within the universe are covered by the ten layers of the material elements, each layer ten times larger than the previous one. The three material modes of nature, the Garbhodakaśāyī Viṣṇu, the Kṣīrodakaśāyī Viṣṇu, and the Mahā-Viṣṇu, and beyond them the spiritual sky and its spiritual planets, known as Vaikuṇṭhas, and the Brahman effulgence in that spiritual sky-all of these taken together are nothing but a small exhibition of Your potency."
+The *Vaisnava*schools therefore never try to merge into the Brahman effulgence in their pursuit of spiritual perfection. They accept Kṛṣṇa as the ultimate goal of self-realization. Therefore Kṛṣṇa is called parambrahman (the Supreme Brahman) or parameśvara (the supreme controller). Śrī Yāmunācārya has prayed as follows: "My dear Lord, I know that the gigantic universe and gigantic space and time within the universe are covered by the ten layers of the material elements, each layer ten times larger than the previous one. The three material modes of nature, the Garbhodakaśāyī Viṣṇu, the Kṣīrodakaśāyī Viṣṇu, and the Mahā-Viṣṇu, and beyond them the spiritual sky and its spiritual planets, known as Vaikuṇṭhas, and the Brahman effulgence in that spiritual sky-all of these taken together are nothing but a small exhibition of Your potency."
 
 ## 55. Possessing All Mystic Perfections
 
@@ -1653,8 +1695,9 @@ The above statements describe some of the wonderful reservoirs of pleasure withi
 
 In the Tenth Canto, 14th Chapter, 7th verse, of *Śrīmad-Bhāgavatam,* Lord Brahmā says, "My dear Lord, the inconceivable qualities, beauties and activities which You have revealed by Your presence on this planet cannot be calculated by any material measurement. If one even tries to imagine that, 'Kṛṣṇa may be like this,' that is also impossible. The day may come when the material scientist, after many, many births or after many, many years, will be able to estimate the atomic constitution of the whole world, or he may be able to count the atomic fragments that permeate the sky, or he may even give an estimate of all the atoms within the universe, but still he will never be able to count the transcendental qualities in Your reservoir of transcendental bliss."
 
+### 23
 
-# Chapter 23: Kṛṣṇa’s Personality
+23. Kṛṣṇa’s Personality
 
 Śrīla Rūpa Gosvāmī states that although Lord Kṛṣṇa is the reservoir of unlimited pleasure and the greatest leader of all, He is still dependent upon His devotees in three ways. According to the emotional status of the devotee, the Supreme Personality of Godhead is appreciated in three ways: as the most perfect, as very perfect and as perfect. When He exhibits Himself in fullness, He is appreciated by great learned scholars as most perfect. When He exhibits Himself in lesser degrees, He is called very perfect. And when He exhibits still less, He is called perfect. This means that Kṛṣṇa is appreciated for three degrees of perfection. These three degrees of perfection are especially exhibited as follows: when He is in Goloka Vṛndāvana His transcendental qualities are exhibited as most perfect, when He is in Dvārakā He exhibits His qualities as very perfect, and when He is in Mathurā He exhibits His qualities as perfect.
 
@@ -1690,12 +1733,13 @@ Once, while fighting with a demon who was appearing as a deer, Kṛṣṇa chall
 
 There is a nice statement in the *Kūrma Purāṇa* about these contradictory traits of the Supreme Personality of Godhead. It is stated there that the Supreme Person is neither very fat nor very thin; He is always transcendental to material qualities, and yet His bodily luster is blackish. His eyes are reddish, He is all-powerful, and He is equipped with all different kinds of opulences. Contradictory traits in Kṛṣṇa's person are not at all surprising: one should not consider the characteristics of Kṛṣṇa, the Supreme Personality of Godhead, to be actually contradictory. One should try to understand the traits of Kṛṣṇa from authorities and try to understand how these characteristics are employed by the supreme will of the Lord.
 
-In the *Mahā-varāha Purāṇa* it is confirmed that the transcendental bodies of the Supreme Personality of Godhead and His expansions are all existing eternally. Such bodies are never material and are completely spiritual and full of knowledge. They are reservoirs of all transcendental qualities. In the *Vaiṣṇava Tantra* there is a statement that the Personality of Godhead and His expanded bodies are always free from the eighteen kinds of material contaminations,((The eighteen kinds of material contaminations mentioned above are described in the *Viṣṇu-yāmala Tantra as follows:* illusion, fatigue, committing errors, roughness, material lust, restlessness, pride, envy, violence, disgrace, exhaustion, untruth, anger, hankering, dependence, desire to lord over the universe, seeing duality, and cheating.)) because such bodies are always full of knowledge, bliss and eternity.
+In the *Mahā-varāha Purāṇa* it is confirmed that the transcendental bodies of the Supreme Personality of Godhead and His expansions are all existing eternally. Such bodies are never material and are completely spiritual and full of knowledge. They are reservoirs of all transcendental qualities. In the *Vaiṣṇava Tantra* there is a statement that the Personality of Godhead and His expanded bodies are always free from the eighteen kinds of material contaminations,((The eighteen kinds of material contaminations mentioned above are described in the *Viṣṇu-yāmala Tantra as follows:* illusion, fatigue, committing errors, roughness, material lust, restlessness, pride, envy, violence, disgrace, exhaustion, untruth, anger, hankering, dependence, desire to lord over the universe, seeing duality, and cheating.)) [*The eighteen kinds of material contaminations mentioned above are described in the Viṣṇu-yāmala Tantra* as follows: *illusion, fatigue, committing errors, roughness, material lust, restlessness, pride, envy, violence, disgrace, exhaustion, untruth, anger, hankering, dependence, desire to lord over the universe, seeing duality, and cheating.] because such bodies are always full of knowledge, bliss and eternity.
 
 Regarding all of the above-mentioned statements, it is understood that the Mahā-Viṣṇu is the source of all incarnations in the material world. But because of His greater extraordinary opulence, we can understand that the son of Nanda Mahārāj is the source of the Mahā-Viṣṇu also. This is confirmed in the *Brahma-saṁhitā,* wherein it is stated: "Let me offer my respectful obeisances unto Govinda, whose partial representation is the Mahā-Viṣṇu." The gigantic form of the Mahā-Viṣṇu is the source of generation for innumerable universes. Innumerable universes are coming out of His exhaling breath, and the same universes are going back in with His inhaling breath. This Mahā-Viṣṇu is also a plenary portion of a portion of Kṛṣṇa.
 
+### 24
 
-# Chapter 24: Further Traits of Śrī Kṛṣṇa
+24. Further Traits of Śrī Kṛṣṇa
 
 After describing the different opulences of Kṛṣṇa, Śrīla Rūpa Gosvāmī tries to further describe the transcendental beauties and qualities of the Lord as: decorated, enjoying, pleasing, dependable, steady and predominating. He is also described as a meticulous dresser and a magnanimous personality. These are generally considered to be the qualities of great personalities.
 
@@ -1735,8 +1779,9 @@ Persons who can give themselves to anyone are called magnanimous. No one could b
 
 Although Kṛṣṇa is independent of everyone, out of His causeless mercy He is dependent upon Garga Ṛṣi for religious instruction; for learning the military art He is dependent upon Sātyaki; and for good counsel He is dependent upon His friend, Uddhava.
 
+### 25
 
-# Chapter 25: Devotees of Kṛṣṇa
+25. Devotees of Kṛṣṇa
 
 A person who is always absorbed in Kṛṣṇa consciousness is called a devotee of Kṛṣṇa. Śrīla Rūpa Gosvāmī says that all the transcendental qualities discussed above are also found in the devotees of Kṛṣṇa. The devotees of Kṛṣṇa can be classified into two groups: those who are cultivating devotional service in order to enter into the transcendental kingdom, and those who are already in the perfectional stage of devotional service.
 
@@ -1766,16 +1811,17 @@ A similar statement is there in the Tenth Canto, 26th Chapter, 10th verse, of *�
 
 All of the residents of Vṛndāvana and Dvārakā-namely the cowherd men and the members of the Yadu family-are eternally perfect devotees of the Lord. As the Lord descends by His causeless mercy upon this planet, so, in order to help in the pastimes of the Lord, these devotees also come here. They are not ordinary living entities or conditioned souls; they are ever-liberated persons, associates of the Personality of Godhead. And, just as Lord Kṛṣṇa behaves like an ordinary man when He descends to this planet, so the members of the Yadu dynasty and the residents of Vṛndāvana execute activities just like ordinary men. But they are not ordinary men; they are as liberated as Lord Kṛṣṇa Himself.
 
-In the *Padma Purāṇa, Uttara-khaṇḍa* section, it is stated, "Just as Lord Rāmacandra descends along with Lakṣmaṇa and Bharata, an expansion of Saṅkarṣaṇa,((A detailed description of the ways in which the various expansions and incarnations of Godhead are developed is to be found in the author's *Teaching's of Lord Chaitanya* (New York: 1968) in Chapters VI, VII and XIII.)) so the members of the Yadu dynasty and the cowherd men of Vṛndāvana also descend with Lord Kṛṣṇa in order to join in the transcendental pastimes of the Lord. When the Supreme Lord returns to His eternal abode, His associates return with Him to their respective places. As such, these ever-liberated Vaiṣṇavas are not bound by the material laws of birth and death."
+In the *Padma Purāṇa, Uttara-khaṇḍa* section, it is stated, "Just as Lord Rāmacandra descends along with Lakṣmaṇa and Bharata, an expansion of Saṅkarṣaṇa,((A detailed description of the ways in which the various expansions and incarnations of Godhead are developed is to be found in the author's *Teaching's of Lord Chaitanya* (New York: 1968) in Chapters VI, VII and XIII.)) (*A detailed description of the ways in which the various expansions and incarnations of Godhead are developed is to be found in the author's *Teaching's of Lord Chaitanya* (New York: 1968) in Chapters VI, VII and XIII.) so the members of the Yadu dynasty and the cowherd men of Vṛndāvana also descend with Lord Kṛṣṇa in order to join in the transcendental pastimes of the Lord. When the Supreme Lord returns to His eternal abode, His associates return with Him to their respective places. As such, these ever-liberated Vaiṣṇavas are not bound by the material laws of birth and death."
 
 As stated in the *Bhagavad-gītā* by the Lord Himself, His birth, deeds and activities are all transcendental. Similarly, the birth, deeds and activities of the associates of the Lord are also transcendental. And, as it is an offense to consider oneself to be Kṛṣṇa, so it is offensive to consider oneself to be Yaśodā, Nanda or any other associate of the Lord. We should always remember that they are transcendental; they are never conditioned souls.
 
 It is described that Kṛṣṇa, the enemy of Kaṁsa, has sixty-four transcendental qualities, and all of the ever-liberated souls who accompany the Lord have the first fifty-five of the qualities, without any doubt. Such devotees are related to the Supreme Personality of Godhead in any of five transcendental mellows-namely, neutrality, servitorship, friendship, parenthood and conjugal love. These relationships with the Lord are eternal, and therefore *nitya-siddha* devotees do not have to strive to attain the perfectional stage by executing regulative devotional principles. They are eternally qualified to serve Kṛṣṇa.
 
+### 26
 
-# Chapter 26: Stimulation for Ecstatic Love
+26. Stimulation for Ecstatic Love
 
-Some things which give impetus or stimulation to ecstatic love of Kṛṣṇa are His transcendental qualities, His uncommon activities, His smiling features, His apparel, His garlands, His flute, His buffalo horn, His leg bells, His conchshell, His footprints, His places of pastimes (such as Vṛndāvana), His favorite plant (*tulasī*), His devotee and the periodical occasions for remembering Him. One such occasion for remembrance is Ekādaśī, which comes twice a month on the eleventh day of the moon, both waning and waxing. On that day all the devotees remain fasting throughout the night and continuously chant the glories of the Lord.
+Some things which give impetus or stimulation to ecstatic love of Kṛṣṇa are His transcendental qualities, His uncommon activities, His smiling features, His apparel, His garlands, His flute, His buffalo horn, His leg bells, His conchshell, His footprints, His places of pastimes (such as Vṛndāvana), His favorite plant (*tulasī*), His devotee and the periodical occasions for remembering Him. One such occasion for remembrance is Ekādaśī, which comes twice a month on the eleventh day of the moon, both waning and waxing. On that day all the devotees remain fasting throughout the night and continually chant the glories of the Lord.
 
 ## Kṛṣṇa’s Transcendental Qualities, His Uncommon Activities and His Smile
 
@@ -1879,8 +1925,9 @@ There is a statement by a *gopī* who addressed Subala, a friend of Kṛṣṇa:
 
 There are many statements about the festive days in connection with Kṛṣṇa's different activities. One of these festive days is Janmāṣṭamī, the day of Kṛṣṇa's birth. This Janmāṣṭamī Day is the most opulent festival day for the devotees, and it is still observed with great pomp in every Hindu house in India. Sometimes even the devotees of other religious groups take advantage of this auspicious day and enjoy the performance of the ceremony of Janmāṣṭamī. Ecstatic love for Kṛṣṇa is also aroused on the days of Ekādaśī, which are other festive days in connection with Kṛṣṇa.
 
+### 27
 
-# Chapter 27: Symptoms of Ecstatic Love
+27. Symptoms of Ecstatic Love
 
 The bodily symptoms which are manifested by a devotee in expressing ecstatic love for Kṛṣṇa are called *anubhāva.* Practical examples of *anubhāva* are as follows: dancing, rolling on the ground, singing very loudly, stretching the body, crying loudly, yawning, breathing very heavily, neglecting the presence of others, drooling, laughing like a madman, wheeling the head and belching. When there is an extraordinary excess of ecstatic love, with all of these bodily symptoms manifested, one feels relieved transcendentally.
 
@@ -1940,8 +1987,9 @@ Sometimes belching also becomes a symptom of ecstatic love for Kṛṣṇa. Ther
 
 Sometimes trembling of the whole body and hemorrhaging from some part of the body are also manifested in response to ecstatic love for Kṛṣṇa, but such symptoms are very rare, and therefore Śrīla Rūpa Gosvāmī does not discuss any further on this point.
 
+### 28
 
-# Chapter 28: Other Ecstatic Symptoms
+28. Other Ecstatic Symptoms
 
 ## Existential Ecstatic Love for Kṛṣṇa
 
@@ -2055,8 +2103,9 @@ Sometimes it is found that when staunch logicians, without any trace of devotion
 
 Sometimes it is found that a nondevotee who has practically no taste for Kṛṣṇa and who follows no rules or regulations can, by practice, make a show of devotional symptoms, even crying in an assembly of devotees. This shedding of tears is not actually an ecstatic loving expression, however. It is done simply by practice. Although there is no need to describe these reflections of ecstatic love, Rūpa Gosvāmī gives some instances where there is no actual devotional service and such expressions are manifested.
 
+### 29
 
-# Chapter 29: Expressions of Love for Kṛṣṇa
+29. Expressions of Love for Kṛṣṇa
 
 There are some bodily symptoms which express overwhelming ecstatic love. They are counted at thirty-one as follows: disappointment, lamentation, humility, guilt, fatigue, intoxication, pride, doubt, apprehension, intense emotion, madness, forgetfulness, disease, confusion, death, laziness, inertness, bashfulness, concealment, remembrance, argumentativeness, anxiety, thoughtfulness, endurance, happiness, eagerness, haughtiness, envy, impudence, dizziness and alertness.
 
@@ -2092,7 +2141,7 @@ In the Tenth Canto, 14th Chapter, 9th verse of *Śrīmad-Bhāgavatam* there is a
 
 ## Humility
 
-A sense of weakness caused by distress, fear or offensiveness is called humility. In such a humble condition one becomes talkative, small in heart, dirty in mind, full of anxiety and inactive.
+A sense of weakness caused by distress, fearfulness or offensiveness is called humility. In such a humble condition one becomes talkative, small in heart, dirty in mind, full of anxiety and inactive.
 
 In the Tenth Canto, 51st Chapter, 39th verse of *Śrīmad-Bhāgavatam* there is the following statement by King Mucukunda: "My dear Lord, because of my bad deeds in the past I am everlastingly aggrieved. I am always suffering from my desires, but still my senses are never satisfied with material enjoyments. Somehow or other I am, by Your grace, now in a peaceful condition because I have taken shelter of Your lotus feet, which are always free from all lamentation, fear and death. O supreme protector, O supreme soul! O supreme controller! Kindly give me Your protection. I am so much embarrassed." This statement by Mucukunda is an instance of humility resulting from a severely miserable condition of material existence.
 
@@ -2114,7 +2163,7 @@ There is a statement in *Rasa-sudhākara* that after passing the night with Kṛ
 
 ## Fatigue
 
-One feels fatigue after walking a long distance, after dancing and after sex activity. In this kind of fatigue there is dizziness, perspiration, inactivity of the limbs, yawning and very heavy breathing.
+One feels Fatigue after walking a long distance, after dancing and after sex activity. In this kind of fatigue there is dizziness, perspiration, inactivity of the limbs, yawning and very heavy breathing.
 
 One day Yaśodā was chasing Kṛṣṇa in the yard after He had offended her. After a while Yaśodā became very fatigued, and therefore she was perspiring, and her bunched hair became loosened. This is an instance of becoming fatigued because of working too much.
 
@@ -2212,8 +2261,9 @@ In the Tenth Canto, 12th Chapter, 41st verse of *Śrīmad-Bhāgavatam,* Mahārā
 
 There is another statement in the *Śrīmad-Bhāgavatam* telling of the damsels of Braja meeting Kṛṣṇa at the sacred place of Kurukṣetra, many years after their childhood pastimes. When they met in that sacred place, all the *gopīs* became stunned by the occurrence of a solar eclipse. Their breathing, blinking of the eyes and all similar activities stopped, and they stood before Kṛṣṇa just like statues. This is another instance of a diseased condition resulting from exuberant transcendental pleasure.
 
+### 30
 
-# Chapter 30: Further Features of Ecstatic Love for Kṛṣṇa
+30. Further Features of Ecstatic Love for Kṛṣṇa
 
 ## Confusion
 
@@ -2371,16 +2421,19 @@ One night Śrīmatī Rādhārāṇī was talking in a dream. "My dear Kṛṣṇ
 
 There is another instance of this. A messenger from Kṛṣṇa came to Śrīmatī Rādhārāṇī while She was sleeping, and Rādhārāṇī immediately awakened. Similarly, when Kṛṣṇa began to blow on His flute in the night, all of the *gopīs,* the beautiful daughters of the cowherd men, immediately got up from their sleep. There is a very beautiful comparison made in this connection: "The lotus flower is sometimes surrounded by white swans, and sometimes it is surrounded by black wasps who are collecting its honey. When there is a thundering in the sky, the swans go away, but the black wasps stay to enjoy the lotus flowers." The *gopīs'* sleeping condition is compared to the white swans, and the sound of Kṛṣṇa's flute is compared to a black wasp. When Kṛṣṇa's flute sounded, the white swans, which represent the sleeping condition of the *gopīs,* were immediately vanquished, and the black wasp sound of the flute began to enjoy the lotus flower of the *gopīs'* beauty.
 
+### 31
 
-# Chapter 31: Additional Symptoms
+31. Additional Symptoms
+
+## Additional Symptoms
 
 All the above-mentioned thirty-one symptoms of ecstatic love are called *vyabhicārī,* or disturbing. All these symptoms refer to apparently disturbed conditions, but even in such disturbed conditions there is acute ecstatic love for Kṛṣṇa. These symptoms, however, can be divided into three groups: first class, second class and third. There are many disturbing symptoms in ecstatic love, such as envy, anxiety, pride, jealousy, conclusion, cowardliness, forgiveness, impatience, hankering, regret, doubtfulness and impudence. These are included in the thirty-one conditions of ecstatic love. Śrīla Rūpa Gosvāmī has very nicely analyzed the different kinds of disturbing symptoms, and although it is very difficult to find the exact English equivalents for many Sanskrit words used here, his analysis will now be presented.
 
-When one becomes malicious upon seeing another's advancement of life, his state of mind is generally called envy. When one becomes frightened at seeing a lightning bolt in the sky, that fearfulness brings on anxiety. Therefore, fearfulness and anxiety may be taken as one. When someone wants to hide his real mentality, it is called *avahittha,* or concealment. When a person wants to exhibit superiority, it is called pride. Both of these can be classified under pretension. In a pretentious attitude both *avahittha* and pride are to be found. When one cannot tolerate an offense committed by another, it is called *amarṣa,* and  when one cannot tolerate the opulence of another it is called jealousy. Jealousy and *amarṣa* are both caused by intolerance. When one is able to establish the correct import of a word, it can be called conclusiveness. And before such a conclusive determination of import, there must be thoughtful consideration. Therefore, the act of consideration is present during the establishment of a conclusion. When one presents himself as ignorant, it is called humility, and when there is absence of enthusiasm it is called cowardice. Therefore, in humility, there is cowardice also. When the mind is steadfast it is called enduring, and when one can tolerate others' offenses, that is also called endurance. Therefore, forgiveness and endurance can be synonymous. When one is anxiousness for time to pass, that is called impatience, and when one sees something wonderful one is said to be struck with wonder. Impatience may be caused by being struck with wonder, and so impatience and being struck with wonder can be synonymous. When anxiety is in its dormant stage it is called hankering. Therefore, anxiety and hankering can also be synonymous. When one becomes regretful for some offense, his feeling is called bashfulness. In this way, bashfulness and regret can be synonymous. Doubtfulness is one of the aspects of argument. After exhibiting impudence one becomes restless. Therefore restlessness and impudence can be synonymous.
+When one becomes malicious upon seeing another's advancement of life, his state of mind is generally called envy. When one becomes frightened at seeing a lightning bolt in the sky, that fearfulness brings on anxiety. Therefore, fearfulness and anxiety can be taken as one. When someone wants to hide his real mentality, it is called *avahittha,* or concealment. When a person wants to exhibit superiority, it is called pride. Both of these can be classified under pretension. In a pretentious attitude both *avahittha* and pride are to be found. When one cannot tolerate an offense committed by another, it is called *amarṣa,* and  when one cannot tolerate the opulence of another it is called jealousy. Jealousy and *amarṣa* are both caused by intolerance. When one is able to establish the correct import of a word, it can be called conclusiveness. And before such a conclusive determination of import, there must be thoughtful consideration. Therefore, the act of consideration is present during the establishment of a conclusion. When one presents himself as ignorant, it is called humility, and when there is absence of enthusiasm it is called cowardice. Therefore, in humility, there is cowardice also. When the mind is steadfast it is called enduring, and when one can tolerate others' offenses, that is also called endurance. Therefore, forgiveness and endurance can be synonymous. When one is anxiousness for time to pass, that is called impatience, and when one sees something wonderful one is said to be struck with wonder. Impatience may be caused by being struck with wonder, and so impatience and being struck with wonder can be synonymous. When anxiety is in its dormant stage it is called hankering. Therefore, anxiety and hankering can also be synonymous. When one becomes regretful for some offense, his feeling is called bashfulness. In this way, bashfulness and regret can be synonymous. Doubtfulness is one of the aspects of argument. After exhibiting impudence one becomes restless. Therefore restlessness and impudence can be synonymous.
 
 When all such symptoms are included in ecstatic love, they are called *añcārī,* or continuously existing ecstatic symptoms. All of these symptoms are transcendental, and they are exhibited in different ways, acting and interacting under different conditions. They are like the reciprocation of love between the lover and beloved.
 
-When a person is envious or defamed, there may be a change in the color of the body. This may be classified as *vibhāva,* or sub-ecstasy. Sometimes illusion, collapse and strong anxiety are also considered to be *vibhāva.* When there are many such symptoms, they can simply be grouped together under ecstatic love.
+When a person is envious or defamed, there may be a change in the color of the body. This can be classified as *vibhāva,* or sub-ecstasy. Sometimes illusion, collapse and strong anxiety are also considered to be *vibhāva.* When there are many such symptoms, they can simply be grouped together under ecstatic love.
 
 Śrīla Rūpa Gosvāmī says that fright, sleep, fatigue, laziness and the madness of intoxication are sometimes grouped under continuous symptoms of ecstatic love, and they are due to a strong attraction.
 
@@ -2434,8 +2487,9 @@ Softness of the heart is compared with honey, with butter and with nectar. And t
 
 A pure devotee of Kṛṣṇa is always specifically qualified with nectarean qualifications and sometimes with the qualifications of butter and honey. On the whole, all the different conditions of the heart mentioned above can be melted under certain circumstances, just as a hard diamond sometimes is melted by a combination of certain chemicals. In the *Dāna-keli-kaumudī* it is stated, "When love develops in the heart of a devotee, he cannot check the transformation of his sentiments. It is just like at the rising of the moon, when the ebb tide of the ocean cannot be checked: immediately there must be movement of high waves." Although in its natural state, the ocean is always very grave and unfathomable, when the moon rises, nothing can check the ocean's agitation. Similarly, those who are pure devotees cannot on any account check the movements of their feelings within.
 
+### 32
 
-# Chapter 32: Symptoms of Continuous Ecstasy
+32. Symptoms of Continuous Ecstasy
 
 The continuous ecstasy of love can remain like a powerful king, subduing all temporary manifestations of love as well as any opposing elements of anger. It can be exhibited directly or indirectly, and thus ecstatic love can be described as direct or indirect. These symptoms of ecstatic love are possible only when one is fully situated in a transcendental position. Direct ecstatic love can be divided into two groups-namely, selfish and selfless.
 
@@ -2471,8 +2525,9 @@ When Mother Yaśodā heard that Kṛṣṇa's cows were being forcibly moved by 
 
 As soon as Mother Yaśodā found her son Kṛṣṇa returning from the pasturing ground, she immediately began to pat Him, touching her fingers to the cheeks of the Lord.
 
+### 33
 
-# Chapter 33: Conjugal Affection
+33. Conjugal Affection
 
 Above even the humor of love between Kṛṣṇa and His parents is the relationship of conjugal love. This is exhibited between the Lord and the young *gopīs* in different ways-glancing, moving the eyebrows, speaking very sweet words, and exchanging smiles.
 
@@ -2510,8 +2565,9 @@ There is a statement by Yāmunācārya to this effect: "Since I have begun to en
 
 One old devotee said, "My dear Lord, when we are away from You we become so anxious to see You again, and there is great misery in our lives. But then, when we do see You, there immediately comes the fear of separation. Under the circumstances, both when we see You and when we do not see You, we are subjected to different kinds of tribulation." This is an instance of a contradictory mixture of ecstatic love for Kṛṣṇa. Such ecstatic love is palatable, and expert critics have compared such ecstatic love with a mixture of curd, sugar candy and a little black pepper. The combined taste is very palatable.
 
+### 34
 
-# Chapter 34: The Nectar of Devotion
+34. The Nectar of Devotion
 
 The particular type of ecstatic loving sentiment that develops within the heart of a particular devotee is considered to be *vibhāva.* And the resultant manifestations such as moving of the eyebrows, fear, astonishment and smiling, which have been explained hereinbefore, are called *anubhāva.* The different causes for developing *anubhāva* and *vibhāva* are called steady ecstasy, or *sañcāri-bhāva.*
 
@@ -2523,7 +2579,7 @@ In this connection Śrī Rūpa Gosvāmī gives an example of the clouds in the s
 
 ## Direct and Indirect Attraction for Kṛṣṇa
 
-Transcendental pleasure derived from devotional service can be divided into two groups: direct devotional service and indirect devotional service. Direct devotional service is divided into five transcendental humors or flavors, and indirect devotional service is divided into seven transcendental humors. Direct devotional services are as follows: neutrality, servitude, fraternity, paternity and conjugal love. Indirect devotional service is divided into laughter, compassion, anger, chivalry, dread, astonishment and ghastliness. Devotional service can therefore be divided into twelve types, each of which has a different color. The colors are white, multicolored, orange, red, light green, gray, yellow, off-whitish, smoky, pink, black and cloudy. The twelve different kinds of transcendental humors are controlled by different incarnations of God, such as Kapila, Mādhava, Upendra, Nṛsiṁha, Nandanandana, Balarāma, Kūrma, Kalki, Rāghava, Bhārgava, Varāha and Matsya.
+Transcendental pleasure derived from devotional service can be divided into two groups: direct devotional service and indirect devotional service. Direct devotional service is divided into five transcendental humors or flavors, and indirect devotional service is divided into seven transcendental humors. Direct devotional services are as follows: neutrality, servitude, fraternity, paternity and conjugal love. Indirect devotional service is divided into laughter, compassion, anger, chivalry, dread, astonishment and ghastliness. Devotional service can therefore be divided into twelve types, each of which has a different color. The colors are white, multicolored, orange, red, light green, grey, yellow, off-whitish, smoky, pink, black and cloudy. The twelve different kinds of transcendental humors are controlled by different incarnations of God, such as Kapila, Mādhava, Upendra, Nṛsiṁha, Nandanandana, Balarāma, Kūrma, Kalki, Rāghava, Bhārgava, Varāha and Matsya.
 
 Sustenance, manifestation, expansion, reflection and lamentation are the five visible symptoms in exchanges of ecstatic love. The test of devotional service can therefore be made in terms of these five symptoms. In the devotional service of neutrality there is sustenance; there is expansion in chivalrous devotional service; there is reflection in compassionate devotional service; in angry devotional service there is lamentation, and so on.
 
@@ -2535,10 +2591,11 @@ Those who are not devotees can never achieve the benefits of devotional service.
 
 When one transcends the status of ecstatic love and thus becomes situated on the highest platform of pure goodness, one is understood to have cleansed the heart of all material contamination. In that pure stage of life, one can taste this nectar, and this tasting capacity is technically called *rasa,* or transcendental mood.
 
-*Thus ends the Bhaktivedanta summary study of the second division of* Bhakti-rasāmṛta-sindhu, *in the matter of general devotional service.*
+### 35
 
+35. Neutral Love of God
 
-# Chapter 35: Neutral Love of God
+## Neutral Love of God
 
 Srila Rupa Goswami offers his respectful prayers to the eternal Supreme Personality of Godhead, who is always so beautiful and for whom the pure devotees are always engaged in loving transcendental service. This third division of *Bhakti-rasāmṛta-sindhu* describes the five primary kinds of devotional service-namely, neutrality, servitude, fraternity, parenthood and conjugal love. These five items will be very elaborately explained here, and thus they have been figuratively described as the five waves on the western side of this ocean of nectar of devotion.
 
@@ -2548,7 +2605,7 @@ Actually the transcendental pleasure derived in association with the Supreme Per
 
 Without worshiping the *arcā-vigraha,* the form or Deity of the Lord, one cannot understand such literature as the *Bhagavad-gītā* and *Śrīmad-Bhāgavatam.* For those great sages situated in the position of transcendental neutrality, the beginning should be to take shelter of Lord Viṣṇu, the four-handed eternal form of the Supreme Personality of Godhead. The mystic *yogīs* are therefore advised to meditate on the form of Lord Viṣṇu, as recommended by Kapila Muni in the *sāṅkhya yoga* system. Unfortunately, many mystic *yogīs* try to meditate on something void, and as stated in the *Gītā,* the result is that they simply undergo trouble and do not achieve any tangible result.
 
-When some great saintly persons who had undergone penances and austerities saw the four-handed transcendental form of Viṣṇu, they began to remark as follows: "This four-handed form of the Lord, manifested in a bluish color, is the reservoir of all pleasure and the center of our living force. Actually, when we see this eternal form of Viṣṇu, we, along with many other *paramahaṁsas,* become immediately captivated by the beauty of the Lord." This appreciation of Lord Viṣṇu by saintly persons is an instance of situation in *śānta-rasa,* or the neutral stage of devotional service. In the beginning, those who are aspiring for salvation try to get out of the material entanglement by performing painful austerities and penances, and ultimately they come to the impersonal status of spiritual realization. At this *brahma-bhūta* [[sb/4/30/20|[SB 4.30.20] ]] stage of liberation from the material entanglement, the symptoms, as explained in the *Bhagavad-gītā,* are that one becomes joyous beyond any hankering or lamentation and gains a universal vision. When the devotee is situated in the *śānta-rasa,* or neutral stage of devotional service, he appreciates the Viṣṇu form of the Lord.
+When some great saintly persons who had undergone penances and austerities saw the four-handed transcendental form of Viṣṇu, they began to remark as follows: "This four-handed form of the Lord, manifested in a bluish color, is the reservoir of all pleasure and the center of our living force. Actually, when we see this eternal form of Viṣṇu, we, along with many other *paramahaṁsas,* become immediately captivated by the beauty of the Lord." This appreciation of Lord Viṣṇu by saintly persons is an instance of situation in *śānta-rasa,* or the neutral stage of devotional service. In the beginning, those who are aspiring for salvation try to get out of the material entanglement by performing painful austerities and penances, and ultimately they come to the impersonal status of spiritual realization. At this brahma-bhuta*[*SB 4.30.20] ]] stage of liberation from the material entanglement, the symptoms, as explained in the *Bhagavad-gītā,* are that one becomes joyous beyond any hankering or lamentation and gains a universal vision. When the devotee is situated in the *śānta-rasa,* or neutral stage of devotional service, he appreciates the Viṣṇu form of the Lord.
 
 Actually, all Vedic culture is aiming at understanding Lord Viṣṇu. In the *Ṛg Veda* one *mantra* says that any advanced saintly person is always aspiring to be fixed in meditation upon the lotus feet of Viṣṇu.
 
@@ -2556,7 +2613,7 @@ In the *Śrīmad-Bhāgavatam* it is said that the foolish do not know that Viṣ
 
 This stage of *śānta-rasa* can be attained by the impersonalists only when they are in association with pure devotees. Otherwise it is not possible. After Brahman realization, when a liberated soul comes in contact with a pure devotee of Lord Kṛṣṇa and submissively accepts the teachings of Lord Kṛṣṇa without misinterpretation, he becomes situated in this neutral stage of devotional service. The best example of saintly persons situated in the *śānta-rasa* are Sanaka, Sanātana, Sananda, and Sanat-kumāra, the Kumāra brothers. These four saintly persons (known as Catuḥsana) were sons of Lord Brahmā. After their birth, when they were ordered by their father to become householders and increase human society, they refused the order. They said that they had already decided not to become entangled with family life; they would rather live as saintly *brahmacārīs* for their own perfection. So these great saints have been living for millions of years now, but still they appear to be just like boys of four or five years. Their complexions are very fair, there is an effulgence in their bodies, and they always travel naked. These four saintly persons almost always remain together.
 
-In one of the prayers of the Kumāra brothers, the declaration is made: "O Lord Mukunda [Kṛṣṇa, the giver of liberation], only so long as one does not happen to see Your eternal form of bliss and knowledge, appearing just like a newly-grown *tāmala* tree, with a bluish hue-only for so long can the impersonal feature of the absolute truth, known as Brahman, be very pleasing to a saintly person."
+In one of the prayers of the Kumāra brothers, the declaration is made: "O Lord Mukunda [Kṛṣṇa, the giver of liberation], only so long as one does not happen to see Your eternal form of bliss and knowledge, appearing just like a newly-grown *tāmala* tree, with a bluish hue-only for so long can the impersonal feature of the absolute truth, known as *Brahman,*be very pleasing to a saintly person."
 
 The qualifications of a saintly person are described in the *Bhakti-rasāmṛta-sindhu* as follows: A saintly person is one who understands fully that simply by discharging devotional service he can become confident of liberation. He is always situated in the regulative principles of devotional life and at the same time aspires to be liberated from material entanglement.
 
@@ -2596,8 +2653,11 @@ Bilvamaṅgala Thākur was first spiritually initiated for impersonal realizatio
 
 Śukadeva Gosvāmī and Bilvamaṅgala Thākur's giving up of the impersonal conception of the absolute truth and taking to devotional service are the best examples of devotees being situated in the neutral state. According to some authorities, this condition cannot be accepted as one of the transcendental humors, or *rasas,* but Śrīla Rūpa Gosvāmī says that even if one does not accept it as a transcendental humor, one must still accept it as the beginning position of devotional service. However, if one is not further raised to the platform of actual service to the Lord, he is not considered to be on the platform of transcendental mellow. In this connection, in the Eleventh Canto of *Śrīmad-Bhāgavatam,* Lord Kṛṣṇa personally instructs Uddhava like this: "The state of being established in My personal form is called *śānta-rasa,* and without being situated in this position, no one can advance to actual pure devotional service." In other words, no one can be situated in the personal feature of the Supreme Personality of Godhead without being situated at least in *śānta-rasa.*
 
+### 36
 
-# Chapter 36: Transcendental Affection (Servitude)
+36. Transcendental Affection (Servitude)
+
+## Transcendental Affection (Servitude)
 
 The transcendental mellow of affection has been accepted by authorities like Śrīdhara Svāmī as a perfectional stage of devotion. It is just above the humor of neutrality and is a requisite for the development of the serving humor. In literature such as *Nāma-kaumudī* this state of existence is accepted as continual affection for or attraction to Kṛṣṇa. Authorities like Śukadeva consider this stage of affection to be in the neutral stage, but in any case this affection is relished by the devotees in different transcendental tastes, and therefore the general name for this state is affection, or pure affection for Kṛṣṇa.
 
@@ -2632,13 +2692,13 @@ There are many instances in the various Vedic writings of persons who were aspir
 
 In *Padyāvalī* a devotee says, "Persons who are attached to speculative knowledge for self realization, who have decided that the supreme truth is beyond meditation and who have thus become situated in the mode of goodness-let them peacefully execute their engagement. As for us, we are simply attached to the Supreme Personality of Godhead, who is by nature so pleasing, who possesses a complexion like a blackish cloud, who is dressed in yellow garments and who has beautiful lotus-like eyes. We wish only to meditate upon Him."
 
-Those who are from the very beginning of their self realization attached to devotional service are called *sevāniṣṭha. Sevāniṣṭha* means simply attached to devotional service. The best examples of such devotees are Lord Śiva, King Indra, King Bahulāśva, King Ikṣvāku, Śrutadeva and Puṇḍarīka. One devotee says: "My dear Lord, Your transcendental qualities attract even the liberated souls and carry them to the assembly of devotees where Your glories are constantly chanted. Even great sages who are accustomed to living in solitary places are also attracted by the songs of Your glory. And, observing all Your transcendental qualities, I have also become attracted and have decided to dedicate my life to Your loving service."
+Those who are from the very beginning of their self realization attached to devotional service are called *sevāniṣṭha. Sevāniṣṭha* means simply attached to devotional service. The best examples of such devotees are Lord Śiva, King Indra, King Bahulāśva, King Ikṣvāku, Śrutadeva and Puṇḍarīka. One devotee says: "My dear Lord, Your transcendental qualities attract even the liberated souls and carry them to the assembly of devotees where Your glories are constantly chanted. Even great sages who are accustomed to live in solitary places are also attracted by the songs of Your glory. And, observing all Your transcendental qualities, I have also become attracted and have decided to dedicate my life to Your loving service."
 
 In the city of Dvārakā the following devotees are known as Kṛṣṇa's close associates: Uddhava, Dāruka, Sātyaki, Śrutadeva, Śatrājit, Nanda, Upananda and Bhadra. All of these personalities remain with the Lord as His secretaries, but still they are sometimes engaged in His personal service. Among the Kuru dynasty, Bhīṣma, Mahārāj Parīkṣit and Vidura are also known as close associates of Lord Kṛṣṇa. It is said, "All the associates of Lord Kṛṣṇa have lustrous bodily features, and their eyes are just like lotus flowers. They have sufficient power to defeat the strength of the demigods, and the specific feature of their persons is that they are always decorated with valuable ornaments."
 
 When Kṛṣṇa was in the capital Indraprastha, someone addressed Him thus: "My dear Lord, Your personal associates, headed by Uddhava, are always awaiting Your order by standing at the entrance gate of Dvārakā. They are mostly looking on with tears in their eyes, and in the enthusiasm of their service they are not afraid even of the devastating fire generated by Lord Śiva. They are souls simply surrendered unto Your lotus feet."
 
-Out of the many close associates of Lord Kṛṣṇa, Uddhava is considered the best. The following is a description of him: "His body is blackish like the color of the Yamunā River, and it is similarly as cool. He is always decorated with flower garlands first used by Lord Kṛṣṇa, and he is dressed with yellow silk clothing. His two arms are just like the bolts of a door, his eyes are just like lotus flowers, and he is the most important devotee among all the associates. Let us therefore offer our respectful obeisances unto Uddhava's lotus feet."
+Out of the many close associates of Lord Kṛṣṇa, Uddhava is considered the best. The following is a description of him: "His body is blackish like the color of the Yamunā River, and it is similarly as cool. He is always decorated with flower garlands first used by Lord Kṛṣṇa, and he is dressed with yellow silk clothing. His two arms are just like the bolts of a door, his eyes are just like lotus flowers, and he is the most important devotee amongst all the associates. Let us therefore offer our respectful obeisances unto Uddhava's lotus feet."
 
 Uddhava has described the transcendental qualities of Śrī Kṛṣṇa as follows: "Lord Śrī Kṛṣṇa, who is our master and worshipable Deity, who is the controller of Lord Śiva and Lord Brahmā, the controller of the whole universe as well, accepts the controlling orders of Ugrasena, His grandfather. He is the proprietor of millions of universes, but still He begged a little land from the ocean. And although He is just like an ocean of wisdom, still He sometimes consults me. He is so great and magnanimous, yet He is engaged in His different activities just like an ordinary person."
 
@@ -2662,8 +2722,11 @@ In the Fourth Canto of *Śrīmad-Bhāgavatam,* 20th Chapter, 25th verse, King P�
 
 Devotees attached to the transcendental loving service of the Lord may be described either as surrendered souls, as souls advanced in devotional knowledge, or as souls completely engaged in the transcendental loving service. Such devotees are called, respectively, neophyte, perfect and eternally perfect.
 
+### 37
 
-# Chapter 37: Impetuses for Kṛṣṇa’s Service
+37. Impetuses for Kṛṣṇa’s Service
+
+## Impetuses for Krsna's Service
 
 The causeless mercy of Kṛṣṇa, the dust of His lotus feet, His *prasādam* and association with His devotees are some impetuses toward a devotee's engagement in transcendental loving service to the Lord.
 
@@ -2723,8 +2786,11 @@ In the *Kṛṣṇa-karṇāmṛta* it is also said, "My dear Lord, You are the 
 
 A devotee of Lord Kṛṣṇa said, "When even Śaśiśekhara [Lord Śiva] is unable to see You, what chance is there for me, who am lower than an ordinary worm? I have only committed misdeeds. I know that I am not at all fit to offer my prayers to You, but because You are known as Dīnabandhu, the friend of the fallen, I humbly pray that You will kindly purify me by the beams of Your transcendental glance. If I become thoroughly bathed by Your merciful glance, then I may be saved. Therefore, my Lord, I am requesting You to please bestow upon me Your merciful glance."
 
+### 38
 
-# Chapter 38: Indifference and Separation
+38. Indifference and Separation
+
+## Indifference and Separation
 
 The great devotee Uddhava once wrote a letter to Kṛṣṇa: "My dear Kṛṣṇa, I have just finished the study of all kinds of philosophical books and Vedic verses about the goal of life, and so now I have a little reputation for my studies. But still, in spite of my reputation, my knowledge is condemned, because although enjoying the effulgence of Vedic knowledge, I could not appreciate the effulgence emanating from the nails of Your toes. Therefore, the sooner my pride and Vedic knowledge are finished, the better it will be!" This is an example of indifference.
 
@@ -2766,8 +2832,11 @@ Uddhava informed Kṛṣṇa, "My dear leader of the Yadu dynasty, Your servants
 
 Kṛṣṇa was once informed, "You are the life and soul of all the inhabitants of Vṛndāvana. So because You have left Vṛndāvana, all of the servitors of Your lotus feet there are suffering. It is as if the lakes filled with lotus flowers have dried up from the scorching heat of separation from You." In the example given here, the inhabitants of Vṛndāvana are compared to lakes filled with lotus flowers, and because of the scorching heat of separation from Kṛṣṇa, the lakes-along with the lotus flowers of their lives-are being burned up. And the swans in the lakes, who are compared to the vitality of the inhabitants of Vṛndāvana, are no longer desiring to live in that lake. In other words, because of the scorching heat, the swans are leaving the lakes. This metaphor is used to describe the condition of the devotees separated from Kṛṣṇa.
 
+### 39
 
-# Chapter 39: Ways of Meeting Kṛṣṇa
+39. Ways of Meeting Kṛṣṇa
+
+## Ways of Meeting Kṛṣṇa
 
 When Kṛṣṇa and His devotees meet, the meeting is technically called *yoga,* or linking up with the Lord. Such meetings between Kṛṣṇa and His devotees can be divided into three classes-namely, perfection, satisfaction, and steadiness. When the devotee meets with Kṛṣṇa in great eagerness, that state of meeting is called perfection.
 
@@ -2791,8 +2860,11 @@ In the process of surrender unto the Supreme Personality of Godhead there are si
 
 When Kṛṣṇa was residing in Dvārakā, some of the elderly members of the Yadu family would occasionally put some important matter before Him. At such a time, Kṛṣṇa would carefully give attention to those matters. And if there were some humorous topics mentioned, Kṛṣṇa would immediately respond with a smiling face. Sometimes when Kṛṣṇa was executing His duties in the assembly known as Sudharmā, He would ask the elderly members for good advice. By such activities He is manifest as the supreme spiritual master, the supreme executive head, the superior intelligence, the supreme power, protector and maintainer.
 
+### 40
 
-# Chapter 40: Reverential Devotion of Sons and Other Subordinates
+40. Reverential Devotion of Sons and Other Subordinates
+
+## Reverential Devotion of Sons and Other Subordinates
 
 True reverential devotion is exhibited by persons who think themselves subordinate to Kṛṣṇa and by persons who think themselves sons of Kṛṣṇa. The best examples of this subordination are Sāraṇa, Gada and Subhadrā. They were all members of the Yadu dynasty, and they always used to think themselves protected by Kṛṣṇa. Similarly, Kṛṣṇa's sons, such as Pradyumna, Cārudeṣṇa, and Sāmba, felt the same way. Kṛṣṇa had many sons in Dvārakā. He begot ten sons by each of His 16,108 queens, and all of these sons, headed by Pradyumna, Cārudeṣṇa and Sāmba, used to think themselves always protected by Kṛṣṇa. When Kṛṣṇa's sons dined with Him, they would sometimes open their mouths for Kṛṣṇa to feed them. Sometimes when Kṛṣṇa would pat one of His sons, the son would sit on Kṛṣṇa's lap, and while Kṛṣṇa was blessing the son's head by smelling it, the others would shed tears, thinking how many pious activities he must have performed in his previous life. Out of Kṛṣṇa's many sons, Pradyumna, a son of Kṛṣṇa's chief queen, Rukmiṇī, is considered the leader. Pradyumna's bodily features resemble Kṛṣṇa's exactly. Pure devotees of Kṛṣṇa glorify Pradyumna because he is so fortunate: like father like son.
 
@@ -2824,8 +2896,11 @@ When Pradyumna came back home after killing the Śambarāsura, and as soon as he
 
 Every day Pradyumna looked over Kṛṣṇa's lotus feet with tears in his eyes. These signs of reverential devotion on the part of Pradyumna can be described in the same way they have been described in the case of other devotees.
 
+### 41
 
-# Chapter 41: Fraternal Devotion
+41. Fraternal Devotion
+
+## Fraternal Devotion
 
 When a devotee is permanently situated in devotional service, and by different symptoms of ecstasy he has developed and matured a fraternal mellow or flavor in relationship with the Personality of Godhead, his feeling is called fraternal love of Godhead.
 
@@ -2835,7 +2910,7 @@ There are similar statements of fraternal love expressed outside the jurisdictio
 
 Sometimes the different names, forms, paraphernalia and transcendental qualities provoke fraternal love: For instance, Kṛṣṇa's nice dress, the all-auspicious symptoms on His body, His strongly-built body, His knowledge of different languages, His learned teachings in the *Bhagavad-gītā,* His uncommon genius in all fields of endeavor, His exhibition of expert knowledge, His mercy, His chivalry, His behavior as a conjugal lover, His intelligence, His forgiveness, His attraction for all kinds of men, His opulence and His happiness-all provoke fraternal love.
 
-The impetus to fraternal love upon seeing the associates of Kṛṣṇa in Vṛndāvana is also very natural, for their personal bodily features, their qualities and dress are all equal to Kṛṣṇa's. These associates are always happy in their service to Kṛṣṇa, and they are generally known as *vayasyas,* or friends of the same age. The *vayasyas* are fully confident of protection by Kṛṣṇa. Devotees sometimes pray: "Let us offer our respectful obeisances unto the *vayasyas* of Kṛṣṇa, who are firmly convinced of Kṛṣṇa's friendship and protection and whose devotion to Kṛṣṇa is ever-fixed. They are fearless, and on a level equal with Kṛṣṇa they discharge their transcendental loving devotional service." Such eternal *vayasyas* are also found beyond the jurisdiction of Vṛndāvana, in places such as Dvārakā and Hastināpura. Except for Vṛndāvana, all the places of Kṛṣṇa's pastimes are called *puras* (towns). Mathurā and Hastināpura, the capital of the Kurus, are both *puras.* Personalities like Arjuna, Bhīma, Draupadī and Śrīdāmā Brāhmaṇa are counted among Kṛṣṇa's fraternal devotees in the *puras.*
+The impetus to fraternal love upon seeing the associates of Kṛṣṇa in Vṛndāvana is also very natural, for their personal bodily features, their qualities and dress are all equal to Kṛṣṇa's. These associates are always happy in their service to Kṛṣṇa, and they are generally known as *vayasyas,* or friends of the same age. The *vayasyas* are fully confident of protection by Kṛṣṇa. Devotees sometimes pray: "Let us offer our respectful obeisances unto the *vayasyas* of Kṛṣṇa, who are firmly convinced of Kṛṣṇa's friendship and protection and whose devotion to Kṛṣṇa is ever-fixed. They are fearless, and on a level equal with Kṛṣṇa they discharge their transcendental loving devotional service." Such eternal *vayasyas* are also found beyond the jurisdiction of Vṛndāvana, in places such as Dvārakā and Hastināpura. Except for Vṛndāvana, all the places of Kṛṣṇa's pastimes are called *puras* (towns). Mathurā and Hastināpura, the capital of the Kurus, are both *puras.* Personalities like Arjuna, Bhīma, Draupadī and Śrīdāmā Brāhmaṇa are counted amongst Kṛṣṇa's fraternal devotees in the *puras.*
 
 How the sons of Pāṇḍu, the Pāṇḍavas, enjoy Kṛṣṇa's association is described as follows: "When Śrī Kṛṣṇa arrived in Indraprastha, the capital of the Kurus, Mahārāj Yudhiṣṭhira immediately came out to smell the flavor of Kṛṣṇa's head." It is the Vedic custom that superiors smell the heads of their subordinates when the subordinates offer respect to the superior by touching his feet. Similarly, Arjuna and Bhīma embraced Kṛṣṇa with great jubilation, and the two younger brothers, namely Nakula and Sahadeva, touched the lotus feet of Kṛṣṇa with tears in their eyes and offered their respects. In this way all the five Pāṇḍava brothers enjoyed the fraternal friendship of Kṛṣṇa in transcendental mellow. Of the five Pāṇḍavas, Arjuna is the most intimately connected with Kṛṣṇa. He has a nice bow in his hand which is called Gāṇḍīva. His thighs are compared with the trunks of elephants, and his eyes are always reddish. When Kṛṣṇa and Arjuna are together on a chariot, they become celestial beauties, pleasing to the eyes of everyone. It is said that once Arjuna was lying in his bed with his head upon Kṛṣṇa's lap and was talking and joking with Kṛṣṇa in great relaxation and was enjoying Kṛṣṇa's company with smiling and great satisfaction.
 
@@ -2891,8 +2966,11 @@ The following is a statement by Ujjvala, showing his jubilant nature: "My dear K
 
 Amongst the groups of different friends of Kṛṣṇa, some are well-known from various scriptures, and some are well-known by popular tradition. There are three divisions amongst Kṛṣṇa's friends: some are eternally in friendship with Kṛṣṇa, some are elevated demigods, and some are perfected devotees. In all of these groups there are some who by nature are fixed in Kṛṣṇa's service and are always engaged in giving counsel; some of them are very fond of joking and naturally cause Kṛṣṇa to smile by their words; some of them are by nature very simple, and by their simplicity they please Lord Kṛṣṇa; some of them create wonderful situations by their activities, apparently against Kṛṣṇa; some of them are very talkative, always arguing with Kṛṣṇa and creating a debating atmosphere; and some of them are very gentle and give pleasure to Kṛṣṇa by their sweet words. All of these friends are very intimate with Kṛṣṇa, and they show expertise in their different activities, their aim always being to please Kṛṣṇa.
 
+### 42
 
-# Chapter 42: Fraternal Loving Affairs
+42. Fraternal Loving Affairs
+
+## Fraternal Loving Affairs
 
 Kṛṣṇa's age, His beauty, His bugle, His flute, His conchshell and His pleasing attitude all provoke love in friendship for Him. His exceptional joking abilities, exhibited sometimes by His pretending to be a royal prince, or even the Supreme Personality of Godhead, also give impetus to devotees developing love for Kṛṣṇa in friendship.
 
@@ -2914,7 +2992,7 @@ At the end of Kṛṣṇa's *paugaṇḍa* age, Kṛṣṇa's hair sometimes han
 
 At this age Kṛṣṇa took pleasure in whispering into the ears of His friends, and the subject of His talks was the beauty of the *gopīs,* who were just tarrying before them. Subala once addressed Kṛṣṇa thus: "My dear Kṛṣṇa, You are very cunning. You can understand the thoughts of others; therefore I am whispering within Your ear that all these five *gopīs,* who are most beautiful, have been attracted by Your dress. And I believe that Cupid has entrusted them with the responsibility of conquering You." In other words, the beauty of the *gopīs* was capable of conquering Kṛṣṇa, although Kṛṣṇa is the conqueror of all universes.
 
-The symptoms of the *kaiśora* age are already described, and it is at this age that devotees generally most appreciate Kṛṣṇa. Kṛṣṇa with Rādhārāṇī is worshiped as Kiśora-kiśorī. Kṛṣṇa does not increase His age that although He is the oldest personality and has innumerable different forms, His original form is always youthful. In the pictures of Kṛṣṇa on the battlefield of Kurukṣetra we can see that He is youthful, although at that time He was old enough to have sons, grandsons and great grandsons. The cowherd boy friends of Kṛṣṇa once said, "My dear Kṛṣṇa, You need not decorate Your body with so many ornaments. Your transcendental features are themselves so beautiful that You do not require any ornamentation." At this age, whenever Kṛṣṇa begins to vibrate His flute early in the morning, all of His friends immediately get up from bed just to join Him in going to the pasturing grounds. One of the friends once said, "My dear cowherd friends, the sound of Kṛṣṇa's flute from above Govardhan Hill is telling us that we need not go to search Him out on the bank of the Yamunā."
+The symptoms of the *kaiśora* age are already described, and it is at this age that devotees generally most appreciate Kṛṣṇa. Kṛṣṇa with Rādhārāṇī is worshiped as *Kiśora-kisori.*Krsna does not increase His age that although He is the oldest personality and has innumerable different forms, His original form is always youthful. In the pictures of Kṛṣṇa on the battlefield of Kurukṣetra we can see that He is youthful, although at that time He was old enough to have sons, grandsons and great grandsons. The cowherd boy friends of Kṛṣṇa once said, "My dear Kṛṣṇa, You need not decorate Your body with so many ornaments. Your transcendental features are themselves so beautiful that You do not require any ornamentation." At this age, whenever Kṛṣṇa begins to vibrate His flute early in the morning, all of His friends immediately get up from bed just to join Him in going to the pasturing grounds. One of the friends once said, "My dear cowherd friends, the sound of Kṛṣṇa's flute from above Govardhan Hill is telling us that we need not go to search Him out on the bank of the Yamunā."
 
 Pārvatī, the wife of Lord Śiva, told her husband: "My dear Pañcamukha [five-faced], just look at the Pāṇḍavas! After hearing the sound of Kṛṣṇa's conchshell known as Pāñcajanya, they have regained their strength and are just like lions."
 
@@ -2972,8 +3050,11 @@ In the Tenth Canto, 12th Chapter, 11th verse of *Śrīmad-Bhāgavatam* it is sta
 
 This particular type of ecstatic love shared between Kṛṣṇa and His confidential friends further develops into parental love, and on from there it may develop into conjugal love, the most exalted humor or mellow of ecstatic love between Lord Kṛṣṇa and His devotees.
 
+### 43
 
-# Chapter 43: Parenthood
+43. Parenthood
+
+## Parenthood
 
 When ecstatic love develops into the relationship of parenthood and becomes steadily established, the relationship is called *vātsalya-rasa.* The exhibition of this *vātsalya-rasa* standard of devotional service can be found in the dealings of Kṛṣṇa with His devotees who represent themselves as superior personalities like father, mother, teacher, etc.
 
@@ -2991,7 +3072,7 @@ There is another description of Mother Yaśodā in a devotee's prayer: "Let me b
 
 There is the following description of Mother Yaśodā's affection for Kṛṣṇa: After rising early in the morning, Mother Yaśodā first of all offered her breast milk to Kṛṣṇa, and then she began to chant various *mantras* for His protection. Then she would decorate His forehead very nicely and bind His arms with protective talismans. By all of these activities, it is definitely understood that she is the emblem of all maternal affection for Kṛṣṇa.
 
-The description of Nanda Mahārāj's bodily features is as follows. The hairs on his head are generally black, but some of them are gray. His garments are of greenish color, like the new-grown leaves of a banyan tree. His belly is fatty, his complexion is exactly like the full moon, and he has a beautiful moustache. When Kṛṣṇa was a baby, one day He was walking in the courtyard, capturing the finger of His father, and because He could not walk steadily He appeared to be almost falling down. While Nanda Mahārāj was giving protection to His transcendental son in this way, all of a sudden there were drops of tears in his eyes, and he became overwhelmed with joy. Let us all offer our respectful obeisances unto the lotus feet of King Nanda!
+The description of Nanda Mahārāj's bodily features is as follows. The hairs on his head are generally black, but some of them are grey. His garments are of greenish color, like the new-grown leaves of a banyan tree. His belly is fatty, his complexion is exactly like the full moon, and he has a beautiful moustache. When Kṛṣṇa was a baby, one day He was walking in the courtyard, capturing the finger of His father, and because He could not walk steadily He appeared to be almost falling down. While Nanda Mahārāj was giving protection to His transcendental son in this way, all of a sudden there were drops of tears in his eyes, and he became overwhelmed with joy. Let us all offer our respectful obeisances unto the lotus feet of King Nanda!
 
 Childhood age, childish dress, movements by the child, sweet words spoken by the child, nice smiling and various forms of childish play are considered provocations for increasing the parental love for Kṛṣṇa. The childhood ages of Kṛṣṇa are divided into three periods: the beginning of *kaumāra* age, the middle of *kaumāra* age and the end of *kaumāra* age. During the beginning and middle of the *kaumāra* age, Kṛṣṇa's thighs are fatty, and the inner part of His eyes are whitish. There are signs of teeth coming out, and He is very mild and gentle. He is described as follows: "When Kṛṣṇa had only three or four teeth coming out of His gums, His thighs were fatty, His body was very, very short, and He began to enhance the parental love of Nanda Mahārāj and Mother Yaśodā with the activities of His childish body. He was sometimes stepping with His legs again and again, sometimes crying, sometimes smiling, sometimes sucking His thumb and sometimes lying down flat. These are some of the different activities of the child Kṛṣṇa. When Kṛṣṇa was lying down flat, sometimes sucking the toes of His feet, sometimes throwing His legs upwards, sometimes crying and sometimes smiling, Mother Yaśodā, seeing her son in such pastimes, did not show any sign of restricting Him, but rather began to watch her child with eagerness, enjoying these childhood pastimes." In the beginning of Kṛṣṇa's *kaumāra* age, there were the nails of tigers set in a golden necklace about His neck. There was protective *tilaka* on His forehead, black mascara around His eyes and silk thread around His waist. These are the descriptions of Kṛṣṇa's dress at the beginning of the *kaumāra* age.
 
@@ -3057,8 +3138,11 @@ These are some of the signs of parental love for Kṛṣṇa by His mother, fath
 
 Śrīla Rūpa Gosvāmī states herein that according to some learned scholars, the three kinds of transcendental mellow so far described-namely, servitude, fraternity and parental affection-are sometimes mixed up. For example, the fraternal feelings of Balarāma are mixed with servitude and parental affection. Similarly, King Yudhiṣṭhira's attraction for Kṛṣṇa is also mixed with parental affection and servitude. Similarly, the transcendental mellow of Ugrasena, Kṛṣṇa's grandfather, is mixed with servitude and parental affection. The affection of all the elderly *gopīs* in Vṛndāvana is a mixture of parental love, servitude and fraternity. The affection of the sons of Mādrī, Nakula and Sahadeva, as well as the affection of sage Nārada, is a mixture of friendship and servitude. The affection of Lord Śiva, Garuḍa and Uddhava is a mixture of servitude and fraternity.
 
+### 44
 
-# Chapter 44: Devotional Service in Conjugal Love
+44. Devotional Service in Conjugal Love
+
+## Devotional Service in Conjugal Love
 
 A pure devotee's attraction to Kṛṣṇa in conjugal love is called devotional service in conjugal love. Although such conjugal feelings are not at all material, there is some similarity between this spiritual love and material activities. Therefore, persons who are interested only in material activities are unable to understand this spiritual conjugal love, and these devotional reciprocations appear very mysterious to them. Rūpa Gosvāmī therefore describes conjugal love very briefly.
 
@@ -3094,14 +3178,15 @@ When the lover and beloved come together and enjoy one another by direct contact
 
 Śrī Rūpa Gosvāmī thus ends the fifth wave of his Ocean of the Nectar of Devotion. He offers his respectful obeisances to the Supreme Personality of Godhead who appeared as Gopāla, the eternal form of the Lord.
 
-*Thus ends the Bhaktivedanta summary study of the third division of* Bhakti-rasāmṛta-sindhu *in the matter of the five primary relationships with Kṛṣṇa.*
+### 45
 
+45. Laughing Ecstasy
 
-# Chapter 45: Laughing Ecstasy
+## Laughing Ecstasy
 
 In the fourth division of *Bhakti-rasāmṛta-sindhu,* Śrīla Rūpa Gosvāmī has described seven kinds of indirect ecstasies of devotional service-known as laughing, astonishment, chivalry, compassion, anger, dread and ghastliness. In this portion, Śrīla Rūpa Gosvāmī further describes these ecstasies of devotional feelings, some being compatible and others incompatible with one another. When one kind of ecstatic devotional service overlaps with another in a conflicting way, this state of affairs is called *rasābhāsa,* or a perverted presentation of mellows.
 
-Expert learned scholars say that laughing is generally found among youngsters or in the combination of old persons and young children. This ecstatic loving laughing is sometimes also found in persons who are very grave by nature. Once an old mendicant approached the door of Mother Yaśodā's house, and Kṛṣṇa told Yaśodā, "My dear Mother, I don't wish to go near this skinny villain. If I go there, he might put Me within his begging bag and take Me away from You!" In this way, the wonderful child, Kṛṣṇa, began to look at His mother, while the mendicant, who was standing in the door, tried to hide his smiling face, although he could not do so. He immediately expressed his smiling. In this instance, Kṛṣṇa Himself is the object of laughing affairs.
+Expert learned scholars say that laughing is generally found amongst youngsters or in the combination of old persons and young children. This ecstatic loving laughing is sometimes also found in persons who are very grave by nature. Once an old mendicant approached the door of Mother Yaśodā's house, and Kṛṣṇa told Yaśodā, "My dear Mother, I don't wish to go near this skinny villain. If I go there, he might put Me within his begging bag and take Me away from You!" In this way, the wonderful child, Kṛṣṇa, began to look at His mother, while the mendicant, who was standing in the door, tried to hide his smiling face, although he could not do so. He immediately expressed his smiling. In this instance, Kṛṣṇa Himself is the object of laughing affairs.
 
 Once one of Kṛṣṇa's friends informed Him, "My dear Kṛṣṇa, if You will open Your mouth, then I shall give You one nice sugar candy mixed with yogurt." Kṛṣṇa immediately opened His mouth, but instead of giving Him sugar candy with yogurt, the friend dropped a flower in His mouth. After tasting this flower, Kṛṣṇa turned His mouth in a disfigured way, and upon seeing this all His friends standing there began to laugh very loudly.
 
@@ -3125,8 +3210,9 @@ When a smiling person claps his hands and leaps in the air, the smiling expressi
 
 Sometimes there are indirect sarcastic remarks which also create *atihasita* circumstances. An example of one such remark was made by one of the cowherd girls to Kuṭilā, the daughter of Jaṭilā and sister of Abhimanyu, the so-called husband of Rādhārāṇī. Indirectly Kuṭilā was insulted by the following statement: "My dear Kuṭilā, daughter of Jaṭilā, your breasts are as long as string beans-simply dry and long. Your nose is so gorgeous that it is defying the beauty of the noses of frogs. And your eyes are more beautiful than the eyes of dogs. Your lips are defying the flaming cinders of fire, and your abdomen is as beautiful as a big drum. Therefore, my dear beautiful Kuṭilā, you are the most beautiful of all the cowherd girls of Vṛndāvana, and because of your extraordinary beauty, I think you must be beyond the attraction of the sweet blowing of Kṛṣṇa's flute!"
 
+### 46
 
-# Chapter 46: Astonishment and Chivalry
+46. Astonishment and Chivalry
 
 ## Astonishment
 
@@ -3192,8 +3278,9 @@ The best example of a *dharma-vīra* is Mahārāj Yudhiṣṭhira. A devotee onc
 
 The performance of different *yajñas* for the demigods is considered to be worship of the limbs of the Supreme Lord. The demigods are considered to be different parts of the universal body of the Lord, and therefore the ultimate purpose in worshiping them is to please the Lord by partially worshiping His different limbs. Mahārāj Yudhiṣṭhira had no such material desire; he executed all sacrifices under the direction of Kṛṣṇa, and not to take any personal advantage from them. He only desired to please Kṛṣṇa and was therefore called the best of the devotees. He was always merged in the ocean of loving service.
 
+### 47
 
-# Chapter 47: Compassion and Anger
+47. Compassion and Anger
 
 ## Compassion
 
@@ -3227,7 +3314,7 @@ The above attitudes of dissatisfaction and anger in devotional service are calle
 
 When Uddhava was leaving Vṛndāvana, some of the elderly *gopīs* rebuked him as follows: "O son of Gāndinī, your cruelty is defaming the dynasty of King Yadu. You are taking Kṛṣṇa away, keeping us in such pitiable condition without Him. Now, even before you have left, the life air of all the *gopīs* has practically disappeared."
 
-When Kṛṣṇa was insulted by Śiśupāla in the assembly of the rāja-sūya *yajña* convened by Mahārāj Yudhiṣṭhira, there was a great turmoil amongst the Pāṇḍavas and Kurus, involving grandfather Bhīṣma. At that time Nakula said with great anger, "Kṛṣṇa is the Supreme Personality of Godhead, and the nails of His toes are beautified by the light emanating from the jeweled helmets of the authorities of the *Vedas.* If He is derided by anyone, I declare herewith as a Pāṇḍava that I will kick his helmet with my left foot, and I will strike him with my arrows, which are as good as Y*amadaṇḍa,* the sceptor of Yamarāja!" This is an instance of ecstatic love for Kṛṣṇa in anger.
+When Kṛṣṇa was insulted by Śiśupāla in the assembly of the rāja-sūya *yajña* convened by Mahārāj Yudhiṣṭhira, there was a great turmoil amongst the Pāṇḍavas and Kurus, involving grandfather Bhīṣma. At that time Nakula said with great anger, "Kṛṣṇa is the Supreme Personality of Godhead, and the nails of His toes are beautified by the light emanating from the jeweled helmets of the authorities of the *Vedas.* If He is derided by anyone, I declare herewith as a Pāṇḍava that I will kick his helmet with my left foot, and I will strike him with my arrows, which are as good as *Y* amadaṇḍa, the sceptor of Yamarāja!" This is an instance of ecstatic love for Kṛṣṇa in anger.
 
 In such a transcendental angry mood sometimes sarcastic remarks, unfavorable glances and insulting words are exhibited. Sometimes there are other symptoms, like rubbing the two hands, clacking the teeth, clamping the lips, moving the eyebrows, scratching the arms, lowering the head, breathing rapidly, uttering strong words, nodding the head, exhibiting yellowishness at the corner of the eyes, and exhibiting trembling lips. Sometimes the eyes turn red, and sometimes they fade. And there is sometimes chastisement and silence. All these symptoms of anger can be divided into two parts: constitutional and unconstitutional, or permanent and temporary symptoms. Sometimes great emotion, bewilderment, pride, frustration, illusion, impotence, jealousy, dexterity, negligence and signs of hard labor are also manifest as unconstitutional symptoms.
 
@@ -3243,8 +3330,9 @@ Once, when Rādhārāṇī was taking off the necklace given to Her by Kṛṣ�
 
 Natural jealousy of Kṛṣṇa by persons like Śiśupāla cannot be accepted as ecstatic love in anger with Kṛṣṇa.
 
+### 48
 
-# Chapter 48: Dread and Ghastliness
+48. Dread and Ghastliness
 
 ## Dread
 
@@ -3278,8 +3366,11 @@ It is to be understood that any person who is constantly engaged in chanting the
 
 In conclusion, it may be stated that ecstatic love for Kṛṣṇa in ghastliness appears during the development of dormant neutrality into developed affection.
 
+### 49
 
-# Chapter 49: Mixing of Rasas
+49. Mixing of Rasas
+
+## Mixing of Rasas
 
 As already described, there are twelve different kinds of *rasas,* or ecstatic relationships which are shared with Kṛṣṇa. Five of these *rasas* are direct, and they are listed as neutrality, servitude, fraternal love, parental love, and conjugal love. Seven of the *rasas* are indirect, and they are listed as humor, astonishment, chivalry, compassion, anger, dread and ghastliness. The five direct *rasas* are eternally manifested in the Vaikuṇṭha world, the spiritual kingdom, whereas the seven indirect *rasas* are eternally manifesting and unmanifesting in Gokula Vṛndāvana, where Kṛṣṇa displays His transcendental pastimes in the material world.
 
@@ -3353,7 +3444,7 @@ The following illustrates a mixture of several feelings. When one of the consort
 
 When Kubjā caught hold of Kṛṣṇa's yellow garment because she was feeling almost lusty with sex urge, Kṛṣṇa simply bowed down His head with His cheeks glowing in front of the many people who were standing there and laughing. This is an example of a mixture of ecstatic conjugal love and laughter. The laughter is taken as the whole, and the conjugal love is taken as the part.
 
-Viśāla, a cowherd boy who was attempting to fight with Bhadrasena, was addressed by another cowherd boy as follows:"Why are you attempting to show your chivalrous spirit before me? Before this, you even attempted to fight with Śrīdāmā, but you must know that Śrīdāmā does not even care to fight with hundreds of Balarāmas. So why are you acting so enthusiastically when you actually have no importance at all?" This is an example of a mixture of devotional fraternity and chivalry. The chivalry is taken as the whole, and the fraternity is taken as the part.
+Viśāla, a cowherd boy who was attempting to fight with Bhadrasena, was addressed by another cowherd boy as follows: "Why are you attempting to show your chivalrous spirit before me? Before this, you even attempted to fight with Śrīdāmā, but you must know that Śrīdāmā does not even care to fight with hundreds of Balarāmas. So why are you acting so enthusiastically when you actually have no importance at all?" This is an example of a mixture of devotional fraternity and chivalry. The chivalry is taken as the whole, and the fraternity is taken as the part.
 
 Śiśupāla was habituated to calling Kṛṣṇa ill names, and by his insults he irritated the sons of Pāṇḍu more than he irritated Kṛṣṇa. The Pāṇḍavas therefore equipped themselves with all kinds of weapons to kill Śiśupāla. Their feelings were a mixture of ecstatic anger and fraternity, the anger being taken as the whole, and fraternity as the part.
 
@@ -3365,8 +3456,11 @@ There is a good analogy in this connection, showing the relationship between the
 
 When an unconstitutional ecstasy of devotional service is manifested prominently at a certain time, it is still accepted as the part. If it is not very prominently manifested, it appears only slightly and quickly merges back into the whole. At such times of slight appearance, no consideration is given to it; as when one is eating some palatable dishes, if one also eats a small blade of grass he will not taste it, nor will he care to distinguish what its taste is like.
 
+### 50
 
-# Chapter 50: Further Analysis of Mixed Rasas
+50. Further Analysis of Mixed Rasas
+
+## Further Analysis of Mixed Rasas
 
 As already described, if certain kinds of mellows become mixed and there is a joining of opposite mellows, then the situation is called incompatible. When one is eating sweet rice and something salty or sour is mixed in, the mixture is not very tasteful, and it is called incompatible.
 
@@ -3414,10 +3508,13 @@ In the *Lalita-mādhava* of Śrīla Rūpa Gosvāmī it is stated, "After Kṛṣ
 
 A similar statement, which is free from incompatibility, is in the *Lalita-mādhava* wherein the author blesses all the readers of the book in the following manner: "Although the Supreme Personality of Godhead is able to lift a mountain with a finger of His left hand, He is always humble and meek. He is always very kind to His loving devotees. He has frustrated Indra's attempt at vengeance by refusing him the sacrifice of Indra-yajña. He is the cause of all pleasure to all young girls. May He be ever compassionate upon you all!"
 
+### 51
 
-# Chapter 51: Perverted Expression of Mellows
+51. Perverted Expression of Mellows
 
-*Rasābhāsa,* or incompatible mixtures of mellows, may be classified as *uparasa* (false expression) *anurasa* (imitation) and *aparasa* (perverted or misrepresented mellows).
+## Perverted Expression of Mellows
+
+*Rasābhāsa,* or incompatible mixtures of mellows, can be classified as *uparasa* (false expression) *anurasa* (imitation) and *aparasa* (perverted or misrepresented mellows).
 
 There is the following statement by an impersonalist who had just seen Kṛṣṇa: "When a person has passed completely from all contamination of material existence, he relishes a transcendental bliss of being established in trance. But as soon as I saw You, the original Personality of Godhead, I experienced the same bliss." This perverted reflection of mellows is called *śānta-uparasa,* or a perverted reflection of mixed impersonalism and personalism.
 
@@ -3445,11 +3542,8 @@ When Kṛṣṇa was fleeing from the battlefield, from a distant place Jarāsan
 
 Everything in connection with Kṛṣṇa is called ecstatic devotional love, although it may be exhibited in different ways: sometimes in right order and sometimes as a perverted reflection. According to the opinion of all expert devotees, anything that will arouse ecstatic love for Kṛṣṇa is to be taken as an impetus for transcendental mellow.
 
-*Thus ends the Bhaktivedanta summary study of* Śrī Bhakti-rasāmṛta-sindhu *by Śrīla Rūpa Gosvāmī.*
-
 ## Concluding Words
 
 Śrīla Rūpa Gosvāmī concludes by saying that Bhakti-rasāmṛta-sindhu is very difficult for ordinary men to understand, yet he hopes that Lord Kṛṣṇa, the eternal Supreme Personality of Godhead, will be pleased with his presentation of this book.
 
 By rough calculation it is estimated that Śrīla Rūpa Gosvāmī finished *Śrī Bhakti-rasāmṛta-sindhu* in Gokula Vṛndāvana in the year 1552. While physically present, Śrīla Rūpa Gosvāmī was living in different parts of Vṛndāvana, and his headquarters were in the temple of Rādhā-Dāmodara in the present city of Vṛndāvana. The place of Rūpa Gosvāmī's *bhajana,* execution of devotional service, is commemorated still. There are two different tomb-like structures in the Rādhā-Dāmodara temple; one structure is called his place of *bhajana,* and in the other his body is entombed. Behind this very tomb I have my place of *bhajana,* but since 1965 I have been away. The place, however, is being taken care of by my disciples. By Kṛṣṇa's will, I am now residing at the Los Angeles temple of the International Society for Krishna Consciousness. This purport is finished today, the 30th of June, 1969.
-

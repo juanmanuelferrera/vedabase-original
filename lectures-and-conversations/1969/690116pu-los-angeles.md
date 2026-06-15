@@ -1,0 +1,83 @@
+# Bhajan & Purport to Parama Koruṇa
+
+*Bhajan &amp; Purport to  Parama Koruṇa Type: Purport Dated: January 16th 1969 Location: Los Angeles Audio file: 690116PU-LOS-ANGELES.mp3*
+
+**Prabhupāda:** [sings:]
+
+> parama koruṇa, pahū dui jana
+> nitāi gauracandra
+> saba avatāra-sāra śiromaṇi
+> kevala ānanda-kanda
+
+**[Lord Nitāi and Lord Gauracandra are very merciful. They are the essence of all incarnations. The specific significance of these incarnations is that They introduced a process of chanting and dancing that is simply joyful.]**
+
+> bhajo bhajo bhāi, caitanya nitāi
+> sudṛḍha biśwāsa kori
+> viṣaya chāḍiyā, se rase majiyā,
+> mukhe bolo hari hari
+
+**[My dear brothers, I request that you just worship Lord Caitanya and Nityānanda with firm conviction and faith. If one wants to be Kṛṣṇa conscious by this process, one has to give up his engagement in sense gratification. Become absorbed in worshiping Lord Caitanya and Nityananda and simply chant “Hare Kṛṣṇa! Hari Hari!” without any material motive.]**
+
+> dekho ore bhāi, tri-bhuvane nāi,
+> emona doyāla dātā
+> paśu pākhī jhure, pāṣāṇa vidare,
+> śuni' jāṅra guṇa-gāthā
+
+**[My dear brothers, just try to examine this. Within the three worlds there is no one like Lord Caitanya or Lord Nityānanda. Their merciful qualities are so great that upon hearing them even birds and beasts cry and stones melt.]**
+
+> saṁsāre majiyā, rohili poriyā,
+> se pade nahilo āśa
+> āpana karama, bhuñjāye śamana,
+> kahoye locana-dāsa
+
+**[But I, Locana Dāsa, regret that I am entrapped by sense gratification. I have no attraction for the lotus feet of Lord Caitanya and Lord Nityānanda, and therefore Yamarāja, the superintendent of death, is punishing me by not allowing me to be attracted by this movement.]**
+
+*Parama koruṇa, pahū dui jana, nitāi gauracandra.* This is a song sung by Locana dāsa Ṭhākura, a great devotee of Lord Caitanya, almost contemporary. He wrote one book, *Caitanya-maṅgala,* depicting the activities of Lord Caitanya. That is a very famous book, *Caitanya-maṅgala.* And he has composed many songs. Practically all Vaiṣṇavas, they are transcendentally poetic. That is one of the twenty-six qualifications of the Vaiṣṇava.
+
+So he says that "These two Lords," *nitāi gauracandra,* "Lord Nityānanda and Lord Gaurāṅga, or Lord Caitanya, They are very merciful incarnations.'' *Saba avatāra-sāra śiromaṇi:* "They are essence of all incarnations.'' The incarnation is stated in the *Bhagavad-gītā* that whenever there is discrepancies in the prosecution of religiosities and there is prominence of impious activities, at that time the Lord incarnates, or He descends on this material world, for protecting the pious and annihilating the impious. That is the mission of incarnation.
+
+Every incarnation you'll find two things. Lord Kṛṣṇa, He's so beautiful, so kind, but He is very dangerous to the demons. The demons were seeing Him as thunderbolt, and the *gopīs* were seeing Him as the most beautiful Cupid. So in the *Bhagavad-gītā* also it is stated, *ye yathā māṁ prapadyante* *Bg.* 4.11*.*
+
+**[All of them-as they surrender unto Me-I reward accordingly. Everyone follows My path in all respects, O son of Pṛthā.]**
+
+The God is realized in proportion to one's freedom from the demoniac propensities. So in this age... Of course, the last incarnation, Kalki, will simply kill. Long, long after, He will come. But here Lord Caitanya, His mission is no killing, simply favoring. That is the specific characteristic of Lord Caitanya. Because in this age, of course, there is very much prominence of irreligiosity. But if Lord Caitanya wanted to kill them, then there was no question of their salvation. They would be...
+
+Of course, anyone who is killed by incarnation, he also gets salvation. But not to the spiritual planets, but they merge into the Brahman effulgence as the impersonalists desire. In other words, the impersonalist's goal of salvation is as good as the goal of salvation of the enemies of God. That is not a very difficult job.
+
+So Lord Caitanya is very merciful because He is embracing everyone by bestowing love of Kṛṣṇa. Rūpa Gosvāmī has described Lord Caitanya as the most munificent of all the incarnations because He is giving Kṛṣṇa to everyone, without any qualification. So Locana dāsa Ṭhākura says that *parama koruṇa, pahū dui jana, nitāi gauracandra,* that They are essence of all incarnation. *Kevala ānanda-kanda.*
+
+And Their preaching process is very pleasing. Caitanya Mahāprabhu recommends, "You chant Hare Kṛṣṇa, dance nicely, and when you feel tired, just take rest and eat Kṛṣṇa *prasādam.*" So His formula is very pleasing. *Kevala ānanda-kanda.*
+
+While He was present in Jagannātha Purī, every day in the evening, dancing was..., chanting and dancing continued. And after dancing is finished, He used to distribute sumptuously *prasādam* of Jagannātha. So many thousands of people used to assemble every night. So simply transcendentally pleasing, this movement. *Kevala ānanda-kanda.*
+
+Then he recommends, *bhajo bhajo bhāi, caitanya nitāi:* "My dear brother, just try to worship these two Lords, Caitanya and Nityānanda," *sudṛḍha viśvāsa kori',* "with faith and conviction." One should have faith in the words of Lord Caitanya. Lord Caitanya says that "Go on chanting. Simply by chanting, one will get all perfection of life."
+
+So this is a fact. Unless we take to chanting, we cannot realize it. But those who are chanting, they are realizing that they're getting all desired perfection of life very quickly. So we should chant this *mantra* with faith and conviction.
+
+But the only qualification required in this connection, he says, *viṣaya chāḍiyā, se rase majiyā, mukhe bolo hari hari.* We have to chant with faith and conviction; at the same time we should take care, we should be guarding against sense enjoyment. *Viṣaya chāḍiyā. Viṣaya* means sense enjoyment. And *chāḍiyā* means give up.
+
+One should give up sense enjoyment. Of course, in this materialistic life we have got our senses and we are practiced to use them. We cannot stop it. But there is no question of stopping, but regulating it. Just like we want to eat. *Viṣaya* means eating, sleeping, mating and defending. So these things are not forbidden altogether, but they're adjusted just to make it favorable for executing my Kṛṣṇa consciousness.
+
+So we should not take... Just like eating. We should not eat just to satisfy the taste. We should eat only just to keep ourself fit for executing Kṛṣṇa consciousness. So eating is not stopped, but it is regulated favorably. Similarly, mating. Mating is also not stopped. But the regulative principle is that you should marry and you should have sex life only for begetting children Kṛṣṇa conscious.
+
+Otherwise don't do it. So everything is regulated. There is no question of stopping defense also. Arjuna was fighting, defending, under the order of Kṛṣṇa. So everything is there. Nothing stop. Simply it is adjusted for executing our Kṛṣṇa consciousness.
+
+*Viṣaya chāḍiyā.* We should not accept these *viṣaya,* these four principles of bodily demands, namely eating, sleeping, mating and defending, for sense gratification. No. The politicians, they fight for sense gratification. They do not see to the good of the people. For their political aggrandizement they fight. That fight is forbidden. But when fight is necessity for defending people, that fighting should be taken. So we have to give up this principle of sense gratification, or sense gratificatory process.
+
+*Dekho dekho bhāi tri-bhuvane nāi.* Then he says, "Just see that there is nobody else so merciful.'' *Paśu pākhī jhure, pāṣāṇa vidare.* By His mercy even the birds and beasts, they are also maintained. Actually, when Caitanya Mahāprabhu passed through the forest known as Jhārikhaṇḍa in central India, He was only accompanied by his personal attendant, and He was alone. And when He was passing through the forest He touched one tiger.
+
+He was sleeping, and the tiger answered roaring. The company, Caitanya Mahāprabhu's attendant, he thought, "Now we are gone.'' But actually, Caitanya Mahāprabhu asked the tiger, "Why you are sleeping? Just stand up. Chant Hare Kṛṣṇa.'' And the tiger began to dance. So actually, this happened. When Caitanya Mahāprabhu preached this Hare Kṛṣṇa movement, the tigers, the deers, the... Everyone joined.
+
+So of course, we are not so powerful. But it is possible that... At least, we have seen the dogs are dancing in *saṅkīrtana.* So it is possible also to take... But we may not attempt such great risk. But Caitanya Mahāprabhu could induce tigers to dance; we can at least induce every human being to dance. This is such a nice movement.
+
+So *paśu pākhī jhure, pāṣāṇa vidare. Pāṣāṇa* means stone. So even the stone-hearted man, he also melts by chanting Hare Kṛṣṇa. That we have experienced, seen. *Pāṣāṇa vidare, śuni' jāra guṇa-gāthā.* Simply by hearing the transcendental pastimes and characteristics of Lord Caitanya, even hard-hearted men, they also melted. There were many instances. Jagāi Mādhāi. Many fallen souls, they became elevated to the highest spiritual platform.
+
+Then Locana dāsa Ṭhākura says that *viṣaya majiyā, rohili poriyā:* "Unfortunately, I am so much entrapped in these demands of the body or the senses that I have forgotten the lotus feet of Caitanya Mahāprabhu.'' *Viṣaya majiyā, rohili poriyā, se pade nahilo āśa.* "I could not desire to be attached to the lotus feet of Lord Caitanya.''
+
+So why it is so? So he's lamenting that *āpana karama, bhuñjāye śamana,* that "I am suffering the sequence of my past misdeeds, that I could not be attracted by the Kṛṣṇa consciousness movement. It is a punishment on me by the Yamaraja, the superintendent of death.''
+
+Actually, this Kṛṣṇa consciousness movement, *saṅkīrtana* movement, is so nice and attractive, every simple, I mean to say, unsophisticated person shall be attracted. But if one is not attracted, it is to be understood that he is being punished by the laws of the superintendent of death.
+
+Anyway, if we stick to this principle of chanting, then even Yamarāja, the superintendent of death, he'll also fail to punish. That is the verdict of *Brahma-saṁhitā. Brahma-saṁhitā* says one who takes to this devotional life, his reaction of past deeds are adjusted immediately.
+
+So every one of us should take part in this movement of Kṛṣṇa consciousness by chanting Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. [end]

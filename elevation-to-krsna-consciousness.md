@@ -1,7 +1,8 @@
 # Elevation to Kṛṣṇa Consciousness
 
+### 1
 
-# Chapter 1: Choosing Human and Animal Lives
+Choosing Human and Animal Lives
 
 Choosing Human and Animal Lives
 
@@ -249,8 +250,9 @@ The spiritual world is not dry or abstract; as pointed out before, there is vari
 
 Chapter Two
 
+### 2
 
-# Chapter 2: Hard Struggle for Happiness
+Hard Struggle for Happiness
 
 Hard Struggle for Happiness
 
@@ -510,8 +512,9 @@ By rendering such devotional service only, and not by merely acquiring a bulk of
 
 Chapter Three
 
+### 3
 
-# Chapter 3: Toward a Peaceful Society
+Toward a Peaceful Society
 
 Toward a Peaceful Society
 
@@ -551,7 +554,7 @@ ahaṁ bīja-pradaḥ pitā
 
 
 
-In this material world, the mother, prakṛti, which is material nature, supplies us with the body, and the Supreme Father impregnates this matter with living souls. There is an erroneous theory current that only human beings have souls and that other living entities do not, but we understand from Vedic authority that there are 8,400,000 species of bodies, including plants and trees, and that they all have souls, otherwise they would not be able to develop and grow. In this verse Śrī Kṛṣṇa claims that all living entities, regardless of the forms they take in this material world, are his sons, and that they are related to Him as a son is related to his father.
+In this material world, the mother, prakṛti, which is material nature, supplies us with the body, and the Supreme Father impregnates this matter with living souls. There is an erroneous theory current that only human beings have souls and that other living entities do not, but we understand from Vedic authority that there are over 8,000,000 species of bodies, including plants and trees, and that they all have souls, otherwise they would not be able to develop and grow. In this verse Śrī Kṛṣṇa claims that all living entities, regardless of the forms they take in this material world, are his sons, and that they are related to Him as a son is related to his father.
 
 
 
@@ -685,8 +688,9 @@ Modern society is in dire need of intellectual persons or brāhmaṇas who can b
 
 Chapter Four
 
+### 4
 
-# Chapter 4: Knowing Krsna as He Is
+Knowing Krsna as He Is
 
 Knowing Kṛṣṇa as He Is
 
@@ -1016,8 +1020,9 @@ sthānaṁ prāpsyasi śāśvatam
 
 Chapter Five
 
+### 5
 
-# Chapter 5: Knowing Krsna's Energies
+Knowing Krsna's Energies
 
 Knowing Kṛṣṇa's Energies
 
@@ -1247,8 +1252,9 @@ The personality of Godhead, who is fully cognizant of everything in His creation
 
 Chapter Six
 
+### 6
 
-# Chapter 6: Taking to Krsna Consciousness
+Taking to Krsna Consciousness
 
 Taking to Kṛṣṇa Consciousness
 
@@ -1485,4 +1491,3 @@ In *Bhagavad-gītā* Lord Śrī Kṛṣṇa is accepted as the supreme authority
 
 
 Today people have forgotten their relationship with God, but this incarnation of Kṛṣṇa in the form of His holy names, this chanting of Hare Kṛṣṇa, will deliver all the people of the world from their forgetfulness. Lord Caitanya Mahāprabhu says that if we chant or associate with the chanting of the holy names of Kṛṣṇa, we will reach the highest perfectional stage of life. According to *Śrīmad-Bhāgavatam* there are different processes for different ages, but the principle of each process remains valid in all ages. It is not that the chanting of Hare Kṛṣṇa is effective in this age and not in Satya-yuga. Nor is it that people were not chanting the holy names of Kṛṣṇa in Satya-yuga. In Satya-yuga meditation was the main process, and great munis meditated for periods extending upwards of 60,000 years. In this age, however, perfection by that means of meditation is not possible because we are so short-lived. Consequently in this age it is especially recommended that we all sit down together and chant Hare Kṛṣṇa. It is very easy, and everyone can take part in it. There is no necessity of education, nor are any previous qualifications required. In this age people are also very slow and unfortunate, and they are contaminated with bad association. Caitanya Mahāprabhu introduced the chanting of Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare as a great means of propaganda for spreading love of God. It is not that it is recommended only for Kali-yuga. Actually, it is recommended for every age. There have always been many devotees who have chanted and reached perfection in all ages. That is the beauty of this Kṛṣṇa consciousness movement. It is not simply for one age, or for one country, or for one class of people. Hare Kṛṣṇa can be chanted by any man in any social position, in any country and in any age, for Kṛṣṇa is the Supreme Lord of all people in all social positions, in all countries, in all ages.
-

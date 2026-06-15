@@ -1,0 +1,148 @@
+# Śrī Īśopaniṣad, Mantra 1
+
+*Type: Sri Isopanisad Dated: April 30th 1970 Location: Los Angeles Audio file: 700430IP-LOS-ANGELES.mp3*
+
+**Prabhupāda:** Hare Kṛṣṇa.
+
+> oṁ pūrṇam adaḥ pūrṇam idaṁ
+> pūrṇāt pūrṇam udacyate
+> pūrṇasya pūrṇam ādāya
+> pūrṇam evāvaśiṣyate
+
+[*Īśo Invocation*]
+
+> īśāvāsyam idam sarvaṁ
+> yat kiñca jagatyāṁ jagat
+> tena tyaktena bhuñjīthā
+> mā gṛdhaḥ kasya svid dhanam
+
+[*Īśo mantra 1*]
+
+> kurvann eveha karmāṇi
+> jijīviṣec chataṁ samāḥ
+> evaṁ tvayi nānyatheto 'sti
+> na karma lipyate nare
+
+[*Īśo mantra 2*]
+
+> asuryā nāma te lokā
+> andhena tamasāvṛtāḥ
+> tāṁs te pretyābhigacchanti
+> ye ke cātma-hano janāḥ
+
+[*Īśo mantra 3*]
+
+> anejad ekaṁ manaso javīyo
+> nainad devā āpnuvan pūrvam arṣat
+> tad dhāvato 'nyān atyeti tiṣṭhat
+> tasminn apo mātariśvā dadhāti
+
+[*Īśo mantra 4*]
+
+> tad ejati tan naijati
+> tad dūre tad v antike
+> tad antar asya sarvasya
+> tad u sarvasyāsya bāhyataḥ
+
+[*Īśo mantra 5*]
+
+> yas tu sarvāṇi bhūtāny
+> ātmany evānupaśyati
+> sarva-bhūteṣu cātmānaṁ
+> tato na vijugupsate
+
+[*Īśo mantra 6*]
+
+> yasmin sarvāṇi bhūtāny
+> ātmaivābhūd vijānataḥ
+> tatra ko mohaḥ kaḥ śoka
+> ekatvam anupaśyataḥ
+
+[*Īśo mantra 7*]
+
+> sa paryagāc chukram akāyam avraṇam
+> asnāviram śuddham apāpa-viddham
+> kavir manīṣī paribhūḥ svayambhūr
+> yāthātathyato 'rthān vyadadhāc chāśvatībhyaḥ samābhyaḥ
+
+[*Īśo mantra 8*]
+
+[03:20]
+
+Who will explain? Karandhara Prabhu, you will explain? First or second. Hare Kṛṣṇa. [pause] Which one?
+
+**Karandhara:** Second verse?
+
+**Prabhupāda:** Yes, any one, if you can... Whatever you have realized, you can say, without seeing the book. *Īśāvāsyam idaṁ sarvam* [*Īśo mantra 1*]. Yes...
+
+**Karandhara:** Everything animate or inanimate in this world is controlled and owned by Kṛṣṇa. In the *Bhagavad-gītā* it is described that there are two types of energies of Kṛṣṇa: *parā prakṛti* and *aparā prakṛti,* the superior energy and the inferior energy. The inferior energy is made up of the gross elements earth, air, fire, water and ether, and the subtle energy, or the subtle material elements, are the sky..., excuse me, mind, intelligence and false ego. These make up the *parā prakṛti,* or the inferior energy of the Lord.
+
+But the living entities, they are the superior energy of the Lord. They are *aparā prakṛti;* and henceforth, due to their illusion, due to their misconception, they are trying to lord it over the *parā prakṛti,* uh, uh, *aparā prakṛti,* the inferior energy of the Lord, and they have become entangled. They have become covered by these gross elements.
+
+So when one is realizing who the source of the energies..., of all these energies are, who are the proprietor, who are the controller of the energy, then by the Lord's mercy, the Lord being the controller of all these energies, that entity can become free from the covering, from the influence of the material energy, and can resume his natural constitutional position as superior energy and function and exist on that platform in realization of both energies and his relationship with the supreme energy of the Supreme Lord, Kṛṣṇa.
+
+One should not..., one should only accept that which is set aside for him, that which is needed. The lusty desire to gain more, to acquire more—this lust, this perversion, this misunderstanding is exactly what enamors the living entity, the *parā prakṛti,* in the inferior energy, *aparā prakṛti.* So when one can come to this understanding, that everything is controlled, everything is owned by the Supreme Lord, and that he has no proprietorship, then he can give up this false sense of "mine" and "I" and realize that the Supreme Lord, Kṛṣṇa, He is the controller, He is the owner, and can once again regain his blissful, natural state, *sac-cid-ānanda-vigrahaḥ* [*Bs.* 5.1].
+
+[07:06]
+
+**Prabhupāda:** Hmm. Why a living entity is superior energy? Can anyone explain? Why living...? Yes? Stand up.
+
+**Devotee (1):** Well, it is stated that the living entity, or the *jīva* soul, belongs to the *jīva-tattva,* that categoristic..., falls into that categoristic of the Lord's energy. He is... Spark...
+
+**Prabhupāda:** No, the question is why the living entity is called superior energy? That is the question. The material..., matter—earth, water, air, fire, sky—the inferior energy; and why the living is called superior energy? Who can explain? Yes? Stand up.
+
+**Devotee (2):** Well, the individual living entities are all part and parcel of the Supreme Lord, Kṛṣṇa.
+
+**Prabhupāda:** The part and parcel, this material energy also, part and parcel. Because energy...
+
+**Devotee:** It's separated. Material energy's separated, whereas the superior energy...
+
+**Prabhupāda:** Separated, and this also, living entities also separated, in this sense. One sense, nothing is separated; but at the same time, separated. But the question is why the living entity's called superior energy. Yes?
+
+**Devotee (3):** The living entities are conscious whereas the material energy's not.
+
+**Prabhupāda:** Yes, that is also one of the reasons. A living entity's conscious, whereas the material energy is not conscious. This is one of the... Yes?
+
+**Devotee (4):** The living entity is also eternal, nonchanging, whereas the material energy is subject to change repeatedly.
+
+**Prabhupāda:** Yes, that is also. And the most important is that living entity is superior in this sense, that the living entity can control over the material energy. Just like in this temple, all this paraphernalia which you have got, this is made of matter—earth, water, fire, water, and fire, air. But the living entity has molded for his purpose.
+
+And it can utilize the material energy, just like the modern scientists, they are utilizing. Just like you American people, this land of America, before your coming from European countries, it was vacant land. The people who lived here, they could not utilize. But you have developed by your intelligence a very nice country, with industry, with nice roads.
+
+So this is superiority, that the living entity can have some control over the material energy. That is explained in the *Bhagavad-gītā: yayedaṁ dhāryate jagat* *Bg.* 7.5. The..., the importance of this material world is due to the living entities. This Los Angeles city is valuable so long the living entities are there. The body's valuable so long the living entity, soul, is there. Therefore it is superior.
+
+But that superiority is being misused. That is conditioned life. We are conditioned because our superior position than the matter, we are misusing. How we are misusing? We have forgotten that although I am superior energy than the matter, but still, I am subordinate to God. That he is forgetting. The modern civilization, they do not care for God, because people are superior than matter. They are simply trying to exploit matter in different way. But they are forgetting that we, either we may be American or Russian or China or India, we are all subordinate to God. This is the mistake. *Kṛṣṇa bhuliya jīva bhoga vāñchā kare* [*Prema-vivarta*]. They have forgotten Kṛṣṇa, and they want to enjoy this material world. This is their disease.
+
+Now our duty is to invoke their Kṛṣṇa consciousness, that "You are superior, that's all right. But you are subordinate to Kṛṣṇa." You cannot enjoy, but you can... Just like we have decorated this temple not for our sense gratification. What is the difference between our students and ordinary man? They are also decorating their apartment very nicely. We are also doing the same, but the purpose is different. We are doing it for Kṛṣṇa, and they are doing their for their...
+
+So our superiority is that—either I am trying for decorating my personal apartment, I am trying to decorate this temple—my superiority is there because I am utilizing matter for my purpose. But when it is utilized, his intelligence is applied to utilize this matter for Kṛṣṇa, then his life is successful. The superior intelligence should be utilized for the benefit of Kṛṣṇa. *Kṛṣṇārthe akhila-ceṣṭā* [*Cc. Madhya* 22.126]. Then your life is successful. Then the same superior energy, if you apply it for your sense gratification, you'll be entangled and anxiety. And then you'll have to change your body, one after another. That is going on. So the superior..., supreme controller is Kṛṣṇa, either on this inferior energy or superior energy.
+
+So superior energy means that we can control over the material world. Not completely. That is also under condition. But we have got some control over this material world. But Kṛṣṇa has control over us also. We cannot do anything out of our own whims. Just like we are manufacturing this nice microphone with intelligence. Just like you American people, you are manufacturing so many nice things, and why other people, they cannot manufacture? What is the reason?
+
+You are also superior energy, and before you, the Red Indians, they are also superior energy. The animal, he's also superior energy. The cow, for example, that is also living entity, superior energy, and a man, he's also living entity, superior energy. But the man is sending the cow to the slaughterhouse. It is helpless, and the man is powerful. How this distinction? How this distinction?
+
+That distinction is due to the superior controller, Kṛṣṇa. Kṛṣṇa has given man superior intelligence. Superior intelligence... In the *Bhagavad-gītā,* Fifteenth Chapter, fifteenth verse, you'll find that *sarvasya cāhaṁ hṛdi sanniviṣṭo* Bg. 15.15: "I am sitting within the heart of everyone." *Mattaḥ smṛtir jñānam apohanaṁ ca.* "One can memorize or forget on account of Me." Therefore the superior energy is giving intelligence to the human form of body, that "You do this." "You do this" means not whimsically. He wanted to do it, but sometimes he forgets, and Kṛṣṇa reminds, "You wanted to do this? You can do this. Here is an opportunity."
+
+So although I have got superior intelligence, that is also controlled by Kṛṣṇa. If Kṛṣṇa gives you intelligence, then you can manufacture this nice microphone; otherwise, you cannot. Therefore *īśāvāsyam idaṁ sarvam* [*Īśo mantra 1*]. In every sphere of life, there is control of Kṛṣṇa. *Yat kiñcit jagatyām.* Anything which is going on within this world, *jagat... Jagat* means this world, which is making progress.
+
+*Tena tyaktena bhuñjīthā.* Therefore we shall have to voluntarily accept His superiority and accept only *prasādam,* whatever He kindly allows, "You can take this." "All right, Sir." That's all. You cannot encroach upon others. That is superior control. But the people are encroaching; therefore they are becoming entangled. If they accept what is offered by Kṛṣṇa, then there is no trouble. But if they encroach, then there is trouble.
+
+So you read every *śloka,* every *mantra.* Whenever you get time, you read the purport, you read the meaning. The whole philosophy is there. Now as you are growing, there will be so many questions, so many philosophers. But our philosophy is so sound and solid that we can meet any philosopher of the world. Any philosopher. But you have to learn it. The books are there, your intelligence is there, the guidance is there. Because you are preaching, sometimes we have to meet opposing elements. So if you cannot answer properly, that will be disqualification.
+
+So every one of you should learn this philosophy. As soon as you are able to, I mean to say, guide yourself, or save yourself from the attack of the opposing element, then you'll know that you are making progress. Otherwise... Of course, there are different stages of devotional life. But so far we are concerned, we have to preach. That is the second platform of devotional life.
+
+In the second platform, not only to love God, but to make friendship with devotees who is loving God. That is society. Our Society is devotees. We should not only practice to love God, but we should make friendship and love the devotees also. And then those who are innocent, those who do not understand what is Kṛṣṇa, we shall preach. And those who are atheist, against God, we shall avoid. So this is second stage. And on the highest stage, of course, there is no... He is *paramahaṁsa.*
+
+So that, don't try to imitate *paramahaṁsa.* That is very topmost stage of devotional life. Even if you are on this topmost stage, when you are preacher you have come to the second platform, this stage. So you have to raise yourself from the lower stage to the second stage, and if you are in the highest stage even, then you have come to the second stage for preaching work.
+
+So preaching work, four vision—*ī**śvare tad-adhīneṣu bāliśeṣu dviṣatsu ca* *SB* 11.2.46*:* God, Kṛṣṇa; His devotee; innocent; and the atheist. So we are concerned with three: with God, the devotees and the innocent: to love God, to make friendship with devotees and to teach the innocent. And those who are atheist, against God, avoid. Don't talk. Useless waste of time. Whatever he wants: "All right, sir, you are very great." That's all right. [laughter] [chuckles] Don't talk with them. Simply waste of time. But if one is inquisitive... Just like this child, he wants to learn. As I say, "Oh, offer your obeisances," he does it. Oh, he should be taken care, very much developed.
+
+But that is also one of the offenses, out of the ten offenses. One who is disinclined to understand what is this chanting, you should not bother yourself to convince him. That's all. Just like in hospital, especially in the war field, there are many wounded soldiers are coming. But the doctors see that the soldier which has got the chance of living, take care more for them. And the soldier which is immediately going to die, they do not take care much. Because it is useless; he'll not live.
+
+Similarly the atheist, the atheist will have to suffer. They will have to meet God in the form of death in so many ways. So by suffering, suffering, suffering, suffering, suffering, when a day will come that he'll understand God, at that time, preaching to him is better. So you do not expect that our preaching will be appeal to everyone. It will be useful for the devotees, for the innocent. Not for the atheist.
+
+So try to understand the philosophy very nicely, because you are going to preach. So many opposing elements will come. So you have to defend yourself. The more you can defend yourself from the opposing elements, the more you are advancing. You should know... That is the test. That is the test. Because you are preacher, so you have to test yourself, how you are making advance. Don't be self-complacent: "Oh, I am very..., I have advanced very much." Your advancement will be tested when you can meet opposing elements. Not that when the opposing elements come, "Oh, let him talk with Guru Mahārāja, or spiritual master." Why? What for you are being taught?
+
+So you should be very careful to understand the philosophy. Otherwise, you are not making progress. Progress means you shall defend yourself from the opposing elements. That is progress.
+
+Thank you. Chant Hare Kṛṣṇa. [end]

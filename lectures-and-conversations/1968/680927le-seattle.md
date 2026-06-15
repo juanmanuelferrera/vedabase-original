@@ -1,0 +1,263 @@
+# Lecture
+
+*Type: Lectures and Addresses Dated: September 27th 1968 Location: Seattle Audio file: 680927LE-SEATTLE.mp3*
+
+**Prabhupāda:** [*kīrtana*] Chant. [*prema-dhavani*] Thank you very much. [devotees offer obeisances]
+
+[25:43]
+
+[sings] *Govindam ādi-puruṣaṁ tam ahaṁ bhajāmi** ****.*
+
+> cintāmaṇi-prakara-sadmasu kalpa-vṛkṣa-
+> lakṣāvṛteṣu surabhīr abhipālayantam
+> lakṣmī-sahasra-śata-sambhrama-sevyamānaṁ
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+
+[*Bs.* 5.29]
+
+**[I worship Govinda, the primeval Lord, the first progenitor who is tending the cows, yielding all desire, in abodes built with spiritual gems, surrounded by millions of purpose trees, always served with great reverence and affection by hundreds of thousands of lakṣmīs** or **gopīs.]**
+
+**Devotees:*** Govindam ādi-puruṣaṁ tam ahaṁ bhajāmi.*
+
+**Prabhupāda: ***Govindam ādi-puruṣaṁ tam ahaṁ bhajāmi.* [devotees repeat twice]
+
+Thank you. So our program is to worship the original Supreme Personality of Godhead, Kṛṣṇa. *Govindam ādi-puruṣaṁ tam ahaṁ bhajāmi.* In this material world everyone is trying to get happiness and to get relief from distress. Two things are going on, attempt. There are different processes. Material process is completely absurd. That is already proved. No amount of material comforts or happiness, so-called happiness, can give us the actual happiness that we are hankering. That is not possible.
+
+Then there are different other processes also. There are three kinds of miseries due to our material conditional life: *ādhyātmika, ādhibhautika, ādhidaivika* SB 6.15.25*.*
+
+**[The living entity in the bodily conception of life is absorbed in the body, which is a combination of the physical elements, the five senses for gathering knowledge, and the five senses of action, along with the mind. Through the mind the living entity suffers three kinds of tribulations—adhibhautika, adhidaivika and adhyātmika. Therefore this body is a source of all miseries.]**
+
+*Ādhyātmika* means pertaining to the body and to the mind. Just like when there is some disarrangement of the different functions of metabolism within this body, we get fever, we get some pain, headache—so many things—so these miseries are called *ādhyātmika,* pertaining to the body. And another part of this *ādhyātmika* misery is due to the mind. Suppose I have suffered a great loss, so the mind is not in good condition. So this is also suffering.
+
+So for diseased condition of the body or some mental dissatisfaction there are miseries. Then again, *ādhibhautika,* sufferings offered by other living entities. Just like we are human being, we are sending millions of poor animals to the slaughterhouse daily. They cannot express. But this is called *ādhibhautika,* sufferings offered by other living entities.
+
+Similarly, we have to suffer also sufferings offered by other living entities. God's law you cannot, I mean to say, supersede. So material laws, state laws, you can hide yourself, but God's law you cannot hide yourself. There are so many witnesses. The sun is your witness, the moon is your witness, the day is your witness, the night is your witness, the sky is your witness. So how you can supersede the laws of the Lord?
+
+[break] So... But this material nature is so constituted that we have to suffer *ādhyātmika,* pertaining to the body, pertaining to the mind, and sufferings offered by other living entities, and another suffering *ādhidaivika. Ādhidaivika,* just like somebody is ghost-haunted, a ghost has attacked him. Ghost cannot be seen, but he's suffering delirium, speaking something nonsense. Or there is famine, there is earthquake, there is war, there is pestilence, so many things.
+
+So sufferings are always there, but we are trying to adjust by patchwork. Sufferings are always there. Everyone is trying to get out of sufferings. That is a fact. The whole struggle for existence is to get out of the suffering. But there are different kinds of prescriptions. Somebody says that you get out of the sufferings in this way; somebody says you get out of the sufferings in that way.
+
+So there are prescription offered by the modern scientist, by philosophers, by atheist or by theist, by fruitive actors—so many there are. But according to Kṛṣṇa consciousness movement, you can get out of all sufferings if you simply change your consciousness, that's all. That is Kṛṣṇa consciousness.
+
+As I have given you several times the example... All our sufferings are due to lack of knowledge, ignorance. That knowledge can be achieved by association of good authorities. There is a nice Bengali verse,
+
+> kṛṣṇa bhuliya jīva bhoga vāñchā kare
+> pāsate māyā tāre jāpaṭiyā dhare
+
+[*Prema-vivarta*]
+
+**[When an individual soul forgets his eternal relationship with God and tries to lord it over the material nature or resources, that condition, that forgetful condition, is called *māyā,* or illusion.]**
+
+As soon as our original consciousness becomes polluted with the consciousness of material enjoyment, that "I want to lord it over the resources of matter..." As soon as we turn our consciousness in this way, then our troubles begin. Immediately *māyā.* This very consciousness, that "I can enjoy this material world to my best capacity..." Everyone is trying to do that.
+
+Every one of us, beginning from the ant up to the highest living creature, Brahmā, everyone is trying to become one of the lords. Just like recently in your country there were so many canvassing for becoming the president. Why? The same idea: everyone is after becoming some kind of lord. This is *māyā.*
+
+Our Kṛṣṇa consciousness movement is completely opposite. We are just trying to become the servant of the servant of the servant of the servant of Kṛṣṇa. Just opposite. Instead of becoming the lord, we want to be the servant of the servant of Kṛṣṇa. *Gopī-bhartuḥ pada-kamalayor dāsa-dāsānudāsaḥ* [*Cc. Madhya* 13.80]*.*
+
+**[“’I am not a brāhmaṇa, I am not a kṣatriya, I am not a vaiśya or a śūdra. Nor am I a brahmacārī, a householder, a vānaprastha or a sannyāsī. I identify Myself only as the servant of the servant of the servant of the lotus feet of Lord Śrī Kṛṣṇa, the maintainer of the gopīs. He is like an ocean of nectar, and He is the cause of universal transcendental bliss. He is always existing with brilliance.’”]**
+
+So in the modern trend of civilization, people may say that this is slave mentality. It is very good idea: "Why shall I become a slave? I shall become the master." But one does not know that this consciousness, that "I shall become the master," is the cause of his sufferings. This philosophy has to be understood.
+
+Because constitutionally we are all servants. In the name of becoming master of this material world we have become the servant of our senses. Because constitutionally we are servants. We cannot do without serving. Every one of us who are sitting in this meeting is a servant. Now, these boys who have taken to Kṛṣṇa consciousness, they have agreed to become servant of Kṛṣṇa.
+
+So their problem is solved. But others, who are thinking that "Why shall I become the servant of God or servant of Swāmījī? I shall become the master..." But actually, he cannot become the master. He's the servant of his senses, that's all.
+
+Just try to understand. Servant he must be, but he's servant of his lust, he's servant of his avarice, he's servant of his greediness, servant of his anger, servant of so many things. *Kāmādīnāṁ kati na katidhā pālitā durnideśāḥ* [*Cc. Madhya* 22.16]*.*
+
+**[“’O my Lord, there is no limit to the unwanted orders of lusty desires. Although I have rendered these desires so much service, they have not shown any mercy to me. I have not been ashamed to serve them, nor have I even desired to give them up. O my Lord, O head of the Yadu dynasty, recently, however, my intelligence has been awakened, and now I am giving them up. Due to transcendental intelligence, I now refuse to obey the unwanted orders of these desires, and I now come to You to surrender myself at Your fearless lotus feet. Kindly engage me in Your personal service and save me.’]**
+
+In higher state, somebody has become the servant of humanity, somebody has become the servant of the society, somebody has become the servant of the country, but actual purpose is that "I shall become the master." That disease is there. The candidates for presidency, they are presenting their different manifestations..., no, manifesto, that "I shall serve the country very nicely. Please give me your vote." But the real idea is that "Some way or other, I shall become the master of the country." So this is *māyā.*
+
+So if we understand this small philosophy, that constitutionally I am servant... There is no doubt. Nobody can say that "I am free, I am master." Nobody can say. If he thinks like that, that is *māyā.* It is false. Can anybody say in this meeting that he's not servant of anybody or anything? He must be, because that is his constitutional position.
+
+But the difficulty is that by serving our senses, there is no solution of the problem, of the miseries. For the time being, I may satisfy myself that I have taken this intoxication, and under the spell of this intoxication I may think that "I am nobody's servant. I am free," but that is artificial. As soon as the hallucination is gone, he comes to the point again servant. Again servant.
+
+So this is our position. But why this struggle is there? I am being forced to serve, but I don't wish to serve. What is the adjustment? The adjustment is Kṛṣṇa consciousness, that if you become servant of Kṛṣṇa, then your aspiration to become master, at the same time your aspiration of freedom, is immediately achieved. Just like here you'll see one picture of Arjuna and Kṛṣṇa.
+
+Kṛṣṇa is the Supreme Lord. Arjuna is a living entity, living being, a human being, but he is in love with Kṛṣṇa as friend. And in exchange of his friendly love, Kṛṣṇa has become his driver, his servant. Similarly, if every one of us, we become reinstated in the transcendental platform of loving Kṛṣṇa, then our aspiration of mastership will be fulfilled.
+
+That is not known at present, but if we agree to serve Kṛṣṇa, then gradually we'll see that Kṛṣṇa is serving you. That is a question of realization. But if we want to get out of this service of this material world, of the senses, then we must transfer our service attitude to Kṛṣṇa. This is called Kṛṣṇa consciousness.
+
+> kāmādīnāṁ kati na katidhā pālitā durnideśās
+> teṣāṁ mayi na karuṇā jātā na trapā nopaśāntiḥ
+> [utsṛjyaitān atha yadu-pate] sāmpratam aham labdha-buddhis
+> tvām āyātaḥ [śaraṇam abhayaṁ] niyuṅkṣvātma-dāsye
+
+[*Cc. Madhya 22.16*]
+
+**[“’O my Lord, there is no limit to the unwanted orders of lusty desires. Although I have rendered these desires so much service, they have not shown any mercy to me. I have not been ashamed to serve them, nor have I even desired to give them up. O my Lord, O head of the Yadu dynasty, recently, however, my intelligence has been awakened, and now I am giving them up. Due to transcendental intelligence, I now refuse to obey the unwanted orders of these desires, and I now come to You to surrender myself at Your fearless lotus feet. Kindly engage me in Your personal service and save me.’]**
+
+One devotee is praying to Kṛṣṇa that "So long, in my life, I have served my senses," *kāmādīnām. Kāma* means senses, lust. "So even what I should not have done, still, by the dictation of my lust I have done it." One has to do. When one is a slave or servant, then he's forced to act something which he does not like to act. He's forced.
+
+So here, a devotee's admitting that "I have done, dictated by my lust, something which I should not have done, but I have done it." All right, you have done, you are serving your senses. That's all right. "But the difficulty is that," *teṣāṁ karuṇā na jātā na trapā nopaśāntiḥ,* "I have served so much, but I find that they are not satisfied. They are not satisfied. That is my difficulty.
+
+Neither the senses are satisfied, nor I am satisfied, nor the senses are kind enough to give me relief, pension from the service. That is my position. If I would have seen that..., rather, if we would have felt that I have served so many years my senses, now my senses are satisfied... No. They are not satisfied. Still dictating. Still dictating. I am very..."
+
+Of course, it is very natural, but I may disclose herewith that some of my students said that in an elderly age of his mother, he's [she's] going to marry. Just see. She has got grown-up children. And somebody complained that his grandmother also married. Why? Just see. In seventy-five years old, in fifty years old, the senses are still so strong that she is being dictated: "Yes, you must do it."
+
+Try to understand practically how the senses are strong. It is not that simply the young men are servant of the senses. Even seventy-five years old, eighty years old or at the point of death, they are all servants of senses. The senses are never satisfied. That is the material dictation. So I'm servant. I am servant of my senses, and by serving my senses, neither I am satisfied nor my senses are satisfied nor they are pleased upon me. There is chaos. So this is the problem.
+
+So best thing... Therefore Kṛṣṇa says, Lord Kṛṣṇa says,
+
+> sarva-dharmān parityajya
+> mām ekaṁ śaraṇaṁ vraja
+> ahaṁ tvāṁ sarva-pāpebhyo
+> mokṣayiṣyāmi mā śucaḥ
+
+[*Bg.* *18.66*]
+
+**[Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear.]**
+
+You have served your senses so many lives, life after life, 8,400,000's of species of life. The birds, they are also under senses. The beasts, they are also under senses. The men, human being, and everyone, the demigods, everyone within this material world, they are after senses, serving the senses. But Kṛṣṇa says that "You just surrender unto Me. Just agree to serve Me. Then I take charge of you." That's all. *Ahaṁ tvāṁ sarva-pāpebhyo mokṣayiṣyāmi mā śucaḥ.*
+
+Because by the dictation of the senses we are committing sinful activities life after life; therefore we are in different grades of bodily presentation. Don't think that everyone is of the same standard. No. According to one's own work he gets a type of body. So these different types of bodies are due to different grades of sense gratification. So sense gratification is there in the hog's life also. Why he has been offered a body of the hog?
+
+So much sensuous that it has no discrimination who is mother, who is sister, or who is this or who is that. This is practical, you'll see. The dogs and hogs, they are like that. In human society also there are many who don't care who is mother, who is sister or who is this. The senses are so strong. And this is our cause of all miseries. Try to understand.
+
+The threefold miseries that we are suffering, that we are trying to make a solution, is due to this dictation of the senses. Therefore Kṛṣṇa is there. Kṛṣṇa is there. His name is Madana-mohana. If you try to transfer your love from sense to Kṛṣṇa, then you see the result. Immediately you'll find. *Sevonmukhe hi jihvādau* [*Brs*. 1.2.234]*.*
+
+**[No one can understand the transcendental nature of the name, form, quality and pastimes of Śrī Kṛṣṇa through his materially contaminated senses. Only when one becomes spiritually saturated by transcendental service to the Lord are the transcendental name, form, quality and pastimes of the Lord revealed to him.]**
+
+So this false endeavor, that "I want to be master of all I survey," "I am the monarch of all I survey," this attitude should be given up. Every one of us is constitutionally servant. Now, at the present moment, we are servant of the senses. Now, this servitorship should be changed to Kṛṣṇa only. *Sevonmukhe hi jihvādau svayam eva sphuraty adaḥ.*
+
+And as soon as you change your servitorship to Kṛṣṇa, then gradually, as you become sincere, so Kṛṣṇa reveals to you, and reciprocation of service between Kṛṣṇa and yourself will be so nice. Either you love Him as friend, or master or lover or... There are so many items. Any way you can try to love Him and see how much you are satisfied. This is Kṛṣṇa consciousness movement. Please try to understand. It is...
+
+Now in your country these boys are trying to preach this Kṛṣṇa consciousness movement. So my humble request to you all is to try to understand this sublime benediction of life. Simply by chanting Hare Kṛṣṇa, you'll gradually develop a transcendental loving attitude for Kṛṣṇa. And as soon as you begin to love Kṛṣṇa, your all troubles...
+
+That means you will feel complete satisfaction. Trouble or distress is of the mind. One man is getting $6,000 a month; one man is getting $200 a month. But I have seen one gentleman in Calcutta, he was drawing 6,000, he committed suicide. Committed suicide. Why? That money could not give him satisfaction. He was trying to have something else.
+
+So this material atmosphere, by earning great amount of money, will never give you satisfaction, because every one of us is the servant of the senses. This platform of service of the senses should be transferred to the platform of service to Kṛṣṇa, and then you will find all problem solved.
+
+Thank you very much. [devotees offer obeisances]
+
+Any question?
+
+**Woman devotee:** Prabhupāda, a picture of Kṛṣṇa is absolute, right? That is Kṛṣṇa. Is the picture of a pure devotee absolute in the same way?
+
+**Prabhupāda:** Picture of devotee?
+
+**Woman devotee:** A pure devotee.
+
+**Prabhupāda:** Yes.
+
+**Woman devotee:** It's absolute in the same way that a picture...
+
+**Prabhupāda:** Yes.
+
+**Woman devotee:** Let's say a picture of Prahlāda Mahārāja and Lord Nṛsiṁha-deva is also... Prahlāda is there as much as Lord Nṛsiṁha-deva is.
+
+**Prabhupāda:** Yes. The Lord and the devotee, they are on the same status. Every one of them. Lord, His name, His form, His quality, His associates, His paraphernalia—everything, they are absolute. *Nāma guṇa rūpa līlā pari...* And pastimes.
+
+Just like we are hearing about Kṛṣṇa, so this is nondifferent from Kṛṣṇa. When there is chanting Hare Kṛṣṇa, this Hare Kṛṣṇa, this vibration, is not different from Kṛṣṇa. Everything is absolute. Therefore pure devotee of Kṛṣṇa is nondifferent from Kṛṣṇa.
+
+This is simultaneously one and different: *a**cintya-bhedābheda-tattva.* This philosophy has to be understood, that Kṛṣṇa is the Supreme Person energetic, and everything, what we see, what we experience, they are all different energies of Kṛṣṇa. And the energy and the energetic cannot be separated. Therefore they are all on the absolute platform. Simply when it is covered by *māyā,* or ignorance, it is different. That's all.
+
+**Tamāla Kṛṣṇa:** Prabhupāda, what if we know we should serve and we want to serve, but the service is so bad.
+
+**Prabhupāda:** Yes. Never think that service is perfect. That will keep you in the perfect stage. Yes. We should always think that our service is not complete. Yes. That is very nice. Just like Caitanya Mahāprabhu taught us that... He said that "My dear friends, please take it from Me that I have not a pinch of faith in Kṛṣṇa. If you say that why I am crying, the answer is that just to make a show that I am great devotee.
+
+Actually, I have not a pinch of love for Kṛṣṇa. This crying is simply My show, makeshow." "Why You are saying so?" "Now, the thing is that I am still living without seeing Kṛṣṇa. That means I have no love for Kṛṣṇa. I am still living. I should have died long ago without seeing Kṛṣṇa."
+
+So we should think like that. That is the example. However perfect you may be in serving Kṛṣṇa, you should always know that... Kṛṣṇa is unlimited, so your service cannot reach Him perfectly. It will ever remain imperfect, because we are limited. But Kṛṣṇa is so kind. If you offer a little service sincerely, He accepts. That is the beauty of Kṛṣṇa. *Svalpam apy asya dharmasya trāyate mahato bhayāt* *Bg.* 2.40.
+
+**[In this endeavor there is no loss or diminution, and a little advancement on this path can protect one from the most dangerous type of fear.]**
+
+And if Kṛṣṇa accepts a little service from you, then your life is glorious.
+
+So it is not possible to love Kṛṣṇa perfectly, to render service to Kṛṣṇa, because He is unlimited. There is a process, worshiping the Ganges in India. The Ganges River is considered sacred river. So they worship the Ganges, the river Ganges, by taking water from the Ganges and offering it. Suppose in a small pot like this, either pot or your handful, you take some water from the Ganges and with your devotion and *mantra* you offer to the Ganges water.
+
+So you take a glass of water from the Ganges and offer it to the Ganges, what is there, gain and profit or loss or gain for the Ganges? If you take a glass of water from the Ganges and again offer it, so what is the gain and profit of Ganges? But your process, your faith, your love for mother Ganges, "Mother Ganges, I offer you this little water," that is accepted.
+
+Similarly, what we have got to offer Kṛṣṇa? Everything belongs to Kṛṣṇa. Now we have offered these fruits. Do the fruits belong to us? Who has produced these fruits? Have I produced? Is there any brain of the human being who can produce fruits, grains, milk? They're very great scientist. Now let them produce. The cow is eating grass and delivering you milk.
+
+So now, by scientific process, why don't you transform grass into milk? Still the rascals will not agree that there is God. You see? They have become so rascal: "Science." And what is your science, nonsense? You see the cows are eating grass and delivering you milk. Why don't you give to your wife and take milk? Why do you purchase? But if you offer this grass to a human being, she will die.
+
+So everything, the law of Kṛṣṇa, or law of God, is working, and still they say that "God is dead," "There is no God," "I am God." You do this like that. They have become so rascals and fools. Why they do not come to this meeting? "Oh, the Swāmījī is speaking of God, old things. [laughter] Let us discover something new." You see?
+
+And if somebody speaks all nonsense, then "Oh, he's... He spoke four hours on zero." Just see. Somebody in Montreal, one gentleman, "Swāmījī, he is so wonderful, he spoke four hours on zero." They're such a fool that four hours he wanted to hear on zero. You see? [laughter] What is the value of zero? And you waste your time, four hours? After all, it is zero.
+
+So people want this. People want this. If we say simple things—"God is great. You are the servant, eternal servant. You have no power. You are always dependent on God. Just turn your servitorship to God, and you'll be happy"—"Oh, this is not very nice." So they want to be cheated. Therefore so many cheaters come and cheat and go away. That's all. The people want to be cheated. They don't want simple things.
+
+Yes?
+
+**Madhudviṣa:** Prabhupāda, what was exactly predicted by Lord Caitanya when He predicted the Golden Age of Kali, the age in the Age of Kali when people would be chanting the Hare Kṛṣṇa *mantra*?
+
+**Prabhupāda:** Yes. People... Just like we are now preaching Hare Kṛṣṇa. In your country there was no such preaching. So we have sent our students in Europe, Germany, London—you are also spreading. In this way it is only, we are, our activities since 1966 practically. We have registered the Association in 1966, and this is '68. So gradually we are spreading. And of course, I am old man; I may die.
+
+If you have taken up this formula very nicely, then you will go on preaching, and it may be spread all over the world. Very simple thing. Simply we require a little intelligence. That's all. So any intelligent man will appreciate. But if anyone wants to be cheated, then how he can be saved if one willingly wants to be cheated? Then it is very difficult to convince him. But those who are open-hearted, they will certainly accept this nice movement, Kṛṣṇa consciousness.
+
+Yes?
+
+**Jaya-gopāla:** When we engage inferior energy, internal energy, in the service of Kṛṣṇa, it becomes spiritualized, doesn't it?
+
+**Prabhupāda:** No. When you apply your energy, it is no more material; it is spiritual. Just like when the copper wire is in touch with electricity, it is no more copper; it is electric. So service to Kṛṣṇa means as soon as you dovetail yourself in the service of Kṛṣṇa, you are not different from Kṛṣṇa. That is stated in the *Bhagavad-gītā: māṁ ca 'vyabhicāreṇa bhakti-yogena yaḥ sevate.* This very word, *sevate. Sa guṇān samatītyaitān brahma-bhūyāya kalpate* *Bg.* 14.26*.*
+
+**[One who engages in full devotional service, who does not fall down in any circumstance, at once transcends the modes of material nature and thus comes to the level of Brahman.]**
+
+"Anyone who seriously engages himself in My service, immediately he becomes transcendental to the material qualities and he's on the platform of Brahman." *Brahma-bhūyāya kalpate.*
+
+So when you apply your energy in the service of Kṛṣṇa, you do not think that your material energy is there. No. Just like these fruits. These fruits, one may think, "What is this *prasādam*? This fruit has been purchased, we also eat fruit at home, and this is *prasādam*?" No. Because it is offered to Kṛṣṇa, immediately it is no more material. The result? You eat *kṛṣṇa-prasādam* and see how you are making progress in Kṛṣṇa consciousness. Just if the physician gives you some medicine, and if you get yourself cured, that is the effect of medicine.
+
+Another example is that how the material things become spiritual. A very nice example. Just like you have taken a large quantity of milk. So there is some disorder in your bowels. You go to a physician. At least, according to Vedic system of..., they will offer you a preparation which is called yogurt. That is milk preparation. That yogurt with little medicine will cure. Now, your disease was caused by milk, and it is cured by milk also. Why? It is directed by the physician.
+
+Similarly everything... In the higher sense there is no existence of matter; it is only illusion. Just like this morning I was giving the instance of the sun and the fog. The fog was there; the sun could not be seen. The foolish person will say that "There is no sun. It is simply fog." But intelligent person will say that "Sun is there, but the fog has covered our eyes. We cannot see the sun."
+
+Similarly, actually, everything being energy of Kṛṣṇa, there is nothing material. Simply our this mentality that we want to lord it over, that is false, illusion. That is covering our relationship with Kṛṣṇa. So that you will gradually understand. *Sevonmukhe hi jihvādau svayam eva sphuraty adaḥ* [*Brs*. 1.2.234]*.*
+
+**[No one can understand the transcendental nature of the name, form, quality and pastimes of Śrī Kṛṣṇa through his materially contaminated senses. Only when one becomes spiritually saturated by transcendental service to the Lord are the transcendental name, form, quality and pastimes of the Lord revealed to him.]**
+
+As you make progress in the service attitude, everything will become cleared, how your energy has become spiritualized.
+
+**Tamāla Kṛṣṇa:** Is Māyā a pure devotee? Māyā?
+
+**Prabhupāda:** Pure devotees, no, he's not under *māyā.*
+
+**Tamāla Kṛṣṇa:** No, no. Is Māyā, Māyādevī, a pure devotee?
+
+**Prabhupāda:** Yes, certainly. The police force, are they not honest servant of the government? Does it mean the police force tortures you, therefore they're rejected from the government servant? Their task is thankless task, that's all. Similarly, Māyā is also serving Kṛṣṇa, but there is no thanks. That is the difference.
+
+She has taken a thankless task to punish persons who are godless, that's all. So Māyā as it is, it is not that she is out of touch of Kṛṣṇa. Vaiṣṇavī. In the *Caṇḍī,* in the book of Māyā, it is stated that "Vaiṣṇavī." The Māyā is described as Vaiṣṇavī. Just like pure devotee is called Vaiṣṇava, she is also described there as Vaiṣṇavī.
+
+**Viṣṇujana:** How do you make everything so simple to understand?
+
+**Prabhupāda:** Huh?
+
+**Viṣṇujana:** How do you make everything that you say so simple to understand?
+
+**Prabhupāda:** Because the whole philosophy is so simple. God is great; you are not great. Don't claim that you are God. Don't claim that there is no God. There is God, and He is great and you are small. Then what is your position? You have to serve Kṛṣṇa. This is simple truth.
+
+So that rebellious attitude is called *māyā.* Anyone who is declaring that "There is no God," "God is dead," "I am God," "You are God," they're all under the spell of *māyā. Piśācī pāile yena mati-cchanna haya* [*Prema-vivarta*].
+
+**[When a living entity is conditioned by material nature, he is exactly like a person haunted by a ghost.]**
+
+Just like when a man is ghost-haunted, he speaks all kinds of nonsense. So all these persons are haunted by *māyā,* and therefore they are saying, "God is dead," "I am God," "Why you are searching God everywhere? There are so many Gods loitering in the street." They're all ghost-haunted, deranged.
+
+So we have to cure them by this transcendental vibration, Hare Kṛṣṇa. This is the curing process only. Simply let them hear, and they'll gradually be cured. Just like a man who is sleeping very sound, you cry by the side of his ear and he awakes. So this is the *mantra* to awake the sleeping human society. *Uttiṣṭha uttiṣṭhata jāgrata prāpya varān nibodhata* [*Kaṭha Upaniṣad* 1.3.14]*.*
+
+**[Please wake up and try to understand the boon that you now have in this human form of life. The path of spiritual realization is very difficult; it is sharp like a razor's edge. That is the opinion of learned transcendental scholars.]**
+
+The *Vedas* says, "O human race, please get up. Don't sleep any more. You have got this opportunity of human body. Utilize it. Get yourself out of the clutches of *māyā.*" This is the declaration of *Vedas.* So you are doing that job. Hare Kṛṣṇa. Chant Hare Kṛṣṇa and they'll be cured.
+
+**Devotees:** Hare Kṛṣṇa!
+
+**Prabhupāda:** Yes?
+
+**Jaya-gopāla:** Is past, present and future, in the material sense, a perverted reflection of the same...
+
+**Prabhupāda:** Yes, past, future, present is according to the different kinds of relativity. That is a scientific proof. Professor Einstein has proved it. Just like your past is not past of Brahmā. Your present is not the present of an ant. So past, present, future—time is eternal. It is according to the different dimension of body relativity. Time is eternal. Just like a small ant.
+
+In twenty-four hours he has twenty-four times past, present and future. In the sputnik, in the Russian sputnik, circumambulated round this earth in one hour, twenty-five minutes, or something like that. They, I mean to say, went round the earth for twenty-five time. That means within one hour, twenty-five minutes, the sputnik man saw twenty-five times day and night.
+
+So in the higher atmosphere the past and present is different. So this past, present, future is relative according to your body, according to circumstances. Actually, there is no past, present, future; everything is eternal. You are eternal, *nityo śāśvato 'yaṁ na hanyate hanyamāne śarīre* [*Bg*. 2.20]*.*
+
+**[For the soul there is never birth nor death. Nor, having once been, does he ever cease to be. He is unborn, eternal, ever-existing, undying and primeval. He is not slain when the body is slain.]**
+
+You do not die. Therefore... The people do not know that "I am eternal. What is my eternal engagement? What is my eternal life?" They're simply captivated on the spot life: "I am American," "I am Indian," "I am this," "I am that." That's all. This is ignorance. So one has to search out this eternal engagement with Kṛṣṇa. Then he'll be happy.
+
+Thank you. [devotees offer obeisances]
+
+Chant. Upendra, chant. Chant Hare Kṛṣṇa. Chant.
+
+[78:41]
+
+[*kīrtana*] [*prema-dhvani*] Thank you very much. [devotees offer obeisances] [end]

@@ -1,0 +1,197 @@
+# Paṇḍāl Lecture
+
+*Type: Lectures and Addresses Dated: April 7th 1971 Location: Bombay Audio file: 710407LE-BOMBAY.mp3*
+
+**Prabhupāda:**
+
+> om ajñāna-timirāndhasya jñānāñjana-śalākayā
+> cakṣur unmīlitaṁ yena tasmai śrī-gurave-namaḥ
+
+["I offer my respectful obeisances unto my spiritual master, who with the torchlight of knowledge has opened my eyes, which were blinded by the darkness of ignorance."]
+
+> śrī-caitanya-mano-'bhīṣṭaṁ sthāpitaṁ yena bhū-tale
+> svayaṁ rūpaḥ kadā mahyaṁ dadāti sva-padāntikam
+
+["When will Śrīla Rūpa Gosvāmī Prabhupāda, who has established within this material world the mission to fulfill the desire of Lord Caitanya, give me shelter under his lotus feet?"]
+
+> vande 'haṁ śrī-guroḥ śrī-yuta-pada-kamalaṁ śrī-gurūn vaiṣṇavāṁś ca
+> śrī-rūpaṁ sāgrajātaṁ saha-gaṇa-raghunāthānvitaṁ taṁ sa-jīvam
+> sādvaitaṁ sāvadhūtaṁ parijana-sahitaṁ kṛṣṇa-caitanya-devaṁ
+> śrī-rādhā-kṛṣṇa-pādān saha-gaṇa-lalitā-śrī-viśākhānvitāṁś ca
+
+["I offer my respectful obeisances unto the lotus feet of my spiritual master and of all the other preceptors on the path of devotional service. I offer my respectful obeisances unto all the Vaiṣṇavas and unto the six Gosvāmīs, including Śrīla Rūpa Gosvāmī, Śrīla Sanātana Gosvāmī, Raghunātha dāsa Gosvāmī, Jīva Gosvāmī and their associates. I offer my respectful obeisances unto Śrī Advaita Ācārya Prabhu, Śrī Nityānanda Prabhu, Śrī Caitanya Mahāprabhu, and all His devotees, headed by Śrīvāsa Ṭhākura. I then offer my respectful obeisances unto the lotus feet of Lord Kṛṣṇa, Śrīmatī Rādhārāṇī and all the *gopīs,* headed by Lalitā and Viśākhā."]
+
+> he kṛṣṇa karuṇā-sindho dīna-bandho jagat-pate
+> gopeśa gopikā-kānta rādhā-kānta namo 'stu te
+
+["O my dear Kṛṣṇa, ocean of mercy, You are the friend of the distressed and the source of creation. You are the master of the cowherd men and the lover of the *gopīs*, especially Rādhārāṇī. I offer my respectful obeisances unto You."]
+
+> tapta-kāñcana-gaurāṅgi rādhe vṛndāvaneśvari
+> vṛṣabhānu-sute devi praṇamāmi hari-priye
+
+["I offer my respects to Rādhārāṇī, whose bodily complexion is like molten gold and who is the Queen of Vṛndāvana. You are the daughter of King Vṛṣabhānu, and You are very dear to Lord Kṛṣṇa."]
+
+> vāñchā-kalpatarubhyaś ca kṛpā-sindhubhya eva ca
+> patitānāṁ pāvanebhyo vaiṣṇavebhyo namo namaḥ
+
+["I offer my respectful obeisances unto all the Vaiṣṇava devotees of the Lord. They can fulfill the desires of everyone, just like desire trees, and they are full of compassion for the fallen souls."]
+
+> śrī-kṛṣṇa-caitanya prabhu nityānanda
+> śrī-advaita gadādhara śrīvāsādi-gaura-bhakta-vṛnda
+
+["I offer my obeisances to Śrī Kṛṣṇa Caitanya, Prabhu Nityānanda, Śrī Advaita, Gadādhara, Śrīvāsa and all others in the line of devotion."]
+
+> hare kṛṣṇa hare kṛṣṇa kṛṣṇa kṛṣṇa hare hare
+> hare rāma hare rāma rāma rāma hare hare
+
+["My dear Lord, and the spiritual energy of the Lord, kindly engage me in Your service. I am now embarrassed with this material service. Please engage me in Your service."]
+
+Ladies and Gentlemen, I thank you very much for your kindly participating in this movement of Kṛṣṇa consciousness. Perhaps this meeting will be ended tomorrow and we shall have a nice procession to Chowpati at 4 p.m., and I hope you will all join us as you are usually doing.
+
+Actually, according to Caitanya Mahāprabhu and according to the Vedic instructions, this movement should be continued in every city for twenty-four hours. *Kīrtanīyaḥ sadā hariḥ* [*Cc. Ādi* 17.31]. Caitanya Mahāprabhu does not say that it should be occasional, temporary. He says that *kīrtanīyaḥ sadā. Sadā* means always. Similarly, *Śrīmad-Bhāgavata* says also, *nityaṁ bhāgavata-sevayā. Naṣṭa-prāyeṣu abhadreṣu nityaṁ bhāgavata-sevayā* *SB* 1.2.18. One has to cleanse all the inauspicious things within our heart. Caitanya Mahāprabhu says also the same thing, that *ceto-darpaṇa-mārjanam* [*Cc. Antya 20.12*]. We have to cleanse the dirty things accumulated in our heart since time immemorial.
+
+Bhaktivinoda Ṭhākura said, *anādi-karama-phale, pori' bhavārṇava-jale.* We do not know when we have begun this conditioned life in this material world. You cannot trace. That is impossible. Because this life is not only in this creation, but it is coming from another creation. *Suṣupti.* Now the creation is going on since the birth of Lord Brahmā, and it will continue for so many millions of years. Again it will be annihilated.
+
+As you will find in the *Bhagavad-gītā, bhūtvā bhūtvā pralīyate* *Bg.* 8.19. This creation takes place exactly like your body, my body. The creation of this body takes place at a certain date. That is the beginning of history. But time is immemorial, I mean to say, eternal. It is all relative truth. The history is relative. Just like my life begins, this body begins somewhere in 1896—something like that—and it ends somewhere. That time limit is relative to my body. Similarly, there is Brahmā's body. That relative time is long, long duration.
+
+As you'll find in the *Bhagavad-gītā,* Brahmā's life is described by Kṛṣṇa, *sahasra-yuga-paryantam arhad yad brahmaṇo viduḥ* [*Bg*. 8.17]. This Satya, Tretā, Dvāpara, Kali, four *yugas,* it comes to about forty-three *lakhs* of years. So combine together, if you multiply it by one thousand, that is the duration of one day's life of Brahmā. Similarly, he has got night. This is only daytime, twelve hours. The similar period, night, that makes twenty-four hours. Then again one month, thirty days and nights. Similarly, one year, twelve months. Similarly, one hundred years. So his duration of life is also one hundred years, but because it is a different person, that truth is relative according to that person. That is scientifically admitted: everything is relative truth, nothing absolute truth.
+
+So we are... It is a fact that we are in a conditioned life. It is not absolute. And the Kṛṣṇa, He is absolute. He is never conditioned, as we have explained that the three qualities of this material nature are emanation from Kṛṣṇa, but He is not affected by the qualities. Therefore He is called *nirguṇa. Nirguṇa, nirākāra,* does not mean that He has no form or He has no quality. He has no material quality, nor He is affected by the material quality. And *ākāra...* He is not *nirākāra* as we understand. We understand *nirākāra* means formless. But Kṛṣṇa is not formless. Kṛṣṇa has form. That is transcendental form, *sac-cid-ānanda-vigrahaḥ* [*Bs.* 5.1]. His body is eternal and full of bliss, transcendental bliss, and full of knowledge. That is Kṛṣṇa's feature.
+
+So we have also got minute quantity of Kṛṣṇa's qualities because we are minute particles of Kṛṣṇa, but that is now covered by *māyā.* This *māyā* means... When we forget our actual relationship with Kṛṣṇa, that is called *māyā,* false egotism. Falsely I am thinking that "I am American," "I am Indian," "I am *brāhmaṇa,*" "I am this," "I am that." These are all false designation. Real identification is "I am Kṛṣṇa's." I have repeatedly said.
+
+When this realization is achieved, that *mahātmā* is *su-durlabhaḥ,* very rare. *Sa mahātmā su-durlabhaḥ.* Who? One who understands that *vāsudevaḥ sarvam iti* [*Bg*. 7.19]: "Vāsudeva is the origin of everything," Kṛṣṇa is the origin.
+
+> īśvaraḥ paramaḥ kṛṣṇaḥ
+> sac-cid-ānanda-vigrahaḥ
+> anādir ādir govindaḥ
+> sarva-kāraṇa-kāraṇam
+
+[*Bs. 5.1*]
+
+"Cause of all causes." That is being explained by Kṛṣṇa Himself personally. You are hearing about God from God personally. How it is that you do not understand what is God? That means you do not try to understand it or you are misled by *duṣkṛtina.* Kṛṣṇa therefore says, *na māṁ duṣkṛtino mūḍhāḥ prapadyante narādhamāḥ* *Bg.* 7.15. This *śloka* we have discussed partially last night.
+
+So anyone who is trying to divert people's attention from Kṛṣṇa to non-Kṛṣṇa... That is the business of the modern so-called philosophers and educationists or religionists. They will continue to read *Bhagavad-gītā* life long but will interpret in a different way so that people may not surrender to Kṛṣṇa. That is their business. Such persons are called *duṣkṛtina.* They are themselves also not ready to surrender to Kṛṣṇa, and they are misleading others also not to surrender to Kṛṣṇa. That is their business. Such persons are *duṣkṛtina,* miscreants, rogues, rascals, those who are deviating people in other ways.
+
+A great scholar—I do not wish to name—he is writing in his commentary, "It is not to Kṛṣṇa." Just see. Kṛṣṇa says, *man-manā bhava mad-bhaktaḥ:* "You just become My devotee." *Mad-yājī māṁ namaskuru:* "You just worship Me and offer your obeisances unto Me. In this way you will get Me. You will achieve Me." The commentator says... The so-called learned commentator says, "It is not to the Kṛṣṇa person, but it is the Absolute Truth which is within Kṛṣṇa." That means he is dividing Kṛṣṇa from the Absolute Truth. He does not know what is Kṛṣṇa.
+
+Kṛṣṇa says, *mattaḥ parataraṁ nānyat kiñcid asti dhanañjaya* *Bg.* 7.7: "There is no other truth, greater truth, than Myself." And he says, "Something greater than Kṛṣṇa within Śrī Kṛṣṇa." That means it is clear that he does not know what is Kṛṣṇa, and he has the courage to comment on *Bhagavad-gītā.* That is the pitiable condition. One who does not understand Kṛṣṇa, he is daring to write comments on the *Bhagavad-gītā.* That is misleading.
+
+Therefore Kṛṣṇa says *duṣkṛtina.* They will produce volumes of books. *Na yad vacaś citra-padaṁ harer yaśaḥ* *SB* 1.5.10*. Bhāgavata* says that "You can produce volumes of books with nice literary, metaphorical arrangements." *Na yad vacaś citra-padaṁ harer yaśaḥ na pragṛṇīta karhicit.* The *Bhāgavata* says that "You can produce a nice book by mental concoction and speculation with nice grammatical and metaphorical arrangement, but if there is no glorification of Kṛṣṇa, then it is..." What is, like that? *Tad vāyasaṁ tīrtham:* "This is a place enjoyable by the crows."
+
+You know the crows, they enjoy in a place where you throw away all nasty things. After your mucus or any..., all nasty things you throw away, the crows will come there. They will enjoy. Therefore *Bhāgavata* says, "Such literary production where there is no glorification of the Supreme Lord, it is just like the enjoyable spot of the crows."
+
+But there is another class of bird who are called swans, *rāja-haṁsa.* They will not come there. They will not come there and enjoy with the crows. This is natural division. They will go in a place where there is very clear reservoir of water, nice trees, nice fruits and flowers, nice birds, *mānasa-tīrtha, mānasa-gaṅgā,* like that. They will enjoy there. Similarly, this mental speculation, huge, huge books, will be enjoyed by a class of men who are compared with the crows. But glorification of Kṛṣṇa will be enjoyed by a class of men who are called swans or *paramahaṁsas.*
+
+So *Bhagavad-gītā, Śrīmad-Bhāgavatam,* they are meant for *paramahaṁsa-sādhika-caraṇam,* for the *paramahaṁsas.* Those who are *duṣkṛtina,* miscreants, crows, they cannot enjoy what is the taste of *Bhagavad-gītā.* Therefore Kṛṣṇa says to Arjuna... When He was teaching to him beginning of the *Bhagavad-gītā,* He said, *bhakto 'si me priyo 'si me rahasyaṁ hy etad uttamam:* "Because you are My devotee, because you are My friend, very dear friend, therefore I am disclosing you the mysteries, *rahasyam.*"
+
+Not anybody can understand *Bhagavad-gītā.* It is not possible if he does not follow the principles adopted by Arjuna. *Bhakto 'si priyo 'si me* *Bg.* 4.3. That is the way of studying *Bhagavad-gītā.* Otherwise, those who are *duṣkṛtina,* they will take advantage of *Bhagavad-gītā* for making their business and flatter some other *duṣkṛtina* miscreants also to mislead them. Because other miscreants, they want to be misled, the *asuras. Āsuri-bhāvam āśritāḥ.*
+
+What is the *āsuri-bhāva,* demonic tendency? The demonic tendency is that "I am God." That is called demonic tendency, falsely thinking that "I am God." In spite of all education, they have not the little sense that how he becomes a God. Here is God, Kṛṣṇa. We have got His activities. He married sixteen thousand wives, and He constructed sixteen thousand palaces, and He expanded Himself into sixteen thousand forms. Here is one God. And you are or I am, I am sitting here; I cannot expand up to my apartment also, and how I am expecting to be called as God? These are the test.
+
+But these people are popular because certain class of men, *āsuri-bhāva,* they also want to be cheated like that. Therefore Kṛṣṇa says, *na māṁ duṣkṛtino mūḍhāḥ prapadyante narādhamāḥ* *Bg.* 7.15: "Those who are miscreants, those who are rascals, *mūḍha, narādhama,* lowest of the mankind, *māyayāpahṛta-jñānā,* and stolen of his knowledge by *māyā,* such persons, because they are *asuras,* demons, they do not surrender unto Me." So we have to take it from the statement of Kṛṣṇa that anyone who does not understand Kṛṣṇa, who does not surrender unto Kṛṣṇa, they are to be understood under these classification.
+
+Then here is one commentation by a learned scholar and devotee, Baladeva Vidyābhūṣana. He said, *nanu cettvām eva prapannā vimucyante, tarhi paṇḍitā api kecit kim iti tvāṁ na prapadyante.* Now, if Kṛṣṇa has said simply by surrendering unto Him, *mām eva ye prapadyante māyām etāṁ taranti te...* Our business is, in the human form of life, how to get out of the clutches or conditions of *māyā.* We are actually trying to do that. All the scientific improvement, material advancement of knowledge, means that we are trying to avoid the conditions imposed by material nature. That is actually we are doing. Why you have invented this electric fan? Call it that is material science improvement. Because in the excessive heat we are troubled. And wherefrom this excessive heat comes? It comes from the material nature.
+
+Therefore our struggle for existence is to fight with the impositions of the material nature. So Kṛṣṇa says that in this way fighting, you cannot get out of the clutches of *māyā. Daivī hy eṣā guṇamayī mama māyā duratyayā* [*Bg*. 7.14]. It is very difficult. You may have hundreds and thousands of electric fans, but still you will have to feel the effect of excessive heat. You cannot avoid it. Similarly, you may have hundreds or thousands of heating arrangements; still, you have to feel the effects of the, I mean to say, cooling effect of winter season. You cannot...
+
+*Mātrā-sparśās tu kaunteya śītoṣṇa-sukha-duḥkha-dāḥ* *Bg.* 2.14. We have traveled all over the world. I have seen different climatic influence, how people are suffering. In the Western countries they are thinking that "Indians are very happy because the country is very warm," and we are thinking that "The Western people are very happy because the country is very cold." But nobody is happy; that is a fact—neither the Westerners nor the Easterners—because all of them under the grip of *māyā.* That is a fact.
+
+So in this way you cannot escape the stringent laws of *māyā,* material nature. That is impossible. That is said by Kṛṣṇa Himself. It is not my statement. Kṛṣṇa says, *daivī hy eṣā guṇamayī mama māyā duratyayā.* You cannot escape. Suppose you are escaping by some arrangement, by heating arrangement, by cooling arrangement. But that does not mean by that process you will escape the actual laws of material nature. Just like we have got cold storage. We keep fruits and other things in the cold storage. It looks that it is keeping fresh, but the decomposition method is not stopped there. As soon as you take out from the cold storage, it is all rotten.
+
+So you cannot escape the action or reaction of material nature by these methods. Therefore Kṛṣṇa says, *daivī hy eṣā guṇamayī mama māyā duratyayā* [*Bg*. 7.14]. It is very difficult, *duratyayā,* most difficult task to get out of the, I mean to say, regulative principles of material nature. Then how it is possible? *Mām eva ye prapadyante māyām etāṁ taranti te:* "Simply by surrendering unto Me one can do it."
+
+So the idea is that... Just like one man is suffering from some disease. The doctor is giving..., physician is giving some medicine and some diet. So if we follow the directions of the physician and eat the diet prescribed by him, there is hope of curing the disease. This is one way. And another person who is suffering from disease but does not care for the physician's instruction or any medicine—he is going on—he is certainly destined to die, as you can understand.
+
+Similarly, in this material world, both the devotees and nondevotees are there. The devotees, they are trying to be cured from this material disease, and the nondevotees, they do not care for it; they are therefore continuing suffering. We should understand in this way, that... Baladeva Vidyābhūṣana questions that "If by surrendering unto Kṛṣṇa we can become out of the clutches of *māyā,* why the *paṇḍitas,* why the learned scholars, scientists and philosophers do not do that?"
+
+So he says that *tatrāha na mām iti, duṣṭaś ca te kṛtinaḥ, śāstrārtha-kuśalāś ceti duṣkṛtinaḥ ku-paṇḍitās te māṁ na prapadyante śrutiś caivam āha.* He is giving evidence from the *Vedas* how these rascals, they think of themselves as very learned. In the *Vedas* it is said, *avidyāyām antare vartamānaḥ svayaṁ dhīraḥ paṇḍitaṁ manyamānaḥ* [*Kaṭha Upaniṣad* 1.2.5]: "There is *avidyā,* nescience, ignorance, within, but they are thinking that 'I am very learned.' " That is our another disease. One disease is the troubles and conditions offered by the material nature.
+
+So Kṛṣṇa says that in this material world, so long we are, we have to execute the devotional service. But we may not be disturbed by these material conditions. That was advised to Kṛṣṇa..., Arjuna:
+
+> mātrā-sparśās tu kaunteya
+> śītoṣṇa-sukha-duḥkha-dāḥ
+> āgamāpāyino [nityās]
+> tāṁs titikṣasva bhārata
+
+[*Bg*. *2.14*]
+
+*Tāṁs titikṣasva bhārata.* So a devotee, his business is that "Because I have got this material body and because I had my past misdeeds, although I am suffering, it does not matter. It comes and goes. It does not matter. Let me do my duty." That is advice of Kṛṣṇa. A devotee is not disturbed by the material condition. *Tat te 'nukampāṁ su-samīkṣamāṇo* *SB* 10.14.8. If there is some reverse condition of life, a devotee thinks, "It is also grace of the Lord, because I am minimizing. With minimum trouble, I am minimizing the effects of my past misdeeds." They think like that.
+
+So persons who are not devotee, they do not know that only Kṛṣṇa, or the Supreme Personality of Godhead, He can get me relieved from these material clutches. There is no other way. *Hariṁ vinā na mṛtiṁ taranti.* We cannot get relief from these clutches of material world unless we surrender unto Kṛṣṇa. Kṛṣṇa therefore says very clearly, *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ* *Bg.* 18.66. That is the ultimate end of this Kṛṣṇa philosophy, *Bhagavad-gītā.* We have to ultimately surrender to Kṛṣṇa. Otherwise, there is no escape. But those who are miscreants, those who are *mūḍhas* or *narādhamas,* they do not do it.
+
+But there are other classes of men who are described in the next paragraph. He says, *catur...,*
+
+> na māṁ duṣkṛtino mūḍhāḥ
+> prapadyante narādhamāḥ
+> māyayāpahṛta-jñānā
+> āsuri-bhāvam āśritāḥ
+
+[*Bg. 7.15*]
+
+These are the classification of the demons, those who are atheists, faithless, do not accept the Supreme Personality, their description. But there are others. Not that everyone is *asura.* There are *devatās* also.
+
+Two classes of men are always there: *devatā* and the *asura.* So what are the *devatās*?* Catur-vidhā bhajante mam janāḥ sukṛtino 'rjuna* *Bg.* 7.16. There are four classes of men whose background is pious activities. *Catur-vidhā bhajante māṁ sukṛtinaḥ.* The other word is *duṣkṛtina,* miscreants, who are always engaged in sinful activities. And there are others also who are always engaged in pious activities.
+
+Therefore *śāstra* recommends to be engaged always in pious activities: "You do this. You do that. You go to the temple. You take early morning bath. You take bath in the Ganges. You take bath in the Yamunā." That is the basic principles of Indian culture, to make all people *sukṛtina.* Because without becoming pious, nobody can understand what is God, what is Kṛṣṇa. That is not possible. The whole civilization is based on the process of making people pious. Because in another place we'll find Kṛṣṇa says that *yeṣām anta-gataṁ pāpaṁ janānāṁ puṇya-karmaṇam.* Without *puṇya-karma,* without pious activities, nobody can enter into the devotional service.
+
+> yeṣām anta-gatam pāpaṁ
+> janānāṁ puṇya-karmaṇam
+> te dvanda-moha-nirmuktā
+> bhajante māṁ dṛḍha-vratāḥ
+
+[*Bg. 7.28*]
+
+So this process should be adopted, how to become *sukṛtina. Sukṛti* means *yajña-dāna-tapa-kriyā.* One must perform sacrifices as prescribed in the *śāstras,* and they must give in charity their hard-earned money for Kṛṣṇa's cause. That is called *dāna. Yajña, dāna* and *tapasya. Tapasya.*
+
+Just like tomorrow is Śrī Rāma-navami. The *tapasya* will be that all the devotees will observe fasting from morning till evening. This is called *tapasya.* This is... Just like Ekādaśī day—there is no eating sumptuously. Simply you take little fruits and flowers. Try to avoid that also. You don't take even water. That is really Ekādaśī. But because we cannot do it—in the Kali-yuga the time is different—therefore we are allowed to take little fruits and milk, which is called *anukalpa.* These are different methods of *tapasya.*
+
+And *yajña.* This *yajña, saṅkīrtanaiḥ prāyair yajñaiḥ, yajanti hi su-medhasaḥ.* In this age you cannot perform that big *aśvamedha yajña, gomedha yajña, rājasūya yajña,* so many other *yajñas.* It is not possible. First of all, you have no means to perform such *yajñas,* hundreds and hundreds of tons *ghee* required for putting into the sacrificial fire. You have not even a drop of your *ghee.* So forget all those *yajñas.* In this age, *yajñaiḥ saṅkīrtanaiḥ prāyaiḥ.* That is recommended in the *śāstra, kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ:*
+
+> kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ
+> sāṅgopāṅgāstra-pārṣadam
+> yajñaiḥ saṅkīrtanaiḥ prāyair
+> yajanti hi su-medhasaḥ
+
+[*SB 11.5.32*]
+
+So these are pious activities, to perform *yajña* and to give in charity. *Yajña, dāna* and *tapasya,* accepting voluntarily austerity. That will make you *sukṛtina.* And if you actually become *sukṛtina,* then you'll be inclined. Because the dirty things will be cleansed by these pious activities, then you will understand.
+
+Just like when the sky is cleared of all clouds you can see the sunshine very brilliantly, similarly, you can see Kṛṣṇa and God very brilliantly as soon as the cloud accumulated in your heart of all dirty things is cleansed. The process of cleansing in this age is this *saṅkīrtana yajña.* This *saṅkīrtana* movement is not unauthorized. It is authorized by the *śāstras.* And because they are being properly performed, it is taking effect all over the world.
+
+So we have to undergo all these processes recommended in the *śāstras-yajña-dāna-tapa-kriyā.* So this is *yajña, saṅkīrtana-yajña.* It is recommended in the Vedic literature that in this age, Kali-yuga, the form of the Lord as *kṛṣṇa-varṇaṁ tviṣākṛṣṇam,* that "He is always engaged in describing or glorifying Lord Kṛṣṇa." Who is that? Caitanya Mahāprabhu. Caitanya Mahāprabhu is the indicated incarnation in the *Śrīmad-Bhāgavatam. Kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ sāṅgopāṅgāstra-pārṣadam* *SB* 11.5.32.
+
+You have seen Lord Caitanya's picture. He is always followed by many devotees chanting this Hare Kṛṣṇa, *sāṅgopāṅgāstra pārṣadam,* especially His associates Lord Nityānanda, Lord Advaita and Śrīvas and Gadādhara. *Śrī-kṛṣṇa-caitanya prabhu-nityānanda, śrī-advaita gadādhara śrīvāsādi-gaura-bhakta-vṛnda.* These associates, they are *kṛṣṇa-varṇam* always. The Lord Himself, Kṛṣṇa, He is always describing about Kṛṣṇa as devotee. He is teaching us how to become a devotee of Kṛṣṇa. Just see how much merciful is Kṛṣṇa upon us. He is coming personally, instructing *Bhagavad-gītā,* and asking us, "Surrender unto Me. Give up all other business, all other so-called occupation. You surrender unto Me. I shall give you protection from all sinful reaction." *Ahaṁ tvāṁ sarva-pāpebhyo mokṣa..., mā śucaḥ* [*Bg*. 18.66]: "Don't be worried. I'll take charge of you."
+
+But still we do not surrender unto Him. Still we say, "Oh, this is too much. Kṛṣṇa is demanding too much from us. No, no. We have many other gods. We can surrender there," or "We can do our own business." Therefore Kṛṣṇa again comes as devotee, Lord Caitanya. *Kṛṣṇa-varṇaṁ tviṣākṛṣṇam.* This time, just to hide Himself He is come in very fair complexion, goldenlike, *tviṣākṛṣṇam.* Kṛṣṇa, naturally He is blackish, but this incarnation of Kṛṣṇa, He came not as blackish but *akṛṣṇa,* without being blackish. *Pitā.* That is also confirmed in the *śāstra.*
+
+So this body, this incarnation of Kṛṣṇa, who is always chanting Hare Kṛṣṇa *mantra,* but His bodily hue is not blackish, *kṛṣṇa-varṇaṁ tviṣākṛṣṇam* *SB* 11.5.32*,* and He is always followed by His associates, *sāṅgopāṅgāstra-pārṣadam,* such Personality of Godhead should be worshiped by *yajñaiḥ saṅkīrtanaiḥ.* This *yajña* should be performed. Because without performing *yajña,* you cannot become pious. So because in this age there is no possibility of performing big *yajñas,* there is no qualified *brāhmaṇas* how to perform that *yajña,* there is no supply of pure *ghee,* you have no means how to arrange for such *yajña*—therefore, by the grace of Kṛṣṇa, He is recommending this *yajñaiḥ saṅkīrtanaiḥ.*
+
+This *yajña* you can perform anywhere, without any cost. You can perform this *yajña* at your home, in your office, in your factory, anywhere, without any cost. Simply you sit down together and clap on your hand and chant Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. [applause]
+
+So by performing this *yajña,* you become purified. *Yajña-dāna.* And so far *dāna* is concerned, that is, of course, different way. You can give in charity. *Prāṇair arthair dhiyā vācā* *SB* 10.22.35. You can make charity. Not that because you have no money, you cannot make charity. You can make charity. What is that? You can dedicate your life, *prāṇaiḥ,* just like these boys and girls.
+
+They have not brought any huge amount of money for this Kṛṣṇa consciousness movement. Because this Kṛṣṇa consciousness movement has not attracted the richer class of America. Now they are little, little coming. But I have attracted the middle class. So they have not brought any money, huge amount of money, but they have dedicated their life, *prāṇaiḥ.*
+
+And those who have got money, they can contribute. Just like we are begging from door to door, "Please become a Life Member and contribute something so that this movement can be pushed on." *Prāṇair arthaiḥ.* So if somebody says, "Sir, I have no money, neither I can dedicate my life," then how he will perform the *yajña*?* Prāṇair arthair dhiyā.* You can give your intelligence: "So your movement, I appreciate your movement. So please do like this. I will take you to some friend who can help you." That is *dhiyā,* intelligence.
+
+And if you have no..., if you cannot dedicate your life, if you cannot sacrifice any money, if you have no intelligence, then *vācā,* you can use your words. What is that? Kṛṣṇa says, *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja* *Bg.* 18.66. You simply go to any friend and advise him, "Please surrender unto Kṛṣṇa." That is also sacrifice. Is there any difficulty or expenditure to accept this *saṅkīrtanair yajñaiḥ prāyaiḥ,* to accept this *saṅkīrtana-yajña* movement by anyone? Anyone can accept it, provided he is willing to do it. The Kṛṣṇa consciousness movement is so nice. It is meant for everyone. There is no discrimination.
+
+So far we Indians are concerned, we have got some responsibility. Therefore Kṛṣṇa, Lord Kṛṣṇa says... Lord Caitanya Mahāprabhu says—He is Lord Kṛṣṇa also—*bhārate-bhūmite manuṣya-janma haila yāra* [*Cc. Ādi* 9.41]. Especially for the Indians. Indians have got special prerogative for spreading this Kṛṣṇa consciousness movement all over the world. [applause]
+
+So why you are neglecting your duty? Prepare hundreds and thousands of preachers from India and send outside. This rascaldom, fighting with one another always, it will be forgotten. There will be one under this flag of Kṛṣṇa consciousness. There is need of such preachers. We should open regular school or teaching institution for preparing preachers all over the world. That is needed. This Bombay city is very nice city. You can do that. We can help you how to do it.
+
+Lord Caitanya Himself preached. Although He was very young man, at that time only twenty-four years old, for preaching work He sacrificed everything. He sacrificed His nice, beautiful wife, He left His old mother, His popularity at Navadvīpa as a great scholar and beautiful boy, and He accepted *sannyāsa* just for the purpose of preaching Kṛṣṇa consciousness. These are the examples.
+
+So Sanātana Gosvāmī, Rūpa Gosvāmī, they were prime minister of the then government of Bengal. They sacrificed their post. They joined Caitanya Mahāprabhu, that "Let us help You." Raghunātha dāsa Gosvāmī, he was the biggest *zamindar* of that time. His father's income was twelve *lakhs* of rupees per month. How rich he was. He sacrificed everything and joined Caitanya Mahāprabhu's movement. There were six Gosvāmīs: Rūpa, Sanātana, Bhaṭṭa Raghunātha, Dāsa Raghunātha and Jīva Gosvāmī and Gopāla Bhaṭṭa. All, they were very stalwart men of that society. They sacrificed everything. Why? Because Kṛṣṇa..., Caitanya Mahāprabhu wanted that.
+
+> bhārate-bhūmite manuṣya-janma haila yāra
+> janma sārthaka kari' kara para-upakāra
+
+[*Cc. Ādi 9.41*]
+
+So there is need of this movement. So any intelligent man from India, first of all let him, I mean to say, make his life successful by understanding what is this Kṛṣṇa consciousness movement. It is not difficult. The real purpose of this movement? To teach people how he can surrender to Kṛṣṇa, that's all. That is the sum and substance of this movement. If one accepts this principle without any difficulty, he is immediately a preacher.
+
+But if he does not accept, he wants to understand the philosophy, we have got volumes of books. Try to understand through books, through philosophy, through science how this movement is important, and try to join. That is our appeal to you. Now, I think, today we are ending. You shall bear in mind these principles of our philosophy and do your best how to help it.
+
+Thank you very much. [applause] [end]

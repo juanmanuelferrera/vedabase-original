@@ -1,0 +1,163 @@
+# Arrival Address
+
+*Type: Lectures and Addresses Dated: September 11th 1969 Location: London Audio file: 690911AR-LONDON.mp3*
+
+**Prabhupāda:** ...but I'm not very much fond of reception. I want to know how people give reception to this movement. That is my concern.
+
+**Devotees:** *Haribol!*
+
+**Reporter:** How long will you be in England, sir?
+
+**Prabhupāda:** England, I think I am coming for the second time. Last time, in 1967, when I was going to India, I stayed here for two days only and then went away. Practically, this is the first time I have come.
+
+**Reporter:** And for how long now?
+
+**Prabhupāda:** That I do not know.
+
+**Devotees:** *Haribol!*
+
+**Prabhupāda:** I have got so many fathers and mothers to take care. So as long as they keep me, I can be.
+
+**Mukunda:** If any of you gentlemen have questions, you can ask them of Prabhupāda.
+
+**Reporter:** Yes. Can I ask if this is a very special welcome for you, or is this a performance that you go through each day?
+
+**Prabhupāda:** No. Wherever I go, I have got my disciples. In the Western countries I have got now about twenty centers, especially in America, Canada. So the American boys are very enthusiastic. I think...
+
+**Devotees:** *Haribol!*
+
+**Prabhupāda:** I think I got in Los Angeles and San Francisco a very great reception. And in Ratha-yātrā festival about ten thousand boys and girls followed me for seven miles.
+
+**Devotees:** *Haribol!*
+
+**Reporter:** What do you try and teach, sir?
+
+**Prabhupāda:** I am trying to teach what you have forgotten.
+
+**Devotees:** *Haribol*! Hare Kṛṣṇa! [laughter]
+
+**Reporter:** Which is what?
+
+**Prabhupāda:** That is God. Some of you are saying there is no God, some of you are saying God is dead, and some of you are saying God is impersonal or void. These are all nonsense. I want to teach all these nonsense that there is God. That is my mission. Any nonsense can come to me, I shall prove that there is God. That is my Kṛṣṇa consciousness movement. It is a challenge to the atheistic people. There is God.
+
+As we are sitting here face to face, you can see God face to face. If you are sincere and if you are serious, that is possible. Unfortunately, we are trying to forget God; therefore we are embracing so many miseries of life. So I am simply preaching that you have Kṛṣṇa consciousness and be happy. Don't be swayed away by these nonsense waves from *māyā,* or illusion. That is my request.
+
+**Devotees:** *Haribol!*
+
+**Reporter:** Is this singing essential to the sustenance of your faith?
+
+**Prabhupāda:** This singing is the process for clearing the dust accumulated on the heart. Our relationship with God is eternal. It cannot be broken. But due to the contact of *māyā* we are trying to forget Him. But if we chant this holy name of God, Hare Kṛṣṇa, then *māyā* will not act, and we shall very quickly understand what is our relationship with God. That is the process. *Ceto-darpaṇa-mārjanam* [*Cc. Antya* *20.12*]*.*
+
+**[“’Let there be all victory for the chanting of the holy name of Lord Kṛṣṇa, which can cleanse the mirror of the heart and stop the miseries of the blazing fire of material existence. That chanting is the waxing moon that spreads the white lotus of good fortune for all living entities. It is the life and soul of all education. The chanting of the holy name of Kṛṣṇa expands the blissful ocean of transcendental life. It gives a cooling effect to everyone and enables one to taste full nectar at every step.’]**
+
+The Sanskrit word is "cleansing the dirty heart." The dirty heart. In the *Bhagavad-gītā* it is said, *na māṁ duṣkṛtino mūḍhāḥ prapadyante narādhamāḥ* *Bg.* 7.15*.*
+
+**[Those miscreants who are grossly foolish, lowest among mankind, whose knowledge is stolen by illusion, and who partake of the atheistic nature of demons, do not surrender unto Me.]**
+
+Those who are miscreants, rascals, and lowest of the mankind, and taken all knowledge, and atheistic class of men, they do not know what is God. Others, those who are virtuous, those who are inquisitive, those who are wise, they will try, and they will understand what is God.
+
+So my appeal to you is that you try to understand this movement, Kṛṣṇa consciousness movement. It is not a bogus movement. It is scientific, authorized. Any scientist, any philosopher, any logician may come and we shall prove that there is God and we have got eternal relationship with God.
+
+So if you want to [be] happy, then you must take to this Kṛṣṇa consciousness movement. Otherwise the human race is doomed. *Harāv abhaktasya kuto mahad-guṇā* *SB* 5.18.12*.*
+
+**[All the demigods and their exalted qualities, such as religion, knowledge and renunciation, become manifest in the body of one who has developed unalloyed devotion for the Supreme Personality of Godhead, Vāsudeva. On the other hand, a person devoid of devotional service and engaged in material activities has no good qualities. Even if he is adept at the practice of mystic yoga or the honest endeavor of maintaining his family and relatives, he must be driven by his own mental speculations and must engage in the service of the Lord's external energy. How can there be any good qualities in such a man?]**
+
+Anyone who has no God consciousness, he has no qualification. However academically he may be very rich, he has no qualification. *Manorathena asato dhāvato bahiḥ.* His only qualification is mental concoction. Mental concoction. That's all. He has no other qualification. So we reject all these nonsense. We simply accept a sincere soul who wants to dedicate his life for God's service.
+
+So it is not easy thing. These boys and girls who are following me, they are very elevated. They are not ordinary boys and girls. They have taken to Kṛṣṇa consciousness. Their quality is greater than any mundane erudite scholar. It is a challenge. *Yasyāsti bhaktir bhagavaty akiñcanā sarvair guṇais tatra samāsate surāḥ* *SB* 5.18.12*.*
+
+Anyone who has developed Kṛṣṇa consciousness, love of God, all good qualities will automatically develop in him. All good qualities. Test any of our students, how they are good, how they are advanced. Test it. Bring anyone in this world and test any one of our boys, you'll find how much difference there is in their character, in their feeling, in their consciousness.
+
+So this is the only thing. If you want peaceful society, then you must make them God conscious, Kṛṣṇa consciousness. Everything will be automatically solved. Otherwise your so-called United Nation will not help.
+
+**Reporter:** Mr. Billy Graham makes people God conscious in a different way. Can you tell me what you think of him?
+
+**Prabhupāda:** I do not know what is Billy Graham, but I am following the Vedic principle, *Bhagavad-gītā* as it is. Kṛṣṇa says, *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja* [*Bg*. 18.66]*.*
+
+**[Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear.]**
+
+God says that "You give up all nonsense occupation, simply surrender unto Me, and I take charge of you and give you protection." This is our philosophy.
+
+**Reporter:** Can I ask you some questions about your general attitudes on things going on around us? For instance, what do you feel about man going to the moon? [laughter]
+
+**Prabhupāda:** This is simply a waste of time. I already commented on this when I was in San Francisco. The reporters asked me this very question. I flatly replied that it is simply waste of time and waste of money. That's all. [laughter]
+
+**Reporter:** What about something very much nearer to ourselves here in this country, and that is a war or civil disturbance is going on [indistinct]...
+
+**Prabhupāda:** Well, war is going on.
+
+**Reporter:** ...between Christians?
+
+**Prabhupāda:** No. We are not Christian nor Hindu nor Muslim. We are God's servant. That's all. Anyone who is God's servant, there is no disagreement. And when one is *māyā's* servant, servant of *māyā,* illusion, there is disagreement. So it doesn't matter. Our test is, *sa vai puṁsāṁ paro dharmo yato bhaktir adhokṣaje* *SB* 1.2.6
+
+**[The supreme occupation [dharma] for all humanity is that by which men can attain to loving devotional service unto the transcendent Lord. Such devotional service must be unmotivated and uninterrupted to completely satisfy the self.]**
+
+That system of religion is first class which teaches how to love God.
+
+That's all. It doesn't matter whether it is Christian religion, Muhammadan religion or Hindu religion. We shall see. If the follower of the religion has learned how to love God, then his religion is perfect. Otherwise it is useless.
+
+**Reporter:** But do you not think it's worth going to such places as Ireland and trying to talk to the people out there to stop warring?
+
+**Prabhupāda:** Now, this is our talking, that the first-class religion is that which teaches how to love God. Try to understand this. This is the simple formula.
+
+**Reporter:** Yes, but don't you think it's worth going over there to try and help them?
+
+**Prabhupāda:** We shall see. Suppose you are Christian. If you have developed your sense of loving God, then you are perfect, your religion is perfect. But instead of loving God, if you have developed your sense of loving dog, then you have wasted your time. That is our test. Yes. You want to ask any questions?
+
+**Reporter:** I think the lady wants to take you away somewhere. [Prabhupāda chuckles]
+
+**Reporter (2):** I think that the room is up.
+
+**Prabhupāda:** All right.
+
+**Reporter:** I should just like to know how old you are, sir.
+
+**Prabhupāda:** I am? I am seventy-four years old. I was born in 1896.
+
+**Reporter:** Whereabouts?
+
+**Prabhupāda:** In India, Calcutta.
+
+**Reporter:** Are you married, sir?
+
+**Prabhupāda:** Yes. I have got my sons, grandsons, my wife, all living, but I have no connection with them. I am a *sannyāsī,* renounced order. I have got elderly sons.
+
+**Reporter:** You say you have no connection with your family?
+
+**Prabhupāda:** No.
+
+**Reporter:** Why?
+
+**Prabhupāda:** Because I have taken *sannyāsa.* I have dedicated my life for Kṛṣṇa.
+
+**Reporter:** I see.
+
+**Prabhupāda: **That is the Vedic system, that certain portion of your life you should simply dedicate for God. That is called *sannyāsa.*
+
+**Reporter:** To do this, did you have to divorce?
+
+**Prabhupāda:** No. There is no question of. We have no... We do not know what is divorce. In our country there is no divorce, at least in Hindu law. Yes. Wife and husband, once combined, that is for life. There is no question of separation, in all circumstances.
+
+Either in distress or in happiness, there is no question of separation. Now our modern politicians, they have introduced this divorce law. Otherwise, according to Hindu, *Manu-saṁhitā,* there is no divorce law.
+
+**Reporter:** When did you renounce your family?
+
+**Prabhupāda:** In 1959.
+
+**Reporter:** How are they managing without you?
+
+**Prabhupāda:** They are managing. They have... My sons are grown up; they are earning. My wife is also rich man's daughter. She has got some property. So they have no problem.
+
+**Reporter:** Do you ever see them at all?
+
+**Prabhupāda:** No. I cannot see. I cannot see, at least, my wife. But if my sons and daughters come to see me, they can see. But my wife cannot see me. That is stopped. That is the system of *sannyāsa.* A *sannyāsī* cannot meet his wife again. That is renouncement. Renouncement means renouncing connection with woman, or renouncing sex life. That is renouncement.
+
+**Reporter:** Coming this way, sir?
+
+**Prabhupāda:** Yes. [cameras clicking]
+
+**Reporters:** Thank you very much.
+
+**Prabhupāda:** Thank you.
+
+**Devotees:** All glories to Śrī Śrī Guru and Gaurāṅga! *Haribol!* [end]

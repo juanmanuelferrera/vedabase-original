@@ -1,0 +1,189 @@
+# Speech to Indian Audience
+
+*Type: Lectures and Addresses Dated: July 28th 1968 Location: Montreal Audio file: 680728SP-MONTREAL.mp3*
+
+**Prabhupāda:** So?
+
+[break] *...vijayate śrī-kṛṣṇa-saṅkīrtanam.*
+
+**[Glory to the śrī-kṛṣṇa-saṅkīrtana, which cleanses the heart of all the dust accumulated for years and extinguishes the fire of conditional life, of repeated birth and death. This saṅkīrtana movement is the prime benediction for humanity at large because it spreads the rays of the benediction moon. It is the life of all transcendental knowledge. It increases the ocean of transcendental bliss, and it enables us to fully taste the nectar for which we are always anxious.]**
+
+Lord Caitanya instructed this verse. He gave us eight verses, known as *Śikṣāṣṭaka. Śikṣa* means "instruction"; *aṣṭaka,* "eight." This *Śikṣāṣṭaka* poetry, containing eight verses, are very valuable, and they were given by Lord Caitanya for understanding of the whole human society. It was not meant for any particular country or particular society, but it was meant for the whole human race. Lord Caitanya entrusted His countrymen, who are known as Bhāratīyas, to distribute this message throughout the whole world, in every village and every town.
+
+There is a nice Bengali verse in *Caitanya-caritāmṛta:*
+
+> pṛthivīte āche yata nagarādi grāma
+> sarvatra pracāra haibe mora nāma
+
+[*CB Antya-khaṇḍa 4.126*]
+
+**[“In every town and village of the world, the chanting of My name will be heard.]**
+
+The Lord predicted that "As many towns and villages are there on the surface of the world, everywhere this message will be known." And He also said,
+
+> bhārata-bhūmite manuṣya-janma haila yāra
+> janma sārthaka kari' kara para-upakāra
+
+[Cc. *Ādi 9.41*]
+
+**[“One who has taken his birth as a human being in the land of India [Bhārata-varṣa] should make his life successful and work for the benefit of all other people.]**
+
+He entrusted His countrymen—means any Indian. Not that because He appeared in Bengal it was entrusted to the Bengalis, but He said that *bhārata-bhūmite manuṣya-janma haila yāra:* "on the land of Bhārata-varṣa."
+
+India is known as Bhārata-varṣa. Perhaps most of you know it. This is after the name of King Bharata. There was a great king, Bharata, who was the emperor of the world, and this planet was named Bhārata-varṣa after his name. Before that, this planet was known as Ilāvṛta-varṣa. And after Mahārāja Bharata, this planet was named as Bhārata-varṣa. But gradually, there was partition.
+
+As recently also there has been partition of India—Hindustan and Pakistan—similarly, this planet, known as Bhārata-varṣa, was partitioned gradually, one after another. So then the other names—Europe, Africa or America, Germany—these names gradually developed. Actually the whole planet was known as Bhārata-varṣa. That we understand from the Vedic history. And there was one king. That king also belonged to Hastināpura, which is called at the present moment New Delhi, near about that.
+
+So anyway, Lord Caitanya entrusted to spread this message to the Indians. *Bhārata-bhūmite manuṣya-janma haila yāra.* There are many kinds of living entities. There are men, there are animals, there are birds, beasts, trees, aquatics—all of them are living entities. But He is entrusting to the *manuṣya. Bhārata-bhūmite manuṣya-janma haila yāra.* "One who has taken his birth as human being, Indian human being, to him I am entrusting this message, that this should be distributed all over the world in villages, in towns, this message."
+
+So I am especially speaking to the Indians present here, that you have got a responsibility on behalf of Lord Caitanya. If you believe in our *śāstras,* in our *ācāryas,* then those who are present here as Indians, I will request them to take this responsibility of spreading the...
+
+[aside:] This is disturbing.
+
+...this message of Lord Caitanya all over the world. And He said, *bhārata-bhumite manuṣya-janma haila yāra, janma sārthaka kari. Janma sārthaka kari* means "First of all make your life successful." You cannot distribute this transcendental message without making your life successful. *Janma sārthaka kari.*
+
+That means persons who are born in India, they have got the facility for making life successful. How? Because there is immense treasure house of transcendental knowledge in India. It is known to everyone, in every part of the world. Unfortunately, we Indians, we do not know the value of our spiritual treasure house.
+
+I have got one German Godbrother. He was formerly known as Mr. Hans Schulze. He is now Sadānanda Swami. He is living in Sweden. And one of his disciples, Vamana-deva... What is his German name?
+
+**Devotee:** Dr. Walter Eidlitz.
+
+**Prabhupāda:** Yes. He has written a very nice, authorized book on Lord Caitanya in German language, and it is very big book, paperback, five hundred pages. It is approved by the Sweden University, and he has sent me. So even a German gentleman, he is taking so much interest. And this Mr. Schulze, he told me long..., about forty years before... At that time I was also householder. So he told me that,
+
+"If some student come to Europe and then come to Germany, first of all we try to test him, how much he has got his original cultural knowledge." He said that "If we find that this boy, the student, knows something of Indian original cultural life, then we welcome him. Otherwise we reject him."
+
+So we Indians, we should know that we cannot imitate the Western country. They are far advanced. So far materialistic way of life is concerned, you cannot compete with them. Just like some years before there was industrial exhibition in India in which the government was very much proud to show that they are manufacturing cycle and sewing machine. When Western part of the world, they are manufacturing so many complicated machinery, we are proud of manufacturing cycle and sewing machine. Similarly, in every respect... In medicine also, there are so many laboratories in India, but still, seventy-five percent of the medicines are imported from foreign country, because they are lagging behind.
+
+So my point is that in every country, in every human society, there is a special qualification. The day before yesterday I was seeing one picture in that church, of Hardwar. Millions of people assembled there for taking bath in the Ganges. In 1958 there was a special fair in Jagannātha Purī. It was written in the almanac that on that particular day, if somebody takes bath in the sea and has an audience of Lord Jagannātha, then he will be liberated. I was also there and with other friends. You'll be surprised to know that for a few-hour visit, about six million people assembled from all parts of India. And government had to make a special arrangement for their taking bath in the sea and visiting the temple.
+
+Similarly, there is Kumbha-melā. These assemblies are not advertised. People know it by *paramparā:* I am speaking to you; you are speaking to your friend. In this way they know it, and on that particular day they assemble at a place, just like Prayāga, on the confluence of Ganga and Yamunā. Millions of people will assemble. So still, in spite of our present leaders' policy to completely eradicate all religious idea—they have made secular state—but people are so born that naturally they are inclined to take part in spiritual movement. That is the nature.
+
+Therefore Lord Caitanya says that *bhārata-bhūmite manuṣya-janma haila yāra* [Cc. *Ādi* 9.41]*.*
+
+**[“One who has taken his birth as a human being in the land of India [Bhārata-varṣa] should make his life successful and work for the benefit of all other people.]**
+
+To take one's birth in the land of India, to take one's birth as human being, is great opportunity undoubtedly. But still more great opportunity is there who has taken his birth in India. We are... We must be proud, provided we do not forget our own Vedic culture.
+
+Unfortunately, the present policy is that students are being taught to forget their old Vedic culture and try to imitate the Westernized way of life, industrial life, technical life. That is being encouraged. But here I find that the young men and young girls and boys, both, they are very much interested about Indian original culture of spiritual life.
+
+Recently, you know, some *yogī* came, and he simply bluffed so many people that "If you pay me thirty-five dollars, I will give you one personal *mantra,* and you will be in transcendental life," or so many things. So thousands and thousands of European boys and girls, as well as in America, they flocked together, but later on, they were frustrated.
+
+That means while the Indian youths are coming to the Western countries for advancement of technological knowledge, the Western boys and girls, they are hankering after spiritual life. This I have very particularly studied. I am here—not in Canada; in America. I came here in 1965, and I am studying the mind of the younger generation especially.
+
+They are hankering after something spiritual enlightenment, not only in America, also in Europe. And they expect something from India, because... It is a fact. I have read one book written by one Chinese gentleman. That book is recommended in the New York University for study. That Chinese gentleman is very learned man. He has given comparative studies of all religion and philosophy, but he recommends that "If you want to study religion as it is, then you have to go to India."
+
+So our Indian spiritual culture is still adored and worshiped by the learned section of every part of the world. And especially in America and Germany and England, they are hankering after it. We should be little careful that this knowledge, transcendental knowledge, as distributed by Lord Caitanya, should be seriously taken up by the responsible Indians present here.
+
+Unfortunately, I see that Indians are not very much interested. But that is our misfortune. Actually, Caitanya Mahāprabhu entrusted this mission that anyone who has taken birth as human being on the land of Bhārata-varṣa should learn this spiritual science very seriously, make his life successful, and distribute all over the world so that people of the world may become happy. That was His mission.
+
+Now, this Kṛṣṇa consciousness movement is started on this mission, on the mission of Lord Caitanya, that to distribute,
+
+> harer nāma harer nāma harer nāmaiva kevalam
+> kalau nāsty eva nāsty eva nāsty eva gatir anyathā
+
+[*Cc. Ādi 17.21*]
+
+**[”’In this Age of Kali there is no other means, no other means, no other means for self-realization than chanting the holy name, chanting the holy name, chanting the holy name of Lord Hari.’]**
+
+That in this age of Kali there are many differences of opinion for self-realization, or transcendental life, or religious life, but this common formula, chanting of the holy name of God, can be accepted by everyone.
+
+Unfortunately, people in the present age, they think that God is dead. And what is the use of chanting something, somebody who is dead, chanting the holy name of God, who is already dead? The other day I was speaking in the church that God is not dead. God cannot be dead, neither you or me cannot be dead. There is living symptom in your body, and there is living symptom in the cosmic manifestation also. Just try to understand what is God. Then place your verdict, whether God is dead or not.
+
+How God can be dead? Just like when a man is lying on the floor, if his vital condition, his pulses, his heart is going on, then how you can say that that man is dead? Similarly, if you study the cosmic manifestation... Of course, it is a subject matter to be learned very scrutinizingly with calm head, that as your body is functioning nicely by physiological arrangement, similarly, the body of the cosmic nature, by physical arrangement, it is also moving nicely.
+
+Therefore, so long your bodily functions are going on nicely, you are not dead. Similarly, the Supreme Soul is also not dead, because by the symptom of His gigantic body, universal body, we see that everything is nicely going on. So God is not dead. This is a statement of the crazy fellow. God is not dead, neither we are dead.
+
+Now, we, being part and parcel of the Supreme Lord, our function is just to serve the Supreme. This example of body I have said many times in this class, that as the part and parcel of your body, namely the hands, the legs, the eyes, the ears, they are meant for serving the whole body, similarly we, being part and parcel of the Supreme Whole, we are also meant for serving the Supreme Whole. So God is not dead; we are also not dead. We shall be dead when we cease to function as part and parcel of the Supreme Whole. That is our death.
+
+It is very nicely analyzed in the *Śrīmad-Bhāgavatam:*
+
+> ya eṣāṁ puruṣaṁ sākṣād
+> ātma-prabhavam īśvaram
+> na bhajanty avajānanty
+> sthānād bhraṣṭāḥ patanty adhaḥ
+
+[*SB 11.5.3*]
+
+**[Any members of the four *varṇas* and four *āśramas* who fail to worship the Personality of Godhead, the source of their own creation, or who intentionally disrespect Him will fall down from their position into a hellish state of life.]**
+
+Now, just like this finger or this hand is grown from this body, similarly, the different parts of human social body is also born out of the whole body of universal body of God. They analyze that the intelligent class of men, they are born of the mouth of the universal form of God. The administrative class of men, they are born out of the arms of the universal form of God. The mercantile class of men, they are born out of the abdomen of the universal form of God. And the laborer class of men, they are born out of the legs of the universal form of God.
+
+Now, so far the body is concerned, either the mouth or head or the legs, no part of the body is less important, because every part of the body is required for proper function of the body. But by comparative study, the head is most important than all other parts of the body. If head is cut off from the body, then body becomes immediately dead. But if your hand is cut off from the body, the body still remains alive. It is not dead.
+
+So the intelligent class of men who form the head of the society, if they are lacking, if there is no intelligent class of men, then it is to be considered that sort of human society is dead, because the head is not there. Similarly, at the present moment there is lack of intelligent class of men. Intelligent class of men... Who is intelligent class of men?
+
+There are so many intelligent class of men. So according to *Bhagavad-gītā,* intelligent class of men can be tested by some qualification. What is that? *Satya śaucaṁ samaḥ damaḥ titikṣa ārjavam, jñānaṁ vijñānam āstikyaṁ brahma-karma svabhāva-jam* *Bg.* 18.42*.*
+
+**[Peacefulness, self-control, austerity, purity, tolerance, honesty, wisdom, knowledge, and religiousness—these are the qualities by which the brāhmaṇas work.]**
+
+Intelligent class of men means... First qualification is that he must be truthful. Then, *satya, śaucam.* He must be always clean. *Bahyābhyantaram:* he must be clean without and within. "Without" means..., on the external body, cleanliness means soap and water. But inside cleanliness means Kṛṣṇa consciousness.
+
+So *bahyābhyantara-śuciḥ. Satya, śaucam* and *śamam,* controlling the mind, and *damam,* controlling the senses. Then *ārjavam,* simplicity; and *titikṣa,* tolerance; *jñānam,* full knowledge; *vijñānam,* practical application of the knowledge; and *āstikyam,* and full faith in God. They are called intelligent class of men.
+
+Now, if you put to this test of intelligent class of men, hardly you will find one in thousand or one in million. Therefore the present social structure is practically without any intelligent class of men, or without any head. At the present moment the whole society is going on by manufacturing some schemes that "This scheme will be successful for the proper execution of our human activities." But another man gives you another plan. Therefore in the political world there are so many "isms," and they are fighting with one another. That means there is no standard intelligence. I differ from you; you differ from me. Now, nobody knows who is intelligent.
+
+So by this analytical study we can understand that at the present moment there is need of intelligent class of men. Not that everyone should be intelligent, but even a small percentage of people, if they become intelligent, with these qualification—truthful, clean, and controlling the mind, controlling the senses, simplicity in behavior, and tolerance, knowledge, application of knowledge in practical life, and full faith in God... That, these nine symptoms, *brahma-karma svabhāva-jam...* *Bg.* 18.42.
+
+**[Peacefulness, self-control, austerity, purity, tolerance, honesty, wisdom, knowledge, and religiousness—these are the qualities by which the brāhmaṇas work.]**
+
+The intelligent class of men is called *brāhmaṇa,* according to Vedic literature. And the next class, the administrative class, is called *kṣatriyas,* and the next class is called the *vaiśyas,* and the general class of men is called the *śūdras.* So even in that, according to Vedic literature, it is said that *kalau śūdra sambhava:* in this age, practically all men are on the standard of *śūdra* category. *Kalau śūdra sambhava.*
+
+So this movement, Kṛṣṇa consciousness movement, is started so that even one is born a *śūdra* by qualification, he can be raised to the standard of the highest intelligent class of men, *brāhmaṇa,* by *pāñcarātrikī-viddhi.* By *pāñcarātrikī-viddhi* it is said that it doesn't matter what a man is, but if he is trained up by *dīkṣā* process, *tathā dīkṣā-vidhānena dvijatvaṁ jāyate nṛṇām...* [*Hari-bhakti-vilāsa* 2.12]
+
+**[By chemical manipulation, bell metal is turned into gold when touched by mercury; similarly, when a person is properly initiated, he can acquire the qualities of a brāhmaṇa.]**
+
+*Dvijatvam* means twice-born. Twice-born, they are, the *brāhmaṇas* are twice-born, the *kṣatriyas* are twice-born and the *vaiśyas* are... That means higher class of men, they are called twice-born. Why twice-born? Because one birth is made by father and mother, and the next birth is made by Vedic knowledge and spiritual master. This is the system.
+
+So nobody is born *brāhmaṇa* or intelligent class of men, but by cultivation of knowledge, by practice, by good association, one can come to the higher standard of life. And when one is on the platform of goodness, then one has to transcend that platform of goodness and come to the platform of pure goodness.
+
+In the material world, even a man is supposed to be very good man, there is possibility of his being affected by the modes of passion and ignorance. But in the transcendental platform, which is called *viśuddha-sattva,* pure goodness, there is no possibility of interaction of these three qualities of material nature, namely goodness, passion and ignorance.
+
+The *Bhagavad-gītā* concludes, therefore,
+
+> *yo mām avyabhicāreṇa
+> bhakti-yogena sevate
+> sa guṇān samatītyaitān
+> brahma-bhūyāya kalpate
+> * [*Bg.* *14.26*]
+
+**[One who engages in full devotional service, who does not fall down in any circumstance, at once transcends the modes of material nature and thus comes to the level of Brahman.]**
+
+If anyone engages himself fully and seriously in the devotional service of the Supreme Lord, Kṛṣṇa... *Yo mām avyabhicāreṇa bhakti-yogena. Avyabhicāriṇi* means without any deviation; firmly fixed up. And *bhakti-yogena,* in devotional service, if one is engaged, *sa,* that person, *guṇān...*
+
+*Guṇān* means these three qualities: passion, ignorance and goodness. *Sa guṇān samatītya. Samatītya* means completely transcending. He transcends completely. *Sa guṇān samatītyaitān brahma-bhūyāya kalpate* *Bg.* 14.26: he becomes situated on the platform of Brahman, and that is the highest perfection of knowledge.
+
+Now we are identifying ourself that "I am part of this material world. I am part of this land" or "that land." "I am Indian because I am born in India." "I am American because I am born in America." Everyone is thinking like that. That means "I am part and parcel of this material world." But by this transcendental elevation to the platform of Brahman, when one becomes self-realized or understands himself as part and parcel of the Supreme Brahman, as it is stated in the *Bhagavad-gītā, mamaivāṁśo jīva-bhūtaḥ* *Bg.* 15.7*,*
+
+**[The living entities in this conditioned world are My eternal, fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind.]**
+
+"All these living entities are My part and parcels," similarly, when the living entities in highest perfection understand that he is part and parcel of Kṛṣṇa, or the Supreme Brahman, his life is on the transcendental platform.
+
+So that transcendental platform is also explained in the *Bhagavad-gītā: brahma-bhūtaḥ prasannātmā na śocati na kāṅkṣati* *Bg.* 18.54*.*
+
+**[And of all yogīs, he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in yoga and is the highest of all.]**
+
+As soon as one is situated in that Brahman platform, he is free from all anxieties immediately. Caitanya Mahāprabhu explains that *brahma-bhūtaḥ* situation, *ceto-darpaṇa-mārjanam* [*Cc. Antya 20.12*]*.*
+
+**[“’Let there be all victory for the chanting of the holy name of Lord Kṛṣṇa, which can cleanse the mirror of the heart and stop the miseries of the blazing fire of material existence. That chanting is the waxing moon that spreads the white lotus of good fortune for all living entities. It is the life and soul of all education. The chanting of the holy name of Kṛṣṇa expands the blissful ocean of transcendental life. It gives a cooling effect to everyone and enables one to taste full nectar at every step.’]**
+
+Immediately. So the *brahma-bhūtaḥ* platform, which we have to ascend after so much qualification, so much understanding, so much practice of *yoga, dhyāna,* meditation, can be achieved in this age by the blessings of Lord Caitanya simply by chanting Hare Kṛṣṇa. Simply by chanting.
+
+Caitanya Mahāprabhu... As I have explained, that one has to lift himself to the platform of *brahma-bhūtaḥ* stage, when one is free from all anxieties. Now, Caitanya Mahāprabhu says that simply by chanting Hare Kṛṣṇa*—paraṁ vijayate śrī-kṛṣṇa-saṅkīrtanam—*what is the gain? The first gain is *ceto-darpaṇa-mārjanam,* cleansing of the heart.
+
+What is that cleansing? That I am thinking at the present moment in my material concept of life that "I am part and parcel of this matter." And when we come to the understanding that "I have nothing to do with this matter; I am accidentally in contact with the matter, but my real position is that I am spirit soul, *brahma-bhūtaḥ...*" *Brahma-bhūtaḥ prasannātmā* [*Bg*. 18.54]*. Ahaṁ brahmāsmi. Ahaṁ brahma.*
+
+**[And of all yogīs, he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in yoga and is the highest of all.]**
+
+Lord Śaṅkarācārya, he preached this philosophy, that... Just try to understand, but don't try to misunderstand. Unfortunately, this understanding that *ahaṁ brahmāsmi,* people are misunderstanding that "I am God." He is not... Nobody can be God. God is supreme. God is great. We are very small. If I am God, if I am great, then how I have come to this position? How I have fallen from my *brahma-bhūtaḥ* stage? That is not..., that is not actually understanding. *Brahma-bhūtaḥ, ahaṁ brahmāsmi,* means "I am part and parcel of the Supreme Brahman."
+
+This is also confirmed in the *Bhagavad-gītā* and every Vedic literature, that the living entities are just like sparks of the fire, just like there is big fire and there are sparks also, small particle of fire. That small particle of fire is also fire, but it is not as big as the big fire. Similarly, in quality we are as good as Brahman, but in quantity we are minute, infinitesimal, and He is infinite. That is the difference.
+
+So this philosophy of *Bhagavad-gītā,* supported by the movement of Lord Caitanya, chanting the holy name of Hare Kṛṣṇa, we are trying to push on in this part of the world, in pursuance of the order of Lord Caitanya, that *pṛthivīte ache yata nagaradi grāma* [*CB Antya-khaṇḍa* 4.126].
+
+**[“In every town and village of the world, the chanting of My name will be heard.]**
+
+So I'll request Indian ladies and gentlemen who are present here to join this movement. This is your duty. Because you are Indian, you have got this duty. If you forget your duty, then you are forgetting your identity. So my special request in this meeting is for the Indian ladies and gentlemen to support this temple, and by supporting this temple, to support this movement. It is good not only for the Indians—for everyone. It is no sectarian religion. It is completely scientific and philosophical. Everyone can accept it—not dogmatically, but with reason and argument.
+
+And you can practically see that all my students, none of them are Indians. Until now, they are all American. They are educated, they are intelligent. They are trying to understand it with all logic and philosophy, and when they understand it nicely, they take to it very seriously. So my request is that this is a very nice movement. Everyone, either Indian, American or Canadian, should take part in it and encourage us.
+
+Thank you very much. [end]

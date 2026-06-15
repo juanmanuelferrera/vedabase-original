@@ -1,0 +1,549 @@
+# Bhagavad-gītā 2.62-72
+
+*Type: Bhagavad-gita Dated: December 19th 1968 Location: Los Angeles Audio file: 681216BG-LOS-ANGELES.mp3*
+
+**Prabhupāda:** [*kīrtana*] [*prema-dhvani*] Thank you very much. [devotees offer obeisances]
+
+[19:15]
+
+Read. Those who have books, open. Where is your son?
+
+**Young woman:** Sleeping.
+
+**Prabhupāda:** That's all right. You can come forward, that girl. Come on. Come forward, yes. Sit down. Hare Kṛṣṇa. Read.
+
+**Tamāla Kṛṣṇa:** 46, chapter [indistinct] "All purposes that are served by the small pond can at once be served by the great reservoirs of water. Similarly, all the purposes of the *Vedas* can be served to one who knows the purpose behind them." *Bg.* 2.46
+
+**[All purposes that are served by the small pond can at once be served by the great reservoirs of water. Similarly, all the purposes of the Vedas can be served to one who knows the purpose behind them.]**
+
+Forty-seven: "You have a right to..."
+
+**Prabhupāda:** Now try to understand this. The long-standing system in India in the villages... India is originally village life. City life very few. Perhaps there was only big city, New Delhi now—in those days, Hastināpura—and next to that was Dvārakā. So very big city, they were only two or three. Mostly people used to live in villages.
+
+Still, ninety percent population of India is in the village. So in the village, the system is they have different kinds of wells. One well is meant for taking bath, one well is meant for washing clothes, one well is meant for taking drinking water, one well is meant for washing dishes. In this way, in the villages there shall be half a dozen wells.
+
+So here the example is given, just like one can take service from a particular type of well for a particular purpose, but if he goes to the river, ever-flowing river, then he can take his bath there, he can wash clothes, he can wash dishes, he can...., everything. All water purposes will be served in one river, because the water is flowing there; there is no contamination. Any water which is always flowing, there cannot be any contamination.
+
+A stagnant water which is not flowing, there may be contamination. Therefore the restriction is that you should take bath in this well, you wash your clothings in this well. So small wells, they are restricted for a certain purpose, but in the river, there is no restriction; everything can be done there.
+
+So *Bhagavad-gītā,* you'll find in the Fifteenth Chapter, the Lord says, *vedaiś ca sarvair aham eva vedyaḥ* [*Bg*. 15.15]:
+
+**[I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness. By all the Vedas am I to be known; indeed I am the compiler of Vedānta, and I am the knower of the Vedas.]**
+
+The purpose of all scriptures and *Vedas* is to know Kṛṣṇa, or God. So... And the *Upaniṣad* says, *yasmin vijñāte sarvam idaṁ vijñātaṁ bhavati* [*Muṇḍaka Upaniṣad* 1.3]*.*
+
+**[If one can understand the Supreme Personality of Godhead, the controller of all controllers, one can understand everything else.]**
+
+If you simply understand the Supreme Absolute, then you understand everything. So this Kṛṣṇa consciousness means it includes everything. The *karmīs'* activities, fruitive actions; the *jñānīs',* philosophers', speculation; the* yogīs'* mystic power; and *bhaktas',* devotees,' worship of the Lord—everything is included.
+
+Just like if you have got a millions of dollar, then ten dollar is there, five dollar is there, twenty dollar is there, everything is there. So if you take to Kṛṣṇa consciousness, then you take all kinds of... All the well, all the purpose of different type of well is served in the river of Kṛṣṇa consciousness. That example is said. It includes everything.
+
+Just like Kṛṣṇa consciousness, we are... Take practical example. We are Kṛṣṇa conscious. Now take any religion and take their highest conclusion—it is there in Kṛṣṇa consciousness. Take for example Buddhism. They say nonviolence. Oh, we are nonviolent. Christianism, love of God. Oh, we are simply meant for loving God.
+
+Christian..., I mean to say, Muhammadan, servant of God, to render service to the Lord. Oh, we are twenty-four hours engaged in the service of the Lord. *Yogīs*—*samādhi,* always in *samādhi,* absorbed in the thought of the Supreme. We are always absorbed in the thought of Kṛṣṇa.
+
+So take any religion, any process, any well. Oh, this river, Kṛṣṇa consciousness, will overflood everyone. There cannot be any comparison. What is there? How much water is there in the well? In the river, unlimited. Thousands of wells can be merged into the river. This example is given. *Yasmin vijñāte sarvam idaṁ vijñātaṁ bhavati.*
+
+If you know Kṛṣṇa, you know everything: you know science, you know mathematics, you know philosophy, you know geography, everything. There is no dearth of knowledge. Don't think that a Kṛṣṇa conscious person, actually he can be a foolish man. No.
+
+That is given guarantee in the *Bhagavad-gītā,*
+
+> teṣām evānukampārtham
+> aham ajñāna-jaṁ tamaḥ
+> nāśayāmy ātma-bhāva-stho
+> jñāna-dīpena bhāsvatā
+
+[*Bg*. *10.11*]
+
+**[Out of compassion for them, I, dwelling in their hearts, destroy with the shining lamp of knowledge the darkness born of ignorance.]**
+
+A devotee who is always in Kṛṣṇa consciousness, for him there is nothing unknown. He knows everything. Just like we can give information of the whole creation—not only of this material world; of the spiritual world. Clear conception: where is where, what is what. Everything. That is Kṛṣṇa consciousness. The more you make progress, then you fully, I mean to say, conversant with all departmental knowledge. Everything is complete.
+
+**Tamāla Kṛṣṇa:** Forty-seven: "You have a right to perform your prescribed duty, but you are not entitled to the fruits of action. Neither consider yourself the cause of action, nor should you be attached to inaction."
+
+Purport: "There are three considerations here: prescribed duties, capricious work and inaction. Prescribed duties mean activities in terms of one's position in the modes of material nature; capricious work means actions without the sanction of authority; and inaction means not performing one's prescribed duty. The Lord advised that Arjuna not be inactive, but that he be active in his duty without being attached to the result. One who is attached to the result of his work is also the cause of the action. Thus he is the enjoyer or sufferer of the result of such actions.
+
+As far as prescribed duties are concerned, they can be fitted into three subdivisions: routine work, emergency work and desired activities. Routine work in terms of the scriptural injunctions is done without desire for results. As one has to do it, obligatory work is action in the modes of goodness. Work with results becomes the cause of bondage, and so such work is not auspicious. Everyone has his proprietary right in regard to his duties, but should act without attachment to the result. Thus such disinterested obligatory duties helps to lead one to the path of liberation.
+
+Arjuna was advised by the Lord to fight as a matter of duty, without attachment to the result. His nonparticipation in the battle is another side of attachment. Such attachment never leads one to the path of salvation. Any attachment, positive or negative, is cause for bondage. Inaction is sinful. Therefore fighting as a matter of duty was the only auspicious path to salvation for Arjuna."
+
+Forty-eight: "Be steadfast in your duty, O Arjuna, and abandon all attachment to success or failure. Such evenness of mind is called *yoga*."
+
+**Prabhupāda:** This is the explanation of *yoga:* evenness of mind. *Yoga-samatvam ucyate* *Bg.* 2.48*.*
+
+**[Be steadfast in yoga, O Arjuna. Perform your duty and abandon all attachment to success or failure. Such evenness of mind is called yoga.]**
+
+If you work for Kṛṣṇa, then there is no cause of lamentation or jubilation. Jubilation is there because you are working for Kṛṣṇa, but there is no cause of lamentation. *Yoga-sthaḥ kuru karmāṇi, yogaḥ karmasu kauśalam* [*Bg*. 2.50]*.*
+
+**[A man engaged in devotional service rids himself of both good and bad actions even in this life. Therefore strive for yoga, O Arjuna, which is the art of all work.]**
+
+That is the secret of activities: how you can very diligently work, at the same time you are not entangled with the action. That is the secret.
+
+Go on.
+
+**Tamāla Kṛṣṇa:** Forty-nine: "O Dhanañjaya, rid yourself of all fruitive activities by devotional service and surrender fully to that consciousness. Those who want to enjoy the fruits of their work are misers."
+
+Fifty: "A man engaged in devotional service rids himself of both good and bad actions."
+
+**Prabhupāda:** Now here it is... One significant word is there. One who wants to enjoy the result of his work, he is miser. He is miser. What is the opposite word of miser? Huh? What is the opposite word?
+
+**Viṣṇujana:** Philanthropic?
+
+**Prabhupāda:** Huh?
+
+**Viṣṇujana:** Philanthropic?
+
+**Prabhupāda:** Liberal. Is it not? So those who are in Kṛṣṇa consciousness, they are liberal. And those who are acting for his own benefit, they are miser. They are *mahātmās* who are working for Kṛṣṇa. That is also stated in the *Bhagavad-gītā, mahātmā. Mahātmānas tu māṁ pārtha daivīṁ prakṛtim āśritāḥ* [*Bg*. 9.13]*.*
+
+[O son of Pṛthā, those who are not deluded, the great souls, are under the protection of the divine nature. They are fully engaged in devotional service because they know Me as the Supreme Personality of Godhead, original and inexhaustible.]
+
+*Sa mahātmā sudurlabhaḥ.*
+
+> bahūnāṁ janmanām ante
+> jñānavān māṁ prapadyate
+> vāsudevaḥ sarvam iti
+> sa mahātmā sudurlabhaḥ
+
+[*Bg*. *7.19*]
+
+**[After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare.]**
+
+After many, many births, when a person is actually wise, *jñānavān,* perfectly in knowledge... What is that symptom of perfect knowledge? *Vāsudevaḥ sarvam iti:* Kṛṣṇa is everything. That is perfection of knowledge. *Vāsudevaḥ sarvam iti, prapadyate mām.*
+
+If I find out somebody supreme, then it is my duty to surrender unto him. Yes. But as soon as I surrender, I become *mahātmā,* liberal, not miser. Miser is thinking on his own account, "How much I'll get? How much in my share?" And liberal means he has no more share; everything Kṛṣṇa's. This is Kṛṣṇa consciousness. *Sa mahātmā sudurlabhaḥ.*
+
+That sort of *mahātmā,* liberal person, is very rare. So Kṛṣṇa consciousness, a person in Kṛṣṇa consciousness, you cannot find many. It is not possible. Everyone is miser. He's always thinking, "How much share is mine? How much I can collect for my personal?" And Kṛṣṇa conscious person is simply trying how much he is giving to Kṛṣṇa. This way. One this way, and one this way. This is miser and liberal.
+
+Everyone, in all principle, they go to God for asking something. That is also described in the *Bhagavad-gītā, ārtaḥ arthārthī jñānī jijñāsu* Bg. 7.16*.*
+
+**[O best among the Bhāratas [Arjuna], four kinds of pious men render devotional service unto Me—the distressed, the desirer of wealth, the inquisitive, and he who is searching for knowledge of the Absolute.]**
+
+Four kinds of people go to God: those who are distressed... Of course, they are pious. Anyone who goes to God, never mind even for asking daily bread, they are pious. But those who are not going to God, they are impious, miscreant.
+
+One who is thinking, "Oh, why shall I go to God for asking bread? I can produce my bread," so that man who is very proud of producing his bread is a nonsense miscreant. And a man who is going to the church, praying, "God give my daily bread," he is pious, but he's not a pure devotee. But there is chance of his becoming pure devotee in future. So *ārtaḥ arthārthī jijñāsu.*
+
+So the Kṛṣṇa consciousness is nothing to ask from Kṛṣṇa, "O Kṛṣṇa, give us our daily bread." No. It is far, far higher. Because he knows that "Kṛṣṇa, I ask or I do not ask, Kṛṣṇa is supplying me bread. He's supplying bread to the beast, birds and animals, insects, and I have sacrificed my life for Kṛṣṇa, and He'll not supply me bread?" Is it very intelligent? No. He knows perfectly well that "Kṛṣṇa is taking care of me. Now it is my duty how much service I can render to Kṛṣṇa. That is my business." That is Kṛṣṇa consciousness.
+
+Kṛṣṇa is not miser. He is supplying millions and millions of living entities bread. So what is the use of asking Him? Without asking Him... The birds, the beasts, they have no church, and pray to God, "Oh, give us our daily bread," but nobody is starving. Nobody is starving. *Eko bahūnāṁ vidadhāti kāmān* [*Kaṭha Upaniṣad* 2.2.13]*.*
+
+**[The Supreme Lord is eternal and the living beings are eternal. The Supreme Lord is cognizant and the living beings are cognizant. The difference is that the Supreme Lord is supplying all the necessities of life for the many other living entities.]**
+
+That one Supreme is supplying everyone's necessities. Either you go to church or don't go to church, Kṛṣṇa is so kind, He's supplying food everyone.
+
+Therefore one who is in the higher standard of consciousness, he will think only that "Kṛṣṇa is supplying so much for us; what I am doing for Kṛṣṇa?" That is Kṛṣṇa consciousness. That is Kṛṣṇa... That is intelligence. That is *mahātmā.* That is liberal. He begins to become a liberal. So long one is not in Kṛṣṇa consciousness, he's miser, simply thinking, "How much bread I have got? How much...?"
+
+Miser means... Another sense of miser is one who cannot utilize money properly. Suppose one has got one million dollar from his father, but he is simply thinking that "I shall see the money and I shall not utilize it. If I go to utilize, I may loss it. Better I will see every day in my treasury box." He's also miser. Similarly, this human form of life, simply used for the sense gratification, is miser. He cannot utilize this form of body for increasing the asset of Kṛṣṇa consciousness. Therefore he is miser. And one who is properly utilizing this valuable life for understanding Kṛṣṇa, he is *brāhmaṇa.*
+
+*Brahma jānāti iti brāhmaṇa. Brāhmaṇa* means one who knows the Supreme Absolute Truth. He is called *brāhmaṇa.* The sacred thread is offered to a person who knows Kṛṣṇa. Otherwise it is not awarded. This is a symbolic representation. "This man has got sacred thread. That means he knows Kṛṣṇa, Brahman, Supreme Brahman." Just like Arjuna, *paraṁ brahma paraṁ dhāma pavitraṁ paramaṁ bhavān* [*Bg*. 10.12]*.*
+
+**[Arjuna said: You are the Supreme Brahman, the ultimate, the supreme abode and purifier, the Absolute Truth and the eternal divine person. You are the primal God, transcendental and original, and You are the unborn and all-pervading beauty. All the great sages such as Nārada, Asita, Devala, and Vyāsa proclaim this of You, and now You Yourself are declaring it to me.]**
+
+In the Tenth Chapter you'll find. Arjuna says that "You are *paraṁ brahma.* Kṛṣṇa, You are *paraṁ brahma.*" Similarly, if anyone knows Brahman, Para-brahman, Kṛṣṇa, he is *brāhmaṇa. Brahma jānāti iti brāhmaṇa.* One who knows the Supreme Brahman, Kṛṣṇa, he is *brāhmaṇa.* Not a person who is born in the family of a *brāhmaṇa.* He may be a *caṇḍāla* by his mentality.
+
+So *Bhāgavata* says, *yasya hi yal lakṣaṇaṁ* [*proktaṁ* *puṁso*] *syat varṇābhivyañjakam* *SB* 7.11.35*.*
+
+**[If one shows the symptoms of being a brāhmaṇa, kṣatriya, vaiśya or śūdra, as described above, even if he has appeared in a different class, he should be accepted according to those symptoms of classification.]**
+
+There are symptoms. You'll find all these in *Bhagavad-gītā:* who is *brāhmaṇa,* who is *kṣatriya,* who is *vaiśya,* who is *śūdra.* By symptoms, by characteristics, you will know. Similarly, if you find a man knows Kṛṣṇa, you must accept him: "He is a *brāhmaṇa.*" He's a *brāhmaṇa. Brahma jānāti iti brāhmaṇa.*
+
+So the miser, the opposite word is liberal or *brāhmaṇa.* Miser knows his self-interest, "How much nice foodstuff I have got to eat daily." That's all. And liberal, "How much *kṛṣṇa-prasāda* I am distributing to the world." Liberal.
+
+A miser is thinking, "How much nice dishes I have eaten today. How much I have satisfied my tongue. Never mind I go to hell; let me eat this, that, so many nice things. Let me satisfy my tongue." "Oh, for your tongue so many animals are being sacrificed, killed?" "Never mind. I want to satisfy my tongue." Miser. But Kṛṣṇa conscious person, he does not satisfy tongue. He wants to satisfy Kṛṣṇa, and whatever remnants, foodstuff, is there, he eats. That's all. He's liberal. These are the distinction between miser and liberal.
+
+Go on.
+
+**Tamāla Kṛṣṇa:** Fifty: "A man engaged in devotional service rids himself of both good and bad action even in this life. Therefore strive for this *yoga,* O Arjuna, which is the art of all work." *Bg.* 2.50
+
+Fifty-one: "The wise, engaged in devotional service, take refuge in the Lord and free themselves from the cycle of birth and death by renouncing the fruits of action in the material world."
+
+**Prabhupāda:** Yes. There is purport?
+
+**Tamāla Kṛṣṇa:** No. There's a little more to that *śloka.*
+
+**Prabhupāda:** All right. Finish.
+
+**Tamāla Kṛṣṇa:** "In this way they can attain that state beyond all miseries."
+
+**Prabhupāda:** Read it again.
+
+**Tamāla Kṛṣṇa:** "The wise, engaged in devotional service, take refuge in the Lord and free themselves from the cycle of birth and death by renouncing the fruits of action in the material world. In this way they can attain that state beyond all miseries."
+
+**Prabhupāda:** How easy it is. You take to Kṛṣṇa consciousness, you act in Kṛṣṇa consciousness, you overcome the cycle of birth and death. And as soon as you overcome the cycle of birth and death, you overcome all miseries. Because birth and death means this material body. The living entity, spirit soul, has no birth and death. And anyone who possesses this material body has to undergo the threefold miseries of the material world.
+
+A similar passage is there in the *Śrīmad-Bhāgavatam,* the other day, as I was speaking to you, *nūnaṁ pramattaḥ kurute vikarma* *SB* 5.5.4*.*
+
+**[When a person considers sense gratification the aim of life, he certainly becomes mad after materialistic living and engages in all kinds of sinful activity. He does not know that due to his past misdeeds he has already received a body which, although temporary, is the cause of his misery. Actually the living entity should not have taken on a material body, but he has been awarded the material body for sense gratification. Therefore I think it not befitting an intelligent man to involve himself again in the activities of sense gratification by which he perpetually gets material bodies one after another.]**
+
+All these people, they are acting in a way which they ought not to have done. *Nūnaṁ pramattaḥ.* But they are acting as madmen. Why? *Yad indriya-prītaya,* for satisfaction of the senses. *Nūnaṁ pramattaḥ kurute vikarma yad indriya-prītaya āpṛṇoti na sādhu manye.* This is not good, because he does not know that he has achieved this material body by working in that way in his previous life. Again he is working in that way. So he'll have to accept again this material body; therefore he's miser. He's not properly utilizing.
+
+Go on.
+
+**Tamāla Kṛṣṇa:** Fifty-two: "When your intelligence has passed out of the dense forest of delusion, you will become indifferent to all that has been heard and all that is to be heard."
+
+Purport: "There are many good examples in the lives of the great devotees of the Lord, of those who became indifferent to the rituals of the *Vedas* simply by devotional service to the Lord. When a person factually understands Kṛṣṇa and one's relationship with Kṛṣṇa, one naturally becomes completely indifferent to the rituals of fruitive activities, even though he may be an experienced *brāhmaṇa.*
+
+"Śrī Mādhavendra Purī, a great devotee and *ācārya* in the line of devotees, says, 'O Lord, in my prayers three times a day, all glory to You. O Bathing, I offer my obeisances unto You. O demigods, O forefathers, please excuse me for my inability to offer you my respects. Now wherever I sit I am able to remember the great descendant of the Yadu dynasty, Kṛṣṇa, the enemy of Kaṁsa, and therefore I can get myself free from all sinful bondage. I think this is sufficient for me.' "
+
+**Prabhupāda:** This is a prayer by Mādhavendra Purī. [chuckling] He says that "I am not going to do anything except serving Kṛṣṇa." This Mādhavendra Purī was the grand–spiritual master of Lord Caitanya. Mādhavendra Purī's disciple, Īśvara Purī, and Īśvara Purī was accepted as spiritual master of Lord Caitanya. Nobody can become a spiritual master of the Supreme Lord, but in order to teach us that even the Lord, He also accepted a spiritual master. That is the system. *Mahājano yena gataḥ sa panthāḥ* [*Cc. Madhya* 17.186]*.*
+
+**[Śrī Caitanya Mahāprabhu continued, ”’Dry arguments are inconclusive. A great personality whose opinion does not differ from others is not considered a great sage. Simply by studying the Vedas, which are variegated, one cannot come to the right path by which religious principles are understood. The solid truth of religious principles is hidden in the heart of an unadulterated, self-realized person. Consequently, as the śāstras confirm, one should accept whatever progressive path the mahājanas advocate.’”]**
+
+Unless He shows us the way, people will say, "Oh, Lord Caitanya did not accept any spiritual master." They can give example. But therefore Kṛṣṇa also accepted spiritual master.
+
+This is the system. One *has* to. *Tad vijñānārthaṁ sa gurum evābhigacchet* [*MU* 1.2.12]*.*
+
+**[To understand these things properly, one must humbly approach, with firewood in hand, a spiritual master who is learned in the *Vedas* and firmly devoted to the Absolute Truth.]**
+
+One must accept a spiritual master if he at all wants to know the spiritual science. Without that, it is not possible. Kṛṣṇa science, Kṛṣṇa consciousness, cannot be developed without the assistance of a bona fide representative of Kṛṣṇa. *Naiṣāṁ matis tāvad urukramāṅghrim* *SB* 7.5.32*.*
+
+**[Unless they smear upon their bodies the dust of the lotus feet of a Vaiṣṇava completely freed from material contamination, persons very much inclined toward materialistic life cannot be attached to the lotus feet of the Lord, who is glorified for His uncommon activities. Only by becoming Kṛṣṇa conscious and taking shelter at the lotus feet of the Lord in this way can one be freed from material contamination.]**
+
+There are very, very, many, many instances.
+
+What is that? Go on.
+
+**Tamāla Kṛṣṇa:** "The Vedic rites and rituals are imperative for the beginning of human life."
+
+**Prabhupāda:** Yes. *Dharmeṇa hīna paśubhiḥ samāna.* Vedic rituals..., every human society has got some scriptures and some ritualistic activities. Never mind whether Hindu, Muslim, Christian, Jews, they have. That is the symptom of human civilization. If you have no religion, if you have no standing, then you are animal. Never mind you accept this religion or that religion, it doesn't matter. But you must have a religion. Otherwise a man is animal.
+
+Go on.
+
+**Tamāla Kṛṣṇa:** "Comprehending all kinds of prayer three times a day, taking a bath early in the morning, offering respects to the forefathers, etc. But when one is fully in Kṛṣṇa consciousness and is engaged in His transcendental loving service, one becomes indifferent to all these regulative principles because he has already attained perfection of life. If one can reach the platform of understanding by service to the Supreme Lord, Kṛṣṇa, he has no longer the duty to execute the different types of penances and sacrifices recommended in revealed scriptures."
+
+**Prabhupāda:** Śrī Caitanya Mahāprabhu, when He started this movement, He preached that simply by chanting you will get all perfection, and the *brāhmaṇas* of Navadvīpa, they rebelled against Him, that "This boy..." He was boy of twenty years or some less than that. "This boy is preaching something against the Vedic religious system." So in other words, they were afraid of their priestly profession. Because if everyone takes to simply chanting Hare Kṛṣṇa and forgets all ritualistic activities, then how they will live? They are priestly class, they were getting some money by their followers.
+
+So... But Caitanya Mahāprabhu had no such desire. He simplified the whole thing. *Harer nāma eva kevalam* [*Cc. Ādi* 17.21]:
+
+**[”’In this Age of Kali there is no other means, no other means, no other means for self-realization than chanting the holy name, chanting the holy name, chanting the holy name of Lord Hari.’]**
+
+Simply chant Hare Kṛṣṇa and you become elevated to the highest platform. Actually it is so. You can see from the behavior of our students. They simply took this chanting; now see their behavior, see their character. It will automatically. That is the result. *Ihā haite sarva-siddhi haibe tomāra* [*Caitanya*-*bhāgavata* *Madhya* 23.78]*.*
+
+**[“By doing so, everyone will attain all perfection. Always chant, there is no other prescription.]**
+
+Lord Caitanya said, "Every kind of..., all kinds of perfection will follow. Simply you begin chanting Hare Kṛṣṇa sincerely."
+
+Yes. Go on.
+
+**Tamāla Kṛṣṇa:** "And similarly, if one has not understood that the purpose of the *Vedas* is to reach Kṛṣṇa and simply engages in the rituals, then he is uselessly wasting time in such engagements. Persons in Kṛṣṇa consciousness transcend the limit of *śabda-brahma.*"
+
+**Prabhupāda:** *Śabda-brahma,* sound vibration. Sound-*brahma;* Brahman in sound. Just like Brahman means all-pervading. All-pervading. So the sound is all-pervading. You'll find sound... Beginning from the sky to the earth, you'll find sound, all-pervading.
+
+In the sky, there is sound. You have got experience. In the fire there is sound, in the air there is sound, in the earth there is sound, [taps] every metal, wood. You take everything, there is sound. So Brahman means all-pervading.
+
+But this transcendental sound... Just like your radio message, television sound, they cannot go beyond this earthly planet, utmost. But there is sound which can penetrate the whole universe and go to the spiritual world. Sound is all-pervading, that is a fact, scientific fact. If that sound is potent, then it can penetrate even this material sky and go to the spiritual sky and go to Kṛṣṇa directly. That sound is Hare Kṛṣṇa.
+
+*Golokera prema-dhana, hari-nāma-saṅkīrtana, rati nā janmilo mora tāya* [*Iṣṭa Deve Vijñapti* 2]*.*
+
+**[The treasure of divine love in Goloka Vṛndāvana has descended as the congregational chanting of Lord Hari's holy names. Why did my attraction for that chanting never come about? Day and night my heart burns in the fire of the poison of worldliness, and I have not accepted the means for relieving it.]**
+
+I've given that... He has translated very nice, Hayagrīva. *Golokera prema-dhana.* This is descended from the spiritual platform, Goloka Vṛndāvana, *hari-nāma-saṅkīrtana,* this Hare Kṛṣṇa. *Rati nā janmilo kene tāya:* "I have no attachment for these things." I have got attachment for radio sound or television sound, so many sound, but I have no attachment for the supreme sound, which is coming down from the Goloka Vṛndāvana.
+
+*Golokera prema-dhana, hari-nāma-saṅkīrtana, rati nā janmilo mora..., biṣāya biṣānale, dibā-niśi hiyā jwale.* "In this material world, I am..., my heart is always burning on account of so many miseries." *Juṛāite nā koinu upāya:* "But I could not find out the way how to get out of it." This sound vibration will get you out from the blazing fire of this material condition. This sound, *harer nāma harer nāma harer nāmaiva kevalam* [*Cc. Ādi* 17.21]*.* Chant always; everything will be perfectly done.
+
+**[”’In this Age of Kali there is no other means, no other means, no other means for self-realization than chanting the holy name, chanting the holy name, chanting the holy name of Lord Hari.’]**
+
+Yes. Go on.
+
+**Tamāla Kṛṣṇa:** Fifty-three. Oh, I'll finish this sentence. "Persons in Kṛṣṇa consciousness transcend the limit of *śabda-brahma* or the range of the *Vedas* and the *Upaniṣads.*"
+
+Fifty-three: "When your mind is no longer disturbed by the flowery language of the *Vedas,* and when it remains fixed in the trance of self-realization, then you will have attained the divine consciousness."
+
+Fifty-four: "Arjuna said, 'What are the symptoms of one whose consciousness is thus merged in transcendence? How does he speak and what is his language? How does he sit and how does he walk?' "
+
+**Prabhupāda:** This is very important thing. One... The symptom, the characteristics, of Kṛṣṇa conscious persons, they are described there, item by item.
+
+**Tamāla Kṛṣṇa:** "The Blessed Lord said, 'O Pārtha, when a man gives up all...' "
+
+**Prabhupāda:** This is the result of talks between Arjuna and Kṛṣṇa. Arjuna is putting in such a way, and Kṛṣṇa is answering. That means it is meant for all conditioned soul. Unless Arjuna would have asked all these question, how we could have received such transcendental message?
+
+Therefore it was necessary that Arjuna would play the part of an ordinary, conditioned soul. Actually he was not. He's simply playing the part in order to eschew transcendental message. Because Kṛṣṇa has spoken, everyone will take it as authorized. So Kṛṣṇa is now speaking.
+
+Go on.
+
+**Tamāla Kṛṣṇa:** "The Blessed Lord said, 'O Pārtha, when a man gives up all varieties of sense desire which arise of invention, and when his mind finds satisfaction in the self alone, then he is said to be in pure transcendental consciousness.' " [*Bg*. 2.55]
+
+**[The Blessed Lord said: O Pārtha, when a man gives up all varieties of sense desire which arise from mental concoction, and when his mind finds satisfaction in the self alone, then he is said to be in pure transcendental consciousness.]**
+
+**Prabhupāda:** Now if one comes to the understanding, enlightenment... This is the beginning of enlightenment—self-understanding, that "I am part and parcel of Kṛṣṇa. I do not belong to this material world. I am not part and parcel of this country, this world or this material atmosphere, but I am part and parcel of the Supreme." This is enlightenment.
+
+Read it again.
+
+**Tamāla Kṛṣṇa:** "The Blessed Lord said, 'O Pārtha, when a man gives up all varieties of sense enjoyment...' "
+
+**Prabhupāda:** Now if you are interested with so many varieties, material varieties... Suppose I belong to this country, then I have got so much duty, so many duties—if I belong to this world, if I belong to the human society, if I belong to this and that. But if you simply belong to Kṛṣṇa, that is enlightenment.
+
+Yes. Go on.
+
+**Tamāla Kṛṣṇa:** "...and when his mind finds satisfaction in the self alone, then he is said to be in pure transcendental consciousness."
+
+Fifty-six: "One who is not disturbed in spite of the threefold miseries, who is not elated when there is happiness and who is free from attachment, fear and anger, is called a sage of steady mind."
+
+**Prabhupāda:** Now, if I do not identify myself with this body, if this knowledge is fixed up, then... The miserable condition of this material world is due to this body, but if I don't identify with this body, then what relationship I have got with all this miseries? This is theoretical knowledge, of course, but one has to practice. But this is a fact.
+
+Just like for the time being, if there is any pain in the body... I feel pain because I am absorbed in this bodily concept of life, but actually, I am not this body. That is a fact. It is due to my absorption of bodily concept of life; therefore I feel. The more I become enlightened, the more I shall not be affected by all these miseries.
+
+Go on.
+
+**Tamāla Kṛṣṇa:** Purport: "The word *muni* means one who can agitate his mind in various ways for mental speculation without coming to a factual conclusion."
+
+**Prabhupāda:** Mental speculators are called *muni.* There are so many *munis.*
+
+Go on.
+
+**Tamāla Kṛṣṇa:** "It is said that every *muni* has a different angle of vision, and unless one *muni* is different in view from another, he cannot be called a *muni* in the strict sense of the term. But a *sthita-dhīr muni,* the kind mentioned herein by the Lord, is different from an ordinary *muni.* The *sthita-dhīr muni* is always in Kṛṣṇa consciousness, for he has finished all his business with creative speculation. He is called *praśānta-niḥśeṣa-mano-rathāntara* [*Stotra-ratna* 43]*,*
+
+**[By serving You constantly, one is freed from all material desires and is completely pacified. When shall I engage as Your permanent eternal servant and always feel joyful to have such a fitting master?]**
+
+Or one who has surpassed the stage of mental speculations and has come to the conclusion that Lord Sir Kṛṣṇa, Vāsudeva, is everything. He is called a *muni* fixed in mind.
+
+"Such a fully Kṛṣṇa conscious person is not at all disturbed by the onslaughts of the threefold miseries—those due to nature, to other beings and to the frailties of one's own body. Such a *muni* accepts all misery as the mercy of the Lord, thinking himself only worthy of more trouble due to his past misdeeds, and sees that his miseries, by the grace of the Lord, are minimized to the lowest.
+
+Similarly, when he is happy, he gives credit to the Lord, thinking himself unworthy of that happiness. He realizes that it is due only to the Lord's grace that he is in such a comfortable condition and thus able to render better service to the Lord. And for the service of the Lord he is always..."
+
+**Prabhupāda:** You mark this. When there is miseries, a Kṛṣṇa conscious person takes the responsibility himself, and when there is happiness, it is due to Kṛṣṇa. But the materialistic person is just the opposite. When he is in miseries, he'll say, "Oh, God has put me into such miseries."
+
+And when he's happiness, his friend says, "Oh, you are now well-to-do," "Yes, you do not know how much I have worked hard." When he's happiness, he takes the credit for himself, and when he's in distress, he gives the discredit to Kṛṣṇa: "Oh, Kṛṣṇa has put me into such miserable..." You see?
+
+But a Kṛṣṇa conscious person, when he's in distress, he'll say, "Yes, due to my misdeeds I should have suffered a hundred times more than this distress, but Kṛṣṇa is so kind, He has given me little. That's all." And when he's happiness, "Oh, it is all given by Kṛṣṇa. Therefore all the opulence should be utilized for Kṛṣṇa's service." This is the difference.
+
+He's asking, Arjuna is asking, what are the symptoms of Kṛṣṇa conscious person. *Sthita-prajña. Sthita-prajña* means steadfast in intelligence. So these are the difference. I have read one speech, Chicago speech by late Vivekananda Swami. He's talking to the audience that "You work so hard, why you give credit to God?" You see? If you find his Chicago speech, you'll see.
+
+Go on.
+
+**Tamāla Kṛṣṇa:** "And for the service of the Lord he is always daring and active and is not influenced by attachment or detachment. Attachment means accepting things for one's own sense gratification, and detachment is the absence of such sensual attachment. But one fixed in Kṛṣṇa consciousness has neither attachment or detachment, because his life is dedicated in the service of the Lord. Consequently, he is not at all angry, even when his attempts are unsuccessful. A Kṛṣṇa conscious person is always steady in his determination."
+
+Fifty-seven: "He who is without affection either for good or evil is firmly fixed in perfect knowledge."
+
+Purport: "There is always some upheaval in the material world which may be good or evil. One who is not agitated by such material upheavals, who is without affection for the good or evil, is to be understood as fixed in Kṛṣṇa consciousness. As long as one is in the material world there is always the possibility of good and evil, because this world is full of duality.
+
+But one who is fixed in Kṛṣṇa consciousness is not affected by good and evil, because he is simply concerned with Kṛṣṇa, who is all-good, absolute. Such consciousness in Kṛṣṇa situates one in the perfect transcendental position called, technically, *samādhi.*"
+
+Fifty-eight: "One who is able to withdraw his senses from sense objects as the tortoise draws his limbs within the shell is to be understood as truly situated in knowledge."
+
+Fifty-nine: "The embodied soul may be restricted from sense enjoyment, though the taste for sense objects remains, but ceasing such engagements by experiencing a higher taste, he is fixed in consciousness."
+
+Sixty: "The senses are so strong and impetuous, O Arjuna, that they forcibly carry away the mind even of the man of discrimination who is endeavoring to control them."
+
+Sixty-one: "One who restrains his senses and fixes his consciousness upon Me is known as a man of steady intelligence."
+
+**Prabhupāda:** This is the conclusion of all symptoms. There are others also?
+
+**Tamāla Kṛṣṇa:** One more.
+
+**Prabhupāda:** Oh, yes. Read it.
+
+**Tamāla Kṛṣṇa:** Sixty-two: "While contemplating the objects of the senses, a person develops attachment for them, and from such attachment lust develops, and from lust anger arises."
+
+Oh [indistinct]. There's a purport.
+
+**Prabhupāda:** Stop there. So if there is any question, you can discuss.
+
+**Bīrabhadra:** If some of these questions might be very stupid, and if any of them are, then just say they're stupid, then I can ask Viṣṇujana. The first one is, if you said, "Give me lots of money for Kṛṣṇa," are you a miser? Is that a stupid question? Is that a stupid question?
+
+**Prabhupāda:** Yes. You first of all know who is miser and who is liberal. Do you know that?
+
+**Bīrabhadra:** Miser is the one who wants all the money for himself and none of the money for Kṛṣṇa.
+
+**Prabhupāda:** Yes. If you want money for Kṛṣṇa, then you are not miser. Just like you are working for this temple, and you ask Tamāla Kṛṣṇa, "Tamāla Kṛṣṇa Prabhu, please give me hundred dollars. I have to spend for this purpose." Is that bad? [laughter]
+
+**Bīrabhadra:** If it's for Kṛṣṇa it's all right.
+
+**Prabhupāda:** Yes.
+
+**Bīrabhadra:** Then my second question was: When Kṛṣṇa came here, did He take a spiritual master too?
+
+**Prabhupāda:** Yes.
+
+**Bīrabhadra:** He did? [indistinct]
+
+**Prabhupāda:** Yes. He not only took, accepted spiritual master, but He took all the risk to go into the jungle to bring wood for the spiritual master, fuel wood. One day it so happened the whole day they were in the forest, and Sudāmā Vipra and He, they both of them were entrapped. There was heavy rain, they could not come out, and the whole night they remained within the forest.
+
+So not that because He was Kṛṣṇa, He did not accept any spiritual master or work for him. He took so much risk. He went to the forest. Otherwise, who will accept spiritual master if He does not show us the way? He comes to teach us. *Yadā yadā hi dharmasya glānir bhavati* [*Bg*. 4.7]:
+
+**[Whenever and wherever there is a decline in religious practice, O descendant of Bharata, and a predominant rise of irreligion—at that time I descend Myself.]**
+
+"When there is discrepancies in the discharge of Vedic rules and, *abhyutthānam adharmasya,* and irreligious principles are too much rampant, then I appear." That is stated. So He teaches us how to acquire knowledge, how to behave. That is Kṛṣṇa, the purpose of His mission. He does not act any way which will be followed by somebody and he'll go to hell. No.
+
+**Bīrabhadra:** My third question is when you had that heart attack, did you feel the pain?
+
+**Prabhupāda:** Yes.
+
+**Bīrabhadra:** You felt the pain?
+
+**Prabhupāda:** Yes. Why shall I not?
+
+**Bīrabhadra:** Well, because you're a pure devotee. I mean, you're pure, so you don't feel pain.
+
+**Prabhupāda:** Huh?
+
+**Bīrabhadra:** I thought you said in *Bhagavad-gītā* a pure devotee wouldn't feel pain, because he's always chanting and Kṛṣṇa will always protect him.
+
+**Prabhupāda:** Yes. Pain was there, but it was not too much. The boys, the disciples, were chanting and I was chanting, so there was not so much. It was not so much painful. That is already explained. When there is distress, the devotee takes it that "I am suffering for my past deeds, but I should have died at this moment, but Kṛṣṇa is simply giving me a little pain, that's all."
+
+Actually, that was the thing. That day I should have... The heart attack was very severe. I should have died. Nobody survives such heart attack. But Kṛṣṇa saved me. That's all.
+
+**Bīrabhadra:** And my fourth and last question is, are you in this world?
+
+**Prabhupāda:** Hmm? [laughter]
+
+**Bīrabhadra:** Are you in this world?
+
+**Prabhupāda:** I am...?
+
+**Bīrabhadra:** Are you in this world? I mean, you, are you...?
+
+**Prabhupāda:** I'm not in this world. Yes.
+
+**Bīrabhadra:** You're not in this world.
+
+**Prabhupāda:** No. [chuckles]
+
+Yes?
+
+**Devotee (1):** I thought I heard it said that you are in this world without being a part of it. You are in the world without being a part of it, like the lotus flower which floats on the water.
+
+**Prabhupāda:** Yes, that is the way. That is the way of understanding. Just like I am in America. It is very easy to understand. I am not adopting any ways of life as the Americans do, so I am not in America. Not only myself; all my disciples who are following me, they are also not Americans.
+
+They're different from American behavior, American ways of life. In that sense I'm not in America, I am in Vṛndāvana, because wherever I go in my apartment or in my temple I live with Kṛṣṇa and Kṛṣṇa consciousness. I don't accept any consciousness of America. And I teach my disciples also to take to that consciousness. So one who takes to that consciousness, he is also not in America, not in this world.
+
+It is... I have given this example in many times. Just like a king and a bug is sitting on the same throne. The bug is biting and the king is ruling. It is not that because the bug is there on the throne, he is king, or the king is sitting with the bug, he is bug. Why this difference? Difference of consciousness. The king knows his duty. He is working in his duty; therefore he's king. And the bug knows his business, to bite; therefore he's bug. But sitting on the same place. But because due to different consciousness, one is bug, one is king.
+
+So if you take to Kṛṣṇa consciousness and if you remain in Kṛṣṇa consciousness, you don't belong to this world. You are no more bug; you are king. Change this consciousness. Even apparently you may seem to remain with the bug, you are no more bug. Is it clear?
+
+**Bīrabhadra:** Yes.
+
+**Devotee (2):** What's the difference...? I've heard terms like "incarnation," "expansion," and "plenary expansion," like Kṛṣṇa incarnates Himself, expands Himself...
+
+**Prabhupāda:** Yes. Just as a person is in family, he is father; in office, he is boss; and in some other place, he's something else. But the same man. But because we are materially conditioned, when I am in the office, I'm not in my home. While I am acting as boss in my office, I cannot act as father with children at home; I am absent. This is due to my material condition. But Kṛṣṇa, being full spiritual, He can remain in His abode, Goloka Vṛndāvana, at the same time, He can remain everywhere. That is expansion.
+
+Just like Kṛṣṇa is living within your heart. *Īśvaraḥ sarva-bhūtānāṁ hṛd-deśe 'rjuna tiṣṭhati* [*Bg*. *18.61*]*.*
+
+**[The Supreme Lord is situated in everyone's heart, O Arjuna, and is directing the wanderings of all living entities, who are seated as on a machine, made of the material energy.]**
+
+The Supreme Lord is staying in everyone's heart. In the *Brahma-saṁhitā* it is stated, *goloka eva nivasaty akhilātma-bhūtaḥ* [*Bs.* 5.37]*.*
+
+**[I worship Govinda, the primeval Lord, residing in His own realm, Goloka, with Rādhā, resembling His own spiritual figure, the embodiment of the ecstatic potency possessed of the sixty-four artistic activities, in the company of Her confidantes [sakhīs], embodiments of the extensions of Her bodily form, permeated and vitalized by His ever-blissful spiritual rasa.]**
+
+This is spiritual position, that even though He is in His abode permanently, He can remain in everyone's heart, all over the creation. Not only in the heart, but within every atom also. This is His expansion, plenary expansion. He expands... We are also His expansion. We living entities, we are also His expansion.
+
+Nothing exists without being Kṛṣṇa. That is explained in the Ninth Chapter, *mayā tatam idaṁ sarvam:* "I have expanded in all different atmosphere." *Sarvam. Mat-sthāni sarva-bhūtāni* [*Bg*. 9.4]:
+
+**[By Me, in My unmanifested form, this entire universe is pervaded. All beings are in Me, but I am not in them.]**
+
+"Everything existing in Me." *Nāhaṁ teṣu avasthitaḥ,* "But I am not there. I am not there." You are existing in Kṛṣṇa, but unless you have Kṛṣṇa consciousness, Kṛṣṇa is not in you. But you are existing in Kṛṣṇa. You cannot exist without Kṛṣṇa. So therefore Kṛṣṇa is everywhere, Kṛṣṇa is in everything. We have to develop that consciousness. That will make me happy.
+
+Yes?
+
+**Jaya-gopāla:** I've often been told that when you become *dvija,* then we would not incur any more karmic reaction by our actions, but also I... I...
+
+**Prabhupāda:** When you become *dvija,* twice-born. Yes. Twice-born means you come to the point of understanding Kṛṣṇa consciousness. When you take your birth from your parents, your consciousness is different. Just like the child, his consciousness is different, but when he's grown-up, if he takes to knowledge, if he tries to understand Kṛṣṇa, his consciousness is different. So when one takes to Kṛṣṇa consciousness, that is the beginning of his second birth, *dvija.*
+
+**Jaya-gopāla:** Well, I've been told then that we can have no more karmic reaction from our actions.
+
+**Prabhupāda:** Yes. If you take to Kṛṣṇa consciousness, then there is no more reaction of your *karma.*
+
+**Jaya-gopāla:** I've also been told that if we are serving someone, we can cause them to return to render us some service.
+
+**Prabhupāda:** Well, you must be in service somebody if it is in Kṛṣṇa consciousness. You cannot create your service independently. Then your service has no reaction. *Yajñārthāt karmaṇo 'nyatra loko 'yaṁ karma-bandhanaḥ* [*Bg*. *3.9*]*.*
+
+**[Work done as a sacrifice for Viṣṇu has to be performed; otherwise work causes bondage in this material world. Therefore, O son of Kuntī, perform your prescribed duties for His satisfaction, and in that way you will always remain free from bondage.]**
+
+Kṛṣṇa consciousness means you have no more any personal activity. Person... Because your person is also related to Kṛṣṇa, how you can act personally? You have to simply act in Kṛṣṇa consciousness. That is dedication. That is surrender. But you can act individually because you are individual soul; you have got that independence. But that will not make him happy. If he acts individually then he will never be happy. But if you act Kṛṣṇa consciously, then you will be happy.
+
+That is the whole instruction of *Bhagavad-gītā.* And the last instruction, *sarva-dharmān parityajya mām ekaṁ śaraṇam...* [*Bg*. 18.66]:
+
+**[Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear.]**
+
+"You give up all other activities, as you have manufactured by different consciousness. Just surrender unto Me." *Ahaṁ tvāṁ sarva-pāpebhyo mokṣayiṣyāmi:* "I shall give you protection from all sinful reaction."
+
+Yes?
+
+**Devotee (2):** Prabhupāda, I have heard from different sources that there is a vibration that is going on in the universe at all times. When they refer to this vibration, are they referring to the *oṁ**,* the sacred *oṁ* vibration?
+
+**Prabhupāda:** First of all, you should stop to receive any knowledge from any other source.
+
+**Devotee (2):** Well, I'm not taking it as knowledge, I'm just...
+
+**Prabhupāda:** No, you said that "I have heard from different sources."
+
+**Devotee (2):** From people on the street that I've talked to.
+
+**Prabhupāda:** Yes. So what is that question?
+
+**Devotee (2):** They talk about the vibration that's going on in the universe at, uh, at all times, and they talk about vibrating with this vibration, and uttering this vibration, and that this is what they're after.
+
+**Prabhupāda:** Yes, any vibration, there is sound. So there is... The sound is heard *oṁkāra.* That is also accepted in the *Bhagavad-gītā.* So there is no objection accepting this...
+
+**Devotee (2):** They talk about this as the ultimate stage of...
+
+**Prabhupāda:** Then you have to accept their statement, not the *Bhagavad-gītā.* Therefore I say that you don't hear from all sources. Because they have said that that is the ultimate, would you accept that?
+
+**Devotee (2):** No, I don't accept. I just want to know if it is the *oṁ* vibration that they're referring to.
+
+**Prabhupāda:** *O**ṁ* vibration is there. *O**ṁ* is also representation of Kṛṣṇa. That is also accepted. But that is not ultimate. Ultimate is Kṛṣṇa. Just like there is some vibration, some source. You go, go, proceed, wherefrom this vibration is coming.
+
+If you find whether here is a horn, from this..., or conchshell, here is vibration. So that unless you reach that point... That is ultimate, not that vibration. Suppose I am vibrating conchshell. There is a huge sound. But is that vibration ultimate? Or the conchshell wherefrom the vibration is emanating, the conchshell is ultimate?
+
+The conchshell sound is going beyond this temple. Does it mean that conchshell sound is bigger than the conchshell? The vibration of the conchshell, apparently it seem to be very great, but does it mean it is great? The great is the conchshell wherefrom the vibration is coming.
+
+That is the ultimate source. So *oṁkāra* vibration is all over the universe. That's all right. But wherefrom it is coming? That you have to search out. When you search out, you'll find Kṛṣṇa. Therefore Kṛṣṇa is the ultimate, not the vibration. Is that clear? Yes.
+
+The same example: The sunshine, all over the universe it is spread. Does it make it is greater than the sun? The sun is the source of the sunshine. So similarly, *brahmaṇo 'ham pratiṣṭha* [*Bg*. 14.27]*,*
+
+**[And I am the basis of the impersonal Brahman, which is the constitutional position of ultimate happiness, and which is immortal, imperishable and eternal.]**
+
+"I am the source of Brahman, the effulgence." That's a fact. Brahman is not greater than Kṛṣṇa. Kṛṣṇa is greater than Brahman. *Mattaḥ parataro nāsti.* You will find in the *Bhagavad-gītā,* "There is no more greater truth than Me." These people, they cannot understand. Less intelligent.
+
+The same example: Because they see that the sunshine is spreading all over the universe, therefore it is more important, greater than the sun planet. But actually it is not. The simple truth. And if you go into the sun planet you will find Vivasvān, the sun-god, is there. The sun planet is so dazzling due to his presence. Similarly, with all impersonal conception, when you reach Kṛṣṇa, then you reach to the goal.
+
+There are so many crude examples. Just like your country, there are so many departmental government businesses going on, this department, that department, all over the country. The whole thing is concentrate in the President. How can I deny it?
+
+The everything is going on on the finger's end of the President. This is a crude example. Similarly, ultimately, unless there is the Supreme Person on the background... That..., Hayagrīva has brought one book, *Evidence of God*. So many scientists they have written in that book, and they have agreed that if God is there, He must be person. He must be person. Is not that, Hayagrīva?
+
+**Hayagrīva:** Yes.
+
+**Prabhupāda:** Yes. Very big, big scientist, astronomers, mathematicians, they have written in that book, *Evidence of Existence of God*. And they have all agreed that if there is God at all, He must be person; He cannot be imperson. And God says personally, "There is no greater truth than Me. Arjuna, there is no greater truth than Me." *Ahaṁ sarvasya prabhavaḥ* *Bg.* 10.8:
+
+**[I am the source of all spiritual and material worlds. Everything emanates from Me. The wise who know this perfectly engage in My devotional service and worship Me with all their hearts.]**
+
+"I am the source of all energy." So God says, Arjuna says, Vyāsa says, Nārada says; why should we hear a street man? [laughter] [Prabhupāda laughs] A man in the street, is he greater than Nārada? Is he greater than Vyāsa? He is greater than Kṛṣṇa? Then why should I hear him? You should ask him, "Please, keep your theory with you. We are greater authority than you." Yes.
+
+Yes?
+
+**Jaya-gopāla:** If we are on the street and collecting money and we are thinking, "Oh, I am a very good collector; I am collecting so nicely, but he still gives [indistinct]..."
+
+**Prabhupāda:** Yes. Yes. You are very good collector for Kṛṣṇa.
+
+**Jaya-gopāla:** But if we...
+
+**Prabhupāda:** Yes, yes, you should be proud, you should feel proud: "I am working for Kṛṣṇa very nicely." [laughter] We don't reject anything. Even this pride, yes. "I am greater servant of Kṛṣṇa. Yes, I am proud." That pride is nice. Yes?
+
+**Guest or devotee:** This might be a stupid question, but, like, uh...
+
+**Prabhupāda:** Well, we are all stupids. [laughter] So questions must be stupid.
+
+**Guest or devotee:** In* yoga* I've heard a lot about...
+
+**Prabhupāda:** Yes, because we are stupids, we must have... Just like he says, "I have heard in the street." You see? We have to hear everything from Kṛṣṇa, then it is perfect.
+
+**Guest or devotee:** Well, uh, sometimes I feel, uh, what they call *cakras.* Like I feel very light over here, and I feel something swirling over here that I think they call the thousand-petalled lotus. Is this just my imagination, or are these things real?
+
+**Prabhupāda:** Yes, it is imagination. If you just open your skull, you will find no lotus there. [laughter] So it is your imagination, that's all. These imaginations are prescribed for persons who are too much absorbed in this bodily concept of life. "Here is a lotus, here is a *manaḥ sarovara,* and here is ocean of bliss, here is... Oh, you have to find out," just to make him concentrate.
+
+Just like a naughty boy, to make him stop nonsense doing, "Please sit down here. Stop this all." Our proposition: "I am not this body. Even there is lotus, I don't care for it." Do you follow? I am not this body. Even there is lotus, what I have to do with this lotus? My first proposition is I am not this body.
+
+**Guest or devotee:** But in, I think, in air, in the *Bhagavad-gītā* somewhere it says that at death you're supposed to, uh, concentrate on the air at the top of the head, which...
+
+**Prabhupāda:** That concentration, in the *Bhagavad-gītā* I do not know where it is, but in the *yoga* system the concentration is to think of Him, Viṣṇu. Not of the lotus in the head. Yes?
+
+**Devotee (4):** Is it true that the Śrī Kṛṣṇa Caitanya *mantra* is more powerful than the *mahā-mantra*?
+
+**Prabhupāda:** Śrī Kṛṣṇa Caitanya and *mahā-mantra* the same. Kṛṣṇa and His name is same. Śrī Kṛṣṇa Caitanya and Hare Kṛṣṇa is the same. *Śrī-kṛṣṇa-caitanya rādhā-kṛṣṇa nahe anya* [*Śrī Guru-paramparā* 6**]***.*
+
+**[Lord Caitanya Mahāprabhu is none other than the combined form of Śrī Śrī Rādhā and Kṛṣṇa.]**
+
+Śrī Kṛṣṇa Caitanya is combination of Hare and Kṛṣṇa. So there is no difference. They are all the same. But because we receive through the mercy of Śrī Kṛṣṇa Caitanya, Śrī Kṛṣṇa Caitanya has appeared to deliver us this *mahā-mantra*; therefore, we first of all pray Śrī Kṛṣṇa Caitanya that "Give us strength to receive Hare Kṛṣṇa."
+
+Therefore we chant *śrī-kṛṣṇa-caitanya prabhu nityānanda...* Just like you offer your respect to the spiritual master first. That does not mean that spiritual master is greater than Kṛṣṇa.
+
+But a spiritual master is mercy manifestation of Kṛṣṇa; therefore *śāstra* says that you should offer him the same respect as to Kṛṣṇa. But by that way, a spiritual master does not think that "I have become greater than Kṛṣṇa." Then he is a Māyāvādī, or equal... [end]

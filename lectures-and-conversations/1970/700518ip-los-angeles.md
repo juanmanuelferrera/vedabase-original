@@ -1,0 +1,87 @@
+# Śrī Īśopaniṣad, Mantra 13–15
+
+*Type: Sri Isopanisad Dated: May 18th 1970 Location: Los Angeles Audio file: 700518IP-LOS-ANGELES.mp3*
+
+**Prabhupāda:** Everyone feeling all right?
+
+**Devotees:** Yes, Prabhupāda. *Jaya!*
+
+**Prabhupāda:** Hare Kṛṣṇa. Page 65, *mantra* 13.
+
+> anyad evāhuḥ sambhavād
+> anyad āhur asambhavāt
+> iti śuśruma dhīrāṇāṁ
+> ye nas tad vicacakṣire
+
+[*Īśo mantra 13*]
+
+Chant again, independently.
+
+Again.
+
+Then *mantra* 14, [page] 72.
+
+> sambhūtiṁ ca vināśaṁ ca
+> yas tad vedobhayaṁ saha
+> vināśena mṛtyuṁ tīrtvā
+> sambhūtyāmṛtam aśnute
+
+[*Īśo mantra 14*]
+
+Fifteen.
+
+> hiraṇmayena pātreṇa
+> satyasyāpihitaṁ mukham
+> tat tvaṁ pūṣann apāvṛṇu
+> satya-dharmāya dṛṣṭaye
+
+[*Īśo mantra 15*]
+
+Chant.
+
+[04:39]
+
+**"O my Lord, sustainer of all that lives, Your real face is covered by Your dazzling effulgence. Kindly remove that covering and exhibit Yourself to Your pure devotee."**
+
+Here is Vedic evidence. This *Īśopaniṣad* is *Veda,* part of the *Yajur Veda.* So here it is said, *hiraṇmayena pātreṇa satyasya apihitam mukham.* Just like the sun. There is, in the sun planet, there is a predominating deity whose name is Vivasvān. We get it, this information, we get from *Bhagavad-gītā. Vivasvān manave prāha.* So in every planet there is a predominating deity. Just like in your this planet, if not deity, somebody like president there is. Formerly, there was one..., only one king on this planet, up to Mahārāja Parīkṣit. One king was... There was only one flag ruling over this whole planet. Similarly, in every planet there is a predominating deity.
+
+So here it is said that the supreme predominating Deity is Kṛṣṇa, in the spiritual..., in the topmost planet in the spiritual sky. This is material sky. In the material sky this is one of the universes. There are millions and trillions of universes. And within this universe there are millions and trillions of planets. *Yasya prabhā prabhavato jagad-aṇḍa-koṭi* [*Bs.* 5.40]*. Jagad-aṇḍa. Jagad-aṇḍa* means universe. *Aṇḍa:* just like an egg, this whole universe. So *koṭi. Koṭi* means hundreds and thousands.
+
+So in the *brahma-jyotir* there are hundreds and thousands of these universes, and within this universe there are hundreds and thousands of planets. Similarly, in the spiritual sky also there are hundreds and thousands, unlimited number of Vaikuṇṭhas, planets. Each Vaikuṇṭha planet is predominated by the Supreme Personality of Godhead. Except in the Kṛṣṇa planet, all other Vaikuṇṭha planets, they are predominated by Nārāyaṇa, and each Nārāyaṇa has got different names, some of which we know. Like just we utter "Pradyumna," "Aniruddha," "Saṅkarṣaṇa..." We have got twenty-four names only, but there are many other. *Advaitam acyutam anādim ananta-rūpam* [*Bs.* 5.33].
+
+So these planets are covered by the *brahma-jyotir* effulgence. So here it is prayed that *hiraṇmayena pātreṇa satyasya apihitam. Apihitam* means covered. Just like you cannot see the sun globe on account of this dazzling sunshine, similarly, the Kṛṣṇa planet... Here you have the picture. From the Kṛṣṇa planet, the effulgence is coming out. So one has to penetrate this effulgence. That is being prayed here. *Hiraṇmayena pātreṇa satyasya.* The real Absolute Truth, Kṛṣṇa, His planet is covered by the Brahman effulgence. So the devotee is praying, "Kindly move it. Wind it so that I can see You really."
+
+So *brahma-jyotir...,* the Māyāvāda philosophers, they do not know that beyond *brahma-jyotir* there is anything. Here is the Vedic evidence, that the *brahma-jyotir* is just like golden effulgence. *Hiraṇmayena pātreṇa.* This is covering the real face of the Supreme Lord. *Tat tvaṁ pūṣann apāvṛṇu.* So, "You are sustainer, You are maintainer. Kindly uncover this so that we can see You actually, Your face."
+
+The idea is that Kṛṣṇa planet or the Vaikuṇṭha planets, they are beyond this Brahman effulgence, and those who are devotees, they are permitted to enter into these spiritual planets. Those who are not devotees, simply *jñānīs* or demons... The *jñānīs* and demons, they are offered the same place. The *jñānīs... Āruhya kṛcchreṇa paraṁ padaṁ tataḥ* *SB* 10.2.32: they practice severe austerities, penances, to enter into the Brahman effulgence. But the demons, simply by becoming enemy of Kṛṣṇa, they immediately get that place. The demons who are killed by Kṛṣṇa, they are immediately transferred to this Brahman effulgence.
+
+So just imagine, the place which is given to the enemies of Kṛṣṇa, is that very covetable thing? Suppose if somebody comes who is my enemy, I give him some place, and somebody, my intimate friend, I give him some other place. Similarly, this Brahman effulgence is not at all covetable. Therefore Prabodhānanda Sarasvatīpāda, he has composed a verse that Brahman... *Kaivalyaṁ narakāyate. Kaivalya* means the Brahman effulgence, simply spiritual light. So *kaivalyaṁ narakāyate.* He says that this Brahman effulgence is just like hell. For a devotee, this Brahman... The *jñānīs* who are trying to merge into the Brahman effulgence, for devotee it is stated as hell. *Kaivalyaṁ narakāyate.*
+
+*Tri-daśa-pūr ākāśa-puṣpāyate* [*Caitanya-candrāmṛta* 5]. And *tri-daśa-pūr* means the planets of the demigods within this material world. People are very much anxious to go into the heavenly planet. That is called *tri-daśa-pūr..., tri-daśa-pūr,* the residential quarters of the demigods. And for a devotee it is understood as will-o'-the-wisp, *ākāśa-puṣpāyate.* And *durdāntendriya-kāla-sarpa-paṭalī protkhāta-daṁṣṭrāyate.* And the *yogīs,* they are trying to control the senses, which are considered as venomonous serpents, the senses. That's a fact.
+
+So the *bhakta* says that "We are not afraid of the senses." Why? *Protkhāta-daṁṣṭrāyate.* Because we have extracted the poison teeth. The senses has got a poison teeth. As soon as you indulge in sense gratification, immediately you become degraded. Immediately. So it is just like a venomonous serpent. As soon as touches you, little biting, finished your life. So it is like that. *Durdānta-kāla-sarpa-paṭalī, indriya.* But these venomous snakes, if their poison teeth is taken away, then it may be fearful for the boys and children, but if an elderly person knows that his poison teeth has been taken away, nobody's afraid of it.
+
+So this Kṛṣṇa consciousness means that we take away the poison teeth of the senses. So that even Kṛṣṇa conscious persons are allowed for sense gratification, the poison teeth is broken. So therefore they are not gliding down to the hellish condition of life.
+
+So in this way, either the *karmīs* or the *jñānīs* or the *yogīs,* they are always... They are, every one of them, trying to elevate. And above them is the devotees. So devotee's place is the highest because by devotion only you can understand what is God. *Bhaktyā mām abhijānāti* [*Bg*. 18.55]*,* Kṛṣṇa says. He does not say that "By *karma* one can understand Me." He does not say that "By *jñāna* one can understand Me." He does not say that "By *yoga* one can understand Me." He clearly says, *bhaktyā mām abhijānāti*: "Simply by devotional service one can understand Me." *Yāvān yaś cāsmi tattvataḥ,* knowing Him as He is. That is *bhakti.*
+
+So except devotional service, there is no possibility of understanding the Absolute Truth. Any other process means it covered. Just like the... You understand the sun planet from here. You are seeing the sun planet, that's a fact, but that does not mean you know what is actually the sun planet is, because you have no access to approach there. You may speculate, that's all.
+
+Speculation means the blind man seeing the elephant. Somebody thought, "Oh, it is just like a pillar." Yes. Big, big legs. Somebody understood the trunk. Somebody understood the ears, elephant. There is a story, some blind men studying the elephant. So they were giving different conclusions. Somebody: "The elephant is just like a pillar." Somebody says, "Elephant is just like big boat." Somebody is... Somebody is... But actually what is elephant, if you have no eyes to see, you can go on speculating. Therefore it is here said that *pūṣann apāvṛṇu:* "Please uncover the covering. Then I can see You."
+
+So that seeing power is the *bhakta's,* the devotee's, because Kṛṣṇa certifies, *bhaktyā mām abhijānāti* *Bg.* 18.55*. Premāñjana-cchurita-bhakti-vilocanena santaḥ sadaiva hṛdayeṣu vilokayanti* [*Bs.* 5.38]. Those who have developed love of Godhead by that ointment, *prema,* ointment... Just like sometimes... In India it is very... They have got some... What is called? *Surma?* Ungent, *surma.* Yes. If you apply that *surma,* your sight becomes bright immediately. So if you smear your eyes with love of Godhead, then you will see God always. *Santaḥ sadaiva hṛdayeṣu vilokayanti.* Yes.
+
+So devotion. So this is the way of understanding God. By service, by enhancing love... This love can be increased only by service. Otherwise there is no possibility. *Sevonmukhe hi jihvādau* [*Brs*. 1.2.234]. The more you increase your service spirit, the more you increase your dormant love of God. And as soon as you are in the perfectional stage of love of God, you see God always, every moment. Twenty-four hours you can see.
+
+Thank you very much.
+
+**Devotees:** All glories to Prabhupāda. [end]
+
+> ataḥ śrī-kṛṣṇa-nāmādi
+> na bhaved grāhyam indriyaiḥ
+> sevonmukhe hi jihvādau
+> svayam eva sphuraty adaḥ
+
+**"No one can understand the transcendental nature of the name, form, quality and pastimes of Śrī Kṛṣṇa through his materially contaminated senses. Only when one becomes spiritually saturated by transcendental service to the Lord are the transcendental name, form, quality and pastimes of the Lord revealed to him."**
+
+(*Bhakti-rasāmṛta-sindhu* 1.2.234)

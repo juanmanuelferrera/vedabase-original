@@ -1,0 +1,162 @@
+# Lecture at Boys' School
+
+*Lecture at Boys&#x27; School Type: Lectures and Addresses Dated: May 12th 1971 Location: Sydney Audio file: 710512LE-SYDNEY.mp3*
+
+[*kīrtana*]
+
+**Prabhupāda:** [*prema-dhvani*] [devotees offer obeisances]
+
+[04:20]
+
+[break] ...very beautiful boys. Why did you not join us, chanting Hare Kṛṣṇa? Is it very difficult? Will you try to chant? Hare. Say "Hare."
+
+**Audience:** Hare.
+
+**Prabhupāda:** All of you chant, Hare.
+
+**Audience:** Hare.
+
+**Prabhupāda:** Kṛṣṇa.
+
+**Audience:** Kṛṣṇa.
+
+[Prabhupāda leads them through whole *mantra*]
+
+**Prabhupāda:** There are three words only: Hare, Kṛṣṇa and Rāma. Is it very difficult?
+
+**Boy: **No.
+
+**Prabhupāda: **Chant again. Hare.
+
+**Audience:** Hare.
+
+**Prabhupāda:** Oh, you cannot chant? You are all dumb? [laughter] How is that? Chant: Hare!
+
+**Audience:** Hare!
+
+**Prabhupāda:** Kṛṣṇa!
+
+**Audience:** Kṛṣṇa!
+
+[Prabhupāda leads them through whole *mantra* again]
+
+**Prabhupāda:** Three words you cannot chant? Oh, that is very astonishing. Hare, Kṛṣṇa and Rāma. Do you know what is God? Can any one of you stand up and tell me what is God? Thank you. Come here. [applause and laughter] Yes. Do you know what is God?
+
+**Boy:** Yes. God is self-realization, and God is found in the unconscious mind.
+
+**Prabhupāda:** Thank you. [applause] No, no. Don't go away. Don't go away. God is... What is that? What did you say, God, God is...?
+
+**Boy:** Self-realization.
+
+**Prabhupāda:** Self-realization. Explain it, what is self-realization.
+
+**Boy:** Tapping the powers of the unconscious mind and seeing yourself...
+
+**Prabhupāda:** Do you think mind is unconscious?
+
+**Boy:** The mind is unconscious.
+
+**Prabhupāda:** You say "unconscious mind." You just now told me "unconscious mind." Is mind unconscious?
+
+**Boy:** Most of it is.
+
+**Prabhupāda:** [aside:] What did he say?
+
+**Bali-mardana:** "Most of it."
+
+**Prabhupāda:** No. Mind is never unconscious. Mind is not for a single moment unconscious. When you sleep, when your bodily limbs are silent, mind works. Therefore you sleep..., you dream. Mind always acts. Mind is never unconscious, even not for a second. Now you have to find out what is consciousness.
+
+**Boy:** I'm not talking about consciousness. The unconsciousness.
+
+**Prabhupāda:** So unless you know consciousness, how do you describe unconsciousness?
+
+**Boy:** The unconscious is the *id.*
+
+**Prabhupāda:** Unconsciousness is the negative side of consciousness. So you should explain what is consciousness. Then we can understand unconsciousness.
+
+**Boy:** I didn't say "unconsciousness." I said "unconscious."
+
+**Prabhupāda:** Yes. Unconscious means the negative of consciousness. So you have to explain what is consciousness. Then we can understand what is unconsciousness.
+
+**Boy:** Consciousness...
+
+**Prabhupāda:** Yes.
+
+**Boy:** ...is when you can think.
+
+**Prabhupāda:** Yes.
+
+**Boy: **Unconsciousness is when you cannot think.
+
+**Prabhupāda:** Yes. There is no such position when you cannot think.
+
+**Boy:** When you are in coma.
+
+**Prabhupāda:** When you... There is no such position as when you cannot think. You have to think something always. That is your position.
+
+**Boy:** You can't think when you're in a coma or when you're dead. [laughter]
+
+**Prabhupāda:** Then you remember when you were dead. Try to understand what is consciousness, then you will understand what is unconsciousness. Consciousness is spread all over the body. Suppose I pinch in any part of your body: you feel some pain, and that is consciousness, any part of your body. But that consciousness is individual. You can feel the pains and pleasure of your body, and your friend also can feel the pains and pleasure of his body. I can feel pains and pleasure of my body.
+
+So this feeling of pains and pleasure is consciousness. But one thing, that I cannot feel pains and pleasure of your body, neither you can feel the pains and pleasure of my body. Therefore your consciousness is individual; my consciousness is individual. But there is another consciousness who can feel the pains and pleasure of your body and who can feel the pains and pleasure of my body. That is stated in the *Bhagavad-gītā.* You have heard the name of *Bhagavad-gītā*? Have you, any of you?
+
+**Boy (2):** Yes.
+
+**Prabhupāda:** Who says yes? Please come here. Thank you. It is very good. At least one of you know what is *Bhagavad-gītā.* Don't go away. Please come here. In the *Bhagavad-gītā* it is said that *kṣetra-kṣetra-jñaḥ* *Bg.* 13.3. Two things are described there. *Kṣetra* means this body, and *kṣetra-jña* means the knower of the body. Just like "I am." I know this is my finger, this is my leg, this is my head. So I am the knower. And this leg is my body. Is that..., is it not stated in the *Bhagavad-gītā*?
+
+**Boy (2):** Well, I don't know the *Bhagavad-gītā* very well.
+
+**Prabhupāda:** All right. *Bhagavad-gītā,* in the Thirteenth Chapter, you will find it is described: the body and the knower of the body. Just like you think over your body, you think over your finger, you will understand that it is your finger. When I think of this finger, I know this is my finger. When I think of this leg, I think that "This is my leg." But I don't think your finger as my finger. This knower is individual, and he knows not everything but something of his body.
+
+I do not know everything of my body. Suppose I am eating, I am eating something. How this eatable substance transforms into vitamin secretion and how it is being distributed all over the body and is supplying the energy? Or take, for example, I have got my hair, but I do not know how many hairs I have got. Is not that a fact? Can you count your hairs, how many hairs you have got? So, so many things we do not know even of our body, although I am claiming that "This is my body."
+
+But there is another living being. He is supreme living being, Kṛṣṇa. He says that "I know everything of everyone's body." *Ksetra-jñaṁ cāpi māṁ viddhi sarva-kṣetreṣu bhārata* *Bg.* 13.3. This is the verse. *Ksetra-jña* means the knower of the body. You are individual knower of your body; I am knower individually of my body. So everyone is knower of his own body. But there is another person, who says that "I know everything of everyone's body." *Kṣetra-jñaṁ cāpi māṁ viddhi sarva-kṣetreṣu bhārata.* He is known as Paramātmā.
+
+The individual knower is known as *ātmā,* or soul, spirit soul.
+
+[aside:] Yes. You can sit down on the bench.
+
+Yes. The individual soul is called *ātmā.* But there is another soul, Supersoul. He is called Paramātmā. Paramātmā is God. Paramātmā is God, but *ātmā* and Paramātmā, both of them are cognizant. Both of them know things. Just like I know something about my body or I know something about this world. Similarly, there is another *ātmā,* supreme *ātmā,* who knows everything of this universe. He is sometimes called God or the Paramātmā or Kṛṣṇa, whatever He..., according to different language.
+
+So that God is also knower; you are also knower. So far knowing capacity is concerned, you are one with God. Because Kṛṣṇa or God is cognizant, you are also cognizant. But you are cognizant with very limited sphere, and He is cognizant unlimitedly everywhere. That is the difference.
+
+So try to understand Paramātmā and *jīvātmā. Jivātmā* is a small, and Paramātmā, or God, is great. That you know, every one of you. You say, "God is great," but how He is great, that we do not know. That we have to know. That is called God consciousness or Kṛṣṇa consciousness. Everyone says, "God is great. God is omnipotent. God is all-powerful," but we do not know how God is great, how God is all-powerful, how God is omnipotent. That we should know. And that is the prerogative, a special power for the human being.
+
+The animals, they cannot know what is God, how God is great, how God is all-powerful. But a human being, if he tries, if he consults books of knowledge just like Bible or *Bhagavad-gītā* or similar other scriptures, he can know what is God, how great He is, how omnipotent He is, and what is our relationship with God.
+
+We should know also our relationship with God. And that is stated in the *Bhagavad-gītā.* Our relationship with God is that we are all part and parcel of God. Just like your father has got many children—you are part of the father's body—similarly, God, the supreme father, He has also many children, and you are one of them; therefore you are part and parcel of God.
+
+That is stated in the *Bhagavad-gītā:*
+
+> mamaivāṁśo jīva-bhūtaḥ
+> jīva-loke sanātanaḥ
+> manaḥ ṣaṣṭhānīndriyāṇi
+> prakṛti-sthāni karṣati
+
+[*Bg. 15.7*]
+
+Kṛṣṇa says that "All these living entities, they are all My parts and parcels, but being influenced by mental concoction, he is very much struggling hard within this material world." *Manaḥ ṣaṣṭhānīndriyāṇi prakṛti-sthāni karṣati.*
+
+This struggle for existence of the human being is due to his lack of knowledge of God. He does not know how God is great. There is no educational institution all over the world to discuss this subject matter, how God is great, how He is omnipotent, how I am servant of God. These things are not discussed. But when we forget our relationship with God, we become subjected to the threefold miseries of material existence.
+
+Take for example... Just like an Australian citizen: he is under the laws of the state of Australia. But if he says, "I don't care for the government," he becomes lawless, and sometimes he becomes criminal, and he is put into the prison life. In the prison also, he has to abide by the laws of the government, and outside the prison also, one has to abide by the laws of the government. But outside the prison the citizens abide by the laws of the government voluntarily, and inside the prison house, the criminals, they defy the laws of government, and therefore they are put into the prison house.
+
+So when we defy the laws of God, we are put into threefold miseries of life. That is called material existence. And when we abide by the laws of God, then we are happy. We..., we should know this fact. And religion means to abide by the laws of God. In the Sanskrit language it is said, *dharmaṁ tu sākṣād bhagavat-praṇītam* *SB* 6.3.19*. Dharma,* or religion, means the codes of God. Code. Just like laws cannot be manufactured by some individual man—laws are enacted by the government—similarly, religious principles, they are made by God.
+
+Godless man does not care for religion, but those who are sober, devotee, godly, they abide by the laws of God, and they are happy. Just like in your Bible there are commandments. So one has to abide by the commandment; then he will be happy. And if one disobeys the commandments of God, he will be unhappy.
+
+So our this Kṛṣṇa consciousness movement is not a sectarian movement. We are trying to bring back people to God consciousness. Because unless one comes to God consciousness, he cannot be happy. That's a fact. He becomes careless, and without abiding by the laws of God, he becomes criminal, subjected to so many troubles inflicted by the laws of nature.
+
+So these things should be taught from the beginning. It is said in the *Śrīmad-Bhāgavatam, kaumāram ācaret prājño dharmān bhāgavatān iha* *SB* 7.6.1. In every schools and colleges these codes of God should be taught to the children. Then in future they will be godly, or God conscious, and their life will be peaceful. And because this is not taught in the schools and colleges... I have got experience by traveling in the Western countries. Especially in America, they have got so many nice arrangements of big, big universities. Unfortunately, nowadays they are producing hippies.
+
+So this is not very encouraging. In every schools and colleges the God consciousness should be taught. Never mind whether through Bible or Koran or through *Bhagavad-gītā.* Everywhere there is knowledge of God consciousness. That teaching should be introduced in every schools and colleges so that children, from the very beginning, may understand what is God, how great he is, how we are related with God, and how we have to live.
+
+So our this movement, Kṛṣṇa consciousness, is teaching that thing. Don't think that it is a sectarian religion. We are making people God conscious. It doesn't matter whichever religion you may belong; we want to see whether you are actually God conscious. Our *Bhāgavata* says, *sa vai puṁsāṁ paro dharmo yato bhaktir adhokṣaje* *SB* 1.2.6*,* that "That religious system is first class wherein God consciousness, or love of God, is taught." That is first-class religion. It doesn't matter whether it is Christian religion or Hindu religion or Muhammadan religion. If by following the principles of religion one becomes advanced in God consciousness, that is first-class religion. That is our motto, and we are preaching all over the world.
+
+So I do not see some of your teachers here. I request them that to make the students from the very beginning God consciousness. Then their future life is very peaceful, prosperous and hopeful.
+
+Thank you very much. Hare Kṛṣṇa. [applause]
+
+[*kīrtana*] [*prema-dhvani*] [break]
+
+**Devotee: **All glories to Śrī Guru and Gauranga. All glories to Śrīla Prabhupāda. *Hari Haribol.* [end]

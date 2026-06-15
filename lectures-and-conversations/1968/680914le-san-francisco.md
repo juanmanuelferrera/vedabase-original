@@ -1,0 +1,27 @@
+# Lecture [partially recorded]
+
+*Type: Lectures and Addresses Dated: September 14th 1968 Location: San Francisco Audio file: 680914LE-SAN-FRANCISCO.mp3*
+
+[poor audio]
+
+**Prabhupāda:** [indistinct] Similarly, eternally[?], either in this stage or the developed process of realization, [indistinct]. So we have to continue this chanting, either imperfectional stage or in the perfectional stage. *Satatām kīrtayanto mām* *Bg.* 9.14*.*
+
+**[Always chanting My glories, endeavoring with great determination, bowing down before Me, these great souls perpetually worship Me with devotion.]**
+
+In the *Bhagavad-gītā* you will see that this *kīrtana* is recommended continuous. *Satatam. Satatam* means always. Either in the imperfect stage or in the perfect stage, the process is one. It is not like the Māyāvādīs, that first of all you chant, and by chanting, when you become yourself God, then there is no chanting—stop.
+
+This is Māyāvāda philosophy. This is not real the position. Chanting will continue even in your highest perfectional stage. But that chanting and at the present moment chanting, there is little difference. Yes.
+
+**Upendra:** Swāmījī, if our *rasa* with Kṛṣṇa is eternal, and we want to have the *rasa* of lover with Kṛṣṇa, is it possible to change? If our *rasa* is like father to son, we can never become lover?
+
+**Prabhupāda:** No. You have got eternal relationship with Kṛṣṇa. That cannot be changed. You're constitutionally in position, in a certain position. Either you have got... But every relationship is spiritual and nice. If you have got that inclination that you want to be Kṛṣṇa's lover, then that means originally you are already in relationship with Kṛṣṇa in that stage. That will be revealed when you are in perfectional devotional stage.
+
+**Devotee:** Swāmījī, the other night you said that one who uses his body for the service of Kṛṣṇa, then his body becomes spiritual. How, then, is the body still subject to change?
+
+**Prabhupāda:** Spiritual in the sense... Just like... This example also I have given several times. Just like you put an iron rod in the fire. When it becomes warmer, warmer, red hot, it is fire. It is no longer iron. Similarly, when you are completely absorbed in Kṛṣṇa consciousness and service, you are completely spiritual. Your material activities... Because your material activities have stopped, therefore your body is no longer material.
+
+Materialism means... Just try to understand. Material..., what is materialism and spiritualism? Materialism means sense gratification, and spiritualism means to love God. That's all. Personal sense gratification. Here the relationship is just like a girl or a boy. The so-called love is temporary. That's all. There is no love.
+
+As soon as there is some discrepancy of sense gratification, oh, there is separation. There is divorce. There is separation. Because the so-called love is based on sense gratification. That is materialism. And when there is no sense gratification, the satisfaction of the lover only, that is spiritualism.
+
+So in Kṛṣṇa consciousness, when your business will be only to satisfy Kṛṣṇa, then you must know that your senses and your body have become spiritualized. Actually, in higher platform, there is nothing material thing. Higher platform means when a person sees nothing but Kṛṣṇa as everything. Even himself, he's also Kṛṣṇa. Everything is for Kṛṣṇa's satisfaction. That is the highest stage of... [break] [end]

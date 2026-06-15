@@ -1,0 +1,152 @@
+# Śrī Caitanya-caritāmṛta, Madhya-līlā 25.36-40
+
+*Type: Caitanya-caritamrta Dated: January 23rd 1967 Location: San Francisco Audio file: 670123CC-SAN-FRANCISCO.mp3*
+
+**Prabhupāda:**
+
+> nātaḥ paraṁ parama sambhavata..., yad bhavataḥ svarūpam
+> ānanda-mātram avikalpam aviddha-varcaḥ
+> paśyāmi viśva-sṛjam ekam aviśvam ātman
+> bhūtendriyātmakam adas ta upāśrito 'smi
+
+[*SB 3.9.3*, *Cc. Madhya 25.36*]
+
+**[O my Lord, I do not see a form superior to Your present form of eternal bliss and knowledge. In Your impersonal Brahman effulgence in the spiritual sky, there is no occasional change and no deterioration of internal potency. I surrender unto You because whereas I am proud of my material body and senses, Your Lordship is the cause of the cosmic manifestation and yet You are untouched by matter.]**
+
+So the Supreme Personality of Godhead, the Absolute Truth, is the ultimate goal. As it is stated in the *Bhagavad-gītā,*
+
+> mattaḥ parataraṁ nānyat
+> asti kiñcid dhanañjaya
+
+*Bg.* 7.7
+
+**[O conqueror of wealth [Arjuna], there is no Truth superior to Me. Everything rests upon Me, as pearls are strung on a thread.]**
+
+In the *Bhagavad-gītā* the Lord says, "There is nothing more superior than Me." So this statement of *Bhagavad-gītā* is also confirmed in the *Śrīmad-Bhāgavatam* by this verse. *Ānanda-mātram.* In the transcendental body of Kṛṣṇa, the Supreme Personality of Godhead, it is simply *ānandam,* blissful. We should note it that this body, our material body, is *nirānandam,* is without *ānanda.*
+
+We are trying to adjust to have *ānanda,* or pleasure, by the limited resources of our senses, but actually, there is no *ānanda,* bliss. It is all miserable. This miserable body is condemned in every, I mean to say, practically, chapter and every *śloka,* every verse. Therefore Ṛṣabhadeva says,
+
+> nūnaṁ pramattaḥ kurute vikarma
+> yad indriya-prītaya āpṛṇoti
+
+*SB* 5.5.4
+
+**[When a person considers sense gratification the aim of life, he certainly becomes mad after materialistic living and engages in all kinds of sinful activity. He does not know that due to his past misdeeds he has already received a body which, although temporary, is the cause of his misery. Actually the living entity should not have taken on a material body, but he has been awarded the material body for sense gratification. Therefore I think it not befitting an intelligent man to involve himself again in the activities of sense gratification by which he perpetually gets material bodies one after another.]**
+
+Generally, people, they are mad, because more or less... Not more or less. Practically every one of us, we are mad. Why mad? *Pramattaḥ,* this very word is used. *Pramattaḥ. Pramattaḥ* means mad. *Nūnaṁ pramattaḥ kurute vikarma.* This material nature's program is such that the conditioned soul who are here, they should live in such a regulated life that ultimately they can go back to home, back to Godhead, because we are sons of the Supreme Lord.
+
+We have come here to enjoy material, *pramattaḥ svārthe,* and we do not know what is our self-interest. We are thinking that "I am this body," and therefore a little sense gratification... Because the body means there are different senses, and if we can gratify the senses we think that we are happy. This is madness.
+
+Ṛṣabhādeva says,
+
+> nūnaṁ pramattaḥ kurute vikarma
+> yad indriya-prītaya āpṛṇoti
+
+*SB* 5.5.4
+
+The only business is sense gratification. He says, *na sādhu manye:* "This is not very good." *Sādhu* means good. Just to distinguish between the body of the Supreme Lord, Kṛṣṇa, and our body, here the body of Kṛṣṇa is said, *ānanda-mātram. Ānanda-mātram,* simply full of..., reservoir of all pleasures. So because we are part and parcel of the Supreme Lord, we have also *ānanda-mātram;* simply blissful body we have got. That is called spiritual body. But because we have become mad, we have identified that this material body as "I am." Therefore... And material body means sense gratification. There is no other alternative. To enjoy this material body means to gratify the senses.
+
+So this sense gratification means, as it is said by Ṛṣabhādeva, *na sādhu manye:* "I do not think it is very good." Why? *Yata asann api kleśada āsa dehaḥ* *SB* 5.5.4*.* If you act irresponsibly, without understanding yourself that you are not this material body but you are spiritual body, then the result will be continuation of this material body, one after another. *Parābhavas tāvad abodha-jātaḥ.* Therefore we are all *abodha-jātaḥ,* born ignorant.
+
+Because from the very beginning of our life we know that "I am this body." There is no education in the material world that we are not this body, we are soul. Although there are books of knowledge, just like *Bhagavad-gītā, Śrīmad-Bhāgavatam,* but nobody is interested. Therefore they are all mad. They are after the will-o'-the wisp, phantasmagoria, a wrong conception of life. Therefore all their activities are to be considered as defeat. *Parābhavas. Parābhavas tāvad abodha-jātaḥ.* They are born ignorant, and they will continue to be ignorant, and they will be defeated by all their activities.
+
+*Parābhavas tāvad abodha-jāto yāvan na jijñāsata ātma-tattvam* *SB* 5.5.5*.*
+
+**[As long as one does not inquire about the spiritual values of life, one is defeated and subjected to miseries arising from ignorance. Be it sinful or pious, karma has its resultant actions. If a person is engaged in any kind of karma, his mind is called karmātmaka, colored with fruitive activity. As long as the mind is impure, consciousness is unclear, and as long as one is absorbed in fruitive activity, he has to accept a material body.]**
+
+So long he is not awakened to inquire "What I am?"—simply under madness he is going after this bodily sense enjoyment, but he does not know that he is not this body, therefore all his activities under this wrong conception of life are to be considered as defeat of his human mission of life. Yes. Just like the Supreme Lord is *ānanda-mātram:* simply *ānanda,* bliss, transcendental bliss. Therefore there is another verse in *Śrīmad-Bhāgavatam: ramante yoginaḥ anante* [*Cc. Madhya* 9.29]*.*
+
+**[The Supreme Absolute Truth is called Rāma because the transcendentalists take pleasure in the unlimited true pleasure of spiritual existence.]**
+
+*Yoginaḥ,* those who are actually *yogī*... *Yogī* means who are trying to reestablish their link with the Absolute Truth. They are called *yogī*. There are different types of *yogī*, but the real purpose of *yoga* means... The ordinary *yoga* means to find out the Supersoul within yourself, because Supersoul is there. *Ramante yoginaḥ anante.* So those who are actually *yogī*, they are not interested in this bodily sense gratification.
+
+They want unlimited blissfulness. *Ramante yoginaḥ anante satyānande. Satyānande* means that is real happiness, which is never to be broken. That is real... Here, whatever we consider happiness—actually, there is no happiness—but whatever we think that "This is happiness," oh, that will also break; it will not continue. That will also break.
+
+So those who are actually *yogī**,* they also, they also enjoy. But how they are enjoying? *Satyānande.* Real happiness, *ramante yoginaḥ anante:* and that is unlimited. There is no end. *Ramante yoginaḥ anante satyānande cid-ātmani. Cid-ātmani* means in full knowledge and eternity. *Cit. Cit* means knowledge. Here we do not know what sort of enjoyment we are doing. *Cid-ātmani.*
+
+> iti rāma padenāsau
+> paraṁ brahmābhidhīyate
+
+[*Cc. Madhya 9.29*]
+
+**[The Supreme Absolute Truth is called Rāma because the transcendentalists take pleasure in the unlimited true pleasure of spiritual existence.]**
+
+This is the meaning of the word Rāma. We chant really Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare / Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. Now, this word *Rāma* is explained in this way: *Rāma* means to enjoy life in the Supreme..., transcendental Supreme Personality of Godhead. That means dovetail your activities with Kṛṣṇa consciousness and you will be able to enjoy life eternally, blissfully. This is the purpose of Kṛṣṇa consciousness.
+
+So in this verse we say..., we see that Brahmājī says, *paśyāmi viśva-sṛjam ekam aviśvam ātman:* "Now, You, the Supreme Personality of Godhead, You are the central point of all manifestation." *Visvātman. Bhūtendriyātma..., bhūtendriyātmakam adas ta upāśrito 'smi* [*Cc. Madhya* 25.36]*.*
+
+**[O my Lord, I do not see a form superior to Your present form of eternal bliss and knowledge. In Your impersonal Brahman effulgence in the spiritual sky, there is no occasional change and no deterioration of internal potency. I surrender unto You because whereas I am proud of my material body and senses, Your Lordship is the cause of the cosmic manifestation and yet You are untouched by matter.]**
+
+*Bhūtendriya.* Now, everything creation... Here we see *bhūta,* there are so many, multi living entities, and they are enjoying what?
+
+Enjoying means with these *indriyaḥ,* the senses. So *bhūtendriyātmakam.* So these senses, this body, the spirit of enjoyment, and the part and parcel of the Supreme Lord, these are the manifestation. So therefore, *upāśrito 'smi.* Brahmā says that "I surrender unto me..., unto You."
+
+> tad vā idaṁ bhuvana-maṅgala maṅgalāya
+> dhyāne sma no daraśitaṁ ta upāsakānām
+
+[*SB 3.9.4*,* Cc. Madhya* *25.38*]
+
+**[This present form, or any transcendental form expanded by the Supreme Personality of Godhead, Śrī Kṛṣṇa, is equally auspicious for all the universes. Since You have manifested this eternal personal form upon whom Your devotees meditate, I therefore offer my respectful obeisances unto You. Those who are destined to be dispatched to the path of hell neglect Your personal form because of speculating on material topics.]**
+
+This is the form which is searched after in meditation by persons who are engaged in *yoga* principle. *Tad vā idaṁ bhuvana-maṅgala maṅgalāya dhyāne. Dhyāne* means in meditation. *Dhyāne sma no daraśitam:* "We have seen this, this form." That means the perfection of meditation is, if one is serious about meditation and if he follows the rules and regulation as it is stated in the *Bhagavad-gītā,* the sitting posture, and the place, and the procedure, and the modes of eating, modes of living...
+
+There are so many things. If somebody follows those regulation and meditates according to that, then ultimately he will see the Supreme Personality of Godhead within himself. Therefore Brahmā said that *dhyāne,* "While I was in meditation I saw this form." He revealed.
+
+This form... How one does see the supreme form of Kṛṣṇa? Simply by the method of service. Otherwise, there is no possibility. *Sevonmukhe hi jihvādau* [*Bhakti-rasāmṛta-sindhu* 1.2.234]*.*
+
+**[No one can understand the transcendental nature of the name, form, quality and pastimes of Śrī Kṛṣṇa through his materially contaminated senses. Only when one becomes spiritually saturated by transcendental service to the Lord are the transcendental name, form, quality and pastimes of the Lord revealed to him.]**
+
+If you be engaged in service attitude, then God will reveal Himself unto you. You cannot see God. You... By your tiny effort you cannot see God. This is not possible. Just like in the midnight, darkness, it is not possible to see the sun. You can see sun when sun itself reveals to you. Sun has got a time, say, 4:30 or 5:00 a.m. in the morning, at once reveals. And as soon as the sun reveals itself, you see yourself, you see the sun and you see the world. And so long you do not see the sun, you are in darkness, the world is in darkness and you cannot see.
+
+Similarly, without seeing the sun, or the Supreme Personality of Godhead, you cannot have actually the perfect knowledge of this manifestation of this world. The *Vedānta-sūtra,* or the *Upaniṣad,* confirms it: *tasmin vijñāte sarvam evaṁ vijñātam bhavanti* [*Muṇḍaka Upaniṣad* 1.3]*.*
+
+**[If one can understand the Supreme Personality of Godhead, the controller of all controllers, one can understand everything else.]**
+
+One who has understood the Absolute Truth, for him, there is nothing unknowable. Everything becomes revealed to him automatically. He hasn't got to exert a different, I mean, separately to understand or to study different departments of knowledge. But if he, by the process, if he is able to see, just like Brahmā has seen, then he knows everything. *Dhyāne sma no daraśitaṁ ta upāsakānām tasmai namo bhagavate 'nuvidhema tubhyam:* "The same Personality of Godhead whom I saw in my meditation, now I see face to face. I offer my respectful obeisances."
+
+Then he quotes another verse from *Bhagavad-gītā,* which is narrated as, *avajānanti māṁ mūḍhā mānuṣīṁ tanum āśritam* *Bg.* 9.11*.* Ass. *Mūḍha.*
+
+**[Fools deride Me when I descend in the human form. They do not know My transcendental nature and My supreme dominion over all that be.]**
+
+So you can translate it, "less intelligent class of men." *Avajānanti mām.* When Kṛṣṇa was present... When Kṛṣṇa was present five thousand years before, not that everyone could see Him, because they had no such eye. Suppose if President Johnson comes before us immediately, but if you have no acquaintance, if you have no information of the feature of President Johnson or something, even if he is present we cannot see. We'll think, "Oh, he may be an ordinary gentleman. As others come, he has also come."
+
+Similarly, unless we know about Kṛṣṇa by the symptoms... There are two mistakes: to understand God as common man or to accept a common man as God. Both things are mistakes. So one has to understand. That understanding is there in the *Bhagavad-gītā.* God Himself, Kṛṣṇa Himself, is describing about Himself, so there is no difficulty. But unfortunately, we have developed such material consciousness that even God describes Himself, even we see God face to face, because we have no Kṛṣṇa consciousness, therefore we cannot see. Therefore we cannot see. So *avajānanti māṁ mūḍha.* Those who cannot see, they are described here as *mūḍha. Mūḍha* means foolish or less intelligent class men.
+
+So *avajānanti māṁ mūḍha mānuṣīṁ tanum āśritam* [*Bg*. 9.11]*.* In the *Bhagavad-gītā,* Lord Kṛṣṇa says, "Because I am here amongst the human being as a man, therefore those who are less intelligent, they are deriding at Me." *Avajānanti māṁ mūḍhā mānuṣīṁ tanum āśritam paraṁ bhāvam ajānanta.* "Why they deride? Because they do not know what is My background." *Paraṁ bhāvam. Paraṁ bhāvam ajānanta, sarva-bhūta-maheśvaram.* "They do not know that I am the Supreme Lord, and situated in everyone's heart. Because they do not know, therefore they deride at Me."
+
+> tān ahaṁ dviṣataḥ krūrān
+> saṁsāreṣu narādhamān
+> kṣipāmy ajasram aśubhān
+> āsurīṣv eva yoniṣu
+
+[*Bg. 16.19, Cc. Madhya* *25.40*]
+
+**[Those who are envious and mischievous, who are the lowest among men, are cast by Me into the ocean of material existence, into various demoniac species of life.]**
+
+So if anyone derides the Supreme Personality of Godhead, then... That means we must have impetus to know. But one who has no such impetus, he is called demon, or *asura.* So *asura,* one who does not want to understand the position of God, for them, Kṛṣṇa says that *tān ahaṁ dviṣataḥ krūrān. Dviṣataḥ* means there is a class who are always envious of God. As soon as you speak something about God, they become fire: "Oh, what is this God nonsense?" So they are *dviṣataḥ. Dviṣataḥ* means envious. They cannot even tolerate the name of God. "Don't talk of God."
+
+So it is not now individually infection; it is now worldwide. And therefore, the result is that the Communist party is developing all over the world due to this godlessness. And we have got experience, personal experience, in our selling our books, the *Śrīmad-Bhāgavatam.* I have seen many gentlemen, as teachers and educationists: as soon as he sees *Śrīmad-Bhāgavatam,* "Oh, it is about God. Oh, we cannot purchase. We cannot purchase. Because it is God, therefore we have no connection with it. We cannot purchase." Such is the mentality.
+
+So that..., by that such mentality, godless mentality, atheistic mentality, the people of the world, they are not happy. But still, they are fools. Because they are fools, they'll not take to God consciousness, or Kṛṣṇa consciousness. But it is our duty to canvass, to request.
+
+Caitanya Mahāprabhu's one disciple, Prabodhānanda Sarasvatī, he took up a nice principle: *dante nidhāya tṛṇakaṁ padayor nipatya kāku-śataṁ kṛtvā cāhaṁ bravīmi* [*Caitanya-candrāmṛta* 8.90].
+
+**[Taking a straw between my teeth and falling at your feet a hundred times, I humbly submit, "O great personality, please give up all mundane knowledge that you have learned and just submit yourself at the lotus feet of Lord Caitanya Mahāprabhu.]**
+
+His principle was that he would go to a gentleman, taking a straw in the mouth. According to Indian system, if you take a straw in your mouth and if you go to see somebody, he'll understand, "He is coming to me with most humble manner," so he'll receive you: "He's surrendered soul." So he will at least say, "Oh, what do you want to say?" So *dante nidhāya.* This is the sign. If you want to go to some big man, and if you take one straw in your mouth, he will accept. He will receive you. That is the system.
+
+So *dante nidhāya tṛṇakam.* So Prabodhānanda Sarasvatī, he says that "I have taken the straw in my mouth." *Dante nidhāya tṛṇakaṁ padayor nipatya.* "And I am falling down at your feet." *Padayor nipatya kāku-śataṁ kṛtvā cāham.* "And I am flattering you in hundreds and thousands ways." Why? Why you are so humble? What is the intention? *Kāku-śataṁ kṛtvā cāhaṁ bravīmi:* "I want to say something. Please hear." "All right. Say it. What is that?"
+
+*He sādhava:* "Oh, you are very learned man and you are very honest man." *He sādhava sakalam eva vihāya dūrād:* "For the time being, so long I shall speak, whatever you have learned, please set aside. Please set aside." *Sakalam eva vihāya dūrād caitanya-candra-caraṇe kurutānurāgam:* "Kindly hear for some time about the topics which Caitanya Mahāprabhu has presented before you."
+
+We are servant of Lord Caitanya. So, in the disciplic succession we are trying to present. The Caitanya Mahāprabhu's topic is *yāre dekha tāre kaha kṛṣṇa-upadeśa* [*Cc.* *Madhya* 7.128]:
+
+**[Instruct everyone to follow the orders of Lord Śrī Kṛṣṇa as they are given in the *Bhagavad-gītā* and *Śrīmad-Bhāgavatam*. In this way become a spiritual master and try to liberate everyone in this land.]**
+
+"Whoever you meet, please try to convince him about Kṛṣṇa consciousness." So in order to preach Kṛṣṇa consciousness, that Prabodhānanda Sarasvatī, he says that "I have taken straw in my mouth, and I am falling down to your feet and I am flattering you in so many ways. Kindly, for the time being, you forget whatever you have learned. Please try to hear about the Kṛṣṇa consciousness."
+
+This should be the preaching method. Because you cannot enforce. You cannot enforce. The atheistic party, the godless civilization is so strong. So you are not weak. You are protected by the Supreme. But our mission is not to fight, but our mission is to convince. So this is the method to be accepted by devotees, those who are in Kṛṣṇa consciousness, to preach the philosophy in the world.
+
+Thank you very much.
+
+**Devotees:** Hare Kṛṣṇa. [end]

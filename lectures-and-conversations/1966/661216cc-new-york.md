@@ -1,0 +1,218 @@
+# Śrī Caitanya-caritāmṛta, Madhya-līlā 20.172–244
+
+*Śrī Caitanya-caritāmṛta,  Madhya-līlā 20.172–244 Type: Caitanya-caritamrta Dated: December 16th 1966 Location: New York Audio file: 661216CC-NEW-YORK.mp3*
+
+**Prabhupāda:**
+
+> ananta prakāśe kṛṣṇera nāhi mūrti-bheda
+> ākāra-varṇa-astra-bhede nāma-vibheda
+
+[*Cc Madhya 20.172*]
+
+**[When the Lord expands Himself in innumerable forms, there is no difference in the forms, but due to different features, bodily colors and weapons, the names are different.]**
+
+So Kṛṣṇa has innumerable expansions. So far potency of the Lord is concerned, in those expansions there is no difference of potency, but the different names are due to difference of manifestation. Sometimes the Lord is manifested with two hands, sometimes with four hands. And [in] the four hands there are different symbolic representation. So due to these different kinds of manifestation there are different names, but so far God's six potential opulences are concerned, they are always present in every form and manifestation. There is no difference.
+
+> vaibhava-prakāśa kṛṣṇera—śrī-balarāma
+> varṇa-mātra-bheda, saba—kṛṣṇera samāna
+
+[*Cc Madhya 20.174*]
+
+**The first manifestation of the vaibhava feature of Kṛṣṇa is Śrī Balarāmajī. Śrī Balarāma and Kṛṣṇa have different bodily colors, but otherwise Śrī Balarāma is equal to Kṛṣṇa in all respects.]**
+
+Balarāma. Balarāma is considered to be the elder brother of Kṛṣṇa. When Kṛṣṇa was present, Balarāma became His elder brother. When Rāma was there, this Balarāma represented Himself as His younger brother, Lakṣmaṇa. So Balarāma is the first manifestation of His personal expansion.
+
+> vaibhava-prakāśa yaiche devakī-tanuja
+> dvibhuja-svarūpa kabhu, kabhu haya caturbhuja
+
+[*Cc Madhya 20.175*]
+
+**[An example of vaibhava-prakāśa is the son of Devakī. He sometimes has two hands and sometimes four hands.]**
+
+*Vaibhava-prakāśa, vaibhava* manifestation... The example is given: just like when Kṛṣṇa was born, He was not exactly born from the womb of His mother. So He appeared first of all with four hands. Then, when the mother prayed... She could know that Kṛṣṇa has come. She prayed for become an ordinary child, and at once He became two-handed. This is called *vaibhava-prakāśa* manifestation.
+
+Ye-kāle dvibhuja, nāma—vaibhava-prakāśa
+
+[*Cc Madhya 20.176*]
+
+**[When the Lord is two-handed He is called *vaibhava-prakāśa*, and when He is four-handed He is called *prābhava-prakāśa*.]**
+
+When He is two-handed, it is called *vaibhava-prakāśa,* and when He is four-handed, it is called *prābhava-vaibhava.*
+
+> svarūpera gopa-veśa, gopa-abhimāna
+> vāsudevera kṣatriya-veśa, 'āmi-kṣatriya'-jñāna
+
+[*Cc Madhya 20.177*]
+
+**[In His original form, the Lord dresses like a cowherd boy and thinks Himself one. When He appears as Vāsudeva, the son of Vasudeva and Devakī, His dress and consciousness are those of a *kṣatriya*, a warrior.]**
+
+In His original personality, sometimes He represents Himself as the son of Nanda Mahārāja, the cowherds man, and sometimes He represents Himself as the son of Vasudeva, the *kṣatriya* king.
+
+> saundarya, aiśvarya, mādhurya, vaidagdhya-vilāsa
+> vrajendra-nandane ihā adhika ullāsa
+
+[*Cc Madhya 20.178*]
+
+**[When one compares the beauty, opulence, sweetness and intellectual pastimes of Vāsudeva, the warrior, to Kṛṣṇa, the cowherd boy, son of Nanda Mahārāja, one sees that Kṛṣṇa’s attributes are more pleasant.]**
+
+*Aiśvarya,* the opulence, six kinds of opulence of which *mādhurya,* I mean to say, His relationship with His devotees in conjugal love... That is very much prominent in Vṛndāvana.
+
+> govindera mādhurī dekhi' vāsudevera kṣobha
+> se mādhuri āsvādite upajaya lobha
+
+[*Cc Madhya 20.179*]
+
+**[Indeed, Vāsudeva is agitated just to see the sweetness of Govinda, and a transcendental greed awakens in Him to enjoy that sweetness.]**
+
+The beauty, beauty of Kṛṣṇa, is fully manifested in Vṛndāvana. A sixteen-years boy and playing flute, the beauty was so attractive that even Vāsudeva Himself became attracted by the beauty.
+
+> sei vapu bhinnābhāse kichu bhinnākāra
+> bhāvāveśākṛti-bhede 'tad-ekātma' nāma tāṅra
+
+[*Cc Madhya 20.183*]
+
+**[When that body is a little differently manifested and its features are a little different in transcendental emotion and form, it is called *tad-ekātma*.]**
+
+Now, that original feature of Lord Kṛṣṇa, when there is a little difference, that is called *tad-ekātma.*
+
+> tad-ekātma-rūpe 'vilāsa', 'svāṁśa'—dui bheda
+> vilāsa, svāṁśera bhede vividha vibheda
+
+[*Cc Madhya 20.184*]
+
+**[In the *tad-ekātma-rūpa* there are pastime expansions [*vilāsa*] and personal expansions [*svāṁśa*]. Consequently there are two divisions. According to pastime and personal expansion, there are various differences.]**
+
+That *tad-ekātma,* almost the same, that is also divided into two: *svāṁśa* and *vibhinnāṁśa.*
+
+> prābhava-vaibhava-bhede vilāsa—dvidhākāra
+> vilāsera vilāsa-bheda—ananta prakāra
+
+[*Cc Madhya 20.185*]
+
+**[Again the *vilāsa* forms are divided into twofold categories—*prābhava* and *vaibhava*. Again the pastimes of these forms are of unlimited variety.]**
+
+> prābhava-vilāsa—vāsudeva, saṅkarṣaṇa
+> pradyumna, aniruddha—mukhya cāri-jana
+
+[*Cc Madhya 20.186*]
+
+**[The chief quadruple expansions are named Vāsudeva, Saṅkarṣaṇa, Pradyumna and Aniruddha. These are called *prābhava-vilāsa*.]**
+
+Now, the *prābhava* manifestation, four, They are called Vāsudeva, Saṅkarṣaṇa, Aniruddha and Pradyumna. These four names are there.
+
+> vraje gope-bhāva rāmera, pure kṣatriya-bhāvana
+> varṇa-veśa-bheda, tāte 'vilāsa' tāṅra nāma
+
+[*Cc Madhya 20.187*]
+
+**[Balarāma, who has the same original form as Kṛṣṇa, is Himself a cowherd boy in Vṛndāvana, and He also considers Himself a member of the kṣatriya race in Dvārakā. Thus His color and dress are different, and He is called a pastime form of Kṛṣṇa.]**
+
+> vaibhava-prakāśe āra prābhava-vilāse
+> eka-i mūrtye baladeva bhāva-bhede bhāse
+
+[*Cc Madhya 20.188*]
+
+**[Śrī Balarāma is a *vaibhava-prakāśa* manifestation of Kṛṣṇa. He is also manifested in the original quadruple expansions of Vāsudeva, Saṅkarṣaṇa, Pradyumna and Aniruddha. These are *prābhava-vilāsa* expansions with different emotions.]**
+
+These are all technical terms. You just go on hearing. But if you want to have them minutely studied, then you have to take a note from this book. And of course, it is necessary, but gradually, when you are conversant with the features of Lord, these things will come automatically. Just let us hear how many forms are there, *prābhava-vilāsa,* and their technical names.
+
+Now, these *prābhava-vilāsa* forms, four-handed, They are also divided into different names according to the different months. Just like your calendar month is called January, February, March, April, May, June, and in India the calendar months are named as Vaiśākha, Jyaiṣṭha, Āṣāḍha, Śrāvaṇa, Bhādra, Āśvina, similarly, according to the Vaiṣṇava *smṛti,* there are the spiritual... These names, calendar months, they are according to the situation of the sun. Similarly, in the spiritual world the twelve months are named according to the different features of the Lord. And they are described here.
+
+> cakrādi-dhāraṇa-bhede nāma-bheda saba
+> vāsudevera mūrti—keśava, nārāyaṇa, mādhava
+
+[*Cc Madhya 20.195*]
+
+**[Out of the *catur-vyūha*, there are three expansions of each and every form, and They are named differently according to the position of the weapons. The Vāsudeva expansions are Keśava, Nārāyaṇa and Mādhava.]**
+
+Vāsudeva... According to the symbolic representation of the hands, They are differently named. Vāsudeva is divided into three: Keśava, Nārāyaṇa, Mādhava. Similarly, Saṅkarṣaṇa is divided into three: Govinda, Viṣṇu, Śrī Madhusūdana. Similarly, Pradyumna is divided into three: Trivikrama, Vāmana, Śrīdhara. Similarly, Aniruddha is divided into three: Hṛṣīkeśa, Padmanābha, Dāmodara. So all these, three into four, twelve, They are named in different months.
+
+*Mārga-śīrṣe keśava. Mārga-śīrṣe* means October. In the month of October He is known as Keśava. Then November—not exactly November—October, November. November, Keśava; and December, Nārāyaṇa. And then January, Mādhava. Then Govinda. Just take twelve names. Govinda, then Viṣṇu, then Madhusūdana, then Trivikrama, then Vāmana, then Śrīdhara, then Hṛṣīkeśa, then Padmanābha, then Dāmodara.
+
+Similarly, we have got *dvādaśa tilaka.* The same names are there. *Lalāṭe keśavaṁ dhyāyet.* When *dvādaśa tilakas* are made, these twelve names are remembered. *Lalāṭe keśavaṁ nārāyaṇam athodare* [*Padma* *Purāṇa, Uttara Khaṇḍa*]:
+
+**[When one marks the forehead with *tilaka,* he must remember Keśava. When one marks the lower abdomen, he must remember Nārāyaṇa. For the chest, one should remember Mādhava, and when marking the hollow of the neck one should remember Govinda. Lord Viṣṇu should be remembered while marking the right side of the belly and Madhusūdana should be remembered when marking the right arm. Trivikrama should be remembered when marking the right shoulder, and Vāmana should be remembered when marking the left side of the belly. Śrīdhara should be remembered while marking the left arm, and Hṛṣīkeśa should be remembered when marking the left shoulder. Padmanābha and Dāmodara should be remembered when marking the back.]**
+
+Nārāyaṇa on the belly. Then *vakṣaḥ-sthale,* then here, then here, then here, then here. In this way, twelve names there are. In this way... Of course, these are very technical. It may be not very interesting, but there are similar names of Kṛṣṇa, in Vāsudeva, Saṅkarṣaṇa—and how they are divided, it is an artistic...
+
+The Vāsudeva name, the four hands... How you can distinguish? The four hands you will find everywhere, and the symbolic representation in the hand, that lotus flower, club, and the wheel and the conchshell. Now, according to the different position of these four symbolic representation, the name are different. Just like Vāsudeva. Vāsudeva, He takes the club in the first right hand and then the conchshell in the second right hand, and then left, the upper left hand, wheel, and the lower left hand, lotus flower. Similarly, Saṅkarṣaṇa, there is change.
+
+So different change... Vāsudeva, Saṅkarṣaṇa, Pradyumna, Aniruddha, Keśava, Nārāyaṇa, Śrī Mādhava, Govinda, Viṣṇu-mūrti, Madhusūdana, Trivikrama, Śrī Vāmana, Śrīdhara, Hṛṣīkeśa, Padmanābha, Dāmodara, Puruṣottama, Śrī Acyuta. Śrī Acyuta [aside:] Acyutānanda. Śrī Acyuta, Śrī Nṛsiṁha, Śrī Janārdana, Śrī Hari, Śrī Kṛṣṇa, Adhokṣaja, Upendra, Hayaśīrṣa. In this way there are different names. How many names we can remember? He is unlimited. His names are unlimited. His expansions are unlimited.
+
+So if you want to take details of His names and expansion, they are mentioned in the scriptures. You can have it. But it is very difficult to remember them. But let us understand that His expansions are unlimited, and unlimited expansions of God, particular names, they are mentioned in the scriptures.
+
+> 'svayam bhagavān', āra 'līlā-purusottama'
+> ei dui nāma dhare vrajendra-nandana
+
+[*Cc Madhya* *20.240*]
+
+**[Kṛṣṇa, the original Supreme Personality of Godhead, indicated as the son of Mahārāja Nanda, has two names. One is *svayaṁ bhagavān*, and the other is *līlā-puruṣottama*.]**
+
+Now Kṛṣṇa's two particular names are Bhagavān, the Supreme Personality of Godhead, and Puruṣottama. In the *Bhagavad-gītā,* in the Eighth Chapter, you will understand what is Puruṣottama. *Puruṣa, puruṣa* means enjoyer; *uttama* means the highest. So Paramātmā and Puruṣottama are discussions are in the Eighth Chapter of the *Bhagavad-gītā.*
+
+> purīra āvaraṇa-rūpe purīra nava-deśe
+> nava-vyūha-rūpe nava-mūrti parakāśe
+
+[*Cc Madhya 20.241*]
+
+**[Lord Kṛṣṇa personally surrounds *Dvārakā-purī* as its protector. In different parts of the city, in nine places, He expands in nine different forms.]**
+
+> prakāśa-vilāsera ei kailuṅ vivaraṇa
+> svāṁśera bheda ebe śuna, sanātana
+
+[*Cc Madhya 20.243*]
+
+**[I have already described the pastime and *prakāśa* forms. Now please hear about the different personal expansions.]**
+
+Now the description of *prakāśa* manifestation and *vilāsa* manifestation are described in this way; now, His plenary portions, how they are named.
+
+> saṅkarṣaṇa, matsyādika—dui bheda tāṅra
+> saṅkarṣaṇa—puruṣāvatāra līlāvatāra āra
+
+[*Cc Madhya 20.244*]
+
+**[The first personal expansion is Saṅkarṣaṇa, and the others are incarnations like the fish incarnation. Saṅkarṣaṇa expands as the Puruṣa, or Viṣṇu. The incarnations such as Matsya, the fish incarnation, appear in different *yugas* for specific pastimes.]**
+
+Saṅkarṣaṇa and in incarnation... Saṅkarṣaṇa, from Saṅkarṣaṇa, there are three expansion. They are called Viṣṇu—Mahā-Viṣṇu..., Mahā-Viṣṇu, Garbhodakaśāyī Viṣṇu and Kṣirodakaśāyī Viṣṇu—from Saṅkarṣaṇa. Mahā-Viṣṇu... When the material world is created, the Mahā-Viṣṇu expansion is there. From Mahā-Viṣṇu, all these universes are generated. And from Mahā-Viṣṇu, Garbhodakaśāyī Viṣṇu is expanded. This Garbhodakaśāyī Viṣṇu enters into each universe, and then, in each universe, from Garbhodakaśāyī Viṣṇu, Kṣīrodakaśāyī Viṣṇu is expanded.
+
+That Kṣīrodakaśāyī Viṣṇu has a planet within this universe near the polestar. And from that Kṣīrodakaśāyī Viṣṇu, the expansion Paramātmā is distributed in everyone's heart.
+
+> īśvaraḥ sarva-bhūtānāṁ
+> hṛd-deśe arjuna tiṣṭhati
+
+[*Bg 18.61*]*.*
+
+**[The Supreme Lord is situated in everyone's heart, O Arjuna, and is directing the wanderings of all living entities, who are seated as on a machine, made of the material energy.]**
+
+That Viṣṇu-mūrti is expanded from the Kṣīrodakaśāyī Viṣṇu within this material world. The Garbhodakaśāyī Viṣṇu is also within this material universe. And both, all these Viṣṇu-mūrti... One Viṣṇu-mūrti is the Mahā-Viṣṇu.
+
+> yasyaika-niśvasita-kālam athāvalambya
+> jīvanti loma-vilajā jagad-aṇḍa-nāthāḥ
+
+[*Bs 5.48*]
+
+**[Brahmā and other lords of the mundane worlds, appearing from the pores of hair of Mahā-Viṣṇu, remain alive as long as the duration of one exhalation of the latter [Mahā-Viṣṇu]. I adore the primeval Lord Govinda of whose subjective personality Mahā-Viṣṇu is the portion of portion.]**
+
+From Maha-Viṣṇu, all these universes are being generated, *niśyaika-kāla,* when He, Mahā-Viṣṇu, is lying in the Causal Ocean, and from His breathing all these universes are being generated. Then they expand, and then Mahā-Viṣṇu enters in each universe as Kṣīrodakaśāyī Viṣṇu.
+
+And Kṣīrodakaśāyī Viṣṇu... These pictures are there. You have seen. And from Kṣīrodakaśāyī Viṣṇu... From Garbhodakaśāyī Viṣṇu there is expansion of Kṣīrodakaśāyī Viṣṇu. From Kṣīrodakaśāyī Viṣṇu the Paramātmā, or the expansion of Supersoul in every living entity, that is expanded.
+
+Then His incarnation. The incarnation, that is also innumerable. Principally the incarnations are *avatāra haya kṛṣṇa ṣaḍ-vidha prakāra.* Generally, the incarnations are divided into six divisions. What are they? *Puruṣāvatāra eka,* first *puruṣāvatāra;* second, *līlāvatāra;* third, *guṇāvatāra;* and fourth, *manvantarāvatāra;* and fifth, *yugāvatāra;* and sixth, *śaktyāveśāvatāra.* This is very important. This is very important. There are incarnations, six kinds of incarnations. This may be noted.
+
+First, *puruṣāvatāra. Purusāvatāra,* these Viṣṇus, three Viṣṇu—Mahā-Viṣṇu, Garbhodakaśāyī Viṣṇu and Kṣīrodakaśāyī Viṣṇu—They are called *puruṣāvatāra.* Then *līlāvatāra.* God sometimes manifests Himself as incarnation of fish, incarnation of hog, incarnation of lion, incarnation of Rāma. Rāma is also *puruṣāvatāra,* yes, I mean to say, *līlāvatāra,* Rāma. So *līlāvatāra,* then *guṇāvatāra. Gunāvatāra* is according to the modes of this material nature there are three *guṇāvatāras.* So first, Himself, Viṣṇu; and the second, Brahmā. Brahmā is also *guṇāvatāra,* incarnation of the quality.
+
+There are three qualities in the material world. Brahmā is the incarnation of the passion, mode of passion, and Viṣṇu is the incarnation of the mode of goodness, and Śiva, Lord Śiva, is the incarnation of the mode of ignorance. So all these three *avatāras,* although they are different manifestation of God, still, in the scriptures this is recommended that if anyone wants to get out of this material entanglement, then he has to worship these incarnation in the modes of goodness, Viṣṇu-avatāra. That is... These things are described in the *Śrīmad-Bhāgavatam.*
+
+So one may say that "If three of them are incarnation of the Supreme, why particularly to Viṣṇu? Why not Lord Śiva and why not Brahmā?" That is described in the *Bhāgavata.* Just like I require fire. So fire, the fire, there is. Just like wood is produced from the earth, and fire is produced from the wood, similarly, although it, production, the source of production, is the same, but still, I require fire. I cannot have fire from the earth or from the, just tree. I have to take the wood, fuel. This example is there. Although the source is one, still, unless I get fire, my purpose will not be served.
+
+Similarly, this Viṣṇu and Śiva and Brahmā... From, I mean to say, gross earth the wood is produced like tree, and from tree we take wood, and from wood there is fire. So when we get fire, then we can serve our purpose. Similarly, although these three *avatāras* are there in the material world, we have to take shelter of the *viṣṇu-avatāra,* goodness. So far spiritual progress, one has to be situated on the modes of goodness first. Therefore we require to be *brāhmaṇas,* qualified *brāhmaṇas,* then Vaiṣṇava. *Brahma jānāti iti brāhmaṇaḥ. Brāhmaṇa* does not mean caste. *Brāhmaṇa* means one who knows the Supreme Brahman. He is *brāhmaṇa.* And then, after being *brāhmaṇa,* then you have to transcend that position and put yourself in the pure goodness.
+
+This material goodness is contaminated. Sometimes goodness is affected by ignorance and passion in the material... So when you are transcendental to this material goodness, that stage is called Vāsudeva stage. And Vāsudeva stage, that means God realization.
+
+So there are three incarnation of *guṇāvatāra,* then *manvantarāvatāra. Manvantarāvatāra* means... There is seventy-one *yugas.* One *yuga* means about 4,300,000's of years. Four million and 300,000's of years, that makes a complete *yuga.* Such seventy-one *yuga* is the duration of a Manu. That is called Man... And each Manu is also an incarnation, *manvantarāvatāra.* And such Manu takes place, fourteen Manus take place, during one day of Brahma. So *manvantarāvatāra.*
+
+Then *yuga avatāra. Yuga avatāra...* In each *yuga,* during that 4,300,000's of years, there are *yuga avatāra.* They are the incarnation. They come. They are called *yugāvatāras.* And then there is *śaktyāveśa-avatāra. Śaktyāveśa-avatāra,* they are counted just like Lord Buddha, Jesus Christ. They are counted amongst the *śaktyāveśāvatāras.* They are also incarnation of *śaktyāveśāvatāra,* powerful. In this way the Supreme Lord manifests all over the universes. There are innumerable universes, and some of His incarnation are working always.
+
+So God's kingdom is not vacant. Just like we are thinking that except this earthly planet, all planets are vacant. Somebody is suggesting it is a lump of ashes. Just like they are thinking of this moon planet—a lump of dust. I cannot, of course, think like that. How dust can remain in a lump and how so much illumination come out from the dust? But they are putting the theory that the moon planet is a lump of dust. So let them do. But from the scripture we understand that there are innumerable universes, and each and every universe is full with innumerable planets, and each planet is full with innumerable living entities, and God's incarnation is working somewhere, other, to reclaim these conditioned souls.
+
+Thank you very much. [end]

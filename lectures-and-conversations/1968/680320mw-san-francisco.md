@@ -1,0 +1,33 @@
+# Morning Walk [partially recorded]
+
+*Type: Walk Dated: March 20th 1968 Location: San Francisco Audio file: 680320MW-SAN-FRANCISCO.mp3*
+
+**Prabhupāda:** The symptoms of Kali-yuga have already begun, five thousand years past. And it will increase.
+
+[break] ...proud of advancing, but these things are important items of human civilization. They are decreasing. [break]
+
+**Mālatī:** ...world now where people, they already, if they live to be twenty-five or thirty, like you explained last night, that was a ripe old age. There are tribes in the world where people live to the age of thirty, and that is considered a ripe age. That is considered old age. And they usually die about thirty or thirty-two.
+
+**Prabhupāda:** Where?
+
+**Mālatī:** In places in South America and Africa. So now, as the age of Kali progresses, will those people just eventually be diminished and wiped out because they already live so short?
+
+**Prabhupāda:** Not wiped out. Nothing is wiped out. The species remain. Maybe somewhere, maybe somewhere else. Nothing is wiped out.
+
+**Mālatī:** They could go to another planet?
+
+**Prabhupāda:** Yes. There are so many places. The living entity is described in the *Bhagavad-gītā* as *sarvaga. Sarvaga* means he can go anywhere within this universe. He can go in the spiritual sky also. *Sarvaga* means including everywhere, if he likes. As I explained yesterday, last night, *yānti deva-vratā devān* [*Bg*. *9.25*]*.*
+
+**[Those who worship the demigods will take birth among the demigods; those who worship ghosts and spirits will take birth among such beings; those who worship ancestors go to the ancestors; and those who worship Me will live with Me.]**
+
+If he likes, he can go to the planets of the demigods, to the Pitrloka, he can remain here, or if he likes, he can go to the planet of Kṛṣṇa. He has got this freedom. Just like there are many government post. You can select any one of them, but you must be qualified for that.
+
+So it is a question of qualification, how you can go to the planets of the demigods, how you can go to the planet of the *pitṛs.* *Ūrdhvaṁ gacchanti sattva-sthā* *Bg.* 14.18*.*
+
+**[Those situated in the mode of goodness gradually go upward to the higher planets; those in the mode of passion live on the earthly planets; and those in the mode of ignorance go down to the hellish worlds.]**
+
+If you develop your modes of goodness, then you go to the..., promoted to the higher planets, because in the higher planets, the third-class living entities are not allowed. Don't you see that in here also, in America, for permanent visa we have to undergo so many formalities? Why? The restriction is there, that American government cannot allow everyone to become a permanent resident here. Restriction.
+
+Similarly, in higher planets, only those who have developed the quality of goodness. The quality of goodness contains those eight principles: religiosity, truthfulness, cleanliness... So *ūrdhvaṁ gacchanti sattva-sthā* *Bg.* 14.18*.*
+
+*Sattva* means quality of goodness. So one has to develop the quality of goodness. Not an upstart, simply having as play sputnik, he wants to go to the Candraloka, moon planet. [chuckles] It is not possible. What quality he has got? He will immediately die. Temperature is so... [end]

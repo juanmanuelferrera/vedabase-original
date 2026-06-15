@@ -1,0 +1,86 @@
+# Śrīmad-Bhāgavatam 11.3.27
+
+*Type: Srimad-Bhagavatam Dated: February 17th 1971 Location: Gorakphur Audio file: 710217SB-GORAKPHUR.mp3*
+
+[*kīrtana*] [*prema-dhvani*] [break]
+
+[06:17]
+
+**Prabhupāda:** ...giving quotations from many scriptures about the supreme position of chanting the holy name of Kṛṣṇa.
+
+> śravaṇaṁ kīrtanaṁ dhyānaṁ
+> harer adbhuta-karmaṇaḥ
+> janma-karma-guṇānāṁ ca
+> tad-arthe 'khila ceṣṭitam
+
+[*SB 11.3.27*]
+
+*Ity ādi asmin eva purāṇe tatra tatra pathyate.* So we were discussing *janma-karma. Janma-karma-guṇānāṁ.* Kṛṣṇa, Kṛṣṇa's name, Kṛṣṇa's quality, Kṛṣṇa's form, Kṛṣṇa's pastimes, Kṛṣṇa's entourage, everything. Kṛṣṇa's abode, everything, they are one Absolute Truth. So any of these items you chant, it is as good as chanting the holy name of Kṛṣṇa. There is no difference. As in the material world there is difference between the object and the name or other paraphernalia, in the spiritual world they are all the same.
+
+That we require to understand. Because we have no spiritual understanding at the present moment, we sometimes are misguided, thinking... Just like Kṛṣṇa's pastimes with the *gopīs,* some rascal people take it as ordinary dealings between young boys and girls. But it is all transcendental. It requires, I mean to say, service attitude to understand this.
+
+The whole thing, the basic principle of understanding Kṛṣṇa consciousness is surrender. Nobody can understand except one who has fully surrendered him... *Sevonmukhe hi jihvādau* [*Cc. Madhya* 17.136]*. Sevonmukhe.* One whose attitude is to serve, not to challenge, to him only, Kṛṣṇa is revealed, not to others. *Ataḥ śrī-kṛṣṇa-nāmādi na bhaved grāhyam indriyaiḥ.*
+
+These blunt senses, material senses, they cannot understand *śrī-kṛṣṇa-nāmādi,* beginning from Kṛṣṇa's name. Because devotional service begins from this chanting of Kṛṣṇa's name. *Śravaṇaṁ kīrtanaṁ viṣṇoḥ* [*SB* 7.5.23]. Not of others, only of Viṣṇu.
+
+People are imitating. There are so many imitation, that "Why Kṛṣṇa's name? Let there be Kālī's name be chanted." And there are so many rascals, they say that "Either you chant Kali's name or Kṛṣṇa's name, it is all the same." The *śāstra* does not say. *Śāstra* says, *harer nāmānukīrtanam.* Here is also Śrīdhara Swami quotes from *śāstras. Harer nāma* [*Cc. Ādi* 17.21]*.*
+
+*Harer adbhuta-karmaṇaḥ. Śravaṇaṁ kīrtanaṁ dhyānaṁ harer adbhuta-karmaṇaḥ.* Kṛṣṇa's activities are all wonderful, *adbhuta.* No human being can do like that. *Harer adbhuta-karmaṇaḥ, karmaṇaḥ, janma-karma-guṇa..., tad-arthe akhila-ceṣṭitam.* At the same time, *tad-arthe,* for Him, for His sake, *akhila-ceṣṭitam...* Any endeavor for pushing on Kṛṣṇa's glories, that is also as good as chanting the holy name.
+
+When you go out for canvassing, for pushing on this movement, people may not see that you are not chanting and dancing. Suppose you are canvassing for a Life Member. That topic is also as good as chanting Hare Kṛṣṇa *mantra* because *akhila-ceṣṭitam.* One life..., one's life must be dedicated simply for Kṛṣṇa's service. So any way you do it, it is all the same. Absolute.
+
+*Tad-arthe akhila-ceṣṭitam, ity ady asmin eva purāṇe tatra tatra pathyate.* Śrīdhara Swami says, "In this *Purāṇa, Mahā Purāṇa, Śrīmad-Bhāgavatam,* these things are explained everywhere, as well as these things are explained in all other Vedic scriptures." *Purāṇantare ca pāpa-kṣayaś ca bhavati smaratāṁ tam ahar-niśam iti.* These are the authoritative statements; therefore, we have to follow the *ācāryas.* They pick up nice, authorized verses from various Vedic literature and present before you.
+
+So Śrīdhara Swami says, *purāṇantare.* In other *Purāṇas* also it is stated, *pāpa-kṣayaś ca bhavati smaratāṁ tam ahar-niśam.* "Anyone who is always absorbed in Your thought, no material scene can effect him, cannot touch him." *Pāpa-kṣayam.* "And if he has any sinful activities in his past life, that also becomes nullified." *Pāpa-kṣayam.*
+
+*Pāpa-kṣayaṁ bhavati smaratāṁ tam ahar-niśam.* "Anyone who is always..." Kṛṣṇa also says in the *Bhagavad-gītā* that *yoginām api sarveṣāṁ mad-gatenāntarātmanā* *Bg.* 6.47: "One who is always thinking of Me within himself, he is first-class *yogī*." *Yoginām api sarveṣāṁ.*
+
+There is no need of speculating. Simply this easy process, thinking of Kṛṣṇa. Kṛṣṇa says in the *Bhagavad-gītā* that *yoginām api sarveṣāṁ.* All big, big *yogīs,* there may be, but a person who is always absorbed in thought of Kṛṣṇa within himself, he is greater than all such big, big *yogīs*. Greater than the greatest *yogī*. *Yoginām api sarveṣāṁ mad-gatenāntarātmanā. Mad-gata* means his life is so molded that he cannot stay without thinking of Kṛṣṇa. *Mad-gata.* He has become absorbed. That is *samādhi. Mad-gatenāntarātmanā śraddhāvān.* Not for artificial makeshow, but *śraddhāvān,* with faith and love. *Śraddhāvān bhajate yo māṁ sa me yuktatamo mataḥ.*
+
+But how this stage can be attained? This stage can be attained only by persons who have developed pure love of God. Just like... It is very easy to understand. If you love somebody, always you'll think of him. In this material world also, the so-called love... If a boy loves some girl or a girl loves some boy, naturally, he thinks always of him. So to think of Kṛṣṇa always means you must develop your love. That is there within yourself, everyone. *Kṛṣṇa-bhakti nitya-siddha.* It is eternally truth, eternally fact, that you have got your love for Kṛṣṇa within yourself. Simply you have to revive.
+
+That process is easy, very easy: the chanting. *Ceto-darpaṇa-mārjanam* [*Cc. Antya 20.12*]. The glittering thing, Kṛṣṇa, or the Kṛṣṇa light... Kṛṣṇa light is within everyone. *Nitya-siddha:* eternally truth. But it is covered by material contamination. And by chanting Hare Kṛṣṇa *mantra* these nasty, dirty things will be cleansed. *Ceto-darpaṇa-mārjanam.* This is polishing.
+
+Polishing. Just like mirror, you polish; you can see very nicely the reflection of your nice face. Similarly, if you polish your heart by chanting, *ceto-darpaṇa-mārjanam,* then immediately you develop your dormant love of Kṛṣṇa. And as soon as the dormant love of Kṛṣṇa is awakened, immediately you are liberated. *Bhava-mahā-dāvāgni-nirvāpaṇam.*
+
+Liberation means to get out of the blazing fire of this material existence. That is liberation. It is simply change of consciousness, that I am thinking in so many ways, my consciousness is polluted in so many ways. But when you think that you are eternal servant of Kṛṣṇa, that is your real, constitutional position, then that very understanding makes you liberated, immediately.
+
+*Pāpa-kṣaya bhavati smaratāṁ tam ahar-niśam. Tatraiva ca tasmāt saṅkīrtanaṁ viṣṇu jagan-maṅgalam amhasā... Jagan-maṅgalam amhasā.* Śrīdhara Swami gives his comment, *tasmāt,* "therefore"; *sankīrtanaṁ viṣṇu jagan-maṅgalam amhasā.* The world [is] full of sinful reactions. If this *saṅkīrtana* movement is pushed on, there will be peace, there will be auspicity all over the world.
+
+It is not that we have introduced a new thing. It is sanctioned by the *śāstras* and accepted by the authorities. *Tasmāt.* He said, *tasmāt sankirtanaṁ viṣṇu.* Viṣṇu, not others. Not for the..., of the demigods. Viṣṇu. *Saṅkīrtanam viṣṇu jagat maṅgalam amhasā, mahatām api kauravya viddhy aikāntika-niṣkṛtam ity ādi.* It is not only good for the sinful persons. Those who are exalted *mahātmās,* they should not think...
+
+They cannot think. If they are actually *mahātmās,* they cannot think like that. But there are so-called *mahātmās,* they think that they are very much exalted; they do not require this *saṅkīrtanam.* Śrīdhara Swami says that this *saṅkīrtana* movement is not only for the persons who are sinful, but *mahatāṁ api. Mahatāṁ api sarveṣāṁ.* That is the verdict of *Śrīmad-Bhāgavatam.* Everyone.
+
+> akāmaḥ sarva-kāmo vā
+> mokṣa-kāma udāra-dhīḥ
+> tīvreṇa bhakti-yogena
+> yajeta puruṣaṁ param
+
+[*SB 2.3.10*]
+
+So Śrīdhara Swami also says, *mahatām api kauravya viddhy aikāntika-niṣkṛtam ity adina. Mahatām.* Śrīdhara Swami says those who are thinking that "I am liberated, I am very exalted," that imagination is also not perfect. Unless one takes to this process of loving platform, there is no possibility of being liberated.
+
+And *Bhagavad-gītā* also confirms this: *bahūnāṁ janmanām ante jñānavān* *Bg.* 7.19*. Jñānavān,* those who are speculating on knowledge, they are called *jñānavān, jñānī.* But that *jñāna,* that speculative knowledge, is not sufficient to give you liberation unless he takes to devotional service. They may think that they have elevated themselves very high by speculating process, but unless they take to this surrendering process to Kṛṣṇa...
+
+> bahūnāṁ janmanām ante
+> jñānavān māṁ prapadyate
+> vāsudevaḥ sarvam iti
+> sa mahātmā su-durlabhaḥ
+
+[*Bg. 7.19*]
+
+This is the verdict of all Vedic scriptures.
+
+*Mahatām api kauravya... Samyak saṅkīrtanād eva mucyate. Samyak saṅkīrtanād eva mucyate.* Simply imagining that "I have become liberated," that will not help. *Māyā* is so strong that simply your concoction that "I have become liberated" will not do. Not fanciful imagination. One has to take actual process for becoming liberated. That is done, here Śrīdhara Swami says, *samyak kīrtanād eva mucyate.* Simply by perfection of *saṅkīrtana,* one can become liberated. Not otherwise.
+
+*Kiṁ ca tathasati kim api manvadaya dvadāsa, dvadāsadini smareyaḥ*[?]. Now argument may be forwarded that if the simple process, simply by chanting the holy name one becomes liberated, then why there are so many *śāstras, manyadini*? Manu is supposed to be the leader of giving all *śāstras.* There are twenty kinds of *śāstras, dharma-śāstra. Vimsati dharma-śāstra.*
+
+So what is the necessity of these *dharma-śāstras*? Actually, there is no need of *dharma-śāstra.* Kṛṣṇa also says the same thing. *Sarva-dharmān parityajya* *Bg.* 18.66. There are twenty kinds of *dharma-śāstras,* religious principles, in the Vedic literature, beginning from Manu, Parāśara, and other great, great sages.
+
+So here, Śrīdhara Swami is also putting forward the argument that if simply by chanting the holy name of God one becomes liberated—even *mahātmās* also, they have to take to this process—then why..., what is the necessity of so many, twenty kinds of *dharma-śāstras*?
+
+So from the conclusion of various Vedic literature, there is no need of studying even the *dharma-śāstras.* Otherwise, why Kṛṣṇa says that *sarva-dharmān parityajya* *Bg.* 18.66?* Sarva-dharmān* means the *dharma-śāstra* also. Simply surrender. But people are so rigid and so, I mean to say, doggish, that they do not like to surrender to Kṛṣṇa. For them only, so many different ways of convincing.
+
+Otherwise, the whole purpose is to induce him to surrender to Kṛṣṇa. *Vedaiś ca sarvair aham eva vidyam* Bg. 15.15*,* Kṛṣṇa says. All these Vedic literatures, they are meant for bending the stubborn atheist to come to this point. Therefore there are so many ways of... Otherwise, the ultimate goal is to surrender to Kṛṣṇa and chant His holy name.
+
+Thank you very much. Hare Kṛṣṇa. [end]

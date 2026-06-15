@@ -1,0 +1,205 @@
+# Śrīmad-Bhāgavatam 7.9.8
+
+*Type: Srimad-Bhagavatam Dated: October 21st 1968 Location: Seattle Audio file: 681021SB-SEATTLE.mp3*
+
+**Prabhupāda:** ...something about the prayers of Prahlāda Mahārāja.
+
+> brahmādayaḥ sura-gaṇā munayo 'tha siddhāḥ
+> sattvaikatāna-gatayo vacasāṁ pravāhaiḥ
+> nārādhituṁ puru-guṇair adhunāpi pipruḥ
+> kiṁ toṣṭum arhati sa me harir ugra-jāteḥ
+
+[*SB* *7.9.8*]
+
+**[Prahlāda Mahārāja prayed: How is it possible for me, who have been born in a family of asuras, to offer suitable prayers to satisfy the Supreme Personality of Godhead? Even until now, all the demigods, headed by Lord Brahmā, and all the saintly persons could not satisfy the Lord by streams of excellent words, although such persons are very qualified, being in the mode of goodness. Then what is to be said of me? I am not at all qualified.]**
+
+When Lord Nṛsiṁha appeared—this is the picture; you have seen—for killing a great demon, Hiraṇyakaśipu. Hiraṇyakaśipu was very powerful materialist, and he did not believe in God. Generally, materialistic person, they have no capacity to understand what is God. That is generally.
+
+In the *Bhagavad-gītā* it is stated that *bhogaiśvarya-prasaktānāṁ tayāpahṛta-cetasām* [*Bg*. 2.44]*.*
+
+**[In the minds of those who are too attached to sense enjoyment and material opulence, and who are bewildered by such things, the resolute determination of devotional service to the Supreme Lord does not take place.]**
+
+*Bhoga. Bhoga* means sense enjoyment, and *aiśvarya* means opulence, wealth, riches. Persons who are very much attached to sense gratification and are hankering after material opulence, *bhogaiśvarya-prasaktānāṁ tayā,* and by such thing, *apahṛta-cetasām... Apahṛta* means bewildered; *cetasām,* consciousness. Such persons, they are thinking that "These things will save me." They never think that they will have to leave all these things behind him, and he has to go alone.
+
+Just like when a bird flies in the sky, so he has to leave behind him everything, and he has to fly in the sky on his own strength. There is no other help. Why bird? Take our these aeroplanes, jet planes. When we get on the sky, leaving this land, no more we can depend on our strength on the land. If the plane is sufficiently strong, then we can fly; otherwise there is danger.
+
+Similarly, persons who are very much materialistic, they are thinking that this opulence, prestige and material strength will save him. No. That is bewilderment. Therefore *Bhagavad-gītā* says, *tayā apahṛta-cetasām. Apahṛta-cetasām* means whose consciousness has become bewildered by these material opulences. Such persons, *tayā apahṛta-cetasām,* for them, *vyavasāyātmikā buddhiḥ samādhau na vidhīyate. Samādhi.*
+
+*Samādhi* means concentration in the *vyavasāyātmikā, niścayātmikā-buddhiḥ. Niścayātmikā* means to be firmly convinced that "Kṛṣṇa consciousness will only save me." This conviction such persons cannot have. Which persons? Those who are too much sensuous and after material opulence.
+
+> bhogaiśvarya-prasaktānāṁ
+> tayāpahṛta-cetasām
+> vyavasāyātmikā buddhiḥ
+> samādhau na vidhīyate
+
+[*Bg*. *2.44*]
+
+**[In the minds of those who are too attached to sense enjoyment and material opulence, and who are bewildered by such things, the resolute determination of devotional service to the Supreme Lord does not take place.]**
+
+And *vyavasāyātmikā buddhiḥ* means confidence. *Vyavasāyātmikā buddhiḥ ekeha kuru-nandana.* In the *Bhagavad-gītā* you will study.
+
+Now we are getting our *Bhagavad-gītā As It Is.* So *Bhagavad-gītā* and the *Teachings of Lord Caitanya* and *Śrīmad-Bhāgavatam.* Whatever we have already printed, you study them very nicely. And I think those who are harassed by this military board, today I have got hint from one paper addressed to Kārttikeya that if one boy is certified that he's engaged in studying spiritual consciousness or theological..., then he's not called. So we shall issue certificate, bona fide. Now I am admitted in your country as bona fide, ordained minister of religion. So I think I can issue certificate. So this will be nice.
+
+So *vyavasāyātmikā buddhiḥ. Vyavasāyātmikā buddhiḥ* means full confidence that Kṛṣṇa consciousness will save me, and nothing [else] can save me. This full confidence. So those who are Kṛṣṇa conscious, their firm faith is in one, Kṛṣṇa.
+
+> vyavasāyātmikā buddhir
+> ekeha kuru-nandana
+> bahu-śākhā hy anantāś ca
+> buddhayo 'vyavasāyinām
+
+[*Bg 2.41*]
+
+**[Those who are on this path are resolute in purpose, and their aim is one. O beloved child of the Kurus, the intelligence of those who are irresolute is many-branched.]**
+
+*Avyavasāyinām* means those who are not in Kṛṣṇa consciousness, those who are flickering, for them, *bahu-śākhā,* many branches. They think that "This will save me," "This will save me," "That will save me," "That will save me." But one who is fully surrendered to Kṛṣṇa, he knows, and it is certain that Kṛṣṇa will save him. That's all.
+
+It's very easy to become Kṛṣṇa conscious. One. God is one. God cannot be many. God is one. Otherwise there is no meaning of God. God means, the definition of God means, that "the person or the entity who has no equal, neither superior." Nobody is superior to Him and nobody is equal to Him. *Asama ūrdhva. Asama* means equal. *Sama* means equal. *Asama.* Everyone is not equal to Him. Nobody is equal to Him and nobody is higher than Him. That is God. So God is one. There cannot be many Gods, but God can expand Himself in many forms. That is different thing.
+
+So this Hiraṇyakaśipu was not confident. He was thinking..., he was materially puffed up, and he was thinking that he is God. When his son... Fortunately, his son, Prahlāda Mahārāja, he was a great devotee, Vaiṣṇava, by the grace of Nārada, and he was always in Kṛṣṇa consciousness. When he was in school, five-years-old boy, and naturally, the school was an atheistic school... Just like nowadays, in no school, colleges they encourage any theological study. What is called? Secular state. So gradually we are becoming like that Hiraṇyakaśipu. But Hiraṇyakaśipu tried, Rāvaṇa tried, Kaṁsa tried to exist without God, but they did not exist.
+
+So nobody can exist. So this Hiraṇyakaśipu tried to protect himself by so many material ways, but when he was too much against his innocent devotee son, then Kṛṣṇa appeared as Nṛsiṁha-deva, and He was very fearful—so much fearful that all the demigods came to pacify Him, but He was groaning in anger. So there is anger in God also. Somebody says that "Why God should be angry?" No, God, there is anger.
+
+Everything is there in God. Otherwise, where anger comes from? He is the source of everything, but He is absolute. His anger is also as good as His mercy. That is the difference. When we become angry, there is no mercy. Mercy is far away from it. But God, Kṛṣṇa, because He is absolute, either He is angry or He is merciful, He's the same.
+
+The word "God is good"—He's good when He's angry and He's good when He's merciful. That is the difference. In the material contaminated state, not only God, even God's devotee, they also acquire the same quality. Sometimes we see that saintly persons like Nārada, Śiva, they also become angry and curse somebody, but that curse become benediction. So that is the absolute stage.
+
+So Hiraṇyakaśipu was killed by Nṛsiṁha-deva, and everyone was afraid, very fearful, that "God's appeared in such a fearful appearance, half-lion shape and half-man's shape with four hands." So nobody could pacify Him. Everyone was afraid. Then Prahlāda Mahārāja was—he was only five-years-old boy—he was requested that "Nṛsiṁha-deva has appeared for your protection especially. So you try to pacify the Lord."
+
+So the boy was very jolly. So he was praying this way, that *brahmādayaḥ sura-gaṇa munayo 'tha siddhāḥ:* "I see here there are so many great personalities just like Brahmā, Śiva and Indra, Candra, all great demigods." *Brahmādayaḥ sura-gaṇāḥ. Sura-gaṇāḥ* means demigods; and *munayo,* "great saintly persons, sages, all of them are here." And *siddhya. Siddhya.* *Siddhya* means the residents of the Siddhaloka.
+
+There is a planet within this universe which is called Siddhaloka. Siddhaloka means there the inhabitants are so highly elevated. They are also materialist. They are also not spiritualists. But still, they are materially so advanced that the description is... Here, in this planet, we are flying in the sky in the outer space with some machine, but there, in that planet, Siddhaloka, the persons are so elevated, either you call materially or spiritually... Actually, they are materially. These are material, that they can fly in the sky without any machine. Without any machine. Wherever they like, they can go. Whatever they want, immediately... That is *yoga-siddhi.*
+
+You have heard of so much advertisement of *yoga.* Actually, when one becomes perfect in *yoga,* *aṣṭa-siddhi-yoga,* eight kinds of material perfection, that he can become the smallest... Smaller than the atom he can become. He can go out from anywhere. You lock him in airtight, packed, but he'll come out. This is called *animā-siddhi.*
+
+Actually, it so happened in Benares. There was a *svāmī,* his name was Trailuṅga Swami. Trailuṅga Swami, he was wandering in the street naked. Government... It is not very old story, say about 150 years ago this happened in Benares. So he was naked *yogī,* and government will not allow, police will not allow. So he was thrice arrested and put into the custody, and thrice he came out. Then he became very famous man, simply by exhibiting one perfection of *yoga.* That means a *yogī* can come out.
+
+Not only Trailuṅga Swami, but we have seen one Mr. Chakravarti in our childhood in a circus, he was playing this part. He was packed up. First of all, his hands and legs were tightly knotted with seal. Then he was put into a bag and the bag was also sealed. Then with this bag he was put in a box. The box was locked and sealed. And he came out from that box—in everyone's presence. We have seen it. And again, he was seen that he was packed up in that way.
+
+So *yoga siddhi,* these wonderful things are there. Similarly, one can walk on the water. He'll not be drowned. He becomes so light he can float in the air. These are... So *siddhya. Siddhya* means that the persons who reside in that planet, they have got automatically, by taking birth in that... Just like taking birth in the Western countries, America or Europe, you are more opulent than other countries materially. Similarly, in Kṛṣṇaloka also, those who are there, they are automatically all lover of Kṛṣṇa. Similarly, there are many different planets, different kinds of residents. We... What knowledge we have got?
+
+But we have to take knowledge from the *śāstra.* Therefore *Vedānta-sūtra* says, *śāstra-cakṣuṣat.* You have to understand, you have to gather your knowledge from authentic scripture, not by experimental knowledge. Experimental knowledge cannot be perfect because our instruments of acquiring knowledge are imperfect. So however we may tackle these instruments perfectly in our way, basically they are imperfect. Therefore perfect knowledge you cannot have.
+
+If you want to have perfect knowledge, then you have to understand this authoritative scripture. Just like here, in this *Śrīmad-Bhāgavatam,* we understand that there is Brahmā, or the demigods, and the *siddhaḥ.* So we have to accept. You cannot understand these things by experimental knowledge. Simply as it is. Therefore I am presenting this *Bhagavad-gītā As It Is.* Then you understand. That is knowledge, perfect knowledge. Otherwise, if you interpret, if you don't believe, then you don't get. There is no other way.
+
+The same example. Just like—I am repeating again—that if you want to know who is your father, the only witness is your mother. Higher evidence is final. If we want to make experiment who is your father, that is not possible. That experimental knowledge is not possible. You have to accept. Similarly, for perfect knowledge of the father or perfect knowledge of the Supreme, you have to accept the version, supreme version of *Vedas.* Then it is perfect.
+
+So there are many different planets within this universe and beyond this universe, spiritual planets. *Keśava tuar jagata vicitra.* God's creation is very variety. So we should not think that this is all in all. This is that Dr. Frog's knowledge. Dr. Frog knows that "This small well is everything." He has no knowledge of the Pacific Ocean. Similarly, [chuckling] these Dr. Frogs of this material world, they are thinking this planet is all in all, and 25,000 miles up this planet, that is all space. No.
+
+> panthās tu koṭi-śata-vatsara-sampragamyo
+> vāyor athāpi manaso muni-puṅgavānām
+> so 'py asti yat-prapada-sīmny avicintya-tattve
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+
+[*Bs.* *5.34*]
+
+**[I worship Govinda, the primeval Lord, only the tip of the toe of whose lotus feet is approached by the yogīs who aspire after the transcendental and betake themselves to prāṇāyāma by drilling the respiration; or by the jñānīs who try to find out the nondifferentiated Brahman by the process of elimination of the mundane, extending over thousands of millions of years.]**
+
+Brahmā, the first-class, the first living entity within this universe, he says that *panthās tu koṭi-śata-vatsara-sampragamyo vāyor athāpi manaso.* If you, not to speak of these aeroplanes, but if you can prepare a plane of the mental plane... Just like mental plane, you are sitting here, you can immediately transfer yourself ten thousand miles away or more than that, immediately, within a second. Just like I am here in America, Los Angeles, and India is about fifteen thousand miles away from this place. But immediately, within second, I can think that I'm sitting in my room there. How it is? The mind is so forceful. Just see.
+
+This is practical. You can transfer your mind immediately. So how can you compare with these aeroplanes? Can the aeroplanes... Aeroplanes means *vāyu. Vāyu* means air. These are all in Sanskrit language in the scriptures. These are not very new things. You see? *Panthās tu koṭi-śata-vatsara-sampragamyo vāyor atha. Vāyu* means air, and *ratha* means plane, airplane. So either by the airplane... Airplane is not so speedy. The jet planes are running at the rate of five hundred miles or one thousand miles per hour, but my mental plane can run fifteen thousand miles per second. You see? And just understand, then, the spirit, how much speedy the spirit should be.
+
+Because here, matter..., there are matter: earth, water, fire... Then air. Air is very fine. Earth is crude. Water is crude. Then earth, water, fire. Fire is still finer, but crude. But still finer, air, and still finer, ether, and still finer, mind, and still finer, soul. You see? So just imagine if mind is so strong that it can transfer itself from here to fifteen thousand miles in a second, how much speedy and powerful is the soul.
+
+So these *yogīs,* they come to the platform of the mental plane, speedy. The *yogīs* can transfer. There are many *yogīs* still, in India, that early in the morning they travel about four thousand miles within half an hour and take bath in four different pilgrimages within half an hour. Yes. So yogic powers are so... What *yogīs* we have seen? *Siddhaḥ,* that is *siddhaḥ.* The demigods, *siddhaḥ...* There *are* persons; it is not story.
+
+So Prahlāda Mahārāja says that "These demigods, these great saintly persons, these *siddhas,* how they have become so powerful?" *Sattvaikatāna:* being situated in the material modes of goodness. If you put yourself, keep yourself in the modes of goodness, then you get more and more your spiritual power.
+
+And if you keep yourself in the modes of ignorance and passion, then you cannot make progress. You will have to remain here or go down. If you keep yourself in the modes of ignorance, then you go down even to the animal kingdom. If you keep yourself in the modes of passion, then utmost, you can remain in Europe and America, that's all. But if you keep yourself in goodness, then you can go up. These are explained in the *Bhagavad-gītā. Ūrdhvaṁ gacchanti sattva-sthāḥ* *Bg.* 14.18*,*
+
+**[Those situated in the mode of goodness gradually go upward to the higher planets; those in the mode of passion live on the earthly planets; and those in the mode of ignorance go down to the hellish worlds.]**
+
+Those who are in the modes of goodness, even they are not spiritually very much advanced so that they can enter into the spiritual kingdom, they'll go in the upper status of planetary system, just like Siddhaloka, Janarloka, Maharloka. *Ūrdhvaṁ gacchanti sattva-sthā madhye tiṣṭhanti rājasāḥ.* And in the middle planetary system... The middle planetary system, this earth is in the middle planetary system, heaven also. *Bhūr bhuvaḥ svaḥ.* You are chanting *Gāyatrī mantra: bhūr bhuvaḥ svaḥ,* these are within the middle. Then above this there is Mahar, Jana, Tapa, Satya—four. Three and four, seven up and seven down planetary system.
+
+So those who are in the modes of goodness, they are elevated to the higher planetary system. *Ūrdhvaṁ gacchanti sattva-sthā madhye tisthanti rājasāḥ jaghanya-guṇa-vṛtti-sthā. Jaghanya* means very abominable character. You see? Eating nonsense, and keeping nonsense, habits nonsense. Just like little more than the animals, that's all. *Jaghanya-guṇa-vṛtti-sthā adho gacchanti tāmasāḥ.* They are going down, down, down, down. These things are explained there.
+
+So here, these *brahmādayaḥ sura-gaṇā,* the demigods headed by Lord Brahmā and the *siddhas* and the great saintly persons and elevated *yogīs,* how they have become? Now, *sattvaikatāna-gatayo vacasāṁ pravāhaiḥ.* They fluently explain in very nice words, just like prayer. Whenever the Lord's name... Kṛṣṇa's name is Uttamaśloka. *Uttama, uttama* means selected, high class. Actually, not high class; it is transcendental. *Ut, ut* means "trans," and *tama,* *tama* means "darkness," and *śloka* means "verses." So *uttamaśloka* means verses which are not of this material world.
+
+When *Brahma-saṁhitā* we read, *govindam ādi-puruṣaṁ tam ahaṁ bhajāmi** ****,* these words, these vibrations, are not of this material world. These are vibration transcendental, above this material world. *Sattvaikatāna-gatayo vacasāṁ pravāhaiḥ.* And they are so learned that fluently they went on praying the Lord with *uttamaśloka,* selected transcendental sounds. But *nārādhituṁ puru-guṇair adhunāpi pipruḥ:* but still, the Lord is not yet pacified.
+
+Although these great personalities have presented their prayers in so nice selected verses and they are transcendental vibration, still, they could not pacify the Lord. And *kiṁ toṣṭum arhati sa me ugra-jāteḥ..., harir ugra-jāteḥ:* "Then how it is possible for me, because I am born of a father who was most passionate. So my body is most abominable. I have got this body from the abominable father. So how can I please Lord when they have failed?"
+
+This is Vaiṣṇava. He's not proud. He's not proud. Because the Brahmā, Lakṣmī, and all the demigods and saintly persons have requested him, "My dear Prahlāda, you try." That means he is greater than all the persons present there; otherwise how they could request him? Just like if in an assembly, if somebody is requested, "Please, you lead us," that means that person, that leader, is the greatest of all.
+
+So Prahlāda is accepted as the greatest personality than Brahmā, than the demigods, than the *yogīs*. But this is the humbleness, meek. This is... In Bible also, it is said the humble and meek can enter into the kingdom of God. So out of his humbleness, meekness, he's expressing, he's presenting himself that "These great personalities, they failed to pacify the Lord. How it is possible for me, who has got this body born of a passionate father?" This is very beautiful.
+
+So Vaiṣṇava, Caitanya Mahāprabhu has taught us that how we shall preach this Kṛṣṇa consciousness. Don't be disheartened because the police is obstructing, because the people are complaining. They will do that. Just like... Why this police and public? This poor, innocent boy, five years old, because he was chanting, his father became his enemy. His father, what to speak of others. So it is such a thing. In any...
+
+You try to trace out the history of the world, you'll find always persons who are for Kṛṣṇa or God, they have been persecuted. Lord Jesus Christ was crucified; Haridāsa Ṭhākura was caned in twenty-two marketplaces; Prahlāda Mahārāja was tortured by his father. So there may be such things. Of course, Kṛṣṇa will protect us. So don't be afraid.
+
+Don't be afraid if somebody tortures us, somebody teases us. We must go on with Kṛṣṇa consciousness without any hesitation, and Kṛṣṇa will give us protect. If you are more tortured, then Kṛṣṇa will appear as Nṛsiṁha-deva and give you all protection. You are all Prahlāda, representative of Prahlāda. You keep your confidence in Kṛṣṇa, and He will give you protection, and go on chanting Hare Kṛṣṇa.
+
+Thank you very much. [devotees offer obeisances]
+
+Now, any question?
+
+**Tamāla Kṛṣṇa:** How do we enter into the modes of goodness?
+
+**Prabhupāda:** Just try to follow the four principles as we have prescribed: no intoxication, no gambling, no illicit sex and no meat-eating. That's all. This is goodness. This is goodness. These prohibitions are there. Why? Just to keep you in goodness. In every religion...
+
+Now, in the Ten Commandments also, I see that "Thou shall not kill." The same thing is there, but people are not obeying. That is a different thing. No religious person... Nobody can be religious unless he is situated in the modes of goodness. A passionate person or a person in ignorance, they cannot be elevated to the religious platform. Religious platform means in goodness. Then you can understand.
+
+On the platform of goodness, you can understand the All-good. If you are in ignorance platform, if you are in the passionate platform, how you can understand the All-good? That is not possible.
+
+So one has to keep himself in goodness, and that goodness means one should follow the prohibitions. Either you follow the Ten Commandments or these four commandments, the same thing. That means you have to keep yourself in goodness. The balance must be in goodness. In the *Bhagavad-gītā* it is stated, *paraṁ brahma paraṁ dhāma pavitraṁ paramaṁ bhavān* [*Bg.* 10.12]*.*
+
+**[Arjuna said: You are the Supreme Brahman, the ultimate, the supreme abode and purifier, the Absolute Truth and the eternal divine person. You are the primal God, transcendental and original, and You are the unborn and all-pervading beauty. All the great sages such as Nārada, Asita, Devala, and Vyāsa proclaim this of You, and now You Yourself are declaring it to me.]**
+
+Arjuna accepted Kṛṣṇa as the supermost pure. How you can approach the supermost pure without becoming yourself pure? So this is the steppingstone to become pure, because we are contaminated.
+
+So to become pure... The Ekādaśī, why we observe? To become pure. *Brahmacarya tapasya,* austerity, penance, celibacy, keeping the mind always in Kṛṣṇa consciousness, keeping the body always cleansed—these things will help us to keep us in goodness. Without goodness, it is not possible.
+
+But Kṛṣṇa consciousness is so nice that even one is in the modes of passion and ignorance, at once he'll be elevated on the platform of goodness, provided he agrees to follow the rules and regulation and chants Hare Kṛṣṇa. This chanting of Hare Kṛṣṇa and following the rules and regulation will keep you intact in goodness. Rest assured. Without failure. Is that very difficult? Huh? That's all right.
+
+**Madhudviṣa:** Prabhupāda, was the appearance of Lord Nṛsiṁha-deva predicted in the *śāstras,* in the *Vedas,* or does the Lord appear any time His devotees are in dire need for His protection?
+
+**Prabhupāda:** No. It is generally said that whenever there is discrepancies in the matter of discharging religious principles and whenever there is too much prominence of irreligiosity, at that time the Lord appears. *Yadā yadā hi dharmasya* *Bg.* 4.7*.*
+
+**[Whenever and wherever there is a decline in religious practice, O descendant of Bharata, and a predominant rise of irreligion—at that time I descend Myself.]**
+
+This is stated in the *Bhagavad-gītā.* So because it is... Just like as soon as there is some riotous condition in any quarter or any part of the city, there is police action immediately.
+
+So this is God's kingdom, either this material or spiritual. So everyone has to obey the God's law. That is religion. Religion means... What do you mean by religion? Religion means... Just like good citizen. What do you mean by good citizen? Who obeys the laws of the state. So what is religion? Religion means to obey the laws of God. That's all. Religion.
+
+Religion you cannot manufacture, just like you cannot manufacture law. Law is made by the state. You cannot manufacture law. If you say, "I have manufactured this law," who cares for your law? Similarly, so-called religion, nonsense religion, there are so many manufactured, who cares for? That is not religion. Religion means God's law. *Dharmaṁ tu sākṣād bhagavat-praṇītam* *SB* 6.3.19*.*
+
+**[Real religious principles are enacted by the Supreme Personality of Godhead. Although fully situated in the mode of goodness, even the great ṛṣis who occupy the topmost planets cannot ascertain the real religious principles, nor can the demigods or the leaders of Siddhaloka, to say nothing of the asuras, ordinary human beings, Vidyādharas and Cāraṇas.]**
+
+That is religion. Just like in the *Bhagavad-gītā* we understand, Kṛṣṇa says, *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja* *Bg.* 18.66:
+
+**[Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear.]**
+
+"You give up all other things. Simply you become Kṛṣṇa conscious." This is religion. This is the order; this is the word.
+
+So to become Kṛṣṇa consciousness, Kṛṣṇa conscious, is to become religious, is to remain in goodness, and is to make progress and advancement in self-realization. Everything is complete. There is no comparison of any religion with Kṛṣṇa consciousness. We can challenge any religionist, "Come and see and test and compare." So the same advertisement: "You all, '69s[?], match this." So nobody can match Kṛṣṇa consciousness, it is so nice.
+
+**Jaya-gopāla:** What sort of living entity is Māyādevī?
+
+**Prabhupāda:** Hmm?
+
+**Jaya-gopāla:** What type of living entity is Māyādevī?
+
+**Prabhupāda:** She is Vaiṣṇavī. She is a great devotee of Kṛṣṇa. But she has accepted a thankless task: to punish. The policeman is a sincere government servant, but he has accepted a task, nobody likes him. [laughs] If some policeman comes here, immediately you shall feel disturbed. But he is the sincere servant of government. That is the position of Māyā. Her business is to punish these rascals who have come to enjoy here. [laughter] You see? But she is a sincere servant of God.
+
+**Jaya-gopāla:** Is this like a post?
+
+**Prabhupāda:** Yes. It is a post, thankless post. Nobody thanks, everyone derides. You see? But she is a great devotee. She tolerates and punishes. That's all. *Daivī hy eṣā guṇamayī mama māyā duratyayā* *Bg.* 7.14*.*
+
+**[This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it.]**
+
+She only wants to see that "You become Kṛṣṇa conscious, I leave you," that's all. Police business is that "You become law-abiding citizen; then I have no connection with you." So far. "And so long you are not a law-abiding [citizen], I shall kick you as much as possible." So Māyā's business is like this.
+
+And we are complaining, "Why you are kicking? Why you are kicking?" "Yes, I shall kick you because you are not Kṛṣṇa conscious. I shall make you Kṛṣṇa conscious by kicking, kicking, kicking. That's all. That is my business."
+
+Our business is to implore, *tṛṇād api sunīcena* [*Cc. Ādi* 17.31]*.*
+
+**[“One who thinks himself lower than the grass, who is more tolerant than a tree, and who does not expect personal honor yet is always prepared to give all respect to others can very easily always chant the holy name of the Lord.”]**
+
+Our preaching method is not kicking. Our preaching method is, *dante nidhāya tṛṇakam* [*Caitanya-candrāmṛta* 8.90]*,*
+
+**[Taking a straw between my teeth and falling at your feet a hundred times, I humbly submit, "O great personality, please give up all mundane knowledge that you have learned and just submit yourself at the lotus feet of Lord Caitanya Mahāprabhu."]**
+
+By taking a grass in the teeth, *padayor nipatya,* falling down on the feet, and *kāku-śataṁ kṛtvā ca ahaṁ bravīmi,* and flattering you hundred times, I'm just submitting one thing: "Become Kṛṣṇa conscious." That is our process.
+
+And Māyā, his [her] process different. [S]he'll say, "Why you shall become Kṛṣṇa conscious? You just enjoy, and I shall kick you very nicely. That's all." And he accepts, "Yes, you kick me and let me enjoy, but I am not going to these Kṛṣṇa conscious persons." [laughter] You see?
+
+Practically, Māyā's business, our business is same, but her process is different, our process is different. The people like her process. [break] [end]

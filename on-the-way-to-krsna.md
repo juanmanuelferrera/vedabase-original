@@ -1,7 +1,8 @@
 # On the Way to Kṛṣṇa
 
+### 1
 
-# Chapter 1: Throughway to Happiness
+1. Throughway to Happiness
 
 Every one of us is searching after happiness, but we do not know what real happiness is. We see so much advertised about happiness, but practically speaking we see so few happy people. This is because so few people know that the platform of real happiness is beyond temporary things. It is this real happiness that is described in *Bhagavad-gītā* by Lord Kṛṣṇa to Arjuna.
 
@@ -16,7 +17,7 @@ In this way there are different degrees of happiness. Yet of all of them, what i
 > vetti yatra na caivāyaṁ
 > sthitaś calati tattvataḥ
 
-**"In that joyous state (*samādhi*), one is situated in boundless transcendental happiness and enjoys himself through transcendental senses. Established thus, one never departs from the truth."** (Bg. 6.21)
+**"In that joyous state (*samādhi*), one is situated in boundless transcendental happiness and enjoys himself through transcendental senses. Established thus, one never departs from the truth."** [[bg/6/21|(Bg. 6.21)]]
 
 *Buddhi* means intelligence; one has to be intelligent if he wants to enjoy. Animals do not have really developed intelligence and so cannot enjoy life as a human being can. The hands, the nose, the eyes, the other sense organs and all the bodily parts may be present on a dead man, but he cannot enjoy. Why not? The enjoying energy, the spiritual spark, has left, and therefore the body has no power. If one looks further into the matter with a little intelligence, he can understand that it was not the body that was enjoying at all but the small spiritual spark that was within. Although one may think that he is enjoying by the bodily sense organs, the real enjoyer is that spiritual spark. That spark always has the potency of enjoyment, but it is not always manifest due to being covered by the material tabernacle. Although we may not be aware of it, it is not possible for the body to experience enjoyment without the presence of this spiritual spark. If a man is offered the dead body of a beautiful woman, will he accept it? No, because the spiritual spark has moved out of the body. Not only was it enjoying within the body, but it was maintaining the body. When that spark leaves, the body simply deteriorates.
 
@@ -33,7 +34,7 @@ The process for establishing oneself in real happiness is this process of Kṛ�
 > yasmin sthito na duḥkhena
 > guruṇāpi vicālyate
 
-**"Upon gaining this, he thinks there is no greater gain. Being situated in such a position, one is never shaken, even in the midst of greatest difficulty."** (Bg. 6.22)
+**"Upon gaining this, he thinks there is no greater gain. Being situated in such a position, one is never shaken, even in the midst of greatest difficulty."** [[bg/6/22|(Bg. 6.22)]]
 
 When one attains that stage, other achievements appear insignificant. In this material world we are trying to achieve so many things—riches, women, fame, beauty, knowledge, etc.—but as soon as we are situated in Kṛṣṇa consciousness we think, "Oh, no achievement is better than this." Kṛṣṇa consciousness is so potent that a little taste can save one from the greatest danger. As one begins to relish the taste of Kṛṣṇa consciousness, he begins to see other so-called enjoyments and attainments as flat and tasteless. And if one is situated firmly in Kṛṣṇa consciousness, the greatest danger cannot disturb him. There are so many dangers in life because the material world is a place of danger. We tend to close our eyes to this, and because we are foolish we try to adjust to these dangers. We may have many dangerous moments in our lives, but if we are training ourselves in Kṛṣṇa consciousness and preparing ourselves to go home, back to Godhead, we will not care for them. Our attitude will then be: "Dangers come and go—so let them happen." It is very difficult to make this kind of adjustment as long as one is on the materialistic platform and is identifying with the gross body, which is composed of perishable elements. But the more one advances in Kṛṣṇa consciousness, the more he becomes free from bodily designations and this material entanglement.
 
@@ -42,7 +43,7 @@ In *Śrīmad-Bhāgavatam* the material world is compared to a great ocean. Withi
 > taṁ vidyād duḥkha-saṁyoga-
 > viyogam yoga-saṁjñitam
 
-**"This indeed is actual freedom from all miseries arising from material contact."** (Bg. 6.23)
+**"This indeed is actual freedom from all miseries arising from material contact."** [[bg/6/23|(Bg. 6.23)]]
 
 We are entangled in this material world due to uncontrolled senses. The *yoga* process is meant to control these senses. If somehow we can manage to control the senses, we can turn our face to actual spiritual happiness and make our lives successful.
 
@@ -74,7 +75,7 @@ It is because the mind is agitated and not fixed on Kṛṣṇa that it goes fro
 > upaiti śānta-rajasaṁ
 > brahma-bhūtam akalmaṣam
 
-**"The *yogī* whose mind is fixed on Me verily attains the highest happiness. By virtue of his identity with Brahman, he is liberated; his mind is peaceful, his passions are quieted, and he is freed from sin."** (Bg. 6.27)
+**"The *yogī* whose mind is fixed on Me verily attains the highest happiness. By virtue of his identity with Brahman, he is liberated; his mind is peaceful, his passions are quieted, and he is freed from sin."** [[bg/6/27|(Bg. 6.27)]]
 
 The mind is always concocting objects for happiness. I am always thinking, "This will make me happy," or "That will make me happy. Happiness is here. Happiness is there." In this way the mind is taking us anywhere and everywhere. It is as though we are riding on a chariot behind an unbridled horse. We have no power over where we are going but can only sit in horror and watch helplessly. As soon as the mind is engaged in the Kṛṣṇa consciousness process—specifically by chanting Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare—then the wild horses of the mind will gradually come under our control. We must engage in Kṛṣṇa's service every moment of our lives in order to keep the restless and turbulent mind from dragging us from one object to another in a vain search for happiness in the temporary material world.
 
@@ -83,12 +84,13 @@ The mind is always concocting objects for happiness. I am always thinking, "This
 > sukhe na brahma-saṁsparśam
 > atyantaṁ sukham aśnute
 
-**"Steady in the Self, being freed from all material contamination, the *yogī* achieves the highest perfectional stage of happiness in touch with the supreme consciousness."** (Bg. 6.28)
+**"Steady in the Self, being freed from all material contamination, the *yogī* achieves the highest perfectional stage of happiness in touch with the supreme consciousness."** [[bg/6/28|(Bg. 6.28)]]
 
 Kṛṣṇa serves as a patron for one who is devoted to Him. When one is in difficulty, his patron saves him. As stated in *Bhagavad-gītā,* Kṛṣṇa is the real friend of every living entity, and we have to revive our friendship with Him. The method for reviving this friendship is the process of Kṛṣṇa consciousness. By practice of Kṛṣṇa consciousness, mundane passionate hankering will come to a stop. This passionate hankering keeps us divorced from Kṛṣṇa. Kṛṣṇa is within us and is waiting for us to turn to Him, but we are too busy passionately eating the fruits of the tree of material desire. This passionate compulsion to enjoy these fruits must stop, and we must situate ourselves in our real identity as Brahman—pure spirit.
 
+### 2
 
-# Chapter 2: The Way of Chanting and Knowing Kṛṣṇa
+2. The Way of Chanting and Knowing Kṛṣṇa
 
 Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. This is transcendental sound vibration. It will help us to cleanse the dust from the mirror of the mind. At the present moment we have accumulated so much material dust on the mirror of the mind, just as on Second Avenue (New York City) there is dust and soot over everything due to the heavy traffic. Due to our manipulation of material activities, a great deal of dust has collected over our mind's clear mirror, and as a consequence we are unable to see things in perspective. This vibration of transcendental sound (the Hare Kṛṣṇa *mantra*) will cleanse away this dust and enable us to see clearly our real constitutional position. As soon as we come to understand "I am not this body; I am spirit soul, and my symptom is consciousness," we will be able to establish ourselves in real happiness. As our consciousness is purified by this process of chanting Hare Kṛṣṇa, all our material miseries will disappear. There is a fire that is always blazing over this material world, and everyone is trying to extinguish it, but there is no possibility of extinguishing this fire of the miseries of material nature unless we are situated in our pure consciousness, in our spiritual life.
 
@@ -123,7 +125,7 @@ The word *sādhu* in the verse quoted above, beginning *paritrāṇāya sādhūn
 > sādhur eva sa mantavyaḥ
 > samyag vyavasito hi saḥ
 
-**"Even if one commits the most abominable actions, if he is engaged in devotional service, he is to be considered saintly because he is properly situated."** (Bg. 9.30)
+**"Even if one commits the most abominable actions, if he is engaged in devotional service, he is to be considered saintly because he is properly situated."** [[bg/9/30|(Bg. 9.30)]]
 
 On the mundane platform, what is morality for one person is immorality for another, and what is immorality for one person is morality for another. According to the Hindu conception, the drinking of wine is immoral, whereas in the Western world, wine drinking is not considered immoral but is a common thing. So morality is dependent on time, place, circumstance, social position, etc. There is, however, a sense of morality and immorality in all societies. In this verse Kṛṣṇa points out that even if one is engaged in immoral acts but at the same time is fully in Kṛṣṇa consciousness, he is to be considered a *sādhu* or a saint. In other words. although a person may have some immoral habits due to his past association, if he is engaged fully in Kṛṣṇa consciousness, these habits are not to be considered important. Whatever the case, if one becomes Kṛṣṇa conscious, he will gradually be purified and will become a *sādhu.* As one progresses in executing Kṛṣṇa consciousness, his bad habits diminish, and he attains to saintly perfection.
 
@@ -134,7 +136,7 @@ In this regard there is the story of a thief who went on a pilgrimage to a holy 
 > kaunteya pratijānīhi
 > na me bhaktaḥ praṇaśyati
 
-**"He quickly becomes righteous and attains lasting peace. O son of Kuntī, declare it boldly that My devotee never perishes."** (Bg. 9.31)
+**"He quickly becomes righteous and attains lasting peace. O son of Kuntī, declare it boldly that My devotee never perishes."** [[bg/9/31|(Bg. 9.31)]]
 
 Because one has committed himself to Kṛṣṇa consciousness, it is proclaimed here by Śrī Kṛṣṇa that within a very short time he will become saintly. One may pull the plug out of an electric fan, and the fan may still go on even though the juice has been disconnected, but it is understood that the fan will soon come to a stop. Once we take shelter of the lotus feet of Kṛṣṇa, we turn the switch off for our karmic activities, and although these activities may still revolve, it is to be understood that they will quickly diminish. It is a fact that whoever takes to Kṛṣṇa consciousness does not have to endeavor independently to become a good man. All the good qualifications will automatically come. It is stated in *Śrīmad-Bhāgavatam* that one who has attained Kṛṣṇa consciousness has simultaneously attained all good qualities. On the other hand, if a person is devoid of God consciousness and yet has many good qualities, his good qualities are to be considered useless, for he will not in any way be prohibited from doing that which is undesirable. If one is devoid of Kṛṣṇa consciousness, he is sure to commit mischief in this material world.
 
@@ -143,7 +145,7 @@ Because one has committed himself to Kṛṣṇa consciousness, it is proclaimed
 > tyaktvā dehaṁ punar janma
 > naiti mām eti so 'rjuna
 
-**"One who knows the transcendental nature of My appearance and activities does not, upon leaving the body, take his birth again in this material world, but attains My eternal abode, O Arjuna."** (Bg. 4.9)
+**"One who knows the transcendental nature of My appearance and activities does not, upon leaving the body, take his birth again in this material world, but attains My eternal abode, O Arjuna."** [[bg/4/9|(Bg. 4.9)]]
 
 The mission for which Kṛṣṇa appears is here further explained. When He comes with some mission, there are some activities. Of course there are some philosophers who do not believe that God comes as an incarnation. They say, "Why should God come to this rotten world?" But from *Bhagavad-gītā* we understand otherwise. We should always remember that we read *Bhagavad-gītā* as scripture, and whatever is spoken in *Bhagavad-gītā* must be accepted, otherwise there is no reason in reading it. In *Gītā* Kṛṣṇa says that He has come as an incarnation with a mission, and along with His mission there are some activities. We can see, for example, that Kṛṣṇa is active as chariot-driver for Arjuna and engages in so many activities on the battlefield of Kurukṣetra. just as when there is war one person or nation may side with another person or nation and show partiality, Lord Kṛṣṇa on the battlefield shows some partiality and sides with Arjuna. Actually Kṛṣṇa is not partial to anyone, but externally it appears that He is partial. This partiality, however, should not be accepted in the ordinary sense.
 
@@ -156,7 +158,7 @@ Ordinarily when one quits the body he has to take up another body. The lives of 
 > tathā śarīrāṇi vihāya jīrṇāny
 > anyāni saṁyāti navāni dehī
 
-**"As a person puts on new garments, giving up old ones, similarly, the soul accepts new material bodies, giving up the old and useless ones."** (Bg. 2.22)
+**"As a person puts on new garments, giving up old ones, similarly, the soul accepts new material bodies, giving up the old and useless ones."** [[bg/2/22|(Bg. 2.22)]]
 
 In the beginning the body is the size of a pea. Then it grows to become a baby, then a child, a young boy, a youth, a grown man and an old man, and finally, when it becomes useless, the living entity changes into another body. The body is therefore always changing, and death is simply the ultimate change of the present body.
 
@@ -165,7 +167,7 @@ In the beginning the body is the size of a pea. Then it grows to become a baby, 
 > tathā dehāntara-prāptir
 > dhīras tatra na muhyati
 
-**"As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change."** (Bg. 2.13)
+**"As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change."** [[bg/2/13|(Bg. 2.13)]]
 
 Although the body is changing, the dweller within the body remains the same. Although the boy grows into manhood, the living entity within the body is not changed. It is not that the self who was there as a boy has gone away. Medical science agrees that at every moment the material body is changing. just as living entities are not bewildered by this, an enlightened man is not bewildered when the body undergoes its ultimate change at death. But a person who does not understand things as they are laments. In the material condition we are simply changing bodies all the time; that is our disease. It is not that we always change to a human body. We may change to an animal body or a demigod body depending on our activities. According to the *Padma Purāṇa* there are at death. But Kṛṣṇa promises that one who knows His birth and activities in truth is freed from this cycle of transmigration.
 
@@ -176,9 +178,9 @@ How does one understand Kṛṣṇa's birth and activities in truth? This is exp
 > tato māṁ tattvato jñātvā
 > viśate tad-anantaram
 
-**"One can understand the Supreme Personality as He is only by devotional service. And when one is in full consciousness of the Supreme Lord by such devotion, he can enter into the kingdom of God."** (Bg. 18.55)
+**"One can understand the Supreme Personality as He is only by devotional service. And when one is in full consciousness of the Supreme Lord by such devotion, he can enter into the kingdom of God."** [[bg/18/55|(Bg. 18.55)]]
 
-Here again the word *tattvataḥ,* "in truth," is used. One can understand the science of Kṛṣṇa in truth by becoming a devotee. He who is not a devotee, who does not strive for Kṛṣṇa consciousness, cannot understand. At the beginning of the Fourth Chapter also Kṛṣṇa tells Arjuna (Bg. 4.3) that He is explaining this ancient science of *yoga* to him because Arjuna is "My devotee and My friend." For one who simply makes an academic study of *Bhagavad-gītā,* the science of Kṛṣṇa remains a mystery. *Bhagavad-gītā* is not a book that one can just purchase from the bookstore and understand by scholarship alone. Arjuna was not a great scholar, nor a Vedāntist, nor a philosopher nor a *brāhmaṇa,* nor a renunciate; he was a family and military man. But still Kṛṣṇa selected him to be the recipient of *Bhagavad-gītā* and the first authority in the disciplic succession. Why? "Because you are My devotee." That is the qualification to understand *Bhagavad-gītā* as it is and Kṛṣṇa as He is—one must become Kṛṣṇa conscious.
+Here again the word *tattvataḥ,* "in truth," is used. One can understand the science of Kṛṣṇa in truth by becoming a devotee. He who is not a devotee, who does not strive for Kṛṣṇa consciousness, cannot understand. At the beginning of the Fourth Chapter also Kṛṣṇa tells Arjuna [[bg/4/3|(Bg. 4.3)]] that He is explaining this ancient science of *yoga* to him because Arjuna is "My devotee and My friend." For one who simply makes an academic study of *Bhagavad-gītā,* the science of Kṛṣṇa remains a mystery. *Bhagavad-gītā* is not a book that one can just purchase from the bookstore and understand by scholarship alone. Arjuna was not a great scholar, nor a Vedāntist, nor a philosopher nor a *brāhmaṇa,* nor a renunciate; he was a family and military man. But still Kṛṣṇa selected him to be the recipient of *Bhagavad-gītā* and the first authority in the disciplic succession. Why? "Because you are My devotee." That is the qualification to understand *Bhagavad-gītā* as it is and Kṛṣṇa as He is—one must become Kṛṣṇa conscious.
 
 And what is this Kṛṣṇa consciousness? That is the process of cleansing the dust from the mirror of the mind through the chanting of Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. By chanting this *mantra* and by hearing *Bhagavad-gītā,* we can gradually attain to Kṛṣṇa consciousness. *Īśvaraḥ sarva-bhūtānām* [[bg/18/61|[Bg. 18.61] ]]—Kṛṣṇa is always present within our heart. The individual soul and the Supersoul are both sitting in the tree of the body. The individual soul (*jīva*) is eating the fruit of the tree, and the Supersoul (Paramātmā) is witnessing. As the individual soul begins the process of devotional service and gradually begins to develop his Kṛṣṇa consciousness, the Supersoul who is seated within begins to help him dust all the impurities from the mirror of the mind. Kṛṣṇa is a friend to all saintly persons, and the attempt to become Kṛṣṇa conscious is a saintly endeavor. *Śravaṇam. kīrtanam* [[sb/7/5/23-24|[SB 7.5.23] ]]—by chanting and hearing one can come to understand the science of Kṛṣṇa and thereby come to understand Kṛṣṇa. And upon understanding Kṛṣṇa, one can, at the moment of death, go immediately to His abode in the spiritual world. This spiritual world. is described thus in *Bhagavad-gītā:*
 
@@ -187,7 +189,7 @@ And what is this Kṛṣṇa consciousness? That is the process of cleansing the
 > yad gatvā na nivartante
 > tad dhāma paramaṁ mama
 
-**"That abode of Mine is not illumined by the sun or moon, nor by electricity. One who reaches it never returns to this material world."** (Bg. 15.6)
+**"That abode of Mine is not illumined by the sun or moon, nor by electricity. One who reaches it never returns to this material world."** [[bg/15/6|(Bg. 15.6)]]
 
 This material world is always dark; therefore we require the sun, moon and electricity. The *Vedas* enjoin us not to remain in this darkness but to transfer ourselves to the world of illumination, the spiritual world. The word darkness has a twofold meaning; it not only means without light, but it means ignorance.
 
@@ -198,7 +200,7 @@ The Supreme Lord has manifold energies. It is not that he comes to this material
 > nānavāptam avāptavyaṁ
 > varta eva ca karmaṇi
 
-**"O son of Pṛthā, there is no work prescribed for Me within all the three planetary systems. Nor am I in want of anything, nor have I need to obtain anything—and yet I am engaged in work."** (Bg. 3.22)
+**"O son of Pṛthā, there is no work prescribed for Me within all the three planetary systems. Nor am I in want of anything, nor have I need to obtain anything—and yet I am engaged in work."** [[bg/3/22|(Bg. 3.22)]]
 
 We should therefore not think that Kṛṣṇa is required to descend upon this material world and engage in so many activities. No one is equal to or greater than Kṛṣṇa, and He has all knowledge naturally. It is not that He has to undergo penances to acquire knowledge or that He at any time has to receive knowledge or attain knowledge. At all times and in all conditions He is full of knowledge. He may be speaking *Bhagavad-gītā* to Arjuna, but at no time was He ever taught *Bhagavad-gītā.* One who can understand that this is Kṛṣṇa's position does not have to return to the cycle of birth and death in this material world. Being under the influence of illusion, we spend our lifetimes trying to make adjustments to this material atmosphere, but this is not the purpose of human life. Human life is meant for understanding the science of Kṛṣṇa.
 
@@ -208,8 +210,9 @@ Actually this process of Kṛṣṇa consciousness or self-realization is not ve
 
 As stated before, this chanting of Hare Kṛṣṇa is a process by which all contaminations due to material association are removed from the mirror of the mind. There is no need for external help in reviving our Kṛṣṇa consciousness, for Kṛṣṇa consciousness is dormant within the self. In fact, it is the very quality of the self. We have only to invoke it by this process. Kṛṣṇa consciousness is an eternal fact. It is not a doctrine or set of beliefs imposed by some organization. It is within all living entities, whether they be human being or animal. When Lord Caitanya Mahāprabhu was passing through the jungles of South India some five hundred years ago, He chanted Hare Kṛṣṇa, and all the animals—the tigers, elephants and deer—joined Him in dancing to the holy names. Of course this depends on the purity of the chanting. As we progress in chanting, purification is sure to come.
 
+### 3
 
-# Chapter 3: Seeing Kṛṣṇa Everywhere and Always
+3. Seeing Kṛṣṇa Everywhere and Always
 
 In our practical life, Kṛṣṇa instructs us how to invoke Kṛṣṇa consciousness. It is not that we are to stop executing our duty or to cease from activity. Rather, activities have to be conducted in Kṛṣṇa consciousness. Everyone has a vocation in life, but with what consciousness does he enter upon it? Everyone is thinking, "Oh, I must have a vocation in order to maintain my family." Society, the government or the family have to be satisfied, and no one is free from such consciousness One has to be in proper consciousness to execute any activity nicely. He whose consciousness is agitated, who is like a madman, cannot execute any duty. We should execute our duty properly, but we should do it thinking to satisfy Kṛṣṇa. It is not that we have to change our process of work, but we do have to understand for whom we are working. Whatever activity we have to do we must execute, but we should not be carried away by *kāma,* desire. The Sanskrit word *kāma* is used to indicate lust, desire or sense satisfaction. Śrī Kṛṣṇa instructs that we should not work for the satisfaction of *kāma* or our own lust. The whole teaching of *Bhagavad-gītā* is based on this principle.
 
@@ -220,7 +223,7 @@ Arjuna wanted to satisfy his senses by refraining from fighting with his relativ
 > manaḥ ṣaṣṭhānīndriyāṇi
 > prakṛti sthāni karṣati
 
-**"The living entities in this conditioned world are My eternal, fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind."** (Bg. 15.7)
+**"The living entities in this conditioned world are My eternal, fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind."** [[bg/15/7|(Bg. 15.7)]]
 
 The *jīvas,* or living entities, are now detached from the whole due to material contact. It is therefore necessary for us to strive to attach ourselves again through the latent Kṛṣṇa consciousness that is within us. Artificially, we are trying to forget Kṛṣṇa and live independently, but this is not possible. When we strive to live independent of Kṛṣṇa, we come under the influence of the laws of material nature. If one thinks he is independent of Kṛṣṇa, he becomes dependent on the illusory energy of Kṛṣṇa, just as if one thinks that he is independent of the government and its regulations, he becomes dependent on the police force. Everyone is trying to become independent, and this is called *māyā,* illusion. Individually, communally, socially, nationally, or universally, it is not possible to become independent. When we come to realize that we are dependent, we will have attained knowledge. Today so many people are striving for peace in the world, but they do not know how to implement that peace formula. The United Nations has been striving for peace for so many years, but still war is going on.
 
@@ -229,7 +232,7 @@ The *jīvas,* or living entities, are now detached from the whole due to materia
 > na tad asti vinā yat syān
 > mayā bhūtaṁ carācaram
 
-**"Furthermore, O Arjuna, I am the generating seed of all existences. There is no being—moving or unmoving—that can exist without Me."** (Bg. 10.39)
+**"Furthermore, O Arjuna, I am the generating seed of all existences. There is no being—moving or unmoving—that can exist without Me."** [[bg/10/39|(Bg. 10.39)]]
 
 Kṛṣṇa is thus the proprietor of everything, the ultimate beneficiary and the receiver of the results of everything. We may consider ourselves to be the proprietors of the fruits of our labor, but this is a misconception. We must come to understand that Kṛṣṇa is the ultimate proprietor of the fruits of all our works. Hundreds of people may be working in an office, but they understand that whatever profit the business makes belongs to the proprietor. As soon as a teller at the bank thinks, "Oh, I have so much money. I am the proprietor. Let me take it home with me," his trouble begins. If we think that we can use whatever wealth we have amassed for our own sense gratification, we are acting out of *kāma,* lust. But if we come to understand that everything we have belongs to Kṛṣṇa, we are liberated. We may have the same money in our hands, but as soon as we think that we are the proprietor, we are under the influence of *māyā.* One who is situated in the consciousness that everything belongs to Kṛṣṇa is an actual learned man.
 
@@ -247,7 +250,7 @@ This consciousness of *īśāvāsya*—everything belongs to Kṛṣṇa—must 
 > iti matvā bhajante māṁ
 > budhā bhāva-samanvitāḥ
 
-**"I am the source of all spiritual and material worlds. Everything emanates from Me. The wise who know this perfectly engage in My devotional service and worship Me with all their hearts."** (Bg. 10.8)
+**"I am the source of all spiritual and material worlds. Everything emanates from Me. The wise who know this perfectly engage in My devotional service and worship Me with all their hearts."** [[bg/10/8|(Bg. 10.8)]]
 
 In this verse the word *budha* is used, which indicates a wise man or one who is learned. What is his symptom? He knows that Kṛṣṇa is the fountainhead of everything, of all emanations. He knows that whatever he sees is but an emanation of Kṛṣṇa. In the material world, sex life is the most prominent factor. Sexual attraction is found in all species of life, and one may ask where it comes from. The wise man understands that this tendency is in Kṛṣṇa and that it is revealed in His relationships with the damsels of Vraja. Whatever is found in this material world can also be found in perfection in Kṛṣṇa. The difference is that in the material world everything is manifest in a perverted form. In Kṛṣṇa all of these tendencies and manifestations exist in pure consciousness, in spirit. One who knows this, in full knowledge, becomes a pure devotee of Kṛṣṇa.
 
@@ -263,7 +266,7 @@ In this verse the word *budha* is used, which indicates a wise man or one who is
 > nitya-yuktā upāsate
 > [[bg/9/14|[Bg. 9.14] ]]
 
-**"O son of Pṛthā, those who are not deluded, the great souls, are under the protection of the divine nature. They are fully engaged in devotional service because they know Me as the Supreme Personality of Godhead, original and inexhaustible. Always chanting My glories, endeavoring with great determination, bowing down before Me, these great souls perpetually worship Me with devotion."** (Bg. 9.13)
+**"O son of Pṛthā, those who are not deluded, the great souls, are under the protection of the divine nature. They are fully engaged in devotional service because they know Me as the Supreme Personality of Godhead, original and inexhaustible. Always chanting My glories, endeavoring with great determination, bowing down before Me, these great souls perpetually worship Me with devotion."** [[bg/9/13|(Bg. 9.13)]]
 
 Who is the great soul, the *mahātmā?* It is he who is under the influence of the superior energy. At present we are under the influence of Kṛṣṇa's inferior energy. As living entities, our position is marginal—we can transfer ourselves to either of the two energies. Kṛṣṇa is fully independent, and because we are part and parcel of Him we also have this quality of independence. Therefore we have a choice as to which energy we will function under. Because we are ignorant of the superior nature, we have no alternative but to remain in the inferior nature.
 
@@ -278,7 +281,7 @@ How is this done? How is it possible to become Kṛṣṇa conscious in every st
 > praṇavaḥ sarva-vedeṣu
 > śabdaḥ khe pauruṣaṁ nṛṣu
 
-**"O son of Kuntī [Arjuna], I am the taste of water. the light of the sun and the moon, the syllable *oṁ* in the Vedic *mantras;* I am the sound in ether and ability in man."** (Bg. 7.8)
+**"O son of Kuntī [Arjuna], I am the taste of water. the light of the sun and the moon, the syllable *oṁ* in the Vedic *mantras;* I am the sound in ether and ability in man."** [[bg/7/8|(Bg. 7.8)]]
 
 In this verse Śrī Kṛṣṇa is describing how we can become Kṛṣṇa conscious fully, in all stages of life. All living entities must drink water. The taste of water is so nice that when we are thirsty nothing but water seems to do. No manufacturer can create the pure taste of water. We can thus remember Kṛṣṇa or God when we drink water. No one can avoid drinking water every day of his life, so God consciousness is there—how can we forget?
 
@@ -311,7 +314,7 @@ In the Seventh Chapter of *Bhagavad-gītā* Śrī Kṛṣṇa gives additional w
 > jīvanaṁ sarva-bhūteṣu
 > tapaś cāsmi tapasviṣu
 
-**"I am the original fragrance of the earth, and I am the heat in fire. I am the life of all that lives, and I am the penances of all ascetics."** (Bg. 7.9)
+**"I am the original fragrance of the earth, and I am the heat in fire. I am the life of all that lives, and I am the penances of all ascetics."** [[bg/7/9|(Bg. 7.9)]]
 
 The words *puṇyo gandhaḥ* refer to fragrances. Only Kṛṣṇa can create flavors and fragrances. We may synthetically create some scents or fragrances, but these are not as good as the originals that occur in nature. When we smell a good natural fragrance, we can think, "Oh, here is God. Here is Kṛṣṇa." Or when we see some natural beauty, we can think, "Oh, here is Kṛṣṇa." Or when we see something uncommon, powerful or wonderful, we can think, "Here is Kṛṣṇa." Or when we see any form of life, whether it be in a tree, in a plant, or an animal or in a human being, we should understand that this life is part and parcel of Kṛṣṇa, for as soon as the spiritual spark, which is part and parcel of Kṛṣṇa, is taken away from the body, the body disintegrates.
 
@@ -320,7 +323,7 @@ The words *puṇyo gandhaḥ* refer to fragrances. Only Kṛṣṇa can create f
 > buddhir buddhimatām asmi
 > tejas tejasvinām aham
 
-**"O son of Pṛthā, know that I am the original seed of all existences, the intelligence of the intelligent, and the prowess of all powerful men."** (Bg. 7.10)
+**"O son of Pṛthā, know that I am the original seed of all existences, the intelligence of the intelligent, and the prowess of all powerful men."** [[bg/7/10|(Bg. 7.10)]]
 
 Here again it is explicitly stated that Kṛṣṇa is the life of all that lives. Thus at every step we can see God. People may ask, "Can you show me God?" Yes, of course. God can be seen in so many ways. But if one closes his eyes and says, "I shall not see God," then how can He be shown?
 
@@ -331,7 +334,7 @@ In the above verse the word *bījam* means seed, and that seed is proclaimed to 
 > dharmāviruddho bhūteṣu
 > kāmo 'smi bharatarṣabha
 
-**"I am the strength of the strong, devoid of passion and desire. I am sex life which is not contrary to religious principles, O Lord of the Bhāratas [Arjuna]."** (Bg. 7.11)
+**"I am the strength of the strong, devoid of passion and desire. I am sex life which is not contrary to religious principles, O Lord of the Bhāratas [Arjuna]."** [[bg/7/11|(Bg. 7.11)]]
 
 The elephant and the gorilla are very strong animals, and we should understand that they get their strength fro m Kṛṣṇa. The human being cannot acquire such strength by his own endeavor, but if Kṛṣṇa so favors, a man can get strength to exceed the elephant thousands of times. The great warrior Bhīma, who fought in the battle of Kurukṣetra, was said to have strength ten thousand times that of an elephant. Similarly, desire or lust (*kāma*) which is not against religious principles should also be seen as Kṛṣṇa. What is this lust? lust generally means sex life, but here *kāma* refers to sex life which is not against religious principles, that is to say, sex for the begetting of good children. If one can beget good Kṛṣṇa conscious children, he can have sex thousands of times, but if he can only beget children who are raised in the consciousness of cats and dogs, his sex life is to be considered irreligious. In religious and civilized societies, marriage is intended as an indication that a couple is to engage in sex for begetting good children. Therefore married sex life is considered religious, and unmarried sex life is considered irreligious. Actually there is no difference between the *sannyāsī* and the householder provided that the householder's sexual activities are based on religious principles.
 
@@ -340,14 +343,15 @@ The elephant and the gorilla are very strong animals, and we should understand t
 > matta eveti tān viddhi
 > na tv ahaṁ teṣu te mayi
 
-**"All states of being—be they of goodness, passion or ignorance—are manifested by My energy. I am, in one sense, everything—but I am independent. I am not under the modes of this material nature."** (Bg. 7.12)
+**"All states of being—be they of goodness, passion or ignorance—are manifested by My energy. I am, in one sense, everything—but I am independent. I am not under the modes of this material nature."** [[bg/7/12|(Bg. 7.12)]]
 
 One may question Kṛṣṇa in this way: "You say You are sound, water, illumination, fragrance, the seed of all, strength, and *kāma, desire—does that* mean that you exist simply in the mode of goodness?" In the material world there are the modes of goodness, passion and ignorance. Thus far, Kṛṣṇa has described Himself as that which is good (for instance, sex in marriage according to religious principles). But what about the other modes? Does not Kṛṣṇa exist in them? In answer, Kṛṣṇa replies that whatever is seen in the material world is due to an interaction of three modes of material nature. Whatever can be observed is a combination of goodness, passion or ignorance, and in all cases these three states are "produced by Me." Because they are produced by Kṛṣṇa, their position is in Him, but He is not in them, for Kṛṣṇa Himself is transcendental to the three modes. Thus, in another sense, bad and evil things, which are produced out of ignorance, are also Kṛṣṇa, when they are applied by Kṛṣṇa. How is this? For example, an electrical engineer is producing electrical energy. In our homes we are experiencing this electrical energy as coldness in the refrigerator or heat in the electric stove, but at the power plant electrical energy is neither cold nor hot. The manifestations of this energy may be different for the living entities, but for Kṛṣṇa they are not different. Therefore Kṛṣṇa sometimes acts on what appears to be the principles of passion or ignorance, but for Kṛṣṇa there is nothing but Kṛṣṇa, just as for the electrical engineer electrical energy is simply electricity and nothing else. He makes no distinction that this is "cold electricity" or that is "hot electricity."
 
 Everything is being generated by Kṛṣṇa. Indeed, the *Vedānta-sūtra* confirms: *athāto brahma jijñāsā janmādy asya yataḥ:* [[sb/1/1/1|[SB 1.1.1] ]] everything is flowing from the Supreme Absolute Truth. What the living entity is considering to be bad or good is only so for the living entity, for he is conditioned. But because Kṛṣṇa is not conditioned, for Him there is no question of bad or good. Because we are conditioned, we are suffering from dualities, but for Him everything is perfect.
 
+### 4
 
-# Chapter 4: The Roads of the Foolish and the Wise
+4. The Roads of the Foolish and the Wise
 
 Kṛṣṇa is thus explaining Himself as He is. Yet we are not attracted to Him. Why is this? The reason is given by Kṛṣṇa Himself:
 
@@ -356,7 +360,7 @@ Kṛṣṇa is thus explaining Himself as He is. Yet we are not attracted to Him
 > mām eva ye prapadyante
 > māyām etāṁ taranti te
 
-**"This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it."** (Bg. 7.14)
+**"This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it."** [[bg/7/14|(Bg. 7.14)]]
 
 The material world is pervaded by the three qualities of material nature. All living entities are influenced by these qualities. If they are primarily influenced by the mode of goodness, they are called *brāhmaṇas,* and if they are influenced by the mode of passion, they are called *kṣatriyas.* If they are influenced by the modes of passion and ignorance, they are *vaiśyas,* and if they are influenced by ignorance, they are *śūdras.* This is not an artificial imposition due to birth or social status but is according to *guṇa,* or the mode of nature under which one is operating.
 
@@ -365,7 +369,7 @@ The material world is pervaded by the three qualities of material nature. All li
 > tasya kartāram api māṁ
 > viddhy akartāram avyayam
 
-**"According to the three modes of material nature and the work ascribed to them, the four divisions of human society were created by Me. And, although I am the creator of this system, you should know that I am yet the non-doer, being unchangeable."** (Bg. 4.13)
+**"According to the three modes of material nature and the work ascribed to them, the four divisions of human society were created by Me. And, although I am the creator of this system, you should know that I am yet the non-doer, being unchangeable."** [[bg/4/13|(Bg. 4.13)]]
 
 It is not that this system refers to the perverted caste system in India. Śrī Kṛṣṇa specifically states: *guṇa-karma-vibhāgaśaḥ:* men are classified according to the *guṇa* or the mode under which they are operating, and this applies to men all over the universe. When Kṛṣṇa speaks, we must understand that whatever He says is not limited but is universally true. He claims to be the father of all living entities—even the animals, the aquatics, the trees, plants, worms, birds and bees are all claimed to be His sons. Śrī Kṛṣṇa asserts that the entire universe is illusioned by the interactions of the three qualities of material nature, and we are under the spell of that illusion; therefore we cannot understand what God is.
 
@@ -376,7 +380,7 @@ What is the nature of this illusion, and how can it be overcome? That is also ex
 > mām eva ye prapadyante
 > māyām etaṁ taranti te
 
-**"This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome. But those who have surrendered to Me can easily cross beyond it."** (Bg. 7.14)
+**"This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome. But those who have surrendered to Me can easily cross beyond it."** [[bg/7/14|(Bg. 7.14)]]
 
 No one can get rid of the entanglement of the three qualities of material nature by mental speculation. The three *guṇas* are very strong and hard to overcome. Can't we feel how we are in the grip of material nature? The word *guṇa* (mode) also means rope. When someone is bound by three strong ropes, he is certainly very tightly secured. Our hands and legs are all bound by the strong ropes of goodness, passion and ignorance. Are we therefore to abandon hope? No, for here Śrī Kṛṣṇa promises that whoever surrenders unto Him is at once free. When one becomes Kṛṣṇa conscious—whether in this way or that way—he becomes free.
 
@@ -391,7 +395,7 @@ As soon as we surrender ourselves to Kṛṣṇa, He welcomes us very cordially.
 > ahaṁ tvāṁ sarva-pāpebhyo
 > mokṣayiṣyāmi mā śucaḥ
 
-**"Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear."** (Bg. 18.66)
+**"Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear."** [[bg/18/66|(Bg. 18.66)]]
 
 When we throw ourselves at the feet of God, we come under His protection, and from that time on there is no fear for us. When children are under the protection of their parents, they are fearless because they know that their parents will not let them be harmed. *Mām eva ye prapadyante:* Kṛṣṇa promises that those who surrender to Him have no cause for fear.
 
@@ -404,7 +408,7 @@ There may be some difficulty in surrendering to the father of this body, for he 
 > māyayāpahṛta jñāna
 > āsuraṁ bhāvam āśritāḥ
 
-**"Those miscreants who are grossly foolish, lowest among mankind, whose knowledge is stolen by illusion, and who partake of the atheistic nature of demons, do not surrender unto Me."** (Bg. 7.15)
+**"Those miscreants who are grossly foolish, lowest among mankind, whose knowledge is stolen by illusion, and who partake of the atheistic nature of demons, do not surrender unto Me."** [[bg/7/15|(Bg. 7.15)]]
 
 In this way the fools are categorized. A *duṣkṛtī* is always acting against the scriptural injunctions. The business of current civilization is to break scriptural rules—that's all. By definition, a pious man is one who doesn't. There must be some standard to distinguish between *duṣkṛtī* (an evil doer) and *sukṛtī* (a virtuous man). Every civilized country has some scripture—it may be Christian, Hindu, Moslem or Buddhist. That doesn't matter. The point is that the book of authority, the scripture, is there. One who does not follow its injunctions is considered an outlaw.
 
@@ -425,7 +429,7 @@ just as there are four types of miscreants who never surrender to Kṛṣṇa, t
 > ārto jijñāsur arthārthī
 > jñānī ca bharatarṣabha
 
-**"O best among the Bhāratas [Arjuna], four kinds of pious men render devotional service unto Me—the distressed, the desirer of wealth, the inquisitive, and he who is searching for knowledge of the Absolute."** (Bg. 7.16)
+**"O best among the Bhāratas [Arjuna], four kinds of pious men render devotional service unto Me—the distressed, the desirer of wealth, the inquisitive, and he who is searching for knowledge of the Absolute."** [[bg/7/16|(Bg. 7.16)]]
 
 This material world is full of distress, and both the pious and impious are subject to it. The cold of winter treats everyone alike. It does not care for the pious or impious, the rich or the poor. The difference between the pious and the impious, however, is that the pious man thinks of God when he is in his miserable condition. Often when a man is distressed, he will go to church and pray, "Oh my Lord, I am in difficulty. Please help me." Although he is praying for some material necessity, such a man is still to be considered pious because he has come to God in his distress. Similarly, a poor man may go to church and pray, "My dear Lord, please give me some money." On the other hand, the inquisitive are usually intelligent. They are always researching to understand things. They may ask, "What is God?" and then conduct scientific research to find out. They are also considered pious because their research is directed to the proper object. The man in knowledge is called *jñānī*—one who has understood his constitutional position. Such *ajñānī* may have an impersonal conception of God, but because he is taking shelter of the ultimate, the Supreme Absolute Truth, he is also to be considered pious. These four types of men are called *sukṛtī*—pious—because they are all after God.
 
@@ -434,7 +438,7 @@ This material world is full of distress, and both the pious and impious are subj
 > priyo hi jñānino 'tyartham
 > ahaṁ sa ca mama priyaḥ
 
-**"Of these, the wise one who is in full knowledge in union with Me through pure devotional service is the best. For I am very dear to him, and he is dear to Me."** (Bg. 7.17)
+**"Of these, the wise one who is in full knowledge in union with Me through pure devotional service is the best. For I am very dear to him, and he is dear to Me."** [[bg/7/17|(Bg. 7.17)]]
 
 Out of the four classes of men who approach God, he who is philosophically trying to understand the nature of God, who is trying to become Kṛṣṇa conscious—*viśiṣyate*—is best qualified. Indeed, Kṛṣṇa says that such a person is very dear to Him because he has no other business than understanding God. The others are inferior. No one has to pray to God to ask for anything, and he who does so is foolish because he does not know that the all-knowing God is within his heart and is well aware when he is in distress or in need of money. The wise man realizes this and does not pray for relief from material miseries. Rather, he prays to glorify God and inform others how great He is. He doesn't pray for his personal interest, for bread, dress or shelter. The pure devotee, when he is distressed, says, "Dear Lord, this is Your kindness. You have put me into distress just to rectify me. I should be put in much greater distress, but out of Your mercy You have minimized this." This is the vision of a pure devotee who is not disturbed.
 
@@ -451,21 +455,22 @@ The wise man, the *jñānī,* actually understands the science of God. One who o
 > jñānaṁ vijñāna-sahitaṁ
 > yaj jñātvā mokṣyase 'śubhāt
 
-**"My dear Arjuna, because you are never envious of Me, I shall impart to you this most secret wisdom, knowing which you shall be relieved of the miseries of material existence."** (Bg. 9.1)
+**"My dear Arjuna, because you are never envious of Me, I shall impart to you this most secret wisdom, knowing which you shall be relieved of the miseries of material existence."** [[bg/9/1|(Bg. 9.1)]]
 
 The knowledge of God imparted in *Bhagavad-gītā* is very subtle and confidential. It is full of *jñāna,* metaphysical wisdom, and *vijñāna,* scientific knowledge. And it is full of mystery also. How can one understand this knowledge? It must be imparted by God Himself or a bona fide representative of God. Therefore Śrī Kṛṣṇa says that whenever there is a discrepancy on understanding the science of God, He incarnates Himself.
 
 Nor does knowledge come from sentiment. Devotion is not sentiment. It is a science. Śrīla Rūpa Gosvāmī says, "A show of spirituality without reference to the Vedic knowledge is simply a disturbance to society." One must taste the nectar of devotion by reason, argument and knowledge, and then he must pass it on to others. One should not think that Kṛṣṇa consciousness is mere sentimentality. The dancing and singing are all scientific. There is science, and there is also loving reciprocation. Kṛṣṇa is very dear to the wise man, and the wise man is very dear to Kṛṣṇa. Kṛṣṇa will return our love a thousand-fold. What capacity do we finite creatures have to love Kṛṣṇa? But Kṛṣṇa has immense capacity—unlimited capacity—for love.
 
+### 5
 
-# Chapter 5: Steering Toward the Supreme
+5. Steering Toward the Supreme
 
 > udārāḥ sarva evaite
 > jñānī tv ātmaiva me matam
 > āsthitaḥ sa hi yuktātmā
 > mām evānuttamāṁ gatim
 
-**"All these devotees are undoubtedly magnanimous souls, but he who is situated in knowledge of Me I consider verily to dwell in Me. Being engaged in My transcendental service, he attains Me."** (Bg. 7.18)
+**"All these devotees are undoubtedly magnanimous souls, but he who is situated in knowledge of Me I consider verily to dwell in Me. Being engaged in My transcendental service, he attains Me."** [[bg/7/18|(Bg. 7.18)]]
 
 Here Kṛṣṇa is saying that all the men who come to Him—whether they be distressed, in need of money, curious, etc.—are welcomed, but out of them the person who is in knowledge is very dear to Him. The others are welcomed because it is understood that in course of time, if they continue on the path to God, they will become as good as the man of knowledge. Generally, however, it so happens that when one goes to church for profit, and the money doesn't come, he concludes that approaching God is nonsense, and he gives up all connection with church. That is the danger of approaching God with ulterior motives. For instance, during World War II it was reported that many wives of the German soldiers went to church to pray for their husbands' safe return, but when they found they had been killed in battle, they became atheistic. Thus we want God to become our order-supplier, and when He does not supply our order, we say that there is no God. That is the effect of praying for material things.
 
@@ -499,7 +504,7 @@ Thus even though one may be poverty-stricken or in distress, if he goes to God w
 
 The *jñānī,* the wise man, knows that material things are flickering. He also knows that there are three aspects that complicate all material gain—one wants profit from his work, one wants adoration from others because of his riches, and one wants fame because of his wealth. In any case, he knows that all of these apply but to the body and that when the body is finished, they also go. When the body dies, one is no longer a rich man but a spirit soul, and according to his work, he has to enter another body. The *Gītā* says that a wise man is not bewildered by this, for he knows what is what. Why then should he bother himself attaining material wealth? His attitude is, "I have an eternal connection with Kṛṣṇa, the Supreme Lord. Now let me establish that relationship firmly so that Kṛṣṇa will take me back to His kingdom."
 
-The cosmic situation is giving us all facility to reestablish this relationship with Kṛṣṇa and return to Godhead. This should be our mission in life. Everything we need is bring supplied by God—land, grain, fruits, milk, shelter and clothing. We only have to live peacefully and cultivate Kṛṣṇa consciousness. That should be our mission in life. We should therefore be satisfied with what God has supplied in the form of food, shelter, defense and sex, and should not want more and more and more. The best type of civilization is one that ascribes to the maxim of "plain living and high thinking." It is not possible to manufacture food or sex in a factory. These and whatever else we require are supplied by God. Our business is to take advantage of these things and become God conscious.
+The cosmic situation is giving us all facility to reestablish this relationship with Kṛṣṇa and return to Godhead. This should be our mission in life. Everything we need is being supplied by God—land, grain, fruits, milk, shelter and clothing. We only have to live peacefully and cultivate Kṛṣṇa consciousness. That should be our mission in life. We should therefore be satisfied with what God has supplied in the form of food, shelter, defense and sex, and should not want more and more and more. The best type of civilization is one that ascribes to the maxim of "plain living and high thinking." It is not possible to manufacture food or sex in a factory. These and whatever else we require are supplied by God. Our business is to take advantage of these things and become God conscious.
 
 Although God has given us all facilities to live peacefully on this earth, cultivate Kṛṣṇa consciousness, and finally to come to Him, in this age we're unfortunate. We are short-lived, and there are so many people without food, shelter, married life or defense from the onslaughts of nature. This is due to the influence of this age of Kali. Therefore Lord Caitanya Mahāprabhu, seeing the dreadful situation in this age, emphasized the absolute necessity for cultivating spiritual life. And how should we do it? Caitanya Mahāprabhu gives the formula:
 
@@ -518,7 +523,7 @@ Somehow or other, if one comes into contact with Kṛṣṇa consciousness and e
 > vāsudevaḥ sarvam iti
 > sa mahātmā sudurlabhaḥ
 
-**"After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare."** (Bg. 7.19)
+**"After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare."** [[bg/7/19|(Bg. 7.19)]]
 
 Philosophical research into the science of God has to be prosecuted for many births. God realization is very easy, but at the same time it is very difficult. It is easy for those who accept Kṛṣṇa's word as truth, but those who try to understand through research work, by dint of advancement of knowledge, have to create their faith after finishing so much research work, and this process takes many births. There are different types of transcendentalists, called *tattvavit,* who know the Absolute Truth. The transcendentalists call the Absolute Truth that in which there is no duality. In the Absolute Truth there is no duality—everything is on the same level. One who knows this in truth is called *tattvavit.*
 
@@ -531,7 +536,7 @@ In material nature there are five gross elements: earth, water, air, fire and sp
 > bhūtāni yānti bhūtejyā
 > yānti mad-yājino 'pi mām
 
-**"Those who worship the demigods will take birth among the demigods; those who worship ancestors go to the ancestors; and those who worship Me will live with Me."** (Bg. 9.25)
+**"Those who worship the demigods will take birth among the demigods; those who worship ancestors go to the ancestors; and those who worship Me will live with Me."** [[bg/9/25|(Bg. 9.25)]]
 
 Those who are trying to enter higher planets can go there, and those who are trying to qualify to enter into Goloka Vṛndāvana, the planet of Kṛṣṇa, can also enter there by the process of Kṛṣṇa consciousness. Before going to India, we may acquire a description of what the country is like; the hearing of a place is the first experience. Similarly, if we want to get information about the planet where God lives, we have to hear. We cannot immediately make an experiment and go there. That is not possible. But we have so many descriptions of the supreme planet in Vedic literature. For instance, the *Brahma-saṁhitā* states:
 
@@ -552,7 +557,7 @@ Those who are trying to realize the Absolute Truth are categorized according to 
 > iti matvā bhajante māṁ
 > budhā bhāva-samanvitāḥ
 
-**"I am the source of all spiritual and material worlds. Everything emanates from Me. The wise who know this perfectly engage in My devotional service and worship Me with all their hearts."** (Bg. 10.8)
+**"I am the source of all spiritual and material worlds. Everything emanates from Me. The wise who know this perfectly engage in My devotional service and worship Me with all their hearts."** [[bg/10/8|(Bg. 10.8)]]
 
 The *Vedānta-sūtra* also confirms that the Absolute Truth is He from whom everything is born. If we truly believe that Kṛṣṇa is the origin of everything, and if we worship Him, our whole account is closed in one second. But if one doesn't believe and says, "Oh, I want to see what God is," he has to go by stages by realizing the impersonal Brahman effulgence and then Paramātmā, the localized feature, before finally coming to the last stage of realizing, "Oh, here is the Supreme Personality of Godhead." It should be understood, however, that this process takes more time. When one through many years of research comes to realize the Absolute Truth, he concludes *vāsudevaḥ sarvam iti* [[bg/7/19|[Bg. 7.19] ]]—"Vāsudeva is all that is." Vāsudeva is a name for Kṛṣṇa, and it means "He who lives everywhere." Realizing that Vāsudeva is the root of everything—*māṁ prapadyate*—he surrenders. The surrendering process is the ultimate goal; either one does it immediately or after many births of research work. In either case, surrender must be there by realizing that "God is great, and I am His subordinate."
 
@@ -565,7 +570,7 @@ At this point one may ask that if the Supreme Personality is the ultimate goal a
 > taṁ taṁ niyamam āsthāya
 > prakṛtyā niyatāḥ svayā
 
-**"Those whose minds are distorted by material desires surrender unto demigods and follow the particular rules and regulations of worship according to their own natures."** (Bg. 7.20)
+**"Those whose minds are distorted by material desires surrender unto demigods and follow the particular rules and regulations of worship according to their own natures."** [[bg/7/20|(Bg. 7.20)]]
 
 There are many different types of men in the world, and they're functioning under the different modes of material nature. Generally speaking, most men are not after liberation. If they take to spirituality, they wish to gain something by spiritual power. It is not uncommon in India for a person to go to a *svāmī* and say, "Swāmīji, could you give me some medicine? I am suffering from this disease." He thinks that because a doctor is too expensive, he can go to a *svāmī* who can work miracles. In India also there are *svāmīs* who go to people's houses and preach, "If you give me one ounce of gold I can make it into one hundred ounces of gold." The people think, "I have five ounces of gold. Let me give it to him, and I'll get five hundred ounces." In this way the *svāmī* collects all the gold in the village, and after collecting it, he vanishes. This is our disease: when we go to a *svāmī,* or a temple or a church, our hearts are filled with material desires. Wanting some material profit out of spiritual life, we practice *yoga* just to keep our health fit. But, in order to keep healthy, why take shelter of *yoga?* We can become healthy through regular exercises and regulated diet. Why resort to *yoga?* Because: *kāmais tais tair hṛta-jñānāḥ* [[bg/7/20|[Bg. 7.20] ]]. We have the material desire to keep ourselves fit and to enjoy life by going to church and making God our order-supplier.
 
@@ -587,4 +592,3 @@ In relation to the Supreme Lord, all beings are to be respected. Therefore a dev
 "The Personality of Godhead is perfect and complete. Because He is completely perfect, all emanations from Him, such as this phenomenal world, are perfectly equipped as a complete whole. Whatever is produced of the complete whole is also complete in itself. Because He is the complete whole, even though so many complete units emanate from Him, He remains the complete balance." (Śrī Īśopaniṣad, Invocation)
 
 Due to the contamination of matter, the perfect living entity falls down, but this process of Kṛṣṇa consciousness will again make him perfect. Through it, he can become truly happy, and after leaving the material body, enter into the kingdom where there is eternal life, bliss and full knowledge.
-

@@ -1,0 +1,23 @@
+# Initiation of Rāma-rañjana
+
+*Type: Initiation Dated: July 5th 1971 Location: Los Angeles Audio file: 710705IN-LOS-ANGELES.mp3*
+
+**Prabhupāda:** So your spiritual name is Rāma-rañjana. Rāma-rañjana. Rāma... One who pleases Lord Rāma, Rāma-rañjana. So by your activities you have to please Lord Rāmacandra.
+
+**Devotee: **[indistinct]
+
+**Prabhupāda:** Yes. What was the business of Rāmacandra? To kill Rāvaṇas. [laughter] To kill all the atheists. That was the Rāmacandra's business: to kill Rāvaṇa. Rāvaṇa was a very powerful atheist, and he was working with the ten heads. Just like materialistic *karmīs,* they work very hard, and they have got good brain also for wording hard. So Rāvaṇa had ten heads. But the plan was to cheat Rāma. With all intelligence, with all brain, his only plan was how to cheat Rāma. That was his...
+
+He became a *sannyāsī* and he went to take some alms from Sītā. The purpose was to cheat, to enter. Because according to Vedic civilization, a *sannyāsī* has open door. He can go even inside. But that... He was the only *sannyāsī* at that time who tried to cheat. But this kind of *sannyāsī* or this kind of intelligent persons are killed by Rāma. They may make plan very nice to cheat Rāmacandra, but ultimately they become vanquished with all their planning commission.
+
+So you have to please Rāmacandra in that way, to kill all these cheaters, Rāvaṇas—those in the form of *sannyāsī,* in the form of priest, or religionist, [who] are trying to cheat the Lord. Their only business is, "There is no God," "God is impersonal," "God is void"—some way or other to say there is no God. All these proposition, "God is void," "God is impersonal," means indirectly to say there is no God. So this is Rāvaṇa's policy.
+
+And in order to please Rāmacandra, oh, we have to kill this atheist class of men who try to cheat Rāmacandra and take away His Lakṣmī, Sītā, the goddess of fortune. The materialistic persons, they are trying simply to accumulate wealth, and so they come to Rāmacandra. You see? They want money. That is Sītā. Money is goddess of fortune. So the materialistic persons, their policy is to take..., earn money like anything and employ it in sense gratification. That is their policy.
+
+But our policy is to take away the money from the atheist and employ it to the service of Rāmacandra. Just like Hanumān. Hanumān was fighting not for his personal. He was trying to recover Sītā from the hands of Rāvaṇa to bring her again to the side of Rāmacandra. That was his policy. So devotee's policy should be that "These atheists, materialists, *karmīs,* they have taken Sītā, all the goddess of fortune, money, for their sense gratification, and we, following the footstep of Hanumān, the great devotee, Vajrāṅgajī, we have to fight with this atheist class of men, and snatch from him Sītā and place her again on the side of Rāmacandra."
+
+So we may make plan. As they are making plan to take away all the monies, we have to also make plan to take the money from the Rāvaṇa and employ it for Kṛṣṇa. Of course, we are not going to cheat them, but our policy is pacifying him, that "Your money is not... Whatever you are thinking your money, it is not your money; it is God's money, Kṛṣṇa's money. If you kindly spare for Kṛṣṇa's service, then your life will be successful. Otherwise, you will be killed like Rāvaṇa." This message we can convey to all the Rāvaṇas.
+
+So Rāma-rañjana means find out the ways and means how to please Rāmacandra and how to vanquish the Rāvaṇas. That's all.
+
+Thank you. [end]

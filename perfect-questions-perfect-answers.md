@@ -1,7 +1,8 @@
 # Perfect Questions, Perfect Answers
 
+### 0a
 
-# Introduction
+Introduction
 
 God, spiritual life—those were such vague terms to me before I met Śrīla Prabhupāda. I have always been interested in religion, but before I met the Kṛṣṇa conscious devotees, somehow I did not have the proper perspective needed to inquire fruitfully about spiritual life. The existence of a Creator is only common sense—but who is God? Who am I? I had been to Hebrew School and had studied Oriental philosophy, but I could never get satisfying answers to my questions.
 
@@ -33,8 +34,9 @@ On the third day of the festival, I was invited in to see Śrīla Prabhupāda. H
 Bob Cohen 
 August 14, 1974
 
+### 1
 
-# Chapter 1: Kṛṣṇa, the All-Attractive
+1. Kṛṣṇa, the All-Attractive
 
 **Bob:**
 What is a scientist?
@@ -509,8 +511,9 @@ And the study itself is never finished.
 **Śrīla Prabhupāda:**
 No. How can it be? Kṛṣṇa has unlimited energy.
 
+### 2
 
-# Chapter 2: Vedic Culture: Varṇāśrama-dharma
+2. Vedic Culture: Varṇāśrama-dharma
 
 *Original Tape Transcript*
 
@@ -552,7 +555,7 @@ It is said in *Śrīmad-Bhāgavatam* that—
 > tayor mitho hṛdaya-granthim āhuḥ
 > ato gṛha-kṣetra-sutāpta-vittair
 > janasya moho 'yam ahaṁ mameti
-> (SB 5.5.8)
+> [[sb/5/5/8|(SB 5.5.8)]]
 
 This sex life is the basic principle of material life-attachment for man or woman. And when they are united, when a man and woman are united, that attachment becomes increased, and that increased attachment will induce one to accumulate *gṛha* (a home), *kṣetra* (land), *suta* (children), *āpta* (friendship or society) and *vitta. Vita* means money. In this way—*gṛha-kṣetra-sutāpta-vittaiḥ*—he becomes entangled. *janasya moho 'yam:* this is the illusion. And by this illusion he thinks, *ahaṁ mameti:* [[sb/5/5/8|[SB 5.5.8] ]] "I am this body, and anything in relationship with this body is mine."
 
@@ -607,8 +610,9 @@ You use that example of the cow and the market.
 **Śrīla Prabhupāda:**
 Yes—when the milk is available in the marketplace, what is the use of keeping a cow? [*Everyone laughs*.] It is a very abominable condition in the Western countries—I have seen it. Here also in India, gradually it is coming. Therefore we have started this Kṛṣṇa consciousness movement to educate people in the essential principles of spiritual life. It is not a sectarian religious movement. It is a cultural movement for everyone's benefit.
 
+### 3
 
-# Chapter 3: The Real Goal of life
+3. The Real Goal of life
 
 **Śrīla Prabhupāda:**
 This movement is especially meant to enable a human being to reach the real goal of life.
@@ -952,8 +956,9 @@ So, should I ask you another question now?
 **Śrīla Prabhupāda:**
 Oh, yes. Yes!
 
+### 4
 
-# Chapter 4: The Three Modes Of Nature
+4. The Three Modes Of Nature
 
 **Bob:**
 I have read that there are three *guṇas*—passion, ignorance and goodness—in life. I was wishing that you would explain this somewhat, especially what is meant by the mode of ignorance and the mode of goodness.
@@ -1083,8 +1088,9 @@ Does somebody forget his wife completely then?
 **Śrīla Prabhupāda:**
 Yes. Forgetting is not very difficult, if you try to forget. Out of sight, out of mind. [*All laugh*.] Just as I have my wife, children, grandchildren—everything. But, out of sight, out of mind, that's all. Therefore, *vānaprastha, sannyāsa*—everything is nicely arranged by the Vedic system.
 
+### 5
 
-# Chapter 5: Becoming Pure
+5. Becoming Pure
 
 **Bob:**
 Thank you so much for allowing me to ask my questions.
@@ -1451,8 +1457,9 @@ The devotees tell me of the ecstasy they feel when chanting.
 **Śrīla Prabhupāda:**
 Yes, the more you become purified, the more you will feel ecstasy. This chanting process is the purifying process.
 
+### 6
 
-# Chapter 6: The Perfect Devotee
+6. The Perfect Devotee
 
 **Śyāmasundara:**
 Śrīla Prabhupāda, this afternoon we were discussing austerities.
@@ -1700,7 +1707,7 @@ If anyone approaches Rādhārāṇī, She recommends to Kṛṣṇa, "Here is th
 > bāliśeṣu dviṣatsu ca
 > prema-maitrī-kṛpopekṣā
 > yaḥ karoti sa madhyamaḥ
-> (SB 11.2.46)
+> [[sb/11/2/46|(SB 11.2.46)]]
 
 A second-class devotee has the vision that some are envious of God, but this is not the vision of the best devotee. The best devotee sees, "Nobody is envious of God. Everyone is better than me." Just like *Caitanya-caritāmṛta's* author, Kṛṣṇadāsa Kavirāja. He says, "I am lower than the worm in the stool."
 
@@ -1930,8 +1937,9 @@ The point is, a perfect devotee does not make any discrimination. Whatever is of
 
 So a devotee knows his position, and he is intelligent enough to deal with others accordingly.
 
+### 7
 
-# Chapter 7: Acting in Knowledge of Kṛṣṇa
+7. Acting in Knowledge of Kṛṣṇa
 
 **An Indian gentleman:**
 By what kind of actions does one earn good *karma?*
@@ -2089,7 +2097,7 @@ This is knowledge. For instance, a child will sometimes take something important
 And then he may not go to hell?
 
 **Śrīla Prabhupāda:**
-Yes. You save him from going to hell. Because a farthing spent for Kṛṣṇa it will be accounted: "Oh, this man has given a farthing." This is called *ajñāta-sukṛti [*spiritual activity one performs unknowingly]. They are very poor in their thought. Therefore the saintly persons move just to enlighten him little. To give them a chance to serve Kṛṣṇa. Giving them a chance to serve Kṛṣṇa. That is saintly person's study.
+Yes. You save him from going to hell. Because a farthing spent for Kṛṣṇa it will be accounted: "Oh, this man has given a farthing." This is called *ajñāta-sukṛti [*spiritual activity one performs unknowingly]. They are very poor in their thought. Therefore the saintly persons move just to enlighten him little. To give them a chance. Giving them a chance to serve Kṛṣṇa. That is saintly person's study.
 
 **Bob:**
 That is what?
@@ -2285,12 +2293,13 @@ Well, that is not a fault. Suppose you are trying to do something. Due to your i
 
 > api cet su-durācāro
 > bhajate mām ananya-bhāk
-> (Bg. 9.30)
+> [[bg/9/30|(Bg. 9.30)]]
 
 Sometimes not willingly but due to past bad habits-habit is second nature-one does something nonsensical. But that does not mean he is faulty. But he must repent for that—"I have done this." And he should try to avoid it as far as possible. But habit is second nature. Sometimes, in spite of your trying hard, *māyā* is so strong that it pushes with Pitfalls. That can be excused. Kṛṣṇa excuses. But those who are doing something willingly are not excused. On the strength that I am a devotee, if I think, "Because I am chanting, I may therefore commit all this nonsense, and it will be nullified," that is the greatest offense.
 
+### 8
 
-# Chapter 8: Advancing in Kṛṣṇa Consciousness
+8. Advancing in Kṛṣṇa Consciousness
 
 Springfield, New Jersey \\
 June 12, 1972
@@ -2334,8 +2343,9 @@ Hoping this will meet you in good health and a happy mood,
 Your ever well-wisher, \\
 A.C. Bhaktivedanta Swami
 
+### 9
 
-# Chapter 9: Deciding for the Future
+9. Deciding for the Future
 
 **Bob:**
 I received your very kind letter.
@@ -2508,8 +2518,9 @@ Everything's ready, Śrīla Prabhupāda. The car is waiting for us.
 **Śrīla Prabhupāda:**
 So? We can go now? All right. Hare Kṛṣṇa!
 
+### 10
 
-# Chapter 10: Concluding words
+Concluding words
 
 On July 19, 1976, His Divine Grace Śrīla Prabhupāda accepted my wife and me as his disciples and initiated us with the names Bhakti-devī dāsī and Brahmatīrtha dāsa. As I reflect back on that day, I can see how fortunate I was to have met His Divine Grace and my Godbrothers in the Hare Kṛṣṇa movement.
 
@@ -2527,4 +2538,3 @@ Brahmatīrtha dāsa Adhikārī \\
 (Bob Cohen) \\
 Houston, Texas \\
 October 16, 1976
-

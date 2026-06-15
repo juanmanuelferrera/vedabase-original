@@ -1,197 +1,168 @@
 # Vedabase Original Edition
 
-This repository contains the complete works of His Divine Grace A.C. Bhaktivedanta Swami Prabhupada, verified word-by-word against scanned photographs of the original first-edition books published during his lifetime.
+The complete works of His Divine Grace A.C. Bhaktivedanta Swami Prabhupāda, in the form
+they were originally published during his lifetime — verified word-by-word against scanned
+photographs of the first-edition books, free from posthumous revisions.
 
 ## Purpose
 
-To preserve Srila Prabhupada's teachings in their originally published form, free from posthumous revisions. This is the first digital Vedabase that is 100% verified against the original printed books.
+To preserve Śrīla Prabhupāda's teachings exactly as he published them, before later editors
+changed the wording. Every verse, synonym, translation, and purport here can be traced back
+to a printed page that was set in type while he was alive.
 
 ## Source
 
-All texts are sourced from [vedabase.site](https://www.vedabase.site), which maintains the gold standard for original edition digital texts.
+The text comes **directly from the vedabase.cc database** (`vedabase-search-db`), the
+scan-verified original-edition corpus. The Markdown files in this repository are generated
+straight from that database — one export, no manual retyping — so they always match the
+database row-for-row. Each entry keeps the database's own markup: Devanāgarī and Bengali
+ślokas and IAST transliteration as `>` blockquotes, `*italic*` synonyms, `**bold**`
+translations, and italics inside the purports.
+
+The database itself was not copied from another digital edition and trusted. It was corrected,
+cell by cell, against the **original printed scans** using the pipeline described below.
+
+> Generate the Markdown yourself: `bash scripts/export_d1.sh && python3 scripts/build_from_d1.py`
+> (read-only — it never writes to the database). See **Contents** below for the layout.
+
+The earlier text set (sourced from vedabase.site, before this database existed) is kept for
+reference in [`legacy-vedabase-site/`](legacy-vedabase-site/).
 
 ---
 
-## Technical Methodology
+## How the originals were verified
 
-To eliminate human error and guarantee absolute accuracy, this version of the Vedabase uses a **hybrid process combining advanced automation with rigorous manual verification**, taking the original printed books as the sole authority.
+The hard problem is that the only trustworthy authority — the first-edition books — exists as
+**photographs of paper**, not as text. A scan has to be turned into reliable text before it can
+be compared to anything, and raw OCR of a fifty-year-old book is full of errors, especially on
+Sanskrit transliteration with its diacritics. So the work happens in two halves: first make the
+scans readable by machine, then let the machine find every place the database disagrees with the
+scan — while teaching it to ignore its own mistakes.
 
-### Statistics
+### 1. Making the scans machine-readable (re-OCR)
 
-| Metric | Value |
-|--------|-------|
-| Total corrections made | 4,077 |
-| Volumes verified | 66 across 20 titles |
-| Source scan PDFs | 68 documents |
-| Zero-diff volumes | 16 books required no corrections |
+Many of the source PDFs carried a poor, garbled text layer over the page image. Rather than
+trust that layer, every page is re-read from the picture:
 
----
+- **Page classification.** Each page is inspected. If a single raster image covers more than
+  ~45% of the page, it is a real scan and gets re-OCR'd. Pages that are already clean digital
+  text (some books were born-digital) are passed through untouched.
+- **Fresh OCR.** Scanned pages are rendered to **grayscale at 200–300 DPI** and run through
+  **Tesseract 5** (`--psm 6`, English), which writes a new searchable PDF — the original image
+  with a fresh, invisible text layer behind it.
+- **Same look, better text.** The output PDF looks identical to the scan, but the text you can
+  now extract is the new OCR, which fixes the garbled transliteration in the old layer.
+- **Batch + skip.** All books in `originals/` are classified; only the image-based ones are
+  processed, several in parallel, and anything already done in `improved/` is skipped — so the
+  job is resumable and re-runnable.
 
-### Mechanisms to Eliminate Human Error
+`reocr_book.py` does one book; `reocr_all.py` runs the whole shelf.
 
-- **100% Verification:** Every book was compared word-by-word against **68 scanned PDFs** of the first editions published during Srila Prabhupada's lifetime.
+### 2. Comparing scan against database — and rejecting OCR noise
 
-- **Single Source of Authority:** The scans were established as the only valid source, invalidating any prior digital source where editorial changes may have crept in.
+With clean-enough scans, the **scan is treated as the gold truth** and the database text as the
+candidate. For every book (and every Śrīmad-Bhāgavatam canto and Caitanya-caritāmṛta līlā
+separately):
 
-- **"Philosophical Changes" Audit:** A specific review was conducted of phrases known to have been altered in later editions, to confirm that Srila Prabhupada's original language was correctly restored.
+- **Extract & clean the scan.** Text is pulled with **PyMuPDF**, hyphenated line breaks are
+  re-joined (`exam-\nple` → `example`), running headers/footers are removed by frequency (a line
+  that appears near the top or bottom of ≥10% of pages is chrome, not content), and bare page
+  numbers are dropped.
+- **Fold before matching.** Both sides are normalized — Unicode NFKD, combining diacritics
+  stripped, smart quotes and dashes flattened, lowercased — so an IAST variant never registers
+  as a "difference." Diacritics are preserved in the output; folding is only used for the match.
+- **Align.** The two word streams are aligned with Python's `difflib.SequenceMatcher`, and every
+  mismatching span becomes a candidate change positioned to an exact cell and column.
+- **Classify each difference.** Spans are sorted into `trivial`, `translit` (Sanskrit on both
+  sides — not an edit), `scan_only`, `d1_only`, `big_replace`/`big_insert` (likely
+  misalignment), `noise`, and `real`.
 
-- **Double Verification:** The process included a phase of difference identification using automated tools, always followed by **manual verification**.
+This is where the scripts **correct themselves**: an OCR error in the scan would otherwise look
+like a "correction" to be applied. A garbage detector vetoes it. A scan span is rejected as OCR
+noise when it shows the fingerprints of bad OCR — half its tokens are single characters, fewer
+than ~34% are real dictionary words, or it contains tell-tale junk like `l1`, `rn`/`m`
+confusion, stray `{}|^~` symbols, or a lowercase letter glued to a capital. Only differences
+that survive every filter are reported as genuine.
 
----
+### 3. Confidence tiering and idempotent passes
 
-### Tools and Technologies Used
+The surviving `real` differences are triaged automatically:
 
-#### PyMuPDF (fitz)
-A high-precision text extraction library that allowed obtaining content from the original PDFs while preserving **IAST diacritics** (special Sanskrit characters) and formatting.
+- **Tiers.** Each is graded **alta / media / baja** (high / medium / low confidence) from its
+  dictionary-word ratio, length, and garbage signature. High-confidence, short, clean-word
+  changes rise to the top.
+- **Memory.** Every change already applied or already vetted is remembered, so a re-run reports
+  only **what is new** (`alta NUEVA`) instead of re-surfacing settled ones. Each pass therefore
+  converges instead of repeating itself.
+- **Density.** Books are ranked by differences per 1,000 words, so attention goes where the
+  divergence is densest.
 
-#### Custom Python Scripts
-Programs were developed with multi-strategy matching algorithms to apply surgical corrections to the text.
+### 4. Applying corrections safely
 
-#### Similarity Algorithms
-To ensure text patches were exact, the following were used:
-- **Trigrams:** Character sequence comparison using `difflib` and `SequenceMatcher` libraries
-- **Jaccard Index:** Used for statistical similarity analysis between texts
+Nothing is written blindly. The applier is **preview-by-default** and emits SQL only when asked.
+A change is applied only if it clears every gate:
 
-#### Advanced Text Processing
-Tools were designed to handle:
-- **Multibyte UTF-8** (necessary for Sanskrit)
-- Whitespace normalization
-- Typographic quote variants
+1. the scan (gold) side is clean, not OCR garbage;
+2. the span is small and non-trivial — large inserts/deletes are refused as probable
+   misalignment (guard at 8 words);
+3. it reproduces a **human-approved** correction pair verbatim (after folding);
+4. a **hard offset check**: the exact character span in the target database cell must fold back
+   to precisely the text being replaced — otherwise the edit is dropped.
 
-#### Automated Diffing
-Specialized software to detect discrepancies between the digital database and text extracted from scans.
-
----
-
-### Processing Pipeline
-
-1. **Text extraction** using PyMuPDF to preserve IAST diacritics
-2. **Normalization layer** handling smart quotes, hyphenated line breaks, and diacritical variants
-3. **Paragraph alignment** via Jaccard trigram similarity scoring
-4. **Diff generation** using Python's difflib SequenceMatcher
-5. **Five-layer noise filtering** to eliminate OCR artifacts, diacritical variations, and alignment false positives
-
-### Noise Filtering Strategy
-
-- Diacritic normalization (preventing IAST variants from registering as false differences)
-- OCR character confusion handling (0/O, l/1 confusion)
-- Whitespace and punctuation normalization
-- Low-similarity rejection for misaligned paragraphs
-- Manual verification of every flagged difference
-
----
-
-### Correction Methods
-
-**Full replacements** — Applied to 8 heavily edited books:
-- Teachings of Lord Caitanya (2,312 corrections)
-- Easy Journey to Other Planets (326 corrections)
-
-**Surgical patching** — Applied to books with minor corrections:
-- Srimad-Bhagavatam (635 corrections, preserving 95% of existing text)
-- Sri Caitanya-caritamrta (295 corrections)
-
-**No corrections needed** — 16 books matched the scans exactly:
-- Bhagavad-gita As It Is
-- Sri Isopanisad
-- Nectar of Instruction
-- And 13 others
-
-### Verification Metrics
-
-| Metric | Value |
-|--------|-------|
-| Detection accuracy | 99.8% of genuine edits captured |
-| False positive rate | 0.2% (filtered manually) |
-| Post-patch audit | 3 broken sentences + 8 spacing issues corrected |
+The result is a surgical, positioned patch (exact character offsets in one cell), never a
+fuzzy whole-field overwrite. Books that already matched their scans were left untouched.
 
 ---
 
-## Scripts
+## Tools
 
-The [`scripts/`](scripts/) folder contains working implementations of the verification tools:
+| Tool | Role |
+|------|------|
+| **Tesseract 5** | Fresh OCR of scanned pages (grayscale, 200–300 DPI, `psm 6`) |
+| **PyMuPDF (fitz)** | Page classification, image rendering, diacritic-safe text extraction |
+| **difflib `SequenceMatcher`** | Scan-vs-database alignment and opcode diffing |
+| **Custom Python** | Folding/normalization, OCR-garbage rejection, confidence tiering, offset-gated applier |
+| Unix `words` list | Dictionary-ratio test that separates real English from OCR noise and transliteration |
 
-| Script | Purpose |
-|--------|---------|
-| [`sync_from_source.py`](scripts/sync_from_source.py) | Download and update texts from vedabase.bhaktiyoga.es |
-| [`compare.py`](scripts/compare.py) | Text comparison engine with 5-layer noise filtering |
-| [`strip_diacritics.py`](scripts/strip_diacritics.py) | IAST diacritic processing utilities |
-
-See [`scripts/README.md`](scripts/README.md) for detailed documentation and usage examples.
-
----
-
-## Independent Verification
-
-Original scanned PDFs are available for independent verification:
-- [Google Drive archive](https://vedabase.bhaktiyoga.es/downloads) (linked from source site)
-- [Krishna.org scans](https://krishna.org)
+The verification scripts live in the companion working repository; the
+[`scripts/`](scripts/) folder here contains the database export and Markdown build
+(`export_d1.sh`, `build_from_d1.py`, `letters_format.py`) plus the comparison utilities
+(`compare.py`, `strip_diacritics.py`).
 
 ---
 
 ## Contents
 
-This repository contains 31 markdown files with full IAST diacritics and formatting:
+Generated directly from the vedabase.cc database, at the repository root. Small books are one
+file each; large works are split so every file stays browsable on GitHub:
 
-### Major Works
-- `bhagavad-gita-as-it-is.md`
-- `srimad-bhagavatam.md`
-- `sri-caitanya-caritamrta.md`
-- `krsna-the-supreme-personality-of-godhead.md`
+| Path | Contents |
+|------|----------|
+| `bhagavad-gita-as-it-is.md`, `isopanisad.md`, `nectar-of-devotion.md`, … | one file per small book |
+| `srimad-bhagavatam/canto-01.md` … `canto-10.md` | Śrīmad-Bhāgavatam, by canto |
+| `sri-caitanya-caritamrta/{adi,madhya,antya}-lila.md` | Caitanya-caritāmṛta, by līlā |
+| `letters/<year>.md` | 6,582 letters, by year |
+| `lectures-and-conversations/<year>/<id>.md` | one file per lecture / conversation |
+| `legacy-vedabase-site/` | the earlier vedabase.site text set, kept for reference |
 
-### Essential Texts
-- `nectar-of-devotion.md`
-- `nectar-of-instruction.md`
-- `isopanisad.md`
-- `teachings-of-lord-caitanya.md`
-- `teachings-of-lord-kapila.md`
-- `teachings-of-queen-kunti.md`
-- `teachings-of-prahlada-maharaja.md`
-
-### Introductory Books
-- `science-of-self-realization.md`
-- `raja-vidya.md`
-- `path-of-perfection.md`
-- `perfect-questions-perfect-answers.md`
-- `perfection-of-yoga.md`
-- `beyond-birth-and-death.md`
-- `easy-journey-to-other-planets.md`
-- `elevation-to-krsna-consciousness.md`
-- `life-comes-from-life.md`
-- `light-of-the-bhagavata.md`
-- `on-the-way-to-krsna.md`
-- `reservoir-of-pleasure.md`
-- `second-chance.md`
-- `topmost-yoga-system.md`
-
-### Lectures & Correspondence
-- `lectures-part-1.md`
-- `lectures-part-2.md`
-- `conversations-part-1.md` (1967 - June 1975)
-- `conversations-part-2.md` (July 1975 - 1977)
-- `letters.md`
+**Scope note.** Śrīmad-Bhāgavatam runs through **Canto 10** — the portion Prabhupāda himself
+completed. Cantos and chapters finished by disciples after his disappearance are not in the
+database, and so are not here.
 
 ---
 
-## Format
+## Independent verification
 
-All files are in **Markdown** format with:
-- Proper IAST diacritics (ā, ī, ū, ṛ, ṣ, ś, ṇ, ṁ, etc.)
-- Italic formatting for Sanskrit terms
-- Preserved verse structure and purport formatting
+The original scanned PDFs are available so anyone can check the text against the paper:
 
----
-
-## Credits
-
-- **Source:** [vedabase.bhaktiyoga.es](https://vedabase.bhaktiyoga.es)
-- **Original scans:** Various devotee archives, Google Drive, Krishna.org
-- **Verification methodology:** Developed by the Vedabase Original Edition project
+- [Krishna.org scans](https://krishna.org)
+- Devotee Google Drive archives (linked from the source sites)
 
 ---
 
 ## License
 
-**Scripts:** [MIT License](LICENSE) - free to copy, modify, and use.
+**Scripts:** [MIT License](LICENSE) — free to copy, modify, and use.
 
-**Texts:** Shared for educational and devotional purposes. The original works are the literary property of His Divine Grace A.C. Bhaktivedanta Swami Prabhupada.
+**Texts:** Shared for educational and devotional purposes. The original works are the literary
+property of His Divine Grace A.C. Bhaktivedanta Swami Prabhupāda.

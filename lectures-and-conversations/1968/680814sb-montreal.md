@@ -1,0 +1,404 @@
+# Śrīmad-Bhāgavatam 7.9.10–11
+
+*Type: Srimad-Bhagavatam Dated: August 14th 1968 Location: Montreal Audio file: 680814SB-MONTREAL.mp3*
+
+[Poor audio]
+
+**Prabhupāda: **[chants* Govindam* prayers, with devotees responding]
+
+> cintāmaṇi-prakara-sadmasu kalpa-vṛkṣa-
+> lakṣāvṛteṣu surabhīr abhipālayantam
+> lakṣmī-sahasra-śata-sambhrama-sevyamānaṁ
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+
+[Bs. *5.29*]
+
+**[I worship Govinda, the primeval Lord, the first progenitor who is tending the cows, yielding all desire, in abodes built with spiritual gems, surrounded by millions of purpose trees, always served with great reverence and affection by hundreds of thousands of lakṣmīs** or **gopīs.]**
+
+> veṇuṁ kvaṇantam aravinda-dalāyatākṣam-
+> barhāvataṁsam asitāmbuda-sundarāṅgam
+> kandarpa-koṭi-kamanīya-viśeṣa-śobhaṁ
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+
+[*Bs.* *5.30*]
+
+**[I worship Govinda, the primeval Lord, who is adept in playing on His flute, with blooming eyes like lotus petals with head decked with peacock's feather, with the figure of beauty tinged with the hue of blue clouds, and His unique loveliness charming millions of Cupids.]**
+
+> advaitam acyutam anādim ananta-rūpam
+> ādyaṁ purāṇa-puruṣaṁ nava-yauvanaṁ ca
+> vedeṣu durlabham adurlabham ātma-bhaktau
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+
+[*Bs*. *5.33*]
+
+**[I worship Govinda, the primeval Lord, who is inaccessible to the *Vedas,*** but obtainable by pure unalloyed devotion of the soul, who is without a second, who is not subject to decay, is without a beginning, whose form is endless, who is the beginning, and the eternal ***puruṣa;*** yet He is a person possessing the beauty of blooming youth.]
+
+Thank you very much.
+
+[break]
+
+> ...manye tad-arpita-mano vacanehitārtha-
+> prāṇaṁ punāti sa kulaṁ na tu bhūri-mānaḥ
+
+[*SB* *7.9.10*]
+
+**[If a brāhmaṇa has all twelve of the brahminical qualifications [as they are stated in the book called Sanat-sujāta] but is not a devotee and is averse to the lotus feet of the Lord, he is certainly lower than a devotee who is a dog-eater but who has dedicated everything—mind, words, activities, wealth and life—to the Supreme Lord. Such a devotee is better than such a brāhmaṇa because the devotee can purify his whole family, whereas the so-called brāhmaṇa in a position of false prestige cannot purify even himself.]**
+
+So simply by becoming proud that "I have got so much material acquisition," nobody can compete with Kṛṣṇa. That is not possible. *Anor aṇīyān mahato mahīyan* [*Kaṭha Upaniṣad* 1.2.20]*.*
+
+**[Both the Supersoul and the atomic soul are situated in the same heart of the living being.]**
+
+Kṛṣṇa, if you compare Him, then you'll find He's greater than the greatest. Just like generally, transcendentalist, they have got idea of Brahman. What is that Brahman? *Bṛhatvāt bṛhaṇatvāt iti brahma. Bṛhat* means the great. God is great. Brahman, the great. Nobody can be greater. *Bṛhatvāt bṛhaṇatvāt.* And Brahman can expand to unlimited extent. Just like *sarvaṁ khalv idaṁ brahma* [*Chāndogya Upaniṣad* 1.1]*.*
+
+**[Everything, both matter and spirit, is non-different from the Supreme Personality of Godhead who is the Supreme Brahman.]**
+
+You see the expansion of Brahma. *Parasya brahmaṇaḥ śaktir* [*Viṣṇu Purāṇa* 1.22.53]*.*
+
+**[Just as the illumination of a fire, which is situated in one place, is spread all over, the energies of the Supreme Personality of Godhead, Para-brahman, are spread all over this universe.]**
+
+Whatever we are seeing, the manifestation, expansion, this is Brahman. You can have little idea of the sky, but the sky which you are seeing, it is very little fraction, fragment, of the whole sky, Brahman sky.
+
+So Brahman is so great, and Brahman can expand. *Bṛhatvāt.* That which is greater than the greatest, and that which can expand unlimited, that is called Brahman. But in the *Bhagavad-gītā* you'll find Kṛṣṇa says, *brahmaṇo 'haṁ pratiṣṭha* [*Bg*. 14.27]*,*
+
+**[And I am the basis of the impersonal Brahman, which is the constitutional position of ultimate happiness, and which is immortal, imperishable and eternal.]**
+
+That "I am the resort of Brahman. Brahman is resting upon Me." So who is greater? Kṛṣṇa or Brahman? You'll find in the *Bhagavad-gītā, brahmaṇo 'haṁ pratiṣṭha.*
+
+Just like the sunshine. The sunshine is distributed all over the universe. According to Vedic knowledge, the sunshine is distributing its shining all over the universe, and the stars or the moons, they're glittering, being reflected by the sun. Just like in the *Bhagavad-gītā* you'll find, *nakṣatrāṇām aham śaśi* *Bg.* 10.21*.*
+
+**[Of the Ādityas I am Viṣṇu, of lights I am the radiant sun, I am Marīci of the Maruts, and among the stars I am the moon.]**
+
+Kṛṣṇa says that "Out of the many stars, I am the moon." That means moons and the stars are on the same category. As the moon is a reflection of the sun, similarly the stars are also a reflection of the sun.
+
+So this shining you can see, it is expanded all over the universe. And whoever is coming in front of that shining, sunshine, it is glittering. Just like you can see sometimes an aeroplane running very high on the sky. As soon as there is reflection of the sunshine, it glitters. So everything in touch with sunshine, it glitters.
+
+So now, the sunshine is expanding all over the universe, but where is the rest of the sunshine? The sun planet. The sun planet, you can see that it is lying in one corner of the sky. But because the sun planet is lying in one corner of the sky, does it mean that sunshine is greater than the sun? No.
+
+Similarly, Brahman may be very great. There is no question about it. But Brahman effulgence is resting on Kṛṣṇa. That you'll find in the *Brahma-saṁhitā* [sings]:
+
+> yasya prabhā prabhavato jagad-aṇḍa-koṭi-
+> koṭiṣv aśeṣa-vasudhādi-vibhūti-bhinnam
+> tad brahma niṣkalam anantam aśeṣa-bhūtaṁ
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+
+[*Bs. 5.40*]
+
+**[I worship Govinda, the primeval Lord, whose effulgence is the source of the nondifferentiated Brahman mentioned in the Upaniṣads, being differentiated from the infinity of glories of the mundane universe appears as the indivisible, infinite, limitless, truth.]**
+
+*Yasya prabhā:* "I worship the Supreme Lord, the prime, the primeval Lord, Govinda." Why? *Yasya prabhā prabhavato:* "By expansion of whose bodily luster or effulgence, *jagad-aṇḍa-koṭi,* many, many millions and trillions of universes are generated in that *brahma-jyotir.*" Exactly like the..., within the sunshine, the effulgence, there are millions and trillions of planets, similarly, in the effulgence of Kṛṣṇa, bodily effulgence, there are millions and trillions of universes.
+
+*Yasya prabhā prabhavato.* On account of His bodily luster being expanded, there are creation of so many millions and trillions of universes. But if you take it for granted that each star is a universe—no. That, according to Vedic literature, that is not accepted. But in each and every universe, there are millions and trillions of planets. *Yasya prabhā prabhavato jagad-aṇḍa-koṭi-koṭiṣv aśeṣa. Aśeṣa* means there is no end. Millions and trillions there is counting, but here it is mentioned, *aśeṣa. Aśeṣa* means there is no question of count.
+
+*Aśeṣa-vasudhādi. Vasudhā* means planet where the living entities can reside. This is the meaning of *vasudhā.* No planet is without any living entities. Every planet is full of living entities. *Vasudhādi-vibhūti-bhinnam.* But each planet is particularly opulent in a particular way. Just like you can see the moon planet is particularly opulent by some particular feature: it is very cold. Similarly, sun planet, it has got a particular feature: it is very hot. So each planet has got a different particular type of feature. *Vasudhādi-vibhūti-bhinnam.*
+
+So this is the creation. *Sarvam idam.* Therefore the Vedic injunction, *sarvaṁ khalv idaṁ brahma* [*Chāndogya Upaniṣad* 3.14.1]*:*
+
+**[Everything, both matter and spirit, is non-different from the Supreme Personality of Godhead who is the Supreme Brahman.]**
+
+"There is nothing except Brahman." But the Māyāvādī philosophers, they do not accept the varieties. They accept varieties as false. But we Vaiṣṇava philosophers, we don't accept varieties as false, but it is temporary. That is the difference. Actually it is so. Just like your body. Now if I say, "Your body is false. Let me kill you," will you agree? Then why should you call it is false? If it is false, then don't mind whether it is killed or it is left. No, it is not false. The theory of the Māyāvādī, *brahma satyaṁ jagan mithyā...*
+
+**[The Supreme Brahman is the only truth, and this material world is false.]**
+
+*Jagat,* this material world, they say it is false. We don't say it is false; it is temporary. That is the real termination, or terminology, that it is not false.
+
+So because it is temporary, so we have to make the best use of this temporary body. Don't take it as false. Just like a train... You have no experience in your country. In India we have got experience. When there is a little more stoppage of a mail train... The people of India, they are accustomed to take bath daily. So immediately they take some advantage, and they begin to take bath. And there are so many water taps in the station, and every tap is engaged. So to make the best use. Because they think that "We have got a half an hour at our disposal, so let us finish it properly." So once taken bath, then the whole day's journey is pleasant.
+
+Similarly, this body is not false. Not only this body; everything material. We don't take it is false. We take it as temporary. And temporary, how it should be utilized for our best purpose? Just like the mail passengers in the train, they are using the half an hour time for taking bath, utilize. Similarly, although this body is temporary, we can utilize it for the best purpose. What is that best purpose? Realization of Kṛṣṇa. If we can utilize this temporary body for utilization..., for understanding Kṛṣṇa consciousness and be fixed up in that Kṛṣṇa consciousness, that is the best use of the bad bargain.
+
+So Prahlāda Mahārāja therefore says in this verse, *prāṇaṁ punāti sa-kulam.* One who has engaged himself in Kṛṣṇa consciousness, *aravinda-nābha pādāravinda,* lotus feet of Kṛṣṇa or Viṣṇu, he purifies himself as well as his family. Purifies his whole family. Sometimes a Vaiṣṇava born in a village, he purifies the whole village. These are statement in authentic scriptures.
+
+So apart from village, a Vaiṣṇava born in a family can give the best service to his family, because he purifies. *Sa-kulam.* The host of his ancestors and forefathers, everyone is purified. *Na tu bhūrimānaḥ.* But the person who is simply proud of being born of a *brāhmaṇa* family, and even if he has all the good qualities of a *brāhmaṇa,* but if he's simply proud, he has not engaged his qualification in understanding Kṛṣṇa consciousness, Prahlāda Mahārāja says that he is useless.
+
+Better than him is he who has engaged his everything, *prāṇair arthair dhiyā vācā* *SB* 10.22.35*.*
+
+**[It is the duty of every living being to perform welfare activities for the benefit of others with his life, wealth, intelligence and words.]**
+
+"Everything" means I have got my body, I have got my mind, I have got my words. I can serve you by my words, just like I am serving you. Somebody can serve by his mind, somebody can serve by his bodily service. So everything should be engaged in Kṛṣṇa consciousness. Then he is glorious. He is glorious. He is better than that person who is simply materially qualified and proud of his material qualification and acquisition but does not engage himself in the service of the *aravinda-nābha,* Viṣṇu.
+
+So somebody may question, "What is the profit? Suppose I am prepared to engage my life, my mind, my words, my wealth and everything in the service of the Lord. Then what is my profit? I become insolvent, because I give everything to Kṛṣṇa. Then what I keep myself, for me?" So Prahlāda Mahārāja is very... *Kṛṣṇa yei bhaje sei baḍo catur.* Anyone who is in Kṛṣṇa consciousness, he's very intelligent. So this question he is replying.
+
+Because the next question should be like this: "Suppose I am prepared to engage everything, whatever I have got, in the service of Kṛṣṇa. Then what is my profit?" Because we are always after profit. That should be. Any intelligent man should not do anything without any profit. But they do not know what is that profit.
+
+That is also answered by Prahlāda Mahārāja somewhere else: *na te viduḥ svārtha gatiṁ hi viṣṇum* *SB* 7.5.31*.*
+
+**[Persons who are strongly entrapped by the consciousness of enjoying material life, and who have therefore accepted as their leader or guru a similar blind man attached to external sense objects, cannot understand that the goal of life is to return home, back to Godhead, and engage in the service of Lord Viṣṇu. As blind men guided by another blind man miss the right path and fall into a ditch, materially attached men led by another materially attached man are bound by the ropes of fruitive labor, which are made of very strong cords, and they continue again and again in materialistic life, suffering the threefold miseries.]**
+
+The foolish human society, they do not know that their real profit is Kṛṣṇa consciousness. Viṣṇu or Kṛṣṇa conscious, the same thing. *Durāśayā ye bahir-artha-māninaḥ.* They are trying to be profitable by the external world. They are thinking that "I shall make profit by becoming a very big businessman," just like Ford and Rockefeller and so many; in our country, Birla. No. *Durāśayā.* That is your... What is called, *durāśayā*? The hope which is never to be fulfilled. What is called that in English language?
+
+**Devotee:** Lacking?
+
+**Prabhupāda:** No. The hope. Suppose you are hoping something, but will never be fulfilled. What is called?
+
+**Devotee:** Frustration.
+
+**Devotee:** Dreams?
+
+**Prabhupāda:** No. Utopian, yes. That is the exact word. You are thinking something, building castle in the air. So *Bhāgavata* says *durāśayā,* utopian theory. That is it. He's thinking that "I shall be very great by doing this business or doing..., having this education," or this or that. So many things. Everyone has got his own plan. But *Bhāgavata* says *durāśayā,* "This is utopian." Why this utopian they have taken? They are so much educated, they are so much wealthy, beautiful and intelligent. Why *durāśayā,* utopian? Because *bahir-artha-mānina* *SB* 7.5.31*:* they have taken their basic platform the external energy.
+
+So what is the fault there? Because external energy is itself temporary. The Māyāvādī philosophy, it is called false, but we say temporary. So what is the profit by temporary achievement? Just like... There are many instances. President Kennedy, with great endeavor he became a president. Temporary. The post is temporary, say five years or four years. But still, the people, they exert so much energy.
+
+And even if he is president, if there is something wrong in somebody's mind, he is killed. So is it not utopian? His energy should have been utilized for self-realization, "What I am?" But if somebody wastes his energy to capture some utopian post which will be finished at any moment, so is it not utopian?
+
+Therefore *Bhāgavata* says they do not know their self-interest. *Bahir arthaḥ maninaḥ,* "being captivated by the external energy." *Na te viduḥ svārtha gatiṁ hi viṣṇum durāśayā ye bahir-artha-māninaḥ.* But why they are so much captivated?
+
+> andhā yathāndaiḥ upanīyamānās
+> te 'pīśa-tantryām uru-dāmni baddhāḥ
+
+[*SB* *7.5.31*]
+
+Because they follow rascal leaders. Their leadership is *andha. Andha* means blind. And they are following the blind leadership. They are themselves blind. Why blind? They cannot see future. They do not know what is going to... Because they have no understanding that "I am eternal." This temporary body is only a flash in my life. I've changed so many bodies. Just like in this present existence I have changed my body so many times, from my childhood to this old age. Similarly, I am changing my body.
+
+So this life, this body is temporary. *Durāśayā ye bahir-artha-māninaḥ. Andhā,* and I do not see my future; therefore I am blind. And the leader which is leading me, he is also blind. So a blind man leading other blind men, what is the result? The result is catastrophic. Therefore in spite of so many great leaders, politicians, scientist, educationist, the result is that problematic. The whole world is full of problems. They do not know what is their interest. The interest is this Kṛṣṇa consciousness. That they do not know.
+
+So it is the task of the members of the Kṛṣṇa consciousness to preach this. Caitanya Mahāprabhu therefore has ordered, *yāre dekha tāre kaha kṛṣṇa upadeśa* [*Cc.* *Madhya* 7.128]:
+
+**[”Instruct everyone to follow the orders of Lord Śrī Kṛṣṇa as they are given in the *Bhagavad-gītā* and *Śrīmad-Bhāgavatam*. In this way become a spiritual master and try to liberate everyone in this land.”]**
+
+Whomever you meet, your business is just try to make him convinced of the instructions as given by Lord Kṛṣṇa in the *Bhagavad-gītā.* That is the best service to the humanity.
+
+So Prahlāda Mahārāja says,
+
+> naivātmanaḥ prabhur ayaṁ nija-lābha-pūrṇo
+> mānaṁ janad aviduṣaḥ karuṇo vṛṇīte
+> yad yaj jano bhagavate vidadhīta mānaṁ
+> tac cātmane prati-mukhasya yathā mukha-śrīḥ
+
+[*SB* *7.9.11*]
+
+**[The Supreme Lord, the Supreme Personality of Godhead, is always fully satisfied in Himself. Therefore when something is offered to Him, the offering, by the Lord's mercy, is for the benefit of the devotee, for the Lord does not need service from anyone. To give an example, if one's face is decorated, the reflection of one's face in a mirror is also seen to be decorated.]**
+
+It is very nice. So the question may be that "Because everything has to be offered to Kṛṣṇa, so does it mean that Kṛṣṇa is hankering after my riches? Because I have amassed so much money by hard labor, and Kṛṣṇa is very clever that He's trying to take it away?" Yes. [laughs] Yes, that is the fact.
+
+Kṛṣṇa says in *Bhāgavata* that, *yasyāham anugṛhnāmi hariṣye tad dhanaṁ śanaiḥ* *SB* 10.88.8*.*
+
+**[The Personality of Godhead said: If I especially favor someone, I gradually deprive him of his wealth. Then the relatives and friends of such a poverty-stricken man abandon him. In this way he suffers one distress after another.]**
+
+The Pāṇḍavas, they were friends of Kṛṣṇa, and they were put into so many difficulties. Their kingdom was stolen, their wife was insulted, they were forced to live in the forest, giving up the kingdom—so many difficulties. Their house was set in fire the other party, his cousin brothers. So Yudhiṣṭhira Mahārāja, the elder, the eldest brother of the Pāṇḍavas...
+
+Practically this question was raised by Parīkṣit Mahārāja to Śukadeva Gosvāmī. The question was that Viṣṇu, or Nārāyaṇa, He's the supreme opulent, Lakṣmī-pati, the husband of the goddess of fortune. So persons who are Viṣṇu-*bhakta* or Vaiṣṇava, why they become poorer? Why this contradiction?
+
+And the devotees of Lord Śiva... Śiva presents himself as the poorest man. He has no dwelling house even. He lives underneath a tree. And his wife, Durgā, she is the proprietor of this universe. She is also following the husband. She has also agreed to live underneath the tree. Never complains, "Oh, my dear Śiva, you don't construct a house even. What is this?" She also agrees. That means they live very..., in a wretched, poor condition.
+
+So this was the question of Parīkṣit Mahārāja, that those who are worshiper of this wretched Lord Śiva—not wretched, but he places himself in such condition—they become very opulent materially. They have got very nice estate, very nice wife, very nice foodstuff. And the Vaiṣṇavas, who are worshiper of Viṣṇu, the most opulent, the controller of Lakṣmī, *lakṣmī-sahasra-śata sevyamānaṁ* [*Bs.* 5.29]*,*
+
+**[I worship Govinda, the primeval Lord, the first progenitor who is tending the cows, yielding all desire, in abodes built with spiritual gems, surrounded by millions of purpose trees, always served with great reverence and affection by hundreds of thousands of lakṣmīs** or **gopīs.]**
+
+Whom not only one, but millions and billions of goddess of fortune are always in His service, such opulent Kṛṣṇa and Viṣṇu, those who are worshiper of Viṣṇu and Kṛṣṇa, why they become poorer?
+
+This contradiction was inquired by Mahārāja Parikṣit to Śukadeva Gosvāmī, and Śukadeva Gosvāmī said that... This is the process of great personality. He said, "I'll not answer this question, but this very question was inquired by your grandfather, Mahārāja Yudhiṣṭhira, to Lord Śrī Kṛṣṇa. And it is better to take the answer directly from Kṛṣṇa."
+
+So similar question was put. Because Mahārāja Yudhiṣṭhira was little doubtful, that "I am known as Dharma-rāja, the king, personified religion, because I never tell anything lie, and my life is so pious. So..., and my brothers Arjuna and Bhīma, they're the greatest warrior. And our wife, Draupadī, she is personally the goddess of fortune. So we are combined together—religion, goddess of fortune, greatest warrior—and above all, the greatest friend, Kṛṣṇa. Why we are in difficulty?" This question was asked.
+
+Kṛṣṇa... This question was asked not for their personal benefit, just to teach us that sometimes in Kṛṣṇa consciousness you may be put in difficulty, but don't, I mean to say, be hesitated. Fixed up. You should know Kṛṣṇa's mercy. Why? Kṛṣṇa says, *yasyāham anugṛhnāmi hariṣye tad dhanaṁ śanaiḥ* *SB* 10.88.8*.*
+
+**[The Personality of Godhead said: If I especially favor someone, I gradually deprive him of his wealth. Then the relatives and friends of such a poverty-stricken man abandon him. In this way he suffers one distress after another.]**
+
+He answered to Yudhiṣṭhira, "My dear Yudhiṣṭhira, the first test of a devotee is that I, if I show him special favor, then I take away all his wealth."
+
+Why? Why this sort of special favor? Because this material attachment is so great that one cannot go to Kṛṣṇa. So anyone who is engaged in Kṛṣṇa consciousness, at the same time he wants material enjoyment, Kṛṣṇa sees his foolishness. Foolishness. Anyone who is making progress in Kṛṣṇa consciousness should not be envious, "Oh, he is so great. He is so rich man. He has got so nice palace. He has got so nice wife. I haven't got anything."
+
+Don't be. Because it is completely different life. Don't be captivated by the material opulence, even you are put into great difficulties. Because you are not this material body. You are spirit soul. So your progress should be steady on the spiritual platform. So we shall discuss this point more. The time has passed. So Prahlāda Mahārāja will explain that why one should offer everything to Kṛṣṇa. That we shall discuss in the next meeting.
+
+Thank you very much. Any question?
+
+**Haṁsadūta:** A devotee, he can be very poor, but is it okay if he's hankering after something for Kṛṣṇa? He sees, "Oh we haven't got anything. We need a house," or something like that? Why can't we... Can a devotee think like that, "Why can't we get a nice house like these people, for Kṛṣṇa"? Is that all right?
+
+**Prabhupāda:** Devotee thinks, "Why shall we not have a nice house?"
+
+**Haṁsadūta:** For Kṛṣṇa.
+
+**Prabhupāda:** Oh, for Kṛṣṇa he can have anything. That is a different thing. Not for himself. For himself, he should be satisfied whatever Kṛṣṇa offers. That's all. But for Kṛṣṇa he'll try to... Just like the example is Hanuman. Hanuman, he fought with Rāvaṇa. Why? Not for his personal sake. He did not fight with Rāvaṇa to take the kingdom of Rāvaṇa, become king there. No. He fought for Rāma. So the Kṛṣṇa consciousness person's endeavor should be to give everything to Rāma. Not...
+
+But for himself he's completely dependent on Kṛṣṇa, whatever position he may keep. It doesn't matter. He has no such perception, "Whether I'm..." He's always happy. Kṛṣṇa's service is so nice that he has no other idea what is happiness except Kṛṣṇa's service. So why shall he desire this or that? Naturally, he has no desire because he's already fulfilled his desire, being in Kṛṣṇa consciousness.
+
+But those who are thinking that "Becoming Kṛṣṇa conscious I shall become very rich, I shall become one of the richest men," that is his foolishness. That means he's not in Kṛṣṇa consciousness. He still requires to be more advanced. But actually one who is Kṛṣṇa conscious, that very consciousness is so happy that he doesn't want anything more. That very consciousness is happiness.
+
+*Ahaituky apratihatā* *SB* 1.2.6*.*
+
+**[The supreme occupation [dharma] for all humanity is that by which men can attain to loving devotional service unto the transcendent Lord. Such devotional service must be unmotivated and uninterrupted to completely satisfy the self.]**
+
+There is no other cause. A real Kṛṣṇa conscious person does not become Kṛṣṇa conscious for any other purpose. That Kṛṣṇa consciousness is his purpose. That is the end; that is the means. It is not a means to achieve something else. *Bhakti* is such thing. Therefore *bhakti* is transcendental. It is not material, that... In the material world, in exchange of something you get something else, but in the spiritual world the endeavor and the achievement, the same thing. So actually, a person who is in Kṛṣṇa consciousness, he has no such desire.
+
+*Anyābhilāṣitā-śūnyam* [*Brs.* 1.1.11]*.*
+
+**[One should render transcendental loving service to the Supreme Lord Kṛṣṇa favorably and without desire for material profit or gain through fruitive activities or philosophical speculation. That is called pure devotional service.]**
+
+The exact definition you'll find in the *Bhakti-rasāmṛta-sindhu: anyābhilāṣitā-śūnyam. Śūnyam* means completely devoid of any other desire. *Anyābhilāṣitā-śūnyaṁ jñāna-karmādy-anāvṛtam* [*Cc. Madhya* 19.167]*.*
+
+**[“’When first-class devotional service develops, one must be devoid of all material desires, knowledge obtained by monistic philosophy, and fruitive action. The devotee must constantly serve Kṛṣṇa favorably, as Kṛṣṇa desires.’]**
+
+And uncovered by the activities of knowledge or fruitive action. *Ānukūlyena kṛṣṇānuśīlanam.* Simply acting in favor of Kṛṣṇa: "Kṛṣṇa wants this, I shall do it." "Kṛṣṇa wants this fight"—Arjuna did it. Not for himself.
+
+We shall keep always in mind that Arjuna was engaged into fight not for his personal self. For his personal self he denied: "Oh, what shall I do with this kingdom by fighting with my brothers and grandfather? No. Kṛṣṇa, excuse me. I cannot fight."
+
+But when he understood that the fight is to be done for Kṛṣṇa, he took all the responsibility. Similarly, a Kṛṣṇa conscious person will not aspire anything for his sense gratification, but he will aspire for all the world for Kṛṣṇa's service. Is that clear? Yes.
+
+Yes?
+
+**Guest:** Supposing if I were to become a devotee and I might be influenced to try to live like Śiva, because richness doesn't appeal to me. But the problem is that in a country like this the winter is extremely cold, and if I try to live like Śiva I would freeze to death. So... [break]
+
+**Prabhupāda:** I have understood. I have understood. Kṛṣṇa consciousness does not mean that you falsely make some attempt. The... Just like Arjuna. Arjuna understood the Kṛṣṇa philosophy, and it does not mean that he became a naked fakir and went away from the fighting place, and without any clothing he began to travel. Is it that? No. The only thing is that he changed the account. The account was on behalf of Kṛṣṇa.
+
+So you haven't got to make such renunciation that you have to live underneath a tree or give up your dress, become naked. No. That is not... You have misunderstood. You should dress himself properly, you should eat properly, you should work properly—but not on your account, but Kṛṣṇa's account. That is the thing. That's all.
+
+> Nirbandhe kṛṣṇa-sambandhe
+> yukta-vairāgya ucyate
+
+[*Bhakti-rasāmṛta-sindhu* 1.2.255]
+
+**[When one is not attached to anything but at the same time accepts everything in relation to Kṛṣṇa, one is rightly situated above possessiveness. On the other hand, one who rejects everything without knowledge of its relationship to Kṛṣṇa is not as complete in his renunciation.]**
+
+That is the difference between Vaiṣṇava philosophy and Māyāvādī philosophy. The Māyāvāda philosophy says that *brahma satyaṁ jagan mithyā,* "This world is false and Brahman is truth. So let me become renounced of all this worldly relationship and try to be one with the Brahman." That is Māyāvāda philosophy.
+
+We don't say that. We say that because Brahman is *satya,* truth, and because the world is created by Brahman, so this is also truth. This is also truth. *Pūrṇam idaṁ pūrṇam adaḥ pūrṇāt pūrṇam udacyate* [*Īśopaniṣad,* Invocation]*.*
+
+**[The Personality of Godhead is perfect and complete, and because He is completely perfect, all emanations from Him, such as this phenomenal world, are perfectly equipped as complete wholes. Whatever is produced of the Complete Whole is also complete in itself. Because He is the Complete Whole, even though so many complete units emanate from Him, He remains the complete balance.]**
+
+That is the version of *Upaniṣad.* The thing is, difference between Māyāvādī and Vaiṣṇava, they do not know the proprietorship. We know the proprietorship. We don't accept anything as "I am the proprietor." This is mistake. This is *māyā.* Actually... If I take, "It is Kṛṣṇa's," then I am liberated. Just try to understand. You are sitting here. You know that this apartment or this loft belongs to somebody. So there is no harm sitting here, hearing here. But if you think that "This is mine," and if you want you take something out of this, then there is trouble.
+
+Similarly, this world belongs to Kṛṣṇa. If you have always that consciousness that it belongs to Kṛṣṇa... Just like a bank cashier. He knows that millions of dollars is coming to him, but he knows that "This is belonging to the bank. I am simply cashier." Similarly, you can deal with all the worldly things, but if your consciousness is Kṛṣṇa, then you are free.
+
+> Nikhileṣv apy avasthāsu
+> jīvan muktaḥ sa ucyate
+
+[*Bhakti-rasāmṛta-sindhu* 1.2.187]
+
+**[One who engages in the transcendental service of the Lord in body, mind and word is to be considered liberated in all conditions of material existence.]**
+
+In every condition of life if one is Kṛṣṇa conscious, he's always liberated. He's not affected.
+
+So that is Kṛṣṇa consciousness. Kṛṣṇa consciousness does not teach you to become a false renouncer. What is the use of becoming a renouncer? After all, you have got this body. How can you renounce it? Either you cover it with underwear or either you cover it with costly dress, you have to cover it. So that covering also belongs to Kṛṣṇa.
+
+So we have to be situated under the consciousness that "Everything is Kṛṣṇa's. Nothing belongs to me." That is the actual fact. But by illusion we are accepting, "This is mine," "This is mine," "This is mine." We have to give up this consciousness and accept the Kṛṣṇa consciousness. That is our preaching. Is that clear?
+
+Yes?
+
+**Mālatī:** Swāmījī, I don't understand when you say that you worship Kṛṣṇa or Viṣṇu. I don't understand if Kṛṣṇa is Viṣṇu or Viṣṇu is Kṛṣṇa.
+
+**Prabhupāda:** Yes. Kṛṣṇa... There are several categories of living entities. Kṛṣṇa is also living entity. Viṣṇu is also living entity. You are also living entity. Lord Śiva is also living entity. Every one of us. But there are categories. Just like in your Montreal city, there are hundreds of millions of people. But someone's status is higher than the others. Similarly, Kṛṣṇa is the original living entity. *Govindam ādi-puruṣam. Ādi-puruṣam* means original. And from Him everything has expanded. *Eko bahu śyāma.* He has expanded Himself in many.
+
+So some of them are in the Viṣṇu category. The Viṣṇu category means they are almost equal to Kṛṣṇa. It is estimated the Viṣṇu categories, They have ninety-four percent opulence of Kṛṣṇa. And the next category is Śiva category. The Śiva category has eighty-four percent of all the opulence of Kṛṣṇa. And the next category is Brahmā category. Brahmā.
+
+Brahmā category means living entities, when they are perfect, they can obtain seventy-eight percent of the opulence of Kṛṣṇa. So Kṛṣṇa is cent per cent, Viṣṇu or Nārāyaṇa is ninety-four percent, Lord Śiva is eighty-four percent, and we, in our perfection, we are seventy-eight percent. Is that clear?
+
+**Mālatī:** Well, I don't understand then why you'd worship Viṣṇu and not Kṛṣṇa. I don't understand that why then you'd go to Viṣṇu and not to Kṛṣṇa if Kṛṣṇa is higher?
+
+**Prabhupāda:** Why do you, I mean to say, take care of your child? Why not other child? They are also children. Why don't you take care? Answer this?
+
+**Mālatī:** Because this child was given to me.
+
+**Prabhupāda:** You love him. That's all. Similarly, if you love Kṛṣṇa, that's all right. If you love Viṣṇu, that is also all right. But you cannot derive the same result by loving Kṛṣṇa and by Viṣṇu. Therefore it is your selection, whom should you love.
+
+Kṛṣṇa is cent per cent and Viṣṇu is ninety-four percent. So if you want to worship or love ninety-four percent, that is also almost Kṛṣṇa. But Kṛṣṇa is cent per cent, *pūrṇam. Mattaḥ parataraṁ kiñcid asti dhanañjaya* [*Bg*. 7.7]*.*
+
+**[O conqueror of wealth [Arjuna], there is no Truth superior to Me. Everything rests upon Me, as pearls are strung on a thread.]**
+
+In *Bhagavad-gītā* you'll find that He is the supreme.
+
+> ahaṁ sarvasya prabhavaḥ
+> mattaḥ sarvaṁ pravartate
+> iti matvā bhajante māṁ
+> budhā bhāva-samanvitāḥ
+
+[*Bg. 10.8*]
+
+**[I am the source of all spiritual and material worlds. Everything emanates from Me. The wise who know this perfectly engage in My devotional service and worship Me with all their hearts.]**
+
+"I am the origin of everything, including Viṣṇu, Brahmā, Śiva, living entities, everything." *Iti matvā.* So intelligent persons, if I have to love, why not love the greatest personality, Kṛṣṇa, who is cent per cent perfect? That is your selection. If you select ninety-four percent, there is no harm, but best thing is why not cent per cent.
+
+Is that all right? Not yet clear?
+
+**Mālatī:** That part I understand. What I don't understand is why... Why would they take less than Kṛṣṇa? Why would you take less than Kṛṣṇa? If Kṛṣṇa is cent per cent, why take less?
+
+**Prabhupāda:** I don't follow what you say. What is that?
+
+**Haṁsadūta:** Why would someone take less? Why would someone choose Viṣṇu and not Kṛṣṇa if they know that Kṛṣṇa is cent per cent and Viṣṇu is ninety-four percent?
+
+**Prabhupāda:** That we have already answered. Why you like this child?
+
+**Mālatī:** No, what I mean is...
+
+**Prabhupāda:** That is your selection.
+
+**Mālatī:** Then what I want to know is, if you worship Kṛṣṇa and you go to Kṛṣṇaloka.
+
+**Prabhupāda:** Yes.
+
+**Mālatī:** And if you worship Viṣṇu, what happens to you? Where do you go? What happens to those people?
+
+**Prabhupāda:** He goes to Viṣṇuloka.
+
+**Mālatī:** And it's not... Is it eternal? Is it eternal?
+
+**Prabhupāda:** Yes. That is also. Any place in the spiritual sky, they are eternal. If that is your question... Now, either Viṣṇu planet or Kṛṣṇa planet, they are all in the spiritual world. Or the impersonal Brahman, that is also in the spiritual world. So somebody wants to be merged into the Brahman effulgence, so that is also a spiritual world.
+
+Somebody wants to go into the Viṣṇu planets, that is also in the spiritual world. And somebody wants to go to this Kṛṣṇa planet, that is also in the spiritual sky. But there are differences even in the spiritual sky. The difference between spiritual sky and material sky is that everything in the spiritual sky, they are eternal, and everything in the material sky, they are temporary. That's all.
+
+Oh, so many? You, you.
+
+**Gurudāsa:** Isn't *brahma-jyotir* temporary in the fact that you can come back down to the earth? Back to the material world?
+
+**Prabhupāda:** *Brahmacārī?*
+
+**Gurudāsa:** *Brahma-jyotir.*
+
+**Prabhupāda:** No. *Brahma-jyotir* means spiritual sky. This material sky means *brahma-jyotir* is covered by material cloud. Actually, everything is *brahma-jyotir.* Just like clear sky, but some portion of the sky is sometimes covered by cloud. Some portion only. The whole sky is never covered by sky. Similarly, some portion which is covered by this material atmosphere, that is called material world. That's all.
+
+Actually, the original sky is spiritual. Original sky is full of sunshine, but the covered portion means we cannot see the sunshine. Covered portion by cloud means we cannot see the sunshine. And similarly, this material sky means where we cannot see the spiritual effulgence. That is the difference. Otherwise, even this material sky is also a spiritual sky. The spiritual sky is the original status. Yes.
+
+**Guest:** [asks long, indistinct question about what questions he can ask]
+
+**Prabhupāda:** Yes, any question you can ask.
+
+**Guest:** I have noticed when everybody touches their head to the floor. And this I find so disturbing [indistinct] another man and kiss their boots. I found that [indistinct]. And to tell you frankly, I find it quite shocking, too, that people place their head on the ground before another man. And you are a man like that. You are a man of knowledge, and you're [indistinct]. But yet I can't see the point of people touching their heads to the floor...
+
+**Prabhupāda:** You have been asked to do that?
+
+**Guest:** Nobody asked me, but I see everybody else does it.
+
+**Prabhupāda:** Then why you are feeling so disturbed?
+
+**Guest:** Because to me, people are people, and there's... No man is a God, and it's just appearing as if you were...
+
+**Prabhupāda:** But as you are thinking that they should not, they are thinking that you should. [laughter] As you are thinking they should not do like that, they are thinking you must do that. Then what is it? Difference of opinion. Your vote is single and they are so many. So you have to follow the greatest majority vote.
+
+**Guest:** Unless I am given a very good reason to do so...
+
+**Prabhupāda:** No, I am answering your question. As you are thinking in that way, they are also at liberty to think otherwise. So you cannot encroach upon their thinking.
+
+**Guest:** I will not do that.
+
+**Prabhupāda:** So therefore as you are thinking that they should not have done, they are thinking you should have done. The real question is that they are following a system. So in that system, the spiritual master is offered respect in that way. There is a system. And they don't feel any uneasiness by doing that.
+
+**Guest:** But if I were to enter politics and..., [indistinct] and suppose I were to attack some people who have actually the leadership of foreign powers or something like that, and a newspaper man would tell my opponents that that man has... [break]
+
+**Prabhupāda:** Newspaper man has poor vision. He's seeing "Indian" and "American" and "Canadian." So his vision is poor. If anyone thinks that "This Swāmījī is coming from India, and the Americans or Canadians, they are offering their respect in that way," so he has to expand his vision in Kṛṣṇa consciousness. That... Just like it is stated in the *Bhagavad-gītā* that,
+
+> brahma-bhūtaḥ prasannātmā
+> na śocati na kāṅkṣati
+> samaḥ sarveṣu bhūteṣu
+> mad-bhaktiṁ labhate parām
+
+[*Bg.* *18.54*]
+
+**[And of all yogīs, he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in yoga and is the highest of all.]**
+
+So these obei... [break] ...is taught, just like Kṛṣṇa is asking everybody, Arjuna, that *mām ekaṁ śaraṇaṁ vraja* *Bg.* 18.66*.*
+
+**[Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear.]**
+
+This is our system. Just like anyone who comes to the temple, he at once offers by falling flat, offering respect to the Deity. And the spiritual master is accepted as representative of the Deity. He's the living representative.
+
+That is the system everywhere. Just like in our India somebody was going as viceroy, representative of the King in England. Oh, he was being offered all the respect of a king. Nobody bothered, "Oh, he's coming from England. Why a *brāhmaṇa* should offer respect to the viceroy?" No. They never grudged. That is a system. The representative of a king, if he can be offered such respect, then how much respect should be offered to a person who is representative of Kṛṣṇa?
+
+[pause] Yes?
+
+**Devotee:** Swāmī, is the idea that matter is neither created nor destroyed, but the substance is eternal but the form is temporary? Is that...
+
+**Prabhupāda:** Yes. Yes. That is the way. Everything here in the material world is temporary. Anything you take, anything material, that is temporary. Similarly, this body is temporary, this house is temporary, this country is temporary. Say some five hundred years ago, this was not Canada; it was something else. Similarly, in some other time, it will be different. So nothing is fixed up or permanent in this material world.
+
+Yes?
+
+**Guest:** Some time ago, I... [break]
+
+**Prabhupāda:** ...either belonging to the Indians or to the Canadians. It belongs to Kṛṣṇa. [laughter] Actually, that is the fact. Everything belongs to Kṛṣṇa. We simply falsely say that "This is, belongs to Canadian," "This is, belongs to Indian," "This is, belongs to Englishman." This is *māyā.* Actually... [break] [end]

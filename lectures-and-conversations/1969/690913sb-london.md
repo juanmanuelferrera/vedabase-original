@@ -1,0 +1,279 @@
+# Śrīmad-Bhāgavatam 5.5.1–2
+
+*Type: Srimad-Bhagavatam Dated: September 13th 1969 Location: London Audio file: 690913SB-LONDON.mp3*
+
+**Prabhupāda:** ...many thousands of years before, Ṛṣabhadeva... He is accepted as the incarnation of Godhead, king, or emperor of the world. He instructed His sons. He had one hundred sons, and He was... Before retiring from His family life, He wanted to install His eldest son, Mahārāja Bharata, on the throne. And before retiring He was instructing His other sons as [indistinct].
+
+Mahārāja Bharata was a great king, and after his name, India is called Bhārata-varṣa. [break] This planet is..., was known before that as Ilāvṛta-varṣa, and after Mahārāja Bharata ruled, this planet was known as Bhārata-varṣa. Gradually, the planet was divided into so many other states. Now Bhārata-varṣa means a small piece of land known as India.
+
+Anyway, the king of this planet, Ṛṣabhadeva, was instructing His sons as follows:
+
+> nāyaṁ deho deha-bhājāṁ nṛloke
+> kaṣṭān kāmān arhate viḍ-bhujāṁ ye
+> tapo divyaṁ putrakā yena sattvaṁ
+> śuddhyed yasmād brahma-saukhyaṁ tv anantam
+
+[*SB* *5.5.1*]
+
+**[Lord Ṛṣabhadeva told His sons: My dear boys, of all the living entities who have accepted material bodies in this world, one who has been awarded this human form should not work hard day and night simply for sense gratification, which is available even for dogs and hogs that eat stool. One should engage in penance and austerity to attain the divine position of devotional service. By such activity, one's heart is purified, and when one attains this position, he attains eternal, blissful life, which is transcendental to material happiness and which continues forever.]**
+
+He's instructing, "My dear sons, this human form of body is not to be wasted like cats and dogs." What is that? How this body is wasted like cats and dogs? Now, *kaṣṭān kāmān. Kāmān* means sense gratification. So with hard labor, ultimate end of hard laboring is sense gratification.
+
+Now, not only in your country, but also in all other countries at the present moment, everyone is trying to make economic development. What is that economic development you have got very good idea: industrialization, high standard of living and so many other things. But the end is sense gratification. The purpose of economic development... It is wonderful for us. We are Indian. When we see... When I was in Los Angeles, there is a freeway. So eight lines of cars running in seventy miles speed this way, and eight miles of lines running cars on the opposite side.
+
+And unfortunately, one day we had one car which was running at thirty-five miles only, and our Gaurasundara was driving. [chuckling] Immediately he was arrested by the police. Not exactly arrested—stopped. That means you cannot run your car in this way, thirty-five miles speed. So now from impartial point of view, if we study why people are running in this way and that way, what is the ultimate goal? If we calculate very..., in cool head, the ultimate goal is sense gratification. That's all.
+
+So however busy we may be, however intelligent we may be, however advanced we may be in material civilization, the real point is sense gratification. I have seen in the Times Square in New York, there are so many advertisement for sense gratification, advertising, "Here you'll have nice girls. Come on," like that. Freely written, and some naked picture. And so many theaters. The whole idea is sense gratification. That's all.
+
+Ṛṣabhadeva... It is not new. This is very old-fashioned. This sense-gratificatory process is current in all other planets, even which we call the demigods' planet, heavenly planet, the moon planet, the sun planet—everywhere. From the highest planet, Brahmaloka, down to the, what is called, Pātālaloka... There are different Sanskrit names of different planets. Everywhere in this material world is..., the ultimate point is sense gratification. That's all.
+
+So Ṛṣabhadeva is pointing out that this sense gratification problem or desire or propensity is there even in the hogs and dogs. Therefore He says, distinguishing the human form of life from the life of lowest class of animals, that He says *ayaṁ deha,* "this body." *Na ayaṁ deho deha-bhājāṁ nṛloke. Nṛloke* means in the human society. Everyone has got body. The dog has body, the cat has body, the tiger has body, the bird has body. Everyone has got body. Similarly, we have also got body. Therefore He is warning, "My dear sons, in this body the aim of life should not be sense gratification after so much trouble."
+
+If the point is sense gratification, then why so much, I mean to say, manifestation of economic development? Do you think that those who are not fortunate to have these flyways or motorcars or a skyscraper building... Take, for example, the most aborigines, the most uncivilized nation somewhere in Africa or any other parts of the world. Are they not sense-gratifying? The dogs and hogs, they are not sense-gratifying? So if the ultimate aim of life is simply sense gratification, then why should we take so much trouble?
+
+There is a very nice story—these are very instructive story from *Bhāgavata.* There was a very nice prostitute. Her fee was, if anyone wants to visit that prostitute, she was charging one hundred thousands of, what is called, diamond pieces. Diamonds, you can understand, one diamond piece is at least five hundred dollars. So she used to charge, "If somebody wants to visit my house, then he must pay one hundred thousand pieces of diamond."
+
+So there were rich men. For sense gratification she was being paid. But one poor man and diseased man, so he had his very faithful wife. Although he was very poor and diseased, his wife was serving him very nicely. The husband could not work because he was diseased, and the wife was working, and, I mean to say, maintaining her husband, herself. Fortunately she had no children. But the husband was always morose.
+
+Now the wife is asking, "My dear husband, I am trying to satisfy you in so many ways, working myself and cooking for you, giving you foodstuff, and I am getting you bathed and everything. Why you are so morose?" So he was hesitating to disclose his mind. When she insisted that "You disclose. Why you are sorry? Then I shall try to satisfy you..."
+
+[aside:] Come on.
+
+...so he disclosed his mind. What is that? "I want to visit that prostitute." Just see. He is poor man and [chuckling] he is diseased. Just see how much this lust and sense gratification is strong. He was thinking of going to that prostitute, and he disclosed his mind to his wife.
+
+Wife was very faithful. She wanted to satisfy her husband. So she promised, "My dear husband, I shall try my best to take you to that prostitute." "Oh, where you'll get one hundred thousand pieces of diamond?" "All right. I shall see to it." Then she went to the prostitute's house, and without her permission she was washing her dishes, her clothes and, I mean to say, sweeping the rooms and everything. The prostitute asked, "Who are you? You are coming. You are not charging anything. You are not asking anything. What do you want?" "I shall tell you."
+
+So in this way, when she was daily asking that "What is your mind? You tell me. You are very nice woman. You are, for nothing you are working for me. I must something do for you." Then she disclosed her mind: "My dear lady, I am very poor man [woman], but my husband, he is diseased and he has no money, but he wants to visit you." So the woman could understand. She said, "Yes. You can bring your husband on the..., on such-and-such date." So she was very glad and told her husband that "I have fixed up, appointed a date. You shall be able to go." Oh, he was very glad.
+
+Now, when the man visited the prostitute's house, she received the man. In India it is system that when you receive a gentleman or lady you must give him sumptuously to eat. So there was many palatable dishes served to the man, and each vegetable and each preparation was put in two pots—one in iron pots and one in golden pots. So he was eating. Now this man asked the prostitute, "Well, you have given me the same preparation in two pots: one in gold pot and one in iron pot. Why? What is the idea?" So she said that "First of all taste it. Then I shall disclose what is the idea." So he was tasting, eating. Then the prostitute asked him, "How do you like?" "Oh, it is very nice." Then, "Is there any different taste in the golden pot?" "No. Same taste." "And the iron pot?" "Oh, the same taste."
+
+So she replied at that time that "You are so rascal that you want to gratify your senses, but you do not know that sense gratification in poor wife or rich wife is the same. There is no difference of taste, so why you are after a woman by paying this one hundred thousands of jewels?"
+
+[break] The idea is... This story is very instructive, and it is mentioned in the *Śrīmad-Bhāgavatam.* The idea is the same thing...
+
+[break] ...sense gratification is the ultimate aim of life, then why so much hard trouble for decorating the process of sense gratification? Why wasting so much time for decorating?
+
+So Ṛṣabhadeva is asking that sense gratification, there is necessity, because we have got senses. But not with too much trouble, accepting too much trouble in the name of economic development. Because our time is very valuable. If we want to utilize our short duration of life which we have got at our disposal, we must utilize it for self-realization, not for unnecessarily increasing the necessities of bodily wants. This is not a good type of civilization, simply wasting time for sense gratification. Time should be utilized for greater advantage.
+
+Cāṇakya Paṇḍita says that *āyuṣaḥ kṣaṇa eko 'pi na labhyaḥ svarṇa-koṭibhiḥ.*
+
+**[Even one moment of life spent cannot be regained for millions of gold coins. Therefore, what greater loss is there than time spent uselessly?]**
+
+You know... In your country I have seen many tablets, "Time is money." Yes, actually time is very valuable, but we do not know how to utilize this time. That is the mistake of this present civilization. Time should not be, I mean to say, wasted simply for sense gratification. So far the problem of sense gratification is there, it should be minimized. It should not be increased. Minimized.
+
+Just like according to Vedic system there are *brahmacārī, gṛhastha, vānaprastha* and *sannyāsa—*four divisions of the society. *Brahmacārī, vānaprastha... Brahmacārī* means student life, *vānaprastha* means retired life and *sannyāsa* means renounced life. For them the minimum necessities of life is prescribed. And they should be automatically minimum, because they are ordered to beg from door to door and live. The *brahmacārī* is meant for begging.
+
+Now, no beggar can live very luxuriantly. That is not possible. It is not possible. So if a beggar goes somebody's house, "Mother, give me some alms," so it is not that one is awarding some hundred thousands of rupees or dollars. So naturally, they have minimized their... Only little luxury or, I mean to say, high standard of life is allowed to the *gṛhasthas,* according to Vedic system, and the three other sections of the society, they should minimize. Why minimize? Because the idea is not to waste time unnecessarily. Unnecessarily.
+
+After all, either you live very high standard of life or low standard of life... There is no question of low standard of life. The proper upkeep of health is cleanliness. If you keep yourself clean, then your, I mean to say, problem of health is solved. Simply cleanliness. "Cleanliness is next to godliness." That is also an English proverb. And in Sanskrit literature also, *bāhyābhyantara-śuciḥ* [*Garuḍa Purāṇa*]: "One should be cleansed within and without."
+
+**[Either pure or impure, or having passed through all conditions of material life, if one can remember the lotus-eyed Kṛṣṇa, he becomes externally and internally clean.]**
+
+So without, you can clean yourself simply by water. By the laws of nature you have got enough water so you can cleanse yourself outside by water. There is no necessity of soap. There is no necessity of anything. Simply if you wash your body with water sufficiently. Of course, in your country it is cold country. In India, common people, they go to the river and take bath very nicely, because it is a tropical climate; there is no trouble. So you can cleanse your body.
+
+There are many saintly person residing on the bank of the river Ganges. Early in the morning they cleanse the body. They go to evacuate on the field. After evacuating they come to the river, cleanse the body very nicely, and smear the body with the clay received from the river, and they sit down at a place and chant Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa—whole day. They don't care for whether they have got to eat or not to eat. By God's grace somebody is coming, somebody is giving something, somebody is giving something. Just like in your country also you are offering, somebody is offering food, somebody is offering something.
+
+So there is arrangement by God's law, everyone shall eat. It is not that... You have never seen any animal or any bird has died for starvation. No. There is no starvation in the law of God. Everyone has food. *Viṣayaḥ khalu sarvataḥ syāt* *SB* 11.9.29*.*
+
+**[After many, many births and deaths one achieves the rare human form of life, which, although temporary, affords one the opportunity to attain the highest perfection. Thus a sober human being should quickly endeavor for the ultimate perfection of life as long as his body, which is always subject to death, has not fallen down and died. After all, sense gratification is available even in the most abominable species of life, whereas Kṛṣṇa consciousness is possible only for a human being.]**
+
+By the laws of nature, by God's order, everyone has, I mean to say, provision for four things. What is that? Eating, shelter and sense gratification and defense. *Āhāra-nidrā-bhaya-maithunaṁ ca* [*Hitopadeśa* 25]*.*
+
+**[Both animals and men share the activities of eating, sleeping, mating and defending. But the special property of the humans is that they are able to engage in spiritual life. Therefore without spiritual life, humans are on the level of animals.]**
+
+This is secure. Everyone. If you see a bird, bird's life... By nature, one bird has got another mate. A male and female, they are together. Anywhere you go: a tiger, a tigress; a dog, a she-dog; a hog, a she-hog. So these are not problems. Here also, anyone: a boy, a girl; a man, woman, there is. So the arrangement is there. That is not problem.
+
+So we should be satisfied. The Kṛṣṇa consciousness means whatever is received through the mercy of God, we should be satisfied. That's all. Therefore we prescribe that our students should be married. Because that is a problem. Sex life is a problem. So this marriage in every society, either Hindu society or Christian society or Muhammadan, marriage is done under religious rituals. That means one should be satisfied: "Oh, God has sent me this man as my husband." And the man should think that "God has sent me this woman, this nice woman, as my wife. Let us live peacefully." But if I want, "Oh, this wife is not good. That girl is nice," "This man is not good. That man is good," then the whole thing is spoiled. Whole thing is spoiled.
+
+Because these demands are there, sense gratification. On the basis of sense gratification, "I don't like this girl. I like that girl," "I don't like this boy. I like that boy," that means sense gratification...
+
+[break] Otherwise, the sense gratification... As I have already cited the example, the prostitute gave two pots of vegetable, that "You are thinking that you shall enjoy this woman who is charging one million dollars, or like that, the sense pleasure from this woman will be greater than the other woman. It is mistake." The sense pleasure is the same, either you derive it from this man or that man or this woman or that man.
+
+So if our Kṛṣṇa consciousness improves, then we may be satisfied whatever is *kṛṣṇa-prasāda.* That's Kṛṣṇa cons... Whatever Kṛṣṇa has offered me, that is sufficient; no more. Then your problem of sense gratification is solved. Similarly, your bread problem is solved, your apartment problem is solved. If you make your life very simple and shortcut, then the balance time you can utilize for Kṛṣṇa consciousness. This is the program. This is the program of Vedic civilization.
+
+You'll find great scholars, Vyāsadeva... There is no, I mean, the comparison of his scholarship, how many... Now, this *Śrīmad-Bhāgavatam,* he has written eighteen thousand verses. And not only *Śrīmad-...* He has written eighteen *Purāṇas.* Out of eighteen *Purāṇas,* the *Śrīmad-Bhāgavatam* is one *Purāṇa.* And in one *Purāṇa* you'll find eighteen thousand verses, and each and every word is so meaningful that you study throughout your whole life, oh, still you'll find refreshed.
+
+Why this *Śrīmad-Bhāgavatam*? There is *Mahābhārata.* And out of the *Mahābhārata,* the *Bhagavad-gītā* is only one chapter, seven hundred verses. Such a great scholar was living in a cottage. You see? Not only that. He was, of course, *brāhmaṇa,* he was saintly... But he was family man. He had his wife, he had his children.
+
+Similarly, you'll find the history of Cāṇakya Paṇḍita. He was a great politician, prime minister of Emperor Candragupta. Those who have read history of India, they know it. The Candragupta was during the time of Alexander the Selkar[?] in Greece. He also visited India to conquer. That history is there. So at that time Candragupta was the emperor of India, and he had his prime minister Cāṇakya Paṇḍita. And he was not charging a farthing. And he was vastly learned man. You see?
+
+His politics is studied in the M.A. class in Indian university. And those who are the students of politics, they might have known this gentleman's name, Cāṇakya Paṇḍita. And in India, New Delhi, there is a quarter where foreign ambassadors are supplied place. So that quarter is known as Chanakyapuri. Chanakyapuri. Because he was politician, under his name that place is ascertained Chanakyapuri.
+
+So the prime minister, the great scholar, the great scientist, they used to live in a cottage. They gave us so much contribution how to make scientific advancement. Because the *brāhmaṇas,* they were meant not for material enjoyment. Simply for... Therefore four classes. Only the *kṣatriyas* and *vaiśyas* were meant for economic development.
+
+So the whole idea here is expressed by Ṛṣabhadeva. "My dear sons," *ayaṁ deho deha-bhājāṁ nṛloke kaṣṭān kāmān na arhate viḍ-bhujāṁ ye,* "you should distinguish yourself from the hogs and dogs, that simply for sense gratification, this life is not meant for working very hard." That is the modern civilization. Not only here... Now, every..., the whole material world, history is like that. People are after sense gratification.
+
+[aside:] Come on.
+
+So Viśvanātha Cakravartī Ṭhākura, a great commentator on *Śrīmad-Bhāgavatam,* is explaining this verse that *kaṣṭān, kaṣṭa-pradan kāmam yoṣit-darśana-sparśanadim na arhate naivarhati iti.*[?]* Kāmān.* He has plainly explained that *kāma,* sense gratification, means to see woman with lust or to touch woman with lust. That is called *kāma,* or sense gratification.
+
+So this is natural. Materialistic life means whenever there is some beautiful woman or girl, it is natural. It is not... One sense, it is not bad, because it is natural. There is a very nice verse written by Rūpa Gosvāmī. He is explaining, *yuvatīnāṁ yathā yūni yūnāṁ yathā yuvatau.* [*Viṣṇu Purāṇa* 1.20.19]
+
+**[Just as the minds of young girls take pleasure in young boys, and young boys take pleasure in young girls, kindly allow my mind to take pleasure in You alone.]**
+
+*Yuvatī* means young girl, and *yūna* means young boy. So he is expressing his desire, "My dear Lord, as a young boy has got natural affection for a young girl, or a young girl has got a natural affection for a young boy..." Spontaneously. It is not to be taught or to be educated in the schools and colleges. Spontaneously the attraction is there. "...how my attraction for You will be like that, spontaneous?" It is a very nice example.
+
+So this attraction for man or woman is called *kāma.* Viśvanātha Cakravartī Ṭhākura says that this has to be controlled. This has to be controlled. That is the distinction between human life and animal life. Animal life, they are still controlled, but human life, being so-called advanced in civilization, they have no control. You'll be surprised that lion... These examples are given in the *śāstras.* It is not that the animal-eaters or meat-eaters have got more passion than the vegetable-eaters. No.
+
+The example is given there is the *śāstra,* comparison between lion and the pigeons. The pigeons are vegetarian. They simply eat grains. And the lions, they eat only meat and flesh. So... But still, in spite the lion's eating flesh, he has got only one sex appetite, once in a year. But the vegetarian, the pigeon, although eating grains, oh, at least hundred times daily. You see?
+
+So it is not that the vegetarians are less passionate than the animal-eaters or flesh-eaters. Nature's codes are different. It can be controlled. But human consciousness, this control is, I mean to say, practiced from the *brahmacārī* life. Because the... Unless we control our sex life, there is very little possibility of advancing in spiritual consciousness.
+
+Because spiritual perfection means to stop the transmigration of the soul from one body to another. That is real spiritual perfection: stopping; stopping the soul, the spirit soul, transmigrating. This process is going on. *Ei rūpe brahmāṇḍa bhramite kona bhāgyavān jīva* [*Cc.* ***Madhya*** 19.151]*.*
+
+**[“According to their karma, all living entities are wandering throughout the entire universe. Some of them are being elevated to the upper planetary systems, and some are going down into the lower planetary systems. Out of many millions of wandering living entities, one who is very fortunate gets an opportunity to associate with a bona fide spiritual master by the grace of Kṛṣṇa. By the mercy of both Kṛṣṇa and the spiritual master, such a person receives the seed of the creeper of devotional service.]**
+
+Lord Caitanya says that each and every spirit soul is just wandering throughout the whole universe from one planet to another, one body to another. This business is going on. But the basic principle of that continued transmigration is sex life or sense gratification. Anyway, so long we have got a pinch of sense gratification we have to take birth in any form or any shape within this material world. When we shall be actually disgusted, "No more material sense gratification," then you are *brahma-bhūta* *Bg.* 18.54*,* you are eligible to enter into the spiritual world.
+
+**[And of all yogīs, he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in yoga and is the highest of all.]**
+
+That is the whole process. Therefore if we are at all interested... And that interest must be there in human life; otherwise it is spoiling. That is the problem, that no more transmigration from one body to another. That problem can be solved in this human form of life. Therefore Ṛṣabhadeva advises His sons, "My dear sons, to work very, very hard simply for sense gratification is not the business of human form of life." *Nāyaṁ deho deha-bhājāṁ nṛloke.*
+
+Then what it is meant for? The next line He says that *tapo. Tapo* means austerity. Austerity. What is that austerity? The austerity is to follow the rules and regulation by which one can elevate himself to the spiritual platform. That is required. In human... Either you practice *yoga* or *haṭha-yoga* or *jñāna-yoga* or *dhyāna-yoga* or *karma-yoga* or... Everything is* yoga.*
+
+As I explained last night in the meeting in the church, that *yoga* is one staircase to reach to the perfection of spiritual realization, and there are many steps. Just like *haṭha-yoga, dhyāna-yoga, jñāna-yoga,* there are many steps. But the perfectional stage is *bhakti-yoga.* The perfectional stage is *bhakti-yoga.* That should be the aim of life.
+
+But people do not know it that what is the aim of life. The aim of life is self-realization, and to understand and to know and to reestablish our lost relationship with the Supreme Personality of Godhead. That should be the aim of life. Therefore it requires *tapo. Tapo* means voluntarily accepting some penances. Just like I am inclined for sense gratification, and *tapasya* means voluntarily avoid too much sense gratification.
+
+The *śāstra* does not stop sense gratification. *Āhāra-nidrā-bhaya-maithuna.* If the nature law allows sense gratification to the lower animals, birds and beast, why not to the man? But it should be controlled. *Tapasya.*
+
+So this is also *tapasya.* Just like if one man is satisfied with one man..., one woman, or one woman is satisfied with one man and live peacefully, that is *tapasya.* Because natural inclination is that "I want to enjoy that man or that woman." But if you can control that you be satisfied with woman or with one woman, that is called *tapasya.* That is austerity. That is, voluntarily, you are restraining himself. *Tapasya* means voluntary restraint.
+
+In India, still, the system is followed in conservative families that a widow cannot marry. There is no widow marriage in India. They, the... *Manu-saṁhitā,* the law-givers, the saintly persons, *Manu-saṁhitā...* Why widow marriage is prohibited? The idea is generally, everywhere, in all countries, the female population is greater than the male population. So the idea is that she has become widow. She was once married. Now if again she is married, the another virgin girl, she does not get the chance of being married. Therefore there is no widow marriage according to Hindu scripture.
+
+And a man is allowed, if he is, I mean to say, able man, he can marry more than one wife. Not that simply marry. To get more than one wife does not mean sense enjoyment. The wife must be maintained very respectfully. She must have good house, good ornaments, good food, good servants, good children. Then one can marry. Not that simply for sense gratification.
+
+Just like Kṛṣṇa. Kṛṣṇa married sixteen thousand wives. And sixteen thousand wives, sixteen thousand palaces. And each wife, ten children. And Nārada wanted to see how Kṛṣṇa is managing these sixteen thousand wives. He wanted to visit each and every palace, and he saw that everywhere Kṛṣṇa is present. That means not that He remained one and there were sixteen thousand. Because there were sixteen thousand wives, so with each and every wife He was present. That is God. He can expand Himself. *Goloka eva nivasaty akhilātma-bhūtaḥ* [*Bs.* 5.37]*.*
+
+[I worship Govinda, the primeval Lord, residing in His own realm, Goloka, with Rādhā, resembling His own spiritual figure, the embodiment of the ecstatic potency possessed of the sixty-four artistic activities, in the company of Her confidantes [sakhīs], embodiments of the extensions of Her bodily form, permeated and vitalized by His ever-blissful spiritual rasa.]
+
+*Akhilātma-bhūtaḥ.* He is all-pervading. Why sixteen thousand wives? If He's omnipotent, all-powerful, then sixteen millions of wives also insufficient for Him. So the program of sense gratification should be minimized, and that is called *tapasya.* The program of sense gratification should be minimized, and that is called *tapasya, tapo. Tapo divyam* *SB* 5.5.1*.*
+
+**[Lord Ṛṣabhadeva told His sons: My dear boys, of all the living entities who have accepted material bodies in this world, one who has been awarded this human form should not work hard day and night simply for sense gratification, which is available even for dogs and hogs that eat stool. One should engage in penance and austerity to attain the divine position of devotional service. By such activity, one's heart is purified, and when one attains this position, he attains eternal, blissful life, which is transcendental to material happiness and which continues forever.]**
+
+Then, "Why I shall minimize my sense gratification? If I have got opportunity, I must utilize it to the best of my capacity." That is being done not only now; every time. No. You have to do it: *divyam,* for self-realization, for God-realization. You have to save your time. *Tapo divyaṁ putrakā.* And what is the purpose of that self-realization, or God-realization? That is *yena sattvaṁ śuddhyet.* Then your existence will be purified.
+
+What is the necessity of purifying my existence? *Yena sattvaṁ śuddhyed yasmāt.* If you purify your existence, then *yasmād brahma-saukhyam* *SB* 5.5.1*,* you'll relish unlimited pleasure. You are after now temporary pleasure by sense gratification, but in this life, in this human form of life, if you control your sense gratification and utilize the time for self-realization, so as soon as you are self-realized man or Brahman-realized man, then your happiness is unlimited.
+
+You are after happiness. Your sense gratification means you are after happiness, but this happiness is temporary. Any material happiness, it has no continuity. It has got limit. But if you want... But my desire is to have unlimited happiness, unlimited life, unlimited knowledge. If you want that, so try this life, this human form of life. Don't waste it simply after sense gratification, but practice austerity.
+
+Minimize your sense gratification. Be satisfied whatever is offered by nature or by God. We don't... Not complete abstinence, but regulate it, and the balance time utilize for self-realization. Then your perfection will be there by which you'll live eternally, you will enjoy eternally and your knowledge will be unlimited.
+
+So Ṛṣabhadeva instructed in this way. It is very instructive chapter, if you continue to understand this instruction of Ṛṣabhadeva. Now we have only read one verse. The next verse is that *mahat-sevāṁ dvāram āhur vimukteḥ* *SB* 5.5.2*.*
+
+**[One can attain the path of liberation from material bondage only by rendering service to highly advanced spiritual personalities. These personalities are impersonalists and devotees. Whether one wants to merge into the Lord's existence or wants to associate with the Personality of Godhead, one should render service to the mahātmās. For those who are not interested in such activities, who associate with people fond of women and sex, the path to hell is wide open. The mahātmās are equipoised. They do not see any difference between one living entity and another. They are very peaceful and are fully engaged in devotional service. They are devoid of anger, and they work for the benefit of everyone. They do not behave in any abominable way. Such people are known as mahātmās.]**
+
+*Mahat-sevā.* If you want this platform of self-realization, or spiritual life, then your engagement should be *mahat-sevā,* to serve a great soul, to associate with great soul. Then that will be possible. We shall discuss this next *śloka, mahat-sevā.* Who is *mahat,* who is great soul, how to serve, everything we shall discuss next meeting.
+
+Thank you very much. Any questions? Any question?
+
+[break] You have got intelligence, you have got brain. If there is any doubt, whatever is spoken... It is not dogmatic, I mean to say, pushing, or thrashing something. No. It is scientific and reasonable, whatever is said in the *Śrīmad-Bhāgavatam. Amalaṁ purāṇam.* It is spotless. Nobody can find any fault. *Śrīmad-Bhāgavatam amalaṁ purāṇam. Amalam* means spotless. Yes.
+
+**Devotee (1):** You gave us some diet that we should follow. We shouldn't have meat, eggs, fish and chicken and that. Can we eat cheese? I mean, is everything else possible? Can we eat anything else that isn't fish..., meat, fish, eggs and chicken? Is there anything else we should not eat in our diet?
+
+**Prabhupāda:** Our program is to eat *kṛṣṇa-prasāda.*
+
+**Devotee (1):** I know, but I mean if we're not in a position, like we're away from... Like we're on the road at lunchtime or something.
+
+**Prabhupāda:** Lunchtime you can eat bread, butter, fruit, milk. There are so many things. Then, dry fruits. So there are so many. God has supplied... Your country is, by God's grace, you have got sufficient foodstuff. You can use potato, vegetables.
+
+**Devotee (1):** Cheese?
+
+**Prabhupāda:** Cheese also. Cheese is milk preparation. You can eat. And offer it to Kṛṣṇa, that "Kṛṣṇa, these things are supplied by You. Kindly You taste it, then I'll take." You can do that everywhere. Kṛṣṇa is everywhere. At least we should acknowledge that everything is sent by Kṛṣṇa, or God.
+
+That is a fact. Kṛṣṇa's laws or nature's law is so nice that a cow is eating grass and producing milk. Now, if you think that grass is the cause of milk, then you are mistaken. It is the laws of Kṛṣṇa that transforms grass into milk. If you eat..., you eat grass, then you'll die. But the cow, she is eating grass... That also not supplied by your factory.
+
+The grass is produced by nature's way. And she is eating that grass and supplying the most nutritious food—milk—and in exchange you are cutting throat. How you can be happy? Such an innocent animal. She is eating grass supplied by God, and instead of grass, if you think that "She is eating grass from the land, American land or my land. She must give me something," oh, she's supplying milk. So what reason there is?
+
+So if we human being, if we forget even ordinary mercy, compassion and gratefulness, then what is that human life? And then from national point of view... National means one who is born in this land. The cow is also born in this land. So why the man should be given protection, not the cow? But according to Vedic civilization you see. You have read in *Śrīmad-Bhāgavatam,* I explained: Oh, one man was going to kill one cow. Immediately Mahārāja Parīkṣit took his sword, "Oh, you are trying to kill cow in my kingdom? I shall immediately kill you." The special protection, *brāhmaṇas* and cow.
+
+You know, we offer Kṛṣṇa obeisances, *namo brahmaṇya-devāya go-brāhmaṇa-hitāya ca:* "Kṛṣṇa, You are the leader of brahminical civilization," the purest civilization. *Namo brahmaṇya-devāya go-brāhmaṇa-hitāya ca.* "You are the well-wisher of cows and the *brāhmaṇas.*" Why special stress is given to the words *go* and *brāhmaṇa,* cows and *brāhmaṇas*? Then he said, *jagad-dhitāya.* Means "After being, first, being well-wisher to the cows and *brāhmaṇas,* then You are well-wisher of this general world." *Jagad-dhitāya kṛṣṇāya govindāya namo namaḥ.* This is the prayer, *namo brahmaṇya-devāya.*
+
+So why this specific stress has been given to the cows and *brāhmaṇas*? Just see Kṛṣṇa's picture, how He's loving the cow. You see? He is instructing by His practical life how He is compassionate with the cows. He played as a cowherd boy. Why? Because if in human society these two things are neglected, cows and the *brāhmaṇa,* that is animal society. Animal society. That is not human society. That is the idea.
+
+Because the *brāhmaṇas,* they will give you good information of spiritual life, and cows will give you the best food you can have within this material world. That is the real interpretation of *go-brāhmaṇa-hitāya ca.* If you have simply a cow and... The great sages, just see. A child born, it lives simply on cow's milk. First of all, mother's milk. Milk for six months. Then when it is a little grown up, you simply give her sufficient milk, oh, she'll be very stout and strong. Then supply it little grains, fruits. That's all.
+
+So we have got many foodstuff in the vegetarian kingdom, and Kṛṣṇa asks you that *patraṁ puṣpaṁ phalaṁ toyaṁ yo me bhaktyā prayacchati* [*Bg*. 9.26]
+
+[If one offers Me with love and devotion a leaf, a flower, fruit or water, I will accept it.]
+
+"Anyone who is offering Me..." This is universal. *Patram* means a leaf. Just like a leaf. *Puṣpam,* a flower. And *patraṁ puṣpaṁ phalam. Phalam* means a fruit. And *toyam* means water. So any poor man can offer Kṛṣṇa. There is no need of, I mean to say, luxuriant foodstuff, but it is meant for the poorest man. The poorest of the poor men can secure these four things—a little leaf, a little flower, a little fruit and little water. Any part of the world. Therefore He is prescribing, *patraṁ puṣpaṁ phalaṁ toyaṁ yo me bhaktyā prayacchati:* "Anyone who offers Me with love and devotion..." *Tad ahaṁ bhakty-upahṛtam.* "Because it is brought to Me with love and devotion," *aśnāmi,* "I eat."
+
+Kṛṣṇa is not hungry, neither He is poor. But the main thing is *bhaktyā,* devotion and love. So whatever you offer Kṛṣṇa with devotional love within this group as prescribed by Him, Kṛṣṇa accepts. So you can offer anywhere. It does not matter that you have to offer in temple. Kṛṣṇa is everywhere. So you offer and eat that. This cauliflower is also fruit..., er, flower. This is also flower. [chuckles] And potato is fruit. Fruit, flower. Yes
+
+So any other question? Yes?
+
+**Devotee (2):** Swāmījī? Why is it that in the mornings and the evenings we say bells before the Deity?
+
+**Prabhupāda:** Hmm?
+
+**Devotee (2): **In the mornings and the evenings we say bells before the Deity?
+
+**Prabhupāda: **Bells?
+
+**Devotee (2):** Prayers. Bells.
+
+**Prabhupāda:** Oh, that is ceremonial. Yes. When you offer something to Kṛṣṇa in the temple, the system is that you offer with bell. That bell offering worship, even in Christian world there is bell, church bell. So that is system everywhere. Only in Muhammadan religion they don't allow any sound. Yes. But Hindu religion or in other religion there is sound. Sound vibration. Our whole process is sound vibration. The Muhammadans, they offer silent prayer. That is also prescribed in devotional service.
+
+**Devotee (3):** Did Kṛṣṇa invent Rādhā for His own pleasure?
+
+**Prabhupāda:** Yes. Not invent. Kṛṣṇa has nothing to invent. Everything is there. "Invent" means what was not in Him.
+
+**Devotee (3):** [indistinct] created?
+
+**Prabhupāda:** Yes, yes. No. It is not like that. It is always there, and then manifested. His energy manifested. It is for our understanding. Rādhā is always manifest constantly, but because we want to say that Kṛṣṇa is the source of everything, so He is also source of Rādhā. *Janmādy asya yataḥ* [*SB* *1.1.1*]*.*
+
+**[O my Lord, Śrī Kṛṣṇa, son of Vasudeva, O all-pervading Personality of Godhead, I offer my respectful obeisances unto You. I meditate upon Lord Śrī Kṛṣṇa because He is the Absolute Truth and the primeval cause of all causes of the creation, sustenance and destruction of the manifested universes. He is directly and indirectly conscious of all manifestations, and He is independent because there is no other cause beyond Him. It is He only who first imparted the Vedic knowledge unto the heart of Brahmājī, the original living being. By Him even the great sages and demigods are placed into illusion, as one is bewildered by the illusory representations of water seen in fire, or land seen on water. Only because of Him do the material universes, temporarily manifested by the reactions of the three modes of nature, appear factual, although they are unreal. I therefore meditate upon Him, Lord Śrī Kṛṣṇa, who is eternally existent in the transcendental abode, which is forever free from the illusory representations of the material world. I meditate upon Him, for He is the Absolute Truth.]**
+
+And another meaning is... That is explained by Gosvāmī, that Rādhā is not an ordinary woman. If somebody thinks, "Oh, Kṛṣṇa and Rādhā, They're side by side just like a boy and girl," no. If Kṛṣṇa is transcendental whole spirit, similarly the Rādhā or His expansion, Her expansion... It is explained in the *Brahma-saṁhitā,*
+
+> ānanda-cinmaya-rasa-pratibhāvitābhis tābhir
+> ya eva nija-rūpatayā kalābhiḥ
+
+[*Bs. 5.37*]
+
+**[I worship Govinda, the primeval Lord, residing in His own realm, Goloka, with Rādhā, resembling His own spiritual figure, the embodiment of the ecstatic potency possessed of the sixty-four artistic activities, in the company of Her confidantes [sakhīs], embodiments of the extensions of Her bodily form, permeated and vitalized by His ever-blissful spiritual rasa.]**
+
+This is expansion of the quintessence of spiritual energy, *ānanda-cinmaya. Ānanda* means blissful, and *cinmaya* means spiritual. So all *kṛṣṇa-līlā,* all Kṛṣṇa's activities, they are manifestation of His spiritual internal potency. You understood this?
+
+**Devotee (3):** Yes. But what I wanted within that... Did She have to become transcendence? Does She have to...
+
+**Prabhupāda:** No. She is already transcendental.
+
+**Devotee (3):** She's always transcendental.
+
+**Prabhupāda:** She hasn't got to become. Become means... Nobody become. Become means... Just like to become healthy. To become healthy is a thing..., not that the man was not healthy. He has fallen diseased. You understand? When I say to become healthy, to become healthy does not mean that he was not healthy. He was healthy. Somehow or other, he is now diseased. So the "become" is applicable to the diseased or to the condition, not to the original.
+
+So Rādhā-Kṛṣṇa or His expansions, They're original spirit. We are also original spirit. In contact with matter we are now diseased; therefore "to become" is applicable to the conditioned soul, not to the liberated. "To become..." The past, present and future is applicable within this dual world. In the spiritual world there is no past, present, future. There it is eternal. So "become" is applicable to us who are conditioned. Conditioned means by contamination of matter we are suffering. So we have to go to the healthy life, spiritual life. That is required.
+
+"To become" is not applicable to anything of Kṛṣṇa's name, fame, form, paraphernalia, expansion. They are all transcendental and eternal. And you can also become one of them as soon as you are freed from this material contamination. That is practice of Kṛṣṇa consciousness. *Yad gatvā na nivartante tad dhāma paramaṁ mama* [*Bg.* *15.6*]*.*
+
+**[That abode of Mine is not illumined by the sun or moon, nor by electricity. One who reaches it never returns to this material world.]**
+
+If you practice Kṛṣṇa consciousness, and at the end of life if you continue, the next life you also become *brahma-bhūtaḥ prasannātmā* *Bg.* 18.54*.*
+
+**[And of all yogīs, he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in yoga and is the highest of all.]**
+
+You also associate with the same. And there will be no distinction at that time—either Kṛṣṇa and Rādhā or all expansions—because They are all spiritual. Oneness. That oneness. Your question was that the oneness. Because there is no disagreement, there is no dissension. Everything is in harmony, spiritual harmony; therefore one.
+
+Any other question? You have any question? No? All right. [pause]
+
+**Devotee (2):** Swāmījī? When we ring bells especially for the Deities at 6:30, does that put Them to sleep then?
+
+**Prabhupāda:** Yes. Yes. Not six-thirty. One and a half hour before sunrise.
+
+**Devotee (2):** Oh. So we should say prayers in the morning at one hour and a half before sunrise?
+
+**Prabhupāda:** Yes. That is the system.
+
+**Devotee (2):** Oh.
+
+**Prabhupāda:** Yes. In Vṛndāvana you'll find just early in the morning before... Exactly one and a half hours before sunrise, all temples will *ding-dang,* *ding-dang,* like this. And people will automatically rise up and go to see the first ceremony. It is very nice. So that you'll be forced to rise early in the morning. If you practice, you'll be practiced to... "Early to rise, early to..." "Early to bed, early to rise"? Yes?
+
+**Devotee (2):** "...makes a man healthy, wealthy and wise."
+
+**Prabhupāda:** Yes. You become automatically healthy, wealthy and wise. [laughter] Yes. But here you are accustomed to sleep up to twelve o'clock. [laughs] No. That is not good. Yes?
+
+**Devotee (2):** Can we chant a little while "Kṛṣṇa"?
+
+**Prabhupāda:** Yes, certainly. This chanting is nice program. Now chant. Hare Kṛṣṇa. [end]

@@ -1,0 +1,55 @@
+# Ratha-yātrā Address
+
+*Type: Conversation Dated: June 27th 1971 Location: San Francisco Audio file: 710627R2-SAN-FRANCISCO.mp3*
+
+**Prabhupāda:** *Jagannātha svāmī nayana-pathagāmī bhavatu me*. [crowd repeats] Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. [crowd repeats] Thank you very much.
+
+Ladies and Gentlemen, I thank you very much for your kindly participating in this great Ratha-yātrā festival. I have already explained what is this Ratha-yātrā festival. It is in commemoration of a grand visit by Lord Kṛṣṇa along with His elder brother, Balarāma, and His younger sister, Subhadrā, in a solar eclipse ceremony at Kurukṣetra. This occasion is the subject matter of this Ratha-yātrā festival.
+
+Apart from these historical references in the matter of Ratha-yātrā festival, there is another spiritual meaning: that the Lord is situated in everyone's heart, and this body is just like *ratha*, or car. He is sitting in everyone's heart. It is stated in the *Bhagavad-gītā*, *sarvasya cāhaṁ hṛdi sanniviṣṭaḥ*: "I am sitting in everyone's heart.'' *Mattaḥ smṛtir jñānam apohanaṁ ca* *Bg.* 15.15: "I am giving everyone the intelligence as well as I am taking away the intelligence from everyone.''
+
+This double work is being done by the Supersoul. In one side He is helping how to realize self, how to realize God, and other side He is helping also to forget God. How it is that the Supreme Personality of Godhead, as *paramātmā*, is doing this double work? The sense is that if we want to forget God, God will help us in such a way that we'll forget God life after life. But if we want to reestablish our relationship with God, from within He will help us in every way.
+
+This human form of life is a chance for God realization. Without God realization, our life is frustrated. We, being part and parcel of God, it is our duty to understand our relationship with God and act accordingly, and then our ultimate goal of life is achieved. The ultimate goal of life is to attain eternal life, full of knowledge and bliss, *sac-cid-ānanda vigraha* [*Bs.* 5.1]. *Sat* means eternal, *ānanda* means bliss and *cit* means knowledge.
+
+This body is just the opposite. It is not *sat*. This body is temporary. It is not eternal. This body is full of ignorance. There is practically no knowledge. We do not know, after closing our eyes, we do not know what is happening before our eyes. So our knowledge is always imperfect. And this life is also miserable. It is not at all blissful.
+
+Every step, there are three kinds of miserable condition: *ādhyātmika*, *adhibautika*, *adhidaivika*. *Ādhyātmika* means miseries pertaining to the body and the mind. *Adhibautika* means miserable condition offered by other living entities. And *adhidaivika*, natural disturbances. So either of these three, or at least one or two, there must be always present. This is the material condition of life. But as spirit soul, we are *sac-cid-ānanda vigraha*, part and parcel of *sac-cid-ānanda vigraha*. *Sat* means eternal, *cit* means knowledge and bliss, and *ānanda* means blissfulness.
+
+So if we want to have eternal life, full of knowledge and blissfulness, then we must take to Kṛṣṇa consciousness. Our this Kṛṣṇa consciousness movement is the greatest welfare activities in the human society. We are giving information to every man, without any discrimination of cast, creed and color, that every human being especially... Not only human being; all living entities, including the animals, beasts, birds, trees, aquatics—everyone—they can achieve to the highest perfection of life by this Kṛṣṇa consciousness. But especially the extra intelligence of the human being can be utilized to realize Kṛṣṇa. If we don't do that, we are missing a great opportunity.
+
+So our request to everyone is to understand this philosophy of Kṛṣṇa consciousness. If anyone wants to understand this philosophy through philosophical angle of vision or scientific angle of vision, we have got immense volumes of books. You can read and try to understand what is this great movement, Kṛṣṇa consciousness. But you can also, without reading books, without taking any trouble, if you simply agree to chant this *mahā-mantra*, Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare, you get the same result. Even a child can join.
+
+Actually we have experienced that a child, a dog, an animal, everyone takes part in this movement. During the Lord Caitanya's movement, when He passed through a great forest known as Jharikhaṇḍa—Central India there is a great forest—along with Him, the tigers, the elephants, the deers, everyone danced and chanted Hare Kṛṣṇa *mantra*. It is so nice, and it is so spiritual, the very vibration will immediately enthuse your ecstasy in spiritual consciousness.
+
+Please, therefore, take to this chanting of Hare Kṛṣṇa *mantra*. There is no loss. There is no expenditure. We don't charge anything. We have arranged this Ratha-yatra festival by begging from door to door. Although we have no means, but still we are executing this function for the benefit of the people in general. Please take advantage of this spiritual movement and make your life blissful and perfect. If you miss this opportunity, you do not know what you are going to have next life.
+
+Do not think that there is no next life. Next life... Every moment we are changing our body. You know that when your body was a baby, that body was very small. Now that body is no longer there. When you were a boy there was another body. That body is no longer there. Now you are young man there is another body, and when you'll become old man like me, you'll have another body. This means that we are changing bodies in every moment, every second, imperceptibly, but I, the spirit soul, exist in all circumstances.
+
+Therefore it is natural to conclude that after leaving this body I shall have another body. That's a fact. That is Vedic truth. *Vāsāṁsi jīrṇāni yathā vihāya* *Bg.* 2.22. The example is given that as we change our dresses, similarly, we are changing our dresses from one body to another. We have changed dresses as aquatic animals, as many fishes and aquatic animals as there are in the sea; then we are change bodies as creepers, plants and trees for many, many years. Then we change our bodies in the insect life, reptiles' life, then we are change our bodies in three..., thirty hundreds thousands of beasts, then we have got this human form of life. That is also in evolution through many uncivilized form of human life.
+
+Now this civilized form of human life, with higher intelligence and consciousness, it is meant for God realization. It is not meant for utilizing as the animals waste their time simply for eating, sleeping, mating and defending. That is not our business. That is part of our business so far the body is concerned. But as spirit soul, our main business is to understand what I am, wherefrom I have come, where I shall go, why I am under the tribulation of threefold miseries of material condition. These questions must be answered.
+
+If we do not question, just like live like animal... The animal cannot question, neither they can understand the answers. But the human form of life they can question and understand the answer also. In the *Vedānta-sūtra* it is called *brahma-jijñāsā*, inquiring about the Supreme.
+
+So that is our prerogative. Please take chance of this human body and try to understand yourself and cleanse your heart from the dirty things by chanting Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.
+
+Thank you very much. Hare Kṛṣṇa.
+
+**Audience:** Haribol. All glories to Śrīla Prabhupāda! [break]
+
+**Prabhupāda: **We are so sorry I am poor that I cannot provide a chair for you. [chuckles] Thank you. Hare Kṛṣṇa. Hare Kṛṣṇa.
+
+**Karandhar:** Prabhupāda, do you lead a *kīrtan*?
+
+**Prabhupāda: **Yes.
+
+**Karandhar: **You want some *kartāls*?
+
+**Prabhupāda: **Now please chant Hare Kṛṣṇa mantra along with me.
+
+[aside] It is working now?
+
+**Karandhar: **[aside] We're going to have a *kīrtan.*
+
+**Prabhupāda: **Hare Kṛṣṇa. [end]

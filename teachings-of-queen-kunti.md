@@ -1,7 +1,8 @@
 # Teachings of Queen Kuntī
 
+### 0a
 
-# Introduction
+Introduction
 
 The tragic and heroic figure of Queen Kuntī emerges from an explosive era in the history of ancient India. As related in the *Mahābhārata,* India's grand epic poem of 110,000 couplets, Kuntī was the wife of King Pāṇḍu and the mother of five illustrious sons known as the Pāṇḍavas. As such, she was one of the central figures in a complex political drama that culminated fifty centuries ago in the Kurukṣetra War, a devastating war of ascendancy that changed the course of world events. The *Mahābhārata* describes the prelude to the holocaust as follows:
 
@@ -27,7 +28,7 @@ When the thirteen-year exile had ended, the Pāṇḍavas returned to Hastināpu
 
 Fierce fighting raged for eighteen days on the historic plain of Kurukṣetra (near Hastināpura), and in the end all but a handful of the many millions of warriors were dead. Only Lord Kṛṣṇa, the Pāṇḍavas, and a few others survived the massacre. The Kauravas (Duryodhana and his brothers) were devastated. In a desperate gesture of revenge, Aśvatthāmā, one of the surviving Kauravas, mercilessly murdered the five sons of Draupadī while they were sleeping. Queen Kuntī thus suffered a final blow—the loss of her grandchildren.
 
-Arrested and dragged to the Pāṇḍavas' camp like a bound animal, Aśvatthāmā was let free only by the astounding compassion of Draupadī, the slaughtered boys' mother and Kuntī's daughter-in-law, who pleaded for his life. But the shameless Aśvatthāmā made one more attempt to kill the last heir of the Pāṇḍavas, their unborn grandson in the womb of Uttarā, by hurling the supreme *brahmāstra* weapon. When she saw the missile flying straight at her, Uttarā immediately ran to the shelter of Lord Kṛṣṇa, who was just about to depart for Dvārakā, His majestic capital city. Kṛṣṇa protected the Pāṇḍavas and their mother Kuntī from imminent death by stopping the weapon's uncontrollable heat and radiation with His own Sudarśana disc.
+Arrested and dragged to the Pāṇḍavas' camp like a bound animal, Aśvatthāmā was let free only by the astounding compassion of Draupadī, the slaughtered boys' mother, who pleaded for his life. But the shameless Aśvatthāmā made one more attempt to kill the last heir of the Pāṇḍavas, their unborn grandson in the womb of Uttarā, by hurling the supreme *brahmāstra* weapon. When she saw the missile flying straight at her, Uttarā immediately ran to the shelter of Lord Kṛṣṇa, who was just about to depart for Dvārakā, His majestic capital city. Kṛṣṇa protected the Pāṇḍavas and their mother Kuntī from imminent death by stopping the weapon's uncontrollable heat and radiation with His own Sudarśana disc.
 
 Having delivered the Pāṇḍavas from this last calamity, and seeing that all His plans were fulfilled, Lord Kṛṣṇa was again preparing to leave. For years Duryodhana had tormented Queen Kuntī's family, but Kṛṣṇa had protected them at every turn—and now He was going away. Kuntī was overwhelmed, and she prayed to Kṛṣṇa from the core of her heart.
 
@@ -47,7 +48,7 @@ My dear Kṛṣṇa, Your Lordship has protected us from the poisoned cake, from
 
 Kuntī's words—the simple and illuminating outpourings of the soul of a great and saintly woman devotee—reveal both the deepest transcendental emotions of the heart and the most profound philosophical and theological penetrations of the intellect. Her words are words of glorification impelled by a divine love steeped in wisdom:
 
-O Lord of Madhu, as the Ganges forever flows to the sea without hindrance, let my attraction be constantly drawn unto You without being diverted to anyone else. (SB 1.8.42)
+O Lord of Madhu, as the Ganges forever flows to the sea without hindrance, let my attraction be constantly drawn unto You without being diverted to anyone else. [[sb/1/8/42|(SB 1.8.42)]]
 
 Kuntī's spontaneous glorification of Lord Kṛṣṇa and her description of the spiritual path are immortalized in the *Mahābhārata* and the *Bhāgavata Purāṇa* (*Śrīmad-Bhāgavatam*), and they have been recited, chanted, and sung by sages and philosophers for thousands of years.
 
@@ -57,8 +58,9 @@ This new Bhaktivedanta Book Trust publication, complete with eleven color prints
 
 —The Publishers
 
+### 1
 
-# Chapter 1: The Original Person
+1. The Original Person
 
 > kunty uvāca  
 > namasye puruṣaṁ tvādyam  
@@ -71,8 +73,9 @@ This new Bhaktivedanta Book Trust publication, complete with eleven color prints
 
 Śrīmatī Kuntīdevī was quite aware that Kṛṣṇa is the original Personality of Godhead, although He was playing the part of her nephew. Such an enlightened lady could not commit a mistake by offering obeisances unto her nephew. Therefore, she addressed Him as the original *puruṣa* beyond the material cosmos. Although all living entities are also transcendental, they are neither original nor infallible. The living entities are apt to fall down under the clutches of material nature, but the Lord is never like that. In the *Vedas,* therefore, He is described as the chief among all living entities (*nityo nityānāṁ cetanaś cetanānām* (*Kaṭha Upaniṣad* 2.2.13)). Then again He is addressed as *īśvara,* or the controller. The living entities or the demigods like Candra and Sūrya are also to some extent *īśvara,* but none of them is the supreme *īśvara,* or the ultimate controller. Kṛṣṇa is the *parameśvara,* or the Supersoul. He is both within and without. Although He was present before Śrīmatī Kuntī as her nephew, He was also within her and everyone else. In the *Bhagavad-gītā* (15.15) the Lord says, "I am situated in everyone's heart, and only due to Me one remembers, forgets, and is cognizant, etc. Through all the *Vedas* I am to be known because I am the compiler of the *Vedas,* and I am the teacher of the *Vedānta.*" Queen Kuntī affirms that the Lord, although both within and without all living beings, is still invisible. The Lord is, so to speak, a puzzle for the common man. Queen Kuntī experienced personally that Lord Kṛṣṇa was present before her, yet He entered within the womb of Uttarā to save her embryo from the attack of Aśvatthāmā's *brahmāstra.* Kuntī herself was puzzled about whether Śrī Kṛṣṇa is all-pervasive or localized. In fact, He is both, but He reserves the right of not being exposed to persons who are not surrendered souls. This checking curtain is called the *māyā* energy of the Supreme Lord, and it controls the limited vision of the rebellious soul. It is explained as follows.
 
+### 2
 
-# Chapter 2: Beyond the Senses
+2. Beyond the Senses
 
 > māyā-javanikācchannam
 > ajñādhokṣajam avyayam
@@ -84,8 +87,9 @@ This new Bhaktivedanta Book Trust publication, complete with eleven color prints
 
 In the *Bhagavad-gītā* Lord Śrī Kṛṣṇa affirms that less intelligent persons mistake Him to be an ordinary man like us, and thus they deride Him. The same is confirmed herein by Queen Kuntī. The less intelligent persons are those who rebel against the authority of the Lord. Such persons are known as *asuras.* The *asuras* cannot recognize the Lord's authority. When the Lord Himself appears among us, as Rāma, Nṛsiṁha, Varāha, or in His original form as Kṛṣṇa, He performs many wonderful acts which are humanly impossible. As we shall find in the Tenth Canto of this great literature, Lord Śrī Kṛṣṇa exhibited His humanly impossible activities even from the days of His lying on the lap of His mother. He killed the Pūtanā witch, although she smeared her breast with poison just to kill the Lord. The Lord sucked her breast like a natural baby, and He sucked out her very life also. Similarly, He lifted the Govardhana Hill, just as a boy picks up a frog's umbrella, and stood several days continuously just to give protection to the residents of Vṛndāvana. These are some of the superhuman activities of the Lord described in the authoritative Vedic literatures like the *Purāṇas, Itihāsas* (histories), and *Upaniṣads.* He has delivered wonderful instructions in the shape of the *Bhagavad-gītā.* He has shown marvelous capacities as a hero, as a householder, as a teacher, and as a renouncer. He is accepted as the Supreme Personality of Godhead by such authoritative personalities as Vyāsa, Devala, Asita, Nārada, Madhva, Śaṅkara, Rāmānuja, Śrī Caitanya Mahāprabhu, Jīva Gosvāmī, Viśvanātha Cakravartī, Bhaktisiddhānta Sarasvatī, and all other authorities of the line. He Himself has declared as much in many places of the authentic literatures. And yet there is a class of men with demoniac mentality who are always reluctant to accept the Lord as the Supreme Absolute Truth. This is partially due to their poor fund of knowledge and partially due to their stubborn obstinacy, which results from various misdeeds in the past and present. Such persons could not recognize Lord Śrī Kṛṣṇa even when He was present before them. Another difficulty is that those who depend more on their imperfect senses cannot realize Him as the Supreme Lord. Such persons are like the modern scientist. They want to know everything by their experimental knowledge. But it is not possible to know the Supreme Person by imperfect experimental knowledge. He is described herein as *adhokṣaja,* or beyond the range of experimental knowledge. All our senses are imperfect. We claim to observe everything and anything, but we must admit that we can observe things under certain material conditions only, which are also beyond our control. The Lord is beyond the observation of sense perception. Queen Kuntī accepts this deficiency of the conditioned soul, especially of the woman class, who are less intelligent. For the less intelligent there must be such things as temples, mosques, or churches so that they may begin to recognize the authority of the Lord and hear about Him from authorities in such holy places. For the less intelligent, this beginning of spiritual life is essential, and only foolish men decry the establishment of such places of worship, which are required to raise the standard of spiritual attributes for the mass of people. For less intelligent persons, bowing down before the authority of the Lord, as generally done in the temples, mosques, or churches, is as beneficial as it is for the advanced devotees to meditate upon Him by active service.
 
+### 3
 
-# Chapter 3: The Most Intelligent Woman
+3. The Most Intelligent Woman
 
 > tathā paramahaṁsānāṁ
 > munīnām amalātmanām
@@ -130,7 +134,7 @@ The stereotyped, crippled idea that only a person born in a *brāhmaṇa* family
 
 Although Kuntī had the body of a woman, she was a devotee. Therefore she was not like an ordinary unintelligent woman. Rather, she was the most intelligent, for she recognized Kṛṣṇa to be the Supreme Godhead: "He has come to me to offer me respect, materially appearing to be my nephew, but He is the Supreme Personality of Godhead." Therefore in a previous verse she said, *alakṣyaṁ sarva-bhūtānām antar bahir avasthitam:* [[sb/1/8/18|[SB 1.8.18] ]] "You are not seen by ordinary men, although You are everywhere, inside and outside." In another verse also she said, *na lakṣyase mūḍha-dṛśā*/ [[sb/1/8/19|[SB 1.8.19] ]] "Fools and rascals cannot see You." This indicates that Kuntī saw Him. Unless she were able to see Kṛṣṇa as He is, how could she say, *na lakṣyase mūḍha-dṛśā?* She also said, *prakṛteḥ param:* [[sb/1/8/18|[SB 1.8.18] ]] "You are transcendental to this material creation."
 
-Now here also, in this verse, Kuntī continues to express herself with humility. This humility is very good in devotional service. Therefore Śrī Kṛṣṇa Caitanya Mahāprabhu teaches us, *tṛṇād api sunīcena taror api sahiṣṇunā:* "One should be more tolerant than the tree and humbler than the grass to make progress in spiritual life." This is necessary because for one who is living in this material world there will be so many disturbances, just as if one were traveling on the ocean. One cannot expect a very peaceful situation on the ocean; even a big ship may also be unsteady, and at any moment there may be tumultuous waves. Similarly, in this material world we should always expect danger; one cannot expect a very peaceful life within this material world. The *śāstra,* the Vedic literature, says, *padaṁ padaṁ yad vipadām* (SB 10.14.58): at every step there is danger. But if one becomes a devotee, then one can escape (*māyām etāṁ taranti te* [[bg/7/14|[Bg. 7.14] ]]).
+Now here also, in this verse, Kuntī continues to express herself with humility. This humility is very good in devotional service. Therefore Śrī Kṛṣṇa Caitanya Mahāprabhu teaches us, *tṛṇād api sunīcena taror api sahiṣṇunā:* "One should be more tolerant than the tree and humbler than the grass to make progress in spiritual life." This is necessary because for one who is living in this material world there will be so many disturbances, just as if one were traveling on the ocean. One cannot expect a very peaceful situation on the ocean; even a big ship may also be unsteady, and at any moment there may be tumultuous waves. Similarly, in this material world we should always expect danger; one cannot expect a very peaceful life within this material world. The *śāstra,* the Vedic literature, says, *padaṁ padaṁ yad vipadām* [[sb/10/14/58|(SB 10.14.58)]]: at every step there is danger. But if one becomes a devotee, then one can escape (*māyām etāṁ taranti te* [[bg/7/14|[Bg. 7.14] ]]).
 
 If one takes to Kṛṣṇa consciousness, in the beginning there will be many disturbances caused by Māyā, the material energy of illusion. Māyā will test us to see how firmly we are fixed in Kṛṣṇa consciousness. Because she is also an agent of Kṛṣṇa, she does not allow anyone the freedom to disturb Kṛṣṇa. Therefore she tests very rigidly to see whether we have taken to Kṛṣṇa consciousness to disturb Kṛṣṇa or are actually serious. That is Māyā's business. So in the beginning there will be tests by Māyā, and we shall feel so many disturbances while making progress in Kṛṣṇa consciousness. But if we follow the rules and regulations and chant regularly as prescribed, then we shall remain steady. If we neglect these principles, Māyā will capture us immediately. Māyā is always ready. We are in the ocean, and at any moment we may be disturbed. Therefore one who is not disturbed at all is called *paramahaṁsa.*
 
@@ -140,10 +144,11 @@ One should know that the activities of the body are due to the soul within the b
 
 Kuntīdevī says, "You are meant for the *paramahaṁsas,* not for the rascals and fools. You are meant for the *paramahaṁsas* and *munis.*" The word *munīnām* refers to those who are thoughtful or to mental speculators, and the word *amalātmanām* refers to one who has no dirty things in his heart. The heart of a materialistic person is full of dirty things. What are those dirty things? Lust and greed. All materialistic persons are lusty and greedy, and therefore their hearts are understood to be full of dirty things, but *amalātmanām* refers to those who are freed from these two contaminations.
 
-*Bhakti-yoga* is meant for those whose hearts are cleansed, not for the lusty and greedy. Of course, those who are lusty and greedy may try to advance, and gradually they may do so, but once one is situated in *bhakti-yoga* there is no more lust or greed. *Viraktir anyatra ca* (SB 11.2.42). This is the test—when one is free from lusty desires and greed, then he is situated in *bhakti-yoga* and is actually a *paramahaṁsa.* Kuntīdevī humbly submits, "You are meant for the *paramahaṁsas* and *munis,* those who are cleansed in heart and are engaged in *bhakti-yoga.* But what are we? We are simply women. We are in a lower class. How can we understand You?" Although she understands everything, she still takes the position of an ordinary woman and says, "How can I understand You?" This is humility.
+*Bhakti-yoga* is meant for those whose hearts are cleansed, not for the lusty and greedy. Of course, those who are lusty and greedy may try to advance, and gradually they may do so, but once one is situated in *bhakti-yoga* there is no more lust or greed. *Viraktir anyatra ca* [[sb/11/2/42|(SB 11.2.42)]]. This is the test—when one is free from lusty desires and greed, then he is situated in *bhakti-yoga* and is actually a *paramahaṁsa.* Kuntīdevī humbly submits, "You are meant for the *paramahaṁsas* and *munis,* those who are cleansed in heart and are engaged in *bhakti-yoga.* But what are we? We are simply women. We are in a lower class. How can we understand You?" Although she understands everything, she still takes the position of an ordinary woman and says, "How can I understand You?" This is humility.
 
+### 4
 
-# Chapter 4: Approaching Kṛṣṇa, the All-pervading Truth
+4. Approaching Kṛṣṇa, the All-pervading Truth
 
 > kṛṣṇāya vāsudevāya
 > devakī-nandanāya ca
@@ -197,7 +202,7 @@ Everything is under control, and everything—water, light, heat, and so on—is
 
 People work so hard, day and night, simply for a little food, not knowing that their food has already been provided. *Avidyā karma-saṁjñānyā tṛtīyā śaktir iṣyate* (*Viṣṇu Purāṇa* 6.7.61). This material world is full of ignorance (*avidyā*). Therefore our endeavor should be to become free from this ignorance. It is only for this reason that we should work—to come out of ignorance. We are thinking, "I am this material body. I have to work day and night, and then I shall get my food, and I shall live." This is ignorance. We have lived this life of ignorance in forms other than that of a human being. We have lived in bird life, in beast life, and so on, but now, in this life, we should be peaceful, calm, and quiet, and should simply inquire about the Absolute Truth (*jīvasya tattva-jijñāsā, athāto brahma jijñāsā*). That should be one's occupation.
 
-We are simply sitting down and inquiring about Kṛṣṇa, and this is what one should do. This is life. Why should one work day and night like an ass? What kind of life is this? No. This is not life. Therefore the *Bhāgavatam* says to one who is intelligent (*kovida*), "Your life should be engaged for this purpose—for understanding the Absolute Truth." Then how will my economic problem be solved? The answer is that happiness one desires from economic development will come automatically in due course of time. *Tal labhyate duḥkhavad anyataḥ* (SB 1.5.18). We are looking for happiness. Are you looking for distress? "No, sir." Then why does distress come upon you? If you are not eager for calamities and distress, why do they come upon you? According to our *karma,* our life holds some portion of happiness and some portion of distress. Therefore, if distress comes without invitation, happiness will also come without invitation.
+We are simply sitting down and inquiring about Kṛṣṇa, and this is what one should do. This is life. Why should one work day and night like an ass? What kind of life is this? No. This is not life. Therefore the *Bhāgavatam* says to one who is intelligent (*kovida*), "Your life should be engaged for this purpose—for understanding the Absolute Truth." Then how will my economic problem be solved? The answer is that happiness one desires from economic development will come automatically in due course of time. *Tal labhyate duḥkhavad anyataḥ* [[sb/1/5/18|(SB 1.5.18)]]. We are looking for happiness. Are you looking for distress? "No, sir." Then why does distress come upon you? If you are not eager for calamities and distress, why do they come upon you? According to our *karma,* our life holds some portion of happiness and some portion of distress. Therefore, if distress comes without invitation, happiness will also come without invitation.
 
 We are already destined to have a certain amount of happiness and a certain amount of distress, and we cannot change that. The change we should make, therefore, is to get free from this material condition of life. That should be our only business. According to our *karma,* we are sometimes taking birth in a higher planetary system as demigods and sometimes taking birth as cats and dogs or as germs in stool. Therefore Caitanya Mahāprabhu said:
 
@@ -214,14 +219,15 @@ Here also it is said, *govindāya namo namaḥ:* [[sb/1/8/21|[SB 1.8.21] ]] "I o
 
 I am very pleased, therefore, when my disciples nicely dress the Deity, offer the Deity nice foodstuffs, and keep the temple very clean. *Śrī-mandira-mārjanādau. Mārjana* means "cleansing." Whether one dresses Kṛṣṇa or cleanses the temple, the spiritual benefit one receives is the same. Don't think, "I am only a cleanser, and he is a dresser." No, the person who is dressing the Deity and the person who is cleansing the temple are the same because Kṛṣṇa is absolute. Therefore, one should engage in Kṛṣṇa's service in any way, and one's life will be successful. This is the Kṛṣṇa consciousness movement.
 
-By the grace of Kuntīdevī we can understand that Kṛṣṇa, Vāsudeva, is the Supreme Personality of Godhead. The word *vāsudeva* also indicates that the Lord is understood when one comes to the platform of pure goodness, which is also called *vasudeva,* or *viśuddha-sattva. Sattvaṁ viśuddhaṁ vasudeva-śabditam* (SB 4.3.23). To understand the Supreme Lord, we must first come to the platform of *sattva,* goodness, but goodness here in the material world is sometimes contaminated by the lower qualities ignorance and passion. By hearing about Kṛṣṇa, however, one comes to the platform of pure goodness. *Sṛṇvatāṁ sva-kathāḥ kṛṣṇaḥ puṇya-śravaṇa-kīrtanaḥ* [[sb/1/2/17|[SB 1.2.17] ]]. We should try to hear and chant about Kṛṣṇa always, twenty-four hours a day, and in this way the dirty things will be cleansed from our hearts. It is not that one should only attend a *bhāgavata-saptāha,* an official reading of *Śrīmad-Bhāgavatam* for seven days. That is another form of exploitation. In the *Bhāgavatam* it is said, *naṣṭa-prāyesv abhadreṣu nityaṁ bhāgavata-sevayā* [[sb/1/2/18|[SB 1.2.18] ]]. The word *nityam* means "daily" or "twenty-four hours a day." One should always read *Śrīmad-Bhāgavatam* and carry out the order of one's spiritual master. The word *bhāgavata* may refer either to the spiritual master or to the book *Śrīmad-Bhāgavatam.* So one should always serve the person *bhāgavata* or the book *Bhāgavata. Bhagavaty uttama-śloke bhaktir bhavati naiṣṭhikī.* Then one will be fixed immovably (*naiṣṭhikī*) in devotional service to the Supreme Personality of Godhead.
+By the grace of Kuntīdevī we can understand that Kṛṣṇa, Vāsudeva, is the Supreme Personality of Godhead. The word *vāsudeva* also indicates that the Lord is understood when one comes to the platform of pure goodness, which is also called *vasudeva,* or *viśuddha-sattva. Sattvaṁ viśuddhaṁ vasudeva-śabditam* [[sb/4/3/23|(SB 4.3.23)]]. To understand the Supreme Lord, we must first come to the platform of *sattva,* goodness, but goodness here in the material world is sometimes contaminated by the lower qualities ignorance and passion. By hearing about Kṛṣṇa, however, one comes to the platform of pure goodness. *Sṛṇvatāṁ sva-kathāḥ kṛṣṇaḥ puṇya-śravaṇa-kīrtanaḥ* [[sb/1/2/17|[SB 1.2.17] ]]. We should try to hear and chant about Kṛṣṇa always, twenty-four hours a day, and in this way the dirty things will be cleansed from our hearts. It is not that one should only attend a *bhāgavata-saptāha,* an official reading of *Śrīmad-Bhāgavatam* for seven days. That is another form of exploitation. In the *Bhāgavatam* it is said, *naṣṭa-prāyesv abhadreṣu nityaṁ bhāgavata-sevayā* [[sb/1/2/18|[SB 1.2.18] ]]. The word *nityam* means "daily" or "twenty-four hours a day." One should always read *Śrīmad-Bhāgavatam* and carry out the order of one's spiritual master. The word *bhāgavata* may refer either to the spiritual master or to the book *Śrīmad-Bhāgavatam.* So one should always serve the person *bhāgavata* or the book *Bhāgavata. Bhagavaty uttama-śloke bhaktir bhavati naiṣṭhikī.* Then one will be fixed immovably (*naiṣṭhikī*) in devotional service to the Supreme Personality of Godhead.
 
 In this way, one should realize the benefits of the Kṛṣṇa consciousness movement by the prescribed spiritual process and try to distribute these benefits to other people. To awaken the dormant Kṛṣṇa consciousness of others is the greatest welfare activity in the world. We can actually see that devotees who were not Kṛṣṇa conscious four or five years ago have been awakened and are now Kṛṣṇa conscious. Similarly, others can be awakened also. There is no difficulty. The process is the same.
 
 By following in the footsteps of devotees like Kuntī, we shall be able to understand Kṛṣṇa's identity. For example, we may ask a person's identity by asking, "What is your father's name?" So *Śrīmad-Bhāgavatam* presents God with His father's name, His mother's name, and even His address. We are not impersonalists with a vague idea of God. If one takes advantage of the Kṛṣṇa consciousness movement, one can understand God perfectly and completely.
 
+### 5
 
-# Chapter 5: The Vision of Lotuses
+5. The Vision of Lotuses
 
 > namaḥ paṅkaja-nābhāya
 > namaḥ paṅkaja-māline
@@ -264,8 +270,9 @@ Those who think of something impersonal are not *yogīs.* Their meditation simpl
 
 We have to be purified. *Paraṁ brahma paraṁ dhāma pavitraṁ paramaṁ bhavān* [[bg/10/12-13|[Bg. 10.12] ]]. Because Kṛṣṇa is pure, we cannot approach Kṛṣṇa impurely. But if we think of Kṛṣṇa always and meditate upon Kṛṣṇa, then we shall be purified. *Puṇya-śravaṇa-kīrtanaḥ* [[sb/1/2/17|[SB 1.2.17] ]]. That meditation can be possible by hearing and chanting, and then thinking of Kṛṣṇa will automatically come. That is the process of Kṛṣṇa consciousness. *Śravaṇaṁ kīrtanaṁ viṣṇoḥ smaraṇam* [[sb/7/5/23-24|[SB 7.5.23] ]]. The word *smaraṇam* means "remembering." If we chant and hear, then remembrance will automatically come, and then we shall engage in worshiping Kṛṣṇa's lotus feet (*sevanam*). Then we shall engage in the temple worship (*arcanam*) and offering prayers (*vandanam*). We shall engage ourselves as Kṛṣṇa's servants (*dāsyam*), we shall become Kṛṣṇa's friends (*sakhyam*), and we shall surrender everything to Kṛṣṇa (*ātma-nivedanam*). This is the process of Kṛṣṇa consciousness.
 
+### 6
 
-# Chapter 6: The Master of the Senses
+6. The Master of the Senses
 
 > yathā hṛṣīkeśa khalena devakī
 > kaṁsena ruddhāticiraṁ śucārpitā
@@ -304,7 +311,7 @@ To think "I am an American. Why shall I take to Kṛṣṇa consciousness and wo
 
 For sense gratification we have fallen into this material condition and are suffering in different varieties of life. Because this is the material world, even Kṛṣṇa's mother was put into suffering. Devakī was so advanced that she became the mother of Kṛṣṇa, but still she was put into difficulties by her own brother, Kaṁsa. That is the nature of this material world. The living entities in this world are so jealous that if one's personal interest is hampered, one will immediately be ready to give trouble to others, even to one's nearest relatives.
 
-The word *khala* means "jealous." This material world is a world of jealousy and envy. I am envious of you, and you are envious of me. The Kṛṣṇa consciousness movement, however, is meant for one who is no longer jealous or envious. By becoming free from jealousy and envy, one becomes a perfect person. *Dharmaḥ projjhita-kaitavo 'tra paramo nirmatsarāṇāṁ satām* (SB 1.1.2). Those who are jealous and envious are within this material world, and those who are not are in the spiritual world. Therefore, we can test ourselves. If we are jealous or envious of our friends or other associates, we are in the material world, and if we are not jealous we are in the spiritual world. There need be no doubt of whether we are spiritually advanced or not. We can test ourselves. *Bhaktiḥ pareśānubhavo viraktir anyatra ca* (SB 11.2.42). When we eat, we can understand for ourselves whether our hunger is satisfied; we don't have to take a certificate from others. Similarly, we can test for ourselves whether we are in the material world or the spiritual world. If we are jealous or envious, we are in the material world, and if we are not we are in the spiritual world.
+The word *khala* means "jealous." This material world is a world of jealousy and envy. I am envious of you, and you are envious of me. The Kṛṣṇa consciousness movement, however, is meant for one who is no longer jealous or envious. By becoming free from jealousy and envy, one becomes a perfect person. *Dharmaḥ projjhita-kaitavo 'tra paramo nirmatsarāṇāṁ satām* [[sb/1/1/2|(SB 1.1.2)]]. Those who are jealous and envious are within this material world, and those who are not are in the spiritual world. Therefore, we can test ourselves. If we are jealous or envious of our friends or other associates, we are in the material world, and if we are not jealous we are in the spiritual world. There need be no doubt of whether we are spiritually advanced or not. We can test ourselves. *Bhaktiḥ pareśānubhavo viraktir anyatra ca* [[sb/11/2/42|(SB 11.2.42)]]. When we eat, we can understand for ourselves whether our hunger is satisfied; we don't have to take a certificate from others. Similarly, we can test for ourselves whether we are in the material world or the spiritual world. If we are jealous or envious, we are in the material world, and if we are not we are in the spiritual world.
 
 If one is not jealous, one can serve Kṛṣṇa very well, because jealousy and envy begin with being jealous of Kṛṣṇa. For example, some philosophers think, "Why should Kṛṣṇa be God? I am also God." This is the beginning of material life—to be envious of Kṛṣṇa. "Why should Kṛṣṇa be the enjoyer?" they think. "I shall also be the enjoyer. Why should Kṛṣṇa enjoy the *gopīs?* I shall become Kṛṣṇa and make a society of *gopīs* and enjoy." This is *māyā.* No one but Kṛṣṇa can be the enjoyer. Kṛṣṇa therefore says in *Bhagavad-gītā, bhoktāraṁ yajña:* [[bg/5/29|[Bg. 5.29] ]] "I am the only enjoyer." If we supply ingredients for Kṛṣṇa's enjoyment, we attain the perfection of life. But if we want to imitate Kṛṣṇa, thinking, "I shall become God and enjoy like Him," then we are in *māyā.* Our natural position is to provide enjoyment for Kṛṣṇa. In the spiritual world, for example, Kṛṣṇa enjoys, and the *gopīs,* the transcendental cowherd girls, supply the ingredients for Kṛṣṇa's enjoyment. This is *bhakti.*
 
@@ -322,8 +329,9 @@ Of course, the world is full of dangers. But Kuntīdevī says, "Because Devakī 
 
 Therefore, we must depend on Kṛṣṇa, like Devakī and Kuntī. After Kuntī became a widow, the envious Dhṛtarāṣṭra was always planning ways to kill her sons, the five Pāṇḍavas. "Because by chance I was born blind," he thought, "I could not inherit the throne of the kingdom, and instead it went to my younger brother. Now he is dead, so at least my sons should get the throne." This is the materialistic propensity. One thinks, "1 shall be happy. My sons will be happy. My community will be happy. My nation will be happy." This is extended selfishness. No one is thinking of Kṛṣṇa and how Kṛṣṇa will be happy. Rather, everyone is thinking in terms of his own happiness: "How shall I be happy? How will my children, my community, my society, and my nation be happy?" Everywhere we shall find this. Everyone is struggling for existence, not thinking of how Kṛṣṇa will be happy. Kṛṣṇa consciousness is very sublime. We should try to understand it from *Śrīmad-Bhāgavatam* and *Bhagavad-gītā* and try to engage our senses for the service of the master of the senses (*hṛṣīkeṇa hṛṣīkeśa-sevanam* [[cc/madhya/19/170|[Cc. Madhya 19.170] ]]). Then we shall actually be happy.
 
+### 7
 
-# Chapter 7: Dangerous Encounters
+7. Dangerous Encounters
 
 > viṣān mahāgneḥ puruṣāda-darśanād
 > asat-sabhāyā vana-vāsa-kṛcchrataḥ
@@ -376,8 +384,9 @@ Subsequently, Arjuna arrested Aśvatthāmā and was going to kill him. In fact, 
 
 When that weapon was unleashed, Parīkṣit Mahārāja's mother, Uttarā, felt that she was going to have a miscarriage, and therefore she approached Kṛṣṇa, saying, "Please save me." Kṛṣṇa, by His mystic power, therefore entered the womb of Uttarā and saved the child. After the Battle of Kurukṣetra, Parīkṣit Mahārāja, who was still in the womb of his mother, was the last remaining descendant of the Pāṇḍavas, and in mature time, when he was born, only his grandfathers were still alive. Parīkṣit Mahārāja was the son of Abhimanyu, who was the son of Arjuna and Subhadrā, Kṛṣṇa's sister. When Abhimanyu was sixteen years old, he went to fight, and seven great commanders joined forces to kill him. Subhadrā had only one grandchild, Parīkṣit Mahārāja. As soon as he grew up, the entire estate of the Pāṇḍavas was entrusted to him, and all the Pāṇḍavas left home and went to the Himalayas. This history is described in the *Mahābhārata.* Many great misfortunes befell the Pāṇḍavas, but in all circumstances they simply depended on Kṛṣṇa, who always saved them. Queen Kuntī's response to these misfortunes is recorded in the next verse.
 
+### 8
 
-# Chapter 8: Let There Be Calamities
+8. Let There Be Calamities
 
 > vipadaḥ santu tāḥ śaśvat
 > tatra tatra jagad-guro
@@ -397,7 +406,7 @@ In this very interesting verse, it is described that *vipadaḥ*—calamities or
 
 > tat te 'nukampāṁ susamīkṣamāṇo
 > bhuñjāna evātma-kṛtaṁ vipākam
-> (SB 10.14.8)
+> [[sb/10/14/8|(SB 10.14.8)]]
 
 How does a devotee receive dangers? There must be dangers because this material world is full of dangers. But foolish people who do not know this try to avoid the dangers. Thus they struggle for existence. Everyone is trying to become happy and avoid danger. This is our material business. Everyone is trying for *ātyantikaṁ sukham,* ultimate happiness. A working man thinks, "Let me work very hard now and put money in the bank, so that when I get old I shall enjoy life without working." This is the inner intention of everyone. No one wants to work; as soon as one gets some money, he wants to retire from work and become happy. But that is not possible. One cannot become happy in that way.
 
@@ -439,7 +448,7 @@ A devotee, however, is never disturbed by dangers, reverses, or calamities. Rath
 
 When a devotee is in danger, he thinks, "Now Kṛṣṇa has appeared before me as danger." In His form of Nṛsiṁhadeva, the Lord was dangerous to the demon Hiraṇyakaśipu, but the same Nṛsiṁhadeva was the supreme friend to the devoted Prahlāda Mahārāja. God is never dangerous to the devotee, and the devotee is never afraid of dangers, because he is confident that the danger is but another feature of God. "Why should I be afraid?" the devotee thinks. "I am surrendered to Him."
 
-Therefore Kuntīdevī says, *vipadaḥ santu:* "Let there be calamities." *Vipadaḥ santu tāḥ śaśvat:* "Let all those calamities happen again and again." Because she knows how to remember Kṛṣṇa at times of danger, she is welcoming danger. "My dear Lord," she says, "I welcome dangers, because when dangers come I can remember You." When Prahlāda Mahārāja's father was putting him into dangerous predicaments, Prahlāda was always thinking of Kṛṣṇa. So if we are put into a dangerous position and that danger gives us an impetus to remember Kṛṣṇa, that is welcome: "Oh, I am getting this opportunity to remember Kṛṣṇa." Why is this welcome? It is welcome because seeing Kṛṣṇa or remembering Kṛṣṇa means advancing in spiritual life so that we will not have to suffer any more of these dangers. *Tyaktvā dehaṁ punar janma naiti mām eti so 'rjuna* (Bg. 4.9). If one becomes advanced in Kṛṣṇa consciousness, the result will be that after giving up the body (*tyaktvā deham*) one will not have to take birth again in this material world (*punar janma naiti*). This is to be desired.
+Therefore Kuntīdevī says, *vipadaḥ santu:* "Let there be calamities." *Vipadaḥ santu tāḥ śaśvat:* "Let all those calamities happen again and again." Because she knows how to remember Kṛṣṇa at times of danger, she is welcoming danger. "My dear Lord," she says, "I welcome dangers, because when dangers come I can remember You." When Prahlāda Mahārāja's father was putting him into dangerous predicaments, Prahlāda was always thinking of Kṛṣṇa. So if we are put into a dangerous position and that danger gives us an impetus to remember Kṛṣṇa, that is welcome: "Oh, I am getting this opportunity to remember Kṛṣṇa." Why is this welcome? It is welcome because seeing Kṛṣṇa or remembering Kṛṣṇa means advancing in spiritual life so that we will not have to suffer any more of these dangers. *Tyaktvā dehaṁ punar janma naiti mām eti so 'rjuna* [[bg/4/9|(Bg. 4.9)]]. If one becomes advanced in Kṛṣṇa consciousness, the result will be that after giving up the body (*tyaktvā deham*) one will not have to take birth again in this material world (*punar janma naiti*). This is to be desired.
 
 Suppose I am very comfortable at the present moment. My body may be comfortable, but there will be death, and then another birth. After giving up my present body, if I get the body of a cat or a dog, what is the meaning of my comfortable position? Death is sure, and after death one must surely accept another body. We may not know what kind of body we shall get, but we can know from the *śāstra,* the Vedic literature. The *śāstra* says that according to our particular mentality, we will get a particular kind of body. Although I may be in a comfortable position, if I keep myself in the mentality of a dog, I shall get my next life as a dog. Therefore, what is the value of this comfortable position? I may be in a comfortable position for twenty years, thirty years, fifty years, or at the utmost one hundred years. Yet if, when I give up this body, my mentality causes me to become a cat, a dog, or a mouse, what is the benefit of this comfortable position? But people do not consider this. They think, especially in the present age, "I am now in a comfortable position. I have enough money and a good estate. I have ample comforts and enough food. When this body is finished, I am not going to take birth again, so as long as I am living, let me enjoy life." This is the modern philosophy of hedonism, but it does not correspond to the facts.
 
@@ -461,8 +470,9 @@ In *Bhagavad-gītā* Lord Kṛṣṇa says, *kaunteya pratijānīhi na me bhakta
 
 Therefore, we must take to Kṛṣṇa consciousness and adhere to this consciousness under all circumstances, even in the most dangerous position. We must keep our faith in Kṛṣṇa's lotus feet, and then there will be no danger.
 
+### 9
 
-# Chapter 9: Decreasing the Fever of Illusion
+9. Decreasing the Fever of Illusion
 
 > janmaiśvarya-śruta-śrībhir
 > edhamāna-madaḥ pumān
@@ -522,8 +532,9 @@ Nonetheless, when one becomes Kṛṣṇa conscious, these same material assets 
 
 Everything can be used in the service of Kṛṣṇa. If one remains intoxicated and does not use one's material assets for the service of Kṛṣṇa, they are not very valuable. But if one can use them for the service of Kṛṣṇa, they become extremely valuable. To give an example, zero has no value, but as soon as the digit one is placed before the zero, the zero immediately becomes ten. If there are two zeros, they become one hundred, and three zeros become one thousand. Similarly, we are intoxicated by material assets that are actually no better than zero, but as soon as we add Kṛṣṇa, these tens and hundreds and thousands and millions of zeros become extremely valuable. The Kṛṣṇa consciousness movement therefore offers a great opportunity to the people of the West. They have an overabundance of the zeros of materialistic life, and if they simply add Kṛṣṇa their life will become sublimely valuable.
 
+### 10
 
-# Chapter 10: The Property of the Impoverished
+10. The Property of the Impoverished
 
 > namo 'kiñcana-vittāya
 > nivṛtta-guṇa-vṛttaye
@@ -586,8 +597,9 @@ The Māyāvādī philosophers think, "Why shall I keep my individual, separate e
 
 That we are dependent is not very difficult to understand. If Kṛṣṇa does not supply us food, we shall starve, because independently we cannot produce anything. *Eko bahūnāṁ yo vidadhāti kāmān:* Kṛṣṇa is maintaining everything, and we are being maintained. Therefore Kṛṣṇa is the real predominator, and we should be willing to be predominated. That is our natural constitutional position. If we falsely want to become predominators in this material world, we are in illusion. We must give up this illusion and always try to be predominated by Kṛṣṇa. Then our life will be successful.
 
+### 11
 
-# Chapter 11: The Touch of Superior Energy
+11. The Touch of Superior Energy
 
 > manye tvāṁ kālam īśānam
 > anādi-nidhanaṁ vibhum
@@ -616,7 +628,7 @@ The *brahmajyoti* is one of three features of the Absolute Truth.
 > tattvaṁ yaj jñānam advayam
 > brahmeti paramātmeti
 > bhagavān iti śabdyate
-> (SB 1.2.11)
+> [[sb/1/2/11|(SB 1.2.11)]]
 
 The Absolute Truth is one, but is perceived in three features, known as Brahman, Paramātmā, and Bhagavān. The original, complete feature of the Absolute Truth is Bhagavān, the Supreme Personality of Godhead, and His plenary representation is Paramātmā, Kṣīrodakaśāyī Viṣṇu, who is situated in everyone's heart (*īśvaraḥ sarva-bhūtānāṁ hṛd deśe 'rjuna tiṣṭhati* [[bg/18/61|[Bg. 18.61] ]]). The third feature of the Absolute Truth is Brahman, the all-pervading impersonal effulgence of the Absolute.
 
@@ -634,7 +646,7 @@ One attains liberation when one gives up the false idea that the body is the sel
 
 This liberation is open for everyone (*samaṁ carantam* [[sb/1/8/28|[SB 1.8.28] ]]). In *Bhagavad-gītā* Kṛṣṇa does not say to Arjuna, "Only you may come to Me and become liberated." No, the Lord is available for everyone. When He says, *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja* [[bg/18/66|[Bg. 18.66] ]]—"Give up all other duties and surrender unto Me"—He is speaking not only to Arjuna but to everyone. Arjuna was the original target, but in fact *Bhagavad-gītā* was spoken for everyone, for all human beings, and therefore one must take advantage of it.
 
-Kṛṣṇa's impartiality is compared to that of the sun. The sun does not consider, "Here is a poor man, here is a low-class man, and here is a hog. I shall not distribute my sunshine to them." No, the sun is equal toward all, and one simply has to take advantage of it. The sunshine is available, but if we close our doors and want to keep ourselves in darkness, that is our decision. Similarly, Kṛṣṇa is everywhere, Kṛṣṇa is for everyone, and Kṛṣṇa is ready to accept us as soon as we surrender. *Samaṁ carantam.* There is no restriction. People may make a distinction between lower class and higher class, but Kṛṣṇa says, *māṁ hi pārtha vyapāśritya ye 'pi syuḥ pāpa-yonayaḥ* (Bg. 9.32): "Even though one may supposedly be of a lower class, that doesn't matter. If he surrenders to Me he is also eligible to come back home, back to Godhead."
+Kṛṣṇa's impartiality is compared to that of the sun. The sun does not consider, "Here is a poor man, here is a low-class man, and here is a hog. I shall not distribute my sunshine to them." No, the sun is equal toward all, and one simply has to take advantage of it. The sunshine is available, but if we close our doors and want to keep ourselves in darkness, that is our decision. Similarly, Kṛṣṇa is everywhere, Kṛṣṇa is for everyone, and Kṛṣṇa is ready to accept us as soon as we surrender. *Samaṁ carantam.* There is no restriction. People may make a distinction between lower class and higher class, but Kṛṣṇa says, *māṁ hi pārtha vyapāśritya ye 'pi syuḥ pāpa-yonayaḥ* [[bg/9/32|(Bg. 9.32)]]: "Even though one may supposedly be of a lower class, that doesn't matter. If he surrenders to Me he is also eligible to come back home, back to Godhead."
 
 That same Kṛṣṇa is described by Kuntīdevī as eternal time. Everything takes place within time, but our time calculations of past, present, and future are relative. A small insect's measurement of past, present, and future is different from our past, present, and future, and similarly the past, present, and future of Brahmā, the chief creative living being within this universe, are different from ours. But Kṛṣṇa has no past, present, or future. Therefore He is eternal. We have a past, present, and future because we change from one body to another. The body we have now is dated. At a certain date I was born of my father and mother, and now this body will stay for some time. It will grow, it will produce some byproducts, then it will become old and dwindle and then vanish, and then I shall have to accept another body. When the past, present, and future of my present body are finished, I shall accept another body, and again my past, present, and future will begin. But Kṛṣṇa has no past, present, or future, because He does not change His body. That is the difference between ourselves and Kṛṣṇa.
 
@@ -654,8 +666,9 @@ All the universes have developed because of Kṛṣṇa's presence, as mentioned
 
 One should scientifically understand Kṛṣṇa. Kṛṣṇa has no past, present, and future. He is eternal time, with no beginning and no end, and He is equal to everyone. We simply have to prepare ourselves to see Kṛṣṇa and understand Kṛṣṇa. That is the purpose of Kṛṣṇa consciousness.
 
+### 12
 
-# Chapter 12: Bewildering Pastimes
+12. Bewildering Pastimes
 
 > na veda kaścid bhagavaṁś cikīrṣitaṁ
 > tavehamānasya nṛṇāṁ viḍambanam
@@ -714,8 +727,9 @@ Thus Kṛṣṇa may sometimes act like a common man, but as God He expanded Him
 
 Kṛṣṇa is completely independent, and He has no friends or enemies, but He plays for the benefit of both His friends and enemies, and when He acts for the benefit of either, the result is the same. That is Kṛṣṇa's absolute nature.
 
+### 13
 
-# Chapter 13: The Vital Force of the Universe
+13. The Vital Force of the Universe
 
 > janma karma ca viśvātmann
 > ajasyākartur ātmanaḥ
@@ -773,7 +787,7 @@ Yet the cowherd boys are able to play with that same Kṛṣṇa, the exalted Pe
 > dāsyaṁ gatānāṁ para-daivatena
 > māyāśritānāṁ nara-dārakeṇa
 > sākam vijahruḥ kṛta-puṇya-puñjāḥ
-> (SB 10.12.11)
+> [[sb/10/12/11|(SB 10.12.11)]]
 
 The cowherd boys playing with Kṛṣṇa are also not ordinary, for they have attained the highest perfection of being able to play with the Supreme Personality of Godhead. How did they achieve this position? *Kṛta-puṇya-puñjāḥ:* by many, many lives of pious activities. For many, many lives these boys underwent austerities and penances to achieve the highest perfection of life, and now they have the opportunity to play with Kṛṣṇa personally on an equal level. They do not know that Kṛṣṇa is the Supreme Personality of Godhead, for that is the nature of *vṛndāvana-līlā,* Kṛṣṇa's pastimes in the village of Vṛndāvana.
 
@@ -788,7 +802,7 @@ Of course, human life does not actually begin until there is some conception of 
 > te dvandva-moha-nirmuktā
 > bhajante māṁ dṛḍha-vratāḥ
 
-"Persons who have acted piously in previous lives and in this life, whose sinful actions are completely eradicated, and who are freed from the duality of delusion engage themselves in My service with determination." (Bg. 7.28)
+"Persons who have acted piously in previous lives and in this life, whose sinful actions are completely eradicated, and who are freed from the duality of delusion engage themselves in My service with determination." [[bg/7/28|(Bg. 7.28)]]
 
 The word *anta-gatam* means "finished." One can engage in devotional service if one has finished with his sinful life. Who can finish with sinful life? Those who engage in pious activities. One must have activities, and if one engages in pious activities one's sinful activities will naturally vanish. On one side, one should voluntarily try to break the pillars of sinful life, and on another side one must engage himself in pious life.
 
@@ -811,10 +825,11 @@ Kṛṣṇa's appearance and disappearance are meant to put an end to the living
 > ahaṁ tvāṁ sarva-pāpebhyo
 > mokṣayiṣyāmi mā śucaḥ
 
-"Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear." (Bg. 18.66) All of us are children of Kṛṣṇa, God, and since we are unhappy because of taking material bodies for repeated birth, death, old age, and disease, He is more unhappy than we are. Our situation in the material body is not at all comfortable, but we are such foolish rascals that we do not care to do anything about this. We are busy trying to arrange for temporary comforts in this life, but we are neglecting the real discomforts of birth, death, old age, and disease. This is our ignorance and our foolishness, and therefore Kṛṣṇa comes to wake us up from this ignorance and take us back home, back to Godhead.
+"Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear." [[bg/18/66|(Bg. 18.66)]] All of us are children of Kṛṣṇa, God, and since we are unhappy because of taking material bodies for repeated birth, death, old age, and disease, He is more unhappy than we are. Our situation in the material body is not at all comfortable, but we are such foolish rascals that we do not care to do anything about this. We are busy trying to arrange for temporary comforts in this life, but we are neglecting the real discomforts of birth, death, old age, and disease. This is our ignorance and our foolishness, and therefore Kṛṣṇa comes to wake us up from this ignorance and take us back home, back to Godhead.
 
+### 14
 
-# Chapter 14: Lord Kṛṣṇa’s Wonderful Activities
+14. Lord Kṛṣṇa’s Wonderful Activities
 
 > gopy ādade tvayi kṛtāgasi dāma tāvad
 > yā te daśāśru-kalilāñjana-sambhramākṣam
@@ -867,8 +882,9 @@ Therefore the mentality of Vṛndāvana is the perfect status of mind for devote
 
 Kuntīdevī, however, was not an inhabitant of Vṛndāvana. She was an inhabitant of Hastināpura, which is outside Vṛndāvana. The devotees outside Vṛndāvana study how great the inhabitants of Vṛndāvana are, but the inhabitants of Vṛndāvana don't care to know how great Kṛṣṇa is. That is the difference between them. So our concern should be simply to love Kṛṣṇa. The more we love Kṛṣṇa, the more we shall become perfect. It is not necessary to understand Kṛṣṇa and how He creates. Kṛṣṇa explains Himself in *Bhagavad-gītā,* and we should not try to understand much more. We should not bother very much to know Kṛṣṇa. That is not possible. We should simply increase our unalloyed love for Kṛṣṇa. That is the perfection of life.
 
+### 15
 
-# Chapter 15: Beyond Birth and Death
+15. Beyond Birth and Death
 
 > kecid āhur ajaṁ jātaṁ
 > puṇya-ślokasya kīrtaye
@@ -920,20 +936,21 @@ Kṛṣṇa is everywhere. The Lord is situated in everyone's heart (*īśvara�
 
 But why should Kṛṣṇa perform the pastime of taking birth? Kuntīdevī replies, *puṇya-ślokasya kīrtaye:* [[sb/1/8/32|[SB 1.8.32] ]] to glorify those who are very pious and very much advanced in spiritual understanding. Kṛṣṇa comes as the son of Devakī to glorify His devotee Devakī. Kṛṣṇa becomes the son of Yaśodā to glorify Yaśodā. Similarly, Kṛṣṇa appears in the dynasty of Mahārāja Yadu, His great devotee, just to glorify Mahārāja Yadu. Thus Kṛṣṇa is still known as Yādava, the descendant of Mahārāja Yadu. Kṛṣṇa has no obligation to take His birth in a particular family or country, but He takes birth to glorify a certain person or a certain family because of their devotion. Therefore His birth is called *divyam,* transcendental.
 
-The Lord is not obliged to take birth, but we are obliged to do so. That is the distinction between our birth and the birth of Kṛṣṇa. If by our *karma,* or activities, we are fit to take birth in a good family in human society or demigod society, we shall do so, but if our activities are low like those of animals, we shall have to take birth in a family of animals. That is the force of *karma. Karmaṇā daiva-netreṇa jantor dehopapattaye* (SB 3.31.1). We develop a certain type of body according to our *karma.*
+The Lord is not obliged to take birth, but we are obliged to do so. That is the distinction between our birth and the birth of Kṛṣṇa. If by our *karma,* or activities, we are fit to take birth in a good family in human society or demigod society, we shall do so, but if our activities are low like those of animals, we shall have to take birth in a family of animals. That is the force of *karma. Karmaṇā daiva-netreṇa jantor dehopapattaye* [[sb/3/31/1|(SB 3.31.1)]]. We develop a certain type of body according to our *karma.*
 
 The human form of life is meant for understanding the Supreme, the Absolute Truth (*athāto brahma jijñāsā*). But if we do not endeavor for this, if we misuse this opportunity and simply remain like animals, we shall return to an animal form of life. Therefore the Kṛṣṇa consciousness movement is trying to save people from going down to animal life.
 
 The appearance of Lord Kṛṣṇa is compared to the growth of sandalwood trees in the Malaya Hills (*malayasyeva candanam* [[sb/1/8/32|[SB 1.8.32] ]]). There are two Malayas—the Malaya Hills and the part of the world now known as Malaysia. The *candana* tree, or sandalwood tree, can grow anywhere—there is no rule that it has to grow in Malaysia or the Malaya Hills—but because this sandalwood grows in large quantities in those parts of the world, it is known as *malaya-candana.* In the Western countries there is scented water known as eau de cologne. It can be manufactured anywhere, but because it was originally manufactured in the city of Cologne, it is known as eau de cologne. Similarly, sandalwood can grow anywhere, but because it was originally very prominent in Malaysia and the Malaya Hills, it is known as Malayan sandalwood. Kuntī offered this prayer five thousand years ago, and this indicates that sandalwood was growing five thousand years ago in Malaysia. Malaysia is not a new name; it was known thousands and thousands of years ago to the followers of the Vedic culture. Nowadays, of course, Malaysia is growing rubber trees because there is a good demand for rubber, but formerly Malaysia grew sandalwood on a large scale because there was a great demand for sandalwood, especially in India.
 
-Because India is a tropical country and sandalwood is very cooling people in India use sandalwood pulp as a cosmetic. Even now, during the very warm days of the summer season, those who can afford to do so apply sandalwood pulp to their bodies and feel cool all day. In India it was the system that after bathing and sanctifying the body by applying marks of *tilaka,* one would offer obeisances to the Deity, take some *candana-prasāda* from the room of the Deity, and apply it as a cosmetic to the body. This was called *prasādhanam.* But it is said that in Kali-yuga, the present age, *snānam eva prasādhanam* (SB 12.2.5): if one can even bathe nicely, that is *prasādhana.* In India even the poorest man will take an early morning bath every day, but when I came to America I saw that even taking one's daily bath may be a difficult thing and is often not the practice. In India we are accustomed to see people bathe thrice in a day, but in New York I have seen that one may have to go to a friend's house to bathe because one may not have facilities to do so at home. These are symptoms of Kali-yuga. *Snānam eva prasādhanam.* In the Kali-yuga it will be very difficult even to take a bath.
+Because India is a tropical country and sandalwood is very cooling people in India use sandalwood pulp as a cosmetic. Even now, during the very warm days of the summer season, those who can afford to do so apply sandalwood pulp to their bodies and feel cool all day. In India it was the system that after bathing and sanctifying the body by applying marks of *tilaka,* one would offer obeisances to the Deity, take some *candana-prasāda* from the room of the Deity, and apply it as a cosmetic to the body. This was called *prasādhanam.* But it is said that in Kali-yuga, the present age, *snānam eva prasādhanam* [[sb/12/2/5|(SB 12.2.5)]]: if one can even bathe nicely, that is *prasādhana.* In India even the poorest man will take an early morning bath every day, but when I came to America I saw that even taking one's daily bath may be a difficult thing and is often not the practice. In India we are accustomed to see people bathe thrice in a day, but in New York I have seen that one may have to go to a friend's house to bathe because one may not have facilities to do so at home. These are symptoms of Kali-yuga. *Snānam eva prasādhanam.* In the Kali-yuga it will be very difficult even to take a bath.
 
-Another symptom of Kali-yuga is *dākṣyaṁ kuṭumba-bharaṇam* (SB 12.2.7): one will be famous for his pious activities simply if he can maintain his family. The word *dākṣyam,* meaning "famous for pious activities," comes from *dakṣa,* which means "expert." In Kali-yuga one will be considered expert if he can maintain a family consisting of himself, his wife, and one or two children. In India, of course, the traditional family is the joint family, consisting of a man and his wife, their parents and children, their in-laws, and so on. But in Kali-yuga it will be difficult to maintain a simple family of oneself, one's wife, and a few children. When I was living in New York, among the people coming to our classes was an old lady who had a grown son. I asked her, "Why doesn't your son get married?" She replied, "Yes, he can marry when he can maintain a family." I did not know that maintaining a family was such a difficult job here. But this is described in the *Bhāgavatam:* if one can maintain a family, he will be considered a very glorious man, and if a girl has a husband she will be considered very fortunate.
+Another symptom of Kali-yuga is *dākṣyaṁ kuṭumba-bharaṇam* [[sb/12/2/7|(SB 12.2.7)]]: one will be famous for his pious activities simply if he can maintain his family. The word *dākṣyam,* meaning "famous for pious activities," comes from *dakṣa,* which means "expert." In Kali-yuga one will be considered expert if he can maintain a family consisting of himself, his wife, and one or two children. In India, of course, the traditional family is the joint family, consisting of a man and his wife, their parents and children, their in-laws, and so on. But in Kali-yuga it will be difficult to maintain a simple family of oneself, one's wife, and a few children. When I was living in New York, among the people coming to our classes was an old lady who had a grown son. I asked her, "Why doesn't your son get married?" She replied, "Yes, he can marry when he can maintain a family." I did not know that maintaining a family was such a difficult job here. But this is described in the *Bhāgavatam:* if one can maintain a family, he will be considered a very glorious man, and if a girl has a husband she will be considered very fortunate.
 
 It is not our business to criticize, but the symptoms of Kali-yuga are very severe, and they will grow more severe. The duration of Kali-yuga is we find so many difficulties, and the more we grow into this Kali-yuga, the more the times will be difficult. The best course, therefore, is to complete our Kṛṣṇa consciousness and return home, back to Godhead. That will save us. Otherwise, if we come back again for another life in Kali-yuga, we shall find difficult days ahead, and we shall have to suffer more and more.
 
+### 16
 
-# Chapter 16: Returning to Our Natural Consciousness
+16. Returning to Our Natural Consciousness
 
 > apare vasudevasya
 > devakyāṁ yācito 'bhyagāt
@@ -952,7 +969,7 @@ The Lord says:
 > abhyutthānam adharmasya
 > tadātmānaṁ sṛjāmy aham
 
-"Whenever and wherever there is a decline in religious practice, O descendant of Bharata, and a predominant rise of irreligion—at that time I descend Myself." (Bg. 4.7) The words *dharmasya glāniḥ* mean "irregularities in religion." When there are irregularities, religion becomes polluted.
+"Whenever and wherever there is a decline in religious practice, O descendant of Bharata, and a predominant rise of irreligion—at that time I descend Myself." [[bg/4/7|(Bg. 4.7)]] The words *dharmasya glāniḥ* mean "irregularities in religion." When there are irregularities, religion becomes polluted.
 
 In human society there must be a proper balance between spirit and matter. We are actually spirit soul, but somehow or other we have been encaged within material bodies, and as long as we have these bodies we have to accept the bodily necessities of eating, sleeping, mating, and defending, although the soul itself does not need these things. The soul does not need to eat anything; whatever we eat is for the upkeep of the body. But a civilization that simply looks after these bodily necessities and does not care for the necessities of the soul is a foolish, unbalanced civilization. Suppose one merely washes one's coat but does not take care of one's body. Or suppose one has a bird in a cage but merely takes care of the cage, not the bird within it. This is foolishness. The bird is crying, "Ka, *ka.* Give me food, give me food." If one only takes care of the cage, how can the bird be happy?
 
@@ -968,7 +985,7 @@ One must know the necessities of the body and also the necessities of the soul. 
 > bhavauṣadhāc chrotra-mano-'bhirāmāt
 > ka uttamaśloka-guṇānuvādāt
 > pumān virajyeta vinā paśu-ghnāt
-> (SB 10.1.4)
+> [[sb/10/1/4|(SB 10.1.4)]]
 
 Parīkṣit Mahārāja said to the great sage Śukadeva Gosvāmī, "The discourses on *Śrīmad-Bhāgavatam* that you are giving me are not ordinary. These *Bhāgavata* discourses are relishable for persons who are *nivṛtta-tṛṣṇa,* free from hankering." Everyone in this material world is hankering for enjoyment, but one who is free from this hankering can taste how relishable the *Bhāgavatam* is. The word *bhāgavata* refers to anything in relationship to Bhagavān, the Supreme Lord, and the Hare Kṛṣṇa *mantra* is also *bhāgavata.* Thus Parīkṣit Mahārāja said that the taste of the *Bhāgavata* can be relished by one who is free from hankering to satisfy material desires. And why should this *Bhāgavata* be tasted? *Bhavauṣadhi:* it is the medicine for our disease of birth and death.
 
@@ -1023,14 +1040,15 @@ So people may say that Kṛṣṇa has come for this purpose or that purpose, bu
 
 > yasyāsti bhaktir bhagavaty akiñcanā
 > sarvair guṇais tatra samāsate surāḥ
-> (SB 5.18.12)
+> [[sb/5/18/12|(SB 5.18.12)]]
 
 If one simply develops one's dormant, natural devotion for Kṛṣṇa, one will develop all good qualities.
 
 Our devotion for Kṛṣṇa is natural. Just as a son has natural devotion to his father and mother, we have natural devotion to Kṛṣṇa. When there is danger, even materialistic scientists pray to God. Of course, when they are not in danger they defy God, and therefore danger is required in order to teach these rascals that there is God. *Jīvera svarūpa haya-kṛṣṇera 'nitya-dāsa'* [[cc/madhya/20/108-109|[Cc. Madhya 20.108] ]]. Our natural position is to be dependent on God. Artificially we are trying to banish God, saying, "God is dead," "There is no God," or "I am God." But when we give up this rascaldom, Kṛṣṇa will give us all protection.
 
+### 17
 
-# Chapter 17: Lightening the Burden of the World
+17. Lightening the Burden of the World
 
 > bhārāvatāraṇāyānye
 > bhuvo nāva ivodadhau
@@ -1099,8 +1117,9 @@ Nārāyaṇa is not an ordinary living being. He is the Personality of Godhead H
 
 The Lord is complete and independent to do anything and everything by His various potencies. This is explained in the beginning of *Śrīmad-Bhāgavatam* by the words *abhijñaḥ svarāṭ.* The word *sva-rāṭ* indicates that He is self-sufficient, not dependent on anyone. That is the qualification of God. Nowadays there are so many self-proclaimed incarnations of God, but as soon as they have some toothache they immediately say, *"Ooooooh,* doctor, help me. Save me." If you are God, save yourself. Why go to a doctor? Such people are rascals, and they make it very difficult to spread Kṛṣṇa consciousness. The whole world is now overburdened by such rascals and demons, and therefore the atom bomb is waiting for them by the will of the Supreme.
 
+### 18
 
-# Chapter 18: Liberation from Ignorance and Suffering
+18. Liberation from Ignorance and Suffering
 
 > bhave 'smin kliśyamānānām
 > a vidyā-kāma-karmabhiḥ
@@ -1146,7 +1165,7 @@ In this material world one must suffer from material miseries, but rascals do no
 
 > yan maithunādi-gṛhamedhi-sukham hi tuccham
 > kaṇḍūyanena karayor iva duḥkha-duḥkham
-> (SB 7.9.45)
+> [[sb/7/9/45|(SB 7.9.45)]]
 
 In the Vedic civilization, therefore, small boys are trained to remain *brahmacārī,* celibate, and not involve themselves in the troubles of sex. But if one is unable to remain *brahmacārī,* he is allowed to marry. After being trained in the beginning as a *brahmacārī,* he will not stay for many years in family life, but will very soon become *vānaprastha* (retired) and then accept *sannyāsa,* the renounced order of life.
 
@@ -1154,7 +1173,7 @@ In this material world everyone is suffering—the birds, the beasts, the trees,
 
 > tat sādhu manye 'sura-varya dehināṁ
 > sadā samudvigna-dhiyām asad-grahāt
-> (SB 7.5.5)
+> [[sb/7/5/5|(SB 7.5.5)]]
 
 Why is everyone in this material world always in anxiety? *Avidyā-kāma-karmabhiḥ:* because they are rascals. Therefore Kṛṣṇa stresses, "You rascal, give up all your nonsense and surrender unto Me." This is Kṛṣṇa's very good mercy. He is the supreme father. Therefore He directly says, *sarva-guhyatamam:* "This is the most confidential knowledge." *Sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja:* [[bg/18/66|[Bg. 18.66] ]] "You rascal, give up everything and simply surrender unto Me."
 
@@ -1183,8 +1202,9 @@ The process of Kṛṣṇa consciousness should be very vigorously propagated al
 
 Śukadeva Gosvāmī is one of twelve important spiritual authorities, and these are the authorities we must follow (*mahājano yena gataḥ sa panthāḥ* [[cc/madhya/17/186|[Cc. Madhya 17.186] ]]). He affirms that by performing these methods of devotional service one will be cleansed of material contamination. When? *Sadyaḥ:* immediately, without waiting. This is the great benefit of the Kṛṣṇa consciousness movement.
 
+### 19
 
-# Chapter 19: Crossing Beyond Illusion’s Currents
+19. Crossing Beyond Illusion’s Currents
 
 > śṛṇvanti gāyanti gṛṇanty abhīkṣṇaśaḥ
 > smaranti nandanti tavehitaṁ janāḥ
@@ -1252,8 +1272,9 @@ Where will the current stop? Kuntīdevī says to the Lord, *padāmbujam:* "It wi
 
 There may be currents in the ocean, but if one gets a good boat, one can cross over these currents very nicely. As mentioned in another verse of *Śrīmad-Bhāgavatam* (10.14.58), *samāśritā ye pada-pallava-plavam.* A lotus petal is something like a small boat, and therefore this verse says that if one takes shelter of the petal boat of the lotus feet of Kṛṣṇa, the great ocean of birth and death becomes as insignificant as the water contained in the hoofprint of a calf. In India during the rainy season the roads become muddy, and when the cows and calves walk they create holes in which water collects. But of course one can easily jump over a dozen of such puddles at any time. Similarly, although for others the world of birth and death is like a great ocean, for a devotee it is like such a puddle (*bhavāmbudhir vatsa-padam*), and he can jump over it very easily. In this way the devotee attains *paraṁ padam,* the supreme abode. Then what about this material world? *Padaṁ padaṁ yad vipadām:* [SB 10.14.58] this is a place not for devotees but for people who are suffering. Therefore Kuntīdevī suggests, "This Kṛṣṇa consciousness is the medicine for your suffering. Take it and be happy."
 
+### 20
 
-# Chapter 20: Full Surrender
+20. Full Surrender
 
 > apy adya nas tvaṁ sva-kṛtehita prabho
 > jihāsasi svit suhṛdo 'nujīvinaḥ
@@ -1283,7 +1304,7 @@ Moreover, one should always think oneself dependent on Kṛṣṇa. This is Kṛ
 
 Now, although Kṛṣṇa had come to Kuntīdevī to take the dust of the feet of His superior, His aunt, Kuntīdevī addresses Him as Prabhu, the Lord, not as her beloved nephew. She knows, "Although Kṛṣṇa is playing the part of my nephew, my brother's son, He is still the supreme master."
 
-The symptoms of a really Kṛṣṇa conscious person are that he knows that Kṛṣṇa is the supreme master, he always thinks himself in danger without Kṛṣṇa, and by taking shelter of Kṛṣṇa's lotus feet he always feels safe. Kṛṣṇa says, *kaunteya pratijānīhi na me bhaktaḥ praṇaśyati:* "You may declare to the world that My devotee is never vanquished." (Bg. 9.31) If one becomes a pure devotee of Kṛṣṇa, there is no question of danger. Of course, Kṛṣṇa gives protection to everyone, for without His protection no one can live even for a single moment. But one should not think, "If Kṛṣṇa is giving protection to everyone, what is the use of becoming a devotee?" A king gives protection to every one of his citizens, for that is his duty, but he especially protects his own circle of men. This is not unnatural. If one directly engages in the service of the President, when one is in some difficulty he is especially protected. Although the President gives protection to all the citizens, those who personally associate with him, giving him service, receive special consideration. That is not actually partiality. That is natural. When a gentleman loves all children but has special love for his own children, no one will say, "Oh, why are you loving your own children more than others?" No, that is natural. Similarly, Kṛṣṇa says in *Bhagavad-gītā, samo 'haṁ sarva-bhūteṣu*/ [[bg/9/29|[Bg. 9.29] ]] "I am equal to everyone." Kṛṣṇa, being God, loves everyone because everyone is part of Him. Nonetheless, He takes special care of His devotees. Therefore He says, *kaunteya pratijānīhi na me bhaktaḥ praṇaśyati*/ [[bg/9/31|[Bg. 9.31] ]] "My devotee will never be vanquished."
+The symptoms of a really Kṛṣṇa conscious person are that he knows that Kṛṣṇa is the supreme master, he always thinks himself in danger without Kṛṣṇa, and by taking shelter of Kṛṣṇa's lotus feet he always feels safe. Kṛṣṇa says, *kaunteya pratijānīhi na me bhaktaḥ praṇaśyati:* "You may declare to the world that My devotee is never vanquished." [[bg/9/31|(Bg. 9.31)]] If one becomes a pure devotee of Kṛṣṇa, there is no question of danger. Of course, Kṛṣṇa gives protection to everyone, for without His protection no one can live even for a single moment. But one should not think, "If Kṛṣṇa is giving protection to everyone, what is the use of becoming a devotee?" A king gives protection to every one of his citizens, for that is his duty, but he especially protects his own circle of men. This is not unnatural. If one directly engages in the service of the President, when one is in some difficulty he is especially protected. Although the President gives protection to all the citizens, those who personally associate with him, giving him service, receive special consideration. That is not actually partiality. That is natural. When a gentleman loves all children but has special love for his own children, no one will say, "Oh, why are you loving your own children more than others?" No, that is natural. Similarly, Kṛṣṇa says in *Bhagavad-gītā, samo 'haṁ sarva-bhūteṣu*/ [[bg/9/29|[Bg. 9.29] ]] "I am equal to everyone." Kṛṣṇa, being God, loves everyone because everyone is part of Him. Nonetheless, He takes special care of His devotees. Therefore He says, *kaunteya pratijānīhi na me bhaktaḥ praṇaśyati*/ [[bg/9/31|[Bg. 9.31] ]] "My devotee will never be vanquished."
 
 Kṛṣṇa always sees to the comforts of His devotees, and the devotees are always busy seeing that Kṛṣṇa is satisfied. The devotees dress Kṛṣṇa, supply Him food, and always engage in serving Him, and similarly Kṛṣṇa always sees to the happiness of His devotees. This is the intimate relationship between the devotee and Kṛṣṇa. Every living entity has a relationship with Kṛṣṇa, but when one becomes a devotee the relationship becomes intimate. Therefore Kuntīdevī says to Kṛṣṇa, "How can You leave us? We are Your intimate friends. We are simply living by Your care, by Your mercy. Don't think that we are safe and that You can therefore leave us. Our life is always under Your mercy, for we have no shelter other than Your lotus feet. Kindly don't leave us." This is Kuntī's prayer. Similarly, Narottama dāsa Ṭhākura sings:
 
@@ -1296,8 +1317,9 @@ Without Kṛṣṇa consciousness one thinks, "I shall protect myself, or my soc
 
 Kuntīdevī knows this, and therefore although she is the mother of the great warriors Arjuna and Bhīma, she still thinks, "Although my sons are great warriors, they are not sufficient to give us protection. Nothing can give us protection but Your lotus feet." This verse illustrates the position of a surrendered soul seeking the protection of Kṛṣṇa. If we remain in this position, knowing that our only protector is Kṛṣṇa and that our only duty is to serve Kṛṣṇa, then our life is successful.
 
+### 21
 
-# Chapter 21: What Is Our Actual Value?
+21. What Is Our Actual Value?
 
 > ke vayaṁ nāma-rūpābhyāṁ
 > yadubhiḥ saha pāṇḍavāḥ
@@ -1335,7 +1357,7 @@ Kṛṣṇa further says:
 > mat-sthāni sarva-bhūtāni
 > na cāhaṁ teṣv avasthitaḥ
 
-**"By Me, in My unmanifested form, this entire universe is pervaded. All beings are in Me, but I am not in them."** (Bg. 9.4)
+**"By Me, in My unmanifested form, this entire universe is pervaded. All beings are in Me, but I am not in them."** [[bg/9/4|(Bg. 9.4)]]
 
 That which is *avyakta,* unmanifested, also has *mūrti,* a form. The sky, for example, is *avyakta,* unmanifest, but it also has a form—the round form of the universe. If we go to the ocean, there also we shall find a form, like that of a big circle. Without form there is nothing; everything has form, even that which is supposedly impersonal.
 
@@ -1370,8 +1392,9 @@ I am a spiritual soul, but I have been given the opportunity to utilize a certai
 
 *Hṛṣīkeṇa hṛṣīkeśa-sevanaṁ bhaktir ucyate:* [[cc/madhya/19/170|[Cc. Madhya 19.170] ]] *bhakti* means to use *hṛṣīka,* the senses, in the service of Hṛṣīkeśa, Kṛṣṇa, the master of the senses (*tvayā hṛṣīkeśena hṛdi sthitasya yathā karomi*). Because I wanted some sense gratification, forgetting that everything actually belongs to Kṛṣṇa, I have been given this body, which is a facility for sense gratification. But the senses have no value without Kṛṣṇa, and therefore the natural conclusion is that the senses belong to Kṛṣṇa. Therefore, since I have these senses, why not use them for Kṛṣṇa's satisfaction? This is *bhakti.*
 
+### 22
 
-# Chapter 22: Beauty in Kṛṣṇa’s Presence
+22. Beauty in Kṛṣṇa’s Presence
 
 > neyaṁ śobhiṣyate tatra
 > yathedānīṁ gadādhara
@@ -1438,11 +1461,11 @@ So where is the difficulty in understanding God? There is no difficulty. If one 
 > praṇavaḥ sarva-vedeṣu
 > śabdaḥ khe pauruṣaṁ nṛṣu
 
-**"O son of Kuntī [Arjuna], I am the taste of water, the light of the sun and the moon, the syllable *oṁ* in the Vedic *mantras;* I am the sound in ether and ability in man."** (Bg. 7.8)
+**"O son of Kuntī [Arjuna], I am the taste of water, the light of the sun and the moon, the syllable *oṁ* in the Vedic *mantras;* I am the sound in ether and ability in man."** [[bg/7/8|(Bg. 7.8)]]
 
 Why then do people say, "I have not seen God"? Why don't they see God as God directs them to see Him? Why do they manufacture their own way? One cannot see God by one's own way. That is not possible. If one tries to do so, one will always remain blind. At the present moment so-called philosophers and scientists are trying to see God in their own way, but that is not possible. One has to see God by God's way. Then one can see Him. If I want to see the President of the United States, can I see him in my own way? If not, then how can I expect to see God in my own way? Is it not rascaldom? I cannot see even an ordinary man in an important position in my own way; I have to make an appointment with his secretary and make the other appropriate arrangements. But although God is so much greater than ordinary men, rascals support the view that one can see God in one's own way. "As many ways as you invent," they say, "they are all bona fide." This is rascaldom. The world is full of rascals and fools, and therefore God consciousness, Kṛṣṇa consciousness, has become a vague idea. Otherwise, if one wants to see God, if one wants Him to be always present, as Kuntīdevī is requesting that He be, one can keep God always within one s heart.
 
-We simply have to apply our mind and senses in Kṛṣṇa consciousness, as done by Mahārāja Ambarīṣa. *Sa vai manaḥ kṛṣṇa-padāravindayor vacāṁsi vaikuṇṭha-guṇānuvarṇane* (SB 9.4.18). First we must fix our minds on the lotus feet of Kṛṣṇa, for the mind is the center of all sensory activities. If the mind were absent, in spite of having eyes we could not see, and in spite of having ears we could not hear. Therefore the mind is considered the eleventh sense. There are ten senses—five working senses and five knowledge-acquiring senses, and the center of the senses is the mind. The *Bhagavad-gītā* (3.42) says:
+We simply have to apply our mind and senses in Kṛṣṇa consciousness, as done by Mahārāja Ambarīṣa. *Sa vai manaḥ kṛṣṇa-padāravindayor vacāṁsi vaikuṇṭha-guṇānuvarṇane* [[sb/9/4/18|(SB 9.4.18)]]. First we must fix our minds on the lotus feet of Kṛṣṇa, for the mind is the center of all sensory activities. If the mind were absent, in spite of having eyes we could not see, and in spite of having ears we could not hear. Therefore the mind is considered the eleventh sense. There are ten senses—five working senses and five knowledge-acquiring senses, and the center of the senses is the mind. The *Bhagavad-gītā* (3.42) says:
 
 > indriyāṇi parāṇy āhur
 > indriyebhyaḥ paraṁ manaḥ
@@ -1460,8 +1483,9 @@ How can we appreciate the existence of the soul if we cannot understand even the
 
 If one is actually serious about understanding supernatural, transcendental subject matters, one must approach a bona fide spiritual master." (*Muṇḍaka Upaniṣad* 1.2.12)
 
+### 23
 
-# Chapter 23: Natural Prosperity
+23. Natural Prosperity
 
 > ime jana-padāḥ svṛddhāḥ
 > supakvauṣadhi-vīrudhaḥ
@@ -1515,8 +1539,9 @@ Because we have lived so many years without being Kṛṣṇa conscious, we have
 
 One should not think that because the holy name of Kṛṣṇa can nullify sinful activities, one may commit a little sinful activity and chant Hare Kṛṣṇa to nullify it. That is the greatest offense (*nāmno balād yasya hi pāpa-buddhiḥ*). The members of some religious orders go to church and confess their sins, but then they again commit the same sinful activities. What then is the value of their confession? One may confess, "My Lord, out of my ignorance I committed this sin," but one should not plan, "I shall commit sinful activities and then go to church and confess them, and then the sins will be nullified, and I can begin a new chapter of sinful life." Similarly, one should not knowingly take advantage of the chanting of the Hare Kṛṣṇa *mantra* to nullify sinful activities so that one may then begin sinful acts again. We should be very careful. Before taking initiation, one promises to have no illicit sex, no intoxicants, no gambling, and no meat-eating, and this vow one should strictly follow. Then one will be clean. If one keeps oneself clean in this way and always engages in devotional service, his life will be a success, and there will be no scarcity of anything he wants.
 
+### 24
 
-# Chapter 24: Cutting Off Ties of Affection
+24. Cutting Off Ties of Affection
 
 > atha viśveśa viśvātman
 > viśva-mūrte svakeṣu me
@@ -1570,7 +1595,7 @@ Love of Kṛṣṇa is not an easy thing to obtain, because by this love one can
 
 "Caitanya Mahāprabhu is so magnanimous that He delivered all kinds of sinful men simply by allowing them to chant the Hare Kṛṣṇa *mantra.* The evidence of this is Jagāi and Mādhāi." At that time, of course, there were two Jagāis and Mādhāis, but at the present moment, by the grace of Caitanya Mahāprabhu and His process of teaching, so many Jagāis and Mādhāis are being delivered. If Caitanya Mahāprabhu is pleased, He can give *kṛṣṇa-prema,* love of Kṛṣṇa, to anyone, regardless of that person's qualification. If a person is giving charity, he can select anyone to take it.
 
-Without the mercy of Caitanya Mahāprabhu, understanding Kṛṣṇa is very, very difficult. *Manuṣyāṇāṁ sahasreṣu kaścid yatati siddhaye* (Bg. 7.3): out of many millions of people, hardly one tries to make his life spiritually successful. People simply work like animals, not knowing how to make a success of human life. One's human life is successful when one understands Kṛṣṇa; otherwise one remains an animal. Anyone who is not Kṛṣṇa conscious, who does not know who Kṛṣṇa is, is no better than an animal. But Caitanya Mahāprabhu gave this concession to the fallen souls of this age: "Simply chant the Hare Kṛṣṇa *mahā-mantra* and you will be delivered." This is Caitanya Mahāprabhu's special concession (*kīrtanād eva kṛṣṇasya mukta-saṅgaḥ paraṁ vrajet,* SB 12.3.51).
+Without the mercy of Caitanya Mahāprabhu, understanding Kṛṣṇa is very, very difficult. *Manuṣyāṇāṁ sahasreṣu kaścid yatati siddhaye* [[bg/7/3|(Bg. 7.3)]]: out of many millions of people, hardly one tries to make his life spiritually successful. People simply work like animals, not knowing how to make a success of human life. One's human life is successful when one understands Kṛṣṇa; otherwise one remains an animal. Anyone who is not Kṛṣṇa conscious, who does not know who Kṛṣṇa is, is no better than an animal. But Caitanya Mahāprabhu gave this concession to the fallen souls of this age: "Simply chant the Hare Kṛṣṇa *mahā-mantra* and you will be delivered." This is Caitanya Mahāprabhu's special concession (*kīrtanād eva kṛṣṇasya mukta-saṅgaḥ paraṁ vrajet,* SB 12.3.51).
 
 Now, Kuntī was not an ordinary devotee. She had become one of the relatives of Kṛṣṇa, and therefore Kṛṣṇa had come to offer her respects. But still she said, "Kṛṣṇa, I have become attached to two families, my father's family and my husband's family. Kindly help me become detached from these families." Thus she illustrated that one must become detached from society, friendship, and love, all of which will otherwise entangle us.
 
@@ -1607,8 +1632,9 @@ Kuntīdevī prays, "Please sever my tie of affection for my kinsmen." We are thi
 
 A student's education, therefore, should begin with *brahmacarya,* which means freedom from sexual attachment. If he can, he should try to avoid all this nonsense. If not, he can marry and then after some time enter *vānaprastha,* retired life. At that time one thinks, "Now that I have enjoyed this attachment so much, let me leave home." Then the man travels all over to various places of pilgrimage to become detached, and the wife goes with him as an assistant. After two or three months he again comes home to see that his children are doing nicely and then again goes away. This is the beginning of detachment. When the detachment is complete, the man tells his wife, "Now go live with your children, and I shall take *sannyāsa,* the renounced order of life." This is final detachment. The whole Vedic way of life is meant for detachment, and therefore Kuntī prays, "Kindly help detach me from this family attraction." This is Kuntīdevī's instruction.
 
+### 25
 
-# Chapter 25: Unalloyed Devotion
+25. Unalloyed Devotion
 
 > tvayi me 'nanya-viṣayā
 > matir madhu-pate 'sakṛt
@@ -1699,8 +1725,9 @@ In the *Bhagavad-gītā* it is stated that even if one is sometimes found to be 
 
 Kuntīdevī addresses Kṛṣṇa as Madhupati. Kṛṣṇa has thousands of names, and the name Madhupati indicates that He killed the demon Madhu. Kṛṣṇa consciousness is likened to a river, but not an ordinary river. It is like the River Ganges, which is very pure and directly connected to Kṛṣṇa. Kuntīdevī prays that just as the River Ganges flows toward the sea, her attraction will flow incessantly toward Kṛṣṇa's lotus feet. This is called *ananya-bhakti,* unalloyed devotion. Thus Kuntīdevī prays that her attraction for Kṛṣṇa will flow without hindrance.
 
+### 26
 
-# Chapter 26: Enchantment by Kṛṣṇa’s Glories
+26. Enchantment by Kṛṣṇa’s Glories
 
 > śrī-kṛṣṇa kṛṣṇa-sakha vṛṣṇy-ṛṣabhāvani-dhrug-
 > rājanya-vaṁśa-dahanānapavarga-vīrya
@@ -1714,7 +1741,7 @@ A summary of the Supreme Lord, Śrī Kṛṣṇa, is made herein by Śrīmatī K
 
 Kuntī addresses Lord Kṛṣṇa as *kṛṣṇa-sakha* because she knows that although Arjuna, who is also known as Kṛṣṇa, is her son and therefore subordinate to her, Lord Kṛṣṇa is more intimately related with Arjuna than with her. Kṛṣṇā is also a name of Draupadī, and so the word *kṛṣṇa-sakha* also indicates Lord Kṛṣṇa's relationship with Draupadī, whom He saved from being insulted when Duryodhana and Karṇa attempted to strip her naked. Kuntī also addresses Lord Kṛṣṇa as *vṛṣṇi-ṛṣabha,* the child of the dynasty of Vṛṣṇi. It was because Kṛṣṇa appeared in the Vṛṣṇi dynasty that this dynasty became famous, just as Malaysia and the Malaya Hills became famous because of the sandalwood that grows there.
 
-Kuntīdevī also addresses Lord Kṛṣṇa as the destroyer of the political parties or royal dynasties that disturb the earth. In every monarchy, the king is honored very gorgeously. Why? Since he is a human being and the other citizens are also human beings, why is the king so honored? The answer is that the king, like the spiritual master, is meant to be the representative of God. In the Vedic literature it is said, *ācāryaṁ māṁ vijānīyān nāvamanyeta karhicit* (SB 11.17.27): the spiritual master should not be regarded as an ordinary human being. Similarly, a king or president is also not treated like an ordinary human being.
+Kuntīdevī also addresses Lord Kṛṣṇa as the destroyer of the political parties or royal dynasties that disturb the earth. In every monarchy, the king is honored very gorgeously. Why? Since he is a human being and the other citizens are also human beings, why is the king so honored? The answer is that the king, like the spiritual master, is meant to be the representative of God. In the Vedic literature it is said, *ācāryaṁ māṁ vijānīyān nāvamanyeta karhicit* [[sb/11/17/27|(SB 11.17.27)]]: the spiritual master should not be regarded as an ordinary human being. Similarly, a king or president is also not treated like an ordinary human being.
 
 In the Sanskrit language the king is also called *naradeva,* which means "God in human form." His duty is like that of Kṛṣṇa. As God is the supreme living being in the universe and is the maintainer of all other living beings, the king is the supreme citizen in the state and is responsible for the welfare of all others.
 
@@ -1746,7 +1773,7 @@ Thus *pavarga* and its component letters *pa, pha, ba, bha,* and *ma* indicate h
 
 Why should one suffer from these five kinds of tribulation? Because one has a material body. As soon as one accepts a material body—whether it is that of a president or a common man, a demigod or a human being, an insect or a Brahmā—one must go through these tribulations. This is called material existence. Kṛṣṇa comes, therefore, to show one the path to *apavarga,* freedom from these tribulations, and when Kṛṣṇa shows this path, we should accept it. Kṛṣṇa says very clearly, "Surrender unto Me. I shall give you *apavarga.*" *Ahaṁ tvāṁ sarva-pāpebhyo mokṣayiṣyāmi:* [[bg/18/66|[Bg. 18.66] ]] "I shall give you protection." And Kṛṣṇa has the power with which to fulfill this guarantee.
 
-Kuntīdevī addresses Kṛṣṇa as Govinda because He is the giver of pleasure both to the cows and to the senses. *Govindam ādi-puruṣaṁ tam ahaṁ bhajāmi.* Govinda, Kṛṣṇa, is the *ādi-puruṣa,* the original person. *Aham ādir hi devānām* (Bg. 10.2): He is the origin even of demigods like Brahmā, Viṣṇu, and Śiva. People should not think that Brahmā, Viṣṇu, and Śiva are the origin of everything. No. Kṛṣṇa says, *aham ādir hi devānām:* "I am the origin even of these demigods." Therefore we repeatedly emphasize that we worship no one but the original person (*govindam ādi-puruṣaṁ tam ahaṁ bhajāmi*).
+Kuntīdevī addresses Kṛṣṇa as Govinda because He is the giver of pleasure both to the cows and to the senses. *Govindam ādi-puruṣaṁ tam ahaṁ bhajāmi.* Govinda, Kṛṣṇa, is the *ādi-puruṣa,* the original person. *Aham ādir hi devānām* [[bg/10/2|(Bg. 10.2)]]: He is the origin even of demigods like Brahmā, Viṣṇu, and Śiva. People should not think that Brahmā, Viṣṇu, and Śiva are the origin of everything. No. Kṛṣṇa says, *aham ādir hi devānām:* "I am the origin even of these demigods." Therefore we repeatedly emphasize that we worship no one but the original person (*govindam ādi-puruṣaṁ tam ahaṁ bhajāmi*).
 
 When Kuntī prays, *go-dvija-surārti-harāvatāra* [[sb/1/8/43|[SB 1.8.43] ]], she indicates that Govinda, Kṛṣṇa, descends to this world especially to protect the cows, the *brāhmaṇas,* and the devotees. The demoniac in this world are the greatest enemies of the cows, for they maintain hundreds and thousands of slaughterhouses. Although the innocent cows give milk, the most important food, and although even after death the cows give their skin for shoes, people are such rascals that they kill the cows, but still they want to be happy in this world. How sinful they are.
 
@@ -1771,4 +1798,3 @@ Kṛṣṇa is worshiped with this prayer:
 In the present age, Kali-yuga, people are very much sinful and are consequently suffering greatly. Therefore Kṛṣṇa has incarnated in the form of His name, as found in the *mahā-mantra:* Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.
 
 Queen Kuntī prayed to the Lord just to enunciate a fragment of His glories. The Lord, upon hearing her prayers, which were composed in choice words for His glorification, responded by smiling, and His smile was as enchanting as His mystic power. The conditioned souls, who are engaged in trying to lord it over the material world, are also enchanted by the Lord's mystic powers, but His devotees are enchanted in a different way by the glories of the Lord. Thus all the devotees worship the Lord by chosen words. No amount of chosen words are sufficient to enumerate the Lord's glory, yet He is satisfied by such prayers, just as a father is satisfied even by the broken linguistic attempts of a growing child. Thus the Lord smiled and accepted the prayers of Queen Kuntī.
-

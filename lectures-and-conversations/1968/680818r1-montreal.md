@@ -1,0 +1,527 @@
+# Room Conversation [First Devotees Going to London on Evening Before Their Departure]
+
+*Type: Conversation Dated: August 18th 1968 Location: Montreal Audio file: 680818R1-MONTREAL.mp3*
+
+**Prabhupāda:** You can plaster together, up and down, and each and every one of them..., each and every one of them is separately sevenfolded covered. The watery portion is beyond the sevenfold covering. And each covering is ten times more expansive than the previous covering. The Personality of Godhead creates all such universes by His breathing period, lies above the cluster of the universes. [break]
+
+**Janārdana:** So there's four... There's water, air, fire, ether and *pradhāna.* This is given. [break] This should be corrected.
+
+**Prabhupāda:** Third Canto, it is five coverings?
+
+**Janārdana:** Yes.
+
+**Prabhupāda:** And in the Second Canto seven coverings?
+
+**Janārdana:** Yes.
+
+**Prabhupāda:** Seven kinds of subtle, and these five covering is gross. So subtle should be taken. So subtle should be taken also.
+
+**Janārdana:** Yes. Is *pradhāna* subtle matter?
+
+**Prabhupāda:** Yes.
+
+**Janārdana:** So the subtle is moving the gross like the miller's wheel. The potter's wheel moves the pot. So the *pradhāna...* So the mind is moving the body. So the *pradhāna...* They simply put *pradhāna...*
+
+**Prabhupāda:** If it is mentioned five, then it is five gross, and seven means subtle. So five or seven... Of course, seven is more explicit than the five.
+
+**Janārdana:** I never see anywhere where it is mentioned that there's an earth covering. It's always water as the first. Water is the first layer that's given. So there are four of the elements. Then...
+
+**Prabhupāda:** Then above water there is air.
+
+**Janārdana:** Air, fire, ether. Water, fire, air, ether, and then this *pradhāna.* So *pradhāna* is split up into the three: *ahaṇkāra, mahat-tattva* and... What's...?
+
+**Prabhupāda:** *Pradhāna* is material ingredient, material cause.
+
+**Janārdana:** Material cause.
+
+**Prabhupāda:** And *prakṛti...*
+
+**Janārdana:** Is the efficient cause.
+
+**Prabhupāda:** Efficient cause.
+
+**Janārdana:** That is in the *Brahma-saṁhitā.*
+
+**Prabhupāda:** Yes.
+
+**Janārdana:** I have the page.
+
+**Prabhupāda:** This is Third Canto?
+
+**Janārdana:** Third Canto. I have fragments of it. Satsvarūpa Prabhu gave me some fragments that he had. So I have a couple of books like this. [break]
+
+**Prabhupāda:** I shall put here.
+
+[break] ...and you... The New York boys' opinion is to start a press in New York will be nice, because there is so many other facilities for press work. If the press goes wrong, there are immediate, I mean to say, what is called, mechanics to repair it. In other places it is not possible.
+
+[break] All right. We shall think over it.
+
+**Janārdana:** About the press in New York?
+
+**Prabhupāda:** Yes.
+
+**Janārdana:** Well, Montreal center has a room for a press. However, there is the inconvenience that the building may be torn down in two years.
+
+**Prabhupāda:** What about that other building, that storefront down?
+
+**Janārdana:** A storefront downstairs? I don't know all the details about that. I haven't been looking into...
+
+**Prabhupāda:** You told me that there is a church for sale on the other side of the park?
+
+**Janārdana:** Yes, there is. Yes.
+
+**Prabhupāda:** Where is that church?
+
+**Janārdana:** It's on Esplanade Street.
+
+**Prabhupāda:** On the corner?
+
+**Janārdana:** It's on a corner. It's on the corner of Esplanade and the other street. I don't remember. I can go on my bicycle and take a look there.
+
+**Prabhupāda:** That's a very big building?
+
+**Janārdana:** It is a three-story house. It is about the size of one of these houses here, not the apartment houses but...
+
+**Prabhupāda:** That, some cross?
+
+**Janārdana:** Yes, there's a cross there.
+
+**Prabhupāda:** Pastor [pasture?]? It is written pastor?
+
+**Janārdana:** Yes, yes.
+
+**Prabhupāda:** That's small building.
+
+**Janārdana:** That is small?
+
+**Prabhupāda:** Yes. I have seen it.
+
+**Janārdana:** You've seen it. You take walks so far over there? [laughter]
+
+**Prabhupāda:** That's not a very big building.
+
+**Janārdana:** Not good enough for you. [laughter] Well, there's a synagogue...
+
+**Prabhupāda:** So what did you do about this building? You have not written anything?
+
+**Janārdana:** Well, I haven't had a minute all week.
+
+**Prabhupāda:** You must today finish it. We must borrow type and send it.
+
+**Janārdana:** Okay, I'll finish it today. All this week I was so engaged around the temple.
+
+**Prabhupāda:** Yes. So our engagement should be on that point, that these people will not easily understand, so we are not going to waste time for nothing. If anybody calls for meeting and lecturing, we must charge. Yes. And if they want to hear free, they may come to our temple. Don't become cheap. You see?
+
+My Guru Mahārāja used to say that *photar kathara sei usane na*[?]: "If somebody becomes cheap, then nobody hears him." Especially in this country. If you become free speaker, then he's not taken into..., very serious. So we must charge. In Boston, all the lectures Satsvarūpa arranged, they paid hundred dollars, at least fifty dollars.
+
+**Janārdana:** If they pay, then they will have to get something out of it. They will force themselves to get something out of it.
+
+**Prabhupāda:** Yes. Everyone paid. The Massachusetts Technical College and the Eastern University. Eastern University there is...?
+
+**Janārdana:** I think so.
+
+**Prabhupāda:** Then Harvard University and Boston University, and one church. They have paid, yes. And one church, Arlington Church, in that church... I think you were present there? Arlington Church?
+
+**Govinda dasi:** Unitarian?
+
+**Prabhupāda:** No. You have not been in Boston. Some girls from temple, they were present.
+
+**Govinda dasi:** Annapūrṇa? She was there?
+
+**Prabhupāda:** Annapūrṇa is always present wherever I go. [laughing] She is very nice, that she wants to follow me. This morning I was asking her that "After your marriage, where you want to stay?" and she said, "Wherever you stay, I stay." And "I am traveling. Then you are married. You must have a place to settle." Anyway, in that church they charged us for meeting, but we collected very nicely. We collected more than hundred dollars. Yes. A very nice meeting.
+
+**Janārdana:** How many people were there?
+
+**Prabhupāda:** More than hundred. Because we collected hundred dollars, and utmost, they have paid one dollar.
+
+**Janārdana:** The summer season is very slow in Montreal. The churches cut down their sermon programs. The synagogues don't having sermons in the summer very often. So that's why we haven't had so many engagements. But in the month of September things begin to pick up faster. The coldest time of the year is the busiest time of the year here, actually. The real busy season is January and February.
+
+**Prabhupāda:** Yes. I was speaking to Gaurasundara that Janārdana speaks, "The winter season is the busiest season," and you said, "It is dull season"? [chuckles]
+
+**Janārdana:** January and February are the busiest, and they are the coldest months, too.
+
+**Prabhupāda:** Very busy?
+
+**Janārdana:** Yes.
+
+**Prabhupāda:** How you are feeling, Śāradīyā? Nice?
+
+**Śāradīyā:** I'm fine.
+
+**Prabhupāda:** You are going to Europe? No? You have got to attend your school? That's nice.
+
+[to devotees leaving for London:] So your program is starting tomorrow morning?
+
+**Yamunā:** Five o'clock.
+
+**Prabhupāda:** Five o'clock?
+
+**Yamunā:** That's when we have to get out.
+
+**Prabhupāda:** Oh, yes. So you are going by taxi?
+
+**Gurudāsa:** To the airport?
+
+**Prabhupāda:** Yes.
+
+**Gurudāsa:** Yes, I think so.
+
+**Devotee (2):** You'd have to.
+
+**Yamunā:** Three taxis.
+
+**Prabhupāda:** Why three taxis?
+
+**Mālatī:** Two taxis. There are so many of us and so much baggage.
+
+**Prabhupāda:** Ah, yes. So for me, I shall be ready to start as soon as we hear from you. Yes. And tomorrow I shall expect mail. I don't think I am going to Vancouver, because from Upendra's letter it is not very encouraging, and I don't think Mr. Renovich will, on his personal account, call me and pay me. I don't think so. So what is your next program here?
+
+**Janārdana:** Then the next program here... Well, the busy season will begin. So I'll go to McGill and Sir George Williams universities and some churches also, and I'll try to get speaking engagements. [break]
+
+**Prabhupāda:** ...building?
+
+**Janārdana:** Possibly. Maybe I'll find a place on the other side of the mountain for you, because the man here insisted if we take this for September, we must take it for the whole year.
+
+**Prabhupāda:** [break] ...means October, November, December?
+
+**Janārdana:** Until next year in September. Twelve months.
+
+**Prabhupāda:** Ho, ho! [devotees laugh] That is not possible.
+
+**Janārdana:** That's what he's asking now. [break]
+
+**Prabhupāda:** Because in the winter season they don't get tenants?
+
+**Janārdana:** Well, a few will get easily tenants, but he wants to get a tenant for the whole winter. And September is a month when there is the best chance for getting a tenant, because that's when all the student population comes back into town, and this is a student district.
+
+And so in the month of September he would like to either get a tenant for the whole year or leave the place open. But maybe I can persuade him. Because it is not very easy to find a suitable apartment for only one month in Montreal. [break]
+
+**Prabhupāda:** *...pare dhana parke diye nija labha cora:* "I borrowed something from you, and I lend him. He does not pay me, and I become thief."
+
+**Janārdana:** Yes.
+
+**Prabhupāda:** [laughing] So... "I borrow from you and I lend him. He does not pay me, and I become thief." *Pare dhana parke diya nija labha cora.* So that means this is warning: One should not do like that. One should not take responsibility for a person where there is no connection.
+
+[break] Everywhere the principle of self-interest is there. That is
+
+[break] there. But real self-interest is Kṛṣṇa. For Kṛṣṇa we can do anything, because He is supreme Self. *Bījo 'ham sarva-bhūtānāṁ* [*Bg* 7.10]*.*
+
+[O son of Pṛthā, know that I am the original seed of all existences, the intelligence of the intelligent, and the prowess of all powerful men.]
+
+He is the Self of selves.
+
+[break] Where is Haṁsadūta? What he's doing there?
+
+**Devotee (1):** I think he's cooking.
+
+**Prabhupāda:** Cooking? [laughs] He's very expert cooking. [laughs]
+
+**Janārdana: **Oh, yes.
+
+**Prabhupāda: **And Himavati also, assisting her husband?
+
+**Devotee (1):** I don't think so.
+
+**Prabhupāda:** Haṁsadūta likes to cook.
+
+**Yamunā:** Oh, he loves it.
+
+**Prabhupāda:** So he wants to open a restaurant.
+
+**Janārdana:** Here?
+
+**Prabhupāda:** Yes. Our, I mean to say, ISKCON restaurant. So you wanted to open that restaurant in our temple.
+
+**Janārdana:** Yes.
+
+**Prabhupāda:** So why don't you do it? He is a very nice cooker.
+
+**Janārdana:** If he stays here to cook, that's a very good idea.
+
+**Prabhupāda:** Yes, he'll stay. And I have told him already. And I have asked all the students in America chased by this draft board may come here.
+
+**Yamunā:** You're going to have to get a bigger building.
+
+**Devotee (2):** There won't be anybody left in America.
+
+**Prabhupāda:** No. In our connection, our students, let him come here. So these two boys, Jayapatāka and Vaikuṇṭha, in the same process receive. And therefore I was thinking that let us start press and restaurant and engage all these boys.
+
+**Janārdana:** Right, yeah.
+
+**Prabhupāda: **So you can...
+
+[break] ...center. Why don't you try for that building?
+
+**Janārdana:** The building, the Strathcona, the government building.
+
+**Prabhupāda:** That is very nice, but other building in front of our temple..., just not in exactly front. That big signboard.
+
+**Janārdana:** Oh, 16,000..., 15,000 square feet, a dollar sixty a foot?
+
+**Prabhupāda:** Dollar sixty?
+
+**Janārdana:** Yes. We are paying forty-nine cents a foot, and they are asking there a dollar sixty a foot. They are asking three times more rent than we are paying. It's very expensive.
+
+**Prabhupāda:** How many..., there? Sixteen thousand?
+
+**Janārdana:** Fifteen thousand square feet. It is a fortified place, because they keep furs. They keep animal furs there, and animal furs are very expensive, and thieves very often break in. So I think that one of the reasons why it's so expensive is because it's fortified.
+
+**Prabhupāda:** I do not follow. What is that?
+
+**Janārdana:** It is a place...
+
+[break] ...of animal...
+
+**Prabhupāda: **Fur, fur. Yes.
+
+**Janārdana: **And they are very expensive furs.
+
+**Prabhupāda:** Yes.
+
+[break] ...very expensive.
+
+**Janārdana:** Very expensive. They want a dollar sixty a square foot per year, which is very expensive. We are paying 49 cents a square foot per year.
+
+**Prabhupāda:** Oh. I thought that because it is a downs floor, the restaurant can be started there.
+
+**Janārdana:** Oh, you mean there's another place? You mean that storefront downstairs?
+
+**Prabhupāda:** Yes.
+
+**Janārdana:** Oh, that place... It's a green color, and the windows are covered with soap? The windows are painted white?
+
+**Prabhupāda:** No. It's a big building, big store. And big signboard. [break] ...shall approach. [laughing] Somebody said, told, that is for sale? That was for sale?
+
+**Janārdana:** There is a store for sale. No. I think what they mean, the business is for sale. [break]
+
+**Prabhupāda:** ...prescription, doctors never says in plain terms. Just like at the end of the prescription, "add water." This is real purpose. They will write "*aqua pure ata*[?]". Nobody will understand. They will understand. This is also some of the medicine. *Aqua* means water. Similarly, you can say, "*prasādam* distribution," and they will have to consult dictionary, what it is. And you can say, "Oh, it is not restaurant; it is* prasādam.*" So at least...
+
+**Janārdana:** No. "Nobody is allowed to smoke in here, and they have to take off their shoes, so how can you say it's a restaurant?"
+
+**Prabhupāda:** Yes. These are technical.
+
+[break] ...description, what is called restaurant, that "Wherever foodstuff is prepared and sold, that is called restaurant," then it will come to that category. Whenever they make some law, they give definition of each word, what do you mean by "restaurant." So today is another ceremony in the temple?
+
+**Janārdana:** We couldn't find any barley.
+
+**Prabhupāda:** Huh?
+
+**Janārdana:** We couldn't find any barley. What can we use instead?
+
+**Prabhupāda:** Barley? Why? It is...?
+
+**Janārdana:** The stores are all closed today, and the boys searched everywhere. They didn't find any barley.
+
+**Prabhupāda:** Some grains. Any other grain.
+
+**Janārdana:** There is whole wheat.
+
+**Prabhupāda:** That will do.
+
+**Janārdana:** Whole wheat grains, and there's rice.
+
+**Prabhupāda:** Rice... Better... Wheat is better.
+
+**Janārdana:** And what else is there? There's some...
+
+**Prabhupāda:** Sesame?
+
+**Janārdana:** Sesame? I don't know. Is there some sesame?
+
+**Mālatī:** Yes, I have some, and Annapūrṇa has some.
+
+**Janārdana:** And there's some buckwheat. Raw buckwheat.
+
+**Prabhupāda:** Buckwheat? What is that?
+
+**Janārdana:** Raw buckwheat. It's a grain. [break]
+
+**Śāradīyā:** What is the significance of using the barley and the sesame?
+
+**Prabhupāda:** Some eatables, that's all. Grains are eatables. Therefore I am substituting. They are eatable. There must be something eatable.
+
+**Lady devotee (1):** Does eatable... Does Kṛṣṇa eat out of the fire?
+
+**Prabhupāda:** Yes.
+
+**Lady devotee (1):** He does? He eats all that?
+
+**Prabhupāda:** Everyone eats. Kṛṣṇa also... Kṛṣṇa eats through fire. Therefore *yajña* is offered. Kṛṣṇa eats by so many ways, but people want to see that "I give foodstuff; it must be finished." [chuckles] So for the rudimental seers and the less intelligent class, this is...
+
+**Janārdana:** *Virāṭa rūpa* conception.
+
+**Prabhupāda:** *Virāṭa rūpa,* yes. That is also nice, right, that through fire He eats, yes, or through the mouth of the *brāhmaṇas* and devotees. Two things are there. Therefore, according to the Vedic religion, the *brāhmaṇas* or Vaiṣṇavas, devotees, are invited to take food in some ceremonies.
+
+In *śraddhā* ceremony they are especially invited with great honor. In pilgrimage somebody goes to Vṛndāvana, Prayāg, Mathurā. They invite the *brāhmaṇas* and Vaiṣṇavas, so that through them Kṛṣṇa is eating. They have come to satisfy Kṛṣṇa in a place of pilgrimage. So these are the systems.
+
+So for the purpose of eating, so many *brāhmaṇas* have sprung up. Because *brāhmaṇas* are invited, so, so many so-called *brāhmaṇas* are there. They'll be present when eating, and when there is chanting of *Vedas* they are not present there.
+
+[break] Baby has also *tilaka.* [chuckles] She is very happy. You see? I never seen such small child not crying. That means she is always happy. She's not crying means... Because baby cries when there is discomfort. And with her face shows that she is very happy. [laughs] [break]
+
+**Yamunā:** ...Swāmījī.
+
+**Prabhupāda:** Just see. Thank you. [break] ...see?
+
+**Girl devotee:** [indistinct]
+
+**Prabhupāda:** Oh. Just see. All very healthy, I see, because very energetic. [break]
+
+**Śāradīyā:** Simply by your divine grace, on Kṛṣṇa's appearance day in San Francisco my mother came to the temple, and she wore a *sārī* and a *tilaka.*
+
+**Prabhupāda:** Oh. [chuckles] You are converting your mother to this cult.
+
+**Yamunā:** A very nice mother she has.
+
+**Prabhupāda:** Unless mother is good, how the children are good?
+
+**Yamunā:** Tora. Tora is one of the biggest, and he helped more than anybody. He would come home, and she would read to them from the *Bhāgavatam.* But he would tell her, "Oh, if you don't serve Kṛṣṇa, you must serve *māyā.*" And he would say, "That's *māyā.*"
+
+He would tell mother that at seven years old, and he would explain to her. Swāmījī, by the end of our classes, he was actually understanding the *Śrīmad-Bhāgavatam,* being able to listen to it and ask questions about it.
+
+**Prabhupāda:** He gave you questions?
+
+**Mālatī:** Even at the temple when there would be lectures, and then the lecturer says, "Are there any questions?" Tora would raise his hand, and he'd ask very intelligent questions.
+
+**Prabhupāda:** Then why not keep him with me, your mother and he? [devotees cheer]
+
+**Yamunā:** Oh, ho-ho! *Haribol!*
+
+**Prabhupāda:** I think your mother will not agree to that [break].
+
+**Mālatī:** Maybe his mother needs him.
+
+[break] The mother needs Tora to keep her in Kṛṣṇa consciousness. [break]
+
+**Prabhupāda:** He's going to be a Nārada. Nārada, when he was five years old, he was thinking that "My mother is too much attached to me." And when his mother died, he thought free. "Oh, I am now free."
+
+**Janārdana:** At the age of five.
+
+**Prabhupāda:** Yes, at the age of five. And at once he went out. In his previous life. Then from five years till the end of life he cultivated Kṛṣṇa consciousness, and next life he became Nārada.
+
+**Yamunā:** Oh. [break]
+
+**Prabhupāda:** I think that is described in the first part of our *Śrīmad-Bhāgavatam.* That story is there, how he convert..., how he became Nārada. [break]
+
+**Mālatī:** ...Twice a month he would visit his father. His father is a demon. So Tora carries in his pocket one nice picture of Swāmījī and one nice... On the back is written, *tava kara kamala vare.* And he sits and says that under his breath because if his father heard, his father gets mad.
+
+**Prabhupāda:** This is the age for injecting Kṛṣṇa consciousness. If children are taught Kṛṣṇa consciousness from this age, the face of the world will be different.
+
+[break] ...but they are not Hindus. They have got also orphanage like that.
+
+[break] It is very important. "I thought in that way. When my mother died, as the devotees of the Lord think, I also thought in that way. What is that? 'Oh, it is a grace of the Lord. My mother is now dead.' Because she is the, I mean to say, real cause of my nonfreedom. So she is now dead. Then I am free."
+
+It is very contradiction from the materialistic point of view. It is said that *bhaktanam śam abhīpsataḥ* *SB* 1.6.10*.*
+
+[I took this as the special mercy of the Lord, who always desires benediction for His devotees, and so thinking, I started for the north.]
+
+"As the devotees think, so I also in that way thought." What is that? *Anugrahaṁ manyamānaḥ:* "I thought it a special grace of the Supreme Personality of Godhead." *Anugrahaṁ manyamānaḥ pratiṣṭhāṁ disam uttaram:* "And I at once took leave of my so-called home and went away." So that is the difference between the devotees of the Lord and materialistic person.
+
+When their materialistic relationship, comforts, are taken away, they think, "Oh, it is all grace." And the materialistic person, when their materialistic comforts are increased, they think, "It is grace." *Yā niśā sarva-bhūtānāṁ* *tasyāṁ jāgarti saṁ**...* *Bg.* 2.69.
+
+**[What is night for all beings is the time of awakening for the self-controlled; and the time of awakening for all beings is night for the introspective sage.]**
+
+That is also stated in the *Bhagavad-gītā.* Just like... There is a crude example—I think I have cited this example many times—that a foolish patient thinks that increase of fever is very nice. Fever, so what should be the ideal? Fever should decrease. But those who are less intelligent, they think, "Yes, it must increase." [chuckles]
+
+There is a drama in Bengali that in a house a doctor came to diagnose. There were two patients, the housewife and the maidservant. So doctor said, "The maidservant's fever is 105, so there is some anxiety. I give some medicine. And the..., that landlady, she has no fever practically, 99, so there is no anxiety." But the landlady became angry, that "This doctor is useless. I am the landlady. I have got 99, and my maidservant 105. And maidservant should have 98. I should have 110!" [laughter] This is the mentality.
+
+The modern civilization is they are trying to increase the degree of fever to 110 degree. And, you know, as soon as the degree comes to 107 it is death. Do you know that? If the fever increases to hundred and... Therefore as soon as the high fever is there, the doctor try to decrease it by ice bags and so many things, because to come to the fever degree, 107 or -8, means immediate death.
+
+So the modern civilization, they are trying to increase the degree of material fever, and they have come to the point, 107 degree—atomic bomb. Now they are going to die. You see? The American atom bomb or the Russian atom bomb will kill the whole material scientists' advancement. You see?
+
+So this is the... So, and devotee, they want to decrease the fever. Decrease the fever. Therefore the highest, ideal life, according to Vedic civilization: *brāhmaṇas,* Vaiṣṇavas. They decrease their demands of the body. Minimum demand. You see? There is amongst the *brāhmaṇa—*not now; in the Vedic system—the *uñca-vṛtti.* It is called *uñca-vṛtti.*
+
+*Uñca-vṛtti* means they will go the paddy field, and after the cultivator takes all the paddies, some paddies are thrown away. They will collect those paddies only. Just like birds, they collect. They collect those paddies, and that they will eat, not even beg, ask anybody for any morsel of food. So completely...
+
+And in the *Bhāgavata,* Śukadeva Gosvāmī recommends that "Oh, this open field is your bed, this is your pillow, this is your pot, and the water in river is sufficient water, the tree is full of fruits, and in the cave, there is sufficient apartment. So why should you go, anyone, to ask for your shelter, for your food?" *K**asmād bhajanti kavayo dhana-durmadāndhān* *SB* 2.2.5:
+
+**[Are there no torn clothes lying on the common road? Do the trees, which exist for maintaining others, no longer give alms in charity? Do the rivers, being dried up, no longer supply water to the thirsty? Are the caves of the mountains now closed, or, above all, does the almighty Lord not protect the fully surrendered souls? Why then do the learned sages go to flatter those who are intoxicated by hard-earned wealth?]**
+
+"Why should you approach the materialistic, puffed-up, monied men to give you some help?"
+
+So Śukadeva Gosvāmī was strictly following this. Strictly following. Completely independent. That is not possible at the present day. [chuckles] If we imitate, that will be not good. We have to depose[?]. Our Gosvāmīs, they have prescribed *yukta-vairāgya:* accept everything in relationship with Kṛṣṇa. Then it is *yukta-vairāgya.* It is also *vairāgya. Śuṣka-vairāgya* and *yukta-vairāgya.*
+
+*Śuṣka-vairāgya* means simply renunciation without assimilation. Māyāvādī sect, Śaṅkara sect, they have got stringent laws for renunciation. But Vaiṣṇavas, they have no stringent law. They accept everything as *kṛṣṇa-prasādam,* actually: offering Kṛṣṇa, working for Kṛṣṇa, living for Kṛṣṇa. This is the best use.
+
+My Guru Mahārāja used to say, "The best use of a bad bargain." Everything in Kṛṣṇa relationship. That is *yukta-vairāgya. Nirbandhaḥ kṛṣṇa-sambandhe yukta-vairāgyam ucyate* [*Bhakti-rasāmṛta-sindhu* 1.2.255]*. Vairagya* means detachment.
+
+**[When one is not attached to anything but at the same time accepts everything in relation to Kṛṣṇa, one is rightly situated above possessiveness. On the other hand, one who rejects everything without knowledge of its relationship to Kṛṣṇa is not as complete in his renunciation.]**
+
+So when we are attached to Kṛṣṇa, automatically we are detached to *māyā.* Not artificially we want to be detached from *māyā.* Just like theoretically I know that I am not this body, but the bodily necessities are there because I am encaged in the body. Therefore the bodily necessities—eating, sleeping, mating, defending—should be done in relationship with Kṛṣṇa. Then it is all right.
+
+Then my consciousness is always in Kṛṣṇa, and I am detached to my bodily demands. And those who are not Kṛṣṇa conscious, their bodily demands is on the materialistic platform. They are going on, increasing the degree of fever and coming to the 107 degree.
+
+You are also going tomorrow?
+
+**Devotee (2):** Yes.
+
+**Prabhupāda:** That's nice. [break] Your golden cup is very nice.
+
+**Guest:** Thank you. I'm glad you like it.
+
+**Prabhupāda: **Golden cup. [break] ...gold plated. What did it cost?
+
+**Guest:** Twenty-dollars.
+
+**Prabhupāda:** So I'll offer one day sweetrice to Kṛṣṇa in this pot. I have asked already Govinda dasi to make little sweetrice and offer to Kṛṣṇa. Then the pot will be used. Yes.
+
+[break] ...India still, amongst the Hindu family, whenever they use some new thing, household, they'll offer first of all to the Deity. Every family has got Deity. Every Hindu family, especially the high class, *brāhmaṇa,* *kṣatriya,* they must have. *Nārāyaṇa-śilā.* You know *nārāyaṇa-śilā?*
+
+**Janārdana:** The stone?
+
+**Prabhupāda:** *Śālagrāma.*
+
+**Janārdana:** Stone.
+
+**Prabhupāda:** Yes. That is worshiped in every family. *Arcye śilā-dhīḥ. Śilā, śilā* means stone. So *arcye,* the worshipable... [referring to watch] I think this is correct.
+
+**Janārdana:** Yeah, it's correct.
+
+**Prabhupāda:** Yes. Past five-twenty. What is your time?
+
+**Guest:** I have twenty-five after.
+
+**Prabhupāda:** This is right?
+
+**Yamunā:** Yes. Well, no. It's five minutes slow.
+
+**Janārdana:** Think so? I don't know. My watch is ten or five minutes fast. My watch is always fast.
+
+**Prabhupāda:** Oh. Oh, this is still slow. This is correct time no?
+
+**Guru dāsa:** Your watch is still drop-proof.
+
+**Prabhupāda:** Because it is correct to the church bell. Yes. Church cannot be... [laughter]
+
+**Janārdana:** So the ceremony will be at six, yes?
+
+**Prabhupāda:** Yes. Six-thirty.
+
+**Janārdana: **Six-thirty.
+
+**Prabhupāda:** One hour after. Hare Kṛṣṇa. [break] [devotees offer obeisances]
+
+**Prabhupāda:** So take care of your child very nicely. She is Kṛṣṇa conscious child. [laughs]
+
+**Mālatī: **By your grace.
+
+**Prabhupāda: **Yes. And Līlāvatī's child has grown very nice?
+
+**Devotee woman:** Oh, very nice.
+
+**Yamunā:** Oh, it's so beautiful.
+
+**Prabhupāda:** [laughs] And what about that girl?
+
+**Mālatī:** Tulasī devī? Oh, very nice.
+
+**Yamunā:** Oh, Karṇapura is beautiful! He's the best little boy you could ever imagine.
+
+**Mālatī:** He's already *brahmacārī.*
+
+**Yamunā:** He's just fantastic. Upendra, Upendra really loves that kid. Upendra picks up Karṇapura, and Upendra doesn't know about children. And he'll take Karṇapura and he'll make him kiss every picture in the temple, [laughter] especially at the feet of Lord Caitanya he'll go, "Hare Kṛṣṇa, Hare Kṛṣṇa." And Karṇapura will go, "bang, bang, bang" Smile! [laughter] Really beautiful.
+
+**Prabhupāda:** [laughing] Very nice. So Murari, you have got to say anything?
+
+**Murari****:** I have got to say anything? No. I was just listening.
+
+**Prabhupāda:** Thank you. [end]

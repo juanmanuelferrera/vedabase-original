@@ -1,0 +1,252 @@
+# Paṇḍāl Lecture
+
+*Type: Lectures and Addresses Dated: April 10th 1971 Location: Bombay Audio file: 710410LE-BOMBAY.mp3*
+
+**Prabhupāda:**
+
+> om ajñāna-timirāndhasya jñānāñjana-śalākayā
+> cakṣur unmīlitaṁ yena tasmai śrī-gurave-namaḥ
+
+["I offer my respectful obeisances unto my spiritual master, who with the torchlight of knowledge has opened my eyes, which were blinded by the darkness of ignorance."]
+
+> śrī-caitanya-mano-'bhīṣṭaṁ sthāpitaṁ yena bhū-tale
+> svayaṁ rūpaḥ kadā mahyaṁ dadāti sva-padāntikam
+
+["When will Śrīla Rūpa Gosvāmī Prabhupāda, who has established within this material world the mission to fulfill the desire of Lord Caitanya, give me shelter under his lotus feet?"]
+
+> vande 'haṁ śrī-guroḥ śrī-yuta-pada-kamalaṁ śrī-gurūn vaiṣṇavāṁś ca
+> śrī-rūpaṁ sāgrajātaṁ saha-gaṇa-raghunāthānvitaṁ taṁ sa-jīvam
+> sādvaitaṁ sāvadhūtaṁ parijana-sahitaṁ kṛṣṇa-caitanya-devaṁ
+> śrī-rādhā-kṛṣṇa-pādān saha-gaṇa-lalitā-śrī-viśākhānvitāṁś ca
+
+["I offer my respectful obeisances unto the lotus feet of my spiritual master and of all the other preceptors on the path of devotional service. I offer my respectful obeisances unto all the Vaiṣṇavas and unto the six Gosvāmīs, including Śrīla Rūpa Gosvāmī, Śrīla Sanātana Gosvāmī, Raghunātha dāsa Gosvāmī, Jīva Gosvāmī and their associates. I offer my respectful obeisances unto Śrī Advaita Ācārya Prabhu, Śrī Nityānanda Prabhu, Śrī Caitanya Mahāprabhu, and all His devotees, headed by Śrīvāsa Ṭhākura. I then offer my respectful obeisances unto the lotus feet of Lord Kṛṣṇa, Śrīmatī Rādhārāṇī and all the *gopīs,* headed by Lalitā and Viśākhā."]
+
+> he kṛṣṇa karuṇā-sindho dīna-bandho jagat-pate
+> gopeśa gopikā-kānta rādhā-kānta namo 'stu te
+
+["O my dear Kṛṣṇa, ocean of mercy, You are the friend of the distressed and the source of creation. You are the master of the cowherd men and the lover of the *gopīs*, especially Rādhārāṇī. I offer my respectful obeisances unto You."]
+
+> tapta-kāñcana-gaurāṅgi rādhe vṛndāvaneśvari
+> vṛṣabhānu-sute devi praṇamāmi hari-priye
+
+["I offer my respects to Rādhārāṇī, whose bodily complexion is like molten gold and who is the Queen of Vṛndāvana. You are the daughter of King Vṛṣabhānu, and You are very dear to Lord Kṛṣṇa."]
+
+> vāñchā-kalpatarubhyaś ca kṛpā-sindhubhya eva ca
+> patitānāṁ pāvanebhyo vaiṣṇavebhyo namo namaḥ
+
+["I offer my respectful obeisances unto all the Vaiṣṇava devotees of the Lord. They can fulfill the desires of everyone, just like desire trees, and they are full of compassion for the fallen souls."]
+
+> śrī-kṛṣṇa-caitanya prabhu nityānanda
+> śrī-advaita gadādhara śrīvāsādi-gaura-bhakta-vṛnda
+
+["I offer my obeisances to Śrī Kṛṣṇa Caitanya, Prabhu Nityānanda, Śrī Advaita, Gadādhara, Śrīvāsa and all others in the line of devotion."]
+
+> hare kṛṣṇa hare kṛṣṇa kṛṣṇa kṛṣṇa hare hare
+> hare rāma hare rāma rāma rāma hare hare
+
+["My dear Lord, and the spiritual energy of the Lord, kindly engage me in Your service. I am now embarrassed with this material service. Please engage me in Your service."]
+
+Ladies and Gentlemen, [applause] we thank you very much for your kindly coming here and participating in this noble movement of Kṛṣṇa consciousness, or *saṅkīrtana* movement. You'll be very glad to know that today I have received one letter from my disciple Śrīman Kṛṣṇadāsa *adhikārī,* the in-charge-of, commander, *maṭha-*command, or temple command, of West Berlin. He was negotiating with Russian Cultural Society, and one very important professor, he has invited us to lecture in Russia. [applause]
+
+**Devotees:** *Haribol!*
+
+**Prabhupāda: **So very soon I shall be going to Russia with some of my disciples. [applause]
+
+**Devotees:** *Haribol!*
+
+**Prabhupāda:** So gradually it will be realized that Kṛṣṇa is for everyone. Don't take Kṛṣṇa as Indian or Hindu. Don't limit Kṛṣṇa's activities. Kṛṣṇa is unlimited, Kṛṣṇa's activities are unlimited, Kṛṣṇa's devotees are unlimited, and Kṛṣṇa's field of activities, unlimited. So Kṛṣṇa says, *yayedaṁ dhāryate jagat* Bg. 7.5.
+
+[aside:] Why it is not working? Huh?
+
+**Devotee:** The electricity is down. The power is dead.
+
+**Prabhupāda:**
+
+> apareyam itas tv anyāṁ
+> prakṛtiṁ viddhi me parāṁ
+> jīva-bhūtaṁ mahā-bāho
+> yayedaṁ dhāryate jagat
+
+[*Bg. 7.5*]
+
+*Yaya. Prakṛti.* The* prakṛti,* the energy. Energy is feminine gender; therefore it is stated here *yaya. Dhāryate jagat.* We are, we living entities, we are superior energy, and the matter is inferior energy. Therefore *dhāryate.* We are enjoying or we are capturing this material energy. We are using in so many ways. *Sadyāsana*[?]. Just like I am sitting on this material cushion or sitting on the material floor, using this material microphone or having material bedstead, car. In so many ways we are enjoying this material world, *yaya.* The same *prakṛti.*
+
+Both of them are *prakṛtis,* energy. One energy is called superior, and the another energy is called inferior. Matter is inferior, and the living entities are superior. But in relationship with Kṛṣṇa, both of them are energy. The energies in their particular field of activities, superior or inferior, but still, in connection with Kṛṣṇa, because Kṛṣṇa is the Supreme Absolute Truth, for Him, there is no such distinction, superior and inferior.
+
+*Viṣṇu Purāṇa* therefore says, *viṣṇu-śaktiḥ parā.* Originally, the energy of Kṛṣṇa is transcendental, spiritual.
+
+> viṣṇu-śaktiḥ parā proktā
+> kṣetrajñākhyā tathā parā
+> avidyā-karma-saṁjñānya
+> tṛtīyā śaktir iṣyate
+
+[*Cc. Madhya 6.154*]
+
+So Kṛṣṇa can change superior energy into inferior energy and inferior energy into superior energy. That is His omnipotency. As such, when Kṛṣṇa appears within this material world, even though He assumes a so-called material body according to the Māyāvādī philosophers, that is not material. He can change into spiritual. That is His omnipotency.
+
+*Sambhavāmy ātmā-māyayā* [*Bg. 4.6*]. Just like the electrical engineer, the same electrical energy, he can use it for refrigerator and he can use it for heater. It is his manipulation. Similarly, Kṛṣṇa, by His Kṛṣṇa consciousness movement, He can turn this material world into spiritual world simply by changing the consciousness. That is in His power.
+
+Therefore anything in Kṛṣṇa consciousness should not be considered as material.
+
+> prāpañcikatayā buddhyā
+> hari-sambandhi-vastunaḥ
+> mumukṣubhiḥ parityāgo
+> phalgu-vairāgyaṁ kathyate
+
+[*Brs.* 1.2.258]
+
+That anything... Take for example, just like Māyāvādī philosopher, they say *brahma satyaṁ jagan mithyā.* But *jagat,* not *mithyā,* but temporary. And still, even if it is *mithyā,* false, it can be turned into truth by this Kṛṣṇa consciousness movement. That is possible. *Nirbandhe kṛṣṇa-sambandhe yukta-vairāgyam ucyate.*
+
+So this Kṛṣṇa consciousness movement is so nice that it can transform the matter into spirit. How? Not transform, but the faith or feature is changed. Consciousness is changed. The same example as we have several times recited, that you take an iron rod, put into the fire. It becomes warm, warmer. But when it is red hot, it is no longer iron; it is fire. If you touch that red hot iron in any place, it will burn.
+
+Similarly, Vaiṣṇava, by his spiritual advancement in Kṛṣṇa consciousness, makes the whole body spiritualized. Just try to understand the same example. By developing your Kṛṣṇa consciousness, you can make your body spiritualized, completely forgetting all material activity. *Yayedaṁ dhāryate jagat* *Bg.* 7.5.
+
+Then Kṛṣṇa says,
+
+> etad-yonīni bhūtāni
+> sarvāṇi iti upadhāraya
+> ahaṁ kṛtsnasya jagataḥ
+> prabhavaḥ pralayas tathā
+
+[*Bg 7.6*]
+
+So Kṛṣṇa is the original cause of the material energy, the spiritual energy. And by combination of this material energy and spiritual energy, the whole cosmic manifestation is there. There are two kinds of energies working. Everyone can experience. Just like in my body, I am the spirit soul, and the body is matter, material. When combined together it is working wonderfully. A man is becoming a great leader, a great scientist, a great philosopher, how? So long the spiritual spark is there. As soon as the spiritual spark is gone, the same very body is no longer a great leader, a great scientist or great, I mean, philosopher.
+
+So both these energies are products of Kṛṣṇa's body. Just like the sunshine is the energy of the sun globe, and within the sun globe there is the sun-god also. We get it from *Bhagavad-gītā.* In the Fourth Chapter there is mention of the sun-god: *imaṁ vivasvate yogaṁ, yogaṁ proktavān aham avyayam, vivasvate* *Bg.* 4.1. Vivasvān is the name of the sun-god. At present, the predominating leader, or the principal deity, in the sun planet is called Vivasvān. So he's a person. He's a person, and his globe is the sun globe. And from the sun globe, there is sunshine.
+
+Similarly, there is a planet which is known as Goloka Vṛndāvana. In the spiritual world there are millions of planets there. As we have got millions of planets here in this material world, millions of universes, similarly, the spiritual world there are millions of planets, globes, which are called Vaikuṇṭhalokas. And the topmost of the Vaikuṇṭhalokas is called Goloka Vṛndāvana or Kṛṣṇaloka. That is the original abode of Lord Kṛṣṇa. And from that globe, there is effulgence, which is bodily effulgence of Kṛṣṇa.
+
+We get this information from *Brahma-saṁhitā: yasya prabhā prabhavato jagadāṇḍa-koṭi* [*Bs*. 5.40]*. Yasya prabhā.* The *brahma-jyotir* is the bodily effulgence of Lord Kṛṣṇa. Exactly the sunshine is the bodily effulgence of Vivasvān, it is being emanating, it is emanating from the sun globe, similarly, the *brahma-jyotir* is emanating from Kṛṣṇaloka. And in that Kṛṣṇa..., Brahman effulgence, so many universes and so many Vaikuṇṭha planets are growing, exactly the same way as so many planets have grown from the sunshine. This is scientific.
+
+So how Kṛṣṇa is *ahaṁ sarvasya prabhavaḥ* *Bg.* 10.8*,* you can understand it. If you study, if you take information from Vedic literature, if you attentively think over it, you'll very easily understand that everything is produced out of Kṛṣṇa's bodily effulgence or energy. Kṛṣṇa also personally says here,
+
+> etad-yonīni bhūtāni
+> sarvāṇi iti upadhāraya
+> ahaṁ kṛtsnasya jagataḥ
+> prabhavaḥ pralayas tathā
+
+*Aham:* "I am." The Māyāvādī philosophers cannot accommodate this idea, how a person can be the cause of creation, maintenance and annihilation. But Kṛṣṇa here says that *ahaṁ kṛtsnasya. Ahaṁ kṛtsnasya jagataḥ prabhavaḥ pralayas tathā.* Therefore Kṛṣṇa says, *mattaḥ parataraṁ nānyat kiñcid asti dhanañjaya* [*Bg*. 7.7]*,* because He is the origin of all energies.
+
+We have already understood that the whole manifestation is nothing but, I mean to say, demonstration of the different types of energies of the Supreme Lord. That is confirmed in the *Vedas: parāsya śaktir vividhaiva śrūyate* [*Śvetāśvatara Upaniṣad* 6.8, *Cc. Madhya* 13.65, *p**urport*]. The Absolute Truth has varieties of energies, and they are so perfect and so perfectly working that it appears...
+
+*Svābhāvikī jñāna-bala-kriyā ca.* You take a flower, nice flower, how it is nicely painted, how it is symmetrically colored. But it is sprouting from the bud automatically. So we are seeing that if flower is coming out automatically... There is no such thing automatically. It is Kṛṣṇa's energy which is working there. It is Kṛṣṇa's energy.
+
+And if the energies are so perfect that we see that it is working automatically, that is because our energy is so limited. If I want to paint one nice flower, I have to arrange for so many things. I have to arrange for the colors, I have to arrange for the brush. I must have the requisite knowledge how to paint it. I have to devote some time for learning how to paint, then actually paint.
+
+So many things required. But Kṛṣṇa's energies are so perfect that it appears *svābhāvikī jñāna-bala-kriyā ca:* flowers automatically coming out. That we have to study. And when you concentrate in that study with *bhāva,* then you can understand Kṛṣṇa, how He is working, how He is the original source of everything. That requires little brain.
+
+Therefore unless one has got very fine brain, he cannot understand Kṛṣṇa. Gross brain cannot understand. In order to make our brain and senses very purified and fine, we have to take to devotional service. *Sarvopādhi-vinirmuktaṁ tat-paratvena nirmalam* [*Cc. Madhya* 19.170]. That fine brain and purified senses can be achieved. Just like you can get relief from diseased condition of life, similarly, the brain is already there; it will become finer, it will become subtler to understand Kṛṣṇa when we are able to give up our all material designations.
+
+At the present moment I am thinking, feeling and willing under different designation. I am thinking, "I am this body." I am thinking, "I am Indian." I am thinking, "I am American," "I am Russian," "I am Pakistani." These are *upādhis.* But if you practice devotional service, Kṛṣṇa consciousness, then you become free from this contamination of designation. *Sarvopādhi-vinirmuktaṁ tat-paratvena nirmalam* [*Cc. Madhya* 19.170]*. Nirmalam* means completely freed from all dirty things. These are all dirty things.
+
+As soon as I think that "I am this, I am that, I am that..." Just like in the *Bhagavad-gītā* we have understood that the body is simply just like a dress. So suppose I am dressed in orange color robes. If I think, "I am orange color," is that very nice intelligence? Similarly, as soon as I think in terms of my body, in my nationality, in my creed, in my being—they are all designation.
+
+So purification of the senses made by devotional service, *bhakti-yogena, nirmalam...* That is stated in the *Śrīmad-Bhāgavatam* also:
+
+> tato rajas-tamo-bhāvāḥ
+> kāma-lobhādayaś ca ye
+> etair ceta anāviddhaṁ
+> sthitaṁ sattve prasīdati
+
+[*SB 1.2.19*]
+
+> naṣṭa-prāyeṣv abhadreṣu
+> nityaṁ bhāgavata-sevayā
+
+[*SB 1.2.18*]
+
+By daily, regular study or serving *Śrīmad-Bhāgavatam,* anything in relationship with Kṛṣṇa, the Supreme Personality of Godhead... *Naṣṭa-prāyeṣu abhadreṣu nityaṁ bhāgavata-sevayā.* These *abhadras,* this designations, can be eradicated simply by regular service to *bhāgavatam. Bhāgavatam* means the person who is a devotee, he is also *bhāgavata,* and the literatures which describe about Kṛṣṇa, that is also *Bhāgavata.*
+
+So we have to associate with devotees. *Satāṁ prasaṅgān mama vīrya-saṁvido bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ* *SB* 3.25.25. If you associate with devotees, with pure devotees... And who is a pure devotee?
+
+> anyābhilāṣitā-śūnyaṁ
+> jñāna-karmādy-anāvṛtam
+> ānukūlyena kṛṣṇānu-
+> śīlanaṁ bhaktir uttamā
+
+[*Brs.*1.1.11]
+
+Those who are executing devotional service without any material desire. Not that I render to service..., I render service to Kṛṣṇa to fulfill some material desire. That is not pure devotee. Pure devotion is *ānukūlyena kṛṣṇānu-śīlanam* [*Cc. Madhya* 19.167]: simply take to such work and activities which will favorably dispose Kṛṣṇa. *Sva-karmaṇā tam abhyarcya saṁsiddhiṁ labhate parām* *Bg.* 18.46*. Svanuṣṭhitasya dharmasya saṁsiddhir hari-toṣaṇam* [*SB 1.2.13*]. As soon as we simply take to such activities as will please the Supreme Personality of Lord, Personality of Godhead... *Ānukūlyena kṛṣṇānu-śīlanam. Ānukūlyena.* As Kṛṣṇa becomes favorably inclined, we have to please Kṛṣṇa. *Saṁsiddhir hari-toṣaṇam.*
+
+So we do not know what is Hari, what is God, what is Kṛṣṇa and what is our activity to please Him. That we have to learn. That you have to learn *satāṁ prasaṅgāt,* by association with devotees. *Satāṁ prasaṅgāt.* Just like if you are a businessman, suppose a sharebroker, if you are a member of the stock exchange, your business is flourishing. You get most opportunities.
+
+The scientists, they make some association. Every particular... The lawyers, they make an association, Bar Association. That is needed. The engineer, they make an association. The doctors, they make a medical club. Similarly, if you have to learn Kṛṣṇa consciousness, then you have to admit yourself with the Society for Kṛṣṇa consciousness. That is necessary.
+
+*Satāṁ prasaṅgāt mama vīrya-saṁvido bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ.* Unless you associate with practical devotees, you cannot understand or you cannot relish the transcendental nature of Lord Kṛṣṇa. *Bhavanti hṛt-karṇa-rasāyanāḥ.* Pleasing, *rasāyanāḥ;* relishing some mellows, transcendental mellows. How? *Satāṁ prasaṅgāt:* simply in the association. *Sādhu-saṅge sato vṛtte.* Rūpa Gosvāmī instructs that,
+
+> utsāhān dhairyāt niścayāt
+> tat-tat-karma-pravartanāt
+> sādhu-saṅge sato vṛtteḥ
+> ṣaḍbhir bhaktiḥ prasidhyati
+
+[*Upadeśāmṛta 3*]
+
+If you actually..., if you are actually serious to understand Kṛṣṇa consciousness, then you must be very much energetic, *utsāhān:* "Yes, I shall learn this art verily in this life." You must be fixed up, *dṛḍha-vratāḥ.* In the *Bhagavad-gītā* it is called *dṛḍha-vratāḥ. Bhajante māṁ dṛḍha-vratāḥ* *Bg.* 7.28. That determination should be "Yes."
+
+Just like Prahlāda [Dhruva] Mahārāja, five-years-old boy. Nārada Mahārāja said, "My dear boy, you are king's son. You cannot undergo so much severe austerity. Why you are feeling so much insulted by your stepmother? Please go home." And Prahlāda..., Dhruva Mahārāja replied, "My dear sir, what you are saying, it is all right. But I am a son of *kṣatriya.* I am unpolite. I cannot accept your advice. I must see God. Please show me the way how I can get Him." That is determination, a five-years-old boy saying, "I must see God in this life. If you know something, how to do it, please explain that. Don't try to deviate me." That is determination.
+
+So that determination means *utsāhā,* "I must." That is necessary. Not that "When Kṛṣṇa will be pleased, then I shall take to it." Kṛṣṇa is always pleased upon you. But we are not taking His process. Kṛṣṇa says, everyone,
+
+> sarva-dharmān parityajya
+> mām ekaṁ śaraṇaṁ vraja
+
+*Bg.* 18.66
+
+But we are not doing that. Why should we say that "When Kṛṣṇa is merciful, then I shall do"? Kṛṣṇa is already merciful. But if we do not take it, then what Kṛṣṇa will do? Kṛṣṇa does not touch on your little individuality or little independence.
+
+So therefore we have... Just like when we earn money, we are very enthusiastic; similarly, if we want to earn Kṛṣṇa consciousness, if we want to earn that position, go back to home, back to Godhead, we must be very much enthusiastic, *utsāhān.* And *dhairyāt. Dhairyāt* means patience: "Oh, I am executing Kṛṣṇa consciousness according to the rules and regulation, I mean, still, I am not yet perfect?" So don't be impatient. Be patient.
+
+The example is that any woman desires a child. So when she is married, it is supposed that she will get a child. But if she wants immediately child after being married, that is not possible. She must be patient, then in due course she will be pregnant and there will be child. Similarly, if we are patient, at the same time very much energetic, *utsāhād dhairyāt,* and *tat-tat-karma-pravartanāt...* But we must take to the regulative principles by which we can make advance in Kṛṣṇa consciousness. *Tat-tat-karma-pravartanāt sato vṛtteḥ.*
+
+And our occupation should be very nice, honest. *Sādhu-saṅge,* the *sādhu-saṅge,* in the association of devotees. These six things: *utsāhād dhairyāt niścayād* and *sato vṛtteḥ, sādhu-saṅga, tat-tat-karma.* These six kinds of devotional service will make you perfect. *Ṣaḍbhir bhaktiḥ prasidhyati.* These six kinds of activities will make your devotional service perfect. Anything, if you want to do, if you want to learn, there are different regulative principles, anywhere.
+
+So similarly, for understanding Kṛṣṇa consciousness, for enter into the kingdom of Kṛṣṇa, we have to adopt this means. And similarly, there are counteractivities also. The counteractivities also kill our Kṛṣṇa consciousness. So we have to be very cautious not to accept the counteractivities, but we have to take the favorable activities. *Ānukūlyena kṛṣṇānu-śīlanam* [*Cc. Madhya* 19.167].
+
+So Kṛṣṇa says that,
+
+> mattaḥ parataraṁ nānyat
+> kiñcid asti dhanañjaya
+> mayi sarvam idaṁ protaṁ
+> sūtre maṇi-gaṇā iva
+
+[*Bg. 7.7*]
+
+"Everything is resting on Me, just like the pearls are remaining on the thread." Kṛṣṇa is the thread, and all these universes, all this cosmic manifestation and their different activities in different planets, they are all resting on the thread of Kṛṣṇa. Therefore He is the original source of everything.
+
+How you can accept Kṛṣṇa as ordinary man, I do not know. *Avajānanti māṁ mūḍhāḥ* *Bg.* 9.11. They are described as *mūḍhas.* They do not know. Although it is all explained here in the *Bhagavad-gītā,* but they will not accept Kṛṣṇa in that way. They will manufacture a different way of understanding Kṛṣṇa. Therefore they are deviated. Therefore, after studying thousand times *Bhagavad-gītā,* they are all in darkness as they were in the beginning. That is the result. But if you take *Bhagavad-gītā* as it is, without any malinterpretation, without exercising your brain to manufacture something out of *Bhagavad-gītā,* then naturally you become Kṛṣṇa conscious and your life is successful.
+
+Here it is stated, *mattaḥ parataraṁ nānyat kiñcid asti dhanañjaya* *Bg.* 7.7: "There is no more superior factor than Me." Then how we can think of Kṛṣṇa as ordinary human being? What is your answer? How do you form such idea? These are the challenges by Kṛṣṇa. And I cannot understand how Kṛṣṇa is accepted as ordinary person. Then either you don't believe in *Bhagavad-gītā—* that is a different thing—but don't try to malinterpret, wrongly interpret *Bhagavad-gītā* in your own way. That will not help you.
+
+You can propound your own philosophy, as you like. Everyone has got the right. *Nāsau munir yasya mataṁ na bhinnam* [*Cc. Madhya* 17.186]: "One cannot be a philosopher, *muni,* thoughtful man, unless he has got a different philosophy." That's a fact. Everyone wants to propound a type of philosophical method and tries to become famous. That is the natural way. But you make your philosophical presentation in different way. You have got right. But don't try to interpret in *Bhagavad-gītā* in your own way. That cannot be accepted. And that will not give you the effect of *Bhagavad-gītā.* You have to accept *Bhagavad-gītā* as it is.
+
+Our this Kṛṣṇa consciousness movement, we are not presenting Kṛṣṇa in a different way. Our only method is to present Kṛṣṇa as He is. That is our... If there is any credit for this Kṛṣṇa consciousness movement or for us, now, our credit is that we are not adulterating *Bhagavad-gītā.* We are simply presenting *Bhagavad-gītā* as it is. And by Kṛṣṇa's grace it is being understood very easily all over the world, and they are accepting it, that one God, Kṛṣṇa; one philosophy, *Bhagavad-gītā;* and one hymn, Hare Kṛṣṇa *mantra;* and one nation, Kṛṣṇa conscious people. Just push this movement and the world will be happy. Don't create God: "Here is a incarnation of Kṛṣṇa."
+
+Sometimes we accept somebody as God because he says that "I am the same Kṛṣṇa. I am the same Rāma," believing on his word. All right, accept that he may be the same Rāma and same Kṛṣṇa. But when Kṛṣṇa is there, why should we accept an imitation Kṛṣṇa? Why? Suppose if you go to purchase some medicine in a drug shop and the shopkeeper says, "Here is a medicine, sir, which is equally good, but the price is very cheap. You can take it," and if you are sane man, you will say, "No, no. I don't want it. Give me that original. Why shall I take this? Let it be cheaper, but I don't want it."
+
+Similarly, why should we accept so-called incarnation of Kṛṣṇa? We should accept Kṛṣṇa, original Kṛṣṇa. Original Kṛṣṇa is there. Kṛṣṇa and Kṛṣṇa's words are identical. When you read *Bhagavad-gītā,* you are exactly in front of Kṛṣṇa, as Arjuna was in front of Kṛṣṇa while Kṛṣṇa was personally speaking. That is transcendental nature of Kṛṣṇa. Why He has left this instruction? Because if we accept the teachings of Kṛṣṇa, *Bhagavad-gītā,* immediately we are in presence of Kṛṣṇa. Just like the other day I cited the example of the illiterate *brāhmaṇa.*
+
+So that is transcendental way of understanding Kṛṣṇa. Take this formula. Kṛṣṇa says here that everything that is working in this material or spiritual world, they are different energies of Kṛṣṇa. He is the original source of creation, He is the original source of maintenance and He is the original source of annihilation. Therefore nobody is greater than Him.
+
+*Mattaḥ parataraṁ nānyat* *Bg.* 7.7*. Na anyat:* "There is no other greater elevated." *Kiñcid asti:* "Not even one." You cannot say, "Here is something which is greater than Kṛṣṇa." That is not possible. *Na anyat kiñcid asti dhanañjaya. Mayi sarvam idaṁ protaṁ sūtre maṇi-gaṇā iva.* Just like in your necklace, pearl necklace, all the pearls are situated in the thread, similarly, Kṛṣṇa is the thread, and everything existing. This will be explained more explicitly in the Thirteenth Chapter.
+
+> mayā tatam idaṁ sarvaṁ
+> jagad avyakta-mūrtinā
+> mat-sthāni sarva-bhūtāni
+> nāhaṁ teṣv avasthitaḥ
+
+[*Bg. 9.4*]
+
+So all the śāstric conclusion is... Now, so far the universes are concerned, that is also stated in the *Brahma-saṁhitā:*
+
+> yasyaika-niśvasita-kālam athāvalambya
+> jīvanti loma-vilajā jagad-aṇḍa-nāthāḥ
+> viṣṇur mahān sa iha yasya kalā-viśeṣo
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+
+[*Bs. 5.48*]
+
+So Govinda, the *ādi-puruṣa,* whose plenary portion is Mahā-Viṣṇu. And what is Mahā-Viṣṇu's activity? That He is lying in the Causal Ocean, and while He is breathing, with His breathing only, innumerable universes are coming out. And universes, innumerable universes are going into Him. In this way He is sleeping. That Mahā-Viṣṇu is the plenary portion of Kṛṣṇa.
+
+So we have to believe in the *śāstras,* and there is no other way for understanding Kṛṣṇa. What is beyond our imagination, beyond our mental cultivation, beyond the reach of our senses, we have to accept authority. Exactly in the same way, just like we have to accept somebody as our father simply on the version of mother, similarly, we have no information of Kṛṣṇa, but we have got Kṛṣṇa's books, we have got Vedic literature, and if we study... *Śāstra-cakṣuṣāt:* you have to see through the *śāstras.* Then you will understand Kṛṣṇa and your life will be successful.
+
+Thank you very much. Hare Kṛṣṇa. [applause] [end]

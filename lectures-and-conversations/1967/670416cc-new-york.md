@@ -1,0 +1,448 @@
+# Śrī Caitanya-caritāmṛta, Ādi-līlā 7.109-114
+
+*Type: Caitanya-caritamrta Dated: April 16th 1967 Location: San Francisco Audio file: 670416CC-NEW-YORK.mp3*
+
+**Prabhupāda:** [chants *maṅgalācaraṇa* prayers]
+
+> ...kamalaṁ śrī-gurūn vaiṣṇavāṁś ca
+> śrī-rūpaṁ sāgrajātaṁ saha-gaṇa-raghunāthānvitaṁ taṁ sa-jīvam
+> sādvaitaṁ sāvadhūtaṁ parijana-sahitaṁ kṛṣṇa-caitanya-devaṁ
+> śrī-rādhā-kṛṣṇa-pādān saha-gaṇa-lalitā-śrī-viśākhānvitāṁś ca
+
+**[I offer my respectful obeisances unto the lotus feet of my spiritual master and of all the other preceptors on the path of devotional service. I offer my respectful obeisances unto all the Vaiṣṇavas and unto the Six Gosvāmīs, including Śrīla Rūpa Gosvāmī, Śrīla Sanātana Gosvāmī, Raghunātha dāsa Gosvāmī, Jīva Gosvāmī and their associates. I offer my respectful obeisances unto Śrī Advaita Ācārya Prabhu, Śrī Nityānanda Prabhu, Śrī Caitanya Mahāprabhu, and all His devotees, headed by Śrīvāsa Ṭhākura. I then offer my respectful obeisances unto the lotus feet of Lord Kṛṣṇa, Śrīmatī Rādhārāṇī and all the gopīs, headed by Lalitā and Viśākhā.]**
+
+> he kṛṣṇa karuṇā-sindho dīna-bandho jagat-pate
+> gopeśa gopikā-kānta rādhā-kānta namo 'stu te
+
+**[O my dear Kṛṣṇa, O ocean of mercy, O friend of the distressed and the source of creation, O master of the cowherd men and the lover of the gopīs, especially Rādhārāṇī, I offer my respectful obeisances unto You.]**
+
+> tapta-kāñcana-gaurāṅgi
+> rādhe vṛndāvaneśvari
+> vṛṣabhānu-sute devi
+> praṇamāmi hari-priye
+
+**[I offer my respects to Rādhārāṇī, whose bodily complexion is like molten gold and who is the Queen of Vṛndāvana. You are the daughter of King Vṛṣabhānu, and You are very dear to Lord Kṛṣṇa.]**
+
+> vāñchā-kalpatarubhyaś ca kṛpā-sindhubhya eva ca
+> patitānāṁ pāvenebhyo vaiṣṇavebhyo namo namaḥ
+
+**[I offer my respectful obeisances unto all the Vaiṣṇava devotees of the Lord. They are just like desire trees who can fulfill the desires of everyone, and they are full of compassion for the fallen conditioned souls.]**
+
+> śrī-kṛṣṇa-caitanya
+> prabhu nityānanda
+> śrī-advaita gadādhara
+> śrīvāsādi-gaura-bhakta-vṛnda
+
+**[I offer my obeisances to Śrī Kṛṣṇa Caitanya, Prabhu Nityānanda, Śrī Advaita, Gadādhara, Śrīvāsa and all others in the line of devotion.]**
+
+> hare kṛṣṇa hare kṛṣṇa kṛṣṇa kṛṣṇa hare hare
+> hare rāma hare rāma rāma rāma hare hare
+
+**[My dear Lord, and the spiritual energy of the Lord, kindly engage me in Your service. I am now embarrassed with this material service. Please engage me in Your service.]**
+
+So Caitanya Mahāprabhu is stressing that to read Vedic literature, *Vedānta, Upaniṣad*—these are principal literatures in the Vedic knowledge—then *Bhagavad-gītā, Śrīmad-Bhāgavatam*, all these books should be studied from the direct meaning. Don't try to interpret. According to ordinary, I mean to say, dealings, suppose in the law court there are two parties. Two lawyers are fighting on the principle of one clause or section in the law book. One is interpreting in a different way, one is interpreting in a different way, and the judges give their judgment.
+
+Now, the opportunity for interpretation is there when the meaning is not clear. A very good example is given by the grammarians, or Sanskrit scholars, that *gaṅgayaṁ ghoṣapali,* that "There is a neighborhood which is called Ghoṣapali on the Ganges." Now somebody may ask, "How there can be a quarter on the Ganges? Ganges is water." So there is interpretation required. So somebody says, " 'On the Ganges' means on the bank of the Ganges." That makes it clear. "On the Ganges" does not mean that in the middle water there is a, I mean to say, residential quarter. No. "On the Ganges" means on the bank of the Ganges.
+
+So when there is such doubt, one can interpret. But when there is no doubt—everyone can understand clearly the meaning—there is no question of interpreting. That is Caitanya Mahāprabhu's stressing, that
+
+gauṇa-vṛttye yebā bhāṣya karila ācārya
+
+[*Cc. Ādi* 7.109]*.*
+
+**[Śrīpāda Śaṅkarācārya has described all the Vedic literatures in terms of indirect meanings. One who hears such explanations is ruined.]**
+
+Therefore each and every aphorism and verse of *Vedānta-sūtra* has been indirectly interpreted by the *Śārīraka-bhāṣya.* Such interpretation, if somebody hears, then his future is doomed.
+
+Just like our Gandhi: he wanted to prove, from *Bhagavad-gītā,* nonviolence. The *Bhagavad-gītā* is being preached in the battlefield, and it is completely violence. How he can prove? Therefore he is dragging the meaning out of his own con... It is very troublesome, and anyone who will read such interpretation, he is doomed. He is doomed because the *Bhagavad-gītā* is meant for awakening your Kṛṣṇa consciousness.
+
+If that is not awakened, then it is useless waste of time. Just like Caitanya Mahāprabhu embraced the *brāhmaṇa* who was illiterate but he took the essence of *Bhagavad-gītā,* the relationship between the Lord and the devotee. Therefore, unless we take the real, I mean to say, essence of any literature, it is simply waste of time.
+
+> tāṅhāra nāhika doṣa, īśvara-ājñā pāñā
+> gauṇārtha karila mukhya artha ācchādiyā
+
+[*Cc. Ādi 7.110*]
+
+**[Śaṅkarācārya is not at fault, for it is under the order of the Supreme Personality of Godhead that he has covered the real purport of the Vedas.]**
+
+Now, at the beginning, He criticized Śaṅkarācārya, that "If somebody hears Śaṅkarācārya's commentation, then he's sure to be doomed." But again He supports Śaṅkarācārya. Why? Śaṅkarācārya is the incarnation of Lord Śiva, and he's a great devotee. Śaṅkara... *Vaiṣṇavānāṁ yathā śambhuḥ:* "There are many devotees of the Lord, but the foremost devotee is Lord Śiva."
+
+And he has got a disciplic succession which is called Viṣṇu-Svāmī-sampradāya. So Śaṅkarācārya was covered devotee. He's covered devotee. His aim was to bring men to the standard of devotional service, but the time and circumstances in which he was preaching, he could not place his real object because they were unable to understand.
+
+At last, at the end of his life, he composed so many poetries in praise of Vṛndāvana-līlā, and especially his very famous *Catpar pandika*[?], that is, he has stated,
+
+> bhaja govindaṁ bhaja govindaṁ
+> bhaja govindaṁ mūḍha-mate
+> prāpte sannihite kāla maraṇe
+> na hi na hi rakṣati ḍukṛñ-karaṇe
+
+[Śaṅkarācārya]
+
+**[You fools and rascals, all your grammatical word jugglery of suffixes, prefixes and philosophical speculation will not save you at the time of death. Just worship Govinda! Worship Govinda! Worship Govinda!]**
+
+"My dear foolish brothers, you kindly worship Kṛṣṇa, Govinda..." Thrice he has said, *bhaja govindaṁ bhaja govindaṁ bhaja govindaṁ mūḍha-mate. Mūḍha-mate* means "You foolish nonsense, you kindly worship Govinda." Why? Now, *prāpte sannihite kāla maraṇe:* "When death will be nearer, your this grammatical interpretation, *ḍukṛñ karaṇe,* this *pratha* that *pratha*, arguing, jugglery of words, will not save you. Will not save you. You please worship Govinda." That is his instruction. And there are many others.
+
+So Śaṅkarācārya was a covered devotee. He was devotee. Somebody accuses Śaṅkarācārya that he was covered Buddhist. But so far I am concerned, I say that Śaṅkarācārya was covered devotee. He was devotee at heart, but because he was ordered to preach in that way... Otherwise, there was no alternative. That is stated in the *Padma Purāṇa.* When there is conversation between Lord Śiva and his wife Pārvatī, he disclosed that "In the age of Kali, as a *brāhmaṇa,* I preach this Māyāvāda philosophy, which is covered Buddha philosophy."
+
+Buddha philosophy says that "This material life is all. After this material life, there is nothing, all void." And Śaṅkarācārya said that "It is impersonal. There is no variety." So in both the philosophies there is no acceptance of Lord, the Supreme Lord, Personality of Godhead. Therefore they are called *nāstika-vāda. Nāstika-vāda* means atheism, atheism.
+
+Caitanya Mahāprabhu has described Buddha religion as atheism. "And Māyāvāda philosophy," He has said, "dangerous atheism." He has given little preference to Buddhism, but to Māyāvāda philosophy He has stated, "It is dangerous atheism." His exact version is like that, *bheda namiya bauddha haila nāstika. Vedāśraye nāstika-vāda bauddha ke adika.* He says that "We call the Buddhists as atheists because the simple reason is that they do not accept *Vedas.*"
+
+Lord Buddha, he denied, that "I don't care for the *Vedas.* I have got my this own proposition, that *ahiṁsā.* Nonviolence is the religion. That's all." So he did not accept *Vedas.* Therefore, those who are Vedāntists, those who are followers of *Vedas,* they called Buddhist religion atheism. Atheism means anyone who does not believe in scriptures, standard scriptures. That is called atheism.
+
+So Caitanya Mahāprabhu says that Buddha philosophy is atheism undoubtedly, but Śaṅkara philosophy is dangerous atheism because he is accepting *Vedānta,* but he is preaching atheism. He's accepting... Under the shelter of *Vedānta,* he's preaching atheism. So therefore they are more dangerous. Just like you are fighting with your enemies, that is very clear: "The other party is my enemy."
+
+But if somebody's treating as your friend and within he's trying to kill you, enemy, oh, that is very dangerous enemy. So similarly, Caitanya Mahāprabhu said that Buddhism is atheism. That's all right. But this Śaṅkara's philosophy is more dangerous than atheism.
+
+And actually, so-called, so many *svāmīs* and *sannyāsīs,* they came. They come from India. They are this same, dangerous atheists. Nobody has preached in your country this philosophy of Kṛṣṇa consciousness or... *Bhagavad-gītā* is widely read, but differently interpreted. So therefore they are dangerous atheists. They are...
+
+Under the garb of *Bhagavad-gītā,* they are preaching atheism. So they are very dangerous. But still, because he was Lord Śiva, incarnation of Lord Śiva, and he had a particular duty, therefore Caitanya Mahāprabhu supports now that
+
+tāṅhāra nāhika doṣa
+
+[*Cc. Ādi* 7.110]:
+
+**[Śaṅkarācārya is not at fault, for it is under the order of the Supreme Personality of Godhead that he has covered the real purport of the Vedas.]**
+
+"He's not faulty. He's not faulty, because the time required to propagate such philosophy, and he had done that under the order of the Supreme Personality of Godhead. He wanted."
+
+There is, *Padma Purāṇa,* there is statement. In the *Padma Purāṇa* there is:
+
+māyāvādam asac-chāstraṁ pracchannaṁ bauddham ucyate
+
+[*Padma Purāṇa, Uttara Khaṇḍa* 25.7]*.*
+
+**[Lord Śiva informed the goddess Durgā, the superintendent of the material world, "In the Age of Kali, I take the form of a brāhmaṇa and explain the Vedas through false scriptures in an atheistic way, similar to Buddhist philosophy.]**
+
+In the *Padma Purāṇa* it is stated that "This Māyāvāda philosophy is covered Buddhism." *Mayaiva kalpitaṁ devi kalau brāhmaṇa-mūrtinā.* Lord Śiva says to his wife, "My dear Pārvatī, in the age of Kali, in the garb of a *brāhmaṇa*, I'll have to preach this philosophy." *Brahmaṇaś cāparaṁ rūpaṁ nirguṇam vakṣyate mayā.*
+
+*Brāhmaṇaś ca aparaṁ rūpam:* "Brahman, the Supreme Lord, He has got transcendental form, but I'll have to preach that He has no form, *nirguṇam.*" *Sarvasvaṁ jagato 'py asya mohanārthaṁ kalau yuge:* "In the age of Kali, just to bewilder the persons, I'll have to preach this philosophy." *Vedānte tu mahā-śāstre māyāvādam avaidikam:* "And, when I shall explain *Vedānta,* I shall explain everything against *Vedas.*"
+
+> vedānte tu mahā-śāstre
+> māyāvādam avaidikam
+> mayaiva vakṣyate devi
+> jagatāṁ nāśa-kāraṇāt
+
+[*Padma Purāṇa*]
+
+"In order to kill the atheistic person, I'll have to preach this." This is stated in *Padma Purāṇa.* And similarly, in the *Śiva Purāṇa* also, there is another verse:
+
+> dvāparādau yuge bhūtvā
+> kalayā mānuṣādiṣu
+> svāgamaiḥ kalpitais tvaṁ ca
+> janān mad-vimukhān kuru
+
+[*Śiva Purāṇa*]
+
+**[Addressing Lord Śiva, the Supreme Personality of Godhead said, "Please make the general populace averse to Me by imagining your own interpretation of the Vedas. Also, cover Me in such a way that people will take more interest in advancing material civilization just to propagate a population bereft of spiritual knowledge."]**
+
+Oh, the Supreme Lord is ordering Lord Śiva that "In the age of Kali, you go and try to make them against Kṛṣṇa consciousness."
+
+So there are so many policies and so many programs of the supreme authorities, but Caitanya Mahāprabhu says that that is time service. For the time being they are necessary. Actually, such interpretation is not necessary at all. We should take direct meaning. Now He's explaining *Vedānta.* The first thing He's explaining, *'brahma' śabde mukhya arthe kahe-'bhagavān'.* Whenever we speak of Brahman...
+
+Because these Māyāvādī philosophers, they are very much uttering this word "Brahman." *Ahaṁ brahmāsmi:* "All Brahman." They don't utter "Kṛṣṇa" or "Govinda." Oh, that is very difficult for them. They simply utter "Brahman." Now... Let them. Brahman is also Vedic word. That Caitanya Mahāprabhu says the direct meaning of Brahman is Bhagavān, the Supreme Personality of Godhead.
+
+Cid-aiśvarya-paripūrṇa, anūrdhva-samāna
+
+[*Cc. Ādi* 7.111]*.*
+
+**[According to direct understanding, the Absolute Truth is the Supreme Personality of Godhead, who has all spiritual opulences. No one can be equal to or greater than Him.]**
+
+Now what is the grammatical meaning of Brahman? The grammatical meaning of Brahman is that "the greatest" and "expansive." That is the grammatical meaning of Brahman. Which is unlimitedly expanded and greatest, He is called Brahman.
+
+Now, who can be unlimitedly expansive unless He's unlimitedly powerful? Therefore Caitanya Mahāprabhu says that... According to *Śrīmad-Bhāgavatam* also, the same meaning is there:
+
+brahmeti paramātmeti bhagavān iti śabdyate
+
+*SB* 1.2.11*.*
+
+**[Learned transcendentalists who know the Absolute Truth call this nondual substance Brahman, Paramātmā or Bhagavān.]**
+
+So Brahman-Paramātmā ultimately means the Supreme Personality of Godhead. Without coming to the Supreme Personality of Godhead, the conception of Brahman-Paramātmā is imperfect. Why? Caitanya Mahāprabhu says that *cid-aiśvarya-paripūrṇa, anūrdhva-samāna.*
+
+You cannot have conception of the greatest, unlimited, unless you place six kinds of opulence, opulences, in full. Because *aiśvarya,* the opulences... Just like wealth, fame and beauty, knowledge and renunciation, they should be unlimited. Now, when they are not unlimited, he's not Brahman, or he's not the Supreme Lord.
+
+So Caitanya Mahāprabhu's interpretation... Not interpretation—He says Brahman means that "One who is in full opulences, He's Brahman."
+
+Tāṅhāra vibhūti, deha—saba cid-ākāra
+
+[*Cc. Ādi* 7.112]:
+
+**[Everything about the Supreme Personality of Godhead is spiritual, including His body, opulence and paraphernalia. Māyāvāda philosophy, however, covering His spiritual opulence, advocates the theory of impersonalism.]**
+
+"Therefore, because He's the greatest, therefore He cannot be under the control of this *māyā.*" The Māyāvāda philosophy says that "We are now under the control of *māyā.* Therefore we have forgotten that we are all Gods." In the Nikhilananda's book, this is explained. He is discussing Vivekananda's speech, that "We are all Gods. Every one of us, we are God." "Then why you have become dog?" "That we do not know." That is the explanation.
+
+But actually, the explanation is that we are also Brahman, but not Bhagavān, the Supreme Brahman. That is the explanation. Therefore we are prone to be under the subjugation of *māyā.* This is real explanation. I am, I am not the Supreme Brahman. The greatest Brahman, I am not. Brahman means 'greatest,' but I am also Brahman, but I am... The infinite and the infinitesimal. We are infinitesimal.
+
+That is confirmed in the *Bhagavad-gītā* also—
+
+mamaivāṁśo jīva-bhūtaḥ
+
+*Bg.* 15.7:
+
+**[The living entities in this conditioned world are My eternal, fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind.]**
+
+"My..., these living entities, they are My parts and parcels." Such parts and parcels of the Brahman is also Brahman. As part and parcel, minute particle, of gold is also gold, minute particle of poison is also poison, so similarly, we are minute, atomic part and parcel of the Supreme. Therefore we are not the unlimited or the biggest. We are Brahman, undoubtedly, but we are not the biggest. Therefore we are prone to be under the control of *māyā.*
+
+But Supreme Brahman, He's never under the... Therefore Māyāvāda philosophy, that "At the present moment, I am under the control of *māyā,* but as soon as I become free from the control of *māyā,* then I become the Supreme," therefore they cannot answer that "Why, if you are Supreme, why you are under the clutches of *māyā*? Then *māyā* becomes greater. You are not the greatest." They cannot answer this philo..., this question. At that time, they become fool: "We do not know."
+
+So anyway, *tāṅhāra vibhūti, saba...* Therefore Brahman, His body cannot be material. So material matter is under His control.
+
+Daivī hy eṣā guṇamayī mama māyā
+
+*Bg.* 7.14*.*
+
+**[This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it.]**
+
+In the *Bhagavad-gītā* it is said that "This material nature is under My control." And in another place it is said,
+
+> mayādhyakṣeṇa prakṛtiḥ
+> sūyate sa-carācaram
+> hetunānena kaunteya
+> jagad viparivartate
+
+[*Bg.* *9.10*]
+
+**[This material nature is working under My direction, O son of Kuntī, and it is producing all moving and unmoving beings. By its rule this manifestation is created and annihilated again and again.]**
+
+"The whole cosmic manifestation is rolling on under My superintendence." *Mayādhyakṣeṇa.* "Under My order, under My supervision," *prakṛtiḥ,* "this, oh, the huge, gigantic material nature, is working under Me," *hetunānena,* "and, on this account, there is rules and regulation, everything is being done nicely."
+
+So Caitanya Mahāprabhu says that "Because Brahman, or the Supreme Lord, is the greatest, therefore His body cannot be made of this material nature." Because material nature is created at a certain interval, and who creates? He creates, the Supreme Lord.
+
+The creator, therefore, cannot be under the material nature. If I am creator of something, so I cannot be under the..., that particular thing which is created. It is logical. So therefore, because the Supreme Brahman, or Bhagavān*,* is the creator of this material nature, He cannot be under the control of *māyā.* He is...
+
+And that is also stated in *Bhagavad-gītā,* many places.
+
+Sambhavāmy ātma-māyayā
+
+[*Bg.* *4.6*]*.*
+
+**[Although I am unborn and My transcendental body never deteriorates, and although I am the Lord of all sentient beings, I still appear in every millennium in My original transcendental form.]**
+
+*Ātma-māyayā.* Not this *māyā.* *Māyā* means potency. So we have got the experience of this potency, material potency, but there is another potency which is called spiritual potency. So spiritual potency is the internal energy of Kṛṣṇa, and material potency is the external energy. So Kṛṣṇa says that "Whenever I come,"
+
+yadā yadā hi dharmasya glānir bhavati bhārata
+
+*Bg.* 4.7*,*
+
+**[Whenever and wherever there is a decline in religious practice, O descendant of Bharata, and a predominant rise of irreligion—at that time I descend Myself.]**
+
+"Whenever there is discrepancies in the discharging of religious principle," *adharmasya, abhyutthānam..., abhyutthānam adharmasya,* "and there is great predominance of irreligiosity," *tadātmānaṁ sṛjāmy aham,* "I, at that time, I come." *Paritra*... Why?
+
+Paritrāṇāya sādhūnāṁ vināśāya ca duṣkṛtām
+
+[*Bg*. 4.8]:
+
+**[In order to deliver the pious and to annihilate the miscreants, as well as to reestablish the principles of religion, I advent Myself millennium after millennium.]**
+
+"Just to save the pious and the righteous and to vanquish the impious." So these are stated in the *Bhagavad-gītā.*
+
+Therefore natural conclusion, as Caitanya Mahāprabhu says, that His potencies, His body and His activities—everything spiritual. There is nothing material.
+
+Cid-vibhūti ācchādi' tāṅre kahe 'nirākāra'
+
+[*Cc. Ādi* 7.112].
+
+**[Everything about the Supreme Personality of Godhead is spiritual, including His body, opulence and paraphernalia. Māyāvāda philosophy, however, covering His spiritual opulence, advocates the theory of impersonalism.]**
+
+And when there is some indication of impersonalism in the *Vedas,* it should be understood that His body is not of this material nature. If somebody says that "God does not belong to this matter," that is all right. That does not mean He's impersonal. He has got His spiritual body. Matter is denied.
+
+The whole *Upaniṣad*... First of all they describe the Supreme, just like
+
+apāṇi-pādo javano grahītā
+
+[*Śvetāśvatara Upaniṣad* 3.19]*.*
+
+**[The Supreme Lord has no material hands and feet but accepts whatever is offered to Him and moves very quickly. The Supreme Person has no material ears and eyes but sees and hears everything. He is the knower of everything, and He is all that is to be known. It is said that He is the best and the greatest of all persons.]**
+
+There are Vedic statement that "The Supreme has no hands, but...
+
+[break] If He has no hand, how He can accept? What for He's accepting. Therefore it is to be understood that He has His hand, but not this hand.
+
+My hand is, er, can stretch, say, one yard only, but because He's unlimited, His hand can be stretched... Just like we are offering foodstuff, so how He is eating? That is His... He's eating by His transcendental body. We cannot see at the present moment, but He is eating. How He's eating? Because we have got the information, "Yes, I eat."
+
+Tad ahaṁ bhakty-upahṛtam aśnāmi prayatātmanaḥ
+
+*Bg.* 9.26:
+
+**[If one offers Me with love and devotion a leaf, a flower, fruit or water, I will accept it.]**
+
+"Anyone who is My devotee and offers in love, I take them." So that cannot be... There is no mistake. But how He is taking, how He is eating, because we are in this material body we do not see it, but He is taking. Therefore *cid-vibhūti ācchādi' tāṅre kahe 'nirākāra'.*
+
+> cid-ānanda-teṅho, tāṅra sthāna, parivāra
+> tāṅre kahe-prākṛta-sattvera vikāra
+
+[*Cc. Ādi* *7.113*]
+
+**[The Supreme Personality of Godhead is full of spiritual potencies. Therefore His body, name, fame and entourage are all spiritual. The Māyāvādī philosopher, due to ignorance, says that these are all merely transformations of the material mode of goodness.]**
+
+Now, the Lord's body is eternal, blissful and full of knowledge, and Śaṅkarācārya says that *prākṛta-sattvera vikāra.* "This body of Kṛṣṇa or Lord Rāma, when They come," according to Māyāvāda philosophy, that "actually, the Brahman, the Supreme Absolute Truth, has no form, but when They assume form, They take help of this material nature." That is not a fact. They come in Their own spiritual form. That is confirmed by Caitanya Mahāprabhu.
+
+> tāṅra doṣa nāhi, teṅho ājñā-kārī dāsa
+> āra yei śune tāra haya sarva-nāśa
+
+[*Cc. Ādi* *7.114*]
+
+**[Śaṅkarācārya, who is an incarnation of Lord Śiva, is faultless because he is a servant carrying out the orders of the Lord. But those who follow his Māyāvādī philosophy are doomed. They will lose all their advancement in spiritual knowledge.]**
+
+Now, he preached this bewildering philosophy because he was ordered to do so by the Supreme Lord. That was his duty. But we must be very full care..., very much careful. If we hear Śaṅkara's interpretation, or commentation, then you are doomed. "You are doomed" means no more Kṛṣṇa consciousness.
+
+You are thrown into wilderness for many, many births. Then sometimes, if you come in contact with some pure devotee, it may be possible. But so far Śaṅkarācārya's *bhāṣya* is concerned, or anyone who is following that commentation, they are doomed.
+
+Thank you very much. [break]
+
+**Woman:** If someone who does not believe in scriptures, um, what is his duty, and...?
+
+**Prabhupāda:** His duty is to go to hell. One who does not believe in scriptures, they are meant for going to hell.
+
+**Woman:** What can one do to rectify his offenses?[?]
+
+**Prabhupāda:** Well, just come...
+
+[break] That will help you.
+
+**Woman:** But if a person is not willing to do that, is there any way [indistinct]?
+
+**Prabhupāda:** Oh, how can you do that? If a person is not willing to take medicine, how he can be cured? He'll go into death. He must be willing this. That is a, I mean to say, explained in the *Bhagavad-gītā*. So that is very dangerous position, one who does not take care.
+
+Suppose if one wants to be educated without going to school. How it is possible? If somebody says, "Oh, I don't care for any school, colleges. I'll be educated at home," this is nonsense. Is it possible? Or will anybody recognize you? Then what is the use? Waste of time.
+
+That is the disease. Everyone thinks, "Oh, I am everything. I am perfect." That is the disease, material disease. Everyone is thinking, "I am independent. I am perfect. Whatever I think, oh, that is all right." This is going on.
+
+First of all, if anyone wants advancement, he must first of all think just like Caitanya Mahāprabhu is pretending, that "My spiritual master found Me a great fool." So one must agree to become a great fool and study these scriptures from bona fide spiritual master. Then there is hope of advancement.
+
+Yes?
+
+**Guest (1):** [indistinct] ...your description of the impersonalist philosophers does not correspond..., it's happening, say, by themselves they make a distinction how those things make [indistinct] a part of that philosophy that seems crucial to understanding it, and that is sometimes called the "little self" and the "big self," the "little self" being the person who we are—personality, ego—and the other type of ego is the actual ego.
+
+And once the ego is dissolved, he will wake up, as it were. As..., like you wake up out of a dream and you find that you thought you were one of the characters in the dream while you were dreaming; when you wake up you realize that you didn't have this limited identity, you had a greater identity which encompassed all the characters in the dream.
+
+**Prabhupāda:** Where you lose your personality? Either in dream or in awakenment, you are person. Why do you lose your personality? When you become imperson?
+
+**Guest (1):** When do you lose it? When you wake up from the dream of this material world.
+
+**Prabhupāda:** You are not imperson at that time; you are person. You are thinking, "I was dreaming." So your ego is there.
+
+**Guest (1):** Yeah...
+
+**Prabhupāda:** Then how...?
+
+**Guest (1):** Well, they say...
+
+**Prabhupāda:** Then how... Where do you lose your ego? Where your ego is dissolved?
+
+**Guest (1):** Where is it dissolved?
+
+**Prabhupāda:** Yes? It is never dissolved.
+
+**Guest (1):** It is dissolved into a finer form of consciousness.
+
+**Prabhupāda:** No, finer... Just now, your example: you were dreaming. Now you are awakening. You are now seeing, "Oh, I was dreaming." So the same person who was dreaming and who is thinking that "I was dreaming"—the same person. Where your identity is dissolved? In both the cases, you are standing "I." This is...
+
+**Guest (1):** Yeah, but they say at the next awakening, you dissolve this "I."
+
+**Prabhupāda:** This "I" is..., this "I" is not in dream. That is the difference. The "I" in dream and "I" in not-dream, but "I" is there. Where is your "I" dissolved?
+
+**Guest (1):** Well, when you're chanting it's dissolved, actually.
+
+**Prabhupāda:** Never.
+
+**Guest (1):** Forget yourself.
+
+**Prabhupāda:** No. We don't forget. We always remember that we are servants of God. We don't forget. We forget this material nonsense. That's all. But don't forget ourself. Our identity is there. We are all servants of God, *kṛṣṇa-dāsa.* And this is real ego. So ego is not dissolved. Ego is there, but it is purified. It is purified.
+
+Yes?
+
+**Kīrtanānanda:** Well, er, it's so difficult to control the senses. So we're engaging all of our senses in chanting and dancing and so forth. Now, the thinking mind is most difficult. So we can engage that in thinking of Kṛṣṇa. So...
+
+**Prabhupāda:** Well, when you are chanting, that is thinking, practically thinking. When you are chanting, you are practically thinking. When you are cooking, it is practically thinking. You are cooking for Kṛṣṇa. You are typing for Kṛṣṇa. You are chanting Kṛṣṇa's name.
+
+**Kīrtanānanda:** But there seems to be also a stage of not thinking. Is that... When one is chanting, should they not think or should they think of Kṛṣṇa?
+
+**Prabhupāda:** No, no. Not thinking is not there. Thinking of Kṛṣṇa. Hare Kṛṣṇa means thinking of Kṛṣṇa and His energy. There is no question of destruction. It is purification. The psychic power—thinking, feeling and willing—is purified. *Tat-paratvena nirmalam.* *Nirmalam* means purified. But it is not lost. It is not lost. Purified.
+
+And when it is purified, *hṛṣīkena hṛṣīkeśa-sevanaṁ bhaktir ucyate* [*Bhakti-rasāmṛta-sindhu* 1.1.12, *Cc. Madhya* 19.170]*,* with that purified sense, purified mind, when you apply it for Kṛṣṇa, that is called *bhakti,* Kṛṣṇa consciousness.
+
+**[Bhakti, or devotional service, means engaging all our senses in the service of the Lord, the Supreme Personality of Godhead, the master of all the senses. When the spirit soul renders service unto the Supreme, there are two side effects. One is freed from all material designations, and one’s senses are purified simply by being employed in the service of the Lord.]**
+
+**Bhaktijana:** Can you ever lose your identity?
+
+**Prabhupāda:** Hmm?
+
+**Bhaktijana:** Can you ever lose your identity?
+
+**Prabhupāda: **Evolute? What is that?
+
+**Kīrtanānanda:** Can you ever lose your identity?
+
+**Prabhupāda:** What is that? What does it mean?
+
+**Rūpānuga:** Can you ever lose your "I," the sense of "I"?
+
+**Bhaktijana:** Can I ever forget myself?
+
+**Prabhupāda:** How you can forget yourself?
+
+**Guest (2):** Not self.
+
+**Prabhupāda:** You cannot forget. Simply purify it. In diseased condition, your identification of "I" is different. Sometimes you are in convulsion; you forget. Rather, that is forgetfulness. Sometimes if you are, I mean to say, deranged in brain, we forget everything of our relationship. But when you are cured, you remember, "Oh, I was forgetful in my that delusion. Yes." So your "I" is always there. This "I," this "I," remembering, is purified.
+
+So ego has to be purified. Ego has not to be killed. And that cannot be killed, *na hanyate hanyamāne śarīre* *Bg.* 2.20*,* because it is eternal.
+
+**[For the soul there is never birth nor death. Nor, having once been, does he ever cease to be. He is unborn, eternal, ever-existing, undying and primeval. He is not slain when the body is slain.]**
+
+How can you kill ego? It is not possible. So you have to purify your ego. The difference between..., is between false ego and real ego. Just like *ahaṁ brahmāsmi, aham*... "I am Brahman." Oh, this is also ego. This is, this Vedic version that "I am Brahman. I am not this matter," so this ego is purified ego, that "I am this." So that "I" is always there. Either in illusion or delusion or dream or in healthy stage, the "I" is always there.
+
+**Bhaktijana:** When you're typing, should you think of Kṛṣṇa first and your typing second?
+
+**Prabhupāda:** Well, when you type, at least in our Society, whenever we type, we type something which is describing Kṛṣṇa's form, quality, beauty. We are typing this. We are not typing any business letter or any political propaganda.
+
+We are typing, "Oh, Kṛṣṇa is so beautiful," "Kṛṣṇa says like this," "Kṛṣṇa told Prahlāda like that," "Prahlāda told Kṛṣṇa like that." Everything Kṛṣṇa. As you are chanting Hare Kṛṣṇa, that [makes typewriter sound:] "*cut, cut, cut*" is also "Kṛṣṇa, Kṛṣṇa, Kṛṣṇa, Kṛṣṇa."
+
+**Bhaktijana:** Can Kṛṣṇa...? Is Kṛṣṇa made out of atoms, like we are?
+
+**Prabhupāda:** Eh?
+
+**Bhaktijana:** Is Kṛṣṇa made out of atoms like we are? When He comes down and takes the food?
+
+**Prabhupāda:** No. Kṛṣṇa is not atom. Kṛṣṇa is big, the biggest. We are atom. That is the difference between Kṛṣṇa and ourself. We are atom.
+
+**Bhaktijana:** Kṛṣṇa takes the, er, takes the spiritual matter from the food and leaves us the physical matter?
+
+**Prabhupāda:** No. He takes, He takes...
+
+**Bhaktijana:** When we offer up...
+
+**Prabhupāda:** ...when He takes, He does not take anything material. He takes spiritual.
+
+**Bhaktijana:** And leaves the material for us...?
+
+**Prabhupāda:** No. That is also spiritual. That is not material.
+
+**Bhaktijana:** What's left, then?
+
+**Prabhupāda:** Eh?
+
+**Bhaktijana:** What's left when Kṛṣṇa takes...?
+
+**Prabhupāda:** That is spiritual. Unless it is spiritual... Just like... First try to understand how it is spiritual. Of course, in our gross vision, we see, "Oh, we offer this* cāpāṭi* to Kṛṣṇa, and Swāmījī said *namo brahmaṇya devāya,* and it becomes spiritual." Yes. It becomes spiritual. How?
+
+That we have to understand by the result. *Phalena paricīyate.* If you eat this spiritual food, you'll get spiritual strength. That is practical. Just like I'll give you another example: milk. You take more milk preparation, you get diarrhea. You go to a physician, he'll say, "Yes. Today you take only yogurt mixed with little salt and black pepper."
+
+Cured, diarrhea cured. Now, you can say, "The same milk?" But it is treated. Therefore it cures. You can say, "Oh, the same milk? Yogurt is also milk." But it is treated. Therefore it cures. So you'll find that your material disease is being cured by spiritual foodstuff. That is practical. Therefore it is spiritual.
+
+**Woman:** Uh, does belief in any scripture, or..., any scripture whatsoever, such as the Bible or Koran...?
+
+**Prabhupāda:** Yes.
+
+**Woman:** Does belief in any scripture...
+
+**Prabhupāda:** Oh, yes.
+
+**Woman:** ...lead to salvation?
+
+**Prabhupāda:** Oh, yes, certainly. Certainly. Yes. The same thing, just like I have given example several times, that pocket dictionary and the big dictionary, both of them are dictionaries. It is not that because it is small pocket dictionary, therefore it is not dictionary. It is also dictionary.
+
+So when he's advanced and finished pocket dictionary, he may consult the big dictionary. That is the difference. Bible is not different from *Bhagavad-gītā,* but when one is perfectly conversant with Bible, he'll understand more nicely *Bhagavad-gītā.* It is not contradictory; it is helpful.
+
+All right. Distribute *prasādam.* [end]
