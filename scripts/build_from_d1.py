@@ -199,8 +199,13 @@ def build(code, rows):
                             render_verses(code, front, f'{title} — Front Matter')))
         for seg in sorted((s for s in groups if s.isdigit()), key=int):
             canto = int(seg)
-            outputs.append((f'{slug}/canto-{canto:02d}.md',
-                            render_verses(code, groups[seg], f'{title} — Canto {canto}')))
+            parts = render_verses(code, groups[seg], f'{title} — Canto {canto}')
+            if canto == 10:   # database ends at 10.13; point readers to the Kṛṣṇa Book for the rest
+                parts.append(
+                    '---\n\n**Chapters 14–19:** A complete rendition of the Tenth Canto, '
+                    'including the missing chapters, can be found in the original '
+                    "[Kṛṣṇa Book](https://vedabase.cc/kb/) edition of Śrīla Prabhupāda's works.\n")
+            outputs.append((f'{slug}/canto-{canto:02d}.md', parts))
 
     elif code == 'cc':                     # split by līlā -> sri-caitanya-caritamrta/<lila>-lila.md
         for lila in ('adi', 'madhya', 'antya'):

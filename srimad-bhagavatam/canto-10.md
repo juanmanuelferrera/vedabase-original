@@ -11074,3 +11074,7 @@ Brahmā was falling down in ecstasy. Because of the presence of the Supreme Pers
 Brahmā, being very joyful, began to shed tears, and he washed the lotus feet of Kṛṣṇa with his tears. Repeatedly he fell and rose as he recalled the wonderful activities of the Lord. After repeating obeisances for a long time, Brahmā stood up and smeared his hands over his eyes. Śrīla Viśvanātha Cakravartī Ṭhākura comments that the word *locane* indicates that with his two hands he wiped the two eyes on each of his four faces. Seeing the Lord before him, Brahmā began to offer prayers with great humility, respect and attention.
 
 Thus end the Bhaktivedanta purports of the Tenth Canto, Thirteenth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "The Stealing of the Boys and Calves by Brahmā."
+
+---
+
+**Chapters 14–19:** A complete rendition of the Tenth Canto, including the missing chapters, can be found in the original [Kṛṣṇa Book](https://vedabase.cc/kb/) edition of Śrīla Prabhupāda's works.
