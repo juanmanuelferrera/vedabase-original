@@ -202,7 +202,7 @@ def build(code, rows):
             parts = render_verses(code, groups[seg], f'{title} — Canto {canto}')
             if canto == 10:   # database ends at 10.13; point readers to the Kṛṣṇa Book for the rest
                 parts.append(
-                    '---\n\n**Chapters 14–19:** A complete rendition of the Tenth Canto, '
+                    '---\n\n**Chapters 14–90:** A complete rendition of the Tenth Canto, '
                     'including the missing chapters, can be found in the original '
                     "[Kṛṣṇa Book](https://vedabase.cc/kb/) edition of Śrīla Prabhupāda's works.\n")
             outputs.append((f'{slug}/canto-{canto:02d}.md', parts))

@@ -11077,4 +11077,4 @@ Thus end the Bhaktivedanta purports of the Tenth Canto, Thirteenth Chapter, of t
 
 ---
 
-**Chapters 14–19:** A complete rendition of the Tenth Canto, including the missing chapters, can be found in the original [Kṛṣṇa Book](https://vedabase.cc/kb/) edition of Śrīla Prabhupāda's works.
+**Chapters 14–90:** A complete rendition of the Tenth Canto, including the missing chapters, can be found in the original [Kṛṣṇa Book](https://vedabase.cc/kb/) edition of Śrīla Prabhupāda's works.
