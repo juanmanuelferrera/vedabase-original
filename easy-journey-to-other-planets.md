@@ -29,15 +29,15 @@ Chapter One
 
 Antimaterial Worlds
 
-Antimaterial Worlds
+anti-material of fire and effulgence control the atmosphere. H Worlds
 
 
 
-Materialistic science may one day finally discover the eternal antimaterial world which has for so long been unknown to the wranglers of gross materialism. Regarding the scientists' present conception of antimatter, the Times of India (Oct. 27, 1959) published the following news release:
+Materialistic science may one day finally discover the eternal anti-material of fire and effulgence control the atmosphere. H world which has for so long been unknown to the wranglers of gross materialism. Regarding the scientists' present conception of antimatter, the Times of India (Oct. 27, 1959) published the following news release:
 
 
 
-Stockholm, Oct. 26, 1959-Two American atomic scientists were awarded the 1959 Nobel Physics Prize today for the discovery of the antiproton, proving that matter exists in two forms-as particles and antiparticles. They are Italian-born Dr. Emillo Segre, 69, and Dr. Owen Chamberlain, born in San Francisco.... According to one of the fundamental assumptions of the new theory, there may exist another world, or an antiworld, built up of antimatter. This antimaterial world would consist of atomic and subatomic particles spinning in reverse orbits to those of the world we know. If these two worlds should ever clash, they would both be annihilated in one blinding flash.
+Stockholm, Oct. 26, 1959-Two American atomic scientists were awarded the 1959 Nobel Physics Prize today for the discovery of the antiproton, proving that matter exists in two forms-as particles and antiparticles. They are Italian-born Dr. Emillo Segre, 69, and Dr. Owen Chamberlain, born in San Francisco.... According to one of the fundamental assumptions of the new theory, there may exist another world, or an antiworld, built up of antimatter. This anti-material of fire and effulgence control the atmosphere. H world would consist of atomic and subatomic particles spinning in reverse orbits to those of the world we know. If these two worlds should ever clash, they would both be annihilated in one blinding flash.
 
 
 
@@ -47,7 +47,7 @@ In this statement, the following propositions are put forward:
 
 
 
-1. There is an antimaterial atom or particle which is made up of the antiqualities of material atoms.
+1. There is an anti-material of fire and effulgence control the atmosphere. H atom or particle which is made up of the antiqualities of material atoms.
 
 
 
@@ -55,19 +55,19 @@ In this statement, the following propositions are put forward:
 
 
 
-3. The antimaterial and material worlds may clash at a certain period and may annihilate one another.
+3. The anti-material of fire and effulgence control the atmosphere. H and material worlds may clash at a certain period and may annihilate one another.
 
 
 
-Out of these three items, we, the students of theistic science, can fully agree with items 1 and 2, but we can agree with item 3 only within the limited scientific definition of antimatter. The difficulty lies in the fact that the scientists' conception of antimatter extends only to another variety of material energy, whereas the real antimatter must be entirely antimaterial. Matter as it is constituted is subjected to annihilation, but antimatter-if it is to be free from all material symptoms-must also be free from annihilation, by its very nature. If matter is destructible or separable, antimatter must be indestructible and inseparable. We shall try to discuss these propositions from the angle of authentic scriptural vision.
+Out of these three items, we, the students of theistic science, can fully agree with items 1 and 2, but we can agree with item 3 only within the limited scientific definition of antimatter. The difficulty lies in the fact that the scientists' conception of antimatter extends only to another variety of material energy, whereas the real antimatter must be entirely anti-material of fire and effulgence control the atmosphere. H. Matter as it is constituted is subjected to annihilation, but antimatter-if it is to be free from all material symptoms-must also be free from annihilation, by its very nature. If matter is destructible or separable, antimatter must be indestructible and inseparable. We shall try to discuss these propositions from the angle of authentic scriptural vision.
 
 
 
-The most widely recognized scriptures in the world are the *Vedas*. The *Vedas* have been divided into four parts: Sāma, Yajur, Ṛg and Atharva. The subject matter of the *Vedas* is very difficult for a man of ordinary understanding. For elucidation, the four *Vedas* are explained in the historical epic called the *Mahābhārata* and in eighteen *Purāṇas*. The *Rāmāyaṇa* is also a historical epic which contains all the necessary information from the *Vedas*. So the four *Vedas*, the original *Rāmāyaṇa* by Vālmīki, the *Mahābhārata* and the *Purāṇas* are classified as Vedic literatures. The *Upaniṣads* are parts of the four *Vedas*, and the Vedānta-sūtras represent the cream of the *Vedas*. To summarize all these Vedic literatures, the *Bhagavad-gītā* is accepted as the essence of all *Upaniṣads* and the preliminary explanation of the Vedānta-sūtras. One may then conclude that from the *Bhagavad-gītā* alone one can have the essence of the *Vedas*, for it is spoken by Lord Śrī *Kṛṣṇa, the Supreme Personality of Godhead*, who descends upon this material world from the antimaterial world in order to give complete information of the superior form of energy.
+The most widely recognized scriptures in the world are the *Vedas*. The *Vedas* have been divided into four parts: Sāma, Yajur, Ṛg and Atharva. The subject matter of the *Vedas* is very difficult for a man of ordinary understanding. For elucidation, the four *Vedas* are explained in the historical epic called the *Mahābhārata* and in eighteen *Purāṇas*. The *Rāmāyaṇa* is also a historical epic which contains all the necessary information from the *Vedas*. So the four *Vedas*, the original *Rāmāyaṇa* by Vālmīki, the *Mahābhārata* and the *Purāṇas* are classified as Vedic literatures. The *Upaniṣads* are parts of the four *Vedas*, and the Vedānta-sūtras represent the cream of the *Vedas*. To summarize all these Vedic literatures, the *Bhagavad-gītā* is accepted as the essence of all *Upaniṣads* and the preliminary explanation of the Vedānta-sūtras. One may then conclude that from the *Bhagavad-gītā* alone one can have the essence of the *Vedas*, for it is spoken by Lord Śrī *Kṛṣṇa, the Supreme Personality of Godhead*, who descends upon this material world from the anti-material of fire and effulgence control the atmosphere. H world in order to give complete information of the superior form of energy.
 
 
 
-The superior form of energy of the Personality of Godhead is described in the *Bhagavad-gītā* as parā prakṛti. The scientists have recently discovered that there are two forms of perishable matter, but the *Bhagavad-gītā* describes most perfectly the concept of matter and antimatter in terms of two forms of energy. Matter is an energy which creates the material world, and the same energy, in its superior form, also creates the antimaterial (transcendental) world. The living entities belong to the category of superior energy. The inferior energy, or material energy, is called aparā prakṛti. In the *Bhagavad-gītā* the creative energy is thus presented in two forms, namely aparā and parā prakṛti.
+The superior form of energy of the Personality of Godhead is described in the *Bhagavad-gītā* as parā prakṛti. The scientists have recently discovered that there are two forms of perishable matter, but the *Bhagavad-gītā* describes most perfectly the concept of matter and antimatter in terms of two forms of energy. Matter is an energy which creates the material world, and the same energy, in its superior form, also creates the anti-material of fire and effulgence control the atmosphere. H (transcendental) world. The living entities belong to the category of superior energy. The inferior energy, or material energy, is called aparā prakṛti. In the *Bhagavad-gītā* the creative energy is thus presented in two forms, namely aparā and parā prakṛti.
 
 
 
@@ -75,21 +75,21 @@ Matter itself has no creative power. When it is manipulated by the living energy
 
 
 
-In the *Vedas* the supreme living being, or the Absolute Truth, is called Bhagavān-the opulent one, the living being who is the fountainhead of all energies. The discovery of the two forms of limited energies by the modern scientists is just the beginning of the progress of science. Now they must go further to discover the source of the two particles or atoms which they term material and antimaterial.
+In the *Vedas* the supreme living being, or the Absolute Truth, is called Bhagavān-the opulent one, the living being who is the fountainhead of all energies. The discovery of the two forms of limited energies by the modern scientists is just the beginning of the progress of science. Now they must go further to discover the source of the two particles or atoms which they term material and anti-material of fire and effulgence control the atmosphere. H.
 
 
 
-How can the antimaterial particle be explained? We have experience with material particles or atoms, but we have no experience with antimaterial atoms. However, the *Bhagavad-gītā* gives the following vivid description of the antimaterial particle:
+How can the anti-material of fire and effulgence control the atmosphere. H particle be explained? We have experience with material particles or atoms, but we have no experience with anti-material of fire and effulgence control the atmosphere. H atoms. However, the *Bhagavad-gītā* gives the following vivid description of the anti-material of fire and effulgence control the atmosphere. H particle:
 
 
 
-This antimaterial particle is within the material body. Because of the presence of this antimaterial particle, the material body is progressively changing from childhood to boyhood, from boyhood to youth to old age, after which the antimaterial particle leaves the old, unworkable body and takes up another material body.
+This anti-material of fire and effulgence control the atmosphere. H particle is within the material body. Because of the presence of this anti-material of fire and effulgence control the atmosphere. H particle, the material body is progressively changing from childhood to boyhood, from boyhood to youth to old age, after which the anti-material of fire and effulgence control the atmosphere. H particle leaves the old, unworkable body and takes up another material body.
 
 
 
 
 
-This description of a living body confirms the scientific discovery that energy exists in two forms. When one of them, the antimaterial particle, is separated from the material body, the latter becomes useless for all purposes. As such, the antimaterial particle is undoubtedly superior to the material energy.
+This description of a living body confirms the scientific discovery that energy exists in two forms. When one of them, the anti-material of fire and effulgence control the atmosphere. H particle, is separated from the material body, the latter becomes useless for all purposes. As such, the anti-material of fire and effulgence control the atmosphere. H particle is undoubtedly superior to the material energy.
 
 
 
@@ -99,17 +99,17 @@ No one, therefore, should lament for the loss of material energy. All varieties 
 
 
 
-Any intelligent man who is not disturbed by happiness and distress, understanding that they are different material phases resulting from the interactions of the inferior energy, is competent to regain the antimaterial world, where life is eternal, full of permanent knowledge and bliss.
+Any intelligent man who is not disturbed by happiness and distress, understanding that they are different material phases resulting from the interactions of the inferior energy, is competent to regain the anti-material of fire and effulgence control the atmosphere. H world, where life is eternal, full of permanent knowledge and bliss.
 
 
 
 
 
-The antimaterial world is mentioned here, and in addition information is given that in the antimaterial world there is no "seasonal" fluctuation. Everything there is permanent, blissful, and full of knowledge. But when we speak of it as a "world," we must remember that it has forms and paraphernalia of various categories beyond our material experiences.
+The anti-material of fire and effulgence control the atmosphere. H world is mentioned here, and in addition information is given that in the anti-material of fire and effulgence control the atmosphere. H world there is no "seasonal" fluctuation. Everything there is permanent, blissful, and full of knowledge. But when we speak of it as a "world," we must remember that it has forms and paraphernalia of various categories beyond our material experiences.
 
 
 
-The material body is destructible, and as such it is changeable and temporary. So is the material world. But the antimaterial living force is nondestructible, and therefore it is permanent. Expert scientists have thus distinguished the different qualities of the material and antimaterial particles as temporary and permanent respectively.
+The material body is destructible, and as such it is changeable and temporary. So is the material world. But the anti-material of fire and effulgence control the atmosphere. H living force is nondestructible, and therefore it is permanent. Expert scientists have thus distinguished the different qualities of the material and anti-material of fire and effulgence control the atmosphere. H particles as temporary and permanent respectively.
 
 
 
@@ -119,57 +119,57 @@ The discoverers of the two forms of matter have yet to find out the qualities of
 
 
 
-The antimaterial particle is finer than the finest of material particles. This living force is so powerful that it spreads its influence all over the material body. The antimaterial particle has immense potency in comparison to the material particle, and consequently it cannot be destroyed.
+The anti-material of fire and effulgence control the atmosphere. H particle is finer than the finest of material particles. This living force is so powerful that it spreads its influence all over the material body. The anti-material of fire and effulgence control the atmosphere. H particle has immense potency in comparison to the material particle, and consequently it cannot be destroyed.
 
 
 
 
 
-This is but the beginning of the description of the antimaterial particle in the *Bhagavad-gītā*. It is further explained as follows:
+This is but the beginning of the description of the anti-material of fire and effulgence control the atmosphere. H particle in the *Bhagavad-gītā*. It is further explained as follows:
 
 
 
-The finest form of the antimaterial particle is encaged within the gross and subtle material bodies. Although the material bodies (both gross and subtle) are subject to destruction, the finer, antimaterial particle is eternal. One's interest, therefore, should be in this eternal principle.
-
-
-
-
-
-The perfection of science will occur when it is possible for the material scientists to know the qualities of the antimaterial particle and liberate it from the association of nonpermanent, material particles. Such liberation would mark the culmination of scientific progress.
-
-
-
-There is partial truth in the scientists' suggestion that there may exist also another world consisting of antimaterial atoms and that a clash between the material and antimaterial worlds will result in the annihilation of both. There is a clash which is continually going on: the annihilation of the material particles is taking place at every moment, and the nonmaterial particle is striving for liberation. This is explained in the *Bhagavad-gītā* as follows:
-
-
-
-The nonmaterial particle, which is the living entity, influences the material particle to work. This living entity is always indestructible. As long as the nonmaterial particle is within the lump of material energy-known by the names of gross and subtle bodies-then the entity is manifest as a living unit. In the continuous clashing between the two particles, the nonmaterial particle is never annihilated. No one can destroy the antimaterial particle at any time-past, present or future.
+The finest form of the anti-material of fire and effulgence control the atmosphere. H particle is encaged within the gross and subtle material bodies. Although the material bodies (both gross and subtle) are subject to destruction, the finer, anti-material of fire and effulgence control the atmosphere. H particle is eternal. One's interest, therefore, should be in this eternal principle.
 
 
 
 
 
-Therefore, we think that the theory maintaining that the material and antimaterial worlds may clash, resulting in the annihilation of both worlds, is correct only within the context of the scientists' limited definition of antimatter. The *Bhagavad-gītā* explains the nature of the antimaterial particle, which can never be annihilated:
+The perfection of science will occur when it is possible for the material scientists to know the qualities of the anti-material of fire and effulgence control the atmosphere. H particle and liberate it from the association of nonpermanent, material particles. Such liberation would mark the culmination of scientific progress.
 
 
 
-The fine and immeasurable antimaterial particle is always indestructible, permanent and eternal. After a certain period, however, its encagement by material particles is annihilated. This same principle also operates in the case of the material and antimaterial worlds. No one should fear the annihilation of the antimaterial particle, for it survives the annihilation of material worlds.
+There is partial truth in the scientists' suggestion that there may exist also another world consisting of anti-material of fire and effulgence control the atmosphere. H atoms and that a clash between the material and anti-material of fire and effulgence control the atmosphere. H worlds will result in the annihilation of both. There is a clash which is continually going on: the annihilation of the material particles is taking place at every moment, and the nonmaterial particle is striving for liberation. This is explained in the *Bhagavad-gītā* as follows:
 
 
 
-
-
-Everything that is created is annihilated at a certain stage. Both the material body and the material world are created, and they are therefore subject to annihilation. The antimaterial particle, however, is never created, and consequently it is never annihilated. This also is corroborated in the *Bhagavad-gītā*:
-
-
-
-The antimaterial particle, which is the vital force, is never born or created. It exists eternally. It has neither birth dates nor death dates. It is neither repeatedly created nor repeatedly destroyed. It is eternally existing, and therefore it is the oldest of the old, and yet it is always fresh and new. Although the material particle is annihilated, the antimaterial particle is never affected.
+The nonmaterial particle, which is the living entity, influences the material particle to work. This living entity is always indestructible. As long as the nonmaterial particle is within the lump of material energy-known by the names of gross and subtle bodies-then the entity is manifest as a living unit. In the continuous clashing between the two particles, the nonmaterial particle is never annihilated. No one can destroy the anti-material of fire and effulgence control the atmosphere. H particle at any time-past, present or future.
 
 
 
 
 
-The principle is also applicable to the antimaterial universe as well as to the antimaterial particle. When the material universe is annihilated, the antimaterial universe exists in all circumstances. This will be explained in more detail later.
+Therefore, we think that the theory maintaining that the material and anti-material of fire and effulgence control the atmosphere. H worlds may clash, resulting in the annihilation of both worlds, is correct only within the context of the scientists' limited definition of antimatter. The *Bhagavad-gītā* explains the nature of the anti-material of fire and effulgence control the atmosphere. H particle, which can never be annihilated:
+
+
+
+The fine and immeasurable anti-material of fire and effulgence control the atmosphere. H particle is always indestructible, permanent and eternal. After a certain period, however, its encagement by material particles is annihilated. This same principle also operates in the case of the material and anti-material of fire and effulgence control the atmosphere. H worlds. No one should fear the annihilation of the anti-material of fire and effulgence control the atmosphere. H particle, for it survives the annihilation of material worlds.
+
+
+
+
+
+Everything that is created is annihilated at a certain stage. Both the material body and the material world are created, and they are therefore subject to annihilation. The anti-material of fire and effulgence control the atmosphere. H particle, however, is never created, and consequently it is never annihilated. This also is corroborated in the *Bhagavad-gītā*:
+
+
+
+The anti-material of fire and effulgence control the atmosphere. H particle, which is the vital force, is never born or created. It exists eternally. It has neither birth dates nor death dates. It is neither repeatedly created nor repeatedly destroyed. It is eternally existing, and therefore it is the oldest of the old, and yet it is always fresh and new. Although the material particle is annihilated, the anti-material of fire and effulgence control the atmosphere. H particle is never affected.
+
+
+
+
+
+The principle is also applicable to the anti-material of fire and effulgence control the atmosphere. H universe as well as to the anti-material of fire and effulgence control the atmosphere. H particle. When the material universe is annihilated, the anti-material of fire and effulgence control the atmosphere. H universe exists in all circumstances. This will be explained in more detail later.
 
 
 
@@ -177,45 +177,45 @@ The scientist may also learn the following from the *Bhagavad-gītā*:
 
 
 
-The learned man who knows perfectly well that the antimaterial particle is indestructible knows that it cannot be annihilated by any means.
+The learned man who knows perfectly well that the anti-material of fire and effulgence control the atmosphere. H particle is indestructible knows that it cannot be annihilated by any means.
 
 
 
 
 
-The atomic scientist may consider annihilating the material world by nuclear weapons, but his weapons cannot destroy the antimaterial world. The antimaterial particle is more clearly explained in the following lines:
+The atomic scientist may consider annihilating the material world by nuclear weapons, but his weapons cannot destroy the anti-material of fire and effulgence control the atmosphere. H world. The anti-material of fire and effulgence control the atmosphere. H particle is more clearly explained in the following lines:
 
 
 
-It is neither cut into pieces by any material weapon, nor is it burnt by fire. Nor is it moistened by water, nor withered, nor dried up, nor evaporated in the air. It is indivisible, nonflammable and insoluble. Because it is eternal, it can enter into and leave any sort of body. Being steady by constitution, its qualities are always fixed. It is inexplicable, because it is contrary to all material qualities. It is unthinkable by the ordinary brain. It is unchangeable. No one, therefore, should ever lament for what is an eternal, antimaterial principle.
-
-
-
-
-
-Thus, in the *Bhagavad-gītā* and in all other Vedic literatures the superior energy (antimaterial principle) is accepted as the vital force, or the living spirit. This is also called the jīva. This living principle cannot be generated by any combination of material elements. There are eight material principles which are described as inferior energies, and they are: (1) earth, (2) water, (3) fire, (4) air, (5) ether, (6) mind, (7) intelligence and (8) ego. Apart from these is the living force, or the antimaterial principle, which is described as the superior energy. These are called "energies" because they are wielded and controlled by the supreme living being, the Personality of Godhead (Kṛṣṇa).
-
-
-
-For a long time the materialist was limited within the boundary of the eight material principles mentioned above. Now it is encouraging to see that he has a little preliminary information of the antimaterial principle and the antimaterial universe. We hope that with the progress of time the materialist will be able to estimate the value of the antimaterial world, in which there is no trace of material principles. Of course the very word "antimaterial" indicates that the principle is in opposition to all material qualities.
-
-
-
-There are, of course, the mental speculators who comment upon the antimaterial principle. These fall into two main groups, and they arrive at two different erroneous conclusions. One group (the gross materialists) either denies the antimaterial principle or admits only the disintegration of material combination at a certain stage (death). The other group accepts the antimaterial principle as being in direct opposition to the material principle with its twenty-four categories. This group is known as the Sāṅkhyaites, and they investigate the material principles and analyze them minutely. At the end of their investigation, the Sāṅkhyaites finally accept only a transcendental (antimaterial) nonactive principle. However, difficulties arise for all these mental speculators because they speculate with the help of inferior energy. They do not accept information from the superior. In order to realize the real position of the antimaterial principle, one must rise to the transcendental plane of superior energy. Bhakti-yoga is the very activity of superior energy.
-
-
-
-From the platform of the material world, one cannot estimate the real position of the antimaterial world. But the Supreme Lord, who is the controller of both material and antimaterial energies, descends out of His causeless mercy and gives us complete information of the antimaterial world. In this way we can know what the antimaterial world is. The Supreme Lord and the living entities are both antimaterial in quality, we are informed. Thus, we can have an idea of the Supreme Lord by an elaborate study of the living entities. Every living entity is an individual person. Therefore, the supreme living being must also be the supreme person. In the Vedic literatures the supreme person is properly claimed to be Kṛṣṇa. The name "Kṛṣṇa," indicating the Supreme Lord, is the only truly intelligible name of the highest order. He is the controller of both material and antimaterial energies, and the very word "Kṛṣṇa" signifies that He is the supreme controller. In the *Bhagavad-gītā* the Lord confirms this as follows:
-
-
-
-There are two worlds-the material and antimaterial. The material world is composed of inferior qualitative energy divided into eight material principles. The antimaterial world is made of superior qualitative energy. Because both the material and antimaterial energies are emanations of the Supreme Transcendence, the Personality of Godhead, it is proper to conclude that I [Lord Kṛṣṇa] am the ultimate cause of all creations and annihilations.
+It is neither cut into pieces by any material weapon, nor is it burnt by fire. Nor is it moistened by water, nor withered, nor dried up, nor evaporated in the air. It is indivisible, nonflammable and insoluble. Because it is eternal, it can enter into and leave any sort of body. Being steady by constitution, its qualities are always fixed. It is inexplicable, because it is contrary to all material qualities. It is unthinkable by the ordinary brain. It is unchangeable. No one, therefore, should ever lament for what is an eternal, anti-material of fire and effulgence control the atmosphere. H principle.
 
 
 
 
 
-Because the Lord's two energies (inferior and superior) manifest the material and antimaterial worlds, He is called the Supreme Absolute Truth. Lord Kṛṣṇa explains this in the *Bhagavad-gītā* thus:
+Thus, in the *Bhagavad-gītā* and in all other Vedic literatures the superior energy (anti-material of fire and effulgence control the atmosphere. H principle) is accepted as the vital force, or the living spirit. This is also called the jīva. This living principle cannot be generated by any combination of material elements. There are eight material principles which are described as inferior energies, and they are: (1) earth, (2) water, (3) fire, (4) air, (5) ether, (6) mind, (7) intelligence and (8) ego. Apart from these is the living force, or the anti-material of fire and effulgence control the atmosphere. H principle, which is described as the superior energy. These are called "energies" because they are wielded and controlled by the supreme living being, the Personality of Godhead (Kṛṣṇa).
+
+
+
+For a long time the materialist was limited within the boundary of the eight material principles mentioned above. Now it is encouraging to see that he has a little preliminary information of the anti-material of fire and effulgence control the atmosphere. H principle and the anti-material of fire and effulgence control the atmosphere. H universe. We hope that with the progress of time the materialist will be able to estimate the value of the anti-material of fire and effulgence control the atmosphere. H world, in which there is no trace of material principles. Of course the very word "anti-material of fire and effulgence control the atmosphere. H" indicates that the principle is in opposition to all material qualities.
+
+
+
+There are, of course, the mental speculators who comment upon the anti-material of fire and effulgence control the atmosphere. H principle. These fall into two main groups, and they arrive at two different erroneous conclusions. One group (the gross materialists) either denies the anti-material of fire and effulgence control the atmosphere. H principle or admits only the disintegration of material combination at a certain stage (death). The other group accepts the anti-material of fire and effulgence control the atmosphere. H principle as being in direct opposition to the material principle with its twenty-four categories. This group is known as the Sāṅkhyaites, and they investigate the material principles and analyze them minutely. At the end of their investigation, the Sāṅkhyaites finally accept only a transcendental (anti-material of fire and effulgence control the atmosphere. H) nonactive principle. However, difficulties arise for all these mental speculators because they speculate with the help of inferior energy. They do not accept information from the superior. In order to realize the real position of the anti-material of fire and effulgence control the atmosphere. H principle, one must rise to the transcendental plane of superior energy. Bhakti-yoga is the very activity of superior energy.
+
+
+
+From the platform of the material world, one cannot estimate the real position of the anti-material of fire and effulgence control the atmosphere. H world. But the Supreme Lord, who is the controller of both material and anti-material of fire and effulgence control the atmosphere. H energies, descends out of His causeless mercy and gives us complete information of the anti-material of fire and effulgence control the atmosphere. H world. In this way we can know what the anti-material of fire and effulgence control the atmosphere. H world is. The Supreme Lord and the living entities are both anti-material of fire and effulgence control the atmosphere. H in quality, we are informed. Thus, we can have an idea of the Supreme Lord by an elaborate study of the living entities. Every living entity is an individual person. Therefore, the supreme living being must also be the supreme person. In the Vedic literatures the supreme person is properly claimed to be Kṛṣṇa. The name "Kṛṣṇa," indicating the Supreme Lord, is the only truly intelligible name of the highest order. He is the controller of both material and anti-material of fire and effulgence control the atmosphere. H energies, and the very word "Kṛṣṇa" signifies that He is the supreme controller. In the *Bhagavad-gītā* the Lord confirms this as follows:
+
+
+
+There are two worlds-the material and anti-material of fire and effulgence control the atmosphere. H. The material world is composed of inferior qualitative energy divided into eight material principles. The anti-material of fire and effulgence control the atmosphere. H world is made of superior qualitative energy. Because both the material and anti-material of fire and effulgence control the atmosphere. H energies are emanations of the Supreme Transcendence, the Personality of Godhead, it is proper to conclude that I [Lord Kṛṣṇa] am the ultimate cause of all creations and annihilations.
+
+
+
+
+
+Because the Lord's two energies (inferior and superior) manifest the material and anti-material of fire and effulgence control the atmosphere. H worlds, He is called the Supreme Absolute Truth. Lord Kṛṣṇa explains this in the *Bhagavad-gītā* thus:
 
 
 
@@ -225,19 +225,19 @@ I am, Arjuna, the highest principle of transcendence, and there is nothing great
 
 
 
-Long, long before the discovery of the principles of antimatter and the antimaterial worlds, the subject was delineated in the pages of *Bhagavad-gītā*. The *Gītā* itself indicates that its philosophy had previously been taught to the presiding deity of the sun, which implies that the principles of the *Bhagavad-gītā* were expounded by the Personality of Godhead long before the Battle of Kurukṣetra-at least some 120,000,000 years before. Now modern science has just discovered a fraction of the truths that are available in the *Bhagavad-gītā*.
+Long, long before the discovery of the principles of antimatter and the anti-material of fire and effulgence control the atmosphere. H worlds, the subject was delineated in the pages of *Bhagavad-gītā*. The *Gītā* itself indicates that its philosophy had previously been taught to the presiding deity of the sun, which implies that the principles of the *Bhagavad-gītā* were expounded by the Personality of Godhead long before the Battle of Kurukṣetra-at least some 120,000,000 years before. Now modern science has just discovered a fraction of the truths that are available in the *Bhagavad-gītā*.
 
 
 
-The assumption of an antimaterial universe is also found in the *Bhagavad-gītā*. And from all data available it is to be assumed without the slightest doubt that the antimaterial world is situated in the antimaterial sky, a sky which is mentioned in the *Bhagavad-gītā* as sanātana-dhāma, or the eternal nature.
+The assumption of an anti-material of fire and effulgence control the atmosphere. H universe is also found in the *Bhagavad-gītā*. And from all data available it is to be assumed without the slightest doubt that the anti-material of fire and effulgence control the atmosphere. H world is situated in the anti-material of fire and effulgence control the atmosphere. H sky, a sky which is mentioned in the *Bhagavad-gītā* as sanātana-dhāma, or the eternal nature.
 
 
 
-Exactly as material atoms create the material world, the antimaterial atoms create the antimaterial world with all its paraphernalia. The antimaterial world is inhabited by antimaterial living beings. In the antimaterial world there is no inert matter. Everything there is a living principle, and the Supreme Personality in that region is God Himself. The denizens of the antimaterial world possess eternal life, eternal knowledge and eternal bliss. In other words, they have all the qualifications of God.
+Exactly as material atoms create the material world, the anti-material of fire and effulgence control the atmosphere. H atoms create the anti-material of fire and effulgence control the atmosphere. H world with all its paraphernalia. The anti-material of fire and effulgence control the atmosphere. H world is inhabited by anti-material of fire and effulgence control the atmosphere. H living beings. In the anti-material of fire and effulgence control the atmosphere. H world there is no inert matter. Everything there is a living principle, and the Supreme Personality in that region is God Himself. The denizens of the anti-material of fire and effulgence control the atmosphere. H world possess eternal life, eternal knowledge and eternal bliss. In other words, they have all the qualifications of God.
 
 
 
-In the material world the topmost planet is called Satyaloka, or Brahmaloka. Beings of the greatest talents live on this planet. The presiding deity of Brahmaloka is Brahmā, the first created being of this material world. Brahmā is a living being like so many of us, but he is the most talented personality in the material world. He is not so talented that he is in the category of God, but he is in the category of those living entities directly dominated by God. God and the living entities both belong to the antimaterial world. The scientist, therefore, would be rendering service to everyone by researching the constitution of the antimaterial world-how it is administered, how things are shaped there, who are the presiding personalities, and so on. Of the Vedic literatures, *Śrīmad-Bhāgavatam* deals elaborately with these matters. The *Bhagavad-gītā* is the preliminary study of the *Śrīmad-Bhāgavatam*. These two important books of knowledge should be thoroughly studied by all men in the scientific world. These books would give many clues to scientific progress and would indicate many new discoveries.
+In the material world the topmost planet is called Satyaloka, or Brahmaloka. Beings of the greatest talents live on this planet. The presiding deity of Brahmaloka is Brahmā, the first created being of this material world. Brahmā is a living being like so many of us, but he is the most talented personality in the material world. He is not so talented that he is in the category of God, but he is in the category of those living entities directly dominated by God. God and the living entities both belong to the anti-material of fire and effulgence control the atmosphere. H world. The scientist, therefore, would be rendering service to everyone by researching the constitution of the anti-material of fire and effulgence control the atmosphere. H world-how it is administered, how things are shaped there, who are the presiding personalities, and so on. Of the Vedic literatures, *Śrīmad-Bhāgavatam* deals elaborately with these matters. The *Bhagavad-gītā* is the preliminary study of the *Śrīmad-Bhāgavatam*. These two important books of knowledge should be thoroughly studied by all men in the scientific world. These books would give many clues to scientific progress and would indicate many new discoveries.
 
 
 
@@ -245,49 +245,49 @@ The transcendentalists and the materialists are two distinct classes of men. The
 
 
 
-The gross materialists, however, do not believe in the antimaterial worlds of the Personality of Godhead. They are therefore unfortunate creatures, although sometimes very talented, educated and advanced otherwise. They are bewildered by the influence of the material manifestation and are devoid of knowledge of things antimaterial. It is a good sign, therefore, that the materialistic scientists are gradually progressing toward the region of the antimaterial world. It may even be possible for them to make sufficient progress to be able to know the details of this antimaterial world, where the Personality of Godhead resides as the predominating figure and where the living entities live with Him and serve Him. The living entities who serve the Godhead are equal in quality to Him, but at the same time they are predominated as servitors. In the antimaterial world there is no difference between the predominated and the predominator-the relationship is in perfection and without tinge of materialism.
+The gross materialists, however, do not believe in the anti-material of fire and effulgence control the atmosphere. H worlds of the Personality of Godhead. They are therefore unfortunate creatures, although sometimes very talented, educated and advanced otherwise. They are bewildered by the influence of the material manifestation and are devoid of knowledge of things anti-material of fire and effulgence control the atmosphere. H. It is a good sign, therefore, that the materialistic scientists are gradually progressing toward the region of the anti-material of fire and effulgence control the atmosphere. H world. It may even be possible for them to make sufficient progress to be able to know the details of this anti-material of fire and effulgence control the atmosphere. H world, where the Personality of Godhead resides as the predominating figure and where the living entities live with Him and serve Him. The living entities who serve the Godhead are equal in quality to Him, but at the same time they are predominated as servitors. In the anti-material of fire and effulgence control the atmosphere. H world there is no difference between the predominated and the predominator-the relationship is in perfection and without tinge of materialism.
 
 
 
-The nature of the material world is destructive. According to the *Bhagavad-gītā*, there is some partial truth to the assumption of the physical scientist that there is annihilation of the material and antimaterial worlds when they chance to clash. The material world is a creation of changing modes of nature. These modes (guṇas) are known as sattva (goodness), rajas (passion) and tamas (ignorance). The material world is created by the mode of rajas, maintained by the mode of sattva, and annihilated by the mode of tamas. These modes are omnipresent in the material world, and as such, at every hour, every minute, every second, the process of creation, maintenance and annihilation is taking place all over the material universe. The highest planet of the material universe, Brahmaloka, is also subjected to these modes of nature, although the duration of life on that planet, due to the predominance of the mode of sattva, is said to be 4,300,000 x 1,000 x 2 x 30 x 12 x 100 solar years. Despite this long duration, however, Brahmaloka is subject to destruction. Although life on Brahmaloka is fantastically long compared to life on Earth, it is only a flash in comparison to the eternal life of the nonmaterial worlds. Consequently, the speaker of the *Bhagavad-gītā*, Lord Śrī Kṛṣṇa, asserts the importance of the antimaterial universe, which is His abode.
+The nature of the material world is destructive. According to the *Bhagavad-gītā*, there is some partial truth to the assumption of the physical scientist that there is annihilation of the material and anti-material of fire and effulgence control the atmosphere. H worlds when they chance to clash. The material world is a creation of changing modes of nature. These modes (guṇas) are known as sattva (goodness), rajas (passion) and tamas (ignorance). The material world is created by the mode of rajas, maintained by the mode of sattva, and annihilated by the mode of tamas. These modes are omnipresent in the material world, and as such, at every hour, every minute, every second, the process of creation, maintenance and annihilation is taking place all over the material universe. The highest planet of the material universe, Brahmaloka, is also subjected to these modes of nature, although the duration of life on that planet, due to the predominance of the mode of sattva, is said to be 4,300,000 x 1,000 x 2 x 30 x 12 x 100 solar years. Despite this long duration, however, Brahmaloka is subject to destruction. Although life on Brahmaloka is fantastically long compared to life on Earth, it is only a flash in comparison to the eternal life of the nonmaterial worlds. Consequently, the speaker of the *Bhagavad-gītā*, Lord Śrī Kṛṣṇa, asserts the importance of the anti-material of fire and effulgence control the atmosphere. H universe, which is His abode.
 
 
 
-Lord Kṛṣṇa instructs that all the planets within the material universe are destroyed at the end of 4,300,000 x 1,000 x 2 x 30 x 12 x 100 solar years. And all the living beings inhabiting these material planets are destroyed materially along with the destruction of the material worlds. The living entity, however, is constitutionally an antimaterial particle. But unless he elevates himself to the region of the antimaterial worlds by cultivation of antimaterial activities, he is destroyed materially at the annihilation of the material worlds and is subject to take rebirth in a material shape with the rebirth of a new material universe. In other words, he is subject to the pains of repeated birth and death. Only those living entities who take to the loving service of the Personality of Godhead during the manifested stage of material life are undoubtedly transferred to the antimaterial worlds after quitting the material body. Immortality is obtained only by those who return to Godhead by practice of antimaterial activities.
+Lord Kṛṣṇa instructs that all the planets within the material universe are destroyed at the end of 4,300,000 x 1,000 x 2 x 30 x 12 x 100 solar years. And all the living beings inhabiting these material planets are destroyed materially along with the destruction of the material worlds. The living entity, however, is constitutionally an anti-material of fire and effulgence control the atmosphere. H particle. But unless he elevates himself to the region of the anti-material of fire and effulgence control the atmosphere. H worlds by cultivation of anti-material of fire and effulgence control the atmosphere. H activities, he is destroyed materially at the annihilation of the material worlds and is subject to take rebirth in a material shape with the rebirth of a new material universe. In other words, he is subject to the pains of repeated birth and death. Only those living entities who take to the loving service of the Personality of Godhead during the manifested stage of material life are undoubtedly transferred to the anti-material of fire and effulgence control the atmosphere. H worlds after quitting the material body. Immortality is obtained only by those who return to Godhead by practice of anti-material of fire and effulgence control the atmosphere. H activities.
 
 
 
-What are these antimaterial activities? They are medicines. For example, when a man falls ill, he goes to a physician who prescribes medicines which eventually cure the suffering patient. Similarly, the materialist is ailing, and he should consult an expert transcendentalist-physician. What is his ailment? He is suffering the tribulations of repeated births, deaths, diseases and old age. Once he agrees to put himself under the "back to Godhead" treatment, he is able to transfer himself to the antimaterial world, where there is eternal life instead of birth and death.
+What are these anti-material of fire and effulgence control the atmosphere. H activities? They are medicines. For example, when a man falls ill, he goes to a physician who prescribes medicines which eventually cure the suffering patient. Similarly, the materialist is ailing, and he should consult an expert transcendentalist-physician. What is his ailment? He is suffering the tribulations of repeated births, deaths, diseases and old age. Once he agrees to put himself under the "back to Godhead" treatment, he is able to transfer himself to the anti-material of fire and effulgence control the atmosphere. H world, where there is eternal life instead of birth and death.
 
 
 
-Annihilation of the material world takes place in two ways. Partial annihilation occurs at the end of every 4,300,000 x 1,000 solar years, or at the end of each day of Brahmaloka, which is the topmost planet in the material world. During that time of partial annihilation, the topmost planets such as Brahmaloka are not annihilated, but at the end of each duration of 4,300,000 x 1,000 x 2 x 30 x 12 x 100 solar years, the entire cosmic manifestation is merged into the antimaterial body from whence the material principles emanate, manifest and merge after annihilation. The antimaterial world, which is far removed from the material sky, is never annihilated. It absorbs the material world. It may be that a "clash" occurs between the material and antimaterial worlds, as suggested by the scientists, and that the material worlds are destroyed, but there is no annihilation of the antimaterial worlds. The eternally existing antimaterial world is unmanifested to the material scientist. He can simply have information of it insofar as the principles of its existence are contrary to the modes of the material world. Full details of the antimaterial universe can be known only from the infallible source of liberated authorities who have thoroughly realized the constitution of the antimaterial principle. This information is received by aural reception by a submissive disciple of the Personality of Godhead.
+Annihilation of the material world takes place in two ways. Partial annihilation occurs at the end of every 4,300,000 x 1,000 solar years, or at the end of each day of Brahmaloka, which is the topmost planet in the material world. During that time of partial annihilation, the topmost planets such as Brahmaloka are not annihilated, but at the end of each duration of 4,300,000 x 1,000 x 2 x 30 x 12 x 100 solar years, the entire cosmic manifestation is merged into the anti-material of fire and effulgence control the atmosphere. H body from whence the material principles emanate, manifest and merge after annihilation. The anti-material of fire and effulgence control the atmosphere. H world, which is far removed from the material sky, is never annihilated. It absorbs the material world. It may be that a "clash" occurs between the material and anti-material of fire and effulgence control the atmosphere. H worlds, as suggested by the scientists, and that the material worlds are destroyed, but there is no annihilation of the anti-material of fire and effulgence control the atmosphere. H worlds. The eternally existing anti-material of fire and effulgence control the atmosphere. H world is unmanifested to the material scientist. He can simply have information of it insofar as the principles of its existence are contrary to the modes of the material world. Full details of the anti-material of fire and effulgence control the atmosphere. H universe can be known only from the infallible source of liberated authorities who have thoroughly realized the constitution of the anti-material of fire and effulgence control the atmosphere. H principle. This information is received by aural reception by a submissive disciple of the Personality of Godhead.
 
 
 
-The Vedic knowledge was thus imparted unto the heart of Brahmā, the first living being in the material creation. It was Brahmā who related this knowledge to the sage Nārada Muni. Similarly, the *Bhagavad-gītā* was spoken by the Personality of Godhead, Śrī Kṛṣṇa, to Vivasvān, the presiding deity of the sun, and when the aural chain of disciplic succession was broken, Lord Kṛṣṇa repeated the *Bhagavad-gītā* to Arjuna on the Battlefield of Kurukṣetra. At that time, Arjuna took the role of disciple and student in order to receive transcendental knowledge from Śrī Kṛṣṇa. In order to drive out all misgivings which the gross materialists of the world may have, Arjuna asked all relevant questions, and the answers were given by Kṛṣṇa so that any layman can understand them. Only those who are captivated by the glamour of the material world cannot accept the authority of Lord Śrī Kṛṣṇa. One has to become thoroughly clean in habit and heart before one can understand the details of the antimaterial world. Bhakti-yoga is a detailed scientific transcendental activity that both the neophyte and the perfect yogī can practice.
+The Vedic knowledge was thus imparted unto the heart of Brahmā, the first living being in the material creation. It was Brahmā who related this knowledge to the sage Nārada Muni. Similarly, the *Bhagavad-gītā* was spoken by the Personality of Godhead, Śrī Kṛṣṇa, to Vivasvān, the presiding deity of the sun, and when the aural chain of disciplic succession was broken, Lord Kṛṣṇa repeated the *Bhagavad-gītā* to Arjuna on the Battlefield of Kurukṣetra. At that time, Arjuna took the role of disciple and student in order to receive transcendental knowledge from Śrī Kṛṣṇa. In order to drive out all misgivings which the gross materialists of the world may have, Arjuna asked all relevant questions, and the answers were given by Kṛṣṇa so that any layman can understand them. Only those who are captivated by the glamour of the material world cannot accept the authority of Lord Śrī Kṛṣṇa. One has to become thoroughly clean in habit and heart before one can understand the details of the anti-material of fire and effulgence control the atmosphere. H world. Bhakti-yoga is a detailed scientific transcendental activity that both the neophyte and the perfect yogī can practice.
 
 
 
-The material world is only a shadow representation of the antimaterial world, and intelligent men who are clean in heart and habit will be able to learn, in a nutshell, all the details of the antimaterial world from the text of the *Bhagavad-gītā*, and these are in actuality more exhaustive than material details. The basic details are as follows:
+The material world is only a shadow representation of the anti-material of fire and effulgence control the atmosphere. H world, and intelligent men who are clean in heart and habit will be able to learn, in a nutshell, all the details of the anti-material of fire and effulgence control the atmosphere. H world from the text of the *Bhagavad-gītā*, and these are in actuality more exhaustive than material details. The basic details are as follows:
 
 
 
-The presiding Deity of the antimaterial world is Śrī Kṛṣṇa, who exists in His original personality as well as in His many plenary expansions. This personality and His plenary expansions can be known only by antimaterial activities commonly known as bhakti-yoga, or devotional service. The Personality of Godhead is the supreme truth, and He is the whole antimaterial principle. The material principle as well as the antimaterial principle is an emanation from His person. He is the root of the complete tree. When water is poured onto the root of a tree, the branches and leaves are nourished automatically. And in the same way, when Śrī Kṛṣṇa, the Personality of Godhead, is worshiped, all details of the material worlds are enlightened, and the heart of the devotee is nourished without his having to work in a materialistic way. This is the secret of the *Bhagavad-gītā*.
+The presiding Deity of the anti-material of fire and effulgence control the atmosphere. H world is Śrī Kṛṣṇa, who exists in His original personality as well as in His many plenary expansions. This personality and His plenary expansions can be known only by anti-material of fire and effulgence control the atmosphere. H activities commonly known as bhakti-yoga, or devotional service. The Personality of Godhead is the supreme truth, and He is the whole anti-material of fire and effulgence control the atmosphere. H principle. The material principle as well as the anti-material of fire and effulgence control the atmosphere. H principle is an emanation from His person. He is the root of the complete tree. When water is poured onto the root of a tree, the branches and leaves are nourished automatically. And in the same way, when Śrī Kṛṣṇa, the Personality of Godhead, is worshiped, all details of the material worlds are enlightened, and the heart of the devotee is nourished without his having to work in a materialistic way. This is the secret of the *Bhagavad-gītā*.
 
 
 
-The process of entering into the antimaterial worlds differs from materialistic processes. The individual living being can very easily enter the antimaterial world by practicing antimaterial activities while residing in the material world. But those who are truly gross materialists, who depend on the limited strength of experimental thought, mental speculation and materialistic science, find great difficulty in entering the antimaterial worlds. The gross materialist may try to approach the antimaterial worlds by endeavoring with spaceships, satellites, rockets, etc., which he throws into outer space, but by such means he cannot even approach the material planets in the higher regions of the material sky, and what to speak of those planets situated in the antimaterial sky, which is far beyond the material universe. Even the yogīs who have perfectly controlled mystic powers have great difficulty entering into that region. Master yogīs who control the antimaterial particle within the material body by practice of mystic powers can give up their material bodies at will at a certain opportune moment and can thus enter the antimaterial worlds through a specific thoroughfare which connects the material and antimaterial worlds. If they are at all able, they act in accordance with the prescribed method given in the *Bhagavad-gītā*:
+The process of entering into the anti-material of fire and effulgence control the atmosphere. H worlds differs from materialistic processes. The individual living being can very easily enter the anti-material of fire and effulgence control the atmosphere. H world by practicing anti-material of fire and effulgence control the atmosphere. H activities while residing in the material world. But those who are truly gross materialists, who depend on the limited strength of experimental thought, mental speculation and materialistic science, find great difficulty in entering the anti-material of fire and effulgence control the atmosphere. H worlds. The gross materialist may try to approach the anti-material of fire and effulgence control the atmosphere. H worlds by endeavoring with spaceships, satellites, rockets, etc., which he throws into outer space, but by such means he cannot even approach the material planets in the higher regions of the material sky, and what to speak of those planets situated in the anti-material of fire and effulgence control the atmosphere. H sky, which is far beyond the material universe. Even the yogīs who have perfectly controlled mystic powers have great difficulty entering into that region. Master yogīs who control the anti-material of fire and effulgence control the atmosphere. H particle within the material body by practice of mystic powers can give up their material bodies at will at a certain opportune moment and can thus enter the anti-material of fire and effulgence control the atmosphere. H worlds through a specific thoroughfare which connects the material and anti-material of fire and effulgence control the atmosphere. H worlds. If they are at all able, they act in accordance with the prescribed method given in the *Bhagavad-gītā*:
 
 
 
-Those who have realized the Transcendence can reach the antimaterial world by leaving their material bodies during the period of uttarāyana, that is, when the sun is on its northern path, or during auspicious moments in which the deities of fire and effulgence control the atmosphere.
+Those who have realized the Transcendence can reach the anti-material of fire and effulgence control the atmosphere. H world by leaving their material bodies during the period of uttarāyana, that is, when the sun is on its northern path, or during auspicious moments in which the deities of fire and effulgence control the atmosphere.
 
 
 
 
 
-The different deities, or powerful directing officers, are appointed to act in the administration of cosmic activities. Foolish people who are unable to see the intricacies of cosmic management laugh at the idea of personal management of fire, air, electricity, days, nights, etc., by demigods. But the perfect yogīs know how to satisfy these unseen administrators of material affairs and, taking advantage of the good will of these administrators, leave their material bodies at will during opportune moments arranged for entrance into the antimaterial universe or into the highest planets of the material sky. In the higher planets of the material world, the yogīs can enjoy more comfortable and more pleasant lives for hundreds of thousands of years, but life in those higher planets is not eternal. Those who desire eternal life enter into the antimaterial universe through mystic powers at certain opportune moments created by the demigod-administrators of cosmic affairs, administrators unseen by the gross materialists who reside on this seventh-class planet called "Earth."
+The different deities, or powerful directing officers, are appointed to act in the administration of cosmic activities. Foolish people who are unable to see the intricacies of cosmic management laugh at the idea of personal management of fire, air, electricity, days, nights, etc., by demigods. But the perfect yogīs know how to satisfy these unseen administrators of material affairs and, taking advantage of the good will of these administrators, leave their material bodies at will during opportune moments arranged for entrance into the anti-material of fire and effulgence control the atmosphere. H universe or into the highest planets of the material sky. In the higher planets of the material world, the yogīs can enjoy more comfortable and more pleasant lives for hundreds of thousands of years, but life in those higher planets is not eternal. Those who desire eternal life enter into the anti-material of fire and effulgence control the atmosphere. H universe through mystic powers at certain opportune moments created by the demigod-administrators of cosmic affairs, administrators unseen by the gross materialists who reside on this seventh-class planet called "Earth."
 
 
 
@@ -297,7 +297,7 @@ Those who are not yogīs but who die at an opportune moment due to pious acts of
 
 
 
-In summary, the *Bhagavad-gītā* recommends that one adopt the means of devotional service, or antimaterial activities, if one wishes to enter the antimaterial world. Those who adopt the means of devotional service, as prescribed by the expert transcendentalist, are never disappointed in their attempts to enter the antimaterial world. Although the obstacles are many, the devotees of Lord Kṛṣṇa can easily overcome them by rigidly following the path outlined by the transcendental devotees. Such devotees, who are passengers progressing in the journey of life toward the antimaterial kingdom of God, are never bewildered. No one is cheated or disappointed when he adopts the guaranteed path of devotion for entrance into the antimaterial universe. One can easily attain all the results that are derived from the studies of the *Vedas*, performances of sacrifice, practices of penance and offerings of charities simply by the unilateral performance of devotional service, technically known as bhakti-yoga.
+In summary, the *Bhagavad-gītā* recommends that one adopt the means of devotional service, or anti-material of fire and effulgence control the atmosphere. H activities, if one wishes to enter the anti-material of fire and effulgence control the atmosphere. H world. Those who adopt the means of devotional service, as prescribed by the expert transcendentalist, are never disappointed in their attempts to enter the anti-material of fire and effulgence control the atmosphere. H world. Although the obstacles are many, the devotees of Lord Kṛṣṇa can easily overcome them by rigidly following the path outlined by the transcendental devotees. Such devotees, who are passengers progressing in the journey of life toward the anti-material of fire and effulgence control the atmosphere. H kingdom of God, are never bewildered. No one is cheated or disappointed when he adopts the guaranteed path of devotion for entrance into the anti-material of fire and effulgence control the atmosphere. H universe. One can easily attain all the results that are derived from the studies of the *Vedas*, performances of sacrifice, practices of penance and offerings of charities simply by the unilateral performance of devotional service, technically known as bhakti-yoga.
 
 
 
@@ -305,7 +305,7 @@ Bhakti-yoga is therefore the great panacea for all, and it has been made easy to
 
 
 
-In the Fifth Chapter of the Brahma-saṁhitā there is a description of the variegated planetary system that is within the material world. It is also indicated in the *Bhagavad-gītā* that there are variegated planetary systems in hundreds of thousands of material universes, and that altogether these universes comprise only a fraction (one fourth) of the creative energy of the Godhead. The majority (three fourths) of the Lord's creative energy is manifested in the spiritual sky, called the para-vyoma or the Vaikuṇṭhaloka. These instructions of the Brahma-saṁhitā and *Bhagavad-gītā* may be finally confirmed by the material scientist as he researches into the existence of the antimaterial world.
+In the Fifth Chapter of the Brahma-saṁhitā there is a description of the variegated planetary system that is within the material world. It is also indicated in the *Bhagavad-gītā* that there are variegated planetary systems in hundreds of thousands of material universes, and that altogether these universes comprise only a fraction (one fourth) of the creative energy of the Godhead. The majority (three fourths) of the Lord's creative energy is manifested in the spiritual sky, called the para-vyoma or the Vaikuṇṭhaloka. These instructions of the Brahma-saṁhitā and *Bhagavad-gītā* may be finally confirmed by the material scientist as he researches into the existence of the anti-material of fire and effulgence control the atmosphere. H world.
 
 
 
@@ -355,7 +355,7 @@ The adaptability of organisms in different varieties of planets is described in 
 
 
 
-In the *Bhagavad-gītā* it is said that if a man, at the time of death, concentrates his mind upon the form of the Personality of Godhead, Śrī Kṛṣṇa, and while so doing relinquishes his body, he at once enters the spiritual existence of the antimaterial world. This means that anyone who trains the mind to turn from matter to the spiritual form of the Godhead by performance of the prescribed rules of devotional service can easily attain the kingdom of God, in the antimaterial sky. And of this there is no doubt.
+In the *Bhagavad-gītā* it is said that if a man, at the time of death, concentrates his mind upon the form of the Personality of Godhead, Śrī Kṛṣṇa, and while so doing relinquishes his body, he at once enters the spiritual existence of the anti-material of fire and effulgence control the atmosphere. H world. This means that anyone who trains the mind to turn from matter to the spiritual form of the Godhead by performance of the prescribed rules of devotional service can easily attain the kingdom of God, in the anti-material of fire and effulgence control the atmosphere. H sky. And of this there is no doubt.
 
 
 
@@ -419,7 +419,7 @@ Man-made satellites and mechanical space vehicles will never be able to carry hu
 
 
 
-If one wants to go to the higher material planets, he can keep his finer dress of mind, intelligence and ego, but has to leave his gross dress (body) made of earth, water, fire, etc. When one goes to a transcendental planet, however, it is necessary to change both the finer and gross bodies, for one has to reach the spiritual sky completely in a spiritual form. This change of dress will take place automatically at the time of death if one so desires. But this desire is possible at death only if the desire is cultivated during life. Where one's treasures are, there also is one's heart. When one practices devotional service, one cultivates a desire for the kingdom of God. The following details outline a general practice by which one can prepare himself for an easy journey to the Vaikuṇṭha (antimaterial) planets, where life is free from birth, old age, disease and death.
+If one wants to go to the higher material planets, he can keep his finer dress of mind, intelligence and ego, but has to leave his gross dress (body) made of earth, water, fire, etc. When one goes to a transcendental planet, however, it is necessary to change both the finer and gross bodies, for one has to reach the spiritual sky completely in a spiritual form. This change of dress will take place automatically at the time of death if one so desires. But this desire is possible at death only if the desire is cultivated during life. Where one's treasures are, there also is one's heart. When one practices devotional service, one cultivates a desire for the kingdom of God. The following details outline a general practice by which one can prepare himself for an easy journey to the Vaikuṇṭha (anti-material of fire and effulgence control the atmosphere. H) planets, where life is free from birth, old age, disease and death.
 
 
 

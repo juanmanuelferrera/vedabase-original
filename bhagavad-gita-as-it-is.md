@@ -57,37 +57,37 @@ When will Śrīla Rūpa Gosvāmī Prabhupāda, who has established within this m
 
 > vande ’haṁ śrī-guroḥ śrī-yuta-pada-kamalaṁ śrī-gurun vaiṣṇavāṁś ca
 > śrī-rūpaṁ sāgrajātaṁ saha-gaṇa-raghunāthānvitaṁ taṁ sa-jīvam
-> sādvaitaṁ sāvadhūtaṁ parijana-sahitaṁ kṛṣṇa-caitanya-devaṁ
-> śrī-rādhā-kṛṣṇa-pādān saha-gaṇa-lalitā-śrī-viśākhānvitāṁś ca
+> sādvaitaṁ sāvadhūtaṁ parijana-sahitaṁ Kr²³a-caitanya-devaṁ
+> śrī-rādhā-Kr²³a-pādān saha-gaṇa-lalitā-śrī-viśākhānvitāṁś ca
 
-I offer my respectful obeisances unto the lotus feet of my spiritual master and unto the feet of all Vaiṣṇavas. I offer my respectful obeisances unto the lotus feet of Śrīla Rūpa Gosvāmī along with his elder brother Sanātana Gosvāmī, as well as Raghunātha Dāsa and Raghunātha Bhaṭṭa, Gopāla Bhaṭṭa, and Śrīla Jīva Gosvāmī. I offer my respectful obeisances to Lord Kṛṣṇa Caitanya and Lord Nityānanda along with Advaita Ācārya, Gadādhara, Śrīvāsa, and other associates. I offer my respectful obeisances to Śrīmatī Rādhārāṇī and Śrī Kṛṣṇa along with Their associates, Śrī Lalitā and Viśākhā.
+I offer my respectful obeisances unto the lotus feet of my spiritual master and unto the feet of all Vaiṣṇavas. I offer my respectful obeisances unto the lotus feet of Śrīla Rūpa Gosvāmī along with his elder brother Sanātana Gosvāmī, as well as Raghunātha Dāsa and Raghunātha Bhaṭṭa, Gopāla Bhaṭṭa, and Śrīla Jīva Gosvāmī. I offer my respectful obeisances to Lord Kr²³a Caitanya and Lord Nityānanda along with Advaita Ācārya, Gadādhara, Śrīvāsa, and other associates. I offer my respectful obeisances to Śrīmatī Rādhārāṇī and Śrī Kr²³a along with Their associates, Śrī Lalitā and Viśākhā.
 
-> he kṛṣṇa karunā-sindho dīna-bandho jagat-pate
+> he Kr²³a karunā-sindho dīna-bandho jagat-pate
 > gopeśa gopikā-kānta rādhā-kānta namo ’stu te
 
-O my dear Kṛṣṇa, You are the friend of the distressed and the source of creation. You are the master of the *gopīs* and the lover of Rādhārāṇī. I offer my respectful obeisances unto You.
+O my dear Kr²³a, You are the friend of the distressed and the source of creation. You are the master of the *gopīs* and the lover of Rādhārāṇī. I offer my respectful obeisances unto You.
 
 > tapta-kāñcana-gaurāṅgi rādhe vṛndāvaneśvari
 > vṛṣabhānu-sute devi praṇamāmi hari-priye
 
-I offer my respects to Rādhārāṇī whose bodily complexion is like molten gold and who is the Queen of Vṛndāvana. You are the daughter of King Vṛṣabhānu, and You are very dear to Lord Kṛṣṇa.
+I offer my respects to Rādhārāṇī whose bodily complexion is like molten gold and who is the Queen of Vṛndāvana. You are the daughter of King Vṛṣabhānu, and You are very dear to Lord Kra.
 
 > vāñchā-kalpatarubhyaś ca kṛpā-sindhubhya eva ca
 > patitānāṁ pāvanebhyo vaiṣṇavebhyo namo namaḥ
 
 I offer my respectful obeisances unto all the Vaiṣṇava devotees of the Lord who can fulfill the desires of everyone, just like desire trees, and who are full of compassion for the fallen souls.
 
-> śrī kṛṣṇa caitanya prabhu nityānanda
+> śrī Kr²³a caitanya prabhu nityānanda
 > śrī advaita gadādhara śrīvāsādi-gaura-bhakta-vṛnda
 
-I offer my obeisances to Śrī Kṛṣṇa Caitanya, Prabhu Nityānanda, Śrī Advaita, Gadādhara, Śrīvāsa and all others in the line of devotion.
+I offer my obeisances to Śrī Kr²³a Caitanya, Prabhu Nityānanda, Śrī Advaita, Gadādhara, Śrīvāsa and all others in the line of devotion.
 
-> hare kṛṣṇa, hare kṛṣṇa, kṛṣṇa kṛṣṇa, hare hare
+> hare Kr²³a, hare Kr²³a, Kr²³a Kr²³a, hare hare
 > hare rāma, hare rāma, rāma rāma, hare hare.
 
 *Bhagavad-gītā* is also known as *Gītopaniṣad.* It is the essence of Vedic knowledge and one of the most important *Upaniṣads* in Vedic literature. Of course there are many commentaries in English on the *Bhagavad-gītā,* and one may question the necessity for another one. This present edition can be explained in the following way. Recently an American lady asked me to recommend an English translation of *Bhagavad-gītā.* Of course in America there are so many editions of *Bhagavad-gītā* available in English, but as far as I have seen, not only in America but also in India, none of them can be strictly said to be authoritative because in almost every one of them the commentator has expressed his own opinions without touching the spirit of *Bhagavad-gītā* as it is.
 
-The spirit of *Bhagavad-gītā* is mentioned in *Bhagavad-gītā* itself. It is just like this: if we want to take a particular medicine, then we have to follow the directions written on the label. We cannot take the medicine according to our own whim or the direction of a friend. It must be taken according to the directions on the label or the directions given by a physician. Similarly, *Bhagavad-gītā* should be taken or accepted as it is directed by the speaker himself. The speaker of *Bhagavad-gītā* is Lord Śrī Kṛṣṇa. He is mentioned on every page of *Bhagavad-gītā* as the Supreme Personality of Godhead, Bhagavān. Of course the word "*bhagavān*" sometimes refers to any powerful person or any powerful demigod, and certainly here Bhagavān designates Lord Śrī Kṛṣṇa as a great personality, but at the same time we should know that Lord Śrī Kṛṣṇa is the Supreme Personality of Godhead, as is confirmed by all great *ācāryas* (spiritual masters) like Śaṅkarācārya, Rāmānujācārya, Madhvācārya, Nimbārka Svāmī, Śrī Caitanya Mahāprabhu and many other authorities of Vedic knowledge in India. The Lord Himself also establishes Himself as the Supreme Personality of Godhead in the *Bhagavad-gītā,* and He is accepted as such in the *Brahma-saṁhitā* and all the *Purāṇas,* especially the *Śrīmad-Bhāgavatam,* known as the *Bhāgavata Purāṇa* (*Kṛṣṇas tu bhagavān svayam*). Therefore we should take *Bhagavad-gītā* as it is directed by the Personality of Godhead Himself.
+The spirit of *Bhagavad-gītā* is mentioned in *Bhagavad-gītā* itself. It is just like this: if we want to take a particular medicine, then we have to follow the directions written on the label. We cannot take the medicine according to our own whim or the direction of a friend. It must be taken according to the directions on the label or the directions given by a physician. Similarly, *Bhagavad-gītā* should be taken or accepted as it is directed by the speaker himself. The speaker of *Bhagavad-gītā* is Lord Śrī Kra. He is mentioned on every page of *Bhagavad-gītā* as the Supreme Personality of Godhead, Bhagavān. Of course the word "*bhagavān*" sometimes refers to any powerful person or any powerful demigod, and certainly here Bhagavān designates Lord Śrī Kr²³a as a great personality, but at the same time we should know that Lord Śrī Kr²³a is the Supreme Personality of Godhead, as is confirmed by all great *ācāryas* (spiritual masters) like Śaṅkarācārya, Rāmānujācārya, Madhvācārya, Nimbārka Svāmī, Śrī Caitanya Mahāprabhu and many other authorities of Vedic knowledge in India. The Lord Himself also establishes Himself as the Supreme Personality of Godhead in the *Bhagavad-gītā,* and He is accepted as such in the *Brahma-saṁhitā* and all the *Purāṇas,* especially the *Śrīmad-Bhāgavatam,* known as the *Bhāgavata Purāṇa* (*Kr²³as tu bhagavān svayam*). Therefore we should take *Bhagavad-gītā* as it is directed by the Personality of Godhead Himself.
 
 In the Fourth Chapter of the *Gītā* the Lord says:
 
@@ -105,7 +105,7 @@ In the Fourth Chapter of the *Gītā* the Lord says:
 
 Here the Lord informs Arjuna that this system of *yoga,* the *Bhagavad-gītā,* was first spoken to the sun-god, and the sun-god explained it to Manu, and Manu explained it to Ikṣvāku, and in that way, by disciplic succession, one speaker after another, this *yoga* system has been coming down. But in the course of time it has become lost. Consequently the Lord has to speak it again, this time to Arjuna on the Battlefield of Kurukṣetra.
 
-He tells Arjuna that He is relating this supreme secret to him because he is His devotee and His friend. The purport of this is that *Bhagavad-gītā* is a treatise which is especially meant for the devotee of the Lord. There are three classes of transcendentalists, namely the *jñānī,* the *yogī* and the *bhakta,* or the impersonalist, the meditator and the devotee. Here the Lord clearly tells Arjuna that He is making him the first receiver of a new *paramparā* (disciplic succession) because the old succession was broken. It was the Lord's wish, therefore, to establish another *paramparā* in the same line of thought that was coming down from the sun-god to others, and it was His wish that His teaching be distributed anew by Arjuna. He wanted Arjuna to become the authority in understanding the *Bhagavad-gītā. So* we see that *Bhagavad-gītā* is instructed to Arjuna especially because Arjuna was a devotee of the Lord, a direct student of Kṛṣṇa, and His intimate friend. Therefore *Bhagavad-gītā* is best understood by a person who has qualities similar to Arjuna's. That is to say he must be a devotee in a direct relationship with the Lord. As soon as one becomes a devotee of the Lord, he also has a direct relationship with the Lord. That is a very elaborate subject matter, but briefly it can be stated that a devotee is in a relationship with the Supreme Personality of Godhead in one of five different ways:
+He tells Arjuna that He is relating this supreme secret to him because he is His devotee and His friend. The purport of this is that *Bhagavad-gītā* is a treatise which is especially meant for the devotee of the Lord. There are three classes of transcendentalists, namely the *jñānī,* the *yogī* and the *bhakta,* or the impersonalist, the meditator and the devotee. Here the Lord clearly tells Arjuna that He is making him the first receiver of a new *paramparā* (disciplic succession) because the old succession was broken. It was the Lord's wish, therefore, to establish another *paramparā* in the same line of thought that was coming down from the sun-god to others, and it was His wish that His teaching be distributed anew by Arjuna. He wanted Arjuna to become the authority in understanding the *Bhagavad-gītā. So* we see that *Bhagavad-gītā* is instructed to Arjuna especially because Arjuna was a devotee of the Lord, a direct student of Kr²³a, and His intimate friend. Therefore *Bhagavad-gītā* is best understood by a person who has qualities similar to Arjuna's. That is to say he must be a devotee in a direct relationship with the Lord. As soon as one becomes a devotee of the Lord, he also has a direct relationship with the Lord. That is a very elaborate subject matter, but briefly it can be stated that a devotee is in a relationship with the Supreme Personality of Godhead in one of five different ways:
 
   1. One may be a devotee in a passive state;
   2. One may be a devotee in an active state;
@@ -130,25 +130,25 @@ How Arjuna accepted this *Bhagavad-gītā* should be noted. His manner of accept
 > sarvam etad ṛtaṁ manye yan māṁ vadasi keśava
 > na hi te bhagavan vyaktiṁ vidur devā na dānavāḥ
 
-"Arjuna said: You are the Supreme Brahman, the ultimate, the supreme abode and purifier, the Absolute Truth and the eternal Divine Person. You are the primal God, transcendental and original, and You are the unborn and all-pervading beauty. All the great sages like Nārada, Asita, Devala, and Vyāsa proclaim this of You, and now You Yourself are declaring it to me. O Kṛṣṇa, I totally accept as truth all that You have told me. Neither the gods nor demons, O Lord, know Thy personality." (Bg. 10.12-14).
+"Arjuna said: You are the Supreme Brahman, the ultimate, the supreme abode and purifier, the Absolute Truth and the eternal Divine Person. You are the primal God, transcendental and original, and You are the unborn and all-pervading beauty. All the great sages like Nārada, Asita, Devala, and Vyāsa proclaim this of You, and now You Yourself are declaring it to me. O Kr²³a, I totally accept as truth all that You have told me. Neither the gods nor demons, O Lord, know Thy personality." (Bg. 10.12-14).
 
-After hearing *Bhagavad-gītā* from the Supreme Personality of Godhead, Arjuna accepted Kṛṣṇa as *Paraṁ Brahma,* the Supreme Brahman. Every living being is Brahman, but the supreme living being, or the Supreme Personality of Godhead, is the Supreme Brahman. *Paraṁ dhāma* means that He is the supreme rest or abode of everything, *pavitram* means that He is pure, untainted by material contamination, *puruṣam* means that He is the supreme enjoyer, *divyam,* transcendental, *ādi-devam,* the Supreme Personality of Godhead, *ajam,* the unborn, and *vibhum,* the greatest, the all-pervading.
+After hearing *Bhagavad-gītā* from the Supreme Personality of Godhead, Arjuna accepted Kr²³a as *Paraṁ Brahma,* the Supreme Brahman. Every living being is Brahman, but the supreme living being, or the Supreme Personality of Godhead, is the Supreme Brahman. *Paraṁ dhāma* means that He is the supreme rest or abode of everything, *pavitram* means that He is pure, untainted by material contamination, *puruṣam* means that He is the supreme enjoyer, *divyam,* transcendental, *ādi-devam,* the Supreme Personality of Godhead, *ajam,* the unborn, and *vibhum,* the greatest, the all-pervading.
 
-Now one may think that because Kṛṣṇa was the friend of Arjuna, Arjuna was telling Him all this by way of flattery, but Arjuna, just to drive out this kind of doubt from the minds of the readers of *Bhagavad-gītā,* substantiates these praises in the next verse when he says that Kṛṣṇa is accepted as the Supreme Personality of Godhead not only by himself but by authorities like the sage Nārada, Asita, Devala, Vyāsadeva and so on. These are great personalities who distribute the Vedic knowledge as it is accepted by all *ācāryas.* Therefore Arjuna tells Kṛṣṇa that he accepts whatever He says to be completely perfect. *Sarvam etad ṛtaṁ manye:* "I accept everything You say to be true." Arjuna also says that the personality of the Lord is very difficult to understand and that He cannot be known even by the great demigods. This means that the Lord cannot even be known by personalities greater than human beings. So how can a human being understand Śrī Kṛṣṇa without becoming His devotee?
+Now one may think that because Kr²³a was the friend of Arjuna, Arjuna was telling Him all this by way of flattery, but Arjuna, just to drive out this kind of doubt from the minds of the readers of *Bhagavad-gītā,* substantiates these praises in the next verse when he says that Kr²³a is accepted as the Supreme Personality of Godhead not only by himself but by authorities like the sage Nārada, Asita, Devala, Vyāsadeva and so on. These are great personalities who distribute the Vedic knowledge as it is accepted by all *ācāryas.* Therefore Arjuna tells Kr²³a that he accepts whatever He says to be completely perfect. *Sarvam etad ṛtaṁ manye:* "I accept everything You say to be true." Arjuna also says that the personality of the Lord is very difficult to understand and that He cannot be known even by the great demigods. This means that the Lord cannot even be known by personalities greater than human beings. So how can a human being understand Śrī Kr²³a without becoming His devotee?
 
-Therefore *Bhagavad-gītā* should be taken up in a spirit of devotion. One should not think that he is equal to Kṛṣṇa, nor should he think that Kṛṣṇa is an ordinary personality or even a very great personality. Lord Śrī Kṛṣṇa is the Supreme Personality of Godhead, at least theoretically, according to the statements of *Bhagavad-gītā* or the statements of Arjuna, the person who is trying to understand the *Bhagavad-gītā.* We should therefore at least theoretically accept Śrī Kṛṣṇa as the Supreme Personality of Godhead, and with that submissive spirit we can understand the *Bhagavad-gītā.* Unless one reads the *Bhagavad-gītā* in a submissive spirit, it is very difficult to understand *Bhagavad-gītā* because it is a great mystery.
+Therefore *Bhagavad-gītā* should be taken up in a spirit of devotion. One should not think that he is equal to Kr²³a, nor should he think that Kr²³a is an ordinary personality or even a very great personality. Lord Śrī Kr²³a is the Supreme Personality of Godhead, at least theoretically, according to the statements of *Bhagavad-gītā* or the statements of Arjuna, the person who is trying to understand the *Bhagavad-gītā.* We should therefore at least theoretically accept Śrī Kr²³a as the Supreme Personality of Godhead, and with that submissive spirit we can understand the *Bhagavad-gītā.* Unless one reads the *Bhagavad-gītā* in a submissive spirit, it is very difficult to understand *Bhagavad-gītā* because it is a great mystery.
 
-Just what is the *Bhagavad-gītā?* The purpose of *Bhagavad-gītā* is to deliver mankind from the nescience of material existence. Every man is in difficulty in so many ways, as Arjuna also was in difficulty in having to fight the Battle of Kurukṣetra. Arjuna surrendered unto Śrī Kṛṣṇa, and consequently this *Bhagavad-gītā* was spoken. Not only Arjuna, but every one of us is full of anxieties because of this material existence. Our very existence is in the atmosphere of nonexistence. Actually we are not meant to be threatened by nonexistence. Our existence is eternal. But somehow or other we are put into *asat. Asat* refers to that which does not exist.
+Just what is the *Bhagavad-gītā?* The purpose of *Bhagavad-gītā* is to deliver mankind from the nescience of material existence. Every man is in difficulty in so many ways, as Arjuna also was in difficulty in having to fight the Battle of Kurukṣetra. Arjuna surrendered unto Śrī Kr²³a, and consequently this *Bhagavad-gītā* was spoken. Not only Arjuna, but every one of us is full of anxieties because of this material existence. Our very existence is in the atmosphere of nonexistence. Actually we are not meant to be threatened by nonexistence. Our existence is eternal. But somehow or other we are put into *asat. Asat* refers to that which does not exist.
 
 Out of so many human beings who are suffering, there are a few who are actually inquiring about their position, as to what they are, why they are put into this awkward position and so on. Unless one is awakened to this position of questioning his suffering, unless he realizes that he doesn't want suffering but rather wants to make a solution to all sufferings, then one is not to be considered a perfect human being. Humanity begins when this sort of inquiry is awakened in one's mind. In the *Brahma-sūtra* this inquiry is called "*brahma-jijñāsā.*" Every activity of the human being is to be considered a failure unless he inquires about the nature of the Absolute. Therefore those who begin to question why they are suffering or where they came from and where they shall go after death are proper students for understanding *Bhagavad-gītā.* The sincere student should also have a firm respect for the Supreme Personality of Godhead. Such a student was Arjuna.
 
-Lord Kṛṣṇa descends specifically to reestablish the real purpose of life when man forgets that purpose. Even then, out of many, many human beings who awaken, there may be one who actually enters the spirit of understanding his position, and for him this *Bhagavad-gītā* is spoken. Actually we are all followed by the tiger of nescience, but the Lord is very merciful upon living entities, especially human beings. To this end He spoke the *Bhagavad-gītā,* making His friend Arjuna His student.
+Lord Kr²³a descends specifically to reestablish the real purpose of life when man forgets that purpose. Even then, out of many, many human beings who awaken, there may be one who actually enters the spirit of understanding his position, and for him this *Bhagavad-gītā* is spoken. Actually we are all followed by the tiger of nescience, but the Lord is very merciful upon living entities, especially human beings. To this end He spoke the *Bhagavad-gītā,* making His friend Arjuna His student.
 
-Being an associate of Lord Kṛṣṇa, Arjuna was above all ignorance, but Arjuna was put into ignorance on the Battlefield of Kurukṣetra just to question Lord Kṛṣṇa about the problems of life so that the Lord could explain them for the benefit of future generations of human beings and chalk out the plan of life. Then man could act accordingly and perfect the mission of human life.
+Being an associate of Lord Kr²³a, Arjuna was above all ignorance, but Arjuna was put into ignorance on the Battlefield of Kurukṣetra just to question Lord Kr²³a about the problems of life so that the Lord could explain them for the benefit of future generations of human beings and chalk out the plan of life. Then man could act accordingly and perfect the mission of human life.
 
 The subject of the *Bhagavad-gītā* entails the comprehension of five basic truths. First of all, the science of God is explained and then the constitutional position of the living entities, *jīvas.* There is *īśvara,* which means controller, and there are *jīvas,* the living entities which are controlled. If a living entity says that he is not controlled but that he is free, then he is insane. The living being is controlled in every respect, at least in his conditioned life. So in the *Bhagavad-gītā* the subject matter deals with the *īśvara,* the supreme controller, and the *jīvas,* the controlled living entities. *Prakṛti* (material nature) and time (the duration of existence of the whole universe or the manifestation of material nature) and *karma* (activity) are also discussed. The cosmic manifestation is full of different activities. All living entities are engaged in different activities. From *Bhagavad-gītā* we must learn what God is, what the living entities are, what *prakrti* is, what the cosmic manifestation is and how it is controlled by time, and what the activities of the living entities are.
 
-Out of these five basic subject matters in *Bhagavad-gītā* it is established that the Supreme Godhead, or Kṛṣṇa, or Brahman, or supreme controller, or Paramātmā—you may use whatever name you like—is the greatest of all. The living beings are in quality like the supreme controller. For instance, the Lord has control over the universal affairs, over material nature, etc., as will be explained in the later chapters of *Bhagavad-gītā.* Material nature is not independent. She is acting under the directions of the Supreme Lord. As Lord Kṛṣṇa says, "*Prakṛti* is working under My direction." When we see wonderful things happening in the cosmic nature, we should know that behind this cosmic manifestation there is a controller. Nothing could be manifested without being controlled. It is childish not to consider the controller. For instance, a child may think that an automobile is quite wonderful to be able to run without a horse or other animal pulling it, but a sane man knows the nature of the automobile's engineering arrangement. He always knows that behind the machinery there is a man, a driver. Similarly, the Supreme Lord is a driver under whose direction everything is working. Now the *jīvas,* or the living entities, have been accepted by the Lord, as we will note in the later chapters, as His parts and parcels. A particle of gold is also gold, a drop of water from the ocean is also salty, and similarly, we the living entities, being part and parcel of the supreme controller, *īsvara,* or Bhagavān, Lord Śrī Kṛṣṇa, have all the qualities of the Supreme Lord in minute quantity because we are minute *īśvaras,* subordinate *īśvaras.* We are trying to control nature, as presently we are trying to control space or planets, and this tendency to control is there because it is in Kṛṣṇa. But although we have a tendency to lord it over material nature, we should know that we are not the supreme controller. This is explained in *Bhagavad-gītā.*
+Out of these five basic subject matters in *Bhagavad-gītā* it is established that the Supreme Godhead, or Kr²³a, or Brahman, or supreme controller, or Paramātmā—you may use whatever name you like—is the greatest of all. The living beings are in quality like the supreme controller. For instance, the Lord has control over the universal affairs, over material nature, etc., as will be explained in the later chapters of *Bhagavad-gītā.* Material nature is not independent. She is acting under the directions of the Supreme Lord. As Lord Kr²³a says, "*Prakṛti* is working under My direction." When we see wonderful things happening in the cosmic nature, we should know that behind this cosmic manifestation there is a controller. Nothing could be manifested without being controlled. It is childish not to consider the controller. For instance, a child may think that an automobile is quite wonderful to be able to run without a horse or other animal pulling it, but a sane man knows the nature of the automobile's engineering arrangement. He always knows that behind the machinery there is a man, a driver. Similarly, the Supreme Lord is a driver under whose direction everything is working. Now the *jīvas,* or the living entities, have been accepted by the Lord, as we will note in the later chapters, as His parts and parcels. A particle of gold is also gold, a drop of water from the ocean is also salty, and similarly, we the living entities, being part and parcel of the supreme controller, *īsvara,* or Bhagavān, Lord Śrī Kr²³a, have all the qualities of the Supreme Lord in minute quantity because we are minute *īśvaras,* subordinate *īśvaras.* We are trying to control nature, as presently we are trying to control space or planets, and this tendency to control is there because it is in Kra. But although we have a tendency to lord it over material nature, we should know that we are not the supreme controller. This is explained in *Bhagavad-gītā.*
 
 What is material nature? This is also explained in *Gītā* as inferior *prakṛti,* inferior nature. The living entity is explained as the superior *prakṛti. Prakṛti* is always under control, whether inferior or superior. *Prakṛti* is female, and she is controlled by the Lord just as the activities of a wife are controlled by the husband. *Prakṛti* is always subordinate, predominated by the Lord, who is the predominator. The living entities and material nature are both predominated, controlled by the Supreme Lord. According to the *Gītā,* the living entities, although parts and parcels of the Supreme Lord, are to be considered *prakṛti.* This is clearly mentioned in the Seventh Chapter, fifth verse of *Bhagavad-gītā:* "*Apareyam itas tv anyām.*" "This *prakṛti* is My lower nature." "*Prakṛtiṁ viddhi me parām jīva-bhūtāṁ mahā-bāho yayedaṁ dhāryate jagat.*" And beyond this there is another *prakṛti: jīva-bhūtām,* the living entity.
 
@@ -160,23 +160,23 @@ The position of *īsvara* is that of supreme consciousness. The *jīvas,* or the
 
 The distinction between the *jīva* and the *īśvara* will be explained in the Thirteenth Chapter of *Bhagavad-gītā.* The Lord is *kṣetra-jñaḥ,* conscious, as is the living being, but the living being is conscious of his particular body, whereas the Lord is conscious of all bodies. Because He lives in the heart of every living being, He is conscious of the psychic movements of the particular *jīvas.* We should not forget this. It is also explained that the *Paramātmā,* the Supreme Personality of Godhead, is living in everyone's heart as *īśvara,* as the controller, and that He is giving directions for the living entity to act as he desires. The living entity forgets what to do. First of all he makes a determination to act in a certain way, and then he is entangled in the acts and reactions of his own *karma.* After giving up one type of body, he enters another type of body, as we put on and take off old clothes. As the soul thus migrates, he suffers the actions and reactions of his past activities. These activities can be changed when the living being is in the mode of goodness, in sanity, and understands what sort of activities he should adopt. If he does so, then all the actions and reactions of his past activities can be changed. Consequently, *karma* is not eternal. Therefore we stated that of the five items (*īśvara, jīva, prakṛti,* time and *karma*) four are eternal, whereas *karma* is not eternal.
 
-The supreme conscious *īśvara* is similar to the living entity in this way: both the consciousness of the Lord and that of the living entity are transcendental. It is not that consciousness is generated by the association of matter. That is a mistaken idea. The theory that consciousness develops under certain circumstances of material combination is not accepted in the *Bhagavad-gītā.* Consciousness may be pervertedly reflected by the covering of material circumstances, just as light reflected through colored glass may appear to be a certain color, but the consciousness of the Lord is not materially affected. Lord Kṛṣṇa says, "*mayādhyakṣeṇa prakṛtiḥ.*" When He descends into the material universe, His consciousness is not materially affected. If He were so affected, He would be unfit to speak on transcendental matters as He does in the *Bhagavad-gītā.* One cannot say anything about the transcendental world without being free from materially contaminated consciousness. So the Lord is not materially contaminated. Our consciousness, at the present moment, however, is materially contaminated. The *Bhagavad-gītā* teaches that we have to purify this materially contaminated consciousness. In pure consciousness, our actions will be dovetailed to the will of *īśvara,* and that will make us happy. It is not that we have to cease all activities. Rather, our activities are to be purified, and purified activities are called *bhakti.* Activities in *bhakti* appear to be like ordinary activities, but they are not contaminated. An ignorant person may see that a devotee is acting or working like an ordinary man, but such a person with a poor fund of knowledge does not know that the activities of the devotee or of the Lord are not contaminated by impure consciousness or matter. They are transcendental to the three modes of nature. We should know, however, that at this point our consciousness is contaminated.
+The supreme conscious *īśvara* is similar to the living entity in this way: both the consciousness of the Lord and that of the living entity are transcendental. It is not that consciousness is generated by the association of matter. That is a mistaken idea. The theory that consciousness develops under certain circumstances of material combination is not accepted in the *Bhagavad-gītā.* Consciousness may be pervertedly reflected by the covering of material circumstances, just as light reflected through colored glass may appear to be a certain color, but the consciousness of the Lord is not materially affected. Lord Kr²³a says, "*mayādhyakṣeṇa prakṛtiḥ.*" When He descends into the material universe, His consciousness is not materially affected. If He were so affected, He would be unfit to speak on transcendental matters as He does in the *Bhagavad-gītā.* One cannot say anything about the transcendental world without being free from materially contaminated consciousness. So the Lord is not materially contaminated. Our consciousness, at the present moment, however, is materially contaminated. The *Bhagavad-gītā* teaches that we have to purify this materially contaminated consciousness. In pure consciousness, our actions will be dovetailed to the will of *īśvara,* and that will make us happy. It is not that we have to cease all activities. Rather, our activities are to be purified, and purified activities are called *bhakti.* Activities in *bhakti* appear to be like ordinary activities, but they are not contaminated. An ignorant person may see that a devotee is acting or working like an ordinary man, but such a person with a poor fund of knowledge does not know that the activities of the devotee or of the Lord are not contaminated by impure consciousness or matter. They are transcendental to the three modes of nature. We should know, however, that at this point our consciousness is contaminated.
 
-When we are materially contaminated, we are called conditioned. False consciousness is exhibited under the impression that I am a product of material nature. This is called false ego. One who is absorbed in the thought of bodily conceptions cannot understand his situation. *Bhagavad-gītā* was spoken to liberate one from the bodily conception of life, and Arjuna put himself in this position in order to receive this information from the Lord. One must become free from the bodily conception of life; that is the preliminary activity for the transcendentalist. One who wants to become free, who wants to become liberated, must first of all learn that he is not this material body. *Mukti* or liberation means freedom from material consciousness. In the *Śrīmad-Bhāgavatam* also the definition of liberation is given: *Mukti* means liberation from the contaminated consciousness of this material world and situation in pure consciousness. All the instructions of *Bhagavad-gītā* are intended to awaken this pure consciousness, and therefore we find at the last stage of the *Gītā's* instructions that Kṛṣṇa is asking Arjuna whether he is now in purified consciousness. Purified consciousness means acting in accordance with the instructions of the Lord. This is the whole sum and substance of purified consciousness. Consciousness is already there because we are part and parcel of the Lord, but for us there is the affinity of being affected by the inferior modes. But the Lord, being the Supreme, is never affected. That is the difference between the Supreme Lord and the conditioned souls.
+When we are materially contaminated, we are called conditioned. False consciousness is exhibited under the impression that I am a product of material nature. This is called false ego. One who is absorbed in the thought of bodily conceptions cannot understand his situation. *Bhagavad-gītā* was spoken to liberate one from the bodily conception of life, and Arjuna put himself in this position in order to receive this information from the Lord. One must become free from the bodily conception of life; that is the preliminary activity for the transcendentalist. One who wants to become free, who wants to become liberated, must first of all learn that he is not this material body. *Mukti* or liberation means freedom from material consciousness. In the *Śrīmad-Bhāgavatam* also the definition of liberation is given: *Mukti* means liberation from the contaminated consciousness of this material world and situation in pure consciousness. All the instructions of *Bhagavad-gītā* are intended to awaken this pure consciousness, and therefore we find at the last stage of the *Gītā's* instructions that Kr²³a is asking Arjuna whether he is now in purified consciousness. Purified consciousness means acting in accordance with the instructions of the Lord. This is the whole sum and substance of purified consciousness. Consciousness is already there because we are part and parcel of the Lord, but for us there is the affinity of being affected by the inferior modes. But the Lord, being the Supreme, is never affected. That is the difference between the Supreme Lord and the conditioned souls.
 
 What is this consciousness? This consciousness is "I am." Then what am I? In contaminated consciousness "I am" means "I am the lord of all I survey. I am the enjoyer." The world revolves because every living being thinks that he is the lord and creator of the material world. Material consciousness has two psychic divisions. One is that I am the creator, and the other is that I am the enjoyer. But actually the Supreme Lord is both the creator and the enjoyer, and the living entity, being part and parcel of the Supreme Lord, is neither the creator nor the enjoyer, but a cooperator. He is the created and the enjoyed. For instance, a part of a machine cooperates with the whole machine; a part of the body cooperates with the whole body. The hands, feet, eyes, legs and so on are all parts of the body, but they are not actually the enjoyers. The stomach is the enjoyer. The legs move, the hands supply food, the teeth chew and all parts of the body are engaged in satisfying the stomach because the stomach is the principal factor that nourishes the body's organization. Therefore everything is given to the stomach. One nourishes the tree by watering its root, and one nourishes the body by feeding the stomach, for if the body is to be kept in a healthy state, then the parts of the body must cooperate to feed the stomach. Similarly, the Supreme Lord is the enjoyer and the creator, and we, as subordinate living beings, are meant to cooperate to satisfy Him. This cooperation will actually help us, just as food taken by the stomach will help all other parts of the body. If the fingers of the hand think that they should take the food themselves instead of giving it to the stomach, then they will be frustrated. The central figure of creation and of enjoyment is the Supreme Lord, and the living entities are cooperators. By cooperation they enjoy. The relation is also like that of the master and the servant. If the master is fully satisfied, then the servant is satisfied. Similarly, the Supreme Lord should be satisfied, although the tendency to become the creator and the tendency to enjoy the material world are there also in the living entities because these tendencies are there in the Supreme Lord who has created the manifested cosmic world.
 
-We shall find, therefore, in this *Bhagavad-gītā* that the complete whole is comprised of the supreme controller, the controlled living entities, the cosmic manifestation, eternal time, and *karma,* or activities, and all of these are explained in this text. All of these taken completely form the complete whole, and the complete whole is called the Supreme Absolute Truth. The complete whole and the complete Absolute Truth are the Supreme Personality of Godhead, Śrī Kṛṣṇa. All manifestations are due to His different energies. He *is* the complete whole.
+We shall find, therefore, in this *Bhagavad-gītā* that the complete whole is comprised of the supreme controller, the controlled living entities, the cosmic manifestation, eternal time, and *karma,* or activities, and all of these are explained in this text. All of these taken completely form the complete whole, and the complete whole is called the Supreme Absolute Truth. The complete whole and the complete Absolute Truth are the Supreme Personality of Godhead, Śrī Kra. All manifestations are due to His different energies. He *is* the complete whole.
 
-It is also explained in the *Gītā* that impersonal Brahman is also subordinate to the complete. Brahman is more explicitly explained in the *Brahma-sūtra* to be like the rays of the sunshine. The impersonal Brahman is the shining rays of the Supreme Personality of Godhead. Impersonal Brahman is incomplete realization of the absolute whole, and so also is the conception of Paramātmā in the Twelfth Chapter. There it shall be seen that the Supreme Personality of Godhead, Puruṣottama, is above both impersonal Brahman and the partial realization of Paramātmā. The Supreme Personality of Godhead is called *sac-cid-ānanda-vigraha.* The *Brahma-saṁhitā* begins in this way: *īśvaraḥ paramaḥ kṛṣṇaḥ sac-cid-ānanda-vigrahaḥ/anādir ādir govindaḥ sarva-kāraṇa-kāraṇam.* "Kṛṣṇa is the cause of all causes. He is the primal cause, and He is the very form of eternal being, knowledge and bliss." Impersonal Brahman realization is the realization of His *sat* (being) feature. Paramātmā realization is the realization of the *cit* (eternal knowledge) feature. But realization of the Personality of Godhead, Kṛṣṇa, is realization of all the transcendental features: *sat, cit* and *ānanda* (being, knowledge, bliss) in complete *vigraha* (form).
+It is also explained in the *Gītā* that impersonal Brahman is also subordinate to the complete. Brahman is more explicitly explained in the *Brahma-sūtra* to be like the rays of the sunshine. The impersonal Brahman is the shining rays of the Supreme Personality of Godhead. Impersonal Brahman is incomplete realization of the absolute whole, and so also is the conception of Paramātmā in the Twelfth Chapter. There it shall be seen that the Supreme Personality of Godhead, Puruṣottama, is above both impersonal Brahman and the partial realization of Paramātmā. The Supreme Personality of Godhead is called *sac-cid-ānanda-vigraha.* The *Brahma-saṁhitā* begins in this way: *īśvaraḥ paramaḥ Kr²³aḥ sac-cid-ānanda-vigrahaḥ/anādir ādir govindaḥ sarva-kāraṇa-kāraṇam.* "Kr²³a is the cause of all causes. He is the primal cause, and He is the very form of eternal being, knowledge and bliss." Impersonal Brahman realization is the realization of His *sat* (being) feature. Paramātmā realization is the realization of the *cit* (eternal knowledge) feature. But realization of the Personality of Godhead, Kr²³a, is realization of all the transcendental features: *sat, cit* and *ānanda* (being, knowledge, bliss) in complete *vigraha* (form).
 
 People with less intelligence consider the Supreme Truth to be impersonal, but He is a transcendental person, and this is confirmed in all Vedic literatures. *Nityo nityānām cetanaś cetanānām. As* we are all individual living beings and have our individuality, the Supreme Absolute Truth is also, in the ultimate issue, a person, and realization of the Personality of Godhead is realization of all of the transcendental features. The complete whole is not formless. If He is formless, or if He is less than any other thing, then He cannot be the complete whole. The complete whole must have everything within our experience and beyond our experience, otherwise it cannot be complete. The complete whole, Personality of Godhead, has immense potencies.
 
-How Kṛṣṇa is acting in different potencies is also explained in *Bhagavad-gītā.* This phenomenal world or material world in which we are placed is also complete in itself because the twenty-four elements of which this material universe is a temporary manifestation, according to Sāṅkhya philosophy, are completely adjusted to produce complete resources which are necessary for the maintenance and subsistence of this universe. There is nothing extraneous; nor is there anything needed. This manifestation has its own time fixed by the energy of the supreme whole, and when its time is complete, these temporary manifestations will be annihilated by the complete arrangement of the complete. There is complete facility for the small complete units, namely the living entities, to realize the complete, and all sorts of incompleteness are experienced due to incomplete knowledge of the complete. So *Bhagavad-gītā* contains the complete knowledge of Vedic wisdom.
+How Kr²³a is acting in different potencies is also explained in *Bhagavad-gītā.* This phenomenal world or material world in which we are placed is also complete in itself because the twenty-four elements of which this material universe is a temporary manifestation, according to Sāṅkhya philosophy, are completely adjusted to produce complete resources which are necessary for the maintenance and subsistence of this universe. There is nothing extraneous; nor is there anything needed. This manifestation has its own time fixed by the energy of the supreme whole, and when its time is complete, these temporary manifestations will be annihilated by the complete arrangement of the complete. There is complete facility for the small complete units, namely the living entities, to realize the complete, and all sorts of incompleteness are experienced due to incomplete knowledge of the complete. So *Bhagavad-gītā* contains the complete knowledge of Vedic wisdom.
 
 All Vedic knowledge is infallible, and Hindus accept Vedic knowledge to be complete and infallible. For example, cow dung is the stool of an animal, and according to *smṛti* or Vedic injunction, if one touches the stool of an animal he has to take a bath to purify himself. But in the Vedic scriptures cow dung is considered to be a purifying agent. One might consider this to be contradictory, but it is accepted because it is Vedic injunction, and indeed by accepting this, one will not commit a mistake; subsequently it has been proved by modern science that cow dung contains all antiseptic properties. So Vedic knowledge is complete because it is above all doubts and mistakes, and *Bhagavad-gītā* is the essence of all Vedic knowledge.
 
-Vedic knowledge is not a question of research. Our research work is imperfect because we are researching things with imperfect senses. We have to accept perfect knowledge which comes down, as is stated in *Bhagavad-gītā,* by the *paramparā* disciplic succession. We have to receive knowledge from the proper source in disciplic succession beginning with the supreme spiritual master, the Lord Himself, and handed down to a succession of spiritual masters. Arjuna, the student who took lessons from Lord Śrī Kṛṣṇa, accepts everything that He says without contradicting Him. One is not allowed to accept one portion of *Bhagavad-gītā* and not another. No. We must accept *Bhagavad-gītā* without interpretation, without deletion and without our own whimsical participation in the matter. The *Gītā* should be taken as the most perfect presentation of Vedic knowledge. Vedic knowledge is received from transcendental sources, and the first words were spoken by the Lord Himself. The words spoken by the Lord are different from words spoken by a person of the mundane world who is infected with four defects. A mundaner 1) is sure to commit mistakes, 2) is invariably illusioned, 3) has the tendency to cheat others and 4) is limited by imperfect senses. With these four imperfections, one cannot deliver perfect information of all-pervading knowledge.
+Vedic knowledge is not a question of research. Our research work is imperfect because we are researching things with imperfect senses. We have to accept perfect knowledge which comes down, as is stated in *Bhagavad-gītā,* by the *paramparā* disciplic succession. We have to receive knowledge from the proper source in disciplic succession beginning with the supreme spiritual master, the Lord Himself, and handed down to a succession of spiritual masters. Arjuna, the student who took lessons from Lord Śrī Kr²³a, accepts everything that He says without contradicting Him. One is not allowed to accept one portion of *Bhagavad-gītā* and not another. No. We must accept *Bhagavad-gītā* without interpretation, without deletion and without our own whimsical participation in the matter. The *Gītā* should be taken as the most perfect presentation of Vedic knowledge. Vedic knowledge is received from transcendental sources, and the first words were spoken by the Lord Himself. The words spoken by the Lord are different from words spoken by a person of the mundane world who is infected with four defects. A mundaner 1) is sure to commit mistakes, 2) is invariably illusioned, 3) has the tendency to cheat others and 4) is limited by imperfect senses. With these four imperfections, one cannot deliver perfect information of all-pervading knowledge.
 
 Vedic knowledge is not imparted by such defective living entities. It was imparted unto the heart of Brahmā, the first created living being, and Brahmā in his turn disseminated this knowledge to his sons and disciples, as he originally received it from the Lord. The Lord is *pūrṇam,* all-perfect, and there is no possibility of His becoming subjected to the laws of material nature. One should therefore be intelligent enough to know that the Lord is the only proprietor of everything in the universe and that He is the original creator, the creator of Brahmā. In the Eleventh Chapter the Lord is addressed as *prapitāmaha* because Brahmā is addressed as *pitāmaha,* the grandfather, and He is the creator of the grandfather. So no one should claim to be the proprietor of anything; one should accept only things which are set aside for him by the Lord as his quota for his maintenance.
 
@@ -186,7 +186,7 @@ In this world man is not meant to toil like hogs. He must be intelligent to real
 
 That destination is called the *sanātana* sky, the eternal spiritual sky. In this material world we find that everything is temporary. It comes into being, stays for some time, produces some by-products, dwindles and then vanishes. That is the law of the material world, whether we use as an example this body, or a piece of fruit or anything. But beyond this temporary world there is another world of which we have information. This world consists of another nature which is *sanātana,* eternal. *Jīva* is also described as *sanātana,* eternal, and the Lord is also described as *sanātana* in the Eleventh Chapter. We have an intimate relationship with the Lord, and because we are all qualitatively one—the *sanātana-dhāma,* or sky, the *sanātana* Supreme Personality and the *sanātana* living entities—the whole purpose of *Bhagavad-gītā* is to revive our *sanātana* occupation, or *sanātana-dharma,* which is the eternal occupation of the living entity. We are temporarily engaged in different activities, but all of these activities can be purified when we give up all these temporary activities and take up the activities which are prescribed by the Supreme Lord. That is called our pure life.
 
-The Supreme Lord and His transcendental abode are both *sanātana,* as are the living entities, and the combined association of the Supreme Lord and the living entities in the *sanātana* abode is the perfection of human life. The Lord is very kind to the living entities because they are His sons. Lord Kṛṣṇa declares in *Bhagavad-gītā,* "*sarva-yoniṣu...ahaṁ bīja-pradaḥ pitā.*" "I am the father of all." Of course there are all types of living entities according to their various *karmas,* but here the Lord claims that He is the father of all of them. Therefore the Lord descends to reclaim all of these fallen, conditioned souls to call them back to the *sanātana* eternal sky so that the *sanātana* living entities may regain their eternal *sanātana* positions in eternal association with the Lord. The Lord comes Himself in different incarnations, or He sends His confidential servants as sons or His associates or *ācāryas* to reclaim the conditioned souls.
+The Supreme Lord and His transcendental abode are both *sanātana,* as are the living entities, and the combined association of the Supreme Lord and the living entities in the *sanātana* abode is the perfection of human life. The Lord is very kind to the living entities because they are His sons. Lord Kr²³a declares in *Bhagavad-gītā,* "*sarva-yoniṣu...ahaṁ bīja-pradaḥ pitā.*" "I am the father of all." Of course there are all types of living entities according to their various *karmas,* but here the Lord claims that He is the father of all of them. Therefore the Lord descends to reclaim all of these fallen, conditioned souls to call them back to the *sanātana* eternal sky so that the *sanātana* living entities may regain their eternal *sanātana* positions in eternal association with the Lord. The Lord comes Himself in different incarnations, or He sends His confidential servants as sons or His associates or *ācāryas* to reclaim the conditioned souls.
 
 Therefore, *sanātana-dharma* does not refer to any sectarian process of religion. It is the eternal function of the eternal living entities in relationship with the eternal Supreme Lord. *Sanātana-dharma* refers, as stated previously, to the eternal occupation of the living entity. Rāmānujācārya has explained the word *sanātana* as "that which has neither beginning nor end," so when we speak of *sanātana-dharma,* we must take it for granted on the authority of Śrī Rāmānujācārya that it has neither beginning nor end.
 
@@ -205,11 +205,11 @@ In the *Bhagavad-gītā,* worship of different demigods or rendering service to 
 > kāmais tais tair hṛt-ajñānāḥ prapadyante ’nya-devatāḥ
 > taṁ taṁ niyamam āsthāya prakṛtyā niyatāḥ svayā
 
-"Those whose minds are distorted by material desires surrender unto demigods and follow the particular rules and regulations of worship according to their own natures." [[bg/7/20|(Bg. 7.20)]] Here it is plainly said that those who are directed by lust worship the demigods and not the Supreme Lord Kṛṣṇa. When we mention the name Kṛṣṇa, we do not refer to any sectarian name. Kṛṣṇa means the highest pleasure, and it is confirmed that the Supreme Lord is the reservoir or storehouse of all pleasure. We are all hankering after pleasure. *Ānandamayo 'bhyāsāt.* (Vs. 1.1.12) The living entities, like the Lord, are full of consciousness, and they are after happiness. The Lord is perpetually happy, and if the living entities associate with the Lord, cooperate with Him and take part in His association, then they also become happy.
+"Those whose minds are distorted by material desires surrender unto demigods and follow the particular rules and regulations of worship according to their own natures." [[bg/7/20|(Bg. 7.20)]] Here it is plainly said that those who are directed by lust worship the demigods and not the Supreme Lord Kra. When we mention the name Kr²³a, we do not refer to any sectarian name. Kr²³a means the highest pleasure, and it is confirmed that the Supreme Lord is the reservoir or storehouse of all pleasure. We are all hankering after pleasure. *Ānandamayo 'bhyāsāt.* (Vs. 1.1.12) The living entities, like the Lord, are full of consciousness, and they are after happiness. The Lord is perpetually happy, and if the living entities associate with the Lord, cooperate with Him and take part in His association, then they also become happy.
 
-The Lord descends to this mortal world to show His pastimes in Vṛndāvana, which are full of happiness. When Lord Śrī Kṛṣṇa was in Vṛndāvana, His activities with His cowherd boy friends, with His damsel friends, with the inhabitants of Vṛndāvana and with the cows were all full of happiness. The total population of Vṛndāvana knew nothing but Kṛṣṇa. But Lord Kṛṣṇa even discouraged His father Nanda Mahārāja from worshiping the demigod Indra because He wanted to establish the fact that people need not worship any demigod. They need only worship the Supreme Lord because their ultimate goal is to return to His abode.
+The Lord descends to this mortal world to show His pastimes in Vṛndāvana, which are full of happiness. When Lord Śrī Kr²³a was in Vṛndāvana, His activities with His cowherd boy friends, with His damsel friends, with the inhabitants of Vṛndāvana and with the cows were all full of happiness. The total population of Vṛndāvana knew nothing but Kra. But Lord Kr²³a even discouraged His father Nanda Mahārāja from worshiping the demigod Indra because He wanted to establish the fact that people need not worship any demigod. They need only worship the Supreme Lord because their ultimate goal is to return to His abode.
 
-The abode of Lord Śrī Kṛṣṇa is described in the *Bhagavad-gītā,* Fifteenth Chapter, sixth verse:
+The abode of Lord Śrī Kr²³a is described in the *Bhagavad-gītā,* Fifteenth Chapter, sixth verse:
 
 > na tad bhāsayate sūryo na śaśāṅko na pāvakaḥ
 > yad gatvā na nivartante tad dhāma paramaṁ mama
@@ -218,9 +218,9 @@ The abode of Lord Śrī Kṛṣṇa is described in the *Bhagavad-gītā,* Fifte
 
 This verse gives a description of that eternal sky. Of course we have a material conception of the sky, and we think of it in relationship to the sun, moon, stars and so on, but in this verse the Lord states that in the eternal sky there is no need for the sun nor for the moon nor fire of any kind because the spiritual sky is already illuminated by the *brahmajyoti,* the rays emanating from the Supreme Lord. We are trying with difficulty to reach other planets, but it is not difficult to understand the abode of the Supreme Lord. This abode is referred to as Goloka. In the *Brahma-saṁhitā* it is beautifully described: *Goloka eva nivasaty akhilātma-bhūtaḥ.* The Lord resides eternally in His abode Goloka, yet He can be approached from this world, and to this end the Lord comes to manifest His real form, *sac-cid-ānanda-vigraha.* When He manifests this form, there is no need for our imagining what He looks like. To discourage such imaginative speculation, He descends and exhibits Himself as He is, as Śyāmasundara. Unfortunately, the less intelligent deride Him because He comes as one of us and plays with us as a human being. But because of this we should not consider that the Lord is one of us. It is by His potency that He presents Himself in His real form before us and displays His pastimes, which are prototypes of those pastimes found in His abode.
 
-In the effulgent rays of the spiritual sky there are innumerable planets floating. The *brahmajyoti* emanates from the supreme abode, Kṛṣṇaloka, and the *ānandamaya-cinmaya* planets, which are not material, float in those rays. The Lord says, *na tad bhāsayate sūryo na śaśāṅko na pāvakaḥ yad gatvā na nivartante tad dhāma paramaṁ mama.* One who can approach that spiritual sky is not required to descend again to the material sky. In the material sky, even if we approach the highest planet (Brahmaloka), what to speak of the moon, we will find the same conditions of life, namely birth, death, disease and old age. No planet in the material universe is free from these four principles of material existence. Therefore the Lord says in *Bhagavad-gītā, ābrahma-bhuvanāl lokāḥ punar āvartino 'rjuna.* The living entities are traveling from one planet to another, not by mechanical arrangement but by a spiritual process. This is also mentioned: *yānti deva-vratā devān pitṝn yānti pitṛ-vratāḥ.* No mechanical arrangement is necessary if we want interplanetary travel. The *Gītā* instructs: *yānti deva-vratā devān.* The moon, the sun and higher planets are called *svargaloka.* There are three different statuses of planets: higher, middle and lower planetary systems. The earth belongs to the middle planetary system. *Bhagavad-gītā* informs us how to travel to the higher planetary systems (*devaloka*) with a very simple formula: *yānti deva-vratā devān.* One need only worship the particular demigod of that particular planet and in that way go to the moon, the sun or any of the higher planetary systems.
+In the effulgent rays of the spiritual sky there are innumerable planets floating. The *brahmajyoti* emanates from the supreme abode, Kr²³aloka, and the *ānandamaya-cinmaya* planets, which are not material, float in those rays. The Lord says, *na tad bhāsayate sūryo na śaśāṅko na pāvakaḥ yad gatvā na nivartante tad dhāma paramaṁ mama.* One who can approach that spiritual sky is not required to descend again to the material sky. In the material sky, even if we approach the highest planet (Brahmaloka), what to speak of the moon, we will find the same conditions of life, namely birth, death, disease and old age. No planet in the material universe is free from these four principles of material existence. Therefore the Lord says in *Bhagavad-gītā, ābrahma-bhuvanāl lokāḥ punar āvartino 'rjuna.* The living entities are traveling from one planet to another, not by mechanical arrangement but by a spiritual process. This is also mentioned: *yānti deva-vratā devān pitṝn yānti pitṛ-vratāḥ.* No mechanical arrangement is necessary if we want interplanetary travel. The *Gītā* instructs: *yānti deva-vratā devān.* The moon, the sun and higher planets are called *svargaloka.* There are three different statuses of planets: higher, middle and lower planetary systems. The earth belongs to the middle planetary system. *Bhagavad-gītā* informs us how to travel to the higher planetary systems (*devaloka*) with a very simple formula: *yānti deva-vratā devān.* One need only worship the particular demigod of that particular planet and in that way go to the moon, the sun or any of the higher planetary systems.
 
-Yet *Bhagavad-gītā* does not advise us to go to any of the planets in this material world because even if we go to Brahmaloka, the highest planet, through some sort of mechanical contrivance by maybe traveling for forty thousand years (and who would live that long?), we will still find the material inconveniences of birth, death, disease and old age. But one who wants to approach the supreme planet, Kṛṣṇaloka, or any of the other planets within the spiritual sky, will not meet with these material inconveniences. Amongst all of the planets in the spiritual sky there is one supreme planet called Goloka Vṛndāvana, which is the original planet in the abode of the original Personality of Godhead Śrī Kṛṣṇa. All of this information is given in *Bhagavad-gītā,* and we are given through its instruction information how to leave the material world and begin a truly blissful life in the spiritual sky.
+Yet *Bhagavad-gītā* does not advise us to go to any of the planets in this material world because even if we go to Brahmaloka, the highest planet, through some sort of mechanical contrivance by maybe traveling for forty thousand years (and who would live that long?), we will still find the material inconveniences of birth, death, disease and old age. But one who wants to approach the supreme planet, Kr²³aloka, or any of the other planets within the spiritual sky, will not meet with these material inconveniences. Amongst all of the planets in the spiritual sky there is one supreme planet called Goloka Vṛndāvana, which is the original planet in the abode of the original Personality of Godhead Śrī Kra. All of this information is given in *Bhagavad-gītā,* and we are given through its instruction information how to leave the material world and begin a truly blissful life in the spiritual sky.
 
 In the Fifteenth Chapter of the *Bhagavad-gītā,* the real picture of the material world is given. It is said there:
 
@@ -250,11 +250,11 @@ Next, one may raise the question of how one goes about approaching that abode of
 > anta-kāle ca mām eva smaran muktvā kalevaram
 > yaḥ prayāti sa mad-bhāvam yāti nāsty atra saṁśayaḥ
 
-"Anyone who quits his body, at the end of life, remembering Me, attains immediately to My nature; and there is no doubt of this." [[bg/8/5|(Bg. 8.5)]] One who thinks of Kṛṣṇa at the time of his death goes to Kṛṣṇa. One must remember the form of Kṛṣṇa; if he quits his body thinking of this form, he approaches the spiritual kingdom. *Mad-bhāvaṁ* refers to the supreme nature of the Supreme Being. The Supreme Being is *sac-cid-ānanda-vigraha*—eternal, full of knowledge and bliss. Our present body is not *sac-cid-ānanda.* It is *asat,* not *sat.* It is not eternal; it is perishable. It is not *cit,* full of knowledge, but it is full of ignorance. We have no knowledge of the spiritual kingdom, nor do we even have perfect knowledge of this material world where there are so many things unknown to us. The body is also *nirānanda;* instead of being full of bliss it is full of misery. All of the miseries we experience in the material world arise from the body, but one who leaves this body thinking of the Supreme Personality of Godhead at once attains a *sac-cid-ānanda* body, as is promised in this fifth verse of the Eighth Chapter where Lord Kṛṣṇa says, "He attains My nature."
+"Anyone who quits his body, at the end of life, remembering Me, attains immediately to My nature; and there is no doubt of this." [[bg/8/5|(Bg. 8.5)]] One who thinks of Kr²³a at the time of his death goes to Kra. One must remember the form of Kr²³a; if he quits his body thinking of this form, he approaches the spiritual kingdom. *Mad-bhāvaṁ* refers to the supreme nature of the Supreme Being. The Supreme Being is *sac-cid-ānanda-vigraha*—eternal, full of knowledge and bliss. Our present body is not *sac-cid-ānanda.* It is *asat,* not *sat.* It is not eternal; it is perishable. It is not *cit,* full of knowledge, but it is full of ignorance. We have no knowledge of the spiritual kingdom, nor do we even have perfect knowledge of this material world where there are so many things unknown to us. The body is also *nirānanda;* instead of being full of bliss it is full of misery. All of the miseries we experience in the material world arise from the body, but one who leaves this body thinking of the Supreme Personality of Godhead at once attains a *sac-cid-ānanda* body, as is promised in this fifth verse of the Eighth Chapter where Lord Kr²³a says, "He attains My nature."
 
 The process of quitting this body and getting another body in the material world is also organized. A man dies after it has been decided what form of body he will have in the next life. Higher authorities, not the living entity himself, make this decision. According to our activities in this life, we either rise or sink. This life is a preparation for the next life. If we can prepare, therefore, in this life to get promotion to the kingdom of God, then surely, after quitting this material body, we will attain a spiritual body just like the Lord.
 
-As explained before, there are different kinds of transcendentalists, the *brahmavādi paramātmāvādi* and the devotee, and, as mentioned, in the *brahmajyoti* (spiritual sky) there are innumerable spiritual planets. The number of these planets is far, far greater than all of the planets of this material world. This material world has been approximated as only one quarter of the creation. In this material segment there are millions and billions of universes with trillions of planets and suns, stars and moons. But this whole material creation is only a fragment of the total creation. Most of the creation is in the spiritual sky. One who desires to merge into the existence of the Supreme Brahman is at once transferred to the *brahmajyoti* of the Supreme Lord and thus attains the spiritual sky. The devotee, who wants to enjoy the association of the Lord, enters into the Vaikuṇṭha planets, which are innumerable, and the Supreme Lord by His plenary expansions as Nārāyaṇa with four hands and with different names like Pradyumna, Aniruddha, Govinda, etc., associates with him there. Therefore at the end of life the transcendentalists either think of the *brahmajyoti,* the Paramātmā or the Supreme Personality of Godhead Śrī Kṛṣṇa. In all cases they enter into the spiritual sky, but only the devotee, or he who is in personal touch with the Supreme Lord, enters into the Vaikuṇṭha planets. The Lord further adds that of this "there is no doubt." This must be believed firmly. We should not reject that which does not tally with our imagination; our attitude should be that of Arjuna: "I believe everything that You have said." Therefore when the Lord says that at the time of death whoever thinks of Him as Brahman or Paramātmā or as the Personality of Godhead certainly enters into the spiritual sky, there is no doubt about it. There is no question of disbelieving it.
+As explained before, there are different kinds of transcendentalists, the *brahmavādi paramātmāvādi* and the devotee, and, as mentioned, in the *brahmajyoti* (spiritual sky) there are innumerable spiritual planets. The number of these planets is far, far greater than all of the planets of this material world. This material world has been approximated as only one quarter of the creation. In this material segment there are millions and billions of universes with trillions of planets and suns, stars and moons. But this whole material creation is only a fragment of the total creation. Most of the creation is in the spiritual sky. One who desires to merge into the existence of the Supreme Brahman is at once transferred to the *brahmajyoti* of the Supreme Lord and thus attains the spiritual sky. The devotee, who wants to enjoy the association of the Lord, enters into the Vaikuṇṭha planets, which are innumerable, and the Supreme Lord by His plenary expansions as Nārāyaṇa with four hands and with different names like Pradyumna, Aniruddha, Govinda, etc., associates with him there. Therefore at the end of life the transcendentalists either think of the *brahmajyoti,* the Paramātmā or the Supreme Personality of Godhead Śrī Kra. In all cases they enter into the spiritual sky, but only the devotee, or he who is in personal touch with the Supreme Lord, enters into the Vaikuṇṭha planets. The Lord further adds that of this "there is no doubt." This must be believed firmly. We should not reject that which does not tally with our imagination; our attitude should be that of Arjuna: "I believe everything that You have said." Therefore when the Lord says that at the time of death whoever thinks of Him as Brahman or Paramātmā or as the Personality of Godhead certainly enters into the spiritual sky, there is no doubt about it. There is no question of disbelieving it.
 
 The information on how to think of the Supreme Being at the time of death is also given in the *Gītā:*
 
@@ -265,20 +265,20 @@ The information on how to think of the Supreme Being at the time of death is als
 
 In life we are accustomed to thinking either of the material or the spiritual energy. There are so many literatures which fill our thoughts with the material energy—newspapers, novels, etc. Our thinking, which is now absorbed in these literatures, must be transferred to the Vedic literatures. The great sages, therefore, have written so many Vedic literatures such as the *Purāṇas,* etc. The *Purāṇas* are not imaginative; they are historical records. In the *Caitanya-caritāmṛta* there is the following verse:
 
-> māyā mugdha jīver nāhi svataḥ kṛṣṇa-jñāna
-> jīvera kṛpāya kailā kṛṣṇa veda-purāṇa
+> māyā mugdha jīver nāhi svataḥ Kr²³a-jñāna
+> jīvera kṛpāya kailā Kr²³a veda-purāṇa
 > (Cc. Madhya 20.122)
 
-The forgetful living entities or conditioned souls have forgotten their relationship with the Supreme Lord, and they are engrossed in thinking of material activities. Just to transfer their thinking power to the spiritual sky, Kṛṣṇa has given a great number of Vedic literatures. First He divided the *Vedas* into four, then He explained them in the *Purāṇas,* and for less capable people He wrote the *Mahābhārata.* In the *Mahābhārata* there is given the *Bhagavad-gītā.* Then all Vedic literature is summarized in the *Vedānta-sūtra,* and for future guidance He gave a natural commentation on the *Vedānta-sutra,* called *Śrīmad-Bhāgavatam.* We must always engage our minds in reading these Vedic literatures. Just as materialists engage their minds in reading newspapers, magazines and so many materialistic literatures, we must transfer our reading to these literatures which are given to us by Vyāsadeva; in that way it will be possible for us to remember the Supreme Lord at the time of death. That is the only way suggested by the Lord, and He guarantees the result: "There is no doubt." [[bg/8/7|(Bg. 8.7)]]
+The forgetful living entities or conditioned souls have forgotten their relationship with the Supreme Lord, and they are engrossed in thinking of material activities. Just to transfer their thinking power to the spiritual sky, Kr²³a has given a great number of Vedic literatures. First He divided the *Vedas* into four, then He explained them in the *Purāṇas,* and for less capable people He wrote the *Mahābhārata.* In the *Mahābhārata* there is given the *Bhagavad-gītā.* Then all Vedic literature is summarized in the *Vedānta-sūtra,* and for future guidance He gave a natural commentation on the *Vedānta-sutra,* called *Śrīmad-Bhāgavatam.* We must always engage our minds in reading these Vedic literatures. Just as materialists engage their minds in reading newspapers, magazines and so many materialistic literatures, we must transfer our reading to these literatures which are given to us by Vyāsadeva; in that way it will be possible for us to remember the Supreme Lord at the time of death. That is the only way suggested by the Lord, and He guarantees the result: "There is no doubt." [[bg/8/7|(Bg. 8.7)]]
 
 > tasmāt sarveṣu kāleṣu mām anusmara yudhya ca
 > mayy arpita-mano-buddhir mām evaiṣyasy asaṁśayaḥ
 
 "Therefore, Arjuna, you should always think of Me, and at the same time you should continue your prescribed duty and fight. With your mind and activities always fixed on Me, and everything engaged in Me, you will attain to Me without any doubt."
 
-He does not advise Arjuna to simply remember Him and give up his occupation. No, the Lord never suggests anything impractical. In this material world, in order to maintain the body one has to work. Human society is divided, according to work, into four divisions of social order—*brāhmaṇa, kṣatriya, vaiśya, śūdra.* The *brāhmaṇa* class or intelligent class is working in one way, the *kṣatriya* or administrative class is working in another way, and the mercantile class and the laborers are all tending to their specific duties. In the human society, whether one is a laborer, merchant, warrior, administrator, or farmer, or even if one belongs to the highest class and is a literary man, a scientist or a theologian, he has to work in order to maintain his existence. The Lord therefore tells Arjuna that he need not give up his occupation, but while he is engaged in his occupation he should remember Kṛṣṇa. If he doesn't practice remembering Kṛṣṇa while he is struggling for existence, then it will not be possible for him to remember Kṛṣṇa at the time of death. Lord Caitanya also advises this. He says that one should practice remembering the Lord by chanting the names of the Lord always. The names of the Lord and the Lord are nondifferent. So Lord Kṛṣṇa's instruction to Arjuna to "remember Me" and Lord Caitanya's injunction to always "chant the names of Lord Kṛṣṇa" are the same instruction. There is no difference, because Kṛṣṇa and Kṛṣṇa's name are nondifferent. In the absolute status there is no difference between reference and referent. Therefore we have to practice remembering the Lord always, twenty-four hours a day, by chanting His names and molding our life's activities in such a way that we can remember Him always.
+He does not advise Arjuna to simply remember Him and give up his occupation. No, the Lord never suggests anything impractical. In this material world, in order to maintain the body one has to work. Human society is divided, according to work, into four divisions of social order—*brāhmaṇa, kṣatriya, vaiśya, śūdra.* The *brāhmaṇa* class or intelligent class is working in one way, the *kṣatriya* or administrative class is working in another way, and the mercantile class and the laborers are all tending to their specific duties. In the human society, whether one is a laborer, merchant, warrior, administrator, or farmer, or even if one belongs to the highest class and is a literary man, a scientist or a theologian, he has to work in order to maintain his existence. The Lord therefore tells Arjuna that he need not give up his occupation, but while he is engaged in his occupation he should remember Kra. If he doesn't practice remembering Kr²³a while he is struggling for existence, then it will not be possible for him to remember Kr²³a at the time of death. Lord Caitanya also advises this. He says that one should practice remembering the Lord by chanting the names of the Lord always. The names of the Lord and the Lord are nondifferent. So Lord Kr²³a's instruction to Arjuna to "remember Me" and Lord Caitanya's injunction to always "chant the names of Lord Kr²³a" are the same instruction. There is no difference, because Kr²³a and Kr²³a's name are nondifferent. In the absolute status there is no difference between reference and referent. Therefore we have to practice remembering the Lord always, twenty-four hours a day, by chanting His names and molding our life's activities in such a way that we can remember Him always.
 
-How is this possible? The *ācāryas* give the following example. If a married woman is attached to another man, or if a man has an attachment for a woman other than his wife, then the attachment is to be considered very strong. One with such an attachment is always thinking of the loved one. The wife who is thinking of her lover is always thinking of meeting him, even while she is carrying out her household chores. In fact, she carries out her household work even more carefully so her husband will not suspect her attachment. Similarly, we should always remember the supreme lover, Śrī Kṛṣṇa, and at the same time perform our material duties very nicely. A strong sense of love is required here. If we have a strong sense of love for the Supreme Lord, then we can discharge our duty and at the same time remember Him. But we have to develop that sense of love. Arjuna, for instance, was always thinking of Kṛṣṇa; he was the constant companion of Kṛṣṇa, and at the same time he was a warrior. Kṛṣṇa did not advise him to give up fighting and go to the forest to meditate. When Lord Kṛṣṇa delineates the *yoga* system to Arjuna, Arjuna says that the practice of this system is not possible for him.
+How is this possible? The *ācāryas* give the following example. If a married woman is attached to another man, or if a man has an attachment for a woman other than his wife, then the attachment is to be considered very strong. One with such an attachment is always thinking of the loved one. The wife who is thinking of her lover is always thinking of meeting him, even while she is carrying out her household chores. In fact, she carries out her household work even more carefully so her husband will not suspect her attachment. Similarly, we should always remember the supreme lover, Śrī Kr²³a, and at the same time perform our material duties very nicely. A strong sense of love is required here. If we have a strong sense of love for the Supreme Lord, then we can discharge our duty and at the same time remember Him. But we have to develop that sense of love. Arjuna, for instance, was always thinking of Kr²³a; he was the constant companion of Kr²³a, and at the same time he was a warrior. Kr²³a did not advise him to give up fighting and go to the forest to meditate. When Lord Kr²³a delineates the *yoga* system to Arjuna, Arjuna says that the practice of this system is not possible for him.
 
 >arjuna uvāca
 >yo 'yaṁ yogas tvayā proktaḥ sāmyena madhusūdana
@@ -291,9 +291,9 @@ But the Lord says:
 > yoginām api sarveṣāṁ mad-gatenāntarātmanā
 > śraddhāvān bhajate yo māṁ sa me yuktatamo mataḥ
 
-"Of all *yogīs,* he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in *yoga,* and is the highest of all." [[bg/6/47|(Bg. 6.47)]] So one who thinks of the Supreme Lord always is the greatest *yogī,* the supermost *jñānī,* and the greatest devotee at the same time. The Lord further tells Arjuna that as a *kṣatriya* he cannot give up his fighting, but if Arjuna fights remembering Kṛṣṇa, then he will be able to remember Him at the time of death. But one must be completely surrendered in the transcendental loving service of the Lord.
+"Of all *yogīs,* he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in *yoga,* and is the highest of all." [[bg/6/47|(Bg. 6.47)]] So one who thinks of the Supreme Lord always is the greatest *yogī,* the supermost *jñānī,* and the greatest devotee at the same time. The Lord further tells Arjuna that as a *kṣatriya* he cannot give up his fighting, but if Arjuna fights remembering Kr²³a, then he will be able to remember Him at the time of death. But one must be completely surrendered in the transcendental loving service of the Lord.
 
-We work not with our body, actually, but with our mind and intelligence. So if the intelligence and the mind are always engaged in the thought of the Supreme Lord, then naturally the senses are also engaged in His service. Superficially, at least, the activities of the senses remain the same, but the consciousness is changed. The *Bhagavad-gītā* teaches one how to absorb the mind and intelligence in the thought of the Lord. Such absorption will enable one to transfer himself to the kingdom of the Lord. If the mind is engaged in Kṛṣṇa's service, then the senses are automatically engaged in His service. This is the art, and this is also the secret of *Bhagavad-gītā:* total absorption in the thought of Śrī Kṛṣṇa.
+We work not with our body, actually, but with our mind and intelligence. So if the intelligence and the mind are always engaged in the thought of the Supreme Lord, then naturally the senses are also engaged in His service. Superficially, at least, the activities of the senses remain the same, but the consciousness is changed. The *Bhagavad-gītā* teaches one how to absorb the mind and intelligence in the thought of the Lord. Such absorption will enable one to transfer himself to the kingdom of the Lord. If the mind is engaged in Kr²³a's service, then the senses are automatically engaged in His service. This is the art, and this is also the secret of *Bhagavad-gītā:* total absorption in the thought of Śrī Kra.
 
 Modern man has struggled very hard to reach the moon, but he has not tried very hard to elevate himself spiritually. If one has fifty years of life ahead of him, he should engage that brief time in cultivating this practice of remembering the Supreme Personality of Godhead. This practice is the devotional process of:
 
@@ -309,7 +309,7 @@ The Lord further says:
 
 "By practicing this remembering, without being deviated, thinking ever of the Supreme Godhead, one is sure to achieve the planet of the Divine, the Supreme Personality, O son of Kuntī." [[bg/8/8|(Bg. 8.8)]]
 
-This is not a very difficult process. However, one must learn it from an experienced person, from one who is already in the practice. The mind is always flying to this and that, but one must always practice concentrating the mind on the form of the Supreme Lord Śrī Kṛṣṇa or on the sound of His name. The mind is naturally restless, going hither and thither, but it can rest in the sound vibration of Kṛṣṇa. One must thus meditate on *paramaṁ puruṣaṁ,* the Supreme Person; and thus attain Him. The ways and the means for ultimate realization, ultimate attainment, are stated in the *Bhagavad-gītā,* and the doors of this knowledge are open for everyone. No one is barred out. All classes of men can approach the Lord by thinking of Him, for hearing and thinking of Him is possible for everyone.
+This is not a very difficult process. However, one must learn it from an experienced person, from one who is already in the practice. The mind is always flying to this and that, but one must always practice concentrating the mind on the form of the Supreme Lord Śrī Kr²³a or on the sound of His name. The mind is naturally restless, going hither and thither, but it can rest in the sound vibration of Kra. One must thus meditate on *paramaṁ puruṣaṁ,* the Supreme Person; and thus attain Him. The ways and the means for ultimate realization, ultimate attainment, are stated in the *Bhagavad-gītā,* and the doors of this knowledge are open for everyone. No one is barred out. All classes of men can approach the Lord by thinking of Him, for hearing and thinking of Him is possible for everyone.
 
 The Lord further says:
 
@@ -328,32 +328,28 @@ In conclusion, *Bhagavad-gīta* is a transcendental literature which one should 
 > nehābhikrama-nāśo ’sti pratyavāyo na vidyate
 > svalpam apy asya dharmasya trāyate mahato bhayāt
 
-"In this endeavor there is no loss or diminution, and a little advancement on this path can protect one from the most dangerous type of fear." [[bg/2/40|(Bg. 2.40)]] If one reads *Bhagavad-gītā* sincerely and seriously, then all of the reactions of his past misdeeds will not react upon him. In the last portion of *Bhagavad-gītā,* Lord Śrī Kṛṣṇa proclaims:
+"In this endeavor there is no loss or diminution, and a little advancement on this path can protect one from the most dangerous type of fear." [[bg/2/40|(Bg. 2.40)]] If one reads *Bhagavad-gītā* sincerely and seriously, then all of the reactions of his past misdeeds will not react upon him. In the last portion of *Bhagavad-gītā,* Lord Śrī Kr²³a proclaims:
 
 > sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja
 > ahaṁ tvāṁ sarva-pāpebhyo mokṣayiṣyāmi mā śucaḥ
 
 "Give up all varieties of religiousness, and just surrender unto Me; and in return I shall protect you from all sinful reactions. Therefore, you have nothing to fear." [[bg/18/66|(Bg. 18.66)]] Thus the Lord takes all responsibility for one who surrenders unto Him, and He indemnifies all the reactions of sin.
 
-One cleanses himself daily by taking a bath in water, but one who takes his bath only once in the sacred Ganges water of the *Bhagavad-gītā* cleanses away all the dirt of material life. Because *Bhagavad-gītā* is spoken by the Supreme Personality of Godhead, one need not read any other Vedic literature. One need only attentively and regularly hear and read *Bhagavad-gītā.* In the present age, mankind is so absorbed with mundane activities that it is not possible to read all of the Vedic literatures. But this is not necessary. This one book, *Bhagavad-gītā,* will suffice because it is the essence of all Vedic literatures and because it is spoken by the Supreme Personality of Godhead. It is said that one who drinks the water of the Ganges certainly gets salvation, but what to speak of one who drinks the waters of *Bhagavad-gītā? Gītā* is the very nectar of the *Mahābhārata* spoken by Viṣṇu Himself, for Lord Kṛṣṇa is the original Viṣṇu. It is nectar emanating from the mouth of the Supreme Personality of Godhead, and the Ganges is said to be emanating from the lotus feet of the Lord. Of course there is no difference between the mouth and the feet of the Supreme Lord, but in our position we can appreciate that the *Bhagavad-gītā* is even more important than the Ganges.
+One cleanses himself daily by taking a bath in water, but one who takes his bath only once in the sacred Ganges water of the *Bhagavad-gītā* cleanses away all the dirt of material life. Because *Bhagavad-gītā* is spoken by the Supreme Personality of Godhead, one need not read any other Vedic literature. One need only attentively and regularly hear and read *Bhagavad-gītā.* In the present age, mankind is so absorbed with mundane activities that it is not possible to read all of the Vedic literatures. But this is not necessary. This one book, *Bhagavad-gītā,* will suffice because it is the essence of all Vedic literatures and because it is spoken by the Supreme Personality of Godhead. It is said that one who drinks the water of the Ganges certainly gets salvation, but what to speak of one who drinks the waters of *Bhagavad-gītā? Gītā* is the very nectar of the *Mahābhārata* spoken by Viṣṇu Himself, for Lord Kr²³a is the original Viṣṇu. It is nectar emanating from the mouth of the Supreme Personality of Godhead, and the Ganges is said to be emanating from the lotus feet of the Lord. Of course there is no difference between the mouth and the feet of the Supreme Lord, but in our position we can appreciate that the *Bhagavad-gītā* is even more important than the Ganges.
 
-The *Bhagavad-gītā* is just like a cow, and Lord Kṛṣṇa, who is a cowherd boy, is milking this cow. The milk is the essence of the *Vedas,* and Arjuna is just like a calf. The wise men, the great sages and pure devotees, are to drink the nectarean milk of *Bhagavad-gītā.*
+The *Bhagavad-gītā* is just like a cow, and Lord Kr²³a, who is a cowherd boy, is milking this cow. The milk is the essence of the *Vedas,* and Arjuna is just like a calf. The wise men, the great sages and pure devotees, are to drink the nectarean milk of *Bhagavad-gītā.*
 
-In this present day, man is very eager to have one scripture, one God, one religion, and one occupation. So let there be one common scripture for the whole world—*Bhagavad-gītā.* And let there be one God only for the whole world—Śrī Kṛṣṇa. And one *mantra* only—Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. And let there be one work only—the service of the Supreme Personality of Godhead.
+In this present day, man is very eager to have one scripture, one God, one religion, and one occupation. So let there be one common scripture for the whole world—*Bhagavad-gītā.* And let there be one God only for the whole world—Śrī Kra. And one *mantra* only—Hare Kr²³a, Hare Kr²³a, Kr²³a Kr²³a, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. And let there be one work only—the service of the Supreme Personality of Godhead.
 
 ## THE DISCIPLIC SUCCESSION
 
 *Evaṁ paramparā-prāptam imaṁ rājarṣayo viduḥ.* (Bhagavad-gītā, 4.2) This *Bhagavad-gītā As It Is* is received through this disciplic succession:
 
-**1) Kṛṣṇa,** 2) Brahmā, 3) Nārada, 4) Vyāsa, 5) Madhva, 6) Padmanābha, 7) Nṛhari, 8) Mādhava, 9) Akṣobhya, 10) Jaya Tīrtha, 11) Jñānasindhu, 12) Dayānidhi, 13) Vidyānidhi, 14) Rājendra, 15) Jayadharma, 16) Puruṣottama, 17) Brahmaṇya Tīrtha, 18) Vyāsa Tīrtha, 19) Lakṣmīpati, 20) Mādhavendra Purī, 21) Īśvara Purī, (Nityānanda, Advaita), **22) Lord Caitanya,** 23) Rūpa, (Svarūpa, Sanātana), 24) Raghunātha, Jīva, 25) Kṛṣṇadāsa, 26) Narottama, 27) Viśvanātha, 28) (Baladeva) Jagannātha, 29) Bhaktivinoda, 30) Gaurakiśora, 31) Bhaktisiddhānta Sarasvatī, 32) Bhaktivedanta Swami Prabhupāda.
+**1) Kr²³a,** 2) Brahmā, 3) Nārada, 4) Vyāsa, 5) Madhva, 6) Padmanābha, 7) Nṛhari, 8) Mādhava, 9) Akṣobhya, 10) Jaya Tīrtha, 11) Jñānasindhu, 12) Dayānidhi, 13) Vidyānidhi, 14) Rājendra, 15) Jayadharma, 16) Puruṣottama, 17) Brahmaṇya Tīrtha, 18) Vyāsa Tīrtha, 19) Lakṣmīpati, 20) Mādhavendra Purī, 21) Īśvara Purī, (Nityānanda, Advaita), **22) Lord Caitanya,** 23) Rūpa, (Svarūpa, Sanātana), 24) Raghunātha, Jīva, 25) Kr²³adāsa, 26) Narottama, 27) Viśvanātha, 28) (Baladeva) Jagannātha, 29) Bhaktivinoda, 30) Gaurakiśora, 31) Bhaktisiddhānta Sarasvatī, 32) Bhaktivedanta Swami Prabhupāda.
 
 ## Chapter 1
 
 ### Bg 1.1
-
-> धृतराष्ट्र उवाच ।
-> धर्मक्षेत्रे कुरुक्षेत्रे समवेता युयुत्सवः ।
-> मामकाः पाण्डवाश्चैव किमकुर्वत सञ्जय ॥१॥
 
 > dhṛtarāṣṭra uvāca
 > dharma-kṣetre kuru-kṣetre
@@ -375,10 +371,6 @@ Both the Pāṇḍavas and the sons of Dhṛtarāṣṭra belong to the same fam
 
 ### Bg 1.2
 
-> सञ्जय उवाच ।
-> दृष्ट्वा तु पाण्डवानीकं व्यूढं दुर्योधनस्तदा ।
-> आचार्यमुपसंगम्य राजा वचनमब्रवीत् ॥२॥
-
 > sañjaya uvāca
 > dṛṣṭvā tu pāṇḍavānīkaṁ
 > vyūḍhaṁ duryodhanas tadā
@@ -393,9 +385,6 @@ Dhṛtarāṣṭra was blind from birth. Unfortunately, he was also bereft of sp
 
 ### Bg 1.3
 
-> पश्यैतां पाण्डुपुत्राणामाचार्य महतीं चमूम् ।
-> व्यूढां द्रुपदपुत्रेण तव शिष्येण धीमता ॥३॥
-
 > paśyaitāṁ pāṇḍu-putrāṇām
 > ācārya mahatīṁ camūm
 > vyūḍhāṁ drupada-putreṇa
@@ -408,9 +397,6 @@ Dhṛtarāṣṭra was blind from birth. Unfortunately, he was also bereft of sp
 Duryodhana, a great diplomat, wanted to point out the defects of Droṇācārya, the great *brāhmaṇa* commander-in-chief. Droṇācārya had some political quarrel with King Drupada, the father of Draupadī, who was Arjuna's wife. As a result of this quarrel, Drupada performed a great sacrifice, by which he received the benediction of having a son who would be able to kill Droṇācārya. Droṇācārya knew this perfectly well, and yet, as a liberal *brāhmaṇa,* he did not hesitate to impart all his military secrets when the son of Drupada, Dhṛṣṭadyumna, was entrusted to him for military education. Now, on the Battlefield of Kurukṣetra, Dhṛṣṭadyumna took the side of the Pāṇḍavas, and it was he who arranged for their military phalanx, after having learned the art from Droṇācārya. Duryodhana pointed out this mistake of Droṇācārya's so that he might be alert and uncompromising in the fighting. By this he wanted to point out also that he should not be similarly lenient in battle against the Pāṇḍavas, who were also Droṇācārya's affectionate students. Arjuna, especially, was his most affectionate and brilliant student. Duryodhana also warned that such leniency in the fight would lead to defeat.
 
 ### Bg 1.4
-
-> अत्र शूरा महेष्वासा भीमार्जुनसमा युधि ।
-> युयुधानो विराटश्च द्रुपदश्च महारथः ॥४॥
 
 > atra śūrā maheṣv-āsā
 > bhīmārjuna-samā yudhi
@@ -425,9 +411,6 @@ Even though Dhṛṣṭadyumna was not a very important obstacle in the face of 
 
 ### Bg 1.5
 
-> धृष्टकेतुश्चेकितानः काशिराजश्च वीर्यवान् ।
-> पुरुजित्कुन्तिभोजश्च शैब्यश्च नरपुंगवः ॥५॥
-
 > dhṛṣṭaketuś cekitānaḥ
 > kāśirājaś ca vīryavān
 > purujit kuntibhojaś ca
@@ -438,9 +421,6 @@ Even though Dhṛṣṭadyumna was not a very important obstacle in the face of 
 **There are also great, heroic, powerful fighters like Dhṛṣṭaketu, Cekitāna, Kāśirāja, Purujit, Kuntibhoja and Śaibya.**
 
 ### Bg 1.6
-
-> युधामन्युश्च विक्रान्त उत्तमौजाश्च वीर्यवान् ।
-> सौभद्रो द्रौपदेयाश्च सर्व एव महारथाः ॥६॥
 
 > yudhāmanyuś ca vikrānta
 > uttamaujāś ca vīryavān
@@ -453,9 +433,6 @@ Even though Dhṛṣṭadyumna was not a very important obstacle in the face of 
 
 ### Bg 1.7
 
-> अस्माकं तु विशिष्टा ये तान्निबोध द्विजोत्तम ।
-> नायका मम सैन्यस्य संज्ञार्थं तान्ब्रवीमि ते ॥७॥
-
 > asmākaṁ tu viśiṣṭā ye
 > tān nibodha dvijottama
 > nāyakā mama sainyasya
@@ -466,9 +443,6 @@ Even though Dhṛṣṭadyumna was not a very important obstacle in the face of 
 **O best of the brāhmaṇas, for your information, let me tell you about the captains who are especially qualified to lead my military force.**
 
 ### Bg 1.8
-
-> भवान्भीष्मश्च कर्णश्च कृपश्च समितिञ्जयः ।
-> अश्वत्थामा विकर्णश्च सौमदत्तिस्तथैव च ॥८॥
 
 > bhavān bhīṣmaś ca karṇaś ca
 > kṛpaś ca samitiṁ-jayaḥ
@@ -483,9 +457,6 @@ Duryodhana mentioned the exceptional heroes in the battle, all of whom are ever-
 
 ### Bg 1.9
 
-> अन्ये च बहवः शूरा मदर्थे त्यक्तजीविताः ।
-> नानाशस्त्रप्रहरणाः सर्वे युद्धविशारदाः ॥९॥
-
 > anye ca bahavaḥ śūrā
 > mad-arthe tyakta-jīvitāḥ
 > nānā-śastra-praharaṇāḥ
@@ -498,9 +469,6 @@ Duryodhana mentioned the exceptional heroes in the battle, all of whom are ever-
 As far as the others are concerned—like Jayadratha, Kṛtavarmā, Śalya, etc.—all are determined to lay down their lives for Duryodhana's sake. In other words, it is already concluded that all of them would die in the Battle of Kurukṣetra for joining the party of the sinful Duryodhana. Duryodhana was, of course, confident of his victory on account of the above-mentioned combined strength of his friends.
 
 ### Bg 1.10
-
-> अपर्याप्तं तदस्माकं बलं भीष्माभिरक्षितम् ।
-> पर्याप्तं त्विदमेतेषां बलं भीमाभिरक्षितम् ॥१०॥
 
 > aparyāptaṁ tad asmākaṁ
 > balaṁ bhīṣmābhirakṣitam
@@ -515,9 +483,6 @@ Herein an estimation of comparative strength is made by Duryodhana. He thinks th
 
 ### Bg 1.11
 
-> अयनेषु च सर्वेषु यथाभागमवस्थिताः ।
-> भीष्ममेवाभिरक्षन्तु भवन्तः सर्व एव हि ॥११॥
-
 > ayaneṣu ca sarveṣu
 > yathā-bhāgam avasthitāḥ
 > bhīṣmam evābhirakṣantu
@@ -530,9 +495,6 @@ Herein an estimation of comparative strength is made by Duryodhana. He thinks th
 Duryodhana, after praising the prowess of Bhīṣma, further considered that others might think that they had been considered less important, so in his usual diplomatic way, he tried to adjust the situation in the above words. He emphasized that Bhīṣmadeva was undoubtedly the greatest hero, but he was an old man, so everyone must especially think of his protection from all sides. He might become engaged in the fight, and the enemy might take advantage of his full engagement on one side. Therefore, it was important that other heroes would not leave their strategic positions and allow the enemy to break the phalanx. Duryodhana clearly felt that the victory of the Kurus depended on the presence of Bhīṣmadeva. He was confident of the full support of Bhīṣmadeva and Droṇācārya in the battle because he well knew that they did not even speak a word when Arjuna's wife Draupadī, in her helpless condition, had appealed to them for justice while she was being forced to strip naked in the presence of all the great generals in the assembly. Although he knew that the two generals had some sort of affection for the Pāṇḍavas, he hoped that all such affection would now be completely given up by them, as was customary during the gambling performances.
 
 ### Bg 1.12
-
-> तस्य सञ्जनयन्हर्षं कुरुवृद्धः पितामहः ।
-> सिंहनादं विनद्योच्चैः शङ्खं दध्मौ प्रतापवान् ॥१२॥
 
 > tasya sañjanayan harṣaṁ
 > kuru-vṛddhaḥ pitāmahaḥ
@@ -547,9 +509,6 @@ The grandsire of the Kuru dynasty could understand the inner meaning of the hear
 
 ### Bg 1.13
 
-> ततः शङ्खाश्च भेर्यश्च पणवानकगोमुखाः ।
-> सहसैवाभ्यहन्यन्त स शब्दस्तुमुलोऽभवत् ॥१३॥
-
 > tataḥ śaṅkhāś ca bheryaś ca
 > paṇavānaka-gomukhāḥ
 > sahasaivābhyahanyanta
@@ -560,9 +519,6 @@ The grandsire of the Kuru dynasty could understand the inner meaning of the hear
 **After that, the conchshells, bugles, trumpets, drums and horns were all suddenly sounded, and the combined sound was tumultuous.**
 
 ### Bg 1.14
-
-> ततः श्वेतैर्हयैर्युक्ते महति स्यन्दने स्थितौ ।
-> माधवः पाण्डवश्चैव दिव्यौ शङ्खौ प्रदध्मतुः ॥१४॥
 
 > tataḥ śvetair hayair yukte
 > mahati syandane sthitau
@@ -576,9 +532,6 @@ The grandsire of the Kuru dynasty could understand the inner meaning of the hear
 In contrast with the conchshell blown by Bhīṣmadeva, the conchshells in the hands of Kṛṣṇa and Arjuna are described as transcendental. The sounding of the transcendental conchshells indicated that there was no hope of victory for the other side because Kṛṣṇa was on the side of the Pāṇḍavas. *Jayas tu pāṇḍu-putrāṇāṁ yeṣāṁ pakṣe janārdanaḥ.* Victory is always with persons like the sons of Pāṇḍu because Lord Kṛṣṇa is associated with them. And whenever and wherever the Lord is present, the goddess of fortune is also there because the goddess of fortune never lives alone without her husband. Therefore, victory and fortune were awaiting Arjuna, as indicated by the transcendental sound produced by the conchshell of Viṣṇu, or Lord Kṛṣṇa. Besides that, the chariot on which both the friends were seated was donated by Agni (the fire-god) to Arjuna, and this indicated that this chariot was capable of conquering all sides, wherever it was drawn over the three worlds.
 
 ### Bg 1.15
-
-> पाञ्चजन्यं हृषीकेशो देवदत्तं धनञ्जयः ।
-> पौण्ड्रं दध्मौ महाशङ्खं भीमकर्मा वृकोदरः ॥१५॥
 
 > pāñcajanyaṁ hṛṣīkeśo
 > devadattaṁ dhanañjayaḥ
@@ -594,13 +547,6 @@ Lord Kṛṣṇa is referred to as Hṛṣīkeśa in this verse because He is th
 Arjuna is referred to as Dhanañjaya in this verse because he helped his elder brother in fetching wealth when it was required by the King to make expenditures for different sacrifices. Similarly, Bhīma is known as Vṛkodara because he could eat as voraciously as he could perform Herculean tasks, such as killing the demon Hiḍimba. So, the particular types of conchshell blown by the different personalities on the side of the Pāṇḍavas, beginning with the Lord's, were all very encouraging to the fighting soldiers. On the other side there were no such credits, nor the presence of Lord Kṛṣṇa, the supreme director, nor that of the goddess of fortune. So, they were predestined to lose the battle—and that was the message announced by the sounds of the conchshells.
 
 ### Bg 1.16-18
-
-> अनन्तविजयं राजा कुन्तीपुत्रो युधिष्ठिरः ।
-> नकुलः सहदेवश्च सुघोषमणिपुष्पकौ ॥१६॥
-> काश्यश्च परमेष्वासः शिखण्डी च महारथः ।
-> धृष्टद्युम्नो विराटश्च सात्यकिश्चापराजितः ॥१७॥
-> द्रुपदो द्रौपदेयाश्च सर्वशः पृथिवीपते ।
-> सौभद्रश्च महाबाहुः शङ्खान्दध्मुः पृथक्पृथक् ॥१८॥
 
 > anantavijayaṁ rājā
 > kuntī-putro yudhiṣṭhiraḥ
@@ -625,9 +571,6 @@ Sañjaya informed King Dhṛtarāṣṭra very tactfully that his unwise policy 
 
 ### Bg 1.19
 
-> स घोषो धार्तराष्ट्राणां हृदयानि व्यदारयत् ।
-> नभश्च पृथिवीं चैव तुमुलोऽभ्यनुनादयन् ॥१९॥
-
 > sa ghoṣo dhārtarāṣṭrāṇāṁ
 > hṛdayāni vyadārayat
 > nabhaś ca pṛthivīṁ caiva
@@ -640,10 +583,6 @@ Sañjaya informed King Dhṛtarāṣṭra very tactfully that his unwise policy 
 When Bhīṣma and the others on the side of Duryodhana blew their respective conchshells, there was no heart-breaking on the part of the Pāṇḍavas. Such occurrences are not mentioned, but in this particular verse it is mentioned that the hearts of the sons of Dhṛtarāṣṭra were shattered by the sounds vibrated by the Pāṇḍavas' party. This is due to the Pāṇḍavas and their confidence in Lord Kṛṣṇa. One who takes shelter of the Supreme Lord has nothing to fear, even in the midst of the greatest calamity.
 
 ### Bg 1.20
-
-> अथ व्यवस्थितान्दृष्ट्वा धार्तराष्ट्रान् कपिध्वजः ।
-> प्रवृत्ते शस्त्रसम्पाते धनुरुद्यम्य पाण्डवः ।
-> हृषीकेशं तदा वाक्यमिदमाह महीपते ॥२०॥
 
 > atha vyavasthitān dṛṣṭvā
 > dhārtarāṣṭrān kapi-dhvajaḥ
@@ -659,11 +598,6 @@ When Bhīṣma and the others on the side of Duryodhana blew their respective co
 The battle was just about to begin. It is understood from the above statement that the sons of Dhṛtarāṣṭra were more or less disheartened by the unexpected arrangement of military force by the Pāṇḍavas, who were guided by the direct instructions of Lord Kṛṣṇa on the battlefield. The emblem of Hanumān on the flag of Arjuna is another sign of victory because Hanumān cooperated with Lord Rāma in the battle between Rāma and Rāvaṇa, and Lord Rāma emerged victorious. Now both Rāma and Hanumān were present on the chariot of Arjuna to help him. Lord Kṛṣṇa is Rāma Himself, and wherever Lord Rāma is, His eternal servitor Hanumān and His eternal consort Sītā, the goddess of fortune, are present. Therefore, Arjuna had no cause to fear any enemies whatsoever. And above all, the Lord of the senses, Lord Kṛṣṇa, was personally present to give him direction. Thus, all good counsel was available to Arjuna in the matter of executing the battle. In such auspicious conditions, arranged by the Lord for His eternal devotee, lay the signs of assured victory.
 
 ### Bg 1.21-22
-
-> अर्जुन उवाच ।
-> सेनयोरुभयोर्मध्ये रथं स्थापय मेऽच्युत ॥२१॥
-> यावदेतान्निरीक्षेऽहं योद्धुकामानवस्थितान् ।
-> कैर्मया सह योद्धव्यमस्मिन् रणसमुद्यमे ॥२२॥
 
 > arjuna uvāca
 > senayor ubhayor madhye
@@ -684,9 +618,6 @@ As a pure devotee of the Lord, Arjuna had no desire to fight with his cousins an
 
 ### Bg 1.23
 
-> योत्स्यमानानवेक्षेऽहं य एतेऽत्र समागताः ।
-> धार्तराष्ट्रस्य दुर्बुद्धेर्युद्धे प्रियचिकीर्षवः ॥२३॥
-
 > yotsyamānān avekṣe ’haṁ
 > ya ete ’tra samāgatāḥ
 > dhārtarāṣṭrasya durbuddher
@@ -699,10 +630,6 @@ As a pure devotee of the Lord, Arjuna had no desire to fight with his cousins an
 It was an open secret that Duryodhana wanted to usurp the kingdom of the Pāṇḍavas by evil plans, in collaboration with his father, Dhṛtarāṣṭra. Therefore, all persons who had joined the side of Duryodhana must have been birds of the same feather. Arjuna wanted to see them in the battlefield before the fight was begun, just to learn who they were, but he had no intention of proposing peace negotiations with them. It was also a fact that he wanted to see them to make an estimate of the strength which he had to face, although he was quite confident of victory because Kṛṣṇa was sitting by his side.
 
 ### Bg 1.24
-
-> सञ्जय उवाच ।
-> एवमुक्तो हृषीकेशो गुडाकेशेन भारत ।
-> सेनयोरुभयोर्मध्ये स्थापयित्वा रथोत्तमम् ॥२४॥
 
 > sañjaya uvāca
 > evam ukto hṛṣīkeśo
@@ -718,9 +645,6 @@ In this verse Arjuna is referred to as Guḍākeśa. *Guḍāka* means sleep, an
 
 ### Bg 1.25
 
-> भीष्मद्रोणप्रमुखतः सर्वेषां च महीक्षिताम् ।
-> उवाच पार्थ पश्यैतान्समवेतान्कुरूनिति ॥२५॥
-
 > bhīṣma-droṇa-pramukhataḥ
 > sarveṣāṁ ca mahī-kṣitām
 > uvāca pārtha paśyaitān
@@ -733,10 +657,6 @@ In this verse Arjuna is referred to as Guḍākeśa. *Guḍāka* means sleep, an
 As the Supersoul of all living entities, Lord Kṛṣṇa could understand what was going on in the mind of Arjuna. The use of the word Hṛṣīkeśa in this connection indicates that He knew everything. And the word Pārtha, or the son of Kuntī or Pṛthā, is also similarly significant in reference to Arjuna. As a friend, He wanted to inform Arjuna that because Arjuna was the son of Pṛthā, the sister of His own father Vasudeva, He had agreed to be the charioteer of Arjuna. Now what did Kṛṣṇa mean when He told Arjuna to "behold the Kurus"? Did Arjuna want to stop there and not fight? Kṛṣṇa never expected such things from the son of His aunt Pṛthā. The mind of Arjuna was thus predicated by the Lord in friendly joking.
 
 ### Bg 1.26
-
-> तत्रापश्यत्स्थितान्पार्थः पितॄनथ पितामहान् ।
-> आचार्यान्मातुलान्भ्रातॄन्पुत्रान्पौत्रान्सखींस्तथा ।
-> श्वशुरान्सुहृदश्चैव सेनयोरुभयोरपि ॥२६॥
 
 > tatrāpaśyat sthitān pārthaḥ
 > pitṝn atha pitāmahān
@@ -753,9 +673,6 @@ On the battlefield Arjuna could see all kinds of relatives. He could see persons
 
 ### Bg 1.27
 
-> तान्समीक्ष्य स कौन्तेयः सर्वान्बन्धूनवस्थितान् ।
-> कृपया परयाविष्टो विषीदन्निदमब्रवीत् ॥२७॥
-
 > tān samīkṣya sa kaunteyaḥ
 > sarvān bandhūn avasthitān
 > kṛpayā parayāviṣṭo
@@ -766,10 +683,6 @@ On the battlefield Arjuna could see all kinds of relatives. He could see persons
 **When the son of Kuntī, Arjuna, saw all these different grades of friends and relatives, he became overwhelmed with compassion and spoke thus:**
 
 ### Bg 1.28
-
-> अर्जुन उवाच ।
-> दृष्ट्वेमं स्वजनं कृष्ण युयुत्सुं समुपस्थितम् ।
-> सीदन्ति मम गात्राणि मुखं च परिशुष्यति ॥२८॥
 
 > arjuna uvāca
 > dṛṣṭvemaṁ sva-janaṁ kṛṣṇa
@@ -792,9 +705,6 @@ Any man who has genuine devotion to the Lord has all the good qualities which ar
 
 ### Bg 1.29
 
-> वेपथुश्च शरीरे मे रोमहर्षश्च जायते ।
-> गाण्डीवं स्रंसते हस्तात्त्वक्चैव परिदह्यते ॥२९॥
-
 > vepathuś ca śarīre me
 > roma-harṣaś ca jāyate
 > gāṇḍīvaṁ sraṁsate hastāt
@@ -807,9 +717,6 @@ Any man who has genuine devotion to the Lord has all the good qualities which ar
 There are two kinds of trembling of the body, and two kinds of standings of the hair on end. Such phenomena occur either in great spiritual ecstasy or out of great fear under material conditions. There is no fear in transcendental realization. Arjuna's symptoms in this situation are out of material fear—namely, loss of life. This is evident from other symptoms also; he became so impatient that his famous bow Gāṇḍīva was slipping from his hands, and, because his heart was burning within him, he was feeling a burning sensation of the skin. All these are due to a material conception of life.
 
 ### Bg 1.30
-
-> न च शक्नोम्यवस्थातुं भ्रमतीव च मे मनः ।
-> निमित्तानि च पश्यामि विपरीतानि केशव ॥३०॥
 
 > na ca śaknomy avasthātuṁ
 > bhramatīva ca me manaḥ
@@ -824,9 +731,6 @@ Due to his impatience, Arjuna was unable to stay on the battlefield, and he was 
 
 ### Bg 1.31
 
-> न च श्रेयोऽनुपश्यामि हत्वा स्वजनमाहवे ।
-> न काङ्क्षे विजयं कृष्ण न च राज्यं सुखानि च ॥३१॥
-
 > na ca śreyo ’nupaśyāmi
 > hatvā sva-janam āhave
 > na kāṅkṣe vijayaṁ kṛṣṇa
@@ -839,15 +743,6 @@ Due to his impatience, Arjuna was unable to stay on the battlefield, and he was 
 Without knowing that one's self-interest is in Viṣṇu (or Kṛṣṇa), conditioned souls are attracted by bodily relationships, hoping to be happy in such situations. Under delusion, they forget that Kṛṣṇa is also the cause of material happiness. Arjuna appears to have even forgotten the moral codes for a *kṣatriya.* It is said that two kinds of men, namely the *kṣatriya* who dies directly in front of the battlefield under Kṛṣṇa's personal orders and the person in the renounced order of life who is absolutely devoted to spiritual culture, are eligible to enter into the sun-globe, which is so powerful and dazzling. Arjuna is reluctant even to kill his enemies, let alone his relatives. He thought that by killing his kinsmen there would be no happiness in his life, and therefore he was not willing to fight, just as a person who does not feel hunger is not inclined to cook. He has now decided to go into the forest and live a secluded life in frustration. But as a *kṣatriya,* he requires a kingdom for his subsistence, because the *kṣatriyas* cannot engage themselves in any other occupation. But Arjuna has had no kingdom. Arjuna's sole opportunity for gaining a kingdom lay in fighting with his cousins and brothers and reclaiming the kingdom inherited from his father, which he does not like to do. Therefore he considers himself fit to go to the forest to live a secluded life of frustration.
 
 ### Bg 1.32-35
-
-> किं नो राज्येन गोविन्द किं भोगैर्जीवितेन वा ।
-> येषामर्थे काङ्क्षितं नो राज्यं भोगाः सुखानि च ॥३२॥
-> त इमेऽवस्थिता युद्धे प्राणांस्त्यक्त्वा धनानि च ।
-> आचार्याः पितरः पुत्रास्तथैव च पितामहाः ॥३३॥
-> मातुलाः श्वशुराः पौत्राः श्यालाः सम्बन्धिनस्तथा ।
-> एतान्न हन्तुमिच्छामि घ्नतोऽपि मधुसूदन ॥३४॥
-> अपि त्रैलोक्यराज्यस्य हेतोः किं नु महीकृते ।
-> निहत्य धार्तराष्ट्रान्नः का प्रीतिः स्याज्जनार्दन ॥३५॥
 
 > kiṁ no rājyena govinda
 > kiṁ bhogair jīvitena vā
@@ -877,10 +772,6 @@ Arjuna has addressed Lord Kṛṣṇa as Govinda because Kṛṣṇa is the obje
 
 ### Bg 1.36
 
-> पापमेवाश्रयेदस्मान्हत्वैतानाततायिनः ।
-> तस्मान्नार्हा वयं हन्तुं धार्तराष्ट्रान्स्वबान्धवान् ।
-> स्वजनं हि कथं हत्वा सुखिनः स्याम माधव ॥३६॥
-
 > pāpam evāśrayed asmān
 > hatvaitān ātatāyinaḥ
 > tasmān nārhā vayaṁ hantuṁ
@@ -895,11 +786,6 @@ Arjuna has addressed Lord Kṛṣṇa as Govinda because Kṛṣṇa is the obje
 According to Vedic injunctions there are six kinds of aggressors: 1) a poison giver, 2) one who sets fire to the house, 3) one who attacks with deadly weapons, 4) one who plunders riches, 5) one who occupies another's land, and 6) one who kidnaps a wife. Such aggressors are at once to be killed, and no sin is incurred by killing such aggressors. Such killing of aggressors is quite befitting for any ordinary man, but Arjuna was not an ordinary person. He was saintly by character, and therefore he wanted to deal with them in saintliness. This kind of saintliness, however, is not for a *kṣatriya.* Although a responsible man in the administration of a state is required to be saintly, he should not be cowardly. For example, Lord Rāma was so saintly that people were anxious to live in His kingdom, (*Rāma-rājya*), but Lord Rāma never showed any cowardice. Rāvaṇa was an aggressor against Rāma because he kidnapped Rāma's wife, Sītā, but Lord Rāma gave him sufficient lessons, unparalleled in the history of the world. In Arjuna's case, however, one should consider the special type of aggressors, namely his own grandfather, own teacher, friends, sons, grandsons, etc. Because of them, Arjuna thought that he should not take the severe steps necessary against ordinary aggressors. Besides that, saintly persons are advised to forgive. Such injunctions for saintly persons are more important than any political emergency. Arjuna considered that rather than kill his own kinsmen for political reasons, it would be better to forgive them on grounds of religion and saintly behavior. He did not, therefore, consider such killing profitable simply for the matter of temporary bodily happiness. After all, kingdoms and pleasures derived therefrom are not permanent, so why should he risk his life and eternal salvation by killing his own kinsmen? Arjuna's addressing of Kṛṣṇa as "Mādhava," or the husband of the goddess of fortune, is also significant in this connection. He wanted to point out to Kṛṣṇa that, as husband of the goddess of fortune, He should not have to induce Arjuna to take up a matter which would ultimately bring about misfortune. Kṛṣṇa, however, never brings misfortune to anyone, to say nothing of His devotees.
 
 ### Bg 1.37-38
-
-> यद्यप्येते न पश्यन्ति लोभोपहतचेतसः ।
-> कुलक्षयकृतं दोषं मित्रद्रोहे च पातकम् ॥३७॥
-> कथं न ज्ञेयमस्माभिः पापादस्मान्निवर्तितुम् ।
-> कुलक्षयकृतं दोषं प्रपश्यद्भिर्जनार्दन ॥३८॥
 
 > yady apy ete na paśyanti
 > lobhopahata-cetasaḥ
@@ -919,9 +805,6 @@ A *kṣatriya* is not supposed to refuse to battle or gamble when he is so invit
 
 ### Bg 1.39
 
-> कुलक्षये प्रणश्यन्ति कुलधर्माः सनातनाः ।
-> धर्मे नष्टे कुलं कृत्स्नमधर्मोऽभिभवत्युत ॥३९॥
-
 > kula-kṣaye praṇaśyanti
 > kula-dharmāḥ sanātanāḥ
 > dharme naṣṭe kulaṁ kṛtsnam
@@ -935,9 +818,6 @@ In the system of the *varṇāśrama* institution there are many principles of r
 
 ### Bg 1.40
 
-> अधर्माभिभवात्कृष्ण प्रदुष्यन्ति कुलस्त्रियः ।
-> स्त्रीषु दुष्टासु वार्ष्णेय जायते वर्णसङ्करः ॥४०॥
-
 > adharmābhibhavāt kṛṣṇa
 > praduṣyanti kula-striyaḥ
 > strīṣu duṣṭāsu vārṣṇeya
@@ -950,9 +830,6 @@ In the system of the *varṇāśrama* institution there are many principles of r
 Good population in human society is the basic principle for peace, prosperity and spiritual progress in life. The *varṇāśrama* religion's principles were so designed that the good population would prevail in society for the general spiritual progress of state and community. Such population depends on the chastity and faithfulness of its womanhood. As children are very prone to be misled, women are similarly very prone to degradation. Therefore, both children and women require protection by the elder members of the family. By being engaged in various religious practices, women will not be misled into adultery. According to Cāṇakya Paṇḍit, women are generally not very intelligent and therefore not trustworthy. So, the different family traditions of religious activities should always engage them, and thus their chastity and devotion will give birth to a good population eligible for participating in the *varṇāśrama* system. On the failure of such *varṇāśrama-dharma,* naturally the women become free to act and mix with men, and thus adultery is indulged in at the risk of unwanted population. Irresponsible men also provoke adultery in society, and thus unwanted children flood the human race at the risk of war and pestilence.
 
 ### Bg 1.41
-
-> सङ्करो नरकायैव कुलघ्नानां कुलस्य च ।
-> पतन्ति पितरो ह्येषां लुप्तपिण्डोदकक्रियाः ॥४१॥
 
 > saṅkaro narakāyaiva
 > kula-ghnānāṁ kulasya ca
@@ -974,9 +851,6 @@ According to the rules and regulations of fruitive activities, there is a need t
 
 ### Bg 1.42
 
-> दोषैरेतैः कुलघ्नानां वर्णसङ्करकारकैः ।
-> उत्साद्यन्ते जातिधर्माः कुलधर्माश्च शाश्वताः ॥४२॥
-
 > doṣair etaiḥ kula-ghnānāṁ
 > varṇa-saṅkara-kārakaiḥ
 > utsādyante jāti-dharmāḥ
@@ -989,9 +863,6 @@ According to the rules and regulations of fruitive activities, there is a need t
 The four orders of human society, combined with family welfare activities as they are set forth by the institution of the *sanātana-dharma* or *varṇāśrama-dharma,* are designed to enable the human being to attain his ultimate salvation. Therefore, the breaking of the *sanātana-dharma* tradition by irresponsible leaders of society brings about chaos in that society, and consequently people forget the aim of life—Viṣṇu. Such leaders are called blind, and persons who follow such leaders are sure to be led into chaos.
 
 ### Bg 1.43
-
-> उत्सन्नकुलधर्माणां मनुष्याणां जनार्दन ।
-> नरके नियतं वासो भवतीत्यनुशुश्रुम ॥४३॥
 
 > utsanna-kula-dharmāṇāṁ
 > manuṣyāṇāṁ janārdana
@@ -1006,9 +877,6 @@ Arjuna bases his argument not on his own personal experience, but on what he has
 
 ### Bg 1.44
 
-> अहो बत महत्पापं कर्तुं व्यवसिता वयम् ।
-> यद्राज्यसुखलोभेन हन्तुं स्वजनमुद्यताः ॥४४॥
-
 > aho bata mahat pāpaṁ
 > kartuṁ vyavasitā vayam
 > yad rājya-sukha-lobhena
@@ -1022,9 +890,6 @@ Driven by selfish motives, one may be inclined to such sinful acts as the killin
 
 ### Bg 1.45
 
-> यदि मामप्रतीकारमशस्त्रं शस्त्रपाणयः ।
-> धार्तराष्ट्रा रणे हन्युस्तन्मे क्षेमतरं भवेत् ॥४५॥
-
 > yadi mām apratīkāram
 > aśastraṁ śastra-pāṇayaḥ
 > dhārtarāṣṭrā raṇe hanyus
@@ -1037,10 +902,6 @@ Driven by selfish motives, one may be inclined to such sinful acts as the killin
 It is the custom—according to *kṣatriya* fighting principles—that an unarmed and unwilling foe should not be attacked. Arjuna, however, in such an enigmatic position, decided he would not fight if he were attacked by the enemy. He did not consider how much the other party was bent upon fighting. All these symptoms are due to softheartedness resulting from his being a great devotee of the Lord.
 
 ### Bg 1.46
-
-> सञ्जय उवाच ।
-> एवमुक्त्वार्जुनः सङ्ख्ये रथोपस्थ उपाविशत् ।
-> विसृज्य सशरं चापं शोकसंविग्नमानसः ॥४६॥
 
 > sañjaya uvāca
 > evam uktvārjunaḥ saṅkhye
@@ -1060,10 +921,6 @@ While observing the situation of his enemy, Arjuna stood up on the chariot, but 
 
 ### Bg 2.1
 
-> सञ्जय उवाच ।
-> तं तथा कृपयाविष्टमश्रुपूर्णाकुलेक्षणम् ।
-> विषीदन्तमिदं वाक्यमुवाच मधुसूदनः ॥१॥
-
 > sañjaya uvāca
 > taṁ tathā kṛpayāviṣṭam
 > aśru-pūrṇākulekṣaṇam
@@ -1078,10 +935,6 @@ Material compassion, lamentation and tears are all signs of ignorance of the rea
 
 ### Bg 2.2
 
-> श्रीभगवानुवाच ।
-> कुतस्त्वा कश्मलमिदं विषमे समुपस्थितम् ।
-> अनार्यजुष्टमस्वर्ग्यमकीर्तिकरमर्जुन ॥२॥
-
 > śrī-bhagavān uvāca
 > kutas tvā kaśmalam idaṁ
 > viṣame samupasthitam
@@ -1092,35 +945,32 @@ Material compassion, lamentation and tears are all signs of ignorance of the rea
 
 **The Supreme Person [Bhagavān] said: My dear Arjuna, how have these impurities come upon you? They are not at all befitting a man who knows the progressive values of life. They do not lead to higher planets, but to infamy.**
 
-Kṛṣṇa and the Supreme Personality of Godhead are identical. Therefore Lord Kṛṣṇa is referred to as "Bhagavān" throughout the *Gītā.* Bhagavān is the ultimate in the Absolute Truth. Absolute Truth is realized in three phases of understanding, namely Brahman or the impersonal all-pervasive spirit; Paramātmā, or the localized aspect of the Supreme within the heart of all living entities; and Bhagavān, or the Supreme Personality of Godhead, Lord Kṛṣṇa. In the *Śrīmad-Bhāgavatam* this conception of the Absolute Truth is explained thus:
+Kr£¤a and the Supreme Personality of Godhead are identical. Therefore Lord Kr£¤a is referred to as "Bhagavān" throughout the *Gītā.* Bhagavān is the ultimate in the Absolute Truth. Absolute Truth is realized in three phases of understanding, namely Brahman or the impersonal all-pervasive spirit; Paramātmā, or the localized aspect of the Supreme within the heart of all living entities; and Bhagavān, or the Supreme Personality of Godhead, Lord Kr£¤a. In the *Śrīmad-Bhāgavatam* this conception of the Absolute Truth is explained thus:
 
 > vadanti tat tattva-vidas tattvaṁ yaj jñānam advayam
 > brahmeti paramātmeti bhagavān iti śabdyate.
 
 "The Absolute Truth is realized in three phases of understanding by the knower of the Absolute Truth, and all of them are identical. Such phases of the Absolute Truth are expressed as Brahman, Paramātmā, and Bhagavān." (Bhāg. 1.2.11) These three divine aspects can be explained by the example of the sun, which also has three different aspects, namely the sunshine, the sun's surface and the sun planet itself. One who studies the sunshine only is the preliminary student. One who understands the sun's surface is further advanced. And one who can enter into the sun planet is the highest. Ordinary students who are satisfied by simply understanding the sunshine—its universal pervasiveness and the glaring effulgence of its impersonal nature—may be compared to those who can realize only the Brahman feature of the Absolute Truth. The student who has advanced still further can know the sun disc, which is compared to knowledge of the Paramātmā feature of the Absolute Truth. And the student who can enter into the heart of the sun planet is compared to those who realize the personal features of the Supreme Absolute Truth. Therefore, the *bhaktas,* or the transcendentalists who have realized the Bhagavān feature of the Absolute Truth, are the topmost transcendentalists, although all students who are engaged in the study of the Absolute Truth are engaged in the same subject matter. The sunshine, the sun disc and the inner affairs of the sun planet cannot be separated from one another, and yet the students of the three different phases are not in the same category.
 
-The Sanskrit word *Bhagavān* is explained by the great authority, Parāśara Muni, the father of Vyāsadeva. The Supreme Personality who possesses all riches, all strength, all fame, all beauty, all knowledge and all renunciation is called Bhagavān. There are many persons who are very rich, very powerful, very beautiful, very famous, very learned, and very much detached, but no one can claim that he possesses all riches, all strength, etc., entirely. Only Kṛṣṇa can claim this because He is the Supreme Personality of Godhead. No living entity, including Brahmā, Lord Śiva, or Nārāyaṇa, can possess opulences as fully as Kṛṣṇa. Therefore it is concluded in the *Brahma-saṁhitā* by Lord Brahmā himself that Lord Kṛṣṇa is the Supreme Personality of Godhead. No one is equal to or above Him. He is the primeval Lord, or Bhagavān, known as Govinda, and He is the supreme cause of all causes.
+The Sanskrit word *Bhagavān* is explained by the great authority, Parāśara Muni, the father of Vyāsadeva. The Supreme Personality who possesses all riches, all strength, all fame, all beauty, all knowledge and all renunciation is called Bhagavān. There are many persons who are very rich, very powerful, very beautiful, very famous, very learned, and very much detached, but no one can claim that he possesses all riches, all strength, etc., entirely. Only Kr£¤a can claim this because He is the Supreme Personality of Godhead. No living entity, including Brahmā, Lord Śiva, or Nārāyaṇa, can possess opulences as fully as Kr£¤a. Therefore it is concluded in the *Brahma-saṁhitā* by Lord Brahmā himself that Lord Kr£¤a is the Supreme Personality of Godhead. No one is equal to or above Him. He is the primeval Lord, or Bhagavān, known as Govinda, and He is the supreme cause of all causes.
 
-> īśvaraḥ paramaḥ kṛṣṇaḥ sac-cid-ānanda-vigrahaḥ
+> īśvaraḥ paramaḥ Kr£¤aḥ sac-cid-ānanda-vigrahaḥ
 > anādir ādir govindaḥ sarua-kāraṇa-kāraṇam
 
-"There are many personalities possessing the qualities of Bhagavān, but Kṛṣṇa is the supreme because none can excel Him. He is the Supreme Person, and His body is eternal, full of knowledge and bliss. He is the primeval Lord Govinda and the cause of all causes." (Brahma-saṁhitā 5.1)
+"There are many personalities possessing the qualities of Bhagavān, but Kr£¤a is the supreme because none can excel Him. He is the Supreme Person, and His body is eternal, full of knowledge and bliss. He is the primeval Lord Govinda and the cause of all causes." (Brahma-saṁhitā 5.1)
 
-In the *Bhāgavatam* also there is a list of many incarnations of the Supreme Personality of Godhead, but Kṛṣṇa is described as the original Personality of Godhead, from whom many, many incarnations and Personalities of Godhead expand:
+In the *Bhāgavatam* also there is a list of many incarnations of the Supreme Personality of Godhead, but Kr£¤a is described as the original Personality of Godhead, from whom many, many incarnations and Personalities of Godhead expand:
 
-> ete cāṁśa-kalāḥ puṁsaḥ kṛṣṇas tu bhagavān svayam
+> ete cāṁśa-kalāḥ puṁsaḥ Kr£¤as tu bhagavān svayam
 > indrāri-vyākulaṁ lokaṁ mṛḍayanti yuge yuge
 
-"All the lists of the incarnations of Godhead submitted herewith are either plenary expansions or parts of the plenary expansions of the Supreme Godhead, but Kṛṣṇa is the Supreme Personality of Godhead Himself." (Bhag. 1.3.28)
+"All the lists of the incarnations of Godhead submitted herewith are either plenary expansions or parts of the plenary expansions of the Supreme Godhead, but Kr£¤a is the Supreme Personality of Godhead Himself." (Bhag. 1.3.28)
 
-Therefore, Kṛṣṇa is the original Supreme Personality of Godhead, the Absolute Truth, the source of both the Supersoul and the impersonal Brahman.
+Therefore, Kr£¤a is the original Supreme Personality of Godhead, the Absolute Truth, the source of both the Supersoul and the impersonal Brahman.
 
-In the presence of the Supreme Personality of Godhead, Arjuna's lamentation for his kinsmen is certainly unbecoming, and therefore Kṛṣṇa expressed His surprise with the word *kutas,* "wherefrom." Such unmanly sentiments were never expected from a person belonging to the civilized class of men known as *Āryans.* The word *āryan* is applicable to persons who know the value of life and have a civilization based on spiritual realization. Persons who are led by the material conception of life do not know that the aim of life is realization of the Absolute Truth, Viṣṇu, or Bhagavān, and they are captivated by the external features of the material world, and therefore they do not know what liberation is. Persons who have no knowledge of liberation from material bondage are called non-Āryans. Although Arjuna was a *kṣatriya,* he was deviating from his prescribed duties by declining to fight. This act of cowardice is described as befitting the non-Āryans. Such deviation from duty does not help one in the progress of spiritual life, nor does it even give one the opportunity to become famous in this world. Lord Kṛṣṇa did not approve of the so-called compassion of Arjuna for his kinsmen.
+In the presence of the Supreme Personality of Godhead, Arjuna's lamentation for his kinsmen is certainly unbecoming, and therefore Kr£¤a expressed His surprise with the word *kutas,* "wherefrom." Such unmanly sentiments were never expected from a person belonging to the civilized class of men known as *Āryans.* The word *āryan* is applicable to persons who know the value of life and have a civilization based on spiritual realization. Persons who are led by the material conception of life do not know that the aim of life is realization of the Absolute Truth, Viṣṇu, or Bhagavān, and they are captivated by the external features of the material world, and therefore they do not know what liberation is. Persons who have no knowledge of liberation from material bondage are called non-Āryans. Although Arjuna was a *kṣatriya,* he was deviating from his prescribed duties by declining to fight. This act of cowardice is described as befitting the non-Āryans. Such deviation from duty does not help one in the progress of spiritual life, nor does it even give one the opportunity to become famous in this world. Lord Kr£¤a did not approve of the so-called compassion of Arjuna for his kinsmen.
 
 ### Bg 2.3
-
-> क्लैब्यं मा स्म गमः पार्थ नैतत्त्वय्युपपद्यते ।
-> क्षुद्रं हृदयदौर्बल्यं त्यक्त्वोत्तिष्ठ परन्तप ॥३॥
 
 > klaibyaṁ mā sma gamaḥ pārtha
 > naitat tvayy upapadyate
@@ -1134,10 +984,6 @@ In the presence of the Supreme Personality of Godhead, Arjuna's lamentation for 
 Arjuna was addressed as the "son of Pṛthā," who happened to be the sister of Kṛṣṇa's father Vasudeva. Therefore Arjuna had a blood relationship with Kṛṣṇa. If the son of a *ksatriya* declines to fight, he is a *kṣatriya* in name only, and if the son of a *brāhmaṇa* acts impiously, he is a *brāhmaṇa* in name only. Such *kṣatriyas* and *brāhmaṇas* are unworthy sons of their fathers; therefore, Kṛṣṇa did not want Arjuna to become an unworthy son of a *kṣatriya.* Arjuna was the most intimate friend of Kṛṣṇa, and Kṛṣṇa was directly guiding him on the chariot; but in spite of all these credits, if Arjuna abandoned the battle, he would be committing an infamous act; therefore Kṛṣṇa said that such an attitude in Arjuna did not fit his personality. Arjuna might argue that he would give up the battle on the grounds of his magnanimous attitude for the most respectable Bhīṣma and his relatives, but Kṛṣṇa considered that sort of magnanimity not approved by authority. Therefore, such magnanimity or so-called nonviolence should be given up by persons like Arjuna under the direct guidance of Kṛṣṇa.
 
 ### Bg 2.4
-
-> अर्जुन उवाच ।
-> कथं भीष्ममहं सङ्ख्ये द्रोणं च मधुसूदन ।
-> इषुभिः प्रतियोत्स्यामि पूजार्हावरिसूदन ॥४॥
 
 > arjuna uvāca
 > kathaṁ bhīṣmam ahaṁ saṅkhye
@@ -1153,11 +999,6 @@ Respectable superiors like Bhīṣma the grandfather and Droṇācārya the teac
 
 ### Bg 2.5
 
-> गुरूनहत्वा हि महानुभावान्
-> श्रेयो भोक्तुं भैक्ष्यमपीह लोके ।
-> हत्वार्थकामांस्तु गुरूनिहैव
-> भुञ्जीय भोगान् रुधिरप्रदिग्धान् ॥५॥
-
 > gurūn ahatvā hi mahānubhāvān
 > śreyo bhoktuṁ bhaikṣyam apīha loke
 > hatvārtha-kāmāṁs tu gurūn ihaiva
@@ -1171,11 +1012,6 @@ According to scriptural codes, a teacher who engages in an abominable action and
 
 ### Bg 2.6
 
-> न चैतद्विद्मः कतरन्नो गरीयो
-> यद्वा जयेम यदि वा नो जयेयुः ।
-> यानेव हत्वा न जिजीविषामस्-
-> तेऽवस्थिताः प्रमुखे धार्तराष्ट्राः ॥६॥
-
 > na caitad vidmaḥ kataran no garīyo
 > yad vā jayema yadi vā no jayeyuḥ
 > yān eva hatvā na jijīviṣāmas
@@ -1188,11 +1024,6 @@ According to scriptural codes, a teacher who engages in an abominable action and
 Arjuna did not know whether he should fight and risk unnecessary violence, although fighting is the duty of the *kṣatriyas,* or whether he should refrain and live by begging. If he did not conquer the enemy, begging would be his only means of subsistence. Nor was there certainty of victory, because either side might emerge victorious. Even if victory awaited them (and their cause was justified), still, if the sons of Dhṛtarāṣṭra died in battle, it would be very difficult to live in their absence. Under the circumstances, that would be another kind of defeat for them. All these considerations by Arjuna definitely prove that he was not only a great devotee of the Lord but that he was also highly enlightened and had complete control over his mind and senses. His desire to live by begging, although he was born in the royal household, is another sign of detachment. He was truly virtuous, as these qualities, combined with his faith in the words of instruction of Śrī Kṛṣṇa (his spiritual master), indicate. It is concluded that Arjuna was quite fit for liberation. Unless the senses are controlled, there is no chance of elevation to the platform of knowledge, and without knowledge and devotion there is no chance of liberation. Arjuna was competent in all these attributes, over and above his enormous attributes in his material relationships.
 
 ### Bg 2.7
-
-> कार्पण्यदोषोपहतस्वभावः
-> पृच्छामि त्वां धर्मसम्मूढचेताः ।
-> यच्छ्रेयः स्यान्निश्चितं ब्रूहि तन्मे
-> शिष्यस्तेऽहं शाधि मां त्वां प्रपन्नम् ॥७॥
 
 > kārpaṇya-doṣopahata-svabhāvaḥ
 > pṛcchāmi tvāṁ dharma-sammūḍha-cetāḥ
@@ -1214,11 +1045,6 @@ Who is the man in material perplexities? It is he who does not understand the pr
 The *kṛpaṇas,* or miserly persons, waste their time in being overly affectionate for family, society, country, etc., in the material conception of life. One is often attached to family life, namely to wife, children and other members, on the basis of "skin disease." The *kṛpaṇa* thinks that he is able to protect his family members from death; or the *kṛpaṇa* thinks that his family or society can save him from the verge of death. Such family attachment can be found even in the lower animals who take care of children also. Being intelligent, Arjuna could understand that his affection for family members and his wish to protect them from death were the causes ot his perplexities. Although he could understand that his duty to fight was awaiting him, still, on account of miserly weakness, he could not discharge the duties. He is therefore asking Lord Kṛṣṇa, the supreme spiritual master, to make a definite solution. He offers himself to Kṛṣṇa as a disciple. He wants to stop friendly talks. Talks between the master and the disciple are serious, and now Arjuna wants to talk very seriously before the recognized spiritual master. Kṛṣṇa is therefore the original spiritual master of the science of *Bhagavad-gītā,* and Arjuna is the first disciple for understanding the *Gītā.* How Arjuna understands the *Bhagavad-gītā* is stated in the *Gītā* itself. And yet foolish mundane scholars explain that one need not submit to Kṛṣṇa as a person, but to "the unborn within Kṛṣṇa." There is no difference between Kṛṣṇa's within and without. And one who has no sense of this understanding is the greatest fool in trying to understand *Bhagavad-gītā.*
 
 ### Bg 2.8
-
-> न हि प्रपश्यामि ममापनुद्याद्
-> यच्छोकमुच्छोषणमिन्द्रियाणाम् ।
-> अवाप्य भूमावसपत्नमृद्धं
-> राज्यं सुराणामपि चाधिपत्यम् ॥८॥
 
 > na hi prapaśyāmi mamāpanudyād
 > yac chokam ucchoṣaṇam indriyāṇām
@@ -1250,10 +1076,6 @@ Therefore, if we want to curb lamentation for good, then we have to take shelter
 
 ### Bg 2.9
 
-> सञ्जय उवाच ।
-> एवमुक्त्वा हृषीकेशं गुडाकेशः परन्तप ।
-> न योत्स्य इति गोविन्दमुक्त्वा तूष्णीं बभूव ह ॥९॥
-
 > sañjaya uvāca
 > evam uktvā hṛṣīkeśaṁ
 > guḍākeśaḥ parantapaḥ
@@ -1268,9 +1090,6 @@ Dhṛtarāṣṭra must have been very glad to understand that Arjuna was not go
 
 ### Bg 2.10
 
-> तमुवाच हृषीकेशः प्रहसन्निव भारत ।
-> सेनयोरुभयोर्मध्ये विषीदन्तमिदं वचः ॥१०॥
-
 > tam uvāca hṛṣīkeśaḥ
 > prahasann iva bhārata
 > senayor ubhayor madhye
@@ -1283,10 +1102,6 @@ Dhṛtarāṣṭra must have been very glad to understand that Arjuna was not go
 The talk was going on between intimate friends, namely the Hṛṣīkeśa and the Guḍākeśa. As friends, both of them were on the same level, but one of them voluntarily became a student of the other. Kṛṣṇa was smiling because a friend had chosen to become a disciple. As Lord of all, He is always in the superior position as the master of everyone, and yet the Lord accepts one who wishes to be a friend, a son, a lover or a devotee, or who wants Him in such a role. But when He was accepted as the master, He at once assumed the role and talked with the disciple like the master—with gravity, as it is required. It appears that the talk between the master and the disciple was openly exchanged in the presence of both armies so that all were benefitted. So the talks of *Bhagavad-gītā* are not for any particular person, society, or community, but they are for all, and friends or enemies are equally entitled to hear them.
 
 ### Bg 2.11
-
-> श्रीभगवानुवाच ।
-> अशोच्यानन्वशोचस्त्वं प्रज्ञावादांश्च भाषसे ।
-> गतासूनगतासूंश्च नानुशोचन्ति पण्डिताः ॥११॥
 
 > śrī-bhagavān uvāca
 > aśocyān anvaśocas tvaṁ
@@ -1301,9 +1116,6 @@ The talk was going on between intimate friends, namely the Hṛṣīkeśa and th
 The Lord at once took the position of the teacher and chastised the student, calling him, indirectly, a fool. The Lord said, you are talking like a learned man, but you do not know that one who is learned—one who knows what is body and what is soul—does not lament for any stage of the body, neither in the living nor in the dead condition. As it will be explained in later chapters, it will be clear that knowledge means to know matter and spirit and the controller of both. Arjuna argued that religious principles should be given more importance than politics or sociology, but he did not know that knowledge of matter, soul and the Supreme is even more important than religious formularies. And, because he was lacking in that knowledge, he should not have posed himself as a very learned man. As he did not happen to be a very learned man, he was consequently lamenting for something which was unworthy of lamentation. The body is born and is destined to be vanquished today or tomorrow; therefore the body is not as important as the soul. One who knows this is actually learned, and for him there is no cause for lamentation, regardless of the condition of the material body.
 
 ### Bg 2.12
-
-> न त्वेवाहं जातु नासं न त्वं नेमे जनाधिपाः ।
-> न चैव न भविष्यामः सर्वे वयमतः परम् ॥१२॥
 
 > na tv evāhaṁ jātu nāsaṁ
 > na tvaṁ neme janādhipāḥ
@@ -1328,9 +1140,6 @@ The Māyāvādī theory that after liberation the individual soul, separated by 
 
 ### Bg 2.13
 
-> देहिनोऽस्मिन्यथा देहे कौमारं यौवनं जरा ।
-> तथा देहान्तरप्राप्तिर्धीरस्तत्र न मुह्यति ॥१३॥
-
 > dehino 'smin yathā dehe
 > kaumāraṁ yauvanaṁ jarā
 > tathā dehāntara-prāptir
@@ -1348,9 +1157,6 @@ As confirmed in the *Gītā,* the fragmental portions of the Supreme exist etern
 
 ### Bg 2.14
 
-> मात्रास्पर्शास्तु कौन्तेय शीतोष्णसुखदुःखदाः ।
-> आगमापायिनोऽनित्यास्तांस्तितिक्षस्व भारत ॥१४॥
-
 > mātrā-sparśās tu kaunteya
 > śītoṣṇa-sukha-duḥkha-dāḥ
 > āgamāpāyino 'nityās
@@ -1366,9 +1172,6 @@ The two different names of address given to Arjuna are also significant. To addr
 
 ### Bg 2.15
 
-> यं हि न व्यथयन्त्येते पुरुषं पुरुषर्षभ ।
-> समदुःखसुखं धीरं सोऽमृतत्वाय कल्पते ॥१५॥
-
 > yaṁ hi na vyathayanty ete
 > puruṣaṁ puruṣarṣabha
 > sama-duḥkha-sukhaṁ dhīraṁ
@@ -1381,9 +1184,6 @@ The two different names of address given to Arjuna are also significant. To addr
 Anyone who is steady in his determination for the advanced stage of spiritual realization and can equally tolerate the onslaughts of distress and happiness is certainly a person eligible for liberation. In the *varṇāśrama* institution, the fourth stage of life, namely the renounced order (*sannyāsa*) is a painstaking situation. But one who is serious about making his life perfect surely adopts the *sannyāsa* order of life in spite of all difficulties. The difficulties usually arise from having to sever family relationships, to give up the connection of wife and children. But if anyone is able to tolerate such difficulties, surely his path to spiritual realization is complete. Similarly, in Arjuna's discharge of duties as a *kṣatriya,* he is advised to persevere, even if it is difficult to fight with his family members or similarly beloved persons. Lord Caitanya took *sannyāsa* at the age of twenty-four, and His dependants, young wife as well as old mother, had no one else to look after them. Yet for a higher cause He took *sannyāsa* and was steady in the discharge of higher duties. That is the way of achieving liberation from material bondage.
 
 ### Bg 2.16
-
-> नासतो विद्यते भावो नाभावो विद्यते सतः ।
-> उभयोरपि दृष्टोऽन्तस्त्वनयोस्तत्त्वदर्शिभिः ॥१६॥
 
 > nāsato vidyate bhāvo
 > nābhāvo vidyate sataḥ
@@ -1399,9 +1199,6 @@ There is no endurance of the changing body. That the body is changing every mome
 This is the beginning of the instruction by the Lord to the living entities who are bewildered by the influence of ignorance. Removal of ignorance involves the reestablishment of the eternal relationship between the worshiper and the worshipable and the consequent understanding of the difference between the part and parcel living entities and the Supreme Personality of Godhead. One can understand the nature of the Supreme by thorough study of oneself, the difference between oneself and the Supreme being understood as the relationship between the part and the whole. In the *Vedānta-sūtras,* as well as in the *Śrīmad-Bhāgavatam,* the Supreme has been accepted as the origin of all emanations. Such emanations are experienced by superior and inferior natural sequences. The living entities belong to the superior nature, as it will be revealed in the Seventh Chapter. Although there is no difference between the energy and the energetic, the energetic is accepted as the Supreme, and energy or nature is accepted as the subordinate. The living entities, therefore, are always subordinate to the Supreme Lord, as in the case of the master and the servant, or the teacher and the taught. Such clear knowledge is impossible to understand under the spell of ignorance, and to drive away such ignorance the Lord teaches the *Bhagavad-gītā* for the enlightenment of all living entities for all time.
 
 ### Bg 2.17
-
-> अविनाशि तु तद्विद्धि येन सर्वमिदं ततम् ।
-> विनाशमव्ययस्यास्य न कश्चित्कर्तुमर्हति ॥१७॥
 
 > avināśi tu tad viddhi
 > yena sarvam idaṁ tatam
@@ -1443,9 +1240,6 @@ Such atomic particles of the spirit whole are compared to the sunshine molecules
 
 ### Bg 2.18
 
-> अन्तवन्त इमे देहा नित्यस्योक्ताः शरीरिणः ।
-> अनाशिनोऽप्रमेयस्य तस्माद्युध्यस्व भारत ॥१८॥
-
 > antavanta ime dehā
 > nityasyoktāḥ śarīriṇaḥ
 > anāśino 'prameyasya
@@ -1459,9 +1253,6 @@ The material body is perishable by nature. It may perish immediately, or it may 
 
 ### Bg 2.19
 
-> य एनं वेत्ति हन्तारं यश्चैनं मन्यते हतम् ।
-> उभौ तौ न विजानीतो नायं हन्ति न हन्यते ॥१९॥
-
 > ya enaṁ vetti hantāraṁ
 > yaś cainaṁ manyate hatam
 > ubhau tau na vijānīto
@@ -1474,11 +1265,6 @@ The material body is perishable by nature. It may perish immediately, or it may 
 When an embodied living entity is hurt by fatal weapons, it is to be known that the living entity within the body is not killed. The spirit soul is so small that it is impossible to kill him by any material weapon, as is evident from the previous verses. Nor is the living entity killable because of his spiritual constitution. What is killed, or is supposed to be killed, is the body only. This, however, does not at all encourage killing of the body. The Vedic injunction is, "*māhiṁsyāt sarva-bhūtāni*" never commit violence to anyone. Nor does understanding that the living entity is not killed encourage animal slaughter. Killing the body of anyone without authority is abominable and is punishable by the law of the state as well as by the law of the Lord. Arjuna, however, is being engaged in killing for the principle of religion, and not whimsically.
 
 ### Bg 2.20
-
-> न जायते म्रियते वा कदाचिन्
-> नायं भूत्वा भविता वा न भूयः ।
-> अजो नित्यः शाश्वतोऽयं पुराणो
-> न हन्यते हन्यमाने शरीरे ॥२०॥
 
 > na jāyate mriyate vā kadācin
 > nāyaṁ bhūtvā bhavitā vā na bhūyaḥ
@@ -1515,9 +1301,6 @@ There are two kinds of souls—namely the minute particle soul (*aṇu-ātmā)* 
 
 ### Bg 2.21
 
-> वेदाविनाशिनं नित्यं य एनमजमव्ययम् ।
-> कथं स पुरुषः पार्थ कं घातयति हन्ति कम् ॥२१॥
-
 > vedāvināśinaṁ nityaṁ
 > ya enam ajam avyayam
 > kathaṁ sa puruṣaḥ pārtha
@@ -1530,11 +1313,6 @@ There are two kinds of souls—namely the minute particle soul (*aṇu-ātmā)* 
 Everything has its proper utility, and a man who is situated in complete knowledge knows how and where to apply a thing for its proper utility. Similarly, violence also has its utility, and how to apply violence rests with the person in knowledge. Although the justice of the peace awards capital punishment to a person condemned for murder, the justice of the peace cannot be blamed because he orders violence to another person according to the codes of justice. In *Manu-saṁhitā,* the lawbook for mankind, it is supported that a murderer should be condemned to death so that in his next life he will not have to suffer for the great sin he has committed. Therefore, the king's punishment of hanging a murderer is actually beneficial. Similarly, when Kṛṣṇa orders fighting, it must be concluded that violence is for supreme justice, and, as such, Arjuna should follow the instruction, knowing well that such violence, committed in the act of fighting for Kṛṣṇa, is not violence at all because, at any rate, the man, or rather the soul, cannot be killed; so for the administration of justice, so-called violence is permitted. A surgical operation is not meant to kill the patient, but to cure him. Therefore the fighting to be executed by Arjuna at the instruction of Kṛṣṇa is with full knowledge, so there is no possibility of sinful reaction.
 
 ### Bg 2.22
-
-> वासांसि जीर्णानि यथा विहाय
-> नवानि गृह्णाति नरोऽपराणि ।
-> तथा शरीराणि विहाय जीर्णा-
-> न्यन्यानि संयाति नवानि देही ॥२२॥
 
 > vāsāṁsi jīrṇāni yathā vihāya
 > navāni gṛhṇāti naro 'parāṇi
@@ -1560,9 +1338,6 @@ Arjuna is advised herewith by the Lord not to lament for the bodily change of hi
 
 ### Bg 2.23
 
-> नैनं छिन्दन्ति शस्त्राणि नैनं दहति पावकः ।
-> न चैनं क्लेदयन्त्यापो न शोषयति मारुतः ॥२३॥
-
 > nainaṁ chindanti śastrāṇi
 > nainaṁ dahati pāvakaḥ
 > na cainaṁ kledayanty āpo
@@ -1577,9 +1352,6 @@ All kinds of weapons, swords, flames, rains, tornadoes, etc., are unable to kill
 Nor was it ever possible to cut the individual souls from the original Soul. The Māyāvādī, however, cannot describe how the individual soul evolved from ignorance and consequently became covered by illusory energy. Because they are atomic individual souls (*sanātana*) eternally, they are prone to be covered by the illusory energy, and thus they become separated from the association of the Supreme Lord, just as the sparks of the fire, although one in quality with the fire, are prone to be extinguished when out of the fire. In the *Varāha Purāṇa,* the living entities are described as separated parts and parcels of the Supreme. They are eternally so, according to the *Bhagavad-gītā* also. So, even after being liberated from illusion, the living entity remains a separate identity, as is evident from the teachings of the Lord to Arjuna. Arjuna became liberated by the knowledge received from Kṛṣṇa, but he never became one with Kṛṣṇa.
 
 ### Bg 2.24
-
-> अच्छेद्योऽयमदाह्योऽयमक्लेद्योऽशोष्य एव च ।
-> नित्यः सर्वगतः स्थाणुरचलोऽयं सनातनः ॥२४॥
 
 > acchedyo 'yam adāhyo 'yam
 > akledyo 'śoṣya eva ca
@@ -1596,9 +1368,6 @@ The word *sarva-gataḥ* (all-pervading) is significant because there is no doub
 
 ### Bg 2.25
 
-> अव्यक्तोऽयमचिन्त्योऽयमविकार्योऽयमुच्यते ।
-> तस्मादेवं विदित्वैनं नानुशोचितुमर्हसि ॥२५॥
-
 > avyakto 'yam acintyo 'yam
 > avikāryo 'yam ucyate
 > tasmād evaṁ viditvainaṁ
@@ -1611,9 +1380,6 @@ The word *sarva-gataḥ* (all-pervading) is significant because there is no doub
 As described previously, the magnitude of the soul is so small for our material calculation that he cannot be seen even by the most powerful microscope; therefore, he is invisible. As far as the soul's existence is concerned, no one can establish his existence experimentally beyond the proof of *śruti* or Vedic wisdom. We have to accept this truth, because there is no other source of understanding the existence of the soul, although it is a fact by perception. There are many things we have to accept solely on grounds of superior authority. No one can deny the existence of his father, based upon the authority of his mother. There is no other source of understanding the identity of the father except by the authority of the mother. Similarly, there is no other source of understanding the soul except by studying the *Vedas.* In other words, the soul is inconceivable by human experimental knowledge. The soul is consciousness and conscious—that also is the statement of the *Vedas,* and we have to accept that. Unlike the bodily changes, there is no change in the soul. As eternally unchangeable, the soul remains atomic in comparison to the infinite Supreme Soul. The Supreme Soul is infinite, and the atomic soul is infinitesimal. Therefore, the infinitesimal soul, being unchangeable, can never become equal to the infinite soul, or the Supreme Personality of Godhead. This concept is repeated in the *Vedas* in different ways just to confirm the stability of the conception of the soul. Repetition of something is necessary in order that we understand the matter thoroughly without error.
 
 ### Bg 2.26
-
-> अथ चैनं नित्यजातं नित्यं वा मन्यसे मृतम् ।
-> तथापि त्वं महाबाहो नैवं शोचितुमर्हसि ॥२६॥
 
 > atha cainaṁ nitya-jātaṁ
 > nityaṁ vā manyase mṛtam
@@ -1630,9 +1396,6 @@ Even if Arjuna did not believe in the existence of the soul—as in the *Vaibhā
 
 ### Bg 2.27
 
-> जातस्य हि ध्रुवो मृत्युर्ध्रुवं जन्म मृतस्य च ।
-> तस्मादपरिहार्येऽर्थे न त्वं शोचितुमर्हसि ॥२७॥
-
 > jātasya hi dhruvo mṛtyur
 > dhruvaṁ janma mṛtasya ca
 > tasmād aparihārye 'rthe
@@ -1648,9 +1411,6 @@ The Battle of Kurukṣetra, being the will of the Supreme, was an inevitable eve
 
 ### Bg 2.28
 
-> अव्यक्तादीनि भूतानि व्यक्तमध्यानि भारत ।
-> अव्यक्तनिधनान्येव तत्र का परिदेवना ॥२८॥
-
 > avyaktādīni bhūtāni
 > vyakta-madhyāni bhārata
 > avyakta-nidhanāny eva
@@ -1665,11 +1425,6 @@ Accepting that there are two classes of philosophers, one believing in the exist
 And if we accept the Vedic conclusion as stated in the *Bhagavad-gītā (antavanta ime dehāḥ)* that these material bodies are perishable in due course of time (*nityasyoktāḥ śarīriṇaḥ*) but that soul is eternal, then we must remember always that the body is like a dress; therefore why lament the changing of a dress? The material body has no factual existence in relation to the eternal soul. It is something like a dream. In a dream we may think of flying in the sky, or sitting on a chariot as a king, but when we wake up we can see that we are neither in the sky nor seated on the chariot. The Vedic wisdom encourages self-realization on the basis of the nonexistence of the material body. Therefore, in either case, whether one believes in the existence of the soul, or one does not believe in the existence of the soul, there is no cause for lamentation for loss of the body.
 
 ### Bg 2.29
-
-> आश्चर्यवत्पश्यति कश्चिदेन-
-> माश्चर्यवद्वदति तथैव चान्यः ।
-> आश्चर्यवच्चैनमन्यः शृणोति
-> श्रुत्वाप्येनं वेद न चैव कश्चित् ॥२९॥
 
 > āścarya-vat paśyati kaścid enam
 > āścarya-vad vadati tathaiva cānyaḥ
@@ -1693,9 +1448,6 @@ Some people who are inclined to hear about the soul may be attending lectures, i
 
 ### Bg 2.30
 
-> देही नित्यमवध्योऽयं देहे सर्वस्य भारत ।
-> तस्मात्सर्वाणि भूतानि न त्वं शोचितुमर्हसि ॥३०॥
-
 > dehī nityam avadhyo 'yaṁ
 > dehe sarvasya bhārata
 > tasmāt sarvāṇi bhūtāni
@@ -1708,9 +1460,6 @@ Some people who are inclined to hear about the soul may be attending lectures, i
 The Lord now concludes the chapter of instruction on the immutable spirit soul. In describing the immortal soul in various ways, Lord Kṛṣṇa establishes that the soul is immortal and the body is temporary. Therefore Arjuna as a *kṣatriya* should not abandon his duty out of fear that his grandfather and teacher—Bhīṣma and Droṇa—will die in the battle. On the authority of Śrī Kṛṣṇa, one has to believe that there is a soul different from the material body, not that there is no such thing as soul, or that living symptoms develop at a certain stage of material maturity resulting from the interaction of chemicals. Though the soul is immortal, violence is not encouraged, but at the time of war it is not discouraged when there is actual need for it. That need must be justified in terms of the sanction of the Lord, and not capriciously.
 
 ### Bg 2.31
-
-> स्वधर्ममपि चावेक्ष्य न विकम्पितुमर्हसि ।
-> धर्म्याद्धि युद्धाच्छ्रेयोऽन्यत्क्षत्रियस्य न विद्यते ॥३१॥
 
 > sva-dharmam api cāvekṣya
 > na vikampitum arhasi
@@ -1734,9 +1483,6 @@ There are two kinds of *svadharmas,* specific duties. As long as one is not libe
 
 ### Bg 2.32
 
-> यदृच्छया चोपपन्नं स्वर्गद्वारमपावृतम् ।
-> सुखिनः क्षत्रियाः पार्थ लभन्ते युद्धमीदृशम् ॥३२॥
-
 > yadṛcchayā copapannaṁ
 > svarga-dvāram apāvṛtam
 > sukhinaḥ kṣatriyāḥ pārtha
@@ -1757,9 +1503,6 @@ Considering all aspects, Arjuna had no reason to refrain from fighting. If he sh
 
 ### Bg 2.33
 
-> अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि ।
-> ततः स्वधर्मं कीर्तिं च हित्वा पापमवाप्स्यसि ॥३३॥
-
 > atha cet tvam imaṁ dharmyaṁ
 > saṅgrāmaṁ na kariṣyasi
 > tataḥ sva-dharmaṁ kīrtiṁ ca
@@ -1772,9 +1515,6 @@ Considering all aspects, Arjuna had no reason to refrain from fighting. If he sh
 Arjuna was a famous fighter, and he attained fame by fighting many great demigods, including even Lord Śiva. After fighting and defeating Lord Śiva in the dress of a hunter, Arjuna pleased the Lord and received as a reward a weapon called *pāśupata-astra.* Everyone knew that he was a great warrior. Even Droṇācārya gave him benediction and awarded him the special weapon by which he could kill even his teacher. So he was credited with so many military certificates from many authorities, including his adopted father Indra, the heavenly king. But if he abandoned the battle, he would not only neglect his specific duty as a *kṣatriya,* but he would lose all his fame and good name and thus prepare his royal road to hell. In other words, he would go to hell, not by fighting, but by withdrawing from battle.
 
 ### Bg 2.34
-
-> अकीर्तिं चापि भूतानि कथयिष्यन्ति तेऽव्ययाम् ।
-> सम्भावितस्य चाकीर्तिर्मरणादतिरिच्यते ॥३४॥
 
 > akīrtiṁ cāpi bhūtāni
 > kathayiṣyanti te 'vyayām
@@ -1791,9 +1531,6 @@ So, the final judgement of the Lord was for Arjuna to die in the battle and not 
 
 ### Bg 2.35
 
-> भयाद्रणादुपरतं मंस्यन्ते त्वां महारथाः ।
-> येषां च त्वं बहुमतो भूत्वा यास्यसि लाघवम् ॥३५॥
-
 > bhayād raṇād uparataṁ
 > maṁsyante tvāṁ mahā-rathāḥ
 > yeṣāṁ ca tvaṁ bahu-mato
@@ -1806,9 +1543,6 @@ So, the final judgement of the Lord was for Arjuna to die in the battle and not 
 Lord Kṛṣṇa continued to give His verdict to Arjuna: "Do not think that the great generals like Duryodhana, Karṇa, and other contemporaries will think that you have left the battlefield out of compassion for your brothers and grandfather. They will think that you have left out of fear for your life. And thus their high estimation of your personality will go to hell."
 
 ### Bg 2.36
-
-> अवाच्यवादांश्च बहून्वदिष्यन्ति तवाहिताः ।
-> निन्दन्तस्तव सामर्थ्यं ततो दुःखतरं नु किम् ॥३६॥
 
 > avācya-vādāṁś ca bahūn
 > vadiṣyanti tavāhitāḥ
@@ -1823,9 +1557,6 @@ Lord Kṛṣṇa was astonished in the beginning at Arjuna's uncalled-for plea f
 
 ### Bg 2.37
 
-> हतो वा प्राप्स्यसि स्वर्गं जित्वा वा भोक्ष्यसे महीम् ।
-> तस्मादुत्तिष्ठ कौन्तेय युद्धाय कृतनिश्चयः ॥३७॥
-
 > hato vā prāpsyasi svargaṁ
 > jitvā vā bhokṣyase mahīm
 > tasmād uttiṣṭha kaunteya
@@ -1838,9 +1569,6 @@ Lord Kṛṣṇa was astonished in the beginning at Arjuna's uncalled-for plea f
 Even though there was no certainty of victory for Arjuna's side, he still had to fight; for, even being killed there, he could be elevated into the heavenly planets.
 
 ### Bg 2.38
-
-> सुखदुःखे समे कृत्वा लाभालाभौ जयाजयौ ।
-> ततो युद्धाय युज्यस्व नैवं पापमवाप्स्यसि ॥३८॥
 
 > sukha-duḥkhe same kṛtvā
 > lābhālābhau jayājayau
@@ -1863,9 +1591,6 @@ Lord Kṛṣṇa now directly says that Arjuna should fight for the sake of figh
 
 ### Bg 2.39
 
-> एषा तेऽभिहिता साङ्ख्ये बुद्धिर्योगे त्विमां शृणु ।
-> बुद्ध्या युक्तो यया पार्थ कर्मबन्धं प्रहास्यसि ॥३९॥
-
 > eṣā te 'bhihitā sāṅkhye
 > buddhir yoge tv imāṁ śṛṇu
 > buddhyā yukto yayā pārtha
@@ -1886,9 +1611,6 @@ Of course, atheistic *sāṅkhya-yoga* has nothing to do with *bhakti-yoga,* yet
 One should therefore understand that *buddhi-yoga* means to work in Kṛṣṇa consciousness, in the full bliss and knowledge of devotional service. One who works for the satisfaction of the Lord only, however difficult such work may be, is working under the principles of *buddhi-yoga* and finds himself always in transcendental bliss. By such transcendental engagement, one achieves all transcendental qualities automatically, by the grace of the Lord, and thus his liberation is complete in itself, without his making extraneous endeavors to acquire knowledge. There is much difference between work in Kṛṣṇa consciousness and work for fruitive results, especially in the matter of sense gratification for achieving results in terms of family or material happiness. *Buddhi-yoga* is therefore the transcendental quality of the work that we perform.
 
 ### Bg 2.40
-
-> नेहाभिक्रमनाशोऽस्ति प्रत्यवायो न विद्यते ।
-> स्वल्पमप्यस्य धर्मस्य त्रायते महतो भयात् ॥४०॥
 
 > nehābhikrama-nāśo 'sti
 > pratyavāyo na vidyate
@@ -1911,9 +1633,6 @@ Activity in Kṛṣṇa consciousness, or acting for the benefit of Kṛṣṇa 
 Material activities and their results end with the body. But work in Kṛṣṇa consciousness carries the person again to Kṛṣṇa consciousness, even after the loss of the body. At least one is sure to have a chance in the next life of being born again as a human being, either in the family of a great cultured *brāhmaṇa* or in a rich aristocratic family that will give one a further chance for elevation. That is the unique quality of work done in Kṛṣṇa consciousness.
 
 ### Bg 2.41
-
-> व्यवसायात्मिका बुद्धिरेकेह कुरुनन्दन ।
-> बहुशाखा ह्यनन्ताश्च बुद्धयोऽव्यवसायिनाम् ॥४१॥
 
 > vyavasāyātmikā buddhir
 > ekeha kuru-nandana
@@ -1944,11 +1663,6 @@ The whole process, however, depends on perfect knowledge of the soul beyond the 
 
 ### Bg 2.42-43
 
-> यामिमां पुष्पितां वाचं प्रवदन्त्यविपश्चितः ।
-> वेदवादरताः पार्थ नान्यदस्तीति वादिनः ॥४२॥
-> कामात्मानः स्वर्गपरा जन्मकर्मफलप्रदाम् ।
-> क्रियाविशेषबहुलां भोगैश्वर्यगतिं प्रति ॥४३॥
-
 > yām imāṁ puṣpitāṁ vācaṁ
 > pravadanty avipaścitaḥ
 > veda-vāda-ratāḥ pārtha
@@ -1969,9 +1683,6 @@ In the *karma-kāṇḍa* section of the *Vedas* it is said that those who perfo
 
 ### Bg 2.44
 
-> भोगैश्वर्यप्रसक्तानां तयापहृतचेतसाम् ।
-> व्यवसायात्मिका बुद्धिः समाधौ न विधीयते ॥४४॥
-
 > bhogaiśvarya-prasaktānāṁ
 > tayāpahṛta-cetasām
 > vyavasāyātmikā buddhiḥ
@@ -1984,9 +1695,6 @@ In the *karma-kāṇḍa* section of the *Vedas* it is said that those who perfo
 *Samādhi* means "fixed mind." The Vedic dictionary, the *Nirukti,* says, *samyag ādhīyate 'sminn ātmatattva-yāthātmyam:* "When the mind is fixed for understanding the self, it is called *samādhi.*" *Samādhi* is never possible for persons interested in material sense enjoyment, nor for those who are bewildered by such temporary things. They are more or less condemned by the process of material energy.
 
 ### Bg 2.45
-
-> त्रैगुण्यविषया वेदा निस्त्रैगुण्यो भवार्जुन ।
-> निर्द्वन्द्वो नित्यसत्त्वस्थो निर्योगक्षेम आत्मवान् ॥४५॥
 
 > trai-guṇya-viṣayā vedā
 > nistrai-guṇyo bhavārjuna
@@ -2002,9 +1710,6 @@ All material activities involve actions and reactions in the three modes of mate
 As long as the material body exists, there are actions and reactions in the material modes. One has to learn tolerance in the face of dualities such as happiness and distress, or cold and warmth, and by tolerating such dualities become free from anxieties regarding gain and loss. This transcendental position is achieved in full Kṛṣṇa consciousness when one is fully dependant on the good will of Kṛṣṇa
 
 ### Bg 2.46
-
-> यावानर्थ उदपाने सर्वतः सम्प्लुतोदके ।
-> तावान्सर्वेषु वेदेषु ब्राह्मणस्य विजानतः ॥४६॥
 
 > yāvān artha udapāne
 > sarvataḥ samplutodake
@@ -2026,9 +1731,6 @@ The rituals and sacrifices mentioned in the *karma-kāṇḍa* division of the V
 
 ### Bg 2.47
 
-> कर्मण्येवाधिकारस्ते मा फलेषु कदाचन ।
-> मा कर्मफलहेतुर्भूर्मा ते सङ्गोऽस्त्वकर्मणि ॥४७॥
-
 > karmaṇy evādhikāras te
 > mā phaleṣu kadācana
 > mā karma-phala-hetur bhūr
@@ -2046,9 +1748,6 @@ Arjuna was therefore advised by the Lord to fight as a matter of duty without at
 
 ### Bg 2.48
 
-> योगस्थः कुरु कर्माणि सङ्गं त्यक्त्वा धनञ्जय ।
-> सिद्ध्यसिद्ध्योः समो भूत्वा समत्वं योग उच्यते ॥४८॥
-
 > yoga-sthaḥ kuru karmāṇi
 > saṅgaṁ tyaktvā dhanañjaya
 > siddhy-asiddhyoḥ samo bhūtvā
@@ -2064,9 +1763,6 @@ Arjuna is a *kṣatriya,* and as such he is participating in the *varṇāśrama
 
 ### Bg 2.49
 
-> दूरेण ह्यवरं कर्म बुद्धियोगाद्धनञ्जय ।
-> बुद्धौ शरणमन्विच्छ कृपणाः फलहेतवः ॥४९॥
-
 > dūreṇa hy avaraṁ karma
 > buddhi-yogād dhanañjaya
 > buddhau śaraṇam anviccha
@@ -2080,9 +1776,6 @@ One who has actually come to understand one's constitutional position as the ete
 
 ### Bg 2.50
 
-> बुद्धियुक्तो जहातीह उभे सुकृतदुष्कृते ।
-> तस्माद्योगाय युज्यस्व योगः कर्मसु कौशलम् ॥५०॥
-
 > buddhi-yukto jahātīha
 > ubhe sukṛta-duṣkṛte
 > tasmād yogāya yujyasva
@@ -2095,9 +1788,6 @@ One who has actually come to understand one's constitutional position as the ete
 Since time immemorial each living entity has accumulated the various reactions of his good and bad work, As such, he is continuously ignorant of his real constitutional position. One's ignorance can be removed by the instruction of the *Bhagavad-gītā* which teaches one to surrender unto Lord Śrī Kṛṣṇa in all respects and become liberated from the chained victimization of action and reaction, birth after birth. Arjuna is therefore advised to act in Kṛṣṇa consciousness, the purifying process of resultant action.
 
 ### Bg 2.51
-
-> कर्मजं बुद्धियुक्ता हि फलं त्यक्त्वा मनीषिणः ।
-> जन्मबन्धविनिर्मुक्ताः पदं गच्छन्त्यनामयम् ॥५१॥
 
 > karma-jaṁ buddhi-yuktā hi
 > phalaṁ tyaktvā manīṣiṇaḥ
@@ -2122,9 +1812,6 @@ Owing to ignorance, one does not know that this material world is a miserable pl
 
 ### Bg 2.52
 
-> यदा ते मोहकलिलं बुद्धिर्व्यतितरिष्यति ।
-> तदा गन्तासि निर्वेदं श्रोतव्यस्य श्रुतस्य च ॥५२॥
-
 > yadā te moha-kalilaṁ
 > buddhir vyatitariṣyati
 > tadā gantāsi nirvedaṁ
@@ -2147,9 +1834,6 @@ The Vedic rites and rituals are imperative for neophytes: comprehending all kind
 
 ### Bg 2.53
 
-> श्रुतिविप्रतिपन्ना ते यदा स्थास्यति निश्चला ।
-> समाधावचला बुद्धिस्तदा योगमवाप्स्यसि ॥५३॥
-
 > śruti-vipratipannā te
 > yadā sthāsyati niścalā
 > samādhāv acalā buddhis
@@ -2162,10 +1846,6 @@ The Vedic rites and rituals are imperative for neophytes: comprehending all kind
 To say that one is in *samādhi* is to say that one has fully realized Kṛṣṇa consciousness; that is, one in full *samādhi* has realized Brahman, Paramātmā and Bhagavān. The highest perfection of self-realization is to understand that one is eternally the servitor of Kṛṣṇa and that one's only business is to discharge one's duties in Kṛṣṇa consciousness. A Kṛṣṇa conscious person, or unflinching devotee of the Lord, should not be disturbed by the flowery language of the *Vedas* nor be engaged in fruitive activities for promotion to the heavenly kingdom. In Kṛṣṇa consciousness, one comes directly into communion with Kṛṣṇa, and thus all directions from Kṛṣṇa may be understood in that transcendental state. One is sure to achieve results by such activities and attain conclusive knowledge. One has only to carry out the orders of Kṛṣṇa or His representative, the spiritual master.
 
 ### Bg 2.54
-
-> अर्जुन उवाच ।
-> स्थितप्रज्ञस्य का भाषा समाधिस्थस्य केशव ।
-> स्थितधीः किं प्रभाषेत किमासीत व्रजेत किम् ॥५४॥
 
 > arjuna uvāca
 > sthita-prajñasya kā bhāṣā
@@ -2181,10 +1861,6 @@ As there are symptoms for each and every man, in terms of his particular situati
 
 ### Bg 2.55
 
-> श्रीभगवानुवाच ।
-> प्रजहाति यदा कामान्सर्वान्पार्थ मनोगतान् ।
-> आत्मन्येवात्मना तुष्टः स्थितप्रज्ञस्तदोच्यते ॥५५॥
-
 > śrī-bhagavān uvāca
 > prajahāti yadā kāmān
 > sarvān pārtha mano-gatān
@@ -2199,9 +1875,6 @@ The *Bhāgavatam* affirms that any person who is fully in Kṛṣṇa consciousn
 
 ### Bg 2.56
 
-> दुःखेष्वनुद्विग्नमनाः सुखेषु विगतस्पृहः ।
-> वीतरागभयक्रोधः स्थितधीर्मुनिरुच्यते ॥५६॥
-
 > duḥkheṣv anudvigna-manāḥ
 > sukheṣu vigata-spṛhaḥ
 > vīta-rāga-bhaya-krodhaḥ
@@ -2214,9 +1887,6 @@ The *Bhāgavatam* affirms that any person who is fully in Kṛṣṇa consciousn
 The word *muni* means one who can agitate his mind in various ways for mental speculation without coming to a factual conclusion. It is said that every *muni* has a different angle of vision, and unless a *muni* differs from other *munis,* he cannot be called a *muni* in the strict sense of the term. *Nāsau munir yasya mataṁ na binnam.* But a *sthita-dhī-muni* as mentioned herein by the Lord, is different from an ordinary *muni.* The *sthita-dhī-muni* is always in Kṛṣṇa consciousness, for he has exhausted all his business of creative speculation. He has surpassed the stage of mental speculations and has come to the conclusion that Lord Śrī Kṛṣṇa, or Vāsudeva, is everything. He is called a *muni* fixed in mind. Such a fully Kṛṣṇa conscious person is not at all disturbed by the onslaughts of the threefold miseries, for he accepts all miseries as the mercy of the Lord, thinking himself only worthy of more trouble due to his past misdeeds; and he sees that his miseries, by the grace of the Lord, are minimized to the lowest. Similarly, when he is happy he gives credit to the Lord, thinking himself unworthy of the happiness; he realizes that it is due only to the Lord's grace that he is in such a comfortable condition and able to render better service to the Lord. And, for the service of the Lord, he is always daring and active and is not influenced by attachment or aversion. Attachment means accepting things for one's own sense gratification, and detachment is the absence of such sensual attachment. But one fixed in Kṛṣṇa consciousness has neither attachment nor detachment because his life is dedicated in the service of the Lord. Consequently he is not at all angry even when his attempts are unsuccessful. A Kṛṣṇa conscious person is always steady in his determination.
 
 ### Bg 2.57
-
-> यः सर्वत्रानभिस्नेहस्तत्तत्प्राप्य शुभाशुभम् ।
-> नाभिनन्दति न द्वेष्टि तस्य प्रज्ञा प्रतिष्ठिता ॥५७॥
 
 > yaḥ sarvatrānabhisnehas
 > tat tat prāpya śubhāśubham
@@ -2231,9 +1901,6 @@ There is always some upheaval in the material world which may be good or evil. O
 
 ### Bg 2.58
 
-> यदा संहरते चायं कूर्मोऽङ्गानीव सर्वशः ।
-> इन्द्रियाणीन्द्रियार्थेभ्यस्तस्य प्रज्ञा प्रतिष्ठिता ॥५८॥
-
 > yadā saṁharate cāyaṁ
 > kūrmo 'ṅgānīva sarvaśaḥ
 > indriyāṇīndriyārthebhyas
@@ -2247,9 +1914,6 @@ The test of a *yogī,* devotee, or self-realized soul is that he is able to cont
 
 ### Bg 2.59
 
-> विषया विनिवर्तन्ते निराहारस्य देहिनः ।
-> रसवर्जं रसोऽप्यस्य परं दृष्ट्वा निवर्तते ॥५९॥
-
 > viṣayā vinivartante
 > nirāhārasya dehinaḥ
 > rasa-varjaṁ raso 'py asya
@@ -2262,9 +1926,6 @@ The test of a *yogī,* devotee, or self-realized soul is that he is able to cont
 Unless one is transcendentally situated, it is not possible to cease from sense enjoyment. The process of restriction from sense enjoyment by rules and regulations is something like restricting a diseased person from certain types of eatables. The patient, however, neither likes such restrictions, nor loses his taste for eatables. Similarly, sense restriction by some spiritual process like *aṣṭāṅga-yoga,* in the matter of *yama, niyama, āsana, prāṇāyāma, pratyāhāra, dharaṇā, dhyāna,* etc., is recommended for less intelligent persons who have no better knowledge. But one who has tasted the beauty of the Supreme Lord Kṛṣṇa, in the course of his advancement in Kṛṣṇa consciousness, no longer has a taste for dead material things. Therefore, restrictions are there for the less intelligent neophytes in the spiritual advancement of life, but such restrictions are only good if one actually has a taste for Kṛṣṇa consciousness. When one is actually Kṛṣṇa conscious, he automatically loses his taste for pale things.
 
 ### Bg 2.60
-
-> यततो ह्यपि कौन्तेय पुरुषस्य विपश्चितः ।
-> इन्द्रियाणि प्रमाथीनि हरन्ति प्रसभं मनः ॥६०॥
 
 > yatato hy api kaunteya
 > puruṣasya vipaścitaḥ
@@ -2280,9 +1941,6 @@ There are many learned sages, philosophers and transcendentalists who try to con
 Kṛṣṇa consciousness is such a transcendentally nice thing that automatically material enjoyment becomes distasteful. It is as if a hungry man had satisfied his hunger by a sufficient quantity of nutritious eatables. Mahārāja Ambarīṣa also conquered a great *yogī,* Durvāsā Muni, simply because his mind was engaged in Kṛṣṇa consciousness.
 
 ### Bg 2.61
-
-> तानि सर्वाणि संयम्य युक्त आसीत मत्परः ।
-> वशे हि यस्येन्द्रियाणि तस्य प्रज्ञा प्रतिष्ठिता ॥६१॥
 
 > tāni sarvāṇi saṁyamya
 > yukta āsīta mat-paraḥ
@@ -2316,9 +1974,6 @@ The word *mat-paraḥ* is most significant in this connection. How one can becom
 
 ### Bg 2.62
 
-> ध्यायतो विषयान्पुंसः सङ्गस्तेषूपजायते ।
-> सङ्गात्सञ्जायते कामः कामात्क्रोधोऽभिजायते ॥६२॥
-
 > dhyāyato viṣayān puṁsaḥ
 > saṅgas teṣūpajāyate
 > saṅgāt sañjāyate kāmaḥ
@@ -2331,9 +1986,6 @@ The word *mat-paraḥ* is most significant in this connection. How one can becom
 One who is not Kṛṣṇa conscious is subjected to material desires while contemplating the objects of senses. The senses require real engagements, and if they are not engaged in the transcendental loving service of the Lord, they will certainly seek engagement in the service of materialism. In the material world everyone, including Lord Śiva and Lord Brahmā—to say nothing of other demigods in the heavenly planets—is subjected to the influence of sense objects, and the only method to get out of this puzzle of material existence is to become Kṛṣṇa conscious. Lord Śiva was deep in meditation, but when Pārvatī agitated him for sense pleasure, he agreed to the proposal, and as a result Kārtikeya was born. When Haridāsa Ṭhākur was a young devotee of the Lord, he was similarly allured by the incarnation of Māyā Devī, but Haridāsa easily passed the test because of his unalloyed devotion to Lord Kṛṣṇa. As illustrated in the above-mentioned verse of Śrī Yāmunācārya, a sincere devotee of the Lord shuns all material sense enjoyment due to his higher taste for spiritual enjoyment in the association of the Lord. That is the secret of success. One who is not, therefore, in Kṛṣṇa consciousness, however powerful he may be in controlling the senses by artificial repression, is sure ultimately to fail, for the slightest thought of sense pleasure will agitate him to gratify his desires.
 
 ### Bg 2.63
-
-> क्रोधाद्भवति सम्मोहः सम्मोहात्स्मृतिविभ्रमः ।
-> स्मृतिभ्रंशाद् बुद्धिनाशो बुद्धिनाशात्प्रणश्यति ॥६३॥
 
 > krodhād bhavati sammohaḥ
 > sammohāt smṛti-vibhramaḥ
@@ -2348,9 +2000,6 @@ By development of Kṛṣṇa consciousness one can know that everything has its
 
 ### Bg 2.64
 
-> रागद्वेषविमुक्तैस्तु विषयानिन्द्रियैश्चरन् ।
-> आत्मवश्यैर्विधेयात्मा प्रसादमधिगच्छति ॥६४॥
-
 > rāga-dveṣa-vimuktais tu
 > viṣayān indriyaiś caran
 > ātma-vaśyair vidheyātmā
@@ -2364,9 +2013,6 @@ It is already explained that one may externally control the senses by some artif
 
 ### Bg 2.65
 
-> प्रसादे सर्वदुःखानां हानिरस्योपजायते ।
-> प्रसन्नचेतसो ह्याशु बुद्धिः पर्यवतिष्ठते ॥६५॥
-
 > prasāde sarva-duḥkhānāṁ
 > hānir asyopajāyate
 > prasanna-cetaso hy āśu
@@ -2377,9 +2023,6 @@ It is already explained that one may externally control the senses by some artif
 **For one who is so situated in the Divine consciousness, the threefold miseries of material existence exist no longer; in such a happy state, one's intelligence soon becomes steady.**
 
 ### Bg 2.66
-
-> नास्ति बुद्धिरयुक्तस्य न चायुक्तस्य भावना ।
-> न चाभावयतः शान्तिरशान्तस्य कुतः सुखम् ॥६६॥
 
 > nāsti buddhir ayuktasya
 > na cāyuktasya bhāvanā
@@ -2394,9 +2037,6 @@ Unless one is in Kṛṣṇa consciousness, there is no possibility of peace. So
 
 ### Bg 2.67
 
-> इन्द्रियाणां हि चरतां यन्मनोऽनुविधीयते ।
-> तदस्य हरति प्रज्ञां वायुर्नावमिवाम्भसि ॥६७॥
-
 > indriyāṇāṁ hi caratāṁ
 > yan mano 'nuvidhīyate
 > tad asya harati prajñāṁ
@@ -2409,9 +2049,6 @@ Unless one is in Kṛṣṇa consciousness, there is no possibility of peace. So
 Unless all of the senses are engaged in the service of the Lord, even one of them engaged in sense gratification can deviate the devotee from the path of transcendental advancement. As mentioned in the life of Mahārāja Ambarīṣa, all of the senses must be engaged in Kṛṣṇa consciousness, for that is the correct technique for controlling the mind.
 
 ### Bg 2.68
-
-> तस्माद्यस्य महाबाहो निगृहीतानि सर्वशः ।
-> इन्द्रियाणीन्द्रियार्थेभ्यस्तस्य प्रज्ञा प्रतिष्ठिता ॥६८॥
 
 > tasmād yasya mahā-bāho
 > nigṛhītāni sarvaśaḥ
@@ -2426,9 +2063,6 @@ As enemies are curbed by superior force, similarly, the senses can be curbed not
 
 ### Bg 2.69
 
-> या निशा सर्वभूतानां तस्यां जागर्ति संयमी ।
-> यस्यां जाग्रति भूतानि सा निशा पश्यतो मुनेः ॥६९॥
-
 > yā niśā sarva-bhūtānāṁ
 > tasyāṁ jāgarti saṁyamī
 > yasyāṁ jāgrati bhūtāni
@@ -2441,11 +2075,6 @@ As enemies are curbed by superior force, similarly, the senses can be curbed not
 There are two classes of intelligent men. The one is intelligent in material activities for sense gratification, and the other is introspective and awake to the cultivation of self-realization. Activities of the introspective sage, or thoughtful man, are night for persons materially absorbed. Materialistic persons remain asleep in such a night due to their ignorance of self-realization. The introspective sage remains alert in the "night" of the materialistic men. The sage feels transcendental pleasure in the gradual advancement of spiritual culture, whereas the man in materialistic activities, being asleep to self-realization, dreams of varieties of sense pleasure, feeling sometimes happy and sometimes distressed in his sleeping condition. The introspective man is always indifferent to materialistic happiness and distress. He goes on with his self-realization activities undisturbed by material reaction.
 
 ### Bg 2.70
-
-> आपूर्यमाणमचलप्रतिष्ठं
-> समुद्रमापः प्रविशन्ति यद्वत् ।
-> तद्वत्कामा यं प्रविशन्ति सर्वे
-> स शान्तिमाप्नोति न कामकामी ॥७०॥
 
 > āpūryamāṇam acala-pratiṣṭhaṁ
 > samudram āpaḥ praviśanti yadvat
@@ -2460,9 +2089,6 @@ Although the vast ocean is always filled with water, it is always, especially du
 
 ### Bg 2.71
 
-> विहाय कामान्यः सर्वान्पुमांश्चरति निःस्पृहः ।
-> निर्ममो निरहङ्कारः स शान्तिमधिगच्छति ॥७१॥
-
 > vihāya kāmān yaḥ sarvān
 > pumāṁś carati niḥspṛhaḥ
 > nirmamo nirahaṅkāraḥ
@@ -2475,9 +2101,6 @@ Although the vast ocean is always filled with water, it is always, especially du
 To become desireless means not to desire anything for sense gratification. In other words, desire for becoming Kṛṣṇa conscious is actually desirelessness. To understand one's actual position as the eternal servitor of Kṛṣṇa, without falsely claiming this material body to be oneself and without falsely claiming proprietorship over anything in the world, is the perfect stage of Kṛṣṇa consciousness. One who is situated in this perfect stage knows that because Kṛṣṇa is the proprietor of everything, therefore everything must be used for the satisfaction of Kṛṣṇa. Arjuna did not want to fight for his own sense satisfaction, but when he became fully Kṛṣṇa conscious he fought because Kṛṣṇa wanted him to fight. For himself there was no desire to fight, but for Kṛṣṇa the same Arjuna fought to his best ability. Desire for the satisfaction of Kṛṣṇa is really desirelessness; it is not an artificial attempt to abolish desires. The living entity cannot be desireless or senseless, but he does have to change the quality of the desires. A materially desireless person certainly knows that everything belongs to Kṛṣṇa (*īśāvāsyam idaṁ sarvam*), and therefore he does not falsely claim proprietorship over anything. This transcendental knowledge is based on self-realization—namely, knowing perfectly well that every living entity is the eternal part and parcel of Kṛṣṇa in spiritual identity. and therefore the eternal position of the living entity is never on the level of Kṛṣṇa or greater than Him. This understanding of Kṛṣṇa consciousness is the basic principle of real peace.
 
 ### Bg 2.72
-
-> एषा ब्राह्मी स्थितिः पार्थ नैनां प्राप्य विमुह्यति ।
-> स्थित्वास्यामन्तकालेऽपि ब्रह्मनिर्वाणमृच्छति ॥७२॥
 
 > eṣā brāhmī sthitiḥ pārtha
 > naināṁ prāpya vimuhyati
@@ -2500,10 +2123,6 @@ Brahman is just the opposite of matter. Therefore *brāhmī sthitiḥ* means "no
 
 ### Bg 3.1
 
-> अर्जुन उवाच ।
-> ज्यायसी चेत्कर्मणस्ते मता बुद्धिर्जनार्दन ।
-> तत्किं कर्मणि घोरे मां नियोजयसि केशव ॥१॥
-
 > arjuna uvāca
 > jyāyasī cet karmaṇas te
 > matā buddhir janārdana
@@ -2518,9 +2137,6 @@ The Supreme Personality of Godhead Śrī Kṛṣṇa has very elaborately descri
 
 ### Bg 3.2
 
-> व्यामिश्रेणेव वाक्येन बुद्धिं मोहयसीव मे ।
-> तदेकं वद निश्चित्य येन श्रेयोऽहमाप्नुयाम् ॥२॥
-
 > vyāmiśreṇeva vākyena
 > buddhiṁ mohayasīva me
 > tad ekaṁ vada niścitya
@@ -2533,10 +2149,6 @@ The Supreme Personality of Godhead Śrī Kṛṣṇa has very elaborately descri
 In the previous chapter, as a prelude to the *Bhagavad-gītā,* many different paths were explained, such as *sāṅkhya-yoga, buddhi-yoga,* control of the senses by intelligence, work without fruitive desire, and the position of the neophyte. This was all presented unsystematically. A more organized outline of the path would be necessary for action and understanding. Arjuna, therefore, wanted to clear up these apparently confusing matters so that any common man could accept them without misinterpretation. Although Kṛṣṇa had no intention of confusing Arjuna by any jugglery of words, Arjuna could not follow the process of Kṛṣṇa consciousness—either by inertia or active service. In other words, by his questions he is clearing the path of Kṛṣṇa consciousness for all students who seriously want to understand the mystery of the *Bhagavad-gītā.*
 
 ### Bg 3.3
-
-> श्रीभगवानुवाच ।
-> लोकेऽस्मिन् द्विविधा निष्ठा पुरा प्रोक्ता मयानघ ।
-> ज्ञानयोगेन साङ्ख्यानां कर्मयोगेन योगिनाम् ॥३॥
 
 > śrī-bhagavān uvāca
 > loke 'smin dvi-vidhā niṣṭhā
@@ -2552,9 +2164,6 @@ In the Second Chapter, verse 39, the Lord explained two kinds of procedures—na
 
 ### Bg 3.4
 
-> न कर्मणामनारम्भान्नैष्कर्म्यं पुरुषोऽश्नुते ।
-> न च संन्यसनादेव सिद्धिं समधिगच्छति ॥४॥
-
 > na karmaṇām anārambhān
 > naiṣkarmyaṁ puruṣo 'śnute
 > na ca sannyasanād eva
@@ -2567,9 +2176,6 @@ In the Second Chapter, verse 39, the Lord explained two kinds of procedures—na
 The renounced order of life can be accepted upon being purified by the discharge of the prescribed form of duties which are laid down just to purify the heart of materialistic men. Without purification, one cannot attain success by abruptly adopting the fourth order of life (*sannyāsa*). According to the empirical philosophers, simply by adopting *sannyāsa,* or retiring from fruitive activities, one at once becomes as good as Nārāyaṇa. But Lord Kṛṣṇa does not approve this principle. Without purification of heart, *sannyāsa* is simply a disturbance to the social order. On the other hand, if someone takes to the transcendental service of the Lord, even without discharging his prescribed duties, whatever he may be able to advance in the cause is accepted by the Lord (*buddhi-yoga*). *Svalpam apy asya dharmasya trāyate mahato bhayāt.* Even a slight performance of such a principle enables one to overcome great difficulties.
 
 ### Bg 3.5
-
-> न हि कश्चित्क्षणमपि जातु तिष्ठत्यकर्मकृत् ।
-> कार्यते ह्यवशः कर्म सर्वः प्रकृतिजैर्गुणैः ॥५॥
 
 > na hi kaścit kṣaṇam api
 > jātu tiṣṭhaty akarma-kṛt
@@ -2591,9 +2197,6 @@ It is not a question of embodied life, but it is the nature of the soul to be al
 
 ### Bg 3.6
 
-> कर्मेन्द्रियाणि संयम्य य आस्ते मनसा स्मरन् ।
-> इन्द्रियार्थान्विमूढात्मा मिथ्याचारः स उच्यते ॥६॥
-
 > karmendriyāṇi saṁyamya
 > ya āste manasā smaran
 > indriyārthān vimūḍhātmā
@@ -2606,9 +2209,6 @@ It is not a question of embodied life, but it is the nature of the soul to be al
 There are many pretenders who refuse to work in Kṛṣṇa consciousness but make a show of meditation, while actually dwelling within the mind upon sense enjoyment. Such pretenders may also speak on dry philosophy in order to bluff sophisticated followers, but according to this verse these are the greatest cheaters. For sense enjoyment one can act in any capacity of the social order, but if one follows the rules and regulations of his particular status, he can make gradual progress in purifying his existence. But he who makes a show of being a *yogī,* while actually searching for the objects of sense gratification, must be called the greatest cheater, even though he sometimes speaks of philosophy. His knowledge has no value because the effects of such a sinful man's knowledge are taken away by the illusory energy of the Lord. Such a pretender's mind is always impure, and therefore his show of yogic meditation has no value whatsoever.
 
 ### Bg 3.7
-
-> यस्त्विन्द्रियाणि मनसा नियम्यारभतेऽर्जुन ।
-> कर्मेन्द्रियैः कर्मयोगमसक्तः स विशिष्यते ॥७॥
 
 > yas tv indriyāṇi manasā
 > niyamyārabhate 'rjuna
@@ -2623,9 +2223,6 @@ Instead of becoming a pseudo-transcendentalist for the sake of wanton living and
 
 ### Bg 3.8
 
-> नियतं कुरु कर्म त्वं कर्म ज्यायो ह्यकर्मणः ।
-> शरीरयात्रापि च ते न प्रसिद्ध्येदकर्मणः ॥८॥
-
 > niyataṁ kuru karma tvaṁ
 > karma jyāyo hy akarmaṇaḥ
 > śarīra-yātrāpi ca te
@@ -2639,9 +2236,6 @@ There are many pseudo-meditators who misrepresent themselves as belonging to hig
 
 ### Bg 3.9
 
-> यज्ञार्थात्कर्मणोऽन्यत्र लोकोऽयं कर्मबन्धनः ।
-> तदर्थं कर्म कौन्तेय मुक्तसङ्गः समाचर ॥९॥
-
 > yajñārthāt karmaṇo 'nyatra
 > loko 'yaṁ karma-bandhanaḥ
 > tad-arthaṁ karma kaunteya
@@ -2654,9 +2248,6 @@ There are many pseudo-meditators who misrepresent themselves as belonging to hig
 Since one has to work even for the simple maintenance of the body, the prescribed duties for a particular social position and quality are so made that that purpose can be fulfilled. *Yajña* means Lord Viṣṇu, or sacrificial performances. All sacrificial performances also are meant for the satisfaction of Lord Viṣṇu. The *Vedas* enjoin: *yajño vai viṣṇuḥ.* In other words, the same purpose is served whether one performs prescribed *yajñas* or directly serves Lord Viṣṇu. Kṛṣṇa consciousness is therefore performance of *yajña* as it is prescribed in this verse. The *varṇāśrama* institution also aims at this for satisfying Lord Viṣṇu. "*Varṇāśramācāra-vatā puruṣeṇa paraḥ pumān/viṣṇur ārādhyate...*" (*Viṣṇu Purāṇa* 3.8.8) Therefore one has to work for the satisfaction of Viṣṇu. Any other work done in this material world wilI be a cause of bondage, for both good and evil work have their reactions, and any reaction binds the performer. Therefore, one has to work in Kṛṣṇa consciousness to satisfy Kṛṣṇa (or Viṣṇu); and while performing such activities one is in a liberated stage. This is the great art of doing work, and in the beginning this process requires very expert guidance. One should therefore act very diligently, under the expert guidance of a devotee of Lord Kṛṣṇa, or under the direct instruction of Lord Kṛṣṇa Himself (under whom Arjuna had the opportunity to work). Nothing should be performed for sense gratification, but everything should be done for the satisfaction of Kṛṣṇa. This practice will not only save one from the reaction of work, but will also gradually elevate one to transcendental loving service of the Lord, which alone can raise one to the kingdom of God.
 
 ### Bg 3.10
-
-> सहयज्ञाः प्रजाः सृष्ट्वा पुरोवाच प्रजापतिः ।
-> अनेन प्रसविष्यध्वमेष वोऽस्त्विष्टकामधुक् ॥१०॥
 
 > saha-yajñāḥ prajāḥ sṛṣṭvā
 > purovāca prajāpatiḥ
@@ -2684,9 +2275,6 @@ The *prajā-pati* is Lord Viṣṇu, and He is the Lord of all living creatures,
 
 ### Bg 3.11
 
-> देवान्भावयतानेन ते देवा भावयन्तु वः ।
-> परस्परं भावयन्तः श्रेयः परमवाप्स्यथ ॥११॥
-
 > devān bhāvayatānena
 > te devā bhāvayantu vaḥ
 > parasparaṁ bhāvayantaḥ
@@ -2707,9 +2295,6 @@ As it will be explained in the following verse, by performance of *yajña,* one'
 
 ### Bg 3.12
 
-> इष्टान्भोगान्हि वो देवा दास्यन्ते यज्ञभाविताः ।
-> तैर्दत्तानप्रदायैभ्यो यो भुङ्क्ते स्तेन एव सः ॥१२॥
-
 > iṣṭān bhogān hi vo devā
 > dāsyante yajña-bhāvitāḥ
 > tair dattān apradāyaibhyo
@@ -2725,9 +2310,6 @@ One should know, however, that all the necessities of life that the human societ
 
 ### Bg 3.13
 
-> यज्ञशिष्टाशिनः सन्तो मुच्यन्ते सर्वकिल्बिषैः ।
-> भुञ्जते ते त्वघं पापा ये पचन्त्यात्मकारणात् ॥१३॥
-
 > yajña-śiṣṭāśinaḥ santo
 > mucyante sarva-kilbiṣaiḥ
 > bhuñjate te tv aghaṁ pāpā
@@ -2740,9 +2322,6 @@ One should know, however, that all the necessities of life that the human societ
 The devotees of the Supreme Lord, or the persons who are in Kṛṣṇa consciousness, are called *santas,* and they are always in love with the Lord as it is described in the *Brahma-saṁhitā: premāñjana- cchurita-bhakti-vilocanena santaḥ sadaiva hṛdayeṣu vilokayanti.* The *santas,* being always in a compact of love with the Supreme Personality of Godhead, Govinda (the giver of all pleasures), or Mukunda (the giver of liberation), or Kṛṣṇa (the all-attractive person), cannot accept anything without first offering it to the Supreme Person. Therefore, such devotees always perform *yajñas* in different modes of devotional service, such as *śravaṇam, kīrtanam, smaraṇam, arcanam,* etc., and these performances of *yajñas* keep them always aloof from all kinds of contamination of sinful association in the material world. Others, who prepare food for self or sense gratification, are not only thieves, but are also the eaters of all kinds of sins. How can a person be happy if he is both a thief and sinful? It is not possible. Therefore, in order for people to become happy in all respects, they must be taught to perform the easy process of *saṅkīrtana-yajña,* in full Kṛṣṇa consciousness. Otherwise, there can be no peace or happiness in the world.
 
 ### Bg 3.14
-
-> अन्नाद्भवन्ति भूतानि पर्जन्यादन्नसम्भवः ।
-> यज्ञाद्भवति पर्जन्यो यज्ञः कर्मसमुद्भवः ॥१४॥
 
 > annād bhavanti bhūtāni
 > parjanyād anna-sambhavaḥ
@@ -2759,9 +2338,6 @@ Food grains or vegetables are factually eatables. The human being eats different
 
 ### Bg 3.15
 
-> कर्म ब्रह्मोद्भवं विद्धि ब्रह्माक्षरसमुद्भवम् ।
-> तस्मात्सर्वगतं ब्रह्म नित्यं यज्ञे प्रतिष्ठितम् ॥१५॥
-
 > karma brahmodbhavaṁ viddhi
 > brahmākṣara-samudbhavam
 > tasmāt sarva-gataṁ brahma
@@ -2774,9 +2350,6 @@ Food grains or vegetables are factually eatables. The human being eats different
 *Yajñārtha karma,* or the necessity of work for the satisfaction of Kṛṣṇa only, is more expressly stated in this verse. If we have to work for the satisfaction of the *yajña-puruṣa,* Viṣṇu, then we must find out the direction of work in Brahman, or the transcendental *Vedas.* The *Vedas* are therefore codes of working directions. Anything performed without the direction of the *Vedas* is called *vikarma,* or unauthorized or sinful work. Therefore, one should always take direction from the *Vedas* to be saved from the reaction of work. As one has to work in ordinary life by the direction of the state, similarly, one has to work under direction of the supreme state of the Lord. Such directions in the *Vedas* are directly manifested from the breathing of the Supreme Personality of Godhead. It is said: *asya mahato bhūtasya naśvasitam etad yad ṛg-vedo yajur-vedaḥ sāma-vedo 'tharvāṅ girasaḥ.* "The four *Vedas*—namely the *Ṛg-veda, Yajur-veda, Sāma-veda* and *Atharva-veda*—are all emanations from the breathing of the great Personality of Godhead." The Lord, being omnipotent, can speak by breathing air, as it is confirmed in the *Brahma-saṁhitā,* for the Lord has the omnipotence to perform through each of His senses the actions of all other senses. In other words, the Lord can speak through His breathing, and He can impregnate by His eyes. In fact, it is said that He glanced over material nature and thus fathered all living entities. After creating or impregnating the conditioned souls into the womb of material nature, He gave His directions in the Vedic wisdom as to how such conditioned souls can return home, back to Godhead. We should always remember that the conditioned souls in material nature are all eager for material enjoyment. But the Vedic directions are so made that one can satisfy one's perverted desires, then return to Godhead, having finished his so-called enjoyment. It is a chance for the conditioned souls to attain liberation; therefore the conditioned souls must try to follow the process of *yajña* by becoming Kṛṣṇa conscious. Even those who cannot follow the Vedic injunctions may adopt the principles of Kṛṣṇa consciousness, and that will take the place of performance of Vedic *yajñas,* or *karmas.*
 
 ### Bg 3.16
-
-> एवं प्रवर्तितं चक्रं नानुवर्तयतीह यः ।
-> अघायुरिन्द्रियारामो मोघं पार्थ स जीवति ॥१६॥
 
 > evaṁ pravartitaṁ cakraṁ
 > nānuvartayatīha yaḥ
@@ -2791,9 +2364,6 @@ The mammonist philosophy of work very hard and enjoy sense gratification is cond
 
 ### Bg 3.17
 
-> यस्त्वात्मरतिरेव स्यादात्मतृप्तश्च मानवः ।
-> आत्मन्येव च सन्तुष्टस्तस्य कार्यं न विद्यते ॥१७॥
-
 > yas tv ātma-ratir eva syād
 > ātma-tṛptaś ca mānavaḥ
 > ātmany eva ca santuṣṭas
@@ -2806,9 +2376,6 @@ The mammonist philosophy of work very hard and enjoy sense gratification is cond
 A person who is *fully* Kṛṣṇa conscious, and is fully satisfied by his acts in Kṛṣṇa consciousness, no longer has any duty to perform. Due to his being Kṛṣṇa conscious, all impiety within is instantly cleansed, an effect of many, many thousands of *yajña* performances. By such clearing of consciousness, one becomes fully confident of his eternal position in relationship with the Supreme. His duty thus becomes self-illuminated by the grace of the Lord, and therefore he no longer has any obligations to the Vedic injunctions. Such a Kṛṣṇa conscious person is no longer interested in material activities and no longer takes pleasure in material arrangements like wine, women and similar infatuations.
 
 ### Bg 3.18
-
-> नैव तस्य कृतेनार्थो नाकृतेनेह कश्चन ।
-> न चास्य सर्वभूतेषु कश्चिदर्थव्यपाश्रयः ॥१८॥
 
 > naiva tasya kṛtenārtho
 > nākṛteneha kaścana
@@ -2823,9 +2390,6 @@ A self-realized man is no longer obliged to perform any prescribed duty, save an
 
 ### Bg 3.19
 
-> तस्मादसक्तः सततं कार्यं कर्म समाचर ।
-> असक्तो ह्याचरन्कर्म परमाप्नोति पूरुषः ॥१९॥
-
 > tasmād asaktaḥ satataṁ
 > kāryaṁ karma samācara
 > asakto hy ācaran karma
@@ -2838,9 +2402,6 @@ A self-realized man is no longer obliged to perform any prescribed duty, save an
 The Supreme is the Personality of Godhead for the devotees, and liberation for the impersonalist. A person, therefore, acting for Kṛṣṇa, or in Kṛṣṇa consciousness, under proper guidance and without attachment to the result of the work, is certainly making progress toward the supreme goal of life. Arjuna is told that he should fight in the Battle of Kurukṣetra for the interest of Kṛṣṇa because Kṛṣṇa wanted him to fight. To be a good man or a nonviolent man is a personal attachment, but to act on behalf of the Supreme is to act without attachment for the result. That is perfect action of the highest degree, recommended by the Supreme Personality of Godhead, Śrī Kṛṣṇa. Vedic rituals, like prescribed sacrifices, are performed for purification of impious activities that were performed in the field of sense gratification. But action in Kṛṣṇa consciousness is transcendental to the reactions of good or evil work. A Kṛṣṇa conscious person has no attachment for the result but acts on behalf of Kṛṣṇa alone. He engages in all kinds of activities, but is completely nonattached.
 
 ### Bg 3.20
-
-> कर्मणैव हि संसिद्धिमास्थिता जनकादयः ।
-> लोकसंग्रहमेवापि सम्पश्यन्कर्तुमर्हसि ॥२०॥
 
 > karmaṇaiva hi saṁsiddhim
 > āsthitā janakādayaḥ
@@ -2855,9 +2416,6 @@ Kings like Janaka and others were all self-realized souls; consequently they had
 
 ### Bg 3.21
 
-> यद्यदाचरति श्रेष्ठस्तत्तदेवेतरो जनः ।
-> स यत्प्रमाणं कुरुते लोकस्तदनुवर्तते ॥२१॥
-
 > yad yad ācarati śreṣṭhas
 > tat tad evetaro janaḥ
 > sa yat pramāṇaṁ kurute
@@ -2870,9 +2428,6 @@ Kings like Janaka and others were all self-realized souls; consequently they had
 People in general always require a leader who can teach the public by practical behavior. A leader cannot teach the public to stop smoking if he himself smokes. Lord Caitanya said that a teacher should behave properly even before he begins teaching. One who teaches in that way is called *ācārya,* or the ideal teacher. Therefore, a teacher must follow the principles of *śāśtra* (scripture) to reach the common man. The teacher cannot manufacture rules against the principles of revealed scriptures. The revealed scriptures, like *Manu-saṁhitā* and similar others, are considered the standard books to be followed by human society. Thus the leader's teaching should be based on the principles of the standard rules as they are practiced by the great teachers. The *Śrīmad-Bhāgavatam* also affirms that one should follow in the footsteps of great devotees, and that is the way of progress on the path of spiritual realization. The king or the executive head of a state, the father and the school teacher are all considered to be natural leaders of the innocent people in general. All such natural leaders have a great responsibility to their dependants; therefore they must be conversant with standard books of moral and spiritual codes.
 
 ### Bg 3.22
-
-> न मे पार्थास्ति कर्तव्यं त्रिषु लोकेषु किञ्चन ।
-> नानवाप्तमवाप्तव्यं वर्त एव च कर्मणि ॥२२॥
 
 > na me pārthāsti kartavyaṁ
 > triṣu lokeṣu kiñcana
@@ -2903,9 +2458,6 @@ Since everything is in full opulence in the Personality of Godhead and is existi
 
 ### Bg 3.23
 
-> यदि ह्यहं न वर्तेयं जातु कर्मण्यतन्द्रितः ।
-> मम वर्त्मानुवर्तन्ते मनुष्याः पार्थ सर्वशः ॥२३॥
-
 > yadi hy ahaṁ na varteyaṁ
 > jātu karmaṇy atandritaḥ
 > mama vartmānuvartante
@@ -2918,9 +2470,6 @@ Since everything is in full opulence in the Personality of Godhead and is existi
 In order to keep the balance of social tranquility for progress in spiritual life. there are traditional family usages meant for every civilized man. Although such rules and regulations are for the conditioned souls and not Lord Kṛṣṇa, because He descended to establish the principles of religion, He followed the prescribed rules. Otherwise, common men would follow in His footsteps because He is the greatest authority. From the *Śrīmad-Bhāgavatam* it is understood that Lord Kṛṣṇa was performing all the religious duties at home and out of home, as required of a householder.
 
 ### Bg 3.24
-
-> उत्सीदेयुरिमे लोका न कुर्यां कर्म चेदहम् ।
-> सङ्करस्य च कर्ता स्यामुपहन्यामिमाः प्रजाः ॥२४॥
 
 > utsīdeyur ime lokā
 > na kuryāṁ karma ced aham
@@ -2945,9 +2494,6 @@ We should always consider the position of the *īśvaras,* or those who can actu
 
 ### Bg 3.25
 
-> सक्ताः कर्मण्यविद्वांसो यथा कुर्वन्ति भारत ।
-> कुर्याद्विद्वांस्तथासक्तश्चिकीर्षुर्लोकसंग्रहम् ॥२५॥
-
 > saktāḥ karmaṇy avidvāṁso
 > yathā kurvanti bhārata
 > kuryād vidvāṁs tathāsaktaś
@@ -2960,9 +2506,6 @@ We should always consider the position of the *īśvaras,* or those who can actu
 A person in Kṛṣṇa consciousness and a person not in Kṛṣṇa consciousness are differentiated by different desires. A Kṛṣṇa conscious person does not do anything which is not conducive to development of Kṛṣṇa consciousness. He may even act exactly like the ignorant person, who is too much attached to material activities, but one is engaged in such activities for the satisfaction of his sense gratification, whereas the other is engaged for the satisfaction of Kṛṣṇa. Therefore, the Kṛṣṇa conscious person is required to show the people how to act and how to engage the results of action for the purpose of Kṛṣṇa consciousness.
 
 ### Bg 3.26
-
-> न बुद्धिभेदं जनयेदज्ञानां कर्मसङ्गिनाम् ।
-> जोषयेत्सर्वकर्माणि विद्वान्युक्तः समाचरन् ॥२६॥
 
 > na buddhi-bhedaṁ janayed
 > ajñānāṁ karma-saṅginām
@@ -2977,9 +2520,6 @@ A person in Kṛṣṇa consciousness and a person not in Kṛṣṇa consciousn
 
 ### Bg 3.27
 
-> प्रकृतेः क्रियमाणानि गुणैः कर्माणि सर्वशः ।
-> अहङ्कारविमूढात्मा कर्ताहमिति मन्यते ॥२७॥
-
 > prakṛteḥ kriyamāṇāni
 > guṇaiḥ karmāṇi sarvaśaḥ
 > ahaṅkāra-vimūḍhātmā
@@ -2993,9 +2533,6 @@ Two persons, one in Kṛṣṇa consciousness and the other in material consciou
 
 ### Bg 3.28
 
-> तत्त्ववित्तु महाबाहो गुणकर्मविभागयोः ।
-> गुणा गुणेषु वर्तन्त इति मत्वा न सज्जते ॥२८॥
-
 > tattva-vit tu mahā-bāho
 > guṇa-karma-vibhāgayoḥ
 > guṇā guṇeṣu vartanta
@@ -3008,9 +2545,6 @@ Two persons, one in Kṛṣṇa consciousness and the other in material consciou
 The knower of the Absolute Truth is convinced of his awkward position in material association. He knows that he is part and parcel of the Supreme Personality of Godhead, Kṛṣṇa, and that his position should not be in the material creation. He knows his real identity as part and parcel of the Supreme, who is eternal bliss and knowledge, and he realizes that somehow or other he is entrapped in the material conception of life. In his pure state of existence he is meant to dovetail his activities in devotional service to the Supreme Personality of Godhead, Kṛṣṇa. He therefore engages himself in the activities of Kṛṣṇa consciousness and becomes naturally unattached to the activities of the material senses, which are all circumstantial and temporary. He knows that his material condition of life is under the supreme control of the Lord; consequently he is not disturbed by all kinds of material reactions, which he considers to be the mercy of the Lord. According to *Śrīmad-Bhāgavatam,* one who knows the Absolute Truth in three different features—namely Brahman, Paramātmā, and the Supreme Personality of Godhead—is called *tattvavit,* for he knows also his own factual position in relationship with the Supreme.
 
 ### Bg 3.29
-
-> प्रकृतेर्गुणसम्मूढाः सज्जन्ते गुणकर्मसु ।
-> तानकृत्स्नविदो मन्दान्कृत्स्नविन्न विचालयेत् ॥२९॥
 
 > prakṛter guṇa-sammūḍhāḥ
 > sajjante guṇa-karmasu
@@ -3027,9 +2561,6 @@ Men who are ignorant cannot appreciate activities in Kṛṣṇa consciousness, 
 
 ### Bg 3.30
 
-> मयि सर्वाणि कर्माणि संन्यस्याध्यात्मचेतसा ।
-> निराशीर्निर्ममो भूत्वा युध्यस्व विगतज्वरः ॥३०॥
-
 > mayi sarvāṇi karmāṇi
 > sannyasyādhyātma-cetasā
 > nirāśīr nirmamo bhūtvā
@@ -3042,9 +2573,6 @@ Men who are ignorant cannot appreciate activities in Kṛṣṇa consciousness, 
 This verse clearly indicates the purpose of the *Bhagavad-gītā.* The Lord instructs that one has to become fully Kṛṣṇa conscious to discharge duties, as if in military discipline. Such an injunction may make things a little difficult; nevertheless duties must be carried out, with dependence on Kṛṣṇa, because that is the constitutional position of the living entity. The living entity cannot be happy independent of the cooperation of the Supreme Lord because the eternal constitutional position of the living entity is to become subordinate to the desires of the Lord. Arjuna was, therefore, ordered by Śrī Kṛṣṇa to fight as if the Lord were his military commander. One has to sacrifice everything for the good will of the Supreme Lord, and at the same time discharge prescribed duties without claiming proprietorship. Arjuna did not have to consider the order of the Lord; he had only to execute His order. The Supreme Lord is the Soul of all souls; therefore, one who depends solely and wholly on the Supreme Soul without personal consideration, or in other words, one who is fully Kṛṣṇa conscious, is called *adhyātma-cetasā. Nirāśīḥ* means that one has to act on the order of the master. Nor should one ever expect fruitive results. The cashier may count millions of dollars for his employer, but he does not claim a cent for himself. Similarly, one has to realize that nothing in the world belongs to any individual person, but that everything belongs to the Supreme Lord. That is the real purport of *mayi,* or unto Me. And when one acts in such Kṛṣṇa consciousness, certainly he does not claim proprietorship over anything. This consciousness is called *nirmama,* or nothing is mine. And, if there is any reluctance to execute such a stern order which is without consideration of so-called kinsmen in the bodily relationship, that reluctance should be thrown off; in this way one may become *vigata-jvara,* or without feverish mentality or lethargy. Everyone, according to his quality and position, has a particular type of work to discharge, and all such duties may be discharged in Kṛṣṇa consciousness, as described above. That will lead one to the path of liberation.
 
 ### Bg 3.31
-
-> ये मे मतमिदं नित्यमनुतिष्ठन्ति मानवाः ।
-> श्रद्धावन्तोऽनसूयन्तो मुच्यन्ते तेऽपि कर्मभिः ॥३१॥
 
 > ye me matam idaṁ nityam
 > anutiṣṭhanti mānavāḥ
@@ -3059,9 +2587,6 @@ The injunction of the Supreme Personality of Godhead, Kṛṣṇa, is the essenc
 
 ### Bg 3.32
 
-> ये त्वेतदभ्यसूयन्तो नानुतिष्ठन्ति मे मतम् ।
-> सर्वज्ञानविमूढांस्तान्विद्धि नष्टानचेतसः ॥३२॥
-
 > ye tv etad abhyasūyanto
 > nānutiṣṭhanti me matam
 > sarva-jñāna-vimūḍhāṁs tān
@@ -3074,9 +2599,6 @@ The injunction of the Supreme Personality of Godhead, Kṛṣṇa, is the essenc
 The flaw of not being Kṛṣṇa conscious is clearly stated herein. As there is punishment for disobedience to the order of the supreme executive head, so there is certainly punishment for the disobedience of the order of the Supreme Personality of Godhead. A disobedient person, however great he may be, is ignorant of his own self, of the Supreme Brahman, and Paramātmā and the Personality of Godhead, due to a vacant heart. Therefore there is no hope of perfection of life for him.
 
 ### Bg 3.33
-
-> सदृशं चेष्टते स्वस्याः प्रकृतेर्ज्ञानवानपि ।
-> प्रकृतिं यान्ति भूतानि निग्रहः किं करिष्यति ॥३३॥
 
 > sadṛśaṁ ceṣṭate svasyāḥ
 > prakṛter jñānavān api
@@ -3091,9 +2613,6 @@ Unless one is situated on the transcendental platform of Kṛṣṇa consciousne
 
 ### Bg 3.34
 
-> इन्द्रियस्येन्द्रियस्यार्थे रागद्वेषौ व्यवस्थितौ ।
-> तयोर्न वशमागच्छेत्तौ ह्यस्य परिपन्थिनौ ॥३४॥
-
 > indriyasyendriyasyārthe
 > rāga-dveṣau vyavasthitau
 > tayor na vaśam āgacchet
@@ -3106,9 +2625,6 @@ Unless one is situated on the transcendental platform of Kṛṣṇa consciousne
 Those who are in Kṛṣṇa consciousness are naturally reluctant to engage in material sense gratifications. But those who are not in such consciousness should follow the rules and regulations of the revealed scriptures. Unrestricted sense enjoyment is the cause of material encagement, but one who follows the rules and regulations of the revealed scriptures does not become entangled by the sense objects. For example, sex enjoyment is a necessity for the conditioned soul, and sex enjoyment is allowed under the license of marriage ties. For example, according to scriptural injunctions, one is forbidden to engage in sex relationships with any women other than one's wife. All other women are to be considered as one's mother. But, in spite of such injunctions, a man is still inclined to have sex relationships with other women. These propensities are to be curbed; otherwise they will be stumbling blocks on the path of self-realization. As long as the material body is there, the necessities of the material body are allowed, but under rules and regulations. And yet, we should not rely upon the control of such allowances. One has to follow those rules and regulations, unattached to them, because practice of sense gratifications under regulations may also lead one to go astray—as much as there is always the chance of an accident, even on the royal roads. Although they may be very carefully maintained, no one can guarantee that there will be no danger even on the safest road. The sense enjoyment spirit has been current a very long, long time, owing to material association. Therefore, in spite of regulated sense enjoyment, there is every chance of falling down; therefore any attachment for regulated sense enjoyment must also be avoided by all means. But action in the loving service of Kṛṣṇa detaches one from all kinds of sensory activities. Therefore, no one should try to be detached from Kṛṣṇa consciousness at any stage of life. The whole purpose of detachment from all kinds of sense attachment is ultimately to become situated on the platform of Kṛṣṇa consciousness.
 
 ### Bg 3.35
-
-> श्रेयान्स्वधर्मो विगुणः परधर्मात्स्वनुष्ठितात् ।
-> स्वधर्मे निधनं श्रेयः परधर्मो भयावहः ॥३५॥
 
 > śreyān sva-dharmo viguṇaḥ
 > para-dharmāt sv-anuṣṭhitāt
@@ -3123,10 +2639,6 @@ One should therefore discharge his prescribed duties in full Kṛṣṇa conscio
 
 ### Bg 3.36
 
-> अर्जुन उवाच ।
-> अथ केन प्रयुक्तोऽयं पापं चरति पूरुषः ।
-> अनिच्छन्नपि वार्ष्णेय बलादिव नियोजितः ॥३६॥
-
 > arjuna uvāca
 > atha kena prayukto 'yaṁ
 > pāpaṁ carati pūruṣaḥ
@@ -3140,10 +2652,6 @@ One should therefore discharge his prescribed duties in full Kṛṣṇa conscio
 A living entity, as part and parcel of the Supreme, is originally spiritual, pure, and free from all material contaminations. Therefore, by nature he is not subjected to the sins of the material world. But when he is in contact with the material nature, he acts in many sinful ways without hesitation, and sometimes even against his will. As such, Arjuna's question to Kṛṣṇa is very sanguine, as to the perverted nature of the living entities. Although the living entity sometimes does not want to act in sin, he is still forced to act. Sinful actions are not, however, impelled by the Supersoul within, but are due to another cause, as the Lord explains in the next verse.
 
 ### Bg 3.37
-
-> श्रीभगवानुवाच ।
-> काम एष क्रोध एष रजोगुणसमुद्भवः ।
-> महाशनो महापाप्मा विद्ध्येनमिह वैरिणम् ॥३७॥
 
 > śrī-bhagavān uvāca
 > kāma eṣa krodha eṣa
@@ -3163,9 +2671,6 @@ This inquiry is the beginning of the *Vedānta-sūtras,* wherein it is said, *at
 
 ### Bg 3.38
 
-> धूमेनाव्रियते वह्निर्यथादर्शो मलेन च ।
-> यथोल्बेनावृतो गर्भस्तथा तेनेदमावृतम् ॥३८॥
-
 > dhūmenāvriyate vahnir
 > yathādarśo malena ca
 > yatholbenāvṛto garbhas
@@ -3179,9 +2684,6 @@ There are three degrees of covering of the living entity by which his pure consc
 
 ### Bg 3.39
 
-> आवृतं ज्ञानमेतेन ज्ञानिनो नित्यवैरिणा ।
-> कामरूपेण कौन्तेय दुष्पूरेणानलेन च ॥३९॥
-
 > āvṛtaṁ jñānam etena
 > jñānino nitya-vairiṇā
 > kāma-rūpeṇa kaunteya
@@ -3194,9 +2696,6 @@ There are three degrees of covering of the living entity by which his pure consc
 It is said in the *Manu-smṛti* that lust cannot be satisfied by any amount of sense enjoyment, just as fire is never extinguished by a constant supply of fuel. In the material world, the center of all activities is sex, and thus this material world is called *maithuṇya-āgāra,* or the shackles of sex life. In the ordinary prison house, criminals are kept within bars; similarly, the criminals who are disobedient to the laws of the Lord are shackled by sex life. Advancement of material civilization on the basis of sense gratification means increasing the duration of the material existence of a living entity. Therefore, this lust is the symbol of ignorance by which the living entity is kept within the material world. While one enjoys sense gratification, it may be that there is some feeling of happiness, but actually that so-called feeling of happiness is the ultimate enemy of the sense enjoyer.
 
 ### Bg 3.40
-
-> इन्द्रियाणि मनो बुद्धिरस्याधिष्ठानमुच्यते ।
-> एतैर्विमोहयत्येष ज्ञानमावृत्य देहिनम् ॥४०॥
 
 > indriyāṇi mano buddhir
 > asyādhiṣṭhānam ucyate
@@ -3218,9 +2717,6 @@ The enemy has captured different strategic positions in the body of the conditio
 
 ### Bg 3.41
 
-> तस्मात्त्वमिन्द्रियाण्यादौ नियम्य भरतर्षभ ।
-> पाप्मानं प्रजहि ह्येनं ज्ञानविज्ञाननाशनम् ॥४१॥
-
 > tasmāt tvam indriyāṇy ādau
 > niyamya bharatarṣabha
 > pāpmānaṁ prajahi hy enaṁ
@@ -3236,9 +2732,6 @@ Lust is only the perverted reflection of the love of God which is natural for ev
 
 ### Bg 3.42
 
-> इन्द्रियाणि पराण्याहुरिन्द्रियेभ्यः परं मनः ।
-> मनसस्तु परा बुद्धिर्यो बुद्धेः परतस्तु सः ॥४२॥
-
 > indriyāṇi parāṇy āhur
 > indriyebhyaḥ paraṁ manaḥ
 > manasas tu parā buddhir
@@ -3253,9 +2746,6 @@ The senses are different outlets for the activities of lust. Lust is reserved wi
 With intelligence one has to seek out the constitutional position of the soul and then engage the mind always in Kṛṣṇa consciousness. That solves the whole problem. A neophyte spiritualist is generally advised to keep aloof from the objects of senses. One has to strengthen the mind by use of intelligence. If by intelligence one engages one's mind in Kṛṣṇa consciousness, by complete surrender unto the Supreme Personality of Godhead, then, automatically, the mind becomes stronger, and even though the senses are very strong, like serpents, they will be no more effective than serpents with broken fangs. But even though the soul is the master of intelligence and mind, and the senses also, still, unless it is strengthened by association with Kṛṣṇa in Kṛṣṇa consciousness, there is every chance of falling down due to the agitated mind.
 
 ### Bg 3.43
-
-> एवं बुद्धेः परं बुद्ध्वा संस्तभ्यात्मानमात्मना ।
-> जहि शत्रुं महाबाहो कामरूपं दुरासदम् ॥४३॥
 
 > evaṁ buddheḥ paraṁ buddhvā
 > saṁstabhyātmānam ātmanā
@@ -3273,10 +2763,6 @@ This Third Chapter of the *Bhagavad-gītā* is conclusively directive to Kṛṣ
 ## Chapter 4
 
 ### Bg 4.1
-
-> श्रीभगवानुवाच ।
-> इमं विवस्वते योगं प्रोक्तवानहमव्ययम् ।
-> विवस्वान्मनवे प्राह मनुरिक्ष्वाकवेऽब्रवीत् ॥१॥
 
 > śrī-bhagavān uvāca
 > imaṁ vivasvate yogaṁ
@@ -3311,9 +2797,6 @@ At the present moment we have just passed through five thousand years of the Kal
 
 ### Bg 4.2
 
-> एवं परम्पराप्राप्तमिमं राजर्षयो विदुः ।
-> स कालेनेह महता योगो नष्टः परन्तप ॥२॥
-
 > evaṁ paramparā-prāptam
 > imaṁ rājarṣayo viduḥ
 > sa kāleneha mahatā
@@ -3326,9 +2809,6 @@ At the present moment we have just passed through five thousand years of the Kal
 It is clearly stated that the *Gītā* was especially meant for the saintly kings because they were to execute its purpose in ruling over the citizens. Certainly *Bhagavad-gītā* was never meant for the demonic persons, who would dissipate its value for no one's benefit and would devise all types of interpretations according to personal whims. As soon as the original purpose was scattered by the motives of the unscrupulous commentators, there arose the need to reestablish the disciplic succession. Five thousand years ago it was detected by the Lord Himself that the disciplic succession was broken, and therefore He declared that the purpose of the *Gītā* appeared to be lost. In the same way, at the present moment also there are so many editions of the *Gītā* (especially in English), but almost all of them are not according to authorized disciplic succession. There are innumerable interpretations rendered by different mundane scholars, but almost all of them do not accept the Supreme Personality of Godhead, Kṛṣṇa, although they make a good business on the words of Śrī Kṛṣṇa. This spirit is demonic, because demons do not believe in God but simply enjoy the property of the Supreme. Since there is a great need of an edition of the *Gītā* in English, as it is received by the *paramparā* (disciplic succession) system, an attempt is made herewith to fulfill this great want. *Bhagavad-gītā*—accepted as it is—is a great boon to humanity; but if it is accepted as a treatise of philosophical speculations, it is simply a waste of time.
 
 ### Bg 4.3
-
-> स एवायं मया तेऽद्य योगः प्रोक्तः पुरातनः ।
-> भक्तोऽसि मे सखा चेति रहस्यं ह्येतदुत्तमम् ॥३॥
 
 > sa evāyaṁ mayā te 'dya
 > yogaḥ proktaḥ purātanaḥ
@@ -3343,10 +2823,6 @@ There are two classes of men, namely the devotee and the demon. The Lord selecte
 
 ### Bg 4.4
 
-> अर्जुन उवाच ।
-> अपरं भवतो जन्म परं जन्म विवस्वतः ।
-> कथमेतद्विजानीयां त्वमादौ प्रोक्तवानिति ॥४॥
-
 > arjuna uvāca
 > aparaṁ bhavato janma
 > paraṁ janma vivasvataḥ
@@ -3360,10 +2836,6 @@ There are two classes of men, namely the devotee and the demon. The Lord selecte
 Arjuna is an accepted devotee of the Lord, so how could he not believe Kṛṣṇa's words? The fact is that Arjuna is not inquiring for himself but for those who do not believe in the Supreme Personality of Godhead or for the demons who do not like the idea that Kṛṣṇa should be accepted as the Supreme Personality of Godhead; for them only Arjuna inquires on this point, as if he were himself not aware of the Personality of Godhead, or Kṛṣṇa. As it will be evident from the Tenth Chapter, Arjuna knew perfectly well that Kṛṣṇa is the Supreme Personality of Godhead, the fountainhead of everything and the last word in Transcendence. Of course, Kṛṣṇa also appeared as the son of Devakī on this earth. How Kṛṣṇa remained the same Supreme Personality of Godhead, the eternal, original person, is very difficult for an ordinary man to understand. Therefore, to clarify this point, Arjuna put this question before Kṛṣṇa so that He Himself could speak authoritatively. That Kṛṣṇa is the supreme authority is accepted by the whole world, not only at present, but from time immemorial, and the demons alone reject Him. Anyway, since Kṛṣṇa is the authority accepted by all, Arjuna put this question before Him in order that Kṛṣṇa would describe Himself without being depicted by the demons who always try to distort Him in a way understandable to the demons and their followers. It is necessary that everyone, for his own interest, know the science of Kṛṣṇa. Therefore, when Kṛṣṇa Himself speaks about Himself, it is auspicious for all the worlds. To the demons, such explanations by Kṛṣṇa Himself may appear to be strange because the demons always study Kṛṣṇa from their own standpoint, but those who are devotees heartily welcome the statements of Kṛṣṇa when they are spoken by Kṛṣṇa Himself. The devotees will always worship such authoritative statements of Kṛṣṇa because they are always eager to know more and more about Him. The atheists, who consider Kṛṣṇa an ordinary man, may in this way come to know that Kṛṣṇa is superhuman, that He is *sac-cid-ānanda-vigraha*—the eternal form of bliss and knowledge—that He is transcendental, and that He is above the domination of the modes of material nature and above the influence of time and space. A devotee of Kṛṣṇa's, like Arjuna, is undoubtedly above any misunderstanding of the transcendental position of Kṛṣṇa. Arjuna's putting this question before the Lord is simply an attempt by the devotee to defy the atheistic attitude of persons who consider Kṛṣṇa to be an ordinary human being subject to the modes of material nature.
 
 ### Bg 4.5
-
-> श्रीभगवानुवाच ।
-> बहूनि मे व्यतीतानि जन्मानि तव चार्जुन ।
-> तान्यहं वेद सर्वाणि न त्वं वेत्थ परन्तप ॥५॥
 
 > śrī-bhagavān uvāca
 > bahūni me vyatītāni
@@ -3397,9 +2869,6 @@ In the *Vedas* also it is said that the Lord, although one without a second, nev
 
 ### Bg 4.6
 
-> अजोऽपि सन्नव्ययात्मा भूतानामीश्वरोऽपि सन् ।
-> प्रकृतिं स्वामधिष्ठाय सम्भवाम्यात्ममायया ॥६॥
-
 > ajo 'pi sann avyayātmā
 > bhūtānām īśvaro 'pi san
 > prakṛtiṁ svām adhiṣṭhāya
@@ -3412,9 +2881,6 @@ In the *Vedas* also it is said that the Lord, although one without a second, nev
 The Lord has spoken about the peculiarity of His birth: although He may appear like an ordinary person, He remembers everything of His many, many past "births," whereas a common man cannot remember what he has done even a few hours before. If someone is asked what he did exactly at the same time one day earlier, it would be very difficult for a common man to answer immediately. He would surely have to dredge his memory to recall what he was doing exactly at the same time one day before. And yet, men often dare claim to be God, or Kṛṣṇa. One should not be misled by such meaningless claims. Then again, the Lord explains His *prakṛti* or His form. *Prakṛti* means nature as well as *svarūpa,* or one's own form. The Lord says that He appears in His own body. He does not change His body, as the common living entity changes from one body to another. The conditioned soul may have one kind of body in the present birth, but he has a different body in the next birth. In the material world, the living entity has no fixed body but transmigrates from one body to another. The Lord, however, does not do so. Whenever He appears, He does so in the same original body, by His internal potency. In other words, Kṛṣṇa appears in this material world in His original eternal form, with two hands, holding a flute. He appears exactly in His eternal body, uncontaminated by this material world. Although He appears in the same transcendental body and is Lord of the universe, it still appears that He takes His birth like an ordinary living entity. Despite the fact Lord Kṛṣṇa grows from childhood to boyhood and from boyhood to youth, astonishingly enough He never ages beyond youth. At the time of the Battle of Kurukṣetra, He had many grandchildren at home; or, in other words, He had sufficiently aged by material calculations. Still He looked just like a young man twenty or twenty-five years old. We never see a picture of Kṛṣṇa in old age because He never grows old like us, although He is the oldest person in the whole creation—past, present, and future. Neither His body nor His intelligence ever deteriorates or changes. Therefore, it is clear that in spite of His being in the material world, He is the same unborn, eternal form of bliss and knowledge, changeless in His transcendental body and intelligence. Factually, His appearance and disappearance are like the sun's rising, moving before us, and then disappearing from our eyesight. When the sun is out of sight, we think that the sun is set, and when the sun is before our eyes, we think that the sun is on the horizon. Actually, the sun is always in its fixed position, but owing to our defective, insufficient senses, we calculate the appearance and disappearance of the sun in the sky. And, because His appearance and disappearance are completely different from that of any ordinary, common living entity, it is evident that He is eternal, blissful knowledge by His internal potency—and He is never contaminated by material nature. The *Vedas* also confirm that the Supreme Personality of Godhead is unborn, yet He still appears to take His birth in multi-manifestations. The Vedic supplementary literatures also confirm that even though the Lord appears to be taking His birth, He is still without change of body. In the *Bhāgavatam,* He appears before His mother as Nārāyaṇa, with four hands and the decorations of the six kinds of full opulences. His appearance in His original eternal form is His causeless mercy, according to the *Viśvakośa* dictionary. The Lord is conscious of all of His previous appearances and disappearances, but a common living entity forgets everything about his past body as soon as he gets another body. He is the Lord of all living entities because He performs wonderful and superhuman activities while He is on this earth. Therefore, the Lord is always the same Absolute Truth and is without differentiation between His form and self, or between His quality and body. A question may now be raised as to why the Lord appears and disappears in this world. This is explained in the next verse.
 
 ### Bg 4.7
-
-> यदा यदा हि धर्मस्य ग्लानिर्भवति भारत ।
-> अभ्युत्थानमधर्मस्य तदात्मानं सृजाम्यहम् ॥७॥
 
 > yadā yadā hi dharmasya
 > glānir bhavati bhārata
@@ -3430,9 +2896,6 @@ The word *sṛjāmi* is significant herein. *Sṛjāmi* cannot be used in the se
 The principles of the *Bhagavad-gītā* were spoken to Arjuna, and, for that matter, to other highly elevated persons, because he was highly advanced compared to ordinary persons in other parts of the world. Two plus two equals four is a mathematical principle that is true both in the beginner's arithmetic class and in the advanced class as well. Still, there are higher and lower mathematics. In all incarnations of the Lord, therefore, the same principles are taught, but they appear to be higher and lower in varied circumstances. The higher principles of religion begin with the acceptance of the four orders and the four statuses of social life, as will be explained later. The whole purpose of the mission of incarnations is to arouse Kṛṣṇa consciousness everywhere. Such consciousness is manifest and nonmanifest only under different circumstances.
 
 ### Bg 4.8
-
-> परित्राणाय साधूनां विनाशाय च दुष्कृताम् ।
-> धर्मसंस्थापनार्थाय सम्भवामि युगे युगे ॥८॥
 
 > paritrāṇāya sādhūnāṁ
 > vināśāya ca duṣkṛtām
@@ -3460,9 +2923,6 @@ The Lord says that He incarnates Himself in every millennium. This indicates tha
 
 ### Bg 4.9
 
-> जन्म कर्म च मे दिव्यमेवं यो वेत्ति तत्त्वतः ।
-> त्यक्त्वा देहं पुनर्जन्म नैति मामेति सोऽर्जुन ॥९॥
-
 > janma karma ca me divyam
 > evaṁ yo vetti tattvataḥ
 > tyaktvā dehaṁ punar janma
@@ -3483,9 +2943,6 @@ The Lord's descent from His transcendental abode is already explained in the 6th
 One can attain the perfect stage of liberation from birth and death simply by knowing the Lord, the Supreme Personality of Godhead. There is no alternative because anyone who does not understand Lord Kṛṣṇa as the Supreme Personality of Godhead is surely in the mode of ignorance. Consequently he will not attain salvation, simply, so to speak, by licking the outer surface of the bottle of honey, or by interpreting the *Bhagavad-gītā* according to mundane scholarship. Such empiric philosophers may assume very important roles in the material world, but they are not necessarily eligible for liberation. Such puffed up mundane scholars have to wait for the causeless mercy of the devotee of the Lord. One should therefore cultivate Kṛṣṇa consciousness with faith and knowledge, and in this way attain perfection.
 
 ### Bg 4.10
-
-> वीतरागभयक्रोधा मन्मया मामुपाश्रिताः ।
-> बहवो ज्ञानतपसा पूता मद्भावमागताः ॥१०॥
 
 > vīta-rāga-bhaya-krodhā
 > man-mayā mām upāśritāḥ
@@ -3509,9 +2966,6 @@ According to *Bhakti-rasāmṛta-sindhu,* the science of devotional service:
 
 ### Bg 4.11
 
-> ये यथा मां प्रपद्यन्ते तांस्तथैव भजाम्यहम् ।
-> मम वर्त्मानुवर्तन्ते मनुष्याः पार्थ सर्वशः ॥११॥
-
 > ye yathā māṁ prapadyante
 > tāṁs tathaiva bhajāmy aham
 > mama vartmānuvartante
@@ -3530,9 +2984,6 @@ Everyone is searching for Kṛṣṇa in the different aspects of His manifestat
 
 ### Bg 4.12
 
-> काङ्क्षन्तः कर्मणां सिद्धिं यजन्त इह देवताः ।
-> क्षिप्रं हि मानुषे लोके सिद्धिर्भवति कर्मजा ॥१२॥
-
 > kāṅkṣantaḥ karmaṇāṁ siddhiṁ
 > yajanta iha devatāḥ
 > kṣipraṁ hi mānuṣe loke
@@ -3546,9 +2997,6 @@ There is a great misconception about the gods or demigods of this material world
 
 ### Bg 4.13
 
-> चातुर्वर्ण्यं मया सृष्टं गुणकर्मविभागशः ।
-> तस्य कर्तारमपि मां विद्ध्यकर्तारमव्ययम् ॥१३॥
-
 > cātur-varṇyaṁ mayā sṛṣṭaṁ
 > guṇa-karma-vibhāgaśaḥ
 > tasya kartāram api māṁ
@@ -3561,9 +3009,6 @@ There is a great misconception about the gods or demigods of this material world
 The Lord is the creator of everything. Everything is born of Him, everything is sustained by Him, and everything, after annihilation, rests in Him. He is therefore the creator of the four divisions of the social order, beginning with the intelligent class of men, technically called *brāhmaṇas* due to their being situated in the mode of goodness. Next is the administrative class, technically called the *kṣatriyas* due to their being situated in the mode of passion. The mercantile men, called the *vaiśyas,* are situated in the mixed modes of passion and ignorance, and the *śūdras,* or laborer class, are situated in the ignorant mode of material nature. In spite of His creating the four divisions of human society, Lord Kṛṣṇa does not belong to any of these divisions, because He is not one of the conditioned souls, a section of whom form human society. Human society is similar to any other animal society, but to elevate men from the animal status, the abovementioned divisions are created by the Lord for the systematic development of Kṛṣṇa consciousness. The tendency of a particular man toward work is determined by the modes of material nature which he has acquired. Such symptoms of life, according to different modes of material nature, are described in the Eighteenth Chapter of this book. A person in Kṛṣṇa consciousness, however, is above even the *brāhmaṇas,* because a *brāhmaṇa* by quality is supposed to know about Brahman, the Supreme Absolute Truth. Most of them approach the impersonal Brahman manifestation of Lord Kṛṣṇa, but only a man who transcends the limited knowledge of a *brāhmaṇa* and reaches the knowledge of the Supreme Personality of Godhead, Lord Śrī Kṛṣṇa, becomes a person in Kṛṣṇa consciousness—or, in other words, a *Vaiṣṇava.* Kṛṣṇa consciousness includes knowledge of all different plenary expansions of Kṛṣṇa, namely Rāma, Nṛsiṁha, Varāha, etc. However, as Kṛṣṇa is transcendental to this system of the four divisions of human society, a person in Kṛṣṇa consciousness is also transcendental to all divisions of human society, whether we consider the divisions of community, nation or species.
 
 ### Bg 4.14
-
-> न मां कर्माणि लिम्पन्ति न मे कर्मफले स्पृहा ।
-> इति मां योऽभिजानाति कर्मभिर्न स बध्यते ॥१४॥
 
 > na māṁ karmāṇi limpanti
 > na me karma-phale spṛhā
@@ -3583,9 +3028,6 @@ In the material creations, the Lord is only the supreme cause. The immediate cau
 
 ### Bg 4.15
 
-> एवं ज्ञात्वा कृतं कर्म पूर्वैरपि मुमुक्षुभिः ।
-> कुरु कर्मैव तस्मात्त्वं पूर्वैः पूर्वतरं कृतम् ॥१५॥
-
 > evaṁ jñātvā kṛtaṁ karma
 > pūrvair api mumukṣubhiḥ
 > kuru karmaiva tasmāt tvaṁ
@@ -3598,9 +3040,6 @@ In the material creations, the Lord is only the supreme cause. The immediate cau
 There are two classes of men. Some of them are full of polluted material things within their hearts, and some of them are materially free. Kṛṣṇa consciousness is equally beneficial for both of these persons. Those who are full of dirty things can take to the line of Kṛṣṇa consciousness for a gradual cleansing process, following the regulative principles of devotional service. Those who are already cleansed of the impurities may continue to act in the same Kṛṣṇa consciousness so that others may follow their exemplary activities and thereby be benefitted. Foolish persons or neophytes in Kṛṣṇa consciousness often want to retire from activities without having knowledge of Kṛṣṇa consciousness. Arjuna's desire to retire from activities on the battlefield was not approved by the Lord. One need only know how to act. To retire from the activities of Kṛṣṇa consciousness and to sit aloof making a show of Kṛṣṇa consciousness; is less important than actually engaging in the field of activities for the sake of Kṛṣṇa. Arjuna is here advised to act in Kṛṣṇa consciousness, following in the footsteps of the Lord's previous disciples, such as the sun-god Vivasvān, as mentioned hereinbefore. The Supreme Lord knows all His past activities, as well as those of persons who acted in Kṛṣṇa consciousness in the past. Therefore He recommends the acts of the sun-god, who learned this art from the Lord some millions of years before. All such students of Lord Kṛṣṇa are mentioned here as past liberated persons, engaged in the discharge of duties allotted by Kṛṣṇa.
 
 ### Bg 4.16
-
-> किं कर्म किमकर्मेति कवयोऽप्यत्र मोहिताः ।
-> तत्ते कर्म प्रवक्ष्यामि यज्ज्ञात्वा मोक्ष्यसेऽशुभात् ॥१६॥
 
 > kiṁ karma kim akarmeti
 > kavayo 'py atra mohitāḥ
@@ -3619,9 +3058,6 @@ It is said that one cannot ascertain the ways of religion simply by imperfect ex
 
 ### Bg 4.17
 
-> कर्मणो ह्यपि बोद्धव्यं बोद्धव्यं च विकर्मणः ।
-> अकर्मणश्च बोद्धव्यं गहना कर्मणो गतिः ॥१७॥
-
 > karmaṇo hy api boddhavyaṁ
 > boddhavyaṁ ca vikarmaṇaḥ
 > akarmaṇaś ca boddhavyaṁ
@@ -3634,9 +3070,6 @@ It is said that one cannot ascertain the ways of religion simply by imperfect ex
 If one is serious about liberation from material bondage, one has to understand the distinctions between action, inaction and unauthorized actions. One has to apply oneself to such an analysis of action, reaction and perverted actions because it is a very difficult subject matter. To understand Kṛṣṇa consciousness and action according to the modes, one has to learn one's relationship with the Supreme; i.e., one who has learned perfectly knows that every living entity is the eternal servitor of the Lord and that consequently one has to act in Kṛṣṇa consciousness. The entire *Bhagavad-gītā* is directed toward this conclusion. Any other conclusions, against this consciousness and its attendant reactions, are *vikarmas,* or prohibitive actions. To understand all this one has to associate with authorities in Kṛṣṇa consciousness and learn the secret from them; this is as good as learning from the Lord directly. Otherwise, even the most intelligent person will be bewildered.
 
 ### Bg 4.18
-
-> कर्मण्यकर्म यः पश्येदकर्मणि च कर्म यः ।
-> स बुद्धिमान्मनुष्येषु स युक्तः कृत्स्नकर्मकृत् ॥१८॥
 
 > karmaṇy akarma yaḥ paśyed
 > akarmaṇi ca karma yaḥ
@@ -3651,9 +3084,6 @@ A person acting in Kṛṣṇa consciousness is naturally free from the bonds of
 
 ### Bg 4.19
 
-> यस्य सर्वे समारम्भाः कामसङ्कल्पवर्जिताः ।
-> ज्ञानाग्निदग्धकर्माणं तमाहुः पण्डितं बुधाः ॥१९॥
-
 > yasya sarve samārambhāḥ
 > kāma-saṅkalpa-varjitāḥ
 > jñānāgni-dagdha-karmāṇaṁ
@@ -3666,9 +3096,6 @@ A person acting in Kṛṣṇa consciousness is naturally free from the bonds of
 Only a person in full knowledge can understand the activities of a person in Kṛṣṇa consciousness. Because the person in Kṛṣṇa consciousness is devoid of all kinds of sense-gratificatory propensities, it is to be understood that he has burned up the reactions of his work by perfect knowledge of his constitutional position as the eternal servitor of the Supreme Personality of Godhead. He is actually learned who has attained to such perfection of knowledge. Development of this knowledge of the eternal servitorship of the Lord is compared to fire. Such a fire, once kindled, can burn up all kinds of reactions to work.
 
 ### Bg 4.20
-
-> त्यक्त्वा कर्मफलासङ्गं नित्यतृप्तो निराश्रयः ।
-> कर्मण्यभिप्रवृत्तोऽपि नैव किञ्चित्करोति सः ॥२०॥
 
 > tyaktvā karma-phalāsaṅgaṁ
 > nitya-tṛpto nirāśrayaḥ
@@ -3683,9 +3110,6 @@ This freedom from the bondage of actions is possible only in Kṛṣṇa conscio
 
 ### Bg 4.21
 
-> निराशीर्यतचित्तात्मा त्यक्तसर्वपरिग्रहः ।
-> शारीरं केवलं कर्म कुर्वन्नाप्नोति किल्बिषम् ॥२१॥
-
 > nirāśīr yata-cittātmā
 > tyakta-sarva-parigrahaḥ
 > śārīraṁ kevalaṁ karma
@@ -3698,9 +3122,6 @@ This freedom from the bondage of actions is possible only in Kṛṣṇa conscio
 A Kṛṣṇa conscious person does not expect good or bad results in his activities. His mind and intelligence are fully controlled. He knows that he is part and parcel of the Supreme, and therefore the part played by him, as a part and parcel of the whole, is not his by choice but is chosen for him by the Supreme and is done only through His agency. When the hand moves, it does not move out of its own accord, but by the endeavor of the whole body. A Kṛṣṇa conscious person is always dovetailed with the supreme desire, for he has no desire for personal sense gratification. He moves exactly like a part of a machine. As a machine part requires oiling and cleaning for maintenance, similarly, a Kṛṣṇa conscious man maintains himself by his work just to remain fit for action in the transcendental loving service of the Lord. He is therefore immune to all the reactions of his endeavors. Like an animal, he has no proprietorship even over his own body. A cruel proprietor of an animal sometimes kills the animal in his possession, yet the animal does not protest. Nor does it have any real independence. A Kṛṣṇa conscious person, fully engaged in self-realization, has very little time to falsely possess any material object. For maintaining body and soul, he does not require unfair means of accumulating money. He does not, therefore, become contaminated by such material sins. He is free from all reactions to his actions.
 
 ### Bg 4.22
-
-> यदृच्छालाभसन्तुष्टो द्वन्द्वातीतो विमत्सरः ।
-> समः सिद्धावसिद्धौ च कृत्वापि न निबध्यते ॥२२॥
 
 > yadṛcchā-lābha-santuṣṭo
 > dvandvātīto vimatsaraḥ
@@ -3715,9 +3136,6 @@ A Kṛṣṇa conscious person does not make much endeavor even to maintain his 
 
 ### Bg 4.23
 
-> गतसङ्गस्य मुक्तस्य ज्ञानावस्थितचेतसः ।
-> यज्ञायाचरतः कर्म समग्रं प्रविलीयते ॥२३॥
-
 > gata-saṅgasya muktasya
 > jñānāvasthita-cetasaḥ
 > yajñāyācarataḥ karma
@@ -3730,9 +3148,6 @@ A Kṛṣṇa conscious person does not make much endeavor even to maintain his 
 Becoming fully Kṛṣṇa conscious, one is freed from all dualities and thus is free from the contaminations of the material modes. He can become liberated because he knows his constitutional position in relationship with Kṛṣṇa; and thus his mind cannot be drawn from Kṛṣṇa consciousness. Consequently, whatever he does, he does for Kṛṣṇa, who is the primeval Viṣṇu. Therefore, all his works are technically sacrifices because sacrifice involves satisfying the Supreme Person, Kṛṣṇa. The resultant reactions to all such work certainly merge into transcendence, and one does not suffer material effects.
 
 ### Bg 4.24
-
-> ब्रह्मार्पणं ब्रह्म हविर्ब्रह्माग्नौ ब्रह्मणा हुतम् ।
-> ब्रह्मैव तेन गन्तव्यं ब्रह्मकर्मसमाधिना ॥२४॥
 
 > brahmārpaṇaṁ brahma havir
 > brahmāgnau brahmaṇā hutam
@@ -3747,9 +3162,6 @@ How activities in Kṛṣṇa consciousness can lead one ultimately to the spiri
 
 ### Bg 4.25
 
-> दैवमेवापरे यज्ञं योगिनः पर्युपासते ।
-> ब्रह्माग्नावपरे यज्ञं यज्ञेनैवोपजुह्वति ॥२५॥
-
 > daivam evāpare yajñaṁ
 > yoginaḥ paryupāsate
 > brahmāgnāv apare yajñaṁ
@@ -3762,9 +3174,6 @@ How activities in Kṛṣṇa consciousness can lead one ultimately to the spiri
 As described above, a person engaged in discharging duties in Kṛṣṇa consciousness is also called a perfect *yogī* or a first-class mystic. But there are others also, who perform similar sacrifices in the worship of demigods, and still others who sacrifice to the Supreme Brahman, or the impersonal feature of the Supreme Lord. So there are different kinds of sacrifices in terms of different categories. Such different categories of sacrifice by different types of performers only superficially demark varieties of sacrifice. Factual sacrifice means to satisfy the Supreme Lord, Viṣṇu, who is also known as *Yajña.* All the different varieties of sacrifice can be placed within two primary divisions: namely, sacrifice of worldly possessions and sacrifice in pursuit of transcendental knowledge. Those who are in Kṛṣṇa consciousness sacrifice all material possessions for the satisfaction of the Supreme Lord, while others, who want some temporary material happiness, sacrifice their material possessions to satisfy demigods such as Indra, the sun-god, etc. And others, who are impersonalists, sacrifice their identity by merging into the existence of impersonal Brahman. The demigods are powerful living entities appointed by the Supreme Lord for the maintenance and supervision of all material functions like the heating, watering and lighting of the universe. Those who are interested in material benefits worship the demigods by various sacrifices according to the Vedic rituals. They are called *bahv-īśvara-vādī,* or believers in many gods. But others, who worship the impersonal feature of the Absolute Truth and regard the forms of the demigods as temporary, sacrifice their individual selves in the supreme fire and thus end their individual existences by merging into the existence of the Supreme. Such impersonalists spend their time in philosophical speculation to understand the transcendental nature of the Supreme. In other words, the fruitive workers sacrifice their material possessions for material enjoyment, whereas the impersonalist sacrifices his material designations with a view to merging into the existence of the Supreme. For the impersonalist, the fire altar of sacrifice is the Supreme Brahman, and the offering is the self being consumed by the fire of Brahman. The Kṛṣṇa conscious person, like Arjuna, however, sacrifices everything for the satisfaction of Kṛṣṇa, and thus all his material possessions as well as his own self—everything—is sacrificed for Kṛṣṇa. Thus, he is the first-class *yogī*; but he does not lose his individual existence.
 
 ### Bg 4.26
-
-> श्रोत्रादीनीन्द्रियाण्यन्ये संयमाग्निषु जुह्वति ।
-> शब्दादीन्विषयानन्य इन्द्रियाग्निषु जुह्वति ॥२६॥
 
 > śrotrādīnīndriyāṇy anye
 > saṁyamāgniṣu juhvati
@@ -3779,9 +3188,6 @@ The four divisions of human life, namely the *brahmacārī,* the *gṛhastha,* t
 
 ### Bg 4.27
 
-> सर्वाणीन्द्रियकर्माणि प्राणकर्माणि चापरे ।
-> आत्मसंयमयोगाग्नौ जुह्वति ज्ञानदीपिते ॥२७॥
-
 > sarvāṇīndriya-karmāṇi
 > prāṇa-karmāṇi cāpare
 > ātma-saṁyama-yogāgnau
@@ -3795,9 +3201,6 @@ The *yoga* system conceived by Patañjali is referred to herein. In the *Yoga-s�
 
 ### Bg 4.28
 
-> द्रव्ययज्ञास्तपोयज्ञा योगयज्ञास्तथापरे ।
-> स्वाध्यायज्ञानयज्ञाश्च यतयः संशितव्रताः ॥२८॥
-
 > dravya-yajñās tapo-yajñā
 > yoga-yajñās tathāpare
 > svādhyāya-jñāna-yajñāś ca
@@ -3810,10 +3213,6 @@ The *yoga* system conceived by Patañjali is referred to herein. In the *Yoga-s�
 These sacrifices may be fitted into various divisions. There are persons who are sacrificing their possessions in the form of various kinds of charities. In India, the rich mercantile community or princely orders open various kinds of charitable institutions like *dharmaśālā, anna-kṣetra, atithi-śālā, anathalaya, vidyāpīṭha,* etc. In other countries, too, there are many hospitals, old age homes and similar charitable foundations meant for distributing food, education and medical treatment free to the poor. All these charitable activities are called *dravyamaya-yajña.* There are others who, for higher elevation in life or for promotion to higher planets within the universe, voluntarily accept many kinds of austerities such as *candrāyana* and *cāturmāsya.* These processes entail severe vows for conducting life under certain rigid rules. For example, under the *cāturmāsya* vow the candidate does not shave for four months during the year (July to October), he does not eat certain foods, does not eat twice in a day and does not leave home. Such sacrifice of the comforts of life is called *tapomaya-yajña.* There are still others who engage themselves in different kinds of mystic *yogas* like the Patañjali system (for merging into the existence of the Absolute), or *haṭha-yoga* or *aṣṭāṅga-yoga* (for particular perfections). And some travel to all the sanctified places of pilgrimage. All these practices are called *yoga-yajña,* sacrifice for a certain type of perfection in the material world. There are others who engage themselves in the studies of different Vedic literatures, specifically the *Upaniṣads* and *Vedānta-sūtras,* or the *sāṅkhya* philosophy. All of these are called *svādhyāya-yajña,* or engagement in the sacrifice of studies. All these *yogīs* are faithfully engaged in different types of sacrifice and are seeking a higher status of life. Kṛṣṇa consciousness, is, however, different from these because it is the direct service of the Supreme Lord. Kṛṣṇa consciousness cannot be attained by any one of the above-mentioned types of sacrifices but can be attained only by the mercy of the Lord and His bona fide devotee. Therefore, Kṛṣṇa consciousness is transcendental.
 
 ### Bg 4.29
-
-> अपाने जुह्वति प्राणं प्राणेऽपानं तथापरे ।
-> प्राणापानगती रुद्ध्वा प्राणायामपरायणाः ।
-> अपरे नियताहाराः प्राणान्प्राणेषु जुह्वति ॥२९॥
 
 > apāne juhvati prāṇaṁ
 > prāṇe 'pānaṁ tathāpare
@@ -3830,9 +3229,6 @@ This system of *yoga* for controlling the breathing process is called *prāṇā
 
 ### Bg 4.30
 
-> सर्वेऽप्येते यज्ञविदो यज्ञक्षपितकल्मषाः ।
-> यज्ञशिष्टामृत भुजो यान्ति ब्रह्मा सनातनम् ॥३०॥
-
 > sarve 'py ete yajña-vido
 > yajña-kṣapita-kalmaṣāḥ
 > yajña-śiṣṭāmṛta-bhujo
@@ -3846,8 +3242,6 @@ From the foregoing explanation of differents types of sacrifice (namely sacrific
 
 ### Bg 4.31
 
-> नायं लोकोऽस्त्ययज्ञस्य कुतोऽन्यः कुरुसत्तम ॥३१॥
-
 > nāyaṁ loko 'sty ayajñasya
 > kuto 'nyaḥ kuru-sattama
 
@@ -3858,9 +3252,6 @@ From the foregoing explanation of differents types of sacrifice (namely sacrific
 Whatever form of material existence one is in, one is invariably ignorant of his real situation. In other words, existence in the material world is due to the multiple reactions to our sinful lives. Ignorance is the cause of sinful life, and sinful life is the cause of one's dragging on in material existence. The human form of life is the only loophole by which one may get out of this entanglement. The *Vedas,* therefore, give us a chance for escape by pointing out the paths of religion, economic comfort, regulated sense gratification and, at last, the means to get out of the miserable condition entirely. The path of religion, or the different kinds of sacrifice recommended above, automatically solves our economic problems. By performance of *yajña* we can have enough food, enough milk, etc.—even if there is a so-called increase of population. When the body is fully supplied, naturally the next stage is to satisfy the senses. The *Vedas* prescribe, therefore, sacred marriage for regulated sense gratification. Thereby one is gradually elevated to the platform of release from material bondage, and the highest perfection of liberated life is to associate with the Supreme Lord. Perfection is achieved by performance of *yajña* (sacrifice), as described above. Now, if a person is not inclined to perform *yajña* according to the *Vedas,* how can he expect a happy life? There are different grades of material comforts in different heavenly planets, and in all cases there is immense happiness for persons engaged in different kinds of *yajña.* But the highest kind of happiness that a man can achieve is to be promoted to the spiritual planets by practice of Kṛṣṇa consciousness. A life of Kṛṣṇa consciousness is therefore the solution to all the problems of material existence.
 
 ### Bg 4.32
-
-> एवं बहुविधा यज्ञा वितता ब्रह्मणो मुखे ।
-> कर्मजान्विद्धि तान्सर्वानेवं ज्ञात्वा विमोक्ष्यसे ॥३२॥
 
 > evaṁ bahu-vidhā yajñā
 > vitatā brahmaṇo mukhe
@@ -3875,9 +3266,6 @@ Different types of sacrifice, as discussed above, are mentioned in the *Vedas* t
 
 ### Bg 4.33
 
-> श्रेयान्द्रव्यमयाद्यज्ञाज्ज्ञानयज्ञः परन्तप ।
-> सर्वं कर्माखिलं पार्थ ज्ञाने परिसमाप्यते ॥३३॥
-
 > śreyān dravya-mayād yajñāj
 > jñāna-yajñaḥ parantapa
 > sarvaṁ karmākhilaṁ pārtha
@@ -3891,9 +3279,6 @@ The purpose of all sacrifices is to arrive at the status of complete knowledge, 
 
 ### Bg 4.34
 
-> तद्विद्धि प्रणिपातेन परिप्रश्नेन सेवया ।
-> उपदेक्ष्यन्ति ते ज्ञानं ज्ञानिनस्तत्त्वदर्शिनः ॥३४॥
-
 > tad viddhi praṇipātena
 > paripraśnena sevayā
 > upadekṣyanti te jñānaṁ
@@ -3906,9 +3291,6 @@ The purpose of all sacrifices is to arrive at the status of complete knowledge, 
 The path of spiritual realization is undoubtedly difficult. The Lord therefore advises us to approach a bona fide spiritual master in the line of disciplic succession from the Lord Himself. No one can be a bona fide spiritual master without following this principle of disciplic succession. The Lord is the original spiritual master, and a person in the disciplic succession can convey the message of the Lord as it is to his disciple. No one can be spiritually realized by manufacturing his own process, as is the fashion of the foolish pretenders. The *Bhāgavatam* says: *dharmaṁ hi sākṣād-bhagavat-praṇītam*—the path of religion is directly enunciated by the Lord. Therefore, mental speculation or dry arguments cannot help one progress in spiritual life. One has to approach a bona fide spiritual master to receive the knowledge. Such a spiritual master should be accepted in full surrender, and one should serve the spiritual master like a menial servant, without false prestige. Satisfaction of the self-realized spiritual master is the secret of advancement in spiritual life. Inquiries and submission constitute the proper combination for spiritual understanding. Unless there is submission and service, inquiries from the learned spiritual master will not be effective. One must be able to pass the test of the spiritual master, and when he sees the genuine desire of the disciple, he automatically blesses the disciple with genuine spiritual understanding. In this verse, both blind following and absurd inquiries are condemned. One should not only hear submissively from the spiritual master; but one must also get a clear understanding from him, in submission and service and inquiries. A bona fide spiritual master is by nature very kind toward the disciple. Therefore when the student is submissive and is always ready to render service, the reciprocation of knowledge and inquiries becomes perfect.
 
 ### Bg 4.35
-
-> यज्ज्ञात्वा न पुनर्मोहमेवं यास्यसि पाण्डव ।
-> येन भूतान्यशेषेण द्रक्ष्यस्यात्मन्यथो मयि ॥३५॥
 
 > yaj jñātvā na punar moham
 > evaṁ yāsyasi pāṇḍava
@@ -3925,9 +3307,6 @@ For want of sufficient knowledge in the absolute science, we are now covered wit
 
 ### Bg 4.36
 
-> अपि चेदसि पापेभ्यः सर्वेभ्यः पापकृत्तमः ।
-> सर्वं ज्ञानप्लवेनैव वृजिनं सन्तरिष्यसि ॥३६॥
-
 > api ced asi pāpebhyaḥ
 > sarvebhyaḥ pāpa-kṛt-tamaḥ
 > sarvaṁ jñāna-plavenaiva
@@ -3940,9 +3319,6 @@ For want of sufficient knowledge in the absolute science, we are now covered wit
 Proper understanding of one's constitutional position in relationship to Kṛṣṇa is so nice that it can at once lift one from the struggle for existence which goes on in the ocean of nescience. This material world is sometimes regarded as an ocean of nescience and sometimes as a blazing forest. In the ocean, however expert a swimmer one may be, the struggle for existence is very severe. If someone comes forward and lifts the struggling swimmer from the ocean, he is the greatest savior. Perfect knowledge, received from the Supreme Personality of Godhead, is the path of liberation. The boat of Kṛṣṇa consciousness is very simple, but at the same time the most sublime.
 
 ### Bg 4.37
-
-> यथैधांसि समिद्धोऽग्निर्भस्मसात्कुरुतेऽर्जुन ।
-> ज्ञानाग्निः सर्वकर्माणि भस्मसात्कुरुते तथा ॥३७॥
 
 > yathaidhāṁsi samiddho 'gnir
 > bhasma-sāt kurute 'rjuna
@@ -3957,9 +3333,6 @@ Perfect knowledge of self and Superself and of their relationship is compared he
 
 ### Bg 4.38
 
-> न हि ज्ञानेन सदृशं पवित्रमिह विद्यते ।
-> तत्स्वयं योगसंसिद्धः कालेनात्मनि विन्दति ॥३८॥
-
 > na hi jñānena sadṛśaṁ
 > pavitram iha vidyate
 > tat svayaṁ yoga-saṁsiddhaḥ
@@ -3972,9 +3345,6 @@ Perfect knowledge of self and Superself and of their relationship is compared he
 When we speak of transcendental knowledge, we do so in terms of spiritual understanding. As such, there is nothing so sublime and pure as transcendental knowledge. Ignorance is the cause of our bondage, and knowledge is the cause of our liberation. This knowledge is the mature fruit of devotional service, and when one is situated in transcendental knowledge, he need not search for peace elsewhere, for he enjoys peace within himself. In other words, this knowledge and peace are culminated in Kṛṣṇa consciousness. That is the last word in the *Bhagavad-gītā.*
 
 ### Bg 4.39
-
-> श्रद्धावाँल्लभते ज्ञानं तत्परः संयतेन्द्रियः ।
-> ज्ञानं लब्ध्वा परां शान्तिमचिरेणाधिगच्छति ॥३९॥
 
 > śraddhāvāl labhate jñānaṁ
 > tat-paraḥ saṁyatendriyaḥ
@@ -3989,9 +3359,6 @@ Such knowledge in Kṛṣṇa consciousness can be achieved by a faithful person
 
 ### Bg 4.40
 
-> अज्ञश्चाश्रद्दधानश्च संशयात्मा विनश्यति ।
-> नायं लोकोऽस्ति न परो न सुखं संशयात्मनः ॥४०॥
-
 > ajñaś cāśraddadhānaś ca
 > saṁśayātmā vinaśyati
 > nāyaṁ loko 'sti na paro
@@ -4005,9 +3372,6 @@ Out of many standard and authoritative revealed scriptures, the *Bhagavad-gītā
 
 ### Bg 4.41
 
-> योगसंन्यस्तकर्माणं ज्ञानसञ्छिन्नसंशयम् ।
-> आत्मवन्तं न कर्माणि निबध्नन्ति धनञ्जय ॥४१॥
-
 > yoga-sannyasta-karmāṇaṁ
 > jñāna-sañchinna-saṁśayam
 > ātmavantaṁ na karmāṇi
@@ -4020,9 +3384,6 @@ Out of many standard and authoritative revealed scriptures, the *Bhagavad-gītā
 One who follows the instruction of the *Gītā,* as it is imparted by the Lord, the Personality of Godhead Himself, becomes free from all doubts by the grace of transcendental knowledge. He, as a part and parcel of the Lord, in full Kṛṣṇa consciousness, is already established in self-knowledge. As such, he is undoubtedly above bondage to action.
 
 ### Bg 4.42
-
-> तस्मादज्ञानसम्भूतं हृत्स्थं ज्ञानासिनात्मनः ।
-> छित्त्वैनं संशयं योगमातिष्ठोत्तिष्ठ भारत ॥४२॥
 
 > tasmād ajñāna-sambhūtaṁ
 > hṛt-sthaṁ jñānāsinātmanaḥ
@@ -4041,10 +3402,6 @@ The *yoga* system instructed in this chapter is called *sanātana-yoga,* or eter
 
 ### Bg 5.1
 
-> अर्जुन उवाच ।
-> संन्यासं कर्मणां कृष्ण पुनर्योगं च शंससि ।
-> यच्छ्रेय एतयोरेकं तन्मे ब्रूहि सुनिश्चितम् ॥१॥
-
 > arjuna uvāca
 > sannyāsaṁ karmaṇāṁ kṛṣṇa
 > punar yogaṁ ca śaṁsasi
@@ -4058,10 +3415,6 @@ The *yoga* system instructed in this chapter is called *sanātana-yoga,* or eter
 In this Fifth Chapter of the *Bhagavad-gītā,* the Lord says that work in devotional service is better than dry mental speculation. Devotional service is easier than the latter because, being transcendental in nature, it frees one from reaction. In the Second Chapter, preliminary knowledge of the soul and its entanglement in the material body were explained. How to get out of this material encagement by *buddhi-yoga,* or devotional service, was also explained therein. In the Third Chapter, it was explained that a person who is situated on the platform of knowledge no longer has any duties to perform. And, in the Fourth Chapter, the Lord told Arjuna that all kinds of sacrificial work culminate in knowledge. However, at the end of the Fourth Chapter, the Lord advised Arjuna to wake up and fight, being situated in perfect knowledge. Therefore, by simultaneously stressing the importance of both work in devotion and inaction in knowledge, Kṛṣṇa has perplexed Arjuna and confused his determination. Arjuna understands that renunciation in knowledge involves cessation of all kinds of work performed as sense activities. But if one performs work in devotional service, then how is work stopped? In other words, he thinks that *sannyāsam,* or renunciation in knowledge, should be altogether free from all kinds of activity because work and renunciation appear to him to be incompatible. He appears not to have understood that work in full knowledge is nonreactive and is therefore the same as inaction. He inquires, therefore, whether he should cease work altogether, or work with full knowledge.
 
 ### Bg 5.2
-
-> श्रीभगवानुवाच ।
-> संन्यासः कर्मयोगश्च निःश्रेयसकरावुभौ ।
-> तयोस्तु कर्मसंन्यासात्कर्मयोगो विशिष्यते ॥२॥
 
 > śrī-bhagavān uvāca
 > sannyāsaḥ karma-yogaś ca
@@ -4095,9 +3448,6 @@ Therefore, *jñāna* (or knowledge that one is not this material body but spirit
 
 ### Bg 5.3
 
-> ज्ञेयः स नित्यसंन्यासी यो न द्वेष्टि न काङ्क्षति ।
-> निर्द्वन्द्वो हि महाबाहो सुखं बन्धात्प्रमुच्यते ॥३॥
-
 > jñeyaḥ sa nitya-sannyāsī
 > yo na dveṣṭi na kāṅkṣati
 > nirdvandvo hi mahā-bāho
@@ -4110,9 +3460,6 @@ Therefore, *jñāna* (or knowledge that one is not this material body but spirit
 One who is fully in Kṛṣṇa consciousness is always a renouncer because he feels neither hatred nor desire for the results of his actions. Such a renouncer, dedicated to the transcendental loving service of the Lord, is fully qualified in knowledge because he knows his constitutional position in his relationship with Kṛṣṇa. He knows fully well that Kṛṣṇa is the whole and that he is part and parcel of Kṛṣṇa. Such knowledge is perfect because it is qualitatively and quantitatively correct. The concept of oneness with Kṛṣṇa is incorrect because the part cannot be equal to the whole. Knowledge that one is one in quality yet different in quantity is correct transcendental knowledge leading one to become full in himself, having nothing to aspire to nor lament over. There is no duality in his mind because whatever he does, he does for Kṛṣṇa. Being thus freed from the platform of dualities, he is liberated—even in this material world.
 
 ### Bg 5.4
-
-> साङ्ख्ययोगौ पृथग्बालाः प्रवदन्ति न पण्डिताः ।
-> एकमप्यास्थितः सम्यगुभयोर्विन्दते फलम् ॥४॥
 
 > sāṅkhya-yogau pṛthag bālāḥ
 > pravadanti na paṇḍitāḥ
@@ -4127,9 +3474,6 @@ The aim of the analytical study of the material world is to find the soul of exi
 
 ### Bg 5.5
 
-> यत्साङ्ख्यैः प्राप्यते स्थानं तद्योगैरपि गम्यते ।
-> एकं साङ्ख्यं च योगं च यः पश्यति स पश्यति ॥५॥
-
 > yat sāṅkhyaiḥ prāpyate sthānaṁ
 > tad yogair api gamyate
 > ekaṁ sāṅkhyaṁ ca yogaṁ ca
@@ -4142,9 +3486,6 @@ The aim of the analytical study of the material world is to find the soul of exi
 The real purpose of philosophical research is to find the ultimate goal of life. Since the ultimate goal of life is self-realization, there is no difference between the conclusions reached by the two processes. By *sāṅkhya* philosophical research one comes to the conclusion that a living entity is not a part and parcel of the material world, but of the supreme spirit whole. Consequently, the spirit soul has nothing to do with the material world; his actions must be in some relation with the Supreme. When he acts in Kṛṣṇa consciousness, he is actually in his constitutional position. In the first process of *sāṅkhya,* one has to become detached from matter, and in the devotional *yoga* process one has to attach himself to the work of Kṛṣṇa. Factually, both processes are the same, although superficially one process appears to involve detachment and the other process appears to involve attachment. However, detachment from matter and attachment to Kṛṣṇa are one and the same. One who can see this sees things as they are.
 
 ### Bg 5.6
-
-> संन्यासस्तु महाबाहो दुःखमाप्तुमयोगतः ।
-> योगयुक्तो मुनिर्ब्रह्म नचिरेणाधिगच्छति ॥६॥
 
 > sannyāsas tu mahā-bāho
 > duḥkham āptum ayogataḥ
@@ -4159,9 +3500,6 @@ There are two classes of *sannyāsīs,* or persons in the renounced order of lif
 
 ### Bg 5.7
 
-> योगयुक्तो विशुद्धात्मा विजितात्मा जितेन्द्रियः ।
-> सर्वभूतात्मभूतात्मा कुर्वन्नपि न लिप्यते ॥७॥
-
 > yoga-yukto viśuddhātmā
 > vijitātmā jitendriyaḥ
 > sarva-bhūtātma-bhūtātmā
@@ -4174,11 +3512,6 @@ There are two classes of *sannyāsīs,* or persons in the renounced order of lif
 One who is on the path of liberation by Kṛṣṇa consciousness is very dear to every living being, and every living being is dear to him. This is due to his Kṛṣṇa consciousness. Such a person cannot think of any living being as separate from Kṛṣṇa, just as the leaves and branches of a tree are not separate from the tree. He knows very well that by pouring water on the root of the tree, the water will be distributed to all the leaves and branches, or by supplying food to the stomach, the energy is automatically distributed throughout the body. Because one who works in Kṛṣṇa consciousness is servant to all, he is very dear to everyone. And, because everyone is satisfied by his work, he is pure in consciousness. Because he is pure in consciousness, his mind is completely controlled. And, because his mind is controlled, his senses are also controlled. Because his mind is always fixed on Kṛṣṇa, there is no chance of his being deviated from Kṛṣṇa. Nor is there a chance that he will engage his senses in matters other than the service of the Lord. He does not like to hear anything except topics relating to Kṛṣṇa; he does not like to eat anything which is not offered to Kṛṣṇa; and he does not wish to go anywhere if Kṛṣṇa is not involved. Therefore, his senses are controlled. A man of controlled senses cannot be offensive to anyone. One may ask, "Why then was Arjuna offensive (in battle) to others? Wasn't he in Kṛṣṇa consciousness?" Arjuna was only superficially offensive because (as has already been explained in the Second Chapter) all the assembled persons on the battlefield would continue to live individually, as the soul cannot be slain. So, spiritually, no one was killed on the Battlefield of Kurukṣetra. Only their dresses were changed by the order of Kṛṣṇa, who was personally present. Therefore Arjuna, while fighting on the Battlefield of Kurukṣetra, was not really fighting at all; he was simply carrying out the orders of Kṛṣṇa in full Kṛṣṇa consciousness. Such a person is never entangled in the reactions of work.
 
 ### Bg 5.8-9
-
-> नैव किञ्चित्करोमीति युक्तो मन्येत तत्त्ववित् ।
-> पश्यञ्शृण्वन्स्पृशञ्जिघ्रन्नश्नन्गच्छन्स्वपञ्श्वसन् ॥८॥
-> प्रलपन्विसृजन्गृह्णन्नुन्मिषन्निमिषन्नपि ।
-> इन्द्रियाणीन्द्रियार्थेषु वर्तन्त इति धारयन् ॥९॥
 
 > naiva kiñcit karomīti
 > yukto manyeta tattva-vit
@@ -4198,9 +3531,6 @@ A person in Kṛṣṇa consciousness is pure in his existence, and consequently
 
 ### Bg 5.10
 
-> ब्रह्मण्याधाय कर्माणि सङ्गं त्यक्त्वा करोति यः ।
-> लिप्यते न स पापेन पद्मपत्रमिवाम्भसा ॥१०॥
-
 > brahmaṇy ādhāya karmāṇi
 > saṅgaṁ tyaktvā karoti yaḥ
 > lipyate na sa pāpena
@@ -4213,9 +3543,6 @@ A person in Kṛṣṇa consciousness is pure in his existence, and consequently
 Here *brahmaṇi* means in Kṛṣṇa consciousness. The material world is a sum total manifestation of the three modes of material nature, technically called the *pradhāna.* The Vedic hymns, *sarvam etad brahma, tasmād etad brahma nāma-rūpam annaṁ ca jāyate,* and, in the *Bhagavad-gītā, mama yonir mahad brahma,* indicate that everything in the material world is the manifestation of Brahman; and, although the effects are differently manifested, they are nondifferent from the cause. In the *Īśopaniṣad* it is said that everything is related to the Supreme Brahman or Kṛṣṇa, and thus everything belongs to Him only. One who knows perfectly well that everything belongs to Kṛṣṇa, that He is the proprietor of everything and that, therefore, everything is engaged in the service of the Lord, naturally has nothing to do with the results of his activities, whether virtuous or sinful. Even one's material body, being a gift of the Lord for carrying out a particular type of action, can be engaged in Kṛṣṇa consciousness. It is beyond contamination by sinful reactions, exactly as the lotus leaf, though remaining in the water, is not wet. The Lord also says in the *Gītā: mayi sarvāṇi karmāṇi sannyasya:* "Resign all works unto Me [Kṛṣṇa]." The conclusion is that a person without Kṛṣṇa consciousness acts according to the concept of the material body and senses, but a person in Kṛṣṇa consciousness acts according to the knowledge that the body is the property of Kṛṣṇa and should therefore be engaged in the service of Kṛṣṇa.
 
 ### Bg 5.11
-
-> कायेन मनसा बुद्ध्या केवलैरिन्द्रियैरपि ।
-> योगिनः कर्म कुर्वन्ति सङ्गं त्यक्त्वात्मशुद्धये ॥११॥
 
 > kāyena manasā buddhyā
 > kevalair indriyair api
@@ -4235,9 +3562,6 @@ A person acting in Kṛṣṇa consciousness (or, in other words, in the service
 
 ### Bg 5.12
 
-> युक्तः कर्मफलं त्यक्त्वा शान्तिमाप्नोति नैष्ठिकीम् ।
-> अयुक्तः कामकारेण फले सक्तो निबध्यते ॥१२॥
-
 > yuktaḥ karma-phalaṁ tyaktvā
 > śāntim āpnoti naiṣṭhikīm
 > ayuktaḥ kāma-kāreṇa
@@ -4250,9 +3574,6 @@ A person acting in Kṛṣṇa consciousness (or, in other words, in the service
 The difference between a person in Kṛṣṇa consciousness and a person in bodily consciousness is that the former is attached to Kṛṣṇa, whereas the latter is attached to the results of his activities. The person who is attached to Kṛṣṇa and works for Him only is certainly a liberated person, and he is not anxious for fruitive rewards. In the *Bhāgavatam,* the cause of anxiety over the result of an activity is explained as being due to one's functioning in the conception of duality, that is, without knowledge of the Absolute Truth. Kṛṣṇa is the Supreme Absolute Truth, the Personality of Godhead. In Kṛṣṇa consciousness, there is no duality. All that exists is a product of Kṛṣṇa's energy, and Kṛṣṇa is all good. Therefore, activities in Kṛṣṇa consciousness are on the absolute plane; they are transcendental and have no material effect. One is, therefore, filled with peace in Kṛṣṇa consciousness. One who is, however, entangled in profit calculation for sense gratification cannot have that peace. This is the secret of Kṛṣṇa consciousness—realization that there is no existence besides Kṛṣṇa is the platform of peace and fearlessness.
 
 ### Bg 5.13
-
-> सर्वकर्माणि मनसा संन्यस्यास्ते सुखं वशी ।
-> नवद्वारे पुरे देही नैव कुर्वन्न कारयन् ॥१३॥
 
 > sarva-karmāṇi manasā
 > sannyasyāste sukhaṁ vaśī
@@ -4274,9 +3595,6 @@ Therefore, a Kṛṣṇa conscious person is free from both the outer and inner 
 
 ### Bg 5.14
 
-> न कर्तृत्वं न कर्माणि लोकस्य सृजति प्रभुः ।
-> न कर्मफलसंयोगं स्वभावस्तु प्रवर्तते ॥१४॥
-
 > na kartṛtvaṁ na karmāṇi
 > lokasya sṛjati prabhuḥ
 > na karma-phala-saṁyogaṁ
@@ -4289,9 +3607,6 @@ Therefore, a Kṛṣṇa conscious person is free from both the outer and inner 
 The living entity, as will be explained in the Seventh Chapter, is one in nature with the Supreme Lord, distinguished from matter, which is another nature—called inferior—of the Lord. Somehow, the superior nature, the living entity, has been in contact with material nature since time immemorial. The temporary body or material dwelling place which he obtains is the cause of varieties of activities and their resultant reactions. Living in such a conditional atmosphere, one suffers the results of the activities of the body by identifying himself (in ignorance) with the body. It is ignorance acquired from time immemorial that is the cause of bodily suffering and distress. As soon as the living entity becomes aloof from the activities of the body, he becomes free from the reactions as well. As long as he is in the city of body, he appears to be the master of it, but actually he is neither its proprietor nor controller of its actions and reactions. He is simply in the midst of the material ocean, struggling for existence. The waves of the ocean are tossing him, and he has no control over them. His best solution is to get out of the water by transcendental Kṛṣṇa consciousness. That alone will save him from all turmoil.
 
 ### Bg 5.15
-
-> नादत्ते कस्यचित्पापं न चैव सुकृतं विभुः ।
-> अज्ञानेनावृतं ज्ञानं तेन मुह्यन्ति जन्तवः ॥१५॥
 
 > nādatte kasyacit pāpaṁ
 > na caiva sukṛtaṁ vibhuḥ
@@ -4320,9 +3635,6 @@ Therefore the embodied soul, by his immemorial desire to avoid Kṛṣṇa consc
 
 ### Bg 5.16
 
-> ज्ञानेन तु तदज्ञानं येषां नाशितमात्मनः ।
-> तेषामादित्यवज्ज्ञानं प्रकाशयति तत्परम् ॥१६॥
-
 > jñānena tu tad ajñānaṁ
 > yeṣāṁ nāśitam ātmanaḥ
 > teṣām āditya-vaj jñānaṁ
@@ -4335,9 +3647,6 @@ Therefore the embodied soul, by his immemorial desire to avoid Kṛṣṇa consc
 Those who have forgotten Kṛṣṇa must certainly be bewildered, but those who are in Kṛṣṇa consciousness are not bewildered at all. It is stated in the *Bhagavad-gītā,* "*sarvaṁ jñāna-plavena,*" "*jñānāgniḥ sarva-karmāṇi*" and "*na hi jñānena sadṛśam.*" Knowledge is always highly esteemed. And what is that knowledge? Perfect knowledge is achieved when one surrenders unto Kṛṣṇa, as is said in the Seventh Chapter, 19th verse: *bahūnāṁ janmanām ante jñānavān māṁ prapadyate.* After passing through many, many births, when one perfect in knowledge surrenders unto Kṛṣṇa, or when one attains Kṛṣṇa consciousness, then everything is revealed to him, as the sun reveals everything in the daytime. The living entity is bewildered in so many ways. For instance, when he thinks himself God, unceremoniously, he actually falls into the last snare of nescience. If a living entity is God, then how can he become bewildered by nescience? Does God become bewildered by nescience? If so, then nescience, or Satan, is greater than God. Real knowledge can be obtained from a person who is in perfect Kṛṣṇa consciousness. Therefore, one has to seek out such a bona fide spiritual master and, under him, learn what Kṛṣṇa consciousness is. The spiritual master can drive away all nescience, as the sun drives away darkness. Even though a person may be in full knowledge that he is not this body but is transcendental to the body, he still may not be able to discriminate between the soul and the Supersoul. However, he can know everything well if he cares to take shelter of the perfect, bona fide Kṛṣṇa conscious spiritual master. One can know God and one's relationship with God only when one actually meets a representative of God. A representative of God never claims that he is God, although he is paid all the respect ordinarily paid to God because he has knowledge of God. One has to learn the distinction between God and the living entity. Lord Śrī Kṛṣṇa therefore stated in the Second Chapter (2.12) that every living being is individual and that the Lord also is individual. They were all individuals in the past, they are individuals at present, and they will continue to be individuals in the future, even after liberation. At night we see everything as one in the darkness, but in day when the sun is up, we see everything in its real identity. Identity with individuality in spiritual life is real knowledge.
 
 ### Bg 5.17
-
-> तद्बुद्धयस्तदात्मानस्तन्निष्ठास्तत्परायणाः ।
-> गच्छन्त्यपुनरावृत्तिं ज्ञाननिर्धूतकल्मषाः ॥१७॥
 
 > tad-buddhayas tad-ātmānas
 > tan-niṣṭhās tat-parāyaṇāḥ
@@ -4352,9 +3661,6 @@ The Supreme Transcendental Truth is Lord Kṛṣṇa. The whole *Bhagavad-gītā
 
 ### Bg 5.18
 
-> विद्याविनयसम्पन्ने ब्राह्मणे गवि हस्तिनि ।
-> शुनि चैव श्वपाके च पण्डिताः समदर्शिनः ॥१८॥
-
 > vidyā-vinaya-sampanne
 > brāhmaṇe gavi hastini
 > śuni caiva śva-pāke ca
@@ -4367,9 +3673,6 @@ The Supreme Transcendental Truth is Lord Kṛṣṇa. The whole *Bhagavad-gītā
 A Kṛṣṇa conscious person does not make any distinction between species or castes. The *brāhmaṇa* and the outcaste may be different from the social point of view, or a dog, a cow, or an elephant may be different from the point of view of species, but these differences of body are meaningless from the viewpoint of a learned transcendentalist. This is due to their relationship to the Supreme, for the Supreme Lord, by His plenary portion as Paramātmā, is present in everyone's heart. Such an understanding of the Supreme is real knowledge. As far as the bodies are concerned in different castes or different species of life, the Lord is equally kind to everyone because He treats every living being as a friend yet maintains Himself as Paramātmā regardless of the circumstances of the living entities. The Lord as Paramātmā is present both in the outcaste and in the *brāhmaṇa,* although the body of a *brāhmaṇa* and that of an outcaste are not the same. The bodies are material productions of different modes of material nature, but the soul and the Supersoul within the body are of the same spiritual quality. The similarity in the quality of the soul and the Supersoul, however, does not make them equal in quantity, for the individual soul is present only in that particular body, whereas the Paramātmā is present in each and every body. A Kṛṣṇa conscious person has full knowledge of this, and therefore he is truly learned and has equal vision. The similar characteristics of the soul and Supersoul are that they are both conscious, eternal and blissful. But the difference is that the individual soul is conscious within the limited jurisdiction of the body, whereas the Supersoul is conscious of all bodies. The Supersoul is present in all bodies without distinction.
 
 ### Bg 5.19
-
-> इहैव तैर्जितः सर्गो येषां साम्ये स्थितं मनः ।
-> निर्दोषं हि समं ब्रह्म तस्माद् ब्रह्मणि ते स्थिताः ॥१९॥
 
 > ihaiva tair jitaḥ sargo
 > yeṣāṁ sāmye sthitaṁ manaḥ
@@ -4384,9 +3687,6 @@ Equanimity of mind, as mentioned above, is the sign of self-realization. Those w
 
 ### Bg 5.20
 
-> न प्रहृष्येत्प्रियं प्राप्य नोद्विजेत्प्राप्य चाप्रियम् ।
-> स्थिरबुद्धिरसम्मूढो ब्रह्मविद् ब्रह्मणि स्थितः ॥२०॥
-
 > na prahṛṣyet priyaṁ prāpya
 > nodvijet prāpya cāpriyam
 > sthira-buddhir asammūḍho
@@ -4399,9 +3699,6 @@ Equanimity of mind, as mentioned above, is the sign of self-realization. Those w
 The symptoms of the self-realized person are given herein. The first symptom is that he is not illusioned by the false identification of the body with his true self. He knows perfectly well that he is not this body, but is the fragmental port~on of the Supreme Personality of Godhead. He is therefore not joyful in achieving something, nor does he lament in losing anything which is related to his body. This steadiness of mind is called *sthira-buddhi,* or self-intelligence. He is therefore never bewildered by mistaking the gross body for the soul, nor does he accept the body as permanent and disregard the existence of the soul. This knowledge elevates him to the station of knowing the complete science of the Absolute Truth, namely Brahman, Paramātmā and Bhagavān. He thus knows his constitutional position perfectly well, without falsely trying to become one with the Supreme in all respects. This is called Brahman realization, or self-realization. Such steady consciousness is called Kṛṣṇa consciousness.
 
 ### Bg 5.21
-
-> बाह्यस्पर्शेष्वसक्तात्मा विन्दत्यात्मनि यत्सुखम् ।
-> स ब्रह्मयोगयुक्तात्मा सुखमक्षयमश्नुते ॥२१॥
 
 > bāhya-sparśeṣv asaktātmā
 > vindaty ātmani yat sukham
@@ -4422,9 +3719,6 @@ The symptoms of the self-realized person are given herein. The first symptom is 
 "Since I have been engaged in the transcendental loving service of Kṛṣṇa, realizing ever-new pleasure in Him, whenever I think of sex pleasure, I spit at the thought, and my lips curl with distaste." A person in *brahma-yoga,* or Kṛṣṇa consciousness, is so absorbed in the loving service of the Lord that he loses his taste for material sense pleasure altogether. The highest pleasure in terms of matter is sex pleasure. The whole world is moving under its spell, and a materialist cannot work at all without this motivation. But a person engaged in Kṛṣṇa consciousness can work with greater vigor without sex pleasure, which he avoids. That is the test in spiritual realization. Spiritual realization and sex pleasure go ill together. A Kṛṣṇa conscious person is not attracted to any kind of sense pleasure due to his being a liberated soul.
 
 ### Bg 5.22
-
-> ये हि संस्पर्शजा भोगा दुःखयोनय एव ते ।
-> आद्यन्तवन्तः कौन्तेय न तेषु रमते बुधः ॥२२॥
 
 > ye hi saṁsparśa-jā bhogā
 > duḥkha-yonaya eva te
@@ -4455,9 +3749,6 @@ Therefore, those who are true *yogīs* or learned transcendentalists are not att
 
 ### Bg 5.23
 
-> शक्नोतीहैव यः सोढुं प्राक्शरीरविमोक्षणात् ।
-> कामक्रोधोद्भवं वेगं स युक्तः स सुखी नरः ॥२३॥
-
 > śaknotīhaiva yaḥ soḍhuṁ
 > prāk śarīra-vimokṣaṇāt
 > kāma-krodhodbhavaṁ vegaṁ
@@ -4471,9 +3762,6 @@ lf one wants to make steady progress on the path of self-realization, he must tr
 
 ### Bg 5.24
 
-> योऽन्तःसुखोऽन्तरारामस्तथान्तर्ज्योतिरेव यः ।
-> स योगी ब्रह्मनिर्वाणं ब्रह्मभूतोऽधिगच्छति ॥२४॥
-
 > yo 'ntaḥ-sukho 'ntar-ārāmas
 > tathāntar-jyotir eva yaḥ
 > sa yogī brahma-nirvāṇaṁ
@@ -4486,9 +3774,6 @@ lf one wants to make steady progress on the path of self-realization, he must tr
 Unless one is able to relish happiness from within, how can one retire from the external engagements meant for deriving superficial happiness? A liberated person enjoys happiness by factual experience. He can, therefore, sit silently at any place and enjoy the activities of life from within. Such a liberated person no longer desires external material happiness. This state is called *brahma-bhūta,* attaining which one is assured of going back to Godhead, back to home.
 
 ### Bg 5.25
-
-> लभन्ते ब्रह्मनिर्वाणमृषयः क्षीणकल्मषाः ।
-> छिन्नद्वैधा यतात्मानः सर्वभूतहिते रताः ॥२५॥
 
 > labhante brahma-nirvāṇam
 > ṛṣayaḥ kṣīṇa-kalmaṣāḥ
@@ -4504,9 +3789,6 @@ Only a person who is fully in Kṛṣṇa consciousness can be said to be engage
 A person engaged only in ministering to the physical welfare of human society cannot factually help anyone. Temporary relief of the external body and the mind is not satisfactory. The real cause of one's difficulties in the hard struggle for life may be found in one's forgetfulness of his relationship with the Supreme Lord. When a man is fully conscious of his relationship with Kṛṣṇa, he is actually a liberated soul, although he may be in the material tabernacle.
 
 ### Bg 5.26
-
-> कामक्रोधवियुक्तानां यतीनां यतचेतसाम् ।
-> अभितो ब्रह्मनिर्वाणं वर्तते विदितात्मनाम् ॥२६॥
 
 > kāma-krodha-vimuktānāṁ
 > yatīnāṁ yata-cetasām
@@ -4537,11 +3819,6 @@ The fish brings up its offspring simply by looking at them. The tortoise brings 
 
 ### Bg 5.27-28
 
-> स्पर्शान्कृत्वा बहिर्बाह्यांश्चक्षुश्चैवान्तरे भ्रुवोः ।
-> प्राणापानौ समौ कृत्वा नासाभ्यन्तरचारिणौ ॥२७॥
-> यतेन्द्रियमनोबुद्धिर्मुनिर्मोक्षपरायणः ।
-> विगतेच्छाभयक्रोधो यः सदा मुक्त एव सः ॥२८॥
-
 > sparśān kṛtvā bahir bāhyāṁś
 > cakṣuś caivāntare bhruvoḥ
 > prāṇāpānau samau kṛtvā
@@ -4564,9 +3841,6 @@ This *yoga* process helps one become free from all kinds of fear and anger and t
 
 ### Bg 5.29
 
-> भोक्तारं यज्ञतपसां सर्वलोकमहेश्वरम् ।
-> सुहृदं सर्वभूतानां ज्ञात्वा मां शान्तिमृच्छति ॥२९॥
-
 > bhoktāraṁ yajña-tapasāṁ
 > sarva-loka-maheśvaram
 > suhṛdaṁ sarva-bhūtānāṁ
@@ -4585,10 +3859,6 @@ This Fifth Chapter is a practical explanation of Kṛṣṇa consciousness, gene
 ## Chapter 6
 
 ### Bg 6.1
-
-> श्रीभगवानुवाच ।
-> अनाश्रितः कर्मफलं कार्यं कर्म करोति यः ।
-> स संन्यासी च योगी च न निरग्निर्न चाक्रियः ॥१॥
 
 > śrī-bhagavān uvāca
 > anāśritaḥ karma-phalaṁ
@@ -4611,9 +3881,6 @@ The *sannyāsīs* sometimes artificially think that they have become liberated f
 
 ### Bg 6.2
 
-> यं संन्यासमिति प्राहुर्योगं तं विद्धि पाण्डव ।
-> न ह्यसंन्यस्तसङ्कल्पो योगी भवति कश्चन ॥२॥
-
 > yaṁ sannyāsam iti prāhur
 > yogaṁ taṁ viddhi pāṇḍava
 > na hy asannyasta-saṅkalpo
@@ -4626,9 +3893,6 @@ The *sannyāsīs* sometimes artificially think that they have become liberated f
 Real *sannyāsa-yoga* or *bhakti* means that one should know his constitutional position as the living entity, and act accordingly. The living entity has no separate independent identity. He is the marginal energy of the Supreme. When he is entrapped by material energy, he is conditioned, and when he is Kṛṣṇa conscious, or aware of the spiritual energy, then he is in his real and natural state of life. Therefore, when one is in complete knowledge, one ceases all material sense gratification, or renounces all kinds of sense gratificatory activities. This is practiced by the *yogīs* who restrain the senses from material attachment. But a person in Kṛṣṇa consciousness has no opportunity to engage his senses in anything which is not for the purpose of Kṛṣṇa. Therefore, a Kṛṣṇa conscious person is simultaneously a *sannyāsī* and a *yogī.* The purpose of knowledge and of restraining the senses, as prescribed in the *jñāna* and *yoga* processes, is automatically served in Kṛṣṇa consciousness. If one is unable to give up the activities of his selfish nature, then *jñāna* and *yoga* are of no avail. The real aim is for a living entity to give up all selfish satisfaction and to be prepared to satisfy the Supreme. A Kṛṣṇa conscious person has no desire for any kind of self-enjoyment. He is always engaged for the enjoyment of the Supreme. One who has no information of the Supreme must therefore be engaged in self-satisfaction because no one can stand on the platform of inactivity. All these purposes are perfectly served by the practice of Kṛṣṇa consciousness.
 
 ### Bg 6.3
-
-> आरुरुक्षोर्मुनेर्योगं कर्म कारणमुच्यते ।
-> योगारूढस्य तस्यैव शमः कारणमुच्यते ॥३॥
 
 > ārurukṣor muner yogaṁ
 > karma kāraṇam ucyate
@@ -4647,9 +3911,6 @@ A Kṛṣṇa conscious person is, however, situated from the beginning on the p
 
 ### Bg 6.4
 
-> यदा हि नेन्द्रियार्थेषु न कर्मस्वनुषज्जते ।
-> सर्वसङ्कल्पसंन्यासी योगारूढस्तदोच्यते ॥४॥
-
 > yadā hi nendriyārtheṣu
 > na karmasv anuṣajjate
 > sarva-saṅkalpa-sannyāsī
@@ -4662,9 +3923,6 @@ A Kṛṣṇa conscious person is, however, situated from the beginning on the p
 When a person is fully engaged in the transcendental loving service of the Lord, he is pleased in himself, and thus he is no longer engaged in sense gratification or in fruitive activities. Otherwise, one must be engaged in sense gratification, since one cannot live without engagement. Without Kṛṣṇa consciousness, one must be always seeking self-centered or extended selfish activities. But a Kṛṣṇa conscious person can do everything for the satisfaction of Kṛṣṇa and thereby be perfectly detached from sense gratification. One who has no such realization must mechanically try to escape material desires before being elevated to the top rung of the *yoga* ladder.
 
 ### Bg 6.5
-
-> उद्धरेदात्मनात्मानं नात्मानमवसादयेत् ।
-> आत्मैव ह्यात्मनो बन्धुरात्मैव रिपुरात्मनः ॥५॥
 
 > uddhared ātmanātmānaṁ
 > nātmānam avasādayet
@@ -4684,9 +3942,6 @@ The word *ātmā* denotes body, mind and soul-depending upon different circumsta
 
 ### Bg 6.6
 
-> बन्धुरात्मात्मनस्तस्य येनात्मैवात्मना जितः ।
-> अनात्मनस्तु शत्रुत्वे वर्तेतात्मैव शत्रुवत् ॥६॥
-
 > bandhur ātmātmanas tasya
 > yenātmaivātmanā jitaḥ
 > anātmanas tu śatrutve
@@ -4700,9 +3955,6 @@ The purpose of practicing eightfold *yoga* is to control the mind in order to ma
 
 ### Bg 6.7
 
-> जितात्मनः प्रशान्तस्य परमात्मा समाहितः ।
-> शीतोष्णसुखदुःखेषु तथा मानापमानयोः ॥७॥
-
 > jitātmanaḥ praśāntasya
 > paramātmā samāhitaḥ
 > śītoṣṇa-sukha-duḥkheṣu
@@ -4715,9 +3967,6 @@ The purpose of practicing eightfold *yoga* is to control the mind in order to ma
 Actually, every living entity is intended to abide by the dictation of the Supreme Personality of Godhead, who is seated in everyone's heart as Paramātmā. When the mind is misled by the external illusory energy, one becomes entangled in material activities. Therefore, as soon as one's mind is controlled through one of the *yoga* systems, one is to be considered as having already reached the destination. One has to abide by superior dictation. When one's mind is fixed on the superior nature, he has no other alternative but to follow the dictation of the Supreme. The mind must admit some superior dictation and follow it. The effect of controlling the mind is that one automatically follows the dictation of the Paramātmā or Supersoul. Because this transcendental position is at once achieved by one who is in Kṛṣṇa consciousness, the devotee of the Lord is unaffected by the dualities of material existence, namely distress and happiness, cold and heat, etc. This state is practical *samādhi,* or absorption in the Supreme.
 
 ### Bg 6.8
-
-> ज्ञानविज्ञानतृप्तात्मा कूटस्थो विजितेन्द्रियः ।
-> युक्त इत्युच्यते योगी समलोष्टाश्मकाञ्चनः ॥८॥
 
 > jñāna-vijñāna-tṛptātmā
 > kūṭa-stho vijitendriyaḥ
@@ -4739,9 +3988,6 @@ This *Bhagavad-gītā* is the science of Kṛṣṇa consciousness. No one can b
 
 ### Bg 6.9
 
-> सुहृन्मित्रार्युदासीनमध्यस्थद्वेष्यबन्धुषु ।
-> साधुष्वपि च पापेषु समबुद्धिर्विशिष्यते ॥९॥
-
 > suhṛn-mitrāry-udāsīna-
 > madhyastha-dveṣya-bandhuṣu
 > sādhuṣv api ca pāpeṣu
@@ -4752,9 +3998,6 @@ This *Bhagavad-gītā* is the science of Kṛṣṇa consciousness. No one can b
 **A person is said to be still further advanced when he regards all—the honest well-wisher, friends and enemies, the envious, the pious, the sinner and those who are indifferent and impartial—with an equal mind.**
 
 ### Bg 6.10
-
-> योगी युञ्जीत सततमात्मानं रहसि स्थितः ।
-> एकाकी यतचित्तात्मा निराशीरपरिग्रहः ॥१०॥
 
 > yogī yuñjīta satatam
 > ātmānaṁ rahasi sthitaḥ
@@ -4783,11 +4026,6 @@ A Kṛṣṇa conscious person well knows that everything belongs to Kṛṣṇa
 
 ### Bg 6.11-12
 
-> शुचौ देशे प्रतिष्ठाप्य स्थिरमासनमात्मनः ।
-> नात्युच्छ्रितं नातिनीचं चैलाजिनकुशोत्तरम् ॥११॥
-> तत्रैकाग्रं मनः कृत्वा यतचित्तेन्द्रियक्रियः ।
-> उपविश्यासने युञ्ज्याद्योगमात्मविशुद्धये ॥१२॥
-
 > śucau deśe pratiṣṭhāpya
 > sthiram āsanam ātmanaḥ
 > nāty-ucchritaṁ nāti-nīcaṁ
@@ -4810,11 +4048,6 @@ A Kṛṣṇa conscious person well knows that everything belongs to Kṛṣṇa
 "In this age of quarrel and hypocrisy the only means of deliverance is chanting the holy name of the Lord. There is no other way. There is no other way. There is no other way."
 
 ### Bg 6.13-14
-
-> समं कायशिरोग्रीवं धारयन्नचलं स्थिरः ।
-> सम्प्रेक्ष्य नासिकाग्रं स्वं दिशश्चानवलोकयन् ॥१३॥
-> प्रशान्तात्मा विगतभीर्ब्रह्मचारिव्रते स्थितः ।
-> मनः संयम्य मच्चित्तो युक्त आसीत मत्परः ॥१४॥
 
 > samaṁ kāya-śiro-grīvaṁ
 > dhārayann acalaṁ sthiraḥ
@@ -4846,9 +4079,6 @@ Whereas others are forced to restrain themselves from sense gratification, a dev
 
 ### Bg 6.15
 
-> युञ्जन्नेवं सदात्मानं योगी नियतमानसः ।
-> शान्तिं निर्वाणपरमां मत्संस्थामधिगच्छति ॥१५॥
-
 > yuñjann evaṁ sadātmānaṁ
 > yogī niyata-mānasaḥ
 > śāntiṁ nirvāṇa-paramāṁ
@@ -4864,9 +4094,6 @@ A consummate *yogī,* who is perfect in understanding Lord Kṛṣṇa, as is cl
 
 ### Bg 6.16
 
-> नात्यश्नतस्तु योगोऽस्ति न चैकान्तमनश्नतः ।
-> न चातिस्वप्नशीलस्य जाग्रतो नैव चार्जुन ॥१६॥
-
 > nāty-aśnatas 'tu yogo 'sti
 > na caikāntam anaśnataḥ
 > na cāti-svapna-śīlasya
@@ -4880,9 +4107,6 @@ Regulation of diet and sleep is recommended herein for the *yogīs.* Too much ea
 
 ### Bg 6.17
 
-> युक्ताहारविहारस्य  युक्तचेष्टस्य कर्मसु ।
-> युक्तस्वप्नावबोधस्य योगो भवति दुःखहा ॥१७॥
-
 > yuktāhāra-vihārasya
 > yukta-ceṣṭasya karmasu
 > yukta-svapnāvabodhasya
@@ -4895,9 +4119,6 @@ Regulation of diet and sleep is recommended herein for the *yogīs.* Too much ea
 Extravagance in the matter of eating, sleeping, defending and mating-which are demands of the body-can block advancement in the practice of *yoga.* As far as eating is concerned, it can be regulated only when one is practiced to take and accept *prasādam,* sanctified food. Lord Kṛṣṇa is offered, according to the *Bhagavad-gītā* [[bg/9/26|(Bg. 9.26)]], vegetables, flowers, fruits, grains, milk, etc. In this way, a person in Kṛṣṇa consciousness becomes automatically trained not to accept food not meant for human consumption, or which is not in the category of goodness. As far as sleeping is concerned, a Kṛṣṇa conscious person is always alert in the discharge of his duties in Kṛṣṇa consciousness, and therefore any unnecessary time spent sleeping is considered a great loss. A Kṛṣṇa conscious person cannot bear to pass a minute of his life without being engaged in the service of the Lord. Therefore, his sleeping is kept to a minimum. His ideal in this respect is Śrīla Rūpa Gosvāmī, who was always engaged in the service of Kṛṣṇa and who could not sleep more than two hours a day, and sometimes not even that. Ṭhākura Haridāsa would not even accept *prasādam* nor even sleep for a moment without finishing his daily routine of chanting with his beads three hundred thousand names. As far as work is concerned, a Kṛṣṇa conscious person does not do anything which is not connected with Kṛṣṇa's interest, and thus his work is always regulated and is untainted by sense gratification. Since there is no question of sense gratification, there is no material leisure for a person in Kṛṣṇa consciousness. And because he is regulated in all his work, speech, sleep, wakefulness and all other bodily activities, there is no material misery for him.
 
 ### Bg 6.18
-
-> यदा विनियतं चित्तमात्मन्येवावतिष्ठते ।
-> निःस्पृहः सर्वकामेभ्यो युक्त इत्युच्यते तदा ॥१८॥
 
 > yadā viniyataṁ cittam
 > ātmany evāvatiṣṭhate
@@ -4923,9 +4144,6 @@ This transcendental stage may be inexpressible subjectively by the followers of 
 
 ### Bg 6.19
 
-> यथा दीपो निवातस्थो नेङ्गते सोपमा स्मृता ।
-> योगिनो यतचित्तस्य युञ्जतो योगमात्मनः ॥१९॥
-
 > yathā dīpo nivāta-stho
 > neṅgate sopamā smṛtā
 > yogino yata-cittasya
@@ -4938,14 +4156,6 @@ This transcendental stage may be inexpressible subjectively by the followers of 
 A truly Kṛṣṇa conscious person, always absorbed in Transcendence, in constant undisturbed meditation on his worshipable Lord, is as steady as a lamp in a windless place.
 
 ### Bg 6.20-23
-
-> यत्रोपरमते चित्तं निरुद्धं योगसेवया ।
-> यत्र चैवात्मनात्मानं पश्यन्नात्मनि तुष्यति ॥२०॥
-> सुखमात्यन्तिकं यत्तद् बुद्धिग्राह्यमतीन्द्रियम् ।
-> वेत्ति यत्र न चैवायं स्थितश्चलति तत्त्वतः ॥२१॥
-> यं लब्ध्वा चापरं लाभं मन्यते नाधिकं ततः ।
-> यस्मिन्स्थितो न दुःखेन गुरुणापि विचाल्यते ॥२२॥
-> तं विद्याद् दुःखसंयोगवियोगं योगसंज्ञितम् ॥२३॥
 
 > yatroparamate cittaṁ
 > niruddhaṁ yoga-sevayā
@@ -4983,10 +4193,6 @@ As long as the material body exists, one has to meet the demands of the body, na
 
 ### Bg 6.24
 
-> स निश्चयेन योक्तव्यो योगोऽनिर्विण्णचेतसा ।
-> सङ्कल्पप्रभवान्कामांस्त्यक्त्वा सर्वानशेषतः ।
-> मनसैवेन्द्रियग्रामं विनियम्य समन्ततः ॥२४॥
-
 > sa niścayena yoktavyo
 > yogo 'nirviṇṇa-cetasā
 > saṅkalpa-prabhavān kāmāṁs
@@ -5011,9 +4217,6 @@ Similarly, the practice of *yoga,* especially *bhakti-yoga* in Kṛṣṇa consc
 
 ### Bg 6.25
 
-> शनैः शनैरुपरमेद् बुद्ध्या धृतिगृहीतया ।
-> आत्मसंस्थं मनः कृत्वा न किञ्चिदपि चिन्तयेत् ॥२५॥
-
 > śanaiḥ śanair uparamed
 > buddhyā dhṛti-gṛhītayā
 > ātma-saṁsthaṁ manaḥ kṛtvā
@@ -5026,9 +4229,6 @@ Similarly, the practice of *yoga,* especially *bhakti-yoga* in Kṛṣṇa consc
 By proper conviction and intelligence one should gradually cease sense activities. This is called *pratyāhāra.* The mind, being controlled by conviction, meditation, and cessation of the senses, should be situated in trance, or *samādhi.* At that time there is no longer any danger of becoming engaged in the material conception of life. In other words, although one is involved with matter as long as the material body exists, one should not think about sense gratification. One should think of no pleasure aside from the pleasure of the Supreme Self. This state is easily attained by directly practicing Kṛṣṇa consciousness.
 
 ### Bg 6.26
-
-> यतो यतो निश्चरति मनश्चञ्चलमस्थिरम् ।
-> ततस्ततो नियम्यैतदात्मन्येव वशं नयेत् ॥२६॥
 
 > yato yato niścalati
 > manaś cañcalam asthiram
@@ -5043,9 +4243,6 @@ The nature of the mind is flickering and unsteady. But a self-realized *yogī* h
 
 ### Bg 6.27
 
-> प्रशान्तमनसं ह्येनं योगिनं सुखमुत्तमम् ।
-> उपैति शान्तरजसं ब्रह्मभूतमकल्मषम् ॥२७॥
-
 > praśānta-manasaṁ hy enaṁ
 > yoginaṁ sukham uttamam
 > upaiti śānta-rajasaṁ
@@ -5059,9 +4256,6 @@ The nature of the mind is flickering and unsteady. But a self-realized *yogī* h
 
 ### Bg 6.28
 
-> युञ्जन्नेवं सदात्मानं योगी विगतकल्मषः ।
-> सुखेन ब्रह्मसंस्पर्शमत्यन्तं सुखमश्नुते ॥२८॥
-
 > yuñjann evaṁ sadātmānaṁ
 > yogī vigata-kalmaṣaḥ
 > sukhena brahma-saṁsparśam
@@ -5074,9 +4268,6 @@ The nature of the mind is flickering and unsteady. But a self-realized *yogī* h
 Self-realization means knowing one's constitutional position in relationship to the Supreme. The individual soul is part and parcel of the Supreme, and his position is to render transcendental service to the Lord. This transcendental contact with the Supreme is called *brahma-saṁsparśa.*
 
 ### Bg 6.29
-
-> सर्वभूतस्थमात्मानं सर्वभूतानि चात्मनि ।
-> ईक्षते योगयुक्तात्मा सर्वत्र समदर्शनः ॥२९॥
 
 > sarva-bhūta-stham ātmānaṁ
 > sarva-bhūtāni cātmani
@@ -5092,9 +4283,6 @@ A Kṛṣṇa conscious *yogī* is the perfect seer because he sees Kṛṣṇa,
 The Lord, being the source of all beings, is like the mother and the maintainer. As the mother is neutral to all different kinds of children, the Supreme Father (or Mother) is also. Consequently the Supersoul is always in every living being. Outwardly, also, every living being is situated in the energy of the Lord. As will be explained in the Seventh Chapter, the Lord has, primarily, two energies—the spiritual (or superior) and the material (or inferior). The living entity, although part of the superior energy, is conditioned by the inferior energy; the living entity is always in the Lord's energy. Every living entity is situated in Him in one way or another. The *yogī* sees equally because he sees that all living entities, although in different situations according to the results of fruitive work, in all circumstances remain the servants of God. While in the material energy, the living entity serves the material senses; and while in spiritual energy, he serves the Supreme Lord directly. In either case the living entity is the servant of God. This vision of equality is perfect in a person in Kṛṣṇa consciousness.
 
 ### Bg 6.30
-
-> यो मां पश्यति सर्वत्र सर्वं च मयि पश्यति ।
-> तस्याहं न प्रणश्यामि स च मे न प्रणश्यति ॥३०॥
 
 > yo māṁ paśyati sarvatra
 > sarvaṁ ca mayi paśyati
@@ -5119,9 +4307,6 @@ Kṛṣṇa consciousness is the development of love of Kṛṣṇa-a position t
 At this stage, Lord Kṛṣṇa never disappears from the sight of the devotee, nor does the devotee ever lose sight of the Lord. In the case of a *yogī* who sees the Lord as Paramātmā within the heart, the same applies. Such a *yogī* turns into a pure devotee and cannot bear to live for a moment without seeing the Lord within himself.
 
 ### Bg 6.31
-
-> सर्वभूतस्थितं यो मां भजत्येकत्वमास्थितः ।
-> सर्वथा वर्तमानोऽपि स योगी मयि वर्तते ॥३१॥
 
 > sarva-bhūta-sthitaṁ yo māṁ
 > bhajaty ekatvam āsthitaḥ
@@ -5148,9 +4333,6 @@ Kṛṣṇa consciousness is the highest stage of trance in *yoga* practice. Thi
 
 ### Bg 6.32
 
-> आत्मौपम्येन सर्वत्र समं पश्यति योऽर्जुन ।
-> सुखं वा यदि वा दुःखं स योगी परमो मतः ॥३२॥
-
 > ātmaupamyena sarvatra
 > samaṁ paśyati yo 'rjuna
 > sukhaṁ vā yadi vā duḥkhaṁ
@@ -5163,10 +4345,6 @@ Kṛṣṇa consciousness is the highest stage of trance in *yoga* practice. Thi
 One who is Kṛṣṇa conscious is a perfect *yogī*; he is aware of everyone's happiness and distress by dint of his own personal experience. The cause of the distress of a living entity is forgetfulness of his relationship with God. And the cause of happiness is knowing Kṛṣṇa to be the supreme enjoyer of all the activities of the human being. Kṛṣṇa is the proprietor of all lands and planets. The perfect *yogī* is the sincerest friend of all living entities. He knows that the living being who is conditioned by the modes of material nature is subjected to the threefold material miseries due to forgetfulness of his relationship with Kṛṣṇa. Because one in Kṛṣṇa consciousness is happy, he tries to distribute the knowledge of Kṛṣṇa everywhere. Since the perfect *yogī* tries to broadcast the importance of becoming Kṛṣṇa conscious, he is the best philanthropist in the world, and he is the dearest servitor of the Lord. *Na tasmāt kaścid me priyakṛt tamaḥ.* In other words, a devotee of the Lord always looks to the welfare of all living entities, and in this way he is factually the friend of everyone. He is the best *yogī* because he does not desire perfection in *yoga* for his personal benefit, but tries for others also. He does not envy his fellow living entities. Here is a contrast between a pure devotee of the Lord and a *yogī* interested only in his personal elevation. The *yogī* who has withdrawn to a secluded place in order to meditate perfectly may not be as perfect as a devotee who is trying his best to turn every man toward Kṛṣṇa consciousness.
 
 ### Bg 6.33
-
-> अर्जुन उवाच ।
-> योऽयं योगस्त्वया प्रोक्तः साम्येन मधुसूदन ।
-> एतस्याहं न पश्यामि चञ्चलत्वात्स्थितिं स्थिराम् ॥३३॥
 
 > arjuna uvāca
 > yo 'yaṁ yogas tvayā proktaḥ
@@ -5181,9 +4359,6 @@ One who is Kṛṣṇa conscious is a perfect *yogī*; he is aware of everyone's
 The system of mysticism described by Lord Kṛṣṇa to Arjuna beginning with the words *śucau deśe* and ending with *yogī paramaḥ* is here being rejected by Arjuna out of a feeling of inability. It is not possible for an ordinary man to leave home and go to a secluded place in the mountains or jungles to practice *yoga* in this age of Kali. The present age is characterized by a bitter struggle for a life of short duration. People are not serious about self-realization even by simple, practical means, and what to speak of this difficult *yoga* system, which regulates the mode of living, the manner of sitting, selection of place, and detachment of the mind from material engagements. As a practical man, Arjuna thought it was impossible to follow this system of *yoga,* even though he was favorably endowed in many ways. He belonged to the royal family and was highly elevated in terms of numerous qualities; he was a great warrior, he had great longevity, and, above all, he was the most intimate friend of Lord Kṛṣṇa, the Supreme Personality of Godhead. Five thousand years ago, Arjuna had much better facilities then we do now, yet he refused to accept this system of *yoga.* In fact, we do not find any record in history of his practicing it at any time. Therefore this system must be considered generally impossible in this age of Kali. Of course it may be possible for some very few, rare men, but for the people in general it is an impossible proposal. If this were so five thousand years ago, then what of the present day? Those who are imitating this *yoga* system in different so-called schools and societies, although complacent, are certainly wasting their time. They are completely in ignorance of the desired goal.
 
 ### Bg 6.34
-
-> चञ्चलं हि मनः कृष्ण प्रमाथि बलवद् दृढम् ।
-> तस्याहं निग्रहं मन्ये वायोरिव सुदुष्करम् ॥३४॥
 
 > cañcalaṁ hi manaḥ kṛṣṇa
 > pramāthi balavad dṛḍham
@@ -5205,10 +4380,6 @@ The mind is so strong and obstinate that it sometimes overcomes the intelligence
 
 ### Bg 6.35
 
-> श्रीभगवानुवाच ।
-> असंशयं महाबाहो मनो दुर्निग्रहं चलम् ।
-> अभ्यासेन तु कौन्तेय वैराग्येण च गृह्यते ॥३५॥
-
 > śrī-bhagavān uvāca
 > asaṁśayaṁ mahā-bāho
 > mano durnigrahaṁ calam
@@ -5223,9 +4394,6 @@ The difficulty of controlling the obstinate mind, as expressed by Arjuna, is acc
 
 ### Bg 6.36
 
-> असंयतात्मना योगो दुष्प्राप इति मे मतिः ।
-> वश्यात्मना तु यतता शक्योऽवाप्तुमुपायतः ॥३६॥
-
 > asaṁyatātmanā yogo
 > duṣprāpa iti me matiḥ
 > vaśyātmanā tu yatatā
@@ -5238,10 +4406,6 @@ The difficulty of controlling the obstinate mind, as expressed by Arjuna, is acc
 The Supreme Personality of Godhead declares that one who does not accept the proper treatment to detach the mind from material engagement can hardly achieve success in self-realization. Trying to practice *yoga* while engaging the mind in material enjoyment is like trying to ignite a fire while pouring water on it. Similarly, *yoga* practice without mental control is a waste of time. Such a show of *yoga* practice may be materially lucrative, but it is useless as far as spiritual realization is concerned. Therefore, the mind must be controlled by engaging it constantly in the transcendental loving service of the Lord. Unless one is engaged in Kṛṣṇa consciousness, he cannot steadily control the mind. A Kṛṣṇa conscious person easily achieves the result of *yoga* practice without separate endeavor, but a *yoga* practitioner cannot achieve success without becoming Kṛṣṇa conscious.
 
 ### Bg 6.37
-
-> अर्जुन उवाच ।
-> अयतिः श्रद्धयोपेतो योगाच्चलितमानसः ।
-> अप्राप्य योगसंसिद्धिं कां गतिं कृष्ण गच्छति ॥३७॥
 
 > arjuna uvāca
 > ayatiḥ śraddhayopeto
@@ -5257,9 +4421,6 @@ The path of self-realization or mysticism is described in the *Bhagavad-gītā.*
 
 ### Bg 6.38
 
-> कच्चिन्नोभयविभ्रष्टश्छिन्नाभ्रमिव नश्यति ।
-> अप्रतिष्ठो महाबाहो विमूढो ब्रह्मणः पथि ॥३८॥
-
 > kaccin nobhaya-vibhraṣṭaś
 > chinnābhram iva naśyati
 > apratiṣṭho mahā-bāho
@@ -5273,9 +4434,6 @@ There are two ways to progress. Those who are materialists have no interest in T
 
 ### Bg 6.39
 
-> एतन्मे संशयं कृष्ण छेत्तुमर्हस्यशेषतः ।
-> त्वदन्यः संशयस्यास्य छेत्ता न ह्युपपद्यते ॥३९॥
-
 > etan me saṁśayaṁ kṛṣṇa
 > chettum arhasy aśeṣataḥ
 > tvad-anyaḥ saṁśayasyāsya
@@ -5288,10 +4446,6 @@ There are two ways to progress. Those who are materialists have no interest in T
 Kṛṣṇa is the perfect knower of past, present and future. In the beginning of the *Bhagavad-gītā,* the Lord said that all living entities exist individually in the past, that they exist now in the present, and that they continue to retain individual identity in the future, even after liberation from the material entanglement. So He has already cleared up the question of the future of the individual living entity. Now, Arjuna wants to know of the future of the unsuccessful transcendentalist. No one is equal to or above Kṛṣṇa, and certainly the so-called great sages and philosophers who are at the mercy of material nature cannot equal Him. Therefore the verdict of Kṛṣṇa is the final and complete answer to all doubts because He knows past, present and future perfectly—but no one knows Him. Kṛṣṇa and Kṛṣṇa conscious devotees alone can know what is what.
 
 ### Bg 6.40
-
-> श्रीभगवानुवाच ।
-> पार्थ नैवेह नामुत्र विनाशस्तस्य विद्यते ।
-> न हि कल्याणकृत्कश्चिद् दुर्गतिं तात गच्छति ॥४०॥
 
 > śrī-bhagavān uvāca
 > pārtha naiveha nāmutra
@@ -5318,9 +4472,6 @@ Those who are then following the path of auspiciousness can be divided into thre
 
 ### Bg 6.41
 
-> प्राप्य पुण्यकृतां लोकानुषित्वा शाश्वतीः समाः ।
-> शुचीनां श्रीमतां गेहे योगभ्रष्टोऽभिजायते ॥४१॥
-
 > prāpya puṇya-kṛtāṁ lokān
 > uṣitvā śāśvatīḥ samāḥ
 > śucīnāṁ śrīmatāṁ gehe
@@ -5336,9 +4487,6 @@ The real purpose of *yoga* practice is to achieve the highest perfection of Kṛ
 
 ### Bg 6.42
 
-> अथवा योगिनामेव कुले भवति धीमताम् ।
-> एतद्धि दुर्लभतरं लोके जन्म यदीदृशम् ॥४२॥
-
 > atha vā yoginām eva
 > kule bhavati dhīmatām
 > etad dhi durlabhataraṁ
@@ -5352,9 +4500,6 @@ Birth in a family of *yogīs* or transcendentalists—those with great wisdom—
 
 ### Bg 6.43
 
-> तत्र तं बुद्धिसंयोगं लभते पौर्वदेहिकम् ।
-> यतते च ततो भूयः संसिद्धौ कुरुनन्दन ॥४३॥
-
 > tatra taṁ buddhi-saṁyogaṁ
 > labhate paurva-dehikam
 > yatate ca tato bhūyaḥ
@@ -5367,9 +4512,6 @@ Birth in a family of *yogīs* or transcendentalists—those with great wisdom—
 King Bharata, who took his third birth in the family of a good *brāhmaṇa,* is an example of good birth for the revival of previous transcendental consciousness. King Bharata was the Emperor of the world, and since his time this planet is known among the demigods as Bhāratavarṣa. Formerly it was known as Ilāvartavarṣa. The Emperor, at an early age, retired for spiritual perfection but failed to achieve success. In his next life he took birth in the family of a good *brāhmaṇa* and was known as Jaḍabharata because he always remained secluded and did not talk to anyone. And later on, he was discovered as the greatest transcendentalist by King Rahūgaṇa. From his life it is understood that transcendental endeavors, or the practice of *yoga,* never go in vain. By the grace of the Lord the transcendentalist gets repeated opportunities for complete perfection in Kṛṣṇa consciousness.
 
 ### Bg 6.44
-
-> पूर्वाभ्यासेन तेनैव ह्रियते ह्यवशोऽपि सः ।
-> जिज्ञासुरपि योगस्य शब्दब्रह्मातिवर्तते ॥४४॥
 
 > pūrvābhyāsena tenaiva
 > hriyate hy avaśo 'pi saḥ
@@ -5393,9 +4535,6 @@ The famous example of this was presented by Lord Caitanya, who accepted Ṭhāku
 
 ### Bg 6.45
 
-> प्रयत्नाद्यतमानस्तु योगी संशुद्धकिल्बिषः ।
-> अनेकजन्मसंसिद्धस्ततो याति परां गतिम् ॥४५॥
-
 > prayatnād yatamānas tu
 > yogī saṁśuddha-kilbiṣaḥ
 > aneka-janma-saṁsiddhas
@@ -5414,9 +4553,6 @@ A person born in a particularly righteous, aristocratic or sacred family becomes
 
 ### Bg 6.46
 
-> तपस्विभ्योऽधिको योगी ज्ञानिभ्योऽपि मतोऽधिकः ।
-> कर्मिभ्यश्चाधिको योगी तस्माद्योगी भवार्जुन ॥४६॥
-
 > tapasvibhyo 'dhiko yogī
 > jñānibhyo 'pi mato 'dhikaḥ
 > karmibhyaś cādhiko yogī
@@ -5429,9 +4565,6 @@ A person born in a particularly righteous, aristocratic or sacred family becomes
 When we speak of *yoga* we refer to linking up our consciousness with the Supreme Absolute Truth. Such a process is named differently by various practitioners in terms of the particular method adopted. When the linking up process is predominantly in fruitive activities, it is called *karma-yoga,* when it is predominantly empirical, it is called *jñāna-yoga,* and when it is predominantly in a devotional relationship with the Supreme Lord, it is called *bhakti-yoga. Bhakti-yoga* or Kṛṣṇa consciousness is the ultimate perfection of all *yogas,* as will be explained in the next verse. The Lord has confirmed herein the superiority of *yoga,* but He has not mentioned that it is better than *bhakti-yoga. Bhakti-yoga* is full spiritual knowledge, and as such, nothing can excel it. Asceticism without self-knowledge is imperfect. Empiric knowledge without surrender to the Supreme Lord is also imperfect. And fruitive work without Kṛṣṇa consciousness is a waste of time. Therefore, the most highly praised form of *yoga* performance mentioned here is *bhakti-yoga,* and this is still more clearly explained in the next verse.
 
 ### Bg 6.47
-
-> योगिनामपि सर्वेषां मद्गतेनान्तरात्मना ।
-> श्रद्धावान्भजते यो मां स मे युक्ततमो मतः ॥४७॥
 
 > yoginām api sarveṣāṁ
 > mad-gatenāntar-ātmanā
@@ -5472,10 +4605,6 @@ These are some of the means for performance of *bhakti* or Kṛṣṇa conscious
 
 ### Bg 7.1
 
-> श्रीभगवानुवाच ।
-> मय्यासक्तमनाः पार्थ योगं युञ्जन्मदाश्रयः ।
-> असंशयं समग्रं मां यथा ज्ञास्यसि तच्छृणु ॥१॥
-
 > śrī-bhagavān uvāca
 > mayy āsakta-manāḥ pārtha
 > yogaṁ yuñjan mad-āśrayaḥ
@@ -5515,9 +4644,6 @@ Therefore only by hearing from Kṛṣṇa or from His devotee in Kṛṣṇa co
 
 ### Bg 7.2
 
-> ज्ञानं तेऽहं सविज्ञानमिदं वक्ष्याम्यशेषतः ।
-> यज्ज्ञात्वा नेह भूयोऽन्यज्ज्ञातव्यमवशिष्यते ॥२॥
-
 > jñānaṁ te 'haṁ sa-vijñānam
 > idaṁ vakṣyāmy aśeṣataḥ
 > yaj jñātvā neha bhūyo 'nyaj
@@ -5530,9 +4656,6 @@ Therefore only by hearing from Kṛṣṇa or from His devotee in Kṛṣṇa co
 Complete knowledge includes knowledge of the phenomenal world and the spirit behind it. The source of both of them is transcendental knowledge. The Lord wants to explain the above-mentioned system of knowledge because Arjuna is Kṛṣṇa's confidential devotee and friend. In the beginning of the Fourth Chapter this explanation was given by the Lord, and it is again confirmed here: complete knowledge can be achieved only by the devotee of the Lord directly from the Lord in disciplic succession. Therefore one should be intelligent enough to know the source of all knowledge, who is the cause of all causes and the only object for meditation in all types of *yoga* practices. When the cause of all causes becomes known, then everything knowable becomes known, and nothing remains unknown. The *Vedas* say, "*yasmin vijñāte sarvam eva vijñatam bhavanti.*"
 
 ### Bg 7.3
-
-> मनुष्याणां सहस्रेषु कश्चिद्यतति सिद्धये ।
-> यततामपि सिद्धानां कश्चिन्मां वेत्ति तत्त्वतः ॥३॥
 
 > manuṣyāṇāṁ sahasreṣu
 > kaścid yatati siddhaye
@@ -5561,9 +4684,6 @@ It is not possible for the Brahman realized impersonalist or the Paramātmā rea
 
 ### Bg 7.4
 
-> भूमिरापोऽनलो वायुः खं मनो बुद्धिरेव च ।
-> अहंकार इतीयं मे भिन्ना प्रकृतिरष्टधा ॥४॥
-
 > bhūmir āpo 'nalo vāyuḥ
 > khaṁ mano buddhir eva ca
 > ahaṅkāra itīyaṁ me
@@ -5587,9 +4707,6 @@ In the material energy, the principal manifestations are eight, as above mention
 
 ### Bg 7.5
 
-> अपरेयमितस्त्वन्यां प्रकृतिं विद्धि मे पराम् ।
-> जीवभूतां महाबाहो ययेदं धार्यते जगत् ॥५॥
-
 > apareyam itas tv anyāṁ
 > prakṛtiṁ viddhi me parām
 > jīva-bhūtāṁ mahā-bāho
@@ -5612,9 +4729,6 @@ The Supreme Lord Kṛṣṇa is the only controller, and all living entities are
 
 ### Bg 7.6
 
-> एतद्योनीनि भूतानि सर्वाणीत्युपधारय ।
-> अहं कृत्स्नस्य जगतः प्रभवः प्रलयस्तथा ॥६॥
-
 > etad-yonīni bhūtāni
 > sarvāṇīty upadhāraya
 > ahaṁ kṛtsnasya jagataḥ
@@ -5627,9 +4741,6 @@ The Supreme Lord Kṛṣṇa is the only controller, and all living entities are
 Everything that exists is a product of matter and spirit. Spirit is the basic field of creation, and matter is created by spirit. Spirit is not created at a certain stage of material development. Rather, this material world is manifested only on the basis of spiritual energy. This material body is developed because spirit is present within matter; a child grows gradually to boyhood and then to manhood because of that superior energy, spirit soul, being present. Similarly, the entire cosmic manifestation of the gigantic universe is developed because of the presence of the Supersoul, Viṣṇu. Therefore spirit and matter, which combine together to manifest this gigantic universal form, are originally two energies of the Lord, and consequently the Lord is the original cause of everything. A fragmental part and parcel of the Lord, namely, the living entity, may by manipulation of material energy construct a skyscraper, factory or city, but he cannot create matter out of nothing, and he certainly cannot construct a planet or a universe. The cause of the universe is the Supersoul, Kṛṣṇa, the supreme creator of all individual souls and the original cause of all causes, as the *Kaṭha Upaniṣad* confirms: *nityo nityānāṁ cetanaś cetanānām.*
 
 ### Bg 7.7
-
-> मत्तः परतरं नान्यत्किञ्चिदस्ति धनञ्जय ।
-> मयि सर्वमिदं प्रोतं सूत्रे मणिगणा इव ॥७॥
 
 > mattaḥ parataraṁ nānyat
 > kiñcid asti dhanañjaya
@@ -5656,9 +4767,6 @@ From these verses one concludes that the Supreme Absolute Truth is the Supreme P
 
 ### Bg 7.8
 
-> रसोऽहमप्सु कौन्तेय प्रभास्मि शशिसूर्ययोः ।
-> प्रणवः सर्ववेदेषु शब्दः खे पौरुषं नृषु ॥८॥
-
 > raso 'ham apsu kaunteya
 > prabhāsmi śaśi-sūryayoḥ
 > praṇavaḥ sarva-vedeṣu
@@ -5674,9 +4782,6 @@ The light of the sun and the moon is also originally emanating from the *brahmaj
 
 ### Bg 7.9
 
-> पुण्यो गन्धः पृथिव्यां च तेजश्चास्मि विभावसौ ।
-> जीवनं सर्वभूतेषु तपश्चास्मि तपस्विषु ॥९॥
-
 > puṇyo gandhaḥ pṛthivyāṁ ca
 > tejaś cāsmi vibhāvasau
 > jīvanaṁ sarva-bhūteṣu
@@ -5689,9 +4794,6 @@ The light of the sun and the moon is also originally emanating from the *brahmaj
 *Puṇya* means that which is not decomposed; *puṇya* is original. Everything in the material world has a certain flavor or fragrance, as the flavor and fragrance in a flower, or in the earth, in water, in fire, in air, etc. The uncontaminated flavor, the original flavor, which permeates everything, is Kṛṣṇa. Similarly, everything has a particular original taste, and this taste can be changed by the mixture of chemicals. So everything original has some smell, some fragrance, and some taste. *Vibhāva* means fire. Without fire we cannot run factories, we cannot cook, etc., and that fire is Kṛṣṇa. The heat in the fire is Kṛṣṇa. According to Vedic medicine, indigestion is due to a low temperature in the belly. So even for digestion fire is needed. In Kṛṣṇa consciousness we become aware that earth, water, fire, air and every active principle, all chemicals and all material elements are due to Kṛṣṇa. The duration of man's life is also due to Kṛṣṇa. Therefore by the grace of Kṛṣṇa, man can prolong his life or diminish it. So Kṛṣṇa consciousness is active in every sphere.
 
 ### Bg 7.10
-
-> बीजं मां सर्वभूतानां विद्धि पार्थ सनातनम् ।
-> बुद्धिर्बुद्धिमतामस्मि तेजस्तेजस्विनामहम् ॥१०॥
 
 > bījaṁ māṁ sarva-bhūtānāṁ
 > viddhi pārtha sanātanam
@@ -5706,9 +4808,6 @@ The light of the sun and the moon is also originally emanating from the *brahmaj
 
 ### Bg 7.11
 
-> बलं बलवतां चाहं कामरागविवर्जितम् ।
-> धर्माविरुद्धो भूतेषु कामोऽस्मि भरतर्षभ ॥११॥
-
 > balaṁ balavatāṁ cāhaṁ
 > kāma-rāga-vivarjitam
 > dharmāviruddho bhūteṣu
@@ -5722,9 +4821,6 @@ The strong man's strength should be applied to protect the weak, not for persona
 
 ### Bg 7.12
 
-> ये चैव सात्त्विका भावा राजसास्तामसाश्च ये ।
-> मत्त एवेति तान्विद्धि न त्वहं तेषु ते मयि ॥१२॥
-
 > ye caiva sāttvikā bhāvā
 > rājasās tāmasāś ca ye
 > matta eveti tān viddhi
@@ -5737,9 +4833,6 @@ The strong man's strength should be applied to protect the weak, not for persona
 All material activities in the world are being conducted under the three modes of material nature. Although these material modes of nature are emanations from the Supreme Lord, Kṛṣṇa, He is not subject to them. For instance, under the state laws one may be punished, but the king, the lawmaker, is not subject to that law. Similarly, all the modes of material nature—goodness, passion and ignorance—are emanations from the Supreme Lord Kṛṣṇa, but Kṛṣṇa is not subject to material nature. Therefore He is *nirguṇa,* which means that these *guṇas,* or modes, although issuing from Him, do not affect Him. That is one of the special characteristics of Bhagavān, or the Supreme Personality of Godhead.
 
 ### Bg 7.13
-
-> त्रिभिर्गुणमयैर्भावैरेभिः सर्वमिदं जगत् ।
-> मोहितं नाभिजानाति मामेभ्यः परमव्ययम् ॥१३॥
 
 > tribhir guṇa-mayair bhāvair
 > ebhiḥ sarvam idaṁ jagat
@@ -5757,9 +4850,6 @@ Bv nature living entities have particular types of body and particular types of 
 There are many different kinds of living entities—human beings, demigods, animals, etc.—and each and every one of them is under the influence of material nature, and all of them have forgotten the transcendent Personality of Godhead. Those who are in the modes of passion and ignorance, and even those who are in the mode of goodness, cannot go beyond the impersonal Brahman conception of the Absolute Truth. They are bewildered before the Supreme Lord in His personal feature, which possesses all beauty, opulence, knowledge, strength, fame and renunciation. When even those who are in goodness cannot understand, what hope is there for those in passion and ignorance? Kṛṣṇa consciousness is transcendental to all these three modes of material nature, and those who are truly established in Kṛṣṇa consciousness are actually liberated.
 
 ### Bg 7.14
-
-> दैवी ह्येषा गुणमयी मम माया दुरत्यया ।
-> मामेव ये प्रपद्यन्ते मायामेतां तरन्ति ते ॥१४॥
 
 > daivī hy eṣā guṇa-mayī
 > mama māyā duratyayā
@@ -5785,9 +4875,6 @@ The words *mām eva* are also significant. *Mām* means unto Kṛṣṇa (Viṣ�
 "There is no doubt that Viṣṇu is the deliverer of liberation for everyone."
 
 ### Bg 7.15
-
-> न मां दुष्कृतिनो मूढाः प्रपद्यन्ते नराधमाः ।
-> माययापहृतज्ञाना आसुरं भावमाश्रिताः ॥१५॥
 
 > na māṁ duṣkṛtino mūḍhāḥ
 > prapadyante narādhamāḥ
@@ -5832,9 +4919,6 @@ Therefore, (1) grossly foolish persons, (2) the lowest of mankind, (3) the delud
 
 ### Bg 7.16
 
-> चतुर्विधा भजन्ते मां जनाः सुकृतिनोऽर्जुन ।
-> आर्तो जिज्ञासुरर्थार्थी ज्ञानी च भरतर्षभ ॥१६॥
-
 > catur-vidhā bhajante māṁ
 > janāḥ sukṛtino 'rjuna
 > ārto jijñāsur arthārthī
@@ -5857,9 +4941,6 @@ Those who are always busy with fruitive activities come to the Lord in material 
 
 ### Bg 7.17
 
-> तेषां ज्ञानी नित्ययुक्त एकभक्तिर्विशिष्यते ।
-> प्रियो हि ज्ञानिनोऽत्यर्थमहं स च मम प्रियः ॥१७॥
-
 > teṣāṁ jñānī nitya-yukta
 > eka-bhaktir viśiṣyate
 > priyo hi jñānino 'tyartham
@@ -5872,9 +4953,6 @@ Those who are always busy with fruitive activities come to the Lord in material 
 Free from all contaminations of material desires, the distressed, the inquisitive, the penniless, and the seeker after supreme knowledge can all become pure devotees. But out of them, he who is in knowledge of the Absolute Truth and free from all material desires becomes a really pure devotee of the Lord. And of the four orders, the devotee who is in full knowledge and is at the same time engaged in devotional service is, the Lord says, the best. By searching after knowledge one realizes that his self is different from his material body, and when further advanced he comes to the knowledge of impersonal Brahman and Paramātmā. When one is fully purified, he realizes that his constitutional position is to be the eternal servant of God. So by association with pure devotees, the inquisitive, the distressed, the seeker after material amelioration and the man in knowledge all become themselves pure. But in the preparatory stage, the man who is in full knowledge of the Supreme Lord and is at the same time executing devotional service is very dear to the Lord. He who is situated in pure knowledge of the transcendence of the Supreme Personality of God is so protected in devotional service that material contaminations cannot touch him.
 
 ### Bg 7.18
-
-> उदाराः सर्व एवैते ज्ञानी त्वात्मैव मे मतम् ।
-> आस्थितः स हि युक्तात्मा मामेवानुत्तमां गतिम् ॥१८॥
 
 > udārāḥ sarva evaite
 > jñānī tv ātmaiva me matam
@@ -5896,9 +4974,6 @@ In the *Śrīmad-Bhāgavatam* (9.4.57), the Lord says:
 
 ### Bg 7.19
 
-> बहूनां जन्मनामन्ते ज्ञानवान्मां प्रपद्यते ।
-> वासुदेवः सर्वमिति स महात्मा सुदुर्लभः ॥१९॥
-
 > bahūnāṁ janmanām ante
 > jñānavān māṁ prapadyate
 > vāsudevaḥ sarvam iti
@@ -5913,9 +4988,6 @@ The living entity, while executing devotional service or transcendental rituals 
 This verse is very nicely explained in the Third Chapter of *Śvetāśvatara Upaniṣad:* "In this body there are powers of speaking, of seeing, of hearing, of mental activities, etc. But these are not important if not related to the Supreme Lord. And because Vāsudeva is all-pervading and everything is Vāsudeva, the devotee surrenders in full knowledge." (Cf. *Bhagavad-gītā* 7.17 and 11.40)
 
 ### Bg 7.20
-
-> कामैस्तैस्तैर्हृतज्ञानाः प्रपद्यन्तेऽन्यदेवताः ।
-> तं तं नियममास्थाय प्रकृत्या नियताः स्वया ॥२०॥
 
 > kāmais tais tair hṛta-jñānāḥ
 > prapadyante 'nya-devatāḥ
@@ -5932,9 +5004,6 @@ It is said in the *Bhāgavatam* that less intelligent people who have lost their
 
 ### Bg 7.21
 
-> यो यो यां यां तनुं भक्तः श्रद्धयार्चितुमिच्छति ।
-> तस्य तस्याचलां श्रद्धां तामेव विदधाम्यहम् ॥२१॥
-
 > yo yo yāṁ yāṁ tanuṁ bhaktaḥ
 > śraddhayārcitum icchati
 > tasya tasyācalāṁ śraddhāṁ
@@ -5947,9 +5016,6 @@ It is said in the *Bhāgavatam* that less intelligent people who have lost their
 God has given independence to everyone; therefore, if a person desires to have material enjoyment and wants very sincerely to have such facilities from the material demigods, the Supreme Lord, as Supersoul in everyone's heart, understands and gives facilities to such persons. As the supreme father of all living entities, He does not interfere with their independence, but gives all facilities so that they can fulfill their material desires. Some may ask why the all-powerful God gives facilities to the living entities for enjoying this material world and so lets them fall into the trap of the illusory energy. The answer is that if the Supreme Lord as Supersoul does not give such facilities, then there is no meaning to independence. Therefore He gives everyone full independence—whatever one likes—but His ultimate instruction we find in the *Bhagavad-gītā:* man should give up all other engagements and fully surrender unto Him. That will make man happy.
 
 ### Bg 7.22
-
-> स तया श्रद्धया युक्तस्तस्याराधनमीहते ।
-> लभते च ततः कामान्मयैव विहितान्हि तान् ॥२२॥
 
 > sa tayā śraddhayā yuktas
 > tasyārādhanam īhate
@@ -5965,9 +5031,6 @@ The demigods cannot award benediction to the devotees without the permission of 
 For the living entity who desires to return to Godhead, material desires are impediments. A pure devotee of the Lord is therefore not awarded the material benefits desired by less intelligent living entities who prefer to worship demigods of the material world rather than engage in devotional service of the Supreme Lord.
 
 ### Bg 7.23
-
-> अन्तवत्तु फलं तेषां तद्भवत्यल्पमेधसाम् ।
-> देवान्देवयजो यान्ति मद्भक्ता यान्ति मामपि ॥२३॥
 
 > antavat tu phalaṁ teṣāṁ
 > tad bhavaty alpa-medhasām
@@ -5987,9 +5050,6 @@ Not only are demigods parts of the Supreme Lord, but ordinary living entities ar
 The results achieved by the demigods' benedictions are perishable because within this material world the planets, the demigods and their worshipers are all perishable. Therefore it is clearly stated in this verse that all results achieved by worshiping demigods are perishable, and therefore such worship is performed by the less intelligent living entity. Because the pure devotee engaged in Kṛṣṇa consciousness in devotional service of the Supreme Lord achieves eternal blissful existence that is full of knowledge, his achievements and those of the common worshiper of the demigods are different. The Supreme Lord is unlimited; His favor is unlimited; His mercy is unlimited. Therefore the mercy of the Supreme Lord upon His pure devotees is unlimited.
 
 ### Bg 7.24
-
-> अव्यक्तं व्यक्तिमापन्नं मन्यन्ते मामबुद्धयः ।
-> परं भावमजानन्तो ममाव्ययमनुत्तमम् ॥२४॥
 
 > avyaktaṁ vyaktim āpannaṁ
 > manyante mām abuddhayaḥ
@@ -6012,9 +5072,6 @@ Therefore the monistic contention that ultimate truth is formless and that form 
 
 ### Bg 7.25
 
-> नाहं प्रकाशः सर्वस्य योगमायासमावृतः ।
-> मूढोऽयं नाभिजानाति लोको मामजमव्ययम् ॥२५॥
-
 > nāhaṁ prakāśaḥ sarvasya
 > yoga-māyā-samāvṛtaḥ
 > mūḍho 'yaṁ nābhijānāti
@@ -6032,9 +5089,6 @@ This yoga-māyā curtain is also mentioned in the Fifteenth Chapter of the Gīt�
 
 ### Bg 7.26
 
-> वेदाहं समतीतानि वर्तमानानि चार्जुन ।
-> भविष्याणि च भूतानि मां तु वेद न कश्चन ॥२६॥
-
 > vedāhaṁ samatītāni
 > vartamānāni cārjuna
 > bhaviṣyāṇi ca bhūtāni
@@ -6050,9 +5104,6 @@ Unlike the ordinary human being, Lord Kṛṣṇa clearly says that He completel
 
 ### Bg 7.27
 
-> इच्छाद्वेषसमुत्थेन द्वन्द्वमोहेन भारत ।
-> सर्वभूतानि सम्मोहं सर्गे यान्ति परन्तप ॥२७॥
-
 > icchā-dveṣa-samutthena
 > dvandva-mohena bhārata
 > sarva-bhūtāni sammohaṁ
@@ -6065,9 +5116,6 @@ Unlike the ordinary human being, Lord Kṛṣṇa clearly says that He completel
 The real constitutional position of the living entity is that of subordination to the Supreme Lord, who is pure knowledge. When one is deluded into separation from this pure knowledge, he becomes controlled by illusory energy and cannot understand the Supreme Personality of Godhead. The illusory energy is manifested in the duality of desire and hate. Due to desire and hate, the ignorant person wants to become one with the Supreme Lord and envies Kṛṣṇa as the Supreme Personality of Godhead. Pure devotees, who are not so deluded or contaminated by desire and hate, can understand that Lord Śrī Kṛṣṇa appears by His internal potencies, but those who are deluded by duality and nescience think that the Supreme Personality of Godhead is created by material energies. This is their misfortune. Such deluded persons, symptomatically, dwell in dualities of dishonor and honor, misery and happiness, woman and man, good and bad, pleasure and pain, etc., thinking, "This is my wife; this is my house; I am the master of this house; I am the husband of this wife." These are the dualities of delusion. Those who are so deluded by dualities are completely foolish and therefore cannot understand the Supreme Personality of Godhead.
 
 ### Bg 7.28
-
-> येषां त्वन्तगतं पापं जनानां पुण्यकर्मणाम् ।
-> ते द्वन्द्वमोहनिर्मुक्ता भजन्ते मां दृढव्रताः ॥२८॥
 
 > yeṣāṁ tv anta-gataṁ pāpaṁ
 > janānāṁ puṇya-karmaṇām
@@ -6083,9 +5131,6 @@ Those eligible for elevation to the transcendental position are mentioned in thi
 It is stated in the *Śrīmad-Bhāgavatam* that if one actually wants to be liberated he must render service to the devotees; but one who associates with materialistic people is on the path leading to the darkest region of existence. All the devotees of the Lord traverse this earth just to recover the conditioned souls from their delusion. The impersonalists do not know that forgetting their constitutional position as subordinate to the Supreme Lord is the greatest violation of God's law. Unless one is reinstated in his own constitutional position, it is not possible to understand the Supreme Personality or to be fully engaged in His transcendental loving service with determination.
 
 ### Bg 7.29
-
-> जरामरणमोक्षाय मामाश्रित्य यतन्ति ये ।
-> ते ब्रह्म तद्विदुः कृत्स्नमध्यात्मं कर्म चाखिलम् ॥२९॥
 
 > jarā-maraṇa-mokṣāya
 > mām āśritya yatanti ye
@@ -6103,9 +5148,6 @@ Four kinds of impure devotees who engage themselves in the transcendental servic
 Those who are engaged in worshiping the form or *arcā* of the Lord or who are engaged in meditation on the Lord simply for liberation from material bondage, also know, by the grace of the Lord, the purports of Brahman, *adhibhūta,* etc., as explained by the Lord in the next chapter.
 
 ### Bg 7.30
-
-> साधिभूताधिदैवं मां साधियज्ञं च ये विदुः ।
-> प्रयाणकालेऽपि च मां ते विदुर्युक्तचेतसः ॥३०॥
 
 > sādhibhūtādhidaivaṁ māṁ
 > sādhiyajñaṁ ca ye viduḥ
@@ -6128,10 +5170,6 @@ Many subjects have been discussed in this chapter: the man in distress, the inqu
 
 ### Bg 8.1
 
-> अर्जुन उवाच ।
-> किं तद् ब्रह्म किमध्यात्मं किं कर्म पुरुषोत्तम ।
-> अधिभूतं च किं प्रोक्तमधिदैवं किमुच्यते ॥१॥
-
 > arjuna uvāca
 > kiṁ tad brahma kim adhyātmaṁ
 > kiṁ karma puruṣottama
@@ -6147,9 +5185,6 @@ In this chapter Lord Kṛṣṇa answers these different questions of Arjuna beg
 Arjuna has addressed the Supreme Lord as *Puruṣottama,* Supreme Person, which means that he was putting these questions not simply to a friend but to the Supreme Person, knowing Him to be the supreme authority able to give definitive answers.
 
 ### Bg 8.2
-
-> अधियज्ञः कथं कोऽत्र देहेऽस्मिन्मधुसूदन ।
-> प्रयाणकाले च कथं ज्ञेयोऽसि नियतात्मभिः ॥२॥
 
 > adhiyajñaḥ kathaṁ ko 'tra
 > dehe 'smin madhusūdana
@@ -6167,10 +5202,6 @@ Arjuna addresses the Lord as Madhusūdana because Kṛṣṇa once killed a demo
 Now the word *prayāṇa-kāle* in this verse is very significant because whatever we do in life will be tested at the time of death. Arjuna fears that at the time of death, those who are in Kṛṣṇa consciousness will forget the Supreme Lord because at such a time body functions are disrupted and the mind may be in a panic-stricken state. Therefore Mahārāja Kulaśekhara, a great devotee, prays, "My dear Lord, may I die immediately now that I'm healthy so that the swan of my mind may enter into the stem of Thy lotus feet." This metaphor is used because the swan often takes pleasure in entering the stem of the lotus flower—similarly, the mind of the pure devotee is drawn to the lotus feet of the Lord. Mahārāja Kulaśekhara fears that at the moment of death his throat will be so choked up that he will not be able to chant the holy names, so it is better to "die immediately." Arjuna questions how one's mind can remain fixed on Kṛṣṇa's lotus feet at such times.
 
 ### Bg 8.3
-
-> श्रीभगवानुवाच ।
-> अक्षरं ब्रह्म परमं स्वभावोऽध्यात्ममुच्यते ।
-> भूतभावोद्भवकरो विसर्गः कर्मसंज्ञितः ॥३॥
 
 > śrī-bhagavān uvāca
 > akṣaraṁ brahma paramaṁ
@@ -6192,9 +5223,6 @@ Impersonalist commentators on the *Gītā* unreasonably assume that Brahman take
 
 ### Bg 8.4
 
-> अधिभूतं क्षरो भावः पुरुषश्चाधिदैवतम् ।
-> अधियज्ञोऽहमेवात्र देहे देहभृतां वर ॥४॥
-
 > adhibhūtaṁ kṣaro bhāvaḥ
 > puruṣaś cādhidaivatam
 > adhiyajño 'ham evātra
@@ -6207,9 +5235,6 @@ Impersonalist commentators on the *Gītā* unreasonably assume that Brahman take
 The physical nature is constantly changing. Material bodies generally pass through six stages: they are born, they grow, they remain for some duration, they produce some by-products, they dwindle, and then they vanish. This physical nature is called *adhibhūtam.* Because it is created at a certain point and will be annihilated at a certain point, the conception of the universal form of the Supreme Lord that includes all the demigods and their different planets is called *adhidaivatam.* The individual soul (*jīva*) accompanies the body. The Supersoul, a plenary representation of Lord Kṛṣṇa, is called the Paramātmā or *adhiyajña* and is situated in the heart. The word *eva* is particularly important in the context of this verse because by this word the Lord stresses that the Paramātmā is not different from Him. The Supersoul, the Supreme Personality of Godhead, seated beside the individual soul, is the witness of the individual soul's activities and is the source of consciousness. The Supersoul gives the *jīva* an opportunity to act freely, and He witnesses his activities. The functions of all these different manifestations of the Supreme Lord automatically become clarified for the pure Kṛṣṇa conscious devotee engaged in transcendental service of the Lord. The gigantic universal form of the Lord called *adhidaivatam* is contemplated by the neophyte who cannot approach the Supreme Lord in His manifestation as Supersoul. The neophyte is advised to contemplate the universal form whose legs are considered the lowest planets and whose eyes are considered the sun and moon, and whose head is considered the upper planetary system.
 
 ### Bg 8.5
-
-> अन्तकाले च मामेव स्मरन्मुक्त्वा कलेवरम् ।
-> यः प्रयाति स मद्भावं याति नास्त्यत्र संशयः ॥५॥
 
 > anta-kāle ca mām eva
 > smaran muktvā kalevaram
@@ -6224,9 +5249,6 @@ In this verse the importance of Kṛṣṇa consciousness is stressed. Anyone wh
 
 ### Bg 8.6
 
-> यं यं वापि स्मरन्भावं त्यजत्यन्ते कलेवरम् ।
-> तं तमेवैति कौन्तेय सदा तद्भावभावितः ॥६॥
-
 > yaṁ yaṁ vāpi smaran bhāvaṁ
 > tyajaty ante kalevaram
 > taṁ tam evaiti kaunteya
@@ -6240,9 +5262,6 @@ The process of changing one's nature at the critical moment of death is here exp
 
 ### Bg 8.7
 
-> तस्मात्सर्वेषु कालेषु मामनुस्मर युध्य च ।
-> मय्यर्पितमनोबुद्धिर्मामेवैष्यस्यसंशयः ॥७॥
-
 > tasmāt sarveṣu kāleṣu
 > mām anusmara yudhya ca
 > mayy arpita-mano-buddhir
@@ -6255,9 +5274,6 @@ The process of changing one's nature at the critical moment of death is here exp
 This instruction to Arjuna is very important for all men engaged in material activities. The Lord does not say that one should give up his prescribed duties or engagements. One can continue them and at the same time think of Kṛṣṇa by chanting Hare Kṛṣṇa. This will free one from material contamination and engage the mind and intelligence in Kṛṣṇa. By chanting Kṛṣṇa's names, one will be transferred to the supreme planet, Kṛṣṇaloka, without a doubt.
 
 ### Bg 8.8
-
-> अभ्यासयोगयुक्तेन चेतसा नान्यगामिना ।
-> परमं पुरुषं दिव्यं याति पार्थानुचिन्तयन् ॥८॥
 
 > abhyāsa-yoga-yuktena
 > cetasā nānya-gāminā
@@ -6274,11 +5290,6 @@ The devotees can constantly think of the object of worship, the Supreme Lord, in
 
 ### Bg 8.9
 
-> कविं पुराणमनुशासितार-
-> मणोरणीयंसमनुस्मरेद्यः ।
-> सर्वस्य धातारमचिन्त्यरूप-
-> मादित्यवर्णं तमसः परस्तात् ॥९॥
-
 > kaviṁ purāṇam anuśāsitāram
 > aṇor aṇīyāṁsam anusmared yaḥ
 > sarvasya dhātāram acintya-rūpam
@@ -6291,11 +5302,6 @@ The devotees can constantly think of the object of worship, the Supreme Lord, in
 The process of thinking of the Supreme is mentioned in this verse. The foremost point is that He is not impersonal or void. One cannot meditate on something impersonal or void. That is very difficult. The process of thinking of Kṛṣṇa, however, is very easy and is factually stated herein. First of all, He is *puruṣa,* spiritual, Rāma and Kṛṣṇa, and is described herein as *kavim;* that is, He knows past, present and future and therefore knows everything. He is the oldest personality because He is the origin of everything; everything is born out of Him. He is also the supreme controller of the universe, maintainer and instructor of humanity. He is smaller than the smallest. The living entity is one 10,000th part of the tip of a hair, but the Lord is so inconceivably small that He enters into the heart of this particle. Therefore He is called smaller than the smallest. As the Supreme, He can enter into the atom and into the heart of the smallest and control him as the Supersoul. Although so small, He is still all-pervading and is maintaining everything. By Him all these planetary systems are sustained. We often wonder how these big planets are floating in the air. It is stated here that the Supreme Lord, by His inconceivable energy, is sustaining all these big planets and systems of galaxies. The word *acintya* (inconceivable) is very significant in this connection. God's energy is beyond our conception, beyond our thinking jurisdiction, and is therefore called inconceivable (*acintya*). Who can argue this point? He pervades this material world and yet is beyond it. We cannot even comprehend this material world, which is insignificant compared to the spiritual world—so how can we comprehend what is beyond? *Acintya* means that which is beyond this material world, that which our argument, logic and philosophical speculation cannot touch, that which is inconceivable. Therefore intelligent persons, avoiding useless argument and speculation, should accept what is stated in scriptures like the *Vedas, Gītā,* and *Śrīmad-Bhāgavatam* and follow the principles they set down. This will lead one to understanding.
 
 ### Bg 8.10
-
-> प्रयाणकाले मनसाऽचलेन
-> भक्त्या युक्तो योगबलेन चैव ।
-> भ्रुवोर्मध्ये प्राणमावेश्य सम्यक्
-> स तं परं पुरुषमुपैति दिव्यम् ॥१०॥
 
 > prayāṇa-kāle manasācalena
 > bhaktyā yukto yoga-balena caiva
@@ -6312,11 +5318,6 @@ The particular use of the word *yoga-balena* is significant in this verse becaus
 
 ### Bg 8.11
 
-> यदक्षरं वेदविदो वदन्ति
-> विशन्ति यद्यतयो वीतरागाः ।
-> यदिच्छन्तो ब्रह्मचर्यं चरन्ति
-> तत्ते पदं संग्रहेण प्रवक्ष्ये ॥११॥
-
 > yad akṣaraṁ veda-vido vadanti
 > viśanti yad yatayo vīta-rāgāḥ
 > yad icchanto brahmacaryaṁ caranti
@@ -6332,9 +5333,6 @@ In the Vedic system of knowledge, students, from the very beginning, are taught 
 
 ### Bg 8.12
 
-> सर्वद्वाराणि संयम्य मनो हृदि निरुध्य च ।
-> मूध्न्या।र्धायात्मनः प्राणमास्थितो योगधारणाम् ॥१२॥
-
 > sarva-dvārāṇi saṁyamya
 > mano hṛdi nirudhya ca
 > mūrdhny ādhāyātmanaḥ prāṇam
@@ -6348,9 +5346,6 @@ To practice *yoga,* as suggested here, one first has to close the door of all se
 
 ### Bg 8.13
 
-> ओमित्येकाक्षरं ब्रह्म व्याहरन्मामनुस्मरन् ।
-> यः प्रयाति त्यजन्देहं स याति परमां गतिम् ॥१३॥
-
 > oṁ ity ekākṣaraṁ brahma
 > vyāharan mām anusmaran
 > yaḥ prayāti tyajan dehaṁ
@@ -6363,9 +5358,6 @@ To practice *yoga,* as suggested here, one first has to close the door of all se
 It is clearly stated here that *om,* Brahman, and Lord Kṛṣṇa are not different. The impersonal sound of Kṛṣṇa is *om,* but the sound Hare Kṛṣṇa contains *om.* It is clearly recommended in this age that if one quits his body at the end of this life chanting the *mahāmantra,* Hare Kṛṣṇa, he will reach the spiritual planets. Similarly, those who are devotees of Kṛṣṇa enter the Kṛṣṇa planet or Goloka Vṛndāvana, whereas the impersonalists remain in the *brahmajyoti.* The personalists also enter many innumerable planets in the spiritual sky known as Vaikuṇṭhas.
 
 ### Bg 8.14
-
-> अनन्यचेताः सततं यो मां स्मरति नित्यशः ।
-> तस्याहं सुलभः पार्थ नित्ययुक्तस्य योगिनः ॥१४॥
 
 > ananya-cetāḥ satataṁ
 > yo māṁ smarati nityaśaḥ
@@ -6384,9 +5376,6 @@ A pure devotee constantly remembers Kṛṣṇa and meditates upon Him. These ar
 
 ### Bg 8.15
 
-> मामुपेत्य पुनर्जन्म दुःखालयमशाश्वतम् ।
-> नाप्नुवन्ति महात्मानः संसिद्धिं परमां गताः ॥१५॥
-
 > mām upetya punar janma
 > duḥkhālayam aśāśvatam
 > nāpnuvanti mahātmānaḥ
@@ -6400,9 +5389,6 @@ Since this temporary material world is full of the miseries of birth, old age, d
 
 ### Bg 8.16
 
-> आब्रह्मभुवनाल्लोकाः पुनरावर्तिनोऽर्जुन ।
-> मामुपेत्य तु कौन्तेय पुनर्जन्म न विद्यते ॥१६॥
-
 > ā-brahma-bhuvanāl lokāḥ
 > punar āvartino ‘rjuna
 > mām upetya tu kaunteya
@@ -6415,9 +5401,6 @@ Since this temporary material world is full of the miseries of birth, old age, d
 All kinds of *yogīs*—*karma, jñāna, haṭha,* etc.—eventually have to attain devotional perfection in *bhakti-yoga,* or Kṛṣṇa consciousness, before they can go to Kṛṣṇa's transcendental abode and never return. Those who attain the highest material planets or the planets of the demigods are again subjected to repeated birth and death. As persons on earth are elevated to higher planets, people in higher planets such as Brahmaloka, Candraloka and Indraloka fall down to earth. The practice of sacrifice called *pañcāgni-vidyā,* recommended in the *Kaṭha Upaniṣad,* enables one to achieve Brahmaloka, but if, in Brahmaloka, one does not cultivate Kṛṣṇa consciousness, then he must return to earth. Those who progress in Kṛṣṇa consciousness in the higher planets are gradually elevated to higher and higher planets and at the time of universal devastation are transferred to the eternal spiritual kingdom. When there is devastation of this material universe, Brahmā and his devotees, who are constantly engaged in Kṛṣṇa consciousness, are all transferred to the spiritual universe and to specific spiritual planets according to their desires.
 
 ### Bg 8.17
-
-> सहस्रयुगपर्यन्तमहर्यद् ब्रह्मणो विदुः ।
-> रात्रिं युगसहस्रान्तां तेऽहोरात्रविदो जनाः ॥१७॥
 
 > sahasra-yuga-paryantam
 > ahar yad brahmaṇo viduḥ
@@ -6434,9 +5417,6 @@ In the material universe not even Brahmā is free from the process of birth, old
 
 ### Bg 8.18
 
-> अव्यक्ताद् व्यक्तयः सर्वाः प्रभवन्त्यहरागमे ।
-> रात्र्यागमे प्रलीयन्ते तत्रैवाव्यक्तसंज्ञके ॥१८॥
-
 > avyaktād vyaktayaḥ sarvāḥ
 > prabhavanty ahar-āgame
 > rātry-āgame pralīyante
@@ -6450,9 +5430,6 @@ The less intelligent *jīvas* try to remain within this material world and are a
 
 ### Bg 8.19
 
-> भूतग्रामः स एवायं भूत्वा भूत्वा प्रलीयते ।
-> रात्र्यागमेऽवशः पार्थ प्रभवत्यहरागमे ॥१९॥
-
 > bhūta-grāmaḥ sa evāyaṁ
 > bhūtvā bhūtvā pralīyate
 > rātry-āgame 'vaśaḥ pārtha
@@ -6463,9 +5440,6 @@ The less intelligent *jīvas* try to remain within this material world and are a
 **Again and again the day comes, and this host of beings is active; and again the night falls, O Pārtha, and they are helplessly dissolved.**
 
 ### Bg 8.20
-
-> परस्तस्मात्तु भावोऽन्योऽव्यक्तोऽव्यक्तात्सनातनः ।
-> यः स सर्वेषु भूतेषु नश्यत्सु न विनश्यति ॥२०॥
 
 > paras tasmāt tu bhāvo 'nyo
 > 'vyakto 'vyaktāt sanātanaḥ
@@ -6480,9 +5454,6 @@ Kṛṣṇa's superior spiritual energy is transcendental and eternal. It is bey
 
 ### Bg 8.21
 
-> अव्यक्तोऽक्षर इत्युक्तस्तमाहुः परमां गतिम् ।
-> यं प्राप्य न निवर्तन्ते तद्धाम परमं मम ॥२१॥
-
 > avyakto 'kṣara ity uktas
 > tam āhuḥ paramāṁ gatim
 > yaṁ prāpya na nivartante
@@ -6495,9 +5466,6 @@ Kṛṣṇa's superior spiritual energy is transcendental and eternal. It is bey
 The supreme abode of the Personality of Godhead, Kṛṣṇa, is described in the *Brahma-saṁhitā* as *cintāmaṇi-dhāma,* a place where all desires are fulfilled. The supreme abode of Lord Kṛṣṇa known as Goloka Vṛndāvana is full of palaces made of touchstone. There are also trees which are called "desire trees" that supply any type of eatable upon demand, and there are cows known as *surabhi* cows which supply a limitless supply of milk. In this abode, the Lord is served by hundreds of thousands of goddesses of fortune (Lakṣmīs), and He is called Govinda, the primal Lord and the cause of all causes. The Lord is accustomed to blow His flute (*venum kvanantam*). His transcendental form is the most attractive in all the worlds—His eyes are like the lotus petals and the color of His body like clouds. He is so attractive that His beauty excels that of thousands of cupids. He wears saffron cloth, a garland around His neck and a peacock feather in His hair. In the *Gītā* Lord Krṣṇa gives only a small hint of His personal abode (Goloka Vṛndāvana) which is the supermost planet in the spiritual kingdom. A vivid description is given in the *Brahma-saṁhitā.* Vedic literature states that there is nothing superior to the abode of the Supreme Godhead, and that that abode is the ultimate destination. When one attains to it, he never returns to the material world. Kṛṣṇa's supreme abode and Kṛṣṇa Himself are nondifferent, being of the same quality. On this earth, Vṛndāvana, ninety miles southeast of Delhi, is a replica of that supreme Goloka Vṛndāvana located in the spiritual sky. When Kṛṣṇa descended on this earth, He sported on that particular tract of land known as Vṛndāvana in the district of Mathurā, India.
 
 ### Bg 8.22
-
-> पुरुषः स परः पार्थ भक्त्या लभ्यस्त्वनन्यया ।
-> यस्यान्तःस्थानि भूतानि येन सर्वमिदं ततम् ॥२२॥
 
 > puruṣaḥ sa paraḥ pārtha
 > bhaktyā labhyas tv ananyayā
@@ -6514,9 +5482,6 @@ It is clearly stated here that only by *bhakti,* or devotional service, can one 
 
 ### Bg 8.23
 
-> यत्र काले त्वनावृत्तिमावृत्तिं चैव योगिनः ।
-> प्रयाता यान्ति तं कालं वक्ष्यामि भरतर्षभ ॥२३॥
-
 > yatra kāle tv anāvṛttim
 > āvṛttiṁ caiva yoginaḥ
 > prayātā yānti taṁ kālaṁ
@@ -6532,9 +5497,6 @@ If the *yogī* is perfect, he can select the time and place for leaving this mat
 
 ### Bg 8.24
 
-> अग्निर्ज्योतिरहः शुक्लः षण्मासा उत्तरायणम् ।
-> तत्र प्रयाता गच्छन्ति ब्रह्म ब्रह्मविदो जनाः ॥२४॥
-
 > agnir jyotir ahaḥ śuklaḥ
 > ṣaṇ-māsā uttarāyaṇam
 > tatra prayātā gacchanti
@@ -6547,9 +5509,6 @@ If the *yogī* is perfect, he can select the time and place for leaving this mat
 When fire, light, day and moon are mentioned, it is to be understood that over all of them there are various presiding deities who make arrangements for the passage of the soul. At the time of death, the *jīva* sets forth on the path to a new life. If one leaves the body at the time designated above, either accidently or by arrangement, it is possible for him to attain the impersonal *brahmajyoti.* Mystics who are advanced in *yoga* practice can arrange the time and place to leave the body. Others have no control—if by accident they leave at an auspicious moment, then they will not return to the cycle of birth and death, but if not, then there is every possibility that they will have to return. However, for the pure devotee in Kṛṣṇa consciousness, there is no fear of returning, whether he leaves the body at an auspicious or inauspicious moment, by accident or arrangement.
 
 ### Bg 8.25
-
-> धूमो रात्रिस्तथा कृष्णः षण्मासा दक्षिणायनम् ।
-> तत्र चान्द्रमसं ज्योतिर्योगी प्राप्य निवर्तते ॥२५॥
 
 > dhūmo rātris tathā kṛṣṇaḥ
 > ṣaṇ-māsā dakṣiṇāyanam
@@ -6564,9 +5523,6 @@ In the Third Canto of *Śrīmad-Bhāgavatam* we are informed that those who are 
 
 ### Bg 8.26
 
-> शुक्लकृष्णे गती ह्येते जगतः शाश्वते मते ।
-> एकया यात्यनावृत्तिमन्ययावर्तते पुनः ॥२६॥
-
 > śukla-kṛṣṇe gatī hy ete
 > jagataḥ śāśvate mate
 > ekayā yāty anāvṛttim
@@ -6580,9 +5536,6 @@ The same description of departure and return is quoted by Ācārya Baladeva Vidy
 
 ### Bg 8.27
 
-> नैते सृती पार्थ जानन्योगी मुह्यति कश्चन ।
-> तस्मात्सर्वेषु कालेषु योगयुक्तो भवार्जुन ॥२७॥
-
 > naite sṛtī pārtha jānan
 > yogī muhyati kaścana
 > tasmāt sarveṣu kāleṣu
@@ -6595,11 +5548,6 @@ The same description of departure and return is quoted by Ācārya Baladeva Vidy
 Kṛṣṇa is here advising Arjuna that he should not be disturbed by the different paths the soul can take when leaving the material world. A devotee of the Supreme Lord should not worry whether he will depart either by arrangement or by accident. The devotee should be firmly established in Krṣṇa consciousness and chant Hare Kṛṣṇa. He should know that concern over either of these two paths is troublesome. The best way to be absorbed in Kṛṣṇa consciousness is to be always dovetailed in His service, and this will make one's path to the spiritual kingdom safe, certain, and direct. The word *yoga-yukta* is especially significant in this verse. One who is firm in *yoga* is constantly engaged in Kṛṣṇa consciousness in all his activities. Śrī Rūpa Gosvāmī advises that one should be unattached in the material world and that all affairs should be steeped in Kṛṣṇa consciousness. In this way one attains perfection. Therefore the devotee is not disturbed by these descriptions because he knows that his passage to the supreme abode is guaranteed by devotional service.
 
 ### Bg 8.28
-
-> वेदेषु यज्ञेषु तपःसु चैव
-> दानेषु यत्पुण्यफलं प्रदिष्टम् ।
-> अत्येति तत्सर्वमिदं विदित्वा
-> योगी परं स्थानमुपैति चाद्यम् ॥२८॥
 
 > vedeṣu yajñeṣu tapaḥsu caiva
 > dāneṣu yat puṇya-phalaṁ pradiṣṭam
@@ -6624,10 +5572,6 @@ One should try to understand the Seventh and Eighth Chapters of the *Gītā* not
 
 ### Bg 9.1
 
-> श्रीभगवानुवाच ।
-> इदं तु ते गुह्यतमं प्रवक्ष्याम्यनसूयवे ।
-> ज्ञानं विज्ञानसहितं यज्ज्ञात्वा मोक्ष्यसेऽशुभात् ॥१॥
-
 > śrī-bhagavān uvāca
 > idaṁ tu te guhyatamaṁ
 > pravakṣyāmy anasūyave
@@ -6651,9 +5595,6 @@ In the Seventh Chapter we have already discussed the opulent potency of the Supr
 The Sanskrit word *anasūyave* in this verse is also very significant. Generally the commentators, even if they are highly scholarly, are all envious of Kṛṣṇa, the Supreme Personality of Godhead. Even the most erudite scholars write on *Bhagavad-gītā* very inaccurately. Because they are envious of Kṛṣṇa, their commentaries are useless. The commentaries given by devotees of the Lord are bona fide. No one can explain *Bhagavad-gītā,* or give perfect knowledge of Kṛṣṇa if he is envious. One who criticizes the character of Kṛṣṇa without knowing Him is a fool. So such commentaries should be very carefully avoided. For one who understands that Kṛṣṇa is the Supreme Personality of Godhead, the pure and transcendental Personality, these chapters will be very beneficial.
 
 ### Bg 9.2
-
-> राजविद्या राजगुह्यं पवित्रमिदमुत्तमम् ।
-> प्रत्यक्षावगमं धर्म्यं सुसुखं कर्तुमव्ययम् ॥२॥
 
 > rāja-vidyā rāja-guhyaṁ
 > pavitram idam uttamam
@@ -6688,9 +5629,6 @@ As it will be seen, actual devotional service begins after liberation. So in *Bh
 
 ### Bg 9.3
 
-> अश्रद्दधानाः पुरुषा धर्मस्यास्य परन्तप ।
-> अप्राप्य मां निवर्तन्ते मृत्युसंसारवर्त्मनि ॥३॥
-
 > aśraddadhānāḥ puruṣā
 > dharmasyāsya parantapa
 > aprāpya māṁ nivartante
@@ -6708,9 +5646,6 @@ There are three divisions of Kṛṣṇa conscious men. In the third class are t
 
 ### Bg 9.4
 
-> मया ततमिदं सर्वं जगदव्यक्तमूर्तिना ।
-> मत्स्थानि सर्वभूतानि न चाहं तेष्ववस्थितः ॥४॥
-
 > mayā tatam idaṁ sarvaṁ
 > jagad avyakta-mūrtinā
 > mat-sthāni sarva-bhūtāni
@@ -6725,9 +5660,6 @@ The Supreme Personality of Godhead is not perceivable through the gross material
 Yet one should not conclude that because He is spread all over He has lost His personal existence. To refute such argument the Lord says, "I am everywhere, and everything is in Me, but still I am aloof." For example, a king heads a government which is but the manifestation of the king's energy; the different governmental departments are nothing but the energies of the king, and each department is resting on the king's power. But still one cannot expect the king to be present in every department personally. That is a crude example. Similarly, all the manifestations that we see, and everything that exists both in this material world and in the spiritual world, are resting on the energy of the Supreme Personality of Godhead. The creation takes place by the diffusion of His different energies, and, as is stated in the *Bhagavad-gītā,* He is everywhere present by His personal representation, the diffusion of His different energies.
 
 ### Bg 9.5
-
-> न च मत्स्थानि भूतानि पश्य मे योगमैश्वरम् ।
-> भूतभृन्न च भूतस्थो ममात्मा भूतभावनः ॥५॥
 
 > na ca mat-sthāni bhūtāni
 > paśya me yogam aiśvaram
@@ -6744,9 +5676,6 @@ In the Vedic dictionary it is said, "The Supreme Lord is performing inconceivabl
 
 ### Bg 9.6
 
-> यथाकाशस्थितो नित्यं वायुः सर्वत्रगो महान् ।
-> तथा सर्वाणि भूतानि मत्स्थानीत्युपधारय ॥६॥
-
 > yathākāśa-sthito nityaṁ
 > vāyuḥ sarvatra-go mahān
 > tathā sarvāṇi bhūtāni
@@ -6762,9 +5691,6 @@ Similarly, all the wonderful cosmic manifestations are existing by the supreme w
 
 ### Bg 9.7
 
-> सर्वभूतानि कौन्तेय प्रकृतिं यान्ति मामिकाम् ।
-> कल्पक्षये पुनस्तानि कल्पादौ विसृजाम्यहम् ॥७॥
-
 > sarva-bhūtāni kaunteya
 > prakṛtiṁ yānti māmikām
 > kalpa-kṣaye punas tāni
@@ -6777,9 +5703,6 @@ Similarly, all the wonderful cosmic manifestations are existing by the supreme w
 The creation, maintenance and annihilation of this material cosmic manifestation is completely dependant on the supreme will of the Personality of Godhead. "At the end of the millennium" means at the death of Brahmā. Brahmā lives for one hundred years, and his one day is calculated at 4,300,000,000 of our earthly years. His night is of the same duration. His month consists of thirty such days and nights, and his year of twelve months. After one hundred such years, when Brahmā dies, the devastation or annihilation takes place; this means that the energy manifested by the Supreme Lord is again wound up in Himself. Then again, when there is need to manifest the cosmic world, it is done by His will: "Although I am one, I shall become many." This is the Vedic aphorism. He expands Himself in this material energy, and the whole cosmic manifestation again takes place.
 
 ### Bg 9.8
-
-> प्रकृतिं स्वामवष्टभ्य विसृजामि पुनः पुनः ।
-> भूतग्राममिमं कृत्स्नमवशं प्रकृतेर्वशात् ॥८॥
 
 > prakṛtiṁ svām avaṣṭabhya
 > visṛjāmi punaḥ punaḥ
@@ -6796,9 +5719,6 @@ Now, as far as the living entities are concerned, they are impregnated into this
 
 ### Bg 9.9
 
-> न च मां तानि कर्माणि निबध्नन्ति धनञ्जय ।
-> उदासीनवदासीनमसक्तं तेषु कर्मसु ॥९॥
-
 > na ca māṁ tāni karmāṇi
 > nibadhnanti dhanañjaya
 > udāsīna-vad āsīnam
@@ -6812,9 +5732,6 @@ One should not think, in this connection, that the Supreme Personality of Godhea
 
 ### Bg 9.10
 
-> मयाध्यक्षेण प्रकृतिः सूयते सचराचरम् ।
-> हेतुनानेन कौन्तेय जगद्विपरिवर्तते ॥१०॥
-
 > mayādhyakṣeṇa prakṛtiḥ
 > sūyate sa-carācaram
 > hetunānena kaunteya
@@ -6827,9 +5744,6 @@ One should not think, in this connection, that the Supreme Personality of Godhea
 It is clearly stated here that the Supreme Lord, although aloof from all the activities of the material world, remains the supreme director. The Supreme Lord is the supreme will and the background of this material manifestation, but the management is being conducted by material nature. Kṛṣṇa also states in *Bhagavad-gītā* that of all the living entities in different forms and species, "I am the Father." The father gives seeds to the womb of the mother for the child, and similarly the Supreme Lord by His mere glance injects all the living entities into the womb of material nature, and they come out in their different forms and species, according to their last desires and activities. All these living entities, although born under the glance of the Supreme Lord, still take their different bodies according to their past deeds and desires. So the Lord is not directly attached to this material creation. He simply glances over material nature; material nature is thus activated, and everything is created immediately. Because He glances over material nature, there is undoubtedly activity on the part of the Supreme Lord, but He has nothing to do with the manifestation of the material world directly. This example is given in the *smṛti:* when there is a fragrant flower before someone, the fragrance is touched by the smelling power of the person, yet the smelling and the flower are detached from one another. There is a similar connection between the material world and the Supreme Personality of Godhead; actually He has nothing to do with this material world, but He creates by His glance and ordains. In summary, material nature, without the superintendence of the Supreme Personality of Godhead, cannot do anything. Yet the Supreme Personality is detached from all material activities.
 
 ### Bg 9.11
-
-> अवजानन्ति मां मूढा मानुषीं तनुमाश्रितम् ।
-> परं भावमजानन्तो मम भूतमहेश्वरम् ॥११॥
 
 > avajānanti māṁ mūḍhā
 > mānuṣīṁ tanum āśritam
@@ -6858,9 +5772,6 @@ There are also many impersonalists who deride temple worship. They say that sinc
 
 ### Bg 9.12
 
-> मोघाशा मोघकर्माणो मोघज्ञाना विचेतसः ।
-> राक्षसीमासुरीं चैव प्रकृतिं मोहिनीं श्रिताः ॥१२॥
-
 > moghāśā mogha-karmāṇo
 > mogha-jñānā vicetasaḥ
 > rākṣasīm āsurīṁ caiva
@@ -6876,9 +5787,6 @@ It is a great offense, therefore, to consider Kṛṣṇa, the Supreme Personali
 
 ### Bg 9.13
 
-> महात्मानस्तु मां पार्थ दैवीं प्रकृतिमाश्रिताः ।
-> भजन्त्यनन्यमनसो ज्ञात्वा भूतादिमव्ययम् ॥१३॥
-
 > mahātmānas tu māṁ pārtha
 > daivīṁ prakṛtim āśritāḥ
 > bhajanty ananya-manaso
@@ -6893,9 +5801,6 @@ In this verse the description of *mahātmā* is clearly given. The first sign of
 The *mahātmā* does not divert his attention to anything outside Kṛṣṇa because he knows perfectly well that Kṛṣṇa is the original Supreme Person, the cause of all causes. There is no doubt about it. Such a *mahātmā,* or great soul, develops through association with other *mahātmās,* pure devotees. Pure devotees are not even attracted by Kṛṣṇa's other features, such as the four-armed Mahā-Viṣṇu. They are simply attracted by the two-armed form of Kṛṣṇa. Since they are not attracted to other features of Kṛṣṇa (what to speak of the demigods), they are not concerned with any form of a demigod or of a human being. They only meditate upon Kṛṣṇa in Kṛṣṇa consciousness. They are always engaged in the unswerving service of the Lord in Kṛṣṇa consciousness.
 
 ### Bg 9.14
-
-> सततं कीर्तयन्तो मां यतन्तश्च दृढव्रताः ।
-> नमस्यन्तश्च मां भक्त्या नित्ययुक्ता उपासते ॥१४॥
 
 > satataṁ kīrtayanto māṁ
 > yatantaś ca dṛḍha-vratāḥ
@@ -6916,9 +5821,6 @@ As described in the second verse of this chapter, this devotional service is not
 
 ### Bg 9.15
 
-> ज्ञानयज्ञेन चाप्यन्ये यजन्तो मामुपासते ।
-> एकत्वेन पृथक्त्वेन बहुधा विश्वतोमुखम् ॥१५॥
-
 > jñāna-yajñena cāpy anye
 > yajanto mām upāsate
 > ekatvena pṛthaktvena
@@ -6931,9 +5833,6 @@ As described in the second verse of this chapter, this devotional service is not
 This verse is the summary of the previous verses. The Lord tells Arjuna that those who are purely in Kṛṣṇa consciousness and do not know anything other than Kṛṣṇa are called *mahātmā;* yet there are other persons who are not exactly in the position of *mahātmā* but who worship Kṛṣṇa also, in different ways. Some of them are already described as the distressed, the financially destitute, the inquisitive, and those who are engaged in the cultivation of knowledge. But there are others who are still lower, and these are divided into three: 1) He who worships himself as one with the Supreme Lord, 2) He who concocts some form of the Supreme Lord and worships that, and 3) He who accepts the universal form, the *viśvarūpa* of the Supreme Personality of Godhead, and worships that. Out of the above three, the lowest, those who worship themselves as the Supreme Lord, thinking themselves to be monists, are most predominant. Such people think themselves to be the Supreme Lord, and in this mentality they worship themselves. This is also a type of God worship, for they can understand that they are not the material body but are actually spiritual soul; at least, such a sense is prominent. Generally the impersonalists worship the Supreme Lord in this way. The second class includes the worshipers of the demigods, those who by imagination consider any form to be the form of the Supreme Lord. And the third class includes those who cannot conceive of anything beyond the manifestation of this material universe. They consider the universe to be the supreme organism or entity and worship that. The universe is also a form of the Lord.
 
 ### Bg 9.16
-
-> अहं क्रतुरहं यज्ञः स्वधाहमहमौषधम् ।
-> मन्त्रोऽहमहमेवाज्यमहमग्निरहं हुतम् ॥१६॥
 
 > ahaṁ kratur ahaṁ yajñaḥ
 > svadhāham aham auṣadham
@@ -6948,9 +5847,6 @@ The sacrifice known as *jyotiṣṭoma* is also Kṛṣṇa, and He is also the 
 
 ### Bg 9.17
 
-> पिताहमस्य जगतो माता धाता पितामहः ।
-> वेद्यं पवित्रमोंकार ऋक्साम यजुरेव च ॥१७॥
-
 > pitāham asya jagato
 > mātā dhātā pitāmahaḥ
 > vedyaṁ pavitram oṁkāra
@@ -6964,9 +5860,6 @@ The entire cosmic manifestations, moving and nonmoving, are manifested by differ
 
 ### Bg 9.18
 
-> गतिर्भर्ता प्रभुः साक्षी निवासः शरणं सुहृत् ।
-> प्रभवः प्रलयः स्थानं निधानं बीजमव्ययम् ॥१८॥
-
 > gatir bhartā prabhuḥ sākṣī
 > nivāsaḥ śaraṇaṁ suhṛt
 > prabhavaḥ pralayaḥ sthānaṁ
@@ -6979,9 +5872,6 @@ The entire cosmic manifestations, moving and nonmoving, are manifested by differ
 *Gati* means the destination where we want to go. But the ultimate goal is Kṛṣṇa, although people do not know it. One who does not know Kṛṣṇa is misled, and his so-called progressive march is either partial or hallucinatory. There are many who make as their destination different demigods, and by rigid performance of the strict respective methods they reach different planets known as Candraloka, Sūryaloka, Indraloka, Maharloka, etc. But all such *lokas* or planets, being creations of Kṛṣṇa, are simultaneously Kṛṣṇa and not Kṛṣṇa. Actually such planets, being the manifestations of Kṛṣṇa's energy, are also Kṛṣṇa, but actually they only serve as a step forward for realization of Kṛṣṇa. To approach the different energies of Kṛṣṇa is to approach Kṛṣṇa indirectly. One should directly approach Kṛṣṇa, for that will save time and energy. For example, if there is a possibility of going to the top of a building by the help of an elevator, why should one go by the staircase, step by step? Everything is resting on Kṛṣṇa's energy; therefore without Kṛṣṇa's shelter nothing can exist. Kṛṣṇa is the supreme ruler because everything belongs to Him and everything exists on His energy. Kṛṣṇa, being situated in everyone's heart, is the supreme witness. The residences, countries or planets on which we live are also Kṛṣṇa. Kṛṣṇa is the ultimate goal of shelter, and as such one should take shelter of Kṛṣṇa either for protection or for annihilation of his distressed condition. And whenever we have to take protection, we should know that our protection must be a living force. Thus Kṛṣṇa is the supreme living entity. Since Kṛṣṇa is the source of our generation, or the supreme father, no one can be a better friend than Kṛṣṇa, nor can anyone be a better well-wisher. Kṛṣṇa is the original source of creation and the ultimate rest after annihilation. Kṛṣṇa is therefore the eternal cause of all causes.
 
 ### Bg 9.19
-
-> तपाम्यहमहं वर्षं निगृह्णाम्युत्सृजामि च ।
-> अमृतं चैव मृत्युश्च सदसच्चाहमर्जुन ॥१९॥
 
 > tapāmy aham ahaṁ varṣaṁ
 > nigṛhṇāmy utsṛjāmi ca
@@ -6998,11 +5888,6 @@ Since Kṛṣṇa is both matter and spirit, the gigantic universal form compris
 
 ### Bg 9.20
 
-> त्रैविद्या मां सोमपाः पूतपापा
-> यज्ञैरिष्ट्वा स्वर्गतिं प्रार्थयन्ते ।
-> ते पुण्यमासाद्य सुरेन्द्रलोक-
-> मश्नन्ति दिव्यान्दिवि देवभोगान् ॥२०॥
-
 > trai-vidyā māṁ soma-pāḥ pūta-pāpā
 > yajñair iṣṭvā svar-gatiṁ prārthayante
 > te puṇyam āsādya surendra-lokam
@@ -7015,11 +5900,6 @@ Since Kṛṣṇa is both matter and spirit, the gigantic universal form compris
 The word *trai-vidyāḥ* refers to the three *Vedas, Sāma, Yajur* and *Ṛg.* A *brāhmaṇa* who has studied these three *Vedas* is called a *tri-vedī.* Anyone who is very much attached to knowledge derived from these three *Vedas* is respected in society. Unfortunately, there are many great scholars of the *Vedas* who do not know the ultimate purport of studying them. Therefore Kṛṣṇa herein declares Himself to be the ultimate goal for the *tri-vedīs.* Actual *tri-vedīs* take shelter under the lotus feet of Kṛṣṇa and engage in pure devotional service to satisfy the Lord. Devotional service begins with the chanting of the Hare Kṛṣṇa *mantra* and side by side trying to understand Kṛṣṇa in truth. Unfortunately those who are simply official students of the *Vedas* become more interested in offering sacrifices to the different demigods like Indra, Candra, etc. By such endeavor, the worshipers of different demigods are certainly purified of the contamination of the lower qualities of nature and are thereby elevated to the higher planetary system or heavenly planets known as Maharloka, Janaloka, Tapoloka, etc. Once situated on those higher planetary systems, one can satisfy his senses hundreds of thousands of times better than on this planet.
 
 ### Bg 9.21
-
-> ते तं भुक्त्वा स्वर्गलोकं विशालं
-> क्षीणे पुण्ये मर्त्यलोकं विशन्ति ।
-> एवं त्रयीधर्ममनुप्रपन्ना
-> गतागतं कामकामा लभन्ते ॥२१॥
 
 > te taṁ bhuktvā svarga-lokaṁ viśālaṁ
 > kṣīṇe puṇye martya-lokaṁ viśanti
@@ -7034,9 +5914,6 @@ One who is promoted to those higher planetary systems enjoys a longer duration o
 
 ### Bg 9.22
 
-> अनन्याश्चिन्तयन्तो मां ये जनाः पर्युपासते ।
-> तेषां नित्याभियुक्तानां योगक्षेमं वहाम्यहम् ॥२२॥
-
 > ananyāś cintayanto māṁ
 > ye janāḥ paryupāsate
 > teṣāṁ nityābhiyuktānāṁ
@@ -7049,9 +5926,6 @@ One who is promoted to those higher planetary systems enjoys a longer duration o
 One who is unable to live for a moment without Kṛṣṇa consciousness cannot but think of Kṛṣṇa twenty-four hours, being engaged in devotional service by hearing, chanting, remembering, offering prayers, worshiping, serving the lotus feet of the Lord, rendering other services, cultivating friendship and surrendering fully to the Lord. Such activities are all auspicious and full of spiritual potencies; indeed, they make the devotee perfect in self-realization. Then his only desire is to achieve the association of the Supreme Personality of Godhead. This is called *yoga.* By the mercy of the Lord, such a devotee never comes back to this material condition of life. *Kṣema* refers to the merciful protection of the Lord. The Lord helps the devotee to achieve Kṛṣṇa consciousness by *yoga,* and when he becomes fully Kṛṣṇa conscious the Lord protects him from falling down to a miserable conditioned life.
 
 ### Bg 9.23
-
-> येऽप्यन्यदेवता भक्ता यजन्ते श्रद्धयान्विताः ।
-> तेऽपि मामेव कौन्तेय यजन्त्यविधिपूर्वकम् ॥२३॥
 
 > ye 'py anya-devatā-bhaktā
 > yajante śraddhayānvitāḥ
@@ -7066,9 +5940,6 @@ One who is unable to live for a moment without Kṛṣṇa consciousness cannot 
 
 ### Bg 9.24
 
-> अहं हि सर्वयज्ञानां भोक्ता च प्रभुरेव च ।
-> न तु मामभिजानन्ति तत्त्वेनातश्च्यवन्ति ते ॥२४॥
-
 > ahaṁ hi sarva-yajñānāṁ
 > bhoktā ca prabhur eva ca
 > na tu mām abhijānanti
@@ -7082,9 +5953,6 @@ Here it is clearly stated that there are many types of *yajña* performances rec
 
 ### Bg 9.25
 
-> यान्ति देवव्रता देवान्पितॄन्यान्ति पितृव्रताः ।
-> भूतानि यान्ति भूतेज्या यान्ति मद्याजिनोऽपि माम् ॥२५॥
-
 > yānti deva-vratā devān
 > pitṝn yānti pitṛ-vratāḥ
 > bhūtāni yānti bhūtejyā
@@ -7097,9 +5965,6 @@ Here it is clearly stated that there are many types of *yajña* performances rec
 If anyone has any desire to go to the moon, the sun, or any other planet, one can attain the desired destination by following specific Vedic principles recommended for that purpose. These are vividly described in the fruitive activities portion of the *Vedas,* technically known as *darśa-paurṇamāsī,* which recommends a specific worship of demigods situated on different heavenly planets. Similarly, one can attain the *pitā* planets by performing a specific *yajña.* Similarly, one can go to many ghostly planets and become a *yakṣa, rakṣa* or *piśāca. Piśāca* worship is called "black arts" or "black magic." There are many men who practice this black art, and they think that it is spiritualism, but such activities are completely materialistic. Similarly, a pure devotee, who worships the Supreme Personality of Godhead only, achieves the planets of Vaikuṇṭha and Kṛṣṇaloka without a doubt. It is very easy to understand through this important verse that if by simply worshiping the demigods one can achieve the heavenly planets, or by worshiping the *pitā* achieve the *pitā* planets, or by practicing the black arts achieve the ghostly planets, why can the pure devotee not achieve the planet of Kṛṣṇa or Viṣṇu? Unfortunately many people have no information of these sublime planets where Kṛṣṇa and Viṣṇu live, and because they do not know of them they fall down. Even the impersonalists fall down from the *brahmajyoti.* This Kṛṣṇa consciousness movement is therefore distributing sublime information to the entire human society to the effect that by simply chanting the Hare Kṛṣṇa *mantra* one can become perfect in this life and go back home, back to Godhead.
 
 ### Bg 9.26
-
-> पत्रं पुष्पं फलं तोयं यो मे भक्त्या प्रयच्छति ।
-> तदहं भक्त्युपहृतमश्नामि प्रयतात्मनः ॥२६॥
 
 > patraṁ puṣpaṁ phalaṁ toyaṁ
 > yo me bhaktyā prayacchati
@@ -7118,9 +5983,6 @@ The impersonalist philosophers, who wish to maintain that the Absolute Truth is 
 
 ### Bg 9.27
 
-> यत्करोषि यदश्नासि यज्जुहोषि ददासि यत् ।
-> यत्तपस्यसि कौन्तेय तत्कुरुष्व मदर्पणम् ॥२७॥
-
 > yat karoṣi yad aśnāsi
 > yaj juhoṣi dadāsi yat
 > yat tapasyasi kaunteya
@@ -7133,9 +5995,6 @@ The impersonalist philosophers, who wish to maintain that the Absolute Truth is 
 Thus, it is the duty of everyone to mold his life in such a way that he will not forget Kṛṣṇa in any circumstance. Everyone has to work for maintenance of his body and soul together, and Kṛṣṇa recommends herein that one should work for Him. Everyone has to eat something to live; therefore he should accept the remnants of foodstuffs offered to Kṛṣṇa. Any civilized man has to perform some religious ritualistic ceremonies; therefore Kṛṣṇa recommends, "Do it for Me," and this is called *arcanā.* Everyone has a tendency to give something in charity; Kṛṣṇa says, "Give it to Me," and this means that all surplus money accummulated should be utilized in furthering the Kṛṣṇa consciousness movement. Nowadays people are very much inclined to the meditational process, which is not practical in this age, but if anyone practices meditating on Kṛṣṇa twenty-four hours by chanting the Hare Kṛṣṇa *mantra* round his beads, he is surely the greatest *yogī,* as substantiated by the Sixth Chapter of *Bhagavad-gītā.*
 
 ### Bg 9.28
-
-> शुभाशुभफलैरेवं मोक्ष्यसे कर्मबन्धनैः ।
-> संन्यासयोगयुक्तात्मा विमुक्तो मामुपैष्यसि ॥२८॥
 
 > śubhāśubha-phalair evaṁ
 > mokṣyase karma-bandhanaiḥ
@@ -7156,9 +6015,6 @@ It is said, therefore, by Vaiṣṇava authorities that even the most intelligen
 
 ### Bg 9.29
 
-> समोऽहं सर्वभूतेषु न मे द्वेष्योऽस्ति न प्रियः ।
-> ये भजन्ति तु मां भक्त्या मयि ते तेषु चाप्यहम् ॥२९॥
-
 > samo 'haṁ sarva-bhūteṣu
 > na me dveṣyo 'sti na priyaḥ
 > ye bhajanti tu māṁ bhaktyā
@@ -7173,9 +6029,6 @@ One may question here that if Kṛṣṇa is equal to everyone and no one is His
 The example is often given that the Lord is like a desire tree, and whatever one wants from this desire tree, the Lord supplies. But here the explanation is more complete. The Lord is here stated to be partial to the devotees. This is the manifestation of the Lord's special mercy to the devotees. The Lord's reciprocation should not be considered to be under the law of *karma.* It belongs to the transcendental situation in which the Lord and His devotees function. Devotional service of the Lord is not an activity of this material world; it is part of the spiritual world where eternity, bliss and knowledge predominate.
 
 ### Bg 9.30
-
-> अपि चेत्सुदुराचारो भजते मामनन्यभाक् ।
-> साधुरेव स मन्तव्यः सम्यग्व्यवसितो हि सः ॥३०॥
 
 > api cet su-durācāro
 > bhajate mām ananya-bhāk
@@ -7194,9 +6047,6 @@ The mark of a spot which may be seen on the moon does not become an impediment t
 
 ### Bg 9.31
 
-> क्षिप्रं भवति धर्मात्मा शश्वच्छान्तिं निगच्छति ।
-> कौन्तेय प्रतिजानीहि न मे भक्तः प्रणश्यति ॥३१॥
-
 > kṣipraṁ bhavati dharmātmā
 > śaśvac-chāntiṁ nigacchati
 > kaunteya pratijānīhi
@@ -7210,9 +6060,6 @@ This should not be misunderstood. In the Seventh Chapter the Lord says that one 
 
 ### Bg 9.32
 
-> मां हि पार्थ व्यपाश्रित्य येऽपि स्युः पापयोनयः ।
-> स्त्रियो वैश्यास्तथा शूद्रास्तेऽपि यान्ति परां गतिम् ॥३२॥
-
 > māṁ hi pārtha vyapāśritya
 > ye 'pi syuḥ pāpa-yonayaḥ
 > striyo vaiśyās tathā śūdrās
@@ -7225,9 +6072,6 @@ This should not be misunderstood. In the Seventh Chapter the Lord says that one 
 It is clearly declared here by the Supreme Lord that in devotional service there is no distinction between the lower or higher classes of people. In the material conception of life, there are such divisions, but for a person engaged in transcendental devotional service to the Lord, there are not. Everyone is eligible for the supreme destination. In the *Śrīmad-Bhāgavatam* it is stated that even the lowest, who are called *caṇḍālas* (dog-eaters), can be elevated by association with a pure devotee. Therefore devotional service and guidance of a pure devotee are so strong that there is no discrimination between the lower and higher classes of men; anyone can take to it. The most simple man taking center of the pure devotee can be purified by proper guidance. According to the different modes of material nature, men are classified in the mode of goodness (*brāhmaṇas*), the mode of passion (*kṣatriyas,* or administrators), the mixed modes of passion and ignorance (*vaiśyas,* or merchants), and the mode of ignorance (*śūdras,* or workers). Those lower than them are called *caṇḍālas,* and they are born in sinful families. Generally, those who are born in sinful families are not accepted by the higher classes. But the process of devotional service and the pure devotee of the Supreme God are so strong that all the lower classes can attain the highest perfection of life. This is possible only when one takes center of Kṛṣṇa. One has to take center completely of Kṛṣṇa. Then one can become much greater than great *jñānīs* and *yogīs.*
 
 ### Bg 9.33
-
-> किं पुनर्ब्राह्मणाः पुण्या भक्ता राजर्षयस्तथा ।
-> अनित्यमसुखं लोकमिमं प्राप्य भजस्व माम् ॥३३॥
 
 > kiṁ punar brāhmaṇāḥ puṇyā
 > bhaktā rājarṣayas tathā
@@ -7243,9 +6087,6 @@ In this material world there are classifications of people, but, after all, this
 Arjuna was born in a saintly royal family. To him also the Lord says, "Take to My devotional service and come quickly back to Godhead, back home." No one should remain in this temporary world, full as it is with miseries. Everyone should attach himself to the bosom of the Supreme Personality of Godhead so that he can be eternally happy. The devotional service of the Supreme Lord is the only process by which all problems of all classes of men can be solved. Everyone should therefore take to Kṛṣṇa consciousness and make his life perfect.
 
 ### Bg 9.34
-
-> मन्मना भव मद्भक्तो मद्याजी मां नमस्कुरु ।
-> मामेवैष्यसि युक्त्वैवमात्मानं मत्परायणः ॥३४॥
 
 > man-manā bhava mad-bhakto
 > mad-yājī māṁ namaskuru
@@ -7272,10 +6113,6 @@ There is a beautiful poem about Kṛṣṇa in which it is clearly stated that a
 
 ### Bg 10.1
 
-> श्रीभगवानुवाच ।
-> भूय एव महाबाहो शृणु मे परमं वचः ।
-> यत्तेऽहं प्रीयमाणाय वक्ष्यामि हितकाम्यया ॥१॥
-
 > śrī-bhagavān uvāca
 > bhūya eva mahā-bāho
 > śṛṇu me paramaṁ vacaḥ
@@ -7291,9 +6128,6 @@ The word *paramam* is explained thus by Parāśara Muni: one who is full in six 
 The more one hears about the Supreme God, the more one becomes fixed in devotional service. One should always hear about the Lord in the association of devotees; that will enhance one's devotional service. Discourses in the society of devotees can take place only among those who are really anxious to be in Kṛṣṇa consciousness. Others cannot take part in such discourses. The Lord clearly tells Arjuna that because he is very dear to Him, for his benefit such discourses are taking place.
 
 ### Bg 10.2
-
-> न मे विदुः सुरगणाः प्रभवं न महर्षयः ।
-> अहमादिर्हि देवानां महर्षीणां च सर्वशः ॥२॥
 
 > na me viduḥ sura-gaṇāḥ
 > prabhavaṁ na maharṣayaḥ
@@ -7311,9 +6145,6 @@ Here the Lord indirectly says that if anyone wants to know the Absolute Truth, "
 Because most men cannot understand Kṛṣṇa in His actual situation, out of His causeless mercy He descends to show favor to such speculators. Yet despite the Supreme Lord's uncommon activities, these speculators, due to contamination in the material energy, still think that the impersonal Brahman is the Supreme. Only the devotees who are fully surrendered unto the Supreme Lord can understand, by the grace of the Supreme Personality, that He is Kṛṣṇa. The devotees of the Lord do not bother about the impersonal Brahman conception of God; their faith and devotion bring them to surrender immediately unto the Supreme Lord, and out of the causeless mercy of Kṛṣṇa, they can understand Kṛṣṇa. No one else can understand Him. So even great sages agree: What is *ātmā,* what is the Supreme? It is He whom we have to worship.
 
 ### Bg 10.3
-
-> यो मामजमनादिं च वेत्ति लोकमहेश्वरम् ।
-> असम्मूढः स मर्त्येषु सर्वपापैः प्रमुच्यते ॥३॥
 
 > yo mām ajam anādiṁ ca
 > vetti loka-maheśvaram
@@ -7339,11 +6170,6 @@ If Kṛṣṇa is known as the son of Devakī, then how can He be unborn? That i
 Anything done under the direction of Kṛṣṇa is transcendental. It cannot be contaminated by the material reactions, which may be auspicious or inauspicious. The conception that there are things auspicious and inauspicious in the material world is more or less a mental concoction because there is nothing auspicious in the material world. Everything is inauspicious because the very material mask is inauspicious. We simply imagine it to be auspicious. Real auspiciousness depends on activities in Kṛṣṇa consciousness in full devotion and service. Therefore if we at all want our activities to he auspicious, then we should work under the directions of the Supreme Lord. Such directions are given in authoritative scriptures such as *Śrīmad-Bhāgavatam* and *Bhagavad-gītā,* or from a bona fide spiritual master. Because the spiritual master is the representative of the Supreme Lord, his direction is directly the direction of the Supreme Lord. The spiritual master, saintly persons and scriptures direct in the same way. There is no contradiction in these three sources. All actions done under such direction are free from the reactions of pious or impious activities of this material world. The transcendental attitude of the devotee in the performance of activities is actually that of renunciation, and this is called *sannyāsa.* Anyone acting under the direction of the Supreme Lord is actually a *sannyāsī* and a *yogī,* and not the man who has simply taken the dress of the *sannyāsī,* or a pseudo-*yogī.*
 
 ### Bg 10.4-5
-
-> बुद्धिर्ज्ञानमसम्मोहः क्षमा सत्यं दमः शमः ।
-> सुखं दुःखं भवोऽभावो भयं चाभयमेव च ॥४॥
-> अहिंसा समता तुष्टिस्तपो दानं यशोऽयशः ।
-> भवन्ति भावा भूतानां मत्त एव पृथग्विधाः ॥५॥
 
 > buddhir jñānam asammohaḥ
 > kṣamā satyaṁ damaḥ śamaḥ
@@ -7385,9 +6211,6 @@ Of whatever we find, good or bad, the origin is Kṛṣṇa. Nothing can manifes
 
 ### Bg 10.6
 
-> महर्षयः सप्त पूर्वे चत्वारो मनवस्तथा ।
-> मद्भावा मानसा जाता येषां लोक इमाः प्रजाः ॥६॥
-
 > maharṣayaḥ sapta pūrve
 > catvāro manavas tathā
 > mad-bhāvā mānasā jātā
@@ -7400,9 +6223,6 @@ Of whatever we find, good or bad, the origin is Kṛṣṇa. Nothing can manifes
 The Lord is giving a genealogical synopsis of the universal population. Brahmā is the original creature born out of the energy of the Supreme Lord known as Hiraṇyagarbha. And from Brahmā all the seven great sages, and before them four other great sages, named Sanaka, Sananda, Sanātana, and Sanatkumāra, and the fourteen Manus, are manifest. All these twenty-five great sages are known as the patriarchs of the living entities all over the universe. There are innumerable universes and innumerable planets within each universe, and each planet is full of population of different varieties. All of them are born of these twenty-five patriarchs. Brahmā underwent penance for one thousand years of the demigods before he realized by the grace of Kṛṣṇa how to create. Then from Brahmā, Sanaka, Sananda, Sanātana, and Sanatkumāra came out, then Rudra, and then the seven sages, and in this way all the *brāhmaṇas* and *kṣatriyas* are born out of the energy of the Supreme Personality of Godhead. Brahmā is known as *pitāmaha,* the grandfather, and Kṛṣṇa is known as the *prapitā-maha,* the father of the grandfather. That is stated in the Eleventh Chapter of the *Bhagavad-gītā.* [[bg/11/39|(Bg. 11.39)]]
 
 ### Bg 10.7
-
-> एतां विभूतिं योगं च मम यो वेत्ति तत्त्वतः ।
-> सोऽविकम्पेन योगेन युज्यते नात्र संशयः ॥७॥
 
 > etāṁ vibhūtiṁ yogaṁ ca
 > mama yo vetti tattvataḥ
@@ -7420,9 +6240,6 @@ In the administration of this universe there are many demigods distributed throu
 These are some of the opulences of the Supreme Lord. When one is firmly convinced of them, he accepts Kṛṣṇa with great faith and without any doubt, and he engages in devotional service. All this particular knowledge is required in order to increase one's interest in the loving devotional service of the Lord. One should not neglect to understand fully how great Kṛṣṇa is, for by knowing the greatness of Kṛṣṇa one will be able to be fixed in sincere devotional service.
 
 ### Bg 10.8
-
-> अहं सर्वस्य प्रभवो मत्तः सर्वं प्रवर्तते ।
-> इति मत्वा भजन्ते मां बुधा भावसमन्विताः ॥८॥
 
 > ahaṁ sarvasya prabhavo
 > mattaḥ sarvaṁ pravartate
@@ -7454,9 +6271,6 @@ Lord Kṛṣṇa is the source of all generations, and He is called the most eff
 
 ### Bg 10.9
 
-> मच्चित्ता मद्गतप्राणा बोधयन्तः परस्परम् ।
-> कथयन्तश्च मां नित्यं तुष्यन्ति च रमन्ति च ॥९॥
-
 > mac-cittā mad-gata-prāṇā
 > bodhayantaḥ parasparam
 > kathayantaś ca māṁ nityaṁ
@@ -7474,9 +6288,6 @@ The *Śrīmad-Bhāgavatam* is also full of such narration about the relationship
 
 ### Bg 10.10
 
-> तेषां सततयुक्तानां भजतां प्रीतिपूर्वकम् ।
-> ददामि बुद्धियोगं तं येन मामुपयान्ति ते ॥१०॥
-
 > teṣāṁ satata-yuktānāṁ
 > bhajatāṁ prīti-pūrvakam
 > dadāmi buddhi-yogaṁ taṁ
@@ -7493,9 +6304,6 @@ When a person knows the goal of life but is addicted to the fruits of activities
 A person may have a bona fide spiritual master and may be attached to a spiritual organization, but still, if he is not intelligent enough to make progress, then Kṛṣṇa from within gives him instructions so that he may ultimately come to Him without difficulty. The qualification is that a person always engage himself in Kṛṣṇa consciousness and with love and devotion render all kinds of services. He should perform some sort of work for Kṛṣṇa, and that work should be with love. If a devotee is intelligent enough, he will make progress on the path of self-realization. If one is sincere and devoted to the activities of devotional service, the Lord gives him a chance to make progress and ultimately attain to Him.
 
 ### Bg 10.11
-
-> तेषामेवानुकम्पार्थमहमज्ञानजं तमः ।
-> नाशयाम्यात्मभावस्थो ज्ञानदीपेन भास्वता ॥११॥
 
 > teṣām evānukampārtham
 > aham ajñāna-jaṁ tamaḥ
@@ -7515,12 +6323,6 @@ The Lord tells Arjuna that basically there is no possibility of understanding th
 Due to the contamination of material association, through many, many millions of births, one's heart is always covered with the dust of materialism, but when one engages in devotional service and constantly chants Hare Kṛṣṇa, the dust quickly clears, and one is elevated to the platform of pure knowledge. The ultimate goal of Viṣṇu can be attained only by this chant and by devotional service, and not by mental speculation or argument. The pure devotee does not have to worry about the necessities of life; he need not be anxious because when he removes the darkness from his heart, everything is provided automatically by the Supreme Lord, for He is pleased by the loving devotional service of the devotee. This is the essence of the *Gītā's* teachings. By studying *Bhagavad-gītā,* one can become a completely surrendered soul to the Supreme Lord and engage himself in pure devotional service. As the Lord takes charge, one becomes completely free from all kinds of materialistic endeavors.
 
 ### Bg 10.12-13
-
-> अर्जुन उवाच ।
-> परं ब्रह्म परं धाम पवित्रं परमं भवान् ।
-> पुरुषं शाश्वतं दिव्यमादिदेवमजं विभुम् ॥१२॥
-> आहुस्त्वामृषयः सर्वे देवर्षिर्नारदस्तथा ।
-> असितो देवलो व्यासः स्वयं चैव ब्रवीषि मे ॥१३॥
 
 > arjuna uvāca
 > paraṁ brahma paraṁ dhāma
@@ -7549,9 +6351,6 @@ Here Arjuna expresses himself through the grace of Kṛṣṇa. If we want to un
 
 ### Bg 10.14
 
-> सर्वमेतदृतं मन्ये यन्मां वदसि केशव ।
-> न हि ते भगवन्व्यक्तिं विदुर्देवा न दानवाः ॥१४॥
-
 > sarvam etad ṛtaṁ manye
 > yan māṁ vadasi keśava
 > na hi te bhagavan vyaktiṁ
@@ -7564,9 +6363,6 @@ Here Arjuna expresses himself through the grace of Kṛṣṇa. If we want to un
 Arjuna herein confirms that persons of faithless and demonic nature cannot understand Kṛṣṇa. He is not even known by the demigods, so what to speak of the so-called scholars of this modern world? By the grace of the Supreme Lord, Arjuna has understood that the Supreme Truth is Kṛṣṇa and that He is the perfect one. One should therefore follow the path of Arjuna. He received the authority of *Bhagavad-gītā.* As described in the Fourth Chapter, the *paramparā* system of disciplic succession for the understanding of *Bhagavad-gītā* was lost, and therefore Kṛṣṇa reestablished that disciplic succession with Arjuna because He considered Arjuna His intimate friend and a great devotee. Therefore, as stated in our Introduction to *Gītopaniṣad, Bhagavad-gītā* should be understood in the *paramparā* system. When the *paramparā* system was lost, Arjuna was again selected to rejuvenate it. The acceptance of Arjuna of all that Kṛṣṇa says should be emulated; then we can understand the essence of *Bhagavad-gītā,* and then only can we understand that Kṛṣṇa is the Supreme Personality of Godhead.
 
 ### Bg 10.15
-
-> स्वयमेवात्मनात्मानं वेत्थ त्वं पुरुषोत्तम ।
-> भूतभावन भूतेश देवदेव जगत्पते ॥१५॥
 
 > svayam evātmanātmānaṁ
 > vettha tvaṁ puruṣottama
@@ -7583,9 +6379,6 @@ The Supreme Truth is realized in three aspects: as impersonal Brahman, localized
 
 ### Bg 10.16
 
-> वक्तुमर्हस्यशेषेण दिव्या ह्यात्मविभूतयः ।
-> याभिर्विभूतिभिर्लोकानिमांस्त्वं व्याप्य तिष्ठसि ॥१६॥
-
 > vaktum arhasy aśeṣeṇa
 > divyā hy ātma-vibhūtayaḥ
 > yābhir vibhūtibhir lokān
@@ -7599,9 +6392,6 @@ In this verse it appears that Arjuna is already satisfied with his understanding
 
 ### Bg 10.17
 
-> कथं विद्यामहं योगिंस्त्वां सदा परिचिन्तयन् ।
-> केषु केषु च भावेषु चिन्त्योऽसि भगवन्मया ॥१७॥
-
 > kathaṁ vidyām ahaṁ yogiṁs
 > tvāṁ sadā paricintayan
 > keṣu keṣu ca bhāveṣu
@@ -7614,9 +6404,6 @@ In this verse it appears that Arjuna is already satisfied with his understanding
 As it is stated in the previous chapter, the Supreme Personality of Godhead is covered by His *yoga-māyā.* Only surrendered souls and devotees can see Him. Now Arjuna is convinced that His friend, Kṛṣṇa, is the Supreme Godhead, but he wants to know the general process by which the all-pervading Lord can be understood by the common man. No common man, including the demons and atheists, can know Kṛṣṇa because He is guarded by His *yoga-māyā* energy. Again, these questions are asked by Arjuna for their benefit. The superior devotee is not only concerned for his own understanding, but for the understanding of all mankind. Out of his mercy, because he is a Vaiṣṇava, a devotee, Arjuna is opening the understanding for the common man as far as the all-pervasiveness of the Supreme is concerned. He addresses Kṛṣṇa specifically as *yogin* because Śrī Kṛṣṇa is the master of the *yoga-māyā* energy by which He is covered and uncovered to the common man. The common man who has no love for Kṛṣṇa cannot always think of Kṛṣṇa; therefore he has to think materially. Arjuna is considering the mode of thinking of the materialistic persons of this world. Because materialists cannot understand Kṛṣṇa spiritually, they are advised to concentrate the mind on physical things and try to see how Kṛṣṇa is manifested by physical representations.
 
 ### Bg 10.18
-
-> विस्तरेणात्मनो योगं विभूतिं च जनार्दन ।
-> भूयः कथय तृप्तिर्हि शृण्वतो नास्ति मेऽमृतम् ॥१८॥
 
 > vistareṇātmano yogaṁ
 > vibhūtiṁ ca janārdana
@@ -7638,10 +6425,6 @@ Now as far as *amṛtam,* nectar, is concerned, any narration or statement conce
 
 ### Bg 10.19
 
-> श्रीभगवानुवाच ।
-> हन्त ते कथयिष्यामि दिव्या ह्यात्मविभूतयः ।
-> प्राधान्यतः कुरुश्रेष्ठ नास्त्यन्तो विस्तरस्य मे ॥१९॥
-
 > śrī-bhagavān uvāca
 > hanta te kathayiṣyāmi
 > divyā hy ātma-vibhūtayaḥ
@@ -7657,9 +6440,6 @@ It is not possible to comprehend the greatness of Kṛṣṇa and His opulences.
 The impersonalist or the pantheist cannot understand the exceptional opulences of the Supreme Lord nor the manifestations of His divine energy. Both in the material world and in the spiritual world His energies are distributed in every variety of manifestation. Now Kṛṣṇa is describing what can be directly perceived by the common man; thus part of His variegated energy is described in this way.
 
 ### Bg 10.20
-
-> अहमात्मा गुडाकेश सर्वभूताशयस्थितः ।
-> अहमादिश्च मध्यं च भूतानामन्त एव च ॥२०॥
 
 > aham ātmā guḍākeśa
 > sarva-bhūtāśaya-sthitaḥ
@@ -7678,9 +6458,6 @@ The Supreme Personality of Godhead is existing as the Supersoul in all manifeste
 
 ### Bg 10.21
 
-> आदित्यानामहं विष्णुर्ज्योतिषां रविरंशुमान् ।
-> मरीचिर्मरुतामस्मि नक्षत्राणामहं शशी ॥२१॥
-
 > ādityānām ahaṁ viṣṇur
 > jyotiṣāṁ ravir aṁśumān
 > marīcir marutām asmi
@@ -7693,9 +6470,6 @@ The Supreme Personality of Godhead is existing as the Supersoul in all manifeste
 There are twelve Ādityas, of which Kṛṣṇa is the principal. And among all the luminaries twinkling in the sky, the sun is the chief, and in the *Brahma-saṁhitā* the sun is accepted as the glowing effulgence of the Supreme Lord and is considered to be one of His eyes. Marīci is the controlling deity of the heavenly spaces. Among the stars, the moon is most prominent at night, and thus the moon represents Kṛṣṇa.
 
 ### Bg 10.22
-
-> वेदानां सामवेदोऽस्मि देवानामस्मि वासवः ।
-> इन्द्रियाणां मनश्चास्मि भूतानामस्मि चेतना ॥२२॥
 
 > vedānāṁ sāma-vedo ’smi
 > devānām asmi vāsavaḥ
@@ -7710,9 +6484,6 @@ The difference between matter and spirit is that matter has no consciousness lik
 
 ### Bg 10.23
 
-> रुद्राणां शङ्करश्चास्मि वित्तेशो यक्षरक्षसाम् ।
-> वसूनां पावकश्चास्मि मेरुः शिखरिणामहम् ॥२३॥
-
 > rudrāṇāṁ śaṅkaraś cāsmi
 > vitteśo yakṣa-rakṣasām
 > vasūnāṁ pāvakaś cāsmi
@@ -7725,9 +6496,6 @@ The difference between matter and spirit is that matter has no consciousness lik
 There are eleven Rudras, of whom Śaṅkara, Lord Śiva, is predominant. He is the incarnation of the Supreme Lord in charge of the modes of ignorance in the universe. Among the demigods Kuvera is the chief treasurer, and he is a representation of the Supreme Lord. Meru is a mountain famed for its rich natural resources.
 
 ### Bg 10.24
-
-> पुरोधसां च मुख्यं मां विद्धि पार्थ बृहस्पतिम् ।
-> सेनानीनामहं स्कन्दः सरसामस्मि सागरः ॥२४॥
 
 > purodhasāṁ ca mukhyaṁ māṁ
 > viddhi pārtha bṛhaspatim
@@ -7742,9 +6510,6 @@ Indra is the chief demigod of the heavenly planets and is known as the king of t
 
 ### Bg 10.25
 
-> महर्षीणां भृगुरहं गिरामस्म्येकमक्षरम् ।
-> यज्ञानां जपयज्ञोऽस्मि स्थावराणां हिमालयः ॥२५॥
-
 > maharṣīṇāṁ bhṛgur ahaṁ
 > girām asmy ekam akṣaram
 > yajñānāṁ japa-yajño ’smi
@@ -7758,9 +6523,6 @@ Brahmā, the first living creature within the universe, created several sons for
 
 ### Bg 10.26
 
-> अश्वत्थः सर्ववृक्षाणां देवर्षीणां च नारदः ।
-> गन्धर्वाणां चित्ररथः सिद्धानां कपिलो मुनिः ॥२६॥
-
 > aśvatthaḥ sarva-vṛkṣāṇāṁ
 > devarṣīṇāṁ ca nāradaḥ
 > gandharvāṇāṁ citrarathaḥ
@@ -7773,9 +6535,6 @@ Brahmā, the first living creature within the universe, created several sons for
 The fig tree (*aśvattha*) is one of the most beautiful and highest trees, and people in India often worship it as one of their daily morning rituals. Amongst the demigods they also worship Nārada, who is considered the greatest devotee in the universe. Thus he is the representation of Kṛṣṇa as a devotee. The Gandharva planet is filled with entities who sing beautifully, and among them the best singer is Citraratha. Amongst the perpetually living entities, Kapila is considered an incarnation of Kṛṣṇa, and His philosophy is mentioned in the *Śrīmad-Bhāgavatam.* Later on another Kapila became famous, but his philosophy was atheistic. Thus there is a gulf of difference between them.
 
 ### Bg 10.27
-
-> उच्चैःश्रवसमश्वानां विद्धि माममृतोद्भवम् ।
-> ऐरावतं गजेन्द्राणां नराणां च नराधिपम् ॥२७॥
 
 > uccaiḥśravasam aśvānāṁ
 > viddhi mām amṛtodbhavam
@@ -7792,9 +6551,6 @@ Amongst the human beings, the king is the representative of Kṛṣṇa because 
 
 ### Bg 10.28
 
-> आयुधानामहं वज्रं धेनूनामस्मि कामधुक् ।
-> प्रजनश्चास्मि कन्दर्पः सर्पाणामस्मि वासुकिः ॥२८॥
-
 > āyudhānām ahaṁ vajraṁ
 > dhenūnām asmi kāmadhuk
 > prajanaś cāsmi kandarpaḥ
@@ -7808,9 +6564,6 @@ The thunderbolt, indeed a mighty weapon, represents Kṛṣṇa's power. In Kṛ
 
 ### Bg 10.29
 
-> अनन्तश्चास्मि नागानां वरुणो यादसामहम् ।
-> पितॄणामर्यमा चास्मि यमः संयमतामहम् ॥२९॥
-
 > anantaś cāsmi nāgānāṁ
 > varuṇo yādasām aham
 > pitṝṇām aryamā cāsmi
@@ -7823,9 +6576,6 @@ The thunderbolt, indeed a mighty weapon, represents Kṛṣṇa's power. In Kṛ
 Among the many celestial Naga serpents, Ananta is the greatest, as is Varuṇa among the aquatics. They both represent Kṛṣṇa. There is also a planet of trees presided over by Aryamā, who represents Kṛṣṇa. There are many living entities who give punishment to the miscreants, and among them Yama is the chief. Yama is situated in a planet near this earthly planet, and after death those who are very sinful are taken there, and Yama arranges different kinds of punishments for them.
 
 ### Bg 10.30
-
-> प्रह्लादश्चास्मि दैत्यानां कालः कलयतामहम् ।
-> मृगाणां च मृगेन्द्रोऽहं वैनतेयश्च पक्षिणाम् ॥३०॥
 
 > prahlādaś cāsmi daityānāṁ
 > kālaḥ kalayatām aham
@@ -7842,9 +6592,6 @@ There are many subduing principles, but time wears down all things in the materi
 
 ### Bg 10.31
 
-> पवनः पवतामस्मि रामः शस्त्रभृतामहम् ।
-> झषाणां मकरश्चास्मि स्रोतसामस्मि जाह्नवी ॥३१॥
-
 > pavanaḥ pavatām asmi
 > rāmaḥ śastra-bhṛtām aham
 > jhaṣāṇāṁ makaraś cāsmi
@@ -7857,9 +6604,6 @@ There are many subduing principles, but time wears down all things in the materi
 Of all the aquatics the shark is one of the biggest and is certainly the most dangerous to man. Thus the shark represents Kṛṣṇa. And of rivers, the greatest in India is the Mother Ganges. Lord Rāmacandra, of the *Rāmāyaṇa,* an incarnation of Kṛṣṇa, is the mightest of warriors.
 
 ### Bg 10.32
-
-> सर्गाणामादिरन्तश्च मध्यं चैवाहमर्जुन ।
-> अध्यात्मविद्या विद्यानां वादः प्रवदतामहम् ॥३२॥
 
 > sargāṇām ādir antaś ca
 > madhyaṁ caivāham arjuna
@@ -7875,9 +6619,6 @@ Among created manifestations, the total material elements are first created by M
 Regarding the spiritual science of the Self, there are many literatures, such as the four *Vedas,* the *Vedānta-sūtra* and the *Purāṇas,* the *Śrīmad-Bhāgavatam* and the *Gītā.* These are all representatives of Kṛṣṇa. Among logicians there are different stages of argument. The presentation of evidence is called *japa.* The attempt to defeat one another is called *vitaṇḍa,* and the final conclusion is called *vāda.* The conclusive truth, the end of all reasoning processes, is Kṛṣṇa.
 
 ### Bg 10.33
-
-> अक्षराणामकारोऽस्मि द्वन्द्वः सामासिकस्य च ।
-> अहमेवाक्षयः कालो धाताहं विश्वतोमुखः ॥३३॥
 
 > akṣarāṇām a-kāro 'smi
 > dvandvaḥ sāmāsikasya ca
@@ -7896,9 +6637,6 @@ Among the creators and living entities, Brahmā is the chief. The various Brahm�
 
 ### Bg 10.34
 
-> मृत्युः सर्वहरश्चाहमुद्भवश्च भविष्यताम् ।
-> कीर्तिः श्रीर्वाक्च नारीणां स्मृतिर्मेधा धृतिः क्षमा ॥३४॥
-
 > mṛtyuḥ sarva-haraś cāham
 > udbhavaś ca bhaviṣyatām
 > kīrtiḥ śrīr vāk ca nārīṇāṁ
@@ -7913,9 +6651,6 @@ As soon as a man is born, he dies at every moment. Thus death is devouring every
 The six opulences listed are considered to be feminine. If a woman possesses all of them or some of them she becomes glorious. Sanskrit is a perfect language and is therefore very glorious. After studying, if one can remember the subject matter, he is gifted with good memory, or *smṛti* One need not read many books on different subject matters; the ability to remember a few and quote them when necessary is also another opulence.
 
 ### Bg 10.35
-
-> बृहत्साम तथा साम्नां गायत्री छन्दसामहम् ।
-> मासानां मार्गशीर्षोऽहमृतूनां कुसुमाकरः ॥३५॥
 
 > bṛhat-sāma tathā sāmnāṁ
 > gāyatrī chandasām aham
@@ -7936,9 +6671,6 @@ The months of November and December are considered the best of all months becaus
 
 ### Bg 10.36
 
-> द्यूतं छलयतामस्मि तेजस्तेजस्विनामहम् ।
-> जयोऽस्मि व्यवसायोऽस्मि सत्त्वं सत्त्ववतामहम् ॥३६॥
-
 > dyūtaṁ chalayatām asmi
 > tejas tejasvinām aham
 > jayo 'smi vyavasāyo 'smi
@@ -7954,9 +6686,6 @@ Among the victorious, He is victory. He is the splendor of the splendid. Among e
 
 ### Bg 10.37
 
-> वृष्णीनां वासुदेवोऽस्मि पाण्डवानां धनञ्जयः ।
-> मुनीनामप्यहं व्यासः कवीनामुशना कविः ॥३७॥
-
 > vṛṣṇīnāṁ vāsudevo 'smi
 > pāṇḍavānāṁ dhanañjayaḥ
 > munīnām apy ahaṁ vyāsaḥ
@@ -7969,9 +6698,6 @@ Among the victorious, He is victory. He is the splendor of the splendid. Among e
 Kṛṣṇa is the original Supreme Personality of Godhead, and Vāsudeva is the immediate expansion of Kṛṣṇa. Both Lord Kṛṣṇa and Baladeva appear as the sons of Vasudeva. Amongst the sons of Pāṇḍu, Arjuna is famous and valiant. Indeed, he is the best of men and therefore represents Kṛṣṇa. Among the *munis,* or learned men conversant in Vedic knowledge, Vyāsa is the greatest because he explained Vedic knowledge in many different ways for the understanding of the common mass of people in this age of Kali. And Vyāsa is also known as an incarnation of Kṛṣṇa; therefore Vyāsa also represents Kṛṣṇa. *Kavis* are those who are capable of thinking thoroughly on any subject matter. Among the *kavis,* Uśanā was the spiritual master of the demons; he was extremely intelligent, far-seeing, political and spiritual in every way. Thus Uśanā is another representative of the opulence of Kṛṣṇa.
 
 ### Bg 10.38
-
-> दण्डो दमयतामस्मि नीतिरस्मि जिगीषताम् ।
-> मौनं चैवास्मि गुह्यानां ज्ञानं ज्ञानवतामहम् ॥३८॥
 
 > daṇḍo damayatām asmi
 > nītir asmi jigīṣatām
@@ -7986,9 +6712,6 @@ There are many suppressing agents, of which the most important are those that cu
 
 ### Bg 10.39
 
-> यच्चापि सर्वभूतानां बीजं तदहमर्जुन ।
-> न तदस्ति विना यत्स्यान्मया भूतं चराचरम् ॥३९॥
-
 > yac cāpi sarva-bhūtānāṁ
 > bījaṁ tad aham arjuna
 > na tad asti vinā yat syān
@@ -8001,9 +6724,6 @@ There are many suppressing agents, of which the most important are those that cu
 Everything has a cause, and that cause or seed of manifestation is Kṛṣṇa. Without Kṛṣṇa's energy, nothing can exist; therefore He is called omnipotent. Without His potency, neither the movable nor the unmovable can exist. Whatever existence is not founded on the energy of Kṛṣṇa is called *māyā,* that which is not.
 
 ### Bg 10.40
-
-> नान्तोऽस्ति मम दिव्यानां विभूतीनां परन्तप ।
-> एष तूद्देशतः प्रोक्तो विभूतेर्विस्तरो मया ॥४०॥
 
 > nānto 'sti mama divyānāṁ
 > vibhūtīnāṁ parantapa
@@ -8018,9 +6738,6 @@ As stated in the Vedic literature, although the opulences and energies of the Su
 
 ### Bg 10.41
 
-> यद्यद्विभूतिमत्सत्त्वं श्रीमदूर्जितमेव वा ।
-> तत्तदेवावगच्छ त्वं मम तेजोंऽशसम्भवम् ॥४१॥
-
 > yad yad vibhūtimat sattvaṁ
 > śrīmad ūrjitam eva vā
 > tat tad evāvagaccha tvaṁ
@@ -8033,9 +6750,6 @@ As stated in the Vedic literature, although the opulences and energies of the Su
 Any glorious or beautiful existence should be understood to be but a fragmental manifestation of Kṛṣṇa's opulence, whether it be in the spiritual or material world. Anything extraordinarily opulent should be considered to represent Kṛṣṇa's opulence.
 
 ### Bg 10.42
-
-> अथवा बहुनैतेन किं ज्ञातेन तवार्जुन ।
-> विष्टभ्याहमिदं कृत्स्नमेकांशेन स्थितो जगत् ॥४२॥
 
 > atha vā bahunaitena
 > kiṁ jñātena tavārjuna
@@ -8056,10 +6770,6 @@ Worship of demigods is discouraged herein because even the greatest demigods lik
 
 ### Bg 11.1
 
-> अर्जुन उवाच ।
-> मदनुग्रहाय परमं गुह्यमध्यात्मसंज्ञितम् ।
-> यत्त्वयोक्तं वचस्तेन मोहोऽयं विगतो मम ॥१॥
-
 > arjuna uvāca
 > mad-anugrahāya paramaṁ
 > guhyam adhyātma-saṁjñitam
@@ -8076,9 +6786,6 @@ Now, as far as Arjuna is concerned, he says that his illusion is over. This mean
 
 ### Bg 11.2
 
-> भवाप्ययौ हि भूतानां श्रुतौ विस्तरशो मया ।
-> त्वत्तः कमलपत्राक्ष माहात्म्यमपि चाव्ययम् ॥२॥
-
 > bhavāpyayau hi bhūtānāṁ
 > śrutau vistaraśo mayā
 > tvattaḥ kamala-patrākṣa
@@ -8091,9 +6798,6 @@ Now, as far as Arjuna is concerned, he says that his illusion is over. This mean
 Arjuna addresses Lord Kṛṣṇa as "lotus-eyed" (Kṛṣṇa's eyes appear just like the petals of a lotus flower) out of his joy, for Kṛṣṇa has assured him, in the last verse of the previous chapter, that He sustains the entire universe with just a fragment of Himself. He is the source of everything in this material manifestation, and Arjuna has heard of this from the Lord in detail. Arjuna further knows that in spite of His being the source of all appearances and disappearances, He is aloof from them. His personality is not lost, although He is all-pervading. That is the inconceivable opulence of Kṛṣṇa which Arjuna admits that he has thoroughly understood.
 
 ### Bg 11.3
-
-> एवमेतद्यथात्थ त्वमात्मानं परमेश्वर ।
-> द्रष्टुमिच्छामि ते रूपमैश्वरं पुरुषोत्तम ॥३॥
 
 > evam etad yathāttha tvam
 > ātmānaṁ parameśvara
@@ -8108,9 +6812,6 @@ The Lord said that because He entered into the material universe by His personal
 
 ### Bg 11.4
 
-> मन्यसे यदि तच्छक्यं मया द्रष्टुमिति प्रभो ।
-> योगेश्वर ततो मे त्वं दर्शयात्मानमव्ययम् ॥४॥
-
 > manyase yadi tac chakyaṁ
 > mayā draṣṭum iti prabho
 > yogeśvara tato me tvaṁ
@@ -8123,10 +6824,6 @@ The Lord said that because He entered into the material universe by His personal
 It is said that one can neither see, hear, understand nor perceive the Supreme Lord, Kṛṣṇa, by the material senses. But if one is engaged in loving transcendental service to the Lord from the beginning, then one can see the Lord by revelation. Every living entity is only a spiritual spark; therefore it is not possible to see or to understand the Supreme Lord. Arjuna, as a devotee, does not depend on his speculative strength; rather, he admits his limitations as a living entity and acknowledges Kṛṣṇa's inestimable position. Arjuna could understand that for a living entity it is not possible to understand the unlimited infinite. If the infinite reveals Himself, then it is possible to understand the nature of the infinite by the grace of the infinite. The word *yogeśvara* is also very significant here because the Lord has inconceivable power. If He likes, He can reveal Himself by His grace, although He is unlimited. Therefore Arjuna pleads for the inconceivable grace of Kṛṣṇa. He does not give Kṛṣṇa orders. Kṛṣṇa is not obliged to reveal Himself to anyone unless one surrenders fully in Kṛṣṇa consciousness and engages in devotional service. Thus it is not possible for persons who depend on the strength of their mental speculations to see Kṛṣṇa.
 
 ### Bg 11.5
-
-> श्रीभगवानुवाच ।
-> पश्य मे पार्थ रूपाणि शतशोऽथ सहस्रशः ।
-> नानाविधानि दिव्यानि नानावर्णाकृतीनि च ॥५॥
 
 > śrī-bhagavān uvāca
 > paśya me pārtha rūpāṇi
@@ -8142,9 +6839,6 @@ Arjuna wanted to see Kṛṣṇa in His universal form, which, although a transc
 
 ### Bg 11.6
 
-> पश्यादित्यान्वसून्रुद्रानश्विनौ मरुतस्तथा ।
-> बहून्यदृष्टपूर्वाणि पश्याश्चर्याणि भारत ॥६॥
-
 > paśyādityān vasūn rudrān
 > aśvinau marutas tathā
 > bahūny adṛṣṭa-pūrvāṇi
@@ -8158,9 +6852,6 @@ Even though Arjuna was a personal friend of Kṛṣṇa and the most advanced of
 
 ### Bg 11.7
 
-> इहैकस्थं जगत्कृत्स्नं पश्याद्य सचराचरम् ।
-> मम देहे गुडाकेश यच्चान्यद् द्रष्टुमिच्छसि ॥७॥
-
 > ihaika-sthaṁ jagat kṛtsnaṁ
 > paśyādya sa-carācaram
 > mama dehe guḍākeśa
@@ -8173,9 +6864,6 @@ Even though Arjuna was a personal friend of Kṛṣṇa and the most advanced of
 No one can see the entire universe sitting in one place. Even the most advanced scientist cannot see what is going on in other parts of the universe. Kṛṣṇa gives him the power to see anything he wants to see, past, present and future. Thus by the mercy of Kṛṣṇa, Arjuna is able to see everything.
 
 ### Bg 11.8
-
-> न तु मां शक्यसे द्रष्टुमनेनैव स्वचक्षुषा ।
-> दिव्यं ददामि ते चक्षुः पश्य मे योगमैश्वरम् ॥८॥
 
 > na tu māṁ śakyase draṣṭum
 > anenaiva sva-cakṣuṣā
@@ -8194,10 +6882,6 @@ The Lord gave Arjuna the necessary power to see His universal form because He kn
 
 ### Bg 11.9
 
-> सञ्जय उवाच ।
-> एवमुक्त्वा ततो राजन्महायोगेश्वरो हरिः ।
-> दर्शयामास पार्थाय परमं रूपमैश्वरम् ॥९॥
-
 > sañjaya uvāca
 > evam uktvā tato rājan
 > mahā-yogeśvaro hariḥ
@@ -8209,11 +6893,6 @@ The Lord gave Arjuna the necessary power to see His universal form because He kn
 **Sañjaya said: O King, speaking thus, the Supreme, the Lord of all mystic power, the Personality of Godhead, displayed His universal form to Arjuna.**
 
 ### Bg 11.10-11
-
-> अनेकवक्त्रनयनमनेकाद्भुतदर्शनम् ।
-> अनेकदिव्याभरणं दिव्यानेकोद्यतायुधम् ॥१०॥
-> दिव्यमाल्याम्बरधरं दिव्यगन्धानुलेपनम् ।
-> सर्वाश्चर्यमयं देवमनन्तं विश्वतोमुखम् ॥११॥
 
 > aneka-vaktra-nayanam
 > anekādbhuta-darśanam
@@ -8233,9 +6912,6 @@ These two verses indicate that there is no limit to the hands, mouths, legs, etc
 
 ### Bg 11.12
 
-> दिवि सूर्यसहस्रस्य भवेद्युगपदुत्थिता ।
-> यदि भाः सदृशी सा स्याद्भासस्तस्य महात्मनः ॥१२॥
-
 > divi sūrya-sahasrasya
 > bhaved yugapad utthitā
 > yadi bhāḥ sadṛśī sā syād
@@ -8249,9 +6925,6 @@ What Arjuna saw was indescribable, yet Sañjaya is trying to give a mental pictu
 
 ### Bg 11.13
 
-> तत्रैकस्थं जगत्कृत्स्नं प्रविभक्तमनेकधा ।
-> अपश्यद्देवदेवस्य शरीरे पाण्डवस्तदा ॥१३॥
-
 > tatraika-sthaṁ jagat kṛtsnaṁ
 > pravibhaktam anekadhā
 > apaśyad deva-devasya
@@ -8264,9 +6937,6 @@ What Arjuna saw was indescribable, yet Sañjaya is trying to give a mental pictu
 The word *tatra* (there) is very significant. It indicates that both Arjuna and Kṛṣṇa were sitting on the chariot when Arjuna saw the universal form. Others on the battlefield could not see this form because Kṛṣṇa gave the vision only to Arjuna. Arjuna could see in the body of Kṛṣṇa many thousands of universes. As we learn from Vedic scriptures, there are many universes and many planets. Some of them are made of earth, some are made of gold, some are made of jewels, some are very great, some are not so great, etc. Sitting on his chariot, Arjuna could see all these universes. But no one could understand what was going on between Arjuna and Kṛṣṇa.
 
 ### Bg 11.14
-
-> ततः स विस्मयाविष्टो हृष्टरोमा धनञ्जयः ।
-> प्रणम्य शिरसा देवं कृताञ्जलिरभाषत ॥१४॥
 
 > tataḥ sa vismayāviṣṭo
 > hṛṣṭa-romā dhanañjayaḥ
@@ -8283,12 +6953,6 @@ It is said that Arjuna was inspired by the relationship of wonder, and in that w
 
 ### Bg 11.15
 
-> अर्जुन उवाच ।
-> पश्यामि देवांस्तव देव देहे
-> सर्वांस्तथा भूतविशेषसङ्घान् ।
-> ब्रह्माणमीशं कमलासनस्थ-
-> मृषींश्च सर्वानुरगांश्च दिव्यान् ॥१५॥
-
 > arjuna uvāca
 > paśyāmi devāṁs tava deva dehe
 > sarvāṁs tathā bhūta-viśeṣa-saṅghān
@@ -8303,11 +6967,6 @@ Arjuna sees everything in the universe; therefore he sees Brahmā, who is the fi
 
 ### Bg 11.16
 
-> अनेकबाहूदरवक्त्रनेत्रं
-> पश्यामि त्वां सर्वतोऽनन्तरूपम् ।
-> नान्तं न मध्यं न पुनस्तवादिं
-> पश्यामि विश्वेश्वर  विश्वरूप ॥१६॥
-
 > aneka-bāhūdara-vaktra-netraṁ
 > paśyāmi tvāṁ sarvato 'nanta-rūpam
 > nāntaṁ na madhyaṁ na punas tavādiṁ
@@ -8321,11 +6980,6 @@ Kṛṣṇa is the Supreme Personality of Godhead and is unlimited; thus through
 
 ### Bg 11.17
 
-> किरीटिनं गदिनं चक्रिणं च
-> तेजोराशिं सर्वतो दीप्तिमन्तम् ।
-> पश्यामि त्वां दुर्निरीक्ष्यं समन्ताद्
-> दीप्तानलार्कद्युतिमप्रमेयम् ॥१७॥
-
 > kirīṭinaṁ gadinaṁ cakriṇaṁ ca
 > tejo-rāśiṁ sarvato dīptimantam
 > paśyāmi tvāṁ durnirīkṣyaṁ samantād
@@ -8337,11 +6991,6 @@ Kṛṣṇa is the Supreme Personality of Godhead and is unlimited; thus through
 
 ### Bg 11.18
 
-> त्वमक्षरं परमं वेदितव्यं
-> त्वमस्य विश्वस्य परं निधानम् ।
-> त्वमव्ययः शाश्वतधर्मगोप्ता
-> सनातनस्त्वं पुरुषो मतो मे ॥१८॥
-
 > tvam akṣaraṁ paramaṁ veditavyaṁ
 > tvam asya viśvasya paraṁ nidhānam
 > tvam avyayaḥ śāśvata-dharma-goptā
@@ -8352,11 +7001,6 @@ Kṛṣṇa is the Supreme Personality of Godhead and is unlimited; thus through
 **You are the supreme primal objective; You are the best in all the universes; You are inexhaustible, and You are the oldest; You are the maintainer of religion, the eternal Personality of Godhead.**
 
 ### Bg 11.19
-
-> अनादिमध्यान्तमनन्तवीर्य-
-> मनन्तबाहुं शशिसूर्यनेत्रम् ।
-> पश्यामि त्वां दीप्तहुताशवक्त्रं
-> स्वतेजसा विश्वमिदं तपन्तम् ॥१९॥
 
 > anādi-madhyāntam ananta-vīryam
 > ananta-bāhuṁ śaśi-sūrya-netram
@@ -8371,11 +7015,6 @@ There is no limit to the extent of the six opulences of the Supreme Personality 
 
 ### Bg 11.20
 
-> द्यावापृथिव्योरिदमन्तरं हि
-> व्याप्तं त्वयैकेन दिशश्च सर्वाः ।
-> दृष्ट्वाद्भुतं रूपमुग्रं तवेदं
-> लोकत्रयं प्रव्यथितं महात्मन् ॥२०॥
-
 > dyāv ā-pṛthivyor idam antaraṁ hi
 > vyāptaṁ tvayaikena diśaś ca sarvāḥ
 > dṛṣṭvādbhutaṁ rūpam ugraṁ tavedaṁ
@@ -8388,11 +7027,6 @@ There is no limit to the extent of the six opulences of the Supreme Personality 
 *Dyāv āpṛthivyoḥ* (the space between heaven and earth) and *lokatrayam* (three worlds) are significant words in this verse because it appears that not only Arjuna saw this universal form of the Lord, but others in other planetary systems also saw it. The vision was not a dream. All who were spiritually awake with the divine vision saw it.
 
 ### Bg 11.21
-
-> अमी हि त्वां सुरसङ्घा विशन्ति
-> केचिद्भीताः प्राञ्जलयो गृणन्ति ।
-> स्वस्तीत्युक्त्वा महर्षिसिद्धसङ्घाः
-> स्तुवन्ति त्वां स्तुतिभिः पुष्कलाभिः ॥२१॥
 
 > amī hi tvāṁ sura-saṅghā viśanti
 > kecid bhītāḥ prāñjalayo gṛṇanti
@@ -8407,11 +7041,6 @@ The demigods in all the planetary systems feared the terrific manifestation of t
 
 ### Bg 11.22
 
-> रुद्रादित्या वसवो ये च साध्या
-> विश्वेऽश्विनौ मरुतश्चोष्मपाश्च ।
-> गन्धर्वयक्षासुरसिद्धसङ्घा
-> वीक्षन्ते त्वां विस्मिताश्चैव सर्वे ॥२२॥
-
 > rudrādityā vasavo ye ca sādhyā
 > viśve 'śvinau marutaś coṣmapāś ca
 > gandharva-yakṣāsura-siddha-saṅghā
@@ -8422,11 +7051,6 @@ The demigods in all the planetary systems feared the terrific manifestation of t
 **The different manifestations of Lord Śiva, the Ādityas, the Vasus, the Sādhyas, the Viśvadevas, the two Aśvins, the Māruts, the forefathers and the Gandharvas, the Yakṣas, Asuras, and all perfected demigods are beholding You in wonder.**
 
 ### Bg 11.23
-
-> रूपं महत्ते बहुवक्त्रनेत्रं
-> महाबाहो बहुबाहूरुपादम् ।
-> बहूदरं बहुदंष्ट्राकरालं
-> दृष्ट्वा लोकाः प्रव्यथितास्तथाहम् ॥२३॥
 
 > rūpaṁ mahat te bahu-vaktra-netraṁ
 > mahā-bāho bahu-bāhūru-pādam
@@ -8439,11 +7063,6 @@ The demigods in all the planetary systems feared the terrific manifestation of t
 
 ### Bg 11.24
 
-> नभःस्पृशं दीप्तमनेकवर्णं
-> व्यात्ताननं दीप्तविशालनेत्रम् ।
-> दृष्ट्वा हि त्वां प्रव्यथितान्तरात्मा
-> धृतिं न विन्दामि शमं च विष्णो ॥२४॥
-
 > nabhaḥ-spṛśaṁ dīptam aneka-varṇaṁ
 > vyāttānanaṁ dīpta-viśāla-netram
 > dṛṣṭvā hi tvāṁ pravyathitāntar-ātmā
@@ -8455,11 +7074,6 @@ The demigods in all the planetary systems feared the terrific manifestation of t
 
 ### Bg 11.25
 
-> दंष्ट्राकरालानि च ते मुखानि
-> दृष्ट्वैव कालानलसन्निभानि ।
-> दिशो न जाने न लभे च शर्म
-> प्रसीद देवेश जगन्निवास ॥२५॥
-
 > daṁṣṭrā-karālāni ca te mukhāni
 > dṛṣṭvaiva kālānala-sannibhāni
 > diśo na jāne na labhe ca śarma
@@ -8470,15 +7084,6 @@ The demigods in all the planetary systems feared the terrific manifestation of t
 **O Lord of lords, O refuge of the worlds, please be gracious to me. I cannot keep my balance seeing thus Your blazing deathlike faces and awful teeth. In all directions I am bewildered.**
 
 ### Bg 11.26-27
-
-> अमी च त्वां धृतराष्ट्रस्य पुत्राः
-> सर्वे सहैवावनिपालसङ्घैः ।
-> भीष्मो द्रोणः सूतपुत्रस्तथासौ
-> सहास्मदीयैरपि योधमुख्यैः ॥२६॥
-> वक्त्राणि ते त्वरमाणा विशन्ति
-> दंष्ट्राकरालानि भयानकानि ।
-> केचिद्विलग्ना दशनान्तरेषु
-> सन्दृश्यन्ते चूर्णितैरुत्तमाङ्गैः ॥२७॥
 
 > amī ca tvāṁ dhṛtarāṣṭrasya putrāḥ
 > sarve sahaivāvani-pāla-saṅghaiḥ
@@ -8498,11 +7103,6 @@ In a previous verse the Lord promised to show Arjuna things he would by very int
 
 ### Bg 11.28
 
-> यथा नदीनां बहवोऽम्बुवेगाः
-> समुद्रमेवाभिमुखा द्रवन्ति ।
-> तथा तवामी नरलोकवीरा
-> विशन्ति वक्त्राण्यभिविज्वलन्ति ॥२८॥
-
 > yathā nadīnāṁ bahavo 'mbu-vegāḥ
 > samudram evābhimukhā dravanti
 > tathā tavāmī nara-loka-vīrā
@@ -8513,11 +7113,6 @@ In a previous verse the Lord promised to show Arjuna things he would by very int
 **As the rivers flow into the sea, so all these great warriors enter Your blazing mouths and perish.**
 
 ### Bg 11.29
-
-> यथा प्रदीप्तं ज्वलनं पतङ्गा
-> विशन्ति नाशाय समृद्धवेगाः ।
-> तथैव नाशाय विशन्ति लोकास्-
-> तवापि वक्त्राणि समृद्धवेगाः ॥२९॥
 
 > yathā pradīptaṁ jvalanaṁ pataṅgā
 > viśanti nāśāya samṛddha-vegāḥ
@@ -8530,11 +7125,6 @@ In a previous verse the Lord promised to show Arjuna things he would by very int
 
 ### Bg 11.30
 
-> लेलिह्यसे ग्रसमानः समन्ताल्-
-> लोकान्समग्रान्वदनैर्ज्वलद्भिः ।
-> तेजोभिरापूर्य जगत्समग्रं
-> भासस्तवोग्राः प्रतपन्ति विष्णो ॥३०॥
-
 > lelihyase grasamānaḥ samantāl
 > lokān samagrān vadanair jvaladbhiḥ
 > tejobhir āpūrya jagat samagraṁ
@@ -8546,11 +7136,6 @@ In a previous verse the Lord promised to show Arjuna things he would by very int
 
 ### Bg 11.31
 
-> आख्याहि मे को भवानुग्ररूपो
-> नमोऽस्तु ते देववर प्रसीद ।
-> विज्ञातुमिच्छामि भवन्तमाद्यं
-> न हि प्रजानामि तव प्रवृत्तिम् ॥३१॥
-
 > ākhyāhi me ko bhavān ugra-rūpo
 > namo 'stu te deva-vara prasīda
 > vijñātum icchāmi bhavantam ādyaṁ
@@ -8561,12 +7146,6 @@ In a previous verse the Lord promised to show Arjuna things he would by very int
 **O Lord of lords, so fierce of form, please tell me who You are. I offer my obeisances unto You; please be gracious to me. I do not know what Your mission is, and I desire to hear of it.**
 
 ### Bg 11.32
-
-> श्रीभगवानुवाच ।
-> कालोऽस्मि लोकक्षयकृत्प्रवृद्धो
-> लोकान्समाहर्तुमिह प्रवृत्तः ।
-> ऋतेऽपि त्वां न भविष्यन्ति सर्वे
-> येऽवस्थिताः प्रत्यनीकेषु योधाः ॥३२॥
 
 > śrī-bhagavān uvāca
 > kālo 'smi loka-kṣaya-kṛt pravṛddho
@@ -8584,11 +7163,6 @@ Arjuna was not in favor of the fight, and he thought it was better not to fight;
 
 ### Bg 11.33
 
-> तस्मात्त्वमुत्तिष्ठ यशो लभस्व
-> जित्वा शत्रून् भुङ्क्ष्व राज्यं समृद्धम् ।
-> मयैवैते निहताः पूर्वमेव
-> निमित्तमात्रं भव सव्यसाचिन् ॥३३॥
-
 > tasmāt tvam uttiṣṭha yaśo labhasva
 > jitvā śatrūn bhuṅkṣva rājyaṁ samṛddham
 > mayaivaite nihatāḥ pūrvam eva
@@ -8602,11 +7176,6 @@ Arjuna was not in favor of the fight, and he thought it was better not to fight;
 
 ### Bg 11.34
 
-> द्रोणं च भीष्मं च जयद्रथं च
-> कर्णं तथान्यानपि योधवीरान् ।
-> मया हतांस्त्वं जहि मा व्यथिष्ठा
-> युध्यस्व जेतासि रणे सपत्नान् ॥३४॥
-
 > droṇaṁ ca bhīṣmaṁ ca jayadrathaṁ ca
 > karṇaṁ tathānyān api yodha-vīrān
 > mayā hatāṁs tvaṁ jahi mā vyathiṣṭhā
@@ -8619,12 +7188,6 @@ Arjuna was not in favor of the fight, and he thought it was better not to fight;
 Every plan is made by the Supreme Personality of Godhead, but He is so kind and merciful to His devotees that He wants to give the credit to His devotees who carry out His plan according to His desire. Life should therefore move in such a way that everyone acts in Kṛṣṇa consciousness and understands the Supreme Personality of Godhead through the medium of a spiritual master. The plans of the Supreme Personality of Godhead are understood by His mercy, and the plans of the devotees are as good as His plans. One should follow such plans and be victorious in the struggle for existence.
 
 ### Bg 11.35
-
-> सञ्जय उवाच ।
-> एतच्छ्रुत्वा वचनं केशवस्य
-> कृताञ्जलिर्वेपमानः किरीटी ।
-> नमस्कृत्वा भूय एवाह कृष्णं
-> सगद्गदं भीतभीतः प्रणम्य ॥३५॥
 
 > sañjaya uvāca
 > etac chrutvā vacanaṁ keśavasya
@@ -8640,12 +7203,6 @@ As we have already explained, because of the situation created by the universal 
 
 ### Bg 11.36
 
-> अर्जुन उवाच ।
-> स्थाने हृषीकेश तव प्रकीर्त्या
-> जगत्प्रहृष्यत्यनुरज्यते च ।
-> रक्षांसि भीतानि दिशो द्रवन्ति
-> सर्वे नमस्यन्ति च सिद्धसङ्घाः ॥३६॥
-
 > arjuna uvāca
 > sthāne hṛṣīkeśa tava prakīrtyā
 > jagat prahṛṣyaty anurajyate ca
@@ -8660,11 +7217,6 @@ Arjuna, after hearing from Kṛṣṇa about the outcome of the Battle of Kuruk�
 
 ### Bg 11.37
 
-> कस्माच्च ते न नमेरन्महात्मन्
-> गरीयसे ब्रह्मणोऽप्यादिकर्त्रे ।
-> अनन्त देवेश जगन्निवास
-> त्वमक्षरं सदसत्तत्परं यत् ॥३७॥
-
 > kasmāc ca te na nameran mahātman
 > garīyase brahmaṇo 'py ādi-kartre
 > ananta deveśa jagan-nivāsa
@@ -8677,11 +7229,6 @@ Arjuna, after hearing from Kṛṣṇa about the outcome of the Battle of Kuruk�
 By this offering of obeisances, Arjuna indicates that Kṛṣṇa is worshipable by everyone. He is all-pervading, and He is the Soul of every soul. Arjuna is addressing Kṛṣṇa as *mahātmā,* which means that He is most magnanimous and unlimited. *Ananta* indicates that there is nothing which is not covered by the influence and energy of the Supreme Lord, and *deveśa* means that He is the controller of all demigods and is above them all. He is the center of the whole universe. Arjuna also thought that it was fitting that all the perfect living entities and all powerful demigods offer their respectful obeisances unto Him because no one is greater than Him. He especially mentions that Kṛṣṇa is greater than Brahmā because Brahmā is created by Him. Brahmā is born out of the lotus stem grown from the navel abdomen of Garbhodakaśāyī Viṣṇu, who is Kṛṣṇa's plenary expansion; therefore Brahmā and Lord Śiva, who is born of Brahmā, and all other demigods must offer their respectful obeisances. Thus the Lord is respected by Lord Śiva and Brahmā and similar other demigods. The word *akṣaram* is very significant because this material creation is subject to destruction, but the Lord is above this material creation. He is the cause of all causes, and being so, He is superior to all the conditioned souls within this material nature as well as the material cosmic manifestation itself. He is therefore the all-great Supreme.
 
 ### Bg 11.38
-
-> त्वमादिदेवः पुरुषः पुराणस्-
-> त्वमस्य विश्वस्य परं निधानम् ।
-> वेत्तासि वेद्यं च परं च धाम
-> त्वया ततं विश्वमनन्तरूप ॥३८॥
 
 > tvam ādi-devaḥ puruṣaḥ purāṇas
 > tvam asya viśvasya paraṁ nidhānam
@@ -8696,11 +7243,6 @@ Everything is resting on the Supreme Personality of Godhead; therefore He is the
 
 ### Bg 11.39
 
-> वायुर्यमोऽग्निर्वरुणः शशाङ्कः
-> प्रजापतिस्त्वं प्रपितामहश्च ।
-> नमो नमस्तेऽस्तु सहस्रकृत्वः
-> पुनश्च भूयोऽपि नमो नमस्ते ॥३९॥
-
 > vāyur yamo 'gnir varuṇaḥ śaśāṅkaḥ
 > prajāpatis tvaṁ prapitāmahaś ca
 > namo namas te 'stu sahasra-kṛtvaḥ
@@ -8714,11 +7256,6 @@ The Lord is addressed here as air because the air is the most important represen
 
 ### Bg 11.40
 
-> नमः पुरस्तादथ पृष्ठतस्ते
-> नमोऽस्तु ते सर्वत एव सर्व ।
-> अनन्तवीर्यामितविक्रमस्त्वं
-> सर्वं समाप्नोषि ततोऽसि सर्वः ॥४०॥
-
 > namaḥ purastād atha pṛṣṭhatas te
 > namo 'stu te sarvata eva sarva
 > ananta-vīryāmita-vikramas tvaṁ
@@ -8731,15 +7268,6 @@ The Lord is addressed here as air because the air is the most important represen
 Out of loving ecstasy for Kṛṣṇa, his friend, Arjuna is offering his respects from all sides. He is accepting that He is the master of all potencies and all prowess and far superior to all the great warriors assembled on the battlefield. It is said in the *Viṣṇu Purāṇa: yo 'yaṁ tavāgato deva-samīpaṁ devatā-gaṇaḥ sa tvam eva jagat-sraṣṭā yataḥ sarva-gato bhavān.* "Whoever comes before You, even if he be a demigod, is created by You, O Supreme Personality of Godhead."
 
 ### Bg 11.41-42
-
-> सखेति मत्वा प्रसभं यदुक्तं
-> हे कृष्ण हे यादव हे सखेति ।
-> अजानता महिमानं तवेदं
-> मया प्रमादात्प्रणयेन वापि ॥४१॥
-> यच्चावहासार्थमसत्कृतोऽसि
-> विहारशय्यासनभोजनेषु ।
-> एकोऽथवाप्यच्युत तत्समक्षं
-> तत्क्षामये त्वामहमप्रमेयम् ॥४२॥
 
 > sakheti matvā prasabhaṁ yad uktaṁ
 > he kṛṣṇa he yādava he sakheti
@@ -8758,11 +7286,6 @@ Out of loving ecstasy for Kṛṣṇa, his friend, Arjuna is offering his respec
 Although Kṛṣṇa is manifested before Arjuna in His universal form, Arjuna remembers his friendly relationship with Kṛṣṇa and is therefore asking pardon and requesting Him to excuse him for the many informal gestures which arise out of friendship. He is admitting that formerly he did not know that Kṛṣṇa could assume such a universal form, although He explained it as his intimate friend. Arjuna did not know how many times he may have dishonored Him by addressing Him as "O my friend, O Kṛṣṇa, O Yādava," etc., without acknowledging His opulence. But Kṛṣṇa is so kind and merciful that in spite of such opulence He played with Arjuna as a friend. Such is the transcendental loving reciprocation between the devotee and the Lord. The relationship between the living entity and Kṛṣṇa is fixed eternally; it cannot be forgotten, as we can see from the behavior of Arjuna. Although Arjuna has seen the opulence in the universal form, he could not forget his friendly relationship with Kṛṣṇa.
 
 ### Bg 11.43
-
-> पितासि लोकस्य चराचरस्य
-> त्वमस्य पूज्यश्च गुरुर्गरीयान् ।
-> न त्वत्समोऽस्त्यभ्यधिकः कुतोऽन्यो
-> लोकत्रयेऽप्यप्रतिमप्रभाव ॥४३॥
 
 > pitāsi lokasya carācarasya
 > tvam asya pūjyaś ca gurur garīyān
@@ -8783,11 +7306,6 @@ Whoever knows His transcendental body, activities and perfection, after quitting
 
 ### Bg 11.44
 
-> तस्मात्प्रणम्य प्रणिधाय कायं
-> प्रसादये त्वामहमीशमीड्यम् ।
-> पितेव पुत्रस्य सखेव सख्युः
-> प्रियः प्रियायार्हसि देव सोढुम् ॥४४॥
-
 > tasmāt praṇamya praṇidhāya kāyaṁ
 > prasādaye tvām aham īśam īḍyam
 > piteva putrasya sakheva sakhyuḥ
@@ -8800,11 +7318,6 @@ Whoever knows His transcendental body, activities and perfection, after quitting
 Kṛṣṇa's devotees relate to Kṛṣṇa in various relationships; one might treat Kṛṣṇa as a son, one might treat Kṛṣṇa as a husband, as a friend, as a master, etc. Kṛṣṇa and Arjuna are related in friendship. As the father tolerates, or the husband or master tolerates, so Kṛṣṇa tolerates.
 
 ### Bg 11.45
-
-> अदृष्टपूर्वं हृषितोऽस्मि दृष्ट्वा
-> भयेन च प्रव्यथितं मनो मे ।
-> तदेव मे दर्शय देव रूपं
-> प्रसीद देवेश जगन्निवास ॥४५॥
 
 > adṛṣṭa-pūrvaṁ hṛṣito 'smi dṛṣṭvā
 > bhayena ca pravyathitaṁ mano me
@@ -8819,11 +7332,6 @@ Arjuna is always in confidence with Kṛṣṇa because he is a very dear friend
 
 ### Bg 11.46
 
-> किरीटिनं गदिनं चक्रहस्तं
-> इच्छामि त्वां द्रष्टुमहं तथैव ।
-> तेनैव रूपेण चतुर्भुजेन
-> सहस्रबाहो भव विश्वमूर्ते ॥४६॥
-
 > kirīṭinaṁ gadinaṁ cakra-hastam
 > icchāmi tvāṁ draṣṭum ahaṁ tathaiva
 > tenaiva rūpeṇa catur-bhujena
@@ -8836,12 +7344,6 @@ Arjuna is always in confidence with Kṛṣṇa because he is a very dear friend
 In the *Brahmā-saṁhitā* it is stated that the Lord is eternally situated in hundreds and thousands of forms, and the main forms are those like Rāma, Nṛsiṁha, Nārāyaṇa, etc. There are innumerable forms. But Arjuna knew that Kṛṣṇa is the original Personality of Godhead assuming His temporary universal form. He is now asking to see the form of Nārāyaṇa, a spiritual form. This verse establishes without any doubt the statement of the *Śrīmad-Bhāgavatam* that Kṛṣṇa is the original Personality of Godhead and all other features originate from Him. He is not different from His plenary expansions, and He is God in any of His innumerable forms. In all of these forms He is fresh like a young man. That is the constant feature of the Supreme Personality of Godhead. One who knows Kṛṣṇa at once becomes free from all contamination of the material world.
 
 ### Bg 11.47
-
-> श्रीभगवानुवाच ।
-> मया प्रसन्नेन तवार्जुनेदं
-> रूपं परं दर्शितमात्मयोगात् ।
-> तेजोमयं विश्वमनन्तमाद्यं
-> यन्मे त्वदन्येन न दृष्टपूर्वम् ॥४७॥
 
 > śrī-bhagavān uvāca
 > mayā prasannena tavārjunedaṁ
@@ -8856,11 +7358,6 @@ In the *Brahmā-saṁhitā* it is stated that the Lord is eternally situated in 
 Arjuna wanted to see the universal form of the Supreme Lord, so out of His mercy upon His devotee Arjuna, Lord Kṛṣṇa showed His universal form full of effulgence and opulence. This form was glaring like the sun, and its many faces were rapidly changing. Kṛṣṇa showed this form just to satisfy the desire of His friend Arjuna. This form was manifested by Kṛṣṇa through His internal potency, which is inconceivable by human speculation. No one had seen this universal form of the Lord before Arjuna, but because the form was shown to Arjuna, other devotees in the heavenly planets and in other planets in outer space could also see it. They did not see it before, but because of Arjuna they were also able to see it. In other words, all the disciplic devotees of the Lord could see the universal form which was shown to Arjuna by the mercy of Kṛṣṇa. Someone commented that this form was shown to Duryodhana also when Kṛṣṇa went to Duryodhana to negotiate for peace. Unfortunately, Duryodhana did not accept the peace offer, but at that time Kṛṣṇa manifested some of His universal forms. But those forms are different from this one shown to Arjuna. It is clearly said that no one has ever seen this form before.
 
 ### Bg 11.48
-
-> न वेदयज्ञाध्ययनैर्न दानैर्-
-> न च क्रियाभिर्न तपोभिरुग्रैः ।
-> एवंरूपः शक्य अहं नृलोके
-> द्रष्टुं त्वदन्येन कुरुप्रवीर ॥४८॥
 
 > na veda-yajñādhyayanair na dānair
 > na ca kriyābhir na tapobhir ugraiḥ
@@ -8881,11 +7378,6 @@ There are many persons who create incarnations. They falsely claim an ordinary h
 
 ### Bg 11.49
 
-> मा ते व्यथा मा च विमूढभावो
-> दृष्ट्वा रूपं घोरमीदृङ्ममेदम् ।
-> व्यपेतभीः प्रीतमनाः पुनस्त्वं
-> तदेव मे रूपमिदं प्रपश्य ॥४९॥
-
 > mā te vyathā mā ca vimūḍha-bhāvo
 > dṛṣṭvā rūpaṁ ghoram īdṛṅ mamedam
 > vyapeta-bhīḥ prīta-manāḥ punas tvaṁ
@@ -8898,12 +7390,6 @@ There are many persons who create incarnations. They falsely claim an ordinary h
 In the beginning of *Bhagavad-gītā* Arjuna was worried about killing Bhīṣma and Droṇa, his worshipful grandfathers and masters. But Kṛṣṇa said that he need not be afraid of killing his grandfather. When they tried to disrobe Draupadī in the assembly, Bhīṣma and Droṇa were silent, and for such negligence of duty they should be killed. Kṛṣṇa showed His universal form to Arjuna just to show him that these people were already killed for their unlawful action. That scene was shown to Arjuna because devotees are always peaceful, and they cannot perform such horrible actions. The purpose of the revelation of the universal form was shown; now Arjuna wanted to see the four-armed form, and Kṛṣṇa showed him. A devotee is not much interested in the universal form, for it does not enable one to reciprocate loving feelings. A devotee wants to offer his respectful worshiping feelings; thus he wants to see the two-handed or four-handed Kṛṣṇa form so he can reciprocate in loving service with the Supreme Personality of Godhead.
 
 ### Bg 11.50
-
-> सञ्जय उवाच ।
-> इत्यर्जुनं वासुदेवस्तथोक्त्वा
-> स्वकं रूपं दर्शयामास भूयः ।
-> आश्वासयामास च भीतमेनं
-> भूत्वा पुनः सौम्यवपुर्महात्मा ॥५०॥
 
 > sañjaya uvāca
 > ity arjunaṁ vāsudevas tathoktvā
@@ -8919,10 +7405,6 @@ When Kṛṣṇa appeared as the son of Vasudeva and Devakī, He first of all ap
 
 ### Bg 11.51
 
-> अर्जुन उवाच ।
-> दृष्ट्वेदं मानुषं रूपं तव सौम्यं जनार्दन ।
-> इदानीमस्मि संवृत्तः सचेताः प्रकृतिं गतः ॥५१॥
-
 > arjuna uvāca
 > dṛṣṭvedaṁ mānuṣaṁ rūpaṁ
 > tava saumyaṁ janārdana
@@ -8936,10 +7418,6 @@ When Kṛṣṇa appeared as the son of Vasudeva and Devakī, He first of all ap
 Here the words *mānuṣaṁ rūpam* clearly indicate the Supreme Personality of Godhead to be originally two-handed. Those who deride Kṛṣṇa to be an ordinary person are shown here to be ignorant of His divine nature. If Kṛṣṇa is like an ordinary human being, then how is it possible for Him to show the universal form and again to show the four-handed Nārāyaṇa form? So it is very clearly stated in *Bhagavad-gītā* that one who thinks that Kṛṣṇa is an ordinary person and misguides the reader by claiming that it is the impersonal Brahman within Kṛṣṇa speaking, is doing the greatest injustice. Kṛṣṇa has actually shown His universal form and His fourhanded Viṣṇu form. So how can He be an ordinary human being? A pure devotee is not confused by misguiding commentaries on *Bhagavad-gītā* because he knows what is what. The original verses of *Bhagavad-gītā* are as clear as the sun; they do not require lamplight from foolish commentators.
 
 ### Bg 11.52
-
-> श्रीभगवानुवाच ।
-> सुदुर्दर्शमिदं रूपं दृष्टवानसि यन्मम ।
-> देवा अप्यस्य रूपस्य नित्यं दर्शनकाङ्क्षिणः ॥५२॥
 
 > śrī-bhagavān uvāca
 > su-durdarśam idaṁ rūpaṁ
@@ -8957,9 +7435,6 @@ In *Bhagavad-gītā* it is also confirmed that He is not visible to the foolish 
 
 ### Bg 11.53
 
-> नाहं वेदैर्न तपसा न दानेन न चेज्यया ।
-> शक्य एवंविधो द्रष्टुं दृष्टवानसि मां यथा ॥५३॥
-
 > nāhaṁ vedair na tapasā
 > na dānena na cejyayā
 > śakya evaṁ-vidho draṣṭuṁ
@@ -8972,9 +7447,6 @@ In *Bhagavad-gītā* it is also confirmed that He is not visible to the foolish 
 Kṛṣṇa first appeared before His parents Devakī and Vasudeva in a four-handed form, and then He transformed Himself into the two-handed form. This mystery is very difficult to understand for those who are atheists or who are devoid of devotional service. For scholars who have simply studied Vedic literature by way of speculation or out of mere academic interest, Kṛṣṇa is not easy to understand. Nor is He to he understood by persons who officially go to the temple to offer worship. They make their visit, but they cannot understand Kṛṣṇa as He is. Kṛṣṇa can be understood only through the path of devotional service, as explained by Kṛṣṇa Himself in the next verse.
 
 ### Bg 11.54
-
-> भक्त्या त्वनन्यया शक्य अहमेवंविधोऽर्जुन ।
-> ज्ञातुं द्रष्टुं च तत्त्वेन प्रवेष्टुं च परन्तप ॥५४॥
 
 > bhaktyā tv ananyayā śakya
 > aham evaṁ-vidho 'rjuna
@@ -8998,9 +7470,6 @@ In the Vedic literature it is stated that the Supreme Absolute Truth is a person
 The universal form is not attractive for pure devotees, who are in love with the Lord in different transcendental relationships. The Supreme Godhead exchanges transcendental love in His original form of Kṛṣṇa. Therefore to Arjuna, who was so intimately related with Kṛṣṇa in friendship, this form of the universal manifestation was not pleasing; rather, it was fearful. Arjuna, who is a constant companion of Kṛṣṇa's, must have had transcendental eyes; he was not an ordinary man. Therefore he was not captivated by the universal form. This form may seem wonderful to persons who are involved in elevating themselves by fruitive activities, but to persons who are engaged in devotional service, the two-handed form of Kṛṣṇa is the most dear.
 
 ### Bg 11.55
-
-> मत्कर्मकृन्मत्परमो मद्भक्तः सङ्गवर्जितः ।
-> निर्वैरः सर्वभूतेषु यः स मामेति पाण्डव ॥५५॥
 
 > mat-karma-kṛn mat-paramo
 > mad-bhaktaḥ saṅga-varjitaḥ
@@ -9027,10 +7496,6 @@ In summary, the universal form of Kṛṣṇa, which is a temporary manifestatio
 
 ### Bg 12.1
 
-> अर्जुन उवाच ।
-> एवं सततयुक्ता ये भक्तास्त्वां पर्युपासते ।
-> ये चाप्यक्षरमव्यक्तं तेषां के योगवित्तमाः ॥१॥
-
 > arjuna uvāca
 > evaṁ satata-yuktā ye
 > bhaktās tvāṁ paryupāsate
@@ -9051,10 +7516,6 @@ In the Second Chapter the Lord explains that a living entity is not the material
 
 ### Bg 12.2
 
-> श्रीभगवानुवाच ।
-> मय्यावेश्य मनो ये मां नित्ययुक्ता उपासते ।
-> श्रद्धया परयोपेताः ते मे युक्ततमा मताः ॥२॥
-
 > śrī-bhagavān uvāca
 > mayy āveśya mano ye māṁ
 > nitya-yuktā upāsate
@@ -9068,11 +7529,6 @@ In the Second Chapter the Lord explains that a living entity is not the material
 In answer to Arjuna's question, Kṛṣṇa clearly says that he who concentrates upon His personal form and who worships Him with faith and devotion is to be considered most perfect in *yoga.* For one in such Kṛṣṇa consciousness there are no material activities because everything is done by Kṛṣṇa. A pure devotee is constantly engaged—sometimes he chants, sometimes he hears or reads books about Kṛṣṇa, or sometimes he cooks *prasādam* or goes to the marketplace to purchase something for Kṛṣṇa, or sometimes he washes the temple or the dishes—whatever he does, he does not let a single moment pass without devoting his activities to Kṛṣṇa Such action is in full *samādhi.*
 
 ### Bg 12.3-4
-
-> ये त्वक्षरमनिर्देश्यमव्यक्तं पर्युपासते ।
-> सर्वत्रगमचिन्त्यञ्च कूटस्थमचलन्ध्रुवम् ॥३॥
-> सन्नियम्येन्द्रियग्रामं सर्वत्र समबुद्धयः ।
-> ते प्राप्नुवन्ति मामेव सर्वभूतहिते रताः ॥४॥
 
 > ye tv akṣaram anirdeśyam
 > avyaktaṁ paryupāsate
@@ -9094,9 +7550,6 @@ In order to perceive the Supersoul within the individual soul, one has to cease 
 
 ### Bg 12.5
 
-> क्लेशोऽधिकतरस्तेषामव्यक्तासक्तचेतसाम् ।
-> अव्यक्ता हि गतिर्दुःखं देहवद्भिरवाप्यते ॥५॥
-
 > kleśo 'dhikataras teṣām
 > avyaktāsakta-cetasām
 > avyaktā hi gatir duḥkhaṁ
@@ -9115,11 +7568,6 @@ So, for a devotee, there is no difficulty in approaching the Supreme immediately
 A living entity is eternally an individual soul, and if he wants to merge into the spiritual whole, he may accomplish the realization of the eternal and knowledgeable aspects of his original nature, but the blissful portion is not realized. By the grace of some devotee, such a transcendentalist, highly learned in the process of *jñāna-yoga,* may come to the point of *bhakti-yoga,* or devotional service. At that time, long practice in impersonalism also becomes a source of trouble, because he cannot give up the idea. Therefore an embodied soul is always in difficulty with the unmanifest, both at the time of practice and at the time of realization. Every living soul is partially independent, and one should know for certain that this unmanifested realization is against the nature of his spiritual blissful self. One should not take up this process. For every individual living entity the process of Kṛṣṇa consciousness, which entails full engagement in devotional service, is the best way. If one wants to ignore this devotional service, there is the danger of turning to atheism. Thus this process of centering attention on the unmanifested, the inconceivable, which is beyond the approach of the senses, as already expressed in this verse, should never be encouraged at any time, especially in this age. It is not advised by Lord Kṛṣṇa.
 
 ### Bg 12.6-7
-
-> ये तु सर्वाणि कर्माणि मयि संन्यस्य मत्परः ।
-> अनन्येनैव योगेन मां ध्यायन्त उपासते ॥६॥
-> तेषामहं समुद्धर्ता मृत्युसंसारसागरात् ।
-> भवामि नचिरात्पार्थ मय्यावेशितचेतसाम् ॥७॥
 
 > ye tu sarvāṇi karmāṇi
 > mayi sannyasya mat-parāḥ
@@ -9164,9 +7612,6 @@ One should give up all other processes of self-realization and simply execute de
 
 ### Bg 12.8
 
-> मय्येव मन आधत्स्व मयि बुद्धिं निवेशय ।
-> निवसिष्यसि मय्येव अत ऊर्ध्वं न संशयः ॥८॥
-
 > mayy eva mana ādhatsva
 > mayi buddhiṁ niveśaya
 > nivasiṣyasi mayy eva
@@ -9179,9 +7624,6 @@ One should give up all other processes of self-realization and simply execute de
 One who is engaged in Lord Kṛṣṇa's devotional service lives in a direct relationship with the Supreme Lord, so there is no doubt that his position is transcendental from the very beginning. A devotee does not live on the material plane—he lives in Kṛṣṇa. The holy name of the Lord and the Lord are nondifferent; therefore when a devotee chants Hare Kṛṣṇa, Kṛṣṇa and His internal potency are dancing on the tongue of the devotee. When he offers Kṛṣṇa food, Kṛṣṇa directly accepts these eatables, and the devotee becomes Kṛṣṇa-ized by eating the remnants. One who does not engage in such service cannot understand how this is so, although this is a process recommended in the *Gītā* and in other Vedic literatures.
 
 ### Bg 12.9
-
-> अथ चित्तं समाधातुं न शक्नोषि मयि स्थिरम् ।
-> अभ्यासयोगेन ततो मामिच्छाप्तुं धनञ्जय ॥९॥
 
 > atha cittaṁ samādhātuṁ
 > na śaknoṣi mayi sthiram
@@ -9202,9 +7644,6 @@ To practice the regulative principles of *bhakti-yoga* one should, under the gui
 
 ### Bg 12.10
 
-> अभ्यासेऽप्यसमर्थोऽसि मत्कर्मपरमो भव ।
-> मदर्थमपि कर्माणि कुर्वन्सिद्धिमवाप्स्यसि ॥१०॥
-
 > abhyāse 'py asamartho 'si
 > mat-karma-paramo bhava
 > mad-artham api karmāṇi
@@ -9217,9 +7656,6 @@ To practice the regulative principles of *bhakti-yoga* one should, under the gui
 One who is not able even to practice the regulative principles of *bhakti-yoga,* under the guidance of a spiritual master, can still be drawn to this perfectional stage by working for the Supreme Lord. How to do this work has already been explained in the fifty-fifth verse of the Eleventh Chapter. One should be sympathetic to the propagation of Kṛṣṇa consciousness. There are many devotees who are engaged in the propagation of Kṛṣṇa consciousness, and they require help. So, even if one cannot directly practice the regulated principles of *bhakti-yoga,* he can try to help such work. Every endeavor requires land, capital, organization, and labor. Just as, in business, one requires a place to stay, some capital to use, some labor, and some organization to expand, so the same is required in the service of Kṛṣṇa. The only difference is that in materialism one works for sense gratification. The same work, however, can be performed for the satisfaction of Kṛṣṇa, and that is spiritual activity. If one has sufficient money, he can help in building an office or temple for propagating Kṛṣṇa consciousness. Or he can help with publications. There are various fields of activity, and one should be interested in such activities. If one cannot sacrifice the result of such activities, the same person can still sacrifice some percentage to propagate Kṛṣṇa consciousness. This voluntary service to the cause of Kṛṣṇa consciousness will help one to rise to a higher state of love for God, whereupon one becomes perfect.
 
 ### Bg 12.11
-
-> अथैतदप्यशक्तोऽसि कर्तुं मद्योगमाश्रितः ।
-> सर्वकर्मफलत्यागं ततः कुरु यतात्मवान् ॥११॥
 
 > athaitad apy aśakto 'si
 > kartuṁ mad-yogam āśritaḥ
@@ -9234,9 +7670,6 @@ It may be that one is unable to even sympathize with the activities of Kṛṣ�
 
 ### Bg 12.12
 
-> श्रेयो हि ज्ञानमभ्यासाज्ज्ञानाद्ध्यानं विशिष्यते ।
-> ध्यानात्कर्मफलत्यागस्त्यागाच्छान्तिरनन्तरम् ॥१२॥
-
 > śreyo hi jñānam abhyāsāj
 > jñānād dhyānaṁ viśiṣyate
 > dhyānāt karma-phala-tyāgas
@@ -9249,11 +7682,6 @@ It may be that one is unable to even sympathize with the activities of Kṛṣ�
 As mentioned in the previous verses, there are two kinds of devotional service: the way of regulated principles, and the way of full attachment in love to the Supreme Personality of Godhead. For those who are actually not able to follow the principles of Kṛṣṇa consciousness, it is better to cultivate knowledge because by knowledge one can be able to understand his real position. Gradually knowledge will develop to the point of meditation. By meditation one can be able to understand the Supreme Personality of Godhead by a gradual process. There are processes which make one understand that one himself is the Supreme, and that sort of meditation is preferred if one is unable to engage in devotional service. If one is not able to meditate in such a way, then there are prescribed duties, as enjoined in the Vedic literature, for the *brāhmaṇas, vaiśyas,* and *śūdras,* which we shall find in a later chapter of *Bhagavad-gītā.* But in all cases, one should give up the result or fruits of labor; this means to employ the result of *karma* for some good cause. In summary, to reach the Supreme Personality of Godhead, the highest goal, there are two processes: one process is by gradual development, and the other process is direct. Devotional service in Kṛṣṇa consciousness is the direct method, and the other method involves renouncing the fruits of one's activities. Then one can come to the stage of knowledge, then to the stage of meditation, then to the stage of understanding the Supersoul, and then to the stage of the Supreme Personality of Godhead. One may either take the step by step process or the direct path. The direct process is not possible for everyone; therefore the indirect process is also good. It is, however, to be understood that the indirect process is not recommended for Arjuna because he is already at the stage of loving devotional service to the Supreme Lord. It is for others who are not at this state; for them the gradual process of renunciation, knowledge, meditation and realization of the Supersoul and Brahman should be followed. But as far as *Bhagavad-gītā* is concerned, it is the direct method that is stressed. Everyone is advised to take to the direct method and surrender unto the Supreme Personality of Godhead, Kṛṣṇa.
 
 ### Bg 12.13-14
-
-> अद्वेष्टा सर्वभूतानां मैत्रः करुण एव च ।
-> निर्ममो निरहङ्कारः समदुःखसुखः क्षमी ॥१३॥
-> सन्तुष्टः सततं योगी यतात्मा दृढनिश्चयः ।
-> मय्यर्पितमनोबुद्धिर्यो मद्भक्तः स मे प्रियः ॥१४॥
 
 > adveṣṭā sarva-bhūtānāṁ
 > maitraḥ karuṇa eva ca
@@ -9273,9 +7701,6 @@ Coming again to the point of pure devotional service, the Lord is describing the
 
 ### Bg 12.15
 
-> यस्मान्नोद्विजते लोको लोकान्नोद्विजते च यः ।
-> हर्षामर्षभयोद्वेगैर्मुक्तो यः स च मे प्रियः ॥१५॥
-
 > yasmān nodvijate loko
 > lokān nodvijate ca yaḥ
 > harṣāmarṣa-bhayodvegair
@@ -9288,9 +7713,6 @@ Coming again to the point of pure devotional service, the Lord is describing the
 A few of a devotee's qualifications are further being described. No one is put into difficulty, anxiety, fearfulness, or dissatisfaction by such a devotee. Since a devotee is kind to everyone, he does not act in such a way to put others into anxiety. At the same time, if others try to put a devotee into anxiety, he is not disturbed. It is by the grace of the Lord that he is so practiced that he is not disturbed by any outward disturbance. Actually because a devotee is always engrossed in Kṛṣṇa consciousness and engaged in devotional service, all such material circumstances cannot woo him. Generally a materialistic person becomes very happy when there is something for his sense gratification and his body, but when he sees that others have something for their sense gratification and he hasn't, he is sorry and envious. When he is expecting some retaliation from an enemy, he is in a state of fear, and when he cannot successfully execute something he becomes dejected. But a devotee is always transcendental to all these disturbances; therefore he is very dear to Kṛṣṇa.
 
 ### Bg 12.16
-
-> अनपेक्षः शुचिर्दक्ष उदासीनो गतव्यथः ।
-> सर्वारम्भपरित्यागी यो मद्भक्तः स मे प्रियः ॥१६॥
 
 > anapekṣaḥ śucir dakṣa
 > udāsīno gata-vyathaḥ
@@ -9305,9 +7727,6 @@ Money may be offered to a devotee, but he should not struggle to acquire it. If 
 
 ### Bg 12.17
 
-> यो न हृष्यति न द्वेष्टि न शोचति न काङ्क्षति ।
-> शुभाशुभपरित्यागी भक्तिमान्यः स मे प्रियः ॥१७॥
-
 > yo na hṛṣyati na dveṣṭi
 > na śocati na kāṅkṣati
 > śubhāśubha-parityāgī
@@ -9320,11 +7739,6 @@ Money may be offered to a devotee, but he should not struggle to acquire it. If 
 A pure devotee is neither happy nor distressed over material gain and loss, nor is he very much anxious to get a son or disciple, nor is he distressed by not getting them. If he loses anything which is very dear to him, he does not lament. Similarly, if he does not get what he desires, he is not distressed. He is transcendental in the face of all kinds of auspicious, inauspicious and sinful activities. He is prepared to accept all kinds of risks for the satisfaction of the Supreme Lord. Nothing is an impediment in the discharge of his devotional service. Such a devotee is very dear to Kṛṣṇa.
 
 ### Bg 12.18-19
-
-> समः शत्रौ च मित्रे च तथा मानापमानयोः ।
-> शीतोष्णसुखदुःखेषु समः सङ्गविवर्जितः ॥१८॥
-> तुल्यनिन्दास्तुतिर्मौनी सन्तुष्टो येन केनचित् ।
-> अनिकेतः स्थिरमतिर्भक्तिमान्मे प्रियो नरः ॥१९॥
 
 > samaḥ śatrau ca mitre ca
 > tathā mānāpamānayoḥ
@@ -9344,9 +7758,6 @@ A devotee is always free from all bad association. Sometimes one is praised and 
 
 ### Bg 12.20
 
-> ये तु धर्म्यामृतमिदं यथोक्तं पर्युपासते ।
-> श्रद्दधाना मत्परमा भक्तास्तेऽतीव मे प्रियाः ॥२०॥
-
 > ye tu dharmāmṛtam idaṁ
 > yathoktaṁ paryupāsate
 > śraddadhānā mat-paramā
@@ -9363,13 +7774,6 @@ In this chapter the religion of eternal engagement, the explanation of the proce
 ## Chapter 13
 
 ### Bg 13.1-2
-
-> अर्जुन उवाच ।
-> प्रकृतिं पुरुषं चैव क्षेत्रं क्षेत्रज्ञमेव च ।
-> एतद्वेदितुमिच्छामि ज्ञानं ज्ञेयं च केशव ॥१॥
-> श्रीभगवानुवाच ।
-> इदं शरीरं कौन्तेय क्षेत्रमित्यभिधीयते ।
-> एतद्यो वेत्ति तं प्राहुः क्षेत्रज्ञ इति तद्विदः ॥२॥
 
 > arjuna uvāca
 > prakṛtiṁ puruṣaṁ caiva
@@ -9392,9 +7796,6 @@ Arjuna was inquisitive about *prakṛti* or nature, *puruṣa,* the enjoyer, *k�
 In the first six chapters of *Bhagavad-gītā,* the knower of the body, the living entity, and the position by which he can understand the Supreme Lord are described. In the middle six chapters of the *Gītā,* the Supreme Personality of Godhead and the relationship between the individual soul and the Supersoul in regard to devotional service are described. The superior position of the Supreme Personality of Godhead and the subordinate position of the individual soul are definitely defined in these chapters. The living entities are subordinate under all circumstances, but in their forgetfulness they are suffering. When enlightened by pious activities, they approach the Supreme Lord in different capacities—as the distressed, those in want of money, the inquisitive, and those in search of knowledge. That is also described. Now, starting with the Thirteenth Chapter, how the living entity comes into contact with material nature, how he is delivered by the Supreme Lord through the different methods of fruitive activities, cultivation of knowledge, and the discharge of devotional service are explained. Although the living entity is completely different from the material body, he somehow becomes related. This also is explained.
 
 ### Bg 13.3
-
-> क्षेत्रज्ञं चापि मां विद्धि सर्वक्षेत्रेषु भारत
-> क्षेत्रक्षेत्रज्ञयोर्ज्ञानं यत्तज्ज्ञानं मतं मम ॥३॥
 
 > kṣetra-jñaṁ cāpi māṁ viddhi
 > sarva-kṣetreṣu bhārata
@@ -9422,9 +7823,6 @@ In this chapter it will be also explained that out of the two knowers, one is fa
 
 ### Bg 13.4
 
-> तत्क्षेत्रं यच्च यादृक्च यद्विकारि यतश्च यत् ।
-> स च यो यत्प्रभावश्च तत्समासेन मे शृणु ॥४॥
-
 > tat kṣetraṁ yac ca yādṛk ca
 > yad-vikāri yataś ca yat
 > sa ca yo yat-prabhāvaś ca
@@ -9437,9 +7835,6 @@ In this chapter it will be also explained that out of the two knowers, one is fa
 The Lord is describing the field of activities and the knower of the field of activities in their constitutional positions. One has to know how this body is constituted, the materials of which this body is made, under whose control this body is working, how the changes are taking place, wherefrom the changes are coming, what the causes are, what the reasons are, what the ultimate goal of the individual is, and what the actual form of the individual soul is. One should also know the distinction between the individual living soul and the Supersoul, the different influences, their potentials, etc. One just has to understand this *Bhagavad-gītā* directly from the description given by the Supreme Personality of Godhead, and all this will be clarified. But one should be careful not to consider the Supreme Personality of Godhead in every body and individual soul to be the *jīva.* This is something like equalizing the potent and the impotent.
 
 ### Bg 13.5
-
-> ऋषिभिर्बहुधा गीतं छन्दोभिर्विविधैः पृथक् ।
-> ब्रह्मसूत्रपदैश्चैव हेतुमद्भिर्विनिश्चितैः ॥५॥
 
 > ṛṣibhir bahudhā gītaṁ
 > chandobhir vividhaiḥ pṛthak
@@ -9455,11 +7850,6 @@ The Supreme Personality of Godhead, Kṛṣṇa, is the highest authority in exp
 There is a manifestation of the Supreme Lord's energy known as *annamaya* by which one depends simply upon food for existence. This is a materialistic realization of the Supreme. Then there is *prāṇamaya;* this means that after realizing the Supreme Absolute Truth in foodstuff, one can realize the Absolute Truth in the living symptoms, or life forms. In *jñānamaya* the living symptom develops to the point of thinking, feeling, and willing. Then there is Brahman realization and the realization called *vijñānamaya* by which the living entity's mind and life symptoms are distinguished from the living entity himself. The next and supreme stage is *ānandamaya,* realization of the all-blissful nature. Thus there are five stages of Brahman realization, which is called *brahma puccham.* Out of these the first three—*annamaya, prāṇamaya,* and *jñānamaya*—involve the fields of activities of the living entities. Transcendental to all these fields of activities is the Supreme Lord, who is called *ānandamaya.* In the *Vedānta-sūtra* also the Supreme is called *ānandamayo 'bhyāsāt.* The Supreme Personality of Godhead is by nature full of joy, and to enjoy His transcendental bliss, He expands into *vijñānamaya, prāṇamaya, jñānamaya,* and *annamaya.* In this field of activities the living entity is considered to be the enjoyer, and different from him is the *ānandamaya.* That means that if the living entity decides to enjoy, in dovetailing himself with the *ānandamaya,* then he becomes perfect. This is the real picture of the Supreme Lord, as supreme knower of the field, the living entity, as subordinate knower, and the nature of the field of activities.
 
 ### Bg 13.6-7
-
-> महाभूतान्यहंकारो बुद्धिरव्यक्तमेव च ।
-> इन्द्रियाणि दशैकं च पञ्च चेन्द्रियगोचराः ॥६॥
-> इच्छा द्वेषः सुखं दुःखं संघातश्चेतना धृतिः ।
-> एतत्क्षेत्रं समासेन सविकारमुदाहृतम् ॥७॥
 
 > mahā-bhūtāny ahaṅkāro
 > buddhir avyaktam eva ca
@@ -9484,17 +7874,6 @@ One who desires to know the twenty-four elements in detail along with their inte
 The body is the representation of all these factors, and there are changes of the body, which are six in number: the body is born, it grows, it stays, it produces by-products, then begins to decay, and at the last stage it vanishes. Therefore the field is a nonpermanent material thing. However, the *kṣetrajña,* the knower of the field, its proprietor, is different.
 
 ### Bg 13.8-12
-
-> अमानित्वमदम्भित्वमहिंसा क्षान्तिरार्जवम् ।
-> आचार्योपासनं शौचं स्थैर्यमात्मविनिग्रहः ॥८॥
-> इन्द्रियार्थेषु वैराग्यमनहंकार एव च ।
-> जन्ममृत्युजराव्याधिदुःखदोषानुदर्शनम् ॥९॥
-> असक्तिरनभिष्वङ्गः पुत्रदारगृहादिषु ।
-> नित्यं च समचित्तत्वमिष्टानिष्टोपपत्तिषु ॥१०॥
-> मयि चानन्ययोगेन भक्तिरव्यभिचारिणी ।
-> विविक्तदेशसेवित्वमरतिर्जनसंसदि ॥११॥
-> अध्यात्मज्ञाननित्यत्वं तत्त्वज्ञानार्थदर्शनम् ।
-> एतज्ज्ञानमिति प्रोक्तमज्ञानं यदतोऽन्यथा ॥१२॥
 
 > amānitvam adambhitvam
 > ahiṁsā kṣāntir ārjavam
@@ -9555,9 +7934,6 @@ Beginning from practicing humility up to the point of realization of the Supreme
 
 ### Bg 13.13
 
-> ज्ञेयं यत्तत्प्रवक्ष्यामि यज्ज्ञात्वामृतमश्नुते ।
-> अनादिमत्परं ब्रह्म न सत्तन्नासदुच्यते ॥१३॥
-
 > jñeyaṁ yat tat pravakṣyāmi
 > yaj jñātvāmṛtam aśnute
 > anādi mat-paraṁ brahma
@@ -9571,9 +7947,6 @@ The Lord has explained the field of activities and the knower of the field. He h
 
 ### Bg 13.14
 
-> सर्वतः पाणिपादं तत्सर्वतोऽक्षिशिरोमुखम् ।
-> सर्वतः श्रुतिमल्लोके सर्वमावृत्य तिष्ठति ॥१४॥
-
 > sarvataḥ pāṇi-pādaṁ tat
 > sarvato 'kṣi-śiro-mukham
 > sarvataḥ śrutimal loke
@@ -9586,9 +7959,6 @@ The Lord has explained the field of activities and the knower of the field. He h
 As the sun exists diffusing its unlimited rays, so does the Supersoul, or Supreme Personality of Godhead. He exists in His all-pervading form, and in Him exist all the individual living entities, beginning from the first great teacher, Brahmā, down to the small ants. There are unlimited heads, legs, hands and eyes, and unlimited living entities. All are existing in and on the Supersoul. Therefore the Supersoul is all-pervading. The individual soul, however, cannot say that he has his hands, legs and eyes everywhere. That is not possible. If he thinks that although under ignorance he is not conscious that his hands and legs are diffused all over, but when he attains to proper knowledge he will come to that stage, his thinking is contradictory. This means that the individual soul, having become conditioned by material nature, is not supreme. The Supreme is different from the individual soul. The Supreme Lord can extend His hand without limit; the individual soul cannot. In *Bhagavad-gītā* the Lord says that if anyone offers Him a flower, or a fruit, or a little water, He accepts. If the Lord is a far distance away, how can He accept things? This is the omnipotence of the Lord: even though He is situated in His own abode, far, far away from earth, He can extend His hand to accept what anyone offers. That is His potency. In the *Brahmā-saṁhitā* it is stated, *goloka eva nivasati:* although He is always engaged in pastimes in His transcendental planet, He is all-pervading. The individual soul cannot claim that he is all-pervading. Therefore this verse describes the Supreme Soul, the Personality of Godhead, not the individual soul.
 
 ### Bg 13.15
-
-> सर्वेन्द्रियगुणाभासं सर्वेन्द्रियविवर्जितम् ।
-> असक्तं सर्वभृच्चैव निर्गुणं गुणभोक्तृ च ॥१५॥
 
 > sarvendriya-guṇābhāsaṁ
 > sarvendriya-vivarjitam
@@ -9605,9 +7975,6 @@ The Supreme Lord, although the source of all the senses of the living entities, 
 
 ### Bg 13.16
 
-> बहिरन्तश्च भूतानामचरं चरमेव च ।
-> सूक्ष्मत्वात्तदविज्ञेयं दूरस्थं चान्तिके च तत् ॥१६॥
-
 > bahir antaś ca bhūtānām
 > acaraṁ caram eva ca
 > sūkṣmatvāt tad avijñeyaṁ
@@ -9621,9 +7988,6 @@ In Vedic literature we understand that Nārāyaṇa, the Supreme Person, is resi
 
 ### Bg 13.17
 
-> अविभक्तं च भूतेषु विभक्तमिव च स्थितम् ।
-> भूतभर्तृ च तज्ज्ञेयं ग्रसिष्णु प्रभविष्णु च ॥१७॥
-
 > avibhaktaṁ ca bhūteṣu
 > vibhaktam iva ca sthitam
 > bhūta-bhartṛ ca taj jñeyaṁ
@@ -9636,9 +8000,6 @@ In Vedic literature we understand that Nārāyaṇa, the Supreme Person, is resi
 The Lord is situated in everyone's heart as the Supersoul. Does that mean that He has become divided? No. Actually, He is one. The example is given of the sun: the sun, at the meridian, is situated in his place. But if one goes for five thousand miles in all directions and asks, "Where is the sun?" everyone will say that it is shining on his head. In the Vedic literature this example is given to show that although He is undivided, He is situated as if divided. Also it is said in Vedic literature that one Viṣṇu is present everywhere by His omnipotence, just as the sun appears in many places to many persons. And the Supreme Lord, although the maintainer of every living entity, devours everything at the time of annihilation. This was confirmed in the Eleventh Chapter when the Lord said that He has come to devour all the warriors assembled at Kurukṣetra. He also mentions that in the form of time He devours also. He is the annihilator, the killer of all. When there is creation, He develops all from their original state, and at the time of annihilation He devours them. The Vedic hymns confirm the fact that He is the origin of all living entities and the rest of al1. After creation, everything rests in His omnipotence, and after annihilation, everything again returns to rest in Him. These are the confirmations of Vedic hymns. *Yato vā imāni bhūtāni jāyante yena jātāni jīvanti yat prayanty abhisaṁviśanti tad brahma tad vijijñāsasva.* (*Taittirīya Upaniṣad,* 3.1)
 
 ### Bg 13.18
-
-> ज्योतिषामपि तज्ज्योतिस्तमसः परमुच्यते ।
-> ज्ञानं ज्ञेयं ज्ञानगम्यं हृदि सर्वस्य विष्ठितम् ॥१८॥
 
 > jyotiṣām api taj jyotis
 > tamasaḥ param ucyate
@@ -9655,9 +8016,6 @@ One Vedic *mantra* says: *taṁ ha devam ātma-buddhi-prakāśaṁ mumukṣur va
 
 ### Bg 13.19
 
-> इति क्षेत्रं तथा ज्ञानं ज्ञेयं चोक्तं समासतः ।
-> मद्भक्त एतद्विज्ञाय मद्भावायोपपद्यते ॥१९॥
-
 > iti kṣetraṁ tathā jñānaṁ
 > jñeyaṁ coktaṁ samāsataḥ
 > mad-bhakta etad vijñāya
@@ -9670,9 +8028,6 @@ One Vedic *mantra* says: *taṁ ha devam ātma-buddhi-prakāśaṁ mumukṣur va
 The Lord has described in summary the body, knowledge and the knowable. This knowledge is of three things: the knower, the knowable and the process of knowing. Combined, these are called *vijñānam,* or the science of knowledge. Perfect knowledge can be understood by the unalloyed devotees of the Lord directly. Others are unable to understand. The monists say that at the ultimate stage these three items become one, but the devotees do not accept this. Knowledge and development of knowledge mean understanding oneself in Kṛṣṇa consciousness. We are being led by material consciousness, but as soon as we transfer all consciousness to Kṛṣṇa's activities and realize that Kṛṣṇa is everything, then we attain real knowledge. In other words, knowledge is nothing but the preliminary stage of understanding devotional service perfectly.
 
 ### Bg 13.20
-
-> प्रकृतिं पुरुषं चैव विद्ध्यनादी उभावपि ।
-> विकारांश्च गुणांश्चैव विद्धि प्रकृतिसम्भवान् ॥२०॥
 
 > prakṛtiṁ puruṣaṁ caiva
 > viddhy anādī ubhāv api
@@ -9689,9 +8044,6 @@ Both material nature and the living entity are eternal. That is to say that they
 
 ### Bg 13.21
 
-> कार्यकारणकर्तृत्वे हेतुः प्रकृतिरुच्यते ।
-> पुरुषः सुखदुःखानां भोक्तृत्वे हेतुरुच्यते ॥२१॥
-
 > kārya-kāraṇa-kartṛtve
 > hetuḥ prakṛtir ucyate
 > puruṣaḥ sukha-duḥkhānāṁ
@@ -9704,9 +8056,6 @@ Both material nature and the living entity are eternal. That is to say that they
 The different manifestations of body and senses among the living entities are due to material nature. There are 8,400,000 different species of life, and these varieties are the creation of the material nature. They arise from the different sensual pleasures of the living entity, who thus desires to live in this body or that. When he is put into different bodies, he enjoys different kinds of happiness and distress. His material happiness and distress are due to his body, and not to himself as he is. In his original state there is no doubt of enjoyment; therefore that is his real state. Because of the desire to lord it over material nature, he is in the material world. In the spiritual world there is no such thing. The spiritual world is pure, but in the material world everyone is struggling hard to acquire victims who present different pleasures to the body. It might be more clear to state that this body is the effect of the senses. The senses are instruments for gratifying desire. Now, the sum total—body and instrument senses—are offered by material nature, and, as will be clear in the next verse, the living entity is blessed or damned with circumstances according to his past desire and activity. According to one's desires and activities, material nature places one in various residential quarters. The being himself is the cause of his attaining such residential quarters and his attendant enjoyment or suffering. Once placed in some particular kind of body, he comes under the control of nature because the body, being matter, acts according to the laws of nature. At that time, the living entity has no power to change that law. Suppose an entity is put into the body of a dog. As soon as he is put into the body of a dog, he must act like a dog. He cannot act otherwise. And if the living entity is put into the body of a hog, then he is forced to eat stool and act like a hog. Similarly, if the living entity is put into the body of a demigod, he must act according to his body. This is the law of nature. But in all circumstances, the Supersoul is with the individual soul. That is explained in the *Vedas* as follows: *dvā suparṇā sayujā sakhāyā.* The Supreme Lord is so kind upon the living entity that He always accompanies the individual soul and in all circumstances is present as the Supersoul or Paramātmā.
 
 ### Bg 13.22
-
-> पुरुषः प्रकृतिस्थो हि भुङ्क्ते प्रकृतिजान्गुणान् ।
-> कारणं गुणसङ्गोऽस्य सदसद्योनिजन्मसु ॥२२॥
 
 > puruṣaḥ prakṛti-stho hi
 > bhuṅkte prakṛti-jān guṇān
@@ -9723,9 +8072,6 @@ How he is put into such different bodies is explained here. It is due to associa
 
 ### Bg 13.23
 
-> उपद्रष्टानुमन्ता च भर्ता भोक्ता महेश्वरः ।
-> परमात्मेति चाप्युक्तो देहेऽस्मिन्पुरुषः परः ॥२३॥
-
 > upadraṣṭānumantā ca
 > bhartā bhoktā maheśvaraḥ
 > paramātmeti cāpy ukto
@@ -9741,9 +8087,6 @@ The fact is that individual living entities are eternally part and parcel of the
 
 ### Bg 13.24
 
-> य एवं वेत्ति पुरुषं प्रकृतिं च गुणैः सह ।
-> सर्वथा वर्तमानोऽपि न स भूयोऽभिजायते ॥२४॥
-
 > ya evaṁ vetti puruṣaṁ
 > prakṛtiṁ ca guṇaiḥ saha
 > sarvathā vartamāno 'pi
@@ -9756,9 +8099,6 @@ The fact is that individual living entities are eternally part and parcel of the
 Clear understanding of material nature, the Supersoul, the individual soul and their interrelation makes one eligible to become liberated and turn to the spiritual atmosphere without being forced to return to this material nature. This is the result of knowledge. The purpose of knowledge is to understand distinctly that the living entity has by chance fallen into this material existence. By his personal endeavor in association with authorities, saintly persons and a spiritual master, he has to understand his position and then revert to spiritual consciousness or Kṛṣṇa consciousness by understanding *Bhagavad-gītā* as it is explained by the Personality of Godhead. Then it is certain that he will never come again into this material existence; he will be transferred into the spiritual world for a blissful eternal life of knowledge.
 
 ### Bg 13.25
-
-> ध्यानेनात्मनि पश्यन्ति केचिदात्मानमात्मना ।
-> अन्ये साङ्ख्येन योगेन कर्मयोगेन चापरे ॥२५॥
 
 > dhyānenātmani paśyanti
 > kecid ātmānam ātmanā
@@ -9773,9 +8113,6 @@ The Lord informs Arjuna that the conditioned soul can be divided into two classe
 
 ### Bg 13.26
 
-> अन्ये त्वेवमजानन्तः श्रुत्वान्येभ्य उपासते ।
-> तेऽपि चातितरन्त्येव मृत्युं श्रुतिपरायणाः ॥२६॥
-
 > anye tv evam ajānantaḥ
 > śrutvānyebhya upāsate
 > te 'pi cātitaranty eva
@@ -9788,9 +8125,6 @@ The Lord informs Arjuna that the conditioned soul can be divided into two classe
 This verse is particularly applicable to modern society because in modern society there is practically no education in spiritual matters. Some of the people may appear to be atheistic or agnostic or philosophical, but actually there is no knowledge of philosophy. As for the common man, if he is a good soul, then there is a chance for advancement by hearing. This hearing process is very important. Lord Caitanya, who preached Kṛṣṇa consciousness in the modern world, gave great stress to hearing because if the common man simply hears from authoritative sources, he can progress, especially, according to Lord Caitanya, if he hears the transcendental vibration Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. It is stated, therefore, that all men should take advantage of hearing from realized souls and gradually become able to understand everything. The worship of the Supreme Lord will then undoubtedly take place. Lord Caitanya has said that in this age no one needs to change his position, but one should give up the endeavor to understand the Absolute Truth by speculative reasoning. One should learn to become the servant of those who are in knowledge of the Supreme Lord. If one is fortunate enough to take shelter of a pure devotee, hear from him about self-realization and follow in his footsteps, he will be gradually elevated to the position of a pure devotee. In this verse particularly the process of hearing is strongly recommended, and this is very appropriate. Although the common man is often not as capable as so-called philosophers, faithful hearing from an authoritative person will help one transcend this material existence and go back to Godhead, back to home.
 
 ### Bg 13.27
-
-> यावत्सञ्जायते किञ्चित्सत्त्वं स्थावरजङ्गमम् ।
-> क्षेत्रक्षेत्रज्ञसंयोगात्तद्विद्धि भरतर्षभ ॥२७॥
 
 > yāvat sañjāyate kiñcit
 > sattvaṁ sthāvara-jaṅgamam
@@ -9805,9 +8139,6 @@ Both material nature and the living entity, which were existing before the creat
 
 ### Bg 13.28
 
-> समं सर्वेषु भूतेषु तिष्ठन्तं परमेश्वरम् ।
-> विनश्यत्स्वविनश्यन्तं यः पश्यति स पश्यति ॥२८॥
-
 > samaṁ sarveṣu bhūteṣu
 > tiṣṭhantaṁ parameśvaram
 > vinaśyatsv avinaśyantaṁ
@@ -9820,9 +8151,6 @@ Both material nature and the living entity, which were existing before the creat
 Anyone who can see three things—the body, the proprietor of the body, or individual soul, and the friend of the individual soul, combined together by good association—is actually in knowledge. Those who are not associated with the soul's friend are ignorant; they simply see the body, and when the body is destroyed they think that everything is finished, but actually it is not so. After the destruction of the body, both the soul and the Supersoul exist, and they go on eternally in many various moving and unmoving forms. The Sanskrit word *parameśvaram* is sometimes translated as the individual soul because the soul is the master of the body, and after the destruction of the body he transfers to another form. In that way he is master. But there are others who interpret this *parameśvaram* to be the Supersoul. In either case, both the Supersoul and the individual soul continue. They are not destroyed. One who can see in this way can actually see what is happening.
 
 ### Bg 13.29
-
-> समं पश्यन्हि सर्वत्र समवस्थितमीश्वरम् ।
-> न हिनस्त्यात्मनात्मानं ततो याति परां गतिम् ॥२९॥
 
 > samaṁ paśyan hi sarvatra
 > samavasthitam īśvaram
@@ -9837,9 +8165,6 @@ The living entity, by accepting his material existence as just so much suffering
 
 ### Bg 13.30
 
-> प्रकृत्यैव च कर्माणि क्रियमाणानि सर्वशः ।
-> यः पश्यति तथात्मानमकर्तारं स पश्यति ॥३०॥
-
 > prakṛtyaiva ca karmāṇi
 > kriyamāṇāni sarvaśaḥ
 > yaḥ paśyati tathātmānam
@@ -9852,9 +8177,6 @@ The living entity, by accepting his material existence as just so much suffering
 This body is made by material nature under the direction of the Supersoul, and whatever activities are going on in respect to one's body are not his doing. Whatever one is supposed to do, either for happiness or for distress, one is forced to do because of the bodily constitution. The self, however, is outside all these bodily activities. This body is given according to one's past desires. To fulfill desires, one is given the body, with which he acts accordingly. Practically speaking, the body is a machine, designed by the Supreme Lord, to fulfill desires. Because of desires, one is put into difficult circumstances to suffer or to enjoy. This transcendental vision of the living entity, when developed, makes one separate from bodily activities. One who has such a vision is an actual seer.
 
 ### Bg 13.31
-
-> यदा भूतपृथग्भावमेकस्थमनुपश्यति ।
-> तत एव च विस्तारं ब्रह्म सम्पद्यते तदा ॥३१॥
 
 > yadā bhūta-pṛthag-bhāvam
 > eka-stham anupaśyati
@@ -9869,9 +8191,6 @@ When one can see that the various bodies of living entities arise due to the dif
 
 ### Bg 13.32
 
-> अनादित्वान्निर्गुणत्वात्परमात्मायमव्ययः ।
-> शरीरस्थोऽपि कौन्तेय न करोति न लिप्यते ॥३२॥
-
 > anāditvān nirguṇatvāt
 > paramātmāyam avyayaḥ
 > śarīra-stho 'pi kaunteya
@@ -9885,9 +8204,6 @@ A living entity appears to be born because of the birth of the material body, bu
 
 ### Bg 13.33
 
-> यथा सर्वगतं सौक्ष्म्यादाकाशं नोपलिप्यते ।
-> सर्वत्रावस्थितो देहे तथात्मा नोपलिप्यते ॥३३॥
-
 > yathā sarva-gataṁ saukṣmyād
 > ākāśaṁ nopalipyate
 > sarvatrāvasthito dehe
@@ -9900,9 +8216,6 @@ A living entity appears to be born because of the birth of the material body, bu
 The air enters into water, mud, stool and whatever else is there; still it does not mix with anything. Similarly, the living entity, even though situated in varieties of bodies, is aloof from them due to his subtle nature. Therefore it is impossible to see with the material eyes how the living entity is in contact with this body and how he is out of it after the destruction of the body. No one in science can ascertain this.
 
 ### Bg 13.34
-
-> यथा प्रकाशयत्येकः कृत्स्नं लोकमिमं रविः ।
-> क्षेत्रं क्षेत्री तथा कृत्स्नं प्रकाशयति भारत ॥३४॥
 
 > yathā prakāśayaty ekaḥ
 > kṛtsnaṁ lokam imaṁ raviḥ
@@ -9918,9 +8231,6 @@ There are various theories regarding consciousness. Here in *Bhagavad-gītā* th
 When the soul is present in the body, there is consciousness all over the body, and as soon as the soul has passed from the body, there is no more consciousness. This can be easily understood by any intelligent man. Therefore consciousness is not a production of the combinations of matter. It is the symptom of the living entity. The consciousness of the living entity, although qualitatively one with the supreme consciousness, is not supreme because the consciousness of one particular body does not share that of another body. But the Supersoul, which is situated in all bodies as the friend of the individual soul, is conscious of all bodies. That is the difference between supreme consciousness and individual consciousness.
 
 ### Bg 13.35
-
-> क्षेत्रक्षेत्रज्ञयोरेवमन्तरं ज्ञानचक्षुषा ।
-> भूतप्रकृतिमोक्षं च ये विदुर्यान्ति ते परम् ॥३५॥
 
 > kṣetra-kṣetrajñayor evam
 > antaraṁ jñāna-cakṣuṣā
@@ -9941,10 +8251,6 @@ One can understand that this body is matter; it can be analyzed with its twenty-
 
 ### Bg 14.1
 
-> श्रीभगवानुवाच ।
-> परं भूयः प्रवक्ष्यामि ज्ञानानां ज्ञानमुत्तमम् ।
-> यज्ज्ञात्वा मुनयः सर्वे परां सिद्धिमितो गताः ॥१॥
-
 > śrī-bhagavān uvāca
 > paraṁ bhūyaḥ pravakṣyāmi
 > jñānānāṁ jñānam uttamam
@@ -9958,9 +8264,6 @@ One can understand that this body is matter; it can be analyzed with its twenty-
 From the Seventh Chapter to the end of the Twelfth Chapter, Śrī Kṛṣṇa in detail reveals the Absolute Truth, the Supreme Personality of Godhead. Now, the Lord Himself is further enlightening Arjuna. If one understands this chapter through the process of philosophical speculation, he will come to an understanding of devotional service. In the Thirteenth Chapter, it was clearly explained that by humbly developing knowledge one may possibly be freed from material entanglement. It has also been explained that it is due to association with the modes of nature that the living entity is entangled in this material world. Now, in this chapter, the Supreme Personality explains what those modes of nature are, how they act, how they bind and how they give liberation. The knowledge explained in this chapter is proclaimed by the Supreme Lord to be superior to the knowledge given so far in other chapters. By understanding this knowledge, various great sages attain perfection and transfer to the spiritual world. The Lord now explains the same knowledge in a better way. This knowledge is far, far superior to all other processes of knowledge thus far explained, and knowing this many attain perfection. Thus it is expected that one who understands this Fourteenth Chapter will attain perfection.
 
 ### Bg 14.2
-
-> इदं ज्ञानमुपाश्रित्य मम साधर्म्यमागताः ।
-> सर्गेऽपि नोपजायन्ते प्रलये न व्यथन्ति च ॥२॥
 
 > idaṁ jñānam upāśritya
 > mama sādharmyam āgatāḥ
@@ -9977,9 +8280,6 @@ Generally, in the material world, whatever knowledge we get is contaminated by t
 
 ### Bg 14.3
 
-> मम योनिर्महद् ब्रह्म तस्मिन्गर्भं दधाम्यहम् ।
-> सम्भवः सर्वभूतानां ततो भवति भारत ॥३॥
-
 > mama yonir mahad brahma
 > tasmin garbhaṁ dadhāmy aham
 > sambhavaḥ sarva-bhūtānāṁ
@@ -9995,9 +8295,6 @@ The scorpion lays its eggs in piles of rice, and sometimes it is said that the s
 
 ### Bg 14.4
 
-> सर्वयोनिषु कौन्तेय मूर्तयः सम्भवन्ति याः ।
-> तासां ब्रह्म महद्योनिरहं बीजप्रदः पिता ॥४॥
-
 > sarva-yoniṣu kaunteya
 > mūrtayaḥ sambhavanti yāḥ
 > tāsāṁ brahma mahad yonir
@@ -10011,9 +8308,6 @@ In this verse it is clearly explained that the Supreme Personality of Godhead, K
 
 ### Bg 14.5
 
-> सत्त्वं रजस्तम इति गुणाः प्रकृतिसम्भवाः ।
-> निबध्नन्ति महाबाहो देहे देहिनमव्ययम् ॥५॥
-
 > sattvaṁ rajas tama iti
 > guṇāḥ prakṛti-sambhavāḥ
 > nibadhnanti mahā-bāho
@@ -10026,9 +8320,6 @@ In this verse it is clearly explained that the Supreme Personality of Godhead, K
 The living entity, because he is transcendental, has nothing to do with this material nature. Still, because he has become conditioned by the material world, he is acting under the spell of the three modes of material nature. Because living entities have different kinds of bodies, in terms of the different aspects of nature, they are induced to act according to that nature. This is the cause of the varieties of happiness and distress.
 
 ### Bg 14.6
-
-> तत्र सत्त्वं निर्मलत्वात्प्रकाशकमनामयम् ।
-> सुखसङ्गेन बध्नाति ज्ञानसङ्गेन चानघ ॥६॥
 
 > tatra sattvaṁ nirmalatvāt
 > prakāśakam anāmayam
@@ -10045,9 +8336,6 @@ The difficulty here is that when a living entity is situated in the mode of good
 
 ### Bg 14.7
 
-> रजो रागात्मकं विद्धि तृष्णासङ्गसमुद्भवम् ।
-> तन्निबध्नाति कौन्तेय कर्मसङ्गेन देहिनम् ॥७॥
-
 > rajo rāgātmakaṁ viddhi
 > tṛṣṇā-saṅga-samudbhavam
 > tan nibadhnāti kaunteya
@@ -10060,9 +8348,6 @@ The difficulty here is that when a living entity is situated in the mode of good
 The mode of passion is characterized by the attraction between man and woman. Woman has attraction for man, and man has attraction for woman. This is called the mode of passion. And, when the mode of passion is increased, one develops the hankering for material enjoyment. He wants to enjoy sense gratification. For sense gratification, a man in the mode of passion wants some honor in society, or in the nation, and he wants to have a happy family, with nice children, wife, and house. These are the products of the mode of passion. As long as one is hankering after these things, he has to work very hard. Therefore it is clearly stated here that he becomes associated with the fruits of his activities and thus becomes bound by such activities. In order to please his wife, children and society and to keep up his prestige, one has to work. Therefore, the whole material world is more or less in the mode of passion. Modern civilization is considered to be advanced in the standards of the mode of passion. Formerly, the advanced condition was considered to be in the mode of goodness. If there is no liberation for those in the mode of goodness, what of those who are entangled in the mode of passion?
 
 ### Bg 14.8
-
-> तमस्त्वज्ञानजं विद्धि मोहनं सर्वदेहिनाम् ।
-> प्रमादालस्यनिद्राभिस्तन्निबध्नाति भारत ॥८॥
 
 > tamas tv ajñāna-jaṁ viddhi
 > mohanaṁ sarva-dehinām
@@ -10077,9 +8362,6 @@ In this verse the specific application of the word *tu* is very significant. Thi
 
 ### Bg 14.9
 
-> सत्त्वं सुखे सञ्जयति रजः कर्मणि भारत ।
-> ज्ञानमावृत्य तु तमः प्रमादे सञ्जयत्युत ॥९॥
-
 > sattvaṁ sukhe sañjayati
 > rajaḥ karmaṇi bhārata
 > jñānam āvṛtya tu tamaḥ
@@ -10092,9 +8374,6 @@ In this verse the specific application of the word *tu* is very significant. Thi
 A person in the mode of goodness is satisfied by his work or intellectual pursuit, just as a philosopher, scientist, or educator may be engaged in a particular field of knowledge and may be satisfied in that way. A man in the modes of passion and goodness may be engaged in fruitive activity; he owns as much as he can and spends for good causes. Sometimes he tries to open hospitals, give to charity institutions, etc. These are the signs of one in the mode of passion. And the mode of ignorance covers knowledge. In the mode of ignorance, whatever one does is neither good for him nor for anyone.
 
 ### Bg 14.10
-
-> रजस्तमश्चाभिभूय सत्त्वं भवति भारत ।
-> रजः सत्त्वं तमश्चैव तमः सत्त्वं रजस्तथा ॥१०॥
 
 > rajas tamaś cābhibhūya
 > sattvaṁ bhavati bhārata
@@ -10109,9 +8388,6 @@ When the mode of passion is prominent, the modes of goodness and ignorance are d
 
 ### Bg 14.11
 
-> सर्वद्वारेषु देहेऽस्मिन्प्रकाश उपजायते ।
-> ज्ञानं यदा तदा विद्याद्विवृद्धं सत्त्वमित्युत ॥११॥
-
 > sarva-dvāreṣu dehe 'smin
 > prakāśa upajāyate
 > jñānaṁ yadā tadā vidyād
@@ -10124,9 +8400,6 @@ When the mode of passion is prominent, the modes of goodness and ignorance are d
 There are nine gates in the body: two eyes, two ears, two nostrils, the mouth, the genital and the anus. In every gate, when the symptom of goodness is illuminated, it should be understood that one has developed the mode of goodness. In the mode of goodness, one can see things in the right position, one can hear things in the right position, and one can taste things in the right position. One becomes cleansed inside and outside. In every gate there is development of the symptoms of happiness, and that is the position of goodness.
 
 ### Bg 14.12
-
-> लोभः प्रवृत्तिरारम्भः कर्मणामशमः स्पृहा ।
-> रजस्येतानि जायन्ते विवृद्धे भरतर्षभ ॥१२॥
 
 > lobhaḥ pravṛttir ārambhaḥ
 > karmaṇām aśamaḥ spṛhā
@@ -10141,9 +8414,6 @@ One in the mode of passion is never satisfied with the position he has already a
 
 ### Bg 14.13
 
-> अप्रकाशोऽप्रवृत्तिश्च प्रमादो मोह एव च ।
-> तमस्येतानि जायन्ते विवृद्धे कुरुनन्दन ॥१३॥
-
 > aprakāśo 'pravṛttiś ca
 > pramādo moha eva ca
 > tamasy etāni jāyante
@@ -10156,9 +8426,6 @@ One in the mode of passion is never satisfied with the position he has already a
 When there is no illumination, knowledge is absent. One in the mode of ignorance does not work by a regulative principle; he wants to act whimsically for no purpose. Even though he has the capacity to work, he makes no endeavor. This is called illusion. Although consciousness is going on, life is inactive. These are the symptoms of one in the mode of ignorance.
 
 ### Bg 14.14
-
-> यदा सत्त्वे प्रवृद्धे तु प्रलयं याति देहभृत् ।
-> तदोत्तमविदां लोकानमलान्प्रतिपद्यते ॥१४॥
 
 > yadā sattve pravṛddhe tu
 > pralayaṁ yāti deha-bhṛt
@@ -10173,9 +8440,6 @@ One in goodness attains higher planetary systems, like Brahmaloka or Janaloka, a
 
 ### Bg 14.15
 
-> रजसि प्रलयं गत्वा कर्मसङ्गिषु जायते ।
-> तथा प्रलीनस्तमसि मूढयोनिषु जायते ॥१५॥
-
 > rajasi pralayaṁ gatvā
 > karma-saṅgiṣu jāyate
 > tathā pralīnas tamasi
@@ -10188,9 +8452,6 @@ One in goodness attains higher planetary systems, like Brahmaloka or Janaloka, a
 Some people have the impression that when the soul reaches the platform of human life, it never goes down again. This is incorrect. According to this verse, if one develops the mode of ignorance, after his death he is degraded to the animal form of life. From there one has to again elevate himself, by evolutionary process, to come again to the human form of life. Therefore, those who are actually serious about human life should take to the mode of goodness and in good association transcend the modes and become situated in Kṛṣṇa consciousness. This is the aim of human life. Otherwise, there is no guarantee that the human being will again attain to the human status.
 
 ### Bg 14.16
-
-> कर्मणः सुकृतस्याहुः सात्त्विकं निर्मलं फलम् ।
-> रजसस्तु फलं दुःखमज्ञानं तमसः फलम् ॥१६॥
 
 > karmaṇaḥ sukṛtasyāhuḥ
 > sāttvikaṁ nirmalaṁ phalam
@@ -10210,9 +8471,6 @@ By pious activities in the mode of goodness one is purified; therefore the sages
 
 ### Bg 14.17
 
-> सत्त्वात्सञ्जायते ज्ञानं रजसो लोभ एव च ।
-> प्रमादमोहौ तमसो भवतोऽज्ञानमेव च ॥१७॥
-
 > sattvāt sañjāyate jñānaṁ
 > rajaso lobha eva ca
 > pramāda-mohau tamaso
@@ -10225,9 +8483,6 @@ By pious activities in the mode of goodness one is purified; therefore the sages
 Since the present civilization is not very congenial to the living entities, Kṛṣṇa consciousness is recommended. Through Kṛṣṇa consciousness, society will develop the mode of goodness. When the mode of goodness is developed, people will see things as they are. In the mode of ignorance, people are just like animals and cannot see things clearly. In the mode of ignorance, for example, they do not see that by killing one animal they are taking a chance of being killed by the same animal in the next life. Because people have no education in actual knowledge, they become irresponsible. To stop this irresponsibility, education for developing the mode of goodness of the people in general must be there. When they are actually educated in the mode of goodness, they will become sober, in full knowledge of things as they are. Then people will be happy and prosperous. Even if the majority of the people aren't happy and prosperous, if a certain percentage of the population develops Kṛṣṇa consciousness and becomes situated in the mode of goodness, then there is the possibility for peace and prosperity all over the world. Otherwise, if the world is devoted to the modes of passion and ignorance, there can be no peace or prosperity. In the mode of passion, people become greedy, and their hankering for sense enjoyment has no limit. One can see that even if one has enough money and adequate arrangement for sense gratification, there is neither happiness nor peace of mind. That is not possible because one is situated in the mode of passion. If one wants happiness at all, his money will not help him; he has to elevate himself to the mode of goodness by practicing Kṛṣṇa consciousness. One engaged in the mode of passion is not only mentally unhappy, but his profession and occupation are also very troublesome. He has to devise so many plans and schemes to acquire enough money to maintain his status quo. This is all miserable. In the mode of ignorance, people become mad. Being distressed by their circumstances, they take shelter of intoxication, and thus they sink further into ignorance. Their future in life is very dark.
 
 ### Bg 14.18
-
-> ऊर्ध्वं गच्छन्ति सत्त्वस्था मध्ये तिष्ठन्ति राजसाः ।
-> जघन्यगुणवृत्तिस्था अधो गच्छन्ति तामसाः ॥१८॥
 
 > ūrdhvaṁ gacchanti sattva-sthā
 > madhye tiṣṭhanti rājasāḥ
@@ -10248,9 +8503,6 @@ There is opportunity for men in the modes of ignorance and passion to be elevate
 
 ### Bg 14.19
 
-> नान्यं गुणेभ्यः कर्तारं यदा द्रष्टानुपश्यति ।
-> गुणेभ्यश्च परं वेत्ति मद्भावं सोऽधिगच्छति ॥१९॥
-
 > nānyaṁ guṇebhyaḥ kartāraṁ
 > yadā draṣṭānupaśyati
 > guṇebhyaś ca paraṁ vetti
@@ -10263,9 +8515,6 @@ There is opportunity for men in the modes of ignorance and passion to be elevate
 One can transcend all the activities of the modes of material nature simply by understanding them properly by learning from the proper souls. The real spiritual master is Kṛṣṇa, and He is imparting this spiritual knowledge to Arjuna. Similarly, it is from those who are fully in Kṛṣṇa consciousness that one has to learn this science of activities in terms of the modes of nature. Otherwise, one's life will be misdirected. By the instruction of a bona fide spiritual master, a living entity can know of his spiritual position, his material body, his senses, how he is entrapped, and how he is under the spell of the material modes of nature. He is helpless, being in the grip of these modes, but when he can see his real position, then he can attain to the transcendental platform, having the scope for spiritual life. Actually, the living entity is not the performer of different activities. He is forced to act because he is situated in a particular type of body, conducted by some particular mode of material nature. Unless one has the help of spiritual authority, he cannot understand in what position he is actually situated. With the association of a bona fide spiritual master, he can see his real position, and, by such an understanding, he can become fixed in full Kṛṣṇa consciousness. A man in Kṛṣṇa consciousness is not controlled by the spell of the material modes of nature. It has already been stated in the Seventh Chapter that one who has surrendered to Kṛṣṇa is relieved from the activities of material nature. Therefore for one who is able to see things as they are, the influence of material nature gradually ceases.
 
 ### Bg 14.20
-
-> गुणानेतानतीत्य त्रीन्देही देहसमुद्भवान् ।
-> जन्ममृत्युजरादुःखैर्विमुक्तोऽमृतमश्नुते ॥२०॥
 
 > guṇān etān atītya trīn
 > dehī deha-samudbhavān
@@ -10280,10 +8529,6 @@ How one can stay in the transcendental position, even in this body, in full Kṛ
 
 ### Bg 14.21
 
-> अर्जुन उवाच ।
-> कैर्लिङ्गैस्त्रीन्गुणानेतानतीतो भवति प्रभो ।
-> किमाचारः कथं चैतांस्त्रीन्गुणानतिवर्तते ॥२१॥
-
 > arjuna uvāca
 > kair liṅgais trīn guṇān etān
 > atīto bhavati prabho
@@ -10297,16 +8542,6 @@ How one can stay in the transcendental position, even in this body, in full Kṛ
 In this verse, Arjuna's questions are very appropriate. He wants to know the symptoms of a person who has already transcended the material modes. He first inquires of the symptoms of such a transcendental person. How can one understand that he has already transcended the influence of the modes of material nature? The second question asks how he lives and what his activities are. Are they regulated or nonregulated? Then Arjuna inquires of the means by which he can attain the transcendental nature. That is very important. Unless one knows the direct means by which one can be situated always transcendentally, there is no possibility of showing the symptoms. So all these questions put by Arjuna are very important, and the Lord answers them.
 
 ### Bg 14.22-25
-
-> श्रीभगवानुवाच ।
-> प्रकाशं च प्रवृत्तिं च मोहमेव च पाण्डव ।
-> न द्वेष्टि सम्प्रवृत्तानि न निवृत्तानि काङ्क्षति ॥२२॥
-> उदासीनवदासीनो गुणैर्यो न विचाल्यते ।
-> गुणा वर्तन्त इत्येवं योऽवतिष्ठति नेङ्गते ॥२३॥
-> समदुःखसुखः स्वस्थः समलोष्टाश्मकाञ्चनः ।
-> तुल्यप्रियाप्रियो धीरस्तुल्यनिन्दात्मसंस्तुतिः ॥२४॥
-> मानापमानयोस्तुल्यस्तुल्यो मित्रारिपक्षयोः ।
-> सर्वारम्भपरित्यागी गुणातीतः स उच्यते ॥२५॥
 
 > śrī-bhagavān uvāca
 > prakāśaṁ ca pravṛttiṁ ca
@@ -10339,9 +8574,6 @@ The next question concerns the dealings of a transcendentally situated person. T
 
 ### Bg 14.26
 
-> मां च योऽव्यभिचारेण भक्तियोगेन सेवते ।
-> स गुणान्समतीत्यैतान्ब्रह्मभूयाय कल्पते ॥२६॥
-
 > māṁ ca yo 'vyabhicāreṇa
 > bhakti-yogena sevate
 > sa guṇān samatītyaitān
@@ -10354,9 +8586,6 @@ The next question concerns the dealings of a transcendentally situated person. T
 This verse is a reply to Arjuna's third question: What is the means of attaining to the transcendental position? As explained before, the material world is acting under the spell of the modes of material nature. One should not be disturbed by the activities of the modes of nature; instead of putting his consciousness into such activities, he may transfer his consciousness to Kṛṣṇa activities. Kṛṣṇa activities are known as *bhakti-yoga*—always acting for Kṛṣṇa. This includes not only Kṛṣṇa, but His different plenary expansions such as Rāma and Nārāyaṇa. He has innumerable expansions. One who is engaged in the service of any of the forms of Kṛṣṇa, or of His plenary expansions, is considered to be transcendentally situated. One should also note that all the forms of Kṛṣṇa are fully transcendental, blissful, full of knowledge and eternal. Such personalities of Godhead are omnipotent and omniscient, and they possess all transcendental qualities. So, if one engages himself in the service of Kṛṣṇa or His plenary expansions with unfailing determination, although these modes of material nature are very difficult to overcome, he can overcome them easily. This is already explained in the Seventh Chapter. One who surrenders unto Kṛṣṇa at once surmounts the influence of the modes of material nature. To be in Kṛṣṇa consciousness or in devotional service means to acquire the equality of Kṛṣṇa. The Lord says that His nature is eternal, blissful and full of knowledge, and the living entities are part and parcel of the Supreme, as gold particles are part of a gold mine. Thus the living entity's spiritual position is as good as gold, as good as Kṛṣṇa in quality. The difference of individuality continues, otherwise there is no question of *bhakti-yoga. Bhakti-yoga* means that the Lord is there, the devotee is there and the activity of exchange of love between the Lord and the devotee is there. Therefore the individuality of two persons is present in the Supreme Personality of Godhead and the individual person, otherwise there is no meaning to *bhakti-yoga.* If one is not situated in the same transcendental position with the Lord, one cannot serve the Supreme Lord. To be a personal assistant to a king, one must acquire the qualifications. Thus the qualification is to become Brahman, or freed from all material contamination. It is said in the Vedic literature: *brahmaiva san brahmāpyeti.* One can attain the Supreme Brahman by becoming Brahman. This means that one must qualitatively become one with Brahman. By attainment of Brahman, one does not lose his eternal Brahman identity as individual soul.
 
 ### Bg 14.27
-
-> ब्रह्मणो हि प्रतिष्ठाहममृतस्याव्ययस्य च ।
-> शाश्वतस्य च धर्मस्य सुखस्यैकान्तिकस्य च ॥२७॥
 
 > brahmaṇo hi pratiṣṭhāham
 > amṛtasyāvyayasya ca
@@ -10376,10 +8605,6 @@ The living entity, although Brahman by nature, has the desire to lord it over th
 ## Chapter 15
 
 ### Bg 15.1
-
-> श्रीभगवानुवाच ।
-> ऊर्ध्वमूलमधःशाखमश्वत्थं प्राहुरव्ययम् ।
-> छन्दांसि यस्य पर्णानि यस्तं वेद स वेदवित् ॥१॥
 
 > śrī-bhagavān uvāca
 > ūrdhva-mūlam adhaḥ-śākham
@@ -10403,11 +8628,6 @@ This tree, being the reflection of the real tree, is an exact replica. Everythin
 
 ### Bg 15.2
 
-> अधश्चोर्ध्वं प्रसृतास्तस्य शाखा
-> गुणप्रवृद्धा विषयप्रवालाः ।
-> अधश्च मूलान्यनुसन्ततानि
-> कर्मानुबन्धीनि मनुष्यलोके ॥२॥
-
 > adhaś cordhvaṁ prasṛtās tasya śākhā
 > guṇa-pravṛddhā viṣaya-pravālāḥ
 > adhaś ca mūlāny anusantatāni
@@ -10422,15 +8642,6 @@ The description of the banyan tree is further explained here. Its branches are s
 The twigs of the tree are considered to be the sense objects. By development of the different modes of nature, we develop different senses, and, by the senses, we enjoy different varieties of sense objects. The source of the senses—the ears, the nose, eyes, etc.—is considered to be the upper twigs, tuned to the enjoyment of different sense objects. The leaves are sound, form, touch-the sense objects. The roots, which are subsidiary, are the by-products of different varieties of suffering and sense enjoyment. Thus we develop attachment and aversion. The tendencies toward piety and impiety are considered to be the secondary roots, spreading in all directions. The real root is from Brahmaloka, and the other roots are in the human planetary systems. After one enjoys the results of virtuous activities in the upper planetary systems, he comes down to this earth and renews his *karma* or fruitive activities for promotion. This planet of human beings is considered the field of activities.
 
 ### Bg 15.3-4
-
-> न रूपमस्येह तथोपलभ्यते
-> नान्तो न चादिर्न च सम्प्रतिष्ठा ।
-> अश्वत्थमेनं सुविरूढमूलं
-> असङ्गशस्त्रेण दृढेन छित्त्वा ॥३॥
-> ततः पदं तत्परिमार्गितव्यं
-> यस्मिन्गता न निवर्तन्ति भूयः ।
-> तमेव चाद्यं पुरुषं प्रपद्ये
-> यतः प्रवृत्तिः प्रसृता पुराणी ॥४॥
 
 > na rūpam asyeha tathopalabhyate
 > nānto na cādir na ca sampratiṣṭhā
@@ -10454,11 +8665,6 @@ Therefore to get out of the entanglement of this strong banyan tree of material 
 
 ### Bg 15.5
 
-> निर्मानमोहा जितसङ्गदोषा
-> अध्यात्मनित्या विनिवृत्तकामाः ।
-> द्वन्द्वैर्विमुक्ताः सुखदुःखसंज्ञैर्-
-> गच्छन्त्यमूढाः पदमव्ययं तत् ॥५॥
-
 > nirmāna-mohā jita-saṅga-doṣā
 > adhyātma-nityā vinivṛtta-kāmāḥ
 > dvandvair vimuktāḥ sukha-duḥkha-saṁjñair
@@ -10471,9 +8677,6 @@ Therefore to get out of the entanglement of this strong banyan tree of material 
 The surrendering process is described here very nicely. The first qualification is that one should not be deluded by pride. Because the conditioned soul is puffed up, thinking himself the lord of material nature, it is very difficult for him to surrender unto the Supreme Personality of Godhead. One should know by the cultivation of real knowledge that he is not lord of material nature; the Supreme Personality of Godhead is the Lord. When one is free from delusion caused by pride, he can begin the process of surrender. For one who is always expecting some honor in this material world, it is not possible to surrender to the Supreme Person. Pride is due to illusion, for although one comes here, stays for a brief time and then goes away, he has the foolish notion that he is the lord of the world. He thus makes all things complicated, and he is always in trouble. The whole world moves under this impression. People are considering that the land, this earth, belongs to human society, and they have divided the land under the false impression that they are the proprietors. One has to get out of this false notion that human society is the proprietor of this world. When one is freed from such a false notion, he becomes free from all the false associations caused by familial, social, and national affections. These fake associations bind one to this material world. After this stage, one has to develop spiritual knowledge. One has to cultivate knowledge of what is actually his own and what is actually not his own. And, when one has an understanding of things as they are, he becomes free from all dual conceptions such as happiness and distress, pleasure and pain. He becomes full in knowledge; then it is possible for him to surrender to the Supreme Personality of Godhead.
 
 ### Bg 15.6
-
-> न तद्भासयते सूर्यो न शशाङ्को न पावकः ।
-> यद्गत्वा न निवर्तन्ते तद्धाम परमं मम ॥६॥
 
 > na tad bhāsayate sūryo
 > na śaśāṅko na pāvakaḥ
@@ -10494,9 +8697,6 @@ The words *paramaṁ mama* are very important here. Actually every nook and corn
 
 ### Bg 15.7
 
-> ममैवांशो जीवलोके जीवभूतः सनातनः ।
-> मनःषष्ठानीन्द्रियाणि प्रकृतिस्थानि कर्षति ॥७॥
-
 > mamaivāṁśo jīva-loke
 > jīva-bhūtaḥ sanātanaḥ
 > manaḥ-ṣaṣṭhānīndriyāṇi
@@ -10514,9 +8714,6 @@ The word *mamaivāṁśaḥ* (fragmental parts and parcels of the Supreme Lord) 
 
 ### Bg 15.8
 
-> शरीरं यदवाप्नोति यच्चाप्युत्क्रामतीश्वरः ।
-> गृहीत्वैतानि संयाति वायुर्गन्धानिवाशयात् ॥८॥
-
 > śarīraṁ yad avāpnoti
 > yac cāpy utkrāmatīśvaraḥ
 > gṛhītvaitāni saṁyāti
@@ -10529,9 +8726,6 @@ The word *mamaivāṁśaḥ* (fragmental parts and parcels of the Supreme Lord) 
 Here the living entity is described as *īśvara,* the controller of his own body. If he likes, he can change his body to a higher grade, and if he likes he can move to a lower class. Minute independence is there. The change his body undergoes depends upon him. At the time of death, the consciousness he has created will carry him on to the next type of body. If he has made his consciousness like that of a cat or dog, he is sure to change to a cat's or dog's body. And, if he has fixed his consciousness on godly qualities, he will change into the form of a demigod. And, if he is in Kṛṣṇa consciousness, he will be transferred to Kṛṣṇaloka in the spiritual world and will associate with Kṛṣṇa. It is a false claim that after the annihilation of this body everything is finished. The individual soul is transmigrating from one body to another, and his present body and present activities are the background of his next body. One gets a different body according to *karma,* and he has to quit this body in due course. It is stated here that the subtle body, which carries the conception of the next body, develops another body in the next life. This process of transmigrating from one body to another and struggling while in the body is called *karṣati* or struggle for existence.
 
 ### Bg 15.9
-
-> श्रोत्रं चक्षुः स्पर्शनं च रसनं घ्राणमेव च ।
-> अधिष्ठाय मनश्चायं विषयानुपसेवते ॥९॥
 
 > śrotraṁ cakṣuḥ sparśanaṁ ca
 > rasanaṁ ghrāṇam eva ca
@@ -10546,9 +8740,6 @@ In other words, if the living entity adulterates his consciousness with the qual
 
 ### Bg 15.10
 
-> उत्क्रामन्तं स्थितं वापि भुञ्जानं वा गुणान्वितम् ।
-> विमूढा नानुपश्यन्ति पश्यन्ति ज्ञानचक्षुषः ॥१०॥
-
 > utkrāmantaṁ sthitaṁ vāpi
 > bhuñjānaṁ vā guṇānvitam
 > vimūḍhā nānupaśyanti
@@ -10561,9 +8752,6 @@ In other words, if the living entity adulterates his consciousness with the qual
 The word *jñāna-cakṣuṣaḥ* is very significant. Without knowledge, one cannot understand how a living entity leaves his present body, nor what form of body he is going to take in the next life, nor even why he is living in a particular type of body. This requires a great amount of knowledge understood from *Bhagavad-gītā* and similar literatures heard from a bona fide spiritual master. One who is trained to perceive all these things is fortunate. Every living entity is quitting his body under certain circumstances; he is living under certain circumstances and enjoying under certain circumstances under the spell of material nature. As a result, he is suffering different kinds of happiness and distress, under the illusion of sense enjoyment. Persons who are everlastingly fooled by lust and desire lose all power of understanding their change of body and their stay in a particular body. They cannot comprehend it. Those who have developed spiritual knowledge, however, can see that the spirit is different from the body and is changing its body and enjoying in different ways. A person in such knowledge can understand how the conditioned living entity is suffering in this material existence. Therefore those who are highly developed in Kṛṣṇa consciousness try their best to give this knowledge to the people in general, for their conditional life is very much troublesome. They should come out of it and be Kṛṣṇa conscious and liberate themselves to transfer to the spiritual world.
 
 ### Bg 15.11
-
-> यतन्तो योगिनश्चैनं पश्यन्त्यात्मन्यवस्थितम् ।
-> यतन्तोऽप्यकृतात्मानो नैनं पश्यन्त्यचेतसः ॥११॥
 
 > yatanto yoginaś cainaṁ
 > paśyanty ātmany avasthitam
@@ -10578,9 +8766,6 @@ There are many transcendentalists in the path of spiritual self-realization, but
 
 ### Bg 15.12
 
-> यदादित्यगतं तेजो जगद्भासयतेऽखिलम् ।
-> यच्चन्द्रमसि यच्चाग्नौ तत्तेजो विद्धि मामकम् ॥१२॥
-
 > yad āditya-gataṁ tejo
 > jagad bhāsayate 'khilam
 > yac candramasi yac cāgnau
@@ -10593,9 +8778,6 @@ There are many transcendentalists in the path of spiritual self-realization, but
 The unintelligent cannot understand how things are taking place. The beginning of knowledge can be established by understanding what the Lord explains here. Everyone sees the sun, moon, fire and electricity. One should simply try to understand that the splendor of the sun, the splendor of the moon, and the splendor of electricity or fire are coming from the Supreme Personality of Godhead. In such a conception of life, the beginning of Kṛṣṇa consciousness, lies a great deal of advancement for the conditioned soul in this material world. The living entities are essentially the parts and parcels of the Supreme Lord, and He is giving herewith the hint how they can come back to Godhead, back to home. From this verse we can understand that the sun is illuminating the whole solar system. There are different universes and solar systems, and there are different suns, moons and planets also. Sunlight is due to the spiritual effulgence in the spiritual sky of the Supreme Lord. With the rise of the sun, the activities of human beings are set up. They set fire to prepare their foodstuff; they set fire to start the factories, etc. So many things are done with the help of fire. Therefore sunrise, fire and moonlight are so pleasing to the living entities. Without their help no living entity can live. So if one can understand that the light and splendor of the sun, moon and fire are emanating from the Supreme Personality of Godhead, Kṛṣṇa, then one's Kṛṣṇa consciousness will begin. By the moonshine, all the vegetables are nourished. The moonshine is so pleasing that people can easily understand that they are living by the mercy of the Supreme Personality of Godhead Kṛṣṇa. Without His mercy there cannot be sun, without His mercy there cannot be moon, and without His mercy there cannot be fire, and without the help of sun, moon and fire, no one can live. These are some thoughts to provoke Kṛṣṇa consciousness in the conditioned soul.
 
 ### Bg 15.13
-
-> गामाविश्य च भूतानि धारयाम्यहमोजसा ।
-> पुष्णामि चौषधीः सर्वाः सोमो भूत्वा रसात्मकः ॥१३॥
 
 > gām āviśya ca bhūtāni
 > dhārayāmy aham ojasā
@@ -10610,9 +8792,6 @@ It is understood that all the planets are floating in the air only by the energy
 
 ### Bg 15.14
 
-> अहं वैश्वानरो भूत्वा प्राणिनां देहमाश्रितः ।
-> प्राणापानसमायुक्तः पचाम्यन्नं चतुर्विधम् ॥१४॥
-
 > ahaṁ vaiśvānaro bhūtvā
 > prāṇināṁ deham āśritaḥ
 > prāṇāpāna-samāyuktaḥ
@@ -10625,11 +8804,6 @@ It is understood that all the planets are floating in the air only by the energy
 According to *Āyur-vedic śāstra,* we understand that there is a fire in the stomach which digests all food sent there. When the fire is not blazing, there is no hunger, and when the fire is in order, we become hungry. Sometimes when the fire is not going nicely, treatment is required. In any case, this fire is representative of the Supreme Personality of Godhead. Vedic *mantras* also confirm that the Supreme Lord or Brahman is situated in the form of fire within the stomach and is digesting all kinds of foodstuff. Therefore since He is helping the digestion of all kinds of foodstuff, the living entity is not independent in the eating process. Unless the Supreme Lord helps him in digesting, there is no possibility of eating. He thus produces and digests foodstuff, and, by His grace, we are enjoying life. In the *Vedānta-sūtra* this is also confirmed: *śabdādibhyo 'ntaḥ pratiṣṭhānāc ca.* The Lord is situated within sound and within the body, within the air and even within the stomach as the digestive force. There are four kinds of foodstuff: some are swallowed, some are chewed, some are licked up, and some are sucked, and He is the digestive force for all of them.
 
 ### Bg 15.15
-
-> सर्वस्य चाहं हृदि सन्निविष्टो
-> मत्तः स्मृतिर्ज्ञानमपोहनञ्च ।
-> वेदैश्च सर्वैरहमेव वेद्यो
-> वेदान्तकृद्वेदविदेव चाहम् ॥१५॥
 
 > sarvasya cāhaṁ hṛdi sanniviṣṭo
 > mattaḥ smṛtir jñānam apohanaṁ ca
@@ -10646,9 +8820,6 @@ The Supreme Lord is situated as Paramātmā in everyone's heart, and it is from 
 
 ### Bg 15.16
 
-> द्वाविमौ पुरुषौ लोके क्षरश्चाक्षर एव च ।
-> क्षरः सर्वाणि भूतानि कूटस्थोऽक्षर उच्यते ॥१६॥
-
 > dvāv imau puruṣau loke
 > kṣaraś cākṣara eva ca
 > kṣaraḥ sarvāṇi bhūtāni
@@ -10663,9 +8834,6 @@ As already explained, the Lord in His incarnation as Vyāsadeva compiled the *Ve
 According to the statement of the Supreme Personality of Godhead, Lord Kṛṣṇa, there are two classes of men. The *Vedas* give evidence of this, so there is no doubt about it. The living entities, who are struggling in this world with the mind and five senses, have their material bodies which are changing as long as the living entities are conditioned. One's body changes due to contact with matter; matter is changing, so the living entity appears to be changing. But in the spiritual world the body is not made of matter; therefore there is no change. In the material world the living entity undergoes six changes—birth, growth, duration, reproduction, then dwindling and vanishing. These are the changes of the material body. But in the spiritual world the body does not change; there is no old age, there is no birth, there is no death. There all exists in oneness. It is more clearly explained as *sarvāṇi bhūtāni:* any living entity who has come in contact with matter, beginning from the first created being, Brahmā, down to a small ant, is changing its body; therefore they are all fallible. In the spiritual world, however, they are always liberated in oneness.
 
 ### Bg 15.17
-
-> उत्तमः पुरुषस्त्वन्यः परमात्मेत्युधाहृतः ।
-> यो लोकत्रयमाविश्य बिभर्त्यव्यय ईश्वरः ॥१७॥
 
 > uttamaḥ puruṣas tv anyaḥ
 > paramātmety udāhṛtaḥ
@@ -10689,9 +8857,6 @@ It is incorrect to think of the Supreme Lord and the living entities as being on
 
 ### Bg 15.18
 
-> यस्मात्क्षरमतीतोऽहमक्षरादपि चोत्तमः ।
-> अतोऽस्मि लोके वेदे च प्रथितः पुरुषोत्तमः ॥१८॥
-
 > yasmāt kṣaram atīto 'ham
 > akṣarād api cottamaḥ
 > ato 'smi loke vede ca
@@ -10704,9 +8869,6 @@ It is incorrect to think of the Supreme Lord and the living entities as being on
 No one can surpass the Supreme Personality of Godhead, Kṛṣṇa—neither the conditioned soul nor the liberated soul. He is, therefore, the greatest of personalities. Now it is clear here that the living entities and the Supreme Personality of Godhead are individuals. The difference is that the living entities, either in the conditioned state or in the liberated state, cannot surpass in quantity the inconceivable potencies of the Supreme Personality of Godhead.
 
 ### Bg 15.19
-
-> यो मामेवमसम्मूढो जानाति पुरुषोत्तमम् ।
-> स सर्वविद्भजति मां सर्वभावेन भारत ॥१९॥
 
 > yo mām evam asammūḍho
 > jānāti puruṣottamam
@@ -10724,9 +8886,6 @@ Vedic knowledge is called *śruti* learning by aural reception. One should actua
 The word *bhajate* is very significant. In many places the word *bhajate* is expressed in relationship with the service of the Supreme Lord. If a person is engaged in full Kṛṣṇa consciousness in devotional service of the Lord, it is to be understood that he has understood all the Vedic knowledge. In the Vaiṣṇava *paramparā* it is said that if one is engaged in the devotional service of Kṛṣṇa, then there is no need for a spiritual process to understand the Supreme Absolute Truth. He has already come to the post because he is engaged in the devotional service of the Lord. He has ended all preliminary processes of understanding; similarly, if anyone, after speculating for hundreds of thousands of lives, does not come to the point that Kṛṣṇa is the Supreme Personality of Godhead and that one has to surrender there, all his speculation for so many years and lives is a useless waste of time.
 
 ### Bg 15.20
-
-> इति गुह्यतमं शास्त्रमिदमुक्तं मयानघ ।
-> एतद्बुद्ध्वा बुद्धिमान्स्यात्कृतकृत्यश्च भारत ॥२०॥
 
 > iti guhyatamaṁ śāstram
 > idam uktaṁ mayānagha
@@ -10750,14 +8909,6 @@ While performing devotional service in the association of pure devotees in full 
 ## Chapter 16
 
 ### Bg 16.1-3
-
-> श्रीभगवानुवाच ।
-> अभयं सत्त्वसंशुद्धिर्ज्ञानयोगव्यवस्थितिः ।
-> दानं दमश्च यज्ञश्च स्वाध्यायस्तप आर्जवम् ॥१॥
-> अहिंसा सत्यमक्रोधस्त्यागः शान्तिरपैशुनम् ।
-> दया भूतेष्वलोलुप्त्वं मार्दवं ह्रीरचापलम् ॥२॥
-> तेजः क्षमा धृतिः शौचमद्रोहो नातिमानिता ।
-> भवन्ति सम्पदं दैवीमभिजातस्य भारत ॥३॥
 
 > śrī-bhagavān uvāca
 > abhayaṁ sattva-saṁśuddhir
@@ -10809,9 +8960,6 @@ All these sixteen qualifications mentioned are transcendental qualities. They sh
 
 ### Bg 16.4
 
-> दम्भो दर्पोऽभिमानश्च क्रोधः पारुष्यमेव च ।
-> अज्ञानं चाभिजातस्य पार्थ सम्पदमासुरीम् ॥४॥
-
 > dambho darpo 'bhimānaś ca
 > krodhaḥ pāruṣyam eva ca
 > ajñānaṁ cābhijātasya
@@ -10824,9 +8972,6 @@ All these sixteen qualifications mentioned are transcendental qualities. They sh
 In this verse, the royal road to hell is described. The demoniac want to make a show of religion and advancement in spiritual science, although they do not follow the principles. They are always arrogant or proud in possessing some type of education or so much wealth. They desire to be worshiped by others, and demand respectability, although they do not command respect. Over trifles they become very angry and speak harshly, not gently. They do not know what should be done and what should not be done. They do everything whimsically, according to their own desire, and they do not recognize any authority. These demoniac qualities are taken on by them from the beginning of their bodies in the wombs of their mothers, and as they grow they manifest all these inauspicious qualities.
 
 ### Bg 16.5
-
-> दैवी सम्पद्विमोक्षाय निबन्धायासुरी मता ।
-> मा शुचः सम्पदं दैवीमभिजातोऽसि पाण्डव ॥५॥
 
 > daivī sampad vimokṣāya
 > nibandhāyāsurī matā
@@ -10841,9 +8986,6 @@ Lord Kṛṣṇa encouraged Arjuna by telling him that he was not born with demo
 
 ### Bg 16.6
 
-> द्वौ भूतसर्गौ लोकेऽस्मिन्दैव आसुर एव च ।
-> दैवो विस्तरशः प्रोक्त आसुरं पार्थ मे शृणु ॥६॥
-
 > dvau bhūta-sargau loke 'smin
 > daiva āsura eva ca
 > daivo vistaraśaḥ prokta
@@ -10856,9 +8998,6 @@ Lord Kṛṣṇa encouraged Arjuna by telling him that he was not born with demo
 Lord Kṛṣṇa, having assured Arjuna that he was born with the divine qualities, is now describing the demoniac way. The conditioned living entities are divided into two classes in this world. Those who are born with divine qualities follow a regulated life; that is to say they abide by the injunctions in scriptures and by the authorities. One should perform duties in the light of authoritative scripture. This mentality is called divine. One who does not follow the regulative principles as they are laid down in the scriptures and who acts according to his whims is called demoniac or asuric. There is no other criterion but obedience to the regulative principles of scriptures. It is mentioned in Vedic literature that both the demigods and the demons are born of the Prajāpati; the only difference is that one class obeys the Vedic injunctions and the other does not.
 
 ### Bg 16.7
-
-> प्रवृत्तिं च निवृत्तिं च जना न विदुरासुराः ।
-> न शौचं नापि चाचारो न सत्यं तेषु विद्यते ॥७॥
 
 > pravṛttiṁ ca nivṛttiṁ ca
 > janā na vidur āsurāḥ
@@ -10877,9 +9016,6 @@ As for behavior, there are many rules and regulations guiding human behavior, su
 
 ### Bg 16.8
 
-> असत्यमप्रतिष्ठं ते जगदाहुरनीश्वरम् ।
-> अपरस्परसम्भूतं किमन्यत्कामहैतुकम् ॥८॥
-
 > asatyam apratiṣṭhaṁ te
 > jagad āhur anīśvaram
 > aparaspara-sambhūtaṁ
@@ -10892,9 +9028,6 @@ As for behavior, there are many rules and regulations guiding human behavior, su
 The demoniac conclude that the world is phantasmagoria. There is no cause, no effect, no controller, no purpose: everything is unreal. They say that this cosmic manifestation arises due to chance material actions and reactions. They do not think that the world was created by God for a certain purpose. They have their own theory: that the world has come about in its own way and that there is no reason to believe that there is a God behind it. For them there is no difference between spirit and matter, and they do not accept the Supreme Spirit. Everything is matter only, and the whole cosmos is supposed to be a mass of ignorance. According to them, everything is void, and whatever manifestation exists is due to our ignorance in perception. They take it for granted that all manifestation of diversity is a display of ignorance. Just as in a dream we may create so many things, which actually have no existence, so when we are awake we shall see that everything is simply a dream. But factually, although the demons say that life is a dream, they are very expert in enjoying this dream. And so, instead of acquiring knowledge, they become more and more implicated in their dreamland. They conclude that as a child is simply the result of sexual intercourse between man and woman, this world is born without any soul. For them it is only a combination of matter that has produced the living entities, and there is no question of the existence of the soul. As many living creatures come out from perspiration and from a dead body without any cause, similarly, the whole living world has come out of the material combinations of the cosmic manifestation. Therefore material nature is the cause of this manifestation, and there is no other cause. They do not believe in the words of Kṛṣṇa in *Bhagavad-gītā: mayādhyakṣeṇa prakṛtiḥ sūyate sa-carācaram.* "Under My direction the whole material world is moving." In other words, amongst the demons there is no perfect knowledge of the creation of this world; every one of them has some particular theory of his own. According to them, one interpretation of the scriptures is as good as another, for they do not believe in a standard understanding of the scriptural injunctions.
 
 ### Bg 16.9
-
-> एतां दृष्टिमवष्टभ्य नष्टात्मानोऽल्पबुद्धयः ।
-> प्रभवन्त्युग्रकर्माणः क्षयाय जगतोऽहिताः ॥९॥
 
 > etāṁ dṛṣṭim avaṣṭabhya
 > naṣṭātmāno 'lpa-buddhayaḥ
@@ -10909,9 +9042,6 @@ The demoniac are engaged in activities that will lead the world to destruction. 
 
 ### Bg 16.10
 
-> काममाश्रित्य दुष्पूरं दम्भमानमदान्विताः ।
-> मोहाद्गृहीत्वासद्ग्राहान्प्रवर्तन्तेऽशुचिव्रताः ॥१०॥
-
 > kāmam āśritya duṣpūraṁ
 > dambha-māna-madānvitāḥ
 > mohād gṛhītvāsad-grāhān
@@ -10924,11 +9054,6 @@ The demoniac are engaged in activities that will lead the world to destruction. 
 The demoniac mentality is described here. The demons' lust is never satiated. They will go on increasing and increasing their insatiable desires for material enjoyment. Although they are always full of anxieties on account of accepting nonpermanent things, they still continue to engage in such activities out of illusion. They have no knowledge and cannot tell that they are heading the wrong way. Accepting nonpermanent things, such demoniac people create their own God, create their own hymns and chant accordingly. The result is that they become more and more attracted to two things—sex enjoyment and accumulation of material wealth. The word *aśuci-vratāḥ,* unclean vow, is very significant in this connection. Such demoniac people are only attracted by wine, women, gambling and meat eating; those are their *aśuci,* unclean habits. Induced by pride and false prestige, they create some principles of religion which are not approved by the Vedic injunctions. Although such demoniac people are most abominable in the world, still, by artificial means, the world creates a false honor for them. Although they are gliding toward hell, they consider themselves very much advanced.
 
 ### Bg 16.11-12
-
-> चिन्तामपरिमेयां च प्रलयान्तामुपाश्रिताः ।
-> कामोपभोगपरमा एतावदिति निश्चिताः ॥११॥
-> आशापाशशतैर्बद्धाः कामक्रोधपरायणाः ।
-> ईहन्ते कामभोगार्थमन्यायेनार्थसञ्चयान् ॥१२॥
 
 > cintām aparimeyāṁ ca
 > pralayāntām upāśritāḥ
@@ -10949,13 +9074,6 @@ The demoniac accept that the enjoyment of the senses is the ultimate goal of lif
 The demoniac person, who has no faith in God or the Supersoul within himself, performs all kinds of sinful activities simply for sense gratification. He does not know that there is a witness sitting within his heart. The Supersoul is observing the activities of the individual soul. As it is stated in the Vedic literature, the *Upaniṣads,* there are two birds sitting in one tree; the one is acting and enjoying or suffering the fruits of the branches, and the other is witnessing. But one who is demoniac has no knowledge of Vedic scripture, nor has he any faith; therefore he feels free to do anything for sense enjoyment, regardless of the consequences.
 
 ### Bg 16.13-15
-
-> इदमद्य मया लब्धमिमं प्राप्स्ये मनोरथम् ।
-> इदमस्तीदमपि मे भविष्यति पुनर्धनम् ॥१३॥
-> असौ मया हतः शत्रुर्हनिष्ये चापरानपि ।
-> ईश्वरोऽहमहं भोगी सिद्धोऽहं बलवान्सुखी ॥१४॥
-> आढ्योऽभिजनवानस्मि कोऽन्योऽस्ति सदृशो मया ।
-> यक्ष्ये दास्यामि मोदिष्य इत्यज्ञानविमोहिताः ॥१५॥
 
 > idam adya mayā labdham
 > imaṁ prāpsye manoratham
@@ -10978,9 +9096,6 @@ The demoniac person, who has no faith in God or the Supersoul within himself, pe
 
 ### Bg 16.16
 
-> अनेकचित्तविभ्रान्ता मोहजालसमावृताः ।
-> प्रसक्ताः कामभोगेषु पतन्ति नरकेऽशुचौ ॥१६॥
-
 > aneka-citta-vibhrāntā
 > moha-jāla-samāvṛtāḥ
 > prasaktāḥ kāma-bhogeṣu
@@ -10998,9 +9113,6 @@ Although the demoniac person sees others equally rich and influential, or even m
 
 ### Bg 16.17
 
-> आत्मसम्भाविताः स्तब्धा धनमानमदान्विताः ।
-> यजन्ते नामयज्ञैस्ते दम्भेनाविधिपूर्वकम् ॥१७॥
-
 > ātma-sambhāvitāḥ stabdhā
 > dhana-māna-madānvitāḥ
 > yajante nāma-yajñais te
@@ -11013,9 +9125,6 @@ Although the demoniac person sees others equally rich and influential, or even m
 Thinking themselves all in all, not caring for any authority or scripture, the demoniac sometimes perform so-called religious or sacrificial rites. And since they do not believe in authority, they are very impudent. This is due to illusion caused by accumulating some wealth and false prestige. Sometimes such demons take up the role of preacher, mislead the people, and become known as religious reformers or as incarnations of God. They make a show of performing sacrifices, or they worship the demigods, or manufacture their own God. Common men advertise them as God and worship them, and by the foolish they are considered advanced in the principles of religion, or in the principles of spiritual knowledge. They take the dress of the renounced order of life and engage in all nonsense in that dress. Actually there are so many restrictions for one who has renounced this world. The demons, however, do not care for such restrictions. They think that whatever path one can create is one's own path; there is no such thing as a standard path one has to follow. The word *avidhi-pūrvakam,* meaning disregard for the rules and regulations, is especially stressed here. These things are always due to ignorance and illusion.
 
 ### Bg 16.18
-
-> अहंकारं बलं दर्पं कामं क्रोधं च संश्रिताः ।
-> मामात्मपरदेहेषु प्रद्विषन्तोऽभ्यसूयकाः ॥१८॥
 
 > ahaṅkāraṁ balaṁ darpaṁ
 > kāmaṁ krodhaṁ ca saṁśritāḥ
@@ -11030,9 +9139,6 @@ A demoniac person, being always against God's supremacy, does not like to believ
 
 ### Bg 16.19
 
-> तानहं द्विषतः क्रुरान्संसारेषु नराधमान् ।
-> क्षिपाम्यजस्रमशुभानासुरीष्वेव योनिषु ॥१९॥
-
 > tān ahaṁ dviṣataḥ krūrān
 > saṁsāreṣu narādhamān
 > kṣipāmy ajasram aśubhān
@@ -11045,9 +9151,6 @@ A demoniac person, being always against God's supremacy, does not like to believ
 In this verse it is clearly indicated that the placing of a particular individual soul in a particular body is the prerogative of the supreme will. The demoniac person may not agree to accept the supremacy of the Lord, and it is a fact that he may act according to his own whims, but his next birth will depend upon the decision of the Supreme Personality of Godhead and not on himself. In the *Śrīmad-Bhāgavatam,* Third Canto, it is stated that an individual soul, after his death, is put into the womb of a mother where he gets a particular type of body under the supervision of superior power. Therefore in the material existence we find so many species of life—animals, insects, men, and so on. All are arranged by the superior power. They are not accidental. As for the demoniac, it is clearly said here that they are perpetually put into the wombs of demons, and thus they continue to be envious, the lowest of mankind. Such demoniac species of life are held to be always full of lust, always violent and hateful and always unclean. They are just like so many beasts in a jungle.
 
 ### Bg 16.20
-
-> आसुरीं योनिमापन्ना मूढा जन्मनि जन्मनि ।
-> मामप्राप्यैव कौन्तेय ततो यान्त्यधमां गतिम् ॥२०॥
 
 > āsurīṁ yonim āpannā
 > mūḍhā janmani janmani
@@ -11062,9 +9165,6 @@ It is known that God is all-merciful, but here we find that God is never mercifu
 
 ### Bg 16.21
 
-> त्रिविधं नरकस्येदं द्वारं नाशनमात्मनः ।
-> कामः क्रोधस्तथा लोभस्तस्मादेतत्त्रयं त्यजेत् ॥२१॥
-
 > tri-vidhaṁ narakasyedaṁ
 > dvāraṁ nāśanam ātmanaḥ
 > kāmaḥ krodhas tathā lobhas
@@ -11078,9 +9178,6 @@ The beginning of demoniac life is described herein. One tries to satisfy his lus
 
 ### Bg 16.22
 
-> एतैर्विमुक्तः कौन्तेय तमोद्वारैस्त्रिभिर्नरः ।
-> आचरत्यात्मनः श्रेयस्ततो याति परां गतिम् ॥२२॥
-
 > etair vimuktaḥ kaunteya
 > tamo-dvārais tribhir naraḥ
 > ācaraty ātmanaḥ śreyas
@@ -11093,9 +9190,6 @@ The beginning of demoniac life is described herein. One tries to satisfy his lus
 One should be very careful of these three enemies to human life: lust, anger, and greed. The more a person is freed from lust, anger and greed, the more his existence becomes pure. Then he can follow the rules and regulations enjoined in the Vedic literature. By following the regulative principles of human life, one gradually raises himself to the platform of spiritual realization. If one is so fortunate, by such practice, to rise to the platform of Kṛṣṇa consciousness, then success is guaranteed for him. In the Vedic literature, the ways of action and reaction are prescribed to enable one to come to the stage of purification. The whole method is based on giving up lust, greed and anger. By cultivating knowledge of this process, one can be elevated to the highest position of self-realization; this self-realization is perfected in devotional service. In that devotional service, the liberation of the conditioned soul is guaranteed. Therefore, according to the Vedic system, there are instituted the four orders of life and the four statuses of life, called the caste system and the spiritual order system. There are different rules and regulations for different castes or divisions of society, and if a person is able to follow them, he will be automatically raised to the highest platform of spiritual realization. Then he can have liberation without a doubt.
 
 ### Bg 16.23
-
-> यः शास्त्रविधिमुत्सृज्य वर्तते कामकारतः ।
-> न स सिद्धिमवाप्नोति न सुखं न परां गतिम् ॥२३॥
 
 > yaḥ śāstra-vidhim utsṛjya
 > vartate kāma-kārataḥ
@@ -11111,9 +9205,6 @@ As described before, the *śāstra-vidhim,* or the direction of the *śāstra,* 
 The word *kāma-cārataḥ* is very significant. A person who knowingly violates the rules acts in lust. He knows that this is forbidden, still he acts. This is called acting whimsically. He knows that this should be done, but still he does not do it; therefore he is called whimsical. Such persons are destined to be condemned by the Supreme Lord. Such persons cannot have the perfection which is meant for the human life. The human life is especially meant for purifying one's existence, and one who does not follow the rules and regulations cannot purify himself, nor can he attain the real stage of happiness.
 
 ### Bg 16.24
-
-> तस्माच्छास्त्रं प्रमाणं ते कार्याकार्यव्यवस्थितौ ।
-> ज्ञात्वा शास्त्रविधानोक्तं कर्म कर्तुमिहार्हसि ॥२४॥
 
 > tasmāc chāstraṁ pramāṇaṁ te
 > kāryākārya-vyavasthitau
@@ -11136,10 +9227,6 @@ In human society, aversion to the principles of understanding the Supreme Person
 
 ### Bg 17.1
 
-> अर्जुन उवाच ।
-> ये शास्त्रविधिमुत्सृज्य यजन्ते श्रद्धयान्विताः ।
-> तेषां निष्ठा तु का कृष्ण सत्त्वमाहो रजस्तमः ॥१॥
-
 > arjuna uvāca
 > ye śāstra-vidhim utsṛjya
 > yajante śraddhayānvitāḥ
@@ -11153,10 +9240,6 @@ In human society, aversion to the principles of understanding the Supreme Person
 In the Fourth Chapter, thirty-ninth verse, it is said that a person faithful to a particular type of worship gradually becomes elevated to the stage of knowledge and attains the highest perfectional stage of peace and prosperity. In the Sixteenth Chapter, it is concluded that one who does not follow the principles laid down in the scriptures is called an *asura,* demon, and one who follows the scriptural injunctions faithfully is called a *deva,* or demigod. Now, if one, with faith, follows some rules which are not mentioned in the scriptural injunctions, what is his position? This doubt of Arjuna is to be cleared by Kṛṣṇa. Are those who create some sort of God by selecting a human being and placing their faith in him worshiping in goodness, passion or ignorance? Do such persons attain the perfectional stage of life? Is it possible for them to be situated in real knowledge and elevate themselves to the highest perfectional stage? Do those who do not follow the rules and regulations of the scriptures but who have faith in something and worship gods and demigods and men attain success in their effort? Arjuna is putting these questions to Kṛṣṇa.
 
 ### Bg 17.2
-
-> श्रीभगवानुवाच ।
-> त्रिविधा भवति श्रद्धा देहिनां सा स्वभावजा ।
-> सात्त्विकी राजसी चैव तामसी चेति तां शृणु ॥२॥
 
 > śrī-bhagavān uvāca
 > tri-vidhā bhavati śraddhā
@@ -11172,9 +9255,6 @@ Those who know the rules and regulations of the scriptures, but, out of laziness
 
 ### Bg 17.3
 
-> सत्त्वानुरूपा सर्वस्य श्रद्धा भवति भारत ।
-> श्रद्धामयोऽयं पुरुषो यो यच्छ्रद्धः स एव सः ॥३॥
-
 > sattvānurūpā sarvasya
 > śraddhā bhavati bhārata
 > śraddhā-mayo 'yaṁ puruṣo
@@ -11189,9 +9269,6 @@ Everyone has a particular type of faith, regardless of what he is. But his faith
 The word *sattva,* or faith, is very significant in this verse. *Sattva* or faith always comes out of the works of goodness. One's faith may be in a demigod or some created God or some mental concoction. It is supposed to be one's strong faith in something that is productive of the works of material goodness. But in material conditional life, no works of material nature are completely purified. They are mixed. They are not in pure goodness. Pure goodness is transcendental; in purified goodness one can understand the real nature of the Supreme Personality of Godhead. As long as one's faith is not completely in purified goodness, the faith is subject to contamination by any of the modes of material nature. The contaminated modes of material nature expand to the heart. Therefore according to the position of the heart in contact with a particular mode of material nature, one's faith is established. It should be understood, that if one's heart is in the mode of goodness, his faith is also in the mode of goodness. If his heart is in the mode of passion, his faith is also in the mode of passion. And if his heart is in the mode of darkness, illusion, his faith is also thus contaminated. Thus we find different types of faith in this world, and there are different types of religions due to different types of faith. The real principle of religious faith is situated in the mode of pure goodness, but because the heart is tainted, we find different types of religious principles. Thus according to different types of faith, there are different kinds of worship.
 
 ### Bg 17.4
-
-> यजन्ते सात्त्विका देवान्यक्षरक्षांसि राजसाः ।
-> प्रेतान्भूतगणांश्चान्ये यजन्ते तामसा जनाः ॥४॥
 
 > yajante sāttvikā devān
 > yakṣa-rakṣāṁsi rājasāḥ
@@ -11210,11 +9287,6 @@ The impersonalists are supposed to be situated in the mode of goodness, and they
 
 ### Bg 17.5-6
 
-> अशास्त्रविहितं घोरं तप्यन्ते ये तपो जनाः ।
-> दम्भाहंकारसंयुक्ताः कामरागबलान्विताः ॥५॥
-> कर्षयन्तः शरीरस्थं भूतग्राममचेतसः ।
-> मां चैवान्तःशरीरस्थं तान्विद्ध्यासुरनिश्चयान् ॥६॥
-
 > aśāstra-vihitaṁ ghoraṁ
 > tapyante ye tapo janāḥ
 > dambhāhaṅkāra-saṁyuktāḥ
@@ -11232,9 +9304,6 @@ The impersonalists are supposed to be situated in the mode of goodness, and they
 There are persons who manufacture modes of austerity and penances which are not mentioned in the scriptural injunctions. For instance, fasting for some ulterior purpose, such as to promote a purely political end, is not mentioned in the scriptural directions. The scriptures recommend fasting for spiritual advancement, not for some political end or social purpose. Persons who take to such austerities are, according to *Bhagavad-gītā,* certainly demoniac. Their acts are against the scriptural injunction and are not beneficial for the people in general. Actually, they act out of pride, false ego, lust and attachment for material enjoyment. By such activities, not only are the combination of material elements of which the body is constructed disturbed, but also the Supreme Personality of Godhead Himself living within the body. Such unauthorized fasting or austerities for some political end are certainly very disturbing to others. They are not mentioned in the Vedic literature. A demoniac person may think that he can force his enemy or other parties to comply with his desire by this method, but sometimes one dies by such fasting. These acts are not approved by the Supreme Personality of Godhead, and He says that those who engage in them are demons. Such demonstrations are insults to the Supreme Personality of Godhead because they are enacted in disobedience to the Vedic scriptural injunctions. The word *acetasaḥ* is significant in this connection—persons of normal mental condition must obey the scriptural injunctions. Those who are not in such a position neglect and disobey the scriptures and manufacture their own way of austerities and penances. One should always remember the ultimate end of the demoniac people, as described in the previous chapter. The Lord forces them to take birth in the womb of demoniac persons. Consequently they will live by demoniac principles life after life without knowing their relationship with the Supreme Personality of Godhead. If, however, such persons are fortunate enough to be guided by a spiritual master who can direct them to the path of Vedic wisdom, they can get out of this entanglement and ultimately achieve the supreme goal.
 
 ### Bg 17.7
-
-> आहारस्त्वपि सर्वस्य त्रिविधो भवति प्रियः ।
-> यज्ञस्तपस्तथा दानं तेषां भेदमिमं शृणु ॥७॥
 
 > āhāras tv api sarvasya
 > tri-vidho bhavati priyaḥ
@@ -11258,13 +9327,6 @@ Foods in the mode of goodness increase the duration of life, purify one's existe
 Thc purpose of food is to increase the duration of life, purify the mind and aid bodily strength. This is its only purpose. In the past, great authorities selected those foods that best aid health and increase life's duration, such as milk products, sugar, rice, wheat, fruits and vegetables. These foods are very dear to those in the mode of goodness. Some other foods, such as baked corn and molasses, while not very palatable in themselves, can be made pleasant when mixed with milk or other foods. They are then in the mode of goodness. All these foods are pure by nature. They are quite distinct from untouchable things like meat and liquor. Fatty foods, as mentioned in the eighth verse, have no connection with animal fat obtained by slaughter. Animal fat is available in the form of milk, which is the most wonderful of all foods. Milk, butter, cheese and similar products give animal fat in a form which rules out any need for the killing of innocent creatures. It is only through brute mentality that this killing goes on. The civilized method of obtaining needed fat is by milk. Slaughter is the way of subhumans. Protein is amply available through split peas, dhall, whole wheat, etc. Foods in the mode of passion, which are bitter, too salty, or too hot or overly mixed with red pepper, cause misery by producing mucous in the stomach, leading to disease. Foods in the mode of ignorance or darkness are essentially those that are not fresh. Any food cooked more than three hours before it is eaten (except prasādam, food offered to the Lord) is considered to be in the mode of darkness. Because they are decomposing, such foods give a bad odor, which often attracts people in this mode but repulses those in the mode of goodness. Remnants of food may be eaten only when they are part of a meal that was first offered to the Supreme Lord or first eaten by saintly persons, especially the spiritual master. Otherwise the remnants of food are considered to be in the mode of darkness, and they increase infection or disease. Such foodstuffs, although very palatable to persons in the mode of darkness, are neither liked nor even touched by those in the mode of goodness. The best food is the remnant of what is offered to the Supreme Personality of Godhead. In Bhagavad-gītā the Supreme Lord says that He accepts preparations of vegetables, flour and milk when offered with devotion. Patraṁ puṣpaṁ phalaṁ toyam. Of course, devotion and love are the chief things which the Supreme Personality of Godhead accepts. But it is also mentioned that the prasādam should be prepared in a particular way. Any food prepared by the injunction of the scripture offered to the Supreme Personality of Godhead can be taken even if prepared long, long ago, because such food is transcendental. Therefore to make food antiseptic, eatable and palatable for all persons, one should offer food to the Supreme Personality of Godhead.
 
 ### Bg 17.8-10
-
-> आयुःसत्त्वबलारोग्यसुखप्रीतिविवर्धनाः ।
-> रस्याः स्निग्धाः स्थिरा हृद्या आहाराः सात्त्विकप्रियाः ॥८॥
-> कट्वम्ललवणात्युष्णतीक्ष्णरूक्षविदाहिनः ।
-> आहारा राजसस्येष्टा दुःखशोकामयप्रदाः ॥९॥
-> यातयामं गतरसं पूति पर्युषितं च यत् ।
-> उच्छिष्टमपि चामेध्यं भोजनं तामसप्रियम् ॥१०॥
 
 > āyuḥ-sattva-balārogya-
 > sukha-prīti-vivardhanāḥ
@@ -11293,9 +9355,6 @@ Remnants of food may be eaten only when they are part of a meal that was first o
 
 ### Bg 17.11
 
-> अफलाङ्क्षिभिर्यज्ञो विधिदृष्टो य इज्यते ।
-> यष्टव्यमेवेति मनः समाधाय स सात्त्विकः ॥११॥
-
 > aphalākāṅkṣibhir yajño
 > vidhi-diṣṭo ya ijyate
 > yaṣṭavyam eveti manaḥ
@@ -11308,9 +9367,6 @@ Remnants of food may be eaten only when they are part of a meal that was first o
 The general tendency is to offer sacrifice with some purpose in mind, but here it is stated that sacrifice should be performed without any such desire. It should be done as a matter of duty. Take, for example, the performance of rituals in temples or in churches. Generally they are performed with the purpose of material benefit, but that is not in the mode of goodness. One should go to a temple or church as a matter of duty, offer respect to the Supreme Personality of Godhead and offer flowers and eatables. Everyone thinks that there is no use in going to the temple just to worship God. But worship for economic benefit is not recommended in the scriptural injunction. One should go simply to offer respect to the Deity. That will place one in the mode of goodness. It is the duty of every civilized man to obey the injunctions of the scriptures and offer respect to the Supreme Personality of Godhead.
 
 ### Bg 17.12
-
-> अभिसन्धाय तु फलं दम्भार्थमपि चैव यत् ।
-> इज्यते भरतश्रेष्ठ तं यज्ञं विद्धि राजसम् ॥१२॥
 
 > abhisandhāya tu phalaṁ
 > dambhārtham api caiva yat
@@ -11325,9 +9381,6 @@ Sometimes sacrifices and rituals are performed for elevation to the heavenly kin
 
 ### Bg 17.13
 
-> विधिहीनमसृष्टान्नं मन्त्रहीनमदक्षिणम् ।
-> श्रद्धाविरहितं यज्ञं तामसं परिचक्षते ॥१३॥
-
 > vidhi-hīnam asṛṣṭānnaṁ
 > mantra-hīnam adakṣiṇam
 > śraddhā-virahitaṁ yajñaṁ
@@ -11340,9 +9393,6 @@ Sometimes sacrifices and rituals are performed for elevation to the heavenly kin
 Faith in the mode of darkness or ignorance is actually faithlessness. Sometimes people worship some demigod just to make money and then spend the money for recreation, ignoring the scriptural injunctions. Such ceremonial shows of religiosity are not accepted as genuine. They are all in the mode of darkness; they produce a demoniac mentality and do not benefit human society.
 
 ### Bg 17.14
-
-> देवद्विजगुरुप्राज्ञपूजनं शौचमार्जवम् ।
-> ब्रह्मचर्यमहिंसा च शारीरं तप उच्यते ॥१४॥
 
 > deva-dvija-guru-prājña-
 > pūjanaṁ śaucam ārjavam
@@ -11357,9 +9407,6 @@ The Supreme Godhead here explains the different kinds of austerity and penance. 
 
 ### Bg 17.15
 
-> अनुद्वेगकरं वाक्यं सत्यं प्रियहितं च यत् ।
-> स्वाध्यायाभ्यसनं चैव वाङ्मयं तप उच्यते ॥१५॥
-
 > anudvega-karaṁ vākyaṁ
 > satyaṁ priya-hitaṁ ca yat
 > svādhyāyābhyasanaṁ caiva
@@ -11372,9 +9419,6 @@ The Supreme Godhead here explains the different kinds of austerity and penance. 
 One should not speak in such a way as to agitate the minds of others. Of course, when a teacher speaks, he can speak the truth for the instruction of his students, but such a teacher should not speak to others who are not his students if he will agitate their minds. This is penance as far as talking is concerned. Besides that, one should not talk nonsense. When speaking in spiritual circles, one's statements must be upheld by the scriptures. One should at once quote from scriptural authority to back up what he is saying. At the same time, such talk should be very pleasurable to the ear. By such discussions, one may derive the highest benefit and elevate human society. There is a limitless stock of Vedic literature, and one should study this. This is called penance of speech.
 
 ### Bg 17.16
-
-> मनः प्रसादः सौम्यत्वं मौनमात्मविनिग्रहः ।
-> भावसंशुद्धिरित्येतत्तपो मानसमुच्यते ॥१६॥
 
 > manaḥ-prasādaḥ saumyatvaṁ
 > maunam ātma-vinigrahaḥ
@@ -11389,9 +9433,6 @@ To make the mind austere is to detach it from sense gratification. It should be 
 
 ### Bg 17.17
 
-> श्रद्धया परया तप्तं तपस्तत्त्रिविधं नरैः ।
-> अफलाकाङ्क्षिभिर्युक्तैः सात्त्विकं परिचक्षते ॥१७॥
-
 > śraddhayā parayā taptaṁ
 > tapas tat tri-vidhaṁ naraiḥ
 > aphalākāṅkṣibhir yuktaiḥ
@@ -11402,9 +9443,6 @@ To make the mind austere is to detach it from sense gratification. It should be 
 **This threefold austerity, practiced by men whose aim is not to benefit themselves materially but to please the Supreme, is of the nature of goodness.**
 
 ### Bg 17.18
-
-> सत्कारमानपूजार्थं तपो दम्भेन चैव यत् ।
-> क्रियते तदिह प्रोक्तं राजसं चलमध्रुवम् ॥१८॥
 
 > satkāra-māna-pūjārthaṁ
 > tapo dambhena caiva yat
@@ -11419,9 +9457,6 @@ Sometimes penance and austerity are executed to attract people and receive honor
 
 ### Bg 17.19
 
-> मूढग्राहेणात्मनो यत्पीडया क्रियते तपः ।
-> परस्योत्सादनार्थं वा तत्तामसमुदाहृतम् ॥१९॥
-
 > mūḍha-grāheṇātmano yat
 > pīḍayā kriyate tapaḥ
 > parasyotsādanārthaṁ vā
@@ -11435,9 +9470,6 @@ There are instances of foolish penance undertaken by demons like Hiraṇyakaśip
 
 ### Bg 17.20
 
-> दातव्यमिति यद्दानं दीयतेऽनुपकारिणे ।
-> देशे काले च पात्रे च तद्दानं सात्त्विकं स्मृतम् ॥२०॥
-
 > dātavyam iti yad dānaṁ
 > dīyate 'nupakāriṇe
 > deśe kāle ca pātre ca
@@ -11450,9 +9482,6 @@ There are instances of foolish penance undertaken by demons like Hiraṇyakaśip
 In the Vedic literature, charity given to a person engaged in spiritual activities is recommended. There is no recommendation for giving charity indiscriminately. Spiritual perfection is always a consideration. Therefore charity is recommended to be given at a place of pilgrimage and at lunar or solar eclipses or at the end of the month or to a qualified *brāhmaṇa* or a Vaiṣṇava (devotee) or in temples. Such charities should be given without any consideration of return. Charity to the poor is sometimes given out of compassion, but if a poor man is not worth giving charity to, then there is no spiritual advancement. In other words, indiscriminate charity is not recommended in the Vedic literature.
 
 ### Bg 17.21
-
-> यत्तु प्रत्युपकारार्थं फलमुद्दिश्य वा पुनः ।
-> दीयते च परिक्लिष्टं तद्दानं राजसं स्मृतम् ॥२१॥
 
 > yat tu pratyupakārārthaṁ
 > phalam uddiśya vā punaḥ
@@ -11469,9 +9498,6 @@ There are many charitable foundations which offer their gifts to institutions wh
 
 ### Bg 17.22
 
-> अदेशकाले यद्दानमपात्रेभ्यश्च दीयते ।
-> असत्कृतमवज्ञातं तत्तामसमुदाहृतम् ॥२२॥
-
 > adeśa-kāle yad dānam
 > apātrebhyaś ca dīyate
 > asat-kṛtam avajñātaṁ
@@ -11484,9 +9510,6 @@ There are many charitable foundations which offer their gifts to institutions wh
 Contributions for indulgence in intoxication and gambling are not encouraged here. That sort of contribution is in the mode of ignorance. Such charity is not beneficial; rather, sinful persons are encouraged. Similarly, if a person gives charity to a suitable person without respect and without attention, that sort of charity is also said to be in the mode of darkness.
 
 ### Bg 17.23
-
-> ॐतत्सदिति निर्देशो ब्रह्मणस्त्रिविधः स्मृतः ।
-> ब्राह्मणास्तेन वेदाश्च यज्ञाश्च विहिताः पुरा ॥२३॥
 
 > oṁ tat sad iti nirdeśo
 > brahmaṇas tri-vidhaḥ smṛtaḥ
@@ -11503,9 +9526,6 @@ One who acts without following the regulations of the scriptures will not attain
 
 ### Bg 17.24
 
-> तस्मादोमित्युदाहृत्य यज्ञदानतपःक्रियाः ।
-> प्रवर्तन्ते विधानोक्ताः सततं ब्रह्मवादिनाम् ॥२४॥
-
 > tasmād oṁ ity udāhṛtya
 > yajña-dāna-tapaḥ-kriyāḥ
 > pravartante vidhānoktāḥ
@@ -11519,9 +9539,6 @@ One who acts without following the regulations of the scriptures will not attain
 
 ### Bg 17.25
 
-> तदित्यनभिसन्धाय फलं यज्ञतपःक्रियाः ।
-> दानक्रियाश्च विविधाः क्रियन्ते मोक्षकाङ्क्षिभिः ॥२५॥
-
 > tad ity anabhisandhāya
 > phalaṁ yajña-tapaḥ-kriyāḥ
 > dāna-kriyāś ca vividhāḥ
@@ -11534,11 +9551,6 @@ One who acts without following the regulations of the scriptures will not attain
 To be elevated to the spiritual position, one should not act for any material gain. Acts should be performed for the ultimate gain of being transferred to the spiritual kingdom, back to home, back to Godhead.
 
 ### Bg 17.26-27
-
-> सद्भावे साधुभावे च सदित्येतत्प्रयुज्यते ।
-> प्रशस्ते कर्मणि तथा सच्छब्दः पार्थ युज्यते ॥२६॥
-> यज्ञे तपसि दाने च स्थितिः सदिति चोच्यते ।
-> कर्म चैव तदर्थीयं सदित्येवाभिधीयते ॥२७॥
 
 > sad-bhāve sādhu-bhāve ca
 > sad ity etat prayujyate
@@ -11557,9 +9569,6 @@ To be elevated to the spiritual position, one should not act for any material ga
 The words *praśaste karmaṇi,* or prescribed duties, indicate that there are many activities prescribed in the Vedic literature which are purificatory processes beginning from parental care up to the end of one's life. Such purificatory processes are adopted for the ultimate liberation of the living entity. In all such activities it is recommended that one should vibrate *om tat sat.* The words *sad-bhāve* and *sādhu-bhāve* indicate the transcendental situation. One who is acting in Kṛṣṇa consciousness is called *sattva,* and one who is fully conscious of activities in Kṛṣṇa consciousness is called *svarūpa.* In the *Śrīmad-Bhāgavatam* it is said that the transcendental subject matter becomes clear in the association of the devotees. Without good association, one cannot achieve transcendental knowledge. When initiating a person or offering the sacred thread, one vibrates the words *om tat sat.* Similarly, in all kinds of yogic performances, the supreme object, *om tat sat* is invoked. These words *om tat sat* are used to perfect all activities. This supreme *om tat sat* makes everything complete.
 
 ### Bg 17.28
-
-> अश्रद्धया हुतं दत्तं तपस्तप्तं कृतं च यत् ।
-> असदित्युच्यते पार्थ न च तत्प्रेत्य नो इह ॥२८॥
 
 > aśraddhayā hutaṁ dattaṁ
 > tapas taptaṁ kṛtaṁ ca yat
@@ -11580,10 +9589,6 @@ In the conditional state, people are attracted to worship demigods, ghosts, or Y
 
 ### Bg 18.1
 
-> अर्जुन उवाच ।
-> संन्यासस्य महाबाहो तत्त्वमिच्छामि वेदितुम् ।
-> त्यागस्य च हृषीकेश पृथक्केशिनिषूदन ॥१॥
-
 > arjuna uvāca
 > sannyāsasya mahā-bāho
 > tattvam icchāmi veditum
@@ -11602,10 +9607,6 @@ Two words used in this verse to address the Supreme Lord—Hṛṣīkeśa and Ke
 
 ### Bg 18.2
 
-> श्रीभगवानुवाच ।
-> काम्यानां कर्मणां न्यासं संन्यासं कवयो विदुः ।
-> सर्वकर्मफलत्यागं प्राहुस्त्यागं विचक्षणाः ॥२॥
-
 > śrī-bhagavān uvāca
 > kāmyānāṁ karmaṇāṁ nyāsaṁ
 > sannyāsaṁ kavayo viduḥ
@@ -11620,9 +9621,6 @@ The performance of activities for results has to be given up. This is the instru
 
 ### Bg 18.3
 
-> त्याज्यं दोषवदित्येके कर्म प्राहुर्मनीषिणः ।
-> यज्ञदानतपःकर्म न त्याज्यमिति चापरे ॥३॥
-
 > tyājyaṁ doṣa-vad ity eke
 > karma prāhur manīṣiṇaḥ
 > yajña-dāna-tapaḥ-karma
@@ -11635,9 +9633,6 @@ The performance of activities for results has to be given up. This is the instru
 There are many activities in the Vedic literatures which are subjects of contention. For instance, it is said that an animal can be killed in a sacrifice, yet some maintain animal killing is completely abominable. Although animal killing in a sacrifice is recommended in the Vedic literature, the animal is not considered to be killed. The sacrifice is to give a new life to the animal. Sometimes the animal is given a new animal life after being killed in the sacrifice, and sometimes the animal is promoted immediately to the human form of life. But there are different opinions among the sages. Some say that animal killing should always be avoided, and others say that for a specific sacrifice it is good. All these different opinions on sacrificial activity are now being clarified by the Lord Himself.
 
 ### Bg 18.4
-
-> निश्चयं शृणु मे तत्र त्यागे भरतसत्तम ।
-> त्यागो हि पुरुषव्याघ्र त्रिविधः सम्प्रकीर्तितः ॥४॥
 
 > niścayaṁ śṛṇu me tatra
 > tyāge bharata-sattama
@@ -11652,9 +9647,6 @@ Although there are differences of opinion about renunciation, here the Supreme P
 
 ### Bg 18.5
 
-> यज्ञदानतपःकर्म न त्याज्यं कार्यमेव तत् ।
-> यज्ञो दानं तपश्चैव पावनानि मनीषिणाम् ॥५॥
-
 > yajña-dāna-tapaḥ-karma
 > na tyājyaṁ kāryam eva tat
 > yajño dānaṁ tapaś caiva
@@ -11667,9 +9659,6 @@ Although there are differences of opinion about renunciation, here the Supreme P
 The *yogīs* should perform acts for the advancement of human society. There are many purificatory processes for advancing a human being to spiritual life. The marriage ceremony, for example, is considered to be one of these sacrifices. It is called *vivāha-yajña.* Should a *sannyāsī,* who is in the renounced order of life and who has given up his family relations, encourage the marriage ceremony? The Lord says here that any sacrifice which is meant for human welfare should never be given up. *Vivāha-yajña,* the marriage ceremony, is meant to regulate the human mind to become peaceful for spiritual advancement. For most men, this *vivāha-yajña* should be encouraged even by persons in the renounced order of life. *Sannyasīs* should never associate with women, but that does not mean that one who is in the lower stages of life, a young man, should not accept a wife in the marriage ceremony. All prescribed sacrifices are meant for achieving the Supreme Lord. Therefore, in the lower stages, they should not be given up. Similarly, charity is for the purification of the heart. If charity is given to suitable persons, as described previously, it leads one to advanced spiritual life.
 
 ### Bg 18.6
-
-> एतान्यपि तु कर्माणि सङ्गं त्यक्त्वा फलानि च ।
-> कर्तव्यानीति मे पार्थ निश्चितं मतमुत्तमम् ॥६॥
 
 > etāny api tu karmāṇi
 > saṅgaṁ tyaktvā phalāni ca
@@ -11684,9 +9673,6 @@ Although all sacrifices are purifying, one should not expect any result by such 
 
 ### Bg 18.7
 
-> नियतस्य तु संन्यासः कर्मणो नोपपद्यते ।
-> मोहात्तस्य परित्यागस्तामसः परिकीर्तितः ॥७॥
-
 > niyatasya tu sannyāsaḥ
 > karmaṇo nopapadyate
 > mohāt tasya parityāgas
@@ -11699,9 +9685,6 @@ Although all sacrifices are purifying, one should not expect any result by such 
 Work for material satisfaction must be given up, but activities which promote one to spiritual activity, like cooking for the Supreme Lord and offering the food to the Lord and then accepting the food, are recommended. It is said that a person in the renounced order of life should not cook for himself. Cooking for oneself is prohibited, but cooking for the Supreme Lord is not prohibited. Similarly, a *sannyāsī* may perform a marriage ceremony to help his disciple in the advancement of Kṛṣṇa consciousness. If one renounces such activities, it is to be understood that he is acting in the mode of darkness.
 
 ### Bg 18.8
-
-> दुःखमित्येव यत्कर्म कायक्लेशभयात्त्यजेत् ।
-> स कृत्वा राजसं त्यागं नैव त्यागफलं लभेत् ॥८॥
 
 > duḥkham ity eva yat karma
 > kāya-kleśa-bhayāt tyajet
@@ -11716,9 +9699,6 @@ One who is in Kṛṣṇa consciousness should not give up earning money out of 
 
 ### Bg 18.9
 
-> कार्यमित्येव यत्कर्म नियतं क्रियतेऽर्जुन ।
-> सङ्गं त्यक्त्वा फलं चैव स त्यागः सात्त्विको मतः ॥९॥
-
 > kāryam ity eva yat karma
 > niyataṁ kriyate 'rjuna
 > saṅgaṁ tyaktvā phalaṁ caiva
@@ -11731,9 +9711,6 @@ One who is in Kṛṣṇa consciousness should not give up earning money out of 
 Prescribed duties must be performed with this mentality. One should act without attachment for the result; he should be disassociated from the modes of work. A man working in Kṛṣṇa consciousness in a factory does not associate himself with the work of the factory, nor with the workers of the factory. He simply works for Kṛṣṇa. And when he gives up the result for Kṛṣṇa, he is acting transcendentally.
 
 ### Bg 18.10
-
-> न द्वेष्ट्यकुशलं कर्म कुशले नानुषज्जते ।
-> त्यागी सत्त्वसमाविष्टो मेधावी छिन्नसंशयः ॥१०॥
 
 > na dveṣṭy akuśalaṁ karma
 > kuśale nānuṣajjate
@@ -11748,9 +9725,6 @@ It is said in *Bhagavad-gītā* that one can never give up work at any time. The
 
 ### Bg 18.11
 
-> न हि देहभृता शक्यं त्यक्तुं कर्माण्यशेषतः ।
-> यस्तु कर्मफलत्यागी स त्यागीत्यभिधीयते ॥११॥
-
 > na hi deha-bhṛtā śakyaṁ
 > tyaktuṁ karmāṇy aśeṣataḥ
 > yas tu karma-phala-tyāgī
@@ -11763,9 +9737,6 @@ It is said in *Bhagavad-gītā* that one can never give up work at any time. The
 A person in Kṛṣṇa consciousness acting in knowledge of his relationship with Kṛṣṇa is always liberated. Therefore he does not have to enjoy or suffer the results of his acts after death.
 
 ### Bg 18.12
-
-> अनिष्टमिष्टं मिश्रं च त्रिविधं कर्मणः फलम् ।
-> भवत्यत्यागिनां प्रेत्य न तु संन्यासिनां क्वचित् ॥१२॥
 
 > aniṣṭam iṣṭaṁ miśraṁ ca
 > tri-vidhaṁ karmaṇaḥ phalam
@@ -11790,11 +9761,6 @@ A question may be raised that since any activity performed must have some reacti
 
 ### Bg 18.13-14
 
-> पञ्चैतानि महाबाहो कारणानि निबोध मे ।
-> साङ्ख्ये कृतान्ते प्रोक्तानि सिद्धये सर्वकर्मणाम् ॥१३॥
-> अधिष्ठानं तथा कर्ता करणं च पृथग्विधम् ।
-> विविधाश्च पृथक्चेष्टा दैवं चैवात्र पञ्चमम् ॥१४॥
-
 > pañcaitāni mahā-bāho
 > kāraṇāni nibodha me
 > sāṅkhye kṛtānte proktāni
@@ -11817,9 +9783,6 @@ The instruments of action are the senses, and by senses the soul acts in various
 
 ### Bg 18.15
 
-> शरीरवाङ्मनोभिर्यत्कर्म प्रारभते नरः ।
-> न्याय्यं वा विपरीतं वा पञ्चैते तस्य हेतवः ॥१५॥
-
 > śarīra-vāṅ-manobhir yat
 > karma prārabhate naraḥ
 > nyāyyaṁ vā viparītaṁ vā
@@ -11832,9 +9795,6 @@ The instruments of action are the senses, and by senses the soul acts in various
 The words "right" and "wrong" are very significant in this verse. Right work is work done in terms of the prescribed directions in the scriptures, and wrong work is work done against the principles of the scriptural injunctions. But whatever is done requires these five factors for its complete performance.
 
 ### Bg 18.16
-
-> तत्रैवं सति कर्तारमात्मानं केवलं तु यः ।
-> पश्यत्यकृतबुद्धित्वान्न स पश्यति दुर्मतिः ॥१६॥
 
 > tatraivaṁ sati kartāram
 > ātmānaṁ kevalaṁ tu yaḥ
@@ -11849,9 +9809,6 @@ A foolish person cannot understand that the Supersoul is sitting as a friend wit
 
 ### Bg 18.17
 
-> यस्य नाहंकृतो भावो बुद्धिर्यस्य न लिप्यते ।
-> हत्वाऽपि स इमाँल्लोकान्न हन्ति न निबध्यते ॥१७॥
-
 > yasya nāhaṅkṛto bhāvo
 > buddhir yasya na lipyate
 > hatvāpi sa imāḹ lokān
@@ -11864,9 +9821,6 @@ A foolish person cannot understand that the Supersoul is sitting as a friend wit
 In this verse the Lord informs Arjuna that the desire not to fight arises from false ego. Arjuna thought himself to be the doer of action, but he did not consider the Supreme sanction within and without. If one does not know that a super sanction is there, why should he act? But one who knows the instrument of work, himself as the worker, and the Supreme Lord as the supreme sanctioner, is perfect in doing everything. Such a person is never in illusion. Personal activity and responsibility arise from false ego and godlessness, or a lack of Kṛṣṇa consciousness. Anyone who is acting in Kṛṣṇa consciousness under the direction of the Supersoul or the Supreme Personality of Godhead, even though killing, does not kill. Nor is he ever affected with the reaction of such killing. When a soldier kills under the command of a superior officer, he is not subject to be judged. But if a soldier kills on his own personal account, then he is certainly judged by a court of law.
 
 ### Bg 18.18
-
-> ज्ञानं ज्ञेयं परिज्ञाता त्रिविधा कर्मचोदना ।
-> करणं कर्म कर्तेति त्रिविधः कर्मसंग्रहः ॥१८॥
 
 > jñānaṁ jñeyaṁ parijñātā
 > tri-vidhā karma-codanā
@@ -11881,9 +9835,6 @@ There are three kinds of impetus for daily work: knowledge, the object of knowle
 
 ### Bg 18.19
 
-> ज्ञानं कर्म च कर्ताच त्रिधैव गुणभेदतः ।
-> प्रोच्यते गुणसङ्ख्याने यथावच्छृणु तान्यपि ॥१९॥
-
 > jñānaṁ karma ca kartā ca
 > tridhaiva guṇa-bhedataḥ
 > procyate guṇa-saṅkhyāne
@@ -11897,9 +9848,6 @@ In the Fourteenth Chapter the three divisions of the modes of material nature we
 
 ### Bg 18.20
 
-> सर्वभूतेषु येनैकं भावमव्ययमीक्षते ।
-> अविभक्तं विभक्तेषु तज्ज्ञानं विद्धि सात्त्विकम् ॥२०॥
-
 > sarva-bhūteṣu yenaikaṁ
 > bhāvam avyayam īkṣate
 > avibhaktaṁ vibhakteṣu
@@ -11907,14 +9855,11 @@ In the Fourteenth Chapter the three divisions of the modes of material nature we
 
 *sarva-bhūteṣu*—in all living entities; *yena*—by whom; *ekam*—one; *bhāvam*—situation; *avyayam*—imperishable; *īkṣate*—does see; *avibhaktam*—undivided; *vibhakteṣu*—in the numberless divided; *tat*—that; *jñānam*—knowledge; *viddhi*—knows; *sāttvikam*—in the mode of goodness.
 
-**That knowledge by which one undivided spiritual nature is seen in all existences, undivided in the divided, is knowledge in the mode of goodness.**
+**That knowledge by which one undivided spiritual nature is seen in all existences, undivided in the divided, is knowledge in the mode of good­ ness. PURPORT**
 
 A person who sees one spirit soul in every living being, whether a demigod, human being, animal, bird, beast, aquatic or plant, possesses knowledge in the mode of goodness. In all living entities, one spirit soul is there, although they have different bodies in terms of their previous work. As described in the Seventh Chapter, the manifestation of the living force in every body is due to the superior nature of the Supreme Lord. Thus to see that one superior nature, that living force, in every body is to see in the mode of goodness. That living energy is imperishable, although the bodies are perishable. The difference is perceived in terms of the body because there are many forms of material existence in conditional life; therefore they appear to be divided. Such impersonal knowledge finally leads to self-realization.
 
 ### Bg 18.21
-
-> पृथक्त्वेन तु यज्ज्ञानं नानाभावान्पृथग्विधान् ।
-> वेत्ति सर्वेषु भूतेषु तज्ज्ञानं विद्धि राजसम् ॥२१॥
 
 > pṛthaktvena tu yaj jñānaṁ
 > nānā-bhāvān pṛthag-vidhān
@@ -11929,9 +9874,6 @@ The concept that the material body is the living entity and that with the destru
 
 ### Bg 18.22
 
-> यत्तु कृत्स्नवदेकस्मिन्कार्ये सक्तमहैतुकम् ।
-> अतत्त्वार्थवदल्पं च तत्तामसमुदाहृतम् ॥२२॥
-
 > yat tu kṛtsna-vad ekasmin
 > kārye saktam ahaitukam
 > atattvārtha-vad alpaṁ ca
@@ -11944,9 +9886,6 @@ The concept that the material body is the living entity and that with the destru
 The "knowledge" of the common man is always in the mode of darkness or ignorance because every living entity in conditional life is born into the mode of ignorance. One who does not develop knowledge through the authorities or scriptural injunctions has knowledge that is limited to the body. He is not concerned about acting in terms of the directions of scripture. For him God is money, and knowledge means the satisfaction of bodily demands. Such knowledge has no connection with the Absolute Truth. It is more or less like the knowledge of the ordinary animals: the knowledge of eating, sleeping, defending and mating. Such knowledge is described here as the product of the mode of darkness. In other words, knowledge concerning the spirit soul beyond this body is called knowledge in the mode of goodness, and knowledge producing many theories and doctrines by dint of mundane logic and mental speculation is the product of the mode of passion, and knowledge concerned with only keeping the body comfortable is said to be in the mode of ignorance.
 
 ### Bg 18.23
-
-> नियतं सङ्गरहितमरागद्वेषतः कृतम् ।
-> अफलप्रेप्सुना कर्म यत्तत्सात्त्विकमुच्यते ॥२३॥
 
 > niyataṁ saṅga-rahitam
 > arāga-dveṣataḥ kṛtam
@@ -11961,9 +9900,6 @@ Regulated occupational duties, as prescribed in the scriptures in terms of the d
 
 ### Bg 18.24
 
-> यत्तु कामेप्सुना कर्म साहंकारेण वा पुनः ।
-> क्रियते बहुलायासं तद्राजसमुदाहृतम् ॥२४॥
-
 > yat tu kāmepsunā karma
 > sāhaṅkāreṇa vā punaḥ
 > kriyate bahulāyāsaṁ
@@ -11974,9 +9910,6 @@ Regulated occupational duties, as prescribed in the scriptures in terms of the d
 **But action performed with great effort by one seeking to gratify his desires, and which is enacted from a sense of false ego, is called action in the mode of passion.**
 
 ### Bg 18.25
-
-> अनुबन्धं क्षयं हिंसामनपेक्ष्य च पौरुषम् ।
-> मोहादारभ्यते कर्म यत्तत्तामसमुच्यते ॥२५॥
 
 > anubandhaṁ kṣayaṁ hiṁsām
 > anapekṣya ca pauruṣam
@@ -11991,9 +9924,6 @@ One has to give account of one's actions to the state or to the agents of the Su
 
 ### Bg 18.26
 
-> मुक्तसङ्गोऽनहंवादी धृत्युत्साहसमन्वितः ।
-> सिद्ध्यसिद्ध्योर्निर्विकारः कर्ता सात्त्विक उच्यते ॥२६॥
-
 > mukta-saṅgo 'nahaṁ-vādī
 > dhṛty-utsāha-samanvitaḥ
 > siddhy-asiddhyor nirvikāraḥ
@@ -12006,9 +9936,6 @@ One has to give account of one's actions to the state or to the agents of the Su
 A person in Kṛṣṇa consciousness is always transcendental to the material modes of nature. He has no expectations for the result of the work entrusted to him because he is above false ego and pride. Still, he is always enthusiastic till the completion of such work. He does not worry about the distress undertaken; he is always enthusiastic. He does not care for success or failure; he is equal both in distress or happiness. Such a worker is situated in the mode of goodness.
 
 ### Bg 18.27
-
-> रागी कर्मफलप्रेप्सुर्लुब्धो हिंसात्मकोऽशुचिः ।
-> हर्षशोकान्वितः कर्ता राजसः परिकीर्तितः ॥२७॥
 
 > rāgī karma-phala-prepsur
 > lubdho hiṁsātmako 'śuciḥ
@@ -12023,9 +9950,6 @@ A person is too much attached to certain kind of work or to the result because h
 
 ### Bg 18.28
 
-> अयुक्तः प्राकृतः स्तब्धः शठो नैष्कृतिकोऽलसः ।
-> विषादी दीर्घसूत्री च कर्ता तामस उच्यते ॥२८॥
-
 > ayuktaḥ prākṛtaḥ stabdhaḥ
 > śaṭho naiṣkṛtiko 'lasaḥ
 > viṣādī dīrgha-sūtrī ca
@@ -12038,9 +9962,6 @@ A person is too much attached to certain kind of work or to the result because h
 In the scriptural injunctions we find what sort of work should be performed and what sort of work should not be performed. Those who do not care for those injunctions engage in work not to be done, and such persons are generally materialistic. They work according to the modes of nature, not according to the injunctions of the scripture. Such workers are not very gentle, and generally they are always cunning and expert in insulting others. They are very lazy; even though they have some duty, they do not do it properly, and they put it aside to be done later on. Therefore they appear to be morose. They procrastinate; anything which can be done in an hour they drag on for years. Such workers are situated in the mode of ignorance.
 
 ### Bg 18.29
-
-> बुद्धेर्भेदं धृतेश्चैव गुणतस्त्रिविधं शृणु ।
-> प्रोच्यमानमशेषेण पृथक्त्वेन धनञ्जय ॥२९॥
 
 > buddher bhedaṁ dhṛteś caiva
 > guṇatas tri-vidhaṁ śṛṇu
@@ -12055,9 +9976,6 @@ Now after explaining knowledge, the object of knowledge and the knower, in three
 
 ### Bg 18.30
 
-> प्रवृत्तिं च निवृत्तिं च कार्याकार्ये भयाभये ।
-> बन्धं मोक्षं च या वेत्ति बुद्धिः सा पार्थ सात्त्विकी ॥३०॥
-
 > pravṛttiṁ ca nivṛttiṁ ca
 > kāryākārye bhayābhaye
 > bandhaṁ mokṣaṁ ca yā vetti
@@ -12070,9 +9988,6 @@ Now after explaining knowledge, the object of knowledge and the knower, in three
 Actions which are performed in terms of the directions of the scriptures are called *pravṛtti,* or actions that deserve to be performed, and actions which are not so directed are not to be performed. One who does not know the scriptural directions becomes entangled in the actions and reactions of work. Understanding which discriminates by intelligence is situated in the mode of goodness.
 
 ### Bg 18.31
-
-> यया धर्ममधर्मं च कार्यं चाकार्यमेव च ।
-> अयथावत्प्रजानाति बुद्धिः सा पार्थ राजसी ॥३१॥
 
 > yayā dharmam adharmaṁ ca
 > kāryaṁ cākāryam eva ca
@@ -12087,9 +10002,6 @@ Intelligence in the mode of passion is always working perversely. It accepts rel
 
 ### Bg 18.32
 
-> अधर्मं धर्ममिति या मन्यते तमसावृता ।
-> सर्वार्थान्विपरीतांश्च बुद्धिः सा पार्थ तामसी ॥३२॥
-
 > adharmaṁ dharmam iti yā
 > manyate tamasāvṛtā
 > sarvārthān viparītāṁś ca
@@ -12100,9 +10012,6 @@ Intelligence in the mode of passion is always working perversely. It accepts rel
 **That understanding which considers irreligion to be religion and religion to be irreligion, under the spell of illusion and darkness, and strives always in the wrong direction, O Pārtha, is in the mode of ignorance.**
 
 ### Bg 18.33
-
-> धृत्या यया धारयते मनःप्राणेन्द्रियक्रियाः ।
-> योगेनाव्यभिचारिण्या धृतिः सा पार्थ सात्त्विकी ॥३३॥
 
 > dhṛtyā yayā dhārayate
 > manaḥ-prāṇendriya-kriyāḥ
@@ -12117,9 +10026,6 @@ Intelligence in the mode of passion is always working perversely. It accepts rel
 
 ### Bg 18.34
 
-> यया तु धर्मकामार्थान्धृत्या धारयतेऽर्जुन ।
-> प्रसङ्गेन फलाकाङ्क्षी धृतिः सा पार्थ राजसी ॥३४॥
-
 > yayā tu dharma-kāmārthān
 > dhṛtyā dhārayate 'rjuna
 > prasaṅgena phalākāṅkṣī
@@ -12132,9 +10038,6 @@ Intelligence in the mode of passion is always working perversely. It accepts rel
 Any person who is always desirous of fruitive results in religious or economic activities, whose only desire is sense gratification, and whose mind, life and senses are thus engaged, is in the mode of passion.
 
 ### Bg 18.35
-
-> यया स्वप्नं भयं शोकं विषादं मदमेव च ।
-> न विमुञ्चति दुर्मेधा धृतिः सा पार्थ तामसी ॥३५॥
 
 > yayā svapnaṁ bhayaṁ śokaṁ
 > viṣādaṁ madam eva ca
@@ -12159,11 +10062,6 @@ A conditioned soul tries to enjoy material happiness again and again. Thus he ch
 
 ### Bg 18.36-37
 
-> सुखं त्विदानीं त्रिविधं शृणु मे भरतर्षभ ।
-> अभ्यासाद्रमते यत्र दुःखान्तं च निगच्छति ॥३६॥
-> यत्तदग्रे विषमिव परिणामेऽमृतोपमम् ।
-> तत्सुखं सात्त्विकं प्रोक्तमात्मबुद्धिप्रसादजम् ॥३७॥
-
 > sukhaṁ tv idānīṁ tri-vidhaṁ
 > śṛṇu me bharatarṣabha
 > abhyāsād ramate yatra
@@ -12184,9 +10082,6 @@ In the pursuit of self-realization, one has to follow many rules and regulations
 
 ### Bg 18.38
 
-> विषयेन्द्रियसंयोगाद्यत्तदग्रेऽमृतोपमम् ।
-> परिणामे विषमिव तत्सुखं राजसं स्मृतम् ॥३८॥
-
 > viṣayendriya-saṁyogād
 > yat tad agre 'mṛtopamam
 > pariṇāme viṣam iva
@@ -12199,9 +10094,6 @@ In the pursuit of self-realization, one has to follow many rules and regulations
 A young man and a young woman meet, and the senses drive the young man to see her, to touch her and to have sexual intercourse. In the beginning this may be very pleasing to the senses, but at the end, or after some time, it becomes just like poison. They are separated or there is divorce, there is lamentation, there is sorrow, etc. Such happiness is always in the mode of passion. Happiness derived from a combination of the senses and the sense objects is always a cause of distress and should be avoided by all means.
 
 ### Bg 18.39
-
-> यदग्रे चानुबन्धे च सुखं मोहनमात्मनः ।
-> निद्रालस्यप्रमादोत्थं तत्तामसमुदाहृतम् ॥३९॥
 
 > yad agre cānubandhe ca
 > sukhaṁ mohanam ātmanaḥ
@@ -12216,9 +10108,6 @@ One who takes pleasure in laziness and in sleep is certainly in the mode of dark
 
 ### Bg 18.40
 
-> न तदस्ति पृथिव्यां वा दिवि देवेषु वा पुनः ।
-> सत्त्वं प्रकृतिजैर्मुक्तं यदेभिः स्यात्त्रिभिर्गुणैः ॥४०॥
-
 > na tad asti pṛthivyāṁ vā
 > divi deveṣu vā punaḥ
 > sattvaṁ prakṛti-jair muktaṁ
@@ -12232,9 +10121,6 @@ The Lord here summarizes the total influence of the three modes of material natu
 
 ### Bg 18.41
 
-> ब्राह्मणक्षत्रियविशां शूद्राणां च परन्तप ।
-> कर्माणि प्रविभक्तानि स्वभावप्रभवैर्गुणैः ॥४१॥
-
 > brāhmaṇa-kṣatriya-viśāṁ
 > śūdrāṇāṁ ca parantapa
 > karmāṇi pravibhaktāni
@@ -12245,9 +10131,6 @@ The Lord here summarizes the total influence of the three modes of material natu
 **Brāhmaṇas, kṣatriyas, vaiśyas and śūdras are distinguished by their qualities of work, O chastiser of the enemy, in accordance with the modes of nature.**
 
 ### Bg 18.42
-
-> शमो दमस्तपः शौचं क्षान्तिरार्जवमेव च ।
-> ज्ञानं विज्ञानमास्तिक्यं ब्रह्मकर्म स्वभावजम् ॥४२॥
 
 > śamo damas tapaḥ śaucaṁ
 > kṣāntir ārjavam eva ca
@@ -12260,9 +10143,6 @@ The Lord here summarizes the total influence of the three modes of material natu
 
 ### Bg 18.43
 
-> शौर्यं तेजो धृतिर्दाक्ष्यं युद्धे चाप्यपलायनम् ।
-> दानमीश्वरभावश्च क्षात्रं कर्म स्वभावजम् ॥४३॥
-
 > śauryaṁ tejo dhṛtir dākṣyaṁ
 > yuddhe cāpy apalāyanam
 > dānam īśvara-bhāvaś ca
@@ -12273,9 +10153,6 @@ The Lord here summarizes the total influence of the three modes of material natu
 **Heroism, power, determination, resourcefulness, courage in battle, generosity, and leadership are the qualities of work for the kṣatriyas.**
 
 ### Bg 18.44
-
-> कृषिगौरक्ष्यवाणिज्यं वैश्यकर्म स्वभावजम् ।
-> परिचर्यात्मकं कर्म शूद्रस्यापि स्वभावजम् ॥४४॥
 
 > kṛṣi-go-rakṣya-vāṇijyaṁ
 > vaiśya-karma svabhāva-jam
@@ -12288,9 +10165,6 @@ The Lord here summarizes the total influence of the three modes of material natu
 
 ### Bg 18.45
 
-> स्वे स्वे कर्मण्यभिरतः संसिद्धिं लभते नरः ।
-> स्वकर्मनिरतः सिद्धिं यथा विन्दति तच्छृणु ॥४५॥
-
 > sve sve karmaṇy abhirataḥ
 > saṁsiddhiṁ labhate naraḥ
 > sva-karma-nirataḥ siddhiṁ
@@ -12301,9 +10175,6 @@ The Lord here summarizes the total influence of the three modes of material natu
 **By following his qualities of work, every man can become perfect. Now please hear from Me how this can be done.**
 
 ### Bg 18.46
-
-> यतः प्रवृत्तिर्भूतानां येन सर्वमिदं ततम् ।
-> स्वकर्मणा तमभ्यर्च्य सिद्धिं विन्दति मानवः ॥४६॥
 
 > yataḥ pravṛttir bhūtānāṁ
 > yena sarvam idaṁ tatam
@@ -12320,9 +10191,6 @@ Everyone should think that he is engaged in a particular type of occupation by H
 
 ### Bg 18.47
 
-> श्रेयान्स्वधर्मो विगुणः परधर्मात्स्वनुष्ठितात् ।
-> स्वभावनियतं कर्म कुर्वन्नाप्नोति किल्बिषम् ॥४७॥
-
 > śreyān sva-dharmo viguṇaḥ
 > para-dharmāt sv-anuṣṭhitāt
 > svabhāva-niyataṁ karma
@@ -12337,9 +10205,6 @@ One's occupational duty is prescribed in *Bhagavad-gītā.* As already discussed
 One should act to satisfy the Supreme Lord. For example, Arjuna was a *kṣatriya.* He was hesitating to fight the other party. But if such fighting is performed for the sake of Kṛṣṇa, the Supreme Personality of Godhead, there need be no fear of degradation. In the business field also, sometimes a merchant has to tell so many lies to make a profit. If he does not do so, there can be no profit. Sometimes a merchant says, "Oh, my dear customer, for you I am making no profit," but one should know that without profit the merchant cannot exist. Therefore it should be taken as a simple lie if a merchant says that he is not making a profit. But the merchant should not think that because he is engaged in an occupation in which the telling of lies is compulsory, he should give up his profession and pursue the profession of a *brāhmaṇa.* That is not recommended. Whether one is a *kṣatriya,* a *vaiśya,* or a *śūdra* doesn't matter, if he serves, by his work, the Supreme Personality of Godhead. Even *brāhmaṇas,* who perform different types of sacrifice, sometimes must kill animals because sometimes animals are sacrificed in such ceremonies. Similarly, if a *kṣatriya* engaged in his own occupation kills an enemy, there is no sin incurred. In the Third Chapter these matters have been clearly and elaborately explained; every man should work for the purpose of *yajña,* or for Viṣṇu, the Supreme Personality of Godhead. Anything done for personal sense gratification is a cause of bondage. The conclusion is that everyone should be engaged according to the particular mode of nature he has acquired, and he should decide to work only to serve the supreme cause of the Supreme Lord.
 
 ### Bg 18.48
-
-> सहजं कर्म कौन्तेय सदोषमपि न त्यजेत् ।
-> सर्वारम्भा हि दोषेण धूमेनाग्निरिवावृताः ॥४८॥
 
 > saha-jaṁ karma kaunteya
 > sa-doṣam api na tyajet
@@ -12356,9 +10221,6 @@ A very nice example is given herein. Although fire is pure, still there is smoke
 
 ### Bg 18.49
 
-> असक्तबुद्धिः सर्वत्र जितात्मा विगतस्पृहः ।
-> नैष्कर्म्यसिद्धिं परमां संन्यासेनाधिगच्छति ॥४९॥
-
 > asakta-buddhiḥ sarvatra
 > jitātmā vigata-spṛhaḥ
 > naiṣkarmya-siddhiṁ paramāṁ
@@ -12372,9 +10234,6 @@ Real renunciation means that one should always think himself part and parcel of 
 
 ### Bg 18.50
 
-> सिद्धिं प्राप्तो यथा ब्रह्म तथाप्नोति निबोध मे ।
-> समासेनैव कौन्तेय निष्ठा ज्ञानस्य या परा ॥५०॥
-
 > siddhiṁ prāpto yathā brahma
 > tathāpnoti nibodha me
 > samāsenaiva kaunteya
@@ -12387,13 +10246,6 @@ Real renunciation means that one should always think himself part and parcel of 
 The Lord describes for Arjuna how one can achieve the highest perfectional stage simply by being engaged in his occupational duty, performing that duty for the Supreme Personality of Godhead. One attains the supreme stage of Brahman simply by renouncing the result of his work for the satisfaction of the Supreme Lord. That is the process of self-realization. Actual perfection of knowledge is in attaining pure Kṛṣṇa consciousness; that is described in the following verses.
 
 ### Bg 18.51-53
-
-> बुद्ध्या विशुद्धया युक्तो धृत्यात्मानं नियम्य च ।
-> शब्दादीन्विषयांस्त्यक्त्वा रागद्वेषौ व्युदस्य च ॥५१॥
-> विविक्तसेवी लघ्वाशी यतवाक्कायमानसः ।
-> ध्यानयोगपरो नित्यं वैराग्यं समुपाश्रितः ॥५२॥
-> अहंकारं बलं दर्पं कामं क्रोधं परिग्रहम् ।
-> विमुच्य निर्ममः शान्तो ब्रह्मभूयाय कल्पते ॥५३॥
 
 > buddhyā viśuddhayā yukto
 > dhṛtyātmānaṁ niyamya ca
@@ -12418,9 +10270,6 @@ When one is purified by knowledge, he keeps himself in the mode of goodness. Thu
 
 ### Bg 18.54
 
-> ब्रह्मभूतः प्रसन्नात्मा न शोचति न काङ्क्षति ।
-> समः सर्वेषु भूतेषु मद्भक्तिं लभते पराम् ॥५४॥
-
 > brahma-bhūtaḥ prasannātmā
 > na śocati na kāṅkṣati
 > samaḥ sarveṣu bhūteṣu
@@ -12435,9 +10284,6 @@ To the impersonalist, achieving the *brahma-bhūta* stage, becoming one with the
 In the material concept of life, when one works for sense gratification, there is misery, but in the absolute world, when one is engaged in pure devotional service, there is no misery. The devotee in Kṛṣṇa consciousness has nothing to lament or desire. Since God is full, a living entity who is engaged in God's service, in Kṛṣṇa consciousness, becomes also full in himself. He is just like a river cleansed of all dirty water. Because a pure devotee has no thought other than Kṛṣṇa, he is naturally always joyful. He does not lament for any material loss or gain because he is full in service of the Lord. He has no desire for material enjoyment because he knows that every living entity is the fragmental part and parcel of the Supreme Lord and therefore eternally a servant. He does not see, in the material world, someone as higher and someone as lower; higher and lower positions are ephemeral, and a devotee has nothing to do with ephemeral appearances or disappearances. For him stone and gold are of equal value. This is the *brahma-bhūta* stage, and this stage is attained very easily by the pure devotee. In that stage of existence, the idea of becoming one with the Supreme Brahman and annihilating one's individuality becomes hellish, and the idea of attaining the heavenly kingdom becomes phantasmagoria, and the senses are like broken serpents' teeth. As there is no fear of a serpent with broken teeth, so there is no fear from the senses when they are automatically controlled. The world is miserable for the materially infected person, but for a devotee the entire world is as good as Vaikuṇṭha, or the spiritual sky. The highest personality in this material universe is no more significant than an ant for a devotee. Such a stage can be achieved by the mercy of Lord Caitanya, who preached pure devotional service in this age.
 
 ### Bg 18.55
-
-> भक्त्या मामभिजानाति यावान्यश्चास्मि तत्त्वतः ।
-> ततो मां तत्त्वतो ज्ञात्वा विशते तदनन्तरम् ॥५५॥
 
 > bhaktyā mām abhijānāti
 > yāvān yaś cāsmi tattvataḥ
@@ -12458,9 +10304,6 @@ After attainment of the *brahma-bhūta* stage of freedom from material conceptio
 
 ### Bg 18.56
 
-> सर्वकर्माण्यपि सदा कुर्वाणो मद्व्यपाश्रयः ।
-> मत्प्रसादादवाप्नोति शाश्वतं पदमव्ययम् ॥५६॥
-
 > sarva-karmāṇy api sadā
 > kurvāṇo mad-vyapāśrayaḥ
 > mat-prasādād avāpnoti
@@ -12473,9 +10316,6 @@ After attainment of the *brahma-bhūta* stage of freedom from material conceptio
 The word *mad-vyapāśrayaḥ* means under the protection of the Supreme Lord. To be free from material contamination, a pure devotee acts under the direction of the Supreme Lord or His representative, the spiritual master. There is no time limitation for a pure devotee. He is always, twenty-four hours, one hundred percent engaged in activities under the direction of the Supreme Lord. To a devotee who is thus engaged in Kṛṣṇa consciousness the Lord is very, very kind. In spite of all difficulties, he is eventually placed in the transcendental abode, or Kṛṣṇaloka. He is guaranteed entrance there; there is no doubt about it. In that supreme abode, there is no change; everything is eternal, imperishable and full of knowledge.
 
 ### Bg 18.57
-
-> चेतसा सर्वकर्माणि मयि संन्यस्य मत्परः ।
-> बुद्धियोगमुपाश्रित्य मच्चित्तः सततं भव ॥५७॥
 
 > cetasā sarva-karmāṇi
 > mayi sannyasya mat-paraḥ
@@ -12490,9 +10330,6 @@ When one acts in Kṛṣṇa consciousness, he does not act as the master of the
 
 ### Bg 18.58
 
-> मच्चित्तः सर्वदुर्गाणि मत्प्रसादात्तरिष्यसि ।
-> अथ चेत्त्वमहंकारान्न श्रोष्यसि विनङ्क्ष्यसि ॥५८॥
-
 > mac-cittaḥ sarva-durgāṇi
 > mat-prasādāt tariṣyasi
 > atha cet tvam ahaṅkārān
@@ -12505,9 +10342,6 @@ When one acts in Kṛṣṇa consciousness, he does not act as the master of the
 A person in full Kṛṣṇa consciousness is not unduly anxious to execute the duties of his existence. The foolish cannot understand this great freedom from all anxiety. For one who acts in Kṛṣṇa consciousness, Lord Kṛṣṇa becomes the most intimate friend. He always looks after His friend's comfort, and He gives Himself to His friend, who is so devotedly engaged working twenty-four hours a day to please the Lord. Therefore, no one should be carried away by the false ego of the bodily concept of life. One should not falsely think himself independent of the laws of material nature or free to act. He is already under strict material laws. But, as soon as he acts in Kṛṣṇa consciousness, he is liberated, free from the material perplexities. One should note very carefully that one who is not active in Kṛṣṇa consciousness is losing himself in the material whirlpool, in the ocean of birth and death. No conditioned soul actually knows what is to be done and what is not to be done, but a person who acts in Kṛṣṇa consciousness is free to act because everything is prompted by Kṛṣṇa from within and confirmed by the spiritual master.
 
 ### Bg 18.59
-
-> यदहंकारमाश्रित्य न योत्स्य इति मन्यसे ।
-> मिथ्यैष व्यवसायस्ते प्रकृतिस्त्वां नियोक्ष्यति ॥५९॥
 
 > yad ahaṅkāram āśritya
 > na yotsya iti manyase
@@ -12522,9 +10356,6 @@ Arjuna was a military man, and born of the nature of the *kṣatriya.* Therefore
 
 ### Bg 18.60
 
-> स्वभावजेन कौन्तेय निबद्धः स्वेन कर्मणा ।
-> कर्तुं नेच्छसि यन्मोहात्करिष्यस्यवशोपि तत् ॥६०॥
-
 > svabhāva-jena kaunteya
 > nibaddhaḥ svena karmaṇā
 > kartuṁ necchasi yan mohāt
@@ -12538,9 +10369,6 @@ If one refuses to act under the direction of the Supreme Lord, then he is compel
 
 ### Bg 18.61
 
-> ईश्वरः सर्वभूतानां हृद्देशेऽर्जुन तिष्ठति ।
-> भ्रामयन्सर्वभूतानि यन्त्रारूढानि मायया ॥६१॥
-
 > īśvaraḥ sarva-bhūtānāṁ
 > hṛd-deśe 'rjuna tiṣṭhati
 > bhrāmayan sarva-bhūtāni
@@ -12553,9 +10381,6 @@ If one refuses to act under the direction of the Supreme Lord, then he is compel
 Arjuna was not the supreme knower, and his decision to fight or not to fight was confined to his limited discretion. Lord Kṛṣṇa instructed that the individual is not all in all. The Supreme Personality of Godhead, or He Himself, Kṛṣṇa, the localized Supersoul, sits in the heart directing the living being. After changing bodies, the living entity forgets his past deeds, but the Supersoul, as the knower of the past, present and future, remains the witness of all his activities. Therefore all the activities of living entities are directed by this Supersoul. The living entity gets what he deserves and is carried by the material body which is created in the material energy under the direction of the Supersoul. As soon as a living entity is placed in a particular type of body, he has to work under the spell of that bodily situation. A person seated in a high-speed motor car goes faster than one seated in a slower car, though the living entities, the drivers, may be the same. Similarly, by the order of the Supreme Soul, material nature fashions a particular type of body to a particular type of living entity to work according to his past desires. The living entity is not independent. One should not think himself independent of the Supreme Personality of Godhead. The individual is always under His control. Therefore his duty is to surrender, and that is the injunction of the next verse.
 
 ### Bg 18.62
-
-> तमेव शरणं गच्छ सर्वभावेन भारत ।
-> तत्प्रसादात्परां शान्तिं स्थानं प्राप्स्यसि शाश्वतम् ॥६२॥
 
 > tam eva śaraṇaṁ gaccha
 > sarva-bhāvena bhārata
@@ -12572,9 +10397,6 @@ In the Fifteenth Chapter of *Bhagavad-gītā* it is stated: *"Sarvasya cāham h�
 
 ### Bg 18.63
 
-> इति ते ज्ञानमाख्यातं गुह्याद्गुह्यतरं मया ।
-> विमृश्यैतदशेषेण यथेच्छसि तथा कुरु ॥६३॥
-
 > iti te jñānam ākhyātaṁ
 > guhyād guhyataraṁ mayā
 > vimṛśyaitad aśeṣeṇa
@@ -12590,9 +10412,6 @@ Here Lord Kṛṣṇa telIs Arjuna that he can do as he chooses. God does not in
 
 ### Bg 18.64
 
-> सर्वगुह्यतमं भूयः शृणु मे परमं वचः ।
-> इष्टोऽसि मे दृढमिति ततो वक्ष्यामि ते हितम् ॥६४॥
-
 > sarva-guhyatamaṁ bhūyaḥ
 > śṛṇu me paramaṁ vacaḥ
 > iṣṭo 'si me dṛḍham iti
@@ -12605,9 +10424,6 @@ Here Lord Kṛṣṇa telIs Arjuna that he can do as he chooses. God does not in
 The Lord has given Arjuna confidential knowledge of the Supersoul within everyone's heart, and now He is giving the most confidential part of this knowledge: just surrender unto the Supreme Personality of Godhead. At the end of the Ninth Chapter He has said, "Just always think of Me." The same instruction is repeated here to stress the essence of the teachings of *Bhagavad-gītā.* This essence is not understood by a common man, but by one who is actually very dear to Kṛṣṇa, a pure devotee of Kṛṣṇa. This is the most important instruction in all Vedic literature. What Kṛṣṇa is saying in this connection is the most essential part of knowledge, and it should be carried out not only by Arjuna but by all living entities.
 
 ### Bg 18.65
-
-> मन्मना भव मद्भक्तो मद्याजी मां नमस्कुरु ।
-> मामेवैष्यसि सत्यं ते प्रतिजाने प्रियोऽसि मे ॥६५॥
 
 > man-manā bhava mad-bhakto
 > mad-yājī māṁ namaskuru
@@ -12623,9 +10439,6 @@ The most confidential part of knowledge is that one should become a pure devotee
 These words stress that one should concentrate his mind upon Kṛṣṇa—the very form with two hands carrying a flute, the bluish boy with a beautiful face and peacock feathers in His hair. There are descriptions of Kṛṣṇa found in the *Brahma-saṁhitā* and other literatures. One should fix his mind on this original form of Godhead, Kṛṣṇa. He should not even divert his attention to other forms of the Lord. The Lord has multi-forms, as Viṣṇu, Nārāyaṇa, Rāma, Varāha, etc., but a devotee should concentrate his mind on the form that was present before Arjuna. Concentration of the mind on the form of Kṛṣṇa constitutes the most confidential part of knowledge, and this is disclosed to Arjuna because Arjuna is the most dear friend of Kṛṣṇa's.
 
 ### Bg 18.66
-
-> सर्वधर्मान्परित्यज्य मामेकं शरणं व्रज ।
-> अहं त्वा सर्वपापेभ्यो मोक्षयिष्यामि मा शुचः ॥६६॥
 
 > sarva-dharmān parityajya
 > mām ekaṁ śaraṇaṁ vraja
@@ -12648,9 +10461,6 @@ One should be attracted by the beautiful vision of Kṛṣṇa. His name is Kṛ
 
 ### Bg 18.67
 
-> इदं ते नातपस्काय नाभक्ताय कदाचन ।
-> न चाशुश्रूषवे वाच्यं न च मां योऽभ्यसूयति ॥६७॥
-
 > idaṁ te nātapaskāya
 > nābhaktāya kadācana
 > na  cāśuśrūṣave vācyaṁ
@@ -12663,9 +10473,6 @@ One should be attracted by the beautiful vision of Kṛṣṇa. His name is Kṛ
 Persons who have not undergone the austerities of the religious process, who have never attempted devotional service in Kṛṣṇa consciousness, who have not tended a pure devotee, and especially those who are conscious of Kṛṣṇa as a historical personality or who are envious of the greatness of Kṛṣṇa, should not be told this most confidential part of knowledge. It is, however, sometimes found that even demoniac persons who are envious of Kṛṣṇa, worshiping Kṛṣṇa in a different way, take to the profession of explaining *Bhagavad-gītā* in a different way to make business, but anyone who desires actually to understand Kṛṣṇa must avoid such commentaries on *Bhagavad-gītā.* Actually the purpose of *Bhagavad-gītā* is not understandable to those who are sensuous—even if one is not sensuous but is strictly following the disciplines enjoined in the Vedic scripture, if he is not a devotee, he also cannot understand Kṛṣṇa. Even when one poses himself as a devotee of Kṛṣṇa, but is not engaged in Kṛṣṇa conscious activities, he also cannot understand Kṛṣṇa. There are many persons who envy Kṛṣṇa because He has explained in *Bhagavad-gītā* that He is the Supreme and that nothing is above Him or equal to Him. There are many persons who are envious of Kṛṣṇa. Such persons should not be told of *Bhagavad-gītā,* for they cannot understand. There is no possibility of faithless persons' understanding *Bhagavad-gītā* and Kṛṣṇa. Without understanding Kṛṣṇa from the authority of a pure devotee, one should not try to comment upon *Bhagavad-gitā.*
 
 ### Bg 18.68
-
-> य इदं परमं गुह्यं मद्भक्तेष्वभिधास्यति ।
-> भक्तिं मयि परां कृत्वा मामेवैष्यत्यसंशयः ॥६८॥
 
 > ya idaṁ paramaṁ guhyaṁ
 > mad-bhakteṣv abhidhāsyati
@@ -12680,9 +10487,6 @@ Generally it is advised that *Bhagavad-gītā* be discussed amongst the devotees
 
 ### Bg 18.69
 
-> न च तस्मान्मनुष्येषु कश्चिन्मे प्रियकृत्तमः ।
-> भविता न च मे तस्मादन्यः प्रियतरो भुवि ॥६९॥
-
 > na ca tasmān manuṣyeṣu
 > kaścin me priya-kṛttamaḥ
 > bhavitā na ca me tasmād
@@ -12694,9 +10498,6 @@ Generally it is advised that *Bhagavad-gītā* be discussed amongst the devotees
 
 ### Bg 18.70
 
-> अध्येष्यते च य इमं धर्म्यं संवादमावयोः ।
-> ज्ञानयज्ञेन तेनाहमिष्टः स्यामिति मे मतिः ॥७०॥
-
 > adhyeṣyate ca ya imaṁ
 > dharmyaṁ saṁvādam āvayoḥ
 > jñāna-yajñena tenāham
@@ -12707,9 +10508,6 @@ Generally it is advised that *Bhagavad-gītā* be discussed amongst the devotees
 **And I declare that he who studies this sacred conversation worships Me by his intelligence.**
 
 ### Bg 18.71
-
-> श्रद्धावाननसूयश्च शृणुयादपि यो नरः ।
-> सोऽपि मुक्तः शुभाँल्लोकान्प्राप्नुयात्पुण्यकर्मणाम् ॥७१॥
 
 > śraddhāvān anasūyaś ca
 > śṛṇuyād api yo naraḥ
@@ -12726,9 +10524,6 @@ Generally those who are free from sinful reaction are righteous. Such persons ve
 
 ### Bg 18.72
 
-> कच्चिदेतच्छ्रुतं पार्थ त्वयैकाग्रेण चेतसा ।
-> कच्चिदज्ञानसम्मोहः प्रनष्टस्ते धनञ्जय ॥७२॥
-
 > kaccid etac chrutaṁ pārtha
 > tvayaikāgreṇa cetasā
 > kaccid ajñāna-sammohaḥ
@@ -12741,10 +10536,6 @@ Generally those who are free from sinful reaction are righteous. Such persons ve
 The Lord was acting as the spiritual master of Arjuna. Therefore it was His duty to inquire from Arjuna whether he understood the whole *Bhagavad-gītā* in its proper perspective. If not, the Lord was ready to re-explain any point, or the whole *Bhagavad-gītā* if so required. Actually, anyone who hears *Bhagavad-gītā* from a bona fide spiritual master like Kṛṣṇa or His representative will find that all his ignorance is dispelled. *Bhagavad-gītā* is not an ordinary book written by a poet or fiction writer; it is spoken by the Supreme Personality of Godhead. Any person, if he is fortunate enough to hear these teachings from Kṛṣṇa or from His bona fide spiritual representative, is sure to become a liberated person and get out of the darkness of ignorance.
 
 ### Bg 18.73
-
-> अर्जुन उवाच ।
-> नष्टो मोहः स्मृतिर्लब्धा त्वत्प्रसादान्मयाच्युत ।
-> स्थितोऽस्मि गतसन्देहः करिष्ये वचनं तव ॥७३॥
 
 > arjuna uvāca
 > naṣṭo mohaḥ smṛtir labdhā
@@ -12762,10 +10553,6 @@ Kṛṣṇa consciousness is acting according to Kṛṣṇa's order. A conditio
 
 ### Bg 18.74
 
-> सञ्जय उवाच ।
-> इत्यहं वासुदेवस्य पार्थस्य च महात्मनः ।
-> संवादमिममश्रौषमद्भुतं रोमहर्षणम् ॥७४॥
-
 > sañjaya uvāca
 > ity ahaṁ vāsudevasya
 > pārthasya ca mahātmanaḥ
@@ -12779,9 +10566,6 @@ Kṛṣṇa consciousness is acting according to Kṛṣṇa's order. A conditio
 In the beginning of *Bhagavad-gītā,* Dhṛtarāṣṭra inquired from his secretary Sañjaya, "What happened in the Battlefield of Kurukṣetra?" The entire study was related to the heart of Sañjaya by the grace of his spiritual master, Vyāsa. He thus explained the theme of the battlefield. The conversation was wonderful because such an important conversation between two great souls never took place before and would not take place again. It is wonderful because the Supreme Personality of Godhead is speaking about Himself and His energies to the living entity, Arjuna, a great devotee of the Lord. If we follow in the footsteps of Arjuna to understand Kṛṣṇa, then our life will be happy and successful. Sañjaya realized this, and as he began to understand it, he related the conversation to Dhṛtarāṣṭra. Now it is concluded that wherever there is Kṛṣṇa and Arjuna, there is victory.
 
 ### Bg 18.75
-
-> व्यासप्रसादाच्छ्रुतवानेतद्गुह्यमहं परम् ।
-> योगं योगेश्वरात्कृष्णात्साक्षात्कथयतः स्वयम् ॥७५॥
 
 > vyāsa-prasādāc chrutavān
 > etad guhyam ahaṁ param
@@ -12800,9 +10584,6 @@ In *Bhagavad-gītā,* all the *yoga* systems, *karma-yoga, jñāna-yoga* and *bh
 
 ### Bg 18.76
 
-> राजन्संस्मृत्य संस्मृत्य संवादमिममद्भुतम् ।
-> केशवार्जुनयोः पुण्यं हृष्यामि च मुहुर्मुहुः ॥७६॥
-
 > rājan saṁsmṛtya saṁsmṛtya
 > saṁvādam imam adbhutam
 > keśavārjunayoḥ puṇyaṁ
@@ -12816,9 +10597,6 @@ The understanding of *Bhagavad-gītā* is so transcendental that anyone who beco
 
 ### Bg 18.77
 
-> तच्च संस्मृत्य संस्मृत्य रूपमत्यद्भुतं हरेः ।
-> विस्मयो मे महान् राजन्हृष्यामि च पुनः पुनः ॥७७॥
-
 > tac ca saṁsmṛtya saṁsmṛtya
 > rūpam aty-adbhutaṁ hareḥ
 > vismayo me mahān rājan
@@ -12831,9 +10609,6 @@ The understanding of *Bhagavad-gītā* is so transcendental that anyone who beco
 It appears that Sañjaya also, by the grace of Vyāsa, could see the universal form of Kṛṣṇa exhibited to Arjuna. It is, of course, said that Lord Kṛṣṇa never exhibited such a form before. It was exhibited to Arjuna only, yet some great devotees could also see the universal form of Kṛṣṇa when it was shown to Arjuna, and Vyāsa was one of them. He is one of the great devotees of the Lord, and he is considered to be a powerful incarnation of Kṛṣṇa. Vyāsa disclosed this to his disciple, Sañjaya, who remembered that wonderful form of Kṛṣṇa exhibited to Arjuna and enjoyed it repeatedly.
 
 ### Bg 18.78
-
-> यत्र योगेश्वरः कृष्णो यत्र पार्थो धनुर्धरः ।
-> तत्र श्रीर्विजयो भूतिर्ध्रुवा नीतिर्मतिर्मम ॥७८॥
 
 > yatra yogeśvaraḥ kṛṣṇo
 > yatra pārtho dhanur-dharaḥ

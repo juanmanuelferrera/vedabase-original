@@ -199,9 +199,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 
 ### CC Adi 1.1
 
-> বন্দে গুরূনীশভক্তানীশমীশাবতারকান্ ।
-> তৎপ্রকাশাংশ্চ তচ্ছক্তীঃ কৃষ্ণচৈতন্যসংজ্ঞকম্ ॥১॥
-
 > vande gurūn īśa-bhaktān
 > īśam īśāvatārakān
 > tat-prakāśāṁś ca tac-chaktīḥ
@@ -212,9 +209,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 **I offer my respectful obeisances unto the spiritual masters, the devotees of the Lord, the Lord's incarnations, His plenary portions, His energies, and the primeval Lord Himself, Śrī Kṛṣṇa Caitanya.**
 
 ### CC Adi 1.2
-
-> বন্দে শ্রীকৃষ্ণচৈতন্যনিত্যানন্দৌ সহোদিতৌ ।
-> গৌড়োদয়ে পুষ্পবন্তৌ চিত্রৌ শন্দৌ তমোনুদৌ ॥২॥
 
 > vande śrī-kṛṣṇa-caitanya-
 > nityānandau sahoditau
@@ -227,11 +221,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 
 ### CC Adi 1.3
 
-> যদদ্বৈতং ব্রহ্মোপনিষদি তদপ্যস্য তনুভা
-> য আত্মান্তর্যামী পুরুষ ইতি সোঽস্যাংশবিভবঃ ।
-> ষড়ৈশ্বর্যৈঃ পূর্ণো য ইহ ভগবান্ স স্বয়ময়ং
-> ন চৈতন্যাৎ কৃষ্ণাজ্জগতি পরতত্ত্বং পরমিহ ॥৩॥
-
 > yad advaitaṁ brahmopaniṣadi tad apy asya tanu-bhā
 > ya ātmāntar-yāmī puruṣa iti so 'syāṁśa-vibhavaḥ
 > ṣaḍ-aiśvaryaiḥ pūrṇo ya iha bhagavān sa svayam ayaṁ
@@ -242,11 +231,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 **What the Upaniṣads describe as the impersonal Brahman is but the effulgence of His body, and the Lord known as the Supersoul is but His localized plenary portion. He is the Supreme Personality of Godhead, Kṛṣṇa Himself, full with six opulences. He is the Absolute Truth, and no other truth is greater than or equal to Him.**
 
 ### CC Adi 1.4
-
-> অনর্পিতচরীং চিরাৎ করুণয়াবতীর্ণঃ কলৌ
-> সমর্পয়িতুমুন্নতোজ্জ্বলরসাং স্বভক্তিশ্রিয়ম্ ।
-> হরিঃ পুরটসুন্দরদ্যুতিকদম্বসন্দীপিতঃ
-> সদা হৃদয়কন্দরে স্ফুরতু বঃ শচীনন্দনঃ ॥৪॥
 
 > anarpita-carīṁ cirāt karuṇayāvatīrṇaḥ kalau
 > samarpayitum unnatojjvala-rasāṁ sva-bhakti-śriyam
@@ -259,11 +243,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 
 ### CC Adi 1.5
 
-> রাধা কৃষ্ণপ্রণয়বিকৃতির্হ্লাদিনীশক্তিরস্মা-
-> দেকাত্মানাবপি ভুবি পুরা দেহভেদং গতৌ তৌ ।
-> চৈতন্যাখ্যং প্রকটমধুনা তদ্দ্বয়ং চৈক্যমাপ্তং
-> রাধাভাবদ্যুতিসুবলিতং নৌমি কৃষ্ণস্বরূপম্ ॥৫॥
-
 > rādhā kṛṣṇa-praṇaya-vikṛtir hlādinī śaktir asmād
 > ekātmānāv api bhuvi purā deha-bhedaṁ gatau tau
 > caitanyākhyaṁ prakaṭam adhunā tad-dvayaṁ caikyam āptaṁ
@@ -274,11 +253,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 **The loving affairs of Śrī Rādhā and Kṛṣṇa are transcendental manifestations of the Lord's internal pleasure-giving potency. Although Rādhā and Kṛṣṇa are one in Their identity, They separated Themselves eternally. Now these two transcendental identities have again united, in the form of Śrī Kṛṣṇa Caitanya. I bow down to Him, who has manifested Himself with the sentiment and complexion of Śrīmatī Rādhārāṇī although He is Kṛṣṇa Himself.**
 
 ### CC Adi 1.6
-
-> শ্রীরাধায়াঃ প্রণয়মহিমা কীদৃশো বানয়ৈবা-
-> স্বাদ্যো যেনাদ্ভুতমধুরিমা কীদৃশো বা মদীয়ঃ ।
-> সৌখ্যঞ্চাস্যা মদনুভবতঃ কীদৃশং বেতি লোভা-
-> ত্তদ্ভাবাঢ্যঃ সমজনি শচীগর্ভসিন্ধৌ হরীন্দুঃ ॥৬॥
 
 > śrī-rādhāyāḥ praṇaya-mahimā kīdṛśo vānayaivā-
 > svādyo yenādbhuta-madhurimā kīdṛśo vā madīyaḥ
@@ -291,11 +265,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 
 ### CC Adi 1.7
 
-> সঙ্কর্ষণঃ কারণতোয়শায়ী
-> গর্ভোদশায়ী চ পয়োব্ধিশায়ী ।
-> শেষশ্চ যস্যাংশকলাঃ স নিত্যা-
-> নন্দাখ্যরামঃ শরণং মমাস্তু ॥৭॥
-
 > saṅkarṣaṇaḥ kāraṇa-toya-śāyī
 > garbhoda-śāyī ca payobdhi-śāyī
 > śeṣaś ca yasyāṁśa-kalāḥ sa nityā-
@@ -306,11 +275,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 **May Śrī Nityānanda Rāma be the object of my constant remembrance. Saṅkarṣaṇa, Śeṣa Nāga and the Viṣṇus who lie on the Kāraṇa Ocean, Garbha Ocean and ocean of milk are His plenary portions and the portions of His plenary portions.**
 
 ### CC Adi 1.8
-
-> মায়াতীতে ব্যাপিবৈকুণ্ঠলোকে
-> পূর্ণৈশ্বর্যে শ্রীচতুর্ব্যূহমধ্যে ।
-> রূপং যস্যোদ্ভাতি সঙ্কর্ষণাখ্যং
-> তং শ্রীনিত্যানন্দরামং প্রপদ্যে ॥৮॥
 
 > māyātīte vyāpi-vaikuṇṭha-loke
 > pūrṇaiśvarye śrī-catur-vyūha-madhye
@@ -323,11 +287,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 
 ### CC Adi 1.9
 
-> মায়াভর্তাজাণ্ডসংঘাশ্রয়াঙ্গঃ
-> শেতে সাক্ষাৎ কারণাম্ভোধিমধ্যে ।
-> যস্যৈকাংশঃ শ্রীপুমানাদিদেব-
-> স্তং শ্রীনিত্যানন্দরামং প্রপদ্যে ॥৯॥
-
 > māyā-bhartājāṇḍa-saṅghāśrayāṅgaḥ
 > śete sākṣāt kāraṇāmbhodhi-madhye
 > yasyaikāṁśaḥ śrī-pumān ādi-devas
@@ -338,11 +297,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 **I offer my full obeisances unto the feet of Śrī Nityānanda Rāma, whose partial representation called Kāraṇodakaśāyī Viṣṇu, lying on the Kāraṇa Ocean, is the original puruṣa, the master of the illusory energy, and the shelter of all the universes.**
 
 ### CC Adi 1.10
-
-> যস্যাংশাংশঃ শ্রীল-গর্ভোদশায়ী
-> যন্নাভ্যব্জং লোকসংঘাতনালম্ ।
-> লোকস্রষ্টুঃ সূতিকাধামধাতু-
-> স্তং শ্রীনিত্যানন্দরামং প্রপদ্যে ॥১০॥
 
 > yasyāṁśāṁśaḥ śrīla-garbhoda-śāyī
 > yan-nābhy-abjaṁ loka-saṅghāta-nālam
@@ -355,11 +309,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 
 ### CC Adi 1.11
 
-> যস্যাংশাংশাংশঃ পরাত্মাখিলানাং
-> পোষ্টা বিষ্ণুর্ভাতি দুগ্ধাব্ধিশায়ী ।
-> ক্ষৌণীভর্তা যৎকলা সোঽপ্যনন্ত-
-> স্তং শ্রীনিত্যানন্দরামং প্রপদ্যে ॥১১॥
-
 > yasyāṁśāṁśāṁśaḥ parātmākhilānāṁ
 > poṣṭā viṣṇur bhāti dugdhābdhi-śāyī
 > kṣauṇī-bhartā yat-kalā so 'py anantas
@@ -370,9 +319,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 **I offer my respectful obeisances unto the feet of Śrī Nityānanda Rāma, whose secondary part is the Viṣṇu lying in the ocean of milk. That Kṣīrodakaśāyī Viṣṇu is the Supersoul of all living entities and the maintainer of all the universes. Śeṣa Nāga is His further sub-part.**
 
 ### CC Adi 1.12
-
-> মহাবিষ্ণুর্জগৎকর্তা মায়য়া যঃ সৃজত্যদঃ ।
-> তস্যাবতার এবায়মদ্বৈতাচার্য ঈশ্বরঃ ॥১২॥
 
 > mahā-viṣṇur jagat-kartā
 > māyayā yaḥ sṛjaty adaḥ
@@ -385,9 +331,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 
 ### CC Adi 1.13
 
-> অদ্বৈতং হরিণাদ্বৈতাদাচার্যং ভক্তিশংসনাৎ ।
-> ভক্তাবতারমীশং তমদ্বৈতাচার্যমাশ্রয়ে ॥১৩॥
-
 > advaitaṁ hariṇādvaitād
 > ācāryaṁ bhakti-śaṁsanāt
 > bhaktāvatāram īśaṁ tam
@@ -398,9 +341,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 **Because He is nondifferent from Hari, the Supreme Lord, He is called Advaita, and because He propagates the cult of devotion, He is called Ācārya. He is the Lord and the incarnation of the Lord's devotee. Therefore I take shelter of Him.**
 
 ### CC Adi 1.14
-
-> পঞ্চতত্ত্বাত্মকং কৃষ্ণং ভক্তরূপস্বরূপকম্ ।
-> ভক্তাবতারং ভক্তাখ্যং নমামি ভক্তশক্তিকম্ ॥১৪॥
 
 > pañca-tattvātmakaṁ kṛṣṇaṁ
 > bhakta-rūpa-svarūpakam
@@ -413,9 +353,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 
 ### CC Adi 1.15
 
-> জয়তাং সুরতৌ পঙ্গোর্মম মন্দমতের্গতী ।
-> মৎসর্বস্বপদাম্ভোজৌ রাধামদনমোহনৌ ॥১৫॥
-
 > jayatāṁ suratau paṅgor
 > mama manda-mater gatī
 > mat-sarvasva-padāmbhojau
@@ -426,11 +363,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 **Glory to the all-merciful Rādhā and Madana-mohana! I am lame and ill-advised, yet They are my directors, and Their lotus feet are everything to me.**
 
 ### CC Adi 1.16
-
-> দীব্যদ্বৃন্দারণ্যকল্পদ্রুমাধঃ-
-> শ্রীমদ্রত্নাগারসিংহাসনস্থৌ ।
-> শ্রীমদ্রাধা-শ্রীলগোবিন্দদেবৌ
-> প্রেষ্ঠালীভিঃ সেব্যমানৌ স্মরামি ॥১৬॥
 
 > dīvyad-vṛndāraṇya-kalpa-drumādhaḥ-
 > śrīmad-ratnāgāra-siṁhāsana-sthau
@@ -443,9 +375,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 
 ### CC Adi 1.17
 
-> শ্রীমান্ রাসরসারম্ভী বংশীবটতটস্থিতঃ ।
-> কর্ষন্ বেণুস্বনৈর্গোপীর্গোপীনাথঃ শ্রিয়েঽস্তু নঃ ॥১৭॥
-
 > śrīmān rāsa-rasārambhī
 > vaṁśīvaṭa-taṭa-sthitaḥ
 > karṣan veṇu-svanair gopīr
@@ -457,9 +386,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 
 ### CC Adi 1.18
 
-> জয় জয় শ্রীচৈতন্য জয় নিত্যানন্দ ।
-> জয়াদ্বৈতচন্দ্র জয় গৌরভক্তবৃন্দ ॥১৮॥
-
 > jaya jaya śrī-caitanya jaya nityānanda
 > jayādvaita-candra jaya gaura-bhakta-vṛnda
 
@@ -468,9 +394,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī petitions the blessings of Lord Gopīnātha
 **Glory to Śrī Caitanya and Nityānanda! Glory to Advaitacandra! And glory to all the devotees of Śrī Gaura [Lord Caitanya]!**
 
 ### CC Adi 1.19
-
-> এই তিন ঠাকুর গৌড়ীয়াকে করিয়াছেন আত্মসাৎ ।
-> এ তিনের চরণ বন্দোঁ, তিনে মোর নাথ ॥১৯॥
 
 > ei tina ṭhākura gauḍīyāke kariyāchena ātmasāt
 > e tinera caraṇa vandoṅ, tine mora nātha
@@ -495,9 +418,6 @@ The devotees of Orissa are called Uḍiyās, the devotees of Bengal are called G
 
 ### CC Adi 1.20
 
-> গ্রন্থের আরম্ভে করি ‘মঙ্গলাচরণ’ ।
-> গুরু, বৈষ্ণব, ভগবান্ — তিনের স্মরণ ॥২০॥
-
 > granthera ārambhe kari 'maṅgalācaraṇa'
 > guru, vaiṣṇava, bhagavān,—tinera smaraṇa
 
@@ -506,9 +426,6 @@ The devotees of Orissa are called Uḍiyās, the devotees of Bengal are called G
 **In the beginning of this narration, simply by remembering the spiritual master, the devotees of the Lord, and the Personality of Godhead, I have invoked their benedictions.**
 
 ### CC Adi 1.21
-
-> তিনের স্মরণে হয় বিঘ্নবিনাশন ।
-> অনায়াসে হয় নিজ বাঞ্ছিতপূরণ ॥২১॥
 
 > tinera smaraṇe haya vighna-vināśana
 > anāyāse haya nija vāñchita-pūraṇa
@@ -519,9 +436,6 @@ The devotees of Orissa are called Uḍiyās, the devotees of Bengal are called G
 
 ### CC Adi 1.22
 
-> সে মঙ্গলাচরণ হয় ত্রিবিধ প্রকার ।
-> বস্তুনির্দেশ, আশীর্বাদ, নমস্কার ॥২২॥
-
 > se maṅgalācaraṇa haya tri-vidha prakāra
 > vastu-nirdeśa, āśīrvāda, namaskāra
 
@@ -530,9 +444,6 @@ The devotees of Orissa are called Uḍiyās, the devotees of Bengal are called G
 **The invocation involves three processes: defining the objective, offering benedictions and offering obeisances.**
 
 ### CC Adi 1.23
-
-> প্রথম দুই শ্লোকে ইষ্টদেব-নমস্কার ।
-> সামান্য-বিশেষ-রূপে দুই ত’ প্রকার ॥২৩॥
 
 > prathama dui śloke iṣṭa-deva-namaskāra
 > sāmānya-viśeṣa-rūpe dui ta' prakāra
@@ -543,9 +454,6 @@ The devotees of Orissa are called Uḍiyās, the devotees of Bengal are called G
 
 ### CC Adi 1.24
 
-> তৃতীয় শ্লোকেতে করি বস্তুর নির্দেশ ।
-> যাহা হইতে জানি পরতত্ত্বের উদ্দেশ ॥২৪॥
-
 > tṛtīya ślokete kari vastura nirdeśa
 > yāhā ha-ite jāni para-tattvera uddeśa
 
@@ -554,9 +462,6 @@ The devotees of Orissa are called Uḍiyās, the devotees of Bengal are called G
 **In the third verse I indicate the Absolute Truth, who is the ultimate substance. With such a description, one can visualize the Supreme Truth.**
 
 ### CC Adi 1.25
-
-> চতুর্থ শ্লোকেতে করি জগতে আশীর্বাদ ।
-> সর্বত্র মাগিয়ে কৃষ্ণচৈতন্য-প্রসাদ ॥২৫॥
 
 > caturtha ślokete kari jagate āśīrvāda
 > sarvatra māgiye kṛṣṇa-caitanya-prasāda
@@ -567,9 +472,6 @@ The devotees of Orissa are called Uḍiyās, the devotees of Bengal are called G
 
 ### CC Adi 1.26
 
-> সেই শ্লোকে কহি বাহ্যাবতার-কারণ ।
-> পঞ্চ ষষ্ঠ শ্লোকে কহি মূল-প্রয়োজন ॥২৬॥
-
 > sei śloke kahi bāhyāvatāra-kāraṇa
 > pañca ṣaṣṭha śloke kahi mūla-prayojana
 
@@ -578,9 +480,6 @@ The devotees of Orissa are called Uḍiyās, the devotees of Bengal are called G
 **In that verse I have also explained the external reason for Lord Caitanya's incarnation. But in the fifth and sixth verses I have explained the prime reason for His advent.**
 
 ### CC Adi 1.27
-
-> এই ছয় শ্লোকে কহি চৈতন্যের তত্ত্ব ।
-> আর পঞ্চ শ্লোকে নিত্যানন্দের মহত্ত্ব ॥২৭॥
 
 > ei chaya śloke kahi caitanyera tattva
 > āra pañca śloke nityānandera mahattva
@@ -591,9 +490,6 @@ The devotees of Orissa are called Uḍiyās, the devotees of Bengal are called G
 
 ### CC Adi 1.28
 
-> আর দুই শ্লোকে অদ্বৈত-তত্ত্বাখ্যান ।
-> আর এক শ্লোকে পঞ্চতত্ত্বের ব্যাখ্যান ॥২৮॥
-
 > āra dui śloke advaita-tattvākhyāna
 > āra eka śloke pañca-tattvera vyākhyāna
 
@@ -602,9 +498,6 @@ The devotees of Orissa are called Uḍiyās, the devotees of Bengal are called G
 **The next two verses describe the truth of Advaita Prabhu, and the following verse describes the Pañca-tattva [the Lord, His plenary portion, His incarnation, His energies and His devotees].**
 
 ### CC Adi 1.29
-
-> এই চৌদ্দ শ্লোকে করি মঙ্গলাচরণ ।
-> তঁহি মধ্যে কহি সব বস্তুনিরূপণ ॥২৯॥
 
 > ei caudda śloke kari maṅgalācaraṇa
 > taṅhi madhye kahi saba vastu-nirūpaṇa
@@ -615,9 +508,6 @@ The devotees of Orissa are called Uḍiyās, the devotees of Bengal are called G
 
 ### CC Adi 1.30
 
-> সব শ্রোতা-বৈষ্ণবেরে করি’ নমস্কার ।
-> এই সব শ্লোকের করি অর্থ-বিচার ॥৩০॥
-
 > saba śrotā-vaiṣṇavere kari' namaskāra
 > ei saba ślokera kari artha-vicāra
 
@@ -626,9 +516,6 @@ The devotees of Orissa are called Uḍiyās, the devotees of Bengal are called G
 **I offer my obeisances unto all my Vaiṣṇava readers as I begin to explain the intricacies of all these verses.**
 
 ### CC Adi 1.31
-
-> সকল বৈষ্ণব, শুন করি’ একমন ।
-> চৈতন্য-কৃষ্ণের শাস্ত্র-মত-নিরূপণ ॥৩১॥
 
 > sakala vaiṣṇava, śuna kari' eka-mana
 > caitanya-kṛṣṇera śāstra-mata-nirūpaṇa
@@ -641,9 +528,6 @@ Lord Caitanya is the Absolute Truth, Kṛṣṇa Himself. This is substantiated 
 
 ### CC Adi 1.32
 
-> কৃষ্ণ, গুরু, ভক্ত, শক্তি, অবতার, প্রকাশ ।
-> কৃষ্ণ এই ছয়রূপে করেন বিলাস ॥৩২॥
-
 > kṛṣṇa, guru, bhakta, śakti, avatāra, prakāśa
 > kṛṣṇa ei chaya-rūpe karena vilāsa
 
@@ -653,9 +537,6 @@ Lord Caitanya is the Absolute Truth, Kṛṣṇa Himself. This is substantiated 
 
 ### CC Adi 1.33
 
-> এই ছয় তত্ত্বের করি চরণ বন্দন ।
-> প্রথমে সামান্যে করি মঙ্গলাচরণ ॥৩৩॥
-
 > ei chaya tattvera kari caraṇa vandana
 > prathame sāmānye kari maṅgalācaraṇa
 
@@ -664,9 +545,6 @@ Lord Caitanya is the Absolute Truth, Kṛṣṇa Himself. This is substantiated 
 **I therefore worship the lotus feet of these six diversities of the one truth by invoking their benedictions.**
 
 ### CC Adi 1.34
-
-> বন্দে গুরূনীশভক্তানীশমীশাবতারকান্ ।
-> তত্প্রকাশাংশ্চ তচ্ছক্তীঃ কৃষ্ণচৈতন্যসংজ্ঞকম্ ॥৩৪॥
 
 > vande gurūn īśa-bhaktān
 > īśam īśāvatārakān
@@ -685,9 +563,6 @@ The six principles are differently manifested but all equally worshipable. Kṛ�
 
 ### CC Adi 1.35
 
-> মন্ত্রগুরু আর যত শিক্ষাগুরুগণ ।
-> তাঁহার চরণ আগে করিয়ে বন্দন ॥৩৫॥
-
 > mantra-guru āra yata śikṣā-guru-gaṇa
 > tāṅhāra caraṇa āge kariye vandana
 
@@ -703,9 +578,6 @@ One should always remember that a person who is reluctant to accept a spiritual 
 
 ### CC Adi 1.36
 
-> শ্রীরূপ, সনাতন, ভট্ট-রঘুনাথ ।
-> শ্রীজীব, গোপালভট্ট, দাস-রঘুনাথ ॥৩৬॥
-
 > śrī-rūpa, sanātana, bhaṭṭa-raghunātha
 > śrī-jīva, gopāla-bhaṭṭa, dāsa-raghunātha
 
@@ -714,9 +586,6 @@ One should always remember that a person who is reluctant to accept a spiritual 
 **The instructing spiritual masters are Śrī Rūpa Gosvāmī, Śrī Sanātana Gosvāmī, Śrī Bhaṭṭa Raghunātha, Śrī Jīva Gosvāmī, Śrī Gopāla Bhaṭṭa Gosvāmī and Śrīla Raghunātha dāsa Gosvāmī.**
 
 ### CC Adi 1.37
-
-> এই ছয় গুরু — শিক্ষাগুরু যে আমার ।
-> তাঁ’সবার পাদপদ্মে কোটি নমস্কার ॥৩৭॥
 
 > ei chaya guru—śikṣā-guru ye āmāra
 > tāṅ'-sabāra pāda-padme koṭi namaskāra
@@ -729,9 +598,6 @@ By accepting the six Gosvāmīs as his instructing spiritual masters, the author
 
 ### CC Adi 1.38
 
-> ভগবানের ভক্ত যত শ্রীবাস প্রধান ।
-> তাঁ’সভার পাদপদ্মে সহস্র প্রণাম ॥৩৮॥
-
 > bhagavānera bhakta yata śrīvāsa pradhāna
 > tāṅ'-sabhāra pāda-padme sahasra praṇāma
 
@@ -740,9 +606,6 @@ By accepting the six Gosvāmīs as his instructing spiritual masters, the author
 **There are innumerable devotees of the Lord, of whom Śrīvāsa Ṭhākura is the foremost. I offer my respectful obeisances thousands of times unto their lotus feet.**
 
 ### CC Adi 1.39
-
-> অদ্বৈত আচার্য — প্রভুর অংশ-অবতার ।
-> তাঁর পাদপদ্মে কোটি প্রণতি আমার ॥৩৯॥
 
 > advaita ācārya—prabhura aṁśa-avatāra
 > tāṅra pāda-padme koṭi praṇati āmāra
@@ -753,9 +616,6 @@ By accepting the six Gosvāmīs as his instructing spiritual masters, the author
 
 ### CC Adi 1.40
 
-> নিত্যানন্দরায় — প্রভুর স্বরূপপ্রকাশ ।
-> তাঁর পাদপদ্ম বন্দো যাঁর মুঞি দাস ॥৪০॥
-
 > nityānanda-rāya—prabhura svarūpa-prakāśa
 > tāṅra pāda-padma vando yāṅra muñi dāsa
 
@@ -764,9 +624,6 @@ By accepting the six Gosvāmīs as his instructing spiritual masters, the author
 **Śrīla Nityānanda Rāma is the plenary manifestation of the Lord, and I have been initiated by Him. I therefore offer my respectful obeisances unto His lotus feet.**
 
 ### CC Adi 1.41
-
-> গদাধরপণ্ডিতাদি — প্রভুর নিজশক্তি ।
-> তাঁ’সবার চরণে মোর সহস্র প্রণতি ॥৪১॥
 
 > gadādhara-paṇḍitādi—prabhura nija-śakti
 > tāṅ'-sabāra caraṇe mora sahasra praṇati
@@ -777,9 +634,6 @@ By accepting the six Gosvāmīs as his instructing spiritual masters, the author
 
 ### CC Adi 1.42
 
-> শ্রীকৃষ্ণচৈতন্য প্রভু স্বয়ংভগবান্ ।
-> তাঁহার পদারবিন্দে অনন্ত প্রণাম ॥৪২॥
-
 > śrī-kṛṣṇa-caitanya prabhu svayaṁ-bhagavān
 > tāṅhāra padāravinde ananta praṇāma
 
@@ -788,9 +642,6 @@ By accepting the six Gosvāmīs as his instructing spiritual masters, the author
 **Lord Śrī Kṛṣṇa Caitanya Mahāprabhu is the Personality of Godhead Himself, and therefore I offer innumerable prostrations at His lotus feet.**
 
 ### CC Adi 1.43
-
-> সাবরণে প্রভুরে করিয়া নমস্কার ।
-> এই ছয় তেঁহো যৈছে — করিয়ে বিচার ॥৪৩॥
 
 > sāvaraṇe prabhure kariyā namaskāra
 > ei chaya teṅho yaiche—kariye vicāra
@@ -802,9 +653,6 @@ By accepting the six Gosvāmīs as his instructing spiritual masters, the author
 There are many unalloyed devotees of the Supreme Personality of Godhead, all of whom are considered associates surrounding the Lord. Kṛṣṇa should be worshiped with His devotees. The diverse principles are therefore the eternal paraphernalia through which the Absolute Truth can be approached.
 
 ### CC Adi 1.44
-
-> যদ্যপি আমার গুরু — চৈতন্যের দাস ।
-> তথাপি জানিয়ে আমি তাঁহার প্রকাশ ॥৪৪॥
 
 > yadyapi āmāra guru—caitanyera dāsa
 > tathāpi jāniye āmi tāṅhāra prakāśa
@@ -821,9 +669,6 @@ Every living entity is eternally a servant of Śrī Kṛṣṇa Caitanya; theref
 
 ### CC Adi 1.45
 
-> গুরু কৃষ্ণরূপ হন শাস্ত্রের প্রমাণে ।
-> গুরুরূপে কৃষ্ণ কৃপা করেন ভক্তগণে ॥৪৫॥
-
 > guru kṛṣṇa-rūpa hana śāstrera pramāṇe
 > guru-rūpe kṛṣṇa kṛpā karena bhakta-gaṇe
 
@@ -834,9 +679,6 @@ Every living entity is eternally a servant of Śrī Kṛṣṇa Caitanya; theref
 The relationship of a disciple with his spiritual master is as good as his relationship with the Supreme Lord. A spiritual master always represents himself as the humblest servitor of the Personality of Godhead, but the disciple must look upon him as the manifested representation of Godhead.
 
 ### CC Adi 1.46
-
-> আচার্যং মাং বিজানীয়ান্নাবমন্যেত কর্হিচিৎ ।
-> ন মর্ত্যবুদ্ধ্যাসূয়েত সর্বদেবময়ো গুরুঃ ॥৪৬॥
 
 > ācāryaṁ māṁ vijānīyān
 > nāvamanyeta karhicit
@@ -861,9 +703,6 @@ The real Vedic philosophy is *acintya-bhedābheda-tattva,* which establishes eve
 
 ### CC Adi 1.47
 
-> শিক্ষাগুরুকে ত’ জানি কৃষ্ণের স্বরূপ ।
-> অন্তর্যামী, ভক্তশ্রেষ্ঠ, — এই দুই রূপ ॥৪৭॥
-
 > śikṣā-guruke ta' jāni kṛṣṇera svarūpa
 > antaryāmī, bhakta-śreṣṭha,—ei dui rūpa
 
@@ -879,11 +718,6 @@ When by learning from the self-realized spiritual master one actually engages hi
 
 ### CC Adi 1.48
 
-> নৈবোপযন্ত্যপচিতিং কবয়স্তবেশ
-> ব্রহ্মায়ুষাপি কৃতমৃদ্ধমুদঃ স্মরন্তঃ ।
-> যোহন্তর্বহিস্তনুভৃতামশুভং বিধুন্ব-
-> ন্নাচার্য-চৈত্ত্যবপুষা স্বগতিং ব্যনক্তি ॥৪৮॥
-
 > naivopayanty apacitiṁ kavayas taveśa
 > brahmāyuṣāpi kṛtam ṛddha-mudaḥ smarantaḥ
 > yo 'ntar bahis tanu-bhṛtām aśubhaṁ vidhunvann
@@ -896,9 +730,6 @@ When by learning from the self-realized spiritual master one actually engages hi
 This verse from *Śrīmad-Bhāgavatam* (11.29.6) was spoken by Śrī Uddhava after he heard from Śrī Kṛṣṇa all necessary instructions about *yoga.*
 
 ### CC Adi 1.49
-
-> তেষাং সততযুক্তানাং ভজতাং প্রীতিপূর্বকম ।
-> দদামি বুদ্ধিযোগং তং যেন মামুপযান্তি তে ॥৪৯॥
 
 > teṣāṁ satata-yuktānāṁ
 > bhajatāṁ prīti-pūrvakam
@@ -913,8 +744,6 @@ This verse of the *Bhagavad-gītā* [[bg/10/10|(Bg. 10.10)]] clearly states how 
 
 ### CC Adi 1.50
 
-> যথা ব্রহ্মণে ভগবান্ স্বয়মুপদিশ্যানুভাবিতবান্ ॥৫০॥
-
 > yathā brahmaṇe bhagavān
 > svayam upadiśyānubhāvitavān
 
@@ -925,9 +754,6 @@ This verse of the *Bhagavad-gītā* [[bg/10/10|(Bg. 10.10)]] clearly states how 
 The English maxim that God helps those who help themselves is also applicable in the transcendental realm. There are many instances in revealed scriptures of the Personality of Godhead's acting as the spiritual master from within. He was the spiritual master who instructed Brahmā, the original living being in the cosmic creation. When Brahmā was first created, he could not apply his creative energy to arrange the cosmic situation. At first there was only sound, vibrating the word *tapa,* which indicates the acceptance of hardships for spiritual realization. Refraining from sensual enjoyment, one should voluntarily accept all sorts of difficulty for spiritual realization. This is called *tapasya.* An enjoyer of the senses can never realize God, godliness or the science of theistic knowledge. Thus when Brahmā, initiated by Śrī Kṛṣṇa by the sound vibration *tapa,* engaged himself in acts of austerity, by the pleasure of Viṣṇu he was able to visualize the transcendental world, Śrī Vaikuṇṭha, through transcendental realization. Modern science can communicate using material discoveries such as radio, television and computers, but the science invoked by the austerities of Śrī Brahmā, the original father of mankind, was still more subtle. In time, material scientists may also know how we can communicate with the Vaikuṇṭha world. Lord Brahmā inquired about the potency of the Supreme Lord, and the Personality of Godhead answered his inquiry in the following six consecutive statements. These instructions, which are reproduced in *Śrīmad-Bhāgavatam* (2.9.31-36), were imparted by the Personality of Godhead, acting as the supreme spiritual master.
 
 ### CC Adi 1.51
-
-> জ্ঞানং পরমগুহ্যং মে যদ্বিজ্ঞান-সমন্বিতম্ ।
-> সরহস্যং তদঙ্গঞ্চ গৃহাণ গদিতং ময়া ॥৫১॥
 
 > jñānaṁ parama-guhyaṁ me
 > yad vijñāna-samanvitam
@@ -942,9 +768,6 @@ Transcendental knowledge of Śrī Kṛṣṇa is deeper than the impersonal know
 
 ### CC Adi 1.52
 
-> যাবানহং যথাভাবো যদ্রূপগুণকর্মকঃ ।
-> তথৈব তত্ত্ববিজ্ঞানমস্তু তে মদনুগ্রহাৎ ॥৫২॥
-
 > yāvān ahaṁ yathā-bhāvo
 > yad-rūpa-guṇa-karmakaḥ
 > tathaiva tattva-vijñānam
@@ -957,9 +780,6 @@ Transcendental knowledge of Śrī Kṛṣṇa is deeper than the impersonal know
 The transcendental personal forms of the Lord are a mystery, and the symptoms of these forms, which are absolutely different from anything made of mundane elements, are also mysterious. The innumerable forms of the Lord, such as Śyāmasundara, Nārāyaṇa, Rāma and Gaurasundara; the colors of these forms (white, red, yellow, cloudlike *śyāma* and others); His qualities, as the responsive Personality of Godhead to pure devotees and as impersonal Brahman to dry speculators; His uncommon activities like lifting Govardhana Hill, marrying more than sixteen thousand queens at Dvārakā, and entering the *rāsa* dance with the damsels of Vraja, expanding Himself in as many forms as there were damsels in the dance—these and innumerable other uncommon acts and attributes are all mysteries, one aspect of which is presented in the scientific knowledge of the *Bhagavad-gītā,* which is read and adored all over the world by all classes of scholars, with as many interpretations as there are empiric philosophers. The truth of these mysteries was revealed to Brahmā by the descending process, without the help of the ascending one. His mercy descends to a devotee like Brahmā and, through Brahmā, to Nārada, from Nārada to Vyāsa, from Vyāsadeva to Śukadeva and so on in the bona fide chain of disciplic succession. We cannot discover the mysteries of the Lord by our mundane endeavors; they are only revealed, by His grace, to the proper devotees. These mysteries are gradually disclosed to the various grades of devotees in proportion to the gradual development of their service attitude. In other words, impersonalists who depend upon the strength of their poor fund of knowledge and morbid speculative habits, without submission and service in the forms of hearing, chanting and the others mentioned above, cannot penetrate to the mysterious region of transcendence where the Supreme Truth is a transcendental person, free from all tinges of the material elements. Discovering the mystery of the Lord eliminates the impersonal feature realized by common spiritualists who are merely trying to enter the spiritual region from the mundane platform.
 
 ### CC Adi 1.53
-
-> অহমেবাসমেবাগ্রে নান্যদ্ যৎ সদসৎপরম্ ।
-> পশ্চাদহং যদেতচ্চ যোঽবশিষ্যেত সোঽস্ম্যহম্ ॥৫৩॥
 
 > aham evāsam evāgre
 > nānyad yat sad-asat param
@@ -986,9 +806,6 @@ Yo 'vaśiṣyeta so 'smy aham indicates that the Lord is the balance that exists
 
 ### CC Adi 1.54
 
-> ঋতেঽর্থং যৎ প্রতীয়েত ন প্রতীয়েত চাত্মনি ।
-> তদ্বিদ্যাদাত্মনো মায়াং যথাভাসো যথা তমঃ ॥৫৪॥
-
 > ṛte 'rthaṁ yat pratīyeta
 > na pratīyeta cātmani
 > tad vidyād ātmano māyāṁ
@@ -1010,9 +827,6 @@ That which is relative, temporary and far away from the Absolute Truth is called
 
 ### CC Adi 1.55
 
-> যথা মহান্তি ভূতানি ভূতেষূচ্চাবচেষ্বনু ।
-> প্রবিষ্টান্যপ্রবিষ্টানি তথা তেষু ন তেষ্বহম্ ॥৫৫॥
-
 > yathā mahānti bhūtāni
 > bhūteṣūccāvaceṣv anu
 > praviṣṭāny apraviṣṭāni
@@ -1027,9 +841,6 @@ The gross material elements (earth, water, fire, air and ether) combine with the
 Because of his development of transcendental attachment for the Supreme Lord, a surrendered soul feels the presence of his beloved everywhere, and all his senses are engaged in the loving service of the Lord. His eyes are engaged in seeing the beautiful couple Śrī Rādhā and Kṛṣṇa sitting on a decorated throne beneath a desire tree in the transcendental land of Vṛndāvana. His nose is engaged in smelling the spiritual aroma of the lotus feet of the Lord. Similarly, his ears are engaged in hearing messages from Vaikuṇṭha, and his hands embrace the lotus feet of the Lord and His associates. Thus the Lord is manifested to a pure devotee from within and without. This is one of the mysteries of the devotional relationship in which a devotee and the Lord are bound by a tie of spontaneous love. To achieve this love should be the goal of life for every living being.
 
 ### CC Adi 1.56
-
-> এতাবদেব জিজ্ঞাস্যং তত্ত্বজিজ্ঞাসুনাত্মনঃ ।
-> অন্বয়-ব্যতিরেকাভ্যাং যত্ স্যাৎ সর্বত্র সর্বদা ॥৫৬॥
 
 > etāvad eva jijñāsyaṁ
 > tattva-jijñāsunātmanaḥ
@@ -1052,11 +863,6 @@ From this and the preceding three verses of the *Caitanya-caritāmṛta,* which 
 
 ### CC Adi 1.57
 
-> চিন্তামণির্জয়তি সোমগিরির্গুরুর্মে
-> শিক্ষাগুরুশ্চ ভগবান্ শিখিপিঞ্ছমৌলিঃ ।
-> যৎপাদকল্পতরুপল্লবশেখরেষু
-> লীলাস্বয়ম্বররসং লভতে জয়শ্রীঃ ॥৫৭॥
-
 > cintāmaṇir jayati somagirir gurur me
 > śikṣā-guruś ca bhagavān śikhi-piñcha-mauliḥ
 > yat-pāda-kalpataru-pallava-śekhareṣu
@@ -1072,9 +878,6 @@ Bilvamaṅgala Ṭhākura actually entered into the transcendental pastimes of L
 
 ### CC Adi 1.58
 
-> জীবে সাক্ষাৎ নাহি তাতে গুরু চৈত্ত্যরূপে ।
-> শিক্ষাগুরু হয় কৃষ্ণ মহান্তস্বরূপে ॥৫৮॥
-
 > jīve sākṣāt nāhi tāte guru caittya-rūpe
 > śikṣā-guru haya kṛṣṇa-mahānta-svarūpe
 
@@ -1085,9 +888,6 @@ Bilvamaṅgala Ṭhākura actually entered into the transcendental pastimes of L
 It is not possible for a conditioned soul to directly meet Kṛṣṇa, the Supreme Personality of Godhead, but if one becomes a sincere devotee and seriously engages in devotional service, Lord Kṛṣṇa sends an instructing spiritual master to show him favor and invoke his dormant propensity for serving the Supreme. The preceptor appears before the external senses of the fortunate conditioned soul, and at the same time the devotee is guided from within by the *caittya-guru,* Kṛṣṇa, who is seated as the spiritual master within the heart of the living entity.
 
 ### CC Adi 1.59
-
-> ততো দুঃসঙ্গমুৎসৃজ্য সৎসু সজ্জেত বুদ্ধিমান্ ।
-> সন্ত এবাস্য ছিন্দন্তি মনোব্যাসঙ্গমুক্তিভিঃ ॥৫৯॥
 
 > tato duḥsaṅgam utsṛjya
 > satsu sajjeta buddhi-mān
@@ -1104,11 +904,6 @@ It is indicated that to learn the transcendental science, it is imperative that 
 
 ### CC Adi 1.60
 
-> সতাং প্রসঙ্গান্মম বীর্যসংবিদো
-> ভবন্তি হৃৎকর্ণরসায়নাঃ কথাঃ ।
-> তজ্জোষণাদাশ্বপবর্গবর্ত্মনি
-> শ্রদ্ধা রতির্ভক্তিরনুক্রমিষ্যতি ॥৬০॥
-
 > satāṁ prasaṅgān mama vīrya-saṁvido
 > bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ
 > taj-joṣaṇād āśv apavarga-vartmani
@@ -1122,9 +917,6 @@ This verse appears in *Śrīmad-Bhāgavatam* (3.25.25), where Kapiladeva replies
 
 ### CC Adi 1.61
 
-> ঈশ্বরস্বরূপ ভক্ত তাঁর অধিষ্ঠান ।
-> ভক্তের হৃদয়ে কৃষ্ণের সতত বিশ্রাম ॥৬১॥
-
 > īśvara-svarūpa bhakta tāṅra adhiṣṭhāna
 > bhaktera hṛdaye kṛṣṇera satata viśrāma
 
@@ -1135,9 +927,6 @@ This verse appears in *Śrīmad-Bhāgavatam* (3.25.25), where Kapiladeva replies
 The Supreme Personality of Godhead is one without a second, and therefore He is all-powerful. He has inconceivable energies, of which three are principal. The devotee is considered to be one of these energies, never the energetic. The energetic is always the Supreme Lord. The energies are related to Him for the purpose of eternal service. A living entity in the conditional stage can uncover his aptitude for serving the Absolute Truth by the grace of Kṛṣṇa and the spiritual master. Then the Lord reveals Himself within his heart, and he can know that Kṛṣṇa is seated in the heart of every pure devotee. Kṛṣṇa is actually situated in the heart of every living entity, but only a devotee can realize this fact.
 
 ### CC Adi 1.62
-
-> সাধবো হৃদয়ং মহ্যং সাধূনাং হৃদয়ন্ত্বহম্ ।
-> মদন্যত্তে ন জানন্তি নাহং তেভ্যো মনাগপি ॥৬২॥
 
 > sādhavo hṛdayaṁ mahyaṁ
 > sādhūnāṁ hṛdayaṁ tv aham
@@ -1154,9 +943,6 @@ The Lord, being full and free from problems, can wholeheartedly care for His dev
 
 ### CC Adi 1.63
 
-> ভবদ্বিধা ভাগবতাস্তীর্থভূতাঃ স্বয়ং বিভো ।
-> তীর্থীকূর্বন্তি তীর্থানি স্বান্তঃস্থেন গদাভৃতা ॥৬৩॥
-
 > bhavad-vidhā bhāgavatās
 > tīrtha-bhūtāḥ svayaṁ vibho
 > tīrthī-kurvanti tīrthāni
@@ -1170,9 +956,6 @@ This verse was spoken by Mahārāja Yudhiṣṭhira to Vidura in *Śrīmad-Bhāg
 
 ### CC Adi 1.64
 
-> সেই ভক্তগণ হয় দ্বিবিধ প্রকার ।
-> পারিষদ্গণ এক, সাধকগণ আর ॥৬৪॥
-
 > sei bhakta-gaṇa haya dvi-vidha prakāra
 > pāriṣad-gaṇa eka, sādhaka-gaṇa āra
 
@@ -1183,11 +966,6 @@ This verse was spoken by Mahārāja Yudhiṣṭhira to Vidura in *Śrīmad-Bhāg
 Perfect servitors of the Lord are considered His personal associates, whereas devotees endeavoring to attain perfection are called neophytes. Among the associates, some are attracted by the opulences of the Personality of Godhead, and others are attracted by nuptial love of Godhead. The former devotees are placed in the realm of Vaikuṇṭha to render reverential devotional service, whereas the latter devotees are placed in Vṛndāvana for the direct service of Śrī Kṛṣṇa.
 
 ### CC Adi 1.65-66
-
-> ঈশ্বরের অবতার এ-তিন প্রকার ।
-> অংশ-অবতার, আর গুণ-অবতার ॥৬৫॥
-> শক্ত্যাবেশ-অবতার — তৃতীয় এমত ।
-> অংশ-অবতার — পুরুষ-মৎস্যাদিক যত ॥৬৬॥
 
 > īśvarera avatāra e-tina prakāra
 > aṁśa-avatāra, āra guṇa-avatāra
@@ -1201,9 +979,6 @@ Perfect servitors of the Lord are considered His personal associates, whereas de
 
 ### CC Adi 1.67
 
-> ব্রহ্মা, বিষ্ণু, শিব — তিন গুণাবতারে গণি ।
-> শক্ত্যাবেশ — সনকাদি, পৃথু, ব্যাসমুনি ॥৬৭॥
-
 > brahmā viṣṇu śiva—tina guṇāvatāre gaṇi
 > śakty-āveśa—sanakādi, pṛthu, vyāsa-muni
 
@@ -1212,9 +987,6 @@ Perfect servitors of the Lord are considered His personal associates, whereas de
 **Brahmā, Viṣṇu and Śiva are qualitative incarnations. Empowered incarnations are those like the Kumāras, King Pṛthu and Mahā-muni Vyāsa [the compiler of the Vedas].**
 
 ### CC Adi 1.68
-
-> দুইরূপে হয় ভগবানের প্রকাশ ।
-> একে ত’ প্রকাশ হয়, আরে ত’ বিলাস ॥৬৮॥
 
 > dui-rūpe haya bhagavānera prakāśa
 > eke ta' prakāśa haya, āre ta' vilāsa
@@ -1227,11 +999,6 @@ The Supreme Lord expands His personal forms in two primary categories. The *prak
 
 ### CC Adi 1.69-70
 
-> একই বিগ্রহ যদি হয় বহুরূপ ।
-> আকারে ত’ ভেদ নাহি, একই স্বরূপ ॥৬৯॥
-> মহিষী-বিবাহে, যৈছে যৈছে কৈল রাস ।
-> ইহাকে কহিয়ে কৃষ্ণের মুখ্য ‘প্রকাশ’ ॥৭০॥
-
 > eka-i vigraha yadi haya bahu-rūpa
 > ākāre ta' bheda nāhi, eka-i svarūpa
 
@@ -1243,9 +1010,6 @@ The Supreme Lord expands His personal forms in two primary categories. The *prak
 **When the Personality of Godhead expands Himself in many forms, all nondifferent in Their features, as Lord Kṛṣṇa did when He married sixteen thousand queens and when He performed His rāsa dance, such forms of the Lord are called manifested forms [prakāśa-vigrahas].**
 
 ### CC Adi 1.71
-
-> চিত্রং বতৈতদেকেন বপুষা যুগপৎ পৃথক্ ।
-> গৃহেষু দ্ব্যষ্টসাহস্রং স্ত্রিয় এক উদাবহৎ ॥৭১॥
 
 > citraṁ bataitad ekena
 > vapuṣā yugapat pṛthak
@@ -1260,9 +1024,6 @@ This verse is from *Śrīmad-Bhāgavatam* (10.69.2).
 
 ### CC Adi 1.72
 
-> রাসোৎসবঃ সংপ্রবৃত্তো গোপীমণ্ডলমণ্ডিতঃ ।
-> যোগেশ্বরেণ কৃষ্ণেন তাসাং মধ্যে দ্বয়োর্দ্বয়োঃ ॥৭২॥
-
 > rāsotsavaḥ sampravṛtto
 > gopī-maṇḍala-maṇḍitaḥ
 > yogeśvareṇa kṛṣṇena
@@ -1275,11 +1036,6 @@ This verse is from *Śrīmad-Bhāgavatam* (10.69.2).
 This verse is also quoted from *Śrīmad-Bhāgavatam* (10.33.3).
 
 ### CC Adi 1.73-74
-
-> প্রবিষ্টেন গৃহীতানাং কণ্ঠে স্বনিকটং স্ত্রিয়ঃ ।
-> যং মন্যেরন্নভস্তাবদ্বিমানশতসঙ্কুলম্ ॥৭৩॥
-> দিবৌকসাং সদারাণামত্যৌৎসুক্যভৃতাত্মনাম্ ।
-> ততো দুন্দুভয়ো নেদুর্নিপেতুঃ পুষ্পবৃষ্টয়ঃ ॥৭৪॥
 
 > praviṣṭena gṛhītānāṁ
 > kaṇṭhe sva-nikaṭaṁ striyaḥ
@@ -1299,9 +1055,6 @@ This is another quote from *Śrīmad-Bhāgavatam* (10.33.3-4).
 
 ### CC Adi 1.75
 
-> অনেকত্র প্রকটতা রূপস্যৈকস্য যৈকদা ।
-> সর্বথা তত্স্বরূপৈব স প্রকাশ ইতীর্যতে ॥৭৫॥
-
 > anekatra prakaṭatā
 > rūpasyaikasya yaikadā
 > sarvathā tat-svarūpaiva
@@ -1315,9 +1068,6 @@ This is a quotation from the *Laghu-bhāgavatāmṛta* (1.21), compiled by Śrī
 
 ### CC Adi 1.76
 
-> একই বিগ্রহ কিন্তু আকারে হয় আন ।
-> অনেক প্রকাশ হয়, ‘বিলাস’ তার নাম ॥৭৬॥
-
 > eka-i vigraha kintu ākāre haya āna
 > aneka prakāśa haya, 'vilāsa' tāra nāma
 
@@ -1326,9 +1076,6 @@ This is a quotation from the *Laghu-bhāgavatāmṛta* (1.21), compiled by Śrī
 **But when the numerous forms are slightly different from one another, they are called vilāsa-vigrahas.**
 
 ### CC Adi 1.77
-
-> স্বরূপমন্যাকারং যত্তস্য ভাতি বিলাসতঃ ।
-> প্রায়েণাত্মসমং শক্ত্যা স বিলাসো নিগদ্যতে ॥৭৭॥
 
 > svarūpam anyākāraṁ yat
 > tasya bhāti vilāsataḥ
@@ -1343,9 +1090,6 @@ This is another quotation from the *Laghu-bhāgavatāmṛta* (1.15).
 
 ### CC Adi 1.78
 
-> যৈছে বলদেব, পরব্যোমে নারায়ণ ।
-> যৈছে বাসুদেব প্রদ্যুম্নাদি সঙ্কর্ষণ ॥৭৮॥
-
 > yaiche baladeva, paravyome nārāyaṇa
 > yaiche vāsudeva pradyumnādi saṅkarṣaṇa
 
@@ -1354,11 +1098,6 @@ This is another quotation from the *Laghu-bhāgavatāmṛta* (1.15).
 **Examples of such vilāsa-vigrahas are Baladeva, Nārāyaṇa in Vaikuṇṭha-dhāma, and the catur-vyūha-Vāsudeva, Saṅkarṣaṇa, Pradyumna and Aniruddha.**
 
 ### CC Adi 1.79-80
-
-> ঈশ্বরের শক্তি হয় এ-তিন প্রকার ।
-> এক লক্ষ্মীগণ, পুরে মহিষীগণ আর ॥৭৯॥
-> ব্রজে গোপীগণ আর সভাতে প্রধান ।
-> ব্রজেন্দ্রনন্দন যা’তে স্বয়ং ভগবান্ ॥৮০॥
 
 > īśvarera śakti haya e-tina prakāra
 > eka lakṣmī-gaṇa, pure mahiṣī-gaṇa āra
@@ -1372,9 +1111,6 @@ This is another quotation from the *Laghu-bhāgavatāmṛta* (1.15).
 
 ### CC Adi 1.81
 
-> স্বয়ংরূপ কৃষ্ণের কায়ব্যূহ — তাঁর সম।
-> ভক্ত সহিতে হয় তাঁহার আবরণ ॥৮১॥
-
 > svayaṁ-rūpa kṛṣṇera kāya-vyūha—tāṅra sama
 > bhakta sahite haya tāṅhāra āvaraṇa
 
@@ -1385,9 +1121,6 @@ This is another quotation from the *Laghu-bhāgavatāmṛta* (1.15).
 Śrī Kṛṣṇa and His various personal expansions are nondifferent in potential power. These expansions are associated with further, secondary expansions, or servitor expansions, who are called devotees.
 
 ### CC Adi 1.82
-
-> ভক্ত আদি ক্রমে কৈল সভার বন্দন ।
-> এ-সভার বন্দন সর্বশুভের কারণ ॥৮২॥
 
 > bhakta ādi krame kaila sabhāra vandana
 > e-sabhāra vandana sarva-śubhera kāraṇa
@@ -1400,9 +1133,6 @@ To offer prayers to the Lord, one should first offer prayers to His devotees and
 
 ### CC Adi 1.83
 
-> প্রথম শ্লোকে কহি সামান্য মঙ্গলাচরণ ।
-> দ্বিতীয় শ্লোকেতে করি বিশেষ বন্দন ॥৮৩॥
-
 > prathama śloke kahi sāmānya maṅgalācaraṇa
 > dvitīya ślokete kari viśeṣa vandana
 
@@ -1411,9 +1141,6 @@ To offer prayers to the Lord, one should first offer prayers to His devotees and
 **In the first verse I have invoked a general benediction, but in the second I have prayed to the Lord in a particular form.**
 
 ### CC Adi 1.84
-
-> বন্দে শ্রীকৃষ্ণচৈতন্য-নিত্যানন্দৌ সহোদিতৌ ।
-> গৌড়োদয়ে পুষ্পবন্তৌ চিত্রৌ শন্দৌ তমোনুদৌ ॥৮৪॥
 
 > vande śrī-kṛṣṇa-caitanya-
 > nityānandau sahoditau
@@ -1425,11 +1152,6 @@ To offer prayers to the Lord, one should first offer prayers to His devotees and
 **"I offer my respectful obeisances unto Śrī Kṛṣṇa Caitanya and Lord Nityānanda, who are like the sun and moon. They have arisen simultaneously on the horizon of Gauḍa to dissipate the darkness of ignorance and thus wonderfully bestow benediction upon all."**
 
 ### CC Adi 1.85-86
-
-> ব্রজে যে বিহরে পূর্বে কৃষ্ণ-বলরাম ।
-> কোটীসূর্যচন্দ্র জিনি দোঁহার নিজধাম ॥৮৫॥
-> সেই দুই জগতেরে হইয়া সদয় ।
-> গৌড়দেশে পূর্ব-শৈলে করিলা উদয় ॥৮৬॥
 
 > vraje ye vihare pūrve kṛṣṇa-balarāma
 > koṭī-sūrya-candra jini doṅhāra nija-dhāma
@@ -1443,9 +1165,6 @@ To offer prayers to the Lord, one should first offer prayers to His devotees and
 
 ### CC Adi 1.87
 
-> শ্রীকৃষ্ণচৈতন্য আর প্রভু নিত্যানন্দ ।
-> যাঁহার প্রকাশে সর্ব জগৎ আনন্দ ॥৮৭॥
-
 > śrī-kṛṣṇa-caitanya āra prabhu nityānanda
 > yāṅhāra prakāśe sarva jagat ānanda
 
@@ -1454,11 +1173,6 @@ To offer prayers to the Lord, one should first offer prayers to His devotees and
 **The appearance of Śrī Kṛṣṇa Caitanya and Prabhu Nityānanda has surcharged the world with happiness.**
 
 ### CC Adi 1.88-89
-
-> সূর্যচন্দ্র হরে যৈছে সব অন্ধকার ।
-> বস্তু প্রকাশিয়া করে ধর্মের প্রচার ॥৮৮॥
-> এই মত দুই ভাই জীবের অজ্ঞান- ।
-> তমোনাশ করি’ কৈল তত্ত্ববস্তু-দান ॥৮৯॥
 
 > sūrya-candra hare yaiche saba andhakāra
 > vastu prakāśiyā kare dharmera pracāra
@@ -1472,9 +1186,6 @@ To offer prayers to the Lord, one should first offer prayers to His devotees and
 
 ### CC Adi 1.90
 
-> অজ্ঞান-তমের নাম কহিয়ে ‘কৈতব’ ।
-> ধর্ম-অর্থ-কাম-মোক্ষ-বাঞ্ছা আদি সব ॥৯০॥
-
 > ajñāna-tamera nāma kahiye 'kaitava'
 > dharma-artha-kāma-mokṣa-vāñchā ādi saba
 
@@ -1483,11 +1194,6 @@ To offer prayers to the Lord, one should first offer prayers to His devotees and
 **The darkness of ignorance is called kaitava, the way of cheating, which begins with religiosity, economic development, sense gratification and liberation.**
 
 ### CC Adi 1.91
-
-> ধর্মঃ প্রোজ্ঝিতকৈতবোঽত্র পরমো নির্মৎসরাণাং সতাং
-> বেদ্যং বাস্তবমত্র বস্তু শিবদং তাপত্রয়োন্মূলনম্ ।
-> শ্রীমদ্ভাগবতে মহামুনিকৃতে কিংবাপরৈরীশ্বরঃ
-> সদ্যো হৃদ্যবরুধ্যতেঽত্র কৃতিভিঃ শুশ্রূষুভিস্তৎক্ষণাৎ ॥৯১॥
 
 > dharmaḥ projjhita-kaitavo 'tra paramo nirmatsarāṇāṁ satāṁ
 > vedyaṁ vāstavam atra vastu śiva-daṁ tāpa-trayonmūlanam
@@ -1531,9 +1237,6 @@ By contact with material nature the living entities exhibit varied symptoms of t
 
 ### CC Adi 1.92
 
-> তার মধ্যে মোক্ষবাঞ্ছা কৈতবপ্রধান ।
-> যাহা হৈতে কৃষ্ণভক্তি হয় অন্তর্ধান ॥৯২॥
-
 > tāra madhye mokṣa-vāñchā kaitava-pradhāna
 > yāhā haite kṛṣṇa-bhakti haya antardhāna
 
@@ -1545,8 +1248,6 @@ The desire to merge into the impersonal Brahman is the subtlest type of atheism.
 
 ### CC Adi 1.93
 
-> “প্র-শব্দেন মোক্ষাভিসন্ধিরপি নিরস্তঃ” ইতি ॥৯৩॥
-
 > "pra-śabdena mokṣābhisandhir api nirastaḥ" iti
 
 *pra-śabdena*—by the prefix "*pra*"; *mokṣa-abhisandhiḥ*—the intention of liberation; *api*—certainly; *nirastaḥ*—nullified; *iti*—thus.
@@ -1556,9 +1257,6 @@ The desire to merge into the impersonal Brahman is the subtlest type of atheism.
 This is an annotation by Śrīdhara Svāmī, the great commentator on *Śrīmad-Bhāgavatam.*
 
 ### CC Adi 1.94
-
-> কৃষ্ণভক্তির বাধক — যত শুভাশুভ কর্ম ।
-> সেহ এক জীবের অজ্ঞানতমো-ধর্ম ॥৯৪॥
 
 > kṛṣṇa-bhaktira bādhaka—yata śubhāśubha karma
 > seha eka jīvera ajñāna-tamo-dharma
@@ -1571,9 +1269,6 @@ The poetical comparison of Lord Caitanya and Lord Nityānanda to the sun and moo
 
 ### CC Adi 1.95
 
-> যাঁহার প্রসাদে এই তমো হয় নাশ ।
-> তমো নাশ করি’ করে তত্ত্বের প্রকাশ ॥৯৫॥
-
 > yāṅhāra prasāde ei tamo haya nāśa
 > tamo nāśa kari' kare tattvera prakāśa
 
@@ -1582,9 +1277,6 @@ The poetical comparison of Lord Caitanya and Lord Nityānanda to the sun and moo
 **By the grace of Lord Caitanya and Lord Nityānanda, this darkness of ignorance is removed, and the truth is brought to light.**
 
 ### CC Adi 1.96
-
-> তত্ত্ববস্তু — কৃষ্ণ, কৃষ্ণভক্তি, প্রেমরূপ ।
-> নাম-সংকীর্তন — সব আনন্দস্বরূপ ॥৯৬॥
 
 > tattva-vastu—kṛṣṇa, kṛṣṇa-bhakti, prema-rūpa
 > nāma-saṅkīrtana—saba ānanda-svarūpa
@@ -1595,9 +1287,6 @@ The poetical comparison of Lord Caitanya and Lord Nityānanda to the sun and moo
 
 ### CC Adi 1.97
 
-> সূর্য চন্দ্র বাহিরের তমঃ সে বিনাশে ।
-> বহির্বস্তু ঘট-পট-আদি সে প্রকাশে ॥৯৭॥
-
 > sūrya candra bāhirera tamaḥ se vināśe
 > bahir-vastu ghaṭa-paṭa-ādi se prakāśe
 
@@ -1606,9 +1295,6 @@ The poetical comparison of Lord Caitanya and Lord Nityānanda to the sun and moo
 **The sun and moon dissipate the darkness of the external world and thus reveal external material objects like pots and plates.**
 
 ### CC Adi 1.98
-
-> দুই ভাই হৃদয়ের ক্ষালি’ অন্ধকার ।
-> দুই ভাগবত-সঙ্গে করান সাক্ষাৎকার ॥৯৮॥
 
 > dui bhāi hṛdayera kṣāli' andhakāra
 > dui bhāgavata-saṅge karāna sākṣātkāra
@@ -1619,9 +1305,6 @@ The poetical comparison of Lord Caitanya and Lord Nityānanda to the sun and moo
 
 ### CC Adi 1.99
 
-> এক ভাগবত বড় — ভাগবত-শাস্ত্র ।
-> আর ভাগবত — ভক্ত ভক্তি-রস-পাত্র ॥৯৯॥
-
 > eka bhāgavata baḍa—bhāgavata-śāstra
 > āra bhāgavata—bhakta bhakti-rasa-pātra
 
@@ -1630,9 +1313,6 @@ The poetical comparison of Lord Caitanya and Lord Nityānanda to the sun and moo
 **One of the bhāgavatas is the great scripture Śrīmad-Bhāgavatam, and the other is the pure devotee absorbed in the mellows of loving devotion.**
 
 ### CC Adi 1.100
-
-> দুই ভাগবত দ্বারা দিয়া ভক্তিরস ।
-> তাঁহার হৃদয়ে তাঁর প্রেমে হয় বশ ॥১০০॥
 
 > dui bhāgavata dvārā diyā bhakti-rasa
 > tāṅhāra hṛdaye tāṅra preme haya vaśa
@@ -1643,9 +1323,6 @@ The poetical comparison of Lord Caitanya and Lord Nityānanda to the sun and moo
 
 ### CC Adi 1.101
 
-> এক অদ্ভুত — সমকালে দোঁহার প্রকাশ ।
-> আর অদ্ভুত — চিত্তগুহার তমঃ করে নাশ ॥১০১॥
-
 > eka adbhuta—sama-kāle doṅhāra prakāśa
 > āra adbhuta—citta-guhāra tamaḥ kare nāśa
 
@@ -1654,9 +1331,6 @@ The poetical comparison of Lord Caitanya and Lord Nityānanda to the sun and moo
 **The first wonder is that both brothers appear simultaneously, and the other is that They illuminate the innermost depths of the heart.**
 
 ### CC Adi 1.102
-
-> এই চন্দ্র সূর্য দুই পরম সদয় ।
-> জগতের ভাগ্যে গৌড়ে করিলা উদয় ॥১০২॥
 
 > ei candra sūrya dui parama sadaya
 > jagatera bhāgye gauḍe karilā udaya
@@ -1671,9 +1345,6 @@ Caitanya Mahāprabhu and Nityānanda Prabhu drive away the five kinds of ignoran
 
 ### CC Adi 1.103
 
-> সেই দুই প্রভুর করি চরণ বন্দন ।
-> যাঁহা হইতে বিঘ্ননাশ অভীষ্টপূরণ ॥১০৩॥
-
 > sei dui prabhura kari caraṇa vandana
 > yāṅhā ha-ite vighna-nāśa abhīṣṭa-pūraṇa
 
@@ -1682,9 +1353,6 @@ Caitanya Mahāprabhu and Nityānanda Prabhu drive away the five kinds of ignoran
 **Let us therefore worship the holy feet of these two Lords. Thus one can be rid of all difficulties on the path of self-realization.**
 
 ### CC Adi 1.104
-
-> এই দুই শ্লোকে কৈল মঙ্গল-বন্দন ।
-> তৃতীয় শ্লোকের অর্থ শুন সর্বজন ॥১০৪॥
 
 > ei dui śloke kaila maṅgala-vandana
 > tṛtīya ślokera artha śuna sarva-jana
@@ -1695,9 +1363,6 @@ Caitanya Mahāprabhu and Nityānanda Prabhu drive away the five kinds of ignoran
 
 ### CC Adi 1.105
 
-> বক্তব্য-বাহুল্য, গ্রন্থ-বিস্তারের ডরে ।
-> বিস্তারে না বর্ণি, সারার্থ কহি অল্পাক্ষরে ॥১০৫॥
-
 > vaktavya-bāhulya, grantha-vistārera ḍare
 > vistāre nā varṇi, sārārtha kahi alpākṣare
 
@@ -1707,8 +1372,6 @@ Caitanya Mahāprabhu and Nityānanda Prabhu drive away the five kinds of ignoran
 
 ### CC Adi 1.106
 
-> “মিতঞ্চ সারঞ্চ বচো হি বাগ্মিতা” ইতি ॥১০৬॥
-
 > "mitaṁ ca sāraṁ ca vaco hi vāgmitā" iti
 
 *mitam*—concise; *ca*—and; *sāram*—essential; *ca*—and; *vacaḥ*—speech; *hi*—certainly; *vāgmitā*—eloquence; *iti*—thus.
@@ -1716,9 +1379,6 @@ Caitanya Mahāprabhu and Nityānanda Prabhu drive away the five kinds of ignoran
 **"Essential truth spoken concisely is true eloquence."**
 
 ### CC Adi 1.107
-
-> শুনিলে খণ্ডিবে চিত্তের অজ্ঞানাদি দোষ ।
-> কৃষ্ণে গাঢ় প্রেম হবে, পাইবে সন্তোষ ॥১০৭॥
 
 > śunile khaṇḍibe cittera ajñānādi doṣa
 > kṛṣṇe gāḍha prema habe, pāibe santoṣa
@@ -1728,11 +1388,6 @@ Caitanya Mahāprabhu and Nityānanda Prabhu drive away the five kinds of ignoran
 **Simply hearing submissively will free one's heart from all the faults of ignorance, and thus one will achieve deep love for Kṛṣṇa. This is the path of peace.**
 
 ### CC Adi 1.108-109
-
-> শ্রীচৈতন্য-নিত্যানন্দ-অদ্বৈত-মহত্ত্ব ।
-> তাঁর ভক্ত-ভক্তি-নাম-প্রেম-রসতত্ত্ব ॥১০৮॥
-> ভিন্ন ভিন্ন লিখিয়াছি করিয়া বিচার ।
-> শুনিলে জানিবে সব বস্তুতত্ত্বসার ॥১০৯॥
 
 > śrī-caitanya-nityānanda-advaita-mahattva
 > tāṅra bhakta-bhakti-nāma-prema-rasa-tattva
@@ -1745,9 +1400,6 @@ Caitanya Mahāprabhu and Nityānanda Prabhu drive away the five kinds of ignoran
 **If one patiently hears about the glories of Śrī Caitanya Mahāprabhu, Śrī Nityānanda Prabhu and Śrī Advaita Prabhu—and Their devotees, devotional activities, names, fame, and the mellows of Their transcendental loving exchanges—one will learn the essence of the Absolute Truth. Therefore I have described these [in the Caitanya-caritāmṛta] with logic and discrimination.**
 
 ### CC Adi 1.110
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥১১০॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -1762,9 +1414,6 @@ Caitanya Mahāprabhu and Nityānanda Prabhu drive away the five kinds of ignoran
 
 ### CC Adi 2.1
 
-> শ্রীচৈতন্যপ্রভুং বন্দে বালোঽপি যদনুগ্রহাৎ ।
-> তরেন্নানমতগ্রাহব্যাপ্তং সিদ্ধান্তসাগরম্ ॥১॥
-
 > śrī-caitanya-prabhuṁ vande
 > bālo 'pi yad-anugrahāt
 > taren nānā-mata-grāha-
@@ -1777,11 +1426,6 @@ Caitanya Mahāprabhu and Nityānanda Prabhu drive away the five kinds of ignoran
 By the mercy of the Supreme Personality of Godhead Śrī Caitanya Mahāprabhu, even an inexperienced boy with no educational culture can be saved from the ocean of nescience, which is full of various types of philosophical doctrines that are like dangerous aquatic animals. The philosophy of the Buddha, the argumentative presentations of the *jñānīs,* the *yoga* systems of Patañjali and Gautama, and the systems of philosophers like Kaṇāda, Kapila and Dattātreya are dangerous creatures in the ocean of nescience. By the grace of Śrī Caitanya Mahāprabhu one can have real understanding of the essence of knowledge by avoiding these sectarian views and accepting the lotus feet of Kṛṣṇa as the ultimate goal of life. Let us all worship Lord Śrī Caitanya Mahāprabhu for His gracious mercy to the conditioned souls.
 
 ### CC Adi 2.2
-
-> কৃষ্ণোৎকীর্তনগাননর্তনকলাপাথোজনি-ভ্রাজিতা
-> সদ্ভক্তাবলিহংসচক্রমধুপশ্রেণীবিহারাস্পদম্ ।
-> কর্ণানন্দিকলধ্বনির্বহতু মে জিহ্বামরুপ্রাঙ্গণে
-> শ্রীচৈতন্যদয়ানিধে তব লসল্লীলাসুধাস্বর্ধুনী ॥২॥
 
 > kṛṣṇotkīrtana-gāna-nartana-kalā-pāthojani-bhrājitā
 > sad-bhaktāvali-haṁsa-cakra-madhupa-śreṇī-vihārāspadam
@@ -1798,9 +1442,6 @@ Lord Caitanya's movement of Kṛṣṇa consciousness is full of dancing and sin
 
 ### CC Adi 2.3
 
-> জয় জয় শ্রীচৈতন্য জয় নিত্যানন্দ ।
-> জয়াদ্বৈতচন্দ্র জয় গৌরভক্তবৃন্দ ॥৩॥
-
 > jaya jaya śrī-caitanya jaya nityānanda
 > jayādvaita-candra jaya gaura-bhakta-vṛnda
 
@@ -1810,9 +1451,6 @@ Lord Caitanya's movement of Kṛṣṇa consciousness is full of dancing and sin
 
 ### CC Adi 2.4
 
-> তৃতীয় শ্লোকের অর্থ করি বিবরণ ।
-> বস্তু-নির্দেশরূপ মঙ্গলাচরণ ॥৪॥
-
 > tṛtīya ślokera artha kari vivaraṇa
 > vastu-nirdeśa-rūpa maṅgalācaraṇa
 
@@ -1821,11 +1459,6 @@ Lord Caitanya's movement of Kṛṣṇa consciousness is full of dancing and sin
 **Let me describe the meaning of the third verse [of the first fourteen]. It is an auspicious vibration that describes the Absolute Truth.**
 
 ### CC Adi 2.5
-
-> যদদ্বৈতং ব্রহ্মোপনিষদি তদপ্যস্য তনুভা
-> য আত্মান্তর্যামী পুরুষ ইতি সোঽস্যাংশবিভবঃ ।
-> ষড়ৈশ্বর্যৈঃ পূর্ণো য ইহ ভগবান্ স স্বয়ময়ং
-> ন চৈতন্যাৎ কৃষ্ণাজ্জগতি পরতত্ত্বং পরমিহ ॥৫॥
 
 > yad advaitaṁ brahmopaniṣadi tad apy asya tanu-bhā
 > ya ātmāntar-yāmī puruṣa iti so 'syāṁśa-vibhavaḥ
@@ -1856,9 +1489,6 @@ This verse of the *Caitanya-caritāmṛta* by Kṛṣṇadāsa Kavirāja Gosvām
 
 ### CC Adi 2.6
 
-> ব্রহ্ম, আত্মা, ভগবান্ — অনুবাদ তিন ।
-> অঙ্গপ্রভা, অংশ, স্বরূপ — তিন বিধেয়-চিহ্ন ॥৬॥
-
 > brahma, ātmā, bhagavān—anuvāda tina
 > aṅga-prabhā, aṁśa, svarūpa—tina vidheya-cihna
 
@@ -1867,9 +1497,6 @@ This verse of the *Caitanya-caritāmṛta* by Kṛṣṇadāsa Kavirāja Gosvām
 **Impersonal Brahman, localized Paramātmā and the Personality of Godhead are three subjects, and the glowing effulgence, the partial manifestation and the original form are their three respective predicates.**
 
 ### CC Adi 2.7
-
-> অনুবাদ আগে, পাছে বিধেয় স্থাপন ।
-> সেই অর্থ কহি, শুন শাস্ত্র-বিবরণ ॥৭॥
 
 > anuvāda āge, pāche vidheya sthāpana
 > sei artha kahi, śuna śāstra-vivaraṇa
@@ -1880,9 +1507,6 @@ This verse of the *Caitanya-caritāmṛta* by Kṛṣṇadāsa Kavirāja Gosvām
 
 ### CC Adi 2.8
 
-> স্বয়ং ভগবান্ কৃষ্ণ, বিষ্ণু-পরতত্ত্ব ।
-> পূর্ণজ্ঞান পূর্ণানন্দ পরম মহত্ত্ব ॥৮॥
-
 > svayaṁ bhagavān kṛṣṇa, viṣṇu-paratattva
 > pūrṇa-jñāna pūrṇānanda parama mahattva
 
@@ -1891,9 +1515,6 @@ This verse of the *Caitanya-caritāmṛta* by Kṛṣṇadāsa Kavirāja Gosvām
 **Kṛṣṇa, the original form of the Personality of Godhead, is the summum bonum of the all-pervading Viṣṇu. He is all-perfect knowledge and all-perfect bliss. He is the Supreme Transcendence.**
 
 ### CC Adi 2.9
-
-> ‘নন্দসুত’ বলি, যাঁরে ভাগবতে গাই ।
-> সেই কৃষ্ণ অবতীর্ণ চৈতন্যগোসাঞি ॥৯॥
 
 > 'nanda-suta' bali' yāṅre bhāgavate gāi
 > sei kṛṣṇa avatīrṇa caitanya-gosāñi
@@ -1907,9 +1528,6 @@ According to the rules of rhetorical arrangement for efficient composition in li
 The author wants to establish first that the essence of the *Vedas* is the *viṣṇu-tattva,* the Absolute Truth, Viṣṇu, the all-pervading Godhead. The *viṣṇu-tattva* has different categories, of which the highest is Lord Kṛṣṇa, the ultimate *viṣṇu-tattva,* as confirmed in the *Bhagavad-gītā* and throughout the Vedic literature. In *Śrīmad-Bhāgavatam* the same Supreme Personality of Godhead Kṛṣṇa is described as Nanda-suta, the son of King Nanda. Kṛṣṇadāsa Kavirāja Gosvāmī says that Nandasuta has again appeared as Lord Śrī Kṛṣṇa Caitanya Mahāprabhu because the conclusion of the Vedic literature is that there is no difference between Lord Kṛṣṇa and Lord Caitanya Mahāprabhu. This the author will prove. If it is thus proved that Śrī Kṛṣṇa is the origin of all *tattvas* (truths), namely Brahman, Paramātmā and Bhagavān, and that there is no difference between Śrī Kṛṣṇa and Lord Śrī Caitanya Mahāprabhu, it will not be difficult to understand that Śrī Caitanya Mahāprabhu is also the same origin of all *tattvas.* The same Absolute Truth, as He is revealed to students of different realizations, is called Brahman, Paramātmā and Bhagavān.
 
 ### CC Adi 2.10
-
-> প্রকাশবিশেষে তেঁহ ধরে তিন নাম ।
-> ব্রহ্ম, পরমাত্মা আর স্বয়ং-ভগবান্ ॥১০॥
 
 > prakāśa-viśeṣe teṅha dhare tina nāma
 > brahma, paramātmā āra svayaṁ-bhagavān
@@ -1930,9 +1548,6 @@ The all-pervading truth that exists eternally during the creation, maintenance a
 
 ### CC Adi 2.11
 
-> বদন্তি তত্তত্ত্ববিদস্তত্ত্বং যজ্জ্ঞানমদ্বয়ম্ ।
-> ব্রহ্মেতি পরমাত্মেতি ভগবানিতি শব্দ্যতে ॥১১॥
-
 > vadanti tat tattva-vidas
 > tattvaṁ yaj jñānam advayam
 > brahmeti paramātmeti
@@ -1947,9 +1562,6 @@ This Sanskrit verse appears as the eleventh verse of the First Canto, Second Cha
 Devotees of the Personality of Godhead know that Śrī Kṛṣṇa, the son of the King of Vraja, is the Absolute Truth. They do not discriminate between Śrī Kṛṣṇa's name, form, quality and pastimes. One who wants to separate the Lord's absolute name, form and qualities must be understood to be lacking in absolute knowledge. A pure devotee knows that when he chants the transcendental name Kṛṣṇa, Śrī Kṛṣṇa is present as transcendental sound. He therefore chants with full respect and veneration. When he sees the forms of Śrī Kṛṣṇa, he does not see anything different from the Lord. If one sees otherwise, he must be considered untrained in absolute knowledge. This lack of absolute knowledge is called *māyā.* One who is not Kṛṣṇa conscious is ruled by the spell of *māyā* under the control of a duality in knowledge. In the Absolute, all manifestations of the Supreme Lord are nondual, just as the multifarious forms of Viṣṇu, the controller of *māyā,* are nondual. Empiric philosophers who pursue the impersonal Brahman accept only the knowledge that the personality of the living entity is not different from the personality of the Supreme Lord, and mystic *yogīs* who try to locate the Paramātmā accept only the knowledge that the pure soul is not different from the Supersoul. The absolute conception of a pure devotee, however, includes all others. A devotee does not see anything except in its relationship with Kṛṣṇa, and therefore his realization is the most perfect of all.
 
 ### CC Adi 2.12
-
-> তাঁহার অঙ্গের শুদ্ধ কিরণ-মণ্ডল ।
-> উপনিষৎ কহে তাঁরে ব্রহ্ম সুনির্মল ॥১২॥
 
 > tāṅhāra aṅgera śuddha kiraṇa-maṇḍala
 > upaniṣat kahe tāṅre brahma sunirmala
@@ -1979,9 +1591,6 @@ Three *mantras* of the *Muṇḍaka Upaniṣad* (2.2.9-11) give information rega
 
 ### CC Adi 2.13
 
-> চর্মচক্ষে দেখে যৈছে সূর্য নির্বিশেষ ।
-> জ্ঞানমার্গে লৈতে নারে কৃষ্ণের বিশেষ ॥১৩॥
-
 > carma-cakṣe dekhe yaiche sūrya nirviśeṣa
 > jñāna-mārge laite nāre kṛṣṇera viśeṣa
 
@@ -1990,11 +1599,6 @@ Three *mantras* of the *Muṇḍaka Upaniṣad* (2.2.9-11) give information rega
 **As with the naked eye one cannot know the sun except as a glowing substance, merely by philosophical speculation one cannot understand Lord Kṛṣṇa's transcendental varieties.**
 
 ### CC Adi 2.14
-
-> যস্য প্রভা প্রভবতো জগদণ্ডকোটি-
-> কোটিষ্বশেষবসুধাদিবিভূতিভিন্নম্ ।
-> তদ্ব্রহ্ম নিষ্কলমনন্তমশেষভূতং
-> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥১৪॥
 
 > yasya prabhā prabhavato jagad-aṇḍa-koṭi-
 > koṭīṣv aśeṣa-vasudhādi-vibhūti-bhinnam
@@ -2009,9 +1613,6 @@ This verse appears in the *Brahma-saṁhitā* (5.40). Each and every one of the 
 
 ### CC Adi 2.15
 
-> কোটী কোটী ব্রহ্মাণ্ডে যে ব্রহ্মের বিভূতি ।
-> সেই ব্রহ্ম গোবিন্দের হয় অঙ্গকান্তি ॥১৫॥
-
 > koṭī koṭī brahmāṇḍe ye brahmera vibhūti
 > sei brahma govindera haya aṅga-kānti
 
@@ -2020,9 +1621,6 @@ This verse appears in the *Brahma-saṁhitā* (5.40). Each and every one of the 
 **"The opulences of the impersonal Brahman spread throughout the millions and millions of universes. That Brahman is but the bodily effulgence of Govinda.**
 
 ### CC Adi 2.16
-
-> সেই গোবিন্দ ভজি আমি, তেহোঁ মোর পতি ।
-> তাঁহার প্রসাদে মোর হয় সৃষ্টিশক্তি ॥১৬॥
 
 > sei govinda bhaji āmi, tehoṅ mora pati
 > tāṅhāra prasāde mora haya sṛṣṭi-śakti
@@ -2035,9 +1633,6 @@ Although the sun is situated far away from the other planets, its rays sustain a
 
 ### CC Adi 2.17
 
-> মুনয়ো বাতবাসনাঃ শ্রমণা ঊর্দ্ধ্বমন্থিনঃ ।
-> ব্রহ্মাখ্যং ধাম তে যান্তি শান্তাঃ সন্ন্যাসিনোঽমলাঃ ॥১৭॥
-
 > munayo vāta-vāsanāḥ
 > śramaṇā ūrdhva-manthinaḥ
 > brahmākhyaṁ dhāma te yānti
@@ -2045,14 +1640,11 @@ Although the sun is situated far away from the other planets, its rays sustain a
 
 *munayaḥ*—saints; *vāta-vāsanāḥ*—naked; *śramanāḥ*—who perform severe physical penances; *ūrdhva*—raised up; *manthinaḥ*—whose semen; *brahma-ākhyam*—known as Brahmaloka; *dhāma*—to the abode; *te*—they; *yānti*—go; *śāntāḥ*—equipoised in Brahman; *sannyāsinaḥ*—who are in the renounced order of life; *amalāḥ*—pure.
 
-**[Śrī Uddhava said:] "Naked saints and sannyāsīs who undergo severe physical penances, who can raise the semen to the brain, and who are completely equipoised in Brahman can live in the realm known as Brahmaloka."**
+**"Naked saints and sannyāsīs who undergo severe physical penances, who can raise the semen to the brain, and who are completely equipoised in Brahman can live in the realm known as Brahmaloka."**
 
 In this verse from *Śrīmad-Bhāgavatam* (11.6.47), *vāta-vāsanāḥ* refers to mendicants who do not care about anything material, including clothing, but who depend wholly on nature. Such sages do not cover their bodies even in severe winter or scorching sunshine. They take great pains not to avoid any kind of bodily suffering, and they live by begging from door to door. They never discharge their semen, either knowingly or unknowingly. By such celibacy they are able to raise the semen to the brain. Thus they become most intelligent and develop very sharp memories. Their minds are never disturbed or diverted from contemplation on the Absolute Truth, nor are they ever contaminated by desire for material enjoyment. By practicing austerities under strict discipline, such mendicants attain a neutral state transcendental to the modes of nature and merge into the impersonal Brahman.
 
 ### CC Adi 2.18
-
-> আত্মান্তর্যামী যাঁরে যোগশাস্ত্রে কয় ।
-> সেহ গোবিন্দের অংশ বিভূতি যে হয় ॥১৮॥
 
 > ātmāntaryāmī yāṅre yoga-śāstre kaya
 > seha govindera aṁśa vibhūti ye haya
@@ -2069,9 +1661,6 @@ The authorized scriptures direct the individual souls to revive their relationsh
 
 ### CC Adi 2.19
 
-> অনন্ত স্ফটিকে যৈছে এক সূর্য ভাসে ।
-> তৈছে জীবে গোবিন্দের অংশ প্রকাশে ॥১৯॥
-
 > ananta sphaṭike yaiche eka sūrya bhāse
 > taiche jīve govindera aṁśa prakāśe
 
@@ -2085,9 +1674,6 @@ The Supersoul (Paramātmā), the guide of the individual living beings, does not
 
 ### CC Adi 2.20
 
-> অথবা বহুনৈতেন কিং জ্ঞাতেন তবার্জুন ।
-> বিষ্টভ্যাহমিদং কৃৎস্নমেকাংশেন স্থিতো জগৎ ॥২০॥
-
 > atha vā bahunaitena
 > kiṁ jñātena tavārjuna
 > viṣṭabhyāham idaṁ kṛtsnam
@@ -2100,11 +1686,6 @@ The Supersoul (Paramātmā), the guide of the individual living beings, does not
 Describing His own potencies to Arjuna, the Personality of Godhead Śrī Kṛṣṇa spoke this verse of the *Bhagavad-gītā* [[bg/10/42|(Bg. 10.42)]].
 
 ### CC Adi 2.21
-
-> তমিমমহমজং শরীরভাজাং
-> হৃদি হৃদি ধিষ্ঠিতমাত্মকল্পিতানাম্ ।
-> প্রতিদৃশমিব নৈকধার্কমেকং
-> সমধিগতোঽস্মি বিধূতভেদমোহঃ ॥২১॥
 
 > tam imam aham ajaṁ śarīra-bhājāṁ
 > hṛḍi hṛdi dhiṣṭhitam ātma-kalpitānām
@@ -2120,9 +1701,6 @@ This verse from *Śrīmad-Bhāgavatam* (1.9.42) was spoken by Bhīṣmadeva, the
 Just as the one sun is the object of vision of many different persons, so the one partial representation of Lord Kṛṣṇa who lives in the heart of every living entity as the Paramātmā is a variously perceived object. One who comes intimately in touch with Lord Kṛṣṇa by engaging in His eternal service sees the Supersoul as the localized partial representation of the Supreme Personality of Godhead. Bhīṣma knew the Supersoul to be a partial expansion of Lord Kṛṣṇa, whom he understood to be the supreme unborn transcendental form.
 
 ### CC Adi 2.22
-
-> সেইত গোবিন্দ সাক্ষাচ্চৈতন্য গোসাঞি ।
-> জীব নিস্তারিতে ঐছে দয়ালু আর নাই ॥২২॥
 
 > seita govinda sākṣāc caitanya gosāñi
 > jīva nistārite aiche dayālu āra nāi
@@ -2209,9 +1787,6 @@ Prahlāda said:
 
 ### CC Adi 2.23
 
-> পরব্যোমেতে বৈসে নারায়ণ নাম ।
-> ষড়ৈশ্বর্যপূর্ণ লক্ষ্মীকান্ত ভগবান্ ॥২৩॥
-
 > para-vyomete vaise nārāyaṇa nāma
 > ṣaḍ-aiśvarya-pūrṇa lakṣmī-kānta bhagavān
 
@@ -2220,9 +1795,6 @@ Prahlāda said:
 **Lord Nārāyaṇa, who dominates the transcendental world, is full in six opulences. He is the Personality of Godhead, the Lord of the goddess of fortune.**
 
 ### CC Adi 2.24
-
-> বেদ, ভাগবত, উপনিষৎ, আগম ।
-> ‘পূর্ণতত্ত্ব’ যাঁরে কহে, নাহি যাঁর সম ॥২৪॥
 
 > veda, bhāgavata, upaniṣat, āgama
 > 'pūrṇa-tattva' yāṅre kahe, nāhi yāṅra sama
@@ -2264,9 +1836,6 @@ There are innumerable authoritative statements in the *Vedas* regarding the pers
 
 ### CC Adi 2.25
 
-> ভক্তিযোগে ভক্ত পায় যাঁহার দর্শন ।
-> সূর্য যেন সবিগ্রহ দেখে দেবগণ ॥২৫॥
-
 > bhakti-yoge bhakta pāya yāṅhāra darśana
 > sūrya yena savigraha dekhe deva-gaṇa
 
@@ -2277,9 +1846,6 @@ There are innumerable authoritative statements in the *Vedas* regarding the pers
 The Supreme Personality of Godhead has His eternal form, which cannot be seen by material eyes or mental speculation. Only by transcendental devotional service can one understand the transcendental form of the Lord. The comparison is made here to the qualifications for viewing the personal features of the sun-god. The sun-god is a person who, although not visible to our eyes, is seen from the higher planets by the demigods, whose eyes are suitable for seeing through the glaring sunshine that surrounds him. Every planet has its own atmosphere according to the influence of the arrangement of material nature. It is therefore necessary to have a particular type of bodily construction to reach a particular planet. The inhabitants of earth may be able to reach the moon, but the inhabitants of heaven can reach even the fiery sphere called the sun. What is impossible for man on earth is easy for the demigods in heaven because of their different bodies. Similarly, to see the Supreme Lord one must have the spiritual eyes of devotional service. The Personality of Godhead is unapproachable by those who are habituated to speculation about the Absolute Truth in terms of experimental scientific thought, without reference to the transcendental vibration. The ascending approach to the Absolute Truth ends in the realization of impersonal Brahman and the localized Paramātmā but not the Supreme Transcendental Personality.
 
 ### CC Adi 2.26
-
-> জ্ঞানযোগমার্গে তাঁরে ভজে যেই সব ।
-> ব্রহ্ম-আত্মরূপে তাঁরে করে অনুভব ॥২৬॥
 
 > jñāna-yoga-mārge tāṅre bhaje yei saba
 > brahma-ātma-rūpe tāṅre kare anubhava
@@ -2292,9 +1858,6 @@ Those who are fond of mental speculation (*jñāna-mārga*) or want to meditate 
 
 ### CC Adi 2.27
 
-> উপাসনা-ভেদে জানি ঈশ্বর-মহিমা ।
-> অতএব সূর্য তাঁর দিয়েত উপমা ॥২৭॥
-
 > upāsanā-bhede jāni īśvara-mahimā
 > ataeva sūrya tāṅra diyeta upamā
 
@@ -2304,9 +1867,6 @@ Those who are fond of mental speculation (*jñāna-mārga*) or want to meditate 
 
 ### CC Adi 2.28
 
-> সেই নারায়ণ কৃষ্ণের স্বরূপ-অভেদ ।
-> একই বিগ্রহ, কিন্তু আকার-বিভেদ ॥২৮॥
-
 > sei nārāyaṇa kṛṣṇera svarūpa-abheda
 > eka-i vigraha, kintu ākāra-vibheda
 
@@ -2315,9 +1875,6 @@ Those who are fond of mental speculation (*jñāna-mārga*) or want to meditate 
 **Nārāyaṇa and Śrī Kṛṣṇa are the same Personality of Godhead, but although They are identical, Their bodily features are different.**
 
 ### CC Adi 2.29
-
-> ইহোঁত দ্বিভুজ, তিঁহো ধরে চারি হাথ ।
-> ইহোঁ বেণু ধরে, তিঁহো চক্রাদিক সাথ ॥২৯॥
 
 > iṅhota dvi-bhuja, tiṅho dhare cāri hātha
 > iṅho veṇu dhare, tiṅho cakrādika sātha
@@ -2329,11 +1886,6 @@ Those who are fond of mental speculation (*jñāna-mārga*) or want to meditate 
 Nārāyaṇa is identical to Śrī Kṛṣṇa. They are in fact the same person manifested differently, like a high court judge who is differently situated in his office and at home. As Nārāyaṇa the Lord is manifested with four hands, but as Kṛṣṇa He is manifested with two hands.
 
 ### CC Adi 2.30
-
-> নারায়ণস্ত্বং ন হি সর্বদেহিনা-
-> মাত্মাস্যধীশাখিললোকসাক্ষী ।
-> নারায়ণোঽঙ্গং নরভূ-জলায়না-
-> ত্তচ্চাপি সত্যং ন তবৈব মায়া ॥৩০॥
 
 > nārāyaṇas tvaṁ na hi sarva-dehinām
 > ātmāsy adhīśākhila-loka-sākṣī
@@ -2348,9 +1900,6 @@ This statement, which is from *Śrīmad-Bhāgavatam* (10.14.14), was spoken by L
 
 ### CC Adi 2.31
 
-> শিশু বত্স হরি’ ব্রহ্মা করি অপরাধ ।
-> অপরাধ ক্ষমাইতে মাগেন প্রসাদ ॥৩১॥
-
 > śiśu vatsa hari' brahmā kari aparādha
 > aparādha kṣamāite māgena prasāda
 
@@ -2359,9 +1908,6 @@ This statement, which is from *Śrīmad-Bhāgavatam* (10.14.14), was spoken by L
 **After Brahmā had offended Kṛṣṇa by stealing His playmates and calves, he begged the Lord's pardon for his offensive act and prayed for the Lord's mercy.**
 
 ### CC Adi 2.32
-
-> তোমার নাভিপদ্ম হৈতে আমার জন্মোদয় ।
-> তুমি পিতা-মাতা, আমি তোমার তনয় ॥৩২॥
 
 > tomāra nābhi-padma haite āmāra janmodaya
 > tumi pitā-mātā, āmi tomāra tanaya
@@ -2372,9 +1918,6 @@ This statement, which is from *Śrīmad-Bhāgavatam* (10.14.14), was spoken by L
 
 ### CC Adi 2.33
 
-> পিতা মাতা বালকের না লয় অপরাধ ।
-> অপরাধ ক্ষম, মোরে করহ প্রসাদ ॥৩৩॥
-
 > pitā mātā bālakera nā laya aparādha
 > aparādha kṣama, more karaha prasāda
 
@@ -2383,9 +1926,6 @@ This statement, which is from *Śrīmad-Bhāgavatam* (10.14.14), was spoken by L
 **"Parents never take seriously the offenses of their children. I therefore beg Your pardon and ask for Your benediction."**
 
 ### CC Adi 2.34
-
-> কৃষ্ণ কহেন — ব্রহ্মা, তোমার পিতা নারায়ণ ।
-> আমি গোপ, তুমি কৈছে আমার নন্দন ॥৩৪॥
 
 > kṛṣṇa kahena—brahmā, tomāra pitā nārāyaṇa
 > āmi gopa, tumi kaiche āmāra nandana
@@ -2396,9 +1936,6 @@ This statement, which is from *Śrīmad-Bhāgavatam* (10.14.14), was spoken by L
 
 ### CC Adi 2.35
 
-> ব্রহ্মা বলেন, তুমি কি না হও নারায়ণ ।
-> তুমি নারায়ণ — শুন তাহার কারণ ॥৩৫॥
-
 > brahmā balena, tumi ki nā hao nārāyaṇa
 > tumi nārāyaṇa—śuna tāhāra kāraṇa
 
@@ -2407,9 +1944,6 @@ This statement, which is from *Śrīmad-Bhāgavatam* (10.14.14), was spoken by L
 **Brahmā replied, "Are You not Nārāyaṇa? You are certainly Nārāyaṇa. Please listen as I state the proofs.**
 
 ### CC Adi 2.36
-
-> প্রাকৃতাপ্রাকৃত-সৃষ্ট্যে যত জীবরূপ ।
-> তাহার যে আত্মা তুমি মূল-স্বরূপ ॥৩৬॥
 
 > prākṛtāprākṛta-sṛṣṭye yata jīva-rūpa
 > tāhāra ye ātmā tumi mūla-svarūpa
@@ -2424,9 +1958,6 @@ Saṅkarṣaṇa is the original source of all living entities because they are 
 
 ### CC Adi 2.37
 
-> পৃথ্বী যৈছে ঘটকুলের কারণ আশ্রয় ।
-> জীবের নিদান তুমি, তুমি সর্বাশ্রয় ॥৩৭॥
-
 > pṛthvī yaiche ghaṭa-kulera kāraṇa āśraya
 > jīvera nidāna tumi, tumi sarvāśraya
 
@@ -2440,9 +1971,6 @@ The Lord is the reservoir of all cosmic manifestation, animate and inanimate. Th
 
 ### CC Adi 2.38
 
-> ‘নার’-শব্দে কহে সর্বজীবের নিচয় ।
-> ‘অয়ন’-শব্দেতে কহে তাহার আশ্রয় ॥৩৮॥
-
 > 'nāra'-śabde kahe sarva jīvera nicaya
 > 'ayana'-śabdete kahe tāhāra āśraya
 
@@ -2451,9 +1979,6 @@ The Lord is the reservoir of all cosmic manifestation, animate and inanimate. Th
 **"The word nāra refers to the aggregate of all the living beings, and the word ayana refers to the refuge of them all.**
 
 ### CC Adi 2.39
-
-> অতএব তুমি হও মূল নারায়ণ ।
-> এই এক হেতু, শুন দ্বিতীয় কারণ ॥৩৯॥
 
 > ataeva tumi hao mūla nārāyaṇa
 > ei eka hetu, śuna dvitīya kāraṇa
@@ -2464,9 +1989,6 @@ The Lord is the reservoir of all cosmic manifestation, animate and inanimate. Th
 
 ### CC Adi 2.40
 
-> জীবের ঈশ্বর — পুরুষাদি অবতার ।
-> তাঁহা সবা হৈতে তোমার ঐশ্বর্য অপার ॥৪০॥
-
 > jīvera īśvara—puruṣādi avatāra
 > tāṅhā sabā haite tomāra aiśvarya apāra
 
@@ -2476,9 +1998,6 @@ The Lord is the reservoir of all cosmic manifestation, animate and inanimate. Th
 
 ### CC Adi 2.41
 
-> অতএব অধীশ্বর তুমি সর্ব পিতা ।
-> তোমার শক্তিতে তাঁরা জগৎ-রক্ষিতা ॥৪১॥
-
 > ataeva adhīśvara tumi sarva pitā
 > tomāra śaktite tāṅrā jagat-rakṣitā
 
@@ -2487,9 +2006,6 @@ The Lord is the reservoir of all cosmic manifestation, animate and inanimate. Th
 **"Therefore You are the primeval Lord, the original father of everyone. They [the puruṣas] are protectors of the universes by Your power.**
 
 ### CC Adi 2.42
-
-> নারের অয়ন যাতে করহ পালন ।
-> অতএব হও তুমি মূল নারায়ণ ॥৪২॥
 
 > nārera ayana yāte karaha pālana
 > ataeva hao tumi mūla nārāyaṇa
@@ -2502,9 +2018,6 @@ The controlling Deities of the living beings in the mundane worlds are the three
 
 ### CC Adi 2.43
 
-> তৃতীয় কারণ শুন শ্রীভগবান্ ।
-> অনন্ত ব্রহ্মাণ্ড বহু বৈকুণ্ঠাদি ধাম ॥৪৩॥
-
 > tṛtīya kāraṇa śuna śrī-bhagavān
 > ananta brahmāṇḍa bahu vaikuṇṭhādi dhāma
 
@@ -2513,9 +2026,6 @@ The controlling Deities of the living beings in the mundane worlds are the three
 **"O my Lord, O Supreme Personality of Godhead! Kindly hear my third reason. There are countless universes and fathomless transcendental Vaikuṇṭhas.**
 
 ### CC Adi 2.44
-
-> ইথে যত জীব, তার ত্রৈকালিক কর্ম ।
-> তাহা দেখ, সাক্ষী তুমি, জান সব মর্ম ॥৪৪॥
 
 > ithe yata jīva, tāra trai-kālika karma
 > tāhā dekha, sākṣī tumi, jāna saba marma
@@ -2526,9 +2036,6 @@ The controlling Deities of the living beings in the mundane worlds are the three
 
 ### CC Adi 2.45
 
-> তোমার দর্শনে সর্ব জগতের স্থিতি ।
-> তুমি না দেখিলে কারো নাহি স্থিতি গতি ॥৪৫॥
-
 > tomāra darśane sarva jagatera sthiti
 > tumi nā dekhile kāro nāhi sthiti gati
 
@@ -2537,9 +2044,6 @@ The controlling Deities of the living beings in the mundane worlds are the three
 **"All the worlds exist because You oversee them. None can live, move or have their being without Your supervision.**
 
 ### CC Adi 2.46
-
-> নারের অয়ন যাতে কর দরশন ।
-> তাহাতেও হও তুমি মূল নারায়ণ ॥৪৬॥
 
 > nārera ayana yāte kara daraśana
 > tāhāteo hao tumi mūla nārāyaṇa
@@ -2552,9 +2056,6 @@ The controlling Deities of the living beings in the mundane worlds are the three
 
 ### CC Adi 2.47
 
-> কৃষ্ণ কহেন — ব্রহ্মা, তোমার না বুঝি বচন ।
-> জীব-হৃদি, জলে বৈসে সেই নারায়ণ ॥৪৭॥
-
 > kṛṣṇa kahena—brahmā, tomāra nā bujhi vacana
 > jīva-hṛdi, jale vaise sei nārāyaṇa
 
@@ -2563,9 +2064,6 @@ The controlling Deities of the living beings in the mundane worlds are the three
 **Kṛṣṇa said, "Brahmā, I cannot understand what you are saying. Lord Nārāyaṇa is He who sits in the hearts of all living beings and lies down in the waters of the Kāraṇa Ocean."**
 
 ### CC Adi 2.48
-
-> ব্রহ্মা কহে — জলে জীবে যেই নারায়ণ ।
-> সে সব তোমার অংশ — এ সত্য বচন ॥৪৮॥
 
 > brahmā kahe—jale jīve yei nārāyaṇa
 > se saba tomāra aṁśa—e satya vacana
@@ -2576,9 +2074,6 @@ The controlling Deities of the living beings in the mundane worlds are the three
 
 ### CC Adi 2.49
 
-> কারণাব্ধি-গর্ভোদক-ক্ষীরোদকশায়ী ।
-> মায়াদ্বারে সৃষ্টি করে, তাতে সব মায়ী ॥৪৯॥
-
 > kāraṇābdhi-garbhodaka-kṣīrodaka-śāyī
 > māyā-dvāre sṛṣṭi kare, tāte saba māyī
 
@@ -2587,9 +2082,6 @@ The controlling Deities of the living beings in the mundane worlds are the three
 **"The Kāraṇodakaśāyī, Garbhodakaśāyī and Kṣīrodakaśāyī forms of Nārāyaṇa all create in cooperation with the material energy. In this way They are attached to māyā.**
 
 ### CC Adi 2.50
-
-> সেই তিন জলশায়ী সর্ব-অন্তর্যামী ।
-> ব্রহ্মাণ্ডবৃন্দের আত্মা যে পুরুষ-নামী ॥৫০॥
 
 > sei tina jala-śāyī sarva-antaryāmī
 > brahmāṇḍa-vṛndera ātmā ye puruṣa-nāmī
@@ -2600,9 +2092,6 @@ The controlling Deities of the living beings in the mundane worlds are the three
 
 ### CC Adi 2.51
 
-> হিরণ্যগর্ভের আত্মা গর্ভোদকশায়ী ।
-> ব্যষ্টিজীব-অন্তর্যামী ক্ষীরোদকশায়ী ॥৫১॥
-
 > hiraṇya-garbhera ātmā garbhodaka-śāyī
 > vyaṣṭi-jīva-antaryāmī kṣīrodaka-śāyī
 
@@ -2611,9 +2100,6 @@ The controlling Deities of the living beings in the mundane worlds are the three
 **"Garbhodakaśāyī Viṣṇu is the Supersoul of the aggregate of living entities, and Kṣīrodakaśāyī Viṣṇu is the Supersoul of each individual living being.**
 
 ### CC Adi 2.52
-
-> এ সভার দর্শনেতে আছে মায়াগন্ধ ।
-> তুরীয় কৃষ্ণের নাহি মায়ার সম্বন্ধ ॥৫২॥
 
 > e sabhāra darśanete āche māyā-gandha
 > turīya kṛṣṇera nāhi māyāra sambandha
@@ -2625,9 +2111,6 @@ The controlling Deities of the living beings in the mundane worlds are the three
 The three *puruṣas*-Kāraṇodakaśāyī Viṣṇu, Garbhodakaśāyī Viṣṇu and Kṣīrodakaśāyī Viṣṇu-all have a relationship with the material energy, called *māyā,* because through *māyā* They create the material cosmos. These three *puruṣas,* who lie on the Kāraṇa, Garbha and Kṣīra oceans, are the Supersoul of everything that be: Kāraṇodakaśāyī Viṣṇu is the Supersoul of the collective universes, Garbhodakaśāyī Viṣṇu is the Supersoul of the collective living beings, and Kṣīrodakaśāyī Viṣṇu is the Supersoul of all individual living entities. Because all of Them are somehow attracted to the affairs of the material energy, They can be said to have some affection for *māyā.* But the transcendental position of Śrī Kṛṣṇa Himself is not even slightly tinged by *māyā.* His transcendental state is called *turīya,* or the fourth-dimensional stage.
 
 ### CC Adi 2.53
-
-> বিরাড়্ হিরণ্যগর্ভশ্চ কারণং চেত্যুপাধয়ঃ ।
-> ঈশস্য যত্রিভির্হীনং তুরীয়ং তৎ প্রচক্ষতে ॥৫৩॥
 
 > virāḍ hiraṇya-garbhaś ca
 > kāraṇaṁ cety upādhayaḥ
@@ -2642,9 +2125,6 @@ The phenomenal manifestation of the Supreme Whole, the noumenal soul of everythi
 
 ### CC Adi 2.54
 
-> যদ্যপি তিনের মায়া লইয়া ব্যবহার ।
-> তথাপি তৎস্পর্শ নাহি, সভে মায়া-পার ॥৫৪॥
-
 > yadyapi tinera māyā la-iyā vyavahāra
 > tathāpi tat-sparśa nāhi, sabhe māyā-pāra
 
@@ -2653,9 +2133,6 @@ The phenomenal manifestation of the Supreme Whole, the noumenal soul of everythi
 **"Although these three features of the Lord deal directly with the material energy, none of them are touched by it. They are all beyond illusion.**
 
 ### CC Adi 2.55
-
-> এতদীশনমীশস্য প্রকৃতিস্থোঽপি তদ্গুণৈঃ ।
-> ন যুজ্যতে সদাত্মস্থৈর্যথা বুদ্ধিস্তদাশ্রয়া ॥৫৫॥
 
 > etad īśanam īśasya
 > prakṛti-stho 'pi tad-guṇaiḥ
@@ -2670,9 +2147,6 @@ This text is from *Śrīmad-Bhāgavatam* (1.11.38). Those who have taken shelter
 
 ### CC Adi 2.56
 
-> সেই তিন জনের তুমি পরম আশ্রয় ।
-> তুমি মূল নারায়ণ — ইথে কি সংশয় ॥৫৬॥
-
 > sei tina janera tumi parama āśraya
 > tumi mūla nārāyaṇa—ithe ki saṁśaya
 
@@ -2684,9 +2158,6 @@ Brahmā has confirmed that Lord Kṛṣṇa is the Supreme, the source of the th
 
 ### CC Adi 2.57
 
-> সেই তিনের অংশী পরব্যোম-নারায়ণ ।
-> তেঁহ তোমার বিলাস, তুমি মূল-নারায়ণ ॥৫৭॥
-
 > sei tinera aṁśī paravyoma-nārāyaṇa
 > teṅha tomāra vilāsa, tumi mūla-nārāyaṇa
 
@@ -2695,9 +2166,6 @@ Brahmā has confirmed that Lord Kṛṣṇa is the Supreme, the source of the th
 **"The source of these three features is the Nārāyaṇa in the spiritual sky. He is Your vilāsa expansion. Therefore You are the ultimate Nārāyaṇa."**
 
 ### CC Adi 2.58
-
-> অতএব ব্রহ্মবাক্যে — পরব্যোম-নারায়ণ ।
-> তেঁহো কৃষ্ণের বিলাস — এই তত্ত্ব-বিবরণ ॥৫৮॥
 
 > ataeva brahma-vākye—paravyoma-nārāyaṇa
 > teṅho kṛṣṇera vilāsa—ei tattva-vivaraṇa
@@ -2708,9 +2176,6 @@ Brahmā has confirmed that Lord Kṛṣṇa is the Supreme, the source of the th
 
 ### CC Adi 2.59
 
-> এই শ্লোক তত্ত্ব-লক্ষণ ভাগবত-সার ।
-> পরিভাষা-রূপে ইহার সর্বত্রাধিকার ॥৫৯॥
-
 > ei śloka tattva-lakṣaṇa bhāgavata-sāra
 > paribhāṣā-rūpe ihāra sarvatrādhikāra
 
@@ -2720,9 +2185,6 @@ Brahmā has confirmed that Lord Kṛṣṇa is the Supreme, the source of the th
 
 ### CC Adi 2.60
 
-> ব্রহ্ম, আত্মা, ভগবান্ — কৃষ্ণের বিহার ।
-> এ অর্থ না জানি’ মূর্খ অর্থ করে আর ॥৬০॥
-
 > brahma, ātmā, bhagavān—kṛṣṇera vihāra
 > e artha nā jāni' mūrkha artha kare āra
 
@@ -2731,9 +2193,6 @@ Brahmā has confirmed that Lord Kṛṣṇa is the Supreme, the source of the th
 **Not knowing that Brahman, Paramātmā and Bhagavān are all features of Kṛṣṇa, foolish scholars speculate in various ways.**
 
 ### CC Adi 2.61
-
-> অবতারী নারায়ণ, কৃষ্ণ অবতার ।
-> তেঁহ চতুর্ভুজ, ইঁহ মনুষ্য-আকার ॥৬১॥
 
 > avatārī nārāyaṇa, kṛṣṇa avatāra
 > teṅha catur-bhuja, iṅha manuṣya-ākāra
@@ -2746,9 +2205,6 @@ Some scholars argue that Nārāyaṇa is the original Personality of Godhead of 
 
 ### CC Adi 2.62
 
-> এইমতে নানারূপ করে পূর্বপক্ষ ।
-> তাহারে নির্জিতে ভাগবত-পদ্য দক্ষ ॥৬২॥
-
 > ei-mate nānā-rūpa kare pūrva-pakṣa
 > tāhāre nirjite bhāgavata-padya dakṣa
 
@@ -2757,9 +2213,6 @@ Some scholars argue that Nārāyaṇa is the original Personality of Godhead of 
 **In this way their arguments appear in various forms, but the poetry of the Bhāgavatam expertly refutes them all.**
 
 ### CC Adi 2.63
-
-> বদন্তি তত্তত্ত্ববিদস্তত্ত্বং যজ্জ্ঞানমদ্বয়ম্ ।
-> ব্রহ্মেতি পরমাত্মেতি ভগবানিতি শব্দ্যতে ॥৬৩॥
 
 > vadanti tat tattva-vidas
 > tattvaṁ yaj jñānam advayam
@@ -2774,9 +2227,6 @@ This text is from *Śrīmad-Bhāgavatam* (1.2.11).
 
 ### CC Adi 2.64
 
-> শুন ভাই এই শ্লোক করহ বিচার ।
-> এক মুখ্যতত্ত্ব, তিন তাহার প্রচার ॥৬৪॥
-
 > śuna bhāi ei śloka karaha vicāra
 > eka mukhya-tattva, tina tāhāra pracāra
 
@@ -2785,9 +2235,6 @@ This text is from *Śrīmad-Bhāgavatam* (1.2.11).
 **My dear brothers, kindly listen to the explanation of this verse and consider its meaning: the one original entity is known in His three different features.**
 
 ### CC Adi 2.65
-
-> অদ্বয়জ্ঞান তত্ত্ববস্তু কৃষ্ণের স্বরূপ ।
-> ব্রহ্ম, আত্মা, ভগবান্ — তিন তাঁর রূপ ॥৬৫॥
 
 > advaya-jñāna tattva-vastu kṛṣṇera svarūpa
 > brahma, ātmā, bhagavān—tina tāṅra rūpa
@@ -2800,9 +2247,6 @@ In the verse from *Śrīmad-Bhāgavatam* cited above (Bhāg. 1.2.11), the princi
 
 ### CC Adi 2.66
 
-> এই শ্লোকের অর্থে তুমি হৈলা নির্বচন ।
-> আর এক শুন ভাগবতের বচন ॥৬৬॥
-
 > ei ślokera arthe tumi hailā nirvacana
 > āra eka śuna bhāgavatera vacana
 
@@ -2811,9 +2255,6 @@ In the verse from *Śrīmad-Bhāgavatam* cited above (Bhāg. 1.2.11), the princi
 **The import of this verse has stopped you from arguing. Now listen to another verse of Śrīmad-Bhāgavatam.**
 
 ### CC Adi 2.67
-
-> এতে চাংশকলাঃ পুংসঃ কৃষ্ণস্তু ভগবান্ স্বয়ম্ ।
-> ইন্দ্রারি-ব্যাকুলং লোকং মৃড়য়ন্তি যুগে যুগে ॥৬৭॥
 
 > ete cāṁśa-kalāḥ puṁsaḥ
 > kṛṣṇas tu bhagavān svayam
@@ -2828,9 +2269,6 @@ This statement of *Śrīmad-Bhāgavatam* (1.3.28) definitely negates the concept
 
 ### CC Adi 2.68
 
-> সব অবতারের করি সামান্য-লক্ষণ ।
-> তার মধ্যে কৃষ্ণচন্দ্রের করিল গণন ॥৬৮॥
-
 > saba avatārera kari sāmānya-lakṣaṇa
 > tāra madhye kṛṣṇa-candrera karila gaṇana
 
@@ -2839,9 +2277,6 @@ This statement of *Śrīmad-Bhāgavatam* (1.3.28) definitely negates the concept
 **The Bhāgavatam describes the symptoms and deeds of the incarnations in general and counts Śrī Kṛṣṇa among them.**
 
 ### CC Adi 2.69
-
-> তবে সূত গোসাঞি মনে পাঞা বড় ভয় ।
-> যার যে লক্ষণ তাহা করিল নিশ্চয় ॥৬৯॥
 
 > tabe sūta gosāñi mane pāñā baḍa bhaya
 > yāra ye lakṣaṇa tāhā karila niścaya
@@ -2852,9 +2287,6 @@ This statement of *Śrīmad-Bhāgavatam* (1.3.28) definitely negates the concept
 
 ### CC Adi 2.70
 
-> অবতার সব — পুরুষের কলা, অংশ ।
-> স্বয়ং-ভগবান্ কৃষ্ণ সর্ব-অবতংস ॥৭০॥
-
 > avatāra saba—puruṣera kalā, aṁśa
 > svayaṁ-bhagavān kṛṣṇa sarva-avataṁsa
 
@@ -2863,9 +2295,6 @@ This statement of *Śrīmad-Bhāgavatam* (1.3.28) definitely negates the concept
 **All the incarnations of Godhead are plenary portions or parts of the plenary portions of the puruṣa-avatāras, but the primeval Lord is Śrī Kṛṣṇa. He is the Supreme Personality of Godhead, the fountainhead of all incarnations.**
 
 ### CC Adi 2.71
-
-> পূর্বপক্ষ কহে — তোমার ভালত’ ব্যাখ্যান ।
-> পরব্যোম-নারায়ণ স্বয়ং-ভগবান্ ॥৭১॥
 
 > pūrva-pakṣa kahe—tomāra bhāla ta' vyākhyāna
 > paravyoma-nārāyaṇa svayaṁ-bhagavān
@@ -2876,9 +2305,6 @@ This statement of *Śrīmad-Bhāgavatam* (1.3.28) definitely negates the concept
 
 ### CC Adi 2.72
 
-> তেঁহ আসি’ কৃষ্ণরূপে করেন অবতার ।
-> এই অর্থ শ্লোকে দেখি কি আর বিচার ॥৭২॥
-
 > teṅha āsi' kṛṣṇa-rūpe karena avatāra
 > ei artha śloke dekhi ki āra vicāra
 
@@ -2888,9 +2314,6 @@ This statement of *Śrīmad-Bhāgavatam* (1.3.28) definitely negates the concept
 
 ### CC Adi 2.73
 
-> তারে কহে — কেনে কর কুতর্কানুমান ।
-> শাস্ত্রবিরুদ্ধার্থ কভু না হয় প্রমাণ ॥৭৩॥
-
 > tāre kahe—kene kara kutarkānumāna
 > śāstra-viruddhārtha kabhu nā haya pramāṇa
 
@@ -2899,9 +2322,6 @@ This statement of *Śrīmad-Bhāgavatam* (1.3.28) definitely negates the concept
 **To such a misguided interpreter we may reply, "Why should you suggest such fallacious logic? An interpretation is never accepted as evidence if it opposes the principles of scripture.**
 
 ### CC Adi 2.74
-
-> অনুবাদমনুক্ত্বা তু ন বিধেয়মুদীরয়েৎ ।
-> ন হ্যলব্ধাস্পদং কিঞ্চিৎ কুত্রচিৎ প্রতিতিষ্ঠতি ॥৭৪॥
 
 > anuvādam anuktvā tu
 > na vidheyam udīrayet
@@ -2916,9 +2336,6 @@ This rhetorical rule appears in the *Ekādaśī-tattva,* Thirteenth Canto, in co
 
 ### CC Adi 2.75
 
-> অনুবাদ না কহিয়া না কহি বিধেয় ।
-> আগে অনুবাদ কহি, পশ্চাদ্বিধেয় ॥৭৫॥
-
 > anuvāda nā kahiyā nā kahi vidheya
 > āge anuvāda kahi, paścād vidheya
 
@@ -2927,9 +2344,6 @@ This rhetorical rule appears in the *Ekādaśī-tattva,* Thirteenth Canto, in co
 **"If I do not state a subject, I do not state a predicate. First I speak the former and then I speak the latter.**
 
 ### CC Adi 2.76
-
-> ‘বিধেয়’ কহিয়ে তারে, যে বস্তু অজ্ঞাত ।
-> ‘অনুবাদ’ কহি তারে, যেই হয় জ্ঞাত ॥৭৬॥
 
 > 'vidheya' kahiye tāre, ye vastu ajñāta
 > 'anuvāda' kahi tāre, yei haya jñāta
@@ -2940,9 +2354,6 @@ This rhetorical rule appears in the *Ekādaśī-tattva,* Thirteenth Canto, in co
 
 ### CC Adi 2.77
 
-> যৈছে কহি, — এই বিপ্র পরম পণ্ডিত ।
-> বিপ্র — অনুবাদ, ইহার বিধেয় — পাণ্ডিত্য ॥৭৭॥
-
 > yaiche kahi,—ei vipra parama paṇḍita
 > vipra—anuvāda, ihāra vidheya—pāṇḍitya
 
@@ -2951,9 +2362,6 @@ This rhetorical rule appears in the *Ekādaśī-tattva,* Thirteenth Canto, in co
 **"For example, we may say: 'This vipra is a greatly learned man.' In this sentence, the vipra is the subject, and the predicate is his erudition.**
 
 ### CC Adi 2.78
-
-> বিপ্রত্ব বিখ্যাত তার পাণ্ডিত্য অজ্ঞাত ।
-> অতএব বিপ্র আগে, পাণ্ডিত্য পশ্চাত ॥৭৮॥
 
 > vipratva vikhyāta tāra pāṇḍitya ajñāta
 > ataeva vipra āge, pāṇḍitya paścāta
@@ -2964,9 +2372,6 @@ This rhetorical rule appears in the *Ekādaśī-tattva,* Thirteenth Canto, in co
 
 ### CC Adi 2.79
 
-> তৈছে ইঁহ অবতার সব হৈল জ্ঞাত ।
-> কার অবতার? — এই বস্তু অবিজ্ঞাত ॥৭৯॥
-
 > taiche iṅha avatāra saba haila jñāta
 > kāra avatāra?—ei vastu avijñāta
 
@@ -2975,9 +2380,6 @@ This rhetorical rule appears in the *Ekādaśī-tattva,* Thirteenth Canto, in co
 **"In the same way, all these incarnations were known, but whose incarnations they are was unknown.**
 
 ### CC Adi 2.80
-
-> ‘এতে’-শব্দে অবতারের আগে অনুবাদ ।
-> ‘পুরুষের অংশ’ পাছে বিধেয়-সংবাদ ॥৮০॥
 
 > 'ete'-śabde avatārera āge anuvāda
 > 'puruṣera aṁśa' pāche vidheya-saṁvāda
@@ -2988,9 +2390,6 @@ This rhetorical rule appears in the *Ekādaśī-tattva,* Thirteenth Canto, in co
 
 ### CC Adi 2.81
 
-> তৈছে কৃষ্ণ অবতার-ভিতরে হৈল জ্ঞাত ।
-> তাঁহার বিশেষ-জ্ঞান সেই অবিজ্ঞাত ॥৮১॥
-
 > taiche kṛṣṇa avatāra-bhitare haila jñāta
 > tāṅhāra viśeṣa-jñāna sei avijñāta
 
@@ -2999,9 +2398,6 @@ This rhetorical rule appears in the *Ekādaśī-tattva,* Thirteenth Canto, in co
 **"In the same way, when Kṛṣṇa was first counted among the incarnations, specific knowledge about Him was still unknown.**
 
 ### CC Adi 2.82
-
-> অতএব ‘কৃষ্ণ’-শব্দ আগে অনুবাদ ।
-> ‘স্বয়ং-ভগবত্তা’ পিছে বিধেয়-সংবাদ ॥৮২॥
 
 > ataeva 'kṛṣṇa'-śabda āge anuvāda
 > 'svayaṁ-bhagavattā' piche vidheya-saṁvāda
@@ -3012,9 +2408,6 @@ This rhetorical rule appears in the *Ekādaśī-tattva,* Thirteenth Canto, in co
 
 ### CC Adi 2.83
 
-> কৃষ্ণের স্বয়ং-ভগবত্তা — ইহা হৈল সাধ্য ।
-> স্বয়ং-ভগবানের কৃষ্ণত্ব হৈল বাধ্য ॥৮৩॥
-
 > kṛṣṇera svayaṁ-bhagavattā—ihā haila sādhya
 > svayaṁ-bhagavānera kṛṣṇatva haila bādhya
 
@@ -3023,9 +2416,6 @@ This rhetorical rule appears in the *Ekādaśī-tattva,* Thirteenth Canto, in co
 **"This establishes that Śrī Kṛṣṇa is the original Personality of Godhead. The original Personality of Godhead is therefore necessarily Kṛṣṇa.**
 
 ### CC Adi 2.84
-
-> কৃষ্ণ যদি অংশ হৈত, অংশী নারায়ণ ।
-> তবে বিপরীত হৈত সূতের বচন ॥৮৪॥
 
 > kṛṣṇa yadi aṁśa haita, aṁśī nārāyaṇa
 > tabe viparīta haita sūtera vacana
@@ -3036,9 +2426,6 @@ This rhetorical rule appears in the *Ekādaśī-tattva,* Thirteenth Canto, in co
 
 ### CC Adi 2.85
 
-> নারায়ণ অংশী যেই স্বয়ং-ভগবান্ ।
-> তেঁহ শ্রীকৃষ্ণ — ঐছে করিত ব্যাখান ॥৮৫॥
-
 > nārāyaṇa aṁśī yei svayaṁ-bhagavān
 > teṅha śrī-kṛṣṇa—aiche karita vyākhyāna
 
@@ -3047,9 +2434,6 @@ This rhetorical rule appears in the *Ekādaśī-tattva,* Thirteenth Canto, in co
 **"Thus he would have said: 'Nārāyaṇa, the source of all incarnations, is the original Personality of Godhead. He has appeared as Śrī Kṛṣṇa.'**
 
 ### CC Adi 2.86
-
-> ভ্রম, প্রমাদ, বিপ্রলিপ্সা, করণাপাটব ।
-> আর্ষ-বিজ্ঞবাক্যে নাহি দোষ এই সব ॥৮৬॥
 
 > bhrama, pramāda, vipralipsā, karaṇāpāṭava
 > ārṣa-vijña-vākye nāhi doṣa ei saba
@@ -3066,9 +2450,6 @@ Bhrama refers to false knowledge or mistakes, such as accepting a rope as a snak
 
 ### CC Adi 2.87
 
-> বিরুদ্ধার্থ কহ তুমি, কহিতে কর রোষ ।
-> তোমার অর্থে অবিমৃষ্টবিধেয়াংশ-দোষ ॥৮৭॥
-
 > viruddhārtha kaha tumi, kahite kara roṣa
 > tomāra arthe avimṛṣṭa-vidheyāṁśa-doṣa
 
@@ -3078,9 +2459,6 @@ Bhrama refers to false knowledge or mistakes, such as accepting a rope as a snak
 
 ### CC Adi 2.88
 
-> যাঁর ভগবত্তা হৈতে অন্যের ভগবত্তা ।
-> ‘স্বয়ং-ভগবান্’-শব্দের তাহাতেই সত্তা ॥৮৮॥
-
 > yāṅra bhagavattā haite anyera bhagavattā
 > 'svayaṁ-bhagavān'-śabdera tāhātei sattā
 
@@ -3089,9 +2467,6 @@ Bhrama refers to false knowledge or mistakes, such as accepting a rope as a snak
 **"Only the Personality of Godhead, the source of all other Divinities, is eligible to be designated svayaṁ bhagavān, or the primeval Lord.**
 
 ### CC Adi 2.89
-
-> দীপ হৈতে যৈছে বহু দীপের জ্বলন ।
-> মূল এক দীপ তাহা করিয়ে গণন ॥৮৯॥
 
 > dīpa haite yaiche bahu dīpera jvalana
 > mūla eka dīpa tāhā kariye gaṇana
@@ -3104,9 +2479,6 @@ The *Brahma-saṁhitā,* Chapter Five, verse 46, states that the *viṣṇu-tatt
 
 ### CC Adi 2.90
 
-> তৈছে সব অবতারের কৃষ্ণ সে কারণ ।
-> আর এক শ্লোক শুন, কুব্যাখ্যা-খণ্ডন ॥৯০॥
-
 > taiche saba avatārera kṛṣṇa se kāraṇa
 > āra eka śloka śuna, kuvyākhyā-khaṇḍana
 
@@ -3115,11 +2487,6 @@ The *Brahma-saṁhitā,* Chapter Five, verse 46, states that the *viṣṇu-tatt
 **"Kṛṣṇa, in the same way, is the cause of all causes and all incarnations. Please hear another verse to defeat all misinterpretations.**
 
 ### CC Adi 2.91-92
-
-> অত্র সর্গো বিসর্গশ্চ স্থানং পোষণমূতয়ঃ ।
-> মন্বন্তরেশানুকথা নিরোধো মুক্তিরাশ্রয়ঃ ॥৯১॥
-> দশমস্য বিশুদ্ধ্যর্থং নবানামিহ লক্ষণম্ ।
-> বর্ণয়ন্তি মহাত্মানঃ শ্রুতেনার্থেন চাঞ্জসা ॥৯২॥
 
 > atra sargo visargaś ca
 > sthānaṁ poṣaṇam ūtayaḥ
@@ -3162,9 +2529,6 @@ Two different principles are to be considered herein-namely *āśraya,* the obje
 
 ### CC Adi 2.93
 
-> আশ্রয় জানিতে কহি এ নব পদার্থ ।
-> এ নবের উৎপত্তি-হেতু সেই আশ্রয়ার্থ ॥৯৩॥
-
 > āśraya jānite kahi e nava padārtha
 > e navera utpatti-hetu sei āśrayārtha
 
@@ -3174,9 +2538,6 @@ Two different principles are to be considered herein-namely *āśraya,* the obje
 
 ### CC Adi 2.94
 
-> কৃষ্ণ এক সর্বাশ্রয়, কৃষ্ণ সর্বধাম ।
-> কৃষ্ণের শরীরে সর্ব-বিশ্বের বিশ্রাম ॥৯৪॥
-
 > kṛṣṇa eka sarvāśraya, kṛṣṇa sarva-dhāma
 > kṛṣṇera śarīre sarva-viśvera viśrāma
 
@@ -3185,9 +2546,6 @@ Two different principles are to be considered herein-namely *āśraya,* the obje
 **"The Personality of Godhead Śrī Kṛṣṇa is the shelter and abode of everything. All the universes rest in His body.**
 
 ### CC Adi 2.95
-
-> দশমে দশমং লক্ষ্যমাশ্রিতাশ্রয়বিগ্রহম্ ।
-> শ্রীকৃষ্ণাখ্যং পরং ধাম জগদ্ধাম নমামি তৎ ॥৯৫॥
 
 > daśame daśamaṁ lakṣyam
 > āśritāśraya-vigraham
@@ -3201,9 +2559,6 @@ Two different principles are to be considered herein-namely *āśraya,* the obje
 This quotation comes from Śrīdhara Svāmī's commentary on the first verse of the Tenth Canto, Chapter One, of *Śrīmad-Bhāgavatam.*
 
 ### CC Adi 2.96
-
-> কৃষ্ণের স্বরূপ, আর শক্তিত্রয়-জ্ঞান ।
-> যাঁর হয়, তাঁর নাহি কৃষ্ণেতে অজ্ঞান ॥৯৬॥
 
 > kṛṣṇera svarūpa, āra śakti-traya-jñāna
 > yāṅra haya, tāṅra nāhi kṛṣṇete ajñāna
@@ -3220,9 +2575,6 @@ These three energies of the Absolute Truth are also described in the *Viṣṇu 
 
 ### CC Adi 2.97
 
-> কৃষ্ণের স্বরূপের হয় ষড়্বিধ বিলাস ।
-> প্রাভব-বৈভব-রূপে দ্বিবিধ প্রকাশ ॥৯৭॥
-
 > kṛṣṇera svarūpera haya ṣaḍ-vidha vilāsa
 > prābhava-vaibhava-rūpe dvi-vidha prakāśa
 
@@ -3233,9 +2585,6 @@ These three energies of the Absolute Truth are also described in the *Viṣṇu 
 Now the author of *Śrī Caitanya-caritāmṛta* turns to a description of the Personality of Godhead Kṛṣṇa in His innumerable expansions. The Lord primarily expands Himself in two categories, namely *prābhava* and *vaibhava.* The *prābhava* forms are fully potent like Śrī Kṛṣṇa, and the *vaibhava* forms are partially potent. The *prābhava* forms are manifested in relation with potencies, but the *vaibhava* forms are manifested in relation with excellences. The potent *prābhava* manifestations are also of two varieties: temporary and eternal. The Mohinī, Haṁsa and Śukla forms are manifested only temporarily, in terms of a particular age. Among the other *prābhavas,* who are not very famous according to the material estimation, are Dhanvantari, Ṛṣabha, Vyāsa, Dattātreya and Kapila. Among the *vaibhava-prakāśa* forms are Kūrma, Matsya, Nara-Nārāyaṇa, Varāha, Hayagrīva, Pṛśnigarbha, and Baladeva, as well as the *manv-antara avatāras* Yajña, Vibhu, Satyasena, Hari, Vaikuṇṭha, Ajita, Vāmana, Sārvabhauma, Ṛṣabha, Viṣvaksena, Dharmasetu, Sudhāmā, Yogeśvara and Bṛhadbhānu.
 
 ### CC Adi 2.98
-
-> অংশ-শক্ত্যাবেশরূপে দ্বিবিধাবতার ।
-> বাল্য পৌগণ্ড ধর্ম দুই ত’ প্রকার ॥৯৮॥
 
 > aṁśa-śaktyāveśa-rūpe dvi-vidhāvatāra
 > bālya paugaṇḍa dharma dui ta' prakāra
@@ -3248,9 +2597,6 @@ The *vilāsa* forms are six in number. Incarnations are of two varieties, namely
 
 ### CC Adi 2.99
 
-> কিশোরস্বরূপ কৃষ্ণ স্বয়ং অবতারী ।
-> ক্রীড়া করে এই ছয়-রূপে বিশ্ব ভরি’ ॥৯৯॥
-
 > kiśora-svarūpa kṛṣṇa svayaṁ avatārī
 > krīḍā kare ei chaya-rūpe viśva bhari'
 
@@ -3259,9 +2605,6 @@ The *vilāsa* forms are six in number. Incarnations are of two varieties, namely
 **"The Personality of Godhead Śrī Kṛṣṇa, who is eternally an adolescent, is the primeval Lord, the source of all incarnations. He expands Himself in these six categories of forms to establish His supremacy throughout the universe.**
 
 ### CC Adi 2.100
-
-> এই ছয়-রূপে হয় অনন্ত বিভেদ ।
-> অনন্তরূপে একরূপ, নাহি কিছু ভেদ ॥১০০॥
 
 > ei chaya-rūpe haya ananta vibheda
 > ananta-rūpe eka-rūpa, nāhi kichu bheda
@@ -3274,9 +2617,6 @@ The Personality of Godhead manifests Himself in six different features: (1) *pr�
 
 ### CC Adi 2.101
 
-> চিচ্ছক্তি, স্বরূপশক্তি, অন্তরঙ্গা নাম ।
-> তাহার বৈভব অনন্ত বৈকুণ্ঠাদি ধাম ॥১০১॥
-
 > cic-chakti, svarūpa-śakti, antaraṅgā nāma
 > tāhāra vaibhava ananta vaikuṇṭhādi dhāma
 
@@ -3286,9 +2626,6 @@ The Personality of Godhead manifests Himself in six different features: (1) *pr�
 
 ### CC Adi 2.102
 
-> মায়াশক্তি, বহিরঙ্গা, জগৎকারণ ।
-> তাহার বৈভব অনন্ত ব্রহ্মাণ্ডের গণ ॥১০২॥
-
 > māyā-śakti, bahiraṅgā, jagat-kāraṇa
 > tāhāra vaibhava ananta brahmāṇḍera gaṇa
 
@@ -3297,9 +2634,6 @@ The Personality of Godhead manifests Himself in six different features: (1) *pr�
 **"The external energy, called māyā-śakti, is the cause of innumerable universes with varied material potencies.**
 
 ### CC Adi 2.103
-
-> জীবশক্তি তটস্থাখ্য, নাহি যার অন্ত ।
-> মুখ্য তিন শক্তি, তার বিভেদ অনন্ত ॥১০৩॥
 
 > jīva-śakti taṭasthākhya, nāhi yāra anta
 > mukhya tina śakti, tāra vibheda ananta
@@ -3319,9 +2653,6 @@ The internal potency of the Lord, which is called *cit-śakti* or *antaraṅga-�
 
 ### CC Adi 2.104
 
-> এমত স্বরূপগণ, আর তিন শক্তি ।
-> সভার আশ্রয় কৃষ্ণ, কৃষ্ণে সভার স্থিতি ॥১০৪॥
-
 > e-mata svarūpa-gaṇa, āra tina śakti
 > sabhāra āśraya kṛṣṇa, kṛṣṇe sabhāra sthiti
 
@@ -3330,9 +2661,6 @@ The internal potency of the Lord, which is called *cit-śakti* or *antaraṅga-�
 **"These are the principal manifestations and expansions of the Personality of Godhead and His three energies. They are all emanations from Śrī Kṛṣṇa, the Transcendence. They have their existence in Him.**
 
 ### CC Adi 2.105
-
-> যদ্যপি ব্রহ্মাণ্ডগণের পুরুষ আশ্রয় ।
-> সেই পুরুষাদি সভার কৃষ্ণ মূলাশ্রয় ॥১০৫॥
 
 > yadyapi brahmāṇḍa-gaṇera puruṣa āśraya
 > sei puruṣādi sabhāra kṛṣṇa mūlāśraya
@@ -3343,9 +2671,6 @@ The internal potency of the Lord, which is called *cit-śakti* or *antaraṅga-�
 
 ### CC Adi 2.106
 
-> স্বয়ং ভগবান্ কৃষ্ণ, কৃষ্ণ সর্বাশ্রয় ।
-> পরম ঈশ্বর কৃষ্ণ সর্বশাস্ত্রে কয় ॥১০৬॥
-
 > svayaṁ bhagavān kṛṣṇa, kṛṣṇa sarvāśraya
 > parama īśvara kṛṣṇa sarva-śāstre kaya
 
@@ -3354,9 +2679,6 @@ The internal potency of the Lord, which is called *cit-śakti* or *antaraṅga-�
 **"Thus the Personality of Godhead Śrī Kṛṣṇa is the original primeval Lord, the source of all other expansions. All the revealed scriptures accept Śrī Kṛṣṇa as the Supreme Lord.**
 
 ### CC Adi 2.107
-
-> ঈশ্বরঃ পরমঃ কৃষ্ণঃ সচ্চিদানন্দবিগ্রহ ।
-> অনাদিরাদির্গোবিন্দঃ সর্বকারণকারণম্ ॥১০৭॥
 
 > īśvaraḥ paramaḥ kṛṣṇaḥ
 > sac-cid-ānanda-vigrahaḥ
@@ -3371,9 +2693,6 @@ This is the first verse of the Fifth Chapter of the *Brahma-saṁhitā.*
 
 ### CC Adi 2.108
 
-> এ সব সিদ্ধান্ত তুমি জান ভালমতে ।
-> তবু পূর্বপক্ষ কর আমা চালাইতে ॥১০৮॥
-
 > e saba siddhānta tumi jāna bhāla-mate
 > tabu pūrva-pakṣa kara āmā cālāite
 
@@ -3385,9 +2704,6 @@ A learned man who has thoroughly studied the scriptures cannot hesitate to accep
 
 ### CC Adi 2.109
 
-> সেই কৃষ্ণ অবতারী ব্রজেন্দ্রকুমার ।
-> আপনে চৈতন্যরূপে কৈল অবতার ॥১০৯॥
-
 > sei kṛṣṇa avatārī vrajendra-kumāra
 > āpane caitanya-rūpe kaila avatāra
 
@@ -3396,9 +2712,6 @@ A learned man who has thoroughly studied the scriptures cannot hesitate to accep
 **That same Lord Kṛṣṇa, the fountainhead of all incarnations, is known as the son of the King of Vraja. He has descended personally as Lord Śrī Caitanya Mahāprabhu.**
 
 ### CC Adi 2.110
-
-> অতএব চৈতন্য গোসাঞি পরতত্ত্ব-সীমা ।
-> তাঁরে ক্ষীরোদশায়ী কহি, কি তাঁর মহিমা ॥১১০॥
 
 > ataeva caitanya gosāñi paratattva-sīmā
 > tāṅre kṣīroda-śāyī kahi, ki tāṅra mahimā
@@ -3409,9 +2722,6 @@ A learned man who has thoroughly studied the scriptures cannot hesitate to accep
 
 ### CC Adi 2.111
 
-> সেই ত’ ভক্তের বাক্য নহে ব্যভিচারী ।
-> সকল সম্ভবে তাঁতে, যাতে অবতারী ॥১১১॥
-
 > sei ta' bhaktera vākya nahe vyabhicārī
 > sakala sambhave tāṅte, yāte avatārī
 
@@ -3421,22 +2731,16 @@ A learned man who has thoroughly studied the scriptures cannot hesitate to accep
 
 ### CC Adi 2.112
 
-> অবতারীর দেহে সব অবতারের স্থিতি ।
-> কেহো কোনমতে কহে, যেমন যার মতি ॥১১২॥
-
 > avatārīra dehe saba avatārera sthiti
 > keho kona-mate kahe, yemana yāra mati
 
 *avatārīra*—of the source; *dehe*—in the body; *saba*—all; *avatārera*—of the incarnations; *sthiti*—existence; *keho*—someone; *kona-mate*—in some way; *kahe*—says; *yemana*—as in the manner; *yāra*—of whom; *mati*—the opinion.
 
-**All other incarnations are situated in potential form in the original body of the primeval Lord. Thus according to one's opinion, one may address Him as any one of the incarnations.**
+**All other incarnations are potentially situated in the original body of the primeval Lord. Thus according to one's opinion, one may address Him as any one of the incarnations.**
 
 It is not contradictory for a devotee to call the Supreme Lord by any one of the various names of His plenary expansions because the original Personality of Godhead includes all such categories. Since the plenary expansions exist within the original person, one may call Him by any of these names. In *Śrī Caitanya-bhāgavata* [[cc/madhya/6/95|(Madhya 6.95)]] Lord Caitanya says, "I was lying asleep in the ocean of milk, but I was awakened by the call of Nāḍā, Śrī Advaita Prabhu." Here the Lord refers to His form as Kṣīrodakaśāyī Viṣṇu.
 
 ### CC Adi 2.113
-
-> কৃষ্ণকে কহয়ে কেহ — নর-নারায়ণ ।
-> কেহো কহে, কৃষ্ণ হয় সাক্ষাৎ বামন ॥১১৩॥
 
 > kṛṣṇake kahaye keha—nara-nārāyaṇa
 > keho kahe, kṛṣṇa haya sākṣāṭ vāmana
@@ -3446,9 +2750,6 @@ It is not contradictory for a devotee to call the Supreme Lord by any one of the
 **Some say that Śrī Kṛṣṇa is directly Nara-Nārāyaṇa. Others say that He is directly Vāmana.**
 
 ### CC Adi 2.114
-
-> কেহো কহে, কৃষ্ণ ক্ষীরোদশায়ী অবতার ।
-> অসম্ভব নহে, সত্য বচন সবার ॥১১৪॥
 
 > keho kahe, kṛṣṇa kṣīroda-śāyī avatāra
 > asambhava nahe, satya vacana sabāra
@@ -3473,9 +2774,6 @@ The *Laghu-bhāgavatāmṛta* (5.383) states:
 
 ### CC Adi 2.115
 
-> কেহো কহে, পরব্যোমে নারায়ণ হরি ।
-> সকল সম্ভবে কৃষ্ণে, যাতে অবতারী ॥১১৫॥
-
 > keho kahe, para-vyome nārāyaṇa hari
 > sakala sambhave kṛṣṇe, yāte avatārī
 
@@ -3484,9 +2782,6 @@ The *Laghu-bhāgavatāmṛta* (5.383) states:
 **Some call Him Hari, or the Nārāyaṇa of the transcendental world. Everything is possible in Kṛṣṇa, for He is the primeval Lord.**
 
 ### CC Adi 2.116
-
-> সব শ্রোতাগণের করি চরণ বন্দন ।
-> এ সব সিদ্ধান্ত শুন, করি’ এক মন ॥১১৬॥
 
 > saba śrotā-gaṇera kari caraṇa vandana
 > e saba siddhānta śuna, kari' eka mana
@@ -3498,9 +2793,6 @@ The *Laghu-bhāgavatāmṛta* (5.383) states:
 Prostrating himself at the feet of his readers, the author of *Śrī Caitanya-caritāmṛta* entreats them in all humility to hear with rapt attention these conclusive arguments regarding the Absolute Truth. One should not fail to hear such arguments because only by such knowledge can one perfectly know Kṛṣṇa.
 
 ### CC Adi 2.117
-
-> সিদ্ধান্ত বলিয়া চিত্তে না কর অলস ।
-> ইহা হইতে কৃষ্ণে লাগে সুদৃঢ় মানস ॥১১৭॥
 
 > siddhānta baliyā citte nā kara alasa
 > ihā ha-ite kṛṣṇe lāge sudṛḍha mānasa
@@ -3522,9 +2814,6 @@ Imitation devotees, who wish to advertise themselves as elevated Vaiṣṇavas a
 
 ### CC Adi 2.118
 
-> চৈতন্য-মহিমা জানি এ সব সিদ্ধান্তে ।
-> চিত্ত দৃঢ় হঞা লাগে মহিমা-জ্ঞান হৈতে ॥১১৮॥
-
 > caitanya-mahimā jāni e saba siddhānte
 > citta dṛḍha hañā lāge mahimā-jñāna haite
 
@@ -3536,9 +2825,6 @@ One can know the glories of Śrī Caitanya Mahāprabhu only by reaching, in know
 
 ### CC Adi 2.119
 
-> চৈতন্যপ্রভুর মহিমা কহিবার তরে ।
-> কৃষ্ণের মহিমা কহি করিয়া বিস্তারে ॥১১৯॥
-
 > caitanya-prabhura mahimā kahibāra tare
 > kṛṣṇera mahimā kahi kariyā vistāre
 
@@ -3548,9 +2834,6 @@ One can know the glories of Śrī Caitanya Mahāprabhu only by reaching, in know
 
 ### CC Adi 2.120
 
-> চৈতন্য-গোসাঞির এই তত্ত্ব-নিরূপণ ।
-> স্বয়ং-ভগবান্ কৃষ্ণ ব্রজেন্দ্রনন্দন ॥১২০॥
-
 > caitanya-gosāñira ei tattva-nirūpaṇa
 > svayaṁ-bhagavān kṛṣṇa vrajendra-nandana
 
@@ -3559,9 +2842,6 @@ One can know the glories of Śrī Caitanya Mahāprabhu only by reaching, in know
 **The conclusion is that Lord Caitanya is the Supreme Personality of Godhead, Kṛṣṇa, the son of the King of Vraja.**
 
 ### CC Adi 2.121
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্য-চরিতামৃত কহে কৃষ্ণদাস ॥১২১॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -3576,9 +2856,6 @@ One can know the glories of Śrī Caitanya Mahāprabhu only by reaching, in know
 
 ### CC Adi 3.1
 
-> শ্রীচৈতন্যপ্রভুং বন্দে যৎপাদাশ্রয়বীর্যতঃ ।
-> সংগৃহ্ণাত্যাকরব্রাতাদজ্ঞঃ সিদ্ধান্তসন্মণীন্ ॥১॥
-
 > śrī-caitanya-prabhuṁ vande
 > yat-pādāśraya-vīryataḥ
 > saṅgṛhṇāty ākara-vrātād
@@ -3590,9 +2867,6 @@ One can know the glories of Śrī Caitanya Mahāprabhu only by reaching, in know
 
 ### CC Adi 3.2
 
-> জয় জয় শ্রীচৈতন্য জয় নিত্যানন্দ ।
-> জয়াদ্বৈতচন্দ্র জয় গৌরভক্তবৃন্দ ॥২॥
-
 > jaya jaya śrī-caitanya jaya nityānanda
 > jayādvaita-candra jaya gaura-bhakta-vṛnda
 
@@ -3602,9 +2876,6 @@ One can know the glories of Śrī Caitanya Mahāprabhu only by reaching, in know
 
 ### CC Adi 3.3
 
-> তৃতীয় শ্লোকের অর্থ কৈল বিবরণ ।
-> চতুর্থ শ্লোকের অর্থ শুন ভক্তগণ ॥৩॥
-
 > tṛtīya ślokera artha kaila vivaraṇa
 > caturtha ślokera artha śuna bhakta-gaṇa
 
@@ -3613,11 +2884,6 @@ One can know the glories of Śrī Caitanya Mahāprabhu only by reaching, in know
 **I have given the purport of the third verse. Now, O devotees, please listen to the meaning of the fourth with full attention.**
 
 ### CC Adi 3.4
-
-> অনর্পিতচরীং চিরাৎ করুণয়াবতীর্ণঃ কলৌ
-> সমর্পয়িতুমুন্নতোজ্জ্বলরসাং স্বভক্তিশ্রিয়ম্ ।
-> হরিঃ পুরটসুন্দরদ্যুতিকদম্বসন্দীপিতঃ
-> সদা হৃদয়কন্দরে স্ফুরতু বঃ শচীনন্দনঃ ॥৪॥
 
 > anarpita-carīṁ cirāt karuṇayāvatīrṇaḥ kalau
 > samarpayitum unnatojjvala-rasāṁ sva-bhakti-śriyam
@@ -3632,9 +2898,6 @@ This is a quotation from the *Vidagdha-mādhava,* a drama compiled and edited by
 
 ### CC Adi 3.5
 
-> পূর্ণ ভগবান্ কৃষ্ণ ব্রজেন্দ্রকুমার ।
-> গোলোকে ব্রজের সহ নিত্য বিহার ॥৫॥
-
 > pūrṇa bhagavān kṛṣṇa vrajendra-kumāra
 > goloke vrajera saha nitya vihāra
 
@@ -3646,9 +2909,6 @@ In the previous chapter it has been established that Kṛṣṇa, the son of Vra
 
 ### CC Adi 3.6
 
-> ব্রহ্মার এক দিনে তিহোঁ একবার ।
-> অবতীর্ণ হঞা করেন প্রকট বিহার ॥৬॥
-
 > brahmāra eka dine tiṅho eka-bāra
 > avatīrṇa hañā karena prakaṭa vihāra
 
@@ -3658,9 +2918,6 @@ In the previous chapter it has been established that Kṛṣṇa, the son of Vra
 
 ### CC Adi 3.7
 
-> সত্য, ত্রেতা, দ্বাপর, কলি, চারিযুগ জানি ।
-> সেই চারিযুগে দিব্য একযুগ মানি ॥৭॥
-
 > satya, tretā, dvāpara, kali, cāri-yuga jāni
 > sei cāri-yuge divya eka-yuga māni
 
@@ -3669,9 +2926,6 @@ In the previous chapter it has been established that Kṛṣṇa, the son of Vra
 **We know that there are four ages [yugas], namely Satya, Tretā, Dvāpara and Kali. These four together comprise one divya-yuga.**
 
 ### CC Adi 3.8
-
-> একাত্তর চতুর্যুগে এক মন্বন্তর ।
-> চৌদ্দ মন্বন্তর ব্রহ্মার দিবস ভিতর ॥৮॥
 
 > ekāttara catur-yuge eka manv-antara
 > caudda manv-antara brahmāra divasa bhitara
@@ -3684,9 +2938,6 @@ A *manv-antara* is the period controlled by one Manu. The reign of fourteen Manu
 
 ### CC Adi 3.9
 
-> ‘বৈবস্বত’-নাম এই সপ্তম মন্বন্তর ।
-> সাতাইশ চতুর্যুগ তাহার অন্তর ॥৯॥
-
 > 'vaivasvata'-nāma ei saptama manv-antara
 > sātāiśa catur-yuga tāhāra antara
 
@@ -3697,9 +2948,6 @@ A *manv-antara* is the period controlled by one Manu. The reign of fourteen Manu
 The names of the fourteen Manus are as follows: (1) Svāyambhuva, (2) Svārociṣa, (3) Uttama, (4) Tāmasa, (5) Raivata, (6) Cākṣuṣa, (7) Vaivasvata, (8) Sāvarṇi, (9) Dakṣa-sāvarṇi, (10) Brahma-sāvarṇi, (11) Dharma-sāvarṇi, (12) Rudraputra (Rudra-sāvarṇi), (13) Raucya, or Deva-sāvarṇi, (14) and Bhautyaka, or Indra-sāvarṇi.
 
 ### CC Adi 3.10
-
-> অষ্টাবিংশ চতুর্যুগে দ্বাপরের শেষে ।
-> ব্রজের সহিতে হয় কৃষ্ণের প্রকাশে ॥১০॥
 
 > aṣṭāviṁśa catur-yuge dvāparera śeṣe
 > vrajera sahite haya kṛṣṇera prakāśe
@@ -3714,9 +2962,6 @@ From the beginning of Brahmā's day of 4,320,000,000 years, six Manus appear and
 
 ### CC Adi 3.11
 
-> দাস্য, সখ্য, বাৎসল্য, শৃঙ্গার — চারি রস ।
-> চারি ভাবের ভক্ত যত কৃষ্ণ তার বশ ॥১১॥
-
 > dāsya, sakhya, vātsalya, śṛṅgāra—cāri rasa
 > cāri bhāvera bhakta yata kṛṣṇa tāra vaśa
 
@@ -3727,9 +2972,6 @@ From the beginning of Brahmā's day of 4,320,000,000 years, six Manus appear and
 *Dāsya, sakhya, vātsalya* and *śṛṅgāra* are the transcendental modes of loving service to the Lord. *Śānta-rasa,* or the neutral stage, is not mentioned in this verse because although in *śānta-rasa* one considers the Absolute Truth the sublime great, one does not go beyond that conception. *Śānta-rasa* is a very grand idea for materialistic philosophers, but such idealistic appreciation is only the beginning; it is the lowest among the relationships in the spiritual world. *Śānta-rasa* is not given much importance because as soon as there is a slight understanding between the knower and the known, active loving transcendental reciprocations and exchanges begin. *Dāsya-rasa* is the basic relationship between Kṛṣṇa and His devotees; therefore this verse considers *dāsya* the first stage of transcendental devotional service.
 
 ### CC Adi 3.12
-
-> দাস-সখা-পিতামাতা-কান্তাগণ লঞা ।
-> ব্রজে ক্রীড়া করে কৃষ্ণ প্রেমাবিষ্ট হঞা ॥১২॥
 
 > dāsa-sakhā-pitā-mātā-kāntā-gaṇa lañā
 > vraje krīḍā kare kṛṣṇa premāviṣṭa hañā
@@ -3742,9 +2984,6 @@ The descent of Śrī Kṛṣṇa, the Absolute Personality of Godhead, is very p
 
 ### CC Adi 3.13
 
-> যথেষ্ট বিহরি’ কৃষ্ণ করে অন্তর্ধান ।
-> অন্তর্ধান করি’ মনে করে অনুমান ॥১৩॥
-
 > yatheṣṭa vihari' kṛṣṇa kare antardhāna
 > antardhāna kari' mane kare anumāna
 
@@ -3753,9 +2992,6 @@ The descent of Śrī Kṛṣṇa, the Absolute Personality of Godhead, is very p
 **Lord Kṛṣṇa enjoys His transcendental pastimes as long as He wishes, and then He disappears. After disappearing, however, He thinks thus:**
 
 ### CC Adi 3.14
-
-> চিরকাল নাহি করি প্রেমভক্তি দান ।
-> ভক্তিবিনা জগতের নাহি অবস্থান ॥১৪॥
 
 > cira-kāla nāhi kari prema-bhakti dāna
 > bhakti vinā jagatera nāhi avasthāna
@@ -3768,9 +3004,6 @@ The Lord seldom awards pure transcendental love, but without such pure love of G
 
 ### CC Adi 3.15
 
-> সকল জগতে মোরে করে বিধি-ভক্তি ।
-> বিধি-ভক্ত্যে ব্রজভাব পাইতে নাহি শক্তি ॥১৫॥
-
 > sakala jagate more kare vidhi-bhakti
 > vidhi-bhaktye vraja-bhāva pāite nāhi śakti
 
@@ -3779,9 +3012,6 @@ The Lord seldom awards pure transcendental love, but without such pure love of G
 **"Everywhere in the world people worship Me according to scriptural injunctions. But simply by following such regulative principles one cannot attain the loving sentiments of the devotees in Vrajabhūmi.**
 
 ### CC Adi 3.16
-
-> ঐশ্বর্যজ্ঞানেতে সব জগৎ মিশ্রিত ।
-> ঐশ্বর্য-শিথিল-প্রেমে নাহি মোর প্রীত ॥১৬॥
 
 > aiśvarya-jñānete saba jagat miśrita
 > aiśvarya-śithila-preme nāhi mora prīta
@@ -3794,9 +3024,6 @@ After His appearance, Lord Kṛṣṇa thought that He had not distributed the t
 
 ### CC Adi 3.17
 
-> ঐশ্বর্যজ্ঞানে বিধি-ভজন করিয়া ।
-> বৈকুণ্ঠকে যায় চতুর্বিধ মুক্তি পাঞা ॥১৭॥
-
 > aiśvarya-jñāne vidhi-bhajana kariyā
 > vaikuṇṭhake yāya catur-vidha mukti pāñā
 
@@ -3805,9 +3032,6 @@ After His appearance, Lord Kṛṣṇa thought that He had not distributed the t
 **"By performing such regulated devotional service in awe and veneration, one may go to Vaikuṇṭha and attain the four kinds of liberation.**
 
 ### CC Adi 3.18
-
-> সার্ষ্টি, সারূপ্য, আর সামীপ্য, সালোক্য ।
-> সাযুজ্য না লয় ভক্ত যাতে ব্রহ্ম-ঐক্য ॥১৮॥
 
 > sārṣṭi, sārūpya, āra sāmīpya, sālokya
 > sāyujya nā laya bhakta yāte brahma-aikya
@@ -3820,9 +3044,6 @@ Those engaged in devotional service according to the ritualistic principles ment
 
 ### CC Adi 3.19
 
-> যুগধর্ম প্রবর্তাইমু নাম-সংকীর্তন ।
-> চারি ভাব-ভক্তি দিয়া নাচামু ভুবন ॥১৯॥
-
 > yuga-dharma pravartāimu nāma-saṅkīrtana
 > cāri bhāva-bhakti diyā nācāmu bhuvana
 
@@ -3831,9 +3052,6 @@ Those engaged in devotional service according to the ritualistic principles ment
 **"I shall personally inaugurate the religion of the age-nāma-saṅkīrtana, the congregational chanting of the holy name. I shall make the world dance in ecstasy, realizing the four mellows of loving devotional service.**
 
 ### CC Adi 3.20
-
-> আপনি করিমু ভক্তভাব অঙ্গীকারে ।
-> আপনি আচরি’ ভক্তি শিখাইমু সবারে ॥২০॥
 
 > āpani karimu bhakta-bhāva aṅgīkāre
 > āpani ācari' bhakti śikhāimu sabāre
@@ -3846,9 +3064,6 @@ When one associates with a pure devotee, he becomes so elevated that he does not
 
 ### CC Adi 3.21
 
-> আপনে না কৈলে ধর্ম শিখান না যায় ।
-> এই ত’ সিদ্ধান্ত গীতা-ভাগবতে গায় ॥২১॥
-
 > āpane nā kaile dharma śikhāna nā yāya
 > ei ta' siddhānta gītā-bhāgavate gāya
 
@@ -3857,9 +3072,6 @@ When one associates with a pure devotee, he becomes so elevated that he does not
 **"Unless one practices devotional service himself, he cannot teach it to others. This conclusion is indeed confirmed throughout the Gītā and Bhāgavatam.**
 
 ### CC Adi 3.22
-
-> যদা যদা হি ধর্মস্য গ্লানির্ভবতি ভারত ।
-> অভ্যুত্থানমধর্মস্য তদাত্মানং সৃজাম্যহম্ ॥২২॥
 
 > yadā yadā hi dharmasya
 > glānir bhavati bhārata
@@ -3871,9 +3083,6 @@ When one associates with a pure devotee, he becomes so elevated that he does not
 **“ 'Whenever and wherever there is a decline in religious practice, O descendant of Bharata, and a predominant rise of irreligion-at that time I descend Myself.**
 
 ### CC Adi 3.23
-
-> পরিত্রাণায় সাধূনাং বিনাশায় চ দুষ্কৃতাম্ ।
-> ধর্মসংস্থাপনার্থায় সম্ভবামি যুগে যুগে ॥২৩॥
 
 > paritrāṇāya sādhūnāṁ
 > vināśāya ca duṣkṛtām
@@ -3888,9 +3097,6 @@ Texts 22 and 23 were spoken by Lord Kṛṣṇa in the *Bhagavad-gītā* (4.7-8)
 
 ### CC Adi 3.24
 
-> উৎসীদেয়ুরিমে লোকা ন কুর্যাং কর্ম চেদহম্ ।
-> সঙ্করস্য চ কর্তা স্যামুপহন্যামিমাঃ প্রজাঃ ॥২৪॥
-
 > utsīdeyur ime lokā
 > na kuryāṁ karma ced aham
 > saṅkarasya ca kartā syām
@@ -3901,9 +3107,6 @@ Texts 22 and 23 were spoken by Lord Kṛṣṇa in the *Bhagavad-gītā* (4.7-8)
 **“ 'If I did not show the proper principles of religion, all these worlds would fall into ruin. I would be a cause of unwanted population and would spoil all these living beings.'**
 
 ### CC Adi 3.25
-
-> যদ্যদাচরতি শ্রেষ্ঠস্তত্তদেবেতরো জনঃ ।
-> স যৎ প্রমাণং কুরুতে লোকস্তদনুবর্ততে ॥২৫॥
 
 > yad yad ācarati śreṣṭhas
 > tat tad evetaro janaḥ
@@ -3916,9 +3119,6 @@ Texts 22 and 23 were spoken by Lord Kṛṣṇa in the *Bhagavad-gītā* (4.7-8)
 
 ### CC Adi 3.26
 
-> যুগধর্ম-প্রবর্তন হয় অংশ হৈতে ।
-> আমা বিনা অন্যে নারে ব্রজপ্রেম দিতে ॥২৬॥
-
 > yuga-dharma-pravartana haya aṁśa haite
 > āmā vinā anye nāre vraja-prema dite
 
@@ -3927,9 +3127,6 @@ Texts 22 and 23 were spoken by Lord Kṛṣṇa in the *Bhagavad-gītā* (4.7-8)
 **"My plenary portions can establish the principles of religion for each age. No one but Me, however, can bestow the kind of loving service performed by the residents of Vraja.**
 
 ### CC Adi 3.27
-
-> সন্ত্ববতারা বহবঃ পঙ্কজনাভস্য সর্বতোভদ্রাঃ ।
-> কৃষ্ণাদন্যঃ কো বা লতাস্বপি প্রেমদো ভবতি ॥২৭॥
 
 > santv avatārā bahavaḥ
 > paṅkaja-nābhasya sarvato-bhadrāḥ
@@ -3944,9 +3141,6 @@ This quotation from Bilvamaṅgala Ṭhākura is found in the *Laghu-bhāgavatā
 
 ### CC Adi 3.28
 
-> তাহাতে আপন ভক্তগণ করি’ সঙ্গে ।
-> পৃথিবীতে অবতরি’ করিমু নানা রঙ্গে ॥২৮॥
-
 > tāhāte āpana bhakta-gaṇa kari' saṅge
 > pṛthivīte avatari' karimu nānā raṅge
 
@@ -3955,9 +3149,6 @@ This quotation from Bilvamaṅgala Ṭhākura is found in the *Laghu-bhāgavatā
 **"Therefore in the company of My devotees I shall appear on earth and perform various colorful pastimes."**
 
 ### CC Adi 3.29
-
-> এত ভাবি’ কলিকালে প্রথম সন্ধ্যায় ।
-> অবতীর্ণ হৈলা কৃষ্ণ আপনি নদীয়ায় ॥২৯॥
 
 > eta bhāvi' kali-kāle prathama sandhyāya
 > avatīrṇa hailā kṛṣṇa āpani nadīyāya
@@ -3970,9 +3161,6 @@ The *prathama-sandhyā* is the beginning of the age. According to astronomical c
 
 ### CC Adi 3.30
 
-> চৈতন্যসিংহের নবদ্বীপে অবতার ।
-> সিংহগ্রীব, সিংহবীর্য, সিংহের হুঙ্কার ॥৩০॥
-
 > caitanya-siṁhera navadvīpe avatāra
 > siṁha-grīva, siṁha-vīrya, siṁhera huṅkāra
 
@@ -3981,9 +3169,6 @@ The *prathama-sandhyā* is the beginning of the age. According to astronomical c
 **Thus the lionlike Lord Caitanya has appeared in Navadvīpa. He has the shoulders of a lion, the powers of a lion, and the loud voice of a lion.**
 
 ### CC Adi 3.31
-
-> সেই সিংহ বসুক্ জীবের হৃদয়-কন্দরে ।
-> কল্মষ-দ্বিরদ নাশে যাঁহার হুঙ্কারে ॥৩১॥
 
 > sei siṁha vasuk jīvera hṛdaya-kandare
 > kalmaṣa-dvirada nāśe yāṅhāra huṅkāre
@@ -3994,9 +3179,6 @@ The *prathama-sandhyā* is the beginning of the age. According to astronomical c
 
 ### CC Adi 3.32
 
-> প্রথম লীলায় তাঁর ‘বিশ্বম্ভর’ নাম ।
-> ভক্তিরসে ভরিল, ধরিল ভূতগ্রাম ॥৩২॥
-
 > prathama līlāya tāṅra 'viśvambhara' nāma
 > bhakti-rase bharila, dharila bhūta-grāma
 
@@ -4006,9 +3188,6 @@ The *prathama-sandhyā* is the beginning of the age. According to astronomical c
 
 ### CC Adi 3.33
 
-> ডুভৃঞ্ ধাতুর অর্থ — পোষণ, ধারণ ।
-> পুষিল, ধরিল প্রেম দিয়া ত্রিভুবন ॥৩৩॥
-
 > ḍubhṛñ dhātura artha—poṣaṇa, dhāraṇa
 > puṣila, dharila prema diyā tri-bhuvana
 
@@ -4017,9 +3196,6 @@ The *prathama-sandhyā* is the beginning of the age. According to astronomical c
 **The verbal root "ḍubhṛñ" [which is the root of the word "viśvambhara"] indicates nourishing and maintaining. He [Lord Caitanya] nourishes and maintains the three worlds by distributing love of God.**
 
 ### CC Adi 3.34
-
-> শেষলীলায় ধরে নাম ‘শ্রীকৃষ্ণচৈতন্য’।
-> শ্রীকৃষ্ণ জানায়ে সব বিশ্ব কৈল ধন্য ॥৩৪॥
 
 > śeṣa-līlāya dhare nāma 'śrī-kṛṣṇa-caitanya'
 > śrī-kṛṣṇa jānāye saba viśva kaila dhanya
@@ -4046,9 +3222,6 @@ The authentic biographies also mention that Lord Caitanya accepted the *daṇḍ
 
 ### CC Adi 3.35
 
-> তাঁর যুগাবতার জানি’ গর্গ মহাশয় ।
-> কৃষ্ণের নামকরণে করিয়াছে নির্ণয় ॥৩৫॥
-
 > tāṅra yugāvatāra jāni' garga mahāśaya
 > kṛṣṇera nāma-karaṇe kariyāche nirṇaya
 
@@ -4057,9 +3230,6 @@ The authentic biographies also mention that Lord Caitanya accepted the *daṇḍ
 **Knowing Him [Lord Caitanya] to be the incarnation for Kali-yuga, Garga Muni, during the naming ceremony of Kṛṣṇa, predicted His appearance.**
 
 ### CC Adi 3.36
-
-> আসন্ বর্ণাস্ত্রয়ো হ্যস্য গৃহ্ণতোঽনুযুগং তনূঃ ।
-> শুক্লো রক্তস্তথা পীত ইদানীং কৃষ্ণতাং গতঃ ॥৩৬॥
 
 > āsan varṇās trayo hy asya
 > gṛhṇato 'nu-yugaṁ tanūḥ
@@ -4074,9 +3244,6 @@ This is a verse from *Śrīmad-Bhāgavatam* (10.8.13).
 
 ### CC Adi 3.37
 
-> শুক্ল, রক্ত, পীতবর্ণ — এই তিন দ্যুতি ।
-> সত্য-ত্রেতা-কলিকালে ধরেন শ্রীপতি ॥৩৭॥
-
 > śukla, rakta, pīta-varṇa—ei tina dyuti
 > satya-tretā-kali-kāle dharena śrī-pati
 
@@ -4086,9 +3253,6 @@ This is a verse from *Śrīmad-Bhāgavatam* (10.8.13).
 
 ### CC Adi 3.38
 
-> ইদানীং দ্বাপরে তিঁহো হৈলা কৃষ্ণবর্ণ ।
-> এই সব শাস্ত্রাগম-পুরাণের মর্ম ॥৩৮॥
-
 > idānīṁ dvāpare tiṅho hailā kṛṣṇa-varṇa
 > ei saba śāstrāgama-purāṇera marma
 
@@ -4097,9 +3261,6 @@ This is a verse from *Śrīmad-Bhāgavatam* (10.8.13).
 **Now, in the Dvāpara-yuga, the Lord had descended in a blackish hue. This is the essence of the statements in the Purāṇas and other Vedic literatures with reference to the context.**
 
 ### CC Adi 3.39
-
-> দ্বাপরে ভগবান্ শ্যামঃ পীতবাসা নিজায়ুধঃ ।
-> শ্রীবৎসাদিভিরঙ্কৈশ্চ লক্ষণৈরুপলক্ষিতঃ ॥৩৯॥
 
 > dvāpare bhagavān śyāmaḥ
 > pīta-vāsā nijāyudhaḥ
@@ -4113,9 +3274,6 @@ This is a verse from *Śrīmad-Bhāgavatam* (10.8.13).
 This is a verse from *Śrīmad-Bhāgavatam* (11.5.27), spoken by Saint Karabhājana, one of the nine royal mystics who explained to King Nimi the different features of the Lord in different ages.
 
 ### CC Adi 3.40
-
-> কলিযুগে যুগধর্ম — নামের প্রচার ।
-> তথি লাগি’ পীতবর্ণ চৈতন্যাবতার ॥৪০॥
 
 > kali-yuge yuga-dharma—nāmera pracāra
 > tathi lāgi' pīta-varṇa caitanyāvatāra
@@ -4147,9 +3305,6 @@ In this Age of Kali the practical system of religion for everyone is the chantin
 
 ### CC Adi 3.41
 
-> তপ্তহেম-সমকান্তি, প্রকাণ্ড শরীর ।
-> নবমেঘ জিনি কণ্ঠধ্বনি যে গম্ভীর ॥৪১॥
-
 > tapta-hema-sama-kānti, prakāṇḍa śarīra
 > nava-megha jini kaṇṭha-dhvani ye gambhīra
 
@@ -4159,9 +3314,6 @@ In this Age of Kali the practical system of religion for everyone is the chantin
 
 ### CC Adi 3.42
 
-> দৈর্ঘ্য-বিস্তারে যেই আপনার হাত ।
-> চারি হস্ত হয় ‘মহাপুরুষ’ বিখ্যাত ॥৪২॥
-
 > dairghya-vistāre yei āpanāra hāta
 > cāri hasta haya 'mahā-puruṣa' vikhyāta
 
@@ -4170,9 +3322,6 @@ In this Age of Kali the practical system of religion for everyone is the chantin
 **One who measures four cubits in height and in breadth by his own hand is celebrated as a great personality.**
 
 ### CC Adi 3.43
-
-> ‘ন্যগ্রোধপরিমণ্ডল’ হয় তাঁর নাম ।
-> ন্যগ্রোধপরিমণ্ডল-তনু চৈতন্য গুণধাম ॥৪৩॥
 
 > 'nyagrodha-parimaṇḍala' haya tāṅra nāma
 > nyagrodha-parimaṇḍala-tanu caitanya guṇa-dhāma
@@ -4185,9 +3334,6 @@ No one other than the Supreme Lord Himself, who has engaged the conditioned soul
 
 ### CC Adi 3.44
 
-> আজানুলম্বিতভুজ কমললোচন ।
-> তিলফুল-জিনি-নাসা, সুধাংশু-বদন ॥৪৪॥
-
 > ājānulambita-bhuja kamala-locana
 > tilaphula-jini-nāsā, sudhāṁśu-vadana
 
@@ -4196,9 +3342,6 @@ No one other than the Supreme Lord Himself, who has engaged the conditioned soul
 **His arms are long enough to reach His knees, His eyes are just like lotus flowers, His nose is like a sesame flower, and His face is as beautiful as the moon.**
 
 ### CC Adi 3.45
-
-> শান্ত, দান্ত, কৃষ্ণভক্তি-নিষ্ঠাপরায়ণ ।
-> ভক্তবৎসল, সুশীল, সর্বভূতে সম ॥৪৫॥
 
 > śānta, dānta, kṛṣṇa-bhakti-niṣṭhā-parāyaṇa
 > bhakta-vatsala, suśīla, sarva-bhūte sama
@@ -4209,9 +3352,6 @@ No one other than the Supreme Lord Himself, who has engaged the conditioned soul
 
 ### CC Adi 3.46
 
-> চন্দনের অঙ্গদ-বালা, চন্দন-ভূষণ ।
-> নৃত্যকালে পরি’ করেন কৃষ্ণসংকীর্তন ॥৪৬॥
-
 > candanera aṅgada-bālā, candana-bhūṣaṇa
 > nṛtya-kāle pari' karena kṛṣṇa-saṅkīrtana
 
@@ -4220,9 +3360,6 @@ No one other than the Supreme Lord Himself, who has engaged the conditioned soul
 **He is decorated with sandalwood bangles and armlets and anointed with the pulp of sandalwood. He especially wears these decorations to dance in śrī-kṛṣṇa-saṅkīrtana.**
 
 ### CC Adi 3.47
-
-> এই সব গুণ লঞা মুনি বৈশম্পায়ন ।
-> সহস্রনামে কৈল তাঁর নাম-গণন ॥৪৭॥
 
 > ei saba guṇa lañā muni vaiśampāyana
 > sahasra-nāme kaila tāṅra nāma-gaṇana
@@ -4233,9 +3370,6 @@ No one other than the Supreme Lord Himself, who has engaged the conditioned soul
 
 ### CC Adi 3.48
 
-> দুই লীলা চৈতন্যের — আদি আর শেষ ।
-> দুই লীলায় চারি চারি নাম বিশেষ ॥৪৮॥
-
 > dui līlā caitanyera—ādi āra śeṣa
 > dui līlāya cāri cāri nāma viśeṣa
 
@@ -4244,9 +3378,6 @@ No one other than the Supreme Lord Himself, who has engaged the conditioned soul
 **The pastimes of Lord Caitanya have two divisions—the early pastimes [ādi-līlā] and the later pastimes [śeṣa-līlā]. He has four names in each of these two līlās.**
 
 ### CC Adi 3.49
-
-> সুবর্ণবর্ণো হেমাঙ্গো বরাঙ্গশ্চন্দনাঙ্গদী ।
-> সন্ন্যাসকৃচ্ছমঃ শান্তো নিষ্ঠাশান্তিপরায়ণঃ ॥৪৯॥
 
 > suvarṇa-varṇo hemāṅgo
 > varāṅgaś candanāṅgadī
@@ -4263,9 +3394,6 @@ Lord Caitanya accepted *sannyāsa,* leaving aside His householder life, to preac
 
 ### CC Adi 3.50
 
-> ব্যক্ত করি’ ভাগবতে কহে বার বার ।
-> কলিযুগে ধর্ম — নামসংকীর্তন সার ॥৫০॥
-
 > vyakta kari' bhāgavate kahe bāra bāra
 > kali-yuge dharma—nāma-saṅkīrtana sāra
 
@@ -4274,9 +3402,6 @@ Lord Caitanya accepted *sannyāsa,* leaving aside His householder life, to preac
 **In Śrīmad-Bhāgavatam it is repeatedly and clearly said that the essence of religion in the Age of Kali is the chanting of the holy name of Kṛṣṇa.**
 
 ### CC Adi 3.51
-
-> ইতি দ্বাপর উর্বীশ স্তুবন্তি জগদীশ্বরম্ ।
-> নানাতন্ত্রবিধানেন কলাবপি যথা শৃণু ॥৫১॥
 
 > iti dvāpara urv-īśa
 > stuvanti jagad-īśvaram
@@ -4290,9 +3415,6 @@ Lord Caitanya accepted *sannyāsa,* leaving aside His householder life, to preac
 This verse is spoken by Saint Karabhājana in *Śrīmad-Bhāgavatam* (11.5.31).
 
 ### CC Adi 3.52
-
-> কৃষ্ণবর্ণং ত্বিষাঽকৃষ্ণং সাঙ্গোপাঙ্গাস্ত্রপার্ষদম্ ।
-> যজ্ঞৈঃ সংকীর্তনপ্রায়ৈর্যজন্তি হি সুমেধসঃ ॥৫২॥
 
 > kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ
 > sāṅgopāṅgāstra-pārṣadam
@@ -4317,9 +3439,6 @@ Sāṅgopāṅgāstra-pārṣadam further indicates that Lord Caitanya is Lord K
 
 ### CC Adi 3.53
 
-> শুন, ভাই, এই সব চৈতন্য-মহিমা ।
-> এই শ্লোকে কহে তাঁর মহিমার সীমা ॥৫৩॥
-
 > śuna, bhāi, ei saba caitanya-mahimā
 > ei śloke kahe tāṅra mahimāra sīmā
 
@@ -4328,9 +3447,6 @@ Sāṅgopāṅgāstra-pārṣadam further indicates that Lord Caitanya is Lord K
 **My dear brothers, please hear all these glories of Lord Caitanya. This verse clearly summarizes His activities and characteristics.**
 
 ### CC Adi 3.54
-
-> ‘কৃষ্ণ’ এই দুই বর্ণ সদা যাঁর মুখে ।
-> অথবা, কৃষ্ণকে তিহোঁ বর্ণে নিজ সুখে ॥৫৪॥
 
 > 'kṛṣṇa' ei dui varṇa sadā yāṅra mukhe
 > athavā, kṛṣṇake tiṅho varṇe nija sukhe
@@ -4341,9 +3457,6 @@ Sāṅgopāṅgāstra-pārṣadam further indicates that Lord Caitanya is Lord K
 
 ### CC Adi 3.55
 
-> কৃষ্ণবর্ণ-শব্দের অর্থ দুই ত প্রমাণ ।
-> কৃষ্ণ বিনু তাঁর মুখে নাহি আইসে আন ॥৫৫॥
-
 > kṛṣṇa-varṇa-śabdera artha dui ta pramāṇa
 > kṛṣṇa vinu tāṅra mukhe nāhi āise āna
 
@@ -4352,9 +3465,6 @@ Sāṅgopāṅgāstra-pārṣadam further indicates that Lord Caitanya is Lord K
 **These are two meanings of the word "kṛṣṇa-varṇa." Indeed, nothing else but Kṛṣṇa issues from His mouth.**
 
 ### CC Adi 3.56
-
-> কেহ তাঁরে বলে যদি কৃষ্ণ-বরণ ।
-> আর বিশেষণে তার করে নিবারণ ॥৫৬॥
 
 > keha tāṅre bale yadi kṛṣṇa-varaṇa
 > āra viśeṣaṇe tāra kare nivāraṇa
@@ -4365,9 +3475,6 @@ Sāṅgopāṅgāstra-pārṣadam further indicates that Lord Caitanya is Lord K
 
 ### CC Adi 3.57
 
-> দেহকান্ত্যে হয় তেঁহো অকৃষ্ণবরণ ।
-> অকৃষ্ণবরণে কহে পীতবরণ ॥৫৭॥
-
 > deha-kāntye haya teṅho akṛṣṇa-varaṇa
 > akṛṣṇa-varaṇe kahe pīta-varaṇa
 
@@ -4376,11 +3483,6 @@ Sāṅgopāṅgāstra-pārṣadam further indicates that Lord Caitanya is Lord K
 **His complexion is certainly not blackish. Indeed, His not being blackish indicates that His complexion is yellow.**
 
 ### CC Adi 3.58
-
-> কলৌ যং বিদ্বাংসঃ স্ফূটমভিযজন্তে দ্যুতিভরা-
-> দকৃষ্ণাঙ্গং কৃষ্ণং মখবিধিভিরুৎকীর্তনময়ৈঃ ।
-> উপাস্যঞ্চ প্রাহুর্যমখিলচতুর্থাশ্রমজুষাং
-> স দেবশ্চৈতন্যাকৃতিরতিতরাং নঃ কৃপয়তু ॥৫৮॥
 
 > kalau yaṁ vidvāṁsaḥ sphuṭam abhiyajante dyuti-bharād
 > akṛṣṇāṅgaṁ kṛṣṇaṁ makha-vidhibhir utkīrtana-mayaiḥ
@@ -4395,9 +3497,6 @@ This text, as well as text 63 and text 66, is from the *Stava-mālā* of Śrīla
 
 ### CC Adi 3.59
 
-> প্রত্যক্ষ তাঁহার তপ্তকাঞ্চনের দ্যুতি ।
-> যাঁহার ছটায় নাশে অজ্ঞান-তমস্ততি ॥৫৯॥
-
 > pratyakṣa tāṅhāra tapta-kāñcanera dyuti
 > yāṅhāra chaṭāya nāśe ajñāna-tamastati
 
@@ -4406,9 +3505,6 @@ This text, as well as text 63 and text 66, is from the *Stava-mālā* of Śrīla
 **One can vividly see His glowing complexion of molten gold, which dispels the darkness of ignorance.**
 
 ### CC Adi 3.60
-
-> জীবের কল্মষ-তমো নাশ করিবারে ।
-> অঙ্গ-উপাঙ্গ-নাম নানা অস্ত্র ধরে ॥৬০॥
 
 > jīvera kalmaṣa-tamo nāśa karibāre
 > aṅga-upāṅga-nāma nānā astra dhare
@@ -4419,9 +3515,6 @@ This text, as well as text 63 and text 66, is from the *Stava-mālā* of Śrīla
 
 ### CC Adi 3.61
 
-> ভক্তির বিরোধী কর্ম-ধর্ম বা অধর্ম ।
-> তাহার ‘কল্মষ’ নাম, সেই মহাতমঃ ॥৬১॥
-
 > bhaktira virodhī karma-dharma vā adharma
 > tāhāra 'kalmaṣa' nāma, sei mahā-tamaḥ
 
@@ -4431,9 +3524,6 @@ This text, as well as text 63 and text 66, is from the *Stava-mālā* of Śrīla
 
 ### CC Adi 3.62
 
-> বাহু তুলি’ হরি বলি’ প্রেমদৃষ্ট্যে চায় ।
-> করিয়া কল্মষ নাশ প্রেমেতে ভাসায় ॥৬২॥
-
 > bāhu tuli' hari bali' prema-dṛṣṭye cāya
 > kariyā kalmaṣa nāśa premete bhāsāya
 
@@ -4442,11 +3532,6 @@ This text, as well as text 63 and text 66, is from the *Stava-mālā* of Śrīla
 **Raising His arms, chanting the holy name and looking upon all with deep love, He drives away all sins and floods everyone with love of Godhead.**
 
 ### CC Adi 3.63
-
-> স্মিতালোকঃ শোকং হরতি জগতাং যস্য পরিতো
-> গিরান্তু প্রারম্ভঃ কুশলপটলীং পল্লবয়তি ।
-> পদালম্ভঃ কং বা প্রণয়তি ন হি প্রেমনিবহং
-> স দেবশ্চৈতন্যাকৃতিরতিতরাং নঃ কৃপয়তু ॥৬৩॥
 
 > smitālokaḥ śokaṁ harati jagatāṁ yasya parito
 > girāṁ tu prārambhaḥ kuśala-paṭalīṁ pallavayati
@@ -4459,9 +3544,6 @@ This text, as well as text 63 and text 66, is from the *Stava-mālā* of Śrīla
 
 ### CC Adi 3.64
 
-> শ্রীঅঙ্গ, শ্রীমুখ যেই করে দরশন ।
-> তার পাপক্ষয় হয়, পায় প্রেমধন ॥৬৪॥
-
 > śrī-aṅga, śrī-mukha yei kare daraśana
 > tāra pāpa-kṣaya haya, pāya prema-dhana
 
@@ -4471,9 +3553,6 @@ This text, as well as text 63 and text 66, is from the *Stava-mālā* of Śrīla
 
 ### CC Adi 3.65
 
-> অন্য অবতারে সব সৈন্য-শস্ত্র সঙ্গে ।
-> চৈতন্য-কৃষ্ণের সৈন্য অঙ্গ-উপাঙ্গে ॥৬৫॥
-
 > anya avatāre saba sainya-śastra saṅge
 > caitanya-kṛṣṇera sainya aṅga-upāṅge
 
@@ -4482,11 +3561,6 @@ This text, as well as text 63 and text 66, is from the *Stava-mālā* of Śrīla
 **In other incarnations the Lord descended with armies and weapons, but in this incarnation His soldiers are His plenary parts and associates.**
 
 ### CC Adi 3.66
-
-> সদোপাস্যঃ শ্রীমান্ ধৃতমনুজকায়ৈঃ প্রণয়িতাং
-> বহদ্ভির্গীর্বাণৈর্গিরিশ-পরমেষ্ঠি-প্রভৃতিভিঃ ।
-> স্বভক্তেভ্যঃ শুদ্ধাং নিজভজনমুদ্রামুপদিশন্
-> স চৈতন্যঃ কিং মে পুনরপি দৃশোর্যাস্যতি পদম্ ॥৬৬॥
 
 > sadopāsyaḥ śrīmān dhṛta-manuja-kāyaiḥ praṇayitāṁ
 > vahadbhir gīr-vāṇair giriśa-parameṣṭhi-prabhṛtibhiḥ
@@ -4499,9 +3573,6 @@ This text, as well as text 63 and text 66, is from the *Stava-mālā* of Śrīla
 
 ### CC Adi 3.67
 
-> আঙ্গোপাঙ্গ অস্ত্র করে স্বকার্যসাধন ।
-> ‘অঙ্গ’-শব্দের অর্থ আর শুন দিয়া মন ॥৬৭॥
-
 > āṅgopāṅga astra kare sva-kārya-sādhana
 > 'aṅga'-śabdera artha āra śuna diyā mana
 
@@ -4511,9 +3582,6 @@ This text, as well as text 63 and text 66, is from the *Stava-mālā* of Śrīla
 
 ### CC Adi 3.68
 
-> ‘অঙ্গ’-শব্দের অংশ কহে শাস্ত্র-পরমাণ ।
-> অঙ্গের অবয়ব ‘উপাঙ্গ’-ব্যাখ্যান ॥৬৮॥
-
 > 'aṅga'-śabde aṁśa kahe śāstra-paramāṇa
 > aṅgera avayava 'upāṅga'-vyākhyāna
 
@@ -4522,11 +3590,6 @@ This text, as well as text 63 and text 66, is from the *Stava-mālā* of Śrīla
 **According to the evidence of the revealed scriptures, a bodily limb [aṅga] is also called a part [aṁśa], and a part of a limb is called a partial part [upāṅga].**
 
 ### CC Adi 3.69
-
-> নারায়ণস্ত্বং ন হি সর্বদেহিনা-
-> মাত্মাস্যধীশাখিললোকসাক্ষী ।
-> নারায়ণোঽঙ্গং নরভূজলায়না-
-> ত্তচ্চাপি সত্যং ন তবৈব মায়া ॥৬৯॥
 
 > nārāyaṇas tvaṁ na hi sarva-dehinām
 > ātmāsy adhīśākhila-loka-sākṣī
@@ -4541,9 +3604,6 @@ This text was spoken to Lord Kṛṣṇa by Brahmā in *Śrīmad-Bhāgavatam* (1
 
 ### CC Adi 3.70
 
-> জলশায়ী অন্তর্যামী যেই নারায়ণ ।
-> সেহো তোমার অংশ, তুমি মূল নারায়ণ ॥৭০॥
-
 > jala-śāyī antar-yāmī yei nārāyaṇa
 > seho tomāra aṁśa, tumi mūla nārāyaṇa
 
@@ -4552,9 +3612,6 @@ This text was spoken to Lord Kṛṣṇa by Brahmā in *Śrīmad-Bhāgavatam* (1
 **The manifestation of the Nārāyaṇa who predominates in everyone's heart, as well as the Nārāyaṇa who lives in the waters [Kāraṇa, Garbha and Kṣīra], is Your plenary portion. You are therefore the original Nārāyaṇa.**
 
 ### CC Adi 3.71
-
-> ‘অঙ্গ’-শব্দে অংশ কহে, সেহো সত্য হয় ।
-> মায়াকার্য নহে — সব চিদানন্দময় ॥৭১॥
 
 > 'aṅga'-śabde aṁśa kahe, seho satya haya
 > māyā-kārya nahe—saba cid-ānanda-maya
@@ -4580,9 +3637,6 @@ Demigods such as Lord Brahmā and Lord Śiva come in contact with the material e
 
 ### CC Adi 3.72
 
-> অদ্বৈত, নিত্যানন্দ — চৈতন্যের দুই অঙ্গ ।
-> অঙ্গের অবয়বগণ কহিয়ে উপাঙ্গ ॥৭২॥
-
 > advaita, nityānanda—caitanyera dui aṅga
 > aṅgera avayava-gaṇa kahiye upāṅga
 
@@ -4591,9 +3645,6 @@ Demigods such as Lord Brahmā and Lord Śiva come in contact with the material e
 **Śrī Advaita Prabhu and Śrī Nityānanda Prabhu are both plenary portions of Lord Caitanya. Thus They are the limbs [aṅgas] of His body. The parts of these two limbs are called the upāṅgas.**
 
 ### CC Adi 3.73
-
-> অঙ্গোপাঙ্গ তীক্ষ্ণ অস্ত্র প্রভুর সহিতে ।
-> সেই সব অস্ত্র হয় পাষণ্ড দলিতে ॥৭৩॥
 
 > aṅgopāṅga tīkṣṇa astra prabhura sahite
 > sei saba astra haya pāṣaṇḍa dalite
@@ -4608,9 +3659,6 @@ Pāṣaṇḍas, or atheists, cannot understand the pastimes of the Supreme Lord
 
 ### CC Adi 3.74
 
-> নিত্যানন্দ গোসাঞি সাক্ষাৎ হলধর ।
-> অদ্বৈত আচার্য গোসাঞি সাক্ষাৎ ঈশ্বর ॥৭৪॥
-
 > nityānanda gosāñi sākṣāt haladhara
 > advaita ācārya gosāñi sākṣāt īśvara
 
@@ -4619,9 +3667,6 @@ Pāṣaṇḍas, or atheists, cannot understand the pastimes of the Supreme Lord
 **Śrī Nityānanda Gosāñi is directly Haladhara [Lord Balarāma], and Advaita Ācārya is the Personality of Godhead Himself.**
 
 ### CC Adi 3.75
-
-> শ্রীবাসাদি পারিষদ সৈন্য সঙ্গে লঞা ।
-> দুই সেনাপতি বুলে কীর্তন করিয়া ॥৭৫॥
 
 > śrīvāsādi pāriṣada sainya saṅge lañā
 > dui senā-pati bule kīrtana kariyā
@@ -4632,9 +3677,6 @@ Pāṣaṇḍas, or atheists, cannot understand the pastimes of the Supreme Lord
 
 ### CC Adi 3.76
 
-> পাষণ্ডদলনবানা নিত্যানন্দ রায় ।
-> আচার্য-হুঙ্কারে পাপ-পাষন্ডী পলায় ॥৭৬॥
-
 > pāṣaṇḍa-dalana-vānā nityānanda rāya
 > ācārya-huṅkāre pāpa-pāṣaṇḍī palāya
 
@@ -4644,9 +3686,6 @@ Pāṣaṇḍas, or atheists, cannot understand the pastimes of the Supreme Lord
 
 ### CC Adi 3.77
 
-> সংকীর্তন-প্রবর্তক শ্রীকৃষ্ণচৈতন্য ।
-> সংকীর্তন-যজ্ঞে তাঁরে ভজে, সেই ধন্য ॥৭৭॥
-
 > saṅkīrtana-pravartaka śrī-kṛṣṇa-caitanya
 > saṅkīrtana-yajñe tāṅre bhaje, sei dhanya
 
@@ -4655,9 +3694,6 @@ Pāṣaṇḍas, or atheists, cannot understand the pastimes of the Supreme Lord
 **Lord Śrī Kṛṣṇa Caitanya is the initiator of saṅkīrtana [congregational chanting of the holy name of the Lord]. One who worships Him through saṅkīrtana is fortunate indeed.**
 
 ### CC Adi 3.78
-
-> সেই ত’ সুমেধা, আর কুবুদ্ধি সংসার ।
-> সর্ব-যজ্ঞ হৈতে কৃষ্ণনামযজ্ঞ সার ॥৭৮॥
 
 > sei ta' sumedhā, āra kubuddhi saṁsāra
 > sarva-yajña haite kṛṣṇa-nāma-yajña sāra
@@ -4669,9 +3705,6 @@ Pāṣaṇḍas, or atheists, cannot understand the pastimes of the Supreme Lord
 Lord Śrī Caitanya Mahāprabhu is the father and inaugurator of the *saṅkīrtana* movement. One who worships Him by sacrificing his life, money, intelligence and words for the *saṅkīrtana* movement is recognized by the Lord and endowed with His blessings. All others may be said to be foolish, for of all sacrifices in which a man may apply his energy, a sacrifice made for the *saṅkīrtana* movement is the most glorious.
 
 ### CC Adi 3.79
-
-> কোটি অশ্বমেধ এক কৃষ্ণ নাম সম ।
-> যেই কহে, সে পাষণ্ডী, দণ্ডে তারে যম ॥৭৯॥
 
 > koṭi aśvamedha eka kṛṣṇa nāma sama
 > yei kahe, se pāṣaṇḍī, daṇḍe tāre yama
@@ -4693,9 +3726,6 @@ The Vedic scriptures say:
 
 ### CC Adi 3.80
 
-> ‘ভাগবতসন্দর্ভ’-গ্রন্থের মঙ্গলাচরণে ।
-> এ-শ্লোক জীবগোসাঞি করিয়াছেন ব্যাখ্যানে ॥৮০॥
-
 > 'bhāgavata-sandarbha'-granthera maṅgalācaraṇe
 > e-śloka jīva-gosāñi kariyāchena vyākhyāne
 
@@ -4704,9 +3734,6 @@ The Vedic scriptures say:
 **In the auspicious introduction of Bhāgavata-sandarbha, Śrīla Jīva Gosvāmī has given the following verse as an explanation.**
 
 ### CC Adi 3.81
-
-> অন্তঃকৃষ্ণং বহির্গৌরং দর্শিতাঙ্গাদিবৈভবম্ ।
-> কলৌ সংকীর্তনাদ্যৈঃ স্ম কৃষ্ণচৈতন্যমাশ্রিতাঃ ॥৮১॥
 
 > antaḥ kṛṣṇaṁ bahir gauraṁ
 > darśitāṅgādi-vaibhavam
@@ -4725,9 +3752,6 @@ Antaḥ kṛṣṇa refers to one who is always thinking of Kṛṣṇa. This at
 
 ### CC Adi 3.82
 
-> উপপুরাণেহ শুনি শ্রীকৃষ্ণবচন ।
-> কৃপা করি ব্যাস প্রতি করিয়াছেন কথন ॥৮২॥
-
 > upa-purāṇeha śuni śrī-kṛṣṇa-vacana
 > kṛpā kari vyāsa prati kariyāchena kathana
 
@@ -4736,9 +3760,6 @@ Antaḥ kṛṣṇa refers to one who is always thinking of Kṛṣṇa. This at
 **In the Upapurāṇas we hear Śrī Kṛṣṇa showing His mercy to Vyāsadeva by speaking to him as follows.**
 
 ### CC Adi 3.83
-
-> অহমেব ক্বচিদ্ব্রহ্মন্ সন্ন্যাসাশ্রমমাশ্রিতঃ ।
-> হরিভক্তিং গ্রাহয়ামি কলৌ পাপহতান্নরান্ ॥৮৩॥
 
 > aham eva kvacid brahman
 > sannyāsāśramam āśritaḥ
@@ -4751,9 +3772,6 @@ Antaḥ kṛṣṇa refers to one who is always thinking of Kṛṣṇa. This at
 
 ### CC Adi 3.84
 
-> ভাগবত, ভারতশাস্ত্র, আগম, পুরাণ ।
-> চৈতন্য-কৃষ্ণ-অবতারে প্রকট প্রমাণ ॥৮৪॥
-
 > bhāgavata, bhārata-śāstra, āgama, purāṇa
 > caitanya-kṛṣṇa-avatāre prakaṭa pramāṇa
 
@@ -4762,9 +3780,6 @@ Antaḥ kṛṣṇa refers to one who is always thinking of Kṛṣṇa. This at
 **Śrīmad-Bhāgavatam, the Mahābhārata, the Purāṇas and other works of Vedic literature all give evidence to prove that Lord Śrī Kṛṣṇa Caitanya Mahāprabhu is the incarnation of Kṛṣṇa.**
 
 ### CC Adi 3.85
-
-> প্রত্যক্ষে দেখহ নানা প্রকট প্রভাব ।
-> অলৌকিক কর্ম, অলৌকিক অনুভাব ॥৮৫॥
 
 > pratyakṣe dekhaha nānā prakaṭa prabhāva
 > alaukika karma, alaukika anubhāva
@@ -4775,9 +3790,6 @@ Antaḥ kṛṣṇa refers to one who is always thinking of Kṛṣṇa. This at
 
 ### CC Adi 3.86
 
-> দেখিয়া না দেখে যত অভক্তের গণ ।
-> উলূকে না দেখে যেন সূর্যের কিরণ ॥৮৬॥
-
 > dekhiyā nā dekhe yata abhaktera gaṇa
 > ulūke nā dekhe yena sūryera kiraṇa
 
@@ -4786,11 +3798,6 @@ Antaḥ kṛṣṇa refers to one who is always thinking of Kṛṣṇa. This at
 **But faithless unbelievers do not see what is clearly evident, just as owls do not see the rays of the sun.**
 
 ### CC Adi 3.87
-
-> ত্বাং শীলরূপচরিতৈঃ পরমপ্রকৃষ্টৈঃ
-> সত্ত্বেন সাত্ত্বিকতয়া প্রবলৈশ্চ শাস্ত্রৈঃ ।
-> প্রখ্যাতদৈবপরমার্থবিদাং মতৈশ্চ
-> নৈবাসুরপ্রকৃতয়ঃ প্রভবন্তি বোদ্ধুম্ ॥৮৭॥
 
 > tvāṁ śīla-rūpa-caritaiḥ parama-prakṛṣṭaiḥ
 > sattvena sāttvikatayā prabalaiś ca śāstraiḥ
@@ -4809,9 +3816,6 @@ The authentic scriptures are compiled by personalities like Vyāsadeva, Nārada,
 
 ### CC Adi 3.88
 
-> আপনা লুকাইতে কৃষ্ণ নানা যত্ন করে ।
-> তথাপি তাঁহার ভক্ত জানয়ে তাঁহারে ॥৮৮॥
-
 > āpanā lukāite kṛṣṇa nānā yatna kare
 > tathāpi tāṅhāra bhakta jānaye tāṅhāre
 
@@ -4820,11 +3824,6 @@ The authentic scriptures are compiled by personalities like Vyāsadeva, Nārada,
 **Lord Śrī Kṛṣṇa tries to hide Himself in various ways, but nevertheless His pure devotees know Him as He is.**
 
 ### CC Adi 3.89
-
-> উল্লংঘিতত্রিবিধসীমসমাতিশায়ি-
-> সম্ভাবনং তব পরিব্রঢ়িম-স্বভাবম্ ।
-> মায়াবলেন ভবতাপি নিগুহ্যমানং
-> পশ্যন্তি কেচিদনিশং ত্বদনন্যভাবাঃ ॥৮৯॥
 
 > ullaṅghita-trividha-sīma-samātiśāyi-
 > sambhāvanaṁ tava parivraḍhima-svabhāvam
@@ -4848,9 +3847,6 @@ The sun may appear covered by a cloud, but actually it is the eyes of the tiny p
 
 ### CC Adi 3.90
 
-> অসুরস্বভাবে কৃষ্ণে কভু নাহি জানে ।
-> লুকাইতে নারে কৃষ্ণ ভক্তজন-স্থানে ॥৯০॥
-
 > asura-svabhāve kṛṣṇe kabhu nāhi jāne
 > lukāite nāre kṛṣṇa bhakta-jana-sthāne
 
@@ -4861,9 +3857,6 @@ The sun may appear covered by a cloud, but actually it is the eyes of the tiny p
 People who develop the nature of *asuras* like Rāvaṇa and Hiraṇyakaśipu can never know Kṛṣṇa, the Personality of Godhead, by challenging the authority of Godhead. But Śrī Kṛṣṇa cannot hide Himself from His pure devotees.
 
 ### CC Adi 3.91
-
-> দ্বৌ ভূতসর্গৌ লোকেঽস্মিন্ দৈব আসুর এব চ ।
-> বিষ্ণুভক্তঃ স্মৃতো দৈব আসুরস্তদ্বিপর্যয়ঃ ॥৯১॥
 
 > dvau bhūta-sargau loke 'smin
 > daiva āsura eva ca
@@ -4880,9 +3873,6 @@ The Kṛṣṇa consciousness movement is meant for *devas,* or devotees. Demons
 
 ### CC Adi 3.92
 
-> আচার্য গোসাঞি প্রভুর ভক্ত-অবতার ।
-> কৃষ্ণ-অবতার-হেতু যাঁহার হুঙ্কার ॥৯২॥
-
 > ācārya gosāñi prabhura bhakta-avatāra
 > kṛṣṇa-avatāra-hetu yāṅhāra huṅkāra
 
@@ -4891,9 +3881,6 @@ The Kṛṣṇa consciousness movement is meant for *devas,* or devotees. Demons
 **Advaita Ācārya Gosvāmī is an incarnation of the Lord as a devotee. His loud calling was the cause for Kṛṣṇa's incarnation.**
 
 ### CC Adi 3.93
-
-> কৃষ্ণ যদি পৃথিবীতে করেন অবতার ।
-> প্রথমে করেন গুরুবর্গের সঞ্চার ॥৯৩॥
 
 > kṛṣṇa yadi pṛthivīte karena avatāra
 > prathame karena guru-vargera sañcāra
@@ -4904,9 +3891,6 @@ The Kṛṣṇa consciousness movement is meant for *devas,* or devotees. Demons
 
 ### CC Adi 3.94
 
-> পিতা মাতা গুরু আদি যত মান্যগণ ।
-> প্রথমে করেন সবার পৃথিবীতে জনম ॥৯৪॥
-
 > pitā mātā guru ādi yata mānya-gaṇa
 > prathame karena sabāra pṛthivīte janama
 
@@ -4915,9 +3899,6 @@ The Kṛṣṇa consciousness movement is meant for *devas,* or devotees. Demons
 **Thus respectable personalities such as His father, mother and spiritual master all take birth on earth first.**
 
 ### CC Adi 3.95
-
-> মাধব-ঈশ্বর-পুরী, শচী, জগন্নাথ ।
-> অদ্বৈত আচার্য প্রকট হৈলা সেই সাথ ॥৯৫॥
 
 > mādhava-īśvara-purī, śacī, jagannātha
 > advaita ācārya prakaṭa hailā sei sātha
@@ -4930,9 +3911,6 @@ Whenever the Supreme Personality of Godhead descends in His human form, He sends
 
 ### CC Adi 3.96
 
-> প্রকটিয়া দেখে আচার্য সকল সংসার ।
-> কৃষ্ণভক্তিগন্ধহীন বিষয়-ব্যবহার ॥৯৬॥
-
 > prakaṭiyā dekhe ācārya sakala saṁsāra
 > kṛṣṇa-bhakti gandha-hīna viṣaya-vyavahāra
 
@@ -4941,9 +3919,6 @@ Whenever the Supreme Personality of Godhead descends in His human form, He sends
 **Advaita Ācārya having appeared, He found the world devoid of devotional service to Śrī Kṛṣṇa because people were engrossed in material affairs.**
 
 ### CC Adi 3.97
-
-> কেহ পাপে, কেহ পুণ্যে করে বিষয়-ভোগ ।
-> ভক্তিগন্ধ নাহি, যাতে যায় ভবরোগ ॥৯৭॥
 
 > keha pāpe, keha puṇye kare viṣaya-bhoga
 > bhakti-gandha nāhi, yāte yāya bhava-roga
@@ -4955,9 +3930,6 @@ Whenever the Supreme Personality of Godhead descends in His human form, He sends
 Advaita Ācārya saw the entire world to be engaged in activities of material piety and impiety, without a trace of devotional service or Kṛṣṇa consciousness anywhere. The fact is that in this material world there is no scarcity of anything except Kṛṣṇa consciousness. Material necessities are supplied by the mercy of the Supreme Lord. We sometimes feel scarcity because of our mismanagement, but the real problem is that people are out of touch with Kṛṣṇa consciousness. Everyone is engaged in material sense gratification, but people have no plan for making an ultimate solution to their real problems, namely, birth, disease, old age and death. These four material miseries are called *bhava-roga,* or material diseases. They can be cured only by Kṛṣṇa consciousness. Therefore Kṛṣṇa consciousness is the greatest benediction for human society.
 
 ### CC Adi 3.98
-
-> লোকগতি দেখি’ আচার্য করুণ-হৃদয় ।
-> বিচার করেন, লোকের কৈছে হিত হয় ॥৯৮॥
 
 > loka-gati dekhi' ācārya karuṇa-hṛdaya
 > vicāra karena, lokera kaiche hita haya
@@ -4974,9 +3946,6 @@ The third-class prisoners, being less materially opulent than the first-class pr
 
 ### CC Adi 3.99
 
-> আপনি শ্রীকৃষ্ণ যদি করেন অবতার ।
-> আপনে আচরি’ ভক্তি করেন প্রচার ॥৯৯॥
-
 > āpani śrī-kṛṣṇa yadi karena avatāra
 > āpane ācari' bhakti karena pracāra
 
@@ -4985,9 +3954,6 @@ The third-class prisoners, being less materially opulent than the first-class pr
 **[Advaita Ācārya thought:] "If Śrī Kṛṣṇa were to appear as an incarnation, He Himself could preach devotion by His personal example.**
 
 ### CC Adi 3.100
-
-> নাম বিনু কলিকালে ধর্ম নাহি আর ।
-> কলিকালে কৈছে হবে কৃষ্ণ অবতার ॥১০০॥
 
 > nāma vinu kali-kāle dharma nāhi āra
 > kali-kāle kaiche habe kṛṣṇa avatāra
@@ -4998,9 +3964,6 @@ The third-class prisoners, being less materially opulent than the first-class pr
 
 ### CC Adi 3.101
 
-> শুদ্ধভাবে করিব কৃষ্ণের আরাধন ।
-> নিরন্তর সদৈন্যে করিব নিবেদন ॥১০১॥
-
 > śuddha-bhāve kariba kṛṣṇera ārādhana
 > nirantara sadainye kariba nivedana
 
@@ -5009,9 +3972,6 @@ The third-class prisoners, being less materially opulent than the first-class pr
 **"I shall worship Kṛṣṇa in a purified state of mind. I shall constantly petition Him in humbleness.**
 
 ### CC Adi 3.102
-
-> আনিয়া কৃষ্ণেরে করোঁ কীর্তন সঞ্চার ।
-> তবে সে ‘অদ্বৈত’ নাম সফল আমার ॥১০২॥
 
 > āniyā kṛṣṇere karoṅ kīrtana sañcāra
 > tabe se 'advaita' nāma saphala āmāra
@@ -5026,9 +3986,6 @@ The nondualist Māyāvādī philosopher who falsely believes that he is nondiffe
 
 ### CC Adi 3.103
 
-> কৃষ্ণ বশ করিবেন কোন্ আরাধনে ।
-> বিচারিতে এক শ্লোক আইল তাঁর মনে ॥১০৩॥
-
 > kṛṣṇa vaśa karibena kon ārādhane
 > vicārite eka śloka āila tāṅra mane
 
@@ -5037,9 +3994,6 @@ The nondualist Māyāvādī philosopher who falsely believes that he is nondiffe
 **While He was thinking about how to propitiate Kṛṣṇa by worship, the following verse came to His mind.**
 
 ### CC Adi 3.104
-
-> তুলসীদলমাত্রেণ জলস্য চুলুকেন বা ।
-> বিক্রীণীতে স্বমাত্মানং ভক্তেভ্যো ভক্তবৎসলঃ ॥১০৪॥
 
 > tulasī-dala-mātreṇa
 > jalasya culukena vā
@@ -5054,11 +4008,6 @@ This is a verse from the *Gautamīya-tantra.*
 
 ### CC Adi 3.105-106
 
-> এই শ্লোকার্থ আচার্য করেন বিচারণ ।
-> কৃষ্ণকে তুলসীজল দেয় যেই জন ॥১০৫॥
-> তার ঋণ শোধিতে কৃষ্ণ করেন চিন্তন — ।
-> ‘জল-তুলসীর সম কিছু ঘরে নাহি ধন’ ॥১০৬॥
-
 > ei ślokārtha ācārya karena vicāraṇa
 > kṛṣṇake tulasī-jala deya yei jana
 
@@ -5071,9 +4020,6 @@ This is a verse from the *Gautamīya-tantra.*
 
 ### CC Adi 3.107
 
-> তবে আত্মা বেচি’ করে ঋণের শোধন ।
-> এত ভাবি’ আচার্য করেন আরাধন ॥১০৭॥
-
 > tabe ātmā veci' kare ṛṇera śodhana
 > eta bhāvi' ācārya karena ārādhana
 
@@ -5085,9 +4031,6 @@ Through devotional service one can easily please Lord Kṛṣṇa with a leaf of
 
 ### CC Adi 3.108
 
-> গঙ্গাজল, তুলসীমঞ্জরী অনুক্ষণ ।
-> কৃষ্ণপাদপদ্ম ভাবি’ করে সমর্পণ ॥১০৮॥
-
 > gaṅgā-jala, tulasī-mañjarī anukṣaṇa
 > kṛṣṇa-pāda-padma bhāvi' kare samarpaṇa
 
@@ -5096,9 +4039,6 @@ Through devotional service one can easily please Lord Kṛṣṇa with a leaf of
 **Thinking of the lotus feet of Śrī Kṛṣṇa, He constantly offered tulasī buds in water from the Ganges.**
 
 ### CC Adi 3.109
-
-> কৃষ্ণের আহ্বান করে করিয়া হুঙ্কার ।
-> এমতে কৃষ্ণেরে করাইল অবতার ॥১০৯॥
 
 > kṛṣṇera āhvāna kare kariyā huṅkāra
 > e-mate kṛṣṇere karāila avatāra
@@ -5109,9 +4049,6 @@ Through devotional service one can easily please Lord Kṛṣṇa with a leaf of
 
 ### CC Adi 3.110
 
-> চৈতন্যের অবতারে এই মুখ্য হেতু ।
-> ভক্তের ইচ্ছায় অবতরে ধর্মসেতু ॥১১০॥
-
 > caitanyera avatāre ei mukhya hetu
 > bhaktera icchāya avatare dharma-setu
 
@@ -5120,11 +4057,6 @@ Through devotional service one can easily please Lord Kṛṣṇa with a leaf of
 **Therefore the principal reason for Śrī Caitanya's descent is this appeal by Advaita Ācārya. The Lord, the protector of religion, appears by the desire of His devotee.**
 
 ### CC Adi 3.111
-
-> ত্বং ভক্তিযোগপরিভাবিত-হৃৎসরোজ
-> আস্সে শ্রুতেক্ষিতপথো ননু নাথ পুংসাম্ ।
-> যদ্যদ্ধিয়া ত উ়রুগায় বিভাবয়ন্তি
-> তত্তদ্বপুঃ প্রণয়সে সদনুগ্রহায় ॥১১১॥
 
 > tvaṁ bhakti-yoga-paribhāvita-hṛt-saroja
 > āsse śrutekṣita-patho nanu nātha puṁsām
@@ -5143,9 +4075,6 @@ One cannot speak of Urugāya (the Lord, who is glorified by sublime prayers) unl
 
 ### CC Adi 3.112
 
-> এই শ্লোকের অর্থ কহি সংক্ষেপের সার ।
-> ভক্তের ইচ্ছায় কৃষ্ণের সর্ব অবতার ॥১১২॥
-
 > ei ślokera artha kahi saṅkṣepera sāra
 > bhaktera icchāya kṛṣṇera sarva avatāra
 
@@ -5155,9 +4084,6 @@ One cannot speak of Urugāya (the Lord, who is glorified by sublime prayers) unl
 
 ### CC Adi 3.113
 
-> চতুর্থ শ্লোকের অর্থ হৈল সুনিশ্চিতে ।
-> অবতীর্ণ হৈলা গৌর প্রেম প্রকাশিতে ॥১১৩॥
-
 > caturtha ślokera artha haila suniścite
 > avatīrṇa hailā gaura prema prakāśite
 
@@ -5166,9 +4092,6 @@ One cannot speak of Urugāya (the Lord, who is glorified by sublime prayers) unl
 **Thus I have surely determined the meaning of the fourth verse. Lord Gaurāṅga [Lord Caitanya] appeared as an incarnation to preach unalloyed love of God.**
 
 ### CC Adi 3.114
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥১১৪॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -5191,9 +4114,6 @@ Advaita Ācārya was a contemporary of Lord Caitanya's father. He felt sorry for
 
 ### CC Adi 4.1
 
-> শ্রীচৈতন্যপ্রসাদেন তদ্রূপস্য বিনির্ণয়ম্ ।
-> বালোঽপি কুরুতে শাস্ত্রং দৃষ্ট্বা ব্রজবিলাসিনঃ ॥১॥
-
 > śrī-caitanya-prasādena
 > tad-rūpasya vinirṇayam
 > bālo 'pi kurute śāstraṁ
@@ -5207,9 +4127,6 @@ One can ascertain the meaning of this Sanskrit *śloka* only when one is endowed
 
 ### CC Adi 4.2
 
-> জয় জয় শ্রীচৈতন্য জয় নিত্যানন্দ ।
-> জয়াদ্বৈতচন্দ্র জয় গৌরভক্তবৃন্দ ॥২॥
-
 > jaya jaya śrī-caitanya jaya nityānanda
 > jayādvaita-candra jaya gaura-bhakta-vṛnda
 
@@ -5218,9 +4135,6 @@ One can ascertain the meaning of this Sanskrit *śloka* only when one is endowed
 **All glory to Lord Caitanya Mahāprabhu. All glory to Lord Nityānanda. All glory to Śrī Advaita Ācārya. And all glory to all the devotees of Lord Caitanya.**
 
 ### CC Adi 4.3
-
-> চতুর্থ শ্লোকের অর্থ কৈল বিবরণ ।
-> পঞ্চম শ্লোকের অর্থ শুন ভক্তগণ ॥৩॥
 
 > caturtha ślokera artha kaila vivaraṇa
 > pañcama ślokera artha śuna bhakta-gaṇa
@@ -5231,9 +4145,6 @@ One can ascertain the meaning of this Sanskrit *śloka* only when one is endowed
 
 ### CC Adi 4.4
 
-> মূল-শ্লোকের অর্থ করিতে প্রকাশ ।
-> অর্থ লাগাইতে আগে কহিয়ে আভাস ॥৪॥
-
 > mūla-ślokera artha karite prakāśa
 > artha lāgāite āge kahiye ābhāsa
 
@@ -5243,9 +4154,6 @@ One can ascertain the meaning of this Sanskrit *śloka* only when one is endowed
 
 ### CC Adi 4.5
 
-> চতুর্থ শ্লোকের অর্থ এই কৈল সার ।
-> প্রেম-নাম প্রচারিতে এই অবতার ॥৫॥
-
 > caturtha ślokera artha ei kaila sāra
 > prema-nāma pracārite ei avatāra
 
@@ -5254,9 +4162,6 @@ One can ascertain the meaning of this Sanskrit *śloka* only when one is endowed
 **I have given the essential meaning of the fourth verse: this incarnation descends to propagate the chanting of the holy name and spread love of God.**
 
 ### CC Adi 4.6
-
-> সত্য এই হেতু, কিন্তু এহো বহিরঙ্গ ।
-> আর এক হেতু, শুন, আছে অন্তরঙ্গ ॥৬॥
 
 > satya ei hetu, kintu eho bahiraṅga
 > āra eka hetu, śuna, āche antaraṅga
@@ -5269,9 +4174,6 @@ In the Third Chapter, fourth verse, it has been clearly said that Lord Caitanya 
 
 ### CC Adi 4.7
 
-> পূর্বে যেন পৃথিবীর ভার হরিবারে ।
-> কৃষ্ণ অবতীর্ণ হৈলা শাস্ত্রেতে প্রচারে ॥৭॥
-
 > pūrve yena pṛthivīra bhāra haribāre
 > kṛṣṇa avatīrṇa hailā śāstrete pracāre
 
@@ -5281,9 +4183,6 @@ In the Third Chapter, fourth verse, it has been clearly said that Lord Caitanya 
 
 ### CC Adi 4.8
 
-> স্বয়ং-ভগবানের কর্ম নহে ভারহরণ ।
-> স্থিতিকর্তা বিষ্ণু করেন জগৎপালন ॥৮॥
-
 > svayaṁ-bhagavānera karma nahe bhāra-haraṇa
 > sthiti-kartā viṣṇu karena jagat-pālana
 
@@ -5292,9 +4191,6 @@ In the Third Chapter, fourth verse, it has been clearly said that Lord Caitanya 
 **To take away this burden, however, is not the work of the Supreme Personality of Godhead. The maintainer, Lord Viṣṇu, is the one who protects the universe.**
 
 ### CC Adi 4.9
-
-> কিন্তু কৃষ্ণের যেই হয় অবতার-কাল ।
-> ভারহরণ-কাল তাতে হইল মিশাল ॥৯॥
 
 > kintu kṛṣṇera yei haya avatāra-kāla
 > bhāra-haraṇa-kāla tāte ha-ila miśāla
@@ -5309,9 +4205,6 @@ However, the time for administrative rectification and the time for Lord Śrī K
 
 ### CC Adi 4.10
 
-> পূর্ণ ভগবান্ অবতরে যেই কালে ।
-> আর সব অবতার তাঁতে আসি’ মিলে ॥১০॥
-
 > pūrṇa bhagavān avatare yei kāle
 > āra saba avatāra tāṅte āsi' mile
 
@@ -5320,11 +4213,6 @@ However, the time for administrative rectification and the time for Lord Śrī K
 **When the complete Supreme Personality of Godhead descends, all other incarnations of the Lord meet together within Him.**
 
 ### CC Adi 4.11-12
-
-> নারায়ণ, চতুর্ব্যূহ, মৎস্যাদ্যবতার ।
-> যুগ-মন্বন্তরাবতার, যত আছে আর ॥১১॥
-> সবে আসি’ কৃষ্ণ-অঙ্গে হয় অবতীর্ণ ।
-> ঐছে অবতরে কৃষ্ণ ভগবান্ পূর্ণ ॥১২॥
 
 > nārāyaṇa, catur-vyūha, matsyādy-avatāra
 > yuga-manvantarāvatāra, yata āche āra
@@ -5338,9 +4226,6 @@ However, the time for administrative rectification and the time for Lord Śrī K
 
 ### CC Adi 4.13
 
-> অতএব বিষ্ণু তখন কৃষ্ণের শরীরে ।
-> বিষ্ণুদ্বারে করে কৃষ্ণ অসুর-সংহারে ॥১৩॥
-
 > ataeva viṣṇu takhana kṛṣṇera śarīre
 > viṣṇu-dvāre kare kṛṣṇa asura-saṁhāre
 
@@ -5350,9 +4235,6 @@ However, the time for administrative rectification and the time for Lord Śrī K
 
 ### CC Adi 4.14
 
-> আনুসঙ্গ-কর্ম এই অসুর-মারণ ।
-> যে লাগি’ অবতার, কহি সে মূল কারণ ॥১৪॥
-
 > ānuṣaṅga-karma ei asura-māraṇa
 > ye lāgi' avatāra, kahi se mūla kāraṇa
 
@@ -5361,11 +4243,6 @@ However, the time for administrative rectification and the time for Lord Śrī K
 **Thus the killing of the demons is but secondary work. I shall now speak of the main reason for the Lord's incarnation.**
 
 ### CC Adi 4.15-16
-
-> প্রেমরস-নির্যাস করিতে আস্বাদন ।
-> রাগমার্গ ভক্তি লোকে করিতে প্রচারণ ॥১৫॥
-> রসিক-শেখর কৃষ্ণ পরমকরুণ ।
-> এই দুই হেতু হৈতে ইচ্ছার উদ্গম ॥১৬॥
 
 > prema-rasa-niryāsa karite āsvādana
 > rāga-mārga bhakti loke karite pracāraṇa
@@ -5381,9 +4258,6 @@ During the period of Lord Kṛṣṇa's appearance, the killing of *asuras* or n
 
 ### CC Adi 4.17
 
-> ঐশ্বর্য-জ্ঞানেতে সব জগৎ মিশ্রিত ।
-> ঐশ্বর্য-শিথিল-প্রেমে নাহি মোর প্রীত ॥১৭॥
-
 > aiśvarya-jñānete saba jagat miśrita
 > aiśvarya-śithila-preme nahi mora prīta
 
@@ -5393,9 +4267,6 @@ During the period of Lord Kṛṣṇa's appearance, the killing of *asuras* or n
 
 ### CC Adi 4.18
 
-> আমারে ঈশ্বর মানে, আপনাকে হীন ।
-> তার প্রেমে বশ আমি না হই অধীন ॥১৮॥
-
 > āmāre īśvara māne, āpanāke hīna
 > tāra preme vaśa āmi nā ha-i adhīna
 
@@ -5404,9 +4275,6 @@ During the period of Lord Kṛṣṇa's appearance, the killing of *asuras* or n
 **"If one regards Me as the Supreme Lord and himself as a subordinate, I do not become subservient to his love, nor can it control Me.**
 
 ### CC Adi 4.19
-
-> আমাকে ত’ যে যে ভক্ত ভজে যেই ভাবে ।
-> তারে সে সে ভাবে ভজি, — এ মোর স্বভাবে ॥১৯॥
 
 > āmāke ta' ye ye bhakta bhaje yei bhāve
 > tāre se se bhāve bhaji,—e mora svabhāve
@@ -5418,9 +4286,6 @@ During the period of Lord Kṛṣṇa's appearance, the killing of *asuras* or n
 The Lord, by His inherent nature, reveals Himself before His devotees according to their inherent devotional service. The Vṛndāvana pastimes demonstrated that although generally people worship God with reverence, the Lord is more pleased when a devotee thinks of Him as his pet son, personal friend or most dear fiancī and renders service unto Him with such natural affection. The Lord becomes a subordinate object of love in such transcendental relationships. Such pure love of Godhead is unadulterated by any tinge of superfluous nondevotional desires and is not mixed with any sort of fruitive action or empiric philosophical speculation. It is pure and natural love of Godhead, spontaneously aroused in the absolute stage. This devotional service is executed in a favorable atmosphere freed from material affection.
 
 ### CC Adi 4.20
-
-> যে যথা মাং প্রপদ্যন্তে তাংস্তথৈব ভজাম্যহম্ ।
-> মম বর্ত্মানুবর্তন্তে মনুষ্যাঃ পার্থ সর্বশঃ ॥২০॥
 
 > ye yathā māṁ prapadyante
 > tāṁs tathaiva bhajāmy aham
@@ -5434,11 +4299,6 @@ The Lord, by His inherent nature, reveals Himself before His devotees according 
 In the Fourth Chapter of the *Bhagavad-gītā* Lord Kṛṣṇa affirms that formerly (some 120 million years before the Battle of Kurukṣetra) He explained the mystic philosophy of the *Gītā* to the sun-god. The message was received through the chain of disciplic succession, but in course of time, the chain being broken somehow or other, Lord Śrī Kṛṣṇa appeared again and taught Arjuna the truths of the *Bhagavad-gītā.* At that time the Lord spoke this verse [[bg/4/11|(Bg. 4.11)]] to His friend Arjuna.
 
 ### CC Adi 4.21-22
-
-> মোর পুত্র, মোর সখা, মোর প্রাণপতি ।
-> এইভাবে যেই মোরে করে শুদ্ধভক্তি ॥২১॥
-> আপনাকে বড় মানে, আমারে সম-হীন ।
-> সেই ভাবে হই আমি তাহার অধীন ॥২২॥
 
 > mora putra, mora sakhā, mora prāṇa-pati
 > ei-bhāve yei more kare śuddha-bhakti
@@ -5462,9 +4322,6 @@ Flawless execution of regulative principles is exhibited in the Vaikuṇṭha pl
 
 ### CC Adi 4.23
 
-> ময়ি ভক্তির্হি ভূতানামমৃতত্বায় কল্পতে ।
-> দিষ্ট্যা যদাসীন্মৎস্নেহো ভবতীনাং মদাপনঃ ॥২৩॥
-
 > mayi bhaktir hi bhūtānām
 > amṛtatvāya kalpate
 > diṣṭyā yad āsīn mat-sneho
@@ -5478,9 +4335,6 @@ Pure devotional service is represented in the activities of the residents of Vra
 
 ### CC Adi 4.24
 
-> মাতা মোরে পুত্রভাবে করেন বন্ধন ।
-> অতিহীন-জ্ঞানে করে লালন-পালন ॥২৪॥
-
 > mātā more putra-bhāve karena bandhana
 > atihīna-jñāne kare lālana pālana
 
@@ -5490,9 +4344,6 @@ Pure devotional service is represented in the activities of the residents of Vra
 
 ### CC Adi 4.25
 
-> সখা শুদ্ধ-সখ্যে করে স্কন্ধে আরোহণ ।
-> তুমি কোন্ বড় লোক, — তুমি আমি সম ॥২৫॥
-
 > sakhā śuddha-sakhye kare, skandhe ārohaṇa
 > tumi kon baḍa loka,—tumi āmi sama
 
@@ -5501,9 +4352,6 @@ Pure devotional service is represented in the activities of the residents of Vra
 **"My friends climb on My shoulders in pure friendship, saying, 'What kind of big man are You? You and I are equal.'**
 
 ### CC Adi 4.26
-
-> প্রিয়া যদি মান করি’ করয়ে ভর্ৎসন ।
-> বেদস্তুতি হৈতে হরে সেই মোর মন ॥২৬॥
 
 > priyā yadi māna kari' karaye bhartsana
 > veda-stuti haite hare sei mora mana
@@ -5522,11 +4370,6 @@ The informal language used between lover and beloved is significant of pure affe
 
 ### CC Adi 4.27-28
 
-> এই শুদ্ধভক্ত লইয়া করিমু অবতার ।
-> করিব বিবিধবিধ অদ্ভুত বিহার ॥২৭॥
-> বৈকুণ্ঠাদ্যে নাহি যে যে লীলার প্রচার ।
-> সে সে লীলা করিব, যাতে মোর চমৎকার ॥২৮॥
-
 > ei śuddha-bhakta lañā karimu avatāra
 > kariba vividha-vidha adbhuta vihāra
 
@@ -5543,9 +4386,6 @@ There are innumerable Vaikuṇṭha planets in the spiritual sky, and in all of 
 
 ### CC Adi 4.29
 
-> মো-বিষয়ে গোপীগণের উপপতি-ভাবে ।
-> যোগমায়া করিবেক আপনপ্রভাবে ॥২৯॥
-
 > mo-viṣaye gopī-gaṇera upapati-bhāve
 > yoga-māyā karibeka āpana-prabhāve
 
@@ -5556,9 +4396,6 @@ There are innumerable Vaikuṇṭha planets in the spiritual sky, and in all of 
 *Yogamāyā* is the name of the internal potency that makes the Lord forget Himself and become an object of love for His pure devotee in different transcendental mellows. This *yogamāyā* potency creates a spiritual sentiment in the minds of the damsels of Vraja by which they think of Lord Kṛṣṇa as their paramour. This sentiment is never to be compared to mundane illicit sexual love. It has nothing to do with sexual psychology, although the pure love of such devotees seems to be sexual. OM should know for certain that nothing can exist in this cosmic manifestation that has no real counterpart in the spiritual field. All material manifestations are emanations of the Transcendence. The erotic principles of amorous love reflected in mixed material values are perverted reflections of the reality of spirit, but one cannot understand the reality unless one is sufficiently educated in the spiritual science.
 
 ### CC Adi 4.30
-
-> আমিহ না জানি তাহা, না জানে গোপীগণ ।
-> দুঁহার রূপগুণে দুঁহার নিত্য হরে মন ॥৩০॥
 
 > āmiha nā jāni tāhā, nā jāne gopī-gaṇa
 > duṅhāra rūpa-guṇe duṅhāra nitya hare mana
@@ -5579,9 +4416,6 @@ The acts of *yogamāyā* make it possible for the Lord and the *gopīs,* in lovi
 
 ### CC Adi 4.31
 
-> ধর্ম ছাড়ি’ রাগে দুঁহে করয়ে মিলন ।
-> কভু মিলে, কভু না মিলে, — দৈবের ঘটন ॥৩১॥
-
 > dharma chāḍi' rāge duṅhe karaye milana
 > kabhu mile, kabhu nā mile,—daivera ghaṭana
 
@@ -5597,9 +4431,6 @@ The spontaneous attraction of Śrī Kṛṣṇa for His dearest parts and parcel
 
 ### CC Adi 4.32
 
-> এই সব রসনির্যাস করিব আস্বাদ ।
-> এই দ্বারে করিব সব ভক্তেরে প্রসাদ ॥৩২॥
-
 > ei saba rasa-niryāsa kariba āsvāda
 > ei dvāre kariba saba bhaktere prasāda
 
@@ -5608,9 +4439,6 @@ The spontaneous attraction of Śrī Kṛṣṇa for His dearest parts and parcel
 **"I shall taste the essence of all these rasas, and in this way I shall favor all the devotees.**
 
 ### CC Adi 4.33
-
-> ব্রজের নির্মল রাগ শুনি’ ভক্তগণ ।
-> রাগমার্গে ভজে যেন ছাড়ি’ ধর্ম-কর্ম ॥৩৩॥
 
 > vrajera nirmala rāga śuni' bhakta-gaṇa
 > rāga-mārge bhaje yena chāḍi' dharma-karma
@@ -5631,9 +4459,6 @@ King Kulaśekhara has written similarly, in his book *Mukunda-mālā-stotra* (5)
 "I have no attraction for performing religious rituals or holding any earthly kingdom. I do not care for sense enjoyments; let them appear and disappear in accordance with my previous deeds. My only desire is to be fixed in devotional service to the lotus feet of the Lord, even though I may continue to take birth here life after life."
 
 ### CC Adi 4.34
-
-> অনুগ্রহায় ভক্তানাং মানুষং দেহমাশ্রিতঃ ।
-> ভজতে তাদৃশীঃ ক্রীড়া যাঃ শ্রুত্বা তৎপরো ভবেৎ ॥৩৪॥
 
 > anugrahāya bhaktānāṁ
 > mānuṣaṁ deham āśritaḥ
@@ -5663,9 +4488,6 @@ A class of so-called devotees known as *sahajiyās* try to imitate the Lord's pa
 
 ### CC Adi 4.35
 
-> ‘ভবেৎ’ ক্রিয়া বিধিলিঙ্, সেই ইহা কয় ।
-> কর্তব্য অবশ্য এই, অন্যথা প্রত্যবায় ॥৩৫॥
-
 > 'bhavet' kriyā vidhiliṅ, sei ihā kaya
 > kartavya avaśya ei, anyathā pratyavāya
 
@@ -5681,11 +4503,6 @@ One who has not been attracted by the transcendental beauty of *rasa* will certa
 
 ### CC Adi 4.36-37
 
-> এই বাঞ্চা যৈছে কৃষ্ণপ্রাকট্য-কারণ ।
-> অসুরসংহার — আনুষঙ্গ প্রয়োজন ॥৩৬॥
-> এই মত চৈতন্য-কৃষ্ণ পূর্ণ ভগবান্ ।
-> যুগধর্মপ্রবর্তন নহে তাঁর কাম ॥৩৭॥
-
 > ei vāñchā yaiche kṛṣṇa-prākaṭya-kāraṇa
 > asura-saṁhāra—ānuṣaṅga prayojana
 
@@ -5698,9 +4515,6 @@ One who has not been attracted by the transcendental beauty of *rasa* will certa
 
 ### CC Adi 4.38
 
-> কোন কারণে যবে হৈল অবতারে মন ।
-> যুগধর্ম-কাল হৈল সে কালে মিলন ॥৩৮॥
-
 > kona kāraṇe yabe haila avatāre mana
 > yuga-dharma-kāla haila se kāle milana
 
@@ -5709,9 +4523,6 @@ One who has not been attracted by the transcendental beauty of *rasa* will certa
 **When the Lord desired to appear for another reason, the time for promulgating the religion of the age also arose.**
 
 ### CC Adi 4.39
-
-> দুই হেতু অবতরি’ লঞা ভক্তগণ ।
-> আপনে আস্বাদে প্রেম-নামসংকীর্তন ॥৩৯॥
 
 > dui hetu avatari' lañā bhakta-gaṇa
 > āpane āsvāde prema-nāma-saṅkīrtana
@@ -5722,9 +4533,6 @@ One who has not been attracted by the transcendental beauty of *rasa* will certa
 
 ### CC Adi 4.40
 
-> সেই দ্বারে আচণ্ডালে কীর্তন সঞ্চারে ।
-> নাম-প্রেমমালা গাঁথি’ পরাইল সংসারে ॥৪০॥
-
 > sei dvāre ācaṇḍāle kīrtana sañcāre
 > nāma-prema-mālā gāṅthi' parāila saṁsāre
 
@@ -5733,9 +4541,6 @@ One who has not been attracted by the transcendental beauty of *rasa* will certa
 **Thus He spread kīrtana even among the untouchables. He wove a wreath of the holy name and prema with which He garlanded the entire material world.**
 
 ### CC Adi 4.41
-
-> এইমত ভক্তভাব করি’ অঙ্গীকার ।
-> আপনি আচরি’ ভক্তি করিল প্রচার ॥৪১॥
 
 > ei-mata bhakta-bhāva kari' aṅgīkāra
 > āpani ācari' bhakti karila pracāra
@@ -5754,9 +4559,6 @@ Lord Caitanya has accepted the role of Rādhārāṇī, and we should support th
 
 ### CC Adi 4.42
 
-> দাস্য, সখ্য, বাৎসল্য, আর যে শৃঙ্গার ।
-> চারি প্রেম, চতুর্বিধ ভক্তই আধার ॥৪২॥
-
 > dāsya, sakhya, vātsalya, āra ye śṛṅgāra
 > cāri prema, catur-vidha bhakta-i ādhāra
 
@@ -5766,9 +4568,6 @@ Lord Caitanya has accepted the role of Rādhārāṇī, and we should support th
 
 ### CC Adi 4.43
 
-> নিজ নিজ ভাব সবে শ্রেষ্ঠ করি’ মানে ।
-> নিজভাবে করে কৃষ্ণসুখ আস্বাদনে ॥৪৩॥
-
 > nija nija bhāva sabe śreṣṭha kari' māne
 > nija-bhāve kare kṛṣṇa-sukha āsvādane
 
@@ -5777,9 +4576,6 @@ Lord Caitanya has accepted the role of Rādhārāṇī, and we should support th
 **Each kind of devotee feels that his sentiment is the most excellent, and thus in that mood he tastes great happiness with Lord Kṛṣṇa.**
 
 ### CC Adi 4.44
-
-> তটস্থ হইয়া মনে বিচার যদি করি ।
-> সব রস হৈতে শৃঙ্গারে অধিক মাধুরী ॥৪৪॥
 
 > taṭastha ha-iyā mane vicāra yadi kari
 > saba rasa haite śṛṅgāre adhika mādhurī
@@ -5791,9 +4587,6 @@ Lord Caitanya has accepted the role of Rādhārāṇī, and we should support th
 No one is higher or lower than anyone else in transcendental relationships with the Lord, for in the absolute realm everything is equal. But although these relationships are absolute, there are also transcendental differences between them. Thus the transcendental relationship of conjugal love is considered the highest perfection.
 
 ### CC Adi 4.45
-
-> যথোত্তরমসৌ স্বাদবিশেষোল্লাসময্যপি ।
-> রতির্বাসনয়া স্বাদ্বী ভাসতে কাপি কস্যচিৎ ॥৪৫॥
 
 > yathottaram asau svāda-
 > viśeṣollāsamayy api
@@ -5808,9 +4601,6 @@ This is a verse from Śrīla Rūpa Gosvāmī's *Bhakti-rasāmṛta-sindhu* (2.5.
 
 ### CC Adi 4.46
 
-> অতএব মধুর রস কহি তার নাম ।
-> স্বকীয়া-পরকীয়া-ভাবে দ্বিবিধ সংস্থান ॥৪৬॥
-
 > ataeva madhura rasa kahi tara nāma
 > svakīyā-parakīyā-bhāve dvi-vidha saṁsthāna
 
@@ -5819,9 +4609,6 @@ This is a verse from Śrīla Rūpa Gosvāmī's *Bhakti-rasāmṛta-sindhu* (2.5.
 **Therefore I call it madhura-rasa. It has two further divisions, namely wedded and unwedded love.**
 
 ### CC Adi 4.47
-
-> পরকীয়া-ভাবে অতি রসের উল্লাস ।
-> ব্রজ বিনা ইহার অন্যত্র নাহি বাস ॥৪৭॥
 
 > parakīyā-bhāve ati rasera ullāsa
 > vraja vinā ihāra anyatra nāhi vāsa
@@ -5832,9 +4619,6 @@ This is a verse from Śrīla Rūpa Gosvāmī's *Bhakti-rasāmṛta-sindhu* (2.5.
 
 ### CC Adi 4.48
 
-> ব্রজবধূগণের এই ভাব নিরবধি ।
-> তার মধ্যে শ্রীরাধায় ভাবের অবধি ॥৪৮॥
-
 > vraja-vadhū-gaṇera ei bhāva niravadhi
 > tāra madhye śrī-rādhāya bhāvera avadhi
 
@@ -5844,9 +4628,6 @@ This is a verse from Śrīla Rūpa Gosvāmī's *Bhakti-rasāmṛta-sindhu* (2.5.
 
 ### CC Adi 4.49
 
-> প্রৌঢ় নির্মলভাব প্রেম সর্বোত্তম ।
-> কৃষ্ণের মাধুর্যরস-আস্বাদ-কারণ ॥৪৯॥
-
 > prauḍha nirmala-bhāva prema sarvottama
 > kṛṣṇera mādhurya-rasa-āsvāda-kāraṇa
 
@@ -5855,9 +4636,6 @@ This is a verse from Śrīla Rūpa Gosvāmī's *Bhakti-rasāmṛta-sindhu* (2.5.
 **Her pure, mature love surpasses that of all others. Her love is the cause of Lord Kṛṣṇa's tasting the sweetness of the conjugal relationship.**
 
 ### CC Adi 4.50
-
-> অতএব সেই ভাব অঙ্গীকার করি’ ।
-> সাধিলেন নিজ বাঞ্ছা গৌরাঙ্গ-শ্রীহরি ॥৫০॥
 
 > ataeva sei bhāva aṅgīkāra kari'
 > sādhilena nija vāñchā gaurāṅga-śrī-hari
@@ -5876,11 +4654,6 @@ The transcendental mellow relished by the *gopīs* in Vraja is superexcellently 
 
 ### CC Adi 4.51
 
-> সুরেশানাং দুর্গং গতিরতিশয়েনোপনিষদাং
-> মুনীনাং সর্বস্বং প্রণতপটলীনাং মধুরিমা ।
-> বিনির্যাসঃ প্রেম্ণো নিখিলপশুপালাম্বুজদৃশাং
-> স চৈতন্যঃ কিং মে পুনরপি দৃশোর্যাস্যতি পদম্ ॥৫১॥
-
 > sureśānāṁ durgaṁ gatir atiśayenopaniṣadāṁ
 > munīnāṁ sarva-svaṁ praṇata-paṭalīnāṁ madhurimā
 > viniryāsaḥ premṇo nikhila-paśu-pālāmbuja-dṛśāṁ
@@ -5891,11 +4664,6 @@ The transcendental mellow relished by the *gopīs* in Vraja is superexcellently 
 **"Lord Caitanya is the shelter of the demigods, the goal of the Upaniṣads, the be-all and end-all of the great sages, the beautiful shelter of His devotees, and the essence of the love for the lotus-eyed gopīs. Will He again be the object of my vision?"**
 
 ### CC Adi 4.52
-
-> অপারং কস্যাপি প্রণয়িজনবৃন্দস্য কুতুকী
-> রসস্তোমং হৃত্বা মধুরমুপভোক্তুং কমপি যঃ ।
-> রুচং স্বামাবব্রে দ্যুতিমিহ তদীয়াং প্রকটয়ন্
-> স দেবশ্চৈতন্যাকৃতিরতিতরাং নঃ কৃপয়তু ॥৫২॥
 
 > apāraṁ kasyāpi praṇayi-jana-vṛndasya kutukī
 > rasa-stomaṁ hṛtvā madhuram upabhoktuṁ kam-api yaḥ
@@ -5910,9 +4678,6 @@ Texts 51 and 52 are from the *Stava-mālā* of Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 4.53
 
-> ভাবগ্রহণের হেতু কৈল ধর্ম স্থাপন ।
-> তার মুখ্য হেতু কহি, শুন সর্বজন ॥৫৩॥
-
 > bhāva-grahaṇera hetu kaila dharma-sthāpana
 > tāra mukhya hetu kahi, śuna sarva-jana
 
@@ -5922,9 +4687,6 @@ Texts 51 and 52 are from the *Stava-mālā* of Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 4.54
 
-> মূল হেতু আগে শ্লোকের কৈল আভাস ।
-> এবে কহি সেই শ্লোকের অর্থ প্রকাশ ॥৫৪॥
-
 > mūla hetu āge ślokera kaila ābhāsa
 > ebe kahi sei ślokera artha prakāśa
 
@@ -5933,11 +4695,6 @@ Texts 51 and 52 are from the *Stava-mālā* of Śrīla Rūpa Gosvāmī.
 **Having first given hints about the verse describing the principal reason why the Lord appeared, now I shall manifest its full meaning.**
 
 ### CC Adi 4.55
-
-> রাধা কৃষ্ণ প্রণয়বিকৃতির্হ্লাদিনীশক্তিরস্মা-
-> দেকাত্মানাবপি ভুবি পুরা দেহভেদং গতৌ তৌ ।
-> চৈতন্যাখ্যং প্রকটমধুনা তদ্দ্বয়ঞ্চৈক্যমাপ্তং
-> রাধাভাবদ্যুতিসুবলিতং নৌমি কৃষ্ণস্বরূপম্ ॥৫৫॥
 
 > rādhā kṛṣṇa-praṇaya-vikṛtir hlādinī śaktir asmād
 > ekātmānāv api bhuvi purā deha-bhedaṁ gatau tau
@@ -5951,9 +4708,6 @@ Texts 51 and 52 are from the *Stava-mālā* of Śrīla Rūpa Gosvāmī.
 This text is from the diary of Śrīla Svarūpa Dāmodara Gosvāmī. It appears as the fifth of the first fourteen verses of *Śrī Caitanya-caritāmṛta.*
 
 ### CC Adi 4.56
-
-> রাধাকৃষ্ণ এক আত্মা, দুই দেহ ধরি’ ।
-> অন্যোন্যে বিলসে রস আস্বাদন করি’ ॥৫৬॥
 
 > rādhā-kṛṣṇa eka ātmā, dui deha dhari'
 > anyonye vilase rasa āsvādana kari'
@@ -5974,9 +4728,6 @@ The absolute Personality of Godhead, Śrī Kṛṣṇa, is the omnipotent form o
 
 ### CC Adi 4.57
 
-> সেই দুই এক এবে চৈতন্য গোসাঞি ।
-> রস আস্বাদিতে দোঁহে হৈলা একঠাঁই ॥৫৭॥
-
 > sei dui eka ebe caitanya gosāñi
 > rasa āsvādite doṅhe hailā eka-ṭhāṅi
 
@@ -5985,9 +4736,6 @@ The absolute Personality of Godhead, Śrī Kṛṣṇa, is the omnipotent form o
 **Now, to enjoy rasa, They have appeared in one body as Lord Caitanya Mahāprabhu.**
 
 ### CC Adi 4.58
-
-> ইথি লাগি’ আগে করি তার বিবরণ ।
-> যাহা হৈতে হয় গৌরের মহিমা-কথন ॥৫৮॥
 
 > ithi lāgi' āge kari tāra vivaraṇa
 > yāhā haite haya gaurera mahimā-kathana
@@ -5998,9 +4746,6 @@ The absolute Personality of Godhead, Śrī Kṛṣṇa, is the omnipotent form o
 
 ### CC Adi 4.59
 
-> রাধিকা হয়েন কৃষ্ণের প্রণয়-বিকার ।
-> স্বরূপশক্তি — ‘হ্লাদিনী’ নাম যাঁহার ॥৫৯॥
-
 > rādhikā hayena kṛṣṇera praṇaya-vikāra
 > svarūpa-śakti—'hlādinī' nāma yāṅhāra
 
@@ -6009,9 +4754,6 @@ The absolute Personality of Godhead, Śrī Kṛṣṇa, is the omnipotent form o
 **Śrīmatī Rādhikā is the transformation of Kṛṣṇa's love. She is His internal energy called hlādinī.**
 
 ### CC Adi 4.60
-
-> হ্লাদিনী করায় কৃষ্ণে আনন্দাস্বাদন ।
-> হ্লাদিনীর দ্বারা করে ভক্তের পোষণ ॥৬০॥
 
 > hlādinī karāya kṛṣṇe ānandāsvādana
 > hlādinīra dvārā kare bhaktera poṣaṇa
@@ -6032,9 +4774,6 @@ The potency of the Supreme Personality of Godhead that always enriches Him with 
 
 ### CC Adi 4.61
 
-> সচ্চিদানন্দ, পূর্ণ, কৃষ্ণের স্বরূপ ।
-> একই চিচ্ছক্তি তাঁর ধরে তিন রূপ ॥৬১॥
-
 > sac-cid-ānanda, pūrṇa, kṛṣṇera svarūpa
 > eka-i cic-chakti tāṅra dhare tina rūpa
 
@@ -6043,9 +4782,6 @@ The potency of the Supreme Personality of Godhead that always enriches Him with 
 **Lord Kṛṣṇa's body is eternal [sat], full of knowledge [cit] and full of bliss [ānanda]. His one spiritual energy manifests three forms.**
 
 ### CC Adi 4.62
-
-> আনন্দাংশে হ্লাদিনী, সদংশে সন্ধিনী ।
-> চিদংশে সম্বিৎ — যারে জ্ঞান করি’ মানি ॥৬২॥
 
 > ānandāṁśe hlādinī, sad-aṁśe sandhinī
 > cid-aṁśe samvit—yāre jñāna kari' māni
@@ -6082,9 +4818,6 @@ Each of the three divisions of the internal potency—the *sandhinī, samvit* an
 
 ### CC Adi 4.63
 
-> হ্লাদিনী সন্ধিনী সম্বিত্ত্বয্যেকা সর্বসংস্থিতৌ ।
-> হ্লাদতাপকরী মিশ্রা ত্বয়ি নো গুণবর্জিতে ॥৬৩॥
-
 > hlādinī sandhinī samvit
 > tvayy ekā sarva-saṁsthitau
 > hlāda-tāpa-karī miśrā
@@ -6098,9 +4831,6 @@ This text is from the *Viṣṇu Purāṇa* (1.12.69).
 
 ### CC Adi 4.64
 
-> সন্ধিনীর সার অংশ — ‘শুদ্ধসত্ত্ব’ নাম ।
-> ভগবানের সত্তা হয় যাহাতে বিশ্রাম ॥৬৪॥
-
 > sandhinīra sāra aṁśa—'śuddha-sattva' nāma
 > bhagavānera sattā haya yāhāte viśrāma
 
@@ -6109,9 +4839,6 @@ This text is from the *Viṣṇu Purāṇa* (1.12.69).
 **The essential portion of the sandhinī potency is śuddha-sattva. Lord Kṛṣṇa's existence rests upon it.**
 
 ### CC Adi 4.65
-
-> মাতা, পিতা, স্থান, গৃহ, শয্যাসন আর ।
-> এসব কৃষ্ণের শুদ্ধসত্ত্বের বিকার ॥৬৫॥
 
 > mātā, pitā, sthāna, gṛha, śayyāsana āra
 > e-saba kṛṣṇera śuddha-sattvera vikāra
@@ -6126,11 +4853,6 @@ Kṛṣṇa is always all-spiritual. Aside from the parents of the Personality o
 
 ### CC Adi 4.66
 
-> সত্ত্বং বিশুদ্ধং বসুদেবশব্দিতং
-> যদীয়তে তত্র পুমানপাবৃতঃ ।
-> সত্ত্বে চ তস্মিন্ ভগবান্ বাসুদেবো
-> হ্যধোক্ষজো মে মনসা বিধীয়তে ॥৬৬॥
-
 > sattvaṁ viśuddhaṁ vasudeva-śabditaṁ
 > yad īyate tatra pumān apāvṛtaḥ
 > sattve ca tasmin bhagavān vāsudevo
@@ -6144,9 +4866,6 @@ This text from *Śrīmad-Bhāgavatam* (4.3.23), spoken by Lord Śiva when he con
 
 ### CC Adi 4.67
 
-> কৃষ্ণে ভগবত্তা-জ্ঞান — সংবিতের সার ।
-> ব্রহ্মজ্ঞানাদিক সব তার পরিবার ॥৬৭॥
-
 > kṛṣṇe bhagavattā-jñāna—saṁvitera sāra
 > brahma-jñānādika saba tāra parivāra
 
@@ -6157,9 +4876,6 @@ This text from *Śrīmad-Bhāgavatam* (4.3.23), spoken by Lord Śiva when he con
 The activities of the *samvit-śakti* produce the effect of cognition. Both the Lord and the living entities are cognizant. Śrī Kṛṣṇa, as the Supreme Personality of Godhead, has full knowledge of everything everywhere, and therefore there are no hindrances to His cognition. He can have knowledge merely by glancing over an object, whereas innumerable impediments block the cognition of ordinary living beings. The cognition of the living beings has three divisions: direct knowledge, indirect knowledge and perverted knowledge. Sense perception of material objects by the mundane senses, such as the eye, ear, nose and hand, always produces definitely perverted knowledge. This illusion is a presentation of the material energy, which is influenced by the *samvit-śakti* in a perverted manner. Negative cognition of an object beyond the reach of sense perception is the way of indirect knowledge, which is not altogether imperfect but which produces only fragmentary knowledge in the form of impersonal spiritual realization and monism. But when the *samvit* factor of cognition is enlightened by the *hlādinī* potency of the same internal energy, they work together, and only thus can one attain knowledge of the Personality of Godhead. The *samvit-śakti* should be maintained in that state. Material knowledge and indirect spiritual knowledge are by-products of the *samvit-śakti.*
 
 ### CC Adi 4.68
-
-> হ্লাদিনীর সার ‘প্রেম’, প্রেমসার ‘ভাব’ ।
-> ভাবের পরমকাষ্ঠা, নাম — ‘মহাভাব’ ॥৬৮॥
 
 > hlādinīra sāra 'prema', prema-sāra 'bhāva'
 > bhāvera parama-kāṣṭhā, nāma—'mahā-bhāva'
@@ -6172,9 +4888,6 @@ The product of the *hlādinī-śakti* is love of Godhead, which has two division
 
 ### CC Adi 4.69
 
-> মহাভাবস্বরূপা শ্রীরাধা-ঠাকুরাণী ।
-> সর্বগুণখনি কৃষ্ণকান্তাশিরোমণি ॥৬৯॥
-
 > mahābhāva-svarūpā śrī-rādhā-ṭhākurāṇī
 > sarva-guṇa-khani kṛṣṇa-kāntā-śiromaṇi
 
@@ -6185,9 +4898,6 @@ The product of the *hlādinī-śakti* is love of Godhead, which has two division
 The unadulterated action of the *hlādinī-śakti* is displayed in the dealings of the damsels of Vraja and Śrīmatī Rādhārāṇī, who is the topmost participant in that transcendental group. The essence of the *hlādinī-śakti* is love of Godhead, the essence of love of Godhead is *bhāva,* or transcendental sentiment, and the highest pitch of that *bhāva* is called *mahābhāva.* Śrīmatī Rādhārāṇī is the personified embodiment of these three aspects of transcendental consciousness. She is therefore the highest principle in love of Godhead and is the supreme lovable object of Śrī Kṛṣṇa.
 
 ### CC Adi 4.70
-
-> তয়োরপ্যুভয়োর্মধ্যে রাধিকা সর্বথাধিকা ।
-> মহাভাবস্বরূপেয়ং গুণৈরতিবরীয়সী ॥৭০॥
 
 > tayor apy ubhayor madhye
 > rādhikā sarvathādhikā
@@ -6202,9 +4912,6 @@ This text is verse 2 of the *Ujjvala-nīlamaṇi* of Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 4.71
 
-> কৃষ্ণপ্রেম-ভাবিত যাঁর চিত্তেন্দ্রিয়-কায় ।
-> কৃষ্ণ-নিজশক্তি রাধা ক্রীড়ার সহায় ॥৭১॥
-
 > kṛṣṇa-prema-bhāvita yāṅra cittendriya-kāya
 > kṛṣṇa-nija-śakti rādhā krīḍāra sahāya
 
@@ -6217,11 +4924,6 @@ This text is verse 2 of the *Ujjvala-nīlamaṇi* of Śrīla Rūpa Gosvāmī.
 Śrī Kṛṣṇa cannot enjoy anything that is internally different from Him. Therefore Rādhā and Śrī Kṛṣṇa are identical. The *sandhinī* portion of Śrī Kṛṣṇa's internal potency has manifested the all-attractive form of Śrī Kṛṣṇa, and the same internal potency, in the *hlādinī* feature, has presented Śrīmatī Rādhārāṇī, who is the attraction for the all-attractive. No one can match Śrīmatī Rādhārāṇī in the transcendental pastimes of Śrī Kṛṣṇa.
 
 ### CC Adi 4.72
-
-> আনন্দচিন্ময়রসপ্রতিভাবিতাভি-
-> স্তাভির্য এব নিজরূপতয়া কলাভিঃ ।
-> গোলোক এব নিবসত্যখিলাত্মভূতো
-> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥৭২॥
 
 > ānanda-cinmaya-rasa-pratibhāvitābhis
 > tābhir ya eva nija-rūpatayā kalābhiḥ
@@ -6236,9 +4938,6 @@ This text is from the *Brahma-saṁhitā* (5.37).
 
 ### CC Adi 4.73
 
-> কৃষ্ণেরে করায় যৈছে রস আস্বাদন ।
-> ক্রীড়ার সহায় যৈছে, শুন বিবরণ ॥৭৩॥
-
 > kṛṣṇere karāya yaiche rasa āsvādana
 > krīḍāra sahāya yaiche, śuna vivaraṇa
 
@@ -6247,11 +4946,6 @@ This text is from the *Brahma-saṁhitā* (5.37).
 **Now please listen to how Lord Kṛṣṇa's consorts help Him taste rasa and how they help in His pastimes.**
 
 ### CC Adi 4.74-75
-
-> কৃষ্ণকান্তাগণ দেখি ত্রিবিধ প্রকার ।
-> এক লক্ষ্মীগণ, পুরে মহিষীগণ আর ॥৭৪॥
-> ব্রজাঙ্গনা-রূপ, আর কান্তাগণ-সার ।
-> শ্রীরাধিকা হৈতে কান্তাগণের বিস্তার ॥৭৫॥
 
 > kṛṣṇa-kāntā-gaṇa dekhi tri-vidha prakāra
 > eka lakṣmī-gaṇa, pure mahiṣī-gaṇa āra
@@ -6265,9 +4959,6 @@ This text is from the *Brahma-saṁhitā* (5.37).
 
 ### CC Adi 4.76
 
-> অবতারী কৃষ্ণ যৈছে করে অবতার ।
-> অংশিনী রাধা হৈতে তিন গণের বিস্তার ॥৭৬॥
-
 > avatārī kṛṣṇa yaiche kare avatāra
 > aṁśinī rādhā haite tina gaṇera vistāra
 
@@ -6276,9 +4967,6 @@ This text is from the *Brahma-saṁhitā* (5.37).
 **Just as the fountainhead, Lord Kṛṣṇa, is the cause of all incarnations, so Śrī Rādhā is the cause of all these consorts.**
 
 ### CC Adi 4.77
-
-> বৈভবগণ যেন তাঁর অঙ্গ-বিভূতি ।
-> বিম্ব-প্রতিবিম্ব-রূপ মহিষীর ততি ॥৭৭॥
 
 > vaibhava-gaṇa yena tāṅra aṅga-vibhūti
 > bimba-pratibimba-rūpa mahiṣīra tati
@@ -6289,9 +4977,6 @@ This text is from the *Brahma-saṁhitā* (5.37).
 
 ### CC Adi 4.78
 
-> লক্ষ্মীগণ তাঁর বৈভব-বিলাসাংশরূপ ।
-> মহিষীগণ বৈভব-প্রকাশস্বরূপ ॥৭৮॥
-
 > laksmī-gaṇa tāṅra vaibhava-vilāsāṁśa-rūpa
 > mahiṣī-gaṇa vaibhava-prakāśa-svarūpa
 
@@ -6300,9 +4985,6 @@ This text is from the *Brahma-saṁhitā* (5.37).
 **The goddesses of fortune are Her plenary portions, and they display the forms of vaibhava-vilāsa. The queens are of the nature of Her vaibhava-prakāśa.**
 
 ### CC Adi 4.79
-
-> আকার স্বভাব-ভেদে ব্রজদেবীগণ ।
-> কায়ব্যূহরূপ তাঁর রসের কারণ ॥৭৯॥
 
 > ākāra svabhāva-bhede vraja-devī-gaṇa
 > kāya-vyūha-rūpa tāṅra rasera kāraṇa
@@ -6313,9 +4995,6 @@ This text is from the *Brahma-saṁhitā* (5.37).
 
 ### CC Adi 4.80
 
-> বহু কান্তা বিনা নহে রসের উল্লাস ।
-> লীলার সহায় লাগি’ বহুত প্রকাশ ॥৮০॥
-
 > bahu kāntā vinā nahe rasera ullāsa
 > līlāra sahāya lāgi' bahuta prakāśa
 
@@ -6324,9 +5003,6 @@ This text is from the *Brahma-saṁhitā* (5.37).
 **Without many consorts, there is not such exultation in rasa. Therefore there are many manifestations of Śrīmatī Rādhārāṇī to assist in the Lord's pastimes.**
 
 ### CC Adi 4.81
-
-> তার মধ্যে ব্রজে নানা ভাব-রস-ভেদে ।
-> কৃষ্ণকে করায় রাসাদিক-লীলাস্বাদে ॥৮১॥
 
 > tāra madhye vraje nānā bhāva-rasa-bhede
 > kṛṣṇake karāya rāsādika-līlāsvāde
@@ -6341,9 +5017,6 @@ The plenary expansions of Kṛṣṇa's personality are called *vaibhava-vilāsa
 
 ### CC Adi 4.82
 
-> গোবিন্দানন্দিনী, রাধা, গোবিন্দমোহিনী ।
-> গোবিন্দসর্বস্ব, সর্বকান্তা-শিরোমণি ॥৮২॥
-
 > govindānandinī rādhā, govinda-mohinī
 > govinda-sarvasva, sarva-kāntā-śiromaṇi
 
@@ -6352,9 +5025,6 @@ The plenary expansions of Kṛṣṇa's personality are called *vaibhava-vilāsa
 **Rādhā is the one who gives pleasure to Govinda, and She is also the enchantress of Govinda. She is the be-all and end-all of Govinda, and the crest jewel of all His consorts.**
 
 ### CC Adi 4.83
-
-> দেবী কৃষ্ণময়ী প্রোক্তা রাধিকা পরদেবতা ।
-> সর্বলক্ষ্মীময়ী সর্বকান্তিঃ সম্মোহিনী পরা ॥৮৩॥
 
 > devī kṛṣṇa-mayī proktā
 > rādhikā para-devatā
@@ -6369,9 +5039,6 @@ This text is from the *Bṛhad-gautamīya-tantra.*
 
 ### CC Adi 4.84
 
-> ‘দেবী’ কহি দ্যোতমানা, পরমা সুন্দরী ।
-> কিম্বা, কৃষ্ণপূজা-ক্রীড়ার বসতি নগরী ॥৮৪॥
-
 > 'devī' kahi dyotamānā, paramā sundarī
 > kimvā, kṛṣṇa-pūjā-krīḍāra vasati nagarī
 
@@ -6381,9 +5048,6 @@ This text is from the *Bṛhad-gautamīya-tantra.*
 
 ### CC Adi 4.85
 
-> কৃষ্ণময়ী — কৃষ্ণ যার ভিতরে বাহিরে ।
-> যাঁহা যাঁহা নেত্র পড়ে তাঁহা কৃষ্ণ স্ফুরে ॥৮৫॥
-
 > kṛṣṇa-mayī—kṛṣṇa yāra bhitare bāhire
 > yāṅhā yāṅhā netra paḍe tāṅhā kṛṣṇa sphure
 
@@ -6392,9 +5056,6 @@ This text is from the *Bṛhad-gautamīya-tantra.*
 **"Kṛṣṇa-mayī" means "one whose within and without are Lord Kṛṣṇa." She sees Lord Kṛṣṇa wherever She casts Her glance.**
 
 ### CC Adi 4.86
-
-> কিম্বা, প্রেমরসময় কৃষ্ণের স্বরূপ ।
-> তাঁর শক্তি তাঁর সহ হয় একরূপ ॥৮৬॥
 
 > kimvā, prema-rasa-maya kṛṣṇera svarūpa
 > tāṅra śakti tāṅra saha haya eka-rūpa
@@ -6407,9 +5068,6 @@ This text is from the *Bṛhad-gautamīya-tantra.*
 
 ### CC Adi 4.87
 
-> কৃষ্ণবাঞ্ছা-পূর্তিরূপ করে আরাধনে ।
-> অতএব ‘রাধিকা’ নাম পুরাণে বাখানে ॥৮৭॥
-
 > kṛṣṇa-vāñchā-pūrti-rūpa kare ārādhane
 > ataeva 'rādhikā' nāma purāṇe vākhāne
 
@@ -6420,9 +5078,6 @@ This text is from the *Bṛhad-gautamīya-tantra.*
 The name Rādhā is derived from the root word *ārādhana,* which means "worship." The personality who excels all in worshiping Kṛṣṇa may therefore be called Rādhikā, the greatest servitor.
 
 ### CC Adi 4.88
-
-> অনয়ারাধিতো নূনং ভগবান্ হরিরীশ্বরঃ ।
-> যন্নো বিহায় গোবিন্দঃ প্রীতো যামনয়দ্রহঃ ॥৮৮॥
 
 > anayārādhito nūnaṁ
 > bhagavān harir īśvaraḥ
@@ -6437,9 +5092,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 
 ### CC Adi 4.89
 
-> অতএব সর্বপূজ্যা, পরম-দেবতা ।
-> সর্বপালিকা, সর্ব-জগতের মাতা ॥৮৯॥
-
 > ataeva sarva-pūjyā, parama-devatā
 > sarva-pālikā, sarva jagatera mātā
 
@@ -6448,9 +5100,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 **Therefore Rādhā is parama-devatā, the supreme goddess, and She is worshipable for everyone. She is the protectress of all, and She is the mother of the entire universe.**
 
 ### CC Adi 4.90
-
-> ‘সর্বলক্ষ্মী’-শব্দ পূর্বে করিয়াছি ব্যাখ্যান ।
-> সর্বলক্ষ্মীগণের তিহোঁ হন অধিষ্ঠান ॥৯০॥
 
 > 'sarva-lakṣmī'-śabda pūrve kariyāchi vyākhyāna
 > sarva-lakṣmī-gaṇera tiṅho hana adhiṣṭhāna
@@ -6461,9 +5110,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 
 ### CC Adi 4.91
 
-> কিম্বা, ‘সর্বলক্ষ্মী’ — কৃষ্ণের ষড়্বিধ ঐশ্বর্য ।
-> তাঁর অধিষ্ঠাত্রী শক্তি — সর্বশক্তিবর্য ॥৯১॥
-
 > kimvā, 'sarva-lakṣmī'—kṛṣṇera ṣaḍ-vidha aiśvarya
 > tāṅra adhiṣṭhātrī śakti—sarva-śakti-varya
 
@@ -6472,9 +5118,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 **Or "sarva-lakṣmī" indicates that She fully represents the six opulences of Kṛṣṇa. Therefore She is the supreme energy of Lord Kṛṣṇa.**
 
 ### CC Adi 4.92
-
-> সর্ব-সৌন্দর্য-কান্তি বৈসয়ে যাঁহাতে ।
-> সর্বলক্ষ্মীগণের শোভা হয় যাঁহা হৈতে ॥৯২॥
 
 > sarva-saundarya-kānti vaisaye yāṅhāte
 > sarva-lakṣmī-gaṇera śobhā haya yāṅhā haite
@@ -6485,9 +5128,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 
 ### CC Adi 4.93
 
-> কিংবা ‘কান্তি’-শব্দে কৃষ্ণের সব ইচ্ছা কহে ।
-> কৃষ্ণের সকল বাঞ্ছা রাধাতেই রহে ॥৯৩॥
-
 > kimvā 'kānti'-śabde kṛṣṇera saba icchā kahe
 > kṛṣṇera sakala vāñchā rādhātei rahe
 
@@ -6496,9 +5136,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 **"Kānti" may also mean "all the desires of Lord Kṛṣṇa." All the desires of Lord Kṛṣṇa rest in Śrīmatī Rādhārāṇī.**
 
 ### CC Adi 4.94
-
-> রাধিকা করেন কৃষ্ণের বাঞ্ছিত পূরণ ।
-> ‘সর্বকান্তি’-শব্দের এই অর্থ বিবরণ ॥৯৪॥
 
 > rādhikā karena kṛṣṇera vāñchita pūraṇa
 > 'sarva-kānti'-śabdera ei artha vivaraṇa
@@ -6509,9 +5146,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 
 ### CC Adi 4.95
 
-> জগৎমোহন কৃষ্ণ, তাঁহার মোহিনী ।
-> অতএব সমস্তের পরা ঠাকুরাণী ॥৯৫॥
-
 > jagat-mohana kṛṣṇa, tāṅhāra mohinī
 > ataeva samastera parā ṭhākurāṇī
 
@@ -6520,9 +5154,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 **Lord Kṛṣṇa enchants the world, but Śrī Rādhā enchants even Him. Therefore She is the supreme goddess of all.**
 
 ### CC Adi 4.96
-
-> রাধা — পূর্ণশক্তি, কৃষ্ণ — পূর্ণশক্তিমান্ ।
-> দুই বস্তু ভেদ নাই, শাস্ত্র-পরমাণ ॥৯৬॥
 
 > rādhā—pūrṇa-śakti, kṛṣṇa—pūrṇa-śaktimān
 > dui vastu bheda nāi, śāstra-paramāṇa
@@ -6533,9 +5164,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 
 ### CC Adi 4.97
 
-> মৃগমদ, তার গন্ধ — যৈছে অবিচ্ছেদ ।
-> অগ্নি, জ্বালাতে — যৈছে কভু নাহি ভেদ ॥৯৭॥
-
 > mṛgamada, tāra gandha—yaiche aviccheda
 > agni, jvālāte—yaiche kabhu nāhi bheda
 
@@ -6545,9 +5173,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 
 ### CC Adi 4.98
 
-> রাধাকৃষ্ণ ঐছে সদা একই স্বরূপ ।
-> লীলারস আস্বাদিতে ধরে দুইরূপ ॥৯৮॥
-
 > rādhā-kṛṣṇa aiche sadā eka-i svarūpa
 > līlā-rasa āsvādite dhare dui-rūpa
 
@@ -6556,11 +5181,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 **Thus Rādhā and Lord Kṛṣṇa are one, yet They have taken two forms to enjoy the mellows of pastimes.**
 
 ### CC Adi 4.99-100
-
-> প্রেমভক্তি শিখাইতে আপনে অবতরি ।
-> রাধা-ভাব-কান্তি দুই অঙ্গীকার করি’ ॥৯৯॥
-> শ্রীকৃষ্ণচৈতন্যরূপে কৈল অবতার ।
-> এই ত’ পঞ্চম শ্লোকের অর্থ পরচার ॥১০০॥
 
 > prema-bhakti śikhāite āpane avatari
 > rādhā-bhāva-kānti dui aṅgīkāra kari'
@@ -6574,9 +5194,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 
 ### CC Adi 4.101
 
-> ষষ্ঠ শ্লোকের অর্থ করিতে প্রকাশ ।
-> প্রথমে কহিয়ে সেই শ্লোকের আভাস ॥১০১॥
-
 > ṣaṣṭha ślokera artha karite prakāśa
 > prathame kahiye sei ślokera ābhāsa
 
@@ -6585,9 +5202,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 **To explain the sixth verse, I shall first give a hint of its meaning.**
 
 ### CC Adi 4.102
-
-> অবতরি’ প্রভু প্রচারিল সংকীর্তন ।
-> এহো বাহ্য হেতু, পূর্বে করিয়াছি সূচন ॥১০২॥
 
 > avatari' prabhu pracārila saṅkīrtana
 > eho bāhya hetu, pūrve kariyāchi sūcana
@@ -6598,9 +5212,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 
 ### CC Adi 4.103
 
-> অবতারের আর এক আছে মুখ্যবীজ ।
-> রসিকশেখর কৃষ্ণের সেই কার্য নিজ ॥১০৩॥
-
 > avatārera āra eka āche mukhya-bīja
 > rasika-śekhara kṛṣṇera sei kārya nija
 
@@ -6610,9 +5221,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 
 ### CC Adi 4.104
 
-> অতি গূঢ় হেতু সেই ত্রিবিধ প্রকার ।
-> দামোদরস্বরূপ হৈতে যাহার প্রচার ॥১০৪॥
-
 > ati gūḍha hetu sei tri-vidha prakāra
 > dāmodara-svarūpa haite yāhāra pracāra
 
@@ -6621,9 +5229,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.30.28).
 **That most confidential cause is threefold. Svarūpa Dāmodara has revealed it.**
 
 ### CC Adi 4.105
-
-> স্বরূপ-গোসাঞি — প্রভুর অতি অন্তরঙ্গ ।
-> তাহাতে জানেন প্রভুর এসব প্রসঙ্গ ॥১০৫॥
 
 > svarūpa-gosāñi—prabhura ati antaraṅga
 > tāhāte jānena prabhura e-saba prasaṅga
@@ -6637,9 +5242,6 @@ Prior to the Lord's acceptance of the renounced order, Puruṣottama Bhaṭṭā
 Svarūpa Dāmodara has been identified as Lalitā-devī, the second expansion of Rādhārāṇī. However, the authoritative *Gaura-gaṇoddeśa-dīpikā* of Kavi-karṇapūra describes Svarūpa Dāmodara as the same Viśākhā-devī who serves the Lord in Goloka Vṛndāvana. Therefore it is to be understood that Śrī Svarūpa Dāmodara is a direct expansion of Rādhārāṇī who helps the Lord experience the attitude of Rādhārāṇī.
 
 ### CC Adi 4.106
-
-> রাধিকার ভাব-মূর্তি প্রভুর অন্তর ।
-> সেই ভাবে সুখ-দুঃখ উঠে নিরন্তর ॥১০৬॥
 
 > rādhikāra bhāva-mūrti prabhura antara
 > sei bhāve sukha-duḥkha uṭhe nirantara
@@ -6656,9 +5258,6 @@ From the life of Śrī Caitanya Mahāprabhu, an intelligent person engaged in pu
 
 ### CC Adi 4.107
 
-> শেষলীলায় প্রভুর কৃষ্ণবিরহ-উন্মাদ ।
-> ভ্রমময় চেষ্টা, আর প্রলাপময় বাদ ॥১০৭॥
-
 > śeṣa-līlāya prabhura kṛṣṇa-viraha-unmāda
 > bhrama-maya ceṣṭā, āra pralāpa-maya vāda
 
@@ -6669,9 +5268,6 @@ From the life of Śrī Caitanya Mahāprabhu, an intelligent person engaged in pu
 Lord Śrī Caitanya exhibited the highest stage of the feelings of a devotee in separation from the Lord. This exhibition was sublime because He was completely perfect in the feelings of separation. Materialists, however, cannot understand this. Sometimes materialistic scholars think He was diseased or crazy. Their problem is that they always engage in material sense gratification and can never understand the feelings of the devotees and the Lord. Materialists are most abominable in their ideas. They think that they can enjoy directly perceivable gross objects by their senses and that they can similarly deal with the transcendental features of Lord Caitanya. But the Lord is understood only in pursuance of the principles laid down by the Gosvāmīs, headed by Svarūpa Dāmodara. Doctrines like those of the *nadīyā-nāgarīs,* a class of so-called devotees, are never presented by authorized persons like Svarūpa Dāmodara or the six Gosvāmīs. The ideas of the *gaurāṅga-nāgarīs* are simply a mental concoction, and they are completely on the mental platform.
 
 ### CC Adi 4.108
-
-> রাধিকার ভাব যৈছে উদ্ধবদর্শনে ।
-> সেই ভাবে মত্ত প্রভু রহে রাত্রিদিনে ॥১০৮॥
 
 > rādhikāra bhāva yaiche uddhava-darśane
 > sei bhāve matta prabhu rahe rātri-dine
@@ -6686,9 +5282,6 @@ So-called devotees like the *sahajiyās* cheaply imagine they are meeting Kṛ�
 
 ### CC Adi 4.109
 
-> রাত্রে প্রলাপ করে স্বরূপের কণ্ঠ ধরি’ ।
-> আবেশে আপন ভাব কহয়ে উঘাড়ি’ ॥১০৯॥
-
 > rātre pralāpa kare svarūpera kaṇṭha dhari'
 > āveśe āpana bhāva kahaye ughāḍi'
 
@@ -6697,9 +5290,6 @@ So-called devotees like the *sahajiyās* cheaply imagine they are meeting Kṛ�
 **At night He talked incoherently in grief with His arms around Svarūpa Dāmodara's neck. He spoke out His heart in ecstatic inspiration.**
 
 ### CC Adi 4.110
-
-> যবে যেই ভাব উঠে প্রভুর অন্তর ।
-> সেই গীতি-শ্লোকে সুখ দেন দামোদর ॥১১০॥
 
 > yabe yei bhāva uṭhe prabhura antara
 > sei gīti-śloke sukha dena dāmodara
@@ -6710,9 +5300,6 @@ So-called devotees like the *sahajiyās* cheaply imagine they are meeting Kṛ�
 
 ### CC Adi 4.111
 
-> এবে কার্য নাহি কিছু এসব বিচারে ।
-> আগে ইহা বিবরিব করিয়া বিস্তারে ॥১১১॥
-
 > ebe kārya nāhi kichu e-saba vicāre
 > āge ihā vivariba kariyā vistāre
 
@@ -6721,9 +5308,6 @@ So-called devotees like the *sahajiyās* cheaply imagine they are meeting Kṛ�
 **To analyze these pastimes is not necessary now. Later I shall describe them in detail.**
 
 ### CC Adi 4.112
-
-> পূর্বে ব্রজে কৃষ্ণের ত্রিবিধ বয়োধর্ম ।
-> কৌমার, পৌগণ্ড, আর কৈশোর অতিমর্ম ॥১১২॥
 
 > pūrve vraje kṛṣṇera tri-vidha vayo-dharma
 > kaumāra, paugaṇḍa, āra kaiśora atimarma
@@ -6734,9 +5318,6 @@ So-called devotees like the *sahajiyās* cheaply imagine they are meeting Kṛ�
 
 ### CC Adi 4.113
 
-> বাৎসল্য-আবেশে কৈল কৌমার সফল ।
-> পৌগণ্ড সফল কৈল লঞা সখাবল ॥১১৩॥
-
 > vātsalya-āveśe kaila kaumqāra saphala
 > paugaṇḍa saphala kaila lañā sakhāvala
 
@@ -6745,9 +5326,6 @@ So-called devotees like the *sahajiyās* cheaply imagine they are meeting Kṛ�
 **Parental affection made His childhood fruitful. His boyhood was successful with His friends.**
 
 ### CC Adi 4.114
-
-> রাধিকাদি লঞা কৈল রাসাদি-বিলাস ।
-> বাঞ্ছা ভরি’ আস্বাদিল রসের নির্যাস ॥১১৪॥
 
 > rādhikādi lañā kaila rāsādi-vilāsa
 > vāñchā bhari' āsvādila rasera niryāsa
@@ -6758,9 +5336,6 @@ So-called devotees like the *sahajiyās* cheaply imagine they are meeting Kṛ�
 
 ### CC Adi 4.115
 
-> কৈশোর-বয়সে কাম, জগৎসকল ।
-> রাসাদি-লীলায় তিন করিল সফল ॥১১৫॥
-
 > kaiśora-vayase kāma, jagat-sakala
 > rāsādi-līlāya tina karila saphala
 
@@ -6769,9 +5344,6 @@ So-called devotees like the *sahajiyās* cheaply imagine they are meeting Kṛ�
 **In His youth Lord Kṛṣṇa made all three of His ages, and the entire universe, successful by His pastimes of amorous love like the rāsa dance.**
 
 ### CC Adi 4.116
-
-> সোঽপি কৈশোরক-বয়ো মানয়ন্মধুসূদনঃ ।
-> রেমে স্ত্রীরত্নকূটস্থঃ ক্ষপাসু ক্ষপিতাহিতঃ ॥১১৬॥
 
 > so 'pi kaiśoraka-vayo
 > mānayan madhusūdanaḥ
@@ -6786,11 +5358,6 @@ This is a verse from the *Viṣṇu Purāṇa* (5.13.60).
 
 ### CC Adi 4.117
 
-> বাচা সূচিতশর্বরীরতিকলাপ্রাগল্ভ্যয়া রাধিকাং
-> ব্রীড়াকুঞ্চিতলোচনাং বিরচয়ন্নগ্রে সখীনামসৌ ।
-> তদ্বক্ষোরুহচিত্রকেলিমকরীপাণ্ডিত্যপারং গতঃ
-> কৈশোরং সফলীকরোতি কলয়ন্ কুঞ্জে বিহারং হরিঃ ॥১১৭॥
-
 > vācā sūcita-śarvarī-rati-kalā-prāgalbhyayā rādhikāṁ
 > vrīḍā-kuñcita-locanāṁ viracayann agre sakhīnām asau
 > tad-vakṣo-ruha-citra-keli-makarī-pāṇḍitya-pāraṁ gataḥ
@@ -6803,13 +5370,6 @@ This is a verse from the *Viṣṇu Purāṇa* (5.13.60).
 This is a verse from the *Bhakti-rasāmṛta-sindhu* (2.1.231) of Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 4.118
-
-> হরিরেষ ন চেদবাতরিস্যন্মথুরায়াং মধুরাক্ষি রাধিকা চ ।
-> অভবিষ্যদিয়ং বৃথা বিসৃষ্টি-র্মকরাঙ্কস্তু বিশেষতস্তদাত্র
-> এই মত পূর্বে কৃষ্ণ রসের সদন ।
-> যদ্যপি করিল রস-নির্যাস-চর্বণ
-> তথাপি নহিল তিন বাঞ্ছিত পূরণ ।
-> তাহা আস্বাদিতে যদি করিল যতন ॥১১৮॥
 
 > harir eṣa na ced avātariṣyan
 > mathurāyāṁ madhurākṣi rādhikā ca
@@ -6824,11 +5384,6 @@ This verse is spoken by Śrī Vṛndā-devī in the *Vidagdha-mādhava* (7.3) of
 
 ### CC Adi 4.119-120
 
-> এই মত পূর্বে কৃষ্ণ রসের সদন ।
-> যদ্যপি করিল রস-নির্যাস-চর্বণ ॥১১৯॥
-> তথাপি নহিল তিন বাঞ্ছিত পূরণ ।
-> তাহা আস্বাদিতে যদি করিল যতন ॥১২০॥
-
 > ei mata pūrve kṛṣṇa rasera sadana
 > yadyapi karila rasa-niryāsa-carvaṇa
 
@@ -6841,9 +5396,6 @@ This verse is spoken by Śrī Vṛndā-devī in the *Vidagdha-mādhava* (7.3) of
 
 ### CC Adi 4.121
 
-> তাঁহার প্রথম বাঞ্ছা করিয়ে ব্যাখ্যান ।
-> কৃষ্ণ কহে, — ‘আমি হই রসের নিদান ॥১২১॥
-
 > tāṅhāra prathama vāñchā kariye vyākhyāna
 > kṛṣṇa kahe,—'āmi ha-i rasera nidāna
 
@@ -6852,9 +5404,6 @@ This verse is spoken by Śrī Vṛndā-devī in the *Vidagdha-mādhava* (7.3) of
 **I shall explain His first desire. Kṛṣṇa says, "I am the primary cause of all rasas.**
 
 ### CC Adi 4.122
-
-> পূর্ণানন্দময় আমি চিন্ময় পূর্ণতত্ত্ব ।
-> রাধিকার প্রেমে আমা করায় উন্মত্ত ॥১২২॥
 
 > pūrṇānanda-maya āmi cin-maya pūrṇa-tattva
 > rādhikāra preme āmā karāya unmatta
@@ -6865,9 +5414,6 @@ This verse is spoken by Śrī Vṛndā-devī in the *Vidagdha-mādhava* (7.3) of
 
 ### CC Adi 4.123
 
-> না জানি রাধার প্রেমে আছে কত বল ।
-> যে বলে আমারে করে সর্বদা বিহ্বল ॥১২৩॥
-
 > nā jāni rādhāra preme āche kata bala
 > ye bale āmāre kare sarvadā vihvala
 
@@ -6877,9 +5423,6 @@ This verse is spoken by Śrī Vṛndā-devī in the *Vidagdha-mādhava* (7.3) of
 
 ### CC Adi 4.124
 
-> রাধিকার প্রেম — গুরু, আমি — শিষ্য নট ।
-> সদা আমা নানা নৃত্যে নাচায় উদ্ভট ॥১২৪॥
-
 > rādhikāra prema—guru, āmi—śiṣya naṭa
 > sadā āmā nānā nṛtye nācāya udbhaṭa
 
@@ -6888,11 +5431,6 @@ This verse is spoken by Śrī Vṛndā-devī in the *Vidagdha-mādhava* (7.3) of
 **"The love of Rādhikā is My teacher, and I am Her dancing pupil. Her prema makes Me dance various novel dances."**
 
 ### CC Adi 4.125
-
-> কস্মাদ্বৃন্দে প্রিয়সখি হরেঃ পাদমূলাৎ কুতোঽসৌ
-> কুণ্ডারণ্যে কিমিহ কুরুতে নৃত্যশিক্ষাং গুরুঃ কঃ ।
-> তং ত্বন্মূর্তিঃ প্রতিতরুলতং দিগ্বিদিক্ষু স্ফুরন্তী
-> শৈলূষীব ভ্রমতি পরিতো নর্তয়ন্তী স্ব-পশ্চাৎ ॥১২৫॥
 
 > kasmād vṛnde priya-sakhi hareḥ pāda-mūlāt kuto 'sau
 > kuṇḍāraṇye kim iha kurute nṛtya-śikṣāṁ guruḥ kaḥ
@@ -6914,9 +5452,6 @@ This text is from the *Govinda-līlāmṛta* (8.77) of Kṛṣṇadāsa Kavirāj
 
 ### CC Adi 4.126
 
-> নিজ-প্রেমাস্বাদে মোর হয় যে আহ্লাদ ।
-> তাহা হ’তে কোটিগুণ রাধা-প্রেমাস্বাদ ॥১২৬॥
-
 > nija-premāsvāde mora haya ye āhlāda
 > tāhā ha'te koṭi-guṇa rādhā-premāsvāda
 
@@ -6925,9 +5460,6 @@ This text is from the *Govinda-līlāmṛta* (8.77) of Kṛṣṇadāsa Kavirāj
 **"Whatever pleasure I get from tasting My love for Śrīmatī Rādhārāṇī, She tastes ten million times more than Me by Her love.**
 
 ### CC Adi 4.127
-
-> আমি যৈছে পরস্পর বিরুদ্ধধর্মাশ্রয় ।
-> রাধাপ্রেম তৈছে সদা বিরুদ্ধধর্মময় ॥১২৭॥
 
 > āmi yaiche paraspara viruddha-dharmāśraya
 > rādhā-prema taiche sadā viruddha-dharma-maya
@@ -6938,9 +5470,6 @@ This text is from the *Govinda-līlāmṛta* (8.77) of Kṛṣṇadāsa Kavirāj
 
 ### CC Adi 4.128
 
-> রাধা-প্রেমা বিভু — যার বাড়িতে নাহি ঠাঞি ।
-> তথাপি সে ক্ষণে ক্ষণে বাড়য়ে সদাই ॥১২৮॥
-
 > rādhā-premā vibhu—yāra bāḍite nāhi ṭhāñi
 > tathāpi se kṣaṇe kṣaṇe bāḍaye sadāi
 
@@ -6949,9 +5478,6 @@ This text is from the *Govinda-līlāmṛta* (8.77) of Kṛṣṇadāsa Kavirāj
 **"Rādhā's love is all-pervading, leaving no room for expansion. But still it is expanding constantly.**
 
 ### CC Adi 4.129
-
-> যাহা বই গুরু বস্তু নাহি সুনিশ্চিত ।
-> তথাপি গুরুর ধর্ম গৌরব-বর্জিত ॥১২৯॥
 
 > yāhā va-i guru vastu nāhi suniścita
 > tathāpi gurura dharma gaurava-varjita
@@ -6962,9 +5488,6 @@ This text is from the *Govinda-līlāmṛta* (8.77) of Kṛṣṇadāsa Kavirāj
 
 ### CC Adi 4.130
 
-> যাহা হৈতে সুনির্মল দ্বিতীয় নাহি আর ।
-> তথাপি সর্বদা বাম্য-বক্র-ব্যবহার ॥১৩০॥
-
 > yāhā haite sunirmala dvitīya nāhi āra
 > tathāpi sarvadā vāmya-vakra-vyavahāra
 
@@ -6973,11 +5496,6 @@ This text is from the *Govinda-līlāmṛta* (8.77) of Kṛṣṇadāsa Kavirāj
 **"Nothing is purer than Her love. But its behavior is always perverse and crooked."**
 
 ### CC Adi 4.131
-
-> বিভুরপি কলয়ন্ সদাভিবৃদ্ধিং
-> গুরুরপি গৌরবচর্যয়া বিহীনঃ ।
-> মুহুরুপচিতবক্রিমাপি শুদ্ধো
-> জয়তি মুরদ্বিষি রাধিকানুরাগঃ ॥১৩১॥
 
 > vibhur api kalayan sadābhivṛddhiṁ
 > gurur api gaurava-caryayā vihīnaḥ
@@ -6992,9 +5510,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 4.132
 
-> সেই প্রেমার শ্রীরাধিকা পরম ‘আশ্রয়’ ।
-> সেই প্রেমার আমি হই কেবল ‘বিষয়’ ॥১৩২॥
-
 > sei premāra śrī-rādhikā parama 'āśraya'
 > sei premāra āmi ha-i kevala 'viṣaya'
 
@@ -7003,9 +5518,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 **"Śrī Rādhikā is the highest abode of that love, and I am its only object.**
 
 ### CC Adi 4.133
-
-> বিষয়জাতীয় সুখ আমার আস্বাদ ।
-> আমা হৈতে কোটিগুণ আশ্রয়ের আহ্লাদ ॥১৩৩॥
 
 > viṣaya-jātīya sukha āmāra āsvāda
 > āmā haite koṭi-guṇa āśrayera āhlāda
@@ -7016,9 +5528,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 4.134
 
-> আশ্রয়জাতীয় সুখ পাইতে মন ধায় ।
-> যত্নে আস্বাদিতে নারি, কি করি উপায় ॥১৩৪॥
-
 > āśraya-jātiya sukha pāite mana dhāya
 > yatne āsvādite nāri, ki kari upāya
 
@@ -7027,9 +5536,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 **"My mind races to taste the pleasure experienced by the abode, but I cannot taste it, even by My best efforts. How may I taste it?**
 
 ### CC Adi 4.135
-
-> কভু যদি এই প্রেমার হইয়ে আশ্রয় ।
-> তবে এই প্রেমানন্দের অনুভব হয় ॥১৩৫॥
 
 > kabhu yadi ei premāra ha-iye āśraya
 > tabe ei premānandera anubhava haya
@@ -7042,9 +5548,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 4.136
 
-> এত চিন্তি’ রহে কৃষ্ণ পরমকৌতুকী ।
-> হৃদয়ে বাড়য়ে প্রেম-লোভ ধক্ধকি ॥১৩৬॥
-
 > eta cinti' rahe kṛṣṇa parama-kautukī
 > hṛdaye bāḍaye prema-lobha dhakdhaki
 
@@ -7053,9 +5556,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 **Thinking in this way, Lord Kṛṣṇa was curious to taste that love. His eager desire for that love increasingly blazed in His heart.**
 
 ### CC Adi 4.137
-
-> এই এক, শুন আর লোভের প্রকার ।
-> স্বমাধুর্য দেখি’ কৃষ্ণ করেন বিচার ॥১৩৭॥
 
 > ei eka, śuna āra lobhera prakāra
 > sva-mādhurya dekhi' kṛṣṇa karena vicāra
@@ -7066,9 +5566,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 4.138
 
-> অদ্ভুত, অনন্ত, পূর্ণ মোর মধুরিমা ।
-> ত্রিজগতে ইহার কেহ নাহি পায় সীমা ॥১৩৮॥
-
 > adbhuta, ananta, pūrṇa mora madhurimā
 > tri-jagate ihāra keha nāhi pāya sīmā
 
@@ -7077,9 +5574,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 **"My sweetness is wonderful, infinite and full. No one in the three worlds can find its limit.**
 
 ### CC Adi 4.139
-
-> এই প্রেমদ্বারে নিত্য রাধিকা একলি ।
-> আমার মাধুর্যামৃত আস্বাদে সকলি ॥১৩৯॥
 
 > ei prema-dvāre nitya rādhikā ekali
 > āmāra mādhuryāmṛta āsvāde sakali
@@ -7090,9 +5584,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 4.140
 
-> যদ্যপি নির্মল রাধার সৎপ্রেমদর্পণ ।
-> তথাপি স্বচ্ছতা তার বাঢ়ে ক্ষণে ক্ষণ ॥১৪০॥
-
 > yadyapi nirmala rādhāra sat-prema-darpaṇa
 > tathāpi svacchatā tāra bāḍhe kṣaṇe kṣaṇa
 
@@ -7101,9 +5592,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 **"Although Rādhā's love is pure like a mirror, its purity increases at every moment.**
 
 ### CC Adi 4.141
-
-> আমার মাধুর্য নাহি বাঢ়িতে অবকাশে ।
-> এ-দর্পণের আগে নব নব রূপে ভাসে ॥১৪১॥
 
 > āmāra mādhurya nāhi bāḍhite avakāśe
 > e-darpaṇera āge nava nava rūpe bhāse
@@ -7114,9 +5602,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 4.142
 
-> মন্মাধুর্য রাধার প্রেম — দোঁহে হোড় করি’ ।
-> ক্ষণে ক্ষণে বাড়ে দোঁহে, কেহ নাহি হারি ॥১৪২॥
-
 > man-mādhurya rādhāra prema—doṅhe hoḍa kari'
 > kṣaṇe kṣaṇe bāḍe doṅhe, keha nāhi hāri
 
@@ -7125,9 +5610,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 **"There is constant competition between My sweetness and the mirror of Rādhā's love. They both go on increasing, but neither knows defeat.**
 
 ### CC Adi 4.143
-
-> আমার মাধুর্য নিত্য নব নব হয় ।
-> স্ব-স্ব-প্রেম-অনুরূপ ভক্তে আস্বাদয় ॥১৪৩॥
 
 > āmāra mādhurya nitya nava nava haya
 > sva-sva-prema-anurūpa bhakte āsvādaya
@@ -7138,9 +5620,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 4.144
 
-> দর্পণাদ্যে দেখি’ যদি আপন মাধুরী ।
-> আস্বাদিতে হয় লোভ, আস্বাদিতে নারি ॥১৪৪॥
-
 > darpaṇādye dekhi' yadi āpana mādhurī
 > āsvādite haya lobha, āsvādite nāri
 
@@ -7149,9 +5628,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 **"If I see My sweetness in a mirror, I am tempted to taste it, but nevertheless I cannot.**
 
 ### CC Adi 4.145
-
-> বিচার করিয়ে যদি আস্বাদ-উপায় ।
-> রাধিকাস্বরূপ হইতে তবে মন ধায় ॥১৪৫॥
 
 > vicāra kariye yadi āsvāda-upāya
 > rādhikā-svarūpa ha-ite tabe mana dhāya
@@ -7163,11 +5639,6 @@ This is a verse from the *Dāna-keli-kaumudī* (2) of Śrīla Rūpa Gosvāmī.
 Kṛṣṇa's attractiveness is wonderful and unlimited. No one can know the end of it. Śrīmatī Rādhārāṇī alone can relish such extensiveness from Her position in the *āśraya* category. The mirror of Śrīmatī Rādhārāṇī's transcendental love is perfectly clear, yet it appears clearer and clearest in the transcendental method of understanding Kṛṣṇa. In the mirror of Rādhārāṇī's heart, the transcendental features of Kṛṣṇa appear increasingly new and fresh. In other words, the attraction of Kṛṣṇa increases in proportion to the understanding of Śrīmatī Rādhārāṇī. Each tries to supersede the other. Neither wants to be defeated in increasing the intensity of love. Desiring to understand Rādhārāṇī's attitude of increasing love, Lord Kṛṣṇa appeared as Śrī Caitanya Mahāprabhu.
 
 ### CC Adi 4.146
-
-> অপরিকলিতপূর্বঃ কশ্চমৎকারকারী
-> স্ফুরতি মম গরীয়ানেষ মাধুর্যপূরঃ ।
-> অয়মহমপি হন্ত প্রেক্ষ্য যং লুব্ধচেতাঃ
-> সরভসমুপভোক্তুং কাময়ে রাধিকেব ॥১৪৬॥
 
 > aparikalita-pūrvaḥ kaś camatkāra-kārī
 > sphurati mama garīyān eṣa mādhurya-pūraḥ
@@ -7182,9 +5653,6 @@ This text is from the *Lalita-mādhava* (8.34) of Śrīla Rūpa Gosvāmī. It wa
 
 ### CC Adi 4.147
 
-> কৃষ্ণমাধুর্যের এক স্বাভাবিক বল ।
-> কৃষ্ণআদি নরনারী করয়ে চঞ্চল ॥১৪৭॥
-
 > kṛṣṇa-mādhuryera eka svābhāvika bala
 > kṛṣṇa-ādi nara-nārī karaye cañcala
 
@@ -7193,9 +5661,6 @@ This text is from the *Lalita-mādhava* (8.34) of Śrīla Rūpa Gosvāmī. It wa
 **The beauty of Kṛṣṇa has one natural strength: it thrills the hearts of all men and women, beginning with Lord Kṛṣṇa Himself.**
 
 ### CC Adi 4.148
-
-> শ্রবণে, দর্শনে আকর্ষয়ে সর্বমন ।
-> আপনা আস্বাদিতে কৃষ্ণ করেন যতন ॥১৪৮॥
 
 > śravaṇe, darśane ākarṣaye sarva-mana
 > āpanā āsvādite kṛṣṇa karena yatana
@@ -7206,9 +5671,6 @@ This text is from the *Lalita-mādhava* (8.34) of Śrīla Rūpa Gosvāmī. It wa
 
 ### CC Adi 4.149
 
-> এ মাধুর্যামৃত পান সদা যেই করে ।
-> তৃষ্ণাশান্তি নহে, তৃষ্ণা বাঢ়ে নিরন্তরে ॥১৪৯॥
-
 > e mādhuryāmṛta pāna sadā yei kare
 > tṛṣṇā-śānti nahe, tṛṣṇā bāḍhe nirantare
 
@@ -7217,9 +5679,6 @@ This text is from the *Lalita-mādhava* (8.34) of Śrīla Rūpa Gosvāmī. It wa
 **The thirst of one who always drinks the nectar of that sweetness is never satisfied. Rather, that thirst increases constantly.**
 
 ### CC Adi 4.150
-
-> অতৃপ্ত হইয়া করে বিধির নিন্দন ।
-> অবিদগ্ধ বিধি ভাল না জানে সৃজন ॥১৫০॥
 
 > atṛpta ha-iyā kare vidhira nindana
 > avidagdha vidhi bhāla nā jāne sṛjana
@@ -7230,9 +5689,6 @@ This text is from the *Lalita-mādhava* (8.34) of Śrīla Rūpa Gosvāmī. It wa
 
 ### CC Adi 4.151
 
-> কোটি নেত্র নাহি দিল, সবে দিল দুই ।
-> তাহাতে নিমেষ, — কৃষ্ণ কি দেখিব মুঞি ॥১৫১॥
-
 > koṭi netra nāhi dila, sabe dila dui
 > tāhāte nimeṣa,—kṛṣṇa ki dekhiba muñi
 
@@ -7241,11 +5697,6 @@ This text is from the *Lalita-mādhava* (8.34) of Śrīla Rūpa Gosvāmī. It wa
 **He has not given millions of eyes to see the beauty of Kṛṣṇa. He has given only two eyes, and even those eyes blink. How then shall I see the lovely face of Kṛṣṇa?**
 
 ### CC Adi 4.152
-
-> অটতি যদ্ভবানহ্নি কাননং,
-> ত্রুটির্যুগায়তে ত্বামপশ্যতাম্ ।
-> কুটিলকুন্তলং শ্রীমুখঞ্চ তে,
-> জড় উদীক্ষতাং পক্ষ্মকৃদ্দৃশাম্ ॥১৫২॥
 
 > aṭati yad bhavān ahni kānanaṁ
 > truṭir yugāyate tvām apaśyatām
@@ -7260,11 +5711,6 @@ This verse is spoken by the *gopīs* in *Śrīmad-Bhāgavatam* (10.31.15).
 
 ### CC Adi 4.153
 
-> গোপ্যশ্চ কৃষ্ণমুপলভ্য চিরাদভীষ্টং
-> যৎপ্রেক্ষণে দৃশিষু পক্ষ্মকৃতং শপন্তি ।
-> দৃগ্ভির্হৃদীকৃতমলং পরিরভ্য সর্বা-
-> স্তদ্ভাবমাপুরপি নিত্যযুজাং দুরাপম্ ॥১৫৩॥
-
 > gopyaś ca kṛṣṇam upalabhya cirād abhīṣṭaṁ
 > yat-prekṣaṇe dṛśiṣu pakṣma-kṛtaṁ śapanti
 > dṛgbhir hṛdi kṛtam alaṁ parirabhya sarvās
@@ -7278,9 +5724,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.82.39).
 
 ### CC Adi 4.154
 
-> কৃষ্ণাবলোকন বিনা নেত্র ফল নাহি আন ।
-> যেই জন কৃষ্ণ দেখে, সেই ভাগ্যবান্ ॥১৫৪॥
-
 > kṛṣṇāvalokana vinā netra phala nāhi āna
 > yei jana kṛṣṇa dekhe, sei bhāgyavān
 
@@ -7289,11 +5732,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.82.39).
 **There is no other consummation for the eyes than the sight of Kṛṣṇa. Whoever sees Him is most fortunate indeed.**
 
 ### CC Adi 4.155
-
-> অক্ষণ্বতাং ফলমিদং ন পরং বিদামঃ
-> সখ্যঃ পশূননুবিবেশয়তোর্বয়স্যৈঃ ।
-> বক্ত্রং ব্রজেশসুতয়োরনুবেণুজুষ্টং
-> যৈর্বা নিপীতমনুরক্তকটাক্ষমোক্ষম্ ॥১৫৫॥
 
 > akṣaṇvatāṁ phalam idaṁ na paraṁ vidāmaḥ
 > sakhyaḥ paśūn anuviveśayator vayasyaiḥ
@@ -7308,11 +5746,6 @@ Like the *gopīs,* one can see Kṛṣṇa continuously if one is fortunate enou
 
 ### CC Adi 4.156
 
-> গোপ্যস্তপঃ কিমচরন্ যদমুষ্য রূপং
-> লাবণ্যসারমসমোর্ধ্বমনন্যসিদ্ধম্ ।
-> দৃগ্ভিঃ পিবন্ত্যনুসবাভিনবং দুরাপ-
-> মেকান্তধাম যশসঃ শ্রিয় ঐশ্বরস্য ॥১৫৬॥
-
 > gopyas tapaḥ kim acaran yad amuṣya rūpaṁ
 > lāvaṇya-sāram asamordhvam ananya-siddham
 > dṛgbhiḥ pibanty anusavābhinavaṁ durāpam
@@ -7326,9 +5759,6 @@ This text from *Śrīmad-Bhāgavatam* (10.44.14) was spoken by the women of Math
 
 ### CC Adi 4.157
 
-> অপূর্ব মাধুরী কৃষ্ণের, অপূর্ব তার বল ।
-> যাহার শ্রবণে মন হয় টলমল ॥১৫৭॥
-
 > apūrva mādhurī kṛṣṇera, apūrva tāra bala
 > yāhāra śravaṇe mana haya ṭalamala
 
@@ -7337,9 +5767,6 @@ This text from *Śrīmad-Bhāgavatam* (10.44.14) was spoken by the women of Math
 **The sweetness of Lord Kṛṣṇa is unprecedented, and its strength is also unprecedented. Simply by one's hearing of such beauty, the mind becomes unsteady.**
 
 ### CC Adi 4.158
-
-> কৃষ্ণের মাধুর্যে কৃষ্ণে উপজয় লোভ ।
-> সম্যক্ আস্বাদিতে নারে, মনে রহে ক্ষোভ ॥১৫৮॥
 
 > kṛṣṇera mādhurye kṛṣṇe upajaya lobha
 > samyak āsvādite nāre, mane rahe kṣobha
@@ -7350,9 +5777,6 @@ This text from *Śrīmad-Bhāgavatam* (10.44.14) was spoken by the women of Math
 
 ### CC Adi 4.159
 
-> এই ত’ দ্বিতীয় হেতুর কহিল বিবরণ ।
-> তৃতীয় হেতুর এবে শুনহ লক্ষণ ॥১৫৯॥
-
 > ei ta' dvitīya hetura kahila vivaraṇa
 > tṛtīya hetura ebe śunaha lakṣaṇa
 
@@ -7361,9 +5785,6 @@ This text from *Śrīmad-Bhāgavatam* (10.44.14) was spoken by the women of Math
 **This is a description of His second desire. Now please listen as I describe the third.**
 
 ### CC Adi 4.160
-
-> অত্যন্তনিগূঢ় এই রসের সিদ্ধান্ত ।
-> স্বরূপগোসাঞি মাত্র জানেন একান্ত ॥১৬০॥
 
 > atyanta-nigūḍha ei rasera siddhānta
 > svarūpa-gosāñi mātra jānena ekānta
@@ -7374,9 +5795,6 @@ This text from *Śrīmad-Bhāgavatam* (10.44.14) was spoken by the women of Math
 
 ### CC Adi 4.161
 
-> যেবা কেহ অন্য জানে, সেহো তাঁহা হৈতে ।
-> চৈতন্যগোসাঞির তেঁহ অত্যন্ত মর্ম যাতে ॥১৬১॥
-
 > yebā keha anya jāne, seho tāṅhā haite
 > caitanya-gosāñira teṅha atyanta marma yāte
 
@@ -7385,9 +5803,6 @@ This text from *Śrīmad-Bhāgavatam* (10.44.14) was spoken by the women of Math
 **Anyone else who claims to know it must have heard it from him, for he was the most intimate companion of Lord Caitanya Mahāprabhu.**
 
 ### CC Adi 4.162
-
-> গোপীগণের প্রেমের ‘রূঢ়ভাব’ নাম ।
-> বিশুদ্ধ নির্মল প্রেম, কভু নহে কাম ॥১৬২॥
 
 > gopī-gaṇera premera 'rūḍha-bhāva' nāma
 > viśuddha nirmala prema, kabhu nahe kāma
@@ -7399,9 +5814,6 @@ This text from *Śrīmad-Bhāgavatam* (10.44.14) was spoken by the women of Math
 As already explained, the position of the *gopīs* in their loving dealings with Kṛṣṇa is transcendental. Their emotion is called *rūḍha-bhāva.* Although it is apparently like mundane sex, one should not confuse it with mundane sexual love, for it is pure and unadulterated love of Godhead.
 
 ### CC Adi 4.163
-
-> ‘প্রেমৈব গোপরামাণাং কাম ইত্যগমৎ প্রথাম্ ।’
-> ইত্যুদ্ধবাদয়োঽপ্যেতং বাঞ্ছন্তি ভগবৎপ্রিয়াঃ ॥১৬৩॥
 
 > premaiva gopa-rāmānāṁ
 > kāma ity agamat prathām
@@ -7416,9 +5828,6 @@ This is a verse from *Bhakti-rasāmṛta-sindhu* (1.2.285).
 
 ### CC Adi 4.164
 
-> কাম, প্রেম, — দোঁহাকার বিভিন্ন লক্ষণ ।
-> লৌহ আর হেম যৈছে স্বরূপে বিলক্ষণ ॥১৬৪॥
-
 > kāma, prema,—doṅhākāra vibhinna lakṣaṇa
 > lauha āra hema yaiche svarūpe vilakṣaṇa
 
@@ -7429,9 +5838,6 @@ This is a verse from *Bhakti-rasāmṛta-sindhu* (1.2.285).
 One should try to discriminate between sexual love and pure love, for they belong to different categories, with a gulf of difference between them. They are as different from one another as iron is from gold.
 
 ### CC Adi 4.165
-
-> আত্মেন্দ্রিয়প্রীতি-বাঞ্ছা — তারে বলি, ‘কাম’ ।
-> কৃষ্ণেন্দ্রিয়প্রীতি-ইচ্ছা ধরে ‘প্রেম’ নাম ॥১৬৫॥
 
 > ātmendriya-prīti-vāñchā—tāre bali 'kāma'
 > kṛṣṇendriya-prīti-icchā dhare 'prema' nāma
@@ -7455,9 +5861,6 @@ The author of *Śrī Caitanya-caritāmṛta* asserts with authority that sexual 
 
 ### CC Adi 4.166
 
-> কামের তাৎপর্য — নিজসম্ভোগ কেবল ।
-> কৃষ্ণসুখতাৎপর্য-মাত্র প্রেম ত’ প্রবল ॥১৬৬॥
-
 > kāmera tātparya—nija-sambhoga kevala
 > kṛṣṇa-sukha-tātparya-mātra prema ta' prabala
 
@@ -7466,13 +5869,6 @@ The author of *Śrī Caitanya-caritāmṛta* asserts with authority that sexual 
 **The object of lust is only the enjoyment of one's own senses. But love caters to the enjoyment of Lord Kṛṣṇa, and thus it is very powerful.**
 
 ### CC Adi 4.167-169
-
-> লোকধর্ম, বেদধর্ম, দেহধর্ম, কর্ম ।
-> লজ্জা, ধৈর্য, দেহসুখ, আত্মসুখ-মর্ম ॥১৬৭॥
-> দুস্ত্যজ আর্যপথ, নিজ পরিজন ।
-> স্বজনে করয়ে যত তাড়ন-ভর্ৎসন ॥১৬৮॥
-> সর্বত্যাগ করি’ করে কৃষ্ণের ভজন ।
-> কৃষ্ণসুখহেতু করে প্রেম-সেবন ॥১৬৯॥
 
 > loka-dharma, veda-dharma, deha-dharma, karma
 > lajjā, dhairya, deha-sukha, ātma-sukha-marma
@@ -7489,9 +5885,6 @@ The author of *Śrī Caitanya-caritāmṛta* asserts with authority that sexual 
 
 ### CC Adi 4.170
 
-> ইহাকে কহিয়ে কৃষ্ণে দৃঢ় অনুরাগ ।
-> স্বচ্ছ ধৌতবস্ত্রে যৈছে নাহি কোন দাগ ॥১৭০॥
-
 > ihāke kahiye kṛṣṇe dṛḍha anurāga
 > svaccha dhauta-vastre yaiche nāhi kona dāga
 
@@ -7503,9 +5896,6 @@ The author of *Śrī Caitanya-caritāmṛta* advises everyone to give up all eng
 
 ### CC Adi 4.171
 
-> অতএব কাম-প্রেমে বহুত অন্তর ।
-> কাম — অন্ধতমঃ, প্রেম — নির্মল ভাস্কর ॥১৭১॥
-
 > ataeva kāma-preme bahuta antara
 > kāma—andha-tamaḥ, prema—nirmala bhāskara
 
@@ -7515,9 +5905,6 @@ The author of *Śrī Caitanya-caritāmṛta* advises everyone to give up all eng
 
 ### CC Adi 4.172
 
-> অতএব গোপীগণের নাহি কামগন্ধ ।
-> কৃষ্ণসুখ লাগি মাত্র, কৃষ্ণ সে সম্বন্ধ ॥১৭২॥
-
 > ataeva gopī-gaṇera nāhi kāma-gandha
 > kṛṣṇa-sukha lāgi mātra, kṛṣṇa se sambandha
 
@@ -7526,11 +5913,6 @@ The author of *Śrī Caitanya-caritāmṛta* advises everyone to give up all eng
 **Thus there is not the slightest taint of lust in the gopīs' love. Their relationship with Kṛṣṇa is only for the sake of His enjoyment.**
 
 ### CC Adi 4.173
-
-> যত্তে সুজাতচরণাম্বুরুহং স্তনেষু
-> ভীতাঃ শনৈঃ প্রিয় দধীমহি কর্কশেষু ।
-> তেনাটবীমটসি তদ্ব্যথতে ন কিং স্বিৎ
-> কূর্পাদিভির্ভ্রমতি ধীর্ভবদায়ুষাং নঃ ॥১৭৩॥
 
 > yat te sujāta-caraṇāmburuhaṁ staneṣu
 > bhītāḥ śanaiḥ priya dadhīmahi karkaśeṣu
@@ -7545,9 +5927,6 @@ This text from *Śrīmad-Bhāgavatam* (10.31.19) was spoken by the *gopīs* when
 
 ### CC Adi 4.174
 
-> আত্ম-সুখ-দুঃখে গোপীর নাহিক বিচার ।
-> কৃষ্ণসুখহেতু চেষ্টা মনোব্যবহার ॥১৭৪॥
-
 > ātma-sukha-duḥkhe gopīra nāhika vicāra
 > kṛṣṇa-sukha-hetu ceṣṭā mano-vyavahāra
 
@@ -7557,9 +5936,6 @@ This text from *Śrīmad-Bhāgavatam* (10.31.19) was spoken by the *gopīs* when
 
 ### CC Adi 4.175
 
-> কৃষ্ণ লাগি’ আর সব করে পরিত্যাগ ।
-> কৃষ্ণসুখহেতু করে শুদ্ধ অনুরাগ ॥১৭৫॥
-
 > kṛṣṇa lāgi' āra saba kare parityāga
 > kṛṣṇa-sukha-hetu kare śuddha anurāga
 
@@ -7568,11 +5944,6 @@ This text from *Śrīmad-Bhāgavatam* (10.31.19) was spoken by the *gopīs* when
 **They renounced everything for Kṛṣṇa. They have pure attachment to giving Kṛṣṇa pleasure.**
 
 ### CC Adi 4.176
-
-> এবং মদর্থোজ্ঝিতলোকবেদ-
-> স্বানাং হি বো ময্যনুবৃত্তয়েঽবলাঃ ।
-> ময়া পরোক্ষং ভজতা তিরোহিতং
-> মাসূয়িতুং মার্হথ তৎ প্রিয়ং প্রিয়াঃ ॥১৭৬॥
 
 > evaṁ mad-arthojjhita-loka-veda-
 > svānāṁ hi vo mayy anuvṛttaye 'balāḥ
@@ -7587,9 +5958,6 @@ This text from *Śrīmad-Bhāgavatam* (10.32.21) was spoken by Lord Kṛṣṇa 
 
 ### CC Adi 4.177
 
-> কৃষ্ণের প্রতিজ্ঞা এক আছে পূর্ব হৈতে  ।
-> যে যৈছে ভজে, কৃষ্ণ তারে ভজে তৈছে ॥১৭৭॥
-
 > kṛṣṇera pratijñā eka āche pūrva haite
 > ye yaiche bhaje, kṛṣṇa tāre bhaje taiche
 
@@ -7598,9 +5966,6 @@ This text from *Śrīmad-Bhāgavatam* (10.32.21) was spoken by Lord Kṛṣṇa 
 **Lord Kṛṣṇa has a promise from before to reciprocate with His devotees according to the way they worship Him.**
 
 ### CC Adi 4.178
-
-> যে যথা মাং প্রপদ্যন্তে তাংস্তথৈব ভজাম্যহম্ ।
-> মম বর্ত্মানুবর্তন্তে মনুষ্যাঃ পার্থ সর্বশঃ ॥১৭৮॥
 
 > ye yathā māṁ prapadyante
 > tāṁs tathaiva bhajāmy aham
@@ -7615,9 +5980,6 @@ Kṛṣṇa was never ungrateful to the *gopīs,* for as He declares to Arjuna i
 
 ### CC Adi 4.179
 
-> সে প্রতিজ্ঞা ভঙ্গ হৈল গোপীর ভজনে ।
-> তাহাতে প্রমাণ কৃষ্ণ-শ্রীমুখবচনে ॥১৭৯॥
-
 > se pratijñā bhaṅga haila gopīra bhajane
 > tāhāte pramāṇa kṛṣṇa-śrī-mukha-vacane
 
@@ -7626,11 +5988,6 @@ Kṛṣṇa was never ungrateful to the *gopīs,* for as He declares to Arjuna i
 **That promise has been broken by the worship of the gopīs, as Lord Kṛṣṇa Himself admits.**
 
 ### CC Adi 4.180
-
-> ন পারয়েঽহং নিরবদ্যসংযুজাং
-> স্বসাধুকৃত্যং বিবুধায়ুষাপি বঃ ।
-> যা মাঽভজন্ দুর্জয়গেহশৃঙ্খলাঃ
-> সংবৃশ্চ্য তদ্বঃ প্রতিযাতু সাধুনা ॥১৮০॥
 
 > na pāraye 'haṁ niravadya-saṁyujāṁ
 > sva-sādhu-kṛtyaṁ vibudhāyuṣāpi vaḥ
@@ -7645,9 +6002,6 @@ This verse from *Śrīmad-Bhāgavatam* (10.32.22) was spoken by Śrī Kṛṣṇ
 
 ### CC Adi 4.181
 
-> তবে যে দেখিয়ে গোপীর নিজদেহে প্রীত ।
-> সেহো ত’ কৃষ্ণের লাগি, জানিহ নিশ্চিত ॥১৮১॥
-
 > tabe ye dekhiye gopīra nija-dehe prīta
 > seho ta' kṛṣṇera lāgi, jāniha niścita
 
@@ -7659,9 +6013,6 @@ The selfless love of Godhead exhibited by the *gopīs* cannot have any parallel.
 
 ### CC Adi 4.182
 
-> ‘এই দেহ কৈলুঁ আমি কৃষ্ণে সমর্পণ ।
-> তাঁর ধন তাঁর ইহা সম্ভোগ-সাধন ॥১৮২॥
-
 > 'ei deha kailuṅ āmi kṛṣṇe samarpaṇa
 > tāṅra dhana tāṅra ihā sambhoga-sādhana
 
@@ -7671,9 +6022,6 @@ The selfless love of Godhead exhibited by the *gopīs* cannot have any parallel.
 
 ### CC Adi 4.183
 
-> এদেহ-দর্শন-স্পর্শে কৃষ্ণ-সন্তোষণ’ ।
-> এই লাগি’ করে দেহের মার্জন-ভূষণ ॥১৮৩॥
-
 > e-deha-darśana-sparśe kṛṣṇa-santoṣaṇa'
 > ei lāgi' kare dehera mārjana-bhūsaṇa
 
@@ -7682,9 +6030,6 @@ The selfless love of Godhead exhibited by the *gopīs* cannot have any parallel.
 **"Kṛṣṇa finds joy in seeing and touching this body." It is for this reason that they cleanse and decorate their bodies.**
 
 ### CC Adi 4.184
-
-> নিজাঙ্গমপি যা গোপ্যো মমেতি সমুপাসতে ।
-> তাভ্যঃ পরং ন মে পার্থ নিগূঢ়প্রেমভাজনম্ ॥১৮৪॥
 
 > nijāṅgam api yā gopyo
 > mameti samupāsate
@@ -7699,9 +6044,6 @@ This verse is spoken by Lord Kṛṣṇa in the *Ādi Purāṇa.*
 
 ### CC Adi 4.185
 
-> আর এক অদ্ভুত গোপীভাবের স্বভাব ।
-> বুদ্ধির গোচর নহে যাহার প্রভাব ॥১৮৫॥
-
 > āra eka adbhuta gopī-bhāvera svabhāva
 > buddhira gocara nahe yāhāra prabhāva
 
@@ -7711,9 +6053,6 @@ This verse is spoken by Lord Kṛṣṇa in the *Ādi Purāṇa.*
 
 ### CC Adi 4.186
 
-> গোপীগণ করে যবে কৃষ্ণ-দরশন ।
-> সুখবাঞ্ছা নাহি, সুখ হয় কোটিগুণ ॥১৮৬॥
-
 > gopī-gaṇa kare yabe kṛṣṇa-daraśana
 > sukha-vāñchā nāhi, sukha haya koṭi-guṇa
 
@@ -7722,9 +6061,6 @@ This verse is spoken by Lord Kṛṣṇa in the *Ādi Purāṇa.*
 **When the gopīs see Lord Kṛṣṇa, they derive unbounded bliss, although they have no desire for such pleasure.**
 
 ### CC Adi 4.187
-
-> গোপিকা-দর্শনে কৃষ্ণের যে আনন্দ হয় ।
-> তাহা হৈতে কোটিগুণ গোপী আস্বাদয় ॥১৮৭॥
 
 > gopīkā-darśane kṛṣṇera ye ānanda haya
 > tāhā haite koṭi-guṇa gopī āsvādaya
@@ -7737,9 +6073,6 @@ The wonderful characteristics of the *gopīs* are beyond imagination. They have 
 
 ### CC Adi 4.188
 
-> তাঁ সবার নাহি নিজসুখ-অনুরোধ ।
-> তথাপি বাঢ়য়ে সুখ, পড়িল বিরোধ ॥১৮৮॥
-
 > tāṅ sabāra nāhi nija-sukha-anurodha
 > tathāpi bāḍhaye sukha, paḍila virodha
 
@@ -7748,9 +6081,6 @@ The wonderful characteristics of the *gopīs* are beyond imagination. They have 
 **The gopīs have no inclination for their own enjoyment, and yet their joy increases. That is indeed a contradiction.**
 
 ### CC Adi 4.189
-
-> এ বিরোধের এক মাত্র দেখি সমাধান ।
-> গোপিকার সুখ কৃষ্ণসুখে পর্যবসান ॥১৮৯॥
 
 > e virodhera eka mātra dekhi samādhāna
 > gopikāra sukha kṛṣṇa-sukhe paryavasāna
@@ -7763,9 +6093,6 @@ The situation of the *gopīs* is perplexing, for although they did not want pers
 
 ### CC Adi 4.190
 
-> গোপিকা-দর্শনে কৃষ্ণের বাঢ়ে প্রফুল্লতা ।
-> সে মাধুর্য বাঢ়ে যার নাহিক সমতা ॥১৯০॥
-
 > gopikā-darśane kṛṣṇera bāḍhe praphullatā
 > se mādhurya bāḍhe yāra nāhika samatā
 
@@ -7774,9 +6101,6 @@ The situation of the *gopīs* is perplexing, for although they did not want pers
 **When Lord Kṛṣṇa sees the gopīs, His joy increases, and His unparalleled sweetness increases also.**
 
 ### CC Adi 4.191
-
-> আমার দর্শনে কৃষ্ণ পাইল এত সুখ ।
-> এই সুখে গোপীর প্রফুল্ল অঙ্গমুখ ॥১৯১॥
 
 > āmāra darśane kṛṣṇa pāila eta sukha
 > ei sukhe gopīra praphulla aṅga-mukha
@@ -7787,9 +6111,6 @@ The situation of the *gopīs* is perplexing, for although they did not want pers
 
 ### CC Adi 4.192
 
-> গোপী-শোভা দেখি’ কৃষ্ণের শোভা বাঢ়ে যত ।
-> কৃষ্ণ-শোভা দেখি’ গোপীর শোভা বাঢ়ে তত ॥১৯২॥
-
 > gopī-śobhā dekhi' kṛṣṇera śobhā bāḍhe yata
 > kṛṣṇa-śobhā dekhi' gopīra śobhā bāḍhe tata
 
@@ -7798,9 +6119,6 @@ The situation of the *gopīs* is perplexing, for although they did not want pers
 **The beauty of Lord Kṛṣṇa increases at the sight of the beauty of the gopīs. And the more the gopīs see Lord Kṛṣṇa's beauty, the more their beauty increases.**
 
 ### CC Adi 4.193
-
-> এইমত পরস্পর পড়ে হুড়াহুড়ি ।
-> পরস্পর বাঢ়ে, কেহ মুখ নাহি মুড়ি ॥১৯৩॥
 
 > ei-mata paraspara paḍe huḍāhuḍi
 > paraspara bāḍhe, keha mukha nāhi muḍi
@@ -7811,9 +6129,6 @@ The situation of the *gopīs* is perplexing, for although they did not want pers
 
 ### CC Adi 4.194
 
-> কিন্তু কৃষ্ণের সুখ হয় গোপী-রূপ-গুণে ।
-> তাঁর সুখে সুখবৃদ্ধি হয়ে গোপীগণে ॥১৯৪॥
-
 > kintu kṛṣṇera sukha haya gopī-rūpa-guṇe
 > tāṅra sukhe sukha-vṛddhi haye gopī-gaṇe
 
@@ -7822,9 +6137,6 @@ The situation of the *gopīs* is perplexing, for although they did not want pers
 **Kṛṣṇa, however, derives pleasure from the beauty and good qualities of the gopīs. And when the gopīs see His pleasure, the joy of the gopīs increases.**
 
 ### CC Adi 4.195
-
-> অতএব সেই সুখ কৃষ্ণ-সুখ পোষে ।
-> এই হেতু গোপী-প্রেমে নাহি কাম-দোষে ॥১৯৫॥
 
 > ataeva sei sukha kṛṣṇa-sukha poṣe
 > ei hetu gopī-preme nāhi kāma-doṣe
@@ -7836,11 +6148,6 @@ The situation of the *gopīs* is perplexing, for although they did not want pers
 By looking at the beautiful *gopīs* Kṛṣṇa becomes enlivened, and this enlivens the *gopīs,* whose youthful faces and bodies blossom. This competition of increasing beauty between the *gopīs* and Kṛṣṇa, which is without limitations, is so delicate that sometimes mundane moralists mistake these dealings to be purely amorous. But these affairs are not at all mundane, because the *gopīs'* intense desire to satisfy Kṛṣṇa surcharges the entire scene with pure love of Godhead, with not a spot of sexual indulgence.
 
 ### CC Adi 4.196
-
-> উপেত্য পথি সুন্দরীততিভিরাভিরভ্যর্চিতং
-> স্মিতাঙ্কুরকরম্বিতৈর্নটদপাঙ্গভঙ্গীশতৈঃ ।
-> স্তন-স্তবকসঞ্চরন্নয়নচঞ্চরীকাঞ্চলং
-> ব্রজে বিজয়িনং ভজে বিপিনদেশতঃ কেশবম্ ॥১৯৬॥
 
 > upetya pathi sundarī-tatibhir ābhir abhyarcitaṁ
 > smitāṅkura-karambitair naṭad-apāṅga-bhaṅgī-śataiḥ
@@ -7855,9 +6162,6 @@ This statement appears in the *Keśavāṣṭaka* (8) of the *Stava-mālā,* com
 
 ### CC Adi 4.197
 
-> আর এক গোপীপ্রেমের স্বাভাবিক চিহ্ন ।
-> যে প্রকারে হয় প্রেম কামগন্ধহীন ॥১৯৭॥
-
 > āra eka gopī-premera svābhāvika cihna
 > ye prakāre haya prema kāma-gandha-hīna
 
@@ -7866,9 +6170,6 @@ This statement appears in the *Keśavāṣṭaka* (8) of the *Stava-mālā,* com
 **There is another natural symptom of the gopīs' love that shows it to be without a trace of lust.**
 
 ### CC Adi 4.198
-
-> গোপীপ্রেমে করে কৃষ্ণমাধুর্যের পুষ্টি ।
-> মাধুর্যে বাঢ়ায় প্রেম হঞা মহাতুষ্টি ॥১৯৮॥
 
 > gopī-preme kare kṛṣṇa-mādhuryera puṣṭi
 > mādhurye bāḍhāya prema hañā mahā-tuṣṭi
@@ -7879,9 +6180,6 @@ This statement appears in the *Keśavāṣṭaka* (8) of the *Stava-mālā,* com
 
 ### CC Adi 4.199
 
-> প্রীতিবিষয়ানন্দে তদাশ্রয়ানন্দ ।
-> তাঁহা নাহি নিজসুখবাঞ্ছার সম্বন্ধ ॥১৯৯॥
-
 > prīti-viṣayānande tad-āśrayānanda
 > tāṅhā nāhi nija-sukha-vāñchāra sambandha
 
@@ -7890,11 +6188,6 @@ This statement appears in the *Keśavāṣṭaka* (8) of the *Stava-mālā,* com
 **The happiness of the abode of love is in the happiness of the object of that love. This is not a relationship of desire for personal gratification.**
 
 ### CC Adi 4.200-201
-
-> নিরুপাধি প্রেম যাঁহা, তাঁহা এই রীতি ।
-> প্রীতিবিষয়সুখে আশ্রয়ের প্রীতি ॥২০০॥
-> নিজ প্রেমানন্দে কৃষ্ণ-সেবানন্দ বাধে ।
-> সে আনন্দের প্রতি ভক্তের হয় মহাক্রোধে ॥২০১॥
 
 > nirupādhi prema yāṅhā, tāṅhā ei rīti
 > prīti-viṣaya-sukhe āśrayera prīti
@@ -7910,11 +6203,6 @@ As mentioned above, the *gopīs* are the predominated lovers, and Śrī Kṛṣ�
 
 ### CC Adi 4.202
 
-> অঙ্গস্তম্ভারম্ভমুত্তুঙ্গয়ন্তং প্রেমা-
-> নন্দং দারুকো নাভ্যনন্দৎ ।
-> কংসারাতের্বীজনে যেন সাক্ষাদ-
-> ক্ষোদীয়ানন্তরায়ো ব্যধায়ি ॥২০২॥
-
 > aṅga-stambhārambham uttuṅgayantaṁ
 > premānandaṁ dāruko nābhyanandat
 > kaṁsārāter vījane yena sākṣād
@@ -7927,9 +6215,6 @@ As mentioned above, the *gopīs* are the predominated lovers, and Śrī Kṛṣ�
 This verse is from *Bhakti-rasāmṛta-sindhu* (3.2.62).
 
 ### CC Adi 4.203
-
-> গোবিন্দপ্রেক্ষণাক্ষেপি-বাষ্পপূরাভিবর্ষিণম্ ।
-> উচ্চৈরনিন্দদানন্দমরবিন্দবিলোচনা ॥২০৩॥
 
 > govinda-prekṣaṇākṣepi-
 > bāṣpa-pūrābhivarṣiṇam
@@ -7944,9 +6229,6 @@ This verse is also from *Bhakti-rasāmṛta-sindhu* (2.3.54).
 
 ### CC Adi 4.204
 
-> আর শুদ্ধভক্ত কৃষ্ণ-প্রেম-সেবা বিনে ।
-> স্বসুখার্থ সালোক্যাদি না করে গ্রহণে ॥২০৪॥
-
 > āra śuddha-bhakta kṛṣṇa-prema-sevā vine
 > sva-sukhārtha sālokyādi nā kare grahaṇe
 
@@ -7957,9 +6239,6 @@ This verse is also from *Bhakti-rasāmṛta-sindhu* (2.3.54).
 A pure devotee of Kṛṣṇa who loves Him exclusively will flatly refuse to accept any sort of liberation, beginning from merging in the body of the Lord and extending to the other varieties of liberation, such as equality of form, opulence or abode and the opulence of living near the Lord.
 
 ### CC Adi 4.205
-
-> মদ্গুণশ্রুতিমাত্রেণ ময়ি সর্বগুহাশয়ে ।
-> মনোগতিরবিচ্ছিন্না যথা গঙ্গাম্ভসোঽম্বুধৌ ॥২০৫॥
 
 > mad-guṇa-śruti-mātreṇa
 > mayi sarva-guhāśaye
@@ -7972,9 +6251,6 @@ A pure devotee of Kṛṣṇa who loves Him exclusively will flatly refuse to ac
 
 ### CC Adi 4.206
 
-> লক্ষণং ভক্তিযোগস্য নির্গুণস্য হ্যুদাহৃতম্ ।
-> অহৈতুক্যব্যবহিতা যা ভক্তিঃ পুরুষোত্তমে ॥২০৬॥
-
 > lakṣaṇaṁ bhakti-yogasya
 > nirguṇasya hy udāhṛtam
 > ahaituky avyavahitā
@@ -7985,9 +6261,6 @@ A pure devotee of Kṛṣṇa who loves Him exclusively will flatly refuse to ac
 **"These are the characteristics of transcendental loving service to Puruṣottama, the Supreme Personality of Godhead: it is causeless, and it cannot be obstructed in any way.**
 
 ### CC Adi 4.207
-
-> সালোক্য-সার্ষ্টি-সারূপ্য-সামীপ্যৈকত্বমপ্যুত ।
-> দীয়মানং ন গৃহ্ণন্তি বিনা মৎসেবনং জনাঃ ॥২০৭॥
 
 > sālokya-sārṣṭi-sārūpya-
 > sāmīpyaikatvam apy uta
@@ -8002,9 +6275,6 @@ These three verses from *Śrīmad-Bhāgavatam* (3.29.11-13) were spoken by Lord 
 
 ### CC Adi 4.208
 
-> মৎসেবয়া প্রতীতং তে সালোক্যাদি-চতুষ্টয়ম্ ।
-> নেচ্ছন্তি সেবয়া পূর্ণাঃ কুতোঽন্যৎ কালবিপ্লুতম্ ॥২০৮॥
-
 > mat-sevayā pratītaṁ te
 > sālokyādi-catuṣṭayam
 > necchanti sevayā pūrṇāḥ
@@ -8018,9 +6288,6 @@ This verse from *Śrīmad-Bhāgavatam* (9.4.67) was spoken by the Lord in connec
 
 ### CC Adi 4.209
 
-> কামগন্ধহীন স্বাভাবিক গোপী-প্রেম ।
-> নির্মল, উজ্জ্বল, শুদ্ধ যেন দগ্ধ হেম ॥২০৯॥
-
 > kama-gandha-hīna svābhāvika gopī-prema
 > nirmala, ujjvala, śuddha yena dagdha hema
 
@@ -8030,9 +6297,6 @@ This verse from *Śrīmad-Bhāgavatam* (9.4.67) was spoken by the Lord in connec
 
 ### CC Adi 4.210
 
-> কৃষ্ণের সহায়, গুরু, বান্ধব, প্রেয়সী ।
-> গোপিকা হয়েন প্রিয়া শিষ্যা, সখী, দাসী ॥২১০॥
-
 > kṛṣṇera sahāya, guru, bāndhava, preyasī
 > gopikā hayena priyā śiṣyā, sakhī dāsī
 
@@ -8041,9 +6305,6 @@ This verse from *Śrīmad-Bhāgavatam* (9.4.67) was spoken by the Lord in connec
 **The gopīs are the helpers, teachers, friends, wives, dear disciples, confidantes and serving maids of Lord Kṛṣṇa.**
 
 ### CC Adi 4.211
-
-> সহায়া গুরবঃ শিষ্যা ভুজিষ্যা বান্ধবাঃ স্ত্রিয়ঃ ।
-> সত্যং বদামি তে পার্থ গোপ্যঃ কিং মে ভবন্তি ন ॥২১১॥
 
 > sahāyā guravaḥ śiṣyā
 > bhujiṣyā bāndhavāḥ striyaḥ
@@ -8058,9 +6319,6 @@ This is a verse from the *Gopī-premāmṛta.*
 
 ### CC Adi 4.212
 
-> গোপিকা জানেন কৃষ্ণের মনের বাঞ্ছিত ।
-> প্রেমসেবা-পরিপাটী, ইষ্ট-সমীহিত ॥২১২॥
-
 > gopikā jānena kṛṣṇera manera vāñchita
 > prema-sevā-paripāṭī, iṣṭa-samīhita
 
@@ -8069,9 +6327,6 @@ This is a verse from the *Gopī-premāmṛta.*
 **The gopīs know Kṛṣṇa's desires, and they know how to render perfect loving service for His enjoyment. They perform their service expertly for the satisfaction of their beloved.**
 
 ### CC Adi 4.213
-
-> মন্মাহাত্ম্যং মৎসপর্যাং মাচ্ছ্রদ্ধাং মন্মনোগতম্ ।
-> জানন্তি গোপিকাঃ পার্থ নান্যে জানন্তি তত্ত্বতঃ ॥২১৩॥
 
 > man-māhātmyaṁ mat-saparyāṁ
 > mac-chraddhāṁ man-mano-gatam
@@ -8086,9 +6341,6 @@ This verse was spoken by Lord Kṛṣṇa to Arjuna in the *Ādi Purāṇa.*
 
 ### CC Adi 4.214
 
-> সেই গোপীগণ-মধ্যে উত্তমা রাধিকা ।
-> রূপে, গুণে, সৌভাগ্যে, প্রেমে সর্বাধিকা ॥২১৪॥
-
 > sei gopī-gaṇa-madhye uttamā rādhikā
 > rūpe, guṇe, saubhāgye, preme sarvādhikā
 
@@ -8099,9 +6351,6 @@ This verse was spoken by Lord Kṛṣṇa to Arjuna in the *Ādi Purāṇa.*
 Among all the *gopīs,* Śrīmatī Rādhārāṇī is the most exalted. She is the most beautiful, the most qualified, and above all the greatest lover of Kṛṣṇa.
 
 ### CC Adi 4.215
-
-> যথা রাধা প্রিয়া বিষ্ণোস্তস্যাঃ কুণ্ডং প্রিয়ং তথা ।
-> সর্বগোপীষু সৈবৈকা বিষ্ণোরত্যন্তবল্লভা ॥২১৫॥
 
 > yathā rādhā priyā viṣṇos
 > tasyāḥ kuṇḍaṁ priyaṁ tathā
@@ -8116,9 +6365,6 @@ This verse is from the *Padma Purāṇa.*
 
 ### CC Adi 4.216
 
-> ত্রৈলোক্যে পৃথিবী ধন্যা যত্র বৃন্দাবনং পুরী ।
-> তত্রাপি গোপিকাঃ পার্থ যত্র রাধাভিধা মম ॥২১৬॥
-
 > trai-lokye pṛthivī dhanyā
 > yatra vṛndāvanaṁ purī
 > tatrāpi gopikāḥ pārtha
@@ -8132,9 +6378,6 @@ This verse, spoken by Lord Kṛṣṇa to Arjuna, is cited from the *Ādi Purā�
 
 ### CC Adi 4.217
 
-> রাধাসহ ক্রীড়া রস-বৃদ্ধির কারণ ।
-> আর সব গোপীগণ রসোপকরণ ॥২১৭॥
-
 > rādhā-saha krīḍā rasa-vṛddhira kāraṇa
 > āra saba gopī-gaṇa rasopakaraṇa
 
@@ -8146,9 +6389,6 @@ It is said that the *gopīs* are divided into five groups, namely the *sakhīs, 
 
 ### CC Adi 4.218
 
-> কৃষ্ণের বল্লভা রাধা কৃষ্ণ-প্রাণধন ।
-> তাঁহা বিনু সুখহেতু নহে গোপীগণ ॥২১৮॥
-
 > kṛṣṇera vallabhā rādhā kṛṣṇa-prāṇa-dhana
 > tāṅhā vinu sukha-hetu nahe gopī-gaṇa
 
@@ -8157,9 +6397,6 @@ It is said that the *gopīs* are divided into five groups, namely the *sakhīs, 
 **Rādhā is the beloved consort of Kṛṣṇa, and She is the wealth of His life. Without Her, the gopīs cannot give Him pleasure.**
 
 ### CC Adi 4.219
-
-> কংসারিরপি সংসারবাসনাবদ্ধশৃঙ্খলাম্ ।
-> রাধামাধায় হৃদয়ে তত্যাজ ব্রজসুন্দরীঃ ॥২১৯॥
 
 > kaṁsārir api saṁsāra-
 > vāsanā-baddha-śṛṅkhalām
@@ -8174,9 +6411,6 @@ In this verse from the *Gīta-govinda* (3.1), Jayadeva Gosvāmī describes Śrī
 
 ### CC Adi 4.220
 
-> সেই রাধার ভাব লঞা চৈতন্যাবতার ।
-> যুগধর্ম নাম-প্রেম কৈল পরচার ॥২২০॥
-
 > sei rādhāra bhāva lañā caitanyāvatāra
 > yuga-dharma nāma-prema kaila paracāra
 
@@ -8185,9 +6419,6 @@ In this verse from the *Gīta-govinda* (3.1), Jayadeva Gosvāmī describes Śrī
 **Lord Caitanya appeared with the sentiment of Rādhā. He preached the dharma of this age—the chanting of the holy name and pure love of God.**
 
 ### CC Adi 4.221
-
-> সেই ভাবে নিজবাঞ্ছা করিল পূরণ ।
-> অবতারের এই বাঞ্ছা মূল-কারণ ॥২২১॥
 
 > sei bhāve nija-vāñchā karila pūraṇa
 > avatārera ei vāñchā mūla-kāraṇa
@@ -8198,9 +6429,6 @@ In this verse from the *Gīta-govinda* (3.1), Jayadeva Gosvāmī describes Śrī
 
 ### CC Adi 4.222
 
-> শ্রীকৃষ্ণচৈতন্য গোসাঞি ব্রজেন্দ্রকুমার ।
-> রসময়-মূর্তি কৃষ্ণ সাক্ষাৎ শৃঙ্গার ॥২২২॥
-
 > śrī-kṛṣṇa-caitanya gosāñi vrajendra-kumāra
 > rasa-maya-mūrti kṛṣṇa sākṣāt śṛṅgāra
 
@@ -8210,9 +6438,6 @@ In this verse from the *Gīta-govinda* (3.1), Jayadeva Gosvāmī describes Śrī
 
 ### CC Adi 4.223
 
-> সেই রস আস্বাদিতে কৈল অবতার ।
-> আনুষঙ্গে কৈল সব রসের প্রচার ॥২২৩॥
-
 > sei rasa āsvādite kaila avatāra
 > ānusaṅge kaila saba rasera pracāra
 
@@ -8221,11 +6446,6 @@ In this verse from the *Gīta-govinda* (3.1), Jayadeva Gosvāmī describes Śrī
 **He made His appearance to taste that conjugal mellow and incidentally to broadcast all the rasas.**
 
 ### CC Adi 4.224
-
-> বিশ্বেষামনুরঞ্জনেন জনয়ন্নানন্দমিন্দীবর-
-> শ্রেণীশ্যামলকোমলৈরুপনয়ন্নঙ্গৈরনঙ্গোৎসবম্ ।
-> স্বচ্ছন্দং ব্রজসুন্দরীভিরভিতঃ প্রত্যঙ্গমালিঙ্গিতঃ
-> শৃঙ্গারঃ সখি মূর্তিমানিব মধৌ মুগ্ধো হরিঃ ক্রীড়তি ॥২২৪॥
 
 > viśveṣām anurañjanena janayann ānandam indīvara-
 > śreṇī-śyāmala-komalair upanayann aṅgair anaṅgotsavam
@@ -8240,9 +6460,6 @@ This is a verse from the *Gīta-govinda* (1.11).
 
 ### CC Adi 4.225
 
-> শ্রীকৃষ্ণচৈতন্য গোসাঞি রসের সদন ।
-> অশেষ-বিশেষে কৈল রস আস্বাদন ॥২২৫॥
-
 > śrī-kṛṣṇa-caitanya gosāñi rasera sadana
 > aśeṣa-viśeṣe kaila rasa āsvādana
 
@@ -8251,9 +6468,6 @@ This is a verse from the *Gīta-govinda* (1.11).
 **Lord Śrī Kṛṣṇa Caitanya is the abode of rasa. He Himself tasted the sweetness of rasa in endless ways.**
 
 ### CC Adi 4.226
-
-> সেই দ্বারে প্রবর্তাইল কলিযুগ-ধর্ম ।
-> চৈতন্যের দাসে জানে এই সব মর্ম ॥২২৬॥
 
 > sei dvāre pravartāila kali-yuga-dharma
 > caitanyera dāse jāne ei saba marma
@@ -8265,11 +6479,6 @@ This is a verse from the *Gīta-govinda* (1.11).
 Lord Caitanya is Śrī Kṛṣṇa Himself, the absolute enjoyer of the love of the *gopīs.* He Himself assumes the role of the *gopīs* to taste the predominated happiness of transcendental mellows. He appeared in that mode, but simultaneously He propagated the religious process for this age in a most fascinating way. Only the confidential devotees of Śrī Caitanya Mahāprabhu can understand this transcendental secret.
 
 ### CC Adi 4.227-228
-
-> অদ্বৈত আচার্য, নিত্যানন্দ, শ্রীনিবাস ।
-> গদাধর, দামোদর, মুরারি, হরিদাস ॥২২৭॥
-> আর যত চৈতন্য-কৃষ্ণের ভক্তগণ ।
-> ভক্তিভাবে শিরে ধরি সবার চরণ ॥২২৮॥
 
 > advaita ācārya, nityānanda, śrīnivāsa
 > gadādhara, dāmodara, murāri, haridāsa
@@ -8285,9 +6494,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.229
 
-> ষষ্ঠশ্লোকের এই কহিল আভাস ।
-> মূল শ্লোকের অর্থ শুন করিয়ে প্রকাশ ॥২২৯॥
-
 > ṣaṣṭha-ślokera ei kahila ābhāsa
 > mūla ślokera artha śuna kariye prakāśa
 
@@ -8296,11 +6502,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **I have given a hint of the sixth verse. Now please hear as I reveal the meaning of that original verse.**
 
 ### CC Adi 4.230
-
-> শ্রীরাধায়াঃ প্রণয়মহিমা কীদৃশো বানয়ৈবা-
-> স্বাদ্যো যেনাদ্ভুতমধুরিমা কীদৃশো বা মদীয়ঃ ।
-> সৌখ্যঞ্চাস্যা মদনুভবতঃ কীদৃশং বেতি লোভা-
-> ত্তদ্ভাবাঢ্যঃ সমজনি শচীগর্ভসিন্ধৌ হরীন্দুঃ ॥২৩০॥
 
 > śrī-rādhāyāḥ praṇaya-mahimā kīdṛśo vānayaivā-
 > svādyo yenādbhuta-madhurimā kīdṛśo vā madīyaḥ
@@ -8313,9 +6514,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.231
 
-> এ সব সিদ্ধান্ত গূঢ়, — কহিতে না যুয়ায় ।
-> না কহিলে, কেহ ইহার অন্ত নাহি পায় ॥২৩১॥
-
 > e saba siddhānta gūḍha,—kahite nā yuyāya
 > nā kahile, keha ihāra anta nāhi pāya
 
@@ -8324,9 +6522,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **All these conclusions are unfit to disclose in public. But if they are not disclosed, no one will understand them.**
 
 ### CC Adi 4.232
-
-> অতএব কহি কিছু করিঞা নিগূঢ় ।
-> বুঝিবে রসিক ভক্ত, না বুঝিবে মূঢ় ॥২৩২॥
 
 > ataeva kahi kichu kariñā nigūḍha
 > bujhibe rasika bhakta, nā bujhibe mūḍha
@@ -8337,9 +6532,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.233
 
-> হৃদয়ে ধরয়ে যে চৈতন্য-নিত্যানন্দ ।
-> এসব সিদ্ধান্তে সেই পাইবে আনন্দ ॥২৩৩॥
-
 > hṛdaye dharaye ye caitanya-nityānanda
 > e-saba siddhānte sei pāibe ānanda
 
@@ -8348,9 +6540,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **Anyone who has captured Lord Caitanya Mahāprabhu and Lord Nityānanda Prabhu in his heart will become blissful by hearing all these transcendental conclusions.**
 
 ### CC Adi 4.234
-
-> এ সব সিদ্ধান্ত হয় আম্রের পল্লব ।
-> ভক্তগণ-কোকিলের সর্বদা বল্লভ ॥২৩৪॥
 
 > e saba siddhānta haya āmrera pallava
 > bhakta-gaṇa-kokilera sarvadā vallabha
@@ -8361,9 +6550,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.235
 
-> অভক্ত-উষ্ট্রের ইথে না হয় প্রবেশ ।
-> তবে চিত্তে হয় মোর আনন্দ-বিশেষ ॥২৩৫॥
-
 > abhakta-uṣṭrera ithe nā haya praveśa
 > tabe citte haya mora ānanda-viśeṣa
 
@@ -8372,9 +6558,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **The camellike nondevotees cannot enter into these topics. Therefore there is special jubilation in my heart.**
 
 ### CC Adi 4.236
-
-> যে লাগি কহিতে ভয়, সে যদি না জানে ।
-> ইহা বই কিবা সুখ আছে ত্রিভুবনে ॥২৩৬॥
 
 > ye lāgi kahite bhaya, se yadi nā jāne
 > ihā va-i kibā sukha āche tribhuvane
@@ -8385,9 +6568,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.237
 
-> অতএব ভক্তগণে করি নমস্কার ।
-> নিঃশঙ্কে কহিয়ে, তার হউক্ চমৎকার ॥২৩৭॥
-
 > ataeva bhakta-gaṇe kari namaskāra
 > nihśaṅke kahiye, tāra hauk camatkāra
 
@@ -8396,9 +6576,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **Therefore after offering obeisances to the devotees, for their satisfaction I shall speak without hesitating.**
 
 ### CC Adi 4.238
-
-> কৃষ্ণের বিচার এক আছয়ে অন্তরে ।
-> পূর্ণানন্দ-পূর্ণরসরূপ কহে মোরে ॥২৩৮॥
 
 > kṛṣṇera vicara eka āchaye antare
 > pūrṇānanda-pūrṇa-rasa-rūpa kahe more
@@ -8409,9 +6586,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.239
 
-> আমা হইতে আনন্দিত হয় ত্রিভুবন ।
-> আমাকে আনন্দ দিবে — ঐছে কোন্ জন ॥২৩৯॥
-
 > āmā ha-ite ānandita haya tribhuvana
 > āmāke ānanda dibe—aiche kon jana
 
@@ -8420,9 +6594,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **"All the world derives pleasure from Me. Is there anyone who can give Me pleasure?**
 
 ### CC Adi 4.240
-
-> আমা হৈতে যার হয় শত শত গুণ ।
-> সেইজন আহ্লাদিতে পারে মোর মন ॥২৪০॥
 
 > āmā haite yāra haya śata śata guṇa
 > sei-jana āhlādite pāre mora mana
@@ -8433,9 +6604,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.241
 
-> আমা হৈতে গুণী বড় জগতে অসম্ভব ।
-> একলি রাধাতে তাহা করি অনুভব ॥২৪১॥
-
 > āmā haite guṇī baḍa jagate asambhava
 > ekali rādhāte tāhā kari anubhava
 
@@ -8444,11 +6612,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **"One more qualified than Me is impossible to find in the world. But in Rādhā alone I feel the presence of one who can give Me pleasure.**
 
 ### CC Adi 4.242-243
-
-> কোটিকাম জিনি’ রূপ যদ্যপি আমার ।
-> অসমোর্ধ্বমাধুর্য — সাম্য নাহি যার ॥২৪২॥
-> মোর রূপে আপ্যায়িত হয় ত্রিভুবন ।
-> রাধার দর্শনে মোর জুড়ায় নয়ন ॥২৪৩॥
 
 > koṭi-kāma jini' rūpa yadyapi āmāra
 > asamordhva-mādhurya—sāmya nāhi yāra
@@ -8462,9 +6625,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.244
 
-> মোর বংশী-গীতে আকর্ষয়ে ত্রিভুবন ।
-> রাধার বচনে হরে আমার শ্রবণ ॥২৪৪॥
-
 > mora vaṁśī-gīte ākarṣaye tri-bhuvana
 > rādhāra vacane hare āmāra śravaṇa
 
@@ -8473,9 +6633,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **"The vibration of My transcendental flute attracts the three worlds, but My ears are enchanted by the sweet words of Śrīmatī Rādhārāṇī.**
 
 ### CC Adi 4.245
-
-> যদ্যপি আমার গন্ধে জগৎ সুগন্ধ ।
-> মোর চিত্ত-প্রাণ হরে রাধা-অঙ্গ-গন্ধ ॥২৪৫॥
 
 > yadyapi āmāra gandhe jagat sugandha
 > mora citta-prāṇa hare rādhā-aṅga-gandha
@@ -8486,9 +6643,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.246
 
-> যদ্যপি আমার রসে জগৎ সরস ।
-> রাধার অধর-রস আমা করে বশ ॥২৪৬॥
-
 > yadyapi āmāra rase jagat sarasa
 > rādhāra adhara-rasa āmā kare vaśa
 
@@ -8497,9 +6651,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **"Although the entire creation is full of different tastes because of Me, I am charmed by the nectarean taste of the lips of Śrīmatī Rādhārāṇī.**
 
 ### CC Adi 4.247
-
-> যদ্যপি আমার স্পর্শ কোটিন্দু-শীতল ।
-> রাধিকার স্পর্শে আমা করে সুশীতল ॥২৪৭॥
 
 > yadyapi āmāra sparśa koṭīndu-śītala
 > rādhikāra sparśe āmā kare suśītala
@@ -8510,9 +6661,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.248
 
-> এই মত জগতের সুখে আমি হেতু ।
-> রাধিকার রূপগুণ আমার জীবাতু ॥২৪৮॥
-
 > ei mata jagatera sukhe āmi hetu
 > rādhikāra rūpa-guṇa āmāra jīvātu
 
@@ -8521,9 +6669,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **"Thus although I am the source for the happiness of the entire world, the beauty and attributes of Śrī Rādhikā are My life and soul.**
 
 ### CC Adi 4.249
-
-> এই মত অনুভব আমার প্রতীত ।
-> বিচারি’ দেখিয়ে যদি, সব বিপরীত ॥২৪৯॥
 
 > ei mata anubhava āmāra pratīta
 > vicāri' dekhiye yadi, saba viparīta
@@ -8534,9 +6679,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.250
 
-> রাধার দর্শনে মোর জুড়ায় নয়ন ।
-> আমার দর্শনে রাধা সুখে অগেয়ান ॥২৫০॥
-
 > rādhāra darśane mora juḍāya nayana
 > āmāra darśane rādhā sukhe ageyāna
 
@@ -8545,9 +6687,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **"My eyes are fully satisfied when I look upon Śrīmatī Rādhārāṇī, but by looking upon Me, She becomes even more advanced in satisfaction.**
 
 ### CC Adi 4.251
-
-> পরস্পর বেণুগীতে হরয়ে চেতন ।
-> মোর ভ্রমে তমালেরে করে আলিঙ্গন ॥২৫১॥
 
 > paraspara veṇu-gīte haraye cetana
 > mora bhrame tamālere kare āliṅgana
@@ -8558,9 +6697,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.252
 
-> কৃষ্ণ-আলিঙ্গন পাইনু, জনম সফলে ।
-> কৃষ্ণসুখে মগ্ন রহে বৃক্ষ করি’ কোলে ॥২৫২॥
-
 > kṛṣṇa-āliṅgana pāinu, janama saphale
 > kṛṣṇa-sukhe magna rahe vṛkṣa kari' kole
 
@@ -8569,9 +6705,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **“ 'I have gotten the embrace of Śrī Kṛṣṇa,' She thinks, 'so now My life is fulfilled.' Thus She remains immersed in pleasing Kṛṣṇa, taking the tree in Her arms.**
 
 ### CC Adi 4.253
-
-> অনুকূলবাতে যদি পায় মোর গন্ধ ।
-> উড়িয়া পড়িতে চাহে, প্রেমে হয় অন্ধ ॥২৫৩॥
 
 > anukūla-vāte yadi pāya mora gandha
 > uḍiyā paḍite cāhe, preme haya andha
@@ -8582,9 +6715,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.254
 
-> তাম্বূলচর্বিত যবে করে আস্বাদনে ।
-> আনন্দসমুদ্রে ডুবে, কিছুই না জানে ॥২৫৪॥
-
 > tāmbūla-carvita yabe kare āsvādane
 > ānanda-samudre ḍube, kichui nā jāne
 
@@ -8593,9 +6723,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **"When She tastes the betel chewed by Me, She merges in an ocean of joy and forgets everything else.**
 
 ### CC Adi 4.255
-
-> আমার সঙ্গমে রাধা পায় যে আনন্দ ।
-> শতমুখে বলি, তবু না পাই তার অন্ত ॥২৫৫॥
 
 > āmāra saṅgame rādhā pāya ye ānanda
 > śata-mukhe bali, tabu nā pāi tāra anta
@@ -8606,9 +6733,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 
 ### CC Adi 4.256
 
-> লীলা-অন্তে সুখে ইঁহার অঙ্গের মাধুরী ।
-> তাহা দেখি’ সুখে আমি আপনা পাশরি ॥২৫৬॥
-
 > līlā-ante sukhe iṅhāra aṅgera mādhurī
 > tāhā dekhi' sukhe āmi āpanā pāśari
 
@@ -8617,9 +6741,6 @@ The author of *Śrī Caitanya-caritāmṛta* teaches us that we must offer our r
 **"Seeing the luster of Her complexion after Our pastimes together, I forget My own identity in happiness.**
 
 ### CC Adi 4.257
-
-> দোঁহার যে সমরস, ভরতমুনি মানে ।
-> আমার ব্রজের রস সেহ নাহি জানে ॥২৫৭॥
 
 > doṅhāra ye sama-rasa, bharata-muni māne
 > āmāra vrajera rasa seha nāhi jāne
@@ -8632,9 +6753,6 @@ According to expert sexologists like Bharata Muni, both male and female enjoy eq
 
 ### CC Adi 4.258
 
-> অন্যের সঙ্গমে আমি যত সুখ পাই ।
-> তাহা হৈতে রাধা-সুখ শত অধিকাই ॥২৫৮॥
-
 > anyera saṅgame āmi yata sukha pāi
 > tāhā haite rādhā-sukha śata adhikāi
 
@@ -8643,11 +6761,6 @@ According to expert sexologists like Bharata Muni, both male and female enjoy eq
 **"The happiness I feel when meeting Rādhārāṇī is a hundred times greater than the happiness I get from meeting others."**
 
 ### CC Adi 4.259
-
-> নির্ধূতামৃতমাধুরীপরিমলঃ কল্যাণি বিম্বাধরো
-> বক্ত্রং পঙ্কজসৌরভং কুহরিতশ্লাঘাভিদস্তে গিরঃ ।
-> অঙ্গং চন্দনশীতলং তনুরিয়ং সৌন্দর্যসর্বস্বভাক্
-> ত্বামাসাদ্য মমেদমিন্দ্রিয়কুলং রাধে মুহুর্মোদতে ॥২৫৯॥
 
 > nirdhūtāmṛta-mādhurī-parimalaḥ kalyāṇi bimbādharo
 > vaktraṁ paṅkaja-saurabhaṁ kuharita-ślāghā-bhidas te giraḥ
@@ -8662,11 +6775,6 @@ This verse, spoken by Lord Kṛṣṇa to Rādhā, is recorded in the *Lalita-m�
 
 ### CC Adi 4.260
 
-> রূপে কংসহরস্য লুব্ধনয়নাং স্পর্শেঽতিহৃষ্যত্ত্বচং
-> বাণ্যামুৎকলিতশ্রুতিং পরিমলে সংহৃষ্টনাসাপুটাম্ ।
-> আরজ্যদ্রসনাং কিলাধরপুটে ন্যঞ্চন্মুখাম্ভোরুহাং
-> দম্ভোদ্গীর্ণমহাধৃতিং বহিরপি প্রোদ্যদ্বিকারাকুলাম্ ॥২৬০॥
-
 > rūpe kaṁsa-harasya lubdha-nayanāṁ sparśe 'tihṛṣyat-tvacaṁ
 > vāṇyām utkalita-śrutiṁ parimale saṁhṛṣṭa-nāsā-puṭām
 > ārajyad-rasanāṁ kilādhara-puṭe nyañcan-mukhāmbho-ruhāṁ
@@ -8680,9 +6788,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 
 ### CC Adi 4.261
 
-> তাতে জানি, মোতে আছে কোন এক রস ।
-> আমার মোহিনী রাধা, তারে করে বশ ॥২৬১॥
-
 > tāte jāni, mote āche kona eka rasa
 > āmāra mohinī rādhā, tāre kare vaśa
 
@@ -8691,9 +6796,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 **"Considering this, I can understand that some unknown mellow in Me controls the entire existence of My captivator, Śrīmatī Rādhārāṇī.**
 
 ### CC Adi 4.262
-
-> আমা হৈতে রাধা পায় যে জাতীয় সুখ ।
-> তাহা আস্বাদিতে আমি সদাই উন্মুখ ॥২৬২॥
 
 > āmā haite rādhā pāya ye jātīya sukha
 > tāhā āsvādite āmi sadāi unmukha
@@ -8704,9 +6806,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 
 ### CC Adi 4.263
 
-> নানা যত্ন করি আমি, নারি আস্বাদিতে ।
-> সেই সুখমাধুর্য-ঘ্রাণে লোভ বাঢ়ে চিত্তে ॥২৬৩॥
-
 > nānā yatna kari āmi, nāri āsvādite
 > sei sukha-mādhurya-ghrāṇe lobha bāḍhe citte
 
@@ -8715,9 +6814,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 **"In spite of various efforts, I have not been able to taste it. But My desire to relish that pleasure increases as I smell its sweetness.**
 
 ### CC Adi 4.264
-
-> রস আস্বাদিতে আমি কৈল অবতার ।
-> প্রেমরস আস্বাদিল বিবিধ প্রকার ॥২৬৪॥
 
 > rasa āsvādite āmi kaila avatāra
 > prema-rasa āsvādiba vividha prakāra
@@ -8728,9 +6824,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 
 ### CC Adi 4.265
 
-> রাগমার্গে ভক্ত ভক্তি করে যে প্রকারে ।
-> তাহা শিখাইল লীলা-আচরণ-দ্বারে ॥২৬৫॥
-
 > rāga-mārge bhakta bhakti kare ye prakāre
 > tāhā śikhāiba līlā-ācaraṇa-dvāre
 
@@ -8739,9 +6832,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 **"I shall teach devotional service, which springs from the spontaneous love of the devotees, by demonstrating it Myself with My pastimes.**
 
 ### CC Adi 4.266
-
-> এই তিন তৃষ্ণা মোর নহিল পূরণ ।
-> বিজাতীয়-ভাবে নহে তাহা আস্বাদন ॥২৬৬॥
 
 > ei tina tṛṣṇā mora nahila pūraṇa
 > vijātīya-bhāve nahe tāhā āsvādana
@@ -8752,9 +6842,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 
 ### CC Adi 4.267
 
-> রাধিকার ভাবকান্তি অঙ্গীকার বিনে ।
-> সেই তিন সুখ কভু নহে আস্বাদনে ॥২৬৭॥
-
 > rādhikāra bhāva-kānti aṅgīkāra vine
 > sei tina sukha kabhu nahe āsvādane
 
@@ -8763,9 +6850,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 **"Unless I accept the luster of the ecstatic love of Śrī Rādhikā, these three desires cannot be fulfilled.**
 
 ### CC Adi 4.268
-
-> রাধাভাব অঙ্গীকরি’ ধরি’ তার বর্ণ ।
-> তিনসুখ আস্বাদিতে হব অবতীর্ণ ॥২৬৮॥
 
 > rādhā-bhāva aṅgīkari' dhari' tāra varṇa
 > tina-sukha āsvādite haba avatīrṇa
@@ -8776,9 +6860,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 
 ### CC Adi 4.269
 
-> সর্বভাবে কৈল কৃষ্ণ এই ত’ নিশ্চয় ।
-> হেনকালে আইল যুগাবতার-সময় ॥২৬৯॥
-
 > sarva-bhāve kaila kṛṣṇa ei ta' niścaya
 > hena-kāle āila yugāvatāra-samaya
 
@@ -8788,9 +6869,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 
 ### CC Adi 4.270
 
-> সেইকালে শ্রীঅদ্বৈত করেন আরাধন ।
-> তাঁহার হুঙ্কারে কৈল কৃষ্ণে আকর্ষণ ॥২৭০॥
-
 > sei-kāle śrī-advaita karena ārādhana
 > tāṅhāra huṅkāre kaila kṛṣṇe ākarṣaṇa
 
@@ -8799,11 +6877,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 **At that time Śrī Advaita was earnestly worshiping Him. Advaita attracted Him with His loud calls.**
 
 ### CC Adi 4.271-272
-
-> পিতামাতা, গুরুগণ, আগে অবতারি’ ।
-> রাধিকার ভাব-বর্ণ অঙ্গীকার করি’ ॥২৭১॥
-> নবদ্বীপে শচীগর্ভ-শুদ্ধদুগ্ধসিন্ধু ।
-> তাহাতে প্রকট হৈলা কৃষ্ণ পূর্ণ ইন্দু ॥২৭২॥
 
 > pitā-mātā, guru-gaṇa, āge avatāri'
 > rādhikāra bhāva-varṇa aṅgīkāra kari'
@@ -8817,9 +6890,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 
 ### CC Adi 4.273
 
-> এই ত’ করিলুঁ ষষ্ঠশ্লোকের ব্যাখ্যান ।
-> শ্রীরূপ-গোসাঞির পাদপদ্ম করি’ ধ্যান ॥২৭৩॥
-
 > ei ta' kariluṅ ṣaṣṭha ślokera vyākhyāna
 > śrī-rūpa-gosāñira pāda-padma kari' dhyāna
 
@@ -8829,9 +6899,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 
 ### CC Adi 4.274
 
-> এই দুই শ্লোকের আমি যে করিল অর্থ ।
-> শ্রীরূপ-গোসাঞির শ্লোক প্রমাণ সমর্থ ॥২৭৪॥
-
 > ei dui ślokera āmi ye karila artha
 > śrī-rūpa-gosāñira śloka pramāṇa samartha
 
@@ -8840,11 +6907,6 @@ Thus Śrīla Rūpa Gosvāmī describes the countenance of Rādhārāṇī.
 **I can support the explanation of these two verses [verses 5 and 6 of the First Chapter] with a verse by Śrī Rūpa Gosvāmī'.**
 
 ### CC Adi 4.275
-
-> অপারং কস্যাপি প্রণয়িজনবৃন্দস্য কুতুকী
-> রসস্তোমং হৃত্বা মধুরমুপভোক্তুং কমপি যঃ ।
-> রুচং স্বামাবব্রে দ্যুতিমিহ তদীয়াং প্রকটয়ন্
-> স দেবশ্চৈতন্যাকৃতিরতিতরাং নঃ কৃপয়তু ॥২৭৫॥
 
 > apāraṁ kasyāpi praṇayi-jana-vṛndasya kutukī
 > rasa-stomaṁ hṛtvā madhuram upabhoktuṁ kam api yaḥ
@@ -8859,9 +6921,6 @@ This is the third verse of the second *Caitanyāṣṭaka* of Śrīla Rūpa Gosv
 
 ### CC Adi 4.276
 
-> মঙ্গলাচরণং কৃষ্ণচৈতন্য-তত্ত্বলক্ষণম্ ।
-> প্রয়োজনঞ্চাবতারে শ্লোকষট্কৈর্নিরূপিতম্ ॥২৭৬॥
-
 > maṅgalācaraṇaṁ kṛṣṇa-
 > caitanya-tattva-lakṣaṇam
 > prayojanaṁ cāvatāre
@@ -8872,9 +6931,6 @@ This is the third verse of the second *Caitanyāṣṭaka* of Śrīla Rūpa Gosv
 **Thus the auspicious invocation, the essential nature of the truth of Lord Caitanya, and the need for His appearance have been set forth in six verses.**
 
 ### CC Adi 4.277
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥২৭৭॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -8889,9 +6945,6 @@ This is the third verse of the second *Caitanyāṣṭaka* of Śrīla Rūpa Gosv
 
 ### CC Adi 5.1
 
-> বন্দেঽনন্তাদ্ভুতৈশ্বর্যং শ্রীনিত্যানন্দমীশ্বরম্ ।
-> যস্যেচ্ছয়া তত্স্বরূপমজ্ঞেনাপি নিরূপ্যতে ॥১॥
-
 > vande 'nantādbhutaiśvaryaṁ
 > śrī-nityānandam īśvaram
 > yasyecchayā tat-svarūpam
@@ -8903,9 +6956,6 @@ This is the third verse of the second *Caitanyāṣṭaka* of Śrīla Rūpa Gosv
 
 ### CC Adi 5.2
 
-> জয় জয় শ্রীচৈতন্য জয় নিত্যানন্দ ।
-> জয়াদ্বৈতচন্দ্র জয় গৌরভক্তবৃন্দ ॥২॥
-
 > jaya jaya śrī-caitanya jaya nityānanda
 > jayādvaita-candra jaya gaura-bhakta-vṛnda
 
@@ -8915,9 +6965,6 @@ This is the third verse of the second *Caitanyāṣṭaka* of Śrīla Rūpa Gosv
 
 ### CC Adi 5.3
 
-> এই ষট্শ্লোকে কহিল কৃষ্ণচৈতন্য-মহিমা ।
-> পঞ্চশ্লোকে কহি নিত্যানন্দতত্ত্ব-সীমা ॥৩॥
-
 > ei ṣaṭ-śloke kahila kṛṣṇa-caitanya-mahimā
 > pañca-śloke kahi nityānanda-tattva-sīmā
 
@@ -8926,9 +6973,6 @@ This is the third verse of the second *Caitanyāṣṭaka* of Śrīla Rūpa Gosv
 **I have described the glory of Śrī Kṛṣṇa Caitanya in six verses. Now, in five verses, I shall describe the glory of Lord Nityānanda.**
 
 ### CC Adi 5.4
-
-> সর্ব-অবতারী কৃষ্ণ স্বয়ং ভগবান্ ।
-> তাঁহার দ্বিতীয় দেহ শ্রীবলরাম ॥৪॥
 
 > sarva-avatārī kṛṣṇa svayaṁ bhagavān
 > tāṅhāra dvitīya deha śrī-balarāma
@@ -8941,9 +6985,6 @@ Lord Śrī Kṛṣṇa, the absolute Personality of Godhead, is the primeval Lor
 
 ### CC Adi 5.5
 
-> একই স্বরূপ দোঁহে, ভিন্নমাত্র কায় ।
-> আদ্য কায়ব্যূহ, কৃষ্ণলীলার সহায় ॥৫॥
-
 > eka-i svarūpa doṅhe, bhinna-mātra kāya
 > ādya kāya-vyūha, kṛṣṇa-līlāra sahāya
 
@@ -8955,9 +6996,6 @@ Balarāma is a *svāṁśa* expansion of the Lord, and therefore there is no dif
 
 ### CC Adi 5.6
 
-> সেই কৃষ্ণ — নবদ্বীপে শ্রীচৈতন্যচন্দ্র ।
-> সেই বলরাম — সঙ্গে শ্রীনিত্যানন্দ ॥৬॥
-
 > sei kṛṣṇa—navadvīpe śrī-caitanya-candra
 > sei balarāma—saṅge śrī-nityānanda
 
@@ -8966,11 +7004,6 @@ Balarāma is a *svāṁśa* expansion of the Lord, and therefore there is no dif
 **That original Lord Kṛṣṇa appeared in Navadvīpa as Lord Caitanya, and Balarāma appeared with Him as Lord Nityānanda.**
 
 ### CC Adi 5.7
-
-> সঙ্কষর্ণ়ঃ কারণতোয়শায়ী
-> গর্ভোদশায়ী চ পয়োঽব্ধিশায়ী ।
-> শেষশ্চ যস্যাংশকলাঃ স
-> নিত্যানন্দাখ্যরামঃ শরণং মমাস্তু ॥৭॥
 
 > saṅkarṣaṇaḥ kāraṇa-toya-śāyī
 > garbhoda-śāyī ca payobdhi-śāyī
@@ -8985,9 +7018,6 @@ Balarāma is a *svāṁśa* expansion of the Lord, and therefore there is no dif
 
 ### CC Adi 5.8
 
-> শ্রীবলরাম গোসাঞি মূল-সঙ্কর্ষণ ।
-> পঞ্চরূপ ধরি’ করেন কৃষ্ণের সেবন ॥৮॥
-
 > śrī-balarāma gosāñi mūla-saṅkarṣaṇa
 > pañca-rūpa dhari' karena kṛṣṇera sevana
 
@@ -8997,9 +7027,6 @@ Balarāma is a *svāṁśa* expansion of the Lord, and therefore there is no dif
 
 ### CC Adi 5.9
 
-> আপনে করেন কৃষ্ণলীলার সহায় ।
-> সৃষ্টিলীলা-কার্য করে ধরি’ চারি কায় ॥৯॥
-
 > āpane karena kṛṣṇa-līlāra sahāya
 > sṛṣṭi-līlā-kārya kare dhari' cāri kāya
 
@@ -9008,9 +7035,6 @@ Balarāma is a *svāṁśa* expansion of the Lord, and therefore there is no dif
 **He Himself helps in the pastimes of Lord Kṛṣṇa, and He does the work of creation in four other forms.**
 
 ### CC Adi 5.10
-
-> সৃষ্ট্যাদিক সেবা, — তাঁর আজ্ঞার পালন ।
-> ‘শেষ’-রূপে করে কৃষ্ণের বিবিধ সেবন ॥১০॥
 
 > sṛṣṭy-ādika sevā,—tāṅra ājñāra pālana
 > 'śeṣa'-rūpe kare kṛṣṇera vividha sevana
@@ -9023,9 +7047,6 @@ According to expert opinion, Balarāma, as the chief of the original quadruple f
 
 ### CC Adi 5.11
 
-> সর্বরূপে আস্বাদয়ে কৃষ্ণ-সেবানন্দ ।
-> সেই বলরাম — গৌরসঙ্গে নিত্যানন্দ ॥১১॥
-
 > sarva-rūpe āsvādaye kṛṣṇa-sevānanda
 > sei balarāma—gaura-saṅge nityānanda
 
@@ -9035,9 +7056,6 @@ According to expert opinion, Balarāma, as the chief of the original quadruple f
 
 ### CC Adi 5.12
 
-> সপ্তম শ্লোকের অর্থ করি চারিশ্লোকে ।
-> যাতে নিত্যানন্দতত্ত্ব জানে সর্বলোকে ॥১২॥
-
 > saptama ślokera artha kari cāri-śloke
 > yāte nityānanda-tattva jāne sarva-loke
 
@@ -9046,11 +7064,6 @@ According to expert opinion, Balarāma, as the chief of the original quadruple f
 **I have explained this seventh verse in four subsequent verses. By these verses all the world can know the truth about Lord Nityānanda.**
 
 ### CC Adi 5.13
-
-> মায়াতীতে ব্যাপিবৈকুণ্ঠলোকে
-> পূর্ণৈশ্বর্যে শ্রীচতুর্ব্যূহমধ্যে ।
-> রূপং যস্যোদ্ভাতি সঙ্কর্ষণাখ্যং
-> তং শ্রীনিত্যানন্দরামং প্রপদ্যে ॥১৩॥
 
 > māyātīte vyāpi-vaikuṇṭha-loke
 > pūrṇaiśvarye śrī-catur-vyūha-madhye
@@ -9064,9 +7077,6 @@ According to expert opinion, Balarāma, as the chief of the original quadruple f
 This is a verse from Śrī Svarūpa Dāmodara Gosvāmī's diary. It appears as the eighth of the first fourteen verses of *Śrī Caitanya-caritāmṛta.*
 
 ### CC Adi 5.14
-
-> প্রকৃতির পার ‘পরব্যোম’-নামে ধাম ।
-> কৃষ্ণবিগ্রহ যৈছে বিভূত্যাদি-গুণবান্ ॥১৪॥
 
 > prakṛtira pāra 'paravyoma'-nāme dhāma
 > kṛṣṇa-vigraha yaiche vibhūty-ādi-guṇavān
@@ -9091,9 +7101,6 @@ Revealed knowledge may in the beginning be unbelievable because of our paradoxic
 
 ### CC Adi 5.15
 
-> সর্বগ, অনন্ত, বিভু — বৈকুণ্ঠাদি ধাম ।
-> কৃষ্ণ, কৃষ্ণ-অবতারের তাহাঞি বিশ্রাম ॥১৫॥
-
 > sarvaga, ananta, vibhu—vaikuṇṭhādi dhāma
 > kṛṣṇa, kṛṣṇa-avatārera tāhāñi viśrāma
 
@@ -9102,9 +7109,6 @@ Revealed knowledge may in the beginning be unbelievable because of our paradoxic
 **That Vaikuṇṭha region is all-pervading, infinite and supreme. It is the residence of Lord Kṛṣṇa and His incarnations.**
 
 ### CC Adi 5.16
-
-> তাহার উপরিভাগে ‘কৃষ্ণলোক’-খ্যাতি ।
-> দ্বারকা-মথুরা-গোকুল — ত্রিবিধত্বে স্থিতি ॥১৬॥
 
 > tāhāra upari-bhāge 'kṛṣṇa-loka'-khyāti
 > dvārakā-mathurā-gokula—tri-vidhatve sthiti
@@ -9115,9 +7119,6 @@ Revealed knowledge may in the beginning be unbelievable because of our paradoxic
 
 ### CC Adi 5.17
 
-> সর্বোপরি শ্রীগোকুল — ব্রজলোক-ধাম ।
-> শ্রীগোলোক, শ্বেতদ্বীপ, বৃন্দাবন নাম ॥১৭॥
-
 > sarvopari śrī-gokula—vrajaloka-dhāma
 > śrī-goloka, śvetadvīpa, vṛndāvana nāma
 
@@ -9126,9 +7127,6 @@ Revealed knowledge may in the beginning be unbelievable because of our paradoxic
 **Śrī Gokula, the highest of all, is also called Vraja, Goloka, Śvetadvīpa and Vṛndāvana.**
 
 ### CC Adi 5.18
-
-> সর্বগ, অনন্ত, বিভু, কৃষ্ণতনুসম ।
-> উপর্যধো ব্যাপিয়াছে, নাহিক নিয়ম ॥১৮॥
 
 > sarvaga, ananta, vibhu, kṛṣṇa-tanu-sama
 > upary-adho vyāpiyāche, nāhika niyama
@@ -9168,9 +7166,6 @@ From the authoritative evidence cited by Jīva Gosvāmī we may conclude that K�
 
 ### CC Adi 5.19
 
-> ব্রহ্মাণ্ডে প্রকাশ তার কৃষ্ণের ইচ্ছায় ।
-> একই স্বরূপ তার, নাহি দুই কায় ॥১৯॥
-
 > brahmāṇḍe prakāśa tāra kṛṣṇera icchāya
 > eka-i svarūpa tāra, nāhi dui kāya
 
@@ -9181,9 +7176,6 @@ From the authoritative evidence cited by Jīva Gosvāmī we may conclude that K�
 The above-mentioned *dhāmas* are movable, by the omnipotent will of Lord Kṛṣṇa. When Śrī Kṛṣṇa appears on the face of the earth, He can also make His *dhāmas* appear, without changing their original structure. One should not discriminate between the *dhāmas* on the earth and those in the spiritual sky, thinking those on earth to be material and the original abodes to be spiritual. All of them are spiritual. Only for us, who cannot experience anything beyond matter in our present conditioned state, do the *dhāmas* and the Lord Himself, in His *arcā* form, appear before us resembling matter to give us the facility to see spirit with material eyes. In the beginning this may be difficult for a neophyte to understand, but in due course, when one is advanced in devotional service, it will be easier, and he will appreciate the Lord's presence in these tangible forms.
 
 ### CC Adi 5.20
-
-> চিন্তামণিভূমি, কল্পবৃক্ষময় বন ।
-> চর্মচক্ষে দেখে তারে প্রপঞ্চের সম ॥২০॥
 
 > cintāmaṇi-bhūmi, kalpa-vṛkṣa-maya vana
 > carma-cakṣe dekhe tāre prapañcera sama
@@ -9200,9 +7192,6 @@ Foolish persons engrossed in their material assets are unnecessarily proud of be
 
 ### CC Adi 5.21
 
-> প্রেমনেত্রে দেখে তার স্বরূপ-প্রকাশ ।
-> গোপ-গোপীসঙ্গে যাঁহা কৃষ্ণের বিলাস ॥২১॥
-
 > prema-netre dekhe tāra svarūpa-prakāśa
 > gopa-gopī-saṅge yāṅhā kṛṣṇera vilāsa
 
@@ -9211,11 +7200,6 @@ Foolish persons engrossed in their material assets are unnecessarily proud of be
 **But with the eyes of love of Godhead one can see its real identity as the place where Lord Kṛṣṇa performs His pastimes with the cowherd boys and cowherd girls.**
 
 ### CC Adi 5.22
-
-> চিন্তামণিপ্রকরসদ্মসু কল্পবৃক্ষ-
-> লক্ষাবৃতেষু সুরভীরভিপালয়ন্তম্ ।
-> লক্ষ্মীসহস্রশতসম্ভ্রমসেব্যমানং
-> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥২২॥
 
 > cintāmaṇi-prakara-sadmasu kalpa-vṛkṣa-
 > lakṣāvṛteṣu surabhīr abhipālayantam
@@ -9282,9 +7266,6 @@ According to Śukadeva Gosvāmī, the above description of the material and spir
 
 ### CC Adi 5.23
 
-> মথুরা-দ্বারকায় নিজরূপ প্রকাশিয়া ।
-> নানারূপে বিলসয়ে চতুর্ব্যূহ হৈঞা ॥২৩॥
-
 > mathurā-dvārakāya nija-rūpa prakāśiyā
 > nānā-rūpe vilasaye catur-vyūha haiñā
 
@@ -9293,9 +7274,6 @@ According to Śukadeva Gosvāmī, the above description of the material and spir
 **He manifests His own, form in Mathurā and Dvārakā. He enjoys pastimes in various ways by expanding into the quadruple forms.**
 
 ### CC Adi 5.24
-
-> বাসুদেব-সঙ্কর্ষণ-প্রদ্যুম্নানিরুদ্ধ ।
-> সর্বচতুর্ব্যূহ-অংশী, তুরীয়, বিশুদ্ধ ॥২৪॥
 
 > vāsudeva-saṅkarṣaṇa-pradyumnāniruddha
 > sarva-catur-vyūha-aṁśī, turīya, viśuddha
@@ -9306,9 +7284,6 @@ According to Śukadeva Gosvāmī, the above description of the material and spir
 
 ### CC Adi 5.25
 
-> এই তিন লোকে কৃষ্ণ কেবল-লীলাময় ।
-> নিজগণ লঞা খেলে অনন্ত সময় ॥২৫॥
-
 > ei tina loke kṛṣṇa kevala-līlā-maya
 > nija-gaṇa lañā khele ananta samaya
 
@@ -9318,9 +7293,6 @@ According to Śukadeva Gosvāmī, the above description of the material and spir
 
 ### CC Adi 5.26
 
-> পরব্যোম-মধ্যে করি’ স্বরূপ প্রকাশ ।
-> নারায়ণরূপে করেন বিবিধ বিলাস ॥২৬॥
-
 > para-vyoma-madhye kari' svarūpa prakāśa
 > nārāyaṇa-rūpe karena vividha vilāsa
 
@@ -9329,11 +7301,6 @@ According to Śukadeva Gosvāmī, the above description of the material and spir
 **In the Vaikuṇṭha planets of the spiritual sky the Lord manifests His identity as Nārāyaṇa and performs pastimes in various ways.**
 
 ### CC Adi 5.27-28
-
-> স্বরূপবিগ্রহ কৃষ্ণের কেবল দ্বিভুজ ।
-> নারায়ণরূপে সেই তনু চতুর্ভুজ ॥২৭॥
-> শঙ্খ-চক্র-গদা-পদ্ম, মহৈশ্বর্যময় ।
-> শ্রী-ভূ-নীলা-শক্তি যাঁর চরণ সেবয় ॥২৮॥
 
 > svarūpa-vigraha kṛṣṇera kevala dvi-bhuja
 > nārāyaṇa-rūpe sei tanu catur-bhuja
@@ -9367,9 +7334,6 @@ In his *Bhagavat-sandarbha* (Part 23, Texts 8-9), Śrīla Jīva Gosvāmī Prabhu
 
 ### CC Adi 5.29
 
-> যদ্যপি কেবল তাঁর ক্রীড়ামাত্র ধর্ম ।
-> তথাপি জীবেরে কৃপায় করে এক কর্ম ॥২৯॥
-
 > yadyapi kevala tāṅra krīḍā-mātra dharma
 > tathāpi jīvere kṛpāya kare eka karma
 
@@ -9378,9 +7342,6 @@ In his *Bhagavat-sandarbha* (Part 23, Texts 8-9), Śrīla Jīva Gosvāmī Prabhu
 **Although His pastimes are His only characteristic functions, by His causeless mercy He performs one activity for the fallen souls.**
 
 ### CC Adi 5.30
-
-> সালোক্য-সামীপ্য-সার্ষ্টি-সারূপ্যপ্রকার ।
-> চারি মুক্তি দিয়া করে জীবের নিস্তার ॥৩০॥
 
 > sālokya-sāmīpya-sārṣṭi-sārūpya-prakāra
 > cāri mukti diyā kare jīvera nistāra
@@ -9393,9 +7354,6 @@ There are two kinds of liberated souls—those who are liberated by the favor of
 
 ### CC Adi 5.31
 
-> ব্রহ্মসাযুজ্য-মুক্তের তাহা নাহি গতি ।
-> বৈকুণ্ঠ-বাহিরে হয় তা’সবার স্থিতি ॥৩১॥
-
 > brahma-sāyujya-muktera tāhā nāhi gati
 > vaikuṇṭha-bāhire haya tā'-sabāra sthiti
 
@@ -9404,9 +7362,6 @@ There are two kinds of liberated souls—those who are liberated by the favor of
 **Those who attain brahma-sāyujya liberation cannot gain entrance into Vaikuṇṭha; their residence is outside the Vaikuṇṭha planets.**
 
 ### CC Adi 5.32
-
-> বৈকুণ্ঠ-বাহিরে এক জ্যোতির্ময় মণ্ডল ।
-> কৃষ্ণের অঙ্গের প্রভা, পরম উজ্জ্বল ॥৩২॥
 
 > vaikuṇṭha-bāhire eka jyotir-maya maṇḍala
 > kṛṣṇera aṅgera prabhā, parama ujjvala
@@ -9417,9 +7372,6 @@ There are two kinds of liberated souls—those who are liberated by the favor of
 
 ### CC Adi 5.33
 
-> ‘সিদ্ধলোক’ নাম তার প্রকৃতির পার ।
-> চিৎস্বরূপ, তাঁহা নাহি চিচ্ছক্তি-বিকার ॥৩৩॥
-
 > 'siddha-loka' nāma tāra prakṛtira pāra
 > cit-svarūpa, tāṅhā nāhi cic-chakti vikāra
 
@@ -9428,9 +7380,6 @@ There are two kinds of liberated souls—those who are liberated by the favor of
 **That region is called Siddhaloka, and it is beyond the material nature. Its essence is spiritual, but it does not have spiritual varieties.**
 
 ### CC Adi 5.34
-
-> সূর্যমণ্ডল যেন বাহিরে নির্বিশেষ ।
-> ভিতরে সূর্যের রথ-আদি সবিশেষ ॥৩৪॥
 
 > sūrya-maṇḍala yena bāhire nirviśeṣa
 > bhitare sūryera ratha-ādi saviśeṣa
@@ -9442,9 +7391,6 @@ There are two kinds of liberated souls—those who are liberated by the favor of
 Outside of Vaikuṇṭha, the abode of Kṛṣṇa, which is called *paravyoma,* is the glaring effulgence of Kṛṣṇa's bodily rays. This is called the *brahmajyoti.* The transcendental region of that effulgence is called Siddhaloka or Brahmaloka. When impersonalists achieve liberation, they merge into that Brahmaloka effulgence. This transcendental region is undoubtedly spiritual, but it contains no manifestations of spiritual activities or variegatedness. It is compared to the glow of the sun. Within the sun's glow is the sphere of the sun, where one can experience all sorts of varieties.
 
 ### CC Adi 5.35
-
-> কামাদ্দ্বেষাদ্ ভয়াৎ স্নেহাদ্ যথা ভক্ত্যেশ্বরে মনঃ ।
-> আবেশ্য তদঘং হিত্বা বহবস্তদ্গতিং গতাঃ ॥৩৫॥
 
 > kāmād dveṣād bhayāt snehād
 > yathā bhaktyeśvare manaḥ
@@ -9458,9 +7404,6 @@ Outside of Vaikuṇṭha, the abode of Kṛṣṇa, which is called *paravyoma,*
 As the powerful sun, by its glowing rays, can purify all kinds of impurities, so the all-spiritual Personality of Godhead can purify all material qualities in a person He attracts. Even if one is attracted by Godhead in the mode of material lust, such attraction is converted into spiritual love of Godhead by His grace. Similarly, if one is related to the Lord in fear and animosity, he also becomes purified by the spiritual attraction of the Lord. Although God is great and the living entity small, they are spiritual individuals, and therefore as soon as there is a reciprocal exchange by the living entity's free will, at once the great spiritual being attracts the small living entity, thus freeing him from all material bondage. This is a verse from *Śrīmad-Bhāgavatam* (7.1.30).
 
 ### CC Adi 5.36
-
-> যদরীণাং প্রিয়াণাঞ্চ প্রাপ্যমেকমিবোদিতম্ ।
-> তদ্ব্রহ্মকৃষ্ণয়োরৈক্যাৎ কিরণার্কোপমাজুষোঃ ॥৩৬॥
 
 > yad arīṇāṁ priyāṇāṁ ca
 > prāpyam ekam ivoditam
@@ -9485,9 +7428,6 @@ Demons are always accustomed to be malicious toward devotees and to kill *brāhm
 
 ### CC Adi 5.37
 
-> তৈছে পরব্যোমে নানা চিচ্ছক্তিবিলাস ।
-> নির্বিশেষ জ্যোতির্বিম্ব বাহিরে প্রকাশ ॥৩৭॥
-
 > taiche para-vyome nānā cic-chakti-vilāsa
 > nirviśeṣa jyotir-bimba bāhire prakāśa
 
@@ -9497,9 +7437,6 @@ Demons are always accustomed to be malicious toward devotees and to kill *brāhm
 
 ### CC Adi 5.38
 
-> নির্বিশেষ-ব্রহ্ম সেই কেবল জ্যোতির্ময় ।
-> সাযুজ্যের অধিকারী তাঁহা পায় লয় ॥৩৮॥
-
 > nirviśeṣa-brahma sei kevala jyotir-maya
 > sāyujyera adhikārī tāṅhā pāya laya
 
@@ -9508,9 +7445,6 @@ Demons are always accustomed to be malicious toward devotees and to kill *brāhm
 **That impersonal Brahman effulgence consists only of the effulgent rays of the Lord. Those fit for sāyujya liberation merge into that effulgence.**
 
 ### CC Adi 5.39
-
-> সিদ্ধলোকস্তু তমসঃ পারে যত্র বসন্তি হি ।
-> সিদ্ধা ব্রহ্মসুখে মগ্না দৈত্যাশ্চ হরিণা হতাঃ ॥৩৯॥
 
 > siddha-lokas tu tamasaḥ
 > pāre yatra vasanti hi
@@ -9524,9 +7458,6 @@ Demons are always accustomed to be malicious toward devotees and to kill *brāhm
 *Tamas* means darkness. The material world is dark, and beyond the material world is light. In other words, after passing through the entire material atmosphere, one can come to the luminous spiritual sky, whose impersonal effulgence is known as Siddhaloka. Māyāvādī philosophers who aspire to merge with the body of the Supreme Personality of Godhead, as well as demoniac persons who are killed by Kṛṣṇa, such as Kaṁsa and Śiśupāla, enter that Brahman effulgence. *Yogīs* who attain oneness through meditation according to the Patañjali *yoga* system also reach Siddhaloka. This is a verse from the *Brahmāṇḍa Purāṇa.*
 
 ### CC Adi 5.40
-
-> সেই পরব্যোমে নারায়ণের চারি পাশে ।
-> দ্বারকা-চতুর্ব্যূহের দ্বিতীয় প্রকাশে ॥৪০॥
 
 > sei para-vyome nārāyaṇera cāri pāśe
 > dvārakā-catur-vyūhera dvitīya prakāśe
@@ -9544,9 +7475,6 @@ In considering the quadruple forms of the absolute Personality of Godhead, known
 The *Padma Purāṇa,* as quoted by Śrīla Rūpa Gosvāmī in his *Laghu-bhāgavatāmṛta,* describes that in the spiritual sky there are four directions, corresponding to east, west, north and south, in which Vāsudeva, Saṅkarṣaṇa, Aniruddha and Pradyumna are situated. The same forms are also situated in the material sky. The *Padma Purāṇa* also describes a place in the spiritual sky known as Vedavatī-pura, where Vāsudeva resides. In Viṣṇuloka, which is above Satyaloka, Saṅkarṣaṇa resides. Mahā-saṅkarṣaṇa is another name of Saṅkarṣaṇa. Pradyumna lives in Dvārakā-pura, and Aniruddha lies on the eternal bed of Śeṣa, generally known as *ananta-śayyā,* on the island called Śvetadvīpa, in the ocean of milk.
 
 ### CC Adi 5.41
-
-> বাসুদেব-সঙ্কর্ষণ-প্রদ্যুম্নানিরুদ্ধ ।
-> ‘দ্বিতীয় চতুর্ব্যূহ’ এই — তুরীয়, বিশুদ্ধ ॥৪১॥
 
 > vāsudeva-saṅkarṣaṇa-pradyumnāniruddha
 > 'dvitīya catur-vyūha' ei—turīya, viśuddha
@@ -9686,9 +7614,6 @@ Saṅkarṣaṇa is the origin of Kāraṇa Viṣṇu, who is the original form 
 
 ### CC Adi 5.42
 
-> তাঁহা যে রামের রূপ — মহাসঙ্কর্ষণ ।
-> চিচ্ছক্তি-আশ্রয় তিহোঁ, কারণের কারণ ॥৪২॥
-
 > tāṅhā ye rāmera rūpa—mahā-saṅkarṣaṇa
 > cic-chakti-āśraya tiṅho, kāraṇera kāraṇa
 
@@ -9697,9 +7622,6 @@ Saṅkarṣaṇa is the origin of Kāraṇa Viṣṇu, who is the original form 
 **There the personal feature of Balarāma called Mahā-saṅkarṣaṇa is the shelter of the spiritual energy. He is the primary cause, the cause of all causes.**
 
 ### CC Adi 5.43
-
-> চিচ্ছক্তি-বিলাস এক — ‘শুদ্ধসত্ত্ব’ নাম ।
-> শুদ্ধসত্ত্বময় যত বৈকুণ্ঠাদি-ধাম ॥৪৩॥
 
 > cic-chakti-vilāsa eka—'śuddha-sattva' nāma
 > śuddha-sattva-maya yata vaikuṇṭhādi-dhāma
@@ -9710,9 +7632,6 @@ Saṅkarṣaṇa is the origin of Kāraṇa Viṣṇu, who is the original form 
 
 ### CC Adi 5.44
 
-> ষড়্বিধৈশ্বর্য তাঁহা সকল চিন্ময় ।
-> সঙ্কর্ষণের বিভূতি সব, জানিহ নিশ্চয় ॥৪৪॥
-
 > ṣaḍ-vidhaiśvarya tāṅhā sakala cinmaya
 > saṅkarṣaṇera vibhūti saba, jāniha niścaya
 
@@ -9721,9 +7640,6 @@ Saṅkarṣaṇa is the origin of Kāraṇa Viṣṇu, who is the original form 
 **The six attributes are all spiritual. Know for certain that they are all manifestations of the opulence of Saṅkarṣaṇa.**
 
 ### CC Adi 5.45
-
-> ‘জীব’-নাম তটস্থাখ্য এক শক্তি হয় ।
-> মহাসঙ্কর্ষণ — সব জীবের আশ্রয় ॥৪৫॥
 
 > 'jīva'-nāma taṭasthākhya eka śakti haya
 > mahā-saṅkarṣaṇa—saba jīvera āśraya
@@ -9734,9 +7650,6 @@ Saṅkarṣaṇa is the origin of Kāraṇa Viṣṇu, who is the original form 
 
 ### CC Adi 5.46
 
-> যাঁহা হৈতে বিশ্বোৎপত্তি, যাঁহাতে প্রলয় ।
-> সেই পুরুষের সঙ্কর্ষণ সমাশ্রয় ॥৪৬॥
-
 > yāṅhā haite viśvotpatti, yāṅhāte pralaya
 > sei puruṣera saṅkarṣaṇa samāśraya
 
@@ -9745,9 +7658,6 @@ Saṅkarṣaṇa is the origin of Kāraṇa Viṣṇu, who is the original form 
 **Saṅkarṣaṇa is the original shelter of the puruṣa, from whom this world is created and in whom it is dissolved.**
 
 ### CC Adi 5.47
-
-> সর্বাশ্রয়, সর্বাদ্ভুত, ঐশ্বর্য অপার ।
-> ‘অনন্ত’ কহিতে নারে মহিমা যাঁহার ॥৪৭॥
 
 > sarvāśraya, sarvādbhuta, aiśvarya apāra
 > 'ananta' kahite nāre mahimā yāṅhāra
@@ -9758,9 +7668,6 @@ Saṅkarṣaṇa is the origin of Kāraṇa Viṣṇu, who is the original form 
 
 ### CC Adi 5.48
 
-> তুরীয়, বিশুদ্ধসত্ত্ব, ‘সঙ্কর্ষণ’ নাম ।
-> তিঁহো যাঁর অংশ, সেই নিত্যানন্দ-রাম ॥৪৮॥
-
 > turīya, viśuddha-sattva, 'saṅkarṣaṇa' nāma
 > tiṅho yāṅra aṁśa, sei nityānanda-rāma
 
@@ -9770,9 +7677,6 @@ Saṅkarṣaṇa is the origin of Kāraṇa Viṣṇu, who is the original form 
 
 ### CC Adi 5.49
 
-> অষ্টম শ্লোকের কৈল সংক্ষেপে বিবরণ ।
-> নবম শ্লোকের অর্থ শুন দিয়া মন ॥৪৯॥
-
 > aṣṭama ślokera kaila saṅkṣepe vivaraṇa
 > navama ślokera artha śuna diyā mana
 
@@ -9781,11 +7685,6 @@ Saṅkarṣaṇa is the origin of Kāraṇa Viṣṇu, who is the original form 
 **I have briefly explained the eighth verse. Now please listen with attention as I explain the ninth verse.**
 
 ### CC Adi 5.50
-
-> মায়াভর্তাজাণ্ডসঙঘাশ্রয়াঙ্গঃ
-> শেতে সাক্ষাৎ কারণাম্ভোধি-মধ্যে ।
-> যস্যৈকাংশঃ শ্রীপুমানাদিদেব-
-> স্তং শ্রীনিত্যানন্দরামং প্রপদ্যে ॥৫০॥
 
 > māyā-bhartājāṇḍa-saṅghāśrayāṅgaḥ
 > śete sākṣāt kāraṇāmbhodhi-madhye
@@ -9797,9 +7696,6 @@ Saṅkarṣaṇa is the origin of Kāraṇa Viṣṇu, who is the original form 
 **I offer my full obeisances unto the feet of Śrī Nityānanda Rāma, whose partial representation called Kāraṇodakaśāyī Viṣṇu, lying on the Kāraṇa Ocean, is the original puruṣa, the master of the illusory energy, and the shelter of all the universes.**
 
 ### CC Adi 5.51
-
-> বৈকুণ্ঠ-বাহিরে যেই জ্যোতির্ময় ধাম ।
-> তাহার বাহিরে ‘কারণার্ণব’ নাম ॥৫১॥
 
 > vaikuṇṭha-bāhire yei jyotir-maya dhāma
 > tāhāra bāhire 'kāraṇārṇava' nāma
@@ -9826,9 +7722,6 @@ The modes of nature that directly cause material actions are also originally act
 
 ### CC Adi 5.52
 
-> বৈকুণ্ঠ বেড়িয়া এক আছে জলনিধি ।
-> অন্তত, অপার — তার নাহিক অবধি ॥৫২॥
-
 > vaikuṇṭha beḍiyā eka āche jala-nidhi
 > ananta, apāra—tāra nāhika avadhi
 
@@ -9837,9 +7730,6 @@ The modes of nature that directly cause material actions are also originally act
 **Surrounding Vaikuṇṭha is a mass of water that is endless, unfathomed and unlimited.**
 
 ### CC Adi 5.53
-
-> বৈকুণ্ঠের পৃথিব্যাদি সকল চিন্ময় ।
-> মায়িক ভূতের তথি জন্ম নাহি হয় ॥৫৩॥
 
 > vaikuṇṭhera pṛthivy-ādi sakala cinmaya
 > māyika bhūtera tathi janma nāhi haya
@@ -9850,9 +7740,6 @@ The modes of nature that directly cause material actions are also originally act
 
 ### CC Adi 5.54
 
-> চিন্ময়-জল সেই পরম কারণ ।
-> যার এক কণা গঙ্গা পতিতপাবন ॥৫৪॥
-
 > cinmaya-jala sei parama kāraṇa
 > yāra eka kaṇā gaṅgā patita-pāvana
 
@@ -9861,9 +7748,6 @@ The modes of nature that directly cause material actions are also originally act
 **The water of the Kāraṇa Ocean, which is the original cause, is therefore spiritual. The sacred Ganges, which is but a drop of it, purifies the fallen souls.**
 
 ### CC Adi 5.55
-
-> সেই ত’ কারণার্ণবে সেই সঙ্কর্ষণ ।
-> আপনার এক অংশে করেন শয়ন ॥৫৫॥
 
 > sei ta' kāraṇārṇave sei saṅkarṣaṇa
 > āpanāra eka aṁśe karena śayana
@@ -9874,9 +7758,6 @@ The modes of nature that directly cause material actions are also originally act
 
 ### CC Adi 5.56
 
-> মহৎস্রষ্টা পুরুষ, তিঁহো জগৎ-কারণ ।
-> আদ্য-অবতার করে মায়ায় ঈক্ষণ ॥৫৬॥
-
 > mahat-sraṣṭā puruṣa, tiṅho jagat-kāraṇa
 > ādya-avatāra kare māyāya īkṣaṇa
 
@@ -9886,9 +7767,6 @@ The modes of nature that directly cause material actions are also originally act
 
 ### CC Adi 5.57
 
-> মায়াশক্তি রহে কারণাব্ধির বাহিরে ।
-> কারণ-সমুদ্র মায়া পরশিতে নারে ॥৫৭॥
-
 > māyā-śakti rahe kāraṇābdhira bāhire
 > kāraṇa-samudra māyā paraśite nāre
 
@@ -9897,9 +7775,6 @@ The modes of nature that directly cause material actions are also originally act
 **Māyā-śakti resides outside the Causal Ocean Māyā cannot touch its waters.**
 
 ### CC Adi 5.58
-
-> সেই ত’ মায়ার দুইবিধ অবস্থিতি ।
-> জগতের উপাদান ‘প্রধান’, প্রকৃতি ॥৫৮॥
 
 > sei ta' māyāra dui-vidha avasthiti
 > jagatera upādāna 'pradhāna', prakṛti
@@ -9921,9 +7796,6 @@ Although the living entity is primarily related to the causal portion of *māyā
 
 ### CC Adi 5.59
 
-> জগৎকারণ নহে প্রকৃতি জড়রূপা ।
-> শক্তি সঞ্চারিয়া তারে কৃষ্ণ করে কৃপা ॥৫৯॥
-
 > jagat-kāraṇa nahe prakṛti jaḍa-rūpā
 > śakti sañcāriyā tāre kṛṣṇa kare kṛpā
 
@@ -9933,9 +7805,6 @@ Although the living entity is primarily related to the causal portion of *māyā
 
 ### CC Adi 5.60
 
-> কৃষ্ণশক্ত্যে প্রকৃতি হয় গৌণ কারণ ।
-> অগ্নিশক্ত্যে লৌহ যৈছে করয়ে জারণ ॥৬০॥
-
 > kṛṣṇa-śaktye prakṛti haya gauṇa kāraṇa
 > agni-śaktye lauha yaiche karaye jāraṇa
 
@@ -9944,9 +7813,6 @@ Although the living entity is primarily related to the causal portion of *māyā
 **Thus prakṛti, by the energy of Lord Kṛṣṇa, becomes the secondary cause, just as iron becomes red-hot by the energy of fire.**
 
 ### CC Adi 5.61
-
-> অতএব কৃষ্ণ মূল-জগত্কারণ ।
-> প্রকৃতি — কারণ যৈছে অজাগলস্তন ॥৬১॥
 
 > ataeva kṛṣṇa mūla-jagat-kāraṇa
 > prakṛti—kāraṇa yaiche ajā-gala-stana
@@ -9968,9 +7834,6 @@ Just as a woman can deliver a child after being impregnated by the semen of a ma
 
 ### CC Adi 5.62
 
-> মায়া-অংশে কহি তারে নিমিত্ত-কারণ ।
-> সেহ নহে, যাতে কর্তা-হেতু — নারায়ণ ॥৬২॥
-
 > māyā-aṁśe kahi tāre nimitta-kāraṇa
 > seha nahe, yāte kartā-hetu—nārāyaṇa
 
@@ -9979,9 +7842,6 @@ Just as a woman can deliver a child after being impregnated by the semen of a ma
 **The māyā aspect of material nature is the immediate cause of the cosmic manifestation. But it also cannot be the real cause, for the original cause is Lord Nārāyaṇa.**
 
 ### CC Adi 5.63
-
-> ঘটের নিমিত্ত-হেতু যৈছে কুম্ভকার ।
-> তৈছে জগতের কর্তা — পুরুষাবতার ॥৬৩॥
 
 > ghaṭera nimitta-hetu yaiche kumbhakāra
 > taiche jagatera kartā—puruṣāvatāra
@@ -9992,9 +7852,6 @@ Just as a woman can deliver a child after being impregnated by the semen of a ma
 
 ### CC Adi 5.64
 
-> কৃষ্ণ — কর্তা, মায়া তাঁর করেন সহায় ।
-> ঘটের কারণ — চক্র-দণ্ডাদি উপায় ॥৬৪॥
-
 > kṛṣṇa—kartā, māyā tāṅra karena sahāya
 > ghaṭera kāraṇa—cakra-daṇḍādi upāya
 
@@ -10004,9 +7861,6 @@ Just as a woman can deliver a child after being impregnated by the semen of a ma
 
 ### CC Adi 5.65
 
-> দূর হৈতে পুরুষ করে মায়াতে অবধান ।
-> জীবরূপ বীর্য তাতে করেন আধান ॥৬৫॥
-
 > dūra haite puruṣa kare māyāte avadhāna
 > jīva-rūpa vīrya tāte karena ādhāna
 
@@ -10015,9 +7869,6 @@ Just as a woman can deliver a child after being impregnated by the semen of a ma
 **The first puruṣa casts His glance at māyā from a distance, and thus He impregnates her with the seed of life in the form of the living entities.**
 
 ### CC Adi 5.66
-
-> এক অঙ্গাভাসে করে মায়াতে মিলন ।
-> মায়া হৈতে জন্মে তবে ব্রহ্মাণ্ডের গণ ॥৬৬॥
 
 > eka aṅgābhāse kare māyāte milana
 > māyā haite janme tabe brahmāṇḍera gaṇa
@@ -10044,9 +7895,6 @@ The Supreme Personality of Godhead is the Absolute Whole, and the living entitie
 
 ### CC Adi 5.67
 
-> অগণ্য, অনন্ত যত অণ্ড-সন্নিবেশ ।
-> ততরূপে পুরুষ করে সবাতে প্রকাশ ॥৬৭॥
-
 > agaṇya, ananta yata aṇḍa-sanniveśa
 > tata-rūpe puruṣa kare sabāte prakāśa
 
@@ -10056,9 +7904,6 @@ The Supreme Personality of Godhead is the Absolute Whole, and the living entitie
 
 ### CC Adi 5.68
 
-> পুরুষ-নাসাতে যবে বাহিরায় শ্বাস ।
-> নিশ্বাস সহিতে হয় ব্রহ্মাণ্ড-প্রকাশ ॥৬৮॥
-
 > puruṣa-nāsāte yabe bāhirāya śvāsa
 > niśvāsa sahite haya brahmāṇḍa-prakāśa
 
@@ -10067,9 +7912,6 @@ The Supreme Personality of Godhead is the Absolute Whole, and the living entitie
 **When the puruṣa exhales, the universes become manifest with each outward breath.**
 
 ### CC Adi 5.69
-
-> পুনরপি শ্বাস যবে প্রবেশে অন্তরে ।
-> শ্বাস-সহ ব্রহ্মাণ্ড পৈশে পুরুষ-শরীরে ॥৬৯॥
 
 > punarapi śvāsa yabe praveśe antare
 > śvāsa-saha brahmāṇḍa paiśe puruṣa-śarīre
@@ -10082,9 +7924,6 @@ In His form as Kāraṇodakaśāyī Viṣṇu the Lord impregnates material natu
 
 ### CC Adi 5.70
 
-> গবাক্ষের রন্ধ্রে যেন ত্রসরেণু চলে ।
-> পুরুষের লোমকূপে ব্রহ্মাণ্ডের জালে ॥৭০॥
-
 > gavākṣera randhre yena trasareṇu cale
 > puruṣera loma-kūpe brahmāṇḍera jāle
 
@@ -10093,11 +7932,6 @@ In His form as Kāraṇodakaśāyī Viṣṇu the Lord impregnates material natu
 **Just as atomic particles of dust pass through the openings of a window, so the networks of universes pass through the pores of the skin of the puruṣa.**
 
 ### CC Adi 5.71
-
-> যস্যৈকনিশ্বসিত-কালমথাবলম্ব্য
-> জীবন্তি লোমবিলজা জগদণ্ডনাথাঃ ।
-> বিষ্ণুর্মহান্ স ইহ যস্য কলাবিশেষো
-> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥৭১॥
 
 > yasyaika-niśvasita-kālam athāvalambya
 > jīvanti loma-vila-jā jagad-aṇḍa-nāthāḥ
@@ -10112,11 +7946,6 @@ This description of the Lord's creative energy is from the *Brahma-saṁhitā* (
 
 ### CC Adi 5.72
 
-> ক্বাহং তমো-মহদহং-খ-চরাগ্নিবার্ভূ-
-> সংবেষ্টিতাণ্ডঘট-সপ্তবিতস্তিকায়ঃ ।
-> ক্বেদৃগ্বিধাঽবিগণিতাণ্ডপরাণুচর্যা-
-> বাতাধ্বরোমবিবরস্য চ তে মহিত্বম্ ॥৭২॥
-
 > kvāhaṁ tamo-mahad-ahaṁ-kha-carāgni-vār-bhū-
 > saṁveṣṭitāṇḍa-ghaṭa-sapta-vitasti-kāyaḥ
 > kvedṛg-vidhāvigaṇitāṇḍa-parāṇu-caryā-
@@ -10130,9 +7959,6 @@ When Lord Brahmā, after having stolen all Kṛṣṇa's cows and cowherd boys, 
 
 ### CC Adi 5.73
 
-> অংশের অংশ যেই, ‘কলা’ তার নাম ।
-> গোবিন্দের প্রতিমূর্তি শ্রীবলরাম ॥৭৩॥
-
 > aṁśera aṁśa yei, 'kalā' tāra nāma
 > govindera pratimūrti śrī-balarāma
 
@@ -10141,9 +7967,6 @@ When Lord Brahmā, after having stolen all Kṛṣṇa's cows and cowherd boys, 
 **A part of a part of a whole is called a kalā. Śrī Balarāma is the counterform of Lord Govinda.**
 
 ### CC Adi 5.74
-
-> তাঁর এক স্বরূপ — শ্রীমহাসঙ্কর্ষণ ।
-> তাঁর অংশ ‘পুরুষ’ হয় কলাতে গণন ॥৭৪॥
 
 > tāṅra eka svarūpa—śrī-mahā-saṅkarṣaṇa
 > tāṅra aṁśa 'puruṣa' haya kalāte gaṇana
@@ -10154,9 +7977,6 @@ When Lord Brahmā, after having stolen all Kṛṣṇa's cows and cowherd boys, 
 
 ### CC Adi 5.75
 
-> যাঁহাকে ত’ কলা কহি, তিঁহো মহাবিষ্ণু ।
-> মহাপুরুষাবতারী তেঁহো সর্বজিষ্ণু ॥৭৫॥
-
 > yāṅhāke ta' kalā kahi, tiṅho mahā-viṣṇu
 > mahā-puruṣāvatārī teṅho sarva-jiṣṇu
 
@@ -10165,9 +7985,6 @@ When Lord Brahmā, after having stolen all Kṛṣṇa's cows and cowherd boys, 
 **I say that this kalā is Mahā-Viṣṇu. He is the Mahā-puruṣa, who is the source of the other puruṣas and who is all-pervading.**
 
 ### CC Adi 5.76
-
-> গর্ভোদ-ক্ষীরোদশায়ী দোঁহে ‘পুরুষ’ নাম ।
-> সেই দুই, যাঁর অংশ, — বিষ্ণু, বিশ্বধাম ॥৭৬॥
 
 > garbhoda-kṣīroda-śāyī doṅhe 'puruṣa' nāma
 > sei dui, yāṅra aṁśa,—viṣṇu, viśva-dhāma
@@ -10179,10 +7996,6 @@ When Lord Brahmā, after having stolen all Kṛṣṇa's cows and cowherd boys, 
 The symptoms of the *puruṣa* are described in *Laghu-bhāgavatāmṛta.* While describing the incarnations of the Supreme personality of Godhead, the author has quoted from the *Viṣṇu Purāṇa* (6.8.59), where it is said: "Let me offer my respectful obeisances unto Puruṣottama, Lord Kṛṣṇa, who is always free from the contamination of the six material dualities; whose plenary expansion, Mahā-Viṣṇu, glances over matter to create the cosmic manifestation; who expands Himself in various transcendental forms, all of which are one and the same; who is the master of all living entities; who is always free and liberated from the contamination of material energy; and who, when He appears in this material world, seems one of us, although He has an eternally spiritual, blissful, transcendental form." In summarizing this statement, Rūpa Gosvāmī has concluded that the plenary expansion of the Supreme Personality of Godhead who acts in cooperation with the material energy is called the *puruṣa.*
 
 ### CC Adi 5.77
-
-> বিষ্ণোস্তু ত্রীণি রূপাণি পুরুষাখ্যান্যথো বিদুঃ ।
-> একন্তু মহতঃ স্রষ্টৃ দ্বিতীয়ং ত্বণ্ডসংস্থিতম্ ।
-> তৃতীয়ং সর্বভূতস্থং তানি জ্ঞাত্বা বিমুচ্যতে ॥৭৭॥
 
 > viṣṇos tu trīṇi rūpāṇi
 > puruṣākhyāny atho viduḥ
@@ -10199,9 +8012,6 @@ This verse appears in the *Laghu-bhāgavatāmṛta* (*Pūrva* 2.9), where it has
 
 ### CC Adi 5.78
 
-> যদ্যপি কহিয়ে তাঁরে কৃষ্ণের ‘কলা’ করি ।
-> মৎস্য-কূর্মাদ্যবতারের তিঁহো অবতারী ॥৭৮॥
-
 > yadyapi kahiye tāṅre kṛṣṇera 'kalā' kari
 > matsya-kūrmādy-avatārera tiṅho avatārī
 
@@ -10210,9 +8020,6 @@ This verse appears in the *Laghu-bhāgavatāmṛta* (*Pūrva* 2.9), where it has
 **Although Kṣīrodaśāyī Viṣṇu is called a kalā of Lord Kṛṣṇa, He is the source of Matsya, Kūrma and the other incarnations.**
 
 ### CC Adi 5.79
-
-> এতে চাংশকলাঃ পুংসঃ কৃষ্ণস্তু ভগবান্ স্বয়ম্ ।
-> ইন্দ্রারি-ব্যাকুলং লোকং মৃড়য়ন্তি যুগে যুগে ॥৭৯॥
 
 > ete cāṁśa-kalāḥ puṁsaḥ
 > kṛṣṇas tu bhagavān svayam
@@ -10227,9 +8034,6 @@ This quotation is from *Śrīmad-Bhāgavatam* (1.3.28).
 
 ### CC Adi 5.80
 
-> সেই পুরুষ সৃষ্টি-স্থিতি-প্রলয়ের কর্তা ।
-> নানা অবতার করে, জগতের ভর্তা ॥৮০॥
-
 > sei puruṣa sṛṣṭi-sthiti-pralayera kartā
 > nānā avatāra kare, jagatera bhartā
 
@@ -10238,9 +8042,6 @@ This quotation is from *Śrīmad-Bhāgavatam* (1.3.28).
 **That puruṣa [Kṣīrodakaśāyī Viṣṇu] is the performer of creation, maintenance and destruction. He manifests Himself in many incarnations, for He is the maintainer of the world.**
 
 ### CC Adi 5.81
-
-> সৃষ্ট্যাদি-নিমিত্তে যেই অংশের অবধান ।
-> সেই ত’ অংশেরে কহি ‘অবতার’ নাম ॥৮১॥
 
 > sṛṣṭy-ādi-nimitte yei aṁśera avadhāna
 > sei ta' aṁśere kahi 'avatāra' nāma
@@ -10251,9 +8052,6 @@ This quotation is from *Śrīmad-Bhāgavatam* (1.3.28).
 
 ### CC Adi 5.82
 
-> আদ্যাবতার, মহাপুরুষ, ভগবান্ ।
-> সর্ব-অবতার-বীজ, সর্বাশ্রয়-ধাম ॥৮২॥
-
 > ādyāvatāra, mahā-puruṣa, bhagavān
 > sarva-avatāra-bīja, sarvāśraya-dhāma
 
@@ -10262,11 +8060,6 @@ This quotation is from *Śrīmad-Bhāgavatam* (1.3.28).
 **That Mahā-puruṣa is identical with the Personality of Godhead. He is the original incarnation, the seed of all others, and the shelter of everything.**
 
 ### CC Adi 5.83
-
-> আদ্যোঽবতারঃ পুরুষঃ পরস্য
-> কালঃ স্বভাবঃ সদসন্মনশ্চ ।
-> দ্রব্যং বিকারো গুণ ইন্দ্রিয়াণি
-> বিরাট্ স্বরাট্ স্থাস্নু চরিষ্ণু ভূম্নঃ ॥৮৩॥
 
 > ādyo 'vatāraḥ puruṣaḥ parasya
 > kālaḥ svabhāvaḥ sad-asan manaś ca
@@ -10281,9 +8074,6 @@ Describing the incarnations and their symptoms, the *Laghu-bhāgavatāmṛta* ha
 
 ### CC Adi 5.84
 
-> জগৃহে পৌরুষং রূপং ভগবান্মহদাদিভিঃ ।
-> সম্ভূতং ষোড়শকলমাদৌ লোকসিসৃক্ষয়া ॥৮৪॥
-
 > jagṛhe pauruṣaṁ rūpaṁ
 > bhagavān mahad-ādibhiḥ
 > sambhūtaṁ ṣoḍaśa-kalam
@@ -10297,9 +8087,6 @@ This is a verse from *Śrīmad-Bhāgavatam* (1.3.1). The commentary of Madhva on
 
 ### CC Adi 5.85
 
-> যদ্যপি সর্বাশ্রয় তিঁহো, তাঁহাতে সংসার ।
-> অন্তরাত্মা-রূপে তিঁহো জগত্-আধার ॥৮৫॥
-
 > yadyapi sarvāśraya tiṅho, tāṅhāte saṁsāra
 > antarātmā-rūpe tiṅho jagat-ādhāra
 
@@ -10308,9 +8095,6 @@ This is a verse from *Śrīmad-Bhāgavatam* (1.3.1). The commentary of Madhva on
 **Although the Lord is the shelter of everything and although all the universes rest in Him, He, as the Supersoul, is also the support of everything.**
 
 ### CC Adi 5.86
-
-> প্রকৃতি-সহিতে তাঁর উভয় সম্বন্ধ ।
-> তথাপি প্রকৃতি-সহ নাহি স্পর্শগন্ধ ॥৮৬॥
 
 > prakṛti-sahite tāṅra ubhaya sambandha
 > tathāpi prakṛti-saha nāhi sparśa-gandha
@@ -10325,9 +8109,6 @@ Although the causal and element-supplying features exist in material nature by d
 
 ### CC Adi 5.87
 
-> এতদীশনমীশস্য প্রকৃতিস্থোঽপি তদ্গুণৈঃ ।
-> ন যুজ্যতে সদাত্মস্থৈর্যথা বুদ্ধিস্তদাশ্রয়া ॥৮৭॥
-
 > etad īśanam īśasya
 > prakṛti-stho 'pi tad-guṇaiḥ
 > na yujyate sadātma-sthair
@@ -10341,9 +8122,6 @@ This is a verse from *Śrīmad-Bhāgavatam* (1.11.38).
 
 ### CC Adi 5.88
 
-> এই মত গীতাতেহ পুনঃ পুনঃ কয় ।
-> সর্বদা ঈশ্বর-তত্ত্ব অচিন্ত্যশক্তি হয় ॥৮৮॥
-
 > ei mata gītāteha punaḥ punaḥ kaya
 > sarvadā īśvara-tattva acintya-śakti haya
 
@@ -10352,9 +8130,6 @@ This is a verse from *Śrīmad-Bhāgavatam* (1.11.38).
 **Thus the Bhagavad-gītā also states again and again that the Absolute Truth always possesses inconceivable power.**
 
 ### CC Adi 5.89
-
-> আমি ত’ জগতে বসি, জগৎ আমাতে ।
-> না আমি জগতে বসি, না আমা জগতে ॥৮৯॥
 
 > āmi ta' jagate vasi, jagat āmāte
 > nā āmi jagate vasi, nā āmā jagate
@@ -10369,9 +8144,6 @@ The material manifestation cannot exist separate from the Supreme Lord, yet Lord
 
 ### CC Adi 5.90
 
-> অচিন্ত্য ঐশ্বর্য এই জানিহ আমার ।
-> এই ত’ গীতার অর্থ কৈল পরচার ॥৯০॥
-
 > acintya aiśvarya ei jāniha āmāra
 > ei ta' gītāra artha kaila paracāra
 
@@ -10380,9 +8152,6 @@ The material manifestation cannot exist separate from the Supreme Lord, yet Lord
 **"O Arjuna, you should know this as My inconceivable opulence." This is the meaning propagated by Lord Kṛṣṇa in the Bhagavad-gītā.**
 
 ### CC Adi 5.91
-
-> সেই ত’ পুরুষ যাঁর ‘অংশ’ ধরে নাম ।
-> চৈতন্যের সঙ্গে সেই নিত্যানন্দ-রাম ॥৯১॥
 
 > sei ta' puruṣa yāṅra 'aṁśa' dhare nāma
 > caitanyera saṅge sei nityānanda-rāma
@@ -10393,9 +8162,6 @@ The material manifestation cannot exist separate from the Supreme Lord, yet Lord
 
 ### CC Adi 5.92
 
-> এই ত’ নবম শ্লোকের অর্থ-বিবরণ ।
-> দশম শ্লোকের অর্থ শুন দিয়া মন ॥৯২॥
-
 > ei ta' navama ślokera artha-vivaraṇa
 > daśama ślokera artha śuna diyā mana
 
@@ -10404,11 +8170,6 @@ The material manifestation cannot exist separate from the Supreme Lord, yet Lord
 **I have thus explained the ninth verse, and now I shall explain the tenth. Please listen with rapt attention.**
 
 ### CC Adi 5.93
-
-> যস্যাংশাংশঃ শ্রীল-গর্ভোদশায়ী
-> যন্নাভ্যব্জং লোকসংঘাতনালম্ ।
-> লোকস্রষ্টুঃ সূতিকাধাম ধাতু-
-> স্তং শ্রীনিত্যানন্দরামং প্রপদ্যে ॥৯৩॥
 
 > yasyāṁśāṁśaḥ śrīla-garbhoda-śāyī
 > yan-nābhy-abjaṁ loka-saṅghāta-nālam
@@ -10425,9 +8186,6 @@ Describing the features of the three *puruṣas,* the *Laghu-bhāgavatāmṛta* 
 
 ### CC Adi 5.94
 
-> সেই ত’ পুরুষ অনন্তব্রহ্মাণ্ড সৃজিয়া ।
-> সব অণ্ডে প্রবেশিলা বহু-মূর্তি হঞা ॥৯৪॥
-
 > sei ta' puruṣa ananta-brahmāṇḍa sṛjiyā
 > saba aṇḍe praveśilā bahu-mūrti hañā
 
@@ -10436,9 +8194,6 @@ Describing the features of the three *puruṣas,* the *Laghu-bhāgavatāmṛta* 
 **After creating millions of universes, the first puruṣa entered into each of them in a separate form, as Śrī Garbhodakaśāyī.**
 
 ### CC Adi 5.95
-
-> ভিতরে প্রবেশি’ দেখে সব অন্ধকার ।
-> রহিতে নাহিক স্থান করিল বিচার ॥৯৫॥
 
 > bhitare praveśi' dekhe saba andhakāra
 > rahite nāhika sthāna karila vicāra
@@ -10449,9 +8204,6 @@ Describing the features of the three *puruṣas,* the *Laghu-bhāgavatāmṛta* 
 
 ### CC Adi 5.96
 
-> নিজাঙ্গ-স্বেদজল করিল সৃজন ।
-> সেই জলে কৈল অর্ধ-ব্রহ্মাণ্ড ভরণ ॥৯৬॥
-
 > nijāṅga-sveda-jala karila sṛjana
 > sei jale kaila ardha-brahmāṇḍa bharaṇa
 
@@ -10461,9 +8213,6 @@ Describing the features of the three *puruṣas,* the *Laghu-bhāgavatāmṛta* 
 
 ### CC Adi 5.97
 
-> ব্রহ্মাণ্ড-প্রমাণ পঞ্চাশৎকোটি-যোজন ।
-> আয়াম, বিস্তার, দুই হয় এক সম ॥৯৭॥
-
 > brahmāṇḍa-pramāṇa pañcāśat-koṭi-yojana
 > āyāma, vistāra, dui haya eka sama
 
@@ -10472,9 +8221,6 @@ Describing the features of the three *puruṣas,* the *Laghu-bhāgavatāmṛta* 
 **The universe measures five hundred million yojanas. Its length and breadth are one and the same.**
 
 ### CC Adi 5.98
-
-> জলে ভরি’ অর্ধ তাঁহা কৈল নিজ-বাস ।
-> আর অর্ধে কৈল চৌদ্দভুবন প্রকাশ ॥৯৮॥
 
 > jale bhari' ardha tāṅhā kaila nija-vāsa
 > āra ardhe kaila caudda-bhuvana prakāśa
@@ -10487,9 +8233,6 @@ The fourteen worlds are enumerated in *Śrīmad-Bhāgavatam,* Second Canto, Fift
 
 ### CC Adi 5.99
 
-> তাঁহাই প্রকট কৈল বৈকুণ্ঠ নিজ-ধাম ।
-> শেষ-শয়ন-জলে করিল বিশ্রাম ॥৯৯॥
-
 > tāṅhāi prakaṭa kaila vaikuṇṭha nija-dhāma
 > śeṣa-śayana-jale karila viśrāma
 
@@ -10498,11 +8241,6 @@ The fourteen worlds are enumerated in *Śrīmad-Bhāgavatam,* Second Canto, Fift
 **There He manifested Vaikuṇṭha as His own abode and rested in the waters on the bed of Lord Śeṣa.**
 
 ### CC Adi 5.100-101
-
-> অনন্তশয্যাতে তাঁহা করিল শয়ন ।
-> সহস্র মস্তক তাঁর সহস্র বদন ॥১০০॥
-> সহস্র-চরণ-হস্ত, সহস্র-নয়ন ।
-> সর্ব-অবতার-বীজ, জগৎ-কারণ ॥১০১॥
 
 > ananta-śayyāte tāṅhā karila śayana
 > sahasra mastaka tāṅra sahasra vadana
@@ -10523,9 +8261,6 @@ The Viṣṇu form called Ananta-śayana has thousands of hands and legs and tho
 
 ### CC Adi 5.102
 
-> তাঁর নাভিপদ্ম হৈতে উঠিল এক পদ্ম ।
-> সেই পদ্মে হৈল ব্রহ্মার জন্ম-সদ্ম ॥১০২॥
-
 > tāṅra nābhi-padma haite uṭhila eka padma
 > sei padme haila brahmāra janma-sadma
 
@@ -10535,9 +8270,6 @@ The Viṣṇu form called Ananta-śayana has thousands of hands and legs and tho
 
 ### CC Adi 5.103
 
-> সেই পদ্মনালে হৈল চৌদ্দভুবন ।
-> তেঁহো ব্রহ্মা হঞা সৃষ্টি করিল সৃজন ॥১০৩॥
-
 > sei padma-nāle haila caudda-bhuvana
 > teṅho brahmā hañā sṛṣṭi karila sṛjana
 
@@ -10546,9 +8278,6 @@ The Viṣṇu form called Ananta-śayana has thousands of hands and legs and tho
 **Within the stem of that lotus were the fourteen worlds. Thus the Supreme Lord, as Brahmā, created the entire creation.**
 
 ### CC Adi 5.104
-
-> বিষ্ণুরূপ হঞা করে জগৎ পালনে ।
-> গুণাতীত-বিষ্ণু স্পর্শ নাহি মায়া-গুণে ॥১০৪॥
 
 > viṣṇu-rūpa hañā kare jagat pālane
 > guṇātīta-viṣṇu sparśa nāhi māyā-guṇe
@@ -10570,9 +8299,6 @@ Because Lord Viṣṇu expands the quality of goodness, He has the name Sattvata
 
 ### CC Adi 5.105
 
-> রুদ্ররূপ ধরি’ করে জগৎ সংহার ।
-> সৃষ্টি-স্থিতি-প্রলয় — ইচ্ছায় যাঁহার ॥১০৫॥
-
 > rudra-rūpa dhari' kare jagat saṁhāra
 > sṛṣṭi-sthiti-pralaya—icchāya yāṅhāra
 
@@ -10584,9 +8310,6 @@ Maheśvara, or Lord Śiva, is not an ordinary living being, nor is he equal to L
 
 ### CC Adi 5.106
 
-> হিরণ্যগর্ভ, অন্তর্যামী, জগৎ-কারণ ।
-> ঙ্মযাঁর অংশ করি’ করে বিরাট-কল্পন ॥১০৬॥
-
 > hiraṇya-garbha, antaryāmī, jagat-kāraṇa
 > yāṅra aṁśa kari' kare virāṭa-kalpana
 
@@ -10595,9 +8318,6 @@ Maheśvara, or Lord Śiva, is not an ordinary living being, nor is he equal to L
 **He is the Supersoul, Hiraṇyagarbha, the cause of the material world. The universal form is conceived as His expansion.**
 
 ### CC Adi 5.107
-
-> হেন নারায়ণ, — যাঁর অংশের অংশ ।
-> সেই প্রভু নিত্যানন্দ — সর্ব-অবতংস ॥১০৭॥
 
 > hena nārāyaṇa,—yāṅra aṁśera aṁśa
 > sei prabhu nityānanda—sarva-avataṁsa
@@ -10608,9 +8328,6 @@ Maheśvara, or Lord Śiva, is not an ordinary living being, nor is he equal to L
 
 ### CC Adi 5.108
 
-> দশম শ্লোকের অর্থ কৈল বিবরণ ।
-> একাদশ শ্লোকের অর্থ শুন দিয়া মন ॥১০৮॥
-
 > daśama ślokera artha kaila vivaraṇa
 > ekādaśa ślokera artha śuna diyā mana
 
@@ -10619,11 +8336,6 @@ Maheśvara, or Lord Śiva, is not an ordinary living being, nor is he equal to L
 **I have thus explained the tenth verse. Now please listen to the meaning of the eleventh verse with all your mind.**
 
 ### CC Adi 5.109
-
-> যস্যাংশাংশাংশঃ পরাত্মাখিলানাং
-> পোষ্টা বিষ্ণুর্ভাতি দুগ্ধাব্ধিশায়ী ।
-> ক্ষৌণীভর্তা যৎকলা সোঽপ্যনন্ত-
-> স্তং শ্রীনিত্যানন্দরামং প্রপদ্যে ॥১০৯॥
 
 > yasyāṁśāṁśāṁśaḥ parātmākhilānāṁ
 > poṣṭā viṣṇur bhāti dugdhābdhi-śāyī
@@ -10636,9 +8348,6 @@ Maheśvara, or Lord Śiva, is not an ordinary living being, nor is he equal to L
 
 ### CC Adi 5.110
 
-> নারায়ণের নাভিনাল-মধ্যেতে ধরণী ।
-> ধরণীর মধ্যে সপ্ত সমুদ্র যে গণি ॥১১০॥
-
 > nārāyaṇera nābhi-nāla-madhyete dharaṇī
 > dharaṇīra madhye sapta samudra ye gaṇi
 
@@ -10647,9 +8356,6 @@ Maheśvara, or Lord Śiva, is not an ordinary living being, nor is he equal to L
 **The material planets rest within the stem that grew from the lotus navel of Lord Nārāyaṇa. Among these planets are seven oceans.**
 
 ### CC Adi 5.111
-
-> তাঁহা ক্ষীরোদধি-মধ্যে ‘শ্বেতদ্বীপ’ নাম ।
-> পালয়িতা বিষ্ণু, — তাঁর সেই নিজ ধাম ॥১১১॥
 
 > tāṅhā kṣīrodadhi-madhye 'śvetadvīpa' nāma
 > pālayitā viṣṇu,—tāṅra sei nija dhāma
@@ -10661,9 +8367,6 @@ Maheśvara, or Lord Śiva, is not an ordinary living being, nor is he equal to L
 In the *Siddhānta-śiromaṇi,* an astrological text, the different oceans are described as follows: (1) the ocean of salt water, (2) the ocean of milk, (3) the ocean of curd, (4) the ocean of clarified butter, (5) the ocean of sugarcane juice, (6) the ocean of liquor and (7) the ocean of sweet water. On the southern side of the ocean of salt water is the ocean of milk, where Lord Kṣīrodakaśāyī Viṣṇu resides. He is worshiped there by demigods like Brahmā.
 
 ### CC Adi 5.112
-
-> সকল জীবের তিঁহো হয়ে অন্তর্যামী ।
-> জগৎ-পালক তিঁহো জগতের স্বামী ॥১১২॥
 
 > sakala jīvera tiṅho haye antaryāmī
 > jagat-pālaka tiṅho jagatera svāmī
@@ -10683,9 +8386,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description of the Viṣṇulo
 
 ### CC Adi 5.113
 
-> যুগ-মন্বন্তরে ধরি’ নানা অবতার ।
-> ধর্ম সংস্থাপন করে, অধর্ম সংহার ॥১১৩॥
-
 > yuga-manvantare dhari' nānā avatāra
 > dharma saṁsthāpana kare, adharma saṁhāra
 
@@ -10696,9 +8396,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description of the Viṣṇulo
 Lord Viṣṇu, who lies in the ocean of milk, incarnates Himself in various forms to maintain the laws of the cosmos and annihilate the causes of disturbance. Such incarnations are visible in every *manv-antara* (i.e., in the course of the reign of each Manu, who lives for 71 x 4,320,000 years). Fourteen such Manus take their birth and die, to yield a place for the next, during one day of Brahmā.
 
 ### CC Adi 5.114
-
-> দেবগণে না পায় যাঁহার দরশন ।
-> ক্ষীরোদকতীরে যাই’ করেন স্তবন ॥১১৪॥
 
 > deva-gaṇe nā pāya yāṅhāra daraśana
 > kṣīrodaka-tīre yāi' karena stavana
@@ -10711,9 +8408,6 @@ The denizens of heaven, who live in the planetary systems beginning from Svarlok
 
 ### CC Adi 5.115
 
-> তবে অবতরি’ করে জগৎ পালন ।
-> অনন্ত বৈভব তাঁর নাহিক গণন ॥১১৫॥
-
 > tabe avatari' kare jagat pālana
 > ananta vaibhava tāṅra nāhika gaṇana
 
@@ -10722,9 +8416,6 @@ The denizens of heaven, who live in the planetary systems beginning from Svarlok
 **He then descends to maintain the material world. His unlimited opulences cannot be counted.**
 
 ### CC Adi 5.116
-
-> সেই বিষ্ণু হয় যাঁর অংশাংশের অংশ ।
-> সেই প্রভু নিত্যানন্দ — সর্ব-অবতংস ॥১১৬॥
 
 > sei viṣṇu haya yāṅra aṁśāṁśera aṁśa
 > sei prabhu nityānanda—sarva-avataṁsa
@@ -10737,9 +8428,6 @@ The Lord of Śvetadvīpa has immense potency for creation and destruction. Śrī
 
 ### CC Adi 5.117
 
-> সেই বিষ্ণু ‘শেষ’-রূপে ধরেন ধরণী ।
-> কাঁহা আছে মহী, শিরে, হেন নাহি জানি ॥১১৭॥
-
 > sei viṣṇu 'śeṣa'-rūpe dharena dharaṇī
 > kāṅhā āche mahī, śire, hena nāhi jāni
 
@@ -10749,9 +8437,6 @@ The Lord of Śvetadvīpa has immense potency for creation and destruction. Śrī
 
 ### CC Adi 5.118
 
-> সহস্র বিস্তীর্ণ যাঁর ফণার মণ্ডল ।
-> সূর্য জিনি’ মণিগণ করে ঝলমল ॥১১৮॥
-
 > sahasra vistīrṇa yāṅra phaṇāra maṇḍala
 > sūrya jini' maṇi-gaṇa kare jhala-mala
 
@@ -10760,9 +8445,6 @@ The Lord of Śvetadvīpa has immense potency for creation and destruction. Śrī
 **His thousands of extended hoods are adorned with dazzling jewels surpassing the sun.**
 
 ### CC Adi 5.119
-
-> পঞ্চাশৎকোটি-যোজন পৃথিবী-বিস্তার ।
-> যাঁর একফণে রহে সর্ষপ-আকার ॥১১৯॥
 
 > pañcāśat-koṭi-yojana pṛthivī-vistāra
 > yāṅra eka-phaṇe rahe sarṣapa-ākāra
@@ -10786,9 +8468,6 @@ The Lord of Śvetadvīpa expands Himself as Śeṣa Nāga, who sustains all the 
 
 ### CC Adi 5.120
 
-> সেই ত’ ‘অনন্ত’ ‘শেষ’ — ভক্ত-অবতার ।
-> ঈশ্বরের সেবা বিনা নাহি জানে আর ॥১২০॥
-
 > sei ta' 'ananta' 'śeṣa'—bhakta-avatāra
 > īśvarera sevā vinā nāhi jāne āra
 
@@ -10802,9 +8481,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description: "The Saṅkarṣa
 
 ### CC Adi 5.121
 
-> সহস্র বদনে করে কৃষ্ণগুণ গান ।
-> নিরবধি গুণ গা’ন, অন্ত নাহি পা’ন ॥১২১॥
-
 > sahasra-vadane kare kṛṣṇa-guṇa gāna
 > niravadhi guṇa gā'na, anta nāhi pā'na
 
@@ -10813,9 +8489,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description: "The Saṅkarṣa
 **With His thousands of mouths He sings the glories of Lord Kṛṣṇa, but although He always sings in that way, He does not find an end to the qualities of the Lord.**
 
 ### CC Adi 5.122
-
-> সনকাদি ভাগবত শুনে যাঁর মুখে ।
-> ভগবানের গুণ কহে, ভাসে প্রেমসুখে ॥১২২॥
 
 > sanakādi bhāgavata śune yāṅra mukhe
 > bhagavānera guṇa kahe, bhāse prema-sukhe
@@ -10826,9 +8499,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description: "The Saṅkarṣa
 
 ### CC Adi 5.123
 
-> ছত্র, পাদুকা, শয্যা, উপাধান, বসন ।
-> আরাম, আবাস, যজ্ঞসূত্র, সিংহাসন ॥১২৩॥
-
 > chatra, pādukā, śayyā, upādhāna, vasana
 > ārāma, āvāsa, yajña-sūtra, siṁhāsana
 
@@ -10837,9 +8507,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description: "The Saṅkarṣa
 **He serves Lord Kṛṣṇa, assuming all the following forms: umbrella, slippers, bedding, pillow, garments, resting chair, residence, sacred thread and throne.**
 
 ### CC Adi 5.124
-
-> এত মূর্তিভেদ করি’ কৃষ্ণসেবা করে ।
-> কৃষ্ণের শেষতা পাঞা ‘শেষ’ নাম ধরে ॥১২৪॥
 
 > eta mūrti-bheda kari' kṛṣṇa-sevā kare
 > kṛṣṇera śeṣatā pāñā 'śeṣa' nāma dhare
@@ -10850,9 +8517,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description: "The Saṅkarṣa
 
 ### CC Adi 5.125
 
-> সেই ত’ অনন্ত, যাঁর কহি এক কলা ।
-> হেন প্রভু নিত্যানন্দ, কে জানে তাঁর খেলা ॥১২৫॥
-
 > sei ta' ananta, yāṅra kahi eka kalā
 > hena prabhu nityānanda, ke jāne tāṅra khelā
 
@@ -10861,9 +8525,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description: "The Saṅkarṣa
 **That person of whom Lord Ananta is a kalā, or part of a plenary part, is Lord Nityānanda Prabhu. Who, therefore, can know the pastimes of Lord Nityānanda?**
 
 ### CC Adi 5.126
-
-> এসব প্রমাণে জানি নিত্যানন্দতত্ত্বসীমা ।
-> তাঁহাকে ‘অনন্ত’ কহি, কি তাঁর মহিমা ॥১২৬॥
 
 > e-saba pramāṇe jāni nityānanda-tattva-sīmā
 > tāṅhāke 'ananta' kahi, ki tāṅra mahimā
@@ -10874,9 +8535,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description: "The Saṅkarṣa
 
 ### CC Adi 5.127
 
-> অথবা ভক্তের বাক্য মানি সত্য করি’ ।
-> সকল সম্ভবে তাঁতে, যাতে অবতারী ॥১২৭॥
-
 > athavā bhaktera vākya māni satya kari'
 > sakala sambhave tāṅte, yāte avatārī
 
@@ -10885,9 +8543,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description: "The Saṅkarṣa
 **But I accept it as the truth because it has been said by devotees. Since He is the source of all incarnations, everything is possible in Him.**
 
 ### CC Adi 5.128
-
-> অবতার-অবতারী — অভেদ, যে জানে ।
-> পূর্বে যৈছে কৃষ্ণকে কেহো কাহো করি’ মানে ॥১২৮॥
 
 > avatāra-avatārī—abheda, ye jāne
 > pūrve yaiche kṛṣṇake keho kāho kari' māne
@@ -10898,9 +8553,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description: "The Saṅkarṣa
 
 ### CC Adi 5.129
 
-> কেহো কহে, কৃষ্ণ সাক্ষাৎ নরনারায়ণ ।
-> কেহো কহে, কৃষ্ণ হয় সাক্ষাৎ বামন ॥১২৯॥
-
 > keho kahe, kṛṣṇa sākṣāt nara-nārāyaṇa
 > keho kahe, kṛṣṇa haya sākṣāt vāmana
 
@@ -10909,9 +8561,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description: "The Saṅkarṣa
 **Some said that Kṛṣṇa was directly Lord Nara-Nārāyaṇa, and some called Him Lord Vāmanadeva incarnate.**
 
 ### CC Adi 5.130
-
-> কেহো কহে, কৃষ্ণ ক্ষীরোদশায়ী অবতার ।
-> অসম্ভব নহে, সত্য বচন সবার ॥১৩০॥
 
 > keho kahe, kṛṣṇa kṣīroda-śāyī avatāra
 > asambhava nahe, satya vacana sabāra
@@ -10922,9 +8571,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description: "The Saṅkarṣa
 
 ### CC Adi 5.131
 
-> কৃষ্ণ যবে অবতরে সর্বাংশ-আশ্রয় ।
-> সর্বাংশ আসি’ তবে কৃষ্ণেতে মিলয় ॥১৩১॥
-
 > kṛṣṇa yabe avatare sarvāṁśa-āśraya
 > sarvāṁśa āsi' tabe kṛṣṇete milaya
 
@@ -10933,9 +8579,6 @@ The *Laghu-bhāgavatāmṛta* gives the following description: "The Saṅkarṣa
 **When the Supreme Personality of Godhead Kṛṣṇa appears, He is the shelter of all plenary parts. Thus at that time all His plenary portions join in Him.**
 
 ### CC Adi 5.132
-
-> যেই যেই রূপে জানে, সেই তাহা কহে ।
-> সকল সম্ভবে কৃষ্ণে, কিছু মিথ্যা নহে ॥১৩২॥
 
 > yei yei rūpe jāne, sei tāhā kahe
 > sakala sambhave kṛṣṇe, kichu mithyā nahe
@@ -10968,9 +8611,6 @@ Therefore in the various *Purāṇas* Kṛṣṇa is described sometimes as Nār
 
 ### CC Adi 5.133
 
-> অতএব শ্রীকৃষ্ণচৈতন্য গোসাঞি ।
-> সর্ব অবতার-লীলা করি’ সবারে দেখাই ॥১৩৩॥
-
 > ataeva śrī-kṛṣṇa-caitanya gosāñi
 > sarva avatāra-līlā kari' sabāre dekhāi
 
@@ -10979,9 +8619,6 @@ Therefore in the various *Purāṇas* Kṛṣṇa is described sometimes as Nār
 **Therefore Lord Caitanya Mahāprabhu has exhibited to everyone all the pastimes of all the various incarnations.**
 
 ### CC Adi 5.134
-
-> এইরূপে নিত্যানন্দ ‘অনন্ত’-প্রকাশ ।
-> সেইভাবে — কহে মুঞি চৈতন্যের দাস ॥১৩৪॥
 
 > ei-rūpe nityānanda 'ananta'-prakāśa
 > sei-bhāve—kahe muñi caitanyera dāsa
@@ -10992,9 +8629,6 @@ Therefore in the various *Purāṇas* Kṛṣṇa is described sometimes as Nār
 
 ### CC Adi 5.135
 
-> কভু গুরু, কভু সখা, কভু ভৃত্য-লীলা ।
-> পূর্বে যেন তিনভাবে ব্রজে কৈল খেলা ॥১৩৫॥
-
 > kabhu guru, kabhu sakhā, kabhu bhṛtya-līlā
 > pūrve yena tina-bhāve vraje kaila khelā
 
@@ -11003,9 +8637,6 @@ Therefore in the various *Purāṇas* Kṛṣṇa is described sometimes as Nār
 **Sometimes He serves Lord Caitanya as His guru, sometimes as His friend and sometimes as His servant, just as Lord Balarāma played with Lord Kṛṣṇa in these three different modes in Vraja.**
 
 ### CC Adi 5.136
-
-> বৃষ হঞা কৃষ্ণসনে মাথামাথি রণ ।
-> কভু কৃষ্ণ করে তাঁর পাদ-সম্বাহন ॥১৩৬॥
 
 > vṛṣa hañā kṛṣṇa-sane māthā-māthi raṇa
 > kabhu kṛṣṇa kare tāṅra pāda-saṁvāhana
@@ -11016,9 +8647,6 @@ Therefore in the various *Purāṇas* Kṛṣṇa is described sometimes as Nār
 
 ### CC Adi 5.137
 
-> আপনাকে ভৃত্য করি’ কৃষ্ণে প্রভু জানে ।
-> কৃষ্ণের কলার কলা আপনাকে মানে ॥১৩৭॥
-
 > āpanāke bhṛtya kari' kṛṣṇe prabhu jāne
 > kṛṣṇera kalāra kalā āpanāke māne
 
@@ -11027,9 +8655,6 @@ Therefore in the various *Purāṇas* Kṛṣṇa is described sometimes as Nār
 **He considers Himself a servant and knows Kṛṣṇa to be His master. Thus He regards Himself as a fragment of His plenary portion.**
 
 ### CC Adi 5.138
-
-> বৃষায়মাণৌ নর্দন্তৌ যুযুধাতে পরস্পরম্ ।
-> অনুকৃত্য রুতৈর্জন্তূংশ্চেরতুঃ প্রাকৃতৌ যথা ॥১৩৮॥
 
 > vṛṣāyamāṇau nardantau
 > yuyudhāte parasparam
@@ -11044,9 +8669,6 @@ This and the following quotation are from the *Bhāgavatam* (10.11.40 and 10.15.
 
 ### CC Adi 5.139
 
-> ক্বচিৎ ক্রীড়া-পরিশ্রান্তং গোপোত্সঙ্গোপবর্হণম ।
-> স্বয়ং বিশ্রাময়ত্যার্যং পাদসম্বাহনাদিভিঃ ॥১৩৯॥
-
 > kvacit krīḍā-pariśrāntaṁ
 > gopotsaṅgopabarhaṇam
 > svayaṁ viśrāmayaty āryaṁ
@@ -11057,9 +8679,6 @@ This and the following quotation are from the *Bhāgavatam* (10.11.40 and 10.15.
 **"Sometimes when Lord Kṛṣṇa's elder brother, Lord Balarāma, felt tired after playing and lay His head on the lap of a cowherd boy, Lord Kṛṣṇa Himself served Him by massaging His feet."**
 
 ### CC Adi 5.140
-
-> কেয়ং বা কুত আয়াতা দৈবী বা নার্যুতাসুরী ।
-> প্রায়ো মায়াস্তু মে ভর্তুর্নান্যা মেঽপি বিমোহিনী ॥১৪০॥
 
 > keyaṁ vā kuta āyātā
 > daivī vā nāry utāsurī
@@ -11074,11 +8693,6 @@ The playful pastimes of the Lord caused suspicion in the mind of Lord Brahmā, a
 
 ### CC Adi 5.141
 
-> যস্যাঙ্ঘ্রিপঙ্কজারজো ঽখিললোক-পালৈ-
-> র্মৌল্যুত্তমৈর্ধৃতমুপাসিত-তীর্থতীর্থম্ ।
-> ব্রহ্মা ভবোঽহমপি যস্য কলাঃ কলায়াঃ
-> শ্রীশ্চোদ্বহেম চিরমস্য নৃপাসনং ক্ব? ॥১৪১॥
-
 > yasyāṅghri-paṅkaja-rajo 'khila-loka-pālair
 > mauly-uttamair dhṛtam upāsita-tīrtha-tīrtham
 > brahmā bhavo 'ham api yasya kalāḥ kalāyāḥ
@@ -11092,9 +8706,6 @@ When the Kauravas, to flatter Baladeva so that He would become their ally, spoke
 
 ### CC Adi 5.142
 
-> একলে ঈশ্বর কৃষ্ণ, আর সব ভৃত্য ।
-> যারে যৈছে নাচায়, সে তৈছে করে নৃত্য ॥১৪২॥
-
 > ekale īśvara kṛṣṇa, āra saba bhṛtya
 > yāre yaiche nācāya, se taiche kare nṛtya
 
@@ -11104,9 +8715,6 @@ When the Kauravas, to flatter Baladeva so that He would become their ally, spoke
 
 ### CC Adi 5.143
 
-> এই মত চৈতন্যগোসাঞি একলে ঈশ্বর ।
-> আর সব পারিষদ, কেহ বা কিঙ্কর ॥১৪৩॥
-
 > ei mata caitanya-gosāñi ekale īśvara
 > āra saba pāriṣada, keha vā kiṅkara
 
@@ -11115,11 +8723,6 @@ When the Kauravas, to flatter Baladeva so that He would become their ally, spoke
 **Thus Lord Caitanya is also the only controller. All others are His associates or servants.**
 
 ### CC Adi 5.144-145
-
-> গুরুবর্গ, — নিত্যানন্দ, অদ্বৈত আচার্য ।
-> শ্রীবাসাদি, আর যত — লঘু, সম, আর্য ॥১৪৪॥
-> সবে পারিষদ, সবে লীলার সহায় ।
-> সবা লঞা নিজ-কার্য সাধে গৌর-রায় ॥১৪৫॥
 
 > guru-varga,—nityānanda, advaita ācārya
 > śrīvāsādi, āra yata—laghu, sama, ārya
@@ -11133,9 +8736,6 @@ When the Kauravas, to flatter Baladeva so that He would become their ally, spoke
 
 ### CC Adi 5.146
 
-> অদ্বৈত আচার্য, নিত্যানন্দ, — দুই অঙ্গ ।
-> দুইজন লঞা প্রভুর যত কিছু রঙ্গ ॥১৪৬॥
-
 > advaita ācārya, nityānanda,—dui aṅga
 > dui-jana lañā prabhura yata kichu raṅga
 
@@ -11144,9 +8744,6 @@ When the Kauravas, to flatter Baladeva so that He would become their ally, spoke
 **Śrī Advaita Ācārya and Śrīla Nityānanda Prabhu, who are plenary parts of the Lord, are His principal associates. With these two the Lord performs His pastimes in various ways.**
 
 ### CC Adi 5.147
-
-> অদ্বৈত-আচার্য-গোসাঞি সাক্ষাৎ ঈশ্বর ।
-> প্রভু গুরু করি’ মানে, তিঁহো ত’ কিঙ্কর ॥১৪৭॥
 
 > advaita-ācārya-gosāñi sākṣāt īśvara
 > prabhu guru kari' māne, tiṅho ta' kiṅkara
@@ -11159,9 +8756,6 @@ Lord Caitanya always offered respects to Advaita Prabhu as He would to His fathe
 
 ### CC Adi 5.148
 
-> আচার্য-গোসাঞির তত্ত্ব না যায় কথন ।
-> কৃষ্ণ অবতারি যেঁহো তারিল ভুবন ॥১৪৮॥
-
 > ācārya-gosāñira tattva nā yāya kathana
 > kṛṣṇa avatāri yeṅho tārila bhuvana
 
@@ -11170,9 +8764,6 @@ Lord Caitanya always offered respects to Advaita Prabhu as He would to His fathe
 **I cannot describe the truth of Advaita Ācārya. He has delivered the entire world by making Lord Kṛṣṇa descend.**
 
 ### CC Adi 5.149
-
-> নিত্যানন্দ-স্বরূপ পূর্বে হইয়া লক্ষ্মণ ।
-> লঘুভ্রাতা হৈয়া করে রামের সেবন ॥১৪৯॥
 
 > nityānanda-svarūpa pūrve ha-iyā lakṣmaṇa
 > laghu-bhrātā haiyā kare rāmera sevana
@@ -11185,9 +8776,6 @@ Among the *sannyāsīs* of the Śaṅkara-sampradāya there are different names 
 
 ### CC Adi 5.150
 
-> রামের চরিত্র সব, — দুঃখের কারণ ।
-> স্বতন্ত্র লীলায় দুঃখ সহেন লক্ষ্মণ ॥১৫০॥
-
 > rāmera caritra saba,—duḥkhera kāraṇa
 > svatantra līlāya duḥkha sahena lakṣmaṇa
 
@@ -11196,9 +8784,6 @@ Among the *sannyāsīs* of the Śaṅkara-sampradāya there are different names 
 **The activities of Lord Rāma were full of suffering, but Lakṣmaṇa, of His own accord, tolerated that suffering.**
 
 ### CC Adi 5.151
-
-> নিষেধ করিতে নারে, যাতে ছোট ভাই ।
-> মৌন ধরি’ রহে লক্ষ্মণ মনে দুঃখ পাই’ ॥১৫১॥
 
 > niṣedha karite nāre, yāte choṭa bhāi
 > mauna dhari' rahe lakṣmaṇa mane duḥkha pāi'
@@ -11209,9 +8794,6 @@ Among the *sannyāsīs* of the Śaṅkara-sampradāya there are different names 
 
 ### CC Adi 5.152
 
-> কৃষ্ণ-অবতারে জ্যেষ্ঠ হৈলা সেবার কারণ ।
-> কৃষ্ণকে করাইল নানা সুখ আস্বাদন ॥১৫২॥
-
 > kṛṣṇa-avatāre jyeṣṭha hailā sevāra kāraṇa
 > kṛṣṇake karāila nānā sukha āsvādana
 
@@ -11220,9 +8802,6 @@ Among the *sannyāsīs* of the Śaṅkara-sampradāya there are different names 
 **When Lord Kṛṣṇa appeared, He [Balarāma] became His elder brother to serve Him to His heart's content and make Him enjoy all sorts of happiness.**
 
 ### CC Adi 5.153
-
-> রাম-লক্ষ্মণ — কৃষ্ণ-রামের অংশবিশেষ ।
-> অবতার-কালে দোঁহে দোঁহাতে প্রবেশ ॥১৫৩॥
 
 > rāma-lakṣmaṇa—kṛṣṇa-rāmera aṁśa-viśeṣa
 > avatāra-kāle doṅhe doṅhāte praveśa
@@ -11235,9 +8814,6 @@ With reference to the *Viṣṇu-dharmottara,* the *Laghu-bhāgavatāmṛta* exp
 
 ### CC Adi 5.154
 
-> সেই অংশ লঞা জ্যেষ্ঠ-কনিষ্ঠাভিমান ।
-> অংশাংশি-রূপে শাস্ত্রে করয়ে ব্যাখ্যান ॥১৫৪॥
-
 > sei amśa lañā jyeṣṭha-kaniṣṭhābhimāna
 > aṁśāṁśi-rūpe śāstre karaye vyākhyāna
 
@@ -11246,11 +8822,6 @@ With reference to the *Viṣṇu-dharmottara,* the *Laghu-bhāgavatāmṛta* exp
 **Kṛṣṇa and Balarāma present Themselves as elder or younger brother, but in the scriptures They are described as the original Supreme Personality of Godhead and His expansion.**
 
 ### CC Adi 5.155
-
-> রামাদিমূর্তিষু কলানিয়মেন তিষ্ঠন্
-> নানাবতারমকরোদ্ভুবনেষু কিন্তু ।
-> কৃষ্ণঃ স্বয়ং সমভবৎ পরমঃ পুমান্ যো
-> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥১৫৫॥
 
 > rāmādi-mūrtiṣu kalā-niyamena tiṣṭhan
 > nānāvatāram akarod bhuvaneṣu kintu
@@ -11265,9 +8836,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 
 ### CC Adi 5.156
 
-> শ্রীচৈতন্য — সেই কৃষ্ণ, নিত্যানন্দ — রাম ।
-> নিত্যানন্দ পূর্ণ করে চৈতন্যের কাম ॥১৫৬॥
-
 > śrī-caitanya—sei kṛṣṇa, nityānanda—rāma
 > nityānanda pūrṇa kare caitanyera kāma
 
@@ -11276,9 +8844,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 **Lord Caitanya is the same Lord Kṛṣṇa, and Lord Nityānanda is Lord Balarāma. Lord Nityānanda fulfills all of Lord Caitanya's desires.**
 
 ### CC Adi 5.157
-
-> নিত্যানন্দ-মহিমা-সিন্ধু অনন্ত, অপার ।
-> এক কণা স্পর্শি মাত্র, — সে কৃপা তাঁহার ॥১৫৭॥
 
 > nityānanda-mahimā-sindhu ananta, apāra
 > eka kaṇā sparśi mātra,—se kṛpā tāṅhāra
@@ -11289,9 +8854,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 
 ### CC Adi 5.158
 
-> আর এক শুন তাঁর কৃপার মহিমা ।
-> অধম জীবেরে চঢ়াইল ঊর্ধ্বসীমা ॥১৫৮॥
-
 > āra eka śuna tāṅra kṛpāra mahimā
 > adhama jīvere caḍhāila ūrdhva-sīmā
 
@@ -11300,9 +8862,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 **Please listen to another glory of His mercy. He made a fallen living entity climb to the highest limit.**
 
 ### CC Adi 5.159
-
-> বেদগুহ্য কথা এই অযোগ্য কহিতে ।
-> তথাপি কহিয়ে তাঁর কৃপা প্রকাশিতে ॥১৫৯॥
 
 > veda-guhya kathā ei ayogya kahite
 > tathāpi kahiye tāṅra kṛpā prakāśite
@@ -11313,9 +8872,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 
 ### CC Adi 5.160
 
-> উল্লাস-উপরি লেখোঁ তোমার প্রসাদ ।
-> নিত্যানন্দ প্রভু, মোর ক্ষম অপরাধ ॥১৬০॥
-
 > ullāsa-upari lekhoṅ tomāra prasāda
 > nityānanda prabhu, mora kṣama aparādha
 
@@ -11324,9 +8880,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 **O Lord Nityānanda, I write of Your mercy out of great exultation. Please forgive me for my offenses.**
 
 ### CC Adi 5.161
-
-> অবধূত গোসাঞির এক ভৃত্য প্রেমধাম ।
-> মীনকেতন রামদাস হয় তাঁর নাম ॥১৬১॥
 
 > avadhūta gosāñira eka bhṛtya prema-dhāma
 > mīnaketana rāmadāsa haya tāṅra nāma
@@ -11337,9 +8890,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 
 ### CC Adi 5.162
 
-> আমার আলয়ে অহোরাত্র-সংকীর্তন ।
-> তাহাতে আইলা তেঁহো পাঞা নিমন্ত্রণ ॥১৬২॥
-
 > āmāra ālaye aho-rātra-saṅkīrtana
 > tāhāte āilā teṅho pāñā nimantraṇa
 
@@ -11348,9 +8898,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 **At my house there was saṅkīrtana day and night, and therefore he visited there, having been invited.**
 
 ### CC Adi 5.163
-
-> মহাপ্রেমময় তিঁহো বসিলা অঙ্গনে ।
-> সকল বৈষ্ণব তাঁর বন্দিলা চরণে ॥১৬৩॥
 
 > mahā-prema-maya tiṅho vasilā aṅgane
 > sakala vaiṣṇava tāṅra vandilā caraṇe
@@ -11361,9 +8908,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 
 ### CC Adi 5.164
 
-> নমস্কার করিতে, কা’র উপরেতে চড়ে ।
-> প্রেমে কা’রে বংশী মারে, কাহাকে চাপড়ে ॥১৬৪॥
-
 > namaskāra karite, kā'ra uparete caḍe
 > preme kā're vaṁśī māre, kāhāke cāpaḍe
 
@@ -11372,9 +8916,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 **In a joyful mood of love of God he sometimes climbed upon the shoulder of someone offering obeisances, and sometimes he struck others with his flute or mildly slapped them.**
 
 ### CC Adi 5.165
-
-> যে নয়ন দেখিতে অশ্রু হয় মনে যার ।
-> সেই নেত্রে অবিচ্ছিন্ন বহে অশ্রুধার ॥১৬৫॥
 
 > ye nayana dekhite aśru haya mane yāra
 > sei netre avicchinna vahe aśru-dhāra
@@ -11385,9 +8926,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 
 ### CC Adi 5.166
 
-> কভু কোন অঙ্গে দেখি পুলক-কদম্ব ।
-> এক অঙ্গে জাড্য তাঁর, আর অঙ্গে কম্প ॥১৬৬॥
-
 > kabhu kona aṅge dekhi pulaka-kadamba
 > eka aṅge jāḍya tāṅra, āra aṅge kampa
 
@@ -11396,9 +8934,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 **Sometimes there were eruptions of ecstasy like kadamba flowers on some parts of his body, and sometimes one limb would be stunned while another would be trembling.**
 
 ### CC Adi 5.167
-
-> নিত্যানন্দ বলি’ যবে করেন হুঙ্কার ।
-> তাহা দেখি’ লোকের হয় মহা-চমত্কার ॥১৬৭॥
 
 > nityānanda bali' yabe karena huṅkāra
 > tāhā dekhi' lokera haya mahā-camatkāra
@@ -11409,9 +8944,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 
 ### CC Adi 5.168
 
-> গুণার্ণব মিশ্র নামে এক বিপ্র আর্য ।
-> শ্রীমূর্তি-নিকটে তেঁহো করে সেবা-কার্য ॥১৬৮॥
-
 > guṇārṇava miśra nāme eka vipra ārya
 > śrī-mūrti-nikaṭe teṅho kare sevā-kārya
 
@@ -11420,9 +8952,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 **One respectable brāhmaṇa named Śrī Guṇārṇava Miśra was serving the Deity.**
 
 ### CC Adi 5.169
-
-> অঙ্গনে আসিয়া তেঁহো না কৈল সম্ভাষ ।
-> তাহা দেখি’ ক্রুদ্ধ হঞা বলে রামদাস ॥১৬৯॥
 
 > aṅgane āsiyā teṅho nā kaila sambhāṣa
 > tāhā dekhi' kruddha hañā bale rāmadāsa
@@ -11433,9 +8962,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 
 ### CC Adi 5.170
 
-> ‘এই ত’ দ্বিতীয় সূত রোমহরষণ ।
-> বলদেব দেখি’ যে না কৈল প্রত্যুদ্গম’ ॥১৭০॥
-
 > 'ei ta' dvitīya sūta romaharaṣaṇa
 > baladeva dekhi' ye nā kaila pratyudgama'
 
@@ -11444,9 +8970,6 @@ This is a quotation from *Brahma-saṁhitā* (5.39).
 **"Here I find the second Romaharṣaṇa-sūta, who did not stand to show honor when he saw Lord Balarāma."**
 
 ### CC Adi 5.171
-
-> এত বলি’ নাচে গায়, করয়ে সন্তোষ ।
-> কৃষ্ণকার্য করে বিপ্র — না করিল রোষ ॥১৭১॥
 
 > eta bali' nāce gāya, karaye santoṣa
 > kṛṣṇa-kārya kare vipra—nā karila roṣa
@@ -11459,9 +8982,6 @@ Mīnaketana Rāmadāsa was a great devotee of Lord Nityānanda. When he entered 
 
 ### CC Adi 5.172
 
-> উৎসবান্তে গেলা তিঁহো করিয়া প্রসাদ ।
-> মোর ভ্রাতা-সনে তাঁর কিছু হৈল বাদ ॥১৭২॥
-
 > utsavānte gelā tiṅho kariyā prasāda
 > mora bhrātā-sane tāṅra kichu haila vāda
 
@@ -11470,9 +8990,6 @@ Mīnaketana Rāmadāsa was a great devotee of Lord Nityānanda. When he entered 
 **At the end of the festival Mīnaketana Rāmadāsa went away, offering his blessings to everyone. At that time he had some controversy with my brother.**
 
 ### CC Adi 5.173
-
-> শ্রীচৈতন্যপ্রভুতে তাঁর সুদৃঢ় বিশ্বাস ।
-> নিত্যানন্দ-প্রতি তাঁর বিশ্বাস-আভাস ॥১৭৩॥
 
 > caitanya-prabhute tāṅra sudṛḍha viśvāsa
 > nityānanda-prati tāṅra viśvāsa-ābhāsa
@@ -11483,9 +9000,6 @@ Mīnaketana Rāmadāsa was a great devotee of Lord Nityānanda. When he entered 
 
 ### CC Adi 5.174
 
-> ইহা জানি’ রামদাসের দুঃখ হইল মনে ।
-> তবে ত’ ভ্রাতারে আমি করিনু ভর্ৎসনে ॥১৭৪॥
-
 > ihā jāni' rāmadāsera duḥkha ha-ila mane
 > tabe ta' bhrātāre āmi karinu bhartsane
 
@@ -11494,9 +9008,6 @@ Mīnaketana Rāmadāsa was a great devotee of Lord Nityānanda. When he entered 
 **Knowing this, Śrī Rāmadāsa felt unhappy in his mind. I then rebuked my brother.**
 
 ### CC Adi 5.175
-
-> দুই ভাই একতনু — সমান-প্রকাশ ।
-> নিত্যানন্দ না মান, তোমার হবে সর্বনাশ ॥১৭৫॥
 
 > dui bhāi eka-tanu—samāna-prakāśa
 > nityānanda nā māna, tomāra habe sarva-nāśa
@@ -11507,9 +9018,6 @@ Mīnaketana Rāmadāsa was a great devotee of Lord Nityānanda. When he entered 
 
 ### CC Adi 5.176
 
-> একেতে বিশ্বাস, অন্যে না কর সম্মান ।
-> “অর্ধকুক্কুটী-ন্যায়” তোমার প্রমাণ ॥১৭৬॥
-
 > ekete viśvāsa, anye nā kara sammāna
 > "ardha-kukkuṭī-nyāya" tomāra pramāṇa
 
@@ -11518,9 +9026,6 @@ Mīnaketana Rāmadāsa was a great devotee of Lord Nityānanda. When he entered 
 **"If you have faith in one but disrespect the other, your logic is like the logic of accepting half a hen.**
 
 ### CC Adi 5.177
-
-> কিংবা, দোঁহা না মানিঞা হও ত’ পাষণ্ড ।
-> একে মানি’ আরে না মানি, — এইমত ভণ্ড ॥১৭৭॥
 
 > kiṁvā, doṅhā nā māniñā hao ta' pāṣaṇḍa
 > eke māni' āre nā māni,—ei-mata bhaṇḍa
@@ -11531,9 +9036,6 @@ Mīnaketana Rāmadāsa was a great devotee of Lord Nityānanda. When he entered 
 
 ### CC Adi 5.178
 
-> ক্রুদ্ধ হৈয়া বংশী ভাঙ্গি’ চলে রামদাস ।
-> তৎকালে আমার ভ্রাতার হৈল সর্বনাশ ॥১৭৮॥
-
 > kruddha haiyā vaṁśī bhāṅgi' cale rāmadāsa
 > tat-kāle āmāra bhrātāra haila sarva-nāśa
 
@@ -11542,9 +9044,6 @@ Mīnaketana Rāmadāsa was a great devotee of Lord Nityānanda. When he entered 
 **Thus Śrī Rāmadāsa broke his flute in anger and went away, and at that time my brother fell down.**
 
 ### CC Adi 5.179
-
-> এই ত’ কহিল তাঁর সেবক-প্রভাব ।
-> আর এক কহি তাঁর দয়ার স্বভাব ॥১৭৯॥
 
 > ei ta' kahila tāṅra sevaka-prabhāva
 > āra eka kahi tāṅra dayāra svabhāva
@@ -11555,9 +9054,6 @@ Mīnaketana Rāmadāsa was a great devotee of Lord Nityānanda. When he entered 
 
 ### CC Adi 5.180
 
-> ভাইকে ভর্ৎসিনু মুঞি, লঞা এই গুণ ।
-> সেই রাত্রে প্রভু মোরে দিলা দরশন ॥১৮০॥
-
 > bhāike bhartsinu muñi, lañā ei guṇa
 > sei rātre prabhu more dilā daraśana
 
@@ -11566,9 +9062,6 @@ Mīnaketana Rāmadāsa was a great devotee of Lord Nityānanda. When he entered 
 **That night Lord Nityānanda appeared to me in a dream because of my good quality in chastising my brother.**
 
 ### CC Adi 5.181
-
-> নৈহাটি নিকটে ‘ঝামটপুর’ নামে গ্রাম ।
-> তাঁহা স্বপ্নে দেখা দিলা নিত্যানন্দ-রাম ॥১৮১॥
 
 > naihāṭi-nikaṭe 'jhāmaṭapura' nāme grāma
 > tāṅhā svapne dekhā dilā nityānanda-rāma
@@ -11581,9 +9074,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 
 ### CC Adi 5.182
 
-> দণ্ডবৎ হৈয়া আমি পড়িনু পায়েতে ।
-> নিজপাদপদ্ম প্রভু দিলা মোর মাথে ॥১৮২॥
-
 > daṇḍavat haiyā āmi paḍinu pāyete
 > nija-pāda-padma prabhu dilā mora māthe
 
@@ -11592,9 +9082,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 **I fell at His feet, offering my obeisances, and He then placed His own lotus feet upon my head.**
 
 ### CC Adi 5.183
-
-> ‘উঠ’, ‘উঠ’ বলি’ মোরে বলে বার বার ।
-> উঠি’ তাঁর রূপ দেখি’ হৈনু চমৎকার ॥১৮৩॥
 
 > 'uṭha', 'uṭha' bali' more bale bāra bāra
 > uṭhi' tāṅra rūpa dekhi' hainu camatkāra
@@ -11605,9 +9092,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 
 ### CC Adi 5.184
 
-> শ্যাম-চিক্কণ কান্তি, প্রকাণ্ড শরীর ।
-> সাক্ষাৎ কন্দর্প, যৈছে মহামল্ল-বীর ॥১৮৪॥
-
 > śyāma-cikkaṇa kānti, prakāṇḍa śarīra
 > sākṣāt kandarpa, yaiche mahā-malla-vīra
 
@@ -11616,9 +9100,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 **He had a glossy blackish complexion, and His tall, strong, heroic stature made Him seem like Cupid himself.**
 
 ### CC Adi 5.185
-
-> সুবলিত হস্ত, পদ, কমল-নয়ান ।
-> পট্টবস্ত্র শিরে, পট্টবস্ত্র পরিধান ॥১৮৫॥
 
 > suvalita hasta, pada, kamala-nayāna
 > paṭṭa-vastra śire, paṭṭa-vastra paridhāna
@@ -11629,9 +9110,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 
 ### CC Adi 5.186
 
-> সুবর্ণ-কুণ্ডল কর্ণে, স্বর্ণাঙ্গদ-বালা ।
-> পায়েতে নূপুর বাজে, কণ্ঠে পুষ্পমালা ॥১৮৬॥
-
 > suvarṇa-kuṇḍala karṇe, svarṇāṅgada-vālā
 > pāyete nūpura bāje, kaṇṭhe puṣpa-mālā
 
@@ -11640,9 +9118,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 **He wore golden earrings on His ears, and golden armlets and bangles. He wore tinkling anklets on His feet and a garland of flowers around His neck.**
 
 ### CC Adi 5.187
-
-> চন্দনলেপিত-অঙ্গ, তিলক সুঠাম ।
-> মত্তগজ জিনি’ মদ-মন্থর পয়ান ॥১৮৭॥
 
 > candana-lepita-aṅga, tilaka suṭhāma
 > matta-gaja jini' mada-manthara payāna
@@ -11653,9 +9128,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 
 ### CC Adi 5.188
 
-> কোটিচন্দ্র জিনি’ মুখ উজ্জ্বল-বরণ ।
-> দাড়িম্ব-বীজ-সম দন্ত তাম্বূল-চর্বণ ॥১৮৮॥
-
 > koṭi-candra jini' mukha ujjvala-varaṇa
 > dāḍimba-bīja-sama danta tāmbūla-carvaṇa
 
@@ -11664,9 +9136,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 **His face was more beautiful than millions upon millions of moons, and His teeth were like pomegranate seeds because of His chewing betel.**
 
 ### CC Adi 5.189
-
-> প্রেমে মত্ত অঙ্গ ডাহিনে-বামে দোলে ।
-> ‘কৃষ্ণ’ ‘কৃষ্ণ’ বলিয়া গম্ভীর বোল বলে ॥১৮৯॥
 
 > preme matta aṅga ḍāhine-vāme dole
 > 'kṛṣṇa' 'kṛṣṇa' baliyā gambhīra bola bale
@@ -11677,9 +9146,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 
 ### CC Adi 5.190
 
-> রাঙ্গা-যষ্টি হস্তে দোলে যেন মত্ত সিংহ ।
-> চারিপাশে বেড়ি আছে চরণেতে ভৃঙ্গ ॥১৯০॥
-
 > rāṅgā-yaṣṭi haste dole yena matta siṁha
 > cāri-pāśe veḍi āche caraṇete bhṛṅga
 
@@ -11688,9 +9154,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 **His red stick moving in His hand, He seemed like a maddened lion. All around the four sides of His feet were bumblebees.**
 
 ### CC Adi 5.191
-
-> পারিষদগণে দেখি’ সব গোপ-বেশে ।
-> ‘কৃষ্ণ’ ‘কৃষ্ণ’ কহে সবে সপ্রেম আবেশে ॥১৯১॥
 
 > pāriṣada-gaṇe dekhi' saba gopa-veśe
 > 'kṛṣṇa' 'kṛṣṇa' kahe sabe saprema āveśe
@@ -11701,9 +9164,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 
 ### CC Adi 5.192
 
-> শিঙ্গা বাঁশী বাজায় কেহ, কেহ নাচে গায় ।
-> সেবক যোগায় তাম্বূল, চামর ঢুলায় ॥১৯২॥
-
 > śiṅgā vāṁśī bājāya keha, keha nāce gāya
 > sevaka yogāya tāmbūla, cāmara ḍhulāya
 
@@ -11712,9 +9172,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 **Some of them played horns and flutes, and others danced and sang. Some of them offered betel nuts, and others waved cāmara fans about Him.**
 
 ### CC Adi 5.193
-
-> নিত্যানন্দ-স্বরূপের দেখিয়া বৈভব ।
-> কিবা রূপ, গুণ, লীলা — অলৌকিক সব ॥১৯৩॥
 
 > nityānanda-svarūpera dekhiyā vaibhava
 > kibā rūpa, guṇa, līlā—alaukika saba
@@ -11725,9 +9182,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 
 ### CC Adi 5.194
 
-> আনন্দে বিহ্বল আমি, কিছু নাহি জানি ।
-> তবে হাসি’ প্রভু মোরে কহিলেন বাণী ॥১৯৪॥
-
 > ānande vihvala āmi, kichu nāhi jāni
 > tabe hāsi' prabhu more kahilena vāṇī
 
@@ -11736,9 +9190,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 **I was overwhelmed with transcendental ecstasy, not knowing anything else. Then Lord Nityānanda smiled and spoke to me as follows.**
 
 ### CC Adi 5.195
-
-> আরে আরে কৃষ্ণদাস, না করহ ভয় ।
-> বৃন্দাবনে যাহ, — তাঁহা সর্ব লভ্য হয় ॥১৯৫॥
 
 > āre āre kṛṣṇadāsa, nā karaha bhaya
 > vṛndāvane yāha,—tāṅhā sarva labhya haya
@@ -11749,9 +9200,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 
 ### CC Adi 5.196
 
-> এত বলি’ প্রেরিলা মোরে হাতসানি দিয়া ।
-> অন্তর্ধান কৈল প্রভু নিজগণ লঞা ॥১৯৬॥
-
 > eta bali' prerilā more hātasāni diyā
 > antardhāna kaila prabhu nija-gaṇa lañā
 
@@ -11760,9 +9208,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 **After saying this, He directed me toward Vṛndāvana by waving His hand. Then He disappeared with His associates.**
 
 ### CC Adi 5.197
-
-> মূর্চ্ছিত হইয়া মুঞি পড়িনু ভূমিতে ।
-> স্বপ্নভঙ্গ হৈল, দেখি, হঞাছে প্রভাতে ॥১৯৭॥
 
 > mūrcchita ha-iyā muñi paḍinu bhūmite
 > svapna-bhaṅga haila, dekhi, hañāche prabhāte
@@ -11773,9 +9218,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 
 ### CC Adi 5.198
 
-> কি দেখিনু কি শুনিনু, করিয়ে বিচার ।
-> প্রভু-আজ্ঞা হৈল বৃন্দাবন যাইবার ॥১৯৮॥
-
 > ki dekhinu ki śuninu, kariye vicāra
 > prabhu-ājñā haila vṛndāvana yāibāra
 
@@ -11784,9 +9226,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 **I thought about what I had seen and heard and concluded that the Lord had ordered me to proceed to Vṛndāvana at once.**
 
 ### CC Adi 5.199
-
-> সেইক্ষণে বৃন্দাবনে করিনু গমন ।
-> প্রভুর কৃপাতে সুখে আইনু বৃন্দাবন ॥১৯৯॥
 
 > sei kṣaṇe vṛndāvane karinu gamana
 > prabhura kṛpāte sukhe āinu vṛndāvana
@@ -11797,9 +9236,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 
 ### CC Adi 5.200
 
-> জয় জয় নিত্যানন্দ, নিত্যানন্দ-রাম ।
-> যাঁহার কৃপাতে পাইনু বৃন্দাবন-ধাম ॥২০০॥
-
 > jaya jaya nityānanda, nityānanda-rāma
 > yāṅhāra kṛpāte pāinu vṛndāvana-dhāma
 
@@ -11809,9 +9245,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 
 ### CC Adi 5.201
 
-> জয় জয় নিত্যানন্দ, জয় কৃপাময় ।
-> যাঁহা হৈতে পাইনু রূপ-সনাতনাশ্রয় ॥২০১॥
-
 > jaya jaya nityānanda, jaya kṛpā-maya
 > yāṅhā haite pāinu rūpa-sanātanāśraya
 
@@ -11820,9 +9253,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 **All glory, all glory to the merciful Lord Nityānanda, by whose mercy I have attained shelter at the lotus feet of Śrī Rūpa and Śrī Sanātana.**
 
 ### CC Adi 5.202
-
-> যাঁহা হৈতে পাইনু রঘুনাথ-মহাশয় ।
-> যাঁহা হৈতে পাইনু শ্রীস্বরূপ-আশ্রয় ॥২০২॥
 
 > yāṅhā haite pāinu raghunātha-mahāśaya
 > yāṅhā haite pāinu śrī-svarūpa-āśraya
@@ -11834,9 +9264,6 @@ There is now a railway line to Jhāmaṭapura. If one wants to go there, he can 
 Anyone desiring to become expert in the service of Śrī Śrī Rādhā and Kṛṣṇa should always aspire to be under the guidance of Svarūpa Dāmodara Gosvāmī, Rūpa Gosvāmī, Sanātana Gosvāmī and Raghunātha dāsa Gosvāmī. To come under the protection of the Gosvāmīs, one must get the mercy and grace of Nityānanda Prabhu. The author has tried to explain this fact in these two verses.
 
 ### CC Adi 5.203
-
-> সনাতন-কৃপায় পাইনু ভক্তির সিদ্ধান্ত ।
-> শ্রীরূপ-কৃপায় পাইনু ভক্তিরসপ্রান্ত ॥২০৩॥
 
 > sanātana-kṛpāya pāinu bhaktira siddhānta
 > śrī-rūpa-kṛpāya pāinu bhakti-rasa-prānta
@@ -11856,9 +9283,6 @@ Anyone desiring to become expert in the service of Śrī Śrī Rādhā and Kṛ�
 
 ### CC Adi 5.204
 
-> জয় জয় নিত্যানন্দ-চরণারবিন্দ ।
-> যাঁহা হৈতে পাইনু শ্রীরাধাগোবিন্দ ॥২০৪॥
-
 > jaya jaya nityānanda-caraṇāravinda
 > yāṅhā haite pāinu śrī-rādhā-govinda
 
@@ -11870,9 +9294,6 @@ Anyone desiring to become expert in the service of Śrī Śrī Rādhā and Kṛ�
 
 ### CC Adi 5.205
 
-> জগাই মাধাই হৈতে মুঞি সে পাপিষ্ঠ ।
-> পুরীষের কীট হৈতে মুঞি সে লঘিষ্ঠ ॥২০৫॥
-
 > jagāi mādhāi haite muñi se pāpiṣṭha
 > purīṣera kīṭa haite muñi se laghiṣṭha
 
@@ -11881,9 +9302,6 @@ Anyone desiring to become expert in the service of Śrī Śrī Rādhā and Kṛ�
 **I am more sinful than Jagāi and Mādhāi and even lower than the worms in the stool.**
 
 ### CC Adi 5.206
-
-> মোর নাম শুনে যেই তার পুণ্য ক্ষয় ।
-> মোর নাম লয় যেই তার পাপ হয় ॥২০৬॥
 
 > mora nāma śune yei tāra puṇya kṣaya
 > mora nāma laya yei tāra pāpa haya
@@ -11894,9 +9312,6 @@ Anyone desiring to become expert in the service of Śrī Śrī Rādhā and Kṛ�
 
 ### CC Adi 5.207
 
-> এমন নির্ঘৃণ মোরে কেবা কৃপা করে ।
-> এক নিত্যানন্দ বিনু জগৎ ভিতরে ॥২০৭॥
-
 > emana nirghṛṇa more kebā kṛpā kare
 > eka nityānanda vinu jagat bhitare
 
@@ -11905,9 +9320,6 @@ Anyone desiring to become expert in the service of Śrī Śrī Rādhā and Kṛ�
 **Who in this world but Nityānanda could show His mercy to such an abominable person as me?**
 
 ### CC Adi 5.208
-
-> প্রেমে মত্ত নিত্যানন্দ কৃপা-অবতার ।
-> উত্তম, অধম, কিছু না করে বিচার ॥২০৮॥
 
 > preme matta nityānanda kṛpā-avatāra
 > uttama, adhama, kichu nā kare vicāra
@@ -11918,9 +9330,6 @@ Anyone desiring to become expert in the service of Śrī Śrī Rādhā and Kṛ�
 
 ### CC Adi 5.209
 
-> যে আগে পড়য়ে, তারে করয়ে নিস্তার ।
-> অতএব নিস্তারিলা মো-হেন দুরাচার ॥২০৯॥
-
 > ye āge paḍaye, tāre karaye nistāra
 > ataeva nistārilā mo-hena durācāra
 
@@ -11929,9 +9338,6 @@ Anyone desiring to become expert in the service of Śrī Śrī Rādhā and Kṛ�
 **He delivers all those who fall down before Him. Therefore He has delivered such a sinful and fallen person as me.**
 
 ### CC Adi 5.210
-
-> মো-পাপিষ্ঠে আনিলেন শ্রীবৃন্দাবন ।
-> মো-হেন অধমে দিলা শ্রীরূপ-চরণ ॥২১০॥
 
 > mo-pāpiṣṭhe ānilena śrī-vṛndāvana
 > mo-hena adhame dilā śrī-rūpa-caraṇa
@@ -11942,9 +9348,6 @@ Anyone desiring to become expert in the service of Śrī Śrī Rādhā and Kṛ�
 
 ### CC Adi 5.211
 
-> শ্রীমদনগোপাল-শ্রীগোবিন্দ-দরশন ।
-> কহিবার যোগ্য নহে এসব কথন ॥২১১॥
-
 > śrī-madana-gopāla-śrī-govinda-daraśana
 > kahibāra yogya nahe e-saba kathana
 
@@ -11953,9 +9356,6 @@ Anyone desiring to become expert in the service of Śrī Śrī Rādhā and Kṛ�
 **I am not fit to speak all these confidential words about my visiting Lord Madana Gopāla and Lord Govinda.**
 
 ### CC Adi 5.212
-
-> বৃন্দাবন-পুরন্দর শ্রীমদনগোপাল ।
-> রাসবিলাসী সাক্ষাৎ ব্রজেন্দ্রকুমার ॥২১২॥
 
 > vṛndāvana-purandara śrī-madana-gopāla
 > rāsa-vilāsī sākṣāt vrajendra-kumāra
@@ -11966,9 +9366,6 @@ Anyone desiring to become expert in the service of Śrī Śrī Rādhā and Kṛ�
 
 ### CC Adi 5.213
 
-> শ্রীরাধা-ললিতা-সঙ্গে রাস-বিলাস ।
-> মন্মথ-মন্মথরূপে যাঁহার প্রকাশ ॥২১৩॥
-
 > śrī-rādhā-lalitā-saṅge rāsa-vilāsa
 > manmatha-manmatha-rūpe yāṅhāra prakāśa
 
@@ -11977,9 +9374,6 @@ Anyone desiring to become expert in the service of Śrī Śrī Rādhā and Kṛ�
 **He enjoys the rāsa dance with Śrīmatī Rādhārāṇī, Śrī Lalitā and others. He manifests Himself as the Cupid of Cupids.**
 
 ### CC Adi 5.214
-
-> তাসামাবিরভূচ্ছৌরিঃ স্ময়মানমুখাম্বুজঃ ।
-> পীতাম্বরধরঃ স্রগ্বী সাক্ষান্মন্মথমন্মথঃ ॥২১৪॥
 
 > tāsām āvirabhūc chauriḥ
 > smayamāna-mukhāmbujaḥ
@@ -11994,9 +9388,6 @@ This is a quotation from *Śrīmad-Bhāgavatam* (10.32.2).
 
 ### CC Adi 5.215
 
-> স্বমাধুর্যে লোকের মন করে আকর্ষণ ।
-> দুই পাশে রাধা ললিতা করেন সেবন ॥২১৫॥
-
 > sva-mādhurye lokera mana kare ākarṣaṇa
 > dui pāśe rādhā lalitā karena sevana
 
@@ -12005,9 +9396,6 @@ This is a quotation from *Śrīmad-Bhāgavatam* (10.32.2).
 **With Rādhā and Lalitā serving Him on His two sides, He attracts the hearts of all by His own sweetness.**
 
 ### CC Adi 5.216
-
-> নিত্যানন্দ-দয়া মোরে তাঁরে দেখাইল ।
-> শ্রীরাধা-মদনমোহনে প্রভু করি’ দিল ॥২১৬॥
 
 > nityānanda-dayā more tāṅre dekhāila
 > śrī-rādhā-madana-mohane prabhu kari' dila
@@ -12018,9 +9406,6 @@ This is a quotation from *Śrīmad-Bhāgavatam* (10.32.2).
 
 ### CC Adi 5.217
 
-> মো-অধমে দিল শ্রীগোবিন্দ দরশন ।
-> কহিবার কথা নহে অকথ্য-কথন ॥২১৭॥
-
 > mo-adhame dila śrī-govinda daraśana
 > kahibāra kathā nahe akathya-kathana
 
@@ -12029,11 +9414,6 @@ This is a quotation from *Śrīmad-Bhāgavatam* (10.32.2).
 **He granted to one as low as me the sight of Lord Govinda. Words cannot describe this, nor is it fit to be disclosed.**
 
 ### CC Adi 5.218-219
-
-> বৃন্দাবনে যোগপীঠে কল্পতরু-বনে ।
-> রত্নমণ্ডপ, তাহে রত্নসিংহাসনে ॥২১৮॥
-> শ্রীগোবিন্দ বসিয়াছেন ব্রজেন্দ্রনন্দন ।
-> মাধুর্য প্রকাশি’ করেন জগৎ মোহন ॥২১৯॥
 
 > vṛndāvane yoga-pīṭhe kalpa-taru-vane
 > ratna-maṇḍapa, tāhe ratna-siṁhāsane
@@ -12047,9 +9427,6 @@ This is a quotation from *Śrīmad-Bhāgavatam* (10.32.2).
 
 ### CC Adi 5.220
 
-> বাম-পার্শ্বে শ্রীরাধিকা সখীগণ-সঙ্গে ।
-> রাসাদিক-লীলা প্রভু করে কত রঙ্গে ॥২২০॥
-
 > vāma-pārśve śrī-rādhikā sakhī-gaṇa-saṅge
 > rāsādika-līlā prabhu kare kata raṅge
 
@@ -12058,9 +9435,6 @@ This is a quotation from *Śrīmad-Bhāgavatam* (10.32.2).
 **By His left side is Śrīmatī Rādhārāṇī and Her personal friends. With them Lord Govinda enjoys the rāsa-līlā and many other pastimes.**
 
 ### CC Adi 5.221
-
-> যাঁর ধ্যান নিজ-লোকে করে পদ্মাসন ।
-> অষ্টাদশাক্ষর-মন্ত্রে করে উপাসন ॥২২১॥
 
 > yāṅra dhyāna nija-loke kare padmāsana
 > aṣṭādaśākṣara-mantre kare upāsana
@@ -12075,9 +9449,6 @@ Lord Brahmā lives in the highest planetary system, known as Brahmaloka or Satya
 
 ### CC Adi 5.222
 
-> চৌদ্দভুবনে যাঁর সবে করে ধ্যান ।
-> বৈকুণ্ঠাদি-পুরে যাঁর লীলাগুণ গান ॥২২২॥
-
 > caudda-bhuvane yāṅra sabe kare dhyāna
 > vaikuṇṭhādi-pure yāṅra līlā-guṇa gāna
 
@@ -12086,9 +9457,6 @@ Lord Brahmā lives in the highest planetary system, known as Brahmaloka or Satya
 **Everyone in the fourteen worlds meditates upon Him, and all the denizens of Vaikuṇṭha sing of His qualities and pastimes.**
 
 ### CC Adi 5.223
-
-> যাঁর মাধুরীতে করে লক্ষ্মী আকর্ষণ ।
-> রূপগোসাঞি করিয়াছেন সে-রূপ বর্ণন ॥২২৩॥
 
 > yāṅra mādhurīte kare lakṣmī ākarṣaṇa
 > rūpa-gosāñi kariyāchena se-rūpa varṇana
@@ -12100,11 +9468,6 @@ Lord Brahmā lives in the highest planetary system, known as Brahmaloka or Satya
 Śrīla Rūpa Gosvāmī, in his *Laghu-bhāgavatāmṛta,* has quoted from the *Padma Purāṇa,* where it is stated that Lakṣmīdevī, the goddess of fortune, after seeing the attractive features of Lord Kṛṣṇa, was attracted to Him, and to get the favor of Lord Kṛṣṇa she engaged herself in meditation. When asked by Kṛṣṇa why she engaged in meditation with austerity, Lakṣmīdevī answered, "I want to be one of Your associates like the *gopīs* in Vṛndāvana." Hearing this, Lord Śrī Kṛṣṇa replied that it was quite impossible. Lakṣmīdevī then said that she wanted to remain just like a golden line on the chest of the Lord. The Lord granted the request, and since then Lakṣmī has always been situated on the chest of Lord Kṛṣṇa as a golden line. The austerity and meditation of Lakṣmīdevī are also mentioned in *Śrīmad-Bhāgavatam* (10.16.36), where the Nāga-patnīs, the wives of the serpent Kāliya, in the course of their prayers to Kṛṣṇa, said that the goddess of fortune, Lakṣmī, also wanted His association as a *gopī* and desired the dust of His lotus feet.
 
 ### CC Adi 5.224
-
-> স্মেরাং ভঙ্গীত্রয়পরিচিতাং সাচিবিস্তীর্ণদৃষ্টিং
-> বংশীন্যস্তাধরকিশলয়ামুজ্জ্বলাং চন্দ্রকেণ ।
-> গোবিন্দাখ্যাং হরিতনুমিতঃ কেশিতীর্থোপকণ্ঠে
-> মা প্রেক্ষিষ্ঠাস্তব যদি সখে বন্ধুসঙ্গেঽস্তি রঙ্গঃ ॥২২৪॥
 
 > smerāṁ bhaṅgī-traya-paricitāṁ sāci-vistīrṇa-dṛṣṭiṁ
 > vaṁśī-nyastādhara-kiśalayām ujjvalāṁ candrakeṇa
@@ -12119,9 +9482,6 @@ This is a verse quoted from the *Bhakti-rasāmṛta-sindhu* (1.2.239) in connect
 
 ### CC Adi 5.225
 
-> সাক্ষাৎ ব্রজেন্দ্রসুত ইথে নাহি আন ।
-> যেবা অজ্ঞে করে তাঁরে প্রতিমা-হেন জ্ঞান ॥২২৫॥
-
 > sākṣāt vrajendra-suta ithe nāhi āna
 > yebā ajñe kare tāṅre pratimā-hena jñāna
 
@@ -12130,9 +9490,6 @@ This is a verse quoted from the *Bhakti-rasāmṛta-sindhu* (1.2.239) in connect
 **Without a doubt He is directly the son of the King of Vraja. Only a fool considers Him a statue.**
 
 ### CC Adi 5.226
-
-> সেই অপরাধে তার নাহিক নিস্তার ।
-> ঘোর নরকেতে পড়ে, কি বলিব আর ॥২২৬॥
 
 > sei aparādhe tāra nāhika nistāra
 > ghora narakete paḍe, ki baliba āra
@@ -12151,9 +9508,6 @@ The *Padma Purāṇa* specifically mentions that anyone who thinks the form of t
 
 ### CC Adi 5.227
 
-> হেন যে গোবিন্দ প্রভু, পাইনু যাঁহা হৈতে ।
-> তাঁহার চরণ-কৃপা কে পারে বর্ণিতে ॥২২৭॥
-
 > hena ye govinda prabhu, pāinu yāṅhā haite
 > tāṅhāra caraṇa-kṛpā ke pāre varṇite
 
@@ -12162,9 +9516,6 @@ The *Padma Purāṇa* specifically mentions that anyone who thinks the form of t
 **Therefore who can describe the mercy of the lotus feet of Him [Lord Nityānanda] by whom I have attained the shelter of this Lord Govinda?**
 
 ### CC Adi 5.228
-
-> বৃন্দাবনে বৈসে যত বৈষ্ণব-মণ্ডল ।
-> কৃষ্ণনাম-পরায়ণ, পরম-মঙ্গল ॥২২৮॥
 
 > vṛndāvane vaise yata vaiṣṇava-maṇḍala
 > kṛṣṇa-nāma-parāyaṇa, parama-maṅgala
@@ -12175,9 +9526,6 @@ The *Padma Purāṇa* specifically mentions that anyone who thinks the form of t
 
 ### CC Adi 5.229
 
-> যাঁর প্রাণধন — নিত্যানন্দ-শ্রীচৈতন্য ।
-> রাধাকৃষ্ণ-ভক্তি বিনে নাহি জানে অন্য ॥২২৯॥
-
 > yāṅra prāṇa-dhana—nityānanda-śrī-caitanya
 > rādhā-kṛṣṇa-bhakti vine nāhi jāne anya
 
@@ -12186,9 +9534,6 @@ The *Padma Purāṇa* specifically mentions that anyone who thinks the form of t
 **Lord Caitanya and Lord Nityānanda are their life and soul. They do not know anything but devotional service to Śrī Śrī Rādhā-Kṛṣṇa.**
 
 ### CC Adi 5.230
-
-> সে বৈষ্ণবের পদরেণু, তার পদছায়া ।
-> অধমেরে দিল প্রভু-নিত্যানন্দ-দয়া ॥২৩০॥
 
 > se vaiṣṇavera pada-reṇu, tāra pada-chāyā
 > adhamere dila prabhu-nityānanda-dayā
@@ -12199,9 +9544,6 @@ The *Padma Purāṇa* specifically mentions that anyone who thinks the form of t
 
 ### CC Adi 5.231
 
-> ‘তাঁহা সর্ব লভ্য হয়’ — প্রভুর বচন ।
-> সেই সূত্র — এই তার কৈল বিবরণ ॥২৩১॥
-
 > 'tāṅhā sarva labhya haya'—prabhura vacana
 > sei sūtra—ei tāra kaila vivaraṇa
 
@@ -12210,9 +9552,6 @@ The *Padma Purāṇa* specifically mentions that anyone who thinks the form of t
 **Lord Nityānanda said, "In Vṛndāvana all things are possible." Here I have explained His brief statement in detail.**
 
 ### CC Adi 5.232
-
-> সে সব পাইনু আমি বৃন্দাবনে আয় ।
-> সেই সব লভ্য এই প্রভুর কৃপায় ॥২৩২॥
 
 > se saba pāinu āmi vṛndāvane āya
 > sei saba labhya ei prabhura kṛpāya
@@ -12233,9 +9572,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 
 ### CC Adi 5.233
 
-> আপনার কথা লিখি নির্লজ্জ হইয়া ।
-> নিত্যানন্দগুণে লেখায় উন্মত্ত করিয়া ॥২৩৩॥
-
 > āpanāra kathā likhi nirlajja ha-iyā
 > nityānanda-guṇe lekhāya unmatta kariyā
 
@@ -12245,9 +9581,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 
 ### CC Adi 5.234
 
-> নিত্যানন্দ-প্রভুর গুণ-মহিমা অপার ।
-> ‘সহস্রবদনে’ শেষ নাহি পায় যাঁর ॥২৩৪॥
-
 > nityānanda-prabhura guṇa-mahimā apāra
 > 'sahasra-vadane' śeṣa nāhi pāya yāṅra
 
@@ -12256,9 +9589,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 **The glories of Lord Nityānanda's transcendental attributes are unfathomable. Even Lord Śeṣa with His thousands of mouths cannot find their limit.**
 
 ### CC Adi 5.235
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥২৩৫॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -12273,9 +9603,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 
 ### CC Adi 6.1
 
-> বন্দে তং শ্রীমদদ্বৈতাচার্যমদ্ভুতচেষ্টিতম্ ।
-> যস্য প্রসাদাদজ্ঞোঽপি তত্স্বরূপং নিরূপয়েৎ ॥১॥
-
 > vande taṁ śrīmad-advaitā-
 > cāryam adbhuta-ceṣṭitam
 > yasya prasādād ajño 'pi
@@ -12287,9 +9614,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 
 ### CC Adi 6.2
 
-> জয় জয় শ্রীচৈতন্য জয় নিত্যানন্দ ।
-> জয়াদ্বৈতচন্দ্র জয় গৌরভক্তবৃন্দ ॥২॥
-
 > jaya jaya śrī-caitanya jaya nityānanda
 > jayādvaita-candra jaya gaura-bhakta-vṛnda
 
@@ -12299,9 +9623,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 
 ### CC Adi 6.3
 
-> পঞ্চ শ্লোকে কহিল শ্রীনিত্যানন্দ-তত্ত্ব ।
-> শ্লোকদ্বয়ে কহি অদ্বৈতাচার্যের মহত্ত্ব ॥৩॥
-
 > pañca śloke kahila śrī-nityānanda-tattva
 > śloka-dvaye kahi advaitācāryera mahattva
 
@@ -12310,9 +9631,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 **In five verses I have described the principle of Lord Nityānanda. Then in the following two verses I describe the glories of Śrī Advaita Ācārya.**
 
 ### CC Adi 6.4
-
-> মহাবিষ্ণুর্জগৎকর্তা মায়য়া যঃ সৃজত্যদঃ ।
-> তস্যাবতার এবায়মদ্বৈতাচার্য ঈশ্বরঃ ॥৪॥
 
 > mahā-viṣṇur jagat-kartā
 > māyayā yaḥ sṛjaty adaḥ
@@ -12325,9 +9643,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 
 ### CC Adi 6.5
 
-> অদ্বৈতং হরিণাদ্বৈতাদাচার্যং ভক্তিশংসনাৎ ।
-> ভক্তাবতারমীশং তমদ্বৈতাচার্যমাশ্রয়ে ॥৫॥
-
 > advaitaṁ hariṇādvaitād
 > ācāryaṁ bhakti-śaṁsanāt
 > bhaktāvatāram īśaṁ tam
@@ -12339,9 +9654,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 
 ### CC Adi 6.6
 
-> অদ্বৈত-আচার্য গোসাঞি সাক্ষাৎ ঈশ্বর ।
-> যাঁহার মহিমা নহে জীবের গোচর ॥৬॥
-
 > advaita-ācārya gosāñi sākṣāt īśvara
 > yāṅhāra mahimā nahe jīvera gocara
 
@@ -12350,9 +9662,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 **Śrī Advaita Ācārya is indeed directly the Supreme Personality of Godhead Himself. His glory is beyond the conception of ordinary living beings.**
 
 ### CC Adi 6.7
-
-> মহাবিষ্ণু সৃষ্টি করেন জগদাদি কার্য ।
-> তাঁর অবতার সাক্ষাৎ অদ্বৈত আচার্য ॥৭॥
 
 > mahā-viṣṇu sṛṣṭi karena jagad-ādi kārya
 > tāṅra avatāra sākṣāt advaita ācārya
@@ -12363,9 +9672,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 
 ### CC Adi 6.8
 
-> যে পুরুষ সৃষ্টি-স্থিতি করেন মায়ায় ।
-> অনন্ত ব্রহ্মাণ্ড সৃষ্টি করেন লীলায় ॥৮॥
-
 > ye puruṣa sṛṣṭi-sthiti karena māyāya
 > ananta brahmāṇḍa sṛṣṭi karena līlāya
 
@@ -12374,9 +9680,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 **That puruṣa creates and maintains with His external energy. He creates innumerable universes in His pastimes.**
 
 ### CC Adi 6.9
-
-> ইচ্ছায় অনন্ত মূর্তি করেন প্রকাশ ।
-> এক এক মূর্তে করেন ব্রহ্মাণ্ডে প্রবেশ ॥৯॥
 
 > icchāya ananta mūrti karena prakāśa
 > eka eka mūrte karena brahmāṇḍe praveśa
@@ -12387,9 +9690,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 
 ### CC Adi 6.10
 
-> সে পুরুষের অংশ — অদ্বৈত, নাহি কিছু ভেদ ।
-> শরীর-বিশেষ তাঁর, — নাহিক বিচ্ছেদ ॥১০॥
-
 > se puruṣera aṁśa—advaita, nāhi kichu bheda
 > śarīra-viśeṣa tāṅra—nāhika viccheda
 
@@ -12399,9 +9699,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 
 ### CC Adi 6.11
 
-> সহায় করেন তাঁর লইয়া ‘প্রধান’ ।
-> কোটি ব্রহ্মাণ্ড করেন ইচ্ছায় নির্মাণ ॥১১॥
-
 > sahāya karena tāṅra la-iyā 'pradhāna'
 > koṭi brahmāṇḍa karena icchāya nirmāṇa
 
@@ -12410,9 +9707,6 @@ There are others who are against the worship of Caitanya Mahāprabhu, thinking H
 **He [Advaita Ācārya] helps in the pastimes of the puruṣa, with whose material energy and by whose will He creates innumerable universes.**
 
 ### CC Adi 6.12
-
-> জগৎ-মঙ্গল অদ্বৈত, মঙ্গল-গুণধাম ।
-> মঙ্গল-চরিত্র সদা, ‘মঙ্গল’ যাঁর নাম ॥১২॥
 
 > jagat-maṅgala advaita, maṅgala-guṇa-dhāma
 > maṅgala-caritra sadā, 'maṅgala' yāṅra nāma
@@ -12427,9 +9721,6 @@ In the teachings of Advaita Prabhu there is no question of fruitive activities o
 
 ### CC Adi 6.13
 
-> কোটি অংশ, কোটি শক্তি, কোটি অবতার ।
-> এত লঞা সৃজে পুরুষ সকল সংসার ॥১৩॥
-
 > koṭi aṁśa, koṭi śakti, koṭi avatāra
 > eta lañā sṛje puruṣa sakala saṁsāra
 
@@ -12438,11 +9729,6 @@ In the teachings of Advaita Prabhu there is no question of fruitive activities o
 **Mahā-Viṣṇu creates the entire material world, with millions of His parts, energies and incarnations.**
 
 ### CC Adi 6.14-15
-
-> মায়া যৈছে দুই অংশ — ‘নিমিত্ত’, ‘উপাদান’ ।
-> মায়া — ‘নিমিত্ত’-হেতু, উপাদান — ‘প্রধান’ ॥১৪॥
-> পুরুষ ঈশ্বর ঐছে দ্বিমূর্তি হইয়া ।
-> বিশ্ব-সৃষ্টি করে ‘নিমিত্ত’ ‘উপাদান’ লঞা ॥১৫॥
 
 > māyā yaiche dui aṁśa—'nimitta', 'upādāna'
 > māyā—'nimitta'-hetu, upādāna—'pradhāna'
@@ -12511,9 +9797,6 @@ The great Vaiṣṇava philosopher Śrīla Baladeva Vidyābhūṣaṇa has very 
 
 ### CC Adi 6.16
 
-> আপনে পুরুষ — বিশ্বের ‘নিমিত্ত’-কারণ ।
-> অদ্বৈত-রূপে ‘উপাদান’ হন নারায়ণ ॥১৬॥
-
 > āpane puruṣa—viśvera 'nimitta'-kāraṇa
 > advaita-rūpe 'upādāna' hana nārāyaṇa
 
@@ -12522,9 +9805,6 @@ The great Vaiṣṇava philosopher Śrīla Baladeva Vidyābhūṣaṇa has very 
 **Lord Viṣṇu Himself is the efficient [nimitta] cause of the material world, and Nārāyaṇa in the form of Śrī Advaita is the material cause [upādāna].**
 
 ### CC Adi 6.17
-
-> ‘নিমিত্তাংশে’ করে তেঁহো মায়াতে ঈক্ষণ ।
-> ‘উপাদান’ অদ্বৈত করেন ব্রহ্মাণ্ড-সৃজন ॥১৭॥
 
 > 'nimittāṁśe' kare teṅho māyāte īkṣaṇa
 > 'upādāna' advaita karena brahmāṇḍa-sṛjana
@@ -12535,9 +9815,6 @@ The great Vaiṣṇava philosopher Śrīla Baladeva Vidyābhūṣaṇa has very 
 
 ### CC Adi 6.18
 
-> যদ্যপি সাংখ্য মানে, ‘প্রধান’ — কারণ ।
-> জড় হইতে কভু নহে জগৎ-সৃজন ॥১৮॥
-
 > yadyapi sāṅkhya māne, 'pradhāna'—kāraṇa
 > jaḍa ha-ite kabhu nahe jagat-sṛjana
 
@@ -12546,9 +9823,6 @@ The great Vaiṣṇava philosopher Śrīla Baladeva Vidyābhūṣaṇa has very 
 **Although the Sāṅkhya philosophy accepts that the material ingredients are the cause, the creation of the world never arises from dead matter.**
 
 ### CC Adi 6.19
-
-> নিজ সৃষ্টিশক্তি প্রভু সঞ্চারে প্রধানে ।
-> ঈশ্বরের শক্ত্যে তবে হয়ে ত’ নির্মাণে ॥১৯॥
 
 > nija sṛṣṭi-śakti prabhu sañcāre pradhāne
 > īśvarera śaktye tabe haye ta' nirmāṇe
@@ -12559,9 +9833,6 @@ The great Vaiṣṇava philosopher Śrīla Baladeva Vidyābhūṣaṇa has very 
 
 ### CC Adi 6.20
 
-> অদ্বৈতরূপে করে শক্তি-সঞ্চারণ ।
-> অতএব অদ্বৈত হয়েন মুখ্য কারণ ॥২০॥
-
 > advaita-rūpe kare śakti-sañcāraṇa
 > ataeva advaita hayena mukhya kāraṇa
 
@@ -12570,9 +9841,6 @@ The great Vaiṣṇava philosopher Śrīla Baladeva Vidyābhūṣaṇa has very 
 **In the form of Advaita He infuses the material ingredients with creative energy. Therefore, Advaita is the original cause of creation.**
 
 ### CC Adi 6.21
-
-> অদ্বৈত-আচার্য — কোটিব্রহ্মাণ্ডের কর্তা ।
-> আর এক এক মূর্ত্যে ব্রহ্মাণ্ডের ভর্তা ॥২১॥
 
 > advaita-ācārya koṭi-brahmāṇḍera kartā
 > āra eka eka mūrtye brahmāṇḍera bhartā
@@ -12583,9 +9851,6 @@ The great Vaiṣṇava philosopher Śrīla Baladeva Vidyābhūṣaṇa has very 
 
 ### CC Adi 6.22
 
-> সেই নারায়ণের মুখ্য অঙ্গ, — অদ্বৈত ।
-> ‘অঙ্গ’-শব্দে অংশ করি’ কহে ভাগবত ॥২২॥
-
 > sei nārāyaṇera mukhya aṅga,—advaita
 > 'aṅga'-śabde aṁśa kari' kahe bhāgavata
 
@@ -12594,11 +9859,6 @@ The great Vaiṣṇava philosopher Śrīla Baladeva Vidyābhūṣaṇa has very 
 **Śrī Advaita is the principal limb [aṅga] of Nārāyaṇa. Śrīmad-Bhāgavatam speaks of "limb" [aṅga] as "a plenary portion" [aṁśa] of the Lord.**
 
 ### CC Adi 6.23
-
-> নারায়ণস্ত্বং ন হি সর্বদেহিনা-
-> মাত্মাস্যধীশাখিল-লোকসাক্ষী ।
-> নারায়ণোঽঙ্গং নর-ভূ-জলায়না-
-> ত্তচ্চাপি সত্যং ন তবৈব মায়া ॥২৩॥
 
 > nārāyaṇas tvaṁ na hi sarva-dehinām
 > ātmāsy adhīśākhila-loka-sākṣī
@@ -12613,9 +9873,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.14.14).
 
 ### CC Adi 6.24
 
-> ঈশ্বরের ‘অঙ্গ’ অংশ — চিদানন্দময় ।
-> মায়ার সম্বন্ধ নাহি’ এই শ্লোকে কয় ॥২৪॥
-
 > īśvarera 'aṅga' aṁśa—cid-ānanda-maya
 > māyāra sambandha nāhi' ei śloke kaya
 
@@ -12624,9 +9881,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.14.14).
 **This verse describes that the limbs and plenary portions of the Lord are all spiritual; they have no relationship with the material energy.**
 
 ### CC Adi 6.25
-
-> ‘অংশ’ না কহিয়া, কেনে কহ তাঁরে ‘অঙ্গ’ ।
-> ‘অংশ’ হৈতে ‘অঙ্গ’, যাতে হয় অন্তরঙ্গ ॥২৫॥
 
 > 'aṁśa' nā kahiyā, kene kaha tāṅre 'aṅga'
 > 'aṁśa' haite 'aṅga,' yāte haya antaraṅga
@@ -12637,9 +9891,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.14.14).
 
 ### CC Adi 6.26
 
-> মহাবিষ্ণুর অংশ — অদ্বৈত গুণধাম ।
-> ঈশ্বরে অভেদ, তেঞি ‘অদ্বৈত’ পূর্ণ নাম ॥২৬॥
-
 > mahā-viṣṇura aṁśa—advaita guṇa-dhāma
 > īśvare abheda, teñi 'advaita' pūrṇa nāma
 
@@ -12649,9 +9900,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.14.14).
 
 ### CC Adi 6.27
 
-> পূর্বে যৈছে কৈল সর্ব-বিশ্বের সৃজন ।
-> অবতরি’ কৈল এবে ভক্তি-প্রবর্তন ॥২৭॥
-
 > pūrve yaiche kaila sarva-viśvera sṛjana
 > avatari' kaila ebe bhakti-pravartana
 
@@ -12660,9 +9908,6 @@ This text is from *Śrīmad-Bhāgavatam* (10.14.14).
 **As He had formerly created all the universes, now He descended to introduce the path of bhakti.**
 
 ### CC Adi 6.28
-
-> জীব নিস্তারিল কৃষ্ণভক্তি করি’ দান ।
-> গীতা-ভাগবতে কৈল ভক্তির ব্যাখ্যান ॥২৮॥
 
 > jīva nistārila kṛṣṇa-bhakti kari' dāna
 > gītā-bhāgavate kaila bhaktira vyākhyāna
@@ -12675,9 +9920,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 
 ### CC Adi 6.29
 
-> ভক্তি-উপদেশ বিনু তাঁর নাহি কার্য ।
-> অতএব নাম হৈল ‘অদ্বৈত আচার্য’ ॥২৯॥
-
 > bhakti-upadeśa vinu tāṅra nāhi kārya
 > ataeva nāma haila 'advaita ācārya'
 
@@ -12686,9 +9928,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 **Since He has no other occupation than to teach devotional service, His name is Advaita Ācārya.**
 
 ### CC Adi 6.30
-
-> বৈষ্ণবের গুরু তেঁহো জগতের আর্য ।
-> দুইনাম-মিলনে হৈল ‘অদ্বৈত-আচার্য’ ॥৩০॥
 
 > vaiṣṇavera guru teṅho jagatera ārya
 > dui-nāma-milane haila 'advaita-ācārya'
@@ -12701,9 +9940,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 
 ### CC Adi 6.31
 
-> কমল-নয়নের তেঁহো, যাতে ‘অঙ্গ’, ‘অংশ’ ।
-> ‘কমলাক্ষ’ করি ধরে নাম অবতংস ॥৩১॥
-
 > kamala-nayanera teṅho, yāte 'aṅga' 'aṁśa'
 > 'kamalākṣa' kari dhare nāma avataṁsa
 
@@ -12712,9 +9948,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 **Since He is a limb or part of the lotus-eyed Supreme Lord, He also bears the name Kamalākṣa.**
 
 ### CC Adi 6.32
-
-> ঈশ্বরসারূপ্য পায় পারিষদগণ ।
-> চতুর্ভুজ, পীতবাস, যৈছে নারায়ণ ॥৩২॥
 
 > īśvara-sārūpya pāya pāriṣada-gaṇa
 > catur-bhuja, pīta-vāsa, yaiche nārāyaṇa
@@ -12725,9 +9958,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 
 ### CC Adi 6.33
 
-> অদ্বৈত-আচার্য — ঈশ্বরের অংশবর্য ।
-> তাঁর তত্ত্ব-নাম-গুণ, সকলি আশ্চর্য ॥৩৩॥
-
 > advaita-ācārya—īśvarera aṁśa-varya
 > tāṅra tattva-nāma-guṇa, sakali āścarya
 
@@ -12736,9 +9966,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 **Śrī Advaita Ācārya is the principal limb of the Supreme Lord. His truths, names and attributes are all wonderful.**
 
 ### CC Adi 6.34
-
-> যাঁহার তুলসীজলে, যাঁহার হুঙ্কারে ।
-> স্বগণ সহিতে চৈতন্যের অবতারে ॥৩৪॥
 
 > yāṅhāra tulasī-jale, yāṅhāra huṅkāre
 > sva-gaṇa sahite caitanyera avatāre
@@ -12749,9 +9976,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 
 ### CC Adi 6.35
 
-> যাঁর দ্বারা কৈল প্রভু কীর্তন প্রচার ।
-> যাঁর দ্বারা কৈল প্রভু জগৎ নিস্তার ॥৩৫॥
-
 > yāṅra dvārā kaila prabhu kīrtana pracāra
 > yāṅra dvārā kaija prabhu jagat nistāra
 
@@ -12760,9 +9984,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 **It is through Him [Advaita Ācārya] that Lord Caitanya spread the saṅkīrtana movement and through Him that He delivered the world.**
 
 ### CC Adi 6.36
-
-> আচার্য গোসাঞির গুণ-মহিমা অপার ।
-> জীবকীট কোথায় পাইবেক তার পার ॥৩৬॥
 
 > ācārya gosāñira guṇa-mahimā apāra
 > jīva-kīṭa kothāya pāibeka tāra pāra
@@ -12773,9 +9994,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 
 ### CC Adi 6.37
 
-> আচার্য গোসাঞি চৈতন্যের মুখ্য অঙ্গ ।
-> আর এক অঙ্গ তাঁর প্রভু নিত্যানন্দ ॥৩৭॥
-
 > ācārya gosāñi caitanyera mukhya aṅga
 > āra eka aṅga tāṅra prabhu nityānanda
 
@@ -12784,9 +10002,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 **Śrī Advaita Ācārya is a principal limb of Lord Caitanya. Another limb of the Lord is Nityānanda Prabhu.**
 
 ### CC Adi 6.38
-
-> প্রভুর উপাঙ্গ — শ্রীবাসাদি ভক্তগণ ।
-> হস্তমুখনেত্র-অঙ্গ চক্রাদ্যস্ত্র-সম ॥৩৮॥
 
 > prabhura upāṅga—śrīvāsādi bhakta-gaṇa
 > hasta-mukha-netra-aṅga cakrādy-astra-sama
@@ -12797,9 +10012,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 
 ### CC Adi 6.39
 
-> এসব লইয়া চৈতন্যপ্রভুর বিহার ।
-> এসব লইয়া করেন বাঞ্ছিত প্রচার ॥৩৯॥
-
 > e-saba la-iyā caitanya-prabhura vihāra
 > e-saba la-iyā karena vāñchita pracāra
 
@@ -12808,9 +10020,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 **With all of them Lord Caitanya performed His pastimes, and with them He spread His mission.**
 
 ### CC Adi 6.40
-
-> মাধবেন্দ্রপুরীর ইঁহো শিষ্য, এই জ্ঞানে ।
-> আচার্য-গোসাঞিরে প্রভু গুরু করি’ মানে ॥৪০॥
 
 > mādhavendra-purīra iṅho śiṣya, ei jñāne
 > ācārya-gosāñire prabhu guru kari' māne
@@ -12823,9 +10032,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 
 ### CC Adi 6.41
 
-> লৌকিক-লীলাতে ধর্মমর্যাদা-রক্ষণ ।
-> স্তুতি-ভক্ত্যে করেন তাঁর চরণ বন্দন ॥৪১॥
-
 > laukika-līlāte dharma-maryādā-rakṣaṇa
 > stuti-bhaktye karena tāṅra caraṇa vandana
 
@@ -12834,9 +10040,6 @@ Although Śrī Advaita Prabhu is an incarnation of Viṣṇu, for the welfare of
 **To maintain the proper etiquette for the principles of religion, Lord Caitanya bows down at the lotus feet of Śrī Advaita Ācārya with reverential prayers and devotion.**
 
 ### CC Adi 6.42
-
-> চৈতন্যগোসাঞিকে আচার্য করে ‘প্রভু’-জ্ঞান ।
-> আপনাকে করেন তাঁর ‘দাস’-অভিমান ॥৪২॥
 
 > caitanya-gosāñike ācārya kare 'prabhu'-jñāna
 > āpanāke karena tāṅra 'dāsa'-abhimāna
@@ -12903,9 +10106,6 @@ The *Bhakti-rasāmṛta-sindhu* of Rūpa Gosvāmī explains the superexcellent q
 
 ### CC Adi 6.43
 
-> সেই অভিমান-সুখে আপনা পাসরে ।
-> ‘কৃষ্ণদাস’ হও — জীবে উপদেশ করে ॥৪৩॥
-
 > sei abhimāna-sukhe āpanā pāsare
 > 'kṛṣṇa-dāsa' hao—jīve upadeśa kare
 
@@ -12917,9 +10117,6 @@ The transcendental devotional service of the Supreme Personality of Godhead is s
 
 ### CC Adi 6.44
 
-> কৃষ্ণদাস-অভিমানে যে আনন্দসিন্ধু ।
-> কোটী-ব্রহ্মসুখ নহে তার এক বিন্দু ॥৪৪॥
-
 > kṛṣṇa-dāsa-abhimāne ye ānanda-sindhu
 > koṭī-brahma-sukha nahe tāra eka bindu
 
@@ -12928,9 +10125,6 @@ The transcendental devotional service of the Supreme Personality of Godhead is s
 **The conception of servitude to Śrī Kṛṣṇa generates such an ocean of joy in the soul that even the joy of oneness with the Absolute, if multiplied ten million times, could not compare to a drop of it.**
 
 ### CC Adi 6.45
-
-> মুঞি যে চৈতন্যদাস, আর নিত্যানন্দ ।
-> দাস-ভাব-সম নহে অন্যত্র আনন্দ ॥৪৫॥
 
 > muñi ye caitanya-dāsa āra nityānanda
 > dāsa-bhāva-sama nahe anyatra ānanda
@@ -12941,9 +10135,6 @@ The transcendental devotional service of the Supreme Personality of Godhead is s
 
 ### CC Adi 6.46
 
-> পরমপ্রেয়সী লক্ষ্মী হৃদয়ে বসতি ।
-> তেঁহো দাস্য-সুখ মাগে করিয়া মিনতি ॥৪৬॥
-
 > parama-preyasī lakṣmī hṛdaye vasati
 > teṅho dāsya-sukha māge kariyā minati
 
@@ -12952,9 +10143,6 @@ The transcendental devotional service of the Supreme Personality of Godhead is s
 **The most beloved goddess of fortune resides on the chest of Śrī Kṛṣṇa, yet she too, earnestly praying, begs for the joy of service at His feet.**
 
 ### CC Adi 6.47
-
-> দাস্য-ভাবে আনন্দিত পারিষদগণ ।
-> বিধি, ভব, নারদ আর শুক, সনাতন ॥৪৭॥
 
 > dāsya-bhāve ānandita pāriṣada-gaṇa
 > vidhi, bhava, nārada āra śuka, sanātana
@@ -12965,9 +10153,6 @@ The transcendental devotional service of the Supreme Personality of Godhead is s
 
 ### CC Adi 6.48
 
-> নিত্যানন্দ অবধূত সবাতে আগল ।
-> চৈতন্যের দাস্য-প্রেমে হইলা পাগল ॥৪৮॥
-
 > nityānanda avadhūta sabāte āgala
 > caitanyera dāsya-preme ha-ilā pāgala
 
@@ -12976,11 +10161,6 @@ The transcendental devotional service of the Supreme Personality of Godhead is s
 **Śrī Nityānanda, the wandering mendicant, is the foremost of all the associates of Lord Caitanya. He became mad in the ecstasy of service to Lord Caitanya.**
 
 ### CC Adi 6.49-50
-
-> শ্রীবাস, হরিদাস, রামদাস, গদাধর ।
-> মুরারি, মুকুন্দ, চন্দ্রশেখর, বক্রেশ্বর ॥৪৯॥
-> এসব পণ্ডিতলোক পরম-মহত্ত্ব ।
-> চৈতন্যের দাস্যে সবায় করয়ে উন্মত্ত ॥৫০॥
 
 > śrīvāsa, haridāsa, rāmadāsa, gadādhara
 > murāri, mukunda, candraśekhara, vakreśvara
@@ -12994,9 +10174,6 @@ The transcendental devotional service of the Supreme Personality of Godhead is s
 
 ### CC Adi 6.51
 
-> এই মত গায়, নাচে, করে অট্টহাস ।
-> লোকে উপদেশে, — ‘হও চৈতন্যের দাস’ ॥৫১॥
-
 > ei mata gāya, nāce, kare aṭṭahāsa
 > loke upadeśe,—'hao caitanyera dāsa'
 
@@ -13006,9 +10183,6 @@ The transcendental devotional service of the Supreme Personality of Godhead is s
 
 ### CC Adi 6.52
 
-> চৈতন্যগোসাঞি মোরে করে গুরু-জ্ঞান ।
-> তথাপিহ মোর হয় দাস-অভিমান ॥৫২॥
-
 > caitanya-gosāñi more kare guru jñāna
 > tathāpiha mora haya dāsa-abhimāna
 
@@ -13017,9 +10191,6 @@ The transcendental devotional service of the Supreme Personality of Godhead is s
 **Śrī Advaita Ācārya thinks, "Lord Caitanya considers Me His spiritual master, yet I feel Myself to be only His servant."**
 
 ### CC Adi 6.53
-
-> কৃষ্ণপ্রেমের এই এক অপূর্ব প্রভাব ।
-> গুরু-সম-লঘুকে করায় দাস্যভাব ॥৫৩॥
 
 > kṛṣṇa-premera ei eka apūrva prabhāva
 > guru-sama-laghuke karāya dāsya-bhāva
@@ -13032,9 +10203,6 @@ There are two kinds of devotional service: the way of *pāñcarātrika* regulati
 
 ### CC Adi 6.54
 
-> ইহার প্রমাণ শুন — শাস্ত্রের ব্যাখ্যান ।
-> মহদনুভব যাতে সুদৃঢ় প্রমাণ ॥৫৪॥
-
 > ihāra pramāṇa śuna—śāstrera vyākhyāna
 > mahad-anubhava yāte sudṛḍha pramāṇa
 
@@ -13043,11 +10211,6 @@ There are two kinds of devotional service: the way of *pāñcarātrika* regulati
 **For evidence, please listen to the examples described in the revealed scriptures, which are also corroborated by the realization of great souls.**
 
 ### CC Adi 6.55-56
-
-> অন্যের কা কথা, ব্রজে নন্দ মহাশয় ।
-> তার সম ‘গুরু’ কৃষ্ণের আর কেহ নয় ॥৫৫॥
-> শুদ্ধবাৎসল্যে ঈশ্বর-জ্ঞান নাহি তার ।
-> তাহাকেই প্রেমে করায় দাস্য-অনুকার ॥৫৬॥
 
 > anyera kā kathā, vraje nanda mahāśaya
 > tāra sama 'guru' kṛṣṇera āra keha naya
@@ -13061,9 +10224,6 @@ There are two kinds of devotional service: the way of *pāñcarātrika* regulati
 
 ### CC Adi 6.57
 
-> তেঁহো রতি-মতি মাগে কৃষ্ণের চরণে ।
-> তাহার শ্রীমুখবাণী তাহাতে প্রমাণে ॥৫৭॥
-
 > teṅho rati-mati māge kṛṣṇera caraṇe
 > tāhāra śrī-mukha-vāṇī tāhāte pramāṇe
 
@@ -13072,11 +10232,6 @@ There are two kinds of devotional service: the way of *pāñcarātrika* regulati
 **He too prays for attachment and devotion to the lotus feet of Lord Kṛṣṇa, as the words from his own mouth give evidence.**
 
 ### CC Adi 6.58-59
-
-> শুন উদ্ধব, সত্য, কৃষ্ণ — আমার তনয় ।
-> তেঁহো ঈশ্বর — হেন যদি তোমার মনে লয় ॥৫৮॥
-> তথাপি তাঁহাতে রহু মোর মনোবৃত্তি ।
-> তোমার ঈশ্বর-কৃষ্ণে হউক মোর মতি ॥৫৯॥
 
 > śuna uddhava, satya, kṛṣṇa—āmāra tanaya
 > teṅho īśvara—hena yadi tomāra mane laya
@@ -13090,9 +10245,6 @@ There are two kinds of devotional service: the way of *pāñcarātrika* regulati
 
 ### CC Adi 6.60
 
-> মনসো বৃত্তয়ো নঃ স্যুঃ কৃষ্ণপাদাম্বুজাশ্রয়াঃ ।
-> বাচোঽভিধায়িনীর্নাম্নাং কায়স্তৎপ্রহ্বণাদিষু ॥৬০॥
-
 > manaso vṛttayo naḥ syuḥ
 > kṛṣṇa-pādāmbujāśrayāḥ
 > vāco 'bhidhāyinīr nāmnāṁ
@@ -13103,9 +10255,6 @@ There are two kinds of devotional service: the way of *pāñcarātrika* regulati
 **"May our minds be attached to the lotus feet of your Lord Kṛṣṇa, may our tongues chant His holy names, and may our bodies lie prostrate before Him.**
 
 ### CC Adi 6.61
-
-> কর্মভির্ভ্রাম্যমাণানাং যত্র ক্বাপীশ্বরেচ্ছয়া ।
-> মঙ্গলাচরিতৈর্দানৈ রতির্নঃ কৃষ্ণ ঈশ্বরে ॥৬১॥
 
 > karmabhir bhrāmyamāṇānāṁ
 > yatra kvāpīśvarecchayā
@@ -13120,9 +10269,6 @@ These verses from *Śrīmad-Bhāgavatam* (10.47.66-67) were spoken by the denize
 
 ### CC Adi 6.62
 
-> শ্রীদামাদি ব্রজে যত সখার নিচয় ।
-> ঐশ্বর্য-জ্ঞান-হীন, কেবল-সখ্যময় ॥৬২॥
-
 > śrīdāmādi vraje yata sakhāra nicaya
 > aiśvarya-jñāna-hīna, kevala-sakhya-maya
 
@@ -13132,9 +10278,6 @@ These verses from *Śrīmad-Bhāgavatam* (10.47.66-67) were spoken by the denize
 
 ### CC Adi 6.63
 
-> কৃষ্ণসঙ্গে যুদ্ধ করে, স্কন্ধে আরোহণ ।
-> তারা দাস্যভাবে করে চরণ-সেবন ॥৬৩॥
-
 > kṛṣṇa-saṅge yuddha kare, skandhe ārohaṇa
 > tārā dāsya-bhāve kare caraṇa-sevana
 
@@ -13143,9 +10286,6 @@ These verses from *Śrīmad-Bhāgavatam* (10.47.66-67) were spoken by the denize
 **Although they fight with Him and climb upon His shoulders, they worship His lotus feet in a spirit of servitude.**
 
 ### CC Adi 6.64
-
-> পাদসংবাহনং চক্রুঃ কেচিত্তস্য মহাত্মনঃ ।
-> অপরে হতপাপ্মানো ব্যজনৈঃ সমবীজয়ন্ ॥৬৪॥
 
 > pāda-saṁvāhanaṁ cakruḥ
 > kecit tasya mahātmanaḥ
@@ -13160,11 +10300,6 @@ This verse, quoted from *Śrīmad-Bhāgavatam* (10.15.17), describes how Lord K�
 
 ### CC Adi 6.65-66
 
-> কৃষ্ণের প্রেয়সী ব্রজে যত গোপীগণ ।
-> যাঁর পদধূলি করে উদ্ধব প্রার্থন ॥৬৫॥
-> যাঁ-সবার উপরে কৃষ্ণের প্রিয় নাহি আন ।
-> তাঁহারা আপনাকে করে দাসী-অভিমান ॥৬৬॥
-
 > kṛṣṇera preyasī vraje yata gopī-gaṇa
 > yāṅra pada-dhūli kare uddhava prārthana
 
@@ -13176,9 +10311,6 @@ This verse, quoted from *Śrīmad-Bhāgavatam* (10.15.17), describes how Lord K�
 **Even the beloved girlfriends of Lord Kṛṣṇa in Vṛndāvana, the gopīs, the dust of whose feet was desired by Śrī Uddhava and beyond whom no one is more dear to Kṛṣṇa, regard themselves as Kṛṣṇa's maidservants.**
 
 ### CC Adi 6.67
-
-> ব্রজজনার্তিহন্ বীর যোষিতাং নিজ-জনস্ময়ধ্বংসনস্মিত ।
-> ভজ সখে ভবৎকিঙ্করীঃ স্ম নো জলরুহাননং চারু দর্শয় ॥৬৭॥
 
 > vraja-janārti-han vīra yoṣitāṁ
 > nija-jana-smaya-dhvaṁsana-smita
@@ -13193,11 +10325,6 @@ This verse in connection with the *rāsa* dance of Kṛṣṇa with the *gopīs*
 
 ### CC Adi 6.68
 
-> অপি বত মধুপুর্যামার্যপুত্রোঽধুনাস্তে
-> স্মরতি স পিতৃগেহান্ সৌম্য বন্ধূংশ্চ গোপান্ ।
-> ক্বচিদপি স কথাং নঃ কিঙ্করীণাং গৃণীতে
-> ভুজমগুরুসুগন্ধং মূর্ধ্ন্যধাস্যৎ কদা নু ॥৬৮॥
-
 > api bata madhu-puryām ārya-putro 'dhunāste
 > smarati sa pitṛ-gehān saumya bandhūṁś ca gopān
 > kvacid api sa kathāṁ naḥ kiṅkariṇāṁ gṛṇīte
@@ -13211,11 +10338,6 @@ This verse appears in *Śrīmad-Bhāgavatam* (10.47.21) in the section known as 
 
 ### CC Adi 6.69-70
 
-> তাঁ-সবার কথা রহু, — শ্রীমতী রাধিকা ।
-> সবা হৈতে সকলাংশে পরম-অধিকা ॥৬৯॥
-> তেঁহো যাঁর দাসী হৈঞা সেবেন চরণ ।
-> যাঁর প্রেমগুণে কৃষ্ণ বদ্ধ অনুক্ষণ ॥৭০॥
-
 > tāṅ-sabāra kathā rahu,—śrīmatī rādhikā
 > sabā haite sakalāṁśe parama-adhikā
 
@@ -13227,9 +10349,6 @@ This verse appears in *Śrīmad-Bhāgavatam* (10.47.21) in the section known as 
 **What to speak of the other gopīs, even Śrī Rādhikā, who in every respect is the most elevated of them all and who has bound Śrī Kṛṣṇa forever by Her loving attributes, serves His feet as His maidservant.**
 
 ### CC Adi 6.71
-
-> হা নাথ রমণ প্রেষ্ঠ ক্বাসি ক্বাসি মহাভুজ ।
-> দাস্যাস্তে কৃপণায়া মে সখে দর্শয় সন্নিধিম্ ॥৭১॥
 
 > hā nātha ramaṇa preṣṭha
 > kvāsi kvāsi mahā-bhuja
@@ -13244,9 +10363,6 @@ This verse is quoted from *Śrīmad-Bhāgavatam* (10.30.39). When the *rāsa* da
 
 ### CC Adi 6.72
 
-> দ্বারকাতে রুক্মিণ্যাদি যতেক মহিষী ।
-> তাঁহারাও আপনাকে মানে কৃষ্ণদাসী ॥৭২॥
-
 > dvārakāte rukmiṇy-ādi yateka mahiṣī
 > tāṅhārāo āpanāke māne kṛṣṇa-dāsī
 
@@ -13255,11 +10371,6 @@ This verse is quoted from *Śrīmad-Bhāgavatam* (10.30.39). When the *rāsa* da
 **In Dvārakā-dhāma, all the queens, headed by Rukmiṇī, also consider themselves maidservants of Lord Kṛṣṇa.**
 
 ### CC Adi 6.73
-
-> চৈদ্যায় মার্পয়িতুমুদ্যত-কার্মুকেষু
-> রাজস্বজেয়-ভটশেখরিতাঙ্ঘ্রিরেণুঃ ।
-> নিন্যে মৃগেন্দ্র ইব ভাগমজাবিযূথা-
-> ত্তচ্ছ্রীনিকেত-চরণোঽস্তু মমার্চনায় ॥৭৩॥
 
 > caidyāya mārpayitum udyata-kārmukeṣu
 > rājasv ajeya-bhaṭa-śekharitāṅghri-reṇuḥ
@@ -13274,9 +10385,6 @@ This verse from *Śrīmad-Bhāgavatam* (10.83.8) was spoken by Queen Rukmiṇī.
 
 ### CC Adi 6.74
 
-> তপশ্চরন্তীমাজ্ঞায় স্বপাদস্পর্শনাশয়া ।
-> সখ্যোপেত্যাগ্রহীৎ পাণিং সাহং তদ্গৃহমার্জনী ॥৭৪॥
-
 > tapaś carantīm ājñāya
 > sva-pāda-sparśanāśayā
 > sakhyopetyāgrahīt pāṇiṁ
@@ -13289,9 +10397,6 @@ This verse from *Śrīmad-Bhāgavatam* (10.83.8) was spoken by Queen Rukmiṇī.
 Like the previous verse, this verse appears in *Śrīmad-Bhāgavatam* (10.83.11) in connection with the meeting of the family ladies of the Kuru and Yadu dynasties at Samanta-pañcaka. At the time of that meeting, the queen of Kṛṣṇa named Kālindī spoke to Draupadī in this way.
 
 ### CC Adi 6.75
-
-> আত্মারামস্য তস্যেমা বয়ং বৈ গৃহদাসিকাঃ ।
-> সর্বসঙ্গনিবৃত্ত্যাদ্ধা তপসা চ বভূবিম ॥৭৫॥
 
 > ātmārāmasya tasyemā
 > vayaṁ vai gṛha-dāsikāḥ
@@ -13306,9 +10411,6 @@ During the same incident, this verse, quoted from *Śrīmad-Bhāgavatam* (10.83.
 
 ### CC Adi 6.76
 
-> আনের কি কথা, বলদেব মহাশয়  ।
-> যাঁর ভাব — শুদ্ধসখ্য-বাৎসল্যাদিময় ॥৭৬॥
-
 > ānera ki kathā, baladeva mahāśaya
 > yāṅra bhāva—śuddha-sakhya-vātsalyādi-maya
 
@@ -13320,9 +10422,6 @@ Although Lord Baladeva appeared before the birth of Lord Kṛṣṇa and is ther
 
 ### CC Adi 6.77
 
-> তেঁহো আপনাকে করেন দাস-ভাবনা  ।
-> কৃষ্ণদাস-ভাব বিনু আছে কোন জনা ॥৭৭॥
-
 > teṅho āpanāke karena dāsa-bhāvanā
 > kṛṣṇa-dāsa-bhāva vinu āche kona janā
 
@@ -13332,9 +10431,6 @@ Although Lord Baladeva appeared before the birth of Lord Kṛṣṇa and is ther
 
 ### CC Adi 6.78
 
-> সহস্র-বদনে যেঁহো শেষ-সঙ্কর্ষণ ।
-> দশ দেহ ধরি’ করে কৃষ্ণের সেবন ॥৭৮॥
-
 > sahasra-vadane yeṅho śeṣa-saṅkarṣaṇa
 > daśa deha dhari' kare kṛṣṇera sevana
 
@@ -13343,9 +10439,6 @@ Although Lord Baladeva appeared before the birth of Lord Kṛṣṇa and is ther
 **He who is Śeṣa, Saṅkarṣaṇa, with His thousands of mouths, serves Śrī Kṛṣṇa by assuming ten forms.**
 
 ### CC Adi 6.79
-
-> অনন্ত ব্রহ্মাণ্ডে রুদ্র — সদাশিবের অংশ ।
-> গুণাবতার তেঁহো, সর্বদেব-অবতংস ॥৭৯॥
 
 > ananta brahmāṇḍe rudra—sadāśivera aṁśa
 > guṇāvatāra teṅho, sarva-deva-avataṁsa
@@ -13358,9 +10451,6 @@ There are eleven expansions of Rudra, or Lord Śiva. They are as follows: Ajaika
 
 ### CC Adi 6.80
 
-> তেঁহো করেন কৃষ্ণের দাস্য-প্রত্যাশ ।
-> নিরন্তর কহে শিব, ‘মুঞি কৃষ্ণদাস’ ॥৮০॥
-
 > teṅho karena kṛṣṇera dāsya-pratyāśa
 > nirantara kahe śiva, 'muñi kṛṣṇa-dāsa'
 
@@ -13369,9 +10459,6 @@ There are eleven expansions of Rudra, or Lord Śiva. They are as follows: Ajaika
 **He also desires only to be a servant of Lord Kṛṣṇa. Śrī Sadāśiva always says, "I am a servant of Lord Kṛṣṇa."**
 
 ### CC Adi 6.81
-
-> কৃষ্ণপ্রেমে উন্মত্ত, বিহ্বল দিগম্বর ।
-> কৃষ্ণ-গুণ-লীলা গায়, নাচে নিরন্তর ॥৮১॥
 
 > kṛṣṇa-preme unmatta, vihvala digambara
 > kṛṣṇa-guṇa-līlā gāya, nāce nirantara
@@ -13382,9 +10469,6 @@ There are eleven expansions of Rudra, or Lord Śiva. They are as follows: Ajaika
 
 ### CC Adi 6.82
 
-> পিতা-মাতা-গুরু-সখা-ভাব কেনে নয় ।
-> কৃষ্ণপ্রেমের স্বভাবে দাস্য-ভাব সে করয় ॥৮২॥
-
 > pitā-mātā-guru-sakhā-bhāva kene naya
 > kṛṣṇa-premera svabhāve dāsya-bhāva se karaya
 
@@ -13393,9 +10477,6 @@ There are eleven expansions of Rudra, or Lord Śiva. They are as follows: Ajaika
 **All the emotions, whether those of father, mother, teacher or friend, are full of sentiments of servitude. That is the nature of love of Kṛṣṇa.**
 
 ### CC Adi 6.83
-
-> এক কৃষ্ণ — সর্বসেব্য, জগৎ-ঈশ্বর ।
-> আর যত সব, — তাঁর সেবকানুচর ॥৮৩॥
 
 > eka kṛṣṇa—sarva-sevya, jagat-īśvara
 > āra yata saba,—tāṅra sevakānucara
@@ -13406,9 +10487,6 @@ There are eleven expansions of Rudra, or Lord Śiva. They are as follows: Ajaika
 
 ### CC Adi 6.84
 
-> সেই কৃষ্ণ অবতীর্ণ — চৈতন্য-ঈশ্বর ।
-> অতএব আর সব, — তাঁহার কিঙ্কর ॥৮৪॥
-
 > sei kṛṣṇa avatīrṇa—caitanya-īśvara
 > ataeva āra saba,—tāṅhāra kiṅkara
 
@@ -13417,9 +10495,6 @@ There are eleven expansions of Rudra, or Lord Śiva. They are as follows: Ajaika
 **That same Lord Kṛṣṇa has descended as Lord Caitanya, the Supreme Personality of Godhead. Everyone, therefore, is His servant.**
 
 ### CC Adi 6.85
-
-> কেহ মানে, কেহ না মানে, সব তাঁর দাস ।
-> যে না মানে, তার হয় সেই পাপে নাশ ॥৮৫॥
 
 > keha māne, keha nā māne, saba tāṅra dāsa
 > ye nā māne, tāra haya sei pāpe nāśa
@@ -13432,9 +10507,6 @@ When a living entity forgets his constitutional position, he prepares himself to
 
 ### CC Adi 6.86
 
-> চৈতন্যের দাস মুঞি, চৈতন্যের দাস ।
-> চৈতন্যের দাস মুঞি, তাঁর দাসের দাস ॥৮৬॥
-
 > caitanyera dāsa muñi, caitanyera dāsa
 > caitanyera dāsa muñi, tāṅra dāsera dāsa
 
@@ -13443,9 +10515,6 @@ When a living entity forgets his constitutional position, he prepares himself to
 **"I am a servant of Lord Caitanya, a servant of Lord Caitanya. I am a servant of Lord Caitanya, and a servant of His servants."**
 
 ### CC Adi 6.87
-
-> এত বলি’ নাচে, গায়, হুঙ্কার গম্ভীর ।
-> ক্ষণেকে বসিলা আচার্য হৈঞা সুস্থির ॥৮৭॥
 
 > eta bali' nāce, gāya, huṅkāra gambhīra
 > kṣaṇeke vasilā ācārya haiñā susthira
@@ -13456,9 +10525,6 @@ When a living entity forgets his constitutional position, he prepares himself to
 
 ### CC Adi 6.88
 
-> ভক্ত-অভিমান মূল শ্রীবলরামে ।
-> সেই ভাবে অনুগত তাঁর অংশগণে ॥৮৮॥
-
 > bhakta-abhimāna mūla śrī-balarāme
 > sei bhāve anugata tāṅra aṁśa-gaṇe
 
@@ -13467,9 +10533,6 @@ When a living entity forgets his constitutional position, he prepares himself to
 **The source of the sentiment of servitude is indeed Lord Balarāma. The plenary expansions who follow Him are all influenced by that ecstasy.**
 
 ### CC Adi 6.89
-
-> তাঁর অবতার এক শ্রীসঙ্কর্ষণ ।
-> ভক্ত বলি’ অভিমান করে সর্বক্ষণ ॥৮৯॥
 
 > tāṅra avatāra eka śri-saṅkarṣaṇa
 > bhakta bali' abhimāna kare sarva-kṣaṇa
@@ -13480,9 +10543,6 @@ When a living entity forgets his constitutional position, he prepares himself to
 
 ### CC Adi 6.90
 
-> তাঁর অবতার আন শ্রীযুত লক্ষ্মণ ।
-> শ্রীরামের দাস্য তিঁহো কৈল অনুক্ষণ ॥৯০॥
-
 > tāṅra avatāra āna śrī-yuta lakṣmaṇa
 > śrī-rāmera dāsya tiṅho kaila anukṣaṇa
 
@@ -13491,9 +10551,6 @@ When a living entity forgets his constitutional position, he prepares himself to
 **Another of His incarnations, Lakṣmaṇa, who is very beautiful and opulent, always serves Lord Rāma.**
 
 ### CC Adi 6.91
-
-> সঙ্কর্ষণ-অবতার কারণাব্ধিশায়ী ।
-> তাঁহার হৃদয়ে ভক্তভাব অনুযায়ী ॥৯১॥
 
 > saṅkarṣaṇa-avatāra kāraṇābdhi-śāyī
 > tāṅhāra hṛdaye bhakta-bhāva anuyāyī
@@ -13504,9 +10561,6 @@ When a living entity forgets his constitutional position, he prepares himself to
 
 ### CC Adi 6.92
 
-> তাঁহার প্রকাশ-ভেদ, অদ্বৈত-আচার্য ।
-> কায়মনোবাক্যে তাঁর ভক্তি সদা কার্য ॥৯২॥
-
 > tāṅhāra prakāśa-bheda, advaita-ācārya
 > kāya-mano-vākye tāṅra bhakti sadā kārya
 
@@ -13515,9 +10569,6 @@ When a living entity forgets his constitutional position, he prepares himself to
 **Advaita Ācārya is a separate expansion of Him. He always engages in devotional service with His thoughts, words and actions.**
 
 ### CC Adi 6.93
-
-> বাক্যে কহে, ‘মুঞি চৈতন্যের অনুচর’ ।
-> মুঞি তাঁর ভক্ত — মনে ভাবে নিরন্তর ॥৯৩॥
 
 > vākye kahe, 'muñi caitanyera anucara'
 > muñi tāṅra bhakta—mane bhāve nirantara
@@ -13528,9 +10579,6 @@ When a living entity forgets his constitutional position, he prepares himself to
 
 ### CC Adi 6.94
 
-> জল-তুলসী দিয়া করে কায়াতে সেবন ।
-> ভক্তি প্রচারিয়া সব তারিলা ভুবন ॥৯৪॥
-
 > jala-tulasī diyā kare kāyāte sevana
 > bhakti pracāriyā saba tārilā bhuvana
 
@@ -13539,9 +10587,6 @@ When a living entity forgets his constitutional position, he prepares himself to
 **With His body He worshiped the Lord by offering Ganges water and tulasī leaves, and by preaching devotional service He delivered the entire universe.**
 
 ### CC Adi 6.95
-
-> পৃথিবী ধরেন যেই শেষ-সঙ্কর্ষণ ।
-> কায়ব্যূহ করি’ করেন কৃষ্ণের সেবন ॥৯৫॥
 
 > pṛthivī dharena yei śeṣa-saṅkarṣaṇa
 > kāya-vyūha kari' karena kṛṣṇera sevana
@@ -13552,9 +10597,6 @@ When a living entity forgets his constitutional position, he prepares himself to
 
 ### CC Adi 6.96
 
-> এই সব হয় শ্রীকৃষ্ণের অবতার ।
-> নিরন্তর দেখি সবার ভক্তির আচার ॥৯৬॥
-
 > ei saba haya śrī-kṛṣṇera avatāra
 > nirantara dekhi sabāra bhaktira ācāra
 
@@ -13563,9 +10605,6 @@ When a living entity forgets his constitutional position, he prepares himself to
 **These are all incarnations of Lord Kṛṣṇa, yet we always find that they act as devotees.**
 
 ### CC Adi 6.97
-
-> এ-সবাকে শাস্ত্রে কহে ‘ভক্ত-অবতার’ ।
-> ‘ভক্ত-অবতার’-পদ উপরি সবার ॥৯৭॥
 
 > e-sabāke śāstre kahe 'bhakta-avatāra'
 > 'bhakta-avatāra'-pada upari sabāra
@@ -13578,9 +10617,6 @@ The Supreme Personality of Godhead appears in different incarnations, but His ap
 
 ### CC Adi 6.98
 
-> একমাত্র ‘অংশী’ — কৃষ্ণ’ ‘অংশ’ — অবতার ।
-> অংশী অংশে দেখি জ্যেষ্ঠ-কনিষ্ঠ-আচার ॥৯৮॥
-
 > eka-mātra 'aṁśī'—kṛṣṇa, 'aṁśa'—avatāra
 > aṁśī aṁśe dekhi jyeṣṭha-kaniṣṭha-ācāra
 
@@ -13589,9 +10625,6 @@ The Supreme Personality of Godhead appears in different incarnations, but His ap
 **Lord Kṛṣṇa is the source of all incarnations, and all others are His parts or partial incarnations. We find that the whole and the part behave as superior and inferior.**
 
 ### CC Adi 6.99
-
-> জ্যেষ্ঠ-ভাবে অংশীতে হয় প্রভু-জ্ঞান ।
-> কনিষ্ঠ-ভাবে আপনাতে ভক্ত-অভিমান ॥৯৯॥
 
 > jyeṣṭha-bhāve aṁśīte haya prabhu-jñāna
 > kaniṣṭha-bhāve āpanāte bhakta-abhimāna
@@ -13603,9 +10636,6 @@ The Supreme Personality of Godhead appears in different incarnations, but His ap
 A fraction of a particular thing is called a part, and that from which the fraction is distinguished is called the whole. Therefore the fraction, or part, is included within the whole. The Lord is the whole, and the devotee is the part or fractional part. That is the relationship between the Lord and the devotee. There are also gradations of devotees, who are calculated as greater and lesser. When a devotee is great he is called *prabhu,* and when he is lesser he is called *bhakta,* or a devotee. The supreme whole is Kṛṣṇa, and Baladeva and all Viṣṇu incarnations are His fractions. Lord Kṛṣṇa is therefore conscious of His superior position, and all Viṣṇu incarnations are conscious of Their positions as devotees.
 
 ### CC Adi 6.100
-
-> কৃষ্ণের সমতা হৈতে বড় ভক্তপদ ।
-> আত্মা হৈতে কৃষ্ণের ভক্ত হয় প্রেমাস্পদ ॥১০০॥
 
 > kṛṣṇera samatā haite baḍa bhakta-pada
 > ātmā haite kṛṣṇera bhakta haya premāspada
@@ -13625,9 +10655,6 @@ The conception of oneness with the Supreme Personality of Godhead is inferior to
 
 ### CC Adi 6.101
 
-> আত্মা হৈতে কৃষ্ণ ভক্তে বড় করি’ মানে ।
-> ইহাতে বহুত শাস্ত্র-বচন প্রমাণে ॥১০১॥
-
 > ātmā haite kṛṣṇa bhakte baḍa kari' māne
 > ihāte bahuta śāstra-vacana pramāṇe
 
@@ -13636,9 +10663,6 @@ The conception of oneness with the Supreme Personality of Godhead is inferior to
 **Lord Kṛṣṇa considers His devotees greater than Himself. In this connection the scriptures provide an abundance of evidence.**
 
 ### CC Adi 6.102
-
-> ন তথা মে প্রিয়তম আত্মযোনির্ন শঙ্করঃ ।
-> ন চ সঙ্কর্ষণো ন শ্রীর্নৈবাত্মা চ যথা ভবান্ ॥১০২॥
 
 > na tathā me priya-tama
 > ātma-yonir na śaṅkaraḥ
@@ -13653,9 +10677,6 @@ This text is from *Śrīmad-Bhāgavatam* (11.14.15).
 
 ### CC Adi 6.103
 
-> কৃষ্ণসাম্যে নহে তাঁর মাধুর্যাস্বাদন ।
-> ভক্তভাবে করে তাঁর মাধুর্য চর্বণ ॥১০৩॥
-
 > kṛṣṇa-sāmye nahe tāṅra mādhuryāsvādana
 > bhakta-bhāve kare tāṅra mādhurya carvaṇa
 
@@ -13664,9 +10685,6 @@ This text is from *Śrīmad-Bhāgavatam* (11.14.15).
 **The sweetness of Lord Kṛṣṇa is not to be tasted by those who consider themselves equal to Kṛṣṇa. It is to be tasted only through the sentiment of servitude.**
 
 ### CC Adi 6.104
-
-> শাস্ত্রের সিদ্ধান্ত এই, — বিজ্ঞের অনুভব ।
-> মূঢ়লোক নাহি জানে ভাবের বৈভব ॥১০৪॥
 
 > śāstrera siddhānta ei,—vijñera anubhava
 > mūḍha-loka nāhi jāne bhāvera vaibhava
@@ -13678,11 +10696,6 @@ This text is from *Śrīmad-Bhāgavatam* (11.14.15).
 When a person is liberated in the *sārūpya* form of liberation, having a spiritual form exactly like Viṣṇu, it is not possible for him to relish the relationship of Kṛṣṇa's personal associates in their mellow exchanges. The devotees of Kṛṣṇa, however, in their loving relationships with Kṛṣṇa, sometimes forget their own identities; sometimes they think themselves one with Kṛṣṇa and yet relish still greater transcendental mellow in that way. People in general, because of their foolishness only, try to become masters of everything, forgetting the transcendental mellow of servitorship to the Lord. When a person is actually advanced in spiritual understanding, however, he can accept the transcendental servitorship of the Lord without hesitation.
 
 ### CC Adi 6.105-106
-
-> ভক্তভাব অঙ্গীকরি’ বলরাম, লক্ষ্মণ ।
-> অদ্বৈত, নিত্যানন্দ, শেষ, সঙ্কর্ষণ ॥১০৫॥
-> কৃষ্ণের মাধুর্যরসামৃত করে পান ।
-> সেই সুখে মত্ত, কিছু নাহি জানে আন ॥১০৬॥
 
 > bhakta-bhāva aṅgīkari' balarāma, lakṣmaṇa
 > advaita, nityānanda, śeṣa, saṅkarṣaṇa
@@ -13696,9 +10709,6 @@ When a person is liberated in the *sārūpya* form of liberation, having a spiri
 
 ### CC Adi 6.107
 
-> অন্যের আছুক্ কার্য, আপনে শ্রীকৃষ্ণ ।
-> আপন-মাধুর্য-পানে হইলা সতৃষ্ণ ॥১০৭॥
-
 > anyera āchuk kārya, āpane śrī-kṛṣṇa
 > āpana-mādhurya-pāne ha-ilā satṛṣṇa
 
@@ -13707,9 +10717,6 @@ When a person is liberated in the *sārūpya* form of liberation, having a spiri
 **What to speak of others, even Lord Kṛṣṇa Himself becomes thirsty to taste His own sweetness.**
 
 ### CC Adi 6.108
-
-> স্বমাধুর্য আস্বাদিতে করেন যতন ।
-> ভক্তভাব বিনু নহে তাহা আস্বাদন ॥১০৮॥
 
 > svā-mādhurya āsvādite karena yatana
 > bhakta-bhāva vinu nahe tāhā āsvādana
@@ -13722,9 +10729,6 @@ Lord Śrī Kṛṣṇa wanted to relish the transcendental mellow of a devotee, 
 
 ### CC Adi 6.109
 
-> ভক্তভাব অঙ্গীকরি’ হৈলা অবতীর্ণ ।
-> শ্রীকৃষ্ণচৈতন্যরূপে সর্বভাবে পূর্ণ ॥১০৯॥
-
 > bhakta-bhāva aṅgīkari' hailā avatīrṇa
 > śrī-kṛṣṇa-caitanya-rūpe sarva-bhāve pūrṇa
 
@@ -13733,9 +10737,6 @@ Lord Śrī Kṛṣṇa wanted to relish the transcendental mellow of a devotee, 
 **Therefore Lord Kṛṣṇa accepted the position of a devotee and descended in the form of Lord Caitanya, who is complete in every respect.**
 
 ### CC Adi 6.110
-
-> নানা-ভক্তভাবে করেন স্বমাধুর্য পান ।
-> পূর্বে করিয়াছি এই সিদ্ধান্ত ব্যাখ্যান ॥১১০॥
 
 > nānā-bhakta-bhāve karena sva-mādhurya pāna
 > pūrve kariyāchi ei siddhānta vyākhyāna
@@ -13748,9 +10749,6 @@ Lord Caitanya, who is known as Śrī Gaurahari, is complete in relishing all the
 
 ### CC Adi 6.111
 
-> অবতারগণের ভক্তভাবে অধিকার ।
-> ভক্তভাব হৈতে অধিক সুখ নাহি আর ॥১১১॥
-
 > avatāra-gaṇera bhakta-bhāve adhikāra
 > bhakta-bhāva haite adhika sukha nāhi āra
 
@@ -13761,9 +10759,6 @@ Lord Caitanya, who is known as Śrī Gaurahari, is complete in relishing all the
 All the different incarnations of Lord Viṣṇu have the right to play the roles of servitors of Lord Kṛṣṇa by descending as devotees. When an incarnation gives up the understanding of His Godhood and plays the part of a servitor, He enjoys a greater transcendental mellow taste than when He plays the part of the Supreme Personality of Godhead.
 
 ### CC Adi 6.112
-
-> মূল ভক্ত-অবতার শ্রীসঙ্কর্ষণ ।
-> ভক্ত-অবতার তঁহি অদ্বৈতে গণন ॥১১২॥
 
 > mūla bhakta-avatāra śrī-saṅkarṣaṇa
 > bhakta-avatāra taṅhi advaite gaṇana
@@ -13776,9 +10771,6 @@ Although Śrī Ādvaita Prabhu belongs to the Viṣṇu category, He displays se
 
 ### CC Adi 6.113
 
-> অদ্বৈত-আচার্য গোসাঞির মহিমা অপার ।
-> যাঁহার হুঙ্কারে কৈল চৈতন্যাবতার ॥১১৩॥
-
 > advaita-ācārya gosāñira mahimā apāra
 > yāṅhāra huṅkāre kaila caitanyāvatāra
 
@@ -13787,9 +10779,6 @@ Although Śrī Ādvaita Prabhu belongs to the Viṣṇu category, He displays se
 **The glories of Śrī Advaita Ācārya are boundless, for His sincere vibrations brought about Lord Caitanya's descent upon this earth.**
 
 ### CC Adi 6.114
-
-> সংকীর্তন প্রচারিয়া সব জগৎ তারিল ।
-> অদ্বৈত-প্রসাদে লোক প্রেমধন পাইল ॥১১৪॥
 
 > saṅkīrtana pracāriyā saba jagat tārila
 > advaita-prasāde loka prema-dhana pāila
@@ -13800,9 +10789,6 @@ Although Śrī Ādvaita Prabhu belongs to the Viṣṇu category, He displays se
 
 ### CC Adi 6.115
 
-> অদ্বৈত-মহিমা অনন্ত কে পারে কহিতে ।
-> সেই লিখি, যেই শুনি মহাজন হৈতে ॥১১৫॥
-
 > advaita-mahimā ananta ke pāre kahite
 > sei likhi, yei śuni mahājana haite
 
@@ -13811,9 +10797,6 @@ Although Śrī Ādvaita Prabhu belongs to the Viṣṇu category, He displays se
 **Who can describe the unlimited glories of Advaita Ācārya? I write here as much as I have known from great authorities.**
 
 ### CC Adi 6.116
-
-> আচার্য-চরণে মোর কোটি নমস্কার ।
-> ইথে কিছু অপরাধ না লবে আমার ॥১১৬॥
 
 > ācārya-caraṇe mora koṭi namaskāra
 > ithe kichu aparādha nā labe āmāra
@@ -13824,9 +10807,6 @@ Although Śrī Ādvaita Prabhu belongs to the Viṣṇu category, He displays se
 
 ### CC Adi 6.117
 
-> তোমার মহিমা — কোটিসমুদ্র অগাধ ।
-> তাহার ইয়ত্তা কহি, — এ বড় অপরাধ ॥১১৭॥
-
 > tomāra mahimā—koṭi-samudra agādha
 > tāhāra iyattā kahi,—e baḍa aparādha
 
@@ -13835,9 +10815,6 @@ Although Śrī Ādvaita Prabhu belongs to the Viṣṇu category, He displays se
 **Your glories are as fathomless as millions of oceans and seas. Speaking of its measure is a great offense indeed.**
 
 ### CC Adi 6.118
-
-> জয় জয় জয় শ্রীঅদ্বৈত আচার্য ।
-> জয় জয় শ্রীচৈতন্য, নিত্যানন্দ আর্য ॥১১৮॥
 
 > jaya jaya jaya śrī-advaita ācārya
 > jaya jaya śrī-caitanya, nityānanda ārya
@@ -13848,9 +10825,6 @@ Although Śrī Ādvaita Prabhu belongs to the Viṣṇu category, He displays se
 
 ### CC Adi 6.119
 
-> দুই শ্লোকে কহিল অদ্বৈত-তত্ত্বনিরূপণ ।
-> পঞ্চতত্ত্বের বিচার কিছু শুন, ভক্তগণ ॥১১৯॥
-
 > dui śloke kahila advaita-tattva-nirūpaṇa
 > pañca-tattvera vicāra kichu śuna, bhakta-gaṇa
 
@@ -13859,9 +10833,6 @@ Although Śrī Ādvaita Prabhu belongs to the Viṣṇu category, He displays se
 **Thus in two verses I have described the truth concerning Advaita Ācārya. Now, O devotees, please hear about the five truths [pañca-tattva].**
 
 ### CC Adi 6.120
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥১২০॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -13875,9 +10846,6 @@ Although Śrī Ādvaita Prabhu belongs to the Viṣṇu category, He displays se
 ## Ādi-līlā, Chapter 7
 
 ### CC Adi 7.1
-
-> অগত্যেকগতিং নত্বা হীনার্থাধিকসাধকম্ ।
-> শ্রীচৈতন্যং লিখ্যতেঽস্য প্রেমভক্তিবদান্যতা ॥১॥
 
 > agaty-eka-gatiṁ natvā
 > hīnārthādhika-sādhakam
@@ -13894,9 +10862,6 @@ Everyone depends upon *dharma* (religiosity), *artha* (economic development), *k
 
 ### CC Adi 7.2
 
-> জয় জয় মহাপ্রভু শ্রীকৃষ্ণচৈতন্য ।
-> তাঁহার চরণাশ্রিত, সেই বড় ধন্য ॥২॥
-
 > jaya jaya mahāprabhu śrī-kṛṣṇa-caitanya
 > tāṅhāra caraṇāśrita, sei baḍa dhanya
 
@@ -13908,9 +10873,6 @@ Everyone depends upon *dharma* (religiosity), *artha* (economic development), *k
 
 ### CC Adi 7.3
 
-> পূর্বে গুর্বাদি ছয় তত্ত্বে কৈল নমস্কার ।
-> গুরুতত্ত্ব কহিয়াছি, এবে পাঁচের বিচার ॥৩॥
-
 > pūrve gurv-ādi chaya tattve kaila namaskāra
 > guru-tattva kahiyāchi, ebe pāṅcera vicāra
 
@@ -13921,9 +10883,6 @@ Everyone depends upon *dharma* (religiosity), *artha* (economic development), *k
 In the First Chapter of *Caitanya-caritāmṛta, Ādi-līlā,* the author, Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī, has described the initiator spiritual master and the instructor spiritual master in the verse beginning with the words *vande gurūn īśa-bhaktān īśam īśāvatārakān.* In that verse there are six transcendental subject matters, of which the truth regarding the spiritual master has already been described. Now the author will describe the other five *tattvas* (truths), namely, *īśa-tattva* (the Supreme Lord), His expansion *tattva,* His incarnation *tattva,* His energy *tattva* and His devotee *tattva.*
 
 ### CC Adi 7.4
-
-> পঞ্চতত্ত্ব অবতীর্ণ চৈতন্যের সঙ্গে ।
-> পঞ্চতত্ত্ব লঞা করেন সংকীর্তন রঙ্গে ॥৪॥
 
 > pañca-tattva avatīrṇa caitanyera saṅge
 > pañca-tattva lañā karena saṅkīrtana raṅge
@@ -13945,9 +10904,6 @@ Taking advantage of Śrī Caitanya Mahāprabhu, many unscrupulous devotees manuf
 
 ### CC Adi 7.5
 
-> পঞ্চতত্ত্ব — একবস্তু, নাহি কিছু ভেদ ।
-> রস আস্বাদিতে তবু বিবিধ বিভেদ ॥৫॥
-
 > pañca-tattva—eka-vastu, nāhi kichu bheda
 > rasa āsvādite tabu vividha vibheda
 
@@ -13958,9 +10914,6 @@ Taking advantage of Śrī Caitanya Mahāprabhu, many unscrupulous devotees manuf
 In his *Anubhāṣya* commentary Śrī Bhaktisiddhānta Sarasvatī Ṭhākura describes the Pañca-tattva as follows: The supreme energetic, the Personality of Godhead, manifesting in five kinds of pastimes, appears as the Pañca-tattva. Actually there is no difference between them because they are situated on the absolute platform, but they manifest different spiritual varieties as a challenge to impersonalists to taste different kinds of spiritual humors (*rasas*). In the *Vedas* it is said, *parāsya śaktir vividhaiva śrūyate:* "The varieties of energy of the Supreme Personality of Godhead are differently known." From this statement of the *Vedas* one can understand that there are eternal varieties of humors, or tastes, in the spiritual world. Śrī Gaurāṅga, Śrī Nityānanda, Śrī Advaita, Śrī Gadādhara and Śrīvāsa are all on the same platform, but in spiritually distinguishing between them one should understand that Śrī Caitanya Mahāprabhu is the form of a devotee, Nityānanda Prabhu appears in the form of a devotee's spiritual master, Advaita Prabhu is the form of a *bhakta* (devotee) incarnation, Gadādhara Prabhu is the energy of a *bhakta,* and Śrīvāsa is a pure devotee. Thus there are spiritual distinctions between them. The *bhakta-rūpa* (Śrī Caitanya Mahāprabhu), the *bhakta-svarūpa* (Śrī Nityānanda Prabhu) and the *bhakta-avatāra* (Śrī Advaita Prabhu) are described as the Supreme Personality of Godhead Himself, His immediate manifestation and His plenary expansion, and They all belong to the Viṣṇu category. Although the spiritual and marginal energies of the Supreme Personality of Godhead are nondifferent from the Supreme Personality of Godhead Viṣṇu, they are predominated subjects, whereas Lord Viṣṇu is the predominator. As such, although they are on the same platform, they have appeared differently in order to facilitate tasting of transcendental mellows. Actually, however, there is no possibility of one being different from the other, for the worshiper and the worshipable cannot be separated at any stage. On the absolute platform, one cannot be understood without the other.
 
 ### CC Adi 7.6
-
-> পঞ্চতত্ত্বাত্মকং কৃষ্ণং ভক্তরূপ-স্বরূপকম্ ।
-> ভক্তাবতারং ভক্তাখ্যং নমামি ভক্তশক্তিকম্ ॥৬॥
 
 > pañca-tattvātmakaṁ kṛṣṇaṁ
 > bhakta-rūpa-svarūpakam
@@ -13975,9 +10928,6 @@ In his *Anubhāṣya* commentary Śrī Bhaktisiddhānta Sarasvatī Ṭhākura de
 
 ### CC Adi 7.7
 
-> স্বয়ং ভগবান্ কৃষ্ণ একলে ঈশ্বর ।
-> অদ্বিতীয়, নন্দাত্মজ, রসিক-শেখর ॥৭॥
-
 > svayaṁ bhagavān kṛṣṇa ekale īśvara
 > advitīya, nandātmaja, rasika-śekhara
 
@@ -13988,9 +10938,6 @@ In his *Anubhāṣya* commentary Śrī Bhaktisiddhānta Sarasvatī Ṭhākura de
 In this verse Kavirāja Gosvāmī gives an accurate description of Lord Kṛṣṇa, the Supreme Personality of Godhead, by stating that although no one is equal to or greater than Him and He is the reservoir of all spiritual pleasure, He nevertheless appears as the son of Mahārāja Nanda and Yaśodāmayī.
 
 ### CC Adi 7.8
-
-> রাসাদি-বিলাসী, ব্রজললনা-নাগর ।
-> আর যত সব দেখ, — তাঁর পরিকর ॥৮॥
 
 > rāsādi-vilāsī, vrajalalanā-nāgara
 > āra yata saba dekha,—tāṅra parikara
@@ -14003,9 +10950,6 @@ The word *rāsādi-vilāsī* ("the enjoyer of the *rāsa* dance") is very import
 
 ### CC Adi 7.9
 
-> সেই কৃষ্ণ অবতীর্ণ শ্রীকৃষ্ণচৈতন্য ।
-> সেই পরিকরগণ সঙ্গে সব ধন্য ॥৯॥
-
 > sei kṛṣṇa avatīrṇa śrī-kṛṣṇa-caitanya
 > sei parikara-gaṇa saṅge saba dhanya
 
@@ -14014,9 +10958,6 @@ The word *rāsādi-vilāsī* ("the enjoyer of the *rāsa* dance") is very import
 **The selfsame Lord Kṛṣṇa advented Himself as Śrī Caitanya Mahāprabhu with all His eternal associates, who are also equally glorious.**
 
 ### CC Adi 7.10
-
-> একলে ঈশ্বর-তত্ত্ব চৈতন্য-ঈশ্বর ।
-> ভক্তভাবময় তাঁর শুদ্ধ কলেবর ॥১০॥
 
 > ekale īśvara-tattva caitanya-īśvara
 > bhakta-bhāvamaya tāṅra śuddha kalevara
@@ -14033,9 +10974,6 @@ As stated in the *Bhagavad-gītā,* when the Supreme Personality of Godhead Kṛ
 
 ### CC Adi 7.11
 
-> কৃষ্ণমাধুর্যের এক অদ্ভুত স্বভাব ।
-> আপনা আস্বাদিতে কৃষ্ণ করে ভক্তভাব ॥১১॥
-
 > kṛṣṇa-mādhuryera eka adbhuta svabhāva
 > āpanā āsvādite kṛṣṇa kare bhakta-bhāva
 
@@ -14047,9 +10985,6 @@ Although Kṛṣṇa is the reservoir of all pleasure, He has a special intentio
 
 ### CC Adi 7.12
 
-> ইথে ভক্তভাব ধরে চৈতন্য গোসাঞি ।
-> ‘ভক্তস্বরূপ’ তাঁর নিত্যানন্দ-ভাই ॥১২॥
-
 > ithe bhakta-bhāva dhare caitanya gosāñi
 > 'bhakta-svarūpa' tāṅra nityānanda-bhāi
 
@@ -14058,9 +10993,6 @@ Although Kṛṣṇa is the reservoir of all pleasure, He has a special intentio
 **For this reason Śrī Caitanya Mahāprabhu, the supreme teacher, accepts the form of a devotee and accepts Lord Nityānanda as His elder brother.**
 
 ### CC Adi 7.13
-
-> ‘ভক্ত-অবতার’ তাঁর আচার্য-গোসাঞি ।
-> এই তিন তত্ত্ব সবে প্রভু করি’ গাই ॥১৩॥
 
 > 'bhakta-avatāra' tāṅra ācārya-gosāñi
 > ei tina tattva sabe prabhu kari' gāi
@@ -14073,9 +11005,6 @@ Although Kṛṣṇa is the reservoir of all pleasure, He has a special intentio
 
 ### CC Adi 7.14
 
-> এক মহাপ্রভু, আর প্রভু দুইজন ।
-> দুই প্রভু সেবে মহাপ্রভুর চরণ ॥১৪॥
-
 > eka mahāprabhu, āra prabhu duijana
 > dui prabhu seve mahāprabhura caraṇa
 
@@ -14086,9 +11015,6 @@ Although Kṛṣṇa is the reservoir of all pleasure, He has a special intentio
 Although Śrī Caitanya Mahāprabhu, Śrī Nityānanda Prabhu and Śrī Advaita Prabhu all belong to the same Viṣṇu category, Śrī Caitanya Mahāprabhu is nevertheless accepted as the Supreme, and the other two *prabhus* engage in His transcendental loving service to teach ordinary living entities that every one of us is subordinate to Śrī Caitanya Mahāprabhu. In another place in *Caitanya-caritāmṛta* (Ādi 5.142) it is said, *ekale īśvara kṛṣṇa, āra saba bhṛtya:* the only supreme master is Kṛṣṇa, and all others, both *viṣṇu-tattva* and *jīva-tattva,* engage in the service of the Lord. Both the *vi*ṣ*ṇu-tattva* (as Nityānanda Prabhu and Advaita) and the *jīva-tattva* (*śrīvāsādi-gaura-bhakta-vṛnda*) engage in the service of the Lord, but one must distinguish between the *viṣṇu-tattva* servitors and the *jīva-tattva* servitors. The *jīva-tattva* servitor, the spiritual master, is actually the servitor God. As explained in previous verses, in the absolute world there are no such differences, yet one must observe these differences in order to distinguish the Supreme from His subordinates.
 
 ### CC Adi 7.15
-
-> এই তিন তত্ত্ব, — ‘সর্বারাধ্য’ করি মানি ।
-> চতুর্থ যে ভক্ততত্ত্ব, — ‘আরাধক’ জানি ॥১৫॥
 
 > ei tina tattva,—'sarvārādhya' kari māni
 > caturtha ye bhakta-tattva,—'ārādhaka' jāni
@@ -14101,9 +11027,6 @@ In his *Anubhāṣya,* Śrī Bhaktisiddhānta Sarasvatī Ṭhākura, describing 
 
 ### CC Adi 7.16
 
-> শ্রীবাসাদি যত কোটি কোটি ভক্তগণ ।
-> ‘শুদ্ধভক্ত’-তত্ত্বমধ্যে তাঁ-সবার গণন ॥১৬॥
-
 > śrīvāsādi yata koṭi koṭi bhakta-gaṇa
 > 'śuddha-bhakta'-tattva-madhye tāṅ-sabāra gaṇana
 
@@ -14112,9 +11035,6 @@ In his *Anubhāṣya,* Śrī Bhaktisiddhānta Sarasvatī Ṭhākura, describing 
 **There are innumerable pure devotees of the Lord, headed by Śrīvāsa Ṭhākura, who are known as unalloyed devotees.**
 
 ### CC Adi 7.17
-
-> গদাধর-পণ্ডিতাদি প্রভুর ‘শক্তি’-অবতার ।
-> ‘অন্তরঙ্গ-ভক্ত’ করি’ গণন যাঁহার ॥১৭॥
 
 > gadādhara-paṇḍitādi prabhura 'śakti'-avatāra
 > 'antaraṅga-bhakta' kari' gaṇana yāṅhāra
@@ -14141,11 +11061,6 @@ In connection with verses sixteen and seventeen, Śrī Bhaktisiddhānta Sarasvat
 
 ### CC Adi 7.18-19
 
-> যাঁ-সবা লঞা প্রভুর নিত্য বিহার ।
-> যাঁ-সবা লঞা প্রভুর কীর্তন-প্রচার ॥১৮॥
-> যাঁ-সবা লঞা করেন প্রেম আস্বাদন ।
-> যাঁ-সবা লঞা দান করে প্রেমধন ॥১৯॥
-
 > yāṅ-sabā lañā prabhura nitya vihāra
 > yāṅ-sabā lañā prabhura kīrtana-pracāra
 
@@ -14164,11 +11079,6 @@ Distinguishing between pure devotees and internal or confidential devotees, Śr�
 
 ### CC Adi 7.20-21
 
-> সেই পঞ্চতত্ত্ব মিলি’ পৃথিবী আসিয়া ।
-> পূর্ব-প্রেমভাণ্ডারের মুদ্রা উঘাড়িয়া ॥২০॥
-> পাঁচে মিলি’ লুটে প্রেম, করে আস্বাদন ।
-> যত যত পিয়ে, তৃষ্ণা বাঢ়ে অনুক্ষণ ॥২১॥
-
 > sei pañca-tattva mili' pṛthivī āsiyā
 > pūrva-premabhāṇḍārera mudrā ughāḍiyā
 
@@ -14183,9 +11093,6 @@ Distinguishing between pure devotees and internal or confidential devotees, Śr�
 
 ### CC Adi 7.22
 
-> পুনঃ পুনঃ পিয়াইয়া হয় মহামত্ত ।
-> নাচে, কান্দে, হাসে, গায়, যৈছে মদমত্ত ॥২২॥
-
 > punaḥ punaḥ piyāiyā haya mahāmatta
 > nāce, kānde, hāse, gāya, yaiche mada-matta
 
@@ -14196,9 +11103,6 @@ Distinguishing between pure devotees and internal or confidential devotees, Śr�
 People generally cannot understand the actual meaning of chanting and dancing. Describing the Gosvāmīs, Śrī Śrīnivāsa Ācārya stated, *kṛṣṇotkīrtana-gāna-nartana-parau:* not only did Lord Caitanya Mahāprabhu and His associates demonstrate this chanting and dancing, but the six Gosvāmīs also followed in the next generation. The present Kṛṣṇa consciousness movement follows the same principle, and therefore simply by chanting and dancing we have received good responses all over the world. It is to be understood, however, that this chanting and dancing do not belong to this material world. They are actually transcendental activities, for the more one engages in chanting and dancing, the more he can taste the nectar of transcendental love of Godhead.
 
 ### CC Adi 7.23
-
-> পাত্রাপাত্র-বিচার নাহি, নাহি স্থানাস্থান ।
-> যেই যাঁহা পায়, তাঁহা করে প্রেমদান ॥২৩॥
 
 > pātrāpātra-vicāra nāhi, nāhi sthānāsthāna
 > yei yāṅhā pāya, tāṅhā kare prema-dāna
@@ -14211,9 +11115,6 @@ There are some rascals who dare to speak against the mission of Lord Caitanya by
 
 ### CC Adi 7.24
 
-> লুটিয়া, খাইয়া, দিয়া, ভাণ্ডার উজাড়ে ।
-> আশ্চর্য ভাণ্ডার, প্রেম শতগুণ বাড়ে ॥২৪॥
-
 > luṭiyā, khāiyā, diyā, bhāṇḍāra ujāḍe
 > āścarya bhāṇḍāra, prema śata-guṇa bāḍe
 
@@ -14224,9 +11125,6 @@ There are some rascals who dare to speak against the mission of Lord Caitanya by
 A pseudoincarnation of Kṛṣṇa once told his disciple that he had emptied himself by giving him all knowledge and was thus spiritually bankrupt. Such bluffers speak in this way to cheat the public, but actual spiritual consciousness is so perfect that the more it is distributed, the more it increases. Bankruptcy is a term that applies in the material world, but the storehouse of love of Godhead in the spiritual world can never be depleted. Kṛṣṇa is providing for millions and trillions of living entities by supplying all their necessities, and even if all the innumerable living entities wanted to become Kṛṣṇa conscious, there would be no scarcity of love of Godhead, nor would there be insufficiency in providing for their maintenance. Our Kṛṣṇa consciousness movement was started single-handedly, and no one provided for our livelihood, but at present we are spending hundreds and thousands of dollars all over the world, and the movement is increasing more and more. Thus there is no question of scarcity. Although jealous persons may be envious, if we stick to our principles and follow in the footsteps of the Pañca-tattva, this movement will go on unchecked by imitation *svāmīs, sannyāsīs,* religionists, philosophers or scientists, for it is transcendental to all material considerations. Therefore those who propagate the Kṛṣṇa consciousness movement should not be afraid of such rascals and fools.
 
 ### CC Adi 7.25
-
-> উছলিল প্রেমবন্যা চৌদিকে বেড়ায় ।
-> স্ত্রী, বৃদ্ধ, বালক, যুবা, সবারে ডুবায় ॥২৫॥
 
 > uchalila prema-vanyā caudike veḍāya
 > strī, vṛddha, bālaka, yuvā, sabāre ḍubāya
@@ -14239,9 +11137,6 @@ When the contents of the storehouse of love of Godhead is thus distributed, ther
 
 ### CC Adi 7.26
 
-> সজ্জন, দুর্জন, পঙ্গু, জড়, অন্ধগণ ।
-> প্রেমবন্যায় ডুবাইল জগতের জন ॥২৬॥
-
 > saj-jana, durjana, paṅgu, jaḍa, andha-gaṇa
 > prema-vanyāya ḍubāila jagatera jana
 
@@ -14252,9 +11147,6 @@ When the contents of the storehouse of love of Godhead is thus distributed, ther
 Here again it may be emphasized that although jealous rascals protest that Europeans and Americans cannot be given the sacred thread or *sannyāsa,* there is no need even to consider whether one is a gentleman or a rogue because this is a spiritual movement which is not concerned with the external body of skin and bones. Because it is being properly conducted under the guidance of the Pañca-tattva, strictly following the regulative principles, it has nothing to do with external impediments.
 
 ### CC Adi 7.27
-
-> জগৎ ডুবিল, জীবের হৈল বীজ নাশ ।
-> তাহা দেখি’ পাঁচ জনের পরম উল্লাস ॥২৭॥
 
 > jagat ḍubila, jīvera haila bīja nāśa
 > tāhā dekhi' pāṅca janera parama ullāsa
@@ -14269,9 +11161,6 @@ Instead of being envious that Kṛṣṇa consciousness is spreading all over th
 
 ### CC Adi 7.28
 
-> যত যত প্রেমবৃষ্টি করে পঞ্চজনে ।
-> তত তত বাঢ়ে জল, ব্যাপে ত্রিভুবনে ॥২৮॥
-
 > yata yata prema-vṛṣṭi kare pañca-jane
 > tata tata bāḍhe jala, vyāpe tri-bhuvane
 
@@ -14282,11 +11171,6 @@ Instead of being envious that Kṛṣṇa consciousness is spreading all over th
 The Kṛṣṇa consciousness movement is not stereotyped or stagnant. It will spread all over the world in spite of all objections by fools and rascals that European and American *mlecchas* cannot be accepted as *brāhmaṇas* or *sannyāsīs.* Here it is indicated that this process will spread and inundate the entire world with Kṛṣṇa consciousness.
 
 ### CC Adi 7.29-30
-
-> মায়াবাদী, কর্মনিষ্ঠ কুতার্কিকগণ ।
-> নিন্দক, পাষণ্ডী, যত পড়ুয়া অধম ॥২৯॥
-> সেই সব মহাদক্ষ ধাঞা পলাইল ।
-> সেই বন্যা তা-সবারে ছুঁইতে নারিল ॥৩০॥
 
 > māyāvādī, karma-niṣṭha kutārkika-gaṇa
 > nindaka, pāṣaṇḍī yata paḍuyā adhama
@@ -14311,11 +11195,6 @@ There are also other unscrupulous persons who exploit the Lord's appearance by p
 
 ### CC Adi 7.31-32
 
-> তাহা দেখি’ মহাপ্রভু করেন চিন্তন ।
-> জগৎ ডুবাইতে আমি করিলুঁ যতন ॥৩১॥
-> কেহ কেহ এড়াইল, প্রতিজ্ঞা হইল ভঙ্গ ।
-> তা-সবা ডুবাইতে পাতিব কিছু রঙ্গ ॥৩২॥
-
 > tāhā dekhi' mahāprabhu karena cintana
 > jagat ḍubāite āmi kariluṅ yatana
 
@@ -14329,9 +11208,6 @@ There are also other unscrupulous persons who exploit the Lord's appearance by p
 Here is an important point. Lord Caitanya Mahāprabhu wanted to invent a way to capture the Māyāvādīs and others who did not take interest in the Kṛṣṇa consciousness movement. This is the symptom of an *ācārya.* An *ācārya* who comes for the service of the Lord cannot be expected to conform to a stereotype, for he must find the ways and means by which Kṛṣṇa consciousness may be spread. Sometimes jealous persons criticize the Kṛṣṇa consciousness movement because it engages equally both boys and girls in distributing love of Godhead. Not knowing that boys and girls in countries like Europe and America mix very freely, these fools and rascals criticize the boys and girls in Kṛṣṇa consciousness for intermingling. But these rascals should consider that one cannot suddenly change a community's social customs. However, since both the boys and girls are being trained to become preachers, those girls are not ordinary girls but are as good as their brothers who are preaching Kṛṣṇa consciousness. Therefore, to engage both boys and girls in fully transcendental activities is a policy intended to spread the Kṛṣṇa consciousness movement. These jealous fools who criticize the intermingling of boys and girls will simply have to be satisfied with their own foolishness because they cannot think of how to spread Kṛṣṇa consciousness by adopting ways and means that are favorable for this purpose. Their stereotyped methods will never help spread Kṛṣṇa consciousness. Therefore, what we are doing is perfect by the grace of Lord Caitanya Mahāprabhu, for it is He who proposed to invent a way to capture those who strayed from Kṛṣṇa consciousness.
 
 ### CC Adi 7.33
-
-> এত বলি’ মনে কিছু করিয়া বিচার ।
-> সন্ন্যাস-আশ্রম প্রভু কৈলা অঙ্গীকার ॥৩৩॥
 
 > eta bali' mane kichu kariyā vicāra
 > sannyāsa-āśrama prabhu kailā aṅgīkāra
@@ -14348,9 +11224,6 @@ The *kutārkikas, nindakas, pāṣaṇḍīs* and *adhama paḍuyās* all avoide
 
 ### CC Adi 7.34
 
-> চব্বিশ বৎসর ছিলা গৃহস্থ-আশ্রমে ।
-> পঞ্চবিংশতি বর্ষে কৈল যতিধর্মে ॥৩৪॥
-
 > cabbiśa vatsara chilā gṛhastha-āśrame
 > pañca-viṁśati varṣe kaila yati-dharme
 
@@ -14362,9 +11235,6 @@ There are four orders of spiritual life, namely, *brahmacarya, gṛhastha, vāna
 
 ### CC Adi 7.35
 
-> সন্ন্যাস করিয়া প্রভু কৈলা আকর্ষণ ।
-> যতেক পালাঞাছিল তার্কিকাদিগণ ॥৩৫॥
-
 > sannyāsa kariyā prabhu kailā ākarṣaṇa
 > yateka pālāñāchila tārkikādigaṇa
 
@@ -14374,9 +11244,6 @@ There are four orders of spiritual life, namely, *brahmacarya, gṛhastha, vāna
 
 ### CC Adi 7.36
 
-> পড়ুয়া, পাষণ্ডী, কর্মী, নিন্দকাদি যত ।
-> তারা আসি’ প্রভু-পায় হয় অবনত ॥৩৬॥
-
 > paḍuyā, pāṣaṇḍī, karmī, nindakādi yata
 > tārā āsi' prabhu-pāya haya avanata
 
@@ -14385,9 +11252,6 @@ There are four orders of spiritual life, namely, *brahmacarya, gṛhastha, vāna
 **Thus the students, infidels, fruitive workers and critics all came to surrender unto the lotus feet of the Lord.**
 
 ### CC Adi 7.37
-
-> অপরাধ ক্ষমাইল, ডুবিল প্রেমজলে ।
-> কেবা এড়াইবে প্রভুর প্রেম-মহাজালে ॥৩৭॥
 
 > aparādha kṣamāila, ḍubila prema-jale
 > kebā eḍāibe prabhura prema-mahājāle
@@ -14407,9 +11271,6 @@ An *ācārya* should devise a means by which people may somehow or other come to
 
 ### CC Adi 7.38
 
-> সবা নিস্তারিতে প্রভু কৃপা-অবতার ।
-> সবা নিস্তারিতে করে চাতুরী অপার ॥৩৮॥
-
 > sabā nistārite prabhu kṛpā-avatāra
 > sabā nistārite kare cāturī apāra
 
@@ -14420,9 +11281,6 @@ An *ācārya* should devise a means by which people may somehow or other come to
 It is the concern of the *ācārya* to show mercy to the fallen souls. In this connection, *deśa-kāla-pātra* (the place, the time and the object) should be taken into consideration. Since the European and American boys and girls in our Kṛṣṇa consciousness movement preach together, less intelligent men criticize that they are mingling without restriction. In Europe and America boys and girls mingle unrestrictedly and have equal rights; therefore it is not possible to completely separate the men from the women. However, we are thoroughly instructing both men and women how to preach, and actually they are preaching wonderfully. Of course, we very strictly prohibit illicit sex. Boys and girls who are not married are not allowed to sleep together or live together, and there are separate arrangements for boys and girls in every temple. *Gṛhasthas* live outside the temple, for in the temple we do not allow even husband and wife to live together. The results of this are wonderful. Both men and women are preaching the gospel of Lord Caitanya Mahāprabhu and Lord Kṛṣṇa with redoubled strength. In this verse the words *sabā nistārite kare cāturī apāra* indicate that Śrī Caitanya Mahāprabhu wanted to deliver one and all. Therefore it is a principle that a preacher must strictly follow the rules and regulations laid down in the *śāstras* yet at the same time devise a means by which the preaching work to reclaim the fallen may go on with full force.
 
 ### CC Adi 7.39
-
-> তবে নিজ ভক্ত কৈল যত ম্লেচ্ছ আদি ।
-> সবে এড়াইল মাত্র কাশীর মায়াবাদী ॥৩৯॥
 
 > tabe nija bhakta kaila yata mleccha ādi
 > sabe eḍāila mātra kāśīra māyāvādī
@@ -14443,9 +11301,6 @@ Since these impersonalists who do not have perfect spiritual knowledge cannot un
 
 ### CC Adi 7.40
 
-> বৃন্দাবন যাইতে প্রভু রহিলা কাশীতে ।
-> মায়াবাদিগণ তাঁরে লাগিল নিন্দিতে ॥৪০॥
-
 > vṛndāvana yāite prabhu rahilā kāśīte
 > māyāvādi-gaṇa tāṅre lāgila nindite
 
@@ -14456,9 +11311,6 @@ Since these impersonalists who do not have perfect spiritual knowledge cannot un
 While preaching Kṛṣṇa consciousness with full vigor, Śrī Caitanya Mahāprabhu faced many Māyāvādī philosophers. Similarly, we are also facing opposing *svāmīs, yogīs,* impersonalists, scientists, philosophers and other mental speculators, and by the grace of Lord Kṛṣṇa we successfully defeat all of them without difficulty.
 
 ### CC Adi 7.41
-
-> সন্ন্যাসী হইয়া করে গায়ন, নাচন ।
-> না করে বেদান্ত-পাঠ, করে সংকীর্তন ॥৪১॥
 
 > sannyāsī ha-iyā kare gāyana, nācana
 > nā kare vedānta-pāṭha, kare saṅkīrtana
@@ -14475,9 +11327,6 @@ The Māyāvādīs' accusation that devotees do not study Vedānta is false. They
 
 ### CC Adi 7.42
 
-> মূর্খ সন্ন্যাসী নিজ-ধর্ম নাহি জানে ।
-> ভাবুক হইয়া ফেরে ভাবুকের সনে ॥৪২॥
-
 > mūrkha sannyāsī nija-dharma nāhi jane
 > bhāvuka ha-iyā phere bhāvukera sane
 
@@ -14488,9 +11337,6 @@ The Māyāvādīs' accusation that devotees do not study Vedānta is false. They
 Foolish Māyāvādīs, not knowing that the Kṛṣṇa consciousness movement is based on a solid philosophy of transcendental science, superficially conclude that those who dance and chant do not have philosophical knowledge. Those who are Kṛṣṇa conscious actually have full knowledge of the essence of Vedānta philosophy, for they study the real commentary on the Vedānta philosophy, *Śrīmad-Bhāgavatam,* and follow the actual words of the Supreme Personality of Godhead as found in *Bhagavad-gītā As It Is.* After understanding the Bhāgavata philosophy, or *bhāgavata-dharma,* they become fully spiritually conscious or Kṛṣṇa conscious, and therefore their chanting and dancing is not material but is on the spiritual platform. Although everyone admires the ecstatic chanting and dancing of the devotees, who are therefore popularly known as "the Hare Kṛṣṇa people," Māyāvādīs cannot appreciate these activities because of their poor fund of knowledge.
 
 ### CC Adi 7.43
-
-> এ সব শুনিয়া প্রভু হাসে মনে মনে ।
-> উপেক্ষা করিয়া কারো না কৈল সম্ভাষণে ॥৪৩॥
 
 > e saba śuniyā prabhu hāse mane mane
 > upekṣā kariyā kāro nā kaila sambhāṣaṇe
@@ -14503,9 +11349,6 @@ As Kṛṣṇa conscious devotees, we do not like to converse with Māyāvādī 
 
 ### CC Adi 7.44
 
-> উপেক্ষা করিয়া কৈল মথুরা গমন ।
-> মথুরা দেখিয়া পুনঃ কৈল আগমন ॥৪৪॥
-
 > upekṣā kariyā kaila mathurā gamana
 > mathurā dekhiyā punaḥ kaila āgamana
 
@@ -14516,9 +11359,6 @@ As Kṛṣṇa conscious devotees, we do not like to converse with Māyāvādī 
 Lord Caitanya Mahāprabhu did not talk with the Māyāvādī philosophers when He first visited Vārāṇasī, but He returned there from Mathurā to convince them of the real purpose of Vedānta.
 
 ### CC Adi 7.45
-
-> কাশীতে লেখক শূদ্র-শ্রীচন্দ্রশেখর ।
-> তাঁর ঘরে রহিলা প্রভু স্বতন্ত্র ঈশ্বর ॥৪৫॥
 
 > kāśīte lekhaka śūdra-śrīcandraśekhara
 > tāṅra ghare rahilā prabhu svatantra īśvara
@@ -14535,9 +11375,6 @@ There are many Vaiṣṇava families in Bengal whose members, although not actua
 
 ### CC Adi 7.46
 
-> তপন-মিশ্রের ঘরে ভিক্ষা-নির্বাহণ ।
-> সন্ন্যাসীর সঙ্গে নাহি মানে নিমন্ত্রণ ॥৪৬॥
-
 > tapana-miśrera ghare bhikṣā-nirvāhaṇa
 > sannyāsīra saṅge nāhi māne nimantraṇa
 
@@ -14548,9 +11385,6 @@ There are many Vaiṣṇava families in Bengal whose members, although not actua
 This exemplary behavior of Lord Caitanya definitely proves that a Vaiṣṇava *sannyāsī* cannot accept invitations from Māyāvādī *sannyāsīs* or intimately mix with them.
 
 ### CC Adi 7.47
-
-> সনাতন গোসাঞি আসি’ তাঁহাই মিলিলা ।
-> তাঁর শিক্ষা লাগি’ প্রভু দু-মাস রহিলা ॥৪৭॥
 
 > sanātana gosāñi āsi' tāṅhāi mililā
 > tāṅra śikṣā lāgi' prabhu du-māsa rahilā
@@ -14567,9 +11401,6 @@ Lord Caitanya taught Sanātana Gosvāmī in the line of disciplic succession. Sa
 "As bell metal is turned to gold when mixed with mercury in an alchemical process, so one who is properly trained and initiated by a bona fide spiritual master immediately becomes a *brāhmaṇa.*" Sometimes those born in *brāhmaṇa* families protest this, but they have no strong arguments against this principle. By the grace of Kṛṣṇa and His devotee, one's life can change. This is confirmed in *Śrīmad-Bhagavatam* by the words *jahāti bandham* and *śudhyanti. Jahāti bandham* indicates that a living entity is conditioned by a particular type of body. The body is certainly an impediment, but one who associates with a pure devotee and follows his instructions can avoid this impediment and become a regular *brāḥmaṇa* by initiation under his strict guidance. Śrīla Jīva Gosvāmī states how a non-*brāhmaṇa* can be turned into a *brāhmaṇa* by the association of a pure devotee. *Prabhaviṣṇave namaḥ:* Lord Viṣṇu is so powerful that He can do anything He likes. Therefore it is not difficult for Viṣṇu to change the body of a devotee who is under the guidance of a pure devotee of the Lord.
 
 ### CC Adi 7.48
-
-> তাঁরে শিখাইলা সব বৈষ্ণবের ধর্ম ।
-> ভাগবত-আদি শাস্ত্রের যত গূঢ় মর্ম ॥৪৮॥
 
 > tāṅre śikhāilā saba vaiṣṇavera dharma
 > bhāgavata-ādi śāstrera yata gūḍha marma
@@ -14591,9 +11422,6 @@ One who is not taught by a bona fide spiritual master cannot understand the Vedi
 
 ### CC Adi 7.49
 
-> ইতিমধ্যে চন্দ্রশেখর, মিশ্র-তপন ।
-> দুঃখী হঞা প্রভু-পায় কৈল নিবেদন ॥৪৯॥
-
 > itimadhye candraśekhara, miśra-tapana
 > duḥkhī hañā prabhu-pāya kaila nivedana
 
@@ -14602,9 +11430,6 @@ One who is not taught by a bona fide spiritual master cannot understand the Vedi
 **While Lord Caitanya Mahāprabhu was instructing Sanātana Gosvāmī, both Candraśekhara and Tapana Miśra became very unhappy. Therefore they submitted an appeal unto the lotus feet of the Lord.**
 
 ### CC Adi 7.50
-
-> কতেক শুনিব প্রভু তোমার নিন্দন ।
-> না পারি সহিতে, এবে ছাড়িব জীবন ॥৫০॥
 
 > kateka śuniba prabhu tomāra nindana
 > nā pāri sahite, ebe chāḍiba jīvana
@@ -14624,9 +11449,6 @@ One of the most important instructions by Śrī Caitanya Mahāprabhu regarding r
 
 ### CC Adi 7.51
 
-> তোমারে নিন্দয়ে যত সন্ন্যাসীর গণ ।
-> শুনিতে না পারি, ফাটে হৃদয়-শ্রবণ ॥৫১॥
-
 > tomāre nindaye yata sannyāsīra gaṇa
 > śunite nā pāri, phāṭe hṛdaya-śravaṇa
 
@@ -14637,9 +11459,6 @@ One of the most important instructions by Śrī Caitanya Mahāprabhu regarding r
 This is a manifestation of real love for Kṛṣṇa and Lord Caitanya Mahāprabhu. There are three categories of Vaiṣṇavas: *kaniṣṭha-adhikārīs, madhyama-adhikārīs* and *uttama-adhikārīs.* The *kaniṣṭha-adhikārī,* or the devotee in the lowest stage of Vaiṣṇava life, has firm faith but is not familiar with the conclusions of the *śāstras.* The devotee in the second stage, the *madhyama-adhikārī,* is completely aware of the śāstric conclusion and has firm faith in his *guru* and the Lord. He, therefore, avoiding nondevotees, preaches to the innocent. However, the *mahā-bhāgavata* or *uttama-adhikārī,* the devotee in the highest stage of devotional life, does not see anyone as being against the Vaiṣṇava principles, for he regards everyone as a Vaiṣṇava but himself. This is the essence of Caitanya Mahāprabhu's instruction that one be more tolerant than a tree and think oneself lower than the straw in the street (*tṛṇād api su-nīcena taror iva sahiṣṇunā*). However, even if a devotee is in the *uttama-bhāgavata* status he must come down to the second status of life, *madhyama-adhikārī,* to be a preacher, for a preacher should not tolerate blasphemy against another Vaiṣṇava. Although a *kaniṣṭha-adhikārī* also cannot tolerate such blasphemy, he is not competent to stop it by citing śāstric evidences. Therefore Tapana Miśra and Candraśekhara are understood to be *kaniṣṭha-adhikārīs* because they could not refute the arguments of the *sannyāsīs* in Benares. They appealed to Lord Caitanya Mahāprabhu to take action, for they felt that they could not tolerate such criticism although they also could not stop it.
 
 ### CC Adi 7.52
-
-> ইহা শুনি রহে প্রভু ঈষত্ হাসিয়া ।
-> সেই কালে এক বিপ্র মিলিল আসিয়া ॥৫২॥
 
 > ihā śuni rahe prabhu īṣat hāsiyā
 > sei kāle eka vipra milila āsiyā
@@ -14652,9 +11471,6 @@ Because the blasphemy was cast against Śrī Caitanya Mahāprabhu Himself, He di
 
 ### CC Adi 7.53
 
-> আসি’ নিবেদন করে চরণে ধরিয়া ।
-> এক বস্তু মাগোঁ, দেহ প্রসন্ন হইয়া ॥৫৩॥
-
 > āsi' nivedana kare caraṇe dhariyā
 > eka vastu māgoṅ, deha prasanna ha-iyā
 
@@ -14665,9 +11481,6 @@ Because the blasphemy was cast against Śrī Caitanya Mahāprabhu Himself, He di
 The Vedic injunctions state, *tad viddhi praṇipātena paripraśnena sevayā:* one must approach a superior authority in humbleness [[bg/4/34|(Bg. 4.34)]]. One cannot challenge a superior authority, but with great submission one can submit his proposal for acceptance by the spiritual master or spiritual authorities. Śrī Caitanya Mahāprabhu is an ideal teacher by His personal behavior, and so also are all His disciples. Thus this *brāhmaṇa,* being purified in association with Caitanya Mahāprabhu, followed these principles in submitting his request to the higher authority. He fell down at the lotus feet of Śrī Caitanya Mahāprabhu and then spoke as follows.
 
 ### CC Adi 7.54
-
-> সকল সন্ন্যাসী মুঞি কৈনু নিমন্ত্রণ ।
-> তুমি যদি আইস, পূর্ণ হয় মোর মন ॥৫৪॥
 
 > sakala sannyāsī muñi kainu nimantraṇa
 > tumi yadi āisa, pūrṇa haya mora mana
@@ -14680,9 +11493,6 @@ This *brāhmaṇa* knew that Caitanya Mahāprabhu was the only Vaiṣṇava *san
 
 ### CC Adi 7.55
 
-> না যাহ সন্ন্যাসি-গোষ্ঠী, ইহা আমি জানি ।
-> মোরে অনুগ্রহ কর নিমন্ত্রণ মানি’ ॥৫৫॥
-
 > nā yāha sannyāsi-goṣṭhī, ihā āmi jāni
 > more anugraha kara nimantraṇa māni'
 
@@ -14693,9 +11503,6 @@ This *brāhmaṇa* knew that Caitanya Mahāprabhu was the only Vaiṣṇava *san
 An *ācārya,* or great personality of the Vaiṣṇava school, is very strict in his principles, but although he is as hard as a thunderbolt, sometimes he is as soft as a rose. Thus actually he is independent. He follows all the rules and regulations strictly, but sometimes he slackens this policy. It was known that Lord Caitanya never mixed with the Māyāvādī *sannyāsīs,* yet He conceded to the request of the *brāhmaṇa,* as stated in the next verse.
 
 ### CC Adi 7.56
-
-> প্রভু হাসি’ নিমন্ত্রণ কৈল অঙ্গীকার ।
-> সন্ন্যাসীরে কৃপা লাগি’ এ ভঙ্গী তাঁহার ॥৫৬॥
 
 > prabhu hāsi' nimantraṇa kaila aṅgīkāra
 > sannyāsīre kṛpā lāgi' e bhaṅgī tāṅhāra
@@ -14708,9 +11515,6 @@ Tapana Miśra and Candraśekhara appealed to the lotus feet of the Lord regardin
 
 ### CC Adi 7.57
 
-> সে বিপ্র জানেন প্রভু না যা’ন কা’র ঘরে ।
-> তাঁহার প্রেরণায় তাঁরে অত্যাগ্রহ করে ॥৫৭॥
-
 ** TEXT 57**
 
 > se vipra jānena prabhu nā yā'na kā'ra ghare
@@ -14722,9 +11526,6 @@ Tapana Miśra and Candraśekhara appealed to the lotus feet of the Lord regardin
 
 ### CC Adi 7.58
 
-> আর দিনে গেলা প্রভু সে বিপ্র-ভবনে ।
-> দেখিলেন, বসিয়াছেন সন্ন্যাসীর গণে ॥৫৮॥
-
 > āra dine gelā prabhu se vipra-bhavane
 > dekhilena, vasiyāchena sannyāsīra gaṇe
 
@@ -14733,9 +11534,6 @@ Tapana Miśra and Candraśekhara appealed to the lotus feet of the Lord regardin
 **The next day, when Lord Śrī Caitanya Mahāprabhu went to the house of that brāhmaṇa, He saw all the sannyāsīs of Benares sitting there.**
 
 ### CC Adi 7.59
-
-> সবা নমস্করি’ গেলা পাদ-প্রক্ষালনে ।
-> পাদ প্রক্ষালন করি বসিলা সেই স্থানে ॥৫৯॥
 
 > sabā namaskari' gelā pāda-prakṣālane
 > pāda prakṣālana kari vasilā sei sthāne
@@ -14748,9 +11546,6 @@ By offering His obeisances to the Māyāvādī *sannyāsīs,* Śrī Caitanya Mah
 
 ### CC Adi 7.60
 
-> বসিয়া করিলা কিছু ঐশ্বর্য প্রকাশ ।
-> মহাতেজোময় বপু কোটিসূর্যাভাস ॥৬০॥
-
 > vasiyā karilā kichu aiśvarya prakāśa
 > mahātejomaya vapu koṭi-sūryābhāsa
 
@@ -14761,9 +11556,6 @@ By offering His obeisances to the Māyāvādī *sannyāsīs,* Śrī Caitanya Mah
 Śrī Caitanya Mahāprabhu, as the Supreme Personality of Godhead Kṛṣṇa, is full of all potencies. Therefore it is not remarkable for Him to manifest the illumination of millions of suns. Lord Śrī Kṛṣṇa is known as Yogeśvara, the master of all mystic powers. Śrī Kṛṣṇa Caitanya Mahāprabhu is Lord Kṛṣṇa Himself; therefore He can exhibit any mystic power.
 
 ### CC Adi 7.61
-
-> প্রভাবে আকর্ষিল সব সন্ন্যাসীর মন ।
-> উঠিল সন্ন্যাসী সব ছাড়িয়া আসন ॥৬১॥
 
 > prabhāve ākarṣila saba sannyāsīra mana
 > uṭhila sannyāsī saba chāḍiyā āsana
@@ -14776,9 +11568,6 @@ To draw the attention of common men, sometimes saintly persons, *ācāryas* and 
 
 ### CC Adi 7.62
 
-> প্রকাশানন্দ-নামে সর্ব সন্ন্যাসী-প্রধান ।
-> প্রভুকে কহিল কিছু করিয়া সম্মান ॥৬২॥
-
 > prakāśānanda-nāme sarva sannyāsi-pradhāna
 > prabhuke kahila kichu kariyā sammāna
 
@@ -14790,9 +11579,6 @@ As Lord Śrī Caitanya Mahāprabhu showed respect to all the Māyāvādī *sanny
 
 ### CC Adi 7.63
 
-> ইহাঁ আইস, ইহাঁ আইস, শুনহ শ্রীপাদ ।
-> অপবিত্র স্থানে বৈস, কিবা অবসাদ ॥৬৩॥
-
 > ihāṅ āisa, ihāṅ āisa, śunaha śrīpāda
 > apavitra sthāne vaisa, kibā avasāda
 
@@ -14803,9 +11589,6 @@ As Lord Śrī Caitanya Mahāprabhu showed respect to all the Māyāvādī *sanny
 Here is the distinction between Lord Caitanya Mahāprabhu and Prakāśānanda Sarasvatī. In the material world everyone wants to introduce himself as very important and great, but Caitanya Mahāprabhu introduced Himself very humbly and meekly.The Māyāvādīs were sitting in an exalted position, and Caitanya Mahāprabhu sat in a place which was not even clean. Therefore the Māyāvādī *sannyāsīs* thought that He must have been aggrieved for some reason, and Prakāśānanda Sarasvatī inquired about the cause for His lamentation.
 
 ### CC Adi 7.64
-
-> প্রভু কহে, — আমি হই হীন-সম্প্রদায় ।
-> তোমা-সবার সভায় বসিতে না যুয়ায় ॥৬৪॥
 
 > prabhu kahe,—āmi ha-i hīna-sampradāya
 > tomā-sabāra sabhāya vasite nā yuyāya
@@ -14822,9 +11605,6 @@ The Māyāvādi-sampradāya *sannyāsīs* are generally known as Vedāntīs, as 
 
 ### CC Adi 7.65
 
-> আপনে প্রকাশানন্দ হাতেতে ধরিয়া ।
-> বসাইলা সভামধ্যে সম্মান করিয়া ॥৬৫॥
-
 > āpane prakāśānanda hātete dhariyā
 > vasāilā sabhā-madhye sammāna kariyā
 
@@ -14836,9 +11616,6 @@ The respectful behavior of Prakāśānanda Sarasvatī toward Śrī Caitanya Mah�
 
 ### CC Adi 7.66
 
-> পুছিল, তোমার নাম ‘শ্রীকৃষ্ণচৈতন্য’ ।
-> কেশব-ভারতীর শিষ্য, তাতে তুমি ধন্য ॥৬৬॥
-
 > puchila, tomāra nāma 'śrī-kṛṣṇa-caitanya'
 > keśava-bhāratīra śiṣya, tāte tumi dhanya
 
@@ -14847,9 +11624,6 @@ The respectful behavior of Prakāśānanda Sarasvatī toward Śrī Caitanya Mah�
 **Prakāśānanda Sarasvatī then said: "I understand that Your name is Śrī Kṛṣṇa Caitanya. You are a disciple of Śrī Keśava Bhāratī, and therefore You are glorious.**
 
 ### CC Adi 7.67
-
-> সাম্প্রদায়িক সন্ন্যাসী তুমি, রহ এই গ্রামে ।
-> কি কারণে আমা-সবার না কর দর্শনে ॥৬৭॥
 
 > sāmpradāyika sannyāsī tumi, raha ei grāme
 > ki kāraṇe āmā-sabāra nā kara darśane
@@ -14863,9 +11637,6 @@ A Vaiṣṇava *sannyāsī* or a Vaiṣṇava in the second stage of advancement
 According to Māyāvādī *sannyāsīs,* only one who takes *sannyāsa* in the disciplic succession from Śaṅkarācārya is a Vedic *sannyāsī.* Sometimes it is challenged that the *sannyāsīs* who are preaching in the Kṛṣṇa consciousness movement are not genuine because they do not belong to *brāhmaṇa* families, for Māyāvādīs do not offer *sannyāsa to* one who does not belong to a *brāḥmaṇa* family by birth. Unfortunately, however, they do not know that at present everyone is born a *śūdra* (*kalau śūdra-sambhavaḥ*). It is to be understood that there are no *brāhmaṇas* in this age because those who claim to be *brāḥmaṇas* simply on the basis of birthright do not have the brahminical qualifications. However, even if one is born in a non-*brāhmaṇa* family, if he has the brahminical qualifications he should be accepted as a *brāhmaṇa,* as confirmed by Śrīla Nārada Muni and the great saint Śrīdhara Svāmī. This is also stated in *Śrīmad-Bhāgavatam.* Both Nārada and Śrīdhara Svāmī completely agree that one cannot be a *brāhmaṇa* by birthright but must possess the qualities of a *brāhmaṇa.* Thus in our Kṛṣṇa consciousness movement we never offer the *sannyāsa* order to a person whom we do not find to be qualified in terms of the prescribed brahminical principles. Although it is a fact that unless one is a *brāhmaṇa* he cannot become a *sannyāsī,* it is not a valid principle that an unqualified man who is born in a *brāhmaṇa* family is a *brāhmaṇa* whereas a brahminically qualified person born in a non-*brāhmaṇa* family cannot be accepted. The Kṛṣṇa consciousness movement strictly follows the injunctions of *Śrīmad-Bhāgavatam,* avoiding misleading heresy and manufactured conclusions.
 
 ### CC Adi 7.68
-
-> সন্ন্যাসী হইয়া কর নর্তন-গায়ন ।
-> ভাবুক সব সঙ্গে লঞা কর সংকীর্তন ॥৬৮॥
 
 > sannyāsī ha-iyā kara nartana-gāyana
 > bhāvuka saba saṅge lañā kara saṅkīrtana
@@ -14885,9 +11656,6 @@ This statement indicates that one can hear or speak about Vedānta philosophy th
 
 ### CC Adi 7.69
 
-> বেদান্ত-পঠন, ধ্যান, — সন্ন্যাসীর ধর্ম ।
-> তাহা ছাড়ি’ কর কেনে ভাবুকের কর্ম ॥৬৯॥
-
 > vedānta-paṭhana, dhyāna,—sannyāsīra dharma
 > tāhā chāḍi' kara kene bhāvukera karma
 
@@ -14899,9 +11667,6 @@ As explained in regard to verse 41, Māyāvādī *sannyāsīs* do not approve of
 
 ### CC Adi 7.70
 
-> প্রভাবে দেখিয়ে তোমা সাক্ষাৎ নারায়ণ ।
-> হীনাচার কর কেনে, ইথে কি কারণ ॥৭০॥
-
 > prabhāve dekhiye tomā sākṣāt nārāyaṇa
 > hīnācāra kara kene, ithe ki kāraṇa
 
@@ -14912,9 +11677,6 @@ As explained in regard to verse 41, Māyāvādī *sannyāsīs* do not approve of
 Due to renunciation, Vedānta study, meditation and the strict regulative principles of their daily routine, Māyāvādī *sannyāsīs* are certainly in a position to execute pious activities. Thus Prakāśānanda Sarasvatī, on account of his piety, could understand that Caitanya Mahāprabhu was not an ordinary person but the Supreme Personality of Godhead. *Sākṣāt nārāyaṇa:* he considered Him to be Nārāyaṇa Himself. Māyāvādī *sannyāsīs* address each other as Nārāyaṇa because they think that they are all going to be Nārāyaṇa or merge with Nārāyaṇa in the next life. Prakāśānanda Sarasvatī appreciated that Caitanya Mahāprabhu had already directly become Nārāyaṇa and did not need to wait until His next life. One difference between the Vaiṣṇava and Māyāvādī philosophies is that Māyāvādī philosophers think that after giving up their bodies they are going to become Nārāyaṇa by merging with His body, whereas Vaiṣṇava philosophers understand that after the body dies they are going to have a transcendental, spiritual body in which to associate with Nārāyaṇa.
 
 ### CC Adi 7.71
-
-> প্রভু কহে — শুন, শ্রীপাদ, ইহার কারণ ।
-> গুরু মোরে মূর্খ দেখি’ করিল শাসন ॥৭১॥
 
 > prabhu kahe—śuna, śrīpāda, ihāra kāraṇa
 > guru more mūrkha dekhi' karila śāsana
@@ -14933,9 +11695,6 @@ When Prakāśānanda Sarasvatī inquired from Lord Caitanya Mahāprabhu why He n
 "In this age of quarrel and hypocrisy the only means of deliverance is the chanting of the holy names of the Lord. There is no other way. There is no other way. There is no other way." People in general in Kali-yuga are so fallen that it is not possible for them to obtain perfection simply by studying the *Vedānta-sūtra.* One should therefore seriously take to the constant chanting of the holy name of the Lord.
 
 ### CC Adi 7.72
-
-> মূর্খ তুমি, তোমার নাহিক বেদান্তাধিকার ।
-> ‘কৃষ্ণমন্ত্র’ জপ’ সদা, — এই মন্ত্রসার ॥৭২॥
 
 > mūrkha tumi, tomāra nāhika vedāntādhikāra
 > 'kṛṣṇa-mantra' japa sadā,—ei mantra-sāra
@@ -14975,9 +11734,6 @@ Taking advantage of these verses, there are some *sahajiyās* who, taking everyt
 
 ### CC Adi 7.73
 
-> কৃষ্ণমন্ত্র হৈতে হবে সংসার-মোচন ।
-> কৃষ্ণনাম হৈতে পাবে কৃষ্ণের চরণ ॥৭৩॥
-
 > kṛṣṇa-mantra haite habe saṁsāra-mocana
 > kṛṣṇa-nāma haite pābe kṛṣṇera caraṇa
 
@@ -15002,9 +11758,6 @@ The holy name and the Lord are identical. One who is completely free from the cl
 
 ### CC Adi 7.74
 
-> নাম বিনু কলিকালে নাহি আর ধর্ম ।
-> সর্বমন্ত্রসার নাম, এই শাস্ত্রমর্ম ॥৭৪॥
-
 > nāma vinu kali-kāle nāhi āra dharma
 > sarva-mantra-sāra nāma, ei śāstra-marma
 
@@ -15023,9 +11776,6 @@ Although by severe austerities they rise to the exalted position of *brahma-jñ�
 
 ### CC Adi 7.75
 
-> এত বলি’ এক শ্লোক শিখাইল মোরে ।
-> কণ্ঠে করি’ এই শ্লোক করিহ বিচারে ॥৭৫॥
-
 > eta bali' eka śloka śikhāila more
 > kaṇṭhe kari' ei śloka kariha vicāre
 
@@ -15035,9 +11785,6 @@ Although by severe austerities they rise to the exalted position of *brahma-jñ�
 
 ### CC Adi 7.76
 
-> হরের্নাম হরের্নাম হরের্নামৈব কেবলম্ ।
-> কলৌ নাস্ত্যেব নাস্ত্যেব নাস্ত্যেব গতিরন্যথা ॥৭৬॥
-
 > harer nāma harer nāma
 > harer nāmaiva kevalam
 > kalau nāsty eva nāsty eva
@@ -15045,7 +11792,7 @@ Although by severe austerities they rise to the exalted position of *brahma-jñ�
 
 *hareḥ nāma*—the holy name of the Lord; *hareḥ nāma*—the holy name of the Lord; *hareḥ nāma*—the holy name of the Lord; *eva*—certainly; *kevalam*—only; *kalau*—in this Age of Kali; *na asti*—there is none; *eva*—certainly; *naasti*—there is none; *eva*—certainly; *naasti*—there is none; *eva*—certainly; *gatiḥ*—progress; *anyathā*—otherwise.
 
-**“ 'For spiritual progress in this Age of Kali, there is no alternative, there is no alternative, there is no alternative for spiritual progress than the holy name, the holy name, the holy name of the Lord.'**
+**“ 'in this age of Kali there is no alternative, there is no alternative, there is no alternative for spiritual progress than the holy name, the holy name, the holy name of the Lord.'**
 
 For progress in spiritual life, the *śāstras* recommend meditation in Satya-yuga, sacrifice for the satisfaction of Lord Viṣṇu in Tretā-yuga and gorgeous worship of the Lord in the temple in Dvāpara-yuga, but in the Age of Kali one can achieve spiritual progress only by chanting the holy name of the Lord. This is confirmed in various scriptures. In *Śrīmad-Bhāgavatam* there are many references to this fact. In the Twelfth Canto (12.3.51) it is said, *kīrtanād eva kṛṣṇasya mukta-saṅgaḥ paraṁ vrajet:* In the Age of Kali there are many faults, for people are subjected to many miserable conditions, yet in this age there is one great benediction-simply by chanting the Hare Kṛṣṇa *mantra* one can be freed from all material contamination and thus be elevated to the spiritual world. The *Nārada-pañcarātra* also praises the Hare Kṛṣṇa *mahā-mantra as* follows:
 
@@ -15073,9 +11820,6 @@ To chant the holy name of the Lord, one need not depend upon other paraphernalia
 
 ### CC Adi 7.77
 
-> এই আজ্ঞা পাঞা নাম লই অনুক্ষণ ।
-> নাম লৈতে লৈতে মোর ভ্রান্ত হৈল মন ॥৭৭॥
-
 > ei ājñā pāñā nāma la-i anukṣaṇa
 > nāma laite laite mora bhrānta haila mana
 
@@ -15085,9 +11829,6 @@ To chant the holy name of the Lord, one need not depend upon other paraphernalia
 
 ### CC Adi 7.78
 
-> ধৈর্য ধরিতে নারি, হৈলাম উন্মত্ত ।
-> হাসি, কান্দি, নাচি, গাই, যৈছে মদমত্ত ॥৭৮॥
-
 > dhairya dharite nāri, hailāma unmatta
 > hāsi, kāndi, nāci, gāi, yaiche madamatta
 
@@ -15096,9 +11837,6 @@ To chant the holy name of the Lord, one need not depend upon other paraphernalia
 **"While chanting the holy name of the Lord in pure ecstasy, I lose myself, and thus I laugh, cry, dance and sing just like a madman.**
 
 ### CC Adi 7.79
-
-> তবে ধৈর্য ধরি’ মনে করিলুঁ বিচার ।
-> কৃষ্ণনামে জ্ঞানাচ্ছন্ন হইল আমার ॥৭৯॥
 
 > tabe dhairya dhari' mane kariluṅ vicāra
 > kṛṣṇa-nāme jñānācchanna ha-ila āmāra
@@ -15111,9 +11849,6 @@ To chant the holy name of the Lord, one need not depend upon other paraphernalia
 
 ### CC Adi 7.80
 
-> পাগল হইলাঙ আমি, ধৈর্য নাহি মনে ।
-> এত চিন্তি’ নিবেদিলুঁ গুরুর চরণে ॥৮০॥
-
 > pāgala ha-ilāṅ āmi, dhairya nāhi mane
 > eta cinti' nivediluṅ gurura caraṇe
 
@@ -15124,9 +11859,6 @@ To chant the holy name of the Lord, one need not depend upon other paraphernalia
 Śrī Caitanya Mahāprabhu, as an ideal teacher, shows us how a disciple should deal with his spiritual master. Whenever there is doubt regarding any point, he should refer the matter to his spiritual master for clarification. Śrī Caitanya Mahāprabhu said that while chanting and dancing He had developed the kind of mad ecstasy that is possible only for a liberated soul. Yet even in His liberated position, He referred everything to His spiritual master whenever there were doubts. Thus in any condition, even when liberated, we should never think ourselves independent of the spiritual master, but must refer to him as soon as there is some doubt regarding our progressive spiritual life.
 
 ### CC Adi 7.81
-
-> কিবা মন্ত্র দিলা, গোসাঞি, কিবা তার বল ।
-> জপিতে জপিতে মন্ত্র করিল পাগল ॥৮১॥
 
 > kibā mantra dilā, gosāñi, kibā tāra bala
 > japite japite mantra karila pāgala
@@ -15146,9 +11878,6 @@ To chant the holy name of the Lord, one need not depend upon other paraphernalia
 
 ### CC Adi 7.82
 
-> হাসায়, নাচায়, মোরে করায় ক্রন্দন ।
-> এত শুনি’ গুরু হাসি বলিলা বচন ॥৮২॥
-
 > hāsāya, nācāya, more karāya krandana
 > eta śuni' guru hāsi balilā vacana
 
@@ -15159,9 +11888,6 @@ To chant the holy name of the Lord, one need not depend upon other paraphernalia
 When a disciple very perfectly makes progress in spiritual life, this gladdens the spiritual master, who then also smiles in ecstasy, thinking, "How successful my disciple has become!" He feels so glad that be smiles as he enjoys the progress of the disciple, just as a smiling parent enjoys the activities of a child who is trying to stand up or crawl perfectly.
 
 ### CC Adi 7.83
-
-> কৃষ্ণনাম-মহামন্ত্রের এই ত’ স্বভাব ।
-> যেই জপে, তার কৃষ্ণে উপজয়ে ভাব ॥৮৩॥
 
 > kṛṣṇa-nāma-mahā-mantrera ei ta' svabhāva
 > yei jape, tāra kṛṣṇe upajaye bhāva
@@ -15181,9 +11907,6 @@ The holy name of Kṛṣṇa is called the *mahā-mantra.* Other *mantras* menti
 
 ### CC Adi 7.84
 
-> কৃষ্ণবিষয়ক প্রেমা — পরম পুরুষার্থ ।
-> যার আগে তৃণতুল্য চারি পুরুষার্থ ॥৮৪॥
-
 > kṛṣṇa-viṣayaka premā—parama puruṣārtha
 > yāra āge tṛṇa-tulya cāri puruṣārtha
 
@@ -15197,9 +11920,6 @@ While chanting the holy name of the Lord, one should not desire the material adv
 
 ### CC Adi 7.85
 
-> পঞ্চম পুরুষার্থ — প্রেমানন্দামৃতসিন্ধু ।
-> মোক্ষাদি আনন্দ যার নহে এক বিন্দু ॥৮৫॥
-
 > pañcama puruṣārtha—premānandāmṛta-sindhu
 > mokṣādi ānanda yāra nahe eka bindu
 
@@ -15208,9 +11928,6 @@ While chanting the holy name of the Lord, one should not desire the material adv
 **“ 'For a devotee who has actually developed bhāva, the pleasure derived from dharma, artha, kāma and mokṣa appears like a drop in the presence of the sea.**
 
 ### CC Adi 7.86
-
-> কৃষ্ণনামের ফল — ‘প্রেমা’, সর্বশাস্ত্রে কয় ।
-> ভাগ্যে সেই প্রেমা তোমায় করিল উদয় ॥৮৬॥
 
 > kṛṣṇa-nāmera phala—'premā', sarva-śāstre kaya
 > bhāgye sei premā tomāya karila udaya
@@ -15221,9 +11938,6 @@ While chanting the holy name of the Lord, one should not desire the material adv
 
 ### CC Adi 7.87
 
-> প্রেমার স্বভাবে করে চিত্ত-তনু ক্ষোভ ।
-> কৃষ্ণের চরণ-প্রাপ্ত্যে উপজায় লোভ ॥৮৭॥
-
 > premāra svabhāve kare citta-tanu kṣobha
 > kṛṣṇera caraṇa-prāptye upajāya lobha
 
@@ -15232,9 +11946,6 @@ While chanting the holy name of the Lord, one should not desire the material adv
 **“ 'It is a characteristic of love of Godhead that by nature it induces transcendental symptoms in one's body and makes one more and more greedy to achieve the shelter of the lotus feet of the Lord.**
 
 ### CC Adi 7.88
-
-> প্রেমার স্বভাবে ভক্ত হাসে, কান্দে, গায় ।
-> উন্মত্ত হইয়া নাচে, ইতি-উতি ধায় ॥৮৮॥
 
 > premāra svabhāve bhakta hāse, kānde, gāya
 > unmatta ha-iyā nāce, iti-uti dhāya
@@ -15246,11 +11957,6 @@ While chanting the holy name of the Lord, one should not desire the material adv
 In this connection Bhaktisiddhānta Sarasvatī Gosvāmī says that sometimes persons who have no love of Godhead at all display ecstatic bodily symptoms. Artificially they sometimes laugh, cry and dance just like madmen, but this cannot help one progress in Kṛṣṇa consciousness. Rather, such artificial agitation of the body is to be given up when one naturally develops the necessary bodily symptoms. Actual blissful life, manifested in genuine spiritual laughing, crying and dancing, is the symptom of real advancement in Kṛṣṇa consciousness, which can be achieved by a person who always voluntarily engages in the transcendental loving service of the Lord. If one who is not yet developed imitates such symptoms artificially, he creates chaos in the spiritual life of human society.
 
 ### CC Adi 7.89-90
-
-> স্বেদ, কম্প, রোমাঞ্চাশ্রু, গদ্গদ, বৈবর্ণ্য ।
-> উন্মাদ, বিষাদ, ধৈর্য, গর্ব, হর্ষ, দৈন্য ॥৮৯॥
-> এত ভাবে প্রেমা ভক্তগণেরে নাচায় ।
-> কৃষ্ণের আনন্দামৃতসাগরে ভাসায় ॥৯০॥
 
 > sveda, kampa, romāñcāśru, gadgada, vaivarṇya
 > unmāda, viṣāda, dhairya, garva, harṣa, dainya
@@ -15273,9 +11979,6 @@ In this connection Bhaktisiddhānta Sarasvatī Gosvāmī says that sometimes per
 
 ### CC Adi 7.91
 
-> ভাল হৈল, পাইলে তুমি পরমপুরুষার্থ ।
-> তোমার প্রেমেতে আমি হৈলাঙ কৃতার্থ ॥৯১॥
-
 > bhāla haila, pāile tumi parama-puruṣārtha
 > tomāra premete āmi hailāṅ kṛtārtha
 
@@ -15286,9 +11989,6 @@ In this connection Bhaktisiddhānta Sarasvatī Gosvāmī says that sometimes per
 According to revealed scriptures, if a spiritual master can convert even one soul into a perfectly pure devotee, his mission in life is fulfilled. Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura always used to say, "Even at the expense of all the properties, temples and *maṭhas* that I have, if I could convert even one person into a pure devotee, my mission would be fulfilled." It is very difficult, however, to understand the science of Kṛṣṇa, what to speak of developing love of Godhead. Therefore if by the grace of Lord Caitanya and the spiritual master a disciple attains the standard of pure devotional service, the spiritual master is very happy. The spiritual master is not actually happy if the disciple brings him money, but when he sees that a disciple is following the regulative principles and advancing in spiritual life, he is very glad and feels obliged to such an advanced disciple.
 
 ### CC Adi 7.92
-
-> নাচ, গাও, ভক্তসঙ্গে কর সংকীর্তন ।
-> কৃষ্ণনাম উপদেশি’ তার’ সর্বজন ॥৯২॥
 
 > nāca, gāo, bhakta-saṅge kara saṅkīrtana
 > kṛṣṇa-nāma upadeśi' tāra' sarva-jana
@@ -15317,9 +12017,6 @@ One should not imitate the activities of great personalities. One should be deta
 
 ### CC Adi 7.93
 
-> এত বলি’ এক শ্লোক শিখাইল মোরে ।
-> ভাগবতের সার এই — বলে বারে বারে ॥৯৩॥
-
 > eta bali' eka śloka śikhāila more
 > bhāgavatera sāra ei—bale vāre vāre
 
@@ -15331,11 +12028,6 @@ This verse from *Śrīmad-Bhāgavatam* (11.2.40) was spoken by Śrī Nārada Mun
 
 ### CC Adi 7.94
 
-> এবংব্রতঃ স্বপ্রিয়নামকীর্ত্যা
-> জাতানুরাগো দ্রুতচিত্ত উচ্চৈঃ ।
-> হসত্যথো রোদিতি রৌতি গায়-
-> ত্যুন্মাদবন্নৃত্যতি লোকবাহ্যঃ ॥৯৪॥
-
 > evaṁ-vrataḥ sva-priya-nāma-kīrtyā
 > jātānurāgo druta-citta uccaiḥ
 > hasaty atho roditi rauti gāyaty
@@ -15346,11 +12038,6 @@ This verse from *Śrīmad-Bhāgavatam* (11.2.40) was spoken by Śrī Nārada Mun
 **“ 'When a person is actually advanced and takes pleasure in chanting the holy name of the Lord, who is very dear to him, he is agitated and loudly chants the holy name. He also laughs, cries, becomes agitated and chants just like a madman, not caring for outsiders.'**
 
 ### CC Adi 7.95-96
-
-> এই তাঁর বাক্যে আমি দৃঢ় বিশ্বাস ধরি’ ।
-> নিরন্তর কৃষ্ণনাম সংকীর্তন করি ॥৯৫॥
-> সেই কৃষ্ণনাম কভু গাওয়ায়, নাচায় ।
-> গাহি, নাচি নাহি আমি আপন-ইচ্ছায় ॥৯৬॥
 
 > ei tāṅra vākye āmi dṛḍha viśvāsa dhari'
 > nirantara kṛṣṇa-nāma saṅkīrtana kari
@@ -15379,9 +12066,6 @@ It is to be understood that when Śrī Caitanya Mahāprabhu chanted and danced, 
 
 ### CC Adi 7.97
 
-> কৃষ্ণনামে যে আনন্দসিন্ধু-আস্বাদন ।
-> ব্রহ্মানন্দ তার আগে খাতোদক-সম ॥৯৭॥
-
 > kṛṣṇa-nāme ye ānanda-sindhu-āsvādana
 > brahmānanda tāra āge khātodaka-sama
 
@@ -15400,9 +12084,6 @@ In the *Bhakti-rasāmṛta-sindhu* (1.1.38) it is stated:
 
 ### CC Adi 7.98
 
-> ত্বৎসাক্ষাৎকরণাহ্লাদ-বিশুদ্ধাব্ধিস্থিতস্য মে ।
-> সুখানি গোষ্পদায়ন্তে ব্রাহ্মাণ্যপি জগদ্গুরো ॥৯৮॥
-
 > tvat-sākṣāt-karaṇāhlāda-
 > viśuddhābdhi-sthitasya me
 > sukhāni goṣpadāyante
@@ -15415,9 +12096,6 @@ In the *Bhakti-rasāmṛta-sindhu* (1.1.38) it is stated:
 The transcendental bliss enjoyed in pure devotional service is like an ocean, whereas material happiness and even the happiness to be derived from the realization of impersonal Brahman are just like the water in the hoofprint of a calf. This is a verse from the *Hari-bhakti-sudhodaya* (14.36).
 
 ### CC Adi 7.99
-
-> প্রভুর মিষ্টবাক্য শুনি’ সন্ন্যাসীর গণ ।
-> চিত্ত ফিরি’ গেল, কহে মধুর বচন ॥৯৯॥
 
 > prabhura miṣṭa-vākya śuni' sannyāsīra gaṇa
 > citta phiri' gela, kahe madhura vacana
@@ -15439,9 +12117,6 @@ Impersonalist Māyāvādīs always try to defy Vaiṣṇavas because Vaiṣṇav
 
 ### CC Adi 7.100
 
-> যে কিছু কহিলে তুমি, সব সত্য হয় ।
-> কৃষ্ণপ্রেমা সেই পায়, যার ভাগ্যোদয় ॥১০০॥
-
 > ye kichu kahile tumi, saba satya haya
 > kṛṣṇa-premā sei pāya, yāra bhāgyodaya
 
@@ -15460,9 +12135,6 @@ There are millions of living entities who have become conditioned by the laws of
 
 ### CC Adi 7.101
 
-> কৃষ্ণে ভক্তি কর — ইহায় সবার সন্তোষ ।
-> বেদান্ত না শুন কেনে, তার কিবা দোষ ॥১০১॥
-
 > kṛṣṇe bhakti kara—ihāya sabāra santoṣa
 > vedānta nā śuna kene, tāra kibā doṣa
 
@@ -15473,9 +12145,6 @@ There are millions of living entities who have become conditioned by the laws of
 Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura comments in this connection, "Māyāvādī *sannyāsīs* accept that the commentary by Śrī Śaṅkarācārya known as *Śārīraka-bhāṣya* gives the real meaning of the *Vedanta-sūtra.* In other words, Māyāvādī *sannyāsīs* accept the meanings expressed in the explanations of the *Vedānta-sūtra* by Śaṅkarācārya, which are based on monism. Thus they explain the *Vedānta-sūtra,* the *Upaniṣads* and all such Vedic literature in their own impersonal way." The great Māyāvādī *sannyāsī* Sadānanda Yogīndra has written a book known as *Vedānta-sāra,* in which he writes, *vedānto nāma upaniṣat-pramāṇam. tad-upakārīṇi śārīraka-sūtrādīni ca.* According to Sadānanda Yogīndra, the *Vedānta-sūtra* and *Upaniṣads,* as presented by Śrī Śaṅkarācārya in his *Śārīraka-bhāṣya* commentary, are the only sources of Vedic evidence. Actually, however, *Vedānta* refers to the essence of Vedic knowledge, and it is not a fact that there is nothing more than Śaṅkarācārya's *Śārīraka-bhāṣya.* There are other *Vedānta* commentaries, written by Vaiṣṇava *ācāryas,* none of whom follow Śrī Śaṅkarācārya or accept the imaginative commentary of his school. Their commentaries are based on the philosophy of duality. Monist philosophers like Śaṅkarācārya and his followers want to establish that God and the living entity are one, and instead of worshiping the Supreme Personality of Godhead they present themselves as God. They want to be worshiped as God by others. Such persons do not accept the philosophies of the Vaiṣṇava *ācāryas,* which are known as *śuddhādvaita* (purified monism), *śuddha-dvaita* (purified dualism), *viśiṣṭādvaita* (specific monism), *dvaitādvaita* (monism and dualism) and *acintya-bhedābheda* (inconceivable oneness and difference). Māyāvādīs do not discuss these philosophies, for they are firmly convinced of their own philosophy of *kevalādvaita,* exclusive monism. Accepting this system of philosophy as the pure understanding of the *Vedānta-sūtra,* they believe that Kṛṣṇa has a body made of material elements and that the activities of loving service to Kṛṣṇa are sentimentality. They are known as Māyāvādīs because according to their opinion Kṛṣṇa has a body made of *māyā,* and the loving service of the Lord executed by devotees is also *māyā.* They consider such devotional service to be an aspect of fruitive activities (*karma-kāṇḍa*). According to their view, *bhakti* consists of mental speculation or sometimes meditation. This is the difference between the Māyāvādī and Vaiṣṇava philosophies.
 
 ### CC Adi 7.102
-
-> এত শুনি’ হাসি’ প্রভু বলিলা বচন ।
-> দুঃখ না মানহ যদি, করি নিবেদন ॥১০২॥
 
 > eta śuni' hāsi' prabhu balilā vacana
 > duḥkha nā mānaha yadi, kari nivedana
@@ -15514,9 +12183,6 @@ A sincere devotee must, therefore, be prepared to hear the Vedic literature like
 
 ### CC Adi 7.103
 
-> ইহা শুনি’ বলে সর্ব সন্ন্যাসীর গণ ।
-> তোমাকে দেখিয়ে যৈছে সাক্ষাৎ নারায়ণ ॥১০৩॥
-
 > ihā śuni' bale sarva sannyāsīra gaṇa
 > tomāke dekhiye yaiche sākṣāt nārāyaṇa
 
@@ -15527,9 +12193,6 @@ A sincere devotee must, therefore, be prepared to hear the Vedic literature like
 Māyāvādī *sannyāsīs* address each other as Nārāyaṇa. Whenever they see another *sannyāsī,* they offer him respect by calling *oṁ namo nārāyaṇāya* ("I offer my respect unto you, Nārāyaṇa"), although they know perfectly well what kind of Nārāyaṇa he is. Nārāyaṇa has four hands, but although they are puffed up with the idea of being Nārāyaṇa, they cannot exhibit more than two. Since their philosophy declares that Nārāyaṇa and an ordinary human being are both on the same level, they sometimes use the term *daridra-nārāyaṇa* ("poor Nārāyaṇa"), which was invented by a so-called *svāmī* who did not know anything about Vedānta philosophy. Therefore although all these Māyāvādī *sannyāsīs* who called themselves Nārāyaṇa were actually unaware of the position of Nārāyaṇa, due to their austerities Lord Caitanya Mahāprabhu enabled them to understand Him to be Nārāyaṇa Himself. Lord Caitanya is certainly the Supreme Personality of Godhead Nārāyaṇa appearing as a devotee of Nārāyaṇa, and thus the Māyāvādī *sannyāsīs,* understanding that He was directly Nārāyaṇa Himself whereas they were false, puffed-up Nārāyaṇas, spoke to Him as follows.
 
 ### CC Adi 7.104
-
-> তোমার বচন শুনি’ জুড়ায় শ্রবণ ।
-> তোমার মাধুরী দেখি’ জুড়ায় নয়ন ॥১০৪॥
 
 > tomāra vacana śuni' juḍāya śravaṇa
 > tomāra mādhurī dekhi' juḍāya nayana
@@ -15549,9 +12212,6 @@ In the *śāstras* it is said:
 
 ### CC Adi 7.105
 
-> তোমার প্রভাবে সবার আনন্দিত মন ।
-> কভু অসঙ্গত নহে তোমার বচন ॥১০৫॥
-
 > tomāra prabhāve sabāra ānandita mana
 > kabhu asaṅgata nahe tomāra vacana
 
@@ -15562,9 +12222,6 @@ In the *śāstras* it is said:
 In this verse the words *tomāra prabhāve* ("Your influence") are very important. Unless one is spiritually advanced he cannot influence an audience. Bhaktivinoda Ṭhākura has sung, *śuddha-bhakata-caraṇa-reṇu, bhajana-anukūla.* "Unless one associates with a pure devotee he cannot be influenced to understand devotional service." These Māyāvādī *sannyāsīs* were fortunate enough to meet the Supreme Personality of Godhead in the form of a devotee, and certainly they were greatly influenced by the Lord. They knew that since a perfectly advanced spiritualist never says anything false, all his words are reasonable and agree with the Vedic version. A highly realized person never says anything that has no meaning. Māyāvādī philosophers claim to be the Supreme Personality of Godhead, and this has no meaning, but Śrī Caitanya Mahāprabhu never uttered such nonsense. The Māyāvādī *sannyāsīs* were convinced about His personality, and therefore they wanted to hear from Him the purport of Vedānta philosophy.
 
 ### CC Adi 7.106
-
-> প্রভু কহে, বেদান্ত-সূত্র ঈশ্বর-বচন ।
-> ব্যাসরূপে কৈল যাহা শ্রীনারায়ণ ॥১০৬॥
 
 > prabhu kahe, vedānta-sūtra īśvara-vacana
 > vyāsa-rūpe kaila yāhā śrī-nārāyaṇa
@@ -15596,9 +12253,6 @@ The *Vedānta-sūtra* consists of four chapters. The first two chapters discuss 
 
 ### CC Adi 7.107
 
-> ভ্রম, প্রমাদ, বিপ্রলিপ্সা, করণাপাটব ।
-> ঈশ্বরের বাক্যে নাহি দোষ এই সব ॥১০৭॥
-
 > bhrama, pramāda, vipralipsā, karaṇāpāṭava
 > īśvarera vākye nāhi doṣa ei saba
 
@@ -15609,9 +12263,6 @@ The *Vedānta-sūtra* consists of four chapters. The first two chapters discuss 
 A mistake is the acceptance of an object to be different than what it is or the acceptance of false knowledge. For example, one may see a rope in the dark and think it to be a serpent, or one may see a glittering oyster shell and think it to be gold. These are mistakes. Similarly, an illusion is a misunderstanding which arises from inattention while hearing, and cheating is the transmission of such defective knowledge to others. Materialistic scientists and philosophers generally use such words as "maybe" and "perhaps" because they do not have actual knowledge of complete facts. Therefore their instructing others is an example of cheating. The final defect of the materialistic person is his inefficient senses. Although our eyes, for example, have the power to see, they cannot see that which is situated at a distance, nor can they see the eyelid, which is the object nearest to the eye. To our untrained eyes the sun appears to be just like a plate, and to the eyes of one who is suffering from jaundice everything appears to be yellow. Therefore we cannot rely on the knowledge acquired through such imperfect eyes. The ears are equally imperfect. We cannot hear a sound vibrated a long distance away unless we put a telephone to our ear. Similarly, if we analyze all our senses in this way, we will find them all to be imperfect. Therefore it is useless to acquire knowledge through the senses. The Vedic process is to hear from authority. In the *Bhagavad-gītā* [[bg/4/2|(Bg. 4.2)]] the Lord says, *evaṁ paramparā-prāptam imaṁ rājarṣayo viduḥ:* "The supreme science was thus received through the chain of disciplic succession, and the saintly kings understood it in that way." We have to hear not from a telephone but from an authorized person, for it is he who has real knowledge.
 
 ### CC Adi 7.108
-
-> উপনিষৎ-সহিত সূত্র কহে যেই তত্ত্ব ।
-> মুখ্যবৃত্ত্যে সেই অর্থ পরম মহত্ত্ব ॥১০৮॥
 
 > upaniṣat-sahita sūtra kahe yei tattva
 > mukhya-vṛttye sei artha parama mahattva
@@ -15626,9 +12277,6 @@ Regarding the *Upaniṣads,* the following eleven *Upaniṣads* are considered t
 
 ### CC Adi 7.109
 
-> গৌণ-বৃত্ত্যে যেবা ভাষ্য করিল আচার্য ।
-> তাহার শ্রবণে নাশ হয় সর্ব কার্য ॥১০৯॥
-
 > gauṇa-vṛttye yebā bhāṣya karila ācārya
 > tāhāra śravaṇe nāśa haya sarva kārya
 
@@ -15637,9 +12285,6 @@ Regarding the *Upaniṣads,* the following eleven *Upaniṣads* are considered t
 **"Śrīpāda Śaṅkarācārya has described all the Vedic literatures in terms of indirect meanings. One who hears such explanations is ruined.**
 
 ### CC Adi 7.110
-
-> তাঁহার নাহিক দোষ, ঈশ্বর-আজ্ঞা পাঞা ।
-> গৌণার্থ করিল মুখ্য অর্থ আচ্ছাদিয়া ॥১১০॥
 
 > tāṅhāra nāhika doṣa, īśvara-ājñā pāñā
 > gauṇārtha karila mukhya artha ācchādiyā
@@ -15701,9 +12346,6 @@ The purpose of the discussions in the *Upaniṣads* and *Vedānta-sūtra* is to 
 
 ### CC Adi 7.111
 
-> ‘ব্রহ্ম’-শব্দে মুখ্য অর্থে কহে — ‘ভগবান্’ ।
-> চিদৈশ্বর্য-পরিপূর্ণ, অনূর্ধ্ব-সমান ॥১১১॥
-
 > 'brahma'-śabde mukhya arthe kahe—'bhagavān'
 > cid-aiśvarya-paripūrṇa, anūrdhva-samāna
 
@@ -15721,9 +12363,6 @@ This statement by Śrī Caitanya Mahāprabhu is confirmed in *Śrīmad-Bhāgavat
 "Learned transcendentalists who know the Absolute Truth call this nondual substance Brahman, Paramātmā or Bhagavān." The Absolute Truth is ultimately understood as Bhagavān, partially understood as Paramātmā and vaguely understood as the impersonal Brahman. Bhagavān, or the Supreme Personality of Godhead, is opulent in all excellence; no one can be equal to or greater than Him. This is also confirmed in the *Bhagavad-gītā* [[bg/7/7|(Bg. 7.7)]], where the Lord says, *mattaḥ parataraṁ nānyat kiñcid asti dhanañjaya:* "O conqueror of wealth [Arjuna], there is no truth superior to Me." There are many other verses which prove that the Absolute Truth in the ultimate sense is understood to be the Supreme Personality of Godhead, Kṛṣṇa.
 
 ### CC Adi 7.112
-
-> তাঁহার বিভূতি, দেহ, — সব চিদাকার ।
-> চিদ্বিভূতি আচ্ছাদি’ তাঁরে কহে ‘নিরাকার’ ॥১১২॥
 
 > tāṅhāra vibhūti, deha,—saba cid-ākāra
 > cid-vibhūti ācchādi' tāṅre kahe 'nirākāra'
@@ -15744,9 +12383,6 @@ As stated in the *Śvetāśvatara Upaniṣad* (3.19), *apāṇi-pādo javano gra
 
 ### CC Adi 7.113
 
-> চিদানন্দ — তেঁহো, তাঁর স্থান, পরিবার ।
-> তাঁরে কহে — প্রাকৃত-সত্ত্বের বিকার ॥১১৩॥
-
 > cid-ānanda—teṅho, tāṅra sthāna, parivāra
 > tāṅre kahe—prākṛta-sattvera vikāra
 
@@ -15764,9 +12400,6 @@ The intelligence of those who think themselves liberated but have no information
 Śrī Caitanya Mahāprabhu, therefore, explains in this verse that Kṛṣṇa, the Supreme Personality of Godhead or the Absolute Truth, has a spiritual body that is distinct from material bodies, and thus His name, abode, entourage and qualities are all spiritual. The material mode of goodness has nothing to do with spiritual varieties. Māyāvādī philosophers, however, cannot clearly understand spiritual varieties; therefore they imagine a negation of the material world to be the spiritual world. The material qualities of goodness, passion and ignorance cannot act in the spiritual world, which is therefore called *nirguṇa,* as clearly indicated in the *Bhagavad-gītā* (*trai-guṇya-viṣayā vedā nistrai-guṇyo bhavārjuna*). The material world is a manifestation of the three modes of material nature, but one has to become free from these modes to come to the spiritual world, where their influence is completely absent. Now Lord Śrī Caitanya Mahāprabhu will disassociate Lord Śiva from Māyāvāda philosophy in the following verse.
 
 ### CC Adi 7.114
-
-> তাঁর দোষ নাহি, তেঁহো আজ্ঞাকারী দাস ।
-> আর যেই শুনে তার হয় সর্বনাশ ॥১১৪॥
 
 > tāṅra doṣa nāhi, teṅho ājñā-kārī dāsa
 > āra yei śune tāra haya sarva-nāśa
@@ -15799,9 +12432,6 @@ In actuality the Māyāvādī philosophers very strictly follow the austerities 
 
 ### CC Adi 7.115
 
-> প্রাকৃত করিয়া মানে বিষ্ণু-কলেবর ।
-> বিষ্ণুনিন্দা আর নাহি ইহার উপর ॥১১৫॥
-
 > prākṛta kariyā māne viṣṇu-kalevara
 > viṣṇu-nindā āra nāhi ihāra upara
 
@@ -15816,9 +12446,6 @@ Lord Viṣṇu cannot be placed within the category of the demigods. Those who a
 One who thinks that there is a difference between Lord Viṣṇu's body and His soul dwells in the darkest region of ignorance. There is no difference between Lord Viṣṇu's body and Viṣṇu's soul, for they are *advaya-jñāna,* one knowledge. In this world there is a difference between the material body and the spiritual soul, but in the spiritual world everything is spiritual, and there are no such differences. The greatest offense of the Māyāvādī philosophers is to consider Lord Viṣṇu and the living entities to be one and the same. In this connection the *Padma Purāṇa* states, *arcye viṣṇau śilā-dhir guruṣu nara-matir vaiṣṇave jāti-buddhiḥ:* "One who considers the *arcā-mūrti,* the worshipable Deity of Lord Viṣṇu, to be stone, the spiritual master to be an ordinary human being, and a Vaiṣṇava to belong to a particular caste or creed, is possessed of hellish intelligence." One who follows such conclusions is doomed.
 
 ### CC Adi 7.116
-
-> ঈশ্বরের তত্ত্ব — যেন জ্বলিত জ্বলন ।
-> জীবের স্বরূপ — যৈছে স্ফুলিঙ্গের কণ ॥১১৬॥
 
 > īśvarera tattva—yena jvalita jvalana
 > jīvera svarūpa—yaiche sphuliṅgera kaṇa
@@ -15842,9 +12469,6 @@ If the Personality of Godhead did not possess both limited and unlimited energie
 
 ### CC Adi 7.117
 
-> জীবতত্ত্ব — শক্তি, কৃষ্ণতত্ত্ব — শক্তিমান্ ।
-> গীতা-বিষ্ণুপুরাণাদি তাহাতে প্রমাণ ॥১১৭॥
-
 > jīva-tattva—śakti, kṛṣṇa-tattva—śaktimān
 > gītā-viṣṇupurāṇādi tāhāte pramāṇa
 
@@ -15856,9 +12480,6 @@ As already explained, there are three *prasthānas* on the path of advancement i
 
 ### CC Adi 7.118
 
-> অপরেয়মিতস্ত্বন্যাং প্রকৃতিং বিদ্ধি মে পরাম্ ।
-> জীবভূতাং মহাবাহো যয়েদং ধার্যতে জগৎ ॥১১৮॥
-
 > apareyam itas tv anyāṁ
 > prakṛtiṁ viddhi me parām
 > jīva-bhūtāṁ mahā-bāho
@@ -15866,7 +12487,7 @@ As already explained, there are three *prasthānas* on the path of advancement i
 
 *aparā*—inferior energy; *iyam*—this material world; *itaḥ*—beyond this; *tu*—but; *anyām*—another; *prakṛtim*—energy; *viddhi*—you must know; *me*—of Me; *parām*—which is superior energy; *jīva-bhūtām*—they are the living entities; *mahā-bāho*—O mighty-armed; *yayā*—by which; *idam*—this material world; *dhāryate*—is being conducted; *jagat*—the cosmic manifestation.
 
-**“ 'Besides these inferior nature, 0 mighty-armed Arjuna, there is another, superior energy of Mine, which is all living entities who are exploiting the resources of this material, inferior nature.'.'**
+**“ 'Besides the inferior nature, O mighty-armed Arjuna, there is a superior energy of Mine, which is all living entities who are struggling with material resources of this material, inferior nature.'.'**
 
 In the *Bhagavad-gītā* it is explained that the five elements earth, water, fire, air and ether constitute the gross energy of the Absolute Truth and that there are also three subtle energies, namely, the mind, intelligence and false ego, or identification with the phenomenal world. Thus the entire cosmic manifestation is divided into eight energies, all of which are inferior. As explained in the *Bhagavad-gītā* (*mama māyā duratyayā*), the inferior energy, known as *māyā,* is so strong that although the living entity does not belong to this energy, due to the superior strength of the inferior energy the living entity (*jīva-bhūta*) forgets his real position and identifies with it. Kṛṣṇa says distinctly that beyond the material energy there is a superior energy which is known as the *jīva-bhūta,* or living entities. When in contact with the material energy, this superior energy conducts all the activities of the entire material, phenomenal world.
 
@@ -15884,9 +12505,6 @@ Transcendental loving devotional service is the spiritual activity of the spirit
 One who engages in the spiritual activities of unalloyed devotional service (*avyabhicāriṇī-bhakti*) is immediately elevated to the transcendental platform, and he is to be considered *brahma-bhūta,* which indicates that he is no longer in the material world but in the spiritual world. Devotional service is enlightenment or awakening. When the living entity perfectly performs spiritual activities under the direction of the spiritual master, he becomes perfect in knowledge and understands that he is not God but a servant of God. As explained by Caitanya Mahāprabhu, *jīvera 'svarūpa' haya-kṛṣṇera 'nitya-dāsa':* the real identity of the living entity is that he is an eternal servant of the Supreme (Cc. Madhya 20.108). As long as one does not come to this conclusion, he must be in ignorance. This is also confirmed by the Lord in the *Bhagavad-gītā* [[bg/7/19|(Bg. 7.19)]]: *bahūnāṁ janmanām ante jñānavān māṁ prapadyate.* "After many births of struggling for existence and cultivating knowledge, when one comes to the point of real knowledge he surrenders unto Me." Such an advanced *mahātmā,* or great soul, is very rarely to be seen. Thus although the Māyāvādī philosophers appear to be very advanced in knowledge, they are not yet perfect. To come to the point of perfection they must voluntarily surrender to Kṛṣṇa.
 
 ### CC Adi 7.119
-
-> বিষ্ণুশক্তিঃ পরা প্রোক্তা ক্ষেত্রজ্ঞাখ্যা তথাপরা ।
-> অবিদ্যাকর্মসংজ্ঞান্যা তৃতীয়া শক্তিরিষ্যতে ॥১১৯॥
 
 > viṣṇu-śaktiḥ parā proktā
 > kṣetra-jñākhyā tathā parā
@@ -15938,9 +12556,6 @@ It is the statement of Cārvāka Muni that one should beg, borrow or steal money
 
 ### CC Adi 7.120
 
-> হেন জীবতত্ত্ব লঞা লিখি’ পরতত্ত্ব ।
-> আচ্ছন্ন করিল শ্রেষ্ঠ ঈশ্বর-মহত্ত্ব ॥১২০॥
-
 > hena jīva-tattva lañā likhi' para-tattva
 > ācchanna karila śreṣṭha īśvara-mahattva
 
@@ -15977,9 +12592,6 @@ Unfortunately, the Māyāvāda philosophy, misguiding people by claiming the liv
 
 ### CC Adi 7.121
 
-> ব্যাসের সূত্রেতে কহে ‘পরিণাম’-বাদ ।
-> ‘ব্যাস ভ্রান্ত’ — বলি’ তার উঠাইল বিবাদ ॥১২১॥
-
 > vyāsera sūtrete kahe 'pariṇāma'-vāda
 > 'vyāsa bhrānta'—bali' tāra uṭhāila vivāda
 
@@ -16011,9 +12623,6 @@ This *mantra* confirms that the entire cosmic manifestation emanates from the Ab
 
 ### CC Adi 7.122
 
-> পরিণাম-বাদে ঈশ্বর হয়েন বিকারী ।
-> এত কহি’ ‘বিবর্ত’-বাদ স্থাপনা যে করি ॥১২২॥
-
 > pariṇāma-vāde īśvara hayena vikārī
 > eta kahi' 'vivarta'-vāda sthāpanā ye kari
 
@@ -16029,9 +12638,6 @@ How the Supreme Personality of Godhead remains as He is, never changing, is expl
 
 ### CC Adi 7.123
 
-> বস্তুতঃ পরিণাম-বাদ — সেই সে প্রমাণ ।
-> দেহে আত্মবুদ্ধি — এই বিবর্তের স্থান ॥১২৩॥
-
 > vastutaḥ pariṇāma-vāda—sei se pramāṇa
 > dehe ātma-buddhi—ei vivartera sthāna
 
@@ -16043,9 +12649,6 @@ The *jīva,* or living entity, is a spiritual spark who is part of the Supreme P
 
 ### CC Adi 7.124
 
-> অবিচিন্ত্য-শক্তিযুক্ত শ্রীভগবান্ ।
-> ইচ্ছায় জগদ্রূপে পায় পরিণাম ॥১২৪॥
-
 > avicintya-śakti-yukta śrī-bhagavān
 > icchāya jagad-rūpe pāya pariṇāma
 
@@ -16054,9 +12657,6 @@ The *jīva,* or living entity, is a spiritual spark who is part of the Supreme P
 **"The Supreme Personality of Godhead is opulent in all respects. Therefore by His inconceivable energies He has transformed the material cosmic manifestation.**
 
 ### CC Adi 7.125
-
-> তথাপি অচিন্ত্যশক্ত্যে হয় অবিকারী ।
-> প্রাকৃত চিন্তামণি তাহে দৃষ্টান্ত যে ধরি ॥১২৫॥
 
 > tathāpi acintya-śaktye haya avikārī
 > prākṛta cintāmaṇi tāhe dṛṣṭānta ye dhari
@@ -16067,9 +12667,6 @@ The *jīva,* or living entity, is a spiritual spark who is part of the Supreme P
 
 ### CC Adi 7.126
 
-> নানা রত্নরাশি হয় চিন্তামণি হৈতে ।
-> তথাপিহ মণি রহে স্বরূপে অবিকৃতে ॥১২৬॥
-
 > nānā ratna-rāśi haya cintāmaṇi haite
 > tathāpiha maṇi rahe svarūpe avikṛte
 
@@ -16078,9 +12675,6 @@ The *jīva,* or living entity, is a spiritual spark who is part of the Supreme P
 **"Although a touchstone produces many varieties of valuable jewels, it nevertheless remains the same. It does not change its original form.**
 
 ### CC Adi 7.127
-
-> প্রাকৃত-বস্তুতে যদি অচিন্ত্যশক্তি হয় ।
-> ঈশ্বরের অচিন্ত্যশক্তি, — ইথে কি বিস্ময় ॥১২৭॥
 
 > prākṛta-vastute yadi acintya-śakti haya
 > īśvarera acintya-śakti,—ithe ki vismaya
@@ -16100,9 +12694,6 @@ Instead of wasting one's time falsely deriving such indirect meanings from the *
 "I meditate upon Him [Lord Śrī Kṛṣṇa], the transcendent reality, who is the primeval cause of all causes, from whom all manifested universes arise, in whom they dwell, and by whom they are destroyed. I meditate upon that eternally effulgent Lord, who is directly and indirectly conscious of all manifestations and yet is fully independent." The Supreme Personality of Godhead knows very well how to do everything perfectly. He is *abhijña,* always fully conscious. The Lord therefore says in the *Bhagavad-gītā* [[bg/7/26|(Bg. 7.26)]] that He knows everything, past, present and future, but that no one but a devotee knows Him as He is. Therefore, the Absolute Truth, the Personality of Godhead, is at least partially understood by devotees of the Lord, but the Māyāvādī philosophers, who unnecessarily speculate to understand the Absolute Truth, simply waste their time.
 
 ### CC Adi 7.128
-
-> ‘প্রণব’ সে মহাবাক্য — বেদের নিদান ।
-> ঈশ্বরস্বরূপ প্রণব সর্ববিশ্ব-ধাম ॥১২৮॥
 
 > 'praṇava' se mahāvākya—vedera nidāna
 > īśvara-svarūpa praṇava sarva-viśva-dhāma
@@ -16174,9 +12765,6 @@ Lord Śrī Caitanya Mahāprabhu has declared, *māyāvādi-bhāṣya śunile hay
 
 ### CC Adi 7.129
 
-> সর্বাশ্রয় ঈশ্বরের প্রণব উদ্দেশ ।
-> ‘তত্ত্বমসি’-বাক্য হয় বেদের একদেশ ॥১২৯॥
-
 > sarvāśraya īśvarera praṇava uddeśa
 > 'tat tvam asi'—vākya haya vedera ekadeśa
 
@@ -16187,9 +12775,6 @@ Lord Śrī Caitanya Mahāprabhu has declared, *māyāvādi-bhāṣya śunile hay
 *Tat tvam asi* means "you are the same spiritual identity."
 
 ### CC Adi 7.130
-
-> ‘প্রণব, মহাবাক্য — তাহা করি’ আচ্ছাদন ।
-> মহাবাক্যে করি ‘তত্ত্বমসি’র স্থাপন ॥১৩০॥
 
 > 'praṇava, mahā-vākya—tāhā kari' ācchādana
 > mahāvākye kari 'tat tvam asi'ra sthāpana
@@ -16209,9 +12794,6 @@ The Māyāvādī philosophers stress the statements *tat tvam asi, so 'ham,* etc
 
 ### CC Adi 7.131
 
-> সর্ববেদসূত্রে করে কৃষ্ণের অভিধান ।
-> মুখ্যবৃত্তি ছাড়ি’ কৈল লক্ষণা-ব্যাখ্যান ॥১৩১॥
-
 > sarva-veda-sūtre kare kṛṣṇera abhidhāna
 > mukhya-vṛtti chāḍi' kaila lakṣaṇā-vyākhyāna
 
@@ -16230,9 +12812,6 @@ In the Vedic literature, including the *Rāmāyaṇa, Purāṇas* and *Mahābhā
 
 ### CC Adi 7.132
 
-> স্বতঃপ্রমাণ বেদ প্রমাণ-শিরোমণি ।
-> লক্ষণা করিলে স্বতঃপ্রমাণতা-হানি ॥১৩২॥
-
 > svataḥ-pramāṇa veda—pramāṇa-śiromaṇi
 > lakṣaṇā karile svataḥ-pramāṇatā-hāni
 
@@ -16243,9 +12822,6 @@ In the Vedic literature, including the *Rāmāyaṇa, Purāṇas* and *Mahābhā
 We quote Vedic evidence to support our statements, but if we interpret it according to our own judgment, the authority of the Vedic literature is rendered imperfect or useless. In other words, by interpreting the Vedic version one minimizes the value of Vedic evidence. When one quotes from Vedic literature, it is understood that the quotations are authoritative. How can one bring the authority under his own control? That is a case of *principiis obsta.*
 
 ### CC Adi 7.133
-
-> এই মত প্রতিসূত্রে সহজার্থ ছাড়িয়া ।
-> গৌণার্থ ব্যাখ্যা করে কল্পনা করিয়া ॥১৩৩॥
 
 > ei mata pratisūtre sahajārtha chāḍiyā
 > gauṇārtha vyākhyā kare kalpanā kariyā
@@ -16258,9 +12834,6 @@ Unfortunately, the Śaṅkarite interpretation has covered almost the entire wor
 
 ### CC Adi 7.134
 
-> এই মতে প্রতিসূত্রে করেন দূষণ ।
-> শুনি’ চমৎকার হৈল সন্ন্যাসীর গণ ॥১৩৪॥
-
 > ei mate pratisūtre karena dūṣaṇa
 > śuni' camatkāra haila sannyāsīra gaṇa
 
@@ -16269,9 +12842,6 @@ Unfortunately, the Śaṅkarite interpretation has covered almost the entire wor
 **When Śrī Caitanya Mahāprabhu thus showed for each and every sūtra the defects in Śaṅkarācārya's explanations, all the assembled Māyāvādī sannyāsīs were struck with wonder.**
 
 ### CC Adi 7.135
-
-> সকল সন্ন্যাসী কহে, — ‘শুনহ শ্রীপাদ ।
-> তুমি যে খণ্ডিলে অর্থ, এ নহে বিবাদ ॥১৩৫॥
 
 > sakala sannyāsī kahe,—'śunaha śrīpāda
 > tumi ye khaṇḍile artha, e nahe vivāda
@@ -16282,9 +12852,6 @@ Unfortunately, the Śaṅkarite interpretation has covered almost the entire wor
 
 ### CC Adi 7.136
 
-> আচার্য-কল্পিত অর্থ, — ইহা সভে জানি ।
-> সম্প্রদায়-অনুরোধে তবু তাহা মানি ॥১৩৬॥
-
 > ācārya-kalpita artha,—ihā sabhe jāni
 > sampradāya-anurodhe tabu tāhā māni
 
@@ -16294,9 +12861,6 @@ Unfortunately, the Śaṅkarite interpretation has covered almost the entire wor
 
 ### CC Adi 7.137
 
-> মুখ্যার্থ ব্যাখ্যা কর, দেখি তোমার বল ।’
-> মুখ্যার্থে লাগাল প্রভু সূত্রসকল ॥১৩৭॥
-
 > mukhyārtha vyākhyā kara, dekhi tomāra bala'
 > mukhyārthe lāgāla prabhu sūtra-sakala
 
@@ -16305,9 +12869,6 @@ Unfortunately, the Śaṅkarite interpretation has covered almost the entire wor
 **"Now let us see," the Māyāvādī sannyāsīs continued, "how well You can describe the sūtras in terms of their direct meaning." Hearing this, Lord Caitanya Mahāprabhu began His direct explanation of the Vedānta-sūtra.**
 
 ### CC Adi 7.138
-
-> বৃহদ্বস্তু ‘ব্রহ্ম’ কহি — ‘শ্রীভগবান্’ ।
-> ষড়্বিধৈশ্বর্যপূর্ণ, পরতত্ত্বধাম ॥১৩৮॥
 
 > bṛhad-vastu 'brahma' kahi—'śrī-bhagavān'
 > ṣaḍ-vidhaiśvarya-pūrṇa, para-tattva-dhāma
@@ -16320,9 +12881,6 @@ In *Śrīmad-Bhāgavatam* it is said that the Absolute Truth is understood in th
 
 ### CC Adi 7.139
 
-> স্বরূপ-ঐশ্বর্যে তাঁর নাহি মায়াগন্ধ ।
-> সকল বেদের হয় ভগবান্ সে ‘সম্বন্ধ’ ॥১৩৯॥
-
 > svarūpa-aiśvarye tāṅra nāhi māyā-gandha
 > sakala vedera haya bhagavān se 'sambandha'
 
@@ -16331,9 +12889,6 @@ In *Śrīmad-Bhāgavatam* it is said that the Absolute Truth is understood in th
 **"In His original form the Supreme Personality of Godhead is full of transcendental opulences, which are free from the contamination of the material world. It is to be understood that in all Vedic literature the Supreme Personality of Godhead is the ultimate goal.**
 
 ### CC Adi 7.140
-
-> তাঁরে ‘নির্বিশেষ’ কহি, চিচ্ছক্তি না মানি ।
-> অর্ধ স্বরূপ না মানিলে পূর্ণতা হয় হানি ॥১৪০॥
 
 > tāṅre 'nirviśeṣa' kahi, cic-chakti nā māni
 > ardha-svarūpa nā mānile pūrṇatā haya hāni
@@ -16357,9 +12912,6 @@ Partial realization of the Absolute Truth as impersonal Brahman denies the compl
 
 ### CC Adi 7.141
 
-> ভগবান্-প্রাপ্তিহেতু যে করি উপায় ।
-> শ্রবণাদি ভক্তি — কৃষ্ণ-প্রাপ্তির সহায় ॥১৪১॥
-
 > bhagavān-prāpti-hetu ye kari upāya
 > śravaṇādi bhakti—kṛṣṇa-prāptira sahāya
 
@@ -16379,9 +12931,6 @@ One can directly approach the Supreme Personality of Godhead simply by executing
 
 ### CC Adi 7.142
 
-> সেই সর্ববেদের ‘অভিধেয়’ নাম ।
-> সাধনভক্তি হৈতে হয় প্রেমের উদ্গম ॥১৪২॥
-
 > sei sarva-vedera 'abhidheya' nāma
 > sādhana-bhakti haite haya premera udgama
 
@@ -16400,9 +12949,6 @@ By the practice of devotional service, beginning with hearing and chanting, the 
 
 ### CC Adi 7.143
 
-> কৃষ্ণের চরণে হয় যদি অনুরাগ ।
-> কৃষ্ণ বিনু অন্যত্র তার নাহি রহে রাগ ॥১৪৩॥
-
 > kṛṣṇera caraṇe haya yadi anurāga
 > kṛṣṇa vinu anyatra tāra nāhi rahe rāga
 
@@ -16413,9 +12959,6 @@ By the practice of devotional service, beginning with hearing and chanting, the 
 This is a test of advancement in devotional service. As stated in *Śrīmad-Bhāgavatam* (11.2.42), *bhaktir pareśānubhavo viraktir anyatra ca:* in *bhakti,* a devotee's only attachment is Kṛṣṇa; he no longer wants to maintain his attachments to many other things. Although Māyāvādī philosophers are supposed to be very advanced on the path of liberation, we see that after some time they descend to politics and philanthropic activities. Many big *sannyāsīs* who were supposedly liberated and very advanced have come down again to materialistic activities, although they left this world as *mithyā* (false). When a devotee develops in devotional service, however, he no longer has attachments to such philanthropic activities. He is simply inspired to serve the Lord, and he engages his entire life in such service. This is the difference between Vaiṣṇava and Māyāvādī philosophers. Devotional service, therefore, is practical, whereas Māyāvāda philosophy is merely mental speculation.
 
 ### CC Adi 7.144
-
-> পঞ্চম পুরুষার্থ সেই প্রেম-মহাধন ।
-> কৃষ্ণের মাধুর্য-রস করায় আস্বাদন ॥১৪৪॥
 
 > pañcama puruṣārtha sei prema-mahādhana
 > kṛṣṇera mādhurya-rasa karāya āsvādana
@@ -16435,9 +12978,6 @@ The most elevated Māyāvādī philosopher can rise to the platform of liberatio
 
 ### CC Adi 7.145
 
-> প্রেমা হৈতে কৃষ্ণ হয় নিজ ভক্তবশ ।
-> প্রেমা হৈতে পায় কৃষ্ণের সেবা-সুখরস ॥১৪৫॥
-
 > premā haite kṛṣṇa haya nija bhakta-vaśa
 > premā haite pāya kṛṣṇera sevā-sukha-rasa
 
@@ -16448,9 +12988,6 @@ The most elevated Māyāvādī philosopher can rise to the platform of liberatio
 Becoming one with the Supreme Personality of Godhead is not very important for a devotee. *Muktiḥ svayaṁ mukulitāñjali sevate 'smān* (*Kṛṣṇa-karṇāmṛta* 107). Speaking from his actual experience, Śrīla Bilvamaṅgala Ṭhākura says that if one develops love of Godhead, *mukti* (liberation) becomes subservient and unimportant to him. *Mukti* stands before the devotee and is prepared to render all kinds of services. The Māyāvādī philosophers' standard of *mukti* is very insignificant for a devotee, for by devotional service even the Supreme Personality of Godhead becomes subordinate to him. An actual example is that the Supreme Lord Kṛṣṇa became the chariot driver of Arjuna, and when Arjuna asked Him to draw his chariot between the two armies (*senayor ubhayor madhye rathaṁ sthāpaya me 'cyuta*), Kṛṣṇa executed his order. Such is the relationship between the Supreme Lord and a devotee that although the Lord is greater than the greatest, He is prepared to render service to the insignificant devotee by dint of his sincere and unalloyed devotional service.
 
 ### CC Adi 7.146
-
-> সম্বন্ধ, অভিধেয়, প্রয়োজন নাম ।
-> এই তিন অর্থ সর্বসূত্রে পর্যবসান ॥১৪৬॥
 
 > sambandha, abhidheya, prayojana nāma
 > ei tina artha sarva-sūtre paryavasāna
@@ -16475,9 +13012,6 @@ One may be a very learned scholar and execute his prescribed duty very nicely, b
 
 ### CC Adi 7.147
 
-> এইমত সর্বসূত্রের ব্যাখ্যান শুনিয়া ।
-> সকল সন্ন্যাসী কহে বিনয় করিয়া ॥১৪৭॥
-
 > ei-mata sarva-sūtrera vyākhyāna śuniyā
 > sakala sannyāsī kahe vinaya kariyā
 
@@ -16488,9 +13022,6 @@ One may be a very learned scholar and execute his prescribed duty very nicely, b
 Everyone who actually desires to understand the Vedānta philosophy must certainly accept the explanation of Lord Caitanya Mahāprabhu or the Vaiṣṇava *ācāryas* who have also commented on the *Vedānta-sūtra* according to the principles of *bhakti-yoga.* After hearing the explanation of the *Vedānta-sūtra* from Śrī Caitanya Mahāprabhu, all the *sannyāsīs,* headed by Prakāśānanda Sarasvatī, became very humble and obedient to the Lord, and they spoke as follows.
 
 ### CC Adi 7.148
-
-> বেদময়-মূর্তি তুমি, — সাক্ষাৎ নারায়ণ ।
-> ক্ষম অপরাধ, — পূর্বে যে কৈলুঁ নিন্দন ॥১৪৮॥
 
 > vedamaya-mūrti tumi,—sākṣāt nārāyaṇa
 > kṣama aparādha,—pūrve ye kailuṅ nindana
@@ -16503,9 +13034,6 @@ The complete path of *bhakti-yoga* is based upon the process of becoming humble 
 
 ### CC Adi 7.149
 
-> সেই হৈতে সন্ন্যাসীর ফিরি গেল মন ।
-> ‘কৃষ্ণ’ ‘কৃষ্ণ’ নাম সদা করয়ে গ্রহণ ॥১৪৯॥
-
 > sei haite sannyāsīra phiri gela mana
 > 'kṛṣṇa' 'kṛṣṇa' nāma sadā karaye grahaṇa
 
@@ -16516,9 +13044,6 @@ The complete path of *bhakti-yoga* is based upon the process of becoming humble 
 In this connection it may be mentioned that sometimes the *sahajiyā* class of devotees opine that Prakāśānanda Sarasvatī and Prabodhānanda Sarasvatī are the same man. Prabodhānanda Sarasvatī was a great Vaiṣṇava devotee of Lord Caitanya Mahāprabhu, but Prakāśānanda Sarasvatī, the head of the Māyāvādī *sannyāsīs* in Benares, was a different person. Prabodhānanda Sarasvatī belonged to the Rāmānuja-sampradāya, whereas Prakāśānanda Sarasvatī belonged to the Śaṅkarācārya-sampradāya. Prabodhānanda Sarasvatī wrote a number of books, among which are the *Caitanya-candrāmṛta, Rādhā-rasa-sudhā-nidhi, Saṅgīta-mādhava, Vṛndāvana-śataka* and *Navadvīpa-śataka.* While traveling in southern India, Caitanya Mahāprabhu met Prabodhānanda Sarasvatī, who had two brothers, Veṅkaṭa Bhaṭṭa and Tirumalaya Bhaṭṭa, who were Vaiṣṇavas of the Rāmānuja-sampradāya. Gopāla Bhaṭṭa Gosvāmī was the nephew of Prabodhānanda Sarasvatī. From historical records it is found that Śrī Caitanya Mahāprabhu traveled in South India in the year 1433 *śakābda* (A.D. 1511) during the Cāturmāsya period, and it was at that time that He met Prabodhānanda, who belonged to the Rāmānuja-sampradāya. How then could the same person meet Him as a member of the Śaṅkara-sampradāya in 1435 *śakābda,* two years later? It is to be concluded that the guess of the *sahijiyā-sampradāya* that Prabodhānanda Sarasvatī and Prakāśānanda Sarasvatī were the same man is a mistaken idea.
 
 ### CC Adi 7.150
-
-> এইমতে তাঁ-সবার ক্ষমি’ অপরাধ ।
-> সবাকারে কৃষ্ণ নাম করিলা প্রসাদ ॥১৫০॥
 
 > ei-mate tāṅ-sabāra kṣami' aparādha
 > sabākāre kṛṣṇa-nāma karilā prasāda
@@ -16531,9 +13056,6 @@ In this connection it may be mentioned that sometimes the *sahajiyā* class of d
 
 ### CC Adi 7.151
 
-> তবে সব সন্ন্যাসী মহাপ্রভুকে লৈয়া ।
-> ভিক্ষা করিলেন সভে, মধ্যে বসাইয়া ॥১৫১॥
-
 > tabe saba sannyāsī mahāprabhuke laiyā
 > bhikṣā karilena sabhe, madhye vasāiyā
 
@@ -16545,9 +13067,6 @@ Previously Śrī Caitanya Mahāprabhu neither mixed nor talked with the Māyāv�
 
 ### CC Adi 7.152
 
-> ভিক্ষা করি’ মহাপ্রভু আইলা বাসাঘর ।
-> হেন চিত্র-লীলা করে গৌরাঙ্গ-সুন্দর ॥১৫২॥
-
 > bhikṣā kari' mahāprabhu āilā vāsāghara
 > hena citra-līlā kare gaurāṅga-sundara
 
@@ -16556,9 +13075,6 @@ Previously Śrī Caitanya Mahāprabhu neither mixed nor talked with the Māyāv�
 **After taking lunch among the Māyāvādī sannyāsīs, Śrī Caitanya Mahāprabhu, who is known as Gaurasundara, returned to His residence. Thus the Lord performs His wonderful pastimes.**
 
 ### CC Adi 7.153
-
-> চন্দ্রশেখর, তপন মিশ্র, আর সনাতন ।
-> শুনি’ দেখি’ আনন্দিত সবাকার মন ॥১৫৩॥
 
 > candraśekhara, tapana miśra, āra sanātana
 > śuni' dekhi' ānandita sabākāra mana
@@ -16571,9 +13087,6 @@ Here is an example of how a *sannyāsī* should preach. When Śrī Caitanya Mah�
 
 ### CC Adi 7.154
 
-> প্রভুকে দেখিতে আইসে সকল সন্ন্যাসী ।
-> প্রভুর প্রশংসা করে সব বারাণসী ॥১৫৪॥
-
 > prabhuke dekhite āise sakala sannyāsī
 > prabhura praśaṁsā kare saba vārāṇasī
 
@@ -16582,9 +13095,6 @@ Here is an example of how a *sannyāsī* should preach. When Śrī Caitanya Mah�
 **Many Māyāvādī sannyāsīs of Vārāṇasī came to see the Lord after this incident, and the entire city praised Him.**
 
 ### CC Adi 7.155
-
-> বারাণসীপুরী আইলা শ্রীকৃষ্ণচৈতন্য ।
-> পুরীসহ সর্বলোক হৈল মহাধন্য ॥১৫৫॥
 
 > vārāṇasī-purī āilā śrī-kṛṣṇa-caitanya
 > purī-saha sarva-loka haila mahā-dhanya
@@ -16595,9 +13105,6 @@ Here is an example of how a *sannyāsī* should preach. When Śrī Caitanya Mah�
 
 ### CC Adi 7.156
 
-> লক্ষ লক্ষ লোক আইসে প্রভুকে দেখিতে ।
-> মহাভিড় হৈল দ্বারে, নারে প্রবেশিতে ॥১৫৬॥
-
 > lakṣa lakṣa loka āise prabhuke dekhite
 > mahā-bhiḍa haila dvāre, nāre praveśite
 
@@ -16606,9 +13113,6 @@ Here is an example of how a *sannyāsī* should preach. When Śrī Caitanya Mah�
 **The crowd at the door of His residence was so great that it numbered hundreds and thousands.**
 
 ### CC Adi 7.157
-
-> প্রভু যবে যা’ন বিশ্বেশ্বর-দরশনে ।
-> লক্ষ লক্ষ লোক আসি’ মিলে সেই স্থানে ॥১৫৭॥
 
 > prabhu yabe yā'na viśveśvara-daraśane
 > lakṣa lakṣa loka āsi' mile sei sthāne
@@ -16662,9 +13166,6 @@ We must offer proper respects to all the demigods. If one can offer respects eve
 
 ### CC Adi 7.158
 
-> স্নান করিতে যবে যা’ন গঙ্গাতীরে ।
-> তাহাঞি সকল লোক হয় মহাভিড়ে ॥১৫৮॥
-
 > snāna karite yabe yā'na gaṅgā-tīre
 > tāhāñi sakala loka haya mahā-bhiḍe
 
@@ -16674,9 +13175,6 @@ We must offer proper respects to all the demigods. If one can offer respects eve
 
 ### CC Adi 7.159
 
-> বাহু তুলি’ প্রভু বলে, — বল হরি হরি ।
-> হরিধ্বনি করে লোক স্বর্গমর্ত্য ভরি’ ॥১৫৯॥
-
 > bāhu tuli' prabhu bale,—bala hari hari
 > hari-dhvani kare loka svarga-martya bhari'
 
@@ -16685,9 +13183,6 @@ We must offer proper respects to all the demigods. If one can offer respects eve
 **Whenever the crowds were too great, Śrī Caitanya Mahāprabhu stood up, raised His hands and chanted, "Hari! Hari!" to which all the people responded, filling both the land and sky with the vibration.**
 
 ### CC Adi 7.160
-
-> লোক নিস্তারিয়া প্রভুর চলিতে হৈল মন ।
-> বৃন্দাবনে পাঠাইলা শ্রীসনাতন ॥১৬০॥
 
 > loka nistāriyā prabhura calite haila mana
 > vṛndāvane pāṭhāilā śrī-sanātana
@@ -16700,9 +13195,6 @@ The actual purpose of Lord Caitanya's stay at Vārāṇasī after coming back fr
 
 ### CC Adi 7.161
 
-> রাত্রি-দিবসে লোকের শুনি’ কোলাহল ।
-> বারাণসী ছাড়ি’ প্রভু আইলা নীলাচল ॥১৬১॥
-
 > rātri-divase lokera śuni' kolāhala
 > vārāṇasī chāḍi' prabhu āilā nīlācala
 
@@ -16712,9 +13204,6 @@ The actual purpose of Lord Caitanya's stay at Vārāṇasī after coming back fr
 
 ### CC Adi 7.162
 
-> এই লীলা কহিব আগে বিস্তার করিয়া ।
-> সংক্ষেপে কহিলাঙ ইহাঁ প্রসঙ্গ পাইয়া ॥১৬২॥
-
 > ei līlā kahiba āge vistāra kariyā
 > saṅkṣepe kahilāṅ ihāṅ prasaṅga pāiyā
 
@@ -16723,9 +13212,6 @@ The actual purpose of Lord Caitanya's stay at Vārāṇasī after coming back fr
 **I have here given a brief account of these pastimes of Lord Caitanya, but later I shall describe them in an extensive way.**
 
 ### CC Adi 7.163
-
-> এই পঞ্চতত্ত্বরূপে শ্রীকৃষ্ণচৈতন্য ।
-> কৃষ্ণ-নাম-প্রেম দিয়া বিশ্ব কৈলা ধন্য ॥১৬৩॥
 
 > ei pañca-tattva-rūpe śrī-kṛṣṇa-caitanya
 > kṛṣṇa-nāma-prema diyā viśva kailā dhanya
@@ -16738,9 +13224,6 @@ Here it is said that Lord Caitanya made the entire universe thankful to Him for 
 
 ### CC Adi 7.164
 
-> মথুরাতে পাঠাইল রূপ-সনাতন ।
-> দুই সেনাপতি কৈল ভক্তি প্রচারণ ॥১৬৪॥
-
 > mathurāte pāṭhāila rūpa-sanātana
 > dui senā-pati kaila bhakti pracāraṇa
 
@@ -16751,9 +13234,6 @@ Here it is said that Lord Caitanya made the entire universe thankful to Him for 
 When Rūpa Gosvāmī and Sanātana Gosvāmī went to Vṛndāvana, there was not a single temple, but by their preaching they were gradually able to construct various temples. Sanātana Gosvāmī constructed the Madana-mohana temple, and Rūpa Gosvāmī constructed the Govindajī temple. Similarly, their nephew Jīva Gosvāmī constructed the Rādhā-Dāmodara temple, Śrī Gopāla Bhaṭṭa Gosvāmī constructed the Rādhā-ramaṇa temple, Śrī Lokanātha Gosvāmī constructed the Gokulānanda temple, and Śyāmānanda Gosvāmī constructed the Śyāmasundara temple. In this way, many temples were gradually constructed. For preaching, construction of temples is also necessary. The Gosvāmīs not only engaged in writing books but also constructed temples because both are needed for preaching work. Śrī Caitanya Mahāprabhu wanted the cult of His *saṅkīrtana* movement to spread all over the world. Now that the International Society for Krishna Consciousness has taken up this task of preaching the cult of Lord Caitanya, its members should not only construct temples in every town and village of the globe but also distribute books that have already been written and further increase the number of books. Both distribution of books and construction of temples must continue side by side in parallel lines.
 
 ### CC Adi 7.165
-
-> নিত্যানন্দ-গোসাঞে পাঠাইলা গৌড়দেশে ।
-> তেঁহো ভক্তি প্রচারিলা অশেষ-বিশেষে ॥১৬৫॥
 
 > nityānanda-gosāñe pāṭhāilā gauḍa-deśe
 > teṅho bhakti pracārilā aśeṣa-viśeṣe
@@ -16766,9 +13246,6 @@ The name of Lord Nityānanda is very famous in Bengal. Of course, anyone who kno
 
 ### CC Adi 7.166
 
-> আপনে দক্ষিণ দেশ করিলা গমন ।
-> গ্রামে গ্রামে কৈলা কৃষ্ণনাম প্রচারণ ॥১৬৬॥
-
 > āpane dakṣiṇa deśa karilā gamana
 > grāme grāme kailā kṛṣṇa-nāma pracāraṇa
 
@@ -16778,9 +13255,6 @@ The name of Lord Nityānanda is very famous in Bengal. Of course, anyone who kno
 
 ### CC Adi 7.167
 
-> সেতুবন্ধ পর্যন্ত কৈলা ভক্তির প্রচার ।
-> কৃষ্ণপ্রেম দিয়া কৈলা সবার নিস্তার ॥১৬৭॥
-
 > setubandha paryanta kailā bhaktira pracāra
 > kṛṣṇa-prema diyā kailā sabāra nistāra
 
@@ -16789,9 +13263,6 @@ The name of Lord Nityānanda is very famous in Bengal. Of course, anyone who kno
 **Thus the Lord went to the southernmost tip of the Indian peninsula, known as Setubandha [Cape Comorin]. Everywhere He distributed the bhakti cult and love of Kṛṣṇa, and in this way He delivered everyone.**
 
 ### CC Adi 7.168
-
-> এই ত’ কহিল পঞ্চতত্ত্বের ব্যাখ্যান ।
-> ইহার শ্রবণে হয় চৈতন্যতত্ত্ব-জ্ঞান ॥১৬৮॥
 
 > ei ta' kahila pañca-tattvera vyākhyāna
 > ihāra śravaṇe haya caitanya-tattva jñāna
@@ -16804,9 +13275,6 @@ The Pañca-tattva is a very important factor in understanding Śrī Caitanya Mah
 
 ### CC Adi 7.169
 
-> শ্রীচৈতন্য, নিত্যানন্দ, অদ্বৈত, — তিন জন ।
-> শ্রীবাস-গদাধর-আদি যত ভক্তগণ ॥১৬৯॥
-
 > śrī-caitanya, nityānanda, advaita,—tina jana
 > śrīvāsa-gadādhara-ādi yata bhakta-gaṇa
 
@@ -16816,9 +13284,6 @@ The Pañca-tattva is a very important factor in understanding Śrī Caitanya Mah
 
 ### CC Adi 7.170
 
-> সবাকার পাদপদ্মে কোটি নমস্কার ।
-> যৈছে তৈছে কহি কিছু চৈতন্য-বিহার ॥১৭০॥
-
 > sabākāra pādapadme koṭi namaskāra
 > yaiche taiche kahi kichu caitanya-vihāra
 
@@ -16827,9 +13292,6 @@ The Pañca-tattva is a very important factor in understanding Śrī Caitanya Mah
 **I again and again offer obeisances unto the Pañca-tattva. Thus I think that I will be able to describe something about the pastimes of Lord Caitanya Mahāprabhu.**
 
 ### CC Adi 7.171
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥১৭১॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -16846,9 +13308,6 @@ The Pañca-tattva is a very important factor in understanding Śrī Caitanya Mah
 
 ### CC Adi 8.1
 
-> বন্দে চৈতন্যদেবং তং ভগবন্তং যদিচ্ছয়া ।
-> প্রসভং নর্ত্যতে চিত্রং লেখরঙ্গে জড়োঽপ্যয়ম্ ॥১॥
-
 > vande caitanya-devaṁ taṁ
 > bhagavantaṁ yad-icchayā
 > prasabhaṁ nartyate citraṁ
@@ -16860,9 +13319,6 @@ The Pañca-tattva is a very important factor in understanding Śrī Caitanya Mah
 
 ### CC Adi 8.2
 
-> জয় জয় শ্রীকৃষ্ণচৈতন্য গৌরচন্দ্র ।
-> জয় জয় পরমানন্দ জয় নিত্যানন্দ ॥২॥
-
 > jaya jaya śrī-kṛṣṇa-caitanya gauracandra
 > jaya jaya paramānanda jaya nityānanda
 
@@ -16872,9 +13328,6 @@ The Pañca-tattva is a very important factor in understanding Śrī Caitanya Mah
 
 ### CC Adi 8.3
 
-> জয় জয়াদ্বৈত আচার্য কৃপাময় ।
-> জয় জয় গদাধর পণ্ডিত মহাশয় ॥৩॥
-
 > jaya jayādvaita ācārya kṛpāmaya
 > jaya jaya gadādhara paṇḍita mahāśaya
 
@@ -16883,9 +13336,6 @@ The Pañca-tattva is a very important factor in understanding Śrī Caitanya Mah
 **Let me offer my respectful obeisances unto Advaita Ācārya, who is very merciful, and also to that great personality Gadādhara Paṇḍita, the learned scholar.**
 
 ### CC Adi 8.4
-
-> জয় জয় শ্রীবাসাদি যত ভক্তগণ ।
-> প্রণত হইয়া বন্দোঁ সবার চরণ ॥৪॥
 
 > jaya jaya śrīvāsādi yata bhakta-gaṇa
 > praṇata ha-iyā vandoṅ sabāra caraṇa
@@ -16898,9 +13348,6 @@ Kṛṣṇadāsa Kavirāja Gosvāmī teaches us first to offer respect to the Pa
 
 ### CC Adi 8.5
 
-> মূক কবিত্ব করে যাঁ-সবার স্মরণে ।
-> পঙ্গু গিরি লঙ্ঘে, অন্ধ দেখে তারাগণে ॥৫॥
-
 > mūka kavitva kare yāṅ-sabāra smaraṇe
 > paṅgu giri laṅghe, andha dekhe tārā-gaṇe
 
@@ -16912,9 +13359,6 @@ In Vaiṣṇava philosophy there are three ways for perfection-namely, *sādhana
 
 ### CC Adi 8.6
 
-> এ-সব না মানে যেই পণ্ডিত সকল ।
-> তা-সবার বিদ্যাপাঠ ভেক-কোলাহল ॥৬॥
-
 > e-saba nā māne yei paṇḍita sakala
 > tā-sabāra vidyā-pāṭha bheka-kolāhala
 
@@ -16925,9 +13369,6 @@ In Vaiṣṇava philosophy there are three ways for perfection-namely, *sādhana
 The croaking of the frogs in the rainy season resounds very loudly in the forest, with the result that snakes, hearing the croaking in the darkness, approach the frogs and swallow them. Similarly, the so-called educational vibrations of the tongues of university professors who do not have spiritual knowledge is like the croaking of frogs.
 
 ### CC Adi 8.7
-
-> এই সব না মানে যেবা করে কৃষ্ণভক্তি ।
-> কৃষ্ণ-কৃপা নাহি তারে, নাহি তার গতি ॥৭॥
 
 > ei saba nā māne yebā kare kṛṣṇa-bhakti
 > kṛṣṇa-kṛpā nāhi tāre, nāhi tāra gati
@@ -16945,9 +13386,6 @@ If one is seriously interested in Kṛṣṇa conscious activities, he must be r
 
 ### CC Adi 8.8
 
-> পূর্বে যৈছে জরাসন্ধ-আদি রাজগণ ।
-> বেদ-ধর্ম করি’ করে বিষ্ণুর পূজন ॥৮॥
-
 > pūrve yaiche jarāsandha-ādi rāja-gaṇa
 > veda-dharma kari' kare viṣṇura pūjana
 
@@ -16958,9 +13396,6 @@ If one is seriously interested in Kṛṣṇa conscious activities, he must be r
 In these verses the author of *Śrī Caitanya-caritāmṛta,* Kṛṣṇadāsa Kavirāja Gosvāmī, is very seriously stressing the importance of worship of the Pañca-tattva. If one becomes a devotee of Gaurasundara or Kṛṣṇa but does not give importance to the Pañca-tattva (*śrī-kṛṣṇa-caitanya prabhu-nityānanda śrī-advaita gadādhara śrīvāsādi-gaura-bhakta-vṛnda*), his activities are considered to be offenses, or, in the words of Śrīla Rūpa Gosvāmī, *utpāta* (disturbances). One must therefore be ready to offer due respects to the Pañca-tattva before becoming a devotee of Lord Gaurasundara or of Śrī Kṛṣṇa, the Supreme Personality of Godhead.
 
 ### CC Adi 8.9
-
-> কৃষ্ণ নাহি মানে, তাতে দৈত্য করি’ মানি ।
-> চৈতন্য না মানিলে তৈছে দৈত্য তারে জানি ॥৯॥
 
 > kṛṣṇa nāhi māne, tāte daitya kari' māni
 > caitanya nā mānile taiche daitya tāre jāni
@@ -16973,9 +13408,6 @@ Formerly there were kings like Jarāsandha who strictly followed the Vedic ritua
 
 ### CC Adi 8.10
 
-> মোরে না মানিলে সব লোক হবে নাশ ।
-> ইথি লাগি’ কৃপার্দ্র প্রভু করিল সন্ন্যাস ॥১০॥
-
 > more nā mānile saba loka habe nāśa
 > ithi lāgi' kṛpārdra prabhu karila sannyāsa
 
@@ -16986,9 +13418,6 @@ Formerly there were kings like Jarāsandha who strictly followed the Vedic ritua
 In *Śrīmad-Bhāgavatam* (12.3.51) it is said, *kīrtanād eva kṛṣṇasya mukta-saṅgaḥ paraṁ vrajet:* "Simply by chanting the Hare Kṛṣṇa *mantra,* or Lord Kṛṣṇa's name, one is liberated and goes back home, back to Godhead." This Kṛṣṇa consciousness must be achieved through the mercy of Lord Caitanya Mahāprabhu. One cannot be complete in Kṛṣṇa consciousness unless he accepts Śrī Caitanya Mahāprabhu and His associates as the only means for success. It is because of these considerations that the Lord accepted *sannyāsa,* for thus people would offer Him respect and very quickly come to the platform of Kṛṣṇa consciousness. Since Lord Caitanya Mahāprabhu, who is Kṛṣṇa Himself, inaugurated the Kṛṣṇa consciousness movement, without His mercy one cannot be elevated to the transcendental platform of Kṛṣṇa consciousness.
 
 ### CC Adi 8.11
-
-> সন্ন্যাসি-বুদ্ধ্যে মোরে করিবে নমস্কার ।
-> তথাপি খণ্ডিবে দুঃখ, পাইবে নিস্তার ॥১১॥
 
 > sannyāsi-buddhye more karibe namaskāra
 > tathāpi khaṇḍibe duḥkha, pāibe nistāra
@@ -17008,9 +13437,6 @@ Kṛṣṇa is so merciful that He always thinks of how to liberate the conditio
 
 ### CC Adi 8.12
 
-> হেন কৃপাময় চৈতন্য না ভজে যেই জন ।
-> সর্বোত্তম হইলেও তারে অসুরে গণন ॥১২॥
-
 > hena kṛpāmaya caitanya nā bhaje yei jana
 > sarvottama ha-ileo tāre asure gaṇana
 
@@ -17021,9 +13447,6 @@ Kṛṣṇa is so merciful that He always thinks of how to liberate the conditio
 Śrīla Bhaktisiddhānta Sarasvatī Mahārāja says in this connection: "O living entities, simply engage yourselves in Kṛṣṇa consciousness. This is the message of Śrī Caitanya Mahāprabhu." Lord Caitanya preached this cult, instructing the philosophy of Kṛṣṇa consciousness in His eight verses, or *Śikṣāṣṭaka,* and He said, *ihā haite sarva-siddhi haibe tomāra:* "By chanting the Hare Kṛṣṇa *mantra,* one will get all perfection in life." Therefore one who does not show Him respect or cannot appreciate His mercy despite all these merciful gestures is still an *asura,* or opponent of bona fide devotional service to Lord Viṣṇu, even though he is very exalted in human society. The word *asura* refers to one who is against devotional service to the Supreme Personality of Godhead, Viṣṇu. It should be noted that unless one worships Śrī Caitanya Mahāprabhu it is useless to become a devotee of Kṛṣṇa, and unless one worships Kṛṣṇa it is also useless to become a devotee of Śrī Caitanya Mahāprabhu. Such devotional service is to be understood to be a product of Kali-yuga. Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura remarks in this connection that atheist *smārtas,* or worshipers of the five kinds of demigods, worship Lord Viṣṇu for a little satisfaction in material success but have no respect for Śrī Caitanya Mahāprabhu. Thinking Him to be one of the ordinary living entities, they discriminate between Gaurasundara and Śrī Kṛṣṇa. Such understanding is also demoniac and is against the conclusion of the *ācāryas.* Such a conclusion is a product of Kali-yuga.
 
 ### CC Adi 8.13
-
-> অতএব পুনঃ কহোঁ ঊর্ধ্ববাহু হঞা ।
-> চৈতন্য-নিত্যানন্দ ভজ কুতর্ক ছাড়িয়া ॥১৩॥
 
 > ataeva punaḥ kahoṅ ūrdhva-bāhu hañā
 > caitanya-nityānanda bhaja kutarka chāḍiyā
@@ -17036,9 +13459,6 @@ Because a person who performs *kṛṣṇa-bhakti* but does not understand Śrī
 
 ### CC Adi 8.14
 
-> যদি বা তার্কিক কহে, — তর্ক সে প্রমাণ ।
-> তর্কশাস্ত্রে সিদ্ধ যেই, সেই সেব্যমান ॥১৪॥
-
 > yadi vā tārkika kahe,—tarka se pramāṇa
 > tarka-śāstre siddha yei, sei sevyamāna
 
@@ -17047,9 +13467,6 @@ Because a person who performs *kṛṣṇa-bhakti* but does not understand Śrī
 **Logicians say, "Unless one gains understanding through logic and argument, how can one decide upon a worshipable Deity?"**
 
 ### CC Adi 8.15
-
-> শ্রীকৃষ্ণচৈতন্য-দয়া করহ বিচার ।
-> বিচার করিলে চিত্তে পাবে চমৎকার ॥১৫॥
 
 > śrī-kṛṣṇa-caitanya-dayā karaha vicāra
 > vicāra karite citte pābe camatkāra
@@ -17065,9 +13482,6 @@ Despite all this, those who are actually inquisitive to understand the philosoph
 Everyone is engaged in humanitarian activities on the basis of the body, but from the *Bhagavad-gītā* [[bg/2/18|(Bg. 2.18)]] we understand, *anta-vanta ime dehā nityasyoktāḥ śarīriṇaḥ:* The material body is ultimately subject to destruction, whereas the spiritual soul is eternal. Śrī Caitanya Mahāprabhu's philanthropic activities are performed in connection with the eternal soul. However one tries to benefit the body, it will be destroyed, and one will have to accept another body according to his present activities. If one does not, therefore, understand this science of transmigration but considers the body to be all in all, his intelligence is not very advanced. Śrī Caitanya Mahāprabhu, without neglecting the necessities of the body, imparted spiritual advancement to purify the existential condition of humanity. Therefore if a logician makes his judgment impartially, he will surely find that Śrī Caitanya Mahāprabhu is the *mahā-vadānyāvatāra,* the most magnanimous incarnation. He is even more magnanimous than Lord Kṛṣṇa Himself. Lord Kṛṣṇa demanded that one surrender unto Him, but He did not distribute love of Godhead as magnanimously as Śrī Caitanya Mahāprabhu. Therefore Śrīla Rūpa Gosvāmī offers Lord Caitanya his respectful obeisances with the words *namo mahā-vadānyāya kṛṣṇa-prema-pradāya te kṛṣṇāya kṛṣṇa-caitanya-nāmne gaura-tviṣe namaḥ.* Lord Kṛṣṇa simply gave the *Bhagavad-gītā,* by which one can understand Lord Kṛṣṇa as He is, but Śrī Caitanya Mahāprabhu, who is also Kṛṣṇa Himself, gave people love of Kṛṣṇa without discrimination.
 
 ### CC Adi 8.16
-
-> বহু জন্ম করে যদি শ্রবণ, কীর্তন ।
-> তবু ত’ না পায় কৃষ্ণপদে প্রেমধন ॥১৬॥
 
 > bahu janma kare yadi śravaṇa, kīrtana
 > tabu ta' nā pāya kṛṣṇa-pade prema-dhana
@@ -17096,9 +13510,6 @@ One must come to the understanding that the holy name of the Lord and the Suprem
 
 ### CC Adi 8.17
 
-> জ্ঞানতঃ সুলভা মুক্তির্ভুক্তির্যজ্ঞাদিপুণ্যতঃ ।
-> সেয়ং সাধনসাহস্রৈর্হরিভক্তিঃ সুদুর্লভা ॥১৭॥
-
 > jñānataḥ su-labhā muktir
 > bhuktir yajñādi-puṇyataḥ
 > seyaṁ sādhana-sāhasrair
@@ -17124,9 +13535,6 @@ These *ślokas* are to be discussed. Their purport is that one cannot obtain *k�
 
 ### CC Adi 8.18
 
-> কৃষ্ণ যদি ছুটে ভক্তে ভুক্তি মুক্তি দিয়া ।
-> কভু প্রেমভক্তি না দেন রাখেন লুকাইয়া ॥১৮॥
-
 > kṛṣṇa yadi chuṭe bhakte bhukti mukti diyā
 > kabhu prema-bhakti nā dena rākhena lukāiyā
 
@@ -17135,11 +13543,6 @@ These *ślokas* are to be discussed. Their purport is that one cannot obtain *k�
 **If a devotee wants material sense gratification or liberation from the Lord, Kṛṣṇa immediately delivers it, but pure devotional service He keeps hidden.**
 
 ### CC Adi 8.19
-
-> রাজন্ পতির্গুরুরলং ভবতাং যদূনাং
-> দৈবং প্রিয়ঃ কুলপতিঃ ক্ব চ কিঙ্করো বঃ ।
-> অস্ত্বেবমঙ্গ ভগবান্ ভজতাং মুকুন্দো
-> মুক্তিং দদাতি কর্হিচিৎ স্ম ন ভক্তিযোগম্ ॥১৯॥
 
 > rājan patir gurur alaṁ bhavatāṁ yadūnāṁ
 > daivaṁ priyaḥ kula-patiḥ kva ca kiṅkaro vaḥ
@@ -17160,9 +13563,6 @@ While executing devotional service, one must be naturally inclined to serve Kṛ
 Because Māyāvādī philosophers have no information regarding the transcendental service of the Lord, even after attaining liberation from material activities and merging into the Brahman effulgence, they must come down again to this material world to open hospitals or schools or perform similar philanthropic activities.
 
 ### CC Adi 8.20
-
-> হেন প্রেম শ্রীচৈতন্য দিলা যথা তথা ।
-> জগাই মাধাই পর্যন্ত — অন্যের কা কথা ॥২০॥
 
 > hena prema śrī-caitanya dilā yathā tathā
 > jagāi mādhāi paryanta—anyera kā kathā
@@ -17212,9 +13612,6 @@ At present, human society is specifically cultivating the mode of ignorance (*ta
 
 ### CC Adi 8.21
 
-> স্বতন্ত্র ঈশ্বর প্রেম-নিগূঢ়ভাণ্ডার ।
-> বিলাইল যারে তারে, না কৈল বিচার ॥২১॥
-
 > svatantra īśvara prema-nigūḍha-bhāṇḍāra
 > bilāila yāre tāre, nā kaila vicāra
 
@@ -17225,9 +13622,6 @@ At present, human society is specifically cultivating the mode of ignorance (*ta
 This is the benefit of Lord Caitanya's movement. If one somehow or other comes in contact with the Hare Kṛṣṇa movement, without consideration of his being a *śūdra, vaiśya,* Jagāi, Mādhāi or even lower, he becomes advanced in spiritual consciousness and immediately develops love of Godhead. We now have actual experience that throughout the entire world this movement is making many such persons lovers of God simply by the chanting of the Hare Kṛṣṇa *mahā-mantra.* Actually, Śrī Caitanya Mahāprabhu has appeared as the spiritual master of the entire world. He does not discriminate between offenders and the innocent. *Kṛṣṇa-prema-pradāya te:* He liberally gives love of Godhead to anyone and everyone. This can be actually experienced, as stated in the next verse.
 
 ### CC Adi 8.22
-
-> অদ্যাপিহ দেখ চৈতন্য-নাম যেই লয় ।
-> কৃষ্ণ-প্রেমে পুলকাশ্রু-বিহ্বল সে হয় ॥২২॥
 
 > adyāpiha dekha caitanya-nāma yei laya
 > kṛṣṇa-preme pulakāśru-vihvala se haya
@@ -17240,9 +13634,6 @@ The *prākṛta-sahajiyās* who chant *nitāi-gaura rādhe śyāma* have very li
 
 ### CC Adi 8.23
 
-> ‘নিত্যানন্দ’ বলিতে হয় কৃষ্ণ-প্রেমোদয় ।
-> আউলায় সকল অঙ্গ, অশ্রু-গঙ্গা বয় ॥২৩॥
-
 > 'nityānanda' balite haya kṛṣṇa-premodaya
 > āulāya sakala aṅga, aśru-gaṅgā vaya
 
@@ -17251,9 +13642,6 @@ The *prākṛta-sahajiyās* who chant *nitāi-gaura rādhe śyāma* have very li
 **Simply by talking of Nityānanda Prabhu one awakens his love for Kṛṣṇa. Thus all his bodily limbs are agitated by ecstasy, and tears flow from his eyes like the waters of the Ganges.**
 
 ### CC Adi 8.24
-
-> ‘কৃষ্ণনাম’ করে অপরাধের বিচার ।
-> কৃষ্ণ বলিলে অপরাধীর না হয় বিকার ॥২৪॥
 
 > 'kṛṣṇa-nāma' kare aparādhera vicāra
 > kṛṣṇa balile aparādhīra nā haya vikāra
@@ -17312,11 +13700,6 @@ If one has heard the glories of the transcendental holy name of the Lord but nev
 
 ### CC Adi 8.25
 
-> তদশ্মসারং হৃদয়ং বতেদং,
-> যদ্গৃহ্যমাণৈর্হরিনামধেয়ৈঃ ।
-> ন বিক্রিয়েতাথ যদা বিকারো,
-> নেত্রে জলং গাত্ররুহেষু হর্ষঃ ॥২৫॥
-
 > tad aśma-sāraṁ hṛdayaṁ batedaṁ
 > yad gṛhyamāṇair hari-nāmadheyaiḥ
 > na vikriyetātha yadā vikāro
@@ -17329,9 +13712,6 @@ If one has heard the glories of the transcendental holy name of the Lord but nev
 Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura, commenting on this verse, which is a quotation from *Śrīmad-Bhāgavatam* (2.3.24), remarks that sometimes a *mahā-bhāgavata,* or very advanced devotee, does not manifest such transcendental symptoms as tears in the eyes, although sometimes a *kaniṣṭha-adhikārī,* a neophyte devotee, displays them artificially. This does not mean, however, that the neophyte is more advanced than the *mahā-bhāgavata* devotee. The test of the real change of heart that takes place when one chants the Hare Kṛṣṇa *mahā-mantra* is that one becomes detached from material enjoyment. This is the real change. *Bhaktir pareśānubhavo viraktir anyatra ca* (*Bhāg.* 11.2.42). If one is actually advancing in spiritual life, he must become very much detached from material enjoyment. If it is sometimes found that a *kaniṣṭha-adhikārī* (neophyte devotee) shows artificial tears in his eyes while chanting the Hare Kṛṣṇa *mantra* but is still completely attached to material things, his heart has not really changed. The change must be manifested in terms of one's real activities.
 
 ### CC Adi 8.26
-
-> ‘এক’ কৃষ্ণনামে করে সর্বপাপ নাশ ।
-> প্রেমের কারণ ভক্তি করেন প্রকাশ ॥২৬॥
 
 > 'eka' kṛṣṇa-nāme kare sarva-pāpa nāśa
 > premera kāraṇa bhakti karena prakāśa
@@ -17360,9 +13740,6 @@ If one always chants the holy name Kṛṣṇa, gradually one is freed from all 
 
 ### CC Adi 8.27
 
-> প্রেমের উদয়ে হয় প্রেমের বিকার ।
-> স্বেদ-কম্প-পুলকাদি গদ্গদাশ্রুধার ॥২৭॥
-
 > premera udaye haya premera vikāra
 > sveda-kampa-pulakādi gadgadāśrudhāra
 
@@ -17374,9 +13751,6 @@ These bodily transformations are automatically manifested when one is actually s
 
 ### CC Adi 8.28
 
-> অনায়াসে ভবক্ষয়, কৃষ্ণের সেবন ।
-> এক কৃষ্ণনামের ফলে পাই এত ধন ॥২৮॥
-
 > anāyāse bhava-kṣaya, kṛṣṇera sevana
 > eka kṛṣṇa-nāmera phale pāi eta dhana
 
@@ -17385,11 +13759,6 @@ These bodily transformations are automatically manifested when one is actually s
 **As a result of chanting the Hare Kṛṣṇa mahā-mantra, one makes such great advancement in spiritual life that simultaneously his material existence terminates and he receives love of Godhead. The holy name of Kṛṣṇa is so powerful that by chanting even one name, one very easily achieves these transcendental riches.**
 
 ### CC Adi 8.29-30
-
-> হেন কৃষ্ণনাম যদি লয় বহুবার ।
-> তবু যদি প্রেম নহে, নহে অশ্রুধার ॥২৯॥
-> তবে জানি, অপরাধ তাহাতে প্রচুর ।
-> কৃষ্ণনাম-বীজ তাহে না করে অঙ্কুর ॥৩০॥
 
 > hena kṛṣṇa-nāma yadi laya bahu-bāra
 > tabu yadi prema nahe, nahe aśrudhāra
@@ -17404,9 +13773,6 @@ These bodily transformations are automatically manifested when one is actually s
 If one chants the Hare Kṛṣṇa *mantra* offensively, one does not achieve the desired result. Therefore one should carefully avoid the offenses which have already been described in connection with verse 24.
 
 ### CC Adi 8.31
-
-> চৈতন্য-নিত্যানন্দে নাহি এসব বিচার ।
-> নাম লৈতে প্রেম দেন, বহে অশ্রুধার ॥৩১॥
 
 > caitanya-nityānande nāhi esaba vicāra
 > nāma laite prema dena, vahe aśrudhāra
@@ -17436,9 +13802,6 @@ It should be noted in this connection that the holy names of Lord Kṛṣṇa an
 
 ### CC Adi 8.32
 
-> স্বতন্ত্র ঈশ্বর প্রভু অত্যন্ত উদার ।
-> তাঁরে না ভজিলে কভু না হয় নিস্তার ॥৩২॥
-
 > svatantra īśvara prabhu atyanta udāra
 > tāṅre nā bhajile kabhu nā haya nistāra
 
@@ -17455,9 +13818,6 @@ One must be a submissive student of the six Gosvāmīs, from Śrīla Rūpa Gosv�
 
 ### CC Adi 8.33
 
-> ওরে মূঢ় লোক, শুন চৈতন্যমঙ্গল ।
-> চৈতন্য-মহিমা যাতে জানিবে সকল ॥৩৩॥
-
 > ore mūḍha loka, śuna caitanya-maṅgala
 > caitanya-mahimā yāte jānibe sakala
 
@@ -17469,9 +13829,6 @@ One must be a submissive student of the six Gosvāmīs, from Śrīla Rūpa Gosv�
 
 ### CC Adi 8.34
 
-> কৃষ্ণলীলা ভাগবতে কহে বেদব্যাস ।
-> চৈতন্য-লীলার ব্যাস — বৃন্দাবন-দাস ॥৩৪॥
-
 > kṛṣṇa-līlā bhāgavate kahe veda-vyāsa
 > caitanya-līlāra vyāsa—vṛndāvana-dāsa
 
@@ -17481,9 +13838,6 @@ One must be a submissive student of the six Gosvāmīs, from Śrīla Rūpa Gosv�
 
 ### CC Adi 8.35
 
-> বৃন্দাবন-দাস কৈল ‘চৈতন্যমঙ্গল’ ।
-> যাঁহার শ্রবণে নাশে সর্ব অমঙ্গল ॥৩৫॥
-
 > vṛndāvana-dāsa kaila 'caitanya-maṅgala'
 > yāṅhāra śravaṇe nāśe sarva amaṅgala
 
@@ -17492,9 +13846,6 @@ One must be a submissive student of the six Gosvāmīs, from Śrīla Rūpa Gosv�
 **Ṭhākura Vṛndāvana dāsa has composed Śrī Caitanya-maṅgala. Hearing this book will annihilate all misfortune.**
 
 ### CC Adi 8.36
-
-> চৈতন্য-নিতাইর যাতে জানিয়ে মহিমা ।
-> যাতে জানি কৃষ্ণভক্তিসিদ্ধান্তের সীমা ॥৩৬॥
 
 > caitanya-nitāira yāte jāniye mahimā
 > yāte jāni kṛṣṇa-bhakti-siddhāntera sīmā
@@ -17514,9 +13865,6 @@ One must be a submissive student of the six Gosvāmīs, from Śrīla Rūpa Gosv�
 
 ### CC Adi 8.37
 
-> ভাগবতে যত ভক্তিসিদ্ধান্তের সার ।
-> লিখিয়াছেন ইঁহা জানি’ করিয়া উদ্ধার ॥৩৭॥
-
 > bhāgavate yata bhakti-siddhāntera sāra
 > likhiyāchena iṅhā jāni' kariyā uddhāra
 
@@ -17526,9 +13874,6 @@ One must be a submissive student of the six Gosvāmīs, from Śrīla Rūpa Gosv�
 
 ### CC Adi 8.38
 
-> ‘চৈতন্যমঙ্গল’ শুনে যদি পাষণ্ডী, যবন ।
-> সেহ মহাবৈষ্ণব হয় ততক্ষণ ॥৩৮॥
-
 > 'caitanya-maṅgala' śune yadi pāṣaṇḍī, yavana
 > seha mahā-vaiṣṇava haya tatakṣaṇa
 
@@ -17537,9 +13882,6 @@ One must be a submissive student of the six Gosvāmīs, from Śrīla Rūpa Gosv�
 **If even a great atheist hears Śrī Caitanya-maṅgala, he immediately becomes a great devotee.**
 
 ### CC Adi 8.39
-
-> মনুষ্যে রচিতে নারে ঐছে গ্রন্থ ধন্য ।
-> বৃন্দাবনদাস-মুখে বক্তা শ্রীচৈতন্য ॥৩৯॥
 
 > manuṣye racite nāre aiche grantha dhanya
 > vṛndāvana-dāsa-mukhe vaktā śrī-caitanya
@@ -17561,9 +13903,6 @@ It is not possible for a common man to write books on *bhakti,* for his writings
 
 ### CC Adi 8.40
 
-> বৃন্দাবনদাস-পদে কোটি নমস্কার ।
-> ঐছে গ্রন্থ করি’ তেঁহো তারিলা সংসার ॥৪০॥
-
 > vṛndāvana-dāsa-pade koṭi namaskāra
 > aiche grantha kari' teṅho tārilā saṁsāra
 
@@ -17572,9 +13911,6 @@ It is not possible for a common man to write books on *bhakti,* for his writings
 **I offer millions of obeisances unto the lotus feet of Vṛndāvana dāsa Ṭhākura. No one else could write such a wonderful book for the deliverance of all fallen souls.**
 
 ### CC Adi 8.41
-
-> নারায়ণী — চৈতন্যের উচ্ছিষ্ট-ভাজন ।
-> তাঁর গর্ভে জন্মিলা শ্রীদাস-বৃন্দাবন ॥৪১॥
 
 > nārāyaṇī—caitanyera ucchiṣṭa-bhājana
 > tāṅra garbhe janmilā śrī-dāsa-vṛndāvana
@@ -17594,9 +13930,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 
 ### CC Adi 8.42
 
-> তাঁর কি অদ্ভুত চৈতন্যচরিত-বর্ণন ।
-> যাহার শ্রবণে শুদ্ধ কৈল ত্রিভুবন ॥৪২॥
-
 > tāṅra ki adbhuta caitanya-carita-varṇana
 > yāhāra śravaṇe śuddha kaila tri-bhuvana
 
@@ -17605,9 +13938,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 **What a wonderful description he has given of the pastimes of Lord Caitanya! Anyone in the three worlds who hears it is purified.**
 
 ### CC Adi 8.43
-
-> অতএব ভজ, লোক, চৈতন্য-নিত্যানন্দ ।
-> খণ্ডিবে সংসার-দুঃখ, পাবে প্রেমানন্দ ॥৪৩॥
 
 > ataeva bhaja, loka, caitanya-nityānanda
 > khaṇḍibe saṁsāra-duḥkha, pābe premānanda
@@ -17618,9 +13948,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 
 ### CC Adi 8.44
 
-> বৃন্দাবন-দাস কৈল ‘চৈতন্য-মঙ্গল’ ।
-> তাহাতে চৈতন্য-লীলা বর্ণিল সকল ॥৪৪॥
-
 > vṛndāvana-dāsa kaila 'caitanya-maṅgala'
 > tāhāte caitanya-līlā varṇila sakala
 
@@ -17629,9 +13956,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 **Śrīla Vṛndāvana dāsa Ṭhākura has written Śrī Caitanya-maṅgala and therein described in all respects the pastimes of Lord Caitanya.**
 
 ### CC Adi 8.45
-
-> সূত্র করি’ সব লীলা করিল গ্রন্থন ।
-> পাছে বিস্তারিয়া তাহার কৈল বিবরণ ॥৪৫॥
 
 > sūtra kari' saba līlā karila granthana
 > pāche vistāriyā tāhāra kaila vivaraṇa
@@ -17642,9 +13966,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 
 ### CC Adi 8.46
 
-> চৈতন্যচন্দ্রের লীলা অনন্ত অপার ।
-> বর্ণিতে বর্ণিতে গ্রন্থ হইল বিস্তার ॥৪৬॥
-
 > caitanya-candrera līlā ananta apāra
 > varṇite varṇite grantha ha-ila vistāra
 
@@ -17653,9 +13974,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 **The pastimes of Lord Caitanya are unlimited and unfathomable. Therefore, in describing all those pastimes, the book became voluminous.**
 
 ### CC Adi 8.47
-
-> বিস্তার দেখিয়া কিছু সঙ্কোচ হৈল মন ।
-> সূত্রধৃত কোন লীলা না কৈল বর্ণন ॥৪৭॥
 
 > vistāra dekhiyā kichu saṅkoca haila mana
 > sūtra-dhṛta kona līlā nā kaila varṇana
@@ -17666,9 +13984,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 
 ### CC Adi 8.48
 
-> নিত্যানন্দ-লীলা-বর্ণনে হইল আবেশ ।
-> চৈতন্যের শেষ-লীলা রহিল অবশেষ ॥৪৮॥
-
 > nityānanda-līlā-varṇane ha-ila āveśa
 > caitanyera śeṣa-līlā rahila avaśeṣa
 
@@ -17677,9 +13992,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 **He ecstatically described the pastimes of Lord Nityānanda, but the later pastimes of Caitanya Mahāprabhu remained untold.**
 
 ### CC Adi 8.49
-
-> সেই সব লীলার শুনিতে বিবরণ ।
-> বৃন্দাবনবাসী ভক্তের উত্কণ্ঠিত মন ॥৪৯॥
 
 > sei saba līlāra śunite vivaraṇa
 > vṛndāvana-vāsī bhaktera utkaṇṭhita mana
@@ -17690,9 +14002,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 
 ### CC Adi 8.50
 
-> বৃন্দাবনে কল্পদ্রুমে সুবর্ণ-সদন ।
-> মহা-যোগপীঠ তাহাঁ, রত্ন-সিংহাসন ॥৫০॥
-
 > vṛndāvane kalpa-drume suvarṇa-sadana
 > mahā-yogapīṭha tāhāṅ, ratna-siṁhāsana
 
@@ -17701,9 +14010,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 **In Vṛndāvana, in a great place of pilgrimage underneath the desire trees, is a golden throne bedecked with jewels.**
 
 ### CC Adi 8.51
-
-> তাতে বসি’ আছে সদা ব্রজেন্দ্রনন্দন ।
-> ‘শ্রীগোবিন্দ-দেব’ নাম সাক্ষাৎ মদন ॥৫১॥
 
 > tāte vasi' āche sadā vrajendra-nandana
 > 'śrī-govinda-deva' nāma sākṣāt madana
@@ -17714,9 +14020,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 
 ### CC Adi 8.52
 
-> রাজ-সেবা হয় তাঁহা বিচিত্র প্রকার ।
-> দিব্য সামগ্রী, দিব্য বস্ত্র, অলঙ্কার ॥৫২॥
-
 > rāja-sevā haya tāṅhā vicitra prakāra
 > divya sāmagrī, divya vastra, alaṅkāra
 
@@ -17726,9 +14029,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 
 ### CC Adi 8.53
 
-> সহস্র সেবক সেবা করে অনুক্ষণ ।
-> সহস্র-বদনে সেবা না যায় বর্ণন ॥৫৩॥
-
 > sahasra sevaka sevā kare anukṣaṇa
 > sahasra-vadane sevā nā yāya varṇana
 
@@ -17737,9 +14037,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 **In that temple of Govindajī, thousands of servitors always render service to the Lord in devotion. Even with thousands of mouths, one could not describe this service.**
 
 ### CC Adi 8.54
-
-> সেবার অধ্যক্ষ — শ্রীপণ্ডিত হরিদাস ।
-> তাঁর যশঃ-গুণ সর্বজগতে প্রকাশ ॥৫৪॥
 
 > sevāra adhyakṣa—śrī-paṇḍita haridāsa
 > tāṅra yaśaḥ-guṇa sarva-jagate prakāśa
@@ -17752,9 +14049,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 
 ### CC Adi 8.55
 
-> সুশীল, সহিষ্ণু, শান্ত, বদান্য, গম্ভীর ।
-> মধুর-বচন, মধুর-চেষ্টা, মহাধীর ॥৫৫॥
-
 > suśīla, sahiṣṇu, śānta, vadānya, gambhīra
 > madhura-vacana, madhura-ceṣṭā, mahā-dhīra
 
@@ -17764,9 +14058,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 
 ### CC Adi 8.56
 
-> সবার সম্মান-কর্তা, করেন সবার হিত ।
-> কৌটিল্য-মাৎসর্য-হিংসা না জানে তাঁর চিত ॥৫৬॥
-
 > sabāra sammāna-kartā, karena sabāra hita
 > kauṭilya-mātsarya-hiṁsā nā jāne tāṅra cita
 
@@ -17775,9 +14066,6 @@ When Lord Kṛṣṇa was a child, He was nursed by a woman named Ambikā, who h
 **He was respectful to everyone and worked for the benefit of all. Diplomacy, envy and jealousy were unknown to his heart.**
 
 ### CC Adi 8.57
-
-> কৃষ্ণের যে সাধারণ সদ্গুণ পঞ্চাশ ।
-> সে সব গুণের তাঁর শরীরে নিবাস ॥৫৭॥
 
 > kṛṣṇera ye sādhāraṇa sad-guṇa pañcāśa
 > se saba guṇera tāṅra śarīre nivāsa
@@ -17790,11 +14078,6 @@ In the *Bhakti-rasāmṛta-sindhu,* the transcendental qualities of Śrī Kṛ�
 
 ### CC Adi 8.58
 
-> যস্যাস্তি ভক্তির্ভগবত্যকিঞ্চনা
-> সর্বৈর্গুণৈস্তত্র সমাসতে সুরাঃ ।
-> হরাবভক্তস্য কুতো মহদ্গুণা
-> মনোরথেনাসতি ধাবতো বহিঃ ॥৫৮॥
-
 > yasyāsti bhaktir bhagavaty akiñcanā
 > sarvair guṇais tatra samāsate surāḥ
 > harāv abhaktasya kuto mahad-guṇā
@@ -17806,9 +14089,6 @@ In the *Bhakti-rasāmṛta-sindhu,* the transcendental qualities of Śrī Kṛ�
 
 ### CC Adi 8.59
 
-> পণ্ডিত-গোসাঞির শিষ্য — অনন্ত আচার্য ।
-> কৃষ্ণপ্রেমময়-তনু, উদার, সর্ব-আর্য ॥৫৯॥
-
 > paṇḍita-gosāñira śiṣya—ananta ācārya
 > kṛṣṇa-premamaya-tanu, udāra, sarva-ārya
 
@@ -17817,9 +14097,6 @@ In the *Bhakti-rasāmṛta-sindhu,* the transcendental qualities of Śrī Kṛ�
 **Ananta Ācārya was a disciple of Gadādhara Paṇḍita. His body was always absorbed in love of Godhead. He was magnanimous and advanced in all respects.**
 
 ### CC Adi 8.60
-
-> তাঁহার অনন্ত গুণ কে করু প্রকাশ ।
-> তাঁর প্রিয় শিষ্য ইঁহ — পণ্ডিত হরিদাস ॥৬০॥
 
 > tāṅhāra ananta guṇa ke karu prakāśa
 > tāṅra priya śiṣya iṅha—paṇḍita haridāsa
@@ -17832,9 +14109,6 @@ In the *Bhakti-rasāmṛta-sindhu,* the transcendental qualities of Śrī Kṛ�
 
 ### CC Adi 8.61
 
-> চৈতন্য-নিত্যানন্দে তাঁর পরম বিশ্বাস ।
-> চৈতন্য-চরিতে তাঁর পরম উল্লাস ॥৬১॥
-
 > caitanya-nityānande tāṅra parama viśvāsa
 > caitanya-carite tāṅra parama ullāsa
 
@@ -17843,9 +14117,6 @@ In the *Bhakti-rasāmṛta-sindhu,* the transcendental qualities of Śrī Kṛ�
 **Paṇḍita Haridāsa had great faith in Lord Caitanya and Nityānanda. Therefore he took great satisfaction in knowing about Their pastimes and qualities.**
 
 ### CC Adi 8.62
-
-> বৈষ্ণবের গুণগ্রাহী, না দেখয়ে দোষ ।
-> কায়মনোবাক্যে করে বৈষ্ণব-সন্তোষ ॥৬২॥
 
 > vaiṣṇavera guṇa-grāhī, nā dekhaye doṣa
 > kāya-mano-vākye kare vaiṣṇava-santoṣa
@@ -17858,9 +14129,6 @@ It is a qualification of a Vaiṣṇava that he is *adoṣa-darśī:* he never s
 
 ### CC Adi 8.63
 
-> নিরন্তর শুনে তেঁহো ‘চৈতন্যমঙ্গল’ ।
-> তাঁহার প্রসাদে শুনেন বৈষ্ণবসকল ॥৬৩॥
-
 > nirantara śune teṅho 'caitanya-maṅgala'
 > tāṅhāra prasāde śunena vaiṣṇava-sakala
 
@@ -17869,9 +14137,6 @@ It is a qualification of a Vaiṣṇava that he is *adoṣa-darśī:* he never s
 **He always heard the reading of Śrī Caitanya-maṅgala, and all the other Vaiṣṇavas used to hear it by his grace.**
 
 ### CC Adi 8.64
-
-> কথায় সভা উজ্জ্বল করে যেন পূর্ণচন্দ্র ।
-> নিজ-গুণামৃতে বাড়ায় বৈষ্ণব-আনন্দ ॥৬৪॥
 
 > kathāya sabhā ujjvala kare yena pūrṇa-candra
 > nija-guṇāmṛte bāḍāya vaiṣṇava-ānanda
@@ -17882,9 +14147,6 @@ It is a qualification of a Vaiṣṇava that he is *adoṣa-darśī:* he never s
 
 ### CC Adi 8.65
 
-> তেঁহো অতি কৃপা করি’ আজ্ঞা কৈলা মোরে ।
-> গৌরাঙ্গের শেষলীলা বর্ণিবার তরে ॥৬৫॥
-
 > teṅho ati kṛpā kari' ājñā kailā more
 > gaurāṅgera śeṣa-līlā varṇibāra tare
 
@@ -17893,9 +14155,6 @@ It is a qualification of a Vaiṣṇava that he is *adoṣa-darśī:* he never s
 **By his causeless mercy he ordered me to write about the last pastimes of Śrī Caitanya Mahāprabhu.**
 
 ### CC Adi 8.66
-
-> কাশীশ্বর গোসাঞির শিষ্য — গোবিন্দ গোসাঞি ।
-> গোবিন্দের প্রিয়সেবক তাঁর সম নাঞি ॥৬৬॥
 
 > kāśīśvara gosāñira śiṣya—govinda gosāñi
 > govindera priya-sevaka tāṅra sama nāñi
@@ -17912,9 +14171,6 @@ It is said in the *Gaura-gaṇoddeśa-dīpikā* that the servant of Kṛṣṇa 
 
 ### CC Adi 8.67
 
-> যাদবাচার্য গোসাঞি শ্রীরূপের সঙ্গী ।
-> চৈতন্যচরিতে তেঁহো অতি বড় রঙ্গী ॥৬৭॥
-
 > yādavācārya gosāñi śrī-rūpera saṅgī
 > caitanya-carite teṅho ati baḍa raṅgī
 
@@ -17923,9 +14179,6 @@ It is said in the *Gaura-gaṇoddeśa-dīpikā* that the servant of Kṛṣṇa 
 **Śrī Yādavācārya Gosāñi, a constant associate of Śrīla Rūpa Gosvāmī, was also very enthusiastic in hearing and chanting about Lord Caitanya's pastimes.**
 
 ### CC Adi 8.68
-
-> পণ্ডিত-গোসাঞির শিষ্য — ভুগর্ভ গোসাঞি ।
-> গৌরকথা বিনা আর মুখে অন্য নাই ॥৬৮॥
 
 > paṇḍita-gosāñira śiṣya—bhugarbha gosāñi
 > gaura-kathā vinā āra mukhe anya nāi
@@ -17936,9 +14189,6 @@ It is said in the *Gaura-gaṇoddeśa-dīpikā* that the servant of Kṛṣṇa 
 
 ### CC Adi 8.69
 
-> তাঁর শিষ্য — গোবিন্দ পূজক চৈতন্যদাস ।
-> মুকুন্দানন্দ চক্রবর্তী, প্রেমী কৃষ্ণদাস ॥৬৯॥
-
 > tāṅra śiṣya—govinda pūjaka caitanya-dāsa
 > mukundānanda cakravartī, premī kṛṣṇadāsa
 
@@ -17947,9 +14197,6 @@ It is said in the *Gaura-gaṇoddeśa-dīpikā* that the servant of Kṛṣṇa 
 **Among his disciples were Caitanya dāsa, who was a priest of the Govinda Deity, as well as Mukundānanda Cakravartī and the great devotee Kṛṣṇadāsa.**
 
 ### CC Adi 8.70
-
-> আচার্যগোসাঞির শিষ্য — চক্রবর্তী শিবানন্দ ।
-> নিরবধি তাঁর চিত্তে শ্রীচৈতন্য-নিত্যানন্দ ॥৭০॥
 
 > ācārya-gosāñira śiṣya—cakravartī śivānanda
 > niravadhi tāṅra citte caitanya-nityānanda
@@ -17960,9 +14207,6 @@ It is said in the *Gaura-gaṇoddeśa-dīpikā* that the servant of Kṛṣṇa 
 
 ### CC Adi 8.71
 
-> আর যত বৃন্দাবনে বৈসে ভক্তগণ ।
-> শেষ-লীলা শুনিতে সবার হৈল মন ॥৭১॥
-
 > āra yata vṛndāvane baise bhakta-gaṇa
 > śeṣa-līlā śunite sabāra haila mana
 
@@ -17971,9 +14215,6 @@ It is said in the *Gaura-gaṇoddeśa-dīpikā* that the servant of Kṛṣṇa 
 **In Vṛndāvana there were also many other great devotees, all of whom desired to hear the last pastimes of Lord Caitanya.**
 
 ### CC Adi 8.72
-
-> মোরে আজ্ঞা করিলা সবে করুণা করিয়া ।
-> তাঁ-সবার বোলে লিখি নির্লজ্জ হইয়া ॥৭২॥
 
 > more ājñā karilā sabe karuṇā kariyā
 > tāṅ-sabāra bole likhi nirlajja ha-iyā
@@ -17986,9 +14227,6 @@ To write about the transcendental pastimes of the Supreme Personality of Godhead
 
 ### CC Adi 8.73
 
-> বৈষ্ণবের আজ্ঞা পাঞা চিন্তিত-অন্তরে ।
-> মদনগোপালে গেলাঙ আজ্ঞা মাগিবারে ॥৭৩॥
-
 > vaiṣṇavera ājñā pāñā cintita-antare
 > madana-gopāle gelāṅ ājñā māgibāre
 
@@ -18000,9 +14238,6 @@ A Vaiṣṇava always follows the order of *guru* and Kṛṣṇa. *Śrī Caitan
 
 ### CC Adi 8.74
 
-> দরশন করি কৈলুঁ চরণ বন্দন ।
-> গোসাঞিদাস পূজারী করে চরণ-সেবন ॥৭৪॥
-
 > daraśana kari kailuṅ caraṇa vandana
 > gosāñi-dāsa pūjārī kare caraṇa-sevana
 
@@ -18011,9 +14246,6 @@ A Vaiṣṇava always follows the order of *guru* and Kṛṣṇa. *Śrī Caitan
 **When I visited the temple of Madana-mohana, the priest Gosāñi dāsa was serving the feet of the Lord, and I also prayed at the Lord's lotus feet.**
 
 ### CC Adi 8.75
-
-> প্রভুর চরণে যদি আজ্ঞা মাগিল ।
-> প্রভুকণ্ঠ হৈতে মালা খসিয়া পড়িল ॥৭৫॥
 
 > prabhura caraṇe yadi ājñā māgila
 > prabhu-kaṇṭha haite mālā khasiyā paḍila
@@ -18024,9 +14256,6 @@ A Vaiṣṇava always follows the order of *guru* and Kṛṣṇa. *Śrī Caitan
 
 ### CC Adi 8.76
 
-> সব বৈষ্ণবগণ হরিধ্বনি দিল ।
-> গোসাঞিদাস আনি’ মালা মোর গলে দিল ॥৭৬॥
-
 > saba vaiṣṇava-gaṇa hari-dhvani dila
 > gosāñi-dāsa āni' mālā mora gale dila
 
@@ -18036,9 +14265,6 @@ A Vaiṣṇava always follows the order of *guru* and Kṛṣṇa. *Śrī Caitan
 
 ### CC Adi 8.77
 
-> আজ্ঞামালা পাঞা আমার হইল আনন্দ ।
-> তাহাঁই করিনু এই গ্রন্থের আরম্ভ ॥৭৭॥
-
 > ājñā-mālā pāñā āmāra ha-ila ānanda
 > tāhāṅi karinu ei granthera ārambha
 
@@ -18047,9 +14273,6 @@ A Vaiṣṇava always follows the order of *guru* and Kṛṣṇa. *Śrī Caitan
 **I was greatly pleased to have the garland signifying the order of the Lord, and then and there I commenced to write this book.**
 
 ### CC Adi 8.78
-
-> এই গ্রন্থ লেখায় মোরে ‘মদনমোহন’ ।
-> আমার লিখন যেন শুকের পঠন ॥৭৮॥
 
 > ei grantha lekhāya more 'madana-mohana'
 > āmāra likhana yena śukera paṭhana
@@ -18069,9 +14292,6 @@ This should be the attitude of all devotees. When the Supreme Personality of God
 
 ### CC Adi 8.79
 
-> সেই লিখি, মদনগোপাল যে লিখায় ।
-> কাষ্ঠের পুত্তলী যেন কুহকে নাচায় ॥৭৯॥
-
 > sei likhi, madana-gopāla ye likhāya
 > kāṣṭhera puttalī yena kuhake nācāya
 
@@ -18083,9 +14303,6 @@ This is the position of a pure devotee. One should not take any responsibility o
 
 ### CC Adi 8.80
 
-> কুলাধিদেবতা মোর — মদনমোহন ।
-> যাঁর সেবক — রঘুনাথ, রূপ, সনাতন ॥৮০॥
-
 > kulādhidevatā mora—madana-mohana
 > yāṅra sevaka—raghunātha, rūpa, sanātana
 
@@ -18094,9 +14311,6 @@ This is the position of a pure devotee. One should not take any responsibility o
 **I accept as my family Deity Madana-mohana, whose worshipers are Raghunātha dāsa, Śrī Rūpa and Sanātana Gosvāmīs.**
 
 ### CC Adi 8.81
-
-> বৃন্দাবন-দাসের পাদপদ্ম করি’ ধ্যান ।
-> তাঁর আজ্ঞা লঞা লিখি যাহাতে কল্যাণ ॥৮১॥
 
 > vṛndāvana-dāsera pāda-padma kari' dhyāna
 > tāṅra ājñā lañā likhi yāhāte kalyāṇa
@@ -18109,9 +14323,6 @@ This is the position of a pure devotee. One should not take any responsibility o
 
 ### CC Adi 8.82
 
-> চৈতন্যলীলাতে ‘ব্যাস’ — বৃন্দাবন-দাস ।
-> তাঁর কৃপা বিনা অন্যে না হয় প্রকাশ ॥৮২॥
-
 > caitanya-līlāte 'vyāsa'—vṛndāvana-dāsa
 > tāṅra kṛpā vinā anye nā haya prakāśa
 
@@ -18120,9 +14331,6 @@ This is the position of a pure devotee. One should not take any responsibility o
 **Śrīla Vṛndāvana dāsa Ṭhākura is the authorized writer on the pastimes of Lord Caitanya. Without his mercy, therefore, one cannot describe these pastimes.**
 
 ### CC Adi 8.83
-
-> মূর্খ, নীচ, ক্ষুদ্র মুঞি বিষয়-লালস ।
-> বৈষ্ণবাজ্ঞা-বলে করি এতেক সাহস ॥৮৩॥
 
 > mūrkha, nīca, kṣudra muñi viṣaya-lālasa
 > vaiṣṇavājñā-bale kari eteka sāhasa
@@ -18133,9 +14341,6 @@ This is the position of a pure devotee. One should not take any responsibility o
 
 ### CC Adi 8.84
 
-> শ্রীরূপ-রঘুনাথ-চরণের এই বল ।
-> যাঁর স্মৃতে সিদ্ধ হয় বাঞ্ছিতসকল ॥৮৪॥
-
 > śrī-rūpa-raghunātha-caraṇera ei bala
 > yāṅra smṛte siddha haya vāñchita-sakala
 
@@ -18144,9 +14349,6 @@ This is the position of a pure devotee. One should not take any responsibility o
 **The lotus feet of Śrī Rūpa Gosvāmī and Raghunātha dāsa Gosvāmī are my source of strength. Remembering their lotus feet can fulfill all one's desires.**
 
 ### CC Adi 8.85
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৮৫॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -18161,9 +14363,6 @@ This is the position of a pure devotee. One should not take any responsibility o
 
 ### CC Adi 9.1
 
-> তং শ্রীমৎকৃষ্ণচৈতন্যদেবং বন্দে জগদ্গুরুম্ ।
-> যস্যানুকম্পয়া শ্বাপি মহাব্ধিং সন্তরেৎ সুখম্ ॥১॥
-
 > taṁ śrīmat-kṛṣṇa-caitanya-
 > devaṁ vande jagad-gurum
 > yasyānukampayā śvāpi
@@ -18177,9 +14376,6 @@ Sometimes it is to be seen that a dog can swim in the water for a few yards and 
 
 ### CC Adi 9.2
 
-> জয় জয় শ্রীকৃষ্ণচৈতন্য গৌরচন্দ্র ।
-> জয় জয়াদ্বৈত জয় জয় নিত্যানন্দ ॥২॥
-
 > jaya jaya śrī-kṛṣṇa-caitanya gauracandra
 > jaya jayādvaita jaya jaya nityānanda
 
@@ -18188,9 +14384,6 @@ Sometimes it is to be seen that a dog can swim in the water for a few yards and 
 **All glories to Śrī Kṛṣṇa Caitanya, who is known as Gaurahari! All glories to Advaita and Nityānanda Prabhu!**
 
 ### CC Adi 9.3
-
-> জয় জয় শ্রীবাসাদি গৌরভক্তগণ ।
-> সর্বাভীষ্ট-পূর্তি-হেতু যাঁহার স্মরণ ॥৩॥
 
 > jaya jaya śrīvāsādi gaura-bhakta-gaṇa
 > sarvābhīṣṭa-pūrti-hetu yāṅhāra smaraṇa
@@ -18203,9 +14396,6 @@ The author here continues to follow the same principles of worship of the Pañca
 
 ### CC Adi 9.4
 
-> শ্রীরূপ, সনাতন, ভট্ট রঘুনাথ ।
-> শ্রীজীব, গোপালভট্ট, দাস-রঘুনাথ ॥৪॥
-
 > śrī-rūpa, sanātana, bhaṭṭa raghunātha
 > śrī-jīva, gopāla-bhaṭṭa, dāsa-raghunātha
 
@@ -18216,9 +14406,6 @@ The author here continues to follow the same principles of worship of the Pañca
 This is the process for writing transcendental literature. A sentimentalist who has no Vaiṣṇava qualifications cannot produce transcendental writings. There are many fools who consider *kṛṣṇa-līlā* to be a subject of art and write or paint pictures about the pastimes of Lord Kṛṣṇa with the *gopīs,* sometimes depicting them in a manner practically obscene. These fools take pleasure in material sense gratification, but one who wants to make advancement in spiritual life must scrupulously avoid their literature. Unless one is a servant of Kṛṣṇa and the Vaiṣṇavas, as Kṛṣṇadāsa Kavirāja Gosvāmī presents himself to be in offering respects to Lord Caitanya, His associates and His disciples, one should not attempt to write transcendental literature.
 
 ### CC Adi 9.5
-
-> এসব-প্রসাদে লিখি চৈতন্য-লীলাগুণ ।
-> জানি বা না জানি, করি আপন-শোধন ॥৫॥
 
 > esaba-prasāde likhi caitanya-līlā-guṇa
 > jāni vā nā jāni, kari āpana-śodhana
@@ -18231,9 +14418,6 @@ This is the sum and substance of transcendental writing. One must be an authoriz
 
 ### CC Adi 9.6
 
-> মালাকারঃ স্বয়ং কৃষ্ণপ্রেমামরতরুঃ স্বয়ম্ ।
-> দাতা ভোক্তা তৎফলানাং যস্তং চৈতন্যমাশ্রয়ে ॥৬॥
-
 > mālā-kāraḥ svayaṁ kṛṣṇa-
 > premāmara-taruḥ svayam
 > dātā bhoktā tat-phalānāṁ
@@ -18245,9 +14429,6 @@ This is the sum and substance of transcendental writing. One must be an authoriz
 
 ### CC Adi 9.7
 
-> প্রভু কহে, আমি ‘বিশ্বম্ভর’ নাম ধরি ।
-> নাম সার্থক হয়, যদি প্রেমে বিশ্ব ভরি ॥৭॥
-
 > prabhu kahe, āmi 'viśvambhara' nāma dhari
 > nāma sārthaka haya, yadi preme viśva bhari
 
@@ -18257,9 +14438,6 @@ This is the sum and substance of transcendental writing. One must be an authoriz
 
 ### CC Adi 9.8
 
-> এত চিন্তি’ লৈলা প্রভু মালাকার-ধর্ম ।
-> নবদ্বীপে আরম্ভিলা ফলোদ্যান-কর্ম ॥৮॥
-
 > eta cinti' lailā prabhu mālākāra-dharma
 > navadvīpe ārambhilā phalodyāna-karma
 
@@ -18268,9 +14446,6 @@ This is the sum and substance of transcendental writing. One must be an authoriz
 **Thinking in this way, He accepted the duty of a planter and began to grow a garden in Navadvīpa.**
 
 ### CC Adi 9.9
-
-> শ্রীচৈতন্য মালাকার পৃথিবীতে আনি’ ।
-> ভক্তি-কল্পতরু রোপিলা সিঞ্চি’ ইচ্ছা-পানি ॥৯॥
 
 > śrī-caitanya mālākāra pṛthivīte āni'
 > bhakti-kalpataru ropilā siñci' icchā-pāni
@@ -18283,9 +14458,6 @@ In many places devotional service has been compared to a creeper. One has to sow
 
 ### CC Adi 9.10
 
-> জয় শ্রীমাধবপুরী কৃষ্ণপ্রেমপূর ।
-> ভক্তিকল্পতরুর তেঁহো প্রথম অঙ্কুর ॥১০॥
-
 > jaya śrī mādhavapurī kṛṣṇa-prema-pūra
 > bhakti-kalpatarura teṅho prathama aṅkura
 
@@ -18296,9 +14468,6 @@ In many places devotional service has been compared to a creeper. One has to sow
 Śrī Mādhavendra Purī, also known as Śrī Mādhava Purī, belonged to the disciplic succession from Madhvācārya and was a greatly celebrated *sannyāsī.* Śrī Caitanya Mahāprabhu was the third disciplic descendant from Śrī Mādhavendra Purī. The process of worship in the disciplic succession of Madhvācārya was full of ritualistic ceremonies, with hardly a sign of love of Godhead; Śrī Mādhavendra Purī was the first person in that disciplic succession to exhibit the symptoms of love of Godhead and the first to write a poem beginning with the words *ayi dīna-dayārdra nātha,* "O supremely merciful Personality of Godhead." In that poem is the seed of Caitanya Mahāprabhu's cultivation of love of Godhead.
 
 ### CC Adi 9.11
-
-> শ্রীঈশ্বরপুরী-রূপে অঙ্কুর পুষ্ট হৈল ।
-> আপনে চৈতন্যমালী স্কন্ধ উপজিল ॥১১॥
 
 > śrī-iśvarapurī-rūpe aṅkura puṣṭa haila
 > āpane caitanya-mālī skandha upajila
@@ -18330,9 +14499,6 @@ To teach others by example how to be a faithful disciple of one's spiritual mast
 
 ### CC Adi 9.12
 
-> নিজাচিন্ত্যশক্ত্যে মালী হঞা স্কন্ধ হয় ।
-> সকল শাখার সেই স্কন্ধ মূলাশ্রয় ॥১২॥
-
 > nijācintya-śaktye mālī hañā skandha haya
 > sakala śākhāra sei skandha mūlāśraya
 
@@ -18341,13 +14507,6 @@ To teach others by example how to be a faithful disciple of one's spiritual mast
 **By His inconceivable powers, the Lord became the gardener, the trunk and the branches simultaneously.**
 
 ### CC Adi 9.13-15
-
-> পরমানন্দ পুরী, আর কেশব ভারতী ।
-> ব্রহ্মানন্দ পুরী, আর ব্রহ্মানন্দ ভারতী ॥১৩॥
-> বিষ্ণুপুরী, কেশবপুরী, পুরী কৃষ্ণানন্দ ।
-> শ্রীনৃসিংহতীর্থ, আর পুরী সুখানন্দ ॥১৪॥
-> এই নব মূল নিকসিল বৃক্ষমূলে ।
-> এই নব মূলে বৃক্ষ করিল নিশ্চলে ॥১৫॥
 
 > paramānanda purī, āra keśava bhāratī
 > brahmānanda purī, āra brahmānanda bhāratī
@@ -18412,9 +14571,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 52, it is said:
 
 ### CC Adi 9.16
 
-> মধ্যমূল পরমানন্দ পুরী মহাধীর ।
-> অষ্ট দিকে অষ্ট মূল বৃক্ষ কৈল স্থির ॥১৬॥
-
 > madhya-mūla paramānanda purī mahā-dhīra
 > aṣṭa dike aṣṭa mūla vṛkṣa kaila sthira
 
@@ -18424,9 +14580,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 52, it is said:
 
 ### CC Adi 9.17
 
-> স্কন্ধের উপরে বহু শাখা উপজিল।
-> উপরি উপরি শাখা অসংখ্য হইল ॥১৭॥
-
 > skandhera upare bahu śākhā upajila
 > upari upari śākhā asaṅkhya ha-ila
 
@@ -18435,9 +14588,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 52, it is said:
 **From the trunk grew many branches and above them innumerable others.**
 
 ### CC Adi 9.18
-
-> বিশ বিশ শাখা করি’ এক এক মণ্ডল ।
-> মহা-মহা-শাখা ছাইল ব্রহ্মাণ্ড সকল ॥১৮॥
 
 > viśa viśa śākhā kari' eka eka maṇḍala
 > mahā-mahā-śākhā chāila brahmāṇḍa sakala
@@ -18450,9 +14600,6 @@ Our International Society for Krishna Consciousness is one of the branches of th
 
 ### CC Adi 9.19
 
-> একৈক শাখাতে উপশাখা শত শত ।
-> যত উপজিল শাখা কে গণিবে কত ॥১৯॥
-
 > ekaika śākhāte upaśākhā śata śata
 > yata upajila śākhā ke gaṇibe kata
 
@@ -18461,9 +14608,6 @@ Our International Society for Krishna Consciousness is one of the branches of th
 **From each branch grew many hundreds of subbranches. No one can count how many branches thus grew.**
 
 ### CC Adi 9.20
-
-> মুখ্য মুখ্য শাখাগণের নাম অগণন ।
-> আগে ত’ করিব, শুন বৃক্ষের বর্ণন ॥২০॥
 
 > mukhya mukhya śākhā-gaṇera nāma agaṇana
 > āge ta' kariba, śuna vṛkṣera varṇana
@@ -18474,9 +14618,6 @@ Our International Society for Krishna Consciousness is one of the branches of th
 
 ### CC Adi 9.21
 
-> বৃক্ষের উপরে শাখা হৈল দুই স্কন্ধ ।
-> এক ‘অদ্বৈত’ নাম, আর ‘নিত্যানন্দ’ ॥২১॥
-
 > vṛkṣera upare śākhā haila dui skandha
 > eka 'advaita' nāma, āra 'nityānanda'
 
@@ -18485,9 +14626,6 @@ Our International Society for Krishna Consciousness is one of the branches of th
 **At the top of the tree the trunk branched into two. One trunk was named Śrī Advaita Prabhu and the other Śrī Nityānanda Prabhu.**
 
 ### CC Adi 9.22
-
-> সেই দুইস্কন্ধে বহু শাখা উপজিল ।
-> তার উপশাখাগণে জগৎ ছাইল ॥২২॥
 
 > sei dui-skandhe bahu śākhā upajila
 > tāra upaśākhā-gaṇe jagat chāila
@@ -18498,9 +14636,6 @@ Our International Society for Krishna Consciousness is one of the branches of th
 
 ### CC Adi 9.23
 
-> বড় শাখা, উপশাখা, তার উপশাখা ।
-> যত উপজিল তার কে করিবে লেখা ॥২৩॥
-
 > baḍa śākhā, upaśākhā, tāra upaśākhā
 > yata upajila tāra ke karibe lekhā
 
@@ -18510,9 +14645,6 @@ Our International Society for Krishna Consciousness is one of the branches of th
 
 ### CC Adi 9.24
 
-> শিষ্য, প্রশিষ্য, আর উপশিষ্যগণ ।
-> জগৎ ব্যাপিল তার নাহিক গণন ॥২৪॥
-
 > śiṣya, praśiṣya, āra upaśiṣya-gaṇa
 > jagat vyāpila tāra nāhika gaṇana
 
@@ -18521,9 +14653,6 @@ Our International Society for Krishna Consciousness is one of the branches of th
 **Thus the disciples and the granddisciples and their admirers spread throughout the entire world, and it is not possible to enumerate them all.**
 
 ### CC Adi 9.25
-
-> উড়ুম্বর-বৃক্ষ যেন ফলে সর্ব অঙ্গে ।
-> এই মত ভক্তিবৃক্ষে সর্বত্র ফল লাগে ॥২৫॥
 
 > uḍumbara-vṛkṣa yena phale sarva aṅge
 > ei mata bhakti-vṛkṣe sarvatra phala lāge
@@ -18536,9 +14665,6 @@ This tree of devotional service is not of this material world. It grows in the s
 
 ### CC Adi 9.26
 
-> মূলস্কন্ধের শাখা আর উপশাখাগণে ।
-> লাগিলা যে প্রেমফল, — অমৃতকে জিনে ॥২৬॥
-
 > mūla-skandhera śākhā āra upaśākhā-gaṇe
 > lāgilā ye prema-phala,—amṛtake jine
 
@@ -18547,9 +14673,6 @@ This tree of devotional service is not of this material world. It grows in the s
 **Since Śrī Kṛṣṇa Caitanya Mahāprabhu was the original trunk, the taste of the fruits that grew on the branches and subbranches surpassed the taste of nectar.**
 
 ### CC Adi 9.27
-
-> পাকিল যে প্রেমফল অমৃত-মধুর ।
-> বিলায় চৈতন্যমালী, নাহি লয় মূল ॥২৭॥
 
 > pākila ye prema-phala amṛta-madhura
 > vilāya caitanya-mālī, nāhi laya mūla
@@ -18560,9 +14683,6 @@ This tree of devotional service is not of this material world. It grows in the s
 
 ### CC Adi 9.28
 
-> ত্রিজগতে যত আছে ধন-রত্নমণি ।
-> একফলের মূল্য করি’ তাহা নাহি গণি ॥২৮॥
-
 > tri-jagate yata āche dhana-ratnamaṇi
 > eka-phalera mūlya kari' tāhā nāhi gaṇi
 
@@ -18571,9 +14691,6 @@ This tree of devotional service is not of this material world. It grows in the s
 **All the wealth in the three worlds cannot equal the value of one such nectarean fruit of devotional service.**
 
 ### CC Adi 9.29
-
-> মাগে বা না মাগে কেহ, পাত্র বা অপাত্র ।
-> ইহার বিচার নাহি জানে, দেয় মাত্র ॥২৯॥
 
 > māge vā nā māge keha, pātra vā apātra
 > ihāra vicāra nāhi jāne, deya mātra
@@ -18586,9 +14703,6 @@ This is the sum and substance of Lord Caitanya's *saṅkīrtana* movement. There
 
 ### CC Adi 9.30
 
-> অঞ্জলি অঞ্জলি ভরি’ ফেলে চতুর্দিশে ।
-> দরিদ্র কুড়াঞা খায়, মালাকার হাসে ॥৩০॥
-
 > añjali añjali bhari' phele caturdiśe
 > daridra kuḍāñā khāya, mālākāra hāse
 
@@ -18598,9 +14712,6 @@ This is the sum and substance of Lord Caitanya's *saṅkīrtana* movement. There
 
 ### CC Adi 9.31
 
-> মালাকার কহে, — শুন, বৃক্ষ-পরিবার ।
-> মূলশাখা-উপশাখা যতেক প্রকার ॥৩১॥
-
 > mālākāra kahe,—śuna, vṛkṣa-parivāra
 > mūlaśākhā-upaśākhā yateka prakāra
 
@@ -18609,9 +14720,6 @@ This is the sum and substance of Lord Caitanya's *saṅkīrtana* movement. There
 **Lord Caitanya thus addressed the multifarious varieties of branches and subbranches of the tree of devotional service:**
 
 ### CC Adi 9.32
-
-> অলৌকিক বৃক্ষ করে, সর্বেন্দ্রিয়-কর্ম ।
-> স্থাবর হইয়া ধরে জঙ্গমের ধর্ম ॥৩২॥
 
 > alaukika vṛkṣa kare sarvendriya-karma
 > sthāvara ha-iyā dhare jaṅgamera dharma
@@ -18624,9 +14732,6 @@ It is our experience in the material world that trees stand in one place, but in
 
 ### CC Adi 9.33
 
-> এ বৃক্ষের অঙ্গ হয় সব সচেতন ।
-> বাড়িয়া ব্যাপিল সবে সকল ভুবন ॥৩৩॥
-
 > e vṛkṣera aṅga haya saba sa-cetana
 > bāḍiyā vyāpila sabe sakala bhuvana
 
@@ -18635,9 +14740,6 @@ It is our experience in the material world that trees stand in one place, but in
 **"All the parts of this tree are spiritually cognizant, and thus as they grow up they spread all over the world.**
 
 ### CC Adi 9.34
-
-> একলা মালাকার আমি কাহাঁ কাহাঁ যাব ।
-> একলা বা কত ফল পাড়িয়া বিলাব ॥৩৪॥
 
 > ekalā mālākāra āmi kāhāṅ kāhāṅ yāba
 > ekalā vā kata phala pāḍiyā vilāba
@@ -18650,9 +14752,6 @@ Here Śrī Caitanya Mahāprabhu indicates that the distribution of the Hare Kṛ
 
 ### CC Adi 9.35
 
-> একলা উঠাঞা দিতে হয় পরিশ্রম ।
-> কেহ পায়, কেহ না পায়, রহে মনে ভ্রম ॥৩৫॥
-
 > ekalā uṭhāñā dite haya pariśrama
 > keha pāya, keha nā pāya, rahe mane bhrama
 
@@ -18661,9 +14760,6 @@ Here Śrī Caitanya Mahāprabhu indicates that the distribution of the Hare Kṛ
 **"It would certainly be a very laborious task to pick the fruits and distribute them alone, and still I suspect that some would receive them and others would not.**
 
 ### CC Adi 9.36
-
-> অতএব আমি আজ্ঞা দিলুঁ সবাকারে ।
-> যাহাঁ তাহাঁ প্রেমফল দেহ’ যারে তারে ॥৩৬॥
 
 > ataeva āmi ājñā diluṅ sabākāre
 > yāhāṅ tāhāṅ prema-phala deha' yāre tāre
@@ -18684,9 +14780,6 @@ The *saṅkīrtana* movement has been introduced by Lord Caitanya Mahāprabhu ju
 
 ### CC Adi 9.37
 
-> একলা মালাকার আমি কত ফল খাব ।
-> না দিয়া বা এই ফল আর কি করিব ॥৩৭॥
-
 > ekalā mālākāra āmi kata phala khāba
 > nā diyā vā ei phala āra ki kariba
 
@@ -18705,9 +14798,6 @@ There were many precious incarnations of the Supreme Personality of Godhead, but
 
 ### CC Adi 9.38
 
-> আত্ম-ইচ্ছামৃতে বৃক্ষ সিঞ্চি নিরন্তর ।
-> তাহাতে অসংখ্য ফল বৃক্ষের উপর ॥৩৮॥
-
 > ātma-icchāmṛte vṛkṣa siñci nirantara
 > tāhāte asaṅkhya phala vṛkṣera upara
 
@@ -18718,9 +14808,6 @@ There were many precious incarnations of the Supreme Personality of Godhead, but
 God is unlimited, and His desires are also unlimited. This example of unlimited fruits is factually appropriate even within the material context, for with the good will of the Supreme Personality of Godhead there can be enough fruits, grains and other foodstuffs produced so that all the people in the world could not finish them, even if they ate ten times their capacity. In this material world there is actually no scarcity of anything but Kṛṣṇa consciousness. If people become Kṛṣṇa conscious, by the transcendental will of the Supreme Personality of Godhead there will be enough foodstuffs produced so that people will have no economic problems at all. One can very easily understand this fact. The production of fruits and flowers depends not upon our will but the supreme will of the Personality of Godhead. If He is pleased, He can supply enough fruits, flowers, etc., but if people are atheistic and godless, nature, by His will, restricts the supply of food. For example, in several provinces in India, especially Maharashtra, Uttar Pradesh and other adjoining states, there is sometimes a great scarcity of foodstuffs due to lack of rainfall. So-called scientists and economists cannot do anything about this. Therefore, to solve all problems, one must seek the good will of the Supreme Personality of Godhead by becoming Kṛṣṇa conscious and worshiping Him regularly in devotional service.
 
 ### CC Adi 9.39
-
-> অতএব সব ফল দেহ’ যারে তারে ।
-> খাইয়া হউক্ লোক অজর অমরে ॥৩৯॥
 
 > ataeva saba phala deha' yāre tāre
 > khāiyā ha-uk loka ajara amare
@@ -18733,9 +14820,6 @@ The Kṛṣṇa consciousness movement introduced by Lord Caitanya is extremely 
 
 ### CC Adi 9.40
 
-> জগৎ ব্যাপিয়া মোর হবে পুণ্য খ্যাতি ।
-> সুখী হইয়া লোক মোর গাহিবেক কীর্তি ॥৪০॥
-
 > jagat vyāpiyā mora habe puṇya khyāti
 > sukhī ha-iyā loka mora gāhibeka kīrti
 
@@ -18746,9 +14830,6 @@ The Kṛṣṇa consciousness movement introduced by Lord Caitanya is extremely 
 This prediction of Lord Caitanya Mahāprabhu's is now actually coming to pass. The Kṛṣṇa consciousness movement is being distributed all over the world through the chanting of the holy name of the Lord, the Hare Kṛṣṇa *mahā-mantra,* and people who were leading confused, chaotic lives are now feeling transcendental happiness. They are finding peace in *saṅkīrtana,* and therefore they are acknowledging the supreme benefit of this movement. This is the blessing of Lord Caitanya Mahāprabhu. His prediction is now factually being fulfilled, and those who are sober and conscientious are appreciating the value of this great movement.
 
 ### CC Adi 9.41
-
-> ভারত-ভূমিতে হৈল মনুষ্য-জন্ম যার ।
-> জন্ম সার্থক করি’ কর পর-উপকার ॥৪১॥
 
 > bhārata-bhūmite haila manuṣya janma yāra
 > janma sārthaka kari' kara para-upakāra
@@ -18769,9 +14850,6 @@ This is not only the duty of Indians but the duty of everyone, and we are very h
 
 ### CC Adi 9.42
 
-> এতাবজ্জন্মসাফল্যং দেহিনামিহ দেহিষু ।
-> প্রাণৈরর্থৈর্ধিয়া বাচা শ্রেয় আচরণং সদা ॥৪২॥
-
 > etāvaj janma-sāphalyaṁ
 > dehinām iha dehiṣu
 > prāṇair arthair dhiyā vācā
@@ -18790,9 +14868,6 @@ This verse cited by Śrī Caitanya Mahāprabhu applies to human beings, not to a
 The *Bhāgavatam* says that it is the duty of an advanced human being to act in such a way as to facilitate human society's attainment of the ultimate goal of life. There is a similar verse in the *Viṣṇu Purāṇa,* Part Three, Chapter Twelve, verse 45, which is quoted in this chapter of *Caitanya-caritāmṛta* as verse 43.
 
 ### CC Adi 9.43
-
-> প্রাণিনামুপকারায় যদেবেহ পরত্র চ ।
-> কর্মণা মনসা বাচা তদেব মতিমান্ ভজেৎ ॥৪৩॥
 
 > prāṇinām upakārāya
 > yad eveha paratra ca
@@ -18814,9 +14889,6 @@ Unfortunately, people in general do not know what is to take place in the next l
 
 ### CC Adi 9.44
 
-> মালী মনুষ্য আমার নাহি রাজ্য-ধন ।
-> ফল-ফুল দিয়া করি’ পুণ্য উপার্জন ॥৪৪॥
-
 > mālī manuṣya āmāra nāhi rājya-dhana
 > phala-phula diyā kari' puṇya upārjana
 
@@ -18837,9 +14909,6 @@ One cannot satisfy the Supreme Lord by his riches, wealth or opulent position, b
 
 ### CC Adi 9.45
 
-> মালী হঞা বৃক্ষ হইলাঙ এই ত’ ইচ্ছাতে ।
-> সর্বপ্রাণীর উপকার হয় বৃক্ষ হৈতে ॥৪৫॥
-
 > mālī hañā vṛkṣa ha-ilāṅ ei ta' icchāte
 > sarva-prāṇīra upakāra haya vṛkṣa haite
 
@@ -18850,9 +14919,6 @@ One cannot satisfy the Supreme Lord by his riches, wealth or opulent position, b
 Śrī Caitanya Mahāprabhu is the most benevolent personality in human society because His only desire is to make people happy. His *saṅkīrtana* movement is especially meant for the purpose of making people happy. He wanted to become the tree Himself because a tree is supposed to be the most benevolent living entity. In the following verse, which is from *Śrīmad-Bhāgavatam* (10.22.33), Kṛṣṇa Himself highly praised the existence of a tree.
 
 ### CC Adi 9.46
-
-> অহো এষাং বরং জন্ম সর্বপ্রাণ্যুপজীবিনাম্ ।
-> সুজনস্যেব যেষাং বৈ বিমুখা যান্তি নার্থিনঃ ॥৪৬॥
 
 > aho eṣāṁ varaṁ janma
 > sarva-prāṇy-upajīvinām
@@ -18871,9 +14937,6 @@ This verse, quoted from *Śrīmad-Bhāgavatam,* was spoken by Lord Kṛṣṇa t
 
 ### CC Adi 9.47
 
-> এই আজ্ঞা কৈল যদি চৈতন্য-মালাকার ।
-> পরম আনন্দ পাইল বৃক্ষ-পরিবার ॥৪৭॥
-
 > ei ājñā kaila yadi caitanya-mālākāra
 > parama ānanda pāila vṛkṣa-parivāra
 
@@ -18884,9 +14947,6 @@ This verse, quoted from *Śrīmad-Bhāgavatam,* was spoken by Lord Kṛṣṇa t
 It is the desire of Lord Caitanya Mahāprabhu that the benevolent activities of the *saṅkīrtana* movement, which was inaugurated five hundred years ago in Navadvīpa, be spread all over the world for the benefit of all human beings. Unfortunately, there are many so-called followers of Caitanya Mahāprabhu who are satisfied simply to construct a temple, make a show of the Deities, collect some funds and utilize them for eating and sleeping. There is no question of their preaching the cult of Śrī Caitanya Mahāprabhu all over the world. But even though they are unable to do so, if anyone else does it they become envious. This is the condition of the modern followers of Caitanya Mahāprabhu. The Age of Kali is so strong that it affects even the so-called followers of Lord Caitanya. At least the followers of Caitanya Mahāprabhu must come out of India to preach His cult all over the world, for this is the mission of Lord Caitanya. The followers of Lord Caitanya must execute His will with heart and soul, being more tolerant than the trees and humbler than the straw in the street.
 
 ### CC Adi 9.48
-
-> যেই যাহাঁ তাহাঁ দান করে প্রেমফল ।
-> ফলাস্বাদে মত্ত লোক হইল সকল ॥৪৮॥
 
 > yei yāhāṅ tāhāṅ dāna kare prema-phala
 > phalāsvāde matta loka ha-ila sakala
@@ -18899,9 +14959,6 @@ Here the wonderful fruit of love of Godhead distributed by Lord Caitanya Mahāpr
 
 ### CC Adi 9.49
 
-> মহা-মাদক প্রেমফল পেট ভরি’ খায় ।
-> মাতিল সকল লোক — হাসে, নাচে, গায় ॥৪৯॥
-
 > mahā-mādaka prema-phala peṭa bhari' khāya
 > mātila sakala loka—hāse, nāce, gāya
 
@@ -18910,9 +14967,6 @@ Here the wonderful fruit of love of Godhead distributed by Lord Caitanya Mahāpr
 **The fruit of love of Godhead distributed by Caitanya Mahāprabhu is such a great intoxicant that anyone who eats it, filling his belly, immediately becomes maddened by it, and automatically he chants, dances, laughs and enjoys.**
 
 ### CC Adi 9.50
-
-> কেহ গড়াগড়ি যায়, কেহ ত’ হুঙ্কার ।
-> দেখি’ আনন্দিত হঞা হাসে মালাকার ॥৫০॥
 
 > keha gaḍāgaḍi yāya, keha ta' huṅkāra
 > dekhi' ānandita hañā hāse mālākāra
@@ -18924,9 +14978,6 @@ Here the wonderful fruit of love of Godhead distributed by Lord Caitanya Mahāpr
 This attitude of Śrī Caitanya Mahāprabhu is very important for persons engaged in the Hare Kṛṣṇa movement of Kṛṣṇa consciousness. In every center of our institution, ISKCON, we have arranged for a love feast every Sunday, and when we actually see people come to our center, chant, dance, take *prasāda,* become jubilant and purchase books, we know that certainly Śrī Caitanya Mahāprabhu is always present in such transcendental activities, and He is very pleased and satisfied. Therefore the members of ISKCON must increase this movement more and more, according to the principles that we are presently trying to execute. Śrī Caitanya Mahāprabhu, thus being pleased, will smilingly glance upon them, bestowing His favor, and the movement will be successful.
 
 ### CC Adi 9.51
-
-> এই মালাকার খায় এই প্রেমফল ।
-> নিরবধি মত্ত রহে, বিবশ-বিহ্বল ॥৫১॥
 
 > ei mālākāra khāya ei prema-phala
 > niravadhi matta rahe, vivaśa-vihvala
@@ -18948,9 +14999,6 @@ While chanting the Hare Kṛṣṇa *mahā-mantra,* Śrī Caitanya Mahāprabhu s
 
 ### CC Adi 9.52
 
-> সর্বলোকে মত্ত কৈলা আপন-সমান ।
-> প্রেমে মত্ত লোক বিনা নাহি দেখি আন ॥৫২॥
-
 > sarva-loke matta kailā āpana-samāna
 > preme matta loka vinā nāhi dekhi āna
 
@@ -18959,9 +15007,6 @@ While chanting the Hare Kṛṣṇa *mahā-mantra,* Śrī Caitanya Mahāprabhu s
 **With His saṅkīrtana movement the Lord made everyone mad like Himself. We do not find anyone who was not intoxicated by His saṅkīrtana movement.**
 
 ### CC Adi 9.53
-
-> যে যে পূর্বে নিন্দা কৈল, বলি’ মাতোয়াল ।
-> সেহো ফল খায়, নাচে, বলে — ভাল, ভাল ॥৫৩॥
 
 > ye ye pūrve nindā kaila, bali' mātoyāla
 > seho phala khāya, nāce, bale—bhāla bhāla
@@ -18974,9 +15019,6 @@ When Lord Caitanya Mahāprabhu started the *saṅkīrtana* movement, even He was
 
 ### CC Adi 9.54
 
-> এই ত’ কহিলুঁ প্রেমফল-বিতরণ ।
-> এবে শুন, ফলদাতা যে যে শাখাগণ ॥৫৪॥
-
 > ei ta' kahiluṅ prema-phala-vitaraṇa
 > ebe śuna, phala-dātā ye ye śākhā-gaṇa
 
@@ -18985,9 +15027,6 @@ When Lord Caitanya Mahāprabhu started the *saṅkīrtana* movement, even He was
 **After describing the Lord's distribution of the fruit of love of Godhead, I now wish to describe the different branches of the tree of Lord Caitanya Mahāprabhu.**
 
 ### CC Adi 9.55
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৫৫॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -19002,9 +15041,6 @@ When Lord Caitanya Mahāprabhu started the *saṅkīrtana* movement, even He was
 
 ### CC Adi 10.1
 
-> শ্রীচৈতন্যপদাম্ভোজ-মধুপেভ্যো নমো নমঃ ।
-> কথঞ্চিদাশ্রয়াদ্ যেষাং শ্বাপি তদ্গন্ধভাগ্ভবেৎ ॥১॥
-
 > śrī-caitanya-padāmbhoja-
 > madhupebhyo namo namaḥ
 > kathañcid āśrayād yeṣāṁ
@@ -19018,9 +15054,6 @@ The example of a dog is very significant in this connection. A dog naturally doe
 
 ### CC Adi 10.2
 
-> জয় জয় শ্রীকৃষ্ণচৈতন্য-নিত্যানন্দ ।
-> জয়াদ্বৈতচন্দ্র জয় গৌরভক্তবৃন্দ ॥২॥
-
 > jaya jaya śrī-kṛṣṇa-caitanya-nityānanda
 > jayādvaitacandra jaya gaura-bhakta-vṛnda
 
@@ -19029,9 +15062,6 @@ The example of a dog is very significant in this connection. A dog naturally doe
 **All glories to Lord Caitanya Mahāprabhu and Lord Nityānanda! All glories to Advaita Prabhu, and all glories to the devotees of Lord Caitanya, headed by Śrīvāsa!**
 
 ### CC Adi 10.3
-
-> এই মালীর — এই বৃক্ষের অকথ্য কথন ।
-> এবে শুন মুখ্যশাখার নাম-বিবরণ ॥৩॥
 
 > ei mālīra—ei vṛkṣera akathya kathana
 > ebe śuna mukhya-śākhāra nāma-vivaraṇa
@@ -19042,9 +15072,6 @@ The example of a dog is very significant in this connection. A dog naturally doe
 
 ### CC Adi 10.4
 
-> চৈতন্য-গোসাঞির যত পারিষদচয় ।
-> গুরু-লঘু-ভাব তাঁর না হয় নিশ্চয় ॥৪॥
-
 > caitanya-gosāñira yata pāriṣada-caya
 > guru-laghu-bhāva tāṅra nā haya niścaya
 
@@ -19053,9 +15080,6 @@ The example of a dog is very significant in this connection. A dog naturally doe
 **The associates of Śrī Caitanya Mahāprabhu were many, but none of them should be considered lower or higher. This cannot be ascertained.**
 
 ### CC Adi 10.5
-
-> যত যত মহান্ত কৈলা তাঁ-সবার গণন ।
-> কেহ করিবারে নারে জ্যেষ্ঠ-লঘু-ক্রম ॥৫॥
 
 > yata yata mahānta kailā tāṅ-sabāra gaṇana
 > keha karibāre nāre jyeṣṭha-laghu-krama
@@ -19066,9 +15090,6 @@ The example of a dog is very significant in this connection. A dog naturally doe
 
 ### CC Adi 10.6
 
-> অতএব তাঁ-সবারে করি’ নমস্কার ।
-> নাম-মাত্র করি, দোষ না লবে আমার ॥৬॥
-
 > ataeva tāṅ-sabāre kari' namaskāra
 > nāma-mātra kari, doṣa nā labe āmāra
 
@@ -19077,9 +15098,6 @@ The example of a dog is very significant in this connection. A dog naturally doe
 **I offer my obeisances unto them as a token of respect. I request them not to consider my offenses.**
 
 ### CC Adi 10.7
-
-> বন্দে শ্রীকৃষ্ণচৈতন্য-প্রেমামরতরোঃ প্রিয়ান্ ।
-> শাখারূপান্ ভক্তগণান্ কৃষ্ণপ্রেমফলপ্রদান্ ॥৭॥
 
 > vande śrī-kṛṣṇa-caitanya-
 > premāmara-taroḥ priyān
@@ -19094,9 +15112,6 @@ The example of a dog is very significant in this connection. A dog naturally doe
 
 ### CC Adi 10.8
 
-> শ্রীবাস পণ্ডিত, আর শ্রীরাম পণ্ডিত ।
-> দুই ভাই — দুই শাখা, জগতে বিদিত ॥৮॥
-
 > śrīvāsa paṇḍita, āra śrī-rāma paṇḍita
 > dui bhāi—dui śākhā, jagate vidita
 
@@ -19108,9 +15123,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 90, Śrīvāsa Paṇḍita (Śrīvā
 
 ### CC Adi 10.9
 
-> শ্রীপতি, শ্রীনিধি — তাঁর দুই সহোদর  ।
-> চারি ভাইর দাস-দাসী, গৃহ-পরিকর ॥৯॥
-
 > śrīpati, śrīnidhi—tāṅra dui sahodara
 > cāri bhāira dāsa-dāsī, gṛha-parikara
 
@@ -19120,9 +15132,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 90, Śrīvāsa Paṇḍita (Śrīvā
 
 ### CC Adi 10.10
 
-> দুই শাখার উপশাখায় তাঁ-সবার গণন  ।
-> যাঁর গৃহে মহাপ্রভুর সদা সংকীর্তন ॥১০॥
-
 > dui śākhāra upaśākhāya tāṅ-sabāra gaṇana
 > yāṅra gṛhe mahāprabhura sadā saṅkīrtana
 
@@ -19131,9 +15140,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 90, Śrīvāsa Paṇḍita (Śrīvā
 **There is no counting the subbranches of these two branches. Śrī Caitanya Mahāprabhu held congregational chanting daily at the house of Śrīvāsa Paṇḍita.**
 
 ### CC Adi 10.11
-
-> চারি ভাই সবংশে করে চৈতন্যের সেবা ।
-> গৌরচন্দ্র বিনা নাহি জানে দেবী-দেবা ॥১১॥
 
 > cāri bhāi sa-vaṁśe kare caitanyera sevā
 > gauracandra vinā nāhi jāne devī-devā
@@ -19146,9 +15152,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 90, Śrīvāsa Paṇḍita (Śrīvā
 
 ### CC Adi 10.12
 
-> ‘আচার্যরত্ন’ নাম ধরে বড় এক শাখা ।
-> তাঁর পরিকর, তাঁর শাখা-উপশাখা ॥১২॥
-
 > 'ācāryaratna' nāma dhare baḍa eka śākhā
 > tāṅra parikara, tāṅra śākhā-upaśākhā
 
@@ -19157,9 +15160,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 90, Śrīvāsa Paṇḍita (Śrīvā
 **Another big branch was Ācāryaratna, and his associates were subbranches.**
 
 ### CC Adi 10.13
-
-> আচার্যরত্নের নাম ‘শ্রীচন্দ্রশেখর’ ।
-> যাঁর ঘরে দেবী-ভাবে নাচিলা ঈশ্বর ॥১৩॥
 
 > ācāryaratnera nāma 'śrī-candraśekhara'—
 > yāṅra ghare devī-bhāve nācilā īśvara
@@ -19174,9 +15174,6 @@ Dramatic performances were also enacted during the presence of Śrī Caitanya Ma
 
 ### CC Adi 10.14
 
-> পুণ্ডরীক বিদ্যানিধি — বড়শাখা জানি ।
-> যাঁর নাম লঞা প্রভু কান্দিলা আপনি ॥১৪॥
-
 > puṇḍarīka vidyānidhi—baḍa-śākhā jāni
 > yāṅra nāma lañā prabhu kāndilā āpani
 
@@ -19190,9 +15187,6 @@ In the *Gaura-gaṇoddeśa-dīpikā* Śrīla Puṇḍarīka Vidyānidhi is descr
 
 ### CC Adi 10.15
 
-> বড় শাখা, — গদাধর পণ্ডিত-গোসাঞি ।
-> তেঁহো লক্ষ্মীরূপা, তাঁর সম কেহ নাই ॥১৫॥
-
 > baḍa śākhā,—gadādhara paṇḍita-gosāñi
 > teṅho lakṣmī-rūpā, tāṅra sama keha nāi
 
@@ -19204,9 +15198,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verses 147 through 153, it is stated: "The
 
 ### CC Adi 10.16
 
-> তাঁর শিষ্য-উপশিষ্য, — তাঁর উপশাখা ।
-> এইমত সব শাখা-উপশাখার লেখা ॥১৬॥
-
 > tāṅra śiṣya-upaśiṣya,—tāṅra upaśākhā
 > eimata saba śākhā-upaśākhāra lekhā
 
@@ -19215,9 +15206,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verses 147 through 153, it is stated: "The
 **His disciples and granddisciples are his subbranches. To describe them all would be difficult.**
 
 ### CC Adi 10.17
-
-> বক্রেশ্বর পণ্ডিত — প্রভুর বড় প্রিয় ভৃত্য ।
-> এক-ভাবে চব্বিশ প্রহর যাঁর নৃত্য ॥১৭॥
 
 > vakreśvara paṇḍita—prabhura baḍa priya bhṛtya
 > eka-bhāve cabbiśa prahara yāṅra nṛtya
@@ -19230,9 +15218,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 71, it is stated that Vakreśvara Pa
 
 ### CC Adi 10.18
 
-> আপনে মহাপ্রভু গায় যাঁর নৃত্যকালে ।
-> প্রভুর চরণ ধরি’ বক্রেশ্বর বলে ॥১৮॥
-
 > āpane mahāprabhu gāya yāṅra nṛtya-kāle
 > prabhura caraṇa dhari' vakreśvara bale
 
@@ -19241,9 +15226,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 71, it is stated that Vakreśvara Pa
 **Śrī Caitanya Mahāprabhu personally sang while Vakreśvara Paṇḍita danced, and thus Vakreśvara Paṇḍita fell at the lotus feet of the Lord and spoke as follows.**
 
 ### CC Adi 10.19
-
-> “দশসহস্র গন্ধর্ব মোরে দেহ’ চন্দ্রমুখ ।
-> তারা গায়, মুঞি নাচোঁ — তবে মোর সুখ ।।” ॥ ১৯ ॥
 
 > "daśa-sahasra gandharva more deha' candramukha
 > tārā gāya, muñi nācoṅ—tabe mora sukha"
@@ -19256,9 +15238,6 @@ The Gandharvas, who are residents of Gandharvaloka, are celebrated as celestial 
 
 ### CC Adi 10.20
 
-> প্রভু বলে — তুমি মোর পক্ষ এক শাখা ।
-> আকাশে উড়িতাম যদি পাঙ আর পাখা ॥২০॥
-
 > prabhu bale—tumi mora pakṣa eka śākhā
 > ākāśe uḍitāma yadi pāṅ āra pākhā
 
@@ -19267,9 +15246,6 @@ The Gandharvas, who are residents of Gandharvaloka, are celebrated as celestial 
 **Lord Caitanya replied, "I have only one wing like you, but if I had another, certainly I would fly in the sky!"**
 
 ### CC Adi 10.21
-
-> পণ্ডিত জগদানন্দ প্রভুর প্রাণরূপ ।
-> লোকে খ্যাত যেঁহো সত্যভামার স্বরূপ ॥২১॥
 
 > paṇḍita jagadānanda prabhura prāṇa-rūpa
 > loke khyāta yeṅho satyabhāmāra svarūpa
@@ -19282,9 +15258,6 @@ There are many dealings of Jagadānanda Paṇḍita with Lord Śrī Caitanya Mah
 
 ### CC Adi 10.22
 
-> প্রীত্যে করিতে চাহে প্রভুর লালন-পালন ।
-> বৈরাগ্য-লোক-ভয়ে প্রভু না মানে কখন ॥২২॥
-
 > prītye karite cāhe prabhura lālana-pālana
 > vairāgya-loka-bhaye prabhu nā māne kakhana
 
@@ -19294,9 +15267,6 @@ There are many dealings of Jagadānanda Paṇḍita with Lord Śrī Caitanya Mah
 
 ### CC Adi 10.23
 
-> দুইজনে খট্মটি লাগায় কোন্দল ।
-> তাঁর প্রীত্যের কথা আগে কহিব সকল ॥২৩॥
-
 > dui-jane khaṭmaṭi lāgāya kondala
 > tāṅra prītyera kathā āge kahiba sakala
 
@@ -19305,9 +15275,6 @@ There are many dealings of Jagadānanda Paṇḍita with Lord Śrī Caitanya Mah
 **They sometimes appeared to fight over trifles, but these quarrels were based on their affection, of which I shall speak later.**
 
 ### CC Adi 10.24
-
-> রাঘব-পণ্ডিত — প্রভুর আদ্য-অনুচর ।
-> তাঁর এক শাখা মুখ্য, — মকরধ্বজ কর ॥২৪॥
 
 > rāghava-paṇḍita—prabhura ādya-anucara
 > tāṅra eka śākhā mukhya—makaradhvaja kara
@@ -19327,9 +15294,6 @@ Rāghava Paṇḍita was formerly a confidential *gopī* in Vraja during the tim
 
 ### CC Adi 10.25
 
-> তাঁহার ভগিনী দময়ন্তী প্রভুর প্রিয় দাসী ।
-> প্রভুর ভোগসামগ্রী যে করে বারমাসি ॥২৫॥
-
 > tāṅhāra bhaginī damayantī prabhura priya dāsī
 > prabhura bhoga-sāmagrī ye kare vāra-māsi
 
@@ -19341,9 +15305,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 167, it is mentioned, *guṇamālā 
 
 ### CC Adi 10.26
 
-> সে সব সামগ্রী যত ঝালিতে ভরিয়া ।
-> রাঘব লইয়া যা’ন গুপত করিয়া ॥২৬॥
-
 > se saba sāmagrī yata jhālite bhariyā
 > rāghava la-iyā yā'na gupata kariyā
 
@@ -19353,9 +15314,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 167, it is mentioned, *guṇamālā 
 
 ### CC Adi 10.27
 
-> বারমাস তাহা প্রভু করেন অঙ্গীকার ।
-> ‘রাঘবের ঝালি’ বলি’ প্রসিদ্ধি যাহার ॥২৭॥
-
 > vāra-māsa tāhā prabhu karena aṅgīkāra
 > 'rāghavera jhāli' bali' prasiddhi yāhāra
 
@@ -19364,9 +15322,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 167, it is mentioned, *guṇamālā 
 **The Lord accepted these foods throughout the entire year. That bag is still celebrated as rāghavera jhāli ["the bags of Rāghava Paṇḍita"].**
 
 ### CC Adi 10.28
-
-> সে-সব সামগ্রী আগে করিব বিস্তার ।
-> যাহার শ্রবণে ভক্তের বহে অশ্রুধার ॥২৮॥
 
 > se-saba sāmagrī āge kariba vistāra
 > yāhāra śravaṇe bhaktera vahe aśrudhāra
@@ -19379,9 +15334,6 @@ A vivid description of these *rāghavera jhāli* is to be found in Chapter Ten o
 
 ### CC Adi 10.29
 
-> প্রভুর অত্যন্ত প্রিয় — পণ্ডিত গঙ্গাদাস ।
-> যাঁহার স্মরণে হয় সর্ববন্ধ-নাশ ॥২৯॥
-
 > prabhura atyanta priya—paṇḍita gaṅgādāsa
 > yāṅhāra smaraṇe haya sarva-bandha-nāśa
 
@@ -19390,9 +15342,6 @@ A vivid description of these *rāghavera jhāli* is to be found in Chapter Ten o
 **Paṇḍita Gaṅgādāsa was the eighth dear branch of the tree of Śrī Caitanya Mahāprabhu. One who remembers his activities attains freedom from all bondage.**
 
 ### CC Adi 10.30
-
-> চৈতন্য-পার্ষদ — শ্রীআচার্য পুরন্দর ।
-> পিতা করি’ যাঁরে বলে গৌরাঙ্গসুন্দর ॥৩০॥
 
 > caitanya-pārṣada—śrī-ācārya purandara
 > pitā kari' yāṅre bale gaurāṅga-sundara
@@ -19405,9 +15354,6 @@ It is described in the *Caitanya-bhāgavata* that whenever Lord Caitanya Mahāpr
 
 ### CC Adi 10.31
 
-> দামোদরপণ্ডিত শাখা প্রেমেতে প্রচণ্ড ।
-> প্রভুর উপরে যেঁহো কৈল বাক্যদণ্ড ॥৩১॥
-
 > dāmodara-paṇḍita śākhā premete pracaṇḍa
 > prabhura upare yeṅho kaila vākya-daṇḍa
 
@@ -19416,9 +15362,6 @@ It is described in the *Caitanya-bhāgavata* that whenever Lord Caitanya Mahāpr
 **Dāmodara Paṇḍita, the tenth branch of the Caitanya tree, was so elevated in love of Lord Caitanya that he once unhesitatingly chastised the Lord with strong words.**
 
 ### CC Adi 10.32
-
-> দণ্ড-কথা কহিব আগে বিস্তার করিয়া ।
-> দণ্ডে তুষ্ট প্রভু তাঁরে পাঠাইলা নদীয়া ॥৩২॥
 
 > daṇḍa-kathā kahiba āge vistāra kariyā
 > daṇḍe tuṣṭa prabhu tāṅre pāṭhāilā nadīyā
@@ -19431,9 +15374,6 @@ Dāmodara Paṇḍita, who was formerly known as Śaibyā in Vraja-dhāma, used 
 
 ### CC Adi 10.33
 
-> তাঁহার অনুজ শাখা — শঙ্করপণ্ডিত ।
-> ‘প্রভু-পাদোপাধান’ যাঁর নাম বিদিত ॥৩৩॥
-
 > tāṅhāra anuja śākhā—śaṅkara-paṇḍita
 > 'prabhu-pādopādhāna' yāṅra nāma vidita
 
@@ -19442,9 +15382,6 @@ Dāmodara Paṇḍita, who was formerly known as Śaibyā in Vraja-dhāma, used 
 **The eleventh branch, the younger brother of Dāmodara Paṇḍita, was known as Śaṅkara Paṇḍita. He was celebrated as the shoes of the Lord.**
 
 ### CC Adi 10.34
-
-> সদাশিবপণ্ডিত যাঁর প্রভুপদে আশ ।
-> প্রথমেই নিত্যানন্দের যাঁর ঘরে বাস ॥৩৪॥
 
 > sadāśiva-paṇḍita yāṅra prabhu-pade āśa
 > prathamei nityānandera yāṅra ghare vāsa
@@ -19457,9 +15394,6 @@ It is mentioned in the *Caitanya-bhāgavata, Antya-līlā,* Chapter Nine, that S
 
 ### CC Adi 10.35
 
-> শ্রীনৃসিংহ-উপাসক — প্রদ্যুম্ন ব্রহ্মচারী ।
-> প্রভু তাঁর নাম কৈলা ‘নৃসিংহানন্দ’ করি’ ॥৩৫॥
-
 > śrī-nṛsiṁha-upāsaka—pradyumna brahmacārī
 > prabhu tāṅra nāma kailā 'nṛsiṁhānanda' kari'
 
@@ -19470,9 +15404,6 @@ It is mentioned in the *Caitanya-bhāgavata, Antya-līlā,* Chapter Nine, that S
 Pradyumna Brahmacārī is described in the *Antya-līlā,* Second Chapter, of *Śrī Caitanya-caritāmṛta.* He was a great devotee of Lord Caitanya's who changed his name to Nṛsiṁhānanda. While coming from the house of Rāghava Paṇḍita at Pānihāṭī to the house of Śivānanda, Lord Caitanya Mahāprabhu appeared in the heart of Nṛsiṁhānanda Brahmacārī. To acknowledge this, Nṛsiṁhānanda Brahmacārī used to accept as eatables the food of three Deities, namely, Jagannātha, Nṛsiṁhadeva and Lord Caitanya Mahāprabhu. This is stated in the *Caitanya-caritāmṛta, Antya-līlā,* Second Chapter, verses 48 through 78. Upon receiving information that Lord Caitanya Mahāprabhu was proceeding toward Vṛndāvana from Kuliyā, Nṛsiṁhānanda absorbed himself in meditation and by his mental activities began constructing a very nice road from Kuliyā to Vṛndāvana. All of a sudden, however, he broke his meditation and told the other devotees that this time Lord Caitanya Mahāprabhu would not go to Vṛndāvana but only as far as the place known as Kānāi Nāṭaśālā. This is described in the *Madhya-līlā,* Chapter One, verses 155 through 162. The *Gaura-gaṇoddeśa-dīpikā,* verse 74, says, *āveśaś ca tathājñeyo miśre pradyumna-saṁjñake:* Śrī Caitanya Mahāprabhu changed the name of Pradyumna Miśra, or Pradyumna Brahmacārī, to Nṛsiṁhānanda Brahmacārī, for in his heart Lord Nṛsiṁhadeva was manifest. It is said that Lord Nṛsiṁhadeva used to talk with him directly.
 
 ### CC Adi 10.36
-
-> নারায়ণ-পণ্ডিত এক বড়ই উদার ।
-> চৈতন্যচরণ বিনু নাহি জানে আর ॥৩৬॥
 
 > nārāyaṇa-paṇḍita eka baḍa-i udāra
 > caitanya-caraṇa vinu nāhi jāne āra
@@ -19485,9 +15416,6 @@ Nārāyaṇa Paṇḍita was one of the associates of Śrīvāsa Ṭhākura. It 
 
 ### CC Adi 10.37
 
-> শ্রীমান্পণ্ডিত শাখা — প্রভুর নিজ ভৃত্য ।
-> দেউটি ধরেন, যবে প্রভু করেন নৃত্য ॥৩৭॥
-
 > śrīmān-paṇḍita śākhā—prabhura nija bhṛtya
 > deuṭi dharena, yabe prabhu karena nṛtya
 
@@ -19498,9 +15426,6 @@ Nārāyaṇa Paṇḍita was one of the associates of Śrīvāsa Ṭhākura. It 
 Śrīmān Paṇḍita was among the companions of Lord Caitanya Mahāprabhu when the Lord performed *saṅkīrtana.* When Lord Caitanya dressed Himself in the form of the goddess Lakṣmī and danced in the streets of Navadvīpa, Śrīmān Paṇḍita carried a torch to light the way.
 
 ### CC Adi 10.38
-
-> শুক্লাম্বর-ব্রহ্মচারী বড় ভাগ্যবান্ ।
-> যাঁর অন্ন মাগি’ কাড়ি’ খাইলা ভগবান্ ॥৩৮॥
 
 > śuklāmbara-brahmacārī baḍa bhāgyavān
 > yāṅra anna māgi' kāḍi' khāilā bhagavān
@@ -19513,9 +15438,6 @@ It is stated that Suklāmbara Brahmacārī, an inhabitant of Navadvīpa, was Lor
 
 ### CC Adi 10.39
 
-> নন্দন-আচার্য-শাখা জগতে বিদিত ।
-> লুকাইয়া দুই প্রভুর যাঁর ঘরে স্থিত ॥৩৯॥
-
 > nandana-ācārya-śākhā jagate vidita
 > lukāiyā dui prabhura yāṅra ghare sthita
 
@@ -19526,9 +15448,6 @@ It is stated that Suklāmbara Brahmacārī, an inhabitant of Navadvīpa, was Lor
 Nandana Ācārya was another companion of Lord Caitanya Mahāprabhu during His *kīrtana* pastimes in Navadvīpa. Śrīla Nityānanda Prabhu, as Avadhūta, traveled on many pilgrimages, and when He first came to Śrī Navadvīpa-dhāma He remained hidden in the house of Nandana Ācārya. It is there that He first met all the devotees of Lord Caitanya Mahāprabhu. When Caitanya Mahāprabhu exhibited His *mahā-prakāśa,* He asked Rāmāi Paṇḍita to call Advaita Prabhu, who was hiding in the home of Nandana Ācārya, for Śrī Caitanya Mahāprabhu could understand that He was hiding. Similarly, Lord Caitanya also sometimes hid in the home of Nandana Ācārya. In this connection one may refer to *Śrī Caitanya-bhāgavata, Madhya-līlā* Chapters Six and Seventeen.
 
 ### CC Adi 10.40
-
-> শ্রীমুকুন্দ-দত্ত শাখা — প্রভুর সমাধ্যায়ী ।
-> যাঁহার কীর্তনে নাচে চৈতন্য-গোসাঞি ॥৪০॥
 
 > śrī-mukunda-datta śākhā—prabhura samādhyāyī
 > yāṅhāra kīrtane nāce caitanya-gosāñi
@@ -19552,9 +15471,6 @@ Before disclosing His desire to take the renounced order of life, Lord Caitanya 
 
 ### CC Adi 10.41
 
-> বাসুদেব দত্ত — প্রভুর ভৃত্য মহাশয় ।
-> সহস্র-মুখে যাঁর গুণ কহিলে না হয় ॥৪১॥
-
 > vāsudeva datta—prabhura bhṛtya mahāśaya
 > sahasra-mukhe yāṅra guṇa kahile nā haya
 
@@ -19568,9 +15484,6 @@ There is a railway station named Pūrvasthalī near the Navadvīpa railway stati
 
 ### CC Adi 10.42
 
-> জগতে যতেক জীব, তার পাপ লঞা ।
-> নরক ভুঞ্জিতে চাহে জীব ছাড়াইয়া ॥৪২॥
-
 > jagate yateka jīva, tāra pāpa lañā
 > naraka bhuñjite cāhe jīva chāḍāiyā
 
@@ -19579,9 +15492,6 @@ There is a railway station named Pūrvasthalī near the Navadvīpa railway stati
 **Śrīla Vāsudeva Datta Ṭhākura wanted to suffer for the sinful activities of all the people of the world so that Lord Caitanya Mahāprabhu might deliver them.**
 
 ### CC Adi 10.43
-
-> হরিদাসঠাকুর শাখার অদ্ভুত চরিত ।
-> তিন লক্ষ নাম তেঁহো লয়েন অপতিত ॥৪৩॥
 
 > haridāsa-ṭhākura śākhāra adbhuta carita
 > tina lakṣa nāma teṅho layena apatita
@@ -19594,9 +15504,6 @@ Certainly the chanting of 300,000 holy names of the Lord is wonderful. No ordina
 
 ### CC Adi 10.44
 
-> তাঁহার অনন্ত গুণ, — কহি দিঙ্মাত্র ।
-> আচার্য গোসাঞি যাঁরে ভুঞ্জায় শ্রাদ্ধপাত্র ॥৪৪॥
-
 > tāṅhāra ananta guṇa—kahi diṅmātra
 > ācārya gosāñi yāṅre bhuñjāya śrāddha-pātra
 
@@ -19605,9 +15512,6 @@ Certainly the chanting of 300,000 holy names of the Lord is wonderful. No ordina
 **There was no end to the transcendental qualities of Haridāsa Ṭhākura. Here I mention but a fraction of his qualities. He was so exalted that Advaita Gosvāmī, when performing the śrāddha ceremony of his father, offered him the first plate.**
 
 ### CC Adi 10.45
-
-> প্রহ্লাদ-সমান তাঁর গুণের তরঙ্গ ।
-> যবন-তাড়নেও যাঁর নাহিক ভ্রূভঙ্গ ॥৪৫॥
 
 > prahlāda-samāna tāṅra guṇera taraṅga
 > yavana-tāḍaneo yāṅra nāhika bhrū-bhaṅga
@@ -19618,9 +15522,6 @@ Certainly the chanting of 300,000 holy names of the Lord is wonderful. No ordina
 
 ### CC Adi 10.46
 
-> তেঁহো সিদ্ধি পাইলে তাঁর দেহ লঞা কোলে ।
-> নাচিল চৈতন্যপ্রভু মহাকুতূহলে ॥৪৬॥
-
 > teṅho siddhi pāile tāṅra deha lañā kole
 > nācila caitanya-prabhu mahā-kutūhale
 
@@ -19630,9 +15531,6 @@ Certainly the chanting of 300,000 holy names of the Lord is wonderful. No ordina
 
 ### CC Adi 10.47
 
-> তাঁর লীলা বর্ণিয়াছেন বৃন্দাবনদাস ।
-> যেবা অবশিষ্ট, আগে করিব প্রকাশ ॥৪৭॥
-
 > tāṅra līlā varṇiyāchena vṛndāvana-dāsa
 > yebā avaśiṣṭa, āge kariba prakāśa
 
@@ -19641,9 +15539,6 @@ Certainly the chanting of 300,000 holy names of the Lord is wonderful. No ordina
 **Śrīla Vṛndāvana dāsa Ṭhākura vividly described the pastimes of Haridāsa Ṭhākura in his Caitanya-bhāgavata. Whatever has remained undescribed I shall try to explain later in this book.**
 
 ### CC Adi 10.48
-
-> তাঁর উপশাখা, — যত কুলীনগ্রামী জন ।
-> সত্যরাজ-আদি — তাঁর কৃপার ভাজন ॥৪৮॥
 
 > tāṅra upaśākhā—yata kulīna-grāmī jana
 > satyarāja-ādi—tāṅra kṛpāra bhājana
@@ -19655,9 +15550,6 @@ Certainly the chanting of 300,000 holy names of the Lord is wonderful. No ordina
 Satyarāja Khān was the son of Guṇarāja Khān and father of Rāmānanda Vasu. Haridāsa Ṭhākura lived for some time during the Cāturmāsya period in the village named Kulīna-grāma, where he chanted the holy name, the Hare Kṛṣṇa *mahā-mantra,* and distributed his mercy to the descendants of the Vasu family. Satyarāja Khān was allotted the service of supplying silk ropes for the Jagannātha Deity during the Rathayātrā festival. The answers to his inquiries from Śrī Caitanya Mahāprabhu about the duty of householder devotees are vividly described in the *Madhya-līlā,* Chapters Fifteen and Sixteen. The village of Kulīna-grāma is situated two miles from the railway station named Jaugrāma on the Newcord line from Howrah to Burdwan. Lord Caitanya Mahāprabhu very highly praised the people of Kulīna-grāma, and He stated that even a dog of Kulīna-grāma was very dear to Him.
 
 ### CC Adi 10.49
-
-> শ্রীমুরারি গুপ্ত শাখা — প্রেমের ভাণ্ডার ।
-> প্রভুর হৃদয় দ্রবে শুনি’ দৈন্য যাঁর ॥৪৯॥
 
 > śrī-murāri gupta śākhā—premera bhāṇḍāra
 > prabhura hṛdaya drave śuni' dainya yāṅra
@@ -19672,9 +15564,6 @@ When Caitanya Mahāprabhu appeared in the house of Śrīvāsa Ṭhākura in His 
 
 ### CC Adi 10.50
 
-> প্রতিগ্রহ নাহি করে, না লয় কার ধন ।
-> আত্মবৃত্তি করি’ করে কুটুম্ব ভরণ ॥৫০॥
-
 > pratigraha nāhi kare, nā laya kāra dhana
 > ātma-vṛtti kari' kare kuṭumba bharaṇa
 
@@ -19685,9 +15574,6 @@ When Caitanya Mahāprabhu appeared in the house of Śrīvāsa Ṭhākura in His 
 It should be noted that a *gṛhastha* (householder) must not make his livelihood by begging from anyone. Every householder of the higher castes should engage himself in his own occupational duty as a *brāhmaṇa, kṣatriya* or *vaiśya,* but he should not engage in the service of others, for this is the duty of a *śūdra.* One should simply accept whatever he earns by his own profession. The engagements of a *brāhmaṇa* are *yajana, yājana, paṭhana, pāṭhana, dāna* and *pratigraha.* A *brāhmaṇa* should be a worshiper of Viṣṇu, and he should also instruct others how to worship Him. A *kṣatriya* can become a landholder and earn his livelihood by levying taxes or collecting rent from tenants. A *vaiśya* can accept agriculture or general trade as an occupational duty. Since Murāri Gupta was born in a physician's family (*vaidya-vaṁśa*), he practiced as a physician, and with whatever income he earned he maintained his family. As stated in *Śrīmad-Bhāgavatam,* everyone should execute his occupational duty, and thus he should satisfy the Supreme Personality of Godhead. That is the perfection of life. This system is called *daivī-varṇāśrama.* Murāri Gupta was an ideal *gṛhastha,* for he was a great devotee of Lord Rāmacandra and Caitanya Mahāprabhu. By practicing as a physician he maintained his family and at the same time satisfied Lord Caitanya to the best of his ability. This is the ideal of householder life.
 
 ### CC Adi 10.51
-
-> চিকিৎসা করেন যারে হইয়া সদয় ।
-> দেহরোগ ভবরোগ, — দুই তার ক্ষয় ॥৫১॥
 
 > cikitsā karena yāre ha-iyā sadaya
 > deha-roga bhāva-roga,—dui tāra kṣaya
@@ -19700,9 +15586,6 @@ Murāri Gupta could treat both bodily and spiritual disease because he was a phy
 
 ### CC Adi 10.52
 
-> শ্রীমান্ সেন প্রভুর সেবক প্রধান ।
-> চৈতন্য-চরণ বিনু নাহি জানে আন ॥৫২॥
-
 > śrīmān sena prabhura sevaka pradhāna
 > caitanya-caraṇa vinu nāhi jāne āna
 
@@ -19713,9 +15596,6 @@ Murāri Gupta could treat both bodily and spiritual disease because he was a phy
 Śrīmān Sena was one of the inhabitants of Navadvīpa and was a constant companion of Lord Caitanya Mahāprabhu.
 
 ### CC Adi 10.53
-
-> শ্রীগদাধর দাস শাখা সর্বোপরি ।
-> কাজীগণের মুখে যেঁহ বোলাইল হরি ॥৫৩॥
 
 > śrī-gadādhara dāsa śākhā sarvopari
 > kājī-gaṇera mukhe yeṅha bolāila hari
@@ -19750,9 +15630,6 @@ The tomb of Gadādhara dāsa Prabhu, which is in the village of Eṅḍiyādaha,
 
 ### CC Adi 10.54
 
-> শিবানন্দ সেন — প্রভুর ভৃত্য অন্তরঙ্গ ।
-> প্রভুস্থানে যাইতে সবে লয়েন যাঁর সঙ্গ ॥৫৪॥
-
 > śivānanda sena—prabhura bhṛtya antaraṅga
 > prabhu-sthāne yāite sabe layena yāṅra saṅga
 
@@ -19762,9 +15639,6 @@ The tomb of Gadādhara dāsa Prabhu, which is in the village of Eṅḍiyādaha,
 
 ### CC Adi 10.55
 
-> প্রতিবর্ষে প্রভুগণ সঙ্গেতে লইয়া ।
-> নীলাচলে চলেন পথে পালন করিয়া ॥৫৫॥
-
 > prativarṣe prabhu-gaṇa saṅgete lā-iyā
 > nīlācale calena pathe pālana kariyā
 
@@ -19773,9 +15647,6 @@ The tomb of Gadādhara dāsa Prabhu, which is in the village of Eṅḍiyādaha,
 **Every year he took a party of devotees from Bengal to Jagannātha Purī to visit Lord Caitanya. He maintained the entire party as they journeyed on the road.**
 
 ### CC Adi 10.56
-
-> ভক্তে কৃপা করেন প্রভু এ-তিন স্বরূপে ।
-> ‘সাক্ষাৎ’, ‘আবেশ’ আর ‘আবির্ভাব’-রূপে ॥৫৬॥
 
 > bhakte kṛpā karena prabhu e-tina svarūpe
 > 'sākṣāt,' 'āveśa' āra 'āvirbhāva'-rūpe
@@ -19788,9 +15659,6 @@ The *sākṣāt* feature of Śrī Caitanya Mahāprabhu is His personal presence.
 
 ### CC Adi 10.57
 
-> ‘সাক্ষাতে’ সকল ভক্ত দেখে নির্বিশেষ ।
-> নকুল ব্রহ্মচারি-দেহে প্রভুর ‘আবেশ’ ॥৫৭॥
-
 > 'sākṣāte' sakala bhakta dekhe nirviśeṣa
 > nakula brahmacāri-dehe prabhura 'āveśa'
 
@@ -19800,9 +15668,6 @@ The *sākṣāt* feature of Śrī Caitanya Mahāprabhu is His personal presence.
 
 ### CC Adi 10.58
 
-> ‘প্রদ্যুম্ন ব্রহ্মচারী’ তাঁর আগে নাম ছিল ।
-> ‘নৃসিংহানন্দ’ নাম প্রভু পাছে ত’ রাখিল ॥৫৮॥
-
 > 'pradyumna brahmacārī' tāṅra āge nāma chila
 > 'nṛsiṁhānanda' nāma prabhu pāche ta' rākhila
 
@@ -19811,9 +15676,6 @@ The *sākṣāt* feature of Śrī Caitanya Mahāprabhu is His personal presence.
 **The former Pradyumna Brahmacārī was given the name Nṛsiṁhānanda Brahmacārī by Śrī Caitanya Mahāprabhu.**
 
 ### CC Adi 10.59
-
-> তাঁহাতে হইল চৈতন্যের ‘আবির্ভাব’ ।
-> অলৌকিক ঐছে প্রভুর অনেক স্বভাব ॥৫৯॥
 
 > tāṅhāte ha-ila caitanyera 'āvirbhāva'
 > alaukika aiche prabhura aneka svabhāva
@@ -19827,9 +15689,6 @@ In the *Gaura-gaṇoddeśa-dīpikā* (74) it is said that Nakula Brahmacārī di
 Pradyumna Brahmacārī was formerly a resident of a village known as Piyārīgañja in Kālnā. There is a description of him in the *Antya-līlā* of *Śrī Caitanya-caritāmṛta,* Second Chapter, and in the *Antya-līlā* of *Śrī Caitanya-bhāgavata,* chapters Three and Nine.
 
 ### CC Adi 10.60
-
-> আস্বাদিল এ সব রস সেন শিবানন্দ ।
-> বিস্তারি’ কহিব আগে এসব আনন্দ ॥৬০॥
 
 > āsvādila e saba rasa sena śivānanda
 > vistāri' kahiba āge esaba ānanda
@@ -19848,9 +15707,6 @@ There was a nephew of Śivānanda Sena's named Śrīkānta who left the company 
 
 ### CC Adi 10.61
 
-> শিবানন্দের উপশাখা, তাঁর পরিকর ।
-> পুত্র-ভৃত্য-আদি করি’ চৈতন্য-কিঙ্কর ॥৬১॥
-
 > śivānandera upaśākhā, tāṅra parikara
 > putra-bhṛty-ādi kari' caitanya-kiṅkara
 
@@ -19859,9 +15715,6 @@ There was a nephew of Śivānanda Sena's named Śrīkānta who left the company 
 **The sons, servants and family members of Śivānanda Sena constituted a subbranch. They were all sincere servants of Lord Śrī Caitanya Mahāprabhu.**
 
 ### CC Adi 10.62
-
-> চৈতন্যদাস, রামদাস, আর কর্ণপূর ।
-> তিন পুত্র শিবানন্দের প্রভুর ভক্তশূর ॥৬২॥
 
 > caitanya-dāsa, rāmadāsa, āra karṇapūra
 > tina putra śivānandera prabhura bhakta-śūra
@@ -19874,9 +15727,6 @@ Caitanya dāsa, the eldest son of Śivānanda Sena, wrote a commentary on *Kṛ�
 
 ### CC Adi 10.63
 
-> শ্রীবল্লভসেন, আর সেন শ্রীকান্ত ।
-> শিবানন্দ-সম্বন্ধে প্রভুর ভক্ত একান্ত ॥৬৩॥
-
 > śrī-vallabhasena, āra sena śrīkānta
 > śivānanda-sambandhe prabhura bhakta ekānta
 
@@ -19887,9 +15737,6 @@ Caitanya dāsa, the eldest son of Śivānanda Sena, wrote a commentary on *Kṛ�
 When Lord Nityānanda Prabhu rebuked Śivānanda Sena on the way to Purī, these two nephews of Śivānanda left the company as a protest and went to see Śrī Caitanya Mahāprabhu at Jagannātha Purī. The Lord could understand the feelings of the boys, and He asked His personal assistant Govinda to supply them *prasāda* until the party of Śivānanda arrived. During the Ratha-yātrā *saṅkīrtana* festival these two brothers were members of the party led by Mukunda. In the *Gaura-gaṇoddeśa-dīpikā,* verse 174, it is said that the *gopī* whose name was Kātyāyanī appeared as Śrīkānta Sena.
 
 ### CC Adi 10.64
-
-> প্রভুপ্রিয় গোবিন্দানন্দ মহাভাগবত ।
-> প্রভুর কীর্তনীয়া আদি শ্রীগোবিন্দ দত্ত ॥৬৪॥
 
 > prabhu-priya govindānanda mahābhāgavata
 > prabhura kīrtanīyā ādi śrī-govinda datta
@@ -19902,9 +15749,6 @@ Govinda Datta appeared in the village of Sukhacara near Khaḍadaha.
 
 ### CC Adi 10.65
 
-> শ্রীবিজয়দাস-নাম প্রভুর আখরিয়া ।
-> প্রভুরে অনেক পুঁথি দিয়াছে লিখিয়া ॥৬৫॥
-
 > śrī-vijaya-dāsa-nāma prabhura ākhariyā
 > prabhure aneka puṅthi diyāche likhiyā
 
@@ -19916,9 +15760,6 @@ Formerly there were no printing presses or printed books. All books were handwri
 
 ### CC Adi 10.66
 
-> ‘রত্নবাহু’ বলি’ প্রভু থুইল তাঁর নাম ।
-> অকিঞ্চন প্রভুর প্রিয় কৃষ্ণদাস-নাম ॥৬৬॥
-
 > 'ratnabāhu' bali' prabhu thuila tāṅra nāma
 > akiñcana prabhura priya kṛṣṇadāsa-nāma
 
@@ -19929,9 +15770,6 @@ Formerly there were no printing presses or printed books. All books were handwri
 *Akiñcana* means "one who possesses nothing in this world."
 
 ### CC Adi 10.67
-
-> খোলা-বেচা শ্রীধর প্রভুর প্রিয়দাস ।
-> যাঁহা-সনে প্রভু করে নিত্য পরিহাস ॥৬৭॥
 
 > kholā-vecā śrīdhara prabhura priya-dāsa
 > yāṅhā-sane prabhu kare nitya parihāsa
@@ -19951,9 +15789,6 @@ Formerly there were no printing presses or printed books. All books were handwri
 
 ### CC Adi 10.68
 
-> প্রভু যাঁর নিত্য লয় থোড়-মোচা-ফল ।
-> যাঁর ফুটা-লৌহপাত্রে প্রভু পিলা জল ॥৬৮॥
-
 > prabhu yāṅra nitya laya thoḍa-mocā-phala
 > yāṅra phuṭā-lauhapātre prabhu pilā jala
 
@@ -19963,9 +15798,6 @@ Formerly there were no printing presses or printed books. All books were handwri
 
 ### CC Adi 10.69
 
-> প্রভুর অতিপ্রিয় দাস ভগবান্ পণ্ডিত ।
-> যাঁর দেহে কৃষ্ণ পূর্বে হৈলা অধিষ্ঠিত ॥৬৯॥
-
 > prabhura atipriya dāsa bhagavān paṇḍita
 > yāṅra dehe kṛṣṇa pūrve hailā adhiṣṭhita
 
@@ -19974,9 +15806,6 @@ Formerly there were no printing presses or printed books. All books were handwri
 **The thirtieth branch was Bhagavān Paṇḍita. He was an extremely dear servant of the Lord, but even previously he was a great devotee of Lord Kṛṣṇa who always kept the Lord within his heart.**
 
 ### CC Adi 10.70
-
-> জগদীশ পণ্ডিত, আর হিরণ্য মহাশয় ।
-> যারে কৃপা কৈল বাল্যে প্রভু দয়াময় ॥৭০॥
 
 > jagadīśa paṇḍita, āra hiraṇya mahāśaya
 > yāre kṛpā kaila bālye prabhu dayāmaya
@@ -19989,9 +15818,6 @@ Jagadīśa Paṇḍita was formerly a great dancer in *kṛṣṇa-līla* and wa
 
 ### CC Adi 10.71
 
-> এই দুই-ঘরে প্রভু একাদশী দিনে ।
-> বিষ্ণুর নৈবেদ্য মাগি’ খাইল আপনে ॥৭১॥
-
 > ei dui-ghare prabhu ekādaśī dine
 > viṣṇura naivedya māgi' khāila āpane
 
@@ -20002,9 +15828,6 @@ Jagadīśa Paṇḍita was formerly a great dancer in *kṛṣṇa-līla* and wa
 The injunction to fast on Ekādaśī is especially meant for devotees; on Ekādaśī there are no restrictions regarding food that may be offered to the Lord. Lord Śrī Caitanya Mahāprabhu took the food of Lord Viṣṇu in His ecstasy as *viṣṇu-tattva.*
 
 ### CC Adi 10.72
-
-> প্রভুর পড়ুয়া দুই, — পুরুষোত্তম, সঞ্জয় ।
-> ব্যাকরণে দুই শিষ্য — দুই মহাশয় ॥৭২॥
 
 > prabhura paḍuyā dui,—puruṣottama, sañjaya
 > vyākaraṇe dui śiṣya—dui mahāśaya
@@ -20017,9 +15840,6 @@ These two students were inhabitants of Navadvīpa and were the Lord's first comp
 
 ### CC Adi 10.73
 
-> বনমালী পণ্ডিত শাখা বিখ্যাত জগতে ।
-> সোণার মুষল হল দেখিল প্রভুর হাতে ॥৭৩॥
-
 > vanamālī paṇḍita śākhā vikhyāta jagate
 > soṇāra muṣala hala dekhila prabhura hāte
 
@@ -20030,9 +15850,6 @@ These two students were inhabitants of Navadvīpa and were the Lord's first comp
 Vanamālī Paṇḍita saw Lord Caitanya in the ecstasy of Balarāma. This is described vividly in the *Caitanya-bhāgavata, Antya-līlā,* Chapter Nine.
 
 ### CC Adi 10.74
-
-> শ্রীচৈতন্যের অতি প্রিয় বুদ্ধিমন্ত খান্ ।
-> আজন্ম আজ্ঞাকারী তেঁহো সেবক-প্রধান ॥৭৪॥
 
 > śrī-caitanyera ati priya buddhimanta khān
 > ājanma ājñākārī teṅho sevaka-pradhāna
@@ -20045,9 +15862,6 @@ Vanamālī Paṇḍita saw Lord Caitanya in the ecstasy of Balarāma. This is de
 
 ### CC Adi 10.75
 
-> গরুড় পণ্ডিত লয় শ্রীনাম-মঙ্গল ।
-> নাম-বলে বিষ যাঁরে না করিল বল ॥৭৫॥
-
 > garuḍa paṇḍita laya śrīnāma-maṅgala
 > nāma-bale viṣa yāṅre nā karila bala
 
@@ -20058,9 +15872,6 @@ Vanamālī Paṇḍita saw Lord Caitanya in the ecstasy of Balarāma. This is de
 Garuḍa Paṇḍita was once bitten by a poisonous snake, but the snake's poison could not affect him because of his chanting the Hare Kṛṣṇa *mahā-mantra.*
 
 ### CC Adi 10.76
-
-> গোপীনাথ সিংহ — এক চৈতন্যের দাস ।
-> অক্রূর বলি’ প্রভু যাঁরে কৈলা পরিহাস ॥৭৬॥
 
 > gopīnātha siṁha—eka caitanyera dāsa
 > akrūra bali' prabhu yāṅre kailā parihāsa
@@ -20073,9 +15884,6 @@ Actually he was Akrūra, as stated in the *Gaura-gaṇoddeśa-dīpikā,* verse 1
 
 ### CC Adi 10.77
 
-> ভাগবতী দেবানন্দ বক্রেশ্বর-কৃপাতে ।
-> ভাগবতের ভক্তি-অর্থ পাইল প্রভু হৈতে ॥৭৭॥
-
 > bhāgavatī devānanda vakreśvara-kṛpāte
 > bhāgavatera bhakti-artha pāila prabhu haite
 
@@ -20086,11 +15894,6 @@ Actually he was Akrūra, as stated in the *Gaura-gaṇoddeśa-dīpikā,* verse 1
 In the *Caitanya-bhāgavata, Madhya-līlā,* Chapter Twenty-one, it is stated that Devānanda Paṇḍita and Sārvabhauma Bhaṭṭācārya's father, Viśārada, lived in the same village. Devānanda Paṇḍita was a professional reciter of *Śrīmad-Bhāgavatam,* but Lord Caitanya Mahāprabhu did not like his interpretation of it. In the present town of Navadvīpa, which was formerly known as Kuliyā, Lord Caitanya showed such mercy to him that he gave up the Māyāvādī interpretation of *Śrīmad-Bhāgavatam* and learned how to explain *Śrīmad-Bhāgavatam* in terms of *bhakti.* Formerly, when Devānanda was expounding the Māyāvādī interpretation, Śrīvāsa Ṭhākura was once present in his meeting, and when he began to cry, Devānanda's students drove him away. Some days later, Caitanya Mahāprabhu passed that way, and when He met Devānanda He chastised him severely because of his Māyāvāda interpretation of *Śrīmad-Bhāgavatam.* At that time Devānanda had little faith in Śrī Caitanya Mahāprabhu as an incarnation of Lord Kṛṣṇa, but one night some time later Vakreśvara Paṇḍita was a guest in his house, and when he explained the science of Kṛṣṇa, Devānanda was convinced about the identity of Lord Caitanya Mahāprabhu. Thus he was induced to explain *Śrīmad-Bhāgavatam* according to the Vaiṣṇava understanding In the *Gaura-gaṇoddeśa-dīpikā,* verse 106, it is described that he was formerly Bhāguri Muni, who was the *sabhā-paṇḍita* who recited Vedic literature in the house of Nanda Mahārāja.
 
 ### CC Adi 10.78-79
-
-> খণ্ডবাসী মুকুন্দদাস, শ্রীরঘুনন্দন ।
-> নরহরিদাস, চিরঞ্জীব, সুলোচন ॥৭৮॥
-> এই সব মহাশাখা — চৈতন্য-কৃপাধাম ।
-> প্রেম-ফল-ফুল করে যাহাঁ তাহাঁ দান ॥৭৯॥
 
 > khaṇḍavāsī mukunda-dāsa, śrī-raghunandana
 > narahari-dāsa, cirañjīva, sulocana
@@ -20110,9 +15913,6 @@ Cirañjīva and Sulocana were both residents of Śrīkhaṇḍa, where their des
 
 ### CC Adi 10.80
 
-> কুলীনগ্রামবাসী সত্যরাজ, রামানন্দ ।
-> যদুনাথ, পুরুষোত্তম, শঙ্কর, বিদ্যানন্দ ॥৮০॥
-
 > kulīnagrāma-vāsī satyarāja, rāmānanda
 > yadunātha, puruṣottama, śaṅkara, vidyānanda
 
@@ -20121,9 +15921,6 @@ Cirañjīva and Sulocana were both residents of Śrīkhaṇḍa, where their des
 **Satyarāja, Rāmānanda, Yadunātha, Puruṣottama, Śaṅkara and Vidyānanda all belonged to the twentieth branch. They were inhabitants of the village known as Kulīna-grāma.**
 
 ### CC Adi 10.81
-
-> বাণীনাথ বসু আদি যত গ্রামী জন ।
-> সবেই চৈতন্যভৃত্য, — চৈতন্য-প্রাণধন ॥৮১॥
 
 > vāṇīnātha vasu ādi yata grāmī jana
 > sabei caitanya-bhṛtya,—caitanya-prāṇadhana
@@ -20134,9 +15931,6 @@ Cirañjīva and Sulocana were both residents of Śrīkhaṇḍa, where their des
 
 ### CC Adi 10.82
 
-> প্রভু কহে, কুলীনগ্রামের যে হয় কুক্কুর ।
-> সেই মোর প্রিয়, অন্য জন রহু দূর ॥৮২॥
-
 > prabhu kahe, kulīnagrāmera ye haya kukkura
 > sei mora priya, anya jana rahu dūra
 
@@ -20146,9 +15940,6 @@ Cirañjīva and Sulocana were both residents of Śrīkhaṇḍa, where their des
 
 ### CC Adi 10.83
 
-> কুলীনগ্রামীর ভাগ্য কহনে না যায় ।
-> শূকর চরায় ডোম, সেহ কৃষ্ণ গায় ॥৮৩॥
-
 > kulīnagrāmīra bhāgya kahane nā yāya
 > śūkara carāya ḍoma, seha kṛṣṇa gāya
 
@@ -20157,9 +15948,6 @@ Cirañjīva and Sulocana were both residents of Śrīkhaṇḍa, where their des
 **"No one can describe the fortunate position of Kulīna-grāma. It is so sublime that even sweepers who tend their hogs there also chant the Hare Kṛṣṇa mahā-mantra."**
 
 ### CC Adi 10.84
-
-> অনুপম-বল্লভ, শ্রীরূপ, সনাতন ।
-> এই তিন শাখা বৃক্ষের পশ্চিমে সর্বোত্তম ॥৮৪॥
 
 > anupama-vallabha, śrī-rūpa, sanātana
 > ei tina śākhā vṛkṣera paścime sarvottama
@@ -20194,9 +15982,6 @@ The place where Śrī Rūpa Gosvāmī and Sanātana Gosvāmī formerly lived has
 
 ### CC Adi 10.85
 
-> তাঁর মধ্যে রূপ-সনাতন — বড় শাখা ।
-> অনুপম, জীব, রাজেন্দ্রাদি উপশাখা ॥৮৫॥
-
 > tāṅra madhye rūpa-sanātana—baḍa śākhā
 > anupama, jīva, rājendrādi upaśākhā
 
@@ -20221,9 +16006,6 @@ According to another accusation, Śrīla Jīva Gosvāmī did not approve of the 
 
 ### CC Adi 10.86
 
-> মালীর ইচ্ছায় শাখা বহুত বাড়িল ।
-> বাড়িয়া পশ্চিম দেশ সব আচ্ছাদিল ॥৮৬॥
-
 > mālīra icchāya śākhā bahuta bāḍila
 > bāḍiyā paścima deśa saba ācchādila
 
@@ -20232,9 +16014,6 @@ According to another accusation, Śrīla Jīva Gosvāmī did not approve of the 
 **By the will of the supreme gardener, the branches of Śrīla Rūpa Gosvāmī and Sanātana Gosvāmī grew many times over, expanding throughout the western countries and covering the entire region.**
 
 ### CC Adi 10.87
-
-> আ-সিন্ধুনদী-তীর আর হিমালয় ।
-> বৃন্দাবন-মথুরাদি যত তীর্থ হয় ॥৮৭॥
 
 > ā-sindhunadī-tīra āra himālaya
 > vṛndāvana-mathurādi yata tīrtha haya
@@ -20245,9 +16024,6 @@ According to another accusation, Śrīla Jīva Gosvāmī did not approve of the 
 
 ### CC Adi 10.88
 
-> দুই শাখার প্রেমফলে সকল ভাসিল ।
-> প্রেমফলাস্বাদে লোক উন্মত্ত হইল ॥৮৮॥
-
 > dui śākhāra prema-phale sakala bhāsila
 > prema-phalāsvāde loka unmatta ha-ila
 
@@ -20256,9 +16032,6 @@ According to another accusation, Śrīla Jīva Gosvāmī did not approve of the 
 **The fruits of love of Godhead which fructified on these two branches were distributed in abundance. Tasting these fruits, everyone became mad after them.**
 
 ### CC Adi 10.89
-
-> পশ্চিমের লোক সব মূঢ় অনাচার ।
-> তাহাঁ প্রচারিল দোঁহে ভক্তি-সদাচার ॥৮৯॥
 
 > paścimera loka saba mūḍha anācāra
 > tāhāṅ pracārila doṅhe bhakti-sadācāra
@@ -20271,9 +16044,6 @@ Although it is not only in western India that people were contaminated by associ
 
 ### CC Adi 10.90
 
-> শাস্ত্রদৃষ্ট্যে কৈল লুপ্ততীর্থের উদ্ধার ।
-> বৃন্দাবনে কৈল শ্রীমূর্তি-সেবার প্রচার ॥৯০॥
-
 > śāstra-dṛṣṭye kaila lupta-tīrthera uddhāra
 > vṛndāvane kaila śrīmūrti-sevāra pracāra
 
@@ -20284,9 +16054,6 @@ Although it is not only in western India that people were contaminated by associ
 The spot where we now find Śrī Rādhā-kuṇḍa was an agricultural field during the time of Caitanya Mahāprabhu. A small reservoir of water was there, and Śrī Caitanya Mahāprabhu bathed in that water and pointed out that originally Rādhā-kuṇḍa existed in that location. Following His directions, Śrīla Rūpa Gosvāmī and Sanātana Gosvāmī renovated Rādhā-kuṇḍa. This is one of the brilliant examples of how the Gosvāmīs excavated lost places of pilgrimage. Similarly, it is through the endeavor of the Gosvāmīs that all the important temples at Vṛndāvana were established. Originally there were seven important Gauḍīya Vaiṣṇava temples established in Vṛndāvana, namely, the Madana-mohana temple, Govinda temple, Gopīnātha temple, Śrī Rādhāramaṇa temple, Rādhā-Śyāmasundara temple, Rādhā-Dāmodara temple and Gokulānanda temple.
 
 ### CC Adi 10.91
-
-> মহাপ্রভুর প্রিয় ভৃত্য — রঘুনাথদাস  ।
-> ॥৯১॥
 
 > mahāprabhura priya bhṛtya—raghunātha-dāsa
 > sarva tyaji' kaila prabhura pada-tale vāsa
@@ -20301,9 +16068,6 @@ The forefathers of Śrīla Raghunātha dāsa Gosvāmī were all Vaiṣṇavas an
 
 ### CC Adi 10.92
 
-> প্রভু সমর্পিল তাঁরে স্বরূপের হাতে ।
-> প্রভুর গুপ্তসেবা কৈল স্বরূপের সাথে ॥৯২॥
-
 > prabhu samarpila tāṅre svarūpera hāte
 > prabhura gupta-sevā kaila svarūpera sāthe
 
@@ -20315,9 +16079,6 @@ This confidential service was the personal care of the Lord. Svarūpa Dāmodara,
 
 ### CC Adi 10.93
 
-> ষোড়শ বৎসর কৈল অন্তরঙ্গা-সেবন ।
-> স্বরূপের অন্তর্ধানে আইলা বৃন্দাবন ॥৯৩॥
-
 > ṣoḍaśa vatsara kaila antaraṅga-sevana
 > svarūpera antardhāne āilā vṛndāvana
 
@@ -20326,9 +16087,6 @@ This confidential service was the personal care of the Lord. Svarūpa Dāmodara,
 **He rendered confidential service to the Lord for sixteen years at Jagannātha Purī, and after the disappearance of both the Lord and Svarūpa Dāmodara, he left Jagannātha Purī and went to Vṛndāvana.**
 
 ### CC Adi 10.94
-
-> বৃন্দাবনে দুই ভাইর চরণ দেখিয়া ।
-> গোবর্ধনে ত্যজিব দেহ ভৃগুপাত করিয়া ॥৯৪॥
 
 > vṛndāvane dui bhāira caraṇa dekhiyā
 > govardhane tyajiba deha bhṛgupāta kariyā
@@ -20341,9 +16099,6 @@ Jumping from the top of Govardhana Hill is a system of suicide especially perfor
 
 ### CC Adi 10.95
 
-> এই ত’ নিশ্চয় করি’ আইল বৃন্দাবনে ।
-> আসি’ রূপ-সনাতনের বন্দিল চরণে ॥৯৫॥
-
 > ei ta' niścaya kari' āila vṛndāvane
 > āsi' rūpa-sanātanera vandila caraṇe
 
@@ -20352,9 +16107,6 @@ Jumping from the top of Govardhana Hill is a system of suicide especially perfor
 **Thus Śrīla Raghunātha dāsa Gosvāmī came to Vṛndāvana, visited Śrīla Rūpa Gosvāmī and Sanātana Gosvāmī and offered them his obeisances.**
 
 ### CC Adi 10.96
-
-> তবে দুই ভাই তাঁরে মরিতে না দিল ।
-> নিজ তৃতীয় ভাই করি’ নিকটে রাখিল ॥৯৬॥
 
 > tabe dui bhāi tāṅre marite nā dila
 > nija tṛtīya bhāi kari' nikaṭe rākhila
@@ -20365,9 +16117,6 @@ Jumping from the top of Govardhana Hill is a system of suicide especially perfor
 
 ### CC Adi 10.97
 
-> মহাপ্রভুর লীলা যত বাহির-অন্তর ।
-> দুই ভাই তাঁর মুখে শুনে নিরন্তর ॥৯৭॥
-
 > mahāprabhura līlā yata bāhira-antara
 > dui bhāi tāṅra mukhe śune nirantara
 
@@ -20376,9 +16125,6 @@ Jumping from the top of Govardhana Hill is a system of suicide especially perfor
 **Because Raghunātha dāsa Gosvāmī was an assistant to Svarūpa Dāmodara, he knew much about the external and internal features of the pastimes of Lord Caitanya. Thus the two brothers Rūpa and Sanātana always used to hear of this from him.**
 
 ### CC Adi 10.98
-
-> অন্ন-জল ত্যাগ কৈল অন্য-কথন ।
-> পল দুই-তিন মাঠা করেন ভক্ষণ ॥৯৮॥
 
 > anna-jala tyāga kaila anya-kathana
 > pala dui-tina māṭhā karena bhakṣaṇa
@@ -20389,9 +16135,6 @@ Jumping from the top of Govardhana Hill is a system of suicide especially perfor
 
 ### CC Adi 10.99
 
-> সহস্র দণ্ডবৎ করে, লয় লক্ষ নাম ।
-> দুই সহস্র বৈষ্ণবেরে নিত্য পরণাম ॥৯৯॥
-
 > sahasra daṇḍavat kare, laya lakṣa nāma
 > dui sahasra vaiṣṇavere nitya paraṇāma
 
@@ -20400,9 +16143,6 @@ Jumping from the top of Govardhana Hill is a system of suicide especially perfor
 **As a daily duty, he regularly offered one thousand obeisances to the Lord, chanted at least one hundred thousand holy names and offered obeisances to two thousand Vaiṣṇavas.**
 
 ### CC Adi 10.100
-
-> রাত্রিদিনে রাধাকৃষ্ণের মানস সেবন ।
-> প্রহরেক মহাপ্রভুর চরিত্র-কথন ॥১০০॥
 
 > rātri-dine rādhā-kṛṣṇera mānasa sevana
 > prahareka mahāprabhura caritra-kathana
@@ -20415,9 +16155,6 @@ We have many things to learn about *bhajana,* or worship of the Lord, by followi
 
 ### CC Adi 10.101
 
-> তিন সন্ধ্যা রাধাকুণ্ডে অপতিত স্নান ।
-> ব্রজবাসী বৈষ্ণবে করে আলিঙ্গন মান ॥১০১॥
-
 > tina sandhyā rādhā-kuṇḍe apatita snāna
 > vraja-vāsī vaiṣṇave kare āliṅgana māna
 
@@ -20427,9 +16164,6 @@ We have many things to learn about *bhajana,* or worship of the Lord, by followi
 
 ### CC Adi 10.102
 
-> সার্ধ সপ্তপ্রহর করে ভক্তির সাধনে ।
-> চারি দণ্ড নিদ্রা, সেহ নহে কোনদিনে ॥১০২॥
-
 > sārdha sapta-prahara kare bhaktira sādhane
 > cāri daṇḍa nidrā, seha nahe kona-dine
 
@@ -20438,9 +16172,6 @@ We have many things to learn about *bhajana,* or worship of the Lord, by followi
 **He engaged himself in devotional service for more than twenty-two and a half hours a day, and for less than two hours he slept, although on some days that also was not possible.**
 
 ### CC Adi 10.103
-
-> তাঁহার সাধনরীতি শুনিতে চমৎকার ।
-> সেই রূপ-রঘুনাথ প্রভু যে আমার ॥১০৩॥
 
 > tāṅhāra sādhana-rīti śunite camatkāra
 > sei rūpa-raghunātha prabhu ye āmāra
@@ -20453,9 +16184,6 @@ We have many things to learn about *bhajana,* or worship of the Lord, by followi
 
 ### CC Adi 10.104
 
-> ইঁহা-সবার যৈছে হৈল প্রভুর মিলন ।
-> আগে বিস্তারিয়া তাহা করিব বর্ণন ॥১০৪॥
-
 > iṅhā-sabāra yaiche haila prabhura milana
 > āge vistāriyā tāhā kariba varṇana
 
@@ -20464,9 +16192,6 @@ We have many things to learn about *bhajana,* or worship of the Lord, by followi
 **I shall later explain very elaborately how all these devotees met Śrī Caitanya Mahāprabhu.**
 
 ### CC Adi 10.105
-
-> শ্রীগোপাল ভট্ট এক শাখা সর্বোত্তম ।
-> রূপ-সনাতন-সঙ্গে যাঁর প্রেম-আলাপন ॥১০৫॥
 
 > śrī-gopāla bhaṭṭa eka śākhā sarvottama
 > rūpa-sanātana-saṅge yāṅra prema-ālāpana
@@ -20481,9 +16206,6 @@ When Kṛṣṇadāsa Kavirāja Gosvāmī took permission from all the Vaiṣṇ
 
 ### CC Adi 10.106
 
-> শঙ্করারণ্য — আচার্য-বৃক্ষের এক শাখা ।
-> মুকুন্দ, কাশীনাথ, রুদ্র, — উপশাখা লেখা ॥১০৬॥
-
 > śaṅkarāraṇya—ācārya-vṛkṣera eka śākhā
 > mukunda, kāśīnātha, rudra—upaśākhā lekhā
 
@@ -20497,9 +16219,6 @@ Lord Caitanya Mahāprabhu opened a primary school in the house of Mukunda, or Mu
 
 ### CC Adi 10.107
 
-> শ্রীনাথ পণ্ডিত — প্রভুর কৃপার ভাজন ।
-> যাঁর কৃষ্ণসেবা দেখি’ বশ ত্রিভুবন ॥১০৭॥
-
 > śrīnātha paṇḍita—prabhura kṛpāra bhājana
 > yāṅra kṛṣṇa-sevā dekhi' vaśa tri-bhuvana
 
@@ -20510,9 +16229,6 @@ Lord Caitanya Mahāprabhu opened a primary school in the house of Mukunda, or Mu
 About one and a half miles away from Kumārahaṭṭa, or Kāmarhaṭṭa, which is a few miles from Calcutta, is a village known as Kāṅcaḍāpāḍā which was the home of Śrī Śivānanda Sena. There he constructed a temple of Śrī Gauragopāla. Another temple was established there with Śrī Rādhā-Kṛṣṇa *mūrtis* by Śrīnātha Paṇḍita. The Deity of that temple is named Śrī Kṛṣṇa Rāya. The temple of Kṛṣṇa Rāya, which was constructed in the year 1708 *śakābda* (A.D. 1787) by a prominent Zamindar named Nimāi Mullik of Pāthuriyā-ghāṭa in Calcutta, is very large. There is a big courtyard in front of the temple, and there are residential quarters for visitors and good arrangements for cooking *prasāda.* The entire courtyard is surrounded by very high boundary walls, and the temple is almost as big as the Māheśa temple. Inscribed on a tablet are the names of Śrīnātha Paṇḍita and his father and grandfather and the date of construction of the temple. Śrīnātha Paṇḍita, one of the disciples of Advaita Prabhu, was the spiritual master of the third son of Śivānanda Sena, who was known as Paramānanda Kavi-karṇapūra. It is said that during the time of Kavi-karṇapūra the Kṛṣṇa Rāya Deity was installed. According to hearsay, Vīrabhadra Prabhu, the son of Nityānanda Prabhu, brought a big stone from Murśidābād from which three Deities were carved-namely, the Rādhāvallabha *vigraha* of Vallabhapura, the Śyāmasundara *vigraha* of Khaḍadaha and the Śrī Kṛṣṇa Rāya *vigraha* of Kāṅcaḍāpāḍā. The home of Śivānanda Sena was situated on the bank of the Ganges near an almost ruined temple. It is said that the same Nimāi Mullik of Calcutta saw this broken-down temple of Kṛṣṇa Rāya while he was going to Benares and thereafter constructed the present temple.
 
 ### CC Adi 10.108
-
-> জগন্নাথ আচার্য প্রভুর প্রিয় দাস ।
-> প্রভুর আজ্ঞাতে তেঁহো কৈল গঙ্গাবাস ॥১০৮॥
 
 > jagannātha ācārya prabhura priya dāsa
 > prabhura ājñāte teṅho kaila gaṅgā-vāsa
@@ -20525,9 +16241,6 @@ Jagannātha Ācārya is stated in the *Gaura-gaṇoddeśa-dīpikā* (111) to hav
 
 ### CC Adi 10.109
 
-> কৃষ্ণদাস বৈদ্য, আর পণ্ডিত-শেখর ।
-> কবিচন্দ্র, আর কীর্তনীয়া ষষ্ঠীবর ॥১০৯॥
-
 > kṛṣṇadāsa vaidya, āra paṇḍita-śekhara
 > kavicandra, āra kīrtanīyā ṣaṣṭhīvara
 
@@ -20538,9 +16251,6 @@ Jagannātha Ācārya is stated in the *Gaura-gaṇoddeśa-dīpikā* (111) to hav
 In the *Gaura-gaṇoddeśa-dīpikā* (171) it is mentioned that Śrīnātha Miśra was Citrāṅgī and that Kavicandra was Manoharā-gopī.
 
 ### CC Adi 10.110
-
-> শ্রীনাথ মিশ্র, শুভানন্দ, শ্রীরাম, ঈশান ।
-> শ্রীনিধি, শ্রীগোপীকান্ত, মিশ্র ভগবান্ ॥১১০॥
 
 > śrīnātha miśra, śubhānanda, śrīrāma, īśāna
 > śrīnidhi, śrīgopīkānta, miśra bhagavān
@@ -20553,9 +16263,6 @@ In the *Gaura-gaṇoddeśa-dīpikā* (171) it is mentioned that Śrīnātha Miś
 
 ### CC Adi 10.111
 
-> সুবুদ্ধি মিশ্র, হৃদয়ানন্দ, কমলনয়ন ।
-> মহেশ পণ্ডিত, শ্রীকর, শ্রীমধুসূদন ॥১১১॥
-
 > subuddhi miśra, hṛdayānanda, kamala-nayana
 > maheśa paṇḍita, śrīkara, śrī-madhusūdana
 
@@ -20567,9 +16274,6 @@ Subuddhi Miśra, who was formerly Guṇacūḍā in Vṛndāvana, installed Gaur
 
 ### CC Adi 10.112
 
-> পুরুষোত্তম, শ্রীগালীম, জগন্নাথদাস ।
-> শ্রীচন্দ্রশেখর বৈদ্য, দ্বিজ হরিদাস ॥১১২॥
-
 > puruṣottama, śrī-gālīma, jagannātha-dāsa
 > śrī-candraśekhara vaidya, dvija haridāsa
 
@@ -20580,9 +16284,6 @@ Subuddhi Miśra, who was formerly Guṇacūḍā in Vṛndāvana, installed Gaur
 There is some question about whether Dvija Haridāsa was the author of *Aṣṭottara-śata-nāma.* He had two sons named Śrīdāma and Gokulānanda, who were disciples of Śrī Advaita Ācārya. Their village, Kāñcana-gaḍiyā, is situated within five miles of the Bājārasāu station, the fifth station from Ājīmagañja in the district of Murśidābād, West Bengal.
 
 ### CC Adi 10.113
-
-> রামদাস, কবিচন্দ্র, শ্রীগোপালদাস ।
-> ভাগবতাচার্য, ঠাকুর সারঙ্গদাস ॥১১৩॥
 
 > rāmadāsa, kavicandra, śrī-gopāladāsa
 > bhāgavatācārya, ṭhākura sāraṅgadāsa
@@ -20597,9 +16298,6 @@ Another name of Ṭhākura Śāraṅga dāsa was Śārṅga Ṭhākura. Sometime
 
 ### CC Adi 10.114
 
-> জগন্নাথ তীর্থ, বিপ্র শ্রীজানকীনাথ ।
-> গোপাল আচার্য, আর বিপ্র বাণীনাথ ॥১১৪॥
-
 > jagannātha tīrtha, vipra śrī-jānakīnātha
 > gopāla ācārya, āra vipra vāṇīnātha
 
@@ -20610,9 +16308,6 @@ Another name of Ṭhākura Śāraṅga dāsa was Śārṅga Ṭhākura. Sometime
 Jagannātha Tīrtha was one of the nine principal *sannyāsīs* who were Lord Caitanya's associates. Vāṇīnātha Vipra was a resident of Cāṅpāhāṭi, a village in the district of Burdwan near the town of Navadvīpa, the police station of Pūrvasthalī and the post office of Samudragaḍa. The temple there was very much neglected, but it was renovated in the Bengali year 1328 (A.D. 1921) by Śrī Paramānanda Brahmacārī, one of Śrī Bhaktisiddhānta Sarasvatī Ṭhākura's disciples, who reorganized the *sevā-pūjā* (worship in the temple) and placed the temple under the management of the Śrī Caitanya Maṭha of Śrī Māyāpur. In the temple as it now exists, the Deity of Śrī Gaura-Gadādhara is worshiped strictly according to the principles of the revealed scriptures. Cāṅpāhāṭi is two miles away from both Samudragaḍa and the Navadvīpa station of the eastern railway.
 
 ### CC Adi 10.115
-
-> গোবিন্দ, মাধব, বাসুদেব, — তিন ভাই ।
-> যাঁ-সবার কীর্তনে নাচে চৈতন্য-নিতাই ॥১১৫॥
 
 > govinda, mādhava, vāsudeva—tina bhāi
 > yāṅ-sabāra kīrtane nāce caitanya-nitāi
@@ -20625,9 +16320,6 @@ The three brothers Govinda, Mādhava and Vāsudeva Ghoṣa all belonged to a *k�
 
 ### CC Adi 10.116
 
-> রামদাস অভিরাম — সখ্য-প্রেমরাশি ।
-> ষোলসাঙ্গের কাষ্ঠ তুলি’ যে করিল বাঁশী ॥১১৬॥
-
 > rāmadāsa abhirāma—sakhya-premarāśi
 > ṣolasāṅgera kāṣṭha tuli' ye karila vāṅśī
 
@@ -20639,9 +16331,6 @@ Abhirāma was an inhabitant of Khānākula-kṛṣṇa-nagara.
 
 ### CC Adi 10.117
 
-> প্রভুর আজ্ঞায় নিত্যানন্দ গৌড়ে চলিলা ।
-> তাঁর সঙ্গে তিনজন প্রভু-আজ্ঞায় আইলা ॥১১৭॥
-
 > prabhura ājñāya nityānanda gauḍe calilā
 > tāṅra saṅge tina-jana prabhu-ājñāya āilā
 
@@ -20651,9 +16340,6 @@ Abhirāma was an inhabitant of Khānākula-kṛṣṇa-nagara.
 
 ### CC Adi 10.118
 
-> রামদাস, মাধব, আর বাসুদেব ঘোষ ।
-> প্রভু-সঙ্গে রহে গোবিন্দ পাইয়া সন্তোষ ॥১১৮॥
-
 > rāmadāsa, mādhava, āra vāsudeva ghoṣa
 > prabhu-saṅge rahe govinda pāiyā santoṣa
 
@@ -20662,9 +16348,6 @@ Abhirāma was an inhabitant of Khānākula-kṛṣṇa-nagara.
 **These three were Rāmadāsa, Mādhava Ghoṣa and Vāsudeva Ghoṣa. Govinda Ghoṣa, however, remained with Śrī Caitanya Mahāprabhu at Jagannātha Purī and thus felt great satisfaction.**
 
 ### CC Adi 10.119
-
-> ভাগবতাচার্য, চিরঞ্জীব, শ্রীরঘুনন্দন ।
-> মাধবাচার্য কমলাকান্ত, শ্রীযদুনন্দন ॥১১৯॥
 
 > bhāgavatācārya, cirañjīva śrī-raghunandana
 > mādhavācārya, kamalākānta, śrī-yadunandana
@@ -20677,9 +16360,6 @@ Abhirāma was an inhabitant of Khānākula-kṛṣṇa-nagara.
 
 ### CC Adi 10.120
 
-> মহা-কৃপাপাত্র প্রভুর জগাই, মাধাই ।
-> ‘পতিতপাবন’ নামের সাক্ষী দুই ভাই ॥১২০॥
-
 > mahā-kṛpā-pātra prabhura jagāi, mādhāi
 > 'patita-pāvana' nāmera sākṣī dui bhāi
 
@@ -20691,9 +16371,6 @@ In the *Gaura-gaṇoddeśa-dīpikā* (115) it is said that the two brothers Jag�
 
 ### CC Adi 10.121
 
-> গৌড়দেশ-ভক্তের কৈল সংক্ষেপ কথন ।
-> অনন্ত চৈতন্যভক্ত না যায় গণন ॥১২১॥
-
 > gauḍa-deśa-bhaktera kaila saṅkṣepa kathana
 > ananta caitanya-bhakta nā yāya gaṇana
 
@@ -20702,9 +16379,6 @@ In the *Gaura-gaṇoddeśa-dīpikā* (115) it is said that the two brothers Jag�
 **I have given a brief description of the devotees of Lord Caitanya in Bengal. Actually His devotees are innumerable.**
 
 ### CC Adi 10.122
-
-> নীলাচলে এই সব ভক্ত প্রভুসঙ্গে ।
-> দুই স্থানে প্রভু-সেবা কৈল নানা-রঙ্গে ॥১২২॥
 
 > nīlācale ei saba bhakta prabhu-saṅge
 > dui sthāne prabhu-sevā kaila nānā-raṅge
@@ -20717,9 +16391,6 @@ Most of the devotees of Lord Caitanya lived in Bengal and Orissa. Thus they are 
 
 ### CC Adi 10.123
 
-> কেবল নীলাচলে প্রভুর যে যে ভক্তগণ ।
-> সংক্ষেপে করিয়ে কিছু সে সব কথন ॥১২৩॥
-
 > kevala nīlācale prabhura ye ye bhakta-gaṇa
 > saṅkṣepe kariye kichu se saba kathana
 
@@ -20728,13 +16399,6 @@ Most of the devotees of Lord Caitanya lived in Bengal and Orissa. Thus they are 
 **Let me briefly describe some of the devotees of Lord Caitanya Mahāprabhu in Jagannātha Purī.**
 
 ### CC Adi 10.124-126
-
-> নীলাচলে প্রভুসঙ্গে যত ভক্তগণ ।
-> সবার অধ্যক্ষ প্রভুর মর্ম দুইজন ॥১২৪॥
-> পরমানন্দপুরী, আর স্বরূপ-দামোদর ।
-> গদাধর, জগদানন্দ, শঙ্কর, বক্রেশ্বর ॥১২৫॥
-> দামোদর পণ্ডিত, ঠাকুর হরিদাস ।
-> রঘুনাথ বৈদ্য, আর রঘুনাথদাস ॥১২৬॥
 
 > nīlācale prabhu-saṅge yata bhakta-gaṇa
 > sabāra adhyakṣa prabhura marma dui-jana
@@ -20753,9 +16417,6 @@ The *Caitanya-bhāgavata, Antya-līlā,* Chapter Five, states that Raghunātha V
 
 ### CC Adi 10.127
 
-> ইত্যাদিক পূর্বসঙ্গী বড় ভক্তগণ ।
-> নীলাচলে রহি’ করে প্রভুর সেবন ॥১২৭॥
-
 > ityādika pūrva-saṅgī baḍa bhakta-gaṇa
 > nīlācale rahi' kare prabhura sevana
 
@@ -20764,9 +16425,6 @@ The *Caitanya-bhāgavata, Antya-līlā,* Chapter Five, states that Raghunātha V
 **All these devotees were associates of the Lord from the very beginning, and when the Lord took up residence in Jagannātha Purī they remained there to serve Him faithfully.**
 
 ### CC Adi 10.128
-
-> আর যত ভক্তগণ গৌড়দেশবাসী ।
-> প্রত্যব্দে প্রভুরে দেখে নীলাচলে আসি’ ॥১২৮॥
 
 > āra yata bhakta-gaṇa gauḍa-deśa-vāsī
 > pratyabde prabhure dekhe nīlācale āsi'
@@ -20777,9 +16435,6 @@ The *Caitanya-bhāgavata, Antya-līlā,* Chapter Five, states that Raghunātha V
 
 ### CC Adi 10.129
 
-> নীলাচলে প্রভুসহ প্রথম মিলন ।
-> সেই ভক্তগণের এবে করিয়ে গণন ॥১২৯॥
-
 > nīlācale prabhu-saha prathama milana
 > sei bhakta-gaṇera ebe kariye gaṇana
 
@@ -20788,9 +16443,6 @@ The *Caitanya-bhāgavata, Antya-līlā,* Chapter Five, states that Raghunātha V
 **Now let me enumerate the devotees of Bengal who first came to see the Lord at Jagannātha Purī.**
 
 ### CC Adi 10.130
-
-> বড়শাখা এক, — সার্বভৌম ভট্টাচার্য ।
-> তাঁর ভগ্নীপতি শ্রীগোপীনাথাচার্য ॥১৩০॥
 
 > baḍa-śākhā eka,—sārvabhauma bhaṭṭācārya
 > tāṅra bhagnī-pati śrī-gopīnāthācārya
@@ -20807,9 +16459,6 @@ Gopīnātha Ācārya, who belonged to a respectable *brāhmaṇa* family, was al
 
 ### CC Adi 10.131
 
-> কাশীমিশ্র, প্রদ্যুম্নমিশ্র, রায় ভবানন্দ ।
-> যাঁহার মিলনে প্রভু পাইলা আনন্দ ॥১৩১॥
-
 > kāśī-miśra, pradyumna-miśra, rāya bhavānanda
 > yāṅhāra milane prabhu pāilā ānanda
 
@@ -20823,9 +16472,6 @@ Bhavānanda Rāya was the father of Śrī Rāmānanda Rāya. His residence was i
 
 ### CC Adi 10.132
 
-> আলিঙ্গন করি’ তাঁরে বলিল বচন ।
-> তুমি পাণ্ডু, পঞ্চপাণ্ডব — তোমার নন্দন ॥১৩২॥
-
 > āliṅgana kari' tāṅre balila vacana
 > tumi pāṇḍu, pañca-pāṇḍava—tomāra nandana
 
@@ -20835,9 +16481,6 @@ Bhavānanda Rāya was the father of Śrī Rāmānanda Rāya. His residence was i
 
 ### CC Adi 10.133
 
-> রামানন্দ রায়, পট্টনায়ক গোপীনাথ ।
-> কলানিধি, সুধানিধি, নায়ক বাণীনাথ ॥১৩৩॥
-
 > rāmānanda rāya, paṭṭanāyaka gopīnātha
 > kalānidhi, sudhānidhi, nāyaka vāṇīnātha
 
@@ -20846,9 +16489,6 @@ Bhavānanda Rāya was the father of Śrī Rāmānanda Rāya. His residence was i
 **The five sons of Bhavānanda Rāya were Rāmānanda Rāya, Paṭṭanāyaka Gopīnātha, Kalānidhi, Sudhānidhi and Nāyaka Vāṇīnātha.**
 
 ### CC Adi 10.134
-
-> এই পঞ্চ পুত্র তোমার মোর প্রিয়পাত্র ।
-> রামানন্দ সহ মোর দেহ-ভেদ মাত্র ॥১৩৪॥
 
 > ei pañca putra tomāra mora priyapātra
 > rāmānanda saha mora deha-bheda mātra
@@ -20864,11 +16504,6 @@ In Lord Caitanya Mahāprabhu's final pastimes, both Rāmānanda Rāya and Svarū
 Lord Śrī Caitanya Mahāprabhu considered Śrī Rāmānanda Rāya and Śrī Sanātana Gosvāmī to be equal in their renunciation, for although Śrī Rāmānanda Rāya was a *gṛhastha* engaged in government service and Śrī Sanātana Gosvāmī was in the renounced order of complete detachment from material activities, they were both servants of the Supreme Personality of Godhead who kept Kṛṣṇa in the center of all their activities. Śrī Rāmānanda Rāya was one of the three and a half personalities with whom Śrī Caitanya Mahāprabhu discussed the most confidential topics of Kṛṣṇa consciousness. Lord Caitanya Mahāprabhu advised Pradyumna Miśra to learn the science of Kṛṣṇa from Śrī Rāmānanda Rāya. As Subala always assisted Kṛṣṇa in His dealings with Rādhārāṇī in *kṛṣṇa-līlā,* so Rāmānanda Rāya assisted Lord Caitanya Mahāprabhu in His feelings of separation from Kṛṣṇa. Śrī Rāmānanda Rāya was the author of *Jagannātha-vallabha-nāṭaka.*
 
 ### CC Adi 10.135-136
-
-> প্রতাপরুদ্র রাজা, আর ওঢ্র কৃষ্ণানন্দ ।
-> পরমানন্দ মহাপাত্র, ওঢ্র শিবানন্দ ॥১৩৫॥
-> ভগবান্ আচার্য, ব্রহ্মানন্দাখ্য ভারতী ।
-> শ্রীশিখি মাহিতি, আর মুরারি মাহিতি ॥১৩৬॥
 
 > pratāparudra rājā, āra oḍhra kṛṣṇānanda
 > paramānanda mahāpātra, oḍhra śivānanda
@@ -20890,9 +16525,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 189, it is said that Śikhi Māhiti 
 
 ### CC Adi 10.137
 
-> মাধবী-দেবী — শিখিমাহিতির ভগিনী ।
-> শ্রীরাধার দাসীমধ্যে যাঁর নাম গণি ॥১৩৭॥
-
 > mādhavī-devī—śikhi-māhitira bhaginī
 > śrī-rādhāra dāsī-madhye yāṅra nāma gaṇi
 
@@ -20903,9 +16535,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 189, it is said that Śikhi Māhiti 
 In the *Antya-līlā* of *Caitanya-caritāmṛta,* Chapter Two, verses 104-106, there is a description of Mādhavīdevī. Śrī Caitanya Mahāprabhu considered her one of the maidservants of Śrīmatī Rādhārāṇī. Within this world, Caitanya Mahāprabhu had three and a half very confidential devotees. The three were Svarūpa Gosāñi, Śrī Rāmānanda Rāya and Śikhi Māhiti, and Śikhi Māhiti's sister, Mādhavīdevī, being a woman, was considered the half. Thus it is known that Śrī Caitanya Mahāprabhu had three and a half confidential devotees.
 
 ### CC Adi 10.138
-
-> ঈশ্বরপুরীর শিষ্য — ব্রহ্মচারী কাশীশ্বর ।
-> শ্রীগোবিন্দ নাম তাঁর প্রিয় অনুচর ॥১৩৮॥
 
 > īśvara-purīra śiṣya—brahmacārī kāśīśvara
 > śrī-govinda nāma tāṅra priya anucara
@@ -20918,9 +16547,6 @@ Govinda was the personal servant of Śrī Caitanya Mahāprabhu. In the *Gaura-ga
 
 ### CC Adi 10.139
 
-> তাঁর সিদ্ধিকালে দোঁহে তাঁর আজ্ঞা পাঞা ।
-> নীলাচলে প্রভুস্থানে মিলিল আসিয়া ॥১৩৯॥
-
 > tāṅra siddhi-kāle doṅhe tāṅra ājñā pāñā
 > nīlācale prabhu-sthāne milila āsiyā
 
@@ -20929,9 +16555,6 @@ Govinda was the personal servant of Śrī Caitanya Mahāprabhu. In the *Gaura-ga
 **In the list of prominent devotees at Nīlācala [Jagannātha Purī], Kāśīśvara was the eighteenth and Govinda the nineteenth. They both came to see Caitanya Mahāprabhu at Jagannātha Purī, being thus ordered by Īśvara Purī at the time of his passing away.**
 
 ### CC Adi 10.140
-
-> গুরুর সম্বন্ধে মান্য কৈল দুঁহাকারে ।
-> তাঁর আজ্ঞা মানি’ সেবা দিলেন দোঁহারে ॥১৪০॥
 
 > gurura sambandhe mānya kaila duṅhākāre
 > tāṅra ājñā māni' sevā dilena doṅhāre
@@ -20942,9 +16565,6 @@ Govinda was the personal servant of Śrī Caitanya Mahāprabhu. In the *Gaura-ga
 
 ### CC Adi 10.141
 
-> অঙ্গসেবা গোবিন্দেরে দিলেন ঈশ্বর ।
-> জগন্নাথ দেখিতে চলেন আগে কাশীশ্বর ॥১৪১॥
-
 > aṅga-sevā govindere dilena īśvara
 > jagannātha dekhite calena āge kāśīśvara
 
@@ -20953,9 +16573,6 @@ Govinda was the personal servant of Śrī Caitanya Mahāprabhu. In the *Gaura-ga
 **Govinda cared for the body of Śrī Caitanya Mahāprabhu, whereas Kāśīśvara went in front of the Lord when He went to see Jagannātha in the temple.**
 
 ### CC Adi 10.142
-
-> অপরশ যায় গোসাঞি মনুষ্য-গহনে ।
-> মনুষ্য ঠেলি’ পথ করে কাশী বলবানে ॥১৪২॥
 
 > aparaśa yāya gosāñi manuṣya-gahane
 > manuṣya ṭheli' patha kare kāśī balavāne
@@ -20966,9 +16583,6 @@ Govinda was the personal servant of Śrī Caitanya Mahāprabhu. In the *Gaura-ga
 
 ### CC Adi 10.143
 
-> রামাই-নন্দাই — দোঁহে প্রভুর কিঙ্কর ।
-> গোবিন্দের সঙ্গে সেবা করে নিরন্তর ॥১৪৩॥
-
 > rāmāi-nandāi—doṅhe prabhura kiṅkara
 > govindera saṅge sevā kare nirantara
 
@@ -20977,9 +16591,6 @@ Govinda was the personal servant of Śrī Caitanya Mahāprabhu. In the *Gaura-ga
 **Rāmāi and Nandāi, the twentieth and twenty-first among the important devotees in Jagannātha Purī, always assisted Govinda twenty-four hours a day in rendering service to the Lord.**
 
 ### CC Adi 10.144
-
-> বাইশ ঘড়া জল দিনে ভরেন রামাই ।
-> গোবিন্দ-আজ্ঞায় সেবা করেন নন্দাই ॥১৪৪॥
 
 > bāiśa ghaḍā jala dine bharena rāmāi
 > govinda-ājñāya sevā karena nandāi
@@ -20992,9 +16603,6 @@ In the *Gaura-gaṇoddeśa-dīpikā* (139) it is stated that two servants who fo
 
 ### CC Adi 10.145
 
-> কৃষ্ণদাস নাম শুদ্ধ কুলীন ব্রাহ্মণ ।
-> যারে সঙ্গে লৈয়া কৈলা দক্ষিণ গমন ॥১৪৫॥
-
 > kṛṣṇadāsa nāma śuddha kulīna brāhmaṇa
 > yāre saṅge laiyā kailā dakṣiṇa gamana
 
@@ -21005,9 +16613,6 @@ In the *Gaura-gaṇoddeśa-dīpikā* (139) it is stated that two servants who fo
 Kṛṣṇadāsa is described in the *Madhya-līlā,* chapters Seven and Nine. He went with Śrī Caitanya Mahāprabhu to carry His waterpot. In the Malabar state, members of the Bhaṭṭathāri cult tried to captivate Kṛṣṇadāsa by supplying a woman to seduce him, but although Śrī Caitanya Mahāprabhu saved him from being harmed, when they returned to Jagannātha Purī He asked Kṛṣṇadāsa to remain there, for the Lord was never favorably disposed toward an associate who was attracted by a woman. Thus Kṛṣṇadāsa lost the personal association of Lord Caitanya Mahāprabhu.
 
 ### CC Adi 10.146
-
-> বলভদ্র ভট্টাচার্য — ভক্তি অধিকারী ।
-> মথুরা-গমনে প্রভুর যেঁহো ব্রহ্মচারী ॥১৪৬॥
 
 > balabhadra bhaṭṭācārya—bhakti adhikārī
 > mathurā-gamane prabhura yeṅho brahmacārī
@@ -21020,9 +16625,6 @@ Balabhadra Bhaṭṭācārya acted as a *brahmacārī,* or personal assistant of
 
 ### CC Adi 10.147
 
-> বড় হরিদাস, আর ছোট হরিদাস ।
-> দুই কীর্তনীয়া রহে মহাপ্রভুর পাশ ॥১৪৭॥
-
 > baḍa haridāsa, āra choṭa haridāsa
 > dui kīrtanīyā rahe mahāprabhura pāśa
 
@@ -21034,9 +16636,6 @@ Choṭa Haridāsa was later banished from the company of Lord Caitanya Mahāprab
 
 ### CC Adi 10.148
 
-> রামভদ্রাচার্য, আর ওঢ্র সিংহেশ্বর ।
-> তপন আচার্য, আর রঘু, নীলাম্বর ॥১৪৮॥
-
 > rāmabhadrācārya, āra oḍhra siṁheśvara
 > tapana ācārya, āra raghu, nīlāmbara
 
@@ -21046,9 +16645,6 @@ Choṭa Haridāsa was later banished from the company of Lord Caitanya Mahāprab
 
 ### CC Adi 10.149
 
-> সিঙ্গাভট্ট, কামাভট্ট, দন্তুর শিবানন্দ ।
-> গৌড়ে পূর্ব ভৃত্য প্রভুর প্রিয় কমলানন্দ ॥১৪৯॥
-
 > siṅgābhaṭṭa, kāmābhaṭṭa, dantura śivānanda
 > gauḍe pūrva bhṛtya prabhura priya kamalānanda
 
@@ -21057,9 +16653,6 @@ Choṭa Haridāsa was later banished from the company of Lord Caitanya Mahāprab
 **Siṅgābhaṭṭa was the thirty-first, Kāmābhaṭṭa the thirty-second, Śivānanda the thirty-third and Kamalānanda the thirty-fourth. They all formerly served Śrī Caitanya Mahāprabhu in Bengal, but later these servants left Bengal to live with the Lord in Jagannātha Purī.**
 
 ### CC Adi 10.150
-
-> অচ্যুতানন্দ — অদ্বৈত-আচার্য-তনয় ।
-> নীলাচলে রহে প্রভুর চরণ আশ্রয় ॥১৫০॥
 
 > acyutānanda—advaita-ācārya-tanaya
 > nīlācale rahe prabhura caraṇa āśraya
@@ -21072,9 +16665,6 @@ There is a statement about Acyutānanda in Chapter Twelve, verse 13, of *Ādi-l�
 
 ### CC Adi 10.151
 
-> নির্লোম গঙ্গাদাস, আর বিষ্ণুদাস ।
-> এই সবের প্রভুসঙ্গে নীলাচলে বাস ॥১৫১॥
-
 > nirloma gaṅgādāsa, āra viṣṇudāsa
 > ei sabera prabhu-saṅge nīlācale vāsa
 
@@ -21083,13 +16673,6 @@ There is a statement about Acyutānanda in Chapter Twelve, verse 13, of *Ādi-l�
 **Nirloma Gaṅgādāsa and Viṣṇudāsa were the thirty-sixth and thirty-seventh among the devotees who lived at Jagannātha Purī as servants of Śrī Caitanya Mahāprabhu.**
 
 ### CC Adi 10.152-154
-
-> বারাণসী-মধ্যে প্রভুর ভক্ত তিন জন ।
-> চন্দ্রশেখর বৈদ্য, আর মিশ্র তপন ॥১৫২॥
-> রঘুনাথ ভট্টাচার্য — মিশ্রের নন্দন ।
-> প্রভু যবে কাশী আইলা দেখি’ বৃন্দাবন ॥১৫৩॥
-> চন্দ্রশেখর-গৃহে কৈল দুই মাস বাস ।
-> তপন-মিশ্রের ঘরে ভিক্ষা দুই মাস ॥১৫৪॥
 
 > vārāṇasī-madhye prabhura bhakta tina jana
 > candraśekhara vaidya, āra miśra tapana
@@ -21108,9 +16691,6 @@ When Śrī Caitanya Mahāprabhu was in Bengal, Tapana Miśra approached Him to d
 
 ### CC Adi 10.155
 
-> রঘুনাথ বাল্যে কৈল প্রভুর সেবন ।
-> উচ্ছিষ্ট-মার্জন আর পাদ-সম্বাহন ॥১৫৫॥
-
 > raghunātha bālye kaila prabhura sevana
 > ucchiṣṭa-mārjana āra pāda-saṁvāhana
 
@@ -21119,9 +16699,6 @@ When Śrī Caitanya Mahāprabhu was in Bengal, Tapana Miśra approached Him to d
 **When Śrī Caitanya Mahāprabhu stayed at the house of Tapana Miśra, Raghunātha Bhaṭṭa, who was then a boy, washed His dishes and massaged His legs.**
 
 ### CC Adi 10.156
-
-> বড় হৈলে নীলাচলে গেলা প্রভুর স্থানে ।
-> অষ্টমাস রহিল ভিক্ষা দেন কোন দিনে ॥১৫৬॥
 
 > baḍa haile nīlācale gelā prabhura sthāne
 > aṣṭa-māsa rahila bhikṣā dena kona dine
@@ -21132,9 +16709,6 @@ When Śrī Caitanya Mahāprabhu was in Bengal, Tapana Miśra approached Him to d
 
 ### CC Adi 10.157
 
-> প্রভুর আজ্ঞা পাঞা বৃন্দাবনেরে আইলা ।
-> আসিয়া শ্রীরূপ-গোসাঞির নিকটে রহিলা ॥১৫৭॥
-
 > prabhura ājñā pāñā vṛndāvanere āilā
 > āsiyā śrī-rūpa-gosāñira nikaṭe rahilā
 
@@ -21143,9 +16717,6 @@ When Śrī Caitanya Mahāprabhu was in Bengal, Tapana Miśra approached Him to d
 **Later, by the order of Lord Caitanya, Raghunātha went to Vṛndāvana and remained there under the shelter of Śrīla Rūpa Gosvāmī.**
 
 ### CC Adi 10.158
-
-> তাঁর স্থানে রূপ-গোসাঞি শুনেন ভাগবত ।
-> প্রভুর কৃপায় তেঁহো কৃষ্ণপ্রেমে মত্ত ॥১৫৮॥
 
 > tāṅra sthāne rūpa-gosāñi śunena bhāgavata
 > prabhura kṛpāya teṅho kṛṣṇa-preme matta
@@ -21158,9 +16729,6 @@ Raghunātha Bhaṭṭācārya, or Raghunātha Bhaṭṭa Gosvāmī, one of the s
 
 ### CC Adi 10.159
 
-> এইমত সংখ্যাতীত চৈতন্য-ভক্তগণ ।
-> দিঙ্মাত্র লিখি, সম্যক্ না যায় কথন ॥১৫৯॥
-
 > ei-mata saṅkhyātīta caitanya-bhakta-gaṇa
 > diṅmātra likhi, samyak nā yāya kathana
 
@@ -21169,9 +16737,6 @@ Raghunātha Bhaṭṭācārya, or Raghunātha Bhaṭṭa Gosvāmī, one of the s
 **I list in this way only a portion of the innumerable devotees of Lord Caitanya. To describe them all fully is not possible.**
 
 ### CC Adi 10.160
-
-> একৈক-শাখাতে লাগে কোটি কোটি ডাল ।
-> তার শিষ্য-উপশিষ্য, তার উপডাল ॥১৬০॥
 
 > ekaika-śākhāte lāge koṭi koṭi ḍāla
 > tāra śiṣya-upaśiṣya, tāra upaḍāla
@@ -21184,9 +16749,6 @@ It was the desire of Lord Caitanya Mahāprabhu that His cult be spread all over 
 
 ### CC Adi 10.161
 
-> সকল ভরিয়া আছে প্রেম-ফুল-ফলে ।
-> ভাসাইল ত্রিজগৎ কৃষ্ণপ্রেম-জলে ॥১৬১॥
-
 > sakala bhariyā āche prema-phula-phale
 > bhāsāila tri-jagat kṛṣṇa-prema-jale
 
@@ -21195,9 +16757,6 @@ It was the desire of Lord Caitanya Mahāprabhu that His cult be spread all over 
 **Every branch and subbranch of the tree is full of innumerable fruits and flowers. They inundate the world with the waters of love of Kṛṣṇa.**
 
 ### CC Adi 10.162
-
-> এক এক শাখার শক্তি অনন্ত মহিমা ।
-> ‘সহস্র বদনে’ যার দিতে নারে সীমা ॥১৬২॥
 
 > eka eka śākhāra śakti ananta mahimā
 > 'sahasra vadane' yāra dite nāre sīmā
@@ -21208,9 +16767,6 @@ It was the desire of Lord Caitanya Mahāprabhu that His cult be spread all over 
 
 ### CC Adi 10.163
 
-> সংক্ষেপে কহিল মহাপ্রভুর ভক্তগণ ।
-> সমগ্র বলিতে নারে ‘সহস্র-বদন’ ॥১৬৩॥
-
 > saṅkṣepe kahila mahāprabhura bhakta-gaṇa
 > samagra balite nāre 'sahasra-vadana'
 
@@ -21219,9 +16775,6 @@ It was the desire of Lord Caitanya Mahāprabhu that His cult be spread all over 
 **I have briefly described the devotees of Lord Caitanya Mahāprabhu in different places. Even Lord Śeṣa, who has thousands of mouths, could not list them all.**
 
 ### CC Adi 10.164
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥১৬৪॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -21236,9 +16789,6 @@ It was the desire of Lord Caitanya Mahāprabhu that His cult be spread all over 
 
 ### CC Adi 11.1
 
-> নিত্যানন্দপদাম্ভোজ-ভৃঙ্গান্ প্রেমমধূন্মদান্ ।
-> নত্বাখিলান্ তেষু মুখ্যা লিখ্যন্তে কতিচিন্ময়া ॥১॥
-
 > nityānanda-padāmbhoja-
 > bhṛṅgān prema-madhūnmadān
 > natvākhilān teṣu mukhyā
@@ -21250,9 +16800,6 @@ It was the desire of Lord Caitanya Mahāprabhu that His cult be spread all over 
 
 ### CC Adi 11.2
 
-> জয় জয় মহাপ্রভু শ্রীকৃষ্ণচৈতন্য ।
-> তাঁহার চরণাশ্রিত যেই, সেই ধন্য ॥২॥
-
 > jaya jaya mahāprabhu śrī-kṛṣṇa-caitanya
 > tāṅhāra caraṇāśrita yei, sei dhanya
 
@@ -21262,9 +16809,6 @@ It was the desire of Lord Caitanya Mahāprabhu that His cult be spread all over 
 
 ### CC Adi 11.3
 
-> জয় জয় শ্রীঅদ্বৈত, জয় নিত্যানন্দ ।
-> জয় জয় মহাপ্রভুর সর্বভক্তবৃন্দ ॥৩॥
-
 > jaya jaya śrī-advaita, jaya nityānanda
 > jaya jaya mahāprabhura sarva-bhakta-vṛnda
 
@@ -21273,9 +16817,6 @@ It was the desire of Lord Caitanya Mahāprabhu that His cult be spread all over 
 **All glories to Śrī Advaita Prabhu, Nityānanda Prabhu and all the devotees of Lord Caitanya Mahāprabhu!**
 
 ### CC Adi 11.4
-
-> তস্য শ্রীকৃষ্ণচৈতন্য-সৎপ্রেমামরশাখিনঃ ।
-> ঊর্ধ্বস্কন্ধাবধূতেন্দোঃ শাখারূপান্ গণান্নুমঃ ॥৪॥
 
 > tasya śrī-kṛṣṇa-caitanya-
 > sat-premāmara-śākhinaḥ
@@ -21288,9 +16829,6 @@ It was the desire of Lord Caitanya Mahāprabhu that His cult be spread all over 
 
 ### CC Adi 11.5
 
-> শ্রীনিত্যানন্দ-বৃক্ষের স্কন্ধ গুরুতর ।
-> তাহাতে জন্মিল শাখা-প্রশাখা বিস্তর ॥৫॥
-
 > śrī-nityānanda-vṛkṣera skandha gurutara
 > tāhāte janmila śākhā-praśākhā vistara
 
@@ -21300,9 +16838,6 @@ It was the desire of Lord Caitanya Mahāprabhu that His cult be spread all over 
 
 ### CC Adi 11.6
 
-> মালাকারের ইচ্ছা-জলে বাড়ে শাখাগণ ।
-> প্রেম-ফুল-ফলে ভরি’ ছাইল ভুবন ॥৬॥
-
 > mālākarera icchā jale bāḍe śākhā-gaṇa
 > prema-phula-phale bhari' chāila bhuvana
 
@@ -21311,9 +16846,6 @@ It was the desire of Lord Caitanya Mahāprabhu that His cult be spread all over 
 **Watered by the desire of Śrī Caitanya Mahāprabhu, these branches and subbranches have grown unlimitedly and covered the entire world with fruits and flowers.**
 
 ### CC Adi 11.7
-
-> অসংখ্য অনন্ত গণ কে করু গণন ।
-> আপনা শোধিতে কহি মুখ্য মুখ্য জন ॥৭॥
 
 > asaṅkhya ananta gaṇa ke karu gaṇana
 > āpanā śodhite kahi mukhya mukhya jana
@@ -21326,9 +16858,6 @@ One should not write books or essays on transcendental subject matter for materi
 
 ### CC Adi 11.8
 
-> শ্রীবীরভদ্র গোসাঞি — স্কন্ধ-মহাশাখা ।
-> তাঁর উপশাখা যত, অসংখ্য তার লেখা ॥৮॥
-
 > śrī-vīrabhadra gosāñi—skandha-mahāśākhā
 > tāṅra upaśākhā yata, asaṅkhya tāra lekhā
 
@@ -21340,9 +16869,6 @@ One should not write books or essays on transcendental subject matter for materi
 
 ### CC Adi 11.9
 
-> ঈশ্বর হইয়া কহায় মহা-ভাগবত ।
-> বেদধর্মাতীত হঞা বেদধর্মে রত ॥৯॥
-
 > īśvara ha-iyā kahāya mahā-bhāgavata
 > veda-dharmātīta hañā veda-dharme rata
 
@@ -21351,9 +16877,6 @@ One should not write books or essays on transcendental subject matter for materi
 **Although Vīrabhadra Gosāñi was the Supreme Personality of Godhead, He presented Himself as a great devotee. And although the Supreme Godhead is transcendental to all Vedic injunctions, He strictly followed the Vedic rituals.**
 
 ### CC Adi 11.10
-
-> অন্তরে ঈশ্বর-চেষ্টা, বাহিরে নির্দম্ভ ।
-> চৈতন্যভক্তিমণ্ডপে তেঁহো মূলস্তম্ভ ॥১০॥
 
 > antare īśvara-ceṣṭā, bāhire nirdambha
 > caitanya-bhakti-maṇḍape teṅho mūla-stambha
@@ -21364,9 +16887,6 @@ One should not write books or essays on transcendental subject matter for materi
 
 ### CC Adi 11.11
 
-> অদ্যাপি যাঁহার কৃপা-মহিমা হইতে ।
-> চৈতন্য-নিত্যানন্দ গায় সকল জগতে ॥১১॥
-
 > adyāpi yāṅhāra kṛpā-mahimā ha-ite
 > caitanya-nityānanda gāya sakala jagate
 
@@ -21376,9 +16896,6 @@ One should not write books or essays on transcendental subject matter for materi
 
 ### CC Adi 11.12
 
-> সেই বীরভদ্র-গোসাঞির লইনু শরণ ।
-> যাঁহার প্রসাদে হয় অভীষ্ট-পূরণ ॥১২॥
-
 > sei vīrabhadra-gosāñira la-inu śaraṇa
 > yāṅhāra prasāde haya abhīṣṭa-pūraṇa
 
@@ -21387,9 +16904,6 @@ One should not write books or essays on transcendental subject matter for materi
 **I therefore take shelter of the lotus feet of Vīrabhadra Gosāñi so that by His mercy my great desire to write Śrī Caitanya-caritāmṛta will be properly guided.**
 
 ### CC Adi 11.13
-
-> শ্রীরামদাস আর, গদাধর দাস ।
-> চৈতন্য-গোসাঞির ভক্ত রহে তাঁর পাশ ॥১৩॥
 
 > śrī-rāmadāsa āra, gadādhara dāsa
 > caitanya-gosāñira bhakta rahe tāṅra pāśa
@@ -21403,11 +16917,6 @@ One should not write books or essays on transcendental subject matter for materi
 Ten miles southwest of the Cāṅpāḍāṅgā railway station on the narrow-gauge railway line from Howrah, in Calcutta, to Āmtā, a village in the Hugalī district, is a small town named Khānākūla-kṛṣṇanagara, where the temple of Abhirāma Ṭhākura is situated. During the rainy season, when this area is inundated with water, people must go there by another line, which is now called the southeastern railway. On this line there is a station named Kolāghāṭa, from which one has to go by steamer to Rāṇīcaka. Seven and a half miles north of Rāṇīcaka is Khānākūla. The temple of Abhirāma Ṭhākura is situated in Kṛṣṇanagara, which is near the *kūla* (bank) of the Khānā (Dvārakeśvara River); therefore this place is celebrated as Khānākūla-kṛṣṇanagara. Outside of the temple is a *bakula* tree. This place is known as Siddha-bakula-kuñja. It is said that when Abhirāma Ṭhākura came there, he sat down under this tree. In Khānākūla-kṛṣṇanagara there is a big fair held every year in the month of Caitra (March-April) on the Kṛṣṇa-saptamī, the seventh day of the dark moon. Many hundreds and thousands of people gather for this festival. The temple of Abhirāma Ṭhākura has a very old history. The Deity in the temple is known as Gopīnātha. There are many *sevaita* families living near the temple. It is said that Abhirāma Ṭhākura had a whip and that whoever he touched with it would immediately become an elevated devotee of Kṛṣṇa. Among his many disciples, Śrīmān Śrīnivāsa Ācārya was the most famous and the most dear, but it is doubtful that he was his initiated disciple.
 
 ### CC Adi 11.14-15
-
-> নিত্যানন্দে আজ্ঞা দিল যবে গৌড়ে যাইতে ।
-> মহাপ্রভু এই দুই দিলা তাঁর সাথে ॥১৪॥
-> অতএব দুইগণে দুঁহার গণন ।
-> মাধব-বাসুদেব ঘোষেরও এই বিবরণ ॥১৫॥
 
 > nityānande ājñā dila yabe gauḍe yāite
 > mahāprabhu ei dui dilā tāṅra sāthe
@@ -21423,9 +16932,6 @@ There is a place named Dāṅihāṭa, near the Agradvīpa railway station and P
 
 ### CC Adi 11.16
 
-> রামদাস — মুখ্যশাখা, সখ্য-প্রেমরাশি ।
-> ষোলসাঙ্গের কাষ্ঠ যেই তুলি’ কৈল বাঁশী ॥১৬॥
-
 > rāmadāsa—mukhya-śākhā, sakhya-prema-rāśi
 > ṣolasāṅgera kāṣṭha yei tuli' kaila vaṁśī
 
@@ -21434,9 +16940,6 @@ There is a place named Dāṅihāṭa, near the Agradvīpa railway station and P
 **Rāmadāsa, one of the chief branches, was full of fraternal love of Godhead. He made a flute from a stick with sixteen knots.**
 
 ### CC Adi 11.17
-
-> গদাধর দাস গোপীভাবে পূর্ণানন্দ ।
-> যাঁর ঘরে দানকেলি কৈল নিত্যানন্দ ॥১৭॥
 
 > gadādhara dāsa gopībhāve pūrṇānanda
 > yāṅra ghare dānakeli kaila nityānanda
@@ -21447,9 +16950,6 @@ There is a place named Dāṅihāṭa, near the Agradvīpa railway station and P
 
 ### CC Adi 11.18
 
-> শ্রীমাধব ঘোষ — মুখ্য কীর্তনীয়াগণে ।
-> নিত্যানন্দপ্রভু নৃত্য করে যাঁর গানে ॥১৮॥
-
 > śrī-mādhava ghoṣa—mukhya kīrtanīyā-gaṇe
 > nityānanda-prabhu nṛtya kare yāṅra gāne
 
@@ -21459,9 +16959,6 @@ There is a place named Dāṅihāṭa, near the Agradvīpa railway station and P
 
 ### CC Adi 11.19
 
-> বাসুদেব গীতে করে প্রভুর বর্ণনে ।
-> কাষ্ঠ-পাষাণ দ্রবে যাহার শ্রবণে ॥১৯॥
-
 > vāsudeva gīte kare prabhura varṇane
 > kāṣṭha-pāṣāṇa drave yāhāra śravaṇe
 
@@ -21470,9 +16967,6 @@ There is a place named Dāṅihāṭa, near the Agradvīpa railway station and P
 **When Vāsudeva Ghoṣa performed kīrtana, describing Lord Caitanya and Nityānanda, even wood and stone would melt upon hearing it.**
 
 ### CC Adi 11.20
-
-> মুরারি-চৈতন্যদাসের অলৌকিক লীলা ।
-> ব্যাঘ্র-গালে চড় মারে, সর্প-সনে খেলা ॥২০॥
 
 > murāri-caitanya-dāsera alaukika līlā
 > vyāghra-gāle caḍa māre, sarpa-sane khelā
@@ -21485,9 +16979,6 @@ Murāri Caitanya dāsa was born in the village of Sar-vṛndāvana-pura, which i
 
 ### CC Adi 11.21
 
-> নিত্যানন্দের গণ যত, — সব ব্রজসখা ।
-> শৃঙ্গ-বেত্র-গোপবেশ, শিরে শিখিপাখা ॥২১॥
-
 > nityānandera gaṇa yata—saba vraja-sakhā
 > śṛṅga-vetra-gopaveśa, śire śikhi-pākhā
 
@@ -21499,9 +16990,6 @@ Jāhnavā-mātā is also within the list of Lord Nityānanda's followers. She is
 
 ### CC Adi 11.22
 
-> রঘুনাথ বৈদ্য উপাধ্যায় মহাশয় ।
-> যাঁহার দর্শনে কৃষ্ণপ্রেমভক্তি হয় ॥২২॥
-
 > raghunātha vaidya upādhyāya mahāśaya
 > yāṅhāra darśane kṛṣṇa-prema-bhakti haya
 
@@ -21510,9 +16998,6 @@ Jāhnavā-mātā is also within the list of Lord Nityānanda's followers. She is
 **The physician Raghunātha, also known as Upādhyāya, was so great a devotee that simply by seeing him one would awaken his dormant love of Godhead.**
 
 ### CC Adi 11.23
-
-> সুন্দরানন্দ — নিত্যানন্দের শাখা, ভৃত্য মর্ম ।
-> যাঁর সঙ্গে নিত্যানন্দ করে ব্রজনর্ম ॥২৩॥
 
 > sundarānanda—nityānandera śākhā, bhṛtya marma
 > yāṅra saṅge nityānanda kare vraja-narma
@@ -21527,9 +17012,6 @@ Sundarānanda Prabhu was a *naiṣṭhika-brahmacārī:* he never married in his
 
 ### CC Adi 11.24
 
-> কমলাকর পিপ্পলাই — অলৌকিক রীত ।
-> অলৌকিক প্রেম তাঁর ভুবনে বিদিত ॥২৪॥
-
 > kamalākara pippalāi—alaukika rīta
 > alaukika prema tāṅra bhuvane vidita
 
@@ -21543,9 +17025,6 @@ The history of the Jagannātha temple in Māheśa is as follows. One devotee of 
 
 ### CC Adi 11.25
 
-> সূর্যদাস সরখেল, তাঁর ভাই কৃষ্ণদাস ।
-> নিত্যানন্দে দৃঢ় বিশ্বাস, প্রেমের নিবাস ॥২৫॥
-
 > sūryadāsa sarakhela, tāṅra bhāi kṛṣṇadāsa
 > nityānande dṛḍha viśvāsa, premera nivāsa
 
@@ -21556,9 +17035,6 @@ The history of the Jagannātha temple in Māheśa is as follows. One devotee of 
 In the *Bhakti-ratnākara* (Twelfth Wave), it is stated that a few miles from Navadvīpa is a place called Śāligrāma that was the residence of Sūryadāsa Sarakhela. He was employed as a secretary in the Muslim government of that time, and thus he amassed a good fortune. Sūryadāsa had four brothers, all of whom were pure Vaiṣṇavas. Vasudhā and Jāhnavā were two daughters of Sūryadāsa Sarakhela.
 
 ### CC Adi 11.26
-
-> গৌরীদাস পণ্ডিত যাঁর প্রেমোদ্দণ্ডভক্তি ।
-> কৃষ্ণপ্রেমা দিতে, নিতে, ধরে মহাশক্তি ॥২৬॥
 
 > gaurīdāsa paṇḍita yāṅra premoddaṇḍa-bhakti
 > kṛṣṇa-premā dite, nite, dhare mahāśakti
@@ -21573,9 +17049,6 @@ The village Ambikā-kālanā, which is situated just across the river Ganges fro
 
 ### CC Adi 11.27
 
-> নিত্যানন্দে সমর্পিল জাতি-কুল-পাঁতি ।
-> শ্রীচৈতন্য-নিত্যানন্দে করি’ প্রাণপতি ॥২৭॥
-
 > nityānande samarpila jāti-kula-pāṅti
 > śrī-caitanya-nityānande kari prāṇapati
 
@@ -21584,9 +17057,6 @@ The village Ambikā-kālanā, which is situated just across the river Ganges fro
 **Making Lord Caitanya and Lord Nityānanda the Lords of his life, Gaurīdāsa Paṇḍita sacrificed everything for the service of Lord Nityānanda, even the fellowship of his own family.**
 
 ### CC Adi 11.28
-
-> নিত্যানন্দ প্রভুর প্রিয় — পণ্ডিত পুরন্দর ।
-> প্রেমার্ণব-মধ্যে ফিরে যৈছন মন্দর ॥২৮॥
 
 > nityānanda prabhura priya—paṇḍita purandara
 > premārṇava-madhye phire yaichana mandara
@@ -21598,9 +17068,6 @@ The village Ambikā-kālanā, which is situated just across the river Ganges fro
 Paṇḍita Purandara met Śrī Nityānanda Prabhu at Khaḍadaha. When Nityānanda Prabhu visited this village, He danced very uncommonly, and His dancing captivated Purandara Paṇḍita.The *paṇḍita* was in the top of a tree, and upon seeing the dancing of Nityānanda he jumped down on the ground proclaiming himself to be Aṅgada, one of the devotees in the camp of Hanumān during the pastimes of Lord Rāmacandra.
 
 ### CC Adi 11.29
-
-> পরমেশ্বরদাস — নিত্যানন্দৈক-শরণ ।
-> কৃষ্ণভক্তি পায়, তাঁরে যে করে স্মরণ ॥২৯॥
 
 > parameśvara-dāsa—nityānandaika-śaraṇa
 > kṛṣṇa-bhakti pāya, tāṅre ye kare smaraṇa
@@ -21615,9 +17082,6 @@ Parameśvarī Ṭhākura belonged, it is said, to a *vaidya* family. A descendan
 
 ### CC Adi 11.30
 
-> জগদীশ পণ্ডিত হয় জগৎ-পাবন ।
-> কৃষ্ণপ্রেমামৃত বর্ষে, যেন বর্ষা ঘন ॥৩০॥
-
 > jagadīśa paṇḍita haya jagat-pāvana
 > kṛṣṇa-premāmṛta varṣe, yena varṣā ghana
 
@@ -21628,9 +17092,6 @@ Parameśvarī Ṭhākura belonged, it is said, to a *vaidya* family. A descendan
 Descriptions of Jagadīśa Paṇḍita are available from *Caitanya-bhāgavata, Ādi-līlā,* Chapter Six, and *Caitanya-caritāmṛta, Ādi-lila,* Chapter Fourteen. He belonged to the village of Yaśaḍā-grāma, in the district of Nadia near the Cākadaha railway station. His father, the son of Bhaṭṭa Nārāyaṇa, was named Kamalākṣa. Both his father and mother were great devotees of Lord Viṣṇu, and after their death, Jagadīśa, with his wife Duḥkhinī and brother Maheśa, left his birthplace and came to Śrī Māyāpur to live in the company of Jagannātha Miśra and other Vaiṣṇavas. Lord Caitanya asked Jagadīśa to go to Jagannātha Purī to preach the *hari-nāma-saṅkīrtana* movement. After returning from Jagannātha Purī, on the order of Lord Jagannātha he established Deities of Jagannātha in the village of Yaśaḍā-grāma. It is said that when Jagadīśa Paṇḍita brought the Deity of Jagannātha to Yaśaḍā-grāma, he tied the heavy Deity to a stick and thus brought Him to the village. The priests of the temple still show the stick used by Jagadīśa Paṇḍita to carry the Jagannātha Deity.
 
 ### CC Adi 11.31
-
-> নিত্যানন্দ-প্রিয়ভৃত্য পণ্ডিত ধনঞ্জয় ।
-> অত্যন্ত বিরক্ত, সদা কৃষ্ণপ্রেমময় ॥৩১॥
 
 > nityānanda-priyabhṛtya paṇḍita dhanañjaya
 > atyanta virakta, sadā kṛṣṇa-premamaya
@@ -21643,9 +17104,6 @@ Paṇḍita Dhanañjaya was a resident of the village in Katwa named Śītala. H
 
 ### CC Adi 11.32
 
-> মহেশ পণ্ডিত — ব্রজের উদার গোপাল ।
-> ঢক্কাবাদ্যে নৃত্য করে প্রেমে মাতোয়াল ॥৩২॥
-
 > maheśa paṇḍita—vrajera udāra gopāla
 > ḍhakkā-vādye nṛtya kare preme mātoyāla
 
@@ -21656,9 +17114,6 @@ Paṇḍita Dhanañjaya was a resident of the village in Katwa named Śītala. H
 The village of Maheśa Paṇḍita, which is known as Pālapāḍā, is situated in the district of Nadia within a forest about one mile south of the Cākadaha railway station. The Ganges flows nearby. It is said that formerly Maheśa Paṇḍita lived on the eastern side of Jirāṭ in the village known as Masipura or Yaśīpura, and when Masipura merged into the riverbed of the Ganges, the Deities there were brought to Pālapāḍā, wh ich is situated in the midst of various villages such as Beleḍāṅgā, Berigrāma, Sukhasāgara, Cānduḍe and Manasāpotā. (There are about fourteen villages, and the entire neighborhood is known as Pāñcanagara Paragaṇā.) It is mentioned that Maheśa Paṇḍita joined the festival performed by Śrī Nityānanda Prabhu at Pāṇihāṭī. Narottama dāsa Ṭhākura also joined in the festival, and Maheśa Paṇḍita saw him on that occasion. In the temple of Maheśa Paṇḍita there are Deities of Gaura-Nityānanda, Śrī Gopīnātha, Śrī Madana-mohana and Rādhā-Govinda, as well as a *śālagrāma-śilā.*
 
 ### CC Adi 11.33
-
-> নবদ্বীপে পুরুষোত্তম পণ্ডিত মহাশয় ।
-> নিত্যানন্দ-নামে যাঁর মহোন্মাদ হয় ॥৩৩॥
 
 > navadvīpe puruṣottama paṇḍita mahāśaya
 > nityānanda-nāme yāṅra mahonmāda haya
@@ -21671,9 +17126,6 @@ It is stated in the *Caitanya-bhāgavata* that Puruṣottama Paṇḍita was bor
 
 ### CC Adi 11.34
 
-> বলরাম দাস — কৃষ্ণপ্রেমরসাস্বাদী ।
-> নিত্যানন্দ-নামে হয় পরম উন্মাদী ॥৩৪॥
-
 > balarāma dāsa—kṛṣṇa-prema-rasāsvādī
 > nityānanda-nāme haya parama unmādī
 
@@ -21682,9 +17134,6 @@ It is stated in the *Caitanya-bhāgavata* that Puruṣottama Paṇḍita was bor
 **Balarāma dāsa always fully tasted the nectar of love of Kṛṣṇa. Upon hearing the name of Nityānanda Prabhu, he would become greatly maddened.**
 
 ### CC Adi 11.35
-
-> মহাভাগবত যদুনাথ কবিচন্দ্র ।
-> যাঁহার হৃদয়ে নৃত্য করে নিত্যানন্দ ॥৩৫॥
 
 > mahā-bhāgavata yadunātha kavicandra
 > yāṅhāra hṛdaye nṛtya kare nityānanda
@@ -21697,9 +17146,6 @@ In the *Caitanya-bhāgavata, Madhya-līlā,* Chapter One, it is said that a gent
 
 ### CC Adi 11.36
 
-> রাঢ়ে যাঁর জন্ম কৃষ্ণদাস দ্বিজবর ।
-> শ্রীনিত্যানন্দের তেঁহো পরম কিঙ্কর ॥৩৬॥
-
 > rāḍhe yāṅra janma kṛṣṇadāsa dvijavara
 > śrī-nityānandera teṅho parama kiṅkara
 
@@ -21710,9 +17156,6 @@ In the *Caitanya-bhāgavata, Madhya-līlā,* Chapter One, it is said that a gent
 Rāḍha-deśa refers to the part of Bengal where the Ganges does not flow.
 
 ### CC Adi 11.37
-
-> কালা-কৃষ্ণদাস বড় বৈষ্ণবপ্রধান ।
-> নিত্যানন্দ-চন্দ্র বিনু নাহি জানে আন ॥৩৭॥
 
 > kālā-kṛṣṇadāsa baḍa vaiṣṇava-pradhāna
 > nityānanda-candra vinu nahi jāne āna
@@ -21725,9 +17168,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 132), it is said that Kālā Kṛṣ
 
 ### CC Adi 11.38
 
-> শ্রীসদাশিব কবিরাজ — বড় মহাশয় ।
-> শ্রীপুরুষোত্তমদাস — তাঁহার তনয় ॥৩৮॥
-
 > śrī-sadāśiva kavirāja—baḍa mahāśaya
 > śrī-puruṣottama-dāsa—tāṅhāra tanaya
 
@@ -21736,9 +17176,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 132), it is said that Kālā Kṛṣ
 **The twenty-third and twenty-fourth prominent devotees of Nityānanda Prabhu were Sadāśiva Kavirāja and his son Puruṣottama dāsa, who was the tenth gopāla.**
 
 ### CC Adi 11.39
-
-> আজন্ম নিমগ্ন নিত্যানন্দের চরণে ।
-> নিরন্তর বাল্য-লীলা করে কৃষ্ণ-সনে ॥৩৯॥
 
 > ājanma nimagna nityānandera caraṇe
 > nirantara bālya-līlā kare kṛṣṇa-sane
@@ -21750,9 +17187,6 @@ In the *Gaura-gaṇoddeśa-dīpikā,* verse 132), it is said that Kālā Kṛṣ
 Sadāśiva Kavirāja and Nāgara Puruṣottama, who were father and son, are described in the *Caitanya-bhāgavata* as *mahā-bhāgyavān,* greatly fortunate. They belonged to the *vaidya* caste of physicians. The *Gaura-gaṇoddeśa-dīpikā,* verse 156, says that Candrāvalī, a most beloved *gopī* of Kṛṣṇa's, later took birth as Sadāśiva Kavirāja. In verses 194 and 200 it is said that Kaṁsāri Sena, the father of Sadāśiva Kavirāja, was formerly the *gopī* named Ratnāvalī in Kṛṣṇa's pastimes. All the family members of Sadāśiva Kavirāja were great devotees of Lord Caitanya Mahāprabhu. Puruṣottama dāsa Ṭhākura sometimes lived at Sukhasāgara, near the Cākadaha and Śimurāli railway stations. All the Deities installed by Puruṣottama Ṭhākura were formerly situated in Beleḍāṅgā-grāma, but when the temple was destroyed the Deities were brought to Sukhasāgara. When that temple merged into the bed of the Ganges, the Deities were brought with Jāhnavā-mātā's Deity to Sāhebaḍāṅgā Beḍigrāma. Since that place also has been destroyed, all the Deities are now situated in the village named Cānduḍe-grāma, which is situated one mile up from Pālapāḍā, as referred to above.
 
 ### CC Adi 11.40
-
-> তাঁর পুত্র — মহাশয় শ্রীকানু ঠাকুর ।
-> যাঁর দেহে রহে কৃষ্ণ-প্রেমামৃতপূর ॥৪০॥
 
 > tāṅra putra—mahāśaya śrī-kānu ṭhākura
 > yāṅra dehe rahe kṛṣṇa-premāmṛta-pūra
@@ -21766,9 +17200,6 @@ To go to the headquarters of Kānu Ṭhākura, one has to proceed by boat from t
 In the family of Kānu Ṭhākura there is a Rādhā-Kṛṣṇa Deity known as Prāṇavallabha. It is said that his family worshiped this Deity long before the appearance of Lord Caitanya Mahāprabhu. When there was a Maharashtrian invasion of Bengal, the family of Kānu Ṭhākura was scattered, and after the invasion one Harikṛṣṇa Gosvāmī of that family came back to their original home, Bodhakhānā, and re-established the Prāṇavallabha Deity. The descendants of the family still engage in the service of Prāṇavallabha. Kānu Ṭhākura was present during the Kheṭari *utsava,* when Jāhnavā-devī and Vīrabhadra Gosvāmī were also present. One of Kānu Ṭhākura's family members, Mādhavācārya, married the daughter of Śrī Nityānanda Prabhu, who was named Gaṅgādevī. Both Puruṣottama Ṭhākura and Kānu Ṭhākura had many disciples from *brāhmaṇa* families. Most of the disciplic descendants of Kānu Ṭhākura now reside in the village named Gaḍabetā, by the river Śilāvatī, in the Midnapore district.
 
 ### CC Adi 11.41
-
-> মহাভাগবত-শ্রেষ্ঠ দত্ত উদ্ধারণ ।
-> সর্বভাবে সেবে নিত্যানন্দের চরণ ॥৪১॥
 
 > mahā-bhāgavata-śreṣṭha datta uddhāraṇa
 > sarva-bhāve seve nityānandera caraṇa
@@ -21789,9 +17220,6 @@ Uddhāraṇa Datta Ṭhākura was the manager of the estate of a big Zamindar in
 
 ### CC Adi 11.42
 
-> আচার্য বৈষ্ণবানন্দ ভক্তি-অধিকারী ।
-> পূর্বে নাম ছিল যাঁর ‘রঘুনাথ পুরী’ ॥৪২॥
-
 > ācārya vaiṣṇavānanda bhakti-adhikārī
 > pūrve nāma chila yāṅra 'raghunātha purī'
 
@@ -21802,9 +17230,6 @@ Uddhāraṇa Datta Ṭhākura was the manager of the estate of a big Zamindar in
 In the *Gaura-gaṇoddeśa-dīpikā,* verse 97, it is said that Raghunātha Purī was previously very powerful in the eight mystic successes. He was an incarnation of one of the successes.
 
 ### CC Adi 11.43
-
-> বিষ্ণুদাস, নন্দন, গঙ্গাদাস, — তিন ভাই ।
-> পূর্বে যাঁর ঘরে ছিলা ঠাকুর নিতাই ॥৪৩॥
 
 > viṣṇudāsa, nandana, gaṅgādāsa—tina bhāi
 > pūrve yāṅra ghare chilā ṭhākura nitāi
@@ -21817,9 +17242,6 @@ The three brothers Viṣṇudāsa, Nandana and Gaṅgādāsa were residents of N
 
 ### CC Adi 11.44
 
-> নিত্যানন্দভৃত্য পরমানন্দ উপাধ্যায় ।
-> শ্রীজীব পণ্ডিত নিত্যানন্দ-গুণ গায় ॥৪৪॥
-
 > nityānanda-bhṛtya—paramānanda upādhyāya
 > śrī-jīva paṇḍita nityānanda-guṇa gāya
 
@@ -21830,9 +17252,6 @@ The three brothers Viṣṇudāsa, Nandana and Gaṅgādāsa were residents of N
 Śrī Paramānanda Upādhyāya was an advanced devotee. His name is mentioned in the *Caitanya-bhāgavata,* where Śrī Jīva Paṇḍita is also mentioned as the second son of Ratnagarbha Ācārya and a childhood friend of Hāḍāi Ojhā, the father of Nityānanda Prabhu. In the *Gaura-gaṇoddeśa-dīpikā,* verse 169, it is said that Śrī Jīva Paṇḍita was formerly the *gopī* named Indirā.
 
 ### CC Adi 11.45
-
-> পরমানন্দ গুপ্ত — কৃষ্ণভক্ত মহামতি ।
-> পূর্বে যাঁর ঘরে নিত্যানন্দের বসতি ॥৪৫॥
 
 > paramānanda gupta—kṛṣṇa-bhakta mahāmatī
 > pūrve yāṅra ghare nityānandera vasati
@@ -21845,9 +17264,6 @@ Paramānanda Gupta composed a prayer to Lord Kṛṣṇa known as *Kṛṣṇa-s
 
 ### CC Adi 11.46
 
-> নারায়ণ, কৃষ্ণদাস আর মনোহর ।
-> দেবানন্দ — চারি ভাই নিতাই-কিঙ্কর ॥৪৬॥
-
 > nārāyaṇa, kṛṣṇadāsa āra manohara
 > devānanda—cāri bhāi nitāi-kiṅkara
 
@@ -21856,9 +17272,6 @@ Paramānanda Gupta composed a prayer to Lord Kṛṣṇa known as *Kṛṣṇa-s
 **The thirty-second, thirty-third, thirty-fourth and thirty-fifth prominent devotees were Nārāyaṇa, Kṛṣṇadāsa, Manohara and Devānanda, who always engaged in the service of Lord Nityānanda.**
 
 ### CC Adi 11.47
-
-> হোড় কৃষ্ণদাস — নিত্যানন্দপ্রভু-প্রাণ ।
-> নিত্যানন্দ-পদ বিনু নাহি জানে আন ॥৪৭॥
 
 > hoḍa kṛṣṇadāsa—nityānanda-prabhu-prāṇa
 > nityānanda-pada vinu nāhi jāne āna
@@ -21871,9 +17284,6 @@ The residence of Kṛṣṇadāsa Hoḍa was Baḍagāchi, which is now in Bangl
 
 ### CC Adi 11.48
 
-> নকড়ি, মুকুন্দ, সূর্য, মাধব, শ্রীধর ।
-> রামানন্দ বসু, জগন্নাথ, মহীধর ॥৪৮॥
-
 > nakaḍi, mukunda, sūrya, mādhava, śrīdhara
 > rāmānanda vasu, jagannātha, mahīdhara
 
@@ -21885,9 +17295,6 @@ The residence of Kṛṣṇadāsa Hoḍa was Baḍagāchi, which is now in Bangl
 
 ### CC Adi 11.49
 
-> শ্রীমন্ত, গোকুলদাস, হরিহরানন্দ ।
-> শিবাই, নন্দাই, অবধূত পরমানন্দ ॥৪৯॥
-
 > śrīmanta, gokula-dāsa hariharānanda
 > śivāi, nandāi, avadhūta paramānanda
 
@@ -21896,9 +17303,6 @@ The residence of Kṛṣṇadāsa Hoḍa was Baḍagāchi, which is now in Bangl
 **Śrīmanta was the forty-fifth, Gokula dāsa the forty-sixth, Hariharānanda the forty-seventh, Śivāi the forty-eighth, Nandāi the forty-ninth and Paramānanda the fiftieth.**
 
 ### CC Adi 11.50
-
-> বসন্ত, নবনী হোড়, গোপাল, সনাতন ।
-> বিষ্ণাই হাজরা, কৃষ্ণানন্দ, সুলোচন ॥৫০॥
 
 > vasanta, navanī hoḍa, gopāla, sanātana
 > viṣṇāi hājarā, kṛṣṇānanda, sulocana
@@ -21910,9 +17314,6 @@ The residence of Kṛṣṇadāsa Hoḍa was Baḍagāchi, which is now in Bangl
 Navanī Hoḍa appears to have been the same person as Hoḍa Kṛṣṇadāsa, the son of the King of Baḍagāchi. His father's name was Hari Hoḍa. One can visit Baḍagāchi by taking the Lālagolā-ghāṭa railway line. Formerly the Ganges flowed by Baḍagāchi, but now it has become a canal known as the Kālśira Khāla. Near the Muḍāgāchā station is a village known as Śāligrāma in which King Kṛṣṇadāsa arranged for the marriage of Śrī Nityānanda Prabhu, as described in the *Bhakti-ratnākara*,(Twelfth Wave). It is sometimes said that Navanī Hoḍa was the son of Rāja Kṛṣṇadāsa. His descendants still live in Rukuṇapura, a village near Bahiragāchi. They belong to the *dakṣiṇa-rāḍhīya-kāyastha* community, but, having been reformed as *brāhmaṇas,* they still initiate all classes of men.
 
 ### CC Adi 11.51
-
-> কংসারি সেন, রামসেন, রামচন্দ্র কবিরাজ ।
-> গোবিন্দ, শ্রীরঙ্গ, মুকুন্দ, তিন কবিরাজ ॥৫১॥
 
 > kaṁsāri sena, rāmasena, rāmacandra kavirāja
 > govinda, śrīraṅga, mukunda, tina kavirāja
@@ -21929,9 +17330,6 @@ Kaṁsāri Sena was formerly Ratnāvalī in Vraja, as described in the *Gaura-ga
 
 ### CC Adi 11.52
 
-> পীতাম্বর, মাধবাচার্য, দাস দামোদর ।
-> শঙ্কর, মুকুন্দ, জ্ঞানদাস, মনোহর ॥৫২॥
-
 > pītāmbara, mādhavācārya, dāsa dāmodara
 > śaṅkara, mukunda, jñāna-dāsa, manohara
 
@@ -21940,9 +17338,6 @@ Kaṁsāri Sena was formerly Ratnāvalī in Vraja, as described in the *Gaura-ga
 **Among the devotees of Lord Nityānanda Prabhu, Pītāmbara was the sixty-fourth, Mādhavācārya the sixty-fifth, Dāmodara dāsa the sixty-sixth, Śaṅkara the sixty-seventh, Mukunda the sixty-eighth, Jñāna dāsa the sixty-ninth and Manohara the seventieth.**
 
 ### CC Adi 11.53
-
-> নর্তক গোপাল, রামভদ্র, গৌরাঙ্গদাস ।
-> নৃসিংহচৈতন্য, মীনকেতন রামদাস ॥৫৩॥
 
 > nartaka gopāla, rāmabhadra, gaurāṅga-dāsa
 > nṛsiṁha-caitanya, mīnaketana rāmadāsa
@@ -21955,9 +17350,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 
 ### CC Adi 11.54
 
-> বৃন্দাবনদাস — নারায়ণীর নন্দন ।
-> ‘চৈতন্য-মঙ্গল’ যেঁহো করিল রচন ॥৫৪॥
-
 > vṛndāvana-dāsa—nārāyaṇīra nandana
 > 'caitanya-maṅgala' yeṅho karila racana
 
@@ -21966,9 +17358,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 **Vṛndāvana dāsa Ṭhākura, the son of Śrīmatī Nārāyaṇī, composed Śrī Caitanya-maṅgala [later known as Śrī Caitanya-bhāgavata].**
 
 ### CC Adi 11.55
-
-> ভাগবতে কৃষ্ণলীলা বর্ণিলা বেদব্যাস ।
-> চৈতন্য-লীলাতে ব্যাস — বৃন্দাবন দাস ॥৫৫॥
 
 > bhāgavate kṛṣṇa-līlā varṇilā vedavyāsa
 > caitanya-līlāte vyāsa—vṛndāvana dāsa
@@ -21981,9 +17370,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 
 ### CC Adi 11.56
 
-> সর্বশাখা-শ্রেষ্ঠ বীরভদ্র গোসাঞি ।
-> তাঁর উপশাখা যত, তার অন্ত নাই ॥৫৬॥
-
 > sarvaśākhā-śreṣṭha vīrabhadra gosāñi
 > tāṅra upaśākhā yata, tāra anta nāi
 
@@ -21992,9 +17378,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 **Among all the branches of Śrī Nityānanda Prabhu, Vīrabhadra Gosāñi was the topmost. His subbranches were unlimited.**
 
 ### CC Adi 11.57
-
-> অনন্ত নিত্যানন্দগণ — কে করু গণন ।
-> আত্মপবিত্রতা-হেতু লিখিলাঙ কত জন ॥৫৭॥
 
 > ananta nityānanda-gaṇa—ke karu gaṇana
 > ātma-pavitratā-hetu likhilāṅ kata jana
@@ -22005,9 +17388,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 
 ### CC Adi 11.58
 
-> এই সর্বশাখা পূর্ণ — পক্ব প্রেমফলে ।
-> যারে দেখে, তারে দিয়া ভাসাইল সকলে ॥৫৮॥
-
 > ei sarva-śākhā pūrṇa—pakva prema-phale
 > yāre dekhe, tāre diyā bhāsāila sakale
 
@@ -22016,9 +17396,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 **All these branches, the devotees of Lord Nityānanda Prabhu, being full of ripened fruits of love of Kṛṣṇa, distributed these fruits to all they met, flooding them with love of Kṛṣṇa.**
 
 ### CC Adi 11.59
-
-> অনর্গল প্রেম সবার, চেষ্টা অনর্গল ।
-> প্রেম দিতে, কৃষ্ণ দিতে ধরে মহাবল ॥৫৯॥
 
 > anargala prema sabāra, ceṣṭā anargala
 > prema dite, kṛṣṇa dite dhare mahābala
@@ -22031,9 +17408,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 
 ### CC Adi 11.60
 
-> সংক্ষেপে কহিলাঙ এই নিত্যানন্দগণ ।
-> যাঁহার অবধি না পায় ‘সহস্র-বদন’ ॥৬০॥
-
 > saṅkṣepe kahilāṅ ei nityānanda-gaṇa
 > yāṅhāra avadhi nā pāya 'sahasra-vadana'
 
@@ -22042,9 +17416,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 **I have briefly described only some of the followers and devotees of Lord Nityānanda Prabhu. Even the thousand-mouthed Śeṣa Nāga cannot describe all of these unlimited devotees.**
 
 ### CC Adi 11.61
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৬১॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -22059,9 +17430,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 
 ### CC Adi 12.1
 
-> অদ্বৈতাঙ্ঘ্র্যব্জভৃঙ্গাংস্তান্ সারাসারভৃতোঽখিলান্ ।
-> হিত্বাঽসারান্ সারভৃতো নৌমি চৈতন্যজীবনান্ ॥১॥
-
 > advaitāṅghry-abja-bhṛṅgāṁs tān
 > sārāsāra-bhṛto 'khilān
 > hitvāsārān sāra-bhṛto
@@ -22073,9 +17441,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 
 ### CC Adi 12.2
 
-> জয় জয় মহাপ্রভু শ্রীকৃষ্ণচৈতন্য ।
-> জয় জয় নিত্যানন্দ জয়াদ্বৈত ধন্য ॥২॥
-
 > jaya jaya mahāprabhu śrī-kṛṣṇa-caitanya
 > jaya jaya nityānanda jayādvaita dhanya
 
@@ -22084,9 +17449,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 **All glories to Śrī Caitanya Mahāprabhu! All glories to Lord Nityānanda! All glories to Śrī Advaita Prabhu! All of Them are glorious.**
 
 ### CC Adi 12.3
-
-> শ্রীচৈতন্যামরতরোর্দ্বিতীয়স্কন্ধরূপিণঃ ।
-> শ্রীমদদ্বৈতচন্দ্রস্য শাখারূপান্ গণান্নুমঃ ॥৩॥
 
 > śrī-caitanyāmara-taror
 > dvitīya-skandha-rūpiṇaḥ
@@ -22099,9 +17461,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 
 ### CC Adi 12.4
 
-> বৃক্ষের দ্বিতীয় স্কন্ধ — আচার্য-গোসাঞি ।
-> তাঁর যত শাখা হইল, তার লেখা নাঞি ॥৪॥
-
 > vṛkṣera dvitīya skandha—ācārya-gosāñi
 > tāṅra yata śākhā ha-ila, tāra lekhā nāñi
 
@@ -22110,9 +17469,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 **Śrī Advaita Prabhu was the second big branch of the tree. There are many subbranches, but it is impossible to mention them all.**
 
 ### CC Adi 12.5
-
-> চৈতন্য-মালীর কৃপাজলের সেচনে ।
-> সেই জলে পুষ্ট স্কন্ধ বাড়ে দিনে দিনে ॥৫॥
 
 > caitanya-mālīra kṛpā-jalera secane
 > sei jale puṣṭa skandha bāḍe dine dine
@@ -22123,9 +17479,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 
 ### CC Adi 12.6
 
-> সেই স্কন্ধে যত প্রেমফল উপজিল ।
-> সেই কৃষ্ণপ্রেমফলে জগৎ ভরিল ॥৬॥
-
 > sei skandhe yata prema-phala upajila
 > sei kṛṣṇa-prema-phale jagat bharila
 
@@ -22135,9 +17488,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 
 ### CC Adi 12.7
 
-> সেই জল স্কন্ধে করে শাখাতে সঞ্চার ।
-> ফলে-ফুলে বাড়ে, — শাখা হইল বিস্তার ॥৭॥
-
 > sei jala skandhe kare śākhāte sañcāra
 > phale-phule bāḍe,—śākhā ha-ila vistāra
 
@@ -22146,9 +17496,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 68, describes Mīnaketana Rāmadāsa as
 **As the trunk and branches were watered, the branches and subbranches spread lavishly, and the tree grew full with fruits and flowers.**
 
 ### CC Adi 12.8
-
-> প্রথমে ত’ একমত আচার্যের গণ ।
-> পাছে দুইমত হৈল দৈবের কারণ ॥৮॥
 
 > prathame ta' eka-mata ācāryera gaṇa
 > pāche dui-mata haila daivera kāraṇa
@@ -22170,9 +17517,6 @@ The words *daivera kāraṇa* indicate that by dint of providence, or by God's w
 
 ### CC Adi 12.9
 
-> কেহ ত’ আচার্য আজ্ঞায়, কেহ ত’ স্বতন্ত্র ।
-> স্বমত কল্পনা করে দৈব-পরতন্ত্র ॥৯॥
-
 > keha ta' ācārya ājñāya, keha ta' svatantra
 > sva-mata kalpanā kare daiva-paratantra
 
@@ -22183,9 +17527,6 @@ The words *daivera kāraṇa* indicate that by dint of providence, or by God's w
 This verse describes the beginning of a schism. When disciples do not stick to the principle of accepting the order of their spiritual master, immediately there are two opinions. Any opinion different from the opinion of the spiritual master is useless. One cannot infiltrate materially concocted ideas into spiritual advancement. That is deviation. There is no scope for adjusting spiritual advancement to material ideas.
 
 ### CC Adi 12.10
-
-> আচার্যের মত যেই, সেই মত সার ।
-> তাঁর আজ্ঞা লঙ্ঘি’ চলে, সেই ত’ অসার ॥১০॥
 
 > ācāryera mata yei, sei mata sāra
 > tāṅra ājñā laṅghi' cale, sei ta' asāra
@@ -22198,9 +17539,6 @@ Here is the opinion of Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī. Persons who
 
 ### CC Adi 12.11
 
-> অসারের নামে ইহাঁ নাহি প্রয়োজন ।
-> ভেদ জানিবারে করি একত্র গণন ॥১১॥
-
 > asārera nāme ihāṅ nāhi prayojana
 > bheda jānibāre kari ekatra gaṇana
 
@@ -22209,9 +17547,6 @@ Here is the opinion of Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī. Persons who
 **There is no need to name those who are useless. I have mentioned them only to distinguish them from the useful devotees.**
 
 ### CC Adi 12.12
-
-> ধান্যরাশি মাপে যৈছে পাত্না সহিতে ।
-> পশ্চাতে পাত্না উড়াঞা সংস্কার করিতে ॥১২॥
 
 > dhānya-rāśi māpe yaiche pātnā sahite
 > paścāte pātnā uḍāñā saṁskāra karite
@@ -22224,9 +17559,6 @@ This example given by Kṛṣṇadāsa Kavirāja Gosvāmī is very appropriate. 
 
 ### CC Adi 12.13
 
-> অচ্যুতানন্দ — বড় শাখা, আচার্য-নন্দন ।
-> আজন্ম সেবিলা তেঁহো চৈতন্য-চরণ ॥১৩॥
-
 > acyutānanda—baḍa śākhā, ācārya-nandana
 > ājanma sevilā teṅho caitanya-caraṇa
 
@@ -22235,9 +17567,6 @@ This example given by Kṛṣṇadāsa Kavirāja Gosvāmī is very appropriate. 
 **A big branch of Advaita Ācārya was Acyutānanda, His son. From the beginning of his life he engaged in the service of the lotus feet of Lord Caitanya.**
 
 ### CC Adi 12.14
-
-> চৈতন্য গোসাঞির গুরু — কেশব ভারতী ।
-> এই পিতার বাক্য শুনি’ দুঃখ পাইল অতি ॥১৪॥
 
 > caitanya-gosāñira guru—keśava bhāratī
 > ei pitāra vākya śuni' duḥkha pāila ati
@@ -22248,9 +17577,6 @@ This example given by Kṛṣṇadāsa Kavirāja Gosvāmī is very appropriate. 
 
 ### CC Adi 12.15
 
-> জগদ্গুরুতে তুমি কর ঐছে উপদেশ ।
-> তোমার এই উপদেশে নষ্ট হইল দেশ ॥১৫॥
-
 > jagad-gurute tumi kara aiche upadeśa
 > tomāra ei upadeśe naṣṭa ha-ila deśa
 
@@ -22260,9 +17586,6 @@ This example given by Kṛṣṇadāsa Kavirāja Gosvāmī is very appropriate. 
 
 ### CC Adi 12.16
 
-> চৌদ্দ ভুবনের গুরু — চৈতন্য-গোসাঞি ।
-> তাঁর গুরু — অন্য, এই কোন শাস্ত্রে নাই ॥১৬॥
-
 > caudda bhuvanera guru—caitanya-gosāñi
 > tāṅra guru—anya, ei kona śāstre nāi
 
@@ -22271,9 +17594,6 @@ This example given by Kṛṣṇadāsa Kavirāja Gosvāmī is very appropriate. 
 **"Lord Caitanya Mahāprabhu is the spiritual master of the fourteen worlds, but You say that someone else is His spiritual master. This is not supported by any revealed scripture."**
 
 ### CC Adi 12.17
-
-> পঞ্চম বর্ষের বালক কহে সিদ্ধান্তের সার ।
-> শুনিয়া পাইলা আচার্য সন্তোষ অপার ॥১৭॥
 
 > pañcama varṣera bālaka kahe siddhāntera sāra
 > śuniyā pāilā ācārya santoṣa apāra
@@ -22294,9 +17614,6 @@ Of the six sons of Advaita Ācārya, threeAcyutananda, Kṛṣṇa Miśra and Go
 
 ### CC Adi 12.18
 
-> কৃষ্ণমিশ্র-নাম আর আচার্য তনয় ।
-> চৈতন্য-গোসাঞি বৈসে যাঁহার হৃদয় ॥১৮॥
-
 > kṛṣṇa-miśra-nāma āra ācārya-tanaya
 > caitanya-gosāñi baise yāṅhāra hṛdaya
 
@@ -22305,9 +17622,6 @@ Of the six sons of Advaita Ācārya, threeAcyutananda, Kṛṣṇa Miśra and Go
 **Kṛṣṇa Miśra was a son of Advaita Ācārya. Lord Caitanya Mahāprabhu always sat in his heart.**
 
 ### CC Adi 12.19
-
-> শ্রীগোপাল-নামে আর আচার্যের সুত ।
-> তাঁহার চরিত্র, শুন, অত্যন্ত অদ্ভুত ॥১৯॥
 
 > śrī-gopāla-nāme āra ācāryera suta
 > tāṅhāra caritra, śuna, atyanta adbhuta
@@ -22320,9 +17634,6 @@ Of the six sons of Advaita Ācārya, threeAcyutananda, Kṛṣṇa Miśra and Go
 
 ### CC Adi 12.20
 
-> গুণ্ডিচা-মন্দিরে মহাপ্রভুর সম্মুখে ।
-> কীর্তনে নর্তন করে বড় প্রেম-সুখে ॥২০॥
-
 > guṇḍicā-mandire mahāprabhura sammukhe
 > kīrtane nartana kare baḍa prema-sukhe
 
@@ -22334,9 +17645,6 @@ The Guṇḍicā-mandira is situated in Jagannātha Purī, and every year Jagann
 
 ### CC Adi 12.21
 
-> নানা-ভাবোদ্গম দেহে অদ্ভুত নর্তন ।
-> দুই গোসাঞি ‘হরি’ বলে, আনন্দিত মন ॥২১॥
-
 > nānā-bhāvodgama dehe adbhuta nartana
 > dui gosāñi 'hari' bale, ānandita mana
 
@@ -22345,9 +17653,6 @@ The Guṇḍicā-mandira is situated in Jagannātha Purī, and every year Jagann
 **While Lord Caitanya Mahāprabhu and Advaita Prabhu chanted the Hare Kṛṣṇa mantra and danced, there were various ecstatic symptoms in Their bodies, and Their minds were very pleased.**
 
 ### CC Adi 12.22
-
-> নাচিতে নাচিতে গোপাল হইল মূর্চ্ছিত ।
-> ভূমেতে পড়িল, দেহে নাহিক সম্বিত ॥২২॥
 
 > nācite nācite gopāla ha-ila mūrcchita
 > bhūmete paḍila, dehe nāhika saṁvita
@@ -22358,9 +17663,6 @@ The Guṇḍicā-mandira is situated in Jagannātha Purī, and every year Jagann
 
 ### CC Adi 12.23
 
-> দুঃখিত হইলা আচার্য পুত্র কোলে লঞা ।
-> রক্ষা করে নৃসিংহের মন্ত্র পড়িয়া ॥২৩॥
-
 > duḥkhita ha-ilā ācārya putra kole lañā
 > rakṣā kare nṛsiṁhera mantra paḍiyā
 
@@ -22369,9 +17671,6 @@ The Guṇḍicā-mandira is situated in Jagannātha Purī, and every year Jagann
 **Advaita Ācārya Prabhu became very unhappy. Taking His son on His lap, He began to chant the Nṛsiṁha mantra for his protection.**
 
 ### CC Adi 12.24
-
-> নানা মন্ত্র পড়েন আচার্য, না হয় চেতন ।
-> আচার্যের দুঃখে বৈষ্ণব করেন ক্রন্দন ॥২৪॥
 
 > nānā mantra paḍena ācārya, nā haya cetana
 > ācāryera duḥkhe vaiṣṇava karena krandana
@@ -22382,9 +17681,6 @@ The Guṇḍicā-mandira is situated in Jagannātha Purī, and every year Jagann
 
 ### CC Adi 12.25
 
-> তবে মহাপ্রভু, তাঁর হৃদে হস্ত ধরি’ ।
-> ‘উঠহ, গোপাল,’ কৈল বল ‘হরি’ ‘হরি’ ॥২৫॥
-
 > tabe mahāprabhu, tāṅra hṛde hasta dhari'
 > 'uṭhaha, gopāla,' kaila bala 'hari' 'hari'
 
@@ -22394,9 +17690,6 @@ The Guṇḍicā-mandira is situated in Jagannātha Purī, and every year Jagann
 
 ### CC Adi 12.26
 
-> উঠিল গোপাল প্রভুর স্পর্শ-ধ্বনি শুনি’ ।
-> আনন্দিত হঞা সবে করে হরিধ্বনি ॥২৬॥
-
 > uṭhila gopāla prabhura sparśa-dhvani śuni'
 > ānandita hañā sabe kare hari-dhvani
 
@@ -22405,9 +17698,6 @@ The Guṇḍicā-mandira is situated in Jagannātha Purī, and every year Jagann
 **When he heard this sound and felt the touch of the Lord, Gopāla immediately got up, and all the Vaiṣṇavas chanted the Hare Kṛṣṇa mahā-mantra in jubilation.**
 
 ### CC Adi 12.27
-
-> আচার্যের আর পুত্র — শ্রীবলরাম ।
-> আর পুত্র — ‘স্বরূপ’-শাখা, ‘জগদীশ’ নাম ॥২৭॥
 
 > ācāryera āra putra—śrī-balarāma
 > āra putra—'svarūpa'-śākhā, 'jagadīśa' nāma
@@ -22422,9 +17712,6 @@ Balarāma had three wives and nine sons. The youngest son of his first wife was 
 
 ### CC Adi 12.28
 
-> ‘কমলাকান্ত বিশ্বাস’ — নাম আচার্যকিঙ্কর ।
-> আচার্য-ব্যবহার সব — তাঁহার গোচর ॥২৮॥
-
 > 'kamalākānta viśvāsa'-nāma ācārya-kiṅkara
 > ācārya-vyavahāra saba—tāṅhāra gocara
 
@@ -22436,9 +17723,6 @@ The name Kamalānanda mentioned in the *Ādi-līlā* (10.149) and the name Kamal
 
 ### CC Adi 12.29
 
-> নীলাচলে তেঁহো এক পত্রিকা লিখিয়া ।
-> প্রতাপরুদ্রের পাশ দিল পাঠাইয়া ॥২৯॥
-
 > nīlācale teṅho eka patrikā likhiyā
 > pratāparudrera pāśa dila pāṭhāiyā
 
@@ -22447,9 +17731,6 @@ The name Kamalānanda mentioned in the *Ādi-līlā* (10.149) and the name Kamal
 **When Kamalākānta Viśvāsa was in Jagannātha Purī, he sent a note through someone to Mahārāja Pratāparudra.**
 
 ### CC Adi 12.30
-
-> সেই পত্রীর কথা আচার্য নাহি জানে ।
-> কোন পাকে সেই পত্রী আইল প্রভুস্থানে ॥৩০॥
 
 > sei patrīra kathā ācārya nāhi jāne
 > kona pāke sei patrī āila prabhu-sthāne
@@ -22460,9 +17741,6 @@ The name Kamalānanda mentioned in the *Ādi-līlā* (10.149) and the name Kamal
 
 ### CC Adi 12.31
 
-> সে পত্রীতে লেখা আছে — এই ত’ লিখন ।
-> ঈশ্বরত্বে আচার্যেরে করিয়াছে স্থাপন ॥৩১॥
-
 > se patrīte lekhā āche—ei ta' likhana
 > īśvaratve ācāryere kariyāche sthāpana
 
@@ -22471,9 +17749,6 @@ The name Kamalānanda mentioned in the *Ādi-līlā* (10.149) and the name Kamal
 **That note established Advaita Ācārya as an incarnation of the Supreme Personality of Godhead.**
 
 ### CC Adi 12.32
-
-> কিন্তু তাঁর দৈবে কিছু হইয়াছে ঋণ ।
-> ঋণ শোধিবারে চাহি তঙ্কা শত-তিন ॥৩২॥
 
 > kintu tāṅra daive kichu ha-iyāche ṛṇa
 > ṛṇa śodhibāre cāhi taṅkā śata-tina
@@ -22484,9 +17759,6 @@ The name Kamalānanda mentioned in the *Ādi-līlā* (10.149) and the name Kamal
 
 ### CC Adi 12.33
 
-> পত্র পড়িয়া প্রভুর মনে হৈল দুঃখ ।
-> বাহিরে হাসিয়া কিছু বলে চন্দ্রমুখ ॥৩৩॥
-
 > patra paḍiyā prabhura mane haila duḥkha
 > bāhire hāsiyā kichu bale candra-mukha
 
@@ -22496,9 +17768,6 @@ The name Kamalānanda mentioned in the *Ādi-līlā* (10.149) and the name Kamal
 
 ### CC Adi 12.34
 
-> আচার্যেরে স্থাপিয়াছে করিয়া ঈশ্বর ।
-> ইথে দোষ নাহি, আচার্য — দৈবত ঈশ্বর ॥৩৪॥
-
 > ācāryere sthāpiyāche kariyā īśvara
 > ithe doṣa nāhi, ācārya—daivata īśvara
 
@@ -22507,9 +17776,6 @@ The name Kamalānanda mentioned in the *Ādi-līlā* (10.149) and the name Kamal
 **"He has established Advaita Ācārya as an incarnation of the Supreme Personality of Godhead. There is nothing wrong in this, for He is indeed the Lord Himself.**
 
 ### CC Adi 12.35
-
-> ঈশ্বরের দৈন্য করি’ করিয়াছে ভিক্ষা ।
-> অতএব দণ্ড করি’ করাইব শিক্ষা ॥৩৫॥
 
 > īśvarera dainya kari' kariyāche bhikṣā
 > ataeva daṇḍa kari' karāiba śiksā
@@ -22524,9 +17790,6 @@ Although it is contradictory to say that the Supreme Personality of Godhead or H
 
 ### CC Adi 12.36
 
-> গোবিন্দেরে আজ্ঞা দিল, — “ইঁহা আজি হৈতে ।
-> বাউলিয়া বিশ্বাসে এথা না দিবে আসিতে ।।” ॥ ৩৬ ॥
-
 > govindere ājñā dila,—"iṅhā āji haite
 > bāuliyā viśvāse ethā nā dibe āsite"
 
@@ -22537,9 +17800,6 @@ Although it is contradictory to say that the Supreme Personality of Godhead or H
 The *bāuliyās,* or *bāulas,* are one of thirteen unauthorized sects that pass as followers of Caitanya Mahāprabhu. The Lord ordered Govinda, His personal assistant, not to allow Kamalākānta Viśvāsa to come in His presence because he had become a *bāuliyā.* Thus although the *bāula-sampradāya, āula-sampradāya* and *sahajiyā-sampradāya,* as well as the *smārtas, jāta-gosāñis, atibāḍis, cūḍādhārīs* and *gaurāṅga-nāgarīs,* claim to belong to the disciplic succession of Caitanya Mahāprabhu, the Lord actually rejected them.
 
 ### CC Adi 12.37
-
-> দণ্ড শুনি’ ‘বিশ্বাস’ হইল পরম দুঃখিত ।
-> শুনিয়া প্রভুর দণ্ড আচার্য হর্ষিত ॥৩৭॥
 
 > daṇḍa śuni' 'viśvāsa' ha-ila parama duḥkhita
 > śuniyā prabhura daṇḍa ācārya harṣita
@@ -22552,9 +17812,6 @@ In *Bhagavad-gītā* the Lord says, *samo 'haṁ sarva-bhūteṣu na me dveṣyo
 
 ### CC Adi 12.38
 
-> বিশ্বাসেরে কহে, — তুমি বড় ভাগ্যবান্ ।
-> তোমারে করিল দণ্ড প্রভু ভগবান্ ॥৩৮॥
-
 > viśvāsere kahe,—tumi baḍa bhāgyavān
 > tomāre karila daṇḍa prabhu bhagavān
 
@@ -22566,9 +17823,6 @@ This is an authoritative judgment by Śrī Advaita Prabhu. He clearly advises th
 
 ### CC Adi 12.39
 
-> পূর্বে মহাপ্রভু মোরে করেন সম্মান ।
-> দুঃখ পাই’ মনে আমি কৈলুঁ অনুমান ॥৩৯॥
-
 > pūrve mahāprabhu more karena sammāna
 > duḥkha pāi' mane āmi kailuṅ anumāna
 
@@ -22577,9 +17831,6 @@ This is an authoritative judgment by Śrī Advaita Prabhu. He clearly advises th
 **"Formerly Lord Caitanya Mahāprabhu always respected Me as His senior, but I did not like such respect. Therefore, My mind being afflicted by unhappiness, I made a plan.**
 
 ### CC Adi 12.40
-
-> মুক্তি — শ্রেষ্ঠ করি’ কৈনু বাশিষ্ঠ ব্যাখ্যান ।
-> ক্রুদ্ধ হঞা প্রভু মোরে কৈল অপমান ॥৪০॥
 
 > mukti—śreṣṭha kari' kainu vāśiṣṭha vyākhyāna
 > kruddha hañā prabhu more kaila apamāna
@@ -22592,9 +17843,6 @@ There is a book of the name *Yoga-vāśiṣṭha* that Māyāvādīs greatly fav
 
 ### CC Adi 12.41
 
-> দণ্ড পাঞা হৈল মোর পরম আনন্দ ।
-> যে দণ্ড পাইল ভাগ্যবান্ শ্রীমুকুন্দ ॥৪১॥
-
 > daṇḍa pāñā haila mora parama ānanda
 > ye daṇḍa pāila bhāgyavān śrī-mukunda
 
@@ -22605,9 +17853,6 @@ There is a book of the name *Yoga-vāśiṣṭha* that Māyāvādīs greatly fav
 Śrī Mukunda, a great friend and associate of Lord Caitanya Mahāprabhu, used to visit many places where people were against the Vaiṣṇava cult. When Lord Caitanya Mahāprabhu came to know of this, He punished Mukunda, forbidding him to see Him again. Although Caitanya Mahāprabhu was soft like a flower, He was also strict like a thunderbolt, and everyone was afraid to allow Mukunda to come again into the presence of Śrī Caitanya Mahāprabhu. Mukunda, therefore, being very sorry, asked his other friends whether he would one day be allowed to see Lord Caitanya Mahāprabhu. When the devotees brought this inquiry to Lord Caitanya, the Lord replied, "Mukunda will get permission to see Me after many millions of years." When they gave this information to Mukunda, he danced with jubilation, and when Lord Caitanya Mahāprabhu heard that Mukunda was so patiently waiting to meet Him after millions of years, He immediately asked him to return. There is a statement about this punishment of Mukunda in the *Caitanya-bhāgavata, Madhya-līlā,* Tenth Chapter.
 
 ### CC Adi 12.42
-
-> যে দণ্ড পাইল শ্রীশচী ভাগ্যবতী ।
-> সে দণ্ড প্রসাদ অন্য লোক পাবে কতি ॥৪২॥
 
 > ye daṇḍa pāila śrī-śacī bhāgyavatī
 > se daṇḍa prasāda anya loka pābe kati
@@ -22620,9 +17865,6 @@ Mother Śacīdevī was similarly punished, as mentioned in the *Caitanya-bhāgav
 
 ### CC Adi 12.43
 
-> এত কহি’ আচার্য তাঁরে করিয়া আশ্বাস ।
-> আনন্দিত হইয়া আইল মহাপ্রভু-পাশ ॥৪৩॥
-
 > eta kahi' ācārya tāṅre kariyā āśvāsa
 > ānandita ha-iyā āila mahāprabhu-pāśa
 
@@ -22632,9 +17874,6 @@ Mother Śacīdevī was similarly punished, as mentioned in the *Caitanya-bhāgav
 
 ### CC Adi 12.44
 
-> প্রভুকে কহেন, — তোমার না বুঝি এ লীলা ।
-> আমা হৈতে প্রসাদপাত্র করিলা কমলা ॥৪৪॥
-
 > prabhuke kahena—tomāra nā bujhi e līlā
 > āmā haite prasāda-pātra karilā kamalā
 
@@ -22643,9 +17882,6 @@ Mother Śacīdevī was similarly punished, as mentioned in the *Caitanya-bhāgav
 **Śrī Advaita Ācārya told Lord Caitanya, "ḷ cannot understand Your transcendental pastimes. You have shown more favor to Kamalākānta than You generally show to Me.**
 
 ### CC Adi 12.45
-
-> আমারেহ কভু যেই না হয় প্রসাদ ।
-> তোমার চরণে আমি কি কৈনু অপরাধ ॥৪৫॥
 
 > āmāreha kabhu yei nā haya prasāda
 > tomāra caraṇe āmi ki kainu aparādha
@@ -22658,9 +17894,6 @@ This is a reference to Lord Caitanya Mahāprabhu's former punishment of Advaita 
 
 ### CC Adi 12.46
 
-> এত শুনি’ মহাপ্রভু হাসিতে লাগিলা ।
-> বোলাইয়া কমলাকান্তে প্রসন্ন হইলা ॥৪৬॥
-
 > eta śuni' mahāprabhu hāsite lāgilā
 > bolāiyā kamalākānte prasanna ha-ilā
 
@@ -22669,9 +17902,6 @@ This is a reference to Lord Caitanya Mahāprabhu's former punishment of Advaita 
 **Hearing this, Lord Caitanya Mahāprabhu laughed with satisfaction and immediately called Kamalākānta Viśvāsa.**
 
 ### CC Adi 12.47
-
-> আচার্য কহে, ইহাকে কেনে দিলে দরশন ।
-> দুই প্রকারেতে করে মোরে বিড়ম্বন ॥৪৭॥
 
 > ācārya kahe, ihāke kene dile daraśana
 > dui prakārete kare more viḍambana
@@ -22682,9 +17912,6 @@ This is a reference to Lord Caitanya Mahāprabhu's former punishment of Advaita 
 
 ### CC Adi 12.48
 
-> শুনিয়া প্রভুর মন প্রসন্ন হইল ।
-> দুঁহার অন্তর-কথা দুঁহে সে জানিল ॥৪৮॥
-
 > śuniyā prabhura mana prasanna ha-ila
 > duṅhāra antara-kathā duṅhe se jānila
 
@@ -22693,9 +17920,6 @@ This is a reference to Lord Caitanya Mahāprabhu's former punishment of Advaita 
 **When Caitanya Mahāprabhu heard this, His mind was satisfied. Only They could understand each other's minds.**
 
 ### CC Adi 12.49
-
-> প্রভু কহে, — বাউলিয়া, ঐছে কাহে কর ।
-> আচার্যের লজ্জা-ধর্ম-হানি যে আচর ॥৪৯॥
 
 > prabhu kahe—bāuliyā, aiche kāhe kara
 > ācāryera lajjā-dharma-hāni se ācara
@@ -22708,9 +17932,6 @@ Kamalākānta Viśvāsa, out of his ignorance, asked the King of Jagannātha Pur
 
 ### CC Adi 12.50
 
-> প্রতিগ্রহ কভু না করিবে রাজধন ।
-> বিষয়ীর অন্ন খাইলে দুষ্ট হয় মন ॥৫০॥
-
 > pratigraha kabhu nā karibe rāja-dhana
 > viṣayīra anna khāile duṣṭa haya mana
 
@@ -22721,9 +17942,6 @@ Kamalākānta Viśvāsa, out of his ignorance, asked the King of Jagannātha Pur
 It is very risky to accept money or food from materialistic persons, for such acceptance pollutes the mind of the charity's recipient. According to the Vedic system, one should give charity to *sannyāsīs* and *brāhmaṇas* because one who thus gives charity becomes free from sinful activities. Formerly, therefore, *brāhmaṇas* would not accept charity from a person unless he were very pious. Lord Caitanya Mahāprabhu gave this instruction for all spiritual masters. Materialistic persons who are not inclined to give up their sinful activities like illicit sex, intoxication, gambling and meat-eating sometimes want to become our disciples, but, unlike professional spiritual masters who accept disciples regardless of their condition, Vaiṣṇavas do not accept such cheap disciples. One must at least agree to abide by the rules and regulations for a disciple before a Vaiṣṇava *ācārya* can accept him. In fact, a Vaiṣṇava should not even accept charity or food from persons who do not follow the rules and regulations of the Vaiṣṇava principles.
 
 ### CC Adi 12.51
-
-> মন দুষ্ট হইলে নহে কৃষ্ণের স্মরণ ।
-> কৃষ্ণস্মৃতি বিনু হয় নিষ্ফল জীবন ॥৫১॥
 
 > mana duṣṭa ha-ile nahe kṛṣṇera smaraṇa
 > kṛṣṇa-smṛti vinu haya niṣphala jīvana
@@ -22743,9 +17961,6 @@ A devotee should always be alert, keeping his mind in a sanguine state so that h
 
 ### CC Adi 12.52
 
-> লোকলজ্জা হয়, ধর্ম-কীর্তি হয় হানি ।
-> ঐছে কর্ম না করিহ কভু ইহা জানি’ ॥৫২॥
-
 > loka-lajjā haya, dharma-kīrti haya hāni
 > aiche karma nā kariha kabhu ihā jāni'
 
@@ -22754,9 +17969,6 @@ A devotee should always be alert, keeping his mind in a sanguine state so that h
 **"Thus one becomes unpopular in the eyes of the people in general, for this damages his religiosity and fame. A Vaiṣṇava, especially one who acts as a spiritual master, must not act in such a way. One should always be conscious of this fact."**
 
 ### CC Adi 12.53
-
-> এই শিক্ষা সবাকারে, সবে মনে কৈল ।
-> আচার্য-গোসাঞি মনে আনন্দ পাইল ॥৫৩॥
 
 > ei śikṣā sabākāre, sabe mane kaila
 > ācārya-gosāñi mane ānanda pāila
@@ -22767,9 +17979,6 @@ A devotee should always be alert, keeping his mind in a sanguine state so that h
 
 ### CC Adi 12.54
 
-> আচার্যের অভিপ্রায় প্রভুমাত্র বুঝে ।
-> প্রভুর গম্ভীর বাক্য আচার্য সমুঝে ॥৫৪॥
-
 > ācāryera abhiprāya prabhu-mātra bujhe
 > prabhura gambhīra vākya ācārya samujhe
 
@@ -22779,9 +17988,6 @@ A devotee should always be alert, keeping his mind in a sanguine state so that h
 
 ### CC Adi 12.55
 
-> এই ত’ প্রস্তাবে আছে বহুত বিচার ।
-> গ্রন্থ-বাহুল্য-ভয়ে নারি লিখিবার ॥৫৫॥
-
 > ei ta' prastāve āche bahuta vicāra
 > grantha-bāhulya-bhaye nāri likhibāra
 
@@ -22790,9 +17996,6 @@ A devotee should always be alert, keeping his mind in a sanguine state so that h
 **In this statement there are many confidential considerations. I do not write of them all, fearing an unnecessary increase in the volume of the book.**
 
 ### CC Adi 12.56
-
-> শ্রীযদুনন্দনাচার্য — অদ্বৈতের শাখা ।
-> তাঁর শাখা-উপশাখার নাহি হয় লেখা ॥৫৬॥
 
 > śrī-yadunandanācārya—advaitera śākhā
 > tāṅra śākhā-upaśākhāra nāhi haya lekhā
@@ -22805,9 +18008,6 @@ Yadunandana Ācārya was the official initiator spiritual master of Raghunātha 
 
 ### CC Adi 12.57
 
-> বাসুদেব দত্তের তেঁহো কৃপার ভাজন ।
-> সর্বভাবে আশ্রিয়াছে চৈতন্য-চরণ ॥৫৭॥
-
 > vāsudeva dattera teṅho kṛpāra bhājana
 > sarva-bhāve āśriyāche caitanya-caraṇa
 
@@ -22818,9 +18018,6 @@ Yadunandana Ācārya was the official initiator spiritual master of Raghunātha 
 The *Gaura-gaṇoddeśa-dīpikā,* verse 140, describes that Vāsudeva Datta was formerly Madhuvrata, a singer in Vṛndāvana.
 
 ### CC Adi 12.58
-
-> ভাগবতাচার্য, আর বিষ্ণুদাসাচার্য ।
-> চক্রপাণি আচার্য, আর অনন্ত আচার্য ॥৫৮॥
 
 > bhāgavatācārya, āra viṣṇudāsācārya
 > cakrapāṇi ācārya, āra ananta ācārya
@@ -22833,9 +18030,6 @@ In his *Anubhāṣya* Śrī Bhaktisiddhānta Sarasvatī Gosvāmī Prabhupāda sa
 
 ### CC Adi 12.59
 
-> নন্দিনী, আর কামদেব, চৈতন্যদাস ।
-> দুর্লভ বিশ্বাস, আর বনমালিদাস ॥৫৯॥
-
 > nandinī, āra kāmadeva, caitanya-dāsa
 > durlabha viśvāsa, āra vanamāli-dāsa
 
@@ -22844,9 +18038,6 @@ In his *Anubhāṣya* Śrī Bhaktisiddhānta Sarasvatī Gosvāmī Prabhupāda sa
 **Nandinī, Kāmadeva, Caitanya dāsa, Durlabha Viśvāsa and Vanamālī dāsa were the tenth, eleventh, twelfth, thirteenth and fourteenth branches of Śrī Advaita Ācārya.**
 
 ### CC Adi 12.60
-
-> জগন্নাথ কর, আর কর ভবনাথ ।
-> হৃদয়ানন্দ সেন, আর দাস ভোলানাথ ॥৬০॥
 
 > jagannātha kara, āra kara bhavanātha
 > hṛdayānanda sena, āra dāsa bholānātha
@@ -22857,9 +18048,6 @@ In his *Anubhāṣya* Śrī Bhaktisiddhānta Sarasvatī Gosvāmī Prabhupāda sa
 
 ### CC Adi 12.61
 
-> যাদবদাস, বিজয়দাস, দাস জনার্দন ।
-> অনন্তদাস, কানুপণ্ডিত, দাস নারায়ণ ॥৬১॥
-
 > yādava-dāsa, vijaya-dāsa, dāsa janārdana
 > ananta-dāsa, kānu-paṇḍita, dāsa nārāyaṇa
 
@@ -22868,9 +18056,6 @@ In his *Anubhāṣya* Śrī Bhaktisiddhānta Sarasvatī Gosvāmī Prabhupāda sa
 **Yādava dāsa, Vijaya dāsa, Janārdana dāsa, Ananta dāsa, Kānu Paṇḍita and Nārāyaṇa dāsa were the nineteenth, twentieth, twenty-first, twenty-second, twentythird and twenty-fourth branches of Advaita Ācārya.**
 
 ### CC Adi 12.62
-
-> শ্রীবৎস পণ্ডিত, ব্রহ্মচারী হরিদাস ।
-> পুরুষোত্তম ব্রহ্মচারী, আর কৃষ্ণদাস ॥৬২॥
 
 > śrīvatsa paṇḍita, brahmacārī haridāsa
 > puruṣottama brahmacārī, āra kṛṣṇadāsa
@@ -22881,9 +18066,6 @@ In his *Anubhāṣya* Śrī Bhaktisiddhānta Sarasvatī Gosvāmī Prabhupāda sa
 
 ### CC Adi 12.63
 
-> পুরুষোত্তম পণ্ডিত, আর রঘুনাথ ।
-> বনমালী কবিচন্দ্র, আর বৈদ্যনাথ ॥৬৩॥
-
 > puruṣottama paṇḍita, āra raghunātha
 > vanamālī kavicandra, āra vaidyanātha
 
@@ -22893,9 +18075,6 @@ In his *Anubhāṣya* Śrī Bhaktisiddhānta Sarasvatī Gosvāmī Prabhupāda sa
 
 ### CC Adi 12.64
 
-> লোকনাথ পণ্ডিত, আর মুরারি পণ্ডিত ।
-> শ্রীহরিচরণ, আর মাধব পণ্ডিত ॥৬৪॥
-
 > lokanātha paṇḍita, āra murāri paṇḍita
 > śrī-haricaraṇa, āra mādhava paṇḍita
 
@@ -22904,9 +18083,6 @@ In his *Anubhāṣya* Śrī Bhaktisiddhānta Sarasvatī Gosvāmī Prabhupāda sa
 **Lokanātha Paṇḍita, Murāri Paṇḍita, Śrī Haricaraṇa and Mādhava Paṇḍita were the thirty-third, thirty-fourth, thirty-fifth and thirty-sixth branches of Advaita Ācārya.**
 
 ### CC Adi 12.65
-
-> বিজয় পণ্ডিত, আর পণ্ডিত শ্রীরাম ।
-> অসংখ্য অদ্বৈত-শাখা কত লইব নাম ॥৬৫॥
 
 > vijaya paṇḍita, āra paṇḍita śrīrāma
 > asaṅkhya advaita-śākhā kata la-iba nāma
@@ -22919,9 +18095,6 @@ Since Śrīvāsa Paṇḍita was an incarnation of Nārada Muni, his younger bro
 
 ### CC Adi 12.66
 
-> মালি-দত্ত জল অদ্বৈত-স্কন্ধ যোগায় ।
-> সেই জলে জীয়ে শাখা, — ফুল-ফল পায় ॥৬৬॥
-
 > māli-datta jala advaita-skandha yogāya
 > sei jale jīye śākhā,—phula-phala pāya
 
@@ -22933,9 +18106,6 @@ The branches of Advaita Ācārya nourished by the water (*jala*) supplied by Sri
 
 ### CC Adi 12.67
 
-> ইহার মধ্যে মালী পাছে কোন শাখাগণ ।
-> না মানে চৈতন্য-মালী দুর্দৈব কারণ ॥৬৭॥
-
 > ihāra madhye mālī pāche kona śākhā-gaṇa
 > nā māne caitanya-mālī durdaiva kāraṇa
 
@@ -22944,9 +18114,6 @@ The branches of Advaita Ācārya nourished by the water (*jala*) supplied by Sri
 **After the disappearance of Lord Caitanya Mahāprabhu, some of the branches, for unfortunate reasons, deviated from His path.**
 
 ### CC Adi 12.68
-
-> সৃজাইল, জীয়াইল, তাঁরে না মানিল ।
-> কৃতঘ্ন হইলা, তাঁরে স্কন্ধ ক্রুদ্ধ হইল ॥৬৮॥
 
 > sṛjāila, jīyāila, tāṅre nā mānila
 > kṛtaghna ha-ilā, tāṅre skandha kruddha ha-ila
@@ -22957,9 +18124,6 @@ The branches of Advaita Ācārya nourished by the water (*jala*) supplied by Sri
 
 ### CC Adi 12.69
 
-> ক্রুদ্ধ হঞা স্কন্ধ তারে জল না সঞ্চারে ।
-> জলাভাবে কৃশ শাখা শুকাইয়া মরে ॥৬৯॥
-
 > kruddha hañā skandha tāre jala nā sañcāre
 > jalābhāve kṛśa śākhā śukāiyā mare
 
@@ -22968,9 +18132,6 @@ The branches of Advaita Ācārya nourished by the water (*jala*) supplied by Sri
 **Thus Lord Caitanya did not sprinkle upon them the water of His mercy, and they gradually withered and died.**
 
 ### CC Adi 12.70
-
-> চৈতন্য-রহিত দেহ — শুষ্ককাষ্ঠ-সম ।
-> জীবিতেই মৃত সেই, মৈলে দণ্ডে যম ॥৭০॥
 
 > caitanya-rahita deha—śuṣkakāṣṭha-sama
 > jīvitei mṛta sei, maile daṇḍe yama
@@ -22983,9 +18144,6 @@ In the *Śrīmad-Bhāgavatam,* Sixth Canto, Third Chapter, twenty-ninth verse, Y
 
 ### CC Adi 12.71
 
-> কেবল এ গণ-প্রতি নহে এই দণ্ড ।
-> চৈতন্য-বিমুখ যেই সেই ত’ পাষণ্ড ॥৭১॥
-
 > kevala e gaṇa-prati nahe ei daṇḍa
 > caitanya-vimukha yei sei ta' pāṣaṇḍa
 
@@ -22995,9 +18153,6 @@ In the *Śrīmad-Bhāgavatam,* Sixth Canto, Third Chapter, twenty-ninth verse, Y
 
 ### CC Adi 12.72
 
-> কি পণ্ডিত, কি তপস্বী, কিবা গৃহী, যতি ।
-> চৈতন্য-বিমুখ যেই, তার এই গতি ॥৭২॥
-
 > ki paṇḍita, ki tapasvī, kibā gṛhī, yati
 > caitanya-vimukha yei, tāra ei gati
 
@@ -23006,9 +18161,6 @@ In the *Śrīmad-Bhāgavatam,* Sixth Canto, Third Chapter, twenty-ninth verse, Y
 **Be one a learned scholar, a great ascetic, a successful householder or a famous sannyāsī, if one is against the cult of Śrī Caitanya Mahāprabhu, he is destined to suffer the punishment meted out by Yamarāja.**
 
 ### CC Adi 12.73
-
-> যে যে লৈল শ্রীঅচ্যুতানন্দের মত ।
-> সেই আচার্যের গণ — মহাভাগবত ॥৭৩॥
 
 > ye ye laila śrī-acyutānandera mata
 > sei ācāryera gaṇa—mahā-bhāgavata
@@ -23043,9 +18195,6 @@ One should simply instruct everyone he meets regarding the principles of *kṛ�
 
 ### CC Adi 12.74
 
-> সেই সেই, — আচার্যের কৃপার ভাজন ।
-> অনায়াসে পাইল সেই চৈতন্য-চরণ ॥৭৪॥
-
 > sei sei,—ācāryera kṛpāra bhājana
 > anāyāse pāila sei caitanya-caraṇa
 
@@ -23054,9 +18203,6 @@ One should simply instruct everyone he meets regarding the principles of *kṛ�
 **By the mercy of Advaita Ācārya, the devotees who strictly followed the path of Caitanya Mahāprabhu attained the shelter of Lord Caitanya's lotus feet without difficulty.**
 
 ### CC Adi 12.75
-
-> অচ্যুতের যেই মত, সেই মত সার ।
-> আর যত মত সব হৈল ছারখার ॥৭৫॥
 
 > acyutera yei mata, sei mata sāra
 > āra yata mata saba haila chārakhāra
@@ -23067,9 +18213,6 @@ One should simply instruct everyone he meets regarding the principles of *kṛ�
 
 ### CC Adi 12.76
 
-> সেই আচার্যগণে মোর কোটি নমস্কার ।
-> অচ্যুতানন্দ-প্রায়, চৈতন্য — জীবন যাঁহার ॥৭৬॥
-
 > sei ācārya-gaṇe mora koṭi namaskāra
 > acyutānanda-prāya, caitanya—jīvana yāṅhāra
 
@@ -23078,9 +18221,6 @@ One should simply instruct everyone he meets regarding the principles of *kṛ�
 **I therefore offer my respectful obeisances millions of times to Acyutānanda's actual followers whose life and soul was Śrī Caitanya Mahāprabhu.**
 
 ### CC Adi 12.77
-
-> এই ত’ কহিলাঙ আচার্য-গোসাঞির গণ ।
-> তিন স্কন্ধ-শাখার কৈল সংক্ষেপ গণন ॥৭৭॥
 
 > ei ta' kahilāṅ ācārya-gosāñira gaṇa
 > tina skandha-śākhāra kaila saṅkṣepa gaṇana
@@ -23091,9 +18231,6 @@ One should simply instruct everyone he meets regarding the principles of *kṛ�
 
 ### CC Adi 12.78
 
-> শাখা-উপশাখা, তার নাহিক গণন ।
-> কিছুমাত্র কহি’ করি দিগ্দরশন ॥৭৮॥
-
 > śākhā-upaśākhā, tāra nāhika gaṇana
 > kichu-mātra kahi' kari dig-daraśana
 
@@ -23103,9 +18240,6 @@ One should simply instruct everyone he meets regarding the principles of *kṛ�
 
 ### CC Adi 12.79
 
-> শ্রীগদাধর পণ্ডিত শাখাতে মহোত্তম ।
-> তাঁর উপশাখা কিছু করি যে গণন ॥৭৯॥
-
 > śrī-gadādhara paṇḍita śākhāte mahottama
 > tāṅra upaśākhā kichu kari ye gaṇana
 
@@ -23114,9 +18248,6 @@ One should simply instruct everyone he meets regarding the principles of *kṛ�
 **After describing the branches and subbranches of Advaita Ācārya, I shall now attempt to describe some of the descendants of Śrī Gadādhara Paṇḍita, the most important among the branches.**
 
 ### CC Adi 12.80
-
-> শাখা-শ্রেষ্ঠ ধ্রুবানন্দ, শ্রীধর ব্রহ্মচারী ।
-> ভাগবতাচার্য, হরিদাস ব্রহ্মচারী ॥৮০॥
 
 > śākhā-śreṣṭha dhruvānanda, śrīdhara brahmacārī
 > bhāgavatācārya, haridāsa brahmacārī
@@ -23128,9 +18259,6 @@ One should simply instruct everyone he meets regarding the principles of *kṛ�
 Verse 152 of the *Gaura-gaṇoddeśa-dīpikā* describes Śrī Dhruvānanda Brahmacārī as an incarnation of Lalitā, and verse 194 describes Śrīdhara Brahmacārī as the *gopī* known as Candralatikā.
 
 ### CC Adi 12.81
-
-> অনন্ত আচার্য, কবিদত্ত, মিশ্রনয়ন ।
-> গঙ্গামন্ত্রী, মামু ঠাকুর, কণ্ঠাভরণ ॥৮১॥
 
 > ananta ācārya, kavidatta, miśra-nayana
 > gaṅgāmantrī māmu ṭhākura, kaṇṭhābharaṇa
@@ -23145,9 +18273,6 @@ Kaṇṭhābharaṇa, whose original name was Śrī Ananta Caṭṭarāja, was t
 
 ### CC Adi 12.82
 
-> ভূগর্ভ গোসাঞি, আর ভাগবতদাস ।
-> যেই দুই আসি’ কৈল বৃন্দাবনে বাস ॥৮২॥
-
 > bhūgarbha gosāñi, āra bhāgavata-dāsa
 > yei dui āsi' kaila vṛndāvane vāsa
 
@@ -23158,9 +18283,6 @@ Kaṇṭhābharaṇa, whose original name was Śrī Ananta Caṭṭarāja, was t
 Bhūgarbha Gosāñi, formerly known as Prema-mañjarī, was a great friend of Lokanātha Gosvāmī, who constructed the temple of Gokulānanda, one of the seven important temples of Vṛndāvana-namely, Govinda, Gopīnātha, Madana-mohana, Rādhāramaṇa, Śyāmasundara, Rādhā-Dāmodara and Gokulānanda—that are authorized institutions of Gauḍīya Vaiṣṇavas.
 
 ### CC Adi 12.83
-
-> বাণীনাথ ব্রহ্মচারী — বড় মহাশয় ।
-> বল্লভচৈতন্যদাস — কৃষ্ণপ্রেমময় ॥৮৩॥
 
 > vāṇīnātha brahmacārī—baḍa mahāśaya
 > vallabha-caitanya-dāsa—kṛṣṇa-premamaya
@@ -23173,9 +18295,6 @@ Bhūgarbha Gosāñi, formerly known as Prema-mañjarī, was a great friend of Lo
 
 ### CC Adi 12.84
 
-> শ্রীনাথ চক্রবর্তী, আর উদ্ধব দাস ।
-> জিতামিত্র, কাষ্ঠকাটা-জগন্নাথদাস ॥৮৪॥
-
 > śrīnātha cakravartī, āra uddhava dāsa
 > jitāmitra, kāṣṭhakāṭā-jagannātha-dāsa
 
@@ -23186,9 +18305,6 @@ Bhūgarbha Gosāñi, formerly known as Prema-mañjarī, was a great friend of Lo
 The *Śākhā-nirṇaya,* verse 13, mentions Śrīnātha Cakravartī as a reservoir of all good qualities and an expert in the service of Lord Kṛṣṇa. Similarly, verse 35 mentions Uddhava dāsa as being greatly qualified in distributing love of Godhead to everyone. The *Gaura-gaṇoddeśa-dīpikā,* verse 202, mentions Jitāmitra as the *gopī* named Śyāma-mañjarī. Jitāmitra wrote a book entitled *Kṛṣṇa-māyurya.* Jagannātha dāsa was a resident of Vikramapura, near Dacca. His birthplace was the village known as Kāṣṭhakāṭā or Kāṭhādiyā. His descendants now reside in villages known as Āḍiyala, Kāmārapāḍā and Pāikapāḍā. He established a temple of Yaśomādhava. The worshipers in this temple are the Gosvāmīs of Āḍiyala. As one of the sixty-four *sakhīs,* he was formerly an assistant of Citrādevī-gopī named Tilakinī. The following is a list of his descendants: Rāmanṛsiṁha, Rāmagopāla, Rāmacandra, Sanātana, Muktārāma, Gopīnātha, Goloka, Harimohana Śiromaṇi, Rākhālarāja, Mādhava and Lakṣmīkānta. The *Śākhā-nirṇaya* mentions that Jagannātha dāsa preached the Hare Kṛṣṇa movement in the district or state of Tripura.
 
 ### CC Adi 12.85
-
-> শ্রীহরি আচার্য, সাদি-পুরিয়া গোপাল ।
-> কৃষ্ণদাস ব্রহ্মচারী, পুষ্পগোপাল ॥৮৫॥
 
 > śrī-hari ācārya, sādi-puriyā gopāla
 > kṛṣṇadāsa brahmacārī, puṣpa-gopāla
@@ -23201,9 +18317,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verses 196 and 207, mentions that Hari Ācār
 
 ### CC Adi 12.86
 
-> শ্রীহর্ষ, রঘুমিশ্র, পণ্ডিত লক্ষ্মীনাথ ।
-> বঙ্গবাটী-চৈতন্যদাস, শ্রীরঘুনাথ ॥৮৬॥
-
 > śrīharṣa, raghu-miśra, paṇḍita lakṣmīnātha
 > baṅgavāṭī-caitanya-dāsa, śrī-raghunātha
 
@@ -23214,9 +18327,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verses 196 and 207, mentions that Hari Ācār
 Raghu Miśra is described in the *Gaura-gaṇoddeśa-dīpikā,* verses 195 and 201, as Karpūra-mañjarī. Similarly, Lakṣmīnātha Paṇḍita is mentioned as Rasonmādā, and Baṅgavāṭī Caitanya dāsa is mentioned as Kālī. The *Śākhā-nirṇaya* states that Baṅgavāṭī Caitanya dāsa was always seen with eyes full of tears. He also had a branch of descendants. Their names were Mathurāprasāda, Rukmiṇīkānta, Jīvanakṛṣṇa, Yugalakiśora, Ratanakṛṣṇa, Rādhāmādhava, Ūṣāmaṇi, Vaikuṇṭhanātha and Lālamohana, or Lālamohana Śāhā Śāṅkhānidhi. Lālamohana was a great merchant in the city of Dacca The *Gaura-gaṇoddeśa-dīpikā,* verses 194 and 200, mentions that Raghunātha was formerly Varāṅgadā.
 
 ### CC Adi 12.87
-
-> অমোঘ পণ্ডিত, হস্তিগোপাল, চৈতন্যবল্লভ ।
-> যদু গাঙ্গুলি আর মঙ্গল বৈষ্ণব ॥৮৭॥
 
 > amogha paṇḍita, hasti-gopāla, caitanya-vallabha
 > yadu gāṅguli āra maṅgala vaiṣṇava
@@ -23229,9 +18339,6 @@ Raghu Miśra is described in the *Gaura-gaṇoddeśa-dīpikā,* verses 195 and 2
 
 ### CC Adi 12.88
 
-> চক্রবর্তী শিবানন্দ সদা ব্রজবাসী ।
-> মহাশাখা-মধ্যে তেঁহো সুদৃঢ় বিশ্বাসী ॥৮৮॥
-
 > cakravartī śivānanda sadā vrajavāsī
 > mahāśākhā-madhye teṅho sudṛḍha viśvāsī
 
@@ -23243,9 +18350,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 183, mentions that Śivānanda Cakravar
 
 ### CC Adi 12.89
 
-> এই ত’ সংক্ষেপে কহিলাঙ্ পণ্ডিতের গণ ।
-> ঐছে আর শাখা-উপশাখার গণন ॥৮৯॥
-
 > ei ta' sañkṣepe kahilāṅ paṇḍitera gaṇa
 > aiche āra śākhā-upaśākhāra gaṇana
 
@@ -23254,9 +18358,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 183, mentions that Śivānanda Cakravar
 **Thus I have briefly described the branches and subbranches of Gadādhara Paṇḍita. There are still many more that I have not mentioned here.**
 
 ### CC Adi 12.90
-
-> পণ্ডিতের গণ সব, — ভাগবত ধন্য ।
-> প্রাণবল্লভ — সবার শ্রীকৃষ্ণচৈতন্য ॥৯০॥
 
 > paṇḍitera gaṇa saba,—bhāgavata dhanya
 > prāṇa-vallabha—sabāra śrī-kṛṣṇa-caitanya
@@ -23267,9 +18368,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 183, mentions that Śivānanda Cakravar
 
 ### CC Adi 12.91
 
-> এই তিন স্কন্ধের কৈলুঁ শাখার গণন ।
-> যাঁ-সবা-স্মরণে ভববন্ধ-বিমোচন ॥৯১॥
-
 > ei tina skandhera kailuṅ śākhāra gaṇana
 > yāṅ-sabā-smaraṇe bhava-bandha-vimocana
 
@@ -23278,9 +18376,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 183, mentions that Śivānanda Cakravar
 **Simply by remembering the names of all these branches and subbranches of the three trunks I have described [Nityānanda, Advaita and Gadādhara], one attains freedom from the entanglement of material existence.**
 
 ### CC Adi 12.92
-
-> যাঁ-সবা-স্মরণে পাই চৈতন্যচরণ ।
-> যাঁ-সবা-স্মরণে হয় বাঞ্ছিত পূরণ ॥৯২॥
 
 > yāṅ-sabā-smaraṇe pāi caitanya-caraṇa
 > yāṅ-sabā-smaraṇe haya vāñchita pūraṇa
@@ -23291,9 +18386,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 183, mentions that Śivānanda Cakravar
 
 ### CC Adi 12.93
 
-> অতএব তাঁ-সবার বন্দিয়ে চরণ ।
-> চৈতন্য-মালীর কহি লীলা-অনুক্রম ॥৯৩॥
-
 > ataeva tāṅ-sabāra vandiye caraṇa
 > caitanya-mālīra kahi līlā-anukrama
 
@@ -23302,9 +18394,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 183, mentions that Śivānanda Cakravar
 **Therefore, offering my obeisances at the lotus feet of them all, I shall describe the pastimes of the gardener Śrī Caitanya Mahāprabhu in chronological order.**
 
 ### CC Adi 12.94
-
-> গৌরলীলামৃতসিন্ধু — অপার অগাধ ।
-> কে করিতে পারে তাহাঁ অবগাহ-সাধ ॥৯৪॥
 
 > gaura-līlāmṛta-sindhu—apāra agādha
 > ke karite pāre tāhāṅ avagāha-sādha
@@ -23315,9 +18404,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 183, mentions that Śivānanda Cakravar
 
 ### CC Adi 12.95
 
-> তাহার মাধুর্য-গন্ধে লুব্ধ হয় মন ।
-> অতএব তটে রহি’ চাকি এক কণ ॥৯৫॥
-
 > tāhāra mādhurya-gandhe lubdha haya mana
 > ataeva taṭe rahi' cāki eka kaṇa
 
@@ -23326,9 +18412,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 183, mentions that Śivānanda Cakravar
 **It is not possible to dip into that great ocean, but its sweet mellow flavor attracts my mind. I therefore stand on the shore of that ocean to try to taste but a drop of it.**
 
 ### CC Adi 12.96
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৯৬॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -23343,9 +18426,6 @@ The *Gaura-gaṇoddeśa-dīpikā,* verse 183, mentions that Śivānanda Cakravar
 
 ### CC Adi 13.1
 
-> স প্রসীদতু চৈতন্যদেবো যস্য প্রসাদতঃ ।
-> তল্লীলাবর্ণনে যোগ্যঃ সদ্যঃ স্যাদধমোঽপ্যয়ম্ ॥১॥
-
 > sa prasīdatu caitanya-
 > devo yasya prasādataḥ
 > tal-līlā-varṇane yogyaḥ
@@ -23359,9 +18439,6 @@ To describe Śrī Caitanya Mahāprabhu or Lord Śrī Kṛṣṇa, one needs supe
 
 ### CC Adi 13.2
 
-> জয় জয় শ্রীকৃষ্ণচৈতন্য গৌরচন্দ্র ।
-> জয়াদ্বৈতচন্দ্র জয় জয় নিত্যানন্দ ॥২॥
-
 > jaya jaya śrī-kṛṣṇa-caitanya gauracandra
 > jayādvaitacandra jaya jaya nityānanda
 
@@ -23370,9 +18447,6 @@ To describe Śrī Caitanya Mahāprabhu or Lord Śrī Kṛṣṇa, one needs supe
 **All glories to Śrī Kṛṣṇa Caitanya Mahāprabhu! All glories to Advaitacandra! All glories to Lord Nityānanda Prabhu!**
 
 ### CC Adi 13.3
-
-> জয় জয় গদাধর জয় শ্রীনিবাস ।
-> জয় মুকুন্দ বাসুদেব জয় হরিদাস ॥৩॥
 
 > jaya jaya gadādhara jaya śrīnivāsa
 > jaya mukunda vāsudeva jaya haridāsa
@@ -23383,9 +18457,6 @@ To describe Śrī Caitanya Mahāprabhu or Lord Śrī Kṛṣṇa, one needs supe
 
 ### CC Adi 13.4
 
-> জয় দামোদর-স্বরূপ জয় মুরারি গুপ্ত ।
-> এই সব চন্দ্রোদয়ে তমঃ কৈল লুপ্ত ॥৪॥
-
 > jaya dāmodara-svarūpa jaya murāri gupta
 > ei saba candrodaye tamaḥ kaila lupta
 
@@ -23394,9 +18465,6 @@ To describe Śrī Caitanya Mahāprabhu or Lord Śrī Kṛṣṇa, one needs supe
 **All glories to Svarūpa Dāmodara and Murāri Gupta! All these brilliant moons have together dissipated the darkness of this material world.**
 
 ### CC Adi 13.5
-
-> জয় শ্রীচৈতন্যচন্দ্রের ভক্ত চন্দ্রগণ ।
-> সবার প্রেম-জ্যোৎস্নায় উজ্জ্বল ত্রিভুবন ॥৫॥
 
 > jaya śrī-caitanyacandrera bhakta candra-gaṇa
 > sabāra prema jyotsnāya ujjvala tri-bhuvana
@@ -23414,9 +18482,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 
 ### CC Adi 13.6
 
-> এই ত’ কহিল গ্রন্থারম্ভে মুখবন্ধ ।
-> এবে কহি চৈতন্য-লীলাক্রম-অনুবন্ধ ॥৬॥
-
 > ei ta' kahila granthārambhe mukha-bandha
 > ebe kahi caitanya-līlā-krama-anubandha
 
@@ -23425,9 +18490,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 **Thus I have spoken the preface of Caitanya-caritāmṛta. Now I shall describe Caitanya Mahāprabhu's pastimes in chronological order.**
 
 ### CC Adi 13.7
-
-> প্রথমে ত’ সূত্ররূপে করিয়ে গণন ।
-> পাছে তাহা বিস্তারি করিব বিবরণ ॥৭॥
 
 > prathame ta' sūtra-rūpe kariye gaṇana
 > pācṅe tāhā vistāri kariba vivarana
@@ -23438,9 +18500,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 
 ### CC Adi 13.8
 
-> শ্রীকৃষ্ণচৈতন্য নবদ্বীপে অবতরি ।
-> আটচল্লিশ বৎসর প্রকট বিহরি ॥৮॥
-
 > śrī-kṛṣṇa-caitanya navadvīpe avatari
 > āṭa-calliśa vatsara prakaṭa vihari
 
@@ -23449,9 +18508,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 **Lord Śrī Caitanya Mahāprabhu, adventing Himself in Navadvīpa, was visible for forty-eight years, enjoying His pastimes.**
 
 ### CC Adi 13.9
-
-> চৌদ্দশত সাত শকে জন্মের প্রমাণ ।
-> চৌদ্দশত পঞ্চান্নে হইল অন্তর্ধান ॥৯॥
 
 > caudda-śata sāta śake janmera pramāṇa
 > caudda-śata pañcānne ha-ila antardhāna
@@ -23462,9 +18518,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 
 ### CC Adi 13.10
 
-> চব্বিশ বৎসর প্রভু কৈল গৃহবাস ।
-> নিরন্তর কৈল কৃষ্ণ-কীর্তন-বিলাস ॥১০॥
-
 > cabbiśa vatsara prabhu kaila gṛha-vāsa
 > nirantara kaila kṛṣṇa-kīrtana-vilāsa
 
@@ -23473,9 +18526,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 **For twenty-four years Lord Caitanya lived in the gṛhastha-āśrama [household life], always engaging in the pastimes of the Hare Kṛṣṇa movement.**
 
 ### CC Adi 13.11
-
-> চব্বিশ বৎসর-শেষে করিয়া সন্ন্যাস ।
-> আর চব্বিশ বৎসর কৈল নীলাচলে বাস ॥১১॥
 
 > cabbiśa vatsara-śeṣe kariyā sannyāsa
 > āra cabbiśa vatsara kaila nīlācale vāsa
@@ -23486,9 +18536,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 
 ### CC Adi 13.12
 
-> তার মধ্যে ছয় বৎসর — গমনাগমন ।
-> কভু দক্ষিণ, কভু গৌড়, কভু বৃন্দাবন ॥১২॥
-
 > tāra madhye chaya vatsara—gamanāgamana
 > kabhu dakṣiṇa, kabhu gauḍa, kabhu vṛndāvana
 
@@ -23497,9 +18544,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 **Of these last twenty-four years, He spent the first six years continuously touring India, sometimes in South India, sometimes in Bengal and sometimes in Vṛndāvana.**
 
 ### CC Adi 13.13
-
-> অষ্টাদশ বৎসর রহিলা নীলাচলে ।
-> কৃষ্ণপ্রেম-নামামৃতে ভাসা’ল সকলে ॥১৩॥
 
 > aṣṭādaśa vatsara rahilā nīlācale
 > kṛṣṇa-prema-nāmāmṛte bhāsā'la sakale
@@ -23510,9 +18554,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 
 ### CC Adi 13.14
 
-> গার্হস্থ্যে প্রভুর লীলা — ‘আদি’-লীলাখ্যান ।
-> ‘মধ্য’-‘অন্ত্য’-লীলা — শেষলীলার দুই নাম ॥১৪॥
-
 > gārhasthye prabhura līlā—'ādi'-līlākhyāna
 > 'madhya'- 'antya'-līlā—śeṣa-līlāra dui nāma
 
@@ -23521,9 +18562,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 **The pastimes of His household life are known as ādi-līlā, or the original pastimes. His later pastimes are known as madhya-līlā and antya-līlā, or the middle and final pastimes.**
 
 ### CC Adi 13.15
-
-> আদিলীলা-মধ্যে প্রভুর যতেক চরিত ।
-> সূত্ররূপে মুরারি গুপ্ত করিলা গ্রথিত ॥১৫॥
 
 > ādi-līlā-madhye prabhura yateka carita
 > sūtra-rūpe murāri gupta karilā grathita
@@ -23534,9 +18572,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 
 ### CC Adi 13.16
 
-> প্রভুর যে শেষলীলা স্বরূপ-দামোদর ।
-> সূত্র করি’ গ্রন্থিলেন গ্রন্থের ভিতর ॥১৬॥
-
 > prabhura ye śeṣa-līlā svarūpa-dāmodara
 > sūtra kari' granthilena granthera bhitara
 
@@ -23545,9 +18580,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 **His later pastimes [madhya-līlā and āntya-līlā] were recorded in the form of notes by His secretary, Svarūpa Dāmodara Gosvāmī, and thus kept within a book.**
 
 ### CC Adi 13.17
-
-> এই দুই জনের সূত্র দেখিয়া শুনিয়া ।
-> বর্ণনা করেন বৈষ্ণব ক্রম যে করিয়া ॥১৭॥
 
 > ei dui janera sūtra dekhiyā śuniyā
 > varṇanā karena vaiṣṇava krama ye kariyā
@@ -23558,9 +18590,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 
 ### CC Adi 13.18
 
-> বাল্য, পৌগণ্ড, কৈশোর, যৌবন, — চারি ভেদ ।
-> অতএব আদিখণ্ডে লীলা চারি ভেদ ॥১৮॥
-
 > bālya, paugaṇḍa, kaiśora, yauvana,—cāri bheda
 > ataeva ādi-khaṇḍe līlā cāri bheda
 
@@ -23569,9 +18598,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 **In His original pastimes there are four divisions: bālya, paugaṇḍa, kaiśora and yauvana [childhood, early boyhood, later boyhood and youth ].**
 
 ### CC Adi 13.19
-
-> সর্বসদ্গুণপূর্ণাং তাং বন্দে ফাল্গুনপূর্ণিমাম্ ।
-> যস্যাং শ্রীকৃষ্ণচৈতন্যোঽবতীর্ণঃ কৃষ্ণনামভিঃ ॥১৯॥
 
 > sarva-sad-guṇa-pūrṇāṁ tāṁ
 > vande phālguna-pūrṇimām
@@ -23584,9 +18610,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 
 ### CC Adi 13.20
 
-> ফাল্গুনপূর্ণিমা-সন্ধ্যায় প্রভুর জন্মোদয় ।
-> সেইকালে দৈবযোগে চন্দ্রগ্রহণ হয় ॥২০॥
-
 > phālguna-pūrṇimā-sandhyāya prabhura janmodaya
 > sei-kāle daiva-yoge candra-grahaṇa haya
 
@@ -23595,9 +18618,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 **On the full-moon evening of the month of Phālguna when the Lord took birth, coincidentally there was also a lunar eclipse.**
 
 ### CC Adi 13.21
-
-> ‘হরি’ ‘হরি’ বলে লোক হরষিত হঞা ।
-> জন্মিলা চৈতন্যপ্রভু ‘নাম’ জন্মাইয়া ॥২১॥
 
 > 'hari' 'hari' bale loka haraṣita hañā
 > janmilā caitanya-prabhu 'nāma' janmāiyā
@@ -23608,9 +18628,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 
 ### CC Adi 13.22
 
-> জন্ম-বাল্য-পৌগণ্ড-কৈশোর-যুবাকালে ।
-> হরিনাম লওয়াইলা প্রভু নানা ছলে ॥২২॥
-
 > janma-bālya-paugaṇḍa-kaiśora-yuvā-kāle
 > hari-nāma laoyāilā prabhu nānā chale
 
@@ -23619,9 +18636,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 **At His birth, in His childhood, in His early and later boyhood as well as in His youth, Lord Caitanya Mahāprabhu, under different pleas, induced people to chant the holy name of Hari [the Hare Kṛṣṇa mahā-mantra].**
 
 ### CC Adi 13.23
-
-> বাল্যভাব ছলে প্রভু করেন ক্রন্দন ।
-> ‘কৃষ্ণ’ ‘হরি’ নাম শুনি’ রহয়ে রোদন ॥২৩॥
 
 > bālya-bhāva chale prabhu karena krandana
 > 'kṛṣṇa' 'hari' nāma śuni' rahaye rodana
@@ -23632,9 +18646,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 
 ### CC Adi 13.24
 
-> অতএব ‘হরি’ ‘হরি’ বলে নারীগণ ।
-> দেখিতে আইসে যেবা সর্ব বন্ধুজন ॥২৪॥
-
 > ataeva 'hari' 'hari' bale nārīgaṇa
 > dekhite āise yebā sarva bandhu jana
 
@@ -23643,9 +18654,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 **All the friendly ladies who came to see the child would chant the holy names, "Hari, Hari!" as soon as the child would cry.**
 
 ### CC Adi 13.25
-
-> ‘গৌরহরি’ বলি’ তারে হাসে সর্ব নারী ।
-> অতএব হৈল তাঁর নাম ‘গৌরহরি’ ॥২৫॥
 
 > 'gaurahari' bali' tāre hāse sarva nārī
 > ataeva haila tāṅra nāma 'gaurahari'
@@ -23656,9 +18664,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 
 ### CC Adi 13.26
 
-> বাল্য বয়স — যাবৎ হাতে খড়ি দিল ।
-> পৌগণ্ড বয়স — যাবৎ বিবাহ না কৈল ॥২৬॥
-
 > bālya vayasa—yāvat hāte khaḍi dila
 > paugaṇḍa vayasa—yāvat vivāha nā kaila
 
@@ -23667,9 +18672,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 **His childhood lasted until the date of hāte khaḍi, the beginning of His education, and His age from the end of His childhood until He married is called paugaṇḍa.**
 
 ### CC Adi 13.27
-
-> বিবাহ করিলে হৈল নবীন যৌবন ।
-> সর্বত্র লওয়াইল প্রভু নাম-সংকীর্তন ॥২৭॥
 
 > vivāha karile haila navīna yauvana
 > sarvatra laoyāila prabhu nāma-saṅkīrtana
@@ -23680,9 +18682,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 
 ### CC Adi 13.28
 
-> পৌগণ্ড-বয়সে পড়েন, পড়ান শিষ্যগণে ।
-> সর্বত্র করেন কৃষ্ণনামের ব্যাখ্যানে ॥২৮॥
-
 > paugaṇḍa-vayase paḍena, paḍāna śiṣyagaṇe
 > sarvatra karena kṛṣṇa-nāmera vyākhyāne
 
@@ -23691,9 +18690,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 **During His paugaṇḍa age He became a serious student and also taught disciples. In this way He used to explain the holy name of Kṛṣṇa everywhere.**
 
 ### CC Adi 13.29
-
-> সূত্র-বৃত্তি-পাঁজি-টীকা কৃষ্ণেতে তাৎপর্য ।
-> শিষ্যের প্রতীত হয়, — প্রভাব আশ্চর্য ॥২৯॥
 
 > sūtra-vṛtti-pāṅji-ṭīkā kṛṣṇete tātparya
 > śiṣyera pratīta haya,—prabhāva āścarya
@@ -23707,9 +18703,6 @@ In this verse we find the moon described as *candra-gaṇa,* which is plural in 
 In the *Caitanya-bhāgavata,* First Chapter, there is a statement about the method by which Lord Śrī Caitanya Mahāprabhu taught grammar. Lord Caitanya Mahāprabhu explained the aphorisms of grammar to be eternal, like the holy name of Kṛṣṇa. As stated in *Bhagavad-gītā* [[bg/15/15|(Bg. 15.15)]], *vedaiś ca sarvair aham eva vedyaḥ.* The purport of all revealed scriptures is understanding of Kṛṣṇa. Therefore if a person explains anything that is not Kṛṣṇa, he simply wastes his time laboring hard without fulfilling the aim of his life. If one simply becomes a teacher or professor of education but does not understand Kṛṣṇa, it is to be understood that he is among the lowest of mankind, as stated in *Bhagavad-gītā* [[bg/7/15|(Bg. 7.15)]]: *narādhamā māyayāpahṛta-jñānāḥ.* If one does not know the essence of all revealed scriptures but still becomes a teacher, his teaching is like the disturbing braying of an ass.
 
 ### CC Adi 13.30
-
-> যারে দেখে, তারে কহে, — কহ কৃষ্ণনাম ।
-> কৃষ্ণনামে ভাসাইল নবদ্বীপ-গ্রাম ॥৩০॥
 
 > yāre dekhe, tāre kahe,—kaha kṛṣṇa-nāma
 > kṛṣṇa-nāme bhāsāila navadvīpa-grāma
@@ -23729,9 +18722,6 @@ There are different islands in the Navadvīpa area for cultivation of these nine
 
 ### CC Adi 13.31
 
-> কিশোর বয়সে আরম্ভিলা সংকীর্তন ।
-> রাত্র-দিনে প্রেমে নৃত্য, সঙ্গে ভক্তগণ ॥৩১॥
-
 > kiśora vayase ārambhilā saṅkīrtana
 > rātra-dine preme nṛtya, saṅge bhakta-gaṇa
 
@@ -23740,9 +18730,6 @@ There are different islands in the Navadvīpa area for cultivation of these nine
 **Just prior to His youthful life, He began the saṅkīrtana movement. Day and night He used to dance in ecstasy with His devotees.**
 
 ### CC Adi 13.32
-
-> নগরে নগরে ভ্রমে কীর্তন করিয়া ।
-> ভাসাইল ত্রিভুবন প্রেমভক্তি দিয়া ॥৩২॥
 
 > nagare nagare bhrame kīrtana kariyā
 > bhāsāila tri-bhuvana prema-bhakti diyā
@@ -23755,9 +18742,6 @@ One may raise the question how all three worlds became inundated with love of K�
 
 ### CC Adi 13.33
 
-> চব্বিশ বৎসর ঐছে নবদ্বীপ-গ্রামে ।
-> লওয়াইলা সর্বলোকে কৃষ্ণপ্রেম-নামে ॥৩৩॥
-
 > cabbiśa vatsara aiche navadvīpa-grāme
 > laoyāilā sarva-loke kṛṣṇa-prema-nāme
 
@@ -23766,9 +18750,6 @@ One may raise the question how all three worlds became inundated with love of K�
 **Lord Caitanya Mahāprabhu lived in the Navadvīpa area for twenty-four years, and He induced every person to chant the Hare Kṛṣṇa mahā-mantra and thus merge in love of Kṛṣṇa.**
 
 ### CC Adi 13.34
-
-> চব্বিশ বৎসর ছিলা করিয়া সন্ন্যাস ।
-> ভক্তগণ লঞা কৈলা নীলাচলে বাস ॥৩৪॥
 
 > cabbiśa vatsara chilā kariyā sannyāsa
 > bhakta-gaṇa lañā kailā nīlācale vāsa
@@ -23779,9 +18760,6 @@ One may raise the question how all three worlds became inundated with love of K�
 
 ### CC Adi 13.35
 
-> তার মধ্যে নীলাচলে ছয় বৎসর ।
-> নৃত্য, গীত, প্রেমভক্তি-দান নিরন্তর ॥৩৫॥
-
 > tāra madhye nīlācale chaya vatsara
 > nṛtya, gīta, premabhakti-dāna nirantara
 
@@ -23790,9 +18768,6 @@ One may raise the question how all three worlds became inundated with love of K�
 **For six of these twenty-four years in Nīlācala [Jagannātha Purī], He distributed love of Godhead by always chanting and dancing.**
 
 ### CC Adi 13.36
-
-> সেতুবন্ধ, আর গৌড়-ব্যাপি বৃন্দাবন ।
-> প্রেম-নাম প্রচারিয়া করিলা ভ্রমণ ॥৩৬॥
 
 > setubandha, āra gauḍa-vyāpi vṛndāvana
 > prema-nāma pracāriyā karilā bhramaṇa
@@ -23803,9 +18778,6 @@ One may raise the question how all three worlds became inundated with love of K�
 
 ### CC Adi 13.37
 
-> এই ‘মধ্যলীলা’ নাম — লীলা-মুখ্যধাম ।
-> শেষ অষ্টাদশ বর্ষ — ‘অন্ত্যলীলা’ নাম ॥৩৭॥
-
 > ei 'madhya-līlā' nāma—līlā-mukhyadhāma
 > śeṣa aṣṭādaśa varṣa—'antya-līlā' nāma
 
@@ -23815,9 +18787,6 @@ One may raise the question how all three worlds became inundated with love of K�
 
 ### CC Adi 13.38
 
-> তার মধ্যে ছয় বৎসর ভক্তগণ-সঙ্গে ।
-> প্রেমভক্তি লওয়াইল নৃত্য-গীত-রঙ্গে ॥৩৮॥
-
 > tāra madhye chaya vatsara bhaktagaṇa-saṅge
 > prema-bhakti laoyāila nṛtya-gīta-raṅge
 
@@ -23826,9 +18795,6 @@ One may raise the question how all three worlds became inundated with love of K�
 **For six of the eighteen years He continuously stayed in Jagannātha Purī, He regularly performed kīrtana, inducing all the devotees to love Kṛṣṇa simply by chanting and dancing.**
 
 ### CC Adi 13.39
-
-> দ্বাদশ বৎসর শেষ রহিলা নীলাচলে ।
-> প্রেমাবস্থা শিখাইলা আস্বাদন-চ্ছলে ॥৩৯॥
 
 > dvādaśa vatsara śeṣa rahilā nīlācale
 > premāvasthā śikhāilā āsvādana-cchale
@@ -23841,9 +18807,6 @@ A person who is advanced in Kṛṣṇa consciousness always feels separation fr
 
 ### CC Adi 13.40
 
-> রাত্রি-দিবসে কৃষ্ণবিরহ-স্ফুরণ ।
-> উন্মাদের চেষ্টা করে প্রলাপ-বচন ॥৪০॥
-
 > rātri-divase kṛṣṇa-viraha-sphuraṇa
 > unmādera ceṣṭā kare pralāpa-vacana
 
@@ -23852,9 +18815,6 @@ A person who is advanced in Kṛṣṇa consciousness always feels separation fr
 **Day and night Lord Caitanya Mahāprabhu felt separation from Kṛṣṇa. Manifesting symptoms of this separation, He cried and talked very inconsistently, like a madman.**
 
 ### CC Adi 13.41
-
-> শ্রীরাধার প্রলাপ যৈছে উদ্ধব-দর্শনে ।
-> সেইমত উন্মাদ-প্রলাপ করে রাত্রি-দিনে ॥৪১॥
 
 > śrī-rādhāra pralāpa yaiche uddhava-darśane
 > seimata unmāda-pralāpa kare rātri-dine
@@ -23866,9 +18826,6 @@ A person who is advanced in Kṛṣṇa consciousness always feels separation fr
 In this connection one should refer to Śrīmatī Rādhārāṇī's soliloquy after meeting Uddhava in Vṛndāvana. Śrī Caitanya Mahāprabhu presented a similar picture of such ecstatic imaginary talking. Full of jealousy and madness symptomizing neglect by Kṛṣṇa, Śrīmatī Rādhārāṇī, criticizing a bumblebee, talked just like a madwoman. Śrī Caitanya Mahāprabhu, in the last days of His pastimes, exhibited all the symptoms of such ecstasy. In this connection one should refer to the Fourth Chapter of *Ādi-līlā,* verses 107 and 108.
 
 ### CC Adi 13.42
-
-> বিদ্যাপতি, জয়দেব, চণ্ডীদাসের গীত ।
-> আস্বাদেন রামানন্দ-স্বরূপ-সহিত ॥৪২॥
 
 > vidyāpati, jayadeva, caṇḍīdāsera gīta
 > āsvādena rāmānanda-svarūpa-sahita
@@ -23887,9 +18844,6 @@ Caṇḍīdāsa was born in the village of Nānnura, which is also in the Birbhu
 
 ### CC Adi 13.43
 
-> কৃষ্ণের বিয়োগে যত প্রেম-চেষ্টিত ।
-> আস্বাদিয়া পূর্ণ কৈল আপন বাঞ্ছিত ॥৪৩॥
-
 > kṛṣṇera viyoge yata prema-ceṣṭita
 > āsvādiyā pūrṇa kaila āpana vāñchita
 
@@ -23901,9 +18855,6 @@ In the beginning of *Caitanya-caritāmṛta* it is said that Lord Caitanya appea
 
 ### CC Adi 13.44
 
-> অনন্ত চৈতন্যলীলা ক্ষুদ্র জীব হঞা ।
-> কে বর্ণিতে পারে, তাহা বিস্তার করিয়া ॥৪৪॥
-
 > ananta caitanya-līlā kṣudra jīva hañā
 > ke varṇite pāre, tāhā vistāra kariyā
 
@@ -23912,9 +18863,6 @@ In the beginning of *Caitanya-caritāmṛta* it is said that Lord Caitanya appea
 **The pastimes of Lord Caitanya Mahāprabhu are unlimited. How much can a small living entity elaborate about those transcendental pastimes?**
 
 ### CC Adi 13.45
-
-> সূত্র করি’ গণে যদি আপনে অনন্ত ।
-> সহস্র-বদনে তেঁহো নাহি পায় অন্ত ॥৪৫॥
 
 > sūtra kari' gaṇe yadi āpane ananta
 > sahasra-vadane teṅho nāhi pāya anta
@@ -23925,9 +18873,6 @@ In the beginning of *Caitanya-caritāmṛta* it is said that Lord Caitanya appea
 
 ### CC Adi 13.46
 
-> দামোদর-স্বরূপ, আর গুপ্ত মুরারি।
-> মুখ্যমুখ্যলীলা সূত্রে লিখিয়াছে বিচারি’ ॥৪৬॥
-
 > dāmodara-svarūpa, āra gupta murāri
 > mukhya-mukhya-līlā sūtre likhiyāche vicāri'
 
@@ -23936,9 +18881,6 @@ In the beginning of *Caitanya-caritāmṛta* it is said that Lord Caitanya appea
 **Devotees like Śrī Svarūpa Dāmodara and Murāri Gupta have recorded all the principal pastimes of Lord Caitanya in the form of notes, after deliberate consideration.**
 
 ### CC Adi 13.47
-
-> সেই, অনুসারে লিখি লীলা-সূত্রগণ ।
-> বিস্তারি’ বর্ণিয়াছেন তাহা দাস-বৃন্দাবন ॥৪৭॥
 
 > sei, anusāre likhi līlā-sūtragaṇa
 > vistāri' varṇiāchena tāhā dāsa-vṛndāvana
@@ -23949,9 +18891,6 @@ In the beginning of *Caitanya-caritāmṛta* it is said that Lord Caitanya appea
 
 ### CC Adi 13.48
 
-> চৈতন্য-লীলার ব্যাস, — দাস বৃন্দাবন ।
-> মধুর করিয়া লীলা করিলা রচন ॥৪৮॥
-
 > caitanya-līlāra vyāsa,—dāsa vṛndāvana
 > madhura kariyā līlā karilā racana
 
@@ -23960,9 +18899,6 @@ In the beginning of *Caitanya-caritāmṛta* it is said that Lord Caitanya appea
 **Śrīla Vṛndāvana dāsa Ṭhākura, the authorized writer of the pastimes of Śrī Caitanya Mahāprabhu, is as good as Śrīla Vyāsadeva. He has described the pastimes in such a way as to make them sweeter and sweeter.**
 
 ### CC Adi 13.49
-
-> গ্রন্থ-বিস্তার-ভয়ে ছাড়িলা যে যে স্থান ।
-> সেই সেই স্থানে কিছু করিব ব্যাখ্যান ॥৪৯॥
 
 > grantha-vistāra-bhaye chāḍilā ye ye sthāna
 > sei sei sthāne kichu kariba vyākhyāna
@@ -23973,9 +18909,6 @@ In the beginning of *Caitanya-caritāmṛta* it is said that Lord Caitanya appea
 
 ### CC Adi 13.50
 
-> প্রভুর লীলামৃত তেঁহো কৈল আস্বাদন ।
-> তাঁর ভুক্ত-শেষ কিছু করিয়ে চর্বণ ॥৫০॥
-
 > prabhura līlāmṛta teṅho kaila āsvādana
 > tāṅra bhukta-śeṣa kichu kariye carvaṇa
 
@@ -23984,9 +18917,6 @@ In the beginning of *Caitanya-caritāmṛta* it is said that Lord Caitanya appea
 **The transcendental pastimes of Lord Caitanya have actually been relished by Śrīla Vṛndāvana dāsa Ṭhākura. I am simply trying to chew the remnants of food left by him.**
 
 ### CC Adi 13.51
-
-> আদিলীলা-সূত্র লিখি, শুন, ভক্তগণ ।
-> সংক্ষেপে লিখিয়ে সম্যক্ না যায় লিখন ॥৫১॥
 
 > ādi-līlā-sūtra likhi, śuna, bhakta-gaṇa
 > saṅkṣepe likhiye samyak nā yāya likhana
@@ -23997,9 +18927,6 @@ In the beginning of *Caitanya-caritāmṛta* it is said that Lord Caitanya appea
 
 ### CC Adi 13.52
 
-> কোন বাঞ্ছা পূরণ লাগি’ ব্রজেন্দ্রকুমার ।
-> অবতীর্ণ হৈতে মনে করিলা বিচার ॥৫২॥
-
 > kona vāñchā pūraṇa lāgi' vrajendra-kumāra
 > avatīrṇa haite mane karilā vicāra
 
@@ -24009,9 +18936,6 @@ In the beginning of *Caitanya-caritāmṛta* it is said that Lord Caitanya appea
 
 ### CC Adi 13.53
 
-> আগে অবতারিলা যে যে গুরু-পরিবার ।
-> সংক্ষেপে কহিয়ে, কহা না যায় বিস্তার ॥৫৩॥
-
 > āge avatārilā ye ye guru-parivāra
 > saṅkṣepe kahiye, kahā nā yāya vistāra
 
@@ -24020,11 +18944,6 @@ In the beginning of *Caitanya-caritāmṛta* it is said that Lord Caitanya appea
 **Lord Kṛṣṇa therefore first allowed His family of superiors to descend on the earth. I shall try to describe them in brief because it is not possible to describe them fully.**
 
 ### CC Adi 13.54-55
-
-> শ্রীশচী-জগন্নাথ, শ্রীমাধবপুরী ।
-> কেশব ভারতী, আর শ্রীঈশ্বর পুরী ॥৫৪॥
-> অদ্বৈত আচার্য, আর পণ্ডিত শ্রীবাস ।
-> আচার্যরত্ন, বিদ্যানিধি, ঠাকুর হরিদাস ॥৫৫॥
 
 > śrī-śacī-jagannātha, śrī-mādhava-purī
 > keśava bhāratī, āra śrī-īśvara purī
@@ -24038,9 +18957,6 @@ In the beginning of *Caitanya-caritāmṛta* it is said that Lord Caitanya appea
 
 ### CC Adi 13.56
 
-> শ্রীহট্ট-নিবাসী শ্রীউপেন্দ্রমিশ্র-নাম ।
-> বৈষ্ণব, পণ্ডিত, ধনী, সদ্গুণ-প্রধান ॥৫৬॥
-
 > śrīhaṭṭa-nivāsī śrī-upendra-miśra-nāma
 > vaiṣṇava, paṇḍita, dhanī, sad-guṇa-pradhāna
 
@@ -24051,11 +18967,6 @@ In the beginning of *Caitanya-caritāmṛta* it is said that Lord Caitanya appea
 Upendra Miśra is described in the *Gaura-gaṇoddeśa-dīpikā,* verse 35, as the *gopāla* named Parjanya. The same personality who was formerly the grandfather of Lord Kṛṣṇa appeared as Upendra Miśra at Śrīhaṭṭa and begot seven sons. He was a resident of Dhākā-dakṣiṇa-grāma in the district of Śrīhaṭṭa. There are still many residents of that part of the country who introduce themselves as belonging to the Miśra family of Śrī Caitanya Mahāprabhu.
 
 ### CC Adi 13.57-58
-
-> সপ্ত মিশ্র তাঁর পুত্র — সপ্ত ঋষীশ্বর ।
-> কংসারি, পরমানন্দ, পদ্মনাভ, সর্বেশ্বর ॥৫৭॥
-> জগন্নাথ, জনার্দন, ত্রৈলোক্যনাথ ।
-> নদীয়াতে গঙ্গাবাস কৈল জগন্নাথ ॥৫৮॥
 
 > sapta miśra tāṅra putra—sapta ṛṣīśvara
 > kaṁsāri, paramānanda, padmanābha, sarveśvara
@@ -24069,9 +18980,6 @@ Upendra Miśra is described in the *Gaura-gaṇoddeśa-dīpikā,* verse 35, as t
 
 ### CC Adi 13.59
 
-> জগন্নাথ মিশ্রবর — পদবী ‘পুরন্দর’ ।
-> নন্দ-বসুদেব-রূপ সদ্গুণ-সাগর ॥৫৯॥
-
 > jagannātha miśravara—padavī 'purandara'
 > nanda-vasudeva-rūpa sadguṇa-sāgara
 
@@ -24080,9 +18988,6 @@ Upendra Miśra is described in the *Gaura-gaṇoddeśa-dīpikā,* verse 35, as t
 **Jagannātha Miśra was designated as Purandara. Exactly like Nanda Mahārāja and Vasudeva, he was an ocean of all good qualities.**
 
 ### CC Adi 13.60
-
-> তাঁর পত্নী ‘শচী’-নাম, পতিব্রতা সতী ।
-> যাঁর পিতা ‘নীলাম্বর’ নাম চক্রবর্তী ॥৬০॥
 
 > tāṅra patnī 'śacī'-nāma, pativratā satī
 > yāṅra pitā 'nīlāmbara' nāma cakravartī
@@ -24094,9 +18999,6 @@ Upendra Miśra is described in the *Gaura-gaṇoddeśa-dīpikā,* verse 35, as t
 In the *Gaura-gaṇoddeśa-dīpikā,* verse 104, it is mentioned that Nīlāmbara Cakravartī was formerly Garga Muni. Some of the family descendants of Nīlāmbara Cakravartī still live in the village of the name Magḍobā in the district of Faridpur in Bangladesh. His nephew was Jagannātha Cakravartī, also known as Māmu Ṭhākura, who became a disciple of Paṇḍita Gosvāmī and stayed at Jagannātha Purī as the priest of Ṭoṭā-gopīnātha. Nīlāmbara Cakravartī lived at Navadvīpa in the neighborhood of Belapukuriyā. This fact is mentioned in the book *Prema-vilāsa.* Because he lived near the house of the Kazi, the Kazi was also considered one of the maternal uncles of Lord Caitanya Mahāprabhu. The Kazi used to address Nīlāmbara Cakravartī as *kākā,* or "uncle." One cannot separate the residence of the Kazi from Vāmanapukura because the tomb of the Kazi is still existing there. Formerly the place was known as Belapukuriyā, and now it is called Vāmanapukura. This has been ascertained by archeological evidence.
 
 ### CC Adi 13.61
-
-> রাঢ়দেশে জন্মিলা ঠাকুর নিত্যানন্দ ।
-> গঙ্গাদাস পণ্ডিত, গুপ্ত মুরারি, মুকুন্দ ॥৬১॥
 
 > rāḍhadeśe janmilā ṭhākura nityānanda
 > gaṅgādāsa paṇḍita, gupta murāri, mukunda
@@ -24127,9 +19029,6 @@ Another place nearby is named Hāṅṭugāḍā. It is said that Lord Nityānan
 
 ### CC Adi 13.62
 
-> অসংখ্য ভক্তের করাইলা অবতার ।
-> শেষে অবতীর্ণ হৈলা ব্রজেন্দ্রকুমার ॥৬২॥
-
 > asaṅkhya bhaktera karāilā avatāra
 > śeṣe avatīrṇa hailā vrajendra-kumāra
 
@@ -24138,9 +19037,6 @@ Another place nearby is named Hāṅṭugāḍā. It is said that Lord Nityānan
 **Lord Kṛṣṇa, Vrajendra-kumāra, first caused countless devotees to appear, and at last He appeared Himself.**
 
 ### CC Adi 13.63
-
-> প্রভুর আবির্ভাবপূর্বে যত বৈষ্ণবগণ ।
-> অদ্বৈত-আচার্যের স্থানে করেন গমন ॥৬৩॥
 
 > prabhura āvirbhāva-pūrve yata vaiṣṇava-gaṇa
 > advaita-ācāryera sthāne karena gamana
@@ -24151,9 +19047,6 @@ Another place nearby is named Hāṅṭugāḍā. It is said that Lord Nityānan
 
 ### CC Adi 13.64
 
-> গীতা-ভাগবত কহে আচার্য-গোসাঞি ।
-> জ্ঞান-কর্ম নিন্দি’ করে ভক্তির বড়াই ॥৬৪॥
-
 > gītā-bhhāgavata kahe ācārya-gosāñi
 > jñāna-karma nindi' kare bhaktira baḍāi
 
@@ -24162,9 +19055,6 @@ Another place nearby is named Hāṅṭugāḍā. It is said that Lord Nityānan
 **In these meetings of the Vaiṣṇavas, Advaita Ācārya used to recite Bhagavad-gītā and Śrīmad-Bhāgavatam, decrying the paths of philosophical speculation and fruitive activity and establishing the superexcellence of devotional service.**
 
 ### CC Adi 13.65
-
-> সর্বশাস্ত্রে কহে কৃষ্ণভক্তির ব্যাখ্যান ।
-> জ্ঞান, যোগ, তপো-ধর্ম নাহি মানে আন ॥৬৫॥
 
 > sarva-śāstre kahe kṛṣṇa-bhaktira vyākhyāna
 > jñāna, yoga, tapo-dharma nāhi māne āna
@@ -24177,9 +19067,6 @@ Our Kṛṣṇa consciousness movement follows this principle. We do not recogni
 
 ### CC Adi 13.66
 
-> তাঁর সঙ্গে আনন্দ করে বৈষ্ণবের গণ ।
-> কৃষ্ণকথা, কৃষ্ণপূজা, নামসংকীর্তন ॥৬৬॥
-
 > tāṅra saṅge ānanda kare vaiṣṇavera gaṇa
 > kṛṣṇa-kathā, kṛṣṇa-pūjā, nāma-saṅkīrtana
 
@@ -24190,9 +19077,6 @@ Our Kṛṣṇa consciousness movement follows this principle. We do not recogni
 On these principles only does the Kṛṣṇa consciousness movement go on. We have no business other than to talk of Kṛṣṇa, worship Kṛṣṇa and chant the Hare Kṛṣṇa *mahā-mantra.*
 
 ### CC Adi 13.67
-
-> কিন্তু সর্বলোক দেখি’ কৃষ্ণবহির্মুখ ।
-> বিষয়ে নিমগ্ন লোক দেখি’ পায় দুঃখ ॥৬৭॥
 
 > kintu sarva-loka dekhi' kṛṣṇa-bahirmukha
 > viṣaye nimagna loka dekhi' pāya duḥkha
@@ -24205,9 +19089,6 @@ A bona fide devotee of Lord Kṛṣṇa is always pained to see the fallen condi
 
 ### CC Adi 13.68
 
-> লোকের নিস্তার-হেতু করেন চিন্তন ।
-> কেমতে এ সব লোকের হইবে তারণ ॥৬৮॥
-
 > lokera nistāra-hetu karena cintana
 > kemate e saba lokera ha-ibe tāraṇa
 
@@ -24216,9 +19097,6 @@ A bona fide devotee of Lord Kṛṣṇa is always pained to see the fallen condi
 **Seeing the condition of the world, He began to think seriously of how all these people could be delivered from the clutches of māyā.**
 
 ### CC Adi 13.69
-
-> কৃষ্ণ অবতরি’ করেন ভক্তির বিস্তার ।
-> তবে ত’ সকল লোকের হইবে নিস্তার ॥৬৯॥
 
 > kṛṣṇa avatari' karena bhaktira vistāra
 > tabe ta' sakala lokera ha-ibe nistāra
@@ -24230,9 +19108,6 @@ A bona fide devotee of Lord Kṛṣṇa is always pained to see the fallen condi
 Just as a condemned person can be relieved by a special favor of the chief executive head, the president or king, so the condemned people of this Kali-yuga can be delivered only by the Supreme Personality of Godhead Himself or a person especially empowered for this purpose. Śrīla Advaita Ācārya Prabhu desired that the Supreme Personality of Godhead advent Himself to deliver the fallen souls of this age.
 
 ### CC Adi 13.70
-
-> কৃষ্ণ অবতারিতে আচার্য প্রতিজ্ঞা করিয়া ।
-> কৃষ্ণপূজা করে তুলসী-গঙ্গাজল দিয়া ॥৭০॥
 
 > kṛṣṇa avatārite ācārya pratijñā kariyā
 > kṛṣṇa-pūjā kare tulasī-gaṅgājala diyā
@@ -24252,9 +19127,6 @@ Just as a condemned person can be relieved by a special favor of the chief execu
 
 ### CC Adi 13.71
 
-> কৃষ্ণের আহ্বান করে সঘন হুঙ্কার ।
-> হুঙ্কারে আকৃষ্ট হৈলা ব্রজেন্দ্রকুমার ॥৭১॥
-
 > kṛṣṇera āhvāna kare saghana huṅkāra
 > huṅkāre ākṛṣṭa hailā vrajendra-kumāra
 
@@ -24263,9 +19135,6 @@ Just as a condemned person can be relieved by a special favor of the chief execu
 **By loud cries He invited Kṛṣṇa to appear, and this repeated invitation attracted Lord Kṛṣṇa to descend.**
 
 ### CC Adi 13.72
-
-> জগন্নাথমিশ্র-পত্নী শচীর উদরে ।
-> অষ্ট কন্যা ক্রমে হৈল, জন্মি’ জন্মি’ মরে ॥৭২॥
 
 > jagannāthamiśra-patnī śacīra udare
 > aṣṭa kanyā krame haila, janmi' janmi' mare
@@ -24276,9 +19145,6 @@ Just as a condemned person can be relieved by a special favor of the chief execu
 
 ### CC Adi 13.73
 
-> অপত্য-বিরহে মিশ্রের দুঃখী হৈল মন ।
-> পুত্র লাগি’ আরাধিল বিষ্ণুর চরণ ॥৭৩॥
-
 > apatya-virahe miśrera duḥkhī haila mana
 > putra lāgi' ārādhila viṣṇura caraṇa
 
@@ -24287,9 +19153,6 @@ Just as a condemned person can be relieved by a special favor of the chief execu
 **Jagannātha Miśra was very unhappy at the death of his children one after another. Therefore, desiring a son, he worshiped the lotus feet of Lord Viṣṇu.**
 
 ### CC Adi 13.74
-
-> তবে পুত্র জনমিলা ‘বিশ্বরূপ’ নাম ।
-> মহা-গুণবান্ তেঁহ — ‘বলদেব’-ধাম ॥৭৪॥
 
 > tabe putra janamilā 'viśvarūpa' nāma
 > mahā-guṇavān teṅha—'baladeva'-dhāma
@@ -24302,9 +19165,6 @@ Viśvarūpa was the elder brother of Gaurahari, Lord Śrī Caitanya Mahāprabhu.
 
 ### CC Adi 13.75
 
-> বলদেব-প্রকাশ — পরমব্যোমে ‘সঙ্কর্ষণ’ ।
-> তেঁহ — বিশ্বের উপাদান-নিমিত্ত-কারণ ॥৭৫॥
-
 > baladeva-prakāśa—parama-vyome 'saṅkarṣaṇa'
 > teṅha—viśvera upādāna-nimitta-kāraṇa
 
@@ -24314,9 +19174,6 @@ Viśvarūpa was the elder brother of Gaurahari, Lord Śrī Caitanya Mahāprabhu.
 
 ### CC Adi 13.76
 
-> তাঁহা বই বিশ্বে কিছু নাহি দেখি আর ।
-> অতএব ‘বিশ্বরূপ’ নাম যে তাঁহার ॥৭৬॥
-
 > tāṅhā ba-i viśve kichu nāhi dekhi āra
 > ataeva 'viśvarūpa' nāma ye tāṅhāra
 
@@ -24325,9 +19182,6 @@ Viśvarūpa was the elder brother of Gaurahari, Lord Śrī Caitanya Mahāprabhu.
 **The gigantic universal form is called the Viśvarūpa incarnation of Mahā-saṅkarṣaṇa. Thus we do not find anything within this cosmic manifestation except the Lord Himself.**
 
 ### CC Adi 13.77
-
-> নৈতচ্চিত্রং ভগবতি হ্যনন্তে জগদীশ্বরে ।
-> ওতং প্রোতমিদং যস্মিন্ তন্তুষ্বঙ্গ যথা পটঃ ॥৭৭॥
 
 > naitac citraṁ bhagavati
 > hy anante jagad-īśvare
@@ -24342,9 +19196,6 @@ This is a verse from *Śrīmad-Bhāgavatam* (10.15.35).
 
 ### CC Adi 13.78
 
-> অতএব প্রভু তাঁরে বলে, ‘বড় ভাই’ ।
-> কৃষ্ণ, বলরাম দুই — চৈতন্য, নিতাই ॥৭৮॥
-
 > ataeva prabhu tāṅre bale, 'baḍa bhāi'
 > kṛṣṇa, balarāma dui—caitanya, nitāi
 
@@ -24353,9 +19204,6 @@ This is a verse from *Śrīmad-Bhāgavatam* (10.15.35).
 **Because Mahā-saṅkarṣaṇa is the ingredient and efficient cause of the cosmic manifestation, He is present in every detail of it. Lord Caitanya therefore called Him His elder brother. The two brothers are known as Kṛṣṇa and Balarāma in the spiritual world, but at the present moment they are Caitanya and Nitāi. Therefore the conclusion is that Nityānanda Prabhu is the original Saṅkarṣaṇa, Baladeva.**
 
 ### CC Adi 13.79
-
-> পুত্র পাঞা দম্পতি হৈলা আনন্দিত মন ।
-> বিশেষে সেবন করে গোবিন্দচরণ ॥৭৯॥
 
 > putra pāñā dampati hailā ānandita mana
 > viśeṣe sevana kare govinda-caraṇa
@@ -24375,9 +19223,6 @@ There is a common saying in India that everyone goes to worship the Supreme Pers
 
 ### CC Adi 13.80
 
-> চৌদ্দশত ছয় শকে শেষ মাঘ মাসে ।
-> জগন্নাথ-শচীর দেহে কৃষ্ণের প্রবেশে ॥৮০॥
-
 > caudda-śata chaya śake śeṣa māgha māse
 > jagannātha-śacīra dehe kṛṣṇera praveśe
 
@@ -24389,9 +19234,6 @@ Lord Caitanya Mahāprabhu took His birth in the year 1407 Śaka Era, in the mont
 
 ### CC Adi 13.81
 
-> মিশ্র কহে শচী-স্থানে, — দেখি আন রীত ।
-> জ্যোতির্ময় দেহ, গেহ লক্ষ্মী-অধিষ্ঠিত ॥৮১॥
-
 > miśra kahe śacī-sthāne,—dekhi āna rīta
 > jyotirmaya deha, geha lakṣmī-adhiṣṭhita
 
@@ -24400,9 +19242,6 @@ Lord Caitanya Mahāprabhu took His birth in the year 1407 Śaka Era, in the mont
 **Jagannātha Miśra said to Śacīmātā, "I see wonderful things! Your body is effulgent, and it appears as if the goddess of fortune were now staying personally in my home.**
 
 ### CC Adi 13.82
-
-> যাহাঁ তাহাঁ সর্বলোক করয়ে সম্মান ।
-> ঘরে পাঠাইয়া দেয় ধন, বস্ত্র, ধান ॥৮২॥
 
 > yāhāṅ tāhāṅ sarva-loka karaye sammāna
 > ghare pāṭhāiyā deya dhana, vastra, dhāna
@@ -24417,9 +19256,6 @@ Jagannātha Miśra was a *brāhmaṇa;* therefore people would send him all bodi
 
 ### CC Adi 13.83
 
-> শচী কহে, — মুঞি দেখোঁ আকাশ-উপরে ।
-> দিব্যমূর্তি লোক সব যেন স্তুতি করে ॥৮৩॥
-
 > śacī kahe,—muñi dekhoṅ ākāśa-upare
 > divya-mūrti loka saba yena stuti kare
 
@@ -24431,9 +19267,6 @@ Jagannātha Miśra was honored by everyone on the earth and was supplied with al
 
 ### CC Adi 13.84
 
-> জগন্নাথ মিশ্র কহে, — স্বপ্ন যে দেখিল ।
-> জ্যোতির্ময়-ধাম মোর হৃদয়ে পশিল ॥৮৪॥
-
 > jagannātha miśra kahe,—svapna ye dekhila
 > jyotirmaya-dhāma mora hṛdaye paśila
 
@@ -24443,9 +19276,6 @@ Jagannātha Miśra was honored by everyone on the earth and was supplied with al
 
 ### CC Adi 13.85
 
-> আমার হৃদয় হৈতে গেলা তোমার হৃদয়ে ।
-> হেন বুঝি, জন্মিবেন কোন মহাশয়ে ॥৮৫॥
-
 > āmāra hṛdaya haite gelā tomāra hṛdaye
 > hena bujhi, janmibena kona mahāśaye
 
@@ -24454,9 +19284,6 @@ Jagannātha Miśra was honored by everyone on the earth and was supplied with al
 **"From my heart it entered your heart. I therefore understand that a great personality will soon take birth."**
 
 ### CC Adi 13.86
-
-> এত বলি’ দুঁহে রহে হরষিত হঞা ।
-> শালগ্রাম সেবা করে বিশেষ করিয়া ॥৮৬॥
 
 > eta bali' duṅhe rahe haraṣita hañā
 > śālagrāma sevā kare viśeṣa kariyā
@@ -24490,9 +19317,6 @@ Similarly, in regard to the appearance of Lord Caitanya Mahāprabhu as described
 
 ### CC Adi 13.87
 
-> হৈতে হৈতে হৈল গর্ভ ত্রয়োদশ মাস ।
-> তথাপি ভূমিষ্ঠ নহে, — মিশ্রের হৈল ত্রাস ॥৮৭॥
-
 > haite haite haila garbha trayodaśa māsa
 > tathāpi bhūmiṣṭha nahe,—miśrera haila trāsa
 
@@ -24502,9 +19326,6 @@ Similarly, in regard to the appearance of Lord Caitanya Mahāprabhu as described
 
 ### CC Adi 13.88
 
-> নীলাম্বর চক্রবর্তী কহিল গণিয়া ।
-> এই মাসে পুত্র হবে শুভক্ষণ পাঞা ॥৮৮॥
-
 > nīlāmbara cakravartī kahila gaṇiyā
 > ei māse putra habe śubha-kṣaṇa pāñā
 
@@ -24513,9 +19334,6 @@ Similarly, in regard to the appearance of Lord Caitanya Mahāprabhu as described
 **Nīlāmbara Cakravartī [the grandfather of Śrī Caitanya Mahāprabhu] then did an astrological calculation and said that in that month, taking advantage of an auspicious moment, the child would take birth.**
 
 ### CC Adi 13.89
-
-> চৌদ্দশত সাতশকে মাস যে ফাল্গুন ।
-> পৌর্ণমাসীর সন্ধ্যাকালে হৈলে শুভক্ষণ ॥৮৯॥
 
 > caudda-śata sāta-śake māsa ye phālguna
 > paurṇamāsīra sandhyā-kāle haile śubha-kṣaṇa
@@ -24536,9 +19354,6 @@ The explanation of the horoscope given by Bhaktivinoda Ṭhākura is that at the
 
 ### CC Adi 13.90
 
-> সিংহ-রাশি, সিংহ-লগ্ন, উচ্চ গ্রহগণ ।
-> ষড়্বর্গ, অষ্টবর্গ, সর্ব সুলক্ষণ ॥৯০॥
-
 > siṁha-rāśi, siṁha-lagna, ucca graha-gaṇa
 > ṣaḍ-varga, aṣṭa-varga, sarva sulakṣaṇa
 
@@ -24550,9 +19365,6 @@ The divisions of the *ṣaḍ-varga* area are technically called *kṣetra, hor�
 
 ### CC Adi 13.91
 
-> অ-কলঙ্ক গৌরচন্দ্র দিলা দরশন ।
-> স-কলঙ্ক চন্দ্রে আর কোন্ প্রয়োজন ॥৯১॥
-
 > a-kalaṅka gauracandra dilā daraśana
 > sa-kalaṅka candre āra kon prayojana
 
@@ -24561,9 +19373,6 @@ The divisions of the *ṣaḍ-varga* area are technically called *kṣetra, hor�
 **When the spotless moon of Caitanya Mahāprabhu became visible, what would be the need for a moon full of black marks on its body?**
 
 ### CC Adi 13.92
-
-> এত জানি’ রাহু কৈল চন্দ্রের গ্রহণ ।
-> ‘কৃষ্ণ’ ‘কৃষ্ণ’ ‘হরি’ নামে ভাসে ত্রিভুবন ॥৯২॥
 
 > eta jāni' rāhu kaila candrera grahaṇa
 > 'kṛṣṇa' 'kṛṣṇa' 'hari' nāme bhāse tri-bhuvana
@@ -24576,9 +19385,6 @@ According to the *Jyotir-veda,* the Rāhu planet comes in front of the full moon
 
 ### CC Adi 13.93
 
-> জয় জয় ধ্বনি হৈল সকল ভুবন ।
-> চমৎকার হৈয়া লোক ভাবে মনে মন ॥৯৩॥
-
 > jaya jaya dhvani haila sakala bhuvana
 > camatkāra haiyā loka bhāve mane mana
 
@@ -24588,9 +19394,6 @@ According to the *Jyotir-veda,* the Rāhu planet comes in front of the full moon
 
 ### CC Adi 13.94
 
-> জগৎ ভরিয়া লোক বলে — ‘হরি’ ‘হরি’ ।
-> সেইক্ষণে গৌরকৃষ্ণ ভূমে অবতরি ॥৯৪॥
-
 > jagat bhariyā loka bale—'hari' 'hari'
 > sei-kṣaṇe gaurakṛṣṇa bhūme avatari
 
@@ -24599,9 +19402,6 @@ According to the *Jyotir-veda,* the Rāhu planet comes in front of the full moon
 **When the whole world was thus chanting the holy name of the Supreme Personality of Godhead, Kṛṣṇa in the form of Gaurahari advented Himself on the earth.**
 
 ### CC Adi 13.95
-
-> প্রসন্ন হইল সব জগতের মন ।
-> ‘হরি’ বলি’ হিন্দুকে হাস্য করয়ে যবন ॥৯৫॥
 
 > prasanna ha-ila saba jagatera mana
 > 'hari' bali' hinduke hāsya karaye yavana
@@ -24614,9 +19414,6 @@ Although the Muslims, or non-Hindus, have no interest in chanting the holy name 
 
 ### CC Adi 13.96
 
-> ‘হরি’ বলি’ নারীগণ দেই হুলাহুলি ।
-> স্বর্গে বাদ্য-নৃত্য করে দেব কুতূহলী ॥৯৬॥
-
 > 'hari' bali' nārīgaṇa dei hulāhuli
 > svarge vādya-nṛtya kare deva kutūhalī
 
@@ -24626,9 +19423,6 @@ Although the Muslims, or non-Hindus, have no interest in chanting the holy name 
 
 ### CC Adi 13.97
 
-> প্রসন্ন হৈল দশ দিক্, প্রসন্ন নদীজল ।
-> স্থাবর-জঙ্গম হৈল আনন্দে বিহ্বল ॥৯৭॥
-
 > prasanna haila daśa dik, prasanna nadījala
 > sthāvara-jaṅgama haila ānande vihvala
 
@@ -24637,11 +19431,6 @@ Although the Muslims, or non-Hindus, have no interest in chanting the holy name 
 **In this atmosphere, all the ten directions became jubilant, as did the waves of the rivers. Moreover, all beings, moving and nonmoving, were overwhelmed with transcendental bliss.**
 
 ### CC Adi 13.98
-
-> নদীয়া-উদয়গিরি, পূর্ণচন্দ্র গৌরহরি,
-> কৃপা করি’ হইল উদয় ।
-> পাপ-তমঃ হৈল নাশ, ত্রিজগতের উল্লাস,
-> জগভরি’ হরিধ্বনি হয় ॥৯৮॥
 
 > nadīyā-udayagiri, pūrṇacandra gaurahari,
 > kṛpā kari' ha-ila udaya
@@ -24653,11 +19442,6 @@ Although the Muslims, or non-Hindus, have no interest in chanting the holy name 
 **Thus by His causeless mercy the full moon, Gaurahari, rose in the district of Nadia, which is compared to Udayagiri, where the sun first becomes visible. His rising in the sky dissipated the darkness of sinful life, and thus the three worlds became joyful and chanted the holy name of the Lord.**
 
 ### CC Adi 13.99
-
-> সেইকালে নিজালয়, উঠিয়া অদ্বৈত রায়,
-> নৃত্য করে আনন্দিত-মনে ।
-> হরিদাসে লঞা সঙ্গে, হুঙ্কার-কীর্তন-রঙ্গে,
-> কেনে নাচে, কেহ নাহি জানে ॥৯৯॥
 
 > sei-kāle nijālaya, uṭhiyā advaita rāya,
 > nṛtya kare ānandita-mane
@@ -24672,11 +19456,6 @@ It is understood that Advaita Prabhu, at that time, was in His own paternal hous
 
 ### CC Adi 13.100
 
-> দেখি’ উপরাগ হাসি’, শীঘ্র গঙ্গাঘাটে আসি’,
-> আনন্দে করিল গঙ্গাস্নান ।
-> পাঞা উপরাগ-ছলে, আপনার মনোবলে,
-> ব্রাহ্মণেরে দিল নানা দান ॥১০০॥
-
 > dekhi' uparāga hāsi', śīghra gaṅgā-ghāṭe āsi'
 > ānande karila gaṅgā-snāna
 > pāñā uparāga-chale, āpanāra mano-bale,
@@ -24690,11 +19469,6 @@ It is the custom of Hindus to give in charity to the poor as much as possible du
 
 ### CC Adi 13.101
 
-> জগৎ আনন্দময়, দেখি’ মনে সবিস্ময়,
-> ঠারেঠোরে কহে হরিদাস ।
-> তোমার ঐছন রঙ্গ, মোর মন পরসন্ন,
-> দেখি — কিছু কার্যে আছে ভাস ॥১০১॥
-
 > jagat ānandamaya, dekhi' mane sa-vismaya,
 > ṭhāreṭhore kahe haridāsa
 > tomāra aichana raṅga, mora mana parasanna,
@@ -24705,11 +19479,6 @@ It is the custom of Hindus to give in charity to the poor as much as possible du
 **When he saw that the whole world was jubilant, Haridāsa Ṭhākura, his mind astonished, directly and indirectly expressed himself to Advaita Ācārya, "Your dancing and distributing charity are very pleasing to me. I can understand that there is some special purpose in these actions."**
 
 ### CC Adi 13.102
-
-> আচার্যরত্ন, শ্রীবাস, হৈল মনে সুখোল্লাস,
-> যাই’ স্নান কৈল গঙ্গাজলে ।
-> আনন্দে বিহ্বল মন, করে হরিসংকীর্তন,
-> নানা দান কৈল মনোবলে ॥১০২॥
 
 > ācāryaratna, śrīvāsa, haila mane sukhollāsa
 > yāi' snāna kaila gaṅgā-jale
@@ -24722,11 +19491,6 @@ It is the custom of Hindus to give in charity to the poor as much as possible du
 
 ### CC Adi 13.103
 
-> এই মত ভক্তততি, যাঁর যেই দেশে স্থিতি,
-> তাহাঁ তাহাঁ পাঞা মনোবলে ।
-> নাচে, করে সংকীর্তন, আনন্দে বিহ্বল মন,
-> দান করে গ্রহণের ছলে ॥১০৩॥
-
 > ei mata bhakta-tati, yāṅra yei deśe sthiti,
 > tāhāṅ tāhāṅ pāñā mano-bale
 > nāce, kare saṅkīrtana, ānande vihvala mana,
@@ -24738,11 +19502,6 @@ It is the custom of Hindus to give in charity to the poor as much as possible du
 
 ### CC Adi 13.104
 
-> ব্রাহ্মণ-সজ্জন-নারী, নানা-দ্রব্যে থালী ভরি’
-> আইলা সবে যৌতুক লইয়া ।
-> যেন কাঁচা-সোণা-দ্যুতি, দেখি’ বালকের মূর্তি,
-> আশীর্বাদ করে সুখ পাঞা ॥১০৪॥
-
 > brāhmaṇa-sajjana-nārī, nānā-dravye thālī bhari'
 > āilā sabe yautuka la-iyā
 > yena kāṅcā-soṇā-dyuti, dekhi' bālakera mūrti,
@@ -24753,11 +19512,6 @@ It is the custom of Hindus to give in charity to the poor as much as possible du
 **All sorts of respectful brāhmaṇa gentlemen and ladies, carrying plates filled with various gifts, came with their presentations. Seeing the newborn child, whose form resembled natural glaring gold, all of them with happiness offered their blessings.**
 
 ### CC Adi 13.105
-
-> সাবিত্রী, গৌরী, সরস্বতী, শচী, রম্ভা, অরুন্ধতী,
-> আর যত দেব-নারীগণ ।
-> নানা-দ্রব্যে পাত্র ভরি’, ব্রাহ্মণীর বেশ ধরি’,
-> আসি’ সবে করে দরশন ॥১০৫॥
 
 > sāvitrī, gaurī, sarasvatī, śacī, rambhā, arundhatī
 > āra yata deva-nārīgaṇa
@@ -24772,11 +19526,6 @@ When Lord Caitanya Mahāprabhu was a newly born baby, He was visited by the neig
 
 ### CC Adi 13.106
 
-> অন্তরীক্ষে দেবগণ, গন্ধর্ব, সিদ্ধ, চারণ,
-> স্তুতি-নৃত্য করে বাদ্য-গীত ।
-> নর্তক, বাদক, ভাট, নবদ্বীপে যার নাট,
-> সবে আসি’ নাচে পাঞা প্রীত ॥১০৬॥
-
 > antarīkṣe deva-gaṇa, gandharva, siddha, cāraṇa,
 > stuti-nṛtya kare vādya-gīta
 > nartaka, vādaka, bhāṭa, navadvīpe yāra nāṭa,
@@ -24790,11 +19539,6 @@ As there are professional singers, dancers and reciters of prayers in the heaven
 
 ### CC Adi 13.107
 
-> কেবা আসে কেবা যায়, কেবা নাচে কেবা গায়,
-> সম্ভালিতে নারে কার বোল ।
-> খণ্ডিলেক দুঃখ-শোক, প্রমোদপূরিত লোক,
-> মিশ্র হৈলা আনন্দে বিহ্বল ॥১০৭॥
-
 > kebā āse kebā yāya, kebā nāce kebā gāya,
 > sambhālite nāre kāra bola
 > khaṇḍileka duḥkha-śoka, pramoda-pūrita loka,
@@ -24805,11 +19549,6 @@ As there are professional singers, dancers and reciters of prayers in the heaven
 **No one could understand who was coming and who was going, who was dancing and who was singing. Nor could they understand one another's language. But in effect all unhappiness and lamentation were immediately dissipated, and people became all-jubilant. Thus Jagannātha Miśra was also overwhelmed with joy.**
 
 ### CC Adi 13.108
-
-> আচার্যরত্ন, শ্রীবাস, জগন্নাথমিশ্র-পাশ,
-> আসি’ তাঁরে করে সাবধান ।
-> করাইল জাতকর্ম, যে আছিল বিধি-ধর্ম,
-> তবে মিশ্র করে নানা দান ॥১০৮॥
 
 > ācāryaratna, śrīvāsa, jagannātha-miśra-pāśa,
 > āsi' tāṅre kare sāvadhāna
@@ -24822,11 +19561,6 @@ As there are professional singers, dancers and reciters of prayers in the heaven
 
 ### CC Adi 13.109
 
-> যৌতুক পাইল যত, ঘরে বা আছিল কত,
-> সব ধন বিপ্রে দিল দান ।
-> যত নর্তক, গায়ন, ভাট, অকিঞ্চন জন,
-> ধন দিয়া কৈল সবার মান ॥১০৯॥
-
 > yautuka pāila yata, ghare vā āchila kata,
 > saba dhana vipre dila dāna
 > yata nartaka, gāyana, bhāṭa, akiñcana jana,
@@ -24837,11 +19571,6 @@ As there are professional singers, dancers and reciters of prayers in the heaven
 **Whatever riches Jagannātha Miśra collected in the form of gifts and presentations, and whatever he had in his house, he distributed among the brāhmaṇas, professional singers, dancers, bhāṭas and the poor. He honored them all by giving them riches in charity.**
 
 ### CC Adi 13.110
-
-> শ্রীবাসের ব্রাহ্মণী, নাম তাঁর ‘মালিনী’,
-> আচার্যরত্নের পত্নী-সঙ্গে ।
-> সিন্দূর, হরিদ্রা, তৈল, খই, কলা, নারিকেল,
-> দিয়া পূজে নারীগণ রঙ্গে ॥১১০॥
 
 > śrīvāsera brāhmaṇī, nāma tāṅra 'mālinī',
 > ācāryaratnera patnī-saṅge
@@ -24856,11 +19585,6 @@ Vermilion, *kha-i* (fused rice), bananas, coconuts and turmeric mixed with oil a
 
 ### CC Adi 13.111
 
-> অদ্বৈত-আচার্য-ভার্যা, জগৎপূজিতা আর্যা,
-> নাম তাঁর ‘সীতা ঠাকুরাণী’ ।
-> আচার্যের আজ্ঞা পাঞা, গেল উপহার লঞা,
-> দেখিতে বালক-শিরোমণি ॥১১১॥
-
 > advaita-ācārya-bhāryā, jagat-pūjitā āryā,
 > nāma tāṅra 'sītā ṭhākurāṇī'
 > ācāryera ājñā pāñā, gela upahāra lañā,
@@ -24874,11 +19598,6 @@ It appears that Advaita Ācārya had two different houses, one at Śāntipura an
 
 ### CC Adi 13.112
 
-> সুবর্ণের কড়ি-বউলি, রজতমুদ্রা-পাশুলি,
-> সুবর্ণের অঙ্গদ, কঙ্কণ ।
-> দু-বাহুতে দিব্য শঙ্খ, রজতের মলবঙ্ক,
-> স্বর্ণমুদ্রার নানা হারগণ ॥১১২॥
-
 > suvarṇera kaḍi-ba-uli, rajatamudrā-pāśuli,
 > suvarṇera aṅgada, kaṅkaṇa
 > du-bāhute divya śaṅkha, rajatera malabaṅka,
@@ -24889,11 +19608,6 @@ It appears that Advaita Ācārya had two different houses, one at Śāntipura an
 **She brought different kinds of golden ornaments, including bangles for the hand, armlets, necklaces and anklets.**
 
 ### CC Adi 13.113
-
-> ব্যাঘ্রনখ হেমজড়ি, কটি-পট্টসূত্র-ডোরী,
-> হস্ত-পদের যত আভরণ ।
-> চিত্রবর্ণ পট্টসাড়ী, বুনি ফোতো পট্টপাড়ী,
-> স্বর্ণ-রৌপ্য-মুদ্রা বহুধন ॥১১৩॥
 
 > vyāghra-nakha hema-jaḍi, kaṭi-paṭṭasūtra-ḍorī
 > hasta-padera yata ābharaṇa
@@ -24908,11 +19622,6 @@ From the gifts presented by Sītā Ṭhākurāṇī, Advaita Ācārya's wife, it
 
 ### CC Adi 13.114
 
-> দুর্বা, ধান্য, গোরোচন, হরিদ্রা, কুঙ্কুম, চন্দন,
-> মঙ্গল-দ্রব্য পাত্র ভরিয়া ।
-> বস্ত্র-গুপ্ত দোলা চড়ি’ সঙ্গে লঞা দাসী চেড়ী,
-> বস্ত্রালঙ্কার পেটারি ভরিয়া ॥১১৪॥
-
 > durvā, dhānya, gorocana, haridrā, kuṅkuma, candana,
 > maṅgala-dravya pātra bhariyā
 > vastra-gupta dolā caḍi' saṅge lañā dāsī ceḍī,
@@ -24925,11 +19634,6 @@ From the gifts presented by Sītā Ṭhākurāṇī, Advaita Ācārya's wife, it
 The words *vastra-gupta dolā* are very significant in this verse. Even fifty or sixty years ago in Calcutta, all respectable ladies would go to a neighboring place riding on a palanquin carried by four men. The palanquin was covered with soft cotton, and in that way there was no chance to see a respectable lady traveling in public. Ladies, especially those coming from respectable families, could not be seen by ordinary men. This system is still current in remote places. The Sanskrit word *asūrya-paśyā* indicates that a respectable lady could not be seen even by the sun. In the oriental culture this system was very much prevalent and was strictly observed by respectable ladies, both Hindu and Muslim. We have actual experience in our childhood that our mother would not go next door to her house to observe an invitation by walking; she would go in either a carriage or a palanquin carried by four men. This custom was also strictly followed five hundred years ago, and the wife of Advaita Ācārya, being a very respectable lady, observed the customary rules current in that social environment.
 
 ### CC Adi 13.115
-
-> ভক্ষ্য, ভোজ্য, উপহার, সঙ্গে লইল বহু ভার,
-> শচীগৃহে হৈল উপনীত ।
-> দেখিয়া বালক-ঠাম, সাক্ষাৎ গোকুল-কান,
-> বর্ণমাত্র দেখি বিপরীত ॥১১৫॥
 
 > bhakṣya, bhojya, upahāra, saṅge la-ila bahu bhāra,
 > śacī-gṛhe haila upanīta
@@ -24944,11 +19648,6 @@ A *peṭāri* is a kind of big basket that is carried in pairs on the ends of a 
 
 ### CC Adi 13.116
 
-> সর্ব অঙ্গ — সুনির্মাণ, সুবর্ণ-প্রতিমা-ভান,
-> সর্ব অঙ্গ — সুলক্ষণময় ।
-> বালকের দিব্য জ্যোতি, দেখি’ পাইল বহু প্রীতি,
-> বাৎসল্যেতে দ্রবিল হৃদয় ॥১১৬॥
-
 > sarva aṅga—sunirmāṇa, suvarṇa-pratimā-bhāna,
 > sarva aṅga—sulakṣaṇamaya
 > bālakera divya jyoti, dekhi' pāila bahu prīti,
@@ -24959,11 +19658,6 @@ A *peṭāri* is a kind of big basket that is carried in pairs on the ends of a 
 **Seeing the transcendental bodily effulgence of the child, each of His nicely constructed limbs full of auspicious signs and resembling a form of gold, Sītā Ṭhākurāṇī was very much pleased, and because of her maternal affection, she felt as if her heart were melting.**
 
 ### CC Adi 13.117
-
-> দুর্বা, ধান্য, দিল শীর্ষে, কৈল বহু আশীষে,
-> চিরজীবী হও দুই ভাই ।
-> ডাকিনী-শাঁখিনী হৈতে, শঙ্কা উপজিল চিতে,
-> ডরে নাম থুইল ‘নিমাই’ ॥১১৭॥
 
 > durvā, dhānya, dila śīrṣe, kaila bahu āśīṣe,
 > cirajīvī hao dui bhāi
@@ -24978,11 +19672,6 @@ A *peṭāri* is a kind of big basket that is carried in pairs on the ends of a 
 
 ### CC Adi 13.118
 
-> পুত্রমাতা-স্নানদিনে, দিল বস্ত্র বিভূষণে,
-> পুত্র-সহ মিশ্রেরে সম্মানি’ ।
-> শচী-মিশ্রের পূজা লঞা, মনেতে হরিষ হঞা,
-> ঘরে আইলা সীতা ঠাকুরাণী ॥১১৮॥
-
 > putramātā-snānadine, dila vastra vibhūṣaṇe,
 > putra-saha miśrere sammāni'
 > śacī-miśrera pūjā lañā, manete hariṣa hañā,
@@ -24995,11 +19684,6 @@ A *peṭāri* is a kind of big basket that is carried in pairs on the ends of a 
 On the fifth day from the birth of a child, as also on the ninth day, the mother bathes either in the Ganges or in a sacred place. This is called *niṣkrāmaṇa,* or the ceremony of coming out of the maternity home. Nowadays the maternity home is a hospital, but formerly in every respectable house one room was set aside as a maternity home where children would take birth, and on the ninth day after the birth of a child the mother would come into the regular rooms in the ceremony called *niṣkrāmaṇa.* Of the ten purificatory processes, *niṣkrāmaṇa* is one. Formerly, especially in Bengal, the higher castes observed four months after the birth of a child as a quarantine. At the end of the fourth month, the mother first had to see the sun rise. Later the higher castes, namely, the *brāhmaṇas, kṣatriyas* and *vaiśyas,* observed only twenty-one days as a quarantine, whereas the *śūdras* had to observe thirty days. For the sections of society known as *kartābhajā* and *satīmā,* the mother of the child was immediately purified after the quarantine by the throwing of *hari-nuṭa,* small pieces of sweetmeat, in *saṅkīrtana.* Śacīdevī and Jagannātha Miśra, with the newly born child, were honored by Sītā Ṭhākurāṇī. Similarly, while Sītā Ṭhākurāṇī was returning home, she was also honored by Śacīdevī and Jagannātha Miśra. That was the system in respectable families of Bengal.
 
 ### CC Adi 13.119
-
-> ঐছে শচী-জগন্নাথ, পুত্র পাঞা লক্ষ্মীনাথ,
-> পূর্ণ হইল সকল বাঞ্ছিত ।
-> ধন-ধান্যে ভরে ঘর, লোকমান্য কলেবর,
-> দিনে দিনে হয় আনন্দিত ॥১১৯॥
 
 > aiche śacī-jagannātha, putra pāñā lakṣmīnātha,
 > pūrṇa ha-ila sakala vāñchita
@@ -25014,11 +19698,6 @@ Lord Śrī Caitanya Mahāprabhu is the Supreme Personality of Godhead. Therefore
 
 ### CC Adi 13.120
 
-> মিশ্র — বৈষ্ণব, শান্ত, অলম্পট, শুদ্ধ, দান্ত,
-> ধনভোগে নাহি অভিমান ।
-> পুত্রের প্রভাবে যত, ধন আসি’ মিলে, তত,
-> বিষ্ণুপ্রীতে দ্বিজে দেন দান ॥১২০॥
-
 > miśra—vaiṣṇava, śānta, alampaṭa, śuddha, dānta,
 > dhana-bhoge nāhi abhimāna
 > putrera prabhāve yata, dhana āsi' mile, tata,
@@ -25029,11 +19708,6 @@ Lord Śrī Caitanya Mahāprabhu is the Supreme Personality of Godhead. Therefore
 **Jagannātha Miśra was an ideal Vaiṣṇava. He was peaceful, restrained in sense gratification, pure and controlled. Therefore he had no desire to enjoy material opulence. Whatever money came because of the influence of his transcendental son, he gave it in charity to the brāhmaṇas for the satisfaction of Viṣṇu.**
 
 ### CC Adi 13.121
-
-> লগ্ন গণি’ হর্ষমতি, নীলাম্বর চক্রবর্তী,
-> গুপ্তে কিছু কহিল মিশ্রেরে ।
-> মহাপুরুষের চিহ্ন, লগ্নে অঙ্গে ভিন্ন ভিন্ন,
-> দেখি, — এই তারিবে সংসারে ॥১২১॥
 
 > lagna gaṇi' harṣamati, nīlāmbara cakravartī,
 > gupte kichu kahila miśrere
@@ -25046,11 +19720,6 @@ Lord Śrī Caitanya Mahāprabhu is the Supreme Personality of Godhead. Therefore
 
 ### CC Adi 13.122
 
-> ঐছে প্রভু শচী-ঘরে, কৃপায় কৈল অবতারে,
-> যেই ইহা করয়ে শ্রবণ ।
-> গৌরপ্রভু দয়াময়, তাঁরে হয়েন সদয়,
-> সেই পায় তাঁহার চরণ ॥১২২॥
-
 > aiche prabhu śacī-ghare, kṛpāya kaila avatāre,
 > yei ihā karaye śravaṇa
 > gaura-prabhu dayāmaya, tāṅre hayena sadaya,
@@ -25061,11 +19730,6 @@ Lord Śrī Caitanya Mahāprabhu is the Supreme Personality of Godhead. Therefore
 **In this way Lord Caitanya Mahāprabhu, out of His causeless mercy, made His advent in the house of Śacīdevī. Lord Caitanya is very merciful to anyone who hears this narration of His birth, and thus such a person attains the lotus feet of the Lord.**
 
 ### CC Adi 13.123
-
-> পাইয়া মানুষ জন্ম, যে না শুনে গৌরগুণ,
-> হেন জন্ম তার ব্যর্থ হৈল ।
-> পাইয়া অমৃতধুনী, পিয়ে বিষগর্ত-পানি,
-> জন্মিয়া সে কেনে নাহি মৈল ॥১২৩॥
 
 > pāiyā mānuṣa janma, ye nā śune gaura-guṇa,
 > hena janma tāra vyartha haila
@@ -25129,11 +19793,6 @@ Similarly, in the Third Canto, Chapter Twenty-three, verse 56, the *Bhāgavatam*
 
 ### CC Adi 13.124
 
-> শ্রীচৈতন্য-নিত্যানন্দ, আচার্য অদ্বৈতচন্দ্র,
-> স্বরূপ-রূপ-রঘুনাথদাস ।
-> ইঁহা-সবার শ্রীচরণ, শিরে বন্দি নিজধন,
-> জন্মলীলা গাইল কৃষ্ণদাস ॥১২৪॥
-
 > śrī-caitanya-nityānanda, ācārya advaitacandra,
 > svarūpa-rūpa-raghunāthadāsa
 > iṅhā-sabāra śrī-caraṇa, śire vandi nija-dhana,
@@ -25158,9 +19817,6 @@ Sometimes *smārtas* consider Raghunātha dāsa Gosvāmī a *śūdra.* But Kṛ�
 
 ### CC Adi 14.1
 
-> কথঞ্চন স্মৃতে যস্মিন্ দুষ্করং সুকরং ভবেৎ ।
-> বিস্মৃতে বিপরীতং স্যাৎ শ্রীচৈতন্যং নমামি তম্ ॥১॥
-
 > kathañcana smṛte yasmin
 > duṣkaraṁ sukaraṁ bhavet
 > vismṛte viparītaṁ syāt
@@ -25178,9 +19834,6 @@ The author of *Caitanya-caritāmṛta* takes shelter of Lord Caitanya Mahāprabh
 
 ### CC Adi 14.2
 
-> জয় জয় শ্রীচৈতন্য, জয় নিত্যানন্দ ।
-> জয়াদ্বৈতচন্দ্র, জয় গৌরভক্তবৃন্দ ॥২॥
-
 > jaya jaya śrī-caitanya, jaya nityānanda
 > jayādvaitacandra, jaya gaura-bhakta-vṛnda
 
@@ -25189,9 +19842,6 @@ The author of *Caitanya-caritāmṛta* takes shelter of Lord Caitanya Mahāprabh
 **All glories to Lord Caitanya Mahāprabhu, Nityānanda Prabhu, Advaita Prabhu and all the devotees of Lord Caitanya!**
 
 ### CC Adi 14.3
-
-> প্রভুর কহিল এই জন্মলীলা-সূত্র ।
-> যশোদা-নন্দন যৈছে হৈল শচীপুত্র ॥৩॥
 
 > prabhura kahila ei janmalīlā-sūtra
 > yaśodā-nandana yaiche haila śacī-putra
@@ -25209,9 +19859,6 @@ The author of *Caitanya-caritāmṛta* takes shelter of Lord Caitanya Mahāprabh
 
 ### CC Adi 14.4
 
-> সংক্ষেপে কহিল জন্মলীলা-অনুক্রম ।
-> এবে কহি বাল্যলীলা-সূত্রের গণন ॥৪॥
-
 > saṅkṣepe kahila janmalīlā-anukrama
 > ebe kahi bālyalīlā-sūtrera gaṇana
 
@@ -25220,9 +19867,6 @@ The author of *Caitanya-caritāmṛta* takes shelter of Lord Caitanya Mahāprabh
 **I have already briefly spoken about the pastimes of His birth in chronological order. Now I shall give a synopsis of His childhood pastimes.**
 
 ### CC Adi 14.5
-
-> বন্দে চৈতন্যকৃষ্ণস্য বাল্যলীলাং মনোহরাম্ ।
-> লৌকিকীমপি তামীশ-চেষ্টয়া বলিতান্তরাম্ ॥৫॥
 
 > vande caitanya-kṛṣṇasya
 > bālya-līlāṁ mano-harām
@@ -25244,9 +19888,6 @@ In the *Bhagavad-gītā* [[bg/9/11|(Bg. 9.11)]] this statement is confirmed as f
 
 ### CC Adi 14.6
 
-> বাল্যলীলায় আগে প্রভুর উত্তান শয়ন ।
-> পিতা-মাতায় দেখাইল চিহ্ন চরণ ॥৬॥
-
 > bālya-līlāya āge prabhura uttāna śayana
 > pitā-mātāya dekhāila cihna caraṇa
 
@@ -25258,9 +19899,6 @@ The word *uttāna* is also used to mean "lying down on the bed face upwards" or 
 
 ### CC Adi 14.7
 
-> গৃহে দুই জন দেখি লঘুপদ-চিহ্ন ।
-> তাহে শোভে ধ্বজ, বজ্র, শঙ্খ, চক্র, মীন ॥৭॥
-
 > gṛhe dui jana dekhi laghupada-cihna
 > tāhe śobhe dhvaja, vajra, śaṅkha, cakra, mīna
 
@@ -25270,9 +19908,6 @@ The word *uttāna* is also used to mean "lying down on the bed face upwards" or 
 
 ### CC Adi 14.8
 
-> দেখিয়া দোঁহার চিত্তে জন্মিল বিস্ময় ।
-> কার পদচিহ্ন ঘরে, না পায় নিশ্চয় ॥৮॥
-
 > dekhiyā doṅhāra citte janmila vismaya
 > kāra pada-cihna ghare, nā pāya niścaya
 
@@ -25281,9 +19916,6 @@ The word *uttāna* is also used to mean "lying down on the bed face upwards" or 
 **Seeing all these marks, neither His father nor His mother could understand whose footprints they were. Thus struck with wonder, they could not understand how those marks could be possible in their home.**
 
 ### CC Adi 14.9
-
-> মিশ্র কহে, — বালগোপাল আছে শিলা-সঙ্গে ।
-> তেঁহো মূর্তি হঞা ঘরে খেলে, জানি, রঙ্গে ॥৯॥
 
 > miśra kahe,—bālagopāla āche śilā-saṅge
 > teṅho mūrti hañā ghare khele, jāni, raṅge
@@ -25296,9 +19928,6 @@ When the form of the Lord is carved from wood, stone or any other element, it is
 
 ### CC Adi 14.10
 
-> সেই ক্ষণে জাগি’ নিমাই করয়ে ক্রন্দন ।
-> অঙ্কে লঞা শচী তাঁরে পিয়াইল স্তন ॥১০॥
-
 > sei kṣaṇe jāgi' nimāi karaye krandana
 > aṅke lañā śacī tāṅre piyāila stana
 
@@ -25307,9 +19936,6 @@ When the form of the Lord is carved from wood, stone or any other element, it is
 **While mother Śacī and Jagannātha Miśra were talking, the child Nimāi woke up and began to cry, and mother Śacī took Him on her lap and allowed Him to suck her breast.**
 
 ### CC Adi 14.11
-
-> স্তন পিয়াইতে পুত্রের চরণ দেখিল ।
-> সেই চিহ্ন পায়ে দেখি’ মিশ্রে বোলাইল ॥১১॥
 
 > stana piyāite putrera caraṇa dekhila
 > sei cihna pāye dekhi' miśre bolāila
@@ -25320,9 +19946,6 @@ When the form of the Lord is carved from wood, stone or any other element, it is
 
 ### CC Adi 14.12
 
-> দেখিয়া মিশ্রের হইল আনন্দিত মতি ।
-> গুপ্তে বোলাইল নীলাম্বর চক্রবর্তী ॥১২॥
-
 > dekhiyā miśrera ha-ila ānandita mati
 > gupte bolāila nīlāmbara cakravartī
 
@@ -25331,9 +19954,6 @@ When the form of the Lord is carved from wood, stone or any other element, it is
 **When Jagannātha Miśra saw the wonderful marks on the sole of his son, he became very joyful and privately called for Nīlāmbara Cakravartī.**
 
 ### CC Adi 14.13
-
-> চিহ্ন দেখি’ চক্রবর্তী বলেন হাসিয়া ।
-> লগ্ন গণি’ পূর্বে আমি রাখিয়াছি লিখিয়া ॥১৩॥
 
 > cihna dekhi' cakravartī balena hāsiyā
 > lagna gaṇi' pūrve āmi rākhiyāchi likhiyā
@@ -25344,9 +19964,6 @@ When the form of the Lord is carved from wood, stone or any other element, it is
 
 ### CC Adi 14.14
 
-> বত্রিশ লক্ষণ — মহাপুরুষ-ভূষণ ।
-> এই শিশু অঙ্গে দেখি সে সব লক্ষণ ॥১৪॥
-
 > batriśa lakṣaṇa—mahāpuruṣa-bhūṣaṇa
 > ei śiśu aṅge dekhi se saba lakṣaṇa
 
@@ -25355,9 +19972,6 @@ When the form of the Lord is carved from wood, stone or any other element, it is
 **"There are thirty-two bodily marks that symptomize a great personality, and I see all those marks on the body of this child.**
 
 ### CC Adi 14.15
-
-> পঞ্চদীর্ঘঃ পঞ্চসূক্ষ্মঃ সপ্তরক্তঃ ষড়ুন্নতঃ ।
-> ত্রিহ্রস্ব-পৃথু-গম্ভীরো দ্বাত্রিংশল্লক্ষণো মহান্ ॥১৫॥
 
 > pañca-dīrghaḥ pañca-sūkṣmaḥ
 > sapta-raktaḥ ṣaḍ-unnataḥ
@@ -25372,9 +19986,6 @@ The five large parts are the nose, arms, chin, eyes and knees. The five fine par
 
 ### CC Adi 14.16
 
-> নারায়ণের চিহ্নযুক্ত শ্রীহস্ত-চরণ ।
-> এই শিশু সর্ব লোকে করিবে তারণ ॥১৬॥
-
 > nārāyaṇera cihna-yukta śrī-hasta caraṇa
 > ei śiśu sarva loke karibe tāraṇa
 
@@ -25383,9 +19994,6 @@ The five large parts are the nose, arms, chin, eyes and knees. The five fine par
 **"This baby has all the symptoms of Lord Nārāyaṇa on His palms and soles. He will be able to deliver all the three worlds.**
 
 ### CC Adi 14.17
-
-> এই ত’ করিবে বৈষ্ণব-ধর্মের প্রচার ।
-> ইহা হৈতে হবে দুই কুলের নিস্তার ॥১৭॥
 
 > ei ta' karibe vaiṣṇava-dharmera pracāra
 > ihā haite habe dui kulera nistāra
@@ -25397,9 +20005,6 @@ The five large parts are the nose, arms, chin, eyes and knees. The five fine par
 Only Nārāyaṇa Himself or His bona fide representative one cannot preach the cult of Vaiṣṇavism, or devotional service. When a Vaiṣṇava is born, he delivers both his maternal and paternal families simultaneously.
 
 ### CC Adi 14.18
-
-> মহোৎসব কর, সব বোলাহ ব্রাহ্মণ ।
-> আজি দিন ভাল, — করিব নামকরণ ॥১৮॥
 
 > mahotsava kara, saba bolāha brāhmaṇa
 > āji dina bhāla,—kariba nāma-karaṇa
@@ -25414,9 +20019,6 @@ When Nīlāmbara Cakravartī, Śacīmātā and Jagannātha Miśra understood fro
 
 ### CC Adi 14.19
 
-> সর্বলোকের করিবে ইহঁ ধারণ, পোষণ ।
-> ‘বিশ্বম্ভর’ নাম ইহার, — এই ত’ কারণ ॥১৯॥
-
 > sarva-lokera karibe ihaṅ dhāraṇa, poṣaṇa
 > 'viśvambhara' nāma ihāra,—ei ta' kāraṇa
 
@@ -25427,9 +20029,6 @@ When Nīlāmbara Cakravartī, Śacīmātā and Jagannātha Miśra understood fro
 The *Caitanya-bhāgavata* also confirms that Śrī Caitanya Mahāprabhu, by His birth, has made the whole world peaceful, as in the past Nārāyaṇa protected this earth in His incarnation as Varāha. Because of His protecting and maintaining this world in the present Kali-yuga, Lord Caitanya Mahāprabhu is Viśvambhara, which refers to one who feeds the entire world. The movement inaugurated by Śrī Caitanya Mahāprabhu when He was present five hundred years ago is again being propagated all over the world, and factually we are seeing its practical results. People are being saved, protected and maintained by this Hare Kṛṣṇa movement. Thousands of followers, especially Western youths, are taking part in this Hare Kṛṣṇa movement, and how safe and happy they feel can be understood from the expressions of gratitude in their hundreds and thousands of letters. The name Viśvambhara is also mentioned in the *Atharva-veda-saṁhitā* (3.3.16.5): *viśvambhara viśvena mā bharasā pāhi svāhā.*
 
 ### CC Adi 14.20
-
-> শুনি’ শচী-মিশ্রের মনে আনন্দ বাড়িল ।
-> ব্রাহ্মণ-ব্রাহ্মণী আনি’ মহোৎসব কৈল ॥২০॥
 
 > śuni' śacī-miśrera mane ānanda bāḍila
 > brāhmaṇa-brāhmaṇī āni' mahotsava kaila
@@ -25442,9 +20041,6 @@ It is the Vedic system to observe all kinds of festivals, including birthday fes
 
 ### CC Adi 14.21
 
-> তবে কত দিনে প্রভুর জানু-চংক্রমণ ।
-> নানা চমৎকার তথা করাইল দর্শন ॥২১॥
-
 > tabe kata dine prabhura jānu-caṅkramaṇa
 > nānā camatkāra tathā karāila darśana
 
@@ -25455,9 +20051,6 @@ It is the Vedic system to observe all kinds of festivals, including birthday fes
 The *Caitanya-bhāgavata* describes that one day while the Lord was crawling upon His knees, the bells on His waist ringing very sweetly, a snake came out to crawl in the yard of the Lord, who captured the snake like a curious child. Immediately the snake coiled over Him. The Lord as a child then rested on the snake, and after some time the snake went away, leaving aside the Lord.
 
 ### CC Adi 14.22
-
-> ক্রন্দনের ছলে বলাইল হরিনাম ।
-> নারী সব ‘হরি’ বলে, — হাসে গৌরধাম ॥২২॥
 
 > krandanera chale balāila hari-nāma
 > nārī saba 'hari' bale,—hāse gaura-dhāma
@@ -25470,9 +20063,6 @@ In the *Caitanya-bhāgavata* this pastime is described as follows: "The Lord, wi
 
 ### CC Adi 14.23
 
-> তবে কত দিনে কৈল পদ-চংক্রমণ ।
-> শিশুগণে মিলি’ কৈল বিবিধ খেলন ॥২৩॥
-
 > tabe kata dine kaila pada-caṅkramaṇa
 > śiśu-gaṇe mili' kaila vividha khelana
 
@@ -25481,9 +20071,6 @@ In the *Caitanya-bhāgavata* this pastime is described as follows: "The Lord, wi
 **After some days the Lord began to move His legs and walk. He mixed with other children and exhibited various sports.**
 
 ### CC Adi 14.24
-
-> একদিন শচী খই-সন্দেশ আনিয়া ।
-> বাটা ভরি’ দিয়া বৈল, — খাও ত’ বসিয়া ॥২৪॥
 
 > ekadina śacī kha-i-sandeśa āniyā
 > bāṭā bhari' diyā baila,—khāo ta' basiyā
@@ -25494,9 +20081,6 @@ In the *Caitanya-bhāgavata* this pastime is described as follows: "The Lord, wi
 
 ### CC Adi 14.25
 
-> এত বলি’ গেলা শচী গৃহে কর্ম করিতে ।
-> লুকাঞা লাগিলা শিশু মৃত্তিকা খাইতে ॥২৫॥
-
 > eta bali' gelā śacī gṛhe karma karite
 > lukāñā lāgilā śiśu mṛttikā khāite
 
@@ -25505,9 +20089,6 @@ In the *Caitanya-bhāgavata* this pastime is described as follows: "The Lord, wi
 **But when she returned to her household duties, the child hid from His mother, began to eat dirt.**
 
 ### CC Adi 14.26
-
-> দেখি’ শচী ধাঞা আইলা করি’ ‘হায়, হায়’ ।
-> মাটি কাড়ি’ লঞা কহে ‘মাটি কেনে খায়’ ॥২৬॥
 
 > dekhi' śacī dhāñā āilā kari' 'hāya, hāya'
 > māti kāḍi' lañā kahe 'māṭi kene khāya'
@@ -25518,9 +20099,6 @@ In the *Caitanya-bhāgavata* this pastime is described as follows: "The Lord, wi
 
 ### CC Adi 14.27
 
-> কান্দিয়া বলেন শিশু, — কেনে কর রোষ ।
-> তুমি মাটি খাইতে দিলে, মোর কিবা দোষ ॥২৭॥
-
 > kāndiyā balena śiśu,—kene kara roṣa
 > tumi māṭi khāite dile, mora kibā doṣa
 
@@ -25530,9 +20108,6 @@ In the *Caitanya-bhāgavata* this pastime is described as follows: "The Lord, wi
 
 ### CC Adi 14.28
 
-> খই-সন্দেশ-অন্ন, যতেক — মাটির বিকার ।
-> এহো মাটি, সেহ মাটি, কি ভেদ-বিচার ॥২৮॥
-
 > kha-i-sandeśa-anna yateka—māṭira vikāra
 > eho māṭi, seha māṭi, ki bheda-vicāra
 
@@ -25541,9 +20116,6 @@ In the *Caitanya-bhāgavata* this pastime is described as follows: "The Lord, wi
 **"Fused rice, sweetmeats or anything eatable is all other eatables are but transformations of dirt. This is dirt, that is dirt. Please consider. What is the difference between them?**
 
 ### CC Adi 14.29
-
-> মাটি — দেহ, মাটি — ভক্ষ্য, দেখহ বিচারি’ ।
-> অবিচারে দেহ দোষ, কি বলিতে পারি ॥২৯॥
 
 > māṭi—deha, māṭi—bhakṣya, dekhaha vicāri'
 > avicāre deha doṣa, ki balite pāri
@@ -25569,9 +20141,6 @@ Lord Caitanya Mahāprabhu, as the supreme spiritual master, instructed His mothe
 
 ### CC Adi 14.30
 
-> অন্তরে বিস্মিত শচী বলিল তাহারে ।
-> “মাটি খাইতে জ্ঞানযোগ কে শিখাল তোরে ॥৩০॥
-
 > antare vismita śacī balila tāhāre
 > "māṭi khāite jñāna-yoga ke śikhāla tore
 
@@ -25583,9 +20152,6 @@ In the philosophical discourse between the mother and the son, when the son said
 
 ### CC Adi 14.31
 
-> মাটির বিকার অন্ন খাইলে দেহ-পুষ্টি হয় ।
-> মাটি খাইলে রোগ হয়, দেহ যায় ক্ষয় ॥৩১॥
-
 > māṭira vikāra anna khāile deha-puṣṭi haya
 > māṭi khāile roga haya, deha yāya kṣaya
 
@@ -25594,9 +20160,6 @@ In the philosophical discourse between the mother and the son, when the son said
 **Replying to the Māyāvāda idea of the child philosopher, mother Śacī said, "My dear boy, if we eat earth transformed into grains, our body is nourished, and it becomes strong. But if we eat dirt in its crude state, the body becomes diseased instead of nourished, and thus it is destroyed.**
 
 ### CC Adi 14.32
-
-> মাটির বিকার ঘটে পানি ভরি’ আনি ।
-> মাটি-পিণ্ডে ধরি যবে, শোষি’ যায় পানি ।।” ॥ ৩২ ॥
 
 > māṭira vikāra ghaṭe pāni bhari' āni
 > māṭi-piṇḍe dhari yabe, śoṣi' yāya pāni"
@@ -25609,9 +20172,6 @@ This simple philosophy propounded by Śacīmātā, even though she is a woman, c
 
 ### CC Adi 14.33
 
-> আত্ম লুকাইতে প্রভু বলিলা তাঁহারে ।
-> “আগে কেন ইহা, মাতা, না শিখালে মোরে ॥৩৩॥
-
 > ātma lukāite prabhu balilā tāṅhāre
 > "āge kena ihā, mātā, nā śikhāle more
 
@@ -25623,9 +20183,6 @@ If one is taught from the beginning of life the Vaiṣṇava philosophy of duali
 
 ### CC Adi 14.34
 
-> এবে সে জানিলাঙ, আর মাটি না খাইব ।
-> ক্ষুধা লাগে যবে, তবে তোমার স্তন পিব ।।” ॥ ৩৪ ॥
-
 > ebe se jānilāṅ, āra māṭi nā khāiba
 > kṣudhā lāge yabe, tabe tomāra stana piba"
 
@@ -25634,9 +20191,6 @@ If one is taught from the beginning of life the Vaiṣṇava philosophy of duali
 **"Now that I can understand this philosophy, no more shall I eat dirt. Whenever I am hungry I shall suck your breast and drink your breast's milk."**
 
 ### CC Adi 14.35
-
-> এত বলি’ জননীর কোলেতে চড়িয়া ।
-> স্তন পান করে প্রভু ঈষৎ হাসিয়া ॥৩৫॥
 
 > eta bali' jananīra kolete caḍiyā
 > stana pāna kare prabhu īṣat hāsiyā
@@ -25647,9 +20201,6 @@ If one is taught from the beginning of life the Vaiṣṇava philosophy of duali
 
 ### CC Adi 14.36
 
-> এইমতে নানা-ছলে ঐশ্বর্য দেখায় ।
-> বাল্যভাব প্রকটিয়া পশ্চাৎ লুকায় ॥৩৬॥
-
 > eimate nānā-chale aiśvarya dekhāya
 > bālya-bhāva prakaṭiyā paścāt lukāya
 
@@ -25658,9 +20209,6 @@ If one is taught from the beginning of life the Vaiṣṇava philosophy of duali
 **Thus under various excuses the Lord exhibited His opulences as much as possible in His childhood, and later, after exhibiting such opulences, He hid Himself.**
 
 ### CC Adi 14.37
-
-> অতিথি-বিপ্রের অন্ন খাইল তিনবার ।
-> পাছে গুপ্তে সেই বিপ্রে করিল নিস্তার ॥৩৭॥
 
 > atithi-viprera anna khāila tina-bāra
 > pāche gupte sei vipre karila nistāra
@@ -25673,9 +20221,6 @@ The story of the deliverance of this *brāhmaṇa* is as follows. One *brāhma�
 
 ### CC Adi 14.38
 
-> চোরে লঞা গেল প্রভুকে বাহিরে পাইয়া ।
-> তার স্কন্ধে চড়ি’ আইলা তারে ভুলাইয়া ॥৩৮॥
-
 > core lañā gela prabhuke bāhire pāiyā
 > tāra skandhe caḍi' āilā tāre bhulāiyā
 
@@ -25686,9 +20231,6 @@ The story of the deliverance of this *brāhmaṇa* is as follows. One *brāhma�
 In His childhood the Lord was profusely decorated with gold ornaments. Once upon a time He was playing outside His house, and two thieves passing on the street saw the opportunity to rob the Lord and therefore took Him on their shoulders, pleasing Him by offering Him some sweetmeats. The thieves thought they would carry the child to the forest and then kill Him and take away the ornaments. The Lord, however, expanded His illusory energy upon the thieves, so much so that instead of carrying Him to the forest they came right back in front of the house of the Lord. When they came before His house they became afraid because everyone from the house of Jagannātha Miśra and all the inhabitants of that quarter were busy searching for the child. Therefore the thieves, thinking it dangerous to remain, went away and left Him. The child was brought within the house of mother Śacī, who was in great anxiety, and she became satisfied. This incident is also very elaborately explained in the *Ādi-līlā* of *Caitanya-bhāgavata,* Third Chapter.
 
 ### CC Adi 14.39
-
-> ব্যাধি-ছলে জগদীশ-হিরণ্য-সদনে ।
-> বিষ্ণু-নৈবেদ্য খাইল একাদশী-দিনে ॥৩৯॥
 
 > vyādhi-chale jagadīśa-hiraṇya-sadane
 > viṣṇu-naivedya khāila ekādaśī-dine
@@ -25701,9 +20243,6 @@ The *Caitanya-bhāgavata, Ādi-līlā,* Chapter Four, fully describes the Lord's
 
 ### CC Adi 14.40
 
-> শিশু সব লয়ে পাড়া-পড়সীর ঘরে ।
-> চুরি করি’ দ্রব্য খায় মারে বালকেরে ॥৪০॥
-
 > śiśu saba laye pāḍā-paḍasīra ghare
 > curi kari' dravya khāya māre bālakere
 
@@ -25713,9 +20252,6 @@ The *Caitanya-bhāgavata, Ādi-līlā,* Chapter Four, fully describes the Lord's
 
 ### CC Adi 14.41
 
-> শিশু সব শচী-স্থানে কৈল নিবেদন ।
-> শুনি’ শচী পুত্রে কিছু দিলা ওলাহন ॥৪১॥
-
 > śiśu saba śacī-sthāne kaila nivedana
 > śuni' śacī putre kichu dilā olāhana
 
@@ -25724,9 +20260,6 @@ The *Caitanya-bhāgavata, Ādi-līlā,* Chapter Four, fully describes the Lord's
 **All the children lodged complaints with Śacīmātā about the Lord's fighting with them and stealing from the neighbors' houses. Therefore sometimes she used to chastise or rebuke her son.**
 
 ### CC Adi 14.42
-
-> “কেনে চুরি কর, কেনে মারহ শিশুরে ।
-> কেনে পর-ঘরে যাহ, কিবা নাহি ঘরে ।।” ॥ ৪২ ॥
 
 > "kene curi kara, kene māraha śiśure
 > kene para-ghare yāha, kibā nāhi ghare"
@@ -25739,9 +20272,6 @@ According to the *Vedānta-sūtra* (*janmādy asya yataḥ*), since creation, ma
 
 ### CC Adi 14.43
 
-> শুনি’ ক্রুদ্ধ হঞা প্রভু ঘর-ভিতর যাঞা ।
-> ঘরে যত ভাণ্ড ছিল, ফেলিল ভাঙ্গিয়া ॥৪৩॥
-
 > śuni' kruddha hañā prabhu ghara-bhitara yāñā
 > ghare yata bhāṇḍa chila, phelila bhāṅgiyā
 
@@ -25750,9 +20280,6 @@ According to the *Vedānta-sūtra* (*janmādy asya yataḥ*), since creation, ma
 **Thus rebuked by His mother, he Lord would go in anger to a room and break all the pots within it.**
 
 ### CC Adi 14.44
-
-> তবে শচী কোলে করি’ করাইল সন্তোষ ।
-> লজ্জিত হইলা প্রভু জানি’ নিজ-দোষ ॥৪৪॥
 
 > tabe śacī kole kari' karāila santoṣa
 > lajjita ha-ilā prabhu jāni' nija-doṣa
@@ -25765,9 +20292,6 @@ There is a nice description of the faults of Śrī Caitanya Mahāprabhu in His c
 
 ### CC Adi 14.45
 
-> কভু মৃদুহস্তে কৈল মাতাকে তাড়ন ।
-> মাতাকে মূর্চ্ছিতা দেখি’ করয়ে ক্রন্দন ॥৪৫॥
-
 > kabhu mṛdu-haste kaila mātāke tāḍana
 > mātāke mūrcchitā dekhi' karaye krandana
 
@@ -25776,9 +20300,6 @@ There is a nice description of the faults of Śrī Caitanya Mahāprabhu in His c
 **Once the child, Caitanya Mahāprabhu, chastised His mother with His soft hand, and His mother pretended to faint. Seeing this, the Lord began to cry.**
 
 ### CC Adi 14.46
-
-> নারীগণ কহে, — “নারিকেল দেহ আনি’ ।
-> তবে সুস্থ হইবেন তোমার জননী ।।” ॥ ৪৬ ॥
 
 > nārīgaṇa kahe,—"nārikela deha āni'
 > tabe sustha ha-ibena tomāra jananī"
@@ -25789,9 +20310,6 @@ There is a nice description of the faults of Śrī Caitanya Mahāprabhu in His c
 
 ### CC Adi 14.47
 
-> বাহিরে যাঞা আনিলেন দুই নারিকেল ।
-> দেখিয়া অপূর্ব হৈল বিস্মিত সকল ॥৪৭॥
-
 > bāhire yāñā ānilena dui nārikela
 > dekhiyā apūrva haila vismita sakala
 
@@ -25800,9 +20318,6 @@ There is a nice description of the faults of Śrī Caitanya Mahāprabhu in His c
 **He then immediately went outside the house and brought two coconuts. All the ladies were astonished to see such wonderful activities.**
 
 ### CC Adi 14.48
-
-> কভু শিশু-সঙ্গে স্নান করিল গঙ্গাতে ।
-> কন্যাগণ আইলা তাহাঁ দেবতা পূজিতে ॥৪৮॥
 
 > kabhu śiśu-saṅge snāna karila gaṅgāte
 > kanyāgaṇa āilā tāhāṅ devatā pūjite
@@ -25815,9 +20330,6 @@ According to the Vedic system, when small girls ten or twelve years old would go
 
 ### CC Adi 14.49
 
-> গঙ্গাস্নান করি’ পূজা করিতে লাগিলা ।
-> কন্যাগণ-মধ্যে প্রভু আসিয়া বসিলা ॥৪৯॥
-
 > gaṅgā-snāna kari' pūjā karite lāgilā
 > kanyāgaṇa-madhye prabhu āsiyā basilā
 
@@ -25826,9 +20338,6 @@ According to the Vedic system, when small girls ten or twelve years old would go
 **When the girls engaged in worshiping the different demigods after bathing in the Ganges, the young Lord would come there and sit down among them.**
 
 ### CC Adi 14.50
-
-> কন্যারে কহে, — আমা পূজ, আমি দিব বর ।
-> গঙ্গা-দুর্গা — দাসী মোর, মহেশ-কিঙ্কর ॥৫০॥
 
 > kanyāre kahe,—āmā pūja, āmi diba vara
 > gaṅgā-durgā—dāsī mora, maheśa—kiṅkara
@@ -25864,9 +20373,6 @@ Our position of not allowing worship of the many hundreds of demigods is confirm
 
 ### CC Adi 14.51
 
-> আপনি চন্দন পরি’ পরেন ফুলমালা ।
-> নৈবেদ্য কাড়িয়া খা’ন — সন্দেশ, চাল, কলা ॥৫১॥
-
 > āpani candana pari' parena phula-mālā
 > naivedya kāḍiyā khā'na—sandeśa, cāla, kalā
 
@@ -25885,9 +20391,6 @@ According to the system of worship, when something is offered to deities outside
 
 ### CC Adi 14.52
 
-> ক্রোধে কন্যাগণ কহে — শুন, হে নিমাঞি ।
-> গ্রাম-সম্বন্ধে হও তুমি আমা সবার ভাই ॥৫২॥
-
 > krodhe kanyāgaṇa kahe—śuna, he nimāñi
 > grāma-sambandhe hao tumi āmā sabāra bhāi
 
@@ -25896,9 +20399,6 @@ According to the system of worship, when something is offered to deities outside
 **All the girls became very angry at the Lord for this behavior. "Dear Nimāi," they told Him, "You are just like our brother in our village relationship.**
 
 ### CC Adi 14.53
-
-> আমা সবাকার পক্ষে ইহা করিতে না যুয়ায় ।
-> না লহ দেবতা সজ্জ, না কর অন্যায় ॥৫৩॥
 
 > āmā sabākāra pakṣe ihā karite nā yuyāya
 > nā laha devatā sajja, nā kara anyāya
@@ -25909,9 +20409,6 @@ According to the system of worship, when something is offered to deities outside
 
 ### CC Adi 14.54
 
-> প্রভু কহে, — “তোমা সবাকে দিল এই বর ।
-> তোমা সবার ভর্তা হবে পরম সুন্দর ॥৫৪॥
-
 > prabhu kahe,—"tomā sabāke dila ei vara
 > tomā sabāra bhartā habe parama sundara
 
@@ -25920,9 +20417,6 @@ According to the system of worship, when something is offered to deities outside
 **The Lord replied, "My dear sisters, I give you the benediction that your husbands will be very handsome.**
 
 ### CC Adi 14.55
-
-> পণ্ডিত, বিদগ্ধ, যুবা, ধনধান্যবান্ ।
-> সাত সাত পুত্র হবে — চিরায়ু, মতিমান্ ।।” ॥ ৫৫ ॥
 
 > paṇḍita, vidagdha, yuvā, dhana-dhānyavān
 > sāta sāta putra habe—cirāyu, matimān"
@@ -25937,9 +20431,6 @@ In exchange for the paraphernalia of worship He usurped for Himself, Caitanya Ma
 
 ### CC Adi 14.56
 
-> বর শুনি’ কন্যাগণের অন্তরে সন্তোষ ।
-> বাহিরে ভর্ৎসন করে করি’ মিথ্যা রোষ ॥৫৬॥
-
 > vara śuni' kanyā-gaṇera antare santoṣa
 > bāhire bhartsana kare kari' mithyā roṣa
 
@@ -25951,9 +20442,6 @@ This double-dealing is natural for girls. When they are satisfied within, they e
 
 ### CC Adi 14.57
 
-> কোন কন্যা পলাইল নৈবেদ্য লইয়া ।
-> তারে ডাকি’ কহে প্রভু সক্রোধ হইয়া ॥৫৭॥
-
 > kona kanyā palāila naivedya la-iyā
 > tāre ḍāki' kahe prabhu sakrodha ha-iyā
 
@@ -25962,9 +20450,6 @@ This double-dealing is natural for girls. When they are satisfied within, they e
 **When some of the girls fled, the Lord called them in anger and advised them as follows:**
 
 ### CC Adi 14.58
-
-> যদি নৈবেদ্য না দেহ হইয়া কৃপণী ।
-> বুড়া ভর্তা হবে, আর চারি চারি সতিনী ॥৫৮॥
 
 > yadi naivedya nā deha ha-iyā kṛpaṇī
 > buḍā bhartā habe, āra cāri cāri satinī
@@ -25979,9 +20464,6 @@ The social structure allowing a man to marry more than one wife can be supported
 
 ### CC Adi 14.59
 
-> ইহা শুনি’ তা-সবার মনে হইল ভয় ।
-> কোন কিছু জানে, কিবা দেবাবিষ্ট হয় ॥৫৯॥
-
 > ihā śuni' tā-sabāra mane ha-ila bhaya
 > kona kichu jāne, kibā devāviṣṭa haya
 
@@ -25990,9 +20472,6 @@ The social structure allowing a man to marry more than one wife can be supported
 **Hearing this supposed curse by Lord Caitanya, the girls, considering that He might know something uncommon or be empowered by demigods, were afraid that His curse might be effective.**
 
 ### CC Adi 14.60
-
-> আনিয়া নৈবেদ্য তারা সম্মুখে ধরিল ।
-> খাইয়া নৈবেদ্য তারে ইষ্টবর দিল ॥৬০॥
 
 > āniyā naivedya tārā sammukhe dharila
 > khāiyā naivedya tāre iṣṭa-vara dila
@@ -26003,9 +20482,6 @@ The social structure allowing a man to marry more than one wife can be supported
 
 ### CC Adi 14.61
 
-> এই মত চাপল্য সব লোকেরে দেখায় ।
-> দুঃখ কারো মনে নহে, সবে সুখ পায় ॥৬১॥
-
 > ei mata cāpalya saba lokere dekhāya
 > duḥkha kāro mane nahe, sabe sukha pāya
 
@@ -26014,9 +20490,6 @@ The social structure allowing a man to marry more than one wife can be supported
 **When this cunning behavior of the Lord with the girls became known to the people in general, it did not create misunderstandings among them. Rather, they enjoyed happiness in these dealings.**
 
 ### CC Adi 14.62
-
-> একদিন বল্লভাচার্য-কন্যা ‘লক্ষ্মী’ নাম ।
-> দেবতা পূজিতে আইল করি গঙ্গাস্নান ॥৬২॥
 
 > eka-dina vallabhācārya-kanyā 'lakṣmī' nāma
 > devatā pūjite āila kari gaṅgā-snāna
@@ -26029,9 +20502,6 @@ According to the *Gaura-gaṇoddeśa-dīpikā,* verse 45, Lakṣmī was formerly
 
 ### CC Adi 14.63
 
-> তাঁরে দেখি’ প্রভুর হইল সাভিলাষ মন ।
-> লক্ষ্মী চিত্তে প্রীত পাইল প্রভুর দর্শন ॥৬৩॥
-
 > tāṅre dekhi' prabhura ha-ila sābhilāṣa mana
 > lakṣmī citte prīta pāila prabhura darśana
 
@@ -26040,9 +20510,6 @@ According to the *Gaura-gaṇoddeśa-dīpikā,* verse 45, Lakṣmī was formerly
 **Seeing Lakṣmīdevī, the Lord became attached to her, and Lakṣmī, upon seeing the Lord, felt great satisfaction within her mind.**
 
 ### CC Adi 14.64
-
-> সাহজিক প্রীতি দুঁহার করিল উদয় ।
-> বাল্যভাবাচ্ছন্ন তভু হইল নিশ্চয় ॥৬৪॥
 
 > sāhajika prīti duṅhāra karila udaya
 > bālya-bhāvācchanna tabhu ha-ila niścaya
@@ -26055,9 +20522,6 @@ Lord Caitanya Mahāprabhu and Lakṣmīdevī are eternal husband and wife. There
 
 ### CC Adi 14.65
 
-> দুঁহা দেখি’ দুঁহার চিত্তে হইল উল্লাস ।
-> দেবপূজা ছলে কৈল দুঁহে পরকাশ ॥৬৫॥
-
 > duṅhā dekhi' duṅhāra citte ha-ila ullāsa
 > deva-pūjā chale kaila duṅhe parakāśa
 
@@ -26066,9 +20530,6 @@ Lord Caitanya Mahāprabhu and Lakṣmīdevī are eternal husband and wife. There
 **They both enjoyed natural pleasure in seeing one another, and under the pretext of demigod worship they manifested their feelings.**
 
 ### CC Adi 14.66
-
-> প্রভু কহে, — ‘আমা’ পূজ, আমি মহেশ্বর ।
-> আমারে পূজিলে পাবে অভীপ্সিত বর ।।’ ॥ ৬৬ ॥
 
 > prabhu kahe, 'āmā' pūja, āmi maheśvara
 > āmāre pūjile pābe abhīpsita vara'
@@ -26088,9 +20549,6 @@ This is the same philosophy declared by Lord Kṛṣṇa Himself:
 
 ### CC Adi 14.67
 
-> লক্ষ্মী তাঁর অঙ্গে দিল পুষ্প-চন্দন ।
-> মল্লিকার মালা দিয়া করিল বন্দন ॥৬৭॥
-
 > lakṣmī tāṅra aṅge dila puṣpa-candana
 > mallikāra mālā diyā karila vandana
 
@@ -26099,9 +20557,6 @@ This is the same philosophy declared by Lord Kṛṣṇa Himself:
 **On hearing the order of the Supreme Lord, Śrī Caitanya Mahāprabhu, Lakṣmī immediately worshiped Him, offering sandalwood pulp and flowers for His body, garlanding Him with mallikā flowers, and offering prayers.**
 
 ### CC Adi 14.68
-
-> প্রভু তাঁর পূজা পাঞা হাসিতে লাগিলা ।
-> শ্লোক পড়ি’ তাঁর ভাব অঙ্গীকার কৈলা ॥৬৮॥
 
 > prabhu tāṅra pūjā pāñā hāsite lāgilā
 > śloka paḍi' tāṅra bhāva aṅgīkāra kailā
@@ -26113,9 +20568,6 @@ This is the same philosophy declared by Lord Kṛṣṇa Himself:
 The verse quoted in this connection is the twenty-fifth verse of the Twenty-second Chapter, Tenth Canto, of *Śrīmad-Bhāgavatam.* The *gopīs* worshiped the goddess Durgā, or Kātyāyanī, but their inner desire was to get Lord Kṛṣṇa as their husband. Kṛṣṇa, as Paramātmā, could realize the ardent desire of the *gopīs,* and therefore He enjoyed the pastime of *vastra-haraṇa.* When the *gopīs* went to take bath in the river Yamunā, they left their garments on the land and dipped into the water completely naked. Taking this opportunity, Kṛṣṇa stole all their garments and sat down in the top of a tree with them, desiring to see the girls naked just to become their husband. The *gopīs* desired to have Kṛṣṇa as their husband, and since it is only before her husband that a woman can be naked, to fulfill their desire Lord Kṛṣṇa accepted their prayers by this pastime of stealing their garments. When the *gopīs* received their garments back from Kṛṣṇa, Kṛṣṇa recited this verse.
 
 ### CC Adi 14.69
-
-> সংকল্পো বিদিতঃ সাধ্ব্যো ভবতীনাং মদর্চনম্ ।
-> ময়ানুমোদিতঃ সোঽসৌ সত্যো ভবিতুমর্হতি ॥৬৯॥
 
 > saṅkalpo viditaḥ sādhvyo
 > bhavatīnāṁ mad-arcanam
@@ -26130,9 +20582,6 @@ The *gopīs,* the girlfriends of Kṛṣṇa, were almost of the same age as He.
 
 ### CC Adi 14.70
 
-> এইমত লীলা করি’ দুঁহে গেলা ঘরে ।
-> গম্ভীর চৈতন্য-লীলা কে বুঝিতে পারে ॥৭০॥
-
 > ei-mata līlā kari' duṅhe gelā ghare
 > gambhīra caitanya-līlā ke bujhite pāre
 
@@ -26141,9 +20590,6 @@ The *gopīs,* the girlfriends of Kṛṣṇa, were almost of the same age as He.
 **After thus expressing their feelings to one another, Lord Caitanya and Lakṣmī returned home. Who can understand the grave pastimes of Lord Caitanya Mahāprabhu?**
 
 ### CC Adi 14.71
-
-> চৈতন্য-চাপল্য দেখি’ প্রেমে সর্বজন ।
-> শচী-জগন্নাথে দেখি’ দেন ওলাহন ॥৭১॥
 
 > caitanya-cāpalya dekhi' preme sarva jana
 > śacī-jagannāthe dekhi' dena olāhana
@@ -26154,9 +20600,6 @@ The *gopīs,* the girlfriends of Kṛṣṇa, were almost of the same age as He.
 
 ### CC Adi 14.72
 
-> একদিন শচী-দেবী পুত্রেরে ভর্ৎসিয়া ।
-> ধরিবারে গেলা, পুত্র গেলা পলাইয়া ॥৭২॥
-
 > ekadina śacī-devī putrere bhartsiyā
 > dharibāre gelā, putra gelā palāiyā
 
@@ -26165,9 +20608,6 @@ The *gopīs,* the girlfriends of Kṛṣṇa, were almost of the same age as He.
 **One day mother Śacī went to catch her son, wanting to rebuke Him, but He fled from the spot.**
 
 ### CC Adi 14.73
-
-> উচ্ছিষ্ট-গর্তে ত্যক্ত-হাণ্ডীর উপর ।
-> বসিয়াছেন সুখে প্রভু দেব-বিশ্বম্ভর ॥৭৩॥
 
 > ucchiṣṭa-garte tyakta-hāṇḍīra upara
 > basiyāchena sukhe prabhu deva-viśvambhara
@@ -26180,9 +20620,6 @@ Formerly it was the custom of *brāhmaṇas* to worship Lord Viṣṇu daily at 
 
 ### CC Adi 14.74
 
-> শচী আসি’ কহে, — কেনে অশুচি ছুইঁলা ।
-> গঙ্গাস্নান কর যাই’ — অপবিত্র হইলা ॥৭৪॥
-
 > śacī āsi' kahe,—kene aśuci chuṅilā
 > gaṅgā-snāna kara yāi'—apavitra ha-ilā
 
@@ -26191,9 +20628,6 @@ Formerly it was the custom of *brāhmaṇas* to worship Lord Viṣṇu daily at 
 **When mother Śacī saw her boy sitting on the rejected pots, she protested, "Why have You touched these untouchable pots? You have now become impure. Go and take bath in the Ganges."**
 
 ### CC Adi 14.75
-
-> ইহা শুনি’ মাতাকে কহিল ব্রহ্মজ্ঞান ।
-> বিস্মিতা হইয়া মাতা করাইল স্নান ॥৭৫॥
 
 > ihā śuni' mātāke kahila brahma-jñāna
 > vismitā ha-iyā mātā karāila snāna
@@ -26206,9 +20640,6 @@ The absolute knowledge explained by the Lord to His mother is described by Śrī
 
 ### CC Adi 14.76
 
-> কভু পুত্রসঙ্গে শচী করিলা শয়ন ।
-> দেখে, দিব্যলোক আসি’ ভরিল ভবন ॥৭৬॥
-
 > kabhu putra-saṅge śacī karilā śayana
 > dekhe, divyaloka āsi' bharila bhavana
 
@@ -26217,9 +20648,6 @@ The absolute knowledge explained by the Lord to His mother is described by Śrī
 **Sometimes, taking her son with her, mother Śacī would lie down on her bed, and she would see that denizens of the celestial world had come there, filling the entire house.**
 
 ### CC Adi 14.77
-
-> শচী বলে, — যাহ, পুত্র, বোলাহ বাপেরে ।
-> মাতৃ-আজ্ঞা পাইয়া প্রভু চলিলা বাহিরে ॥৭৭॥
 
 > śacī bale,—yāha, putra, bolāha bāpere
 > mātṛ-ājñā pāiyā prabhu calilā bāhire
@@ -26230,9 +20658,6 @@ The absolute knowledge explained by the Lord to His mother is described by Śrī
 
 ### CC Adi 14.78
 
-> চলিতে চরণে নূপুর বাজে ঝন্ঝন্ ।
-> শুনি’ চমকিত হৈল পিতা-মাতার মন ॥৭৮॥
-
 > calite caraṇe nūpura bāje jhanjhan
 > śuni' camakita haila pitā-mātāra mana
 
@@ -26241,9 +20666,6 @@ The absolute knowledge explained by the Lord to His mother is described by Śrī
 **When the child was going out, there was a tinkling of ankle bells from His lotus feet. Hearing this, His father and mother were struck with wonder.**
 
 ### CC Adi 14.79
-
-> মিশ্র কহে, — এই বড় অদ্ভুত কাহিনী ।
-> শিশুর শূন্যপদে কেনে নূপুরের ধ্বনি ॥৭৯॥
 
 > miśra kahe,—ei baḍa adbhuta kāhinī
 > śiśura śūnya-pade kene nūpurera dhvani
@@ -26254,9 +20676,6 @@ The absolute knowledge explained by the Lord to His mother is described by Śrī
 
 ### CC Adi 14.80
 
-> শচী কহে, — আর এক অদ্ভুত দেখিল ।
-> দিব্য দিব্য লোক আসি’ অঙ্গন ভরিল ॥৮০॥
-
 > śacī kahe,—āra eka adbhuta dekhila
 > divya divya loka āsi' aṅgana bharila
 
@@ -26265,9 +20684,6 @@ The absolute knowledge explained by the Lord to His mother is described by Śrī
 **Mother Śacī said, "I also saw another wonder. People were coming down from the celestial kingdom and crowding the entire courtyard.**
 
 ### CC Adi 14.81
-
-> কিবা কোলাহল করে, বুঝিতে না পারি ।
-> কাহাকে বা স্তুতি করে — অনুমান করি ॥৮১॥
 
 > kibā kelāhala kare, bujhite nā pāri
 > kāhāke vā stuti kare—anumāna kari
@@ -26278,9 +20694,6 @@ The absolute knowledge explained by the Lord to His mother is described by Śrī
 
 ### CC Adi 14.82
 
-> মিশ্র বলে, — কিছু হউক, চিন্তা কিছু নাই ।
-> বিশ্বম্ভরের কুশল হউক্, — এই মাত্র চাই ॥৮২॥
-
 > miśra bale,—kichu ha-uk, cintā kichu nāi
 > viśvambharera kuśala ha-uk,—ei mātra cāi
 
@@ -26289,9 +20702,6 @@ The absolute knowledge explained by the Lord to His mother is described by Śrī
 **Jagannātha Miśra replied, "Never mind what it is. There is no need to worry. Let there always be good fortune for Viśvambhara. This is all I want."**
 
 ### CC Adi 14.83
-
-> একদিন মিশ্র পুত্রের চাপল্য দেখিয়া ।
-> ধর্ম-শিক্ষা দিল বহু ভর্ৎসনা করিয়া ॥৮৩॥
 
 > eka-dina miśra putrera cāpalya dekhiyā
 > dharma-śikṣā dila bahu bhartsanā kariyā
@@ -26302,9 +20712,6 @@ The absolute knowledge explained by the Lord to His mother is described by Śrī
 
 ### CC Adi 14.84
 
-> রাত্রে স্বপ্ন দেখে, — এক আসি’ ব্রাহ্মণ ।
-> মিশ্রেরে কহয়ে কিছু সরোষ বচন ॥৮৪॥
-
 > rātre svapna dekhe,—eka āsi' brahmaṇa
 > miśrere kahaye kichu sa-roṣa vacana
 
@@ -26313,9 +20720,6 @@ The absolute knowledge explained by the Lord to His mother is described by Śrī
 **On that very night, Jagannātha Miśra dreamt that a brāhmaṇa had come before him speaking these words in great anger:**
 
 ### CC Adi 14.85
-
-> “মিশ্র, তুমি পুত্রের তত্ত্ব কিছুই না জান ।
-> ভর্ৎসন-তাড়ন কর, — পুত্র করি’ মান ।।” ॥ ৮৫ ॥
 
 > "miśra, tumi putrera tattva kichui nā jāna
 > bhartsana-tāḍana kara,—putra kari' māna"
@@ -26326,9 +20730,6 @@ The absolute knowledge explained by the Lord to His mother is described by Śrī
 
 ### CC Adi 14.86
 
-> মিশ্র কহে, — “দেব, সিদ্ধ, মুনি কেনে নয় ।
-> যে সে বড় হউক্ মাত্র আমার তনয় ॥৮৬॥
-
 > miśra kahe,—deva, siddha, muni kene naya
 > ye se baḍa ha-uk mātra āmāra tanaya
 
@@ -26338,9 +20739,6 @@ The absolute knowledge explained by the Lord to His mother is described by Śrī
 
 ### CC Adi 14.87
 
-> পুত্রের লালন-শিক্ষা — পিতার স্বধর্ম ।
-> আমি না শিখালে কৈছে জানিবে ধর্ম-মর্ম ।।” ॥ ৮৭ ॥
-
 > putrera lālana-śikṣā—pitāra sva-dharma
 > āmi nā śikhāle kaiche janibe dharma-marma
 
@@ -26349,9 +20747,6 @@ The absolute knowledge explained by the Lord to His mother is described by Śrī
 **"It is the duty of a father to educate his son in both religion and morality. If I do not give Him this education, how will He know of it?"**
 
 ### CC Adi 14.88
-
-> বিপ্র কহে, — পুত্র যদি দৈব-সিদ্ধ হয় ।
-> স্বতঃসিদ্ধজ্ঞান, তবে শিক্ষা ব্যর্থ হয় ॥৮৮॥
 
 > vipra kahe,—putra yadi daiva-siddha haya
 > svataḥ-siddha-jñāna, tabe śikṣā vyartha haya
@@ -26364,9 +20759,6 @@ The *brāhmaṇa* Jagannātha Miśra saw in his dream told him that his son was 
 
 ### CC Adi 14.89
 
-> মিশ্র কহে, — “পুত্র কেনে নহে নারায়ণ ।
-> তথাপি পিতার ধর্ম — পুত্রের শিক্ষণ ।।” ॥ ৮৯ ॥
-
 > miśra kahe,—"putra kene nahe nārāyaṇa
 > tathāpi pitāra dharma—putrera śikṣaṇa"
 
@@ -26375,9 +20767,6 @@ The *brāhmaṇa* Jagannātha Miśra saw in his dream told him that his son was 
 **Jagannātha Miśra replied, "Even if my son is not a common man but Nārāyaṇa, still it is the duty of a father to instruct his son."**
 
 ### CC Adi 14.90
-
-> এইমতে দুঁহে করেন ধর্মের বিচার ।
-> বিশুদ্ধবাৎসল্য মিশ্রের, নাহি জানে আর ॥৯০॥
 
 > ei-mate duṅhe karena dharmera vicāra
 > viśuddha-vātsalya miśrera, nāhi jāne āra
@@ -26390,9 +20779,6 @@ In *Śrīmad-Bhāgavatam* (10.8.45) it is said: "Lord Kṛṣṇa, the Supreme P
 
 ### CC Adi 14.91
 
-> এত শুনি’ দ্বিজ গেলা হঞা আনন্দিত ।
-> মিশ্র জাগিয়া হইলা পরম বিস্মিত ॥৯১॥
-
 > eta śuni' dvija gelā hañā ānandita
 > miśra jāgiyā ha-ilā parama vismita
 
@@ -26401,9 +20787,6 @@ In *Śrīmad-Bhāgavatam* (10.8.45) it is said: "Lord Kṛṣṇa, the Supreme P
 **Being very much pleased, the brāhmaṇa left after talking with Jagannātha Miśra, and when Jagannātha Miśra awakened from his dream, he was very much astonished.**
 
 ### CC Adi 14.92
-
-> বন্ধু-বান্ধব-স্থানে স্বপ্ন কহিল ।
-> শুনিয়া সকল লোক বিস্মিত হইল ॥৯২॥
 
 > bandhu-bāndhava-sthāne svapna kahila
 > śuniyā sakala loka vismita ha-ila
@@ -26414,9 +20797,6 @@ In *Śrīmad-Bhāgavatam* (10.8.45) it is said: "Lord Kṛṣṇa, the Supreme P
 
 ### CC Adi 14.93
 
-> এই মত শিশুলীলা করে গৌরচন্দ্র ।
-> দিনে দিনে পিতা-মাতার বাড়ায় আনন্দ ॥৯৩॥
-
 > ei mata śiśu-līlā kare gauracandra
 > dine dine pitā-mātāra bāḍāya ānanda
 
@@ -26425,9 +20805,6 @@ In *Śrīmad-Bhāgavatam* (10.8.45) it is said: "Lord Kṛṣṇa, the Supreme P
 **In this way Gaurahari performed His childhood pastimes and day after day increased the pleasure of His parents.**
 
 ### CC Adi 14.94
-
-> কত দিনে মিশ্র পুত্রের হাতে খড়ি দিল ।
-> অল্প দিনে দ্বাদশ-ফলা অক্ষর শিখিল ॥৯৪॥
 
 > kata dine miśra putrera hāte khaḍi dila
 > alpa dine dvādaśa-phalā akṣara śikhila
@@ -26440,9 +20817,6 @@ The twelve *phalā,* or combinations of letters, are called *repha, mūrdhanya* 
 
 ### CC Adi 14.95
 
-> বাল্যলীলা-সূত্র এই কৈল অনুক্রম ।
-> ইহা বিস্তারিয়াছেন দাস-বৃন্দাবন ॥৯৫॥
-
 > bālyalīlā-sūtra ei kaila anukrama
 > ihā vistāriyāchena dāsa-vṛndāvana
 
@@ -26452,9 +20826,6 @@ The twelve *phalā,* or combinations of letters, are called *repha, mūrdhanya* 
 
 ### CC Adi 14.96
 
-> অতএব এই লীলা সংক্ষেপে সূত্র কৈল ।
-> পুনরুক্তি-ভয়ে বিস্তারিয়া না কহিল ॥৯৬॥
-
 > ataeva ei-līlā saṅkṣepe sūtra kaila
 > punarukti-bhaye vistārirā nā kahila
 
@@ -26463,9 +20834,6 @@ The twelve *phalā,* or combinations of letters, are called *repha, mūrdhanya* 
 **I have therefore made only a brief summary. Being afraid of repetition, I have not elaborated upon this subject matter.**
 
 ### CC Adi 14.97
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৯৭॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -26480,9 +20848,6 @@ The twelve *phalā,* or combinations of letters, are called *repha, mūrdhanya* 
 
 ### CC Adi 15.1
 
-> কুমনাঃ সুমনস্ত্বং হি যাতি যস্য পদাব্জয়োঃ ।
-> সুমনোঽর্পণমাত্রেণ তং চৈতন্যপ্রভুং ভজে ॥১॥
-
 > ku-manāḥ su-manastvaṁ hi
 > yāti yasya padābjayoḥ
 > su-mano-'rpaṇa-mātreṇa
@@ -26494,9 +20859,6 @@ The twelve *phalā,* or combinations of letters, are called *repha, mūrdhanya* 
 
 ### CC Adi 15.2
 
-> জয় জয় শ্রীচৈতন্য জয় নিত্যানন্দ ।
-> জয়াদ্বৈতচন্দ্র, জয় গৌরভক্তবৃন্দ ॥২॥
-
 > jaya jaya śrī-caitanya jaya nityānanda
 > jayādvaitacandra, jaya gaura-bhakta-vṛnda
 
@@ -26506,9 +20868,6 @@ The twelve *phalā,* or combinations of letters, are called *repha, mūrdhanya* 
 
 ### CC Adi 15.3
 
-> পৌগণ্ড-লীলার সূত্র করিয়ে গণন ।
-> পৌগণ্ড-বয়সে প্রভুর মুখ্য অধ্যয়ন ॥৩॥
-
 > paugaṇḍa-līlāra sūtra kariye gaṇana
 > paugaṇḍa-vayase prabhura mukhya adhyayana
 
@@ -26517,9 +20876,6 @@ The twelve *phalā,* or combinations of letters, are called *repha, mūrdhanya* 
 **Let me now enumerate the activities of the Lord between the ages of five and ten. His chief occupation during this period was to engage Himself in study.**
 
 ### CC Adi 15.4
-
-> পৌগণ্ড-লীলা চৈতন্যকৃষ্ণস্যাতিসুবিস্তৃতা ।
-> বিদ্যারম্ভমুখা পাণিগ্রহণান্তা মনোহরা ॥৪॥
 
 > paugaṇḍa-līlā caitanya-
 > kṛṣṇasyāti-suvistṛtā
@@ -26532,9 +20888,6 @@ The twelve *phalā,* or combinations of letters, are called *repha, mūrdhanya* 
 
 ### CC Adi 15.5
 
-> গঙ্গাদাস পণ্ডিত-স্থানে পড়েন ব্যাকরণ ।
-> শ্রবণ-মাত্রে কণ্ঠে কৈল সূত্রবৃত্তিগণ ॥৫॥
-
 > gaṅgādāsa paṇḍita-sthāne paḍena vyākaraṇa
 > śravaṇa-mātre kaṇṭhe kaila sūtra-vṛtti-gaṇa
 
@@ -26545,9 +20898,6 @@ The twelve *phalā,* or combinations of letters, are called *repha, mūrdhanya* 
 Śrīla Bhaktivinoda Ṭhākura says that the Lord was given lessons by a teacher named Viṣṇu and another teacher named Sudarśana. Later on, when He was a little grown up, He was under the care of Gaṅgādāsa Paṇḍita, who taught Him grammar of a higher standard. Anyone serious about studying the Sanskrit language should first learn grammar. It is said that simply to finish studying Sanskrit grammar takes at least twelve years, but once one learns the grammatical rules and regulations very nicely, all other scriptures or subject matters in Sanskrit are extremely easy to understand, for Sanskrit grammar is the gateway to education.
 
 ### CC Adi 15.6
-
-> অল্পকালে হৈলা পঞ্জী-টীকাতে প্রবীণ ।
-> চিরকালের পড়ুয়া জিনে হইয়া নবীন ॥৬॥
 
 > alpa-kāle hailā pañjī-ṭīkāte pravīṇa
 > cira-kālera paḍuyā jine ha-iyā navīna
@@ -26560,9 +20910,6 @@ The twelve *phalā,* or combinations of letters, are called *repha, mūrdhanya* 
 
 ### CC Adi 15.7
 
-> অধ্যয়ন-লীলা প্রভুর দাস-বৃন্দাবন ।
-> ‘চৈতন্যমঙ্গলে’ কৈল বিস্তারি বর্ণন ॥৭॥
-
 > adhyayana-līlā prabhura dāsa-vṛndāvana
 > 'caitanya-maṅgale' kaila vistāri varṇana
 
@@ -26574,9 +20921,6 @@ The *Caitanya-bhāgavata, Ādi-līlā,* chapters Four, Six, Seven, Eight, Nine a
 
 ### CC Adi 15.8
 
-> এক দিন মাতার পদে করিয়া প্রণাম ।
-> প্রভু কহে, — মাতা, মোরে দেহ এক দান ॥৮॥
-
 > eka dina mātāra pade kariyā praṇāma
 > prabhu kahe,—mātā, more deha eka dāna
 
@@ -26585,9 +20929,6 @@ The *Caitanya-bhāgavata, Ādi-līlā,* chapters Four, Six, Seven, Eight, Nine a
 **One day Śrī Caitanya Mahāprabhu fell down at the feet of His mother and requested her to give Him one thing in charity.**
 
 ### CC Adi 15.9
-
-> মাতা বলে, — তাই দিব, যা তুমি মাগিবে ।
-> প্রভু কহে, — একাদশীতে অন্ন না খাইবে ॥৯॥
 
 > mātā bale,—tāi diba, yā tumi māgibe
 > prabhu kahe,—ekādaśīte anna nā khāibe
@@ -26600,9 +20941,6 @@ From the very beginning of His childhood life Śrī Caitanya Mahāprabhu introdu
 
 ### CC Adi 15.10
 
-> শচী কহে, — না খাইব, ভালই কহিলা ।
-> সেই হৈতে একাদশী করিতে লাগিলা ॥১০॥
-
 > śacī kahe,—nā khāiba, bhāla-i kahilā
 > sei haite ekādaśī karite lāgilā
 
@@ -26614,9 +20952,6 @@ It is a prejudice amongst *smārta-brāhmaṇas* that a widow must observe fasti
 
 ### CC Adi 15.11
 
-> তবে মিশ্র বিশ্বরূপের দেখিয়া যৌবন ।
-> কন্যা চাহি’ বিবাহ দিতে করিলেন মন ॥১১॥
-
 > tabe miśra viśvarūpera dekhiyā yauvana
 > kanyā cāhi' vivāha dite karilena mana
 
@@ -26625,9 +20960,6 @@ It is a prejudice amongst *smārta-brāhmaṇas* that a widow must observe fasti
 **Thereafter, seeing that Viśvarūpa was a grown-up youth, Jagannātha Miśra wanted to find a girl and arrange a marriage ceremony for Him.**
 
 ### CC Adi 15.12
-
-> বিশ্বরূপ শুনি’ ঘর ছাড়ি পলাইলা ।
-> সন্ন্যাস করিয়া তীর্থ করিবারে গেলা ॥১২॥
 
 > viśvarūpa śuni' ghara chāḍi palāilā
 > sannyāsa kariyā tīrtha karibāre gelā
@@ -26638,9 +20970,6 @@ It is a prejudice amongst *smārta-brāhmaṇas* that a widow must observe fasti
 
 ### CC Adi 15.13
 
-> শুনি’ শচী-মিশ্রের দুঃখী হৈল মন ।
-> তবে প্রভু মাতা-পিতার কৈল আশ্বাসন ॥১৩॥
-
 > śuni, śacī-miśrera duḥkhī haila mana
 > tabe prabhu mātā-pitāra kaila āśvāsana
 
@@ -26649,9 +20978,6 @@ It is a prejudice amongst *smārta-brāhmaṇas* that a widow must observe fasti
 **When Śacīmātā and Jagannātha Miśra heard of the departure of their elder son, Viśvarūpa, they were very unhappy, but Lord Caitanya tried to console them.**
 
 ### CC Adi 15.14
-
-> ভাল হৈল, — বিশ্বরূপ সন্ন্যাস করিল ।
-> পিতৃকুল, মাতৃকুল, — দুই উদ্ধারিল ॥১৪॥
 
 > bhāla haila,—viśvarūpa sannyāsa karila
 > pitṛ-kula, mātṛ-kula,—dui uddhārila
@@ -26673,9 +20999,6 @@ Nevertheless we see that Śrī Caitanya Mahāprabhu Himself accepted *sannyāsa*
 
 ### CC Adi 15.15
 
-> আমি ত’ করিব তোমা’ দুঁহার সেবন ।
-> শুনিয়া সন্তুষ্ট হৈল পিতা-মাতার মন ॥১৫॥
-
 > āmi ta' kariba tomā' duṅhara sevana
 > śuniyā santuṣṭa haila pitā-mātāra mana
 
@@ -26684,9 +21007,6 @@ Nevertheless we see that Śrī Caitanya Mahāprabhu Himself accepted *sannyāsa*
 **Śrī Caitanya Mahāprabhu assured His parents that He would serve them, and thus the minds of His father and mother were satisfied.**
 
 ### CC Adi 15.16
-
-> একদিন নৈবেদ্য-তাম্বূল খাইয়া ।
-> ভূমিতে পড়িলা প্রভু অচেতন হঞা ॥১৬॥
 
 > eka-dina naivedya-tāmbūla khāiyā
 > bhūmite paḍilā prabhu acetana hañā
@@ -26699,9 +21019,6 @@ Betel nuts are an intoxicant, and therefore the regulative principles prohibit e
 
 ### CC Adi 15.17
 
-> আস্তে-ব্যস্তে পিতা-মাতা মুখে দিল পানি ।
-> সুস্থ হঞা কহে প্রভু অপূর্ব কাহিনী ॥১৭॥
-
 > āste-vyaste pitā-mātā mukhe dila pāni
 > sustha hañā kahe prabhu apūrva kāhinī
 
@@ -26710,9 +21027,6 @@ Betel nuts are an intoxicant, and therefore the regulative principles prohibit e
 **After His father and mother sprinkled water on His mouth with great haste, the Lord revived and said something wonderful they had never heard before.**
 
 ### CC Adi 15.18
-
-> এথা হৈতে বিশ্বরূপ মোরে লঞা গেলা ।
-> সন্ন্যাস করহ তুমি, আমারে কহিলা ॥১৮॥
 
 > ethā haite viśvarūpa more lañā gelā
 > sannyāsa karaha tumi, āmāre kahilā
@@ -26723,9 +21037,6 @@ Betel nuts are an intoxicant, and therefore the regulative principles prohibit e
 
 ### CC Adi 15.19
 
-> আমি কহি, — আমার অনাথ পিতা-মাতা ।
-> আমি বালক, — সন্ন্যাসের কিবা জানি কথা ॥১৯॥
-
 > āmi kahi,—āmāra anātha pitā-mātā
 > āmi bālaka,—sannyāsera kibā jāni kathā
 
@@ -26734,9 +21045,6 @@ Betel nuts are an intoxicant, and therefore the regulative principles prohibit e
 **"I replied to Viśvarūpa, 'I have My helpless father and mother, and also I am but a child. What do I know about the sannyāsa order of life?**
 
 ### CC Adi 15.20
-
-> গৃহস্থ হইয়া করিব পিতা-মাতার সেবন ।
-> ইহাতেই তুষ্ট হবেন লক্ষ্মী-নারায়ণ ॥২০॥
 
 > gṛhastha ha-iyā kariba pitā-mātāra sevana
 > ihāte-i tuṣṭa habena lakṣmī-nārāyaṇa
@@ -26747,9 +21055,6 @@ Betel nuts are an intoxicant, and therefore the regulative principles prohibit e
 
 ### CC Adi 15.21
 
-> তবে বিশ্বরূপ ইহাঁ পাঠাইল মোরে ।
-> মাতাকে কহিও কোটি কোটি নমস্কারে ॥২১॥
-
 > tabe viśvarūpa ihāṅ pāṭhāila more
 > mātāke kahio koṭi koṭi namaskāre
 
@@ -26758,9 +21063,6 @@ Betel nuts are an intoxicant, and therefore the regulative principles prohibit e
 **"Then Viśvarūpa returned Me home and requested, 'Offer thousands and thousands of obeisances unto My mother, Śacīdevī.' "**
 
 ### CC Adi 15.22
-
-> এই মত নানা লীলা করে গৌরহরি ।
-> কি কারণে লীলা, — ইহা বুঝিতে না পারি ॥২২॥
 
 > ei mata nānā līlā kare gaurahari
 > ki kāraṇe līlā,—ihā bujhite nā pāri
@@ -26773,9 +21075,6 @@ The Supreme Personality of Godhead and His devotees who come to this world are e
 
 ### CC Adi 15.23
 
-> কত দিন রহি’ মিশ্র গেলা পরলোক ।
-> মাতা-পুত্র দুঁহার বাড়িল হৃদি শোক ॥২৩॥
-
 > kata dina rahi' miśra gelā para-loka
 > mātā-putra duṅhāra bāḍila hṛdi śoka
 
@@ -26784,9 +21083,6 @@ The Supreme Personality of Godhead and His devotees who come to this world are e
 **After some days, Jagannātha Miśra passed away from this world to the transcendental world, and both mother and son were very much aggrieved in their hearts.**
 
 ### CC Adi 15.24
-
-> বন্ধু-বান্ধব আসি’ দুঁহা প্রবোধিল ।
-> পিতৃক্রিয়া বিধিমতে ঈশ্বর করিল ॥২৪॥
 
 > bandhu-bāndhava asi' duṅhā prabodhila
 > pitṛ-kriyā vidhi-mate īśvara karila
@@ -26797,9 +21093,6 @@ The Supreme Personality of Godhead and His devotees who come to this world are e
 
 ### CC Adi 15.25
 
-> কত দিনে প্রভু চিত্তে করিলা চিন্তন ।
-> গৃহস্থ হইলাম, এবে চাহি গৃহধর্ম ॥২৫॥
-
 > kata dine prabhu citte karilā cintana
 > gṛhastha ha-ilāma, ebe cāhi gṛha-dharma
 
@@ -26809,9 +21102,6 @@ The Supreme Personality of Godhead and His devotees who come to this world are e
 
 ### CC Adi 15.26
 
-> গৃহিণী বিনা গৃহধর্ম না হয় শোভন ।
-> এত চিন্তি’ বিবাহ করিতে হৈল মন ॥২৬॥
-
 > gṛhiṇī vinā gṛha-dharma nā haya śobhana
 > eta cinti' vivāha karite haila mana
 
@@ -26820,9 +21110,6 @@ The Supreme Personality of Godhead and His devotees who come to this world are e
 **"Without a wife," Lord Caitanya considered, "there is no meaning to householder life." Thus the Lord decided to marry.**
 
 ### CC Adi 15.27
-
-> ন গৃহং গৃহমিত্যাহুর্গৃহিণী গৃহমুচ্যতে ।
-> তয়া হি সহিতঃ সর্বান্ পুরুষার্থান্ সমশ্নুতে ॥২৭॥
 
 > na gṛhaṁ gṛham ity āhur
 > gṛhiṇī gṛham ucyate
@@ -26835,9 +21122,6 @@ The Supreme Personality of Godhead and His devotees who come to this world are e
 
 ### CC Adi 15.28
 
-> দৈবে এক দিন প্রভু পড়িয়া আসিতে ।
-> বল্লভাচার্যের কন্যা দেখে গঙ্গা-পথে ॥২৮॥
-
 > daive eka dina prabhu paḍiyā āsite
 > vallabhācāryera kanyā dekhe gaṅgā-pathe
 
@@ -26846,9 +21130,6 @@ The Supreme Personality of Godhead and His devotees who come to this world are e
 **One day when the Lord was coming back from school He accidentally saw the daughter of Vallabhācārya on the way to the Ganges.**
 
 ### CC Adi 15.29
-
-> পূর্বসিদ্ধ ভাব দুঁহার উদয় করিল ।
-> দৈবে বনমালী ঘটক শচী-স্থানে আইল ॥২৯॥
 
 > pūrva-siddha bhāva duṅhāra udaya karila
 > daive vanamālī ghaṭaka śacī-sthāne āila
@@ -26861,9 +21142,6 @@ Vanamālī Ghaṭaka, a resident of Navadvīpa and a *brāhmaṇa* by caste, arr
 
 ### CC Adi 15.30
 
-> শচীর ইঙ্গিতে সম্বন্ধ করিল ঘটন ।
-> লক্ষ্মীকে বিবাহ কৈল শচীর নন্দন ॥৩০॥
-
 > śacīra iṅgite sambandha karila ghaṭana
 > lakṣmīke vivāha kaila śacīra nandana
 
@@ -26872,9 +21150,6 @@ Vanamālī Ghaṭaka, a resident of Navadvīpa and a *brāhmaṇa* by caste, arr
 **Following the indications of Śacīdevī, Vanamālī Ghaṭaka arranged the marriage, and thus in due course the Lord married Lakṣmīdevī.**
 
 ### CC Adi 15.31
-
-> বিস্তারিয়া বর্ণিলা তাহা বৃন্দাবন-দাস ।
-> এই ত’ পৌগণ্ড-লীলার সূত্র-প্রকাশ ॥৩১॥
 
 > vistāriyā varṇilā tāhā vṛndāvana-dāsa
 > ei ta' paugaṇḍa-līlāra sūtra-prakāśa
@@ -26885,9 +21160,6 @@ Vanamālī Ghaṭaka, a resident of Navadvīpa and a *brāhmaṇa* by caste, arr
 
 ### CC Adi 15.32
 
-> পৌগণ্ড বয়সে লীলা বহুত প্রকার ।
-> বৃন্দাবন-দাস ইহা করিয়াছেন বিস্তার ॥৩২॥
-
 > paugaṇḍa vayase līlā bahuta prakāra
 > vṛndāvana-dāsa ihā kariyāchena vistāra
 
@@ -26897,9 +21169,6 @@ Vanamālī Ghaṭaka, a resident of Navadvīpa and a *brāhmaṇa* by caste, arr
 
 ### CC Adi 15.33
 
-> অতএব দিঙ্মাত্র ইহাঁ দেখাইল ।
-> ‘চৈতন্যমঙ্গলে’ সর্বলোকে খ্যাত হৈল ॥৩৩॥
-
 > ataeva diṅmātra ihāṅ dekhāila
 > 'caitanya-maṅgale' sarva-loke khyāta haila
 
@@ -26908,9 +21177,6 @@ Vanamālī Ghaṭaka, a resident of Navadvīpa and a *brāhmaṇa* by caste, arr
 **I have given but a single hint of these pastimes, for Vrndāvana dāsa Ṭhākura, in his book Caitanya-maṅgala [now Caitanya-bhāgavata], has described them all vividly.**
 
 ### CC Adi 15.34
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৩৪॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -26925,9 +21191,6 @@ Vanamālī Ghaṭaka, a resident of Navadvīpa and a *brāhmaṇa* by caste, arr
 
 ### CC Adi 16.1
 
-> কৃপাসুধা-সরিদ্যস্য বিশ্বমাপ্লাবয়ন্ত্যপি ।
-> নীচগৈব সদা ভাতি তং চৈতন্যপ্রভুং ভজে ॥১॥
-
 > kṛpā-sudhā-sarid yasya
 > viśvam āplāvayanty api
 > nīca-gaiva sadā bhāti
@@ -26941,9 +21204,6 @@ Narottama dāsa Ṭhākura has sung, *śrī-kṛṣṇa-caitanya prabhu dayā ka
 
 ### CC Adi 16.2
 
-> জয় জয় শ্রীচৈতন্য জয় নিত্যানন্দ ।
-> জয়াদ্বৈতচন্দ্র জয় গৌরভক্তবৃন্দ ॥২॥
-
 > jaya jaya śrī-caitanya jaya nityānanda
 > jayādvaitacandra jaya gaura-bhakta-vṛnda
 
@@ -26952,9 +21212,6 @@ Narottama dāsa Ṭhākura has sung, *śrī-kṛṣṇa-caitanya prabhu dayā ka
 **All glories to Lord Śrī Caitanya Mahāprabhu! All glories to Lord Nityānanda! All glories to Advaitacandra! And all glories to all the devotees of the Lord!**
 
 ### CC Adi 16.3
-
-> জীয়াৎ কৈশোর-চৈতন্যো মূর্তিমত্যা গৃহাশ্রমাৎ ।
-> লক্ষ্ম্যার্চিতোঽথ বাগ্দেব্যা দিশাংজয়ি-জয়চ্ছলাৎ ॥৩॥
 
 > jīyāt kaiśora-caitanyo
 > mūrti-matyā gṛhāśramāt
@@ -26967,9 +21224,6 @@ Narottama dāsa Ṭhākura has sung, *śrī-kṛṣṇa-caitanya prabhu dayā ka
 
 ### CC Adi 16.4
 
-> এই ত’ কৈশোর-লীলার সূত্র-অনুবন্ধ ।
-> শিষ্যগণ পড়াইতে করিলা আরম্ভ ॥৪॥
-
 > ei ta' kaiśora-līlāra sūtra-anubandha
 > śiṣya-gaṇa paḍāite karilā ārambha
 
@@ -26978,9 +21232,6 @@ Narottama dāsa Ṭhākura has sung, *śrī-kṛṣṇa-caitanya prabhu dayā ka
 **At the age of eleven Śrī Caitanya Mahāprabhu began to teach students. This marks the beginning of His kaiśora age.**
 
 ### CC Adi 16.5
-
-> শত শত শিষ্য সঙ্গে সদা অধ্যাপন ।
-> ব্যাখ্যা শুনি সর্বলোকের চমকিত মন ॥৫॥
 
 > śata śata śiṣya saṅge sadā adhyāpana
 > vyākhyā śuni sarva-lokera camakita mana
@@ -26991,9 +21242,6 @@ Narottama dāsa Ṭhākura has sung, *śrī-kṛṣṇa-caitanya prabhu dayā ka
 
 ### CC Adi 16.6
 
-> সর্বশাস্ত্রে সর্ব পণ্ডিত পায় পরাজয় ।
-> বিনয়ভঙ্গীতে কারো দুঃখ নাহি হয় ॥৬॥
-
 > sarva-śāstre sarva paṇḍita pāya parājaya
 > vinaya-bhaṅgīte kāro duḥkha nāhi haya
 
@@ -27003,9 +21251,6 @@ Narottama dāsa Ṭhākura has sung, *śrī-kṛṣṇa-caitanya prabhu dayā ka
 
 ### CC Adi 16.7
 
-> বিবিধ ঔদ্ধত্য করে শিষ্যগণ-সঙ্গে ।
-> জাহ্নবীতে জলকেলি করে নানা রঙ্গে ॥৭॥
-
 > vividha auddhatya kare śiṣya-gaṇa-saṅge
 > jahnavite jala-keli kare nana range
 
@@ -27014,9 +21259,6 @@ Narottama dāsa Ṭhākura has sung, *śrī-kṛṣṇa-caitanya prabhu dayā ka
 **The Lord, as a teacher, performed various kinds of pranks in His sporting pastimes in the water of the Ganges.**
 
 ### CC Adi 16.8
-
-> কত দিনে কৈল প্রভু বঙ্গেতে গমন ।
-> যাহাঁ যায়, তাহাঁ লওয়ায় নাম-সংকীর্তন ॥৮॥
 
 > kata dine kaila prabhu baṅgete gamana
 > yāhāṅ yāya, tāhāṅ laoyāya nāma-saṅkīrtana
@@ -27029,9 +21271,6 @@ Although Lord Śrī Caitanya Mahāprabhu and His devotees in disciplic successio
 
 ### CC Adi 16.9
 
-> বিদ্যার প্রভাব দেখি চমৎকার চিতে ।
-> শত শত পড়ুয়া আসি লাগিলা পড়িতে ॥৯॥
-
 > vidyāra prabhāva dekhi camatkāra cite
 > śata śata paḍuyā āsi lāgilā paḍite
 
@@ -27040,9 +21279,6 @@ Although Lord Śrī Caitanya Mahāprabhu and His devotees in disciplic successio
 **Struck with wonder by the influence of Lord Caitanya Mahāprabhu's intellectual prowess, many hundreds of students came to Him and began studying under His direction.**
 
 ### CC Adi 16.10
-
-> সেই দেশে বিপ্র, নাম — মিশ্র তপন ।
-> নিশ্চয় করিতে নারে সাধ্য-সাধন ॥১০॥
 
 > sei deśe vipra, nāma—miśra tapana
 > niścaya karite nāre sādhya-sādhana
@@ -27054,9 +21290,6 @@ Although Lord Śrī Caitanya Mahāprabhu and His devotees in disciplic successio
 One must first ascertain the object of life and then understand how to attain it. The Kṛṣṇa consciousness movement is pointing out to everyone that the object of life is to understand Kṛṣṇa, and to attain that goal of life one must practice Kṛṣṇa consciousness, following the methods prescribed by the Gosvāmīs with reference to the authoritative *śāstras* and *Vedas.*
 
 ### CC Adi 16.11
-
-> বহুশাস্ত্রে বহুবাক্যে চিত্তে ভ্রম হয় ।
-> সাধ্য-সাধন শ্রেষ্ঠ না হয় নিশ্চয় ॥১১॥
 
 > bahu-śāstre bahu-vākye citte bhrama haya
 > sādhya-sādhana śreṣṭha nā haya niścaya
@@ -27071,9 +21304,6 @@ Man has a general tendency toward fruitive activities, religious ritualistic cer
 
 ### CC Adi 16.12
 
-> স্বপ্নে এক বিপ্র কহে, — শুনহ তপন ।
-> নিমাঞিপণ্ডিত পাশে করহ গমন ॥১২॥
-
 > svapne eka vipra kahe,—śunaha tapana
 > nimāñi-paṇḍita pāśe karaha gamana
 
@@ -27082,9 +21312,6 @@ Man has a general tendency toward fruitive activities, religious ritualistic cer
 **Tapana Miśra, being thus bewildered, was directed by a brāhmaṇa in a dream to go to Nimāi Paṇḍita [Caitanya Mahāprabhu].**
 
 ### CC Adi 16.13
-
-> তেঁহো তোমার সাধ্য-সাধন করিবে নিশ্চয় ।
-> সাক্ষাৎ ঈশ্বর তেঁহো, — নাহিক সংশয় ॥১৩॥
 
 > teṅho tomāra sādhya-sādhana karibe niścaya
 > sākṣāt īśvara teṅho,—nāhika saṁśaya
@@ -27095,9 +21322,6 @@ Man has a general tendency toward fruitive activities, religious ritualistic cer
 
 ### CC Adi 16.14
 
-> স্বপ্ন দেখি’ মিশ্র আসি’ প্রভুর চরণে ।
-> স্বপ্নের বৃত্তান্ত সব কৈল নিবেদনে ॥১৪॥
-
 > svapna dekhi' miśra āsi' prabhura caraṇe
 > svapnera vṛttānta saba kaila nivedane
 
@@ -27106,9 +21330,6 @@ Man has a general tendency toward fruitive activities, religious ritualistic cer
 **After seeing the dream, Tapana Miśra came to the shelter of Lord Caitanya's lotus feet, and he described all the details of the dream to the Lord.**
 
 ### CC Adi 16.15
-
-> প্রভু তুষ্ট হঞা সাধ্য-সাধন কহিল ।
-> নাম-সংকীর্তন কর, — উপদেশ কৈল ॥১৫॥
 
 > prabhu tuṣṭa hañā sādhya-sādhana kahila
 > nāma-saṅkīrtana kara,—upadeśa kaila
@@ -27121,9 +21342,6 @@ The Kṛṣṇa consciousness movement is based upon this instruction of Lord Ca
 
 ### CC Adi 16.16
 
-> তাঁর ইচ্ছা, — প্রভুসঙ্গে নবদ্বীপে বসি ।
-> প্রভু আজ্ঞা দিল, — তুমি যাও বারাণসী ॥১৬॥
-
 > tāṅra icchā,—prabhu-saṅge navadvīpe vasi
 > prabhu ājñā dila,—tumi yāo vārāṇasī
 
@@ -27133,9 +21351,6 @@ The Kṛṣṇa consciousness movement is based upon this instruction of Lord Ca
 
 ### CC Adi 16.17
 
-> তাহাঁ আমা-সঙ্গে তোমার হবে দরশন ।
-> আজ্ঞা পাঞা মিশ্র কৈল কাশীতে গমন ॥১৭॥
-
 > tāhāṅ āmā-saṅge tomāra habe daraśana
 > ājñā pāñā miśra kaila kāśīte gamana
 
@@ -27144,9 +21359,6 @@ The Kṛṣṇa consciousness movement is based upon this instruction of Lord Ca
 **The Lord assured Tapana Miśra that they would meet again in Vārāṇasī. Receiving this order, Tapana Miśra went there.**
 
 ### CC Adi 16.18
-
-> প্রভুর অতর্ক্যলীলা বুঝিতে না পারি ।
-> স্বসঙ্গ ছাড়াঞা কেনে পাঠায় কাশীপুরী ॥১৮॥
 
 > prabhura atarkya-līlā bujhite nā pāri
 > sva-saṅga chāḍāñā kene pāṭhāya kāśīpurī
@@ -27159,9 +21371,6 @@ When Tapana Miśra met Caitanya Mahāprabhu, Lord Caitanya was living in househo
 
 ### CC Adi 16.19
 
-> এই মত বঙ্গের লোকের কৈলা মহা হিত ।
-> ‘নাম’ দিয়া ভক্ত কৈল, পড়াঞা পণ্ডিত ॥১৯॥
-
 > ei mata baṅgera lokera kailā mahā hita
 > 'nāma' diyā bhakta kaila, paḍāñā paṇḍita
 
@@ -27173,9 +21382,6 @@ Following in the footsteps of Lord Caitanya Mahāprabhu, the Kṛṣṇa conscio
 
 ### CC Adi 16.20
 
-> এই মত বঙ্গে প্রভু করে নানা লীলা ।
-> এথা নবদ্বীপে লক্ষ্মী বিরহে দুঃখী হৈলা ॥২০॥
-
 > ei mata baṅge prabhu kare nānā līlā
 > ethā navadvīpe lakṣmī virahe duḥkhī hailā
 
@@ -27184,9 +21390,6 @@ Following in the footsteps of Lord Caitanya Mahāprabhu, the Kṛṣṇa conscio
 **Because the Lord was engaged in various ways in preaching work in East Bengal, His wife, Lakṣmīdevī, was very unhappy at home in separation from her husband.**
 
 ### CC Adi 16.21
-
-> প্রভুর বিরহ-সর্প লক্ষ্মীরে দংশিল ।
-> বিরহ-সর্প-বিষে তাঁর পরলোক হৈল ॥২১॥
 
 > prabhura viraha-sarpa lakṣmīre daṁśila
 > viraha-sarpa-viṣe tāṅra paraloka haila
@@ -27199,9 +21402,6 @@ As stated in the *Bhagavad-gītā* [[bg/8/6|(Bg. 8.6)]], *yaṁ yaṁ vāpi smar
 
 ### CC Adi 16.22
 
-> অন্তরে জানিলা প্রভু, যাতে অন্তর্যামী ।
-> দেশেরে আইলা প্রভু শচী-দুঃখ জানি’ ॥২২॥
-
 > antare jānilā prabhu, yāte antaryāmī
 > deśere āilā prabhu śacī-duḥkha jāni'
 
@@ -27210,9 +21410,6 @@ As stated in the *Bhagavad-gītā* [[bg/8/6|(Bg. 8.6)]], *yaṁ yaṁ vāpi smar
 **Lord Caitanya knew about the disappearance of Lakṣmīdevī because He is the Supersoul Himself. Thus He returned home to solace His mother, Śacīdevī, who was greatly unhappy about the death of her daughter-in-law.**
 
 ### CC Adi 16.23
-
-> ঘরে আইলা প্রভু বহু লঞা ধন-জন ।
-> তত্ত্ব-জ্ঞানে কৈলা শচীর দুঃখ বিমোচন ॥২৩॥
 
 > ghare āilā prabhu bahu lañā dhana-jana
 > tattva-jñāne kailā śacīra duḥkha vimocana
@@ -27232,9 +21429,6 @@ It is stated in the *Bhagavad-gītā* [[bg/2/13|(Bg. 2.13)]]:
 
 ### CC Adi 16.24
 
-> শিষ্যগণ লঞা পুনঃ বিদ্যার বিলাস ।
-> বিদ্যা-বলে সবা জিনি’ ঔদ্ধত্য প্রকাশ ॥২৪॥
-
 > śiṣya-gaṇa lañā punaḥ vidyāra vilāsa
 > vidyā-bale sabā jini' auddhatya prakāśa
 
@@ -27243,9 +21437,6 @@ It is stated in the *Bhagavad-gītā* [[bg/2/13|(Bg. 2.13)]]:
 **After coming back from East Bengal, Śrī Caitanya Mahāprabhu again began educating others. By the strength of His education He conquered everyone, and thus He was greatly proud.**
 
 ### CC Adi 16.25
-
-> তবে বিষ্ণুপ্রিয়া-ঠাকুরাণীর পরিণয় ।
-> তবে ত’ করিল প্রভু দিগ্বিজয়ী জয় ॥২৫॥
 
 > tabe viṣṇupriyā-ṭhākurāṇīra pariṇaya
 > tabe ta' karila prabhu digvijayī jaya
@@ -27260,9 +21451,6 @@ The *Bhakti-ratnākara* mentions Keśava Kāśmīrī and lists his predecessors 
 
 ### CC Adi 16.26
 
-> বৃন্দাবনদাস ইহা করিয়াছেন বিস্তার ।
-> স্ফুট নাহি করে দোষ-গুণের বিচার ॥২৬॥
-
 > vṛndāvana-dāsa ihā kariyāchena vistāra
 > sphuṭa nāhi kare doṣa-guṇera vicāra
 
@@ -27271,9 +21459,6 @@ The *Bhakti-ratnākara* mentions Keśava Kāśmīrī and lists his predecessors 
 **Vṛndāvana dāsa Ṭhākura has previously elaborately described this. That which is clear need not be scrutinized for good qualities and faults.**
 
 ### CC Adi 16.27
-
-> সেই অংশ কহি, তাঁরে করি’ নমস্কার ।
-> যা’ শুনি’ দিগ্বিজয়ী কৈল আপনা ধিক্কার ॥২৭॥
 
 > sei aṁśa kahi, tāṅre kari' namaskāra
 > yā' śuni' digvijayī kaila āpanā dhik-kāra
@@ -27284,9 +21469,6 @@ The *Bhakti-ratnākara* mentions Keśava Kāśmīrī and lists his predecessors 
 
 ### CC Adi 16.28
 
-> জ্যোৎস্নাবতী রাত্রি, প্রভু শিষ্যগণ সঙ্গে ।
-> বসিয়াছেন গঙ্গাতীরে বিদ্যার প্রসঙ্গে ॥২৮॥
-
 > jyotsnāvatī rātri, prabhu śiṣya-gaṇa saṅge
 > vasiyāchena gaṅgātīre vidyāra prasaṅge
 
@@ -27295,9 +21477,6 @@ The *Bhakti-ratnākara* mentions Keśava Kāśmīrī and lists his predecessors 
 **On one full moon night the Lord was sitting on the bank of the Ganges with His many disciples and discussing literary topics.**
 
 ### CC Adi 16.29
-
-> হেনকালে দিগ্বিজয়ী তাহাঁই আইলা ।
-> গঙ্গারে বন্দন করি’ প্রভুরে মিলিলা ॥২৯॥
 
 > hena-kāle digvijayī tāhāṅi āilā
 > gaṅgāre vandana kari' prabhure mililā
@@ -27308,9 +21487,6 @@ The *Bhakti-ratnākara* mentions Keśava Kāśmīrī and lists his predecessors 
 
 ### CC Adi 16.30
 
-> বসাইলা তারে প্রভু আদর করিয়া ।
-> দিগ্বিজয়ী কহে মনে অবজ্ঞা করিয়া ॥৩০॥
-
 > vasāilā tāre prabhu ādara kariyā
 > digvijayī kahe mane avajñā kariyā
 
@@ -27319,9 +21495,6 @@ The *Bhakti-ratnākara* mentions Keśava Kāśmīrī and lists his predecessors 
 **The Lord received him with adoration, but because Keśava Kāśmīrī was very proud, he talked to the Lord very inconsiderately.**
 
 ### CC Adi 16.31
-
-> ব্যাকরণ পড়াহ, নিমাঞি পণ্ডিত তোমার নাম ।
-> বাল্যশাস্ত্রে লোকে তোমার কহে গুণগ্রাম ॥৩১॥
 
 > vyākaraṇa paḍāha, nimāñi paṇḍita tomāra nāma
 > bālya-śāstre loke tomāra kahe guṇa-grāma
@@ -27334,9 +21507,6 @@ Formerly Sanskrit schools first taught grammar very thoroughly, and this system 
 
 ### CC Adi 16.32
 
-> ব্যাকরণ-মধ্যে, জানি, পড়াহ কলাপ ।
-> শুনিলুঁ ফাঁকিতে তোমার শিষ্যের সংলাপ ॥৩২॥
-
 > vyākaraṇa-madhye, jāni, paḍāha kalāpa
 > śuniluṅ phāṅkite tomāra śiṣyera saṁlāpa
 
@@ -27347,9 +21517,6 @@ Formerly Sanskrit schools first taught grammar very thoroughly, and this system 
 There are many schools of grammar in the Sanskrit language, the most famous of which are the systems of Pāṇini and the Kalāpa and Kaumudī grammars. There were different branches of grammatical knowledge, and a student of grammar was supposed to study them all in twelve years. Caitanya Mahāprabhu, who was famous as Nimāi Paṇḍita, taught grammar to His students, who became expert in dealing with the word jugglery of complicated grammar. Almost anyone expert in studying grammar interprets the *śāstras* in many ways by changing the root meanings of their words. A student of grammar can sometimes completely change the meaning of a sentence by juggling grammatical rules. Keśava Kāśmīrī indirectly taunted Lord Caitanya Mahāprabhu by implying that although He was a great teacher of grammar, such grammatical jugglery of root meanings did not require great expertise. This was a challenge to Śrī Caitanya Mahāprabhu. Because it was prearranged that Keśava Kāśmīrī would have to discuss the *śāstras* with Nimāi Paṇḍita, from the very beginning he wanted to bluff the Lord. Thus the Lord replied as follows.
 
 ### CC Adi 16.33
-
-> প্রভু কহে, ব্যাকরণ পড়াই — অভিমান করি ।
-> শিষ্যেতে না বুঝে, আমি বুঝাইতে নারি ॥৩৩॥
 
 > prabhu kahe, vyākaraṇa paḍāi—abhimāna kari
 > śiṣyete nā bujhe, āmi bujhāite nāri
@@ -27362,9 +21529,6 @@ Since Keśava Kāśmīrī was a little puffed up, the Lord increased his artific
 
 ### CC Adi 16.34
 
-> কাহাঁ তুমি সর্বশাস্ত্রে কবিত্বে প্রবীণ ।
-> কাহাঁ আমি সবে শিশু — পড়ুয়া নবীন ॥৩৪॥
-
 > kāhāṅ tumi sarva-śāstre kavitve pravīṇa
 > kāhāṅ āmi sabe śiśu—paḍuyā navīna
 
@@ -27373,9 +21537,6 @@ Since Keśava Kāśmīrī was a little puffed up, the Lord increased his artific
 **"My dear sir, whereas you are a very learned scholar in all sorts of scriptures and are very experienced in composing poetry, I am only a boy-a new student and nothing more.**
 
 ### CC Adi 16.35
-
-> তোমার কবিত্ব কিছু শুনিতে হয় মন ।
-> কৃপা করি’ কর যদি গঙ্গার বর্ণন ॥৩৫॥
 
 > tomāra kavitva kichu śunite haya mana
 > kṛpā kari' kara yadi gaṅgāra varṇana
@@ -27386,9 +21547,6 @@ Since Keśava Kāśmīrī was a little puffed up, the Lord increased his artific
 
 ### CC Adi 16.36
 
-> শুনিয়া ব্রাহ্মণ গর্বে বর্ণিতে লাগিলা ।
-> ঘটী একে শত শ্লোক গঙ্গার বর্ণিলা ॥৩৬॥
-
 > śuniyā brāhmaṇa garve varṇite lāgilā
 > ghaṭī eke śata śloka gaṅgāra varṇilā
 
@@ -27398,9 +21556,6 @@ Since Keśava Kāśmīrī was a little puffed up, the Lord increased his artific
 
 ### CC Adi 16.37
 
-> শুনিয়া করিল প্রভু বহুত সৎকার ।
-> তোমা সম পৃথিবীতে কবি নাহি আর ॥৩৭॥
-
 > śuniyā karila prabhu bahuta satkāra
 > tomā sama pṛthivīte kavi nāhi āra
 
@@ -27409,9 +21564,6 @@ Since Keśava Kāśmīrī was a little puffed up, the Lord increased his artific
 **The Lord praised him, saying, "Sir, there is no greater poet than you in the entire world.**
 
 ### CC Adi 16.38
-
-> তোমার কবিতা শ্লোক বুঝিতে কার শক্তি ।
-> তুমি ভাল জান অর্থ কিংবা সরস্বতী ॥৩৮॥
 
 > tomāra kavitā śloka bujhite kāra śakti
 > tumi bhāla jāna artha kiṁvā sarasvatī
@@ -27424,9 +21576,6 @@ Replying to Keśava Kāśmīrī sarcastically, Lord Caitanya Mahāprabhu indirec
 
 ### CC Adi 16.39
 
-> এক শ্লোকের অর্থ যদি কর নিজ-মুখে ।
-> শুনি’ সব লোক তবে পাইব বড়সুখে ॥৩৯॥
-
 > eka ślokera artha yadi kara nija-mukhe
 > śuni' saba loka tabe pāiba baḍa-sukhe
 
@@ -27436,9 +21585,6 @@ Replying to Keśava Kāśmīrī sarcastically, Lord Caitanya Mahāprabhu indirec
 
 ### CC Adi 16.40
 
-> তবে দিগ্বিজয়ী ব্যাখ্যার শ্লোক পুছিল ।
-> শত শ্লোকের এক শ্লোক প্রভু ত’ পড়িল ॥৪০॥
-
 > tabe digvijayī vyākhyāra śloka puchila
 > śata ślokera eka śloka prabhu ta' paḍila
 
@@ -27447,11 +21593,6 @@ Replying to Keśava Kāśmīrī sarcastically, Lord Caitanya Mahāprabhu indirec
 **The Digvijayī, Keśava Kāśmīrī, inquired which verse He wanted explained. The Lord then recited one of the one hundred verses Keśava Kāśmīrī had composed.**
 
 ### CC Adi 16.41
-
-> মহত্ত্বং গঙ্গায়াঃ সততমিদমাভাতি নিতরাং
-> যদেষা শ্রীবিষ্ণোশ্চরণকমলোৎপত্তিসুভগা ।
-> দ্বিতীয়-শ্রীলক্ষ্মীরিব সুরনরৈরর্চ্যচরণা
-> ভবানীভর্তুর্যা শিরসি বিভবত্যদ্ভুতগুণা ॥৪১॥
 
 > mahattvaṁ gaṅgāyāḥ satatam idam ābhāti nitarāṁ
 > yad eṣā śrī-viṣṇoś caraṇa-kamalotpatti-subhagā
@@ -27464,9 +21605,6 @@ Replying to Keśava Kāśmīrī sarcastically, Lord Caitanya Mahāprabhu indirec
 
 ### CC Adi 16.42
 
-> ‘এই শ্লোকের অর্থ কর’ — প্রভু যদি বৈল ।
-> বিস্মিত হঞা দিগ্বিজয়ী প্রভুরে পুছিল ॥৪২॥
-
 > 'ei ślokera artha kara'—prabhu yadi baila
 > vismita hañā digvijayī prabhure puchila
 
@@ -27476,9 +21614,6 @@ Replying to Keśava Kāśmīrī sarcastically, Lord Caitanya Mahāprabhu indirec
 
 ### CC Adi 16.43
 
-> ঝঞ্ঝাবাত-প্রায় আমি শ্লোক পড়িল ।
-> তার মধ্যে শ্লোক তুমি কৈছে কণ্ঠে কৈল ॥৪৩॥
-
 > jhañjhāvāta-prāya āmi śloka paḍila
 > tāra madhye śloka tumi kaiche kaṇṭhe kaila
 
@@ -27487,9 +21622,6 @@ Replying to Keśava Kāśmīrī sarcastically, Lord Caitanya Mahāprabhu indirec
 **"I recited all the verses like the blowing wind. How could You completely learn by heart even one among those verses?"**
 
 ### CC Adi 16.44
-
-> প্রভু কহে, দেবের বরে তুমি — ‘কবিবর’ ।
-> ঐছে দেবের বরে কেহো হয় ‘শ্রুতিধর’ ॥৪৪॥
 
 > prabhu kahe, devera vare tumi—'kavi-vara'
 > aiche devera vare keho haya 'śrutidhara'
@@ -27513,9 +21645,6 @@ As soon as we find anything extraordinary, we should understand that such an ext
 
 ### CC Adi 16.45
 
-> শ্লোকের অর্থ কৈল বিপ্র পাইয়া সন্তোষ ।
-> প্রভু কহে — কহ শ্লোকের কিবা গুণ-দোষ ॥৪৫॥
-
 > ślokera artha kaila vipra pāiyā santoṣa
 > prabhu kahe—kaha ślokera kibā guṇa-doṣa
 
@@ -27526,9 +21655,6 @@ As soon as we find anything extraordinary, we should understand that such an ext
 Not only did Śrī Caitanya Mahāprabhu pick out this one among the one hundred verses and remember it although the *brāhmaṇa* had recited them like the blowing wind, but He also analyzed its qualities and faults. Not only did He hear the verse, but He immediately made a critical study of it.
 
 ### CC Adi 16.46
-
-> বিপ্র কহে, শ্লোকে নাহি দোষের আভাস ।
-> উপমালঙ্কার গুণ, কিছু অনুপ্রাস ॥৪৬॥
 
 > vipra kahe śloke nāhi doṣera ābhāsa
 > upamālaṅkāra guṇa, kichu anuprāsa
@@ -27541,9 +21667,6 @@ In the last line of the verse quoted by Śrī Caitanya Mahāprabhu, the letter *
 
 ### CC Adi 16.47
 
-> প্রভু কহেন, — কহি, যদি না করহ রোষ ।
-> কহ তোমার এই শ্লোকে কিবা আছে দোষ ॥৪৭॥
-
 > prabhu kahena,—kahi, yadi na karaha roṣa
 > kaha tomāra ei śloke kibā āche doṣa
 
@@ -27552,9 +21675,6 @@ In the last line of the verse quoted by Śrī Caitanya Mahāprabhu, the letter *
 **The Lord said, "My dear sir, I may say something to you if you will not become angry. Can you explain the faults in this verse?**
 
 ### CC Adi 16.48
-
-> প্রতিভার কাব্য তোমার দেবতা সন্তোষে ।
-> ভালমতে বিচারিলে জানি গুণদোষে ॥৪৮॥
 
 > pratibhāra kāvya tomāra devatā santoṣe
 > bhāla-mate vicārile jāni guṇa-doṣe
@@ -27565,9 +21685,6 @@ In the last line of the verse quoted by Śrī Caitanya Mahāprabhu, the letter *
 
 ### CC Adi 16.49
 
-> তাতে ভাল করি’ শ্লোক করহ বিচার ।
-> কবি কহে, — যে কহিলে সেই বেদসার ॥৪৯॥
-
 > tāte bhāla kari' śloka karaha vicāra
 > kavi kahe,—ye kahile sei veda-sāra
 
@@ -27576,9 +21693,6 @@ In the last line of the verse quoted by Śrī Caitanya Mahāprabhu, the letter *
 **The Lord concluded, "Now, therefore, let us carefully scrutinize this verse." The poet replied, "Yes, the verse You have recited is perfectly correct.**
 
 ### CC Adi 16.50
-
-> ব্যাকরণিয়া তুমি নাহি পড় অলঙ্কার ।
-> তুমি কি জানিবে এই কবিত্বের সার ॥৫০॥
 
 > vyākaraṇiyā tumi nāhi paḍa alaṅkāra
 > tumi ki jānibe ei kavitvera sāra
@@ -27591,9 +21705,6 @@ Keśava Kāśmīrī first wanted to bluff Śrī Caitanya Mahāprabhu by saying t
 
 ### CC Adi 16.51
 
-> প্রভু কহেন, — অতএব পুছিয়ে তোমারে ।
-> বিচারিয়া গুণ-দোষ বুঝাহ আমারে ॥৫১॥
-
 > prabhu kahena—ataeva puchiye tomāre
 > vicāriyā guṇa-doṣa bujhāha āmāre
 
@@ -27602,9 +21713,6 @@ Keśava Kāśmīrī first wanted to bluff Śrī Caitanya Mahāprabhu by saying t
 **Taking a humble position, Śrī Caitanya Mahāprabhu said, "Because I am not of your level, I have asked you to teach Me by explaining the faults and good qualities in your poetry.**
 
 ### CC Adi 16.52
-
-> নাহি পড়ি অলঙ্কার, করিয়াছি শ্রবণ ।
-> তাতে এই শ্লোকে দেখি বহু দোষ-গুণ ॥৫২॥
 
 > nāhi paḍi alaṅkāra, kariyāchi śravaṇa
 > tāte ei śloke dekhi bahu doṣa-guna
@@ -27617,9 +21725,6 @@ The statement *kariyāchi śravaṇa* ("I have heard it") is very important in t
 
 ### CC Adi 16.53
 
-> কবি কহে, — কহ দেখি, কোন্ গুণ-দোষ ।
-> প্রভু কহেন, — কহি, শুন, না করিহ রোষ ॥৫৩॥
-
 > kavi kahe,—kaha dekhi, kon guṇa-doṣa
 > prabhu kahena,—kahi, śuna, nā kariha roṣa
 
@@ -27628,9 +21733,6 @@ The statement *kariyāchi śravaṇa* ("I have heard it") is very important in t
 **The poet said, "All right, let me see what qualities and faults You have found." The Lord replied, "Let Me speak, and please hear Me without becoming angry.**
 
 ### CC Adi 16.54
-
-> পঞ্চ দোষ এই শ্লোকে পঞ্চ অলঙ্কার ।
-> ক্রমে আমি কহি, শুন, করহ বিচার ॥৫৪॥
 
 > pañca doṣa ei śloke pañca alaṅkāra
 > krame āmi kahi, śuna, karaha vicāra
@@ -27651,9 +21753,6 @@ The fourth fault is *punar-ukti,* or redundancy, which occurs when the verb *vib
 
 ### CC Adi 16.55
 
-> ‘অবিমৃষ্ট-বিধেয়াংশ’ — দুই ঠাঞি চিহ্ন ।
-> ‘বিরুদ্ধমতি’, ‘ভগ্নক্রম’, ‘পুনরাত্ত’, — দোষ তিন ॥৫৫॥
-
 > 'avimṛṣṭa-vidheyāṁśa'—dui ṭhāñi cihna
 > 'viruddha-mati', 'bhagna-krama', 'punar-ātta',—doṣa tina
 
@@ -27662,9 +21761,6 @@ The fourth fault is *punar-ukti,* or redundancy, which occurs when the verb *vib
 **"In this verse the fault of avimṛṣṭa-vidheyāṁśa occurs twice, and the faults of viruddha-mati, bhagna-krama and punar-ātta occur once each.**
 
 ### CC Adi 16.56
-
-> ‘গঙ্গার মহত্ত্ব’ — শ্লোকে মূল ‘বিধেয়’ ।
-> ইদং শব্দে ‘অনুবাদ’ — পাছে অবিধেয় ॥৫৬॥
 
 > 'gaṅgāra mahattva'—śloke mūla 'vidheya'
 > idaṁ śabde 'anuvāda'—pāche avidheya
@@ -27675,9 +21771,6 @@ The fourth fault is *punar-ukti,* or redundancy, which occurs when the verb *vib
 
 ### CC Adi 16.57
 
-> ‘বিধেয়’ আগে কহি’ পাছে কহিলে ‘অনুবাদ’ ।
-> এই লাগি’ শ্লোকের অর্থ করিয়াছে বাধ ॥৫৭॥
-
 > 'vidheya' āge kahi' pāche kahile 'anuvāda'
 > ei lāgi' ślokera artha kariyāche bādha
 
@@ -27686,9 +21779,6 @@ The fourth fault is *punar-ukti,* or redundancy, which occurs when the verb *vib
 **"Because you have placed the known subject at the end and that which is unknown at the beginning, the composition is faulty, and the meaning of the words has become doubtful.**
 
 ### CC Adi 16.58
-
-> অনুবাদমনুক্ত্বৈব ন বিধেয়মুদীরয়েৎ ।
-> ন হ্যলব্ধাস্পদং কিঞ্চিৎ কুত্রচিৎ প্রতিতিষ্ঠতি ॥৫৮॥
 
 > anuvādam anuktvaiva
 > na vidheyam udīrayet
@@ -27703,9 +21793,6 @@ This is a verse from the *Ekādaśī-tattva.*
 
 ### CC Adi 16.59
 
-> ‘দ্বিতীয় শ্রীলক্ষ্মী’ — ইহাঁ ‘দ্বিতীয়ত্ব’ বিধেয় ।
-> সমাসে গৌণ হৈল, শব্দার্থ গেল ক্ষয় ॥৫৯॥
-
 > 'dvitīya śrī-lakṣmī'—ihāṅ 'dvitīyatva' vidheya
 > samāse gauṇa haila, śabdārtha gela kṣaya
 
@@ -27714,9 +21801,6 @@ This is a verse from the *Ekādaśī-tattva.*
 **"In the word 'dvitīya-śrīlakṣmī' ['the second all-opulent goddess of fortune'], the quality of being a second Lakṣmī is the unknown. In making this compound word, the meaning became secondary and the originally intended meaning was lost.**
 
 ### CC Adi 16.60
-
-> ‘দ্বিতীয়’ শব্দ — বিধেয়, তাহা পড়িল সমাসে ।
-> ‘লক্ষ্মীর সমতা’ অর্থ করিল বিনাশে ॥৬০॥
 
 > 'dvitīya' śabda—vidheya tāhā paḍila samāse
 > 'lakṣmīra samatā' artha karila vināśe
@@ -27727,9 +21811,6 @@ This is a verse from the *Ekādaśī-tattva.*
 
 ### CC Adi 16.61
 
-> ‘অবিমৃষ্ট-বিধেয়াংশ’ — এই দোষের নাম ।
-> আর এক দোষ আছে, শুন সাবধান ॥৬১॥
-
 > 'avimṛṣṭa-vidheyāṁśa'—ei doṣera nāma
 > āra eka doṣa āche, śuna sāvadhāna
 
@@ -27738,9 +21819,6 @@ This is a verse from the *Ekādaśī-tattva.*
 **"Not only is there the fault avimṛṣṭa-vidheyāṁśa, but there is also another fault, which I shall point out to you. Kindly hear Me with great attention.**
 
 ### CC Adi 16.62
-
-> ‘ভবানীভর্তৃ’-শব্দ দিলে পাইয়া সন্তোষ ।
-> ‘বিরুদ্ধমতিকৃৎ’ নাম এই মহা দোষ ॥৬২॥
 
 > 'bhavānī-bhartṛ'-śabda dile pāiyā santoṣa
 > 'viruddha-mati-kṛt' nāma ei mahā doṣa
@@ -27751,9 +21829,6 @@ This is a verse from the *Ekādaśī-tattva.*
 
 ### CC Adi 16.63
 
-> ভবানী-শব্দে কহে মহাদেবের গৃহিণী ।
-> তাঁর ভর্তা কহিলে দ্বিতীয় ভর্তা জানি ॥৬৩॥
-
 > bhavānī-śabde kahe mahādevera gṛhiṇī
 > tāṅra bhartā kahile dvitīya bhartā jāni
 
@@ -27762,9 +21837,6 @@ This is a verse from the *Ekādaśī-tattva.*
 **"The word 'bhavānī' means 'the wife of Lord Śiva.' But when we mention her husband, one might conclude that she has another husband.**
 
 ### CC Adi 16.64
-
-> ‘শিবপত্নীর ভর্তা’ ইহা শুনিতে বিরুদ্ধ ।
-> ‘বিরুদ্ধমতিকৃৎ’ শব্দ শাস্ত্রে নহে শুদ্ধ ॥৬৪॥
 
 > 'śiva-patnīra bhartā' ihā śunite viruddha
 > 'viruddha-mati-kṛt' śabda śāstre nahe śuddha
@@ -27775,9 +21847,6 @@ This is a verse from the *Ekādaśī-tattva.*
 
 ### CC Adi 16.65
 
-> ‘ব্রাহ্মণ-পত্নীর ভর্তার হস্তে দেহ দান’ ।
-> শব্দ শুনিতেই হয় দ্বিতীয়ভর্তা জ্ঞান ॥৬৫॥
-
 > 'brāhmaṇa-patnīra bhartāra haste deha dāna'
 > śabda śunitei haya dvitīya-bhartā jñāna
 
@@ -27786,9 +21855,6 @@ This is a verse from the *Ekādaśī-tattva.*
 **"If someone says, 'Place this charity in the hand of the husband of the wife of the brāhmaṇa,' when we hear these contradictory words we immediately understand that the brāhmaṇa's wife has another husband.**
 
 ### CC Adi 16.66
-
-> ‘বিভবতি’ ক্রিয়ায় বাক্য — সাঙ্গ, পুনঃ বিশেষণ ।
-> ‘অদ্ভুতগুণা’ — এই পুনরাত্ত দূষণ ॥৬৬॥
 
 > 'vibhavati' kriyāya vākya—sāṅga, punaḥ viśeṣaṇa
 > 'adbhuta-guṇā'—ei punar-ātta dūṣaṇa
@@ -27799,9 +21865,6 @@ This is a verse from the *Ekādaśī-tattva.*
 
 ### CC Adi 16.67
 
-> তিন পাদে অনুপ্রাস দেখি অনুপম ।
-> এক পাদে নাহি, এই দোষ ‘ভগ্নক্রম’ ॥৬৭॥
-
 > tina pāde anuprāsa dekhi anupama
 > eka pāde nāhi, ei doṣa 'bhagna-krama'
 
@@ -27810,9 +21873,6 @@ This is a verse from the *Ekādaśī-tattva.*
 **"There is extraordinary alliteration in three lines of the verse, but in one line there is no such alliteration. This is the fault of deviation.**
 
 ### CC Adi 16.68
-
-> যদ্যপি এই শ্লোকে আছে পঞ্চ অলঙ্কার ।
-> এই পঞ্চদোষে শ্লোক কৈল ছারখার ॥৬৮॥
 
 > yadyapi ei śloke āche pañca alaṅkāra
 > ei pañca-doṣe śloka kaila chārakhāra
@@ -27823,9 +21883,6 @@ This is a verse from the *Ekādaśī-tattva.*
 
 ### CC Adi 16.69
 
-> দশ অলঙ্কারে যদি এক শ্লোক হয় ।
-> এক দোষে সব অলঙ্কার হয় ক্ষয় ॥৬৯॥
-
 > daśa alaṅkāre yadi eka śloka haya
 > eka doṣe saba alaṅkāra haya kṣaya
 
@@ -27834,9 +21891,6 @@ This is a verse from the *Ekādaśī-tattva.*
 **"If there are ten literary ornaments in a verse but even one faulty expression, the entire verse is nullified.**
 
 ### CC Adi 16.70
-
-> সুন্দর শরীর যৈছে ভূষণে ভূষিত ।
-> এক শ্বেতকুষ্ঠে যৈছে করয়ে বিগীত ॥৭০॥
 
 > sundara śarīra yaiche bhūṣaṇe bhūṣita
 > eka śveta-kuṣṭhe yaiche karaye vigīta
@@ -27849,9 +21903,6 @@ The great sage Bharata Muni, an authority on poetic metaphor, has given his opin
 
 ### CC Adi 16.71
 
-> রসালঙ্কারবৎ কাব্যং দোষযুক্ চেদ্বিভূষিতম্ ।
-> স্যাদ্বপুঃ সুন্দরমপি শ্বিত্রেণৈকেন দুর্ভগম্ ॥৭১॥
-
 > rasālaṅkāra-vat kāvyaṁ
 > doṣa-yuk ced vibhūṣitam
 > syād vapuḥ sundaram api
@@ -27863,9 +21914,6 @@ The great sage Bharata Muni, an authority on poetic metaphor, has given his opin
 
 ### CC Adi 16.72
 
-> পঞ্চ অলঙ্কারের এবে শুনহ বিচার ।
-> দুই শব্দালঙ্কার, তিন অর্থ-অলঙ্কার ॥৭২॥
-
 > pañca alaṅkārera ebe śunaha vicāra
 > dui śabdālaṅkāra, tina artha-alaṅkāra
 
@@ -27874,9 +21922,6 @@ The great sage Bharata Muni, an authority on poetic metaphor, has given his opin
 **"Now hear the description of the five literary embellishments. There are two ornaments of sound and three ornaments of meaning.**
 
 ### CC Adi 16.73
-
-> শব্দালঙ্কার — তিনপাদে আছে অনুপ্রাস ।
-> ‘শ্রীলক্ষ্মী’ শব্দে ‘পুনরুক্তবদাভাস’ ॥৭৩॥
 
 > śabdālaṅkāra—tina-pāde āche anuprāsa
 > 'śrī-lakṣmī' śabde 'punar-uktavad-ābhāsa'
@@ -27887,9 +21932,6 @@ The great sage Bharata Muni, an authority on poetic metaphor, has given his opin
 
 ### CC Adi 16.74
 
-> প্রথম-চরণে পঞ্চ ‘ত’-কারের পাঁতি ।
-> তৃতীয়া-চরণে হয় পঞ্চ ‘রেফ’-স্থিতি ॥৭৪॥
-
 > prathama-caraṇe pañca 'ta'-kārera pāṅti
 > tṛtīya-caraṇe haya pañca 'repha'-sthiti
 
@@ -27898,9 +21940,6 @@ The great sage Bharata Muni, an authority on poetic metaphor, has given his opin
 **"In the arrangement of the first line the letter 'ta' occurs five times, and the arrangement of the third line repeats the letter 'ra' five times.**
 
 ### CC Adi 16.75
-
-> চতুর্থ-চরণে চারি ‘ভ’-কার-প্রকাশ ।
-> অতএব শব্দালঙ্কার অনুপ্রাস ॥৭৫॥
 
 > caturtha-caraṇe cāri 'bha'-kāra-prakāśa
 > ataeva śabdālaṅkāra anuprāsa
@@ -27911,9 +21950,6 @@ The great sage Bharata Muni, an authority on poetic metaphor, has given his opin
 
 ### CC Adi 16.76
 
-> ‘শ্রী’-শব্দে, ‘লক্ষ্মী’-শব্দে — এক বস্তু উক্ত ।
-> পুনরুক্তপ্রায় ভাসে, নহে পুনরুক্ত ॥৭৬॥
-
 > 'śrī'-śabde, 'lakṣmī'-śabde—eka vastu ukta
 > punar-ukta-prāya bhāse, nahe punar-ukta
 
@@ -27922,9 +21958,6 @@ The great sage Bharata Muni, an authority on poetic metaphor, has given his opin
 **"Although the words 'śrī' and 'lakṣmī' convey the same meaning and are therefore almost redundant, they are nevertheless not redundant.**
 
 ### CC Adi 16.77
-
-> ‘শ্রীযুক্ত লক্ষ্মী’ অর্থে অর্থের বিভেদ ।
-> পুনরুক্তবদাভাস, শব্দালঙ্কার ভেদ ॥৭৭॥
 
 > 'śrī-yukta lakṣmī' arthe arthera vibheda
 > punar-uktavad-ābhāsa, śabdālaṅkāra-bheda
@@ -27935,9 +21968,6 @@ The great sage Bharata Muni, an authority on poetic metaphor, has given his opin
 
 ### CC Adi 16.78
 
-> ‘লক্ষ্মীরিব’ অর্থালঙ্কার — উপমা-প্রকাশ ।
-> আর অর্থালঙ্কার আছে, নাম — ‘বিরোধাভাস’ ॥৭৮॥
-
 > 'lakṣmīr iva' arthālaṅkāra—upamā-prakāśa
 > āra arthālaṅkāra āche, nāma—'virodhābhāsa'
 
@@ -27946,9 +21976,6 @@ The great sage Bharata Muni, an authority on poetic metaphor, has given his opin
 **"The use of the words 'lakṣmīr iva' ['like Lakṣmī'] manifests the ornament of meaning called upamā [analogy]. There is also the further ornament of meaning called virodhābhāsa, or a contradictory indication.**
 
 ### CC Adi 16.79
-
-> ‘গঙ্গাতে কমল জন্মে’ — সবার সুবোধ ।
-> ‘কমলে গঙ্গার জন্ম’ — অত্যন্ত বিরোধ ॥৭৯॥
 
 > 'gaṅgāte kamala janme'—sabāra subodha
 > 'kamale gaṅgara janma'—atyanta virodha
@@ -27959,9 +21986,6 @@ The great sage Bharata Muni, an authority on poetic metaphor, has given his opin
 
 ### CC Adi 16.80
 
-> ‘ইহাঁ বিষ্ণুপাদপদ্মে গঙ্গার উৎপত্তি’ ।
-> বিরোধালঙ্কার ইহা মহা-চমৎকৃতি ॥৮০॥
-
 > 'ihāṅ viṣṇu-pāda-padme gaṅgāra utpatti'
 > virodhālaṅkāra ihā mahā-camatkṛti
 
@@ -27970,9 +21994,6 @@ The great sage Bharata Muni, an authority on poetic metaphor, has given his opin
 **"The existence of mother Ganges begins from the lotus feet of the Lord. Although this statement that water comes from a lotus flower is a contradiction, in connection with Lord Viṣṇu it is a great wonder.**
 
 ### CC Adi 16.81
-
-> ঈশ্বর-অচিন্ত্যশক্ত্যে গঙ্গার প্রকাশ ।
-> ইহাতে বিরোধ নাহি, বিরোধ-আভাস ॥৮১॥
 
 > īśvara-acintya-śaktye gaṅgāra prakāśa
 > ihāte virodha nāhi, virodha-ābhāsa
@@ -27991,9 +22012,6 @@ Unfortunately, atheistic science will not accept that matter comes from life. Sc
 
 ### CC Adi 16.82
 
-> অম্বুজমম্বূনি জাতং ক্বচিদপি ন জাতমম্বুজাদম্বু ।
-> মুরভিদি তদ্বিপরীতং পাদাম্ভোজান্মহানদী জাতা ॥৮২॥
-
 > ambujam ambuni jātaṁ kvacid api na jātam ambujād ambu
 > mura-bhidi tad-viparītaṁ pādāmbhojān mahā-nadī jātā
 
@@ -28002,9 +22020,6 @@ Unfortunately, atheistic science will not accept that matter comes from life. Sc
 **“ 'Everyone knows that lotus flowers grow in the water but water never grows from a lotus. All such contradictions, however, are wonderfully possible in Kṛṣṇa: the great river Ganges has grown from His lotus feet.'**
 
 ### CC Adi 16.83
-
-> গঙ্গার মহত্ত্ব — সাধ্য, সাধন তাহার ।
-> বিষ্ণুপাদোৎপত্তি — ‘অনুমান’ অলঙ্কার ॥৮৩॥
 
 > gaṅgāra mahattva—sādhya, sādhana tāhāra
 > viṣṇu-pādotpatti—'anumāna' alaṅkāra
@@ -28015,9 +22030,6 @@ Unfortunately, atheistic science will not accept that matter comes from life. Sc
 
 ### CC Adi 16.84
 
-> স্থূল এই পঞ্চ দোষ, পঞ্চ অলঙ্কার ।
-> সূক্ষ্ম বিচারিয়ে যদি আছয়ে অপার ॥৮৪॥
-
 > sthūla ei pañca doṣa, pañca alaṅkāra
 > sūkṣma vicāriye yadi āchaye apāra
 
@@ -28026,9 +22038,6 @@ Unfortunately, atheistic science will not accept that matter comes from life. Sc
 **"I have simply discussed the five gross faults and five literary embellishments of this verse, but if we consider it in fine detail we will find unlimited faults.**
 
 ### CC Adi 16.85
-
-> প্রতিভা, কবিত্ব তোমার দেবতা-প্রসাদে ।
-> অবিচার কাব্যে অবশ্য পড়ে দোষ-বাধে ॥৮৫॥
 
 > pratibhā, kavitva tomāra devatā-prasāde
 > avicāra kāvye avaśya paḍe doṣa-bādhe
@@ -28039,9 +22048,6 @@ Unfortunately, atheistic science will not accept that matter comes from life. Sc
 
 ### CC Adi 16.86
 
-> বিচারি’ কবিত্ব কৈলে হয় সুনির্মল ।
-> সালঙ্কার হৈলে অর্থ করে ঝলমল ॥৮৬॥
-
 > vicāri' kavitva kaile haya sunirmala
 > sālaṅkāra haile artha kare jhalamala
 
@@ -28050,9 +22056,6 @@ Unfortunately, atheistic science will not accept that matter comes from life. Sc
 **"Poetic skill used with due consideration is very pure, and with metaphors and analogies it is dazzling."**
 
 ### CC Adi 16.87
-
-> শুনিয়া প্রভুর ব্যাখ্যা দিগ্বিজয়ী বিস্মিত ।
-> মুখে না নিঃসরে বাক্য, প্রতিভা স্তম্ভিত ॥৮৭॥
 
 > śuniyā prabhura vyākhyā digvijayī vismita
 > mukhe nā niḥsare vākya, pratibhā stambhita
@@ -28063,9 +22066,6 @@ Unfortunately, atheistic science will not accept that matter comes from life. Sc
 
 ### CC Adi 16.88
 
-> কহিতে চাহয়ে কিছু, না আইসে উত্তর ।
-> তবে বিচারয়ে মনে হইয়া ফাঁফর ॥৮৮॥
-
 > kahite cāhaye kichu, nā āise uttara
 > tabe vicāraye mane ha-iyā phāṅphara
 
@@ -28074,9 +22074,6 @@ Unfortunately, atheistic science will not accept that matter comes from life. Sc
 **He wanted to say something, but no reply could come from his mouth. He then began to consider this puzzle within his mind.**
 
 ### CC Adi 16.89
-
-> পড়ুয়া বালক কৈল মোর বুদ্ধি লোপ ।
-> জানি — সরস্বতী মোরে করিয়াছেন কোপ ॥৮৯॥
 
 > paḍuyā bālaka kaila mora buddhi lopa
 > jāni—sarasvatī more kariyāchena kopa
@@ -28089,9 +22086,6 @@ In the *Bhagavad-gītā* it is clearly said that all intelligence comes from the
 
 ### CC Adi 16.90
 
-> যে ব্যাখ্যা করিল, সে মনুষ্যের নহে শক্তি ।
-> নিমাঞি-মুখে রহি’ বলে আপনে সরস্বতী ॥৯০॥
-
 > ye vyākhyā karila, se manuṣyera nahe śakti
 > nimāñi-mukhe rahi' bale āpane sarasvatī
 
@@ -28100,9 +22094,6 @@ In the *Bhagavad-gītā* it is clearly said that all intelligence comes from the
 **"The wonderful explanation the boy has given could not have been possible for a human being. Therefore mother Sarasvatī must have spoken personally through His mouth."**
 
 ### CC Adi 16.91
-
-> এত ভাবি’ কহে, — শুন, নিমাঞি পণ্ডিত ।
-> তব ব্যাখ্যা শুনি’ আমি হইলাঙ বিস্মিত ॥৯১॥
 
 > eta bhāvi' kahe—śuna, nimāñi paṇḍita
 > tava vyākhyā śuni' āmi ha-ilāṅ vismita
@@ -28113,9 +22104,6 @@ In the *Bhagavad-gītā* it is clearly said that all intelligence comes from the
 
 ### CC Adi 16.92
 
-> অলঙ্কার নাহি পড়, নাহি শাস্ত্রাভ্যাস ।
-> কেমনে এ সব অর্থ করিলে প্রকাশ ॥৯২॥
-
 > alaṅkāra nāhi paḍa, nāhi śāstrābhyāsa
 > kemane e saba artha karile prakāśa
 
@@ -28124,9 +22112,6 @@ In the *Bhagavad-gītā* it is clearly said that all intelligence comes from the
 **"I am surprised. You are not a literary student and do not have long experience in studying the śāstras. How have You been able to explain all these critical points?"**
 
 ### CC Adi 16.93
-
-> ইহা শুনি’ মহাপ্রভু অতি বড় রঙ্গী ।
-> তাঁহার হৃদয় জানি’ কহে করি’ ভঙ্গী ॥৯৩॥
 
 > ihā śuni' mahāprabhu ati baḍa raṅgī
 > tāṅhāra hṛdaya jāni' kahe kari' bhaṅgī
@@ -28137,9 +22122,6 @@ In the *Bhagavad-gītā* it is clearly said that all intelligence comes from the
 
 ### CC Adi 16.94
 
-> শাস্ত্রের বিচার ভাল-মন্দ নাহি জানি ।
-> সরস্বতী যে বলায়, সেই বলি বাণী ॥৯৪॥
-
 > śāstrera vicāra bhāla-manda nāhi jāni
 > sarasvatī ye balāya, sei bali vāṇī
 
@@ -28148,9 +22130,6 @@ In the *Bhagavad-gītā* it is clearly said that all intelligence comes from the
 **"My dear sir, I do not know what is good composition and what is bad. But whatever I have spoken must be understood to have been spoken by mother Sarasvatī."**
 
 ### CC Adi 16.95
-
-> ইহা শুনি’ দিগ্বিজয়ী করিল নিশ্চয় ।
-> শিশুদ্বারে দেবী মোরে কৈল পরাজয় ॥৯৫॥
 
 > ihā śuni' digvijayī karila niścaya
 > śiśu-dvāre devī more kaila parājaya
@@ -28161,9 +22140,6 @@ In the *Bhagavad-gītā* it is clearly said that all intelligence comes from the
 
 ### CC Adi 16.96
 
-> আজি তাঁরে নিবেদিব, করি’ জপ-ধ্যান ।
-> শিশুদ্বারে কৈল মোরে এত অপমান ॥৯৬॥
-
 > āji tāṅre nivediba, kari' japa-dhyāna
 > śiśu-dvāre kaila more eta apamāna
 
@@ -28172,9 +22148,6 @@ In the *Bhagavad-gītā* it is clearly said that all intelligence comes from the
 **"I shall offer prayers and meditation to the goddess of learning," the champion concluded, "and ask her why she has insulted me so greatly through this boy."**
 
 ### CC Adi 16.97
-
-> বস্তুতঃ সরস্বতী অশুদ্ধ শ্লোক করাইল ।
-> বিচার-সময় তাঁর বুদ্ধি আচ্ছাদিল ॥৯৭॥
 
 > vastutaḥ sarasvatī aśuddha śloka karāila
 > vicāra-samaya tāṅra buddhi ācchādila
@@ -28185,9 +22158,6 @@ In the *Bhagavad-gītā* it is clearly said that all intelligence comes from the
 
 ### CC Adi 16.98
 
-> তবে শিষ্যগণ সব হাসিতে লাগিল ।
-> তা’-সবা নিষেধি’ প্রভু কবিরে কহিল ॥৯৮॥
-
 > tabe śiṣya-gaṇa saba hāsite lāgila
 > tā'-sabā niṣedhi' prabhu kavire kahila
 
@@ -28196,9 +22166,6 @@ In the *Bhagavad-gītā* it is clearly said that all intelligence comes from the
 **When the poetic champion was thus defeated, all the Lord's disciples sitting there began to laugh loudly. But Lord Caitanya Mahāprabhu asked them not to do so, and He addressed the poet as follows.**
 
 ### CC Adi 16.99
-
-> তুমি বড় পণ্ডিত, মহাকবি-শিরোমণি ।
-> যাঁর মুখে বাহিরায় ঐছে কাব্যবাণী ॥৯৯॥
 
 > tumi baḍa paṇḍita, mahākavi-śiromaṇi
 > yāṅra mukhe bāhirāya aiche kavya-vāṇī
@@ -28209,9 +22176,6 @@ In the *Bhagavad-gītā* it is clearly said that all intelligence comes from the
 
 ### CC Adi 16.100
 
-> তোমার কবিত্ব যেন গঙ্গাজল-ধার ।
-> তোমা-সম কবি কোথা নাহি দেখি আর ॥১০০॥
-
 > tomāra kavitva yena gaṅgā-jala-dhāra
 > tomā-sama kavi kothā nāhi dekhi āra
 
@@ -28221,9 +22185,6 @@ In the *Bhagavad-gītā* it is clearly said that all intelligence comes from the
 
 ### CC Adi 16.101
 
-> ভবভূতি, জয়দেব, আর কালিদাস ।
-> তাঁ-সবার কবিত্বে আছে দোষের প্রকাশ ॥১০১॥
-
 > bhavabhūti, jayadeva, āra kālidāsa
 > tāṅ-sabāra kavitve āche doṣera prakāśa
 
@@ -28232,9 +22193,6 @@ In the *Bhagavad-gītā* it is clearly said that all intelligence comes from the
 **"Even in the poetic compositions of such great poets as Bhavabhūti, Jayadeva and Kālidāsa there are many examples of faults.**
 
 ### CC Adi 16.102
-
-> দোষ-গুণ-বিচার — এই অল্প করি’ মানি ।
-> কবিত্ব-করণে শক্তি, তাঁহা সে বাখানি ॥১০২॥
 
 > doṣa-guṇa-vicāra—ei alpa kari' māni
 > kavitva-karaṇe śakti, tāṅhā se vākhāni
@@ -28254,9 +22212,6 @@ In *Śrīmad-Bhāgavatam* (1.5.11) it is said:
 
 ### CC Adi 16.103
 
-> শৈশব-চাপল্য কিছু না লবে আমার ।
-> শিষ্যের সমান মুঞি না হঙ তোমার ॥১০৩॥
-
 > śaiśava-cāpalya kichu nā labe āmāra
 > śiṣyera samāna muñi nā haṅ tomāra
 
@@ -28265,9 +22220,6 @@ In *Śrīmad-Bhāgavatam* (1.5.11) it is said:
 **"I am not even fit to be your disciple. Therefore kindly do not take seriously whatever childish impudence I have shown.**
 
 ### CC Adi 16.104
-
-> আজি বাসা’ যাহ, কালি মিলিব আবার ।
-> শুনিব তোমার মুখে শাস্ত্রের বিচার ॥১০৪॥
 
 > āji vāsā' yāha, kāli miliba ābāra
 > śuniba tomāra mukhe śāstrera vicāra
@@ -28278,9 +22230,6 @@ In *Śrīmad-Bhāgavatam* (1.5.11) it is said:
 
 ### CC Adi 16.105
 
-> এইমতে নিজ ঘরে গেলা দুই জন ।
-> কবি রাত্রে কৈল সরস্বতী-আরাধন ॥১০৫॥
-
 > ei-mate nija ghare gelā dui jana
 > kavi rātre kaila sarasvatī-ārādhana
 
@@ -28290,9 +22239,6 @@ In *Śrīmad-Bhāgavatam* (1.5.11) it is said:
 
 ### CC Adi 16.106
 
-> সরস্বতী স্বপ্নে তাঁরে উপদেশ কৈল ।
-> সাক্ষাৎ ঈশ্বর করি’ প্রভুকে জানিল ॥১০৬॥
-
 > sarasvatī svapne tāṅre upadeśa kaila
 > sākṣāt īśvara kari' prabhuke jānila
 
@@ -28301,9 +22247,6 @@ In *Śrīmad-Bhāgavatam* (1.5.11) it is said:
 **In a dream the goddess informed him of the Lord's position, and the poetic champion could understand that Lord Caitanya Mahāprabhu is the Supreme Personality of Godhead Himself.**
 
 ### CC Adi 16.107
-
-> প্রাতে আসি’ প্রভুপদে লইল শরণ ।
-> প্রভু কৃপা কৈল, তাঁর খণ্ডিল বন্ধন ॥১০৭॥
 
 > prāte āsi' prabhu-pade la-ila śaraṇa
 > prabhu kṛpā kaila, tāṅra khaṇḍila bandhana
@@ -28316,9 +22259,6 @@ The same process advocated by Lord Śrī Kṛṣṇa in His teachings of the*Bha
 
 ### CC Adi 16.108
 
-> ভাগ্যবন্ত দিগ্বিজয়ী সফল-জীবন ।
-> বিদ্যা-বলে পাইল মহাপ্রভুর চরণ ॥১০৮॥
-
 > bhāgyavanta digvijayī saphala-jīvana
 > vidyā-bale pāila mahāprabhura caraṇa
 
@@ -28330,9 +22270,6 @@ The same process advocated by Lord Śrī Kṛṣṇa in His teachings of the*Bha
 
 ### CC Adi 16.109
 
-> এ-সব লীলা বর্ণিয়াছেন বৃন্দাবনদাস ।
-> যে কিছু বিশেষ ইহাঁ করিল প্রকাশ ॥১০৯॥
-
 > e-saba līlā varṇiyāchena vṛndāvana-dāsa
 > ye kichu viśeṣa ihāṅ karila prakāśa
 
@@ -28342,9 +22279,6 @@ The same process advocated by Lord Śrī Kṛṣṇa in His teachings of the*Bha
 
 ### CC Adi 16.110
 
-> চৈতন্য-গোসাঞির লীলা — অমৃতের ধার ।
-> সর্বেন্দ্রিয় তৃপ্ত হয় শ্রবণে যাহার ॥১১০॥
-
 > caitanya-gosāñira līlā—amṛtera dhāra
 > sarvendriya tṛpta haya śravaṇe yāhāra
 
@@ -28353,9 +22287,6 @@ The same process advocated by Lord Śrī Kṛṣṇa in His teachings of the*Bha
 **The nectarean drops of Śrī Caitanya Mahāprabhu's pastimes can satisfy the senses of everyone who hears them.**
 
 ### CC Adi 16.111
-
-> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥১১১॥
 
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
@@ -28369,9 +22300,6 @@ The same process advocated by Lord Śrī Kṛṣṇa in His teachings of the*Bha
 ## Ādi-līlā, Chapter 17
 
 ### CC Adi 17.1
-
-> বন্দে স্বৈরাদ্ভুতেহং তং চৈতন্যং যত্প্রসাদতঃ ।
-> যবনাঃ সুমনায়ন্তে কৃষ্ণনামপ্রজল্পকাঃ ॥১॥
 
 > vande svairādbhutehaṁ taṁ
 > caitanyaṁ yat-prasādataḥ
@@ -28388,9 +22316,6 @@ Although less intelligent men cannot understand it, this is the special power of
 
 ### CC Adi 17.2
 
-> জয় জয় শ্রীচৈতন্য জয় নিত্যানন্দ ।
-> জয়াদ্বৈতচন্দ্র জয় গৌরভক্তবৃন্দ ॥২॥
-
 > jaya jaya śrī-caitanya jaya nityānanda
 > jayādvaitacandra jaya gaura-bhakta-vṛnda
 
@@ -28400,9 +22325,6 @@ Although less intelligent men cannot understand it, this is the special power of
 
 ### CC Adi 17.3
 
-> কৈশোর-লীলার সূত্র করিল গণন ।
-> যৌবনলীলার সূত্র করি অনুক্রম ॥৩॥
-
 > kaiśora-līlāra sūtra karila gaṇana
 > yauvana-līlāra sūtra kari anukrama
 
@@ -28411,9 +22333,6 @@ Although less intelligent men cannot understand it, this is the special power of
 **I have already given a synopsis of the kaiśora-līlā of Śrī Caitanya Mahāprabhu. Now let me enumerate His youthful pastimes in chronological order.**
 
 ### CC Adi 17.4
-
-> বিদ্যা-সৌন্দর্য-সদ্বেশ-সম্ভোগ-নৃত্য কীর্তনৈঃ ।
-> প্রেমনামপ্রদানৈশ্চ গৌরো দীব্যতি যৌবনে ॥৪॥
 
 > vidyā-saundarya-sad-veśa-
 > sambhoga-nṛtya-kīrtanaiḥ
@@ -28426,9 +22345,6 @@ Although less intelligent men cannot understand it, this is the special power of
 
 ### CC Adi 17.5
 
-> যৌবন-প্রবেশে অঙ্গের অঙ্গ বিভূষণ ।
-> দিব্য বস্ত্র, দিব্য বেশ, মাল্য-চন্দন ॥৫॥
-
 > yauvana-praveśe aṅgera aṅga vibhūṣaṇa
 > divya vastra, divya veśa, mālya-candana
 
@@ -28438,9 +22354,6 @@ Although less intelligent men cannot understand it, this is the special power of
 
 ### CC Adi 17.6
 
-> বিদ্যার ঔদ্ধত্যে কাহোঁ না করে গণন ।
-> সকল পণ্ডিত জিনি’ করে অধ্যাপন ॥৬॥
-
 > vidyāra auddhatye kāhoṅ nā kare gaṇana
 > sakala paṇḍita jini' kare adhyāpana
 
@@ -28449,9 +22362,6 @@ Although less intelligent men cannot understand it, this is the special power of
 **By dint of pride in His education, Śrī Caitanya Mahāprabhu, not caring for anyone else, defeated all kinds of learned scholars while executing His studies.**
 
 ### CC Adi 17.7
-
-> বায়ুব্যাধিচ্ছলে কৈল প্রেম পরকাশ ।
-> ভক্তগণ লঞা কৈল বিবিধ বিলাস ॥৭॥
 
 > vāyu-vyādhi-cchale kaila prema parakāśa
 > bhakta-gaṇa lañā kaila vividha vilāsa
@@ -28466,9 +22376,6 @@ On the plea of disturbance of the bodily air and metabolism, Śrī Caitanya Mah�
 
 ### CC Adi 17.8
 
-> তবেত করিলা প্রভু গয়াতে গমন ।
-> ঈশ্বরপুরীর সঙ্গে তথাই মিলন ॥৮॥
-
 > tabeta karilā prabhu gayāte gamana
 > īśvara-purīra saṅge tathāi milana
 
@@ -28479,9 +22386,6 @@ On the plea of disturbance of the bodily air and metabolism, Śrī Caitanya Mah�
 Śrī Caitanya Mahāprabhu went to Gayā to offer respectful oblations to His forefathers. This process is called *piṇḍa-dāna.* In Vedic society, after the death of a relative, especially one's father or mother, one must go to Gayā and there offer oblations to the lotus feet of Lord Viṣṇu. Therefore hundreds and thousands of men gather in Gayā daily to offer such oblations, or *śrāddha.* Following this principle, Lord Caitanya Mahāprabhu also went there to offer *piṇḍa* to His dead father. Fortunately He met Īśvara Purī there.
 
 ### CC Adi 17.9
-
-> দীক্ষা-অনন্তরে হৈল, প্রেমের প্রকাশ ।
-> দেশে আগমন পুনঃ প্রেমের বিলাস ॥৯॥
 
 > dīkṣā-anantare haila, premera prakāśa
 > deśe āgamana punaḥ premera vilāsa
@@ -28495,9 +22399,6 @@ When Śrī Caitanya Mahāprabhu went to Gayā, accompanied by many of His discip
 The followers of the Lord must be prepared to offer *brāhmaṇas* all due respect. But preachers of Lord Caitanya's cult object if someone presents himself as a *brāhmaṇa* without having the necessary qualifications. The followers of Lord Caitanya cannot blindly accept that everyone born in a *brāhmaṇa* family is a *brāhmaṇa.* Therefore one should not indiscriminately follow the Lord's example of showing respect to *brāhmaṇas* by drinking water that has washed their feet. Gradually the *brāhmaṇa* families have become degraded because of the contamination of Kali-yuga. Thus they misguide people by exploiting their sentiments.
 
 ### CC Adi 17.10
-
-> শচীকে প্রেমদান, তবে অদ্বৈত-মিলন ।
-> অদ্বৈত পাইল বিশ্বরূপ-দরশন ॥১০॥
 
 > śacīke prema-dāna, tabe advaita-milana
 > advaita pāila viśvarūpa-daraśana
@@ -28519,9 +22420,6 @@ After this incident, one day Advaita Ācārya Prabhu requested Caitanya Mahāpra
 
 ### CC Adi 17.11
 
-> প্রভুর অভিষেক তবে করিল শ্রীবাস ।
-> খাটে বসি’ প্রভু কৈলা ঐশ্বর্য প্রকাশ ॥১১॥
-
 > prabhura abhiṣeka tabe karila śrīvāsa
 > khāṭe vasi' prabhu kailā aiśvarya prakāśa
 
@@ -28532,9 +22430,6 @@ After this incident, one day Advaita Ācārya Prabhu requested Caitanya Mahāpra
 Abhiṣeka is a special function for the installation of the Deity. In this ceremony the Deity is bathed with milk and water and then worshiped and given a change of dress. This *abhiṣeka* function was especially observed at the house of Śrīvāsa. All the devotees, according to their means, worshiped the Lord with all kinds of paraphernalia, and the Lord gave benedictions to each devotee according to his desire.
 
 ### CC Adi 17.12
-
-> তবে নিত্যানন্দ-স্বরূপের আগমন ।
-> প্রভুকে মিলিয়া পাইল ষড়্ভুজ-দর্শন ॥১২॥
 
 > tabe nityānanda-svarūpera āgamana
 > prabhuke miliyā pāila ṣaḍ-bhuja-darśana
@@ -28549,9 +22444,6 @@ The form of Ṣaḍ-bhuja, the six-armed Lord Gaurasundara, is a representation 
 
 ### CC Adi 17.13
 
-> প্রথমে ষড়্ভুজ তাঁরে দেখাইল ঈশ্বর ।
-> শঙ্খচক্রগদাপদ্ম-শার্ঙ্গবেণুধর ॥১৩॥
-
 > prathame ṣaḍ-bhuja tāṅre dekhāila īśvara
 > śaṅkha-cakra-gadā-padma-śārṅga-veṇu-dhara
 
@@ -28561,9 +22453,6 @@ The form of Ṣaḍ-bhuja, the six-armed Lord Gaurasundara, is a representation 
 
 ### CC Adi 17.14
 
-> তবে চতুর্ভুজ হৈলা, তিন অঙ্গ বক্র ।
-> দুই হস্তে বেণু বাজায়, দুয়ে শঙ্খ-চক্র ॥১৪॥
-
 > tabe catur-bhuja hailā, tina aṅga vakra
 > dui haste veṇu bājāya, duye śaṅkha-cakra
 
@@ -28572,9 +22461,6 @@ The form of Ṣaḍ-bhuja, the six-armed Lord Gaurasundara, is a representation 
 **Thereafter the Lord showed Him His four-armed form, standing in a three-curved posture. With two hands He played upon a flute, and in the other two He carried a conchshell and disc.**
 
 ### CC Adi 17.15
-
-> তবে ত’ দ্বিভুজ কেবল বংশীবদন ।
-> শ্যাম-অঙ্গ পীতবস্ত্র ব্রজেন্দ্রনন্দন ॥১৫॥
 
 > tabe ta' dvi-bhuja kevala vaṁśī-vadana
 > śyāma-aṅga pīta-vastra vrajendra-nandana
@@ -28587,9 +22473,6 @@ The form of Ṣaḍ-bhuja, the six-armed Lord Gaurasundara, is a representation 
 
 ### CC Adi 17.16
 
-> তবে নিত্যানন্দ-গোসাঞির ব্যাস-পূজন ।
-> নিত্যানন্দাবেশে কৈল মুষল ধারণ ॥১৬॥
-
 > tabe nityānanda-gosāñira vyāsa-pūjana
 > nityānandāveśe kaila muṣala dhāraṇa
 
@@ -28600,9 +22483,6 @@ The form of Ṣaḍ-bhuja, the six-armed Lord Gaurasundara, is a representation 
 By the order of Śrī Caitanya Mahāprabhu, Nityānanda Prabhu arranged for Vyāsa-pūjā of the Lord on the night of the full moon. He arranged for the Vyāsa-pūjā, or *guru-pūjā,* through the agency of Vyāsadeva. Since Vyāsadeva is the original *guru* (spiritual master) of all who follow the Vedic principles, worship of the spiritual master is called Vyāsa-pūjā. Nityānanda Prabhu arranged for the Vyāsa-pūjā, and *saṅkīrtana* was going on, but when He tried to put a garland on the shoulder of Śrī Caitanya Mahāprabhu, He saw Himself in Lord Caitanya. There is no difference between the spiritual positions of Lord Caitanya Mahāprabhu and Nityānanda Prabhu, or Kṛṣṇa and Balarāma. All of Them are but different manifestations of the Supreme Personality of Godhead. During this special ceremony, all the devotees of Lord Caitanya Mahāprabhu could understand that there is no difference between Lord Caitanya and Nityānanda Prabhu.
 
 ### CC Adi 17.17
-
-> তবে শচী দেখিল, রামকৃষ্ণ — দুই ভাই ।
-> তবে নিস্তারিল প্রভু জগাই-মাধাই ॥১৭॥
 
 > tabe śacī dekhila, rāma-kṛṣṇa—dui bhāi
 > tabe nistārila prabhu jagāi-mādhāi
@@ -28617,9 +22497,6 @@ Jagāi and Mādhāi were two brothers born in Navadvīpa in a respectable *brāh
 
 ### CC Adi 17.18
 
-> তবে সপ্তপ্রহর ছিলা প্রভু ভাবাবেশে ।
-> যথা তথা ভক্তগণ দেখিল বিশেষে ॥১৮॥
-
 > tabe sapta-prahara chilā prabhu bhāvāveśe
 > yathā tathā bhakta-gaṇa dekhila viśeṣe
 
@@ -28633,9 +22510,6 @@ Some devotees call this exhibition of ecstasy by the Lord *sāta-prahariyā bhā
 
 ### CC Adi 17.19
 
-> বরাহ-আবেশ হৈলা মুরারি-ভবনে ।
-> তাঁর স্কন্ধে চড়ি’ প্রভু নাচিলা অঙ্গনে ॥১৯॥
-
 > varāha-āveśa hailā murāri-bhavane
 > tāṅra skandhe caḍi' prabhu nācilā aṅgane
 
@@ -28646,9 +22520,6 @@ Some devotees call this exhibition of ecstasy by the Lord *sāta-prahariyā bhā
 One day Caitanya Mahāprabhu began to cry out, "Śūkara! Śūkara!" Thus crying out for the boar incarnation of the Lord, He assumed His form as the boar incarnation and got up on the shoulders of Murāri Gupta. He carried a small *gāḍu,* a small waterpot with a nozzle, and thus He symbolically picked up the earth from the depths of the ocean, for this is the pastime of Lord Varāha.
 
 ### CC Adi 17.20
-
-> তবে শুক্লাম্বরের কৈল তণ্ডুল ভক্ষণ ।
-> ‘হরের্নাম’ শ্লোকের কৈল অর্থ বিবরণ ॥২০॥
 
 > tabe śuklāmbarera kaila taṇḍula-bhakṣaṇa
 > 'harer nāma' ślokera kaila artha vivaraṇa
@@ -28661,9 +22532,6 @@ One day Caitanya Mahāprabhu began to cry out, "Śūkara! Śūkara!" Thus crying
 
 ### CC Adi 17.21
 
-> হরের্নাম হরের্নাম হরের্নামৈব কেবলম্ ।
-> কলৌ নাস্ত্যেব নাস্ত্যেব নাস্ত্যেব গতিরন্যথা ॥২১॥
-
 > harer nāma harer nāma
 > harer nāmaiva kevalam
 > kalau nāsty eva nāsty eva
@@ -28675,9 +22543,6 @@ One day Caitanya Mahāprabhu began to cry out, "Śūkara! Śūkara!" Thus crying
 
 ### CC Adi 17.22
 
-> কলিকালে নামরূপে কৃষ্ণ-অবতার ।
-> নাম হৈতে হয় সর্বজগৎ-নিস্তার ॥২২॥
-
 > kali-kāle nāma-rūpe kṛṣṇa-avatāra
 > nāma haite haya sarva-jagat-nistāra
 
@@ -28686,9 +22551,6 @@ One day Caitanya Mahāprabhu began to cry out, "Śūkara! Śūkara!" Thus crying
 **"In this Age of Kali, the holy name of the Lord, the Hare Kṛṣṇa mahā-mantra, is the incarnation of Lord Kṛṣṇa. Simply by chanting the holy name, one associates with the Lord directly. Anyone who does this is certainly delivered.**
 
 ### CC Adi 17.23
-
-> দার্ঢ্য লাগি’ ‘হরের্নাম’-উক্তি তিনবার ।
-> জড় লোক বুঝাইতে পুনঃ ‘এব’-কার ॥২৩॥
 
 > dārḍhya lāgi' 'harer nāma'-ukti tina-vāra
 > jaḍa loka bujhāite punaḥ 'eva'-kāra
@@ -28701,9 +22563,6 @@ To emphasize something to an ordinary person, one may repeat it three times, jus
 
 ### CC Adi 17.24
 
-> ‘কেবল’ শব্দে পুনরপি নিশ্চয়-করণ ।
-> জ্ঞান-যোগ-তপ কর্ম-আদি নিবারণ ॥২৪॥
-
 > 'kevala'-śabde punarapi niścaya-karaṇa
 > jñāna-yoga-tapa-karma-ādi nivāraṇa
 
@@ -28715,9 +22574,6 @@ Our Kṛṣṇa consciousness movement stresses the chanting of the Hare Kṛṣ
 
 ### CC Adi 17.25
 
-> অন্যথা যে মানে, তার নাহিক নিস্তার ।
-> নাহি, নাহি, নাহি — এ তিন ‘এব’-কার ॥২৫॥
-
 > anyathā ye māne, tāra nāhika nistāra
 > nāhi, nāhi, nāhi—e tina 'eva'-kāra
 
@@ -28726,9 +22582,6 @@ Our Kṛṣṇa consciousness movement stresses the chanting of the Hare Kṛṣ
 **"This verse clearly states that anyone who accepts any other path cannot be delivered. This is the reason for the triple repetition 'nothing else, nothing else, nothing else,' which emphasizes the real process of self-realization.**
 
 ### CC Adi 17.26
-
-> তৃণ হৈতে নীচ হঞা সদা লবে নাম ।
-> আপনি নিরভিমানী, অন্যে দিবে মান ॥২৬॥
 
 > tṛṇa haite nīca hañā sadā labe nāma
 > āpani nirabhimānī, anye dibe māna
@@ -28739,9 +22592,6 @@ Our Kṛṣṇa consciousness movement stresses the chanting of the Hare Kṛṣ
 
 ### CC Adi 17.27
 
-> তরুসম সহিষ্ণুতা বৈষ্ণব করিবে ।
-> ভর্ৎসন-তাড়নে কাকে কিছু না বলিবে ॥২৭॥
-
 > taru-sama sahiṣṇutā vaiṣṇava karibe
 > bhartsana-tāḍane kāke kichu nā balibe
 
@@ -28750,9 +22600,6 @@ Our Kṛṣṇa consciousness movement stresses the chanting of the Hare Kṛṣ
 **"A devotee engaged in chanting the holy name of the Lord should practice forbearance like that of a tree. Even if rebuked or chastised, he should not say anything to others to retaliate.**
 
 ### CC Adi 17.28
-
-> কাটিলেহ তরু যেন কিছু না বোলয় ।
-> শুকাইয়া মরে, তবু জল না মাগয় ॥২৮॥
 
 > kāṭileha taru yena kichu nā bolaya
 > śukāiyā mare, tabu jala nā māgaya
@@ -28765,9 +22612,6 @@ This practice of forbearance (*tṛṇād api sunīcena*) is very difficult, but
 
 ### CC Adi 17.29
 
-> এইমত বৈষ্ণব কারে কিছু না মাগিব ।
-> অযাচিত-বৃত্তি, কিম্বা শাক-ফল খাইব ॥২৯॥
-
 > ei-mata vaiṣṇava kāre kichu nā māgiba
 > ayācita-vṛtti, kiṁvā śāka-phala khāiba
 
@@ -28777,9 +22621,6 @@ This practice of forbearance (*tṛṇād api sunīcena*) is very difficult, but
 
 ### CC Adi 17.30
 
-> সদা নাম লইব, যথা-লাভেতে সন্তোষ ।
-> এইত আচার করে ভক্তিধর্ম-পোষ ॥৩০॥
-
 > sadā nāma la-iba, yathā-lābhete santoṣa
 > eita ācāra kare bhakti-dharma-poṣa
 
@@ -28788,9 +22629,6 @@ This practice of forbearance (*tṛṇād api sunīcena*) is very difficult, but
 **"One should strictly follow the principle of always chanting the holy name, and one should be satisfied with whatever he gets easily. Such devotional behavior solidly maintains one's devotional service.**
 
 ### CC Adi 17.31
-
-> তৃণাদপি সুনীচেন তরোরিব সহিষ্ণুনা ।
-> অমানিনা মানদেন কীর্তনীয়ঃ সদা হরিঃ ॥৩১॥
 
 > tṛṇād api su-nīcena
 > taror iva sahiṣṇunā
@@ -28805,9 +22643,6 @@ The grass is specifically mentioned in this verse because everyone tramples upon
 
 ### CC Adi 17.32
 
-> ঊর্ধ্ববাহু করি’ কহোঁ, শুন, সর্বলোক ।
-> নাম-সূত্রে গাঁথি’ পর কণ্ঠে এই শ্লোক ॥৩২॥
-
 > ūrdhva-bāhu kari' kahoṅ, śuna, sarva-loka
 > nāma-sūtre gāṅthi' para kaṇṭhe ei śloka
 
@@ -28819,9 +22654,6 @@ When chanting the Hare Kṛṣṇa *mahā-mantra,* in the beginning one may comm
 
 ### CC Adi 17.33
 
-> প্রভু-আজ্ঞায় কর এই শ্লোক আচরণ ।
-> অবশ্য পাইবে তবে শ্রীকৃষ্ণ-চরণ ॥৩৩॥
-
 > prabhu-ājñāya kara ei śloka ācaraṇa
 > avaśya pāibe tabe śrī-kṛṣṇa-caraṇa
 
@@ -28831,9 +22663,6 @@ When chanting the Hare Kṛṣṇa *mahā-mantra,* in the beginning one may comm
 
 ### CC Adi 17.34
 
-> তবে প্রভু শ্রীবাসের গৃহে নিরন্তর ।
-> রাত্রে সংকীর্তন কৈল এক সম্বৎসর ॥৩৪॥
-
 > tabe prabhu śrīvāsera gṛhe nirantara
 > rātre saṅkīrtana kaila eka saṁvatsara
 
@@ -28842,9 +22671,6 @@ When chanting the Hare Kṛṣṇa *mahā-mantra,* in the beginning one may comm
 **Śrī Caitanya Mahāprabhu regularly led congregational chanting of the Hare Kṛṣṇa mahā-mantra in the house of Śrīvāsa Ṭhākura every night for one full year.**
 
 ### CC Adi 17.35
-
-> কপাট দিয়া কীর্তন করে পরম আবেশে ।
-> পাষণ্ডী হাসিতে আইসে, না পায় প্রবেশে ॥৩৫॥
 
 > kapāṭa diyā kīrtana kare parama āveśe
 > pāṣaṇḍī hāsite āise, nā pāya praveśe
@@ -28857,9 +22683,6 @@ Chanting of the Hare Kṛṣṇa *mahā-mantra* is open to everyone, but sometim
 
 ### CC Adi 17.36
 
-> কীর্তন শুনি’ বাহিরে তারা জ্বলি’ পুড়ি’ মরে ।
-> শ্রীবাসেরে দুঃখ দিতে নানা যুক্তি করে ॥৩৬॥
-
 > kīrtana śuni' bāhire tārā jvali' puḍi' mare
 > śrīvāsere duḥkha dite nānā yukti kare
 
@@ -28868,11 +22691,6 @@ Chanting of the Hare Kṛṣṇa *mahā-mantra* is open to everyone, but sometim
 **Thus the nonbelievers almost burned to ashes and died in envy. To retaliate, they planned various ways to give trouble to Śrīvāsa Ṭhākura.**
 
 ### CC Adi 17.37-38
-
-> একদিন বিপ্র, নাম — ‘গোপাল চাপাল’ ।
-> পাষণ্ডি-প্রধান সেই দুর্মুখ, বাচাল ॥৩৭॥
-> ভবানী-পূজার সব সামগ্রী লঞা ।
-> রাত্রে শ্রীবাসের দ্বারে স্থান লেপাঞা ॥৩৮॥
 
 > eka-dina vipra, nāma—'gopāla cāpāla'
 > pāṣaṇḍī-pradhāna sei durmukha, vācāla
@@ -28888,9 +22706,6 @@ This *brāhmaṇa,* Gopāla Cāpāla, wanted to defame Śrīvāsa Ṭhākura by 
 
 ### CC Adi 17.39
 
-> কলার পাত উপরে থুইল ওড়-ফুল ।
-> হরিদ্রা, সিন্দূর আর রক্তচন্দন, তণ্ডুল ॥৩৯॥
-
 > kalāra pāta upare thuila oḍa-phula
 > haridrā, sindūra āra rakta-candana, taṇḍula
 
@@ -28899,9 +22714,6 @@ This *brāhmaṇa,* Gopāla Cāpāla, wanted to defame Śrīvāsa Ṭhākura by 
 **On the upper portion of a plantain leaf he placed such paraphernalia for worship as oḍa-phula, turmeric, vermilion, red sandalwood and rice.**
 
 ### CC Adi 17.40
-
-> মদ্যভাণ্ড-পাশে ধরি’ নিজ-ঘরে গেল ।
-> প্রাতঃকালে শ্রীবাস তাহা ত’ দেখিল ॥৪০॥
 
 > madya-bhāṇḍa-pāśe dhari' nija-ghare gela
 > prātaḥ-kāle śrīvāsa tāhā ta' dekhila
@@ -28912,9 +22724,6 @@ This *brāhmaṇa,* Gopāla Cāpāla, wanted to defame Śrīvāsa Ṭhākura by 
 
 ### CC Adi 17.41
 
-> বড় বড় লোক সব আনিল বোলাইয়া ।
-> সবারে কহে শ্রীবাস হাসিয়া হাসিয়া ॥৪১॥
-
 > baḍa baḍa loka saba ānila bolāiyā
 > sabāre kahe śrīvāsa hāsiyā hāsiyā
 
@@ -28923,9 +22732,6 @@ This *brāhmaṇa,* Gopāla Cāpāla, wanted to defame Śrīvāsa Ṭhākura by 
 **Śrīvāsa Ṭhākura called for all the respectable gentlemen of the neighborhood and smilingly addressed them as follows.**
 
 ### CC Adi 17.42
-
-> নিত্য রাত্রে করি আমি ভবানী-পূজন ।
-> আমার মহিমা দেখ, ব্রাহ্মণ-সজ্জন ॥৪২॥
 
 > nitya rātre kari āmi bhavānī-pūjana
 > āmāra mahimā dekha, brāhmaṇa-sajjana
@@ -28938,9 +22744,6 @@ According to the Vedic system there are four castes—the *brāhmaṇas, kṣatr
 
 ### CC Adi 17.43
 
-> তবে সব শিষ্টলোক করে হাহাকার ।
-> ঐছে কর্ম হেথা কৈল কোন্ দুরাচার ॥৪৩॥
-
 > tabe saba śiṣṭa-loka kare hāhākāra
 > aiche karma hethā kaila kon durācāra
 
@@ -28949,9 +22752,6 @@ According to the Vedic system there are four castes—the *brāhmaṇas, kṣatr
 **Then all the assembled gentlemen exclaimed, "What is this? What is this? Who has performed such mischievous activities? Who is that sinful man?"**
 
 ### CC Adi 17.44
-
-> হাড়িকে আনিয়া সব দূর করাইল ।
-> জল-গোময় দিয়া সেই স্থান লেপাইল ॥৪৪॥
 
 > hāḍike āniyā saba dūra karāila
 > jala-gomaya diyā sei sthāna lepāila
@@ -28977,9 +22777,6 @@ Mahatma Gandhi started the *hari-jana* movement to purify the untouchables, but 
 
 ### CC Adi 17.45
 
-> তিন দিন রহি’ সেই গোপাল-চাপাল ।
-> সর্বাঙ্গে হইল কুষ্ঠ, বহে রক্তধার ॥৪৫॥
-
 > tina dina rahi' sei gopāla-cāpāla
 > sarvāṅge ha-ila kuṣṭha, vahe rakta-dhāra
 
@@ -28988,9 +22785,6 @@ Mahatma Gandhi started the *hari-jana* movement to purify the untouchables, but 
 **After three days, leprosy attacked Gopāla Cāpāla, and blood oozed from sores all over his body.**
 
 ### CC Adi 17.46
-
-> সর্বাঙ্গ বেড়িল কীটে, কাটে নিরন্তর ।
-> অসহ্য বেদনা, দুঃখে জ্বলয়ে অন্তর ॥৪৬॥
 
 > sarvāṅga beḍila kīṭe, kāṭe nirantara
 > asahya vedanā, duḥkhe jvalaye antara
@@ -29001,9 +22795,6 @@ Mahatma Gandhi started the *hari-jana* movement to purify the untouchables, but 
 
 ### CC Adi 17.47
 
-> গঙ্গাঘাটে বৃক্ষতলে রহে ত’ বসিয়া ।
-> এক দিন বলে কিছু প্রভুকে দেখিয়া ॥৪৭॥
-
 > gaṅgā-ghāṭe vṛkṣa-tale rahe ta' vasiyā
 > eka dina bale kichu prabhuke dekhiyā
 
@@ -29013,9 +22804,6 @@ Mahatma Gandhi started the *hari-jana* movement to purify the untouchables, but 
 
 ### CC Adi 17.48
 
-> গ্রাম-সম্বন্ধে আমি তোমার মাতুল ।
-> ভাগিনা, মুই কুষ্ঠব্যাধিতে হঞাছি ব্যাকুল ॥৪৮॥
-
 > grāma-sambandhe āmi tomāra mātula
 > bhāginā, mui kuṣṭha-vyādhite hañāchi vyākula
 
@@ -29024,9 +22812,6 @@ Mahatma Gandhi started the *hari-jana* movement to purify the untouchables, but 
 **"My dear nephew, I am Your maternal uncle in our village relationship. Please see how greatly this attack of leprosy has afflicted me.**
 
 ### CC Adi 17.49
-
-> লোক সব উদ্ধারিতে তোমার অবতার ।
-> মুঞি বড় দুখী, মোরে করহ উদ্ধার ॥৪৯॥
 
 > loka saba uddhārite tomāra avatāra
 > muñi baḍa dukhī, more karaha uddhāra
@@ -29039,9 +22824,6 @@ It appears that although Gopāla Cāpāla was sinful, talkative and insulting, h
 
 ### CC Adi 17.50
 
-> এত শুনি’ মহাপ্রভুর হইল ক্রুদ্ধ মন ।
-> ক্রোধাবেশে বলে তারে তর্জন-বচন ॥৫০॥
-
 > eta śuni' mahāprabhura ha-ila kruddha mana
 > krodhāveśe bale tāre tarjana-vacana
 
@@ -29050,9 +22832,6 @@ It appears that although Gopāla Cāpāla was sinful, talkative and insulting, h
 **Hearing this, Caitanya Mahāprabhu appeared greatly angry, and in that angry mood He spoke some words chastising him.**
 
 ### CC Adi 17.51
-
-> আরে পাপি, ভক্তদ্বেষি, তোরে না উদ্ধারিমু ।
-> কোটিজন্ম এই মতে কীড়ায় খাওয়াইমু ॥৫১॥
 
 > āre pāpi, bhakta-dveṣi, tore na uddhārimu
 > koṭi-janma ei mate kīḍāya khāoyāimu
@@ -29064,9 +22843,6 @@ It appears that although Gopāla Cāpāla was sinful, talkative and insulting, h
 We should note herein that all our sufferings in this material world, especially from disease, are due to our past sinful activities. And of all sinful activities, actions directed against a pure devotee out of sheer envy are considered extremely severe. Śrī Caitanya Mahāprabhu wanted Gopāla Cāpāla to understand the cause of his suffering. Any person who disturbs a pure devotee engaged in broadcasting the holy name of the Lord is certainly punished like Gopāla Cāpāla. This is the instruction of Śrī Caitanya Mahāprabhu. As we shall see, one who offends a pure devotee can never satisfy Caitanya Mahāprabhu unless and until he sincerely regrets his offense and thus rectifies it.
 
 ### CC Adi 17.52
-
-> শ্রীবাসে করাইলি তুই ভবানী-পূজন ।
-> কোটি জন্ম হবে তোর রৌরবে পতন ॥৫২॥
 
 > śrīvāse karāili tui bhavānī-pūjana
 > koṭi janma habe tora raurave patana
@@ -29080,9 +22856,6 @@ There are many tantric followers who practice the black art of worshiping the go
 Many rascals say that whatever way one accepts, one will ultimately reach Brahman. Yet we can see from this verse how such persons reach Brahman. Brahman spreads everywhere, but appreciation of Brahman in different objects leads to different results. In the *Bhagavad-gītā* [[bg/4/11|(Bg. 4.11)]] the Lord says, *ye yathā māṁ prapadyante tāṁs tathaiva bhajāmy aham:* "I reward everyone according to his surrender unto Me." Māyāvādīs certainly realize Brahman in certain aspects, but realization of Brahman in the aspects of wine, women and meat is not the same realization of Brahman that devotees achieve by chanting, dancing and eating *prasāda.* Māyāvādī philosophers, being educated in paltry knowledge, think all sorts of Brahman realization one and the same and do not consider varieties. But although Kṛṣṇa is everywhere, by His inconceivable potency He is simultaneously not everywhere. Thus the Brahman realization of the tantric cult is not the same Brahman realization as that of pure devotees. Unless one reaches the highest point of Brahman realization, Kṛṣṇa consciousness, he is punishable. All people except Kṛṣṇa conscious devotees are to some proportion *pāṣaṇḍīs,* or demons, and thus they are punishable by the Supreme Lord, the Personality of Godhead, as stated below.
 
 ### CC Adi 17.53
-
-> পাষণ্ডী সংহারিতে মোর এই অবতার ।
-> পাষণ্ডী সংহারি’ ভক্তি করিমু প্রচার ॥৫৩॥
 
 > pāṣaṇḍī saṁhārite mora ei avatāra
 > pāṣaṇḍī saṁhāri' bhakti karimu pracāra
@@ -29111,9 +22884,6 @@ Atheists are punishable, whereas devotees are to be protected. To maintain this 
 
 ### CC Adi 17.54
 
-> এত বলি’ গেলা প্রভু করিতে গঙ্গাস্নান ।
-> সেই পাপী দুঃখ ভোগে, না যায় পরাণ ॥৫৪॥
-
 > eta bali' gelā prabhu karite gaṅgā-snāna
 > sei pāpī duḥkha bhoge, nā yāya parāṇa
 
@@ -29124,11 +22894,6 @@ Atheists are punishable, whereas devotees are to be protected. To maintain this 
 It appears that an offender to a Vaiṣṇava continues to suffer and does not give up his life. We have actually seen that a great *vaiṣṇava-aparādhī* is continuously suffering so much that it is difficult for him to move, and yet he does not die.
 
 ### CC Adi 17.55-56
-
-> সন্ন্যাস করিয়া যবে প্রভু নীলাচলে গেলা ।
-> তথা হৈতে যবে কুলিয়া গ্রামে আইলা ॥৫৫॥
-> তবে সেই পাপী প্রভুর লইল শরণ ।
-> হিত উপদেশ কৈল হইয়া করুণ ॥৫৬॥
 
 > sannyāsa kariyā yabe prabhu nīlācale gelā
 > tathā haite yabe kuliyā grāme āilā
@@ -29144,11 +22909,6 @@ It appears that an offender to a Vaiṣṇava continues to suffer and does not g
 
 ### CC Adi 17.57-58
 
-> শ্রীবাস পণ্ডিতের স্থানে আছে অপরাধ ।
-> তথা যাহ, তেঁহো যদি করেন প্রসাদ ॥৫৭॥
-> তবে তোর হবে এই পাপ-বিমোচন ।
-> যদি পুনঃ ঐছে নাহি কর আচরণ ॥৫৮॥
-
 > śrīvāsa paṇḍitera sthāne āche aparādha
 > tathā yāha, teṅho yadi karena prasāda
 
@@ -29161,9 +22921,6 @@ It appears that an offender to a Vaiṣṇava continues to suffer and does not g
 
 ### CC Adi 17.59
 
-> তবে বিপ্র লইল আসি শ্রীবাস শরণ ।
-> তাঁহার কৃপায় হৈল পাপ-বিমোচন ॥৫৯॥
-
 > tabe vipra la-ila āsi śrīvāsa śaraṇa
 > tāṅhāra kṛpāya haila pāpa-vimocana
 
@@ -29172,9 +22929,6 @@ It appears that an offender to a Vaiṣṇava continues to suffer and does not g
 **Then the brāhmaṇa, Gopāla Cāpāla, went to Śrīvāsa Ṭhākura and took shelter of his lotus feet, and by Śrīvāsa Ṭhākura's mercy he was freed from all sinful reactions.**
 
 ### CC Adi 17.60
-
-> আর এক বিপ্র আইল কীর্তন দেখিতে ।
-> দ্বারে কপাট, — না পাইল ভিতরে যাইতে ॥৬০॥
 
 > āra eka vipra āila kīrtana dekhite
 > dvāre kapāṭa,—nā pāila bhitare yāite
@@ -29185,9 +22939,6 @@ It appears that an offender to a Vaiṣṇava continues to suffer and does not g
 
 ### CC Adi 17.61
 
-> ফিরি’ গেল বিপ্র ঘরে মনে দুঃখ পাঞা ।
-> আর দিন প্রভুকে কহে গঙ্গায় লাগ পাঞা ॥৬১॥
-
 > phiri' gela vipra ghare mane duḥkha pāñā
 > āra dina prabhuke kahe gaṅgāya lāga pāñā
 
@@ -29196,9 +22947,6 @@ It appears that an offender to a Vaiṣṇava continues to suffer and does not g
 **He returned home with an unhappy mind, but on the next day he met Lord Caitanya on the bank of the Ganges and spoke to Him.**
 
 ### CC Adi 17.62
-
-> শাপিব তোমারে মুঞি, পাঞাছি মনোদুঃখ ।
-> পৈতা ছিণ্ডিয়া শাপে প্রচণ্ড দুর্মুখ ॥৬২॥
 
 > śāpiba tomāre muñi, pāñāchi mano-duḥkha
 > paitā chiṇḍiyā śāpe pracaṇḍa durmukha
@@ -29209,9 +22957,6 @@ It appears that an offender to a Vaiṣṇava continues to suffer and does not g
 
 ### CC Adi 17.63
 
-> সংসার-সুখ তোমার হউক বিনাশ ।
-> শাপ শুনি’ প্রভুর চিত্তে হইল উল্লাস ॥৬৩॥
-
 > saṁsāra-sukha tomāra ha-uka vināśa
 > śāpa śuni' prabhura citte ha-ila ullāsa
 
@@ -29220,9 +22965,6 @@ It appears that an offender to a Vaiṣṇava continues to suffer and does not g
 **The brāhmaṇa cursed the Lord, "You shall be bereft of all material happiness!" When the Lord heard this, He felt great jubilation within Himself.**
 
 ### CC Adi 17.64
-
-> প্রভুর শাপ-বার্তা যেই শুনে শ্রদ্ধাবান্ ।
-> ব্রহ্মশাপ হৈতে তার হয় পরিত্রাণ ॥৬৪॥
 
 > prabhura śāpa-vārtā yei śune śraddhāvān
 > brahma-śāpa haite tāra haya paritrāṇa
@@ -29235,9 +22977,6 @@ One should know with firm conviction that the Lord, being transcendental, is nev
 
 ### CC Adi 17.65
 
-> মুকুন্দ-দত্তেরে কৈল দণ্ড-পরসাদ ।
-> খণ্ডিল তাহার চিত্তের সব অবসাদ ॥৬৫॥
-
 > mukunda-dattere kaila daṇḍa-parasāda
 > khaṇḍila tāhāra cittera saba avasāda
 
@@ -29249,9 +22988,6 @@ Mukunda Datta was once forbidden to enter the association of Śri Caitanya Mahā
 
 ### CC Adi 17.66
 
-> আচার্য গোসাঞিরে প্রভু করে গুরুভক্তি ।
-> তাহাতে আচার্য বড় হয় দুঃখমতি ॥৬৬॥
-
 > ācārya-gosāñire prabhu kare guru-bhakti
 > tāhāte ācārya baḍa haya duḥkha-mati
 
@@ -29261,9 +22997,6 @@ Mukunda Datta was once forbidden to enter the association of Śri Caitanya Mahā
 
 ### CC Adi 17.67
 
-> ভঙ্গী করি’ জ্ঞানমার্গ করিল ব্যাখ্যান ।
-> ক্রোধাবেশে প্রভু তারে কৈল অবজ্ঞান ॥৬৭॥
-
 > bhaṅgī kari' jñāna-mārga karila vyākhyāna
 > krodhāveśe prabhu tāre kaila avajñāna
 
@@ -29272,9 +23005,6 @@ Mukunda Datta was once forbidden to enter the association of Śri Caitanya Mahā
 **Thus He whimsically began to explain the path of philosophical speculation, and the Lord, in His anger, seemingly disrespected Him.**
 
 ### CC Adi 17.68
-
-> তবে আচার্য-গোসাঞির আনন্দ হইল ।
-> লজ্জিত হইয়া প্রভু প্রসাদ করিল ॥৬৮॥
 
 > tabe ācārya-gosāñira ānanda ha-ila
 > lajjita ha-iyā prabhu prasāda karila
@@ -29287,9 +23017,6 @@ Advaita Ācārya was a disciple of Mādhavendra Purī, Īśvara Purī's spiritua
 
 ### CC Adi 17.69
 
-> মুরারিগুপ্ত-মুখে শুনি’ রাম-গুণগ্রাম ।
-> ললাটে লিখিল তাঁর ‘রামদাস’ নাম ॥৬৯॥
-
 > murāri-gupta-mukhe śuni' rāma-guṇa-grāma
 > lalāṭe likhila tāṅra 'rāmadāsa' nāma
 
@@ -29298,9 +23025,6 @@ Advaita Ācārya was a disciple of Mādhavendra Purī, Īśvara Purī's spiritua
 **Murāri Gupta was a great devotee of Lord Rāmacandra. When Lord Caitanya heard Lord Rāmacandra's glories from his mouth, He immediately wrote on his forehead "rāmadāsa" [the eternal servant of Lord Rāmacandra].**
 
 ### CC Adi 17.70
-
-> শ্রীধরের লৌহপাত্রে কৈল জলপান ।
-> সমস্ত ভক্তেরে দিল ইষ্ট বরদান ॥৭০॥
 
 > śrīdharera lauha-pātre kaila jala-pāna
 > samasta bhaktere dila iṣṭa vara-dāna
@@ -29313,9 +23037,6 @@ After the mass *nagara-saṅkīrtana* in protest against the magistrate Chand Ka
 
 ### CC Adi 17.71
 
-> হরিদাস ঠাকুরেরে করিল প্রসাদ ।
-> আচার্য-স্থানে মাতার খণ্ডাইল অপরাধ ॥৭১॥
-
 > haridāsa ṭhākurere karila prasāda
 > ācārya-sthāne mātāra khaṇḍāila aparādha
 
@@ -29327,9 +23048,6 @@ On the *mahā-prakāśa* day, Lord Caitanya Mahāprabhu embraced Haridāsa Ṭh�
 
 ### CC Adi 17.72
 
-> ভক্তগণে প্রভু নাম-মহিমা কহিল ।
-> শুনিয়া পড়ুয়া তাহাঁ অর্থবাদ কৈল ॥৭২॥
-
 > bhakta-gaṇe prabhu nāma-mahimā kahila
 > śuniyā paḍuyā tāhāṅ artha-vāda kaila
 
@@ -29338,9 +23056,6 @@ On the *mahā-prakāśa* day, Lord Caitanya Mahāprabhu embraced Haridāsa Ṭh�
 **Once the Lord explained the glories of the holy name to the devotees, but some ordinary students who heard Him fashioned their own interpretation.**
 
 ### CC Adi 17.73
-
-> নামে স্তুতিবাদ শুনি’ প্রভুর হৈল দুঃখ ।
-> সবারে নিষেধিল, — ইহার না দেখিহ মুখ ॥৭৩॥
 
 > nāme stuti-vāda śuni' prabhura haila duḥkha
 > sabāre niṣedhila,—ihāra nā dekhiha mukha
@@ -29353,9 +23068,6 @@ When Śrī Caitanya Mahāprabhu explained the glories of the transcendental pote
 
 ### CC Adi 17.74
 
-> সগণে সচেলে গিয়া কৈল গঙ্গাস্নান ।
-> ভক্তির মহিমা তাহাঁ করিল ব্যাখ্যান ॥৭৪॥
-
 > sagaṇe sacele giyā kaila gaṅgā-snāna
 > bhaktira mahimā tāhāṅ karila vyākhyāna
 
@@ -29365,9 +23077,6 @@ When Śrī Caitanya Mahāprabhu explained the glories of the transcendental pote
 
 ### CC Adi 17.75
 
-> জ্ঞান-কর্ম-যোগ-ধর্মে নহে কৃষ্ণ বশ ।
-> কৃষ্ণবশ-হেতু এক — প্রেমভক্তি-রস ॥৭৫॥
-
 > jñāna-karma-yoga-dharme nahe kṛṣṇa vaśa
 > kṛṣṇa-vaśa-hetu eka—prema-bhakti-rasa
 
@@ -29376,9 +23085,6 @@ When Śrī Caitanya Mahāprabhu explained the glories of the transcendental pote
 **"By following the paths of speculative philosophical knowledge, fruitive activity or mystic yoga to control the senses, one cannot satisfy Kṛṣṇa, the Supreme Lord. Unalloyed devotional love for Kṛṣṇa is the only cause for the Lord's satisfaction.**
 
 ### CC Adi 17.76
-
-> ন সাধয়তি মাং যোগো ন সাঙ্খ্যং ধর্ম উদ্ধব ।
-> ন স্বাধ্যায়স্তপস্ত্যাগো যথা ভক্তির্মমোর্জিতা ॥৭৬॥
 
 > na sādhayati māṁ yogo
 > na sāṅkhyaṁ dharma uddhava
@@ -29393,9 +23099,6 @@ Karmīs, jñānīs, yogīs, tapasvīs and students of Vedic literature who do no
 
 ### CC Adi 17.77
 
-> মুরারিকে কহে তুমি কৃষ্ণ বশ কৈলা ।
-> শুনিয়া মুরারি শ্লোক কহিতে লাগিলা ॥৭৭॥
-
 > murārike kahe tumi kṛṣṇa vaśa kailā
 > śuniyā murāri śloka kahite lāgilā
 
@@ -29404,9 +23107,6 @@ Karmīs, jñānīs, yogīs, tapasvīs and students of Vedic literature who do no
 **Lord Caitanya then praised Murāri Gupta, saying, "You have satisfied Lord Kṛṣṇa." Hearing this, Murāri Gupta quoted a verse from Śrīmad-Bhāgavatam.**
 
 ### CC Adi 17.78
-
-> ক্বাহং দরিদ্রঃ পাপীয়ান্ ক্ব কৃষ্ণঃ শ্রীনিকেতনঃ ।
-> ব্রহ্মবন্ধুরিতি স্মাহং বাহুভ্যাং পরিরম্ভিতঃ ॥৭৮॥
 
 > kvāhaṁ daridraḥ pāpīyān
 > kva kṛṣṇaḥ śrī-niketanaḥ
@@ -29428,9 +23128,6 @@ The members of the International Society for Krishna Consciousness cannot even c
 
 ### CC Adi 17.79
 
-> একদিন প্রভু সব ভক্তগণ লঞা ।
-> সংকীর্তন করি’ বৈসে শ্রমযুক্ত হঞা ॥৭৯॥
-
 > eka-dina prabhu saba bhakta-gaṇa lañā
 > saṅkīrtana kari' vaise śrama-yukta hañā
 
@@ -29439,9 +23136,6 @@ The members of the International Society for Krishna Consciousness cannot even c
 **One day the Lord performed saṅkīrtana with all His devotees, and when they were greatly fatigued they sat down.**
 
 ### CC Adi 17.80
-
-> এক আম্রবীজ প্রভু অঙ্গনে রোপিল ।
-> তৎক্ষণে জন্মিল বৃক্ষ বাড়িতে লাগিল ॥৮০॥
 
 > eka āmra-bīja prabhu aṅgane ropila
 > tat-kṣaṇe janmila vṛkṣa bāḍite lāgila
@@ -29452,9 +23146,6 @@ The members of the International Society for Krishna Consciousness cannot even c
 
 ### CC Adi 17.81
 
-> দেখিতে দেখিতে বৃক্ষ হইল ফলিত ।
-> পাকিল অনেক ফল, সবেই বিস্মিত ॥৮১॥
-
 > dekhite dekhite vṛkṣa ha-ila phalita
 > pākila aneka phala, sabei vismita
 
@@ -29464,9 +23155,6 @@ The members of the International Society for Krishna Consciousness cannot even c
 
 ### CC Adi 17.82
 
-> শত দুই ফল প্রভু শীঘ্র পাড়াইল ।
-> প্রক্ষালন করি’ কৃষ্ণে ভোগ লাগাইল ॥৮২॥
-
 > śata dui phala prabhu śīghra pāḍāila
 > prakṣālana kari' kṛṣṇe bhoga lāgāila
 
@@ -29475,9 +23163,6 @@ The members of the International Society for Krishna Consciousness cannot even c
 **The Lord immediately picked about two hundred fruits, and after washing them He offered them to Kṛṣṇa to eat.**
 
 ### CC Adi 17.83
-
-> রক্ত-পীতবর্ণ, — নাহি অষ্ঠি-বল্কল ।
-> এক জনের পেট ভরে খাইলে এক ফল ॥৮৩॥
 
 > rakta-pīta-varṇa,—nāhi aṣṭhi-valkala
 > eka janera peṭa bhare khāile eka phala
@@ -29490,9 +23175,6 @@ In India a mango is considered best when it is red and yellow, its seed is very 
 
 ### CC Adi 17.84
 
-> দেখিয়া সন্তুষ্ট হৈলা শচীর নন্দন ।
-> সবাকে খাওয়াল আগে করিয়া ভক্ষণ ॥৮৪॥
-
 > dekhiyā santuṣṭa hailā śacīra nandana
 > sabāke khāoyāla āge kariyā bhakṣaṇa
 
@@ -29501,9 +23183,6 @@ In India a mango is considered best when it is red and yellow, its seed is very 
 **Seeing the quality of the mangoes, the Lord was greatly satisfied, and thus after eating first, He fed all the other devotees.**
 
 ### CC Adi 17.85
-
-> অষ্ঠি-বল্কল নাহি, — অমৃত-রসময় ।
-> এক ফল খাইলে রসে উদর পূরয় ॥৮৫॥
 
 > aṣṭhi-valkala nāhi,—amṛta-rasamaya
 > eka phala khāile rase udara pūraya
@@ -29514,9 +23193,6 @@ In India a mango is considered best when it is red and yellow, its seed is very 
 
 ### CC Adi 17.86
 
-> এইমত প্রতিদিন ফলে বার মাস ।
-> বৈষ্ণব খায়েন ফল, — প্রভুর উল্লাস ॥৮৬॥
-
 > ei-mata pratidina phale bāra māsa
 > vaiṣṇava khāyena phala,—prabhura ullāsa
 
@@ -29525,9 +23201,6 @@ In India a mango is considered best when it is red and yellow, its seed is very 
 **In this way, fruits grew on the tree every day throughout the twelve months of the year, and the Vaiṣṇavas used to eat them, to the Lord's great satisfaction.**
 
 ### CC Adi 17.87
-
-> এই সব লীলা করে শচীর নন্দন ।
-> অন্য লোক নাহি জানে বিনা ভক্তগণ ॥৮৭॥
 
 > ei saba līlā kare śacīra nandana
 > anya loka nāhi jāne vinā bhakta-gaṇa
@@ -29540,9 +23213,6 @@ Nondevotees cannot believe this incident, yet the place where the tree grew stil
 
 ### CC Adi 17.88
 
-> এই মত বারমাস কীর্তন-অবসানে ।
-> আম্রমহোৎসব প্রভু করে দিনে দিনে ॥৮৮॥
-
 > ei mata bāra-māsa kīrtana-avasāne
 > āmra-mahotsava prabhu kare dine dine
 
@@ -29553,9 +23223,6 @@ Nondevotees cannot believe this incident, yet the place where the tree grew stil
 On principle, Lord Caitanya Mahāprabhu would distribute *prasāda* at the end of *kīrtana* performances. Similarly, the members of the Kṛṣṇa consciousness movement must distribute some *prasāda* to the audience after performing *kīrtana.*
 
 ### CC Adi 17.89
-
-> কীর্তন করিতে প্রভু আইল মেঘগণ ।
-> আপন-ইচ্ছায় কৈল মেঘ নিবারণ ॥৮৯॥
 
 > kīrtana karite prabhu āila megha-gaṇa
 > āpana-icchāya kaila megha nivāraṇa
@@ -29568,9 +23235,6 @@ In this connection Śrīla Bhaktivinoda Ṭhākura says that once when Lord Cait
 
 ### CC Adi 17.90
 
-> একদিন প্রভু শ্রীবাসেরে আজ্ঞা দিল ।
-> ‘বৃহৎ সহস্রনাম’ পড়, শুনিতে মন হৈল ॥৯০॥
-
 > eka-dina prabhu śrīvāsere ājñā dila
 > 'bṛhat sahasra-nāma' paḍa, śunite mana haila
 
@@ -29579,9 +23243,6 @@ In this connection Śrīla Bhaktivinoda Ṭhākura says that once when Lord Cait
 **One day the Lord ordered Śrīvāsa Ṭhākura to read the Bṛhat-sahasra-nāma [the thousand names of Lord Viṣṇu], for He wanted to hear them at that time.**
 
 ### CC Adi 17.91
-
-> পড়িতে আইলা স্তবে নৃসিংহের নাম ।
-> শুনিয়া আবিষ্ট হৈলা প্রভু গৌরধাম ॥৯১॥
 
 > paḍite āilā stave nṛsiṁhera nāma
 > śuniyā āviṣṭa hailā prabhu gauradhāma
@@ -29594,9 +23255,6 @@ The *Caitanya-maṅgala, Madhya-khaṇḍa,* describes this incident as follows:
 
 ### CC Adi 17.92
 
-> নৃসিংহ-আবেশে প্রভু হাতে গদা লঞা ।
-> পাষণ্ডী মারিতে যায় নগরে ধাইয়া ॥৯২॥
-
 > nṛsiṁha-āveśe prabhu hāte gadā lañā
 > pāṣaṇḍī mārite yāya nagare dhāiyā
 
@@ -29605,9 +23263,6 @@ The *Caitanya-maṅgala, Madhya-khaṇḍa,* describes this incident as follows:
 **In the mood of Lord Nṛsiṁhadeva, Lord Caitanya ran through the city streets, club in hand, ready to kill all the atheists.**
 
 ### CC Adi 17.93
-
-> নৃসিংহ-আবেশ দেখি’ মহাতেজোময় ।
-> পথ ছাড়ি’ ভাগে লোক পাঞা বড় ভয় ॥৯৩॥
 
 > nṛsīṁha-āveśa dekhi' mahā-tejomaya
 > patha chāḍi' bhāge loka pāñā baḍa bhaya
@@ -29618,9 +23273,6 @@ The *Caitanya-maṅgala, Madhya-khaṇḍa,* describes this incident as follows:
 
 ### CC Adi 17.94
 
-> লোক-ভয় দেখি’ প্রভুর বাহ্য হইল ।
-> শ্রীবাস-গৃহেতে গিয়া গদা ফেলাইল ॥৯৪॥
-
 > loka-bhaya dekhi' prabhura bāhya ha-ila
 > śrīvāsa-gṛhete giyā gadā phelāila
 
@@ -29629,9 +23281,6 @@ The *Caitanya-maṅgala, Madhya-khaṇḍa,* describes this incident as follows:
 **Seeing the people so afraid, the Lord came to His external senses and thus returned to the house of Śrīvāsa Ṭhākura and threw away the club.**
 
 ### CC Adi 17.95
-
-> শ্রীবাসে কহেন প্রভু করিয়া বিষাদ ।
-> লোক ভয় পায়, — মোর হয় অপরাধ ॥৯৫॥
 
 > śrīvāse kahena prabhu kariyā viṣāda
 > loka bhaya pāya,—mora haya aparādha
@@ -29642,9 +23291,6 @@ The *Caitanya-maṅgala, Madhya-khaṇḍa,* describes this incident as follows:
 
 ### CC Adi 17.96
 
-> শ্রীবাস বলেন, — যে তোমার নাম লয় ।
-> তার কোটি অপরাধ সব হয় ক্ষয় ॥৯৬॥
-
 > śrīvāsa balena,—ye tomāra nāma laya
 > tāra koṭi aparādha saba haya kṣaya
 
@@ -29653,9 +23299,6 @@ The *Caitanya-maṅgala, Madhya-khaṇḍa,* describes this incident as follows:
 **Śrīvāsa Ṭhākura replied, "Anyone who takes Your holy name vanquishes ten million of his offenses immediately.**
 
 ### CC Adi 17.97
-
-> অপরাধ নাহি, কৈলে লোকের নিস্তার ।
-> যে তোমা’ দেখিল, তার ছুটিল সংসার ॥৯৭॥
 
 > aparādha nāhi, kaile lokera nistāra
 > ye tomā' dekhila, tāra chuṭila saṁsāra
@@ -29666,9 +23309,6 @@ The *Caitanya-maṅgala, Madhya-khaṇḍa,* describes this incident as follows:
 
 ### CC Adi 17.98
 
-> এত বলি’ শ্রীবাস করিল সেবন ।
-> তুষ্ট হঞা প্রভু আইলা আপন-ভবন ॥৯৮॥
-
 > eta bali' śrīvāsa karila sevana
 > tuṣṭa hañā prabhu āilā āpana-bhavana
 
@@ -29678,9 +23318,6 @@ The *Caitanya-maṅgala, Madhya-khaṇḍa,* describes this incident as follows:
 
 ### CC Adi 17.99
 
-> আর দিন শিবভক্ত শিবগুণ গায় ।
-> প্রভুর অঙ্গনে নাচে, ডমরু বাজায় ॥৯৯॥
-
 > āra dina śiva-bhakta śiva-guṇa gāya
 > prabhura aṅgane nāce, ḍamaru bājāya
 
@@ -29689,9 +23326,6 @@ The *Caitanya-maṅgala, Madhya-khaṇḍa,* describes this incident as follows:
 **On another day a great devotee of Lord Śiva, chanting of Lord Śiva's qualities, came to Lord Caitanya's house, where he began dancing in the courtyard and playing his ḍamaru [a musical instrument].**
 
 ### CC Adi 17.100
-
-> মহেশ-আবেশ হৈলা শচীর নন্দন ।
-> তার স্কন্ধে চড়ি নৃত্য কৈল বহুক্ষণ ॥১০০॥
 
 > maheśa-āveśa hailā śacīra nandana
 > tāra skandhe caḍi nṛtya kaila bahu-kṣaṇa
@@ -29704,9 +23338,6 @@ Lord Caitanya Mahāprabhu adopted the mood of Lord Śiva, for He is Śiva also. 
 
 ### CC Adi 17.101
 
-> আর দিন এক ভিক্ষুক আইলা মাগিতে ।
-> প্রভুর নৃত্য দেখি নৃত্য লাগিল করিতে ॥১০১॥
-
 > āra dina eka bhikṣuka āilā māgite
 > prabhura nṛtya dekhi nṛtya lāgila karite
 
@@ -29716,9 +23347,6 @@ Lord Caitanya Mahāprabhu adopted the mood of Lord Śiva, for He is Śiva also. 
 
 ### CC Adi 17.102
 
-> প্রভু-সঙ্গে নৃত্য করে পরম উল্লাসে ।
-> প্রভু তারে প্রেম দিল, প্রেমরসে ভাসে ॥১০২॥
-
 > prabhu-saṅge nṛtya kare parama ullāse
 > prabhu tāre prema dila, prema-rase bhāse
 
@@ -29727,9 +23355,6 @@ Lord Caitanya Mahāprabhu adopted the mood of Lord Śiva, for He is Śiva also. 
 **He danced with the Lord because he was favored by love of Kṛṣṇa. Thus he flowed in the mellows of love of Godhead.**
 
 ### CC Adi 17.103
-
-> আর দিনে জ্যোতিষ সর্বজ্ঞ এক আইল ।
-> তাহারে সম্মান করি’ প্রভু প্রশ্ন কৈল ॥১০৩॥
 
 > āra dine jyotiṣa sarva-jña eka āila
 > tāhāre sammāna kari' prabhu praśna kaila
@@ -29744,9 +23369,6 @@ Although the *brāhmaṇa* appeared at Lord Caitanya's house as a beggar, Lord C
 
 ### CC Adi 17.104
 
-> কে আছিলুঁ আমি পূর্বজন্মে কহ গণি’ ।
-> গণিতে লাগিলা সর্বজ্ঞ প্রভুবাক্য শুনি’ ॥১০৪॥
-
 > ke āchiluṅ āmi pūrva janme kaha gaṇi'
 > gaṇite lāgilā sarva-jña prabhu-vākya śuni'
 
@@ -29757,9 +23379,6 @@ Although the *brāhmaṇa* appeared at Lord Caitanya's house as a beggar, Lord C
 Through astrology one can know past, present and future. Modern Western astrologers have no knowledge of the past or future, nor can they perfectly say anything about the present. Herein we find, however, that after hearing Śrī Caitanya Mahāprabhu's order, the astrologer immediately began his calculations. This was not a facade; he actually knew how to ascertain one's past life through astrology. A still-existing treatise called the *Bhṛgu-saṁhitā* describes a system by which anyone can immediately get information about what he was in the past and what he is going to be in the future. The *brāhmaṇas* who went door to door as if beggars had perfect command of such vast knowledge. Thus the highest knowledge was easily available even to the poorest man in society. The poorest man could inquire from an astrologer about his past, present and future, with no need for business agreements or exorbitant payments. The *brāhmaṇa* would give him all the benefit of his knowledge without asking remuneration, and the poor man, in return, would offer a handful of rice, or anything he had in his possession, to satisfy the *brāhmaṇa.* In a perfect human society, perfect knowledge in any science-medical, astrological, ecclesiastical and so on-is available even to the poorest man, with no anxiety over payment. In the present day, however, no one can get justice, medical treatment, astrological help or ecclesiastical enlightenment without money, and since people are generally poor, they are bereft of the benefits of all these great sciences.
 
 ### CC Adi 17.105
-
-> গণি’ ধ্যানে দেখে সর্বজ্ঞ, — মহাজ্যোতির্ময় ।
-> অনন্ত বৈকুণ্ঠ-ব্রহ্মাণ্ড — সবার আশ্রয় ॥১০৫॥
 
 > gaṇi' dhyāne dekhe sarva-jña,—mahā-jyotirmaya
 > ananta vaikuṇṭha-brahmāṇḍa—sabāra āśraya
@@ -29781,9 +23400,6 @@ As there are many planets within the material world, there are many millions of 
 
 ### CC Adi 17.106
 
-> পরমতত্ত্ব, পরব্রহ্ম, পরম-ঈশ্বর ।
-> দেখি’ প্রভুর মূর্তি সর্বজ্ঞ হইল ফাঁফর ॥১০৬॥
-
 > parama-tattva, para-brahma, parama-īśvara
 > dekhi' prabhura mūrti sarva-jña ha-ila phāṅphara
 
@@ -29795,9 +23411,6 @@ Herein it is clearly indicated that the Absolute Truth, the Supreme Brahman, is,
 
 ### CC Adi 17.107
 
-> বলিতে না পারে কিছু, মৌন হইল ।
-> প্রভু পুনঃ প্রশ্ন কৈল, কহিতে লাগিল ॥১০৭॥
-
 > balite nā pāre kichu, mauna ha-ila
 > prabhu punaḥ praśna kaila, kahite lāgila
 
@@ -29807,9 +23420,6 @@ Herein it is clearly indicated that the Absolute Truth, the Supreme Brahman, is,
 
 ### CC Adi 17.108
 
-> পূর্বজন্মে ছিলা তুমি জগৎ-আশ্রয় ।
-> পরিপূর্ণ ভগবান্ — সর্বৈশ্বর্যময় ॥১০৮॥
-
 > pūrva janme chilā tumi jagat-āśraya
 > paripūrṇa bhagavān—sarvaiśvaryamaya
 
@@ -29818,9 +23428,6 @@ Herein it is clearly indicated that the Absolute Truth, the Supreme Brahman, is,
 **"My dear sir, in Your previous birth You were the shelter of all creation, the Supreme Personality of Godhead, full of all opulences.**
 
 ### CC Adi 17.109
-
-> পূর্বে যৈছে ছিলা তুমি এবেহ সেরূপ ।
-> দুর্বিজ্ঞেয় নিত্যানন্দ — তোমার স্বরূপ ॥১০৯॥
 
 > pūrve yaiche chilā tumi ebeha se-rūpa
 > durvijñeya nityānanda—tomāra svarūpa
@@ -29833,9 +23440,6 @@ By the power of astrological science one can even ascertain the position of the 
 
 ### CC Adi 17.110
 
-> প্রভু হাসি’ কৈলা, — তুমি কিছু না জানিলা ।
-> পূর্বে আমি আছিলাঙ জাতিতে গোয়ালা ॥১১০॥
-
 > prabhu hāsi' kailā,—tumi kichu nā jānilā
 > pūrve āmi āchilāṅ jātite goyālā
 
@@ -29844,9 +23448,6 @@ By the power of astrological science one can even ascertain the position of the 
 **When the astrologer was speaking so highly of Him, Śrī Caitanya Mahāprabhu stopped him and began to smile. "My dear sir," He said, "I think you do not know very clearly what I was, for I know that in My previous birth I was a cowherd boy.**
 
 ### CC Adi 17.111
-
-> গোপগৃহে জন্ম ছিল, গাভীর রাখাল ।
-> সেই পুণ্যে হৈলাঙ এবে ব্রাহ্মণ-ছাওয়াল ॥১১১॥
 
 > gopa-gṛhe janma chila, gābhīra rākhāla
 > sei puṇye hailāṅ ebe brāhmaṇa-chāoyāla
@@ -29859,9 +23460,6 @@ The words of Lord Caitanya Mahāprabhu, the greatest authority, herein clearly i
 
 ### CC Adi 17.112
 
-> সর্বজ্ঞ কহে আমি তাহা ধ্যানে দেখিলাঙ ।
-> তাহাতে ঐশ্বর্য দেখি’ ফাঁফর হইলাঙ ॥১১২॥
-
 > sarva-jña kahe āmi tāhā dhyāne dekhilāṅ
 > tāhāte aiśvarya dekhi' phāṅphara ha-ilāṅ
 
@@ -29872,9 +23470,6 @@ The words of Lord Caitanya Mahāprabhu, the greatest authority, herein clearly i
 It appears that the astrologer not only was a knower of past, present and future through astrological calculation, but was a great meditator as well. Therefore he was a great devotee and could see Lord Caitanya Mahāprabhu to be the same personality as Kṛṣṇa. He was puzzled, however, about whether Kṛṣṇa and Śrī Caitanya Mahāprabhu were actually the same person.
 
 ### CC Adi 17.113
-
-> সেইরূপে এইরূপে দেখি একাকার ।
-> কভু ভেদ দেখি, এই মায়ায় তোমার ॥১১৩॥
 
 > sei-rūpe ei-rūpe dekhi ekākāra
 > kabhu bheda dekhi, ei māyāya tomāra
@@ -29887,9 +23482,6 @@ It appears that the astrologer not only was a knower of past, present and future
 
 ### CC Adi 17.114
 
-> যে হও, সে হও তুমি, তোমাকে নমস্কার ।।
-> প্রভু তারে প্রেম দিয়া কৈল পুরস্কার ॥১১৪॥
-
 > ye hao, se hao tumi, tomāke namaskāra
 > prabhu tāre prema diyā kaila puraskāra
 
@@ -29901,9 +23493,6 @@ The incident of Lord Caitanya's meeting the all-knowing astrologer is not mentio
 
 ### CC Adi 17.115
 
-> এক দিন প্রভু বিষ্ণুমণ্ডপে বসিয়া ।
-> ‘মধু আন’, ‘মধু আন’ বলেন ডাকিয়া ॥১১৫॥
-
 > eka dina prabhu viṣṇu-maṇḍape vasiyā
 > 'madhu āna', 'madhu āna' balena ḍākiyā
 
@@ -29913,9 +23502,6 @@ The incident of Lord Caitanya's meeting the all-knowing astrologer is not mentio
 
 ### CC Adi 17.116
 
-> নিত্যানন্দ-গোসাঞি প্রভুর আবেশ জানিল ।
-> গঙ্গাজল-পাত্র আনি’ সম্মুখে ধরিল ॥১১৬॥
-
 > nityānanda-gosāñi prabhura āveśa jānila
 > gaṅgā-jala-pātra āni' sammukhe dharila
 
@@ -29924,9 +23510,6 @@ The incident of Lord Caitanya's meeting the all-knowing astrologer is not mentio
 **Nityānanda Prabhu Gosāñi, understanding the ecstatic mood of Śrī Caitanya Mahāprabhu, brought a pot of Ganges water as a token and put it before Him.**
 
 ### CC Adi 17.117
-
-> জল পান করিয়া নাচে হঞা বিহ্বল ।
-> যমুনাকর্ষণ-লীলা দেখয়ে সকল ॥১১৭॥
 
 > jala pāna kariyā nāce hañā vihvala
 > yamunākarṣaṇa-līlā dekhaye sakala
@@ -29943,9 +23526,6 @@ Yamunākarṣaṇa-līlā is the pastime of attracting Yamunā. One day, Śrī B
 
 ### CC Adi 17.118
 
-> মদমত্ত-গতি বলদেব-অনুকার ।
-> আচার্য শেখর তাঁরে দেখে রামাকার ॥১১৮॥
-
 > mada-matta-gati baladeva-anukāra
 > ācārya śekhara tāṅre dekhe rāmākāra
 
@@ -29954,9 +23534,6 @@ Yamunākarṣaṇa-līlā is the pastime of attracting Yamunā. One day, Śrī B
 **When the Lord, in His ecstasy of Baladeva, was moving as if intoxicated by the beverage, Advaita Ācārya, the chief of the ācāryas [ācārya śekhara], saw Him in the form of Balarāma.**
 
 ### CC Adi 17.119
-
-> বনমালী আচার্য দেখে সোণার লাঙ্গল ।
-> সবে মিলি’ নৃত্য করে আবেশে বিহ্বল ॥১১৯॥
 
 > vanamālī ācārya dekhe soṇāra lāṅgala
 > sabe mili' nṛtya kare āveśe vihvala
@@ -29967,9 +23544,6 @@ Yamunākarṣaṇa-līlā is the pastime of attracting Yamunā. One day, Śrī B
 
 ### CC Adi 17.120
 
-> এইমত নৃত্য হইল চারি প্রহর ।
-> সন্ধ্যায় গঙ্গাস্নান করি’ সবে গেলা ঘর ॥১২০॥
-
 > ei-mata nṛtya ha-ila cāri prahara
 > sandhyāya gaṅgā-snāna kari' sabe gelā ghara
 
@@ -29978,9 +23552,6 @@ Yamunākarṣaṇa-līlā is the pastime of attracting Yamunā. One day, Śrī B
 **In this way they danced continuously for twelve hours, and in the evening they all took bath in the Ganges and then returned to their homes.**
 
 ### CC Adi 17.121
-
-> নগরিয়া লোকে প্রভু যবে আজ্ঞা দিলা ।
-> ঘরে ঘরে সংকীর্তন করিতে লাগিলা’ ॥১২১॥
 
 > nagariyā loke prabhu yabe ājñā dilā
 > ghare ghare saṅkīrtana karite lāgilā
@@ -29991,9 +23562,6 @@ Yamunākarṣaṇa-līlā is the pastime of attracting Yamunā. One day, Śrī B
 
 ### CC Adi 17.122
 
-> ‘হরয়ে নমঃ, কৃষ্ণ যাদবায় নমঃ ।
-> গোপাল গোবিন্দ রাম শ্রীমধুসূদন ॥১২২॥
-
 > 'haraye namaḥ, kṛṣṇa yādavāya namaḥ
 > gopāla govinda rāma śrī-madhusūdana'
 
@@ -30002,9 +23570,6 @@ Yamunākarṣaṇa-līlā is the pastime of attracting Yamunā. One day, Śrī B
 **[All the devotees sang this popular song along with the Hare Kṛṣṇa mahā-mantra.] "Haraye namaḥ, kṛṣṇa yādavāya namaḥ gopāla govinda rāma śrī-madhusūdana."**
 
 ### CC Adi 17.123
-
-> মৃদঙ্গ-করতাল সংকীর্তন-মহাধ্বনি ।
-> ‘হরি’ ‘হরি’ — ধ্বনি বিনা অন্য নাহি শুনি ॥১২৩॥
 
 > mṛdaṅga-karatāla saṅkīrtana-mahādhvani
 > 'hari' 'hari'—dhvani vinā anya nāhi śuni
@@ -30017,9 +23582,6 @@ The International Society for Krishna Consciousness now has its world center in 
 
 ### CC Adi 17.124
 
-> শুনিয়া যে ক্রুদ্ধ হৈল সকল যবন ।
-> কাজী-পাশে আসি’ সবে কৈল নিবেদন ॥১২৪॥
-
 > śuniyā ye kruddha haila sakala yavana
 > kājī-pāśe āsi' sabe kaila nivedana
 
@@ -30031,9 +23593,6 @@ The *phaujadarā,* or city magistrate, was called the *kājī* (Kazi). The *jami
 
 ### CC Adi 17.125
 
-> ক্রোধে সন্ধ্যাকালে কাজী এক ঘরে আইল ।
-> মৃদঙ্গ ভাঙ্গিয়া লোকে কহিতে লাগিল ॥১২৫॥
-
 > krodhe sandhyā-kāle kājī eka ghare āila
 > mṛdaṅga bhāṅgiyā loke kahite lāgila
 
@@ -30042,9 +23601,6 @@ The *phaujadarā,* or city magistrate, was called the *kājī* (Kazi). The *jami
 **Chand Kazi angrily came to one home in the evening, and when he saw kīrtana going on, he broke a mṛdaṅga and spoke as follows.**
 
 ### CC Adi 17.126
-
-> এতকাল কেহ নাহি কৈল হিন্দুয়ানি ।
-> এবে যে উদ্যম চালাও কার বল জানি’ ॥১২৬॥
 
 > eta-kāla keha nāhi kaila hinduyāni
 > ebe ye udyama cālāo kāra bala jāni'
@@ -30059,9 +23615,6 @@ Actually, that was the fact. Although the members of the so-called Hindu society
 
 ### CC Adi 17.127
 
-> কেহ কীর্তন না করিহ সকল নগরে ।
-> আজি আমি ক্ষমা করি’ যাইতেছোঁ ঘরে ॥১২৭॥
-
 > keha kīrtana nā kariha sakala nagare
 > āji āmi kṣamā kari' yāitechoṅ ghare
 
@@ -30072,9 +23625,6 @@ Actually, that was the fact. Although the members of the so-called Hindu society
 Such orders stopping *saṅkīrtana* in the streets of the world's great cities have been imposed upon members of the Hare Kṛṣṇa movement. We have hundreds of centers all over the world, and we have been specifically persecuted in Australia. In most cities of the Western world we have been arrested many times by the police, but we are nevertheless executing the order of Śrī Caitanya Mahāprabhu by chanting on the streets of all the important cities, like New York, London, Chicago, Sydney, Melbourne, Paris and Hamburg. We must remember that such incidents took place in the past, five hundred years ago, and the fact that they are still going on indicates that our *saṅkīrtana* movement is really authorized, for if *saṅkīrtana* were an insignificant material affair, demons would not object to it. The demons of the time tried to obstruct the *saṅkīrtana* movement started by Śrī Caitanya Mahāprabhu. Similar demons are trying to obstruct the *saṅkīrtana* movement we are executing all over the world, and this proves that our *saṅkīrtana* movement is still pure and genuine, following in the footsteps of Śrī Caitanya Mahāprabhu.
 
 ### CC Adi 17.128
-
-> আর যদি কীর্তন করিতে লাগ পাইমু ।
-> সর্বস্ব দণ্ডিয়া তার জাতি যে লইমু ॥১২৮॥
 
 > āra yadi kīrtana karite lāga pāimu
 > sarvasva daṇḍiyā tāra jāti ye la-imu
@@ -30087,9 +23637,6 @@ To convert a Hindu into a Muslim was an easy affair in those days. If a Muslim s
 
 ### CC Adi 17.129
 
-> এত বলি’ কাজী গেল, — নগরিয়া লোক ।
-> প্রভু-স্থানে নিবেদিল পাঞা বড় শোক ॥১২৯॥
-
 > eta bali' kājī gela,—nagariyā loka
 > prabhu-sthāne nivedila pāñā baḍa śoka
 
@@ -30098,9 +23645,6 @@ To convert a Hindu into a Muslim was an easy affair in those days. If a Muslim s
 **After saying this, the Kazi returned home, and the devotees, greatly shocked that they were forbidden to chant Hare Kṛṣṇa, submitted their grief to Lord Caitanya Mahāprabhu.**
 
 ### CC Adi 17.130
-
-> প্রভু আজ্ঞা দিল — যাহ করহ কীর্তন ।
-> মুঞি সংহারিমু আজি সকল যবন ॥১৩০॥
 
 > prabhu ājñā dila—yāha karaha kīrtana
 > muñi saṁhārimu āji sakala yavana
@@ -30113,9 +23657,6 @@ Gandhi is known for having started the movement of nonviolent civil disobedience
 
 ### CC Adi 17.131
 
-> ঘরে গিয়া সব লোক করয়ে কীর্তন ।
-> কাজীর ভয়ে স্বচ্ছন্দ নহে, চমকিত মন ॥১৩১॥
-
 > ghare giyā saba loka karaye kīrtana
 > kājīra bhaye svacchanda nahe, camakita mana
 
@@ -30125,9 +23666,6 @@ Gandhi is known for having started the movement of nonviolent civil disobedience
 
 ### CC Adi 17.132
 
-> তা-সভার অন্তরে ভয় প্রভু মনে জানি ।
-> কহিতে লাগিলা লোকে শীঘ্র ডাকি’ আনি’ ॥১৩২॥
-
 > tā-sabhāra antare bhaya prabhu mane jāni
 > kahite lāgilā loke śīghra ḍāki' āni'
 
@@ -30136,9 +23674,6 @@ Gandhi is known for having started the movement of nonviolent civil disobedience
 **Understanding the anxiety within the people's minds, the Lord called them together and spoke to them as follows.**
 
 ### CC Adi 17.133
-
-> নগরে নগরে আজি করিমু কীর্তন ।
-> সন্ধ্যাকালে কর সভে নগর-মণ্ডন ॥১৩৩॥
 
 > nagare nagare āji karimu kīrtana
 > sandhyā-kāle kara sabhe nagara-maṇḍana
@@ -30151,9 +23686,6 @@ At that time, Navadvīpa was composed of nine small cities, so the words *nagare
 
 ### CC Adi 17.134
 
-> সন্ধ্যাতে দেউটি সবে জ্বাল ঘরে ঘরে ।
-> দেখ, কোন কাজী আসি’ মোরে মানা করে ॥১৩৪॥
-
 > sandhyāte deuṭi sabe jvāla ghare ghare
 > dekha, kona kājī āsi' more mānā kare
 
@@ -30162,9 +23694,6 @@ At that time, Navadvīpa was composed of nine small cities, so the words *nagare
 **"In the evening, burn torchlights in every home. I shall give protection to everyone. Let us see what kind of Kazi comes to stop our kīrtana."**
 
 ### CC Adi 17.135
-
-> এত কহি’ সন্ধ্যাকালে চলে গৌররায় ।
-> কীর্তনের কৈল প্রভু তিন সম্প্রদায় ॥১৩৫॥
 
 > eta kahi' sandhyā-kale cāle gaurarāya
 > kīrtanera kaila prabhu tina sampradāya
@@ -30177,9 +23706,6 @@ This is a scheme for performing *kīrtana* in a procession. During Śrī Caitany
 
 ### CC Adi 17.136
 
-> আগে সম্প্রদায়ে নৃত্য করে হরিদাস ।
-> মধ্যে নাচে আচার্য-গোসাঞি পরম উল্লাস ॥১৩৬॥
-
 > āge sampradāye nṛtya kare haridāsa
 > madhye nāce ācārya-gosāñi parama ullāsa
 
@@ -30188,9 +23714,6 @@ This is a scheme for performing *kīrtana* in a procession. During Śrī Caitany
 **In the front party danced Ṭhākura Haridāsa, and in the middle party danced Advaita Ācārya with great jubilition.**
 
 ### CC Adi 17.137
-
-> পাছে সম্প্রদায়ে নৃত্য করে গৌরচন্দ্র ।
-> তাঁর সঙ্গে নাচি’ বুলে প্রভু নিত্যানন্দ ॥১৩৭॥
 
 > pāche sampradāye nṛtya kare gauracandra
 > tāṅra saṅge nāci' bule prabhu nityānanda
@@ -30201,9 +23724,6 @@ This is a scheme for performing *kīrtana* in a procession. During Śrī Caitany
 
 ### CC Adi 17.138
 
-> বৃন্দাবনদাস ইহা ‘চৈতন্যমঙ্গলে’ ।
-> বিস্তারি’ বর্ণিয়াছেন, প্রভু-কৃপাবলে ॥১৩৮॥
-
 > vṛndāvana-dāsa ihā 'caitanya-maṅgale'
 > vistāri' varṇiyāchena, prabhu-kṛpā-bale
 
@@ -30213,9 +23733,6 @@ This is a scheme for performing *kīrtana* in a procession. During Śrī Caitany
 
 ### CC Adi 17.139
 
-> এই মত কীর্তন করি’ নগরে ভ্রমিলা ।
-> ভ্রমিতে ভ্রমিতে সভে কাজীদ্বারে গেলা ॥১৩৯॥
-
 > ei mata kīrtana kari' nagare bhramilā
 > bhramite bhramite sabhe kājī-dvāre gelā
 
@@ -30224,9 +23741,6 @@ This is a scheme for performing *kīrtana* in a procession. During Śrī Caitany
 **Peforming kīrtana in this way, circumambulating through every nook and corner of the city, they finilly reached the door of the Kazi.**
 
 ### CC Adi 17.140
-
-> তর্জ-গর্জ করে লোক, করে কোলাহল ।
-> গৌরচন্দ্র-বলে লোক প্রশ্রয়-পাগল ॥১৪০॥
 
 > tarja-garja kare loka, kare kolāhala
 > gauracandra-bale loka praśraya-pāgala
@@ -30238,9 +23752,6 @@ This is a scheme for performing *kīrtana* in a procession. During Śrī Caitany
 The Kazi had issued an order not to perform *kīrtana,* congregational chanting of the holy name of the Lord. But when this was brought up to Lord Caitanya Mahāprabhu, He ordered civil disobedience to the Kazi's order. Lord Caitanya and all His devotees, naturally enthusiastic although agitated, must have made a great noise with their loud cries.
 
 ### CC Adi 17.141
-
-> কীর্তনের ধ্বনিতে কাজী লুকাইল ঘরে ।
-> তর্জন গর্জন শুনি’ না হয় বাহিরে ॥১৪১॥
 
 > kīrtanera dhvanite kājī lukāila ghare
 > tarjana garjana śuni' nā haya bāhire
@@ -30259,9 +23770,6 @@ The *saṅkīrtana* movement started by Śrī Caitanya Mahāprabhu is described 
 
 ### CC Adi 17.142
 
-> উদ্ধত লোক ভাঙ্গে কাজীর ঘর-পুষ্পবন ।
-> বিস্তারি’ বর্ণিলা ইহা দাস-বৃন্দাবন ॥১৪২॥
-
 > uddhata loka bhāṅge kājīra ghara-puṣpavana
 > vistāri' varṇilā ihā dāsa-vṛndāvana
 
@@ -30271,9 +23779,6 @@ The *saṅkīrtana* movement started by Śrī Caitanya Mahāprabhu is described 
 
 ### CC Adi 17.143
 
-> তবে মহাপ্রভু তার দ্বারেতে বসিলা ।
-> ভব্যলোক পাঠাইয়া কাজীরে বোলাইলা ॥১৪৩॥
-
 > tabe mahāprabhu tāra dvārete vasilā
 > bhavya-loka pāṭhāiyā kājīre bolāilā
 
@@ -30282,9 +23787,6 @@ The *saṅkīrtana* movement started by Śrī Caitanya Mahāprabhu is described 
 **Thereafter, when Śrī Caitanya Mahāprabhu reached the Kazi's house, He sat down by the doorway and sent some respectable persons to call for the Kazi.**
 
 ### CC Adi 17.144
-
-> দূর হইতে আইলা কাজী মাথা নোয়াইয়া ।
-> কাজীরে বসাইলা প্রভু সম্মান করিয়া ॥১৪৪॥
 
 > dūra ha-ite āilā kājī māthā noyāiyā
 > kājīre vasāilā prabhu sammāna kariyā
@@ -30297,9 +23799,6 @@ Some of the men in Śrī Caitanya Mahāprabhu's civil disobedience movement were
 
 ### CC Adi 17.145
 
-> প্রভু বলেন, — আমি তোমার আইলাম অভ্যাগত ।
-> আমি দেখি’ লুকাইলা, — এ-ধর্ম কেমত ॥১৪৫॥
-
 > prabhu balena,—āmi tomāra āilāma abhyāgata
 > āmi dekhi' lukāilā,—e-dharma kemata
 
@@ -30308,9 +23807,6 @@ Some of the men in Śrī Caitanya Mahāprabhu's civil disobedience movement were
 **In a friendly way, the Lord said, "Sir, I have come to your house as your guest, but upon seeing Me you hid yourself in your room. What kind of etiquette is this?"**
 
 ### CC Adi 17.146
-
-> কাজী কহে — তুমি আইস ক্রুদ্ধ হইয়া ।
-> তোমা শান্ত করাইতে রহিনু লুকাইয়া ॥১৪৬॥
 
 > kājī kahe—tumi āisa kruddha ha-iyā
 > tomā śānta karāite rahinu lukāiyā
@@ -30321,9 +23817,6 @@ Some of the men in Śrī Caitanya Mahāprabhu's civil disobedience movement were
 
 ### CC Adi 17.147
 
-> এবে তুমি শান্ত হৈলে, আসি’ মিলিলাঙ ।
-> ভাগ্য মোর, — তোমা হেন অতিথি পাইলাঙ ॥১৪৭॥
-
 > ebe tumi śāntā haile, āsi, mililāṅ
 > bhāgya mora,—tomā hena atithi pāilāṅ
 
@@ -30332,9 +23825,6 @@ Some of the men in Śrī Caitanya Mahāprabhu's civil disobedience movement were
 **"Now that You have become pacified, I have come to You. It is my good fortune to receive a guest like Your Honor.**
 
 ### CC Adi 17.148
-
-> গ্রামসম্বন্ধে ‘চক্রবর্তী’ হয় মোর চাচা ।
-> দেহ-সম্বন্ধে হৈতে হয় গ্রাম-সম্বন্ধ সাঁচা ॥১৪৮॥
 
 > grāma-sambandhe 'cakravartī' haya mora cācā
 > deha-sambandhe haite haya grāma-sambandha sāṅcā
@@ -30347,9 +23837,6 @@ In India, even in the interior villages, all the Hindu and Muslim communities us
 
 ### CC Adi 17.149
 
-> নীলাম্বর চক্রবর্তী হয় তোমার নানা ।
-> সে সম্বন্ধে হও তুমি আমার ভাগিনা ॥১৪৯॥
-
 > nīlāmbara cakravartī haya tomāra nānā
 > se-sambandhe hao tumi āmāra bhāginā
 
@@ -30358,9 +23845,6 @@ In India, even in the interior villages, all the Hindu and Muslim communities us
 **"Nīlāmbara Cakravartī is Your maternal grandfather, and by this relationship You are thus my nephew.**
 
 ### CC Adi 17.150
-
-> ভাগিনার ক্রোধ মামা অবশ্য সহয় ।
-> মাতুলের অপরাধ ভাগিনা না লয় ॥১৫০॥
 
 > bhāgināra krodha māmā avaśya sahaya
 > mātulera aparādha bhāginā nā laya
@@ -30371,9 +23855,6 @@ In India, even in the interior villages, all the Hindu and Muslim communities us
 
 ### CC Adi 17.151
 
-> এই মত দুঁহার কথা হয় ঠারে-ঠোরে ।
-> ভিতরের অর্থ কেহ বুঝিতে না পারে ॥১৫১॥
-
 > ei mata duṅhāra kathā haya ṭhāre-ṭhore
 > bhitarera artha keha bujhite nā pāre
 
@@ -30382,9 +23863,6 @@ In India, even in the interior villages, all the Hindu and Muslim communities us
 **In this way the Kazi and the Lord talked with one another with various indications, but no outsider could understand the inner meaning of their conversation.**
 
 ### CC Adi 17.152
-
-> প্রভু কহে, — প্রশ্ন লাগি’ আইলাম তোমার স্থানে ।
-> কাজী কহে, — আজ্ঞা কর, যে তোমার মনে ॥১৫২॥
 
 > prabhu kahe,—praśna lāgi' āilāma tomāra sthāne
 > kājī kahe,—ājñā kara, ye tomāra mane
@@ -30397,9 +23875,6 @@ In India, even in the interior villages, all the Hindu and Muslim communities us
 
 ### CC Adi 17.153
 
-> প্রভু কহে, — গোদুগ্ধ খাও, গাভী তোমার মাতা ।
-> বৃষ অন্ন উপজায়, তাতে তেঁহো পিতা ॥১৫৩॥
-
 > prabhu kahe,—go-dugdha khāo, gābhī tomāra mātā
 > vṛṣa anna upajāya, tāte teṅho pitā
 
@@ -30408,9 +23883,6 @@ In India, even in the interior villages, all the Hindu and Muslim communities us
 **The Lord said, "You drink cows' milk; therefore the cow is your mother. And the bull produces grains for your maintenance; therefore he is your father.**
 
 ### CC Adi 17.154
-
-> পিতা-মাতা মারি’ খাও — এবা কোন্ ধর্ম ।
-> কোন্ বলে কর তুমি এমত বিকর্ম ॥১৫৪॥
 
 > pitā-mātā māri' khāo—ebā kon dharma
 > kon bale kara tumi e-mata vikarma
@@ -30423,9 +23895,6 @@ Everyone can understand that we drink the milk of cows and take the help of bull
 
 ### CC Adi 17.155
 
-> কাজী কহে, — তোমার যৈছে বেদ-পুরাণ ।
-> তৈছে আমার শাস্ত্র — কেতাব ‘কোরাণ’ ॥১৫৫॥
-
 > kājī kahe,—tomāra yaiche veda-purāṇa
 > taiche āmāra śāstra—ketāva 'korāṇa'
 
@@ -30437,9 +23906,6 @@ Chand Kazi agreed to talk with Śrī Caitanya Mahāprabhu on the strength of the
 
 ### CC Adi 17.156
 
-> সেই শাস্ত্রে কহে, — প্রবৃত্তি-নিবৃত্তি-মার্গ-ভেদ ।
-> নিবৃত্তি-মার্গে জীবমাত্র-বধের নিষেধ ॥১৫৬॥
-
 > sei śāstre kahe,—pravṛtti-nivṛtti-mārga-bheda
 > nivṛtti-mārge jīva-mātra-vadhera niṣedha
 
@@ -30448,9 +23914,6 @@ Chand Kazi agreed to talk with Śrī Caitanya Mahāprabhu on the strength of the
 **"According to the Koran, there are two ways of advancement—through increasing the propensity to enjoy and decreasing the propensity to enjoy. On the path of decreasing attachment [nivṛtti-mārga], the killing of animals is prohibited.**
 
 ### CC Adi 17.157
-
-> প্রবৃত্তি-মার্গে গোবধ করিতে বিধি হয় ।
-> শাস্ত্র-আজ্ঞায় বধ কৈলে নাহি পাপ-ভয় ॥১৫৭॥
 
 > pravṛtti-mārge go-vadha karite vidhi haya
 > śāstra-ājñāya vadha kaile nāhi pāpa-bhaya
@@ -30467,9 +23930,6 @@ If one acts according to the injunctions of *śāstra,* he is freed from the rea
 
 ### CC Adi 17.158
 
-> তোমার বেদেতে আছে গোবধের বাণী ।
-> অতএব গোবধ করে বড় বড় মুনি ॥১৫৮॥
-
 > tomāra vedete āche go-vadhera vāṇī
 > ataeva go-vadha kare baḍa baḍa muni
 
@@ -30478,9 +23938,6 @@ If one acts according to the injunctions of *śāstra,* he is freed from the rea
 **As a learned scholar, the Kazi challenged Caitanya Mahāprabhu, "In Your Vedic scriptures there is an injunction for killing a cow. On the strength of this injunction, great sages peformed sacrifices involving cow-killing."**
 
 ### CC Adi 17.159
-
-> প্রভু কহে, — বেদে কহে গোবধ নিষেধ  ।
-> অতএব হিন্দুমাত্র না করে গোবধ ॥১৫৯॥
 
 > prabhu kahe,—vede kahe go-vadha niṣedha
 > ataeva hindu-mātra nā kare go-vadha
@@ -30493,9 +23950,6 @@ In the Vedic scriptures there are concessions for meat-eaters. It is said that i
 
 ### CC Adi 17.160
 
-> জিয়াইতে পারে যদি, তবে মারে প্রাণী ।
-> বেদ-পুরাণে আছে হেন আজ্ঞা-বাণী ॥১৬০॥
-
 > jiyāite pāre yadi, tabe māre prāṇī
 > veda-purāṇe āche hena ājñā-vāṇī
 
@@ -30504,9 +23958,6 @@ In the Vedic scriptures there are concessions for meat-eaters. It is said that i
 **"In the Vedas and Purāṇas there are injunctions declaring that if one can revive a living being, he can kill it for experimental purposes.**
 
 ### CC Adi 17.161
-
-> অতএব জরদ্গব মারে মুনিগণ ।
-> বেদমন্ত্রে সিদ্ধ করে তাহার জীবন ॥১৬১॥
 
 > ataeva jarad-gava māre muni-gaṇa
 > veda-mantre siddha kare tāhāra jīvana
@@ -30517,9 +23968,6 @@ In the Vedic scriptures there are concessions for meat-eaters. It is said that i
 
 ### CC Adi 17.162
 
-> জরদ্গব হঞা যুবা হয় আরবার ।
-> তাতে তার বধ নহে, হয় উপকার ॥১৬২॥
-
 > jarad-gava hañā yuvā haya āra-vāra
 > tāte tāra vadha nahe, haya upakāra
 
@@ -30529,9 +23977,6 @@ In the Vedic scriptures there are concessions for meat-eaters. It is said that i
 
 ### CC Adi 17.163
 
-> কলিকালে তৈছে শক্তি নাহিক ব্রাহ্মণে ।
-> অতএব গোবধ কেহ না করে এখনে ॥১৬৩॥
-
 > kali-kāle taiche śakti nāhika brāhmaṇe
 > ataeva go-vadha keha nā kare ekhane
 
@@ -30540,9 +23985,6 @@ In the Vedic scriptures there are concessions for meat-eaters. It is said that i
 **"Formerly there were powerful brāhmaṇas who could make such experiments using Vedic hymns, but now, because of the Kali-yuga, brāhmaṇas are not so powerful. Therefore the killing of cows and bulls for rejuvenation is forbidden.**
 
 ### CC Adi 17.164
-
-> অশ্বমেধং গবালম্ভং সন্ন্যাসং পলপৈতৃকম্ ।
-> দেবরেণ সুতোৎপত্তিং কলৌ পঞ্চ বিবর্জয়েৎ ॥১৬৪॥
 
 > aśvamedhaṁ gavālambhaṁ
 > sannyāsaṁ pala-paitṛkam
@@ -30557,9 +23999,6 @@ This is a quotation from the *Brahma-vaivarta Purāṇa* (*Kṛṣṇa-janma-kha
 
 ### CC Adi 17.165
 
-> তোমরা জীয়াইতে নার, — বধমাত্র সার ।
-> নরক হইতে তোমার নাহিক নিস্তার ॥১৬৫॥
-
 > tomarā jīyāite nāra,—vadha-mātra sāra
 > naraka ha-ite tomāra nāhika nistāra
 
@@ -30568,9 +24007,6 @@ This is a quotation from the *Brahma-vaivarta Purāṇa* (*Kṛṣṇa-janma-kha
 **"Since you Muslims cannot bring killed animals back to life, you are responsible for killing them. Therefore you are going to hell; there is no way for your deliverance.**
 
 ### CC Adi 17.166
-
-> গো-অঙ্গে যত লোম, তত সহস্র বৎসর ।
-> গোবধী রৌরব-মধ্যে পচে নিরন্তর ॥১৬৬॥
 
 > go-aṅge yata loma, tata sahasra vatsara
 > go-vadhī raurava-madhye pace nirantara
@@ -30581,9 +24017,6 @@ This is a quotation from the *Brahma-vaivarta Purāṇa* (*Kṛṣṇa-janma-kha
 
 ### CC Adi 17.167
 
-> তোমা-সবার শাস্ত্রকর্তাং — সেহ ভ্রান্ত হৈল ।
-> না জানি’ শাস্ত্রের মর্ম ঐছে আজ্ঞা দিল ॥১৬৭॥
-
 > tomā-sabāra śāstra-kartā—seha bhrānta haila
 > nā jāni' śāstrera marma aiche ājñā dila
 
@@ -30592,9 +24025,6 @@ This is a quotation from the *Brahma-vaivarta Purāṇa* (*Kṛṣṇa-janma-kha
 **"There are many mistakes and illusions in your scriptures. Their compilers, not knowing the essence of knowledge, gave orders that were against reason and argument."**
 
 ### CC Adi 17.168
-
-> শুনি’ স্তব্ধ হৈল কাজী, নাহি স্ফুরে বাণী ।
-> বিচারিয়া কহে কাজী পরাভব মানি’ ॥১৬৮॥
 
 > śuni' stabdha haila kājī, nāhi sphure vāṇī
 > vicāriyā kahe kājī parābhava māni'
@@ -30606,9 +24036,6 @@ This is a quotation from the *Brahma-vaivarta Purāṇa* (*Kṛṣṇa-janma-kha
 In our practical preaching work we meet many Christians who talk about statements of the Bible. When we question whether God is limited or unlimited, Christian priests say that God is unlimited. But when we question why the unlimited God should have only one son and not unlimited sons, they are unable to answer. Similarly, from a scientific point of view, the answers of the Old Testament, New Testament and Koran to many questions have changed. But a *śāstra* cannot change at a person's whim. All *śāstras* must be free from the four defects of human nature. The statements of *śāstras* must be correct for all time.
 
 ### CC Adi 17.169
-
-> তুমি যে কহিলে, পণ্ডিত, সেই সত্য হয় ।
-> আধুনিক আমার শাস্ত্র, বিচার-সহ নয় ॥১৬৯॥
 
 > tumi ye kahile, paṇḍita, sei satya haya
 > ādhunika āmāra śāstra, vicāra-saha naya
@@ -30632,9 +24059,6 @@ Because the soul is within the body, the body changes through so many forms. The
 
 ### CC Adi 17.170
 
-> কল্পিত আমার শাস্ত্র, — আমি সব জানি ।
-> জাতি-অনুরোধে তবু সেই শাস্ত্র মানি ॥১৭০॥
-
 > kalpita āmāra śāstra,—āmi saba jāni
 > jāti-anurodhe tabu sei śāstra māni
 
@@ -30643,9 +24067,6 @@ Because the soul is within the body, the body changes through so many forms. The
 **"I know that our scriptures are full of imagination and mistaken ideas, yet because I am a Mohammedan I accept them for the sake of my community, despite their insufficient support.**
 
 ### CC Adi 17.171
-
-> সহজে যবন-শাস্ত্রে অদৃঢ় বিচার ।
-> হাসি’ তাহে মহাপ্রভু পুছেন আর বার ॥১৭১॥
 
 > sahaje yavana-śāstre adṛḍha vicāra
 > hāsi' tāhe mahāprabhu puchena āra-vāra
@@ -30656,9 +24077,6 @@ Because the soul is within the body, the body changes through so many forms. The
 
 ### CC Adi 17.172
 
-> আর এক প্রশ্ন করি, শুন, তুমি মামা ।
-> যথার্থ কহিবে, ছলে না বঞ্চিবে আমা’ ॥১৭২॥
-
 > āra eka praśna kari, śuna, tumi māmā
 > yathārtha kahibe, chale nā vañchibe āmā'
 
@@ -30667,9 +24085,6 @@ Because the soul is within the body, the body changes through so many forms. The
 **"My dear maternal uncle, I wish to ask you another question. Please tell Me the truth. Do not try to cheat Me with tricks.**
 
 ### CC Adi 17.173
-
-> তোমার নগরে হয় সদা সংকীর্তন ।
-> বাদ্যগীত-কোলাহল, সঙ্গীত, নর্তন ॥১৭৩॥
 
 > tomāra nagare haya sadā saṅkīrtana
 > vādya-gīta-kolāhala, saṅgīta, nartana
@@ -30680,9 +24095,6 @@ Because the soul is within the body, the body changes through so many forms. The
 
 ### CC Adi 17.174
 
-> তুমি কাজী, — হিন্দু-ধর্ম-বিরোধে অধিকারী ।
-> এবে যে না কর মানা বুঝিতে না পারি ॥১৭৪॥
-
 > tumi kājī—hindu-dharma-virodhe adhikārī
 > ebe ye nā kara mānā bujhite nā pāri
 
@@ -30691,9 +24103,6 @@ Because the soul is within the body, the body changes through so many forms. The
 **"As a Mohammedan magistrate, you have the right to oppose the performance of Hindu ceremonies, but now you do not forbid them. I cannot understand the reason why."**
 
 ### CC Adi 17.175
-
-> কাজী বলে, — সভে তোমায় বলে ‘গৌরহরি’ ।
-> সেই নামে আমি তোমায় সম্বোধন করি ॥১৭৫॥
 
 > kājī bale—sabhe tomāya bale 'gaurahari'
 > sei nāme āmi tomāya sambodhana kari
@@ -30704,9 +24113,6 @@ Because the soul is within the body, the body changes through so many forms. The
 
 ### CC Adi 17.176
 
-> শুন, গৌরহরি, এই প্রশ্নের কারণ ।
-> নিভৃত হও যদি, তবে করি নিবেদন ॥১৭৬॥
-
 > śuna, gaurahari, ei praśnera kāraṇa
 > nibhṛta hao yadi, tabe kari nivedana
 
@@ -30716,9 +24122,6 @@ Because the soul is within the body, the body changes through so many forms. The
 
 ### CC Adi 17.177
 
-> প্রভু বলে, — এ লোক আমার অন্তরঙ্গ হয় ।
-> স্ফুট করি’ কহ তুমি, না করিহ ভয় ॥১৭৭॥
-
 > prabhu bale,—e loka āmāra antaraṅga haya
 > sphuṭa kari' kaha tumi, nā kariha bhaya
 
@@ -30727,11 +24130,6 @@ Because the soul is within the body, the body changes through so many forms. The
 **The Lord replied, "All these men are My confidential associates. You may speak frankly. There is no reason to be afraid of them."**
 
 ### CC Adi 17.178-179
-
-> কাজী কহে, — যবে আমি হিন্দুর ঘরে গিয়া ।
-> কীর্তন করিলুঁ মানা মৃদঙ্গ ভাঙ্গিয়া ॥১৭৮॥
-> সেই রাত্রে এক সিংহ মহাভয়ঙ্কর ।
-> নরদেহ, সিংহমুখ, গর্জয়ে বিস্তর ॥১৭৯॥
 
 > kājī kahe,—yabe āmi hindura ghare giyā
 > kīrtana kariluṅ mānā mṛdaṅga bhāṅgiyā
@@ -30745,9 +24143,6 @@ Because the soul is within the body, the body changes through so many forms. The
 
 ### CC Adi 17.180
 
-> শয়নে আমার উপর লাফ দিয়া চড়ি’ ।
-> অট্ট অট্ট হাসে, করে দন্ত-কড়মড়ি ॥১৮০॥
-
 > śayane āmāra upara lāpha diyā caḍi'
 > aṭṭa aṭṭa hāse, kare danta-kaḍamaḍi
 
@@ -30756,9 +24151,6 @@ Because the soul is within the body, the body changes through so many forms. The
 **"While I was asleep, the lion jumped on my chest, laughing fiercely and gnashing His teeth.**
 
 ### CC Adi 17.181
-
-> মোর বুকে নখ দিয়া ঘোর-স্বরে বলে ।
-> ফাড়িমু তোমার বুক মৃদঙ্গ বদলে ॥১৮১॥
 
 > mora buke nakha diyā ghora-svare bale
 > phāḍimu tomāra buka mṛdaṅga badale
@@ -30769,9 +24161,6 @@ Because the soul is within the body, the body changes through so many forms. The
 
 ### CC Adi 17.182
 
-> মোর কীর্তন মানা করিস্, করিমু তোর ক্ষয় ।
-> আঁখি মুদি’ কাঁপি আমি পাঞা বড় ভয় ॥১৮২॥
-
 > mora kīrtana mānā karis, karimu tora kṣaya
 > āṅkhi mudi' kāṅpi āmi pāñā baḍa bhaya
 
@@ -30780,9 +24169,6 @@ Because the soul is within the body, the body changes through so many forms. The
 **“ 'You have forbidden the performance of My congregational chanting. Therefore I must destroy you!' Being much afraid of Him, I closed my eyes and trembled.**
 
 ### CC Adi 17.183
-
-> ভীত দেখি’ সিংহ বলে হইয়া সদয় ।
-> তোরে শিক্ষা দিতে কৈলু তোর পরাজয় ॥১৮৩॥
 
 > bhīta dekhi' siṁha bale ha-iyā sadaya
 > tore śikṣā dite kailu tora parājaya
@@ -30793,9 +24179,6 @@ Because the soul is within the body, the body changes through so many forms. The
 
 ### CC Adi 17.184
 
-> সে দিন বহুত নাহি কৈলি উৎপাত ।
-> তেঞি ক্ষমা করি’ না করিনু প্রাণাঘাত ॥১৮৪॥
-
 > se dina bahuta nāhi kaili utpāta
 > teñi kṣamā kari' nā karinu prāṇāghāta
 
@@ -30804,9 +24187,6 @@ Because the soul is within the body, the body changes through so many forms. The
 **“ 'On that day you did not create a very great disturbance. Therefore I have excused you and not taken your life.**
 
 ### CC Adi 17.185
-
-> ঐছে যদি পুনঃ কর, তবে না সহিমু ।
-> সবংশে তোমারে মারি যবন নাশিমু ॥১৮৫॥
 
 > aiche yadi punaḥ kara, tabe nā sahimu
 > savaṁśe tomāre māri yavana nāśimu
@@ -30817,9 +24197,6 @@ Because the soul is within the body, the body changes through so many forms. The
 
 ### CC Adi 17.186
 
-> এত কহি’ সিংহ গেল, আমার হৈল ভয় ।
-> এই দেখ, নখচিহ্ন আমার হৃদয় ॥১৮৬॥
-
 > eta kahi' siṁha gela, āmāra haila bhaya
 > ei dekha, nakha-cihna amora hṛdaya
 
@@ -30828,9 +24205,6 @@ Because the soul is within the body, the body changes through so many forms. The
 **"After saying this, the lion left, but I was very afraid of Him. Just see the marks of His nails on my heart!"**
 
 ### CC Adi 17.187
-
-> এত বলি’ কাজী নিজ-বুক দেখাইল ।
-> শুনি’ দেখি’ সর্বলোক আশ্চর্য মানিল ॥১৮৭॥
 
 > eta bali' kājī nija-buka dekhāila
 > śuni' dekhi' sarva-loka āścarya mānila
@@ -30841,9 +24215,6 @@ Because the soul is within the body, the body changes through so many forms. The
 
 ### CC Adi 17.188
 
-> কাজী কহে — ইহা আমি কারে না কহিল ।
-> সেই দিন আমার এক পিয়াদা আইল ॥১৮৮॥
-
 > kājī kahe,—ihā āmi kāre nā kahila
 > sei dina āmāra eka piyādā āila
 
@@ -30852,9 +24223,6 @@ Because the soul is within the body, the body changes through so many forms. The
 **The Kazi continued, "I did not speak to anyone about this incident, but on that very day one of my orderlies came to see me.**
 
 ### CC Adi 17.189
-
-> আসি’ কহে, — গেলুঁ মুঞি কীর্তন নিষেধিতে ।
-> অগ্নি উল্কা মোর মুখে লাগে আচম্বিতে ॥১৮৯॥
 
 > āsi' kahe,—geluṅ muñi kīrtana niṣedhite
 > agni ulkā mora mukhe lāge ācambite
@@ -30865,9 +24233,6 @@ Because the soul is within the body, the body changes through so many forms. The
 
 ### CC Adi 17.190
 
-> পুড়িল সকল দাড়ি, মুখে হৈল ব্রণ ।
-> যেই পেয়াদা যায়, তার এই বিবরণ ॥১৯০॥
-
 > puḍila sakala dāḍi, mukhe haila vraṇa
 > yei peyādā yāya, tāra ei vivaraṇa
 
@@ -30876,9 +24241,6 @@ Because the soul is within the body, the body changes through so many forms. The
 **“ 'My beard was burned, and there were blisters on my cheeks.' Every orderly who went gave the same description.**
 
 ### CC Adi 17.191
-
-> তাহা দেখি’ রহিনু মুঞি মহাভয় পাঞা ।
-> কীর্তন না বর্জিহ, ঘরে রহোঁ ত’ বসিয়া ॥১৯১॥
 
 > tāhā dekhi' rahinu muñi mahā-bhaya pāñā
 > kīrtana nā varjiha, ghare rahoṅ ta' vasiyā
@@ -30889,9 +24251,6 @@ Because the soul is within the body, the body changes through so many forms. The
 
 ### CC Adi 17.192
 
-> তবে ত’ নগরে হইবে স্বচ্ছন্দে কীর্তন ।
-> শুনি’ সব ম্লেচ্ছ আসি’ কৈল নিবেদন ॥১৯২॥
-
 > tabe ta' nagare ha-ibe svacchande kīrtana
 > śuni' saba mleccha āsi' kaila nivedana
 
@@ -30900,9 +24259,6 @@ Because the soul is within the body, the body changes through so many forms. The
 **"Then all the meat-eaters hearing that there would be unrestricted congregational chanting in the city.came to submit a petition.**
 
 ### CC Adi 17.193
-
-> নগরে হিন্দুর ধর্ম বাড়িল অপার ।
-> ‘হরি’ ‘হরি’ ধ্বনি বই নাহি শুনি আর ॥১৯৩॥
 
 > nagare hindura dharma bāḍila apāra
 > 'hari' 'hari' dhvani ba-i nāhi śuni āra
@@ -30913,9 +24269,6 @@ Because the soul is within the body, the body changes through so many forms. The
 
 ### CC Adi 17.194
 
-> আর ম্লেচ্ছ কহে, — হিন্দু ‘কৃষ্ণ’ ‘কৃষ্ণ’ বলি’ ।
-> হাসে, কান্দে, নাচে, গায়, গড়ি যায় ধূলি ॥১৯৪॥
-
 > āra mleccha kahe,—hindu 'kṛṣṇa kṛṣṇa' bali'
 > hāse, kānde, nāce, gāya, gaḍi yāya dhūli
 
@@ -30924,9 +24277,6 @@ Because the soul is within the body, the body changes through so many forms. The
 **"One meat-eater said, 'The Hindus say, "Kṛṣṇa, Kṛṣṇa," and they smile, cry, dance, chant and fall on the ground, smearing their bodies with dirt.**
 
 ### CC Adi 17.195
-
-> ‘হরি’ ‘হরি’ করি’ হিন্দু করে কোলাহল ।
-> পাতসাহ শুনিলে তোমার করিবেক ফল ॥১৯৫॥
 
 > 'hari' 'hari' kari' hindu kare kolāhala
 > pātasāha śunile tomāra karibeka phala
@@ -30939,9 +24289,6 @@ Pātasāha refers to the king. Nawab Hussain Shah, whose full name was Ālā Udd
 
 ### CC Adi 17.196
 
-> তবে সেই যবনেরে আমি ত’ পুছিল ।
-> হিন্দু ‘হরি’ বলে, তার স্বভাব জানিল ॥১৯৬॥
-
 > tabe sei yavanere āmi ta' puchila
 > hindu 'hari' bale, tāra svabhāva jānila
 
@@ -30950,9 +24297,6 @@ Pātasāha refers to the king. Nawab Hussain Shah, whose full name was Ālā Udd
 **"I then inquired from these yavanas, 'I know that these Hindus by nature chant "Hari, Hari."**
 
 ### CC Adi 17.197
-
-> তুমিত যবন হঞা কেনে অনুক্ষণ ।
-> হিন্দুর দেবতার নাম লহ কি কারণ ॥১৯৭॥
 
 > tumita yavana hañā kene anukṣaṇa
 > hindura devatāra nāma laha ki kāraṇa
@@ -30963,9 +24307,6 @@ Pātasāha refers to the king. Nawab Hussain Shah, whose full name was Ālā Udd
 
 ### CC Adi 17.198
 
-> ম্লেচ্ছ কহে, — হিন্দুরে আমি করি পরিহাস ।
-> কেহ কেহ — কৃষ্ণদাস, কেহ — রামদাস ॥১৯৮॥
-
 > mleccha kahe,—hindure āmi kari parihāsa
 > keha keha—kṛṣṇadāsa, keha—rāmadāsa
 
@@ -30974,9 +24315,6 @@ Pātasāha refers to the king. Nawab Hussain Shah, whose full name was Ālā Udd
 **"The meat-eater replied, 'Sometimes I joke with the Hindus. Some of them are called Kṛṣṇadāsa, and some are called Rāmadāsa.**
 
 ### CC Adi 17.199
-
-> কেহ — হরিদাস, সদা বলে ‘হরি’ ‘হরি’ ।
-> জানি কার ঘরে ধন করিবেক চুরি ॥১৯৯॥
 
 > keha—haridāsa, sadā bale 'hari' 'hari'
 > jāni kāra ghare dhana karibeka curi
@@ -30989,9 +24327,6 @@ Another meaning of "Hari, Hari" is "I am stealing. I am stealing."
 
 ### CC Adi 17.200
 
-> সেই হৈতে জিহ্বা মোর বলে ‘হরি’ ‘হরি’ ।
-> ইচ্ছা নাহি, তবু বলে, — কি উপায় করি ॥২০০॥
-
 > sei haite jihvā mora bale 'hari' 'hari'
 > icchā nāhi, tabu bale,—ki upāya kari
 
@@ -31002,11 +24337,6 @@ Another meaning of "Hari, Hari" is "I am stealing. I am stealing."
 Sometimes demoniac nonbelievers, not understanding the potency of the holy name, make fun of the Vaiṣṇavas when the Vaiṣṇavas chant the Hare Kṛṣṇa *mahā-mantra.* This joking is also beneficial for such persons. *Śrīmad-Bhāgavatam,* Sixth Canto, Second Chapter, verse 14, indicates that the chanting of the Hare Kṛṣṇa *mahā-mantra,* even in joking, in the course of ordinary discussion, in indicating something extraneous, or in negligence, is called *nāmābhāsa,* which is chanting that is almost on the transcendental stage. This *nāmābhāsa* stage is better than *nāmāparādha. Nāmābhāsa* awakens the supreme remembrance of Lord Viṣṇu. When one remembers Lord Viṣṇu, he becomes free from material enjoyment. Thus he gradually comes forward toward the transcendental service of the Lord and becomes eligible to chant the holy name of the Lord in the transcendental position.
 
 ### CC Adi 17.201-202
-
-> আর ম্লেচ্ছ কহে, শুন — আমি ত’ এইমতে ।
-> হিন্দুকে পরিহাস কৈনু সে দিন হইতে ॥২০১॥
-> জিহ্বা কৃষ্ণনাম করে, না মানে বর্জন ।
-> না জানি, কি মন্ত্রৌষধি জানে হিন্দুগণ ॥২০২॥
 
 > āra mleccha kahe, śuna—āmi ta' ei-mate
 > hinduke parihāsa kainu se dina ha-ite
@@ -31019,9 +24349,6 @@ Sometimes demoniac nonbelievers, not understanding the potency of the holy name,
 **"Another meat-eater said, 'Sir, please hear me. Since the day I joked with some Hindus in this way, my tongue chants the Hare Kṛṣṇa hymn and cannot give it up. I do not know what mystic hymns and herbal potions these Hindus know.'**
 
 ### CC Adi 17.203
-
-> এত শুনি’ তা’-সভারে ঘরে পাঠাইল ।
-> হেনকালে পাষণ্ডী হিন্দু পাঁচ-সাত আইল ॥২০৩॥
 
 > eta śuni' tā'-sabhāre ghare pāṭhāila
 > hena-kāle pāṣaṇḍī hindu pāṅca-sāta āila
@@ -31043,9 +24370,6 @@ The Supreme Personality of Godhead is *asamaurdhva;* in other words, no one can 
 
 ### CC Adi 17.204
 
-> আসি’ কহে, — হিন্দুর ধর্ম ভাঙ্গিল নিমাই ।
-> যে কীর্তন প্রবর্তাইল, কভু শুনি নাই ॥২০৪॥
-
 > āsi' kahe,—hindura dharma bhāṅgila nimāi
 > ye kīrtana pravartāila, kabhu śuni nāi
 
@@ -31054,9 +24378,6 @@ The Supreme Personality of Godhead is *asamaurdhva;* in other words, no one can 
 **"Coming to me, the Hindus complained, 'Nimāi Paṇḍita has broken the Hindu religious principles. He has introduced the saṅkīrtana system, which we never heard from any scripture.**
 
 ### CC Adi 17.205
-
-> মঙ্গলচণ্ডী, বিষহরি করি’ জাগরণ ।
-> তা’তে বাদ্য, নৃত্য, গীত, — যোগ্য আচরণ ॥২০৫॥
 
 > maṅgalacaṇḍī viṣahari kari' jāgaraṇa
 > tā'te vādya, nṛtya, gīta,—yogya ācaraṇa
@@ -31067,9 +24388,6 @@ The Supreme Personality of Godhead is *asamaurdhva;* in other words, no one can 
 
 ### CC Adi 17.206
 
-> পূর্বে ভাল ছিল এই নিমাই পণ্ডিত ।
-> গয়া হৈতে আসিয়া চালায় বিপরীত ॥২০৬॥
-
 > pūrve bhāla chila ei nimāi paṇḍita
 > gayā haite āsiyā cālāya viparīta
 
@@ -31078,9 +24396,6 @@ The Supreme Personality of Godhead is *asamaurdhva;* in other words, no one can 
 **“ 'Nimāi Paṇḍita was previously a very good boy, but since He has returned from Gayā He conducts Himself differently.**
 
 ### CC Adi 17.207
-
-> উচ্চ করি’ গায় গীত, দেয় করতালি ।
-> মৃদঙ্গ-করতাল-শব্দে কর্ণে লাগে তালি ॥২০৭॥
 
 > ucca kari' gāya gīta, deya karatāli
 > mṛdaṅga-karatāla-śabde karṇe lāge tāli
@@ -31091,9 +24406,6 @@ The Supreme Personality of Godhead is *asamaurdhva;* in other words, no one can 
 
 ### CC Adi 17.208
 
-> না জানি, — কি খাঞা মত্ত হঞা নাচে, গায় ।
-> হাসে, কান্দে, পড়ে, উঠে, গড়াগড়ি যায় ॥২০৮॥
-
 > nā jāni,—ki khāñā matta hañā nāce, gāya
 > hāse, kānde, paḍe, uṭhe, gaḍāgaḍi yāya
 
@@ -31102,9 +24414,6 @@ The Supreme Personality of Godhead is *asamaurdhva;* in other words, no one can 
 **“ 'We do not know what He eats that makes Him become mad, dancing, singing, sometimes laughing, crying, falling down, jumping up and rolling on the ground.**
 
 ### CC Adi 17.209
-
-> নগরিয়াকে পাগল কৈল সদা সংকীর্তন ।
-> রাত্রে নিদ্রা নাহি যাই, করি জাগরণ ॥২০৯॥
 
 > nagariyāke pāgala kaila sadā saṅkīrtana
 > rātre nidrā nāhi yāi, kari jāgaraṇa
@@ -31115,9 +24424,6 @@ The Supreme Personality of Godhead is *asamaurdhva;* in other words, no one can 
 
 ### CC Adi 17.210
 
-> ‘নিমাঞি’ নাম ছাড়ি’ এবে বোলায় ‘গৌরহরি’ ।
-> হিন্দুর ধর্ম নষ্ট কৈল পাষণ্ড সঞ্চারি’ ॥২১০॥
-
 > 'nimāñi' nāma chāḍi' ebe bolāya 'gaurahari'
 > hindura dharma naṣṭa kaila pāṣaṇḍa sañcāri'
 
@@ -31127,9 +24433,6 @@ The Supreme Personality of Godhead is *asamaurdhva;* in other words, no one can 
 
 ### CC Adi 17.211
 
-> কৃষ্ণের কীর্তন করে নীচ বাড় বাড় ।
-> এই পাপে নবদ্বীপ হইবে উজাড় ॥২১১॥
-
 > kṛṣṇera kīrtana kare nīca bāḍa bāḍa
 > ei pāpe navadvīpa ha-ibe ujāḍa
 
@@ -31138,9 +24441,6 @@ The Supreme Personality of Godhead is *asamaurdhva;* in other words, no one can 
 **“ 'Now the lower classes are chanting the Hare Kṛṣṇa mahā-mantra again and again. For this sinful activity, the entire city of Navadvīpa will be deserted.**
 
 ### CC Adi 17.212
-
-> হিন্দুশাস্ত্রে ‘ঈশ্বর’ নাম — মহামন্ত্র জানি ।
-> সর্বলোক শুনিলে মন্ত্রের বীর্য হয় হানি ॥২১২॥
 
 > hindu-śāstre 'īśvara' nāma—mahā-mantra jāni
 > sarva-loka śunile mantrera vīrya haya hāni
@@ -31164,9 +24464,6 @@ Significant in verse 211 are the words *kṛṣṇera kīrtana kare nīca bāḍ
 
 ### CC Adi 17.213
 
-> গ্রামের ঠাকুর তুমি, সব তোমার জন ।
-> নিমাই বোলাইয়া তারে করহ বর্জন ॥২১৩॥
-
 > grāmera ṭhākura tumi, saba tomāra jana
 > nimāi bolāiyā tāre karaha varjana
 
@@ -31178,9 +24475,6 @@ The word *ṭhākura* has two meanings. One meaning is "God" or "a godly person,
 
 ### CC Adi 17.214
 
-> তবে আমি প্রীতিবাক্য কহিল সবারে ।
-> সবে ঘরে যাহ, আমি নিষেধিব তারে ॥২১৪॥
-
 > tabe āmi prīti-vākya kahila sabāre
 > sabe ghare yāha, āmi niṣedhiba tāre
 
@@ -31189,9 +24483,6 @@ The word *ṭhākura* has two meanings. One meaning is "God" or "a godly person,
 **"After hearing their complaints, in sweet words I told them, 'Please go back home. I shall certainly prohibit Nimāi Paṇḍita from continuing His Hare Kṛṣṇa movement.'**
 
 ### CC Adi 17.215
-
-> হিন্দুর ঈশ্বর বড় যেই নারায়ণ ।
-> সেই তুমি হও, — হেন লয় মোর মন ॥২১৫॥
 
 > hindura īśvara baḍa yei nārāyaṇa
 > sei tumi hao,—hena laya mora mana
@@ -31202,9 +24493,6 @@ The word *ṭhākura* has two meanings. One meaning is "God" or "a godly person,
 
 ### CC Adi 17.216
 
-> এত শুনি’ মহাপ্রভু হাসিয়া হাসিয়া ।
-> কহিতে লাগিলা কিছু কাজিরে ছুঁইয়া ॥২১৬॥
-
 > eta śuni' mahāprabhu hāsiyā hāsiyā
 > kahite lāgilā kichu kājire chuṅiyā
 
@@ -31213,9 +24501,6 @@ The word *ṭhākura* has two meanings. One meaning is "God" or "a godly person,
 **After hearing the Kazi speak so nicely, Śrī Caitanya Mahāprabhu touched him and smilingly spoke as follows.**
 
 ### CC Adi 17.217
-
-> তোমার মুখে কৃষ্ণনাম, — এ বড় বিচিত্র ।
-> পাপক্ষয় গেল, হৈলা পরম পবিত্র ॥২১৭॥
 
 > tomāra mukhe kṛṣṇa-nāma,—e baḍa vicitra
 > pāpa-kṣaya gela, hailā parama pavitra
@@ -31228,9 +24513,6 @@ Confirming the potency of the *saṅkīrtana* movement, these words from the ver
 
 ### CC Adi 17.218
 
-> ‘হরি’ ‘কৃষ্ণ’ ‘নারায়ণ’ — লৈলে তিন নাম ।
-> বড় ভাগ্যবান্ তুমি, বড় পুণ্যবান ॥২১৮॥
-
 > 'hari' 'kṛṣṇa' 'nārāyaṇa'—laile tina nāma
 > baḍa bhāgyavān tumi, baḍa puṇyavān
 
@@ -31242,9 +24524,6 @@ Here the Supreme Lord, Śrī Caitanya Mahāprabhu, confirms that anyone who chan
 
 ### CC Adi 17.219
 
-> এত শুনি’ কাজীর দুই চক্ষে পড়ে পানি ।
-> প্রভুর চরণ ছুঁই’ বলে প্রিয়বাণী ॥২১৯॥
-
 > eta śuni' kājīra dui cakṣe paḍe pāni
 > prabhura caraṇa chuṅi' bale priya-vāṇī
 
@@ -31253,9 +24532,6 @@ Here the Supreme Lord, Śrī Caitanya Mahāprabhu, confirms that anyone who chan
 **After the Kazi heard this, tears flowed down from his eyes. He immediately touched the lotus feet of the Lord and spoke the following sweet words.**
 
 ### CC Adi 17.220
-
-> তোমার প্রসাদে মোর ঘুচিল কুমতি ।
-> এই কৃপা কর, — যেন তোমাতে রহু ভক্তি ॥২২০॥
 
 > tomāra prasāde mora ghucila kumati
 > ei kṛpā kara,—yena tomāte rahu bhakti
@@ -31266,9 +24542,6 @@ Here the Supreme Lord, Śrī Caitanya Mahāprabhu, confirms that anyone who chan
 
 ### CC Adi 17.221
 
-> প্রভু কহে, — এক দান মাগিয়ে তোমায় ।
-> সংকীর্তন বাদ যৈছে নহে নদীয়ায় ॥২২১॥
-
 > prabhu kahe,—eka dāna māgiye tomāya
 > saṅkīrtana vāda yaiche nahe nadīyāya
 
@@ -31277,9 +24550,6 @@ Here the Supreme Lord, Śrī Caitanya Mahāprabhu, confirms that anyone who chan
 **The Lord said, "I wish to beg you for one favor in charity. You must pledge that this saṅkīrtana movement will not be checked, at least in the district of Nadia."**
 
 ### CC Adi 17.222
-
-> কাজী কহে, — মোর বংশে যত উপজিবে ।
-> তাহাকে ‘তালাক’ দিব, — কীর্তন না বাধিবে ॥২২২॥
 
 > kājī kahe,—mora vaṁśe yata upajibe
 > tāhāke 'tālāka' diba,—kīrtana nā bādhibe
@@ -31292,9 +24562,6 @@ As a result of this grave injunction by the Kazi, even at present the descendant
 
 ### CC Adi 17.223
 
-> শুনি’ প্রভু ‘হরি’ বলি’ উঠিলা আপনি ।
-> উঠিল বৈষ্ণব সব করি’ হরি-ধ্বনি ॥২২৩॥
-
 > śuni' prabhu 'hari' bali' uṭhilā āpani
 > uṭhila vaiṣṇava saba kari' hari-dhvani
 
@@ -31303,9 +24570,6 @@ As a result of this grave injunction by the Kazi, even at present the descendant
 **Hearing this, the Lord got up, chanting "Hari! Hari!" Following Him, all the other Vaiṣṇavas also got up, chanting the vibration of the holy name.**
 
 ### CC Adi 17.224
-
-> কীর্তন করিতে প্রভু করিলা গমন ।
-> সঙ্গে চলি’ আইসে কাজী উল্লসিত মন ॥২২৪॥
 
 > kīrtana karite prabhu karilā gamana
 > saṅge cali' āise kājī ullasita mana
@@ -31316,9 +24580,6 @@ As a result of this grave injunction by the Kazi, even at present the descendant
 
 ### CC Adi 17.225
 
-> কাজীরে বিদায় দিল শচীর নন্দন ।
-> নাচিতে নাচিতে আইলা আপন ভবন ॥২২৫॥
-
 > kājīre vidāya dila śacīra nandana
 > nācite nācite āilā āpana bhavana
 
@@ -31327,9 +24588,6 @@ As a result of this grave injunction by the Kazi, even at present the descendant
 **The Lord asked the Kazi to go back home. Then the son of mother Śacī came back to His own home, dancing and dancing.**
 
 ### CC Adi 17.226
-
-> এই মতে কাজীরে প্রভু করিলা প্রসাদ ।
-> ইহা যেই শুনে তার খণ্ডে অপরাধ ॥২২৬॥
 
 > ei mate kājīre prabhu karilā prasāda
 > ihā yei śune tāra khaṇḍe aparādha
@@ -31340,9 +24598,6 @@ As a result of this grave injunction by the Kazi, even at present the descendant
 
 ### CC Adi 17.227
 
-> এক দিন শ্রীবাসের মন্দিরে গোসাঞি ।
-> নিত্যানন্দ-সঙ্গে নৃত্য করে দুই ভাই ॥২২৭॥
-
 > eka dina śrīvāsera mandire gosāñi
 > nityānanda-saṅge nṛtya kare dui bhāi
 
@@ -31352,9 +24607,6 @@ As a result of this grave injunction by the Kazi, even at present the descendant
 
 ### CC Adi 17.228
 
-> শ্রীবাস-পুত্রের তাহাঁ হৈল পরলোক ।
-> তবু শ্রীবাসের চিত্তে না জন্মিল শোক ॥২২৮॥
-
 > śrīvāsa-putrera tāhāṅ haila paraloka
 > tabu śrīvāsera citte nā janmila śoka
 
@@ -31363,9 +24615,6 @@ As a result of this grave injunction by the Kazi, even at present the descendant
 **At that time a calamity took place-Śrīvāsa Ṭhākura's son died. Yet Śrīvāsa Ṭhākura was not at all sorry.**
 
 ### CC Adi 17.229
-
-> মৃতপুত্র-মুখে কৈল জ্ঞানের কথন ।
-> আপনে দুই ভাই হৈলা শ্রীবাস-নন্দন ॥২২৯॥
 
 > mṛta-putra-mukhe kaila jñānera kathana
 > āpane dui bhāi hailā śrīvāsa-nandana
@@ -31378,9 +24627,6 @@ This incident is described as follows by Śrīla Bhaktivinoda Ṭhākura in his 
 
 ### CC Adi 17.230
 
-> তবে ত’ করিলা সব ভক্তে বর দান ।
-> উচ্ছিষ্ট দিয়া নারায়ণীর করিল সম্মান ॥২৩০॥
-
 > tabe ta' karilā saba bhakte vara dāna
 > ucchiṣṭa diyā nārāyaṇīra karila sammāna
 
@@ -31392,9 +24638,6 @@ Nārāyaṇī was a niece of Śrīvāsa Ṭhākura, and later she became the mot
 
 ### CC Adi 17.231
 
-> শ্রীবাসের বস্ত্র সিঁয়ে দরজী যবন ।
-> প্রভু তারে নিজরূপ করাইল দর্শন ॥২৩১॥
-
 > śrīvāsera vastra siṅye darajī yavana
 > prabhu tāre nija-rūpa karāila darśana
 
@@ -31403,9 +24646,6 @@ Nārāyaṇī was a niece of Śrīvāsa Ṭhākura, and later she became the mot
 **There was a tailor who was a meat-eater but was sewing garments for Śrīvāsa Ṭhākura. The Lord, being merciful to him, showed him His own form.**
 
 ### CC Adi 17.232
-
-> ‘দেখিনু’ ‘দেখিনু’ বলি’ হইল পাগল ।
-> প্রেমে নৃত্য করে, হৈল বৈষ্ণব আগল ॥২৩২॥
 
 > 'dekhinu' 'dekhinu' bali' ha-ila pāgala
 > preme nṛtya kare, haila vaiṣṇava āgala
@@ -31418,9 +24658,6 @@ There was a Mohammedan tailor near the house of Śrīvāsa Ṭhākura who used t
 
 ### CC Adi 17.233
 
-> আবেশেতে শ্রীবাসে প্রভু বংশী ত’ মাগিল ।
-> শ্রীবাস কহে, — বংশী তোমার গোপী হরি’ নিল ॥২৩৩॥
-
 > āveśete śrīvāse prabhu vaṁśī ta' māgila
 > śrīvāsa kahe,—vaṁśī tomāra gopī hari' nila
 
@@ -31429,9 +24666,6 @@ There was a Mohammedan tailor near the house of Śrīvāsa Ṭhākura who used t
 **In ecstasy the Lord asked Śrīvāsa Ṭhākura to deliver His flute, but Śrīvāsa Ṭhākura replied, "Your flute has been stolen away by the gopīs."**
 
 ### CC Adi 17.234
-
-> শুনি’ প্রভু ‘বল’ ‘বল’ বলেন আবেশে ।
-> শ্রীবাস বর্ণেন বৃন্দাবন-লীলারসে ॥২৩৪॥
 
 > śuni' prabhu 'bala' 'bala' balena āveśe
 > śrīvāsa varṇena vṛndāvana-līlā-rase
@@ -31442,9 +24676,6 @@ There was a Mohammedan tailor near the house of Śrīvāsa Ṭhākura who used t
 
 ### CC Adi 17.235
 
-> প্রথমেতে বৃন্দাবন-মাধুর্য বর্ণিল ।
-> শুনিয়া প্রভুর চিত্তে আনন্দ বাড়িল ॥২৩৫॥
-
 > prathamete vṛndāvana-mādhurya varṇila
 > śuniyā prabhura citte ānanda bāḍila
 
@@ -31453,9 +24684,6 @@ There was a Mohammedan tailor near the house of Śrīvāsa Ṭhākura who used t
 **In the beginning Śrīvāsa Ṭhākura described the transcendental sweetness of Vṛndāvana's pastimes. Hearing this, the Lord felt great and increasing jubilation in His heart.**
 
 ### CC Adi 17.236
-
-> তবে ‘বল’ ‘বল’ প্রভু বলে বারবার ।
-> পুনঃ পুনঃ কহে শ্রীবাস করিয়া বিস্তার ॥২৩৬॥
 
 > tabe 'bala' 'bala' prabhu bale vāra-vāra
 > punaḥ punaḥ kahe śrīvāsa kariyā vistāra
@@ -31466,9 +24694,6 @@ There was a Mohammedan tailor near the house of Śrīvāsa Ṭhākura who used t
 
 ### CC Adi 17.237
 
-> বংশীবাদ্যে গোপীগণের বনে আকর্ষণ ।
-> তাঁ-সবার সঙ্গে যৈছে বন-বিহরণ ॥২৩৭॥
-
 > vaṁśī-vādye gopī-gaṇera vane ākarṣaṇa
 > tāṅ-sabāra saṅge yaiche vana-viharaṇa
 
@@ -31477,9 +24702,6 @@ There was a Mohammedan tailor near the house of Śrīvāsa Ṭhākura who used t
 **Śrīvāsa Ṭhākura extensively explained how the gopīs were attracted to the forests of Vṛndāvana by the vibration of Kṛṣṇa's flute and how they wandered together in the forest.**
 
 ### CC Adi 17.238
-
-> তাহি মধ্যে ছয়ঋতু লীলার বর্ণন ।
-> মধুপান, রাসোৎসব, জলকেলি কথন ॥২৩৮॥
 
 > tāhi madhye chaya-ṛtu līlāra varṇana
 > madhu-pāna, rāsotsava, jala-keli kathana
@@ -31490,9 +24712,6 @@ There was a Mohammedan tailor near the house of Śrīvāsa Ṭhākura who used t
 
 ### CC Adi 17.239
 
-> ‘বল’ ‘বল’ বলে প্রভু শুনিতে উল্লাস ।
-> শ্রীবাস কহেন তবে রাস রসের বিলাস ॥২৩৯॥
-
 > 'bala' 'bala' bale prabhu śunite ullāsa
 > śrīvāsa kahena tabe rāsa rasera vilāsa
 
@@ -31501,9 +24720,6 @@ There was a Mohammedan tailor near the house of Śrīvāsa Ṭhākura who used t
 **When the Lord, hearing with great pleasure, said, "Go on speaking! Go on speaking!" Śrīvāsa Ṭhākura described the rasa-lila, dance, which is filled with transcendental mellows.**
 
 ### CC Adi 17.240
-
-> কহিতে, শুনিতে ঐছে প্রাতঃকাল হৈল ।
-> প্রভু শ্রীবাসেরে তোষি’ আলিঙ্গন কৈল ॥২৪০॥
 
 > kahite, śunite aiche prātaḥ-kāla haila
 > prabhu śrīvāsere toṣi' āliṅgana kaila
@@ -31514,9 +24730,6 @@ There was a Mohammedan tailor near the house of Śrīvāsa Ṭhākura who used t
 
 ### CC Adi 17.241
 
-> তবে আচার্যের ঘরে কৈল কৃষ্ণলীলা ।
-> রুক্মিণী-স্বরূপ প্রভু আপনে হইলা ॥২৪১॥
-
 > tabe ācāryera ghare kaila kṛṣṇa-līlā
 > rukmiṇī-svarūpa prabhu āpane ha-ilā
 
@@ -31525,9 +24738,6 @@ There was a Mohammedan tailor near the house of Śrīvāsa Ṭhākura who used t
 **Thereafter a dramatization of Kṛṣṇa's pastimes was performed in the house of Advaita Ācārya. The Lord personally took the part of Rukmiṇī, the foremost of Kṛṣṇa's queens.**
 
 ### CC Adi 17.242
-
-> কভু দুর্গা, লক্ষ্মী হয়, কভু বা চিচ্ছক্তি ।
-> খাটে বসি’ ভক্তগণে দিলা প্রেমভক্তি ॥২৪২॥
 
 > kabhu durgā, lakṣmī haya, kabhu vā cic-chakti
 > khāṭe vasi' bhakta-gaṇe dilā prema-bhakti
@@ -31538,9 +24748,6 @@ There was a Mohammedan tailor near the house of Śrīvāsa Ṭhākura who used t
 
 ### CC Adi 17.243
 
-> একদিন মহাপ্রভুর নৃত্য-অবসানে ।
-> এক ব্রাহ্মণী আসি’ ধরিল চরণে ॥২৪৩॥
-
 > eka-dina mahāprabhura nṛtya-avasāne
 > eka brāhmaṇī āsi' dharila caraṇe
 
@@ -31549,9 +24756,6 @@ There was a Mohammedan tailor near the house of Śrīvāsa Ṭhākura who used t
 **One day when Śrī Caitanya Mahāprabhu had finished His dancing, a woman, the wife of a brāhmaṇa, came there and caught hold of His lotus feet.**
 
 ### CC Adi 17.244
-
-> চরণের ধূলি সেই লয় বার বার ।
-> দেখিয়া প্রভুর দুঃখ হইল অপার ॥২৪৪॥
 
 > caraṇera dhūli sei laya vāra vāra
 > dekhiyā prabhura duḥkha ha-ila apāra
@@ -31566,9 +24770,6 @@ One who takes the dust of a great personality's lotus feet transfers his sinful 
 
 ### CC Adi 17.245
 
-> সেইক্ষণে ধাঞা প্রভু গঙ্গাতে পড়িল ।
-> নিত্যানন্দ-হরিদাস ধরি’ উঠাইল ॥২৪৫॥
-
 > sei-kṣaṇe dhāñā prabhu gaṅgāte paḍila
 > nityānanda-haridāsa dhari' uṭhāila
 
@@ -31580,9 +24781,6 @@ One who takes the dust of a great personality's lotus feet transfers his sinful 
 
 ### CC Adi 17.246
 
-> বিজয় আচার্যের ঘরে সে রাত্রে রহিলা ।
-> প্রাতঃকালে ভক্ত সবে ঘরে লঞা গেলা ॥২৪৬॥
-
 > vijaya ācāryera ghare se rātre rahilā
 > prātaḥ-kāle bhakta sabe ghare lañā gelā
 
@@ -31591,9 +24789,6 @@ One who takes the dust of a great personality's lotus feet transfers his sinful 
 **That night the Lord stayed at the house of Vijaya Ācārya. In the morning the Lord took all His devotees and returned home.**
 
 ### CC Adi 17.247
-
-> একদিন গোপীভাবে গৃহেতে বসিয়া ।
-> ‘গোপী’ ‘গোপী’ নাম লয় বিষণ্ণ হঞা ॥২৪৭॥
 
 > eka-dina gopī-bhāve gṛhete vasiyā
 > 'gopī' 'gopī' nāma laya viṣaṇṇa hañā
@@ -31604,9 +24799,6 @@ One who takes the dust of a great personality's lotus feet transfers his sinful 
 
 ### CC Adi 17.248
 
-> এক পড়ুয়া আইল প্রভুকে দেখিতে ।
-> ‘গোপী’ ‘গোপী’ নাম শুনি’ লাগিল বলিতে ॥২৪৮॥
-
 > eka paḍuyā āila prabhuke dekhite
 > 'gopī' 'gopī' nāma śuni' lāgila balite
 
@@ -31615,9 +24807,6 @@ One who takes the dust of a great personality's lotus feet transfers his sinful 
 **A student who came to see the Lord was astonished that the Lord was chanting "Gopī! Gopī!" Thus he spoke as follows.**
 
 ### CC Adi 17.249
-
-> কৃষ্ণনাম না লও কেনে, কৃষ্ণনাম — ধন্য ।
-> ‘গোপী’ ‘গোপী’ বলিলে বা কিবা হয় পুণ্য ॥২৪৯॥
 
 > kṛṣṇa-nāma nā lao kene, kṛṣṇa-nāma—dhanya
 > 'gopī' 'gopī' balile vā kibā haya puṇya
@@ -31630,9 +24819,6 @@ It is said, *vaiṣṇavera kriyā-mudrā vijñeha nā bujhaya:* no one can unde
 
 ### CC Adi 17.250
 
-> শুনি’ প্রভু ক্রোধে কৈল কৃষ্ণে দোষোদ্গার ।
-> ঠেঙ্গা লঞা উঠিলা প্রভু পড়ুয়া মারিবার ॥২৫০॥
-
 > śuni' prabhu krodhe kaila kṛṣṇe doṣodgāra
 > ṭheṅgā lañā uṭhilā prabhu paḍuyā māribāra
 
@@ -31644,9 +24830,6 @@ It is mentioned in *Śrīmad-Bhāgavatam* that when Uddhava came from Lord Kṛ�
 
 ### CC Adi 17.251
 
-> ভয়ে পলায় পড়ুয়া, প্রভু পাছে পাছে ধায় ।
-> আস্তে ব্যস্তে ভক্তগণ প্রভুরে রহায় ॥২৫১॥
-
 > bhaye palāya paḍuyā, prabhu pāche pāche dhāya
 > āste vyaste bhakta-gaṇa prabhure rahāya
 
@@ -31656,9 +24839,6 @@ It is mentioned in *Śrīmad-Bhāgavatam* that when Uddhava came from Lord Kṛ�
 
 ### CC Adi 17.252
 
-> প্রভুরে শান্ত করি’ আনিল নিজ ঘরে ।
-> পড়ুয়া পলায়া গেল পড়ুয়া-সভারে ॥২৫২॥
-
 > prabhure śānta kari' ānila nija ghare
 > paḍuyā palāyā gela paḍuyā-sabhāre
 
@@ -31667,9 +24847,6 @@ It is mentioned in *Śrīmad-Bhāgavatam* that when Uddhava came from Lord Kṛ�
 **The devotees pacified the Lord and brought Him home, and the student ran away to an assembly of other students.**
 
 ### CC Adi 17.253
-
-> পড়ুয়া সহস্র যাহাঁ পড়ে একঠাঞি ।
-> প্রভুর বৃত্তান্ত দ্বিজ কহে তাহাঁ যাই ॥২৫৩॥
 
 > paḍuyā sahasra yāhāṅ paḍe eka-ṭhāñi
 > prabhura vṛttānta dvija kahe tāhāṅ yāi
@@ -31684,9 +24861,6 @@ Higher education is not meant for everyone. Only selected individuals trained in
 
 ### CC Adi 17.254
 
-> শুনি’ ক্রোধ কৈল সব পড়ুয়ার গণ ।
-> সবে মেলি’ করে তবে প্রভুর নিন্দন ॥২৫৪॥
-
 > śuni' krodha kaila saba paḍuyāra gaṇa
 > sabe meli' kare tabe prabhura nindana
 
@@ -31695,9 +24869,6 @@ Higher education is not meant for everyone. Only selected individuals trained in
 **Hearing of the incident, all the students became greatly angry, joined together in criticizing the Lord.**
 
 ### CC Adi 17.255
-
-> সব দেশ ভ্রষ্ট কৈল একলা নিমাঞি ।
-> ব্রাহ্মণ মারিতে চাহে, ধর্মভয় নাই ॥২৫৫॥
 
 > saba deśa bhraṣṭa kaila ekalā nimāñi
 > brāhmaṇa mārite cāhe, dharma-bhaya nāi
@@ -31710,9 +24881,6 @@ In those days also, the caste *brāhmaṇas* were very proud. They were not prep
 
 ### CC Adi 17.256
 
-> পুনঃ যদি ঐছে করে মারিব তাহারে ।
-> কোন্ বা মানুষ হয়, কি করিতে পারে ॥২৫৬॥
-
 > punaḥ yadi aiche kare māriba tāhare
 > kon vā mānuṣa haya, ki karite pāre
 
@@ -31721,9 +24889,6 @@ In those days also, the caste *brāhmaṇas* were very proud. They were not prep
 **"If He again performs such an atrocious act, certainly we shall retaliate and strike Him in turn. What kind of important person is He, that He can check us in this way?"**
 
 ### CC Adi 17.257
-
-> প্রভুর নিন্দায় সবার বুদ্ধি হৈল নাশ ।
-> সুপঠিত বিদ্যা কারও না হয় প্রকাশ ॥২৫৭॥
 
 > prabhura nindāya sabāra buddhi haila nāśa
 > supaṭhita vidyā kārao nā haya prakāśa
@@ -31759,9 +24924,6 @@ Anyone who does not follow the surrendering process but is simply interested in 
 
 ### CC Adi 17.258
 
-> তথাপি দাম্ভিক পড়ুয়া নম্র নাহি হয় ।
-> যাহাঁ তাহাঁ প্রভুর নিন্দা হাসি’ সে করয় ॥২৫৮॥
-
 > tathāpi dāmbhika paḍuyā namra nāhi haya
 > yāhaṅ tāhāṅ prabhura nindā hāsi' se karaya
 
@@ -31771,9 +24933,6 @@ Anyone who does not follow the surrendering process but is simply interested in 
 
 ### CC Adi 17.259
 
-> সর্বজ্ঞ গোসাঞি জানি’ সবার দুর্গতি ।
-> ঘরে বসি’ চিন্তে তা’-সবার অব্যাহতি ॥২৫৯॥
-
 > sarva-jña gosāñi jāni' sabāra durgati
 > ghare vasi' cinte tā'-sabāra avyāhati
 
@@ -31782,9 +24941,6 @@ Anyone who does not follow the surrendering process but is simply interested in 
 **Lord Śrī Caitanya Mahāprabhu, being omniscient, could understand the degradation of these students. Thus He sat at home, contemplating how to rescue them.**
 
 ### CC Adi 17.260
-
-> যত অধ্যাপক, আর তাঁর শিষ্যগণ ।
-> ধর্মী, কর্মী, তপোনিষ্ঠ, নিন্দক, দুর্জন ॥২৬০॥
 
 > yata adhyāpaka, āra tāṅra śiṣya-gaṇa
 > dharmī, karmī, tapo-niṣṭha, nindaka, durjana
@@ -31804,9 +24960,6 @@ If they are without knowledge of devotional service to the Lord, then great nati
 
 ### CC Adi 17.261
 
-> এই সব মোর নিন্দা-অপরাধ হৈতে ।
-> আমি না লওয়াইলে ভক্তি, না পারে লইতে ॥২৬১॥
-
 > ei saba mora nindā-aparādha haite
 > āmi nā laoyāile bhakti, nā pāre la-ite
 
@@ -31815,9 +24968,6 @@ If they are without knowledge of devotional service to the Lord, then great nati
 **"If I do not induce them to take to devotional service, because of committing the offense of blasphemy none of these people will be able to take to it.**
 
 ### CC Adi 17.262
-
-> নিস্তারিতে আইলাম আমি, হৈল বিপরীত ।
-> এসব দুর্জনের কৈছে হইবেক হিত ॥২৬২॥
 
 > nistārite āilāma āmi, haila viparīta
 > e-saba durjanera kaiche ha-ibeka hita
@@ -31828,9 +24978,6 @@ If they are without knowledge of devotional service to the Lord, then great nati
 
 ### CC Adi 17.263
 
-> আমাকে প্রণতি করে, হয় পাপক্ষয় ।
-> তবে সে ইহারে ভক্তি লওয়াইলে লয় ॥২৬৩॥
-
 > āmāke praṇati kare, haya pāpa-kṣaya
 > tabe se ihāre bhakti laoyāile laya
 
@@ -31840,9 +24987,6 @@ If they are without knowledge of devotional service to the Lord, then great nati
 
 ### CC Adi 17.264
 
-> মোরে নিন্দা করে যে, না করে নমস্কার ।
-> এসব জীবেরে অবশ্য করিব উদ্ধার ॥২৬৪॥
-
 > more nindā kare ye, nā kare namaskāra
 > e-saba jīvere avaśya kariba uddhāra
 
@@ -31851,9 +24995,6 @@ If they are without knowledge of devotional service to the Lord, then great nati
 **"I must certainly deliver all these fallen souls who blaspheme Me and do not offer Me obeisances.**
 
 ### CC Adi 17.265
-
-> অতএব অবশ্য আমি সন্ন্যাস করিব ।
-> সন্ন্যাসি-বুদ্ধ্যে মোরে প্রণত হইব ॥২৬৫॥
 
 > ataeva avaśya āmi sannyāsa kariba
 > sannyāsi-buddhye more praṇata ha-iba
@@ -31875,9 +25016,6 @@ The *sannyāsīs* of the Kṛṣṇa consciousness movement are bona fide. All t
 
 ### CC Adi 17.266
 
-> প্রণতিতে হ’বে ইহার অপরাধ ক্ষয় ।
-> নির্মল হৃদয়ে ভক্তি করাইব উদয় ॥২৬৬॥
-
 > praṇatite habe ihāra aparādha kṣaya
 > nirmala hṛdaye bhakti karāiba udaya
 
@@ -31889,9 +25027,6 @@ According to Vedic injunctions, only a *brāhmaṇa* may be offered *sannyāsa.*
 
 ### CC Adi 17.267
 
-> এসব পাষণ্ডীর তবে হইবে নিস্তার ।
-> আর কোন উপায় নাহি, এই যুক্তি সার ॥২৬৭॥
-
 > e-saba pāṣaṇḍīra tabe ha-ibe nistāra
 > āra kona upāya nāhi, ei yukti sāra
 
@@ -31901,9 +25036,6 @@ According to Vedic injunctions, only a *brāhmaṇa* may be offered *sannyāsa.*
 
 ### CC Adi 17.268
 
-> এই দৃঢ় যুক্তি করি’ প্রভু আছে ঘরে ।
-> কেশব ভারতী আইলা নদীয়া-নগরে ॥২৬৮॥
-
 > ei dṛḍha yukti kari' prabhu āche ghare
 > keśava bhāratī āilā nadīyā-nagare
 
@@ -31912,9 +25044,6 @@ According to Vedic injunctions, only a *brāhmaṇa* may be offered *sannyāsa.*
 **After coming to this firm conclusion, the Lord continued to stay at home. In the meantime Keśava Bhāratī came to the town of Nadia.**
 
 ### CC Adi 17.269
-
-> প্রভু তাঁরে নমস্করি’ কৈল নিমন্ত্রণ ।
-> ভিক্ষা করাইয়া তাঁরে কৈল নিবেদন ॥২৬৯॥
 
 > prabhu tāṅre namaskari' kaila nimantraṇa
 > bhikṣā karāiyā tāṅre kaila nivedana
@@ -31927,9 +25056,6 @@ According to the system of Vedic society, whenever an unknown *sannyāsī* comes
 
 ### CC Adi 17.270
 
-> তুমি ত’ ঈশ্বর বট, — সাক্ষাৎ নারায়ণ ।
-> কৃপা করি’ কর মোর সংসার মোচন ॥২৭০॥
-
 > tumi ta' īśvara baṭa,—sākṣāt nārāyaṇa
 > kṛpā kari' kara mora saṁsāra mocana
 
@@ -31939,9 +25065,6 @@ According to the system of Vedic society, whenever an unknown *sannyāsī* comes
 
 ### CC Adi 17.271
 
-> ভারতী কহেন, — তুমি ঈশ্বর, অন্তর্যামী ।
-> যে করাহ, সে করিব, — স্বতন্ত্র নহি আমি ॥২৭১॥
-
 > bhāratī kahena,—tumi īśvara, antaryāmī
 > ye karāha, se kariba,—svatantra nahi āmi
 
@@ -31950,9 +25073,6 @@ According to the system of Vedic society, whenever an unknown *sannyāsī* comes
 **Keśava Bhāratī replied to the Lord, "You are the Supreme Personality of Godhead, the Supersoul. I must do whatever You cause me to do. I am not independent of You."**
 
 ### CC Adi 17.272
-
-> এত বলি’ ভারতী গোসাঞি কাটোয়াতে গেলা ।
-> মহাপ্রভু তাহা যাই’ সন্ন্যাস করিলা ॥২৭২॥
 
 > eta bali' bhāratī gosāñi kāṭoyāte gelā
 > mahāprabhu tāhā yāi' sannyāsa karilā
@@ -31967,9 +25087,6 @@ Candraśekhara Ācārya assisted in the routine ceremonial work of the Lord's ac
 
 ### CC Adi 17.273
 
-> সঙ্গে নিত্যানন্দ, চন্দ্রশেখর আচার্য ।
-> মুকুন্দদত্ত, — এই তিন কৈল সর্ব কার্য ॥২৭৩॥
-
 > saṅge nityānanda, candraśekhara ācārya
 > mukunda-datta,—ei tina kaila sarva kārya
 
@@ -31979,9 +25096,6 @@ Candraśekhara Ācārya assisted in the routine ceremonial work of the Lord's ac
 
 ### CC Adi 17.274
 
-> এই আদি-লীলার কৈল সূত্র গণন ।
-> বিস্তারি বর্ণিলা ইহা দাস বৃন্দাবন ॥২৭৪॥
-
 > ei ādi-līlāra kaila sūtra gaṇana
 > vistāri varṇilā ihā dāsa vṛndāvana
 
@@ -31990,9 +25104,6 @@ Candraśekhara Ācārya assisted in the routine ceremonial work of the Lord's ac
 **Thus I have summarized the incidents of the ādi-līlā. Śrīla Vṛndāvana dāsa Ṭhākura has described them elaborately [in his Caitanya-bhāgavata].**
 
 ### CC Adi 17.275
-
-> যশোদানন্দন হৈলা শচীর নন্দন ।
-> চতুর্বিধ ভক্ত-ভাব করে আস্বাদন ॥২৭৫॥
 
 > yaśodā-nandana hailā śacīra nandana
 > catur-vidha bhakta-bhāva kare āsvādana
@@ -32004,9 +25115,6 @@ Candraśekhara Ācārya assisted in the routine ceremonial work of the Lord's ac
 Servitude, friendship, parental affection and conjugal love for the Supreme Personality of Godhead are the basis of the four kinds of devotional activities. In *śānta,* the marginal stage of devotional service, there is no activity. But above the *śānta* humor are servitude, friendship, parental affection and conjugal love, which represent the gradual growth of devotional service to higher and higher platforms.
 
 ### CC Adi 17.276
-
-> স্বমাধুর্য রাধা-প্রেমরস আস্বাদিতে ।
-> রাধাভাব অঙ্গী করিয়াছে ভালমতে ॥২৭৬॥
 
 > sva-mādhurya rādhā-prema-rasa āsvādite
 > rādhā-bhāva aṅgī kariyāche bhāla-mate
@@ -32024,9 +25132,6 @@ In this connection Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura writes in his 
 
 ### CC Adi 17.277
 
-> গোপী-ভাব যাতে প্রভু ধরিয়াছে একান্ত ।
-> ব্রজেন্দ্রনন্দনে মানে আপনার কান্ত ॥২৭৭॥
-
 > gopī-bhāva yāte prabhu dhariyāche ekānta
 > vrajendra-nandane māne āpanāra kānta
 
@@ -32035,9 +25140,6 @@ In this connection Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura writes in his 
 **Lord Caitanya Mahāprabhu accepted the mood of the gopīs, who accept Vrajendranandana, Śrī Kṛṣṇa, as their lover.**
 
 ### CC Adi 17.278
-
-> গোপিকা-ভাবের এই সুদৃঢ় নিশ্চয় ।
-> ব্রজেন্দ্রনন্দন বিনা অন্যত্র না হয় ॥২৭৮॥
 
 > gopikā-bhāvera ei sudṛḍha niścaya
 > vrajendra-nandana vinā anyatra nā haya
@@ -32048,9 +25150,6 @@ In this connection Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura writes in his 
 
 ### CC Adi 17.279
 
-> শ্যামসুন্দর, শিখিপিচ্ছ-গুঞ্জা-বিভূষণ ।
-> গোপ-বেশ, ত্রিভঙ্গিম, মুরলী-বদন ॥২৭৯॥
-
 > śyāmasundara, śikhipiccha-guñjā-vibhūṣaṇa
 > gopa-veśa, tri-bhaṅgima, muralī-vadana
 
@@ -32060,9 +25159,6 @@ In this connection Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura writes in his 
 
 ### CC Adi 17.280
 
-> ইহা ছাড়ি’ কৃষ্ণ যদি হয় অন্যাকার ।
-> গোপিকার ভাব নাহি যায় নিকট তাহার ॥২৮০॥
-
 > ihā chāḍi' kṛṣṇa yadi haya anyākāra
 > gopikāra bhāva nāhi yāya nikaṭa tāhāra
 
@@ -32071,11 +25167,6 @@ In this connection Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura writes in his 
 **If Lord Kṛṣṇa gives up this original form and assumes another Viṣṇu form, nearness to Him cannot invoke the ecstatic mood of the gopīs.**
 
 ### CC Adi 17.281
-
-> গোপীনাং পশুপেন্দ্রনন্দনজুষো ভাবস্য কস্তাং কৃতী
-> বিজ্ঞাতুং ক্ষমতে দুরূহপদবীসঞ্চারিণঃ প্রক্রিয়াম্ ।
-> আবিষ্কুর্বতি বৈষ্ণবীমপি তনুং তস্মিন্ ভুজৈর্জিষ্ণুভি-
-> র্যাসাং হন্ত চতুর্ভিরদ্ভুতরুচিং রাগোদয়ঃ কুঞ্চতি ॥২৮১॥
 
 > gopīnāṁ paśupendra-nandana-juṣo bhāvasya kas tāṁ krtī
 > vijñātuṁ kṣamate durūha-padavī-sañcāriṇaḥ prakriyām
@@ -32090,9 +25181,6 @@ This is a quotation from the *Lalita-mādhava* (6.54), by Śrīla Rūpa Gosvām�
 
 ### CC Adi 17.282
 
-> বসন্তকালে রাসলীলা করে গোবর্ধনে ।
-> অন্তর্ধান কৈলা সঙ্কেত করি’ রাধা-সনে ॥২৮২॥
-
 > vasanta-kāle rāsa-līlā kare govardhane
 > antardhāna kailā saṅketa kari' rādhā-sane
 
@@ -32101,9 +25189,6 @@ This is a quotation from the *Lalita-mādhava* (6.54), by Śrīla Rūpa Gosvām�
 **During the season of springtime, when the rāsa dance was going on, suddenly Kṛṣṇa disappeared from the scene, indicating that He wanted to be alone with Śrīmatī Rādhārāṇī.**
 
 ### CC Adi 17.283
-
-> নিভৃতনিকুঞ্জে বসি’ দেখে রাধার বাট ।
-> অন্বেষিতে আইলা তাহাঁ গোপিকার ঠাট ॥২৮৩॥
 
 > nibhṛta-nikuñje vasi' dekhe rādhāra bāṭa
 > anveṣite āilā tāhāṅ gopikāra ṭhāṭa
@@ -32114,9 +25199,6 @@ This is a quotation from the *Lalita-mādhava* (6.54), by Śrīla Rūpa Gosvām�
 
 ### CC Adi 17.284
 
-> দূর হৈতে কৃষ্ণে দেখি’ বলে গোপীগণ ।
-> “এই দেখ কুঞ্জের ভিতর ব্রজেন্দ্রনন্দন ।।” ॥ ২৮৪ ॥
-
 > dūra haite kṛṣṇe dekhi' bale gopī-gaṇa
 > "ei dekha kuñjera bhitara vrajendra-nandana"
 
@@ -32125,9 +25207,6 @@ This is a quotation from the *Lalita-mādhava* (6.54), by Śrīla Rūpa Gosvām�
 **"Just see!" the gopīs said, seeing Kṛṣṇa from a distant place. "Here within a bush is Kṛṣṇa, the son of Nanda Mahārāja."**
 
 ### CC Adi 17.285
-
-> গোপীগণ দেখি’ কৃষ্ণের হইল সাধ্বস ।
-> লুকাইতে নারিল, ভয়ে হৈলা বিবশ ॥২৮৫॥
 
 > gopī-gaṇa dekhi' kṛṣṇera ha-ila sādhvasa
 > lukāite nārila, bhaye hailā vibaśa
@@ -32138,9 +25217,6 @@ This is a quotation from the *Lalita-mādhava* (6.54), by Śrīla Rūpa Gosvām�
 
 ### CC Adi 17.286
 
-> চতুর্ভুজ মূর্তি ধরি’ আছেন বসিয়া ।
-> কৃষ্ণ দেখি’ গোপী কহে নিকটে আসিয়া ॥২৮৬॥
-
 > catur-bhuja mūrti dhari' āchena vasiyā
 > kṛṣṇa dekhi' gopī kahe nikaṭe āsiyā
 
@@ -32150,9 +25226,6 @@ This is a quotation from the *Lalita-mādhava* (6.54), by Śrīla Rūpa Gosvām�
 
 ### CC Adi 17.287
 
-> ‘ইহোঁ কৃষ্ণ নহে, ইহোঁ নারায়ণংমূর্তি ।’
-> এত বলি’ তাঁরে সভে করে নতি-স্তুতি ॥২৮৭॥
-
 > 'ihoṅ kṛṣṇa nahe, ihoṅ nārāyaṇa mūrti'
 > eta bali' tāṅre sabhe kare nati-stuti
 
@@ -32161,9 +25234,6 @@ This is a quotation from the *Lalita-mādhava* (6.54), by Śrīla Rūpa Gosvām�
 **"He is not Kṛṣṇa! He is the Supreme Personality of Godhead, Nārāyaṇa." After saying this, they offered obeisances and the following respectful prayers.**
 
 ### CC Adi 17.288
-
-> “নমো নারায়ণ, দেব করহ প্রসাদ ।
-> কৃষ্ণসঙ্গ দেহ’ মোর ঘুচাহ বিষাদ ।।” ॥ ২৮৮ ॥
 
 > "namo nārāyaṇa, deva karaha prasāda
 > kṛṣṇa-saṅga deha' mora ghucāha viṣāda"
@@ -32176,9 +25246,6 @@ The *gopīs* were not made happy even by seeing the four-armed form of Nārāya�
 
 ### CC Adi 17.289
 
-> এত বলি নমস্করি’ গেলা গোপীগণ ।
-> হেনকালে রাধা আসি’ দিলা দরশন ॥২৮৯॥
-
 > eta bali namaskari' gelā gopī-gaṇa
 > hena-kāle rādhā āsi' dilā daraśana
 
@@ -32187,9 +25254,6 @@ The *gopīs* were not made happy even by seeing the four-armed form of Nārāya�
 **After saying this and offering obeisances, all the gopīs dispersed. Then Śrīmatī Rādhārāṇī came and appeared before Lord Kṛṣṇa.**
 
 ### CC Adi 17.290
-
-> রাধা দেখি’ কৃষ্ণ তাঁরে হাস্য করিতে ।
-> সেই চতুর্ভুজ মূর্তি চাহেন রাখিতে ॥২৯০॥
 
 > rādhā dekhi' kṛṣṇa tāṅre hāsya karite
 > sei catur-bhuja mūrti cāhena rākhite
@@ -32200,9 +25264,6 @@ The *gopīs* were not made happy even by seeing the four-armed form of Nārāya�
 
 ### CC Adi 17.291
 
-> লুকাইলা দুই ভুজ রাধার অগ্রেতে ।
-> বহু যত্ন কৈলা কৃষ্ণ, নারিল রাখিতে ॥২৯১॥
-
 > lukāilā dui bhuja rādhāra agrete
 > bahu yatna kailā kṛṣṇa, nārila rākhite
 
@@ -32212,9 +25273,6 @@ The *gopīs* were not made happy even by seeing the four-armed form of Nārāya�
 
 ### CC Adi 17.292
 
-> রাধার বিশুদ্ধ-ভাবের অচিন্ত্য প্রভাব ।
-> যে কৃষ্ণেরে করাইলা দ্বিভুজ স্বভাব ॥২৯২॥
-
 > rādhāra viśuddha-bhāvera acintya prabhāva
 > ye kṛṣṇere karāilā dvi-bhuja-svabhāva
 
@@ -32223,11 +25281,6 @@ The *gopīs* were not made happy even by seeing the four-armed form of Nārāya�
 **The influence of Rādhārāṇī's pure ecstasy is so inconceivably great that it forced Kṛṣṇa to come to His original two-armed form.**
 
 ### CC Adi 17.293
-
-> রাসারম্ভবিধৌ নিলীয় বসতা কুঞ্জে মৃগাক্ষীগণৈ-
-> র্দৃষ্টং গোপয়িতুং স্বমুদ্ধুরধিয়া যা সুষ্ঠু সন্দর্শিতা ।
-> রাধায়াঃ প্রণয়স্য হন্ত মহিমা যস্য শ্রিয়া রক্ষিতুং
-> সা শক্যা প্রভবিষ্ণুনাপি হরিণা নাসীচ্চতুর্বাহুতা ॥২৯৩॥
 
 > rāsārambha-vidhau nilīya vasatā kuñje mṛgākṣī-gaṇair
 > dṛṣṭaṁ gopayituṁ svam uddhura-dhiyā yā suṣṭhu sandarśitā
@@ -32242,9 +25295,6 @@ This is a quotation from the *Ujjvala-nīlamaṇi,* by Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 17.294
 
-> সেই ব্রজেশ্বর — ইহঁ জগন্নাথ পিতা ।
-> সেই ব্রজেশ্বরী — ইহঁ শচীদেবী মাতা ॥২৯৪॥
-
 > sei vrajeśvara—ihaṅ jagannātha pitā
 > sei vrajeśvarī—ihaṅ śacīdevī mātā
 
@@ -32253,9 +25303,6 @@ This is a quotation from the *Ujjvala-nīlamaṇi,* by Śrīla Rūpa Gosvāmī.
 **Father Nanda, the King of Vrajabhūmi, is now Jagannātha Miśra, the father of Caitanya Mahāprabhu. And mother Yaśodā, the Queen of Vrajabhūmi, is now Śacīdevī, Lord Caitanya's mother.**
 
 ### CC Adi 17.295
-
-> সেই নন্দসূত — ইহঁ চৈতন্য-গোসাঞি ।
-> সেই বলদেব — ইহঁ নিত্যানন্দ ভাই ॥২৯৫॥
 
 > sei nanda-suta—ihaṅ caitanya-gosāñi
 > sei baladeva—ihaṅ nityānanda bhāi
@@ -32266,9 +25313,6 @@ This is a quotation from the *Ujjvala-nīlamaṇi,* by Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 17.296
 
-> বাৎসল্য, দাস্য, সখ্য — তিন ভাবময় ।
-> সেই নিত্যানন্দ — কৃষ্ণচৈতন্য-সহায় ॥২৯৬॥
-
 > vātsalya, dāsya, sakhya—tina bhāvamaya
 > sei nityānanda—kṛṣṇa-caitanya-sahāya
 
@@ -32277,9 +25321,6 @@ This is a quotation from the *Ujjvala-nīlamaṇi,* by Śrīla Rūpa Gosvāmī.
 **Śrī Nityānanda Prabhu always feels the ecstatic emotions of paternity, servitude and friendship. He always assists Śrī Caitanya Mahāprabhu in that way.**
 
 ### CC Adi 17.297
-
-> প্রেমভক্তি দিয়া তেঁহো ভাসা’ল জগতে ।
-> তাঁর চরিত্র লোকে না পারে বুঝিতে ॥২৯৭॥
 
 > prema-bhakti diyā teṅho bhāsā'la jagate
 > tāṅra caritra loke nā pāre bujhite
@@ -32290,9 +25331,6 @@ This is a quotation from the *Ujjvala-nīlamaṇi,* by Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 17.298
 
-> অদ্বৈত-আচার্য-গোসাঞি ভক্ত-অবতার ।
-> কৃষ্ণ অবতারিয়া কৈলা ভক্তির প্রচার ॥২৯৮॥
-
 > advaita-ācārya-gosāñi bhakta-avatāra
 > kṛṣṇa avatāriyā kailā bhaktira pracāra
 
@@ -32301,9 +25339,6 @@ This is a quotation from the *Ujjvala-nīlamaṇi,* by Śrīla Rūpa Gosvāmī.
 **Śrīla Advaita Ācārya Prabhu appeared as an incarnation of a devotee. He is in the category of Kṛṣṇa, but He descended to this earth to propagate devotional service.**
 
 ### CC Adi 17.299
-
-> সখ্য, দাস্য, — দুই ভাব সহজ তাঁহার ।
-> কভু প্রভু করেন তাঁরে গুরু-ব্যবহার ॥২৯৯॥
 
 > sakhya, dāsya,—dui bhāva sahaja tāṅhāra
 > kabhu prabhu karena tāṅre guru-vyavahāra
@@ -32314,9 +25349,6 @@ This is a quotation from the *Ujjvala-nīlamaṇi,* by Śrīla Rūpa Gosvāmī.
 
 ### CC Adi 17.300
 
-> শ্রীবাসাদি যত মহাপ্রভুর ভক্তগণ ।
-> নিজ নিজ ভাবে করেন চৈতন্য-সেবন ॥৩০০॥
-
 > śrīvāsādi yata mahāprabhura bhakta-gaṇa
 > nija nija bhāve karena caitanya-sevana
 
@@ -32325,9 +25357,6 @@ This is a quotation from the *Ujjvala-nīlamaṇi,* by Śrīla Rūpa Gosvāmī.
 **All the devotees of Śrī Caitanya Mahāprabhu, headed by Śrīvāsa Ṭhākura, have their own emotional humors in which they render service unto Him.**
 
 ### CC Adi 17.301
-
-> পণ্ডিত-গোসাঞি আদি যাঁর যেই রস ।
-> সেই সেই রসে প্রভু হন তাঁর বশ ॥৩০১॥
 
 > paṇḍita-gosāñi ādi yāṅra yei rasa
 > sei sei rase prabhu hana tāṅra vaśa
@@ -32342,9 +25371,6 @@ In verses 296 through 301 the emotional devoted service of Śrī Nityānanda, Ś
 
 ### CC Adi 17.302
 
-> তিহঁ শ্যাম, — বংশীমুখ, গোপবিলাসী ।
-> ইহঁ গৌর — কভু দ্বিজ, কভু ত’ সন্ন্যাসী ॥৩০২॥
-
 > tihaṅ śyāma,—vaṁśī-mukha, gopa-vilāsī
 > ihaṅ gaura—kabhu dvija, kabhu ta' sannyāsī
 
@@ -32354,9 +25380,6 @@ In verses 296 through 301 the emotional devoted service of Śrī Nityānanda, Ś
 
 ### CC Adi 17.303
 
-> অতএব আপনে প্রভু গোপীভাব ধরি’ ।
-> ব্রজেন্দ্রনন্দনে কহে ‘প্রাণনাথ’ করি’ ॥৩০৩॥
-
 > ataeva āpane prabhu gopī-bhāva dhari'
 > vrajendra-nandane kahe 'prāṇa-nātha' kari'
 
@@ -32365,9 +25388,6 @@ In verses 296 through 301 the emotional devoted service of Śrī Nityānanda, Ś
 **Therefore the Lord Himself, accepting the emotional ecstasy of the gopīs, now addresses the son of Nanda Mahārāja, "O master of My life! O My dear husband!"**
 
 ### CC Adi 17.304
-
-> সেই কৃষ্ণ, সেই গোপী, — পরম বিরোধ ।
-> অচিন্ত্য চরিত্র প্রভুর অতি সুদুর্বোধ ॥৩০৪॥
 
 > sei kṛṣṇa, sei gopī,—parama virodha
 > acintya caritra prabhura ati sudurbodha
@@ -32392,9 +25412,6 @@ The conjugal love between Rādhā and Kṛṣṇa, which is called *yugala-pīri
 
 ### CC Adi 17.305
 
-> ইথে তর্ক করি’ কেহ না কর সংশয় ।
-> কৃষ্ণের অচিন্ত্যশক্তি এই মত হয় ॥৩০৫॥
-
 > ithe tarka kari' keha nā kara saṁśaya
 > kṛṣṇera acintya-śakti ei mata haya
 
@@ -32404,9 +25421,6 @@ The conjugal love between Rādhā and Kṛṣṇa, which is called *yugala-pīri
 
 ### CC Adi 17.306
 
-> অচিন্ত্য, অদ্ভুত কৃষ্ণচৈতন্য-বিহার ।
-> চিত্র ভাব, চিত্র গুণ, চিত্র ব্যবহার ॥৩০৬॥
-
 > acintya, adbhuta kṛṣṇa-caitanya-vihāra
 > citra bhāva, citra guṇa, citra vyavahāra
 
@@ -32415,9 +25429,6 @@ The conjugal love between Rādhā and Kṛṣṇa, which is called *yugala-pīri
 **The pastimes of Śrī Kṛṣṇa Caitanya Mahāprabhu are inconceivable and wonderful. His ecstasy is wonderful, His qualities are wonderful, and His behavior is wonderful.**
 
 ### CC Adi 17.307
-
-> তর্কে ইহা নাহি মানে যেই দুরাচার ।
-> কুম্ভীপাকে পচে, তার নাহিক নিস্তার ॥৩০৭॥
 
 > tarke ihā nāhi māne yei durācāra
 > kumbhīpāke pace, tāra nāhika nistāra
@@ -32429,9 +25440,6 @@ The conjugal love between Rādhā and Kṛṣṇa, which is called *yugala-pīri
 Kumbhīpāka, a type of hellish condition, is described in *Śrīmad-Bhāgavatam* (5.26.13), wherein it is said that a person who cooks living birds and beasts to satisfy his tongue is brought before Yamarāja after death and punished in the Kumbhīpāka hell. There he is put into boiling oil called *kumbhī-pāka,* from which there is no deliverance. Kumbhīpāka is meant for persons who are unnecessarily envious. Those who are envious of the activities of Śrī Caitanya Mahāprabhu are punished in that hellish condition.
 
 ### CC Adi 17.308
-
-> অচিন্ত্যাঃ খলু যে ভাবা ন তাংস্তর্কেণ যোজয়েৎ ।
-> প্রকৃতিভ্যঃ পরং যচ্চ তদচিন্ত্যস্য লক্ষণম ॥৩০৮॥
 
 > acintyāḥ khalu ye bhāvā
 > na tāṁs tarkeṇa yojayet
@@ -32446,9 +25454,6 @@ This is a quote from the *Bhakti-rasāmṛta-sindhu* (2.5.93), by Śrīla Rūpa 
 
 ### CC Adi 17.309
 
-> অদ্ভুত চৈতন্যলীলায় যাহার বিশ্বাস ।
-> সেই জন যায় চৈতন্যের পদ পাশ ॥৩০৯॥
-
 > adbhuta caitanya-līlāya yāhāra viśvāsa
 > sei jana yāya caitanyera pada pāśa
 
@@ -32457,9 +25462,6 @@ This is a quote from the *Bhakti-rasāmṛta-sindhu* (2.5.93), by Śrīla Rūpa 
 **Only a person who has firm faith in the wonderful pastimes of Lord Caitanya Mahāprabhu can approach His lotus feet.**
 
 ### CC Adi 17.310
-
-> প্রসঙ্গে কহিল এই সিদ্ধান্তের সার ।
-> ইহা যেই শুনে, শুদ্ধভক্তি হয় তার ॥৩১০॥
 
 > prasaṅge kahila ei siddhāntera sāra
 > ihā yei śune, śuddha-bhakti haya tāra
@@ -32470,9 +25472,6 @@ This is a quote from the *Bhakti-rasāmṛta-sindhu* (2.5.93), by Śrīla Rūpa 
 
 ### CC Adi 17.311
 
-> লিখিত গ্রন্থের যদি করি অনুবাদ ।
-> তবে সে গ্রন্থের অর্থ পাইয়ে আস্বাদ ॥৩১১॥
-
 > likhita granthera yadi kari anuvāda
 > tabe se granthera artha pāiye āsvāda
 
@@ -32481,9 +25480,6 @@ This is a quote from the *Bhakti-rasāmṛta-sindhu* (2.5.93), by Śrīla Rūpa 
 **If I repeat what is already written, I may thus relish the purpose of this scripture.**
 
 ### CC Adi 17.312
-
-> দেখি গ্রন্থে ভাগবতে ব্যাসের আচার ।
-> কথা কহি’ অনুবাদ করে বার বার ॥৩১২॥
 
 > dekhi granthe bhāgavate vyāsera ācāra
 > kathā kahi' anuvāda kare vāra vāra
@@ -32496,9 +25492,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 
 ### CC Adi 17.313
 
-> তাতে আদি-লীলার করি পরিচ্ছেদ গণন ।
-> প্রথম পরিচ্ছেদে কৈলুঁ ‘মঙ্গলাচরণ’ ॥৩১৩॥
-
 > tāte ādi-līlāra kari pariccheda gaṇana
 > prathama paricchede kailuṅ 'maṅgalācaraṇa'
 
@@ -32507,9 +25500,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 **Therefore I shall enumerate the chapters of the Ādi-līlā. In the First Chapter I offer obeisances to the spiritual master, for this is the beginning of auspicious writing.**
 
 ### CC Adi 17.314
-
-> দ্বিতীয় পরিচ্ছেদে ‘চৈতন্যতত্ত্ব-নিরূপণ’ ।
-> স্বয়ং ভগবান্ যেই ব্রজেন্দ্র নন্দন ॥৩১৪॥
 
 > dvitīya paricchede 'caitanya-tattva-nirūpaṇa'
 > svayaṁ bhagavān yei vrajendra-nandana
@@ -32520,9 +25510,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 
 ### CC Adi 17.315
 
-> তেঁহো ত’ চৈতন্য-কৃষ্ণ — শচীর নন্দন ।
-> তৃতীয় পরিচ্ছেদে জন্মের ‘সামান্য’ কারণ ॥৩১৫॥
-
 > teṅho ta' caitanya-kṛṣṇa—śacīra nandana
 > tṛtīya paricchede janmera 'sāmānya' kāraṇa
 
@@ -32531,9 +25518,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 **Śrī Kṛṣṇa Caitanya Mahāprabhu, who is Kṛṣṇa Himself, has now appeared as the son of mother Śacī. The Third Chapter describes the general cause of His appearance.**
 
 ### CC Adi 17.316
-
-> তহিঁ মধ্যে প্রেমদান — ‘বিশেষ’ কারণ ।
-> যুগধর্ম — কৃষ্ণনাম-প্রেম-প্রচারণ ॥৩১৬॥
 
 > tahiṅ madhye prema-dāna—'viśeṣa' kāraṇa
 > yuga-dharma—kṛṣṇa-nāma-prema-pracāraṇa
@@ -32544,9 +25528,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 
 ### CC Adi 17.317
 
-> চতুর্থে কহিলুঁ জন্মের ‘মূল’ প্রয়োজন ।
-> স্বমাধুর্য-প্রেমানন্দরস-আস্বাদন ॥৩১৭॥
-
 > caturthe kahiluṅ janmera 'mūla' prayojana
 > sva-mādhurya-premānanda-rasa-āsvādana
 
@@ -32555,9 +25536,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 **The Fourth Chapter describes the main reason for His appearance, which is to taste the mellow quality of His own transcendental loving service and His own sweetness.**
 
 ### CC Adi 17.318
-
-> পঞ্চমে ‘শ্রীনিত্যানন্দ’-তত্ত্ব নিরূপণ ।
-> নিত্যানন্দ হৈলা রাম রোহিণীনন্দন ॥৩১৮॥
 
 > pañcame 'śrī-nityānanda'-tattva nirūpaṇa
 > nityānanda hailā rāma rohiṇī-nandana
@@ -32568,9 +25546,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 
 ### CC Adi 17.319
 
-> ষষ্ঠ পরিচ্ছেদে ‘অদ্বৈত-তত্ত্বে’র বিচার ।
-> অদ্বৈত-আচার্য — মহাবিষ্ণু-অবতার ॥৩১৯॥
-
 > ṣaṣṭha paricchede 'advaita-tattve'ra vicāra
 > advaita-ācārya—mahā-viṣṇu-avatāra
 
@@ -32579,9 +25554,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 **The Sixth Chapter considers the truth of Advaita Ācārya. He is an incarnation of Mahā-Viṣṇu.**
 
 ### CC Adi 17.320
-
-> সপ্তম পরিচ্ছেদে ‘পঞ্চতত্ত্বে’র আখ্যান ।
-> পঞ্চতত্ত্ব মিলি’ যৈছে কৈলা প্রেমদান ॥৩২০॥
 
 > saptama paricchede 'pañca-tattve'ra ākhyāna
 > pañca-tattva mili' yaiche kailā prema-dāna
@@ -32592,9 +25564,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 
 ### CC Adi 17.321
 
-> অষ্টমে ‘চৈতন্যলীলা-বর্ণন’-কারণ ।
-> এক কৃষ্ণনামের মহা-মহিমা-কথন ॥৩২১॥
-
 > aṣṭame 'caitanya-līlā-varṇana'-kāraṇa
 > eka kṛṣṇa-nāmera mahā-mahimā-kathana
 
@@ -32603,9 +25572,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 **The Eighth Chapter gives the reason for describing Lord Caitanya's pastimes. It also describes the greatness of Lord Kṛṣṇa's holy name.**
 
 ### CC Adi 17.322
-
-> নবমেতে ‘ভক্তিকল্পবৃক্ষের বর্ণন’ ।
-> শ্রীচৈতন্য-মালী কৈলা বৃক্ষ আরোপণ ॥৩২২॥
 
 > navamete 'bhakti-kalpa-vṛkṣera varṇana'
 > śrī-caitanya-mālī kailā vṛkṣa āropaṇa
@@ -32616,9 +25582,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 
 ### CC Adi 17.323
 
-> দশমেতে মূল-স্কন্ধের ‘শাখাদি-গণন’ ।
-> সর্বশাখাগণের যৈছে ফল-বিতরণ ॥৩২৩॥
-
 > daśamete mūla-skandhera 'śākhādi-gaṇana'
 > sarva-śākhā-gaṇera yaiche phala-vitaraṇa
 
@@ -32627,9 +25590,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 **The Tenth Chapter describes the branches and subbranches of the main trunk, and the distribution of their fruits.**
 
 ### CC Adi 17.324
-
-> একাদশে ‘নিত্যানন্দশাখা-বিবরণ’ ।
-> দ্বাদশে ‘অদ্বৈতস্কন্ধ শাখার বর্ণন’ ॥৩২৪॥
 
 > ekādaśe 'nityānanda-śākhā-vivaraṇa'
 > dvādaśe 'advaita-skandha śākhāra varṇana'
@@ -32640,9 +25600,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 
 ### CC Adi 17.325
 
-> ত্রয়োদশে মহাপ্রভুর ‘জন্ম-বিবরণ’ ।
-> কৃষ্ণনাম-সহ যৈছে প্রভুর জনম ॥৩২৫॥
-
 > trayodaśe mahāprabhura 'janma-vivaraṇa'
 > kṛṣṇa-nāma-saha yaiche prabhura janama
 
@@ -32651,9 +25608,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 **The Thirteenth Chapter describes the birth of Śrī Caitanya Mahāprabhu, which took place with the chanting of the holy name of Kṛṣṇa.**
 
 ### CC Adi 17.326
-
-> চতুর্দশে ‘বাল্যলীলা’র কিছু বিবরণ ।
-> পঞ্চদশে ‘পৌগণ্ডলীলা’র সংক্ষেপে কথন ॥৩২৬॥
 
 > caturdaśe 'bālya-līlāra' kichu vivaraṇa
 > pañcadaśe 'paugaṇḍa-līlāra' saṅkṣepe kathana
@@ -32664,9 +25618,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 
 ### CC Adi 17.327
 
-> ষোড়শ পরিচ্ছেদে ‘কৈশোরলীলা’র উদ্দেশ ।
-> সপ্তদশে ‘যৌবনলীলা’ কহিলুঁ বিশেষ ॥৩২৭॥
-
 > ṣoḍaśa paricchede 'kaiśora-līlā' ra uddeśa
 > saptadaśe 'yauvana-līlā' kahiluṅ viśeṣa
 
@@ -32675,9 +25626,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 **In the Sixteenth Chapter I have indicated the pastimes of the kaiśora age [the age prior to youth]. In the Seventeenth Chapter I have specifically described His youthful pastimes.**
 
 ### CC Adi 17.328
-
-> এই সপ্তদশ প্রকার ‘আদি-লীলা’র প্রবন্ধ ।
-> দ্বাদশ প্রবন্ধ তাতে গ্রন্থ-মুখবন্ধ ॥৩২৮॥
 
 > ei saptadaśa prakāra ādi-līlāra prabandha
 > dvādaśa prabandha tāte grantha-mukhabandha
@@ -32688,9 +25636,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 
 ### CC Adi 17.329
 
-> পঞ্চপ্রবন্ধে পঞ্চরসের চরিত ।
-> সংক্ষেপে কহিলুঁ অতি, — না কৈলুঁ বিস্তৃত ॥৩২৯॥
-
 > pañca-prabandhe pañca-rasera carita
 > saṅkṣepe kahiluṅ ati,—nā kailuṅ vistṛta
 
@@ -32699,9 +25644,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 **After the chapters of the preface, I have described five transcendental mellows in five chapters. I have described them very briefly rather than expansively.**
 
 ### CC Adi 17.330
-
-> বৃন্দাবনদাস ইহা ‘চৈতন্যমঙ্গলে’ ।
-> বিস্তারি’ বর্ণিলা নিত্যানন্দ-আজ্ঞা-বলে ॥৩৩০॥
 
 > vṛndāvana-dāsa ihā 'caitanya-maṅgale'
 > vistāri' varṇilā nityānanda-ājñā-bale
@@ -32712,9 +25654,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 
 ### CC Adi 17.331
 
-> শ্রীকৃষ্ণচৈতন্যলীলা — অদ্ভুত, অনন্ত ।
-> ব্রহ্মা-শিব-শেষ যাঁর নাহি পায় অন্ত ॥৩৩১॥
-
 > śrī-kṛṣṇa-caitanya-līlā—adbhuta, ananta
 > brahmā-śiva-śeṣa yāṅra nāhi pāya anta
 
@@ -32723,9 +25662,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 **The pastimes of Lord Śrī Caitanya Mahāprabhu are wonderful and unlimited. Even personalities like Lord Brahmā, Lord Śiva and Śeṣa Nāga cannot find their end.**
 
 ### CC Adi 17.332
-
-> যে যেই অংশ কহে, শুনে সেই ধন্য ।
-> অচিরে মিলিবে তারে শ্রীকৃষ্ণচৈতন্য ॥৩৩২॥
 
 > ye yei aṁśa kahe, śune sei dhanya
 > acire milibe tāre śrī-kṛṣṇa-caitanya
@@ -32736,9 +25672,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 
 ### CC Adi 17.333
 
-> শ্রীকৃষ্ণচৈতন্য, অদ্বৈত, নিত্যানন্দ ।
-> শ্রীবাস-গদাধরাদি যত ভক্তবৃন্দ ॥৩৩৩॥
-
 > śrī-kṛṣṇa-caitanya, advaita, nityānanda
 > śrīvāsa-gadādharādi yata bhakta-vṛnda
 
@@ -32748,9 +25681,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 
 ### CC Adi 17.334
 
-> যত যত ভক্তগণ বৈসে বৃন্দাবনে ।
-> নম্র হঞা শিরে ধরোঁ সবার চরণে ॥৩৩৪॥
-
 > yata yata bhakta-gaṇa vaise vṛndāvane
 > namra hañā śire dharoṅ sabāra caraṇe
 
@@ -32759,11 +25689,6 @@ At the end of *Śrīmad-Bhāgavatam,* in the Twelfth Canto, the Twelfth Chapter 
 **I offer my respectful obeisances to all the residents of Vṛndāvana. I wish to place their lotus feet on my head in great humbleness.**
 
 ### CC Adi 17.335-336
-
-> শ্রীস্বরূপ-শ্রীরূপ-শ্রীসনাতন ।
-> শ্রীরঘুনাথদাস, আর শ্রীজীব-চরণ ॥৩৩৫॥
-> শিরে ধরি বন্দোঁ, নিত্য করোঁ তাঁর আশ ।
-> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৩৩৬॥
 
 > śrī-svarūpa-śrī-rūpa-śrī-sanātana
 > śrī-raghunātha-dāsa, āra śrī-jīva-caraṇa

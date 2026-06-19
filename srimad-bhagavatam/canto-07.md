@@ -4,10 +4,6 @@
 
 ### SB 7.1.1
 
-> श्रीराजोवाच
-> समः प्रियः सुहृद्ब्रह्मन्भूतानां भगवान्स्वयम
-> इन्द्रस्यार्थे कथं दैत्यानवधीद्विषमो यथा ॥१॥
-
 > śrī-rājovāca
 > samaḥ priyaḥ suhṛd brahman
 > bhūtānāṁ bhagavān svayam
@@ -23,9 +19,6 @@ In *Bhagavad-gītā* [[bg/9/29|(Bg. 9.29)]] the Lord says, *samo 'haṁ sarva-bh
 A devotee cannot accept that Lord Viṣṇu has material qualifications. Mahārāja Parīkṣit knew perfectly well that Lord Viṣṇu, being transcendental, has nothing to do with material qualities, but to confirm his conviction he wanted to hear from the authority Śukadeva Gosvāmī. Śrīla Viśvanātha Cakravartī Ṭhākura says, *samasya kathaṁ vaiṣamyam:* since the Lord is equally disposed toward everyone, how can He be partial? *Priyasya katham asureṣu prīty-abhāvaḥ.* The Lord, being the Supersoul, is extremely dear to everyone. Why, then, should the Lord display unsympathetic behavior toward the *asuras*? How is this impartial? *Suhṛdaś ca kathaṁ teṣv asauhārdam.* Since the Lord says that He is *suhṛdaṁ sarva-bhūtānām* [[bg/5/29|[Bg. 5.29] ]], the well-wisher of all living entities, how could He act with partiality by killing demons? These questions arose in the heart of Parīkṣit Mahārāja, and therefore he inquired from Śukadeva Gosvāmī.
 
 ### SB 7.1.2
-
-> न ह्यस्यार्थः सुरगणैः साक्षान्निःश्रेयसात्मनः
-> नैवासुरेभ्यो विद्वेषो नोद्वेगश्चागुणस्य हि ॥२॥
 
 > na hy asyārthaḥ sura-gaṇaiḥ
 > sākṣān niḥśreyasātmanaḥ
@@ -49,9 +42,6 @@ Envy and friendship arise in one who is imperfect. We fear our enemies because i
 
 ### SB 7.1.3
 
-> इति नः सुमहाभाग नारायणगुणान्प्रति
-> संशयः सुमहान्जातस्तद्भवांश्छेत्तुमर्हति ॥३॥
-
 > iti naḥ sumahā-bhāga
 > nārāyaṇa-guṇān prati
 > saṁśayaḥ sumahāñ jātas
@@ -64,12 +54,6 @@ Envy and friendship arise in one who is imperfect. We fear our enemies because i
 Since Lord Nārāyaṇa is absolute, His transcendental qualities are described as one. Thus His punishments and His offerings of favor are both of the same value. Essentially, His inimical actions are not displays of enmity toward His so-called enemies, but in the material field one thinks that Kṛṣṇa is favorable to devotees and unfavorable to nondevotees. When Kṛṣṇa finally instructs in *Bhagavad-gītā, sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja* [[bg/18/66|[Bg. 18.66] ]], this is meant not only for Arjuna but for every living entity within this universe.
 
 ### SB 7.1.4-5
-
-> श्रीऋषिरुवाच
-> साधु पृष्टं महाराज हरेश्चरितमद्भुतम
-> यद्भागवतमाहात्म्यं भगवद्भक्तिवर्धनम ॥४॥
-> गीयते परमं पुण्यमृषिभिर्नारदादिभिः
-> नत्वा कृष्णाय मुनये कथयिष्ये हरेः कथाम ॥५॥
 
 > śrī-ṛṣir uvāca
 > sādhu pṛṣṭaṁ mahārāja
@@ -92,9 +76,6 @@ Whenever there is an opportunity to hear about the transcendental activities of 
 
 ### SB 7.1.6
 
-> निर्गुणोऽपि ह्यजोऽव्यक्तो भगवान्प्रकृतेः परः
-> स्वमायागुणमाविश्य बाध्यबाधकतां गतः ॥६॥
-
 > nirguṇo 'pi hy ajo 'vyakto
 > bhagavān prakṛteḥ paraḥ
 > sva-māyā-guṇam āviśya
@@ -110,9 +91,6 @@ In *Bhagavad-gītā* [[bg/9/11|(Bg. 9.11)]] the Lord clearly says, *avajānanti 
 
 ### SB 7.1.7
 
-> सत्त्वं रजस्तम इति प्रकृतेर्नात्मनो गुणाः
-> न तेषां युगपद्राजन्ह्रास उल्लास एव वा ॥७॥
-
 > sattvaṁ rajas tama iti
 > prakṛter nātmano guṇāḥ
 > na teṣāṁ yugapad rājan
@@ -125,9 +103,6 @@ In *Bhagavad-gītā* [[bg/9/11|(Bg. 9.11)]] the Lord clearly says, *avajānanti 
 The original position of the Supreme Personality of Godhead is one of equality. There is no question of His being influenced by *sattva-guṇa, rujo-guṇa* or *tamo-guṇa,* for these material qualities cannot touch the Supreme Lord. The Lord is therefore called the supreme *īśvara. Īśvaraḥ paramaḥ kṛṣṇaḥ:* [Bs. 5.1] He is the supreme controller. He controls the material qualities (*daivī hy eṣā guṇa-mayī mama māyā* [[bg/7/14|[Bg. 7.14] ]]). *Mayādhyakṣena prakṛtiḥ sūyate/ [[bg/9/10|[Bg. 9.10] ]]* material nature (*prakṛti*) works under His order. How, then, can He be under the qualities of *prakṛti*? Kṛṣṇa is never influenced by the material qualities. Therefore there is no question of partiality in the Supreme Personality of Godhead.
 
 ### SB 7.1.8
-
-> जयकाले तु सत्त्वस्य देवर्षीन्रजसोऽसुरान
-> तमसो यक्षरक्षांसि तत्कालानुगुणोऽभजत ॥८॥
 
 > jaya-kāle tu sattvasya
 > devarṣīn rajaso 'surān
@@ -181,9 +156,6 @@ The various modes of material nature do not work all at once. The interactions o
 
 ### SB 7.1.9
 
-> ज्योतिरादिरिवाभाति सङ्घातान्न विविच्यते
-> विदन्त्यात्मानमात्मस्थं मथित्वा कवयोऽन्ततः ॥९॥
-
 > jyotir-ādir ivābhāti
 > saṅghātān na vivicyate
 > vidanty ātmānam ātma-sthaṁ
@@ -220,9 +192,6 @@ By external features one cannot understand who is favored by Kṛṣṇa and who
 
 ### SB 7.1.10
 
-> यदा सिसृक्षुः पुर आत्मनः परो रजः सृजत्येष पृथक्स्वमायया
-> सत्त्वं विचित्रासु रिरंसुरीश्वरः शयिष्यमाणस्तम ईरयत्यसौ ॥१०॥
-
 > yadā sisṛkṣuḥ pura ātmanaḥ paro
 > rajaḥ sṛjaty eṣa pṛthak sva-māyayā
 > sattvaṁ vicitrāsu riraṁsur īśvaraḥ
@@ -242,10 +211,6 @@ Although material nature is conducted by the three qualities—*sattva-guṇa, r
 "This material nature is working under My direction, O son of Kuntī, and it is producing all moving and unmoving beings. By its rule this manifestation is created and annihilated again and again." The different changes in the material world take place as actions and reactions of the three *guṇas,* but above the three *guṇas* is their director, the Supreme Personality of Godhead. In the various types of bodies given to the living entities by material nature (*yantrārūḍhāni māyayā*), either *sattva-guṇa, rajo-guṇa* or *tamo-guṇa* is prominent. The body is produced by material nature according to the direction of the Supreme Personality of Godhead. Therefore it is said here, *yadā sisṛkṣuḥ pura ātmanaḥ paraḥ,* indicating that the body is certainly created by the Lord. *Karmaṇā daiva-netreṇa:* [[sb/3/31/1|[SB 3.31.1] ]] according to the *karma* of the living entity, a body is prepared under the Supreme Lord's supervision. Whether the body is of *sattva-guṇa, rajo-guṇa* or *tamo-guṇa,* everything is done by the direction of the Supreme Lord through the agency of the external energy (*pṛthak sva-māyayā*). In this way, in different types of bodies, the Lord (*īśvara*) gives directions as Paramātmā, and again, to destroy the body, He employs the *tamo-guṇa.* This is the way the living entities receive different types of bodies.
 
 ### SB 7.1.11
-
-> कालं चरन्तं सृजतीश आश्रयं प्रधानपुम्भ्यां नरदेव सत्यकृत
-> य एष राजन्नपि काल ईशिता सत्त्वं सुरानीकमिवैधयत्यतः
-> तत्प्रत्यनीकानसुरान्सुरप्रियो रजस्तमस्कान्प्रमिणोत्युरुश्रवाः ॥११॥
 
 > kālaṁ carantaṁ sṛjatīśa āśrayaṁ
 > pradhāna-pumbhyāṁ nara-deva satya-kṛt
@@ -271,9 +236,6 @@ The Māyāvādī philosophers say that this material world is *mithyā,* false, 
 
 ### SB 7.1.12
 
-> अत्रैवोदाहृतः पूर्वमितिहासः सुरर्षिणा
-> प्रीत्या महाक्रतौ राजन्पृच्छतेऽजातशत्रवे ॥१२॥
-
 > ya eṣa rājann api kāla īśitā
 > sattvaṁ surānīkam ivaidhayaty ataḥ
 > tat-pratyanīkān asurān sura-priyo
@@ -289,9 +251,6 @@ There have been many historical incidents in which the Lord killed a demon, but 
 
 ### SB 7.1.13
 
-> दृष्ट्वा महाद्भुतं राजा राजसूये महाक्रतौ
-> वासुदेवे भगवति सायुज्यं चेदिभूभुजः ॥१३॥
-
 > atraivodāhṛtaḥ pūrvam
 > itihāsaḥ surarṣiṇā
 > prītyā mahā-kratau rājan
@@ -304,12 +263,6 @@ There have been many historical incidents in which the Lord killed a demon, but 
 This relates to how the Lord exhibited His impartiality even when killing Śiśupāla in the arena of the Rājasūya *yajña* performed by Mahārāja Yudhiṣṭhira.
 
 ### SB 7.1.14-15
-
-> तत्रासीनं सुरऋषिं राजा पाण्डुसुतः क्रतौ
-> पप्रच्छ विस्मितमना मुनीनां शृण्वतामिदम ॥१४॥
-> श्रीयुधिष्ठिर उवाच
-> अहो अत्यद्भुतं ह्येतद्दुर्लभैकान्तिनामपि
-> वासुदेवे परे तत्त्वे प्राप्तिश्चैद्यस्य विद्विषः ॥१५॥
 
 > dṛṣṭvā mahādbhutaṁ rājā
 > rājasūye mahā-kratau
@@ -327,9 +280,6 @@ This relates to how the Lord exhibited His impartiality even when killing Śiśu
 
 ### SB 7.1.16
 
-> एतद्वेदितुमिच्छामः सर्व एव वयं मुने
-> भगवन्निन्दया वेनो द्विजैस्तमसि पातितः ॥१६॥
-
 > śrī-yudhiṣṭhira uvāca
 > aho aty-adbhutaṁ hy etad
 > durlabhaikāntinām api
@@ -344,9 +294,6 @@ There are two classes of transcendentalists—the *jñānīs* and the *bhaktas.*
 
 ### SB 7.1.17
 
-> दमघोषसुतः पाप आरभ्य कलभाषणात
-> सम्प्रत्यमर्षी गोविन्दे दन्तवक्रश्च दुर्मतिः ॥१७॥
-
 > etad veditum icchāmaḥ
 > sarva eva vayaṁ mune
 > bhagavan-nindayā veno
@@ -358,9 +305,6 @@ There are two classes of transcendentalists—the *jñānīs* and the *bhaktas.*
 
 ### SB 7.1.18
 
-> शपतोरसकृद्विष्णुं यद्ब्रह्म परमव्ययम
-> श्वित्रो न जातो जिह्वायां नान्धं विविशतुस्तमः ॥१८॥
-
 > damaghoṣa-sutaḥ pāpa
 > ārabhya kala-bhāṣaṇāt
 > sampraty amarṣī govinde
@@ -371,9 +315,6 @@ There are two classes of transcendentalists—the *jñānīs* and the *bhaktas.*
 **From the very beginning of his childhood, when he could not even speak properly, Śiśupāla, the most sinful son of Damaghoṣa, began blaspheming the Lord, and he continued to be envious of Śrī Kṛṣṇa until death. Similarly, his brother Dantavakra continued the same habits.**
 
 ### SB 7.1.19
-
-> कथं तस्मिन्भगवति दुरवग्राह्यधामनि
-> पश्यतां सर्वलोकानां लयमीयतुरञ्जसा ॥१९॥
 
 > śapator asakṛd viṣṇuṁ
 > yad brahma param avyayam
@@ -388,9 +329,6 @@ Kṛṣṇa is described by Arjuna in *Bhagavad-gītā* [[bg/10/12|(Bg. 10.12)]]
 
 ### SB 7.1.20
 
-> एतद्भ्राम्यति मे बुद्धिर्दीपार्चिरिव वायुना
-> ब्रूह्येतदद्भुततमं भगवान्ह्यत्र कारणम ॥२०॥
-
 > kathaṁ tasmin bhagavati
 > duravagrāhya-dhāmani
 > paśyatāṁ sarva-lokānāṁ
@@ -403,10 +341,6 @@ Kṛṣṇa is described by Arjuna in *Bhagavad-gītā* [[bg/10/12|(Bg. 10.12)]]
 Śiśupāla and Dantavakra were formerly Jaya and Vijaya, the doorkeepers of Vaikuṇṭha. Merging into the body of Kṛṣṇa was not their final destination. For some time they remained merged, and later they received the liberations of *sārūpya* and *sālokya,* living on the same planet as the Lord in the same bodily form. The *śāstras* give evidence that if one blasphemes the Supreme Lord, his punishment is to remain in hellish life for many millions of years more than one suffers by killing many *brāhmaṇas.* Śiśupāla, however, instead of entering hellish life, immediately and very easily received *sāyujya-mukti.* That such a privilege had been offered to Śiśupāla was not merely a story. Everyone saw it happen; there was no scarcity of evidence. How did it happen? Mahārāja Yudhiṣṭhira was very much surprised.
 
 ### SB 7.1.21
-
-> श्रीबादरायणिरुवाच
-> राज्ञअस्तद्वच आकर्ण्य नारदो भगवानृषिः
-> तुष्टः प्राह तमाभाष्य शृण्वत्यास्तत्सदः कथाः ॥२१॥
 
 > etad bhrāmyati me buddhir
 > dīpārcir iva vāyunā
@@ -421,10 +355,6 @@ The *śāstras* enjoin, *tad-vijñānārthaṁ sa gurum evābhigacchet:* [MU 1.2
 
 ### SB 7.1.22
 
-> श्रीनारद उवाच
-> निन्दनस्तवसत्कार न्यक्कारार्थं कलेवरम
-> प्रधानपरयो राजन्नविवेकेन कल्पितम ॥२२॥
-
 > śrī-bādarāyaṇir uvāca
 > rājñas tad vaca ākarṇya
 > nārado bhagavān ṛṣiḥ
@@ -436,9 +366,6 @@ The *śāstras* enjoin, *tad-vijñānārthaṁ sa gurum evābhigacchet:* [MU 1.2
 **Śrī Śukadeva Gosvāmī said: After hearing the request of Mahārāja Yudhiṣṭhira, Nārada Muni, the most powerful spiritual master, who knew everything, was very pleased. Thus he replied in the presence of everyone taking part in the yajña.**
 
 ### SB 7.1.23
-
-> हिंसा तदभिमानेन दण्डपारुष्ययोर्यथा
-> वैषम्यमिह भूतानां ममाहमिति पार्थिव ॥२३॥
 
 > śrī-nārada uvāca
 > nindana-stava-satkāra-
@@ -461,10 +388,6 @@ In *Bhagavad-gītā* [[bg/18/61|(Bg. 18.61)]] it is said:
 
 ### SB 7.1.24
 
-> यन्निबद्धोऽभिमानोऽयं तद्वधात्प्राणिनां वधः
-> तथा न यस्य कैवल्यादभिमानोऽखिलात्मनः
-> परस्य दमकर्तुर्हि हिंसा केनास्य कल्प्यते ॥२४॥
-
 > hiṁsā tad-abhimānena
 > daṇḍa-pāruṣyayor yathā
 > vaiṣamyam iha bhūtānāṁ
@@ -477,9 +400,6 @@ In *Bhagavad-gītā* [[bg/18/61|(Bg. 18.61)]] it is said:
 Only when a conditioned soul accepts the body as himself does he feel the effects of chastisement or praise. Then he determines one person to be his enemy and another his friend and wants to chastise the enemy and welcome the friend. This creation of friends and enemies is a result of one's bodily conception of life.
 
 ### SB 7.1.25
-
-> तस्माद्वैरानुबन्धेन निर्वैरेण भयेन वा
-> स्नेहात्कामेन वा युञ्ज्यात्कथञ्चिन्नेक्षते पृथक ॥२५॥
 
 > yan-nibaddho 'bhimāno 'yaṁ
 > tad-vadhāt prāṇināṁ vadhaḥ
@@ -506,9 +426,6 @@ Kṛṣṇa says in *Bhagavad-gītā* [[bg/16/19|(Bg. 16.19)]]:
 "Those who are envious and mischievous, who are the lowest among men, are cast by Me into the ocean of material existence, into various demoniac species of life." Whenever the Lord punishes persons like demons, however, such punishment is meant for the good of the conditioned soul. The conditioned soul, being envious of the Supreme Personality of Godhead, may accuse Him, saying, "Kṛṣṇa is bad, Kṛṣṇa is a thief" and so on, but Kṛṣṇa, being kind to all living entities, does not consider such accusations. Instead, He takes account of the conditioned soul's chanting of "Kṛṣṇa, Kṛṣṇa" so many times. He sometimes punishes such demons for one life by putting them in a lower species, but then, when they have stopped accusing Him, they are liberated in the next life because of chanting Kṛṣṇa's name constantly. Blaspheming the Supreme Lord or His devotee is not at all good for the conditioned soul, but Kṛṣṇa, being very kind, punishes the conditioned soul in one life for such sinful activities and then takes him back home, back to Godhead. The vivid example for this is Vṛtrāsura, who was formerly Citraketu Mahārāja, a great devotee. Because he derided Lord Śiva, the foremost of all devotees, he had to accept the body of a demon called Vṛtra, but then he was taken back to Godhead. Thus when Kṛṣṇa punishes a demon or conditioned soul, He stops that soul's habit of blaspheming Him, and when the soul becomes completely pure, the Lord takes him back to Godhead.
 
 ### SB 7.1.26
-
-> यथा वैरानुबन्धेन मर्त्यस्तन्मयतामियात
-> न तथा भक्तियोगेन इति मे निश्चिता मतिः ॥२६॥
 
 > tasmād vairānubandhena
 > nirvaireṇa bhayena vā
@@ -587,9 +504,6 @@ The conclusion is that one should not give up pure devotional service. For one's
 
 ### SB 7.1.27
 
-> कीटः पेशस्कृता रुद्धः कुड्यायां तमनुस्मरन
-> संरम्भभययोगेन विन्दते तत्स्वरूपताम ॥२७॥
-
 > yathā vairānubandhena
 > martyas tan-mayatām iyāt
 > na tathā bhakti-yogena
@@ -609,11 +523,6 @@ The conclusion is that one should not give up pure devotional service. For one's
 The essential point in this connection is that one should be fully absorbed in thoughts of Kṛṣṇa, twenty-four hours a day. There are many devotees in *rāga-mārga,* which is exhibited in Vṛndāvana. Whether in *dāsya-rasa, sakhya-rasa, vātsalya-rasa* or *mādhurya-rasa,* all the devotees of Kṛṣṇa are always overwhelmed by thoughts of Kṛṣṇa. When Kṛṣṇa is away from Vṛndāvana tending the cows in the forest, the *gopīs,* in the *mādhurya-rasa,* are always absorbed in thoughts of how Kṛṣṇa walks in the forest. The soles of His feet are so soft that the *gopīs* would not dare keep His lotus feet on their soft breasts. Indeed, they consider their breasts a very hard place for the lotus feet of Kṛṣṇa, yet those lotus feet wander in the forest, which is full of thorny plants. The *gopīs* are absorbed in such thoughts at home, although Kṛṣṇa is away from them. Similarly, when Kṛṣṇa plays with His young friends, mother Yaśodā is very much disturbed by thoughts that Kṛṣṇa, because of always playing and not taking His food properly, must be getting weak. These are examples of the exalted ecstasy felt in Kṛṣṇa's service as manifested in Vṛndāvana. This service is indirectly praised by Nārada Muni in this verse. Especially for the conditioned soul, Nārada Muni recommends that one somehow or other be absorbed in thoughts of Kṛṣṇa, for that will save one from all the dangers of material existence. Full absorption in thought of Kṛṣṇa is the highest platform of *bhakti-yoga.*
 
 ### SB 7.1.28-29
-
-> एवं कृष्णे भगवति मायामनुज ईश्वरे
-> वैरेण पूतपाप्मानस्तमापुरनुचिन्तया ॥२८॥
-> कामाद्द्वेषाद्भयात्स्नेहाद्यथा भक्त्येश्वरे मनः
-> आवेश्य तदघं हित्वा बहवस्तद्गतिं गताः ॥२९॥
 
 > kīṭaḥ peśaskṛtā ruddhaḥ
 > kuḍyāyāṁ tam anusmaran
@@ -649,9 +558,6 @@ This verse uses the word *māyā-manuje.* When Kṛṣṇa, the Supreme Personal
 
 ### SB 7.1.30
 
-> गोप्यः कामाद्भयात्कंसो द्वेषाच्चैद्यादयो नृपाः
-> सम्बन्धाद्वृष्णयः स्नेहाद्यूयं भक्त्या वयं विभो ॥३०॥
-
 > kāmād dveṣād bhayāt snehād
 > yathā bhaktyeśvare manaḥ
 > āveśya tad-aghaṁ hitvā
@@ -672,9 +578,6 @@ If a bona fide listener hears of Kṛṣṇa's pastimes with the *gopīs,* which
 
 ### SB 7.1.31
 
-> कतमोऽपि न वेनः स्यात्पञ्चानां पुरुषं प्रति
-> तस्मात्केनाप्युपायेन मनः कृष्णे निवेशयेत ॥३१॥
-
 > gopyaḥ kāmād bhayāt kaṁso
 > dveṣāc caidyādayo nṛpāḥ
 > sambandhād vṛṣṇayaḥ snehād
@@ -690,9 +593,6 @@ Kaṁsa and other enemies of Kṛṣṇa merged into the existence of Brahman, b
 
 ### SB 7.1.32
 
-> मातृष्वस्रेयो वश्चैद्यो दन्तवक्रश्च पाण्डव
-> पार्षदप्रवरौ विष्णोर्विप्रशापात्पदच्युतौ ॥३२॥
-
 > katamo 'pi na venaḥ syāt
 > pañcānāṁ puruṣaṁ prati
 > tasmāt kenāpy upāyena
@@ -706,10 +606,6 @@ Impersonalists and atheists always try to circumvent the form of Kṛṣṇa. Gr
 
 ### SB 7.1.33
 
-> श्रीयुधिष्ठिर उवाच
-> कीदृशः कस्य वा शापो हरिदासाभिमर्शनः
-> अश्रद्धेय इवाभाति हरेरेकान्तिनां भवः ॥३३॥
-
 > mātṛ-ṣvasreyo vaś caidyo
 > dantavakraś ca pāṇḍava
 > pārṣada-pravarau viṣṇor
@@ -722,9 +618,6 @@ Impersonalists and atheists always try to circumvent the form of Kṛṣṇa. Gr
 Śiśupāla and Dantavakra were not ordinary demons, but were formerly personal associates of Lord Viṣṇu. They apparently fell to this material world, but actually they came to assist the Supreme Personality of Godhead by nourishing His pastimes within this world.
 
 ### SB 7.1.34
-
-> देहेन्द्रियासुहीनानां वैकुण्ठपुरवासिनाम
-> देहसम्बन्धसम्बद्धमेतदाख्यातुमर्हसि ॥३४॥
 
 > śrī-yudhiṣṭhira uvāca
 > kīdṛśaḥ kasya vā śāpo
@@ -746,10 +639,6 @@ In *Bhagavad-gītā* [[bg/8/16|(Bg. 8.16)]] the Lord clearly states, *mām upety
 "One who knows the transcendental nature of My appearance and activities does not, upon leaving the body, take his birth again in this material world, but attains My eternal abode, O Arjuna." Mahārāja Yudhiṣṭhira, therefore, was surprised that a pure devotee could return to this material world. This is certainly a very important question.
 
 ### SB 7.1.35
-
-> श्रीनारद उवाच
-> एकदा ब्रह्मणः पुत्रा विष्णुलोकं यदृच्छया
-> सनन्दनादयो जग्मुश्चरन्तो भुवनत्रयम ॥३५॥
 
 > dehendriyāsu-hīnānāṁ
 > vaikuṇṭha-pura-vāsinām
@@ -775,9 +664,6 @@ From authoritative sources it is learned that Jaya and Vijaya were sent to this 
 
 ### SB 7.1.36
 
-> पञ्चषड्ढायनार्भाभाः पूर्वेषामपि पूर्वजाः
-> दिग्वाससः शिशून्मत्वा द्वाःस्थौ तान्प्रत्यषेधताम ॥३६॥
-
 > śrī-nārada uvāca
 > ekadā brahmaṇaḥ putrā
 > viṣṇu-lokaṁ yadṛcchayā
@@ -789,10 +675,6 @@ From authoritative sources it is learned that Jaya and Vijaya were sent to this 
 **The great saint Nārada said: Once upon a time when the four sons of Lord Brahmā named Sanaka, Sanandana, Sanātana and Sanat-kumāra were wandering throughout the three worlds, they came by chance to Viṣṇuloka.**
 
 ### SB 7.1.37
-
-> अशपन्कुपिता एवं युवां वासं न चार्हथः
-> रजस्तमोभ्यां रहिते पादमूले मधुद्विषः
-> पापिष्ठामासुरीं योनिं बालिशौ यातमाश्वतः ॥३७॥
 
 > pañca-ṣaḍḍhāyanārbhābhāḥ
 > pūrveṣām api pūrvajāḥ
@@ -826,9 +708,6 @@ The purport is that the personal associates of Lord Viṣṇu in Vaikuṇṭhalo
 
 ### SB 7.1.38
 
-> एवं शप्तौ स्वभवनात्पतन्तौ तौ कृपालुभिः
-> प्रोक्तौ पुनर्जन्मभिर्वां त्रिभिर्लोकाय कल्पताम ॥३८॥
-
 > aśapan kupitā evaṁ
 > yuvāṁ vāsaṁ na cārhathaḥ
 > rajas-tamobhyāṁ rahite
@@ -842,9 +721,6 @@ The purport is that the personal associates of Lord Viṣṇu in Vaikuṇṭhalo
 
 ### SB 7.1.39
 
-> जज्ञआते तौ दितेः पुत्रौ दैत्यदानववन्दितौ
-> हिरण्यकशिपुर्ज्येष्ठो हिरण्याक्षोऽनुजस्ततः ॥३९॥
-
 > evaṁ śaptau sva-bhavanāt
 > patantau tau kṛpālubhiḥ
 > proktau punar janmabhir vāṁ
@@ -855,9 +731,6 @@ The purport is that the personal associates of Lord Viṣṇu in Vaikuṇṭhalo
 **While Jaya and Vijaya, thus cursed by the sages, were falling to the material world, they were addressed as follows by the same sages, who were very kind to them. "O doorkeepers, after three births you will be able to return to your positions in Vaikuṇṭha, for then the duration of the curse will have ended."**
 
 ### SB 7.1.40
-
-> हतो हिरण्यकशिपुर्हरिणा सिंहरूपिणा
-> हिरण्याक्षो धरोद्धारे बिभ्रता शौकरं वपुः ॥४०॥
 
 > jajñāte tau diteḥ putrau
 > daitya-dānava-vanditau
@@ -870,9 +743,6 @@ The purport is that the personal associates of Lord Viṣṇu in Vaikuṇṭhalo
 
 ### SB 7.1.41
 
-> हिरण्यकशिपुः पुत्रं प्रह्लादं केशवप्रियम
-> जिघांसुरकरोन्नाना यातना मृत्युहेतवे ॥४१॥
-
 > hato hiraṇyakaśipur
 > hariṇā siṁha-rūpiṇā
 > hiraṇyākṣo dharoddhāre
@@ -884,9 +754,6 @@ The purport is that the personal associates of Lord Viṣṇu in Vaikuṇṭhalo
 
 ### SB 7.1.42
 
-> तं सर्वभूतात्मभूतं प्रशान्तं समदर्शनम
-> भगवत्तेजसा स्पृष्टं नाशक्नोद्धन्तुमुद्यमैः ॥४२॥
-
 > hiraṇyakaśipuḥ putraṁ
 > prahlādaṁ keśava-priyam
 > jighāṁsur akaron nānā
@@ -897,9 +764,6 @@ The purport is that the personal associates of Lord Viṣṇu in Vaikuṇṭhalo
 **Desiring to kill his son Prahlāda, who was a great devotee of Lord Viṣṇu, Hiraṇyakaśipu tortured him in many ways.**
 
 ### SB 7.1.43
-
-> ततस्तौ राक्षसौ जातौ केशिन्यां विश्रवःसुतौ
-> रावणः कुम्भकर्णश्च सर्वलोकोपतापनौ ॥४३॥
 
 > taṁ sarva-bhūtātma-bhūtaṁ
 > praśāntaṁ sama-darśanam
@@ -914,9 +778,6 @@ In this verse the word *sarva-bhūtātma-bhūtam* is very significant. *Īśvara
 
 ### SB 7.1.44
 
-> तत्रापि राघवो भूत्वा न्यहनच्छापमुक्तये
-> रामवीर्यं श्रोष्यसि त्वं मार्कण्डेयमुखात्प्रभो ॥४४॥
-
 > tatas tau rākṣasau jātau
 > keśinyāṁ viśravaḥ-sutau
 > rāvaṇaḥ kumbhakarṇaś ca
@@ -928,9 +789,6 @@ In this verse the word *sarva-bhūtātma-bhūtam* is very significant. *Īśvara
 
 ### SB 7.1.45
 
-> तावत्र क्षत्रियौ जातौ मातृष्वस्रात्मजौ तव
-> अधुना शापनिर्मुक्तौ कृष्णचक्रहतांहसौ ॥४५॥
-
 > tatrāpi rāghavo bhūtvā
 > nyahanac chāpa-muktaye
 > rāma-vīryaṁ śroṣyasi tvaṁ
@@ -941,9 +799,6 @@ In this verse the word *sarva-bhūtātma-bhūtam* is very significant. *Īśvara
 **Nārada Muni continued: My dear King, just to relieve Jaya and Vijaya of the brāhmaṇas' curse, Lord Rāmacandra appeared in order to kill Rāvaṇa and Kumbhakarṇa. It will be better for you to hear narrations about Lord Rāmacandra's activities from Mārkaṇḍeya.**
 
 ### SB 7.1.46
-
-> वैरानुबन्धतीव्रेण ध्यानेनाच्युतसात्मताम
-> नीतौ पुनर्हरेः पार्श्वं जग्मतुर्विष्णुपार्षदौ ॥४६॥
 
 > tāv atra kṣatriyau jātau
 > mātṛ-ṣvasrātmajau tava
@@ -958,10 +813,6 @@ In their last birth, Jaya and Vijaya did not become demons or Rākṣasas. Inste
 
 ### SB 7.1.47
 
-> श्रीयुधिष्ठिर उवाच
-> विद्वेषो दयिते पुत्रे कथमासीन्महात्मनि
-> ब्रूहि मे भगवन्येन प्रह्लादस्याच्युतात्मता ॥४७॥
-
 > vairānubandha-tīvreṇa
 > dhyānenācyuta-sātmatām
 > nītau punar hareḥ pārśvaṁ
@@ -974,12 +825,6 @@ In their last birth, Jaya and Vijaya did not become demons or Rākṣasas. Inste
 Whatever their position, certainly Jaya and Vijaya always thought of Kṛṣṇa. Therefore at the end of the *mausala-līlā,* these two associates of the Lord returned to Kṛṣṇa. There is no difference between Kṛṣṇa's body and Nārāyaṇa's body. Therefore although they visibly entered the body of Kṛṣṇa, they actually reentered Vaikuṇṭhaloka as the doorkeepers of Lord Viṣṇu. Through Lord Kṛṣṇa's body, they returned to Vaikuṇṭha, although they seemed to have attained *sāyujya-mukti* in Kṛṣṇa's body.
 
 ### SB 7.1.48
-
-> श्रीयुधिष्ठिर उवाच
-> विद्वेषो दयिते पुत्रे
-> कथमासीन्महात्मनि
-> ब्रूहि मे भगवन्येन
-> प्रह्लादस्याच्युतात्मता ॥४८॥
 
 > śrī-yudhiṣṭhira uvāca
 > vidveṣo dayite putre
@@ -999,10 +844,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, First Chapter, of the 
 
 ### SB 7.2.1
 
-> श्रीनारद उवाच
-> भ्रातर्येवं विनिहते हरिणा क्रोडमूर्तिना
-> हिरण्यकशिपू राजन्पर्यतप्यद्रुषा शुचा ॥१॥
-
 > śrī-nārada uvāca
 > bhrātary evaṁ vinihate
 > hariṇā kroḍa-mūrtinā
@@ -1017,9 +858,6 @@ Yudhiṣṭhira had inquired from Nārada Muni why Hiraṇyakaśipu was so envio
 
 ### SB 7.2.2
 
-> आह चेदं रुषा पूर्णः सन्दष्टदशनच्छदः
-> कोपोज्ज्वलद्भ्यां चक्षुर्भ्यां निरीक्षन्धूम्रमम्बरम ॥२॥
-
 > āha cedaṁ ruṣā pūrṇaḥ
 > sandaṣṭa-daśana-cchadaḥ
 > kopojjvaladbhyāṁ cakṣurbhyāṁ
@@ -1033,9 +871,6 @@ As usual, the demon is envious of the Supreme Personality of Godhead and inimica
 
 ### SB 7.2.3
 
-> करालदंष्ट्रोग्रदृष्ट्या दुष्प्रेक्ष्यभ्रुकुटीमुखः
-> शूलमुद्यम्य सदसि दानवानिदमब्रवीत ॥३॥
-
 > karāla-daṁṣṭrogra-dṛṣṭyā
 > duṣprekṣya-bhrukuṭī-mukhaḥ
 > śūlam udyamya sadasi
@@ -1046,11 +881,6 @@ As usual, the demon is envious of the Supreme Personality of Godhead and inimica
 **Exhibiting his terrible teeth, fierce glance and frowning eyebrows, terrible to see, he took up his weapon, a trident, and thus began speaking to his associates, the assembled demons.**
 
 ### SB 7.2.4-5
-
-> भो भो दानवदैतेया द्विमूर्धंस्त्र्यक्ष शम्बर
-> शतबाहो हयग्रीव नमुचे पाक इल्वल ॥४॥
-> विप्रचित्ते मम वचः पुलोमन्शकुनादयः
-> शृणुतानन्तरं सर्वे क्रियतामाशु मा चिरम ॥५॥
 
 > bho bho dānava-daiteyā
 > dvimūrdhaṁs tryakṣa śambara
@@ -1068,9 +898,6 @@ As usual, the demon is envious of the Supreme Personality of Godhead and inimica
 
 ### SB 7.2.6
 
-> सपत्नैर्घातितः क्षुद्रैर्भ्राता मे दयितः सुहृत
-> पार्ष्णिग्राहेण हरिणा समेनाप्युपधावनैः ॥६॥
-
 > sapatnair ghātitaḥ kṣudrair
 > bhrātā me dayitaḥ suhṛt
 > pārṣṇi-grāheṇa hariṇā
@@ -1083,11 +910,6 @@ As usual, the demon is envious of the Supreme Personality of Godhead and inimica
 As stated in *Bhagavad-gītā* [[bg/9/29|(Bg. 9.29)]], *samo 'haṁ sarva-bhūteṣu:* the Lord is equal to all living entities. Since the demigods and demons are both living entities, how is it possible that the Lord was partial to one class of living beings and opposed to another? Actually it is not possible for the Lord to be partial. Nonetheless, since the demigods, the devotees, always strictly follow the Supreme Lord's orders, because of sincerity they are victorious over the demons, who know that the Supreme Lord is Viṣṇu but do not follow His instructions. Because of constantly remembering the Supreme Personality of Godhead, Viṣṇu, the demons generally attain *sāyujya-mukti* after death. The demon Hiraṇyakaśipu accused the Lord of being partial because the demigods worshiped Him, but in fact the Lord, like the government, is not partial at all. The government is not partial to any citizen, but if a citizen is law-abiding he receives abundant opportunities from the state laws to live peacefully and fulfill his real interests.
 
 ### SB 7.2.7-8
-
-> तस्य त्यक्तस्वभावस्य घृणेर्मायावनौकसः
-> भजन्तं भजमानस्य बालस्येवास्थिरात्मनः ॥७॥
-> मच्छूलभिन्नग्रीवस्य भूरिणा रुधिरेण वै
-> असृक्प्रियं तर्पयिष्ये भ्रातरं मे गतव्यथः ॥८॥
 
 > tasya tyakta-svabhāvasya
 > ghṛṇer māyā-vanaukasaḥ
@@ -1120,9 +942,6 @@ As for *rudhira,* or the blood of Lord Viṣṇu, since there is no possibility 
 
 ### SB 7.2.9
 
-> तस्मिन्कूटेऽहिते नष्टे कृत्तमूले वनस्पतौ
-> विटपा इव शुष्यन्ति विष्णुप्राणा दिवौकसः ॥९॥
-
 > tasmin kūṭe 'hite naṣṭe
 > kṛtta-mūle vanas-patau
 > viṭapā iva śuṣyanti
@@ -1135,9 +954,6 @@ As for *rudhira,* or the blood of Lord Viṣṇu, since there is no possibility 
 The difference between the demigods and the demons is here explained. The demigods always follow the instructions of the Supreme Personality of Godhead, whereas the demons simply plan to disturb or kill Him. Nevertheless, sometimes the demons very much appreciate the full dependence of the demigods upon the mercy of the Lord. This is indirect glorification of the demigods by the demons.
 
 ### SB 7.2.10
-
-> तावद्यात भुवं यूयं ब्रह्मक्षत्रसमेधिताम
-> सूदयध्वं तपोयज्ञअ स्वाध्यायव्रतदानिनः ॥१०॥
 
 > tāvad yāta bhuvaṁ yūyaṁ
 > brahma-kṣatra-samedhitām
@@ -1167,9 +983,6 @@ Hiraṇyakaśipu planned to kill the inhabitants of earth so that *yajña* would
 
 ### SB 7.2.11
 
-> विष्णुर्द्विजक्रियामूलो यज्ञओ धर्ममयः पुमान
-> देवर्षिपितृभूतानां धर्मस्य च परायणम ॥११॥
-
 > viṣṇur dvija-kriyā-mūlo
 > yajño dharmamayaḥ pumān
 > devarṣi-pitṛ-bhūtānāṁ
@@ -1198,9 +1011,6 @@ Because of the increment in demoniac population, people have lost brahminical cu
 
 ### SB 7.2.12
 
-> यत्र यत्र द्विजा गावो वेदा वर्णाश्रमक्रियाः
-> तं तं जनपदं यात सन्दीपयत वृश्चत ॥१२॥
-
 > yatra yatra dvijā gāvo
 > vedā varṇāśrama-kriyāḥ
 > taṁ taṁ janapadaṁ yāta
@@ -1216,9 +1026,6 @@ Another point is that trees also should be given protection. During its lifetime
 
 ### SB 7.2.13
 
-> इति ते भर्तृनिर्देशमादाय शिरसादृताः
-> तथा प्रजानां कदनं विदधुः कदनप्रियाः ॥१३॥
-
 > iti te bhartṛ-nirdeśam
 > ādāya śirasādṛtāḥ
 > tathā prajānāṁ kadanaṁ
@@ -1231,9 +1038,6 @@ Another point is that trees also should be given protection. During its lifetime
 The followers of demoniac principles, as described here, are thoroughly envious of the general populace. In the present day, scientific advancement exemplifies such envy. The discovery of nuclear energy has been disastrous to people in general because demons all over the world are manufacturing nuclear weapons. The word *kadana-priyāḥ* is very significant in this regard. The demoniac persons who want to kill the Vedic culture are extremely envious of the feeble citizens, and they act in such a way that ultimately their discoveries will be inauspicious for everyone (*jagato 'hitāḥ*). The Sixteenth Chapter of *Bhagavad-gītā* fully explains how the demons engage in sinful activities for the destruction of the populace.
 
 ### SB 7.2.14
-
-> पुरग्रामव्रजोद्यान क्षेत्रारामाश्रमाकरान
-> खेटखर्वटघोषांश्च ददहुः पत्तनानि च ॥१४॥
 
 > pura-grāma-vrajodyāna-
 > kṣetrārāmāśramākarān
@@ -1255,10 +1059,6 @@ The word *udyāna* refers to places where trees are especially grown to produce 
 
 ### SB 7.2.15
 
-> केचित्खनित्रैर्बिभिदुः सेतुप्राकारगोपुरान
-> आजीव्यांश्चिच्छिदुर्वृक्षान्केचित्परशुपाणयः
-> प्रादहन्शरणान्येके प्रजानां ज्वलितोल्मुकैः ॥१५॥
-
 > kecit khanitrair bibhiduḥ
 > setu-prākāra-gopurān
 > ājīvyāṁś cicchidur vṛkṣān
@@ -1274,9 +1074,6 @@ The cutting of trees is generally prohibited. In particular, trees that produce 
 
 ### SB 7.2.16
 
-> एवं विप्रकृते लोके दैत्येन्द्रानुचरैर्मुहुः
-> दिवं देवाः परित्यज्य भुवि चेरुरलक्षिताः ॥१६॥
-
 > evaṁ viprakṛte loke
 > daityendrānucarair muhuḥ
 > divaṁ devāḥ parityajya
@@ -1290,9 +1087,6 @@ As stated in *Bhagavad-gītā,* the performance of *yajña* brings reciprocal go
 
 ### SB 7.2.17
 
-> हिरण्यकशिपुर्भ्रातुः सम्परेतस्य दुःखितः
-> कृत्वा कटोदकादीनि भ्रातृपुत्रानसान्त्वयत ॥१७॥
-
 > hiraṇyakaśipur bhrātuḥ
 > samparetasya duḥkhitaḥ
 > kṛtvā kaṭodakādīni
@@ -1303,11 +1097,6 @@ As stated in *Bhagavad-gītā,* the performance of *yajña* brings reciprocal go
 **After performing the ritualistic observances for the death of his brother, Hiraṇyakaśipu, being extremely unhappy, tried to pacify his nephews.**
 
 ### SB 7.2.18-19
-
-> शकुनिं शम्बरं धृष्टिं भूतसन्तापनं वृकम
-> कालनाभं महानाभं हरिश्मश्रुमथोत्कचम ॥१८॥
-> तन्मातरं रुषाभानुं दितिं च जननीं गिरा
-> श्लक्ष्णया देशकालज्ञअ इदमाह जनेश्वर ॥१९॥
 
 > śakuniṁ śambaraṁ dhṛṣṭiṁ
 > bhūtasantāpanaṁ vṛkam
@@ -1325,10 +1114,6 @@ As stated in *Bhagavad-gītā,* the performance of *yajña* brings reciprocal go
 
 ### SB 7.2.20
 
-> श्रीहिरण्यकशिपुरुवाच
-> अम्बाम्ब हे वधूः पुत्रा वीरं मार्हथ शोचितुम
-> रिपोरभिमुखे श्लाघ्यः शूराणां वध ईप्सितः ॥२०॥
-
 > śrī-hiraṇyakaśipur uvāca
 > ambāmba he vadhūḥ putrā
 > vīraṁ mārhatha śocitum
@@ -1340,9 +1125,6 @@ As stated in *Bhagavad-gītā,* the performance of *yajña* brings reciprocal go
 **Hiraṇyakaśipu said: My dear mother, sister-in-law and nephews, you should not lament for the death of the great hero, for a hero's death in front of his enemy is glorious and desirable.**
 
 ### SB 7.2.21
-
-> भूतानामिह संवासः प्रपायामिव सुव्रते
-> दैवेनैकत्र नीतानामुन्नीतानां स्वकर्मभिः ॥२१॥
 
 > bhūtānām iha saṁvāsaḥ
 > prapāyām iva suvrate
@@ -1371,9 +1153,6 @@ Although Hiraṇyakaśipu was a demon, he had Vedic knowledge and understanding.
 
 ### SB 7.2.22
 
-> नित्य आत्माव्ययः शुद्धः सर्वगः सर्ववित्परः
-> धत्तेऽसावात्मनो लिङ्गं मायया विसृजन्गुणान ॥२२॥
-
 > nitya ātmāvyayaḥ śuddhaḥ
 > sarvagaḥ sarva-vit paraḥ
 > dhatte 'sāv ātmano liṅgaṁ
@@ -1394,9 +1173,6 @@ Hiraṇyakaśipu very intelligently described the position of the soul. The soul
 
 ### SB 7.2.23
 
-> यथाम्भसा प्रचलता तरवोऽपि चला इव
-> चक्षुषा भ्राम्यमाणेन दृश्यते चलतीव भूः ॥२३॥
-
 > yathāmbhasā pracalatā
 > taravo 'pi calā iva
 > cakṣuṣā bhrāmyamāṇena
@@ -1414,9 +1190,6 @@ Sometimes, because of mental derangement, the land appears to be moving. A drunk
 According to this statement from the *Prema-vivarta,* when a living entity is conditioned by material nature, he is exactly like a person haunted by a ghost. One should therefore understand the fixed position of the spirit soul and how he is carried away by the waves of material nature to different bodies and different situations under lamentation and hankering. One achieves the success of life when he understands the constitutional position of his self and is undisturbed by the conditions created by material nature (*prakṛteḥ kriyamāṇāni guṇaiḥ karmāṇi sarvaśaḥ* [[bg/3/27|[Bg. 3.27] ]]).
 
 ### SB 7.2.24
-
-> एवं गुणैर्भ्राम्यमाणे मनस्यविकलः पुमान
-> याति तत्साम्यतां भद्रे ह्यलिङ्गो लिङ्गवानिव ॥२४॥
 
 > evaṁ guṇair bhrāmyamāṇe
 > manasy avikalaḥ pumān
@@ -1440,11 +1213,6 @@ Hiraṇyakaśipu advised his family members that although the gross body of his 
 
 ### SB 7.2.25-26
 
-> एष आत्मविपर्यासो ह्यलिङ्गे लिङ्गभावना
-> एष प्रियाप्रियैर्योगो वियोगः कर्मसंसृतिः ॥२५॥
-> सम्भवश्च विनाशश्च शोकश्च विविधः स्मृतः
-> अविवेकश्च चिन्ता च विवेकास्मृतिरेव च ॥२६॥
-
 > eṣa ātma-viparyāso
 > hy aliṅge liṅga-bhāvanā
 > eṣa priyāpriyair yogo
@@ -1461,9 +1229,6 @@ Hiraṇyakaśipu advised his family members that although the gross body of his 
 
 ### SB 7.2.27
 
-> अत्राप्युदाहरन्तीममितिहासं पुरातनम
-> यमस्य प्रेतबन्धूनां संवादं तं निबोधत ॥२७॥
-
 > atrāpy udāharantīmam
 > itihāsaṁ purātanam
 > yamasya preta-bandhūnāṁ
@@ -1477,9 +1242,6 @@ The words *itihāsaṁ purātanam* mean "an old history." The *Purāṇas* are n
 
 ### SB 7.2.28
 
-> उशीनरेष्वभूद्राजा सुयज्ञअ इति विश्रुतः
-> सपत्नैर्निहतो युद्धे ज्ञआतयस्तमुपासत ॥२८॥
-
 > uśīnareṣv abhūd rājā
 > suyajña iti viśrutaḥ
 > sapatnair nihato yuddhe
@@ -1490,13 +1252,6 @@ The words *itihāsaṁ purātanam* mean "an old history." The *Purāṇas* are n
 **In the state known as Uśīnara there was a celebrated King named Suyajña. When the King was killed in battle by his enemies, his kinsmen sat down around the dead body and began to lament the death of their friend.**
 
 ### SB 7.2.29-31
-
-> विशीर्णरत्नकवचं विभ्रष्टाभरणस्रजम
-> शरनिर्भिन्नहृदयं शयानमसृगाविलम ॥२९॥
-> प्रकीर्णकेशं ध्वस्ताक्षं रभसा दष्टदच्छदम
-> रजःकुण्ठमुखाम्भोजं छिन्नायुधभुजं मृधे ॥३०॥
-> उशीनरेन्द्रं विधिना तथा कृतं पतिं महिष्यः प्रसमीक्ष्य दुःखिताः
-> हताः स्म नाथेति करैरुरो भृशं घ्नन्त्यो मुहुस्तत्पदयोरुपापतन ॥३१॥
 
 > viśīrṇa-ratna-kavacaṁ
 > vibhraṣṭābharaṇa-srajam
@@ -1521,9 +1276,6 @@ As stated here, *rabhasā daṣṭa-dacchadam:* the dead King, while fighting in
 
 ### SB 7.2.32
 
-> रुदत्य उच्चैर्दयिताङ्घ्रिपङ्कजं सिञ्चन्त्य अस्रैः कुचकुङ्कुमारुणैः
-> विस्रस्तकेशाभरणाः शुचं नृणां सृजन्त्य आक्रन्दनया विलेपिरे ॥३२॥
-
 > rudatya uccair dayitāṅghri-paṅkajaṁ
 > siñcantya asraiḥ kuca-kuṅkumāruṇaiḥ
 > visrasta-keśābharaṇāḥ śucaṁ nṛṇāṁ
@@ -1535,9 +1287,6 @@ As stated here, *rabhasā daṣṭa-dacchadam:* the dead King, while fighting in
 
 ### SB 7.2.33
 
-> अहो विधात्राकरुणेन नः प्रभो भवान्प्रणीतो दृगगोचरां दशाम
-> उशीनराणामसि वृत्तिदः पुरा कृतोऽधुना येन शुचां विवर्धनः ॥३३॥
-
 > aho vidhātrākaruṇena naḥ prabho
 > bhavān praṇīto dṛg-agocarāṁ daśām
 > uśīnarāṇām asi vṛttidaḥ purā
@@ -1548,9 +1297,6 @@ As stated here, *rabhasā daṣṭa-dacchadam:* the dead King, while fighting in
 **O lord, you have now been removed by cruel providence to a state beyond our sight. You had previously sustained the livelihood of the inhabitants of Uśīnara, and thus they were happy, but your condition now is the cause of their unhappiness.**
 
 ### SB 7.2.34
-
-> त्वया कृतज्ञएन वयं महीपते कथं विना स्याम सुहृत्तमेन ते
-> तत्रानुयानं तव वीर पादयोः शुश्रूषतीनां दिश यत्र यास्यसि ॥३४॥
 
 > tvayā kṛtajñena vayaṁ mahī-pate
 > kathaṁ vinā syāma suhṛttamena te
@@ -1564,9 +1310,6 @@ As stated here, *rabhasā daṣṭa-dacchadam:* the dead King, while fighting in
 Formerly, a *kṣatriya* king was generally the husband of many wives, and after the death of the king, especially in the battlefield, all the queens would agree to accept *saha-māraṇa,* dying with the husband who was their life. When Pāṇḍu Mahārāja, the father of the Pāṇḍavas, died, his two wives—namely, the mother of Yudhiṣṭhira, Bhīma and Arjuna and the mother of Nakula and Sahadeva—were both ready to die in the fire with their husband. Later, after a compromise was arranged, Kuntī stayed alive to care for the little children, and the other wife, Mādrī, was allowed to die with her husband. This system of *saha-māraṇa* continued in India even until the time of British rule, but later it was discouraged, since the attitude of wives gradually changed with the advancement of Kali-yuga. Thus the system of *saha-māraṇa* has practically been abolished. Nevertheless, within the past fifty years I have seen the wife of a medical practitioner voluntarily accept death immediately when her husband died. Both the husband and wife were taken in procession in the mourning cart. Such intense love of a chaste wife for her husband is a special case.
 
 ### SB 7.2.35
-
-> एवं विलपतीनां वै परिगृह्य मृतं पतिम
-> अनिच्छतीनां निर्हारमर्कोऽस्तं सन्न्यवर्तत ॥३५॥
 
 > evaṁ vilapatīnāṁ vai
 > parigṛhya mṛtaṁ patim
@@ -1583,9 +1326,6 @@ Apparently the queens did not want to deliver the dead body for burning because 
 
 ### SB 7.2.36
 
-> तत्र ह प्रेतबन्धूनामाश्रुत्य परिदेवितम
-> आह तान्बालको भूत्वा यमः स्वयमुपागतः ॥३६॥
-
 > tatra ha preta-bandhūnām
 > āśrutya paridevitam
 > āha tān bālako bhūtvā
@@ -1598,10 +1338,6 @@ Apparently the queens did not want to deliver the dead body for burning because 
 Sometimes the living entity is forced to give up his body and enter another one according to the judgment of Yamarāja. It is difficult, however, for the conditioned soul to enter another body unless the present dead body is annihilated through cremation or some other means. The living being has attachment for the present body and does not want to enter another, and thus in the interim he remains a ghost. If a living being who has already left his body has been pious, Yamarāja, just to give him relief, will give him another body. Since the living being in the body of the King had some attachment to his body, he was hovering as a ghost, and therefore Yamarāja, as a special consideration, approached the lamenting relatives to instruct them personally. Yamarāja approached them as a child because a child is not restricted but is granted admittance anywhere, even to the palace of a king. Besides this, the child was speaking philosophy. People are very much interested in hearing philosophy when it is spoken by a child.
 
 ### SB 7.2.37
-
-> श्रीयम उवाच
-> अहो अमीषां वयसाधिकानां विपश्यतां लोकविधिं विमोहः
-> यत्रागतस्तत्र गतं मनुष्यं स्वयं सधर्मा अपि शोचन्त्यपार्थम ॥३७॥
 
 > śrī-yama uvāca
 > aho amīṣāṁ vayasādhikānāṁ
@@ -1630,9 +1366,6 @@ In the *Mahābhārata* it is said, *adarśanād ihāyātaḥ punaś cādarśana�
 
 ### SB 7.2.38
 
-> अहो वयं धन्यतमा यदत्र त्यक्ताः पितृभ्यां न विचिन्तयामः
-> अभक्ष्यमाणा अबला वृकादिभिः स रक्षिता रक्षति यो हि गर्भे ॥३८॥
-
 > aho vayaṁ dhanyatamā yad atra
 > tyaktāḥ pitṛbhyāṁ na vicintayāmaḥ
 > abhakṣyamāṇā abalā vṛkādibhiḥ
@@ -1645,9 +1378,6 @@ In the *Mahābhārata* it is said, *adarśanād ihāyātaḥ punaś cādarśana�
 As stated in *Bhagavad-gītā* [[bg/18/61|(Bg. 18.61)]], *īśvaraḥ sarva-bhūtānāṁ hṛd-deśe 'rjuna tiṣṭhati*/ the Lord is present in the core of everyone's heart. Thus the Lord gives protection to everyone and gives the different types of bodies the living entity wants to enjoy. Everything is done by the order of the Supreme Personality of Godhead. Therefore one should not lament the birth and death of a living being, which have been arranged by the Supreme Lord. Lord Kṛṣṇa says in *Bhagavad-gītā* [[bg/15/15|(Bg. 15.15)]], *sarvasya cāhaṁ hṛdi sanniviṣṭo mattaḥ smṛtir jñānam apohanaṁ ca*/ "I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness." One must act according to the direction of the Lord within the heart, but because the conditioned soul wants to act independently, the Lord gives him the facility to act and experience the reactions. The Lord says, *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja:* [[bg/18/66|[Bg. 18.66] ]] "Give up all other duties and simply surrender unto Me." One who does not abide by the orders of the Supreme Personality of Godhead is given the facility to enjoy this material world. Instead of restricting him, the Lord gives the conditioned soul the opportunity to enjoy so that by mature experience, after many, many births (*bahūnāṁ janmanām ante* [[bg/7/19|[Bg. 7.19] ]]), he will understand that surrender to the lotus feet of Vāsudeva is the only duty of all living beings.
 
 ### SB 7.2.39
-
-> य इच्छयेशः सृजतीदमव्ययो य एव रक्षत्यवलुम्पते च यः
-> तस्याबलाः क्रीडनमाहुरीशितुश्चराचरं निग्रहसङ्ग्रहे प्रभुः ॥३९॥
 
 > ya icchayeśaḥ sṛjatīdam avyayo
 > ya eva rakṣaty avalumpate ca yaḥ
@@ -1662,9 +1392,6 @@ In this regard the queens might argue, "If our husband was protected by the Supr
 
 ### SB 7.2.40
 
-> पथि च्युतं तिष्ठति दिष्टरक्षितं गृहे स्थितं तद्विहतं विनश्यति
-> जीवत्यनाथोऽपि तदीक्षितो वने गृहेऽभिगुप्तोऽस्य हतो न जीवति ॥४०॥
-
 > pathi cyutaṁ tiṣṭhati diṣṭa-rakṣitaṁ
 > gṛhe sthitaṁ tad-vihataṁ vinaśyati
 > jīvaty anātho 'pi tad-īkṣito vane
@@ -1677,9 +1404,6 @@ In this regard the queens might argue, "If our husband was protected by the Supr
 These are examples of the supremacy of the Lord. Our plans to protect or annihilate do not act, but whatever He thinks of doing actually happens. The examples given in this regard are practical. Everyone has had such practical experiences, and there are also many other clear examples. For instance, Prahlāda Mahārāja said that a child is certainly dependent on his father and mother, but in spite of their presence, the child is harassed in many ways. Sometimes, in spite of a supply of good medicine and an experienced physician, a patient does not survive. Therefore, since everything is dependent on the free will of the Supreme Personality of Godhead, our only duty is to surrender unto Him and seek His protection.
 
 ### SB 7.2.41
-
-> भूतानि तैस्तैर्निजयोनिकर्मभिर्भवन्ति काले न भवन्ति सर्वशः
-> न तत्र हात्मा प्रकृतावपि स्थितस्तस्या गुणैरन्यतमो हि बध्यते ॥४१॥
 
 > bhūtāni tais tair nija-yoni-karmabhir
 > bhavanti kāle na bhavanti sarvaśaḥ
@@ -1694,9 +1418,6 @@ Here it is very plainly explained that God is not responsible for the living ent
 
 ### SB 7.2.42
 
-> इदं शरीरं पुरुषस्य मोहजं यथा पृथग्भौतिकमीयते गृहम
-> यथौदकैः पार्थिवतैजसैर्जनः कालेन जातो विकृतो विनश्यति ॥४२॥
-
 > idaṁ śarīraṁ puruṣasya mohajaṁ
 > yathā pṛthag bhautikam īyate gṛham
 > yathaudakaiḥ pārthiva-taijasair janaḥ
@@ -1709,9 +1430,6 @@ Here it is very plainly explained that God is not responsible for the living ent
 We transmigrate from one body to another in bodies that are products of our illusion, but as spirit souls we always exist separately from material, conditional life. The example given here is that a house or car is always different from its owner, but because of attachment the conditioned soul thinks it to be identical with him. A car or house is actually made of material elements; as long as the material elements combine together properly, the car or house exists, and when they are disassembled the house or the car is disassembled. The spirit soul, however, always remains as he is.
 
 ### SB 7.2.43
-
-> यथानलो दारुषु भिन्न ईयते यथानिलो देहगतः पृथक्स्थितः
-> यथा नभः सर्वगतं न सज्जते तथा पुमान्सर्वगुणाश्रयः परः ॥४३॥
 
 > yathānalo dāruṣu bhinna īyate
 > yathānilo deha-gataḥ pṛthak sthitaḥ
@@ -1726,9 +1444,6 @@ In *Bhagavad-gītā* the Supreme Personality of Godhead has explained that the m
 
 ### SB 7.2.44
 
-> सुयज्ञओ नन्वयं शेते मूढा यमनुशोचथ
-> यः श्रोता योऽनुवक्तेह स न दृश्येत कर्हिचित ॥४४॥
-
 > suyajño nanv ayaṁ śete
 > mūḍhā yam anuśocatha
 > yaḥ śrotā yo 'nuvakteha
@@ -1742,9 +1457,6 @@ This instruction by Yamarāja in the form of a boy is understandable even for a 
 
 ### SB 7.2.45
 
-> न श्रोता नानुवक्तायं मुख्योऽप्यत्र महानसुः
-> यस्त्विहेन्द्रियवानात्मा स चान्यः प्राणदेहयोः ॥४५॥
-
 > na śrotā nānuvaktāyaṁ
 > mukhyo 'py atra mahān asuḥ
 > yas tv ihendriyavān ātmā
@@ -1757,9 +1469,6 @@ This instruction by Yamarāja in the form of a boy is understandable even for a 
 The Supreme Personality of Godhead distinctly says in *Bhagavad-gītā* [[bg/15/15|(Bg. 15.15)]], *sarvasya cāhaṁ hṛdi sanniviṣṭo mattaḥ smṛtir jñānam apohanaṁ ca*/ "I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness." Although the *ātmā,* or soul, is present in every material body (*dehino 'smin yathā dehe* [[bg/2/13|[Bg. 2.13] ]]), he is not actually the chief person acting through the senses, mind and so on. The soul can merely act in cooperation with the Supersoul because it is the Supersoul who gives him directions to act or not to act (*mattaḥ smṛtir jñānam apohanaṁ ca* [[bg/15/15|[Bg. 15.15] ]]). One cannot act without His sanction, for the Supersoul is *upadraṣṭā* and *anumantā,* the witness and sanctioner. One who studies carefully, under the direction of a bona fide spiritual master, can understand the real knowledge that the Supreme Personality of Godhead is actually the conductor of all the activities of the individual soul, and the controller of their results as well. Although the individual soul possesses the *indriyas,* or senses, he is not actually the proprietor, for the proprietor is the Supersoul. Consequently the Supersoul is called Hṛṣīkeśa, and the individual soul is advised by the direction of the Supersoul to surrender to Him and thus be happy (sarva*-dharmān parityajya mām ekaṁ śaraṇaṁ vraja*). Thus he can become immortal and be transferred to the spiritual kingdom, where he will achieve the highest success of an eternal, blissful life of knowledge. In conclusion, the individual soul is different from the body, senses, living force and the airs within the body, and above him is the Supersoul, who gives the individual soul all facilities. The individual soul who renders everything to the Supersoul lives very happily within the body.
 
 ### SB 7.2.46
-
-> भूतेन्द्रियमनोलिङ्गान्देहानुच्चावचान्विभुः
-> भजत्युत्सृजति ह्यन्यस्तच्चापि स्वेन तेजसा ॥४६॥
 
 > bhūtendriya-mano-liṅgān
 > dehān uccāvacān vibhuḥ
@@ -1783,9 +1492,6 @@ The human form of body is valuable. One can use this body to go to the higher pl
 
 ### SB 7.2.47
 
-> यावल्लिङ्गान्वितो ह्यात्मा तावत्कर्मनिबन्धनम
-> ततो विपर्ययः क्लेशो मायायोगोऽनुवर्तते ॥४७॥
-
 > yāval liṅgānvito hy ātmā
 > tāvat karma-nibandhanam
 > tato viparyayaḥ kleśo
@@ -1798,9 +1504,6 @@ The human form of body is valuable. One can use this body to go to the higher pl
 The living entity is bound by the subtle body, consisting of the mind, intelligence and false ego. At the time of death, therefore, the position of the mind becomes the cause for the next body. As confirmed in *Bhagavad-gītā* [[bg/8/6|(Bg. 8.6)]], *yaṁ yaṁ vāpi smaran bhāvaṁ tyajaty ante kalevaram*/ at the time of death the mind sets the criteria for the spirit soul's being carried to another type of body. If a living being resists the dictation of the mind and engages the mind in the loving service of the Lord, the mind cannot degrade him. The duty of all human beings, therefore, is to keep the mind always engaged at the lotus feet of the Lord (*sa vai manaḥ kṛṣṇa-padāravindayoḥ* [[sb/9/4/18-20|[SB 9.4.18] ]]). When the mind is engaged at the lotus feet of Kṛṣṇa, the intelligence is purified, and then the intelligence gets inspiration from the Supersoul (*dadāmi buddhi-yogaṁ tam*). Thus the living entity makes progress toward liberation from material bondage. The individual living soul is subject to the laws of fruitive activity, but the Supersoul, Paramātmā, is not affected by the fruitive activities of the individual soul. As confirmed in the Vedic *Upaniṣad,* the Paramātmā and the *jīvātmā,* who are likened to two birds, are sitting in the body. The *jīvātmā* is enjoying or suffering by eating the fruits of the bodily activities, but the Paramātmā, who is free from such bondage, witnesses and sanctions the activities of the individual soul as the individual soul desires.
 
 ### SB 7.2.48
-
-> वितथाभिनिवेशोऽयं यद्गुणेष्वर्थदृग्वचः
-> यथा मनोरथः स्वप्नः सर्वमैन्द्रियकं मृषा ॥४८॥
 
 > vitathābhiniveśo 'yaṁ
 > yad guṇeṣv artha-dṛg-vacaḥ
@@ -1816,9 +1519,6 @@ The happiness and distress derived from the activities of the material senses ar
 There is a Vedic statement *apāma-somam amṛtā abhūma apsarobhir viharāma.* With reference to such a conception, one wants to go to the heavenly planets to enjoy with the young girls there and drink *soma-rasa.* Such imaginary pleasure, however, has no value. As confirmed in *Bhagavad-gītā* [[bg/7/23|(Bg. 7.23)]], *antavat tu phalaṁ teṣāṁ tad bhavaty alpa-medhasām:* "Men of small intelligence worship the demigods, and their fruits are limited and temporary." Even if by fruitive activity or worship of the demigods one is elevated to the higher planetary systems for sense enjoyment, his situation is condemned in *Bhagavad-gītā* as *antavat,* perishable. The happiness one enjoys in this way is like the pleasure of embracing a young woman in a dream; for some time it may be pleasing, but actually the basic principle is false. The mental concoctions of happiness and distress in this material world are compared to dreams because of their falseness. All thoughts of obtaining happiness by using the material senses have a false background and therefore have no meaning.
 
 ### SB 7.2.49
-
-> अथ नित्यमनित्यं वा नेह शोचन्ति तद्विदः
-> नान्यथा शक्यते कर्तुं स्वभावः शोचतामिति ॥४९॥
 
 > atha nityam anityaṁ vā
 > neha śocanti tad-vidaḥ
@@ -1840,9 +1540,6 @@ According to the *mīmāṁsā* philosophers, everything is eternal, *nitya,* an
 
 ### SB 7.2.50
 
-> लुब्धको विपिने कश्चित्पक्षिणां निर्मितोऽन्तकः
-> वितत्य जालं विदधे तत्र तत्र प्रलोभयन ॥५०॥
-
 > lubdhako vipine kaścit
 > pakṣiṇāṁ nirmito 'ntakaḥ
 > vitatya jālaṁ vidadhe
@@ -1856,9 +1553,6 @@ This is another incident from the histories.
 
 ### SB 7.2.51
 
-> कुलिङ्गमिथुनं तत्र विचरत्समदृश्यत
-> तयोः कुलिङ्गी सहसा लुब्धकेन प्रलोभिता ॥५१॥
-
 > kuliṅga-mithunaṁ tatra
 > vicarat samadṛśyata
 > tayoḥ kuliṅgī sahasā
@@ -1869,10 +1563,6 @@ This is another incident from the histories.
 **While wandering in the forest, the hunter saw a pair of kuliṅga birds. Of the two, the female was captivated by the hunter's lure.**
 
 ### SB 7.2.52
-
-> आसज्जत सिचस्तन्त्र्यां महिष्यः कालयन्त्रिता
-> कुलिङ्गस्तां तथापन्नां निरीक्ष्य भृशदुःखितः
-> स्नेहादकल्पः कृपणः कृपणां पर्यदेवयत ॥५२॥
 
 > sāsajjata sicas tantryāṁ
 > mahiṣyaḥ kāla-yantritā
@@ -1887,9 +1577,6 @@ This is another incident from the histories.
 
 ### SB 7.2.53
 
-> अहो अकरुणो देवः स्त्रियाकरुणया विभुः
-> कृपणं मामनुशोचन्त्या दीनया किं करिष्यति ॥५३॥
-
 > aho akaruṇo devaḥ
 > striyākaruṇayā vibhuḥ
 > kṛpaṇaṁ mām anuśocantyā
@@ -1901,9 +1588,6 @@ This is another incident from the histories.
 
 ### SB 7.2.54
 
-> कामं नयतु मां देवः किमर्धेनात्मनो हि मे
-> दीनेन जीवता दुःखमनेन विधुरायुषा ॥५४॥
-
 > kāmaṁ nayatu māṁ devaḥ
 > kim ardhenātmano hi me
 > dīnena jīvatā duḥkham
@@ -1914,9 +1598,6 @@ This is another incident from the histories.
 **If unkind Providence takes away my wife, who is half my body, why should He not take me also? What is the use of my living with half of my body, bereaved by loss of my wife? What shall I gain in this way?**
 
 ### SB 7.2.55
-
-> कथं त्वजातपक्षांस्तान्मातृहीनान्बिभर्म्यहम
-> मन्दभाग्याः प्रतीक्षन्ते नीडे मे मातरं प्रजाः ॥५५॥
 
 > kathaṁ tv ajāta-pakṣāṁs tān
 > mātṛ-hīnān bibharmy aham
@@ -1933,9 +1614,6 @@ Another point in this verse is that fathers and mothers have protective feelings
 
 ### SB 7.2.56
 
-> एवं कुलिङ्गं विलपन्तमारात्प्रियावियोगातुरमश्रुकण्ठम
-> स एव तं शाकुनिकः शरेण विव्याध कालप्रहितो विलीनः ॥५६॥
-
 > evaṁ kuliṅgaṁ vilapantam ārāt
 > priyā-viyogāturam aśru-kaṇṭham
 > sa eva taṁ śākunikaḥ śareṇa
@@ -1946,9 +1624,6 @@ Another point in this verse is that fathers and mothers have protective feelings
 **Because of the loss of his wife, the kuliṅga bird lamented with tears in his eyes. Meanwhile, following the dictations of mature time, the hunter, who was very carefully hidden in the distance, released his arrow, which pierced the body of the kuliṅga bird and killed him.**
 
 ### SB 7.2.57
-
-> एवं यूयमपश्यन्त्य आत्मापायमबुद्धयः
-> नैनं प्राप्स्यथ शोचन्त्यः पतिं वर्षशतैरपि ॥५७॥
 
 > evaṁ yūyam apaśyantya
 > ātmāpāyam abuddhayaḥ
@@ -1969,10 +1644,6 @@ Yamarāja once asked Mahārāja Yudhiṣṭhira, "What is the most wonderful thi
 Hundreds and thousands of living entities meet death at every moment, but a foolish living being nonetheless thinks himself deathless and does not prepare for death. This is the most wonderful thing in this world. Everyone has to die because everyone is fully under the control of material nature, yet everyone thinks that he is independent, that whatever he likes he can do, that he will never meet death but live forever, and so on. So-called scientists are making various plans by which living entities in the future can live forever, but while they are thus pursuing such scientific knowledge, Yamarāja, in due course of time, will take them away from their business of so-called research.
 
 ### SB 7.2.58
-
-> श्रीहिरण्यकशिपुरुवाच
-> बाल एवं प्रवदति सर्वे विस्मितचेतसः
-> ज्ञआतयो मेनिरे सर्वमनित्यमयथोत्थितम ॥५८॥
 
 > śrī-hiraṇyakaśipur uvāca
 > bāla evaṁ pravadati
@@ -2000,9 +1671,6 @@ Only Janārdana, the Supreme Personality of Godhead, is ever existing, but His c
 
 ### SB 7.2.59
 
-> यम एतदुपाख्याय तत्रैवान्तरधीयत
-> ज्ञआतयो हि सुयज्ञअस्य चक्रुर्यत्साम्परायिकम ॥५९॥
-
 > yama etad upākhyāya
 > tatraivāntaradhīyata
 > jñātayo hi suyajñasya
@@ -2013,10 +1681,6 @@ Only Janārdana, the Supreme Personality of Godhead, is ever existing, but His c
 **After instructing all the foolish relatives of Suyajña, Yamarāja, in the form of a boy, disappeared from their vision. Then the relatives of King Suyajña performed the ritualistic funeral ceremonies.**
 
 ### SB 7.2.60
-
-> अतः शोचत मा यूयं परं चात्मानमेव वा
-> क आत्मा कः परो वात्र स्वीयः पारक्य एव वा
-> स्वपराभिनिवेशेन विनाज्ञआनेन देहिनाम ॥६०॥
 
 > ataḥ śocata mā yūyaṁ
 > paraṁ cātmānam eva vā
@@ -2054,10 +1718,6 @@ The purport is that as long as we are in this human form of body, our duty is to
 
 ### SB 7.2.61
 
-> श्रीनारद उवाच
-> इति दैत्यपतेर्वाक्यं दितिराकर्ण्य सस्नुषा
-> पुत्रशोकं क्षणात्त्यक्त्वा तत्त्वे चित्तमधारयत ॥६१॥
-
 > śrī-nārada uvāca
 > iti daitya-pater vākyaṁ
 > ditir ākarṇya sasnuṣā
@@ -2076,10 +1736,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Second Chapter, of the
 
 ### SB 7.3.1
 
-> श्रीनारद उवाच
-> हिरण्यकशिपू राजन्नजेयमजरामरम
-> आत्मानमप्रतिद्वन्द्वमेकराजं व्यधित्सत ॥१॥
-
 > śrī-nārada uvāca
 > hiraṇyakaśipū rājann
 > ajeyam ajarāmaram
@@ -2094,9 +1750,6 @@ Such are the goals of the austerities performed by demons. Hiraṇyakaśipu want
 
 ### SB 7.3.2
 
-> स तेपे मन्दरद्रोण्यां तपः परमदारुणम
-> ऊर्ध्वबाहुर्नभोदृष्टिः पादाङ्गुष्ठाश्रितावनिः ॥२॥
-
 > sa tepe mandara-droṇyāṁ
 > tapaḥ parama-dāruṇam
 > ūrdhva-bāhur nabho-dṛṣṭiḥ
@@ -2107,9 +1760,6 @@ Such are the goals of the austerities performed by demons. Hiraṇyakaśipu want
 **In the valley of Mandara Hill, Hiraṇyakaśipu began performing his austerities by standing with his toes on the ground, keeping his arms upward and looking toward the sky. This position was extremely difficult, but he accepted it as a means to attain perfection.**
 
 ### SB 7.3.3
-
-> जटादीधितिभी रेजे संवर्तार्क इवांशुभिः
-> तस्मिंस्तपस्तप्यमाने देवाः स्थानानि भेजिरे ॥३॥
 
 > jaṭā-dīdhitibhī reje
 > saṁvartārka ivāṁśubhiḥ
@@ -2122,9 +1772,6 @@ Such are the goals of the austerities performed by demons. Hiraṇyakaśipu want
 
 ### SB 7.3.4
 
-> तस्य मूर्ध्नः समुद्भूतः सधूमोऽग्निस्तपोमयः
-> तीर्यगूर्ध्वमधो लोकान्प्रातपद्विष्वगीरितः ॥४॥
-
 > tasya mūrdhnaḥ samudbhūtaḥ
 > sadhūmo 'gnis tapomayaḥ
 > tīryag ūrdhvam adho lokān
@@ -2136,9 +1783,6 @@ Such are the goals of the austerities performed by demons. Hiraṇyakaśipu want
 
 ### SB 7.3.5
 
-> चुक्षुभुर्नद्युदन्वन्तः सद्वीपाद्रिश्चचाल भूः
-> निपेतुः सग्रहास्तारा जज्वलुश्च दिशो दश ॥५॥
-
 > cukṣubhur nady-udanvantaḥ
 > sadvīpādriś cacāla bhūḥ
 > nipetuḥ sagrahās tārā
@@ -2149,9 +1793,6 @@ Such are the goals of the austerities performed by demons. Hiraṇyakaśipu want
 **Because of the power of his severe austerities, all the rivers and oceans were agitated, the surface of the globe, with its mountains and islands, began trembling, and the stars and planets fell. All directions were ablaze.**
 
 ### SB 7.3.6
-
-> तेन तप्ता दिवं त्यक्त्वा ब्रह्मलोकं ययुः सुराः
-> धात्रे विज्ञआपयामासुर्देवदेव जगत्पते ॥६॥
 
 > tena taptā divaṁ tyaktvā
 > brahmalokaṁ yayuḥ surāḥ
@@ -2166,10 +1807,6 @@ Such are the goals of the austerities performed by demons. Hiraṇyakaśipu want
 
 ### SB 7.3.7
 
-> दैत्येन्द्रतपसा तप्ता दिवि स्थातुं न शक्नुमः
-> तस्य चोपशमं भूमन्विधेहि यदि मन्यसे
-> लोका न यावन्नङ्क्ष्यन्ति बलिहारास्तवाभिभूः ॥७॥
-
 > tasya copaśamaṁ bhūman
 > vidhehi yadi manyase
 > lokā na yāvan naṅkṣyanti
@@ -2181,9 +1818,6 @@ Such are the goals of the austerities performed by demons. Hiraṇyakaśipu want
 
 ### SB 7.3.8
 
-> तस्यायं किल सङ्कल्पश्चरतो दुश्चरं तपः
-> श्रूयतां किं न विदितस्तवाथापि निवेदितम ॥८॥
-
 > tasyāyaṁ kila saṅkalpaś
 > carato duścaraṁ tapaḥ
 > śrūyatāṁ kiṁ na viditas
@@ -2194,11 +1828,6 @@ Such are the goals of the austerities performed by demons. Hiraṇyakaśipu want
 **Hiraṇyakaśipu has undertaken a most severe type of austerity. Although his plan is not unknown to you, kindly listen as we submit his intentions.**
 
 ### SB 7.3.9-10
-
-> सृष्ट्वा चराचरमिदं तपोयोगसमाधिना
-> अध्यास्ते सर्वधिष्ण्येभ्यः परमेष्ठी निजासनम ॥९॥
-> तदहं वर्धमानेन तपोयोगसमाधिना
-> कालात्मनोश्च नित्यत्वात्साधयिष्ये तथात्मनः ॥१०॥
 
 > sṛṣṭvā carācaram idaṁ
 > tapo-yoga-samādhinā
@@ -2218,9 +1847,6 @@ Hiraṇyakaśipu's determination was to occupy the post of Lord Brahmā, but thi
 
 ### SB 7.3.11
 
-> अन्यथेदं विधास्येऽहमयथा पूर्वमोजसा
-> किमन्यैः कालनिर्धूतैः कल्पान्ते वैष्णवादिभिः ॥११॥
-
 > anyathedaṁ vidhāsye 'ham
 > ayathā pūrvam ojasā
 > kim anyaiḥ kāla-nirdhūtaiḥ
@@ -2234,9 +1860,6 @@ Hiraṇyakaśipu's demoniac determination was explained to Lord Brahmā by the d
 
 ### SB 7.3.12
 
-> इति शुश्रुम निर्बन्धं तपः परममास्थितः
-> विधत्स्वानन्तरं युक्तं स्वयं त्रिभुवनेश्वर ॥१२॥
-
 > iti śuśruma nirbandhaṁ
 > tapaḥ paramam āsthitaḥ
 > vidhatsvānantaraṁ yuktaṁ
@@ -2249,9 +1872,6 @@ Hiraṇyakaśipu's demoniac determination was explained to Lord Brahmā by the d
 In the material world, a servant is provided for by the master but is always planning how to capture the master's post. There have been many instances of this in history. Especially in India during the Mohammedan rule, many servants, by plans and devices, took over the posts of their masters. It is learned from Caitanya literature that one big Zamindar, Subuddhi Rāya, kept a Mohammedan boy as a servant. Of course, he treated the boy as his own child, and sometimes, when the boy would steal something, the master would chastise him by striking him with a cane. There was a mark on the boy's back from this chastisement. Later, after that boy had by crooked means become Hussain Shah, Nawab of Bengal, one day his wife saw the mark on his back and inquired about it. The Nawab replied that in his childhood he had been a servant of Subuddhi Rāya, who had punished him because of some mischievous activities. Upon hearing this, the Nawab's wife immediately became agitated and requested her husband to kill Subuddhi Rāya. Nawab Hussain Shah, of course, was very grateful to Subuddhi Rāya and therefore refused to kill him, but when his wife requested him to turn Subuddhi Rāya into a Mohammedan, the Nawab agreed. Taking some water from his waterpot, he sprinkled it upon Subuddhi Rāya and declared that Subuddhi Rāya had now become a Mohammedan. The point is that this Nawab had been an ordinary menial servant of Subuddhi Rāya but was somehow or other able to occupy the supreme post of Nawab of Bengal. This is the material world. Everyone is trying to become master through various devices, although everyone is servant of his senses. Following this system, a living entity, although servant of his senses, tries to become master of the whole universe. Hiraṇyakaśipu was a typical example of this, and Brahmā was informed by the demigods of his intentions.
 
 ### SB 7.3.13
-
-> तवासनं द्विजगवां पारमेष्ठ्यं जगत्पते
-> भवाय श्रेयसे भूत्यै क्षेमाय विजयाय च ॥१३॥
 
 > tavāsanaṁ dvija-gavāṁ
 > pārameṣṭhyaṁ jagat-pate
@@ -2270,9 +1890,6 @@ The word *bhūtyai* means "for increasing opulence," and the word *śreyase* ref
 
 ### SB 7.3.14
 
-> इति विज्ञआपितो देवैर्भगवानात्मभूर्नृप
-> परितो भृगुदक्षाद्यैर्ययौ दैत्येश्वराश्रमम ॥१४॥
-
 > iti vijñāpito devair
 > bhagavān ātmabhūr nṛpa
 > parito bhṛgu-dakṣādyair
@@ -2285,11 +1902,6 @@ The word *bhūtyai* means "for increasing opulence," and the word *śreyase* ref
 Lord Brahmā was waiting for the austerities performed by Hiraṇyakaśipu to mature so that he could go there and offer benedictions according to Hiraṇyakaśipu's desire. Now, taking the opportunity of being accompanied by all the demigods and great saintly persons, Brahmā went there to award him the benediction he desired.
 
 ### SB 7.3.15-16
-
-> न ददर्श प्रतिच्छन्नं वल्मीकतृणकीचकैः
-> पिपीलिकाभिराचीर्णं मेदस्त्वङ्मांसशोणितम ॥१५॥
-> तपन्तं तपसा लोकान्यथाभ्रापिहितं रविम
-> विलक्ष्य विस्मितः प्राह हसंस्तं हंसवाहनः ॥१६॥
 
 > na dadarśa praticchannaṁ
 > valmīka-tṛṇa-kīcakaiḥ
@@ -2311,10 +1923,6 @@ It is also to be noted that although Hiraṇyakaśipu performed this austerity f
 
 ### SB 7.3.17
 
-> श्रीब्रह्मोवाच
-> उत्तिष्ठोत्तिष्ठ भद्रं ते तपःसिद्धोऽसि काश्यप
-> वरदोऽहमनुप्राप्तो व्रियतामीप्सितो वरः ॥१७॥
-
 > śrī-brahmovāca
 > uttiṣṭhottiṣṭha bhadraṁ te
 > tapaḥ-siddho 'si kāśyapa
@@ -2329,9 +1937,6 @@ It is also to be noted that although Hiraṇyakaśipu performed this austerity f
 
 ### SB 7.3.18
 
-> अद्राक्षमहमेतं ते हृत्सारं महदद्भुतम
-> दंशभक्षितदेहस्य प्राणा ह्यस्थिषु शेरते ॥१८॥
-
 > adrākṣam aham etaṁ te
 > hṛt-sāraṁ mahad-adbhutam
 > daṁśa-bhakṣita-dehasya
@@ -2344,9 +1949,6 @@ It is also to be noted that although Hiraṇyakaśipu performed this austerity f
 It appears that the soul can exist even through the bones, as shown by the personal example of Hiraṇyakaśipu. When great *yogīs* are in *samādhi,* even when their bodies are buried and their skin, marrow, blood and so on have all been eaten, if only their bones remain they can exist in a transcendental position. Very recently an archaeologist published findings indicating that Lord Christ, after being buried, was exhumed and that he then went to Kashmir. There have been many actual examples of *yogīs'* being buried in trance and exhumed alive and in good condition several hours later. A *yogī* can keep himself alive in a transcendental state even if buried not only for many days but for many years.
 
 ### SB 7.3.19
-
-> नैतत्पूर्वर्षयश्चक्रुर्न करिष्यन्ति चापरे
-> निरम्बुर्धारयेत्प्राणान्को वै दिव्यसमाः शतम ॥१९॥
 
 > naitat pūrvarṣayaś cakrur
 > na kariṣyanti cāpare
@@ -2361,9 +1963,6 @@ It appears that even if a *yogī* does not drink a drop of water, he can live fo
 
 ### SB 7.3.20
 
-> व्यवसायेन तेऽनेन दुष्करेण मनस्विनाम
-> तपोनिष्ठेन भवताजितोऽहं दितिनन्दन ॥२०॥
-
 > vyavasāyena te 'nena
 > duṣkareṇa manasvinām
 > tapo-niṣṭhena bhavatā
@@ -2376,9 +1975,6 @@ It appears that even if a *yogī* does not drink a drop of water, he can live fo
 In regard to the word *jitaḥ,* Śrīla Madhva Muni gives the following quotation from the *Śabda-nirṇaya: parābhūtaṁ vaśa-sthaṁ ca jitabhid ucyate budhaiḥ.* "If one comes under someone else's control or is defeated by another, he is called *jitaḥ.*" Hiraṇyakaśipu's austerity was so great and wonderful that even Lord Brahmā agreed to be conquered by him.
 
 ### SB 7.3.21
-
-> ततस्त आशिषः सर्वा ददाम्यसुरपुङ्गव
-> मर्तस्य ते ह्यमर्तस्य दर्शनं नाफलं मम ॥२१॥
 
 > tatas ta āśiṣaḥ sarvā
 > dadāmy asura-puṅgava
@@ -2393,10 +1989,6 @@ It appears that human beings and *asuras* are subject to death, whereas demigods
 
 ### SB 7.3.22
 
-> श्रीनारद उवाच
-> इत्युक्त्वादिभवो देवो भक्षिताङ्गं पिपीलिकैः
-> कमण्डलुजलेनौक्षद्दिव्येनामोघराधसा ॥२२॥
-
 > śrī-nārada uvāca
 > ity uktvādi-bhavo devo
 > bhakṣitāṅgaṁ pipīlikaiḥ
@@ -2405,15 +1997,11 @@ It appears that human beings and *asuras* are subject to death, whereas demigods
 
 *śrī-nāradaḥ uvāca*—Śrī Nārada Muni said; *iti*—thus; *uktvā*—saying; *ādi-bhavaḥ*—Lord Brahmā, the original living creature within this universe; *devaḥ*—the principal demigod; *bhakṣita-aṅgam*—Hiraṇyakaśipu's body, which had been almost completely eaten; *pipīlikaiḥ*—by the ants; *kamaṇḍalu*—from the special waterpot in the hands of Lord Brahmā; *jalena*—by water; *aukṣat*—sprinkled; *divyena*—which was spiritual, not ordinary; *amogha*—without fail; *rādhasā*—whose power.
 
-**Śrī Nārada Muni continued: After speaking these words to Hiraṇyakaśipu, Lord Brahmā, the original being of this universe, who is extremely powerful, sprinkled transcendental, infallible, spiritual water from his kamaṇḍalu upon Hiraṇyakaśipu's body, which had been eaten away by ants and moths. Thus he enlivened Hiraṇyakaśipu.**
+**Śrī Nārada Muni continued: After speaking these words to Hiraṇyakaśipu, Lord Brahmi, the original being of this universe, who is extremely powerful, sprinkled transcendental, infallible, spiritual water from his kamaṇḍalu upon Hiraṇyakaśipu's body, which had been eaten away by ants and moths. Thus he enlivened Hiraṇyakaśipu.**
 
 Lord Brahmā is the first created being within this universe and is empowered by the Supreme Lord to create. *Tene brahma hṛdā ya ādi-kavaye:* [[sb/1/1/1|[SB 1.1.1] ]] the *ādi deva,* or *ādi-kavi*—the first living creature—was personally taught by the Supreme Personality of Godhead through the heart. There was no one to teach him, but since the Lord is situated within Brahmā's heart, Brahmā was educated by the Lord Himself. Lord Brahmā, being especially empowered, is infallible in doing whatever he wants. This is the meaning of the word *amogha rādhasā.* He desired to restore Hiraṇyakaśipu's original body, and therefore, by sprinkling transcendental water from his waterpot, he immediately did so.
 
 ### SB 7.3.23
-
-> स तत्कीचकवल्मीकात्सहओजोबलान्वितः
-> सर्वावयवसम्पन्नो वज्रसंहननो युवा
-> उत्थितस्तप्तहेमाभो विभावसुरिवैधसः ॥२३॥
 
 > sa tat kīcaka-valmīkāt
 > saha-ojo-balānvitaḥ
@@ -2429,9 +2017,6 @@ Lord Brahmā is the first created being within this universe and is empowered by
 Hiraṇyakaśipu was revitalized, so much so that his body was quite competent to tolerate the striking of thunderbolts. He was now a young man with a strong body and a very beautiful bodily luster resembling molten gold. This is the rejuvenation that took place because of his severe austerity and penance.
 
 ### SB 7.3.24
-
-> स निरीक्ष्याम्बरे देवं हंसवाहमुपस्थितम
-> ननाम शिरसा भूमौ तद्दर्शनमहोत्सवः ॥२४॥
 
 > sa nirīkṣyāmbare devaṁ
 > haṁsa-vāham upasthitam
@@ -2478,9 +2063,6 @@ Since Viṣṇu is the Supreme, by worshiping Viṣṇu one can fulfill all one'
 
 ### SB 7.3.25
 
-> उत्थाय प्राञ्जलिः प्रह्व ईक्षमाणो दृशा विभुम
-> हर्षाश्रुपुलकोद्भेदो गिरा गद्गदयागृणात ॥२५॥
-
 > utthāya prāñjaliḥ prahva
 > īkṣamāṇo dṛśā vibhum
 > harṣāśru-pulakodbhedo
@@ -2491,12 +2073,6 @@ Since Viṣṇu is the Supreme, by worshiping Viṣṇu one can fulfill all one'
 **Then, getting up from the ground and seeing Lord Brahmā before him, the head of the Daityas was overwhelmed by jubilation. With tears in his eyes, his whole body shivering, he began praying in a humble mood, with folded hands and a faltering voice, to satisfy Lord Brahmā.**
 
 ### SB 7.3.26-27
-
-> श्रीहिरण्यकशिपुरुवाच
-> कल्पान्ते कालसृष्टेन योऽन्धेन तमसावृतम
-> अभिव्यनग्जगदिदं स्वयञ्ज्योतिः स्वरोचिषा ॥२६॥
-> आत्मना त्रिवृता चेदं सृजत्यवति लुम्पति
-> रजःसत्त्वतमोधाम्ने पराय महते नमः ॥२७॥
 
 > śrī-hiraṇyakaśipur uvāca
 > kalpānte kāla-sṛṣṭena
@@ -2519,9 +2095,6 @@ The words *abhivyanag jagad idam* refer to he who creates this cosmic manifestat
 
 ### SB 7.3.28
 
-> नम आद्याय बीजाय ज्ञआनविज्ञआनमूर्तये
-> प्राणेन्द्रियमनोबुद्धि विकारैर्व्यक्तिमीयुषे ॥२८॥
-
 > nama ādyāya bījāya
 > jñāna-vijñāna-mūrtaye
 > prāṇendriya-mano-buddhi-
@@ -2531,14 +2104,11 @@ The words *abhivyanag jagad idam* refer to he who creates this cosmic manifestat
 
 **I offer my obeisances to the original personality within this universe, Lord Brahmā, who is cognizant and who can apply his mind and realized intelligence in creating this cosmic manifestation. It is because of his activities that everything within the universe is visible. He is therefore the cause of all manifestations.**
 
-The *Vedānta-sūtra* begins by declaring that the Absolute Person is the original source of all creation (*janmādy asya yataḥ* [[sb/1/1/1|[SB 1.1.1] ]]). One may ask whether Lord Brahmā is the Supreme Absolute Person. No, the Supreme Absolute Person is Kṛṣṇa. Brahmā receives his mind, intelligence, materials and everything else from Kṛṣṇa, and then he becomes the secondary creator, the engineer of this universe. In this regard we may note that the creation does not take place accidentally, because of the explosion of a chunk. Such nonsensical theories are not accepted by Vedic students. The first created living being is Brahmā, who is endowed with perfect knowledge and intelligence by the Lord. As stated in *Śrīmad-Bhāgavatam, tene brahma hṛdā ya ādi-kavaye*/ [[sb/1/1/1|[SB 1.1.1] ]] although Brahmā is the first created being, he is not independent, for he receives help from the Supreme Personality of Godhead through his heart. There is no one but Brahmā at the time of creation, and therefore he receives his intelligence directly from the Lord through the heart. This has been discussed in the beginning of *Śrīmad-Bhāgavatam.*
+The *Vedānta-sūtra* begins by declaring that the Absolute Person is the original source of all creation (*janmādy asya yataḥ* [[sb/1/1/1|[SB 1.1.1] ]]). One may ask whether Lord Brahmi is the Supreme Absolute Person. No, the Supreme Absolute Person is Kṛṣṇa. Brahmi receives his mind, intelligence, materials and everything else from Kṛṣṇa, and then he becomes the secondary creator, the engineer of this universe. In this regard we may note that the creation does not take place accidentally, because of the explosion of a chunk. Such nonsensical theories are not accepted by Vedic students. The first created living being is Brahmi, who is endowed with perfect knowledge and intelligence by the Lord. As stated in *Śrīmad-Bhāgavatam, tene brahma hṛdā ya ādi-kavaye*/ [[sb/1/1/1|[SB 1.1.1] ]] although Brahmi is the first created being, he is not independent, for he receives help from the Supreme Personality of Godhead through his heart. There is no one but Brahmi at the time of creation, and therefore he receives his intelligence directly from the Lord through the heart. This has been discussed in the beginning of *Śrīmad-Bhāgavatam.*
 
-Lord Brahmā is described in this verse as the original cause of the cosmic manifestation, and this applies to his position in the material world. There are many, many such controllers, all of whom are created by the Supreme Lord, Viṣṇu. This is illustrated by an incident described in *Caitanya-caritāmṛta.* When the Brahmā of this particular universe was invited by Kṛṣṇa to Dvārakā, he thought that he was the only Brahmā. Therefore when Kṛṣṇa inquired from His servant which Brahmā was at the door to visit, Lord Brahmā was surprised. He replied that of course Lord Brahmā, the father of the four Kumāras, was waiting at the door. Later, Lord Brahmā asked Kṛṣṇa why He had inquired which Brahmā had come. He was then informed that there are millions of other Brahmās because there are millions of universes. Kṛṣṇa then called all the Brahmās, who immediately came to visit Him. The *catur-mukha* Brahmā, the four-headed Brahmā of this universe, thought himself a very insignificant creature in the presence of so many Brahmās with so many heads. Thus although there is a Brahmā who is the engineer of each universe, Kṛṣṇa is the original source of all of them.
+Lord Brahmi is described in this verse as the original cause of the cosmic manifestation, and this applies to his position in the material world. There are many, many such controllers, all of whom are created by the Supreme Lord, Viṣṇu. This is illustrated by an incident described in *Caitanya-caritāmṛta.* When the Brahmi of this particular universe was invited by Kṛṣṇa to Dvārakā, he thought that he was the only Brahmi. Therefore when Kṛṣṇa inquired from His servant which Brahmi was at the door to visit, Lord Brahmi was surprised. He replied that of course Lord Brahmi, the father of the four Kumāras, was waiting at the door. Later, Lord Brahmi asked Kṛṣṇa why He had inquired which Brahmi had come. He was then informed that there are millions of other Brahmis because there are millions of universes. Kṛṣṇa then called all the Brahmis, who immediately came to visit Him. The *catur-mukha* Brahmi, the four-headed Brahmi of this universe, thought himself a very insignificant creature in the presence of so many Brahmis with so many heads. Thus although there is a Brahmi who is the engineer of each universe, Kṛṣṇa is the original source of all of them.
 
 ### SB 7.3.29
-
-> त्वमीशिषे जगतस्तस्थुषश्च प्राणेन मुख्येन पतिः प्रजानाम
-> चित्तस्य चित्तैर्मनैन्द्रियाणां पतिर्महान्भूतगुणाशयेशः ॥२९॥
 
 > tvam īśiṣe jagatas tasthuṣaś ca
 > prāṇena mukhyena patiḥ prajānām
@@ -2553,9 +2123,6 @@ In this verse it is clearly indicated that the original source of everything is 
 
 ### SB 7.3.30
 
-> त्वं सप्ततन्तून्वितनोषि तन्वा त्रय्या चतुर्होत्रकविद्यया च
-> त्वमेक आत्मात्मवतामनादिरनन्तपारः कविरन्तरात्मा ॥३०॥
-
 > tvaṁ sapta-tantūn vitanoṣi tanvā
 > trayyā catur-hotraka-vidyayā ca
 > tvam eka ātmātmavatām anādir
@@ -2568,9 +2135,6 @@ In this verse it is clearly indicated that the original source of everything is 
 The Vedic ritualistic ceremonies, the knowledge thereof, and the person who agrees to perform them are inspired by the Supreme Soul. As confirmed in *Bhagavad-gītā, mattaḥ smṛtir jñānam apohanaṁ ca:* [[bg/15/15|[Bg. 15.15] ]] from the Lord come remembrance, knowledge and forgetfulness. The Supersoul is situated in everyone's heart (*sarvasya cāhaṁ hṛdi sanniviṣṭaḥ, īśvaraḥ sarva-bhūtānāṁ hṛd-deśe 'rjuna tiṣṭhati* [[bg/18/61|[Bg. 18.61] ]]), and when one is advanced in Vedic knowledge, the Supersoul gives him directions. Acting as Supersoul, the Lord gives inspiration to a suitable person to perform the Vedic ritualistic ceremonies. In this connection, four classes of priests, known as *ṛtvik,* are required. They are mentioned as *hotā, adhvaryu, brahma* and *udgātā.*
 
 ### SB 7.3.31
-
-> त्वमेव कालोऽनिमिषो जनानामायुर्लवाद्यवयवैः क्षिणोषि
-> कूटस्थ आत्मा परमेष्ठ्यजो महांस्त्वं जीवलोकस्य च जीव आत्मा ॥३१॥
 
 > tvam eva kālo 'nimiṣo janānām
 > āyur lavādy-avayavaiḥ kṣiṇoṣi
@@ -2585,9 +2149,6 @@ In this verse the word *kūṭa-stha* is very important. Although the Supreme Pe
 
 ### SB 7.3.32
 
-> त्वत्तः परं नापरमप्यनेजदेजच्च किञ्चिद्व्यतिरिक्तमस्ति
-> विद्याः कलास्ते तनवश्च सर्वा हिरण्यगर्भोऽसि बृहत्त्रिपृष्ठः ॥३२॥
-
 > tvattaḥ paraṁ nāparam apy anejad
 > ejac ca kiñcid vyatiriktam asti
 > vidyāḥ kalās te tanavaś ca sarvā
@@ -2600,9 +2161,6 @@ In this verse the word *kūṭa-stha* is very important. Although the Supreme Pe
 The word *param* means "the supreme cause," and *aparam* means "the effect." The supreme cause is the Supreme Personality of Godhead, and the effect is material nature. The living entities, both moving and nonmoving, are controlled by the Vedic instructions in art and science, and therefore they are all expansions of the external energy of the Supreme Personality of Godhead, who is the center as the Supersoul. The *brahmāṇḍas,* the universes, exist during the duration of a breath of the Supreme Lord (*yasyaika-niśvasita-kālam athāvalambya jīvanti loma-vilajā jagad-aṇḍa-nāthāḥ* [Bs. 5.48]). Thus they are also within the womb of the Supreme Personality of Godhead, Mahā-Viṣṇu. Nothing, therefore, is separate from the Supreme Lord. This is the philosophy of *acintya-bhedābheda-tattva.*
 
 ### SB 7.3.33
-
-> व्यक्तं विभो स्थूलमिदं शरीरं येनेन्द्रियप्राणमनोगुणांस्त्वम
-> भुङ्क्षे स्थितो धामनि पारमेष्ठ्ये अव्यक्त आत्मा पुरुषः पुराणः ॥३३॥
 
 > vyaktaṁ vibho sthūlam idaṁ śarīraṁ
 > yenendriya-prāṇa-mano-guṇāṁs tvam
@@ -2617,9 +2175,6 @@ It is said that the Absolute Truth appears in three features—namely, impersona
 
 ### SB 7.3.34
 
-> अनन्ताव्यक्तरूपेण येनेदमखिलं ततम
-> चिदचिच्छक्तियुक्ताय तस्मै भगवते नमः ॥३४॥
-
 > anantāvyakta-rūpeṇa
 > yenedam akhilaṁ tatam
 > cid-acic-chakti-yuktāya
@@ -2632,9 +2187,6 @@ It is said that the Absolute Truth appears in three features—namely, impersona
 The Lord is endowed with unlimited potencies (*parāsya śaktir vividhaiva śrūyate [Cc. Madhya 13.65, purport]*), which are summarized as three, namely external, internal and marginal. The external potency manifests this material world, the internal potency manifests the spiritual world, and the marginal potency manifests the living entities, who are mixtures of internal and external. The living entity, being part and parcel of Parabrahman, is actually internal potency, but because of being in contact with the material energy, he is an emanation of material and spiritual energies. The Supreme Personality of Godhead is above the material energy and is engaged in spiritual pastimes. The material energy is only an external manifestation of His pastimes.
 
 ### SB 7.3.35
-
-> यदि दास्यस्यभिमतान्वरान्मे वरदोत्तम
-> भूतेभ्यस्त्वद्विसृष्टेभ्यो मृत्युर्मा भून्मम प्रभो ॥३५॥
 
 > yadi dāsyasy abhimatān
 > varān me varadottama
@@ -2651,9 +2203,6 @@ Thus far, Hiraṇyakaśipu has adored Lord Brahmā as the Supreme Personality of
 
 ### SB 7.3.36
 
-> नान्तर्बहिर्दिवा नक्तमन्यस्मादपि चायुधैः
-> न भूमौ नाम्बरे मृत्युर्न नरैर्न मृगैरपि ॥३६॥
-
 > nāntar bahir divā naktam
 > anyasmād api cāyudhaiḥ
 > na bhūmau nāmbare mṛtyur
@@ -2666,11 +2215,6 @@ Thus far, Hiraṇyakaśipu has adored Lord Brahmā as the Supreme Personality of
 Hiraṇyakaśipu was very much afraid of Viṣṇu's becoming an animal to kill him because his brother had been killed by Viṣṇu when the Lord took the shape of a boar. He was therefore very careful to guard against all kinds of animals. But even without taking the shape of an animal, Viṣṇu could kill him by hurling His Sudarśana *cakra,* which can go anywhere without the Lord's physical presence. Therefore Hiraṇyakaśipu was careful to guard against all kinds of weapons. He guarded against all kinds of time, space and countries because he was afraid of being killed by someone else in another land. There are many other planets, higher and lower, and therefore he prayed for the benediction of not being killed by any resident of any of these planets. There are three original deities—Brahmā, Viṣṇu and Maheśvara. Hiraṇyakaśipu knew that Brahmā would not kill him, but he also wanted not to be killed by Lord Viṣṇu or Lord Śiva. Consequently, he prayed for such a benediction. Thus Hiraṇyakaśipu thought himself securely protected from any kind of death caused by any living entity within this universe. He also carefully guarded against natural death, which might take place within his house or outside of the house.
 
 ### SB 7.3.37-38
-
-> व्यसुभिर्वासुमद्भिर्वा सुरासुरमहोरगैः
-> अप्रतिद्वन्द्वतां युद्धे ऐकपत्यं च देहिनाम ॥३७॥
-> सर्वेषां लोकपालानां महिमानं यथात्मनः
-> तपोयोगप्रभावाणां यन्न रिष्यति कर्हिचित ॥३८॥
 
 > vyasubhir vāsumadbhir vā
 > surāsura-mahoragaiḥ
@@ -2694,10 +2238,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Third Chapter, of the 
 
 ### SB 7.4.1
 
-> श्रीनारद उवाच
-> एवं वृतः शतधृतिर्हिरण्यकशिपोरथ
-> प्रादात्तत्तपसा प्रीतो वरांस्तस्य सुदुर्लभान ॥१॥
-
 > śrī-nārada uvāca
 > evaṁ vṛtaḥ śata-dhṛtir
 > hiraṇyakaśipor atha
@@ -2709,10 +2249,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Third Chapter, of the 
 **Nārada Muni continued: Lord Brahmā was very much satisfied by Hiraṇyakaśipu's austerities, which were difficult to perform. Therefore, when solicited for benedictions, he indeed granted them, although they were rarely to be achieved.**
 
 ### SB 7.4.2
-
-> श्रीब्रह्मोवाच
-> तातेमे दुर्लभाः पुंसां यान्वृणीषे वरान्मम
-> तथापि वितराम्यङ्ग वरान्यद्यपि दुर्लभान ॥२॥
 
 > śrī-brahmovāca
 > tāteme durlabhāḥ puṁsāṁ
@@ -2728,9 +2264,6 @@ Material benedictions are not always exactly worthy of being called benedictions
 
 ### SB 7.4.3
 
-> ततो जगाम भगवानमोघानुग्रहो विभुः
-> पूजितोऽसुरवर्येण स्तूयमानः प्रजेश्वरैः ॥३॥
-
 > tato jagāma bhagavān
 > amoghānugraho vibhuḥ
 > pūjito 'sura-varyeṇa
@@ -2741,9 +2274,6 @@ Material benedictions are not always exactly worthy of being called benedictions
 **Then Lord Brahmā, who awards infallible benedictions, departed, being worshiped by the best of the demons, Hiraṇyakaśipu, and being praised by great sages and saintly persons.**
 
 ### SB 7.4.4
-
-> एवं लब्धवरो दैत्यो बिभ्रद्धेममयं वपुः
-> भगवत्यकरोद्द्वेषं भ्रातुर्वधमनुस्मरन ॥४॥
 
 > evaṁ labdha-varo daityo
 > bibhrad dhemamayaṁ vapuḥ
@@ -2757,13 +2287,6 @@ Material benedictions are not always exactly worthy of being called benedictions
 A demoniac person, in spite of acquiring all the opulences possible to obtain in this universe, continues to be envious of the Supreme Personality of Godhead.
 
 ### SB 7.4.5-7
-
-> स विजित्य दिशः सर्वा लोकांश्च त्रीन्महासुरः
-> देवासुरमनुष्येन्द्र गन्धर्वगरुडोरगान ॥५॥
-> सिद्धचारणविद्याध्रानृषीन्पितृपतीन्मनून
-> यक्षरक्षःपिशाचेशान्प्रेतभूतपतीनपि ॥६॥
-> सर्वसत्त्वपतीन्जित्वा वशमानीय विश्वजित
-> जहार लोकपालानां स्थानानि सह तेजसा ॥७॥
 
 > sa vijitya diśaḥ sarvā
 > lokāṁś ca trīn mahāsuraḥ
@@ -2788,10 +2311,6 @@ The word *garuḍa* in this verse indicates that there are planets of great bird
 
 ### SB 7.4.8
 
-> देवोद्यानश्रिया जुष्टमध्यास्ते स्म त्रिपिष्टपम
-> महेन्द्रभवनं साक्षान्निर्मितं विश्वकर्मणा
-> त्रैलोक्यलक्ष्म्यायतनमध्युवासाखिलर्द्धिमत ॥८॥
-
 > devodyāna-śriyā juṣṭam
 > adhyāste sma tri-piṣṭapam
 > mahendra-bhavanaṁ sākṣān
@@ -2806,15 +2325,6 @@ The word *garuḍa* in this verse indicates that there are planets of great bird
 From this description it appears that all the heavenly planets of the upper planetary system are thousands upon thousands of times more opulent than the lower planetary system in which we live. Viśvakarmā, the famous heavenly architect, is known as the constructor of many wonderful buildings in the upper planets, where there are not only beautiful buildings, but also many opulent gardens and parks, which are described as *nandana-devodyāna,* gardens quite fit to be enjoyed by the demigods. This description of the upper planetary system and its opulences is to be understood from authoritative scriptures like the Vedic literatures. Telescopes and the other imperfect instruments of scientists are inadequate for evaluating the upper planetary system. Although such instruments are needed because the vision of the so-called scientists is imperfect, the instruments themselves are also imperfect. Therefore the upper planets cannot be appraised by imperfect men using imperfect man-made instruments. Direct information received from the Vedic literature, however, is perfect, We therefore cannot accept the statement that there are no opulent residences on planets other than this earth.
 
 ### SB 7.4.9-12
-
-> यत्र विद्रुमसोपाना महामारकता भुवः
-> यत्र स्फाटिककुड्यानि वैदूर्यस्तम्भपङ्क्तयः ॥९॥
-> यत्र चित्रवितानानि पद्मरागासनानि च
-> पयःफेननिभाः शय्या मुक्तादामपरिच्छदाः ॥१०॥
-> कूजद्भिर्नूपुरैर्देव्यः शब्दयन्त्य इतस्ततः
-> रत्नस्थलीषु पश्यन्ति सुदतीः सुन्दरं मुखम ॥११॥
-> तस्मिन्महेन्द्रभवने महाबलो महामना निर्जितलोक एकराट
-> रेमेऽभिवन्द्याङ्घ्रियुगः सुरादिभिः प्रतापितैरूर्जितचण्डशासनः ॥१२॥
 
 > yatra vidruma-sopānā
 > mahā-mārakatā bhuvaḥ
@@ -2844,9 +2354,6 @@ Hiraṇyakaśipu was so powerful in the heavenly planets that all the demigods e
 
 ### SB 7.4.13
 
-> तमङ्ग मत्तं मधुनोरुगन्धिना विवृत्तताम्राक्षमशेषधिष्ण्यपाः
-> उपासतोपायनपाणिभिर्विना त्रिभिस्तपोयोगबलौजसां पदम ॥१३॥
-
 > tam aṅga mattaṁ madhunoru-gandhinā
 > vivṛtta-tāmrākṣam aśeṣa-dhiṣṇya-pāḥ
 > upāsatopāyana-pāṇibhir vinā
@@ -2859,9 +2366,6 @@ Hiraṇyakaśipu was so powerful in the heavenly planets that all the demigods e
 In the *Skanda Purāṇa* there is this description: *upāyanaṁ daduḥ sarve vinā devān hiraṇyakaḥ.* Hiraṇyakaśipu was so powerful that everyone but the three principal demigods—namely Lord Brahmā, Lord Śiva and Lord Viṣṇu—engaged in his service. Madhvācārya says, *ādityā vasavo rudrās tri-vidhā hi surā yataḥ.* There are three kinds of demigods—the Ādityas, the Vasus and the Rudras—beneath whom are the other demigods, like the Maruts and Sādhyas (*marutaś caiva viśve ca sādhyāś caiva ca tad-gatāḥ*). Therefore all the demigods are called *tri-piṣṭapa,* and the same word *tri* applies to Lord Brahmā, Lord Śiva and Lord Viṣṇu.
 
 ### SB 7.4.14
-
-> जगुर्महेन्द्रासनमोजसा स्थितं विश्वावसुस्तुम्बुरुरस्मदादयः
-> गन्धर्वसिद्धा ऋषयोऽस्तुवन्मुहुर्विद्याधराश्चाप्सरसश्च पाण्डव ॥१४॥
 
 > jagur mahendrāsanam ojasā sthitaṁ
 > viśvāvasus tumburur asmad-ādayaḥ
@@ -2876,9 +2380,6 @@ The *asuras* sometimes become so powerful that they can engage even Nārada Muni
 
 ### SB 7.4.15
 
-> स एव वर्णाश्रमिभिः क्रतुभिर्भूरिदक्षिणैः
-> इज्यमानो हविर्भागानग्रहीत्स्वेन तेजसा ॥१५॥
-
 > sa eva varṇāśramibhiḥ
 > kratubhir bhūri-dakṣiṇaiḥ
 > ijyamāno havir-bhāgān
@@ -2890,9 +2391,6 @@ The *asuras* sometimes become so powerful that they can engage even Nārada Muni
 
 ### SB 7.4.16
 
-> अकृष्टपच्या तस्यासीत्सप्तद्वीपवती मही
-> तथा कामदुघा गावो नानाश्चर्यपदं नभः ॥१६॥
-
 > akṛṣṭa-pacyā tasyāsīt
 > sapta-dvīpavatī mahī
 > tathā kāma-dughā gāvo
@@ -2903,9 +2401,6 @@ The *asuras* sometimes become so powerful that they can engage even Nārada Muni
 **As if in fear of Hiraṇyakaśipu, the planet earth, which consists of seven islands, delivered food grains without being plowed. Thus it resembled cows like the surabhi of the spiritual world or the kāma-dughā of heaven. The earth yielded sufficient food grains, the cows supplied abundant milk, and outer space was beautifully decorated with wonderful phenomena.**
 
 ### SB 7.4.17
-
-> रत्नाकराश्च रत्नौघांस्तत्पत्न्यश्चोहुरूर्मिभिः
-> क्षारसीधुघृतक्षौद्र दधिक्षीरामृतोदकाः ॥१७॥
 
 > ratnākarāś ca ratnaughāṁs
 > tat-patnyaś cohur ūrmibhiḥ
@@ -2920,9 +2415,6 @@ The water of the seas and oceans of this planet, of which we have experience, ar
 
 ### SB 7.4.18
 
-> शैला द्रोणीभिराक्रीडं सर्वर्तुषु गुणान्द्रुमाः
-> दधार लोकपालानामेक एव पृथग्गुणान ॥१८॥
-
 > śailā droṇībhir ākrīḍaṁ
 > sarvartuṣu guṇān drumāḥ
 > dadhāra loka-pālānām
@@ -2936,9 +2428,6 @@ It is said in the beginning of *Śrīmad-Bhāgavatam, tejo-vāri-mṛdāṁ yath
 
 ### SB 7.4.19
 
-> स इत्थं निर्जितककुबेकराड्विषयान्प्रियान
-> यथोपजोषं भुञ्जानो नातृप्यदजितेन्द्रियः ॥१९॥
-
 > sa itthaṁ nirjita-kakub
 > eka-rāḍ viṣayān priyān
 > yathopajoṣaṁ bhuñjāno
@@ -2951,9 +2440,6 @@ It is said in the beginning of *Śrīmad-Bhāgavatam, tejo-vāri-mṛdāṁ yath
 This is an example of asuric life. Atheists can advance materially and create an extremely comfortable situation for the senses, but because they are controlled by the senses, they cannot be satisfied. This is the effect of modern civilization. Materialists are very much advanced in enjoying money and women, yet dissatisfaction prevails within human society because human society cannot be happy and peaceful without Kṛṣṇa consciousness. As far as material sense gratification is concerned, materialists may go on increasing their enjoyment as far as they can imagine, but because people in such a material condition are servants of their senses, they cannot be satisfied. Hiraṇyakaśipu was a vivid example of this dissatisfied state of humanity.
 
 ### SB 7.4.20
-
-> एवमैश्वर्यमत्तस्य दृप्तस्योच्छास्त्रवर्तिनः
-> कालो महान्व्यतीयाय ब्रह्मशापमुपेयुषः ॥२०॥
 
 > evam aiśvarya-mattasya
 > dṛptasyocchāstra-vartinaḥ
@@ -2982,9 +2468,6 @@ There have been many instances in which demons, after achieving material opulenc
 
 ### SB 7.4.21
 
-> तस्योग्रदण्डसंविग्नाः सर्वे लोकाः सपालकाः
-> अन्यत्रालब्धशरणाः शरणं ययुरच्युतम ॥२१॥
-
 > tasyogra-daṇḍa-saṁvignāḥ
 > sarve lokāḥ sapālakāḥ
 > anyatrālabdha-śaraṇāḥ
@@ -3005,11 +2488,6 @@ Lord Kṛṣṇa says in *Bhagavad-gītā* [[bg/5/29|(Bg. 5.29)]]:
 
 ### SB 7.4.22-23
 
-> तस्यै नमोऽस्तु काष्ठायै यत्रात्मा हरिरीश्वरः
-> यद्गत्वा न निवर्तन्ते शान्ताः सन्न्यासिनोऽमलाः ॥२२॥
-> इति ते संयतात्मानः समाहितधियोऽमलाः
-> उपतस्थुर्हृषीकेशं विनिद्रा वायुभोजनाः ॥२३॥
-
 > tasyai namo 'stu kāṣṭhāyai
 > yatrātmā harir īśvaraḥ
 > yad gatvā na nivartante
@@ -3028,9 +2506,6 @@ The two words *tasyai kāṣṭhāyai* are very significant. Everywhere, in ever
 
 ### SB 7.4.24
 
-> तेषामाविरभूद्वाणी अरूपा मेघनिःस्वना
-> सन्नादयन्ती ककुभः साधूनामभयङ्करी ॥२४॥
-
 > teṣām āvirabhūd vāṇī
 > arūpā megha-niḥsvanā
 > sannādayantī kakubhaḥ
@@ -3041,11 +2516,6 @@ The two words *tasyai kāṣṭhāyai* are very significant. Everywhere, in ever
 **Then there appeared before them a transcendental sound vibration, emanating from a personality not visible to material eyes. The voice was as grave as the sound of a cloud, and it was very encouraging, driving away all fear.**
 
 ### SB 7.4.25-26
-
-> मा भैष्ट विबुधश्रेष्ठाः सर्वेषां भद्रमस्तु वः
-> मद्दर्शनं हि भूतानां सर्वश्रेयोपपत्तये ॥२५॥
-> ज्ञआतमेतस्य दौरात्म्यं दैतेयापसदस्य यत
-> तस्य शान्तिं करिष्यामि कालं तावत्प्रतीक्षत ॥२६॥
 
 > mā bhaiṣṭa vibudha-śreṣṭhāḥ
 > sarveṣāṁ bhadram astu vaḥ
@@ -3065,9 +2535,6 @@ Sometimes people are very much eager to see God. In considering the word *mad-da
 
 ### SB 7.4.27
 
-> यदा देवेषु वेदेषु गोषु विप्रेषु साधुषु
-> धर्मे मयि च विद्वेषः स वा आशु विनश्यति ॥२७॥
-
 > yadā deveṣu vedeṣu
 > goṣu vipreṣu sādhuṣu
 > dharme mayi ca vidveṣaḥ
@@ -3078,9 +2545,6 @@ Sometimes people are very much eager to see God. In considering the word *mad-da
 **When one is envious of the demigods, who represent the Supreme Personality of Godhead, of the Vedas, which give all knowledge, of the cows, brāhmaṇas, Vaiṣṇavas and religious principles, and ultimately of Me, the Supreme Personality of Godhead, he and his civilization will be vanquished without delay.**
 
 ### SB 7.4.28
-
-> निर्वैराय प्रशान्ताय स्वसुताय महात्मने
-> प्रह्रादाय यदा द्रुह्येद्धनिष्येऽपि वरोर्जितम ॥२८॥
 
 > nirvairāya praśāntāya
 > sva-sutāya mahātmane
@@ -3094,10 +2558,6 @@ Sometimes people are very much eager to see God. In considering the word *mad-da
 Of all sinful activities, an offense to a pure devotee, or Vaiṣṇava, is the most severe. An offense at the lotus feet of a Vaiṣṇava is so disastrous that Śrī Caitanya Mahāprabhu has compared it to a mad elephant that enters a garden and causes great havoc by uprooting many plants and trees. If one is an offender at the lotus feet of a *brāhmaṇa* or Vaiṣṇava, his offenses uproot all his auspicious activities. One should therefore very carefully guard against committing *vaiṣṇava-aparādha,* or offenses at the lotus feet of a Vaiṣṇava. Here the Lord clearly says that although Hiraṇyakaśipu had received benedictions from Lord Brahmā, these benedictions would be null and void as soon as he committed an offense at the lotus feet of Prahlāda Mahārāja, his own son. A Vaiṣṇava like Prahlāda Mahārāja is described herein as *nirvaira,* having no enemies. Elsewhere in *Śrīmad-Bhāgavatam* (3.25.21) it is said, *ajāta-śatravaḥ śāntāḥ sādhavaḥ sādhu-bhūṣaṇāḥ:* a devotee has no enemies, he is peaceful, he abides by the scriptures, and all his characteristics are sublime. A devotee does not create enmity with anyone, but if someone becomes his enemy, that person will be vanquished by the Supreme Personality of Godhead, despite whatever benedictions he may have received from other sources. Hiraṇyakaśipu was certainly enjoying the fruitful results of his austerities, but here the Lord says that as soon as he committed an offense at the lotus feet of Prahlāda Mahārāja he would be ruined. One's longevity, opulence, beauty, education and whatever else one may possess as a result of pious activities cannot protect one if one commits an offense at the lotus feet of a Vaiṣṇava. Despite whatever one possesses, if one offends the lotus feet of a Vaiṣṇava he will be vanquished.
 
 ### SB 7.4.29
-
-> श्रीनारद उवाच
-> इत्युक्ता लोकगुरुणा तं प्रणम्य दिवौकसः
-> न्यवर्तन्त गतोद्वेगा मेनिरे चासुरं हतम ॥२९॥
 
 > śrī-nārada uvāca
 > ity uktā loka-guruṇā
@@ -3120,9 +2580,6 @@ The less intelligent men who are always busy worshiping the demigods should note
 
 ### SB 7.4.30
 
-> तस्य दैत्यपतेः पुत्राश्चत्वारः परमाद्भुताः
-> प्रह्रादोऽभून्महांस्तेषां गुणैर्महदुपासकः ॥३०॥
-
 > tasya daitya-pateḥ putrāś
 > catvāraḥ paramādbhutāḥ
 > prahrādo 'bhūn mahāṁs teṣāṁ
@@ -3138,12 +2595,6 @@ The less intelligent men who are always busy worshiping the demigods should note
 "In one who has unflinching devotional faith in Kṛṣṇa, all the good qualities of Kṛṣṇa and the demigods are consistently manifest." [[sb/5/18/12|(SB 5.18.12)]] Prahlāda Mahārāja is praised herein for having all good qualities because of worshiping the Supreme Personality of Godhead. Therefore, a pure devotee, who has no motives, has all good qualities, material and spiritual. If one is spiritually advanced, being a staunch, liberal devotee of the Lord, all good qualities are manifest in his body. On the other hand, *harāv abhaktasya kuto mahad-guṇāḥ:* if one is not a devotee, even if he has some materially good qualities, they have no value. That is the verdict of the *Vedas.*
 
 ### SB 7.4.31-32
-
-> ब्रह्मण्यः शीलसम्पन्नः सत्यसन्धो जितेन्द्रियः
-> आत्मवत्सर्वभूतानामेकप्रियसुहृत्तमः ॥३१॥
-> दासवत्सन्नतार्याङ्घ्रिः पितृवद्दीनवत्सलः
-> भ्रातृवत्सदृशे स्निग्धो गुरुष्वीश्वरभावनः
-> विद्यार्थरूपजन्माढ्यो मानस्तम्भविवर्जितः ॥३२॥
 
 > brahmaṇyaḥ śīla-sampannaḥ
 > satya-sandho jitendriyaḥ
@@ -3174,9 +2625,6 @@ The word *guru* refers to the spiritual master who initiates his disciple into a
 
 ### SB 7.4.33
 
-> नोद्विग्नचित्तो व्यसनेषु निःस्पृहः श्रुतेषु दृष्टेषु गुणेष्ववस्तुदृक
-> दान्तेन्द्रियप्राणशरीरधीः सदा प्रशान्तकामो रहितासुरोऽसुरः ॥३३॥
-
 > nodvigna-citto vyasaneṣu niḥspṛhaḥ
 > śruteṣu dṛṣṭeṣu guṇeṣv avastu-dṛk
 > dāntendriya-prāṇa-śarīra-dhīḥ sadā
@@ -3189,9 +2637,6 @@ The word *guru* refers to the spiritual master who initiates his disciple into a
 From this verse we discover that a man is not qualified or disqualified simply by birth. Prahlāda Mahārāja was an *asura* by birth, yet he possessed all the qualities of a perfect *brāhmaṇa* (*brahmaṇyaḥ śīla-sampannaḥ*). Anyone can become a fully qualified *brāhmaṇa* under the direction of a spiritual master. Prahlāda Mahārāja provided a vivid example of how to think of the spiritual master and accept his directions calmly.
 
 ### SB 7.4.34
-
-> यस्मिन्महद्गुणा राजन्गृह्यन्ते कविभिर्मुहुः
-> न तेऽधुना पिधीयन्ते यथा भगवतीश्वरे ॥३४॥
 
 > yasmin mahad-guṇā rājan
 > gṛhyante kavibhir muhuḥ
@@ -3206,9 +2651,6 @@ From authoritative scripture it is learned that Prahlāda Mahārāja still lives
 
 ### SB 7.4.35
 
-> यं साधुगाथासदसि रिपवोऽपि सुरा नृप
-> प्रतिमानं प्रकुर्वन्ति किमुतान्ये भवादृशाः ॥३५॥
-
 > yaṁ sādhu-gāthā-sadasi
 > ripavo 'pi surā nṛpa
 > pratimānaṁ prakurvanti
@@ -3219,9 +2661,6 @@ From authoritative scripture it is learned that Prahlāda Mahārāja still lives
 **In any assembly where there are discourses about saints and devotees, O King Yudhiṣṭhira, even the enemies of the demons, namely the demigods, what to speak of you, would cite Prahlāda Mahārāja as an example of a great devotee.**
 
 ### SB 7.4.36
-
-> गुणैरलमसङ्ख्येयैर्माहात्म्यं तस्य सूच्यते
-> वासुदेवे भगवति यस्य नैसर्गिकी रतिः ॥३६॥
 
 > guṇair alam asaṅkhyeyair
 > māhātmyaṁ tasya sūcyate
@@ -3242,9 +2681,6 @@ In his prayers to the ten incarnations, Jayadeva Gosvāmī says, *keśava dhṛt
 "After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare." A great devotee of Kṛṣṇa, the son of Vasudeva, is a great soul very rarely to be found. Prahlāda Mahārāja's attachment for Kṛṣṇa will be explained in the next verse. *Kṛṣṇa-graha-gṛhītātmā.* Prahlāda Mahārāja's heart was always filled with thoughts of Kṛṣṇa. Therefore Prahlāda Mahārāja is the ideal devotee in Kṛṣṇa consciousness.
 
 ### SB 7.4.37
-
-> न्यस्तक्रीडनको बालो जडवत्तन्मनस्तया
-> कृष्णग्रहगृहीतात्मा न वेद जगदीदृशम ॥३७॥
 
 > nyasta-krīḍanako bālo
 > jaḍavat tan-manastayā
@@ -3273,9 +2709,6 @@ Prahlāda Mahārāja is the approved *mahā-bhāgavata,* the supreme devotee. In
 
 ### SB 7.4.38
 
-> आसीनः पर्यटन्नश्नन्शयानः प्रपिबन्ब्रुवन
-> नानुसन्धत्त एतानि गोविन्दपरिरम्भितः ॥३८॥
-
 > āsīnaḥ paryaṭann aśnan
 > śayānaḥ prapiban bruvan
 > nānusandhatta etāni
@@ -3288,9 +2721,6 @@ Prahlāda Mahārāja is the approved *mahā-bhāgavata,* the supreme devotee. In
 A small child, while being cared for by his mother, does not know how the needs of the body for eating, sleeping, lying down, passing water and evacuating are being fulfilled. He is simply satisfied to be on the lap of his mother. Similarly, Prahlāda Mahārāja was exactly like a small child, being cared for by Govinda. The necessary activities of his body were performed without his knowledge. As a father and mother care for their child, Govinda cared for Prahlāda Mahārāja, who remained always absorbed in thoughts of Govinda. This is Kṛṣṇa consciousness. Prahlāda Mahārāja is the vivid example of perfection in Kṛṣṇa consciousness.
 
 ### SB 7.4.39
-
-> क्वचिद्रुदति वैकुण्ठ चिन्ताशबलचेतनः
-> क्वचिद्धसति तच्चिन्ता ह्लाद उद्गायति क्वचित ॥३९॥
 
 > kvacid rudati vaikuṇṭha-
 > cintā-śabala-cetanaḥ
@@ -3305,9 +2735,6 @@ This verse further clarifies the comparison of a devotee to a child. If a mother
 
 ### SB 7.4.40
 
-> नदति क्वचिदुत्कण्ठो विलज्जो नृत्यति क्वचित
-> क्वचित्तद्भावनायुक्तस्तन्मयोऽनुचकार ह ॥४०॥
-
 > nadati kvacid utkaṇṭho
 > vilajjo nṛtyati kvacit
 > kvacit tad-bhāvanā-yuktas
@@ -3320,9 +2747,6 @@ This verse further clarifies the comparison of a devotee to a child. If a mother
 Prahlāda Mahārāja sometimes felt that the Lord was far away from him and therefore called Him loudly. When he saw that the Lord was before him, he was fully jubilant. Sometimes, thinking himself one with the Supreme, he imitated the Lord's pastimes, and in separation from the Lord he would sometimes show symptoms of madness. These feelings of a devotee would not be appreciated by impersonalists. One must go further and further into spiritual understanding. The first realization is impersonal Brahman, but one must go still further to realize Paramātmā and eventually the Supreme Personality of Godhead, who is worshiped by the transcendental feelings of a devotee in a relationship of *śānta, dāsya, sakhya, vātsalya* or *mādhurya.* Here the feelings of Prahlāda Mahārāja were in the mellow of *vātsalya,* filial love and affection. As a child cries when left by his mother, when Prahlāda Mahārāja felt that the Lord was away from him he began to cry (*nadati*). Again, a devotee like Prahlāda sometimes sees that the Lord is coming from a long distance to pacify him, like a mother responding to a child, saying, "My dear child, do not cry. I am coming." Then the devotee, without being ashamed due to his surroundings and circumstances, begins to dance, thinking, "Here is my Lord! My Lord is coming!" Thus the devotee, in full ecstasy, sometimes imitates the pastimes of the Lord, just as the cowherd boys used to imitate the behavior of the jungle animals. However, he does not actually become the Lord. Prahlāda Mahārāja achieved the spiritual ecstasies described herein by his advancement in spiritual understanding.
 
 ### SB 7.4.41
-
-> क्वचिदुत्पुलकस्तूष्णीमास्ते संस्पर्शनिर्वृतः
-> अस्पन्दप्रणयानन्द सलिलामीलितेक्षणः ॥४१॥
 
 > kvacid utpulakas tūṣṇīm
 > āste saṁsparśa-nirvṛtaḥ
@@ -3337,9 +2761,6 @@ When a devotee feels separation from the Lord, he becomes eager to see where the
 
 ### SB 7.4.42
 
-> स उत्तमश्लोकपदारविन्दयोर्निषेवयाकिञ्चनसङ्गलब्धया
-> तन्वन्परां निर्वृतिमात्मनो मुहुर्दुःसङ्गदीनस्य मनः शमं व्यधात ॥४२॥
-
 > sa uttama-śloka-padāravindayor
 > niṣevayākiñcana-saṅga-labdhayā
 > tanvan parāṁ nirvṛtim ātmano muhur
@@ -3353,9 +2774,6 @@ Apparently Prahlāda Mahārāja was placed in circumstances in which he was alwa
 
 ### SB 7.4.43
 
-> तस्मिन्महाभागवते महाभागे महात्मनि
-> हिरण्यकशिपू राजन्नकरोदघमात्मजे ॥४३॥
-
 > tasmin mahā-bhāgavate
 > mahā-bhāge mahātmani
 > hiraṇyakaśipū rājann
@@ -3368,10 +2786,6 @@ Apparently Prahlāda Mahārāja was placed in circumstances in which he was alwa
 When a demon like Hiraṇyakaśipu, despite his elevated position due to severe austerities, begins to tease a devotee, he begins falling down, and the results of his austerities dwindle. One who oppresses a pure devotee loses all the results of his austerities, penances and pious activities. Since Hiraṇyakaśipu was now inclined to chastise his most exalted devotee son, Prahlāda Mahārāja, his opulences began dwindling.
 
 ### SB 7.4.44
-
-> श्रीयुधिष्ठिर उवाच
-> देवर्ष एतदिच्छामो वेदितुं तव सुव्रत
-> यदात्मजाय शुद्धाय पितादात्साधवे ह्यघम ॥४४॥
 
 > śrī-yudhiṣṭhira uvāca
 > devarṣa etad icchāmo
@@ -3387,9 +2801,6 @@ To know about the Supreme Personality of Godhead and the characteristics of His 
 
 ### SB 7.4.45
 
-> पुत्रान्विप्रतिकूलान्स्वान्पितरः पुत्रवत्सलाः
-> उपालभन्ते शिक्षार्थं नैवाघमपरो यथा ॥४५॥
-
 > putrān vipratikūlān svān
 > pitaraḥ putra-vatsalāḥ
 > upālabhante śikṣārthaṁ
@@ -3400,10 +2811,6 @@ To know about the Supreme Personality of Godhead and the characteristics of His 
 **A father and mother are always affectionate to their children. When the children are disobedient the parents chastise them, not due to enmity but only for the child's instruction and welfare. How did Hiraṇyakaśipu, the father of Prahlāda Mahārāja, chastise such a noble son? This is what I am eager to know.**
 
 ### SB 7.4.46
-
-> किमुतानुवशान्साधूंस्तादृशान्गुरुदेवतान
-> एतत्कौतूहलं ब्रह्मन्नस्माकं विधम प्रभो
-> पितुः पुत्राय यद्द्वेषो मरणाय प्रयोजितः ॥४६॥
 
 > kim utānuvaśān sādhūṁs
 > tādṛśān guru-devatān
@@ -3424,10 +2831,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Fourth Chapter, of the
 
 ### SB 7.5.1
 
-> श्रीनारद उवाच
-> पौरोहित्याय भगवान्वृतः काव्यः किलासुरैः
-> षण्डामर्कौ सुतौ तस्य दैत्यराजगृहान्तिके ॥१॥
-
 > śrī-nārada uvāca
 > paurohityāya bhagavān
 > vṛtaḥ kāvyaḥ kilāsuraiḥ
@@ -3442,9 +2845,6 @@ The beginning of the life story of Prahlāda is recounted as follows. Śukrācā
 
 ### SB 7.5.2
 
-> तौ राज्ञआ प्रापितं बालं प्रह्लादं नयकोविदम
-> पाठयामासतुः पाठ्यानन्यांश्चासुरबालकान ॥२॥
-
 > tau rājñā prāpitaṁ bālaṁ
 > prahlādaṁ naya-kovidam
 > pāṭhayām āsatuḥ pāṭhyān
@@ -3455,9 +2855,6 @@ The beginning of the life story of Prahlāda is recounted as follows. Śukrācā
 **Prahlāda Mahārāja was already educated in devotional life, but when his father sent him to those two sons of Śukrācārya to be educated, they accepted him at their school along with the other sons of the asuras.**
 
 ### SB 7.5.3
-
-> यत्तत्र गुरुणा प्रोक्तं शुश्रुवेऽनुपपाठ च
-> न साधु मनसा मेने स्वपरासद्ग्रहाश्रयम ॥३॥
 
 > yat tatra guruṇā proktaṁ
 > śuśruve 'nupapāṭha ca
@@ -3471,9 +2868,6 @@ The beginning of the life story of Prahlāda is recounted as follows. Śukrācā
 Politics involves accepting one group of men as enemies and another group as friends. Everything in politics is based on this philosophy, and the entire world, especially at the present, is engrossed in it. The public is concerned with friendly countries and friendly groups or enemy countries and enemy groups, but as stated in *Bhagavad-gītā,* a learned person does not make distinctions between enemies and friends. Devotees, especially, do not create friends and enemies. A devotee sees that every living being is part and parcel of Kṛṣṇa (*mamaivāṁśo jīva-bhūtaḥ* [15.7]). Therefore a devotee treats friends and enemies equally by trying to educate them both in Kṛṣṇa consciousness. Of course, atheistic men do not follow the instructions of pure devotees, but instead consider a devotee their enemy. A devotee, however, never creates a situation of friendship and enmity. Although Prahlāda Mahārāja was obliged to hear the instructions of Ṣaṇḍa and Amarka, he did not like the philosophy of friends and enemies, which forms the basis of politics. He was not interested in this philosophy.
 
 ### SB 7.5.4
-
-> एकदासुरराट्पुत्रमङ्कमारोप्य पाण्डव
-> पप्रच्छ कथ्यतां वत्स मन्यते साधु यद्भवान ॥४॥
 
 > ekadāsura-rāṭ putram
 > aṅkam āropya pāṇḍava
@@ -3494,10 +2888,6 @@ Hiraṇyakaśipu did not ask his young son anything that would be very difficult
 Kṛṣṇa, who is situated in the core of everyone's heart as the Supersoul, dissipates all the ignorance from the heart of a devotee. As a special favor, He enlightens the devotee with all knowledge by putting before him the torch of light. Prahlāda Mahārāja, therefore, knew the best of knowledge, and when his father inquired from him, Prahlāda gave him that knowledge. Prahlāda Mahārāja was able to solve the most difficult parts of problems because of his advanced Kṛṣṇa consciousness. Therefore he replied as follows.
 
 ### SB 7.5.5
-
-> श्रीप्रह्लाद उवाच
-> तत्साधु मन्येऽसुरवर्य देहिनां सदा समुद्विग्नधियामसद्ग्रहात
-> हित्वात्मपातं गृहमन्धकूपं वनं गतो यद्धरिमाश्रयेत ॥५॥
 
 > śrī-prahlāda uvāca
 > tat sādhu manye 'sura-varya dehināṁ
@@ -3522,10 +2912,6 @@ In the *varṇāśrama* system, one first becomes a *brahmacārī,* then a *gṛ
 
 ### SB 7.5.6
 
-> श्रीनारद उवाच
-> श्रुत्वा पुत्रगिरो दैत्यः परपक्षसमाहिताः
-> जहास बुद्धिर्बालानां भिद्यते परबुद्धिभिः ॥६॥
-
 > śrī-nārada uvāca
 > śrutvā putra-giro daityaḥ
 > para-pakṣa-samāhitāḥ
@@ -3547,9 +2933,6 @@ Hiraṇyakaśipu, being a demon, would always consider Lord Viṣṇu and His de
 
 ### SB 7.5.7
 
-> सम्यग्विधार्यतां बालो गुरुगेहे द्विजातिभिः
-> विष्णुपक्षैः प्रतिच्छन्नैर्न भिद्येतास्य धीर्यथा ॥७॥
-
 > samyag vidhāryatāṁ bālo
 > guru-gehe dvi-jātibhiḥ
 > viṣṇu-pakṣaiḥ praticchannair
@@ -3562,9 +2945,6 @@ Hiraṇyakaśipu, being a demon, would always consider Lord Viṣṇu and His de
 In our Kṛṣṇa consciousness movement, the tactic of dressing oneself like an ordinary *karmī* is necessary because everyone in the demoniac kingdom is against the Vaiṣṇava teachings. Kṛṣṇa consciousness is not at all to the liking of the demons of the present age. As soon as they see a Vaiṣṇava dressed in saffron garments with beads on his neck and *tilaka* on his forehead, they are immediately irritated. They criticize the Vaiṣṇavas by sarcastically saying Hare Kṛṣṇa, and some people also chant Hare Kṛṣṇa sincerely. In either case, since Hare Kṛṣṇa is absolute, whether one chants it jokingly or sincerely, it will have its effect. The Vaiṣṇavas are pleased when the demons chant Hare Kṛṣṇa because this shows that the Hare Kṛṣṇa movement is taking ground. The greater demons, like Hiraṇyakaśipu, are always prepared to chastise the Vaiṣṇavas, and they try to make arrangements so that Vaiṣṇavas will not come to sell their books and preach Kṛṣṇa consciousness. Thus what was done by Hiraṇyakaśipu long, long ago is still being done. That is the way of materialistic life. Demons or materialists do not at all like the advancement of Kṛṣṇa consciousness, and they try to hinder it in many ways. Yet the preachers of Kṛṣṇa consciousness must go forward—in their Vaiṣṇava dress or any other dress—for the purpose of preaching. Cāṇakya Paṇḍita says that if an honest person deals with a great cheater, it is necessary for him to become a cheater also, not for the purpose of cheating but to make his preaching successful.
 
 ### SB 7.5.8
-
-> गृहमानीतमाहूय प्रह्रादं दैत्ययाजकाः
-> प्रशस्य श्लक्ष्णया वाचा समपृच्छन्त सामभिः ॥८॥
 
 > gṛham ānītam āhūya
 > prahrādaṁ daitya-yājakāḥ
@@ -3579,9 +2959,6 @@ In our Kṛṣṇa consciousness movement, the tactic of dressing oneself like a
 
 ### SB 7.5.9
 
-> वत्स प्रह्राद भद्रं ते सत्यं कथय मा मृषा
-> बालानति कुतस्तुभ्यमेष बुद्धिविपर्ययः ॥९॥
-
 > vatsa prahrāda bhadraṁ te
 > satyaṁ kathaya mā mṛṣā
 > bālān ati kutas tubhyam
@@ -3595,9 +2972,6 @@ Prahlāda Mahārāja was still a boy, and therefore his teachers thought that if
 
 ### SB 7.5.10
 
-> बुद्धिभेदः परकृत उताहो ते स्वतोऽभवत
-> भण्यतां श्रोतुकामानां गुरूणां कुलनन्दन ॥१०॥
-
 > buddhi-bhedaḥ para-kṛta
 > utāho te svato 'bhavat
 > bhaṇyatāṁ śrotu-kāmānāṁ
@@ -3610,10 +2984,6 @@ Prahlāda Mahārāja was still a boy, and therefore his teachers thought that if
 Prahlāda Mahārāja's teachers were astonished that a small boy could speak such exalted Vaiṣṇava philosophy. Therefore they inquired about the Vaiṣṇavas who stealthily taught it to him, in order that these Vaiṣṇavas might be arrested and killed in the presence of Prahlāda's father, Hiraṇyakaśipu.
 
 ### SB 7.5.11
-
-> श्रीप्रह्राद उवाच
-> परः स्वश्चेत्यसद्ग्राहः पुंसां यन्मायया कृतः
-> विमोहितधियां दृष्टस्तस्मै भगवते नमः ॥११॥
 
 > śrī-prahrāda uvāca
 > paraḥ svaś cety asad-grāhaḥ
@@ -3652,9 +3022,6 @@ As long as one adheres to the philosophy of duality, thinking one person a frien
 
 ### SB 7.5.12
 
-> स यदानुव्रतः पुंसां पशुबुद्धिर्विभिद्यते
-> अन्य एष तथान्योऽहमिति भेदगतासती ॥१२॥
-
 > sa yadānuvrataḥ puṁsāṁ
 > paśu-buddhir vibhidyate
 > anya eṣa tathānyo 'ham
@@ -3681,9 +3048,6 @@ Everyone should be friendly for the service of the Lord. Everyone should praise 
 
 ### SB 7.5.13
 
-> स एष आत्मा स्वपरेत्यबुद्धिभिर्दुरत्ययानुक्रमणो निरूप्यते
-> मुह्यन्ति यद्वर्त्मनि वेदवादिनो ब्रह्मादयो ह्येष भिनत्ति मे मतिम ॥१३॥
-
 > sa eṣa ātmā sva-parety abuddhibhir
 > duratyayānukramaṇo nirūpyate
 > muhyanti yad-vartmani veda-vādino
@@ -3696,9 +3060,6 @@ Everyone should be friendly for the service of the Lord. Everyone should praise 
 Prahlāda Mahārāja admitted frankly, "My dear teachers, you wrongly think that Lord Viṣṇu is your enemy, but because He is favorable toward me, I understand that He is the friend of everyone. You may think that I have taken the side of your enemy, but factually He has bestowed a great favor upon me."
 
 ### SB 7.5.14
-
-> यथा भ्राम्यत्ययो ब्रह्मन्स्वयमाकर्षसन्निधौ
-> तथा मे भिद्यते चेतश्चक्रपाणेर्यदृच्छया ॥१४॥
 
 > yathā bhrāmyaty ayo brahman
 > svayam ākarṣa-sannidhau
@@ -3724,10 +3085,6 @@ As soon as one is purified of material contamination, he is again attracted by K
 
 ### SB 7.5.15
 
-> श्रीनारद उवाच
-> एतावद्ब्राह्मणायोक्त्वा विरराम महामतिः
-> तं सन्निभर्त्स्य कुपितः सुदीनो राजसेवकः ॥१५॥
-
 > śrī-nārada uvāca
 > etāvad brāhmaṇāyoktvā
 > virarāma mahā-matiḥ
@@ -3741,9 +3098,6 @@ As soon as one is purified of material contamination, he is again attracted by K
 The word *śukra* means "semen." The sons of Śukrācārya were *brāhmaṇas* by birthright, but an actual *brāhmaṇa* is one who possesses the brahminical qualities. The *brāhmaṇas* Ṣaṇḍa and Amarka, being seminal sons of Śukrācārya, did not actually possess real brahminical qualifications, for they engaged as servants of Hiraṇyakaśipu. An actual *brāhmaṇa* is very much satisfied to see anyone, not to speak of his disciple, become a devotee of Lord Kṛṣṇa. Such *brāhmaṇas* are meant to satisfy the supreme master. A *brāhmaṇa* is strictly prohibited from becoming a servant of anyone else, for that is the business of dogs and *śūdras.* A dog must satisfy his master, but a *brāhmaṇa* does not have to satisfy anyone; he is simply meant to satisfy Kṛṣṇa (*ānukūlyena kṛṣṇānuśīlanam* [[cc/madhya/19/167|[Cc. Madhya 19.167] ]]). That is the real qualification of a *brāhmaṇa.* Because Ṣaṇḍa and Amarka were seminal *brāhmaṇas* and had become servants of such a master as Hiraṇyakaśipu, they unnecessarily wanted to chastise Prahlāda Mahārāja.
 
 ### SB 7.5.16
-
-> आनीयतामरे वेत्रमस्माकमयशस्करः
-> कुलाङ्गारस्य दुर्बुद्धेश्चतुर्थोऽस्योदितो दमः ॥१६॥
 
 > ānīyatām are vetram
 > asmākam ayaśaskaraḥ
@@ -3760,9 +3114,6 @@ The members of our Kṛṣṇa consciousness movement are in a position similar 
 
 ### SB 7.5.17
 
-> दैतेयचन्दनवने जातोऽयं कण्टकद्रुमः
-> यन्मूलोन्मूलपरशोर्विष्णोर्नालायितोऽर्भकः ॥१७॥
-
 > daiteya-candana-vane
 > jāto 'yaṁ kaṇṭaka-drumaḥ
 > yan-mūlonmūla-paraśor
@@ -3775,9 +3126,6 @@ The members of our Kṛṣṇa consciousness movement are in a position similar 
 Thorn trees generally grow in deserted places, not in sandalwood forests, but the seminal *brāhmaṇas* Ṣaṇḍa and Amarka compared the dynasty of the Daitya Hiraṇyakaśipu to a sandalwood forest and compared Prahlāda Mahārāja to a hard, strong thorn tree that could provide the handle of an axe. They compared Lord Viṣṇu to the axe itself. An axe alone cannot cut a thorn tree; it needs a handle, which may be made of the wood of a thorn tree. Thus the thorn tree of demoniac civilization can be cut to pieces by the axe of *viṣṇu-bhakti,* devotional service to Lord Kṛṣṇa. Some of the members of the demoniac civilization, like Prahlāda Mahārāja, may become the handle for the axe, to assist Lord Viṣṇu, and thus the entire forest of demoniac civilization can be cut to pieces.
 
 ### SB 7.5.18
-
-> इति तं विविधोपायैर्भीषयंस्तर्जनादिभिः
-> प्रह्रादं ग्राहयामास त्रिवर्गस्योपपादनम ॥१८॥
 
 > iti taṁ vividhopāyair
 > bhīṣayaṁs tarjanādibhiḥ
@@ -3792,9 +3140,6 @@ In this verse the words *prahrādaṁ grāhayām āsa* are important. The words 
 
 ### SB 7.5.19
 
-> तत एनं गुरुरज्ञआत्वा ज्ञआतज्ञएयचतुष्टयम
-> दैत्येन्द्रं दर्शयामास मातृमृष्टमलङ्कृतम ॥१९॥
-
 > tata enaṁ gurur jñātvā
 > jñāta-jñeya-catuṣṭayam
 > daityendraṁ darśayām āsa
@@ -3808,9 +3153,6 @@ It is essential for a student who is going to be a ruler or king to learn the fo
 
 ### SB 7.5.20
 
-> पादयोः पतितं बालं प्रतिनन्द्याशिषासुरः
-> परिष्वज्य चिरं दोर्भ्यां परमामाप निर्वृतिम ॥२०॥
-
 > pādayoḥ patitaṁ bālaṁ
 > pratinandyāśiṣāsuraḥ
 > pariṣvajya ciraṁ dorbhyāṁ
@@ -3821,9 +3163,6 @@ It is essential for a student who is going to be a ruler or king to learn the fo
 **When Hiraṇyakaśipu saw that his child had fallen at his feet and was offering obeisances, as an affectionate father he immediately began showering blessings upon the child and embraced him with both arms. A father naturally feels happy to embrace his son, and Hiraṇyakaśipu became very happy in this way.**
 
 ### SB 7.5.21
-
-> आरोप्याङ्कमवघ्राय मूर्धन्यश्रुकलाम्बुभिः
-> आसिञ्चन्विकसद्वक्त्रमिदमाह युधिष्ठिर ॥२१॥
 
 > āropyāṅkam avaghrāya
 > mūrdhany aśru-kalāmbubhiḥ
@@ -3838,10 +3177,6 @@ If a child or disciple falls at the feet of the father or spiritual master, the 
 
 ### SB 7.5.22
 
-> हिरण्यकशिपुरुवाच
-> प्रह्रादानूच्यतां तात स्वधीतं किञ्चिदुत्तमम
-> कालेनैतावतायुष्मन्यदशिक्षद्गुरोर्भवान ॥२२॥
-
 > hiraṇyakaśipur uvāca
 > prahrādānūcyatāṁ tāta
 > svadhītaṁ kiñcid uttamam
@@ -3855,12 +3190,6 @@ If a child or disciple falls at the feet of the father or spiritual master, the 
 In this verse, Hiraṇyakaśipu inquires from his son what he has learned from his *guru.* Prahlāda Mahārāja's *gurus* were of two kinds—Ṣaṇḍa and Amarka, the sons of Śukrācārya in the seminal disciplic succession, were the *gurus* appointed by his father, but his other *guru* was the exalted Nārada Muni, who had instructed Prahlāda when Prahlāda was within the womb of his mother. Prahlāda Mahārāja responded to the inquiry of his father with the instructions he had received from his spiritual master, Nārada. Thus there was again a difference of opinion because Prahlāda Mahārāja wanted to relate the best thing he had learned from his spiritual master, whereas Hiraṇyakaśipu expected to hear about the politics and diplomacy Prahlāda had learned from Ṣaṇḍa and Amarka. Now the dissension between the father and son became increasingly intense as Prahlāda Mahārāja began to say what he had learned from his *guru* Nārada Muni.
 
 ### SB 7.5.23-24
-
-> श्रीप्रह्राद उवाच
-> श्रवणं कीर्तनं विष्णोः स्मरणं पादसेवनम
-> अर्चनं वन्दनं दास्यं सख्यमात्मनिवेदनम ॥२३॥
-> इति पुंसार्पिता विष्णौ भक्तिश्चेन्नवलक्षणा
-> क्रियेत भगवत्यद्धा तन्मन्येऽधीतमुत्तमम ॥२४॥
 
 > śrī-prahrāda uvāca
 > śravaṇaṁ kīrtanaṁ viṣṇoḥ
@@ -3986,9 +3315,6 @@ In the city of Pratiṣṭhāna-pura, long ago, there resided a *brāhmaṇa* wh
 
 ### SB 7.5.25
 
-> निशम्यैतत्सुतवचो हिरण्यकशिपुस्तदा
-> गुरुपुत्रमुवाचेदं रुषा प्रस्फुरिताधरः ॥२५॥
-
 > niśamyaitat suta-vaco
 > hiraṇyakaśipus tadā
 > guru-putram uvācedaṁ
@@ -3999,9 +3325,6 @@ In the city of Pratiṣṭhāna-pura, long ago, there resided a *brāhmaṇa* wh
 **After hearing these words of devotional service from the mouth of his son Prahlāda, Hiraṇyakaśipu was extremely angry. His lips trembling, he spoke as follows to Ṣaṇḍa the son of his guru, Śukrācārya.**
 
 ### SB 7.5.26
-
-> ब्रह्मबन्धो किमेतत्ते विपक्षं श्रयतासता
-> असारं ग्राहितो बालो मामनादृत्य दुर्मते ॥२६॥
 
 > brahma-bandho kim etat te
 > vipakṣaṁ śrayatāsatā
@@ -4015,9 +3338,6 @@ In the city of Pratiṣṭhāna-pura, long ago, there resided a *brāhmaṇa* wh
 In this verse the word *asāram,* meaning, "having no substance," is significant. For a demon there is no substance in the process of devotional service, but to a devotee devotional service is the only essential factor in life. Since Hiraṇyakaśipu did not like devotional service, the essence of life, he chastised Prahlāda Mahārāja's teachers with harsh words.
 
 ### SB 7.5.27
-
-> सन्ति ह्यसाधवो लोके दुर्मैत्राश्छद्मवेषिणः
-> तेषामुदेत्यघं काले रोगः पातकिनामिव ॥२७॥
 
 > santi hy asādhavo loke
 > durmaitrāś chadma-veṣiṇaḥ
@@ -4039,10 +3359,6 @@ Murderers of *brāhmaṇas* are later afflicted by tuberculosis, drunkards becom
 
 ### SB 7.5.28
 
-> श्रीगुरुपुत्र उवाच
-> न मत्प्रणीतं न परप्रणीतं सुतो वदत्येष तवेन्द्रशत्रो
-> नैसर्गिकीयं मतिरस्य राजन्नियच्छ मन्युं कददाः स्म मा नः ॥२८॥
-
 > śrī-guru-putra uvāca
 > na mat-praṇītaṁ na para-praṇītaṁ
 > suto vadaty eṣa tavendra-śatro
@@ -4054,10 +3370,6 @@ Murderers of *brāhmaṇas* are later afflicted by tuberculosis, drunkards becom
 **The son of Śukrācārya, Hiraṇyakaśipu's spiritual master, said: O enemy of King Indra, O King! Whatever your son Prahlāda has said was not taught to him by me or anyone else. His spontaneous devotional service has naturally developed in him. Therefore, please give up your anger and do not unnecessarily accuse us. It is not good to insult a brāhmaṇa in this way.**
 
 ### SB 7.5.29
-
-> श्रीनारद उवाच
-> गुरुणैवं प्रतिप्रोक्तो भूय आहासुरः सुतम
-> न चेद्गुरुमुखीयं ते कुतोऽभद्रासती मतिः ॥२९॥
 
 > śrī-nārada uvāca
 > guruṇaivaṁ pratiprokto
@@ -4072,10 +3384,6 @@ Murderers of *brāhmaṇas* are later afflicted by tuberculosis, drunkards becom
 Śrīla Viśvanātha Cakravartī Ṭhākura explains that devotional service is actually *bhadrā satī,* not *abhadra asatī.* In other words, knowledge of devotional service can be neither inauspicious nor contrary to etiquette. To learn devotional service is the duty of everyone. Therefore the spontaneous education of Prahlāda Mahārāja is supported as auspicious and perfect.
 
 ### SB 7.5.30
-
-> श्रीप्रह्राद उवाच
-> मतिर्न कृष्णे परतः स्वतो वा मिथोऽभिपद्येत गृहव्रतानाम
-> अदान्तगोभिर्विशतां तमिस्रं पुनः पुनश्चर्वितचर्वणानाम ॥३०॥
 
 > śrī-prahrāda uvāca
 > matir na kṛṣṇe parataḥ svato vā
@@ -4107,9 +3415,6 @@ As confirmed by Ṛṣabhadeva, *mahat-sevāṁ dvāram āhur vimukteḥ:* [[sb/
 
 ### SB 7.5.31
 
-> न ते विदुः स्वार्थगतिं हि विष्णुं दुराशया ये बहिरर्थमानिनः
-> अन्धा यथान्धैरुपनीयमानास्तेऽपीशतन्त्र्यामुरुदाम्नि बद्धाः ॥३१॥
-
 > na te viduḥ svārtha-gatiṁ hi viṣṇuṁ
 > durāśayā ye bahir-artha-māninaḥ
 > andhā yathāndhair upanīyamānās
@@ -4122,9 +3427,6 @@ As confirmed by Ṛṣabhadeva, *mahat-sevāṁ dvāram āhur vimukteḥ:* [[sb/
 Since there must always be a difference of opinion between demons and devotees, Hiraṇyakaśipu, when criticized by his son Prahlāda Mahārāja, should not have been surprised that Prahlāda Mahārāja differed from his way of life. Nonetheless, Hiraṇyakaśipu was extremely angry and wanted to rebuke his son for deriding his teacher or spiritual master, who had been born in the *brāhmaṇa* family of the great *ācārya* Śukrācārya. The word *śukra* means "semen," and *ācārya* refers to a teacher or *guru.* Hereditary *gurus,* or spiritual masters, have been accepted everywhere since time immemorial, but Prahlāda Mahārāja declined to accept such a seminal *guru* or take instruction from him. An actual *guru* is *śrotriya,* one who has heard or received perfect knowledge through *paramparā,* the disciplic succession. Therefore Prahlāda Mahārāja did not recognize a seminal spiritual master. Such spiritual masters are not at all interested in Viṣṇu. Indeed, they are hopeful of material success (*bahir-artha-māninaḥ*). The word *bahiḥ* means "external," *artha* means "interest," and *mānina* means "taking very seriously." Generally speaking, practically everyone is unaware of the spiritual world. The knowledge of the materialists is restricted within the four-billion-mile limit of this material world, which is in the dark portion of the creation; they do not know that beyond the material world is the spiritual world. Unless one is a devotee of the Lord, one cannot understand the existence of the spiritual world. *Gurus,* teachers, who are simply interested in this material world are described in this verse as *andha,* blind. Such blind men may lead many other blind followers without true knowledge of material conditions, but they are not accepted by devotees like Prahlāda Mahārāja. Such blind teachers, being interested in the external, material world, are always bound by the strong ropes of material nature.
 
 ### SB 7.5.32
-
-> नैषां मतिस्तावदुरुक्रमाङ्घ्रिं स्पृशत्यनर्थापगमो यदर्थः
-> महीयसां पादरजोऽभिषेकं निष्किञ्चनानां न वृणीत यावत ॥३२॥
 
 > naiṣāṁ matis tāvad urukramāṅghriṁ
 > spṛśaty anarthāpagamo yad-arthaḥ
@@ -4167,9 +3469,6 @@ These are Vedic injunctions. One must take shelter of a self-realized spiritual 
 
 ### SB 7.5.33
 
-> इत्युक्त्वोपरतं पुत्रं हिरण्यकशिपू रुषा
-> अन्धीकृतात्मा स्वोत्सङ्गान्निरस्यत महीतले ॥३३॥
-
 > ity uktvoparataṁ putraṁ
 > hiraṇyakaśipū ruṣā
 > andhīkṛtātmā svotsaṅgān
@@ -4181,9 +3480,6 @@ These are Vedic injunctions. One must take shelter of a self-realized spiritual 
 
 ### SB 7.5.34
 
-> आहामर्षरुषाविष्टः कषायीभूतलोचनः
-> वध्यतामाश्वयं वध्यो निःसारयत नैरृताः ॥३४॥
-
 > āhāmarṣa-ruṣāviṣṭaḥ
 > kaṣāyī-bhūta-locanaḥ
 > vadhyatām āśv ayaṁ vadhyo
@@ -4194,9 +3490,6 @@ These are Vedic injunctions. One must take shelter of a self-realized spiritual 
 **Indignant and angry, his reddish eyes like molten copper, Hiraṇyakaśipu said to his servants: O demons, take this boy away from me! He deserves to be killed. Kill him as soon as possible!**
 
 ### SB 7.5.35
-
-> अयं मे भ्रातृहा सोऽयं हित्वा स्वान्सुहृदोऽधमः
-> पितृव्यहन्तुः पादौ यो विष्णोर्दासवदर्चति ॥३५॥
 
 > ayaṁ me bhrātṛ-hā so 'yaṁ
 > hitvā svān suhṛdo 'dhamaḥ
@@ -4211,9 +3504,6 @@ Hiraṇyakaśipu considered his son Prahlāda Mahārāja to be the killer of his
 
 ### SB 7.5.36
 
-> विष्णोर्वा साध्वसौ किं नु करिष्यत्यसमञ्जसः
-> सौहृदं दुस्त्यजं पित्रोरहाद्यः पञ्चहायनः ॥३६॥
-
 > viṣṇor vā sādhv asau kiṁ nu
 > kariṣyaty asamañjasaḥ
 > sauhṛdaṁ dustyajaṁ pitror
@@ -4224,9 +3514,6 @@ Hiraṇyakaśipu considered his son Prahlāda Mahārāja to be the killer of his
 **Although Prahlāda is only five years old, even at this young age he has given up his affectionate relationship with his father and mother. Therefore, he is certainly untrustworthy. Indeed, it is not at all believable that he will behave well toward Viṣṇu.**
 
 ### SB 7.5.37
-
-> परोऽप्यपत्यं हितकृद्यथौषधं स्वदेहजोऽप्यामयवत्सुतोऽहितः
-> छिन्द्यात्तदङ्गं यदुतात्मनोऽहितं शेषं सुखं जीवति यद्विवर्जनात ॥३७॥
 
 > paro 'py apatyaṁ hita-kṛd yathauṣadhaṁ
 > sva-dehajo 'py āmayavat suto 'hitaḥ
@@ -4241,9 +3528,6 @@ Hiraṇyakaśipu considered his son Prahlāda Mahārāja to be the killer of his
 
 ### SB 7.5.38
 
-> सर्वैरुपायैर्हन्तव्यः सम्भोजशयनासनैः
-> सुहृल्लिङ्गधरः शत्रुर्मुनेर्दुष्टमिवेन्द्रियम ॥३८॥
-
 > sarvair upāyair hantavyaḥ
 > sambhoja-śayanāsanaiḥ
 > suhṛl-liṅga-dharaḥ śatrur
@@ -4256,11 +3540,6 @@ Hiraṇyakaśipu considered his son Prahlāda Mahārāja to be the killer of his
 Hiraṇyakaśipu planned a campaign to kill Prahlāda Mahārāja. He would kill his son by administering poison to him while he was eating, by making him sit in boiling oil, or by throwing him under the feet of an elephant while he was lying down. Thus Hiraṇyakaśipu decided to kill his innocent child, who was only five years old, simply because the boy had become a devotee of the Lord. This is the attitude of nondevotees toward devotees.
 
 ### SB 7.5.39-40
-
-> नैरृतास्ते समादिष्टा भर्त्रा वै शूलपाणयः
-> तिग्मदंष्ट्रकरालास्यास्ताम्रश्मश्रुशिरोरुहाः ॥३९॥
-> नदन्तो भैरवं नादं छिन्धि भिन्धीति वादिनः
-> आसीनं चाहनन्शूलैः प्रह्रादं सर्वमर्मसु ॥४०॥
 
 > nairṛtās te samādiṣṭā
 > bhartrā vai śūla-pāṇayaḥ
@@ -4278,9 +3557,6 @@ Hiraṇyakaśipu planned a campaign to kill Prahlāda Mahārāja. He would kill 
 
 ### SB 7.5.41
 
-> परे ब्रह्मण्यनिर्देश्ये भगवत्यखिलात्मनि
-> युक्तात्मन्यफला आसन्नपुण्यस्येव सत्क्रियाः ॥४१॥
-
 > pare brahmaṇy anirdeśye
 > bhagavaty akhilātmani
 > yuktātmany aphalā āsann
@@ -4294,9 +3570,6 @@ Prahlāda Mahārāja was constantly and fully engaged in thought of the Supreme 
 
 ### SB 7.5.42
 
-> प्रयासेऽपहते तस्मिन्दैत्येन्द्रः परिशङ्कितः
-> चकार तद्वधोपायान्निर्बन्धेन युधिष्ठिर ॥४२॥
-
 > prayāse 'pahate tasmin
 > daityendraḥ pariśaṅkitaḥ
 > cakāra tad-vadhopāyān
@@ -4307,12 +3580,6 @@ Prahlāda Mahārāja was constantly and fully engaged in thought of the Supreme 
 **My dear King Yudhiṣṭhira, when all the attempts of the demons to kill Prahlāda Mahārāja were futile, the King of the demons, Hiraṇyakaśipu, being most fearful, began contriving other means to kill him.**
 
 ### SB 7.5.43-44
-
-> दिग्गजैर्दन्दशूकेन्द्रैरभिचारावपातनैः
-> मायाभिः सन्निरोधैश्च गरदानैरभोजनैः ॥४३॥
-> हिमवाय्वग्निसलिलैः पर्वताक्रमणैरपि
-> न शशाक यदा हन्तुमपापमसुरः सुतम
-> चिन्तां दीर्घतमां प्राप्तस्तत्कर्तुं नाभ्यपद्यत ॥४४॥
 
 > dig-gajair dandaśūkendrair
 > abhicārāvapātanaiḥ
@@ -4332,9 +3599,6 @@ Prahlāda Mahārāja was constantly and fully engaged in thought of the Supreme 
 
 ### SB 7.5.45
 
-> एष मे बह्वसाधूक्तो वधोपायाश्च निर्मिताः
-> तैस्तैर्द्रोहैरसद्धर्मैर्मुक्तः स्वेनैव तेजसा ॥४५॥
-
 > eṣa me bahv-asādhūkto
 > vadhopāyāś ca nirmitāḥ
 > tais tair drohair asad-dharmair
@@ -4345,9 +3609,6 @@ Prahlāda Mahārāja was constantly and fully engaged in thought of the Supreme 
 **Hiraṇyakaśipu thought: I have used many ill names in chastising this boy Prahlāda and have devised many means of killing him, but despite all my endeavors, he could not be killed. Indeed, he saved himself by his own powers, without being affected in the least by these treacherous and abominable actions.**
 
 ### SB 7.5.46
-
-> वर्तमानोऽविदूरे वै बालोऽप्यजडधीरयम
-> न विस्मरति मेऽनार्यं शुनः शेप इव प्रभुः ॥४६॥
 
 > vartamāno 'vidūre vai
 > bālo 'py ajaḍa-dhīr ayam
@@ -4362,9 +3623,6 @@ The word *śunaḥ* means "of a dog," and *śepa* means "tail." The example is o
 
 ### SB 7.5.47
 
-> अप्रमेयानुभावोऽयमकुतश्चिद्भयोऽमरः
-> नूनमेतद्विरोधेन मृत्युर्मे भविता न वा ॥४७॥
-
 > aprameyānubhāvo 'yam
 > akutaścid-bhayo 'maraḥ
 > nūnam etad-virodhena
@@ -4375,9 +3633,6 @@ The word *śunaḥ* means "of a dog," and *śepa* means "tail." The example is o
 **I can see that this boy's strength is unlimited, for he has not feared any of my punishments. He appears immortal. Therefore, because of my enmity toward him, I shall die. Or maybe this will not take place.**
 
 ### SB 7.5.48
-
-> इति तच्चिन्तया किञ्चिन्म्लानश्रियमधोमुखम
-> शण्डामर्कावौशनसौ विविक्त इति होचतुः ॥४८॥
 
 > iti tac-cintayā kiñcin
 > mlāna-śriyam adho-mukham
@@ -4390,9 +3645,6 @@ The word *śunaḥ* means "of a dog," and *śepa* means "tail." The example is o
 
 ### SB 7.5.49
 
-> जितं त्वयैकेन जगत्त्रयं भ्रुवोर्विजृम्भणत्रस्तसमस्तधिष्ण्यपम
-> न तस्य चिन्त्यं तव नाथ चक्ष्वहे न वै शिशूनां गुणदोषयोः पदम ॥४९॥
-
 > jitaṁ tvayaikena jagat-trayaṁ bhruvor
 > vijṛmbhaṇa-trasta-samasta-dhiṣṇyapam
 > na tasya cintyaṁ tava nātha cakṣvahe
@@ -4404,9 +3656,6 @@ The word *śunaḥ* means "of a dog," and *śepa* means "tail." The example is o
 
 ### SB 7.5.50
 
-> इमं तु पाशैर्वरुणस्य बद्ध्वा निधेहि भीतो न पलायते यथा
-> बुद्धिश्च पुंसो वयसार्यसेवया यावद्गुरुर्भार्गव आगमिष्यति ॥५०॥
-
 > imaṁ tu pāśair varuṇasya baddhvā
 > nidhehi bhīto na palāyate yathā
 > buddhiś ca puṁso vayasārya-sevayā
@@ -4417,9 +3666,6 @@ The word *śunaḥ* means "of a dog," and *śepa* means "tail." The example is o
 **Until the return of our spiritual master, Śukrācārya, arrest this child with the ropes of Varuṇa so that he will not flee in fear. In any case, by the time he is somewhat grown up and has assimilated our instructions or served our spiritual master, he will change in his intelligence. Thus there need be no cause for anxiety.**
 
 ### SB 7.5.51
-
-> तथेति गुरुपुत्रोक्तमनुज्ञआयेदमब्रवीत
-> धर्मो ह्यस्योपदेष्टव्यो राज्ञआं यो गृहमेधिनाम ॥५१॥
 
 > tatheti guru-putroktam
 > anujñāyedam abravīt
@@ -4436,9 +3682,6 @@ A devotee purified by devotional service is always in the transcendental positio
 
 ### SB 7.5.52
 
-> धर्ममर्थं च कामं च नितरां चानुपूर्वशः
-> प्रह्रादायोचतू राजन्प्रश्रितावनताय च ॥५२॥
-
 > dharmam arthaṁ ca kāmaṁ ca
 > nitarāṁ cānupūrvaśaḥ
 > prahrādāyocatū rājan
@@ -4451,9 +3694,6 @@ A devotee purified by devotional service is always in the transcendental positio
 There are four processes for human society—*dharma, artha, kāma* and *mokṣa*—and they culminate in liberation. Human society must follow a process of religion to advance, and on the basis of religion one should try to develop his economic condition so that he can fulfill his needs for sense gratification according to the religious rules and regulations. Then liberation from material bondage will be easier to attain. That is the Vedic process. When one is above the stages of *dharma, artha, kāma* and *mokṣa,* one becomes a devotee. He is then on the platform from which he is guaranteed not to fall again to material existence (*yad gatvā na nivartante [[bg/15/6|[Bg. 15.6] ]]*). As advised in *Bhagavad-gītā* if one transcends these four processes and is actually liberated, one engages in devotional service. Then he is guaranteed not to fall to material existence again.
 
 ### SB 7.5.53
-
-> यथा त्रिवर्गं गुरुभिरात्मने उपशिक्षितम
-> न साधु मेने तच्छिक्षां द्वन्द्वारामोपवर्णिताम ॥५३॥
 
 > yathā tri-vargaṁ gurubhir
 > ātmane upaśikṣitam
@@ -4475,9 +3715,6 @@ One must follow in the footsteps of such great personalities as Lord Brahmā, N�
 
 ### SB 7.5.54
 
-> यदाचार्यः परावृत्तो गृहमेधीयकर्मसु
-> वयस्यैर्बालकैस्तत्र सोपहूतः कृतक्षणैः ॥५४॥
-
 > yadācāryaḥ parāvṛtto
 > gṛhamedhīya-karmasu
 > vayasyair bālakais tatra
@@ -4491,9 +3728,6 @@ In tiffin hours, the hours when the teachers were absent from the classroom, the
 
 ### SB 7.5.55
 
-> अथ तान्श्लक्ष्णया वाचा प्रत्याहूय महाबुधः
-> उवाच विद्वांस्तन्निष्ठां कृपया प्रहसन्निव ॥५५॥
-
 > atha tāñ ślakṣṇayā vācā
 > pratyāhūya mahā-budhaḥ
 > uvāca vidvāṁs tan-niṣṭhāṁ
@@ -4506,11 +3740,6 @@ In tiffin hours, the hours when the teachers were absent from the classroom, the
 Prahlāda Mahārāja's smiling is very significant. The other students were very much advanced in enjoying materialistic life through religion, economic development and sense gratification, but Prahlāda Mahārāja laughed at them, knowing that this was not actual happiness, for real happiness is advancement in Kṛṣṇa consciousness. The duty of those who follow in the footsteps of Prahlāda Mahārāja is to teach the entire world how to be Kṛṣṇa conscious and thus be really happy. Materialistic persons take to so-called religion to get some blessings so that they can improve their economic position and enjoy the material world through sense gratification. But devotees like Prahlāda Mahārāja laugh at how foolish they are to be busy in a temporary life without knowledge of the soul's transmigration from one body to another. Materialistic persons are engaged in striving for temporary benefits, whereas persons advanced in spiritual knowledge, such as Prahlāda Mahārāja, are not interested in the materialistic way of life. Instead, they want to be elevated to an eternal life of knowledge and bliss. Therefore, as Kṛṣṇa is always compassionate to the fallen souls, His servants, the devotees of Lord Kṛṣṇa, are also interested in educating the entire populace in Kṛṣṇa consciousness. The mistake of materialistic life is understood by devotees, and therefore they smile upon it, considering it insignificant. Out of compassion, however, such devotees preach the gospel of *Bhagavad-gītā* all over the world.
 
 ### SB 7.5.56-57
-
-> ते तु तद्गौरवात्सर्वे त्यक्तक्रीडापरिच्छदाः
-> बाला अदूषितधियो द्वन्द्वारामेरितेहितैः ॥५६॥
-> पर्युपासत राजेन्द्र तन्न्यस्तहृदयेक्षणाः
-> तानाह करुणो मैत्रो महाभागवतोऽसुरः ॥५७॥
 
 > te tu tad-gauravāt sarve
 > tyakta-krīḍā-paricchadāḥ
@@ -4534,10 +3763,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Fifth Chapter, of the 
 
 ### SB 7.6.1
 
-> श्रीप्रह्राद उवाच
-> कौमार आचरेत्प्राज्ञओ धर्मान्भागवतानिह
-> दुर्लभं मानुषं जन्म तदप्यध्रुवमर्थदम ॥१॥
-
 > śrī-prahrāda uvāca
 > kaumāra ācaret prājño
 > dharmān bhāgavatān iha
@@ -4560,9 +3785,6 @@ One need only chant the Hare Kṛṣṇa *mahā-mantra.* Everyone engaged in the
 
 ### SB 7.6.2
 
-> यथा हि पुरुषस्येह विष्णोः पादोपसर्पणम
-> यदेष सर्वभूतानां प्रिय आत्मेश्वरः सुहृत ॥२॥
-
 > yathā hi puruṣasyeha
 > viṣṇoḥ pādopasarpaṇam
 > yad eṣa sarva-bhūtānāṁ
@@ -4583,9 +3805,6 @@ The Lord says in *Bhagavad-gītā* [[bg/5/29|(Bg. 5.29)]]:
 
 ### SB 7.6.3
 
-> सुखमैन्द्रियकं दैत्या देहयोगेन देहिनाम
-> सर्वत्र लभ्यते दैवाद्यथा दुःखमयत्नतः ॥३॥
-
 > sukham aindriyakaṁ daityā
 > deha-yogena dehinām
 > sarvatra labhyate daivād
@@ -4599,9 +3818,6 @@ In the material world, in any form of life, there is some so-called happiness an
 
 ### SB 7.6.4
 
-> तत्प्रयासो न कर्तव्यो यत आयुर्व्ययः परम
-> न तथा विन्दते क्षेमं मुकुन्दचरणाम्बुजम ॥४॥
-
 > tat-prayāso na kartavyo
 > yata āyur-vyayaḥ param
 > na tathā vindate kṣemaṁ
@@ -4614,9 +3830,6 @@ In the material world, in any form of life, there is some so-called happiness an
 We see materialistic persons busily engaged in economic development all day and all night, trying to increase their material opulence, but even if we suppose that they get some benefit from such endeavors, that does not solve the real problem of their lives. Nor do they know what the real problem of life is. This is due to a lack of spiritual education. Especially in the present age, every man is in darkness, in the bodily conception of life, not knowing anything of the spirit soul and its needs. Misguided by the blind leaders of society, people consider the body to be everything, and they are engaged in trying to keep the body materially comfortable. Such a civilization is condemned because it does not lead humanity toward knowing the real goal of life. People are simply wasting time and the valuable gift of the human form because a human being who does not cultivate spiritual life but dies like the cats and dogs is degraded in his next life. From human life, such a person is put into the cycle of continuous birth and death. Thus one loses the true benefit of human life, which is to become Kṛṣṇa conscious and solve life's problems.
 
 ### SB 7.6.5
-
-> ततो यतेत कुशलः क्षेमाय भवमाश्रितः
-> शरीरं पौरुषं यावन्न विपद्येत पुष्कलम ॥५॥
 
 > tato yateta kuśalaḥ
 > kṣemāya bhavam āśritaḥ
@@ -4635,9 +3848,6 @@ Human society should be divided into a social system of *brāhmaṇas, kṣatriy
 
 ### SB 7.6.6
 
-> पुंसो वर्षशतं ह्यायुस्तदर्धं चाजितात्मनः
-> निष्फलं यदसौ रात्र्यां शेतेऽन्धं प्रापितस्तमः ॥६॥
-
 > puṁso varṣa-śataṁ hy āyus
 > tad-ardhaṁ cājitātmanaḥ
 > niṣphalaṁ yad asau rātryāṁ
@@ -4650,9 +3860,6 @@ Human society should be divided into a social system of *brāhmaṇas, kṣatriy
 Lord Brahmā, a human being and an ant all live for one hundred years, but their lifetimes of one hundred years are different from one another. This world is a relative world, and its relative moments of time are different. Thus the one hundred years of Brahmā are not the same as the one hundred years of a human being. From *Bhagavad-gītā* we understand that Brahma's daytime of twelve hours equals 4,300,000 times 1,000 years (*sahasra-yuga-paryantam ahar yad brahmaṇo viduḥ* [[bg/8/17|[Bg. 8.17] ]]). Thus the *varṣa-śatam,* or one hundred years, are relatively different according to time, person and circumstances. As far as human beings are concerned, the calculation given here is right for the general public. Although one has a maximum of one hundred years of life, by sleeping one loses fifty years. Eating, sleeping, sex life and fear are the four bodily necessities, but to utilize the full duration of life a person desiring to advance in spiritual consciousness must reduce these activities. That will give him an opportunity to fully use his lifetime.
 
 ### SB 7.6.7
-
-> मुग्धस्य बाल्ये कैशोरे क्रीडतो याति विंशतिः
-> जरया ग्रस्तदेहस्य यात्यकल्पस्य विंशतिः ॥७॥
 
 > mugdhasya bālye kaiśore
 > krīḍato yāti viṁśatiḥ
@@ -4667,9 +3874,6 @@ Without Kṛṣṇa consciousness, one wastes twenty years in childhood and boyh
 
 ### SB 7.6.8
 
-> दुरापूरेण कामेन मोहेन च बलीयसा
-> शेषं गृहेषु सक्तस्य प्रमत्तस्यापयाति हि ॥८॥
-
 > durāpūreṇa kāmena
 > mohena ca balīyasā
 > śeṣaṁ gṛheṣu saktasya
@@ -4682,9 +3886,6 @@ Without Kṛṣṇa consciousness, one wastes twenty years in childhood and boyh
 This is the account of one hundred years of life. Although in this age a lifetime of one hundred years is generally not possible, even if one has one hundred years, the calculation is that fifty years are wasted in sleeping, twenty years in childhood and boyhood, and twenty years in invalidity (*jarā-vyādhi*). This leaves only a few more years, but because of too much attachment to household life, those years are also spent with no purpose, without God consciousness. Therefore, one should be trained to be a perfect *brahmacārī* in the beginning of life and then to be perfect in sense control, following the regulative principles, if one becomes a householder. From household life one is ordered to accept *vānaprastha* life and go to the forest and then accept *sannyāsa.* That is the perfection of life. From the very beginning of life, those who are *ajitendriya,* who cannot control their senses, are educated only for sense gratification, as we have seen in the Western countries. Thus the entire duration of a life of even one hundred years is wasted and misused, and at the time of death one transmigrates to another body, which may not be human. At the end of one hundred years, one who has not acted as a human being in a life of *tapasya* (austerity and penance) must certainly be embodied again in a body like those of cats, dogs and hogs. Therefore this life of lusty desires and sense gratification is extremely risky.
 
 ### SB 7.6.9
-
-> को गृहेषु पुमान्सक्तमात्मानमजितेन्द्रियः
-> स्नेहपाशैर्दृढैर्बद्धमुत्सहेत विमोचितुम ॥९॥
 
 > ko gṛheṣu pumān saktam
 > ātmānam ajitendriyaḥ
@@ -4710,9 +3911,6 @@ To return home, back to Godhead, one must be completely free from material attac
 
 ### SB 7.6.10
 
-> को न्वर्थतृष्णां विसृजेत्प्राणेभ्योऽपि य ईप्सितः
-> यं क्रीणात्यसुभिः प्रेष्ठैस्तस्करः सेवको वणिक ॥१०॥
-
 > ko nv artha-tṛṣṇāṁ visṛjet
 > prāṇebhyo 'pi ya īpsitaḥ
 > yaṁ krīṇāty asubhiḥ preṣṭhais
@@ -4733,13 +3931,6 @@ How money can be dearer than life is indicated in this verse. Thieves may enter 
 "One who is sufficiently intelligent should use the human form of body from the very beginning of life—in other words, from the tender age of childhood—to practice the activities of devotional service, giving up all other engagements. The human body is most rarely achieved, and although temporary like other bodies, it is meaningful because in human life one can perform devotional service. Even a slight amount of sincere devotional service can give one complete perfection." Human society should take advantage of this instruction.
 
 ### SB 7.6.11-13
-
-> कथं प्रियाया अनुकम्पितायाः सङ्गं रहस्यं रुचिरांश्च मन्त्रान
-> सुहृत्सु तत्स्नेहसितः शिशूनां कलाक्षराणामनुरक्तचित्तः ॥११॥
-> पुत्रान्स्मरंस्ता दुहितॄर्हृदय्या भ्रातॄन्स्वसॄर्वा पितरौ च दीनौ
-> गृहान्मनोज्ञओरुपरिच्छदांश्च वृत्तीश्च कुल्याः पशुभृत्यवर्गान ॥१२॥
-> त्यजेत कोशस्कृदिवेहमानः कर्माणि लोभादवितृप्तकामः
-> औपस्थ्यजैह्वं बहुमन्यमानः कथं विरज्येत दुरन्तमोहः ॥१३॥
 
 > kathaṁ priyāyā anukampitāyāḥ
 > saṅgaṁ rahasyaṁ rucirāṁś ca mantrān
@@ -4764,9 +3955,6 @@ In household affairs the first attraction is the beautiful and pleasing wife, wh
 
 ### SB 7.6.14
 
-> कुटुम्बपोषाय वियन्निजायुर्न बुध्यतेऽर्थं विहतं प्रमत्तः
-> सर्वत्र तापत्रयदुःखितात्मा निर्विद्यते न स्वकुटुम्बरामः ॥१४॥
-
 > kuṭumba-poṣāya viyan nijāyur
 > na budhyate 'rthaṁ vihataṁ pramattaḥ
 > sarvatra tāpa-traya-duḥkhitātmā
@@ -4779,9 +3967,6 @@ In household affairs the first attraction is the beautiful and pleasing wife, wh
 A foolish man does not understand the values of human life, nor does he understand how he is wasting his valuable life simply for the maintenance of his family members. He is expert in calculating the loss of pounds, shillings and pence, but he is so foolish that he does not know how much money he is losing, even according to material considerations. Cāṇakya Paṇḍita gives the example that a moment of life cannot be purchased in exchange for millions of dollars. A foolish person, however, wastes such a valuable life without knowing how much he is losing, even according to monetary calculations. Although a materialistic person is expert in calculating costs and doing business, he does not realize that he is misusing his costly life for want of knowledge. Even though such a materialistic person is always suffering threefold miseries, he is not intelligent enough to cease his materialistic way of life.
 
 ### SB 7.6.15
-
-> वित्तेषु नित्याभिनिविष्टचेता विद्वांश्च दोषं परवित्तहर्तुः
-> प्रेत्येह वाथाप्यजितेन्द्रियस्तदशान्तकामो हरते कुटुम्बी ॥१५॥
 
 > vitteṣu nityābhiniviṣṭa-cetā
 > vidvāṁś ca doṣaṁ para-vitta-hartuḥ
@@ -4796,9 +3981,6 @@ Especially in these days, people do not believe in a next life or in the court o
 
 ### SB 7.6.16
 
-> विद्वानपीत्थं दनुजाः कुटुम्बं पुष्णन्स्वलोकाय न कल्पते वै
-> यः स्वीयपारक्यविभिन्नभावस्तमः प्रपद्येत यथा विमूढः ॥१६॥
-
 > vidvān apītthaṁ danujāḥ kuṭumbaṁ
 > puṣṇan sva-lokāya na kalpate vai
 > yaḥ svīya-pārakya-vibhinna-bhāvas
@@ -4811,11 +3993,6 @@ Especially in these days, people do not believe in a next life or in the court o
 In human society there are attempts to educate the human being, but for animal society there is no such system, nor are animals able to be educated. Therefore animals and unintelligent men are called *vimūḍha,* or ignorant, bewildered, whereas an educated person is called *vidvān.* The real *vidvān* is one who tries to understand his own position within this material world. For example, when Sanātana Gosvāmī submitted to the lotus feet of Śrī Caitanya Mahāprabhu, his first question was *'ke āmi', 'kene āmāya jāre tāpa-traya'.* In other words, he wanted to know his constitutional position and why he was suffering from the threefold miseries of material existence. This is the process of education. If one does not ask, "Who am I? What is the goal of my life?" but instead follows the same animal propensities as cats and dogs, what is the use of his education? As discussed in the previous verse, a living being is entrapped by his fruitive activities, exactly like a silkworm trapped in its own cocoon. Foolish persons are generally encaged by their fruitive actions (*karma*) because of a strong desire to enjoy this material world. Such attracted persons become involved in society, community and nation and waste their time, not having profited from having obtained human forms. Especially in this age, Kali-yuga, great leaders, politicians, philosophers and scientists are all engaged in foolish activities, thinking, "This is mine, and this is yours." The scientists invent nuclear weapons and collaborate with the big leaders to protect the interests of their own nation or society. In this verse, however, it is clearly stated that despite their so-called advanced knowledge, they actually have the same mentality as cats and dogs. As cats, dogs and other animals, not knowing their true interest in life, become increasingly involved in ignorance, the so-called educated person who does not know his own self-interest or the true goal of life becomes increasingly involved in materialism. Therefore Prahlāda Mahārāja advises everyone to follow the principles of *varṇāśrama-dharma.* Specifically, at a certain point one must give up family life and take to the renounced order of life to cultivate spiritual knowledge and thus become liberated. This is further discussed in the following verses.
 
 ### SB 7.6.17-18
-
-> यतो न कश्चित्क्व च कुत्रचिद्वा दीनः स्वमात्मानमलं समर्थः
-> विमोचितुं कामदृशां विहार क्रीडामृगो यन्निगडो विसर्गः ॥१७॥
-> ततो विदूरात्परिहृत्य दैत्या दैत्येषु सङ्गं विषयात्मकेषु
-> उपेत नारायणमादिदेवं स मुक्तसङ्गैरिषितोऽपवर्गः ॥१८॥
 
 > yato na kaścit kva ca kutracid vā
 > dīnaḥ svam ātmānam alaṁ samarthaḥ
@@ -4834,9 +4011,6 @@ In human society there are attempts to educate the human being, but for animal s
 Prahlāda Mahārāja has maintained the philosophical point of view that one should give up the dark well of family life and go to the forest to take shelter of the lotus feet of the Supreme Personality of Godhead (*hitvātma-pātaṁ gṛham andha-kūpaṁ vanaṁ gato yad dharim āśrayeta* [[sb/7/5/5|[SB 7.5.5] ]]). In this verse also, he stresses the same point. In the history of human society, no one, at any time or any place, has been liberated because of too much affection and attachment for his family. Even in those who are apparently very educated, the same family attachment is there. They cannot give up the association of their families, even in old age or invalidity, for they are attached to sense enjoyment. As we have several times discussed, *yan maithunādi-gṛhamedhi-sukhaṁ hi tuccham*/ [[sb/7/9/45|[SB 7.9.45] ]] so-called householders are simply attracted by sexual enjoyment. Thus they keep themselves shackled in family life, and furthermore they want their children to be shackled in the same way. Playing the parts of playboys in the hands of women, they glide down to the darkest regions of material existence. *Adānta-gobhir viśatāṁ tamisraṁ punaḥ punaś carvita-carvaṇānām* [[sb/7/5/30|[SB 7.5.30] ]]. Because they are unable to control their senses, they continue a life of chewing the chewed and therefore descend to the darkest material regions. One should give up the association of such demons and adhere to the association of devotees. Thus one will be able to be liberated from material bondage.
 
 ### SB 7.6.19
-
-> न ह्यच्युतं प्रीणयतो बह्वायासोऽसुरात्मजाः
-> आत्मत्वात्सर्वभूतानां सिद्धत्वादिह सर्वतः ॥१९॥
 
 > na hy acyutaṁ prīṇayato
 > bahv-āyāso 'surātmajāḥ
@@ -4859,15 +4033,6 @@ One may ask, "One is certainly very attached to family life, but if one gives up
 One's duty is to revive one's relationship with Nārāyaṇa. A slight endeavor in this direction will make the attempt successful, whereas one will never be successful in pleasing his so-called family, society and nation, even if one endeavors to sacrifice his life. The simple endeavor involved in the devotional service of *śravaṇaṁ kīrtanaṁ viṣṇoḥ* [[sb/7/5/23-24|[SB 7.5.23] ]], hearing and chanting the holy name of the Lord, can make one successful in pleasing the Supreme Personality of Godhead. Śrī Caitanya Mahāprabhu has therefore bestowed His blessings by saying, *paraṁ vijayate śrī-kṛṣṇa-saṅkīrtanam:* "All glories to Śrī Kṛṣṇa *saṅkīrtana!*" If one wants to derive the actual benefit from this human form, he must take to the chanting of the holy name of the Lord.
 
 ### SB 7.6.20-23
-
-> परावरेषु भूतेषु ब्रह्मान्तस्थावरादिषु
-> भौतिकेषु विकारेषु भूतेष्वथ महत्सु च ॥२०॥
-> गुणेषु गुणसाम्ये च गुणव्यतिकरे तथा
-> एक एव परो ह्यात्मा भगवानीश्वरोऽव्ययः ॥२१॥
-> प्रत्यगात्मस्वरूपेण दृश्यरूपेण च स्वयम
-> व्याप्यव्यापकनिर्देश्यो ह्यनिर्देश्योऽविकल्पितः ॥२२॥
-> केवलानुभवानन्द स्वरूपः परमेश्वरः
-> माययान्तर्हितैश्वर्य ईयते गुणसर्गया ॥२३॥
 
 > parāvareṣu bhūteṣu
 > brahmānta-sthāvarādiṣu
@@ -4922,9 +4087,6 @@ The Lord is present as *antaryāmī* in everyone's heart and is visible in the i
 
 ### SB 7.6.24
 
-> तस्मात्सर्वेषु भूतेषु दयां कुरुत सौहृदम
-> भावमासुरमुन्मुच्य यया तुष्यत्यधोक्षजः ॥२४॥
-
 > tasmāt sarveṣu bhūteṣu
 > dayāṁ kuruta sauhṛdam
 > bhāvam āsuram unmucya
@@ -4948,11 +4110,6 @@ The word *sauhṛdam* ("friendliness") is very significant in this verse. People
 
 ### SB 7.6.25
 
-> तुष्टे च तत्र किमलभ्यमनन्त आद्ये
-> किं तैर्गुणव्यतिकरादिह ये स्वसिद्धाः
-> धर्मादयः किमगुणेन च काङ्क्षितेन
-> सारं जुषां चरणयोरुपगायतां नः ॥२५॥
-
 > tuṣṭe ca tatra kim alabhyam ananta ādye
 > kiṁ tair guṇa-vyatikarād iha ye sva-siddhāḥ
 > dharmādayaḥ kim aguṇena ca kāṅkṣitena
@@ -4967,11 +4124,6 @@ In an advanced civilization, people are eager to be religious, to be economicall
 Prahlāda Mahārāja said, *aguṇena ca kāṅkṣitena:* if one is engaged in the transcendental loving service of the lotus feet of the Lord, he does not need anything in terms of *dharma, artha, kāma* or *mokṣa.* In *Śrīmad-Bhāgavatam,* therefore, in the beginning of the transcendental literature, it is said, *dharmaḥ projjhita-kaitavo 'tra* [[sb/1/1/2|[SB 1.1.2] ]]. *Dharma, artha, kāma* and *mokṣa* are *kaitava*—false and unnecessary. *Nirmatsarāṇām,* persons who are completely transcendental to the material activities of separateness, who make no distinction between "mine" and "yours," but who simply engage in the devotional service of the Lord, are actually fit to accept *bhāgavata-dharma* (*dharmān bhagavatān iha*). Because they are *nirmatsara,* not jealous of anyone, they want to make others devotees, even their enemies. In this regard, Śrīla Madhvācārya remarks, *kāṅkṣate mokṣa-gam api sukhaṁ nākāṅkṣato yathā.* Devotees are not desirous of any material happiness, including the happiness derived from liberation. This is called *anyābhilāṣitā-śūnyaṁ jñāna-karmādy-anāvṛtam [Bhakti-rasāmṛta-sindhu* 1.1.11]. *Karmīs* desire material happiness, and *jñānīs* desire liberation, but a devotee does not desire anything; he is simply satisfied by rendering transcendental loving service at the lotus feet of the Lord and glorifying Him everywhere by preaching, which is his life and soul.
 
 ### SB 7.6.26
-
-> धर्मार्थकाम इति योऽभिहितस्त्रिवर्ग
-> ईक्षा त्रयी नयदमौ विविधा च वार्ता
-> मन्ये तदेतदखिलं निगमस्य सत्यं
-> स्वात्मार्पणं स्वसुहृदः परमस्य पुंसः ॥२६॥
 
 > dharmārtha-kāma iti yo 'bhihitas tri-varga
 > īkṣā trayī naya-damau vividhā ca vārtā
@@ -5000,11 +4152,6 @@ These instructions of Prahlāda Mahārāja stress the transcendental position of
 
 ### SB 7.6.27
 
-> ज्ञआनं तदेतदमलं दुरवापमाह
-> नारायणो नरसखः किल नारदाय
-> एकान्तिनां भगवतस्तदकिञ्चनानां
-> पादारविन्दरजसाप्लुतदेहिनां स्यात ॥२७॥
-
 > jñānaṁ tad etad amalaṁ duravāpam āha
 > nārāyaṇo nara-sakhaḥ kila nāradāya
 > ekāntināṁ bhagavatas tad akiñcanānāṁ
@@ -5018,9 +4165,6 @@ It is stated here that this confidential knowledge is extremely difficult to und
 
 ### SB 7.6.28
 
-> श्रुतमेतन्मया पूर्वं ज्ञआनं विज्ञआनसंयुतम
-> धर्मं भागवतं शुद्धं नारदाद्देवदर्शनात ॥२८॥
-
 > śrutam etan mayā pūrvaṁ
 > jñānaṁ vijñāna-saṁyutam
 > dharmaṁ bhāgavataṁ śuddhaṁ
@@ -5031,12 +4175,6 @@ It is stated here that this confidential knowledge is extremely difficult to und
 **Prahlāda Mahārāja continued: I received this knowledge from the great saint Nārada Muni, who is always engaged in devotional service. This knowledge, which is called bhāgavata-dharma, is fully scientific. It is based on logic and philosophy and is free from all material contamination.**
 
 ### SB 7.6.29-30
-
-> श्रीदैत्यपुत्रा ऊचुः
-> प्रह्राद त्वं वयं चापि नर्तेऽन्यं विद्महे गुरुम
-> एताभ्यां गुरुपुत्राभ्यां बालानामपि हीश्वरौ ॥२९॥
-> बालस्यान्तःपुरस्थस्य महत्सङ्गो दुरन्वयः
-> छिन्धि नः संशयं सौम्य स्याच्चेद्विस्रम्भकारणम ॥३०॥
 
 > śrī-daitya-putrā ūcuḥ
 > prahrāda tvaṁ vayaṁ cāpi
@@ -5059,10 +4197,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Sixth Chapter, of the 
 
 ### SB 7.7.1
 
-> श्रीनारद उवाच
-> एवं दैत्यसुतैः पृष्टो महाभागवतोऽसुरः
-> उवाच तान्स्मयमानः स्मरन्मदनुभाषितम ॥१॥
-
 > śrī-nārada uvāca
 > evaṁ daitya-sutaiḥ pṛṣṭo
 > mahā-bhāgavato 'suraḥ
@@ -5077,10 +4211,6 @@ When he was in the womb of his mother, Prahlāda Mahārāja listened to the word
 
 ### SB 7.7.2
 
-> श्रीप्रह्राद उवाच
-> पितरि प्रस्थितेऽस्माकं तपसे मन्दराचलम
-> युद्धोद्यमं परं चक्रुर्विबुधा दानवान्प्रति ॥२॥
-
 > śrī-prahrāda uvāca
 > pitari prasthite 'smākaṁ
 > tapase mandarācalam
@@ -5093,9 +4223,6 @@ When he was in the womb of his mother, Prahlāda Mahārāja listened to the word
 
 ### SB 7.7.3
 
-> पिपीलिकैरहिरिव दिष्ट्या लोकोपतापनः
-> पापेन पापोऽभक्षीति वदन्तो वासवादयः ॥३॥
-
 > pipīlikair ahir iva
 > diṣṭyā lokopatāpanaḥ
 > pāpena pāpo 'bhakṣīti
@@ -5106,11 +4233,6 @@ When he was in the womb of his mother, Prahlāda Mahārāja listened to the word
 **"Alas, as a serpent is eaten by small ants, so the troublesome Hiraṇyakaśipu, who always inflicted miseries upon all types of people, has now been defeated by the reactions of his own sinful activities." Saying this, the demigods, headed by King Indra, arranged to fight the demons.**
 
 ### SB 7.7.4-5
-
-> तेषामतिबलोद्योगं निशम्यासुरयूथपाः
-> वध्यमानाः सुरैर्भीता दुद्रुवुः सर्वतो दिशम ॥४॥
-> कलत्रपुत्रवित्ताप्तान्गृहान्पशुपरिच्छदान
-> नावेक्ष्यमाणास्त्वरिताः सर्वे प्राणपरीप्सवः ॥५॥
 
 > teṣām atibalodyogaṁ
 > niśamyāsura-yūthapāḥ
@@ -5128,9 +4250,6 @@ When he was in the womb of his mother, Prahlāda Mahārāja listened to the word
 
 ### SB 7.7.6
 
-> व्यलुम्पन्राजशिबिरममरा जयकाङ्क्षिणः
-> इन्द्रस्तु राजमहिषीं मातरं मम चाग्रहीत ॥६॥
-
 > vyalumpan rāja-śibiram
 > amarā jaya-kāṅkṣiṇaḥ
 > indras tu rāja-mahiṣīṁ
@@ -5141,9 +4260,6 @@ When he was in the womb of his mother, Prahlāda Mahārāja listened to the word
 **The victorious demigods plundered the palace of Hiraṇyakaśipu, the King of the demons, and destroyed everything within it. Then Indra, King of heaven, arrested my mother, the Queen.**
 
 ### SB 7.7.7
-
-> नीयमानां भयोद्विग्नां रुदतीं कुररीमिव
-> यदृच्छयागतस्तत्र देवर्षिर्ददृशे पथि ॥७॥
 
 > nīyamānāṁ bhayodvignāṁ
 > rudatīṁ kurarīm iva
@@ -5156,9 +4272,6 @@ When he was in the womb of his mother, Prahlāda Mahārāja listened to the word
 
 ### SB 7.7.8
 
-> प्राह नैनां सुरपते नेतुमर्हस्यनागसम
-> मुञ्च मुञ्च महाभाग सतीं परपरिग्रहम ॥८॥
-
 > prāha naināṁ sura-pate
 > netum arhasy anāgasam
 > muñca muñca mahā-bhāga
@@ -5169,10 +4282,6 @@ When he was in the womb of his mother, Prahlāda Mahārāja listened to the word
 **Nārada Muni said: O Indra, King of the demigods, this woman is certainly sinless. You should not drag her off in this merciless way. O greatly fortunate one, this chaste woman is the wife of another. You must immediately release her.**
 
 ### SB 7.7.9
-
-> श्रीइन्द्र उवाच
-> आस्तेऽस्या जठरे वीर्यमविषह्यं सुरद्विषः
-> आस्यतां यावत्प्रसवं मोक्ष्येऽर्थपदवीं गतः ॥९॥
 
 > śrī-indra uvāca
 > āste 'syā jaṭhare vīryam
@@ -5188,10 +4297,6 @@ Indra, the King of heaven, decided to arrest Prahlāda Mahārāja's mother becau
 
 ### SB 7.7.10
 
-> श्रीनारद उवाच
-> अयं निष्किल्बिषः साक्षान्महाभागवतो महान
-> त्वया न प्राप्स्यते संस्थामनन्तानुचरो बली ॥१०॥
-
 > śrī-nārada uvāca
 > ayaṁ niṣkilbiṣaḥ sākṣān
 > mahā-bhāgavato mahān
@@ -5206,9 +4311,6 @@ There have been many instances in which demons or nondevotees have attempted to 
 
 ### SB 7.7.11
 
-> इत्युक्तस्तां विहायेन्द्रो देवर्षेर्मानयन्वचः
-> अनन्तप्रियभक्त्यैनां परिक्रम्य दिवं ययौ ॥११॥
-
 > ity uktas tāṁ vihāyendro
 > devarṣer mānayan vacaḥ
 > ananta-priya-bhaktyaināṁ
@@ -5222,9 +4324,6 @@ Although King Indra and the other demigods are exalted personalities, they were 
 
 ### SB 7.7.12
 
-> ततो मे मातरमृषिः समानीय निजाश्रमे
-> आश्वास्येहोष्यतां वत्से यावत्ते भर्तुरागमः ॥१२॥
-
 > tato me mātaram ṛṣiḥ
 > samānīya nijāśrame
 > āśvāsyehoṣyatāṁ vatse
@@ -5236,9 +4335,6 @@ Although King Indra and the other demigods are exalted personalities, they were 
 
 ### SB 7.7.13
 
-> तथेत्यवात्सीद्देवर्षेरन्तिके साकुतोभया
-> यावद्दैत्यपतिर्घोरात्तपसो न न्यवर्तत ॥१३॥
-
 > tathety avātsīd devarṣer
 > antike sākuto-bhayā
 > yāvad daitya-patir ghorāt
@@ -5249,9 +4345,6 @@ Although King Indra and the other demigods are exalted personalities, they were 
 **After accepting the instructions of Devarṣi Nārada, my mother stayed in his care, without fear from any direction, as long as my father, the King of the Daityas, had not become free from his severe austerities.**
 
 ### SB 7.7.14
-
-> ऋषिं पर्यचरत्तत्र भक्त्या परमया सती
-> अन्तर्वत्नी स्वगर्भस्य क्षेमायेच्छाप्रसूतये ॥१४॥
 
 > ṛṣiṁ paryacarat tatra
 > bhaktyā paramayā satī
@@ -5273,9 +4366,6 @@ One should not remain in a secluded place with a woman, even one's mother, siste
 
 ### SB 7.7.15
 
-> ऋषिः कारुणिकस्तस्याः प्रादादुभयमीश्वरः
-> धर्मस्य तत्त्वं ज्ञआनं च मामप्युद्दिश्य निर्मलम ॥१५॥
-
 > ṛṣiḥ kāruṇikas tasyāḥ
 > prādād ubhayam īśvaraḥ
 > dharmasya tattvaṁ jñānaṁ ca
@@ -5296,9 +4386,6 @@ Here it is said, *dharmasya tattvaṁ jñānaṁ ca. .. nirmalam.* The word *nir
 
 ### SB 7.7.16
 
-> तत्तु कालस्य दीर्घत्वात्स्त्रीत्वान्मातुस्तिरोदधे
-> ऋषिणानुगृहीतं मां नाधुनाप्यजहात्स्मृतिः ॥१६॥
-
 > tat tu kālasya dīrghatvāt
 > strītvān mātus tirodadhe
 > ṛṣiṇānugṛhītaṁ māṁ
@@ -5318,9 +4405,6 @@ In *Bhagavad-gītā* [[bg/9/32|(Bg. 9.32)]] the Lord says:
 "O son of Pṛthā, those who take shelter in Me—though they be lowborn, women, *vaiśyas* [merchants] or *śūdras* [workers]—can approach the supreme destination." The word *pāpa-yoni* refers to those who are less than *śūdras,* but even though a woman may not be *pāpa-yoni,* because of being less intelligent she sometimes forgets devotional instructions. For those who are strong enough, however, there is no question of forgetting. Women are generally attached to material enjoyment, and because of this tendency they sometimes forget devotional instructions. But if even a woman practices devotional service strictly, according to the rules and regulations, the statement by the Lord Himself that she can return to Godhead (*te 'pi yānti parāṁ gatim*) is not at all astonishing. One must take shelter of the Lord and rigidly follow the rules and regulations. Then, regardless of what one is, one will return home, back to Godhead. Prahlāda Mahārāja's mother was more concerned with protecting the child in the womb and was very anxious to see her husband return. Therefore she could not consider very seriously the sublime instructions of Nārada Muni.
 
 ### SB 7.7.17
-
-> भवतामपि भूयान्मे यदि श्रद्दधते वचः
-> वैशारदी धीः श्रद्धातः स्त्रीबालानां च मे यथा ॥१७॥
 
 > bhavatām api bhūyān me
 > yadi śraddadhate vacaḥ
@@ -5363,9 +4447,6 @@ The words *vaiśāradī dhīḥ* refer to intelligence concerning the Supreme Pe
 
 ### SB 7.7.18
 
-> जन्माद्याः षडिमे भावा दृष्टा देहस्य नात्मनः
-> फलानामिव वृक्षस्य कालेनेश्वरमूर्तिना ॥१८॥
-
 > janmādyāḥ ṣaḍ ime bhāvā
 > dṛṣṭā dehasya nātmanaḥ
 > phalānām iva vṛkṣasya
@@ -5394,11 +4475,6 @@ There are two kinds of soul—the Supreme Soul (the Personality of Godhead) and 
 Since the body is the external feature of the soul, the soul is not dependent on the body; rather, the body is dependent on the soul. One who understands this truth should not be very much anxious about the maintenance of his body. There is no possibility of maintaining the body permanently or eternally. *Antavanta ime dehā nityasyoktāḥ śarīriṇaḥ.* This is the statement of *Bhagavad-gītā* [[bg/2/18|(Bg. 2.18)]]. The material body is *antavat* (perishable), but the soul within the body is eternal (*nityasyoktāḥ śarīriṇaḥ*). Lord Viṣṇu and the individual souls, who are part and parcel of Him, are both eternal. *Nityo nityānāṁ cetanaś cetanānām* (*Kaṭha Upaniṣad* 2.2.13). Lord Viṣṇu is the chief living being, whereas the individual living entities are parts of Lord Viṣṇu. All the various grades of bodies—from the gigantic universal body to the small body of an ant—are perishable, but the Supersoul and the soul, being equal in quality, both exist eternally. This is further explained in the next verses.
 
 ### SB 7.7.19-20
-
-> आत्मा नित्योऽव्ययः शुद्ध एकः क्षेत्रज्ञअ आश्रयः
-> अविक्रियः स्वदृघेतुर्व्यापकोऽसङ्ग्यनावृतः ॥१९॥
-> एतैर्द्वादशभिर्विद्वानात्मनो लक्षणैः परैः
-> अहं ममेत्यसद्भावं देहादौ मोहजं त्यजेत ॥२०॥
 
 > ātmā nityo 'vyayaḥ śuddha
 > ekaḥ kṣetra-jña āśrayaḥ
@@ -5430,9 +4506,6 @@ We should always remember that although we are equal to the Supreme Personality 
 
 ### SB 7.7.21
 
-> स्वर्णं यथा ग्रावसु हेमकारः क्षेत्रेषु योगैस्तदभिज्ञअ आप्नुयात
-> क्षेत्रेषु देहेषु तथात्मयोगैरध्यात्मविद्ब्रह्मगतिं लभेत ॥२१॥
-
 > svarṇaṁ yathā grāvasu hema-kāraḥ
 > kṣetreṣu yogais tad-abhijña āpnuyāt
 > kṣetreṣu deheṣu tathātma-yogair
@@ -5452,9 +4525,6 @@ Here is a very good example concerning spiritual understanding. Foolish rascals,
 "As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change." [[bg/2/13|(Bg. 2.13)]] Thus the first instruction is that one should understand that the soul is within the body and is transmigrating from one body to another. This is the beginning of spiritual knowledge. Any person who is not expert in understanding this science or is unwilling to understand it remains in the bodily conception of life, or the animalistic conception of life, as confirmed in *Śrīmad-Bhāgavatam* (*yasyātma-buddhiḥ kuṇape tri-dhātuke. .. sa eva go-kharaḥ* [SB 10.84.13]). Every member of human society should clearly understand the instructions of *Bhagavad-gītā,* for only in this way can one be spiritually elevated and automatically give up the false, illusory knowledge by which one thinks, "I am this body, and everything belonging to this body is mine [*ahaṁ mameti SB* 5.5.8]." This doggish conception should be rejected immediately. One should be prepared to understand the spirit soul and the supreme spirit, God, who are eternally related. Thus one may return home, back to Godhead, having solved all the problems of life.
 
 ### SB 7.7.22
-
-> अष्टौ प्रकृतयः प्रोक्तास्त्रय एव हि तद्गुणाः
-> विकाराः षोडशाचार्यैः पुमानेकः समन्वयात ॥२२॥
 
 > aṣṭau prakṛtayaḥ proktās
 > traya eva hi tad-guṇāḥ
@@ -5491,9 +4561,6 @@ The material energy is in fact divided into twenty-four elements. The individual
 
 ### SB 7.7.23
 
-> देहस्तु सर्वसङ्घातो जगत्तस्थुरिति द्विधा
-> अत्रैव मृग्यः पुरुषो नेति नेतीत्यतत्त्यजन ॥२३॥
-
 > dehas tu sarva-saṅghāto
 > jagat tasthur iti dvidhā
 > atraiva mṛgyaḥ puruṣo
@@ -5513,9 +4580,6 @@ As previously stated, *svarṇaṁ yathā grāvasu hema-kāraḥ kṣetreṣu yo
 "As the embodied soul continually passes, in this body, from boyhood to youth to old age, the soul similarly passes into another body at death. The self-realized soul is not bewildered by such a change." [[bg/2/13|(Bg. 2.13)]] The spirit soul possesses the body and is within the body. This is the real analysis. The soul never mixes with the bodily elements. Although the soul is within the body, it is separate and always pure. One must analyze and understand his self. This is self-realization. *Neti neti* is the analytical process of rejecting matter. By expertly conducting such an analysis, one can understand where the soul is. One who is not expert, however, cannot distinguish gold from earth, nor the soul from the body.
 
 ### SB 7.7.24
-
-> अन्वयव्यतिरेकेण विवेकेनोशतात्मना
-> स्वर्गस्थानसमाम्नायैर्विमृशद्भिरसत्वरैः ॥२४॥
 
 > anvaya-vyatirekeṇa
 > vivekenośatātmanā
@@ -5544,9 +4608,6 @@ Thus he can understand that the head, hands, legs and indeed the entire body hav
 
 ### SB 7.7.25
 
-> बुद्धेर्जागरणं स्वप्नः सुषुप्तिरिति वृत्तयः
-> ता येनैवानुभूयन्ते सोऽध्यक्षः पुरुषः परः ॥२५॥
-
 > buddher jāgaraṇaṁ svapnaḥ
 > suṣuptir iti vṛttayaḥ
 > tā yenaivānubhūyante
@@ -5559,9 +4620,6 @@ Thus he can understand that the head, hands, legs and indeed the entire body hav
 Without intelligence one cannot understand the direct activities of the senses, nor can he understand dreaming or the cessation of all gross and subtle activities. The seer and controller is the Supreme Personality of Godhead, the Supreme Soul, by whose direction the individual soul can understand when he is awake, when he is sleeping, and when he is completely in trance. In *Bhagavad-gītā* [[bg/15/15|(Bg. 15.15)]] the Lord says, *sarvasya cāhaṁ hṛdi sanniviṣṭo mattaḥ smṛtir jñānam apohanaṁ ca*/ "I am seated in everyone's heart, and from Me come remembrance, knowledge and forgetfulness." The living entities are completely absorbed in the three states of wakefulness, dreaming and deep sleep through their intelligence. This intelligence is supplied by the Supreme Personality of Godhead, who accompanies the individual soul as a friend. Śrīla Madhvācārya says that the living entity is sometimes described as *sattva-buddhi* when his intelligence acts directly to perceive pains and pleasures above activities. There is a dreaming state in which understanding comes from the Supreme Personality of Godhead (*mattaḥ smṛtir jñānam apohanaṁ ca* [[bg/15/15|[Bg. 15.15] ]]). The Supreme Personality of Godhead, the Supersoul, is the supreme controller, and under His direction the living entities are subcontrollers. One must understand the Supreme Personality of Godhead with one's intelligence.
 
 ### SB 7.7.26
-
-> एभिस्त्रिवर्णैः पर्यस्तैर्बुद्धिभेदैः क्रियोद्भवैः
-> स्वरूपमात्मनो बुध्येद्गन्धैर्वायुमिवान्वयात ॥२६॥
 
 > ebhis tri-varṇaiḥ paryastair
 > buddhi-bhedaiḥ kriyodbhavaiḥ
@@ -5587,9 +4645,6 @@ Even though one may artificially think himself liberated from material contamina
 Above the senses is the mind, above the mind is the intelligence, and above the intelligence is the soul. Ultimately, when one's intelligence becomes clear through devotional service, one is situated in *buddhi-yoga.* This also is explained in *Bhagavad-gītā* (*dadāmi buddhi-yogaṁ taṁ yena mām upayānti te*). When devotional service develops and one's intelligence becomes clear, one can use his intelligence to return home, back to Godhead.
 
 ### SB 7.7.27
-
-> एतद्द्वारो हि संसारो गुणकर्मनिबन्धनः
-> अज्ञआनमूलोऽपार्थोऽपि पुंसः स्वप्न इवार्प्यते ॥२७॥
 
 > etad dvāro hi saṁsāro
 > guṇa-karma-nibandhanaḥ
@@ -5627,9 +4682,6 @@ One must realize that the material condition of life is full of distresses. One 
 
 ### SB 7.7.28
 
-> तस्माद्भवद्भिः कर्तव्यं कर्मणां त्रिगुणात्मनाम
-> बीजनिर्हरणं योगः प्रवाहोपरमो धियः ॥२८॥
-
 > tasmād bhavadbhiḥ kartavyaṁ
 > karmaṇāṁ tri-guṇātmanām
 > bīja-nirharaṇaṁ yogaḥ
@@ -5657,9 +4709,6 @@ This is confirmed in *Bhagavad-gītā* [[bg/14/26|(Bg. 14.26)]]:
 
 ### SB 7.7.29
 
-> तत्रोपायसहस्राणामयं भगवतोदितः
-> यदीश्वरे भगवति यथा यैरञ्जसा रतिः ॥२९॥
-
 > tatropāya-sahasrāṇām
 > ayaṁ bhagavatoditaḥ
 > yad īśvare bhagavati
@@ -5680,11 +4729,6 @@ Among the linking processes that elevate one from bondage to material contaminat
 "Unto those great souls who have implicit faith in both the Lord and the spiritual master, all the imports of Vedic knowledge are automatically revealed." (*Śvetāśvatara Upaniṣad* 6.23) One must accept the pure devotee, the representative of God, as one's *guru* and then offer him all the respects one would offer the Supreme Personality of Godhead. This is the secret of success. For one who adopts this method, the perfect process is revealed. In this verse, the words *yair añjasā ratiḥ* indicate that by offering service and surrendering to the spiritual master, one is elevated to devotional service, and by performing devotional service one gradually becomes attached to the Supreme Personality of Godhead. Because of this attachment to the Lord, one can understand the Lord. In other words, one can understand what the Lord's position is, what our position is and what our relationship is. All this can be understood very easily by the simple method of *bhakti-yoga.* As soon as one is situated on the platform of *bhakti-yoga,* the root cause of one's suffering and material bondage is destroyed. This is clearly explained in the next verse, which gives the secret of success.
 
 ### SB 7.7.30-31
-
-> गुरुशुश्रूषया भक्त्या सर्वलब्धार्पणेन च
-> सङ्गेन साधुभक्तानामीश्वराराधनेन च ॥३०॥
-> श्रद्धया तत्कथायां च कीर्तनैर्गुणकर्मणाम
-> तत्पादाम्बुरुहध्यानात्तल्लिङ्गेक्षार्हणादिभिः ॥३१॥
 
 > guru-śuśrūṣayā bhaktyā
 > sarva-labdhārpaṇena ca
@@ -5716,9 +4760,6 @@ One's first duty is to accept a bona fide spiritual master. The student or disci
 
 ### SB 7.7.32
 
-> हरिः सर्वेषु भूतेषु भगवानास्त ईश्वरः
-> इति भूतानि मनसा कामैस्तैः साधु मानयेत ॥३२॥
-
 > hariḥ sarveṣu bhūteṣu
 > bhagavān āsta īśvaraḥ
 > iti bhūtāni manasā
@@ -5731,9 +4772,6 @@ One's first duty is to accept a bona fide spiritual master. The student or disci
 *Hariḥ sarveṣu bhūteṣu.* This statement is sometimes misunderstood by unscrupulous persons who wrongly conclude that because Hari, the Supreme Personality of Godhead, is situated in every living entity, every living entity is therefore Hari. Such foolish persons do not distinguish between the *ātmā* and the Paramātmā, who are situated in every body. The *ātma* is the living entity, and the Paramātmā is the Supreme Personality of Godhead. The individual living entity, however, is different from the Paramātmā, the Supreme Lord. Therefore *hariḥ sarveṣu bhūteṣu* means that Hari is situated as Paramātmā, not as *ātmā,* although *ātmā* is a part of Paramātmā. Offering respect to every living entity means offering respect to the Paramātmā situated in every living entity. One should not misunderstand every living entity to be the Paramātmā. Sometimes unscrupulous persons designate a living entity as *daridra-nārāyaṇa, svāmī-nārāyaṇa,* this Nārāyaṇa or that Nārāyaṇa. One should clearly understand that although Nārāyaṇa is situated in the core of the heart of every living entity, the living entity never becomes Nārāyaṇa.
 
 ### SB 7.7.33
-
-> एवं निर्जितषड्वर्गैः क्रियते भक्तिरीश्वरे
-> वासुदेवे भगवति यया संलभ्यते रतिः ॥३३॥
 
 > evaṁ nirjita-ṣaḍ-vargaiḥ
 > kriyate bhaktir īśvare
@@ -5748,9 +4786,6 @@ As mentioned in verses thirty and thirty-one, one's first duty is to approach th
 
 ### SB 7.7.34
 
-> निशम्य कर्माणि गुणानतुल्यान्वीर्याणि लीलातनुभिः कृतानि
-> यदातिहर्षोत्पुलकाश्रुगद्गदं प्रोत्कण्ठ उद्गायति रौति नृत्यति ॥३४॥
-
 > niśamya karmāṇi guṇān atulyān
 > vīryāṇi līlā-tanubhiḥ kṛtāni
 > yadātiharṣotpulakāśru-gadgadaṁ
@@ -5764,9 +4799,6 @@ The Lord's activities are uncommon. For example, when He appeared as Lord Rāmac
 
 ### SB 7.7.35
 
-> यदा ग्रहग्रस्त इव क्वचिद्धसत्याक्रन्दते ध्यायति वन्दते जनम
-> मुहुः श्वसन्वक्ति हरे जगत्पते नारायणेत्यात्ममतिर्गतत्रपः ॥३५॥
-
 > yadā graha-grasta iva kvacid dhasaty
 > ākrandate dhyāyati vandate janam
 > muhuḥ śvasan vakti hare jagat-pate
@@ -5779,9 +4811,6 @@ The Lord's activities are uncommon. For example, when He appeared as Lord Rāmac
 When one chants the holy name of the Lord in ecstasy, not caring for outward social conventions, it is to be understood that he is *ātma-mati.* In other words, his consciousness is turned toward the Supreme Personality of Godhead.
 
 ### SB 7.7.36
-
-> तदा पुमान्मुक्तसमस्तबन्धनस्तद्भावभावानुकृताशयाकृतिः
-> निर्दग्धबीजानुशयो महीयसा भक्तिप्रयोगेण समेत्यधोक्षजम ॥३६॥
 
 > tadā pumān mukta-samasta-bandhanas
 > tad-bhāva-bhāvānukṛtāśayākṛtiḥ
@@ -5801,9 +4830,6 @@ When a devotee is completely purified, he becomes *anyābhilāṣitā-śūnya.* 
 The ecstatic condition of devotional service was completely exhibited by Śrī Caitanya Mahāprabhu, who sometimes danced, sometimes cried, sometimes sang, sometimes remained silent, and sometimes chanted the holy name of the Lord. That is perfect spiritual existence.
 
 ### SB 7.7.37
-
-> अधोक्षजालम्भमिहाशुभात्मनः शरीरिणः संसृतिचक्रशातनम
-> तद्ब्रह्मनिर्वाणसुखं विदुर्बुधास्ततो भजध्वं हृदये हृदीश्वरम ॥३७॥
 
 > adhokṣajālambham ihāśubhātmanaḥ
 > śarīriṇaḥ saṁsṛti-cakra-śātanam
@@ -5831,9 +4857,6 @@ Generally it is understood that by merging into the existence of Brahman, the im
 "One who is transcendentally situated at once realizes the Supreme Brahman and becomes fully joyful. He never laments nor desires to have anything; he is equally disposed toward all living entities. In that state he attains pure devotional service unto the Lord." [[bg/18/54|(Bg. 18.54)]] If one advances further from the *brahma-nirvāṇa* platform, one enters the stage of devotional service (*mad-bhaktiṁ labhate parām*). The word *adhokṣajālambham* refers to keeping the mind always engaged in the Absolute Truth, who is beyond the mind and material speculation. *Sa vai manaḥ kṛṣṇa-padāravindayoḥ [[sb/9/4/18-20|[SB 9.4.18] ]].* This is the result of Deity worship. By constantly engaging in the service of the Lord and thinking of His lotus feet, one is automatically freed from all material contamination. Thus the word *brahma-nirvāṇa-sukham* indicates that when one is in touch with the Absolute Truth, material sense gratification is completely nullified.
 
 ### SB 7.7.38
-
-> कोऽतिप्रयासोऽसुरबालका हरेरुपासने स्वे हृदि छिद्रवत्सतः
-> स्वस्यात्मनः सख्युरशेषदेहिनां सामान्यतः किं विषयोपपादनैः ॥३८॥
 
 > ko 'ti-prayāso 'sura-bālakā harer
 > upāsane sve hṛdi chidravat sataḥ
@@ -5863,9 +4886,6 @@ Therefore there is no difficulty in coming in contact with the Supreme Lord (*ko
 
 ### SB 7.7.39
 
-> रायः कलत्रं पशवः सुतादयो गृहा मही कुञ्जरकोशभूतयः
-> सर्वेऽर्थकामाः क्षणभङ्गुरायुषः कुर्वन्ति मर्त्यस्य कियत्प्रियं चलाः ॥३९॥
-
 > rāyaḥ kalatraṁ paśavaḥ sutādayo
 > gṛhā mahī kuñjara-kośa-bhūtayaḥ
 > sarve 'rtha-kāmāḥ kṣaṇa-bhaṅgurāyuṣaḥ
@@ -5880,9 +4900,6 @@ This verse describes how the advocates of economic development are frustrated by
 On the other hand, our relationship with Kṛṣṇa, the Supreme Personality of Godhead, is eternal. *Nitya-siddha kṛṣṇa-prema.* The pure souls are eternally in love with Kṛṣṇa, and this permanent love, either as a servant, a friend, a parent or a conjugal lover, is not at all difficult to revive. Especially in this age, the concession is that simply by chanting the Hare Kṛṣṇa *mantra* (*harer nāma harer nāma harer nāmaiva kevalam* [[cc/adi/17/21|[Cc. Ādi 17.21] ]]) one revives his original relationship with God and thus becomes so happy that he does not want anything material. As enunciated by Śrī Caitanya Mahāprabhu, *na dhanaṁ na janaṁ na sundarīṁ kavitāṁ vā jagad-īśa kāmaye* [[cc/antya/20/29|[Cc. Antya 20.29, Śikṣāṣṭaka 4] ]]. A very advanced devotee in Kṛṣṇa consciousness does not want riches, followers or possessions. *Rāyaḥ kalatraṁ paśavaḥ sutādayo gṛhā mahī kuñjara-kośa-bhūtayaḥ.* The satisfaction of possessing material opulences, although perhaps of a different standard, is available even in the lives of dogs and hogs, who cannot revive their eternal relationship with Kṛṣṇa. In human life, however, our eternal, dormant relationship with Kṛṣṇa is possible to revive. Therefore Prahlāda Mahārāja has described this life as *arthadam.* Consequently, instead of wasting our time for economic development, which cannot give us any happiness, if we simply try to revive our eternal relationship with Kṛṣṇa, we will properly utilize our lives.
 
 ### SB 7.7.40
-
-> एवं हि लोकाः क्रतुभिः कृता अमी क्षयिष्णवः सातिशया न निर्मलाः
-> तस्माददृष्टश्रुतदूषणं परं भक्त्योक्तयेशं भजतात्मलब्धये ॥४०॥
 
 > evaṁ hi lokāḥ kratubhiḥ kṛtā amī
 > kṣayiṣṇavaḥ sātiśayā na nirmalāḥ
@@ -5903,9 +4920,6 @@ The living entity is rotating in the cycle of birth and death, going sometimes t
 
 ### SB 7.7.41
 
-> यदर्थ इह कर्माणि विद्वन्मान्यसकृन्नरः
-> करोत्यतो विपर्यासममोघं विन्दते फलम ॥४१॥
-
 > yad-artha iha karmāṇi
 > vidvan-māny asakṛn naraḥ
 > karoty ato viparyāsam
@@ -5918,9 +4932,6 @@ The living entity is rotating in the cycle of birth and death, going sometimes t
 No one has ever achieved the results he desired from material activities. On the contrary, everyone has been frustrated again and again. Therefore one must not waste his time in such material activities for sensual pleasure, either in this life or in the next. So many nationalists, economists and other ambitious persons have tried for happiness, individually or collectively, but history proves that they have all been frustrated. In recent history we have seen many political leaders work hard for individual and collective economic development, but they have all failed. This is the law of nature, as clearly explained in the next verse.
 
 ### SB 7.7.42
-
-> सुखाय दुःखमोक्षाय सङ्कल्प इह कर्मिणः
-> सदाप्नोतीहया दुःखमनीहायाः सुखावृतः ॥४२॥
 
 > sukhāya duḥkha-mokṣāya
 > saṅkalpa iha karmiṇaḥ
@@ -5942,9 +4953,6 @@ Every conditioned soul is bound by the laws of material nature, as described in 
 
 ### SB 7.7.43
 
-> कामान्कामयते काम्यैर्यदर्थमिह पूरुषः
-> स वै देहस्तु पारक्यो भङ्गुरो यात्युपैति च ॥४३॥
-
 > kāmān kāmayate kāmyair
 > yad-artham iha pūruṣaḥ
 > sa vai dehas tu pārakyo
@@ -5958,9 +4966,6 @@ Everyone desires comfort for his body and tries to make a suitable situation for
 
 ### SB 7.7.44
 
-> किमु व्यवहितापत्य दारागारधनादयः
-> राज्यकोशगजामात्य भृत्याप्ता ममतास्पदाः ॥४४॥
-
 > kim u vyavahitāpatya-
 > dārāgāra-dhanādayaḥ
 > rājya-kośa-gajāmātya-
@@ -5971,9 +4976,6 @@ Everyone desires comfort for his body and tries to make a suitable situation for
 **Since the body itself is ultimately meant to become stool or earth, what is the meaning of the paraphernalia related to the body, such as wives, residences, wealth, children, relatives, servants, friends, kingdoms, treasuries, animals and ministers? They are also temporary. What more can be said about this?**
 
 ### SB 7.7.45
-
-> किमेतैरात्मनस्तुच्छैः सह देहेन नश्वरैः
-> अनर्थैरर्थसङ्काशैर्नित्यानन्दरसोदधेः ॥४५॥
 
 > kim etair ātmanas tucchaiḥ
 > saha dehena naśvaraiḥ
@@ -5988,9 +4990,6 @@ Kṛṣṇa consciousness, devotional service to Kṛṣṇa, is the ocean of et
 
 ### SB 7.7.46
 
-> निरूप्यतामिह स्वार्थः कियान्देहभृतोऽसुराः
-> निषेकादिष्ववस्थासु क्लिश्यमानस्य कर्मभिः ॥४६॥
-
 > nirūpyatām iha svārthaḥ
 > kiyān deha-bhṛto 'surāḥ
 > niṣekādiṣv avasthāsu
@@ -6003,9 +5002,6 @@ Kṛṣṇa consciousness, devotional service to Kṛṣṇa, is the ocean of et
 *Karmaṇā daiva-netreṇa jantur dehopapattaye* [[sb/3/31/1|[SB 3.31.1] ]]. The living entity receives a particular type of body according to his *karma,* or fruitive activities. The material pleasure derived in the material world from one's particular body is based on sexual pleasure/ *yan maithunādi-gṛhamedhi-sukhaṁ hi tuccham* [[sb/7/9/45|[SB 7.9.45] ]]. The entire world is working so hard only for sexual pleasure. To enjoy sexual pleasure and maintain the status quo of material life, one must work very hard, and because of such activities, one prepares himself another material body. Prahlāda Mahārāja places this matter to his friends, the *asuras,* for their consideration. *Asuras* generally cannot understand that the objects of sexual pleasure, the so-called pleasure of materialistic life, depend on extremely hard labor.
 
 ### SB 7.7.47
-
-> कर्माण्यारभते देही देहेनात्मानुवर्तिना
-> कर्मभिस्तनुते देहमुभयं त्वविवेकतः ॥४७॥
 
 > karmāṇy ārabhate dehī
 > dehenātmānuvartinā
@@ -6027,9 +5023,6 @@ The living entity's evolution through different types of bodies is conducted aut
 
 ### SB 7.7.48
 
-> तस्मादर्थाश्च कामाश्च धर्माश्च यदपाश्रयाः
-> भजतानीहयात्मानमनीहं हरिमीश्वरम ॥४८॥
-
 > tasmād arthāś ca kāmāś ca
 > dharmāś ca yad-apāśrayāḥ
 > bhajatānīhayātmānam
@@ -6042,9 +5035,6 @@ The living entity's evolution through different types of bodies is conducted aut
 These are words of intelligence. Everyone should know that in every stage of life we are dependent upon the Supreme Personality of Godhead. Therefore the *dharma,* religion, which we accept should be that which is recommended by Prahlāda Mahārāja—*bhāgavata-dharma.* This is the instruction of Kṛṣṇa: *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja* [[bg/18/66|[Bg. 18.66] ]]. To take shelter of the lotus feet of Kṛṣṇa means to act according to the rules and regulations of *bhāgavata-dharma,* devotional service. As far as economic development is concerned, we should discharge our occupational duties but fully depend on the lotus feet of the Lord for the results. *Karmaṇy evādhikāras te mā phaleṣu kadācana:* "You have a right to perform your prescribed duty, but you are not entitled to the fruits of action." According to one's position, one should perform his duties, but for the results one should fully depend upon Kṛṣṇa. Narottama dāsa Ṭhākura sings that our only desire should be to perform the duties of Kṛṣṇa consciousness. We should not be misled by the *karma-mīmāṁsā* philosophy, which concludes that if we work seriously the results will come automatically. This is not a fact. The ultimate result depends upon the will of the Supreme Personality of Godhead. In devotional service, therefore, the devotee completely depends upon the Lord and honestly performs his occupational duties. Therefore Prahlāda Mahārāja advised his friends to depend completely on Kṛṣṇa and worship Him in devotional service.
 
 ### SB 7.7.49
-
-> सर्वेषामपि भूतानां हरिरात्मेश्वरः प्रियः
-> भूतैर्महद्भिः स्वकृतैः कृतानां जीवसंज्ञइतः ॥४९॥
 
 > sarveṣām api bhūtānāṁ
 > harir ātmeśvaraḥ priyaḥ
@@ -6066,9 +5056,6 @@ The Supreme Personality of Godhead is manifested by His different energies—the
 
 ### SB 7.7.50
 
-> देवोऽसुरो मनुष्यो वा यक्षो गन्धर्व एव वा
-> भजन्मुकुन्दचरणं स्वस्तिमान्स्याद्यथा वयम ॥५०॥
-
 > devo 'suro manuṣyo vā
 > yakṣo gandharva eva vā
 > bhajan mukunda-caraṇaṁ
@@ -6081,11 +5068,6 @@ The Supreme Personality of Godhead is manifested by His different energies—the
 Prahlāda Mahārāja, by his living example, requested his friends to engage in devotional service. Whether in demigod society, *asura* society, human society or Gandharva society, every living entity should take shelter of the lotus feet of Mukunda and thus become perfect in good fortune.
 
 ### SB 7.7.51-52
-
-> नालं द्विजत्वं देवत्वमृषित्वं वासुरात्मजाः
-> प्रीणनाय मुकुन्दस्य न वृत्तं न बहुज्ञअता ॥५१॥
-> न दानं न तपो नेज्या न शौचं न व्रतानि च
-> प्रीयतेऽमलया भक्त्या हरिरन्यद्विडम्बनम ॥५२॥
 
 > nālaṁ dvijatvaṁ devatvam
 > ṛṣitvaṁ vāsurātmajāḥ
@@ -6119,9 +5101,6 @@ Prahlāda Mahārāja concludes that one can become perfect by serving the Suprem
 
 ### SB 7.7.53
 
-> ततो हरौ भगवति भक्तिं कुरुत दानवाः
-> आत्मौपम्येन सर्वत्र सर्वभूतात्मनीश्वरे ॥५३॥
-
 > tato harau bhagavati
 > bhaktiṁ kuruta dānavāḥ
 > ātmaupamyena sarvatra
@@ -6140,9 +5119,6 @@ The word *ātmaupamyena* refers to thinking others to be like oneself. One can v
 The entire world is suffering for want of Kṛṣṇa consciousness. Therefore Śrī Caitanya Mahāprabhu advised all human beings born in India to make their lives perfect by Kṛṣṇa consciousness and then preach the gospel of Kṛṣṇa consciousness all over the world so that others may become happy by executing the principles of Kṛṣṇa consciousness.
 
 ### SB 7.7.54
-
-> दैतेया यक्षरक्षांसि स्त्रियः शूद्रा व्रजौकसः
-> खगा मृगाः पापजीवाः सन्ति ह्यच्युततां गताः ॥५४॥
 
 > daiteyā yakṣa-rakṣāṁsi
 > striyaḥ śūdrā vrajaukasaḥ
@@ -6163,9 +5139,6 @@ The devotees are referred to as *acyuta-gotra,* or the dynasty of the Supreme Pe
 "One who knows the transcendental nature of My appearance and activities does not, upon leaving the body, take his birth again in this material world, but attains My eternal abode, O Arjuna." One should understand Acyuta, the supreme infallible, and how we are related with Him, and one should take to the service of the Lord. This is the perfection of life. Śrīla Madhvācārya says, *acyutatāṁ cyuti-varjanam.* The word *acyutatām* refers to one who never falls to this material world but always remains in the Vaikuṇṭha world, fully engaged in the service of the Lord.
 
 ### SB 7.7.55
-
-> एतावानेव लोकेऽस्मिन्पुंसः स्वार्थः परः स्मृतः
-> एकान्तभक्तिर्गोविन्दे यत्सर्वत्र तदीक्षणम ॥५५॥
 
 > etāvān eva loke 'smin
 > puṁsaḥ svārthaḥ paraḥ smṛtaḥ
@@ -6203,10 +5176,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Seventh Chapter, of th
 
 ### SB 7.8.1
 
-> श्रीनारद उवाच
-> अथ दैत्यसुताः सर्वे श्रुत्वा तदनुवर्णितम
-> जगृहुर्निरवद्यत्वान्नैव गुर्वनुशिक्षितम ॥१॥
-
 > śrī-nārada uvāca
 > atha daitya-sutāḥ sarve
 > śrutvā tad-anuvarṇitam
@@ -6226,9 +5195,6 @@ If one tries to understand the discourses given by the *sat,* or pure devotees, 
 
 ### SB 7.8.2
 
-> अथाचार्यसुतस्तेषां बुद्धिमेकान्तसंस्थिताम
-> आलक्ष्य भीतस्त्वरितो राज्ञअ आवेदयद्यथा ॥२॥
-
 > athācārya-sutas teṣāṁ
 > buddhim ekānta-saṁsthitām
 > ālakṣya bhītas tvarito
@@ -6241,11 +5207,6 @@ If one tries to understand the discourses given by the *sat,* or pure devotees, 
 The words *buddhim ekānta-saṁsthitām* indicate that as an effect of Prahlāda Mahārāja's preaching, the students who listened to him became fixed in the conclusion that Kṛṣṇa consciousness is the only object of human life. The fact is that anyone who associates with a pure devotee and follows his instructions becomes fixed in Kṛṣṇa consciousness and is not disturbed by materialistic consciousness. The teachers particularly observed this in their students, and therefore they were afraid because the whole community of students was gradually becoming Kṛṣṇa conscious.
 
 ### SB 7.8.3-4
-
-> श्रुत्वा तदप्रियं दैत्यो दुःसहं तनयानयम
-> कोपावेशचलद्गात्रः पुत्रं हन्तुं मनो दधे ॥३॥
-> क्षिप्त्वा परुषया वाचा प्रह्रादमतदर्हणम
-> आहेक्षमाणः पापेन तिरश्चीनेन चक्षुषा ॥४॥
 
 > kopāveśa-calad-gātraḥ
 > putraṁ hantuṁ mano dadhe
@@ -6274,9 +5235,6 @@ When one is impudent toward a highly authorized devotee, one is punished by the 
 
 ### SB 7.8.5
 
-> प्रश्रयावनतं दान्तं बद्धाञ्जलिमवस्थितम
-> सर्पः पदाहत इव श्वसन्प्रकृतिदारुणः ॥५॥
-
 > śrī-hiraṇyakaśipur uvāca
 > he durvinīta mandātman
 > kula-bheda-karādhama
@@ -6293,10 +5251,6 @@ Hiraṇyakaśipu condemned his Vaiṣṇava son Prahlāda for being *durvinīta*
 
 ### SB 7.8.6
 
-> श्रीहिरण्यकशिपुरुवाच
-> हे दुर्विनीत मन्दात्मन्कुलभेदकराधम
-> स्तब्धं मच्छासनोद्वृत्तं नेष्ये त्वाद्य यमक्षयम ॥६॥
-
 > kruddhasya yasya kampante
 > trayo lokāḥ saheśvarāḥ
 > tasya me 'bhītavan mūḍha
@@ -6311,9 +5265,6 @@ The relationship between a pure devotee and the Supreme Personality of Godhead i
 Hiraṇyakaśipu was perplexed about how his five-year-old boy could be so fearless that he did not care for the order of his very great and powerful father. A devotee cannot execute the order of anyone except the Supreme Personality of Godhead. This is the position of a devotee. Hiraṇyakaśipu could understand that this boy must have been very powerful, since the boy did not heed his orders. Hiraṇyakaśipu asked his son, *kiṁ balaḥ:* "How have you overcome my order? By whose strength have you done this?"
 
 ### SB 7.8.7
-
-> क्रुद्धस्य यस्य कम्पन्ते त्रयो लोकाः सहेश्वराः
-> तस्य मेऽभीतवन्मूढ शासनं किं बलोऽत्यगाः ॥७॥
 
 > śrī-prahrāda uvāca
 > na kevalaṁ me bhavataś ca rājan
@@ -6345,10 +5296,6 @@ Understanding the subordinate position of the living entity takes millions of bi
 
 ### SB 7.8.8
 
-> श्रीप्रह्राद उवाच
-> न केवलं मे भवतश्च राजन्स वै बलं बलिनां चापरेषाम
-> परेऽवरेऽमी स्थिरजङ्गमा ये ब्रह्मादयो येन वशं प्रणीताः ॥८॥
-
 > sa īśvaraḥ kāla urukramo 'sāv
 > ojaḥ sahaḥ sattva-balendriyātmā
 > sa eva viśvaṁ paramaḥ sva-śaktibhiḥ
@@ -6361,9 +5308,6 @@ Understanding the subordinate position of the living entity takes millions of bi
 Since the material world is being moved by the three material modes and since the Lord is their master, the Lord can create, maintain and destroy the material world.
 
 ### SB 7.8.9
-
-> स ईश्वरः काल उरुक्रमोऽसावोजः सहः सत्त्वबलेन्द्रियात्मा
-> स एव विश्वं परमः स्वशक्तिभिः सृजत्यवत्यत्ति गुणत्रयेशः ॥९॥
 
 > jahy āsuraṁ bhāvam imaṁ tvam ātmanaḥ
 > samaṁ mano dhatsva na santi vidviṣaḥ
@@ -6385,9 +5329,6 @@ Unless one is able to fix the mind at the lotus feet of the Lord, the mind is im
 
 ### SB 7.8.10
 
-> जह्यासुरं भावमिमं त्वमात्मनः समं मनो धत्स्व न सन्ति विद्विषः
-> ऋतेऽजितादात्मन उत्पथे स्थितात्तद्धि ह्यनन्तस्य महत्समर्हणम ॥१०॥
-
 > dasyūn purā ṣaṇ na vijitya lumpato
 > manyanta eke sva-jitā diśo daśa
 > jitātmano jñasya samasya dehināṁ
@@ -6400,9 +5341,6 @@ Unless one is able to fix the mind at the lotus feet of the Lord, the mind is im
 In this material world, everyone thinks that he has conquered his enemies, not understanding that his enemies are his uncontrolled mind and five senses (*manaḥ ṣaṣṭhānīndriyāṇi prakṛti-sthāni karṣati* [[bg/15/7|[Bg. 15.7] ]]). In this material world, everyone has become a servant of the senses. Originally everyone is a servant of Kṛṣṇa, but in ignorance one forgets this, and thus one is engaged in the service of *māyā* through lusty desires, anger, greed, illusion, madness and jealousy. Everyone is actually dependent on the reactions of material laws, but still one thinks himself independent and thinks that he has conquered all directions. In conclusion, one who thinks that he has many enemies is an ignorant man, whereas one who is in Kṛṣṇa consciousness knows that there are no enemies but those within oneself—the uncontrolled mind and senses.
 
 ### SB 7.8.11
-
-> दस्यून्पुरा षण्न विजित्य लुम्पतो मन्यन्त एके स्वजिता दिशो दश
-> जितात्मनो ज्ञअस्य समस्य देहिनां साधोः स्वमोहप्रभवाः कुतः परे ॥११॥
 
 > śrī-hiraṇyakaśipur uvāca
 > vyaktaṁ tvaṁ martu-kāmo 'si
@@ -6417,10 +5355,6 @@ In this material world, everyone thinks that he has conquered his enemies, not u
 It is said in *Hitopadeśa, upadeśo hi mūrkhāṇāṁ prakopāya na śāntaye.* If good instructions are given to a foolish person, he does not take advantage of them, but becomes more and more angry. Prahlāda Mahārāja's authorized instructions to his father were not accepted by Hiraṇyakaśipu as truth; instead Hiraṇyakaśipu became increasingly angry at his great son, who was a pure devotee. This kind of difficulty always exists when a devotee preaches Kṛṣṇa consciousness to persons like Hiraṇyakaśipu, who are interested in money and women. (The word *hiraṇya* means "gold," and *kaśipu* refers to cushions or good bedding.) Moreover, a father does not like to be instructed by his son, especially if the father is a demon. Prahlāda Mahārāja's Vaiṣṇava preaching to his demoniac father was indirectly effective, for because of Hiraṇyakaśipu's excessive jealousy of Kṛṣṇa and His devotee, he was inviting Nṛsiṁhadeva to kill him very quickly. Thus he was expediting his being killed by the Lord Himself. Although Hiraṇyakaśipu was a demon, he is described here by the added word *śrī.* Why? The answer is that fortunately he had such a great devotee son as Prahlāda Mahārāja. Thus although he was a demon, he would attain salvation and return home, back to Godhead.
 
 ### SB 7.8.12
-
-> श्रीहिरण्यकशिपुरुवाच
-> व्यक्तं त्वं मर्तुकामोऽसि योऽतिमात्रं विकत्थसे
-> मुमूर्षूणां हि मन्दात्मन्ननु स्युर्विक्लवा गिरः ॥१२॥
 
 > yas tvayā manda-bhāgyokto
 > mad-anyo jagad-īśvaraḥ
@@ -6437,9 +5371,6 @@ Prahlāda Mahārāja has here been addressed by his father as "the most unfortun
 
 ### SB 7.8.13
 
-> यस्त्वया मन्दभाग्योक्तो मदन्यो जगदीश्वरः
-> क्वासौ यदि स सर्वत्र कस्मात्स्तम्भे न दृश्यते ॥१३॥
-
 > so 'haṁ vikatthamānasya
 > śiraḥ kāyād dharāmi te
 > gopāyeta haris tvādya
@@ -6453,9 +5384,6 @@ Demons always think that the God of the devotees is fictitious. They think that 
 
 ### SB 7.8.14
 
-> सोऽहं विकत्थमानस्य शिरः कायाद्धरामि ते
-> गोपायेत हरिस्त्वाद्य यस्ते शरणमीप्सितम ॥१४॥
-
 > evaṁ duruktair muhur ardayan ruṣā
 > sutaṁ mahā-bhāgavataṁ mahāsuraḥ
 > khaḍgaṁ pragṛhyotpatito varāsanāt
@@ -6466,9 +5394,6 @@ Demons always think that the God of the devotees is fictitious. They think that 
 **Being obsessed with anger, Hiraṇyakaśipu, who was very great in bodily strength, thus chastised his exalted devotee-son Prahlāda with harsh words. Cursing him again and again, Hiraṇyakaśipu took up his sword, got up from his royal throne, and with great anger struck his fist against the column.**
 
 ### SB 7.8.15
-
-> एवं दुरुक्तैर्मुहुरर्दयन्रुषा सुतं महाभागवतं महासुरः
-> खड्गं प्रगृह्योत्पतितो वरासनात्स्तम्भं तताडातिबलः स्वमुष्टिना ॥१५॥
 
 > tadaiva tasmin ninado 'tibhīṣaṇo
 > babhūva yenāṇḍa-kaṭāham asphuṭat
@@ -6482,9 +5407,6 @@ Demons always think that the God of the devotees is fictitious. They think that 
 As we sometimes become very much afraid at the sound of a thunderbolt, perhaps thinking that our houses will be destroyed, the great demigods like Lord Brahmā feared the thundering sound that came from the pillar in front of Hiraṇyakaśipu.
 
 ### SB 7.8.16
-
-> तदैव तस्मिन्निनदोऽतिभीषणो बभूव येनाण्डकटाहमस्फुटत
-> यं वै स्वधिष्ण्योपगतं त्वजादयः श्रुत्वा स्वधामात्ययमङ्ग मेनिरे ॥१६॥
 
 > sa vikraman putra-vadhepsur ojasā
 > niśamya nirhrādam apūrvam adbhutam
@@ -6506,9 +5428,6 @@ In *Bhagavad-gītā (7.8),* Kṛṣṇa explains Himself by saying:
 
 ### SB 7.8.17
 
-> स विक्रमन्पुत्रवधेप्सुरोजसा निशम्य निर्ह्रादमपूर्वमद्भुतम
-> अन्तःसभायां न ददर्श तत्पदं वितत्रसुर्येन सुरारियूथपाः ॥१७॥
-
 > satyaṁ vidhātuṁ nija-bhṛtya-bhāṣitaṁ
 > vyāptiṁ ca bhūteṣv akhileṣu cātmanaḥ
 > adṛśyatātyadbhuta-rūpam udvahan
@@ -6522,9 +5441,6 @@ When Hiraṇyakaśipu asked Prahlāda Mahārāja, "Where is your Lord? Is He pre
 
 ### SB 7.8.18
 
-> सत्यं विधातुं निजभृत्यभाषितं व्याप्तिं च भूतेष्वखिलेषु चात्मनः
-> अदृश्यतात्यद्भुतरूपमुद्वहन्स्तम्भे सभायां न मृगं न मानुषम ॥१८॥
-
 > sa sattvam enaṁ parito vipaśyan
 > stambhasya madhyād anunirjihānam
 > nāyaṁ mṛgo nāpi naro vicitram
@@ -6537,15 +5453,6 @@ When Hiraṇyakaśipu asked Prahlāda Mahārāja, "Where is your Lord? Is He pre
 A demon cannot calculate the unlimited potency of the Supreme Lord. As stated in the *Vedas, parāsya śaktir vividhaiva śrūyate svābhāvikī jñāna-bala-kriyā ca: [Cc. Madhya 13.65, purport]* the different potencies of the Lord are always working as an automatic exhibition of His knowledge. For a demon it is certainly wonderful that the form of a lion and the form of a man can be united, since a demon has no experience of the inconceivable power for which the Supreme Lord is called "all-powerful." Demons cannot understand the omnipotence of the Lord. They simply compare the Lord to one of them (*avajānanti māṁ mūḍhā mānuṣīṁ tanum āśritam* [[bg/9/11|[Bg. 9.11] ]]). *Mūḍhas,* rascals, think that Kṛṣṇa is an ordinary human being who appears for the benefit of other human beings. *paraṁ bhāvam ajānantaḥ:* fools, rascals and demons cannot realize the supreme potency of the Lord, but He can do anything and everything; indeed, He can do whatever He likes. When Hiraṇyakaśipu received benedictions from Lord Brahmā, he thought that he was safe, since he received the benediction that he would not be killed either by an animal or by a human being. He never thought that an animal and human being would be combined so that demons like him would be puzzled by such a form. This is the meaning of the Supreme Personality of Godhead's omnipotence.
 
 ### SB 7.8.19-22
-
-> स सत्त्वमेनं परितो विपश्यन्स्तम्भस्य मध्यादनुनिर्जिहानम
-> नायं मृगो नापि नरो विचित्रमहो किमेतन्नृमृगेन्द्ररूपम ॥१९॥
-> मीमांसमानस्य समुत्थितोऽग्रतो नृसिंहरूपस्तदलं भयानकम
-> प्रतप्तचामीकरचण्डलोचनं स्फुरत्सटाकेशरजृम्भिताननम ॥२०॥
-> करालदंष्ट्रं करवालचञ्चल क्षुरान्तजिह्वं भ्रुकुटीमुखोल्बणम
-> स्तब्धोर्ध्वकर्णं गिरिकन्दराद्भुत व्यात्तास्यनासं हनुभेदभीषणम ॥२१॥
-> दिविस्पृशत्कायमदीर्घपीवर ग्रीवोरुवक्षःस्थलमल्पमध्यमम
-> चन्द्रांशुगौरैश्छुरितं तनूरुहैर्विष्वग्भुजानीकशतं नखायुधम ॥२२॥
 
 > mīmāṁsamānasya samutthito 'grato
 > nṛsiṁha-rūpas tad alaṁ bhayānakam
@@ -6571,9 +5478,6 @@ A demon cannot calculate the unlimited potency of the Supreme Lord. As stated in
 
 ### SB 7.8.23
 
-> दुरासदं सर्वनिजेतरायुध प्रवेकविद्रावितदैत्यदानवम
-> प्रायेण मेऽयं हरिणोरुमायिना वधः स्मृतोऽनेन समुद्यतेन किम ॥२३॥
-
 > prāyeṇa me 'yaṁ hariṇorumāyinā
 > vadhaḥ smṛto 'nena samudyatena kim
 > evaṁ bruvaṁs tv abhyapatad gadāyudho
@@ -6586,9 +5490,6 @@ A demon cannot calculate the unlimited potency of the Supreme Lord. As stated in
 In the jungle there are sometimes fights between lions and elephants. Here the Lord appeared like a lion, and Hiraṇyakaśipu, unafraid of the Lord, attacked Him like an elephant. Generally the elephant is defeated by the lion, and therefore the comparison in this verse is appropriate.
 
 ### SB 7.8.24
-
-> एवं ब्रुवंस्त्वभ्यपतद्गदायुधो नदन्नृसिंहं प्रति दैत्यकुञ्जरः
-> अलक्षितोऽग्नौ पतितः पतङ्गमो यथा नृसिंहौजसि सोऽसुरस्तदा ॥२४॥
 
 > alakṣito 'gnau patitaḥ pataṅgamo
 > yathā nṛsiṁhaujasi so 'suras tadā
@@ -6608,9 +5509,6 @@ The Lord is situated transcendentally, in pure goodness. The material world is g
 
 ### SB 7.8.25
 
-> न तद्विचित्रं खलु सत्त्वधामनि स्वतेजसा यो नु पुरापिबत्तमः
-> ततोऽभिपद्याभ्यहनन्महासुरो रुषा नृसिंहं गदयोरुवेगया ॥२५॥
-
 > tato 'bhipadyābhyahanan mahāsuro
 > ruṣā nṛsiṁhaṁ gadayoruvegayā
 > taṁ vikramantaṁ sagadaṁ gadādharo
@@ -6621,9 +5519,6 @@ The Lord is situated transcendentally, in pure goodness. The material world is g
 **Thereafter, the great demon Hiraṇyakaśipu, who was extremely angry, swiftly attacked Nṛsiṁhadeva with his club and began to beat Him. Lord Nṛsiṁhadeva, however, captured the great demon, along with his club, just as Garuḍa might capture a great snake.**
 
 ### SB 7.8.26
-
-> तं विक्रमन्तं सगदं गदाधरो महोरगं तार्क्ष्यसुतो यथाग्रहीत
-> स तस्य हस्तोत्कलितस्तदासुरो विक्रीडतो यद्वदहिर्गरुत्मतः ॥२६॥
 
 > sa tasya hastotkalitas tadāsuro
 > vikrīḍato yadvad ahir garutmataḥ
@@ -6638,10 +5533,6 @@ When Hiraṇyakaśipu was in the process of being killed by Lord Nṛsiṁhadeva
 
 ### SB 7.8.27
 
-> असाध्वमन्यन्त हृतौकसोऽमरा घनच्छदा भारत सर्वधिष्ण्यपाः
-> तं मन्यमानो निजवीर्यशङ्कितं यद्धस्तमुक्तो नृहरिं महासुरः
-> पुनस्तमासज्जत खड्गचर्मणी प्रगृह्य वेगेन गतश्रमो मृधे ॥२७॥
-
 > taṁ manyamāno nija-vīrya-śaṅkitaṁ
 > yad dhasta-mukto nṛhariṁ mahāsuraḥ
 > punas tam āsajjata khaḍga-carmaṇī
@@ -6655,9 +5546,6 @@ When a sinful man enjoys material facilities, foolish people sometimes think, "H
 
 ### SB 7.8.28
 
-> तं श्येनवेगं शतचन्द्रवर्त्मभिश्चरन्तमच्छिद्रमुपर्यधो हरिः
-> कृत्वाट्टहासं खरमुत्स्वनोल्बणं निमीलिताक्षं जगृहे महाजवः ॥२८॥
-
 > taṁ śyena-vegaṁ śata-candra-vartmabhiś
 > carantam acchidram upary-adho hariḥ
 > kṛtvāṭṭa-hāsaṁ kharam utsvanolbaṇaṁ
@@ -6668,9 +5556,6 @@ When a sinful man enjoys material facilities, foolish people sometimes think, "H
 **Making a loud, shrill sound of laughter, the Supreme Personality of Godhead, Nārāyaṇa, who is extremely strong and powerful, captured Hiraṇyakaśipu, who was protecting himself with his sword and shield, leaving no gaps open. With the speed of a hawk, Hiraṇyakaśipu moved sometimes in the sky and sometimes on the earth, his eyes closed because of fear of Nṛsiṁhadeva's laughter.**
 
 ### SB 7.8.29
-
-> विष्वक्स्फुरन्तं ग्रहणातुरं हरिर्व्यालो यथाखुं कुलिशाक्षतत्वचम
-> द्वार्यूरुमापत्य ददार लीलया नखैर्यथाहिं गरुडो महाविषम ॥२९॥
 
 > viṣvak sphurantaṁ grahaṇāturaṁ harir
 > vyālo yathākhuṁ kuliśākṣata-tvacam
@@ -6685,9 +5570,6 @@ Hiraṇyakaśipu had received from Lord Brahmā the benediction that he would no
 
 ### SB 7.8.30
 
-> संरम्भदुष्प्रेक्ष्यकराललोचनो व्यात्ताननान्तं विलिहन्स्वजिह्वया
-> असृग्लवाक्तारुणकेशराननो यथान्त्रमाली द्विपहत्यया हरिः ॥३०॥
-
 > saṁrambha-duṣprekṣya-karāla-locano
 > vyāttānanāntaṁ vilihan sva-jihvayā
 > asṛg-lavāktāruṇa-keśarānano
@@ -6701,9 +5583,6 @@ The hair on Lord Nṛsiṁhadeva's face, being sprinkled with drops of blood, wa
 
 ### SB 7.8.31
 
-> नखाङ्कुरोत्पाटितहृत्सरोरुहं विसृज्य तस्यानुचरानुदायुधान
-> अहन्समस्तान्नखशस्त्रपाणिभिर्दोर्दण्डयूथोऽनुपथान्सहस्रशः ॥३१॥
-
 > nakhāṅkurotpāṭita-hṛt-saroruhaṁ
 > visṛjya tasyānucarān udāyudhān
 > ahan samastān nakha-śastra-pāṇibhir
@@ -6716,9 +5595,6 @@ The hair on Lord Nṛsiṁhadeva's face, being sprinkled with drops of blood, wa
 Since the creation of the material world, there have been two kinds of men—the *devas* and the *asuras.* The *devas* are always faithful to the Supreme Personality of Godhead, whereas the *asuras* are always atheists who defy the supremacy of the Lord. At the present moment, throughout the entire world, the atheists are extremely numerous. They are trying to prove that there is no God and that everything takes place due to combinations and permutations of material elements. Thus the material world is becoming more and more godless, and consequently everything is in a disturbed condition. If this continues, the Supreme Personality of Godhead will certainly take action, as He did in the case of Hiraṇyakaśipu. Within a second, Hiraṇyakaśipu and his followers were destroyed, and similarly if this godless civilization continues, it will be destroyed in a second, simply by the movement of one finger of the Supreme Personality of Godhead. The demons should therefore be careful and curtail their godless civilization. They should take advantage of the Kṛṣṇa consciousness movement and become faithful to the Supreme Personality of Godhead; otherwise they are doomed. As Hiraṇyakaśipu was killed in a second, the godless civilization can be destroyed at any moment.
 
 ### SB 7.8.32
-
-> सटावधूता जलदाः परापतन्ग्रहाश्च तद्दृष्टिविमुष्टरोचिषः
-> अम्भोधयः श्वासहता विचुक्षुभुर्निर्ह्रादभीता दिगिभा विचुक्रुशुः ॥३२॥
 
 > saṭāvadhūtā jaladāḥ parāpatan
 > grahāś ca tad-dṛṣṭi-vimuṣṭa-rociṣaḥ
@@ -6740,9 +5616,6 @@ As the Lord says in *Bhagavad-gītā* [[bg/10/41|(Bg. 10.41)]]:
 
 ### SB 7.8.33
 
-> द्यौस्तत्सटोत्क्षिप्तविमानसङ्कुला प्रोत्सर्पत क्ष्मा च पदाभिपीडिता
-> शैलाः समुत्पेतुरमुष्य रंहसा तत्तेजसा खं ककुभो न रेजिरे ॥३३॥
-
 > dyaus tat-saṭotkṣipta-vimāna-saṅkulā
 > protsarpata kṣmā ca padābhipīḍitā
 > śailāḥ samutpetur amuṣya raṁhasā
@@ -6755,9 +5628,6 @@ As the Lord says in *Bhagavad-gītā* [[bg/10/41|(Bg. 10.41)]]:
 That there were airplanes flying in the sky long, long ago can be understood from this verse. *Śrīmad-Bhāgavatam* was spoken five thousand years ago, and the statements of this verse prove that the symptoms of a very advanced civilization then existed, even in the upper planetary systems, as well as in the lower planetary systems. Modern scientists and philosophers foolishly explain that there was no civilization prior to three thousand years ago, but the statement of this verse nullifies such whimsical judgments. The Vedic civilization existed millions and millions of years ago. It existed since the creation of this universe, and it included arrangements all over the universe with all the modern amenities and even more.
 
 ### SB 7.8.34
-
-> ततः सभायामुपविष्टमुत्तमे नृपासने सम्भृततेजसं विभुम
-> अलक्षितद्वैरथमत्यमर्षणं प्रचण्डवक्त्रं न बभाज कश्चन ॥३४॥
 
 > tataḥ sabhāyām upaviṣṭam uttame
 > nṛpāsane sambhṛta-tejasaṁ vibhum
@@ -6772,9 +5642,6 @@ When the Lord sat on the throne of Hiraṇyakaśipu, there was no one to protest
 
 ### SB 7.8.35
 
-> निशाम्य लोकत्रयमस्तकज्वरं तमादिदैत्यं हरिणा हतं मृधे
-> प्रहर्षवेगोत्कलितानना मुहुः प्रसूनवर्षैर्ववृषुः सुरस्त्रियः ॥३५॥
-
 > niśāmya loka-traya-mastaka-jvaraṁ
 > tam ādi-daityaṁ hariṇā hataṁ mṛdhe
 > praharṣa-vegotkalitānanā muhuḥ
@@ -6786,9 +5653,6 @@ When the Lord sat on the throne of Hiraṇyakaśipu, there was no one to protest
 
 ### SB 7.8.36
 
-> तदा विमानावलिभिर्नभस्तलं दिदृक्षतां सङ्कुलमास नाकिनाम
-> सुरानका दुन्दुभयोऽथ जघ्निरे गन्धर्वमुख्या ननृतुर्जगुः स्त्रियः ॥३६॥
-
 > tadā vimānāvalibhir nabhastalaṁ
 > didṛkṣatāṁ saṅkulam āsa nākinām
 > surānakā dundubhayo 'tha jaghnire
@@ -6799,14 +5663,6 @@ When the Lord sat on the throne of Hiraṇyakaśipu, there was no one to protest
 **At that time, the airplanes of the demigods, who desired to see the activities of the Supreme Lord, Nārāyaṇa, crowded the sky. The demigods began beating drums and kettledrums, and upon hearing them the angelic women began to dance, while the chiefs of the Gandharvas sang sweetly.**
 
 ### SB 7.8.37-39
-
-> तत्रोपव्रज्य विबुधा ब्रह्मेन्द्रगिरिशादयः
-> ऋषयः पितरः सिद्धा विद्याधरमहोरगाः ॥३७॥
-> मनवः प्रजानां पतयो गन्धर्वाप्सरचारणाः
-> यक्षाः किम्पुरुषास्तात वेतालाः सहकिन्नराः ॥३८॥
-> ते विष्णुपार्षदाः सर्वे सुनन्दकुमुदादयः
-> मूर्ध्नि बद्धाञ्जलिपुटा आसीनं तीव्रतेजसम
-> ईडिरे नरशार्दुलं नातिदूरचराः पृथक ॥३९॥
 
 > tatropavrajya vibudhā
 > brahmendra-giriśādayaḥ
@@ -6831,10 +5687,6 @@ When the Lord sat on the throne of Hiraṇyakaśipu, there was no one to protest
 
 ### SB 7.8.40
 
-> श्रीब्रह्मोवाच
-> नतोऽस्म्यनन्ताय दुरन्तशक्तये विचित्रवीर्याय पवित्रकर्मणे
-> विश्वस्य सर्गस्थितिसंयमान्गुणैः स्वलीलया सन्दधतेऽव्ययात्मने ॥४०॥
-
 > śrī-brahmovāca
 > nato 'smy anantāya duranta-śaktaye
 > vicitra-vīryāya pavitra-karmaṇe
@@ -6849,10 +5701,6 @@ The activities of the Lord are always wonderful. His personal servants Jaya and 
 
 ### SB 7.8.41
 
-> श्रीरुद्र उवाच
-> कोपकालो युगान्तस्ते हतोऽयमसुरोऽल्पकः
-> तत्सुतं पाह्युपसृतं भक्तं ते भक्तवत्सल ॥४१॥
-
 > śrī-rudra uvāca
 > kopa-kālo yugāntas te
 > hato 'yam asuro 'lpakaḥ
@@ -6866,12 +5714,6 @@ The activities of the Lord are always wonderful. His personal servants Jaya and 
 The Supreme Personality of Godhead is the creator of the material world. There are three processes in creation-namely creation, maintenance and finally annihilation. During the period of annihilation, at the end of each millennium, the Lord becomes angry, and the part of anger is played by Lord Śiva, who is therefore called Rudra. When the Lord appeared in great anger to kill Hiraṇyakaśipu, everyone was extremely afraid of the Lord's attitude, but Lord Śiva, knowing very well that the Lord's anger is also His *līlā,* was not afraid. Lord Śiva knew that he would have to play the part of anger for the Lord. *Kāla* means Lord Śiva (Bhairava), and *kopa* refers to the Lord's anger. These words, combined together as *kopa-kāla,* refer to the end of each millennium. Actually the Lord is always affectionate toward His devotees, even though He may appear very angry. Because He is *avyayātmā*-because He never falls down—even when angry the Lord is affectionate toward His devotees. Therefore Lord Śiva reminded the Lord to act like an affectionate father toward Prahlāda Mahārāja, who was standing by the Lord's side as an exalted, fully surrendered devotee.
 
 ### SB 7.8.42
-
-> श्रीइन्द्र उवाच
-> प्रत्यानीताः परम भवता त्रायता नः स्वभागा
-> दैत्याक्रान्तं हृदयकमलं तद्गृहं प्रत्यबोधि
-> कालग्रस्तं कियदिदमहो नाथ शुश्रूषतां ते
-> मुक्तिस्तेषां न हि बहुमता नारसिंहापरैः किम ॥४२॥
 
 > śrī-indra uvāca
 > pratyānītāḥ parama bhavatā trāyatā naḥ sva-bhāgā
@@ -6896,12 +5738,6 @@ Because the government in Kali-yuga is full of demons, the living conditions of 
 
 ### SB 7.8.43
 
-> श्रीऋषय ऊचुः
-> त्वं नस्तपः परममात्थ यदात्मतेजो
-> येनेदमादिपुरुषात्मगतं ससर्क्थ
-> तद्विप्रलुप्तममुनाद्य शरण्यपाल
-> रक्षागृहीतवपुषा पुनरन्वमंस्थाः ॥४३॥
-
 > śrī-ṛṣaya ūcuḥ
 > tvaṁ nas tapaḥ paramam āttha yad ātma-tejo
 > yenedam ādi-puruṣātma-gataṁ sasarktha
@@ -6915,12 +5751,6 @@ Because the government in Kali-yuga is full of demons, the living conditions of 
 The living entities wandering within the jurisdiction of the 8,400,000 species of life get the opportunity for self-realization in the human form and gradually in such other elevated forms as those of the demigods, Kinnaras and Cāraṇas, as will be described below. In the higher statuses of life, beginning from human life, the main duty is *tapasya,* or austerity. As Ṛṣabhadeva advised His sons, *tapo divyaṁ putrakā yena sattvaṁ śuddhyet* [[sb/5/5/1|[SB 5.5.1] ]]. To rectify our material existence, austerity (*tapasya*) is absolutely necessary. However, when people in general come under the control of a demon or a demoniac ruling power, they forget this process of *tapasya* and gradually also become demoniac. All the saintly persons, who were generally engaged in austerity, felt relieved when Hiraṇyakaśipu was killed by the Lord in the form of Nṛsiṁhadeva. They realized that the original instruction concerning human life—that it is meant for *tapasya* for self-realization—was reaffirmed by the Lord when He killed Hiraṇyakaśipu.
 
 ### SB 7.8.44
-
-> श्रीपितर ऊचुः
-> श्राद्धानि नोऽधिबुभुजे प्रसभं तनूजैर
-> दत्तानि तीर्थसमयेऽप्यपिबत्तिलाम्बु
-> तस्योदरान्नखविदीर्णवपाद्य आर्च्छत
-> तस्मै नमो नृहरयेऽखिलधर्मगोप्त्रे ॥४४॥
 
 > śrī-pitara ūcuḥ
 > śrāddhāni no 'dhibubhuje prasabhaṁ tanūjair
@@ -6936,10 +5766,6 @@ It is the duty of all householders to offer food grains to all their departed fo
 
 ### SB 7.8.45
 
-> श्रीसिद्धा ऊचुः
-> यो नो गतिं योगसिद्धामसाधुरहार्षीद्योगतपोबलेन
-> नाना दर्पं तं नखैर्विददार तस्मै तुभ्यं प्रणताः स्मो नृसिंह ॥४५॥
-
 > śrī-siddhā ūcuḥ
 > yo no gatiṁ yoga-siddhām asādhur
 > ahārṣīd yoga-tapo-balena
@@ -6954,10 +5780,6 @@ On earth there are many *yogīs* who can exhibit some feeble mystic power by man
 
 ### SB 7.8.46
 
-> श्रीविद्याधरा ऊचुः
-> विद्यां पृथग्धारणयानुराद्धां न्यषेधदज्ञओ बलवीर्यदृप्तः
-> स येन सङ्ख्ये पशुवद्धतस्तं मायानृसिंहं प्रणताः स्म नित्यम ॥४६॥
-
 > śrī-vidyādharā ūcuḥ
 > vidyāṁ pṛthag dhāraṇayānurāddhāṁ
 > nyaṣedhad ajño bala-vīrya-dṛptaḥ
@@ -6969,10 +5791,6 @@ On earth there are many *yogīs* who can exhibit some feeble mystic power by man
 **The inhabitants of Vidyādhara-loka prayed: Our acquired power to appear and disappear in various ways according to varieties of meditation was banned by that foolish Hiraṇyakaśipu because of his pride in his superior bodily strength and his ability to conquer others. Now the Supreme Personality of Godhead has killed him just as if the demon were an animal. Unto that supreme pastime form of Lord Nṛsiṁhadeva, we eternally offer our respectful obeisances.**
 
 ### SB 7.8.47
-
-> श्रीनागा ऊचुः
-> येन पापेन रत्नानि स्त्रीरत्नानि हृतानि नः
-> तद्वक्षःपाटनेनासां दत्तानन्द नमोऽस्तु ते ॥४७॥
 
 > śrī-nāgā ūcuḥ
 > yena pāpena ratnāni
@@ -6988,10 +5806,6 @@ No one is peaceful if his wealth and wife are forcibly taken away. All the inhab
 
 ### SB 7.8.48
 
-> श्रीमनव ऊचुः
-> मनवो वयं तव निदेशकारिणो दितिजेन देव परिभूतसेतवः
-> भवता खलः स उपसंहृतः प्रभो करवाम ते किमनुशाधि किङ्करान ॥४८॥
-
 > śrī-manava ūcuḥ
 > manavo vayaṁ tava nideśa-kāriṇo
 > ditijena deva paribhūta-setavaḥ
@@ -7006,10 +5820,6 @@ In many places in *Bhagavad-gītā,* the Supreme Lord, Kṛṣṇa, refers to th
 
 ### SB 7.8.49
 
-> श्रीप्रजापतय ऊचुः
-> प्रजेशा वयं ते परेशाभिसृष्टा न येन प्रजा वै सृजामो निषिद्धाः
-> स एष त्वया भिन्नवक्षा नु शेते जगन्मङ्गलं सत्त्वमूर्तेऽवतारः ॥४९॥
-
 > śrī-prajāpataya ūcuḥ
 > prajeśā vayaṁ te pareśābhisṛṣṭā
 > na yena prajā vai sṛjāmo niṣiddhāḥ
@@ -7021,10 +5831,6 @@ In many places in *Bhagavad-gītā,* the Supreme Lord, Kṛṣṇa, refers to th
 **The prajāpatis offered their prayers as follows: O Supreme Lord, Lord of even Brahmā and Śiva, we, the prajāpatis, were created by You to execute Your orders, but we were forbidden by Hiraṇyakaśipu to create any more good progeny. Now the demon is lying dead before us, his chest pierced by You. Let us therefore offer our respectful obeisances unto You, whose incarnation in this form of pure goodness is meant for the welfare of the entire universe.**
 
 ### SB 7.8.50
-
-> श्रीगन्धर्वा ऊचुः
-> वयं विभो ते नटनाट्यगायका येनात्मसाद्वीर्यबलौजसा कृताः
-> स एष नीतो भवता दशामिमां किमुत्पथस्थः कुशलाय कल्पते ॥५०॥
 
 > śrī-gandharvā ūcuḥ
 > vayaṁ vibho te naṭa-nāṭya-gāyakā
@@ -7040,10 +5846,6 @@ By being a very obedient servant of the Supreme Lord, one becomes extremely powe
 
 ### SB 7.8.51
 
-> श्रीचारणा ऊचुः
-> हरे तवाङ्घ्रिपङ्कजं भवापवर्गमाश्रिताः
-> यदेष साधुहृच्छयस्त्वयासुरः समापितः ॥५१॥
-
 > śrī-cāraṇā ūcuḥ
 > hare tavāṅghri-paṅkajaṁ
 > bhavāpavargam āśritāḥ
@@ -7058,12 +5860,6 @@ The Supreme Personality of Godhead in His transcendental form of Narahari, Nṛs
 
 ### SB 7.8.52
 
-> श्रीयक्षा ऊचुः
-> वयमनुचरमुख्याः कर्मभिस्ते मनोज्ञऐस
-> त इह दितिसुतेन प्रापिता वाहकत्वम
-> स तु जनपरितापं तत्कृतं जानता ते
-> नरहर उपनीतः पञ्चतां पञ्चविंश ॥५२॥
-
 > śrī-yakṣā ūcuḥ
 > vayam anucara-mukhyāḥ karmabhis te mano-jñais
 > ta iha diti-sutena prāpitā vāhakatvam
@@ -7077,10 +5873,6 @@ The Supreme Personality of Godhead in His transcendental form of Narahari, Nṛs
 The Supreme Lord is the controller of the ten senses, the five material elements, the five sense objects, the mind, the intelligence, the false ego and the soul. Therefore He is addressed as *pañca-viṁśa,* the twenty-fifth element. The inhabitants of the Yakṣa planet are supposed to be the best of all servants, but Hiraṇyakaśipu engaged them as palanquin carriers. The entire universe was in trouble because of Hiraṇyakaśipu, but now that Hiraṇyakaśipu's body was mixing with the five material elements—earth, water, fire, air and sky—everyone felt relief. Upon Hiraṇyakaśipu's death, the Yakṣas were reinstated in their original service to the Supreme Personality of Godhead. Thus they felt obliged to the Lord and offered their prayers.
 
 ### SB 7.8.53
-
-> श्रीकिम्पुरुषा ऊचुः
-> वयं किम्पुरुषास्त्वं तु महापुरुष ईश्वरः
-> अयं कुपुरुषो नष्टो धिक्कृतः साधुभिर्यदा ॥५३॥
 
 > śrī-kimpuruṣā ūcuḥ
 > vayaṁ kimpuruṣās tvaṁ tu
@@ -7110,10 +5902,6 @@ The cause of the Supreme Lord's appearance upon this earth is stated in *Bhagava
 
 ### SB 7.8.54
 
-> श्रीवैतालिका ऊचुः
-> सभासु सत्रेषु तवामलं यशो गीत्वा सपर्यां महतीं लभामहे
-> यस्तामनैषीद्वशमेष दुर्जनो द्विष्ट्या हतस्ते भगवन्यथामयः ॥५४॥
-
 > śrī-vaitālikā ūcuḥ
 > sabhāsu satreṣu tavāmalaṁ yaśo
 > gītvā saparyāṁ mahatīṁ labhāmahe
@@ -7126,10 +5914,6 @@ The cause of the Supreme Lord's appearance upon this earth is stated in *Bhagava
 
 ### SB 7.8.55
 
-> श्रीकिन्नरा ऊचुः
-> वयमीश किन्नरगणास्तवानुगा दितिजेन विष्टिममुनानुकारिताः
-> भवता हरे स वृजिनोऽवसादितो नरसिंह नाथ विभवाय नो भव ॥५५॥
-
 > śrī-kinnarā ūcuḥ
 > vayam īśa kinnara-gaṇās tavānugā
 > ditijena viṣṭim amunānukāritāḥ
@@ -7141,10 +5925,6 @@ The cause of the Supreme Lord's appearance upon this earth is stated in *Bhagava
 **The Kinnaras said: O supreme controller, we are ever-existing servants of Your Lordship, but instead of rendering service to You, we were engaged by this demon in his service, constantly and without remuneration. This sinful man has now been killed by You. Therefore, O Lord Nṛsiṁhadeva, our master, we offer our respectful obeisances unto You. Please continue to be our patron.**
 
 ### SB 7.8.56
-
-> श्रीविष्णुपार्षदा ऊचुः
-> अद्यैतद्धरिनररूपमद्भुतं ते दृष्टं नः शरणद सर्वलोकशर्म
-> सोऽयं ते विधिकर ईश विप्रशप्तस्तस्येदं निधनमनुग्रहाय विद्मः ॥५६॥
 
 > śrī-viṣṇu-pārṣadā ūcuḥ
 > adyaitad dhari-nara-rūpam adbhutaṁ te
@@ -7164,10 +5944,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Eighth Chapter, of the
 
 ### SB 7.9.1
 
-> श्रीनारद उवाच
-> एवं सुरादयः सर्वे ब्रह्मरुद्रपुरः सराः
-> नोपैतुमशकन्मन्यु संरम्भं सुदुरासदम ॥१॥
-
 > śrī-nārada uvāca
 > evaṁ surādayaḥ sarve
 > brahma-rudra-puraḥ sarāḥ
@@ -7181,9 +5957,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Eighth Chapter, of the
 Śrīla Narottama dāsa Ṭhākura has sung in his *prema-bhakti-candrikā, 'krodha' bhakta-dveṣi jane:* anger should be used to punish a demon who is envious of devotees. *Kāma, krodha, lobha, moha, mada* and *mātsarya*—lust, anger, greed, illusion, pride and envy—all have their proper use for the Supreme Personality of Godhead and His devotee. A devotee of the Lord cannot tolerate blasphemy of the Lord or His other devotees, and the Lord also cannot tolerate blasphemy of a devotee. Thus Lord Nṛsiṁhadeva was so very angry that the great demigods like Lord Brahmā and Lord Śiva and even the goddess of fortune, who is the Lord's constant companion, could not pacify Him, even after offering prayers of glorification and praise. No one was able to pacify the Lord in His anger, but because the Lord was willing to exhibit His affection for Prahlāda Mahārāja, all the demigods and the others present before the Lord pushed Prahlāda Mahārāja forward to pacify Him.
 
 ### SB 7.9.2
-
-> साक्षात्श्रीः प्रेषिता देवैर्दृष्ट्वा तं महदद्भुतम
-> अदृष्टाश्रुतपूर्वत्वात्सा नोपेयाय शङ्किता ॥२॥
 
 > sākṣāt śrīḥ preṣitā devair
 > dṛṣṭvā taṁ mahad adbhutam
@@ -7215,9 +5988,6 @@ In other words, for the common men the form of the Lord as Nṛsiṁhadeva is ce
 
 ### SB 7.9.3
 
-> प्रह्रादं प्रेषयामास ब्रह्मावस्थितमन्तिके
-> तात प्रशमयोपेहि स्वपित्रे कुपितं प्रभुम ॥३॥
-
 > prahrādaṁ preṣayām āsa
 > brahmāvasthitam antike
 > tāta praśamayopehi
@@ -7229,9 +5999,6 @@ In other words, for the common men the form of the Lord as Nṛsiṁhadeva is ce
 
 ### SB 7.9.4
 
-> तथेति शनकै राजन्महाभागवतोऽर्भकः
-> उपेत्य भुवि कायेन ननाम विधृताञ्जलिः ॥४॥
-
 > tatheti śanakai rājan
 > mahā-bhāgavato 'rbhakaḥ
 > upetya bhuvi kāyena
@@ -7242,9 +6009,6 @@ In other words, for the common men the form of the Lord as Nṛsiṁhadeva is ce
 **Nārada Muni continued: O King, although the exalted devotee Prahlāda Mahārāja was only a little boy, he accepted Lord Brahmā's words. He gradually proceeded toward Lord Nṛsiṁhadeva and fell down to offer his respectful obeisances with folded hands.**
 
 ### SB 7.9.5
-
-> स्वपादमूले पतितं तमर्भकं विलोक्य देवः कृपया परिप्लुतः
-> उत्थाप्य तच्छीर्ष्ण्यदधात्कराम्बुजं कालाहिवित्रस्तधियां कृताभयम ॥५॥
 
 > sva-pāda-mūle patitaṁ tam arbhakaṁ
 > vilokya devaḥ kṛpayā pariplutaḥ
@@ -7258,9 +6022,6 @@ In other words, for the common men the form of the Lord as Nṛsiṁhadeva is ce
 The necessities of the material world are four—*āhāra, nidrā, bhaya* and *maithuna* (eating, sleeping, defending and mating). In this material world, everyone is in fearful consciousness (*sadā samudvigna-dhiyām*), and the only means to make everyone fearless is Kṛṣṇa consciousness. When Lord Nṛsiṁhadeva appeared, all the devotees became fearless. The devotee's hope of becoming fearless is to chant the holy name of Lord Nṛsiṁhadeva. *Yato yato yāmi tato nṛsiṁhaḥ:* wherever we go, we must always think of Lord Nṛsiṁhadeva. Thus there will be no fear for the devotee of the Lord.
 
 ### SB 7.9.6
-
-> स तत्करस्पर्शधुताखिलाशुभः सपद्यभिव्यक्तपरात्मदर्शनः
-> तत्पादपद्मं हृदि निर्वृतो दधौ हृष्यत्तनुः क्लिन्नहृदश्रुलोचनः ॥६॥
 
 > sa tat-kara-sparśa-dhutākhilāśubhaḥ
 > sapady abhivyakta-parātma-darśanaḥ
@@ -7291,9 +6052,6 @@ On the strength of these verses from *Bhagavad-gītā,* it is evident that altho
 
 ### SB 7.9.7
 
-> अस्तौषीद्धरिमेकाग्र मनसा सुसमाहितः
-> प्रेमगद्गदया वाचा तन्न्यस्तहृदयेक्षणः ॥७॥
-
 > astauṣīd dharim ekāgra-
 > manasā susamāhitaḥ
 > prema-gadgadayā vācā
@@ -7306,12 +6064,6 @@ On the strength of these verses from *Bhagavad-gītā,* it is evident that altho
 The word *susamāhitaḥ* means "very attentive" or "fully fixed." The ability to fix the mind in this way is a result of *yoga-siddhi,* mystic perfection. As it is stated in *Śrīmad-Bhāgavatam* (12.13.1), *dhyānāvasthita-tad-gatena manasā paśyanti yaṁ yoginaḥ.* One attains yogic perfection when he is freed from all material diversions and his mind is fixed upon the lotus feet of the Lord. This is called *samādhi* or trance. Prahlāda Mahārāja attained that stage beyond the senses. Because he was engaged in service, he felt transcendentally situated, and naturally his mind and attention became saturated in transcendence. In that condition, he began to offer his prayers as follows.
 
 ### SB 7.9.8
-
-> श्रीप्रह्राद उवाच
-> ब्रह्मादयः सुरगणा मुनयोऽथ सिद्धाः
-> सत्त्वैकतानगतयो वचसां प्रवाहैः
-> नाराधितुं पुरुगुणैरधुनापि पिप्रुः
-> किं तोष्टुमर्हति स मे हरिरुग्रजातेः ॥८॥
 
 > śrī-prahrāda uvāca
 > brahmādayaḥ sura-gaṇā munayo 'tha siddhāḥ
@@ -7327,7 +6079,7 @@ A Vaiṣṇava who is fully qualified to serve the Lord still thinks himself ext
 
 > jagāi mādhāi haite muñi se pāpiṣṭha
 > purīṣera kīṭa haite muñi se laghiṣṭha
-> (Cc. Ādi 5.205)
+(Ce. Ādi 5.205)
 
 Thus he considers himself unqualified, lower than the worms in stool, and more sinful than Jagāi and Mādhāi. A pure Vaiṣṇava actually thinks of himself in this way. Similarly, although Prahlāda Mahārāja was a pure, exalted Vaiṣṇava, he thought himself most unqualified to offer prayers to the Supreme Lord. *Mahājano yena gataḥ sa panthāḥ* [[cc/madhya/17/186|[Cc. Madhya 17.186] ]]. Every pure Vaiṣṇava should think like this. One should not be falsely proud of his Vaiṣṇava qualifications. Śrī Caitanya Mahāprabhu has therefore instructed us:
 
@@ -7340,11 +6092,6 @@ Thus he considers himself unqualified, lower than the worms in stool, and more s
 "One should chant the holy name of the Lord in a humble state of mind, thinking oneself lower than the straw in the street; one should be more tolerant than a tree, devoid of all sense of false prestige and should be ready to offer all respect to others. In such a state of mind one can chant the holy name of the Lord constantly." Unless one is meek and humble, to make progress in spiritual life is very difficult.
 
 ### SB 7.9.9
-
-> मन्ये धनाभिजनरूपतपःश्रुतौजस
-> तेजःप्रभावबलपौरुषबुद्धियोगाः
-> नाराधनाय हि भवन्ति परस्य पुंसो
-> भक्त्या तुतोष भगवान्गजयूथपाय ॥९॥
 
 > manye dhanābhijana-rūpa-tapaḥ-śrutaujas-
 > tejaḥ-prabhāva-bala-pauruṣa-buddhi-yogāḥ
@@ -7359,11 +6106,6 @@ No kind of material qualification is the means for satisfying the Supreme Person
 
 ### SB 7.9.10
 
-> विप्राद्द्विषड्गुणयुतादरविन्दनाभ
-> पादारविन्दविमुखात्श्वपचं वरिष्ठम
-> मन्ये तदर्पितमनोवचनेहितार्थ
-> प्राणं पुनाति स कुलं न तु भूरिमानः ॥१०॥
-
 > viprād dvi-ṣaḍ-guṇa-yutād aravinda-nābha-
 > pādāravinda-vimukhāt śvapacaṁ variṣṭham
 > manye tad-arpita-mano-vacanehitārtha-
@@ -7371,7 +6113,7 @@ No kind of material qualification is the means for satisfying the Supreme Person
 
 *viprāt*—than a *brāhmaṇa*; *dvi-ṣaṭ-guṇa-yutāt*—qualified with twelve brahminical qualities; *aravinda-nābha*—Lord Viṣṇu, who has a lotus growing from His navel; *pāda-aravinda*—to the lotus feet of the Lord; *vimukhāt*—not interested in devotional service; *śva-pacam*—one born in a low family, or a dog-eater; *variṣṭham*—more glorious; *manye*—I consider; *tat-arpita*—surrendered unto the lotus feet of the Lord; *manaḥ*—his mind; *vacana*—words; *īhita*—every endeavor; *artha*—wealth; *prāṇam*—and life; *punāti*—purifies; *saḥ*—he (the devotee); *kulam*—his family; *na*—not; *tu*—but; *bhūrimānaḥ*—one who falsely thinks himself to be in a prestigious position.
 
-**If a brāhmaṇa has all twelve of the brahminical qualifications [as they are stated in the book called Sanat-sujāta] but is not a devotee and is averse to the lotus feet of the Lord, he is certainly lower than a devotee who is a dog-eater but who has dedicated everything—mind, words, activities, wealth and life—to the Supreme Lord. Such a devotee is better than such a brāhmaṇa because the devotee can purify his whole family, whereas the so-called brāhmaṇa in a position of false prestige cannot purify even himself.**
+**If a brāhmaṇa has all twelve of the brahminical qualifications [as they are stated in the book called Sanat-sujāta] but is not a devotee and is averse to the lotus feet of the Lord, he is certainly lower than a devotee who is a dog-eater but who has dedicated everything—mind, words, activities, wealth and life—to the Supreme Lord. Such a devotee is better than such a brāhmaṇa because the devotee can purify his whole family, whereas the so-called brāhmaṇa in a position of false prestige cannot purify even him- self. PURPORT**
 
 Here is a statement by Prahlāda Mahārāja, one of the twelve authorities, regarding the distinction between a devotee and a *brāhmaṇa* expert in *karma-kāṇḍa,* or Vedic ritualistic ceremonies. There are four *varṇas* and four *āśramas,* which divide human society, but the central principle is to become a first-class pure devotee. It is said in the *Hari-bhakti-sudhodaya:*
 
@@ -7400,11 +6142,6 @@ The European and American devotees in the Kṛṣṇa consciousness movement are
 
 ### SB 7.9.11
 
-> नैवात्मनः प्रभुरयं निजलाभपूर्णो
-> मानं जनादविदुषः करुणो वृणीते
-> यद्यज्जनो भगवते विदधीत मानं
-> तच्चात्मने प्रतिमुखस्य यथा मुखश्रीः ॥११॥
-
 > naivātmanaḥ prabhur ayaṁ nija-lābha-pūrṇo
 > mānaṁ janād aviduṣaḥ karuṇo vṛṇīte
 > yad yaj jano bhagavate vidadhīta mānaṁ
@@ -7424,11 +6161,6 @@ In *bhakti-yoga* it is recommended that a devotee follow nine principles; *śrav
 "Those miscreants who are grossly foolish, lowest among mankind, whose knowledge is stolen by illusion, and who partake of the atheistic nature of demons, do not surrender unto Me." Because of ignorance and misfortune, the atheists and the *narādhamas,* the lowest of men, do not surrender unto the Supreme Personality of Godhead. Therefore although the Supreme Lord, Kṛṣṇa, is full in Himself, He appears in different *yugas* to demand the surrender of the conditioned souls so that they will benefit by becoming free from the material clutches. In conclusion, the more we engage in Kṛṣṇa consciousness and render service unto the Lord, the more we benefit. Kṛṣṇa does not need service from any of us.
 
 ### SB 7.9.12
-
-> तस्मादहं विगतविक्लव ईश्वरस्य
-> सर्वात्मना महि गृणामि यथा मनीषम
-> नीचोऽजया गुणविसर्गमनुप्रविष्टः
-> पूयेत येन हि पुमाननुवर्णितेन ॥१२॥
 
 > tasmād ahaṁ vigata-viklava īśvarasya
 > sarvātmanā mahi gṛṇāmi yathā manīṣam
@@ -7450,11 +6182,6 @@ It is clearly understood that a devotee does not need to be born in a very high 
 
 ### SB 7.9.13
 
-> सर्वे ह्यमी विधिकरास्तव सत्त्वधाम्नो
-> ब्रह्मादयो वयमिवेश न चोद्विजन्तः
-> क्षेमाय भूतय उतात्मसुखाय चास्य
-> विक्रीडितं भगवतो रुचिरावतारैः ॥१३॥
-
 > sarve hy amī vidhi-karās tava sattva-dhāmno
 > brahmādayo vayam iveśa na codvijantaḥ
 > kṣemāya bhūtaya utātma-sukhāya cāsya
@@ -7467,11 +6194,6 @@ It is clearly understood that a devotee does not need to be born in a very high 
 Prahlāda Mahārāja wanted to assert that his father and the other members of his family were all unfortunate because they were demoniac, whereas the devotees of the Lord are always fortunate because they are always ready to follow the orders of the Lord. When the Supreme Lord appears in this material world in His various incarnations, He performs two functions—saving the devotee and vanquishing the demon (*paritrāṇāya sādhūnāṁ vināśāya ca duṣkṛtām* [[bg/4/8|[Bg. 4.8] ]]). Lord Nṛsiṁhadeva, for example, appeared for the protection of His devotee. Such pastimes as those of Nṛsiṁhadeva are certainly not meant to create a fearful situation for the devotees, but nonetheless the devotees, being very simple and faithful, were afraid of the fierce incarnation of the Lord. Therefore Prahlāda Mahārāja, in the following prayer, requests the Lord to give up His anger.
 
 ### SB 7.9.14
-
-> तद्यच्छ मन्युमसुरश्च हतस्त्वयाद्य
-> मोदेत साधुरपि वृश्चिकसर्पहत्या
-> लोकाश्च निर्वृतिमिताः प्रतियन्ति सर्वे
-> रूपं नृसिंह विभयाय जनाः स्मरन्ति ॥१४॥
 
 > tad yaccha manyum asuraś ca hatas tvayādya
 > modeta sādhur api vṛścika-sarpa-hatyā
@@ -7486,11 +6208,6 @@ The most important point in this verse is that although saintly persons never de
 
 ### SB 7.9.15
 
-> नाहं बिभेम्यजित तेऽतिभयानकास्य
-> जिह्वार्कनेत्रभ्रुकुटीरभसोग्रदंष्ट्रात
-> आन्त्रस्रजःक्षतजकेशरशङ्कुकर्णान
-> निर्ह्रादभीतदिगिभादरिभिन्नखाग्रात ॥१५॥
-
 > nāhaṁ bibhemy ajita te 'tibhayānakāsya-
 > jihvārka-netra-bhrukuṭī-rabhasogra-daṁṣṭrāt
 > āntra-srajaḥ-kṣataja-keśara-śaṅku-karṇān
@@ -7503,11 +6220,6 @@ The most important point in this verse is that although saintly persons never de
 Lord Nṛsiṁhadeva's fierce appearance was certainly most dangerous for the nondevotees, but for Prahlāda Mahārāja such a fearful appearance was not at all disturbing. The lion is very fearsome for other animals, but its cubs are not at all afraid of the lion. The water of the sea is certainly dreadful for all living entities on the land, but within the sea even the small fish is unafraid. Why? Because the small fish has taken shelter of the big ocean. It is said that although great elephants are taken away by the flooding waters of the river, the small fish swim opposite the current. Therefore although the Lord sometimes assumes a fierce appearance to kill the *duṣkṛtīs,* the devotees worship Him. *Keśava dhṛta-nara-hari-rūpa jaya jagadīśa hare.* The devotee always takes pleasure in worshiping the Lord and glorifying the Lord in any form, either pleasing or fierce.
 
 ### SB 7.9.16
-
-> त्रस्तोऽस्म्यहं कृपणवत्सल दुःसहोग्र
-> संसारचक्रकदनाद्ग्रसतां प्रणीतः
-> बद्धः स्वकर्मभिरुशत्तम तेऽङ्घ्रिमूलं
-> प्रीतोऽपवर्गशरणं ह्वयसे कदा नु ॥१६॥
 
 > trasto 'smy ahaṁ kṛpaṇa-vatsala duḥsahogra-
 > saṁsāra-cakra-kadanād grasatāṁ praṇītaḥ
@@ -7522,11 +6234,6 @@ Being in the material world is certainly miserable, but certainly when one is pu
 
 ### SB 7.9.17
 
-> यस्मात्प्रियाप्रियवियोगसंयोगजन्म
-> शोकाग्निना सकलयोनिषु दह्यमानः
-> दुःखौषधं तदपि दुःखमतद्धियाहं
-> भूमन्भ्रमामि वद मे तव दास्ययोगम ॥१७॥
-
 > yasmāt priyāpriya-viyoga-saṁyoga-janma-
 > śokāgninā sakala-yoniṣu dahyamānaḥ
 > duḥkhauṣadhaṁ tad api duḥkham atad-dhiyāhaṁ
@@ -7539,11 +6246,6 @@ Being in the material world is certainly miserable, but certainly when one is pu
 Prahlāda Mahārāja aspired to engage in the service of the lotus feet of the Lord. After the death of his father, who was materially very opulent, Prahlāda would have inherited his father's property, which extended throughout the world, but Prahlāda Mahārāja was not inclined to accept such material opulence, for whether one is in the heavenly or hellish planets or is a rich or a poor man's son, material conditions are everywhere. Therefore no condition of life is at all pleasing. If one wants the uncontaminated pleasure of blissful life, he must engage himself in the transcendental loving service of the Lord. Material opulence may be somewhat pleasing for the time being, but to come to that temporary pleasing condition one must work extremely hard. When a poor man is rich he may be better situated, but to come to that position he had to accept many miseries. The fact is that in material life, whether one is miserable or happy, both conditions are miserable. If one actually wants happy, blissful life, one must become Kṛṣṇa conscious and constantly engage in the transcendental loving service of the Lord. That is the real remedy. The entire world is under the illusion that people will be happy by advancing in materialistic measures to counteract the miseries of conditional life, but this attempt will never be successful. Humanity must be trained to engage in the transcendental loving service of the Lord. That is the purpose of the Kṛṣṇa consciousness movement. There can be no happiness in changing one's material conditions, for everywhere there is trouble and misery.
 
 ### SB 7.9.18
-
-> सोऽहं प्रियस्य सुहृदः परदेवताया
-> लीलाकथास्तव नृसिंह विरिञ्चगीताः
-> अञ्जस्तितर्म्यनुगृणन्गुणविप्रमुक्तो
-> दुर्गाणि ते पदयुगालयहंससङ्गः ॥१८॥
 
 > so 'haṁ priyasya suhṛdaḥ paradevatāyā
 > līlā-kathās tava nṛsiṁha viriñca-gītāḥ
@@ -7558,11 +6260,6 @@ A devotee's life and duty are very well explained herein. As soon as a devotee c
 
 ### SB 7.9.19
 
-> बालस्य नेह शरणं पितरौ नृसिंह
-> नार्तस्य चागदमुदन्वति मज्जतो नौः
-> तप्तस्य तत्प्रतिविधिर्य इहाञ्जसेष्टस
-> तावद्विभो तनुभृतां त्वदुपेक्षितानाम ॥१९॥
-
 > bālasya neha śaraṇaṁ pitarau nṛsiṁha
 > nārtasya cāgadam udanvati majjato nauḥ
 > taptasya tat-pratividhir ya ihāñjaseṣṭas
@@ -7575,11 +6272,6 @@ A devotee's life and duty are very well explained herein. As soon as a devotee c
 Through parental care, through remedies for different kinds of disease, and through means of protection on the water, in the air and on land, there is always an endeavor for relief from various kinds of suffering in the material world, but none of them are guaranteed measures for protection. They may be beneficial temporarily, but they afford no permanent benefit. Despite the presence of a father and mother, a child cannot be protected from accidental death, disease and various other miseries. No one can help, including the parents. Ultimately the shelter is the Lord, and one who takes shelter of the Lord is protected. This is guaranteed. As the Lord says in *Bhagavad-gītā* [[bg/9/31|(Bg. 9.31)]], *kaunteya pratijānīhi na me bhaktaḥ praṇaśyati*/ "O son of Kuntī, declare it boldly that My devotee never perishes." Therefore, unless one is protected by the mercy of the Lord, no remedial measure can act effectively. One should consequently depend fully on the causeless mercy of the Lord. Although as a matter of routine duty one must of course accept other remedial measures, no one can protect one who is neglected by the Supreme Personality of Godhead. In this material world, everyone is trying to counteract the onslaught of material nature, but everyone is ultimately fully controlled by material nature. Therefore even though so-called philosophers and scientists try to surmount the onslaught of material nature, they have not been able to do so. Kṛṣṇa says in *Bhagavad-gītā* [[bg/13/9|(Bg. 13.9)]] that the real sufferings of the material world are four—*janma-mṛtyu jarā-vyādhi* (birth, death, old age and disease). In the history of the world, no one has been successful in conquering these miseries imposed by material nature. *prakṛteḥ kriyamāṇāni guṇaiḥ karmāṇi sarvaśaḥ* [[bg/3/27|[Bg. 3.27] ]]. Nature (*prakṛti*) is so strong that no one can overcome her stringent laws. So-called scientists, philosophers, religionists and politicians should therefore conclude that they cannot offer facilities to the people in general. They should make vigorous propaganda to awaken the populace and raise them to the platform of Kṛṣṇa consciousness. Our humble attempt to propagate the Kṛṣṇa consciousness movement all over the world is the only remedy that can bring about a peaceful and happy life. We can never be happy without the mercy of the Supreme Lord (*tvad-upekṣitānām*). If we keep displeasing our supreme father, we shall never be happy within this material world, in either the upper or lower planetary systems.
 
 ### SB 7.9.20
-
-> यस्मिन्यतो यर्हि येन च यस्य यस्माद
-> यस्मै यथा यदुत यस्त्वपरः परो वा
-> भावः करोति विकरोति पृथक्स्वभावः
-> सञ्चोदितस्तदखिलं भवतः स्वरूपम ॥२०॥
 
 > yasmin yato yarhi yena ca yasya yasmād
 > yasmai yathā yad uta yas tv aparaḥ paro vā
@@ -7603,11 +6295,6 @@ The words *yasmin yato yarhi yena ca yasya yasmāt* indicate that all activities
 When one gives up materially designated positions and works directly under the Supreme Personality of Godhead, one's spiritual life is revived. This is described as *svarūpena avasthiti,* being situated in one's original constitutional position. This is the real description of *mukti,* or liberation from material bondage.
 
 ### SB 7.9.21
-
-> माया मनः सृजति कर्ममयं बलीयः
-> कालेन चोदितगुणानुमतेन पुंसः
-> छन्दोमयं यदजयार्पितषोडशारं
-> संसारचक्रमज कोऽतितरेत्त्वदन्यः ॥२१॥
 
 > māyā manaḥ sṛjati karmamayaṁ balīyaḥ
 > kālena codita-guṇānumatena puṁsaḥ
@@ -7635,11 +6322,6 @@ The fallen, conditioned living entity, trapped by the external energy, loiters i
 
 ### SB 7.9.22
 
-> स त्वं हि नित्यविजितात्मगुणः स्वधाम्ना
-> कालो वशीकृतविसृज्यविसर्गशक्तिः
-> चक्रे विसृष्टमजयेश्वर षोडशारे
-> निष्पीड्यमानमुपकर्ष विभो प्रपन्नम ॥२२॥
-
 > sa tvaṁ hi nitya-vijitātma-guṇaḥ sva-dhāmnā
 > kālo vaśī-kṛta-visṛjya-visarga-śaktiḥ
 > cakre visṛṣṭam ajayeśvara ṣoḍaśāre
@@ -7662,11 +6344,6 @@ The word *niṣpīḍyamānam* ("being crushed") is very significant. Every livi
 
 ### SB 7.9.23
 
-> दृष्टा मया दिवि विभोऽखिलधिष्ण्यपानाम
-> आयुः श्रियो विभव इच्छति यान्जनोऽयम
-> येऽस्मत्पितुः कुपितहासविजृम्भितभ्रू
-> विस्फूर्जितेन लुलिताः स तु ते निरस्तः ॥२३॥
-
 > dṛṣṭā mayā divi vibho 'khila-dhiṣṇya-pānām
 > āyuḥ śriyo vibhava icchati yāñ jano 'yam
 > ye 'smat pituḥ kupita-hāsa-vijṛmbhita-bhrū-
@@ -7679,11 +6356,6 @@ The word *niṣpīḍyamānam* ("being crushed") is very significant. Every livi
 Within this material world, one should understand by practical experience the value of material opulence, longevity and influence. We have actual experience that even on this planet there have been many great politicians and military commanders like Napoleon, Hitler, Shubhash Chandra Bose and Gandhi, but as soon as their lives were finished, their popularity, influence and everything else were finished also. Prahlāda Mahārāja formerly gathered the same experience by seeing the activities of Hiraṇyakaśipu, his great father. Therefore Prahlāda Mahārāja did not give any importance to anything in this material world. No one can maintain his body or material achievements forever. A Vaiṣṇava can understand that nothing within this material world, not even that which is powerful, opulent or influential, can endure. At any time such things may be vanquished. And who can vanquish them? The Supreme Personality of Godhead. Therefore one should conclusively understand that no one is greater than the Supreme Great. Since the Supreme Great demands, *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja* [[bg/18/66|[Bg. 18.66] ]], every intelligent man must agree to this proposal. One must surrender unto the Lord to be saved from the wheel of repeated birth, death, old age and disease.
 
 ### SB 7.9.24
-
-> तस्मादमूस्तनुभृतामहमाशिषोऽज्ञअ
-> आयुः श्रियं विभवमैन्द्रियमाविरिञ्च्यात
-> नेच्छामि ते विलुलितानुरुविक्रमेण
-> कालात्मनोपनय मां निजभृत्यपार्श्वम ॥२४॥
 
 > tasmād amūs tanu-bhṛtām aham āśiṣo 'jña
 > āyuḥ śriyaṁ vibhavam aindriyam āviriñcyāt
@@ -7702,11 +6374,6 @@ There are different types of material opulence, known technically as *bhukti, mu
 
 ### SB 7.9.25
 
-> कुत्राशिषः श्रुतिसुखा मृगतृष्णिरूपाः
-> क्वेदं कलेवरमशेषरुजां विरोहः
-> निर्विद्यते न तु जनो यदपीति विद्वान
-> कामानलं मधुलवैः शमयन्दुरापैः ॥२५॥
-
 > kutrāśiṣaḥ śruti-sukhā mṛgatṛṣṇi-rūpāḥ
 > kvedaṁ kalevaram aśeṣa-rujāṁ virohaḥ
 > nirvidyate na tu jano yad apīti vidvān
@@ -7721,11 +6388,6 @@ There is a song in the Bengali language which states, "I constructed this home f
 As one cannot stop a blazing fire by constantly pouring ghee upon it, one cannot satisfy oneself by increasing plans for sense enjoyment. The blazing fire is *bhava-mahā-dāvāgni,* the forest fire of material existence. This forest fire occurs automatically, without endeavor. We want to be happy in the material world, but this will never be possible; we shall simply increase the blazing fire of desires. Our desires cannot be satisfied by illusory thoughts and plans; rather, we have to follow the instructions of Lord Kṛṣṇa: *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja* [[bg/18/66|[Bg. 18.66] ]]. Then we shall be happy. Otherwise, in the name of happiness, we shall continue to suffer miserable conditions.
 
 ### SB 7.9.26
-
-> क्वाहं रजःप्रभव ईश तमोऽधिकेऽस्मिन
-> जातः सुरेतरकुले क्व तवानुकम्पा
-> न ब्रह्मणो न तु भवस्य न वै रमाया
-> यन्मेऽर्पितः शिरसि पद्मकरः प्रसादः ॥२६॥
 
 > kvāhaṁ rajaḥ-prabhava īśa tamo 'dhike 'smin
 > jātaḥ suretara-kule kva tavānukampā
@@ -7761,11 +6423,6 @@ Because Prahlāda Mahārāja was situated on the spiritual platform, he had noth
 
 ### SB 7.9.27
 
-> नैषा परावरमतिर्भवतो ननु स्याज
-> जन्तोर्यथात्मसुहृदो जगतस्तथापि
-> संसेवया सुरतरोरिव ते प्रसादः
-> सेवानुरूपमुदयो न परावरत्वम ॥२७॥
-
 > naiṣā parāvara-matir bhavato nanu syāj
 > jantor yathātma-suhṛdo jagatas tathāpi
 > saṁsevayā surataror iva te prasādaḥ
@@ -7793,11 +6450,6 @@ Some people want to be promoted to the heavenly planets, some want to be promote
 
 ### SB 7.9.28
 
-> एवं जनं निपतितं प्रभवाहिकूपे
-> कामाभिकाममनु यः प्रपतन्प्रसङ्गात
-> कृत्वात्मसात्सुरर्षिणा भगवन्गृहीतः
-> सोऽहं कथं नु विसृजे तव भृत्यसेवाम ॥२८॥
-
 > evaṁ janaṁ nipatitaṁ prabhavāhi-kūpe
 > kāmābhikāmam anu yaḥ prapatan prasaṅgāt
 > kṛtvātmasāt surarṣiṇā bhagavan gṛhītaḥ
@@ -7815,11 +6467,6 @@ As will be seen in later verses, even though Prahlāda Mahārāja was directly o
 One should not be anxious to offer direct service to the Lord. Śrī Caitanya Mahāprabhu advised that one become a servant of the servant of the servant of the Lord (*gopī-bhartuḥ pada-kamalayor dāsa-dāsānudāsaḥ* [[cc/madhya/13/80|[Cc. Madhya 13.80] ]]). This is the process for approaching the Supreme Lord. The first service should be rendered to the spiritual master so that by his mercy one can approach the Supreme Personality of Godhead to render service. While teaching Rūpa Gosvāmī, Śrī Caitanya Mahāprabhu said, *guru-kṛṣṇa-prasāde pāya bhakti-latā-bīja*/ [[cc/madhya/19/151|[Cc. Madhya 19.151] ]] one can achieve the seed of devotional service by the mercy of the *guru,* the spiritual master, and then by the mercy of Kṛṣṇa. This is the secret of success. First one should try to please the spiritual master, and then one should attempt to please the Supreme Personality of Godhead. Viśvanātha Cakravartī Ṭhākura also says, *yasya prasādād bhagavat-prasādo .* One should not attempt to please the Supreme Personality of Godhead by concoction. One must first be prepared to serve the spiritual master, and when one is qualified he is automatically offered the platform of direct service to the Lord. Therefore Prahlāda Mahārāja proposed that he engage in the service of Nārada Muni. He never proposed that he engage directly in the service of the Lord. This is the right conclusion. Therefore he said, *so 'haṁ kathaṁ nu visṛje tava bhṛtya-sevām:* "How can I give up the service of my spiritual master, who has favored me in such a way that I am now able to see You face to face?" Prahlāda Mahārāja prayed to the Lord that he might continue to engage in the service of his spiritual master, Nārada Muni.
 
 ### SB 7.9.29
-
-> मत्प्राणरक्षणमनन्त पितुर्वधश्च
-> मन्ये स्वभृत्यऋषिवाक्यमृतं विधातुम
-> खड्गं प्रगृह्य यदवोचदसद्विधित्सुस
-> त्वामीश्वरो मदपरोऽवतु कं हरामि ॥२९॥
 
 > mat-prāṇa-rakṣaṇam ananta pitur vadhaś ca
 > manye sva-bhṛtya-ṛṣi-vākyam ṛtaṁ vidhātum
@@ -7840,11 +6487,6 @@ In *Bhagavad-gītā* [[bg/9/29|(Bg. 9.29)]] the Lord says:
 The Supreme Personality of Godhead is undoubtedly equal to everyone. He has no friend and no enemy, but as one desires benefits from the Lord, the Lord is very pleased to award them. The lower and higher positions of different living entities are due to their desires, for the Lord, being equal to all, fulfills everyone's desires. The killing of Hiraṇyakaśipu and saving of Prahlāda Mahārāja also strictly followed this law of the supreme controller's activities. When Prahlāda's mother, Hiraṇyakaśipu's wife, Kayādhu, was under the protection of Nārada, she prayed for the protection of her son from the enemy, and Nārada Muni gave assurance that Prahlāda Mahārāja would always be saved from the enemy's hands. Thus when Hiraṇyakaśipu was going to kill Prahlāda Mahārāja, the Lord saved Prahlāda to fulfill His promise in *Bhagavad-gītā* (*kaunteya pratijānīhi na me bhaktaḥ praṇaśyati* [[bg/9/31|[Bg. 9.31] ]]) and to prove true the words of Nārada. The Lord can fulfill many purposes through one action. Thus the killing of Hiraṇyakaśipu and the saving of Prahlāda were enacted simultaneously to prove the truthfulness of the Lord's devotee and the fidelity of the Lord Himself to His own purpose. The Lord acts only to satisfy the desires of His devotees; otherwise He has nothing to do. As confirmed in the Vedic language, *na tasya kāryaṁ karaṇaṁ ca vidyate:* the Lord has nothing to do personally, for everything is done through His different potencies (*parāsya śaktir vividhaiva śrūyate [Cc. Madhya 13.65, purport]*). The Lord has multifarious energies, through which everything is done. Thus when He personally does something, it is only to satisfy His devotee. The Lord is known as *bhakta-vatsala* because He very much favors His devoted servant.
 
 ### SB 7.9.30
-
-> एकस्त्वमेव जगदेतममुष्य यत्त्वम
-> आद्यन्तयोः पृथगवस्यसि मध्यतश्च
-> सृष्ट्वा गुणव्यतिकरं निजमाययेदं
-> नानेव तैरवसितस्तदनुप्रविष्टः ॥३०॥
 
 > ekas tvam eva jagad etam amuṣya yat tvam
 > ādy-antayoḥ pṛthag avasyasi madhyataś ca
@@ -7872,11 +6514,6 @@ As stated in the *Brahma-saṁhitā* (5.35):
 The entire cosmic manifestation is but an expansion of the Lord's energy; everything rests in Him, yet He exists separately, beyond creation, maintenance and annihilation. The varieties of creation are performed by His external energy. Because the energy and energetic are one, everything is one (*sarvaṁ khalv idaṁ brahma*). Therefore without Kṛṣṇa, the Parabrahman, nothing can exist. The difference between the material and spiritual worlds is that His external energy is manifested in the material world, whereas His spiritual energy exists in the spiritual world. Both energies, however, belong to the Supreme Lord, and therefore in a higher sense there is no exhibition of material energy because everything is spiritual energy. The energy in which the Lord's all-pervasiveness is not realized is called material. Otherwise, everything is spiritual. Therefore Prahlāda prays, *ekas tvam eva jagad etam:* "You are everything.
 
 ### SB 7.9.31
-
-> त्वम्वा इदं सदसदीश भवांस्ततोऽन्यो
-> माया यदात्मपरबुद्धिरियं ह्यपार्था
-> यद्यस्य जन्म निधनं स्थितिरीक्षणं च
-> तद्वैतदेव वसुकालवदष्टितर्वोः ॥३१॥
 
 > tvaṁ vā idaṁ sad-asad īśa bhavāṁs tato 'nyo
 > māyā yad ātma-para-buddhir iyaṁ hy apārthā
@@ -7914,11 +6551,6 @@ When a devotee is in a condition of so-called distress, he considers it a gift o
 
 ### SB 7.9.32
 
-> न्यस्येदमात्मनि जगद्विलयाम्बुमध्ये
-> शेषेत्मना निजसुखानुभवो निरीहः
-> योगेन मीलितदृगात्मनिपीतनिद्रस
-> तुर्ये स्थितो न तु तमो न गुणांश्च युङ्क्षे ॥३२॥
-
 > nyasyedam ātmani jagad vilayāmbu-madhye
 > śeṣetmanā nija-sukhānubhavo nirīhaḥ
 > yogena mīlita-dṛg-ātma-nipīta-nidras
@@ -7941,11 +6573,6 @@ The practice of *yoga* is similar to the *yoga-nidrā* of Mahā-Viṣṇu. *Yog�
 
 ### SB 7.9.33
 
-> तस्यैव ते वपुरिदं निजकालशक्त्या
-> सञ्चोदितप्रकृतिधर्मण आत्मगूढम
-> अम्भस्यनन्तशयनाद्विरमत्समाधेर
-> नाभेरभूत्स्वकणिकावटवन्महाब्जम ॥३३॥
-
 > tasyaiva te vapur idaṁ nija-kāla-śaktyā
 > sañcodita-prakṛti-dharmaṇa ātma-gūḍham
 > ambhasy ananta-śayanād viramat-samādher
@@ -7958,11 +6585,6 @@ The practice of *yoga* is similar to the *yoga-nidrā* of Mahā-Viṣṇu. *Yog�
 The three different forms of Mahā-Viṣṇu-namely Kāraṇodakaśāyī Viṣṇu, Garbhodakaśāyī Viṣṇu and Kṣīrodakaśāyī Viṣṇu, who are the origin of creation and maintenance—are gradually being described. From Mahā-Viṣṇu, Garbhodakaśāyī Viṣṇu is generated, and from Garbhodakaśāyī Viṣṇu, Kṣīrodakaśāyī Viṣṇu gradually expands. Thus Mahā-Viṣṇu is the original cause of Garbhodakaśāyī Viṣṇu, and from Garbhodakaśāyī Viṣṇu comes the lotus flower from which Lord Brahmā is manifested. Thus the original cause of everything is Viṣṇu, and consequently the cosmic manifestation is not different from Viṣṇu. This is confirmed in *Bhagavad-gītā* [[bg/10/8|(Bg. 10.8)]], wherein Kṛṣṇa says, *ahaṁ sarvasya prabhavo mattaḥ sarvaṁ pravartate:* "I am the source of all spiritual and material worlds. Everything emanates from Me." Garbhodakaśāyī Viṣṇu is an expansion of Kāraṇodakaśāyī Viṣṇu, who is an expansion of Saṅkarṣaṇa. In this way, Kṛṣṇa is ultimately the cause of all causes (*sarva-kāraṇa-kāraṇam* [Bs. 5.1]). The conclusion is that both the material world and spiritual world are considered to be the body of the Supreme Lord. We can understand that the material body is caused by the spiritual body and is therefore an expansion of the spiritual body. Thus when one takes up spiritual activities, one's entire material body is spiritualized. Similarly, in this material world, when the Kṛṣṇa consciousness movement expands, the entire material world becomes spiritualized. As long as we do not realize this, we live in the material world, but when we are fully Kṛṣṇa conscious we live not in the material world but in the spiritual world.
 
 ### SB 7.9.34
-
-> तत्सम्भवः कविरतोऽन्यदपश्यमानस
-> त्वां बीजमात्मनि ततं स बहिर्विचिन्त्य
-> नाविन्ददब्दशतमप्सु निमज्जमानो
-> जातेऽङ्कुरे कथमुहोपलभेत बीजम ॥३४॥
 
 > tat-sambhavaḥ kavir ato 'nyad apaśyamānas
 > tvāṁ bījam ātmani tataṁ sa bahir vicintya
@@ -7977,11 +6599,6 @@ This is the description of the cosmic manifestation. The development of the cosm
 
 ### SB 7.9.35
 
-> स त्वात्मयोनिरतिविस्मित आश्रितोऽब्जं
-> कालेन तीव्रतपसा परिशुद्धभावः
-> त्वामात्मनीश भुवि गन्धमिवातिसूक्ष्मं
-> भूतेन्द्रियाशयमये विततं ददर्श ॥३५॥
-
 > sa tv ātma-yonir ativismita āśrito 'bjaṁ
 > kālena tīvra-tapasā pariśuddha-bhāvaḥ
 > tvām ātmanīśa bhuvi gandham ivātisūkṣmaṁ
@@ -7994,11 +6611,6 @@ This is the description of the cosmic manifestation. The development of the cosm
 Here the statement of self-realization *ahaṁ brahmāsmi,* which is interpreted by the Māyāvāda philosophy to mean "I am the Supreme Lord," is explained. The Supreme Lord is the original seed of everything (*janmādy asya yataḥ [[sb/1/1/1|[SB 1.1.1] ]]. ahaṁ sarvasya prabhavo mattaḥ sarvaṁ pravartate* [[bg/10/8|[Bg. 10.8] ]]). Thus the Supreme Lord extends everywhere, even throughout our bodies, because our bodies are made of material energy, which is the Lord's separated energy. One should realize that since the Supreme Lord spreads throughout one's body and since the individual soul is a part of the Supreme Lord, everything is Brahman (*sarvaṁ khalv idaṁ brahma*). This realization was achieved by Lord Brahmā after he was purified, and it is possible for everyone. When one is completely in knowledge of *ahaṁ brahmāsmi,* he thinks, "I am part of the Supreme Lord, my body is made of His material energy, and therefore I have no separate existence. Yet although the Supreme Lord is spread everywhere, He is different from me." This is the philosophy of *acintya-bhedābheda-tattva.* An example given in this regard is that of the aroma within the earth. In the earth there are aromas and colors, but one cannot see them. Actually we find that when flowers grow from the earth, they appear with different colors and aromas, which they have certainly gathered from the earth, although in the earth we cannot see them. Similarly, the Supreme Lord, by His different energies, spreads throughout one's body and soul, although we cannot see Him. An intelligent man, however, can see the Supreme Lord existing everywhere. *Aṇḍāntara-stha-paramāṇu-cayāntara-stham:* [Bs. 5.35] the Lord is within the universe and within the atom by His different energies. This is the real vision of the Supreme Lord for the intelligent man. Brahmā, the first created being, became the most intelligent person by his *tapasya,* austerity, and thus he came to this realization. We must therefore take all knowledge from Brahmā, who became perfect by his *tapasya.*
 
 ### SB 7.9.36
-
-> एवं सहस्रवदनाङ्घ्रिशिरःकरोरु
-> नासाद्यकर्णनयनाभरणायुधाढ्यम
-> मायामयं सदुपलक्षितसन्निवेशं
-> दृष्ट्वा महापुरुषमाप मुदं विरिञ्चः ॥३६॥
 
 > evaṁ sahasra-vadanāṅghri-śiraḥ-karoru-
 > nāsādya-karṇa-nayanābharaṇāyudhāḍhyam
@@ -8022,11 +6634,6 @@ Lord Brahmā saw that as aromas and colors spread throughout the earth, the Supr
 
 ### SB 7.9.37
 
-> तस्मै भवान्हयशिरस्तनुवं हि बिभ्रद
-> वेदद्रुहावतिबलौ मधुकैटभाख्यौ
-> हत्वानयच्छ्रुतिगणांश्च रजस्तमश्च
-> सत्त्वं तव प्रियतमां तनुमामनन्ति ॥३७॥
-
 > tasmai bhavān haya-śiras tanuvaṁ hi bibhrad
 > veda-druhāv atibalau madhu-kaiṭabhākhyau
 > hatvānayac chruti-gaṇāṁś ca rajas tamaś ca
@@ -8049,11 +6656,6 @@ In summary, whenever the Lord incarnates, He appears in His original transcenden
 
 ### SB 7.9.38
 
-> इत्थं नृतिर्यगृषिदेवझषावतारैर
-> लोकान्विभावयसि हंसि जगत्प्रतीपान
-> धर्मं महापुरुष पासि युगानुवृत्तं
-> छन्नः कलौ यदभवस्त्रियुगोऽथ स त्वम ॥३८॥
-
 > itthaṁ nṛ-tiryag-ṛṣi-deva-jhaṣāvatārair
 > lokān vibhāvayasi haṁsi jagat pratīpān
 > dharmaṁ mahā-puruṣa pāsi yugānuvṛttaṁ
@@ -8073,11 +6675,6 @@ As the Lord appeared just to maintain Lord Brahmā from the attack of Madhu and 
 In Kali-yuga, intelligent men worship the Supreme Personality of Godhead in the form of Śrī Caitanya Mahāprabhu, who is always accompanied by His associates such as Nityānanda, Advaita, Gadādhara and Śrīvāsa. The entire Kṛṣṇa consciousness movement is based on the principles of the *saṅkīrtana* movement inaugurated by Śrī Caitanya Mahāprabhu. Therefore one who tries to understand the Supreme Personality of Godhead through the medium of the *saṅkīrtana* movement knows everything perfectly. He is *sumedhas,* a person with substantial intelligence.
 
 ### SB 7.9.39
-
-> नैतन्मनस्तव कथासु विकुण्ठनाथ
-> सम्प्रीयते दुरितदुष्टमसाधु तीव्रम
-> कामातुरं हर्षशोकभयैषणार्तं
-> तस्मिन्कथं तव गतिं विमृशामि दीनः ॥३९॥
 
 > naitan manas tava kathāsu vikuṇṭha-nātha
 > samprīyate durita-duṣṭam asādhu tīvram
@@ -8114,11 +6711,6 @@ To cleanse the heart so that one may become sober and wise in this age of Kali, 
 
 ### SB 7.9.40
 
-> जिह्वैकतोऽच्युत विकर्षति मावितृप्ता
-> शिश्नोऽन्यतस्त्वगुदरं श्रवणं कुतश्चित
-> घ्राणोऽन्यतश्चपलदृक्क्व च कर्मशक्तिर
-> बह्व्यः सपत्न्य इव गेहपतिं लुनन्ति ॥४०॥
-
 > jihvaikato 'cyuta vikarṣati māvitṛptā
 > śiśno 'nyatas tvag-udaraṁ śravaṇaṁ kutaścit
 > ghrāṇo 'nyataś capala-dṛk kva ca karma-śaktir
@@ -8131,11 +6723,6 @@ To cleanse the heart so that one may become sober and wise in this age of Kali, 
 The human form of life is meant for God realization, but this process, which begins with *śravaṇaṁ kīrtanaṁ viṣṇoḥ* [[sb/7/5/23-24|[SB 7.5.23] ]]—hearing and chanting of the holy name of the Lord—is disturbed as long as our senses are materially attracted. Therefore devotional service means purifying the senses. In the conditioned state our senses are covered by material sense gratification, and as long as one is not trained in purifying the senses, one cannot become a devotee. In our Kṛṣṇa consciousness movement, therefore, we advise from the very beginning that one restrict the activities of the senses, especially the tongue, which is described by Śrīla Bhaktivinoda Ṭhākura as most greedy and unconquerable. To stop this attraction of the tongue, one is authoritatively advised not to accept meat or similar uneatable things nor to allow the tongue to hanker to drink or smoke. Even the drinking of tea and coffee is not permitted. Similarly, the genitals must be restricted from illicit sex. Without such restraint of the senses, one cannot make advancement in Kṛṣṇa consciousness. The only method of controlling the senses is to chant and hear the holy name of the Lord; otherwise, one will always be disturbed, as a householder with more than one wife would be disturbed by them for sense gratification.
 
 ### SB 7.9.41
-
-> एवं स्वकर्मपतितं भववैतरण्याम
-> अन्योन्यजन्ममरणाशनभीतभीतम
-> पश्यन्जनं स्वपरविग्रहवैरमैत्रं
-> हन्तेति पारचर पीपृहि मूढमद्य ॥४१॥
 
 > evaṁ sva-karma-patitaṁ bhava-vaitaraṇyām
 > anyonya-janma-maraṇāśana-bhīta-bhītam
@@ -8157,11 +6744,6 @@ Prahlāda Mahārāja, a pure Vaiṣṇava, prays to the Lord not only for himsel
 
 ### SB 7.9.42
 
-> को न्वत्र तेऽखिलगुरो भगवन्प्रयास
-> उत्तारणेऽस्य भवसम्भवलोपहेतोः
-> मूढेषु वै महदनुग्रह आर्तबन्धो
-> किं तेन ते प्रियजनाननुसेवतां नः ॥४२॥
-
 > ko nv atra te 'khila-guro bhagavan prayāsa
 > uttāraṇe 'sya bhava-sambhava-lopa-hetoḥ
 > mūḍheṣu vai mahad-anugraha ārta-bandho
@@ -8176,11 +6758,6 @@ Here the words *priya janān anusevatāṁ naḥ* indicate that the Supreme Lord
 Another significant point in this verse is that by devotional service Prahlāda Mahārāja does not want to benefit alone. Rather, he prays to the Lord that all of us fallen souls in this material world may, by the grace of the Lord, engage in the service of His servant and thus be delivered. The grace of the Lord is not at all difficult for the Lord to bestow, and thus Prahlāda Mahārāja wants to save the whole world by spreading Kṛṣṇa consciousness.
 
 ### SB 7.9.43
-
-> नैवोद्विजे पर दुरत्ययवैतरण्यास
-> त्वद्वीर्यगायनमहामृतमग्नचित्तः
-> शोचे ततो विमुखचेतस इन्द्रियार्थ
-> मायासुखाय भरमुद्वहतो विमूढान ॥४३॥
 
 > naivodvije para duratyaya-vaitaraṇyās
 > tvad-vīrya-gāyana-mahāmṛta-magna-cittaḥ
@@ -8206,11 +6783,6 @@ There is a river known as Vaitaraṇī between the material and spiritual worlds
 
 ### SB 7.9.44
 
-> प्रायेण देव मुनयः स्वविमुक्तिकामा
-> मौनं चरन्ति विजने न परार्थनिष्ठाः
-> नैतान्विहाय कृपणान्विमुमुक्ष एको
-> नान्यं त्वदस्य शरणं भ्रमतोऽनुपश्ये ॥४४॥
-
 > prāyeṇa deva munayaḥ sva-vimukti-kāmā
 > maunaṁ caranti vijane na parārtha-niṣṭhāḥ
 > naitān vihāya kṛpaṇān vimumukṣa eko
@@ -8233,11 +6805,6 @@ For a devotee, being situated in the heavenly planets and being in the hellish p
 
 ### SB 7.9.45
 
-> यन्मैथुनादिगृहमेधिसुखं हि तुच्छं
-> कण्डूयनेन करयोरिव दुःखदुःखम
-> तृप्यन्ति नेह कृपणा बहुदुःखभाजः
-> कण्डूतिवन्मनसिजं विषहेत धीरः ॥४५॥
-
 > yan maithunādi-gṛhamedhi-sukhaṁ hi tucchaṁ
 > kaṇḍūyanena karayor iva duḥkha-duḥkham
 > tṛpyanti neha kṛpaṇā bahu-duḥkha-bhājaḥ
@@ -8259,11 +6826,6 @@ In reference to the low-grade happiness of sex life, Yāmunācārya says in this
 "Since I have been engaged in the transcendental loving service of Kṛṣṇa, realizing ever-new pleasure in Him, whenever I think of sex pleasure, I spit at the thought, and my lips curl with distaste." Yāmunācārya had formerly been a great king who enjoyed sexual happiness in various ways, but since he later engaged himself in the service of the Lord, he enjoyed spiritual bliss and hated to think of sex life. If sexual thoughts came to him, he would spit with disgust.
 
 ### SB 7.9.46
-
-> मौनव्रतश्रुततपोऽध्ययनस्वधर्म
-> व्याख्यारहोजपसमाधय आपवर्ग्याः
-> प्रायः परं पुरुष ते त्वजितेन्द्रियाणां
-> वार्ता भवन्त्युत न वात्र तु दाम्भिकानाम ॥४६॥
 
 > mauna-vrata-śruta-tapo-'dhyayana-sva-dharma-
 > vyākhyā-raho-japa-samādhaya āpavargyāḥ
@@ -8295,11 +6857,6 @@ There are many who like to chant the Hare Kṛṣṇa *mantra* in a silent, soli
 
 ### SB 7.9.47
 
-> रूपे इमे सदसती तव वेदसृष्टे
-> बीजाङ्कुराविव न चान्यदरूपकस्य
-> युक्ताः समक्षमुभयत्र विचक्षन्ते त्वां
-> योगेन वह्निमिव दारुषु नान्यतः स्यात ॥४७॥
-
 > rūpe ime sad-asatī tava veda-sṛṣṭe
 > bījāṅkurāv iva na cānyad arūpakasya
 > yuktāḥ samakṣam ubhayatra vicakṣante tvāṁ
@@ -8312,11 +6869,6 @@ There are many who like to chant the Hare Kṛṣṇa *mantra* in a silent, soli
 As described in previous verses, many so-called students of spiritual understanding follow the ten different methods known as *mauna-vrata-śruta-tapo-'dhyayana-sva-dharma-vyākhyā-raho japa-samādhayaḥ*  [[sb/7/9/46|[SB 7.9.46] ]]. These may be very attractive, but by following such methods, one cannot actually understand the real cause and effect and the original cause of everything (*janmādy asya yataḥ* [[sb/1/1/1|[SB 1.1.1] ]]). The original source of everything is the Supreme Personality of Godhead Himself (*sarva-kāraṇa-kāraṇam*). This original source of everything is Kṛṣṇa, the supreme ruler. *Īśvaraḥ paramaḥ kṛṣṇaḥ sac-cid-ānanda-vigrahaḥ* [Bs. 5.1]. He has His eternal spiritual form. Indeed, He is the root of everything (*bījaṁ māṁ sarva-bhūtānām [[bg/7/10|[Bg. 7.10] ]]*). Whatever manifestations exist, their cause is the Supreme Personality of Godhead. This cannot be understood by so-called silence or by any other hodgepodge method. The supreme cause can be understood only by devotional service, as stated in *Bhagavad-gītā* (*bhaktyā mām abhijānāti* [[bg/18/55|[Bg. 18.55] ]]). Elsewhere in *Śrīmad-Bhāgavatam* (11.14.21), the Supreme Godhead personally says, *bhaktyāham ekayā grāhyaḥ:* one can understand the original cause of all causes, the Supreme Person, only by devotional service, not by show-bottle exhibitionism.
 
 ### SB 7.9.48
-
-> त्वं वायुरग्निरवनिर्वियदम्बु मात्राः
-> प्राणेन्द्रियाणि हृदयं चिदनुग्रहश्च
-> सर्वं त्वमेव सगुणो विगुणश्च भूमन
-> नान्यत्त्वदस्त्यपि मनोवचसा निरुक्तम ॥४८॥
 
 > tvaṁ vāyur agnir avanir viyad ambu mātrāḥ
 > prāṇendriyāṇi hṛdayaṁ cid anugrahaś ca
@@ -8338,11 +6890,6 @@ This is the all-pervasive conception of the Supreme Personality of Godhead, whic
 
 ### SB 7.9.49
 
-> नैते गुणा न गुणिनो महदादयो ये
-> सर्वे मनः प्रभृतयः सहदेवमर्त्याः
-> आद्यन्तवन्त उरुगाय विदन्ति हि त्वाम
-> एवं विमृश्य सुधियो विरमन्ति शब्दात ॥४९॥
-
 > naite guṇā na guṇino mahad-ādayo ye
 > sarve manaḥ prabhṛtayaḥ sahadeva-martyāḥ
 > ādy-antavanta urugāya vidanti hi tvām
@@ -8359,14 +6906,9 @@ As stated in several places, *bhaktyā mām abhijānāti:* [[bg/18/55|[Bg. 18.55
 > tadā gantāsi nirvedaṁ
 > śrotavyasya śrutasya ca
 
-When one understands the Supreme Personality of Godhead by executing devotional service, one ceases the practice of studying the Vedic literature. Elsewhere it is said, *ārādhito yadi haris tapasā tataḥ kim [Nārada-pañcarātra].* If one can understand the Supreme Personality of Godhead and engage in His service, there is no more need of severe austerities, penances and so on. However, if after performing severe austerities and penances one does not understand the Supreme Personality of Godhead, such practices are useless.
+When one understands the Supreme Personality of Godhead by executing devotional service, one ceases the practice of studying the Vedic literature. Elsewhere it is said, *ārādhito yadi haris tapasā tataḥ kim.* If one can understand the Supreme Personality of Godhead and engage in His service, there is no more need of severe austerities, penances and so on. However, if after performing severe austerities and penances one does not understand the Supreme Personality of Godhead, such practices are useless.
 
 ### SB 7.9.50
-
-> तत्तेऽर्हत्तम नमः स्तुतिकर्मपूजाः
-> कर्म स्मृतिश्चरणयोः श्रवणं कथायाम
-> संसेवया त्वयि विनेति षडङ्गया किं
-> भक्तिं जनः परमहंसगतौ लभेत ॥५०॥
 
 > tat te 'rhattama namaḥ stuti-karma-pūjāḥ
 > karma smṛtiś caraṇayoḥ śravaṇaṁ kathāyām
@@ -8380,10 +6922,6 @@ When one understands the Supreme Personality of Godhead by executing devotional 
 The *Vedas* enjoin: *nāyam ātmā pravacanena labhyo na medhayā na bahunā śrutena.* One cannot understand the Supreme Personality of Godhead simply by studying the *Vedas* and offering prayers. Only by the grace of the Supreme Lord can one understand Him. The process of understanding the Lord, therefore, is *bhakti.* Without *bhakti,* simply following the Vedic injunctions to understand the Absolute Truth will not be helpful at all. The process of *bhakti* is understood by the *paramahaṁsa,* one who has accepted the essence of everything. The results of *bhakti* are reserved for such a *paramahaṁsa,* and this stage cannot be obtained by any Vedic process other than devotional service. Other processes, such as *jñāna* and *yoga,* can be successful only when mixed with *bhakti.* When we speak of *jñāna-yoga, karma-yoga* and *dhyāna-yoga* the word *yoga* indicates *bhakti. Bhakti-yoga,* or *buddhi-yoga,* executed with intelligence and full knowledge, is the only successful method for going back home, back to Godhead. If one wants to be liberated from the pangs of material existence, he should take to devotional service for quick attainment of this goal.
 
 ### SB 7.9.51
-
-> श्रीनारद उवाच
-> एतावद्वर्णितगुणो भक्त्या भक्तेन निर्गुणः
-> प्रह्रादं प्रणतं प्रीतो यतमन्युरभाषत ॥५१॥
 
 > śrī-nārada uvāca
 > etāvad varṇita-guṇo
@@ -8399,10 +6937,6 @@ The word *nirguṇa* is important. The Māyāvādī philosophers accept the Abso
 
 ### SB 7.9.52
 
-> श्रीभगवानुवाच
-> प्रह्राद भद्र भद्रं ते प्रीतोऽहं तेऽसुरोत्तम
-> वरं वृणीष्वाभिमतं कामपूरोऽस्म्यहं नृणाम ॥५२॥
-
 > śrī-bhagavān uvāca
 > prahrāda bhadra bhadraṁ te
 > prīto 'haṁ te 'surottama
@@ -8417,9 +6951,6 @@ The Supreme Personality of Godhead is known as *bhakta-vatsala,* the Supreme Per
 
 ### SB 7.9.53
 
-> मामप्रीणत आयुष्मन्दर्शनं दुर्लभं हि मे
-> दृष्ट्वा मां न पुनर्जन्तुरात्मानं तप्तुमर्हति ॥५३॥
-
 > mām aprīṇata āyuṣman
 > darśanaṁ durlabhaṁ hi me
 > dṛṣṭvā māṁ na punar jantur
@@ -8432,9 +6963,6 @@ The Supreme Personality of Godhead is known as *bhakta-vatsala,* the Supreme Per
 One cannot be happy under any circumstances unless one pleases the Supreme Personality of Godhead, but one who has learned how to please the Supreme Lord need no longer lament for his material condition.
 
 ### SB 7.9.54
-
-> प्रीणन्ति ह्यथ मां धीराः सर्वभावेन साधवः
-> श्रेयस्कामा महाभाग सर्वासामाशिषां पतिम ॥५४॥
 
 > prīṇanti hy atha māṁ dhīrāḥ
 > sarva-bhāvena sādhavaḥ
@@ -8456,10 +6984,6 @@ The words *dhīrāḥ sarva-bhāvena* do not mean "in whichever way you like." *
 The *bhāva* stage is the final division before one reaches love of Godhead. The word *sarva-bhāva* means that one can love the Supreme Personality of Godhead in different transcendental modes of mellows, beginning with *dāsya, sakhya, vātsalya* and *mādhurya.* In the *śānta* stage, one is on the border of loving service to the Lord. Pure love of Godhead begins from *dāsya* and develops to *sakhya, vātsalya* and then *mādhurya.* Still, in any of these five mellows one can render loving service to the Supreme Lord. Since our main business is to love the Supreme Personality of Godhead, one can render service from any of the above-mentioned platforms of love.
 
 ### SB 7.9.55
-
-> श्रीनारद उवाच
-> एवं प्रलोभ्यमानोऽपि वरैर्लोकप्रलोभनैः
-> एकान्तित्वाद्भगवति नैच्छत्तानसुरोत्तमः ॥५५॥
 
 > śrī-nārada uvāca
 > evaṁ pralobhyamāno 'pi
@@ -8487,10 +7011,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Ninth Chapter, of the 
 
 ### SB 7.10.1
 
-> श्रीनारद उवाच
-> भक्तियोगस्य तत्सर्वमन्तरायतयार्भकः
-> मन्यमानो हृषीकेशं स्मयमान उवाच ह ॥१॥
-
 > śrī-nārada uvāca
 > bhakti-yogasya tat sarvam
 > antarāyatayārbhakaḥ
@@ -8504,10 +7024,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Ninth Chapter, of the 
 Material achievements are not the ultimate goal of devotional service. The ultimate goal of devotional service is love of Godhead. Therefore although Prahlāda Mahārāja, Dhruva Mahārāja, Ambarīṣa Mahārāja, Yudhiṣṭhira Mahārāja and many devotee kings were materially very opulent, they accepted their material opulence in the service of the Lord, not for their personal sense gratification. Of course, possessing material opulence is always fearful because under the influence of material opulence one may be misdirected from devotional service. Nonetheless, a pure devotee (*anyābhilāṣitā-śūnyam* [*Bhakti-rasāmṛta-sindhu* 1.1.11]) is never misdirected by material opulence. On the contrary, whatever he possesses he engages one hundred percent in the service of the Lord. When one is allured by material possessions, they are considered to be given by *māyā,* but when one uses material possessions fully for service, they are considered God's gifts, or facilities offered by Kṛṣṇa for enhancing one's devotional service.
 
 ### SB 7.10.2
-
-> श्रीप्रह्राद उवाच
-> मा मां प्रलोभयोत्पत्त्या सक्तंकामेषु तैर्वरैः
-> तत्सङ्गभीतो निर्विण्णो मुमुक्षुस्त्वामुपाश्रितः ॥२॥
 
 > śrī-prahrāda uvāca
 > mā māṁ pralobhayotpattyā
@@ -8523,9 +7039,6 @@ Materialistic life means attachment to the body and everything in relationship t
 
 ### SB 7.10.3
 
-> भृत्यलक्षणजिज्ञआसुर्भक्तं कामेष्वचोदयत
-> भवान्संसारबीजेषु हृदयग्रन्थिषु प्रभो ॥३॥
-
 > bhṛtya-lakṣaṇa-jijñāsur
 > bhaktaṁ kāmeṣv acodayat
 > bhavān saṁsāra-bījeṣu
@@ -8538,9 +7051,6 @@ Materialistic life means attachment to the body and everything in relationship t
 *Bhakti-rasāmṛta-sindhu* has given considerable discussion about *nitya-siddha* and *sādhana-siddha* devotees. *Nitya-siddha* devotees come from Vaikuṇṭha to this material world to teach, by their personal example, how to become a devotee. The living entities in this material world can take lessons from such *nitya-siddha* devotees and thus become inclined to return home, back to Godhead. A *nitya-siddha* devotee comes from Vaikuṇṭha upon the order of the Supreme Personality of Godhead and shows by his example how to become a pure devotee (*anyābhilāṣitā-śūnyam [Bhakti-rasāmṛta-sindhu* 1.1.11]). In spite of coming to this material world, the *nitya-siddha* devotee is never attracted by the allurements of material enjoyment. A perfect example is Prahlāda Mahārāja, who was a *nitya-siddha,* a *mahā-bhāgavata* devotee. Although Prahlāda was born in the family of Hiraṇyakaśipu, an atheist, he was never attached to any kind of materialistic enjoyment. Desiring to exhibit the symptoms of a pure devotee, the Lord tried to induce Prahlāda Mahārāja to take material benedictions, but Prahlāda Mahārāja did not accept them. On the contrary, by his personal example he showed the symptoms of a pure devotee. In other words, the Lord Himself has no desire to send His pure devotee to this material world, nor does a devotee have any material purpose in coming. When the Lord Himself appears as an incarnation within this material world, He is not allured by the material atmosphere, and He has nothing to do with material activity, yet by His example He teaches the common man how to become a devotee. Similarly, a devotee who comes here in accordance with the order of the Supreme Lord shows by his personal behavior how to become a pure devotee. A pure devotee, therefore, is a practical example for all living entities, including Lord Brahmā.
 
 ### SB 7.10.4
-
-> नान्यथा तेऽखिलगुरो घटेत करुणात्मनः
-> यस्त आशिष आशास्ते न स भृत्यः स वै वणिक ॥४॥
 
 > nānyathā te 'khila-guro
 > ghaṭeta karuṇātmanaḥ
@@ -8564,9 +7074,6 @@ Sometimes materialists go to a temple to offer flowers and fruit to the Lord bec
 
 ### SB 7.10.5
 
-> आशासानो न वै भृत्यः स्वामिन्याशिष आत्मनः
-> न स्वामी भृत्यतः स्वाम्यमिच्छन्यो राति चाशिषः ॥५॥
-
 > āśāsāno na vai bhṛtyaḥ
 > svāminy āśiṣa ātmanaḥ
 > na svāmī bhṛtyataḥ svāmyam
@@ -8579,9 +7086,6 @@ Sometimes materialists go to a temple to offer flowers and fruit to the Lord bec
 As stated in *Bhagavad-gītā* [[bg/7/20|(Bg. 7.20)]], *kāmais tais tair hṛta jñānāḥ prapadyante 'nya-devatāḥ.* "Those whose minds are distorted by material desires surrender unto demigods." A demigod cannot become master, for the real master is the Supreme Personality of Godhead. The demigods, to keep their prestigious positions, bestow upon their worshipers whatever benedictions the worshipers want. For example, once it was found that an *asura* took a benediction from Lord Śiva by which the *asura* would be able to kill someone simply by placing his hands on that person's head. Such benedictions are possible to receive from the demigods. If one worships the Supreme Personality of Godhead, however, the Lord will never offer him such condemned benedictions. On the contrary, it is said in the *Śrīmad-Bhāgavatam* (10.88.8), *yasyāham anugṛhnāmi hariṣye tad-dhanaṁ śanaiḥ.* If one is too materialistic but at the same time wants to be a servant of the Supreme Lord, the Lord, because of His supreme compassion for the devotee, takes away all his material opulences and obliges him to be a pure devotee of the Lord. Prahlāda Mahārāja distinguishes between the pure devotee and the pure master. The Lord is the pure master, the supreme master, whereas an unalloyed devotee with no material motives is the pure servant. One who has materialistic motivations cannot become a servant, and one who unnecessarily bestows benedictions upon his servant to keep his own prestigious position is not a real master.
 
 ### SB 7.10.6
-
-> अहं त्वकामस्त्वद्भक्तस्त्वं च स्वाम्यनपाश्रयः
-> नान्यथेहावयोरर्थो राजसेवकयोरिव ॥६॥
 
 > ahaṁ tv akāmas tvad-bhaktas
 > tvaṁ ca svāmy anapāśrayaḥ
@@ -8602,9 +7106,6 @@ As stated in *Bhagavad-gītā* [[bg/7/20|(Bg. 7.20)]], *kāmais tais tair hṛta
 In the *Padma Purāṇa* Lord Śiva explains to his wife, Parvatī, the goddess Durgā, that the highest goal of life is to satisfy Lord Viṣṇu, who can be satisfied only when His servant is satisfied. Śrī Caitanya Mahāprabhu therefore teaches, *gopī-bhartuḥ pada-kamalayor dāsa-dāsānudāsaḥ* [[cc/madhya/13/80|[Cc. Madhya 13.80] ]]. One must become a servant of the servant. Prahlāda Mahārāja also prayed to Lord Nṛsiṁhadeva that he might be engaged as the servant of the Lord's servant. This is the prescribed method of devotional service. As soon as a devotee wants the Supreme Personality of Godhead to be his order supplier, the Lord immediately refuses to become the master of such a motivated devotee. In *Bhagavad-gītā* [[bg/4/11|(Bg. 4.11)]] the Lord says, *ye yathā māṁ prapadyante tāṁs tathaiva bhajāmy aham.* "As one surrenders unto Me, I reward him accordingly." Materialistic persons are generally inclined to material profits. As long as one continues in such an adulterated position, he does not receive the benefit of returning home, back to Godhead.
 
 ### SB 7.10.7
-
-> यदि दास्यसि मे कामान्वरांस्त्वं वरदर्षभ
-> कामानां हृद्यसंरोहं भवतस्तु वृणे वरम ॥७॥
 
 > yadi dāsyasi me kāmān
 > varāṁs tvaṁ varadarṣabha
@@ -8627,9 +7128,6 @@ Lord Śrī Caitanya Mahāprabhu taught us how to pray for benedictions from the 
 
 ### SB 7.10.8
 
-> इन्द्रियाणि मनः प्राण आत्मा धर्मो धृतिर्मतिः
-> ह्रीः श्रीस्तेजः स्मृतिः सत्यं यस्य नश्यन्ति जन्मना ॥८॥
-
 > indriyāṇi manaḥ prāṇa
 > ātmā dharmo dhṛtir matiḥ
 > hrīḥ śrīs tejaḥ smṛtiḥ satyaṁ
@@ -8651,9 +7149,6 @@ As stated in *Śrīmad-Bhāgavatam, kāmaṁ hṛd-rogam.* Materialistic life me
 
 ### SB 7.10.9
 
-> विमुञ्चति यदा कामान्मानवो मनसि स्थितान
-> तर्ह्येव पुण्डरीकाक्ष भगवत्त्वाय कल्पते ॥९॥
-
 > vimuñcati yadā kāmān
 > mānavo manasi sthitān
 > tarhy eva puṇḍarīkākṣa
@@ -8667,9 +7162,6 @@ Atheistic men sometimes criticize a devotee by saying, "If you do not want to ta
 
 ### SB 7.10.10
 
-> ओं नमो भगवते तुभ्यं पुरुषाय महात्मने
-> हरयेऽद्भुतसिंहाय ब्रह्मणे परमात्मने ॥१०॥
-
 > oṁ namo bhagavate tubhyaṁ
 > puruṣāya mahātmane
 > haraye 'dbhuta-siṁhāya
@@ -8682,10 +7174,6 @@ Atheistic men sometimes criticize a devotee by saying, "If you do not want to ta
 In the previous verse Prahlāda Mahārāja has explained that a devotee can achieve the platform of *bhagavattva,* being as good as the Supreme Person, but this does not mean that the devotee loses his position as a servant. A pure servant of the Lord, although as opulent as the Lord, is still meant to offer respectful obeisances to the Lord in service. Prahlāda Mahārāja was engaged in pacifying the Lord, and therefore he did not consider himself equal to the Lord. He defined his position as a servant and offered respectful obeisances unto the Lord.
 
 ### SB 7.10.11
-
-> श्रीभगवानुवाच
-> नैकान्तिनो मे मयि जात्विहाशिष आशासतेऽमुत्र च ये भवद्विधाः
-> तथापि मन्वन्तरमेतदत्र दैत्येश्वराणामनुभुङ्क्ष्व भोगान ॥११॥
 
 > śrī-bhagavān uvāca
 > naikāntino me mayi jātv ihāśiṣa
@@ -8708,9 +7196,6 @@ One Manu lives for a duration of time calculated to be an aggregate of seventy-o
 
 ### SB 7.10.12
 
-> कथा मदीया जुषमाणः प्रियास्त्वमावेश्य मामात्मनि सन्तमेकम
-> सर्वेषु भूतेष्वधियज्ञअमीशं यजस्व योगेन च कर्म हिन्वन ॥१२॥
-
 > kathā madīyā juṣamāṇaḥ priyās tvam
 > āveśya mām ātmani santam ekam
 > sarveṣu bhūteṣv adhiyajñam īśaṁ
@@ -8723,9 +7208,6 @@ One Manu lives for a duration of time calculated to be an aggregate of seventy-o
 When a devotee becomes materially very opulent, one should not think that he is enjoying the results of his fruitive activities. A devotee in this material world uses all material opulences for the service of the Lord because he is planning how to serve the Lord with these opulences, as advised by the Lord Himself. Whatever material opulence is within his possession he engages to expand the glories and service of the Lord. A devotee never performs any fruitive or ritualistic ceremony to enjoy the results of such *karma.* Rather, a devotee knows that *karma-kāṇḍa* is meant for the less intelligent man. Narottama dāsa Ṭhākura says in his *prema-bhakti-candrikā, karma-kāṇḍa, jñāna-kāṇḍa, kevala viṣera bhāṇḍa:* both *karma-kāṇḍa* and *jñāna-kāṇḍa*-fruitive activities and speculation about the Supreme Lord—are like pots of poison. One who is attracted to *karma-kāṇḍa* and *jñāna-kāṇḍa* spoils his existence as a human being. Therefore a devotee is never interested in *karma-kāṇḍa* or *jñāna-kāṇḍa,* but is simply interested in favorable service to the Lord (*ānukūlyena kṛṣṇānuśīlanam* [[cc/madhya/19/167|[Cc. Madhya 19.167] ]]), or cultivation of spiritual activities in devotional service.
 
 ### SB 7.10.13
-
-> भोगेन पुण्यं कुशलेन पापं कलेवरं कालजवेन हित्वा
-> कीर्तिं विशुद्धां सुरलोकगीतां विताय मामेष्यसि मुक्तबन्धः ॥१३॥
 
 > bhogena puṇyaṁ kuśalena pāpaṁ
 > kalevaraṁ kāla-javena hitvā
@@ -8741,9 +7223,6 @@ When a devotee becomes materially very opulent, one should not think that he is 
 The word *kuśalena* is very important. One should live in the material world very expertly. The material world is known as the world of duality because one sometimes has to act impiously and sometimes has to act piously. Although one does not want to act impiously, the world is so fashioned that there is always danger (*padaṁ padaṁ yad vipadām* [SB 10.14.58]). Thus even when performing devotional service a devotee has to create many enemies. Prahlāda Mahārāja himself had experience of this, for even his father became his enemy. A devotee should expertly manage to think always of the Supreme Lord so that the reactions of suffering cannot touch him. This is the expert management of *pāpa-puṇya*-pious and impious activities. An exalted devotee like Prahlāda Mahārāja is *jīvan-mukta;* he is liberated even in this very life in the material body.
 
 ### SB 7.10.14
-
-> य एतत्कीर्तयेन्मह्यं त्वया गीतमिदं नरः
-> त्वां च मां च स्मरन्काले कर्मबन्धात्प्रमुच्यते ॥१४॥
 
 > ya etat kīrtayen mahyaṁ
 > tvayā gītam idaṁ naraḥ
@@ -8785,14 +7264,6 @@ Here it is stated that anyone who chants and hears about the activities of Prahl
 
 ### SB 7.10.15-17
 
-> श्रीप्रह्राद उवाच
-> वरं वरय एतत्ते वरदेशान्महेश्वर
-> यदनिन्दत्पिता मे त्वामविद्वांस्तेज ऐश्वरम ॥१५॥
-> विद्धामर्षाशयः साक्षात्सर्वलोकगुरुं प्रभुम
-> भ्रातृहेति मृषादृष्टिस्त्वद्भक्ते मयि चाघवान ॥१६॥
-> तस्मात्पिता मे पूयेत दुरन्ताद्दुस्तरादघात
-> पूतस्तेऽपाङ्गसंदृष्टस्तदा कृपणवत्सल ॥१७॥
-
 > śrī-prahrāda uvāca
 > varaṁ varaya etat te
 > varadeśān maheśvara
@@ -8817,10 +7288,6 @@ Although Hiraṇyakaśipu was purified as soon as he came in contact with the Lo
 
 ### SB 7.10.18
 
-> श्रीभगवानुवाच
-> त्रिःसप्तभिः पिता पूतः पितृभिः सह तेऽनघ
-> यत्साधोऽस्य कुले जातो भवान्वै कुलपावनः ॥१८॥
-
 > śrī-bhagavān uvāca
 > triḥ-saptabhiḥ pitā pūtaḥ
 > pitṛbhiḥ saha te 'nagha
@@ -8835,9 +7302,6 @@ The word *triḥ-saptabhiḥ* means seven multiplied by three. In one's family o
 
 ### SB 7.10.19
 
-> यत्र यत्र च मद्भक्ताः प्रशान्ताः समदर्शिनः
-> साधवः समुदाचारास्ते पूयन्तेऽपि कीकटाः ॥१९॥
-
 > yatra yatra ca mad-bhaktāḥ
 > praśāntāḥ sama-darśinaḥ
 > sādhavaḥ samudācārās
@@ -8851,9 +7315,6 @@ Wherever exalted devotees stay, not only they and their dynasties but the entire
 
 ### SB 7.10.20
 
-> सर्वात्मना न हिंसन्ति भूतग्रामेषु किञ्चन
-> उच्चावचेषु दैत्येन्द्र मद्भावविगतस्पृहाः ॥२०॥
-
 > sarvātmanā na hiṁsanti
 > bhūta-grāmeṣu kiñcana
 > uccāvaceṣu daityendra
@@ -8864,9 +7325,6 @@ Wherever exalted devotees stay, not only they and their dynasties but the entire
 **My dear Prahlāda, King of the Daityas, because of being attached to devotional service to Me, My devotee does not distinguish between lower and higher living entities. In all respects, he is never jealous of anyone.**
 
 ### SB 7.10.21
-
-> भवन्ति पुरुषा लोके मद्भक्तास्त्वामनुव्रताः
-> भवान्मे खलु भक्तानां सर्वेषां प्रतिरूपधृक ॥२१॥
 
 > bhavanti puruṣā loke
 > mad-bhaktās tvām anuvratāḥ
@@ -8895,9 +7353,6 @@ Of the twelve authorized devotees—Lord Brahmā, Nārada, Lord Śiva, Kapila, M
 
 ### SB 7.10.22
 
-> कुरु त्वं प्रेतकृत्यानि पितुः पूतस्य सर्वशः
-> मदङ्गस्पर्शनेनाङ्ग लोकान्यास्यति सुप्रजाः ॥२२॥
-
 > kuru tvaṁ preta-kṛtyāni
 > pituḥ pūtasya sarvaśaḥ
 > mad-aṅga-sparśanenāṅga
@@ -8917,9 +7372,6 @@ In this regard, Śrīla Viśvanātha Cakravartī Ṭhākura says that although H
 When the demons Madhu and Kaiṭabha were killed by the Supreme Personality of Godhead, their kinsmen also observed the ritualistic ceremonies so that these demons could return home, back to Godhead.
 
 ### SB 7.10.23
-
-> पित्र्यं च स्थानमातिष्ठ यथोक्तं ब्रह्मवादिभिः
-> मय्यावेश्य मनस्तात कुरु कर्माणि मत्परः ॥२३॥
 
 > pitryaṁ ca sthānam ātiṣṭha
 > yathoktaṁ brahmavādibhiḥ
@@ -8950,10 +7402,6 @@ The Supreme Personality of Godhead nonetheless advised Prahlāda Mahārāja to f
 
 ### SB 7.10.24
 
-> श्रीनारद उवाच
-> प्रह्रादोऽपि तथा चक्रे पितुर्यत्साम्परायिकम
-> यथाह भगवान्राजन्नभिषिक्तो द्विजातिभिः ॥२४॥
-
 > śrī-nārada uvāca
 > prahrādo 'pi tathā cakre
 > pitur yat sāmparāyikam
@@ -8968,9 +7416,6 @@ It is essential that society be divided into four groups of men—*brāhmaṇas,
 
 ### SB 7.10.25
 
-> प्रसादसुमुखं दृष्ट्वा ब्रह्मा नरहरिं हरिम
-> स्तुत्वा वाग्भिः पवित्राभिः प्राह देवादिभिर्वृतः ॥२५॥
-
 > prasāda-sumukhaṁ dṛṣṭvā
 > brahmā narahariṁ harim
 > stutvā vāgbhiḥ pavitrābhiḥ
@@ -8981,10 +7426,6 @@ It is essential that society be divided into four groups of men—*brāhmaṇas,
 **Lord Brahmā, surrounded by the other demigods, was bright-faced because the Lord was pleased. Thus he offered prayers to the Lord with transcendental words.**
 
 ### SB 7.10.26
-
-> श्रीब्रह्मोवाच
-> देवदेवाखिलाध्यक्ष भूतभावन पूर्वज
-> दिष्ट्या ते निहतः पापो लोकसन्तापनोऽसुरः ॥२६॥
 
 > śrī-brahmovāca
 > deva-devākhilādhyakṣa
@@ -9000,9 +7441,6 @@ The word *pūrvaja* is described in *Bhagavad-gītā* [[bg/10/8|(Bg. 10.8)]]: *a
 
 ### SB 7.10.27
 
-> योऽसौ लब्धवरो मत्तो न वध्यो मम सृष्टिभिः
-> तपोयोगबलोन्नद्धः समस्तनिगमानहन ॥२७॥
-
 > yo 'sau labdha-varo matto
 > na vadhyo mama sṛṣṭibhiḥ
 > tapo-yoga-balonnaddhaḥ
@@ -9014,9 +7452,6 @@ The word *pūrvaja* is described in *Bhagavad-gītā* [[bg/10/8|(Bg. 10.8)]]: *a
 
 ### SB 7.10.28
 
-> दिष्ट्या तत्तनयः साधुर्महाभागवतोऽर्भकः
-> त्वया विमोचितो मृत्योर्दिष्ट्या त्वां समितोऽधुना ॥२८॥
-
 > diṣṭyā tat-tanayaḥ sādhur
 > mahā-bhāgavato 'rbhakaḥ
 > tvayā vimocito mṛtyor
@@ -9027,9 +7462,6 @@ The word *pūrvaja* is described in *Bhagavad-gītā* [[bg/10/8|(Bg. 10.8)]]: *a
 **By great fortune, Hiraṇyakaśipu's son Prahlāda Mahārāja has now been released from death, for although he is a child, he is an exalted devotee. Now he is fully under the protection of Your lotus feet.**
 
 ### SB 7.10.29
-
-> एतद्वपुस्ते भगवन्ध्यायतः परमात्मनः
-> सर्वतो गोप्तृ सन्त्रासान्मृत्योरपि जिघांसतः ॥२९॥
 
 > etad vapus te bhagavan
 > dhyāyataḥ paramātmanaḥ
@@ -9044,10 +7476,6 @@ Everyone is sure to die, for no one is excused from the hands of death, which is
 
 ### SB 7.10.30
 
-> श्रीभगवानुवाच
-> मैवं विभोऽसुराणां ते प्रदेयः पद्मसम्भव
-> वरः क्रूरनिसर्गाणामहीनाममृतं यथा ॥३०॥
-
 > śrī-bhagavān uvāca
 > maivaṁ vibho 'surāṇāṁ te
 > pradeyaḥ padma-sambhava
@@ -9059,10 +7487,6 @@ Everyone is sure to die, for no one is excused from the hands of death, which is
 **The Personality of Godhead replied: My dear Lord Brahmā, O great lord born from the lotus flower, just as it is dangerous to feed milk to a snake, so it is dangerous to give benedictions to demons, who are by nature ferocious and jealous. I warn you not to give such benedictions to any demon again.**
 
 ### SB 7.10.31
-
-> श्रीनारद उवाच
-> इत्युक्त्वा भगवान्राजंस्ततश्चान्तर्दधे हरिः
-> अदृश्यः सर्वभूतानां पूजितः परमेष्ठिना ॥३१॥
 
 > śrī-nārada uvāca
 > ity uktvā bhagavān rājaṁs
@@ -9076,9 +7500,6 @@ Everyone is sure to die, for no one is excused from the hands of death, which is
 
 ### SB 7.10.32
 
-> ततः सम्पूज्य शिरसा ववन्दे परमेष्ठिनम
-> भवं प्रजापतीन्देवान्प्रह्रादो भगवत्कलाः ॥३२॥
-
 > tataḥ sampūjya śirasā
 > vavande parameṣṭhinam
 > bhavaṁ prajāpatīn devān
@@ -9089,9 +7510,6 @@ Everyone is sure to die, for no one is excused from the hands of death, which is
 **Prahlāda Mahārāja then worshiped and offered prayers to all the demigods, such as Brahmā, Śiva and the Prajāpatis, who are all parts of the Lord.**
 
 ### SB 7.10.33
-
-> ततः काव्यादिभिः सार्धं मुनिभिः कमलासनः
-> दैत्यानां दानवानां च प्रह्रादमकरोत्पतिम ॥३३॥
 
 > tataḥ kāvyādibhiḥ sārdhaṁ
 > munibhiḥ kamalāsanaḥ
@@ -9106,9 +7524,6 @@ By the grace of Lord Nṛsiṁhadeva, Prahlāda Mahārāja became a greater king
 
 ### SB 7.10.34
 
-> प्रतिनन्द्य ततो देवाः प्रयुज्य परमाशिषः
-> स्वधामानि ययू राजन्ब्रह्माद्याः प्रतिपूजिताः ॥३४॥
-
 > pratinandya tato devāḥ
 > prayujya paramāśiṣaḥ
 > sva-dhāmāni yayū rājan
@@ -9119,9 +7534,6 @@ By the grace of Lord Nṛsiṁhadeva, Prahlāda Mahārāja became a greater king
 **O King Yudhiṣṭhira, after all the demigods, headed by Lord Brahmā, were properly worshiped by Prahlāda Mahārāja, they offered Prahlāda their utmost benedictions and then returned to their respective abodes.**
 
 ### SB 7.10.35
-
-> एवं च पार्षदौ विष्णोः पुत्रत्वं प्रापितौ दितेः
-> हृदि स्थितेन हरिणा वैरभावेन तौ हतौ ॥३५॥
 
 > evaṁ ca pārṣadau viṣṇoḥ
 > putratvaṁ prāpitau diteḥ
@@ -9136,9 +7548,6 @@ The discourse concerning Lord Nṛsiṁhadeva and Prahlāda Mahārāja began whe
 
 ### SB 7.10.36
 
-> पुनश्च विप्रशापेन राक्षसौ तौ बभूवतुः
-> कुम्भकर्णदशग्रीवौ हतौ तौ रामविक्रमैः ॥३६॥
-
 > punaś ca vipra-śāpena
 > rākṣasau tau babhūvatuḥ
 > kumbhakarṇa-daśa-grīvau
@@ -9150,9 +7559,6 @@ The discourse concerning Lord Nṛsiṁhadeva and Prahlāda Mahārāja began whe
 
 ### SB 7.10.37
 
-> शयानौ युधि निर्भिन्न हृदयौ रामशायकैः
-> तच्चित्तौ जहतुर्देहं यथा प्राक्तनजन्मनि ॥३७॥
-
 > śayānau yudhi nirbhinna-
 > hṛdayau rāma-śāyakaiḥ
 > tac-cittau jahatur dehaṁ
@@ -9163,9 +7569,6 @@ The discourse concerning Lord Nṛsiṁhadeva and Prahlāda Mahārāja began whe
 **Pierced by the arrows of Lord Rāmacandra, both Kumbhakarṇa and Rāvaṇa lay on the ground and left their bodies, fully absorbed in thought of the Lord, just as they had in their previous births as Hiraṇyākṣa and Hiraṇyakaśipu.**
 
 ### SB 7.10.38
-
-> ताविहाथ पुनर्जातौ शिशुपालकरूषजौ
-> हरौ वैरानुबन्धेन पश्यतस्ते समीयतुः ॥३८॥
 
 > tāv ihātha punar jātau
 > śiśupāla-karūṣa-jau
@@ -9180,9 +7583,6 @@ The discourse concerning Lord Nṛsiṁhadeva and Prahlāda Mahārāja began whe
 
 ### SB 7.10.39
 
-> एनः पूर्वकृतं यत्तद्राजानः कृष्णवैरिणः
-> जहुस्तेऽन्ते तदात्मानः कीटः पेशस्कृतो यथा ॥३९॥
-
 > enaḥ pūrva-kṛtaṁ yat tad
 > rājānaḥ kṛṣṇa-vairiṇaḥ
 > jahus te 'nte tad-ātmānaḥ
@@ -9195,9 +7595,6 @@ The discourse concerning Lord Nṛsiṁhadeva and Prahlāda Mahārāja began whe
 The mystery of yogic meditation is explained here. Real *yogīs* always meditate on the form of Viṣṇu within their hearts. Consequently, at the time of death they give up their bodies while thinking of the form of Viṣṇu and thus attain Viṣṇuloka, Vaikuṇṭhaloka, where they receive bodily features the same as those of the Lord. From the Sixth Canto we have already learned that when the Viṣṇudūtas came from Vaikuṇṭha to deliver Ajāmila, they looked exactly like Viṣṇu, with four hands and the same features as Viṣṇu. Therefore, we may conclude that if one practices thinking of Viṣṇu and is fully absorbed in thinking of Him at the time of death, one returns home, back to Godhead. Even enemies of Kṛṣṇa who thought of Kṛṣṇa in fear (*bhaya*), such as King Kaṁsa, received bodies in a spiritual identity similar to that of the Lord.
 
 ### SB 7.10.40
-
-> यथा यथा भगवतो भक्त्या परमयाभिदा
-> नृपाश्चैद्यादयः सात्म्यं हरेस्तच्चिन्तया ययुः ॥४०॥
 
 > yathā yathā bhagavato
 > bhaktyā paramayābhidā
@@ -9219,9 +7616,6 @@ Pauṇḍraka, Narakāsura, Sālva and Kaṁsa were all inimical toward the Supr
 
 ### SB 7.10.41
 
-> आख्यातं सर्वमेतत्ते यन्मां त्वं परिपृष्टवान
-> दमघोषसुतादीनां हरेः सात्म्यमपि द्विषाम ॥४१॥
-
 > ākhyātaṁ sarvam etat te
 > yan māṁ tvaṁ paripṛṣṭavān
 > damaghoṣa-sutādīnāṁ
@@ -9232,9 +7626,6 @@ Pauṇḍraka, Narakāsura, Sālva and Kaṁsa were all inimical toward the Supr
 **Everything you asked me about how Śiśupāla and others attained salvation although they were inimical has now been explained to you by me.**
 
 ### SB 7.10.42
-
-> एषा ब्रह्मण्यदेवस्य कृष्णस्य च महात्मनः
-> अवतारकथा पुण्या वधो यत्रादिदैत्ययोः ॥४२॥
 
 > eṣā brahmaṇya-devasya
 > kṛṣṇasya ca mahātmanaḥ
@@ -9262,11 +7653,6 @@ The demon Hiraṇyakaśipu had so many ways to try to become God himself, but al
 
 ### SB 7.10.43-44
 
-> प्रह्रादस्यानुचरितं महाभागवतस्य च
-> भक्तिरज्ञआनं विरक्तिश्च याथार्थ्यं चास्य वै हरेः ॥४३॥
-> सर्गस्थित्यप्ययेशस्य गुणकर्मानुवर्णनम
-> परावरेषां स्थानानां कालेन व्यत्ययो महान ॥४४॥
-
 > prahrādasyānucaritaṁ
 > mahā-bhāgavatasya ca
 > bhaktir jñānaṁ viraktiś ca
@@ -9285,9 +7671,6 @@ The demon Hiraṇyakaśipu had so many ways to try to become God himself, but al
 
 ### SB 7.10.45
 
-> धर्मो भागवतानां च भगवान्येन गम्यते
-> आख्यानेऽस्मिन्समाम्नातमाध्यात्मिकमशेषतः ॥४५॥
-
 > dharmo bhāgavatānāṁ ca
 > bhagavān yena gamyate
 > ākhyāne 'smin samāmnātam
@@ -9301,9 +7684,6 @@ Through the principles of religion, one can understand the Supreme Personality o
 
 ### SB 7.10.46
 
-> य एतत्पुण्यमाख्यानं विष्णोर्वीर्योपबृंहितम
-> कीर्तयेच्छ्रद्धया श्रुत्वा कर्मपाशैर्विमुच्यते ॥४६॥
-
 > ya etat puṇyam ākhyānaṁ
 > viṣṇor vīryopabṛṁhitam
 > kīrtayec chraddhayā śrutvā
@@ -9315,11 +7695,6 @@ Through the principles of religion, one can understand the Supreme Personality o
 
 ### SB 7.10.47
 
-> एतद्य आदिपुरुषस्य मृगेन्द्रलीलां
-> दैत्येन्द्रयूथपवधं प्रयतः पठेत
-> दैत्यात्मजस्य च सतां प्रवरस्य पुण्यं
-> श्रुत्वानुभावमकुतोभयमेति लोकम ॥४७॥
-
 > etad ya ādi-puruṣasya mṛgendra-līlāṁ
 > daityendra-yūtha-pa-vadhaṁ prayataḥ paṭheta
 > daityātmajasya ca satāṁ pravarasya puṇyaṁ
@@ -9330,9 +7705,6 @@ Through the principles of religion, one can understand the Supreme Personality o
 **Prahlāda Mahārāja was the best among exalted devotees. Anyone who with great attention hears this narration concerning the activities of Prahlāda Mahārāja, the killing of Hiraṇyakaśipu, and the activities of the Supreme Personality of Godhead, Nṛsiṁhadeva, surely reaches the spiritual world, where there is no anxiety.**
 
 ### SB 7.10.48
-
-> यूयं नृलोके बत भूरिभागा लोकं पुनाना मुनयोऽभियन्ति
-> येषां गृहानावसतीति साक्षाद्गूढं परं ब्रह्म मनुष्यलिङ्गम ॥४८॥
 
 > yūyaṁ nṛ-loke bata bhūri-bhāgā
 > lokaṁ punānā munayo 'bhiyanti
@@ -9349,9 +7721,6 @@ Any pure devotee who is constantly conscious of Kṛṣṇa is naturally very fo
 
 ### SB 7.10.49
 
-> स वा अयं ब्रह्म महद्विमृग्य कैवल्यनिर्वाणसुखानुभूतिः
-> प्रियः सुहृद्वः खलु मातुलेय आत्मार्हणीयो विधिकृद्गुरुश्च ॥४९॥
-
 > sa vā ayaṁ brahma mahad-vimṛgya-
 > kaivalya-nirvāṇa-sukhānubhūtiḥ
 > priyaḥ suhṛd vaḥ khalu mātuleya
@@ -9364,9 +7733,6 @@ Any pure devotee who is constantly conscious of Kṛṣṇa is naturally very fo
 There is always a difference of opinion about the Absolute Truth. One class of transcendentalists concludes that the Absolute Truth is impersonal, and another class concludes that the Absolute Truth is a person. In *Bhagavad-gītā,* the Absolute Truth is accepted as the Supreme Person. Indeed, that Supreme Person Himself, Lord Kṛṣṇa, instructs in *Bhagavad-gītā, brahmaṇo hi pratiṣṭhāham* [[bg/14/27|[Bg. 14.27] ]], *mattaḥ parataraṁ nānyat* [[bg/7/7|[Bg. 7.7] ]]. "The impersonal Brahman is My partial manifestation, and there is no truth superior to Me." That same Kṛṣṇa, the Supreme Personality of Godhead, acted as the supreme friend and relative of the Pāṇḍavas, and sometimes He even acted as their servant by carrying a letter from the Pāṇḍavas to Dhṛtarāṣṭra and Duryodhana. Because Kṛṣṇa was the well-wisher of the Pāṇḍavas, He also acted as *guru* by becoming the spiritual master of Arjuna. Arjuna accepted Kṛṣṇa as his spiritual master (*śiṣyas te 'haṁ śādhi māṁ tvāṁ prapannam* [[bg/2/7|[Bg. 2.7] ]]), and Kṛṣṇa sometimes chastised him. For example, the Lord said, *aśocyān anvaśocas tvaṁ prajñā-vādāṁś ca bhāṣase*/ [[bg/2/11|[Bg. 2.11] ]] "while speaking learned words, you are mourning for what is not worthy of grief." The Lord also said, *kutas tvā kaśmalam idaṁ viṣame samupasthitam:* "My dear Arjuna, how have these impurities come upon you?" Such was the intimate relationship between the Pāṇḍavas and Kṛṣṇa. In the same way, a pure devotee of the Lord is always with Kṛṣṇa through thick and thin; his way of life is Kṛṣṇa. This is the statement of the authority Śrī Nārada Muni.
 
 ### SB 7.10.50
-
-> न यस्य साक्षाद्भवपद्मजादिभी रूपं धिया वस्तुतयोपवर्णितम
-> मौनेन भक्त्योपशमेन पूजितः प्रसीदतामेष स सात्वतां पतिः ॥५०॥
 
 > na yasya sākṣād bhava-padmajādibhī
 > rūpaṁ dhiyā vastutayopavarṇitam
@@ -9381,9 +7747,6 @@ The Absolute Truth is sought by different persons in different ways, yet He rema
 
 ### SB 7.10.51
 
-> स एष भगवान्राजन्व्यतनोद्विहतं यशः
-> पुरा रुद्रस्य देवस्य मयेनानन्तमायिना ॥५१॥
-
 > sa eṣa bhagavān rājan
 > vyatanod vihataṁ yaśaḥ
 > purā rudrasya devasya
@@ -9397,10 +7760,6 @@ Lord Śiva is known as Mahādeva, the most exalted demigod. Thus Viśvanātha Ca
 
 ### SB 7.10.52
 
-> राजोवाच
-> कस्मिन्कर्मणि देवस्य मयोऽहन्जगदीशितुः
-> यथा चोपचिता कीर्तिः कृष्णेनानेन कथ्यताम ॥५२॥
-
 > rājovāca
 > kasmin karmaṇi devasya
 > mayo 'hañ jagad-īśituḥ
@@ -9413,10 +7772,6 @@ Lord Śiva is known as Mahādeva, the most exalted demigod. Thus Viśvanātha Ca
 
 ### SB 7.10.53
 
-> श्रीनारद उवाच
-> निर्जिता असुरा देवैर्युध्यनेनोपबृंहितैः
-> मायिनां परमाचार्यं मयं शरणमाययुः ॥५३॥
-
 > śrī-nārada uvāca
 > nirjitā asurā devair
 > yudhy anenopabṛṁhitaiḥ
@@ -9428,11 +7783,6 @@ Lord Śiva is known as Mahādeva, the most exalted demigod. Thus Viśvanātha Ca
 **Nārada Muni said: When the demigods, who are always powerful by the mercy of Lord Kṛṣṇa, fought with the asuras, the asuras were defeated, and therefore they took shelter of Maya Dānava, the greatest of the demons.**
 
 ### SB 7.10.54-55
-
-> स निर्माय पुरस्तिस्रो हैमीरौप्यायसीर्विभुः
-> दुर्लक्ष्यापायसंयोगा दुर्वितर्क्यपरिच्छदाः ॥५४॥
-> ताभिस्तेऽसुरसेनान्यो लोकांस्त्रीन्सेश्वरान्नृप
-> स्मरन्तो नाशयां चक्रुः पूर्ववैरमलक्षिताः ॥५५॥
 
 > sa nirmāya puras tisro
 > haimī-raupyāyasīr vibhuḥ
@@ -9450,9 +7800,6 @@ Lord Śiva is known as Mahādeva, the most exalted demigod. Thus Viśvanātha Ca
 
 ### SB 7.10.56
 
-> ततस्ते सेश्वरा लोका उपासाद्येश्वरं नताः
-> त्राहि नस्तावकान्देव विनष्टांस्त्रिपुरालयैः ॥५६॥
-
 > tatas te seśvarā lokā
 > upāsādyeśvaraṁ natāḥ
 > trāhi nas tāvakān deva
@@ -9463,9 +7810,6 @@ Lord Śiva is known as Mahādeva, the most exalted demigod. Thus Viśvanātha Ca
 **Thereafter, when the demons had begun to destroy the higher planetary systems, the rulers of those planets went to Lord Śiva, fully surrendered unto him and said: Dear Lord, we demigods living in the three worlds are about to be vanquished. We are your followers. Kindly save us.**
 
 ### SB 7.10.57
-
-> अथानुगृह्य भगवान्मा भैष्टेति सुरान्विभुः
-> शरं धनुषि सन्धाय पुरेष्वस्त्रं व्यमुञ्चत ॥५७॥
 
 > athānugṛhya bhagavān
 > mā bhaiṣṭeti surān vibhuḥ
@@ -9478,9 +7822,6 @@ Lord Śiva is known as Mahādeva, the most exalted demigod. Thus Viśvanātha Ca
 
 ### SB 7.10.58
 
-> ततोऽग्निवर्णा इषव उत्पेतुः सूर्यमण्डलात
-> यथा मयूखसन्दोहा नादृश्यन्त पुरो यतः ॥५८॥
-
 > tato 'gni-varṇā iṣava
 > utpetuḥ sūrya-maṇḍalāt
 > yathā mayūkha-sandohā
@@ -9491,9 +7832,6 @@ Lord Śiva is known as Mahādeva, the most exalted demigod. Thus Viśvanātha Ca
 **The arrows released by Lord Śiva appeared like fiery beams emanating from the sun globe and covered the three residential airplanes, which could then no longer be seen.**
 
 ### SB 7.10.59
-
-> तैः स्पृष्टा व्यसवः सर्वे निपेतुः स्म पुरौकसः
-> तानानीय महायोगी मयः कूपरसेऽक्षिपत ॥५९॥
 
 > taiḥ spṛṣṭā vyasavaḥ sarve
 > nipetuḥ sma puraukasaḥ
@@ -9515,9 +7853,6 @@ The *asuras* are generally extremely powerful because of their mystic yogic powe
 
 ### SB 7.10.60
 
-> सिद्धामृतरसस्पृष्टा वज्रसारा महौजसः
-> उत्तस्थुर्मेघदलना वैद्युता इव वह्नयः ॥६०॥
-
 > siddhāmṛta-rasa-spṛṣṭā
 > vajra-sārā mahaujasaḥ
 > uttasthur megha-dalanā
@@ -9528,9 +7863,6 @@ The *asuras* are generally extremely powerful because of their mystic yogic powe
 **When the dead bodies of the demons came in touch with the nectar, their bodies became invincible to thunderbolts. Endowed with great strength, they got up like lightning penetrating clouds.**
 
 ### SB 7.10.61
-
-> विलोक्य भग्नसङ्कल्पं विमनस्कं वृषध्वजम
-> तदायं भगवान्विष्णुस्तत्रोपायमकल्पयत ॥६१॥
 
 > vilokya bhagna-saṅkalpaṁ
 > vimanaskaṁ vṛṣa-dhvajam
@@ -9543,9 +7875,6 @@ The *asuras* are generally extremely powerful because of their mystic yogic powe
 
 ### SB 7.10.62
 
-> वत्सश्चासीत्तदा ब्रह्मा स्वयं विष्णुरयं हि गौः
-> प्रविश्य त्रिपुरं काले रसकूपामृतं पपौ ॥६२॥
-
 > vatsaś cāsīt tadā brahmā
 > svayaṁ viṣṇur ayaṁ hi gauḥ
 > praviśya tripuraṁ kāle
@@ -9556,9 +7885,6 @@ The *asuras* are generally extremely powerful because of their mystic yogic powe
 **Then Lord Brahmā became a calf and Lord Viṣṇu a cow, and at noon they entered the residences and drank all the nectar in the well.**
 
 ### SB 7.10.63
-
-> तेऽसुरा ह्यपि पश्यन्तो न न्यषेधन्विमोहिताः
-> तद्विज्ञआय महायोगी रसपालानिदं जगौ ॥६३॥
 
 > te 'surā hy api paśyanto
 > na nyaṣedhan vimohitāḥ
@@ -9573,9 +7899,6 @@ The *asuras* are generally extremely powerful because of their mystic yogic powe
 
 ### SB 7.10.64
 
-> स्मयन्विशोकः शोकार्तान्स्मरन्दैवगतिं च ताम
-> देवोऽसुरो नरोऽन्यो वा नेश्वरोऽस्तीह कश्चन ॥६४॥
-
 > devo 'suro naro 'nyo vā
 > neśvaro 'stīha kaścana
 > ātmano 'nyasya vā diṣṭaṁ
@@ -9588,11 +7911,6 @@ The *asuras* are generally extremely powerful because of their mystic yogic powe
 The Supreme Lord is one—Kṛṣṇa, the *viṣṇu-tattva.* Kṛṣṇa expands Himself into *viṣṇu-tattva* personal expansions (*svāṁśa*), who control everything. Maya Dānava said, "However I plan, you plan or both of us plan, the Lord has planned what is to happen. No one's plan will be successful without His sanction." We may make our own various plans, but unless they are sanctioned by the Supreme Personality of Godhead, Viṣṇu, they will never be successful. Hundreds and millions of plans are made by all kinds of living entities, but without the sanction of the Supreme Lord they are futile.
 
 ### SB 7.10.65-66
-
-> आत्मनोऽन्यस्य वा दिष्टं दैवेनापोहितुं द्वयोः
-> अथासौ शक्तिभिः स्वाभिः शम्भोः प्राधानिकं व्यधात ॥६५॥
-> धर्मज्ञआनविरक्त्यृद्धि तपोविद्याक्रियादिभिः
-> रथं सूतं ध्वजं वाहान्धनुर्वर्मशरादि यत ॥६६॥
 
 > athāsau śaktibhiḥ svābhiḥ
 > śambhoḥ prādhānikaṁ vyadhāt
@@ -9612,9 +7930,6 @@ As stated in *Śrīmad-Bhāgavatam* (12.13.16): *vaiṣṇavānāṁ yathā śam
 
 ### SB 7.10.67
 
-> सन्नद्धो रथमास्थाय शरं धनुरुपाददे
-> शरं धनुषि सन्धाय मुहूर्तेऽभिजितीश्वरः ॥६७॥
-
 > śaraṁ dhanuṣi sandhāya
 > muhūrte 'bhijitīśvaraḥ
 > dadāha tena durbhedyā
@@ -9625,9 +7940,6 @@ As stated in *Śrīmad-Bhāgavatam* (12.13.16): *vaiṣṇavānāṁ yathā śam
 **My dear King Yudhiṣṭhira, the most powerful Lord Śiva joined the arrows to his bow, and at noon he set fire to all three residences of the demons and thus destroyed them.**
 
 ### SB 7.10.68
-
-> ददाह तेन दुर्भेद्या हरोऽथ त्रिपुरो नृप
-> दिवि दुन्दुभयो नेदुर्विमानशतसङ्कुलाः ॥६८॥
 
 > divi dundubhayo nedur
 > vimāna-śata-saṅkulāḥ
@@ -9642,9 +7954,6 @@ As stated in *Śrīmad-Bhāgavatam* (12.13.16): *vaiṣṇavānāṁ yathā śam
 
 ### SB 7.10.69
 
-> देवर्षिपितृसिद्धेशा जयेति कुसुमोत्करैः
-> अवाकिरन्जगुर्हृष्टा ननृतुश्चाप्सरोगणाः ॥६९॥
-
 > evaṁ dagdhvā puras tisro
 > bhagavān pura-hā nṛpa
 > brahmādibhiḥ stūyamānaḥ
@@ -9655,9 +7964,6 @@ As stated in *Śrīmad-Bhāgavatam* (12.13.16): *vaiṣṇavānāṁ yathā śam
 **O King Yudhiṣṭhira, thus Lord Śiva is known as Tripurāri, the annihilator of the three dwellings of the demons, because he burnt these dwellings to ashes. Being worshiped by the demigods, headed by Lord Brahmā, Lord Śiva returned to his own abode.**
 
 ### SB 7.10.70
-
-> एवं दग्ध्वा पुरस्तिस्रो भगवान्पुरहा नृप
-> ब्रह्मादिभिः स्तूयमानः स्वं धाम प्रत्यपद्यत ॥७०॥
 
 > evaṁ vidhāny asya hareḥ sva-māyayā
 > viḍambamānasya nṛ-lokam ātmanaḥ
@@ -9676,10 +7982,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Tenth Chapter, of the 
 
 ### SB 7.11.1
 
-> श्रीशुक उवाच
-> श्रुत्वेहितं साधु सभासभाजितं महत्तमाग्रण्य उरुक्रमात्मनः
-> युधिष्ठिरो दैत्यपतेर्मुदान्वितः पप्रच्छ भूयस्तनयं स्वयम्भुवः ॥१॥
-
 > śrī-śuka uvāca
 > śrutvehitaṁ sādhu sabhā-sabhājitaṁ
 > mahattamāgraṇya urukramātmanaḥ
@@ -9691,10 +7993,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Tenth Chapter, of the 
 **Śukadeva Gosvāmī continued: After hearing about the activities and character of Prahlāda Mahārāja, which are adored and discussed among great personalities like Lord Brahmā and Lord Śiva, Yudhiṣṭhira Mahārāja, the most respectful king among exalted personalities, again inquired from the great saint Nārada Muni in a mood of great pleasure.**
 
 ### SB 7.11.2
-
-> श्रीयुधिष्ठिर उवाच
-> भगवन्श्रोतुमिच्छामि नृणां धर्मं सनातनम
-> वर्णाश्रमाचारयुतं यत्पुमान्विन्दते परम ॥२॥
 
 > śrī-yudhiṣṭhira uvāca
 > bhagavan śrotum icchāmi
@@ -9710,9 +8008,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Tenth Chapter, of the 
 
 ### SB 7.11.3
 
-> भवान्प्रजापतेः साक्षादात्मजः परमेष्ठिनः
-> सुतानां सम्मतो ब्रह्मंस्तपोयोगसमाधिभिः ॥३॥
-
 > bhavān prajāpateḥ sākṣād
 > ātmajaḥ parameṣṭhinaḥ
 > sutānāṁ sammato brahmaṁs
@@ -9723,9 +8018,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Tenth Chapter, of the 
 **O best of the brāhmaṇas, you are directly the son of Prajāpati [Lord Brahmā]. Because of your austerities, mystic yoga and trance, you are considered the best of all of Lord Brahmā's sons.**
 
 ### SB 7.11.4
-
-> नारायणपरा विप्रा धर्मं गुह्यं परं विदुः
-> करुणाः साधवः शान्तास्त्वद्विधा न तथापरे ॥४॥
 
 > nārāyaṇa-parā viprā
 > dharmaṁ guhyaṁ paraṁ viduḥ
@@ -9739,10 +8031,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Tenth Chapter, of the 
 Yudhiṣṭhira Mahārāja knew that Nārada Muni is the supreme spiritual master of human society who can teach the path of spiritual liberation leading to the understanding of the Supreme Personality of Godhead. Actually, it is for this purpose that Nārada Muni compiled his *Bhakti-sūtra* and gave directions in the *Nārada-pañcarātra.* To learn about religious principles and the perfection of life, one must take instruction from the disciplic succession of Nārada Muni. Our Kṛṣṇa consciousness movement is directly in the line of the Brahma-sampradāya. Nārada Muni received instructions from Lord Brahmā and in turn transmitted the instructions to Vyāsadeva. Vyāsadeva instructed his son Śukadeva Gosvāmī, who spoke *Śrīmad-Bhāgavatam.* The Kṛṣṇa consciousness movement is based on *Śrīmad-Bhāgavatam* and *Bhagavad-gītā.* Because *Śrīmad-Bhāgavatam* was spoken by Śukadeva Gosvāmī and *Bhagavad-gītā* was spoken by Kṛṣṇa, there is no difference between them. If we strictly follow the principle of disciplic succession, we are certainly on the right path of spiritual liberation, or eternal engagement in devotional service.
 
 ### SB 7.11.5
-
-> श्रीनारद उवाच
-> नत्वा भगवतेऽजाय लोकानां धर्मसेतवे
-> वक्ष्ये सनातनं धर्मं नारायणमुखाच्छ्रुतम ॥५॥
 
 > śrī-nārada uvāca
 > natvā bhagavate 'jāya
@@ -9758,9 +8046,6 @@ The word *aja* refers to Kṛṣṇa, who explains in *Bhagavad-gītā* [[bg/4/6
 
 ### SB 7.11.6
 
-> योऽवतीर्यात्मनोऽंशेन दाक्षायण्यां तु धर्मतः
-> लोकानां स्वस्तयेऽध्यास्ते तपो बदरिकाश्रमे ॥६॥
-
 > yo 'vatīryātmano 'ṁśena
 > dākṣāyaṇyāṁ tu dharmataḥ
 > lokānāṁ svastaye 'dhyāste
@@ -9771,9 +8056,6 @@ The word *aja* refers to Kṛṣṇa, who explains in *Bhagavad-gītā* [[bg/4/6
 **Lord Nārāyaṇa, along with His partial manifestation Nara, appeared in this world through the daughter of Dakṣa Mahārāja known as Mūrti. He was begotten by Dharma Mahārāja for the benefit of all living entities. Even now, He is still engaged in executing great austerities near the place known as Badarikāśrama.**
 
 ### SB 7.11.7
-
-> धर्ममूलं हि भगवान्सर्ववेदमयो हरिः
-> स्मृतं च तद्विदां राजन्येन चात्मा प्रसीदति ॥७॥
 
 > dharma-mūlaṁ hi bhagavān
 > sarva-vedamayo hariḥ
@@ -9813,17 +8095,6 @@ The purport is that to become a devotee one must follow the principles laid down
 Therefore, from all the evidence the conclusion is that without *bhakti,* devotional service, there is no question of religious principles. God is the central figure in the performance of religious principles. Almost everything going on in this world as religion is devoid of any idea of devotional service and is therefore condemned by the verdict of *Śrīmad-Bhāgavatam.* Without devotional service, so-called religious principles are only cheating.
 
 ### SB 7.11.8-12
-
-> सत्यं दया तपः शौचं तितिक्षेक्षा शमो दमः
-> अहिंसा ब्रह्मचर्यं च त्यागः स्वाध्याय आर्जवम ॥८॥
-> सन्तोषः समदृक्सेवा ग्राम्येहोपरमः शनैः
-> नृणां विपर्ययेहेक्षा मौनमात्मविमर्शनम ॥९॥
-> अन्नाद्यादेः संविभागो भूतेभ्यश्च यथार्हतः
-> तेष्वात्मदेवताबुद्धिः सुतरां नृषु पाण्डव ॥१०॥
-> श्रवणं कीर्तनं चास्य स्मरणं महतां गतेः
-> सेवेज्यावनतिर्दास्यं सख्यमात्मसमर्पणम ॥११॥
-> नृणामयं परो धर्मः सर्वेषां समुदाहृतः
-> त्रिंशल्लक्षणवान्राजन्सर्वात्मा येन तुष्यति ॥१२॥
 
 > satyaṁ dayā tapaḥ śaucaṁ
 > titikṣekṣā śamo damaḥ
@@ -9872,10 +8143,6 @@ Everyone should become a devotee of the Lord, because by becoming a devotee of t
 
 ### SB 7.11.13
 
-> संस्कारा यत्राविच्छिन्नाः स द्विजोऽजो जगाद यम
-> इज्याध्ययनदानानि विहितानि द्विजन्मनाम
-> जन्मकर्मावदातानां क्रियाश्चाश्रमचोदिताः ॥१३॥
-
 > saṁskārā yatrāvicchinnāḥ
 > sa dvijo 'jo jagāda yam
 > ijyādhyayana-dānāni
@@ -9890,9 +8157,6 @@ Everyone should become a devotee of the Lord, because by becoming a devotee of t
 After giving a general list of thirty qualifications for one's behavior, Nārada Muni now describes the principles of the four *varṇas* and four *āśramas.* A human being must be trained in the above-mentioned thirty qualities; otherwise, he is not even a human being. Then, among such qualified persons, the *varṇāśrama* process should be introduced. In the *varṇāśrama* system, the first ceremony for purification is *garbhādhāna,* which is performed with *mantras* at the time of sex for propagating a good child. One who uses sex life not for sensual pleasures but only to beget children according to the reformatory method is also accepted as a *brahmacārī.* One should not waste semen on sensual pleasure, violating the principles of Vedic life. Restraint in sex is possible, however, only when the populace is trained in the above-mentioned thirty qualities; otherwise, it is not possible. Even if one is born in a family of *dvijas,* or twice-born, if they have not followed the reformatory process he is called a *dvija-bandhu*—not one of the twice-born, but a friend of the twice-born. The whole purpose of this system is to create good population. As stated in *Bhagavad-gītā,* when women are polluted the populace is *varṇa-saṅkara,* and when the *varṇa-saṅkara* population increases, the situation of the entire world becomes hellish. Therefore, all the Vedic literatures strongly warn against creating *varṇa-saṅkara* population. When there is *varṇa-saṅkara* population, the people cannot be properly controlled for peace and prosperity, regardless of great legislative assemblies, parliaments and similar bodies.
 
 ### SB 7.11.14
-
-> विप्रस्याध्ययनादीनि षडन्यस्याप्रतिग्रहः
-> राज्ञओ वृत्तिः प्रजागोप्तुरविप्राद्वा करादिभिः ॥१४॥
 
 > viprasyādhyayanādīni
 > ṣaḍ-anyasyāpratigrahaḥ
@@ -9914,9 +8178,6 @@ Of the six occupational duties of the *brāhmaṇas,* three are compulsory—nam
 
 ### SB 7.11.15
 
-> वैश्यस्तु वार्तावृत्तिः स्यान्नित्यं ब्रह्मकुलानुगः
-> शूद्रस्य द्विजशुश्रूषा वृत्तिश्च स्वामिनो भवेत ॥१५॥
-
 > vaiśyas tu vārtā-vṛttiḥ syān
 > nityaṁ brahma-kulānugaḥ
 > śūdrasya dvija-śuśrūṣā
@@ -9927,9 +8188,6 @@ Of the six occupational duties of the *brāhmaṇas,* three are compulsory—nam
 **The mercantile community should always follow the directions of the brāhmaṇas and engage in such occupational duties as agriculture, trade, and protection of cows. For the śūdras the only duty is to accept a master from a higher social order and engage in his service.**
 
 ### SB 7.11.16
-
-> वार्ता विचित्रा शालीन यायावरशिलोञ्छनम
-> विप्रवृत्तिश्चतुर्धेयं श्रेयसी चोत्तरोत्तरा ॥१६॥
 
 > vārtā vicitrā śālīna-
 > yāyāvara-śiloñchanam
@@ -9944,9 +8202,6 @@ A *brāhmaṇa* is sometimes offered land and cows in charity, and thus for his 
 
 ### SB 7.11.17
 
-> जघन्यो नोत्तमां वृत्तिमनापदि भजेन्नरः
-> ऋते राजन्यमापत्सु सर्वेषामपि सर्वशः ॥१७॥
-
 > jaghanyo nottamāṁ vṛttim
 > anāpadi bhajen naraḥ
 > ṛte rājanyam āpatsu
@@ -9959,14 +8214,6 @@ A *brāhmaṇa* is sometimes offered land and cows in charity, and thus for his 
 The occupational duty of a *brāhmaṇa* should not be accepted by persons in lower social orders, especially *vaiśyas* and *śūdras.* For example, an occupational duty of the *brāhmaṇa* is to teach Vedic knowledge, but unless there is an emergency, this professional duty should not be accepted by the *kṣatriyas, vaiśyas* or *śūdras.* Even a *kṣatriya* cannot accept the duties of a *brāhmaṇa* unless there is an emergency, and then even if he does so he should not accept charity from anyone else. Sometimes *brāhmaṇas* protest against our Kṛṣṇa consciousness movement for creating *brāhmaṇas* from Europeans, or, in other words, from *mlecchas* and *yavanas.* This movement, however, is here supported in *Śrīmad-Bhāgavatam.* At the present moment, society is in a chaotic condition, and everyone has given up the cultivation of spiritual life, which is especially meant for the *brāhmaṇas.* Because spiritual culture has been stopped all over the world, there is now an emergency, and therefore it is now time to train those who are considered lower and condemned, so that they may become *brāhmaṇas* and take up the work of spiritual progress. The spiritual progress of human society has been stopped, and this should be considered an emergency. Here is solid support from Nārada Muni of the movement known as Kṛṣṇa consciousness.
 
 ### SB 7.11.18-20
-
-> ऋतामृताभ्यां जीवेत मृतेन प्रमृतेन वा
-> सत्यानृताभ्यामपि वा न श्ववृत्त्या कदाचन ॥१८॥
-> ऋतमुञ्छशिलं प्रोक्तममृतं यदयाचितम
-> मृतं तु नित्ययाचञ्आ स्यात्प्रमृतं कर्षणं स्मृतम ॥१९॥
-> सत्यानृतं च वाणिज्यं श्ववृत्तिर्नीचसेवनम
-> वर्जयेत्तां सदा विप्रो राजन्यश्च जुगुप्सिताम
-> सर्ववेदमयो विप्रः सर्वदेवमयो नृपः ॥२०॥
 
 > ṛtāmṛtābhyāṁ jīveta
 > mṛtena pramṛtena vā
@@ -9993,9 +8240,6 @@ As stated in *Bhagavad-gītā* [[bg/4/13|(Bg. 4.13)]], *cātur-varṇyaṁ mayā
 
 ### SB 7.11.21
 
-> शमो दमस्तपः शौचं सन्तोषः क्षान्तिरार्जवम
-> ज्ञआनं दयाच्युतात्मत्वं सत्यं च ब्रह्मलक्षणम ॥२१॥
-
 > śamo damas tapaḥ śaucaṁ
 > santoṣaḥ kṣāntir ārjavam
 > jñānaṁ dayācyutātmatvaṁ
@@ -10009,9 +8253,6 @@ In the institution of *varṇāśrama-dharma,* the symptoms of a *brāhmaṇa, k
 
 ### SB 7.11.22
 
-> शौर्यं वीर्यं धृतिस्तेजस्त्यागश्चात्मजयः क्षमा
-> ब्रह्मण्यता प्रसादश्च सत्यं च क्षत्रलक्षणम ॥२२॥
-
 > śauryaṁ vīryaṁ dhṛtis tejas
 > tyāgaś cātmajayaḥ kṣamā
 > brahmaṇyatā prasādaś ca
@@ -10023,9 +8264,6 @@ In the institution of *varṇāśrama-dharma,* the symptoms of a *brāhmaṇa, k
 
 ### SB 7.11.23
 
-> देवगुर्वच्युते भक्तिस्त्रिवर्गपरिपोषणम
-> आस्तिक्यमुद्यमो नित्यं नैपुण्यं वैश्यलक्षणम ॥२३॥
-
 > deva-gurv-acyute bhaktis
 > tri-varga-paripoṣaṇam
 > āstikyam udyamo nityaṁ
@@ -10036,9 +8274,6 @@ In the institution of *varṇāśrama-dharma,* the symptoms of a *brāhmaṇa, k
 **Being always devoted to the demigods, the spiritual master and the Supreme Lord, Viṣṇu; endeavoring for advancement in religious principles, economic development and sense gratification [dharma, artha and kāma]; believing in the words of the spiritual master and scripture; and always endeavoring with expertise in earning money—these are the symptoms of the vaiśya.**
 
 ### SB 7.11.24
-
-> शूद्रस्य सन्नतिः शौचं सेवा स्वामिन्यमायया
-> अमन्त्रयज्ञओ ह्यस्तेयं सत्यं गोविप्ररक्षणम ॥२४॥
 
 > śūdrasya sannatiḥ śaucaṁ
 > sevā svāminy amāyayā
@@ -10053,9 +8288,6 @@ It is everyone's experience that workers or servants are generally accustomed to
 
 ### SB 7.11.25
 
-> स्त्रीणां च पतिदेवानां तच्छुश्रूषानुकूलता
-> तद्बन्धुष्वनुवृत्तिश्च नित्यं तद्व्रतधारणम ॥२५॥
-
 > strīṇāṁ ca pati-devānāṁ
 > tac-chuśrūṣānukūlatā
 > tad-bandhuṣv anuvṛttiś ca
@@ -10068,11 +8300,6 @@ It is everyone's experience that workers or servants are generally accustomed to
 It is very important for peaceful householder life that a woman follow the vow of her husband. Any disagreement with the husband's vow will disrupt family life. In this regard, Cāṇakya Paṇḍita gives a very valuable instruction: *dampatyoḥ kalaho nāsti tatra śrīḥ svayam āgatāḥ.* When there are no fights between husband and wife, the goddess of fortune automatically comes to the home. A woman's education should be conducted along the lines indicated in this verse. The basic principle for a chaste woman is to be always favorably disposed toward her husband. In *Bhagavad-gītā* [[bg/1/40|(Bg. 1.40)]] it is said, *strīṣu duṣṭāsu vārṣṇeya jāyate varṇa-saṅkaraḥ:* if the women are polluted, there will be *varṇa-saṅkara* population. In modern terms, the *varṇa-saṅkara* are the hippies, who do not follow any regulative injunctions. Another explanation is that when the population is *varṇa-saṅkara,* no one can know who is on what platform. The *varṇāśrama* system scientifically divides society into four *varṇas* and four *āśramas,* but in *varṇa-saṅkara* society there are no such distinctions, and no one can know who is who. In such a society, no one can distinguish between a *brāhmaṇa,* a *kṣatriya,* a *vaiśya* and a *śūdra.* For peace and happiness in the material world, the *varṇāśrama* institution must be introduced. The symptoms of one's activities must be defined, and one must be educated accordingly. Then spiritual advancement will automatically be possible.
 
 ### SB 7.11.26-27
-
-> सम्मार्जनोपलेपाभ्यां गृहमण्डनवर्तनैः
-> स्वयं च मण्डिता नित्यं परिमृष्टपरिच्छदा ॥२६॥
-> कामैरुच्चावचैः साध्वी प्रश्रयेण दमेन च
-> वाक्यैः सत्यैः प्रियैः प्रेम्णा काले काले भजेत्पतिम ॥२७॥
 
 > sammārjanopalepābhyāṁ
 > gṛha-maṇḍana-vartanaiḥ
@@ -10090,9 +8317,6 @@ It is very important for peaceful householder life that a woman follow the vow o
 
 ### SB 7.11.28
 
-> सन्तुष्टालोलुपा दक्षा धर्मज्ञआ प्रियसत्यवाक
-> अप्रमत्ता शुचिः स्निग्धा पतिं त्वपतितं भजेत ॥२८॥
-
 > santuṣṭālolupā dakṣā
 > dharma-jñā priya-satya-vāk
 > apramattā śuciḥ snigdhā
@@ -10105,9 +8329,6 @@ It is very important for peaceful householder life that a woman follow the vow o
 According to the injunction of Yājñavalkya, an authority on religious principles, *āśuddheḥ sampratikṣyo hi mahāpātaka-dūṣitaḥ.* One is considered contaminated by the reactions of great sinful activities when one has not been purified according to the methods of the *daśa-vidhā-saṁskāra.* In *Bhagavad-gītā,* however, the Lord says, *na māṁ duṣkṛtino mūḍhāḥ prapadyante narādhamāḥ:* [[bg/7/15|[Bg. 7.15] ]] "Those miscreants who do not surrender unto Me are the lowest of mankind." The word *narādhama* means "nondevotee." Śrī Caitanya Mahāprabhu also said, *yei bhaje sei baḍa, abhakta-hīna* [[cc/antya/4/67|[Cc. Antya 4.67] ]],* chāra.* Anyone who is a devotee is sinless. One who is not a devotee, however, is the most fallen and condemned. It is recommended, therefore, that a chaste wife not associate with a fallen husband. A fallen husband is one who is addicted to the four principles of sinful activity—namely illicit sex, meat-eating, gambling and intoxication. Specifically, if one is not a soul surrendered to the Supreme Personality of Godhead, he is understood to be contaminated. Thus a chaste woman is advised not to agree to serve such a husband. It is not that a chaste woman should be like a slave while her husband is *narādhama,* the lowest of men. Although the duties of a woman are different from those of a man, a chaste woman is not meant to serve a fallen husband. If her husband is fallen, it is recommended that she give up his association. Giving up the association of her husband does not mean, however, that a woman should marry again and thus indulge in prostitution. If a chaste woman unfortunately marries a husband who is fallen, she should live separately from him. Similarly, a husband can separate himself from a woman who is not chaste according to the description of the *śāstra.* The conclusion is that a husband should be a pure Vaiṣṇava and that a woman should be a chaste wife with all the symptoms described in this regard. Then both of them will be happy and make spiritual progress in Kṛṣṇa consciousness.
 
 ### SB 7.11.29
-
-> या पतिं हरिभावेन भजेत्श्रीरिव तत्परा
-> हर्यात्मना हरेर्लोके पत्या श्रीरिव मोदते ॥२९॥
 
 > yā patiṁ hari-bhāvena
 > bhajet śrīr iva tat-parā
@@ -10131,9 +8352,6 @@ A woman should think of her husband as the Supreme Lord. Similarly, a disciple s
 
 ### SB 7.11.30
 
-> वृत्तिः सङ्करजातीनां तत्तत्कुलकृता भवेत
-> अचौराणामपापानामन्त्यजान्तेवसायिनाम ॥३०॥
-
 > vṛttiḥ saṅkara-jātīnāṁ
 > tat-tat-kula-kṛtā bhavet
 > acaurāṇām apāpānām
@@ -10146,9 +8364,6 @@ A woman should think of her husband as the Supreme Lord. Similarly, a disciple s
 The four principal divisions of society—*brāhmaṇa, kṣatriya, vaiśya* and *śūdra*—have been defined, and now there is a description of the *antyaja,* the mixed classes. Among the mixed classes, there are two divisions—*pratilomaja* and *anulomaja.* If a woman of a high caste marries a man of a lower caste, their union is called *pratiloma.* If a woman of a low caste, however, marries a man of a higher caste, their union is called *anuloma.* The members of such dynasties have their traditional duties as barbers, washermen and so on. Among the *antyajas,* those who are still somewhat pure in that they do not steal and are not addicted to meat-eating, drinking, illicit sex and gambling are called *antevasāyī.* Among people of the lower classes, intermarriage and the drinking of wine are allowed, for these people do not recognize such conduct as sinful among themselves.
 
 ### SB 7.11.31
-
-> प्रायः स्वभावविहितो नृणां धर्मो युगे युगे
-> वेददृग्भिः स्मृतो राजन्प्रेत्य चेह च शर्मकृत ॥३१॥
 
 > prāyaḥ sva-bhāva-vihito
 > nṛṇāṁ dharmo yuge yuge
@@ -10163,9 +8378,6 @@ In *Bhagavad-gītā* [[bg/3/35|(Bg. 3.35)]] it is said, *śreyān sva-dharmo vig
 
 ### SB 7.11.32
 
-> वृत्त्या स्वभावकृतया वर्तमानः स्वकर्मकृत
-> हित्वा स्वभावजं कर्म शनैर्निर्गुणतामियात ॥३२॥
-
 > vṛttyā sva-bhāva-kṛtayā
 > vartamānaḥ sva-karma-kṛt
 > hitvā sva-bhāva-jaṁ karma
@@ -10178,11 +8390,6 @@ In *Bhagavad-gītā* [[bg/3/35|(Bg. 3.35)]] it is said, *śreyān sva-dharmo vig
 If one gradually gives up his hereditary customs and duties and tries to serve the Supreme Personality of Godhead in his natural position, he is gradually able to become free from these activities, and he attains the stage of *niṣkāma,* freedom from material desires.
 
 ### SB 7.11.33-34
-
-> उप्यमानं मुहुः क्षेत्रं स्वयं निर्वीर्यतामियात
-> न कल्पते पुनः सूत्यै उप्तं बीजं च नश्यति ॥३३॥
-> एवं कामाशयं चित्तं कामानामतिसेवया
-> विरज्येत यथा राजन्नग्निवत्कामबिन्दुभिः ॥३४॥
 
 > upyamānaṁ muhuḥ kṣetraṁ
 > svayaṁ nirvīryatām iyāt
@@ -10202,9 +8409,6 @@ If one continuously sprinkles drops of ghee on a fire, the fire will not be exti
 
 ### SB 7.11.35
 
-> यस्य यल्लक्षणं प्रोक्तं पुंसो वर्णाभिव्यञ्जकम
-> यदन्यत्रापि दृश्येत तत्तेनैव विनिर्दिशेत ॥३५॥
-
 > yasya yal lakṣaṇaṁ proktaṁ
 > puṁso varṇābhivyañjakam
 > yad anyatrāpi dṛśyeta
@@ -10222,10 +8426,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Eleventh Chapter, of t
 
 ### SB 7.12.1
 
-> श्रीनारद उवाच
-> ब्रह्मचारी गुरुकुले वसन्दान्तो गुरोर्हितम
-> आचरन्दासवन्नीचो गुरौ सुदृढसौहृदः ॥१॥
-
 > śrī-nārada uvāca
 > brahmacārī guru-kule
 > vasan dānto guror hitam
@@ -10238,9 +8438,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Eleventh Chapter, of t
 
 ### SB 7.12.2
 
-> सायं प्रातरुपासीत गुर्वग्न्यर्कसुरोत्तमान
-> सन्ध्ये उभे च यतवाग्जपन्ब्रह्म समाहितः ॥२॥
-
 > sāyaṁ prātar upāsīta
 > gurv-agny-arka-surottamān
 > sandhye ubhe ca yata-vāg
@@ -10251,9 +8448,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Eleventh Chapter, of t
 **At both junctions of day and night, namely, in the early morning and in the evening, he should be fully absorbed in thoughts of the spiritual master, fire, the sun-god and Lord Viṣṇu and by chanting the Gāyatrī mantra he should worship them.**
 
 ### SB 7.12.3
-
-> छन्दांस्यधीयीत गुरोराहूतश्चेत्सुयन्त्रितः
-> उपक्रमेऽवसाने च चरणौ शिरसा नमेत ॥३॥
 
 > chandāṁsy adhīyīta guror
 > āhūtaś cet suyantritaḥ
@@ -10266,9 +8460,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Eleventh Chapter, of t
 
 ### SB 7.12.4
 
-> मेखलाजिनवासांसि जटादण्डकमण्डलून
-> बिभृयादुपवीतं च दर्भपाणिर्यथोदितम ॥४॥
-
 > mekhalājina-vāsāṁsi
 > jaṭā-daṇḍa-kamaṇḍalūn
 > bibhṛyād upavītaṁ ca
@@ -10280,9 +8471,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Eleventh Chapter, of t
 
 ### SB 7.12.5
 
-> सायं प्रातश्चरेद्भैक्ष्यं गुरवे तन्निवेदयेत
-> भुञ्जीत यद्यनुज्ञआतो नो चेदुपवसेत्क्वचित ॥५॥
-
 > sāyaṁ prātaś cared bhaikṣyaṁ
 > gurave tan nivedayet
 > bhuñjīta yady anujñāto
@@ -10293,9 +8481,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Eleventh Chapter, of t
 **The brahmacārī should go out morning and evening to collect alms, and he should offer all that he collects to the spiritual master. He should eat only if ordered to take food by the spiritual master; otherwise, if the spiritual master does not give this order, he may sometimes have to fast.**
 
 ### SB 7.12.6
-
-> सुशीलो मितभुग्दक्षः श्रद्दधानो जितेन्द्रियः
-> यावदर्थं व्यवहरेत्स्त्रीषु स्त्रीनिर्जितेषु च ॥६॥
 
 > suśīlo mita-bhug dakṣaḥ
 > śraddadhāno jitendriyaḥ
@@ -10310,9 +8495,6 @@ A *brahmacārī* should be very careful not to mix with women or with men addict
 
 ### SB 7.12.7
 
-> वर्जयेत्प्रमदागाथामगृहस्थो बृहद्व्रतः
-> इन्द्रियाणि प्रमाथीनि हरन्त्यपि यतेर्मनः ॥७॥
-
 > varjayet pramadā-gāthām
 > agṛhastho bṛhad-vrataḥ
 > indriyāṇi pramāthīni
@@ -10325,9 +8507,6 @@ A *brahmacārī* should be very careful not to mix with women or with men addict
 *Brahmacarya* essentially means the vow not to marry but to observe strict celibacy (*bṛhad-vrata*). A *brahmacārī* or *sannyāsī* should avoid talking with women or reading literature concerning talks between man and woman. The injunction restricting association with women is the basic principle of spiritual life. Associating or talking with women is never advised in any of the Vedic literatures. The entire Vedic system teaches one to avoid sex life so that one may gradually progress from *brahmacarya* to *gṛhastha,* from *gṛhastha* to *vānaprastha,* and from *vānaprastha* to *sannyāsa* and thus give up material enjoyment, which is the original cause of bondage to this material world. The word *bṛhad-vrata* refers to one who has decided not to marry, or in other words, not to indulge in sex life throughout his entire life.
 
 ### SB 7.12.8
-
-> केशप्रसाधनोन्मर्द स्नपनाभ्यञ्जनादिकम
-> गुरुस्त्रीभिर्युवतिभिः कारयेन्नात्मनो युवा ॥८॥
 
 > keśa-prasādhanonmarda-
 > snapanābhyañjanādikam
@@ -10349,9 +8528,6 @@ These mothers are the original mother, the wife of the teacher or spiritual mast
 
 ### SB 7.12.9
 
-> नन्वग्निः प्रमदा नाम घृतकुम्भसमः पुमान
-> सुतामपि रहो जह्यादन्यदा यावदर्थकृत ॥९॥
-
 > nanv agniḥ pramadā nāma
 > ghṛta-kumbha-samaḥ pumān
 > sutām api raho jahyād
@@ -10364,9 +8540,6 @@ These mothers are the original mother, the wife of the teacher or spiritual mast
 If a butter pot and fire are kept together, the butter within the pot will certainly melt. Woman is compared to fire, and man is compared to a butter pot. However advanced one may be in restraining the senses, it is almost impossible for a man to keep himself controlled in the presence of a woman, even if she is his own daughter, mother or sister. Indeed, his mind is agitated even if one is in the renounced order of life. Therefore, Vedic civilization carefully restricts mingling between men and women. If one cannot understand the basic principle of restraining association between man and woman, he is to be considered an animal. That is the purport of this verse.
 
 ### SB 7.12.10
-
-> कल्पयित्वात्मना यावदाभासमिदमीश्वरः
-> द्वैतं तावन्न विरमेत्ततो ह्यस्य विपर्ययः ॥१०॥
 
 > kalpayitvātmanā yāvad
 > ābhāsam idam īśvaraḥ
@@ -10400,9 +8573,6 @@ Unity in variety is real knowledge, and therefore giving up variety artificially
 
 ### SB 7.12.11
 
-> एतत्सर्वं गृहस्थस्य समाम्नातं यतेरपि
-> गुरुवृत्तिर्विकल्पेन गृहस्थस्यर्तुगामिनः ॥११॥
-
 > etat sarvaṁ gṛhasthasya
 > samāmnātaṁ yater api
 > guru-vṛttir vikalpena
@@ -10416,9 +8586,6 @@ It is sometimes misunderstood that a *gṛhastha,* a householder, is permitted t
 
 ### SB 7.12.12
 
-> अञ्जनाभ्यञ्जनोन्मर्द स्त्र्यवलेखामिषं मधु
-> स्रग्गन्धलेपालङ्कारांस्त्यजेयुर्ये बृहद्व्रताः ॥१२॥
-
 > añjanābhyañjanonmarda-
 > stry-avalekhāmiṣaṁ madhu
 > srag-gandha-lepālaṅkārāṁs
@@ -10429,11 +8596,6 @@ It is sometimes misunderstood that a *gṛhastha,* a householder, is permitted t
 **Brahmacārīs or gṛhasthas who have taken the vow of celibacy as described above should not indulge in the following: applying powder or ointment to the eyes, massaging the head with oil, massaging the body with the hands, seeing a woman or painting a woman's picture, eating meat, drinking wine, decorating the body with flower garlands, smearing scented ointment on the body, or decorating the body with ornaments. These they should give up.**
 
 ### SB 7.12.13-14
-
-> उषित्वैवं गुरुकुले द्विजोऽधीत्यावबुध्य च
-> त्रयीं साङ्गोपनिषदं यावदर्थं यथाबलम ॥१३॥
-> दत्त्वा वरमनुज्ञआतो गुरोः कामं यदीश्वरः
-> गृहं वनं वा प्रविशेत्प्रव्रजेत्तत्र वा वसेत ॥१४॥
 
 > uṣitvaivaṁ guru-kule
 > dvijo 'dhītyāvabudhya ca
@@ -10454,9 +8616,6 @@ To study the *Vedas* and understand them, of course, requires some special intel
 Another point to be observed from this verse is that from the *brahmacārī-āśrama* one may accept the *sannyāsa-āśrama, vānaprastha-āśrama* or *gṛhastha-āśrama.* It is not compulsory for a *brahmacārī* to become a *gṛhastha.* Because the ultimate aim is to understand the Absolute Truth, there is no necessity of going through all the different *āśramas.* Thus one may proceed to the *sannyāsa-āśrama* directly from the *brahmacārī-āśrama.* Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura accepted the *sannyāsa-āśrama* directly from the *brahmacārī-āśrama.* In other words, His Divine Grace Bhaktisiddhānta Sarasvatī Ṭhākura did not think it compulsory to accept the *gṛhastha-āśrama* or *vānaprastha-āśrama.*
 
 ### SB 7.12.15
-
-> अग्नौ गुरावात्मनि च सर्वभूतेष्वधोक्षजम
-> भूतैः स्वधामभिः पश्येदप्रविष्टं प्रविष्टवत ॥१५॥
 
 > agnau gurāv ātmani ca
 > sarva-bhūteṣv adhokṣajam
@@ -10485,9 +8644,6 @@ The Supreme Personality of Godhead, in His original form, has not entered everyt
 
 ### SB 7.12.16
 
-> एवं विधो ब्रह्मचारी वानप्रस्थो यतिर्गृही
-> चरन्विदितविज्ञआनः परं ब्रह्माधिगच्छति ॥१६॥
-
 > evaṁ vidho brahmacārī
 > vānaprastho yatir gṛhī
 > caran vidita-vijñānaḥ
@@ -10501,9 +8657,6 @@ This is the beginning of self-realization. One must first understand how Brahman
 
 ### SB 7.12.17
 
-> वानप्रस्थस्य वक्ष्यामि नियमान्मुनिसम्मतान
-> यानास्थाय मुनिर्गच्छेदृषिलोकमुहाञ्जसा ॥१७॥
-
 > vānaprasthasya vakṣyāmi
 > niyamān muni-sammatān
 > yān āsthāya munir gacched
@@ -10514,9 +8667,6 @@ This is the beginning of self-realization. One must first understand how Brahman
 **O King, I shall now describe the qualifications for a vānaprastha, one who has retired from family life. By rigidly following the rules and regulations for the vānaprastha, one can easily be elevated to the upper planetary system known as Maharloka.**
 
 ### SB 7.12.18
-
-> न कृष्टपच्यमश्नीयादकृष्टं चाप्यकालतः
-> अग्निपक्वमथामं वा अर्कपक्वमुताहरेत ॥१८॥
 
 > na kṛṣṭa-pacyam aśnīyād
 > akṛṣṭaṁ cāpy akālataḥ
@@ -10529,9 +8679,6 @@ This is the beginning of self-realization. One must first understand how Brahman
 
 ### SB 7.12.19
 
-> वन्यैश्चरुपुरोडाशान्निर्वपेत्कालचोदितान
-> लब्धे नवे नवेऽन्नाद्ये पुराणं च परित्यजेत ॥१९॥
-
 > vanyaiś caru-puroḍāśān
 > nirvapet kāla-coditān
 > labdhe nave nave 'nnādye
@@ -10542,9 +8689,6 @@ This is the beginning of self-realization. One must first understand how Brahman
 **A vānaprastha should prepare cakes to be offered in sacrifice from fruits and grains grown naturally in the forest. When he obtains some new grains, he should give up his old stock of grains.**
 
 ### SB 7.12.20
-
-> अग्न्यर्थमेव शरणमुटजं वाद्रिकन्दरम
-> श्रयेत हिमवाय्वग्नि वर्षार्कातपषाट्स्वयम ॥२०॥
 
 > agny-artham eva śaraṇam
 > uṭajaṁ vādri-kandaram
@@ -10557,9 +8701,6 @@ This is the beginning of self-realization. One must first understand how Brahman
 
 ### SB 7.12.21
 
-> केशरोमनखश्मश्रु मलानि जटिलो दधत
-> कमण्डल्वजिने दण्ड वल्कलाग्निपरिच्छदान ॥२१॥
-
 > keśa-roma-nakha-śmaśru-
 > malāni jaṭilo dadhat
 > kamaṇḍalv-ajine daṇḍa-
@@ -10570,9 +8711,6 @@ This is the beginning of self-realization. One must first understand how Brahman
 **The vānaprastha should wear matted locks of hair on his head and let his body hair, nails and moustache grow. He should not cleanse his body of dirt. He should keep a waterpot, deerskin and rod, wear the bark of a tree as a covering, and use garments colored like fire.**
 
 ### SB 7.12.22
-
-> चरेद्वने द्वादशाब्दानष्टौ वा चतुरो मुनिः
-> द्वावेकं वा यथा बुद्धिर्न विपद्येत कृच्छ्रतः ॥२२॥
 
 > cared vane dvādaśābdān
 > aṣṭau vā caturo muniḥ
@@ -10585,9 +8723,6 @@ This is the beginning of self-realization. One must first understand how Brahman
 
 ### SB 7.12.23
 
-> यदाकल्पः स्वक्रियायां व्याधिभिर्जरयाथवा
-> आन्वीक्षिक्यां वा विद्यायां कुर्यादनशनादिकम ॥२३॥
-
 > yadākalpaḥ sva-kriyāyāṁ
 > vyādhibhir jarayāthavā
 > ānvīkṣikyāṁ vā vidyāyāṁ
@@ -10598,9 +8733,6 @@ This is the beginning of self-realization. One must first understand how Brahman
 **When because of disease or old age one is unable to perform his prescribed duties for advancement in spiritual consciousness or study of the Vedas, he should practice fasting, not taking any food.**
 
 ### SB 7.12.24
-
-> आत्मन्यग्नीन्समारोप्य सन्न्यस्याहं ममात्मताम
-> कारणेषु न्यसेत्सम्यक्सङ्घातं तु यथार्हतः ॥२४॥
 
 > ātmany agnīn samāropya
 > sannyasyāhaṁ mamātmatām
@@ -10615,9 +8747,6 @@ The body is an effect of a cause, namely the five material elements (earth, wate
 
 ### SB 7.12.25
 
-> खे खानि वायौ निश्वासांस्तेजःसूष्माणमात्मवान
-> अप्स्वसृक्ष्लेष्मपूयानि क्षितौ शेषं यथोद्भवम ॥२५॥
-
 > khe khāni vāyau niśvāsāṁs
 > tejaḥsūṣmāṇam ātmavān
 > apsv asṛk-śleṣma-pūyāni
@@ -10630,13 +8759,6 @@ The body is an effect of a cause, namely the five material elements (earth, wate
 To be self-realized, one must understand the original sources of the various elements of the body. The body is a combination of skin, bone, muscle, blood, semen, urine, stool, heat, breath and so on, which all come from earth, water, fire, air and sky. One must be well conversant with the sources of all the bodily constituents. Then one becomes a self-realized person, or *ātmavān,* one who knows the self.
 
 ### SB 7.12.26-28
-
-> वाचमग्नौ सवक्तव्यामिन्द्रे शिल्पं करावपि
-> पदानि गत्या वयसि रत्योपस्थं प्रजापतौ ॥२६॥
-> मृत्यौ पायुं विसर्गं च यथास्थानं विनिर्दिशेत
-> दिक्षु श्रोत्रं सनादेन स्पर्शेनाध्यात्मनि त्वचम ॥२७॥
-> रूपाणि चक्षुषा राजन्ज्योतिष्यभिनिवेशयेत
-> अप्सु प्रचेतसा जिह्वां घ्रेयैर्घ्राणं क्षितौ न्यसेत ॥२८॥
 
 > vācam agnau savaktavyām
 > indre śilpaṁ karāv api
@@ -10659,12 +8781,6 @@ To be self-realized, one must understand the original sources of the various ele
 
 ### SB 7.12.29-30
 
-> मनो मनोरथैश्चन्द्रे बुद्धिं बोध्यैः कवौ परे
-> कर्माण्यध्यात्मना रुद्रे यदहं ममताक्रिया
-> सत्त्वेन चित्तं क्षेत्रज्ञए गुणैर्वैकारिकं परे ॥२९॥
-> अप्सु क्षितिमपो ज्योतिष्यदो वायौ नभस्यमुम
-> कूटस्थे तच्च महति तदव्यक्तेऽक्षरे च तत ॥३०॥
-
 > mano manorathaiś candre
 > buddhiṁ bodhyaiḥ kavau pare
 > karmāṇy adhyātmanā rudre
@@ -10683,9 +8799,6 @@ To be self-realized, one must understand the original sources of the various ele
 
 ### SB 7.12.31
 
-> इत्यक्षरतयात्मानं चिन्मात्रमवशेषितम
-> ज्ञआत्वाद्वयोऽथ विरमेद्दग्धयोनिरिवानलः ॥३१॥
-
 > ity akṣaratayātmānaṁ
 > cin-mātram avaśeṣitam
 > jñātvādvayo 'tha viramed
@@ -10701,10 +8814,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Twelfth Chapter, of th
 
 ### SB 7.13.1
 
-> श्रीनारद उवाच
-> कल्पस्त्वेवं परिव्रज्य देहमात्रावशेषितः
-> ग्रामैकरात्रविधिना निरपेक्षश्चरेन्महीम ॥१॥
-
 > śrī-nārada uvāca
 > kalpas tv evaṁ parivrajya
 > deha-mātrāvaśeṣitaḥ
@@ -10717,9 +8826,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Twelfth Chapter, of th
 
 ### SB 7.13.2
 
-> बिभृयाद्यद्यसौ वासः कौपीनाच्छादनं परम
-> त्यक्तं न लिङ्गाद्दण्डादेरन्यत्किञ्चिदनापदि ॥२॥
-
 > bibhṛyād yady asau vāsaḥ
 > kaupīnācchādanaṁ param
 > tyaktaṁ na liṅgād daṇḍāder
@@ -10730,9 +8836,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Twelfth Chapter, of th
 **A person in the renounced order of life may try to avoid even a dress to cover himself. If he wears anything at all, it should be only a loincloth, and when there is no necessity, a sannyāsī should not even accept a daṇḍa. A sannyāsī should avoid carrying anything but a daṇḍa and kamaṇḍalu.**
 
 ### SB 7.13.3
-
-> एक एव चरेद्भिक्षुरात्मारामोऽनपाश्रयः
-> सर्वभूतसुहृच्छान्तो नारायणपरायणः ॥३॥
 
 > eka eva cared bhikṣur
 > ātmārāmo 'napāśrayaḥ
@@ -10745,9 +8848,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Twelfth Chapter, of th
 
 ### SB 7.13.4
 
-> पश्येदात्मन्यदो विश्वं परे सदसतोऽव्यये
-> आत्मानं च परं ब्रह्म सर्वत्र सदसन्मये ॥४॥
-
 > paśyed ātmany ado viśvaṁ
 > pare sad-asato 'vyaye
 > ātmānaṁ ca paraṁ brahma
@@ -10758,9 +8858,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Twelfth Chapter, of th
 **The sannyāsī should always try to see the Supreme pervading everything and see everything, including this universe, resting on the Supreme.**
 
 ### SB 7.13.5
-
-> सुप्तिप्रबोधयोः सन्धावात्मनो गतिमात्मदृक
-> पश्यन्बन्धं च मोक्षं च मायामात्रं न वस्तुतः ॥५॥
 
 > supti-prabodhayoḥ sandhāv
 > ātmano gatim ātma-dṛk
@@ -10782,9 +8879,6 @@ The unconscious state is nothing but ignorance, darkness or material existence, 
 
 ### SB 7.13.6
 
-> नाभिनन्देद्ध्रुवं मृत्युमध्रुवं वास्य जीवितम
-> कालं परं प्रतीक्षेत भूतानां प्रभवाप्ययम ॥६॥
-
 > nābhinanded dhruvaṁ mṛtyum
 > adhruvaṁ vāsya jīvitam
 > kālaṁ paraṁ pratīkṣeta
@@ -10802,9 +8896,6 @@ The living entities in the material world, not only at the present but also in t
 One should observe the activities of eternal time, which is the cause of birth and death. Before the creation of the present millennium, the living entities were under the influence of the time factor, and within the time factor the material world comes into existence and is again annihilated. *Bhūtvā bhūtvā pralīyate* [[bg/8/19|[Bg. 8.19] ]]. Being under the control of the time factor, the living entities appear and die, life after life. This time factor is the impersonal representation of the Supreme Personality of Godhead, who gives the living entities conditioned by material nature a chance to emerge from this nature by surrendering to Him.
 
 ### SB 7.13.7
-
-> नासच्छास्त्रेषु सज्जेत नोपजीवेत जीविकाम
-> वादवादांस्त्यजेत्तर्कान्पक्षं कंच न संश्रयेत ॥७॥
 
 > nāsac-chāstreṣu sajjeta
 > nopajīveta jīvikām
@@ -10833,9 +8924,6 @@ A person desiring to advance in spiritual understanding should be extremely care
 
 ### SB 7.13.8
 
-> न शिष्याननुबध्नीत ग्रन्थान्नैवाभ्यसेद्बहून
-> न व्याख्यामुपयुञ्जीत नारम्भानारभेत्क्वचित ॥८॥
-
 > na śiṣyān anubadhnīta
 > granthān naivābhyased bahūn
 > na vyākhyām upayuñjīta
@@ -10848,9 +8936,6 @@ A person desiring to advance in spiritual understanding should be extremely care
 So-called *svāmīs* and *yogīs* generally make disciples by alluring them with material benefits. There are many so-called *gurus* who attract disciples by promising to cure their diseases or increase their material opulence by manufacturing gold. These are lucrative allurements for unintelligent men. A *sannyāsī* is prohibited from making disciples through such material allurements. *Sannyāsīs* sometimes indulge in material opulence by unnecessarily constructing many temples and monasteries, but actually such endeavors should be avoided. Temples and monasteries should be constructed for the preaching of spiritual consciousness or Kṛṣṇa consciousness, not to provide free hotels for persons who are useful for neither material nor spiritual purposes. Temples and monasteries should be strictly off limits to worthless clubs of crazy men. In the Kṛṣṇa consciousness movement we welcome everyone who agrees at least to follow the movement's regulative principles—no illicit sex, no intoxication, no meat-eating and no gambling. In the temples and monasteries, gatherings of unnecessary, rejected, lazy fellows should be strictly disallowed. The temples and monasteries should be used exclusively by devotees who are serious about spiritual advancement in Kṛṣṇa consciousness. Śrīla Viśvanātha Cakravartī Ṭhākura explains the word *ārambhān* as meaning *maṭhādi-vyāpārān,* which means "attempts to construct temples and monasteries." The first business of the *sannyāsī* is to preach Kṛṣṇa consciousness, but if, by the grace of Kṛṣṇa, facilities are available, then he may construct temples and monasteries to give shelter to the serious students of Kṛṣṇa consciousness. Otherwise such temples and monasteries are not needed.
 
 ### SB 7.13.9
-
-> न यतेराश्रमः प्रायो धर्महेतुर्महात्मनः
-> शान्तस्य समचित्तस्य बिभृयादुत वा त्यजेत ॥९॥
 
 > na yater āśramaḥ prāyo
 > dharma-hetur mahātmanaḥ
@@ -10865,9 +8950,6 @@ There are four stages of the renounced order of life—*kuṭīcaka, bahūdaka, 
 
 ### SB 7.13.10
 
-> अव्यक्तलिङ्गो व्यक्तार्थो मनीष्युन्मत्तबालवत
-> कविर्मूकवदात्मानं स दृष्ट्या दर्शयेन्नृणाम ॥१०॥
-
 > avyakta-liṅgo vyaktārtho
 > manīṣy unmatta-bālavat
 > kavir mūkavad ātmānaṁ
@@ -10881,9 +8963,6 @@ A great personality very much advanced in Kṛṣṇa consciousness may not expo
 
 ### SB 7.13.11
 
-> अत्राप्युदाहरन्तीममितिहासं पुरातनम
-> प्रह्रादस्य च संवादं मुनेराजगरस्य च ॥११॥
-
 > atrāpy udāharantīmam
 > itihāsaṁ purātanam
 > prahrādasya ca saṁvādaṁ
@@ -10896,11 +8975,6 @@ A great personality very much advanced in Kṛṣṇa consciousness may not expo
 The saintly person met by Prahlāda Mahārāja was undergoing *ājagara-vṛtti,* the living conditions of a python, which does not go anywhere but sits in one place for years and eats whatever is automatically available. Prahlāda Mahārāja, along with his associates, met this great saint and spoke to him as follows.
 
 ### SB 7.13.12-13
-
-> तं शयानं धरोपस्थे कावेर्यां सह्यसानुनि
-> रजस्वलैस्तनूदेशैर्निगूढामलतेजसम ॥१२॥
-> ददर्श लोकान्विचरन्लोकतत्त्वविवित्सया
-> वृतोऽमात्यैः कतिपयैः प्रह्रादो भगवत्प्रियः ॥१३॥
 
 > taṁ śayānaṁ dharopasthe
 > kāveryāṁ sahya-sānuni
@@ -10918,9 +8992,6 @@ The saintly person met by Prahlāda Mahārāja was undergoing *ājagara-vṛtti,
 
 ### SB 7.13.14
 
-> कर्मणाकृतिभिर्वाचा लिङ्गैर्वर्णाश्रमादिभिः
-> न विदन्ति जना यं वै सोऽसाविति न वेति च ॥१४॥
-
 > karmaṇākṛtibhir vācā
 > liṅgair varṇāśramādibhiḥ
 > na vidanti janā yaṁ vai
@@ -10934,9 +9005,6 @@ The inhabitants of that particular place on the bank of the Kāverī in the vall
 
 ### SB 7.13.15
 
-> तं नत्वाभ्यर्च्य विधिवत्पादयोः शिरसा स्पृशन
-> विवित्सुरिदमप्राक्षीन्महाभागवतोऽसुरः ॥१५॥
-
 > taṁ natvābhyarcya vidhivat
 > pādayoḥ śirasā spṛśan
 > vivitsur idam aprākṣīn
@@ -10947,12 +9015,6 @@ The inhabitants of that particular place on the bank of the Kāverī in the vall
 **The advanced devotee Prahlāda Mahārāja duly worshiped and offered obeisances to the saintly person who had adopted a python's means of livelihood. After thus worshiping the saintly person and touching his own head to the saint's lotus feet, Prahlāda Mahārāja, in order to understand him, inquired very submissively as follows.**
 
 ### SB 7.13.16-17
-
-> बिभर्षि कायं पीवानं सोद्यमो भोगवान्यथा
-> वित्तं चैवोद्यमवतां भोगो वित्तवतामिह
-> भोगिनां खलु देहोऽयं पीवा भवति नान्यथा ॥१६॥
-> न ते शयानस्य निरुद्यमस्य ब्रह्मन्नु हार्थो यत एव भोगः
-> अभोगिनोऽयं तव विप्र देहः पीवा यतस्तद्वद नः क्षमं चेत ॥१७॥
 
 > bibharṣi kāyaṁ pīvānaṁ
 > sodyamo bhogavān yathā
@@ -10970,9 +9032,6 @@ The inhabitants of that particular place on the bank of the Kāverī in the vall
 
 ### SB 7.13.18
 
-> कविः कल्पो निपुणदृक्चित्रप्रियकथः समः
-> लोकस्य कुर्वतः कर्म शेषे तद्वीक्षितापि वा ॥१८॥
-
 > na te śayānasya nirudyamasya
 > brahman nu hārtho yata eva bhogaḥ
 > abhogino 'yaṁ tava vipra dehaḥ
@@ -10985,10 +9044,6 @@ The inhabitants of that particular place on the bank of the Kāverī in the vall
 Generally those engaged in spiritual advancement take food only once, either in the afternoon or in the evening. If one takes food only once, naturally he does not become fat. The learned sage, however, was quite fat, and therefore Prahlāda Mahārāja was very much surprised. Because of being experienced in self-realization, a transcendentalist certainly becomes bright-faced. And one who is advanced in self-realization must be considered to possess the body of a *brāhmaṇa.* Because the bright-faced saintly person was lying down and not working and yet was quite fat, Prahlāda Mahārāja was puzzled and wanted to question him about this.
 
 ### SB 7.13.19
-
-> श्रीनारद उवाच
-> स इत्थं दैत्यपतिना परिपृष्टो महामुनिः
-> स्मयमानस्तमभ्याह तद्वागमृतयन्त्रितः ॥१९॥
 
 > kaviḥ kalpo nipuṇa-dṛk
 > citra-priya-kathaḥ samaḥ
@@ -11003,10 +9058,6 @@ Prahlāda Mahārāja studied the bodily features of the saintly person, and thro
 
 ### SB 7.13.20
 
-> श्रीब्राह्मण उवाच
-> वेदेदमसुरश्रेष्ठ भवान्नन्वार्यसम्मतः
-> ईहोपरमयोर्नॄणां पदान्यध्यात्मचक्षुषा ॥२०॥
-
 > śrī-nārada uvāca
 > sa itthaṁ daitya-patinā
 > paripṛṣṭo mahā-muniḥ
@@ -11018,9 +9069,6 @@ Prahlāda Mahārāja studied the bodily features of the saintly person, and thro
 **Nārada Muni continued: When the saintly person was thus questioned by Prahlāda Mahārāja, the King of the Daityas, he was captivated by this shower of nectarean words, and he replied to the inquisitiveness of Prahlāda Mahārāja with a smiling face.**
 
 ### SB 7.13.21
-
-> यस्य नारायणो देवो भगवान्हृद्गतः सदा
-> भक्त्या केवलयाज्ञआनं धुनोति ध्वान्तमर्कवत ॥२१॥
 
 > śrī-brāhmaṇa uvāca
 > vededam asura-śreṣṭha
@@ -11036,9 +9084,6 @@ A pure devotee like Prahlāda Mahārāja can understand the minds of others beca
 
 ### SB 7.13.22
 
-> तथापि ब्रूमहे प्रश्नांस्तव राजन्यथाश्रुतम
-> सम्भाषणीयो हि भवानात्मनः शुद्धिमिच्छता ॥२२॥
-
 > yasya nārāyaṇo devo
 > bhagavān hṛd-gataḥ sadā
 > bhaktyā kevalayājñānaṁ
@@ -11052,9 +9097,6 @@ The words *bhaktyā kevalayā* indicate that simply by executing devotional serv
 
 ### SB 7.13.23
 
-> तृष्णया भववाहिन्या योग्यैः कामैरपूर्यया
-> कर्माणि कार्यमाणोऽहं नानायोनिषु योजितः ॥२३॥
-
 > tathāpi brūmahe praśnāṁs
 > tava rājan yathā-śrutam
 > sambhāṣaṇīyo hi bhavān
@@ -11067,9 +9109,6 @@ The words *bhaktyā kevalayā* indicate that simply by executing devotional serv
 A saintly person doesn't wish to speak to anyone and everyone, and he is therefore grave and silent. Generally a common man does not need to be advised. Unless one is prepared to take instructions, it is said that a saintly person should not address him, although sometimes, because of great kindness, a saintly person speaks to ordinary men. As for Prahlāda Mahārāja, however, since he was not a common, ordinary man, whatever questions he posed would have to be answered, even by a great and exalted personality. Therefore the saintly *brāhmaṇa* did not remain silent, but began to answer. These answers, however, were not concocted by him. This is indicated by the words *yathā-śrutam,* meaning "as I have heard from the authorities." In the *paramparā* system, when the questions are bona fide the answers are bona fide. No one should attempt to create or manufacture answers. One must refer to the *śāstras* and give answers according to Vedic understanding. The words *yathā-śrutam* refer to Vedic knowledge. The *Vedas* are known as *śruti* because this knowledge is received from authorities. The statements of the *Vedas* are known as *śruti-pramāṇa.* One should quote evidence from the *śruti*—the *Vedas* or Vedic literature—and then one's statements will be correct. Otherwise one's words will proceed from mental concoction.
 
 ### SB 7.13.24
-
-> यदृच्छया लोकमिमं प्रापितः कर्मभिर्भ्रमन
-> स्वर्गापवर्गयोर्द्वारं तिरश्चां पुनरस्य च ॥२४॥
 
 > tṛṣṇayā bhava-vāhinyā
 > yogyaiḥ kāmair apūryayā
@@ -11099,9 +9138,6 @@ As long as a living entity wants to fulfill various types of material desire, he
 
 ### SB 7.13.25
 
-> तत्रापि दम्पतीनां च सुखायान्यापनुत्तये
-> कर्माणि कुर्वतां दृष्ट्वा निवृत्तोऽस्मि विपर्ययम ॥२५॥
-
 > yadṛcchayā lokam imaṁ
 > prāpitaḥ karmabhir bhraman
 > svargāpavargayor dvāraṁ
@@ -11128,9 +9164,6 @@ Our Kṛṣṇa consciousness movement is therefore the highest movement for the
 
 ### SB 7.13.26
 
-> सुखमस्यात्मनो रूपं सर्वेहोपरतिस्तनुः
-> मनःसंस्पर्शजान्दृष्ट्वा भोगान्स्वप्स्यामि संविशन ॥२६॥
-
 > tatrāpi dam-patīnāṁ ca
 > sukhāyānyāpanuttaye
 > karmāṇi kurvatāṁ dṛṣṭvā
@@ -11146,9 +9179,6 @@ The learned *brāhmaṇa* said that since everything is misused by fruitive work
 
 ### SB 7.13.27
 
-> इत्येतदात्मनः स्वार्थं सन्तं विस्मृत्य वै पुमान
-> विचित्रामसति द्वैते घोरामाप्नोति संसृतिम ॥२७॥
-
 > sukham asyātmano rūpaṁ
 > sarvehoparatis tanuḥ
 > manaḥ-saṁsparśajān dṛṣṭvā
@@ -11161,9 +9191,6 @@ The learned *brāhmaṇa* said that since everything is misused by fruitive work
 The difference between the philosophy of the Māyāvādīs and that of the Vaiṣṇavas is explained herein. Both the Māyāvādīs and Vaiṣṇavas know that in materialistic activities there is no happiness. The Māyāvādī philosophers, therefore, adhering to the slogan *brahma satyaṁ jagan mithyā,* want to refrain from false, materialistic activities. They want to stop all activities and merge in the Supreme Brahman. According to the Vaiṣṇava philosophy, however, if one simply ceases from materialistic activity one cannot remain inactive for very long, and therefore everyone should engage himself in spiritual activities, which will solve the problem of suffering in this material world. It is said, therefore, that although the Māyāvādī philosophers strive to refrain from materialistic activities and merge in Brahman, and although they may actually merge in the Brahman existence, for want of activity they fall down again into materialistic activity (*āruhya kṛcchreṇa paraṁ padaṁ tataḥ patanty adhaḥ* [[sb/10/2/32|[SB 10.2.32] ]]). Thus the so-called renouncer, unable to remain in meditation upon Brahman, returns to materialistic activities by opening hospitals and schools and so on. Therefore, simply cultivating knowledge that materialistic activities cannot give one happiness, and that one should consequently cease from such activities, is insufficient. One should cease from materialistic activities and take up spiritual activities. Then the solution to the problem will be achieved. Spiritual activities are activities performed according to the order of Kṛṣṇa (*ānukūlyena kṛṣṇānuśīlanam* [[cc/madhya/19/167|[Cc. Madhya 19.167] ]]). If one does whatever Kṛṣṇa says, his activities are not material. For example, when Arjuna fought in response to the order of Kṛṣṇa, his activities were not material. Fighting for sense gratification is a materialistic activity, but fighting by the order of Kṛṣṇa is spiritual. By spiritual activities one becomes eligible to go back home, back to Godhead, and then enjoy blissful life eternally. Here, in the material world, everything is but a mental concoction that will never give us real happiness. The practical solution, therefore, is to cease from materialistic activities and engage in spiritual activities. *Yajñārthāt karmaṇo 'nyatra loko 'yaṁ karma-bandhanaḥ [[bg/3/9|[Bg. 3.9] ]]*). If one works for the sake of pleasing the Supreme Lord—Yajña, or Viṣṇu—one is in liberated life. If one fails to do so, however, he remains in a life of bondage.
 
 ### SB 7.13.28
-
-> जलं तदुद्भवैश्छन्नं हित्वाज्ञओ जलकाम्यया
-> मृगतृष्णामुपाधावेत्तथान्यत्रार्थदृक्स्वतः ॥२८॥
 
 > ity etad ātmanaḥ svārthaṁ
 > santaṁ vismṛtya vai pumān
@@ -11178,9 +9205,6 @@ Everyone is trying to be happy because, as explained in the previous verse, *suk
 
 ### SB 7.13.29
 
-> देहादिभिर्दैवतन्त्रैरात्मनः सुखमीहतः
-> दुःखात्ययं चानीशस्य क्रिया मोघाः कृताः कृताः ॥२९॥
-
 > jalaṁ tad-udbhavaiś channaṁ
 > hitvājño jala-kāmyayā
 > mṛgatṛṣṇām upādhāvet
@@ -11193,9 +9217,6 @@ Everyone is trying to be happy because, as explained in the previous verse, *suk
 This is an accurate example depicting how the living entity, because of lack of knowledge, runs after happiness outside his own self. When one understands his real identity as a spiritual being, he can understand the supreme spiritual being, Kṛṣṇa, and the real happiness exchanged between Kṛṣṇa and one's self. It is very interesting to note how this verse points to the body's growth from the spirit soul. The modern materialistic scientist thinks that life grows from matter, but actually the fact is that matter grows from life. The life, or the spiritual soul, is compared herein to water, from which clumps of matter grow in the form of grass. One who is ignorant of scientific knowledge of the spirit soul does not look inside the body to find happiness in the soul; instead, he goes outside to search for happiness, just as a deer without knowledge of the water beneath the grass goes out to the desert to find water. The Kṛṣṇa consciousness movement is trying to remove the ignorance of misled human beings who are trying to find water outside the jurisdiction of life. *Raso vai saḥ. Raso 'ham apsu kaunteya* [[bg/7/8|[Bg. 7.8] ]]. The taste of water is Kṛṣṇa. To quench one's thirst, one must taste water by association with Kṛṣṇa. This is the Vedic injunction.
 
 ### SB 7.13.30
-
-> आध्यात्मिकादिभिर्दुःखैरविमुक्तस्य कर्हिचित
-> मर्त्यस्य कृच्छ्रोपनतैरर्थैः कामैः क्रियेत किम ॥३०॥
 
 > dehādibhir daiva-tantrair
 > ātmanaḥ sukham īhataḥ
@@ -11226,9 +9247,6 @@ As soon as a living entity is victimized by material desires to lord it over mat
 
 ### SB 7.13.31
 
-> पश्यामि धनिनां क्लेशं लुब्धानामजितात्मनाम
-> भयादलब्धनिद्राणां सर्वतोऽभिविशङ्किनाम ॥३१॥
-
 > ādhyātmikādibhir duḥkhair
 > avimuktasya karhicit
 > martyasya kṛcchropanatair
@@ -11241,9 +9259,6 @@ As soon as a living entity is victimized by material desires to lord it over mat
 According to the materialistic way of life, if a poor man, after laboring very, very hard, gets some material profit at the end of his life, he is considered a success, even though he again dies while suffering the threefold miseries—*adhyātmika, adhidaivika* and *adhibhautika.* No one can escape the threefold miseries of materialistic life, namely miseries pertaining to the body and mind, miseries pertaining to the difficulties imposed by society, community, nation and other living entities, and miseries inflicted upon us by natural disturbances from earthquakes, famines, droughts, floods, epidemics, and so on. If one works very hard, suffering the threefold miseries, and then is successful in getting some small benefit, what is the value of this benefit? Besides that, even if a *karmī* is successful in accumulating some material wealth, he still cannot enjoy it, for he must die in bereavement. I have even seen a dying man begging a medical attendant to increase his life by four years so that he could complete his material plans. Of course, the medical man was unsuccessful in expanding the life of the man, who therefore died in great bereavement. Everyone must die in this way, and after one's mental condition is taken into account by the laws of material nature, he is given another chance to fulfill his desires in a different body. Material plans for material happiness have no value, but under the spell of the illusory energy we consider them extremely valuable. There were many politicians, social reformers and philosophers who died very miserably, without deriving any practical value from their material plans. Therefore, a sane and sensible man never desires to work hard under the conditions of threefold miseries, only to die in disappointment.
 
 ### SB 7.13.32
-
-> राजतश्चौरतः शत्रोः स्वजनात्पशुपक्षितः
-> अर्थिभ्यः कालतः स्वस्मान्नित्यं प्राणार्थवद्भयम ॥३२॥
 
 > paśyāmi dhanināṁ kleśaṁ
 > lubdhānām ajitātmanām
@@ -11279,9 +9294,6 @@ As far as our Kṛṣṇa consciousness movement is concerned, we are getting mo
 
 ### SB 7.13.33
 
-> शोकमोहभयक्रोध रागक्लैब्यश्रमादयः
-> यन्मूलाः स्युर्नृणां जह्यात्स्पृहां प्राणार्थयोर्बुधः ॥३३॥
-
 > rājataś caurataḥ śatroḥ
 > sva-janāt paśu-pakṣitaḥ
 > arthibhyaḥ kālataḥ svasmān
@@ -11294,9 +9306,6 @@ As far as our Kṛṣṇa consciousness movement is concerned, we are getting mo
 The word *svasmāt* means "from one's self." Because of attachment for money, the richest person is even afraid of himself. He fears that he may have locked his money in an unsafe manner or might have committed some mistake. Aside from the government and its income tax and aside from thieves, even a rich man's own relatives are always thinking of how to take advantage of him and take away his money. Sometimes these relatives are described as *sva janaka-dasyu,* which means "rogues and thieves in the guise of relatives." Therefore, there is no need to accumulate wealth or unnecessarily endeavor for more and more money. The real business of life is to ask "Who am I?" and to understand one's self. One should understand the position of the living entity in this material world and understand how to return home, back to Godhead.
 
 ### SB 7.13.34
-
-> मधुकारमहासर्पौ लोकेऽस्मिन्नो गुरूत्तमौ
-> वैराग्यं परितोषं च प्राप्ता यच्छिक्षया वयम ॥३४॥
 
 > śoka-moha-bhaya-krodha-
 > rāga-klaibya-śramādayaḥ
@@ -11321,9 +9330,6 @@ According to Vedic civilization, the ultimate perfection of life is to take *san
 
 ### SB 7.13.35
 
-> विरागः सर्वकामेभ्यः शिक्षितो मे मधुव्रतात
-> कृच्छ्राप्तं मधुवद्वित्तं हत्वाप्यन्यो हरेत्पतिम ॥३५॥
-
 > madhukāra-mahā-sarpau
 > loke 'smin no gurūttamau
 > vairāgyaṁ paritoṣaṁ ca
@@ -11334,9 +9340,6 @@ According to Vedic civilization, the ultimate perfection of life is to take *san
 **The bee and the python are two excellent spiritual masters who give us exemplary instructions regarding how to be satisfied by collecting only a little and how to stay in one place and not move.**
 
 ### SB 7.13.36
-
-> अनीहः परितुष्टात्मा यदृच्छोपनतादहम
-> नो चेच्छये बह्वहानि महाहिरिव सत्त्ववान ॥३६॥
 
 > virāgaḥ sarva-kāmebhyaḥ
 > śikṣito me madhu-vratāt
@@ -11351,9 +9354,6 @@ The honey gathered in the comb is taken away by force. Therefore one who accumul
 
 ### SB 7.13.37
 
-> क्वचिदल्पं क्वचिद्भूरि भुञ्जेऽन्नं स्वाद्वस्वादु वा
-> क्वचिद्भूरि गुणोपेतं गुणहीनमुत क्वचित ॥३७॥
-
 > anīhaḥ parituṣṭātmā
 > yadṛcchopanatād aham
 > no cec chaye bahv-ahāni
@@ -11366,9 +9366,6 @@ The honey gathered in the comb is taken away by force. Therefore one who accumul
 One should learn detachment from the bumblebees, for they collect drops of honey here and there and keep it in their honeycomb, but then someone comes and by force takes all the honey away, leaving the bumblebees with nothing. Therefore one should learn from the bumblebee not to keep more money than one needs. Similarly, one should learn from the python to stay in one place for many, many days without food and then eat only if something comes in its own way. Thus the learned *brāhmaṇa* gave instructions gained from two creatures, namely the bumblebee and the python.
 
 ### SB 7.13.38
-
-> श्रद्धयोपहृतं क्वापि कदाचिन्मानवर्जितम
-> भुञ्जे भुक्त्वाथ कस्मिंश्चिद्दिवा नक्तं यदृच्छया ॥३८॥
 
 > kvacid alpaṁ kvacid bhūri
 > bhuñje 'nnaṁ svādv asvādu vā
@@ -11385,9 +9382,6 @@ One should learn detachment from the bumblebees, for they collect drops of honey
 
 ### SB 7.13.39
 
-> क्षौमं दुकूलमजिनं चीरं वल्कलमेव वा
-> वसेऽन्यदपि सम्प्राप्तं दिष्टभुक्तुष्टधीरहम ॥३९॥
-
 > kṣaumaṁ dukūlam ajinaṁ
 > cīraṁ valkalam eva vā
 > vase 'nyad api samprāptaṁ
@@ -11398,9 +9392,6 @@ One should learn detachment from the bumblebees, for they collect drops of honey
 **To cover my body I use whatever is available, whether it be linen, silk, cotton, bark or deerskin, according to my destiny, and I am fully satisfied and unagitated.**
 
 ### SB 7.13.40
-
-> क्वचिच्छये धरोपस्थे तृणपर्णाश्मभस्मसु
-> क्वचित्प्रासादपर्यङ्के कशिपौ वा परेच्छया ॥४०॥
 
 > kvacic chaye dharopasthe
 > tṛṇa-parṇāśma-bhasmasu
@@ -11422,9 +9413,6 @@ The learned *brāhmaṇa's* description indicates different types of births, for
 
 ### SB 7.13.41
 
-> क्वचित्स्नातोऽनुलिप्ताङ्गः सुवासाः स्रग्व्यलङ्कृतः
-> रथेभाश्वैश्चरे क्वापि दिग्वासा ग्रहवद्विभो ॥४१॥
-
 > kvacit snāto 'nuliptāṅgaḥ
 > suvāsāḥ sragvy alaṅkṛtaḥ
 > rathebhāśvaiś care kvāpi
@@ -11435,9 +9423,6 @@ The learned *brāhmaṇa's* description indicates different types of births, for
 **O my lord, sometimes I bathe myself very nicely, smear sandalwood pulp all over my body, put on a flower garland, and dress in fine garments and ornaments. Then I travel like a king on the back of an elephant or on a chariot or horse. Sometimes, however, I travel naked, like a person haunted by a ghost.**
 
 ### SB 7.13.42
-
-> नाहं निन्दे न च स्तौमि स्वभावविषमं जनम
-> एतेषां श्रेय आशासे उतैकात्म्यं महात्मनि ॥४२॥
 
 > nāhaṁ ninde na ca staumi
 > sva-bhāva-viṣamaṁ janam
@@ -11451,9 +9436,6 @@ The learned *brāhmaṇa's* description indicates different types of births, for
 As soon as one comes to the platform of *bhakti-yoga,* one understands fully the Supreme Personality of Godhead, Vāsudeva, is the goal of life (*vāsudevaḥ samam iti sa mahātmā sudurlabhaḥ*). This is the instruction of all the Vedic literature (*vedaiś ca sarvair aham eva vedyaḥ* [[bg/15/15|[Bg. 15.15] ]],* sarva dharmān parityajya mām ekaṁ śaraṇaṁ vraja* [[bg/18/66|[Bg. 18.66] ]]). There is no use in praising someone for material qualifications or blaspheming him for material disqualifications. In the material world, good and bad have no meaning because if one is good he may be elevated to a higher planetary system and if one is bad he may be degraded to the lower planetary systems. People of different mentalities are sometimes elevated and sometimes degraded, but this is not the goal of life. Rather, the goal of life is to become free from elevation and degradation and take to Kṛṣṇa consciousness. Therefore a saintly person does not discriminate between that which is supposedly good and supposedly bad; rather, he desires for everyone to be happy in Kṛṣṇa consciousness, which is the ultimate goal of life.
 
 ### SB 7.13.43
-
-> विकल्पं जुहुयाच्चित्तौ तां मनस्यर्थविभ्रमे
-> मनो वैकारिके हुत्वा तं मायायां जुहोत्यनु ॥४३॥
 
 > vikalpaṁ juhuyāc cittau
 > tāṁ manasy artha-vibhrame
@@ -11475,9 +9457,6 @@ This verse describes how a *yogī* can become free from material affection. Beca
 
 ### SB 7.13.44
 
-> आत्मानुभूतौ तां मायां जुहुयात्सत्यदृङ्मुनिः
-> ततो निरीहो विरमेत्स्वानुभूत्यात्मनि स्थितः ॥४४॥
-
 > ātmānubhūtau tāṁ māyāṁ
 > juhuyāt satya-dṛṅ muniḥ
 > tato nirīho viramet
@@ -11491,9 +9470,6 @@ By an analytical study of the entire constitution of the body, one can surely co
 
 ### SB 7.13.45
 
-> स्वात्मवृत्तं मयेत्थं ते सुगुप्तमपि वर्णितम
-> व्यपेतं लोकशास्त्राभ्यां भवान्हि भगवत्परः ॥४५॥
-
 > svātma-vṛttaṁ mayetthaṁ te
 > suguptam api varṇitam
 > vyapetaṁ loka-śāstrābhyāṁ
@@ -11506,10 +9482,6 @@ By an analytical study of the entire constitution of the body, one can surely co
 A person who is actually a devotee of Kṛṣṇa does not care about so-called public opinion and Vedic or philosophical literatures. Prahlāda Mahārāja, who is such a devotee, always defied the false instructions of his father and the so-called teachers who were appointed to teach him. Instead, he simply followed the instructions of Nārada Muni, his *guru,* and thus he always remained a stalwart devotee. This is the nature of an intelligent devotee. The *Śrīmad-Bhāgavatam* instructs, *yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ* [SB 11.5.32]. One who is actually very intelligent must join the Kṛṣṇa consciousness movement, realizing his own self as an eternal servant of Kṛṣṇa, and thus practice constant chanting of the holy name of the Lord—Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.
 
 ### SB 7.13.46
-
-> श्रीनारद उवाच
-> धर्मं पारमहंस्यं वै मुनेः श्रुत्वासुरेश्वरः
-> पूजयित्वा ततः प्रीत आमन्त्र्य प्रययौ गृहम ॥४६॥
 
 > śrī-nārada uvāca
 > dharmaṁ pāramahaṁsyaṁ vai
@@ -11541,10 +9513,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Thirteenth Chapter, of
 
 ### SB 7.14.1
 
-> श्रीयुधिष्ठिर उवाच
-> गृहस्थ एतां पदवीं विधिना येन चाञ्जसा
-> यायाद्देवऋषे ब्रूहि मादृशो गृहमूढधीः ॥१॥
-
 > śrī-yudhiṣṭhira uvāca
 > gṛhastha etāṁ padavīṁ
 > vidhinā yena cāñjasā
@@ -11558,10 +9526,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Thirteenth Chapter, of
 In the previous chapters the great sage Nārada has explained how a *brahmacārī,* a *vānaprastha* and a *sannyāsī* should act. He first explained the dealings of a *brahmacārī, vānaprastha* and *sannyāsī* because these three *āśramas,* or statuses of life, are extremely important for fulfillment of the goal of life. One should note that in the *brahmacārī-āśrama, vānaprastha-āśrama* and *sannyāsa-āśrama* there is no scope for sex life, whereas sex is allowed in *gṛhastha* life under regulations. Nārada Muni, therefore, first described *brahmacarya, vānaprastha* and *sannyāsa* because he wanted to stress that sex is not at all necessary, although one who absolutely requires it is allowed to enter *gṛhastha* life, or household life, which is also regulated by the *śāstras* and *guru.* Yudhiṣṭhira Mahārāja could understand all this. Therefore, as a *gṛhastha,* he presented himself as *gṛha-mūḍha-dhīḥ,* one who is completely ignorant of the goal of life. A person who remains a householder in family life is certainly ignorant of life's goal; he is not very much advanced in intelligence. As soon as possible, one should give up his so-called comfortable life at home and prepare to undergo austerity, or *tapasya. Tapo divyaṁ putrakā* [[sb/5/5/1|[SB 5.5.1] ]]. According to the instructions given by Ṛṣabhadeva to His sons, we should not create a so-called comfortable situation, but must prepare to undergo austerity. This is how a human being should actually live to fulfill life's ultimate goal.
 
 ### SB 7.14.2
-
-> श्रीनारद उवाच
-> गृहेष्ववस्थितो राजन्क्रियाः कुर्वन्यथोचिताः
-> वासुदेवार्पणं साक्षादुपासीत महामुनीन ॥२॥
 
 > śrī-nārada uvāca
 > gṛheṣv avasthito rājan
@@ -11587,11 +9551,6 @@ The science of satisfying the Supreme Lord can be learned as described here: *s�
 In India the principles of this science were followed strictly. Even fifty years ago, I saw that in the villages of Bengal and the suburbs of Calcutta, people engaged in hearing *Śrīmad-Bhāgavatam* daily when all their activities ended, or at least in the evening before going to bed. Everyone would hear the *Bhāgavatam. Bhāgavata* classes were held in every village, and thus people had the advantage of hearing *Śrīmad-Bhāgavatam,* which describes everything about the aim of life—liberation or salvation. This will be clearly explained in the next verses.
 
 ### SB 7.14.3-4
-
-> शृण्वन्भगवतोऽभीक्ष्णमवतारकथामृतम
-> श्रद्दधानो यथाकालमुपशान्तजनावृतः ॥३॥
-> सत्सङ्गाच्छनकैः सङ्गमात्मजायात्मजादिषु
-> विमुञ्चेन्मुच्यमानेषु स्वयं स्वप्नवदुत्थितः ॥४॥
 
 > śṛṇvan bhagavato 'bhīkṣṇam
 > avatāra-kathāmṛtam
@@ -11624,9 +9583,6 @@ In a dream we form a society of friendship and love, and when we awaken we see t
 
 ### SB 7.14.5
 
-> यावदर्थमुपासीनो देहे गेहे च पण्डितः
-> विरक्तो रक्तवत्तत्र नृलोके नरतां न्यसेत ॥५॥
-
 > yāvad-artham upāsīno
 > dehe gehe ca paṇḍitaḥ
 > virakto raktavat tatra
@@ -11640,9 +9596,6 @@ This is the picture of ideal family life. When Śrī Caitanya Mahāprabhu asked 
 
 ### SB 7.14.6
 
-> ज्ञआतयः पितरौ पुत्रा भ्रातरः सुहृदोऽपरे
-> यद्वदन्ति यदिच्छन्ति चानुमोदेत निर्ममः ॥६॥
-
 > jñātayaḥ pitarau putrā
 > bhrātaraḥ suhṛdo 'pare
 > yad vadanti yad icchanti
@@ -11653,9 +9606,6 @@ This is the picture of ideal family life. When Śrī Caitanya Mahāprabhu asked 
 **An intelligent man in human society should make his own program of activities very simple. If there are suggestions from his friends, children, parents, brothers or anyone else, he should externally agree, saying, "Yes, that is all right," but internally he should be determined not to create a cumbersome life in which the purpose of life will not be fulfilled.**
 
 ### SB 7.14.7
-
-> दिव्यं भौमं चान्तरीक्षं वित्तमच्युतनिर्मितम
-> तत्सर्वमुपयुञ्जान एतत्कुर्यात्स्वतो बुधः ॥७॥
 
 > divyaṁ bhaumaṁ cāntarīkṣaṁ
 > vittam acyuta-nirmitam
@@ -11689,12 +9639,9 @@ In *Bhagavad-gītā* it is said:
 > yajñād bhavati parjanyo
 > yajñaḥ karma-samudbhavaḥ
 
-"All living bodies subsist on food grains, which are produced from rains. Rains are produced by performance of *yajña* [sacrifice], and *yajña* is born of prescribed duties." [[bg/3/14|(Bg. 3.14)]] When food grains are sufficiently produced, both animals and human beings can be nourished without difficulty for their maintenance. This is nature's arrangement. *prakṛteḥ kriyamāṇa-ni guṇaiḥ karmāṇi sarvaśaḥ* [[bg/3/27|[Bg. 3.27] ]]. Everyone is acting under the influence of material nature, and only fools think they can improve upon what God has created. The householders are specifically responsible for seeing that the laws of the Supreme Personality of Godhead are maintained, without fighting between men, communities, societies or nations. Human society should properly utilize the gifts of God, especially the food grains that grow because of rain falling from the sky. As stated in *Bhagavad-gītā, yajñād bhavati parjanyaḥ* [[bg/3/14|[Bg. 3.14] ]]. So that rainfall will be regulated, humanity should perform *yajñas,* sacrifices. *Yajñas* were previously performed with offerings of oblations of ghee and food grains, but in this age, of course, this is no longer possible, for the production of ghee and food grains has diminished because of the sinful life of human society. However, people should take to Kṛṣṇa consciousness and chant the Hare Kṛṣṇa *mantra,* as recommended in the *śāstras* (*yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ* [SB 11.5.32]). If people throughout the world take to the Kṛṣṇa consciousness movement and chant the easy sound vibration of the transcendental name and fame of the Supreme Personality of Godhead, there will be no scarcity of rainfall; consequently food grains, fruits and flowers will be properly produced, and all the necessities of life will be easily obtained. *Gṛhasthas,* or householders, should take the responsibility for organizing such natural production. It is therefore said, *tasyaiva hetoḥ prayateta kovidaḥ.* An intelligent person should try to spread Kṛṣṇa consciousness through the chanting of the holy name of the Lord, and all the necessities of life will automatically follow.
+Ideal Family Life ‘All living bodies subsist on food grains, which are produced from rains. Rains are produced by performance of *yajña* [sacrifice], and *yajña* is born of prescribed duties." [[bg/3/14|(Bg. 3.14)]] When food grains are sufficiently produced, both animals and human beings can be nourished without difficulty for their maintenance. This is nature's arrangement. *prakṛteḥ kriyamāṇa-ni guṇaiḥ karmāṇi sarvaśaḥ* [[bg/3/27|[Bg. 3.27] ]]. Everyone is acting under the influence of material nature, and only fools think they can improve upon what God has created. The householders are specifically responsible for seeing that the laws of the Supreme Personality of Godhead are maintained, without fighting between men, communities, societies or nations. Human society should properly utilize the gifts of God, especially the food grains that grow because of rain falling from the sky. As stated in *Bhagavad-gītā, yajñād bhavati parjanyaḥ* [[bg/3/14|[Bg. 3.14] ]]. So that rainfall will be regulated, humanity should perform *yajñas,* sacrifices. *Yajñas* were previously performed with offerings of oblations of ghee and food grains, but in this age, of course, this is no longer possible, for the production of ghee and food grains has diminished because of the sinful life of human society. However, people should take to Kṛṣṇa consciousness and chant the Hare Kṛṣṇa *mantra,* as recommended in the *śāstras* (*yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ* [SB 11.5.32]). If people throughout the world take to the Kṛṣṇa consciousness movement and chant the easy sound vibration of the transcendental name and fame of the Supreme Personality of Godhead, there will be no scarcity of rainfall; consequently food grains, fruits and flowers will be properly produced, and all the necessities of life will be easily obtained. *Gṛhasthas,* or householders, should take the responsibility for organizing such natural production. It is therefore said, *tasyaiva hetoḥ prayateta kovidaḥ.* An intelligent person should try to spread Kṛṣṇa consciousness through the chanting of the holy name of the Lord, and all the necessities of life will automatically follow.
 
 ### SB 7.14.8
-
-> यावद्भ्रियेत जठरं तावत्स्वत्वं हि देहिनाम
-> अधिकं योऽभिमन्येत स स्तेनो दण्डमर्हति ॥८॥
 
 > yāvad bhriyeta jaṭharaṁ
 > tāvat svatvaṁ hi dehinām
@@ -11727,9 +9674,6 @@ This verse is very important. As stated here, one who accumulates more money tha
 
 ### SB 7.14.9
 
-> मृगोष्ट्रखरमर्काखु सरीसृप्खगमक्षिकाः
-> आत्मनः पुत्रवत्पश्येत्तैरेषामन्तरं कियत ॥९॥
-
 > mṛgoṣṭra-khara-markākhu-
 > sarīsṛp khaga-makṣikāḥ
 > ātmanaḥ putravat paśyet
@@ -11742,9 +9686,6 @@ This verse is very important. As stated here, one who accumulates more money tha
 One who is in Kṛṣṇa consciousness understands that there is no difference between the animals and the innocent children in one's home. Even in ordinary life, it is our practical experience that a household dog or cat is regarded on the same level as one's children, without any envy. Like children, the unintelligent animals are also sons of the Supreme Personality of Godhead, and therefore a Kṛṣṇa conscious person, even though a householder, should not discriminate between children and poor animals. Unfortunately, modern society has devised many means for killing animals in different forms of life. For example, in the agricultural fields there may be many mice, flies and other creatures that disturb production, and sometimes they are killed by pesticides. In this verse, however, such killing is forbidden. Every living entity should be nourished by the food given by the Supreme Personality of Godhead. Human society should not consider itself the only enjoyer of all the properties of God; rather, men should understand that all the other animals also have a claim to God's property. In this verse even the snake is mentioned, indicating that a householder should not be envious even of a snake. If everyone is fully satisfied by eating food that is a gift from the Lord, why should there be envy between one living being and another? In modern days people are very much inclined toward communistic ideas of society, but we do not think that there can be any better communistic idea than that which is explained in this verse of *Śrīmad-Bhāgavatam.* Even in the communistic countries the poor animals are killed without consideration, although they also should have the right to take their allotted food with which to live.
 
 ### SB 7.14.10
-
-> त्रिवर्गं नातिकृच्छ्रेण भजेत गृहमेध्यपि
-> यथादेशं यथाकालं यावद्दैवोपपादितम ॥१०॥
 
 > tri-vargaṁ nātikṛcchreṇa
 > bhajeta gṛha-medhy api
@@ -11763,9 +9704,6 @@ These are the different occupational duties by which men should earn their livel
 
 ### SB 7.14.11
 
-> आश्वाघान्तेऽवसायिभ्यः कामान्संविभजेद्यथा
-> अप्येकामात्मनो दारां नृणां स्वत्वग्रहो यतः ॥११॥
-
 > āśvāghānte 'vasāyibhyaḥ
 > kāmān saṁvibhajed yathā
 > apy ekām ātmano dārāṁ
@@ -11781,9 +9719,6 @@ The idea of giving even one's wife to the service of the public is that one's in
 
 ### SB 7.14.12
 
-> जह्याद्यदर्थे स्वान्प्राणान्हन्याद्वा पितरं गुरुम
-> तस्यां स्वत्वं स्त्रियां जह्याद्यस्तेन ह्यजितो जितः ॥१२॥
-
 > jahyād yad-arthe svān prāṇān
 > hanyād vā pitaraṁ gurum
 > tasyāṁ svatvaṁ striyāṁ jahyād
@@ -11796,9 +9731,6 @@ The idea of giving even one's wife to the service of the public is that one's in
 Every husband is too much attached to his wife. Therefore, to give up one's connection with his wife is extremely difficult, but if one can somehow or other give it up for the service of the Supreme Personality of Godhead, then the Lord Himself, although not able to be conquered by anyone, comes very much under the control of the devotee. And if the Lord is pleased with a devotee, what is there that is unobtainable? Why should one not give up his affection for his wife and children and take shelter of the Supreme Personality of Godhead? Where is the loss of anything material? Householder life means attachment for one's wife, whereas *sannyāsa* means detachment from one's wife and attachment to Kṛṣṇa.
 
 ### SB 7.14.13
-
-> कृमिविड्भस्मनिष्ठान्तं क्वेदं तुच्छं कलेवरम
-> क्व तदीयरतिर्भार्या क्वायमात्मा नभश्छदिः ॥१३॥
 
 > kṛmi-viḍ-bhasma-niṣṭhāntaṁ
 > kvedaṁ tucchaṁ kalevaram
@@ -11813,9 +9745,6 @@ Here also, the same point is stressed: one should give up attachment for his wif
 
 ### SB 7.14.14
 
-> सिद्धैर्यज्ञआवशिष्टार्थैः कल्पयेद्वृत्तिमात्मनः
-> शेषे स्वत्वं त्यजन्प्राज्ञअः पदवीं महतामियात ॥१४॥
-
 > siddhair yajñāvaśiṣṭārthaiḥ
 > kalpayed vṛttim ātmanaḥ
 > śeṣe svatvaṁ tyajan prājñaḥ
@@ -11829,9 +9758,6 @@ Nature already has an arrangement to feed us. By the order of the Supreme Person
 
 ### SB 7.14.15
 
-> देवानृषीन्नृभूतानि पितॄनात्मानमन्वहम
-> स्ववृत्त्यागतवित्तेन यजेत पुरुषं पृथक ॥१५॥
-
 > devān ṛṣīn nṛ-bhūtāni
 > pitṝn ātmānam anvaham
 > sva-vṛttyāgata-vittena
@@ -11842,9 +9768,6 @@ Nature already has an arrangement to feed us. By the order of the Supreme Person
 **Every day, one should worship the Supreme Being who is situated in everyone's heart, and on this basis one should separately worship the demigods, the saintly persons, ordinary human beings and living entities, one's forefathers and one's self. In this way one is able to worship the Supreme Being in the core of everyone's heart.**
 
 ### SB 7.14.16
-
-> यर्ह्यात्मनोऽधिकाराद्याः सर्वाः स्युर्यज्ञअसम्पदः
-> वैतानिकेन विधिना अग्निहोत्रादिना यजेत ॥१६॥
 
 > yarhy ātmano 'dhikārādyāḥ
 > sarvāḥ syur yajña-sampadaḥ
@@ -11866,9 +9789,6 @@ The entire Vedic civilization aims at satisfying the Supreme Personality of Godh
 
 ### SB 7.14.17
 
-> न ह्यग्निमुखतोऽयं वै भगवान्सर्वयज्ञअभुक
-> इज्येत हविषा राजन्यथा विप्रमुखे हुतैः ॥१७॥
-
 > na hy agni-mukhato 'yaṁ vai
 > bhagavān sarva-yajña-bhuk
 > ijyeta haviṣā rājan
@@ -11881,9 +9801,6 @@ The entire Vedic civilization aims at satisfying the Supreme Personality of Godh
 As stated in *Bhagavad-gītā* [[bg/3/9|(Bg. 3.9)]], *yajñārthāt karmaṇo 'nyatra loko 'yaṁ karma-bandhanaḥ*/ all fruitive activities should be performed for sacrifice, which should be directed toward pleasing Kṛṣṇa. As stated elsewhere in *Bhagavad-gītā* [[bg/5/29|(Bg. 5.29)]], *bhoktāraṁ yajña-tapasāṁ sarva-loka-maheśvaram:* He is the Supreme Lord and enjoyer of everything. However, although sacrifice may be offered to please Kṛṣṇa, He is more pleased when grains and ghee, instead of being offered in the fire, are prepared as *prasāda* and distributed, first to the *brāhmaṇas* and then to others. This system pleases Kṛṣṇa more than anything else. Furthermore, at the present time there is very little chance to offer sacrifices by pouring oblations of food grains and ghee into the fire. Especially in India, there is practically no ghee; for everything that should be done with ghee, people use a certain type of oil preparation. Oil, however, is never recommended for offering in a sacrificial fire. In Kali-yuga, the available quantity of food grains and ghee is gradually diminishing, and people are embarrassed that they cannot produce sufficient ghee and food grains. Under the circumstances, the *śāstras* enjoin, *yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ:* [SB 11.5.32] in this age, those who are intellectual offer *yajña,* or perform sacrifices, through the *saṅkīrtana* movement. Everyone should join the *saṅkīrtana* movement, offering to the fire of this movement the oblations of his knowledge and riches. In our *saṅkīrtana* movement, or Hare Kṛṣṇa movement, we offer sumptuous *prasāda* to the Deity and later distribute the same *prasāda* to the *brāhmaṇas,* the Vaiṣṇavas and then to the people in general. Kṛṣṇa's *prasāda* is offered to the *brāhmaṇas* and Vaiṣṇavas, and the *prasāda* of the *brāhmaṇas* and Vaiṣṇavas is offered to the general populace. This kind of sacrifice—chanting of the Hare Kṛṣṇa *mantra* and distribution of *prasāda*—is the most perfect and bona fide way of offering sacrifice for the pleasure of Yajña, or Viṣṇu.
 
 ### SB 7.14.18
-
-> तस्माद्ब्राह्मणदेवेषु मर्त्यादिषु यथार्हतः
-> तैस्तैः कामैर्यजस्वैनं क्षेत्रज्ञअं ब्राह्मणाननु ॥१८॥
 
 > tasmād brāhmaṇa-deveṣu
 > martyādiṣu yathārhataḥ
@@ -11898,9 +9815,6 @@ To distribute *prasāda* to all living entities, the process is that we must fir
 
 ### SB 7.14.19
 
-> कुर्यादपरपक्षीयं मासि प्रौष्ठपदे द्विजः
-> श्राद्धं पित्रोर्यथावित्तं तद्बन्धूनां च वित्तवान ॥१९॥
-
 > kuryād apara-pakṣīyaṁ
 > māsi prauṣṭha-pade dvijaḥ
 > śrāddhaṁ pitror yathā-vittaṁ
@@ -11911,15 +9825,6 @@ To distribute *prasāda* to all living entities, the process is that we must fir
 **A brāhmaṇa who is sufficiently rich must offer oblations to the forefathers during the dark-moon fortnight in the latter part of the month of Bhādra. Similarly, he should offer oblations to the relatives of the forefathers during the mahālayā ceremonies in the month of Āśvina.***
 
 ### SB 7.14.20-23
-
-> अयने विषुवे कुर्याद्व्यतीपाते दिनक्षये
-> चन्द्रादित्योपरागे च द्वादश्यां श्रवणेषु च ॥२०॥
-> तृतीयायां शुक्लपक्षे नवम्यामथ कार्तिके
-> चतसृष्वप्यष्टकासु हेमन्ते शिशिरे तथा ॥२१॥
-> माघे च सितसप्तम्यां मघाराकासमागमे
-> राकया चानुमत्या च मासर्क्षाणि युतान्यपि ॥२२॥
-> द्वादश्यामनुराधा स्याच्छ्रवणस्तिस्र उत्तराः
-> तिसृष्वेकादशी वासु जन्मर्क्षश्रोणयोगयुक ॥२३॥
 
 > ayane viṣuve kuryād
 > vyatīpāte dina-kṣaye
@@ -11947,7 +9852,7 @@ To distribute *prasāda* to all living entities, the process is that we must fir
 
 The word *ayana* means "path" or "going." The six months when the sun moves toward the north are called *uttarāyaṇa,* or the northern path, and the six months when it moves south are called *dakṣiṇāyana,* or the southern path. These are mentioned in *Bhagavad-gītā* (8.24-25). The first day when the sun begins to move north and enter the zodiacal sign of Capricorn is called Makara-saṅkrānti, and the first day when the sun begins to move south and enter the sign of Cancer is called Karkaṭa-saṅkrānti. On these two days of the year, one should perform the *śrāddha* ceremony.
 
-Viṣuva, or Viṣuva-saṅkrānti, means Meṣa-saṅkrānti, or the day on which the sun enters the sign Aries. Tulā-saṅkrānti is the day on which the sun enters the sign Libra. Both of these days occur only once within a year. The word *yoga* refers to a certain relationship between the sun and moon as they move in the sky. There are twenty-seven different degrees of *yoga,* of which the seventeenth is called Vyatīpāta. On the day when this occurs, one should perform the *śrāddha* ceremony. A *tithi,* or lunar day, consists of the distance between the longitude of the sun and that of the moon. Sometimes a *tithi* is less than twenty-four hours. When it starts after sunrise on a certain day and ends before the sunrise of the following day, the previous *tithi* and the following *tithi* both "touch" the twenty-four-hour day between the sunrises. This is called *tryaha-sparśa,* or a day touched by some portion of three *tithis.*
+Viṣuva, or Viṣuva-saṅkrānti, means Meṣa-saṅkrānti, or the day on which the sun enters the sign Aries. Tulā-saṅkrānti is the day on which the sun enters the sign Libra. Both of these days occur only once within a year. The word *yoga* refers to a certain relationship between the sun and moon as they move in the sky. There are twenty-seven different degrees of *yoga,* of which the seventeenth is called Vyatīpāta. On the day when this occurs, one should perform the *śrāddha* ceremony. A *tithi,* or lunar day, consists of the distance between the longitude of the sun and that of the moon. Sometimes a *tithi* is less than twenty-four hours. When it starts after sunrise on a certain day and ends before the sunrise of the following day, the previous *tithi* and the following *tithi* both ‘“‘touch”’ the Ideal Family Life twenty-four-hour day between the sunrises. This is called *tryaha-sparśa,* or a day touched by some portion of three *tithis.*
 
 Śrīla Jīva Gosvāmī has given quotations from many *śāstras* stating that the *śrāddha* ceremony of oblations to the forefathers should not be performed on Ekādaśī *tithi.* When the *tithi* of the death anniversary falls on the Ekādaśī day, the *śrāddha* ceremony should be held not on Ekādaśī but on the next day, or *dvādaśī.* In the *Brahma-vaivarta Purāṇa* it is said:
 
@@ -11959,9 +9864,6 @@ Viṣuva, or Viṣuva-saṅkrānti, means Meṣa-saṅkrānti, or the day on whi
 If one performs the *śrāddha* ceremony of oblations to the forefathers on the Ekādaśī *tithi,* then the performer, the forefathers for whom the *śrāddha* is observed, and the *purohita,* or the family priest who encourages the ceremony, all go to hell.
 
 ### SB 7.14.24
-
-> त एते श्रेयसः काला नॄणां श्रेयोविवर्धनाः
-> कुर्यात्सर्वात्मनैतेषु श्रेयोऽमोघं तदायुषः ॥२४॥
 
 > ta ete śreyasaḥ kālā
 > nṝṇāṁ śreyo-vivardhanāḥ
@@ -11976,9 +9878,6 @@ When one comes to the human form of life through natural evolution, one must the
 
 ### SB 7.14.25
 
-> एषु स्नानं जपो होमो व्रतं देवद्विजार्चनम
-> पितृदेवनृभूतेभ्यो यद्दत्तं तद्ध्यनश्वरम ॥२५॥
-
 > eṣu snānaṁ japo homo
 > vrataṁ deva-dvijārcanam
 > pitṛ-deva-nṛ-bhūtebhyo
@@ -11989,9 +9888,6 @@ When one comes to the human form of life through natural evolution, one must the
 **During these periods of seasonal change, if one bathes in the Ganges, in the Yamunā or in another sacred place, if one chants, offers fire sacrifices or executes vows, or if one worships the Supreme Lord, the brāhmaṇas, the forefathers, the demigods and the living entities in general, whatever he gives in charity yields a permanently beneficial result.**
 
 ### SB 7.14.26
-
-> संस्कारकालो जायाया अपत्यस्यात्मनस्तथा
-> प्रेतसंस्था मृताहश्च कर्मण्यभ्युदये नृप ॥२६॥
 
 > saṁskāra-kālo jāyāyā
 > apatyasyātmanas tathā
@@ -12005,11 +9901,6 @@ When one comes to the human form of life through natural evolution, one must the
 The *Vedas* recommend many ritualistic ceremonies to be performed with one's wife, on the birthdays of one's children, or during funeral ceremonies, and there are also personal reformatory methods like initiation. These must be observed according to time and circumstances and the directions of the *śāstra. Bhagavad-gītā* strongly recommends, *jñātvā śāstra-vidhānoktam:* everything must be performed as indicated in the *śāstras.* For Kali-yuga, the *śāstras* enjoin that *saṅkīrtana-yajña* be performed always: *kīrtanīyaḥ sadā hariḥ*  [[cc/adi/17/31|[Cc. Ādi 17.31] ]]. All the ritualistic ceremonies recommended in the *śāstras* must be preceded and followed by *saṅkīrtana.* This is the recommendation of Śrīla Jīva Gosvāmī.
 
 ### SB 7.14.27-28
-
-> अथ देशान्प्रवक्ष्यामि धर्मादिश्रेयाअवहान
-> स वै पुण्यतमो देशः सत्पात्रं यत्र लभ्यते ॥२७॥
-> बिम्बं भगवतो यत्र सर्वमेतच्चराचरम
-> यत्र ह ब्राह्मणकुलं तपोविद्यादयान्वितम ॥२८॥
 
 > atha deśān pravakṣyāmi
 > dharmādi-śreya-āvahān
@@ -12028,9 +9919,6 @@ The *Vedas* recommend many ritualistic ceremonies to be performed with one's wif
 In this verse it is indicated that a Vaiṣṇava temple where the Supreme Personality of Godhead, Kṛṣṇa, is worshiped, and where Vaiṣṇavas are engaged in the service of the Lord, is the best sacred place for performing any religious ceremonies. At the present day, especially in big, big cities, people live in small apartments and are not able to establish a Deity or temple. Under the circumstances, therefore, the centers and temples being established by the expanding Kṛṣṇa consciousness movement are the best sacred places for performing religious ceremonies. Although people in general are no longer interested in religious ceremonies or Deity worship, the Kṛṣṇa consciousness movement gives everyone the chance to advance in spiritual life by becoming Kṛṣṇa conscious.
 
 ### SB 7.14.29
-
-> यत्र यत्र हरेरर्चा स देशः श्रेयसां पदम
-> यत्र गङ्गादयो नद्यः पुराणेषु च विश्रुताः ॥२९॥
 
 > yatra yatra harer arcā
 > sa deśaḥ śreyasāṁ padam
@@ -12057,16 +9945,6 @@ Aside from this, if a *gṛhastha* devotee worships the *śālagrāma-śilā,* o
 According to Vedic civilization, therefore, the holy places of pilgrimage are considered most sacred, and still there are hundreds and thousands of holy places like Jagannātha Purī, Vṛndāvana, Hardwar, Rāmeśvara, Prayāga and Mathurā. India is the place for worshiping or for cultivating spiritual life. The Kṛṣṇa consciousness movement invites everyone from all over the world, without discrimination as to caste or creed, to come to its centers and cultivate spiritual life perfectly.
 
 ### SB 7.14.30-33
-
-> सरांसि पुष्करादीनि क्षेत्राण्यर्हाश्रितान्युत
-> कुरुक्षेत्रं गयशिरः प्रयागः पुलहाश्रमः ॥३०॥
-> नैमिषं फाल्गुनं सेतुः प्रभासोऽथ कुशस्थली
-> वाराणसी मधुपुरी पम्पा बिन्दुसरस्तथा ॥३१॥
-> नारायणाश्रमो नन्दा सीतारामाश्रमादयः
-> सर्वे कुलाचला राजन्महेन्द्रमलयादयः ॥३२॥
-> एते पुण्यतमा देशा हरेरर्चाश्रिताश्च ये
-> एतान्देशान्निषेवेत श्रेयस्कामो ह्यभीक्ष्णशः
-> धर्मो ह्यत्रेहितः पुंसां सहस्राधिफलोदयः ॥३३॥
 
 > sarāṁsi puṣkarādīni
 > kṣetrāṇy arhāśritāny uta
@@ -12103,9 +9981,6 @@ In these verses and in verse twenty-nine, stress is given to one point: *harer a
 
 ### SB 7.14.34
 
-> पात्रं त्वत्र निरुक्तं वै कविभिः पात्रवित्तमैः
-> हरिरेवैक उर्वीश यन्मयं वै चराचरम ॥३४॥
-
 > pātraṁ tv atra niruktaṁ vai
 > kavibhiḥ pātra-vittamaiḥ
 > harir evaika urvīśa
@@ -12134,9 +10009,6 @@ By worshiping or satisfying Acyuta, the Supreme Personality of Godhead, Kṛṣ�
 
 ### SB 7.14.35
 
-> देवर्ष्यर्हत्सु वै सत्सु तत्र ब्रह्मात्मजादिषु
-> राजन्यदग्रपूजायां मतः पात्रतयाच्युतः ॥३५॥
-
 > devarṣy-arhatsu vai satsu
 > tatra brahmātmajādiṣu
 > rājan yad agra-pūjāyāṁ
@@ -12149,9 +10021,6 @@ By worshiping or satisfying Acyuta, the Supreme Personality of Godhead, Kṛṣ�
 This is a reference to the Rājasūya sacrifice performed by Mahārāja Yudhiṣṭhira. In that meeting there was a great turmoil over selecting the best person to be worshiped first. Everyone decided to worship Śrī Kṛṣṇa. The only protest came from Śiśupāla, and because of his vehement opposition he was killed by the Supreme Personality of Godhead.
 
 ### SB 7.14.36
-
-> जीवराशिभिराकीर्ण अण्डकोशाङ्घ्रिपो महान
-> तन्मूलत्वादच्युतेज्या सर्वजीवात्मतर्पणम ॥३६॥
 
 > jīva-rāśibhir ākīrṇa
 > aṇḍa-kośāṅghripo mahān
@@ -12174,9 +10043,6 @@ In *Bhagavad-gītā* [[bg/10/8|(Bg. 10.8)]] the Lord says:
 Another point is that this universe is full of living entities from top to bottom, on every planet (*jīva-rāśibhir ākīrṇaḥ*). Modern scientists and so-called scholars think that there are no living entities on planets other than this one. Recently they have said that they have gone to the moon but did not find any living entities there. But *Śrīmad-Bhāgavatam* and the other Vedic literatures do not agree with this foolish conception. There are living entities everywhere, not only one or two but *jīva-rāśibhiḥ*—many millions of living entities. Even on the sun there are living entities, although it is a fiery planet. The chief living entity on the sun is called Vivasvān (*imaṁ vivasvate yogaṁ proktavān aham avyayam* [[bg/4/1|[Bg. 4.1] ]]). All the different planets are filled with different types of living entities according to different living conditions. To suggest that only this planet is filled with living entities and that others are vacant is foolish. This betrays a lack of real knowledge.
 
 ### SB 7.14.37
-
-> पुराण्यनेन सृष्टानि नृतिर्यगृषिदेवताः
-> शेते जीवेन रूपेण पुरेषु पुरुषो ह्यसौ ॥३७॥
 
 > purāṇy anena sṛṣṭāni
 > nṛ-tiryag-ṛṣi-devatāḥ
@@ -12205,9 +10071,6 @@ In *Bhagavad-gītā* [[bg/18/61|(Bg. 18.61)]] it is said:
 
 ### SB 7.14.38
 
-> तेष्वेव भगवान्राजंस्तारतम्येन वर्तते
-> तस्मात्पात्रं हि पुरुषो यावानात्मा यथेयते ॥३८॥
-
 > teṣv eva bhagavān rājaṁs
 > tāratamyena vartate
 > tasmāt pātraṁ hi puruṣo
@@ -12234,9 +10097,6 @@ In *Bhagavad-gītā* [[bg/15/15|(Bg. 15.15)]] it is said, *mattaḥ smṛtir jñ
 Beginning from Brahmā down to the ant, everyone is conducted by the Supersoul (*īśvaraḥ sarva-bhūtānāṁ hṛd-deśe 'rjuna tiṣṭhati [[bg/18/61|[Bg. 18.61] ]]*). But because of a particular person's advancement in spiritual consciousness, he is considered to be important. Therefore, the *brāhmaṇa* Vaiṣṇava is important, and, above all, the Supersoul, the Personality of Godhead, is the most important personality.
 
 ### SB 7.14.39
-
-> दृष्ट्वा तेषां मिथो नृणामवज्ञआनात्मतां नृप
-> त्रेतादिषु हरेरर्चा क्रियायै कविभिः कृता ॥३९॥
 
 > dṛṣṭvā teṣāṁ mitho nṛṇām
 > avajñānātmatāṁ nṛpa
@@ -12269,9 +10129,6 @@ It is said in *Śrīmad-Bhāgavatam* (11.2.47):
 
 ### SB 7.14.40
 
-> ततोऽर्चायां हरिं केचित्संश्रद्धाय सपर्यया
-> उपासत उपास्तापि नार्थदा पुरुषद्विषाम ॥४०॥
-
 > tato 'rcāyāṁ hariṁ kecit
 > saṁśraddhāya saparyayā
 > upāsata upāstāpi
@@ -12285,9 +10142,6 @@ Deity worship is especially meant for purifying the neophyte devotees. Actually,
 
 ### SB 7.14.41
 
-> पुरुषेष्वपि राजेन्द्र सुपात्रं ब्राह्मणं विदुः
-> तपसा विद्यया तुष्ट्या धत्ते वेदं हरेस्तनुम ॥४१॥
-
 > puruṣeṣv api rājendra
 > supātraṁ brāhmaṇaṁ viduḥ
 > tapasā vidyayā tuṣṭyā
@@ -12300,9 +10154,6 @@ Deity worship is especially meant for purifying the neophyte devotees. Actually,
 From the *Vedas* we learn that the Personality of Godhead is the Supreme Person. Every living entity is an individual person, and the Supreme Personality of Godhead, Kṛṣṇa, is the Supreme Person. A *brāhmaṇa* who is well versed in Vedic knowledge and fully conversant with transcendental matters becomes a representative of the Supreme Personality of Godhead, and therefore one should worship such a *brāhmaṇa* or Vaiṣṇava. A Vaiṣṇava is superior to a *brāhmaṇa* because whereas a *brāhmaṇa* knows that he is Brahman, not matter, a Vaiṣṇava knows that he is not only Brahman but also an eternal servant of the Supreme Brahman. Therefore, worship of a Vaiṣṇava is superior to worship of the Deity in the temple. Viśvanātha Cakravartī Ṭhākura says, *sākṣād dharitvena samasta-śāstraiḥ:* in all the scriptures the spiritual master, who is the best of the *brāhmaṇas,* the best of the Vaiṣṇavas, is considered to be as good as the Supreme Personality of Godhead. This does not mean, however, that the Vaiṣṇava thinks himself God, for this is blasphemous. Although a *brāhmaṇa* or Vaiṣṇava is worshiped as being as good as the Supreme Personality of Godhead, such a devotee always remains a faithful servant of the Lord and never tries to enjoy the prestige that might accrue to him from being the Supreme Lord's representative.
 
 ### SB 7.14.42
-
-> नन्वस्य ब्राह्मणा राजन्कृष्णस्य जगदात्मनः
-> पुनन्तः पादरजसा त्रिलोकीं दैवतं महत ॥४२॥
 
 > nanv asya brāhmaṇā rājan
 > kṛṣṇasya jagad-ātmanaḥ
@@ -12321,10 +10172,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Fourteenth Chapter, of
 
 ### SB 7.15.1
 
-> श्रीनारद उवाच
-> कर्मनिष्ठा द्विजाः केचित्तपोनिष्ठा नृपापरे
-> स्वाध्यायेऽन्ये प्रवचने केचन ज्ञआनयोगयोः ॥१॥
-
 > śrī-nārada uvāca
 > karma-niṣṭhā dvijāḥ kecit
 > tapo-niṣṭhā nṛpāpare
@@ -12336,9 +10183,6 @@ Thus end the Bhaktivedanta purports of the Seventh Canto, Fourteenth Chapter, of
 **Nārada Muni continued: My dear King, some brāhmaṇas are very much attached to fruitive activities, some are attached to austerities and penances, and still others study the Vedic literature, whereas some, although very few, cultivate knowledge and practice different yogas, especially bhakti-yoga.**
 
 ### SB 7.15.2
-
-> ज्ञआननिष्ठाय देयानि कव्यान्यानन्त्यमिच्छता
-> दैवे च तदभावे स्यादितरेभ्यो यथार्हतः ॥२॥
 
 > jñāna-niṣṭhāya deyāni
 > kavyāny ānantyam icchatā
@@ -12378,9 +10222,6 @@ In this regard, it may be mentioned that *brāhmaṇas* in Vṛndāvana who are 
 
 ### SB 7.15.3
 
-> द्वौ दैवे पितृकार्ये त्रीनेकैकमुभयत्र वा
-> भोजयेत्सुसमृद्धोऽपि श्राद्धे कुर्यान्न विस्तरम ॥३॥
-
 > dvau daive pitṛ-kārye trīn
 > ekaikam ubhayatra vā
 > bhojayet susamṛddho 'pi
@@ -12393,9 +10234,6 @@ In this regard, it may be mentioned that *brāhmaṇas* in Vṛndāvana who are 
 As we have already mentioned, Śrīla Advaita Ācārya, during the generally observed ceremony to offer oblations to the forefathers, invited only Haridāsa Ṭhākura. Thus He followed this principle: *na me'bhaktaś catur-vedī mad-bhaktaḥ śva-pacaḥ priyaḥ.* The Lord says, "It is not necessary that one become very expert in Vedic knowledge before he can become My *bhakta,* or devotee. Even if one is born in a family of dog-eaters, he can become My devotee and be very dear to Me, in spite of having taken birth in such a family. Therefore, offerings should be given to My devotee, and whatever My devotee has offered Me should be accepted." Following this principle, one should invite a first-class *brāhmaṇa* or Vaiṣṇava—a realized soul—and feed him while observing the *śrāddha* ceremony to offer oblations to one's forefathers.
 
 ### SB 7.15.4
-
-> देशकालोचितश्रद्धा द्रव्यपात्रार्हणानि च
-> सम्यग्भवन्ति नैतानि विस्तरात्स्वजनार्पणात ॥४॥
 
 > deśa-kālocita-śraddhā-
 > dravya-pātrārhaṇāni ca
@@ -12410,9 +10248,6 @@ Nārada Muni has prohibited unnecessarily gorgeous arrangements to feed relative
 
 ### SB 7.15.5
 
-> देशे काले च सम्प्राप्ते मुन्यन्नं हरिदैवतम
-> श्रद्धया विधिवत्पात्रे न्यस्तं कामधुगक्षयम ॥५॥
-
 > deśe kāle ca samprāpte
 > muny-annaṁ hari-daivatam
 > śraddhayā vidhivat pātre
@@ -12423,9 +10258,6 @@ Nārada Muni has prohibited unnecessarily gorgeous arrangements to feed relative
 **When one gets the opportunity of a suitable auspicious time and place, one should, with love, offer food prepared with ghee to the Deity of the Supreme Personality of Godhead and then offer the prasāda to a suitable person—a Vaiṣṇava or brāhmaṇa. This will be the cause of everlasting prosperity.**
 
 ### SB 7.15.6
-
-> देवर्षिपितृभूतेभ्य आत्मने स्वजनाय च
-> अन्नं संविभजन्पश्येत्सर्वं तत्पुरुषात्मकम ॥६॥
 
 > devarṣi-pitṛ-bhūtebhya
 > ātmane sva-janāya ca
@@ -12440,9 +10272,6 @@ As mentioned above, it is recommended that everyone distribute *prasāda,* consi
 
 ### SB 7.15.7
 
-> न दद्यादामिषं श्राद्धे न चाद्याद्धर्मतत्त्ववित
-> मुन्यन्नैः स्यात्परा प्रीतिर्यथा न पशुहिंसया ॥७॥
-
 > na dadyād āmiṣaṁ śrāddhe
 > na cādyād dharma-tattvavit
 > muny-annaiḥ syāt parā prītir
@@ -12454,9 +10283,6 @@ As mentioned above, it is recommended that everyone distribute *prasāda,* consi
 
 ### SB 7.15.8
 
-> नैतादृशः परो धर्मो नृणां सद्धर्ममिच्छताम
-> न्यासो दण्डस्य भूतेषु मनोवाक्कायजस्य यः ॥८॥
-
 > naitādṛśaḥ paro dharmo
 > nṛṇāṁ sad-dharmam icchatām
 > nyāso daṇḍasya bhūteṣu
@@ -12467,9 +10293,6 @@ As mentioned above, it is recommended that everyone distribute *prasāda,* consi
 **Persons who want to advance in superior religion are advised to give up all envy of other living entities, whether in relationship to the body, words or mind. There is no religion superior to this.**
 
 ### SB 7.15.9
-
-> एके कर्ममयान्यज्ञआनज्ञआनिनो यज्ञअवित्तमाः
-> आत्मसंयमनेऽनीहा जुह्वति ज्ञआनदीपिते ॥९॥
 
 > eke karmamayān yajñān
 > jñānino yajña-vittamāḥ
@@ -12484,9 +10307,6 @@ People are generally very much interested in *karma-kāṇḍa* ritualistic cere
 
 ### SB 7.15.10
 
-> द्रव्ययज्ञऐर्यक्ष्यमाणं दृष्ट्वा भूतानि बिभ्यति
-> एष माकरुणो हन्यादतजज्ञओ ह्यसुतृप्ध्रुवम ॥१०॥
-
 > dravya-yajñair yakṣyamāṇaṁ
 > dṛṣṭvā bhūtāni bibhyati
 > eṣa mākaruṇo hanyād
@@ -12499,9 +10319,6 @@ People are generally very much interested in *karma-kāṇḍa* ritualistic cere
 Animal sacrifice in the name of religion is current practically all over the world in every established religion. It is said that Lord Jesus Christ, when twelve years old, was shocked to see the Jews sacrificing birds and animals in the synagogues and that he therefore rejected the Jewish system of religion and started the religious system of Christianity, adhering to the Old Testament commandment "Thou shalt not kill." At the present day, however, not only are animals killed in the name of sacrifice, but the killing of animals has increased enormously because of the increasing number of slaughterhouses. Slaughtering animals, either for religion or for food, is most abominable and is condemned herein. Unless one is merciless, one cannot sacrifice animals, either in the name of religion or for food.
 
 ### SB 7.15.11
-
-> तस्माद्दैवोपपन्नेन मुन्यन्नेनापि धर्मवित
-> सन्तुष्टोऽहरहः कुर्यान्नित्यनैमित्तिकीः क्रियाः ॥११॥
 
 > tasmād daivopapannena
 > muny-annenāpi dharmavit
@@ -12516,9 +10333,6 @@ The word *dharmavit,* meaning "one who knows the actual purpose of religion," is
 
 ### SB 7.15.12
 
-> विधर्मः परधर्मश्च आभास उपमा छलः
-> अधर्मशाखाः पञ्चेमा धर्मज्ञओऽधर्मवत्त्यजेत ॥१२॥
-
 > vidharmaḥ para-dharmaś ca
 > ābhāsa upamā chalaḥ
 > adharma-śākhāḥ pañcemā
@@ -12532,9 +10346,6 @@ Any religious principles opposed to the principle of surrendering to the lotus f
 
 ### SB 7.15.13
 
-> धर्मबाधो विधर्मः स्यात्परधर्मोऽन्यचोदितः
-> उपधर्मस्तु पाखण्डो दम्भो वा शब्दभिच्छलः ॥१३॥
-
 > dharma-bādho vidharmaḥ syāt
 > para-dharmo 'nya-coditaḥ
 > upadharmas tu pākhaṇḍo
@@ -12547,9 +10358,6 @@ Any religious principles opposed to the principle of surrendering to the lotus f
 To create a new type of *dharma* has become fashionable in this age. So-called *svāmīs* and *yogīs* support that one may follow any type of religious system, according to one's own choice, because all systems are ultimately the same. In *Śrīmad-Bhāgavatam,* however, such fashionable ideas are called *vidharma* because they go against one's own religious system. The real religious system is described by the Supreme Personality of Godhead: *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja* [[bg/18/66|[Bg. 18.66] ]]. The real religious system is that of surrender to the lotus feet of the Lord. In the Sixth Canto of *Śrīmad-Bhāgavatam,* in connection with Ajāmila's deliverance, Yamarāja says, *dharmaṁ tu sākṣād bhagavat-praṇītam*/ [[sb/6/3/19|[SB 6.3.19] ]] real religion is that which is given by the Supreme Personality of Godhead, just as real law is that which is given by the government. No one can manufacture actual law at home, nor can one manufacture actual religion. Elsewhere it is said, *sa vai puṁsāṁ paro dharmo yato bhaktir adhokṣaje:* [[sb/1/2/6|[SB 1.2.6] ]] the real religious system is that which leads one to become a devotee of the Supreme Lord. Therefore, anything opposed to this religious system of progressive Kṛṣṇa consciousness is called *vidharma, para-dharma, upadharma* or *chala-dharma.* Misinterpretation of *Bhagavad-gītā* is *chala-dharma.* When Kṛṣṇa directly says something and some rascal interprets it to mean something different, this is *chala-dharma*—a religious system of cheating—or *śabda-bhit,* a jugglery of words. One should be extremely careful to avoid these various types of cheating systems of religion.
 
 ### SB 7.15.14
-
-> यस्त्विच्छया कृतः पुम्भिराभासो ह्याश्रमात्पृथक
-> स्वभावविहितो धर्मः कस्य नेष्टः प्रशान्तये ॥१४॥
 
 > yas tv icchayā kṛtaḥ pumbhir
 > ābhāso hy āśramāt pṛthak
@@ -12574,9 +10382,6 @@ The original system is that a *brāhmaṇa* should actually become a *brāhmaṇ
 
 ### SB 7.15.15
 
-> धर्मार्थमपि नेहेत यात्रार्थं वाधनो धनम
-> अनीहानीहमानस्य महाहेरिव वृत्तिदा ॥१५॥
-
 > dharmārtham api neheta
 > yātrārthaṁ vādhano dhanam
 > anīhānīhamānasya
@@ -12590,9 +10395,6 @@ Human life is simply meant for developing Kṛṣṇa consciousness. One need no
 
 ### SB 7.15.16
 
-> सन्तुष्टस्य निरीहस्य स्वात्मारामस्य यत्सुखम
-> कुतस्तत्कामलोभेन धावतोऽर्थेहया दिशः ॥१६॥
-
 > santuṣṭasya nirīhasya
 > svātmārāmasya yat sukham
 > kutas tat kāma-lobhena
@@ -12604,9 +10406,6 @@ Human life is simply meant for developing Kṛṣṇa consciousness. One need no
 
 ### SB 7.15.17
 
-> सदा सन्तुष्टमनसः सर्वाः शिवमया दिशः
-> शर्कराकण्टकादिभ्यो यथोपानत्पदः शिवम ॥१७॥
-
 > sadā santuṣṭa-manasaḥ
 > sarvāḥ śivamayā diśaḥ
 > śarkarā-kaṇṭakādibhyo
@@ -12617,9 +10416,6 @@ Human life is simply meant for developing Kṛṣṇa consciousness. One need no
 **For a person who has suitable shoes on his feet, there is no danger even when he walks on pebbles and thorns. For him, everything is auspicious. Similarly, for one who is always self-satisfied there is no distress; indeed, he feels happiness everywhere.**
 
 ### SB 7.15.18
-
-> सन्तुष्टः केन वा राजन्न वर्तेतापि वारिणा
-> औपस्थ्यजैह्व्यकार्पण्याद्गृहपालायते जनः ॥१८॥
 
 > santuṣṭaḥ kena vā rājan
 > na vartetāpi vāriṇā
@@ -12634,9 +10430,6 @@ According to the *śāstras,* a *brāhmaṇa,* or a cultured person in Kṛṣ�
 
 ### SB 7.15.19
 
-> असन्तुष्टस्य विप्रस्य तेजो विद्या तपो यशः
-> स्रवन्तीन्द्रियलौल्येन ज्ञआनं चैवावकीर्यते ॥१९॥
-
 > asantuṣṭasya viprasya
 > tejo vidyā tapo yaśaḥ
 > sravantīndriya-laulyena
@@ -12647,9 +10440,6 @@ According to the *śāstras,* a *brāhmaṇa,* or a cultured person in Kṛṣ�
 **Because of greed for the sake of the senses, the spiritual strength, education, austerity and reputation of a devotee or brāhmaṇa who is not self-satisfied dwindle, and his knowledge gradually vanishes.**
 
 ### SB 7.15.20
-
-> कामस्यान्तं हि क्षुत्तृड्भ्यां क्रोधस्यैतत्फलोदयात
-> जनो याति न लोभस्य जित्वा भुक्त्वा दिशो भुवः ॥२०॥
 
 > kāmasyāntaṁ hi kṣut-tṛḍbhyāṁ
 > krodhasyaitat phalodayāt
@@ -12666,9 +10456,6 @@ If one is very greedy to enhance his Kṛṣṇa consciousness, this is a great 
 
 ### SB 7.15.21
 
-> पण्डिता बहवो राजन्बहुज्ञआः संशयच्छिदः
-> सदसस्पतयोऽप्येके असन्तोषात्पतन्त्यधः ॥२१॥
-
 > paṇḍitā bahavo rājan
 > bahu-jñāḥ saṁśaya-cchidaḥ
 > sadasas patayo 'py eke
@@ -12682,9 +10469,6 @@ For spiritual advancement, one should be materially satisfied, for if one is not
 
 ### SB 7.15.22
 
-> असङ्कल्पाज्जयेत्कामं क्रोधं कामविवर्जनात
-> अर्थानर्थेक्षया लोभं भयं तत्त्वावमर्शनात ॥२२॥
-
 > asaṅkalpāj jayet kāmaṁ
 > krodhaṁ kāma-vivarjanāt
 > arthānarthekṣayā lobhaṁ
@@ -12697,9 +10481,6 @@ For spiritual advancement, one should be materially satisfied, for if one is not
 Śrīla Viśvanātha Cakravartī Ṭhākura has suggested how one can conquer lusty desires for sense gratification. One cannot give up thinking of women, for thinking in this way is natural; even while walking on the street, one will see so many women. However, if one is determined not to live with a woman, even while seeing a woman he will not become lusty. If one is determined not to have sex, he can automatically conquer lusty desires. The example given in this regard is that even if one is hungry, if on a particular day he is determined to observe fasting, he can naturally conquer the disturbances of hunger and thirst. If one is determined not to be envious of anyone, he can naturally conquer anger. Similarly, one can give up the desire to accumulate wealth simply by considering how difficult it is to protect the money in one's possession. If one keeps a large amount of cash with him, he is always anxious about keeping it properly. Thus if one discusses the disadvantages of accumulating wealth, he can naturally give up business without difficulty.
 
 ### SB 7.15.23
-
-> आन्वीक्षिक्या शोकमोहौ दम्भं महदुपासया
-> योगान्तरायान्मौनेन हिंसां कामाद्यनीहया ॥२३॥
 
 > ānvīkṣikyā śoka-mohau
 > dambhaṁ mahad-upāsayā
@@ -12719,9 +10500,6 @@ As the soul transmigrates, one who has taken birth must give up the present body
 
 ### SB 7.15.24
 
-> कृपया भूतजं दुःखं दैवं जह्यात्समाधिना
-> आत्मजं योगवीर्येण निद्रां सत्त्वनिषेवया ॥२४॥
-
 > kṛpayā bhūtajaṁ duḥkhaṁ
 > daivaṁ jahyāt samādhinā
 > ātmajaṁ yoga-vīryeṇa
@@ -12734,9 +10512,6 @@ As the soul transmigrates, one who has taken birth must give up the present body
 By practice, one should avoid eating in such a way that other living entities will be disturbed and suffer. Since I suffer when pinched or killed by others, I should not attempt to pinch or kill any other living entity. People do not know that because of killing innocent animals they themselves will have to suffer severe reactions from material nature. Any country where people indulge in unnecessary killing of animals will have to suffer from wars and pestilence imposed by material nature. Comparing one's own suffering to the suffering of others, therefore, one should be kind to all living entities. One cannot avoid the sufferings inflicted by providence, and therefore when suffering comes one should fully absorb oneself in chanting the Hare Kṛṣṇa *mantra.* One can avoid sufferings from the body and mind by practicing mystic *haṭha-yoga.*
 
 ### SB 7.15.25
-
-> रजस्तमश्च सत्त्वेन सत्त्वं चोपशमेन च
-> एतत्सर्वं गुरौ भक्त्या पुरुषो ह्यञ्जसा जयेत ॥२५॥
 
 > rajas tamaś ca sattvena
 > sattvaṁ copaśamena ca
@@ -12751,9 +10526,6 @@ Just by treating the root cause of an ailment, one can conquer all bodily pains 
 
 ### SB 7.15.26
 
-> यस्य साक्षाद्भगवति ज्ञआनदीपप्रदे गुरौ
-> मर्त्यासद्धीः श्रुतं तस्य सर्वं कुञ्जरशौचवत ॥२६॥
-
 > yasya sākṣād bhagavati
 > jñāna-dīpa-prade gurau
 > martyāsad-dhīḥ śrutaṁ tasya
@@ -12766,9 +10538,6 @@ Just by treating the root cause of an ailment, one can conquer all bodily pains 
 It is recommended that one honor the spiritual master as being on an equal status with the Supreme Personality of Godhead. *Sākṣād dharitvena samasta-śāstraiḥ.* This is enjoined in every scripture. *Ācāryaṁ māṁ vijānīyāt* [SB 11.17.27]. One should consider the *ācārya* to be as good as the Supreme Personality of Godhead. In spite of all these instructions, if one considers the spiritual master an ordinary human being, one is doomed. His study of the *Vedas* and his austerities and penances for enlightenment are all useless, like the bathing of an elephant. An elephant bathes in a lake quite thoroughly, but as soon as it comes on the shore it takes some dust from the ground and strews it over its body. Thus there is no meaning to the elephant's bath. One may argue by saying that since the spiritual master's relatives and the men of his neighborhood consider him an ordinary human being, what is the fault on the part of the disciple who considers the spiritual master an ordinary human being? This will be answered in the next verse, but the injunction is that the spiritual master should never be considered an ordinary man. One should strictly adhere to the instructions of the spiritual master, for if he is pleased, certainly the Supreme Personality of Godhead is pleased. *Yasya prasādād bhagavat-prasādo yasyāprasādān na gatiḥ kuto 'pi .*
 
 ### SB 7.15.27
-
-> एष वै भगवान्साक्षात्प्रधानपुरुषेश्वरः
-> योगेश्वरैर्विमृग्याङ्घ्रिर्लोको यं मन्यते नरम ॥२७॥
 
 > eṣa vai bhagavān sākṣāt
 > pradhāna-puruṣeśvaraḥ
@@ -12784,9 +10553,6 @@ The example of Lord Kṛṣṇa's being the Supreme Personality of Godhead is ap
 Another point: *Bhagavad-gītā,* which constitutes the instructions of the Supreme Personality of Godhead, is presented by the spiritual master as it is, without deviation. Therefore the Absolute Truth is present in the spiritual master. As clearly stated in Text 26, *jñāna-dīpa-prade.* The Supreme Personality of Godhead gives real knowledge to the entire world, and the spiritual master, as the representative of the Supreme Godhead, carries the message throughout the world. Therefore, on the absolute platform, there is no difference between the spiritual master and the Supreme Personality of Godhead. If someone considers the Supreme Personality—Kṛṣṇa or Lord Rāmacandra—to be an ordinary human being, this does not mean that the Lord becomes an ordinary human being. Similarly, if the family members of the spiritual master, who is the bona fide representative of the Supreme Personality of Godhead, consider the spiritual master an ordinary human being, this does not mean that he becomes an ordinary human being. The spiritual master is as good as the Supreme Personality of Godhead, and therefore one who is very serious about spiritual advancement must regard the spiritual master in this way. Even a slight deviation from this understanding can create disaster in the disciple's Vedic studies and austerities.
 
 ### SB 7.15.28
-
-> षड्वर्गसंयमैकान्ताः सर्वा नियमचोदनाः
-> तदन्ता यदि नो योगानावहेयुः श्रमावहाः ॥२८॥
 
 > ṣaḍ-varga-saṁyamaikāntāḥ
 > sarvā niyama-codanāḥ
@@ -12808,9 +10574,6 @@ One may argue that one may achieve the ultimate goal of life—realization of th
 
 ### SB 7.15.29
 
-> यथा वार्तादयो ह्यर्था योगस्यार्थं न बिभ्रति
-> अनर्थाय भवेयुः स्म पूर्तमिष्टं तथासतः ॥२९॥
-
 > yathā vārtādayo hy arthā
 > yogasyārthaṁ na bibhrati
 > anarthāya bhaveyuḥ sma
@@ -12831,9 +10594,6 @@ If one becomes very rich through his professional activities, through trade or t
 
 ### SB 7.15.30
 
-> यश्चित्तविजये यत्तः स्यान्निःसङ्गोऽपरिग्रहः
-> एको विविक्तशरणो भिक्षुर्भैक्ष्यमिताशनः ॥३०॥
-
 > yaś citta-vijaye yattaḥ
 > syān niḥsaṅgo 'parigrahaḥ
 > eko vivikta-śaraṇo
@@ -12853,9 +10613,6 @@ This is the process for conquering the agitation of the mind. One is recommended
 In this world of duality, family life is the cause that spoils one's spiritual life or meditation. Specifically understanding this fact, one should accept the order of *sannyāsa* without hesitation.
 
 ### SB 7.15.31
-
-> देशे शुचौ समे राजन्संस्थाप्यासनमात्मनः
-> स्थिरं सुखं समं तस्मिन्नासीतर्ज्वङ्ग ओमिति ॥३१॥
 
 > deśe śucau same rājan
 > saṁsthāpyāsanam ātmanaḥ
@@ -12883,11 +10640,6 @@ Generally the chanting of *oṁ* is recommended because in the beginning one can
 "To practice *yoga,* one should go to a secluded place and should lay *kuśa* grass on the ground and then cover it with a deerskin and a soft cloth. The seat should neither be too high nor too low and should be situated in a sacred place." The Hare Kṛṣṇa *mantra* may be chanted by anyone, without consideration of the place or how one sits. Śrī Caitanya Mahāprabhu has openly declared, *niyamitaḥ smaraṇe na kālaḥ.* In chanting the Hare Kṛṣṇa *mahā-mantra* there are no particular injunctions regarding one's sitting place. The injunction *niyamitaḥ smaraṇe na kālaḥ* includes *deśa, kāla* and *pātra*—place, time and the individual. Therefore anyone may chant the Hare Kṛṣṇa *mantra,* without consideration of the time and place. Especially in this age, Kali-yuga, it is very difficult to find a suitable place according to the recommendations of *Bhagavad-gītā.* The Hare Kṛṣṇa *mahā-mantra,* however, may be chanted at any place and any time, and this will bring results very quickly. Yet even while chanting the Hare Kṛṣṇa *mantra* one may observe regulative principles. Thus while sitting and chanting one may keep his body straight, and this will help one in the chanting process; otherwise one may feel sleepy.
 
 ### SB 7.15.32-33
-
-> प्राणापानौ सन्निरुन्ध्यात्पूरकुम्भकरेचकैः
-> यावन्मनस्त्यजेत्कामान्स्वनासाग्रनिरीक्षणः ॥३२॥
-> यतो यतो निःसरति मनः कामहतं भ्रमत
-> ततस्तत उपाहृत्य हृदि रुन्ध्याच्छनैर्बुधः ॥३३॥
 
 > prāṇāpānau sannirundhyāt
 > pūra-kumbhaka-recakaiḥ
@@ -12919,9 +10671,6 @@ The practice of *yoga* is concisely explained herein. When this practice of *yog
 
 ### SB 7.15.34
 
-> एवमभ्यस्यतश्चित्तं कालेनाल्पीयसा यतेः
-> अनिशं तस्य निर्वाणं यात्यनिन्धनवह्निवत ॥३४॥
-
 > evam abhyasyataś cittaṁ
 > kālenālpīyasā yateḥ
 > aniśaṁ tasya nirvāṇaṁ
@@ -12941,9 +10690,6 @@ The practice of *yoga* is concisely explained herein. When this practice of *yog
 If one can understand Kṛṣṇa as the supreme enjoyer, the supreme proprietor of everything, and the supreme friend of everyone, one is established in peace and is free from material agitation. However, for one who cannot understand the Supreme Personality of Godhead, the practice of *yoga* is recommended.
 
 ### SB 7.15.35
-
-> कामादिभिरनाविद्धं प्रशान्ताखिलवृत्ति यत
-> चित्तं ब्रह्मसुखस्पृष्टं नैवोत्तिष्ठेत कर्हिचित ॥३५॥
 
 > kāmādibhir anāviddhaṁ
 > praśāntākhila-vṛtti yat
@@ -12965,9 +10711,6 @@ If one can understand Kṛṣṇa as the supreme enjoyer, the supreme proprietor
 
 ### SB 7.15.36
 
-> यः प्रव्रज्य गृहात्पूर्वं त्रिवर्गावपनात्पुनः
-> यदि सेवेत तान्भिक्षुः स वै वान्ताश्यपत्रपः ॥३६॥
-
 > yaḥ pravrajya gṛhāt pūrvaṁ
 > tri-vargāvapanāt punaḥ
 > yadi seveta tān bhikṣuḥ
@@ -12981,9 +10724,6 @@ Materialistic activities are regulated by the institution of *varṇāśrama-dha
 
 ### SB 7.15.37
 
-> यैः स्वदेहः स्मृतोऽनात्मा मर्त्यो विट्कृमिभस्मवत
-> त एनमात्मसात्कृत्वा श्लाघयन्ति ह्यसत्तमाः ॥३७॥
-
 > yaiḥ sva-dehaḥ smṛto 'nātmā
 > martyo viṭ-kṛmi-bhasmavat
 > ta enam ātmasāt kṛtvā
@@ -12996,11 +10736,6 @@ Materialistic activities are regulated by the institution of *varṇāśrama-dha
 A *sannyāsī* is one who has clearly understood, through advancement in knowledge, that Brahman—he, the person himself—is the soul, not the body. One who has this understanding may take *sannyāsa,* for he is situated in the *"ahaṁ brahmāsmi*" position. *Brahma-bhūtaḥ prasannātmā na śocati na kāṅkṣati* [[bg/18/54|[Bg. 18.54] ]]. Such a person, who no longer laments or hankers to maintain his body and who can accept all living entities as spirit souls, can then enter the devotional service of the Lord. If one does not enter the devotional service of the Lord but artificially considers himself Brahman or Nārāyaṇa, not perfectly understanding that the soul and body are different, one certainly falls down (*patanty adhaḥ*). Such a person again gives importance to the body. There are many *sannyāsīs* in India who stress the importance of the body. Some of them give special importance to the body of the poor man, accepting him as *daridra-nārāyaṇa,* as if Nārāyaṇa had a material body. Many other *sannyāsīs* stress the importance of the social position of the body as a *brāhmaṇa, kṣatriya, vaiśya* or *śūdra.* Such *sannyāsīs* are considered the greatest rascals (*asattamāḥ*). They are shameless because they have not yet understood the difference between the body and the soul and instead have accepted the body of a *brāhmaṇa* to be a *brāhmaṇa.* Brahmanism (*brāhmaṇya*) consists of the knowledge of Brahman. But actually the body of a *brāhmaṇa* is not Brahman. Similarly, the body is neither rich nor poor. If the body of a poor man were *daridra-nārāyaṇa,* this would mean that the body of a rich man, on the contrary, must be *dhanī-nārāyaṇa.* Therefore *sannyāsīs* who do not know the meaning of Nārāyaṇa, those who regard the body as Brahman or as Nārāyaṇa, are described here as *asattamāḥ,* the most abominable rascals. Following the bodily concept of life, such *sannyāsīs* make various programs to serve the body. They conduct farcical missions consisting of so-called religious activities meant to mislead all of human society. These *sannyāsīs* have been described herein as *apatrapaḥ* and *asattamāḥ*—shameless and fallen from spiritual life.
 
 ### SB 7.15.38-39
-
-> गृहस्थस्य क्रियात्यागो व्रतत्यागो वटोरपि
-> तपस्विनो ग्रामसेवा भिक्षोरिन्द्रियलोलता ॥३८॥
-> आश्रमापसदा ह्येते खल्वाश्रमविडम्बनाः
-> देवमायाविमूढांस्तानुपेक्षेतानुकम्पया ॥३९॥
 
 > gṛhasthasya kriyā-tyāgo
 > vrata-tyāgo vaṭorapi
@@ -13020,9 +10755,6 @@ We have repeatedly stressed that human culture does not begin unless one takes t
 
 ### SB 7.15.40
 
-> आत्मानं चेद्विजानीयात्परं ज्ञआनधुताशयः
-> किमिच्छन्कस्य वा हेतोर्देहं पुष्णाति लम्पटः ॥४०॥
-
 > ātmānaṁ ced vijānīyāt
 > paraṁ jñāna-dhutāśayaḥ
 > kim icchan kasya vā hetor
@@ -13035,9 +10767,6 @@ We have repeatedly stressed that human culture does not begin unless one takes t
 Of course, everyone in this material world is interested in maintaining the body for sense gratification, but by cultivating knowledge one should gradually understand that the body is not the self. Both the soul and the Supersoul are transcendental to the material world. This is to be understood in the human form of life, especially when one takes *sannyāsa.* A *sannyāsī,* one who has understood the self, should be engaged in elevating the self and associating with the Superself. Our Kṛṣṇa consciousness movement is meant for elevating the living being for promotion back home, back to Godhead. Seeking such elevation is one's duty in the human form of life. Unless one performs this duty, why should one maintain the body? Especially if a *sannyāsī* not only maintains the body by ordinary means but does everything to maintain the body, including even eating meat and other abominable things, he must be a *lampaṭaḥ,* a greedy person simply engaged in sense gratification. A *sannyāsī* must specifically remove himself from the urges of the tongue, belly and genitals, which disturb one as long as one is not fully aware that the body is separate from the soul.
 
 ### SB 7.15.41
-
-> आहुः शरीरं रथमिन्द्रियाणि हयानभीषून्मन इन्द्रियेशम
-> वर्त्मानि मात्रा धिषणां च सूतं सत्त्वं बृहद्बन्धुरमीशसृष्टम ॥४१॥
 
 > āhuḥ śarīraṁ ratham indriyāṇi
 > hayān abhīṣūn mana indriyeśam
@@ -13078,9 +10807,6 @@ The advice of experienced transcendentalists, therefore, is that the body be ful
 
 ### SB 7.15.42
 
-> अक्षं दशप्राणमधर्मधर्मौ चक्रेऽभिमानं रथिनं च जीवम
-> धनुर्हि तस्य प्रणवं पठन्ति शरं तु जीवं परमेव लक्ष्यम ॥४२॥
-
 > akṣaṁ daśa-prāṇam adharma-dharmau
 > cakre 'bhimānaṁ rathinaṁ ca jīvam
 > dhanur hi tasya praṇavaṁ paṭhanti
@@ -13095,11 +10821,6 @@ Ten kinds of life air always flow within the material body. They are called *pr�
 Śrīla Viśvanātha Cakravartī Ṭhākura has commented that because the words "bow" and "arrow" are used in this verse, one might argue that the Supreme Personality of Godhead and the living entity have become enemies. However, although the Supreme Personality of Godhead may become the so-called enemy of the living being, this is His chivalrous pleasure. For example, the Lord fought with Bhīṣma, and when Bhīṣma pierced the Lord's body on the Battlefield of Kurukṣetra, this was a kind of humor or relationship, of which there are twelve. When the conditioned soul tries to reach the Lord by hurling an arrow at Him, the Lord takes pleasure, and the living entity gains the profit of going back home, back to Godhead. Another example given in this regard is that Arjuna, as a result of piercing the *ādhāra-mīna,* or the fish within the *cakra,* achieved the valuable gain of Draupadī. Similarly, if with the arrow of chanting the holy name of the Lord one pierces Lord Viṣṇu's lotus feet, by dint of performing this heroic activity of devotional service one receives the benefit of returning home, back to Godhead.
 
 ### SB 7.15.43-44
-
-> रागो द्वेषश्च लोभश्च शोकमोहौ भयं मदः
-> मानोऽवमानोऽसूया च माया हिंसा च मत्सरः ॥४३॥
-> रजः प्रमादः क्षुन्निद्रा शत्रवस्त्वेवमादयः
-> रजस्तमःप्रकृतयः सत्त्वप्रकृतयः क्वचित ॥४४॥
 
 > rāgo dveṣaś ca lobhaś ca
 > śoka-mohau bhayaṁ madaḥ
@@ -13133,11 +10854,6 @@ In this material world, so-called goodness and badness are the same because they
 If one is fortunate enough to transcend all this so-called goodness and badness and come to the platform of devotional service by the mercy of Kṛṣṇa and the *guru,* his life becomes successful. In this regard, one must be very bold so that he can conquer these enemies of Kṛṣṇa consciousness. Not caring for the good and bad of this material world, one must boldly propagate Kṛṣṇa consciousness.
 
 ### SB 7.15.45
-
-> यावन्नृकायरथमात्मवशोपकल्पं
-> धत्ते गरिष्ठचरणार्चनया निशातम
-> ज्ञआनासिमच्युतबलो दधदस्तशत्रुः
-> स्वानन्दतुष्ट उपशान्त इदं विजह्यात ॥४५॥
 
 > yāvan nṛ-kāya-ratham ātma-vaśopakalpaṁ
 > dhatte gariṣṭha-caraṇārcanayā niśātam
@@ -13207,11 +10923,6 @@ If one has no connection with Nitāi, Balarāma, then even though one is a very 
 
 ### SB 7.15.46
 
-> नोचेत्प्रमत्तमसदिन्द्रियवाजिसूता
-> नीत्वोत्पथं विषयदस्युषु निक्षिपन्ति
-> ते दस्यवः सहयसूतममुं तमोऽन्धे
-> संसारकूप उरुमृत्युभये क्षिपन्ति ॥४६॥
-
 > nocet pramattam asad-indriya-vāji-sūtā
 > nītvotpathaṁ viṣaya-dasyuṣu nikṣipanti
 > te dasyavaḥ sahaya-sūtam amuṁ tamo 'ndhe
@@ -13231,9 +10942,6 @@ Without the protection of Gaura-Nitāi—Kṛṣṇa and Balarāma—one cannot 
 "I offer my respectful obeisances unto Śrī Kṛṣṇa Caitanya and Lord Nityānanda, who are like the sun and moon. They have arisen simultaneously on the horizon of Gauḍa to dissipate the darkness of ignorance and thus wonderfully bestow benediction upon all." This material world is a dark well of ignorance. The fallen soul in this dark well must take shelter of the lotus feet of Gaura-Nitāi, for thus he can easily emerge from material existence. Without Their strength, simply attempting to get out of the clutches of matter by speculative knowledge will be insufficient.
 
 ### SB 7.15.47
-
-> प्रवृत्तं च निवृत्तं च द्विविधं कर्म वैदिकम
-> आवर्तते प्रवृत्तेन निवृत्तेनाश्नुतेऽमृतम ॥४७॥
 
 > pravṛttaṁ ca nivṛttaṁ ca
 > dvi-vidhaṁ karma vaidikam
@@ -13255,11 +10963,6 @@ As confirmed in *Bhagavad-gītā* [[bg/16/7|(Bg. 16.7)]], *pravṛttiṁ ca niv�
 
 ### SB 7.15.48-49
 
-> हिंस्रं द्रव्यमयं काम्यमग्निहोत्राद्यशान्तिदम
-> दर्शश्च पूर्णमासश्च चातुर्मास्यं पशुः सुतः ॥४८॥
-> एतदिष्टं प्रवृत्ताख्यं हुतं प्रहुतमेव च
-> पूर्तं सुरालयाराम कूपाजीव्यादिलक्षणम ॥४९॥
-
 > hiṁsraṁ dravyamayaṁ kāmyam
 > agni-hotrādy-aśāntidam
 > darśaś ca pūrṇamāsaś ca
@@ -13275,11 +10978,6 @@ As confirmed in *Bhagavad-gītā* [[bg/16/7|(Bg. 16.7)]], *pravṛttiṁ ca niv�
 **The ritualistic ceremonies and sacrifices known as agni-hotra-yajña, darśa-yajña, pūrṇamāsa-yajña, cāturmāsya-yajña, paśu-yajña and soma-yajña are all symptomized by the killing of animals and the burning of many valuables, especially food grains, all for the fulfillment of material desires and the creation of anxiety. Performing such sacrifices, worshiping Vaiśvadeva, and performing the ceremony of Baliharaṇa, which all supposedly constitute the goal of life, as well as constructing temples for demigods, building resting houses and gardens, digging wells for the distribution of water, establishing booths for the distribution of food, and performing activities for public welfare—these are all symptomized by attachment to material desires.**
 
 ### SB 7.15.50-51
-
-> द्रव्यसूक्ष्मविपाकश्च धूमो रात्रिरपक्षयः
-> अयनं दक्षिणं सोमो दर्श ओषधिवीरुधः ॥५०॥
-> अन्नं रेत इति क्ष्मेश पितृयानं पुनर्भवः
-> एकैकश्येनानुपूर्वं भूत्वा भूत्वेह जायते ॥५१॥
 
 > dravya-sūkṣma-vipākaś ca
 > dhūmo rātrir apakṣayaḥ
@@ -13308,9 +11006,6 @@ It may be remarked in this connection that even the modern so-called scientists 
 
 ### SB 7.15.52
 
-> निषेकादिश्मशानान्तैः संस्कारैः संस्कृतो द्विजः
-> इन्द्रियेषु क्रियायज्ञआनज्ञआनदीपेषु जुह्वति ॥५२॥
-
 > niṣekādi-śmaśānāntaiḥ
 > saṁskāraiḥ saṁskṛto dvijaḥ
 > indriyeṣu kriyā-yajñān
@@ -13330,10 +11025,6 @@ Those interested in materialistic activities remain in the cycle of birth and de
 A life of *karma-kāṇḍa* or *jñāna-kāṇḍa* is like a poison pot, and one who takes to such a life is doomed. In the *karma-kāṇḍa* system, one is destined to accept birth and death again and again. Similarly, with *jñāna-kāṇḍa* one falls down again to this material world. Only worship of the Supreme Person offers one the safety of going back home, back to Godhead.
 
 ### SB 7.15.53
-
-> इन्द्रियाणि मनस्यूर्मौ वाचि वैकारिकं मनः
-> वाचं वर्णसमाम्नाये तमोंकारे स्वरे न्यसेत
-> ओंकारं बिन्दौ नादे तं तं तु प्राणे महत्यमुम ॥५३॥
 
 > indriyāṇi manasy ūrmau
 > vāci vaikārikaṁ manaḥ
@@ -13363,9 +11054,6 @@ The mind is always agitated by acceptance and rejection, which are compared to m
 
 ### SB 7.15.54
 
-> अग्निः सूर्यो दिवा प्राह्णः शुक्लो राकोत्तरं स्वराट
-> विश्वोऽथ तैजसः प्राज्ञअस्तुर्य आत्मा समन्वयात ॥५४॥
-
 > agniḥ sūryo divā prāhṇaḥ
 > śuklo rākottaraṁ sva-rāṭ
 > viśvo 'tha taijasaḥ prājñas
@@ -13377,9 +11065,6 @@ The mind is always agitated by acceptance and rejection, which are compared to m
 
 ### SB 7.15.55
 
-> देवयानमिदं प्राहुर्भूत्वा भूत्वानुपूर्वशः
-> आत्मयाज्युपशान्तात्मा ह्यात्मस्थो न निवर्तते ॥५५॥
-
 > deva-yānam idaṁ prāhur
 > bhūtvā bhūtvānupūrvaśaḥ
 > ātma-yājy upaśāntātmā
@@ -13390,9 +11075,6 @@ The mind is always agitated by acceptance and rejection, which are compared to m
 **This gradual process of elevation for self-realization is meant for those who are truly aware of the Absolute Truth. After repeated birth on this path, which is known as deva-yāna, one attains these consecutive stages. One who is completely free from all material desires, being situated in the self, need not traverse the path of repeated birth and death.**
 
 ### SB 7.15.56
-
-> य एते पितृदेवानामयने वेदनिर्मिते
-> शास्त्रेण चक्षुषा वेद जनस्थोऽपि न मुह्यति ॥५६॥
 
 > ya ete pitṛ-devānām
 > ayane veda-nirmite
@@ -13406,9 +11088,6 @@ The mind is always agitated by acceptance and rejection, which are compared to m
 *Ācāryavān puruṣo veda:* one who is guided by the bona fide spiritual master knows everything as stated in the *Vedas,* which set forth the standard of infallible knowledge. As recommended in *Bhagavad-gītā, ācāryopāsanam:* one must approach the *ācārya* for real knowledge. *Tad-vijñānārthaṁ sa gurum evābhigacchet:* [MU 1.2.12] one must approach the *ācārya,* for then one will receive perfect knowledge. When guided by the spiritual master, one attains the ultimate goal of life.
 
 ### SB 7.15.57
-
-> आदावन्ते जनानां सद्बहिरन्तः परावरम
-> ज्ञआनं ज्ञएयं वचो वाच्यं तमो ज्योतिस्त्वयं स्वयम ॥५७॥
 
 > ādāv ante janānāṁ sad
 > bahir antaḥ parāvaram
@@ -13429,9 +11108,6 @@ Here the Vedic aphorism *sarvaṁ khalv idaṁ brahma* is explained. It is also 
 "Kṛṣṇa, who is known as Govinda, is the supreme controller. He has an eternal, blissful, spiritual body. He is the origin of all. He has no other origin, for He is the prime cause of all causes." (Bs. 5.1) This is the perfection of knowledge.
 
 ### SB 7.15.58
-
-> आबाधितोऽपि ह्याभासो यथा वस्तुतया स्मृतः
-> दुर्घटत्वादैन्द्रियकं तद्वदर्थविकल्पितम ॥५८॥
 
 > ābādhito 'pi hy ābhāso
 > yathā vastutayā smṛtaḥ
@@ -13464,9 +11140,6 @@ When we raise our unmixed faith to the lotus feet of Kṛṣṇa, everything is 
 
 ### SB 7.15.59
 
-> क्षित्यादीनामिहार्थानां छाया न कतमापि हि
-> न सङ्घातो विकारोऽपि न पृथङ्नान्वितो मृषा ॥५९॥
-
 > kṣity-ādīnām ihārthānāṁ
 > chāyā na katamāpi hi
 > na saṅghāto vikāro 'pi
@@ -13489,9 +11162,6 @@ Since all the Lord's energies are simultaneously existing, one must understand t
 
 ### SB 7.15.60
 
-> धातवोऽवयवित्वाच्च तन्मात्रावयवैर्विना
-> न स्युर्ह्यसत्यवयविन्यसन्नवयवोऽन्ततः ॥६०॥
-
 > dhātavo 'vayavitvāc ca
 > tan-mātrāvayavair vinā
 > na syur hy asaty avayaviny
@@ -13502,9 +11172,6 @@ Since all the Lord's energies are simultaneously existing, one must understand t
 **Because the body is formed of the five elements, it cannot exist without the subtle sense objects. Therefore, since the body is false, the sense objects are also naturally false or temporary.**
 
 ### SB 7.15.61
-
-> स्यात्सादृश्यभ्रमस्तावद्विकल्पे सति वस्तुनः
-> जाग्रत्स्वापौ यथा स्वप्ने तथा विधिनिषेधता ॥६१॥
 
 > syāt sādṛśya-bhramas tāvad
 > vikalpe sati vastunaḥ
@@ -13538,9 +11205,6 @@ From *Bhagavad-gītā* we understand that there is another *prakṛti,* or natur
 
 ### SB 7.15.62
 
-> भावाद्वैतं क्रियाद्वैतं द्रव्याद्वैतं तथात्मनः
-> वर्तयन्स्वानुभूत्येह त्रीन्स्वप्नान्धुनुते मुनिः ॥६२॥
-
 > bhāvādvaitaṁ kriyādvaitaṁ
 > dravyādvaitaṁ tathātmanaḥ
 > vartayan svānubhūtyeha
@@ -13554,9 +11218,6 @@ The three words *bhāvādvaita, kriyādvaita* and *dravyādvaita* are explained 
 
 ### SB 7.15.63
 
-> कार्यकारणवस्त्वैक्य दर्शनं पटतन्तुवत
-> अवस्तुत्वाद्विकल्पस्य भावाद्वैतं तदुच्यते ॥६३॥
-
 > kārya-kāraṇa-vastv-aikya-
 > darśanaṁ paṭa-tantuvat
 > avastutvād vikalpasya
@@ -13567,9 +11228,6 @@ The three words *bhāvādvaita, kriyādvaita* and *dravyādvaita* are explained 
 **When one understands that result and cause are one and that duality is ultimately unreal, like the idea that the threads of a cloth are different from the cloth itself, one reaches the conception of oneness called bhāvādvaita.**
 
 ### SB 7.15.64
-
-> यद्ब्रह्मणि परे साक्षात्सर्वकर्मसमर्पणम
-> मनोवाक्तनुभिः पार्थ क्रियाद्वैतं तदुच्यते ॥६४॥
 
 > yad brahmaṇi pare sākṣāt
 > sarva-karma-samarpaṇam
@@ -13591,9 +11249,6 @@ The Kṛṣṇa consciousness movement is teaching people how to come to the sta
 
 ### SB 7.15.65
 
-> आत्मजायासुतादीनामन्येषां सर्वदेहिनाम
-> यत्स्वार्थकामयोरैक्यं द्रव्याद्वैतं तदुच्यते ॥६५॥
-
 > ātma-jāyā-sutādīnām
 > anyeṣāṁ sarva-dehinām
 > yat svārtha-kāmayor aikyaṁ
@@ -13606,9 +11261,6 @@ The Kṛṣṇa consciousness movement is teaching people how to come to the sta
 The actual interest of all living entities—indeed, the goal of life—is to return home, back to Godhead. This is the interest of one's own self, one's wife, one's children, one's disciples and one's friends, relatives, countrymen and all humanity. The Kṛṣṇa consciousness movement can give directions for management by which everyone can partake in Kṛṣṇa conscious activities and reach the ultimate goal, which is known as *svārtha-gatim.* This objective of everyone's interest is Viṣṇu, but because people do not know this (*na te viduḥ svārtha-gatiṁ hi viṣṇum* [[sb/7/5/31|[SB 7.5.31] ]]), they are making various plans by which to fulfill so many concocted interests in life. The Kṛṣṇa consciousness movement is trying to bring everyone to the highest interest. The process may be differently named, but if the aim is one, people should follow it to achieve the ultimate goal in life. Unfortunately, people are thinking of different interests, and blind leaders are misleading them. Everyone is trying to reach the goal of complete happiness materially; because people do not know what complete happiness is, they are materially diverted toward different interests.
 
 ### SB 7.15.66
-
-> यद्यस्य वानिषिद्धं स्याद्येन यत्र यतो नृप
-> स तेनेहेत कार्याणि नरो नान्यैरनापदि ॥६६॥
 
 > yad yasya vāniṣiddhaṁ syād
 > yena yatra yato nṛpa
@@ -13629,9 +11281,6 @@ This instruction is given for men in all statuses of life. Generally society is 
 "O best among the twice-born, it is therefore concluded that the highest perfection one can achieve, by discharging his prescribed duties [*dharma*] according to caste divisions and order of life, is to please the Lord Hari." [[sb/1/2/13|(SB 1.2.13)]] Everyone should act according to his occupational duties just to please the Supreme Personality of Godhead. Then everyone will be happy.
 
 ### SB 7.15.67
-
-> एतैरन्यैश्च वेदोक्तैर्वर्तमानः स्वकर्मभिः
-> गृहेऽप्यस्य गतिं यायाद्राजंस्तद्भक्तिभाङ्नरः ॥६७॥
 
 > etair anyaiś ca vedoktair
 > vartamānaḥ sva-karmabhiḥ
@@ -13655,9 +11304,6 @@ Kṛṣṇa accepts service from anyone. The Lord says in *Bhagavad-gītā* [[bg
 
 ### SB 7.15.68
 
-> यथा हि यूयं नृपदेव दुस्त्यजादापद्गणादुत्तरतात्मनः प्रभोः
-> यत्पादपङ्केरुहसेवया भवानहारषीन्निर्जितदिग्गजः क्रतून ॥६८॥
-
 > yathā hi yūyaṁ nṛpa-deva dustyajād
 > āpad-gaṇād uttaratātmanaḥ prabhoḥ
 > yat-pāda-paṅkeruha-sevayā bhavān
@@ -13670,9 +11316,6 @@ Kṛṣṇa accepts service from anyone. The Lord says in *Bhagavad-gītā* [[bg
 Placing himself as an ordinary householder, Mahārāja Yudhiṣṭhira inquired from Nārada Muni how a *gṛha-mūḍha-dhī,* a person who is entangled in household life and who thus continues to remain a fool, can be delivered. Nārada Muni encouraged Mahārāja Yudhiṣṭhira by saying, "You are already on the safe side because you, along with your entire family, have become a pure devotee of Kṛṣṇa." By Kṛṣṇa's grace, the Pāṇḍavas conquered in the Battle of Kurukṣetra and were saved from many dangers posed not only by kings but sometimes even by the demigods. Thus they are a practical example of how to live in security and safety by the grace of Kṛṣṇa. Everyone should follow the example of the Pāṇḍavas, who showed how to be saved by the grace of Kṛṣṇa. Our Kṛṣṇa consciousness movement is intended to teach how everyone can live peacefully in this material world and at the end of life return home, back to Godhead. In the material world there are always dangers at every step (*padaṁ padaṁ yad vipadāṁ na teṣām* [SB 10.14.58]). Nonetheless, if one takes shelter of Kṛṣṇa without hesitation and keeps under the shelter of Kṛṣṇa, he can easily cross the ocean of nescience. *Samāśritā ye pada-pallava-plavaṁ mahat-padaṁ puṇya-yaśo murāreḥ.* To the devotee, this great ocean of nescience becomes like a puddle of water in the hoofprint of a cow. A pure devotee, without embarrassing himself by trying for elevation in so many ways, stays in the safest position as a servant of Kṛṣṇa, and thus his life is eternally safe without a doubt.
 
 ### SB 7.15.69
-
-> अहं पुराभवं कश्चिद्गन्धर्व उपबर्हणः
-> नाम्नातीते महाकल्पे गन्धर्वाणां सुसम्मतः ॥६९॥
 
 > ahaṁ purābhavaṁ kaścid
 > gandharva upabarhaṇaḥ
@@ -13696,9 +11339,6 @@ The word *mahā-kalpe* is described by Śrīla Madhvācārya as *atīta-brahma-k
 
 ### SB 7.15.70
 
-> रूपपेशलमाधुर्य सौगन्ध्यप्रियदर्शनः
-> स्त्रीणां प्रियतमो नित्यं मत्तः स्वपुरलम्पटः ॥७०॥
-
 > rūpa-peśala-mādhurya-
 > saugandhya-priya-darśanaḥ
 > strīṇāṁ priyatamo nityaṁ
@@ -13712,9 +11352,6 @@ From the description of the beauty of Nārada Muni when he was one of the denize
 
 ### SB 7.15.71
 
-> एकदा देवसत्रे तु गन्धर्वाप्सरसां गणाः
-> उपहूता विश्वसृग्भिर्हरिगाथोपगायने ॥७१॥
-
 > ekadā deva-satre tu
 > gandharvāpsarasāṁ gaṇāḥ
 > upahūtā viśva-sṛgbhir
@@ -13727,10 +11364,6 @@ From the description of the beauty of Nārada Muni when he was one of the denize
 *Saṅkīrtana* means chanting of the holy name of the Lord. The Hare Kṛṣṇa movement is not a new movement as people sometimes mistakenly think. The Hare Kṛṣṇa movement is present in every millennium of Lord Brahmā's life, and the holy name is chanted in all the higher planetary systems, including Brahmaloka and Candraloka, not to speak of Gandharvaloka and Apsaroloka. The *saṅkīrtana* movement that was started in this world five hundred years ago by Śrī Caitanya Mahāprabhu is therefore not a new movement. Sometimes, because of our bad luck, this movement is stopped, but Śrī Caitanya Mahāprabhu and His servants again start the movement for the benefit of the entire world or, indeed, the entire universe.
 
 ### SB 7.15.72
-
-> अहं च गायंस्तद्विद्वान्स्त्रीभिः परिवृतो गतः
-> ज्ञआत्वा विश्वसृजस्तन्मे हेलनं शेपुरोजसा
-> याहि त्वं शूद्रतामाशु नष्टश्रीः कृतहेलनः ॥७२॥
 
 > ahaṁ ca gāyaṁs tad-vidvān
 > strībhiḥ parivṛto gataḥ
@@ -13746,9 +11379,6 @@ From the description of the beauty of Nārada Muni when he was one of the denize
 As far as *kīrtana* is concerned, the *śāstras* say, *śravaṇaṁ kīrtanaṁ viṣṇoḥ:* [[sb/7/5/23-24|[SB 7.5.23] ]] one should chant the glories of the Supreme Lord and the holy name of the Supreme Lord. This is clearly stated. *Śravaṇaṁ kīrtanaṁ viṣṇoḥ:* one should chant about and glorify Lord Viṣṇu, not any demigod. Unfortunately, there are foolish persons who invent some process of *kīrtana* on the basis of a demigod's name. This is an offense. *Kīrtana* means glorifying the Supreme Lord, not any demigod. Sometimes people invent *kālī-kīrtana* or *śiva-kīrtana,* and even big *sannyāsīs* in the Māyāvāda school say that one may chant any name and still get the same result. But here we find that millions and millions of years ago, when Nārada Muni was a Gandharva, he neglected the order to glorify the Lord, and being mad in the association of women, he began to chant otherwise. Thus he was cursed to become a *śūdra.* His first offense was that he went to join the *saṅkīrtana* party in the company of lusty women, and another offense was that he considered ordinary songs, like cinema songs and other such songs, to be equal to *saṅkīrtana.* For this offense he was punished with becoming a *śūdra.*
 
 ### SB 7.15.73
-
-> तावद्दास्यामहं जज्ञए तत्रापि ब्रह्मवादिनाम
-> शुश्रूषयानुषङ्गेण प्राप्तोऽहं ब्रह्मपुत्रताम ॥७३॥
 
 > tāvad dāsyām ahaṁ jajñe
 > tatrāpi brahma-vādinām
@@ -13770,9 +11400,6 @@ The Supreme Personality of Godhead says in *Bhagavad-gītā* [[bg/9/32|(Bg. 9.32
 
 ### SB 7.15.74
 
-> धर्मस्ते गृहमेधीयो वर्णितः पापनाशनः
-> गृहस्थो येन पदवीमञ्जसा न्यासिनामियात ॥७४॥
-
 > dharmas te gṛha-medhīyo
 > varṇitaḥ pāpa-nāśanaḥ
 > gṛhastho yena padavīm
@@ -13786,9 +11413,6 @@ This is a confirmation of the Kṛṣṇa consciousness movement. Anyone who tak
 
 ### SB 7.15.75
 
-> यूयं नृलोके बत भूरिभागा लोकं पुनाना मुनयोऽभियन्ति
-> येषां गृहानावसतीति साक्षाद्गूढं परं ब्रह्म मनुष्यलिङ्गम ॥७५॥
-
 > yūyaṁ nṛ-loke bata bhūri-bhāgā
 > lokaṁ punānā munayo 'bhiyanti
 > yeṣāṁ gṛhān āvasatīti sākṣād
@@ -13801,9 +11425,6 @@ This is a confirmation of the Kṛṣṇa consciousness movement. Anyone who tak
 Here is a statement exalting a Vaiṣṇava. In human society, a *brāhmaṇa* is the most respected person. A *brāhmaṇa* is one who can understand Brahman, the impersonal Brahman, but hardly ever can one understand the Supreme Personality of Godhead, who is described by Arjuna in *Bhagavad-gītā* as *paraṁ brahma.* A *brāhmaṇa* may be extremely fortunate in having achieved *brahma jñāna,* but the Pāṇḍavas were so exalted that the Parabrahman, the Supreme Personality of Godhead, was living in their house like an ordinary human being. The word *bhūri-bhāgāḥ* indicates that the Pāṇḍavas were in a still higher position than *brahmacārīs* and *brāhmaṇas.* In the following verses, Nārada Muni repeatedly glorifies the position of the Pāṇḍavas.
 
 ### SB 7.15.76
-
-> स वा अयं ब्रह्म महद्विमृग्य कैवल्यनिर्वाणसुखानुभूतिः
-> प्रियः सुहृद्वः खलु मातुलेय आत्मार्हणीयो विधिकृद्गुरुश्च ॥७६॥
 
 > sa vā ayaṁ brahma mahad-vimṛgya-
 > kaivalya-nirvāṇa-sukhānubhūtiḥ
@@ -13826,9 +11447,6 @@ Kṛṣṇa can become the director and spiritual master of anyone who is seriou
 
 ### SB 7.15.77
 
-> न यस्य साक्षाद्भवपद्मजादिभी रूपं धिया वस्तुतयोपवर्णितम
-> मौनेन भक्त्योपशमेन पूजितः प्रसीदतामेष स सात्वतां पतिः ॥७७॥
-
 > na yasya sākṣād bhava-padmajādibhī
 > rūpaṁ dhiyā vastutayopavarṇitam
 > maunena bhaktyopaśamena pūjitaḥ
@@ -13849,10 +11467,6 @@ Lord Kṛṣṇa is not properly understood even by such exalted personalities a
 
 ### SB 7.15.78
 
-> श्रीशुक उवाच
-> इति देवर्षिणा प्रोक्तं निशम्य भरतर्षभः
-> पूजयामास सुप्रीतः कृष्णं च प्रेमविह्वलः ॥७८॥
-
 > śrī-śuka uvāca
 > iti devarṣiṇā proktaṁ
 > niśamya bharatarṣabhaḥ
@@ -13867,9 +11481,6 @@ It is natural that when someone belonging to one's family circle is understood t
 
 ### SB 7.15.79
 
-> कृष्णपार्थावुपामन्त्र्य पूजितः प्रययौ मुनिः
-> श्रुत्वा कृष्णं परं ब्रह्म पार्थः परमविस्मितः ॥७९॥
-
 > kṛṣṇa-pārthāv upāmantrya
 > pūjitaḥ prayayau muniḥ
 > śrutvā kṛṣṇaṁ paraṁ brahma
@@ -13882,9 +11493,6 @@ It is natural that when someone belonging to one's family circle is understood t
 After hearing the conversation between Nārada and Yudhiṣṭhira, if one still has any doubts about Kṛṣṇa's being the Supreme Personality of Godhead, one should immediately give them up. *Asaṁśayaṁ samagram.* Without any doubt and without any defect, one should understand Kṛṣṇa to be the Supreme Personality of Godhead and thus surrender at His lotus feet. Ordinary persons do not do this, even after hearing all the *Vedas,* but if one is fortunate, although it may be even after many, many births, he comes to this conclusion (*bahūnāṁ janmanām ante jñānavān māṁ prapadyate* [[bg/7/19|[Bg. 7.19] ]]).
 
 ### SB 7.15.80
-
-> इति दाक्षायिणीनां ते पृथग्वंशा प्रकीर्तिताः
-> देवासुरमनुष्याद्या लोका यत्र चराचराः ॥८०॥
 
 > iti dākṣāyaṇīnāṁ te
 > pṛthag vaṁśāḥ prakīrtitāḥ

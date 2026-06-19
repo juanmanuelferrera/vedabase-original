@@ -26,11 +26,6 @@ Vṛndāvana, India
 
 ### 1
 
-> वाचो वेगं मनसः क्रोधवेगं
-> जिह्वावेगमुदरोपस्थवेगम् ।
-> एतान् वेगन् यो विषहेत धीरः
-> सर्वामपीमं पृथिवीं स शिष्यात् ॥१॥
-
 > vāco vegaṁ manasaḥ krodha-vegaṁ
 > jihvā-vegam udaropastha-vegam
 > etān vegān yo viṣaheta dhīraḥ
@@ -149,9 +144,6 @@ The conclusion is that one who can control these six items—speech, mind, anger
 
 ### 2
 
-> अत्याहारः प्रयासश्च प्रजल्पो नियमग्रहः ।
-> जनसङ्गश्व लौल्यं च षड्भिर्भक्तिर्विनश्यति ॥२॥
-
 > atyāhāraḥ prayāsaś ca
 > prajalpo niyamāgrahaḥ
 > jana-saṅgaś ca laulyaṁ ca
@@ -234,9 +226,6 @@ When human society gives up these elementary faults enumerated by Śrīla Rūpa 
 This Kṛṣṇa consciousness movement offers a spiritual community that can bring about a peaceful condition in the world. Every intelligent man should purify his consciousness and rid himself of the above-mentioned six hindrances to devotional service by taking wholehearted shelter of this Kṛṣṇa consciousness movement.
 
 ### 3
-
-> उत्साहान्निश्चयाद्ढैर्यात्तत्तत्कर्मप्रवर्तनात् ।
-> सङ्गत्यगात् सतो वृत्तेः षड्भिर्भक्तिः प्रसिध्यति ॥३॥
 
 > utsāhān niścayād dhairyāt
 > tat-tat-karma-pravartanāt
@@ -351,9 +340,6 @@ Since all the devotees of the Lord are under the protection of His supreme poten
 
 ### 4
 
-> ददाति प्रतिगृह्णाति गृह्यामाख्याति पृच्छति ।
-> भुङ्क्ते भोजयते चैव षड्विधं प्रीतिलक्षणम् ॥४॥
-
 > dadāti pratigṛhṇāti
 > guhyam ākhyāti pṛcchati
 > bhuṅkte bhojayate caiva
@@ -400,11 +386,6 @@ The conclusion is that we should always keep company with devotees, observe the 
 In the next verse, Śrīla Rūpa Gosvāmī informs us what kind of Vaiṣṇava should be selected as a friend and how Vaiṣṇavas should be served.
 
 ### 5
-
-> कृष्णेति यस्य गिरि तं मनसाद्रियेत
-> दीक्षास्ति चेत प्रणतिभिश्च भजन्तमीशम् ।
-> शुश्रूषया भजनविज्ञमनन्यमन्य-
-> निन्दादिशून्यहृदमीप्सितसङ्गलब्ध्या ॥५॥
 
 > kṛṣṇeti yasya giri taṁ manasādriyeta
 > dīkṣāsti cet praṇatibhiś ca bhajantam īśam
@@ -505,11 +486,6 @@ In this verse Śrīla Rūpa Gosvāmī advises the devotee to be intelligent enou
 
 ### 6
 
-> दृष्टैः स्वभावजनितैर्वपुषश्च दोषैर्
-> न प्राकृतत्वमीह भक्तजनस्य पश्येत् ।
-> गङ्गाम्भसां न खलु बुद्बुदफेन पङ्कैः
-> र्ब्रह्मद्रवत्वमपगच्छतिनीरधर्मैः ॥६॥
-
 > dṛṣṭaiḥ svabhāva-janitair vapuṣaś ca doṣair
 > na prākṛtatvam iha bhakta janasya paśyet
 > gaṅgāmbhasāṁ na khalu budbuda-phena-paṅkair
@@ -553,11 +529,6 @@ When one thus criticizes a pure devotee, he commits an offense (*vaiṣṇava-ap
 
 ### 7
 
-> स्यात् कृष्णनामचरितादिसिताप्यविद्या-
-> पित्तोपतप्तरसनस्य न रोचिका नु ।
-> किन्त्वादरादनुदिनं खलु सैव जुष्टा
-> स्वाद्वी क्रमाद्भवति तद्गदमूलहन्त्री ॥७॥
-
 > syāt kṛṣṇa-nāma-caritādi-sitāpy avidyā-
 > pittopatapta-rasanasya na rocikā nu
 > kintv ādarād anudinaṁ khalu saiva juṣṭā
@@ -600,11 +571,6 @@ Although *māyā* may be present, it cannot disturb a devotee once he attains th
 "Kṛṣṇa is compared to sunshine, and *māyā* is compared to darkness. Wherever there is sunshine, there cannot be darkness. As soon as one takes to Kṛṣṇa consciousness, the darkness of illusion, the influence of the external energy, will immediately vanish."
 
 ### 8
-
-> तन्नामरूपचरितादिसुकीर्तनानु-
-> स्मृत्योः क्रमेण रसनामनसी नियोज्य ।
-> तिष्ठन् व्रजे तदनुरागिजनानुगामी
-> कालं नयेदखिलमित्युपदेशसारम ॥८॥
 
 > tan-nāma-rūpa-caritādi-sukīrtanānu-
 > smṛtyoḥ krameṇa rasanā-manasī niyojya
@@ -650,11 +616,6 @@ Again Śrīla Rūpa Gosvāmī states in *Bhakti-rasāmṛta-sindhu* (1.2.295):
 
 ### 9
 
-> वैकुण्ठाज्जनितो वरा मधुपुरी तत्रापि रासोत्सवाद्
-> वृन्दारण्यमुदारपाणिरमणात्तत्रापि गोवर्धनः ।
-> राधाकुन्डमिहापि गोकुलापतेः प्रेमामृताप्लावनात्
-> कुर्यादस्य विराजतो गिरितटे सेवां विवेकी न् कः ॥९॥
-
 > vaikuṇṭhāj janito varā madhu-purī tatrāpi rāsotsavād
 > vṛndāraṇyam udāra-pāṇi-ramaṇāt tatrāpi govardhanaḥ
 > rādhā-kuṇḍam ihāpi gokula-pateḥ premāmṛtāplāvanāt
@@ -669,11 +630,6 @@ The spiritual world is three fourths of the total creation of the Supreme Person
 In *Caitanya-caritāmṛta* (*Madhya-līlā*) it is stated that when Śrī Caitanya Mahāprabhu first visited the area of Vrajabhūmi, He could not at first find the location of Rādhā-kuṇḍa. This means that Śrī Caitanya Mahāprabhu was actually searching for the exact location of Rādhā-kuṇḍa. Finally He found the holy spot, and there was a small pond there. He took His bath in that small pond and told His devotees that the actual Rādhā-kuṇḍa was situated there. Later the pond was excavated by Lord Caitanya's devotees, headed first by the six Gosvāmīs, such as Rūpa and Raghunātha dāsa. Presently there is a large lake known as Rādhā-kuṇḍa there. Śrīla Rūpa Gosvāmī has given much stress to Rādhā-kuṇḍa because of Śrī Caitanya Mahāprabhu's desire to find it. Who, then, would give up Rādhā-kuṇḍa and try to reside elsewhere? No person with transcendental intelligence would do so. The importance of Rādhā-kuṇḍa, however, cannot be realized by other Vaiṣṇava *sampradāyas,* nor can persons uninterested in the devotional service of Lord Caitanya Mahāprabhu understand the spiritual importance and divine nature of Rādhā-kuṇḍa. Thus Rādhā-kuṇḍa is mainly worshiped by the Gauḍīya Vaiṣṇavas, the followers of Lord Śrī Kṛṣṇa Caitanya Mahāprabhu.
 
 ### 10
-
-> कर्मिभ्यः परितो हरेः प्रियतया व्यक्तिं यायुर्ज्ञानिनस्
-> तेभ्यो ज्ञानविमुक्तभक्तिपरमाः प्रेमैकनिष्ठास्ततः ।
-> तेभ्यास्ताः पशुपालपङ्कजदृशस्ताभ्योऽपि सा राधिका
-> प्रेष्ठा तद्वदियं तदीयसरसी तां नाश्रयेत कः कृती ॥१०॥
 
 > karmibhyaḥ parito hareḥ priyatayā vyaktiṁ yayur jñāninas
 > tebhyo jñāna-vimukta-bhakti-paramāḥ premaika-niṣṭhās tataḥ
@@ -732,11 +688,6 @@ In this way Śrīla Rūpa Gosvāmī gradually concludes that Śrīmatī Rādhār
 Therefore everyone interested in Kṛṣṇa consciousness should ultimately take shelter of Rādhā-kuṇḍa and execute devotional service there throughout one's life. This is the conclusion of Rūpa Gosvāmī in the tenth verse of *Upadeśāmṛta.*
 
 ### 11
-
-> कृष्णस्योच्चैः प्रणयवसतिः प्रेयसीभ्योपि राधा 
-> कुंडम चास्या मुनिभिरभितस्तादृगेव व्याधायि ।
-> यत्प्रेष्ठैरप्यलमसुलभं किं पुनर्भक्तिभाजाम
-> तत्प्रेमेदं सकृदपि सरः स्नातुराविष्करोति ॥११॥
 
 > kṛṣṇasyoccaiḥ praṇaya-vasatiḥ preyasībhyo 'pi rādhā
 > kuṇḍaṁ cāsyā munibhir abhitas tādṛg eva vyadhāyi

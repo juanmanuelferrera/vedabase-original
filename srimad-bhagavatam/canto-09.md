@@ -4,10 +4,6 @@
 
 ### SB 9.1.1
 
-> श्रीराजोवाच
-> मन्वन्तराणि सर्वाणि त्वयोक्तानि श्रुतानि मे
-> वीर्याण्यनन्तवीर्यस्य हरेस्तत्र कृतानि च ॥१॥
-
 > śrī-rājovāca
 > manvantarāṇi sarvāṇi
 > tvayoktāni śrutāni me
@@ -19,11 +15,6 @@
 **King Parīkṣit said: My lord, Śukadeva Gosvāmī, you have elaborately described all the periods of the various Manus and, within those periods, the wonderful activities of the Supreme Personality of Godhead, who has unlimited potency. I am fortunate to have heard all of this from you.**
 
 ### SB 9.1.2-3
-
-> योऽसौ सत्यव्रतो नाम राजर्षिर्द्रविडेश्वरः
-> ज्ञआनं योऽतीतकल्पान्ते लेभे पुरुषसेवया ॥२॥
-> स वै विवस्वतः पुत्रो मनुरासीदिति श्रुतम
-> त्वत्तस्तस्य सुताः प्रोक्ता इक्ष्वाकुप्रमुखा नृपाः ॥३॥
 
 > yo 'sau satyavrato nāma
 > rājarṣir draviḍeśvaraḥ
@@ -41,9 +32,6 @@
 
 ### SB 9.1.4
 
-> तेषां वंशं पृथग्ब्रह्मन्वंशानुचरितानि च
-> कीर्तयस्व महाभाग नित्यं शुश्रूषतां हि नः ॥४॥
-
 > teṣāṁ vaṁśaṁ pṛthag brahman
 > vaṁśānucaritāni ca
 > kīrtayasva mahā-bhāga
@@ -55,9 +43,6 @@
 
 ### SB 9.1.5
 
-> ये भूता ये भविष्याश्च भवन्त्यद्यतनाश्च ये
-> तेषां नः पुण्यकीर्तीनां सर्वेषां वद विक्रमान ॥५॥
-
 > ye bhūtā ye bhaviṣyāś ca
 > bhavanty adyatanāś ca ye
 > teṣāṁ naḥ puṇya-kīrtīnāṁ
@@ -68,10 +53,6 @@
 **Kindly tell us about the abilities of all the celebrated kings born in the dynasty of Vaivasvata Manu, including those who have already passed, those who may appear in the future, and those who exist at present.**
 
 ### SB 9.1.6
-
-> श्रीसूत उवाच
-> एवं परीक्षिता राज्ञआ सदसि ब्रह्मवादिनाम
-> पृष्टः प्रोवाच भगवाञ्छुकः परमधर्मवित ॥६॥
 
 > śrī-sūta uvāca
 > evaṁ parīkṣitā rājñā
@@ -85,10 +66,6 @@
 
 ### SB 9.1.7
 
-> श्रीशुक उवाच
-> श्रूयतां मानवो वंशः प्राचुर्येण परन्तप
-> न शक्यते विस्तरतो वक्तुं वर्षशतैरपि ॥७॥
-
 > śrī-śuka uvāca
 > śrūyatāṁ mānavo vaṁśaḥ
 > prācuryeṇa parantapa
@@ -100,9 +77,6 @@
 **Śukadeva Gosvāmī continued: O King, subduer of your enemies, now hear from me in great detail about the dynasty of Manu. I shall explain as much as possible, although one could not say everything about it, even in hundreds of years.**
 
 ### SB 9.1.8
-
-> परावरेषां भूतानामात्मा यः पुरुषः परः
-> स एवासीदिदं विश्वं कल्पान्तेऽन्यन्न किञ्चन ॥८॥
 
 > parāvareṣāṁ bhūtānām
 > ātmā yaḥ puruṣaḥ paraḥ
@@ -117,9 +91,6 @@ Taking the proper position from which to describe the dynasty of Manu, Śukadeva
 
 ### SB 9.1.9
 
-> तस्य नाभेः समभवत्पद्मकोषो हिरण्मयः
-> तस्मिन्जज्ञए महाराज स्वयम्भूश्चतुराननः ॥९॥
-
 > tasya nābheḥ samabhavat
 > padma-koṣo hiraṇmayaḥ
 > tasmiñ jajñe mahārāja
@@ -131,9 +102,6 @@ Taking the proper position from which to describe the dynasty of Manu, Śukadeva
 
 ### SB 9.1.10
 
-> मरीचिर्मनसस्तस्य जज्ञए तस्यापि कश्यपः
-> दाक्षायण्यां ततोऽदित्यां विवस्वानभवत्सुतः ॥१०॥
-
 > marīcir manasas tasya
 > jajñe tasyāpi kaśyapaḥ
 > dākṣāyaṇyāṁ tato 'dityāṁ
@@ -144,11 +112,6 @@ Taking the proper position from which to describe the dynasty of Manu, Śukadeva
 **From the mind of Lord Brahmā, Marīci took birth, and from the semen of Marīci, Kaśyapa appeared from the womb of the daughter of Dakṣa Mahārāja. From Kaśyapa, by the womb of Aditi, Vivasvān took birth.**
 
 ### SB 9.1.11-12
-
-> ततो मनुः श्राद्धदेवः संज्ञआयामास भारत
-> श्रद्धायां जनयामास दश पुत्रान्स आत्मवान ॥११॥
-> इक्ष्वाकुनृगशर्याति दिष्टधृष्टकरूषकान
-> नरिष्यन्तं पृषध्रं च नभगं च कविं विभुः ॥१२॥
 
 > tato manuḥ śrāddhadevaḥ
 > saṁjñāyām āsa bhārata
@@ -166,9 +129,6 @@ Taking the proper position from which to describe the dynasty of Manu, Śukadeva
 
 ### SB 9.1.13
 
-> अप्रजस्य मनोः पूर्वं वसिष्ठो भगवान्किल
-> मित्रावरुणयोरिष्टिं प्रजार्थमकरोद्विभुः ॥१३॥
-
 > aprajasya manoḥ pūrvaṁ
 > vasiṣṭho bhagavān kila
 > mitrā-varuṇayor iṣṭiṁ
@@ -179,9 +139,6 @@ Taking the proper position from which to describe the dynasty of Manu, Śukadeva
 **Manu at first had no sons. Therefore, in order to get a son for him, the great saint Vasiṣṭha, who was very powerful in spiritual knowledge, performed a sacrifice to satisfy the demigods Mitra and Varuṇa.**
 
 ### SB 9.1.14
-
-> तत्र श्रद्धा मनोः पत्नी होतारं समयाचत
-> दुहित्रर्थमुपागम्य प्रणिपत्य पयोव्रता ॥१४॥
 
 > tatra śraddhā manoḥ patnī
 > hotāraṁ samayācata
@@ -194,9 +151,6 @@ Taking the proper position from which to describe the dynasty of Manu, Śukadeva
 
 ### SB 9.1.15
 
-> प्रेषितोऽध्वर्युणा होता व्यचरत्तत्समाहितः
-> गृहीते हविषि वाचा वषट्कारं गृणन्द्विजः ॥१५॥
-
 > preṣito 'dhvaryuṇā hotā
 > vyacarat tat samāhitaḥ
 > gṛhīte haviṣi vācā
@@ -207,9 +161,6 @@ Taking the proper position from which to describe the dynasty of Manu, Śukadeva
 **Told by the chief priest "Now offer oblations," the person in charge of oblations took clarified butter to offer. He then remembered the request of Manu's wife and performed the sacrifice while chanting the word "vaṣaṭ."**
 
 ### SB 9.1.16
-
-> होतुस्तद्व्यभिचारेण कन्येला नाम साभवत
-> तां विलोक्य मनुः प्राह नातितुष्टमना गुरुम ॥१६॥
 
 > hotus tad-vyabhicāreṇa
 > kanyelā nāma sābhavat
@@ -223,9 +174,6 @@ Taking the proper position from which to describe the dynasty of Manu, Śukadeva
 Because Manu had no issue, he was pleased at the birth of the child, even though a daughter, and gave her the name Ilā. Later, however, he was not very satisfied to see the daughter instead of a son. Because he had no issue, he was certainly very glad at the birth of Ilā, but his pleasure was temporary.
 
 ### SB 9.1.17
-
-> भगवन्किमिदं जातं कर्म वो ब्रह्मवादिनाम
-> विपर्ययमहो कष्टं मैवं स्याद्ब्रह्मविक्रिया ॥१७॥
 
 > bhagavan kim idaṁ jātaṁ
 > karma vo brahma-vādinām
@@ -250,9 +198,6 @@ Therefore, the best performance of *yajña* given to us is the *saṅkīrtana-ya
 
 ### SB 9.1.18
 
-> यूयं ब्रह्मविदो युक्तास्तपसा दग्धकिल्बिषाः
-> कुतः सङ्कल्पवैषम्यमनृतं विबुधेष्विव ॥१८॥
-
 > yūyaṁ brahma-vido yuktās
 > tapasā dagdha-kilbiṣāḥ
 > kutaḥ saṅkalpa-vaiṣamyam
@@ -266,9 +211,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 
 ### SB 9.1.19
 
-> निशम्य तद्वचस्तस्य भगवान्प्रपितामहः
-> होतुर्व्यतिक्रमं ज्ञआत्वा बभाषे रविनन्दनम ॥१९॥
-
 > niśamya tad vacas tasya
 > bhagavān prapitāmahaḥ
 > hotur vyatikramaṁ jñātvā
@@ -279,9 +221,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 **The most powerful great-grandfather Vasiṣṭha, after hearing these words of Manu, understood the discrepancy on the part of the priest. Thus he spoke as follows to the son of the sun-god.**
 
 ### SB 9.1.20
-
-> एतत्सङ्कल्पवैषम्यं होतुस्ते व्यभिचारतः
-> तथापि साधयिष्ये ते सुप्रजास्त्वं स्वतेजसा ॥२०॥
 
 > etat saṅkalpa-vaiṣamyaṁ
 > hotus te vyabhicārataḥ
@@ -294,9 +233,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 
 ### SB 9.1.21
 
-> एवं व्यवसितो राजन्भगवान्स महायशाः
-> अस्तौषीदादिपुरुषमिलायाः पुंस्त्वकाम्यया ॥२१॥
-
 > evaṁ vyavasito rājan
 > bhagavān sa mahā-yaśāḥ
 > astauṣīd ādi-puruṣam
@@ -308,9 +244,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 
 ### SB 9.1.22
 
-> तस्मै कामवरं तुष्टो भगवान्हरिरीश्वरः
-> ददाविलाभवत्तेन सुद्युम्नः पुरुषर्षभः ॥२२॥
-
 > tasmai kāma-varaṁ tuṣṭo
 > bhagavān harir īśvaraḥ
 > dadāv ilābhavat tena
@@ -321,11 +254,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 **The Supreme Personality of Godhead, the supreme controller, being pleased with Vasiṣṭha, gave him the benediction he desired. Thus Ilā was transformed into a very fine male named Sudyumna.**
 
 ### SB 9.1.23-24
-
-> स एकदा महाराज विचरन्मृगयां वने
-> वृतः कतिपयामात्यैरश्वमारुह्य सैन्धवम ॥२३॥
-> प्रगृह्य रुचिरं चापं शरांश्च परमाद्भुतान
-> दंशितोऽनुमृगं वीरो जगाम दिशमुत्तराम ॥२४॥
 
 > sa ekadā mahārāja
 > vicaran mṛgayāṁ vane
@@ -343,9 +271,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 
 ### SB 9.1.25
 
-> सुकुमारवनं मेरोरधस्तात्प्रविवेश ह
-> यत्रास्ते भगवान्छर्वो रममाणः सहोमया ॥२५॥
-
 > sukumāra-vanaṁ meror
 > adhastāt praviveśa ha
 > yatrāste bhagavāñ charvo
@@ -356,9 +281,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 **There in the north, at the bottom of Mount Meru, is a forest known as Sukumāra where Lord Śiva always enjoys with Umā. Sudyumna entered that forest.**
 
 ### SB 9.1.26
-
-> तस्मिन्प्रविष्ट एवासौ सुद्युम्नः परवीरहा
-> अपश्यत्स्त्रियमात्मानमश्वं च वडवां नृप ॥२६॥
 
 > tasmin praviṣṭa evāsau
 > sudyumnaḥ para-vīra-hā
@@ -371,9 +293,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 
 ### SB 9.1.27
 
-> तथा तदनुगाः सर्वे आत्मलिङ्गविपर्ययम
-> दृष्ट्वा विमनसोऽभूवन्वीक्षमाणाः परस्परम ॥२७॥
-
 > tathā tad-anugāḥ sarve
 > ātma-liṅga-viparyayam
 > dṛṣṭvā vimanaso 'bhūvan
@@ -384,10 +303,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 **When his followers also saw their identities transformed and their sex reversed, they were all very morose and just looked at one another.**
 
 ### SB 9.1.28
-
-> श्रीराजोवाच
-> कथमेवं गुणो देशः केन वा भगवन्कृतः
-> प्रश्नमेनं समाचक्ष्व परं कौतूहलं हि नः ॥२८॥
 
 > śrī-rājovāca
 > katham evaṁ guṇo deśaḥ
@@ -401,10 +316,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 
 ### SB 9.1.29
 
-> श्रीशुक उवाच
-> एकदा गिरिशं द्रष्टुमृषयस्तत्र सुव्रताः
-> दिशो वितिमिराभासाः कुर्वन्तः समुपागमन ॥२९॥
-
 > śrī-śuka uvāca
 > ekadā giriśaṁ draṣṭum
 > ṛṣayas tatra suvratāḥ
@@ -417,9 +328,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 
 ### SB 9.1.30
 
-> तान्विलोक्याम्बिका देवी विवासा व्रीडिता भृशम
-> भर्तुरङ्कात्समुत्थाय नीवीमाश्वथ पर्यधात ॥३०॥
-
 > tān vilokyāmbikā devī
 > vivāsā vrīḍitā bhṛśam
 > bhartur aṅkāt samutthāya
@@ -430,9 +338,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 **When the goddess Ambikā saw the great saintly persons, she was very much ashamed because at that time she was naked. She immediately got up from the lap of her husband and tried to cover her breast.**
 
 ### SB 9.1.31
-
-> ऋषयोऽपि तयोर्वीक्ष्य प्रसङ्गं रममाणयोः
-> निवृत्ताः प्रययुस्तस्मान्नरनारायणाश्रमम ॥३१॥
 
 > ṛṣayo 'pi tayor vīkṣya
 > prasaṅgaṁ ramamāṇayoḥ
@@ -445,9 +350,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 
 ### SB 9.1.32
 
-> तदिदं भगवानाह प्रियायाः प्रियकाम्यया
-> स्थानं यः प्रविशेदेतत्स वै योषिद्भवेदिति ॥३२॥
-
 > tad idaṁ bhagavān āha
 > priyāyāḥ priya-kāmyayā
 > sthānaṁ yaḥ praviśed etat
@@ -458,9 +360,6 @@ We have learned from many Vedic literatures that a benediction or curse given by
 **Thereupon, just to please his wife, Lord Śiva said, "Any male entering this place shall immediately become a female!"**
 
 ### SB 9.1.33
-
-> तत ऊर्ध्वं वनं तद्वै पुरुषा वर्जयन्ति हि
-> सा चानुचरसंयुक्ता विचचार वनाद्वनम ॥३३॥
 
 > tata ūrdhvaṁ vanaṁ tad vai
 > puruṣā varjayanti hi
@@ -484,9 +383,6 @@ The body is just like a dress, and here this is proved. Sudyumna and his associa
 
 ### SB 9.1.34
 
-> अथ तामाश्रमाभ्याशे चरन्तीं प्रमदोत्तमाम
-> स्त्रीभिः परिवृतां वीक्ष्य चकमे भगवान्बुधः ॥३४॥
-
 > atha tām āśramābhyāśe
 > carantīṁ pramadottamām
 > strībhiḥ parivṛtāṁ vīkṣya
@@ -497,9 +393,6 @@ The body is just like a dress, and here this is proved. Sudyumna and his associa
 **Sudyumna had been transformed into the best of beautiful women who excite sexual desire and was surrounded by other women. Upon seeing this beautiful woman loitering near his āśrama, Budha, the son of the moon, immediately desired to enjoy her.**
 
 ### SB 9.1.35
-
-> सापि तं चकमे सुभ्रूः सोमराजसुतं पतिम
-> स तस्यां जनयामास पुरूरवसमात्मजम ॥३५॥
 
 > sāpi taṁ cakame subhrūḥ
 > somarāja-sutaṁ patim
@@ -512,9 +405,6 @@ The body is just like a dress, and here this is proved. Sudyumna and his associa
 
 ### SB 9.1.36
 
-> एवं स्त्रीत्वमनुप्राप्तः सुद्युम्नो मानवो नृपः
-> सस्मार स कुलाचार्यं वसिष्ठमिति शुश्रुम ॥३६॥
-
 > evaṁ strītvam anuprāptaḥ
 > sudyumno mānavo nṛpaḥ
 > sasmāra sa kulācāryaṁ
@@ -526,9 +416,6 @@ The body is just like a dress, and here this is proved. Sudyumna and his associa
 
 ### SB 9.1.37
 
-> स तस्य तां दशां दृष्ट्वा कृपया भृशपीडितः
-> सुद्युम्नस्याशयन्पुंस्त्वमुपाधावत शङ्करम ॥३७॥
-
 > sa tasya tāṁ daśāṁ dṛṣṭvā
 > kṛpayā bhṛśa-pīḍitaḥ
 > sudyumnasyāśayan puṁstvam
@@ -539,11 +426,6 @@ The body is just like a dress, and here this is proved. Sudyumna and his associa
 **Upon seeing Sudyumna's deplorable condition, Vasiṣṭha was very much aggrieved. Desiring for Sudyumna to regain his maleness, Vasiṣṭha again began to worship Lord Śaṅkara [Śiva].**
 
 ### SB 9.1.38-39
-
-> तुष्टस्तस्मै स भगवानृषये प्रियमावहन
-> स्वां च वाचमृतां कुर्वन्निदमाह विशाम्पते ॥३८॥
-> मासं पुमान्स भविता मासं स्त्री तव गोत्रजः
-> इत्थं व्यवस्थया कामं सुद्युम्नोऽवतु मेदिनीम ॥३९॥
 
 > tuṣṭas tasmai sa bhagavān
 > ṛṣaye priyam āvahan
@@ -563,9 +445,6 @@ The word *gotrajaḥ* is significant in this connection. *Brāhmaṇas* generall
 
 ### SB 9.1.40
 
-> आचार्यानुग्रहात्कामं लब्ध्वा पुंस्त्वं व्यवस्थया
-> पालयामास जगतीं नाभ्यनन्दन्स्म तं प्रजाः ॥४०॥
-
 > ācāryānugrahāt kāmaṁ
 > labdhvā puṁstvaṁ vyavasthayā
 > pālayām āsa jagatīṁ
@@ -579,9 +458,6 @@ The citizens could understand that the king was transformed into a female every 
 
 ### SB 9.1.41
 
-> तस्योत्कलो गयो राजन्विमलश्च त्रयः सुताः
-> दक्षिणापथराजानो बभूवुर्धर्मवत्सलाः ॥४१॥
-
 > tasyotkalo gayo rājan
 > vimalaś ca trayaḥ sutāḥ
 > dakṣiṇā-patha-rājāno
@@ -592,9 +468,6 @@ The citizens could understand that the king was transformed into a female every 
 **O King, Sudyumna had three very pious sons, named Utkala, Gaya and Vimala, who became the kings of the Dakṣiṇā-patha.**
 
 ### SB 9.1.42
-
-> ततः परिणते काले प्रतिष्ठानपतिः प्रभुः
-> पुरूरवस उत्सृज्य गां पुत्राय गतो वनम ॥४२॥
 
 > tataḥ pariṇate kāle
 > pratiṣṭhāna-patiḥ prabhuḥ
@@ -613,10 +486,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, First Chapter, of the *�
 
 ### SB 9.2.1
 
-> श्रीशुक उवाच
-> एवं गतेऽथ सुद्युम्ने मनुर्वैवस्वतः सुते
-> पुत्रकामस्तपस्तेपे यमुनायां शतं समाः ॥१॥
-
 > śrī-śuka uvāca
 > evaṁ gate 'tha sudyumne
 > manur vaivasvataḥ sute
@@ -629,9 +498,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, First Chapter, of the *�
 
 ### SB 9.2.2
 
-> ततोऽयजन्मनुर्देवमपत्यार्थं हरिं प्रभुम
-> इक्ष्वाकुपूर्वजान्पुत्रान्लेभे स्वसदृशान्दश ॥२॥
-
 > tato 'yajan manur devam
 > apatyārthaṁ hariṁ prabhum
 > ikṣvāku-pūrvajān putrān
@@ -642,9 +508,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, First Chapter, of the *�
 **Then, because of this desire for sons, the Manu known as Śrāddhadeva worshiped the Supreme Lord, the Personality of Godhead, the Lord of the demigods. Thus he got ten sons exactly like himself. Among them all, Ikṣvāku was the eldest.**
 
 ### SB 9.2.3
-
-> पृषध्रस्तु मनोः पुत्रो गोपालो गुरुणा कृतः
-> पालयामास गा यत्तो रात्र्यां वीरासनव्रतः ॥३॥
 
 > pṛṣadhras tu manoḥ putro
 > go-pālo guruṇā kṛtaḥ
@@ -659,9 +522,6 @@ One who becomes *vīrāsana* takes the vow to stand all night with a sword to gi
 
 ### SB 9.2.4
 
-> एकदा प्राविशद्गोष्ठं शार्दूलो निशि वर्षति
-> शयाना गाव उत्थाय भीतास्ता बभ्रमुर्व्रजे ॥४॥
-
 > ekadā prāviśad goṣṭhaṁ
 > śārdūlo niśi varṣati
 > śayānā gāva utthāya
@@ -672,11 +532,6 @@ One who becomes *vīrāsana* takes the vow to stand all night with a sword to gi
 **Once at night, while it was raining, a tiger entered the land of the cowshed. Upon seeing the tiger, all the cows, who were lying down, got up in fear and scattered here and there on the land.**
 
 ### SB 9.2.5-6
-
-> एकां जग्राह बलवान्सा चुक्रोश भयातुरा
-> तस्यास्तु क्रन्दितं श्रुत्वा पृषध्रोऽनुससार ह ॥५॥
-> खड्गमादाय तरसा प्रलीनोडुगणे निशि
-> अजानन्नच्छिनोद्बभ्रोः शिरः शार्दूलशङ्कया ॥६॥
 
 > ekāṁ jagrāha balavān
 > sā cukrośa bhayāturā
@@ -694,9 +549,6 @@ One who becomes *vīrāsana* takes the vow to stand all night with a sword to gi
 
 ### SB 9.2.7
 
-> व्याघ्रोऽपि वृक्णश्रवणो निस्त्रिंशाग्राहतस्ततः
-> निश्चक्राम भृशं भीतो रक्तं पथि समुत्सृजन ॥७॥
-
 > vyāghro 'pi vṛkṇa-śravaṇo
 > nistriṁśāgrāhatas tataḥ
 > niścakrāma bhṛśaṁ bhīto
@@ -708,9 +560,6 @@ One who becomes *vīrāsana* takes the vow to stand all night with a sword to gi
 
 ### SB 9.2.8
 
-> मन्यमानो हतं व्याघ्रं पृषध्रः परवीरहा
-> अद्राक्षीत्स्वहतां बभ्रुं व्युष्टायां निशि दुःखितः ॥८॥
-
 > manyamāno hataṁ vyāghraṁ
 > pṛṣadhraḥ para-vīra-hā
 > adrākṣīt sva-hatāṁ babhruṁ
@@ -721,9 +570,6 @@ One who becomes *vīrāsana* takes the vow to stand all night with a sword to gi
 **In the morning, when Pṛṣadhra, who was quite able to subdue his enemy, saw that he had killed the cow although at night he thought he had killed the tiger, he was very unhappy.**
 
 ### SB 9.2.9
-
-> तं शशाप कुलाचार्यः कृतागसमकामतः
-> न क्षत्रबन्धुः शूद्रस्त्वं कर्मणा भवितामुना ॥९॥
 
 > taṁ śaśāpa kulācāryaḥ
 > kṛtāgasam akāmataḥ
@@ -738,9 +584,6 @@ It appears that Vasiṣṭha was not free from *tamo-guṇa,* the mode of ignora
 
 ### SB 9.2.10
 
-> एवं शप्तस्तु गुरुणा प्रत्यगृह्णात्कृताञ्जलिः
-> अधारयद्व्रतं वीर ऊर्ध्वरेता मुनिप्रियम ॥१०॥
-
 > evaṁ śaptas tu guruṇā
 > pratyagṛhṇāt kṛtāñjaliḥ
 > adhārayad vrataṁ vīra
@@ -751,13 +594,6 @@ It appears that Vasiṣṭha was not free from *tamo-guṇa,* the mode of ignora
 **When the hero Pṛṣadhra was thus cursed by his spiritual master, he accepted the curse with folded hands. Then, having controlled his senses, he took the vow of brahmacarya, which is approved by all great sages.**
 
 ### SB 9.2.11-13
-
-> वासुदेवे भगवति सर्वात्मनि परेऽमले
-> एकान्तित्वं गतो भक्त्या सर्वभूतसुहृत्समः ॥११॥
-> विमुक्तसङ्गः शान्तात्मा संयताक्षोऽपरिग्रहः
-> यदृच्छयोपपन्नेन कल्पयन्वृत्तिमात्मनः ॥१२॥
-> आत्मन्यात्मानमाधाय ज्ञआनतृप्तः समाहितः
-> विचचार महीमेतां जडान्धबधिराकृतिः ॥१३॥
 
 > vāsudeve bhagavati
 > sarvātmani pare 'male
@@ -779,9 +615,6 @@ It appears that Vasiṣṭha was not free from *tamo-guṇa,* the mode of ignora
 **Thereafter, Pṛṣadhra gained relief from all responsibilities, became peaceful in mind, and established control over all his senses. Being unaffected by material conditions, being pleased with whatever was available by the grace of the Lord to maintain body and soul together, and being equal toward everyone, he gave full attention to the Supreme Personality of Godhead, Vāsudeva, who is the transcendental Supersoul, free from material contamination. Thus Pṛṣadhra, fully satisfied in pure knowledge, always keeping his mind on the Supreme Personality of Godhead, achieved pure devotional service to the Lord and began traveling all over the world, without affection for material activities, as if he were deaf, dumb and blind.**
 
 ### SB 9.2.14
-
-> एवं वृत्तो वनं गत्वा दृष्ट्वा दावाग्निमुत्थितम
-> तेनोपयुक्तकरणो ब्रह्म प्राप परं मुनिः ॥१४॥
 
 > evaṁ vṛtto vanaṁ gatvā
 > dṛṣṭvā dāvāgnim utthitam
@@ -810,9 +643,6 @@ Those who engage in devotional service are unaffected by the results of their ma
 
 ### SB 9.2.15
 
-> कविः कनीयान्विषयेषु निःस्पृहो विसृज्य राज्यं सह बन्धुभिर्वनम
-> निवेश्य चित्ते पुरुषं स्वरोचिषं विवेश कैशोरवयाः परं गतः ॥१५॥
-
 > kaviḥ kanīyān viṣayeṣu niḥspṛho
 > visṛjya rājyaṁ saha bandhubhir vanam
 > niveśya citte puruṣaṁ sva-rociṣaṁ
@@ -824,9 +654,6 @@ Those who engage in devotional service are unaffected by the results of their ma
 
 ### SB 9.2.16
 
-> करूषान्मानवादासन्कारूषाः क्षत्रजातयः
-> उत्तरापथगोप्तारो ब्रह्मण्या धर्मवत्सलाः ॥१६॥
-
 > karūṣān mānavād āsan
 > kārūṣāḥ kṣatra-jātayaḥ
 > uttarā-patha-goptāro
@@ -837,9 +664,6 @@ Those who engage in devotional service are unaffected by the results of their ma
 **From Karūṣa, another son of Manu, came the Kārūṣa dynasty, a family of kṣatriyas. The Kārūṣa kṣatriyas were the kings of the northern direction. They were celebrated protectors of brahminical culture and were all firmly religious.**
 
 ### SB 9.2.17
-
-> धृष्टाद्धार्ष्टमभूत्क्षत्रं ब्रह्मभूयं गतं क्षितौ
-> नृगस्य वंशः सुमतिर्भूतज्योतिस्ततो वसुः ॥१७॥
 
 > dhṛṣṭād dhārṣṭam abhūt kṣatraṁ
 > brahma-bhūyaṁ gataṁ kṣitau
@@ -861,9 +685,6 @@ If the qualities of one group are found in the men of another, those men should 
 
 ### SB 9.2.18
 
-> वसोः प्रतीकस्तत्पुत्र ओघवानोघवत्पिता
-> कन्या चौघवती नाम सुदर्शन उवाह ताम ॥१८॥
-
 > vasoḥ pratīkas tat-putra
 > oghavān oghavat-pitā
 > kanyā caughavatī nāma
@@ -874,9 +695,6 @@ If the qualities of one group are found in the men of another, those men should 
 **The son of Vasu was Pratīka, whose son was Oghavān. Oghavān's son was also known as Oghavān, and his daughter was Oghavatī. Sudarśana married that daughter.**
 
 ### SB 9.2.19
-
-> चित्रसेनो नरिष्यन्तादृक्षस्तस्य सुतोऽभवत
-> तस्य मीढ्वांस्ततः पूर्ण इन्द्रसेनस्तु तत्सुतः ॥१९॥
 
 > citraseno nariṣyantād
 > ṛkṣas tasya suto 'bhavat
@@ -889,9 +707,6 @@ If the qualities of one group are found in the men of another, those men should 
 
 ### SB 9.2.20
 
-> वीतिहोत्रस्त्विन्द्रसेनात्तस्य सत्यश्रवा अभूत
-> उरुश्रवाः सुतस्तस्य देवदत्तस्ततोऽभवत ॥२०॥
-
 > vītihotras tv indrasenāt
 > tasya satyaśravā abhūt
 > uruśravāḥ sutas tasya
@@ -902,9 +717,6 @@ If the qualities of one group are found in the men of another, those men should 
 **From Indrasena came Vītihotra, from Vītihotra came Satyaśravā, from Satyaśravā came the son named Uruśravā, and from Uruśravā came Devadatta.**
 
 ### SB 9.2.21
-
-> ततोऽग्निवेश्यो भगवानग्निः स्वयमभूत्सुतः
-> कानीन इति विख्यातो जातूकर्ण्यो महानृषिः ॥२१॥
 
 > tato 'gniveśyo bhagavān
 > agniḥ svayam abhūt sutaḥ
@@ -919,9 +731,6 @@ Agniveśya was also known as Kānīna and Jātūkarṇya.
 
 ### SB 9.2.22
 
-> ततो ब्रह्मकुलं जातमाग्निवेश्यायनं नृप
-> नरिष्यन्तान्वयः प्रोक्तो दिष्टवंशमतः शृणु ॥२२॥
-
 > tato brahma-kulaṁ jātam
 > āgniveśyāyanaṁ nṛpa
 > nariṣyantānvayaḥ prokto
@@ -932,11 +741,6 @@ Agniveśya was also known as Kānīna and Jātūkarṇya.
 **O King, from Agniveśya came a brahminical dynasty known as Āgniveśyāyana. Now that I have described the descendants of Nariṣyanta, let me describe the descendants of Diṣṭa. Please hear from me.**
 
 ### SB 9.2.23-24
-
-> नाभागो दिष्टपुत्रोऽन्यः कर्मणा वैश्यतां गतः
-> भलन्दनः सुतस्तस्य वत्सप्रीतिर्भलन्दनात ॥२३॥
-> वत्सप्रीतेः सुतः प्रांशुस्तत्सुतं प्रमतिं विदुः
-> खनित्रः प्रमतेस्तस्माच्चाक्षुषोऽथ विविंशतिः ॥२४॥
 
 > nābhāgo diṣṭa-putro 'nyaḥ
 > karmaṇā vaiśyatāṁ gataḥ
@@ -956,9 +760,6 @@ From Manu, one son became a *kṣatriya,* another a *brāhmaṇa,* and another a
 
 ### SB 9.2.25
 
-> विविंशतेः सुतो रम्भः खनीनेत्रोऽस्य धार्मिकः
-> करन्धमो महाराज तस्यासीदात्मजो नृप ॥२५॥
-
 > viviṁśateḥ suto rambhaḥ
 > khanīnetro 'sya dhārmikaḥ
 > karandhamo mahārāja
@@ -969,9 +770,6 @@ From Manu, one son became a *kṣatriya,* another a *brāhmaṇa,* and another a
 **The son of Viviṁśati was Rambha, whose son was the great and religious King Khanīnetra. O King, the son of Khanīnetra was King Karandhama.**
 
 ### SB 9.2.26
-
-> तस्यावीक्षित्सुतो यस्य मरुत्तश्चक्रवर्त्यभूत
-> संवर्तोऽयाजयद्यं वै महायोग्यङ्गिरःसुतः ॥२६॥
 
 > tasyāvīkṣit suto yasya
 > maruttaś cakravarty abhūt
@@ -984,9 +782,6 @@ From Manu, one son became a *kṣatriya,* another a *brāhmaṇa,* and another a
 
 ### SB 9.2.27
 
-> मरुत्तस्य यथा यज्ञओ न तथान्योऽस्ति कश्चन
-> सर्वं हिरण्मयं त्वासीद्यत्किञ्चिच्चास्य शोभनम ॥२७॥
-
 > maruttasya yathā yajño
 > na tathānyo 'sti kaścana
 > sarvaṁ hiraṇmayaṁ tv āsīd
@@ -997,9 +792,6 @@ From Manu, one son became a *kṣatriya,* another a *brāhmaṇa,* and another a
 **The sacrificial paraphernalia of King Marutta was extremely beautiful, for everything was made of gold. Indeed, no other sacrifice could compare to his.**
 
 ### SB 9.2.28
-
-> अमाद्यदिन्द्रः सोमेन दक्षिणाभिर्द्विजातयः
-> मरुतः परिवेष्टारो विश्वेदेवाः सभासदः ॥२८॥
 
 > amādyad indraḥ somena
 > dakṣiṇābhir dvijātayaḥ
@@ -1014,9 +806,6 @@ Because of the *yajña* performed by Marutta, everyone was pleased, especially t
 
 ### SB 9.2.29
 
-> मरुत्तस्य दमः पुत्रस्तस्यासीद्राज्यवर्धनः
-> सुधृतिस्तत्सुतो जज्ञए सौधृतेयो नरः सुतः ॥२९॥
-
 > maruttasya damaḥ putras
 > tasyāsīd rājyavardhanaḥ
 > sudhṛtis tat-suto jajñe
@@ -1027,9 +816,6 @@ Because of the *yajña* performed by Marutta, everyone was pleased, especially t
 **Marutta's son was Dama, Dama's son was Rājyavardhana, Rājyavardhana's son was Sudhṛti, and his son was Nara.**
 
 ### SB 9.2.30
-
-> तत्सुतः केवलस्तस्माद्धुन्धुमान्वेगवांस्ततः
-> बुधस्तस्याभवद्यस्य तृणबिन्दुर्महीपतिः ॥३०॥
 
 > tat-sutaḥ kevalas tasmād
 > dhundhumān vegavāṁs tataḥ
@@ -1042,9 +828,6 @@ Because of the *yajña* performed by Marutta, everyone was pleased, especially t
 
 ### SB 9.2.31
 
-> तं भेजेऽलम्बुषा देवी भजनीयगुणालयम
-> वराप्सरा यतः पुत्राः कन्या चेलविलाभवत ॥३१॥
-
 > taṁ bheje 'lambuṣā devī
 > bhajanīya-guṇālayam
 > varāpsarā yataḥ putrāḥ
@@ -1055,9 +838,6 @@ Because of the *yajña* performed by Marutta, everyone was pleased, especially t
 **The best of the Apsarās, the highly qualified girl named Alambuṣā, accepted the similarly qualified Tṛṇabindu as her husband. She gave birth to a few sons and a daughter known as Ilavilā.**
 
 ### SB 9.2.32
-
-> यस्यामुत्पादयामास विश्रवा धनदं सुतम
-> प्रादाय विद्यां परमामृषिर्योगेश्वरः पितुः ॥३२॥
 
 > yasyām utpādayām āsa
 > viśravā dhanadaṁ sutam
@@ -1070,9 +850,6 @@ Because of the *yajña* performed by Marutta, everyone was pleased, especially t
 
 ### SB 9.2.33
 
-> विशालः शून्यबन्धुश्च धूम्रकेतुश्च तत्सुताः
-> विशालो वंशकृद्राजा वैशालीं निर्ममे पुरीम ॥३३॥
-
 > viśālaḥ śūnyabandhuś ca
 > dhūmraketuś ca tat-sutāḥ
 > viśālo vaṁśa-kṛd rājā
@@ -1084,9 +861,6 @@ Because of the *yajña* performed by Marutta, everyone was pleased, especially t
 
 ### SB 9.2.34
 
-> हेमचन्द्रः सुतस्तस्य धूम्राक्षस्तस्य चात्मजः
-> तत्पुत्रात्संयमादासीत्कृशाश्वः सहदेवजः ॥३४॥
-
 > hemacandraḥ sutas tasya
 > dhūmrākṣas tasya cātmajaḥ
 > tat-putrāt saṁyamād āsīt
@@ -1097,11 +871,6 @@ Because of the *yajña* performed by Marutta, everyone was pleased, especially t
 **The son of Viśāla was known as Hemacandra, his son was Dhūmrākṣa, and his son was Saṁyama, whose sons were Devaja and Kṛśāśva.**
 
 ### SB 9.2.35-36
-
-> कृशाश्वात्सोमदत्तोऽभूद्योऽश्वमेधैरिडस्पतिम
-> इष्ट्वा पुरुषमापाग्र्यां गतिं योगेश्वराश्रिताम ॥३५॥
-> सौमदत्तिस्तु सुमतिस्तत्पुत्रो जनमेजयः
-> एते वैशालभूपालास्तृणबिन्दोर्यशोधराः ॥३६॥
 
 > kṛśāśvāt somadatto 'bhūd
 > yo 'śvamedhair iḍaspatim
@@ -1123,10 +892,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Second Chapter, of the *
 
 ### SB 9.3.1
 
-> श्रीशुक उवाच
-> शर्यातिर्मानवो राजा ब्रह्मिष्ठः सम्बभूव ह
-> यो वा अङ्गिरसां सत्रे द्वितीयमहरूचिवान ॥१॥
-
 > śrī-śuka uvāca
 > śaryātir mānavo rājā
 > brahmiṣṭhaḥ sambabhūva ha
@@ -1139,9 +904,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Second Chapter, of the *
 
 ### SB 9.3.2
 
-> सुकन्या नाम तस्यासीत्कन्या कमललोचना
-> तया सार्धं वनगतो ह्यगमच्च्यवनाश्रमम ॥२॥
-
 > sukanyā nāma tasyāsīt
 > kanyā kamala-locanā
 > tayā sārdhaṁ vana-gato
@@ -1152,9 +914,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Second Chapter, of the *
 **Śaryāti had a beautiful lotus-eyed daughter named Sukanyā, with whom he went to the forest to see the āśrama of Cyavana Muni.**
 
 ### SB 9.3.3
-
-> सा सखीभिः परिवृता विचिन्वन्त्यङ्घ्रिपान्वने
-> वल्मीकरन्ध्रे ददृशे खद्योते इव ज्योतिषी ॥३॥
 
 > sā sakhībhiḥ parivṛtā
 > vicinvanty aṅghripān vane
@@ -1167,9 +926,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Second Chapter, of the *
 
 ### SB 9.3.4
 
-> ते दैवचोदिता बाला ज्योतिषी कण्टकेन वै
-> अविध्यन्मुग्धभावेन सुस्रावासृक्ततो बहिः ॥४॥
-
 > te daiva-coditā bālā
 > jyotiṣī kaṇṭakena vai
 > avidhyan mugdha-bhāvena
@@ -1180,9 +936,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Second Chapter, of the *
 **As if induced by providence, the girl ignorantly pierced those two glowworms with a thorn, and when they were pierced, blood began to ooze out of them.**
 
 ### SB 9.3.5
-
-> शकृन्मूत्रनिरोधोऽभूत्सैनिकानां च तत्क्षणात
-> राजर्षिस्तमुपालक्ष्य पुरुषान्विस्मितोऽब्रवीत ॥५॥
 
 > śakṛn-mūtra-nirodho 'bhūt
 > sainikānāṁ ca tat-kṣaṇāt
@@ -1195,9 +948,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Second Chapter, of the *
 
 ### SB 9.3.6
 
-> अप्यभद्रं न युष्माभिर्भार्गवस्य विचेष्टितम
-> व्यक्तं केनापि नस्तस्य कृतमाश्रमदूषणम ॥६॥
-
 > apy abhadraṁ na yuṣmābhir
 > bhārgavasya viceṣṭitam
 > vyaktaṁ kenāpi nas tasya
@@ -1208,9 +958,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Second Chapter, of the *
 **How strange it is that one of us has attempted to do something wrong to Cyavana Muni, the son of Bhṛgu. It certainly appears that someone among us has polluted this āśrama.**
 
 ### SB 9.3.7
-
-> सुकन्या प्राह पितरं भीता किञ्चित्कृतं मया
-> द्वे ज्योतिषी अजानन्त्या निर्भिन्ने कण्टकेन वै ॥७॥
 
 > sukanyā prāha pitaraṁ
 > bhītā kiñcit kṛtaṁ mayā
@@ -1223,9 +970,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Second Chapter, of the *
 
 ### SB 9.3.8
 
-> दुहितुस्तद्वचः श्रुत्वा शर्यातिर्जातसाध्वसः
-> मुनिं प्रसादयामास वल्मीकान्तर्हितं शनैः ॥८॥
-
 > duhitus tad vacaḥ śrutvā
 > śaryātir jāta-sādhvasaḥ
 > muniṁ prasādayām āsa
@@ -1236,9 +980,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Second Chapter, of the *
 **After hearing this statement by his daughter, King Śaryāti was very much afraid. In various ways, he tried to appease Cyavana Muni, for it was he who sat within the hole of the earthworm.**
 
 ### SB 9.3.9
-
-> तदभिप्रायमाज्ञआय प्रादाद्दुहितरं मुनेः
-> कृच्छ्रान्मुक्तस्तमामन्त्र्य पुरं प्रायात्समाहितः ॥९॥
 
 > tad-abhiprāyam ājñāya
 > prādād duhitaraṁ muneḥ
@@ -1253,9 +994,6 @@ The King, after hearing the statement of his daughter, certainly told the great 
 
 ### SB 9.3.10
 
-> सुकन्या च्यवनं प्राप्य पतिं परमकोपनम
-> प्रीणयामास चित्तज्ञआ अप्रमत्तानुवृत्तिभिः ॥१०॥
-
 > sukanyā cyavanaṁ prāpya
 > patiṁ parama-kopanam
 > prīṇayām āsa citta-jñā
@@ -1268,9 +1006,6 @@ The King, after hearing the statement of his daughter, certainly told the great 
 This is an indication of the relationship between husband and wife. A great personality like Cyavana Muni has the temperament of always wanting to be in a superior position. Such a person cannot submit to anyone. Therefore, Cyavana Muni had an irritable temperament. His wife, Sukanyā, could understand his attitude, and under the circumstances she treated him accordingly. If any wife wants to be happy with her husband, she must try to understand her husband's temperament and please him. This is victory for a woman. Even in the dealings of Lord Kṛṣṇa with His different queens, it has been seen that although the queens were the daughters of great kings, they placed themselves before Lord Kṛṣṇa as His maidservants. However great a woman may be, she must place herself before her husband in this way; that is to say, she must be ready to carry out her husband's orders and please him in all circumstances. Then her life will be successful. When the wife becomes as irritable as the husband, their life at home is sure to be disturbed or ultimately completely broken. In the modern day, the wife is never submissive, and therefore home life is broken even by slight incidents. Either the wife or the husband may take advantage of the divorce laws. According to the Vedic law, however, there is no such thing as divorce laws, and a woman must be trained to be submissive to the will of her husband. Westerners contend that this is a slave mentality for the wife, but factually it is not; it is the tactic by which a woman can conquer the heart of her husband, however irritable or cruel he may be. In this case we clearly see that although Cyavana Muni was not young but indeed old enough to be Sukanyā's grandfather and was also very irritable, Sukanyā, the beautiful young daughter of a king, submitted herself to her old husband and tried to please him in all respects. Thus she was a faithful and chaste wife.
 
 ### SB 9.3.11
-
-> कस्यचित्त्वथ कालस्य नासत्यावाश्रमागतौ
-> तौ पूजयित्वा प्रोवाच वयो मे दत्तमीश्वरौ ॥११॥
 
 > kasyacit tv atha kālasya
 > nāsatyāv āśramāgatau
@@ -1285,9 +1020,6 @@ The heavenly physicians like the Aśvinī-kumāras could give youthful life even
 
 ### SB 9.3.12
 
-> ग्रहं ग्रहीष्ये सोमस्य यज्ञए वामप्यसोमपोः
-> क्रियतां मे वयोरूपं प्रमदानां यदीप्सितम ॥१२॥
-
 > grahaṁ grahīṣye somasya
 > yajñe vām apy asoma-poḥ
 > kriyatāṁ me vayo-rūpaṁ
@@ -1299,9 +1031,6 @@ The heavenly physicians like the Aśvinī-kumāras could give youthful life even
 
 ### SB 9.3.13
 
-> बाढमित्यूचतुर्विप्रमभिनन्द्य भिषक्तमौ
-> निमज्जतां भवानस्मिन्ह्रदे सिद्धविनिर्मिते ॥१३॥
-
 > bāḍham ity ūcatur vipram
 > abhinandya bhiṣaktamau
 > nimajjatāṁ bhavān asmin
@@ -1312,9 +1041,6 @@ The heavenly physicians like the Aśvinī-kumāras could give youthful life even
 **The great physicians, the Aśvinī-kumāras, very gladly accepted Cyavana Muni's proposal. Thus they told the brāhmaṇa, "Just dive into this lake of successful life." [One who bathes in this lake has his desires fulfilled.]**
 
 ### SB 9.3.14
-
-> इत्युक्तो जरया ग्रस्त देहो धमनिसन्ततः
-> ह्रदं प्रवेशितोऽश्विभ्यां वलीपलितविग्रहः ॥१४॥
 
 > ity ukto jarayā grasta-
 > deho dhamani-santataḥ
@@ -1329,9 +1055,6 @@ Cyavana Muni was so old that he could not enter the lake alone. Thus the Aśvin�
 
 ### SB 9.3.15
 
-> पुरुषास्त्रय उत्तस्थुरपीव्या वनिताप्रियाः
-> पद्मस्रजः कुण्डलिनस्तुल्यरूपाः सुवाससः ॥१५॥
-
 > puruṣās traya uttasthur
 > apīvyā vanitā-priyāḥ
 > padma-srajaḥ kuṇḍalinas
@@ -1342,9 +1065,6 @@ Cyavana Muni was so old that he could not enter the lake alone. Thus the Aśvin�
 **Thereafter, three men with very beautiful bodily features emerged from the lake. They were nicely dressed and decorated with earrings and garlands of lotuses. All of them were of the same standard of beauty.**
 
 ### SB 9.3.16
-
-> तान्निरीक्ष्य वरारोहा सरूपान्सूर्यवर्चसः
-> अजानती पतिं साध्वी अश्विनौ शरणं ययौ ॥१६॥
 
 > tān nirīkṣya varārohā
 > sarūpān sūrya-varcasaḥ
@@ -1359,9 +1079,6 @@ Sukanyā could have selected any one of them as her husband, for one could not d
 
 ### SB 9.3.17
 
-> दर्शयित्वा पतिं तस्यै पातिव्रत्येन तोषितौ
-> ऋषिमामन्त्र्य ययतुर्विमानेन त्रिविष्टपम ॥१७॥
-
 > darśayitvā patiṁ tasyai
 > pāti-vratyena toṣitau
 > ṛṣim āmantrya yayatur
@@ -1372,9 +1089,6 @@ Sukanyā could have selected any one of them as her husband, for one could not d
 **The Aśvinī-kumāras were very pleased to see Sukanyā's chastity and faithfulness. Thus they showed her Cyavana Muni, her husband, and after taking permission from him, they returned to the heavenly planets in their plane.**
 
 ### SB 9.3.18
-
-> यक्ष्यमाणोऽथ शर्यातिश्च्यवनस्याश्रमं गतः
-> ददर्श दुहितुः पार्श्वे पुरुषं सूर्यवर्चसम ॥१८॥
 
 > yakṣyamāṇo 'tha śaryātiś
 > cyavanasyāśramaṁ gataḥ
@@ -1387,9 +1101,6 @@ Sukanyā could have selected any one of them as her husband, for one could not d
 
 ### SB 9.3.19
 
-> राजा दुहितरं प्राह कृतपादाभिवन्दनाम
-> आशिषश्चाप्रयुञ्जानो नातिप्रीतिमना इव ॥१९॥
-
 > rājā duhitaraṁ prāha
 > kṛta-pādābhivandanām
 > āśiṣaś cāprayuñjāno
@@ -1400,9 +1111,6 @@ Sukanyā could have selected any one of them as her husband, for one could not d
 **After receiving obeisances from his daughter, the King, instead of offering blessings to her, appeared very displeased and spoke as follows.**
 
 ### SB 9.3.20
-
-> चिकीर्षितं ते किमिदं पतिस्त्वया प्रलम्भितो लोकनमस्कृतो मुनिः
-> यत्त्वं जराग्रस्तमसत्यसम्मतं विहाय जारं भजसेऽमुमध्वगम ॥२०॥
 
 > cikīrṣitaṁ te kim idaṁ patis tvayā
 > pralambhito loka-namaskṛto muniḥ
@@ -1417,9 +1125,6 @@ This shows the values of Vedic culture. According to the circumstances, Sukanyā
 
 ### SB 9.3.21
 
-> कथं मतिस्तेऽवगतान्यथा सतां कुलप्रसूते कुलदूषणं त्विदम
-> बिभर्षि जारं यदपत्रपा कुलं पितुश्च भर्तुश्च नयस्यधस्तमः ॥२१॥
-
 > kathaṁ matis te 'vagatānyathā satāṁ
 > kula-prasūte kula-dūṣaṇaṁ tv idam
 > bibharṣi jāraṁ yad apatrapā kulaṁ
@@ -1432,9 +1137,6 @@ This shows the values of Vedic culture. According to the circumstances, Sukanyā
 It is quite clear that according to Vedic culture a woman who accepts a paramour or second husband in the presence of the husband she has married is certainly responsible for the degradation of her father's family and the family of her husband. The rules of Vedic culture in this regard are strictly observed in the respectable families of *brāhmaṇas, kṣatriyas* and *vaiśyas* even today; only the *śūdras* are degraded in this matter. For a woman of the *brāhmaṇa, kṣatriya* or *vaiśya* class to accept another husband in the presence of the husband she has married, or to file for divorce or accept a boyfriend or paramour, is unacceptable in the Vedic culture. Therefore King Śaryāti, who did not know the real facts of Cyavana Muni's transformation, was surprised to see the behavior of his daughter.
 
 ### SB 9.3.22
-
-> एवं ब्रुवाणं पितरं स्मयमाना शुचिस्मिता
-> उवाच तात जामाता तवैष भृगुनन्दनः ॥२२॥
 
 > evaṁ bruvāṇaṁ pitaraṁ
 > smayamānā śuci-smitā
@@ -1449,9 +1151,6 @@ Although the father chastised the daughter, assuming that she had accepted anoth
 
 ### SB 9.3.23
 
-> शशंस पित्रे तत्सर्वं वयोरूपाभिलम्भनम
-> विस्मितः परमप्रीतस्तनयां परिषस्वजे ॥२३॥
-
 > śaśaṁsa pitre tat sarvaṁ
 > vayo-rūpābhilambhanam
 > vismitaḥ parama-prītas
@@ -1462,9 +1161,6 @@ Although the father chastised the daughter, assuming that she had accepted anoth
 **Thus Sukanyā explained how her husband had received the beautiful body of a young man. When the King heard this he was very surprised, and in great pleasure he embraced his beloved daughter.**
 
 ### SB 9.3.24
-
-> सोमेन याजयन्वीरं ग्रहं सोमस्य चाग्रहीत
-> असोमपोरप्यश्विनोश्च्यवनः स्वेन तेजसा ॥२४॥
 
 > somena yājayan vīraṁ
 > grahaṁ somasya cāgrahīt
@@ -1477,9 +1173,6 @@ Although the father chastised the daughter, assuming that she had accepted anoth
 
 ### SB 9.3.25
 
-> हन्तुं तमाददे वज्रं सद्यो मन्युरमर्षितः
-> सवज्रं स्तम्भयामास भुजमिन्द्रस्य भार्गवः ॥२५॥
-
 > hantuṁ tam ādade vajraṁ
 > sadyo manyur amarṣitaḥ
 > savajraṁ stambhayām āsa
@@ -1490,9 +1183,6 @@ Although the father chastised the daughter, assuming that she had accepted anoth
 **King Indra, being perturbed and angry, wanted to kill Cyavana Muni, and therefore he impetuously took up his thunderbolt. But Cyavana Muni, by his powers, paralyzed Indra's arm that held the thunderbolt.**
 
 ### SB 9.3.26
-
-> अन्वजानंस्ततः सर्वे ग्रहं सोमस्य चाश्विनोः
-> भिषजाविति यत्पूर्वं सोमाहुत्या बहिष्कृतौ ॥२६॥
 
 > anvajānaṁs tataḥ sarve
 > grahaṁ somasya cāśvinoḥ
@@ -1505,9 +1195,6 @@ Although the father chastised the daughter, assuming that she had accepted anoth
 
 ### SB 9.3.27
 
-> उत्तानबर्हिरानर्तो भूरिषेण इति त्रयः
-> शर्यातेरभवन्पुत्रा आनर्ताद्रेवतोऽभवत ॥२७॥
-
 > uttānabarhir ānarto
 > bhūriṣeṇa iti trayaḥ
 > śaryāter abhavan putrā
@@ -1518,9 +1205,6 @@ Although the father chastised the daughter, assuming that she had accepted anoth
 **King Śaryāti begot three sons, named Uttānabarhi, Ānarta and Bhūriṣeṇa. From Ānarta came a son named Revata.**
 
 ### SB 9.3.28
-
-> सोऽन्तःसमुद्रे नगरीं विनिर्माय कुशस्थलीम
-> आस्थितोऽभुङ्क्त विषयानानर्तादीनरिन्दम ॥२८॥
 
 > so 'ntaḥ-samudre nagarīṁ
 > vinirmāya kuśasthalīm
@@ -1535,9 +1219,6 @@ Although the father chastised the daughter, assuming that she had accepted anoth
 
 ### SB 9.3.29
 
-> तस्य पुत्रशतं जज्ञए ककुद्मिज्येष्ठमुत्तमम
-> ककुद्मी रेवतीं कन्यां स्वामादाय विभुं गतः ॥२९॥
-
 > kakudmī revatīṁ kanyāṁ
 > svām ādāya vibhuṁ gataḥ
 > putryā varaṁ paripraṣṭuṁ
@@ -1551,9 +1232,6 @@ It appears that Brahmaloka, the abode of Lord Brahmā, is also transcendental, a
 
 ### SB 9.3.30
 
-> पुत्र्या वरं परिप्रष्टुं ब्रह्मलोकमपावृतम
-> आवर्तमाने गान्धर्वे स्थितोऽलब्धक्षणः क्षणम ॥३०॥
-
 > āvartamāne gāndharve
 > sthito 'labdha-kṣaṇaḥ kṣaṇam
 > tad-anta ādyam ānamya
@@ -1565,9 +1243,6 @@ It appears that Brahmaloka, the abode of Lord Brahmā, is also transcendental, a
 
 ### SB 9.3.31
 
-> तदन्त आद्यमानम्य स्वाभिप्रायं न्यवेदयत
-> तच्छ्रुत्वा भगवान्ब्रह्मा प्रहस्य तमुवाच ह ॥३१॥
-
 > tac chrutvā bhagavān brahmā
 > prahasya tam uvāca ha
 > aho rājan niruddhās te
@@ -1578,9 +1253,6 @@ It appears that Brahmaloka, the abode of Lord Brahmā, is also transcendental, a
 **After hearing his words, Lord Brahmā, who is most powerful, laughed loudly and said to Kakudmī: O King, all those whom you may have decided within the core of your heart to accept as your son-in-law have passed away in the course of time.**
 
 ### SB 9.3.32
-
-> अहो राजन्निरुद्धास्ते कालेन हृदि ये कृताः
-> तत्पुत्रपौत्रनप्त्णां गोत्राणि च न शृण्महे ॥३२॥
 
 > tat putra-pautra-naptṝṇāṁ
 > gotrāṇi ca na śṛṇmahe
@@ -1595,9 +1267,6 @@ During Lord Brahmā's day, fourteen Manus or one thousand *mahā-yugas* pass awa
 
 ### SB 9.3.33
 
-> कालोऽभियातस्त्रिणव चतुर्युगविकल्पितः
-> तद्गच्छ देवदेवांशो बलदेवो महाबलः ॥३३॥
-
 > tad gaccha deva-devāṁśo
 > baladevo mahā-balaḥ
 > kanyā-ratnam idaṁ rājan
@@ -1608,9 +1277,6 @@ During Lord Brahmā's day, fourteen Manus or one thousand *mahā-yugas* pass awa
 **O King, leave here and offer your daughter to Lord Baladeva, who is still present. He is most powerful. Indeed, He is the Supreme Personality of Godhead, whose plenary portion is Lord Viṣṇu. Your daughter is fit to be given to Him in charity.**
 
 ### SB 9.3.34
-
-> कन्यारत्नमिदं राजन्नररत्नाय देहि भोः
-> भुवो भारावताराय भगवान्भूतभावनः ॥३४॥
 
 > bhuvo bhārāvatārāya
 > bhagavān bhūta-bhāvanaḥ
@@ -1623,10 +1289,6 @@ During Lord Brahmā's day, fourteen Manus or one thousand *mahā-yugas* pass awa
 
 ### SB 9.3.35
 
-> अवतीर्णो निजांशेन पुण्यश्रवणकीर्तनः
-> इत्यादिष्टोऽभिवन्द्याजं नृपः स्वपुरमागतः
-> त्यक्तं पुण्यजनत्रासाद्भ्रातृभिर्दिक्ष्ववस्थितैः ॥३५॥
-
 > ity ādiṣṭo 'bhivandyājaṁ
 > nṛpaḥ sva-puram āgataḥ
 > tyaktaṁ puṇya-jana-trāsād
@@ -1637,9 +1299,6 @@ During Lord Brahmā's day, fourteen Manus or one thousand *mahā-yugas* pass awa
 **Having received this order from Lord Brahmā, Kakudmī offered obeisances unto him and returned to his own residence. He then saw that his residence was vacant, having been abandoned by his brothers and other relatives, who were living in all directions because of fear of such higher living beings as the Yakṣas.**
 
 ### SB 9.3.36
-
-> सुतां दत्त्वानवद्याङ्गीं बलाय बलशालिने
-> बदर्याख्यं गतो राजा तप्तुं नारायणाश्रमम ॥३६॥
 
 > sutāṁ dattvānavadyāṅgīṁ
 > balāya bala-śāline
@@ -1656,10 +1315,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Third Chapter, of the *�
 
 ### SB 9.4.1
 
-> श्रीशुक उवाच
-> नाभागो नभगापत्यं यं ततं भ्रातरः कविम
-> यविष्ठं व्यभजन्दायं ब्रह्मचारिणमागतम ॥१॥
-
 > śrī-śuka uvāca
 > nābhāgo nabhagāpatyaṁ
 > yaṁ tataṁ bhrātaraḥ kavim
@@ -1674,9 +1329,6 @@ There are two kinds of *brahmacārīs.* One may return home, marry and become a 
 
 ### SB 9.4.2
 
-> भ्रातरोऽभाङ्क्त किं मह्यं भजाम पितरं तव
-> त्वां ममार्यास्तताभाङ्क्षुर्मा पुत्रक तदादृथाः ॥२॥
-
 > bhrātaro 'bhāṅkta kiṁ mahyaṁ
 > bhajāma pitaraṁ tava
 > tvāṁ mamāryās tatābhāṅkṣur
@@ -1687,9 +1339,6 @@ There are two kinds of *brahmacārīs.* One may return home, marry and become a 
 **Nābhāga inquired, "My dear brothers, what have you given to me as my share of our father's property?" His elder brothers answered, "We have kept our father as your share." But when Nābhāga went to his father and said, "My dear father, my elder brothers have given you as my share of property," the father replied, "My dear son, do not rely upon their cheating words. I am not your property."**
 
 ### SB 9.4.3
-
-> इमे अङ्गिरसः सत्रमासतेऽद्य सुमेधसः
-> षष्ठं षष्ठमुपेत्याहः कवे मुह्यन्ति कर्मणि ॥३॥
 
 > ime aṅgirasaḥ satram
 > āsate 'dya sumedhasaḥ
@@ -1703,11 +1352,6 @@ There are two kinds of *brahmacārīs.* One may return home, marry and become a 
 Nābhāga was very simple hearted. Therefore when he went to his father, the father, in compassion for his son, suggested that as a means of livelihood Nābhāga could go to the descendants of Aṅgirā and take advantage of their misgivings in performing *yajña.*
 
 ### SB 9.4.4-5
-
-> तांस्त्वं शंसय सूक्ते द्वे वैश्वदेवे महात्मनः
-> ते स्वर्यन्तो धनं सत्र परिशेषितमात्मनः ॥४॥
-> दास्यन्ति तेऽथ तानर्च्छ तथा स कृतवान्यथा
-> तस्मै दत्त्वा ययुः स्वर्गं ते सत्रपरिशेषणम ॥५॥
 
 > tāṁs tvaṁ śaṁsaya sūkte dve
 > vaiśvadeve mahātmanaḥ
@@ -1725,9 +1369,6 @@ Nābhāga was very simple hearted. Therefore when he went to his father, the fat
 
 ### SB 9.4.6
 
-> तं कश्चित्स्वीकरिष्यन्तं पुरुषः कृष्णदर्शनः
-> उवाचोत्तरतोऽभ्येत्य ममेदं वास्तुकं वसु ॥६॥
-
 > taṁ kaścit svīkariṣyantaṁ
 > puruṣaḥ kṛṣṇa-darśanaḥ
 > uvācottarato 'bhyetya
@@ -1738,9 +1379,6 @@ Nābhāga was very simple hearted. Therefore when he went to his father, the fat
 **Thereafter, while Nābhāga was accepting the riches, a black-looking person from the north came to him and said, "All the wealth from this sacrificial arena belongs to me."**
 
 ### SB 9.4.7
-
-> ममेदमृषिभिर्दत्तमिति तर्हि स्म मानवः
-> स्यान्नौ ते पितरि प्रश्नः पृष्टवान्पितरं यथा ॥७॥
 
 > mamedam ṛṣibhir dattam
 > iti tarhi sma mānavaḥ
@@ -1753,9 +1391,6 @@ Nābhāga was very simple hearted. Therefore when he went to his father, the fat
 
 ### SB 9.4.8
 
-> यज्ञअवास्तुगतं सर्वमुच्छिष्टमृषयः क्वचित
-> चक्रुर्हि भागं रुद्राय स देवः सर्वमर्हति ॥८॥
-
 > yajña-vāstu-gataṁ sarvam
 > ucchiṣṭam ṛṣayaḥ kvacit
 > cakrur hi bhāgaṁ rudrāya
@@ -1766,9 +1401,6 @@ Nābhāga was very simple hearted. Therefore when he went to his father, the fat
 **The father of Nābhāga said: Whatever the great sages sacrificed in the arena of the Dakṣa-yajña, they offered to Lord Śiva as his share. Therefore, everything in the sacrificial arena certainly belongs to Lord Śiva.**
 
 ### SB 9.4.9
-
-> नाभागस्तं प्रणम्याह तवेश किल वास्तुकम
-> इत्याह मे पिता ब्रह्मञ्छिरसा त्वां प्रसादये ॥९॥
 
 > nābhāgas taṁ praṇamyāha
 > taveśa kila vāstukam
@@ -1781,9 +1413,6 @@ Nābhāga was very simple hearted. Therefore when he went to his father, the fat
 
 ### SB 9.4.10
 
-> यत्ते पितावदद्धर्मं त्वं च सत्यं प्रभाषसे
-> ददामि ते मन्त्रदृशो ज्ञआनं ब्रह्म सनातनम ॥१०॥
-
 > yat te pitāvadad dharmaṁ
 > tvaṁ ca satyaṁ prabhāṣase
 > dadāmi te mantra-dṛśo
@@ -1794,9 +1423,6 @@ Nābhāga was very simple hearted. Therefore when he went to his father, the fat
 **Lord Śiva said: Whatever your father has said is the truth, and you also are speaking the same truth. Therefore, I, who know the Vedic mantras, shall explain transcendental knowledge to you.**
 
 ### SB 9.4.11
-
-> गृहाण द्रविणं दत्तं मत्सत्रपरिशेषितम
-> इत्युक्त्वान्तर्हितो रुद्रो भगवान्धर्मवत्सलः ॥११॥
 
 > gṛhāṇa draviṇaṁ dattaṁ
 > mat-satra-pariśeṣitam
@@ -1809,9 +1435,6 @@ Nābhāga was very simple hearted. Therefore when he went to his father, the fat
 
 ### SB 9.4.12
 
-> य एतत्संस्मरेत्प्रातः सायं च सुसमाहितः
-> कविर्भवति मन्त्रज्ञओ गतिं चैव तथात्मनः ॥१२॥
-
 > ya etat saṁsmaret prātaḥ
 > sāyaṁ ca susamāhitaḥ
 > kavir bhavati mantra-jño
@@ -1822,9 +1445,6 @@ Nābhāga was very simple hearted. Therefore when he went to his father, the fat
 **If one hears and chants or remembers this narration in the morning and evening with great attention, he certainly becomes learned, experienced in understanding the Vedic hymns, and expert in self-realization.**
 
 ### SB 9.4.13
-
-> नाभागादम्बरीषोऽभून्महाभागवतः कृती
-> नास्पृशद्ब्रह्मशापोऽपि यं न प्रतिहतः क्वचित ॥१३॥
 
 > nābhāgād ambarīṣo 'bhūn
 > mahā-bhāgavataḥ kṛtī
@@ -1837,10 +1457,6 @@ Nābhāga was very simple hearted. Therefore when he went to his father, the fat
 
 ### SB 9.4.14
 
-> श्रीराजोवाच
-> भगवन्छ्रोतुमिच्छामि राजर्षेस्तस्य धीमतः
-> न प्राभूद्यत्र निर्मुक्तो ब्रह्मदण्डो दुरत्ययः ॥१४॥
-
 > śrī-rājovāca
 > bhagavañ chrotum icchāmi
 > rājarṣes tasya dhīmataḥ
@@ -1852,12 +1468,6 @@ Nābhāga was very simple hearted. Therefore when he went to his father, the fat
 **King Parīkṣit inquired: O great personality, Mahārāja Ambarīṣa was certainly most exalted and meritorious in character. I wish to hear about him. How surprising it is that the curse of a brāhmaṇa, which is insurmountable, could not act upon him.**
 
 ### SB 9.4.15-16
-
-> श्रीशुक उवाच
-> अम्बरीषो महाभागः सप्तद्वीपवतीं महीम
-> अव्ययां च श्रियं लब्ध्वा विभवं चातुलं भुवि ॥१५॥
-> मेनेऽतिदुर्लभं पुंसां सर्वं तत्स्वप्नसंस्तुतम
-> विद्वान्विभवनिर्वाणं तमो विशति यत्पुमान ॥१६॥
 
 > śrī-śuka uvāca
 > ambarīṣo mahā-bhāgaḥ
@@ -1878,9 +1488,6 @@ For a devotee material opulence is insignificant, whereas for a nondevotee mater
 
 ### SB 9.4.17
 
-> वासुदेवे भगवति तद्भक्तेषु च साधुषु
-> प्राप्तो भावं परं विश्वं येनेदं लोष्ट्रवत्स्मृतम ॥१७॥
-
 > vāsudeve bhagavati
 > tad-bhakteṣu ca sādhuṣu
 > prāpto bhāvaṁ paraṁ viśvaṁ
@@ -1891,13 +1498,6 @@ For a devotee material opulence is insignificant, whereas for a nondevotee mater
 **Mahārāja Ambarīṣa was a great devotee of the Supreme Personality of Godhead, Vāsudeva, and of the saintly persons who are the Lord's devotees. Because of this devotion, he thought of the entire universe as being as insignificant as a piece of stone.**
 
 ### SB 9.4.18-20
-
-> स वै मनः कृष्णपदारविन्दयोर्वचांसि वैकुण्ठगुणानुवर्णने
-> करौ हरेर्मन्दिरमार्जनादिषु श्रुतिं चकाराच्युतसत्कथोदये ॥१८॥
-> मुकुन्दलिङ्गालयदर्शने दृशौ तद्भृत्यगात्रस्पर्शेऽङ्गसङ्गमम
-> घ्राणं च तत्पादसरोजसौरभे श्रीमत्तुलस्या रसनां तदर्पिते ॥१९॥
-> पादौ हरेः क्षेत्रपदानुसर्पणे शिरो हृषीकेशपदाभिवन्दने
-> कामं च दास्ये न तु कामकाम्यया यथोत्तमश्लोकजनाश्रया रतिः ॥२०॥
 
 > sa vai manaḥ kṛṣṇa-padāravindayor
 > vacāṁsi vaikuṇṭha-guṇānuvarṇane
@@ -1921,9 +1521,6 @@ For a devotee material opulence is insignificant, whereas for a nondevotee mater
 In *Bhagavad-gītā* [[bg/7/1|(Bg. 7.1)]] the Lord recommends, *mayy āsakta-manāḥ pārtha yogaṁ yuñjan mad-āśrayaḥ.* This indicates that one must execute devotional service under the guidance of a devotee or directly under the guidance of the Supreme Personality of Godhead. It is not possible, however, to train oneself without guidance from the spiritual master. Therefore, according to the instructions of Śrīla Rūpa Gosvāmī, the first business of a devotee is to accept a bona fide spiritual master who can train him to engage his various senses in rendering transcendental service to the Lord. The Lord also says in *Bhagavad-gītā* [[bg/7/1|(Bg. 7.1)]], *asaṁśayaṁ samagraṁ māṁ yathā jñāsyasi tac chṛṇu.* In other words, if one wants to understand the Supreme Personality of Godhead in completeness, one must follow the prescriptions given by Kṛṣṇa by following in the footsteps of Mahārāja Ambarīṣa. It is said, *hṛṣīkeṇa hṛṣīkeśa-sevanaṁ bhaktir ucyate*/ [[cc/madhya/19/170|[Cc. Madhya 19.170] ]] *bhakti* means to engage the senses in the service of the master of the senses, Kṛṣṇa, who is called Hṛṣīkeśa or Acyuta. These words are used in these verses. *Acyuta-sat-kathodaye, hṛṣīkeśa-padābhivandane.* The words Acyuta and Hṛṣīkeśa are also used in *Bhagavad-gītā. Bhagavad-gītā* is *kṛṣṇa-kathā* spoken directly by Kṛṣṇa, and *Śrīmad-Bhāgavatam* is also *kṛṣṇa-kathā* because everything described in the *Bhāgavatam* is in relationship with Kṛṣṇa.
 
 ### SB 9.4.21
-
-> एवं सदा कर्मकलापमात्मनः परेऽधियज्ञए भगवत्यधोक्षजे
-> सर्वात्मभावं विदधन्महीमिमां तन्निष्ठविप्राभिहितः शशास ह ॥२१॥
 
 > evaṁ sadā karma-kalāpam ātmanaḥ
 > pare 'dhiyajñe bhagavaty adhokṣaje
@@ -1961,9 +1558,6 @@ In modern times, there are legislative assemblies whose members are authorized t
 
 ### SB 9.4.22
 
-> ईजेऽश्वमेधैरधियज्ञअमीश्वरं महाविभूत्योपचिताङ्गदक्षिणैः
-> ततैर्वसिष्ठासितगौतमादिभिर्धन्वन्यभिस्रोतमसौ सरस्वतीम ॥२२॥
-
 > īje 'śvamedhair adhiyajñam īśvaraṁ
 > mahā-vibhūtyopacitāṅga-dakṣiṇaiḥ
 > tatair vasiṣṭhāsita-gautamādibhir
@@ -1977,9 +1571,6 @@ When one performs ritualistic sacrifices as prescribed in the *Vedas,* one needs
 
 ### SB 9.4.23
 
-> यस्य क्रतुषु गीर्वाणैः सदस्या ऋत्विजो जनाः
-> तुल्यरूपाश्चानिमिषा व्यदृश्यन्त सुवाससः ॥२३॥
-
 > yasya kratuṣu gīrvāṇaiḥ
 > sadasyā ṛtvijo janāḥ
 > tulya-rūpāś cānimiṣā
@@ -1990,9 +1581,6 @@ When one performs ritualistic sacrifices as prescribed in the *Vedas,* one needs
 **In the sacrifice arranged by Mahārāja Ambarīṣa, the members of the assembly and the priests [especially hotā, udgātā, brahmā and adhvaryu] were gorgeously dressed, and they all looked exactly like demigods. They eagerly saw to the proper performance of the yajña.**
 
 ### SB 9.4.24
-
-> स्वर्गो न प्रार्थितो यस्य मनुजैरमरप्रियः
-> शृण्वद्भिरुपगायद्भिरुत्तमश्लोकचेष्टितम ॥२४॥
 
 > svargo na prārthito yasya
 > manujair amara-priyaḥ
@@ -2013,9 +1601,6 @@ A pure devotee who has been trained in the practice of chanting and hearing the 
 "Devotees solely engaged in the devotional service of the Supreme Personality of Godhead, Nārāyaṇa, never fear any condition of life. The heavenly planets, liberation and the hellish planets are all the same to a devotee." [[sb/6/17/28|(SB 6.17.28)]] A devotee is always situated in the spiritual world. Therefore he does not desire anything. He is known as *akāma,* or desireless, because he has nothing to desire except to render transcendental loving service to the Supreme Personality of Godhead. Because Mahārāja Ambarīṣa was a most exalted devotee of the Lord, he trained his subjects in such a way that the citizens in his state were not interested in anything material, including even the happiness of the heavenly planets.
 
 ### SB 9.4.25
-
-> संवर्धयन्ति यत्कामाः स्वाराज्यपरिभाविताः
-> दुर्लभा नापि सिद्धानां मुकुन्दं हृदि पश्यतः ॥२५॥
 
 > saṁvardhayanti yat kāmāḥ
 > svārājya-paribhāvitāḥ
@@ -2046,9 +1631,6 @@ That which is not engaged in the service of the Lord is material, and nothing th
 
 ### SB 9.4.26
 
-> स इत्थं भक्तियोगेन तपोयुक्तेन पार्थिवः
-> स्वधर्मेण हरिं प्रीणन्सर्वान्कामान्शनैर्जहौ ॥२६॥
-
 > sa itthaṁ bhakti-yogena
 > tapo-yuktena pārthivaḥ
 > sva-dharmeṇa hariṁ prīṇan
@@ -2062,9 +1644,6 @@ Severe austerities in the practice of devotional service are of many varieties. 
 
 ### SB 9.4.27
 
-> गृहेषु दारेषु सुतेषु बन्धुषु द्विपोत्तमस्यन्दनवाजिवस्तुषु
-> अक्षय्यरत्नाभरणाम्बरादिष्वनन्तकोशेष्वकरोदसन्मतिम ॥२७॥
-
 > gṛheṣu dāreṣu suteṣu bandhuṣu
 > dvipottama-syandana-vāji-vastuṣu
 > akṣayya-ratnābharaṇāmbarādiṣv
@@ -2077,9 +1656,6 @@ Severe austerities in the practice of devotional service are of many varieties. 
 *Anāsaktasya viṣayān yathārham upayuñjataḥ.* Material possessions can be accepted as far as they can be used in devotional service. *Ānukūlyena kṛṣṇānuśīlanam* [[cc/madhya/19/167|[Cc. Madhya 19.167] ]]. *Ānukūlyasya saṅkalpaḥ prātikūlyasya varjanam.* In preaching, many things considered material are needed. A devotee should not have any attachment for such material involvements as house, wife, children, friends and cars. Mahārāja Ambarīṣa, for example, had all such things, but he was not attached to them. This is the effect of *bhakti-yoga. Bhaktiḥ pareśānubhavo viraktir anyatra ca* [[sb/11/2/42|(SB 11.2.42)]]. One who is advanced in devotional service has no attachment for material things for sense enjoyment, but for preaching, to spread the glories of the Lord, he accepts such things without attachment. *Anāsaktasya viṣayān yathārham upayuñjataḥ.* Everything can be used to the extent that it can be engaged in Kṛṣṇa's service.
 
 ### SB 9.4.28
-
-> तस्मा अदाद्धरिश्चक्रं प्रत्यनीकभयावहम
-> एकान्तभक्तिभावेन प्रीतो भक्ताभिरक्षणम ॥२८॥
 
 > tasmā adād dhariś cakraṁ
 > pratyanīka-bhayāvaham
@@ -2099,9 +1675,6 @@ A devotee, being always engaged in the service of the Lord, may not be expert in
 A devotee is always merged in the ocean of the transcendental bliss of rendering service to the Lord. Therefore he is not at all afraid of any adverse situation in the material world. The Lord also promises, *kaunteya pratijānīhi na me bhaktaḥ praṇaśyati:* "O Arjuna, you may declare to the world that the devotees of the Lord are never vanquished." [[bg/9/31|(Bg. 9.31)]] For the protection of the devotees, Kṛṣṇa's disc, the Sudarśana *cakra,* is always ready. This disc is extremely fearful to the nondevotees (*pratyanīka-bhayāvaham*). Therefore although Mahārāja Ambarīṣa was fully engaged in devotional service, his kingdom was free of all fear of adversity.
 
 ### SB 9.4.29
-
-> आरिराधयिषुः कृष्णं महिष्या तुल्यशीलया
-> युक्तः सांवत्सरं वीरो दधार द्वादशीव्रतम ॥२९॥
 
 > ārirādhayiṣuḥ kṛṣṇaṁ
 > mahiṣyā tulya-śīlayā
@@ -2123,9 +1696,6 @@ A person who has no mother at home and whose wife is not agreeable with him shou
 
 ### SB 9.4.30
 
-> व्रतान्ते कार्तिके मासि त्रिरात्रं समुपोषितः
-> स्नातः कदाचित्कालिन्द्यां हरिं मधुवनेऽर्चयत ॥३०॥
-
 > vratānte kārtike māsi
 > tri-rātraṁ samupoṣitaḥ
 > snātaḥ kadācit kālindyāṁ
@@ -2136,11 +1706,6 @@ A person who has no mother at home and whose wife is not agreeable with him shou
 **In the month of Kārtika, after observing that vow for one year, after observing a fast for three nights and after bathing in the Yamunā, Mahārāja Ambarīṣa worshiped the Supreme Personality of Godhead, Hari, in Madhuvana.**
 
 ### SB 9.4.31-32
-
-> महाभिषेकविधिना सर्वोपस्करसम्पदा
-> अभिषिच्याम्बराकल्पैर्गन्धमाल्यार्हणादिभिः ॥३१॥
-> तद्गतान्तरभावेन पूजयामास केशवम
-> ब्राह्मणांश्च महाभागान्सिद्धार्थानपि भक्तितः ॥३२॥
 
 > mahābhiṣeka-vidhinā
 > sarvopaskara-sampadā
@@ -2157,13 +1722,6 @@ A person who has no mother at home and whose wife is not agreeable with him shou
 **Following the regulative principles of mahābhiṣeka, Mahārāja Ambarīṣa performed the bathing ceremony for the Deity of Lord Kṛṣṇa with all paraphernalia, and then he dressed the Deity with fine clothing, ornaments, fragrant flower garlands and other paraphernalia for worship of the Lord. With attention and devotion, he worshiped Kṛṣṇa and all the greatly fortunate brāhmaṇas who were free from material desires.**
 
 ### SB 9.4.33-35
-
-> गवां रुक्मविषाणीनां रूप्याङ्घ्रीणां सुवाससाम
-> पयःशीलवयोरूप वत्सोपस्करसम्पदाम ॥३३॥
-> प्राहिणोत्साधुविप्रेभ्यो गृहेषु न्यर्बुदानि षट
-> भोजयित्वा द्विजानग्रे स्वाद्वन्नं गुणवत्तमम ॥३४॥
-> लब्धकामैरनुज्ञआतः पारणायोपचक्रमे
-> तस्य तर्ह्यतिथिः साक्षाद्दुर्वासा भगवानभूत ॥३५॥
 
 > gavāṁ rukma-viṣāṇīnāṁ
 > rūpyāṅghrīṇāṁ suvāsasām
@@ -2186,9 +1744,6 @@ A person who has no mother at home and whose wife is not agreeable with him shou
 
 ### SB 9.4.36
 
-> तमानर्चातिथिं भूपः प्रत्युत्थानासनार्हणैः
-> ययाचेऽभ्यवहाराय पादमूलमुपागतः ॥३६॥
-
 > tam ānarcātithiṁ bhūpaḥ
 > pratyutthānāsanārhaṇaiḥ
 > yayāce 'bhyavahārāya
@@ -2199,9 +1754,6 @@ A person who has no mother at home and whose wife is not agreeable with him shou
 **After standing up to receive Durvāsā Muni, King Ambarīṣa offered him a seat and paraphernalia of worship. Then, sitting at his feet, the King requested the great sage to eat.**
 
 ### SB 9.4.37
-
-> प्रतिनन्द्य स तां याचञ्आं कर्तुमावश्यकं गतः
-> निममज्ज बृहद्ध्यायन्कालिन्दीसलिले शुभे ॥३७॥
 
 > pratinandya sa tāṁ yācñāṁ
 > kartum āvaśyakaṁ gataḥ
@@ -2214,9 +1766,6 @@ A person who has no mother at home and whose wife is not agreeable with him shou
 
 ### SB 9.4.38
 
-> मुहूर्तार्धावशिष्टायां द्वादश्यां पारणं प्रति
-> चिन्तयामास धर्मज्ञओ द्विजैस्तद्धर्मसङ्कटे ॥३८॥
-
 > muhūrtārdhāvaśiṣṭāyāṁ
 > dvādaśyāṁ pāraṇaṁ prati
 > cintayām āsa dharma-jño
@@ -2227,11 +1776,6 @@ A person who has no mother at home and whose wife is not agreeable with him shou
 **In the meantime, only a muhūrta of the Dvādaśī day was left on which to break the fast. Consequently, it was imperative that the fast be broken immediately. In this dangerous situation, the King consulted learned brāhmaṇas.**
 
 ### SB 9.4.39-40
-
-> ब्राह्मणातिक्रमे दोषो द्वादश्यां यदपारणे
-> यत्कृत्वा साधु मे भूयादधर्मो वा न मां स्पृशेत ॥३९॥
-> अम्भसा केवलेनाथ करिष्ये व्रतपारणम
-> आहुरब्भक्षणं विप्रा ह्यशितं नाशितं च तत ॥४०॥
 
 > brāhmaṇātikrame doṣo
 > dvādaśyāṁ yad apāraṇe
@@ -2251,9 +1795,6 @@ When Mahārāja Ambarīṣa, in his dilemma, consulted the *brāhmaṇas* about 
 
 ### SB 9.4.41
 
-> इत्यपः प्राश्य राजर्षिश्चिन्तयन्मनसाच्युतम
-> प्रत्यचष्ट कुरुश्रेष्ठ द्विजागमनमेव सः ॥४१॥
-
 > ity apaḥ prāśya rājarṣiś
 > cintayan manasācyutam
 > pratyacaṣṭa kuru-śreṣṭha
@@ -2264,9 +1805,6 @@ When Mahārāja Ambarīṣa, in his dilemma, consulted the *brāhmaṇas* about 
 **O best of the Kuru dynasty, after he drank some water, King Ambarīṣa, meditating upon the Supreme Personality of Godhead within his heart, waited for the return of the great mystic Durvāsā Muni.**
 
 ### SB 9.4.42
-
-> दुर्वासा यमुनाकूलात्कृतावश्यक आगतः
-> राज्ञआभिनन्दितस्तस्य बुबुधे चेष्टितं धिया ॥४२॥
 
 > durvāsā yamunā-kūlāt
 > kṛtāvaśyaka āgataḥ
@@ -2279,9 +1817,6 @@ When Mahārāja Ambarīṣa, in his dilemma, consulted the *brāhmaṇas* about 
 
 ### SB 9.4.43
 
-> मन्युना प्रचलद्गात्रो भ्रुकुटीकुटिलाननः
-> बुभुक्षितश्च सुतरां कृताञ्जलिमभाषत ॥४३॥
-
 > manyunā pracalad-gātro
 > bhru-kuṭī-kuṭilānanaḥ
 > bubhukṣitaś ca sutarāṁ
@@ -2292,9 +1827,6 @@ When Mahārāja Ambarīṣa, in his dilemma, consulted the *brāhmaṇas* about 
 **Still hungry, Durvāsā Muni, his body trembling, his face curved and his eyebrows crooked in a frown, angrily spoke as follows to King Ambarīṣa, who stood before him with folded hands.**
 
 ### SB 9.4.44
-
-> अहो अस्य नृशंसस्य श्रियोन्मत्तस्य पश्यत
-> धर्मव्यतिक्रमं विष्णोरभक्तस्येशमानिनः ॥४४॥
 
 > aho asya nṛ-śaṁsasya
 > śriyonmattasya paśyata
@@ -2309,9 +1841,6 @@ When Mahārāja Ambarīṣa, in his dilemma, consulted the *brāhmaṇas* about 
 
 ### SB 9.4.45
 
-> यो मामतिथिमायातमातिथ्येन निमन्त्र्य च
-> अदत्त्वा भुक्तवांस्तस्य सद्यस्ते दर्शये फलम ॥४५॥
-
 > yo mām atithim āyātam
 > ātithyena nimantrya ca
 > adattvā bhuktavāṁs tasya
@@ -2325,9 +1854,6 @@ A devotee cannot be defeated by a so-called mystic *yogī.* This will be proved 
 
 ### SB 9.4.46
 
-> एवं ब्रुवाण उत्कृत्य जटां रोषप्रदीपितः
-> तया स निर्ममे तस्मै कृत्यां कालानलोपमाम ॥४६॥
-
 > evaṁ bruvāṇa utkṛtya
 > jaṭāṁ roṣa-pradīpitaḥ
 > tayā sa nirmame tasmai
@@ -2338,9 +1864,6 @@ A devotee cannot be defeated by a so-called mystic *yogī.* This will be proved 
 **As Durvāsā Muni said this, his face became red with anger. Uprooting a bunch of hair from his head, he created a demon resembling the blazing fire of devastation to punish Mahārāja Ambarīṣa.**
 
 ### SB 9.4.47
-
-> तामापतन्तीं ज्वलतीमसिहस्तां पदा भुवम
-> वेपयन्तीं समुद्वीक्ष्य न चचाल पदान्नृपः ॥४७॥
 
 > tām āpatantīṁ jvalatīm
 > asi-hastāṁ padā bhuvam
@@ -2355,9 +1878,6 @@ A devotee cannot be defeated by a so-called mystic *yogī.* This will be proved 
 
 ### SB 9.4.48
 
-> प्राग्दिष्टं भृत्यरक्षायां पुरुषेण महात्मना
-> ददाह कृत्यां तां चक्रं क्रुद्धाहिमिव पावकः ॥४८॥
-
 > prāg diṣṭaṁ bhṛtya-rakṣāyāṁ
 > puruṣeṇa mahātmanā
 > dadāha kṛtyāṁ tāṁ cakraṁ
@@ -2371,9 +1891,6 @@ As a pure devotee, Mahārāja Ambarīṣa, although in such danger, did not move
 
 ### SB 9.4.49
 
-> तदभिद्रवदुद्वीक्ष्य स्वप्रयासं च निष्फलम
-> दुर्वासा दुद्रुवे भीतो दिक्षु प्राणपरीप्सया ॥४९॥
-
 > tad-abhidravad udvīkṣya
 > sva-prayāsaṁ ca niṣphalam
 > durvāsā dudruve bhīto
@@ -2384,9 +1901,6 @@ As a pure devotee, Mahārāja Ambarīṣa, although in such danger, did not move
 **Upon seeing that his own attempt had failed and that the Sudarśana cakra was moving toward him, Durvāsā Muni became very frightened and began to run in all directions to save his life.**
 
 ### SB 9.4.50
-
-> तमन्वधावद्भगवद्रथाङ्गं दावाग्निरुद्धूतशिखो यथाहिम
-> तथानुषक्तं मुनिरीक्षमाणो गुहां विविक्षुः प्रससार मेरोः ॥५०॥
 
 > tam anvadhāvad bhagavad-rathāṅgaṁ
 > dāvāgnir uddhūta-śikho yathāhim
@@ -2399,9 +1913,6 @@ As a pure devotee, Mahārāja Ambarīṣa, although in such danger, did not move
 
 ### SB 9.4.51
 
-> दिशो नभः क्ष्मां विवरान्समुद्रान्लोकान्सपालांस्त्रिदिवं गतः सः
-> यतो यतो धावति तत्र तत्र सुदर्शनं दुष्प्रसहं ददर्श ॥५१॥
-
 > diśo nabhaḥ kṣmāṁ vivarān samudrān
 > lokān sapālāṁs tridivaṁ gataḥ saḥ
 > yato yato dhāvati tatra tatra
@@ -2413,9 +1924,6 @@ As a pure devotee, Mahārāja Ambarīṣa, although in such danger, did not move
 
 ### SB 9.4.52
 
-> अलब्धनाथः स सदा कुतश्चित्सन्त्रस्तचित्तोऽरणमेषमाणः
-> देवं विरिञ्चं समगाद्विधातस्त्राह्यात्मयोनेऽजिततेजसो माम ॥५२॥
-
 > alabdha-nāthaḥ sa sadā kutaścit
 > santrasta-citto 'raṇam eṣamāṇaḥ
 > devaṁ viriñcaṁ samagād vidhātas
@@ -2426,12 +1934,6 @@ As a pure devotee, Mahārāja Ambarīṣa, although in such danger, did not move
 **With a fearful heart, Durvāsā Muni went here and there seeking shelter, but when he could find no shelter, he finally approached Lord Brahmā and said, "O my lord, O Lord Brahmā, kindly protect me from the blazing Sudarśana cakra sent by the Supreme Personality of Godhead."**
 
 ### SB 9.4.53-54
-
-> श्रीब्रह्मोवाच
-> स्थानं मदीयं सहविश्वमेतत्क्रीडावसाने द्विपरार्धसंज्ञए
-> भ्रूभङ्गमात्रेण हि सन्दिधक्षोः कालात्मनो यस्य तिरोभविष्यति ॥५३॥
-> अहं भवो दक्षभृगुप्रधानाः प्रजेशभूतेशसुरेशमुख्याः
-> सर्वे वयं यन्नियमं प्रपन्ना मूर्ध्न्यार्पितं लोकहितं वहामः ॥५४॥
 
 > śrī-brahmovāca
 > sthānaṁ madīyaṁ saha-viśvam etat
@@ -2452,9 +1954,6 @@ In *Bhagavad-gītā* [[bg/10/34|(Bg. 10.34)]] it is said, *mṛtyuḥ sarva-hara
 
 ### SB 9.4.55
 
-> प्रत्याख्यातो विरिञ्चेन विष्णुचक्रोपतापितः
-> दुर्वासाः शरणं यातः शर्वं कैलासवासिनम ॥५५॥
-
 > pratyākhyāto viriñcena
 > viṣṇu-cakropatāpitaḥ
 > durvāsāḥ śaraṇaṁ yātaḥ
@@ -2465,10 +1964,6 @@ In *Bhagavad-gītā* [[bg/10/34|(Bg. 10.34)]] it is said, *mṛtyuḥ sarva-hara
 **When Durvāsā, who was greatly afflicted by the blazing fire of the Sudarśana cakra, was thus refused by Lord Brahmā, he tried to take shelter of Lord Śiva, who always resides on his planet, known as Kailāsa.**
 
 ### SB 9.4.56
-
-> श्रीशङ्कर उवाच
-> वयं न तात प्रभवाम भूम्नि यस्मिन्परेऽन्येऽप्यजजीवकोशाः
-> भवन्ति काले न भवन्ति हीदृशाः सहस्रशो यत्र वयं भ्रमामः ॥५६॥
 
 > śrī-śaṅkara uvāca
 > vayaṁ na tāta prabhavāma bhūmni
@@ -2483,13 +1978,6 @@ In *Bhagavad-gītā* [[bg/10/34|(Bg. 10.34)]] it is said, *mṛtyuḥ sarva-hara
 There are innumerable universes in the material world, and there are innumerable Lord Brahmās, Lord Śivas and other demigods. All of them rotate within this material world under the supreme direction of the Personality of Godhead. Therefore no one is able to compete with the strength of the Lord. Lord Śiva also refused to protect Durvāsā, for Lord Śiva also was under the rays of the Sudarśana *cakra* sent by the Supreme Personality of Godhead.
 
 ### SB 9.4.57-59
-
-> अहं सनत्कुमारश्च नारदो भगवानजः
-> कपिलोऽपान्तरतमो देवलो धर्म आसुरिः ॥५७॥
-> मरीचिप्रमुखाश्चान्ये सिद्धेशाः पारदर्शनाः
-> विदाम न वयं सर्वे यन्मायां माययावृताः ॥५८॥
-> तस्य विश्वेश्वरस्येदं शस्त्रं दुर्विषहं हि नः
-> तमेवं शरणं याहि हरिस्ते शं विधास्यति ॥५९॥
 
 > ahaṁ sanat-kumāraś ca
 > nārado bhagavān ajaḥ
@@ -2512,9 +2000,6 @@ There are innumerable universes in the material world, and there are innumerable
 
 ### SB 9.4.60
 
-> ततो निराशो दुर्वासाः पदं भगवतो ययौ
-> वैकुण्ठाख्यं यदध्यास्ते श्रीनिवासः श्रिया सह ॥६०॥
-
 > tato nirāśo durvāsāḥ
 > padaṁ bhagavato yayau
 > vaikuṇṭhākhyaṁ yad adhyāste
@@ -2526,8 +2011,6 @@ There are innumerable universes in the material world, and there are innumerable
 
 ### SB 9.4.61
 
-> सन्दह्यमानो ऽजितशस्त्रवह्निना तत्पादमूले पतितः सवेपथुः आहाच्युतानन्त सदीप्सित प्रभो कृतागसं मावहि विश्वभावन ॥६१॥
-
 sandahyamāno ’jita-śastra-vahninā tat-pāda-mūle patitaḥ savepathuḥ āhācyutānanta sad-īpsita prabho kṛtāgasaṁ māvahi viśva-bhāvana
 
 sandahyamānaḥ — being burned by the heat ; ajita - śastra - vahninā — by the blazing fire of the Supreme Personality of Godhead’s weapon ; tat - pāda - mūle — at His lotus feet ; patitaḥ — falling down ; sa - vepathuḥ — with trembling of the body ; āha — said ; acyuta — O my Lord, O infallible one ; ananta — O You of unlimited prowess ; sat - īpsita — O Lord desired by saintly persons ; prabho — O Supreme ; kṛta - āgasam — the greatest offender ; mā — to me ; avahi — give protection ; viśva - bhāvana — O well-wisher of the whole universe.
@@ -2535,9 +2018,6 @@ sandahyamānaḥ — being burned by the heat ; ajita - śastra - vahninā — b
 Durvāsā Muni, the great mystic, scorched by the heat of the Sudarśana cakra, fell at the lotus feet of Nārāyaṇa. His body trembling, he spoke as follows: O infallible, unlimited Lord, protector of the entire universe, You are the only desirable objective for all devotees. I am a great offender, my Lord. Please give me protection.
 
 ### SB 9.4.62
-
-> अजानता ते परमानुभावं कृतं मयाघं भवतः प्रियाणाम
-> विधेहि तस्यापचितिं विधातर्मुच्येत यन्नाम्न्युदिते नारकोऽपि ॥६२॥
 
 > ajānatā te paramānubhāvaṁ
 > kṛtaṁ mayāghaṁ bhavataḥ priyāṇām
@@ -2549,10 +2029,6 @@ Durvāsā Muni, the great mystic, scorched by the heat of the Sudarśana cakra, 
 **O my Lord, O supreme controller, without knowledge of Your unlimited prowess I have offended Your most dear devotee. Very kindly save me from the reaction of this offense. You can do everything, for even if a person is fit for going to hell, You can deliver him simply by awakening within his heart the holy name of Your Lordship.**
 
 ### SB 9.4.63
-
-> श्रीभगवानुवाच
-> अहं भक्तपराधीनो ह्यस्वतन्त्र इव द्विज
-> साधुभिर्ग्रस्तहृदयो भक्तैर्भक्तजनप्रियः ॥६३॥
 
 > śrī-bhagavān uvāca
 > ahaṁ bhakta-parādhīno
@@ -2568,9 +2044,6 @@ All the great stalwart personalities in the universe, including Lord Brahmā and
 
 ### SB 9.4.64
 
-> नाहमात्मानमाशासे मद्भक्तैः साधुभिर्विना
-> श्रियं चात्यन्तिकीं ब्रह्मन्येषां गतिरहं परा ॥६४॥
-
 > nāham ātmānam āśāse
 > mad-bhaktaiḥ sādhubhir vinā
 > śriyaṁ cātyantikīṁ brahman
@@ -2583,9 +2056,6 @@ All the great stalwart personalities in the universe, including Lord Brahmā and
 The Supreme Personality of Godhead is self-sufficient, but to enjoy His transcendental bliss He requires the cooperation of His devotees. In Vṛndāvana, for example, although Lord Kṛṣṇa is full in Himself, He wants the cooperation of His devotees like the cowherd boys and the *gopīs* to increase His transcendental bliss. Such pure devotees, who can increase the pleasure potency of the Supreme Personality of Godhead, are certainly most dear to Him. Not only does the Supreme Personality of Godhead enjoy the company of His devotees, but because He is unlimited He wants to increase His devotees unlimitedly. Thus, He descends to the material world to induce the nondevotees and rebellious living entities to return home, back to Godhead. He requests them to surrender unto Him because, unlimited as He is, He wants to increase His devotees unlimitedly. The Kṛṣṇa consciousness movement is an attempt to increase the number of pure devotees of the Supreme Lord more and more. It is certain that a devotee who helps in this endeavor to satisfy the Supreme Personality of Godhead becomes indirectly a controller of the Supreme Lord. Although the Supreme Lord is full in six opulences, He does not feel transcendental bliss without His devotees. An example that may be cited in this regard is that if a very rich man does not have sons in a family he does not feel happiness. Indeed, sometimes a rich man adopts a son to complete his happiness. The science of transcendental bliss is known to the pure devotee. Therefore the pure devotee is always engaged in increasing the transcendental happiness of the Lord.
 
 ### SB 9.4.65
-
-> ये दारागारपुत्राप्त प्राणान्वित्तमिमं परम
-> हित्वा मां शरणं याताः कथं तांस्त्यक्तुमुत्सहे ॥६५॥
 
 > ye dārāgāra-putrāpta-
 > prāṇān vittam imaṁ param
@@ -2601,9 +2071,6 @@ The Supreme Personality of Godhead is worshiped by the words *brahmaṇya-devāy
 Another point in this verse is that attachment to *dārāgāra-putrāpta*—home, wife, children, friendship, society and love—is not the way to achieve the favor of the Supreme Personality of Godhead. One who is attached to hearth and home for material pleasure cannot become a pure devotee. Sometimes a pure devotee may have a habit or attraction for wife, children and home but at the same time want to serve the Supreme Lord to the best of his ability. For such a devotee, the Lord makes a special arrangement to take away the objects of his false attachment and thus free him from attachment to wife, home, children, friends and so on. This is special mercy bestowed upon the devotee to bring him back home, back to Godhead.
 
 ### SB 9.4.66
-
-> मयि निर्बद्धहृदयाः साधवः समदर्शनाः
-> वशे कुर्वन्ति मां भक्त्या सत्स्त्रियः सत्पतिं यथा ॥६६॥
 
 > mayi nirbaddha-hṛdayāḥ
 > sādhavaḥ sama-darśanāḥ
@@ -2624,9 +2091,6 @@ People suffer from material distress because they are not attached to the Suprem
 
 ### SB 9.4.67
 
-> मत्सेवया प्रतीतं ते सालोक्यादिचतुष्टयम
-> नेच्छन्ति सेवया पूर्णाः कुतोऽन्यत्कालविप्लुतम ॥६७॥
-
 > mat-sevayā pratītaṁ te
 > sālokyādi-catuṣṭayam
 > necchanti sevayā pūrṇāḥ
@@ -2644,9 +2108,6 @@ People suffer from material distress because they are not attached to the Suprem
 Bilvamaṅgala Ṭhākura realized that if one develops his natural devotional service to the Supreme Personality of Godhead, *mukti* stands before him with folded hands to offer all kinds of service. In other words, the devotee is already liberated. There is no need for him to aspire for different types of liberation. The pure devotee automatically achieves liberation, even without desiring it.
 
 ### SB 9.4.68
-
-> साधवो हृदयं मह्यं साधूनां हृदयं त्वहम
-> मदन्यत्ते न जानन्ति नाहं तेभ्यो मनागपि ॥६८॥
 
 > sādhavo hṛdayaṁ mahyaṁ
 > sādhūnāṁ hṛdayaṁ tv aham
@@ -2668,10 +2129,6 @@ Since Durvāsā Muni wanted to chastise Mahārāja Ambarīṣa, it is to be unde
 
 ### SB 9.4.69
 
-> उपायं कथयिष्यामि तव विप्र शृणुष्व तत
-> अयं ह्यात्माभिचारस्ते यतस्तं याहि मा चिरम
-> साधुषु प्रहितं तेजः प्रहर्तुः कुरुतेऽशिवम ॥६९॥
-
 > upāyaṁ kathayiṣyāmi
 > tava vipra śṛṇuṣva tat
 > ayaṁ hy ātmābhicāras te
@@ -2687,9 +2144,6 @@ A Vaiṣṇava is always an object of envy for nondevotees, even when the nondev
 
 ### SB 9.4.70
 
-> तपो विद्या च विप्राणां निःश्रेयसकरे उभे
-> ते एव दुर्विनीतस्य कल्पेते कर्तुरन्यथा ॥७०॥
-
 > tapo vidyā ca viprāṇāṁ
 > niḥśreyasa-kare ubhe
 > te eva durvinītasya
@@ -2702,9 +2156,6 @@ A Vaiṣṇava is always an object of envy for nondevotees, even when the nondev
 It is said that a jewel is very valuable, but when it is on the hood of a serpent, it is dangerous despite its value. Similarly, when a materialistic nondevotee achieves great success in learning and austerity, that success is dangerous for all of society. So-called learned scientists, for example, invented atomic weapons that are dangerous for all humanity. It is therefore said, *maṇinā bhūṣitaḥ sarpaḥ kim asau na bhayaṅkaraḥ.* A serpent with a jewel on its hood is as dangerous as a serpent without such a jewel. Durvāsā Muni was a very learned *brāhmaṇa* equipped with mystic power, but because he was not a gentleman, he did not know how to use his power. He was therefore extremely dangerous. The Supreme Personality of Godhead is never inclined toward a dangerous person who uses his mystic power for some personal design. By the laws of nature, therefore, such misuse of power is ultimately dangerous not for society but for the person who misuses it.
 
 ### SB 9.4.71
-
-> ब्रह्मंस्तद्गच्छ भद्रं ते नाभागतनयं नृपम
-> क्षमापय महाभागं ततः शान्तिर्भविष्यति ॥७१॥
 
 > brahmaṁs tad gaccha bhadraṁ te
 > nābhāga-tanayaṁ nṛpam
@@ -2750,10 +2201,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fourth Chapter, of the *
 
 ### SB 9.5.1
 
-> श्रीशुक उवाच
-> एवं भगवतादिष्टो दुर्वासाश्चक्रतापितः
-> अम्बरीषमुपावृत्य तत्पादौ दुःखितोऽग्रहीत ॥१॥
-
 > śrī-śuka uvāca
 > evaṁ bhagavatādiṣṭo
 > durvāsāś cakra-tāpitaḥ
@@ -2766,9 +2213,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fourth Chapter, of the *
 
 ### SB 9.5.2
 
-> तस्य सोद्यममावीक्ष्य पादस्पर्शविलज्जितः
-> अस्तावीत्तद्धरेरस्त्रं कृपया पीडितो भृशम ॥२॥
-
 > tasya sodyamam āvīkṣya
 > pāda-sparśa-vilajjitaḥ
 > astāvīt tad dharer astraṁ
@@ -2779,10 +2223,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fourth Chapter, of the *
 **When Durvāsā touched his lotus feet, Mahārāja Ambarīṣa was very much ashamed, and when he saw Durvāsā attempting to offer prayers, because of mercy he was aggrieved even more. Thus he immediately began offering prayers to the great weapon of the Supreme Personality of Godhead.**
 
 ### SB 9.5.3
-
-> अम्बरीष उवाच
-> त्वमग्निर्भगवान्सूर्यस्त्वं सोमो ज्योतिषां पतिः
-> त्वमापस्त्वं क्षितिर्व्योम वायुर्मात्रेन्द्रियाणि च ॥३॥
 
 > ambarīṣa uvāca
 > tvam agnir bhagavān sūryas
@@ -2796,9 +2236,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fourth Chapter, of the *
 
 ### SB 9.5.4
 
-> सुदर्शन नमस्तुभ्यं सहस्राराच्युतप्रिय
-> सर्वास्त्रघातिन्विप्राय स्वस्ति भूया इडस्पते ॥४॥
-
 > sudarśana namas tubhyaṁ
 > sahasrārācyuta-priya
 > sarvāstra-ghātin viprāya
@@ -2809,9 +2246,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fourth Chapter, of the *
 **O most favorite of Acyuta, the Supreme Personality of Godhead, you have thousands of spokes. O master of the material world, destroyer of all weapons, original vision of the Personality of Godhead, I offer my respectful obeisances unto you. Kindly give shelter and be auspicious to this brāhmaṇa.**
 
 ### SB 9.5.5
-
-> त्वं धर्मस्त्वमृतं सत्यं त्वं यज्ञओऽखिलयज्ञअभुक
-> त्वं लोकपालः सर्वात्मा त्वं तेजः पौरुषं परम ॥५॥
 
 > tvaṁ dharmas tvam ṛtaṁ satyaṁ
 > tvaṁ yajño 'khila-yajña-bhuk
@@ -2826,9 +2260,6 @@ The word *sudarśana* means "auspicious vision." From Vedic instructions we unde
 
 ### SB 9.5.6
 
-> नमः सुनाभाखिलधर्मसेतवे ह्यधर्मशीलासुरधूमकेतवे
-> त्रैलोक्यगोपाय विशुद्धवर्चसे मनोजवायाद्भुतकर्मणे गृणे ॥६॥
-
 > namaḥ sunābhākhila-dharma-setave
 > hy adharma-śīlāsura-dhūma-ketave
 > trailokya-gopāya viśuddha-varcase
@@ -2841,9 +2272,6 @@ The word *sudarśana* means "auspicious vision." From Vedic instructions we unde
 The disc of the Lord is called Sudarśana because he does not discriminate between high and low criminals or demons. Durvāsā Muni was certainly a powerful *brāhmaṇa,* but his acts against the pure devotee Mahārāja Ambarīṣa were no better than the activities of *asuras.* As stated in the *śāstras, dharmaṁ tu sākṣād bhagavat-praṇītam:* [[sb/6/3/19|[SB 6.3.19] ]] the word *dharma* refers to the orders or laws given by the Supreme Personality of Godhead. *Sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja*/ [[bg/18/66|[Bg. 18.66] ]] real *dharma* is surrender unto the Supreme Personality of Godhead. Therefore real *dharma* means *bhakti,* or devotional service to the Lord. The Sudarśana *cakra* is here addressed as *dharma-setave,* the protector of *dharma.* Mahārāja Ambarīṣa was a truly religious person, and consequently for his protection the Sudarśana *cakra* was ready to punish even such a strict *brāhmaṇa* as Durvāsā Muni because he had acted like a demon. There are demons even in the form of *brāhmaṇas.* Therefore the Sudarśana *cakra* does not discriminate between *brāhmaṇa* demons and *śūdra* demons. Anyone against the Supreme Personality of Godhead and His devotees is called a demon. In the *śāstras* we find many *brāhmaṇas* and *kṣatriyas* who acted as demons and have been described as demons. According to the verdict of the *śāstras,* one has to be understood according to his symptoms. If one is born of a *brāhmaṇa* father but his symptoms are demoniac, he is regarded as a demon. The Sudarśana *cakra* is always concerned with annihilating the demons. Therefore he is described as *adharma-śīlāsura-dhūma-ketave.* Those who are not devotees are called *adharma-śīla.* The Sudarśana *cakra* is just like an inauspicious comet for all such demons.
 
 ### SB 9.5.7
-
-> त्वत्तेजसा धर्ममयेन संहृतं तमः प्रकाशश्च दृशो महात्मनाम
-> दुरत्ययस्ते महिमा गिरां पते त्वद्रूपमेतत्सदसत्परावरम ॥७॥
 
 > tvat-tejasā dharma-mayena saṁhṛtaṁ
 > tamaḥ prakāśaś ca dṛśo mahātmanām
@@ -2858,9 +2286,6 @@ Without illumination, nothing can be seen, especially in this material world. Th
 
 ### SB 9.5.8
 
-> यदा विसृष्टस्त्वमनञ्जनेन वै बलं प्रविष्टोऽजित दैत्यदानवम
-> बाहूदरोर्वङ्घ्रिशिरोधराणि वृश्चन्नजस्रं प्रधने विराजसे ॥८॥
-
 > yadā visṛṣṭas tvam anañjanena vai
 > balaṁ praviṣṭo 'jita daitya-dānavam
 > bāhūdarorv-aṅghri-śirodharāṇi
@@ -2871,9 +2296,6 @@ Without illumination, nothing can be seen, especially in this material world. Th
 **O indefatigable one, when you are sent by the Supreme Personality of Godhead to enter among the soldiers of the Daityas and the Dānavas, you stay on the battlefield and unendingly separate their arms, bellies, thighs, legs and heads.**
 
 ### SB 9.5.9
-
-> स त्वं जगत्त्राण खलप्रहाणये निरूपितः सर्वसहो गदाभृता
-> विप्रस्य चास्मत्कुलदैवहेतवे विधेहि भद्रं तदनुग्रहो हि नः ॥९॥
 
 > sa tvaṁ jagat-trāṇa khala-prahāṇaye
 > nirūpitaḥ sarva-saho gadā-bhṛtā
@@ -2886,9 +2308,6 @@ Without illumination, nothing can be seen, especially in this material world. Th
 
 ### SB 9.5.10
 
-> यद्यस्ति दत्तमिष्टं वा स्वधर्मो वा स्वनुष्ठितः
-> कुलं नो विप्रदैवं चेद्द्विजो भवतु विज्वरः ॥१०॥
-
 > yady asti dattam iṣṭaṁ vā
 > sva-dharmo vā svanuṣṭhitaḥ
 > kulaṁ no vipra-daivaṁ ced
@@ -2900,9 +2319,6 @@ Without illumination, nothing can be seen, especially in this material world. Th
 
 ### SB 9.5.11
 
-> यदि नो भगवान्प्रीत एकः सर्वगुणाश्रयः
-> सर्वभूतात्मभावेन द्विजो भवतु विज्वरः ॥११॥
-
 > yadi no bhagavān prīta
 > ekaḥ sarva-guṇāśrayaḥ
 > sarva-bhūtātma-bhāvena
@@ -2913,10 +2329,6 @@ Without illumination, nothing can be seen, especially in this material world. Th
 **If the Supreme Personality of Godhead, who is one without a second, who is the reservoir of all transcendental qualities, and who is the life and soul of all living entities, is pleased with us, we wish that this brāhmaṇa, Durvāsā Muni, be freed from the pain of being burned.**
 
 ### SB 9.5.12
-
-> श्रीशुक उवाच
-> इति संस्तुवतो राज्ञओ विष्णुचक्रं सुदर्शनम
-> अशाम्यत्सर्वतो विप्रं प्रदहद्राजयाचञ्अया ॥१२॥
 
 > śrī-śuka uvāca
 > iti saṁstuvato rājño
@@ -2930,9 +2342,6 @@ Without illumination, nothing can be seen, especially in this material world. Th
 
 ### SB 9.5.13
 
-> स मुक्तोऽस्त्राग्नितापेन दुर्वासाः स्वस्तिमांस्ततः
-> प्रशशंस तमुर्वीशं युञ्जानः परमाशिषः ॥१३॥
-
 > sa mukto 'strāgni-tāpena
 > durvāsāḥ svastimāṁs tataḥ
 > praśaśaṁsa tam urvīśaṁ
@@ -2943,10 +2352,6 @@ Without illumination, nothing can be seen, especially in this material world. Th
 **Durvāsā Muni, the greatly powerful mystic, was indeed satisfied when freed from the fire of the Sudarśana cakra. Thus he praised the qualities of Mahārāja Ambarīṣa and offered him the highest benedictions.**
 
 ### SB 9.5.14
-
-> दुर्वासा उवाच
-> अहो अनन्तदासानां महत्त्वं दृष्टमद्य मे
-> कृतागसोऽपि यद्राजन्मङ्गलानि समीहसे ॥१४॥
 
 > durvāsā uvāca
 > aho ananta-dāsānāṁ
@@ -2960,9 +2365,6 @@ Without illumination, nothing can be seen, especially in this material world. Th
 
 ### SB 9.5.15
 
-> दुष्करः को नु साधूनां दुस्त्यजो वा महात्मनाम
-> यैः सङ्गृहीतो भगवान्सात्वतामृषभो हरिः ॥१५॥
-
 > duṣkaraḥ ko nu sādhūnāṁ
 > dustyajo vā mahātmanām
 > yaiḥ saṅgṛhīto bhagavān
@@ -2973,9 +2375,6 @@ Without illumination, nothing can be seen, especially in this material world. Th
 **For those who have achieved the Supreme Personality of Godhead, the master of the pure devotees, what is impossible to do, and what is impossible to give up?**
 
 ### SB 9.5.16
-
-> यन्नामश्रुतिमात्रेण पुमान्भवति निर्मलः
-> तस्य तीर्थपदः किं वा दासानामवशिष्यते ॥१६॥
 
 > yan-nāma-śruti-mātreṇa
 > pumān bhavati nirmalaḥ
@@ -2988,9 +2387,6 @@ Without illumination, nothing can be seen, especially in this material world. Th
 
 ### SB 9.5.17
 
-> राजन्ननुगृहीतोऽहं त्वयातिकरुणात्मना
-> मदघं पृष्ठतः कृत्वा प्राणा यन्मेऽभिरक्षिताः ॥१७॥
-
 > rājann anugṛhīto 'haṁ
 > tvayātikaruṇātmanā
 > mad-aghaṁ pṛṣṭhataḥ kṛtvā
@@ -3001,9 +2397,6 @@ Without illumination, nothing can be seen, especially in this material world. Th
 **O King, overlooking my offenses, you have saved my life. Thus I am very much obliged to you because you are so merciful.**
 
 ### SB 9.5.18
-
-> राजा तमकृताहारः प्रत्यागमनकाङ्क्षया
-> चरणावुपसङ्गृह्य प्रसाद्य समभोजयत ॥१८॥
 
 > rājā tam akṛtāhāraḥ
 > pratyāgamana-kāṅkṣayā
@@ -3016,9 +2409,6 @@ Without illumination, nothing can be seen, especially in this material world. Th
 
 ### SB 9.5.19
 
-> सोऽशित्वादृतमानीतमातिथ्यं सार्वकामिकम
-> तृप्तात्मा नृपतिं प्राह भुज्यतामिति सादरम ॥१९॥
-
 > so 'śitvādṛtam ānītam
 > ātithyaṁ sārva-kāmikam
 > tṛptātmā nṛpatiṁ prāha
@@ -3029,9 +2419,6 @@ Without illumination, nothing can be seen, especially in this material world. Th
 **Thus the King respectfully received Durvāsā Muni, who after eating varieties of palatable food was so satisfied that with great affection he requested the King to eat also, saying, "Please take your meal."**
 
 ### SB 9.5.20
-
-> प्रीतोऽस्म्यनुगृहीतोऽस्मि तव भागवतस्य वै
-> दर्शनस्पर्शनालापैरातिथ्येनात्ममेधसा ॥२०॥
 
 > prīto 'smy anugṛhīto 'smi
 > tava bhāgavatasya vai
@@ -3046,9 +2433,6 @@ It is said, *vaiṣṇavera kriyā mudrā vijñeha nā bujhaya:* [[cc/madhya/23/
 
 ### SB 9.5.21
 
-> कर्मावदातमेतत्ते गायन्ति स्वःस्त्रियो मुहुः
-> कीर्तिं परमपुण्यां च कीर्तयिष्यति भूरियम ॥२१॥
-
 > karmāvadātam etat te
 > gāyanti svaḥ-striyo muhuḥ
 > kīrtiṁ parama-puṇyāṁ ca
@@ -3059,10 +2443,6 @@ It is said, *vaiṣṇavera kriyā mudrā vijñeha nā bujhaya:* [[cc/madhya/23/
 **All the blessed women in the heavenly planets will continuously chant about your spotless character at every moment, and the people of this world will also chant your glories continuously.**
 
 ### SB 9.5.22
-
-> श्रीशुक उवाच
-> एवं सङ्कीर्त्य राजानं दुर्वासाः परितोषितः
-> ययौ विहायसामन्त्र्य ब्रह्मलोकमहैतुकम ॥२२॥
 
 > śrī-śuka uvāca
 > evaṁ saṅkīrtya rājānaṁ
@@ -3078,9 +2458,6 @@ Although Durvāsā Muni went back to Brahmaloka through the spaceways, he did no
 
 ### SB 9.5.23
 
-> संवत्सरोऽत्यगात्तावद्यावता नागतो गतः
-> मुनिस्तद्दर्शनाकाङ्क्षो राजाब्भक्षो बभूव ह ॥२३॥
-
 > saṁvatsaro 'tyagāt tāvad
 > yāvatā nāgato gataḥ
 > munis tad-darśanākāṅkṣo
@@ -3091,9 +2468,6 @@ Although Durvāsā Muni went back to Brahmaloka through the spaceways, he did no
 **Durvāsā Muni had left the place of Mahārāja Ambarīṣa, and as long as he had not returned—for one complete year—the King had fasted, maintaining himself simply by drinking water.**
 
 ### SB 9.5.24
-
-> गतेऽथ दुर्वाससि सोऽम्बरीषो द्विजोपयोगातिपवित्रमाहरत
-> ऋषेर्विमोक्षं व्यसनं च वीक्ष्य मेने स्ववीर्यं च परानुभावम ॥२४॥
 
 > gate 'tha durvāsasi so 'mbarīṣo
 > dvijopayogātipavitram āharat
@@ -3114,9 +2488,6 @@ A devotee like Mahārāja Ambarīṣa is certainly always busy in many activitie
 "Of all *yogīs,* he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in *yoga* and is the highest of all." Thus it is a fact that a devotee is the topmost *yogī,* as proved in the dealings of Mahārāja Ambarīṣa with Durvāsā Muni.
 
 ### SB 9.5.25
-
-> एवं विधानेकगुणः स राजा परात्मनि ब्रह्मणि वासुदेवे
-> क्रियाकलापैः समुवाह भक्तिं ययाविरिञ्च्यान्निरयांश्चकार ॥२५॥
 
 > evaṁ vidhāneka-guṇaḥ sa rājā
 > parātmani brahmaṇi vāsudeve
@@ -3146,10 +2517,6 @@ For one who becomes a pure devotee through devotional service to great personali
 
 ### SB 9.5.26
 
-> श्रीशुक उवाच
-> अथाम्बरीषस्तनयेषु राज्यं समानशीलेषु विसृज्य धीरः
-> वनं विवेशात्मनि वासुदेवे मनो दधद्ध्वस्तगुणप्रवाहः ॥२६॥
-
 > śrī-śuka uvāca
 > athāmbarīṣas tanayeṣu rājyaṁ
 > samāna-śīleṣu visṛjya dhīraḥ
@@ -3171,9 +2538,6 @@ In *Bhakti-rasāmṛta-sindhu,* Śrīla Rūpa Gosvāmī thus instructs that if o
 
 ### SB 9.5.27
 
-> इत्येतत्पुण्यमाख्यानमम्बरीषस्य भूपते
-> सङ्कीर्तयन्ननुध्यायन्भक्तो भगवतो भवेत ॥२७॥
-
 > ity etat puṇyam ākhyānam
 > ambarīṣasya bhūpate
 > saṅkīrtayann anudhyāyan
@@ -3186,9 +2550,6 @@ In *Bhakti-rasāmṛta-sindhu,* Śrīla Rūpa Gosvāmī thus instructs that if o
 Śrīla Viśvanātha Cakravartī Ṭhākura herein gives a very good example. When one is very eager for more and more money, he is not satisfied even when he is a millionaire or a multimillionaire, but wants to earn more and more money by any means. The same mentality is present in a devotee. The devotee is never satisfied, thinking, "This is the limit of my devotional service." The more he engages in the service of the Lord, the more service he wants to give. This is the position of a devotee. Mahārāja Ambarīṣa, in his family life, was certainly a pure devotee, complete in every respect, because his mind and all his senses were engaged in devotional service (*sa vai manaḥ kṛṣṇa-padāravindayor vacāṁsi vaikuṇṭha-guṇānuvarṇane* [[sb/9/4/18-20|[SB 9.4.18] ]]). Mahārāja Ambarīṣa was self-satisfied because all of his senses were engaged in devotional service (*sarvopādhi-vinirmuktaṁ tat-paratvena nirmalam/ hṛṣīkeṇa hṛṣīkeśa-sevanaṁ bhaktir ucyate* [[cc/madhya/19/170|[Cc. Madhya 19.170] ]]). Nonetheless, although Mahārāja Ambarīṣa had engaged all his senses in devotional service, he left his home and went to the forest to concentrate his mind fully at the lotus feet of Kṛṣṇa, exactly as a mercantile man, even though complete in wealth, tries to earn more and more. This mentality of getting more and more engaged in devotional service puts one in the most exalted position. Whereas on the *karma* platform the mercantile man who wants more and more money becomes increasingly bound and entangled, the devotee becomes increasingly liberated.
 
 ### SB 9.5.28
-
-> अम्बरीषस्य चरितं ये शृण्वन्ति महात्मनः
-> मुक्तिं प्रयान्ति ते सर्वे भक्त्या विष्णोः प्रसादतः ॥२८॥
 
 > ambarīṣasya caritaṁ
 > ye śṛṇvanti mahātmanaḥ
@@ -3205,10 +2566,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fifth Chapter, of the *�
 
 ### SB 9.6.1
 
-> श्रीशुक उवाच
-> विरूपः केतुमान्छम्भुरम्बरीषसुतास्त्रयः
-> विरूपात्पृषदश्वोऽभूत्तत्पुत्रस्तु रथीतरः ॥१॥
-
 > śrī-śuka uvāca
 > virūpaḥ ketumāñ chambhur
 > ambarīṣa-sutās trayaḥ
@@ -3220,9 +2577,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fifth Chapter, of the *�
 **Śukadeva Gosvāmī said: O Mahārāja Parīkṣit, Ambarīṣa had three sons, named Virūpa, Ketumān and Śambhu. From Virūpa came a son named Pṛṣadaśva, and from Pṛṣadaśva came a son named Rathītara.**
 
 ### SB 9.6.2
-
-> रथीतरस्याप्रजस्य भार्यायां तन्तवेऽर्थितः
-> अङ्गिरा जनयामास ब्रह्मवर्चस्विनः सुतान ॥२॥
 
 > rathītarasyāprajasya
 > bhāryāyāṁ tantave 'rthitaḥ
@@ -3237,9 +2591,6 @@ In the Vedic age a man was sometimes called upon to beget sons in the womb of a 
 
 ### SB 9.6.3
 
-> एते क्षेत्रप्रसूता वै पुनस्त्वाङ्गिरसाः स्मृताः
-> रथीतराणां प्रवराः क्षेत्रोपेता द्विजातयः ॥३॥
-
 > ete kṣetra-prasūtā vai
 > punas tv āṅgirasāḥ smṛtāḥ
 > rathītarāṇāṁ pravarāḥ
@@ -3252,9 +2603,6 @@ In the Vedic age a man was sometimes called upon to beget sons in the womb of a 
 Śrīla Viśvanātha Cakravartī Ṭhākura gives the meaning of *dvi jātayaḥ* as "mixed caste," indicating a mixture of *brāhmaṇa* and *kṣatriya.*
 
 ### SB 9.6.4
-
-> क्षुवतस्तु मनोर्जज्ञए इक्ष्वाकुर्घ्राणतः सुतः
-> तस्य पुत्रशतज्येष्ठा विकुक्षिनिमिदण्डकाः ॥४॥
 
 > kṣuvatas tu manor jajñe
 > ikṣvākur ghrāṇataḥ sutaḥ
@@ -3269,9 +2617,6 @@ According to Śrīdhara Svāmī, although the *Bhāgavatam* (9.1.11-12) has prev
 
 ### SB 9.6.5
 
-> तेषां पुरस्तादभवन्नार्यावर्ते नृपा नृप
-> पञ्चविंशतिः पश्चाच्च त्रयो मध्येऽपरेऽन्यतः ॥५॥
-
 > teṣāṁ purastād abhavann
 > āryāvarte nṛpā nṛpa
 > pañca-viṁśatiḥ paścāc ca
@@ -3283,9 +2628,6 @@ According to Śrīdhara Svāmī, although the *Bhāgavatam* (9.1.11-12) has prev
 
 ### SB 9.6.6
 
-> स एकदाष्टकाश्राद्धे इक्ष्वाकुः सुतमादिशत
-> मांसमानीयतां मेध्यं विकुक्षे गच्छ मा चिरम ॥६॥
-
 > sa ekadāṣṭakā-śrāddhe
 > ikṣvākuḥ sutam ādiśat
 > māṁsam ānīyatāṁ medhyaṁ
@@ -3296,9 +2638,6 @@ According to Śrīdhara Svāmī, although the *Bhāgavatam* (9.1.11-12) has prev
 **During the months of January, February and March, oblations offered to the forefathers are called aṣṭakā-śrāddha. The śrāddha ceremony is held during the dark fortnight of the month. When Mahārāja Ikṣvāku was performing his oblations in this ceremony, he ordered his son Vikukṣi to go immediately to the forest to bring some pure flesh.**
 
 ### SB 9.6.7
-
-> तथेति स वनं गत्वा मृगान्हत्वा क्रियार्हणान
-> श्रान्तो बुभुक्षितो वीरः शशं चाददपस्मृतिः ॥७॥
 
 > tatheti sa vanaṁ gatvā
 > mṛgān hatvā kriyārhaṇān
@@ -3321,9 +2660,6 @@ It is evident that *kṣatriyas* killed animals in the forest because the flesh 
 
 ### SB 9.6.8
 
-> शेषं निवेदयामास पित्रे तेन च तद्गुरुः
-> चोदितः प्रोक्षणायाह दुष्टमेतदकर्मकम ॥८॥
-
 > śeṣaṁ nivedayām āsa
 > pitre tena ca tad-guruḥ
 > coditaḥ prokṣaṇāyāha
@@ -3337,9 +2673,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 
 ### SB 9.6.9
 
-> ज्ञआत्वा पुत्रस्य तत्कर्म गुरुणाभिहितं नृपः
-> देशान्निःसारयामास सुतं त्यक्तविधिं रुषा ॥९॥
-
 > jñātvā putrasya tat karma
 > guruṇābhihitaṁ nṛpaḥ
 > deśān niḥsārayām āsa
@@ -3350,9 +2683,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 **When King Ikṣvāku, thus informed by Vasiṣṭha, understood what his son Vikukṣi had done, he was extremely angry. Thus he ordered Vikukṣi to leave the country because Vikukṣi had violated the regulative principles.**
 
 ### SB 9.6.10
-
-> स तु विप्रेण संवादं ज्ञआपकेन समाचरन
-> त्यक्त्वा कलेवरं योगी स तेनावाप यत्परम ॥१०॥
 
 > sa tu vipreṇa saṁvādaṁ
 > jñāpakena samācaran
@@ -3365,9 +2695,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 
 ### SB 9.6.11
 
-> पितर्युपरतेऽभ्येत्य विकुक्षिः पृथिवीमिमाम
-> शासदीजे हरिं यज्ञऐः शशाद इति विश्रुतः ॥११॥
-
 > pitary uparate 'bhyetya
 > vikukṣiḥ pṛthivīm imām
 > śāsad īje hariṁ yajñaiḥ
@@ -3378,9 +2705,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 **After his father's disappearance, Vikukṣi returned to the country and thus became the king, ruling the planet earth and performing various sacrifices to satisfy the Supreme Personality of Godhead. Vikukṣi later became celebrated as Saśāda.**
 
 ### SB 9.6.12
-
-> पुरञ्जयस्तस्य सुत इन्द्रवाह इतीरितः
-> ककुत्स्थ इति चाप्युक्तः शृणु नामानि कर्मभिः ॥१२॥
 
 > purañjayas tasya suta
 > indravāha itīritaḥ
@@ -3393,9 +2717,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 
 ### SB 9.6.13
 
-> कृतान्त आसीत्समरो देवानां सह दानवैः
-> पार्ष्णिग्राहो वृतो वीरो देवैर्दैत्यपराजितैः ॥१३॥
-
 > kṛtānta āsīt samaro
 > devānāṁ saha dānavaiḥ
 > pārṣṇigrāho vṛto vīro
@@ -3407,9 +2728,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 
 ### SB 9.6.14
 
-> वचनाद्देवदेवस्य विष्णोर्विश्वात्मनः प्रभोः
-> वाहनत्वे वृतस्तस्य बभूवेन्द्रो महावृषः ॥१४॥
-
 > vacanād deva-devasya
 > viṣṇor viśvātmanaḥ prabhoḥ
 > vāhanatve vṛtas tasya
@@ -3420,11 +2738,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 **Purañjaya agreed to kill all the demons, on the condition that Indra would be his carrier. Because of pride, Indra could not accept this proposal, but later, by the order of the Supreme Lord, Viṣṇu, Indra did accept it and became a great bull carrier for Purañjaya.**
 
 ### SB 9.6.15-16
-
-> स सन्नद्धो धनुर्दिव्यमादाय विशिखान्छितान
-> स्तूयमानस्तमारुह्य युयुत्सुः ककुदि स्थितः ॥१५॥
-> तेजसाप्यायितो विष्णोः पुरुषस्य महात्मनः
-> प्रतीच्यां दिशि दैत्यानां न्यरुणत्त्रिदशैः पुरम ॥१६॥
 
 > sa sannaddho dhanur divyam
 > ādāya viśikhāñ chitān
@@ -3442,9 +2755,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 
 ### SB 9.6.17
 
-> तैस्तस्य चाभूत्प्रधनं तुमुलं लोमहर्षणम
-> यमाय भल्लैरनयद्दैत्यानभिययुर्मृधे ॥१७॥
-
 > tais tasya cābhūt pradhanaṁ
 > tumulaṁ loma-harṣaṇam
 > yamāya bhallair anayad
@@ -3455,9 +2765,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 **There was a fierce battle between the demons and Purañjaya. Indeed, it was so fierce that when one hears about it one's hairs stand on end. All the demons bold enough to come before Purañjaya were immediately sent to the residence of Yamarāja by his arrows.**
 
 ### SB 9.6.18
-
-> तस्येषुपाताभिमुखं युगान्ताग्निमिवोल्बणम
-> विसृज्य दुद्रुवुर्दैत्या हन्यमानाः स्वमालयम ॥१८॥
 
 > tasyeṣu-pātābhimukhaṁ
 > yugāntāgnim ivolbaṇam
@@ -3470,9 +2777,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 
 ### SB 9.6.19
 
-> जित्वा परं धनं सर्वं सस्त्रीकं वज्रपाणये
-> प्रत्ययच्छत्स राजर्षिरिति नामभिराहृतः ॥१९॥
-
 > jitvā paraṁ dhanaṁ sarvaṁ
 > sastrīkaṁ vajra-pāṇaye
 > pratyayacchat sa rājarṣir
@@ -3483,9 +2787,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 **After conquering the enemy, the saintly king Purañjaya gave everything, including the enemy's riches and wives, to Indra, who carries a thunderbolt. For this he is celebrated as Purañjaya. Thus Purañjaya is known by different names because of his different activities.**
 
 ### SB 9.6.20
-
-> पुरञ्जयस्य पुत्रोऽभूदनेनास्तत्सुतः पृथुः
-> विश्वगन्धिस्ततश्चन्द्रो युवनाश्वस्तु तत्सुतः ॥२०॥
 
 > purañjayasya putro 'bhūd
 > anenās tat-sutaḥ pṛthuḥ
@@ -3498,9 +2799,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 
 ### SB 9.6.21
 
-> श्रावस्तस्तत्सुतो येन श्रावस्ती निर्ममे पुरी
-> बृहदश्वस्तु श्रावस्तिस्ततः कुवलयाश्वकः ॥२१॥
-
 > śrāvastas tat-suto yena
 > śrāvastī nirmame purī
 > bṛhadaśvas tu śrāvastis
@@ -3512,9 +2810,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 
 ### SB 9.6.22
 
-> यः प्रियार्थमुतङ्कस्य धुन्धुनामासुरं बली
-> सुतानामेकविंशत्या सहस्रैरहनद्वृतः ॥२२॥
-
 > yaḥ priyārtham utaṅkasya
 > dhundhu-nāmāsuraṁ balī
 > sutānām eka-viṁśatyā
@@ -3525,11 +2820,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 **To satisfy the sage Utaṅka, the greatly powerful Kuvalayāśva killed a demon named Dhundhu. He did this with the assistance of his twenty-one thousand sons.**
 
 ### SB 9.6.23-24
-
-> धुन्धुमार इति ख्यातस्तत्सुतास्ते च जज्वलुः
-> धुन्धोर्मुखाग्निना सर्वे त्रय एवावशेषिताः ॥२३॥
-> दृढाश्वः कपिलाश्वश्च भद्राश्व इति भारत
-> दृढाश्वपुत्रो हर्यश्वो निकुम्भस्तत्सुतः स्मृतः ॥२४॥
 
 > dhundhumāra iti khyātas
 > tat-sutās te ca jajvaluḥ
@@ -3547,9 +2837,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 
 ### SB 9.6.25
 
-> बहुलाश्वो निकुम्भस्य कृशाश्वोऽथास्य सेनजित
-> युवनाश्वोऽभवत्तस्य सोऽनपत्यो वनं गतः ॥२५॥
-
 > bahulāśvo nikumbhasya
 > kṛśāśvo 'thāsya senajit
 > yuvanāśvo 'bhavat tasya
@@ -3560,9 +2847,6 @@ That which is meant to be offered in *yajña* cannot be tasted by anyone before 
 **The son of Nikumbha was Bahulāśva, the son of Bahulāśva was Kṛśāśva, the son of Kṛśāśva was Senajit, and the son of Senajit was Yuvanāśva. Yuvanāśva had no sons, and thus he retired from family life and went to the forest.**
 
 ### SB 9.6.26
-
-> भार्याशतेन निर्विण्ण ऋषयोऽस्य कृपालवः
-> इष्टिं स्म वर्तयां चक्रुरैन्द्रीं ते सुसमाहिताः ॥२६॥
 
 > bhāryā-śatena nirviṇṇa
 > ṛṣayo 'sya kṛpālavaḥ
@@ -3577,9 +2861,6 @@ One may enter the *vānaprastha* order of life with his wife, but the *vānapras
 
 ### SB 9.6.27
 
-> राजा तद्यज्ञअसदनं प्रविष्टो निशि तर्षितः
-> दृष्ट्वा शयानान्विप्रांस्तान्पपौ मन्त्रजलं स्वयम ॥२७॥
-
 > rājā tad-yajña-sadanaṁ
 > praviṣṭo niśi tarṣitaḥ
 > dṛṣṭvā śayānān viprāṁs tān
@@ -3593,9 +2874,6 @@ One may enter the *vānaprastha* order of life with his wife, but the *vānapras
 
 ### SB 9.6.28
 
-> उत्थितास्ते निशम्याथ व्युदकं कलशं प्रभो
-> पप्रच्छुः कस्य कर्मेदं पीतं पुंसवनं जलम ॥२८॥
-
 > utthitās te niśamyātha
 > vyudakaṁ kalaśaṁ prabho
 > papracchuḥ kasya karmedaṁ
@@ -3606,9 +2884,6 @@ One may enter the *vānaprastha* order of life with his wife, but the *vānapras
 **When the brāhmaṇas got up from bed and saw the waterpot empty, they inquired who had done this work of drinking the water meant for begetting a child.**
 
 ### SB 9.6.29
-
-> राज्ञआ पीतं विदित्वा वै ईश्वरप्रहितेन ते
-> ईश्वराय नमश्चक्रुरहो दैवबलं बलम ॥२९॥
 
 > rājñā pītaṁ viditvā vai
 > īśvara-prahitena te
@@ -3621,9 +2896,6 @@ One may enter the *vānaprastha* order of life with his wife, but the *vānapras
 
 ### SB 9.6.30
 
-> ततः काल उपावृत्ते कुक्षिं निर्भिद्य दक्षिणम
-> युवनाश्वस्य तनयश्चक्रवर्ती जजान ह ॥३०॥
-
 > tataḥ kāla upāvṛtte
 > kukṣiṁ nirbhidya dakṣiṇam
 > yuvanāśvasya tanayaś
@@ -3634,9 +2906,6 @@ One may enter the *vānaprastha* order of life with his wife, but the *vānapras
 **Thereafter, in due course of time, a son with all the good symptoms of a powerful king came forth from the lower right side of King Yuvanāśva's abdomen.**
 
 ### SB 9.6.31
-
-> कं धास्यति कुमारोऽयं स्तन्ये रोरूयते भृशम
-> मां धाता वत्स मा रोदीरितीन्द्रो देशिनीमदात ॥३१॥
 
 > kaṁ dhāsyati kumāro 'yaṁ
 > stanye rorūyate bhṛśam
@@ -3649,9 +2918,6 @@ One may enter the *vānaprastha* order of life with his wife, but the *vānapras
 
 ### SB 9.6.32
 
-> न ममार पिता तस्य विप्रदेवप्रसादतः
-> युवनाश्वोऽथ तत्रैव तपसा सिद्धिमन्वगात ॥३२॥
-
 > na mamāra pitā tasya
 > vipra-deva-prasādataḥ
 > yuvanāśvo 'tha tatraiva
@@ -3662,11 +2928,6 @@ One may enter the *vānaprastha* order of life with his wife, but the *vānapras
 **Because Yuvanāśva, the father of the baby, was blessed by the brāhmaṇas, he did not fall a victim to death. After this incident, he performed severe austerities and achieved perfection in that very spot.**
 
 ### SB 9.6.33-34
-
-> त्रसद्दस्युरितीन्द्रोऽङ्ग विदधे नाम यस्य वै
-> यस्मात्त्रसन्ति ह्युद्विग्ना दस्यवो रावणादयः ॥३३॥
-> यौवनाश्वोऽथ मान्धाता चक्रवर्त्यवनीं प्रभुः
-> सप्तद्वीपवतीमेकः शशासाच्युततेजसा ॥३४॥
 
 > trasaddasyur itīndro 'ṅga
 > vidadhe nāma yasya vai
@@ -3684,11 +2945,6 @@ One may enter the *vānaprastha* order of life with his wife, but the *vānapras
 
 ### SB 9.6.35-36
 
-> ईजे च यज्ञअं क्रतुभिरात्मविद्भूरिदक्षिणैः
-> सर्वदेवमयं देवं सर्वात्मकमतीन्द्रियम ॥३५॥
-> द्रव्यं मन्त्रो विधिर्यज्ञओ यजमानस्तथर्त्विजः
-> धर्मो देशश्च कालश्च सर्वमेतद्यदात्मकम ॥३६॥
-
 > īje ca yajñaṁ kratubhir
 > ātma-vid bhūri-dakṣiṇaiḥ
 > sarva-devamayaṁ devaṁ
@@ -3705,9 +2961,6 @@ One may enter the *vānaprastha* order of life with his wife, but the *vānapras
 
 ### SB 9.6.37
 
-> यावत्सूर्य उदेति स्म यावच्च प्रतितिष्ठति
-> तत्सर्वं यौवनाश्वस्य मान्धातुः क्षेत्रमुच्यते ॥३७॥
-
 > yāvat sūrya udeti sma
 > yāvac ca pratitiṣṭhati
 > tat sarvaṁ yauvanāśvasya
@@ -3718,10 +2971,6 @@ One may enter the *vānaprastha* order of life with his wife, but the *vānapras
 **All places, from where the sun rises on the horizon, shining brilliantly, to where the sun sets, are known as the possession of the celebrated Māndhātā, the son of Yuvanāśva.**
 
 ### SB 9.6.38
-
-> शशबिन्दोर्दुहितरि बिन्दुमत्यामधान्नृपः
-> पुरुकुत्समम्बरीषं मुचुकुन्दं च योगिनम
-> तेषां स्वसारः पञ्चाशत्सौभरिं वव्रिरे पतिम ॥३८॥
 
 > śaśabindor duhitari
 > bindumatyām adhān nṛpaḥ
@@ -3735,11 +2984,6 @@ One may enter the *vānaprastha* order of life with his wife, but the *vānapras
 **Māndhātā begot three sons in the womb of Bindumatī, the daughter of Śaśabindu. These sons were Purukutsa, Ambarīṣa, and Mucukunda, a great mystic yogī. These three brothers had fifty sisters, who all accepted the great sage Saubhari as their husband.**
 
 ### SB 9.6.39-40
-
-> यमुनान्तर्जले मग्नस्तप्यमानः परं तपः
-> निर्वृतिं मीनराजस्य दृष्ट्वा मैथुनधर्मिणः ॥३९॥
-> जातस्पृहो नृपं विप्रः कन्यामेकामयाचत
-> सोऽप्याह गृह्यतां ब्रह्मन्कामं कन्या स्वयंवरे ॥४०॥
 
 > yamunāntar-jale magnas
 > tapyamānaḥ paraṁ tapaḥ
@@ -3759,11 +3003,6 @@ This is the beginning of the story of Saubhari Ṛṣi. According to Viśvanāth
 
 ### SB 9.6.41-42
 
-> स विचिन्त्याप्रियं स्त्रीणां जरठोऽहमसन्मतः
-> वलीपलित एजत्क इत्यहं प्रत्युदाहृतः ॥४१॥
-> साधयिष्ये तथात्मानं सुरस्त्रीणामभीप्सितम
-> किं पुनर्मनुजेन्द्राणामिति व्यवसितः प्रभुः ॥४२॥
-
 > sa vicintyāpriyaṁ strīṇāṁ
 > jaraṭho 'ham asan-mataḥ
 > valī-palita ejat-ka
@@ -3780,9 +3019,6 @@ This is the beginning of the story of Saubhari Ṛṣi. According to Viśvanāth
 
 ### SB 9.6.43
 
-> मुनिः प्रवेशितः क्षत्रा कन्यान्तःपुरमृद्धिमत
-> वृतः स राजकन्याभिरेकं पञ्चाशता वरः ॥४३॥
-
 > muniḥ praveśitaḥ kṣatrā
 > kanyāntaḥpuram ṛddhimat
 > vṛtaḥ sa rāja-kanyābhir
@@ -3794,9 +3030,6 @@ This is the beginning of the story of Saubhari Ṛṣi. According to Viśvanāth
 
 ### SB 9.6.44
 
-> तासां कलिरभूद्भूयांस्तदर्थेऽपोह्य सौहृदम
-> ममानुरूपो नायं व इति तद्गतचेतसाम ॥४४॥
-
 > tāsāṁ kalir abhūd bhūyāṁs
 > tad-arthe 'pohya sauhṛdam
 > mamānurūpo nāyaṁ va
@@ -3807,11 +3040,6 @@ This is the beginning of the story of Saubhari Ṛṣi. According to Viśvanāth
 **Thereafter, the princesses, being attracted by Saubhari Muni, gave up their sisterly relationship and quarreled among themselves, each one of them contending, "This man is just suitable for me, and not for you." In this way there ensued a great disagreement.**
 
 ### SB 9.6.45-46
-
-> स बह्वृचस्ताभिरपारणीय तपःश्रियानर्घ्यपरिच्छदेषु
-> गृहेषु नानोपवनामलाम्भः सरःसु सौगन्धिककाननेषु ॥४५॥
-> महार्हशय्यासनवस्त्रभूषण स्नानानुलेपाभ्यवहारमाल्यकैः
-> स्वलङ्कृतस्त्रीपुरुषेषु नित्यदा रेमेऽनुगायद्द्विजभृङ्गवन्दिषु ॥४६॥
 
 > sa bahv-ṛcas tābhir apāraṇīya-
 > tapaḥ-śriyānarghya-paricchadeṣu
@@ -3831,9 +3059,6 @@ Saubhari Ṛṣi was a great *yogī.* Yogic perfection makes available eight mat
 
 ### SB 9.6.47
 
-> यद्गार्हस्थ्यं तु संवीक्ष्य सप्तद्वीपवतीपतिः
-> विस्मितः स्तम्भमजहात्सार्वभौमश्रियान्वितम ॥४७॥
-
 > yad-gārhasthyaṁ tu saṁvīkṣya
 > sapta-dvīpavatī-patiḥ
 > vismitaḥ stambham ajahāt
@@ -3846,9 +3071,6 @@ Saubhari Ṛṣi was a great *yogī.* Yogic perfection makes available eight mat
 Everyone is proud of his own position, but here was an astounding experience, in which the emperor of the entire world felt himself defeated in all details of material happiness by the opulence of Saubhari Muni.
 
 ### SB 9.6.48
-
-> एवं गृहेष्वभिरतो विषयान्विविधैः सुखैः
-> सेवमानो न चातुष्यदाज्यस्तोकैरिवानलः ॥४८॥
 
 > evaṁ gṛheṣv abhirato
 > viṣayān vividhaiḥ sukhaiḥ
@@ -3870,9 +3092,6 @@ Material desire is just like a blazing fire. If a fire is continually supplied w
 
 ### SB 9.6.49
 
-> स कदाचिदुपासीन आत्मापह्नवमात्मनः
-> ददर्श बह्वृचाचार्यो मीनसङ्गसमुत्थितम ॥४९॥
-
 > sa kadācid upāsīna
 > ātmāpahnavam ātmanaḥ
 > dadarśa bahv-ṛcācāryo
@@ -3886,9 +3105,6 @@ Viśvanātha Cakravartī Ṭhākura remarks that Saubhari Muni had fallen from h
 
 ### SB 9.6.50
 
-> अहो इमं पश्यत मे विनाशं तपस्विनः सच्चरितव्रतस्य
-> अन्तर्जले वारिचरप्रसङ्गात्प्रच्यावितं ब्रह्म चिरं धृतं यत ॥५०॥
-
 > aho imaṁ paśyata me vināśaṁ
 > tapasvinaḥ sac-carita-vratasya
 > antarjale vāri-cara-prasaṅgāt
@@ -3899,11 +3115,6 @@ Viśvanātha Cakravartī Ṭhākura remarks that Saubhari Muni had fallen from h
 **Alas! While practicing austerity, even within the depths of the water, and while observing all the rules and regulations practiced by saintly persons, I lost the results of my long austerities simply by association with the sexual affairs of fish. Everyone should observe this falldown and learn from it.**
 
 ### SB 9.6.51
-
-> सङ्गं त्यजेत मिथुनव्रतीनां मुमुक्षुः
-> सर्वात्मना न विसृजेद्बहिरिन्द्रियाणि
-> एकश्चरन्रहसि चित्तमनन्त ईशे
-> युञ्जीत तद्व्रतिषु साधुषु चेत्प्रसङ्गः ॥५१॥
 
 > saṅgaṁ tyajeta mithuna-vratīnāṁ mumukṣuḥ
 > sarvātmanā na visṛjed bahir-indriyāṇi
@@ -3929,11 +3140,6 @@ One who desires complete freedom from material bondage can engage himself in the
 
 ### SB 9.6.52
 
-> एकस्तपस्व्यहमथाम्भसि मत्स्यसङ्गात
-> पञ्चाशदासमुत पञ्चसहस्रसर्गः
-> नान्तं व्रजाम्युभयकृत्यमनोरथानां
-> मायागुणैर्हृतमतिर्विषयेऽर्थभावः ॥५२॥
-
 > ekas tapasvy aham athāmbhasi matsya-saṅgāt
 > pañcāśad āsam uta pañca-sahasra-sargaḥ
 > nāntaṁ vrajāmy ubhaya-kṛtya-manorathānāṁ
@@ -3945,9 +3151,6 @@ One who desires complete freedom from material bondage can engage himself in the
 
 ### SB 9.6.53
 
-> एवं वसन्गृहे कालं विरक्तो न्यासमास्थितः
-> वनं जगामानुययुस्तत्पत्न्यः पतिदेवताः ॥५३॥
-
 > evaṁ vasan gṛhe kālaṁ
 > virakto nyāsam āsthitaḥ
 > vanaṁ jagāmānuyayus
@@ -3958,9 +3161,6 @@ One who desires complete freedom from material bondage can engage himself in the
 **In this way he passed his life in household affairs for some time, but then he became detached from material enjoyment. To renounce material association, he accepted the vānaprastha order and went to the forest. His devoted wives followed him, for they had no shelter other than their husband.**
 
 ### SB 9.6.54
-
-> तत्र तप्त्वा तपस्तीक्ष्णमात्मदर्शनमात्मवान
-> सहैवाग्निभिरात्मानं युयोज परमात्मनि ॥५४॥
 
 > tatra taptvā tapas tīkṣṇam
 > ātma-darśanam ātmavān
@@ -3974,9 +3174,6 @@ One who desires complete freedom from material bondage can engage himself in the
 At the time of death, fire burns the gross body, and if there is no more desire for material enjoyment the subtle body is also ended, and in this way a pure soul remains. This is confirmed in *Bhagavad-gītā* (*tyaktvā dehaṁ punar janma naiti* [[bg/4/9|[Bg. 4.9] ]]). If one is free from the bondage of both the gross and subtle material bodies and remains a pure soul, he returns home, back to Godhead, to be engaged in the service of the Lord. *Tyaktvā dehaṁ punar janma naiti mām eti:* he goes back home, back to Godhead. Thus it appears that Saubhari Muni attained that perfect stage.
 
 ### SB 9.6.55
-
-> ताः स्वपत्युर्महाराज निरीक्ष्याध्यात्मिकीं गतिम
-> अन्वीयुस्तत्प्रभावेण अग्निं शान्तमिवार्चिषः ॥५५॥
 
 > tāḥ sva-patyur mahārāja
 > nirīkṣyādhyātmikīṁ gatim
@@ -3995,11 +3192,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixth Chapter, of the *�
 
 ### SB 9.7.1
 
-> श्रीशुक उवाच
-> मान्धातुः पुत्रप्रवरो योऽम्बरीषः प्रकीर्तितः
-> पितामहेन प्रवृतो यौवनाश्वस्तु तत्सुतः
-> हारीतस्तस्य पुत्रोऽभून्मान्धातृप्रवरा इमे ॥१॥
-
 > śrī-śuka uvāca
 > māndhātuḥ putra-pravaro
 > yo 'mbarīṣaḥ prakīrtitaḥ
@@ -4014,9 +3206,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixth Chapter, of the *�
 
 ### SB 9.7.2
 
-> नर्मदा भ्रातृभिर्दत्ता पुरुकुत्साय योरगैः
-> तया रसातलं नीतो भुजगेन्द्रप्रयुक्तया ॥२॥
-
 > narmadā bhrātṛbhir dattā
 > purukutsāya yoragaiḥ
 > tayā rasātalaṁ nīto
@@ -4030,9 +3219,6 @@ Before describing the descendants of Purukutsa, the son of Māndhātā, Śukadev
 
 ### SB 9.7.3
 
-> गन्धर्वानवधीत्तत्र वध्यान्वै विष्णुशक्तिधृक
-> नागाल्लब्धवरः सर्पादभयं स्मरतामिदम ॥३॥
-
 > gandharvān avadhīt tatra
 > vadhyān vai viṣṇu-śakti-dhṛk
 > nāgāl labdha-varaḥ sarpād
@@ -4044,9 +3230,6 @@ Before describing the descendants of Purukutsa, the son of Māndhātā, Śukadev
 
 ### SB 9.7.4
 
-> त्रसद्दस्युः पौरुकुत्सो योऽनरण्यस्य देहकृत
-> हर्यश्वस्तत्सुतस्तस्मात्प्रारुणोऽथ त्रिबन्धनः ॥४॥
-
 > trasaddasyuḥ paurukutso
 > yo 'naraṇyasya deha-kṛt
 > haryaśvas tat-sutas tasmāt
@@ -4057,11 +3240,6 @@ Before describing the descendants of Purukutsa, the son of Māndhātā, Śukadev
 **The son of Purukutsa was Trasaddasyu, who was the father of Anaraṇya. Anaraṇya's son was Haryaśva, the father of Prāruṇa. Prāruṇa was the father of Tribandhana.**
 
 ### SB 9.7.5-6
-
-> तस्य सत्यव्रतः पुत्रस्त्रिशङ्कुरिति विश्रुतः
-> प्राप्तश्चाण्डालतां शापाद्गुरोः कौशिकतेजसा ॥५॥
-> सशरीरो गतः स्वर्गमद्यापि दिवि दृश्यते
-> पातितोऽवाक्षिरा देवैस्तेनैव स्तम्भितो बलात ॥६॥
 
 > tasya satyavrataḥ putras
 > triśaṅkur iti viśrutaḥ
@@ -4079,9 +3257,6 @@ Before describing the descendants of Purukutsa, the son of Māndhātā, Śukadev
 
 ### SB 9.7.7
 
-> त्रैशङ्कवो हरिश्चन्द्रो विश्वामित्रवसिष्ठयोः
-> यन्निमित्तमभूद्युद्धं पक्षिणोर्बहुवार्षिकम ॥७॥
-
 > traiśaṅkavo hariścandro
 > viśvāmitra-vasiṣṭhayoḥ
 > yan-nimittam abhūd yuddhaṁ
@@ -4095,9 +3270,6 @@ Viśvāmitra and Vasiṣṭha were always inimical. Formerly, Viśvāmitra was a
 
 ### SB 9.7.8
 
-> सोऽनपत्यो विषण्णात्मा नारदस्योपदेशतः
-> वरुणं शरणं यातः पुत्रो मे जायतां प्रभो ॥८॥
-
 > so 'napatyo viṣaṇṇātmā
 > nāradasyopadeśataḥ
 > varuṇaṁ śaraṇaṁ yātaḥ
@@ -4108,9 +3280,6 @@ Viśvāmitra and Vasiṣṭha were always inimical. Formerly, Viśvāmitra was a
 **Hariścandra had no son and was therefore extremely morose. Once, therefore, following the advice of Nārada, he took shelter of Varuṇa and said to him "My lord I have no son. Would you kindly give me one?"**
 
 ### SB 9.7.9
-
-> यदि वीरो महाराज तेनैव त्वां यजे इति
-> तथेति वरुणेनास्य पुत्रो जातस्तु रोहितः ॥९॥
 
 > yadi vīro mahārāja
 > tenaiva tvāṁ yaje iti
@@ -4123,9 +3292,6 @@ Viśvāmitra and Vasiṣṭha were always inimical. Formerly, Viśvāmitra was a
 
 ### SB 9.7.10
 
-> जातः सुतो ह्यनेनाङ्ग मां यजस्वेति सोऽब्रवीत
-> यदा पशुर्निर्दशः स्यादथ मेध्यो भवेदिति ॥१०॥
-
 > jātaḥ suto hy anenāṅga
 > māṁ yajasveti so 'bravīt
 > yadā paśur nirdaśaḥ syād
@@ -4136,9 +3302,6 @@ Viśvāmitra and Vasiṣṭha were always inimical. Formerly, Viśvāmitra was a
 **Thereafter, when the child was born, Varuṇa approached Hariścandra and said, "Now you have a son. With this son you can offer me a sacrifice." In answer to this, Hariścandra said, "After ten days have passed since an animal's birth, the animal becomes fit to be sacrificed."**
 
 ### SB 9.7.11
-
-> निर्दशे च स आगत्य यजस्वेत्याह सोऽब्रवीत
-> दन्ताः पशोर्यज्जायेरन्नथ मेध्यो भवेदिति ॥११॥
 
 > nirdaśe ca sa āgatya
 > yajasvety āha so 'bravīt
@@ -4151,9 +3314,6 @@ Viśvāmitra and Vasiṣṭha were always inimical. Formerly, Viśvāmitra was a
 
 ### SB 9.7.12
 
-> दन्ता जाता यजस्वेति स प्रत्याहाथ सोऽब्रवीत
-> यदा पतन्त्यस्य दन्ता अथ मेध्यो भवेदिति ॥१२॥
-
 > dantā jātā yajasveti
 > sa pratyāhātha so 'bravīt
 > yadā patanty asya dantā
@@ -4164,9 +3324,6 @@ Viśvāmitra and Vasiṣṭha were always inimical. Formerly, Viśvāmitra was a
 **When the teeth grew, Varuṇa came and said to Hariścandra, "Now the animal has grown teeth, and you can perform the sacrifice." Hariścandra replied, "When all its teeth have fallen out, then it will be fit for sacrifice."**
 
 ### SB 9.7.13
-
-> पशोर्निपतिता दन्ता यजस्वेत्याह सोऽब्रवीत
-> यदा पशोः पुनर्दन्ता जायन्तेऽथ पशुः शुचिः ॥१३॥
 
 > paśor nipatitā dantā
 > yajasvety āha so 'bravīt
@@ -4179,9 +3336,6 @@ Viśvāmitra and Vasiṣṭha were always inimical. Formerly, Viśvāmitra was a
 
 ### SB 9.7.14
 
-> पुनर्जाता यजस्वेति स प्रत्याहाथ सोऽब्रवीत
-> सान्नाहिको यदा राजन्राजन्योऽथ पशुः शुचिः ॥१४॥
-
 > punar jātā yajasveti
 > sa pratyāhātha so 'bravīt
 > sānnāhiko yadā rājan
@@ -4192,9 +3346,6 @@ Viśvāmitra and Vasiṣṭha were always inimical. Formerly, Viśvāmitra was a
 **When the teeth grew in again, Varuṇa came and said to Hariścandra, "Now you can perform the sacrifice." But Hariścandra then said, "O King, when the sacrificial animal becomes a kṣatriya and is able to shield himself to fight with the enemy, then he will be purified."**
 
 ### SB 9.7.15
-
-> इति पुत्रानुरागेण स्नेहयन्त्रितचेतसा
-> कालं वञ्चयता तं तमुक्तो देवस्तमैक्षत ॥१५॥
 
 > iti putrānurāgeṇa
 > sneha-yantrita-cetasā
@@ -4207,9 +3358,6 @@ Viśvāmitra and Vasiṣṭha were always inimical. Formerly, Viśvāmitra was a
 
 ### SB 9.7.16
 
-> रोहितस्तदभिज्ञआय पितुः कर्म चिकीर्षितम
-> प्राणप्रेप्सुर्धनुष्पाणिररण्यं प्रत्यपद्यत ॥१६॥
-
 > rohitas tad abhijñāya
 > pituḥ karma cikīrṣitam
 > prāṇa-prepsur dhanuṣ-pāṇir
@@ -4220,9 +3368,6 @@ Viśvāmitra and Vasiṣṭha were always inimical. Formerly, Viśvāmitra was a
 **Rohita could understand that his father intended to offer him as the animal for sacrifice. Therefore, just to save himself from death, he equipped himself with bow and arrows and went to the forest.**
 
 ### SB 9.7.17
-
-> पितरं वरुणग्रस्तं श्रुत्वा जातमहोदरम
-> रोहितो ग्राममेयाय तमिन्द्रः प्रत्यषेधत ॥१७॥
 
 > pitaraṁ varuṇa-grastaṁ
 > śrutvā jāta-mahodaram
@@ -4235,9 +3380,6 @@ Viśvāmitra and Vasiṣṭha were always inimical. Formerly, Viśvāmitra was a
 
 ### SB 9.7.18
 
-> भूमेः पर्यटनं पुण्यं तीर्थक्षेत्रनिषेवणैः
-> रोहितायादिशच्छक्रः सोऽप्यरण्येऽवसत्समाम ॥१८॥
-
 > bhūmeḥ paryaṭanaṁ puṇyaṁ
 > tīrtha-kṣetra-niṣevaṇaiḥ
 > rohitāyādiśac chakraḥ
@@ -4249,9 +3391,6 @@ Viśvāmitra and Vasiṣṭha were always inimical. Formerly, Viśvāmitra was a
 
 ### SB 9.7.19
 
-> एवं द्वितीये तृतीये चतुर्थे पञ्चमे तथा
-> अभ्येत्याभ्येत्य स्थविरो विप्रो भूत्वाह वृत्रहा ॥१९॥
-
 > evaṁ dvitīye tṛtīye
 > caturthe pañcame tathā
 > abhyetyābhyetya sthaviro
@@ -4262,9 +3401,6 @@ Viśvāmitra and Vasiṣṭha were always inimical. Formerly, Viśvāmitra was a
 **In this way, at the end of the second, third, fourth and fifth years, when Rohita wanted to return to his capital, the King of heaven, Indra, approached him as an old brāhmaṇa and forbade him to return, repeating the same words as in the previous year.**
 
 ### SB 9.7.20
-
-> षष्ठं संवत्सरं तत्र चरित्वा रोहितः पुरीम
-> उपव्रजन्नजीगर्तादक्रीणान्मध्यमं सुतम ॥२०॥
 
 > ṣaṣṭhaṁ saṁvatsaraṁ tatra
 > caritvā rohitaḥ purīm
@@ -4281,9 +3417,6 @@ It appears that in those days a man could be purchased for any purpose. Hariśca
 
 ### SB 9.7.21
 
-> शुनःशेफं पशुं पित्रे प्रदाय समवन्दत
-> ततः पुरुषमेधेन हरिश्चन्द्रो महायशाः ॥२१॥
-
 > tataḥ puruṣa-medhena
 > hariścandro mahā-yaśāḥ
 > muktodaro 'yajad devān
@@ -4294,9 +3427,6 @@ It appears that in those days a man could be purchased for any purpose. Hariśca
 **Thereafter, the famous King Hariścandra, one of the exalted persons in history, performed grand sacrifices by sacrificing a man and pleased all the demigods. In this way his dropsy created by Varuṇa was cured.**
 
 ### SB 9.7.22
-
-> मुक्तोदरोऽयजद्देवान्वरुणादीन्महत्कथः
-> विश्वामित्रोऽभवत्तस्मिन्होता चाध्वर्युरात्मवान ॥२२॥
 
 > viśvāmitro 'bhavat tasmin
 > hotā cādhvaryur ātmavān
@@ -4309,9 +3439,6 @@ It appears that in those days a man could be purchased for any purpose. Hariśca
 
 ### SB 9.7.23
 
-> जमदग्निरभूद्ब्रह्मा वसिष्ठोऽयास्यः सामगः
-> तस्मै तुष्टो ददाविन्द्रः शातकौम्भमयं रथम ॥२३॥
-
 > tasmai tuṣṭo dadāv indraḥ
 > śātakaumbhamayaṁ ratham
 > śunaḥśephasya māhātmyam
@@ -4323,9 +3450,6 @@ It appears that in those days a man could be purchased for any purpose. Hariśca
 
 ### SB 9.7.24
 
-> शुनःशेफस्य माहात्म्यमुपरिष्टात्प्रचक्ष्यते
-> सत्यं सारं धृतिं दृष्ट्वा सभार्यस्य च भूपतेः ॥२४॥
-
 > satyaṁ sāraṁ dhṛtiṁ dṛṣṭvā
 > sabhāryasya ca bhūpateḥ
 > viśvāmitro bhṛśaṁ prīto
@@ -4336,11 +3460,6 @@ It appears that in those days a man could be purchased for any purpose. Hariśca
 **The great sage Viśvāmitra saw that Mahārāja Hariścandra, along with his wife, was truthful, forbearing and concerned with the essence. Thus he gave them imperishable knowledge for fulfillment of the human mission.**
 
 ### SB 9.7.25-26
-
-> विश्वामित्रो भृशं प्रीतो ददावविहतां गतिम
-> मनः पृथिव्यां तामद्भिस्तेजसापोऽनिलेन तत ॥२५॥
-> खे वायुं धारयंस्तच्च भूतादौ तं महात्मनि
-> तस्मिनज्ञआनकलां ध्यात्वा तयाज्ञआनं विनिर्दहन ॥२६॥
 
 > manaḥ pṛthivyāṁ tām adbhis
 > tejasāpo 'nilena tat
@@ -4364,10 +3483,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Seventh Chapter, of the 
 
 ### SB 9.8.1
 
-> श्रीशुक उवाच
-> हरितो रोहितसुतश्चम्पस्तस्माद्विनिर्मिता
-> चम्पापुरी सुदेवोऽतो विजयो यस्य चात्मजः ॥१॥
-
 > śrī-śuka uvāca
 > harito rohita-sutaś
 > campas tasmād vinirmitā
@@ -4380,9 +3495,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Seventh Chapter, of the 
 
 ### SB 9.8.2
 
-> भरुकस्तत्सुतस्तस्माद्वृकस्तस्यापि बाहुकः
-> सोऽरिभिर्हृतभू राजा सभार्यो वनमाविशत ॥२॥
-
 > bharukas tat-sutas tasmād
 > vṛkas tasyāpi bāhukaḥ
 > so 'ribhir hṛta-bhū rājā
@@ -4394,9 +3506,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Seventh Chapter, of the 
 
 ### SB 9.8.3
 
-> वृद्धं तं पञ्चतां प्राप्तं महिष्यनुमरिष्यती
-> और्वेण जानतात्मानं प्रजावन्तं निवारिता ॥३॥
-
 > vṛddhaṁ taṁ pañcatāṁ prāptaṁ
 > mahiṣy anumariṣyatī
 > aurveṇa jānatātmānaṁ
@@ -4407,9 +3516,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Seventh Chapter, of the 
 **Bāhuka died when he was old, and one of his wives wanted to die with him, following the satī rite. At that time, however, Aurva Muni, knowing her to be pregnant, forbade her to die.**
 
 ### SB 9.8.4
-
-> आज्ञआयास्यै सपत्नीभिर्गरो दत्तोऽन्धसा सह
-> सह तेनैव सञ्जातः सगराख्यो महायशाः ॥४॥
 
 > ājñāyāsyai sapatnībhir
 > garo datto 'ndhasā saha
@@ -4423,11 +3529,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Seventh Chapter, of the 
 **Knowing that she was pregnant, the co-wives of the wife of Bāhuka conspired to give her poison with her food, but it did not act. Instead, the son was born along with the poison. Therefore he became famous as Sagara ["one who is born with poison"]. Sagara later became the emperor. The place known as Gaṅgāsāgara was excavated by his sons.**
 
 ### SB 9.8.5-6
-
-> सगरश्चक्रवर्त्यासीत्सागरो यत्सुतैः कृतः
-> यस्तालजङ्घान्यवनाञ्छकान्हैहयबर्बरान ॥५॥
-> नावधीद्गुरुवाक्येन चक्रे विकृतवेषिणः
-> मुण्डान्छ्मश्रुधरान्कांश्चिन्मुक्तकेशार्धमुण्डितान ॥६॥
 
 > yas tālajaṅghān yavanāñ
 > chakān haihaya-barbarān
@@ -4445,9 +3546,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Seventh Chapter, of the 
 
 ### SB 9.8.7
 
-> अनन्तर्वाससः कांश्चिदबहिर्वाससोऽपरान
-> सोऽश्वमेधैरयजत सर्ववेदसुरात्मकम ॥७॥
-
 > so 'śvamedhair ayajata
 > sarva-veda-surātmakam
 > aurvopadiṣṭa-yogena
@@ -4461,9 +3559,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Seventh Chapter, of the 
 
 ### SB 9.8.8
 
-> और्वोपदिष्टयोगेन हरिमात्मानमीश्वरम
-> तस्योत्सृष्टं पशुं यज्ञए जहाराश्वं पुरन्दरः ॥८॥
-
 > sumatyās tanayā dṛptāḥ
 > pitur ādeśa-kāriṇaḥ
 > hayam anveṣamāṇās te
@@ -4474,11 +3569,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Seventh Chapter, of the 
 **[King Sagara had two wives, Sumati and Keśinī.] The sons of Sumati, who were very proud of their prowess and influence, following the order of their father, searched for the lost horse. While doing so, they dug into the earth very extensively.**
 
 ### SB 9.8.9-10
-
-> सुमत्यास्तनया दृप्ताः पितुरादेशकारिणः
-> हयमन्वेषमाणास्ते समन्तान्न्यखनन्महीम ॥९॥
-> प्रागुदीच्यां दिशि हयं ददृशुः कपिलान्तिके
-> एष वाजिहरश्चौर आस्ते मीलितलोचनः ॥१०॥
 
 > prāg-udīcyāṁ diśi hayaṁ
 > dadṛśuḥ kapilāntike
@@ -4496,9 +3586,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Seventh Chapter, of the 
 
 ### SB 9.8.11
 
-> हन्यतां हन्यतां पाप इति षष्टिसहस्रिणः
-> उदायुधा अभिययुरुन्मिमेष तदा मुनिः ॥११॥
-
 > sva-śarīrāgninā tāvan
 > mahendra-hṛta-cetasaḥ
 > mahad-vyatikrama-hatā
@@ -4512,9 +3599,6 @@ The material body is a combination of earth, water, fire, air and ether. There i
 
 ### SB 9.8.12
 
-> स्वशरीराग्निना तावन्महेन्द्रहृतचेतसः
-> महद्व्यतिक्रमहता भस्मसादभवन्क्षणात ॥१२॥
-
 > na sādhu-vādo muni-kopa-bharjitā
 > nṛpendra-putrā iti sattva-dhāmani
 > kathaṁ tamo roṣamayaṁ vibhāvyate
@@ -4525,9 +3609,6 @@ The material body is a combination of earth, water, fire, air and ether. There i
 **It is sometimes argued that the sons of King Sagara were burned to ashes by the fire emanating from the eyes of Kapila Muni. This statement, however, is not approved by great learned persons, for Kapila Muni's body is completely in the mode of goodness and therefore cannot manifest the mode of ignorance in the form of anger, just as the pure sky cannot be polluted by the dust of the earth.**
 
 ### SB 9.8.13
-
-> न साधुवादो मुनिकोपभर्जिता नृपेन्द्रपुत्रा इति सत्त्वधामनि
-> कथं तमो रोषमयं विभाव्यते जगत्पवित्रात्मनि खे रजो भुवः ॥१३॥
 
 > yasyeritā sāṅkhyamayī dṛḍheha naur
 > yayā mumukṣus tarate duratyayam
@@ -4542,9 +3623,6 @@ One who is promoted to the transcendental position (*brahma-bhūta* [[sb/4/30/20
 
 ### SB 9.8.14
 
-> यस्येरिता साङ्ख्यमयी दृढेह नौर्यया मुमुक्षुस्तरते दुरत्ययम
-> भवार्णवं मृत्युपथं विपश्चितः परात्मभूतस्य कथं पृथङ्मतिः ॥१४॥
-
 > yo 'samañjasa ity uktaḥ
 > sa keśinyā nṛpātmajaḥ
 > tasya putro 'ṁśumān nāma
@@ -4555,11 +3633,6 @@ One who is promoted to the transcendental position (*brahma-bhūta* [[sb/4/30/20
 **Among the sons of Sagara Mahārāja was one named Asamañjasa, who was born from the King's second wife, Keśinī. The son of Asamañjasa was known as Aṁśumān, and he was always engaged in working for the good of Sagara Mahārāja, his grandfather.**
 
 ### SB 9.8.15-16
-
-> योऽसमञ्जस इत्युक्तः स केशिन्या नृपात्मजः
-> तस्य पुत्रोऽंशुमान्नाम पितामहहिते रतः ॥१५॥
-> असमञ्जस आत्मानं दर्शयन्नसमञ्जसम
-> जातिस्मरः पुरा सङ्गाद्योगी योगाद्विचालितः ॥१६॥
 
 > asamañjasa ātmānaṁ
 > darśayann asamañjasam
@@ -4577,9 +3650,6 @@ One who is promoted to the transcendental position (*brahma-bhūta* [[sb/4/30/20
 
 ### SB 9.8.17
 
-> आचरन्गर्हितं लोके ज्ञआतीनां कर्म विप्रियम
-> सरय्वां क्रीडतो बालान्प्रास्यदुद्वेजयन्जनम ॥१७॥
-
 > evaṁ vṛttaḥ parityaktaḥ
 > pitrā sneham apohya vai
 > yogaiśvaryeṇa bālāṁs tān
@@ -4593,9 +3663,6 @@ Asamañjasa was a *jāti-smara;* because of his mystic power, he did not forget 
 
 ### SB 9.8.18
 
-> एवं वृत्तः परित्यक्तः पित्रा स्नेहमपोह्य वै
-> योगैश्वर्येण बालांस्तान्दर्शयित्वा ततो ययौ ॥१८॥
-
 > ayodhyā-vāsinaḥ sarve
 > bālakān punar āgatān
 > dṛṣṭvā visismire rājan
@@ -4606,9 +3673,6 @@ Asamañjasa was a *jāti-smara;* because of his mystic power, he did not forget 
 **O King Parīkṣit, when all the inhabitants of Ayodhyā saw that their boys had come back to life, they were astounded, and King Sagara greatly lamented the absence of his son.**
 
 ### SB 9.8.19
-
-> अयोध्यावासिनः सर्वे बालकान्पुनरागतान
-> दृष्ट्वा विसिस्मिरे राजन्राजा चाप्यन्वतप्यत ॥१९॥
 
 > aṁśumāṁś codito rājñā
 > turagānveṣaṇe yayau
@@ -4621,9 +3685,6 @@ Asamañjasa was a *jāti-smara;* because of his mystic power, he did not forget 
 
 ### SB 9.8.20
 
-> अंशुमांश्चोदितो राज्ञआ तुरगान्वेषणे ययौ
-> पितृव्यखातानुपथं भस्मान्ति ददृशे हयम ॥२०॥
-
 > tatrāsīnaṁ muniṁ vīkṣya
 > kapilākhyam adhokṣajam
 > astaut samāhita-manāḥ
@@ -4634,9 +3695,6 @@ Asamañjasa was a *jāti-smara;* because of his mystic power, he did not forget 
 **The great Aṁśumān saw the sage named Kapila, the saint who is an incarnation of Viṣṇu, sitting there by the horse. Aṁśumān offered Him respectful obeisances, folded his hands and offered Him prayers with great attention.**
 
 ### SB 9.8.21
-
-> तत्रासीनं मुनिं वीक्ष्य कपिलाख्यमधोक्षजम
-> अस्तौत्समाहितमनाः प्राञ्जलिः प्रणतो महान ॥२१॥
 
 > aṁśumān uvāca
 > na paśyati tvāṁ param ātmano 'jano
@@ -4664,10 +3722,6 @@ Asamañjasa was a *jāti-smara;* because of his mystic power, he did not forget 
 
 ### SB 9.8.22
 
-> अंशुमानुवाच
-> न पश्यति त्वां परमात्मनोऽजनो न बुध्यतेऽद्यापि समाधियुक्तिभिः
-> कुतोऽपरे तस्य मनःशरीरधी विसर्गसृष्टा वयमप्रकाशाः ॥२२॥
-
 > ye deha-bhājas tri-guṇa-pradhānā
 > guṇān vipaśyanty uta vā tamaś ca
 > yan-māyayā mohita-cetasas tvāṁ
@@ -4688,9 +3742,6 @@ To keep ourselves externally clean we should bathe three times daily, and for in
 
 ### SB 9.8.23
 
-> ये देहभाजस्त्रिगुणप्रधाना गुणान्विपश्यन्त्युत वा तमश्च
-> यन्मायया मोहितचेतसस्त्वां विदुः स्वसंस्थं न बहिःप्रकाशाः ॥२३॥
-
 > taṁ tvāṁ ahaṁ jñāna-ghanaṁ svabhāva-
 > pradhvasta-māyā-guṇa-bheda-mohaiḥ
 > sanandanādyair munibhir vibhāvyaṁ
@@ -4703,9 +3754,6 @@ To keep ourselves externally clean we should bathe three times daily, and for in
 The word *svabhāva* refers to one's own spiritual nature or original constitutional position. When situated in this original position, the living entity is unaffected by the modes of material nature. *Sa guṇān samatītyaitān brahma-bhūyāya kalpate* [[bg/14/26|(Bg. 14.26)]]. As soon as one is freed from the influence of the three modes of material nature, he is situated on the Brahman platform. Vivid examples of personalities thus situated are the four Kumāras and Nārada. Such authorities can by nature understand the position of the Supreme Personality of Godhead, but a conditioned soul not freed from the influence of material nature is unable to realize the Supreme. In *Bhagavad-gītā* [[bg/2/45|(Bg. 2.45)]], therefore, Kṛṣṇa advises Arjuna, *traiguṇya-viṣayā vedā nistraiguṇyo bhavārjuna:* one must rise above the influence of the three modes of material nature. One who stays within the influence of the three material modes is unable to understand the Supreme Personality of Godhead.
 
 ### SB 9.8.24
-
-> तं त्वां अहं ज्ञआनघनं स्वभाव प्रध्वस्तमायागुणभेदमोहैः
-> सनन्दनाद्यैर्मुनिभिर्विभाव्यं कथं विमूढः परिभावयामि ॥२४॥
 
 > praśānta māyā-guṇa-karma-liṅgam
 > anāma-rūpaṁ sad-asad-vimuktam
@@ -4729,9 +3777,6 @@ The word *svabhāva* refers to one's own spiritual nature or original constituti
 
 ### SB 9.8.25
 
-> प्रशान्त मायागुणकर्मलिङ्गमनामरूपं सदसद्विमुक्तम
-> ज्ञआनोपदेशाय गृहीतदेहं नमामहे त्वां पुरुषं पुराणम ॥२५॥
-
 > tvan-māyā-racite loke
 > vastu-buddhyā gṛhādiṣu
 > bhramanti kāma-lobherṣyā-
@@ -4743,9 +3788,6 @@ The word *svabhāva* refers to one's own spiritual nature or original constituti
 
 ### SB 9.8.26
 
-> त्वन्मायारचिते लोके वस्तुबुद्ध्या गृहादिषु
-> भ्रमन्ति कामलोभेर्ष्या मोहविभ्रान्तचेतसः ॥२६॥
-
 > adya naḥ sarva-bhūtātman
 > kāma-karmendriyāśayaḥ
 > moha-pāśo dṛḍhaś chinno
@@ -4756,9 +3798,6 @@ The word *svabhāva* refers to one's own spiritual nature or original constituti
 **O Supersoul of all living entities, O Personality of Godhead, simply by seeing You I have now been freed from all lusty desires, which are the root cause of insurmountable illusion and bondage in the material world.**
 
 ### SB 9.8.27
-
-> अद्य नः सर्वभूतात्मन्कामकर्मेन्द्रियाशयः
-> मोहपाशो दृढश्छिन्नो भगवंस्तव दर्शनात ॥२७॥
 
 > śrī-śuka uvāca
 > itthaṁ gītānubhāvas taṁ
@@ -4772,10 +3811,6 @@ The word *svabhāva* refers to one's own spiritual nature or original constituti
 
 ### SB 9.8.28
 
-> श्रीशुक उवाच
-> इत्थं गीतानुभावस्तं भगवान्कपिलो मुनिः
-> अंशुमन्तमुवाचेदमनुग्राह्य धिया नृप ॥२८॥
-
 > śrī-bhagavān uvāca
 > aśvo 'yaṁ nīyatāṁ vatsa
 > pitāmaha-paśus tava
@@ -4788,10 +3823,6 @@ The word *svabhāva* refers to one's own spiritual nature or original constituti
 
 ### SB 9.8.29
 
-> श्रीभगवानुवाच
-> अश्वोऽयं नीयतां वत्स पितामहपशुस्तव
-> इमे च पितरो दग्धा गङ्गाम्भोऽर्हन्ति नेतरत ॥२९॥
-
 > taṁ parikramya śirasā
 > prasādya hayam ānayat
 > sagaras tena paśunā
@@ -4802,9 +3833,6 @@ The word *svabhāva* refers to one's own spiritual nature or original constituti
 **Thereafter, Aṁśumān circumambulated Kapila Muni and offered Him respectful obeisances, bowing his head. After fully satisfying Him in this way, Aṁśumān brought back the horse meant for sacrifice, and with this horse Mahārāja Sagara performed the remaining ritualistic ceremonies.**
 
 ### SB 9.8.30
-
-> तं परिक्रम्य शिरसा प्रसाद्य हयमानयत
-> सगरस्तेन पशुना यज्ञअशेषं समापयत ॥३०॥
 
 > rājyam aṁśumate nyasya
 > niḥspṛho mukta-bandhanaḥ
@@ -4821,10 +3849,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Eighth Chapter, of the *
 
 ### SB 9.9.1
 
-> श्रीशुक उवाच
-> अंशुमांश्च तपस्तेपे गङ्गानयनकाम्यया
-> कालं महान्तं नाशक्नोत्ततः कालेन संस्थितः ॥१॥
-
 > śrī-śuka uvāca
 > aṁśumāṁś ca tapas tepe
 > gaṅgānayana-kāmyayā
@@ -4837,9 +3861,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Eighth Chapter, of the *
 
 ### SB 9.9.2
 
-> दिलीपस्तत्सुतस्तद्वदशक्तः कालमेयिवान
-> भगीरथस्तस्य सुतस्तेपे स सुमहत्तपः ॥२॥
-
 > dilīpas tat-sutas tadvad
 > aśaktaḥ kālam eyivān
 > bhagīrathas tasya sutas
@@ -4850,9 +3871,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Eighth Chapter, of the *
 **Like Aṁśumān himself, Dilīpa, his son, was unable to bring the Ganges to this material world, and he also became a victim of death in due course of time. Then Dilīpa's son, Bhagīratha, performed very severe austerities to bring the Ganges to this material world.**
 
 ### SB 9.9.3
-
-> दर्शयामास तं देवी प्रसन्ना वरदास्मि ते
-> इत्युक्तः स्वमभिप्रायं शशंसावनतो नृपः ॥३॥
 
 > darśayām āsa taṁ devī
 > prasannā varadāsmi te
@@ -4867,9 +3885,6 @@ The King's desire was to deliver his forefathers, who had been burnt to ashes be
 
 ### SB 9.9.4
 
-> कोऽपि धारयिता वेगं पतन्त्या मे महीतले
-> अन्यथा भूतलं भित्त्वा नृप यास्ये रसातलम ॥४॥
-
 > ko 'pi dhārayitā vegaṁ
 > patantyā me mahī-tale
 > anyathā bhū-talaṁ bhittvā
@@ -4880,9 +3895,6 @@ The King's desire was to deliver his forefathers, who had been burnt to ashes be
 **Mother Ganges replied: When I fall from the sky to the surface of the planet earth, the water will certainly be very forceful. Who will sustain that force? If I am not sustained, I shall pierce the surface of the earth and go down to Rasātala, the Pātāla area of the universe.**
 
 ### SB 9.9.5
-
-> किं चाहं न भुवं यास्ये नरा मय्यामृजन्त्यघम
-> मृजामि तदघं क्वाहं राजंस्तत्र विचिन्त्यताम ॥५॥
 
 > kiṁ cāhaṁ na bhuvaṁ yāsye
 > narā mayy āmṛjanty agham
@@ -4903,10 +3915,6 @@ The Supreme Personality of Godhead says:
 "Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear." [[bg/18/66|(Bg. 18.66)]] The Supreme Personality of Godhead can accept the reactions of anyone's sinful deeds and neutralize them because He is *pavitra,* pure, like the sun, which is never contaminated by any worldly infection. *Tejīyasāṁ na doṣāya vahneḥ sama-bhujo yathā* [[sb/10/33/29|(SB 10.33.29)]]. One who is very powerful is not affected by any sinful activity. But here we see that mother Ganges fears being burdened with the sins of the people in general who would bathe in her waters. This indicates that no one but the Supreme Personality of Godhead is able to neutralize the reactions of sinful deeds, whether one's own or those of others. Sometimes the spiritual master, after accepting a disciple, must take charge of that disciple's past sinful activities and, being overloaded, must sometimes suffer—if not fully, then partially—for the sinful acts of the disciple. Every disciple, therefore, must be very careful not to commit sinful activities after initiation. The poor spiritual master is kind and merciful enough to accept a disciple and partially suffer for that disciple's sinful activities, but Kṛṣṇa, being merciful to His servant, neutralizes the reactions of sinful deeds for the servant who engages in preaching His glories. Even mother Ganges feared the sinful reactions of the people in general and was anxious about how she would counteract the burden of these sins.
 
 ### SB 9.9.6
-
-> श्रीभगीरथ उवाच
-> साधवो न्यासिनः शान्ता ब्रह्मिष्ठा लोकपावनाः
-> हरन्त्यघं तेऽङ्गसङ्गात्तेष्वास्ते ह्यघभिद्धरिः ॥६॥
 
 > śrī-bhagīratha uvāca
 > sādhavo nyāsinaḥ śāntā
@@ -4931,9 +3939,6 @@ There are methods of *prāyaścitta,* or atonement, but they are inadequate to c
 
 ### SB 9.9.7
 
-> धारयिष्यति ते वेगं रुद्रस्त्वात्मा शरीरिणाम
-> यस्मिन्नोतमिदं प्रोतं विश्वं शाटीव तन्तुषु ॥७॥
-
 > dhārayiṣyati te vegaṁ
 > rudras tv ātmā śarīriṇām
 > yasminn otam idaṁ protaṁ
@@ -4953,9 +3958,6 @@ The water of the Ganges is supposed to rest on the head of Lord Śiva. Lord Śiv
 "Milk changes into yogurt when mixed with a yogurt culture, but actually yogurt is constitutionally nothing but milk. Similarly, Govinda, the Supreme Personality of Godhead, assumes the form of Lord Śiva for the special purpose of material transactions. I offer my obeisances at Lord Govinda's lotus feet." Lord Śiva is the Supreme Personality of Godhead in the same sense that yogurt is also milk although at the same time it is not milk. For the maintenance of the material world there are three incarnations—Brahmā, Viṣṇu and Maheśvara (Lord Śiva). Lord Śiva is Viṣṇu in an incarnation for the mode of ignorance. The material world exists predominantly in the mode of ignorance. Therefore Lord Śiva is compared here to the longitude and latitude of the entire universe, which resembles a cloth woven of threads extending for both its length and breadth.
 
 ### SB 9.9.8
-
-> इत्युक्त्वा स नृपो देवं तपसातोषयच्छिवम
-> कालेनाल्पीयसा राजंस्तस्येशश्चाश्वतुष्यत ॥८॥
 
 > ity uktvā sa nṛpo devaṁ
 > tapasātoṣayac chivam
@@ -4977,9 +3979,6 @@ The words *āśv atuṣyata* indicate that Lord Śiva was satisfied very soon. T
 
 ### SB 9.9.9
 
-> तथेति राज्ञआभिहितं सर्वलोकहितः शिवः
-> दधारावहितो गङ्गां पादपूतजलां हरेः ॥९॥
-
 > tatheti rājñābhihitaṁ
 > sarva-loka-hitaḥ śivaḥ
 > dadhārāvahito gaṅgāṁ
@@ -4990,9 +3989,6 @@ The words *āśv atuṣyata* indicate that Lord Śiva was satisfied very soon. T
 **When King Bhagīratha approached Lord Śiva and requested him to sustain the forceful waves of the Ganges, Lord Śiva accepted the proposal by saying, "Let it be so." Then, with great attention, he sustained the Ganges on his head, for the water of the Ganges is purifying, having emanated from the toes of Lord Viṣṇu.**
 
 ### SB 9.9.10
-
-> भगीरथः स राजर्षिर्निन्ये भुवनपावनीम
-> यत्र स्वपित्णां देहा भस्मीभूताः स्म शेरते ॥१०॥
 
 > bhagīrathaḥ sa rājarṣir
 > ninye bhuvana-pāvanīm
@@ -5005,9 +4001,6 @@ The words *āśv atuṣyata* indicate that Lord Śiva was satisfied very soon. T
 
 ### SB 9.9.11
 
-> रथेन वायुवेगेन प्रयान्तमनुधावती
-> देशान्पुनन्ती निर्दग्धानासिञ्चत्सगरात्मजान ॥११॥
-
 > rathena vāyu-vegena
 > prayāntam anudhāvatī
 > deśān punantī nirdagdhān
@@ -5018,9 +4011,6 @@ The words *āśv atuṣyata* indicate that Lord Śiva was satisfied very soon. T
 **Bhagīratha mounted a swift chariot and drove before mother Ganges, who followed him, purifying many countries, until they reached the ashes of Bhagīratha's forefathers, the sons of Sagara, who were thus sprinkled with water from the Ganges.**
 
 ### SB 9.9.12
-
-> यज्जलस्पर्शमात्रेण ब्रह्मदण्डहता अपि
-> सगरात्मजा दिवं जग्मुः केवलं देहभस्मभिः ॥१२॥
 
 > yaj-jala-sparśa-mātreṇa
 > brahma-daṇḍa-hatā api
@@ -5035,9 +4025,6 @@ Mother Ganges is worshiped by the water of the Ganges: a devotee takes a little 
 
 ### SB 9.9.13
 
-> भस्मीभूताङ्गसङ्गेन स्वर्याताः सगरात्मजाः
-> किं पुनः श्रद्धया देवीं सेवन्ते ये धृतव्रताः ॥१३॥
-
 > bhasmībhūtāṅga-saṅgena
 > svar yātāḥ sagarātmajāḥ
 > kiṁ punaḥ śraddhayā devīṁ
@@ -5048,9 +4035,6 @@ Mother Ganges is worshiped by the water of the Ganges: a devotee takes a little 
 **Simply by having water from the Ganges come in contact with the ashes of their burnt bodies, the sons of Sagara Mahārāja were elevated to the heavenly planets. Therefore, what is to be said of a devotee who worships mother Ganges faithfully with a determined vow? One can only imagine the benefit that accrues to such a devotee.**
 
 ### SB 9.9.14
-
-> न ह्येतत्परमाश्चर्यं स्वर्धुन्या यदिहोदितम
-> अनन्तचरणाम्भोज प्रसूताया भवच्छिदः ॥१४॥
 
 > na hy etat param āścaryaṁ
 > svardhunyā yad ihoditam
@@ -5065,9 +4049,6 @@ It has actually been seen that anyone who regularly worships mother Ganges simpl
 
 ### SB 9.9.15
 
-> सन्निवेश्य मनो यस्मिञ्छ्रद्धया मुनयोऽमलाः
-> त्रैगुण्यं दुस्त्यजं हित्वा सद्यो यातास्तदात्मताम ॥१५॥
-
 > sanniveśya mano yasmiñ
 > chraddhayā munayo 'malāḥ
 > traiguṇyaṁ dustyajaṁ hitvā
@@ -5078,11 +4059,6 @@ It has actually been seen that anyone who regularly worships mother Ganges simpl
 **Great sages, completely freed from material lusty desires, devote their minds fully to the service of the Lord. Such persons are liberated from material bondage without difficulty, and they become transcendentally situated, acquiring the spiritual quality of the Lord. This is the glory of the Supreme Personality of Godhead.**
 
 ### SB 9.9.16-17
-
-> श्रुतो भगीरथाज्जज्ञए तस्य नाभोऽपरोऽभवत
-> सिन्धुद्वीपस्ततस्तस्मादयुतायुस्ततोऽभवत ॥१६॥
-> ऋतूपर्णो नलसखो योऽश्वविद्यामयान्नलात
-> दत्त्वाक्षहृदयं चास्मै सर्वकामस्तु तत्सुतम ॥१७॥
 
 > śruto bhagīrathāj jajñe
 > tasya nābho 'paro 'bhavat
@@ -5102,10 +4078,6 @@ Gambling is also an art. *Kṣatriyas* are allowed to exhibit talent in this art
 
 ### SB 9.9.18
 
-> ततः सुदासस्तत्पुत्रो दमयन्तीपतिर्नृपः
-> आहुर्मित्रसहं यं वै कल्माषाङ्घ्रिमुत क्वचित
-> वसिष्ठशापाद्रक्षोऽभूदनपत्यः स्वकर्मणा ॥१८॥
-
 > tataḥ sudāsas tat-putro
 > damayantī-patir nṛpaḥ
 > āhur mitrasahaṁ yaṁ vai
@@ -5119,10 +4091,6 @@ Gambling is also an art. *Kṣatriyas* are allowed to exhibit talent in this art
 
 ### SB 9.9.19
 
-> श्रीराजोवाच
-> किं निमित्तो गुरोः शापः सौदासस्य महात्मनः
-> एतद्वेदितुमिच्छामः कथ्यतां न रहो यदि ॥१९॥
-
 > śrī-rājovāca
 > kiṁ nimitto guroḥ śāpaḥ
 > saudāsasya mahātmanaḥ
@@ -5134,12 +4102,6 @@ Gambling is also an art. *Kṣatriyas* are allowed to exhibit talent in this art
 **King Parīkṣit said: O Śukadeva Gosvāmī, why did Vasiṣṭha, the spiritual master of Saudāsa, curse that great soul? I wish to know of this. If it is not a confidential matter, please describe it to me.**
 
 ### SB 9.9.20-21
-
-> श्रीशुक उवाच
-> सौदासो मृगयां किञ्चिच्चरन्रक्षो जघान ह
-> मुमोच भ्रातरं सोऽथ गतः प्रतिचिकीर्षया ॥२०॥
-> सञ्चिन्तयन्नघं राज्ञअः सूदरूपधरो गृहे
-> गुरवे भोक्तुकामाय पक्त्वा निन्ये नरामिषम ॥२१॥
 
 > śrī-śuka uvāca
 > saudāso mṛgayāṁ kiñcic
@@ -5158,9 +4120,6 @@ Gambling is also an art. *Kṣatriyas* are allowed to exhibit talent in this art
 
 ### SB 9.9.22
 
-> परिवेक्ष्यमाणं भगवान्विलोक्याभक्ष्यमञ्जसा
-> राजानमशपत्क्रुद्धो रक्षो ह्येवं भविष्यसि ॥२२॥
-
 > parivekṣyamāṇaṁ bhagavān
 > vilokyābhakṣyam añjasā
 > rājānam aśapat kruddho
@@ -5171,11 +4130,6 @@ Gambling is also an art. *Kṣatriyas* are allowed to exhibit talent in this art
 **While examining the food given to him, Vasiṣṭha Muni, by his mystic power, could understand that it was unfit to eat, being the flesh of a human being. He was very angry at this and immediately cursed Saudāsa to become a man-eater.**
 
 ### SB 9.9.23-24
-
-> रक्षःकृतं तद्विदित्वा चक्रे द्वादशवार्षिकम
-> सोऽप्यपोऽञ्जलिमादाय गुरुं शप्तुं समुद्यतः ॥२३॥
-> वारितो मदयन्त्यापो रुशतीः पादयोर्जहौ
-> दिशः खमवनीं सर्वं पश्यन्जीवमयं नृपः ॥२४॥
 
 > rakṣaḥ-kṛtaṁ tad viditvā
 > cakre dvādaśa-vārṣikam
@@ -5193,9 +4147,6 @@ Gambling is also an art. *Kṣatriyas* are allowed to exhibit talent in this art
 
 ### SB 9.9.25
 
-> राक्षसं भावमापन्नः पादे कल्माषतां गतः
-> व्यवायकाले ददृशे वनौकोदम्पती द्विजौ ॥२५॥
-
 > rākṣasaṁ bhāvam āpannaḥ
 > pāde kalmāṣatāṁ gataḥ
 > vyavāya-kāle dadṛśe
@@ -5206,11 +4157,6 @@ Gambling is also an art. *Kṣatriyas* are allowed to exhibit talent in this art
 **Saudāsa thus acquired the propensity of a man-eater and received on his leg a black spot, for which he was known as Kalmāṣapāda. Once King Kalmāṣapāda saw a brāhmaṇa couple engaged in sexual intercourse in the forest.**
 
 ### SB 9.9.26-27
-
-> क्षुधार्तो जगृहे विप्रं तत्पत्न्याहाकृतार्थवत
-> न भवान्राक्षसः साक्षादिक्ष्वाकूणां महारथः ॥२६॥
-> मदयन्त्याः पतिर्वीर नाधर्मं कर्तुमर्हसि
-> देहि मेऽपत्यकामाया अकृतार्थं पतिं द्विजम ॥२७॥
 
 > kṣudhārto jagṛhe vipraṁ
 > tat-patny āhākṛtārthavat
@@ -5227,9 +4173,6 @@ Gambling is also an art. *Kṣatriyas* are allowed to exhibit talent in this art
 **Being influenced by the propensity of a Rākṣasa and being very hungry, King Saudāsa seized the brāhmaṇa. Then the poor woman, the brāhmaṇa's wife, said to the King: O hero, you are not actually a man-eater; rather, you are among the descendants of Mahārāja Ikṣvāku. Indeed, you are a great fighter, the husband of Madayantī. You should not act irreligiously in this way. I desire to have a son. Please, therefore, return my husband, who has not yet impregnated me.**
 
 ### SB 9.9.28
-
-> देहोऽयं मानुषो राजन्पुरुषस्याखिलार्थदः
-> तस्मादस्य वधो वीर सर्वार्थवध उच्यते ॥२८॥
 
 > deho 'yaṁ mānuṣo rājan
 > puruṣasyākhilārthadaḥ
@@ -5249,10 +4192,6 @@ Gambling is also an art. *Kṣatriyas* are allowed to exhibit talent in this art
 The body of a human being is extremely valuable because in this body one can understand the instructions of Kṛṣṇa and attain the ultimate destination of the living entity. The living entity is within the material world to fulfill the mission of going back home, back to Godhead. In the material world, one hankers for happiness, but because one does not know the ultimate destination, one changes bodies one after another. However, if one gets the opportunity to possess a human form of body, in this body he can fulfill the four principles of *dharma, artha, kāma* and *mokṣa,* and if one is properly regulated he makes further progress, after liberation, to engage in the service of Rādhā and Kṛṣṇa. This is the success of life: to stop the process of repeated birth and death and go back home, back to Godhead (*mām eti*), to be engaged in the service of Rādhā and Kṛṣṇa. Therefore, taking a human body is meant for completing one's progress in life. Throughout human society, killing of a human being is taken very seriously. Hundreds and thousands of animals are killed in slaughterhouses, and no one cares about them, but the killing of even one human being is taken very seriously. Why? Because the human form of body is extremely important in executing the mission of life.
 
 ### SB 9.9.29
-
-> एष हि ब्राह्मणो विद्वांस्तपःशीलगुणान्वितः
-> आरिराधयिषुर्ब्रह्म महापुरुषसंज्ञइतम
-> सर्वभूतात्मभावेन भूतेष्वन्तर्हितं गुणैः ॥२९॥
 
 > eṣa hi brāhmaṇo vidvāṁs
 > tapaḥ-śīla-guṇānvitaḥ
@@ -5276,9 +4215,6 @@ The wife of the *brāhmaṇa* did not regard her husband as a superficial *brāh
 
 ### SB 9.9.30
 
-> सोऽयं ब्रह्मर्षिवर्यस्ते राजर्षिप्रवराद्विभो
-> कथमर्हति धर्मज्ञअ वधं पितुरिवात्मजः ॥३०॥
-
 > so 'yaṁ brahmarṣi-varyas te
 > rājarṣi-pravarād vibho
 > katham arhati dharma-jña
@@ -5291,9 +4227,6 @@ The wife of the *brāhmaṇa* did not regard her husband as a superficial *brāh
 The word *rājarṣi* refers to a king who behaves like a *ṛṣi,* or sage. Such a king is also called *naradeva* because he is considered a representative of the Supreme Lord. Because his duty is to rule the kingdom to maintain brahminical culture, he never desires to kill a *brāhmaṇa.* Generally, a *brāhmaṇa,* woman, child, old man or cow is never regarded as punishable. Thus the wife of the *brāhmaṇa* requested the King to refrain from this sinful act.
 
 ### SB 9.9.31
-
-> तस्य साधोरपापस्य भ्रूणस्य ब्रह्मवादिनः
-> कथं वधं यथा बभ्रोर्मन्यते सन्मतो भवान ॥३१॥
 
 > tasya sādhor apāpasya
 > bhrūṇasya brahma-vādinaḥ
@@ -5308,9 +4241,6 @@ As stated in the *Amara-kośa* dictionary, *bhrūṇo 'rbhake bāla-garbhe:* the
 
 ### SB 9.9.32
 
-> यद्ययं क्रियते भक्ष्यस्तर्हि मां खाद पूर्वतः
-> न जीविष्ये विना येन क्षणं च मृतकं यथा ॥३२॥
-
 > yady ayaṁ kriyate bhakṣyas
 > tarhi māṁ khāda pūrvataḥ
 > na jīviṣye vinā yena
@@ -5323,9 +4253,6 @@ As stated in the *Amara-kośa* dictionary, *bhrūṇo 'rbhake bāla-garbhe:* the
 In the Vedic culture there is a system known as *satī* or *saha-maraṇa,* in which a woman dies with her husband. According to this system, if the husband dies, the wife will voluntarily die by falling in the blazing funeral pyre of her husband. Here, in this verse, the feelings inherent in this culture are expressed by the wife of the *brāhmaṇa.* A woman without a husband is like a dead body. Therefore according to Vedic culture a girl must be married. This is the responsibility of her father. A girl may be given in charity, and a husband may have more than one wife, but a girl must be married. This is Vedic culture. A woman is supposed to be always dependent—in her childhood she is dependent on her father, in youth on her husband, and in old age on her elderly sons. According to *Manu-saṁhitā,* she is never independent. Independence for a woman means miserable life. In this age, so many girls are unmarried and falsely imagining themselves free, but their life is miserable. Here is an instance in which a woman felt that without her husband she was nothing but a dead body.
 
 ### SB 9.9.33
-
-> एवं करुणभाषिण्या विलपन्त्या अनाथवत
-> व्याघ्रः पशुमिवाखादत्सौदासः शापमोहितः ॥३३॥
 
 > evaṁ karuṇa-bhāṣiṇyā
 > vilapantyā anāthavat
@@ -5340,9 +4267,6 @@ This is an example of destiny. King Saudāsa was condemned by the curse of Vasi�
 
 ### SB 9.9.34
 
-> ब्राह्मणी वीक्ष्य दिधिषुं पुरुषादेन भक्षितम
-> शोचन्त्यात्मानमुर्वीशमशपत्कुपिता सती ॥३४॥
-
 > brāhmaṇī vīkṣya didhiṣuṁ
 > puruṣādena bhakṣitam
 > śocanty ātmānam urvīśam
@@ -5353,9 +4277,6 @@ This is an example of destiny. King Saudāsa was condemned by the curse of Vasi�
 **When the chaste wife of the brāhmaṇa saw that her husband, who was about to discharge semen, had been eaten by the man-eater, she was overwhelmed with grief and lamentation. Thus she angrily cursed the King.**
 
 ### SB 9.9.35
-
-> यस्मान्मे भक्षितः पाप कामार्तायाः पतिस्त्वया
-> तवापि मृत्युराधानादकृतप्रज्ञअ दर्शितः ॥३५॥
 
 > yasmān me bhakṣitaḥ pāpa
 > kāmārtāyāḥ patis tvayā
@@ -5368,9 +4289,6 @@ This is an example of destiny. King Saudāsa was condemned by the curse of Vasi�
 
 ### SB 9.9.36
 
-> एवं मित्रसहं शप्त्वा पतिलोकपरायणा
-> तदस्थीनि समिद्धेऽग्नौ प्रास्य भर्तुर्गतिं गता ॥३६॥
-
 > evaṁ mitrasahaṁ śaptvā
 > pati-loka-parāyaṇā
 > tad-asthīni samiddhe 'gnau
@@ -5381,9 +4299,6 @@ This is an example of destiny. King Saudāsa was condemned by the curse of Vasi�
 **Thus the wife of the brāhmaṇa cursed King Saudāsa, known as Mitrasaha. Then, being inclined to go with her husband, she set fire to her husband's bones, fell into the fire herself, and went with him to the same destination.**
 
 ### SB 9.9.37
-
-> विशापो द्वादशाब्दान्ते मैथुनाय समुद्यतः
-> विज्ञआप्य ब्राह्मणीशापं महिष्या स निवारितः ॥३७॥
 
 > viśāpo dvādaśābdānte
 > maithunāya samudyataḥ
@@ -5396,9 +4311,6 @@ This is an example of destiny. King Saudāsa was condemned by the curse of Vasi�
 
 ### SB 9.9.38
 
-> अत ऊर्ध्वं स तत्याज स्त्रीसुखं कर्मणाप्रजाः
-> वसिष्ठस्तदनुज्ञआतो मदयन्त्यां प्रजामधात ॥३८॥
-
 > ata ūrdhvaṁ sa tatyāja
 > strī-sukhaṁ karmaṇāprajāḥ
 > vasiṣṭhas tad-anujñāto
@@ -5409,9 +4321,6 @@ This is an example of destiny. King Saudāsa was condemned by the curse of Vasi�
 **After being thus instructed, the King gave up the future happiness of sexual intercourse and by destiny remained sonless. Later, with the King's permission, the great saint Vasiṣṭha begot a child in the womb of Madayantī.**
 
 ### SB 9.9.39
-
-> सा वै सप्त समा गर्भमबिभ्रन्न व्यजायत
-> जघ्नेऽश्मनोदरं तस्याः सोऽश्मकस्तेन कथ्यते ॥३९॥
 
 > sā vai sapta samā garbham
 > abibhran na vyajāyata
@@ -5424,9 +4333,6 @@ This is an example of destiny. King Saudāsa was condemned by the curse of Vasi�
 
 ### SB 9.9.40
 
-> अश्मकाद्बालिको जज्ञए यः स्त्रीभिः परिरक्षितः
-> नारीकवच इत्युक्तो निःक्षत्रे मूलकोऽभवत ॥४०॥
-
 > aśmakād bāliko jajñe
 > yaḥ strībhiḥ parirakṣitaḥ
 > nārī-kavaca ity ukto
@@ -5438,9 +4344,6 @@ This is an example of destiny. King Saudāsa was condemned by the curse of Vasi�
 
 ### SB 9.9.41
 
-> ततो दशरथस्तस्मात्पुत्र ऐडविडिस्ततः
-> राजा विश्वसहो यस्य खट्वाङ्गश्चक्रवर्त्यभूत ॥४१॥
-
 > tato daśarathas tasmāt
 > putra aiḍaviḍis tataḥ
 > rājā viśvasaho yasya
@@ -5451,9 +4354,6 @@ This is an example of destiny. King Saudāsa was condemned by the curse of Vasi�
 **From Bālika came a son named Daśaratha, from Daśaratha came a son named Aiḍaviḍi, and from Aiḍaviḍi came King Viśvasaha. The son of King Viśvasaha was the famous Mahārāja Khaṭvāṅga.**
 
 ### SB 9.9.42
-
-> यो देवैरर्थितो दैत्यानवधीद्युधि दुर्जयः
-> मुहूर्तमायुरज्ञआत्वैत्य स्वपुरं सन्दधे मनः ॥४२॥
 
 > yo devair arthito daityān
 > avadhīd yudhi durjayaḥ
@@ -5488,9 +4388,6 @@ Therefore, from the very beginning of one's life one should practice *bhakti-yog
 
 ### SB 9.9.43
 
-> न मे ब्रह्मकुलात्प्राणाः कुलदैवान्न चात्मजाः
-> न श्रियो न मही राज्यं न दाराश्चातिवल्लभाः ॥४३॥
-
 > na me brahma-kulāt prāṇāḥ
 > kula-daivān na cātmajāḥ
 > na śriyo na mahī rājyaṁ
@@ -5511,9 +4408,6 @@ Mahārāja Khaṭvāṅga, being in favor of the brahminical culture, wanted to 
 
 ### SB 9.9.44
 
-> न बाल्येऽपि मतिर्मह्यमधर्मे रमते क्वचित
-> नापश्यमुत्तमश्लोकादन्यत्किञ्चन वस्त्वहम ॥४४॥
-
 > na bālye 'pi matir mahyam
 > adharme ramate kvacit
 > nāpaśyam uttamaślokād
@@ -5532,9 +4426,6 @@ Mahārāja Khaṭvāṅga provides a typical example of a Kṛṣṇa conscious 
 
 ### SB 9.9.45
 
-> देवैः कामवरो दत्तो मह्यं त्रिभुवनेश्वरैः
-> न वृणे तमहं कामं भूतभावनभावनः ॥४५॥
-
 > devaiḥ kāma-varo datto
 > mahyaṁ tri-bhuvaneśvaraiḥ
 > na vṛṇe tam ahaṁ kāmaṁ
@@ -5548,9 +4439,6 @@ A devotee is always transcendentally situated. *paraṁ dṛṣṭvā nivartate:
 
 ### SB 9.9.46
 
-> ये विक्षिप्तेन्द्रियधियो देवास्ते स्वहृदि स्थितम
-> न विन्दन्ति प्रियं शश्वदात्मानं किमुतापरे ॥४६॥
-
 > ye vikṣiptendriya-dhiyo
 > devās te sva-hṛdi sthitam
 > na vindanti priyaṁ śaśvad
@@ -5563,9 +4451,6 @@ A devotee is always transcendentally situated. *paraṁ dṛṣṭvā nivartate:
 It is a fact that the Supreme Personality of Godhead is always situated in everyone's heart (*īśvaraḥ sarva-bhūtānāṁ hṛd-deśe 'rjuna tiṣṭhati* [[bg/18/61|[Bg. 18.61] ]]). But because of our material anxieties, which are inevitable in this material world, we cannot understand the Supreme Lord, although He is situated so near to us. For those always agitated by material conditions, the yogic process is recommended so that one may concentrate his mind upon the Supreme Personality of Godhead within the heart. *Dhyānāvasthita-tad-gatena manasā paśyanti yaṁ yoginaḥ* [SB 12.13.1]. Because in material conditions the mind and senses are always agitated, by the yogic procedures like *dhāraṇā, āsana* and *dhyāna* one must quiet the mind and concentrate it upon the Supreme Personality of Godhead. In other words, the yogic process is a material attempt to realize the Lord, whereas *bhakti,* devotional service, is the spiritual process by which to realize Him. Mahārāja Khaṭvāṅga accepted the spiritual path, and therefore he was no longer interested in anything material. Kṛṣṇa says in *Bhagavad-gītā* [[bg/18/55|(Bg. 18.55)]], *bhaktyā mām abhijānāti:* "Only by devotional service can I be understood." One can understand Kṛṣṇa, the Parabrahman, the Supreme Personality of Godhead, only through devotional service. The Lord never says that one can understand Him by performing mystic *yoga* or by philosophically speculating. *Bhakti* is above all such material attempts. *Anyābhilāṣitā-śūnyaṁ jñāna-karmādy-anāvṛtam* [*Bhakti-rasāmṛta-sindhu* 1.1.11]. *Bhakti* is uncontaminated, being unalloyed even by *jñāna* or pious activities.
 
 ### SB 9.9.47
-
-> अथेशमायारचितेषु सङ्गं गुणेषु गन्धर्वपुरोपमेषु
-> रूढं प्रकृत्यात्मनि विश्वकर्तुर्भावेन हित्वा तमहं प्रपद्ये ॥४७॥
 
 > atheśa-māyā-raciteṣu saṅgaṁ
 > guṇeṣu gandharva-puropameṣu
@@ -5588,9 +4473,6 @@ When passing through a mountainous region in an airplane, one may sometimes see 
 
 ### SB 9.9.48
 
-> इति व्यवसितो बुद्ध्या नारायणगृहीतया
-> हित्वान्यभावमज्ञआनं ततः स्वं भावमास्थितः ॥४८॥
-
 > iti vyavasito buddhyā
 > nārāyaṇa-gṛhītayā
 > hitvānya-bhāvam ajñānaṁ
@@ -5603,9 +4485,6 @@ When passing through a mountainous region in an airplane, one may sometimes see 
 When one actually becomes purely Kṛṣṇa conscious, no one has any right to rule over him. When situated in Kṛṣṇa consciousness, one is no longer in the darkness of ignorance, and when freed from all such darkness, one is situated in his original position. *Jīvera 'svarūpa' haya-kṛṣṇera 'nitya-dāsa.'* [[cc/madhya/20/108-109|[Cc. Madhya 20.108] ]]. The living entity is eternally the servant of the Lord, and thus when he engages himself in the service of the Lord in all respects, he enjoys the perfection of life.
 
 ### SB 9.9.49
-
-> यत्तद्ब्रह्म परं सूक्ष्ममशून्यं शून्यकल्पितम
-> भगवान्वासुदेवेति यं गृणन्ति हि सात्वताः ॥४९॥
 
 > yat tad brahma paraṁ sūkṣmam
 > aśūnyaṁ śūnya-kalpitam
@@ -5631,10 +4510,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Ninth Chapter, of the *�
 
 ### SB 9.10.1
 
-> श्रीशुक उवाच
-> खट्वाङ्गाद्दीर्घबाहुश्च रघुस्तस्मात्पृथुश्रवाः
-> अजस्ततो महाराजस्तस्माद्दशरथोऽभवत ॥१॥
-
 > śrī-śuka uvāca
 > khaṭvāṅgād dīrghabāhuś ca
 > raghus tasmāt pṛthu-śravāḥ
@@ -5646,10 +4521,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Ninth Chapter, of the *�
 **Śukadeva Gosvāmī said: The son of Mahārāja Khaṭvāṅga was Dīrghabāhu, and his son was the celebrated Mahārāja Raghu. From Mahārāja Raghu came Aja, and from Aja was born the great personality Mahārāja Daśaratha.**
 
 ### SB 9.10.2
-
-> तस्यापि भगवानेष साक्षाद्ब्रह्ममयो हरिः
-> अंशांशेन चतुर्धागात्पुत्रत्वं प्रार्थितः सुरैः
-> रामलक्ष्मणभरत शत्रुघ्ना इति संज्ञअया ॥२॥
 
 > tasyāpi bhagavān eṣa
 > sākṣād brahmamayo hariḥ
@@ -5665,9 +4536,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Ninth Chapter, of the *�
 Lord Rāmacandra and His brothers, Lakṣmaṇa, Bharata and Śatrughna, are all *viṣṇu-tattva,* not *jīva-tattva.* The Supreme Personality of Godhead expands into many, many forms. *Advaitam acyutam anādim ananta-rūpam* [Bs. 5.33]. Although they are one and the same, *viṣṇu-tattva* has many forms and incarnations. As confirmed in the *Brahma-saṁhitā* (5.39), *rāmādi-mūrtiṣu kalā-niyamena tiṣṭhan.* The Lord is situated in many forms, such as Rāma, Lakṣmaṇa, Bharata and Śatrughna, and these forms may exist in any part of His creation. All these forms exist permanently, eternally, as individual Personalities of Godhead, and they resemble many candles, all equally powerful. Lord Rāmacandra, Lakṣmaṇa, Bharata and Śatrughna, who, being *viṣṇu-tattva,* are all equally powerful, became the sons of Mahārāja Daśaratha in response to prayers by the demigods.
 
 ### SB 9.10.3
-
-> तस्यानुचरितं राजन्नृषिभिस्तत्त्वदर्शिभिः
-> श्रुतं हि वर्णितं भूरि त्वया सीतापतेर्मुहुः ॥३॥
 
 > tasyānucaritaṁ rājann
 > ṛṣibhis tattva-darśibhiḥ
@@ -5689,11 +4557,6 @@ Modern Rākṣasas, posing as educationally advanced merely because they have do
 
 ### SB 9.10.4
 
-> गुर्वर्थे त्यक्तराज्यो व्यचरदनुवनं पद्मपद्भ्यां प्रियायाः
-> पाणिस्पर्शाक्षमाभ्यां मृजितपथरुजो यो हरीन्द्रानुजाभ्याम
-> वैरूप्याच्छूर्पणख्याः प्रियविरहरुषारोपितभ्रूविजृम्भ
-> त्रस्ताब्धिर्बद्धसेतुः खलदवदहनः कोसलेन्द्रोऽवतान्नः ॥४॥
-
 > gurv-arthe tyakta-rājyo vyacarad anuvanaṁ padma-padbhyāṁ priyāyāḥ
 > pāṇi-sparśākṣamābhyāṁ mṛjita-patha-rujo yo harīndrānujābhyām
 > vairūpyāc chūrpaṇakhyāḥ priya-viraha-ruṣāropita-bhrū-vijṛmbha-
@@ -5705,9 +4568,6 @@ Modern Rākṣasas, posing as educationally advanced merely because they have do
 
 ### SB 9.10.5
 
-> विश्वामित्राध्वरे येन मारीचाद्या निशाचराः
-> पश्यतो लक्ष्मणस्यैव हता नैरृतपुङ्गवाः ॥५॥
-
 > viśvāmitrādhvare yena
 > mārīcādyā niśā-carāḥ
 > paśyato lakṣmaṇasyaiva
@@ -5718,15 +4578,6 @@ Modern Rākṣasas, posing as educationally advanced merely because they have do
 **In the arena of the sacrifice performed by Viśvāmitra, Lord Rāmacandra, the King of Ayodhyā, killed many demons, Rākṣasas and uncivilized men who wandered at night in the mode of darkness. May Lord Rāmacandra, who killed these demons in the presence of Lakṣmaṇa, be kind enough to give us protection.**
 
 ### SB 9.10.6-7
-
-> यो लोकवीरसमितौ धनुरैशमुग्रं
-> सीतास्वयंवरगृहे त्रिशतोपनीतम
-> आदाय बालगजलील इवेक्षुयष्टिं
-> सज्ज्यीकृतं नृप विकृष्य बभञ्ज मध्ये ॥६॥
-> जित्वानुरूपगुणशीलवयोऽङ्गरूपां
-> सीताभिधां श्रियमुरस्यभिलब्धमानाम
-> मार्गे व्रजन्भृगुपतेर्व्यनयत्प्ररूढं
-> दर्पं महीमकृत यस्त्रिरराजबीजाम ॥७॥
 
 > yo loka-vīra-samitau dhanur aiśam ugraṁ
 > sītā-svayaṁvara-gṛhe triśatopanītam
@@ -5744,11 +4595,6 @@ Modern Rākṣasas, posing as educationally advanced merely because they have do
 
 ### SB 9.10.8
 
-> यः सत्यपाशपरिवीतपितुर्निदेशं
-> स्त्रैणस्य चापि शिरसा जगृहे सभार्यः
-> राज्यं श्रियं प्रणयिनः सुहृदो निवासं
-> त्यक्त्वा ययौ वनमसूनिव मुक्तसङ्गः ॥८॥
-
 > yaḥ satya-pāśa-parivīta-pitur nideśaṁ
 > straiṇasya cāpi śirasā jagṛhe sabhāryaḥ
 > rājyaṁ śriyaṁ praṇayinaḥ suhṛdo nivāsaṁ
@@ -5762,11 +4608,6 @@ Mahārāja Daśaratha had three wives. One of them, Kaikeyī, served him very pl
 
 ### SB 9.10.9
 
-> रक्षःस्वसुर्व्यकृत रूपमशुद्धबुद्धेस
-> तस्याः खरत्रिशिरदूषणमुख्यबन्धून
-> जघ्ने चतुर्दशसहस्रमपारणीय
-> कोदण्डपाणिरटमान उवास कृच्छ्रम ॥९॥
-
 > rakṣaḥ-svasur vyakṛta rūpam aśuddha-buddhes
 > tasyāḥ khara-triśira-dūṣaṇa-mukhya-bandhūn
 > jaghne caturdaśa-sahasram apāraṇīya-
@@ -5778,11 +4619,6 @@ Mahārāja Daśaratha had three wives. One of them, Kaikeyī, served him very pl
 
 ### SB 9.10.10
 
-> सीताकथाश्रवणदीपितहृच्छयेन
-> सृष्टं विलोक्य नृपते दशकन्धरेण
-> जघ्नेऽद्भुतैणवपुषाश्रमतोऽपकृष्टो
-> मारीचमाशु विशिखेन यथा कमुग्रः ॥१०॥
-
 > sītā-kathā-śravaṇa-dīpita-hṛc-chayena
 > sṛṣṭaṁ vilokya nṛpate daśa-kandhareṇa
 > jaghne 'dbhutaiṇa-vapuṣāśramato 'pakṛṣṭo
@@ -5793,11 +4629,6 @@ Mahārāja Daśaratha had three wives. One of them, Kaikeyī, served him very pl
 **O King Parīkṣit, when Rāvaṇa, who had ten heads on his shoulders, heard about the beautiful and attractive features of Sītā, his mind was agitated by lusty desires, and he went to kidnap her. To distract Lord Rāmacandra from His āśrama, Rāvaṇa sent Mārīca in the form of a golden deer, and when Lord Rāmacandra saw that wonderful deer, He left His residence and followed it and finally killed it with a sharp arrow, just as Lord Śiva killed Dakṣa.**
 
 ### SB 9.10.11
-
-> रक्षोऽधमेन वृकवद्विपिनेऽसमक्षं
-> वैदेहराजदुहितर्यपयापितायाम
-> भ्रात्रा वने कृपणवत्प्रियया वियुक्तः
-> स्त्रीसङ्गिनां गतिमिति प्रथयंश्चचार ॥११॥
 
 > rakṣo-'dhamena vṛkavad vipine 'samakṣaṁ
 > vaideha-rāja-duhitary apayāpitāyām
@@ -5852,11 +4683,6 @@ A further understanding to be derived from this example is that a woman, however
 
 ### SB 9.10.12
 
-> दग्ध्वात्मकृत्यहतकृत्यमहन्कबन्धं
-> सख्यं विधाय कपिभिर्दयितागतिं तैः
-> बुद्ध्वाथ वालिनि हते प्लवगेन्द्रसैन्यैर
-> वेलामगात्स मनुजोऽजभवार्चिताङ्घ्रिः ॥१२॥
-
 > dagdhvātma-kṛtya-hata-kṛtyam ahan kabandhaṁ
 > sakhyaṁ vidhāya kapibhir dayitā-gatiṁ taiḥ
 > buddhvātha vālini hate plavagendra-sainyair
@@ -5870,11 +4696,6 @@ When Rāvaṇa kidnapped Sītā, he was obstructed on the way by Jaṭāyu, a la
 
 ### SB 9.10.13
 
-> यद्रोषविभ्रमविवृत्तकटाक्षपात
-> सम्भ्रान्तनक्रमकरो भयगीर्णघोषः
-> सिन्धुः शिरस्यर्हणं परिगृह्य रूपी
-> पादारविन्दमुपगम्य बभाष एतत ॥१३॥
-
 > yad-roṣa-vibhrama-vivṛtta-kaṭākṣa-pāta-
 > sambhrānta-nakra-makaro bhaya-gīrṇa-ghoṣaḥ
 > sindhuḥ śirasy arhaṇaṁ parigṛhya rūpī
@@ -5885,11 +4706,6 @@ When Rāvaṇa kidnapped Sītā, he was obstructed on the way by Jaṭāyu, a la
 **After reaching the beach, Lord Rāmacandra fasted for three days, awaiting the arrival of the ocean personified. When the ocean did not come, the Lord exhibited His pastimes of anger, and simply by His glancing over the ocean, all the living entities within it, including the crocodiles and sharks, were agitated by fear. Then the personified ocean fearfully approached Lord Rāmacandra, taking all paraphernalia to worship Him. Falling at the Lord's lotus feet, the personified ocean spoke as follows.**
 
 ### SB 9.10.14
-
-> न त्वां वयं जडधियो नु विदाम भूमन
-> कूटस्थमादिपुरुषं जगतामधीशम
-> यत्सत्त्वतः सुरगणा रजसः प्रजेशा
-> मन्योश्च भूतपतयः स भवान्गुणेशः ॥१४॥
 
 > na tvāṁ vayaṁ jaḍa-dhiyo nu vidāma bhūman
 > kūṭa-stham ādi-puruṣaṁ jagatām adhīśam
@@ -5910,11 +4726,6 @@ The word *jaḍa-dhiyaḥ* refers to intelligence like that of an animal. A pers
 When one is distressed he goes to the church or temple to worship the Lord, but when opulent he forgets the Lord. Therefore, punishment by the Lord through material nature is necessary in human society, for without it men forget the supremacy of the Lord due to their dull, blunt intelligence.
 
 ### SB 9.10.15
-
-> कामं प्रयाहि जहि विश्रवसोऽवमेहं
-> त्रैलोक्यरावणमवाप्नुहि वीर पत्नीम
-> बध्नीहि सेतुमिह ते यशसो वितत्यै
-> गायन्ति दिग्विजयिनो यमुपेत्य भूपाः ॥१५॥
 
 > kāmaṁ prayāhi jahi viśravaso 'vamehaṁ
 > trailokya-rāvaṇam avāpnuhi vīra patnīm
@@ -5938,11 +4749,6 @@ One feature of the Supreme Personality of Godhead Lord Rāmacandra is omnipotenc
 
 ### SB 9.10.16
 
-> बद्ध्वोदधौ रघुपतिर्विविधाद्रिकूटैः
-> सेतुं कपीन्द्रकरकम्पितभूरुहाङ्गैः
-> सुग्रीवनीलहनुमत्प्रमुखैरनीकैर
-> लङ्कां विभीषणदृशाविशदग्रदग्धाम ॥१६॥
-
 > baddhvodadhau raghu-patir vividhādri-kūṭaiḥ
 > setuṁ kapīndra-kara-kampita-bhūruhāṅgaiḥ
 > sugrīva-nīla-hanumat-pramukhair anīkair
@@ -5961,11 +4767,6 @@ Describing how material nature works, the *Brahma-saṁhitā* says that the sun 
 
 ### SB 9.10.17
 
-> सा वानरेन्द्रबलरुद्धविहारकोष्ठ
-> श्रीद्वारगोपुरसदोवलभीविटङ्का
-> निर्भज्यमानधिषणध्वजहेमकुम्भ
-> शृङ्गाटका गजकुलैर्ह्रदिनीव घूर्णा ॥१७॥
-
 > sā vānarendra-bala-ruddha-vihāra-koṣṭha-
 > śrī-dvāra-gopura-sado-valabhī-viṭaṅkā
 > nirbhajyamāna-dhiṣaṇa-dhvaja-hema-kumbha-
@@ -5976,11 +4777,6 @@ Describing how material nature works, the *Brahma-saṁhitā* says that the sun 
 **After entering Laṅkā, the monkey soldiers, led by chiefs like Sugrīva, Nīla and Hanumān, occupied all the sporting houses, granaries, treasuries, palace doorways, city gates, assembly houses, palace frontages and even the resting houses of the pigeons. When the city's crossroads, platforms, flags and golden waterpots on its domes were all destroyed, the entire city of Laṅkā appeared like a river disturbed by a herd of elephants.**
 
 ### SB 9.10.18
-
-> रक्षःपतिस्तदवलोक्य निकुम्भकुम्भ
-> धूम्राक्षदुर्मुखसुरान्तकनरान्तकादीन
-> पुत्रं प्रहस्तमतिकायविकम्पनादीन
-> सर्वानुगान्समहिनोदथ कुम्भकर्णम ॥१८॥
 
 > rakṣaḥ-patis tad avalokya nikumbha-kumbha-
 > dhūmrākṣa-durmukha-surāntaka-narāntakādīn
@@ -5993,11 +4789,6 @@ Describing how material nature works, the *Brahma-saṁhitā* says that the sun 
 
 ### SB 9.10.19
 
-> तां यातुधानपृतनामसिशूलचाप
-> प्रासर्ष्टिशक्तिशरतोमरखड्गदुर्गाम
-> सुग्रीवलक्ष्मणमरुत्सुतगन्धमाद
-> नीलाङ्गदर्क्षपनसादिभिरन्वितोऽगात ॥१९॥
-
 > tāṁ yātudhāna-pṛtanām asi-śūla-cāpa-
 > prāsarṣṭi-śaktiśara-tomara-khaḍga-durgām
 > sugrīva-lakṣmaṇa-marutsuta-gandhamāda-
@@ -6008,11 +4799,6 @@ Describing how material nature works, the *Brahma-saṁhitā* says that the sun 
 **Lord Rāmacandra, surrounded by Lakṣmaṇa and monkey soldiers like Sugrīva, Hanumān, Gandhamāda, Nīla, Aṅgada, Jāmbavān and Panasa, attacked the soldiers of the Rākṣasas, who were fully equipped with various invincible weapons like swords, lances, bows, prāsas, ṛṣṭis, śakti arrows, khaḍgas and tomaras.**
 
 ### SB 9.10.20
-
-> तेऽनीकपा रघुपतेरभिपत्य सर्वे
-> द्वन्द्वं वरूथमिभपत्तिरथाश्वयोधैः
-> जघ्नुर्द्रुमैर्गिरिगदेषुभिरङ्गदाद्याः
-> सीताभिमर्षहतमङ्गलरावणेशान ॥२०॥
 
 > te 'nīkapā raghupater abhipatya sarve
 > dvandvaṁ varūtham ibha-patti-rathāśva-yodhaiḥ
@@ -6027,11 +4813,6 @@ The soldiers Lord Rāmacandra recruited in the jungle were all monkeys and did n
 
 ### SB 9.10.21
 
-> रक्षःपतिः स्वबलनष्टिमवेक्ष्य रुष्ट
-> आरुह्य यानकमथाभिससार रामम
-> स्वःस्यन्दने द्युमति मातलिनोपनीते
-> विभ्राजमानमहनन्निशितैः क्षुरप्रैः ॥२१॥
-
 > rakṣaḥ-patiḥ sva-bala-naṣṭim avekṣya ruṣṭa
 > āruhya yānakam athābhisasāra rāmam
 > svaḥ-syandane dyumati mātalinopanīte
@@ -6042,11 +4823,6 @@ The soldiers Lord Rāmacandra recruited in the jungle were all monkeys and did n
 **Thereafter, when Rāvaṇa, the king of the Rākṣasas, observed that his soldiers had been lost, he was extremely angry. Thus he mounted his airplane, which was decorated with flowers, and proceeded toward Lord Rāmacandra, who sat on the effulgent chariot brought by Mātali, the chariot driver of Indra. Then Rāvaṇa struck Lord Rāmacandra with sharp arrows.**
 
 ### SB 9.10.22
-
-> रामस्तमाह पुरुषादपुरीष यन्नः
-> कान्तासमक्षमसतापहृता श्ववत्ते
-> त्यक्तत्रपस्य फलमद्य जुगुप्सितस्य
-> यच्छामि काल इव कर्तुरलङ्घ्यवीर्यः ॥२२॥
 
 > rāmas tam āha puruṣāda-purīṣa yan naḥ
 > kāntāsamakṣam asatāpahṛtā śvavat te
@@ -6060,11 +4836,6 @@ The soldiers Lord Rāmacandra recruited in the jungle were all monkeys and did n
 *Na ca daivāt paraṁ balam:* no one can surpass the strength of the Transcendence. Rāvaṇa was so sinful and shameless that he did not know what the result would be of kidnapping mother Sītā, the pleasure potency of Rāmacandra. This is the disqualification of the Rākṣasas. *Asatyam apratiṣṭhaṁ te jagad āhur anīśvaram [[bg/16/8|[Bg. 16.8] ]].* The Rākṣasas are unaware that the Supreme Lord is the ruler of the creation. They think that everything has come about by chance or accident and that there is no ruler, king or controller. Therefore the Rākṣasas act independently, as they like, going even so far as to kidnap the goddess of fortune. This policy of Rāvaṇa's is extremely dangerous for the materialist; indeed, it brings ruin to the materialistic civilization. Nonetheless, because atheists are Rākṣasas, they dare to do things that are most abominable, and thus they are punished without fail. Religion consists of the orders of the Supreme Lord, and one who carries out these orders is religious. One who fails to carry out the Lord's orders is irreligious, and he is to be punished.
 
 ### SB 9.10.23
-
-> एवं क्षिपन्धनुषि सन्धितमुत्ससर्ज
-> बाणं स वज्रमिव तद्धृदयं बिभेद
-> सोऽसृग्वमन्दशमुखैर्न्यपतद्विमानाद
-> धाहेति जल्पति जने सुकृतीव रिक्तः ॥२३॥
 
 > evaṁ kṣipan dhanuṣi sandhitam utsasarja
 > bāṇaṁ sa vajram iva tad-dhṛdayaṁ bibheda
@@ -6086,9 +4857,6 @@ In *Bhagavad-gītā* [[bg/9/21|(Bg. 9.21)]] it is said, *kṣīṇe puṇye mart
 
 ### SB 9.10.24
 
-> ततो निष्क्रम्य लङ्काया यातुधान्यः सहस्रशः
-> मन्दोदर्या समं तत्र प्ररुदन्त्य उपाद्रवन ॥२४॥
-
 > tato niṣkramya laṅkāyā
 > yātudhānyaḥ sahasraśaḥ
 > mandodaryā samaṁ tatra
@@ -6100,9 +4868,6 @@ In *Bhagavad-gītā* [[bg/9/21|(Bg. 9.21)]] it is said, *kṣīṇe puṇye mart
 
 ### SB 9.10.25
 
-> स्वान्स्वान्बन्धून्परिष्वज्य लक्ष्मणेषुभिरर्दितान
-> रुरुदुः सुस्वरं दीना घ्नन्त्य आत्मानमात्मना ॥२५॥
-
 > svān svān bandhūn pariṣvajya
 > lakṣmaṇeṣubhir arditān
 > ruruduḥ susvaraṁ dīnā
@@ -6113,9 +4878,6 @@ In *Bhagavad-gītā* [[bg/9/21|(Bg. 9.21)]] it is said, *kṣīṇe puṇye mart
 **Striking their breasts in affliction because their husbands had been killed by the arrows of Lakṣmaṇa, the women embraced their respective husbands and cried piteously in voices appealing to everyone.**
 
 ### SB 9.10.26
-
-> हा हताः स्म वयं नाथ लोकरावण रावण
-> कं यायाच्छरणं लङ्का त्वद्विहीना परार्दिता ॥२६॥
 
 > hā hatāḥ sma vayaṁ nātha
 > loka-rāvaṇa rāvaṇa
@@ -6129,9 +4891,6 @@ In *Bhagavad-gītā* [[bg/9/21|(Bg. 9.21)]] it is said, *kṣīṇe puṇye mart
 Rāvaṇa's wife Mandodarī and the other wives knew very well how cruel a person Rāvaṇa was. The very word "Rāvaṇa" means "one who causes crying for others." Rāvaṇa continuously caused trouble for others, but when his sinful activities culminated in giving trouble to Sītādevī, he was killed by Lord Rāmacandra.
 
 ### SB 9.10.27
-
-> न वै वेद महाभाग भवान्कामवशं गतः
-> तेजोऽनुभावं सीताया येन नीतो दशामिमाम ॥२७॥
 
 > na vai veda mahā-bhāga
 > bhavān kāma-vaśaṁ gataḥ
@@ -6153,9 +4912,6 @@ Not only was mother Sītā powerful, but any woman who follows in the footsteps 
 
 ### SB 9.10.28
 
-> कृतैषा विधवा लङ्का वयं च कुलनन्दन
-> देहः कृतोऽन्नं गृध्राणामात्मा नरकहेतवे ॥२८॥
-
 > kṛtaiṣā vidhavā laṅkā
 > vayaṁ ca kula-nandana
 > dehaḥ kṛto 'nnaṁ gṛdhrāṇām
@@ -6176,10 +4932,6 @@ One who follows the path of Rāvaṇa is condemned in two ways: his body is fit 
 
 ### SB 9.10.29
 
-> श्रीशुक उवाच
-> स्वानां विभीषणश्चक्रे कोसलेन्द्रानुमोदितः
-> पितृमेधविधानेन यदुक्तं साम्परायिकम ॥२९॥
-
 > śrī-śuka uvāca
 > svānāṁ vibhīṣaṇaś cakre
 > kosalendrānumoditaḥ
@@ -6194,9 +4946,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 
 ### SB 9.10.30
 
-> ततो ददर्श भगवानशोकवनिकाश्रमे
-> क्षामां स्वविरहव्याधिं शिंशपामूलमाश्रिताम ॥३०॥
-
 > tato dadarśa bhagavān
 > aśoka-vanikāśrame
 > kṣāmāṁ sva-viraha-vyādhiṁ
@@ -6208,9 +4957,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 
 ### SB 9.10.31
 
-> रामः प्रियतमां भार्यां दीनां वीक्ष्यान्वकम्पत
-> आत्मसन्दर्शनाह्लाद विकसन्मुखपङ्कजाम ॥३१॥
-
 > rāmaḥ priyatamāṁ bhāryāṁ
 > dīnāṁ vīkṣyānvakampata
 > ātma-sandarśanāhlāda-
@@ -6221,9 +4967,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 **Seeing His wife in that condition, Lord Rāmacandra was very compassionate. When Rāmacandra came before her, she was exceedingly happy to see her beloved, and her lotuslike mouth showed her joy.**
 
 ### SB 9.10.32
-
-> आरोप्यारुरुहे यानं भ्रातृभ्यां हनुमद्युतः
-> विभीषणाय भगवान्दत्त्वा रक्षोगणेशताम ॥३२॥
 
 > āropyāruruhe yānaṁ
 > bhrātṛbhyāṁ hanumad-yutaḥ
@@ -6238,9 +4981,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 
 ### SB 9.10.33
 
-> लङ्कामायुश्च कल्पान्तं ययौ चीर्णव्रतः पुरीम
-> अवकीर्यमाणः सुकुसुमैर्लोकपालार्पितैः पथि ॥३३॥
-
 > avakīryamāṇaḥ sukusumair
 > lokapālārpitaiḥ pathi
 > upagīyamāna-caritaḥ
@@ -6252,9 +4992,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 
 ### SB 9.10.34
 
-> उपगीयमानचरितः शतधृत्यादिभिर्मुदा
-> गोमूत्रयावकं श्रुत्वा भ्रातरं वल्कलाम्बरम ॥३४॥
-
 > go-mūtra-yāvakaṁ śrutvā
 > bhrātaraṁ valkalāmbaram
 > mahā-kāruṇiko 'tapyaj
@@ -6265,15 +5002,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 **Upon reaching Ayodhyā, Lord Rāmacandra heard that in His absence His brother Bharata was eating barley cooked in the urine of a cow, covering His body with the bark of trees, wearing matted locks of hair, and lying on a mattress of kuśa. The most merciful Lord very much lamented this.**
 
 ### SB 9.10.35-38
-
-> महाकारुणिकोऽतप्यज्जटिलं स्थण्डिलेशयम
-> भरतः प्राप्तमाकर्ण्य पौरामात्यपुरोहितैः ॥३५॥
-> पादुके शिरसि न्यस्य रामं प्रत्युद्यतोऽग्रजम
-> नन्दिग्रामात्स्वशिबिराद्गीतवादित्रनिःस्वनैः ॥३६॥
-> ब्रह्मघोषेण च मुहुः पठद्भिर्ब्रह्मवादिभिः
-> स्वर्णकक्षपताकाभिर्हैमैश्चित्रध्वजै रथैः ॥३७॥
-> सदश्वै रुक्मसन्नाहैर्भटैः पुरटवर्मभिः
-> श्रेणीभिर्वारमुख्याभिर्भृत्यैश्चैव पदानुगैः ॥३८॥
 
 > bharataḥ prāptam ākarṇya
 > paurāmātya-purohitaiḥ
@@ -6303,11 +5031,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 
 ### SB 9.10.39-40
 
-> पारमेष्ठ्यान्युपादाय पण्यान्युच्चावचानि च
-> पादयोर्न्यपतत्प्रेम्णा प्रक्लिन्नहृदयेक्षणः ॥३९॥
-> पादुके न्यस्य पुरतः प्राञ्जलिर्बाष्पलोचनः
-> तमाश्लिष्य चिरं दोर्भ्यां स्नापयन्नेत्रजैर्जलैः ॥४०॥
-
 > pāduke nyasya purataḥ
 > prāñjalir bāṣpa-locanaḥ
 > tam āśliṣya ciraṁ dorbhyāṁ
@@ -6324,9 +5047,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 
 ### SB 9.10.41
 
-> रामो लक्ष्मणसीताभ्यां विप्रेभ्यो येऽर्हसत्तमाः
-> तेभ्यः स्वयं नमश्चक्रे प्रजाभिश्च नमस्कृतः ॥४१॥
-
 > dhunvanta uttarāsaṅgān
 > patiṁ vīkṣya cirāgatam
 > uttarāḥ kosalā mālyaiḥ
@@ -6337,11 +5057,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 **The citizens of Ayodhyā, upon seeing their King return after a long absence, offered Him flower garlands, waved their upper cloths, and danced in great jubilation.**
 
 ### SB 9.10.42-43
-
-> धुन्वन्त उत्तरासङ्गान्पतिं वीक्ष्य चिरागतम
-> उत्तराः कोसला माल्यैः किरन्तो ननृतुर्मुदा ॥४२॥
-> पादुके भरतोऽगृह्णाच्चामरव्यजनोत्तमे
-> विभीषणः ससुग्रीवः श्वेतच्छत्रं मरुत्सुतः ॥४३॥
 
 > pāduke bharato 'gṛhṇāc
 > cāmara-vyajanottame
@@ -6359,9 +5074,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 
 ### SB 9.10.44
 
-> धनुर्निषङ्गान्छत्रुघ्नः सीता तीर्थकमण्डलुम
-> अबिभ्रदङ्गदः खड्गं हैमं चर्मर्क्षराण्नृप ॥४४॥
-
 > puṣpaka-stho nutaḥ strībhiḥ
 > stūyamānaś ca vandibhiḥ
 > vireje bhagavān rājan
@@ -6372,11 +5084,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 **O King Parīkṣit, as the Lord sat on His airplane of flowers, with women offering Him prayers and reciters chanting about His characteristics, He appeared like the moon with the stars and planets.**
 
 ### SB 9.10.45-46
-
-> पुष्पकस्थो नुतः स्त्रीभिः स्तूयमानश्च वन्दिभिः
-> विरेजे भगवान्राजन्ग्रहैश्चन्द्र इवोदितः ॥४५॥
-> भ्रात्राभिनन्दितः सोऽथ सोत्सवां प्राविशत्पुरीम
-> प्रविश्य राजभवनं गुरुपत्नीः स्वमातरम ॥४६॥
 
 > bhrātrābhinanditaḥ so 'tha
 > sotsavāṁ prāviśat purīm
@@ -6394,9 +5101,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 
 ### SB 9.10.47
 
-> गुरून्वयस्यावरजान्पूजितः प्रत्यपूजयत
-> वैदेही लक्ष्मणश्चैव यथावत्समुपेयतुः ॥४७॥
-
 > putrān sva-mātaras tās tu
 > prāṇāṁs tanva ivotthitāḥ
 > āropyāṅke 'bhiṣiñcantyo
@@ -6407,9 +5111,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 **Upon seeing their sons, the mothers of Rāma, Lakṣmaṇa, Bharata and Śatrughna immediately arose, like unconscious bodies returning to consciousness. The mothers placed their sons on their laps and bathed Them with tears, thus relieving themselves of the grief of long separation.**
 
 ### SB 9.10.48
-
-> पुत्रान्स्वमातरस्तास्तु प्राणांस्तन्व इवोत्थिताः
-> आरोप्याङ्केऽभिषिञ्चन्त्यो बाष्पौघैर्विजहुः शुचः ॥४८॥
 
 > jaṭā nirmucya vidhivat
 > kula-vṛddhaiḥ samaṁ guruḥ
@@ -6422,9 +5123,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 
 ### SB 9.10.49
 
-> जटा निर्मुच्य विधिवत्कुलवृद्धैः समं गुरुः
-> अभ्यषिञ्चद्यथैवेन्द्रं चतुःसिन्धुजलादिभिः ॥४९॥
-
 > evaṁ kṛta-śiraḥ-snānaḥ
 > suvāsāḥ sragvy-alaṅkṛtaḥ
 > svalaṅkṛtaiḥ suvāsobhir
@@ -6435,9 +5133,6 @@ After giving up the body, one is transferred to another body, but sometimes, if 
 **Lord Rāmacandra, fully bathed and His head clean-shaven, dressed Himself very nicely and was decorated with a garland and ornaments. Thus He shone brightly, surrounded by His brothers and wife, who were similarly dressed and ornamented.**
 
 ### SB 9.10.50
-
-> एवं कृतशिरःस्नानः सुवासाः स्रग्व्यलङ्कृतः
-> स्वलङ्कृतैः सुवासोभिर्भ्रातृभिर्भार्यया बभौ ॥५०॥
 
 > agrahīd āsanaṁ bhrātrā
 > praṇipatya prasāditaḥ
@@ -6455,10 +5150,6 @@ People are very fond of the pattern of Rāma-rājya, and even today politicians 
 Simply enforcing laws and ordinances cannot make the citizens obedient and lawful. That is impossible. Throughout the entire world there are so many states, legislative assemblies and parliaments, but still the citizens are rogues and thieves. Good citizenship, therefore, cannot be enforced; the citizens must be trained. As there are schools and colleges to train students to become chemical engineers, lawyers or specialists in many other departments of knowledge, there must be schools and colleges to train students to become *brāhmaṇas, kṣatriyas, vaiśyas, śūdras, brahmacārīs, gṛhasthas, vānaprasthas* and *sannyāsīs.* This will provide the preliminary condition for good citizenship (*varṇāśrama-guṇān-vitāḥ*). Generally speaking, if the king or president is a *rājarṣi,* the relationship between the citizens and the chief executive will be clear, and there will be no possibility of disruption in the state, because the number of thieves and rogues will decrease. In Kali-yuga, however, because the *varṇāśrama* system is neglected, people are generally thieves and rogues. In the system of democracy, such thieves and rogues naturally collect money from other thieves and rogues, and thus there is chaos in every government, and no one is happy. But here the example of good government is to be found in the reign of Lord Rāmacandra. If people follow this example, there will be good government all over the world.
 
 ### SB 9.10.51
-
-> अग्रहीदासनं भ्रात्रा प्रणिपत्य प्रसादितः
-> प्रजाः स्वधर्मनिरता वर्णाश्रमगुणान्विताः
-> जुगोप पितृवद्रामो मेनिरे पितरं च तम ॥५१॥
 
 > tretāyāṁ vartamānāyāṁ
 > kālaḥ kṛta-samo 'bhavat
@@ -6480,9 +5171,6 @@ Among the four *yugas*-Satya, Tretā, Dvāpara and Kali-the Kali-yuga is the wor
 
 ### SB 9.10.52
 
-> त्रेतायां वर्तमानायां कालः कृतसमोऽभवत
-> रामे राजनि धर्मज्ञए सर्वभूतसुखावहे ॥५२॥
-
 > vanāni nadyo girayo
 > varṣāṇi dvīpa-sindhavaḥ
 > sarve kāma-dughā āsan
@@ -6493,9 +5181,6 @@ Among the four *yugas*-Satya, Tretā, Dvāpara and Kali-the Kali-yuga is the wor
 **O Mahārāja Parīkṣit, best of the Bharata dynasty, during the reign of Lord Rāmacandra the forests, the rivers, the hills and mountains, the states, the seven islands and the seven seas were all favorable in supplying the necessities of life for all living beings.**
 
 ### SB 9.10.53
-
-> वनानि नद्यो गिरयो वर्षाणि द्वीपसिन्धवः
-> सर्वे कामदुघा आसन्प्रजानां भरतर्षभ ॥५३॥
 
 > nādhi-vyādhi-jarā-glāni-
 > duḥkha-śoka-bhaya-klamāḥ
@@ -6510,9 +5195,6 @@ All these facilities existed because of Lord Rāmacandra's presence as the King 
 
 ### SB 9.10.54
 
-> नाधिव्याधिजराग्लानि दुःखशोकभयक्लमाः
-> मृत्युश्चानिच्छतां नासीद्रामे राजन्यधोक्षजे ॥५४॥
-
 > eka-patnī-vrata-dharo
 > rājarṣi-caritaḥ śuciḥ
 > sva-dharmaṁ gṛha-medhīyaṁ
@@ -6525,9 +5207,6 @@ All these facilities existed because of Lord Rāmacandra's presence as the King 
 *Eka-patnī-vrata,* accepting only one wife, was the glorious example set by Lord Rāmacandra. One should not accept more than one wife. In those days, of course, people did marry more than one wife. Even Lord Rāmacandra's father accepted more wives than one. But Lord Rāmacandra, as an ideal king, accepted only one wife, mother Sītā. When mother Sītā was kidnapped by Rāvaṇa and the Rākṣasas, Lord Rāmacandra, as the Supreme Personality of Godhead, could have married hundreds and thousands of Sītās, but to teach us how faithful He was to His wife, He fought with Rāvaṇa and finally killed him. The Lord punished Rāvaṇa and rescued His wife to instruct men to have only one wife. Lord Rāmacandra accepted only one wife and manifested sublime character, thus setting an example for householders. A householder should live according to the ideal of Lord Rāmacandra, who showed how to be a perfect person. Being a householder or living with a wife and children is never condemned, provided one lives according to the regulative principles of *varṇāśrama-dharma.* Those who live in accordance with these principles, whether as householders, *brahmacārīs* or *vānaprasthas,* are all equally important.
 
 ### SB 9.10.55
-
-> एकपत्नीव्रतधरो राजर्षिचरितः शुचिः
-> स्वधर्मं गृहमेधीयं शिक्षयन्स्वयमाचरत ॥५५॥
 
 > premṇānuvṛttyā śīlena
 > praśrayāvanatā satī
@@ -6545,10 +5224,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Tenth Chapter, of the *�
 ## Canto 9, Chapter 11
 
 ### SB 9.11.1
-
-> श्रीशुक उवाच
-> भगवानात्मनात्मानं राम उत्तमकल्पकैः
-> सर्वदेवमयं देवमीजेऽथाचार्यवान्मखैः ॥१॥
 
 > śrī-śuka uvāca
 > bhagavān ātmanātmānaṁ
@@ -6571,9 +5246,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Tenth Chapter, of the *�
 
 ### SB 9.11.2
 
-> होत्रेऽददाद्दिशं प्राचीं ब्रह्मणे दक्षिणां प्रभुः
-> अध्वर्यवे प्रतीचीं वा उत्तरां सामगाय सः ॥२॥
-
 > hotre 'dadād diśaṁ prācīṁ
 > brahmaṇe dakṣiṇāṁ prabhuḥ
 > adhvaryave pratīcīṁ vā
@@ -6584,9 +5256,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Tenth Chapter, of the *�
 **Lord Rāmacandra gave the entire east to the hotā priest, the entire south to the brahmā priest, the west to the adhvaryu priest, and the north to the udgātā priest, the reciter of the Sāma Veda. In this way, He donated His kingdom.**
 
 ### SB 9.11.3
-
-> आचार्याय ददौ शेषां यावती भूस्तदन्तरा
-> अन्यमान इदं कृत्स्नं ब्राह्मणोऽर्हति निःस्पृहः ॥३॥
 
 > ācāryāya dadau śeṣāṁ
 > yāvatī bhūs tad-antarā
@@ -6599,9 +5268,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Tenth Chapter, of the *�
 
 ### SB 9.11.4
 
-> इत्ययं तदलङ्कार वासोभ्यामवशेषितः
-> तथा राज्ञयपि वैदेही सौमङ्गल्यावशेषिता ॥४॥
-
 > ity ayaṁ tad-alaṅkāra-
 > vāsobhyām avaśeṣitaḥ
 > tathā rājñy api vaidehī
@@ -6612,9 +5278,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Tenth Chapter, of the *�
 **After thus giving everything in charity to the brāhmaṇas, Lord Rāmacandra retained only His personal garments and ornaments, and similarly the Queen, mother Sītā, was left with only her nose ring, and nothing else.**
 
 ### SB 9.11.5
-
-> ते तु ब्राह्मणदेवस्य वात्सल्यं वीक्ष्य संस्तुतम
-> प्रीताः क्लिन्नधियस्तस्मै प्रत्यर्प्येदं बभाषिरे ॥५॥
 
 > te tu brāhmaṇa-devasya
 > vātsalyaṁ vīkṣya saṁstutam
@@ -6636,9 +5299,6 @@ In the previous chapter it was said that the *prajās,* the citizens, strictly f
 
 ### SB 9.11.6
 
-> अप्रत्तं नस्त्वया किं नु भगवन्भुवनेश्वर
-> यन्नोऽन्तर्हृदयं विश्य तमो हंसि स्वरोचिषा ॥६॥
-
 > aprattaṁ nas tvayā kiṁ nu
 > bhagavan bhuvaneśvara
 > yan no 'ntar-hṛdayaṁ viśya
@@ -6652,9 +5312,6 @@ When Dhruva Mahārāja was offered a benediction by the Supreme Personality of G
 
 ### SB 9.11.7
 
-> नमो ब्रह्मण्यदेवाय रामायाकुण्ठमेधसे
-> उत्तमश्लोकधुर्याय न्यस्तदण्डार्पिताङ्घ्रये ॥७॥
-
 > namo brahmaṇya-devāya
 > rāmāyākuṇṭha-medhase
 > uttamaśloka-dhuryāya
@@ -6665,9 +5322,6 @@ When Dhruva Mahārāja was offered a benediction by the Supreme Personality of G
 **O Lord, You are the Supreme Personality of Godhead, who have accepted the brāhmaṇas as Your worshipable deity. Your knowledge and memory are never disturbed by anxiety. You are the chief of all famous persons within this world, and Your lotus feet are worshiped by sages who are beyond the jurisdiction of punishment. O Lord Rāmacandra, let us offer our respectful obeisances unto You.**
 
 ### SB 9.11.8
-
-> कदाचिल्लोकजिज्ञआसुर्गूढो रात्र्यामलक्षितः
-> चरन्वाचोऽशृणोद्रामो भार्यामुद्दिश्य कस्यचित ॥८॥
 
 > kadācil loka-jijñāsur
 > gūḍho rātryām alakṣitaḥ
@@ -6680,9 +5334,6 @@ When Dhruva Mahārāja was offered a benediction by the Supreme Personality of G
 
 ### SB 9.11.9
 
-> नाहं बिभर्मि त्वां दुष्टामसतीं परवेश्मगाम
-> स्त्रैणो हि बिभृयात्सीतां रामो नाहं भजे पुनः ॥९॥
-
 > nāhaṁ bibharmi tvāṁ duṣṭām
 > asatīṁ para-veśma-gām
 > straiṇo hi bibhṛyāt sītāṁ
@@ -6693,9 +5344,6 @@ When Dhruva Mahārāja was offered a benediction by the Supreme Personality of G
 **[Speaking to his unchaste wife, the man said] You go to another man's house, and therefore you are unchaste and polluted. I shall not maintain you any more. A henpecked husband like Lord Rāma may accept a wife like Sītā, who went to another man's house, but I am not henpecked like Him, and therefore I shall not accept you again.**
 
 ### SB 9.11.10
-
-> इति लोकाद्बहुमुखाद्दुराराध्यादसंविदः
-> पत्या भीतेन सा त्यक्ता प्राप्ता प्राचेतसाश्रमम ॥१०॥
 
 > iti lokād bahu-mukhād
 > durārādhyād asaṁvidaḥ
@@ -6708,9 +5356,6 @@ When Dhruva Mahārāja was offered a benediction by the Supreme Personality of G
 
 ### SB 9.11.11
 
-> अन्तर्वत्न्यागते काले यमौ सा सुषुवे सुतौ
-> कुशो लव इति ख्यातौ तयोश्चक्रे क्रिया मुनिः ॥११॥
-
 > antarvatny āgate kāle
 > yamau sā suṣuve sutau
 > kuśo lava iti khyātau
@@ -6722,9 +5367,6 @@ When Dhruva Mahārāja was offered a benediction by the Supreme Personality of G
 
 ### SB 9.11.12
 
-> अङ्गदश्चित्रकेतुश्च लक्ष्मणस्यात्मजौ स्मृतौ
-> तक्षः पुष्कल इत्यास्तां भरतस्य महीपते ॥१२॥
-
 > aṅgadaś citraketuś ca
 > lakṣmaṇasyātmajau smṛtau
 > takṣaḥ puṣkala ity āstāṁ
@@ -6735,12 +5377,6 @@ When Dhruva Mahārāja was offered a benediction by the Supreme Personality of G
 **O Mahārāja Parīkṣit, Lord Lakṣmaṇa had two sons, named Aṅgada and Citraketu, and Lord Bharata also had two sons, named Takṣa and Puṣkala.**
 
 ### SB 9.11.13-14
-
-> सुबाहुः श्रुतसेनश्च शत्रुघ्नस्य बभूवतुः
-> गन्धर्वान्कोटिशो जघ्ने भरतो विजये दिशाम ॥१३॥
-> तदीयं धनमानीय सर्वं राज्ञए न्यवेदयत
-> शत्रुघ्नश्च मधोः पुत्रं लवणं नाम राक्षसम
-> हत्वा मधुवने चक्रे मथुरां नाम वै पुरीम ॥१४॥
 
 > subāhuḥ śrutasenaś ca
 > śatrughnasya babhūvatuḥ
@@ -6760,9 +5396,6 @@ When Dhruva Mahārāja was offered a benediction by the Supreme Personality of G
 
 ### SB 9.11.15
 
-> मुनौ निक्षिप्य तनयौ सीता भर्त्रा विवासिता
-> ध्यायन्ती रामचरणौ विवरं प्रविवेश ह ॥१५॥
-
 > munau nikṣipya tanayau
 > sītā bhartrā vivāsitā
 > dhyāyantī rāma-caraṇau
@@ -6775,9 +5408,6 @@ When Dhruva Mahārāja was offered a benediction by the Supreme Personality of G
 It was impossible for Sītādevī to live in separation from Lord Rāmacandra. Therefore, after entrusting her two sons to the care of Vālmīki Muni, she entered into the earth.
 
 ### SB 9.11.16
-
-> तच्छ्रुत्वा भगवान्रामो रुन्धन्नपि धिया शुचः
-> स्मरंस्तस्या गुणांस्तांस्तान्नाशक्नोद्रोद्धुमीश्वरः ॥१६॥
 
 > tac chrutvā bhagavān rāmo
 > rundhann api dhiyā śucaḥ
@@ -6792,9 +5422,6 @@ Lord Rāmacandra's grief at the news of Sītādevī's entering the earth is not 
 
 ### SB 9.11.17
 
-> स्त्रीपुंप्रसङ्ग एतादृक्सर्वत्र त्रासमावहः
-> अपीश्वराणां किमुत ग्राम्यस्य गृहचेतसः ॥१७॥
-
 > strī-puṁ-prasaṅga etādṛk
 > sarvatra trāsam-āvahaḥ
 > apīśvarāṇāṁ kim uta
@@ -6808,9 +5435,6 @@ As explained above, when the feelings of love and transcendental bliss from the 
 
 ### SB 9.11.18
 
-> तत ऊर्ध्वं ब्रह्मचर्यं धार्यन्नजुहोत्प्रभुः
-> त्रयोदशाब्दसाहस्रमग्निहोत्रमखण्डितम ॥१८॥
-
 > tata ūrdhvaṁ brahmacaryaṁ
 > dhāryann ajuhot prabhuḥ
 > trayodaśābda-sāhasram
@@ -6821,9 +5445,6 @@ As explained above, when the feelings of love and transcendental bliss from the 
 **After mother Sītā entered the earth, Lord Rāmacandra observed complete celibacy and performed an uninterrupted Agnihotra-yajña for thirteen thousand years.**
 
 ### SB 9.11.19
-
-> स्मरतां हृदि विन्यस्य विद्धं दण्डककण्टकैः
-> स्वपादपल्लवं राम आत्मज्योतिरगात्ततः ॥१९॥
 
 > smaratāṁ hṛdi vinyasya
 > viddhaṁ daṇḍaka-kaṇṭakaiḥ
@@ -6847,11 +5468,6 @@ The word *ātma-jyotiḥ* is significant. The *brahmajyoti,* which is greatly ap
 
 ### SB 9.11.20
 
-> नेदं यशो रघुपतेः सुरयाचञ्अयात्त
-> लीलातनोरधिकसाम्यविमुक्तधाम्नः
-> रक्षोवधो जलधिबन्धनमस्त्रपूगैः
-> किं तस्य शत्रुहनने कपयः सहायाः ॥२०॥
-
 > nedaṁ yaśo raghupateḥ sura-yācñayātta-
 > līlā-tanor adhika-sāmya-vimukta-dhāmnaḥ
 > rakṣo-vadho jaladhi-bandhanam astra-pūgaiḥ
@@ -6873,11 +5489,6 @@ As stated in the *Vedas* (*Śvetāśvatara Upaniṣad* 6.8):
 
 ### SB 9.11.21
 
-> यस्यामलं नृपसदःसु यशोऽधुनापि
-> गायन्त्यघघ्नमृषयो दिगिभेन्द्रपट्टम
-> तं नाकपालवसुपालकिरीटजुष्ट
-> पादाम्बुजं रघुपतिं शरणं प्रपद्ये ॥२१॥
-
 > yasyāmalaṁ nṛpa-sadaḥsu yaśo 'dhunāpi
 > gāyanty agha-ghnam ṛṣayo dig-ibhendra-paṭṭam
 > taṁ nākapāla-vasupāla-kirīṭa-juṣṭa-
@@ -6888,9 +5499,6 @@ As stated in the *Vedas* (*Śvetāśvatara Upaniṣad* 6.8):
 **Lord Rāmacandra's spotless name and fame, which vanquish all sinful reactions, are celebrated in all directions, like the ornamental cloth of the victorious elephant that conquers all directions. Great saintly persons like Mārkaṇḍeya Ṛṣi still glorify His characteristics in the assemblies of great emperors like Mahārāja Yudhiṣṭhira. Similarly, all the saintly kings and all the demigods, including Lord Śiva and Lord Brahmā, worship the Lord by bowing down with their helmets. Let me offer my obeisances unto His lotus feet.**
 
 ### SB 9.11.22
-
-> स यैः स्पृष्टोऽभिदृष्टो वा संविष्टोऽनुगतोऽपि वा
-> कोसलास्ते ययुः स्थानं यत्र गच्छन्ति योगिनः ॥२२॥
 
 > sa yaiḥ spṛṣṭo 'bhidṛṣṭo vā
 > saṁviṣṭo 'nugato 'pi vā
@@ -6912,9 +5520,6 @@ The Lord says in *Bhagavad-gītā* [[bg/4/9|(Bg. 4.9)]]:
 
 ### SB 9.11.23
 
-> पुरुषो रामचरितं श्रवणैरुपधारयन
-> आनृशंस्यपरो राजन्कर्मबन्धैर्विमुच्यते ॥२३॥
-
 > puruṣo rāma-caritaṁ
 > śravaṇair upadhārayan
 > ānṛśaṁsya-paro rājan
@@ -6928,10 +5533,6 @@ Here in this material world, everyone is envious of someone else. Even in religi
 
 ### SB 9.11.24
 
-> श्रीराजोवाच
-> कथं स भगवान्रामो भ्रात्न्वा स्वयमात्मनः
-> तस्मिन्वा तेऽन्ववर्तन्त प्रजाः पौराश्च ईश्वरे ॥२४॥
-
 > śrī-rājovāca
 > kathaṁ sa bhagavān rāmo
 > bhrātṝn vā svayam ātmanaḥ
@@ -6943,10 +5544,6 @@ Here in this material world, everyone is envious of someone else. Even in religi
 **Mahārāja Parīkṣit inquired from Śukadeva Gosvāmī: How did the Lord conduct Himself, and how did He behave in relationship with His brothers, who were expansions of His own self? And how did His brothers and the inhabitants of Ayodhyā treat Him?**
 
 ### SB 9.11.25
-
-> श्रीबादरायणिरुवाच
-> अथादिशद्दिग्विजये भ्रातंस्त्रिभुवनेश्वरः
-> आत्मानं दर्शयन्स्वानां पुरीमैक्षत सानुगः ॥२५॥
 
 > śrī-bādarāyaṇir uvāca
 > athādiśad dig-vijaye
@@ -6971,9 +5568,6 @@ Of course, those who are *kaniṣṭha-adhikārīs* do not preach, but the Lord 
 
 ### SB 9.11.26
 
-> आसिक्तमार्गां गन्धोदैः करिणां मदशीकरैः
-> स्वामिनं प्राप्तमालोक्य मत्तां वा सुतरामिव ॥२६॥
-
 > āsikta-mārgāṁ gandhodaiḥ
 > kariṇāṁ mada-śīkaraiḥ
 > svāminaṁ prāptam ālokya
@@ -6987,9 +5581,6 @@ We have simply heard about the opulence of Rāma-rājya during the reign of Lord
 
 ### SB 9.11.27
 
-> प्रासादगोपुरसभा चैत्यदेवगृहादिषु
-> विन्यस्तहेमकलशैः पताकाभिश्च मण्डिताम ॥२७॥
-
 > prāsāda-gopura-sabhā-
 > caitya-deva-gṛhādiṣu
 > vinyasta-hema-kalaśaiḥ
@@ -7000,9 +5591,6 @@ We have simply heard about the opulence of Rāma-rājya during the reign of Lord
 **The palaces, the palace gates, the assembly houses, the platforms for meeting places, the temples and all such places were decorated with golden waterpots and bedecked with various types of flags.**
 
 ### SB 9.11.28
-
-> पूगैः सवृन्तै रम्भाभिः पट्टिकाभिः सुवाससाम
-> आदर्शैरंशुकैः स्रग्भिः कृतकौतुकतोरणाम ॥२८॥
 
 > pūgaiḥ savṛntai rambhābhiḥ
 > paṭṭikābhiḥ suvāsasām
@@ -7015,9 +5603,6 @@ We have simply heard about the opulence of Rāma-rājya during the reign of Lord
 
 ### SB 9.11.29
 
-> तमुपेयुस्तत्र तत्र पौरा अर्हणपाणयः
-> आशिषो युयुजुर्देव पाहीमां प्राक्त्वयोद्धृताम ॥२९॥
-
 > tam upeyus tatra tatra
 > paurā arhaṇa-pāṇayaḥ
 > āśiṣo yuyujur deva
@@ -7029,9 +5614,6 @@ We have simply heard about the opulence of Rāma-rājya during the reign of Lord
 
 ### SB 9.11.30
 
-> ततः प्रजा वीक्ष्य पतिं चिरागतं दिदृक्षयोत्सृष्टगृहाः स्त्रियो नराः
-> आरुह्य हर्म्याण्यरविन्दलोचनमतृप्तनेत्राः कुसुमैरवाकिरन ॥३०॥
-
 > tataḥ prajā vīkṣya patiṁ cirāgataṁ
 > didṛkṣayotsṛṣṭa-gṛhāḥ striyo narāḥ
 > āruhya harmyāṇy aravinda-locanam
@@ -7042,15 +5624,6 @@ We have simply heard about the opulence of Rāma-rājya during the reign of Lord
 **Thereafter, not having seen the Lord for a long time, the citizens, both men and women, being very eager to see Him, left their homes and got up on the roofs of the palaces. Being incompletely satiated with seeing the face of the lotus-eyed Lord Rāmacandra, they showered flowers upon Him.**
 
 ### SB 9.11.31-34
-
-> अथ प्रविष्टः स्वगृहं जुष्टं स्वैः पूर्वराजभिः
-> अनन्ताखिलकोषाढ्यमनर्घ्योरुपरिच्छदम ॥३१॥
-> विद्रुमोदुम्बरद्वारैर्वैदूर्यस्तम्भपङ्क्तिभिः
-> स्थलैर्मारकतैः स्वच्छैर्भ्राजत्स्फटिकभित्तिभिः ॥३२॥
-> चित्रस्रग्भिः पट्टिकाभिर्वासोमणिगणांशुकैः
-> मुक्ताफलैश्चिदुल्लासैः कान्तकामोपपत्तिभिः ॥३३॥
-> धूपदीपैः सुरभिभिर्मण्डितं पुष्पमण्डनैः
-> स्त्रीपुम्भिः सुरसङ्काशैर्जुष्टं भूषणभूषणैः ॥३४॥
 
 > atha praviṣṭaḥ sva-gṛhaṁ
 > juṣṭaṁ svaiḥ pūrva-rājabhiḥ
@@ -7078,9 +5651,6 @@ We have simply heard about the opulence of Rāma-rājya during the reign of Lord
 
 ### SB 9.11.35
 
-> तस्मिन्स भगवान्रामः स्निग्धया प्रिययेष्टया
-> रेमे स्वारामधीराणामृषभः सीतया किल ॥३५॥
-
 > tasmin sa bhagavān rāmaḥ
 > snigdhayā priyayeṣṭayā
 > reme svārāma-dhīrāṇām
@@ -7091,9 +5661,6 @@ We have simply heard about the opulence of Rāma-rājya during the reign of Lord
 **Lord Rāmacandra, the Supreme Personality of Godhead, chief of the best learned scholars, resided in that palace with His pleasure potency, mother Sītā, and enjoyed complete peace.**
 
 ### SB 9.11.36
-
-> बुभुजे च यथाकालं कामान्धर्ममपीडयन
-> वर्षपूगान्बहून्नॄणामभिध्याताङ्घ्रिपल्लवः ॥३६॥
 
 > bubhuje ca yathā-kālaṁ
 > kāmān dharmam apīḍayan
@@ -7110,10 +5677,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Eleventh Chapter, of the
 
 ### SB 9.12.1
 
-> श्रीशुक उवाच
-> कुशस्य चातिथिस्तस्मान्निषधस्तत्सुतो नभः
-> पुण्डरीकोऽथ तत्पुत्रः क्षेमधन्वाभवत्ततः ॥१॥
-
 > śrī-śuka uvāca
 > kuśasya cātithis tasmān
 > niṣadhas tat-suto nabhaḥ
@@ -7126,9 +5689,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Eleventh Chapter, of the
 
 ### SB 9.12.2
 
-> देवानीकस्ततोऽनीहः पारियात्रोऽथ तत्सुतः
-> ततो बलस्थलस्तस्माद्वज्रनाभोऽर्कसम्भवः ॥२॥
-
 > devānīkas tato 'nīhaḥ
 > pāriyātro 'tha tat-sutaḥ
 > tato balasthalas tasmād
@@ -7139,11 +5699,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Eleventh Chapter, of the
 **The son of Kṣemadhanvā was Devānīka, Devānīka's son was Anīha, Anīha's son was Pāriyātra, and Pāriyātra's son was Balasthala. The son of Balasthala was Vajranābha, who was said to have been born from the effulgence of the sun-god.**
 
 ### SB 9.12.3-4
-
-> सगणस्तत्सुतस्तस्माद्विधृतिश्चाभवत्सुतः
-> ततो हिरण्यनाभोऽभूद्योगाचार्यस्तु जैमिनेः ॥३॥
-> शिष्यः कौशल्य आध्यात्मं याज्ञअवल्क्योऽध्यगाद्यतः
-> योगं महोदयमृषिर्हृदयग्रन्थिभेदकम ॥४॥
 
 > sagaṇas tat-sutas tasmād
 > vidhṛtiś cābhavat sutaḥ
@@ -7161,9 +5716,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Eleventh Chapter, of the
 
 ### SB 9.12.5
 
-> पुष्पो हिरण्यनाभस्य ध्रुवसन्धिस्ततोऽभवत
-> सुदर्शनोऽथाग्निवर्णः शीघ्रस्तस्य मरुः सुतः ॥५॥
-
 > puṣpo hiraṇyanābhasya
 > dhruvasandhis tato 'bhavat
 > sudarśano 'thāgnivarṇaḥ
@@ -7174,9 +5726,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Eleventh Chapter, of the
 **The son of Hiraṇyanābha was Puṣpa, and the son of Puṣpa was Dhruvasandhi. The son of Dhruvasandhi was Sudarśana, whose son was Agnivarṇa. The son of Agnivarṇa was named Śīghra, and his son was Maru.**
 
 ### SB 9.12.6
-
-> सोऽसावास्ते योगसिद्धः कलापग्राममास्थितः
-> कलेरन्ते सूर्यवंशं नष्टं भावयिता पुनः ॥६॥
 
 > so 'sāv āste yoga-siddhaḥ
 > kalāpa-grāmam āsthitaḥ
@@ -7191,9 +5740,6 @@ At least five thousand years ago, Śrīla Śukadeva Gosvāmī ascertained the ex
 
 ### SB 9.12.7
 
-> तस्मात्प्रसुश्रुतस्तस्य सन्धिस्तस्याप्यमर्षणः
-> महस्वांस्तत्सुतस्तस्माद्विश्वबाहुरजायत ॥७॥
-
 > tasmāt prasuśrutas tasya
 > sandhis tasyāpy amarṣaṇaḥ
 > mahasvāṁs tat-sutas tasmād
@@ -7204,9 +5750,6 @@ At least five thousand years ago, Śrīla Śukadeva Gosvāmī ascertained the ex
 **From Maru was born a son named Prasuśruta, from Prasuśruta came Sandhi, from Sandhi came Amarṣaṇa, and from Amarṣaṇa a son named Mahasvān. From Mahasvān, Viśvabāhu took his birth.**
 
 ### SB 9.12.8
-
-> ततः प्रसेनजित्तस्मात्तक्षको भविता पुनः
-> ततो बृहद्बलो यस्तु पित्रा ते समरे हतः ॥८॥
 
 > tataḥ prasenajit tasmāt
 > takṣako bhavitā punaḥ
@@ -7219,9 +5762,6 @@ At least five thousand years ago, Śrīla Śukadeva Gosvāmī ascertained the ex
 
 ### SB 9.12.9
 
-> एते हीक्ष्वाकुभूपाला अतीताः शृण्वनागतान
-> बृहद्बलस्य भविता पुत्रो नाम्ना बृहद्रणः ॥९॥
-
 > ete hīkṣvāku-bhūpālā
 > atītāḥ śṛṇv anāgatān
 > bṛhadbalasya bhavitā
@@ -7232,9 +5772,6 @@ At least five thousand years ago, Śrīla Śukadeva Gosvāmī ascertained the ex
 **All these kings in the dynasty of Ikṣvāku have passed away. Now please listen as I describe the kings who will be born in the future. From Bṛhadbala will come Bṛhadraṇa.**
 
 ### SB 9.12.10
-
-> ऊरुक्रियः सुतस्तस्य वत्सवृद्धो भविष्यति
-> प्रतिव्योमस्ततो भानुर्दिवाको वाहिनीपतिः ॥१०॥
 
 > ūrukriyaḥ sutas tasya
 > vatsavṛddho bhaviṣyati
@@ -7247,9 +5784,6 @@ At least five thousand years ago, Śrīla Śukadeva Gosvāmī ascertained the ex
 
 ### SB 9.12.11
 
-> सहदेवस्ततो वीरो बृहदश्वोऽथ भानुमान
-> प्रतीकाश्वो भानुमतः सुप्रतीकोऽथ तत्सुतः ॥११॥
-
 > sahadevas tato vīro
 > bṛhadaśvo 'tha bhānumān
 > pratīkāśvo bhānumataḥ
@@ -7260,9 +5794,6 @@ At least five thousand years ago, Śrīla Śukadeva Gosvāmī ascertained the ex
 **Thereafter, from Divāka will come a son named Sahadeva, and from Sahadeva a great hero named Bṛhadaśva. From Bṛhadaśva will come Bhānumān, and from Bhānumān will come Pratīkāśva. The son of Pratīkāśva will be Supratīka.**
 
 ### SB 9.12.12
-
-> भविता मरुदेवोऽथ सुनक्षत्रोऽथ पुष्करः
-> तस्यान्तरिक्षस्तत्पुत्रः सुतपास्तदमित्रजित ॥१२॥
 
 > bhavitā marudevo 'tha
 > sunakṣatro 'tha puṣkaraḥ
@@ -7275,9 +5806,6 @@ At least five thousand years ago, Śrīla Śukadeva Gosvāmī ascertained the ex
 
 ### SB 9.12.13
 
-> बृहद्राजस्तु तस्यापि बर्हिस्तस्मात्कृतञ्जयः
-> रणञ्जयस्तस्य सुतः सञ्जयो भविता ततः ॥१३॥
-
 > bṛhadrājas tu tasyāpi
 > barhis tasmāt kṛtañjayaḥ
 > raṇañjayas tasya sutaḥ
@@ -7288,9 +5816,6 @@ At least five thousand years ago, Śrīla Śukadeva Gosvāmī ascertained the ex
 **From Amitrajit will come a son named Bṛhadrāja, from Bṛhadrāja will come Barhi, and from Barhi will come Kṛtañjaya. The son of Kṛtañjaya will be known as Raṇañjaya, and from him will come a son named Sañjaya.**
 
 ### SB 9.12.14
-
-> तस्माच्छाक्योऽथ शुद्धोदो लाङ्गलस्तत्सुतः स्मृतः
-> ततः प्रसेनजित्तस्मात्क्षुद्रको भविता ततः ॥१४॥
 
 > tasmāc chākyo 'tha śuddhodo
 > lāṅgalas tat-sutaḥ smṛtaḥ
@@ -7303,9 +5828,6 @@ At least five thousand years ago, Śrīla Śukadeva Gosvāmī ascertained the ex
 
 ### SB 9.12.15
 
-> रणको भविता तस्मात्सुरथस्तनयस्ततः
-> सुमित्रो नाम निष्ठान्त एते बार्हद्बलान्वयाः ॥१५॥
-
 > raṇako bhavitā tasmāt
 > surathas tanayas tataḥ
 > sumitro nāma niṣṭhānta
@@ -7316,9 +5838,6 @@ At least five thousand years ago, Śrīla Śukadeva Gosvāmī ascertained the ex
 **From Kṣudraka will come Raṇaka, from Raṇaka will come Suratha, and from Suratha will come Sumitra, ending the dynasty. This is a description of the dynasty of Bṛhadbala.**
 
 ### SB 9.12.16
-
-> इक्ष्वाकूणामयं वंशः सुमित्रान्तो भविष्यति
-> यतस्तं प्राप्य राजानं संस्थां प्राप्स्यति वै कलौ ॥१६॥
 
 > ikṣvākūṇām ayaṁ vaṁśaḥ
 > sumitrānto bhaviṣyati
@@ -7335,10 +5854,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twelfth Chapter, of the 
 
 ### SB 9.13.1
 
-> श्रीशुक उवाच
-> निमिरिक्ष्वाकुतनयो वसिष्ठमवृतर्त्विजम
-> आरभ्य सत्रं सोऽप्याह शक्रेण प्राग्वृतोऽस्मि भोः ॥१॥
-
 > śrī-śuka uvāca
 > nimir ikṣvāku-tanayo
 > vasiṣṭham avṛtartvijam
@@ -7351,9 +5866,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twelfth Chapter, of the 
 
 ### SB 9.13.2
 
-> तं निर्वर्त्यागमिष्यामि तावन्मां प्रतिपालय
-> तूष्णीमासीद्गृहपतिः सोऽपीन्द्रस्याकरोन्मखम ॥२॥
-
 > taṁ nirvartyāgamiṣyāmi
 > tāvan māṁ pratipālaya
 > tūṣṇīm āsīd gṛha-patiḥ
@@ -7364,9 +5876,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twelfth Chapter, of the 
 **"I shall return here after finishing the yajña for Indra. Kindly wait for me until then." Mahārāja Nimi remained silent, and Vasiṣṭha began to perform the sacrifice for Lord Indra.**
 
 ### SB 9.13.3
-
-> निमित्तश्चलमिदं विद्वान्सत्रमारभतामात्मवान
-> ऋत्विग्भिरपरैस्तावन्नागमद्यावता गुरुः ॥३॥
 
 > nimiś calam idaṁ vidvān
 > satram ārabhatātmavān
@@ -7381,9 +5890,6 @@ Cāṇakya Paṇḍita says, *śarīraṁ kṣaṇa-vidhvāṁsi kalpānta-sthā
 
 ### SB 9.13.4
 
-> शिष्यव्यतिक्रमं वीक्ष्य तं निर्वर्त्यागतो गुरुः
-> अशपत्पतताद्देहो निमेः पण्डितमानिनः ॥४॥
-
 > śiṣya-vyatikramaṁ vīkṣya
 > taṁ nirvartyāgato guruḥ
 > aśapat patatād deho
@@ -7394,9 +5900,6 @@ Cāṇakya Paṇḍita says, *śarīraṁ kṣaṇa-vidhvāṁsi kalpānta-sthā
 **After completing the sacrificial performance for King Indra, the spiritual master Vasiṣṭha returned and found that his disciple Mahārāja Nimi had disobeyed his instructions. Thus Vasiṣṭha cursed him, saying, "May the material body of Nimi, who considers himself learned, immediately fall."**
 
 ### SB 9.13.5
-
-> निमिः प्रतिददौ शापं गुरवेऽधर्मवर्तिने
-> तवापि पतताद्देहो लोभाद्धर्ममजानतः ॥५॥
 
 > nimiḥ pratidadau śāpaṁ
 > gurave 'dharma-vartine
@@ -7411,9 +5914,6 @@ The religious principle for a *brāhmaṇa* is that he should not be greedy at a
 
 ### SB 9.13.6
 
-> इत्युत्ससर्ज स्वं देहं निमिरध्यात्मकोविदः
-> मित्रावरुणयोर्जज्ञए उर्वश्यां प्रपितामहः ॥६॥
-
 > ity utsasarja svaṁ dehaṁ
 > nimir adhyātma-kovidaḥ
 > mitrā-varuṇayor jajñe
@@ -7427,9 +5927,6 @@ Mitra and Varuṇa chanced to meet Urvaśī, the most beautiful prostitute of th
 
 ### SB 9.13.7
 
-> गन्धवस्तुषु तद्देहं निधाय मुनिसत्तमाः
-> समाप्ते सत्रयागे च देवानूचुः समागतान ॥७॥
-
 > gandha-vastuṣu tad-dehaṁ
 > nidhāya muni-sattamāḥ
 > samāpte satra-yāge ca
@@ -7440,9 +5937,6 @@ Mitra and Varuṇa chanced to meet Urvaśī, the most beautiful prostitute of th
 **During the performance of the yajña, the body relinquished by Mahārāja Nimi was preserved in fragrant substances, and at the end of the Satra-yāga the great saints and brāhmaṇas made the following request to all the demigods assembled there.**
 
 ### SB 9.13.8
-
-> राज्ञओ जीवतु देहोऽयं प्रसन्नाः प्रभवो यदि
-> तथेत्युक्ते निमिः प्राह मा भून्मे देहबन्धनम ॥८॥
 
 > rājño jīvatu deho 'yaṁ
 > prasannāḥ prabhavo yadi
@@ -7456,9 +5950,6 @@ Mitra and Varuṇa chanced to meet Urvaśī, the most beautiful prostitute of th
 The demigods are in a position many times higher than that of human beings. Therefore, although the great saints and sages were also powerful *brāhmaṇas,* they requested the demigods to revive Mahārāja Nimi's body, which had been preserved in various perfumed balms. One should not think that the demigods are powerful only in enjoying the senses; they are also powerful in such deeds as bringing life back to a dead body. There are many similar instances in the Vedic literature. For example, according to the history of Sāvitrī and Satyavān, Satyavān died and was being taken away by Yamarāja, but on the request of his wife, Sāvitrī, Satyavān was revived in the same body. This is an important fact about the power of the demigods.
 
 ### SB 9.13.9
-
-> यस्य योगं न वाञ्छन्ति वियोगभयकातराः
-> भजन्ति चरणाम्भोजं मुनयो हरिमेधसः ॥९॥
 
 > yasya yogaṁ na vāñchanti
 > viyoga-bhaya-kātarāḥ
@@ -7485,7 +5976,7 @@ Mahārāja Nimi did not want to accept a material body, which would be a cause o
 
 "O Lord of the universe, I do not desire material wealth, materialistic followers, a beautiful wife or fruitive activities described in flowery language. All I want, life after life, is unmotivated devotional service to You." (*Śikṣāṣṭaka* 4) By saying "life after life" (*janmani janmani*), the Lord referred not to an ordinary birth but a birth in which to remember the lotus feet of the Lord. Such a body is desirable. A devotee does not think like *yogīs* and *jñānīs,* who want to refuse a material body and become one with the impersonal Brahman effulgence. A devotee does not like this idea. On the contrary, he will accept any body, material or spiritual, for he wants to serve the Lord. This is real liberation.
 
-If one has a strong desire to serve the Lord, even if he accepts a material body, there is no cause of anxiety, since a devotee, even in a material body, is a liberated soul. This is confirmed by Śrīla Rūpa Gosvāmī:
+If one has a strong desire to serve the Lord, even if he accepts a material body, there is no cause of anxiety, since a devotee, even in a material body, is a liberated soul. This is confirmed by Śrīla Ripa Gosvāmī:
 
 > īhā yasya harer dāsye
 > karmaṇā manasā girā
@@ -7497,9 +5988,6 @@ If one has a strong desire to serve the Lord, even if he accepts a material body
 For a devotee there is no pain, pleasure or material perfection. One may argue that at the time of death a devotee also suffers because of giving up his material body. But in this connection the example may be given that a cat carries a mouse in its mouth and also carries a kitten in its mouth. Both the mouse and the kitten are carried in the same mouth, but the perception of the mouse is different from that of the kitten. When a devotee gives up his body (*tyaktvā deham*), he is ready to go back home, back to Godhead. Thus his perception is certainly different from that of a person being taken away by Yamarāja for punishment. A person whose intelligence is always concentrated upon the service of the Lord is unafraid of accepting a material body, whereas a nondevotee, having no engagement in the service of the Lord, is very much afraid of accepting a material body or giving up his present one. Therefore, we should follow the instruction of Caitanya Mahāprabhu: *mama janmani janmanīśvare bhavatād bhaktir ahaitukī tvayi* [Cc. Antya 20.29, Śikṣāṣṭaka 4]. It doesn't matter whether we accept a material body or a spiritual body; our only ambition should be to serve the Supreme Personality of Godhead.
 
 ### SB 9.13.10
-
-> देहं नावरुरुत्सेऽहं दुःखशोकभयावहम
-> सर्वत्रास्य यतो मृत्युर्मत्स्यानामुदके यथा ॥१०॥
 
 > dehaṁ nāvarurutse 'haṁ
 > duḥkha-śoka-bhayāvaham
@@ -7523,10 +6011,6 @@ The example given here is that water is a very nice place for a fish, but the fi
 
 ### SB 9.13.11
 
-> देवा ऊचुः
-> विदेह उष्यतां कामं लोचनेषु शरीरिणाम
-> उन्मेषणनिमेषाभ्यां लक्षितोऽध्यात्मसंस्थितः ॥११॥
-
 > devā ūcuḥ
 > videha uṣyatāṁ kāmaṁ
 > locaneṣu śarīriṇām
@@ -7543,9 +6027,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 
 ### SB 9.13.12
 
-> अराजकभयं न्णां मन्यमाना महर्षयः
-> देहं ममन्थुः स्म निमेः कुमारः समजायत ॥१२॥
-
 > arājaka-bhayaṁ nṝṇāṁ
 > manyamānā maharṣayaḥ
 > dehaṁ mamanthuḥ sma nimeḥ
@@ -7559,9 +6040,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 
 ### SB 9.13.13
 
-> जन्मना जनकः सोऽभूद्वैदेहस्तु विदेहजः
-> मिथिलो मथनाज्जातो मिथिला येन निर्मिता ॥१३॥
-
 > janmanā janakaḥ so 'bhūd
 > vaidehas tu videhajaḥ
 > mithilo mathanāj jāto
@@ -7572,9 +6050,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 **Because he was born in an unusual way, the son was called Janaka, and because he was born from the dead body of his father, he was known as Vaideha. Because he was born from the churning of his father's material body, he was known as Mithila, and because he constructed a city as King Mithila, the city was called Mithilā.**
 
 ### SB 9.13.14
-
-> तस्मादुदावसुस्तस्य पुत्रोऽभून्नन्दिवर्धनः
-> ततः सुकेतुस्तस्यापि देवरातो महीपते ॥१४॥
 
 > tasmād udāvasus tasya
 > putro 'bhūn nandivardhanaḥ
@@ -7587,9 +6062,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 
 ### SB 9.13.15
 
-> तस्माद्बृहद्रथस्तस्य महावीर्यः सुधृत्पिता
-> सुधृतेर्धृष्टकेतुर्वै हर्यश्वोऽथ मरुस्ततः ॥१५॥
-
 > tasmād bṛhadrathas tasya
 > mahāvīryaḥ sudhṛt-pitā
 > sudhṛter dhṛṣṭaketur vai
@@ -7600,9 +6072,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 **From Devarāta came a son named Bṛhadratha and from Bṛhadratha a son named Mahāvīrya, who became the father of Sudhṛti. The son of Sudhṛti was known as Dhṛṣṭaketu, and from Dhṛṣṭaketu came Haryaśva. From Haryaśva came a son named Maru.**
 
 ### SB 9.13.16
-
-> मरोः प्रतीपकस्तस्माज्जातः कृतरथो यतः
-> देवमीढस्तस्य पुत्रो विश्रुतोऽथ महाधृतिः ॥१६॥
 
 > maroḥ pratīpakas tasmāj
 > jātaḥ kṛtaratho yataḥ
@@ -7615,9 +6084,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 
 ### SB 9.13.17
 
-> कृतिरातस्ततस्तस्मान्महारोमा च तत्सुतः
-> स्वर्णरोमा सुतस्तस्य ह्रस्वरोमा व्यजायत ॥१७॥
-
 > kṛtirātas tatas tasmān
 > mahāromā ca tat-sutaḥ
 > svarṇaromā sutas tasya
@@ -7628,9 +6094,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 **From Mahādhṛti was born a son named Kṛtirāta, from Kṛtirāta was born Mahāromā, from Mahāromā came a son named Svarṇaromā, and from Svarṇaromā came Hrasvaromā.**
 
 ### SB 9.13.18
-
-> ततः शीरध्वजो जज्ञए यज्ञआर्थं कर्षतो महीम
-> सीता शीराग्रतो जाता तस्मात्शीरध्वजः स्मृतः ॥१८॥
 
 > tataḥ śīradhvajo jajñe
 > yajñārthaṁ karṣato mahīm
@@ -7643,9 +6106,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 
 ### SB 9.13.19
 
-> कुशध्वजस्तस्य पुत्रस्ततो धर्मध्वजो नृपः
-> धर्मध्वजस्य द्वौ पुत्रौ कृतध्वजमितध्वजौ ॥१९॥
-
 > kuśadhvajas tasya putras
 > tato dharmadhvajo nṛpaḥ
 > dharmadhvajasya dvau putrau
@@ -7656,11 +6116,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 **The son of Śīradhvaja was Kuśadhvaja, and the son of Kuśadhvaja was King Dharmadhvaja, who had two sons, namely Kṛtadhvaja and Mitadhvaja.**
 
 ### SB 9.13.20-21
-
-> कृतध्वजात्केशिध्वजः खाण्डिक्यस्तु मितध्वजात
-> कृतध्वजसुतो राजन्नात्मविद्याविशारदः ॥२०॥
-> खाण्डिक्यः कर्मतत्त्वज्ञओ भीतः केशिध्वजाद्द्रुतः
-> भानुमांस्तस्य पुत्रोऽभूच्छतद्युम्नस्तु तत्सुतः ॥२१॥
 
 > kṛtadhvajāt keśidhvajaḥ
 > khāṇḍikyas tu mitadhvajāt
@@ -7678,9 +6133,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 
 ### SB 9.13.22
 
-> शुचिस्तु तनयस्तस्मात्सनद्वाजः सुतोऽभवत
-> ऊर्जकेतुः सनद्वाजादजोऽथ पुरुजित्सुतः ॥२२॥
-
 > śucis tu tanayas tasmāt
 > sanadvājaḥ suto 'bhavat
 > ūrjaketuḥ sanadvājād
@@ -7691,9 +6143,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 **The son of Śatadyumna was named Śuci. From Śuci, Sanadvāja was born, and from Sanadvāja came a son named Ūrjaketu. The son of Ūrjaketu was Aja, and the son of Aja was Purujit.**
 
 ### SB 9.13.23
-
-> अरिष्टनेमिस्तस्यापि श्रुतायुस्तत्सुपार्श्वकः
-> ततश्चित्ररथो यस्य क्षेमाधिर्मिथिलाधिपः ॥२३॥
 
 > ariṣṭanemis tasyāpi
 > śrutāyus tat supārśvakaḥ
@@ -7706,9 +6155,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 
 ### SB 9.13.24
 
-> तस्मात्समरथस्तस्य सुतः सत्यरथस्ततः
-> आसीदुपगुरुस्तस्मादुपगुप्तोऽग्निसम्भवः ॥२४॥
-
 > tasmāt samarathas tasya
 > sutaḥ satyarathas tataḥ
 > āsīd upagurus tasmād
@@ -7719,9 +6165,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 **The son of Kṣemādhi was Samaratha, and his son was Satyaratha. The son of Satyaratha was Upaguru, and the son of Upaguru was Upagupta, a partial expansion of the fire-god.**
 
 ### SB 9.13.25
-
-> वस्वनन्तोऽथ तत्पुत्रो युयुधो यत्सुभाषणः
-> श्रुतस्ततो जयस्तस्माद्विजयोऽस्मादृतः सुतः ॥२५॥
 
 > vasvananto 'tha tat-putro
 > yuyudho yat subhāṣaṇaḥ
@@ -7734,9 +6177,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 
 ### SB 9.13.26
 
-> शुनकस्तत्सुतो जज्ञए वीतहव्यो धृतिस्ततः
-> बहुलाश्वो धृतेस्तस्य कृतिरस्य महावशी ॥२६॥
-
 > śunakas tat-suto jajñe
 > vītahavyo dhṛtis tataḥ
 > bahulāśvo dhṛtes tasya
@@ -7747,9 +6187,6 @@ The Supreme Personality of Godhead can be seen or unseen according to His own tr
 **The son of Ṛta was Śunaka, the son of Śunaka was Vītahavya, the son of Vītahavya was Dhṛti, and the son of Dhṛti was Bahulāśva. The son of Bahulāśva was Kṛti, and his son was Mahāvaśī.**
 
 ### SB 9.13.27
-
-> एते वै मैथिला राजन्नात्मविद्याविशारदाः
-> योगेश्वरप्रसादेन द्वन्द्वैर्मुक्ता गृहेष्वपि ॥२७॥
 
 > ete vai maithilā rājann
 > ātma-vidyā-viśāradāḥ
@@ -7780,10 +6217,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Thirteenth Chapter, of t
 
 ### SB 9.14.1
 
-> श्रीशुक उवाच
-> अथातः श्रूयतां राजन्वंशः सोमस्य पावनः
-> यस्मिन्नैलादयो भूपाः कीर्त्यन्ते पुण्यकीर्तयः ॥१॥
-
 > śrī-śuka uvāca
 > athātaḥ śrūyatāṁ rājan
 > vaṁśaḥ somasya pāvanaḥ
@@ -7796,9 +6229,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Thirteenth Chapter, of t
 
 ### SB 9.14.2
 
-> सहस्रशिरसः पुंसो नाभिह्रदसरोरुहात
-> जातस्यासीत्सुतो धातुरत्रिः पितृसमो गुणैः ॥२॥
-
 > sahasra-śirasaḥ puṁso
 > nābhi-hrada-saroruhāt
 > jātasyāsīt suto dhātur
@@ -7809,9 +6239,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Thirteenth Chapter, of t
 **Lord Viṣṇu [Garbhodakaśāyī Viṣṇu] is also known as Sahasra-śīrṣā Puruṣa. From the lake of His navel sprang a lotus, on which Lord Brahmā was generated. Atri, the son of Lord Brahmā, was as qualified as his father.**
 
 ### SB 9.14.3
-
-> तस्य दृग्भ्योऽभवत्पुत्रः सोमोऽमृतमयः किल
-> विप्रौषध्युडुगणानां ब्रह्मणा कल्पितः पतिः ॥३॥
 
 > tasya dṛgbhyo 'bhavat putraḥ
 > somo 'mṛtamayaḥ kila
@@ -7833,9 +6260,6 @@ This verse describes that Anasūyā, the wife of Atri Ṛṣi, bore three sons�
 
 ### SB 9.14.4
 
-> सोऽयजद्राजसूयेन विजित्य भुवनत्रयम
-> पत्नीं बृहस्पतेर्दर्पात्तारां नामाहरद्बलात ॥४॥
-
 > so 'yajad rājasūyena
 > vijitya bhuvana-trayam
 > patnīṁ bṛhaspater darpāt
@@ -7847,9 +6271,6 @@ This verse describes that Anasūyā, the wife of Atri Ṛṣi, bore three sons�
 
 ### SB 9.14.5
 
-> यदा स देवगुरुणा याचितोऽभीक्ष्णशो मदात
-> नात्यजत्तत्कृते जज्ञए सुरदानवविग्रहः ॥५॥
-
 > yadā sa deva-guruṇā
 > yācito 'bhīkṣṇaśo madāt
 > nātyajat tat-kṛte jajñe
@@ -7860,9 +6281,6 @@ This verse describes that Anasūyā, the wife of Atri Ṛṣi, bore three sons�
 **Although requested again and again by Bṛhaspati, the spiritual master of the demigods, Soma did not return Tārā. This was due to his false pride. Consequently, a fight ensued between the demigods and the demons.**
 
 ### SB 9.14.6
-
-> शुक्रो बृहस्पतेर्द्वेषादग्रहीत्सासुरोडुपम
-> हरो गुरुसुतं स्नेहात्सर्वभूतगणावृतः ॥६॥
 
 > śukro bṛhaspater dveṣād
 > agrahīt sāsuroḍupam
@@ -7877,9 +6295,6 @@ The moon-god is one of the demigods, but to fight against the other demigods he 
 
 ### SB 9.14.7
 
-> सर्वदेवगणोपेतो महेन्द्रो गुरुमन्वयात
-> सुरासुरविनाशोऽभूत्समरस्तारकामयः ॥७॥
-
 > sarva-deva-gaṇopeto
 > mahendro gurum anvayāt
 > surāsura-vināśo 'bhūt
@@ -7891,9 +6306,6 @@ The moon-god is one of the demigods, but to fight against the other demigods he 
 
 ### SB 9.14.8
 
-> निवेदितोऽथाङ्गिरसा सोमं निर्भर्त्स्य विश्वकृत
-> तारां स्वभर्त्रे प्रायच्छदन्तर्वत्नीमवैत्पतिः ॥८॥
-
 > nivedito 'thāṅgirasā
 > somaṁ nirbhartsya viśva-kṛt
 > tārāṁ sva-bhartre prāyacchad
@@ -7904,9 +6316,6 @@ The moon-god is one of the demigods, but to fight against the other demigods he 
 **When Lord Brahmā was fully informed by Aṅgirā about the entire incident, he severely chastised the moon-god, Soma. Thus Lord Brahmā delivered Tārā to her husband, who could then understand that she was pregnant.**
 
 ### SB 9.14.9
-
-> त्यज त्यजाशु दुष्प्रज्ञए मत्क्षेत्रादाहितं परैः
-> नाहं त्वां भस्मसात्कुर्यां स्त्रियं सान्तानिकेऽसति ॥९॥
 
 > tyaja tyajāśu duṣprajñe
 > mat-kṣetrād āhitaṁ paraiḥ
@@ -7921,9 +6330,6 @@ Tārā was married to Bṛhaspati, and therefore as a chaste woman she should ha
 
 ### SB 9.14.10
 
-> तत्याज व्रीडिता तारा कुमारं कनकप्रभम
-> स्पृहामाङ्गिरसश्चक्रे कुमारे सोम एव च ॥१०॥
-
 > tatyāja vrīḍitā tārā
 > kumāraṁ kanaka-prabham
 > spṛhām āṅgirasaś cakre
@@ -7934,9 +6340,6 @@ Tārā was married to Bṛhaspati, and therefore as a chaste woman she should ha
 **Śukadeva Gosvāmī continued: By Bṛhaspati's order, Tārā, who was very much ashamed, immediately gave birth to the child, who was very beautiful, with a golden bodily hue. Both Bṛhaspati and the moon-god, Soma, desired the beautiful child.**
 
 ### SB 9.14.11
-
-> ममायं न तवेत्युच्चैस्तस्मिन्विवदमानयोः
-> पप्रच्छुरृषयो देवा नैवोचे व्रीडिता तु सा ॥११॥
 
 > mamāyaṁ na tavety uccais
 > tasmin vivadamānayoḥ
@@ -7949,9 +6352,6 @@ Tārā was married to Bṛhaspati, and therefore as a chaste woman she should ha
 
 ### SB 9.14.12
 
-> कुमारो मातरं प्राह कुपितोऽलीकलज्जया
-> किं न वचस्यसद्वृत्ते आत्मावद्यं वदाशु मे ॥१२॥
-
 > kumāro mātaraṁ prāha
 > kupito 'līka-lajjayā
 > kiṁ na vacasy asad-vṛtte
@@ -7962,9 +6362,6 @@ Tārā was married to Bṛhaspati, and therefore as a chaste woman she should ha
 **The child then became very angry and demanded that his mother immediately tell the truth. "You unchaste woman," he said, "what is the use of your unnecessary shame? Why do you not admit your fault? Immediately tell me about your faulty behavior."**
 
 ### SB 9.14.13
-
-> ब्रह्मा तां रह आहूय समप्राक्षीच्च सान्त्वयन
-> सोमस्येत्याह शनकैः सोमस्तं तावदग्रहीत ॥१३॥
 
 > brahmā tāṁ raha āhūya
 > samaprākṣīc ca sāntvayan
@@ -7977,9 +6374,6 @@ Tārā was married to Bṛhaspati, and therefore as a chaste woman she should ha
 
 ### SB 9.14.14
 
-> तस्यात्मयोनिरकृत बुध इत्यभिधां नृप
-> बुद्ध्या गम्भीरया येन पुत्रेणापोडुराण्मुदम ॥१४॥
-
 > tasyātma-yonir akṛta
 > budha ity abhidhāṁ nṛpa
 > buddhyā gambhīrayā yena
@@ -7990,11 +6384,6 @@ Tārā was married to Bṛhaspati, and therefore as a chaste woman she should ha
 **O Mahārāja Parīkṣit, when Lord Brahmā saw that the child was deeply intelligent, he gave the child the name Budha. The moon-god, the ruler of the stars, enjoyed great jubilation because of this son.**
 
 ### SB 9.14.15-16
-
-> ततः पुरूरवा जज्ञए इलायां य उदाहृतः
-> तस्य रूपगुणौदार्य शीलद्रविणविक्रमान ॥१५॥
-> श्रुत्वोर्वशीन्द्रभवने गीयमानान्सुरर्षिणा
-> तदन्तिकमुपेयाय देवी स्मरशरार्दिता ॥१६॥
 
 > tataḥ purūravā jajñe
 > ilāyāṁ ya udāhṛtaḥ
@@ -8011,12 +6400,6 @@ Tārā was married to Bṛhaspati, and therefore as a chaste woman she should ha
 **Thereafter, from Budha, through the womb of Ilā, a son was born named Purūravā, who was described in the beginning of the Ninth Canto. When his beauty, personal qualities, magnanimity, behavior, wealth and power were described by Nārada in the court of Lord Indra, the celestial woman Urvaśī was attracted to him. Pierced by the arrow of Cupid, she thus approached him.**
 
 ### SB 9.14.17-18
-
-> मित्रावरुणयोः शापादापन्ना नरलोकताम
-> निशम्य पुरुषश्रेष्ठं कन्दर्पमिव रूपिणम
-> धृतिं विष्टभ्य ललना उपतस्थे तदन्तिके ॥१७॥
-> स तां विलोक्य नृपतिर्हर्षेणोत्फुल्ललोचनः
-> उवाच श्लक्ष्णया वाचा देवीं हृष्टतनूरुहः ॥१८॥
 
 > mitrā-varuṇayoḥ śāpād
 > āpannā nara-lokatām
@@ -8036,10 +6419,6 @@ Tārā was married to Bṛhaspati, and therefore as a chaste woman she should ha
 
 ### SB 9.14.19
 
-> श्रीराजोवाच
-> स्वागतं ते वरारोहे आस्यतां करवाम किम
-> संरमस्व मया साकं रतिर्नौ शाश्वतीः समाः ॥१९॥
-
 > śrī-rājovāca
 > svāgataṁ te varārohe
 > āsyatāṁ karavāma kim
@@ -8051,10 +6430,6 @@ Tārā was married to Bṛhaspati, and therefore as a chaste woman she should ha
 **King Purūravā said: O most beautiful woman, you are welcome. Please sit here and tell me what I can do for you. You may enjoy with me as long as you desire. Let us pass our life happily in a sexual relationship.**
 
 ### SB 9.14.20
-
-> उर्वश्युवाच
-> कस्यास्त्वयि न सज्जेत मनो दृष्टिश्च सुन्दर
-> यदङ्गान्तरमासाद्य च्यवते ह रिरंसया ॥२०॥
 
 > urvaśy uvāca
 > kasyās tvayi na sajjeta
@@ -8070,9 +6445,6 @@ When a beautiful man and a beautiful woman unite together and embrace one anothe
 
 ### SB 9.14.21
 
-> एतावुरणकौ राजन्न्यासौ रक्षस्व मानद
-> संरंस्ये भवता साकं श्लाघ्यः स्त्रीणां वरः स्मृतः ॥२१॥
-
 > etāv uraṇakau rājan
 > nyāsau rakṣasva mānada
 > saṁraṁsye bhavatā sākaṁ
@@ -8086,9 +6458,6 @@ As stated in the *Brahma-saṁhitā* (5.40), *yasya prabhā prabhavato jagad-a�
 
 ### SB 9.14.22
 
-> घृतं मे वीर भक्ष्यं स्यान्नेक्षे त्वान्यत्र मैथुनात
-> विवाससं तत्तथेति प्रतिपेदे महामनाः ॥२२॥
-
 > ghṛtaṁ me vīra bhakṣyaṁ syān
 > nekṣe tvānyatra maithunāt
 > vivāsasaṁ tat tatheti
@@ -8099,9 +6468,6 @@ As stated in the *Brahma-saṁhitā* (5.40), *yasya prabhā prabhavato jagad-a�
 **Urvaśī said: "My dear hero, only preparations made in ghee [clarified butter] will be my eatables, and I shall not want to see you naked at any time, except at the time of sexual intercourse." The great-minded King Purūravā accepted these proposals.**
 
 ### SB 9.14.23
-
-> अहो रूपमहो भावो नरलोकविमोहनम
-> को न सेवेत मनुजो देवीं त्वां स्वयमागताम ॥२३॥
 
 > aho rūpam aho bhāvo
 > nara-loka-vimohanam
@@ -8116,9 +6482,6 @@ It appears from the words of Urvaśī that the standard of living, eating, behav
 
 ### SB 9.14.24
 
-> तया स पुरुषश्रेष्ठो रमयन्त्या यथार्हतः
-> रेमे सुरविहारेषु कामं चैत्ररथादिषु ॥२४॥
-
 > tayā sa puruṣa-śreṣṭho
 > ramayantyā yathārhataḥ
 > reme sura-vihāreṣu
@@ -8129,9 +6492,6 @@ It appears from the words of Urvaśī that the standard of living, eating, behav
 **Śukadeva Gosvāmī continued: The best of human beings, Purūravā, began freely enjoying the company of Urvaśī, who engaged in sexual activities with him in many celestial places, such as Caitraratha and Nandana-kānana, where the demigods enjoy.**
 
 ### SB 9.14.25
-
-> रममाणस्तया देव्या पद्मकिञ्जल्कगन्धया
-> तन्मुखामोदमुषितो मुमुदेऽहर्गणान्बहून ॥२५॥
 
 > ramamāṇas tayā devyā
 > padma-kiñjalka-gandhayā
@@ -8144,9 +6504,6 @@ It appears from the words of Urvaśī that the standard of living, eating, behav
 
 ### SB 9.14.26
 
-> अपश्यन्नुर्वशीमिन्द्रो गन्धर्वान्समचोदयत
-> उर्वशीरहितं मह्यमास्थानं नातिशोभते ॥२६॥
-
 > apaśyann urvaśīm indro
 > gandharvān samacodayat
 > urvaśī-rahitaṁ mahyam
@@ -8157,9 +6514,6 @@ It appears from the words of Urvaśī that the standard of living, eating, behav
 **Not seeing Urvaśī in his assembly, the King of heaven, Lord Indra, said, "Without Urvaśī my assembly is no longer beautiful." Considering this, he requested the Gandharvas to bring her back to his heavenly planet.**
 
 ### SB 9.14.27
-
-> ते उपेत्य महारात्रे तमसि प्रत्युपस्थिते
-> उर्वश्या उरणौ जह्रुर्न्यस्तौ राजनि जायया ॥२७॥
 
 > te upetya mahā-rātre
 > tamasi pratyupasthite
@@ -8174,9 +6528,6 @@ It appears from the words of Urvaśī that the standard of living, eating, behav
 
 ### SB 9.14.28
 
-> निशम्याक्रन्दितं देवी पुत्रयोर्नीयमानयोः
-> हतास्म्यहं कुनाथेन नपुंसा वीरमानिना ॥२८॥
-
 > niśamyākranditaṁ devī
 > putrayor nīyamānayoḥ
 > hatāsmy ahaṁ kunāthena
@@ -8187,9 +6538,6 @@ It appears from the words of Urvaśī that the standard of living, eating, behav
 **Urvaśī treated the two lambs like her own sons. Therefore, when they were being taken by the Gandharvas and began crying, Urvaśī heard them and rebuked her husband. "Now I am being killed," she said, "under the protection of an unworthy husband, who is a coward and a eunuch although he thinks himself a great hero.**
 
 ### SB 9.14.29
-
-> यद्विश्रम्भादहं नष्टा हृतापत्या च दस्युभिः
-> यः शेते निशि सन्त्रस्तो यथा नारी दिवा पुमान ॥२९॥
 
 > yad-viśrambhād ahaṁ naṣṭā
 > hṛtāpatyā ca dasyubhiḥ
@@ -8202,9 +6550,6 @@ It appears from the words of Urvaśī that the standard of living, eating, behav
 
 ### SB 9.14.30
 
-> इति वाक्सायकैर्बिद्धः प्रतोत्त्रैरिव कुञ्जरः
-> निशि निस्त्रिंशमादाय विवस्त्रोऽभ्यद्रवद्रुषा ॥३०॥
-
 > iti vāk-sāyakair biddhaḥ
 > pratottrair iva kuñjaraḥ
 > niśi nistriṁśam ādāya
@@ -8215,9 +6560,6 @@ It appears from the words of Urvaśī that the standard of living, eating, behav
 **Purūravā, stricken by the sharp words of Urvaśī like an elephant struck by its driver's pointed rod, became very angry. Not even dressing himself properly, he took a sword in hand and went out naked into the night to follow the Gandharvas who had stolen the lambs.**
 
 ### SB 9.14.31
-
-> ते विसृज्योरणौ तत्र व्यद्योतन्त स्म विद्युतः
-> आदाय मेषावायान्तं नग्नमैक्षत सा पतिम ॥३१॥
 
 > te visṛjyoraṇau tatra
 > vyadyotanta sma vidyutaḥ
@@ -8230,9 +6572,6 @@ It appears from the words of Urvaśī that the standard of living, eating, behav
 
 ### SB 9.14.32
 
-> ऐलोऽपि शयने जायामपश्यन्विमना इव
-> तच्चित्तो विह्वलः शोचन्बभ्रामोन्मत्तवन्महीम ॥३२॥
-
 > ailo 'pi śayane jāyām
 > apaśyan vimanā iva
 > tac-citto vihvalaḥ śocan
@@ -8243,9 +6582,6 @@ It appears from the words of Urvaśī that the standard of living, eating, behav
 **No longer seeing Urvaśī on his bed, Purūravā was most aggrieved. Because of his great attraction for her, he was very much disturbed. Thus, lamenting, he began traveling about the earth like a madman.**
 
 ### SB 9.14.33
-
-> स तां वीक्ष्य कुरुक्षेत्रे सरस्वत्यां च तत्सखीः
-> पञ्च प्रहृष्टवदनः प्राह सूक्तं पुरूरवाः ॥३३॥
 
 > sa tāṁ vīkṣya kurukṣetre
 > sarasvatyāṁ ca tat-sakhīḥ
@@ -8258,9 +6594,6 @@ It appears from the words of Urvaśī that the standard of living, eating, behav
 
 ### SB 9.14.34
 
-> अहो जाये तिष्ठ तिष्ठ घोरे न त्यक्तुमर्हसि
-> मां त्वमद्याप्यनिर्वृत्य वचांसि कृणवावहै ॥३४॥
-
 > aho jāye tiṣṭha tiṣṭha
 > ghore na tyaktum arhasi
 > māṁ tvam adyāpy anirvṛtya
@@ -8272,9 +6605,6 @@ It appears from the words of Urvaśī that the standard of living, eating, behav
 
 ### SB 9.14.35
 
-> सुदेहोऽयं पतत्यत्र देवि दूरं हृतस्त्वया
-> खादन्त्येनं वृका गृध्रास्त्वत्प्रसादस्य नास्पदम ॥३५॥
-
 > sudeho 'yaṁ pataty atra
 > devi dūraṁ hṛtas tvayā
 > khādanty enaṁ vṛkā gṛdhrās
@@ -8285,10 +6615,6 @@ It appears from the words of Urvaśī that the standard of living, eating, behav
 **O goddess, now that you have refused me, my beautiful body will fall down here, and because it is unsuitable for your pleasure, it will be eaten by foxes and vultures.**
 
 ### SB 9.14.36
-
-> उर्वश्युवाच
-> मा मृथाः पुरुषोऽसि त्वं मा स्म त्वाद्युर्वृका इमे
-> क्वापि सख्यं न वै स्त्रीणां वृकाणां हृदयं यथा ॥३६॥
 
 > urvaśy uvāca
 > mā mṛthāḥ puruṣo 'si tvaṁ
@@ -8318,9 +6644,6 @@ One should go to the forest and take shelter of the lotus feet of Hari, the Supr
 
 ### SB 9.14.37
 
-> स्त्रियो ह्यकरुणाः क्रूरा दुर्मर्षाः प्रियसाहसाः
-> घ्नन्त्यल्पार्थेऽपि विश्रब्धं पतिं भ्रातरमप्युत ॥३७॥
-
 > striyo hy akaruṇāḥ krūrā
 > durmarṣāḥ priya-sāhasāḥ
 > ghnanty alpārthe 'pi viśrabdhaṁ
@@ -8333,9 +6656,6 @@ One should go to the forest and take shelter of the lotus feet of Hari, the Supr
 King Purūravā was greatly attached to Urvaśī. Yet despite his faithfulness to her, she had left him. Now, considering that the King was wasting his rarely achieved human form of life, Urvaśī frankly explained the nature of a woman. Because of her nature, a woman can respond to even a slight offense from her husband by not only leaving him but even killing him if required. To say nothing of her husband, she can even kill her brother. That is a woman's nature. Therefore, in the material world, unless women are trained to be chaste and faithful to their husbands, there cannot be peace or prosperity in society.
 
 ### SB 9.14.38
-
-> विधायालीकविश्रम्भमज्ञएषु त्यक्तसौहृदाः
-> नवं नवमभीप्सन्त्यः पुंश्चल्यः स्वैरवृत्तयः ॥३८॥
 
 > vidhāyālīka-viśrambham
 > ajñeṣu tyakta-sauhṛdāḥ
@@ -8350,9 +6670,6 @@ Because women are easily seduced, the *Manu-saṁhitā* enjoins that they should
 
 ### SB 9.14.39
 
-> संवत्सरान्ते हि भवानेकरात्रं मयेश्वरः
-> रंस्यत्यपत्यानि च ते भविष्यन्त्यपराणि भोः ॥३९॥
-
 > saṁvatsarānte hi bhavān
 > eka-rātraṁ mayeśvaraḥ
 > raṁsyaty apatyāni ca te
@@ -8366,9 +6683,6 @@ Although Urvaśī had adversely explained the nature of woman, Mahārāja Purūr
 
 ### SB 9.14.40
 
-> अन्तर्वत्नीमुपालक्ष्य देवीं स प्रययौ पुरीम
-> पुनस्तत्र गतोऽब्दान्ते उर्वशीं वीरमातरम ॥४०॥
-
 > antarvatnīm upālakṣya
 > devīṁ sa prayayau purīm
 > punas tatra gato 'bdānte
@@ -8380,9 +6694,6 @@ Although Urvaśī had adversely explained the nature of woman, Mahārāja Purūr
 
 ### SB 9.14.41
 
-> उपलभ्य मुदा युक्तः समुवास तया निशाम
-> अथैनमुर्वशी प्राह कृपणं विरहातुरम ॥४१॥
-
 > upalabhya mudā yuktaḥ
 > samuvāsa tayā niśām
 > athainam urvaśī prāha
@@ -8393,10 +6704,6 @@ Although Urvaśī had adversely explained the nature of woman, Mahārāja Purūr
 **Having regained Urvaśī at the end of the year, King Purūravā was most jubilant, and he enjoyed her company in sex for one night. But then he was very sorry at the thought of separation from her, so Urvaśī spoke to him as follows.**
 
 ### SB 9.14.42
-
-> गन्धर्वानुपधावेमांस्तुभ्यं दास्यन्ति मामिति
-> तस्य संस्तुवतस्तुष्टा अग्निस्थालीं ददुर्नृप
-> उर्वशीं मन्यमानस्तां सोऽबुध्यत चरन्वने ॥४२॥
 
 > gandharvān upadhāvemāṁs
 > tubhyaṁ dāsyanti mām iti
@@ -8413,9 +6720,6 @@ Although Urvaśī had adversely explained the nature of woman, Mahārāja Purūr
 
 ### SB 9.14.43
 
-> स्थालीं न्यस्य वने गत्वा गृहानाध्यायतो निशि
-> त्रेतायां सम्प्रवृत्तायां मनसि त्रय्यवर्तत ॥४३॥
-
 > sthālīṁ nyasya vane gatvā
 > gṛhān ādhyāyato niśi
 > tretāyāṁ sampravṛttāyāṁ
@@ -8428,11 +6732,6 @@ Although Urvaśī had adversely explained the nature of woman, Mahārāja Purūr
 It is said, *tretāyāṁ yajato makhaiḥ:* in Tretā-yuga, if one performed *yajñas,* he would get the results of those *yajñas.* By performing *viṣṇu-yajña* specifically, one could even achieve the lotus feet of the Supreme Personality of Godhead. Of course, *yajña* is intended to please the Supreme Personality of Godhead. While Purūravā was meditating upon Urvaśī, the Tretā-yuga began, and therefore the Vedic *yajñas* were revealed in his heart. But Purūravā was a materialistic man, especially interested in enjoying the senses. *Yajñas* for enjoyment of the senses are called *karma-kāṇḍīya-yajñas.* Therefore, he decided to perform *karma-kāṇḍīya-yajñas* to fulfill his lusty desires. In other words, *karma-kāṇḍīya-yajñas* are meant for sensuous persons, whereas *yajña* should actually be performed to please the Supreme Personality of Godhead. To please the Supreme Personality of Godhead in Kali-yuga, the *saṅkīrtana-yajña* is recommended. *Yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ* [SB 11.5.32]. Only those who are very intelligent take to *saṅkīrtana-yajña* to fulfill all their desires, material and spiritual, whereas those who are lusty for sense enjoyment perform *karma-kāṇḍīya-yajñas.*
 
 ### SB 9.14.44-45
-
-> स्थालीस्थानं गतोऽश्वत्थं शमीगर्भं विलक्ष्य सः
-> तेन द्वे अरणी कृत्वा उर्वशीलोककाम्यया ॥४४॥
-> उर्वशीं मन्त्रतो ध्यायन्नधरारणिमुत्तराम
-> आत्मानमुभयोर्मध्ये यत्तत्प्रजननं प्रभुः ॥४५॥
 
 > sthālī-sthānaṁ gato 'śvatthaṁ
 > śamī-garbhaṁ vilakṣya saḥ
@@ -8452,9 +6751,6 @@ The Vedic fire for performing *yajña* was not ignited with ordinary matches or 
 
 ### SB 9.14.46
 
-> तस्य निर्मन्थनाज्जातो जातवेदा विभावसुः
-> त्रय्या स विद्यया राज्ञआ पुत्रत्वे कल्पितस्त्रिवृत ॥४६॥
-
 > tasya nirmanthanāj jāto
 > jāta-vedā vibhāvasuḥ
 > trayyā sa vidyayā rājñā
@@ -8467,9 +6763,6 @@ The Vedic fire for performing *yajña* was not ignited with ordinary matches or 
 According to the Vedic process, one can get a son through semen (*śukra*), one can get a bona fide disciple through initiation (*sāvitra*), or one can get a son or disciple through the fire of sacrifice (*yajña*). Thus when Mahārāja Purūravā generated the fire by rubbing the *araṇis,* the fire became his son. Either by semen, by initiation or by *yajña* one may get a son. The Vedic *mantra oṁkāra,* or *praṇava,* consisting of the letters *a-u-m,* can call each of these three methods into existence. Therefore the words *nirmanthanāj jātaḥ* indicate that by the rubbing of the *araṇis* a son was born.
 
 ### SB 9.14.47
-
-> तेनायजत यज्ञएशं भगवन्तमधोक्षजम
-> उर्वशीलोकमन्विच्छन्सर्वदेवमयं हरिम ॥४७॥
 
 > tenāyajata yajñeśaṁ
 > bhagavantam adhokṣajam
@@ -8484,9 +6777,6 @@ As stated in *Bhagavad-gītā, bhoktāraṁ yajña-tapasāṁ sarva-loka-maheśv
 
 ### SB 9.14.48
 
-> एक एव पुरा वेदः प्रणवः सर्ववाङ्मयः
-> देवो नारायणो नान्य एकोऽग्निर्वर्ण एव च ॥४८॥
-
 > eka eva purā vedaḥ
 > praṇavaḥ sarva-vāṅmayaḥ
 > devo nārāyaṇo nānya
@@ -8499,9 +6789,6 @@ As stated in *Bhagavad-gītā, bhoktāraṁ yajña-tapasāṁ sarva-loka-maheśv
 In Satya-yuga there was only one *Veda,* not four. Later, before the beginning of Kali-yuga, this one *Veda,* the *Atharva Veda* (or, some say, the *Yajur Veda*), was divided into four—*Sāma, Yajur, Ṛg* and *Atharva*—for the facility of human society. In Satya-yuga the only *mantra* was *oṁkāra* (*oṁ tat sat*). The same name *oṁkāra* is manifest in the *mantra* Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. Unless one is a *brāhmaṇa,* one cannot utter *oṁkāra* and get the desired result. But in Kali-yuga almost everyone is a *śūdra,* unfit for pronouncing the *praṇava, oṁkāra.* Therefore the *śāstras* have recommended the chanting of the Hare Kṛṣṇa *mahā-mantra. Oṁkāra* is a *mantra,* or *mahā-mantra,* and Hare Kṛṣṇa is also a *mahā-mantra.* The purpose of pronouncing *oṁkāra* is to address the Supreme Personality of Godhead, Vāsudeva (*oṁ namo bhagavate vāsudevāya*). And the purpose of chanting the Hare Kṛṣṇa *mantra* is the same. *Hare:* "O energy of the Lord!" *Kṛṣṇa:* "O Lord Kṛṣṇa!" *Hare:* "O energy of the Lord!" *Rāma:* "O Supreme Lord, O supreme enjoyer!" The only worshipable Lord is Hari, who is the goal of the *Vedas* (*vedaiś ca sarvair aham eva vedyaḥ* [[bg/15/15|[Bg. 15.15] ]]). By worshiping the demigods, one worships the different parts of the Lord, just as one might water the branches and twigs of a tree. But worshiping Nārāyaṇa, the all-inclusive Supreme Personality of Godhead, is like pouring water on the root of the tree, thus supplying water to the trunk, branches, twigs, leaves and so on. In Satya-yuga people knew how to fulfill the necessities of life simply by worshiping Nārāyaṇa, the Supreme Personality of Godhead. The same purpose can be served in this age of Kali by the chanting of the Hare Kṛṣṇa *mantra,* as recommended in the *Bhāgavatam. Kīrtanād eva kṛṣṇasya mukta-saṅgaḥ paraṁ vrajet* [SB 12.3.51]. Simply by chanting the Hare Kṛṣṇa *mantra,* one becomes free from the bondage of material existence and thus becomes eligible to return home, back to Godhead.
 
 ### SB 9.14.49
-
-> पुरूरवस एवासीत्त्रयी त्रेतामुखे नृप
-> अग्निना प्रजया राजा लोकं गान्धर्वमेयिवान ॥४९॥
 
 > purūravasa evāsīt
 > trayī tretā-mukhe nṛpa
@@ -8520,10 +6807,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fourteenth Chapter, of t
 
 ### SB 9.15.1
 
-> श्रीबादरायणिरुवाच
-> ऐलस्य चोर्वशीगर्भात्षडासन्नात्मजा नृप
-> आयुः श्रुतायुः सत्यायू रयोऽथ विजयो जयः ॥१॥
-
 > śrī-bādarāyaṇir uvāca
 > ailasya corvaśī-garbhāt
 > ṣaḍ āsann ātmajā nṛpa
@@ -8535,12 +6818,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fourteenth Chapter, of t
 **Śukadeva Gosvāmī continued: O King Parīkṣit, from the womb of Urvaśī, six sons were generated by Purūravā. Their names were Āyu, Śrutāyu, Satyāyu, Raya, Vijaya and Jaya.**
 
 ### SB 9.15.2-3
-
-> श्रुतायोर्वसुमान्पुत्रः सत्यायोश्च श्रुतञ्जयः
-> रयस्य सुत एकश्च जयस्य तनयोऽमितः ॥२॥
-> भीमस्तु विजयस्याथ काञ्चनो होत्रकस्ततः
-> तस्य जह्नुः सुतो गङ्गां गण्डूषीकृत्य योऽपिबत
-> जह्नोस्तु पुरुस्तस्याथ बलाकश्चात्मजोऽजकः ॥३॥
 
 > śrutāyor vasumān putraḥ
 > satyāyoś ca śrutañjayaḥ
@@ -8558,9 +6835,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fourteenth Chapter, of t
 
 ### SB 9.15.4
 
-> ततः कुशः कुशस्यापि कुशाम्बुस्तनयो वसुः
-> कुशनाभश्च चत्वारो गाधिरासीत्कुशाम्बुजः ॥४॥
-
 > jahnos tu purus tasyātha
 > balākaś cātmajo 'jakaḥ
 > tataḥ kuśaḥ kuśasyāpi
@@ -8573,11 +6847,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fourteenth Chapter, of t
 **The son of Jahnu was Puru, the son of Puru was Balāka, the son of Balāka was Ajaka, and the son of Ajaka was Kuśa. Kuśa had four sons, named Kuśāmbu, Tanaya, Vasu and Kuśanābha. The son of Kuśāmbu was Gādhi.**
 
 ### SB 9.15.5-6
-
-> तस्य सत्यवतीं कन्यामृचीकोऽयाचत द्विजः
-> वरं विसदृशं मत्वा गाधिर्भार्गवमब्रवीत ॥५॥
-> एकतः श्यामकर्णानां हयानां चन्द्रवर्चसाम
-> सहस्रं दीयतां शुल्कं कन्यायाः कुशिका वयम ॥६॥
 
 > tasya satyavatīṁ kanyām
 > ṛcīko 'yācata dvijaḥ
@@ -8597,9 +6866,6 @@ The son of King Gādhi was Viśvāmitra, who was said to be a *brāhmaṇa* and 
 
 ### SB 9.15.7
 
-> इत्युक्तस्तन्मतं ज्ञआत्वा गतः स वरुणान्तिकम
-> आनीय दत्त्वा तानश्वानुपयेमे वराननाम ॥७॥
-
 > ity uktas tan-mataṁ jñātvā
 > gataḥ sa varuṇāntikam
 > ānīya dattvā tān aśvān
@@ -8611,9 +6877,6 @@ The son of King Gādhi was Viśvāmitra, who was said to be a *brāhmaṇa* and 
 
 ### SB 9.15.8
 
-> स ऋषिः प्रार्थितः पत्न्या श्वश्र्वा चापत्यकाम्यया
-> श्रपयित्वोभयैर्मन्त्रैश्चरुं स्नातुं गतो मुनिः ॥८॥
-
 > sa ṛṣiḥ prārthitaḥ patnyā
 > śvaśrvā cāpatya-kāmyayā
 > śrapayitvobhayair mantraiś
@@ -8624,9 +6887,6 @@ The son of King Gādhi was Viśvāmitra, who was said to be a *brāhmaṇa* and 
 **Thereafter, Ṛcīka Muni's wife and mother-in-law, each desiring a son, requested the Muni to prepare an oblation. Thus Ṛcīka Muni prepared one oblation for his wife with a brāhmaṇa mantra and another for his mother-in-law with a kṣatriya mantra. Then he went out to bathe.**
 
 ### SB 9.15.9
-
-> तावत्सत्यवती मात्रा स्वचरुं याचिता सती
-> श्रेष्ठं मत्वा तयायच्छन्मात्रे मातुरदत्स्वयम ॥९॥
 
 > tāvat satyavatī mātrā
 > sva-caruṁ yācitā satī
@@ -8641,9 +6901,6 @@ A husband naturally has some affection for his wife. Therefore Satyavatī's moth
 
 ### SB 9.15.10
 
-> तद्विदित्वा मुनिः प्राह पत्नीं कष्टमकारषीः
-> घोरो दण्डधरः पुत्रो भ्राता ते ब्रह्मवित्तमः ॥१०॥
-
 > tad viditvā muniḥ prāha
 > patnīṁ kaṣṭam akāraṣīḥ
 > ghoro daṇḍa-dharaḥ putro
@@ -8657,9 +6914,6 @@ A *brāhmaṇa* is highly qualified when he can control his senses and mind, whe
 
 ### SB 9.15.11
 
-> प्रसादितः सत्यवत्या मैवं भूरिति भार्गवः
-> अथ तर्हि भवेत्पौत्रोजमदग्निस्ततोऽभवत ॥११॥
-
 > prasāditaḥ satyavatyā
 > maivaṁ bhūr iti bhārgavaḥ
 > atha tarhi bhavet pautro
@@ -8672,11 +6926,6 @@ A *brāhmaṇa* is highly qualified when he can control his senses and mind, whe
 The great sage Ṛcīka was very angry, but somehow or other Satyavatī pacified him, and at her request he changed his mind. It is indicated here that the son of Jamadagni would be born as Paraśurāma.
 
 ### SB 9.15.12-13
-
-> सा चाभूत्सुमहत्पुण्या कौशिकी लोकपावनी
-> रेणोः सुतां रेणुकां वै जमदग्निरुवाह याम ॥१२॥
-> तस्यां वै भार्गवऋषेः सुता वसुमदादयः
-> यवीयान्जज्ञअ एतेषां राम इत्यभिविश्रुतः ॥१३॥
 
 > sā cābhūt sumahat-puṇyā
 > kauśikī loka-pāvanī
@@ -8694,9 +6943,6 @@ The great sage Ṛcīka was very angry, but somehow or other Satyavatī pacified
 
 ### SB 9.15.14
 
-> यमाहुर्वासुदेवांशं हैहयानां कुलान्तकम
-> त्रिःसप्तकृत्वो य इमां चक्रे निःक्षत्रियां महीम ॥१४॥
-
 > yam āhur vāsudevāṁśaṁ
 > haihayānāṁ kulāntakam
 > triḥ-sapta-kṛtvo ya imāṁ
@@ -8707,9 +6953,6 @@ The great sage Ṛcīka was very angry, but somehow or other Satyavatī pacified
 **Learned scholars accept this Paraśurāma as the celebrated incarnation of Vāsudeva who annihilated the dynasty of Kārtavīrya. Paraśurāma killed all the kṣatriyas on earth twenty-one times.**
 
 ### SB 9.15.15
-
-> दृप्तं क्षत्रं भुवो भारमब्रह्मण्यमनीनशत
-> रजस्तमोवृतमहन्फल्गुन्यपि कृतेऽंहसि ॥१५॥
 
 > dṛptaṁ kṣatraṁ bhuvo bhāram
 > abrahmaṇyam anīnaśat
@@ -8745,10 +6988,6 @@ Human society is naturally grouped into four divisions, as stated in *Bhagavad-g
 
 ### SB 9.15.16
 
-> श्रीराजोवाच
-> किं तदंहो भगवतो राजन्यैरजितात्मभिः
-> कृतं येन कुलं नष्टं क्षत्रियाणामभीक्ष्णशः ॥१६॥
-
 > śrī-rājovāca
 > kiṁ tad aṁho bhagavato
 > rājanyair ajitātmabhiḥ
@@ -8760,14 +6999,6 @@ Human society is naturally grouped into four divisions, as stated in *Bhagavad-g
 **King Parīkṣit inquired from Śukadeva Gosvāmī: What was the offense that the kṣatriyas who could not control their senses committed before Lord Paraśurāma, the incarnation of the Supreme Personality of Godhead, for which the Lord annihilated the kṣatriya dynasty again and again?**
 
 ### SB 9.15.17-19
-
-> श्रीबादरायणिरुवाच
-> हैहयानामधिपतिरर्जुनः क्षत्रियर्षभः
-> दत्तं नारायणांशांशमाराध्य परिकर्मभिः ॥१७॥
-> बाहून्दशशतं लेभे दुर्धर्षत्वमरातिषु
-> अव्याहतेन्द्रियौजः श्री तेजोवीर्ययशोबलम ॥१८॥
-> योगेश्वरत्वमैश्वर्यं गुणा यत्राणिमादयः
-> चचाराव्याहतगतिर्लोकेषु पवनो यथा ॥१९॥
 
 > śrī-bādarāyaṇir uvāca
 > haihayānām adhipatir
@@ -8791,9 +7022,6 @@ Human society is naturally grouped into four divisions, as stated in *Bhagavad-g
 
 ### SB 9.15.20
 
-> स्त्रीरत्नैरावृतः क्रीडन्रेवाम्भसि मदोत्कटः
-> वैजयन्तीं स्रजं बिभ्रद्रुरोध सरितं भुजैः ॥२०॥
-
 > strī-ratnair āvṛtaḥ krīḍan
 > revāmbhasi madotkaṭaḥ
 > vaijayantīṁ srajaṁ bibhrad
@@ -8804,9 +7032,6 @@ Human society is naturally grouped into four divisions, as stated in *Bhagavad-g
 **Once while enjoying in the water of the River Narmadā, the puffed-up Kārtavīryārjuna, surrounded by beautiful women and garlanded with a garland of victory, stopped the flow of the water with his arms.**
 
 ### SB 9.15.21
-
-> विप्लावितं स्वशिबिरं प्रतिस्रोतःसरिज्जलैः
-> नामृष्यत्तस्य तद्वीर्यं वीरमानी दशाननः ॥२१॥
 
 > viplāvitaṁ sva-śibiraṁ
 > pratisrotaḥ-sarij-jalaiḥ
@@ -8821,9 +7046,6 @@ Rāvaṇa was out touring to gain victory over all other countries (*dig-vijaya*
 
 ### SB 9.15.22
 
-> गृहीतो लीलया स्त्रीणां समक्षं कृतकिल्बिषः
-> माहिष्मत्यां सन्निरुद्धो मुक्तो येन कपिर्यथा ॥२२॥
-
 > gṛhīto līlayā strīṇāṁ
 > samakṣaṁ kṛta-kilbiṣaḥ
 > māhiṣmatyāṁ sanniruddho
@@ -8834,9 +7056,6 @@ Rāvaṇa was out touring to gain victory over all other countries (*dig-vijaya*
 **When Rāvaṇa attempted to insult Kārtavīryārjuna in the presence of the women and thus offended him, Kārtavīryārjuna easily arrested Rāvaṇa and put him in custody in the city of Māhiṣmatī, just as one captures a monkey, and then released him neglectfully.**
 
 ### SB 9.15.23
-
-> स एकदा तु मृगयां विचरन्विजने वने
-> यदृच्छयाश्रमपदं जमदग्नेरुपाविशत ॥२३॥
 
 > sa ekadā tu mṛgayāṁ
 > vicaran vijane vane
@@ -8851,9 +7070,6 @@ Kārtavīryārjuna had no business going to the residence of Jamadagni, but beca
 
 ### SB 9.15.24
 
-> तस्मै स नरदेवाय मुनिरर्हणमाहरत
-> ससैन्यामात्यवाहाय हविष्मत्या तपोधनः ॥२४॥
-
 > tasmai sa naradevāya
 > munir arhaṇam āharat
 > sasainyāmātya-vāhāya
@@ -8866,9 +7082,6 @@ Kārtavīryārjuna had no business going to the residence of Jamadagni, but beca
 The *Brahma-saṁhitā* informs us that the spiritual world, and especially the planet Goloka Vṛndāvana, where Kṛṣṇa lives, is full of *surabhi* cows (*surabhīr abhipālayantam* [Bs. 5.29]). The *surabhi* cow is also called *kāmadhenu.* Although Jamadagni possessed only one *kāmadhenu,* he was able to get from it everything desirable. Thus he was able to receive the King, along with the King's great number of followers, ministers, soldiers, animals and palanquin carriers. When we speak of a king, we understand that he is accompanied by many followers. Jamadagni was able to receive all the King's followers properly and feed them sumptuously with food prepared in ghee. The King was astonished at how opulent Jamadagni was because of possessing only one cow, and therefore he became envious of the great sage. This was the beginning of his offense. Paraśurāma, the incarnation of the Supreme Personality of Godhead, killed Kārtavīryārjuna because Kārtavīryārjuna was too proud. One may possess unusual opulence in this material world, but if one becomes puffed up and acts whimsically he will be punished by the Supreme Personality of Godhead. This is the lesson to learn from this history, in which Paraśurāma became angry at Kārtavīryārjuna and killed him and rid the entire world of *kṣatriyas* twenty-one times.
 
 ### SB 9.15.25
-
-> स वै रत्नं तु तद्दृष्ट्वा आत्मैश्वर्यातिशायनम
-> तन्नाद्रियताग्निहोत्र्यां साभिलाषः सहैहयः ॥२५॥
 
 > sa vai ratnaṁ tu tad dṛṣṭvā
 > ātmaiśvaryātiśāyanam
@@ -8883,9 +7096,6 @@ Jamadagni was more powerful than Kārtavīryārjuna because of performing the *a
 
 ### SB 9.15.26
 
-> हविर्धानीमृषेर्दर्पान्नरान्हर्तुमचोदयत
-> ते च माहिष्मतीं निन्युः सवत्सां क्रन्दतीं बलात ॥२६॥
-
 > havirdhānīm ṛṣer darpān
 > narān hartum acodayat
 > te ca māhiṣmatīṁ ninyuḥ
@@ -8899,9 +7109,6 @@ The word *havirdhānīm* is significant in this verse. *Havirdhānīm* refers to
 
 ### SB 9.15.27
 
-> अथ राजनि निर्याते राम आश्रम आगतः
-> श्रुत्वा तत्तस्य दौरात्म्यं चुक्रोधाहिरिवाहतः ॥२७॥
-
 > atha rājani niryāte
 > rāma āśrama āgataḥ
 > śrutvā tat tasya daurātmyaṁ
@@ -8912,9 +7119,6 @@ The word *havirdhānīm* is significant in this verse. *Havirdhānīm* refers to
 **Thereafter, Kārtavīryārjuna having left with the kāmadhenu, Paraśurāma returned to the āśrama. When Paraśurāma, the youngest son of Jamadagni, heard about Kārtavīryārjuna's nefarious deed, he became as angry as a trampled snake.**
 
 ### SB 9.15.28
-
-> घोरमादाय परशुं सतूणं वर्म कार्मुकम
-> अन्वधावत दुर्मर्षो मृगेन्द्र इव यूथपम ॥२८॥
 
 > ghoram ādāya paraśuṁ
 > satūṇaṁ varma kārmukam
@@ -8927,9 +7131,6 @@ The word *havirdhānīm* is significant in this verse. *Havirdhānīm* refers to
 
 ### SB 9.15.29
 
-> तमापतन्तं भृगुवर्यमोजसा धनुर्धरं बाणपरश्वधायुधम
-> ऐणेयचर्माम्बरमर्कधामभिर्युतं जटाभिर्ददृशे पुरीं विशन ॥२९॥
-
 > tam āpatantaṁ bhṛgu-varyam ojasā
 > dhanur-dharaṁ bāṇa-paraśvadhāyudham
 > aiṇeya-carmāmbaram arka-dhāmabhir
@@ -8940,9 +7141,6 @@ The word *havirdhānīm* is significant in this verse. *Havirdhānīm* refers to
 **As King Kārtavīryārjuna entered his capital, Māhiṣmatī Purī, he saw Lord Paraśurāma, the best of the Bhṛgu dynasty, coming after him, holding a chopper, shield, bow and arrows. Lord Paraśurāma was covered with a black deerskin, and his matted locks of hair appeared like the sunshine.**
 
 ### SB 9.15.30
-
-> अचोदयद्धस्तिरथाश्वपत्तिभिर्गदासिबाणर्ष्टिशतघ्निशक्तिभिः
-> अक्षौहिणीः सप्तदशातिभीषणास्ता राम एको भगवानसूदयत ॥३०॥
 
 > acodayad dhasti-rathāśva-pattibhir
 > gadāsi-bāṇarṣṭi-śataghni-śaktibhiḥ
@@ -9002,9 +7200,6 @@ The word *akṣauhiṇī* refers to a military phalanx consisting of 21,870 char
 
 ### SB 9.15.31
 
-> यतो यतोऽसौ प्रहरत्परश्वधो मनोऽनिलौजाः परचक्रसूदनः
-> ततश्ततस्छिन्नभुजोरुकन्धरा निपेतुरुर्व्यां हतसूतवाहनाः ॥३१॥
-
 > yato yato 'sau praharat-paraśvadho
 > mano-'nilaujāḥ para-cakra-sūdanaḥ
 > tatas tataś chinna-bhujoru-kandharā
@@ -9018,9 +7213,6 @@ In the beginning, when the army of the enemy was full of fighting soldiers, elep
 
 ### SB 9.15.32
 
-> दृष्ट्वा स्वसैन्यं रुधिरौघकर्दमे रणाजिरे रामकुठारसायकैः
-> विवृक्णवर्मध्वजचापविग्रहं निपातितं हैहय आपतद्रुषा ॥३२॥
-
 > dṛṣṭvā sva-sainyaṁ rudhiraugha-kardame
 > raṇājire rāma-kuṭhāra-sāyakaiḥ
 > vivṛkṇa-varma-dhvaja-cāpa-vigrahaṁ
@@ -9031,9 +7223,6 @@ In the beginning, when the army of the enemy was full of fighting soldiers, elep
 **By manipulating his axe and arrows, Lord Paraśurāma cut to pieces the shields, flags, bows and bodies of Kārtavīryārjuna's soldiers, who fell on the battlefield, muddying the ground with their blood. Seeing these reverses, Kārtavīryārjuna, infuriated, rushed to the battlefield.**
 
 ### SB 9.15.33
-
-> अथार्जुनः पञ्चशतेषु बाहुभिर्धनुःषु बाणान्युगपत्स सन्दधे
-> रामाय रामोऽस्त्रभृतां समग्रणीस्तान्येकधन्वेषुभिराच्छिनत्समम ॥३३॥
 
 > athārjunaḥ pañca-śateṣu bāhubhir
 > dhanuḥṣu bāṇān yugapat sa sandadhe
@@ -9046,9 +7235,6 @@ In the beginning, when the army of the enemy was full of fighting soldiers, elep
 
 ### SB 9.15.34
 
-> पुनः स्वहस्तैरचलान्मृधेऽङ्घ्रिपानुत्क्षिप्य वेगादभिधावतो युधि
-> भुजान्कुठारेण कठोरनेमिना चिच्छेद रामः प्रसभं त्वहेरिव ॥३४॥
-
 > punaḥ sva-hastair acalān mṛdhe 'ṅghripān
 > utkṣipya vegād abhidhāvato yudhi
 > bhujān kuṭhāreṇa kaṭhora-neminā
@@ -9059,11 +7245,6 @@ In the beginning, when the army of the enemy was full of fighting soldiers, elep
 **When his arrows were cut to pieces, Kārtavīryārjuna uprooted many trees and hills with his own hands and again rushed strongly toward Lord Paraśurāma to kill him. But Paraśurāma then used his axe with great force to cut off Kārtavīryārjuna's arms, just as one might lop off the hoods of a serpent.**
 
 ### SB 9.15.35-36
-
-> कृत्तबाहोः शिरस्तस्य गिरेः शृङ्गमिवाहरत
-> हते पितरि तत्पुत्रा अयुतं दुद्रुवुर्भयात ॥३५॥
-> अग्निहोत्रीमुपावर्त्य सवत्सां परवीरहा
-> समुपेत्याश्रमं पित्रे परिक्लिष्टां समर्पयत ॥३६॥
 
 > kṛtta-bāhoḥ śiras tasya
 > gireḥ śṛṅgam ivāharat
@@ -9081,9 +7262,6 @@ In the beginning, when the army of the enemy was full of fighting soldiers, elep
 
 ### SB 9.15.37
 
-> स्वकर्म तत्कृतं रामः पित्रे भ्रातृभ्य एव च
-> वर्णयामास तच्छ्रुत्वाजमदग्निरभाषत ॥३७॥
-
 > sva-karma tat kṛtaṁ rāmaḥ
 > pitre bhrātṛbhya eva ca
 > varṇayām āsa tac chrutvā
@@ -9094,9 +7272,6 @@ In the beginning, when the army of the enemy was full of fighting soldiers, elep
 **Paraśurāma described to his father and brothers his activities in killing Kārtavīryārjuna. Upon hearing of these deeds, Jamadagni spoke to his son as follows.**
 
 ### SB 9.15.38
-
-> राम राम महाबाहो भवान्पापमकारषीत
-> अवधीन्नरदेवं यत्सर्वदेवमयं वृथा ॥३८॥
 
 > rāma rāma mahābāho
 > bhavān pāpam akāraṣīt
@@ -9109,9 +7284,6 @@ In the beginning, when the army of the enemy was full of fighting soldiers, elep
 
 ### SB 9.15.39
 
-> वयं हि ब्राह्मणास्तात क्षमयार्हणतां गताः
-> यया लोकगुरुर्देवः पारमेष्ठ्यमगात्पदम ॥३९॥
-
 > vayaṁ hi brāhmaṇās tāta
 > kṣamayārhaṇatāṁ gatāḥ
 > yayā loka-gurur devaḥ
@@ -9122,9 +7294,6 @@ In the beginning, when the army of the enemy was full of fighting soldiers, elep
 **My dear son, we are all brāhmaṇas and have become worshipable for the people in general because of our quality of forgiveness. It is because of this quality that Lord Brahmā, the supreme spiritual master of this universe, has achieved his post.**
 
 ### SB 9.15.40
-
-> क्षमया रोचते लक्ष्मीर्ब्राह्मी सौरी यथा प्रभा
-> क्षमिणामाशु भगवांस्तुष्यते हरिरीश्वरः ॥४०॥
 
 > kṣamayā rocate lakṣmīr
 > brāhmī saurī yathā prabhā
@@ -9138,9 +7307,6 @@ In the beginning, when the army of the enemy was full of fighting soldiers, elep
 Different personalities become beautiful by possessing different qualities. Cāṇakya Paṇḍita says that the cuckoo bird, although very black, is beautiful because of its sweet voice. Similarly, a woman becomes beautiful by her chastity and faithfulness to her husband, and an ugly person becomes beautiful when he becomes a learned scholar. In the same way, *brāhmaṇas, kṣatriyas, vaiśyas* and *śūdras* become beautiful by their qualities. *Brāhmaṇas* are beautiful when they are forgiving, *kṣatriyas* when they are heroic and never retreat from fighting, *vaiśyas* when they enrich cultural activities and protect cows, and *śūdras* when they are faithful in the discharge of duties pleasing to their masters. Thus everyone becomes beautiful by his special qualities. And the special quality of the *brāhmaṇa,* as described here, is forgiveness.
 
 ### SB 9.15.41
-
-> राज्ञओ मूर्धाभिषिक्तस्य वधो ब्रह्मवधाद्गुरुः
-> तीर्थसंसेवया चांहो जह्यङ्गाच्युतचेतनः ॥४१॥
 
 > rājño mūrdhābhiṣiktasya
 > vadho brahma-vadhād guruḥ
@@ -9159,10 +7325,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fifteenth Chapter, of th
 
 ### SB 9.16.1
 
-> श्रीशुक उवाच
-> पित्रोपशिक्षितो रामस्तथेति कुरुनन्दन
-> संवत्सरं तीर्थयात्रां चरित्वाश्रममाव्रजत ॥१॥
-
 > śrī-śuka uvāca
 > pitropaśikṣito rāmas
 > tatheti kuru-nandana
@@ -9175,9 +7337,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fifteenth Chapter, of th
 
 ### SB 9.16.2
 
-> कदाचिद्रेणुका याता गङ्गायां पद्ममालिनम
-> गन्धर्वराजं क्रीडन्तमप्सरोभिरपश्यत ॥२॥
-
 > kadācid reṇukā yātā
 > gaṅgāyāṁ padma-mālinam
 > gandharva-rājaṁ krīḍantam
@@ -9188,9 +7347,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fifteenth Chapter, of th
 **Once when Reṇukā, the wife of Jamadagni, went to the bank of the Ganges to get water, she saw the King of the Gandharvas, decorated with a garland of lotuses and sporting in the Ganges with celestial women [Apsarās].**
 
 ### SB 9.16.3
-
-> विलोकयन्ती क्रीडन्तमुदकार्थं नदीं गता
-> होमवेलां न सस्मार किञ्चिच्चित्ररथस्पृहा ॥३॥
 
 > vilokayantī krīḍantam
 > udakārthaṁ nadīṁ gatā
@@ -9203,9 +7359,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fifteenth Chapter, of th
 
 ### SB 9.16.4
 
-> कालात्ययं तं विलोक्य मुनेः शापविशङ्किता
-> आगत्य कलशं तस्थौ पुरोधाय कृताञ्जलिः ॥४॥
-
 > kālātyayaṁ taṁ vilokya
 > muneḥ śāpa-viśaṅkitā
 > āgatya kalaśaṁ tasthau
@@ -9217,9 +7370,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fifteenth Chapter, of th
 
 ### SB 9.16.5
 
-> व्यभिचारं मुनिरज्ञआत्वा पत्न्याः प्रकुपितोऽब्रवीत
-> घ्नतैनां पुत्रकाः पापामित्युक्तास्ते न चक्रिरे ॥५॥
-
 > vyabhicāraṁ munir jñātvā
 > patnyāḥ prakupito 'bravīt
 > ghnataināṁ putrakāḥ pāpām
@@ -9230,9 +7380,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Fifteenth Chapter, of th
 **The great sage Jamadagni understood the adultery in the mind of his wife. Therefore he was very angry and told his sons, "My dear sons, kill this sinful woman!" But the sons did not carry out his order.**
 
 ### SB 9.16.6
-
-> रामः सञ्चोदितः पित्रा भ्रात्न्मात्रा सहावधीत
-> प्रभावज्ञओ मुनेः सम्यक्समाधेस्तपसश्च सः ॥६॥
 
 > rāmaḥ sañcoditaḥ pitrā
 > bhrātṝn mātrā sahāvadhīt
@@ -9247,9 +7394,6 @@ The word *prabhāva jñaḥ* is significant. Paraśurāma knew the prowess of hi
 
 ### SB 9.16.7
 
-> वरेण च्छन्दयामास प्रीतः सत्यवतीसुतः
-> वव्रे हतानां रामोऽपि जीवितं चास्मृतिं वधे ॥७॥
-
 > vareṇa cchandayām āsa
 > prītaḥ satyavatī-sutaḥ
 > vavre hatānāṁ rāmo 'pi
@@ -9261,9 +7405,6 @@ The word *prabhāva jñaḥ* is significant. Paraśurāma knew the prowess of hi
 
 ### SB 9.16.8
 
-> उत्तस्थुस्ते कुशलिनो निद्रापाय इवाञ्जसा
-> पितुर्विद्वांस्तपोवीर्यं रामश्चक्रे सुहृद्वधम ॥८॥
-
 > uttasthus te kuśalino
 > nidrāpāya ivāñjasā
 > pitur vidvāṁs tapo-vīryaṁ
@@ -9274,9 +7415,6 @@ The word *prabhāva jñaḥ* is significant. Paraśurāma knew the prowess of hi
 **Thereafter, by the benediction of Jamadagni, Lord Paraśurāma's mother and brothers immediately came alive and were very happy, as if awakened from sound sleep. Lord Paraśurāma had killed his relatives in accordance with his father's order because he was fully aware of his father's power, austerity and learning.**
 
 ### SB 9.16.9
-
-> येऽर्जुनस्य सुता राजन्स्मरन्तः स्वपितुर्वधम
-> रामवीर्यपराभूता लेभिरे शर्म न क्वचित ॥९॥
 
 > ye 'rjunasya sutā rājan
 > smarantaḥ sva-pitur vadham
@@ -9291,9 +7429,6 @@ Jamadagni was certainly very powerful due to his austerities, but because of a s
 
 ### SB 9.16.10
 
-> एकदाश्रमतो रामे सभ्रातरि वनं गते
-> वैरं सिषाधयिषवो लब्धच्छिद्रा उपागमन ॥१०॥
-
 > ekadāśramato rāme
 > sabhrātari vanaṁ gate
 > vairaṁ siṣādhayiṣavo
@@ -9304,9 +7439,6 @@ Jamadagni was certainly very powerful due to his austerities, but because of a s
 **Once when Paraśurāma left the āśrama for the forest with Vasumān and his other brothers, the sons of Kārtavīryārjuna took the opportunity to approach Jamadagni's residence to seek vengeance for their grudge.**
 
 ### SB 9.16.11
-
-> दृष्ट्वाग्न्यागार आसीनमावेशितधियं मुनिम
-> भगवत्युत्तमश्लोके जघ्नुस्ते पापनिश्चयाः ॥११॥
 
 > dṛṣṭvāgny-āgāra āsīnam
 > āveśita-dhiyaṁ munim
@@ -9319,9 +7451,6 @@ Jamadagni was certainly very powerful due to his austerities, but because of a s
 
 ### SB 9.16.12
 
-> याच्यमानाः कृपणया राममात्रातिदारुणाः
-> प्रसह्य शिर उत्कृत्य निन्युस्ते क्षत्रबन्धवः ॥१२॥
-
 > yācyamānāḥ kṛpaṇayā
 > rāma-mātrātidāruṇāḥ
 > prasahya śira utkṛtya
@@ -9332,9 +7461,6 @@ Jamadagni was certainly very powerful due to his austerities, but because of a s
 **With pitiable prayers, Reṇukā, the mother of Paraśurāma and wife of Jamadagni, begged for the life of her husband. But the sons of Kārtavīryārjuna, being devoid of the qualities of kṣatriyas, were so cruel that despite her prayers they forcibly cut off his head and took it away.**
 
 ### SB 9.16.13
-
-> रेणुका दुःखशोकार्ता निघ्नन्त्यात्मानमात्मना
-> राम रामेति तातेति विचुक्रोशोच्चकैः सती ॥१३॥
 
 > reṇukā duḥkha-śokārtā
 > nighnanty ātmānam ātmanā
@@ -9347,9 +7473,6 @@ Jamadagni was certainly very powerful due to his austerities, but because of a s
 
 ### SB 9.16.14
 
-> तदुपश्रुत्य दूरस्था हा रामेत्यार्तवत्स्वनम
-> त्वरयाश्रममासाद्य ददृशुः पितरं हतम ॥१४॥
-
 > tad upaśrutya dūrasthā
 > hā rāmety ārtavat svanam
 > tvarayāśramam āsādya
@@ -9360,9 +7483,6 @@ Jamadagni was certainly very powerful due to his austerities, but because of a s
 **Although the sons of Jamadagni, including Lord Paraśurāma, were a long distance from home, as soon as they heard Reṇukā loudly calling "O Rāma, O my son," they hastily returned to the āśrama, where they saw their father already killed.**
 
 ### SB 9.16.15
-
-> ते दुःखरोषामर्षार्ति शोकवेगविमोहिताः
-> हा तात साधो धर्मिष्ठ त्यक्त्वास्मान्स्वर्गतो भवान ॥१५॥
 
 > te duḥkha-roṣāmarṣārti-
 > śoka-vega-vimohitāḥ
@@ -9375,9 +7495,6 @@ Jamadagni was certainly very powerful due to his austerities, but because of a s
 
 ### SB 9.16.16
 
-> विलप्यैवं पितुर्देहं निधाय भ्रातृषु स्वयम
-> प्रगृह्य परशुं रामः क्षत्रान्ताय मनो दधे ॥१६॥
-
 > vilapyaivaṁ pitur dehaṁ
 > nidhāya bhrātṛṣu svayam
 > pragṛhya paraśuṁ rāmaḥ
@@ -9389,9 +7506,6 @@ Jamadagni was certainly very powerful due to his austerities, but because of a s
 
 ### SB 9.16.17
 
-> गत्वा माहिष्मतीं रामो ब्रह्मघ्नविहतश्रियम
-> तेषां स शीर्षभी राजन्मध्ये चक्रे महागिरिम ॥१७॥
-
 > gatvā māhiṣmatīṁ rāmo
 > brahma-ghna-vihata-śriyam
 > teṣāṁ sa śīrṣabhī rājan
@@ -9402,11 +7516,6 @@ Jamadagni was certainly very powerful due to his austerities, but because of a s
 **O King, Lord Paraśurāma then went to Māhiṣmatī, which was already doomed by the sinful killing of a brāhmaṇa. In the midst of that city he made a mountain of heads, severed from the bodies of the sons of Kārtavīryārjuna.**
 
 ### SB 9.16.18-19
-
-> तद्रक्तेन नदीं घोरामब्रह्मण्यभयावहाम
-> हेतुं कृत्वा पितृवधं क्षत्रेऽमङ्गलकारिणि ॥१८॥
-> त्रिःसप्तकृत्वः पृथिवीं कृत्वा निःक्षत्रियां प्रभुः
-> समन्तपञ्चके चक्रे शोणितोदान्ह्रदान्नव ॥१९॥
 
 > tad-raktena nadīṁ ghorām
 > abrahmaṇya-bhayāvahām
@@ -9426,9 +7535,6 @@ Paraśurāma is the Supreme Personality of Godhead, and his eternal mission is *
 
 ### SB 9.16.20
 
-> पितुः कायेन सन्धाय शिर आदाय बर्हिषि
-> सर्वदेवमयं देवमात्मानमयजन्मखैः ॥२०॥
-
 > pituḥ kāyena sandhāya
 > śira ādāya barhiṣi
 > sarva-deva-mayaṁ devam
@@ -9439,11 +7545,6 @@ Paraśurāma is the Supreme Personality of Godhead, and his eternal mission is *
 **Thereafter, Paraśurāma joined his father's head to the dead body and placed the whole body and head upon kuśa grass. By offering sacrifices, he began to worship Lord Vāsudeva, who is the all-pervading Supersoul of all the demigods and of every living entity.**
 
 ### SB 9.16.21-22
-
-> ददौ प्राचीं दिशं होत्रे ब्रह्मणे दक्षिणां दिशम
-> अध्वर्यवे प्रतीचीं वै उद्गात्रे उत्तरां दिशम ॥२१॥
-> अन्येभ्योऽवान्तरदिशः कश्यपाय च मध्यतः
-> आर्यावर्तमुपद्रष्ट्रे सदस्येभ्यस्ततः परम ॥२२॥
 
 > dadau prācīṁ diśaṁ hotre
 > brahmaṇe dakṣiṇāṁ diśam
@@ -9463,9 +7564,6 @@ The tract of land in India between the Himalaya Mountains and the Vindhya Hills 
 
 ### SB 9.16.23
 
-> ततश्चावभृथस्नान विधूताशेषकिल्बिषः
-> सरस्वत्यां महानद्यां रेजे व्यब्भ्र इवांशुमान ॥२३॥
-
 > tataś cāvabhṛtha-snāna-
 > vidhūtāśeṣa-kilbiṣaḥ
 > sarasvatyāṁ mahā-nadyāṁ
@@ -9478,9 +7576,6 @@ The tract of land in India between the Himalaya Mountains and the Vindhya Hills 
 As stated in *Bhagavad-gītā* [[bg/3/9|(Bg. 3.9)]], *yajñārthāt karmaṇo 'nyatra loko 'yaṁ karma-bandhanaḥ:* "Work done as a sacrifice for Viṣṇu has to be performed, otherwise work binds one to this material world." *Karma-bandhanaḥ* refers to the repeated acceptance of one material body after another. The whole problem of life is this repetition of birth and death. Therefore one is advised to work to perform *yajña* meant for satisfying Lord Viṣṇu. Although Lord Paraśurāma was an incarnation of the Supreme Personality of Godhead, he had to account for sinful activities. Anyone in this material world, however careful he may be, must commit some sinful activities, even though he does not want to. For example, one may trample many small ants and other insects while walking on the street and kill many living beings unknowingly. Therefore the Vedic principle of *pañca-yajña,* five kinds of recommended sacrifice, is compulsory. In this age of Kali, however, there is a great concession given to people in general. *Yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ:* [SB 11.5.32] we may worship Lord Caitanya, the hidden incarnation of Kṛṣṇa. *Kṛṣṇa-varṇaṁ tviṣākṛṣṇam:* although He is Kṛṣṇa Himself, He always chants Hare Kṛṣṇa and preaches Kṛṣṇa consciousness. One is recommended to worship this incarnation by chanting, the *saṅkīrtana-yajña.* The performance of *saṅkīrtana-yajña* is a special concession for human society to save people from being affected by known or unknown sinful activities. We are surrounded by unlimited sins, and therefore it is compulsory that one take to Kṛṣṇa consciousness and chant the Hare Kṛṣṇa *mahā-mantra.*
 
 ### SB 9.16.24
-
-> स्वदेहं जमदग्निस्तु लब्ध्वा संज्ञआनलक्षणम
-> ऋषीणां मण्डले सोऽभूत्सप्तमो रामपूजितः ॥२४॥
 
 > sva-dehaṁ jamadagnis tu
 > labdhvā saṁjñāna-lakṣaṇam
@@ -9495,9 +7590,6 @@ The seven stars revolving around the polestar at the zenith are called *saptar�
 
 ### SB 9.16.25
 
-> जामदग्न्योऽपि भगवान्रामः कमललोचनः
-> आगामिन्यन्तरे राजन्वर्तयिष्यति वै बृहत ॥२५॥
-
 > jāmadagnyo 'pi bhagavān
 > rāmaḥ kamala-locanaḥ
 > āgāminy antare rājan
@@ -9508,9 +7600,6 @@ The seven stars revolving around the polestar at the zenith are called *saptar�
 **My dear King Parīkṣit, in the next manvantara the lotus-eyed Personality of Godhead Lord Paraśurāma, the son of Jamadagni, will be a great propounder of Vedic knowledge. In other words, he will be one of the seven sages.**
 
 ### SB 9.16.26
-
-> आस्तेऽद्यापि महेन्द्राद्रौ न्यस्तदण्डः प्रशान्तधीः
-> उपगीयमानचरितः सिद्धगन्धर्वचारणैः ॥२६॥
 
 > āste 'dyāpi mahendrādrau
 > nyasta-daṇḍaḥ praśānta-dhīḥ
@@ -9523,9 +7612,6 @@ The seven stars revolving around the polestar at the zenith are called *saptar�
 
 ### SB 9.16.27
 
-> एवं भृगुषु विश्वात्मा भगवान्हरिरीश्वरः
-> अवतीर्य परं भारं भुवोऽहन्बहुशो नृपान ॥२७॥
-
 > evaṁ bhṛguṣu viśvātmā
 > bhagavān harir īśvaraḥ
 > avatīrya paraṁ bhāraṁ
@@ -9536,9 +7622,6 @@ The seven stars revolving around the polestar at the zenith are called *saptar�
 **In this way the supreme soul, the Supreme Personality of Godhead, the Lord and the supreme controller, descended as an incarnation in the Bhṛgu dynasty and released the universe from the burden of undesirable kings by killing them many times.**
 
 ### SB 9.16.28
-
-> गाधेरभून्महातेजाः समिद्ध इव पावकः
-> तपसा क्षात्रमुत्सृज्य यो लेभे ब्रह्मवर्चसम ॥२८॥
 
 > gādher abhūn mahā-tejāḥ
 > samiddha iva pāvakaḥ
@@ -9560,9 +7643,6 @@ Now, having narrated the history of Lord Paraśurāma, Śukadeva Gosvāmī begin
 
 ### SB 9.16.29
 
-> विश्वामित्रस्य चैवासन्पुत्रा एकशतं नृप
-> मध्यमस्तु मधुच्छन्दा मधुच्छन्दस एव ते ॥२९॥
-
 > viśvāmitrasya caivāsan
 > putrā eka-śataṁ nṛpa
 > madhyamas tu madhucchandā
@@ -9576,9 +7656,6 @@ In this connection, Śrīla Viśvanātha Cakravartī Ṭhākura quotes this stat
 
 ### SB 9.16.30
 
-> पुत्रं कृत्वा शुनःशेफं देवरातं च भार्गवम
-> आजीगर्तं सुतानाह ज्येष्ठ एष प्रकल्प्यताम ॥३०॥
-
 > putraṁ kṛtvā śunaḥśephaṁ
 > devarātaṁ ca bhārgavam
 > ājīgartaṁ sutān āha
@@ -9589,9 +7666,6 @@ In this connection, Śrīla Viśvanātha Cakravartī Ṭhākura quotes this stat
 **Viśvāmitra accepted the son of Ajīgarta known as Śunaḥśepha, who was born in the Bhṛgu dynasty and was also known as Devarāta, as one of his own sons. Viśvāmitra ordered his other sons to accept Śunaḥśepha as their eldest brother.**
 
 ### SB 9.16.31
-
-> यो वै हरिश्चन्द्रमखे विक्रीतः पुरुषः पशुः
-> स्तुत्वा देवान्प्रजेशादीन्मुमुचे पाशबन्धनात ॥३१॥
 
 > yo vai hariścandra-makhe
 > vikrītaḥ puruṣaḥ paśuḥ
@@ -9606,9 +7680,6 @@ Here is a description of Śunaḥśepha. When Hariścandra was to sacrifice his 
 
 ### SB 9.16.32
 
-> यो रातो देवयजने देवैर्गाधिषु तापसः
-> देवरात इति ख्यातः शुनःशेफस्तु भार्गवः ॥३२॥
-
 > yo rāto deva-yajane
 > devair gādhiṣu tāpasaḥ
 > deva-rāta iti khyātaḥ
@@ -9619,9 +7690,6 @@ Here is a description of Śunaḥśepha. When Hariścandra was to sacrifice his 
 **Although Śunaḥśepha was born in the Bhārgava dynasty, he was greatly advanced in spiritual life, and therefore the demigods involved in the sacrifice protected him. Consequently he was also celebrated as the descendant of Gādhi named Devarāta.**
 
 ### SB 9.16.33
-
-> ये मधुच्छन्दसो ज्येष्ठाः कुशलं मेनिरे न तत
-> अशपत्तान्मुनिः क्रुद्धो म्लेच्छा भवत दुर्जनाः ॥३३॥
 
 > ye madhucchandaso jyeṣṭhāḥ
 > kuśalaṁ menire na tat
@@ -9636,9 +7704,6 @@ In Vedic literature there are names like *mleccha* and *yavana.* The *mlecchas* 
 
 ### SB 9.16.34
 
-> स होवाच मधुच्छन्दाः सार्धं पञ्चाशता ततः
-> यन्नो भवान्सञ्जानीते तस्मिंस्तिष्ठामहे वयम ॥३४॥
-
 > sa hovāca madhucchandāḥ
 > sārdhaṁ pañcāśatā tataḥ
 > yan no bhavān sañjānīte
@@ -9649,10 +7714,6 @@ In Vedic literature there are names like *mleccha* and *yavana.* The *mlecchas* 
 **When the elder Madhucchandās were cursed, the younger fifty, along with Madhucchandā himself, approached their father and agreed to accept his proposal. "Dear father," they said, "we shall abide by whatever arrangement you like."**
 
 ### SB 9.16.35
-
-> ज्येष्ठं मन्त्रदृशं चक्रुस्त्वामन्वञ्चो वयं स्म हि
-> विश्वामित्रः सुतानाह वीरवन्तो भविष्यथ
-> ये मानं मेऽनुगृह्णन्तो वीरवन्तमकर्त माम ॥३५॥
 
 > jyeṣṭhaṁ mantra-dṛśaṁ cakrus
 > tvām anvañco vayaṁ sma hi
@@ -9669,9 +7730,6 @@ Of the one hundred sons, half disobeyed Viśvāmitra by not accepting Śunaḥś
 
 ### SB 9.16.36
 
-> एष वः कुशिका वीरो देवरातस्तमन्वित
-> अन्ये चाष्टकहारीत जयक्रतुमदादयः ॥३६॥
-
 > eṣa vaḥ kuśikā vīro
 > devarātas tam anvita
 > anye cāṣṭaka-hārīta-
@@ -9682,9 +7740,6 @@ Of the one hundred sons, half disobeyed Viśvāmitra by not accepting Śunaḥś
 **Viśvāmitra said, "O Kuśikas [descendants of Kauśika], this Devarāta is my son and is one of you. Please obey his orders." O King Parīkṣit, Viśvāmitra had many other sons, such as Aṣṭaka, Hārīta, Jaya and Kratumān.**
 
 ### SB 9.16.37
-
-> एवं कौशिकगोत्रं तु विश्वामित्रैः पृथग्विधम
-> प्रवरान्तरमापन्नं तद्धि चैवं प्रकल्पितम ॥३७॥
 
 > evaṁ kauśika-gotraṁ tu
 > viśvāmitraiḥ pṛthag-vidham
@@ -9700,14 +7755,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixteenth Chapter, of th
 ## Canto 9, Chapter 17
 
 ### SB 9.17.1-3
-
-> श्रीबादरायणिरुवाच
-> यः पुरूरवसः पुत्र आयुस्तस्याभवन्सुताः
-> नहुषः क्षत्रवृद्धश्च रजी राभश्च वीर्यवान ॥१॥
-> अनेना इति राजेन्द्र शृणु क्षत्रवृधोऽन्वयम
-> क्षत्रवृद्धसुतस्यासन्सुहोत्रस्यात्मजास्त्रयः ॥२॥
-> काश्यः कुशो गृत्समद इति गृत्समदादभूत
-> शुनकः शौनको यस्य बह्वृचप्रवरो मुनिः ॥३॥
 
 > śrī-bādarāyaṇir uvāca
 > yaḥ purūravasaḥ putra
@@ -9731,9 +7778,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixteenth Chapter, of th
 
 ### SB 9.17.4
 
-> काश्यस्य काशिस्तत्पुत्रो राष्ट्रो दीर्घतमःपिता
-> धन्वन्तरिर्दीर्घतमस आयुर्वेदप्रवर्तकः ॥४॥
-
 > kāśyasya kāśis tat-putro
 > rāṣṭro dīrghatamaḥ-pitā
 > dhanvantarir dīrghatamasa
@@ -9747,9 +7791,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixteenth Chapter, of th
 
 ### SB 9.17.5
 
-> यज्ञअभुग्वासुदेवांशः स्मृतमात्रार्तिनाशनः
-> तत्पुत्रः केतुमानस्य जज्ञए भीमरथस्ततः ॥५॥
-
 > tat-putraḥ ketumān asya
 > jajñe bhīmarathas tataḥ
 > divodāso dyumāṁs tasmāt
@@ -9760,10 +7801,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixteenth Chapter, of th
 **The son of Dhanvantari was Ketumān, and his son was Bhīmaratha. The son of Bhīmaratha was Divodāsa, and the son of Divodāsa was Dyumān, also known as Pratardana.**
 
 ### SB 9.17.6
-
-> दिवोदासो द्युमांस्तस्मात्प्रतर्दन इति स्मृतः
-> स एव शत्रुजिद्वत्स ऋतध्वज इतीरितः
-> तथा कुवलयाश्वेति प्रोक्तोऽलर्कादयस्ततः ॥६॥
 
 > sa eva śatrujid vatsa
 > ṛtadhvaja itīritaḥ
@@ -9776,9 +7813,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixteenth Chapter, of th
 
 ### SB 9.17.7
 
-> षष्टिं वर्षसहस्राणि षष्टिं वर्षशतानि च
-> नालर्कादपरो राजन्बुभुजे मेदिनीं युवा ॥७॥
-
 > ṣaṣṭiṁ varṣa-sahasrāṇi
 > ṣaṣṭiṁ varṣa-śatāni ca
 > nālarkād aparo rājan
@@ -9789,9 +7823,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixteenth Chapter, of th
 **Alarka, the son of Dyumān, reigned over the earth for sixty-six thousand years, my dear King Parīkṣit. No one other than him has reigned over the earth for so long as a young man.**
 
 ### SB 9.17.8
-
-> अलर्कात्सन्ततिस्तस्मात्सुनीथोऽथ निकेतनः
-> धर्मकेतुः सुतस्तस्मात्सत्यकेतुरजायत ॥८॥
 
 > alarkāt santatis tasmāt
 > sunītho 'tha niketanaḥ
@@ -9804,9 +7835,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixteenth Chapter, of th
 
 ### SB 9.17.9
 
-> धृष्टकेतुस्ततस्तस्मात्सुकुमारः क्षितीश्वरः
-> वीतिहोत्रोऽस्य भर्गोऽतो भार्गभूमिरभून्नृप ॥९॥
-
 > dhṛṣṭaketus tatas tasmāt
 > sukumāraḥ kṣitīśvaraḥ
 > vītihotro 'sya bhargo 'to
@@ -9817,9 +7845,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixteenth Chapter, of th
 **O King Parīkṣit, from Satyaketu came a son named Dhṛṣṭaketu, and from Dhṛṣṭaketu came Sukumāra, the emperor of the entire world. From Sukumāra came a son named Vītihotra; from Vītihotra, Bharga; and from Bharga, Bhārgabhūmi.**
 
 ### SB 9.17.10
-
-> इतीमे काशयो भूपाः क्षत्रवृद्धान्वयायिनः
-> राभस्य रभसः पुत्रो गम्भीरश्चाक्रियस्ततः ॥१०॥
 
 > itīme kāśayo bhūpāḥ
 > kṣatravṛddhānvayāyinaḥ
@@ -9832,9 +7857,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixteenth Chapter, of th
 
 ### SB 9.17.11
 
-> तद्गोत्रं ब्रह्मविज्जज्ञए शृणु वंशमनेनसः
-> शुद्धस्ततः शुचिस्तस्माच्चित्रकृद्धर्मसारथिः ॥११॥
-
 > tad-gotraṁ brahmavij jajñe
 > śṛṇu vaṁśam anenasaḥ
 > śuddhas tataḥ śucis tasmāc
@@ -9846,9 +7868,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixteenth Chapter, of th
 
 ### SB 9.17.12
 
-> ततः शान्तरजो जज्ञए कृतकृत्यः स आत्मवान
-> रजेः पञ्चशतान्यासन्पुत्राणाममितौजसाम ॥१२॥
-
 > tataḥ śāntarajo jajñe
 > kṛta-kṛtyaḥ sa ātmavān
 > rajeḥ pañca-śatāny āsan
@@ -9859,9 +7878,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixteenth Chapter, of th
 **From Citrakṛt was born a son named Śāntaraja, a self-realized soul who performed all kinds of Vedic ritualistic ceremonies and therefore did not beget any progeny. The sons of Rajī were five hundred, all very powerful.**
 
 ### SB 9.17.13
-
-> देवैरभ्यर्थितो दैत्यान्हत्वेन्द्रायाददाद्दिवम
-> इन्द्रस्तस्मै पुनर्दत्त्वा गृहीत्वा चरणौ रजेः ॥१३॥
 
 > devair abhyarthito daityān
 > hatvendrāyādadād divam
@@ -9876,9 +7892,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Sixteenth Chapter, of th
 
 ### SB 9.17.14
 
-> आत्मानमर्पयामास प्रह्रादाद्यरिशङ्कितः
-> पितर्युपरते पुत्रा याचमानाय नो ददुः ॥१४॥
-
 > pitary uparate putrā
 > yācamānāya no daduḥ
 > triviṣṭapaṁ mahendrāya
@@ -9892,9 +7905,6 @@ Rajī conquered the kingdom of heaven, and therefore when Indra, the heavenly ki
 
 ### SB 9.17.15
 
-> त्रिविष्टपं महेन्द्राय यज्ञअभागान्समाददुः
-> गुरुणा हूयमानेऽग्नौ बलभित्तनयान्रजेः ॥१५॥
-
 > guruṇā hūyamāne 'gnau
 > balabhit tanayān rajeḥ
 > avadhīd bhraṁśitān mārgān
@@ -9906,9 +7916,6 @@ Rajī conquered the kingdom of heaven, and therefore when Indra, the heavenly ki
 
 ### SB 9.17.16
 
-> अवधीद्भ्रंशितान्मार्गान्न कश्चिदवशेषितः
-> कुशात्प्रतिः क्षात्रवृद्धात्सञ्जयस्तत्सुतो जयः ॥१६॥
-
 > kuśāt pratiḥ kṣātravṛddhāt
 > sañjayas tat-suto jayaḥ
 > tataḥ kṛtaḥ kṛtasyāpi
@@ -9919,9 +7926,6 @@ Rajī conquered the kingdom of heaven, and therefore when Indra, the heavenly ki
 **From Kuśa, the grandson of Kṣatravṛddha, was born a son named Prati. The son of Prati was Sañjaya, and the son of Sañjaya was Jaya. From Jaya, Kṛta was born, and from Kṛta, King Haryabala.**
 
 ### SB 9.17.17
-
-> ततः कृतः कृतस्यापि जज्ञए हर्यबलो नृपः
-> सहदेवस्ततो हीनो जयसेनस्तु तत्सुतः ॥१७॥
 
 > sahadevas tato hīno
 > jayasenas tu tat-sutaḥ
@@ -9940,10 +7944,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Seventeenth Chapter, of 
 
 ### SB 9.18.1
 
-> श्रीशुक उवाच
-> यतिर्ययातिः संयातिरायतिर्वियतिः कृतिः
-> षडिमे नहुषस्यासन्निन्द्रियाणीव देहिनः ॥१॥
-
 > śrī-śuka uvāca
 > yatir yayātiḥ saṁyātir
 > āyatir viyatiḥ kṛtiḥ
@@ -9955,9 +7955,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Seventeenth Chapter, of 
 **Śukadeva Gosvāmī said: O King Parīkṣit, as the embodied soul has six senses, King Nahuṣa had six sons, named Yati, Yayāti, Saṁyāti, Āyati, Viyati and Kṛti.**
 
 ### SB 9.18.2
-
-> राज्यं नैच्छद्यतिः पित्रा दत्तं तत्परिणामवित
-> यत्र प्रविष्टः पुरुष आत्मानं नावबुध्यते ॥२॥
 
 > rājyaṁ naicchad yatiḥ pitrā
 > dattaṁ tat-pariṇāmavit
@@ -9978,9 +7975,6 @@ Regardless of whether one is in the mode of passion, ignorance or goodness, if o
 
 ### SB 9.18.3
 
-> पितरि भ्रंशिते स्थानादिन्द्राण्या धर्षणाद्द्विजैः
-> प्रापितेऽजगरत्वं वै ययातिरभवन्नृपः ॥३॥
-
 > pitari bhraṁśite sthānād
 > indrāṇyā dharṣaṇād dvijaiḥ
 > prāpite 'jagaratvaṁ vai
@@ -9992,9 +7986,6 @@ Regardless of whether one is in the mode of passion, ignorance or goodness, if o
 
 ### SB 9.18.4
 
-> चतसृष्वादिशद्दिक्षु भ्रात्न्भ्राता यवीयसः
-> कृतदारो जुगोपोर्वीं काव्यस्य वृषपर्वणः ॥४॥
-
 > catasṛṣv ādiśad dikṣu
 > bhrātṝn bhrātā yavīyasaḥ
 > kṛta-dāro jugoporvīṁ
@@ -10005,10 +7996,6 @@ Regardless of whether one is in the mode of passion, ignorance or goodness, if o
 **King Yayāti had four younger brothers, whom he allowed to rule the four directions. Yayāti himself married Devayānī, the daughter of Śukrācārya, and Śarmiṣṭhā, the daughter of Vṛṣaparvā, and ruled the entire earth.**
 
 ### SB 9.18.5
-
-> श्रीराजोवाच
-> ब्रह्मर्षिर्भगवान्काव्यः क्षत्रबन्धुश्च नाहुषः
-> राजन्यविप्रयोः कस्माद्विवाहः प्रतिलोमकः ॥५॥
 
 > śrī-rājovāca
 > brahmarṣir bhagavān kāvyaḥ
@@ -10023,12 +8010,6 @@ Regardless of whether one is in the mode of passion, ignorance or goodness, if o
 According to the Vedic system, marriages between *kṣatriyas* and *kṣatriyas* or between *brāhmaṇas* and *brāhmaṇas* are the general custom. If marriages sometimes take place between different classes, these marriages are of two types, namely *anuloma* and *pratiloma. Anuloma,* marriage between a *brāhmaṇa* and the daughter of a *kṣatriya,* is permissible, but *pratiloma,* marriage between a *kṣatriya* and the daughter of a *brāhmaṇa,* is not generally allowed. Therefore Mahārāja Parīkṣit was curious about how Śukrācārya, a powerful *brāhmaṇa,* could accept the principle of *pratiloma.* Mahārāja Parīkṣit was eager to know the cause for this uncommon marriage.
 
 ### SB 9.18.6-7
-
-> श्रीशुक उवाच
-> एकदा दानवेन्द्रस्य शर्मिष्ठा नाम कन्यका
-> सखीसहस्रसंयुक्ता गुरुपुत्र्या च भामिनी ॥६॥
-> देवयान्या पुरोद्याने पुष्पितद्रुमसङ्कुले
-> व्यचरत्कलगीतालि नलिनीपुलिनेऽबला ॥७॥
 
 > śrī-śuka uvāca
 > ekadā dānavendrasya
@@ -10047,9 +8028,6 @@ According to the Vedic system, marriages between *kṣatriyas* and *kṣatriyas*
 
 ### SB 9.18.8
 
-> ता जलाशयमासाद्य कन्याः कमललोचनाः
-> तीरे न्यस्य दुकूलानि विजह्रुः सिञ्चतीर्मिथः ॥८॥
-
 > tā jalāśayam āsādya
 > kanyāḥ kamala-locanāḥ
 > tīre nyasya dukūlāni
@@ -10060,9 +8038,6 @@ According to the Vedic system, marriages between *kṣatriyas* and *kṣatriyas*
 **When the young, lotus-eyed girls came to the bank of a reservoir of water, they wanted to enjoy by bathing. Thus they left their clothing on the bank and began sporting, throwing water on one another.**
 
 ### SB 9.18.9
-
-> वीक्ष्य व्रजन्तं गिरिशं सह देव्या वृषस्थितम
-> सहसोत्तीर्य वासांसि पर्यधुर्व्रीडिताः स्त्रियः ॥९॥
 
 > vīkṣya vrajantaṁ giriśaṁ
 > saha devyā vṛṣa-sthitam
@@ -10075,9 +8050,6 @@ According to the Vedic system, marriages between *kṣatriyas* and *kṣatriyas*
 
 ### SB 9.18.10
 
-> शर्मिष्ठाजानती वासो गुरुपुत्र्याः समव्ययत
-> स्वीयं मत्वा प्रकुपिता देवयानीदमब्रवीत ॥१०॥
-
 > śarmiṣṭhājānatī vāso
 > guru-putryāḥ samavyayat
 > svīyaṁ matvā prakupitā
@@ -10089,9 +8061,6 @@ According to the Vedic system, marriages between *kṣatriyas* and *kṣatriyas*
 
 ### SB 9.18.11
 
-> अहो निरीक्ष्यतामस्या दास्याः कर्म ह्यसाम्प्रतम
-> अस्मद्धार्यं धृतवती शुनीव हविरध्वरे ॥११॥
-
 > aho nirīkṣyatām asyā
 > dāsyāḥ karma hy asāmpratam
 > asmad-dhāryaṁ dhṛtavatī
@@ -10102,13 +8071,6 @@ According to the Vedic system, marriages between *kṣatriyas* and *kṣatriyas*
 **Oh, just see the activities of this servant-maid Śarmiṣṭhā! Disregarding all etiquette, she has put on my dress, just like a dog snatching clarified butter meant for use in a sacrifice.**
 
 ### SB 9.18.12-14
-
-> यैरिदं तपसा सृष्टं मुखं पुंसः परस्य ये
-> धार्यते यैरिह ज्योतिः शिवः पन्थाः प्रदर्शितः ॥१२॥
-> यान्वन्दन्त्युपतिष्ठन्ते लोकनाथाः सुरेश्वराः
-> भगवानपि विश्वात्मा पावनः श्रीनिकेतनः ॥१३॥
-> वयं तत्रापि भृगवः शिष्योऽस्या नः पितासुरः
-> अस्मद्धार्यं धृतवती शूद्रो वेदमिवासती ॥१४॥
 
 > yair idaṁ tapasā sṛṣṭaṁ
 > mukhaṁ puṁsaḥ parasya ye
@@ -10131,9 +8093,6 @@ According to the Vedic system, marriages between *kṣatriyas* and *kṣatriyas*
 
 ### SB 9.18.15
 
-> एवं क्षिपन्तीं शर्मिष्ठा गुरुपुत्रीमभाषत
-> रुषा श्वसन्त्युरङ्गीव धर्षिता दष्टदच्छदा ॥१५॥
-
 > evaṁ kṣipantīṁ śarmiṣṭhā
 > guru-putrīm abhāṣata
 > ruṣā śvasanty uraṅgīva
@@ -10144,9 +8103,6 @@ According to the Vedic system, marriages between *kṣatriyas* and *kṣatriyas*
 **Śukadeva Gosvāmī said: When thus rebuked in cruel words, Śarmiṣṭhā was very angry. Breathing heavily like a serpent and biting her lower lip with her teeth, she spoke to the daughter of Śukrācārya as follows.**
 
 ### SB 9.18.16
-
-> आत्मवृत्तमविज्ञआय कत्थसे बहु भिक्षुकि
-> किं न प्रतीक्षसेऽस्माकं गृहान्बलिभुजो यथा ॥१६॥
 
 > ātma-vṛttam avijñāya
 > katthase bahu bhikṣuki
@@ -10161,9 +8117,6 @@ Crows have no independent life; they fully depend on the remnants of foodstuffs 
 
 ### SB 9.18.17
 
-> एवंविधैः सुपरुषैः क्षिप्त्वाचार्यसुतां सतीम
-> शर्मिष्ठा प्राक्षिपत्कूपे वासश्चादाय मन्युना ॥१७॥
-
 > evaṁ-vidhaiḥ suparuṣaiḥ
 > kṣiptvācārya-sutāṁ satīm
 > śarmiṣṭhā prākṣipat kūpe
@@ -10174,9 +8127,6 @@ Crows have no independent life; they fully depend on the remnants of foodstuffs 
 **Using such unkind words, Śarmiṣṭhā rebuked Devayānī, the daughter of Śukrācārya. In anger, she took away Devayānī's garments and threw Devayānī into a well.**
 
 ### SB 9.18.18
-
-> तस्यां गतायां स्वगृहं ययातिर्मृगयां चरन
-> प्राप्तो यदृच्छया कूपे जलार्थी तां ददर्श ह ॥१८॥
 
 > tasyāṁ gatāyāṁ sva-gṛhaṁ
 > yayātir mṛgayāṁ caran
@@ -10189,9 +8139,6 @@ Crows have no independent life; they fully depend on the remnants of foodstuffs 
 
 ### SB 9.18.19
 
-> दत्त्वा स्वमुत्तरं वासस्तस्यै राजा विवाससे
-> गृहीत्वा पाणिना पाणिमुज्जहार दयापरः ॥१९॥
-
 > dattvā svam uttaraṁ vāsas
 > tasyai rājā vivāsase
 > gṛhītvā pāṇinā pāṇim
@@ -10202,12 +8149,6 @@ Crows have no independent life; they fully depend on the remnants of foodstuffs 
 **Seeing Devayānī naked in the well, King Yayāti immediately gave her his upper cloth. Being very kind to her, he caught her hand with his own and lifted her out.**
 
 ### SB 9.18.20-21
-
-> तं वीरमाहौशनसी प्रेमनिर्भरया गिरा
-> राजंस्त्वया गृहीतो मे पाणिः परपुरञ्जय ॥२०॥
-> हस्तग्राहोऽपरो मा भूद्गृहीतायास्त्वया हि मे
-> एष ईशकृतो वीर सम्बन्धो नौ न पौरुषः
-> यदिदं कूपमग्नाया भवतो दर्शनं मम ॥२१॥
 
 > taṁ vīram āhauśanasī
 > prema-nirbharayā girā
@@ -10227,9 +8168,6 @@ While taking Devayānī out of the well, King Yayāti must certainly have apprec
 
 ### SB 9.18.22
 
-> न ब्राह्मणो मे भविता हस्तग्राहो महाभुज
-> कचस्य बार्हस्पत्यस्य शापाद्यमशपं पुरा ॥२२॥
-
 > yad idaṁ kūpa-magnāyā
 > bhavato darśanaṁ mama
 > na brāhmaṇo me bhavitā
@@ -10245,9 +8183,6 @@ Kaca, the son of the learned celestial priest Bṛhaspati, had been a student of
 
 ### SB 9.18.23
 
-> ययातिरनभिप्रेतं दैवोपहृतमात्मनः
-> मनस्तु तद्गतं बुद्ध्वा प्रतिजग्राह तद्वचः ॥२३॥
-
 > yayātir anabhipretaṁ
 > daivopahṛtam ātmanaḥ
 > manas tu tad-gataṁ buddhvā
@@ -10261,9 +8196,6 @@ According to the Vedic system, the parents would consider the horoscopes of the 
 
 ### SB 9.18.24
 
-> गते राजनि सा धीरे तत्र स्म रुदती पितुः
-> न्यवेदयत्ततः सर्वमुक्तं शर्मिष्ठया कृतम ॥२४॥
-
 > gate rājani sā dhīre
 > tatra sma rudatī pituḥ
 > nyavedayat tataḥ sarvam
@@ -10274,9 +8206,6 @@ According to the Vedic system, the parents would consider the horoscopes of the 
 **Thereafter, when the learned King returned to his palace, Devayānī returned home crying and told her father, Śukrācārya, about all that had happened because of Śarmiṣṭhā. She told how she had been thrown into the well but was saved by the King.**
 
 ### SB 9.18.25
-
-> दुर्मना भगवान्काव्यः पौरोहित्यं विगर्हयन
-> स्तुवन्वृत्तिं च कापोतीं दुहित्रा स ययौ पुरात ॥२५॥
 
 > durmanā bhagavān kāvyaḥ
 > paurohityaṁ vigarhayan
@@ -10291,9 +8220,6 @@ When a *brāhmaṇa* adopts the profession of a *kapota,* or pigeon, he lives by
 
 ### SB 9.18.26
 
-> वृषपर्वा तमाज्ञआय प्रत्यनीकविवक्षितम
-> गुरुं प्रसादयन्मूर्ध्ना पादयोः पतितः पथि ॥२६॥
-
 > vṛṣaparvā tam ājñāya
 > pratyanīka-vivakṣitam
 > guruṁ prasādayan mūrdhnā
@@ -10304,9 +8230,6 @@ When a *brāhmaṇa* adopts the profession of a *kapota,* or pigeon, he lives by
 **King Vṛṣaparvā understood that Śukrācārya was coming to chastise or curse him. Consequently, before Śukrācārya came to his house, Vṛṣaparvā went out and fell down in the street at the feet of his guru and satisfied him, checking his wrath.**
 
 ### SB 9.18.27
-
-> क्षणार्धमन्युर्भगवान्शिष्यं व्याचष्ट भार्गवः
-> कामोऽस्याः क्रियतां राजन्नैनां त्यक्तुमिहोत्सहे ॥२७॥
 
 > kṣaṇārdha-manyur bhagavān
 > śiṣyaṁ vyācaṣṭa bhārgavaḥ
@@ -10321,9 +8244,6 @@ Sometimes a great personality like Śukrācārya cannot neglect sons and daughte
 
 ### SB 9.18.28
 
-> तथेत्यवस्थिते प्राह देवयानी मनोगतम
-> पित्रा दत्ता यतो यास्ये सानुगा यातु मामनु ॥२८॥
-
 > tathety avasthite prāha
 > devayānī manogatam
 > pitrā dattā yato yāsye
@@ -10334,10 +8254,6 @@ Sometimes a great personality like Śukrācārya cannot neglect sons and daughte
 **After hearing Śukrācārya's request, Vṛṣaparvā agreed to fulfill Devayānī's desire, and he awaited her words. Devayānī then expressed her desire as follows: "Whenever I marry by the order of my father, my friend Śarmiṣṭhā must go with me as my maidservant, along with her friends."**
 
 ### SB 9.18.29
-
-> पित्रा दत्ता देवयान्यै शर्मिष्ठा सानुगा तदा
-> स्वानां तत्सङ्कटं वीक्ष्य तदर्थस्य च गौरवम
-> देवयानीं पर्यचरत्स्त्रीसहस्रेण दासवत ॥२९॥
 
 > pitrā dattā devayānyai
 > śarmiṣṭhā sānugā tadā
@@ -10354,9 +8270,6 @@ In the beginning of these affairs concerning Śarmiṣṭhā and Devayānī, we 
 
 ### SB 9.18.30
 
-> नाहुषाय सुतां दत्त्वा सह शर्मिष्ठयोशना
-> तमाह राजन्छर्मिष्ठामाधास्तल्पे न कर्हिचित ॥३०॥
-
 > nāhuṣāya sutāṁ dattvā
 > saha śarmiṣṭhayośanā
 > tam āha rājañ charmiṣṭhām
@@ -10368,9 +8281,6 @@ In the beginning of these affairs concerning Śarmiṣṭhā and Devayānī, we 
 
 ### SB 9.18.31
 
-> विलोक्यौशनसीं राजञ्छर्मिष्ठा सुप्रजां क्वचित
-> तमेव वव्रे रहसि सख्याः पतिमृतौ सती ॥३१॥
-
 > vilokyauśanasīṁ rājañ
 > charmiṣṭhā suprajāṁ kvacit
 > tam eva vavre rahasi
@@ -10381,9 +8291,6 @@ In the beginning of these affairs concerning Śarmiṣṭhā and Devayānī, we 
 **O King Parīkṣit, upon seeing Devayānī with a nice son, Śarmiṣṭhā once approached King Yayāti at the appropriate time for conception. In a secluded place, she requested the King, the husband of her friend Devayānī, to enable her to have a son also.**
 
 ### SB 9.18.32
-
-> राजपुत्र्यार्थितोऽपत्ये धर्मं चावेक्ष्य धर्मवित
-> स्मरन्छुक्रवचः काले दिष्टमेवाभ्यपद्यत ॥३२॥
 
 > rāja-putryārthito 'patye
 > dharmaṁ cāvekṣya dharmavit
@@ -10398,9 +8305,6 @@ King Yayāti was completely aware of the duty of a *kṣatriya.* When a *kṣatr
 
 ### SB 9.18.33
 
-> यदुं च तुर्वसुं चैव देवयानी व्यजायत
-> द्रुह्युं चानुं च पूरुं च शर्मिष्ठा वार्षपर्वणी ॥३३॥
-
 > yaduṁ ca turvasuṁ caiva
 > devayānī vyajāyata
 > druhyuṁ cānuṁ ca pūruṁ ca
@@ -10411,9 +8315,6 @@ King Yayāti was completely aware of the duty of a *kṣatriya.* When a *kṣatr
 **Devayānī gave birth to Yadu and Turvasu, and Śarmiṣṭhā gave birth to Druhyu, Anu and Pūru.**
 
 ### SB 9.18.34
-
-> गर्भसम्भवमासुर्या भर्तुर्विज्ञआय मानिनी
-> देवयानी पितुर्गेहं ययौ क्रोधविमूर्छिता ॥३४॥
 
 > garbha-sambhavam āsuryā
 > bhartur vijñāya māninī
@@ -10426,9 +8327,6 @@ King Yayāti was completely aware of the duty of a *kṣatriya.* When a *kṣatr
 
 ### SB 9.18.35
 
-> प्रियामनुगतः कामी वचोभिरुपमन्त्रयन
-> न प्रसादयितुं शेके पादसंवाहनादिभिः ॥३५॥
-
 > priyām anugataḥ kāmī
 > vacobhir upamantrayan
 > na prasādayituṁ śeke
@@ -10440,9 +8338,6 @@ King Yayāti was completely aware of the duty of a *kṣatriya.* When a *kṣatr
 
 ### SB 9.18.36
 
-> शुक्रस्तमाह कुपितः स्त्रीकामानृतपूरुष
-> त्वां जरा विशतां मन्द विरूपकरणी नृणाम ॥३६॥
-
 > śukras tam āha kupitaḥ
 > strī-kāmānṛta-pūruṣa
 > tvāṁ jarā viśatāṁ manda
@@ -10453,10 +8348,6 @@ King Yayāti was completely aware of the duty of a *kṣatriya.* When a *kṣatr
 **Śukrācārya was extremely angry. "You untruthful fool, lusting after women! You have done a great wrong," he said. "I therefore curse you to be attacked and disfigured by old age and invalidity."**
 
 ### SB 9.18.37
-
-> श्रीययातिरुवाच
-> अतृप्तोऽस्म्यद्य कामानां ब्रह्मन्दुहितरि स्म ते
-> व्यत्यस्यतां यथाकामं वयसा योऽभिधास्यति ॥३७॥
 
 > śrī-yayātir uvāca
 > atṛpto 'smy adya kāmānāṁ
@@ -10472,9 +8363,6 @@ When King Yayāti said that he had not yet satisfied his lusty desires with Śuk
 
 ### SB 9.18.38
 
-> इति लब्धव्यवस्थानः पुत्रं ज्येष्ठमवोचत
-> यदो तात प्रतीच्छेमां जरां देहि निजं वयः ॥३८॥
-
 > iti labdha-vyavasthānaḥ
 > putraṁ jyeṣṭham avocata
 > yado tāta pratīcchemāṁ
@@ -10485,9 +8373,6 @@ When King Yayāti said that he had not yet satisfied his lusty desires with Śuk
 **When Yayāti received this benediction from Śukrācārya, he requested his eldest son: My dear son Yadu, please give me your youth in exchange for my old age and invalidity.**
 
 ### SB 9.18.39
-
-> मातामहकृतां वत्स न तृप्तो विषयेष्वहम
-> वयसा भवदीयेन रंस्ये कतिपयाः समाः ॥३९॥
 
 > mātāmaha-kṛtāṁ vatsa
 > na tṛpto viṣayeṣv aham
@@ -10508,10 +8393,6 @@ This is the nature of lusty desires. In *Bhagavad-gītā* [[bg/7/20|(Bg. 7.20)]]
 "Since I have been engaged in the transcendental loving service of Kṛṣṇa, realizing ever-new pleasure in Him, whenever I think of sex pleasure, I spit at the thought, and my lips curl with distaste." Sexual desire can be stopped only when one is fully Kṛṣṇa conscious, and not otherwise. As long as one has desires for sex, one must change his body and transmigrate from one body to another to enjoy sex in different species or forms. But although the forms may differ, the business of sex is the same. Therefore it is said, *punaḥ punaś carvita-carvaṇānām* [[sb/7/5/30|[SB 7.5.30] ]]. Those who are very much attached to sex transmigrate from one body to another, with the same business of "chewing the chewed," tasting sex enjoyment as a dog, sex enjoyment as a hog, sex enjoyment as a demigod, and so on.
 
 ### SB 9.18.40
-
-> श्रीयदुरुवाच
-> नोत्सहे जरसा स्थातुमन्तरा प्राप्तया तव
-> अविदित्वा सुखं ग्राम्यं वैतृष्ण्यं नैति पूरुषः ॥४०॥
 
 > śrī-yadur uvāca
 > notsahe jarasā sthātum
@@ -10536,9 +8417,6 @@ Mahārāja Yadu was different from his brothers. As stated in the next verse, *t
 
 ### SB 9.18.41
 
-> तुर्वसुश्चोदितः पित्रा द्रुह्युश्चानुश्च भारत
-> प्रत्याचख्युरधर्मज्ञआ ह्यनित्ये नित्यबुद्धयः ॥४१॥
-
 > turvasuś coditaḥ pitrā
 > druhyuś cānuś ca bhārata
 > pratyācakhyur adharmajñā
@@ -10550,9 +8428,6 @@ Mahārāja Yadu was different from his brothers. As stated in the next verse, *t
 
 ### SB 9.18.42
 
-> अपृच्छत्तनयं पूरुं वयसोनं गुणाधिकम
-> न त्वमग्रजवद्वत्स मां प्रत्याख्यातुमर्हसि ॥४२॥
-
 > apṛcchat tanayaṁ pūruṁ
 > vayasonaṁ guṇādhikam
 > na tvam agrajavad vatsa
@@ -10563,10 +8438,6 @@ Mahārāja Yadu was different from his brothers. As stated in the next verse, *t
 **King Yayāti then requested Pūru, who was younger than these three brothers but more qualified, "My dear son, do not be disobedient like your elder brothers, for that is not your duty."**
 
 ### SB 9.18.43
-
-> श्रीपूरुरुवाच
-> को नु लोके मनुष्येन्द्र पितुरात्मकृतः पुमान
-> प्रतिकर्तुं क्षमो यस्य प्रसादाद्विन्दते परम ॥४३॥
 
 > śrī-pūrur uvāca
 > ko nu loke manuṣyendra
@@ -10587,9 +8458,6 @@ Everyone gets a father and mother, but if one gets the benediction of Kṛṣṇ
 
 ### SB 9.18.44
 
-> उत्तमश्चिन्तितं कुर्यात्प्रोक्तकारी तु मध्यमः
-> अधमोऽश्रद्धया कुर्यादकर्तोच्चरितं पितुः ॥४४॥
-
 > uttamaś cintitaṁ kuryāt
 > prokta-kārī tu madhyamaḥ
 > adhamo 'śraddhayā kuryād
@@ -10603,9 +8471,6 @@ Pūru, Yayāti's last son, immediately accepted his father's proposal, for altho
 
 ### SB 9.18.45
 
-> इति प्रमुदितः पूरुः प्रत्यगृह्णाज्जरां पितुः
-> सोऽपि तद्वयसा कामान्यथावज्जुजुषे नृप ॥४५॥
-
 > iti pramuditaḥ pūruḥ
 > pratyagṛhṇāj jarāṁ pituḥ
 > so 'pi tad-vayasā kāmān
@@ -10616,9 +8481,6 @@ Pūru, Yayāti's last son, immediately accepted his father's proposal, for altho
 **Śukadeva Gosvāmī said: In this way, O Mahārāja Parīkṣit, the son named Pūru was very pleased to accept the old age of his father, Yayāti, who took the youth of his son and enjoyed this material world as he required.**
 
 ### SB 9.18.46
-
-> सप्तद्वीपपतिः संयक्पितृवत्पालयन्प्रजाः
-> यथोपजोषं विषयाञ्जुजुषेऽव्याहतेन्द्रियः ॥४६॥
 
 > sapta-dvīpa-patiḥ saṁyak
 > pitṛvat pālayan prajāḥ
@@ -10631,9 +8493,6 @@ Pūru, Yayāti's last son, immediately accepted his father's proposal, for altho
 
 ### SB 9.18.47
 
-> देवयान्यप्यनुदिनं मनोवाग्देहवस्तुभिः
-> प्रेयसः परमां प्रीतिमुवाह प्रेयसी रहः ॥४७॥
-
 > devayāny apy anudinaṁ
 > mano-vāg-deha-vastubhiḥ
 > preyasaḥ paramāṁ prītim
@@ -10645,9 +8504,6 @@ Pūru, Yayāti's last son, immediately accepted his father's proposal, for altho
 
 ### SB 9.18.48
 
-> अयजद्यज्ञअपुरुषं क्रतुभिर्भूरिदक्षिणैः
-> सर्वदेवमयं देवं सर्ववेदमयं हरिम ॥४८॥
-
 > ayajad yajña-puruṣaṁ
 > kratubhir bhūri-dakṣiṇaiḥ
 > sarva-devamayaṁ devaṁ
@@ -10658,9 +8514,6 @@ Pūru, Yayāti's last son, immediately accepted his father's proposal, for altho
 **King Yayāti performed various sacrifices, in which he offered abundant gifts to the brāhmaṇas to satisfy the Supreme Lord, Hari, who is the reservoir of all the demigods and the object of all Vedic knowledge.**
 
 ### SB 9.18.49
-
-> यस्मिन्निदं विरचितं व्योम्नीव जलदावलिः
-> नानेव भाति नाभाति स्वप्नमायामनोरथः ॥४९॥
 
 > yasminn idaṁ viracitaṁ
 > vyomnīva jaladāvaliḥ
@@ -10682,9 +8535,6 @@ As stated by the Lord Himself in *Bhagavad-gītā* [[bg/7/19|(Bg. 7.19)]]:
 
 ### SB 9.18.50
 
-> तमेव हृदि विन्यस्य वासुदेवं गुहाशयम
-> नारायणमणीयांसं निराशीरयजत्प्रभुम ॥५०॥
-
 > tam eva hṛdi vinyasya
 > vāsudevaṁ guhāśayam
 > nārāyaṇam aṇīyāṁsaṁ
@@ -10697,9 +8547,6 @@ As stated by the Lord Himself in *Bhagavad-gītā* [[bg/7/19|(Bg. 7.19)]]:
 King Yayāti, although externally seeming very fond of material enjoyment, was internally thinking of becoming an eternal servant of the Lord.
 
 ### SB 9.18.51
-
-> एवं वर्षसहस्राणि मनःषष्ठैर्मनःसुखम
-> विदधानोऽपि नातृप्यत्सार्वभौमः कदिन्द्रियैः ॥५१॥
 
 > evaṁ varṣa-sahasrāṇi
 > manaḥ-ṣaṣṭhair manaḥ-sukham
@@ -10718,10 +8565,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Eighteenth Chapter, of t
 
 ### SB 9.19.1
 
-> श्रीशुक उवाच
-> स इत्थमाचरन्कामान्स्त्रैणोऽपह्नवमात्मनः
-> बुद्ध्वा प्रियायै निर्विण्णो गाथामेतामगायत ॥१॥
-
 > śrī-śuka uvāca
 > sa ittham ācaran kāmān
 > straiṇo 'pahnavam ātmanaḥ
@@ -10733,9 +8576,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Eighteenth Chapter, of t
 **Śukadeva Gosvāmī said: O Mahārāja Parīkṣit, Yayāti was very much attached to woman. In due course of time, however, when disgusted with sexual enjoyment and its bad effects, he renounced this way of life and narrated the following story to his beloved wife.**
 
 ### SB 9.19.2
-
-> शृणु भार्गव्यमूं गाथां मद्विधाचरितां भुवि
-> धीरा यस्यानुशोचन्ति वने ग्रामनिवासिनः ॥२॥
 
 > śṛṇu bhārgavy amūṁ gāthāṁ
 > mad-vidhācaritāṁ bhuvi
@@ -10750,9 +8590,6 @@ Persons who live in the village or town are called *grāma-nivāsī,* and those 
 
 ### SB 9.19.3
 
-> बस्त एको वने कश्चिद्विचिन्वन्प्रियमात्मनः
-> ददर्श कूपे पतितां स्वकर्मवशगामजाम ॥३॥
-
 > basta eko vane kaścid
 > vicinvan priyam ātmanaḥ
 > dadarśa kūpe patitāṁ
@@ -10766,9 +8603,6 @@ Here Mahārāja Yayāti compares himself to a he-goat and Devayānī to a she-go
 
 ### SB 9.19.4
 
-> तस्या उद्धरणोपायं बस्तः कामी विचिन्तयन
-> व्यधत्त तीर्थमुद्धृत्य विषाणाग्रेण रोधसी ॥४॥
-
 > tasyā uddharaṇopāyaṁ
 > bastaḥ kāmī vicintayan
 > vyadhatta tīrtham uddhṛtya
@@ -10781,12 +8615,6 @@ Here Mahārāja Yayāti compares himself to a he-goat and Devayānī to a she-go
 Attraction for woman is the impetus for economic development, housing and many other things meant for living comfortably in this material world. Digging up the earth to make a way out for the she-goat was a laborious task, but before accepting the she-goat, the he-goat underwent this labor. *Ato gṛha-kṣetra-sutāpta-vittair janasya moho 'yam ahaṁ mameti* [[sb/5/5/8|[SB 5.5.8] ]]. The union between male and female provides the impetus for gaining a nice apartment, a good income, children and friends. Thus one becomes entangled in this material world.
 
 ### SB 9.19.5-6
-
-> सोत्तीर्य कूपात्सुश्रोणी तमेव चकमे किल
-> तया वृतं समुद्वीक्ष्य बह्व्योऽजाः कान्तकामिनीः ॥५॥
-> पीवानं श्मश्रुलं प्रेष्ठं मीढ्वांसं याभकोविदम
-> स एकोऽजवृषस्तासां बह्वीनां रतिवर्धनः
-> रेमे कामग्रहग्रस्त आत्मानं नावबुध्यत ॥६॥
 
 > sottīrya kūpāt suśroṇī
 > tam eva cakame kila
@@ -10814,9 +8642,6 @@ Human life is meant for realization of the self, the spiritual soul within the b
 
 ### SB 9.19.7
 
-> तमेव प्रेष्ठतमया रममाणमजान्यया
-> विलोक्य कूपसंविग्ना नामृष्यद्बस्तकर्म तत ॥७॥
-
 > tam eva preṣṭhatamayā
 > ramamāṇam ajānyayā
 > vilokya kūpa-saṁvignā
@@ -10827,9 +8652,6 @@ Human life is meant for realization of the self, the spiritual soul within the b
 **When the she-goat who had fallen into the well saw her beloved goat engaged in sexual affairs with another she-goat, she could not tolerate the goat's activities.**
 
 ### SB 9.19.8
-
-> तं दुर्हृदं सुहृद्रूपं कामिनं क्षणसौहृदम
-> इन्द्रियाराममुत्सृज्य स्वामिनं दुःखिता ययौ ॥८॥
 
 > taṁ durhṛdaṁ suhṛd-rūpaṁ
 > kāminaṁ kṣaṇa-sauhṛdam
@@ -10844,9 +8666,6 @@ The word *svāminam* is significant. *Svāmī* means "caretaker" or "master." De
 
 ### SB 9.19.9
 
-> सोऽपि चानुगतः स्त्रैणः कृपणस्तां प्रसादितुम
-> कुर्वन्निडविडाकारं नाशक्नोत्पथि सन्धितुम ॥९॥
-
 > so 'pi cānugataḥ straiṇaḥ
 > kṛpaṇas tāṁ prasāditum
 > kurvann iḍaviḍā-kāraṁ
@@ -10857,9 +8676,6 @@ The word *svāminam* is significant. *Svāmī* means "caretaker" or "master." De
 **Being very sorry, the he-goat, who was subservient to his wife, followed the she-goat on the road and tried his best to flatter her, but he could not pacify her.**
 
 ### SB 9.19.10
-
-> तस्य तत्र द्विजः कश्चिदजास्वाम्यच्छिनद्रुषा
-> लम्बन्तं वृषणं भूयः सन्दधेऽर्थाय योगवित ॥१०॥
 
 > tasya tatra dvijaḥ kaścid
 > ajā-svāmy acchinad ruṣā
@@ -10881,9 +8697,6 @@ Here Śukrācārya is figuratively described as the husband of another she-goat.
 
 ### SB 9.19.11
 
-> सम्बद्धवृषणः सोऽपि ह्यजया कूपलब्धया
-> कालं बहुतिथं भद्रे कामैर्नाद्यापि तुष्यति ॥११॥
-
 > sambaddha-vṛṣaṇaḥ so 'pi
 > hy ajayā kūpa-labdhayā
 > kālaṁ bahu-tithaṁ bhadre
@@ -10897,9 +8710,6 @@ When one is bound by affection for one's wife, one is attached to sexual desires
 
 ### SB 9.19.12
 
-> तथाहं कृपणः सुभ्रु भवत्याः प्रेमयन्त्रितः
-> आत्मानं नाभिजानामि मोहितस्तव मायया ॥१२॥
-
 > tathāhaṁ kṛpaṇaḥ subhru
 > bhavatyāḥ prema-yantritaḥ
 > ātmānaṁ nābhijānāmi
@@ -10912,9 +8722,6 @@ When one is bound by affection for one's wife, one is attached to sexual desires
 If one remains a victim of the so-called beauty of his wife, his family life is nothing but a dark well. *Hitvātma-pātaṁ gṛham andha-kūpam.* Existence in such a dark well is certainly suicidal. If one wants relief from the miserable condition of material life, one must voluntarily give up his lusty relationship with his wife; otherwise there is no question of self-realization. Unless one is extremely advanced in spiritual consciousness, household life is nothing but a dark well in which one commits suicide. Prahlāda Mahārāja therefore recommended that in due time, at least after one's fiftieth year, one must give up household life and go to the forest. *Vanaṁ gato yad dharim āśrayeta* [[sb/7/5/5|[SB 7.5.5] ]]. There one should seek shelter at the lotus feet of Hari.
 
 ### SB 9.19.13
-
-> यत्पृथिव्यां व्रीहियवं हिरण्यं पशवः स्त्रियः
-> न दुह्यन्ति मनःप्रीतिं पुंसः कामहतस्य ते ॥१३॥
 
 > yat pṛthivyāṁ vrīhi-yavaṁ
 > hiraṇyaṁ paśavaḥ striyaḥ
@@ -10935,9 +8742,6 @@ If one becomes Kṛṣṇa conscious, then he can give up this heart disease; ot
 
 ### SB 9.19.14
 
-> न जातु कामः कामानामुपभोगेन शांयति
-> हविषा कृष्णवर्त्मेव भूय एवाभिवर्धते ॥१४॥
-
 > na jātu kāmaḥ kāmānām
 > upabhogena śāṁyati
 > haviṣā kṛṣṇa-vartmeva
@@ -10951,9 +8755,6 @@ One may have enough money and enough resources to satisfy the senses but still n
 
 ### SB 9.19.15
 
-> यदा न कुरुते भावं सर्वभूतेष्वमङ्गलम
-> समदृष्टेस्तदा पुंसः सर्वाः सुखमया दिशः ॥१५॥
-
 > yadā na kurute bhāvaṁ
 > sarva-bhūteṣv amaṅgalam
 > sama-dṛṣṭes tadā puṁsaḥ
@@ -10966,9 +8767,6 @@ One may have enough money and enough resources to satisfy the senses but still n
 Prabodhānanda Sarasvatī said, *viśvaṁ pūrṇa-sukhāyate:* when one becomes Kṛṣṇa conscious by the mercy of Lord Caitanya, for him the entire world appears happy, and he has nothing for which to hanker. On the *brahma-bhūta* [[sb/4/30/20|[SB 4.30.20] ]] stage, or the platform of spiritual realization, there is no lamentation and no material hankering (*na śocati na kāṅkṣati* [[bg/18/54|[Bg. 18.54] ]]). As long as one lives in the material world, actions and reactions will continue, but when one is unaffected by such material actions and reactions, he is to be considered free from the danger of being victimized by material desires. The symptoms of those who are satiated with lusty desires are described in this verse. As explained by Śrīla Viśvanātha Cakravartī Ṭhākura, when one is not envious even of his enemy, does not expect honor from anyone, but instead desires all well-being even for his enemy, he is understood to be a *paramahaṁsa,* one who has fully subdued the lusty desires for sense gratification.
 
 ### SB 9.19.16
-
-> या दुस्त्यजा दुर्मतिभिर्जीर्यतो या न जीर्यते
-> तां तृष्णां दुःखनिवहां शर्मकामो द्रुतं त्यजेत ॥१६॥
 
 > yā dustyajā durmatibhir
 > jīryato yā na jīryate
@@ -10990,9 +8788,6 @@ When one is Kṛṣṇa conscious, he gets more and more happiness by dischargin
 
 ### SB 9.19.17
 
-> मात्रा स्वस्रा दुहित्रा वा नाविविक्तासनो भवेत
-> बलवानिन्द्रियग्रामो विद्वांसमपि कर्षति ॥१७॥
-
 > mātrā svasrā duhitrā vā
 > nāviviktāsano bhavet
 > balavān indriya-grāmo
@@ -11005,9 +8800,6 @@ When one is Kṛṣṇa conscious, he gets more and more happiness by dischargin
 Learning the etiquette of how to deal with women does not free one from sexual attraction. As specifically mentioned herewith, such attraction is possible even with one's mother, sister or daughter. Generally, of course, one is not sexually attracted to his mother, sister or daughter, but if one allows himself to sit very close to such a woman, one may be attracted. This is a psychological fact. It may be said that one is liable to be attracted if he is not very advanced in civilized life; however, as specifically mentioned here, *vidvāṁsam api karṣati:* even if one is highly advanced, materially or spiritually, he may be attracted by lusty desires. The object of attraction may even be one's mother, sister or daughter. Therefore, one should be extremely careful in dealings with women. Śrī Caitanya Mahāprabhu was most strict in such dealings, especially after He accepted the *sannyāsa* order. Indeed, no woman could come near Him to offer Him respect. Again, one is warned herewith that one should be extremely careful in dealings with women. A *brahmacārī* is forbidden even to see the wife of his spiritual master if she happens to be young. The wife of the spiritual master may sometimes take some service from the disciple of her husband, as she would from a son, but if the wife of the spiritual master is young, a *brahmacārī* is forbidden to render service to her.
 
 ### SB 9.19.18
-
-> पूर्णं वर्षसहस्रं मे विषयान्सेवतोऽसकृत
-> तथापि चानुसवनं तृष्णा तेषूपजायते ॥१८॥
 
 > pūrṇaṁ varṣa-sahasraṁ me
 > viṣayān sevato 'sakṛt
@@ -11022,9 +8814,6 @@ Mahārāja Yayāti is explaining, in terms of his actual experience, how strong 
 
 ### SB 9.19.19
 
-> तस्मादेतामहं त्यक्त्वा ब्रह्मण्यध्याय मानसम
-> निर्द्वन्द्वो निरहङ्कारश्चरिष्यामि मृगैः सह ॥१९॥
-
 > tasmād etām ahaṁ tyaktvā
 > brahmaṇy adhyāya mānasam
 > nirdvandvo nirahaṅkāraś
@@ -11037,9 +8826,6 @@ Mahārāja Yayāti is explaining, in terms of his actual experience, how strong 
 To go to the forest and live there with the animals, meditating upon the Supreme Personality of Godhead, is the only means by which to give up lusty desires. Unless one gives up such desires, one's mind cannot be freed from material contamination. Therefore, if one is at all interested in being freed from the bondage of repeated birth, death, old age and disease, after a certain age one must go to the forest. *pañcāśordhvaṁ vanaṁ vrajet.* After fifty years of age, one should voluntarily give up family life and go to the forest. The best forest is Vṛndāvana, where one need not live with the animals but can associate with the Supreme Personality of Godhead, who never leaves Vṛndāvana. Cultivating Kṛṣṇa consciousness in Vṛndāvana is the best means of being liberated from material bondage, for in Vṛndāvana one can automatically meditate upon Kṛṣṇa. Vṛndāvana has many temples, and in one or more of these temples one may see the form of the Supreme Lord as Rādhā-Kṛṣṇa or Kṛṣṇa-Balarāma and meditate upon this form. As expressed here by the words *brahmaṇy adhyāya,* one should concentrate one's mind upon the Supreme Lord, Parabrahman. This Parabrahman is Kṛṣṇa, as confirmed by Arjuna in *Bhagavad-gītā* (*paraṁ brahma paraṁ dhāma pavitraṁ paramaṁ bhavān* [[bg/10/12-13|[Bg. 10.12] ]]). Kṛṣṇa and His abode, Vṛndāvana, are not different. Śrī Caitanya Mahāprabhu said, *ārādhyo bhagavān vrajeśa-tanayas tad-dhāma vṛndāvanam.* Vṛndāvana is as good as Kṛṣṇa. Therefore, if one somehow or other gets the opportunity to live in Vṛndāvana, and if one is not a pretender but simply lives in Vṛndāvana and concentrates his mind upon Kṛṣṇa, one is liberated from material bondage. One's mind is not purified, however, even in Vṛndāvana, if one is agitated by lusty desires. One should not live in Vṛndāvana and commit offenses, for a life of offenses in Vṛndāvana is no better than the lives of the monkeys and hogs there. Many monkeys and hogs live in Vṛndāvana, and they are concerned with their sexual desires. Men who have gone to Vṛndāvana but who still hanker for sex should immediately leave Vṛndāvana and stop their grievous offenses at the lotus feet of the Lord. There are many misguided men who live in Vṛndāvana to satisfy their sexual desires, but they are certainly no better than the monkeys and hogs. Those who are under the control of *māyā,* and specifically under the control of lusty desires, are called *māyā-mṛga.* Indeed, everyone in the conditional stage of material life is a *māyā-mṛga.* It is said, *māyā-mṛgaṁ dayitayepsitam anvadhāvad:* [SB 11.5.34] Śrī Caitanya Mahāprabhu took *sannyāsa* to show His causeless mercy to the *māyā-mṛgas,* the people of this material world, who suffer because of lusty desires. One should follow the principles of Śrī Caitanya Mahāprabhu and always think of Kṛṣṇa in full Kṛṣṇa consciousness. Then one will be eligible to live in Vṛndāvana, and his life will be successful.
 
 ### SB 9.19.20
-
-> दृष्टं श्रुतमसद्बुद्ध्वा नानुध्यायेन्न सन्दिशेत
-> संसृतिं चात्मनाशं च तत्र विद्वान्स आत्मदृक ॥२०॥
 
 > dṛṣṭaṁ śrutam asad buddhvā
 > nānudhyāyen na sandiśet
@@ -11061,9 +8847,6 @@ The living entity is a spiritual soul, and the material body is his encagement. 
 
 ### SB 9.19.21
 
-> इत्युक्त्वा नाहुषो जायां तदीयं पूरवे वयः
-> दत्त्वा स्वजरसं तस्मादाददे विगतस्पृहः ॥२१॥
-
 > ity uktvā nāhuṣo jāyāṁ
 > tadīyaṁ pūrave vayaḥ
 > dattvā sva-jarasaṁ tasmād
@@ -11074,9 +8857,6 @@ The living entity is a spiritual soul, and the material body is his encagement. 
 **Śukadeva Gosvāmī said: After speaking in this way to his wife, Devayānī, King Yayāti, who was now free from all material desires, called his youngest son, Pūru, and returned Pūru's youth in exchange for his own old age.**
 
 ### SB 9.19.22
-
-> दिशि दक्षिणपूर्वस्यां द्रुह्युं दक्षिणतो यदुम
-> प्रतीच्यां तुर्वसुं चक्र उदीच्यामनुमीश्वरम ॥२२॥
 
 > diśi dakṣiṇa-pūrvasyāṁ
 > druhyuṁ dakṣiṇato yadum
@@ -11089,9 +8869,6 @@ The living entity is a spiritual soul, and the material body is his encagement. 
 
 ### SB 9.19.23
 
-> भूमण्डलस्य सर्वस्य पूरुमर्हत्तमं विशाम
-> अभिषिच्याग्रजांस्तस्य वशे स्थाप्य वनं ययौ ॥२३॥
-
 > bhū-maṇḍalasya sarvasya
 > pūrum arhattamaṁ viśām
 > abhiṣicyāgrajāṁs tasya
@@ -11102,9 +8879,6 @@ The living entity is a spiritual soul, and the material body is his encagement. 
 **Yayāti enthroned his youngest son, Pūru, as the emperor of the entire world and the proprietor of all its riches, and he placed all the other sons, who were older than Pūru, under Pūru's control.**
 
 ### SB 9.19.24
-
-> आसेवितं वर्षपूगान्षड्वर्गं विषयेषु सः
-> क्षणेन मुमुचे नीडं जातपक्ष इव द्विजः ॥२४॥
 
 > āsevitaṁ varṣa-pūgān
 > ṣaḍ-vargaṁ viṣayeṣu saḥ
@@ -11126,9 +8900,6 @@ That Mahārāja Yayāti was immediately liberated from the bondage of conditione
 
 ### SB 9.19.25
 
-> स तत्र निर्मुक्तसमस्तसङ्ग आत्मानुभूत्या विधुतत्रिलिङ्गः
-> परेऽमले ब्रह्मणि वासुदेवे लेभे गतिं भागवतीं प्रतीतः ॥२५॥
-
 > sa tatra nirmukta-samasta-saṅga
 > ātmānubhūtyā vidhuta-triliṅgaḥ
 > pare 'male brahmaṇi vāsudeve
@@ -11149,9 +8920,6 @@ The word *vidhuta,* meaning "cleansed," is very significant. Everyone in this ma
 
 ### SB 9.19.26
 
-> श्रुत्वा गाथां देवयानी मेने प्रस्तोभमात्मनः
-> स्त्रीपुंसोः स्नेहवैक्लव्यात्परिहासमिवेरितम ॥२६॥
-
 > śrutvā gāthāṁ devayānī
 > mene prastobham ātmanaḥ
 > strī-puṁsoḥ sneha-vaiklavyāt
@@ -11164,11 +8932,6 @@ The word *vidhuta,* meaning "cleansed," is very significant. Everyone in this ma
 When one actually awakens from material life, one understands his real position as an eternal servant of Kṛṣṇa. This is called liberation. *Muktir hitvānyathā rūpaṁ svarūpeṇa vyavasthitiḥ* [[sb/2/10/6|(SB 2.10.6)]]. Under the influence of *māyā,* everyone living in this material world thinks that he is the master of everything (*ahaṅkāra-vimūḍhātmā kartāham iti manyate* [[bg/3/27|[Bg. 3.27] ]]). One thinks that there is no God or controller and that one is independent and can do anything. This is the material condition, and when one awakens from this ignorance, he is called liberated. Mahārāja Yayāti had delivered Devayānī from the well, and finally, as a dutiful husband, he instructed her with the story about the he-goat and she-goat and thus delivered her from the misconception of material happiness. Devayānī was quite competent to understand her liberated husband, and therefore she decided to follow him as his faithful wife.
 
 ### SB 9.19.27-28
-
-> सा सन्निवासं सुहृदां प्रपायामिव गच्छताम
-> विज्ञआयेश्वरतन्त्राणां मायाविरचितं प्रभोः ॥२७॥
-> सर्वत्र सङ्गमुत्सृज्य स्वप्नौपम्येन भार्गवी
-> कृष्णे मनः समावेश्य व्यधुनोल्लिङ्गमात्मनः ॥२८॥
 
 > sā sannivāsaṁ suhṛdāṁ
 > prapāyām iva gacchatām
@@ -11187,9 +8950,6 @@ When one actually awakens from material life, one understands his real position 
 One should be convinced that he is a spirit soul, part and parcel of the Supreme Brahman, Kṛṣṇa, but has somehow or other been entrapped by the material coverings of the gross and subtle bodies, consisting of earth, water, fire, air, ether, mind, intelligence and false ego. One should know that the association of society, friendship, love, nationalism, religion and so on are nothing but creations of *māyā.* One's only business is to become Kṛṣṇa conscious and render service unto Kṛṣṇa as extensively as possible for a living being. In this way one is liberated from material bondage. By the grace of Kṛṣṇa, Devayānī attained this state through the instructions of her husband.
 
 ### SB 9.19.29
-
-> नमस्तुभ्यं भगवते वासुदेवाय वेधसे
-> सर्वभूताधिवासाय शान्ताय बृहते नमः ॥२९॥
 
 > namas tubhyaṁ bhagavate
 > vāsudevāya vedhase
@@ -11215,10 +8975,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Nineteenth Chapter, of t
 
 ### SB 9.20.1
 
-> श्रीबादरायणिरुवाच
-> पूरोर्वंशं प्रवक्ष्यामि यत्र जातोऽसि भारत
-> यत्र राजर्षयो वंश्या ब्रह्मवंश्याश्च जज्ञइरे ॥१॥
-
 > śrī-bādarāyaṇir uvāca
 > pūror vaṁśaṁ pravakṣyāmi
 > yatra jāto 'si bhārata
@@ -11233,9 +8989,6 @@ There are many historical instances by which we can understand that from *kṣat
 
 ### SB 9.20.2
 
-> जनमेजयो ह्यभूत्पूरोः प्रचिन्वांस्तत्सुतस्ततः
-> प्रवीरोऽथ मनुस्युर्वै तस्माच्चारुपदोऽभवत ॥२॥
-
 > janamejayo hy abhūt pūroḥ
 > pracinvāṁs tat-sutas tataḥ
 > pravīro 'tha manusyur vai
@@ -11247,9 +9000,6 @@ There are many historical instances by which we can understand that from *kṣat
 
 ### SB 9.20.3
 
-> तस्य सुद्युरभूत्पुत्रस्तस्माद्बहुगवस्ततः
-> संयातिस्तस्याहंयाती रौद्राश्वस्तत्सुतः स्मृतः ॥३॥
-
 > tasya sudyur abhūt putras
 > tasmād bahugavas tataḥ
 > saṁyātis tasyāhaṁyātī
@@ -11260,11 +9010,6 @@ There are many historical instances by which we can understand that from *kṣat
 **The son of Cārupada was Sudyu, and the son of Sudyu was Bahugava. Bahugava's son was Saṁyāti. From Saṁyāti came a son named Ahaṁyāti, from whom Raudrāśva was born.**
 
 ### SB 9.20.4-5
-
-> ऋतेयुस्तस्य कक्षेयुः स्थण्डिलेयुः कृतेयुकः
-> जलेयुः सन्नतेयुश्च धर्मसत्यव्रतेयवः ॥४॥
-> दशैतेऽप्सरसः पुत्रा वनेयुश्चावमः स्मृतः
-> घृताच्यामिन्द्रियाणीव मुख्यस्य जगदात्मनः ॥५॥
 
 > ṛteyus tasya kakṣeyuḥ
 > sthaṇḍileyuḥ kṛteyukaḥ
@@ -11282,9 +9027,6 @@ There are many historical instances by which we can understand that from *kṣat
 
 ### SB 9.20.6
 
-> ऋतेयो रन्तिनावोऽभूत्त्रयस्तस्यात्मजा नृप
-> सुमतिर्ध्रुवोऽप्रतिरथः कण्वोऽप्रतिरथात्मजः ॥६॥
-
 > ṛteyo rantināvo 'bhūt
 > trayas tasyātmajā nṛpa
 > sumatir dhruvo 'pratirathaḥ
@@ -11296,9 +9038,6 @@ There are many historical instances by which we can understand that from *kṣat
 
 ### SB 9.20.7
 
-> तस्य मेधातिथिस्तस्मात्प्रस्कन्नाद्या द्विजातयः
-> पुत्रोऽभूत्सुमते रेभिर्दुष्मन्तस्तत्सुतो मतः ॥७॥
-
 > tasya medhātithis tasmāt
 > praskannādyā dvijātayaḥ
 > putro 'bhūt sumate rebhir
@@ -11309,11 +9048,6 @@ There are many historical instances by which we can understand that from *kṣat
 **The son of Kaṇva was Medhātithi, whose sons, all brāhmaṇas, were headed by Praskanna. The son of Rantināva named Sumati had a son named Rebhi. Mahārāja Duṣmanta is well known as the son of Rebhi.**
 
 ### SB 9.20.8-9
-
-> दुष्मन्तो मृगयां यातः कण्वाश्रमपदं गतः
-> तत्रासीनां स्वप्रभया मण्डयन्तीं रमामिव ॥८॥
-> विलोक्य सद्यो मुमुहे देवमायामिव स्त्रियम
-> बभाषे तां वरारोहां भटैः कतिपयैर्वृतः ॥९॥
 
 > duṣmanto mṛgayāṁ yātaḥ
 > kaṇvāśrama-padaṁ gataḥ
@@ -11331,9 +9065,6 @@ There are many historical instances by which we can understand that from *kṣat
 
 ### SB 9.20.10
 
-> तद्दर्शनप्रमुदितः सन्निवृत्तपरिश्रमः
-> पप्रच्छ कामसन्तप्तः प्रहसञ्श्लक्ष्णया गिरा ॥१०॥
-
 > tad-darśana-pramuditaḥ
 > sannivṛtta-pariśramaḥ
 > papraccha kāma-santaptaḥ
@@ -11345,9 +9076,6 @@ There are many historical instances by which we can understand that from *kṣat
 
 ### SB 9.20.11
 
-> का त्वं कमलपत्राक्षि कस्यासि हृदयङ्गमे
-> किं स्विच्चिकीर्षितं तत्र भवत्या निर्जने वने ॥११॥
-
 > kā tvaṁ kamala-patrākṣi
 > kasyāsi hṛdayaṅ-game
 > kiṁ svic cikīrṣitaṁ tatra
@@ -11358,9 +9086,6 @@ There are many historical instances by which we can understand that from *kṣat
 **O beautiful lotus-eyed woman, who are you? Whose daughter are you? What purpose do you have in this solitary forest? Why are you staying here?**
 
 ### SB 9.20.12
-
-> व्यक्तं राजन्यतनयां वेद्म्यहं त्वां सुमध्यमे
-> न हि चेतः पौरवाणामधर्मे रमते क्वचित ॥१२॥
 
 > vyaktaṁ rājanya-tanayāṁ
 > vedmy ahaṁ tvāṁ sumadhyame
@@ -11374,10 +9099,6 @@ There are many historical instances by which we can understand that from *kṣat
 Mahārāja Duṣmanta indirectly expressed his desire to marry Śakuntalā, for she appeared to his mind to be the daughter of some *kṣatriya* king.
 
 ### SB 9.20.13
-
-> श्रीशकुन्तलोवाच
-> विश्वामित्रात्मजैवाहं त्यक्ता मेनकया वने
-> वेदैतद्भगवान्कण्वो वीर किं करवाम ते ॥१३॥
 
 > śrī-śakuntalovāca
 > viśvāmitrātmajaivāhaṁ
@@ -11393,9 +9114,6 @@ Mahārāja Duṣmanta indirectly expressed his desire to marry Śakuntalā, for 
 
 ### SB 9.20.14
 
-> आस्यतां ह्यरविन्दाक्ष गृह्यतामर्हणं च नः
-> भुज्यतां सन्ति नीवारा उष्यतां यदि रोचते ॥१४॥
-
 > āsyatāṁ hy aravindākṣa
 > gṛhyatām arhaṇaṁ ca naḥ
 > bhujyatāṁ santi nīvārā
@@ -11406,10 +9124,6 @@ Mahārāja Duṣmanta indirectly expressed his desire to marry Śakuntalā, for 
 **O King with eyes like the petals of a lotus, kindly come sit down and accept whatever reception we can offer. We have a supply of nīvārā rice that you may kindly take. And if you so desire, stay here without hesitation.**
 
 ### SB 9.20.15
-
-> श्रीदुष्मन्त उवाच
-> उपपन्नमिदं सुभ्रु जातायाः कुशिकान्वये
-> स्वयं हि वृणुते राज्ञआं कन्यकाः सदृशं वरम ॥१५॥
 
 > śrī-duṣmanta uvāca
 > upapannam idaṁ subhru
@@ -11425,9 +9139,6 @@ In her reception of Mahārāja Duṣmanta, Śakuntalā clearly said, "Your Majes
 
 ### SB 9.20.16
 
-> ओमित्युक्ते यथाधर्ममुपयेमे शकुन्तलाम
-> गान्धर्वविधिना राजा देशकालविधानवित ॥१६॥
-
 > om ity ukte yathā-dharmam
 > upayeme śakuntalām
 > gāndharva-vidhinā rājā
@@ -11441,9 +9152,6 @@ The *oṁkāra, praṇava,* is the Supreme Personality of Godhead represented by
 
 ### SB 9.20.17
 
-> अमोघवीर्यो राजर्षिर्महिष्यां वीर्यमादधे
-> श्वोभूते स्वपुरं यातः कालेनासूत सा सुतम ॥१७॥
-
 > amogha-vīryo rājarṣir
 > mahiṣyāṁ vīryam ādadhe
 > śvo-bhūte sva-puraṁ yātaḥ
@@ -11454,9 +9162,6 @@ The *oṁkāra, praṇava,* is the Supreme Personality of Godhead represented by
 **King Duṣmanta, who never discharged semen without a result, placed his semen at night in the womb of his Queen, Śakuntalā, and in the morning he returned to his palace. Thereafter, in due course of time, Śakuntalā gave birth to a son.**
 
 ### SB 9.20.18
-
-> कण्वः कुमारस्य वने चक्रे समुचिताः क्रियाः
-> बद्ध्वा मृगेन्द्रं तरसा क्रीडति स्म स बालकः ॥१८॥
 
 > kaṇvaḥ kumārasya vane
 > cakre samucitāḥ kriyāḥ
@@ -11469,9 +9174,6 @@ The *oṁkāra, praṇava,* is the Supreme Personality of Godhead represented by
 
 ### SB 9.20.19
 
-> तं दुरत्ययविक्रान्तमादाय प्रमदोत्तमा
-> हरेरंशांशसम्भूतं भर्तुरन्तिकमागमत ॥१९॥
-
 > taṁ duratyaya-vikrāntam
 > ādāya pramadottamā
 > harer aṁśāṁśa-sambhūtaṁ
@@ -11482,9 +9184,6 @@ The *oṁkāra, praṇava,* is the Supreme Personality of Godhead represented by
 **Śakuntalā, the best of beautiful women, along with her son, whose strength was insurmountable and who was a partial expansion of the Supreme Godhead, approached her husband, Duṣmanta.**
 
 ### SB 9.20.20
-
-> यदा न जगृहे राजा भार्यापुत्रावनिन्दितौ
-> शृण्वतां सर्वभूतानां खे वागाहाशरीरिणी ॥२०॥
 
 > yadā na jagṛhe rājā
 > bhāryā-putrāv aninditau
@@ -11499,9 +9198,6 @@ Mahārāja Duṣmanta knew that Śakuntalā and the boy were his own wife and so
 
 ### SB 9.20.21
 
-> माता भस्त्रा पितुः पुत्रो येन जातः स एव सः
-> भरस्व पुत्रं दुष्मन्त मावमंस्थाः शकुन्तलाम ॥२१॥
-
 > mātā bhastrā pituḥ putro
 > yena jātaḥ sa eva saḥ
 > bharasva putraṁ duṣmanta
@@ -11514,9 +9210,6 @@ Mahārāja Duṣmanta knew that Śakuntalā and the boy were his own wife and so
 According to the Vedic injunction *ātmā vai putra-nāmāsi,* the father becomes the son. The mother is simply like a storekeeper, because the seed of the child is placed in her womb, but it is the father who is responsible for maintaining the son. In *Bhagavad-gītā* the Lord says that He is the seed-giving father of all living entities (*ahaṁ bīja-pradaḥ pitā* [[bg/14/4|[Bg. 14.4] ]]), and therefore He is responsible for maintaining them. This is also confirmed in the *Vedas. Eko bahūnāṁ yo vidadhāti kāmān*/ although God is one, He maintains all living entities with their necessities for life. The living entities in different forms are sons of the Lord, and therefore the father, the Supreme Lord, supplies them food according to their different bodies. The small ant is supplied a grain of sugar, and the elephant is supplied tons of food, but everyone is able to eat. Therefore there is no question of overpopulation. Because the father, Kṛṣṇa, is fully opulent, there is no scarcity of food, and because there is no scarcity, the propaganda of overpopulation is only a myth. Actually one suffers for want of food when material nature, under the order of the father, refuses to supply him food. It is the living entity's position that determines whether food will be supplied or not. When a diseased person is forbidden to eat, this does not mean that there is a scarcity of food; rather, the diseased person requires the treatment of not being supplied with food. In *Bhagavad-gītā* [[bg/7/10|(Bg. 7.10)]] the Lord also says, *bījaṁ māṁ sama-bhūtānām:* "I am the seed of all living entities." A particular type of seed is sown within the earth, and then a particular type of tree or plant comes out. The mother resembles the earth, and when a particular type of seed is sown by the father, a particular type of body takes birth.
 
 ### SB 9.20.22
-
-> रेतोधाः पुत्रो नयति नरदेव यमक्षयात
-> त्वं चास्य धाता गर्भस्य सत्यमाह शकुन्तला ॥२२॥
 
 > reto-dhāḥ putro nayati
 > naradeva yama-kṣayāt
@@ -11538,9 +9231,6 @@ Because a son delivers his father from punishment in the hell called *put,* the 
 
 ### SB 9.20.23
 
-> पितर्युपरते सोऽपि चक्रवर्ती महायशाः
-> महिमा गीयते तस्य हरेरंशभुवो भुवि ॥२३॥
-
 > pitary uparate so 'pi
 > cakravartī mahā-yaśāḥ
 > mahimā gīyate tasya
@@ -11560,14 +9250,6 @@ In *Bhagavad-gītā* [[bg/10/41|(Bg. 10.41)]] it is said:
 Anyone extraordinarily powerful must be considered a partial representation of the opulence of the Supreme Godhead. Therefore when the son of Mahārāja Duṣmanta became the emperor of the entire world, he was celebrated in this way.
 
 ### SB 9.20.24-26
-
-> चक्रं दक्षिणहस्तेऽस्य पद्मकोशोऽस्य पादयोः
-> ईजे महाभिषेकेण सोऽभिषिक्तोऽधिराड्विभुः ॥२४॥
-> पञ्चपञ्चाशता मेध्यैर्गङ्गायामनु वाजिभिः
-> मामतेयं पुरोधाय यमुनामनु च प्रभुः ॥२५॥
-> अष्टसप्ततिमेध्याश्वान्बबन्ध प्रददद्वसु
-> भरतस्य हि दौष्मन्तेरग्निः साचीगुणे चितः
-> सहस्रं बद्वशो यस्मिन्ब्राह्मणा गा विभेजिरे ॥२६॥
 
 > cakraṁ dakṣiṇa-haste 'sya
 > padma-kośo 'sya pādayoḥ
@@ -11609,9 +9291,6 @@ As indicated here by the words *dauṣmanter agniḥ sācī-guṇe citaḥ,* Bha
 
 ### SB 9.20.27
 
-> त्रयस्त्रिंशच्छतं ह्यश्वान्बद्ध्वा विस्मापयन्नृपान
-> दौष्मन्तिरत्यगान्मायां देवानां गुरुमाययौ ॥२७॥
-
 > trayas-triṁśac-chataṁ hy aśvān
 > baddhvā vismāpayan nṛpān
 > dauṣmantir atyagān māyāṁ
@@ -11625,9 +9304,6 @@ One who achieves the lotus feet of the Supreme Personality of Godhead certainly 
 
 ### SB 9.20.28
 
-> मृगान्छुक्लदतः कृष्णान्हिरण्येन परीवृतान
-> अदात्कर्मणि मष्णारे नियुतानि चतुर्दश ॥२८॥
-
 > mṛgāñ chukla-dataḥ kṛṣṇān
 > hiraṇyena parīvṛtān
 > adāt karmaṇi maṣṇāre
@@ -11638,9 +9314,6 @@ One who achieves the lotus feet of the Supreme Personality of Godhead certainly 
 **When Mahārāja Bharata performed the sacrifice known as Maṣṇāra [or a sacrifice in the place known as Maṣṇāra], he gave in charity fourteen lakhs of excellent elephants with white tusks and black bodies, completely covered with golden ornaments.**
 
 ### SB 9.20.29
-
-> भरतस्य महत्कर्म न पूर्वे नापरे नृपाः
-> नैवापुर्नैव प्राप्स्यन्ति बाहुभ्यां त्रिदिवं यथा ॥२९॥
 
 > bharatasya mahat karma
 > na pūrve nāpare nṛpāḥ
@@ -11653,9 +9326,6 @@ One who achieves the lotus feet of the Supreme Personality of Godhead certainly 
 
 ### SB 9.20.30
 
-> किरातहूणान्यवनान्पौण्ड्रान्कङ्कान्खशान्छकान
-> अब्रह्मण्यनृपांश्चाहन्म्लेच्छान्दिग्विजयेऽखिलान ॥३०॥
-
 > kirāta-hūṇān yavanān
 > pauṇḍrān kaṅkān khaśāñ chakān
 > abrahmaṇya-nṛpāṁś cāhan
@@ -11666,9 +9336,6 @@ One who achieves the lotus feet of the Supreme Personality of Godhead certainly 
 **When Mahārāja Bharata was on tour, he defeated or killed all the Kirātas, Hūṇas, Yavanas, Pauṇḍras, Kaṅkas, Khaśas, Śakas and the kings who were opposed to the Vedic principles of brahminical culture.**
 
 ### SB 9.20.31
-
-> जित्वा पुरासुरा देवान्ये रसौकांसि भेजिरे
-> देवस्त्रियो रसां नीताः प्राणिभिः पुनराहरत ॥३१॥
 
 > jitvā purāsurā devān
 > ye rasaukāṁsi bhejire
@@ -11681,9 +9348,6 @@ One who achieves the lotus feet of the Supreme Personality of Godhead certainly 
 
 ### SB 9.20.32
 
-> सर्वान्कामान्दुदुहतुः प्रजानां तस्य रोदसी
-> समास्त्रिणवसाहस्रीर्दिक्षु चक्रमवर्तयत ॥३२॥
-
 > sarvān kāmān duduhatuḥ
 > prajānāṁ tasya rodasī
 > samās tri-ṇava-sāhasrīr
@@ -11694,9 +9358,6 @@ One who achieves the lotus feet of the Supreme Personality of Godhead certainly 
 **Mahārāja Bharata provided all necessities for his subjects, both on this earth and in the heavenly planets, for twenty-seven thousand years. He circulated his orders and distributed his soldiers in all directions.**
 
 ### SB 9.20.33
-
-> स संराड्लोकपालाख्यमैश्वर्यमधिराट्श्रियम
-> चक्रं चास्खलितं प्राणान्मृषेत्युपरराम ह ॥३३॥
 
 > sa saṁrāḍ loka-pālākhyam
 > aiśvaryam adhirāṭ śriyam
@@ -11711,9 +9372,6 @@ Mahārāja Bharata had incomparable opulence in sovereignty, soldiers, sons, dau
 
 ### SB 9.20.34
 
-> तस्यासन्नृप वैदर्भ्यः पत्न्यस्तिस्रः सुसम्मताः
-> जघ्नुस्त्यागभयात्पुत्रान्नानुरूपा इतीरिते ॥३४॥
-
 > tasyāsan nṛpa vaidarbhyaḥ
 > patnyas tisraḥ susammatāḥ
 > jaghnus tyāga-bhayāt putrān
@@ -11725,9 +9383,6 @@ Mahārāja Bharata had incomparable opulence in sovereignty, soldiers, sons, dau
 
 ### SB 9.20.35
 
-> तस्यैवं वितथे वंशे तदर्थं यजतः सुतम
-> मरुत्स्तोमेन मरुतो भरद्वाजमुपाददुः ॥३५॥
-
 > tasyaivaṁ vitathe vaṁśe
 > tad-arthaṁ yajataḥ sutam
 > marut-stomena maruto
@@ -11738,9 +9393,6 @@ Mahārāja Bharata had incomparable opulence in sovereignty, soldiers, sons, dau
 **The King, his attempt for progeny frustrated in this way, performed a sacrifice named marut-stoma to get a son. The demigods known as the Maruts, being fully satisfied with him, then presented him a son named Bharadvāja.**
 
 ### SB 9.20.36
-
-> अन्तर्वत्न्यां भ्रातृपत्न्यां मैथुनाय बृहस्पतिः
-> प्रवृत्तो वारितो गर्भं शप्त्वा वीर्यमुपासृजत ॥३६॥
 
 > antarvatnyāṁ bhrātṛ-patnyāṁ
 > maithunāya bṛhaspatiḥ
@@ -11755,9 +9407,6 @@ The sex impulse is so strong in this material world that even Bṛhaspati, who i
 
 ### SB 9.20.37
 
-> तं त्यक्तुकामां ममतां भर्तुस्त्यागविशङ्किताम
-> नामनिर्वाचनं तस्य श्लोकमेनं सुरा जगुः ॥३७॥
-
 > taṁ tyaktu-kāmāṁ mamatāṁ
 > bhartus tyāga-viśaṅkitām
 > nāma-nirvācanaṁ tasya
@@ -11771,9 +9420,6 @@ According to Vedic scripture, whenever a child is born there are some ceremonies
 
 ### SB 9.20.38
 
-> मूढे भर द्वाजमिमं भर द्वाजं बृहस्पते
-> यातौ यदुक्त्वा पितरौ भरद्वाजस्ततस्त्वयम ॥३८॥
-
 > mūḍhe bhara dvājam imaṁ
 > bhara dvājaṁ bṛhaspate
 > yātau yad uktvā pitarau
@@ -11784,9 +9430,6 @@ According to Vedic scripture, whenever a child is born there are some ceremonies
 **Bṛhaspati said to Mamatā, "You foolish woman, although this child was born from the wife of one man through the semen discharged by another, you should maintain him." Upon hearing this, Mamatā replied, "O Bṛhaspati, you maintain him!" After speaking in this way, Bṛhaspati and Mamatā both left. Thus the child was known as Bharadvāja.**
 
 ### SB 9.20.39
-
-> चोद्यमाना सुरैरेवं मत्वा वितथमात्मजम
-> व्यसृजन्मरुतोऽबिभ्रन्दत्तोऽयं वितथेऽन्वये ॥३९॥
 
 > codyamānā surair evaṁ
 > matvā vitatham ātmajam
@@ -11805,10 +9448,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twentieth Chapter, of th
 
 ### SB 9.21.1
 
-> श्रीशुक उवाच
-> वितथस्य सुतान्मन्योर्बृहत्क्षत्रो जयस्ततः
-> महावीर्यो नरो गर्गः सङ्कृतिस्तु नरात्मजः ॥१॥
-
 > śrī-śuka uvāca
 > vitathasya sutān manyor
 > bṛhatkṣatro jayas tataḥ
@@ -11821,9 +9460,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twentieth Chapter, of th
 
 ### SB 9.21.2
 
-> गुरुश्च रन्तिदेवश्च सङ्कृतेः पाण्डुनन्दन
-> रन्तिदेवस्य महिमा इहामुत्र च गीयते ॥२॥
-
 > guruś ca rantidevaś ca
 > saṅkṛteḥ pāṇḍu-nandana
 > rantidevasya mahimā
@@ -11834,13 +9470,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twentieth Chapter, of th
 **O Mahārāja Parīkṣit, descendant of Pāṇḍu, Saṅkṛti had two sons, named Guru and Rantideva. Rantideva is famous in both this world and the next, for he is glorified not only in human society but also in the society of the demigods.**
 
 ### SB 9.21.3-5
-
-> वियद्वित्तस्य ददतो लब्धं लब्धं बुभुक्षतः
-> निष्किञ्चनस्य धीरस्य सकुटुम्बस्य सीदतः ॥३॥
-> व्यतीयुरष्टचत्वारिंशदहान्यपिबतः किल
-> घृतपायससंयावं तोयं प्रातरुपस्थितम ॥४॥
-> कृच्छ्रप्राप्तकुटुम्बस्य क्षुत्तृड्भ्यां जातवेपथोः
-> अतिथिर्ब्राह्मणः काले भोक्तुकामस्य चागमत ॥५॥
 
 > viyad-vittasya dadato
 > labdhaṁ labdhaṁ bubhukṣataḥ
@@ -11863,9 +9492,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twentieth Chapter, of th
 
 ### SB 9.21.6
 
-> तस्मै संव्यभजत्सोऽन्नमादृत्य श्रद्धयान्वितः
-> हरिं सर्वत्र सम्पश्यन्स भुक्त्वा प्रययौ द्विजः ॥६॥
-
 > tasmai saṁvyabhajat so 'nnam
 > ādṛtya śraddhayānvitaḥ
 > hariṁ sarvatra sampaśyan
@@ -11886,9 +9512,6 @@ Rantideva perceived the presence of the Supreme Personality of Godhead in every 
 
 ### SB 9.21.7
 
-> अथान्यो भोक्ष्यमाणस्य विभक्तस्य महीपतेः
-> विभक्तं व्यभजत्तस्मै वृषलाय हरिं स्मरन ॥७॥
-
 > athānyo bhokṣyamāṇasya
 > vibhaktasya mahīpateḥ
 > vibhaktaṁ vyabhajat tasmai
@@ -11902,9 +9525,6 @@ Because King Rantideva saw everyone as part of the Supreme Personality of Godhea
 
 ### SB 9.21.8
 
-> याते शूद्रे तमन्योऽगादतिथिः श्वभिरावृतः
-> राजन्मे दीयतामन्नं सगणाय बुभुक्षते ॥८॥
-
 > yāte śūdre tam anyo 'gād
 > atithiḥ śvabhir āvṛtaḥ
 > rājan me dīyatām annaṁ
@@ -11915,9 +9535,6 @@ Because King Rantideva saw everyone as part of the Supreme Personality of Godhea
 **When the śūdra went away, another guest arrived, surrounded by dogs, and said, "O King, I and my company of dogs are very hungry. Please give us something to eat."**
 
 ### SB 9.21.9
-
-> स आदृत्यावशिष्टं यद्बहुमानपुरस्कृतम
-> तच्च दत्त्वा नमश्चक्रे श्वभ्यः श्वपतये विभुः ॥९॥
 
 > sa ādṛtyāvaśiṣṭaṁ yad
 > bahu-māna-puraskṛtam
@@ -11930,9 +9547,6 @@ Because King Rantideva saw everyone as part of the Supreme Personality of Godhea
 
 ### SB 9.21.10
 
-> पानीयमात्रमुच्छेषं तच्चैकपरितर्पणम
-> पास्यतः पुल्कसोऽभ्यागादपो देह्यशुभाय मे ॥१०॥
-
 > pānīya-mātram uccheṣaṁ
 > tac caika-paritarpaṇam
 > pāsyataḥ pulkaso 'bhyāgād
@@ -11943,9 +9557,6 @@ Because King Rantideva saw everyone as part of the Supreme Personality of Godhea
 **Thereafter, only the drinking water remained, and there was only enough to satisfy one person, but when the King was just about to drink it, a caṇḍāla appeared and said, "O King, although I am lowborn, kindly give me some drinking water."**
 
 ### SB 9.21.11
-
-> तस्य तां करुणां वाचं निशम्य विपुलश्रमाम
-> कृपया भृशसन्तप्त इदमाहामृतं वचः ॥११॥
 
 > tasya tāṁ karuṇāṁ vācaṁ
 > niśamya vipula-śramām
@@ -11960,9 +9571,6 @@ Mahārāja Rantideva's words were like *amṛta,* or nectar, and therefore, asid
 
 ### SB 9.21.12
 
-> न कामयेऽहं गतिमीश्वरात्परामष्टर्द्धियुक्तामपुनर्भवं वा
-> आर्तिं प्रपद्येऽखिलदेहभाजामन्तःस्थितो येन भवन्त्यदुःखाः ॥१२॥
-
 > na kāmaye 'haṁ gatim īśvarāt parām
 > aṣṭarddhi-yuktām apunar-bhavaṁ vā
 > ārtiṁ prapadye 'khila-deha-bhājām
@@ -11976,9 +9584,6 @@ Vāsudeva Datta made a similar statement to Śrī Caitanya Mahāprabhu, requesti
 
 ### SB 9.21.13
 
-> क्षुत्तृट्श्रमो गात्रपरिभ्रमश्च दैन्यं क्लमः शोकविषादमोहाः
-> सर्वे निवृत्ताः कृपणस्य जन्तोर्जिजीविषोर्जीवजलार्पणान्मे ॥१३॥
-
 > kṣut-tṛṭ-śramo gātra-paribhramaś ca
 > dainyaṁ klamaḥ śoka-viṣāda-mohāḥ
 > sarve nivṛttāḥ kṛpaṇasya jantor
@@ -11989,9 +9594,6 @@ Vāsudeva Datta made a similar statement to Śrī Caitanya Mahāprabhu, requesti
 **By offering my water to maintain the life of this poor caṇḍāla, who is struggling to live, I have been freed from all hunger, thirst, fatigue, trembling of the body, moroseness, distress, lamentation and illusion.**
 
 ### SB 9.21.14
-
-> इति प्रभाष्य पानीयं म्रियमाणः पिपासया
-> पुल्कसायाददाद्धीरो निसर्गकरुणो नृपः ॥१४॥
 
 > iti prabhāṣya pānīyaṁ
 > mriyamāṇaḥ pipāsayā
@@ -12004,9 +9606,6 @@ Vāsudeva Datta made a similar statement to Śrī Caitanya Mahāprabhu, requesti
 
 ### SB 9.21.15
 
-> तस्य त्रिभुवनाधीशाः फलदाः फलमिच्छताम
-> आत्मानं दर्शयां चक्रुर्माया विष्णुविनिर्मिताः ॥१५॥
-
 > tasya tribhuvanādhīśāḥ
 > phaladāḥ phalam icchatām
 > ātmānaṁ darśayāṁ cakrur
@@ -12017,9 +9616,6 @@ Vāsudeva Datta made a similar statement to Śrī Caitanya Mahāprabhu, requesti
 **Demigods like Lord Brahmā and Lord Śiva, who can satisfy all materially ambitious men by giving them the rewards they desire, then manifested their own identities before King Rantideva, for it was they who had presented themselves as the brāhmaṇa, śūdra, caṇḍāla and so on.**
 
 ### SB 9.21.16
-
-> स वै तेभ्यो नमस्कृत्य निःसङ्गो विगतस्पृहः
-> वासुदेवे भगवति भक्त्या चक्रे मनः परम ॥१६॥
 
 > sa vai tebhyo namaskṛtya
 > niḥsaṅgo vigata-spṛhaḥ
@@ -12047,9 +9643,6 @@ If one wants to become a pure devotee of the Supreme Lord, one should not hanker
 
 ### SB 9.21.17
 
-> ईश्वरालम्बनं चित्तं कुर्वतोऽनन्यराधसः
-> माया गुणमयी राजन्स्वप्नवत्प्रत्यलीयत ॥१७॥
-
 > īśvarālambanaṁ cittaṁ
 > kurvato 'nanya-rādhasaḥ
 > māyā guṇa-mayī rājan
@@ -12075,9 +9668,6 @@ Just as there is no chance that darkness can exist in the sunshine, in a pure K�
 
 ### SB 9.21.18
 
-> तत्प्रसङ्गानुभावेन रन्तिदेवानुवर्तिनः
-> अभवन्योगिनः सर्वे नारायणपरायणाः ॥१८॥
-
 > tat-prasaṅgānubhāvena
 > rantidevānuvartinaḥ
 > abhavan yoginaḥ sarve
@@ -12098,11 +9688,6 @@ The best *yogīs* or mystics are the devotees, as confirmed by the Lord Himself 
 
 ### SB 9.21.19-20
 
-> गर्गाच्छिनिस्ततो गार्ग्यः क्षत्राद्ब्रह्म ह्यवर्तत
-> दुरितक्षयो महावीर्यात्तस्य त्रय्यारुणिः कविः ॥१९॥
-> पुष्करारुणिरित्यत्र ये ब्राह्मणगतिं गताः
-> बृहत्क्षत्रस्य पुत्रोऽभूद्धस्ती यद्धस्तिनापुरम ॥२०॥
-
 > gargāc chinis tato gārgyaḥ
 > kṣatrād brahma hy avartata
 > duritakṣayo mahāvīryāt
@@ -12119,9 +9704,6 @@ The best *yogīs* or mystics are the devotees, as confirmed by the Lord Himself 
 
 ### SB 9.21.21
 
-> अजमीढो द्विमीढश्च पुरुमीढश्च हस्तिनः
-> अजमीढस्य वंश्याः स्युः प्रियमेधादयो द्विजाः ॥२१॥
-
 > ajamīḍho dvimīḍhaś ca
 > purumīḍhaś ca hastinaḥ
 > ajamīḍhasya vaṁśyāḥ syuḥ
@@ -12135,9 +9717,6 @@ This verse gives evidence confirming the statement of *Bhagavad-gītā* that the
 
 ### SB 9.21.22
 
-> अजमीढाद्बृहदिषुस्तस्य पुत्रो बृहद्धनुः
-> बृहत्कायस्ततस्तस्य पुत्र आसीज्जयद्रथः ॥२२॥
-
 > ajamīḍhād bṛhadiṣus
 > tasya putro bṛhaddhanuḥ
 > bṛhatkāyas tatas tasya
@@ -12148,9 +9727,6 @@ This verse gives evidence confirming the statement of *Bhagavad-gītā* that the
 **From Ajamīḍha came a son named Bṛhadiṣu, from Bṛhadiṣu came a son named Bṛhaddhanu, from Bṛhaddhanu a son named Bṛhatkāya, and from Bṛhatkāya a son named Jayadratha.**
 
 ### SB 9.21.23
-
-> तत्सुतो विशदस्तस्य स्येनजित्समजायत
-> रुचिराश्वो दृढहनुः काश्यो वत्सश्च तत्सुताः ॥२३॥
 
 > tat-suto viśadas tasya
 > syenajit samajāyata
@@ -12163,9 +9739,6 @@ This verse gives evidence confirming the statement of *Bhagavad-gītā* that the
 
 ### SB 9.21.24
 
-> रुचिराश्वसुतः पारः पृथुसेनस्तदात्मजः
-> पारस्य तनयो नीपस्तस्य पुत्रशतं त्वभूत ॥२४॥
-
 > rucirāśva-sutaḥ pāraḥ
 > pṛthusenas tad-ātmajaḥ
 > pārasya tanayo nīpas
@@ -12176,9 +9749,6 @@ This verse gives evidence confirming the statement of *Bhagavad-gītā* that the
 **The son of Rucirāśva was Pāra, and the sons of Pāra were Pṛthusena and Nīpa. Nīpa had one hundred sons.**
 
 ### SB 9.21.25
-
-> स कृत्व्यां शुककन्यायां ब्रह्मदत्तमजीजनत
-> योगी स गवि भार्यायां विष्वक्सेनमधात्सुतम ॥२५॥
 
 > sa kṛtvyāṁ śuka-kanyāyāṁ
 > brahmadattam ajījanat
@@ -12193,9 +9763,6 @@ The Śuka mentioned here is different from the Śukadeva Gosvāmī who spoke *Ś
 
 ### SB 9.21.26
 
-> जैगीषव्योपदेशेन योगतन्त्रं चकार ह
-> उदक्सेनस्ततस्तस्माद्भल्लाटो बार्हदीषवाः ॥२६॥
-
 > jaigīṣavyopadeśena
 > yoga-tantraṁ cakāra ha
 > udaksenas tatas tasmād
@@ -12207,9 +9774,6 @@ The Śuka mentioned here is different from the Śukadeva Gosvāmī who spoke *Ś
 
 ### SB 9.21.27
 
-> यवीनरो द्विमीढस्य कृतिमांस्तत्सुतः स्मृतः
-> नाम्ना सत्यधृतिस्तस्य दृढनेमिः सुपार्श्वकृत ॥२७॥
-
 > yavīnaro dvimīḍhasya
 > kṛtimāṁs tat-sutaḥ smṛtaḥ
 > nāmnā satyadhṛtis tasya
@@ -12220,11 +9784,6 @@ The Śuka mentioned here is different from the Śukadeva Gosvāmī who spoke *Ś
 **The son of Dvimīḍha was Yavīnara, whose son was Kṛtimān. The son of Kṛtimān was well known as Satyadhṛti. From Satyadhṛti came a son named Dṛḍhanemi, who became the father of Supārśva.**
 
 ### SB 9.21.28-29
-
-> सुपार्श्वात्सुमतिस्तस्य पुत्रः सन्नतिमांस्ततः
-> कृती हिरण्यनाभाद्यो योगं प्राप्य जगौ स्म षट ॥२८॥
-> संहिताः प्राच्यसाम्नां वै नीपो ह्युद्ग्रायुधस्ततः
-> तस्य क्षेम्यः सुवीरोऽथ सुवीरस्य रिपुञ्जयः ॥२९॥
 
 > supārśvāt sumatis tasya
 > putraḥ sannatimāṁs tataḥ
@@ -12242,9 +9801,6 @@ The Śuka mentioned here is different from the Śukadeva Gosvāmī who spoke *Ś
 
 ### SB 9.21.30
 
-> ततो बहुरथो नाम पुरुमीढोऽप्रजोऽभवत
-> नलिन्यामजमीढस्य नीलः शान्तिस्तु तत्सुतः ॥३०॥
-
 > tato bahuratho nāma
 > purumīḍho 'prajo 'bhavat
 > nalinyām ajamīḍhasya
@@ -12255,13 +9811,6 @@ The Śuka mentioned here is different from the Śukadeva Gosvāmī who spoke *Ś
 **From Ripuñjaya came a son named Bahuratha. Purumīḍha was sonless. Ajamīḍha had a son named Nīla by his wife known as Nalinī, and the son of Nīla was Śānti.**
 
 ### SB 9.21.31-33
-
-> शान्तेः सुशान्तिस्तत्पुत्रः पुरुजोऽर्कस्ततोऽभवत
-> भर्म्याश्वस्तनयस्तस्य पञ्चासन्मुद्गलादयः ॥३१॥
-> यवीनरो बृहद्विश्वः काम्पिल्लः सञ्जयः सुताः
-> भर्म्याश्वः प्राह पुत्रा मे पञ्चानां रक्षणाय हि ॥३२॥
-> विषयाणामलमिमे इति पञ्चालसंज्ञइताः
-> मुद्गलाद्ब्रह्मनिर्वृत्तं गोत्रं मौद्गल्यसंज्ञइतम ॥३३॥
 
 > śānteḥ suśāntis tat-putraḥ
 > purujo 'rkas tato 'bhavat
@@ -12284,9 +9833,6 @@ The Śuka mentioned here is different from the Śukadeva Gosvāmī who spoke *Ś
 
 ### SB 9.21.34
 
-> मिथुनं मुद्गलाद्भार्म्याद्दिवोदासः पुमानभूत
-> अहल्या कन्यका यस्यां शतानन्दस्तु गौतमात ॥३४॥
-
 > mithunaṁ mudgalād bhārmyād
 > divodāsaḥ pumān abhūt
 > ahalyā kanyakā yasyāṁ
@@ -12297,9 +9843,6 @@ The Śuka mentioned here is different from the Śukadeva Gosvāmī who spoke *Ś
 **Mudgala, the son of Bharmyāśva, had twin children, one male and the other female. The male child was named Divodāsa, and the female child was named Ahalyā. From the womb of Ahalyā by the semen of her husband, Gautama, came a son named Śatānanda.**
 
 ### SB 9.21.35
-
-> तस्य सत्यधृतिः पुत्रो धनुर्वेदविशारदः
-> शरद्वांस्तत्सुतो यस्मादुर्वशीदर्शनात्किल ॥३५॥
 
 > tasya satyadhṛtiḥ putro
 > dhanur-veda-viśāradaḥ
@@ -12313,10 +9856,6 @@ The Śuka mentioned here is different from the Śukadeva Gosvāmī who spoke *Ś
 **The son of Śatānanda was Satyadhṛti, who was expert in archery, and the son of Satyadhṛti was Śaradvān. When Śaradvān met Urvaśī, he discharged semen, which fell on a clump of śara grass. From this semen were born two all-auspicious babies, one male and the other female.**
 
 ### SB 9.21.36
-
-> शरस्तम्बेऽपतद्रेतो मिथुनं तदभूच्छुभम
-> तद्दृष्ट्वा कृपयागृह्णाच्छान्तनुर्मृगयां चरन
-> कृपः कुमारः कन्या च द्रोणपत्न्यभवत्कृपी ॥३६॥
 
 > tad dṛṣṭvā kṛpayāgṛhṇāc
 > chāntanur mṛgayāṁ caran
@@ -12333,10 +9872,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-first Chapter, of
 
 ### SB 9.22.1
 
-> श्रीशुक उवाच
-> मित्रायुश्च दिवोदासाच्च्यवनस्तत्सुतो नृप
-> सुदासः सहदेवोऽथ सोमको जन्तुजन्मकृत ॥१॥
-
 > śrī-śuka uvāca
 > mitrāyuś ca divodāsāc
 > cyavanas tat-suto nṛpa
@@ -12349,10 +9884,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-first Chapter, of
 
 ### SB 9.22.2
 
-> तस्य पुत्रशतं तेषां यवीयान्पृषतः सुतः
-> स तस्माद्द्रुपदो जज्ञए सर्वसम्पत्समन्वितः
-> द्रुपदाद्द्रौपदी तस्य धृष्टद्युम्नादयः सुताः ॥२॥
-
 > tasya putra-śataṁ teṣāṁ
 > yavīyān pṛṣataḥ sutaḥ
 > sa tasmād drupado jajñe
@@ -12364,9 +9895,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-first Chapter, of
 
 ### SB 9.22.3
 
-> धृष्टद्युम्नाद्धृष्टकेतुर्भार्म्याः पाञ्चालका इमे
-> योऽजमीढसुतो ह्यन्य ऋक्षः संवरणस्ततः ॥३॥
-
 > drupadād draupadī tasya
 > dhṛṣṭadyumnādayaḥ sutāḥ
 > dhṛṣṭadyumnād dhṛṣṭaketur
@@ -12377,11 +9905,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-first Chapter, of
 **From Mahārāja Drupada, Draupadī was born. Mahārāja Drupada also had many sons, headed by Dhṛṣṭadyumna. From Dhṛṣṭadyumna came a son named Dhṛṣṭaketu. All these personalities are known as descendants of Bharmyāśva or as the dynasty of Pāñcāla.**
 
 ### SB 9.22.4-5
-
-> तपत्यां सूर्यकन्यायां कुरुक्षेत्रपतिः कुरुः
-> परीक्षिः सुधनुर्जह्नुर्निषधश्च कुरोः सुताः ॥४॥
-> सुहोत्रोऽभूत्सुधनुषश्च्यवनोऽथ ततः कृती
-> वसुस्तस्योपरिचरो बृहद्रथमुखास्ततः ॥५॥
 
 > yo 'jamīḍha-suto hy anya
 > ṛkṣaḥ saṁvaraṇas tataḥ
@@ -12399,9 +9922,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-first Chapter, of
 
 ### SB 9.22.6
 
-> कुशाम्बमत्स्यप्रत्यग्र चेदिपाद्याश्च चेदिपाः
-> बृहद्रथात्कुशाग्रोऽभूदृषभस्तस्य तत्सुतः ॥६॥
-
 > vasus tasyoparicaro
 > bṛhadratha-mukhās tataḥ
 > kuśāmba-matsya-pratyagra-
@@ -12413,9 +9933,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-first Chapter, of
 
 ### SB 9.22.7
 
-> जज्ञए सत्यहितोऽपत्यं पुष्पवांस्तत्सुतो जहुः
-> अन्यस्यामपि भार्यायां शकले द्वे बृहद्रथात ॥७॥
-
 > bṛhadrathāt kuśāgro 'bhūd
 > ṛṣabhas tasya tat-sutaḥ
 > jajñe satyahito 'patyaṁ
@@ -12426,9 +9943,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-first Chapter, of
 **From Bṛhadratha, Kuśāgra was born; from Kuśāgra, Ṛṣabha; and from Ṛṣabha, Satyahita. The son of Satyahita was Puṣpavān, and the son of Puṣpavān was Jahu.**
 
 ### SB 9.22.8
-
-> ये मात्रा बहिरुत्सृष्टे जरया चाभिसन्धिते
-> जीव जीवेति क्रीडन्त्या जरासन्धोऽभवत्सुतः ॥८॥
 
 > anyasyām api bhāryāyāṁ
 > śakale dve bṛhadrathāt
@@ -12443,9 +9957,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-first Chapter, of
 
 ### SB 9.22.9
 
-> ततश्च सहदेवोऽभूत्सोमापिर्यच्छ्रुतश्रवाः
-> परीक्षिरनपत्योऽभूत्सुरथो नाम जाह्नवः ॥९॥
-
 > tataś ca sahadevo 'bhūt
 > somāpir yac chrutaśravāḥ
 > parīkṣir anapatyo 'bhūt
@@ -12456,9 +9967,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-first Chapter, of
 **From Jarāsandha came a son named Sahadeva; from Sahadeva, Somāpi; and from Somāpi, Śrutaśravā. The son of Kuru called Parīkṣi had no sons, but the son of Kuru called Jahnu had a son named Suratha.**
 
 ### SB 9.22.10
-
-> ततो विदूरथस्तस्मात्सार्वभौमस्ततोऽभवत
-> जयसेनस्तत्तनयो राधिकोऽतोऽयुताय्वभूत ॥१०॥
 
 > tato vidūrathas tasmāt
 > sārvabhaumas tato 'bhavat
@@ -12471,9 +9979,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-first Chapter, of
 
 ### SB 9.22.11
 
-> ततश्चाक्रोधनस्तस्माद्देवातिथिरमुष्य च
-> ऋक्षस्तस्य दिलीपोऽभूत्प्रतीपस्तस्य चात्मजः ॥११॥
-
 > tataś cākrodhanas tasmād
 > devātithir amuṣya ca
 > ṛkṣas tasya dilīpo 'bhūt
@@ -12484,11 +9989,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-first Chapter, of
 **From Ayutāyu came a son named Akrodhana, and his son was Devātithi. The son of Devātithi was Ṛkṣa, the son of Ṛkṣa was Dilīpa, and the son of Dilīpa was Pratīpa.**
 
 ### SB 9.22.12-13
-
-> देवापिः शान्तनुस्तस्य बाह्लीक इति चात्मजाः
-> पितृराज्यं परित्यज्य देवापिस्तु वनं गतः ॥१२॥
-> अभवच्छान्तनू राजा प्राङ्महाभिषसंज्ञइतः
-> यं यं कराभ्यां स्पृशति जीर्णं यौवनमेति सः ॥१३॥
 
 > devāpiḥ śāntanus tasya
 > bāhlīka iti cātmajāḥ
@@ -12505,11 +10005,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-first Chapter, of
 **The sons of Pratīpa were Devāpi, Śāntanu and Bāhlīka. Devāpi left the kingdom of his father and went to the forest, and therefore Śāntanu became the king. Śāntanu, who in his previous birth was known as Mahābhiṣa, had the ability to transform anyone from old age to youth simply by touching that person with his hands.**
 
 ### SB 9.22.14-15
-
-> शान्तिमाप्नोति चैवाग्र्यां कर्मणा तेन शान्तनुः
-> समा द्वादश तद्राज्ये न ववर्ष यदा विभुः ॥१४॥
-> शान्तनुर्ब्राह्मणैरुक्तः परिवेत्तायमग्रभुक
-> राज्यं देह्यग्रजायाशु पुरराष्ट्रविवृद्धये ॥१५॥
 
 > śāntim āpnoti caivāgryāṁ
 > karmaṇā tena śāntanuḥ
@@ -12529,11 +10024,6 @@ One cannot enjoy sovereignty or perform an *agnihotra-yajña* in the presence of
 
 ### SB 9.22.16-17
 
-> एवमुक्तो द्विजैर्ज्येष्ठं छन्दयामास सोऽब्रवीत
-> तन्मन्त्रिप्रहितैर्विप्रैर्वेदाद्विभ्रंशितो गिरा ॥१६॥
-> वेदवादातिवादान्वै तदा देवो ववर्ष ह
-> देवापिर्योगमास्थाय कलापग्राममाश्रितः ॥१७॥
-
 > evam ukto dvijair jyeṣṭhaṁ
 > chandayām āsa so 'bravīt
 > tan-mantri-prahitair viprair
@@ -12549,11 +10039,6 @@ One cannot enjoy sovereignty or perform an *agnihotra-yajña* in the presence of
 **When the brāhmaṇas said this, Mahārāja Śāntanu went to the forest and requested his elder brother Devāpi to take charge of the kingdom, for it is the duty of a king to maintain his subjects. Previously, however, Śāntanu's minister Aśvavāra had instigated some brāhmaṇas to induce Devāpi to transgress the injunctions of the Vedas and thus make himself unfit for the post of ruler. The brāhmaṇas deviated Devāpi from the path of the Vedic principles, and therefore when asked by Śāntanu he did not agree to accept the post of ruler. On the contrary, he blasphemed the Vedic principles and therefore became fallen. Under the circumstances, Śāntanu again became the king, and Indra, being pleased, showered rains. Devāpi later took to the path of mystic yoga to control his mind and senses and went to the village named Kalāpagrāma, where he is still living.**
 
 ### SB 9.22.18-19
-
-> सोमवंशे कलौ नष्टे कृतादौ स्थापयिष्यति
-> बाह्लीकात्सोमदत्तोऽभूद्भूरिर्भूरिश्रवास्ततः ॥१८॥
-> शलश्च शान्तनोरासीद्गङ्गायां भीष्म आत्मवान
-> सर्वधर्मविदां श्रेष्ठो महाभागवतः कविः ॥१९॥
 
 > soma-vaṁśe kalau naṣṭe
 > kṛtādau sthāpayiṣyati
@@ -12571,9 +10056,6 @@ One cannot enjoy sovereignty or perform an *agnihotra-yajña* in the presence of
 
 ### SB 9.22.20
 
-> वीरयूथाग्रणीर्येन रामोऽपि युधि तोषितः
-> शान्तनोर्दासकन्यायां जज्ञए चित्राङ्गदः सुतः ॥२०॥
-
 > vīra-yūthāgraṇīr yena
 > rāmo 'pi yudhi toṣitaḥ
 > śāntanor dāsa-kanyāyāṁ
@@ -12588,15 +10070,6 @@ Satyavatī was actually the daughter of Uparicara Vasu by the womb of a fisherwo
 The fight between Paraśurāma and Bhīṣmadeva concerns three daughters of Kāśīrāja—Ambikā, Ambālikā and Ambā—who were forcibly abducted by Bhīṣmadeva, acting on behalf of his brother Vicitravīrya. Ambā thought that Bhīṣmadeva would marry her and became attached to him, but Bhīṣmadeva refused to marry her, for he had taken the vow of *brahmacarya.* Ambā therefore approached Bhīṣmadeva's military spiritual master, Paraśurāma, who instructed Bhīṣma to marry her. Bhīṣmadeva refused, and therefore Paraśurāma fought with him to force him to accept the marriage. But Paraśurāma was defeated, and he was pleased with Bhīṣma.
 
 ### SB 9.22.21-24
-
-> विचित्रवीर्यश्चावरजो नाम्ना चित्राङ्गदो हतः
-> यस्यां पराशरात्साक्षादवतीर्णो हरेः कला ॥२१॥
-> वेदगुप्तो मुनिः कृष्णो यतोऽहमिदमध्यगाम
-> हित्वा स्वशिष्यान्पैलादीन्भगवान्बादरायणः ॥२२॥
-> मह्यं पुत्राय शान्ताय परं गुह्यमिदं जगौ
-> विचित्रवीर्योऽथोवाह काशीराजसुते बलात ॥२३॥
-> स्वयंवरादुपानीते अम्बिकाम्बालिके उभे
-> तयोरासक्तहृदयो गृहीतो यक्ष्मणा मृतः ॥२४॥
 
 > vicitravīryaś cāvarajo
 > nāmnā citrāṅgado hataḥ
@@ -12624,9 +10097,6 @@ The fight between Paraśurāma and Bhīṣmadeva concerns three daughters of Kā
 
 ### SB 9.22.25
 
-> क्षेत्रेऽप्रजस्य वै भ्रातुर्मात्रोक्तो बादरायणः
-> धृतराष्ट्रं च पाण्डुं च विदुरं चाप्यजीजनत ॥२५॥
-
 > kṣetre 'prajasya vai bhrātur
 > mātrokto bādarāyaṇaḥ
 > dhṛtarāṣṭraṁ ca pāṇḍuṁ ca
@@ -12648,9 +10118,6 @@ Vicitravīrya died of tuberculosis, and his wives, Ambikā and Ambālikā, had n
 
 ### SB 9.22.26
 
-> गान्धार्यां धृतराष्ट्रस्य जज्ञए पुत्रशतं नृप
-> तत्र दुर्योधनो ज्येष्ठो दुःशला चापि कन्यका ॥२६॥
-
 > gāndhāryāṁ dhṛtarāṣṭrasya
 > jajñe putra-śataṁ nṛpa
 > tatra duryodhano jyeṣṭho
@@ -12661,11 +10128,6 @@ Vicitravīrya died of tuberculosis, and his wives, Ambikā and Ambālikā, had n
 **Dhṛtarāṣṭra's wife, Gāndhārī, gave birth to one hundred sons and one daughter, O King. The oldest of the sons was Duryodhana, and the daughter's name was Duḥśalā.**
 
 ### SB 9.22.27-28
-
-> शापान्मैथुनरुद्धस्य पाण्डोः कुन्त्यां महारथाः
-> जाता धर्मानिलेन्द्रेभ्यो युधिष्ठिरमुखास्त्रयः ॥२७॥
-> नकुलः सहदेवश्च माद्र्यां नासत्यदस्रयोः
-> द्रौपद्यां पञ्च पञ्चभ्यः पुत्रास्ते पितरोऽभवन ॥२८॥
 
 > śāpān maithuna-ruddhasya
 > pāṇḍoḥ kuntyāṁ mahā-rathāḥ
@@ -12683,9 +10145,6 @@ Vicitravīrya died of tuberculosis, and his wives, Ambikā and Ambālikā, had n
 
 ### SB 9.22.29
 
-> युधिष्ठिरात्प्रतिविन्ध्यः श्रुतसेनो वृकोदरात
-> अर्जुनाच्छ्रुतकीर्तिस्तु शतानीकस्तु नाकुलिः ॥२९॥
-
 > yudhiṣṭhirāt prativindhyaḥ
 > śrutaseno vṛkodarāt
 > arjunāc chrutakīrtis tu
@@ -12696,11 +10155,6 @@ Vicitravīrya died of tuberculosis, and his wives, Ambikā and Ambālikā, had n
 **From Yudhiṣṭhira came a son named Prativindhya, from Bhīma a son named Śrutasena, from Arjuna a son named Śrutakīrti, and from Nakula a son named Śatānīka.**
 
 ### SB 9.22.30-31
-
-> सहदेवसुतो राजन्छ्रुतकर्मा तथापरे
-> युधिष्ठिरात्तु पौरव्यां देवकोऽथ घटोत्कचः ॥३०॥
-> भीमसेनाद्धिडिम्बायां काल्यां सर्वगतस्ततः
-> सहदेवात्सुहोत्रं तु विजयासूत पार्वती ॥३१॥
 
 > sahadeva-suto rājañ
 > chrutakarmā tathāpare
@@ -12718,10 +10172,6 @@ Vicitravīrya died of tuberculosis, and his wives, Ambikā and Ambālikā, had n
 
 ### SB 9.22.32
 
-> करेणुमत्यां नकुलो नरमित्रं तथार्जुनः
-> इरावन्तमुलुप्यां वै सुतायां बभ्रुवाहनम
-> मणिपुरपतेः सोऽपि तत्पुत्रः पुत्रिकासुतः ॥३२॥
-
 > kareṇumatyāṁ nakulo
 > naramitraṁ tathārjunaḥ
 > irāvantam ulupyāṁ vai
@@ -12737,9 +10187,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 
 ### SB 9.22.33
 
-> तव तातः सुभद्रायामभिमन्युरजायत
-> सर्वातिरथजिद्वीर उत्तरायां ततो भवान ॥३३॥
-
 > tava tātaḥ subhadrāyām
 > abhimanyur ajāyata
 > sarvātirathajid vīra
@@ -12750,9 +10197,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 **My dear King Parīkṣit, your father, Abhimanyu, was born from the womb of Subhadrā as the son of Arjuna. He was the conqueror of all atirathas [those who could fight with one thousand charioteers]. From him, by the womb of Uttarā, the daughter of Virāḍrāja, you were born.**
 
 ### SB 9.22.34
-
-> परिक्षीणेषु कुरुषु द्रौणेर्ब्रह्मास्त्रतेजसा
-> त्वं च कृष्णानुभावेन सजीवो मोचितोऽन्तकात ॥३४॥
 
 > parikṣīṇeṣu kuruṣu
 > drauṇer brahmāstra-tejasā
@@ -12765,9 +10209,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 
 ### SB 9.22.35
 
-> तवेमे तनयास्तात जनमेजयपूर्वकाः
-> श्रुतसेनो भीमसेन उग्रसेनश्च वीर्यवान ॥३५॥
-
 > taveme tanayās tāta
 > janamejaya-pūrvakāḥ
 > śrutaseno bhīmasena
@@ -12778,9 +10219,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 **My dear King, your four sons—Janamejaya, Śrutasena, Bhīmasena and Ugrasena—are very powerful. Janamejaya is the eldest.**
 
 ### SB 9.22.36
-
-> जनमेजयस्त्वां विदित्वा तक्षकान्निधनं गतम
-> सर्पान्वै सर्पयागाग्नौ स होष्यति रुषान्वितः ॥३६॥
 
 > janamejayas tvāṁ viditvā
 > takṣakān nidhanaṁ gatam
@@ -12793,9 +10231,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 
 ### SB 9.22.37
 
-> कालषेयं पुरोधाय तुरं तुरगमेधषाट
-> समन्तात्पृथिवीं सर्वां जित्वा यक्ष्यति चाध्वरैः ॥३७॥
-
 > kālaṣeyaṁ purodhāya
 > turaṁ turaga-medhaṣāṭ
 > samantāt pṛthivīṁ sarvāṁ
@@ -12806,9 +10241,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 **After conquering throughout the world and after accepting Tura, the son of Kalaṣa, as his priest, Janamejaya will perform aśvamedha-yajñas, for which he will be known as Turaga-medhaṣāṭ.**
 
 ### SB 9.22.38
-
-> तस्य पुत्रः शतानीको याज्ञअवल्क्यात्त्रयीं पठन
-> अस्त्रज्ञआनं क्रियाज्ञआनं शौनकात्परमेष्यति ॥३८॥
 
 > tasya putraḥ śatānīko
 > yājñavalkyāt trayīṁ paṭhan
@@ -12821,9 +10253,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 
 ### SB 9.22.39
 
-> सहस्रानीकस्तत्पुत्रस्ततश्चैवाश्वमेधजः
-> असीमकृष्णस्तस्यापि नेमिचक्रस्तु तत्सुतः ॥३९॥
-
 > sahasrānīkas tat-putras
 > tataś caivāśvamedhajaḥ
 > asīmakṛṣṇas tasyāpi
@@ -12834,9 +10263,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 **The son of Śatānīka will be Sahasrānīka, and from him will come the son named Aśvamedhaja. From Aśvamedhaja will come Asīmakṛṣṇa, and his son will be Nemicakra.**
 
 ### SB 9.22.40
-
-> गजाह्वये हृते नद्या कौशाम्ब्यां साधु वत्स्यति
-> उक्तस्ततश्चित्ररथस्तस्माच्छुचिरथः सुतः ॥४०॥
 
 > gajāhvaye hṛte nadyā
 > kauśāmbyāṁ sādhu vatsyati
@@ -12849,9 +10275,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 
 ### SB 9.22.41
 
-> तस्माच्च वृष्टिमांस्तस्य सुषेणोऽथ महीपतिः
-> सुनीथस्तस्य भविता नृचक्षुर्यत्सुखीनलः ॥४१॥
-
 > tasmāc ca vṛṣṭimāṁs tasya
 > suṣeṇo 'tha mahīpatiḥ
 > sunīthas tasya bhavitā
@@ -12862,9 +10285,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 **From Śuciratha will come the son named Vṛṣṭimān, and his son, Suṣeṇa, will be the emperor of the entire world. The son of Suṣeṇa will be Sunītha, his son will be Nṛcakṣu, and from Nṛcakṣu will come a son named Sukhīnala.**
 
 ### SB 9.22.42
-
-> परिप्लवः सुतस्तस्मान्मेधावी सुनयात्मजः
-> नृपञ्जयस्ततो दूर्वस्तिमिस्तस्माज्जनिष्यति ॥४२॥
 
 > pariplavaḥ sutas tasmān
 > medhāvī sunayātmajaḥ
@@ -12877,9 +10297,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 
 ### SB 9.22.43
 
-> तिमेर्बृहद्रथस्तस्माच्छतानीकः सुदासजः
-> शतानीकाद्दुर्दमनस्तस्यापत्यं महीनरः ॥४३॥
-
 > timer bṛhadrathas tasmāc
 > chatānīkaḥ sudāsajaḥ
 > śatānīkād durdamanas
@@ -12890,11 +10307,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 **From Timi will come Bṛhadratha; from Bṛhadratha, Sudāsa; and from Sudāsa, Śatānīka. From Śatānīka will come Durdamana, and from him will come a son named Mahīnara.**
 
 ### SB 9.22.44-45
-
-> दण्डपाणिर्निमिस्तस्य क्षेमको भविता यतः
-> ब्रह्मक्षत्रस्य वै योनिर्वंशो देवर्षिसत्कृतः ॥४४॥
-> क्षेमकं प्राप्य राजानं संस्थां प्राप्स्यति वै कलौ
-> अथ मागधराजानो भाविनो ये वदामि ते ॥४५॥
 
 > daṇḍapāṇir nimis tasya
 > kṣemako bhavitā yataḥ
@@ -12911,13 +10323,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 **The son of Mahīnara will be Daṇḍapāṇi, and his son will be Nimi, from whom King Kṣemaka will be born. I have now described to you the moon-god's dynasty, which is the source of brāhmaṇas and kṣatriyas and is worshiped by demigods and great saints. In this Kali-yuga, Kṣemaka will be the last monarch. Now I shall describe to you the future of the Māgadha dynasty. Please listen.**
 
 ### SB 9.22.46-48
-
-> भविता सहदेवस्य मार्जारिर्यच्छ्रुतश्रवाः
-> ततो युतायुस्तस्यापि निरमित्रोऽथ तत्सुतः ॥४६॥
-> सुनक्षत्रः सुनक्षत्राद्बृहत्सेनोऽथ कर्मजित
-> ततः सुतञ्जयाद्विप्रः शुचिस्तस्य भविष्यति ॥४७॥
-> क्षेमोऽथ सुव्रतस्तस्माद्धर्मसूत्रः समस्ततः
-> द्युमत्सेनोऽथ सुमतिः सुबलो जनिता ततः ॥४८॥
 
 > bhavitā sahadevasya
 > mārjārir yac chrutaśravāḥ
@@ -12940,9 +10345,6 @@ It is to be understood that Pārvatī is the daughter of the king of the very, v
 
 ### SB 9.22.49
 
-> सुनीथः सत्यजिदथ विश्वजिद्यद्रिपुञ्जयः
-> बार्हद्रथाश्च भूपाला भाव्याः साहस्रवत्सरम ॥४९॥
-
 > sunīthaḥ satyajid atha
 > viśvajid yad ripuñjayaḥ
 > bārhadrathāś ca bhūpālā
@@ -12960,10 +10362,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 
 ### SB 9.23.1
 
-> श्रीशुक उवाच
-> अनोः सभानरश्चक्षुः परेष्णुश्च त्रयः सुताः
-> सभानरात्कालनरः सृञ्जयस्तत्सुतस्ततः ॥१॥
-
 > śrī-śuka uvāca
 > anoḥ sabhānaraś cakṣuḥ
 > pareṣṇuś ca trayaḥ sutāḥ
@@ -12976,9 +10374,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 
 ### SB 9.23.2
 
-> जनमेजयस्तस्य पुत्रो महाशालो महामनाः
-> उशीनरस्तितिक्षुश्च महामनस आत्मजौ ॥२॥
-
 > janamejayas tasya putro
 > mahāśālo mahāmanāḥ
 > uśīnaras titikṣuś ca
@@ -12989,11 +10384,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 **From Sṛñjaya came a son named Janamejaya. From Janamejaya came Mahāśāla; from Mahāśāla, Mahāmanā; and from Mahāmanā two sons, named Uśīnara and Titikṣu.**
 
 ### SB 9.23.3-4
-
-> शिबिर्वरः कृमिर्दक्षश्चत्वारोशीनरात्मजाः
-> वृषादर्भः सुधीरश्च मद्रः केकय आत्मवान ॥३॥
-> शिबेश्चत्वार एवासंस्तितिक्षोश्च रुषद्रथः
-> ततो होमोऽथ सुतपा बलिः सुतपसोऽभवत ॥४॥
 
 > śibir varaḥ kṛmir dakṣaś
 > catvārośīnarātmajāḥ
@@ -13011,9 +10401,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 
 ### SB 9.23.5
 
-> अङ्गवङ्गकलिङ्गाद्याः सुह्मपुण्ड्रौड्रसंज्ञइताः
-> जज्ञइरे दीर्घतमसो बलेः क्षेत्रे महीक्षितः ॥५॥
-
 > aṅga-vaṅga-kaliṅgādyāḥ
 > suhma-puṇḍrauḍra-saṁjñitāḥ
 > jajñire dīrghatamaso
@@ -13025,9 +10412,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 
 ### SB 9.23.6
 
-> चक्रुः स्वनाम्ना विषयान्षडिमान्प्राच्यकांश्च ते
-> खलपानोऽङ्गतो जज्ञए तस्माद्दिविरथस्ततः ॥६॥
-
 > cakruḥ sva-nāmnā viṣayān
 > ṣaḍ imān prācyakāṁś ca te
 > khalapāno 'ṅgato jajñe
@@ -13038,15 +10422,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 **These six sons, headed by Aṅga, later became kings of six states in the eastern side of India. These states were known according to the names of their respective kings. From Aṅga came a son named Khalapāna, and from Khalapāna came Diviratha.**
 
 ### SB 9.23.7-10
-
-> सुतो धर्मरथो यस्य जज्ञए चित्ररथोऽप्रजाः
-> रोमपाद इति ख्यातस्तस्मै दशरथः सखा ॥७॥
-> शान्तां स्वकन्यां प्रायच्छदृष्यशृङ्ग उवाह याम
-> देवेऽवर्षति यं रामा आनिन्युर्हरिणीसुतम ॥८॥
-> नाट्यसङ्गीतवादित्रैर्विभ्रमालिङ्गनार्हणैः
-> स तु राज्ञओऽनपत्यस्य निरूप्येष्टिं मरुत्वते ॥९॥
-> प्रजामदाद्दशरथो येन लेभेऽप्रजाः प्रजाः
-> चतुरङ्गो रोमपादात्पृथुलाक्षस्तु तत्सुतः ॥१०॥
 
 > suto dharmaratho yasya
 > jajñe citraratho 'prajāḥ
@@ -13074,9 +10449,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 
 ### SB 9.23.11
 
-> बृहद्रथो बृहत्कर्मा बृहद्भानुश्च तत्सुताः
-> आद्याद्बृहन्मनास्तस्माज्जयद्रथ उदाहृतः ॥११॥
-
 > bṛhadratho bṛhatkarmā
 > bṛhadbhānuś ca tat-sutāḥ
 > ādyād bṛhanmanās tasmāj
@@ -13087,9 +10459,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 **The sons of Pṛthulākṣa were Bṛhadratha, Bṛhatkarmā and Bṛhadbhānu. From the eldest, Bṛhadratha, came a son named Bṛhanmanā, and from Bṛhanmanā came a son named Jayadratha.**
 
 ### SB 9.23.12
-
-> विजयस्तस्य सम्भूत्यां ततो धृतिरजायत
-> ततो धृतव्रतस्तस्य सत्कर्माधिरथस्ततः ॥१२॥
 
 > vijayas tasya sambhūtyāṁ
 > tato dhṛtir ajāyata
@@ -13102,9 +10471,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 
 ### SB 9.23.13
 
-> योऽसौ गङ्गातटे क्रीडन्मञ्जूषान्तर्गतं शिशुम
-> कुन्त्यापविद्धं कानीनमनपत्योऽकरोत्सुतम ॥१३॥
-
 > yo 'sau gaṅgā-taṭe krīḍan
 > mañjūṣāntargataṁ śiśum
 > kuntyāpaviddhaṁ kānīnam
@@ -13115,9 +10481,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 **While playing on the bank of the Ganges, Adhiratha found a baby wrapped up in a basket. The baby had been left by Kuntī because he was born before she was married. Because Adhiratha had no sons, he raised this baby as his own. [This son was later known as Karṇa.]**
 
 ### SB 9.23.14
-
-> वृषसेनः सुतस्तस्य कर्णस्य जगतीपते
-> द्रुह्योश्च तनयो बभ्रुः सेतुस्तस्यात्मजस्ततः ॥१४॥
 
 > vṛṣasenaḥ sutas tasya
 > karṇasya jagatīpate
@@ -13130,9 +10493,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 
 ### SB 9.23.15
 
-> आरब्धस्तस्य गान्धारस्तस्य धर्मस्ततो धृतः
-> धृतस्य दुर्मदस्तस्मात्प्रचेताः प्राचेतसः शतम ॥१५॥
-
 > ārabdhas tasya gāndhāras
 > tasya dharmas tato dhṛtaḥ
 > dhṛtasya durmadas tasmāt
@@ -13143,9 +10503,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 **The son of Setu was Ārabdha, Ārabdha's son was Gāndhāra, and Gāndhāra's son was Dharma. Dharma's son was Dhṛta, Dhṛta's son was Durmada, and Durmada's son was Pracetā, who had one hundred sons.**
 
 ### SB 9.23.16
-
-> म्लेच्छाधिपतयोऽभूवन्नुदीचीं दिशमाश्रिताः
-> तुर्वसोश्च सुतो वह्निर्वह्नेर्भर्गोऽथ भानुमान ॥१६॥
 
 > mlecchādhipatayo 'bhūvann
 > udīcīṁ diśam āśritāḥ
@@ -13158,9 +10515,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 
 ### SB 9.23.17
 
-> त्रिभानुस्तत्सुतोऽस्यापि करन्धम उदारधीः
-> मरुतस्तत्सुतोऽपुत्रः पुत्रं पौरवमन्वभूत ॥१७॥
-
 > tribhānus tat-suto 'syāpi
 > karandhama udāra-dhīḥ
 > marutas tat-suto 'putraḥ
@@ -13171,11 +10525,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 **The son of Bhānumān was Tribhānu, and his son was the magnanimous Karandhama. Karandhama's son was Maruta, who had no sons and who therefore adopted a son of the Pūru dynasty [Mahārāja Duṣmanta] as his own.**
 
 ### SB 9.23.18-19
-
-> दुष्मन्तः स पुनर्भेजे स्ववंशं राज्यकामुकः
-> ययातेर्ज्येष्ठपुत्रस्य यदोर्वंशं नरर्षभ ॥१८॥
-> वर्णयामि महापुण्यं सर्वपापहरं नृणाम
-> यदोर्वंशं नरः श्रुत्वा सर्वपापैः प्रमुच्यते ॥१९॥
 
 > duṣmantaḥ sa punar bheje
 > sva-vaṁśaṁ rājya-kāmukaḥ
@@ -13192,11 +10541,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-second Chapter, o
 **Mahārāja Duṣmanta, desiring to occupy the throne, returned to his original dynasty [the Pūru dynasty], even though he had accepted Maruta as his father. O Mahārāja Parīkṣit, let me now describe the dynasty of Yadu, the eldest son of Mahārāja Yayāti. This description is supremely pious, and it vanquishes the reactions of sinful activities in human society. Simply by hearing this description, one is freed from all sinful reactions.**
 
 ### SB 9.23.20-21
-
-> यत्रावतीर्णो भगवान्परमात्मा नराकृतिः
-> यदोः सहस्रजित्क्रोष्टा नलो रिपुरिति श्रुताः ॥२०॥
-> चत्वारः सूनवस्तत्र शतजित्प्रथमात्मजः
-> महाहयो रेणुहयो हैहयश्चेति तत्सुताः ॥२१॥
 
 > yatrāvatīrṇo bhagavān
 > paramātmā narākṛtiḥ
@@ -13237,9 +10581,6 @@ As confirmed in *Śrīmad-Bhāgavatam* (1.2.11):
 
 ### SB 9.23.22
 
-> धर्मस्तु हैहयसुतो नेत्रः कुन्तेः पिता ततः
-> सोहञ्जिरभवत्कुन्तेर्महिष्मान्भद्रसेनकः ॥२२॥
-
 > dharmas tu haihaya-suto
 > netraḥ kunteḥ pitā tataḥ
 > sohañjir abhavat kunter
@@ -13250,9 +10591,6 @@ As confirmed in *Śrīmad-Bhāgavatam* (1.2.11):
 **The son of Haihaya was Dharma, and the son of Dharma was Netra, the father of Kunti. From Kunti came a son named Sohañji, from Sohañji came Mahiṣmān, and from Mahiṣmān, Bhadrasenaka.**
 
 ### SB 9.23.23
-
-> दुर्मदो भद्रसेनस्य धनकः कृतवीर्यसूः
-> कृताग्निः कृतवर्मा च कृतौजा धनकात्मजाः ॥२३॥
 
 > durmado bhadrasenasya
 > dhanakaḥ kṛtavīryasūḥ
@@ -13265,9 +10603,6 @@ As confirmed in *Śrīmad-Bhāgavatam* (1.2.11):
 
 ### SB 9.23.24
 
-> अर्जुनः कृतवीर्यस्य सप्तद्वीपेश्वरोऽभवत
-> दत्तात्रेयाद्धरेरंशात्प्राप्तयोगमहागुणः ॥२४॥
-
 > arjunaḥ kṛtavīryasya
 > sapta-dvīpeśvaro 'bhavat
 > dattātreyād dharer aṁśāt
@@ -13278,9 +10613,6 @@ As confirmed in *Śrīmad-Bhāgavatam* (1.2.11):
 **The son of Kṛtavīrya was Arjuna. He [Kārtavīryārjuna] became the emperor of the entire world, consisting of seven islands, and received mystic power from Dattātreya, the incarnation of the Supreme Personality of Godhead. Thus he obtained the mystic perfections known as *aṣṭa-siddhi*.**
 
 ### SB 9.23.25
-
-> न नूनं कार्तवीर्यस्य गतिं यास्यन्ति पार्थिवाः
-> यज्ञअदानतपोयोगैः श्रुतवीर्यदयादिभिः ॥२५॥
 
 > na nūnaṁ kārtavīryasya
 > gatiṁ yāsyanti pārthivāḥ
@@ -13293,9 +10625,6 @@ As confirmed in *Śrīmad-Bhāgavatam* (1.2.11):
 
 ### SB 9.23.26
 
-> पञ्चाशीति सहस्राणि ह्यव्याहतबलः समाः
-> अनष्टवित्तस्मरणो बुभुजेऽक्षय्यषड्वसु ॥२६॥
-
 > pañcāśīti sahasrāṇi
 > hy avyāhata-balaḥ samāḥ
 > anaṣṭa-vitta-smaraṇo
@@ -13306,9 +10635,6 @@ As confirmed in *Śrīmad-Bhāgavatam* (1.2.11):
 **For eighty-five thousand years, Kārtavīryārjuna continuously enjoyed material opulences with full bodily strength and unimpaired memory. In other words, he enjoyed inexhaustible material opulences with his six senses.**
 
 ### SB 9.23.27
-
-> तस्य पुत्रसहस्रेषु पञ्चैवोर्वरिता मृधे
-> जयध्वजः शूरसेनो वृषभो मधुरूर्जितः ॥२७॥
 
 > tasya putra-sahasreṣu
 > pañcaivorvaritā mṛdhe
@@ -13321,9 +10647,6 @@ As confirmed in *Śrīmad-Bhāgavatam* (1.2.11):
 
 ### SB 9.23.28
 
-> जयध्वजात्तालजङ्घस्तस्य पुत्रशतं त्वभूत
-> क्षत्रं यत्तालजङ्घाख्यमौर्वतेजोपसंहृतम ॥२८॥
-
 > jayadhvajāt tālajaṅghas
 > tasya putra-śataṁ tv abhūt
 > kṣatraṁ yat tālajaṅghākhyam
@@ -13335,9 +10658,6 @@ As confirmed in *Śrīmad-Bhāgavatam* (1.2.11):
 
 ### SB 9.23.29
 
-> तेषां ज्येष्ठो वीतिहोत्रो वृष्णिः पुत्रो मधोः स्मृतः
-> तस्य पुत्रशतं त्वासीद्वृष्णिज्येष्ठं यतः कुलम ॥२९॥
-
 > teṣāṁ jyeṣṭho vītihotro
 > vṛṣṇiḥ putro madhoḥ smṛtaḥ
 > tasya putra-śataṁ tv āsīd
@@ -13348,11 +10668,6 @@ As confirmed in *Śrīmad-Bhāgavatam* (1.2.11):
 **Of the sons of Tālajaṅgha, Vītihotra was the eldest. The son of Vītihotra named Madhu had a celebrated son named Vṛṣṇi. Madhu had one hundred sons, of whom Vṛṣṇi was the eldest. The dynasties known as Yādava, Mādhava and Vṛṣṇi had their origin from Yadu, Madhu and Vṛṣṇi.**
 
 ### SB 9.23.30-31
-
-> माधवा वृष्णयो राजन्यादवाश्चेति संज्ञइताः
-> यदुपुत्रस्य च क्रोष्टोः पुत्रो वृजिनवांस्ततः ॥३०॥
-> स्वाहितोऽतो विषद्गुर्वै तस्य चित्ररथस्ततः
-> शशबिन्दुर्महायोगी महाभागो महानभूत ॥३१॥
 
 > mādhavā vṛṣṇayo rājan
 > yādavāś ceti saṁjñitāḥ
@@ -13374,9 +10689,6 @@ In the *Mārkaṇḍeya Purāṇa* the fourteen kinds of great jewels are descri
 
 ### SB 9.23.32
 
-> चतुर्दशमहारत्नश्चक्रवर्त्यपराजितः
-> तस्य पत्नीसहस्राणां दशानां सुमहायशाः ॥३२॥
-
 > tasya patnī-sahasrāṇāṁ
 > daśānāṁ sumahā-yaśāḥ
 > daśa-lakṣa-sahasrāṇi
@@ -13387,9 +10699,6 @@ In the *Mārkaṇḍeya Purāṇa* the fourteen kinds of great jewels are descri
 **The famous Śaśabindu had ten thousand wives, and by each he begot a lakh of sons. Therefore the number of his sons was ten thousand lakhs.**
 
 ### SB 9.23.33
-
-> दशलक्षसहस्राणि पुत्राणां तास्वजीजनत
-> तेषां तु षट्प्रधानानां पृथुश्रवस आत्मजः ॥३३॥
 
 > teṣāṁ tu ṣaṭ pradhānānāṁ
 > pṛthuśravasa ātmajaḥ
@@ -13402,9 +10711,6 @@ In the *Mārkaṇḍeya Purāṇa* the fourteen kinds of great jewels are descri
 
 ### SB 9.23.34
 
-> धर्मो नामोशना तस्य हयमेधशतस्य याट
-> तत्सुतो रुचकस्तस्य पञ्चासन्नात्मजाः शृणु ॥३४॥
-
 > tat-suto rucakas tasya
 > pañcāsann ātmajāḥ śṛṇu
 > purujid-rukma-rukmeṣu-
@@ -13415,11 +10721,6 @@ In the *Mārkaṇḍeya Purāṇa* the fourteen kinds of great jewels are descri
 **The son of Uśanā was Rucaka, who had five sons—Purujit, Rukma, Rukmeṣu, Pṛthu and Jyāmagha. Please hear of these sons from me.**
 
 ### SB 9.23.35-36
-
-> पुरुजिद्रुक्मरुक्मेषु पृथुज्यामघसंज्ञइताः
-> ज्यामघस्त्वप्रजोऽप्यन्यां भार्यां शैब्यापतिर्भयात ॥३५॥
-> नाविन्दच्छत्रुभवनाद्भोज्यां कन्यामहारषीत
-> रथस्थां तां निरीक्ष्याह शैब्या पतिममर्षिता ॥३६॥
 
 > jyāmaghas tv aprajo 'py anyāṁ
 > bhāryāṁ śaibyā-patir bhayāt
@@ -13439,9 +10740,6 @@ In the *Mārkaṇḍeya Purāṇa* the fourteen kinds of great jewels are descri
 
 ### SB 9.23.37
 
-> केयं कुहक मत्स्थानं रथमारोपितेति वै
-> स्नुषा तवेत्यभिहिते स्मयन्ती पतिमब्रवीत ॥३७॥
-
 > ahaṁ bandhyāsapatnī ca
 > snuṣā me yujyate katham
 > janayiṣyasi yaṁ rājñi
@@ -13452,9 +10750,6 @@ In the *Mārkaṇḍeya Purāṇa* the fourteen kinds of great jewels are descri
 **Śaibyā said, "I am sterile and have no co-wife. How can this girl be my daughter-in-law? Please tell me." Jyāmagha replied, "My dear Queen, I shall see that you indeed have a son and that this girl will be your daughter-in-law."**
 
 ### SB 9.23.38
-
-> अहं बन्ध्यासपत्नी च स्नुषा मे युज्यते कथम
-> जनयिष्यसि यं राज्ञइ तस्येयमुपयुज्यते ॥३८॥
 
 > anvamodanta tad viśve-
 > devāḥ pitara eva ca
@@ -13473,10 +10768,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.1
 
-> श्रीशुक उवाच
-> तस्यां विदर्भोऽजनयत्पुत्रौ नाम्ना कुशक्रथौ
-> तृतीयं रोमपादं च विदर्भकुलनन्दनम ॥१॥
-
 > śrī-śuka uvāca
 > tasyāṁ vidarbho 'janayat
 > putrau nāmnā kuśa-krathau
@@ -13489,9 +10780,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.2
 
-> रोमपादसुतो बभ्रुर्बभ्रोः कृतिरजायत
-> उशिकस्तत्सुतस्तस्माच्चेदिश्चैद्यादयो नृपाः ॥२॥
-
 > romapāda-suto babhrur
 > babhroḥ kṛtir ajāyata
 > uśikas tat-sutas tasmāc
@@ -13502,11 +10790,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 **The son of Romapāda was Babhru, from whom there came a son named Kṛti. The son of Kṛti was Uśika, and the son of Uśika was Cedi. From Cedi was born the king known as Caidya and others.**
 
 ### SB 9.24.3-4
-
-> क्रथस्य कुन्तिः पुत्रोऽभूद्वृष्णिस्तस्याथ निर्वृतिः
-> ततो दशार्हो नाम्नाभूत्तस्य व्योमः सुतस्ततः ॥३॥
-> जीमूतो विकृतिस्तस्य यस्य भीमरथः सुतः
-> ततो नवरथः पुत्रो जातो दशरथस्ततः ॥४॥
 
 > krathasya kuntiḥ putro 'bhūd
 > vṛṣṇis tasyātha nirvṛtiḥ
@@ -13524,9 +10807,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.5
 
-> करम्भिः शकुनेः पुत्रो देवरातस्तदात्मजः
-> देवक्षत्रस्ततस्तस्य मधुः कुरुवशादनुः ॥५॥
-
 > karambhiḥ śakuneḥ putro
 > devarātas tad-ātmajaḥ
 > devakṣatras tatas tasya
@@ -13537,13 +10817,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 **From Daśaratha came a son named Śakuni and from Śakuni a son named Karambhi. The son of Karambhi was Devarāta, and his son was Devakṣatra. The son of Devakṣatra was Madhu, and his son was Kuruvaśa, from whom there came a son named Anu.**
 
 ### SB 9.24.6-8
-
-> पुरुहोत्रस्त्वनोः पुत्रस्तस्यायुः सात्वतस्ततः
-> भजमानो भजिर्दिव्यो वृष्णिर्देवावृधोऽन्धकः ॥६॥
-> सात्वतस्य सुताः सप्त महाभोजश्च मारिष
-> भजमानस्य निम्लोचिः किङ्कणो धृष्टिरेव च ॥७॥
-> एकस्यामात्मजाः पत्न्यामन्यस्यां च त्रयः सुताः
-> शताजिच्च सहस्राजिदयुताजिदिति प्रभो ॥८॥
 
 > puruhotras tv anoḥ putras
 > tasyāyuḥ sātvatas tataḥ
@@ -13566,9 +10839,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.9
 
-> बभ्रुर्देवावृधसुतस्तयोः श्लोकौ पठन्त्यमू
-> यथैव शृणुमो दूरात्सम्पश्यामस्तथान्तिकात ॥९॥
-
 > babhrur devāvṛdha-sutas
 > tayoḥ ślokau paṭhanty amū
 > yathaiva śṛṇumo dūrāt
@@ -13579,11 +10849,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 **The son of Devāvṛdha was Babhru. Concerning Devāvṛdha and Babhru there are two famous songs of prayer, which were sung by our predecessors and which we have heard from a distance. Even now I hear the same prayers about their qualities [because that which was heard before is still sung continuously].**
 
 ### SB 9.24.10-11
-
-> बभ्रुः श्रेष्ठो मनुष्याणां देवैर्देवावृधः समः
-> पुरुषाः पञ्चषष्टिश्च षट्सहस्राणि चाष्ट च ॥१०॥
-> येऽमृतत्वमनुप्राप्ता बभ्रोर्देवावृधादपि
-> महाभोजोऽतिधर्मात्मा भोजा आसंस्तदन्वये ॥११॥
 
 > babhruḥ śreṣṭho manuṣyāṇāṁ
 > devair devāvṛdhaḥ samaḥ
@@ -13601,9 +10866,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.12
 
-> वृष्णेः सुमित्रः पुत्रोऽभूद्युधाजिच्च परन्तप
-> शिनिस्तस्यानमित्रश्च निघ्नोऽभूदनमित्रतः ॥१२॥
-
 > vṛṣṇeḥ sumitraḥ putro 'bhūd
 > yudhājic ca parantapa
 > śinis tasyānamitraś ca
@@ -13614,9 +10876,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 **O King, Mahārāja Parīkṣit, who can suppress your enemies, the sons of Vṛṣṇi were Sumitra and Yudhājit. From Yudhājit came Śini and Anamitra, and from Anamitra came a son named Nighna.**
 
 ### SB 9.24.13
-
-> सत्राजितः प्रसेनश्च निघ्नस्याथासतुः सुतौ
-> अनमित्रसुतो योऽन्यः शिनिस्तस्य च सत्यकः ॥१३॥
 
 > satrājitaḥ prasenaś ca
 > nighnasyāthāsatuḥ sutau
@@ -13629,9 +10888,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.14
 
-> युयुधानः सात्यकिर्वै जयस्तस्य कुणिस्ततः
-> युगन्धरोऽनमित्रस्य वृष्णिः पुत्रोऽपरस्ततः ॥१४॥
-
 > yuyudhānaḥ sātyakir vai
 > jayas tasya kuṇis tataḥ
 > yugandharo 'namitrasya
@@ -13643,9 +10899,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.15
 
-> श्वफल्कश्चित्ररथश्च गान्दिन्यां च श्वफल्कतः
-> अक्रूरप्रमुखा आसन्पुत्रा द्वादश विश्रुताः ॥१५॥
-
 > śvaphalkaś citrarathaś ca
 > gāndinyāṁ ca śvaphalkataḥ
 > akrūra-pramukhā āsan
@@ -13656,13 +10909,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 **From Vṛṣṇi came the sons named Śvaphalka and Citraratha. From Śvaphalka by his wife Gāndinī came Akrūra. Akrūra was the eldest, but there were twelve other sons, all of whom were most celebrated.**
 
 ### SB 9.24.16-18
-
-> आसङ्गः सारमेयश्च मृदुरो मृदुविद्गिरिः
-> धर्मवृद्धः सुकर्मा च क्षेत्रोपेक्षोऽरिमर्दनः ॥१६॥
-> शत्रुघ्नो गन्धमादश्च प्रतिबाहुश्च द्वादश
-> तेषां स्वसा सुचाराख्या द्वावक्रूरसुतावपि ॥१७॥
-> देववानुपदेवश्च तथा चित्ररथात्मजाः
-> पृथुर्विदूरथाद्याश्च बहवो वृष्णिनन्दनाः ॥१८॥
 
 > āsaṅgaḥ sārameyaś ca
 > mṛduro mṛduvid giriḥ
@@ -13685,9 +10931,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.19
 
-> कुकुरो भजमानश्च शुचिः कम्बलबर्हिषः
-> कुकुरस्य सुतो वह्निर्विलोमा तनयस्ततः ॥१९॥
-
 > kukuro bhajamānaś ca
 > śuciḥ kambalabarhiṣaḥ
 > kukurasya suto vahnir
@@ -13699,9 +10942,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.20
 
-> कपोतरोमा तस्यानुः सखा यस्य च तुम्बुरुः
-> अन्धकाद्दुन्दुभिस्तस्मादविद्योतः पुनर्वसुः ॥२०॥
-
 > kapotaromā tasyānuḥ
 > sakhā yasya ca tumburuḥ
 > andhakād dundubhis tasmād
@@ -13712,13 +10952,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 **The son of Vilomā was Kapotaromā, and his son was Anu, whose friend was Tumburu. From Anu came Andhaka; from Andhaka, Dundubhi; and from Dundubhi, Avidyota. From Avidyota came a son named Punarvasu.**
 
 ### SB 9.24.21-23
-
-> तस्याहुकश्चाहुकी च कन्या चैवाहुकात्मजौ
-> देवकश्चोग्रसेनश्च चत्वारो देवकात्मजाः ॥२१॥
-> देववानुपदेवश्च सुदेवो देववर्धनः
-> तेषां स्वसारः सप्तासन्धृतदेवादयो नृप ॥२२॥
-> शान्तिदेवोपदेवा च श्रीदेवा देवरक्षिता
-> सहदेवा देवकी च वसुदेव उवाह ताः ॥२३॥
 
 > tasyāhukaś cāhukī ca
 > kanyā caivāhukātmajau
@@ -13741,9 +10974,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.24
 
-> कंसः सुनामा न्यग्रोधः कङ्कः शङ्कुः सुहूस्तथा
-> राष्ट्रपालोऽथ धृष्टिश्च तुष्टिमानौग्रसेनयः ॥२४॥
-
 > kaṁsaḥ sunāmā nyagrodhaḥ
 > kaṅkaḥ śaṅkuḥ suhūs tathā
 > rāṣṭrapālo 'tha dhṛṣṭiś ca
@@ -13754,9 +10984,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 **Kaṁsa, Sunāmā, Nyagrodha, Kaṅka, Śaṅku, Suhū, Rāṣṭrapāla, Dhṛṣṭi and Tuṣṭimān were the sons of Ugrasena.**
 
 ### SB 9.24.25
-
-> कंसा कंसवती कङ्का शूरभू राष्ट्रपालिका
-> उग्रसेनदुहितरो वसुदेवानुजस्त्रियः ॥२५॥
 
 > kaṁsā kaṁsavatī kaṅkā
 > śūrabhū rāṣṭrapālikā
@@ -13769,9 +10996,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.26
 
-> शूरो विदूरथादासीद्भजमानस्तु तत्सुतः
-> शिनिस्तस्मात्स्वयं भोजो हृदिकस्तत्सुतो मतः ॥२६॥
-
 > śūro vidūrathād āsīd
 > bhajamānas tu tat-sutaḥ
 > śinis tasmāt svayaṁ bhojo
@@ -13783,9 +11007,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.27
 
-> देवमीढः शतधनुः कृतवर्मेति तत्सुताः
-> देवमीढस्य शूरस्य मारिषा नाम पत्न्यभूत ॥२७॥
-
 > devamīḍhaḥ śatadhanuḥ
 > kṛtavarmeti tat-sutāḥ
 > devamīḍhasya śūrasya
@@ -13796,15 +11017,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 **The three sons of Hṛdika were Devamīḍha, Śatadhanu and Kṛtavarmā. The son of Devamīḍha was Śūra, whose wife was named Māriṣā.**
 
 ### SB 9.24.28-31
-
-> तस्यां स जनयामास दश पुत्रानकल्मषान
-> वसुदेवं देवभागं देवश्रवसमानकम ॥२८॥
-> सृञ्जयं श्यामकं कङ्कं शमीकं वत्सकं वृकम
-> देवदुन्दुभयो नेदुरानका यस्य जन्मनि ॥२९॥
-> वसुदेवं हरेः स्थानं वदन्त्यानकदुन्दुभिम
-> पृथा च श्रुतदेवा च श्रुतकीर्तिः श्रुतश्रवाः ॥३०॥
-> राजाधिदेवी चैतेषां भगिन्यः पञ्च कन्यकाः
-> कुन्तेः सख्युः पिता शूरो ह्यपुत्रस्य पृथामदात ॥३१॥
 
 > tasyāṁ sa janayām āsa
 > daśa putrān akalmaṣān
@@ -13832,9 +11044,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.32
 
-> साप दुर्वाससो विद्यां देवहूतीं प्रतोषितात
-> तस्या वीर्यपरीक्षार्थमाजुहाव रविं शुचिः ॥३२॥
-
 > sāpa durvāsaso vidyāṁ
 > deva-hūtīṁ pratoṣitāt
 > tasyā vīrya-parīkṣārtham
@@ -13846,9 +11055,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 
 ### SB 9.24.33
 
-> तदैवोपागतं देवं वीक्ष्य विस्मितमानसा
-> प्रत्ययार्थं प्रयुक्ता मे याहि देव क्षमस्व मे ॥३३॥
-
 > tadaivopāgataṁ devaṁ
 > vīkṣya vismita-mānasā
 > pratyayārthaṁ prayuktā me
@@ -13859,9 +11065,6 @@ Thus end the Bhaktivedanta purports of the Ninth Canto, Twenty-third Chapter, of
 **As soon as Kuntī called for the demigod of the sun, he immediately appeared before her, and she was very much surprised. She told the sun-god, "I was simply examining the effectiveness of this mystic power. I am sorry I have called you unnecessarily. Please return and excuse me."**
 
 ### SB 9.24.34
-
-> अमोघं देवसन्दर्शमादधे त्वयि चात्मजम
-> योनिर्यथा न दुष्येत कर्ताहं ते सुमध्यमे ॥३४॥
 
 > amoghaṁ deva-sandarśam
 > ādadhe tvayi cātmajam
@@ -13876,9 +11079,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 
 ### SB 9.24.35
 
-> इति तस्यां स आधाय गर्भं सूर्यो दिवं गतः
-> सद्यः कुमारः सञ्जज्ञए द्वितीय इव भास्करः ॥३५॥
-
 > iti tasyāṁ sa ādhāya
 > garbhaṁ sūryo divaṁ gataḥ
 > sadyaḥ kumāraḥ sañjajñe
@@ -13889,9 +11089,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 **After saying this, the sun-god discharged his semen into the womb of Pṛthā and then returned to the celestial kingdom. Immediately thereafter, from Kuntī a child was born, who was like a second sun-god.**
 
 ### SB 9.24.36
-
-> तं सात्यजन्नदीतोये कृच्छ्राल्लोकस्य बिभ्यती
-> प्रपितामहस्तामुवाह पाण्डुर्वै सत्यविक्रमः ॥३६॥
 
 > taṁ sātyajan nadī-toye
 > kṛcchrāl lokasya bibhyatī
@@ -13904,9 +11101,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 
 ### SB 9.24.37
 
-> श्रुतदेवां तु कारूषो वृद्धशर्मा समग्रहीत
-> यस्यामभूद्दन्तवक्र ऋषिशप्तो दितेः सुतः ॥३७॥
-
 > śrutadevāṁ tu kārūṣo
 > vṛddhaśarmā samagrahīt
 > yasyām abhūd dantavakra
@@ -13917,9 +11111,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 **Vṛddhaśarmā, the King of Karūṣa, married Kuntī's sister Śrutadevā, and from her womb Dantavakra was born. Having been cursed by the sages headed by Sanaka, Dantavakra had formerly been born as the son of Diti named Hiraṇyākṣa.**
 
 ### SB 9.24.38
-
-> कैकेयो धृष्टकेतुश्च श्रुतकीर्तिमविन्दत
-> सन्तर्दनादयस्तस्यां पञ्चासन्कैकयाः सुताः ॥३८॥
 
 > kaikeyo dhṛṣṭaketuś ca
 > śrutakīrtim avindata
@@ -13932,9 +11123,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 
 ### SB 9.24.39
 
-> राजाधिदेव्यामावन्त्यौ जयसेनोऽजनिष्ट ह
-> दमघोषश्चेदिराजः श्रुतश्रवसमग्रहीत ॥३९॥
-
 > rājādhidevyām āvantyau
 > jayaseno 'janiṣṭa ha
 > damaghoṣaś cedi-rājaḥ
@@ -13945,9 +11133,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 **Through the womb of Rājādhidevī, another sister of Kuntī's, Jayasena begot two sons, named Vinda and Anuvinda. Similarly, the king of the Cedi state married Śrutaśravā. This king's name was Damaghoṣa.**
 
 ### SB 9.24.40
-
-> शिशुपालः सुतस्तस्याः कथितस्तस्य सम्भवः
-> देवभागस्य कंसायां चित्रकेतुबृहद्बलौ ॥४०॥
 
 > śiśupālaḥ sutas tasyāḥ
 > kathitas tasya sambhavaḥ
@@ -13960,9 +11145,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 
 ### SB 9.24.41
 
-> कंसवत्यां देवश्रवसः सुवीर इषुमांस्तथा
-> बकः कङ्कात्तु कङ्कायां सत्यजित्पुरुजित्तथा ॥४१॥
-
 > kaṁsavatyāṁ devaśravasaḥ
 > suvīra iṣumāṁs tathā
 > bakaḥ kaṅkāt tu kaṅkāyāṁ
@@ -13973,9 +11155,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 **Vasudeva's brother named Devaśravā married Kaṁsavatī, by whom he begot two sons, named Suvīra and Iṣumān. Kaṅka, by his wife Kaṅkā, begot three sons, named Baka, Satyajit and Purujit.**
 
 ### SB 9.24.42
-
-> सृञ्जयो राष्ट्रपाल्यां च वृषदुर्मर्षणादिकान
-> हरिकेशहिरण्याक्षौ शूरभूम्यां च श्यामकः ॥४२॥
 
 > sṛñjayo rāṣṭrapālyāṁ ca
 > vṛṣa-durmarṣaṇādikān
@@ -13988,9 +11167,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 
 ### SB 9.24.43
 
-> मिश्रकेश्यामप्सरसि वृकादीन्वत्सकस्तथा
-> तक्षपुष्करशालादीन्दुर्वाक्ष्यां वृक आदधे ॥४३॥
-
 > miśrakeśyām apsarasi
 > vṛkādīn vatsakas tathā
 > takṣa-puṣkara-śālādīn
@@ -14001,9 +11177,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 **Thereafter, King Vatsaka, by the womb of his wife, Miśrakeśī, who was an Apsarā, begot sons headed by Vṛka. Vṛka, by his wife, Durvākṣī, begot Takṣa, Puṣkara, Śāla and so on.**
 
 ### SB 9.24.44
-
-> सुमित्रार्जुनपालादीन्समीकात्तु सुदामनी
-> आनकः कर्णिकायां वै ऋतधामाजयावपि ॥४४॥
 
 > sumitrārjunapālādīn
 > samīkāt tu sudāmanī
@@ -14016,9 +11189,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 
 ### SB 9.24.45
 
-> पौरवी रोहिणी भद्रा मदिरा रोचना इला
-> देवकीप्रमुखाश्चासन्पत्न्य आनकदुन्दुभेः ॥४५॥
-
 > pauravī rohiṇī bhadrā
 > madirā rocanā ilā
 > devakī-pramukhāś cāsan
@@ -14030,9 +11200,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 
 ### SB 9.24.46
 
-> बलं गदं सारणं च दुर्मदं विपुलं ध्रुवम
-> वसुदेवस्तु रोहिण्यां कृतादीनुदपादयत ॥४६॥
-
 > balaṁ gadaṁ sāraṇaṁ ca
 > durmadaṁ vipulaṁ dhruvam
 > vasudevas tu rohiṇyāṁ
@@ -14043,11 +11210,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 **Vasudeva, by the womb of his wife Rohiṇī, begot sons such as Bala, Gada, Sāraṇa, Durmada, Vipula, Dhruva, Kṛta and others.**
 
 ### SB 9.24.47-48
-
-> सुभद्रो भद्रबाहुश्च दुर्मदो भद्र एव च
-> पौरव्यास्तनया ह्येते भूताद्या द्वादशाभवन ॥४७॥
-> नन्दोपनन्दकृतक शूराद्या मदिरात्मजाः
-> कौशल्या केशिनं त्वेकमसूत कुलनन्दनम ॥४८॥
 
 > subhadro bhadrabāhuś ca
 > durmado bhadra eva ca
@@ -14065,9 +11227,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 
 ### SB 9.24.49
 
-> रोचनायामतो जाता हस्तहेमाङ्गदादयः
-> इलायामुरुवल्कादीन्यदुमुख्यानजीजनत ॥४९॥
-
 > rocanāyām ato jātā
 > hasta-hemāṅgadādayaḥ
 > ilāyām uruvalkādīn
@@ -14078,9 +11237,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 **Vasudeva, by another of his wives, whose name was Rocanā, begot Hasta, Hemāṅgada and other sons. And by his wife named Ilā he begot sons headed by Uruvalka, all of whom were chief personalities in the dynasty of Yadu.**
 
 ### SB 9.24.50
-
-> विपृष्ठो धृतदेवायामेक आनकदुन्दुभेः
-> शान्तिदेवात्मजा राजन्प्रशमप्रसितादयः ॥५०॥
 
 > vipṛṣṭho dhṛtadevāyām
 > eka ānakadundubheḥ
@@ -14093,9 +11249,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 
 ### SB 9.24.51
 
-> राजन्यकल्पवर्षाद्या उपदेवासुता दश
-> वसुहंससुवंशाद्याः श्रीदेवायास्तु षट्सुताः ॥५१॥
-
 > rājanya-kalpa-varṣādyā
 > upadevā-sutā daśa
 > vasu-haṁsa-suvaṁśādyāḥ
@@ -14107,9 +11260,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 
 ### SB 9.24.52
 
-> देवरक्षितया लब्धा नव चात्र गदादयः
-> वसुदेवः सुतानष्टावादधे सहदेवया ॥५२॥
-
 > devarakṣitayā labdhā
 > nava cātra gadādayaḥ
 > vasudevaḥ sutān aṣṭāv
@@ -14120,13 +11270,6 @@ According to Vedic civilization, if a girl gives birth to a child before she is 
 **By the semen of Vasudeva in the womb of Devarakṣitā, nine sons were born, headed by Gadā. Vasudeva, who was religion personified, also had a wife named Sahadevā, by whose womb he begot eight sons, headed by Śruta and Pravara.**
 
 ### SB 9.24.53-55
-
-> प्रवरश्रुतमुख्यांश्च साक्षाद्धर्मो वसूनिव
-> वसुदेवस्तु देवक्यामष्ट पुत्रानजीजनत ॥५३॥
-> कीर्तिमन्तं सुषेणं च भद्रसेनमुदारधीः
-> ऋजुं सम्मर्दनं भद्रं सङ्कर्षणमहीश्वरम ॥५४॥
-> अष्टमस्तु तयोरासीत्स्वयमेव हरिः किल
-> सुभद्रा च महाभागा तव राजन्पितामही ॥५५॥
 
 > pravara-śruta-mukhyāṁś ca
 > sākṣād dharmo vasūn iva
@@ -14151,9 +11294,6 @@ The fifty-fifth verse says, *svayam eva hariḥ kila,* indicating that Kṛṣ�
 
 ### SB 9.24.56
 
-> यदा यदा हि धर्मस्य क्षयो वृद्धिश्च पाप्मनः
-> तदा तु भगवानीश आत्मानं सृजते हरिः ॥५६॥
-
 > yadā yadā hi dharmasya
 > kṣayo vṛddhiś ca pāpmanaḥ
 > tadā tu bhagavān īśa
@@ -14176,9 +11316,6 @@ In the present age, the Supreme Personality of Godhead has appeared as Śrī Cai
 
 ### SB 9.24.57
 
-> न ह्यस्य जन्मनो हेतुः कर्मणो वा महीपते
-> आत्ममायां विनेशस्य परस्य द्रष्टुरात्मनः ॥५७॥
-
 > na hy asya janmano hetuḥ
 > karmaṇo vā mahīpate
 > ātma-māyāṁ vineśasya
@@ -14200,9 +11337,6 @@ When Kṛṣṇa descends, however, He does so out of His merciful compassion fo
 "To deliver the pious and to annihilate the miscreants, as well as to reestablish the principles of religion, I advent Myself millennium after millennium." The Supreme Lord is not forced to appear. Indeed, no one can subject Him to force, for He is the Supreme Personality of Godhead. Everyone is under His control, and He is not under the control of anyone else. Foolish people who because of a poor fund of knowledge think that one can equal Kṛṣṇa or become Kṛṣṇa are condemned in every way. No one can equal or surpass Kṛṣṇa, who is therefore described as *asamaurdhva.* According to the *Viśva-kośa* dictionary, the word *māyā* is used in the sense of "false pride" and also in the sense of "compassion." For an ordinary living being, the body in which he appears is his punishment. As the Lord says in *Bhagavad-gītā* [[bg/7/14|(Bg. 7.14)]], *daivī hy eṣā guṇa-mayī mama māyā duratyayā:* "This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome." But when Kṛṣṇa comes the word *māyā* refers to His compassion or mercy upon the devotees and fallen souls. By His potency, the Lord can deliver everyone, whether sinful or pious.
 
 ### SB 9.24.58
-
-> यन्मायाचेष्टितं पुंसः स्थित्युत्पत्त्यप्ययाय हि
-> अनुग्रहस्तन्निवृत्तेरात्मलाभाय चेष्यते ॥५८॥
 
 > yan māyā-ceṣṭitaṁ puṁsaḥ
 > sthity-utpatty-apyayāya hi
@@ -14244,9 +11378,6 @@ The creation does not arise whimsically, as atheistic men think.
 
 ### SB 9.24.59
 
-> अक्षौहिणीनां पतिभिरसुरैर्नृपलाञ्छनैः
-> भुव आक्रम्यमाणाया अभाराय कृतोद्यमः ॥५९॥
-
 > akṣauhiṇīnāṁ patibhir
 > asurair nṛpa-lāñchanaiḥ
 > bhuva ākramyamāṇāyā
@@ -14262,9 +11393,6 @@ Everyone must understand Kṛṣṇa's activities (*janma karma ca me divyam* [[
 
 ### SB 9.24.60
 
-> कर्माण्यपरिमेयाणि मनसापि सुरेश्वरैः
-> सहसङ्कर्षणश्चक्रे भगवान्मधुसूदनः ॥६०॥
-
 > karmāṇy aparimeyāṇi
 > manasāpi sureśvaraiḥ
 > saha-saṅkarṣaṇaś cakre
@@ -14275,9 +11403,6 @@ Everyone must understand Kṛṣṇa's activities (*janma karma ca me divyam* [[
 **The Supreme Personality of Godhead, Kṛṣṇa, with the cooperation of Saṅkarṣaṇa, Balarāma, performed activities beyond the mental comprehension of even such personalities as Lord Brahmā and Lord Śiva. [For instance, Kṛṣṇa arranged the Battle of Kurukṣetra to kill many demons for the relief of the entire world.]**
 
 ### SB 9.24.61
-
-> कलौ जनिष्यमाणानां दुःखशोकतमोनुदम
-> अनुग्रहाय भक्तानां सुपुण्यं व्यतनोद्यशः ॥६१॥
 
 > kalau janiṣyamāṇānāṁ
 > duḥkha-śoka-tamo-nudam
@@ -14292,9 +11417,6 @@ The Lord's activities of saving the devotees and killing the demons (*paritrā�
 
 ### SB 9.24.62
 
-> यस्मिन्सत्कर्णपीयुषे यशस्तीर्थवरे सकृत
-> श्रोत्राञ्जलिरुपस्पृश्य धुनुते कर्मवासनाम ॥६२॥
-
 > yasmin sat-karṇa-pīyuṣe
 > yaśas-tīrtha-vare sakṛt
 > śrotrāñjalir upaspṛśya
@@ -14307,11 +11429,6 @@ The Lord's activities of saving the devotees and killing the demons (*paritrā�
 When the devotees aurally receive the activities of the Supreme Personality of Godhead as enacted in *Bhagavad-gītā* and *Śrīmad-Bhāgavatam,* they immediately achieve a transcendental vision in which they are no longer interested in materialistic activities. Thus they achieve freedom from the material world. For sense gratification practically everyone is engaged in materialistic activities, which prolong the process of *janma-mṛtyu jarā-vyādhi [[bg/13/8-12|[Bg. 13.9] ]]*—birth, death, old age and disease—but the devotee, simply by hearing the message of *Bhagavad-gītā* and further relishing the narrations of *Śrīmad-Bhāgavatam,* becomes so pure that he no longer takes interest in materialistic activities. At the moment, devotees in the Western countries are being attracted by Kṛṣṇa consciousness and becoming uninterested in materialistic activities, and therefore people are trying to oppose this movement. But they cannot possibly check this movement or stop the activities of the devotees in Europe and America by their artificial impositions. Here the words *śrotrāñjalir upaspṛśya* indicate that simply by hearing the transcendental activities of the Lord the devotees become so pure that they are immediately immune to the contamination of materialistic fruitive activities. *Anyābhilāṣitā-śūnyam* [Bhakti-rasāmṛta-sindhu 1.1.11] Materialistic activities are unnecessary for the soul, and therefore the devotees are freed from such activities. The devotees are situated in liberation (*brahma-bhūyāya kalpate* [[bg/14/26|[Bg. 14.26] ]]), and therefore they cannot be called back to their material homes and materialistic activities.
 
 ### SB 9.24.63-64
-
-> भोजवृष्ण्यन्धकमधु शूरसेनदशार्हकैः
-> श्लाघनीयेहितः शश्वत्कुरुसृञ्जयपाण्डुभिः ॥६३॥
-> स्निग्धस्मितेक्षितोदारैर्वाक्यैर्विक्रमलीलया
-> नृलोकं रमयामास मूर्त्या सर्वाङ्गरम्यया ॥६४॥
 
 > bhoja-vṛṣṇy-andhaka-madhu-
 > śūrasena-daśārhakaiḥ
@@ -14330,9 +11447,6 @@ When the devotees aurally receive the activities of the Supreme Personality of G
 The words *nṛlokaṁ ramayām āsa mūrtyā sarvāṅga-ramyayā* are significant. Kṛṣṇa is the original form. Bhagavān, the Supreme Personality of Godhead, is therefore described here by the word *mūrtyā.* The word *mūrti* means "form." Kṛṣṇa, or God, is never impersonal; the impersonal feature is but a manifestation of His transcendental body (*yasya prabhā prabhavato jagad-aṇḍa-koṭi* [Bs. 5.40]). The Lord is *narākṛti,* exactly resembling the form of a human being, but His form is different from ours. Therefore the word *sarvāṅga-ramyayā* informs us that every part of His body is pleasing for everyone to see. Apart from His smiling face, every part of His body—His hands, His legs, His chest—is pleasing to the devotees, who cannot at any time stop seeing the beautiful form of the Lord.
 
 ### SB 9.24.65
-
-> यस्याननं मकरकुण्डलचारुकर्ण भ्राजत्कपोलसुभगं सविलासहासम
-> नित्योत्सवं न ततृपुर्दृशिभिः पिबन्त्यो नार्यो नराश्च मुदिताः कुपिता निमेश्च ॥६५॥
 
 > yasyānanaṁ makara-kuṇḍala-cāru-karṇa-
 > bhrājat-kapola-subhagaṁ savilāsa-hāsam
@@ -14354,9 +11468,6 @@ As stated by the Lord Himself in the *Bhagavad-gītā* [[bg/7/3|(Bg. 7.3)]]:
 
 ### SB 9.24.66
 
-> जातो गतः पितृगृहाद्व्रजमेधितार्थो हत्वा रिपून्सुतशतानि कृतोरुदारः
-> उत्पाद्य तेषु पुरुषः क्रतुभिः समीजे आत्मानमात्मनिगमं प्रथयन्जनेषु ॥६६॥
-
 > jāto gataḥ pitṛ-gṛhād vrajam edhitārtho
 > hatvā ripūn suta-śatāni kṛtorudāraḥ
 > utpādya teṣu puruṣaḥ kratubhiḥ samīje
@@ -14369,9 +11480,6 @@ As stated by the Lord Himself in the *Bhagavad-gītā* [[bg/7/3|(Bg. 7.3)]]:
 As stated in *Bhagavad-gītā* [[bg/15/15|(Bg. 15.15)]], *vedaiś ca sarvair aham eva vedyaḥ*/ by all the *Vedas,* it is Kṛṣṇa who is to be known. Lord Śrī Kṛṣṇa, setting an example by His own behavior, performed many ritualistic ceremonies described in the *Vedas* and established the principles of *gṛhastha* life by marrying many wives and begetting many children just to show people in general how to be happy by living according to Vedic principles. The center of Vedic sacrifice is Kṛṣṇa (*vedaiś ca sarvair aham eva vedyaḥ*). To advance in human life, human society must follow the Vedic principles personally demonstrated by Lord Kṛṣṇa in His householder life. The real purpose of Kṛṣṇa's appearance, however, was to manifest how one can take part in loving affairs with the Supreme Personality of Godhead. Reciprocations of loving affairs in ecstasy are possible only in Vṛndāvana. Therefore just after His appearance as the son of Vasudeva, the Lord immediately left for Vṛndāvana. In Vṛndāvana, the Lord not only took part in loving affairs with His father and mother, the *gopīs* and the cowherd boys, but also gave liberation to many demons by killing them. As stated in *Bhagavad-gītā* [[bg/4/8|(Bg. 4.8)]], *paritrāṇāya sādhūnāṁ vināśāya ca duṣkṛtām:* the Lord appears in order to protect the devotees and kill the demons. This was fully exhibited by His personal behavior. In *Bhagavad-gītā* the Lord is understood by Arjuna to be *puruṣaṁ śāśvataṁ divyam*—the eternal, transcendental Supreme Person. Here also we find the words *utpādya teṣu puruṣaḥ.* Therefore it is to be concluded that the Absolute Truth is *puruṣa,* a person. The impersonal feature is but one of the features of His personality. Ultimately, He is a person; He is not impersonal. And not only is He *puruṣa,* a person, but He is the *līlā-puruṣottama,* the best of all persons.
 
 ### SB 9.24.67
-
-> पृथ्व्याः स वै गुरुभरं क्षपयन्कुरूणामन्तःसमुत्थकलिना युधि भूपचम्वः
-> दृष्ट्या विधूय विजये जयमुद्विघोष्य प्रोच्योद्धवाय च परं समगात्स्वधाम ॥६७॥
 
 > pṛthvyāḥ sa vai guru-bharaṁ kṣapayan kurūṇām
 > antaḥ-samuttha-kalinā yudhi bhūpa-camvaḥ

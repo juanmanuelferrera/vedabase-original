@@ -50,9 +50,6 @@ Svarāṭ. He is Self-effulgent. We develop our consciousness and knowledge by r
 
 ### Īśo 0b
 
-> ॐ पूर्णमदः पूर्णमिदं पूर्णात् पूर्णमुदच्यते।
-> पूर्णस्य पूर्णमादाय पूर्णमेवावशिष्यते॥
-
 > oṁ pūrṇam adaḥ pūrṇam idaṁ
 > pūrṇāt pūrṇam udacyate
 > pūrṇasya pūrṇam ādāya
@@ -73,9 +70,6 @@ This misleading life of sense enjoyment is called illusion, because the living e
 Any service in this world, whether social, political, communal, international or even interplanetary, will remain incomplete unless and until it is dovetailed with the Complete Whole. And, when everything is dovetailed with the Complete Whole, the attached parts and parcels also become complete in themselves.
 
 ### Īśo 1
-
-> ॐ ईशावास्यमिदँ सर्वं यत्किञ्च जगत्यां जगत्।
-> तेन त्यक्तेन भुञ्जीथा मा गृधः कस्यस्विद्धनम्॥१॥
 
 > īśāvāsyam idam sarvaṁ
 > yat kiñca jagatyāṁ jagat
@@ -110,9 +104,6 @@ Such a devotee can properly discharge the duty of human life. Those who do not d
 
 ### Īśo 2
 
-> कुर्वन्नेवेह कर्माणि जिजीविषेच्छतँ समाः।
-> एवं त्वयि नान्यथेतोऽस्ति न कर्म लिप्यते नरे॥२॥
-
 > kurvann eveha karmāṇi
 > jijīviṣec chataṁ samāḥ
 > evaṁ tvayi nānyatheto 'sti
@@ -137,9 +128,6 @@ God-centered activities are evaluated in the Bhagavad-gītā as being so rich th
 There is no point in living a long time like trees, or breathing like the bellows, or begetting children like the hog and the dog, or eating like the camel. Even a humble life, with God-centered activities, is more valuable than the colossal hoax of so-called altruism or socialism without any relation to God. When activities such as altruism are executed in the spirit of Śrī Īśopaniṣad, every one of them becomes a form of karma-yoga, as is recommended in the Bhagavad-gītā. And that guarantees the executor against the dangers of the evolutionary process of birth and death. Such God-centered activities, even though half-finished, are still good for the executor, because they will guarantee him the human form of life in his next birth. In this way he can have another chance to improve his position on the path of liberation.
 
 ### Īśo 3
-
-> असुर्या नाम ते लोका अन्धेन तमसाऽऽवृताः।
-> ताँस्ते प्रेत्याभिगच्छन्ति ये के चात्महनो जनाः॥३॥
 
 > asuryā nāma te lokā
 > andhena tamasāvṛtāḥ
@@ -166,9 +154,6 @@ Such materialistic asuras sometimes make a show of religiousness with the ultima
 
 ### Īśo 4
 
-> अनेजदेकं मनसो जवीयो नैनद्देवा आप्नुवन्पूर्वमर्षत्।
-> तद्धावतोऽन्यानत्येति तिष्ठत्तस्मिन्नपो मातरिश्वा दधाति॥४॥
-
 > anejad ekaṁ manaso javīyo
 > nainad devā āpnuvan pūrvam arṣat
 > tad dhāvato 'nyān atyeti tiṣṭhat
@@ -191,9 +176,6 @@ All these words mentioned in Mantra Four of Śrī Īśopaniṣad suggest very cl
 Proper use of one's initiative, active nature, with intelligence to understand that everything is but the potency of the Lord, can lead one to the revival of his original consciousness, which was lost on account of association with mãyã, the external energy. All power is obtained from the Lord, and therefore each particular power must be utilized to execute the will of the Lord, and not otherwise. The Lord can be known by one who has adopted a submissive attitude. Perfect knowledge means to know the Lord in all His features, to know about His potencies and how such potencies are working by His will. These things are exclusively described by the Lord in the Bhagavad-gītā, which is the essence of all the Upaniṣads.
 
 ### Īśo 5
-
-> तदेजति तन्नैजति तद्दूरे तद्वन्तिके।
-> तदन्तरस्य सर्वस्य तदु सर्वस्यास्य बाह्यतः॥५॥
 
 > tad ejati tan naijati
 > tad dūre tad v antike
@@ -228,9 +210,6 @@ Everything is manifested of His different energies, like the heat and light of f
 
 ### Īśo 6
 
-> यस्तु सर्वाणि भूतान्यात्मन्येवानुपश्यति।
-> सर्वभूतेषु चात्मानं ततो न विजुगुप्सते॥६॥
-
 > yas tu sarvāṇi bhūtāny
 > ātmany evānupaśyati
 > sarva-bhūteṣu cātmānaṁ
@@ -258,9 +237,6 @@ This cannot be seen by politicians who are always after some material gain. Imit
 
 ### Īśo 7
 
-> यस्मिन्सर्वाणि भूतान्यात्मैवाभूद्विजानतः।
-> तत्र को मोहः कः शोक एकत्वमनुपश्यतः॥७॥
-
 > yasmin sarvāṇi bhūtāny
 > ātmaivābhūd vijānataḥ
 > tatra ko mohaḥ kaḥ śoka
@@ -287,10 +263,6 @@ This and the Brahma-bhūta interest mentioned in the Bhagavad-gītā are one and
 None of them are impersonal. Such transcendental personalities are full of transcendental bliss, knowledge and life eternal. That is the real position of spiritual existence, and as soon as one is fully cognizant of this transcendental position he at once surrenders unto the Lotus Feet of the Supreme Being, Śrī Kṛṣṇa. But such mahãtmãs, Great Souls, are very rarely seen, because such transcendental realization is achieved only after many, many births. Once attained, however, there is no more illusion or distress, no more of the misery of material existence, and there is no birth and death as we experience in the present status of our life. That is the information we get from this mantra of Śrī Īśopaniṣad.
 
 ### Īśo 8
-
-> स पर्यगाच्छुक्रमकायमव्रणमस्नाविरँ शुद्धमपापविद्धम्।
-> कविर्मनीषी परिभूः स्वयम्भूर्याथातथ्यतोऽर्थान्
-> व्यदधाच्छाश्वतीभ्यः समाभ्यः॥८॥
 
 > sa paryagāc chukram akāyam avraṇam
 > asnāviram śuddham apāpa-viddham
@@ -325,9 +297,6 @@ The word prophylactic refers to His association, and is mentioned in the Bhagava
 
 ### Īśo 9
 
-> अन्धं तमः प्रविशन्ति येऽविद्यामुपासते।
-> ततो भूय इव ते तमो य उ विद्यायाँ रताः॥९॥
-
 > andhaṁ tamaḥ praviśanti
 > ye 'vidyām upāsate
 > tato bhūya iva te tamo
@@ -356,9 +325,6 @@ They do not know that the Vedic literature is not a collection of ordinary books
 They will agree to worship an ordinary man if he happens to be rich, but will never worship the actual Personality of Godhead. Such foolish men cannot recognize their own foolishness, regarding the question of how God can ever have been entrapped by illusion. If God were ever entrapped by illusion, then illusion would be more powerful than God. But they also say that God is all-powerful. If God is all-powerful, then how can He be overpowered by illusion? The self-made Gods cannot answer all these questions very clearly, but they are satisfied that they have become God themselves.
 
 ### Īśo 10
-
-> अन्यदेवाहुर्विद्ययाऽन्यदाहुरविद्यया।
-> इति शुश्रुम धीराणां ये नस्तद्विचचक्षिरे॥१०॥
 
 > anyad evāhur vidyayā-
 > nyad āhur avidyayā
@@ -390,9 +356,6 @@ Such a dhīra has realized that the material body and mind which he has acquired
 To follow the regulative principles, one must go under the shelter of a bona fide spiritual master. The transcendental message comes down from the spiritual master to the disciple with the regulative principles, and not in the hazardous way of nescient education. One can become a dhīra only by such submissive hearing from the Personality of Godhead. The perfect disciple must be like Arjuna, and the spiritual master must be as good as the Lord Himself. These are the processes of learning vidyã, knowledge, from the dhīra, the undisturbed. Adhīra, one who has not undergone the training of a dhīra, cannot be an instructive leader. Modern politicians who pose themselves as dhīras are themselves adhīras. One cannot expect perfect knowledge from them. They are busy with their own remuneration in dollars and pounds. How can they lead the mass of people to the right path of self realization? One must hear submissively from the dhīra in order to get actual education in life.
 
 ### Īśo 11
-
-> विद्यां चाविद्यां च यस्तद्वेदोभयँ सह।
-> अविद्यया मृत्युं तीर्त्वा विद्ययाऽमृतमश्नुते॥११॥
 
 > vidyāṁ cāvidyāṁ ca yas
 > tad vedobhayaṁ saha
@@ -431,9 +394,6 @@ The path of vidyã is most perfectly presented in the Śrīmad-Bhāgavatam. The 
 
 ### Īśo 12
 
-> अन्धं तमः प्रविशन्ति येऽसम्भूतिमुपासते।
-> ततो भूय इव ते तमो य उ सम्भूत्याँ रताः॥१२॥
-
 > andhaṁ tamaḥ praviśanti
 > ye 'sambhūtim upāsate
 > tato bhūya iva te tamo
@@ -466,9 +426,6 @@ In other words, the path of salvation, or getting out of the material clutches, 
 These rogues in human society are the most dangerous elements and, for want of religious government, they pass on without being punished by the law of the state. They cannot, however, avoid the law of the Supreme, Who has clearly declared in the Bhagavad- gītā that these envious demons, in the garb of religious propagandists, shall be thrown down into the darkest region of hell. It is confirmed in Śrī Īśopaniṣad that the pseudo-religionists are heading toward the most obnoxious place in the universe after finishing with the spiritual mastership business, which is simply for the matter of sense gratification.
 
 ### Īśo 13
-
-> अन्यदेवाहुः सम्भवादन्यदाहुरसम्भवात्।
-> इति शुश्रुम धीराणां ये नस्तद्विचचक्षिरे॥१३॥
 
 > anyad evāhuḥ sambhavād
 > anyad āhur asambhavāt
@@ -515,9 +472,6 @@ This stage of brãhminical qualification can be earned by anyone and everyone, p
 
 ### Īśo 14
 
-> सम्भूतिं च विनाशं च यस्तद्वेदोभयँ सह।
-> विनाशेन मृत्युं तीर्त्वा सम्भूत्याऽमृतमश्नुते॥१४॥
-
 > sambhūtiṁ ca vināśaṁ ca
 > yas tad vedobhayaṁ saha
 > vināśena mṛtyuṁ tīrtvā
@@ -548,9 +502,6 @@ They have been urged to open hospitals, but are not interested in educating them
 By knowing the vināśa alone—the temporary material manifestation—you cannot save anything: In the course of Nature, there is devastation at every moment. No one can be saved from these devastations by any efforts of hospital- opening. They can be saved only by complete knowledge of the eternal life of bliss and awareness. The whole Vedic scheme is meant to educate men in this art of achieving eternal life. People are often misguided by other, temporarily attractive things based on sense gratification, but that sort of service which thus misleads them is most degraded. You must save your fellow man in the right sense. There is no question of liking or disliking the truth. It is there. If you want to be saved from repeated birth and death you must take to the devotional service of the Lord. There can be no compromise in the matter of necessity.
 
 ### Īśo 15
-
-> हिरण्मयेन पात्रेण सत्यस्यापिहितं मुखम्।
-> तत्त्वं पूषन्नपावृणु सत्यधर्माय दृष्टये॥१५॥
 
 > hiraṇmayena pātreṇa
 > satyasyāpihitaṁ mukham
@@ -583,10 +534,6 @@ It is stated in the Gītā that amongst all types of transcendentalists, one who
 
 ### Īśo 16
 
-> पूषन्नेकर्षे यम सूर्य प्राजापत्य व्यूह रश्मीन् समूह तेजः।
-> यत्ते रूपं कल्याणतमं तत्ते
-> पश्यामि योऽसावसौ पुरुषः सोऽहमस्मि॥१६॥
-
 > pūṣann ekarṣe yama sūrya prājāpatya
 > vyūha raśmīn samūha
 > tejo yat te rūpaṁ kalyāṇa-tamaṁ
@@ -615,9 +562,6 @@ One who knows this engages himself at once in the devotional service of the Lord
 As is stated in the Katha Upaniṣad, the Lord can be known only to those whom He favors, and not to anyone else. And such special favors are bestowed upon His pure devotees only. Śrī Īśopaniṣad here indicates such favor of the Lord, beyond the purview of the Brahma-jyoti.
 
 ### Īśo 17
-
-> वायुरनिलममृतमथेदं भस्मांतँ शरीरम्।
-> ॐ क्रतो स्मर कृतँ स्मर क्रतो स्मर कृतँ स्मर॥१७॥
 
 > vāyur anilam amṛtam
 > athedaṁ bhasmāntaṁ śarīram
@@ -663,9 +607,6 @@ So-called human society is generally engaged at night in the matter of sleeping 
 One should therefore not indulge in hearing and speaking of the rubbish activities of worldly politicians and the so-called big men of society, but should so mold his life that not a second is wasted without engagement in godly activities. Śrī Īśopaniṣad directs us towards such activities. Unless one is accustomed to this devotional practice, what will he remember at the time of death when the body is dislocated, and how can he pray to the Almighty Lord to remember his sacrifices? Sacrifice means sacrificing the interest of the senses. One has to learn this art by employing the senses in the service of the Lord during one's lifetime, so that one can utilize the result at the time of death.
 
 ### Īśo 18
-
-> अग्ने नय सुपथा राये अस्मान् विश्वानि देव वयुनानि विद्वान्।
-> युयोध्यस्मज्जुहुराणमेनो भूयिष्ठां ते नमउक्तिं विधेम॥१८॥
 
 > agne naya supathā rāye asmān
 > viśvāni deva vayunāni vidvān
