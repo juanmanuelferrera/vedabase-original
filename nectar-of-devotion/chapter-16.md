@@ -4,7 +4,7 @@
 
 ## Parental Relationship
 
-In the attitude of the denizens of Vṛndāvana, such as Nanda Mahārāj and Mother Yaśodā, is to be found the ideal transcendental concept of being the father and mother of Kṛṣṇa, the original Personality of Godhead. Factually, no one can become the father or mother of Kṛṣṇa; but a devotee's possession of such transcendental feelings is called love of Kṛṣṇa in parental relationship. The Vṛṣṇis (Kṛṣṇa's relatives at Dvārakā) also felt like that. So spontaneous love of Kṛṣṇa in the parental relationship is found both amongst those denizens of Dvārakā who belonged to the dynasty of Vṛṣṇi, as well as amongst the inhabitants of Vṛndāvana.
+In the attitude of the denizens of Vṛndāvana, such as Nanda Mahārāj and Mother Yaśodā, is to be found the ideal transcendental concept of becoming the father and mother of Kṛṣṇa, the original Personality of Godhead. Factually, no one can become the father or mother of Kṛṣṇa; but a devotee's possession of such transcendental feelings is called love of Kṛṣṇa in parental relationship. The Vṛṣṇis (Kṛṣṇa's relatives at Dvārakā) also felt like that. So spontaneous love of Kṛṣṇa in the parental relationship is found both amongst those denizens of Dvārakā who belonged to the dynasty of Vṛṣṇi, as well as amongst the inhabitants of Vṛndāvana.
 
 Spontaneous love of Kṛṣṇa as exhibited by the Vṛṣṇis and the denizens of Vṛndāvana is eternally existing in them. In the stage of devotional service where regulative principles are followed, there is no necessity of discussing this love, for it must develop of itself at a more advanced stage.
 

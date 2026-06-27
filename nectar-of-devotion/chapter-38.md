@@ -10,7 +10,7 @@ Another devotee very anxiously expressed himself thusly: "My mind is very flicke
 
 In the *Kṛṣṇa-karṇāmṛta* Bilvamaṅgala Thākur has explained his restlessness as follows: "My dear Lord, Your naughtiness in boyhood is the most wonderful thing in the three worlds. And You Yourself know what this naughtiness is. As such, You can very easily understand my flickering mind. This is known to You and myself. Therefore, I am simply yearning to know how I can fix my mind on Your lotus feet."
 
-Another devotee expressed his impudence by saying: "My dear Lord, without considering my lowly position, I must confess to You that my eyes are just like black wasps, desiring to hover at Your lotus feet."
+Another devotee expressed his impudency by saying: "My dear Lord, without considering my lowly position, I must confess to You that my eyes are just like black wasps, desiring to hover at Your lotus feet."
 
 In the Seventh Canto of *Śrīmad-Bhāgavatam,* 4th Chapter, 27th verse, the great sage Nārada informs Mahārāj Yudhiṣṭhira about Prahlāda Mahārāj, who was a devotee from the very beginning of his life. The proof of Prahlāda's natural devotion is that even when he was a small child he did not play with his playmates, but was always eager to preach the glories of the Lord. Instead of joining in their sportive acrobatic feats, he remained as an inactive child because he was always in trance, meditating on Kṛṣṇa. As such, there was no possibility of his being touched by the external world.
 
