@@ -142,14 +142,21 @@ headings (chapter/canto labels) are omitted, since that information is carried i
 
 | Folder | One file per | Example file |
 |--------|--------------|--------------|
-| `bhagavad-gita-as-it-is/` | Bhagavad-gītā verse | `bg-1.1.md` |
-| `srimad-bhagavatam/` | Śrīmad-Bhāgavatam verse | `sb-1.1.1.md` |
-| `sri-caitanya-caritamrta/` | Caitanya-caritāmṛta verse | `cc-adi-1.1.md` |
+| `bhagavad-gita-as-it-is/chapter-NN/` | Bhagavad-gītā verse | `chapter-01/bg-1.1.md` |
+| `srimad-bhagavatam/canto-NN/chapter-NN/` | Śrīmad-Bhāgavatam verse | `canto-01/chapter-01/sb-1.1.1.md` |
+| `sri-caitanya-caritamrta/LILA-lila/chapter-NN/` | Caitanya-caritāmṛta verse | `madhya-lila/chapter-20/cc-madhya-20.1.md` |
 | `isopanisad/` | Śrī Īśopaniṣad mantra | `iso-1.md` |
 | `nectar-of-instruction/` | Upadeśāmṛta verse | `verse-1.md` |
 | `light-of-the-bhagavata/` | Light of the Bhāgavata text | `text-1.md` |
 | `krsna-the-supreme-personality-of-godhead/` | Kṛṣṇa book chapter | `chapter-1.md` |
 | `nectar-of-devotion/`, `teachings-of-lord-caitanya/`, `science-of-self-realization/`, … | chapter (prose books) | `chapter-1.md` |
+
+The three largest works are **nested by chapter** — Bhagavad-gītā by `chapter-NN/`, and
+Śrīmad-Bhāgavatam and Caitanya-caritāmṛta additionally by `canto-NN/` and `LILA-lila/` — so no
+single directory exceeds a few hundred files and stays browsable on GitHub (which truncates a
+folder listing at 1,000 entries). The smaller books are flat. Front matter (`preface.md`,
+`introduction.md`, …) sits at each book's root; chapter/canto folder numbers are zero-padded so
+they sort in order.
 
 ### File-name conventions
 
@@ -167,9 +174,11 @@ headings (chapter/canto labels) are omitted, since that information is carried i
 - Inside a prose chapter, the book's own `## ` subsection headings are kept within the chapter
   file.
 
-Names use simple, lowercase, dot/hyphen ids, so a single glob (`bg-*.md`, `sb-*.md`, …) selects a
-whole book in source order. Because the order is encoded in the verse numbers rather than in zero
-padding, lexical sort and numeric sort can differ (`bg-1.10.md` sorts before `bg-1.2.md`).
+Names use simple, lowercase, dot/hyphen ids, so a recursive glob selects a whole book
+(`bhagavad-gita-as-it-is/**/bg-*.md`, `srimad-bhagavatam/**/sb-*.md`). Because the order is
+encoded in the verse numbers rather than in zero padding, lexical sort and numeric sort of the
+*files* can differ (`bg-1.10.md` sorts before `bg-1.2.md`); the chapter/canto *folders* are
+zero-padded and sort correctly.
 
 ### Each verse file
 
