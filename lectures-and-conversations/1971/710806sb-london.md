@@ -89,7 +89,7 @@ So if you actually want knowledge, then you have to take knowledge by this disci
 
 Just like we are product of this material creation. This body, everyone knows it is a product of material creation. My father and mother created this body. My father and mother's body also created by somebody, somebody, somebody. Kṛṣṇa's body is not like that. Kṛṣṇa's body is beyond creation—*aham evāsam agre.* Because there was no creation, and Kṛṣṇa was existing before creation, then how you can say Kṛṣṇa's body is material? That is not possible.
 
-So when there was no material creation, Kṛṣṇa was there. Therefore His body is not... Therefore Kṛṣṇa says in the *Bhagavad-gītā, janma karma ajo 'pi san avyayātmā:* "I am born," *avyayātmā,* "eternal body; still, I take birth." *Bhūtānām īśvaro 'pi san:* "I am the Lord of everyone; still, I appear." These things are to be understood. And if we can understand Kṛṣṇa, *janma karma me divyam...* [*Bg*. 4.9].
+So when there was no material creation, Kṛṣṇa was there. Therefore His body is not... Therefore Kṛṣṇa says in the *Bhagavad-gītā, janma karma ajo 'pi san avyayātmā:* "I am unborn," *avyayātmā,* "eternal body; still, I take birth." *Bhūtānām īśvaro 'pi san:* "I am the Lord of everyone; still, I appear." These things are to be understood. And if we can understand Kṛṣṇa, *janma karma me divyam...* [*Bg*. 4.9].
 
 These are all transcendental knowledge. They are not ordinary knowledge. *Divyam,* transcendental. His appearance, His disappearance, His work, His activity, His pastimes, they are all transcendental. So anyone who can try to understand Kṛṣṇa in His transcendental position beyond creation, beyond creation...
 
