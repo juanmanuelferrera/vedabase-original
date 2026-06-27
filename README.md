@@ -133,14 +133,54 @@ The verification scripts live in the companion working repository; the
 
 ## Contents
 
-Generated directly from the vedabase.cc database, at the repository root. Small books are one
-file each; large works are split so every file stays browsable on GitHub:
+Generated directly from the vedabase.cc database. **Every book is a folder, and every verse is
+its own Markdown file** — so each unit is individually addressable for search, diffing, and
+parallel processing. Each file's content is verbatim from the database; only structural divider
+headings (chapter/canto labels) are omitted, since that information is carried in the file names.
+
+### Book folders
+
+| Folder | One file per | Example file |
+|--------|--------------|--------------|
+| `bhagavad-gita-as-it-is/` | Bhagavad-gītā verse | `bg-1.1.md` |
+| `srimad-bhagavatam/` | Śrīmad-Bhāgavatam verse | `sb-1.1.1.md` |
+| `sri-caitanya-caritamrta/` | Caitanya-caritāmṛta verse | `cc-adi-1.1.md` |
+| `isopanisad/` | Śrī Īśopaniṣad mantra | `iso-1.md` |
+| `nectar-of-instruction/` | Upadeśāmṛta verse | `verse-1.md` |
+| `light-of-the-bhagavata/` | Light of the Bhāgavata text | `text-1.md` |
+| `krsna-the-supreme-personality-of-godhead/` | Kṛṣṇa book chapter | `chapter-1.md` |
+| `nectar-of-devotion/`, `teachings-of-lord-caitanya/`, `science-of-self-realization/`, … | chapter (prose books) | `chapter-1.md` |
+
+### File-name conventions
+
+- **Verse files** keep the book's own verse id: `bg-1.1.md`, `sb-<canto>.<chapter>.<verse>.md`,
+  `cc-<līlā>-<chapter>.<verse>.md`, `iso-<n>.md`. Combined verses use a range, e.g.
+  `bg-1.16-18.md`.
+- **Chapter files** (prose books with no numbered verses) are `chapter-<n>.md`. Short
+  verse-texts without an id prefix are `verse-<n>.md` (Nectar of Instruction) or `text-<n>.md`
+  (Light of the Bhāgavata).
+- **Front matter** — dedication, foreword, preface, introduction, etc. — each gets its own file
+  named after the section: `preface.md`, `introduction.md`, `dedication.md`,
+  `disciplic-succession.md`.
+- **Chapter colophons** (the "Thus end the Bhaktivedanta Purports…" closings, Bhagavad-gītā only)
+  are `bg-<chapter>-colophon.md`.
+- Inside a prose chapter, the book's own `## ` subsection headings are kept within the chapter
+  file.
+
+Names use simple, lowercase, dot/hyphen ids, so a single glob (`bg-*.md`, `sb-*.md`, …) selects a
+whole book in source order. Because the order is encoded in the verse numbers rather than in zero
+padding, lexical sort and numeric sort can differ (`bg-1.10.md` sorts before `bg-1.2.md`).
+
+### Each verse file
+
+Holds exactly that verse's block as published: the `### Bg 1.1` heading, the Devanāgarī/Bengali
+and IAST śloka as `>` blockquotes, `*italic*` word-for-word synonyms, the `**bold**` translation,
+and the purport — byte-for-byte from the source.
+
+### Other material (unchanged)
 
 | Path | Contents |
 |------|----------|
-| `bhagavad-gita-as-it-is.md`, `isopanisad.md`, `nectar-of-devotion.md`, … | one file per small book |
-| `srimad-bhagavatam/canto-01.md` … `canto-10.md` | Śrīmad-Bhāgavatam, by canto |
-| `sri-caitanya-caritamrta/{adi,madhya,antya}-lila.md` | Caitanya-caritāmṛta, by līlā |
 | `letters/<year>.md` | 6,582 letters, by year |
 | `lectures-and-conversations/<year>/<id>.md` | one file per lecture / conversation |
 | `legacy-vedabase-site/` | the earlier vedabase.site text set, kept for reference |
