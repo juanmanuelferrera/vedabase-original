@@ -12,7 +12,7 @@
 
 *sparśān*—external sense objects, such as sound, etc.; *kṛtvā*—doing so; *bahiḥ*—external; *bāhyān*—unnecessary; *cakṣuḥ*—eyes; *ca*—also; *eva*—certainly; *antare*—within; *bhruvoḥ*—of the eyebrows; *prāṇa-apānau*—up-and down-moving air; *samau*—in suspension; *kṛtvā*—doing so; *nāsā-abhyantara*—within the nostrils; *cāriṇau*—blowing; *yata*—controlled; *indriya*—senses; *manaḥ*—mind; *buddhih*—intelligence; *muniḥ*—the transcendentalist; *mokṣa*—liberation; *parāyaṇaḥ*—being so destined; *vigata*—discarded; *icchā*—wishes; *bhaya*—fear; *krodhaḥ*—anger; *yaḥ*—one who; *sadā*—always; *muktaḥ*—liberated; *eva*—certainly; *saḥ*—he is.
 
-**Shutting out all external sense objects, keeping the eyes and vision concentrated between the two eyebrows, suspending the inward and outward breaths within the nostrils—thus controlling the mind, senses and intelligence, the tranecendentalist becomes free from desire, fear and anger. One who is always in this state is certainly liberated.**
+**Shutting out all external sense objects, keeping the eyes and vision concentrated between the two eyebrows, suspending the inward and outward breaths within the nostrils—thus controlling the mind, senses and intelligence, the transcendentalist becomes free from desire, fear and anger. One who is always in this state is certainly liberated.**
 
 Being engaged in Kṛṣṇa consciousness, one can immediately understand one's spiritual identity, and then one can understand the Supreme Lord by means of devotional service. When he is well situated in devotional service, one comes to the transcendental position, qualified to feel the presence of the Lord in the sphere of one's activity. This particular position is called liberation in the Supreme.
 

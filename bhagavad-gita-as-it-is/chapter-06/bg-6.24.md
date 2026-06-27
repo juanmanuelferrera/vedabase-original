@@ -11,7 +11,7 @@
 
 **One should engage oneself in the practice of yoga with undeviating determination and faith. One should abandon, without exception, all material desires born of false ego and thus control all the senses on all sides by the mind.**
 
-The *yoga* practitioner should be determined and should patiently prosecute the practice without deviation. One should be sure of success at the end and pursue this course with great perserverance, not becoming discouraged if there is any delay in the attainment of success. Success is sure for the rigid practitioner. Regarding *bhakti-yoga,* Rupa Gosvāmī says:
+The *yoga* practitioner should be determined and should patiently prosecute the practice without deviation. One should be sure of success at the end and pursue this course with great perseverance, not becoming discouraged if there is any delay in the attainment of success. Success is sure for the rigid practitioner. Regarding *bhakti-yoga,* Rupa Gosvāmī says:
 
 > utsāhān niścayād dhairyāt tat tat karma-pravartanāt
 > saṅga-tyāgāt satovṛtteḥ ṣaḍbhir bhaktiḥ prasidhyati
