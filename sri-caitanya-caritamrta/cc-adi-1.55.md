@@ -1,0 +1,14 @@
+### CC Adi 1.55
+
+> yathā mahānti bhūtāni
+> bhūteṣūccāvaceṣv anu
+> praviṣṭāny apraviṣṭāni
+> tathā teṣu na teṣv aham
+
+*yathā*—as; *mahānti*—the universal; *bhūtāni*—elements; *bhūteṣu*—in the living entities; *ucca-avaceṣu*—both gigantic and minute; *anu*—after; *praviṣṭāni*—situated internally; *apraviṣṭāni*—situated externally; *tathā*—so; *teṣu*—in them; *na*—not; *teṣu*—in them; *aham*—I.
+
+**"As the material elements enter the bodies of all living beings and yet remain outside them all, I exist within all material creations and yet am not within them.**
+
+The gross material elements (earth, water, fire, air and ether) combine with the subtle material elements (mind, intelligence and false ego) to construct the bodies of this material world, and yet they are beyond these bodies as well. Any material construction is nothing but an amalgamation or combination of material elements in varied proportions. These elements exist both within and beyond the body. For example, although the sky exists in space, it also enters within the body. Similarly, the Supreme Lord, who is the cause of the material energy, lives within the material world as well as beyond it. Without His presence within the material world, the cosmic body could not develop, just as without the presence of the spirit within the physical body, the body could not develop. The entire material manifestation develops and exists because the Supreme Personality of Godhead enters it as Paramātmā, or the Supersoul. The Personality of Godhead in His all-pervading feature of Paramātmā enters every entity, from the biggest to the most minute. His existence can be realized by one who has the single qualification of submissiveness and who thereby becomes a surrendered soul. The development of submissiveness is the cause of proportionate spiritual realization, by which one can ultimately meet the Supreme Lord in person, as a man meets another man face to face.
+
+Because of his development of transcendental attachment for the Supreme Lord, a surrendered soul feels the presence of his beloved everywhere, and all his senses are engaged in the loving service of the Lord. His eyes are engaged in seeing the beautiful couple Śrī Rādhā and Kṛṣṇa sitting on a decorated throne beneath a desire tree in the transcendental land of Vṛndāvana. His nose is engaged in smelling the spiritual aroma of the lotus feet of the Lord. Similarly, his ears are engaged in hearing messages from Vaikuṇṭha, and his hands embrace the lotus feet of the Lord and His associates. Thus the Lord is manifested to a pure devotee from within and without. This is one of the mysteries of the devotional relationship in which a devotee and the Lord are bound by a tie of spontaneous love. To achieve this love should be the goal of life for every living being.

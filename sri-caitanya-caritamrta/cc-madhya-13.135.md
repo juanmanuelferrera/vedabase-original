@@ -1,0 +1,8 @@
+### CC Madhya 13.135
+
+> svarūpa saṅge yāra artha kare āsvādana
+> nṛtya-madhye sei śloka karena paṭhana
+
+*svarūpa saṅge*—in the association of Svarūpa Dāmodara Gosvāmī; *yāra*—of which; *artha*—meaning; *kare*—does; *āsvādana*—taste; *nṛtya-madhye*—in the midst of dancing; *sei śloka*—that verse; *karena paṭhana*—recites.
+
+**While dancing, Śrī Caitanya Mahāprabhu again began to recite that verse, which He tasted in the association of Svarūpa Dāmodara Gosvāmī.**

@@ -1,0 +1,12 @@
+### Bg 9.21
+
+> te taṁ bhuktvā svarga-lokaṁ viśālaṁ
+> kṣīṇe puṇye martya-lokaṁ viśanti
+> evaṁ trayī-dharmam anuprapannā
+> gatāgataṁ kāma-kāmā labhante
+
+*te*—they; *tam*—that; *bhuktvā*—enjoying; *svarga-lokam*—heaven; *viśālam*—vast; *kṣīṇe*—being exhausted; *puṇye*—merits; *martya-lokam*—mortal earth; *viśanti*—fall down; *evam*—thus; *trayī*—three *Vedas*; *dharmam*—doctrines; *anuprapannāḥ*—following; *gata-agatam*—death and birth; *kāma-kāmāḥ*—desiring sense enjoyments; *labhante*—attain.
+
+**When they have thus enjoyed heavenly sense pleasure, they return to this mortal planet again. Thus, through the Vedic principles, they achieve only flickering happiness.**
+
+One who is promoted to those higher planetary systems enjoys a longer duration of life and better facilities for sense enjoyment, yet one is not allowed to stay there forever. One is again sent back to this earthly planet upon finishing the resultant fruits of pious activities. He who has not attained perfection of knowledge, as indicated in the *Vedānta-sūtra (janmādy asya yataḥ),* or, in other words, he who fails to understand Kṛṣṇa, the cause of all causes, becomes baffled in achieving the ultimate goal of life and is thus subjected to the routine of being promoted to the higher planets and then again coming down, as if situated on a ferris wheel which sometimes goes up and sometimes comes down. The purport is that instead of being elevated to the spiritual world where there is no longer any possibility of coming down, one simply revolves in the cycle of birth and death on higher and lower planetary systems. One should better take to the spiritual world to enjoy eternal life full of bliss and knowledge and never return to this miserable material existence.

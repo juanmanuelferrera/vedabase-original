@@ -1,0 +1,13 @@
+### SB 4.7.13
+
+> dakṣa uvāca
+> bhūyān anugraha aho bhavatā kṛto me
+> daṇḍas tvayā mayi bhṛto yad api pralabdhaḥ
+> na brahma-bandhuṣu ca vāṁ bhagavann avajñā
+> tubhyaṁ hareś ca kuta eva dhṛta-vrateṣu
+
+*dakṣaḥ*—King Dakṣa; *uvāca*—said; *bhūyān*—very great; *anugrahaḥ*—favor; *aho*—alas; *bhavatā*—by you; *kṛtaḥ*—done; *me*—upon me; *daṇḍaḥ*—punishment; *tvayā*—by you; *mayi*—unto me; *bhṛtaḥ*—done; *yat api*—although; *pralabdhaḥ*—defeated; *na*—neither; *brahma-bandhuṣu*—unto an unqualified *brāhmaṇa*; *ca*—also; *vām*—both of you; *bhagavan*—my lord; *avajñā*—negligence; *tubhyam*—of you; *hareḥ ca*—of Lord Viṣṇu; *kutaḥ*—where; *eva*—certainly; *dhṛta-vrateṣu*—one who is engaged in the performance of sacrifice.
+
+**King Dakṣa said: My dear Lord Śiva, I committed a great offense against you, but you are so kind that instead of withdrawing your mercy, you have done me a great favor by punishing me. Both yourself and Lord Viṣṇu do not neglect even useless unqualified brāhmaṇas. Why, then, should you neglect me, who am engaged in performing sacrifices?**
+
+Although Dakṣa felt that he was defeated, he knew that his punishment was simply the great mercy of Lord Śiva. He remembered that Lord Śiva and Lord Viṣṇu are never neglectful of the brāhmaṇas, even though they are sometimes unqualified. According to Vedic civilization, a person who is a descendant of a brāhmaṇa family should never be heavily punished. This was exemplified in Arjuna's treatment of Aśvatthāmā. Aśvatthāmā was the son of a great brāhmaṇa, Droṇācārya, and in spite of his committing the great offense of killing all the sleeping sons of the Pāṇḍavas, for which he was condemned even by Lord Kṛṣṇa, Arjuna excused him by not killing him because he happened to be the son of a brāhmaṇa. The word brahma-bandhuṣu used here is significant. Brahma-bandhu means a person who is born of a brāhmaṇa father but whose activities are not up to the standard of the brāhmaṇas. Such a person is not a brāhmaṇa but is a brahma-bandhu. Dakṣa proved himself to be a brahma-bandhu. He was born of a great brāhmaṇa father, Lord Brahmā, but his treatment of Lord Śiva was not exactly brahminical; therefore he admitted that he was not a perfect brāhmaṇa. Lord Śiva and Lord Viṣṇu, however, are affectionate even to an imperfect brāhmaṇa. Lord Śiva punished Dakṣa not as one does his enemy, but he punished him just to bring him to his senses, so that he would know that he had done wrong. Dakṣa could understand this, and he acknowledged the great mercy of Lord Kṛṣṇa and Lord Śiva towards the fallen brāhmaṇas, including even himself. Although he was fallen, his vow was to execute the sacrifice, as is the duty of brāhmaṇas, and thus he began his prayers to Lord Śiva.

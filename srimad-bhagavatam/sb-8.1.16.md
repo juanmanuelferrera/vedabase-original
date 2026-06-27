@@ -1,0 +1,29 @@
+### SB 8.1.16
+
+> tam īhamānaṁ nirahaṅkṛtaṁ budhaṁ
+> nirāśiṣaṁ pūrṇam ananya-coditam
+> nṝñ śikṣayantaṁ nija-vartma-saṁsthitaṁ
+> prabhuṁ prapadye 'khila-dharma-bhāvanam
+
+*tam*—unto the same Supreme Personality of Godhead; *īhamānam*—who is acting for our benefit; *nirahaṅkṛtam*—who is without entanglement or desire for gain; *budham*—who is completely in knowledge; *nirāśiṣam*—without desires to enjoy the fruits of His activities; *pūrṇam*—who is full and therefore has no need to fulfill desires; *ananya*—by others; *coditam*—induced or inspired; *nṝn*—all of human society; *śikṣayantam*—to teach (the real path of life); *nija-vartma*—His own personal way of life; *saṁsthitam*—to establish (without deviation); *prabhum*—unto the Supreme Lord; *prapadye*—I request everyone to surrender; *akhila-dharma-bhāvanam*—who is the master of all religious principles or the occupational duties for a human being.
+
+**The Supreme Personality of Godhead, Kṛṣṇa, works just like an ordinary human being, yet He does not desire to enjoy the fruits of work. He is full in knowledge, free from material desires and diversions, and completely independent. As the supreme teacher of human society, He teaches His own way of activities, and thus He inaugurates the real path of religion. I request everyone to follow Him.**
+
+This is the sum and substance of our Kṛṣṇa consciousness movement. We are simply requesting human society to follow in the footsteps of the teacher of *Bhagavad-gītā.* Follow the instructions of *Bhagavad-gītā As It Is,* and your life will be successful. That is the summary of the Kṛṣṇa consciousness movement. The organizer of the Kṛṣṇa consciousness movement is teaching everyone how to follow Lord Rāmacandra, how to follow Lord Kṛṣṇa, and how to follow Śrī Caitanya Mahāprabhu. In this material world, we need a leader for a monarchy or good government. Lord Śrī Rāmacandra, by His practical example, showed how to live for the benefit of all human society. He fought with demons like Rāvaṇa, He carried out the orders of His father, and He remained the faithful husband of mother Sītā. Thus there is no comparison to Lord Rāmacandra's acting as an ideal king. Indeed, people still hanker for *rāma-rājya,* a government conducted like that of Lord Rāmacandra. Similarly, although Lord Kṛṣṇa is the Supreme Personality of Godhead, He taught His disciple and devotee Arjuna how to lead a life ending in going back home, back to Godhead (*tyaktvā dehaṁ punar janma naiti mām eti so 'rjuna* [[bg/4/9|[Bg. 4.9] ]]). All teachings—political, economic, social, religious, cultural and philosophical—are to be found in *Bhagavad-gītā.* One only has to follow them strictly. The Supreme Personality of Godhead also comes as Lord Caitanya just to play the part of a pure devotee. Thus the Lord teaches us in different ways just to make our lives successful, and Svāyambhuva Manu requests us to follow Him.
+
+Svāyambhuva Manu is the leader of mankind, and he has given a book called *Manu-saṁhitā* to guide human society. Herein he directs us to follow the Supreme Personality of Godhead in His different incarnations. These incarnations are described in Vedic literature, and Jayadeva Gosvāmī has described ten important incarnations in summary (*keśava dhṛta-mīna-śarīra jaya jagad-īśa hare, keśava dhṛta-nara-hari-rūpa jaya jagad-īśa hare, keśava dhṛta-buddha-śarīra jaya jagad-īśa hare,* etc.). Svāyambhuva Manu instructs us to follow the instructions of God's incarnations, especially Kṛṣṇa's instructions of *Bhagavad-gītā As It Is.*
+
+Appreciating *bhakti-mārga* as instructed by Śrī Caitanya Mahāprabhu, Sārvabhauma Bhaṭṭācārya thus depicted the activities of Śrī Caitanya Mahāprabhu:
+
+> vairāgya-vidyā-nija-bhakti-yoga-
+> śikṣārtham ekaḥ puruṣaḥ purāṇaḥ
+> śrī-kṛṣṇa-caitanya-śarīra-dhārī
+> kṛpāmbudhir yas tam ahaṁ prapadye
+> [[cc/madhya/6/254|[Cc. Madhya 6.254] ]]
+
+"Let me take shelter of the Supreme Personality of Godhead, Śrī Kṛṣṇa, who has descended in the form of Lord Caitanya Mahāprabhu to teach us real knowledge, His devotional service, and detachment from whatever does not foster Kṛṣṇa consciousness. He has descended because He is an ocean of transcendental mercy. Let me surrender unto His lotus feet." (*Caitanya-candrodaya-nāṭaka* 6.74) In this age of Kali, people cannot follow the instructions of the Supreme Personality of Godhead, and therefore the Lord Himself takes the part of Śrī Kṛṣṇa Caitanya to teach personally how to become Kṛṣṇa conscious. He asks everyone to follow Him and to become a *guru* to deliver the fallen souls of Kali-yuga.
+
+> yāre dekha, tāre kaha 'kṛṣṇa'-upadeśa
+> āmāra ājñāya guru hañā tāra' ei deśa
+
+"Instruct everyone to follow the orders of Lord Śrī Kṛṣṇa as they are given in *Bhagavad-gītā* and *Śrīmad-Bhāgavatam.* In this way become a spiritual master and try to liberate everyone in this land." (Cc. Madhya 7.128) The coherent purpose of Lord Rāmacandra, Lord Kṛṣṇa and Lord Caitanya Mahāprabhu is to teach human society how to be happy by following the instructions of the Supreme Lord.

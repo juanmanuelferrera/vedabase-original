@@ -1,0 +1,12 @@
+### SB 3.16.4
+
+> tad vaḥ prasādayāmy adya
+> brahma daivaṁ paraṁ hi me
+> tad dhīty ātma-kṛtaṁ manye
+> yat sva-pumbhir asat-kṛtāḥ
+
+*tat*—therefore; *vaḥ*—you sages; *prasādayāmi*—I am seeking your forgiveness; *adya*—just now; *brahma*—the *brāhmaṇas*; *daivam*—most beloved personalities; *param*—highest; *hi*—because; *me*—My; *tat*—that offense; *hi*—because; *iti*—thus; *ātma-kṛtam*—done by Me; *manye*—I consider; *yat*—which; *sva-pumbhiḥ*—by My own attendants; *asat-kṛtāḥ*—having been disrespected.
+
+**To Me, the brāhmaṇa is the highest and most beloved personality. The disrespect shown by My attendants has actually been displayed by Me because the doormen are My servitors. I take this to be an offense by Myself; therefore I seek your forgiveness for the incident that has arisen.**
+
+The Lord is always in favor of the *brāhmaṇas* and the cows, and therefore it is said, *go-brāhmaṇa-hitāya ca.* Lord Kṛṣṇa, or Viṣṇu, the Supreme Personality of Godhead, is also the worshipable Deity of the *brāhmaṇas.* In the Vedic literature, in the *ṛg-mantra* hymns of the *Ṛg Veda,* it is stated that those who are actually *brāhmaṇas* always look to the lotus feet of Viṣṇu: *oṁ tad viṣṇoḥ paramaṁ padaṁ sadā paśyanti sūrayaḥ.* Those who are qualified *brāhmaṇas* worship only the Viṣṇu form of the Supreme Personality of Godhead, which means Kṛṣṇa, Rāma and all Viṣṇu expansions. A so-called *brāhmaṇa* who is born in the family of *brāhmaṇas* but performs activities aimed against the Vaiṣṇavas cannot be accepted as a *brāhmaṇa,* because *brāhmaṇa* means Vaiṣṇava and Vaiṣṇava means *brāhmaṇa.* One who has become a devotee of the Lord is also a *brāhmaṇa.* The formula is *brahma jānātīti brāhmaṇaḥ.* A *brāhmaṇa* is one who has understood Brahman, and a Vaiṣṇava is one who has understood the Personality of Godhead. Brahman realization is the beginning of realization of the Personality of Godhead. One who understands the Personality of Godhead also knows the impersonal feature of the Supreme, which is Brahman. Therefore one who becomes a Vaiṣṇava is already a *brāhmaṇa.* It should be noted that the glories of the *brāhmaṇa* described in this chapter by the Lord Himself refer to His devotee-*brāhmaṇa,* or the Vaiṣṇava. It should never be misunderstood that the so-called *brāhmaṇas* who are born in *brāhmaṇa* families but have no brahminical qualifications are referred to in this connection.

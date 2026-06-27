@@ -1,0 +1,15 @@
+### CC Antya 4.98
+
+> āmāra ei deha prabhura kārye nā lāgila
+> bhārata-bhūmite janmi' ei deha vyartha haila
+
+*āmāra*—my; *ei*—this; *deha*—body; *prabhura*—of Śrī Caitanya Mahāprabhu; *kārye*—in the service; *nā lāgila*—could not be used; *bhārata-bhūmite*—in the land of India; *janmi'*—taking birth; *ei deha*—this body; *vyartha haila*—has become useless.
+
+**"My body could not be used in the service of Śrī Caitanya Mahāprabhu. Therefore although it took birth in the land of India, this body has been useless."**
+
+For a further explanation of the importance of Bhārata-bhūmi, one may refer to the *Ādi-līlā* (9.41) and also *Śrīmad-Bhāgavatam* (5.19.19-27). The special feature of a birth in India is that a person born in India becomes automatically God conscious. In every part of India, and especially in the holy places of pilgrimage, even an ordinary uneducated man is inclined toward Kṛṣṇa consciousness, and as soon as he sees a Kṛṣṇa conscious person, he offers obeisances. India has many sacred rivers like the Ganges, Yamunā, Narmadā, Kāverī and Kṛṣṇā, and simply by bathing in these rivers people are liberated and become Kṛṣṇa conscious. Śrī Caitanya Mahāprabhu therefore says:
+
+> bhārata-bhūmite haila manuṣya-janma yāra
+> janma sārthaka kari' kara para-upakāra
+
+One who has taken birth in the land of Bhārata-bhūmi, India, should take full advantage of his birth. He should become completely well versed in the knowledge of the *Vedas* and spiritual culture and should distribute the experience of Kṛṣṇa consciousness all over the world. People all over the world are madly engaging in sense gratification and in this way spoiling their human lives, with the risk that in the next life they may become animals or less. Human society should be saved from such a risky civilization and the danger of animalism by awakening to God consciousness, Kṛṣṇa consciousness. The Kṛṣṇa consciousness movement has been started for this purpose. Therefore unbiased men of the highest echelon should study the principles of the Kṛṣṇa consciousness movement and fully cooperate with this movement to save human society.

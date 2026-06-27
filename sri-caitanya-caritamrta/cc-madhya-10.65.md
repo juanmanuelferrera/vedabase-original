@@ -1,0 +1,10 @@
+### CC Madhya 10.65
+
+> ebe āmi ihāṅ āni' karilāṅa vidāya
+> yāhāṅ icchā, yāha, āmā-sane nāhi āra dāya
+
+*ebe*—now; *āmi*—I; *ihāṅ*—here; *āni'*—bringing; *karilāṅa vidāya*—have asked to go away; *yāhāṅ icchā*—wherever he likes; *yāha*—go; *āmā-sane*—with Me; *nāhi āra*—there is no more; *dāya*—responsibility.
+
+**"Now that I have brought him here, I am asking him to leave. Now he can go wherever he likes, for I am no longer responsible for him."**
+
+Kālā Kṛṣṇadāsa was influenced and allured by nomads or gypsies, who enticed him with women. *Māyā* is so strong that Kālā Kṛṣṇadāsa left Śrī Caitanya Mahāprabhu's company to join gypsy women. Even though a person may associate with Śrī Caitanya Mahāprabhu, he can be allured by *māyā* and leave the Lord's company due to his slight independence. Only one who is overwhelmed by *māyā* can be so unfortunate as to leave Śrī Caitanya Mahāprabhu's company, yet unless one is very conscientious, the influence of *māyā* can drag one away, even though he be the personal assistant of Śrī Caitanya Mahāprabhu. And what to speak of others? The Bhaṭṭathāris used to increase their numbers by using women to allure outsiders. This is factual evidence showing that it is possible at any time to fall down from the Lord's association. One need only misuse his little independence. Once fallen and separated from the Supreme Personality of Godhead's association, one becomes a candidate for suffering in the material world. Although rejected by Śrī Caitanya Mahāprabhu, Kālā Kṛṣṇadāsa was given another chance, as the following verses relate.

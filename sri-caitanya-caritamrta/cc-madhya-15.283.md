@@ -1,0 +1,8 @@
+### CC Madhya 15.283
+
+> prabhu āśvāsana kare sparśi' tāra gātra
+> sārvabhauma-sambandhe tumi mora sneha-pātra
+
+*prabhu*—Śrī Caitanya Mahāprabhu; *āśvāsana kare*—pacifies; *sparśi'*—touching; *tāra*—his; *gātra*—body; *sārvabhauma-sambandhe*—because of a relation to Sārvabhauma Bhaṭṭācārya; *tumi*—you; *mora*—My; *sneha-pātra*—object of affection.
+
+**After this, Śrī Caitanya Mahāprabhu pacified Amogha by touching his body and saying, "You are the object of My affection because you are the son-in-law of Sārvabhauma Bhaṭṭācārya.**

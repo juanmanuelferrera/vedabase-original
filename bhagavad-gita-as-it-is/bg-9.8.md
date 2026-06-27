@@ -1,0 +1,14 @@
+### Bg 9.8
+
+> prakṛtiṁ svām avaṣṭabhya
+> visṛjāmi punaḥ punaḥ
+> bhūta-grāmam imaṁ kṛtsnam
+> avaśaṁ prakṛter vaśāt
+
+*prakṛtim*—material nature; *svām*—of My personal self; *avaṣṭabhya*—enter in; *visṛjāmi*—create; *punaḥ punaḥ*—again, again; *bhūta-grāmam*—all these cosmic manifestations; *imam*—this; *kṛtsnam*—total; *avaśam*—automatically; *prakṛteḥ*—by the force of nature; *vaśāt*—under obligation.
+
+**The whole cosmic order is under Me. By My will it is manifested again and again, and by My will it is annihilated at the end.**
+
+This matter is the manifestation of the inferior energy of the Supreme Personality of Godhead. This has already been explained several times. At the creation, the material energy is let loose as *mahat-tattva,* into which the Lord as His first *Puruṣa* incarnation, Mahā-Viṣṇu, enters. He lies within the Causal Ocean and breathes out innumerable universes, and into each universe the Lord again enters as Garbhodakaśāyī Viṣṇu. Each universe is in that way created. He still further manifests Himself as Kṣīrodakaśāyī Viṣṇu, and that Viṣṇu enters into everything—even into the minute atom. This fact is explained here. He enters into everything.
+
+Now, as far as the living entities are concerned, they are impregnated into this material nature, and as a result of their past deeds they take different positions. Thus the activities of this material world begin. The activities of the different species of living beings are begun from the very moment of the creation. It is not that all is evolved. The different species of life are created immediately along with the universe. Men, animals, beasts, birds—everything is simultaneously created, because whatever desires the living entities had at the last annihilation are again manifested. It is clearly stated here that the living entities have nothing to do with this process. The state of being in their past life in the past creation is simply manifested again, and all this is done simply by His will. This is the inconceivable potency of the Supreme Personality of God. And after creating different species of life, He has no connection with them. The creation takes place to accommodate the inclinations of the various living entities, and so the Lord does not become involved with it.

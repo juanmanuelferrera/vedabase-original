@@ -1,0 +1,10 @@
+### CC Adi 17.127
+
+> keha kīrtana nā kariha sakala nagare
+> āji āmi kṣamā kari' yāitechoṅ ghare
+
+*keha*—anyone; *kīrtana*—chanting of the Hare Kṛṣṇa *mahā-mantra*; *nā*—do not; *kariha*—perform; *sakala nagare*—in the whole town; *āji*—today; *āmi*—I; *kṣamā kari'*—excusing; *yāitechoṅ*—am returning; *ghare*—home.
+
+**"No one should perform saṅkīrtana on the streets of the city. Today I am excusing the offense and returning home.**
+
+Such orders stopping *saṅkīrtana* in the streets of the world's great cities have been imposed upon members of the Hare Kṛṣṇa movement. We have hundreds of centers all over the world, and we have been specifically persecuted in Australia. In most cities of the Western world we have been arrested many times by the police, but we are nevertheless executing the order of Śrī Caitanya Mahāprabhu by chanting on the streets of all the important cities, like New York, London, Chicago, Sydney, Melbourne, Paris and Hamburg. We must remember that such incidents took place in the past, five hundred years ago, and the fact that they are still going on indicates that our *saṅkīrtana* movement is really authorized, for if *saṅkīrtana* were an insignificant material affair, demons would not object to it. The demons of the time tried to obstruct the *saṅkīrtana* movement started by Śrī Caitanya Mahāprabhu. Similar demons are trying to obstruct the *saṅkīrtana* movement we are executing all over the world, and this proves that our *saṅkīrtana* movement is still pure and genuine, following in the footsteps of Śrī Caitanya Mahāprabhu.

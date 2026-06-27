@@ -1,0 +1,8 @@
+### CC Madhya 6.202
+
+> nija-rūpa prabhu tāṅre karāila darśana
+> catur-bhuja-rūpa prabhu hā-ilā takhana
+
+*nija-rūpa*—personal form; *prabhu*—the Lord; *tāṅre*—unto him; *karāila*—made; *darśana*—seeing; *catuḥ-bhuja*—four-handed; *rūpa*—form; *prabhu*—the Lord; *ha-ilā*—became; *takhana*—at that time.
+
+**To show him mercy, Śrī Caitanya Mahāprabhu allowed him to see His Viṣṇu form. Thus He immediately assumed four hands.**

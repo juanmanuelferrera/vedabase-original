@@ -1,0 +1,12 @@
+### SB 5.19.8
+
+> suro 'suro vāpy atha vānaro naraḥ
+> sarvātmanā yaḥ sukṛtajñam uttamam
+> bhajeta rāmaṁ manujākṛtiṁ hariṁ
+> ya uttarān anayat kosalān divam iti
+
+*suraḥ*—demigod; *asuraḥ*—demon; *vā api*—or; *atha*—therefore; *vā*—or; *anaraḥ*—other than a human being (bird, beast, animal and so on); *naraḥ*—a human being; *sarva-ātmanā*—wholeheartedly; *yaḥ*—who; *su-kṛtajñam*—easily made grateful; *uttamam*—most highly elevated; *bhajeta*—should worship; *rāmam*—Lord Rāmacandra; *manuja-ākṛtim*—appearing as a human being; *harim*—the Supreme Personality of Godhead; *yaḥ*—who; *uttarān*—of northern India; *anayat*—brought back; *kosalān*—the inhabitants of Kosala-deśa, Ayodhyā; *divam*—to the spiritual world, Vaikuṇṭha; *iti*—thus.
+
+**Therefore, whether one is a demigod or a demon, a man or a creature other than man, such as a beast or bird, everyone should worship Lord Rāmacandra, the Supreme Personality of Godhead, who appears on this earth just like a human being. There is no need of great austerities or penances to worship the Lord, for Me accepts even a small service offered by His devotee. Thus He is satisfied, and as soon as He is satisfied, the devotee is successful. Indeed, Lord Śrī Rāmacandra brought all the devotees of Ayodhyā back home, back to Godhead [Vaikuṇṭha].**
+
+Lord Śrī Rāmacandra is so kind and merciful to His devotees that He is very easily satisfied by a little service rendered by anyone, human or not. This is the special advantage of worshiping Lord Rāmacandra, and there is the same advantage in worshiping Lord Śrī Caitanya Mahāprabhu. Lord Kṛṣṇa and Lord Rāmacandra, in the manner of *kṣatriyas,* sometimes showed Their mercy by killing *asuras,* but Lord Śrī Caitanya Mahāprabhu awarded love of God without difficulty even to the *asuras.* All the incarnations of the Supreme Personality of Godhead—but especially Lord Rāmacandra, Lord Kṛṣṇa and, later, Lord Śrī Caitanya Mahāprabhu—delivered many of the living entities present before Them, indeed almost all of them. Śrī Caitanya Mahāprabhu is therefore represented in the six-armed form of *ṣaḍ-bhūja-mūrti,* which is a combination of Lord Rāmacandra, Lord Kṛṣṇa and Lord Śrī Caitanya Mahāprabhu. The best purpose of human life can be fulfilled by worshiping the *ṣaḍ-bhūja-mūrti,* the form of the Lord with six arms-two arms of Rāmacandra, two arms of Kṛṣṇa and two arms of Śrī Caitanya Mahāprabhu.

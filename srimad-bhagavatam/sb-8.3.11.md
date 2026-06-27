@@ -1,0 +1,16 @@
+### SB 8.3.11
+
+> sattvena pratilabhyāya
+> naiṣkarmyeṇa vipaścitā
+> namaḥ kaivalya-nāthāya
+> nirvāṇa-sukha-saṁvide
+
+*sattvena*—by pure devotional service; *prati-labhyāya*—unto the Supreme Personality of Godhead, who is achieved by such devotional activities; *naiṣkarmyeṇa*—by transcendental activities; *vipaścitā*—by persons who are sufficiently learned; *namaḥ*—I offer my respectful obeisances; *kaivalya-nāthāya*—unto the master of the transcendental world; *nirvāṇa*—for one completely freed from material activities; *sukha*—of happiness; *saṁvide*—who is the bestower.
+
+**The Supreme Personality of Godhead is realized by pure devotees who act in the transcendental existence of bhakti-yoga. He is the bestower of uncontaminated happiness and is the master of the transcendental world. Therefore I offer my respect unto Him.**
+
+As stated in *Bhagavad-gītā,* the Supreme Personality of Godhead can be understood only by devotional service. *Bhaktyā mām abhijānāti yāvān yaś cāsmi tattvataḥ* [[bg/18/55|[Bg. 18.55] ]]. If one wants to know the Supreme Personality of Godhead in truth, one must take to the activities of devotional service. These activities are called *sattva* or *śuddha-sattva.* In the material world, activities of goodness, which are symptomatic of a pure *brāhmaṇa,* are appreciated. But the activities of devotional service are *śuddha-sattva;* in other words, they are on the transcendental platform. Only by devotional service can one understand the Supreme.
+
+Devotional service is called *naiṣkarmya.* Mere negation of material activity will not endure. *Naiṣkarmyam apy acyuta-bhāva-varjitam.* Unless one performs activities with reference to Kṛṣṇa consciousness, cessation of material activities will not be helpful. In hopes of achieving *naiṣkarmya,* freedom from material action, many highly elevated *sannyāsīs* stopped their activities, yet they failed and returned to the material platform to act as materialistic persons. But once one is engaged in the spiritual activities of *bhakti-yoga,* one does not fall down. Our Kṛṣṇa consciousness movement is therefore an attempt to engage everyone always in spiritual activity, by which one becomes transcendental to material actions. The spiritual activities of *bhakti-mārga-śravaṇaṁ kīrtanaṁ viṣṇoḥ smaraṇaṁ pāda-sevanam* [[sb/7/5/23-24|[SB 7.5.23] ]]—lead one to understand the Supreme Personality of Godhead. Therefore, as stated here, *sattvena pratilabhyāya naiṣkarmyeṇa vipaścitā:* "The Supreme Personality of Godhead is realized by pure devotees who act in the transcendental existence of *bhakti-yoga.*"
+
+The *Gopāla-tāpanī Upaniṣad* (15) says, *bhaktir asya bhajanaṁ tad ihāmutropādhi-nairāsyenaivāmuṣmin manasaḥ kalpanam etad eva ca naiṣkarmyam.* This is a definition of *naiṣkarmya.* One acts in *naiṣkarmya* when he fully engages in Kṛṣṇa conscious activities without material desires to enjoy, either here or in the upper planetary systems, in the present life or in a future life (*iha-amutra*). *Anyābhilāṣitā-śūnyam* [Bhakti-rasāmṛta-sindhu 1.1.11]. When one is freed from all contamination and he acts in devotional service under the direction of the spiritual master, one is on the platform of *naiṣkarma.* By such transcendental devotional service, the Lord is served. I offer my respectful obeisances unto Him.

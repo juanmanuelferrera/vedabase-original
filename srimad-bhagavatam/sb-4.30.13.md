@@ -1,0 +1,12 @@
+### SB 4.30.13
+
+> kaṇḍoḥ pramlocayā labdhā
+> kanyā kamala-locanā
+> tāṁ cāpaviddhāṁ jagṛhur
+> bhūruhā nṛpa-nandanāḥ
+
+*kaṇḍoḥ*—of the sage Kaṇḍu; *pramlocayā*—by a heavenly society girl named Pramlocā; *labdhā*—obtained; *kanyā*—daughter; *kamala-locanā*—lotus-eyed; *tām*—her; *ca*—also; *apaviddhām*—given up; *jagṛhuḥ*—accepted; *bhūruhāḥ*—the trees; *nṛpa-nandanāḥ*—O sons of King Prācīnabarhiṣat.
+
+**O sons of King Prācīnabarhiṣat, the heavenly society girl named Pramlocā kept the lotus-eyed daughter of Kaṇḍu in the care of the forest trees. Then she went back to the heavenly planet. This daughter was born by the coupling of the Apsarā named Pramlocā with the sage Kaṇḍu.**
+
+Whenever a great sage undergoes severe austerities for material power, the King of heaven, Indra, becomes very envious. All the demigods have responsible posts for the management of universal affairs and are very highly qualified with pious activities. Although they are ordinary living entities, they are nonetheless able to attain responsible posts, like Lord Brahmā, Indra, Candra and Varuṇa. As is the nature of this material world, the King of heaven, Indra, is very anxious if a great sage undergoes severe austerities. The whole material world is filled with such envy that everyone becomes afraid of his neighbors. Every businessman is afraid of his associates because this material world is the field of activities for all kinds of envious people who have come here to compete with the opulence of the Supreme Personality of Godhead. Thus Indra was very much afraid of the severe austerities performed by the great sage Kaṇḍu, and he sent Pramlocā to break his vows and austerities. A similar incident took place in the case of Viśvāmitra. From other incidents in the śāstras, it appears that Indra has always been envious. When King Pṛthu was celebrating various sacrifices, outdoing Indra, Indra became very envious, and he disturbed King Pṛthu's sacrifice. This has already been discussed in previous chapters. King Indra became successful in breaking the vow of the great sage Kaṇḍu, who became attracted by the beauty of the heavenly society girl Pramlocā and begot a female child. This child is described herein as lotus-eyed and very beautiful. Being thus successful in her mission, Pramlocā returned to the heavenly planets, leaving the newborn child to the care of the trees. Fortunately, the trees accepted the child and agreed to raise her.

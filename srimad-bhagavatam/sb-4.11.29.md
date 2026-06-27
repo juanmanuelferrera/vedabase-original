@@ -1,0 +1,14 @@
+### SB 4.11.29
+
+> tam enam aṅgātmani mukta-vigrahe
+> vyapāśritaṁ nirguṇam ekam akṣaram
+> ātmānam anviccha vimuktam ātma-dṛg
+> yasminn idaṁ bhedam asat pratīyate
+
+*tam*—Him; *enam*—that; *aṅga*—my dear Dhruva; *ātmani*—in the mind; *mukta-vigrahe*—free from anger; *vyapāśritam*—situated; *nirguṇam*—transcendental; *ekam*—one; *akṣaram*—the infallible Brahman; *ātmānam*—the self; *anviccha*—try to find out; *vimuktam*—uncontaminated; *ātma-dṛk*—facing towards the Supersoul; *yasmin*—in which; *idam*—this; *bhedam*—differentiation; *asat*—unreal; *pratīyate*—appears to be.
+
+**My dear Dhruva, please, therefore, turn your attention to the Supreme Person, who is the infallible Brahman. Face the Supreme Personality of Godhead in your original position, and thus, by self-realization, you will find this material differentiation to be merely flickering.**
+
+The living entities have three kinds of vision, according to their positions in self-realization. According to the bodily concept of life, one sees differentiation in terms of varieties of bodies. The living entity actually passes through many varieties of material forms, but despite all such changes of body, he is eternal. When living entities, therefore, are viewed in the bodily concept of life, one appears to be different from another. Lord Manu wanted to change the vision of Dhruva Mahārāja, who was looking upon the Yakṣas as different from him or as his enemies. Factually no one is an enemy or a friend. Everyone is passing through different types of bodies under the law of karma, but as soon as one is situated in his spiritual identity, he does not see differentiation in terms of this law. In other words, as stated in Bhagavad-gītā, brahma-bhūtaḥ prasannātmā na śocati na kāṅkṣati/ samaḥ sarveṣu bhūteṣu mad-bhaktiṁ labhate parām(Bg. 18.54).
+
+A devotee, who is already liberated, does not see differentiation in terms of the outward body; he sees all living entities as spirit souls, eternal servants of the Lord. Dhruva Mahārāja was advised by Lord Manu to see with that vision. He was specifically advised to do so because he was a great devotee and should not have looked upon other living entities with ordinary vision. Indirectly Manu pointed out to Dhruva Mahārāja that out of material affection Dhruva thought of his brother as his kin and the Yakṣas as his enemies. Such observation of differentiation subsides as soon as one is situated in his original position as an eternal servant of the Lord.

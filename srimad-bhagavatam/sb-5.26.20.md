@@ -1,0 +1,9 @@
+### SB 5.26.20
+
+> yas tv iha vā agamyāṁ striyam agamyaṁ vā puruṣaṁ yoṣid abhigacchati tāv amutra kaśayā tāḍayantas tigmayā sūrmyā lohamayyā puruṣam āliṅgayanti striyaṁ ca puruṣa-rūpayā sūrmyā.
+
+*yaḥ*—any person who; *tu*—but; *iha*—in this life; *vā*—or; *agamyām*—unsuitable; *striyam*—a woman; *agamyam*—unsuitable; *vā*—or; *puruṣam*—a man; *yoṣit*—a woman; *abhigacchati*—approaches for sexual intercourse; *tau*—both of them; *amutra*—in the next life; *kaśayā*—by whips; *tāḍayantaḥ*—beating; *tigmayā*—very hot; *sūrmyā*—by an image; *loha-mayyā*—made of iron; *puruṣam*—the man; *āliṅgayanti*—they embrace; *striyam*—the woman; *ca*—also; *puruṣa-rūpayā*—in the form of a man; *sūrmyā*—by an image.
+
+**A man or woman who indulges in sexual intercourse with an unworthy member of the opposite sex is punished after death by the assistants of Yamarāja in the hell known as Taptasūrmi. There such men and women are beaten with whips. The man is forced to embrace a red-hot iron form of a woman, and the woman is forced to embrace a similar form of a man. Such is the punishment for illicit sex.**
+
+Generally a man should not have sexual relations with any woman other than his wife. According to Vedic principles, the wife of another man is considered one's mother, and sexual relations are strictly forbidden with one's mother, sister and daughter. If one indulges in illicit sexual relations with another man's wife, that activity is considered identical with having sex with one's mother. This act is most sinful. The same principle holds for a woman also; if she enjoys sex with a man other than her husband, the act is tantamount to having sexual relations with her father or son. Illicit sex life is always forbidden, and any man or woman who indulges in it is punished in the manner described in this verse.

@@ -1,0 +1,18 @@
+### SB 5.9.3
+
+> tatrāpi svajana-saṅgāc ca bhṛśam udvijamāno bhagavataḥ karma-bandha-vidhvaṁsana-śravaṇa-smaraṇa-guṇa-vivaraṇa-caraṇāravinda-yugalaṁ manasā vidadhad ātmanaḥ pratighātam āśaṅkamāno bhagavad-anugraheṇānusmṛta-sva-pūrva-janmāvalir ātmānam unmatta-jaḍāndha-badhira-svarūpeṇa darśayām āsa lokasya.
+
+*tatra api*—in that *brāhmaṇa* birth also; *sva-jana-saṅgāt*—from association with relatives and friends; *ca*—and; *bhṛśam*—greatly; *udvijamānaḥ*—being always afraid that he would fall down again; *bhagavataḥ*—of the Supreme Personality of Godhead; *karma-bandha*—the bondage of the reactions of fruitive activities; *vidhvaṁsana*—which vanquishes; *śravaṇa*—hearing; *smaraṇa*—remembering; *guṇa-vivaraṇa*—hearing descriptions of the qualities of the Lord; *caraṇa-aravinda*—lotus feet; *yugalam*—the two; *manasā*—with the mind; *vidadhat*—always thinking of; *ātmanaḥ*—of his soul; *pratighātam*—obstruction on the path of devotional service; *āśaṅkamānaḥ*—always fearing; *bhagavat-anugraheṇa*—by the special mercy of the Supreme Personality of Godhead; *anusmṛta*—remembered; *sva-pūrva*—his own previous; *janma-āvaliḥ*—string of births; *ātmānam*—himself; *unmatta*—mad; *jaḍa*—dull; *andha*—blind; *badhira*—and deaf; *svarūpeṇa*—with these features; *darśayām āsa*—he exhibited; *lokasya*—to people in general.
+
+**Due to his being especially gifted with the Lord's mercy, Bharata Mahārāja could remember the incidents of his past life. Although he received the body of a brāhmaṇa, he was still very much afraid of his relatives and friends who were not devotees. He was always very cautious of such association because he feared that he would again fall down. Consequently he manifested himself before the public eye as a madman—dull, blind and deaf—so that others would not try to talk to him. In this way he saved himself from bad association. Within he was always thinking of the lotus feet of the Lord and chanting the Lord's glories, which save one from the bondage of fruitive action. In this way he saved himself from the onslaught of nondevotee associates.**
+
+Every living entity is bound by different activities due to association with the modes of nature. As stated in *Bhagavad-gītā, kāraṇaṁ guṇa-saṅgo 'sya sad-asad-yoni-janmasu:* "This is due to his association with that material nature. Thus he meets with good and evil among various species." [[bg/13/22|(Bg. 13.22)]]
+
+We get different types of bodies among 8,400,000 species according to our *karma. Karmaṇā daiva-netreṇa:* [[sb/3/31/1|[SB 3.31.1] ]] we work under the influence of material nature contaminated by the three modes, and thus we get a certain type of body according to superior order. This is called *karma-bandha.* To get out of this *karma-bandha,* one must engage himself in devotional service. Then one will not be affected by the modes of material nature.
+
+> māṁ ca yo 'vyabhicāreṇa
+> bhakti-yogena sevate
+> sa guṇān samatītyaitān
+> brahma-bhūyāya kalpate
+
+"One who engages in full devotional service, who does not fall down in any circumstance, at once transcends the modes of material nature and thus comes to the level of Brahman." [[bg/14/26|(Bg. 14.26)]] To remain immune from the material qualities, one must engage himself in devotional service—*śravaṇaṁ kīrtanaṁ viṣṇoḥ* [[sb/7/5/23-24|[SB 7.5.23] ]]. That is the perfection of life. When Mahārāja Bharata took birth as a *brāhmaṇa,* he was not very interested in the duties of a *brāhmaṇa,* but within he remained a pure Vaiṣṇava, always thinking of the lotus feet of the Lord. As advised in *Bhagavad-gītā/ man-manā bhava mad-bhakto mad-yājī māṁ namaskuru* [[bg/18/65|[Bg. 18.65] ]]. This is the only process by which one can be saved from the danger of repeated birth and death.

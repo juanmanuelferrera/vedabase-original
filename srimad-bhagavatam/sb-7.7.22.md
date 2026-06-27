@@ -1,0 +1,34 @@
+### SB 7.7.22
+
+> aṣṭau prakṛtayaḥ proktās
+> traya eva hi tad-guṇāḥ
+> vikārāḥ ṣoḍaśācāryaiḥ
+> pumān ekaḥ samanvayāt
+
+*aṣṭau*—eight; *prakṛtayaḥ*—material energies; *proktāḥ*—it is said; *trayaḥ*—three; *eva*—certainly; *hi*—indeed; *tat-guṇāḥ*—the modes of material energy; *vikārāḥ*—transformations; *ṣoḍaśa*—sixteen; *ācāryaiḥ*—by the authorities; *pumān*—the living entity; *ekaḥ*—one; *samanvayāt*—from conjunction.
+
+**The Lord's eight separated material energies, the three modes of material nature and the sixteen transformations [the eleven senses and the five gross material elements like earth and water]—within all these, the one spiritual soul exists as the observer. Therefore all the great ācāryas have concluded that the individual soul is conditioned by these material elements.**
+
+As explained in the previous verse, *kṣetreṣu deheṣu tathātma-yogair adhyātma-vid brahma-gatiṁ labheta:* "A spiritually advanced person can understand how the spiritual particle exists within the body, and thus by cultivating spiritual knowledge he can attain perfection in spiritual life." The intelligent person who is expert in finding the self within the body must understand the eight external energies, which are listed in *Bhagavad-gītā* [[bg/7/4|(Bg. 7.4)]]:
+
+> bhūmir āpo 'nalo vāyuḥ
+> khaṁ mano buddhir eva ca
+> ahaṅkāra itīyaṁ me
+> bhinnā prakṛtir aṣṭadhā
+
+"Earth, water, fire, air, ether, mind, intelligence and false ego—all together these eight comprise My separated material energies." *Bhūmi,* earth, includes all the objects of sense perception—*rūpa* (form), *rasa* (taste), *gandha* (smell), *śabda* (sound) and *sparśa* (touch). Within the earth are the fragrance of roses, the taste of sweet fruit, and whatever else we want. As stated in *Śrīmad-Bhāgavatam* (1.10.4), *sarva-kāma-dughā mahī:* the earth (*mahī*) contains all our requirements. Thus the objects of sense perception are all present in *bhūmi,* or the earth. The gross material elements and subtle material elements (mind, intelligence and *ahaṅkāra,* false ego) constitute the total material energy.
+
+Within the total material energy are the three material modes or qualities. These qualities—*sattva-guṇa, rajo-guṇa* and *tamo-guṇa*—belong not to the soul but to the material energy. It is because of the interaction of these three material modes of nature that the five knowledge-gathering senses, the five working senses and their controller, the mind, are manifested. Then, according to these modes, the living entity gets the opportunity to perform different types of *karma* with different types of knowledge, thinking, feeling and willing. Thus the bodily machine begins to work.
+
+This has all been properly analyzed in *sāṅkhya-yoga* by the great *ācāryas,* especially by the Supreme Personality of Godhead, Kṛṣṇa, in His incarnation as Devahūti-putra Kapila. This is indicated here by the word *ācāryaiḥ.* We need not follow anyone who is not an authorized *ācārya. Ācāryavān puruṣo veda:* one can understand the truth fully when he has taken shelter of an expert *ācārya.*
+
+The living entity is individual, but the body is a composition of many material elements. This is proved by the fact that as soon as the living entity quits this combination of material elements, it becomes a mere conglomeration of matter. The matter is qualitatively one, and the spiritual soul is qualitatively one with the Supreme. The Supreme is one, and the individual soul is one, but the individual soul is understood to be the master of the individual combination of material energy, whereas the Supreme Lord is the controller of the total material energy. The living entity is the master of his particular body, and according to his activities he is subjected to different types of pains and pleasures. However, although the Supreme Person, the Paramātmā, is also one, He is present as an individual in all the different bodies.
+
+The material energy is in fact divided into twenty-four elements. The individual soul, the owner of the individual body, is a twenty-fifth subject, and above everything is Lord Viṣṇu as Paramātmā, the supreme controller, who is the twenty-sixth subject. When one understands all of these twenty-six subjects, he becomes *adhyātma-vit,* an expert in understanding the distinction between matter and spirit. As stated in *Bhagavad-gītā* [[bg/13/3|(Bg. 13.3)]], *kṣetra-kṣetrajñayor jñānam*/ understanding of the *kṣetra* (the constitution of the body) and of the individual soul and the Supersoul constitutes real *jñāna,* or knowledge. Unless one ultimately understands that the Supreme Lord is eternally related with the individual soul, one's knowledge is imperfect. This is confirmed in *Bhagavad-gītā* [[bg/7/19|(Bg. 7.19)]]:
+
+> bahūnāṁ janmanām ante
+> jñānavān māṁ prapadyate
+> vāsudevaḥ sarvam iti
+> sa mahātmā sudurlabhaḥ
+
+"After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare." Everything, material and spiritual, consists of various energies of Vāsudeva, to whom the individual soul, the spiritual part of the Supreme Lord, is subordinate. Upon understanding this perfect knowledge, one surrenders to the Supreme Personality of Godhead (*vāsudevaḥ sarvam iti sa mahātmā sudurlabhaḥ* [[bg/7/19|[Bg. 7.19] ]]).

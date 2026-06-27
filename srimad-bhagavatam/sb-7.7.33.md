@@ -1,0 +1,12 @@
+### SB 7.7.33
+
+> evaṁ nirjita-ṣaḍ-vargaiḥ
+> kriyate bhaktir īśvare
+> vāsudeve bhagavati
+> yayā saṁlabhyate ratiḥ
+
+*evam*—thus; *nirjita*—subdued; *ṣaṭ-vargaiḥ*—by the six symptoms of the senses (lusty desires, anger, greed, illusion, madness and jealousy); *kriyate*—is rendered; *bhaktiḥ*—devotional service; *īśvare*—unto the supreme controller; *vāsudeve*—to Lord Vāsudeva; *bhagavati*—the Supreme Personality of Godhead; *yayā*—by which; *saṁlabhyate*—is obtained; *ratiḥ*—attachment.
+
+**By these activities [as mentioned above] one is able to cut down the influence of the enemies, namely lust, anger, greed, illusion, madness and jealousy, and when thus situated, one can render service to the Lord. In this way one surely attains the platform of loving service to the Supreme Personality of Godhead.**
+
+As mentioned in verses thirty and thirty-one, one's first duty is to approach the spiritual master, the representative of the Supreme Personality of Godhead, to begin rendering service to him. Prahlāda Mahārāja proposed that from the very beginning of life (*kaumāra ācaret prājñaḥ*) a small child should be trained to serve the spiritual master while living at the *guru-kula. Brahmacārī guru-kule vasan dānto guror hitam* [[sb/7/12/1|(SB 7.12.1)]]. This is the beginning of spiritual life. *Guru-pādāśrayaḥ, sādhu-vartmānuvartanam, sad-dharma-pṛcchā.* By following the instructions of the *guru* and the *śāstras,* the disciple attains the stage of devotional service and becomes unattached to possessions. Whatever he possesses he offers to the spiritual master, the *guru,* who engages him in *śravaṇaṁ kīrtanaṁ viṣṇoḥ* [[sb/7/5/23-24|[SB 7.5.23] ]]. The disciple follows strictly and in this way learns how to control his senses. Then, by using his pure intelligence, he gradually becomes a lover of the Supreme Personality of Godhead, as confirmed by Śrīla Rūpa Gosvāmī (*ādau śraddhā tataḥ sādhu-saṅgaḥ*). In this way one's life becomes perfect, and his attachment for Kṛṣṇa becomes positively manifested. In that stage, he is situated in ecstasy, experiencing *bhāva* and *anubhāva,* as explained in the following verse.

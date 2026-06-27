@@ -1,0 +1,20 @@
+### SB 4.6.49
+
+> bhavāṁs tu puṁsaḥ paramasya māyayā
+> durantayāspṛṣṭa-matiḥ samasta-dṛk
+> tayā hatātmasv anukarma-cetaḥsv
+> anugrahaṁ kartum ihārhasi prabho
+
+*bhavān*—Your Lordship; *tu*—but; *puṁsaḥ*—of the person; *paramasya*—the supreme; *māyayā*—by the material energy; *durantayā*—of great potency; *aspṛṣṭa*—unaffected; *matiḥ*—intelligence; *samasta-dṛk*—seer or knower of everything; *tayā*—by the same illusory energy; *hata-ātmasu*—bewildered at heart; *anukarma-cetaḥsu*—whose hearts are attracted by fruitive activities; *anugraham*—mercy; *kartum*—to do; *iha*—in this case; *arhasi*—desire; *prabho*—O lord.
+
+**My dear lord, you are never bewildered by the formidable influence of the illusory energy of the Supreme Personality of Godhead. Therefore you are omniscient and should be merciful and compassionate upon those who are bewildered by the same illusory energy and are very much attached to fruitive activities.**
+
+A Vaiṣṇava is never bewildered by the influence of the external energy because he is engaged in the transcendental loving service of the Lord. The Lord states in Bhagavad-gītā:
+
+daivī hy eṣā guṇamayī mama māyā duratyayā mām eva ye prapadyante māyām etāṁ taranti te
+
+"My divine energy consisting of the three modes of material nature is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it." (Bg. 7.14) A Vaiṣṇava should take care of those who are bewildered by this māyā instead of becoming angry with them because without a Vaiṣṇava's mercy they have no way to get out of the clutches of māyā. Those who have been condemned by māyā are rescued by the mercy of devotees.
+
+vāñchā-kalpatarubhyaś ca kṛpā-sindhubhya eva ca patitānāṁ pāvanebhyo vaiṣṇavebhyo namo namaḥ
+
+"I offer my respectful obeisances unto all the Vaiṣṇava devotees of the Lord. They are just like desire trees who can fulfill the desires of everyone, and they are full of compassion for the fallen conditioned souls." Those who are under the influence of the illusory energy are attracted to fruitive activities, but a Vaiṣṇava preacher attracts their hearts to the Supreme Personality of Godhead, Śrī Kṛṣṇa.

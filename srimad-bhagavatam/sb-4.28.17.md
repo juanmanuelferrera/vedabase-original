@@ -1,0 +1,14 @@
+### SB 4.28.17
+
+> ahaṁ mameti svīkṛtya
+> gṛheṣu kumatir gṛhī
+> dadhyau pramadayā dīno
+> viprayoga upasthite
+
+*aham*—I; *mama*—mine; *iti*—thus; *svī-kṛtya*—accepting; *gṛheṣu*—in the home; *ku-matiḥ*—whose mind is full of obnoxious thoughts; *gṛhī*—the householder; *dadhyau*—turns his attention to; *pramadayā*—with his wife; *dīnaḥ*—very poor; *viprayoge*—when separation; *upasthite*—occurred.
+
+**King Purañjana was overly attached to his family and conceptions of "I" and "mine." Because he was overly attracted to his wife, he was already quite poverty-stricken. At the time of separation, he became very sorry.**
+
+It is clear in this verse that at the time of death thoughts of material enjoyment do not go away. This indicates that the living entity, the soul, is carried by the subtle body—mind, intelligence and ego. Due to false ego, the living entity still wants to enjoy the material world, and for want of material enjoyment he becomes sorry or sad. He still makes intellectual plans to further his existence, and therefore, although he gives up the gross body, he is carried by the subtle body to another gross body. The transmigration of the subtle body is never visible to material eyes; therefore when one gives up the gross body, we think that he is finished. Plans for material enjoyment are made by the subtle body, and the gross body is the instrument for enjoying these plans. Thus the gross body can be compared to the wife, for the wife is the agent for all kinds of sense gratification. Because of long association with the gross body, the living entity becomes very sad to be separated from it. The mental activity of the living entity obliges him to accept another gross body and continue his material existence.
+
+The Sanskrit word strī means "expansion." Through the wife one expands his various objects of attraction—sons, daughters, grandsons, and so on. Attachment to family members becomes very prominent at the time of death. One often sees that just before leaving his body a man may call for his beloved son to give him charge of his wife and other paraphernalia. He may say, "My dear boy, I am being forced to leave. Please take charge of the family affairs." He speaks in this way, not even knowing his destination.

@@ -1,0 +1,12 @@
+### SB 4.1.20
+
+> śaraṇaṁ taṁ prapadye 'haṁ
+> ya eva jagad-īśvaraḥ
+> prajām ātma-samāṁ mahyaṁ
+> prayacchatv iti cintayan
+
+*śaraṇam*—taking shelter; *tam*—unto Him; *prapadye*—surrender; *aham*—I; *yaḥ*—one who; *eva*—certainly; *jagat-īśvaraḥ*—master of the universe; *prajām*—son; *ātma-samām*—like Himself; *mahyam*—unto me; *prayacchatu*—let Him give; *iti*—thus; *cintayan*—thinking.
+
+**He was thinking: May the Lord of the universe, of whom I have taken shelter, kindly be pleased to offer me a son exactly like Him.**
+
+It appears that the great sage Atri Muni had no specific idea of the Supreme Personality of Godhead. Of course, he must have been conversant with the Vedic information that there is the Supreme Personality of Godhead who is the creator of the universe, from whom everything emanated, who maintains this created manifestation, and in whom the entire manifestation is conserved after dissolution. Yato vā imāni bhūtāni. The Vedic mantras give us information of the Supreme Personality of Godhead, so he concentrated his mind upon that Supreme Personality of Godhead, even without knowing His name, just to beg from Him a child exactly on His level. This kind of devotional service, in which knowledge of God's name is lacking, is also described in Bhagavad-gītā where the Lord says that there are four kinds of men with backgrounds of pious activities who come to Him asking what they need. Atri Muni wanted a son exactly like the Lord, and therefore he is not supposed to be a pure devotee because he had a desire to be fulfilled, and that desire was material. Although he wanted a son exactly like the Supreme Personality of Godhead, still it was material desire because he did not want the Personality of Godhead Himself, but only a child exactly like Him. If he had desired the Supreme Personality of Godhead as his child, he would have been completely free of material desires because he would have wanted the Supreme Absolute Truth, but because he wanted a similar child, that was material. Thus Atri Muni cannot be counted among the pure devotees.

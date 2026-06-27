@@ -1,0 +1,8 @@
+### CC Madhya 6.275
+
+> yadyapi 'mukti'-śabdera haya pañca vṛtti
+> rūḍhi-vṛttye kahe tabu 'sāyujye' pratīti
+
+*yadyapi*—although; *mukti*—liberation; *śabdera*—of the word; *haya*—there is; *pañca vṛtti*—five meanings; *rūḍhi-vṛttye*—by the chief or direct meaning; *kahe*—it says; *tabu*—still; *sāyujye*—to become one with the Supreme; *pratīti*—the conception.
+
+**"The word 'mukti' refers to five kinds of liberation. Usually its direct meaning conveys the idea of becoming one with the Lord.**

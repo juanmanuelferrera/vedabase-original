@@ -1,0 +1,26 @@
+### SB 4.26.7
+
+> ya evaṁ karma niyataṁ
+> vidvān kurvīta mānavaḥ
+> karmaṇā tena rājendra
+> jñānena na sa lipyate
+
+*yaḥ*—anyone who; *evam*—thus; *karma*—activities; *niyatam*—regulated; *vidvān*—learned; *kurvīta*—should perform; *mānavaḥ*—a human being; *karmaṇā*—by such activities; *tena*—by this; *rāja-indra*—O King; *jñānena*—by advancement of knowledge; *na*—never; *saḥ*—he; *lipyate*—becomes involved.
+
+**Nārada Muni continued to speak to King Prācīnabarhiṣat: My dear King, any person who works according to the directions of the Vedic scriptures does not become involved in fruitive activities.**
+
+Just as a government may issue trade licenses in order for its citizens to act in a certain way, the Vedas contain injunctions that restrain and regulate all of our fruitive activities. All living entities have come into this material world to enjoy themselves. Consequently, the Vedas are given to regulate sense enjoyment. One who enjoys his senses under the Vedic regulative principles does not become entangled in the actions and reactions of his activities. As stated in Bhagavad-gītā:
+
+yajñārthāt karmaṇo 'nyatra
+
+loko 'yaṁ karma-bandhanaḥ
+
+tad-arthaṁ karma kaunteya
+
+mukta-saṅgaḥ samācara
+
+"Work done as a sacrifice for Viṣṇu has to be performed, otherwise work binds one to this material world. Therefore, O son of Kuntī, perform your prescribed duties for His satisfaction, and in that way you will always remain unattached and free from bondage." (Bg. 3.9)
+
+A human being is especially meant to attain liberation from the bondage of birth, death, old age and disease. He is therefore directed by the Vedic regulative principles to work in such a way that he may fulfill his desires for sense gratification and at the same time gradually become freed from material bondage. Action according to such principles is called knowledge. Indeed, the word veda means knowledge. The words jñānena na sa lipyate indicate that by following the Vedic principles, one does not become involved in the actions and reactions of his fruitive activities.
+
+Everyone is therefore advised to act in terms of the Vedic injunctions and not irresponsibly. When a person within a state acts according to the laws and licenses of the government, he does not become involved in criminal activities. Man-made laws, however, are always defective because they are made by men who are prone to committing mistakes, being illusioned, cheating and having imperfect senses. The Vedic instructions are different because they do not have these four defects. Vedic instructions are not subject to mistakes. The knowledge of the Vedas is knowledge received directly from God, and there is consequently no question of illusion, cheating, mistakes or imperfect senses. All Vedic knowledge is perfect because it is received directly from God by the paramparā disciplic succession. In Śrīmad-Bhāgavatam it is said: tene brahma hṛdā ya ādi-kavaye (Bhāg. 1.1.1). The original creature of this universe, known as the ādi-kavi, or Lord Brahmā, was instructed by Kṛṣṇa through the heart. After receiving these Vedic instructions from Lord Kṛṣṇa Himself, Brahmā distributed the knowledge by the paramparā system to Nārada, and Nārada in turn distributed the knowledge to Vyāsa. In this way Vedic knowledge is perfect. If we act according to Vedic knowledge, there is no question of being involved in sinful activities.

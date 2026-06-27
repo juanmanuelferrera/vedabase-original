@@ -1,0 +1,14 @@
+### SB 4.9.35
+
+> svārājyaṁ yacchato mauḍhyān
+> māno me bhikṣito bata
+> īśvarāt kṣīṇa-puṇyena
+> phalī-kārān ivādhanaḥ
+
+*svārājyam*—His devotional service; *yacchataḥ*—from the Lord, who was willing to offer; *mauḍhyāt*—by foolishness; *mānaḥ*—material prosperity; *me*—by me; *bhikṣitaḥ*—was asked for; *bata*—alas; *īśvarāt*—from a great emperor; *kṣīṇa*—reduced; *puṇyena*—whose pious activities; *phalī-kārān*—broken particles of husked rice; *iva*—like; *adhanaḥ*—a poor man.
+
+**Because of my state of complete foolishness and paucity of pious activities, although the Lord offered me His personal service, still I wanted material name, fame and prosperity. My case is just like that of the poor man who, when he satisfied a great emperor who wanted to give him anything he might ask, out of ignorance asked only a few broken grains of husked rice.**
+
+In this verse the word svārājyam, which means complete independence, is very significant. A conditioned soul does not know what complete independence is. Complete independence means situation in one's own constitutional position. The real independence of a living entity, who is part and parcel of the Supreme Personality of Godhead, is to remain always dependent on the Supreme Lord, just like a child who plays in complete independence, guided by his parents, who watch over him. The independence of the conditioned soul does not mean to fight with the obstacles offered by māyā, but to surrender to Kṛṣṇa. In the material world, everyone is trying to become completely independent simply by fighting against the obstacles offered by māyā. This is called the struggle for existence. Real independence is to be reinstated in the service of the Lord. Anyone who goes to the Vaikuṇṭha planets or Goloka Vṛndāvana planet is freely offering his service to the Lord. That is complete independence. Just contrary to this is material overlordship, which we wrongly take to be independence. Many great political leaders have tried to establish independence, but due to such so-called independence the people's dependence has only increased. The living entity cannot be happy trying to be independent in the material world. One has to surrender, therefore, unto the lotus feet of the Lord and engage in his original eternal service.
+
+Dhruva Mahārāja regrets that he wanted material opulence and greater prosperity than that of his great-grandfather, Lord Brahmā. His begging from the Lord was like a poor man's asking a great emperor for a few grains of broken rice. The conclusion is that anyone who is engaged in the loving service of the Lord should never ask for material prosperity from the Lord. The awarding of material prosperity simply depends on the stringent rules and regulations of the external energy. Pure devotees ask the Lord only for the privilege of serving Him. This is our real independence. If we want anything else, it is a sign of our misfortune.

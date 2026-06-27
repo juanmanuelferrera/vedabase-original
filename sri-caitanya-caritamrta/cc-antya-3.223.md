@@ -1,0 +1,10 @@
+### CC Antya 3.223
+
+> jagat-nistāra lāgi' karena cintana
+> avaiṣṇava-jagat kemane ha-ibe mocana?
+
+*jagat-nistāra*—the deliverance of the people of the whole world; *lāgi'*—for; *karena cintana*—was always thinking; *avaiṣṇava*—full of nondevotees; *jagat*—the whole world; *kemane*—how; *ha-ibe mocana*—will be delivered.
+
+**Advaita Ācārya was always absorbed in thoughts of how to deliver the fallen souls of the entire world. "The entire world is full of nondevotees," He thought. "How will they be delivered?"**
+
+Śrīla Advaita Ācārya sets the standard for *ācāryas* in the Vaiṣṇava *sampradāya.* An *ācārya* must always be eager to deliver the fallen souls. A person who establishes a temple or maṭha to take advantage of people's sentiments by using for his livelihood what people contribute for the worship of the Deity cannot be called a *gosvāmī* or *ācārya.* One who knows the conclusion of the *śāstras,* follows in the footsteps of his predecessors and endeavors to preach the *bhakti* cult all over the world is to be considered an *ācārya.* The role of an *ācārya* is not to earn his livelihood through the income of the temple. Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura used to say that if one earns his livelihood by displaying the Deity in the temple, he is not an *ācārya* or *gosvāmī.* it would be better for him to accept service even as a sweeper in the street, for that is a more honorable means of earning one's living.

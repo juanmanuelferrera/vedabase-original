@@ -1,0 +1,10 @@
+### CC Adi 10.92
+
+> prabhu samarpila tāṅre svarūpera hāte
+> prabhura gupta-sevā kaila svarūpera sāthe
+
+*prabhu*—Lord Caitanya Mahāprabhu; *samarpila*—handed over; *tāṅre*—him; *svarūpera*—Svarūpa Dāmodara; *hāte*—to the hand; *prabhura*—of the Lord; *gupta-sevā*—confidential service; *kaila*—did; *svarūpera*—Svarūpa Dāmodara; *sāthe*—with.
+
+**When Raghunātha dāsa Gosvāmī approached Śrī Caitanya Mahāprabhu at Jagannātha Purī, the Lord entrusted him to the care of Svarūpa Dāmodara, His secretary. Thus they both engaged in the confidential service of the Lord.**
+
+This confidential service was the personal care of the Lord. Svarūpa Dāmodara, acting as His secretary, attended to the Lord's baths, meals, rest and massages, and Raghunātha dāsa Gosvāmī assisted him. In effect, Raghunātha dāsa Gosvāmī acted as the assistant secretary of the Lord.

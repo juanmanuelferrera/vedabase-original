@@ -1,0 +1,14 @@
+### SB 3.22.23
+
+> śatarūpā mahā-rājñī
+> pāribarhān mahā-dhanān
+> dampatyoḥ paryadāt prītyā
+> bhūṣā-vāsaḥ paricchadān
+
+*śatarūpā*—Empress Śatarūpā; *mahā-rājñī*—the Empress; *pāribarhān*—dowry; *mahā-dhanān*—valuable presents; *dam-patyoḥ*—to the bride and bridegroom; *paryadāt*—gave; *prītyā*—out of affection; *bhūṣā*—ornaments; *vāsaḥ*—clothes; *paricchadān*—articles for household use.
+
+**Empress Śatarūpā lovingly gave most valuable presents, suitable for the occasion, such as jewelry, clothes and household articles, in dowry to the bride and bridegroom.**
+
+The custom of giving one's daughter in charity with a dowry is still current in India. The gifts are given according to the position of the father of the bride. *Pāribarhān mahā-dhanān* means the dowry which must be awarded to the bridegroom at the time of marriage. Here *mahā-dhanān* means greatly valuable gifts befitting the dowry of an empress. The words *bhūṣā-vāsaḥ paricchadān* also appear here. *Bhūṣā* means "ornaments," *vāsaḥ* means "clothing," and *paricchadān* means "various household articles." All things befitting the marriage ceremony of an emperor's daughter were awarded to Kardama Muni, who was until now observing celibacy as a *brahmacārī.* The bride, Devahūti, was very richly dressed with ornaments and clothing.
+
+In this way Kardama Muni was married with full opulence to a qualified wife and was endowed with the necessary paraphernalia for household life. In the Vedic way of marriage such a dowry is still given to the bridegroom by the father of the bride; even in poverty-stricken India there are marriages where hundreds and thousands of rupees are spent for a dowry. The dowry system is not illegal, as some have tried to prove. The dowry is a gift given to the daughter by the father to show good will, and it is compulsory. In rare cases where the father is completely unable to give a dowry, it is enjoined that he must at least give a fruit and a flower. As stated in *Bhagavad-gītā,* God can also be pleased even by a fruit and a flower. When there is financial inability and no question of accumulating a dowry by another means, one can give a fruit and flower for the satisfaction of the bridegroom.

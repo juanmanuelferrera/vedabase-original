@@ -1,0 +1,21 @@
+### SB 1.4.17-18
+
+> bhautikānāṁ ca bhāvānāṁ
+> śakti-hrāsaṁ ca tat-kṛtam
+> aśraddadhānān niḥsattvān
+> durmedhān hrasitāyuṣaḥ
+
+> durbhagāṁś ca janān vīkṣya
+> munir divyena cakṣuṣā
+> sarva-varṇāśramāṇāṁ yad
+> dadhyau hitam amogha-dṛk
+
+*bhautikānām ca*—also of everything that is made of matter; *bhāvānām*—actions; *śakti-hrāsam ca*—and deterioration of natural power; *tat-kṛtam*—rendered by that; *aśraddadhānān*—of the faithless; *niḥsattvān*—impatient due to want of the mode of goodness; *durmedhān*—dull-witted; *hrasita*—reduced; *āyuṣaḥ*—of duration of life; *durbhagān ca*—also the unlucky; *janān*—people in general; *vīkṣya*—by seeing; *muniḥ*—the *muni*; *divyena*—by transcendental; *cakṣuṣā*—vision; *sarva*—all; *varṇa-āśramāṇām*—of all the statuses and orders of life; *yat*—what; *dadhyau*—contemplated; *hitam*—welfare; *amogha-dṛk*—one who is fully equipped in knowledge.
+
+**The great sage, who was fully equipped in knowledge, could see, through his transcendental vision, the deterioration of everything material, due to the influence of the age. He could also see that the faithless people in general would be reduced in duration of life and would be impatient due to lack of goodness. Thus he contemplated for the welfare of men in all statuses and orders of life.**
+
+The unmanifested forces of time are so powerful that they reduce all matter to oblivion in due course. In Kali-yuga, the last millennium of a round of the four millenniums, the power of all material objects deteriorates by the influence of time. In this age the duration of the material body of the people in general is much reduced, and so is the memory. The action of matter has also not so much incentive. The land does not produce food grains in the same proportions as it did in other ages. The cow does not give as much milk as it used to give formerly. The production of vegetables and fruits is less than before. As such, all living beings, both men and animals, do not have sumptuous, nourishing food. Due to want of so many necessities of life, naturally the duration of life is reduced, the memory is short, intelligence is meager, mutual dealings are full of hypocrisy and so on.
+
+The great sage Vyāsadeva could see this by his transcendental vision. As an astrologer can see the future fate of a man, or an astronomer can foretell the solar and lunar eclipses, similarly those who can see through the scriptures and foretell the future of all mankind are called liberated souls. They can see thus due to their sharp vision of spiritual attainment.
+
+And all such transcendentalists, who are naturally devotees of the Lord, are always eager to render welfare service to the people in general. They are the real friends of the people in general, not the so-called public leaders who are unable to see what is going to happen five minutes ahead. In this age the people in general as well as their so-called leaders are all unlucky fellows, faithless in spiritual knowledge and influenced by the age of Kali. They are always disturbed by various diseases. For example, in the present age there are so many TB patients and TB hospitals, but formerly this was not so because the time was not so unfavorable. These unfortunate men of this age are always reluctant to give a reception to the transcendentalists who are representatives of Śrīla Vyāsadeva and selfless workers always busy in planning something which may help everyone in all statuses and orders of life. The greatest philanthropists are those transcendentalists who represent the mission of Vyāsa, Nārada, Madhva, Caitanya, Rūpa, Sarasvatī, etc. They are all one and the same. The personalities may be different, but the aim of the mission is one and the same, namely, to deliver the fallen souls back home, back to Godhead.

@@ -1,0 +1,8 @@
+### CC Adi 4.122
+
+> pūrṇānanda-maya āmi cin-maya pūrṇa-tattva
+> rādhikāra preme āmā karāya unmatta
+
+*pūrṇa-ānanda-maya*—made of full joy; *āmi*—I; *cit-maya*—spiritual; *pūrṇa-tattva*—full of truth; *rādhikāra*—of Śrīmatī Rādhārāṇī; *preme*—the love; *āmā*—Me; *karāya*—makes; *unmatta*—maddened.
+
+**"I am the full spiritual truth and am made of full joy, but the love of Śrīmatī Rādhārāṇī drives Me mad.**

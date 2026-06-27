@@ -1,0 +1,9 @@
+### SB 5.8.15
+
+> anyadā bhṛśam udvigna-manā naṣṭa-draviṇa iva kṛpaṇaḥ sakaruṇam ati-tarṣeṇa hariṇa-kuṇaka-viraha-vihvala-hṛdaya-santāpas tam evānuśocan kila kaśmalaṁ mahad abhirambhita iti hovāca.
+
+*anyadā*—sometimes (not seeing the calf); *bhṛśam*—very much; *udvigna-manāḥ*—his mind full of anxiety; *naṣṭa-draviṇaḥ*—who has lost his riches; *iva*—like; *kṛpaṇaḥ*—a miserly man; *sa-karuṇam*—piteously; *ati-tarṣeṇa*—with great anxiety; *hariṇa-kuṇaka*—from the calf of the deer; *viraha*—by separation; *vihvala*—agitated; *hṛdaya*—in mind or heart; *santāpaḥ*—whose affliction; *tam*—that calf; *eva*—only; *anuśocan*—continuously thinking of; *kila*—certainly; *kaśmalam*—illusion; *mahat*—very great; *abhirambhitaḥ*—obtained; *iti*—thus; *ha*—certainly; *uvāca*—said.
+
+**If Bharata Mahārāja sometimes could not see the deer, his mind would be very agitated. He would become like a miser, who, having obtained some riches, had lost them and had then become very unhappy. When the deer was gone, he would be filled with anxiety and would lament due to separation. Thus he would become illusioned and speak as follows.**
+
+If a poor man loses some money or gold, he at once becomes very agitated. Similarly, the mind of Mahārāja Bharata would become agitated when he did not see the deer. This is an example of how our attachment can be transferred. If our attachment is transferred to the Lord's service, we progress. Śrīla Rūpa Gosvāmī prayed to the Lord that he would be as naturally attracted to the Lord's service as young men and young women are naturally attracted to each other. Śrī Caitanya Mahāprabhu exhibited such attachment to the Lord when He jumped into the ocean or cried at night in separation. However, if our attachment is diverted to material things instead of to the Lord, we will fall down from the spiritual platform.

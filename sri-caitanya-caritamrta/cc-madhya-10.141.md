@@ -1,0 +1,8 @@
+### CC Madhya 10.141
+
+> eta bali' govindere kaila āliṅgana
+> govinda karila prabhura caraṇa vandana
+
+*eta bali'*—saying this; *govindere*—unto Govinda; *kaila*—did; *āliṅgana*—embracing; *govinda*—Govinda; *karila*—did; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *caraṇa vandana*—worshiping the lotus feet.
+
+**After saying this, Śrī Caitanya Mahāprabhu embraced Govinda, and Govinda in turn offered his respectful obeisances unto Śrī Caitanya Mahāprabhu's lotus feet.**

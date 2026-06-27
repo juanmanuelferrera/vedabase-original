@@ -1,0 +1,8 @@
+### CC Madhya 6.245
+
+> bhaṭṭācārya kahe tāṅre kari' namaskāre
+> tomāra sambandhe prabhu kṛpā kaila more
+
+*bhaṭṭācārya kahe*—Sārvabhauma Bhaṭṭācārya replied; *tāṅre*—unto Gopīnātha Ācārya; *kari'*—doing; *namaskāre*—obeisances; *tomāra sambandhe*—on account of your relationship; *prabhu*—Śrī Caitanya Mahāprabhu; *kṛpā*—mercy; *kaila*—showed; *more*—unto me.
+
+**Offering his obeisances to Gopīnātha Ācārya, the Bhaṭṭācārya said, "Because I am related to you and you are a devotee, by your mercy the Lord has shown mercy to me.**

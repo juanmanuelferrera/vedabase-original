@@ -1,0 +1,12 @@
+### SB 1.5.21
+
+> tvam ātmanātmānam avehy amogha-dṛk
+> parasya puṁsaḥ paramātmanaḥ kalām
+> ajaṁ prajātaṁ jagataḥ śivāya tan
+> mahānubhāvābhyudayo 'dhigaṇyatām
+
+*tvam*—yourself; *ātmanā*—by your own self; *ātmānam*—the Supersoul; *avehi*—search out; *amogha-dṛk*—one who has perfect vision; *parasya*—of the Transcendence; *puṁsaḥ*—the Personality of Godhead; *paramātmanaḥ*—of the Supreme Lord; *kalām*—plenary part; *ajam*—birthless; *prajātam*—have taken birth; *jagataḥ*—of the world; *śivāya*—for the well-being; *tat*—that; *mahā-anubhāva*—of the Supreme Personality of Godhead Śrī Kṛṣṇa; *abhyudayaḥ*—pastimes; *adhigaṇya-tām*—describe most vividly.
+
+**Your goodness has perfect vision. You yourself can know the Supersoul Personality of Godhead because you are present as the plenary portion of the Lord. Although you are birthless, you have appeared on this earth for the well-being of all people. Please, therefore, describe the transcendental pastimes of the Supreme Personality of Godhead Śrī Kṛṣṇa more vividly.**
+
+Śrīla Vyāsadeva is the empowered plenary portion incarnation of the Personality of Godhead Śrī Kṛṣṇa. He descended by his causeless mercy to deliver the fallen souls in the material world. The fallen and forgotten souls are detached from the transcendental loving service of the Lord. The living entities are parts and parcels of the Lord, and they are eternally servitors of the Lord. All the Vedic literatures are, therefore, put into systematic order for the benefit of the fallen souls, and it is the duty of the fallen souls to take advantage of such literatures and be freed from the bondage of material existence. Although formally Śrīla Nārada Ṛṣi is his spiritual master, Śrīla Vyāsadeva is not at all dependent on a spiritual master because in essence he is the spiritual master of everyone else. But because he is doing the work of an ācārya, he has taught us by his own conduct that one must have a spiritual master, even though he be God Himself. Lord Śrī Kṛṣṇa, Lord Śrī Rāma and Lord Śrī Caitanya Mahāprabhu, all incarnations of Godhead, accepted formal spiritual masters, although by Their transcendental nature They were cognizant of all knowledge. In order to direct people in general to the lotus feet of Lord Śrī Kṛṣṇa, He Himself in the incarnation of Vyāsadeva is delineating the transcendental pastimes of the Lord.

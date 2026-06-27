@@ -1,0 +1,15 @@
+### SB 3.14.51
+
+> maitreya uvāca
+> śrutvā bhāgavataṁ pautram
+> amodata ditir bhṛśam
+> putrayoś ca vadhaṁ kṛṣṇād
+> viditvāsīn mahā-manāḥ
+
+*maitreyaḥ uvāca*—the sage Maitreya said; *śrutvā*—by hearing; *bhāgavatam*—to be a great devotee of the Lord; *pautram*—grandson; *amodata*—took pleasure; *ditiḥ*—Diti; *bhṛśam*—very greatly; *putrayoḥ*—of two sons; *ca*—also; *vadham*—the killing; *kṛṣṇāt*—by Kṛṣṇa; *viditvā*—knowing this; *āsīt*—became; *mahā-manāḥ*—highly pleased in mind.
+
+**The sage Maitreya said: Hearing that her grandson would be a great devotee and that her sons would be killed by Kṛṣṇa, Diti was highly pleased in mind.**
+
+Diti was very aggrieved to learn that because of her untimely pregnancy her sons would be demons and would fight with the Lord. But when she heard that her grandson would be a great devotee and that her two sons would be killed by the Lord, she was very satisfied. As the wife of a great sage and the daughter of a great Prajāpati, Dakṣa, she knew that being killed by the Personality of Godhead is a great fortune. Since the Lord is absolute, His acts of violence and nonviolence are both on the absolute platform. There is no difference in such acts of the Lord. Mundane violence and nonviolence have nothing to do with the Lord's acts. A demon killed by Him attains the same result as one who attains liberation after many, many births of penance and austerity. The word *bhṛśam* is significant herein because it indicates that Diti was pleased beyond her expectations.
+
+Thus end the Bhaktivedanta purports of the Third Canto, Fourteenth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Pregnancy of Diti in the Evening."

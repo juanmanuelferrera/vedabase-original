@@ -1,0 +1,8 @@
+### CC Antya 10.158
+
+> ei ta' kahiluṅ prabhura bhikṣā-nimantraṇa
+> bhakta-datta vastu yaiche kailā āsvādana
+
+*ei ta'*—thus; *kahiluṅ*—I have described; *prabhura*—of Śrī Caitanya Mahāprabhu; *bhikṣā-nimantraṇa*—the invitation to dine; *bhakta-datta*—offered by the devotees; *vastu*—things; *yaiche*—as; *kailā āsvādana*—He tasted.
+
+**Thus I have described how Śrī Caitanya Mahāprabhu accepted invitations and how He accepted and tasted the prasāda offered by His devotees.**

@@ -1,0 +1,8 @@
+### CC Madhya 15.174
+
+> taiche eka brahmāṇḍa yadi mukta haya
+> tabu alpa-hāni kṛṣṇera mane nāhi laya
+
+*taiche*—similarly; *eka brahmāṇḍa*—one universe; *yadi*—if; *mukta haya*—becomes liberated; *tabu*—still; *alpa-hāni*—very little loss; *kṛṣṇera*—of Lord Kṛṣṇa; *mane*—the mind; *nāhi laya*—does not take it very seriously.
+
+**"In the same way, if one universe is vacated due to the living entities' having been liberated, that is a very little thing for Kṛṣṇa. He does not take it very seriously.**

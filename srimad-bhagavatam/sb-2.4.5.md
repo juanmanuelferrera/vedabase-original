@@ -1,0 +1,21 @@
+### SB 2.4.5
+
+> rājovāca
+> samīcīnaṁ vaco brahman
+> sarva-jñasya tavānagha
+> tamo viśīryate mahyaṁ
+> hareḥ kathayataḥ kathām
+
+*rājā uvāca*—the King said; *samīcīnam*—perfectly right; *vacaḥ*—speeches; *brahman*—O learned *brāhmaṇa*; *sarva-jñasya*—one who knows all; *tava*—your; *anagha*—without any contamination; *tamaḥ*—the darkness of ignorance; *viśīryate*—gradually disappearing; *mahyam*—unto me; *hareḥ*—of the Lord; *kathayataḥ*—as you are speaking; *kathām*—topics.
+
+**Mahārāja Parīkṣit said: O learned brāhmaṇa, you know everything because you are without material contamination. Therefore whatever you have spoken to me appears to be perfectly right. Your speeches are gradually destroying the darkness of my ignorance, for you are narrating the topics of the Lord.**
+
+The practical experience of Mahārāja Parīkṣit is disclosed herein, revealing that transcendental topics of the Lord act like injections when they are received by the sincere devotee from a person who is perfectly uncontaminated by material tinges. In other words, reception of the messages of Śrīmad-Bhāgavatam from professional men, heard by a karma-kāṇḍīya audience, never acts miraculously as it is stated here. Devotional hearing of the messages of the Lord is not like hearing ordinary topics; therefore the action will be felt by the sincere hearer by experience of the gradual disappearance of ignorance.
+
+yasya deve parā bhaktir yathā deve tathā gurau
+
+tasyaite kathitā hy arthāḥ prakāśante mahātmanaḥ
+
+(Śvetāśvatara Upaniṣad 6.23)
+
+When a hungry man is given food to eat, he feels satiation of hunger and the pleasure of dining simultaneously. Thus he does not have to ask whether he has actually been fed or not. The crucial test of hearing Śrīmad-Bhāgavatam is that one should get positive enlightenment by such an act.

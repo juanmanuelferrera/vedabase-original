@@ -1,0 +1,13 @@
+### SB 3.17.1
+
+> maitreya uvāca
+> niśamyātma-bhuvā gītaṁ
+> kāraṇaṁ śaṅkayojjhitāḥ
+> tataḥ sarve nyavartanta
+> tridivāya divaukasaḥ
+
+*maitreyaḥ*—the sage Maitreya; *uvāca*—said; *niśamya*—upon hearing; *ātma-bhuvā*—by Brahmā; *gītam*—explanation; *kāraṇam*—the cause; *śaṅkayā*—from fear; *ujjhitāḥ*—freed; *tataḥ*—then; *sarve*—all; *nyavartanta*—returned; *tri-divāya*—to the heavenly planets; *diva-okasaḥ*—the demigods (who inhabit the higher planets).
+
+**Śrī Maitreya said: The demigods, the inhabitants of the higher planets, were freed from all fear upon hearing the cause of the darkness explained by Brahmā, who was born from Viṣṇu. Thus they all returned to their respective planets.**
+
+The demigods, who are denizens of higher planets, are also very much afraid of incidents such as the universe's becoming dark, and so they consulted Brahmā. This indicates that the quality of fear exists for every living entity in the material world. The four principal activities of material existence are eating, sleeping, fearing and mating. The fear element exists also in the demigods. On every planet, even in the higher planetary systems, including the moon and the sun, as well as on this earth, the same principles of animal life exist. Otherwise, why are the demigods also afraid of the darkness? The difference between the demigods and ordinary human beings is that the demigods approach authority, whereas the inhabitants of this earth defy authority. If people would only approach the authority, then every adverse condition in this universe could be rectified. Arjuna was also disturbed on the Battlefield of Kurukṣetra, but he approached the authority, Kṛṣṇa, and his problem was solved. The conclusive instruction of this incident is that we may be disturbed by some material condition, but if we approach the authority who can actually explain the matter, then our problem is solved. The demigods approached Brahmā for the meaning of the disturbance, and after hearing from him they were satisfied and returned home peacefully.

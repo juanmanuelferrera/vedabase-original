@@ -1,0 +1,15 @@
+### SB 4.23.29
+
+> maitreya uvāca
+> stuvatīṣv amara-strīṣu
+> pati-lokaṁ gatā vadhūḥ
+> yaṁ vā ātma-vidāṁ dhuryo
+> vainyaḥ prāpācyutāśrayaḥ
+
+*maitreyaḥ uvāca*—the great sage Maitreya continued to speak; *stuvatīṣu*—while glorifying; *amara-strīṣu*—by the wives of the denizens of heaven; *pati-lokam*—the planet where the husband had gone; *gatā*—reaching; *vadhūḥ*—the wife; *yam*—where; *vā*—or; *ātma-vidām*—of the self-realized souls; *dhuryaḥ*—the topmost; *vainyaḥ*—the son of King Vena (Pṛthu Mahārāja); *prāpa*—obtained; *acyuta-āśrayaḥ*—under the protection of the Supreme Personality of Godhead.
+
+**The great sage Maitreya continued speaking: My dear Vidura, when the wives of the denizens of heaven were thus talking amongst themselves, Queen Arci reached the planet which her husband, Mahārāja Pṛthu, the topmost self-realized soul, had attained.**
+
+According to Vedic scriptures, a woman who dies with her husband, or enters into the fire in which her husband is burning, also enters the same planet her husband attains. In this material world there is a planet known as Patiloka, just as there is a planet known as Pitṛloka. But in this verse the word pati-loka does not refer to any planet within this material universe, for Pṛthu Mahārāja, being topmost amongst self-realized souls, certainly returned home, back to Godhead, and attained one of the Vaikuṇṭha planets. Queen Arci also entered patiloka, but this planet is not in the material universe, for she actually entered the planet which her husband attained. In the material world also, when a woman dies with her husband, she again unites with him in the next birth. Similarly, Mahārāja Pṛthu and Queen Arci united in the Vaikuṇṭha planets. In the Vaikuṇṭha planets there are husbands and wives, but there is no question of their giving birth to children nor having sex life. In the Vaikuṇṭha planets both husbands and wives are extraordinarily beautiful, and they are attracted to one another, but they do not enjoy sex life. Indeed, they consider sex not to be very relishable because both husband and wife are always absorbed in Kṛṣṇa consciousness and in glorifying and chanting the glories of the Lord.
+
+According to Bhaktivinoda Ṭhākura also, a husband and wife can turn the home into a place as good as Vaikuṇṭha, even while in this material world. Being absorbed in Kṛṣṇa consciousness, even in this world husband and wife can live in Vaikuṇṭha simply by installing the Deity of the Lord within the home and serving the Deity according to the directions of the śāstras. In this way, they will never feel the sex urge. That is the test of advancement in devotional service. One who is advanced in devotional service is never attracted by sex life, and as soon as one becomes detached from sex life and proportionately attached to the service of the Lord, he actually experiences living in the Vaikuṇṭha planets. In the ultimate issue, there is actually no material world, but when one forgets the service of the Lord and engages himself in the service of his senses, he is said to be living in the material world.

@@ -1,0 +1,24 @@
+### CC Madhya 6.99
+
+> kali-yuge līlāvatāra nā kare bhagavān
+> ataeva 'tri-yuga' kari' kahi tāra nāma
+
+*kali-yuge*—in this Age of Kali; *līlā-avatāra*—a pastime incarnation; *nā*—not; *kare*—does; *bhagavān*—the Supreme Personality of Godhead; *ataeva*—therefore; *tri-yuga*—of the name Triyuga (manifested in three *yugas*); *kari'*—accepting; *kahi*—I say; *tāra nāma*—His holy name.
+
+**"In this Age of Kali there is no līlā-avatāra of the Supreme Personality of Godhead; therefore He is known as Triyuga. That is one of His holy names."**
+
+A *līlā-avatāra* is an incarnation of the Lord who performs a variety of activities without making any special endeavor. He always has one pastime after another, all full of transcendental pleasure, and these pastimes are fully controlled by the Supreme Person. The Supreme Person is totally independent of all others in these pastimes. While teaching Sanātana Gosvāmī (Cc. Madhya 20.296-298), Śrī Caitanya Mahāprabhu pointed out that one cannot count the number of *līlā-avatāras:*
+
+> līlāvatāra kṛṣṇera nā yāya gaṇana
+> pradhāna kariyā kahi dig-daraśana
+
+"However," the Lord told Sanātana, "I shall explain the chief *līlā-avatāras.*"
+
+> matsya, kūrma, raghunātha, nṛsiṁha, vāmana
+> varāhādi—lekhā yāṅra nā yāya gaṇana
+
+Thus the Lord's incarnations were enumerated, including Matsya, the fish incarnation; Kūrma, the tortoise; Lord Rāmacandra; Nṛsiṁhadeva; Vāmanadeva; and Varāha, the boar incarnation. Thus there are innumerable *līlā-avatāras,* and all of these exhibit wonderful pastimes. Lord Varāha, the boar incarnation, lifted the entire planet earth from the depths of the Garbhodaka Ocean. The tortoise incarnation, Lord Kūrma, became a pivot for the emulsification of the whole sea, and Lord Nṛsiṁhadeva appeared as half-man, half-lion. These are some of the wonderful and uncommon features of *līlā-avatāras.*
+
+In his book *Laghu-bhāgavatāmṛta,* Śrīla Rūpa Gosvāmī has enumerated the following twenty-five *līlā-avatāras:* Catuḥ-sana, Nārada, Varāha, Matsya, Yajña, Nara-Nārāyaṇa, Kapila, Dattātreya, Hayaśīrṣa (Hayagrīva), Haṁsa, Pṛśnigarbha, Ṛṣabha, Pṛthu, Nṛsiṁha, Kūrma, Dhanvantari, Mohinī, Vāmana, Paraśurāma, Rāghavendra, Vyāsa, Balarāma, Kṛṣṇa, Buddha and Kalki.
+
+Śrī Caitanya Mahāprabhu is not mentioned as a *līlā-avatāra* because He is an incarnation in disguise (*channa-avatāra).* In this Age of Kali there are no *līlā-avatāras,* but there is an incarnation of the Lord manifested in the body of Śrī Caitanya Mahāprabhu. This has been explained in *Śrīmad-Bhāgavatam.*

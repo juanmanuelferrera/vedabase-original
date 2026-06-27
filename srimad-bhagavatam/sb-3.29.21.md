@@ -1,0 +1,12 @@
+### SB 3.29.21
+
+> ahaṁ sarveṣu bhūteṣu
+> bhūtātmāvasthitaḥ sadā
+> tam avajñāya māṁ martyaḥ
+> kurute 'rcā-viḍambanam
+
+*aham*—I; *sarveṣu*—in all; *bhūteṣu*—living entities; *bhūta-ātmā*—the Supersoul in all beings; *avasthitaḥ*—situated; *sadā*—always; *tam*—that Supersoul; *avajñāya*—disregarding; *mām*—Me; *martyaḥ*—a mortal man; *kurute*—performs; *arcā*—of worship of the Deity; *viḍambanam*—imitation.
+
+**I am present in every living entity as the Supersoul. If someone neglects or disregards that Supersoul everywhere and engages himself in the worship of the Deity in the temple, that is simply imitation.**
+
+In purified consciousness, or Kṛṣṇa consciousness, one sees the presence of Kṛṣṇa everywhere. If, therefore, one only engages in Deity worship in the temple and does not consider other living entities, then he is in the lowest grade of devotional service. One who worships the Deity in the temple and does not show respect to others is a devotee on the material platform, in the lowest stage of devotional service. A devotee should try to understand everything in relationship with Kṛṣṇa and try to serve everything in that spirit. To serve everything means to engage everything in the service of Kṛṣṇa. If a person is innocent and does not know his relationship with Kṛṣṇa, an advanced devotee should try to engage him in the service of Kṛṣṇa. One who is advanced in Kṛṣṇa consciousness can engage not only the living being but everything in the service of Kṛṣṇa.

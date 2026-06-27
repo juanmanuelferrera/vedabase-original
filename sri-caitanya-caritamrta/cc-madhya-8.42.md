@@ -1,0 +1,8 @@
+### CC Madhya 8.42
+
+> 'kṛṣṇa' 'kṛṣṇa' nāma śuni sabāra vadane
+> sabāra aṅga—pulakita, aśru—nayane
+
+*kṛṣṇa kṛṣṇa*—"Kṛṣṇa," "Kṛṣṇa"; *nāma*—the holy name; *śuni*—I hear; *sabāra*—of everyone; *vadane*—in the mouths; *sabāra*—of all; *aṅga*—the bodies; *pulakita*—gladdened; *aśru*—tears; *nayane*—in the eyes.
+
+**"I hear everyone chanting the holy name of Kṛṣṇa. Everyone's body is thrilled with ecstasy, and there are tears in everyone's eyes.**

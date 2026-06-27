@@ -1,0 +1,12 @@
+### Bg 3.26
+
+> na buddhi-bhedaṁ janayed
+> ajñānāṁ karma-saṅginām
+> joṣayet sarva-karmāṇi
+> vidvān yuktaḥ samācaran
+
+*na*—do not; *buddhi-bhedam*—disrupt the intelligence; *janayet*—do; *ajñānām*—of the foolish; *karma-saṅginām*—attached to fruitive work; *joṣayet*—dovetailed; *sarva*—all; *karmāṇi*—work; *vidvān*—learned; *yuktaḥ*—all engaged; *samācaran*—practicing.
+
+**Let not the wise disrupt the minds of the ignorant who are attached to fruitive action. They should not be encouraged to refrain from work, but to engage in work in the spirit of devotion.**
+
+*Vedaiś ca sarvair aham eva vedyaḥ:* that is the end of all Vedic rituals. All rituals, all performances of sacrifices, and everything that is put into the *Vedas,* including all directions for material activities, are meant for understanding Kṛṣṇa, who is the ultimate goal of life. But because the conditioned souls do not know anything beyond sense gratification, they study the *Vedas* to that end. Through sense regulations, however, one is gradually elevated to Kṛṣṇa consciousness. Therefore a realized soul in Kṛṣṇa consciousness should not disturb others in their activities or understanding, but he should act by showing how the results of all work can be dedicated to the service of Kṛṣṇa. The learned Kṛṣṇa conscious person may act in such a way that the ignorant person working for sense gratification may learn how to act and how to behave. Although the ignorant man is not to be disturbed in his activities, still, a slightly developed Kṛṣṇa conscious person may directly be engaged in the service of the Lord without waiting for other Vedic formulas. For this fortunate man there is no need to follow the Vedic rituals, because in direct Kṛṣṇa consciousness one can have all the results simply by following the prescribed duties of a particular person.

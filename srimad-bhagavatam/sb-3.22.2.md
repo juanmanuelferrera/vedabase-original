@@ -1,0 +1,13 @@
+### SB 3.22.2
+
+> manur uvāca
+> brahmāsṛjat sva-mukhato
+> yuṣmān ātma-parīpsayā
+> chandomayas tapo-vidyā-
+> yoga-yuktān alampaṭān
+
+*manuḥ*—Manu; *uvāca*—said; *brahmā*—Lord Brahmā; *asṛjat*—created; *sva-mukhataḥ*—from his face; *yuṣmān*—you (*brāhmaṇas*); *ātma-parīpsayā*—to protect himself by expanding; *chandaḥ-mayaḥ*—the form of the *Vedas*; *tapaḥ-vidyā-yoga-yuktān*—full of austerity, knowledge and mystic power; *alampaṭān*—averse to sense gratification.
+
+**Manu replied: To expand himself in Vedic knowledge, Lord Brahmā, the personified Veda, from his face created you, the brāhmaṇas, who are full of austerity, knowledge and mystic power and are averse to sense gratification.**
+
+The purpose of the *Vedas* is to propagate the transcendental knowledge of the Absolute Truth. The *brāhmaṇas* were created from the mouth of the Supreme Person, and therefore they are meant to spread the knowledge of the *Vedas* in order to spread the glories of the Lord. In *Bhagavad-gītā* also Lord Kṛṣṇa says that all the *Vedas* are meant for understanding the Supreme Personality of Godhead. It is especially mentioned here (*yoga-yuktān alampaṭān*) that *brāhmaṇas* are full of mystic power and are completely averse to sense gratification. Actually there are two kinds of occupations. One occupation, in the material world, is sense gratification, and the other occupation is spiritual activity—to satisfy the Lord by His glorification. Those who engage in sense gratification are called demons, and those who spread the glorification of the Lord or satisfy the transcendental senses of the Lord are called demigods. It is specifically mentioned here that the *brāhmaṇas* are created from the face of the cosmic personality, or *virāṭ-puruṣa;* similarly the *kṣatriyas* are said to be created from His arms, the *vaiśyas* are created from His waist, and the *śūdras* are created from His legs. *Brāhmaṇas* are especially meant for austerity, learning and knowledge and are averse to all kinds of sense gratification.

@@ -1,0 +1,14 @@
+### SB 3.30.34
+
+> adhastān nara-lokasya
+> yāvatīr yātanādayaḥ
+> kramaśaḥ samanukramya
+> punar atrāvrajec chuciḥ
+
+*adhastāt*—from below; *nara-lokasya*—human birth; *yāvatīḥ*—as many; *yātanā*—punishments; *ādayaḥ*—and so on; *kramaśaḥ*—in a regular order; *samanukramya*—having gone through; *punaḥ*—again; *atra*—here, on this earth; *āvrajet*—he may return; *śuciḥ*—pure.
+
+**Having gone through all the miserable, hellish conditions and having passed in a regular order through the lowest forms of animal life prior to human birth, and having thus been purged of his sins, one is reborn again as a human being on this earth.**
+
+Just as a prisoner, who has undergone troublesome prison life, is set free again, the person who has always engaged in impious and mischievous activities is put into hellish conditions, and when he has undergone different hellish lives, namely those of lower animals like cats, dogs and hogs, by the gradual process of evolution he again comes back as a human being. In *Bhagavad-gītā* it is stated that even though a person engaged in the practice of the *yoga* system may not finish perfectly and may fall down for some reason or other, his next life as a human being is guaranteed. It is stated that such a person, who has fallen from the path of *yoga* practice, is given a chance in his next life to take birth in a very rich family or in a very pious family. It is interpreted that "rich family" refers to a big mercantile family because generally people who engage in trades and mercantile business are very rich. One who engaged in the process of self-realization, or connecting with the Supreme Absolute Truth, but fell short is allowed to take birth in such a rich family, or he is allowed to take birth in the family of pious *brāhmaṇas;* either way, he is guaranteed to appear in human society in his next life. It can be concluded that if someone is not willing to enter into hellish life, as in Tāmisra or Andha-tāmisra, then he must take to the process of Kṛṣṇa consciousness, which is the first-class *yoga* system, because even if one is unable to attain complete Kṛṣṇa consciousness in this life, he is guaranteed at least to take his next birth in a human family. He cannot be sent into a hellish condition. Kṛṣṇa consciousness is the purest life, and it protects all human beings from gliding down to hell to take birth in a family of dogs or hogs.
+
+Thus end the Bhaktivedanta purports to the Third Canto, Thirtieth Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Description by Lord Kapila of Adverse Fruitive Activities."

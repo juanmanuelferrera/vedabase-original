@@ -1,0 +1,16 @@
+### SB 5.26.6
+
+> yatra ha vāva bhagavān pitṛ-rājo vaivasvataḥ sva-viṣayaṁ prāpiteṣu sva-puruṣair jantuṣu sampareteṣu yathā-karmāvadyaṁ doṣam evānullaṅghita-bhagavac-chāsanaḥ sagaṇo damaṁ dhārayati.
+
+*yatra*—where; *ha vāva*—indeed; *bhagavān*—the most powerful; *pitṛ-rājaḥ*—Yamarāja, the king of the *pitās*; *vaivasvataḥ*—the son of the sun-god; *sva-viṣayam*—his own kingdom; *prāpiteṣu*—when caused to reach; *sva-puruṣaiḥ*—by his own messengers; *jantuṣu*—the human beings; *sampareteṣu*—dead; *yathā-karma-avadyam*—according to how much they have violated the rules and regulations of conditional life; *doṣam*—the fault; *eva*—certainly; *anullaṅghita-bhagavat-śāsanaḥ*—who never oversteps the Supreme Personality of Godhead's order; *sagaṇaḥ*—along with his followers; *damam*—punishment; *dhārayati*—executes.
+
+**The King of the pitās is Yamarāja, the very powerful son of the sun-god. He resides in Pitṛloka with his personal assistants and, while abiding by the rules and regulations set down by the Supreme Lord, has his agents, the Yamadūtas, bring all the sinful men to him immediately upon their death. After bringing them within his jurisdiction, he properly judges them according to their specific sinful activities and sends them to one of the many hellish planets for suitable punishments.**
+
+Yamarāja is not a fictitious or mythological character; he has his own abode, Pitṛloka, of which he is king. Agnostics may not believe in hell, but Śukadeva Gosvāmī affirms the existence of the Naraka planets, which lie between the Garbhodaka Ocean and Pātālaloka. Yamarāja is appointed by the Supreme Personality of Godhead to see that the human beings do not violate His rules and regulations. As confirmed in *Bhagavad-gītā* [[bg/4/17|(Bg. 4.17)]]:
+
+> karmaṇo hy api boddhavyaṁ
+> boddhavyaṁ ca vikarmaṇaḥ
+> akarmaṇaś ca boddhavyaṁ
+> gahanā karmaṇo gatiḥ
+
+"The intricacies of action are very hard to understand. Therefore one should know properly what action is, what forbidden action is, and what inaction is. "One should understand the nature of *karma, vikarma* and *akarma,* and one must act accordingly. This is the law of the Supreme Personality of Godhead. The conditioned souls, who have come to this material world for sense gratification, are allowed to enjoy their senses under certain regulative principles. If they violate these regulations, they are judged and punished by Yamarāja. He brings them to the hellish planets and properly chastises them to bring them back to Kṛṣṇa consciousness. By the influence of *māyā,* however, the conditioned souls remain infatuated with the mode of ignorance. Thus in spite of repeated punishment by Yamarāja, they do not come to their senses, but continue to live within the material condition, committing sinful activities again and again.

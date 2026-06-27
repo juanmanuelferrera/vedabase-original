@@ -1,0 +1,8 @@
+### CC Adi 12.95
+
+> tāhāra mādhurya-gandhe lubdha haya mana
+> ataeva taṭe rahi' cāki eka kaṇa
+
+*tāhāra*—His; *mādhurya*—sweet and mellow; *gandhe*—by the fragrance; *lubdha*—attracted; *haya*—becomes; *mana*—mind; *ataeva*—therefore; *taṭe*—on the beach; *rahi'*—standing; *cāki*—I taste; *eka*—one; *kaṇa*—particle.
+
+**It is not possible to dip into that great ocean, but its sweet mellow flavor attracts my mind. I therefore stand on the shore of that ocean to try to taste but a drop of it.**

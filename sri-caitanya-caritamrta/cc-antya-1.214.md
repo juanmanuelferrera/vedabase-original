@@ -1,0 +1,8 @@
+### CC Antya 1.214
+
+> cāri māsa rahi' saba prabhura bhakta-gaṇa
+> gosāñi vidāya dilā, gauḍe karilā gamana
+
+*cāri māsa*—four months; *rahi'*—staying; *saba*—all; *prabhura*—of Śrī Caitanya Mahāprabhu; *bhakta-gaṇa*—the devotees; *gosāñi*—Caitanya Mahāprabhu; *vidāyadilā*—bade farewell; *gauḍe*—to Bengal; *karilā gamana*—they returned.
+
+**All the devotees of Śrī Caitanya Mahāprabhu thus spent four months with Him. Then the Lord bade them farewell, and they returned to Bengal.**

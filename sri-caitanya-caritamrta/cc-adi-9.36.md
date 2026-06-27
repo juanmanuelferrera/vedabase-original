@@ -1,0 +1,18 @@
+### CC Adi 9.36
+
+> ataeva āmi ājñā diluṅ sabākāre
+> yāhāṅ tāhāṅ prema-phala deha' yāre tāre
+
+*ataeva*—therefore; *āmi*—I; *ājñā*—order; *diluṅ*—give; *sabākāre*—to everyone; *yāhāṅ*—wherever; *tāhāṅ*—everywhere; *prema-phala*—the fruit of love of Godhead; *deha'*—distribute; *yāre*—anyone; *tāre*—everyone.
+
+**"Therefore I order every man within this universe to accept this Kṛṣṇa consciousness movement and distribute it everywhere.**
+
+In this connection there is a song sung by Śrīla Bhaktivinoda Ṭhākura:
+
+> enechi auṣadhi māyā nāśibāra lāgi'
+> hari-nāma-mahā-mantra lao tumi māgi'
+
+> bhakativinoda prabhu-caraṇe paḍiyā
+> sei hari-nāma-mantra laila māgiyā
+
+The *saṅkīrtana* movement has been introduced by Lord Caitanya Mahāprabhu just to dispel the illusion of *māyā,* by which everyone in this material world thinks himself to be a product of matter and therefore to have many duties pertaining to the body. Actually, the living entity is not his material body: he is a spirit soul. He has a spiritual need to be eternally blissful and full of knowledge, but unfortunately he identifies himself with the body, sometimes as a human being, sometimes as an animal, sometimes a tree, sometimes an aquatic, sometimes a demigod, and so on. Thus with each change of body he develops a different type of consciousness with different types of activity and thus becomes increasingly entangled in material existence, transmigrating perpetually from one body to another. Under the spell of *māyā,* or illusion, he does not consider the past or future but is simply satisfied with the short life span that he has gotten for the present. To eradicate this illusion, Śrī Caitanya Mahāprabhu has brought the *saṅkīrtana* movement, and He requests everyone to accept and distribute it. A person who is actually a follower of Śrī Bhaktivinoda Ṭhākura must immediately accept the request of Lord Caitanya Mahāprabhu by offering respectful obeisances unto His lotus feet and thus beg from Him the Hare Kṛṣṇa *mahā-mantra.* If one is fortunate enough to beg from the Lord this Hare Kṛṣṇa *mahā-mantra,* his life is successful.

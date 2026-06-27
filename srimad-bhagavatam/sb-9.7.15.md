@@ -1,0 +1,10 @@
+### SB 9.7.15
+
+> iti putrānurāgeṇa
+> sneha-yantrita-cetasā
+> kālaṁ vañcayatā taṁ tam
+> ukto devas tam aikṣata
+
+*iti*—in this way; *putra-anurāgeṇa*—because of affection for the son; *sneha-yantrita-cetasā*—his mind being controlled by such affection; *kālam*—time; *vañcayatā*—cheating; *tam*—unto him; *tam*—that; *uktaḥ*—said; *devaḥ*—the demigod Varuṇa; *tam*—unto him, Hariścandra; *aikṣata*—waited for the fulfillment of his promise.
+
+**Hariścandra was certainly very much attached to his son. Because of this affection, he asked the demigod Varuṇa to wait. Thus Varuṇa waited and waited for the time to come.**

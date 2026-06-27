@@ -1,0 +1,19 @@
+### CC Adi 5.61
+
+> ataeva kṛṣṇa mūla-jagat-kāraṇa
+> prakṛti—kāraṇa yaiche ajā-gala-stana
+
+*ataeva*—therefore; *kṛṣṇa*—Lord Kṛṣṇa; *mūla*—original; *jagat-kāraṇa*—the cause of the cosmic manifestation; *prakṛti*—material nature; *kāraṇa*—cause; *yaiche*—exactly like; *ajā-gala-stana*—nipples on the neck of a goat.
+
+**Therefore Lord Kṛṣṇa is the original cause of the cosmic manifestation. Prakṛti is like the nipples on the neck of a goat, for they cannot give any milk.**
+
+The external energy, composed of *pradhāna* or *prakṛti* as the ingredient-supplying portion and *māyā* as the causal portion, is known as *māyā-śakti.* Inert material nature is not the actual cause of the material manifestation, for Kāraṇārṇavaśāyī, Mahā-Viṣṇu, the plenary expansion of Kṛṣṇa, activates all the ingredients. It is in this way that material nature has the power to supply the ingredients. The example given is that iron has no power to heat or burn, but after coming in contact with fire the iron becomes red-hot and can then diffuse heat and burn other things. Material nature is like iron, for it has no independence to act without the touch of Viṣṇu, who is compared to fire. Lord Viṣṇu activates material nature by the power of His glance, and then the ironlike material nature becomes a material-supplying agent just as iron made red-hot becomes a burning agent. Material nature cannot independently become an agent for supplying the material ingredients. This is more clearly explained by Śrī Kapiladeva, an incarnation of Godhead, in *Śrīmad-Bhāgavatam* (3.28.40):
+
+> yatholmukād visphuliṅgād
+> dhūmād vāpi sva-sambhavāt
+> apy ātmatvenābhimatād
+> yathāgniḥ pṛthag ulmukāt
+
+"Although smoke, flaming wood, and sparks are all considered together as ingredients of a fire, the flaming wood is nevertheless different from the fire, and the smoke is different from the flaming wood." The material elements (earth, water, fire, etc.) are like smoke, the living entities are like sparks, and material nature as *pradhāna* is like the flaming wood. But all of them together are recipients of power from the Supreme Personality of Godhead and are thus able to manifest their individual capacities. In other words, the Supreme Personality of Godhead is the origin of all manifestations. Material nature can supply only when it is activated by the glance of the Supreme Personality of Godhead.
+
+Just as a woman can deliver a child after being impregnated by the semen of a man, so material nature can supply the material elements after being glanced upon by Mahā-Viṣṇu. Therefore *pradhāna* cannot be independent of the superintendence of the Supreme Personality of Godhead. This is confirmed in the *Bhagavad-gītā* [[bg/9/10|(Bg. 9.10)]]: *mayādhyakṣeṇa prakṛtiḥ sūyate sa-carācaram. Prakṛti,* the total material energy, works under the superintendence of the Lord. The original source of the material elements is Kṛṣṇa. Therefore the attempt of the atheistic Sāṅkhya philosophers to consider material nature the source of these elements, forgetting Kṛṣṇa, is useless, like trying to get milk from the nipplelike bumps of skin hanging on the neck of a goat.

@@ -1,0 +1,12 @@
+### CC Madhya 2.95
+
+> pāñā yāṅra ājñā-dhana, vrajera vaiṣṇava-gaṇa,
+> vandoṅ tāṅra mukhya haridāsa
+> caitanya-vilāsa-sindhu-kallolera eka bindu,
+> tāra kaṇā kahe kṛṣṇadāsa
+
+*pāñā*—getting; *yāṅra*—whose; *ājñā-dhana*—order; *vrajera*—of Vṛndāvana; *vaiṣṇava-gaṇa*—all the Vaiṣṇavas; *vandoṅ*—I worship; *tāṅra*—of them; *mukhya*—the chief; *haridāsa*—Haridāsa; *caitanya-vilāsa-sindhu*—of the ocean of the pastimes of Lord Caitanya; *kallolera eka bindu*—one drop of one wave; *tāra*—of it; *kaṇā*—a particle only; *kahe*—describes; *kṛṣṇadāsa*—Kṛṣṇadāsa Kavirāja Gosvāmī.
+
+**Receiving orders from the above authorities and the Vaiṣṇavas of Vṛndāvana, especially from Haridāsa, the priest of Govindajī, I, Kṛṣṇadāsa Kavirāja Gosvāmī, have tried to describe one small particle of one drop of one wave of the ocean of the pastimes of Śrī Caitanya Mahāprabhu.**
+
+*Thus end the Bhaktivedanta purports to Śrī Caitanya-caritāmṛta, Madhya-līlā,  Second Chapter, describing the ecstatic manifestations of Lord Caitanya Mahāprabhu.*

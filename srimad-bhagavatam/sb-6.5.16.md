@@ -1,0 +1,21 @@
+### SB 6.5.16
+
+> sṛṣṭy-apyaya-karīṁ māyāṁ
+> velā-kūlānta-vegitām
+> mattasya tām avijñasya
+> kim asat-karmabhir bhavet
+
+*sṛṣṭi*—creation; *apyaya*—dissolution; *karīm*—one who causes; *māyām*—the illusory energy; *velā-kūla-anta*—near the banks; *vegitām*—being very rapid; *mattasya*—of one who is mad; *tām*—that material nature; *avijñasya*—who does not know; *kim asat-karmabhiḥ bhavet*—what benefit can there be by performing temporary fruitive activities.
+
+**[Nārada Muni had said that there is a river flowing in both directions. The Haryaśvas understood the purport of this statement.] Material nature functions in two ways—by creation and dissolution. Thus the river of material nature flows both ways. A living entity who unknowingly falls in this river is submerged in its waves, and since the current is swifter near the banks of the river, he is unable to get out. What will be the benefit of performing fruitive activities in that river of māyā?**
+
+One may be submerged in the waves of the river of *māyā,* but one may also get free from the waves by coming to the banks of knowledge and austerity. Near these banks, however, the waves are very strong. If one does not understand how he is being tossed by the waves, but simply engages in temporary fruitive activities, what benefit will he derive?
+
+In the *Brahma-saṁhitā* (5.44) there is this statement:
+
+> sṛṣṭi-sthiti-pralaya-sādhana-śaktir ekā
+> chāyeva yasya bhuvanāni bibharti durgā
+
+The *māyā-śakti,* Durgā, is in charge of *sṛṣṭi-sthiti-pralaya,* creation and dissolution, and she acts under the direction of the Supreme Lord (*mayādhyakṣeṇa prakṛtiḥ sūyate sa-carācaram [[bg/9/10|[Bg. 9.10] ]]*). When one falls in the river of nescience, he is always tossed here and there by the waves, but the same *māyā* can also save him when be surrenders to Kṛṣṇa, or becomes Kṛṣṇa conscious. Kṛṣṇa consciousness is knowledge and austerity. A Kṛṣṇa conscious person takes knowledge from the Vedic literature, and at the same time he must practice austerities.
+
+To attain freedom from material life, one must take to Kṛṣṇa consciousness. Otherwise, if one very busily engages in the so-called advancement of science, what benefit will he derive? If one is carried away by the waves of nature, what is the meaning of being a great scientist or philosopher? Mundane science and philosophy are also material creations. One must understand how *māyā* works and how one can be released from the tossing waves of the river of nescience. That is one's first duty.

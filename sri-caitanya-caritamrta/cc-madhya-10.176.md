@@ -1,0 +1,8 @@
+### CC Madhya 10.176
+
+> kṛṣṇa-nāma sphure mukhe, mane netre kṛṣṇa
+> tomāke tad-rūpa dekhi' hṛdaya-satṛṣṇa
+
+*kṛṣṇa-nāma*—the holy name of Lord Kṛṣṇa; *sphure*—is manifest; *mukhe*—in the mouth; *mane*—in the mind; *netre*—before the eyes; *kṛṣṇa*—the presence of Lord Kṛṣṇa; *tomāke*—You; *tat-rūpa*—His form; *dekhi'*—I see; *hṛdaya*—my heart; *sa-tṛṣṇa*—very eager.
+
+**Brahmānanda Bhāratī continued, "Since I have seen You, I have been feeling Lord Kṛṣṇa's presence in my mind and have been seeing Him before my eyes. I now want to chant the holy name of Lord Kṛṣṇa. Over and above this, within my heart I consider You to be Kṛṣṇa, and I am therefore very eager to serve You.**

@@ -1,0 +1,12 @@
+### SB 4.21.24
+
+> ya uddharet karaṁ rājā
+> prajā dharmeṣv aśikṣayan
+> prajānāṁ śamalaṁ bhuṅkte
+> bhagaṁ ca svaṁ jahāti saḥ
+
+*yaḥ*—anyone (king or governor); *uddharet*—exact; *karam*—taxes; *rājā*—king; *prajāḥ*—the citizens; *dharmeṣu*—in executing their respective duties; *aśikṣayan*—without teaching them how to execute their respective duties; *prajānām*—of the citizens; *śamalam*—impious; *bhuṅkte*—enjoys; *bhagam*—fortune; *ca*—also; *svam*—own; *jahāti*—gives up; *saḥ*—that king.
+
+**Any king who does not teach his citizens about their respective duties in terms of varṇa and āśrama but who simply exacts tolls and taxes from them is liable to suffer for the impious activities which have been performed by the citizens. In addition to such degradation, the king also loses his own fortune.**
+
+A king, governor or president should not take the opportunity to occupy his post without also discharging his duty. He must teach the people within the state how to observe the divisions of varṇa and āśrama. If a king neglects to give such instructions and is simply satisfied with levying taxes, then those who share in the collection—namely, all the government servants and the head of the state—are liable to share in the impious activities of the general masses. The laws of nature are very subtle. For example, if one eats in a place which is very sinful, he shares in the resultant reaction of the sinful activities performed there. (It is a Vedic system, therefore, for a householder to call brāhmaṇas and Vaiṣṇavas to eat at ceremonial performances in his house because the brāhmaṇas and Vaiṣṇavas can immunize him from sinful activities. But it is not the duty of rigid brāhmaṇas and Vaiṣṇavas to accept invitations everywhere. There is, of course, no objection to taking part in feasts in which prasāda is distributed.) There are many subtle laws which are practically unknown to people in general, but the Kṛṣṇa consciousness movement is very scientifically distributing all this Vedic knowledge for the benefit of the people of the world.

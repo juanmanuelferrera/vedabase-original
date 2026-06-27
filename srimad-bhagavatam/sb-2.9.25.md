@@ -1,0 +1,17 @@
+### SB 2.9.25
+
+> brahmovāca
+> bhagavan sarva-bhūtānām
+> adhyakṣo 'vasthito guhām
+> veda hy apratiruddhena
+> prajñānena cikīrṣitam
+
+*brahmā uvāca*—Lord Brahmā said; *bhagavan*—O my Lord; *sarva bhūtānām*—of all living entities; *adhyakṣaḥ*—director; *avasthitaḥ*—situated; *guhām*—within the heart; *veda*—know; *hi*—certainly; *apratiruddhena*—without hindrance; *prajñānena*—by superintelligence; *cikīrṣitam*—endeavors.
+
+**Lord Brahmā said: O Personality of Godhead, You are situated in every living entity's heart as the supreme director, and therefore You are aware of all endeavors by Your superior intelligence, without any hindrance whatsoever.**
+
+The Bhagavad-gītā confirms that the Lord is situated in everyone's heart as the witness, and as such He is the supreme director of sanction. The director is not the enjoyer of the fruits of action, but without His sanction no one can enjoy. For example, in a prohibited area a habituated drunkard puts forward his application to the director of drinking, and the director, considering his case, sanctions only a certain amount of liquor for drinking. Similarly, the whole material world is full of many drunkards, in the sense that each and every one of the living entities has something in his mind to enjoy, and everyone desires the fulfillment of his desires very strongly. The almighty Lord, very kind to the living entity, as the father is kind to the son, fulfills the living entity's desire for his childish satisfaction. With such desires in mind, the living entity does not actually enjoy, but he serves the bodily whims unnecessarily, without profit. The drunkard does not derive any profit out of drinking, but because he has become a servant of the drinking habit and does not wish to get out of it, the merciful Lord gives him all facilities to fulfill such desires.
+
+The impersonalists recommend that one should become desireless, and others recommend banishing desires altogether. That is impossible; no one can banish desires altogether because desiring is the living symptom. Without having desires a living entity would be dead, which he is not. Therefore, living conditions and desire go together. Perfection of desires may be achieved when one desires to serve the Lord, and the Lord also desires that every living entity should banish all personal desires and cooperate with the desires of the Lord. That is the last instruction of the Bhagavad-gītā. Brahmājī agreed to this proposal, and therefore he is given the responsible post of creating generations in the vacant universe. Oneness with the Lord is therefore to dovetail one's desires with the desires of the Supreme Lord. That makes for the perfection of all desires.
+
+The Lord, as the Supersoul in the heart of every living being, knows what is there in the mind of each living entity, and no one can do anything without the knowledge of the Lord within. By His superior intelligence, the Lord gives everyone the chance; to fulfill his desires to the fullest extent, and the resultant reaction is also awarded by the Lord.

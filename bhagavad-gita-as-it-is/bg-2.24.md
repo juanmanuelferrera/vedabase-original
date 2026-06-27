@@ -1,0 +1,14 @@
+### Bg 2.24
+
+> acchedyo 'yam adāhyo 'yam
+> akledyo 'śoṣya eva ca
+> nityaḥ sarva-gataḥ sthāṇur
+> acalo 'yaṁ sanātanaḥ
+
+*acchedyaḥ*—unbreakable; *ayam*—this soul; *adāhyaḥ*—cannot be burned; *ayam*—this soul; *akledyaḥ*—insoluble; *aśoṣyaḥ*—cannot be dried; *eva*—certainly; *ca*—and; *nityaḥ*—everlasting; *sarva-gataḥ*—all-pervading; *sthāṇuḥ*—unchangeable; *acalaḥ*—immovable; *ayam*—this soul; *sanātanaḥ*—eternally the same.
+
+**This individual soul is unbreakable and insoluble, and can be neither burned nor dried. He is everlasting, all-pervading, unchangeable, immovable and eternally the same.**
+
+All these qualifications of the atomic soul definitely prove that the individual soul is eternally the atomic particle of the spirit whole, and he remains the same atom eternally, without change. The theory of monism is very difficult to apply in this case, because the individual soul is never expected to become one homogeneously. After liberation from material contamination, the atomic soul may prefer to remain as a spiritual spark in the effulgent rays of the Supreme Personality of Godhead, but the intelligent souls enter into the spiritual planets to associate with the Personality of Godhead.
+
+The word *sarva-gataḥ* (all-pervading) is significant because there is no doubt that living entities are all over God's creation. They live on the land, in the water, in the air, within the earth and even within fire. The belief that they are sterilized in fire is not acceptable, because it is clearly stated here that the soul cannot be burned by fire. Therefore, there is no doubt that there are living entities also in the sun planet with suitable bodies to live there. If the sun globe is uninhabited, then the word *sarva-gataḥ*—living everywhere—becomes meaningless.

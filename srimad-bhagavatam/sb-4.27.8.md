@@ -1,0 +1,14 @@
+### SB 4.27.8
+
+> sa pañcāla-patiḥ putrān
+> pitṛ-vaṁśa-vivardhanān
+> dāraiḥ saṁyojayām āsa
+> duhitṝḥ sadṛśair varaiḥ
+
+*saḥ*—he; *pañcāla-patiḥ*—the King of Pañcāla; *putrān*—sons; *pitṛ-vaṁśa*—paternal family; *vivardhanān*—increasing; *dāraiḥ*—with wives; *saṁyojayām āsa*—married; *duhitṝḥ*—daughters; *sadṛśaiḥ*—qualified; *varaiḥ*—with husbands.
+
+**After this, King Purañjana, King of the Pañcāla country, in order to increase the descendants of his paternal family, married his sons with qualified wives and married his daughters with qualified husbands.**
+
+According to the Vedic system, everyone should marry. One has to accept a wife because a wife will produce children, and the children in their turn will offer foodstuffs and funeral ceremonies so that the forefathers, wherever they may live, will be made happy. The offering of oblations in the name of Lord Viṣṇu is called piṇḍodaka, and it is necessary that the descendants of a family offer piṇḍa to the forefathers.
+
+Not only was Purañjana, the King of Pañcāla, satisfied in his own sex life, but he arranged for the sex life of his 1,100 sons and 110 daughters. In this way one can elevate an aristocratic family to the platform of a dynasty. It is significant in this verse that Purañjana got both sons and daughters married. It is the duty of a father and mother to arrange for the marriage of their sons and daughters. That is the obligation in Vedic society. Sons and daughters should not be allowed freedom to intermingle with the opposite sex unless they are married. This Vedic social organization is very good in that it stops the promulgation of illicit sex life, or varṇa-saṅkara, which appears under different names in this present day. Unfortunately in this age although the father and mother are anxious to get their children married, the children refuse to get married by the arrangement of the parents. Consequently the number of varṇa-saṅkara has increased throughout the world under different names.

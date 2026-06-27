@@ -1,0 +1,14 @@
+### SB 3.32.8
+
+> dvi-parārdhāvasāne yaḥ
+> pralayo brahmaṇas tu te
+> tāvad adhyāsate lokaṁ
+> parasya para-cintakāḥ
+
+*dvi-parārdha*—two *parārdhas*; *avasāne*—at the end of; *yaḥ*—which; *pralayaḥ*—death; *brahmaṇaḥ*—of Lord Brahmā; *tu*—indeed; *te*—they; *tāvat*—so long; *adhyāsate*—dwell; *lokam*—on the planet; *parasya*—of the Supreme; *para-cintakāḥ*—thinking of the Supreme Personality of Godhead.
+
+**Worshipers of the Hiraṇyagarbha expansion of the Personality of Godhead remain within this material world until the end of two parārdhas, when Lord Brahmā also dies.**
+
+One dissolution is at the end of Brahmā's day, and one is at the end of Brahmā's life. Brahmā dies at the end of two *parārdhas,* at which time the entire material universe is dissolved. Persons who are worshipers of Hiraṇyagarbha, the plenary expansion of the Supreme Personality of Godhead Garbhodakaśāyī Viṣṇu, do not directly approach the Supreme Personality of Godhead in Vaikuṇṭha. They remain within this universe on Satyaloka or other higher planets until the end of the life of Brahmā. Then, with Brahmā, they are elevated to the spiritual kingdom.
+
+The words *parasya para-cintakāḥ* mean "always thinking of the Supreme Personality of Godhead," or being always Kṛṣṇa conscious. When we speak of Kṛṣṇa, this refers to the complete category of *viṣṇu-tattva.* Kṛṣṇa includes the three *puruṣa* incarnations, namely Mahā-Viṣṇu, Garbhodakaśāyī Viṣṇu and Kṣīrodakaśāyī Viṣṇu, as well as all the incarnations taken together. This is confirmed in the *Brahma-saṁhitā. Rāmādi-mūrtiṣu kalā-niyamena tiṣṭhan:* [Bs. 5.39] Lord Kṛṣṇa is perpetually situated with His many expansions, such as Rāma, Nṛsiṁha, Vāmana, Madhusūdana, Viṣṇu and Nārāyaṇa. He exists with all His plenary portions and the portions of His plenary portions, and each of them is as good as the Supreme Personality of Godhead. The words *parasya para-cintakāḥ* mean those who are fully Kṛṣṇa conscious. Such persons enter directly into the kingdom of God, the Vaikuṇṭha planets, or, if they are worshipers of the plenary portion Garbhodakaśāyī Viṣṇu, they remain within this universe until its dissolution, and after that they enter.

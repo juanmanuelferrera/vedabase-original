@@ -1,0 +1,12 @@
+### SB 4.23.38
+
+> vaicitravīryābhihitaṁ
+> mahan-māhātmya-sūcakam
+> asmin kṛtam atimartyaṁ
+> pārthavīṁ gatim āpnuyāt
+
+*vaicitravīrya*—O son of Vicitravīrya (Vidura); *abhihitam*—explained; *mahat*—great; *māhātmya*—greatness; *sūcakam*—awakening; *asmin*—in this; *kṛtam*—performed; *ati-martyam*—uncommon; *pārthavīm*—in connection with Pṛthu Mahārāja; *gatim*—advancement, destination; *āpnuyāt*—one should achieve.
+
+**The great sage Maitreya continued: My dear Vidura, I have as far as possible spoken the narrations about Pṛthu Mahārāja, which enrich one's devotional attitude. Whoever takes advantage of these benefits also goes back home, back to Godhead, like Mahārāja Pṛthu.**
+
+The word śrāvayet, mentioned in a previous verse, indicates that one should not only read for himself, but should also induce others to read and hear. That is called preaching. Caitanya Mahāprabhu recommended this practice: yāre dekha, tāre kaha 'kṛṣṇa'-upadeśa (Cc. Madhya 7.128). "Whomever you meet, simply talk with him about the instructions given by Kṛṣṇa or tell him of narrations about Kṛṣṇa." Pṛthu Mahārāja's history of devotional service is as potent as narrations about the activities of the Supreme Personality of Godhead. One should not make distinctions between the pastimes of the Lord and the activities of Pṛthu Mahārāja, and whenever it is possible a devotee should attempt to induce others to hear about Pṛthu Mahārāja. One should not only read of his pastimes for one's own benefit but should induce others to read and hear about them also. In this way everyone can be benefited.

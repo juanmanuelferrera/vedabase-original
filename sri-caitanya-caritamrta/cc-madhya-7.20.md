@@ -1,0 +1,8 @@
+### CC Madhya 7.20
+
+> nīlācala āsite pathe bhāṅgilā mora daṇḍa
+> tomā-sabāra gāḍha-snehe āmāra kārya-bhaṅga
+
+*nīlācala*—to Jagannātha Purī; *āsite*—going there; *pathe*—on the road; *bhāṅgilā*—You broke; *mora*—My; *daṇḍa*—*sannyāsa* staff; *tomā-sabāra*—of all of you; *gāḍha-snehe*—on account of the deep affection; *āmāra*—My; *kārya-bhaṅga*—disturbance of activities.
+
+**"While on the way to Jagannātha Purī, You broke My sannyāsa staff. I know that all of you have great affection for Me, but such things disturb My activities.**

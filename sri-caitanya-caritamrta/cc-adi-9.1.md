@@ -1,0 +1,12 @@
+### CC Adi 9.1
+
+> taṁ śrīmat-kṛṣṇa-caitanya-
+> devaṁ vande jagad-gurum
+> yasyānukampayā śvāpi
+> mahābdhiṁ santaret sukham
+
+*tam*—unto Him; *śrīmat*—with all opulence; *kṛṣṇa-caitanya-devam*—unto Lord Kṛṣṇa Caitanyadeva; *vande*—I offer obeisances; *jagat-gurum*—spiritual master of the world; *yasya*—whose; *anukampayā*—by the mercy of; *śvā api*—even a dog; *mahā-abdhīm*—great ocean; *santaret*—can swim; *sukham*—without difficulty.
+
+**Let me offer my respectful obeisances unto the spiritual master of the entire world, Lord Śrī Kṛṣṇa Caitanya Mahāprabhu, by whose mercy even a dog can swim across a great ocean.**
+
+Sometimes it is to be seen that a dog can swim in the water for a few yards and then come back to the shore. Here, however, it is stated that if a dog is blessed by Śrī Caitanya Mahāprabhu, he can swim across an ocean. Similarly, the author of *Śrī Caitanya-caritāmṛta,* Kṛṣṇadāsa Kavirāja Gosvāmī, placing himself in a helpless condition, states that he has no personal power, but by the desire of Lord Caitanya, expressed through the Vaiṣṇavas and Madana-mohana *vigraha,* it is possible for him to cross a transcendental ocean to present *Śrī Caitanya-caritāmṛta.*

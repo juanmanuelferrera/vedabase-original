@@ -1,0 +1,10 @@
+### SB 1.12.8
+
+> aṅguṣṭha-mātram amalaṁ
+> sphurat-puraṭa-maulinam
+> apīvya-darśanaṁ śyāmaṁ
+> taḍid vāsasam acyutam
+
+*aṅguṣṭha*—by the measure of a thumb; *mātram*—only; *amalam*—transcendental; *sphurat*—blazing; *puraṭa*—gold; *maulinam*—helmet; *apīvya*—very beautiful; *darśanam*—to look at; *śyāmam*—blackish; *taḍit*—lightning; *vāsasam*—clothing; *acyutam*—the Infallible (the Lord).
+
+**He [the Lord] was only thumb high, but He was all transcendental. He had a very beautiful, blackish, infallible body, and He wore a dress of lightning yellow and a helmet of blazing gold. Thus He was seen by the child.**

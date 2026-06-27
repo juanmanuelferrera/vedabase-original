@@ -1,0 +1,8 @@
+### CC Madhya 24.318
+
+> kṛṣṇa-tulya bhāgavata—vibhu, sarvāśraya
+> prati-śloke prati-akṣare nānā artha kaya
+
+*kṛṣṇa-tulya bhāgavata*—*Śrīmad-Bhāgavatam* is identical with Kṛṣṇa; *vibhu*—the supreme; *sarva-āśraya*—the origin of everything, or that which controls everything; *prati-śloke*—in every verse; *prati-akṣare*—in every syllable; *nānā artha kaya*—there are varieties of imports.
+
+**"Śrīmad-Bhāgavatam is as great as Kṛṣṇa, the Supreme Lord and shelter of everything. In each and every verse of Śrīmad-Bhāgavatam and in each and every syllable, there are various meanings.**

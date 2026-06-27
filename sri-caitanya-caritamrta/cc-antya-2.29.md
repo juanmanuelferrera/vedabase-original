@@ -1,0 +1,8 @@
+### CC Antya 2.29
+
+> śuni, śivānanda sena tāṅhā śīghra āila
+> namaskāra kari' tāṅra nikaṭe vasila
+
+*śuni'*—hearing; *śivānanda sena*—of the name Śivānanda Sena; *tāṅhā*—there; *śīghra*—quickly; *āila*—came; *namaskāra kari'*—offering obeisances; *tāṅra nikaṭe*—near him; *vasila*—sat down.
+
+**Hearing these calls, Śivānanda Sena quickly went there, offered obeisances to Nakula Brahmacārī, and sat down near him.**

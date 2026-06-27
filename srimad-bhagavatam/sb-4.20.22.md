@@ -1,0 +1,12 @@
+### SB 4.20.22
+
+> athāvamṛjyāśru-kalā vilokayann
+> atṛpta-dṛg-gocaram āha pūruṣam
+> padā spṛśantaṁ kṣitim aṁsa unnate
+> vinyasta-hastāgram uraṅga-vidviṣaḥ
+
+*atha*—thereupon; *avamṛjya*—wiping; *aśru-kalāḥ*—the tears in his eyes; *vilokayan*—observing; *atṛpta*—not satisfied; *dṛk-gocaram*—visible to his naked eyes; *āha*—he said; *pūruṣam*—unto the Supreme Personality of Godhead; *padā*—with His lotus feet; *spṛśantam*—just touching; *kṣitim*—the ground; *aṁse*—on the shoulder; *unnate*—raised; *vinyasta*—rested; *hasta*—of His hand; *agram*—the front part; *uraṅga-vidviṣaḥ*—of Garuḍa, the enemy of the snakes.
+
+**The Supreme Personality of Godhead stood with His lotus feet almost touching the ground while He rested the front of His hand on the raised shoulder of Garuḍa, the enemy of the snakes. Mahārāja Pṛthu, wiping the tears from his eyes, tried to look upon the Lord, but it appeared that he was not fully satisfied by looking at Him. Thus he offered the following prayers.**
+
+The significant point in this verse is that the Lord was standing above the ground, almost touching it. The residents of the upper planetary systems, beginning from Brahmaloka (the planet where Lord Brahmā lives) down to Svargaloka (the heavenly planet of Indra), are so advanced in spiritual life that when they come to visit this or similar other lower planetary systems, they keep their weightlessness. This means that they can stand without touching the ground. Lord Viṣṇu is the Supreme Personality of Godhead, but because He lives in one of the planetary systems within this universe, He sometimes plays as if one of the demigods of this universe. When He first appeared before Pṛthu Mahārāja, He was not touching the ground of this earth, but when He was fully satisfied with the behavior and character of Mahārāja Pṛthu, He immediately acted as the Supreme Personality of Godhead Nārāyaṇa from Vaikuṇṭha. Out of affection for Pṛthu Mahārāja, He touched the earth, but He rested the front of His hand on the raised shoulder of Garuḍa, His carrier, as if to prevent Himself from falling down, since the Lord is not accustomed to stand on earthly ground. These are all symptoms of His great affection for Pṛthu Mahārāja. Perceiving his fortunate position, Pṛthu Mahārāja could not fully look upon the Lord due to ecstasy, but still, in a faltering voice, he began to offer prayers.

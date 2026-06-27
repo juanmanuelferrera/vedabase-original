@@ -1,0 +1,10 @@
+### CC Adi 13.32
+
+> nagare nagare bhrame kīrtana kariyā
+> bhāsāila tri-bhuvana prema-bhakti diyā
+
+*nagarenagare*—in different parts of the town; *bhrame*—wanders; *kīrtana*—chanting; *kariyā*—performing; *bhāsāila*—inundated; *tri-bhuvana*—all the three worlds; *prema-bhakti*—love of Godhead; *diyā*—distributing.
+
+**The saṅkīrtana movement went on from one part of the town to another, as the Lord wandered everywhere performing kīrtana. In this way He inundated the whole world by distributing love of Godhead.**
+
+One may raise the question how all three worlds became inundated with love of Kṛṣṇa since Caitanya Mahāprabhu performed *kīrtana* only in the Navadvīpa area. The answer is that Lord Śrī Caitanya Mahāprabhu is Kṛṣṇa Himself. The entire cosmic manifestation results from the Lord's first setting it in motion. Similarly, since the *saṅkīrtana* movement was first set in motion five hundred years ago by Śrī Caitanya Mahāprabhu's desire that it spread all over the universe, the Kṛṣṇa consciousness movement, in continuity of that same motion, is now spreading all over the world, and in this way it will gradually spread all over the universe. With the spread of the Kṛṣṇa consciousness movement, everyone will merge in an ocean of love of Kṛṣṇa.

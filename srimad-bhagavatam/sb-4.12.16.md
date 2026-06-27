@@ -1,0 +1,12 @@
+### SB 4.12.16
+
+> ātma-stry-apatya-suhṛdo balam ṛddha-kośam
+> antaḥ-puraṁ parivihāra-bhuvaś ca ramyāḥ
+> bhū-maṇḍalaṁ jaladhi-mekhalam ākalayya
+> kālopasṛṣṭam iti sa prayayau viśālām
+
+*ātma*—body; *strī*—wives; *apatya*—children; *suhṛdaḥ*—friends; *balam*—influence, army; *ṛddha-kośam*—rich treasury; *antaḥ-puram*—female residential quarters; *parivihāra-bhuvaḥ*—pleasure-grounds; *ca*—and; *ramyāḥ*—beautiful; *bhū-maṇḍalam*—the complete earth; *jala-dhi*—by oceans; *mekhalam*—bound; *ākalayya*—considering; *kāla*—by time; *upasṛṣṭam*—created; *iti*—thus; *saḥ*—he; *prayayau*—went; *viśālām*—to Badarikāśrama.
+
+**Thus Dhruva Mahārāja, at the end, left his kingdom, which extended all over the earth and was bounded by the great oceans. He considered his body, his wife, his children, his friends, his army, his rich treasury, his very comfortable palaces and his many enjoyable pleasure-grounds to be creations of the illusory energy. Thus in due course of time he retired to the forest known as Badarikāśrama in the Himalayas.**
+
+In the beginning of his life, when he went to the forest in search of the Supreme Personality of Godhead, Dhruva Mahārāja realized that all bodily conceptions of pleasure are products of the illusory energy. In the very beginning, of course, he was after the kingdom of his father, and in order to get it he went to search for the Supreme Lord. But he later realized that everything is the creation of the illusory energy. From the acts of Śrīla Dhruva Mahārāja we can understand that somehow or other if one becomes Kṛṣṇa conscious—it does not matter what his motivation is in the beginning—he will eventually realize the real truth by the grace of the Lord. In the beginning, Dhruva Mahārāja was interested in the kingdom of his father, but later he became a great devotee, mahā-bhāgavata, and had no interest in material enjoyment. The perfection of life can be achieved only by devotees. Even if one completes only a minute percentage of devotional service and then falls down from his immature position, he is better than a person who fully engages in the fruitive activities of this material world.

@@ -1,0 +1,32 @@
+### SB 9.9.42
+
+> yo devair arthito daityān
+> avadhīd yudhi durjayaḥ
+> muhūrtam āyur jñātvaitya
+> sva-puraṁ sandadhe manaḥ
+
+*yaḥ*—King Khaṭvāṅga who; *devaiḥ*—by the demigods; *arthitaḥ*—being requested; *daityān*—the demons; *avadhīt*—killed; *yudhi*—in a fight; *durjayaḥ*—very fierce; *muhūrtam*—for a second only; *āyuḥ*—duration of life; *jñātvā*—knowing; *etya*—approached; *sva-puram*—his own abode; *sandadhe*—fixed; *manaḥ*—the mind.
+
+**King Khaṭvāṅga was unconquerable in any fight. Requested by the demigods to join them in fighting the demons, he won victory, and the demigods, being very pleased, wanted to give him a benediction. The King inquired from them about the duration of his life and was informed that he had only one moment more. Thus he immediately left his palace and went to his own residence, where he engaged his mind fully on the lotus feet of the Lord.**
+
+The example of Mahārāja Khaṭvāṅga in performing devotional service is brilliant. Mahārāja Khaṭvāṅga engaged himself for only a moment in devotional service to the Lord, but he was promoted back to Godhead. Therefore, if one practices devotional service from the beginning of his life, surely he will return home, back to Godhead, without a doubt (*asaṁśaya*).
+
+In *Bhagavad-gītā* the word *asaṁśaya* is used to describe the devotee. There the Lord Himself gives this instruction:
+
+> mayy āsakta-manāḥ pārtha
+> yogaṁ yuñjan mad-āśrayaḥ
+> asaṁśayaṁ samagraṁ māṁ
+> yathā jñāsyasi tac chṛṇu
+
+"Now hear, O son of Pṛthā [Arjuna], how by practicing *yoga* in full consciousness of Me, with mind attached to Me, you can know Me in full, free from doubt." [[bg/7/1|(Bg. 7.1)]]
+
+The Lord also instructs:
+
+> janma karma ca me divyam
+> evaṁ yo vetti tattvataḥ
+> tyaktvā dehaṁ punar janma
+> naiti mām eti so 'rjuna
+
+"One who knows the transcendental nature of My appearance and activities does not, upon leaving the body, take his birth again in this material world, but attains My eternal abode, O Arjuna." [[bg/4/9|(Bg. 4.9)]]
+
+Therefore, from the very beginning of one's life one should practice *bhakti-yoga,* which increases one's attachment for Kṛṣṇa. If one daily sees the Deity in the temple, makes offerings by worshiping the Deity, chants the holy name of the Personality of Godhead, and preaches about the glorious activities of the Lord as much as possible, he thus becomes attached to Kṛṣṇa. This attachment is called *āsakti.* When one's mind is attached to Kṛṣṇa (*mayy āsakta-manāḥ*), one can fulfill the mission of life in one human birth. If one misses this opportunity, one does not know where he is going, how long he will remain in the cycle of birth and death, and when he will again achieve the human form of life and the chance to return home, back to Godhead. The most intelligent person, therefore, uses every moment of his life to render loving service to the Lord.

@@ -1,0 +1,8 @@
+### CC Adi 2.23
+
+> para-vyomete vaise nārāyaṇa nāma
+> ṣaḍ-aiśvarya-pūrṇa lakṣmī-kānta bhagavān
+
+*para-vyomete*—in the transcendental world; *vaise*—sits; *nārāyaṇa*—Lord Nārāyaṇa; *nāma*—of the name; *ṣaṭ-aiśvarya*—of six kinds of opulences; *pūrṇa*—full; *lakṣmī-kānta*—the husband of the goddess of opulence; *bhagavān*—the Supreme Personality of Godhead.
+
+**Lord Nārāyaṇa, who dominates the transcendental world, is full in six opulences. He is the Personality of Godhead, the Lord of the goddess of fortune.**

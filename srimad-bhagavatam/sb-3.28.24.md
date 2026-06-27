@@ -1,0 +1,14 @@
+### SB 3.28.24
+
+> ūrū suparṇa-bhujayor adhi śobhamānāv
+> ojo-nidhī atasikā-kusumāvabhāsau
+> vyālambi-pīta-vara-vāsasi vartamāna-
+> kāñcī-kalāpa-parirambhi nitamba-bimbam
+
+*ūrū*—the two thighs; *suparṇa*—of Garuḍa; *bhujayoḥ*—the two shoulders; *adhi*—on; *śobhamānau*—beautiful; *ojaḥ-nidhī*—the storehouse of all energy; *atasikā-kusuma*—of the linseed flower; *avabhāsau*—like the luster; *vyālambi*—extending down; *pīta*—yellow; *vara*—exquisite; *vāsasi*—on the cloth; *vartamāna*—being; *kāñcī-kalāpa*—by a girdle; *parirambhi*—encircled; *nitamba-bimbam*—His rounded hips.
+
+**Next, the yogi should fix his mind in meditation on the Personality of Godhead's thighs, the storehouse of all energy. The Lord's thighs are whitish blue, like the luster of the linseed flower, and appear most graceful when the Lord is carried on the shoulders of Garuḍa. Also the yogī should contemplate His rounded hips, which are encircled by a girdle that rests on the exquisite yellow silk cloth that extends down to His ankles.**
+
+The Personality of Godhead is the reservoir of all strength, and His strength rests on the thighs of His transcendental body. His whole body is full of opulences: all riches, all strength, all fame, all beauty, all knowledge and all renunciation. The *yogī* is advised to meditate upon the transcendental form of the Lord, beginning from the soles of the feet and then gradually rising to the knees, to the thighs, and finally arriving at the face. The system of meditating on the Supreme Personality of Godhead begins from His feet.
+
+The description of the transcendental form of the Lord is exactly represented in the *arcā-vigraha,* the statue in the temples. Generally, the lower part of the body of the statue of the Lord is covered with yellow silk. That is the Vaikuṇṭha dress, or the dress the Lord wears in the spiritual sky. This cloth extends down to the Lord's ankles. Thus, since the *yogī* has so many transcendental objectives on which to meditate, there is no reason for his meditating on something imaginary, as is the practice of the so-called *yogīs* whose objective is impersonal.

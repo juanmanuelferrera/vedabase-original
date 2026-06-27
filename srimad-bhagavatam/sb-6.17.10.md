@@ -1,0 +1,20 @@
+### SB 6.17.10
+
+> ity atad-vīrya-viduṣi
+> bruvāṇe bahv-aśobhanam
+> ruṣāha devī dhṛṣṭāya
+> nirjitātmābhimānine
+
+*iti*—thus; *a-tat-vīrya-viduṣi*—when Citraketu, who did not know the prowess of Lord Śiva; *bruvāṇe*—spoke; *bahu-aśobhanam*—that which is not up to the standard of etiquette (the criticism of the exalted Lord Śiva); *ruṣā*—with anger; *āha*—said; *devī*—the goddess Pārvatī; *dhṛṣṭāya*—unto Citraketu, who was quite shameless; *nirjita-ātma*—as one who has controlled his senses; *abhimānine*—thinking of himself.
+
+**Not knowing the prowess of Lord Śiva and Pārvatī, Citraketu strongly criticized them. His statements were not at all pleasing, and therefore the goddess Pārvatī, being very angry, spoke as follows to Citraketu, who thought himself better than Lord Śiva in controlling the senses.**
+
+Although Citraketu never meant to insult Lord Śiva, he should not have criticized the lord, even though the lord was transgressing social customs. It is said, *tejīyasāṁ na doṣāya:* one who is very powerful should be understood to be faultless. For example, one should not find faults with the sun, although it evaporates urine from the street. The most powerful cannot be criticized by an ordinary man, or even by a great personality. Citraketu should have known that Lord Śiva, although sitting in that way, was not to be criticized. The difficulty was that Citraketu, having become a great devotee of Lord Viṣṇu, Saṅkarṣaṇa, was somewhat proud at having achieved Lord Saṅkarṣaṇa's favor and therefore thought that he could now criticize anyone, even Lord Śiva. This kind of pride in a devotee is never tolerated. A Vaiṣṇava should always remain very humble and meek and offer respect to others.
+
+> tṛṇād api sunīcena
+> taror api sahiṣṇunā
+> amāninā mānadena
+> kīrtanīyaḥ sadā hariḥ
+> [[cc/adi/17/31|[Cc. Ādi 17.31] ]]
+
+"One should chant the holy name of the Lord in a humble state of mind, thinking oneself lower than the straw in the street; one should be more tolerant than a tree, devoid of all sense of false prestige and ready to offer all respect to others. In such a state of mind one can chant the holy name of the Lord constantly." A Vaiṣṇava should not try to minimize anyone else's position. It is better to remain humble and meek and chant the Hare Kṛṣṇa *mantra.* The word *nirjitātmābhimānine* indicates that Citraketu thought himself a better controller of the senses than Lord Śiva, although actually he was not. Because of all these considerations, mother Pārvatī was somewhat angry at Citraketu.

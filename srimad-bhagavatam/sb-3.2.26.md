@@ -1,0 +1,12 @@
+### SB 3.2.26
+
+> tato nanda-vrajam itaḥ
+> pitrā kaṁsād vibibhyatā
+> ekādaśa samās tatra
+> gūḍhārciḥ sa-balo 'vasat
+
+*tataḥ*—thereafter; *nanda-vrajam*—cow pastures of Nanda Mahārāja; *itaḥ*—being brought up; *pitrā*—by His father; *kaṁsāt*—from Kaṁsa; *vibibhyatā*—being afraid of; *ekādaśa*—eleven; *samāḥ*—years; *tatra*—therein; *gūḍha-arciḥ*—covered fire; *sa-balaḥ*—with Baladeva; *avasat*—resided.
+
+**Thereafter, His father, being afraid of Kaṁsa, brought Him to the cow pastures of Mahārāja Nanda, and there He lived for eleven years like a covered flame with His elder brother, Baladeva.**
+
+There was no necessity of the Lord's being dispatched to the house of Nanda Mahārāja out of fear of Kaṁsa's determination to kill Him as soon as He appeared. It is the business of the *asuras* to try to kill the Supreme Personality of Godhead or to prove by all means that there is no God or that Kṛṣṇa is an ordinary human being and not God. Lord Kṛṣṇa is not affected by such determination of men of Kaṁsa's class, but in order to play the role of a child He agreed to be carried by His father to the cow pastures of Nanda Mahārāja because Vasudeva was afraid of Kaṁsa. Nanda Mahārāja was due to receive Him as his child, and Yaśodāmayī was also to enjoy the childhood pastimes of the Lord, and therefore to fulfill everyone's desire, He was carried from Mathurā to Vṛndāvana just after His appearance in the prison house of Kaṁsa. He lived there for eleven years and completed all His fascinating pastimes of childhood, boyhood and adolescence with His elder brother, Lord Baladeva, His first expansion. Vasudeva's thought of protecting Kṛṣṇa from the wrath of Kaṁsa is part of a transcendental relationship. The Lord enjoys more when someone takes Him as his subordinate son who needs the protection of a father than He does when someone accepts Him as the Supreme Lord. He is the father of everyone, and He protects everyone, but when His devotee takes it for granted that the Lord is to be protected by the devotee's care, it is a transcendental joy for the Lord. Thus when Vasudeva, out of fear of Kaṁsa, carried Him to Vṛndāvana, the Lord enjoyed it; otherwise, He had no fear from Kaṁsa or anyone else.

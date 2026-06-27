@@ -1,0 +1,18 @@
+### SB 4.23.31
+
+> ya idaṁ sumahat puṇyaṁ
+> śraddhayāvahitaḥ paṭhet
+> śrāvayec chṛṇuyād vāpi
+> sa pṛthoḥ padavīm iyāt
+
+*yaḥ*—anyone; *idam*—this; *su-mahat*—very great; *puṇyam*—pious; *śraddhayā*—with great faith; *avahitaḥ*—with great attention; *paṭhet*—reads; *śrāvayet*—explains; *śṛṇuyāt*—hears; *vā*—or; *api*—certainly; *saḥ*—that person; *pṛthoḥ*—of King Pṛthu; *padavīm*—situation; *iyāt*—attains.
+
+**Any person who describes the great characteristics of King Pṛthu with faith and determination—whether he reads or hears of them himself or helps others to hear of them—is certain to attain the very planet which Mahārāja Pṛthu attained. In other words, such a person also returns home to the Vaikuṇṭha planets, back to Godhead.**
+
+In the execution of devotional service, śravaṇaṁ kīrtanaṁ viṣṇoḥ is especially stressed. This means that bhakti, or devotional service, begins by hearing and chanting about Viṣṇu. When we speak of Viṣṇu, we also refer to that which relates to Viṣṇu. In the Śiva Purāṇa, Lord Śiva recommends Viṣṇu worship to be the topmost worship, and better than Viṣṇu worship is worship of the Vaiṣṇava or anything that is related to Viṣṇu. The fact is explained herein that hearing and chanting about a Vaiṣṇava is as good as hearing and chanting about Viṣṇu, for Maitreya has explained that anyone who hears about Pṛthu Mahārāja with attention also attains the planet which Mahārāja Pṛthu attained. There is no duality between Viṣṇu and the Vaiṣṇava, and this is called advaya-jñāna. A Vaiṣṇava is as important as Viṣṇu, and therefore Śrīla Viśvanātha Cakravartī Ṭhākura wrote in his Gurv-aṣṭaka:
+
+sākṣād-dharitvena samasta-śāstrair uktas tathā bhāvyata eva sadbhiḥ kintu prabhor yaḥ priya eva tasya vande guroḥ śrī-caraṇāravindam
+
+"The spiritual master is honored as much as the Supreme Lord because he is the most confidential servitor of the Lord. This is acknowledged in all revealed scriptures and is followed by all authorities. Therefore I offer my respectful obeisances unto the lotus feet of my spiritual master, who is a bona fide representative of Śrī Hari."
+
+The supreme Vaiṣṇava is the spiritual master, and he is nondifferent from the Supreme Personality of Godhead. It is said that sometimes Lord Caitanya Mahāprabhu used to chant the names of the gopīs. Some of the Lord's students tried to advise Him to chant the name of Kṛṣṇa instead, but upon hearing this Caitanya Mahāprabhu became very angry with His students. The controversy on this subject reached a point that after this incident Caitanya Mahāprabhu decided to take sannyāsa because He was not taken very seriously in His gṛhastha-āśrama. The point is that since Śrī Caitanya Mahāprabhu chanted the names of the gopīs, worship of the gopīs or the devotees of the Lord is as good as devotional service rendered directly to the Lord. It is also stated by the Lord Himself that devotional service to His devotees is better than service offered directly to Him. Sometimes the sahajiyā class of devotees are only interested in Kṛṣṇa's personal pastimes to the exclusion of the activities of the devotees. This type of devotee is not on a very high level; one who sees the devotee and the Lord on the same level has further progressed.

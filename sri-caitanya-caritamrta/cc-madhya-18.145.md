@@ -1,0 +1,22 @@
+### CC Madhya 18.145
+
+> māgha-māsa lāgila, ebe yadi yāiye
+> makare prayāga-snāna kata dina pāiye
+
+*māgha-māsa lāgila*—the month of Māgha has begun; *ebe*—now; *yadi*—if; *yāiye*—we go; *makare*—during the Makara-saṅkrānti; *prayāga-snāna*—bathing at Prayāga; *kata dina*—for a few days; *pāiye*—we shall get.
+
+**"It is now the beginning of the month of Māgha. If we go to Prayāga at this time, we shall have an opportunity to bathe for a few days during Makara-saṅkrānti."**
+
+Bathing during the month of Māgha at Māgha-melā still takes place. This has been a very old *melā* (assembly) from time immemorial. It is said that the Lord in the form of Mohinī took a bucket of nectar and kept it at Prayāga. Consequently Māgha-melā has been observed, and there is an assembly of holy men there every year. Every twelfth year there is a Kumbha-melā, a great festival, and all the holy men from all over India assemble there. The *brāhmaṇa* wanted to take advantage of the Māgha-melā and bathe there.
+
+Bathing at the confluence of the Ganges and Yamunā near the fort at Allahabad, Prayāga, is mentioned in revealed scriptures:
+
+> māghe māsi gamiṣyanti
+> gaṅgā-yāmuna-saṅgamam
+> gavāṁ śata-sahasrasya
+> samyag dattaṁ ca yat-phalam
+
+> prayāge māgha-māse vai
+> tryahaṁ snātasya tat-phalam
+
+"If one goes to Prayāga and bathes at the confluence of the Ganges and Yamunā in the month of Māgha, he attains the result of giving hundreds and thousands of cows in charity. Simply by bathing for three days there, he attains the results of such a pious activity." Because of this, the Sanoḍiyā *brāhmaṇa* was very eager to go to Prayāga and bathe. Generally *karmīs* (fruitive laborers) take advantage of bathing there during the month of Māgha, thinking that they will be rewarded in the future. Those who are situated in devotional service do not very strictly follow this *karma-kāṇḍīya* process.

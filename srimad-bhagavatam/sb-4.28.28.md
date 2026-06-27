@@ -1,0 +1,24 @@
+### SB 4.28.28
+
+> tām eva manasā gṛhṇan
+> babhūva pramadottamā
+> anantaraṁ vidarbhasya
+> rāja-siṁhasya veśmani
+
+*tām*—her; *eva*—certainly; *manasā*—by the mind; *gṛhṇan*—accepting; *babhūva*—became; *pramadā*—woman; *uttamā*—highly situated; *anantaram*—after death; *vidarbhasya*—of Vidarbha; *rāja-siṁhasya*—of the most powerful king; *veśmani*—at the house.
+
+**King Purañjana gave up his body while remembering his wife, and consequently in his next life he became a very beautiful and well-situated woman. He took his next birth as the daughter of King Vidarbha in the very house of the King.**
+
+Since King Purañjana thought of his wife at the time of death, he attained the body of a woman in his next birth. This verifies the following verse in Bhagavad-gītā:
+
+yaṁ yaṁ vāpi smaran bhāvaṁ tyajaty ante kalevaram taṁ tam evaiti kaunteya sadā tad-bhāva-bhāvitaḥ
+
+"Whatever state of being one remembers when he quits his body, that state he will attain without fail." (Bg. 8.6)
+
+When a living entity is accustomed to think of a particular subject matter or become absorbed in a certain type of thought, he will think of that subject at the time of death. At the time of death, one will think of the subject that has occupied his life while he was awake, lightly sleeping or dreaming, or while he was deeply sleeping. After falling from the association of the Supreme Lord, the living entity thus transmigrates from one bodily form to another according to nature's course, until he finally attains the human form. If he is absorbed in material thoughts and ignorant of spiritual life, and if he does not take shelter under the lotus feet of the Supreme Personality of Godhead, Govinda, who solves all questions of birth and death, he will become a woman in the next life, especially if he thinks of his wife. As stated in Śrīmad-Bhāgavatam: karmaṇā daiva-netreṇa. A living entity acts piously and impiously, and sometimes in both ways. All actions are taken into account, and the living entity is offered a new body by his superiors. Although King Purañjana was overly attached to his wife, he nonetheless performed many pious fruitive activities. Consequently, although he took the form of a woman, he was given a chance to be the daughter of a powerful king. As confirmed in Bhagavad-gītā:
+
+prāpya puṇya-kṛtaṁ lokān uṣitvā śāśvatīḥ samāḥ śucīnāṁ śrīmatāṁ gehe yoga-bhraṣṭo 'bhijāyate
+
+"The unsuccessful yogī, after many, many years of enjoyment on the planets of the pious living entities, is born into a family of righteous people, or into a family of rich aristocracy." (Bg. 6.41)
+
+If a person falls from the path of bhakti-yoga, God realization, due to attachment to fruitive activity, philosophical speculation or mystic yoga, he is given a chance to take birth in a high and rich family. The higher authorities appointed by the Supreme Personality of Godhead thus render justice to the living entity according to the living entity's desires. Although King Purañjana was overly absorbed in thoughts of his wife and thus became a woman, he nonetheless took birth in the family of a king due to his previous pious activities. The conclusion is that all our activities are taken into consideration before we are awarded another body. Nārada Muni therefore advised Vyāsadeva that one should take to Kṛṣṇa consciousness, devotional service, and abandon all ordinary occupational duties. This advice was also given by Lord Kṛṣṇa Himself. Although a devotee may fall from the path of spiritual consciousness, he will nonetheless attain a human body in the home of a devotee or a rich man. In this way one can resume his devotional service.

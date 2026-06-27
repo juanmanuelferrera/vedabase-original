@@ -1,0 +1,33 @@
+### SB 7.13.32
+
+> paśyāmi dhanināṁ kleśaṁ
+> lubdhānām ajitātmanām
+> bhayād alabdha-nidrāṇāṁ
+> sarvato 'bhiviśaṅkinām
+
+*paśyāmi*—I can practically see; *dhaninām*—of persons who are very rich; *kleśam*—the miseries; *lubdhānām*—who are extremely greedy; *ajita-ātmanām*—who are victims of their senses; *bhayāt*—because of fear; *alabdha-nidrāṇām*—who are suffering from insomnia; *sarvataḥ*—from all sides; *abhiviśaṅkinām*—being particularly afraid.
+
+**The brāhmaṇa continued: I am actually seeing how a rich man, who is a victim of his senses, is very greedy to accumulate wealth, and therefore suffers from insomnia due to fear from all sides, despite his wealth and opulence.**
+
+Greedy capitalists accumulate wealth under so many miserable conditions, the result being that because they collect money by questionable means, their minds are always agitated. Thus they are unable to sleep at night, and they have to take pills for mental tranquillity to invite sleep. And sometimes even the pills are a failure. Consequently the result of having accumulated money by so much labor is certainly not happiness, but only distress. What is the value of acquiring a comfortable position if one's mind is always disturbed? Narottama dāsa Ṭhākura has therefore sung:
+
+> saṁsāra-biṣānale,     dibāniśi hiyā jvale, \\
+> juḍāite nā kainu upāya
+
+"I am suffering from the poisonous effect of material enjoyment. Thus my heart is always burning and is almost on the verge of failure." The result of the greedy capitalist's unnecessary accumulation of wealth is that he must suffer from a blazing fire of anxiety and always be concerned with how to save his money and invest it properly to get more and more. Such a life is certainly not very happy, but because of the spell of the illusory energy, materialistic persons engage in such activities.
+
+As far as our Kṛṣṇa consciousness movement is concerned, we are getting money naturally, by the grace of God, by selling our literature. This literature is not sold for our sense gratification; to spread the Kṛṣṇa consciousness movement we need so many things, and Kṛṣṇa is therefore supplying us the requisite money to advance this mission. The mission of Kṛṣṇa is to spread Kṛṣṇa consciousness all over the world, and for this purpose we naturally must have sufficient money. Therefore, according to the advice of Śrīla Rūpa Gosvāmī Prabhupāda, we should not give up attachment to money that can spread the Kṛṣṇa consciousness movement. Śrīla Rūpa Gosvāmī says in his *Bhakti-rasāmṛta-sindhu* (1.2.256):
+
+> prāpañcikatayā buddhyā
+> hari-sambandhi-vastunaḥ
+> mumukṣubhiḥ parityāgo
+> vairāgyaṁ phalgu kathyate
+
+"When persons eager to achieve liberation renounce things which are related to the Supreme Personality of Godhead, though they are material, this is called incomplete renunciation." Money that can help in spreading the Kṛṣṇa consciousness movement is not a part of the material world, and we should not give it up, thinking that it is material. Śrīla Rūpa Gosvāmī advises:
+
+> anāsaktasya viṣayān
+> yathārham upayuñjataḥ
+> nirbandhaḥ kṛṣṇa-sambandhe
+> yuktaṁ vairāgyam ucyate
+
+"When one is not attached to anything, but at the same time accepts everything in relation to Kṛṣṇa, one is rightly situated above possessiveness." (*Bhakti-rasāmṛta-sindhu* 1.2.255) Money is undoubtedly coming in great quantities, but we should not be attached to this money for sense gratification; every cent should be spent for spreading the Kṛṣṇa consciousness movement, not for sense gratification. There is danger for a preacher when he receives great quantities of money, for as soon as he spends even a single cent of the collection for his personal sense gratification, he becomes a fallen victim. The preachers of the Kṛṣṇa consciousness movement should be extremely careful not to misuse the immense quantities of money needed to spread this movement. Let us not make this money the cause of our distress; it should be used for Kṛṣṇa, and that will cause our eternal happiness. Money is Lakṣmī, or the goddess of fortune, the companion of Nārāyaṇa. Lakṣmījī must always remain with Nārāyaṇa, and then there need be no fear of degradation.

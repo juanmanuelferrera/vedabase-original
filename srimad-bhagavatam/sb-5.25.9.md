@@ -1,0 +1,97 @@
+### SB 5.25.9
+
+> utpatti-sthiti-laya-hetavo 'sya kalpāḥ
+> sattvādyāḥ prakṛti-guṇā yad-īkṣayāsan
+> yad-rūpaṁ dhruvam akṛtaṁ yad ekam ātman
+> nānādhāt katham u ha veda tasya vartma
+
+*utpatti*—of creation; *sthiti*—maintenance; *laya*—and dissolution; *hetavaḥ*—the original causes; *asya*—of this material world; *kalpāḥ*—capable of acting; *sattva-ādyāḥ*—headed by the *sattva-guṇa*; *prakṛti-guṇāḥ*—the modes of material nature; *yat*—of whom; *īkṣayā*—by the glance; *āsan*—became; *yat-rūpam*—the form of whom; *dhruvam*—unlimited; *akṛtam*—uncreated; *yat*—who; *ekam*—one; *ātman*—in Himself; *nānā*—variously; *adhāt*—has manifested; *katham*—how; *u ha*—certainly; *veda*—can understand; *tasya*—His; *vartma*—path.
+
+**By His glance, the Supreme Personality of Godhead enables the modes of material nature to act as the causes of universal creation, maintenance and destruction. The Supreme Soul is unlimited and beginningless, and although He is one, He has manifested Himself in many forms. How can human society understand the ways of the Supreme?**
+
+From Vedic literature we learn that when the Supreme Lord glances (*sa aikṣata*) over the material energy, the three modes of material nature become manifest and create material variety. Before He glances over the material energy, there is no possibility of the creation, maintenance and annihilation of the material world. The Lord existed before the creation, and consequently He is eternal and unchanging. Therefore how can any human being, however great a scientist or philosopher he may be, understand the ways of the Supreme Personality of Godhead?
+
+The following quotations from *Caitanya-bhāgavata* (*Ādi-khaṇḍa,* 1.48-52 and 1.58-69) tell of the glories of Lord Ananta:
+
+> ki brahmā, ki śiva, ki sanakādi 'kumāra'
+> vyāsa, śuka, nāradādi, 'bhakta' nāma yāṅra
+
+"Lord Brahmā, Lord Śiva, the four Kumāras [Sanaka, Sanātana, Sanandana and Sanāt-kumāra], Vyāsadeva, Śukadeva Gosvāmī and Nārada are all pure devotees, eternal servants of the Lord.
+
+> sabāra pūjita śrī-ananta-mahāśaya
+> sahasra-vadana prabhu—bhakti-rasamaya
+
+"Lord Śrī Ananta is worshiped by all the uncontaminated devotees mentioned above. He has thousands of hoods and is the reservoir of all devotional service.
+
+> ādideva, mahā-yogī, 'īśvara', 'vaiṣṇava'
+> mahimāra anta iṅhā nā jānaye saba
+
+"Lord Ananta is the original person and the great mystic controller. At the same time, He is a servant of God, a Vaiṣṇava. Since there is no end to His glories, no one can understand Him fully.
+
+> sevana śunilā, ebe śuna ṭhākurāla
+> ātma-tantre yena-mate vaisena pātāla
+
+"I have already spoken to you of His service to the Lord. Now hear how the self-sufficient Anantadeva exists in the lower planetary system of Pātāla.
+
+> śrī-nārada-gosāñi 'tumburu' kari' saṅge
+> se yaśa gāyena brahmā-sthāne śloka-vandhe
+
+"Bearing his stringed instrument, the *tumburu,* on his shoulders, the great sage Nārada Muni always glorifies Lord Ananta. Nārada Muni has composed many transcendental verses in praise of the Lord."
+
+> sṛṣṭi, sthiti, pralaya, sattvādi yata guṇa
+> yāṅra dṛṣṭi-pāte haya, yāya punaḥ punaḥ
+
+"Simply due to the glance of Lord Ananta, the three material modes of nature interact and produce creation, maintenance and annihilation. These modes of nature appear again and again.
+
+> advitīya-rūpa, satya anādi mahattva
+> tathāpi 'ananta' haya, ke bujhe se tattva?
+
+"The Lord is glorified as one without a second and as the supreme truth who has no beginning. Therefore He is called Anantadeva [unlimited]. Who can understand Him?
+
+> śuddha-sattva-mūrti prabhu dharena karuṇāya
+> ye-vigrahe sabāra prakāśa sulīlāya
+
+"His form is completely spiritual, and He manifests it only by His mercy. All the activities in this material world are conducted only in His form.
+
+> yāṅhāra taraṅga śikhi' siṁha mahāvalī
+> nija-jana-mano rañje hañā kutūhalī
+
+"He is very powerful and always prepared to please His personal associates and devotees.
+
+> ye ananta-nāmera śravaṇa-saṅkīrtane
+> ye-te mate kene nāhi bole ye-te jane
+
+> aśeṣa-janmera bandha chiṇḍe sei-kṣaṇe
+> ataeva vaiṣṇava nā chāḍe kabhu tāne
+
+"If we simply try to engage in the congregational chanting of the glories of Lord Anantadeva, the dirty things in our hearts, accumulated during many births, will immediately be washed away. Therefore a Vaiṣṇava never loses an opportunity to glorify Anantadeva.
+
+> 'śeṣa' ba-i saṁsārera gati nāhi āra
+> anantera nāme sarva-jīvera uddhāra
+
+"Lord Anantadeva is known as Śeṣa [the unlimited end] because He ends our passage through this material world. Simply by chanting His glories, everyone can be liberated.
+
+> ananta pṛthivī-giri samudra-sahite
+> ye-prabhu dharena gire pālana karite
+
+"On His head, Anantadeva sustains the entire universe, with its millions of planets containing enormous oceans and mountains.
+
+> sahasra phaṇāra eka-phaṇe 'bindu' yena
+> ananta vikrama, nā jānena, 'āche' hena
+
+"He is so large and powerful that this universe rests on one of His hoods just like a drop of water. He does not know where it is.
+
+> sahasra-vadane kṛṣṇa-yaśa nirantara
+> gāite āchena ādi-deva mahī-dhara
+
+"While bearing the universe on one of His hoods, Anantadeva chants the glories of Kṛṣṇa with each of His thousands of mouths.
+
+> gāyena ananta, śrī-yaśera nāhi anta
+> jaya-bhaṅga nāhi kāru, doṅhe—balavanta
+
+"Although He has been chanting the glories of Lord Kṛṣṇa since time immemorial, He has still not come to their end.
+
+> adyāpiha 'śeṣa'-deva sahasra-śrī-mukhe
+> gāyena caitanya-yaśa anta nāhi dekhe
+
+"To this very day, Lord Ananta continues to chant the glories of Śrī Caitanya Mahāprabhu, and still He finds no end to them."

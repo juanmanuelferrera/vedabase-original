@@ -1,0 +1,8 @@
+### CC Madhya 13.12
+
+> prabhu-padāghāte tulī haya khaṇḍa khaṇḍa
+> tulā saba uḍi' yāya, śabda haya pracaṇḍa
+
+*prabhu-pada-āghāte*—by the kicking of Lord Jagannātha; *tulī*—the pads; *haya*—become; *khaṇḍa khaṇḍa*—broken to pieces; *tulā*—cotton from inside; *saba*—all; *uḍi' yāya*—rises; *śabda*—sound; *haya*—there is; *pracaṇḍa*—very much.
+
+**While the dayitās carried the heavy Jagannātha Deity from one pad to the next, some of the pads broke, and the cotton contents floated into the air. When they broke, they made a heavy, cracking sound.**

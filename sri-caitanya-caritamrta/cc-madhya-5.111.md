@@ -1,0 +1,8 @@
+### CC Madhya 5.111
+
+> tabe sei baḍa-vipra ānandita hañā
+> gopālera āge paḍe daṇḍavat hañā
+
+*tabe*—thereafter; *sei*—that; *baḍa-vipra*—elderly *brāhmaṇa*; *ānandita*—pleased; *hañā*—becoming; *gopālera*—of Lord Gopāla; *āge*—in front; *paḍe*—falls down; *daṇḍavat*—like a stick; *hañā*—becoming.
+
+**Then the elderly brāhmaṇa, being very pleased, came forward and immediately fell like a stick in front of Gopāla.**

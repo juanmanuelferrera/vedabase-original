@@ -1,0 +1,8 @@
+### CC Madhya 20.197
+
+> pradyumnera mūrti—trivikrama, vāmana, śrīdhara
+> aniruddhera mūrti—hṛṣīkeśa, padmanābha, dāmodara
+
+*pradyumnera mūrti*—expansions of the form of Pradyumna; *tri-vikrama*—Trivikrama; *vāmana*—Vāmana; *śrīdhara*—Śrīdhara; *aniruddhera mūrti*—expansions of Aniruddha; *hṛṣīkeśa*—Hṛṣīkeśa; *padmanābha*—Padmanābha; *dāmodara*—Dāmodara.
+
+**"The expansions of Pradyumna are Trivikrama, Vāmana and Śrīdhara. The expansions of Aniruddha are Hṛṣīkeśa, Padmanābha and Dāmodara.**

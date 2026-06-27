@@ -1,0 +1,14 @@
+### SB 3.33.4
+
+> sa tvaṁ bhṛto me jaṭhareṇa nātha
+> kathaṁ nu yasyodara etad āsīt
+> viśvaṁ yugānte vaṭa-patra ekaḥ
+> śete sma māyā-śiśur aṅghri-pānaḥ
+
+*saḥ*—that very person; *tvam*—You; *bhṛtaḥ*—took birth; *me jaṭhareṇa*—by my abdomen; *nātha*—O my Lord; *katham*—how; *nu*—then; *yasya*—of whom; *udare*—in the belly; *etat*—this; *āsīt*—did rest; *viśvam*—universe; *yuga-ante*—at the end of the millennium; *vaṭa-patre*—on the leaf of a banyan tree; *ekaḥ*—alone; *śete sma*—You lay down; *māyā*—possessing inconceivable powers; *śiśuḥ*—a baby; *aṅghri*—Your toe; *pānaḥ*—licking.
+
+**As the Supreme Personality of Godhead, You have taken birth from my abdomen. O my Lord, how is that possible for the supreme one, who has in His belly all the cosmic manifestation? The answer is that it is possible, for at the end of the millennium You lie down on a leaf of a banyan tree, and just like a small baby, You lick the toe of Your lotus foot.**
+
+At the time of dissolution the Lord sometimes appears as a small baby lying on a leaf of a banyan tree, floating on the devastating water. Therefore Devahūti suggests, "Your lying down within the abdomen of a common woman like me is not so astonishing. You can lie down on the leaf of a banyan tree and float on the water of devastation as a small baby. It is not very wonderful, therefore, that You can lie down in the abdomen of my body. You teach us that those who are very fond of children within this material world and who therefore enter into marriage to enjoy family life with children can also have the Supreme Personality of Godhead as their child, and the most wonderful thing is that the Lord Himself licks His toe."
+
+Since all the great sages and devotees apply all energy and all activities in the service of the lotus feet of the Lord, there must be some transcendental pleasure in the toes of His lotus feet. The Lord licks His toe to taste the nectar for which the devotees always aspire. Sometimes the Supreme Personality of Godhead Himself wonders how much transcendental pleasure is within Himself, and in order to taste His own potency, He sometimes takes the position of tasting Himself. Lord Caitanya is Kṛṣṇa Himself, but He appears as a devotee to taste the sweetness of the transcendental mellow in Himself which is tasted by Śrīmatī Rādhārāṇī, the greatest of all devotees.

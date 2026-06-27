@@ -1,0 +1,20 @@
+### SB 4.23.8
+
+> tena kramānusiddhena
+> dhvasta-karma-malāśayaḥ
+> prāṇāyāmaiḥ sanniruddha-
+> ṣaḍ-vargaś chinna-bandhanaḥ
+
+*tena*—thus by practicing such austerities; *krama*—gradually; *anu*—constantly; *siddhena*—by perfection; *dhvasta*—smashed; *karma*—fruitive activities; *mala*—dirty things; *āśayaḥ*—desire; *prāṇa-āyāmaiḥ*—by practice of *prāṇāyāma-yoga,* breathing exercises; *san*—being; *niruddha*—stopped; *ṣaṭ-vargaḥ*—the mind and the senses; *chinna-bandhanaḥ*—completely cut off from all bondage.
+
+**By thus practicing severe austerities, Mahārāja Pṛthu gradually became steadfast in spiritual life and completely free of all desires for fruitive activities. He also practiced breathing exercises to control his mind and senses, and by such control he became completely free from all desires for fruitive activity.**
+
+The word prāṇāyāmaiḥ is very important in this verse because the haṭha-yogīs and aṣṭāṅga-yogīs practice prāṇāyāma, but generally they do not know the purpose behind it. The purpose of prāṇāyāma, or mystic yoga, is to stop the mind and senses from engaging in fruitive activities. The so-called yogīs who practice in Western countries have no idea of this. The aim of prāṇāyāma is not to make the body strong and fit for working hard. The aim is worship of Kṛṣṇa. In the previous verse it was specifically mentioned that whatever austerity, prāṇāyāma and mystic yoga practices Pṛthu Mahārāja performed were performed for the sake of worshiping Kṛṣṇa. Thus Pṛthu Mahārāja serves as a perfect example for yogīs also. Whatever he did, he did to please the Supreme Personality of Godhead, Kṛṣṇa.
+
+The minds of those who are addicted to fruitive activity are always filled with unclean desires. Fruitive activities are symptomatic of our polluted desire to dominate material nature. As long as one continues to be subject to polluted desires, he has to accept one material body after another. So-called yogīs, without knowledge of the real purpose of yoga, practice it in order to keep the body fit. Thus they engage themselves in fruitive activities, and thus they are bound by desire to accept another body. They are not aware that the ultimate goal of life is to approach Kṛṣṇa. In order to save such yogīs from wandering throughout the different species of life, the śāstras warn that in this age such yogic practice is simply a waste of time. The only means of elevation is the chanting of the Hare Kṛṣṇa mahā-mantra.
+
+King Pṛthu's activities took place in Satya-yuga, and in this age this practice of yoga is misunderstood by fallen souls who are not capable of practicing anything. Consequently the śāstras enjoin: kalau nāsty eva nāsty eva nāsty eva gatir anyathā. The conclusion is that unless the karmīs, jñānīs and yogīs come to the point of devotional service to Lord Kṛṣṇa, their so-called austerities and yoga have no value. Nārādhitaḥ: if Hari, the Supreme Personality of Godhead, is not worshiped, there is no point in practicing meditational yoga, performing karma-yoga or culturing empiric knowledge. As far as prāṇāyāma is concerned, chanting of the holy name of the Lord and dancing in ecstasy are also considered prāṇāyāma. In a previous verse, Sanat-kumāra instructed Mahārāja Pṛthu to engage constantly in the service of the Supreme Lord, Vāsudeva:
+
+yat pāda-paṅkaja-palāśa-vilāsa-bhaktyā karmāśayaṁ grathitam udgrathayanti santaḥ
+
+Only by worshiping Vāsudeva can one become free from the desires of fruitive activities. Outside of worshiping Vāsudeva, the yogīs and jñānīs cannot attain freedom from such desires. Tadvan na rikta-matayo yatayo 'pi ruddha-srotogaṇās tam araṇaṁ bhaja vāsudevam (Bhāg. 4.22.39). Here the word prāṇāyāma does not refer to any ulterior motive. The actual aim is to strengthen the mind and senses in order to engage them in devotional service. In the present age this determination can be very easily acquired simply by chanting the holy names—Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.

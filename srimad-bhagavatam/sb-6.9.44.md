@@ -1,0 +1,26 @@
+### SB 6.9.44
+
+> atho īśa jahi tvāṣṭraṁ
+> grasantaṁ bhuvana-trayam
+> grastāni yena naḥ kṛṣṇa
+> tejāṁsy astrāyudhāni ca
+
+*atho*—therefore; *īśa*—O supreme controller; *jahi*—kill; *tvāṣṭram*—the demon Vṛtrāsura, son of Tvaṣṭā; *grasantam*—who is devouring; *bhuvana-trayam*—the three worlds; *grastāni*—devoured; *yena*—by whom; *naḥ*—our; *kṛṣṇa*—O Lord Kṛṣṇa; *tejāṁsi*—all strength and prowess; *astra*—arrows; *āyudhāni*—and other weapons; *ca*—also.
+
+**Therefore, O Lord, O supreme controller, O Lord Kṛṣṇa, please annihilate this dangerous demon Vṛtrāsura, Tvaṣṭā's son, who has already swallowed all our weapons, our paraphernalia for fighting, and our strength and influence.**
+
+The Lord says in *Bhagavad-gītā* (7.15-16):
+
+> na māṁ duṣkṛtino mūḍhāḥ
+> prapadyante narādhamāḥ
+> māyayāpahṛta-jñānā
+> āsuraṁ bhāvam āśritāḥ
+
+> catur-vidhā bhajante māṁ
+> janāḥ sukṛtino 'rjuna
+> ārto jijñāsur arthārthī
+> jñānī ca bharatarṣabha
+
+"Those miscreants who are grossly foolish, lowest among mankind, whose knowledge is stolen by illusion, and who partake of the atheistic nature of demons, do not surrender unto Me. O best among the Bhāratas [Arjuna], four kinds of pious men render devotional service unto Me—the distressed, the desirer of wealth, the inquisitive, and he who is searching for knowledge of the Absolute."
+
+The four classes of neophyte devotees who approach the Supreme Personality of Godhead to offer devotional service because of material motives are not pure devotees, but the advantage for such materialistic devotees is that they sometimes give up their material desires and become pure. When the demigods are utterly helpless, they approach the Supreme Personality of Godhead in grief and with tears in their eyes, praying to the Lord, and thus they become almost pure devotees, free from material desires. Admitting that they have forgotten pure devotional service because of extensive material opportunities, they fully surrender to the Lord, leaving to His consideration whether to maintain them or annihilate them. Such surrender is necessary. Bhaktivinoda Ṭhākura sings, *mārabi rākhabi-yo icchā tohārā:* "O Lord, I fully surrender unto Your lotus feet. Now, as You desire, You may protect me or annihilate me. You have the full right to do either."

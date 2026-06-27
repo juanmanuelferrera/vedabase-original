@@ -1,0 +1,8 @@
+### CC Antya 12.69
+
+> nityānande ājñā diluṅ gauḍete rahite
+> ājñā laṅghi' āilā, ki pāri balite?
+
+*nityānande*—unto Śrī Nityānanda Prabhu; *ājñā diluṅ*—I ordered; *gauḍete rahite*—to stay in Bengal; *ājñā laṅghi'*—transgressing My order; *āilā*—He has come; *ki*—what; *pāri balite*—can I say.
+
+**"I ordered Śrī Nityānanda Prabhu not to leave Bengal, but He has transgressed My order and come to see Me. What can I say?**

@@ -1,0 +1,12 @@
+### SB 1.6.3
+
+> svāyambhuva kayā vṛttyā
+> vartitaṁ te paraṁ vayaḥ
+> kathaṁ cedam udasrākṣīḥ
+> kāle prāpte kalevaram
+
+*svāyambhuva*—O son of Brahmā; *kayā*—under what condition; *vṛttyā*—occupation; *vartitam*—was spent; *te*—you; *param*—after the initiation; *vayaḥ*—duration of life; *katham*—how; *ca*—and; *idam*—this; *udasrākṣīḥ*—did you quit; *kāle*—in due course; *prāpte*—having attained; *kalevaram*—body.
+
+**O son of Brahmā, how did you pass your life after initiation, and how did you attain this body, having quit your old one in due course?**
+
+Śrī Nārada Muni in his previous life was just an ordinary maidservant's son, so how he became so perfectly transformed into the spiritual body of eternal life, bliss and knowledge was certainly important. Śrī Vyāsadeva desired him to disclose the facts for everyone's satisfaction.

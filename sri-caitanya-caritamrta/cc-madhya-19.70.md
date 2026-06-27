@@ -1,0 +1,8 @@
+### CC Madhya 19.70
+
+> duṅhāra mukhe nirantara kṛṣṇa-nāma śuni'
+> bhaṭṭa kahe, prabhura kichu iṅgita-bhaṅgī jāni'
+
+*duṅhāra mukhe*—in the mouths of both Rūpa Gosvāmī and his brother Vallabha; *nirantara*—continuously; *kṛṣṇa-nāma śuni'*—hearing the chanting of the holy name of Kṛṣṇa; *bhaṭṭa kahe*—Vallabha Bhaṭṭācārya said; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *kichu*—some; *iṅgita*—indications; *bhaṅgī*—hints; *jāni'*—understanding.
+
+**Hearing the holy name constantly vibrated by the two brothers, Vallabha Bhaṭṭācārya could understand the hints of Śrī Caitanya Mahāprabhu.**

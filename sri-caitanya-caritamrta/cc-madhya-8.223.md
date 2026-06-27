@@ -1,0 +1,10 @@
+### CC Madhya 8.223
+
+> tāhāte dṛṣṭānta—upaniṣad śruti-gaṇa
+> rāga-mārge bhaji' pāila vrajendra-nandana
+
+*tāhāte*—in this matter; *dṛṣṭānta*—the example; *upaniṣad śruti-gaṇa*—the great sages known as the personified *Upaniṣads* or *śrutis*; *rāga-mārge*—on the path of spontaneous love; *bhaji'*—worshiping; *pāila*—obtained; *vrajendra-nandana*—the lotus feet of Lord Kṛṣṇa.
+
+**"Those saintly persons who presented the Upaniṣads are vivid examples of this. By worshiping the Lord on the path of spontaneous love, they attained the lotus feet of Vrajendra-nandana, the son of Nanda Mahārāja.**
+
+In the Goloka Vṛndāvana planet, Kṛṣṇa's servants are headed by Raktaka and Patraka. Kṛṣṇa's friends are headed by Śrīdāmā, Subala and others. There are also elderly *gopīs* and the cowherd men, headed by Nanda Mahārāja, mother Yaśodā and others. All of these personalities are eternally engaged in the loving service of the Lord in accordance with their specific attachments for Kṛṣṇa. One who wants to return home to serve the Lord directly may be attracted to Kṛṣṇa as a servant, friend, father or mother. If a person continuously serves Kṛṣṇa during this life in a particular ecstasy, upon giving the material body he attains a suitable spiritual body to serve Kṛṣṇa in terms of his particular attachment. One may serve as a servant, friend, father or mother. In the same way, one who wants to serve Kṛṣṇa in conjugal love can also attain a body under the guidance of the *gopīs.* The most vivid example in this connection is those saintly personalities known as *śrutis,* who represent the *Upaniṣads.* These *śrutis* understand that without serving Kṛṣṇa and following in the footsteps of the *gopīs* there is no possibility of entering the kingdom of God. Therefore they engage in spontaneous loving service unto Kṛṣṇa and follow in the footsteps of the *gopīs.*

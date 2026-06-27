@@ -1,0 +1,12 @@
+### SB 4.28.7
+
+> viśīrṇāṁ sva-purīṁ vīkṣya
+> pratikūlān anādṛtān
+> putrān pautrānugāmātyāñ
+> jāyāṁ ca gata-sauhṛdām
+
+*viśīrṇām*—scattered; *sva-purīm*—his own town; *vīkṣya*—seeing; *pratikūlān*—opposing elements; *anādṛtān*—being disrespectful; *putrān*—sons; *pautra*—grandsons; *anuga*—servants; *amātyān*—ministers; *jāyām*—wife; *ca*—and; *gata-sauhṛdām*—indifferent.
+
+**King Purañjana then saw that everything in his town was scattered and that his sons, grandsons, servants and ministers were all gradually opposing him. He also noted that his wife was becoming cold and indifferent.**
+
+When one becomes an invalid, his senses and organs are weakened. In other words, they are no longer under one's control. The senses and sense objects then begin to oppose him. When a person is in a distressed condition, even his family members—his sons, grandsons and wife—become disrespectful. They no longer are under the command of the master of the house. Just as we wish to use our senses for sense gratification, the senses also require strength from the body in reciprocation. A man keeps a family for enjoyment, and similarly family members demand enjoyment from the head of the family. When they do not receive sufficient money from him, they grow disinterested and ignore his commands or desires. This is all due to one's being a kṛpaṇa (miser). This word kṛpaṇa, used in the sixth verse, is in opposition to the word brāhmaṇa. In the human form of life one should become a brāhmaṇa, which means that one should understand the constitutional position of the Absolute Truth, Brahman, and then engage in His service as a Vaiṣṇava. We get this facility in the human form of life, but if we do not properly utilize this opportunity, we become a kṛpaṇa, miser. A miser is one who gets money but does not spend it properly. This human form of life is especially meant for understanding Brahman, for becoming a brāhmaṇa, and if we do not utilize it properly, we remain a kṛpaṇa. We can actually see that when one has money but does not spend it, he remains a miser and is never happy. Similarly, when one's intelligence is spoiled due to sense gratification, he remains a miser throughout his life.

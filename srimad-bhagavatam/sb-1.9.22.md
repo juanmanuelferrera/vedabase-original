@@ -1,0 +1,16 @@
+### SB 1.9.22
+
+> tathāpy ekānta-bhakteṣu
+> paśya bhūpānukampitam
+> yan me 'sūṁs tyajataḥ sākṣāt
+> kṛṣṇo darśanam āgataḥ
+
+*tathāpi*—still; *ekānta*—unflinching; *bhakteṣu*—unto the devotees; *paśya*—see here; *bhū-pa*—O King; *anukampitam*—how sympathetic; *yat*—for which; *me*—my; *asūn*—life; *tyajataḥ*—ending; *sākṣāt*—directly; *kṛṣṇaḥ*—the Personality of Godhead; *darśanam*—in my view; *āgataḥ*—has kindly come.
+
+**Yet, despite His being equally kind to everyone, He has graciously come before me while I am ending my life, for I am His unflinching servitor.**
+
+The Supreme Lord Absolute Personality of Godhead Śrī Kṛṣṇa, although equal to everyone, is still more inclined to His unflinching devotee who is completely surrendered and knows no one else as his protector and master. Having unflinching faith in the Supreme Lord as one's protector, friend and master is the natural condition of eternal life. A living entity is so made by the will of the Almighty that he is most happy when placing himself in a condition of absolute dependence.
+
+The opposite tendency is the cause of falldown. The living entity has this tendency of falling down by dint of misidentifying himself as fully independent to lord it over the material world. The root cause of all troubles is there in false egoism. One must draw towards the Lord in all circumstances.
+
+The appearance of Lord Kṛṣṇa at the deathbed of Bhīṣmajī is due to his being an unflinching devotee of the Lord. Arjuna had some bodily relation with Kṛṣṇa because the Lord happened to be his maternal cousin. But Bhīṣma had no such bodily relation. Therefore the cause of attraction was due to the intimate relation of the soul. Yet because the relation of the body is very pleasing and natural, the Lord is more pleased when He is addressed as the son of Mahārāja Nanda, the son of Yaśodā, the lover of Rādhārāṇī. This affinity by bodily relation with the Lord is another feature of reciprocating loving service to the Lord. Bhīṣmadeva is conscious of this sweetness of transcendental humor, and therefore he likes to address the Lord as Vijaya Sakhe, Pārtha Sakhe, etc., exactly like Nanda-Nandana or Yaśodā-Nandana. The best way to establish our relation in transcendental sweetness is to approach Him through His recognized devotees. One should not try to establish the relation directly: there must be a via medium which is transparent and competent to lead us to the right path.

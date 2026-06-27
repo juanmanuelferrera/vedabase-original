@@ -1,0 +1,18 @@
+### SB 4.24.5
+
+> antardhāno nabhasvatyāṁ
+> havirdhānam avindata
+> ya indram aśva-hartāraṁ
+> vidvān api na jaghnivān
+
+*antardhānaḥ*—the king of the name Antardhāna; *nabhasvatyām*—unto his wife Nabhasvatī; *havirdhānam*—of the name Havirdhāna; *avindata*—obtained; *yaḥ*—who; *indram*—King Indra; *aśva-hartāram*—who was stealing the horse of his father; *vidvān api*—although he knew it; *na jaghnivān*—did not kill.
+
+**Mahārāja Antardhāna had another wife, named Nabhasvatī, and by her he was happy to beget another son named Havirdhāna. Since Mahārāja Antardhāna was very liberal, he did not kill Indra while the demigod was stealing his father's horse at the sacrifice.**
+
+It is understood from various scriptures and Purāṇas that the King of heaven, Indra, was very expert in stealing and kidnapping. He could steal anything without being visible to the proprietor, and he could kidnap anyone's wife without being detected. Once he raped the wife of Gautama Muni by using his disappearing art, and similarly by becoming invisible he stole the horse of Mahārāja Pṛthu. Although in human society such activities are considered abominable, the demigod Indra was not considered to be degraded by them. Although Antardhāna could understand that King Indra was stealing the horse from his father, he did not kill him, for he knew that if one who is very powerful sometimes commits an abominable act, it should be disregarded. In Bhagavad-gītā it is clearly stated:
+
+api cet su-durācāro bhajate mām ananya-bhāk sādhur eva sa mantavyaḥ samyag vyavasito hi saḥ
+
+"Even if one commits the most abominable actions, if he is engaged in devotional service, he is to be considered saintly because he is properly situated." (Bg. 9.30)
+
+Thus even if a devotee commits an abominable act, he should be considered a sādhu, or a pious man, because of his unflinching devotion to the Lord. The devotees of the Lord never willingly commit any sinful act, but sometimes they commit something abominable due to their previous habits. Such acts should not be taken very seriously, however, because the devotees of the Lord are very powerful, whether they are on the heavenly planets or on this planet. If by chance they commit something abominable, it should not be taken into account but should be overlooked.

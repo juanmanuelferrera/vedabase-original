@@ -1,0 +1,34 @@
+### SB 4.27.10
+
+> teṣu tad-riktha-hāreṣu
+> gṛha-kośānujīviṣu
+> nirūḍhena mamatvena
+> viṣayeṣv anvabadhyata
+
+*teṣu*—to them; *tat-riktha-hāreṣu*—the plunderers of his money; *gṛha*—home; *kośa*—treasury; *anujīviṣu*—to the followers; *nirūḍhena*—deep-rooted; *mamatvena*—by attachment; *viṣayeṣu*—to sense objects; *anvabadhyata*—became bound.
+
+**These sons and grandsons were virtually plunderers of King Purañjana's riches, including his home, treasury, servants, secretaries and all other paraphernalia. Purañjana's attachment for these things was very deep-rooted.**
+
+In this verse the word riktha-hāreṣu, meaning plunderers of wealth, is very significant. One's sons, grandsons and other descendants are ultimately plunderers of one's accumulated wealth. There are many celebrated businessmen and industrialists who produce great wealth and are highly praised by the public, but all their money is ultimately plundered by their sons and grandsons. In India we have actually seen one industrialist, who, like King Purañjana, was very much sexually inclined and had a half dozen wives. Each of these wives had a separate establishment that necessitated the expenditure of several thousands of rupees. When I was engaged in talking with him, I saw that he was very busy trying to secure money so that all his sons and daughters would get at least 500,000 rupees each. Thus such industrialists, businessmen or karmīs are called mūḍhas in the śāstras. They work very hard, accumulate money, and are satisfied to see that this money is plundered by their sons and grandsons. Such people do not want to return their wealth to its actual owner. As stated in Bhagavad-gītā:
+
+bhoktāraṁ yajña-tapasāṁ
+
+sarva-loka-maheśvaram
+
+suhṛdaṁ sarva-bhūtānāṁ
+
+jñātvā māṁ śāntim ṛcchati
+
+"The sages, knowing Me as the ultimate purpose of all sacrifices and austerities, the Supreme Lord of all planets and demigods and the benefactor and well-wisher of all living entities, attain peace from the pangs of material miseries." (Bg. 5.29)
+
+The real proprietor of all wealth is the Supreme Personality of Godhead. He is the actual enjoyer. So-called earners of money are those who simply know tricks by which they can take away God's money under the guise of business and industry. After accumulating this money, they enjoy seeing it plundered by their sons and grandsons. This is the materialistic way of life. In materialistic life one is encaged within the body and deluded by false egoism. Thus one thinks, "I am this body, I am a human being, I am an American, I am an Indian." This bodily conception is due to false ego. Being deluded by false ego, one identifies himself with a certain family, nation or community. In this way one's attachment for the material world grows deeper and deeper. Thus it becomes very difficult for the living entity to extricate himself from his entanglement. Such people are graphically described in the Sixteenth Chapter of Bhagavad-gītā in this way:
+
+idam adya mayā labdham imaṁ prāpsye manoratham idam astīdam api me bhaviṣyati punar dhanam
+
+asau mayā hataḥ śatrur haniṣye cāparān api īśvaro 'ham ahaṁ bhogī siddho 'haṁ balavān sukhī
+
+āḍhyo 'bhijanavān asmi ko 'nyo 'sti sadṛśo mayā yakṣye dāsyāmi modiṣya ity ajñāna-vimohitāḥ
+
+"The demoniac person thinks: 'So much wealth do I have today, and I will gain more according to my schemes. So much is mine now, and it will increase in the future, more and more. He is my enemy, and I have killed him; and my other enemy will also be killed. I am the lord of everything, I am the enjoyer, I am perfect, powerful and happy. I am the richest man, surrounded by aristocratic relatives. There is none so powerful and happy as I am. I shall perform sacrifices, I shall give some charity, and thus I shall rejoice.' In this way, such persons are deluded by ignorance." (Bg. 16.13-15)
+
+In this way people engage in various laborious activities, and their attachment for body, home, family, nation and community becomes more and more deep-rooted.

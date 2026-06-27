@@ -1,0 +1,35 @@
+### CC Madhya 10.54
+
+> rāya kahe,-āmi śūdra, viṣayī, adhama
+> tabu tumi sparśa,-ei īśvara-lakṣaṇa
+
+*rāya kahe*—Bhavānanda Rāya replied; *āmi śūdra*—I belong to the fourth class of the social divisions; *viṣayī*—engaged in mundane affairs; *adhama*—very much fallen; *tabu*—still; *tumi*—You; *sparśa*—touch; *ei*—this; *īśvara-lakṣaṇa*—sign of the Supreme Personality of Godhead.
+
+**After hearing Śrī Caitanya Mahāprabhu's praise, Bhavānanda Rāya submitted, "I am in the fourth class of the social order, and I engage in mundane affairs. Although I am very much fallen, You have still touched us. This is proof that You are the Supreme Personality of Godhead."**
+
+As stated in the *Bhagavad-gītā* [[bg/5/18|(Bg. 5.18)]]:
+
+> vidyā-vinaya-sampanne
+> brāhmaṇe gavi hastini
+> śuni caiva śva-pāke ca
+> paṇḍitāḥ sama-darśinaḥ
+
+"The humble sages, by virtue of true knowledge, see with equal vision a learned and gentle *brāhmaṇa,* a cow, an elephant, a dog and a dog-eater [outcaste]."
+
+Those who are highly advanced in spiritual understanding do not care about a person's material condition. A spiritually advanced person sees the spiritual identity of every living being, and consequently he makes no distinction between a learned *brāhmaṇa,* a dog, a *caṇḍāla* or anyone else. He is not influenced by the material body but sees a person's spiritual identity. Consequently Bhavānanda Rāya appreciated Śrī Caitanya Mahāprabhu's statement, which showed that the Lord did not consider the social position of Bhavānanda Rāya, who belonged to the *śūdra* caste engaged in mundane activities. Rather, the Lord considered the spiritual position of Bhavānanda Rāya, along with that of Rāmānanda Rāya and his brothers. The servant of the Lord is also similarly inclined. He gives shelter to any person-any living entity-regardless of whether one belongs to a *brāhmaṇa* family or a *caṇḍāla* family. The spiritual master reclaims all people and encourages everyone in spiritual life. By taking shelter of such a devotee, one can make his life successful. As confirmed in *Śrīmad-Bhāgavatam* (2.4.18):
+
+> kirāta-hūṇāndhra-pulinda-pulkaśā
+> ābhīra-śumbhā yavanāḥ khasādayaḥ
+> ye 'nye ca pāpā yad-apāśrayāśrayāḥ
+> śudhyanti tasmai prabhaviṣṇave namaḥ
+
+"Members of the Kirāta, Hūṇa, Āndhra, Pulinda, Pulkaśa, Ābhīra, Śumbha, Yavana and Khasa races, and even others addicted to sinful acts, can be purified by taking shelter of the devotees of the Lord, due to His being the supreme power. I beg to offer my respectful obeisances unto Him."
+
+Whoever takes shelter of the Supreme Personality of Godhead or His pure devotee is elevated to the spiritual order and purified from material contamination. This is also confirmed in *Bhagavad-gītā* [[bg/9/32|(Bg. 9.32)]]:
+
+> māṁ hi pārtha vyapāśritya
+> ye 'pi syuḥ pāpa-yonayaḥ
+> striyo vaiśyās tathā śūdrās
+> te 'pi yānti parāṁ gatim
+
+"O son of Pṛthā, those who take shelter in Me, though they be of lower birth-women, *vaiśyas* [merchants], as well as *śūdras* [workers]—can approach the supreme destination."

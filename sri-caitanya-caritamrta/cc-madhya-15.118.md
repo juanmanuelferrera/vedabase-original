@@ -1,0 +1,8 @@
+### CC Madhya 15.118
+
+> bhaktera mahimā prabhu kahite pāya sukha
+> bhaktera mahimā kahite haya pañca-mukha
+
+*bhakteramahimā*—the glories of a devotee; *prabhu*—Śrī Caitanya Mahāprabhu; *kahite*—to speak; *pāya sukha*—gets happiness; *bhaktera mahimā*—the glories of a devotee; *kahite*—to speak; *haya*—becomes; *pañca-mukha*—five faced.
+
+**Śrī Caitanya Mahāprabhu became very happy just to speak of the glories of His devotees. Indeed, when He spoke of their glories, it was as if He had five faces.**

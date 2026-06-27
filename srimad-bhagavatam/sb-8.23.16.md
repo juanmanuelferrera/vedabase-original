@@ -1,0 +1,20 @@
+### SB 8.23.16
+
+> mantratas tantrataś chidraṁ
+> deśa-kālārha-vastutaḥ
+> sarvaṁ karoti niśchidram
+> anusaṅkīrtanaṁ tava
+
+*mantrataḥ*—in pronouncing the Vedic *mantras* improperly; *tantrataḥ*—in insufficient knowledge for following regulative principles; *chidram*—discrepancy; *deśa*—in the matter of country; *kāla*—and time; *arha*—and recipient; *vastutaḥ*—and paraphernalia; *sarvam*—all these; *karoti*—makes; *niśchidram*—without discrepancy; *anusaṅkīrtanam*—constantly chanting the holy name; *tava*—of Your Lordship.
+
+**There may be discrepancies in pronouncing the mantras and observing the regulative principles, and, moreover, there may be discrepancies in regard to time, place, person and paraphernalia. But when Your Lordship's holy name is chanted, everything becomes faultless.**
+
+Śrī Caitanya Mahāprabhu has recommended:
+
+> harer nāma harer nāma
+> harer nāmaiva kevalam
+> kalau nāsty eva nāsty eva
+> nāsty eva gatir anyathā
+> [[cc/adi/17/21|[Cc. Ādi 17.21] ]]
+
+"In this age of quarrel and hypocrisy the only means of deliverance is chanting the holy name of the Lord. There is no other way. There is no other way. There is no other way." (*Bṛhan-nāradīya Purāṇa* 38.126) In this age of Kali, it is extremely difficult to perform Vedic ritualistic ceremonies or sacrifices perfectly. Hardly anyone can chant the Vedic *mantras* with perfect pronunciation or accumulate the paraphernalia for Vedic performances. Therefore the sacrifice recommended in this age is *saṅkīrtana,* constant chanting of the holy name of the Lord. *Yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ* [[sb/11/5/29|(SB 11.5.29)]]. Instead of wasting time performing Vedic sacrifices, those who are intelligent, those who possess good brain substance, should take to the chanting of the Lord's holy name and thus perform sacrifice perfectly. I have seen that many religious leaders are addicted to performing *yajñas* and spending hundreds and thousands of rupees for imperfect sacrificial performances. This is a lesson for those who unnecessarily execute such imperfect sacrifices. We should take the advice of Śrī Caitanya Mahāprabhu (*yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ*). Although Śukrācārya was a strict *brāhmaṇa* addicted to ritualistic activities, he also admitted, *niśchidram anusaṅkīrtanaṁ tava:* "My Lord, constant chanting of the holy name of Your Lordship makes everything perfect." In Kali-yuga the Vedic ritualistic ceremonies cannot be performed as perfectly as before. Therefore Śrīla Jīva Gosvāmī has recommended that although one should take care to follow all the principles in every kind of spiritual activity, especially in worship of the Deity, there is still a chance of discrepancies, and one should compensate for this by chanting the holy name of the Supreme Personality of Godhead. In our Kṛṣṇa consciousness movement we therefore give special stress to the chanting of the Hare Kṛṣṇa *mantra* in all activities.

@@ -1,0 +1,34 @@
+### CC Madhya 23.87-91
+
+> atha vṛndāvaneśvaryāḥ
+> kīrtyante pravarā guṇāḥ
+> madhureyaṁ nava-vayāś
+> calāpāṅgojjvala-smitā
+
+> cāru-saubhāgya-rekhāḍhyā
+> gandhonmādita-mādhavā
+> saṅgīta-prasarābhijñā
+> ramya-vāṅ narma-paṇḍitā
+
+> vinītā karuṇā-pūrṇā
+> vidagdhā pāṭavānvitā
+> lajjā-śīlā sumaryādā
+> dhairya-gāmbhīrya-śālinī
+
+> suvilāsā mahābhāva-
+> paramotkarṣa-tarṣiṇī
+> gokula-prema-vasatir
+> jagac-chreṇī-lasad-yaśāḥ
+
+> gurv-arpita-guru-snehā
+> sakhī-praṇayitā-vaśā
+> kṛṣṇa-priyāvalī-mukhyā
+> santatāśrava-keśavā
+> bahunā kiṁ guṇās tasyāḥ
+> saṅkhyātītā harer iva
+
+*atha*—now; *vṛndāvana-īśvaryāḥ*—of the Queen of Vṛndāvana (Śrī Rādhikā); *kīrtyante*—are glorified; *pravarāḥ*—chief; *guṇāḥ*—qualities; *madhurā*—sweet; *iyam*—this one (Rādhikā); *nava-vayāḥ*—youthful; *cala-apāṅga*—having restless eyes; *ujjvala-smitā*—having a bright smile; *cāru-saubhāgya-rekhāḍhyā*—possessing beautiful, auspicious lines on the body; *gandha*—by the wonderful fragrance of Her the body; *unmādita-mādhavā*—exciting Kṛṣṇa; *saṅgīta*—of songs; *prasara-abhijñā*—knowledgeable in the expansion; *ramya-vāk*—having charming speech; *narma-paṇḍitā*—learned in joking; *vinītā*—humble; *karuṇā-pūrṇā*—full of mercy; *vidagdhā*—cunning; *pāṭava-anvitā*—expert in performing Her duties; *lajjā-śīlā*—shy; *su-maryādā*—respectful; *dhairya*—calm; *gāmbhīrya-śālinī*—and grave; *su-vilāsā*—playful; *mahā-bhāva*—of advanced ecstasy; *parama-utkarṣa*—in the highest excellence; *tarṣiṇī*—desirous; *gokula-prema*—the love of the residents of Gokula; *vasatiḥ*—the abode; *jagat-śreṇī*—among the surrendered devotees who are the abodes (*āśraya*) of love for Kṛṣṇa; *lasat*—shining; *yaśāḥ*—whose fame; *guru*—to the elders; *arpita*—offered; *guru-snehā*—whose great affection; *sakhī-praṇayitā-vaśā*—controlled by the love of her *gopī* friends; *kṛṣṇa-priya-āvalī*—among those who are dear to Kṛṣṇa; *mukhyā*—the chief; *santata*—always; *āśrava-keśavāḥ*—to whom Lord Keśava is submissive; *bahunā kim*—in short; *guṇāḥ*—the qualities; *tasyāḥ*—of Her; *saṅkhyātītāḥ*—beyond count; *hareḥ*—of Lord Kṛṣṇa; *iva*—like.
+
+**“ 'Śrīmatī Rādhārāṇī's twenty-five chief transcendental qualities are: (1) She is very sweet. (2) She is always freshly youthful. (3) Her eyes are restless. (4) She smiles brightly. (5) She has beautiful, auspicious lines. (6) She makes Kṛṣṇa happy with Her bodily aroma. (7) She is very expert in singing. (8) Her speech is charming. (9) She is very expert in joking and speaking pleasantly. (10) She is very humble and meek. (11) She is always full of mercy. (12) She is cunning. (13) She is expert in executing Her duties. (14) She is shy. (15) She is always respectful. (16) She is always calm. (17) She is always grave. (18) She is expert in enjoying life. (19) She is situated at the topmost level of ecstatic love. (20) She is the reservoir of loving affairs in Gokula. (21) She is the most famous of submissive devotees. (22) She is very affectionate to elderly people. (23) She is very submissive to the love of Her friends. (24) She is the chief gopī. (25) She always keeps Kṛṣṇa under Her control. In short, She possesses unlimited transcendental qualities, just as Lord Kṛṣṇa does.'**
+
+These verses are also found in *Ujjvala-nīlamaṇi, Śrī-rādhā-prakaraṇa* (11-15).

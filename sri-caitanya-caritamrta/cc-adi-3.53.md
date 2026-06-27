@@ -1,0 +1,8 @@
+### CC Adi 3.53
+
+> śuna, bhāi, ei saba caitanya-mahimā
+> ei śloke kahe tāṅra mahimāra sīmā
+
+*śuna*—please hear; *bhāi*—O brothers; *ei*—this; *saba*—all; *caitanya*—of Lord Caitanya Mahāprabhu; *mahimā*—the glories; *ei*—this; *śloke*—verse; *kahe*—says; *tāṅra*—of Him; *mahimāra*—of the glories; *sīmā*—the limit.
+
+**My dear brothers, please hear all these glories of Lord Caitanya. This verse clearly summarizes His activities and characteristics.**

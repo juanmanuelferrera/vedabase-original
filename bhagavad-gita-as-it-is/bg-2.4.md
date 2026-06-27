@@ -1,0 +1,13 @@
+### Bg 2.4
+
+> arjuna uvāca
+> kathaṁ bhīṣmam ahaṁ saṅkhye
+> droṇaṁ ca madhusūdana
+> iṣubhiḥ pratiyotsyāmi
+> pūjārhāv ari-sūdana
+
+*arjunaḥ uvāca*—Arjuna said; *katham*—how; *bhīṣmam*—unto Bhīṣma; *aham*—I; *saṅkhye*—in the fight; *droṇam*—unto Droṇa; *ca*—also; *madhusūdana*—O killer of Madhu; *iṣubhiḥ*—with arrows; *pratiyotsyāmi*—shall counterattack; *pūjā-arhau*—those who are worshipable; *arisūdana*—O killer of the enemies.
+
+**Arjuna said: O killer of Madhu [Kṛṣṇa], how can I counterattack with arrows in battle men like Bhīṣma and Droṇa, who are worthy of my worship?**
+
+Respectable superiors like Bhīṣma the grandfather and Droṇācārya the teacher are always worshipable. Even if they attack, they should not be counterattacked. It is general etiquette that superiors are not to be offered even a verbal fight. Even if they are sometimes harsh in behavior, they should not be harshly treated. Then, how is it possible for Arjuna to counterattack them? Would Kṛṣṇa ever attack His own grandfather, Ugrasena, or His teacher, Sāndīpani Muni? These were some of the arguments by Arjuna to Kṛṣṇa.

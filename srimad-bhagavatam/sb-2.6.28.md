@@ -1,0 +1,24 @@
+### SB 2.6.28
+
+> iti sambhṛta-sambhāraḥ
+> puruṣāvayavair aham
+> tam eva puruṣaṁ yajñaṁ
+> tenaivāyajam īśvaram
+
+*iti*—thus; *sambhṛta*—executed; *sambhāraḥ*—equipped myself well; *puruṣa*—the Personality of Godhead; *avayavaiḥ*—by the parts and parcels; *aham*—I; *tam eva*—unto Him; *puruṣam*—the Personality of Godhead; *yajñam*—the enjoyer of all sacrifices; *tena eva*—by all those; *ayajam*—worshiped; *īśvaram*—the supreme controller.
+
+**Thus I created the ingredients and paraphernalia for offering sacrifice out of the parts and parcels of the body of the Supreme Lord, the enjoyer of the sacrifice, and I performed the sacrifice to satisfy the Lord.**
+
+People in general are always anxious to have peace of mind or peace in the world, but they do not know how to achieve such a standard of peace in the world. Such peace in the world is obtainable by performances of sacrifice and by practicing austerity. In the Bhagavad-gītā the following prescription is recommended:
+
+bhoktāraṁ yajña-tapasāṁ sarva-loka-maheśvaram
+
+suhṛdaṁ sarva-bhūtānāṁ jñātvā māṁ śāntim ṛcchati
+
+(Bg. 5.29)
+
+"The karma-yogīs know that the Supreme Lord is the factual enjoyer and maintainer of all sacrifices and of the austere life. They also know that the Lord is the ultimate proprietor of all the planets, and He is the factual friend of all living entities. Such knowledge gradually converts the karma-yogīs into pure devotees of the Lord through the association of unalloyed devotees, and thus they are able to be liberated from the material bondage."
+
+Brahmā, the original living being within the material world, taught us the way of sacrifice. The word sacrifice suggests dedication of one's own interests for satisfaction of a second person. That is the way of all activities. Every man is engaged in sacrificing his interests for others, either in the form of family, society, community, country or the entire human society. But perfection of such sacrifices is attained when they are performed for the sake of the Supreme Person, the Lord. Because the Lord is the proprietor of everything, because the Lord is the friend of all living creatures, and because He is the maintainer of the performer of sacrifice, as well as the supplier of the ingredients of sacrifices, it is He only and no one else who should be satisfied by all sacrifices.
+
+The whole world is engaged in sacrificing energy for advancement of learning, social upliftment, economic development and plans for total improvement of the human condition, but no one is interested in sacrificing for the sake of the Lord, as it is advised in the Bhagavad-gītā. Therefore, there is no peace in the world. If men at all want peace in the world, they must practice sacrifice in the interest of the supreme proprietor and friend of all.

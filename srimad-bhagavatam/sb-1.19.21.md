@@ -1,0 +1,12 @@
+### SB 1.19.21
+
+> sarve vayaṁ tāvad ihāsmahe 'tha
+> kalevaraṁ yāvad asau vihāya
+> lokaṁ paraṁ virajaskaṁ viśokaṁ
+> yāsyaty ayaṁ bhāgavata-pradhānaḥ
+
+*sarve*—all; *vayam*—of us; *tāvat*—as long as; *iha*—at this place; *āsmahe*—shall stay; *atha*—hereafter; *kalevaram*—the body; *yāvat*—so long; *asau*—the King; *vihāya*—giving up; *lokam*—the planet; *param*—the supreme; *virajaskam*—completely free from mundane contamination; *viśokam*—completely freed from all kinds of lamentation; *yāsyati*—returns; *ayam*—this; *bhāgavata*—devotee; *pradhānaḥ*—the foremost.
+
+**We shall all wait here until the foremost devotee of the Lord, Mahārāja Parīkṣit, returns to the supreme planet, which is completely free from all mundane contamination and all kinds of lamentation.**
+
+Beyond the limitation of the material creation, which is compared to the cloud in the sky, there is the Paravyoma, or the spiritual sky, full of planets called Vaikuṇṭhas. Such Vaikuṇṭha planets are also differently known as the Puruṣottamaloka, Acyutaloka, Trivikramaloka, Hṛṣīkeśaloka, Keśavaloka, Aniruddhaloka, Mādhavaloka, Pradyumnaloka, Saṅkarṣaṇaloka, Śrīdharaloka, Vāsudevaloka, Ayodhyāloka, Dvārakāloka, and many other millions of spiritual lokas wherein the Personality of Godhead predominates; and all the living entities there are liberated souls with spiritual bodies as good as that of the Lord. There is no material contamination; everything there is spiritual, and therefore there is nothing objectively lamentable. They are full of transcendental bliss, and are without birth, death, old age and disease. And amongst all the above-mentioned Vaikuṇṭhalokas, there is one supreme loka called Goloka Vṛndāvana, which is the abode of the Lord Śrī Kṛṣṇa and His specific associates. Mahārāja Parīkṣit was destined to achieve this particular loka, and the great ṛṣis assembled there could foresee this. All of them consulted amongst themselves about the great departure of the great King, and they wanted to see him up to the last moment because they would no more be able to see such a great devotee of the Lord. When a great devotee of the Lord passes away, there is nothing to be lamented because the devotee is destined to enter into the kingdom of God. But the sorry plight is that such great devotees leave our sight, and therefore there is every reason to be sorry. As the Lord is rarely to be seen by our present eyes, so also are the great devotees. The great ṛṣis, therefore, correctly decided to remain on the spot till the last moment.

@@ -1,0 +1,8 @@
+### CC Adi 1.18
+
+> jaya jaya śrī-caitanya jaya nityānanda
+> jayādvaita-candra jaya gaura-bhakta-vṛnda
+
+*jaya jaya*—all glory; *śrī-caitanya*—to Śrī Caitanya; *jaya*—all glory; *nityānanda*—to Lord Nityānanda; *jaya advaita-candra*—all glory to Advaita Ācārya; *jaya*—all glory; *gaura-bhakta-vṛnda*—to the devotees of Lord Caitanya.
+
+**Glory to Śrī Caitanya and Nityānanda! Glory to Advaitacandra! And glory to all the devotees of Śrī Gaura [Lord Caitanya]!**

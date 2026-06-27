@@ -1,0 +1,8 @@
+### CC Antya 7.89
+
+> vimanā hañā bhaṭṭa gelā nija-ghara
+> prabhu-viṣaye bhakti kichu ha-ila antara
+
+*vimanā hañā*—feeling morose; *bhaṭṭa*—Vallabha Bhaṭṭa; *gelā*—went; *nija-ghara*—to his home; *prabhu-viṣaye*—unto Śrī Caitanya Mahāprabhu; *bhakti*—devotion; *kichu*—somewhat; *ha-ila*—became; *antara*—different.
+
+**When Śrī Caitanya Mahāprabhu rigidly declined to hear his explanations, Vallabha Bhaṭṭa went home feeling morose. His faith and devotion to the Lord changed.**

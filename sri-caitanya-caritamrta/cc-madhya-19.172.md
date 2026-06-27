@@ -1,0 +1,10 @@
+### CC Madhya 19.172
+
+> lakṣaṇaṁ bhakti-yogasya
+> nirguṇasya hy udāhṛtam
+> ahaituky avyavahitā
+> yā bhaktiḥ puruṣottame
+
+*lakṣaṇam*—the symptom; *bhakti-yogasya*—of devotional service; *nirguṇasya*—beyond the three modes of nature; *hi*—certainly; *udāhṛtam*—is cited; *ahaitukī*—causeless; *avyavahitā*—uninterrupted; *yā*—which; *bhaktiḥ*—devotional service; *puruṣottame*—to the Supreme Personality of Godhead.
+
+**“ 'These are the characteristics of transcendental loving service to Puruṣottama, the Supreme Personality of Godhead: it is causeless, and it cannot be obstructed in any way.**

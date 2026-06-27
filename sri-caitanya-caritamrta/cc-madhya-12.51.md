@@ -1,0 +1,8 @@
+### CC Madhya 12.51
+
+> śukla-vastre masi-bindu yaiche nā lukāya
+> sannyāsīra alpa chidra sarva-loke gāya
+
+*śukla-vastre*—on white cloth; *masi-bindu*—a spot of ink; *yaiche*—as much as; *nā*—does not; *lukāya*—become hidden; *sannyāsīra*—of a *sannyāsī*; *alpa*—a very little; *chidra*—fault; *sarva-loke*—the general public; *gāya*—advertise.
+
+**"As soon as the general public finds a little fault in the behavior of a sannyāsī, they advertise it like wildfire. A black spot of ink cannot be hidden on a white cloth. It is always very prominent."**

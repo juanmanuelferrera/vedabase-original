@@ -1,0 +1,12 @@
+### SB 7.6.6
+
+> puṁso varṣa-śataṁ hy āyus
+> tad-ardhaṁ cājitātmanaḥ
+> niṣphalaṁ yad asau rātryāṁ
+> śete 'ndhaṁ prāpitas tamaḥ
+
+*puṁsaḥ*—of every human being; *varṣa-śatam*—one hundred years; *hi*—indeed; *āyuḥ*—duration of life; *tat*—of that; *ardham*—half; *ca*—and; *ajita-ātmanaḥ*—of a person who is a servant of his senses; *niṣphalam*—without profit, without meaning; *yat*—because; *asau*—that person; *rātryām*—at night; *śete*—sleeps; *andham*—ignorance (forgetting his body and soul); *prāpitaḥ*—being completely possessed of; *tamaḥ*—darkness.
+
+**Every human being has a maximum duration of life of one hundred years, but for one who cannot control his senses, half of those years are completely lost because at night he sleeps twelve hours, being covered by ignorance. Therefore such a person has a lifetime of only fifty years.**
+
+Lord Brahmā, a human being and an ant all live for one hundred years, but their lifetimes of one hundred years are different from one another. This world is a relative world, and its relative moments of time are different. Thus the one hundred years of Brahmā are not the same as the one hundred years of a human being. From *Bhagavad-gītā* we understand that Brahma's daytime of twelve hours equals 4,300,000 times 1,000 years (*sahasra-yuga-paryantam ahar yad brahmaṇo viduḥ* [[bg/8/17|[Bg. 8.17] ]]). Thus the *varṣa-śatam,* or one hundred years, are relatively different according to time, person and circumstances. As far as human beings are concerned, the calculation given here is right for the general public. Although one has a maximum of one hundred years of life, by sleeping one loses fifty years. Eating, sleeping, sex life and fear are the four bodily necessities, but to utilize the full duration of life a person desiring to advance in spiritual consciousness must reduce these activities. That will give him an opportunity to fully use his lifetime.

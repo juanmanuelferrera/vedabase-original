@@ -1,0 +1,9 @@
+### SB 5.2.21
+
+> āgnīdhra-sutās te mātur anugrahād autpattikenaiva saṁhanana-balopetāḥ pitrā vibhaktā ātma-tulya-nāmāni yathā-bhāgaṁ jambūdvīpa-varṣāṇi bubhujuḥ.
+
+*āgnīdhra-sutāḥ*—the sons of Mahārāja Āgnīdhra; *te*—they; *mātuḥ*—of the mother; *anugrahāt*—by the mercy or by drinking the breast milk; *autpattikena*—naturally; *eva*—certainly; *saṁhanana*—well-built body; *bala*—strength; *upetāḥ*—obtained; *pitrā*—by the father; *vibhaktāḥ*—divided; *ātma-tulya*—following their own; *nāmāni*—possessing names; *yathā-bhāgam*—divided properly; *jambūdvīpa-varṣāṇi*—different parts of Jambūdvīpa (probably Asia and Europe combined together); *bubhujuḥ*—ruled.
+
+**Because of drinking the breast milk of their mother, the nine sons of Āgnīdhra naturally had strong, well-built bodies. Their father gave them each a kingdom in a different part of Jambūdvīpa. The kingdoms were named according to the names of the sons. Thus the sons of Āgnīdhra ruled the kingdoms they received from their father.**
+
+The *ācāryas* specifically mention that in this verse the words *mātuḥ anugrahāt* ("by the mercy of their mother") refer to the breast milk of their mother. In India it is a common belief that if a baby is fed his mother's milk for at least six months, his body will be very strong. Besides that, it is mentioned herein that all the sons of Āgnīdhra were endowed with the nature of their mother. *Bhagavad-gītā* [[bg/1/40|(Bg. 1.40)]] also declares, *strīṣu duṣṭāsu vārṣṇeya jāyate varṇa-saṅkaraḥ:* when women are polluted, *varṇa-saṅkara,* unqualified children, are generated, and when the *varṇa-saṅkara* population increases, the entire world becomes hellish. Therefore, according to *Manu-saṁhitā,* a woman needs a great deal of protection in order to remain pure and chaste so that her children can be fully engaged for the benefit of human society.

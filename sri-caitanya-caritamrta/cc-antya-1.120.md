@@ -1,0 +1,10 @@
+### CC Antya 1.120
+
+> tuṇḍe tāṇḍavinī ratiṁ vitanute tuṇḍāvalī-labdhaye
+> karṇa-kroḍa-kaḍambinī ghaṭayate karṇārbudebhyaḥ spṛhām
+> cetaḥ-prāṅgaṇa-saṅginī vijayate sarvendriyāṇāṁ kṛtiṁ
+> no jāne janitā kiyadbhir amṛtaiḥ kṛṣṇeti varṇa-dvayī
+
+*tuṇḍe*—in the mouth; *tāṇḍavinī*—dancing; *ratim*—the inspiration; *vitanute*—expands; *tuṇḍa-āvalī-labdhaye*—to achieve many mouths; *karṇa*—of the ear; *kroḍa*—in the hole; *kaḍambinī*—sprouting; *ghaṭayate*—causes to appear; *karṇa-arbudebhyaḥ spṛhām*—the desire for millions of ears; *cetaḥ-prāṅgaṇa*—in the courtyard of the heart; *saṅginī*—being a companion; *vijayate*—conquers; *sarva-indriyāṇām*—of all the senses; *kṛtim*—the activity; *no*—not; *jāne*—I know; *janitā*—produced; *kiyadbhiḥ*—of what measures by; *amṛtaiḥ*—by nectar; *kṛṣṇa*—the name of Kṛṣṇa; *iti*—thus; *varṇa-dvayī*—the two syllables.
+
+**"I do not know how much nectar the two syllables 'Kṛṣ-ṇa' have produced. When the holy name of Kṛṣṇa is chanted, it appears to dance within the mouth. We then desire many, many mouths. When that name enters the holes of the ears, we desire many millions of ears. And when the holy name dances in the courtyard of the heart, it conquers the activities of the mind, and therefore all the senses become inert."**

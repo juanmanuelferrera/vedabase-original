@@ -1,0 +1,12 @@
+### SB 3.23.55
+
+> saṅgo yaḥ saṁsṛter hetur
+> asatsu vihito 'dhiyā
+> sa eva sādhuṣu kṛto
+> niḥsaṅgatvāya kalpate
+
+*saṅgaḥ*—association; *yaḥ*—which; *saṁsṛteḥ*—of the cycle of birth and death; *hetuḥ*—the cause; *asatsu*—with those engaged in sense gratification; *vihitaḥ*—done; *adhiyā*—through ignorance; *saḥ*—the same thing; *eva*—certainly; *sādhuṣu*—with saintly persons; *kṛtaḥ*—performed; *niḥsaṅgatvāya*—to liberation; *kalpate*—leads.
+
+**Association for sense gratification is certainly the path of bondage. But the same type of association, performed with a saintly person, leads to the path of liberation, even if performed without knowledge.**
+
+The association of a saintly person in any way bears the same result. For example, Lord Kṛṣṇa met many kinds of living entities, and some treated Him as an enemy, and some treated Him as an agent for sense gratification. It is generally said that the *gopīs* were attached to Kṛṣṇa for sense attractions, and yet they became first-class devotees of the Lord. Kaṁsa, Śiśupāla, Dantavakra and other demons, however, were related to Kṛṣṇa as enemies. But whether they associated with Kṛṣṇa as enemies or for sense gratification, out of fear or as pure devotees, they all got liberation. That is the result of association with the Lord. Even if one does not understand who He is, the results have the same efficacy. Association with a great saintly person also results in liberation, just as whether one goes toward fire knowingly or unknowingly, the fire will make one warm. Devahūti expressed her gratefulness, for although she wanted to associate with Kardama Muni only for sense gratification, because he was spiritually great she was sure to be liberated by his benediction.

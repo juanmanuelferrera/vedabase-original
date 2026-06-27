@@ -1,0 +1,9 @@
+### SB 5.14.39
+
+> yad idaṁ yogānuśāsanaṁ na vā etad avarundhate yan nyasta-daṇḍā munaya upaśama-śīlā uparatātmānaḥ samavagacchanti.
+
+*yat*—which; *idam*—this ultimate abode of the Supreme Personality of Godhead; *yoga-anuśāsanam*—only to be achieved by practicing devotional service; *na*—not; *vā*—either; *etat*—this path of liberation; *avarundhate*—obtain; *yat*—therefore; *nyasta-daṇḍāḥ*—persons who have given up envying others; *munayaḥ*—saintly persons; *upaśama-śīlāḥ*—who are now situated in a most peaceful existence; *uparata-ātmānaḥ*—who have control over the mind and senses; *samavagacchanti*—very easily obtain.
+
+**Saintly persons, who are friends to all living entities, have a peaceful consciousness. They have controlled their senses and minds, and they easily attain the path of liberation, the path back to Godhead. Being unfortunate and attached to the miserable material conditions, a materialistic person cannot associate with them.**
+
+The great saint Jaḍa Bharata described both the miserable condition and the means to get out. The only way out of it is association with devotees, and this association is very easy. Although unfortunate people also get this opportunity, due to their great misfortune they cannot take shelter of pure devotees, and consequently they continuously suffer. Nonetheless, this Kṛṣṇa consciousness movement insists that everyone take to this path by adopting the chanting of the Hare Kṛṣṇa *mahā-mantra.* The preachers of Kṛṣṇa consciousness go from door to door to inform people how they can be relieved from the miserable conditions of material life. As stated by Śrī Caitanya Mahāprabhu, *guru-kṛṣṇa-prasāde pāya bhakti-latā-bīja:* [[cc/madhya/19/151|[Cc. Madhya 19.151] ]] by the mercy of Kṛṣṇa and *guru,* one can get the seed of devotional service. If one is a little intelligent he can cultivate Kṛṣṇa consciousness and be freed from the miserable conditions of material life.

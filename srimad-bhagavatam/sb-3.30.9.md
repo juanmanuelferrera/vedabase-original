@@ -1,0 +1,12 @@
+### SB 3.30.9
+
+> gṛheṣu kūṭa-dharmeṣu
+> duḥkha-tantreṣv atandritaḥ
+> kurvan duḥkha-pratīkāraṁ
+> sukhavan manyate gṛhī
+
+*gṛheṣu*—in family life; *kūṭa-dharmeṣu*—involving the practice of falsehood; *duḥkha-tantreṣu*—spreading miseries; *atandritaḥ*—attentive; *kurvan*—doing; *duḥkha-pratīkāram*—counteraction of miseries; *sukha-vat*—as happiness; *manyate*—thinks; *gṛhī*—the householder.
+
+**The attached householder remains in his family life, which is full of diplomacy and politics. Always spreading miseries and controlled by acts of sense gratification, he acts just to counteract the reactions of all his miseries, and if he can successfully counteract such miseries, he thinks that he is happy.**
+
+In *Bhagavad-gītā* the Personality of Godhead Himself certifies the material world as an impermanent place that is full of miseries. There is no question of happiness in this material world, either individually or in terms of family, society or country. If something is going on in the name of happiness, that is also illusion. Here in this material world, happiness means successful counteraction to the effects of distress. The material world is so made that unless one becomes a clever diplomat, his life will be a failure. Not to speak of human society, even the society of lower animals, the birds and bees, cleverly manages its bodily demands of eating, sleeping and mating. Human society competes nationally or individually, and in the attempt to be successful the entire human society becomes full of diplomacy. We should always remember that in spite of all diplomacy and all intelligence in the struggle for our existence, everything will end in a second by the supreme will. Therefore, all our attempts to become happy in this material world are simply a delusion offered by *māyā.*

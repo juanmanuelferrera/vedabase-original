@@ -1,0 +1,18 @@
+### SB 4.21.41
+
+> aśnāty anantaḥ khalu tattva-kovidaiḥ
+> śraddhā-hutaṁ yan-mukha ijya-nāmabhiḥ
+> na vai tathā cetanayā bahiṣ-kṛte
+> hutāśane pāramahaṁsya-paryaguḥ
+
+*aśnāti*—eats; *anantaḥ*—the Supreme Personality of Godhead; *khalu*—nevertheless; *tattva-kovidaiḥ*—persons in knowledge of the Absolute Truth; *śraddhā*—faith; *hutam*—offering fire sacrifices; *yat-mukhe*—whose mouth; *ijya-nāmabhiḥ*—by different names of demigods; *na*—never; *vai*—certainly; *tathā*—as much; *cetanayā*—by living force; *bahiḥ-kṛte*—being bereft of; *huta-aśane*—in the fire sacrifice; *pāramahaṁsya*—regarding devotees; *paryaguḥ*—never goes away.
+
+**Although the Supreme Personality of Godhead, Ananta, eats through the fire sacrifices offered in the names of the different demigods, He does not take as much pleasure in eating through fire as He does in accepting offerings through the mouths of learned sages and devotees, for then He does not leave the association of devotees.**
+
+According to Vedic injunctions, a fire sacrifice is held in order to give food to the Supreme Personality of Godhead in the names of the different demigods. While performing a fire sacrifice, one pronounces the word svāhā in mantras such as indrāya svāhā and ādityāya svāhā. These mantras are uttered to satisfy the Supreme Personality of Godhead through demigods such as Indra and Āditya, for the Supreme Personality of Godhead says:
+
+nāhaṁ tiṣṭhāmi vaikuṇṭhe yogināṁ hṛdayeṣu vā tatra tiṣṭhāmi nārada yatra gāyanti mad-bhaktāḥ
+
+"I am not in Vaikuṇṭha nor in the hearts of the yogīs. I remain where My devotees engage in glorifying My activities." It is to be understood that the Supreme Personality of Godhead does not leave the company of His devotees.
+
+Fire is certainly devoid of life, but devotees and brāhmaṇas are the living representatives of the Supreme Lord. Therefore to feed brāhmaṇas and Vaiṣṇavas is to feed the Supreme Personality of Godhead directly. It may be concluded that instead of offering fire sacrifices, one should offer foodstuffs to brāhmaṇas and Vaiṣṇavas, for that process is more effective than fire yajña. The vivid example of this principle in action was given by Advaita Prabhu. When he performed the śrāddha ceremony for his father, he first of all called Haridāsa Ṭhākura and offered him food. It is the practice that after finishing the śrāddha ceremony, one should offer food to an elevated brāhmaṇa. But Advaita Prabhu offered food first to Haridāsa Ṭhākura, who had taken his birth in a Muhammadan family. Therefore Haridāsa Ṭhākura asked Advaita Prabhu why he was doing something which might jeopardize his position in brāhmaṇa society. Advaita Prabhu replied that He was feeding millions of first-class brāhmaṇas by offering the food to Haridāsa Ṭhākura. He was prepared to talk with any learned brāhmaṇa on this point and prove definitely that by offering food to a pure devotee like Haridāsa Ṭhākura, He was equally as blessed as He would have been by offering food to thousands of learned brāhmaṇas. When performing sacrifices, one offers oblations to the sacrificial fire, but when such oblations are offered to Vaiṣṇavas, they are certainly more effective.

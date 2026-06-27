@@ -1,0 +1,12 @@
+### SB 2.5.4
+
+> yad-vijñāno yad-ādhāro
+> yat-paras tvaṁ yad-ātmakaḥ
+> ekaḥ sṛjasi bhūtāni
+> bhūtair evātma-māyayā
+
+*yat-vijñānaḥ*—the source of knowledge; *yat-ādhāraḥ*—under whose protection; *yat-paraḥ*—under whose subordination; *tvam*—you; *yat-ātmakaḥ*—in what capacity; *ekaḥ*—alone; *sṛjasi*—you are creating; *bhūtāni*—the living entities; *bhūtaiḥ*—with the help of the material elements; *eva*—certainly; *ātma*—self; *māyayā*—by potency.
+
+**My dear father, what is the source of your knowledge? Under whose protection are you standing? And under whom are you working? What is your real position? Do you alone create all entities with material elements by your personal energy?**
+
+It was known to Śrī Nārada Muni that Lord Brahmā attained creative energy by undergoing severe austerities. As such, he could understand that there was someone else superior to Brahmājī who invested Brahmā with the power of creation. Therefore he asked all the above questions. Discoveries of progressive scientific achievements are therefore not independent. The scientist has to attain the knowledge of a thing already existing by means of the wonderful brain made by someone else. A scientist can work with the help of such an awarded brain, but it is not possible for the scientist to create his own or a similar brain. Therefore no one is independent in the matter of any creation, nor is such creation automatic.

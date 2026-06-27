@@ -1,0 +1,24 @@
+### SB 4.24.67
+
+> kas tvat-padābjaṁ vijahāti paṇḍito
+> yas te 'vamāna-vyayamāna-ketanaḥ
+> viśaṅkayāsmad-gurur arcati sma yad
+> vinopapattiṁ manavaś caturdaśa
+
+*kaḥ*—who; *tvat*—Your; *pada-abjam*—lotus feet; *vijahāti*—avoids; *paṇḍitaḥ*—learned; *yaḥ*—who; *te*—unto You; *avamāna*—deriding; *vyayamāna*—decreasing; *ketanaḥ*—this body; *viśaṅkayā*—without any doubt; *asmat*—our; *guruḥ*—spiritual master, father; *arcati*—worships; *sma*—in the past; *yat*—that; *vinā*—without; *upapattim*—agitation; *manavaḥ*—the Manus; *catuḥ-daśa*—fourteen.
+
+**My dear Lord, any learned person knows that unless he worships You, his entire life is spoiled. Knowing this, how could he give up worshiping Your lotus feet? Even our father and spiritual master, Lord Brahmā, unhesitatingly worshiped You, and the fourteen Manus followed in his footsteps.**
+
+The word paṇḍita means "a wise man." Who is actually a wise man? The wise man is described in Bhagavad-gītā in this way:
+
+bahūnāṁ janmanām ante jñānavān māṁ prapadyate vāsudevaḥ sarvam iti sa mahātmā sudurlabhaḥ
+
+"After many births and deaths, he who is actually in knowledge surrenders unto Me, knowing Me to be the cause of all causes and all that is. Such a great soul is very rare." (Bg. 7.19)
+
+Thus when the wise man actually becomes wise after many births and whimsical attempts at self-realization, he surrenders unto the Supreme Personality of Godhead, Kṛṣṇa. Such a mahātmā, or learned person, knows that Kṛṣṇa, Vāsudeva, is everything (vāsudevaḥ sarvam iti). Learned persons always think that life is wasted unless they worship Lord Kṛṣṇa or become His devotee. Śrīla Rūpa Gosvāmī also says that when one becomes an advanced devotee he understands that he should be reserved and perseverant (kṣāntiḥ) and that he should engage in the service of the Lord and not waste time (avyartha-kālatvam). He should also be detached from all material attraction (viraktiḥ), and he should not long for any material respect in return for his activities (māna-śūnyatā). He should be certain that Kṛṣṇa will bestow His mercy upon him (āśā-bandhaḥ), and he should always be very eager to serve the Lord faithfully (samutkaṇṭhā). The wise man is always very eager to glorify the Lord by chanting and hearing (nāma-gāne sadā ruciḥ), and he is always eager to describe the transcendental qualities of the Lord (āsaktis tad-guṇākhyāne). He should also be attracted to those places where the Lord had His pastimes (prītis tad-vasati-sthale). These are symptoms of an advanced devotee.
+
+An advanced devotee or a perfect human being who is actually wise and learned cannot give up his service at the lotus feet of the Lord. Although Lord Brahmā has a long life-span (4,320,000,000 years constitute twelve hours in a day of Brahmā), Brahmā is nonetheless afraid of death and consequently engages in the devotional service of the Lord. Similarly, all the Manus who appear and disappear during the day of Brahmā are also engaged in the Lord's devotional service. In Brahmā's one day, fourteen Manus appear and disappear. The first Manu is Svāyambhuva Manu. Each Manu lives for seventy-one yugas, each consisting of some 4,320,000 years. Although the Manus have such a long life-span, they still prepare for the next life by engaging in the devotional service of the Lord. In this age human beings only live for sixty or eighty years, and even this small life-span is gradually decreasing. Therefore it is even more imperative for human beings to take to the worship of the lotus feet of the Lord by constantly chanting the Hare Kṛṣṇa mantra, as recommended by Lord Caitanya Mahāprabhu.
+
+tṛṇād api sunīcena taror iva sahiṣṇunā amāninā mānadena kīrtanīyaḥ sadā hariḥ
+
+When one is engaged in devotional service, he is often surrounded by envious people, and often many enemies come to try to defeat him or stop him. This is not new in this present age, for even in the days of yore Prahlāda Mahārāja, who was engaged in the devotional service of the Lord, was harassed by his demoniac father, Hiraṇyakaśipu. The atheists are always prepared to harass a devotee; therefore Caitanya Mahāprabhu suggested that one be very tolerant of these people. Nonetheless, one has to continue chanting the Hare Kṛṣṇa mantra and preaching the chanting of this mantra because such preaching and chanting constitute the perfection of life. One should chant and preach about the urgency of making this life perfect in all respects. One should thus engage in the devotional service of the Lord and follow in the footsteps of previous ācāryas, beginning with Lord Brahmā and others.

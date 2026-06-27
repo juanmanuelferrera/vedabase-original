@@ -1,0 +1,16 @@
+### SB 3.23.8
+
+> anye punar bhagavato bhruva udvijṛmbha-
+> vibhraṁśitārtha-racanāḥ kim urukramasya
+> siddhāsi bhuṅkṣva vibhavān nija-dharma-dohān
+> divyān narair duradhigān nṛpa-vikriyābhiḥ
+
+*anye*—others; *punaḥ*—again; *bhagavataḥ*—of the Lord; *bhruvaḥ*—of the eyebrows; *udvijṛmbha*—by the movement; *vibhraṁśita*—annihilated; *artha-racanāḥ*—material achievements; *kim*—what use; *urukramasya*—of Lord Viṣṇu (far-stepping); *siddhā*—successful; *asi*—you are; *bhuṅkṣva*—enjoy; *vibhavān*—the gifts; *nija-dharma*—by your own principles of devotion; *dohān*—gained; *divyān*—transcendental; *naraiḥ*—by persons; *duradhigān*—difficult to obtain; *nṛpa-vikriyābhiḥ*—proud of aristocracy.
+
+**Kardama Muni continued: What is the use of enjoyments other than the Lord's grace? All material achievements are subject to be annihilated simply by a movement of the eyebrows of Lord Viṣṇu, the Supreme Personality of Godhead. By your principles of devotion to your husband, you have achieved and can enjoy transcendental gifts very rarely obtained by persons proud of aristocracy and material possessions.**
+
+Lord Caitanya recommended that the greatest achievement of human life is to achieve the grace of the Lord, love of God. He said, *premā pumartho mahān:* to achieve love of Godhead is the highest perfection of life. The same perfection is recommended by Kardama Muni to his wife. His wife belonged to a very aristocratic royal family. Generally, those who are very materialistic or who possess material wealth and prosperity are unable to appreciate the value of transcendental love of God. Although Devahūti was a princess coming from a very great royal family, fortunately she was under the supervision of her great husband, Kardama Muni, who offered her the best gift which can be bestowed in human life—the grace of the Lord, or love of God. This grace of the Lord was achieved by Devahūti by the good will and satisfaction of her husband. She served her husband, who was a great devotee and saintly person, with great sincerity, love, affection and service, and Kardama Muni was satisfied. He willingly gave love of God, and he recommended that she accept it and enjoy it because he had already achieved it.
+
+Love of God is not an ordinary commodity. Caitanya Mahāprabhu was worshiped by Rūpa Gosvāmī because He distributed love of God, *kṛṣṇa-premā,* to everyone. Rūpa Gosvāmī praised Him as *mahā-vadānya,* a greatly munificent personality, because He was freely distributing to everyone love of Godhead, which is achieved by wise men only after many, many births. *Kṛṣṇa-premā,* Kṛṣṇa consciousness, is the highest gift which can be bestowed on anyone whom we presume to love.
+
+One word used in this verse, *nija-dharma-dohān,* is very significant. Devahūti, as the wife of Kardama Muni, achieved an invaluable gift from her husband because she was very faithful to him. For a woman the first principle of religion is to be faithful to her husband. If, fortunately, the husband is a great personality, then the combination is perfect, and the lives of both the wife and the husband are at once fulfilled.

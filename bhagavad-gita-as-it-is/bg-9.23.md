@@ -1,0 +1,12 @@
+### Bg 9.23
+
+> ye 'py anya-devatā-bhaktā
+> yajante śraddhayānvitāḥ
+> te 'pi mām eva kaunteya
+> yajanty avidhi-pūrvakam
+
+*ye*—those; *api*—also; *anya*—other; *devatā*—demigods; *bhaktāḥ*—devotees; *yajante*—worship; *śraddhaya-anvitāḥ*—with faith; *te*—they; *api*—also; *mām*—Me; *eva*—even; *kaunteya*—O son of Kuntī; *yajanti*—sacrifice; *avidhi-pūrvakam*—in a wrong way.
+
+**Whatever a man may sacrifice to other gods, O son of Kuntī, is really meant for Me alone, but it is offered without true understanding.**
+
+"Persons who are engaged in the worship of demigods are not very intelligent, although such worship is done to Me indirectly," Kṛṣṇa says. For example, when a man pours water on the leaves and branches of a tree without pouring water on the root, he does so without sufficient knowledge or without observing regulative principles. Similarly, the process of rendering service to different parts of the body is to supply food to the stomach. The demigods are, so to speak, different officers and directors in the government of the Supreme Lord. One has to follow the laws made by the government, not by the officers or directors. Similarly, everyone is to offer his worship to the Supreme Lord only. That will automatically satisfy the different officers and directors of the Lord. The officers and directors are engaged as representatives of the government, and to offer some bribe to the officers and directors is illegal. This is stated here as *avidhi-pūrvakam.* In other words, Kṛṣṇa does not approve the unnecessary worship of the demigods.

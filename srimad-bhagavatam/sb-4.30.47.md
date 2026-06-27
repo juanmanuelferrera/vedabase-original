@@ -1,0 +1,12 @@
+### SB 4.30.47
+
+> tatrāvaśiṣṭā ye vṛkṣā
+> bhītā duhitaraṁ tadā
+> ujjahrus te pracetobhya
+> upadiṣṭāḥ svayambhuvā
+
+*tatra*—there; *avaśiṣṭāḥ*—remaining; *ye*—which; *vṛkṣāḥ*—trees; *bhītāḥ*—being afraid; *duhitaram*—their daughter; *tadā*—at that time; *ujjahruḥ*—delivered; *te*—they; *pracetobhyaḥ*—unto the Pracetās; *upadiṣṭāḥ*—being advised; *svayambhuvā*—by Lord Brahmā.
+
+**The remaining trees, being very much afraid of the Pracetās, immediately delivered their daughter at the advice of Lord Brahmā.**
+
+The daughter of the trees is referred to in text thirteen of this chapter. This daughter was born of Kaṇḍu and Pramlocā. The society girl Pramlocā, after giving birth to the child, immediately left for the heavenly kingdom. While the child was crying, the King of the moon took compassion upon her and saved her by putting his finger into her mouth. This child was cared for by the trees, and when she grew up, by the order of Lord Brahmā, she was delivered to the Pracetās as their wife. The name of the girl was Māriṣā, as the next verse will explain. It was the predominating deity of the trees that delivered the daughter. In this connection, Śrīla Jīva Gosvāmī Prabhupāda states, vṛkṣāḥ tad-adhiṣṭhātṛ-devatāḥ: "The 'trees' means the controlling deity of those trees." In Vedic literatures we find that there is a controlling deity of the water; similarly, there is a controlling deity of the trees. The Pracetās were engaged in burning all the trees to ashes, and they considered the trees their enemies. To pacify the Pracetās, the predominating deity of the trees, under the advice of Lord Brahmā, delivered the daughter Māriṣā.

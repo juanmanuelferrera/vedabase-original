@@ -1,0 +1,19 @@
+### CC Madhya 22.129
+
+> sakala-sādhana-śreṣṭha ei pañca aṅga
+> kṛṣṇa-prema janmāya ei pāṅcera alpa saṅga
+
+*sakala-sādhana*—of all items for executing devotional service; *śreṣṭha*—the best; *ei pañca aṅga*—these five limbs; *kṛṣṇa-prema*—love of Kṛṣṇa; *janmāya*—awakens; *ei*—these; *pāṅcera*—of the five; *alpa saṅga*—slight association with or performance.
+
+**"These five limbs of devotional service are the best of all. Even a slight performance of these five awakens love for Kṛṣṇa.**
+
+Śrīla Bhaktivinoda Ṭhākura points out that there are thirty-five items up to the point of observing special vows in the month of Kārttika. To these thirty-five items, another four are added-namely marking *tilaka* on different parts of the body, writing the names of the Lord all over the body, accepting the Deity's garland and accepting *caraṇāmṛta.* These four items are understood to be included by Kavirāja Gosvāmī within *arcana,* worship of the Deity. Although these items are not mentioned here, they are to be added to the previous thirty-five items. Thus the total number becomes thirty-nine. To these thirty-nine should be added five others: association with devotees, chanting the Hare Kṛṣṇa *mahā-mantra,* reading *Śrīmad-Bhāgavatam* regularly, residing in Mathurā, the birthplace of Kṛṣṇa, and worshiping the Deity with great respect and veneration. The thirty-nine items plus these five come to a total of forty-four. If we add the previous twenty items to these forty-four, the total number becomes sixty-four. The five items mentioned above repeat previously mentioned items. In the *Bhakti-rasāmṛta-sindhu,* Śrīla Rūpa Gosvāmī states:
+
+> aṅgānāṁ pañcakasyāsya
+> pūrva-vilikhitasya ca
+> nikhila-śraiṣṭhya-bodhāya
+> punar apy atra śaṁsanam
+
+"The glorification of these five items [association with devotees, chanting the holy name and so on] is to make known the complete superiority of these five practices of devotional service.
+
+The sixty-four items of devotional service include all the activities of the body, mind and senses. Thus the sixty-four items engage one in devotional service in all respects.

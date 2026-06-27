@@ -1,0 +1,12 @@
+### Bg 2.18
+
+> antavanta ime dehā
+> nityasyoktāḥ śarīriṇaḥ
+> anāśino 'prameyasya
+> tasmād yudhyasva bhārata
+
+*antavantaḥ*—perishable; *ime*—all these; *dehāḥ*—material bodies; *nityasya*—eternal in existence; *uktāḥ*—it is so said; *sarīriṇaḥ*—the embodied souls; *anāśinaḥ*—never to be destroyed; *aprameyasya*—immeasurable; *tasmāt*—therefore; *yudhyasva*—fight; *bhārata*—O descendant of Bharata.
+
+**Only the material body of the indestructible, immeasurable and eternal living entity is subject to destruction; therefore, fight, O descendant of Bharata.**
+
+The material body is perishable by nature. It may perish immediately, or it may do so after a hundred years. It is a question of time only. There is no chance of maintaining it indefinitely. But the spirit soul is so minute that it cannot even be seen by an enemy, to say nothing of being killed. As mentioned in the previous verse, it is so small that no one can have any idea how to measure its dimension. So from both viewpoints there is no cause of lamentation because the living entity can neither be killed as he is, nor can the material body, which cannot be saved for any length of time, be permanently protected. The minute particle of the whole spirit acquires this material body according to his work, and therefore observance of religious principles should be utilized. In the *Vedānta-sūtras* the living entity is qualified as light because he is part and parcel of the supreme light. As sunlight maintains the entire universe, so the light of the soul maintains this material body. As soon as the spirit soul is out of this material body, the body begins to decompose; therefore it is the spirit soul which maintains this body. The body itself is unimportant. Arjuna was advised to fight and sacrifice the material body for the cause of religion.

@@ -1,0 +1,12 @@
+### SB 3.7.6
+
+> bhagavān eka evaiṣa
+> sarva-kṣetreṣv avasthitaḥ
+> amuṣya durbhagatvaṁ vā
+> kleśo vā karmabhiḥ kutaḥ
+
+*bhagavān*—the Supreme Personality of Godhead; *ekaḥ*—alone; *eva eṣaḥ*—all these; *sarva*—all; *kṣetreṣu*—in the living entities; *avasthitaḥ*—situated; *amuṣya*—of the living entities; *durbhagatvam*—misfortune; *vā*—either; *kleśaḥ*—miseries; *vā*—or; *karmabhiḥ*—by activities; *kutaḥ*—what for.
+
+**The Lord, as the Supersoul, is situated in every living being's heart. Why then do the living entities' activities result in misfortune and misery?**
+
+The next question put forward by Vidura to Maitreya is, "Why are the living entities subjected to so many miseries and misfortunes in spite of the Lord's presence in their hearts as the Supersoul?" The body is considered a fruitful tree, and the living entity and the Lord as Supersoul are like two birds seated in that tree. The individual soul is eating the fruit of the tree, but the Supersoul, the Lord, is witnessing the activities of the other bird. A citizen of the state may be in miseries for want of sufficient supervision by the state authority, but how can it be possible that a citizen suffers from other citizens while the chief of the state is personally present? From another point of view, it is understood that the *jīva* living entity is qualitatively one with the Lord, and thus his knowledge in the pure state of life cannot be covered by nescience, especially in the presence of the Supreme Lord. How then does the living entity become subjected to ignorance and covered by the influence of *māyā*? The Lord is the father and protector of every living entity, and He is known as the *bhūta-bhṛt,* or the maintainer of the living entities. Why then should the living entity he subjected to so many sufferings and misfortunes? It should not be so, but actually we see that it happens everywhere. This question is therefore put forward by Vidura for solution.

@@ -1,0 +1,12 @@
+### SB 3.29.36
+
+> etad bhagavato rūpaṁ
+> brahmaṇaḥ paramātmanaḥ
+> paraṁ pradhānaṁ puruṣaṁ
+> daivaṁ karma-viceṣṭitam
+
+*etat*—this; *bhagavataḥ*—of the Supreme Personality of Godhead; *rūpam*—form; *brahmaṇaḥ*—of Brahman; *parama-ātmanaḥ*—of Paramātmā; *param*—transcendental; *pradhānam*—chief; *puruṣam*—personality; *daivam*—spiritual; *karma-viceṣṭitam*—whose activities.
+
+**This puruṣa whom the individual soul must approach is the eternal form of the Supreme Personality of Godhead, who is known as Brahman and Paramātmā. He is the transcendental chief personality, and His activities are all spiritual.**
+
+In order to distinguish the personality whom the individual soul must approach, it is described herein that this *puruṣa,* the Supreme Personality of Godhead, is the chief amongst all living entities and is the ultimate form of the impersonal Brahman effulgence and Paramātmā manifestation. Since He is the origin of the Brahman effulgence and Paramātmā manifestation, He is described herewith as the chief personality. It is confirmed in the *Kaṭha Upaniṣad, nityo nityānām:* there are many eternal living entities, but He is the chief maintainer. This is confirmed in *Bhagavad-gītā* also, where Lord Kṛṣṇa says, *ahaṁ sarvasya prabhavaḥ:* [[bg/10/8|[Bg. 10.8] ]] "I am the origin of everything, including the Brahman effulgence and Paramātmā manifestation." His activities are transcendental, as confirmed in *Bhagavad-gītā. Janma karma ca me divyam*/ [[bg/4/9|[Bg. 4.9] ]] the activities and the appearance and disappearance of the Supreme Personality of Godhead are transcendental; they are not to be considered material. Anyone who knows this fact—that the appearance, disappearance and activities of the Lord are beyond material activities or material conception—is liberated. *Yo vetti tattvataḥ/ tyaktvā dehaṁ punar janma*/ [[bg/4/9|[Bg. 4.9] ]] such a person, after quitting his body, does not come back again to this material world, but goes to the Supreme Person. It is confirmed here, *puruṣaḥ puruṣaṁ vrajet:* the living entity goes to the Supreme Personality simply by understanding His transcendental nature and activities.

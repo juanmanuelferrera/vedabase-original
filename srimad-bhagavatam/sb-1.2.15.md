@@ -1,0 +1,16 @@
+### SB 1.2.15
+
+> yad-anudhyāsinā yuktāḥ
+> karma-granthi-nibandhanam
+> chindanti kovidās tasya
+> ko na kuryāt kathā-ratim
+
+*yat*—which; *anudhyā*—remembrance; *asinā*—sword; *yuktāḥ*—being equipped with; *karma*—reactionary work; *granthi*—knot; *nibandhanam*—interknit; *chindanti*—cut; *kovidāḥ*—intelligent; *tasya*—His; *kaḥ*—who; *na*—not; *kuryāt*—shall do; *kathā*—messages; *ratim*—attention.
+
+**With sword in hand, intelligent men cut through the labyrinthine knots of reactionary work [karma] by remembering the Lord. Therefore who will not pay attention to His message?**
+
+The spiritual spark contacted with material elements creates a knot which must be cut if one wants to be liberated from the actions and reactions of fruitive work. Liberation means freedom from the cycle of reactionary work. This liberation automatically follows for one who constantly remembers the transcendental pastimes of the Personality of Godhead. This is because all activities of the Supreme Lord (His līlā) are transcendental to the modes of the material energy. They are all-attractive spiritual activities, and therefore constant association with the spiritual activities of the Supreme Lord gradually spiritualizes the conditioned soul and ultimately severs the knot of material bondage.
+
+Liberation from material bondage is, therefore, a by-product of devotional service. Attainment of spiritual knowledge is not sufficient to insure liberation. Such knowledge must be overcoated with devotional service so that ultimately the devotional service alone predominates. Then liberation is made possible. Even the reactionary work of the fruitive workers can lead one to liberation when it is overcoated with devotional service. Karma overcoated with devotional service is called karma-yoga. Similarly, empirical knowledge overcoated with devotional service is called jñāna-yoga. But pure bhakti-yoga is independent of such karma and jñāna because it alone can not only endow one with liberation from the conditional life but can also award one with the transcendental loving service of the Lord.
+
+Therefore, any sensible man who is above the average man with a poor fund of knowledge must constantly remember the Personality of Godhead by hearing- about Him, by glorifying Him, by remembering Him and by worshiping Him always, without cessation. That is the perfect way of devotional service. The Gosvāmīs of Vṛndāvana who were authorized by Śrī Caitanya Mahāprabhu to preach the bhakti cult, rigidly followed this rule and made immense literatures of transcendental science for our benefit. They have chalked out ways for all classes of men in terms of the different castes and orders of life in pursuance of the teachings of Śrīmad-Bhāgavatam and similar other authoritative scriptures.

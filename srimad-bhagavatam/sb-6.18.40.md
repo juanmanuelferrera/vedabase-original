@@ -1,0 +1,12 @@
+### SB 6.18.40
+
+> ko 'tikramo 'nuvartantyāḥ
+> svabhāvam iha yoṣitaḥ
+> dhiṅ māṁ batābudhaṁ svārthe
+> yad ahaṁ tv ajitendriyaḥ
+
+*kaḥ*—what; *atikramaḥ*—offense; *anuvartantyāḥ*—following; *sva-bhāvam*—her nature; *iha*—here; *yoṣitaḥ*—of the woman; *dhik*—condemnation; *mām*—unto me; *bata*—alas; *abudham*—not conversant; *sva-arthe*—in what is good for me; *yat*—because; *aham*—I; *tu*—indeed; *ajita-indriyaḥ*—unable to control my senses.
+
+**This woman, my wife, has adopted a means that follows her nature, and therefore she is not to be blamed. But I am a man. Therefore, all condemnation upon me! I am not at all conversant with what is good for me, since I could not control my senses.**
+
+The natural instinct of a woman is to enjoy the material world. She induces her husband to enjoy this world by satisfying his tongue, belly and genitals, which are called *jihvā, udara* and *upastha.* A woman is expert in cooking palatable dishes so that she can easily satisfy her husband in eating. When one eats nicely, his belly is satisfied, and as soon as the belly is satisfied the genitals become strong. Especially when a man is accustomed to eating meat and drinking wine and similar passionate things, he certainly becomes sexually inclined. It should be understood that sexual inclinations are meant not for spiritual progress but for gliding down to hell. Thus Kaśyapa Muni considered his situation and lamented. In other words, to be a householder is very risky unless one is trained and the wife is a follower of her husband. A husband should be trained at the very beginning of his life. *Kaumāra ācaret prājño dharmān bhāgavatān iha* [[sb/7/6/1|(SB 7.6.1)]]. During the time of *brahmacarya,* or student life, a *brahmacārī* should be taught to be expert in *bhāgavata-dharma,* devotional service. Then when he marries, if his wife is faithful to her husband and follows him in such life, the relationship between husband and wife is very desirable. However, a relationship between husband and wife without spiritual consciousness but strictly for sense gratification is not at all good. It is said in *Śrīmad-Bhāgavatam* (12.2.3) that especially in this age, Kali-yuga, *dām-patye 'bhirucir hetuḥ:* the relationship between husband and wife will be based on sexual power. Therefore householder life in this Kali-yuga is extremely dangerous unless both the wife and husband take to Kṛṣṇa consciousness.

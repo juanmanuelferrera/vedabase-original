@@ -1,0 +1,14 @@
+### SB 3.31.29
+
+> saha dehena mānena
+> vardhamānena manyunā
+> karoti vigrahaṁ kāmī
+> kāmiṣv antāya cātmanaḥ
+
+*saha*—with; *dehena*—the body; *mānena*—with false prestige; *vardhamānena*—increasing; *manyunā*—on account of anger; *karoti*—he creates; *vigraham*—enmity; *kāmī*—the lusty person; *kāmiṣu*—towards other lusty people; *antāya*—for destruction; *ca*—and; *ātmanaḥ*—of his soul.
+
+**With the growth of the body, the living entity, in order to vanquish his soul, increases his false prestige and anger and thereby creates enmity towards similarly lusty people.**
+
+In *Bhagavad-gītā,* Third Chapter, thirty-sixth verse, Arjuna inquired from Kṛṣṇa about the cause of a living being's lust. It is said that a living entity is eternal and, as such, qualitatively one with the Supreme Lord. Then what is the reason he falls prey to the material and commits so many sinful activities by the influence of the material energy? In reply to this question, Lord Kṛṣṇa said that it is lust which causes a living entity to glide down from his exalted position to the abominable condition of material existence. This lust circumstantially changes in anger. Both lust and anger stand on the platform of the mode of passion. Lust is actually the product of the mode of passion, and in the absence of satisfaction of lust, the same desire transforms in anger on the platform of ignorance. When ignorance covers the soul, it is the source of his degradation to the most abominable condition of hellish life.
+
+To raise oneself from hellish life to the highest position of spiritual understanding is to transform this lust in love of Kṛṣṇa. Śrī Narottama dāsa Ṭhākura, a great *ācārya* of the Vaiṣṇava *sampradāya,* said, *kāma kṛṣṇa-karmārpaṇe:* due to our lust, we want many things for our sense gratification, but the same lust can be transformed in a purified way so that *we want everything for the satisfaction of the Supreme Personality of Godhead.* Anger also can be utilized towards a person who is atheistic or who is envious of the Personality of Godhead. As we have fallen in this material existence because of our lust and anger, the same two qualities can be utilized for the purpose of advancing in Kṛṣṇa consciousness, and one can elevate himself again to his former pure, spiritual position. Śrīla Rūpa Gosvāmī has therefore recommended that because in material existence we have so many objects of sense gratification, which we need for the maintenance of the body, we should use all of them without attachment, for the purpose of satisfying the senses of Kṛṣṇa; that is actual renunciation.

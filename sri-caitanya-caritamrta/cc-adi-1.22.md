@@ -1,0 +1,8 @@
+### CC Adi 1.22
+
+> se maṅgalācaraṇa haya tri-vidha prakāra
+> vastu-nirdeśa, āśīrvāda, namaskāra
+
+*se*—that; *maṅgala-ācaraṇa*—auspicious invocation; *haya*—is; *tri-vidha*—three kinds; *prakāra*—processes; *vastu-nirdeśa*—defining the object; *āśīḥ-vāda*—benedictions; *namaḥ-kāra*—obeisances.
+
+**The invocation involves three processes: defining the objective, offering benedictions and offering obeisances.**

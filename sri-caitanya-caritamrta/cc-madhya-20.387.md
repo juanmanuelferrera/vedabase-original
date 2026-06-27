@@ -1,0 +1,8 @@
+### CC Madhya 20.387
+
+> jyotiścakre sūrya yena phire rātri-dine
+> sapta-dvīpāmbudhi laṅghi' phire krame krame
+
+*jyotiḥ-cakre*—in the zodiac; *sūrya*—of the sun; *yena*—as; *phire*—moves; *rātri-dine*—the day and night; *sapta-dvīpa-ambudhi*—the oceans of the islands; *laṅghi'*—crossing; *phire*—rotates; *krame krame*—one after another.
+
+**"The sun moves across the zodiac day and night and crosses the oceans between the seven islands one after the other.**

@@ -1,0 +1,17 @@
+### CC Adi 9.37
+
+> ekalā mālākāra āmi kata phala khāba
+> nā diyā vā ei phala āra ki kariba
+
+*ekalā*—alone; *mālā-kāra*—gardener; *āmi*—I; *kata*—how many; *phala*—fruits; *khāba*—eat; *nā*—without; *diyā*—giving; *vā*—or; *ei*—this; *phala*—fruits; *āra*—else; *ki*—what; *kariba*—shall I do.
+
+**"I am the only gardener. If I do not distribute these fruits, what shall I do with them? How many fruits can I alone eat?**
+
+Lord Caitanya Mahāprabhu produced so many fruits of devotional service that they must be distributed all over the world; otherwise, how could He alone relish and taste each and every fruit? The original reason that Lord Śrī Kṛṣṇa descended as Śrī Caitanya Mahāprabhu was to understand Śrīmatī Rādhārāṇī's love for Kṛṣṇa and to taste that love. The fruits of the tree of devotional service were innumerable, and therefore He wanted to distribute them unrestrictedly to everyone. Śrīla Rūpa Gosvāmī therefore writes:
+
+> anarpita-carīṁ cirāt karuṇayāvatīrṇaḥ kalau
+> samarpayitum unnatojjvala-rasāṁ sva-bhakti-śriyam
+> hariḥ puraṭa-sundara-dyuti-kadamba-sandīpitaḥ
+> sadā hṛdaya-kandare sphuratu vaḥ śacī-nandanaḥ
+
+There were many precious incarnations of the Supreme Personality of Godhead, but none were so generous, kind and magnanimous as Śrī Caitanya Mahāprabhu, for He distributed the most confidential aspect of devotional service, namely, the conjugal love of Rādhā and Kṛṣṇa. Therefore Śrī Rūpa Gosvāmī Prabhupāda desires that Śrī Caitanya Mahāprabhu live perpetually in the hearts of all devotees, for thus they can understand and relish the loving affairs of Śrīmatī Rādhārāṇī and Kṛṣṇa.

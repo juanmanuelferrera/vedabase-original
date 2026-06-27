@@ -1,0 +1,12 @@
+### SB 1.17.27
+
+> śocaty aśru-kalā sādhvī
+> durbhagevojjhitā satī
+> abrahmaṇyā nṛpa-vyājāḥ
+> śūdrā bhokṣyanti mām iti
+
+*śocati*—lamenting; *aśru-kalā*—with tears in the eyes; *sādhvī*—the chaste; *durbhagā*—as if the most unfortunate; *iva*—like; *ujjhitā*—forlorn; *satī*—being so done; *abrahmaṇyāḥ*—devoid of brahminical culture; *nṛpa-vyājāḥ*—posed as the ruler; *śūdrāḥ*—lower class; *bhokṣyanti*—would enjoy; *mām*—me; *iti*—thus.
+
+**Now she, the chaste one, being unfortunately forsaken, as it were, by the Personality of Godhead, laments her future with tears in her eyes, for now she is being ruled and enjoyed by lower class men who pose as rulers.**
+
+The kṣatriya, or the man who is qualified to protect the sufferers, is meant to rule the state. Untrained lower class men, or men without ambition to protect the sufferers, cannot be placed on the seat of an administrator. Unfortunately, in the age of Kali the lower class men, without training, occupy the post of a ruler by strength of popular votes, and instead of protecting the sufferers, such men create a situation quite intolerable for everyone. Such rulers illegally gratify themselves at the cost of all comforts of the citizens, and thus the chaste mother earth cries to see the pitiable condition of her sons, both men and animals. That is the future of the world in the age of Kali when irreligiosity prevails most prominently. And in the absence of a suitable king to curb irreligious tendencies, educating the people systematically in the teaching of Śrīmad-Bhāgavatam will clear up the hazy atmosphere of corruption, bribery, blackmailing, etc.

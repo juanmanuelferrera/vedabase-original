@@ -1,0 +1,19 @@
+### SB 9.5.24
+
+> gate 'tha durvāsasi so 'mbarīṣo
+> dvijopayogātipavitram āharat
+> ṛṣer vimokṣaṁ vyasanaṁ ca vīkṣya
+> mene sva-vīryaṁ ca parānubhāvam
+
+*gate*—on his return; *atha*—then; *durvāsasi*—the great mystic *yogī* Durvāsā; *saḥ*—he, the King; *ambarīṣaḥ*—Mahārāja Ambarīṣa; *dvija-upayoga*—most suitable for a pure *brāhmaṇa*; *ati-pavitram*—very pure food; *āharat*—gave him to eat and he also ate; *ṛṣeḥ*—of the great sage; *vimokṣam*—release; *vyasanam*—from the great danger of being burned by the Sudarśana *cakra*; *ca*—and; *vīkṣya*—seeing; *mene*—considered; *sva-vīryam*—about his own power; *ca*—also; *para-anubhāvam*—because of his pure devotion to the Supreme Lord.
+
+**After one year, when Durvāsā Muni had returned, King Ambarīṣa sumptuously fed him all varieties of pure food, and then he himself also ate. When the King saw that the brāhmaṇa Durvāsā had been released from the great danger of being burned, he could understand that by the grace of the Lord he himself was also powerful, but he did not take any credit, for everything had been done by the Lord.**
+
+A devotee like Mahārāja Ambarīṣa is certainly always busy in many activities. Of course, this material world is full of dangers that one has to meet, but a devotee, because of his full dependence on the Supreme Personality of Godhead, is never disturbed. The vivid example is Mahārāja Ambarīṣa. He was the emperor of the entire world and had many duties to perform, and in the course of these duties there were many disturbances created by persons like Durvāsā Muni, but the King tolerated everything, patiently depending fully on the mercy of the Lord. The Lord, however, is situated in everyone's heart (*sarvasya cāhaṁ hṛdi sanniviṣṭaḥ* [[bg/15/15|[Bg. 15.15] ]]), and He manages things as He desires. Thus although Mahārāja Ambarīṣa was faced with many disturbances, the Lord, being merciful to him, managed things so nicely that in the end Durvāsā Muni and Mahārāja Ambarīṣa became great friends and parted cordially on the basis of *bhakti-yoga.* After all, Durvāsā Muni was convinced of the power of *bhakti-yoga,* although he himself was a great mystic *yogī.* Therefore, as stated by Lord Kṛṣṇa in *Bhagavad-gītā* [[bg/6/47|(Bg. 6.47)]]:
+
+> yoginām api sarveṣāṁ
+> mad-gatenāntarātmanā
+> śraddhāvān bhajate yo māṁ
+> sa me yuktatamo mataḥ
+
+"Of all *yogīs,* he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in *yoga* and is the highest of all." Thus it is a fact that a devotee is the topmost *yogī,* as proved in the dealings of Mahārāja Ambarīṣa with Durvāsā Muni.

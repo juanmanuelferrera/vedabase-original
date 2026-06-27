@@ -1,0 +1,18 @@
+### SB 2.5.39
+
+> grīvāyāṁ janaloko 'sya
+> tapolokaḥ stana-dvayāt
+> mūrdhabhiḥ satyalokas tu
+> brahmalokaḥ sanātanaḥ
+
+*grīvāyām*—up to the neck; *janalokaḥ*—the Janaloka planetary system; *asya*—of Him; *tapolokaḥ*—the Tapoloka planetary system; *stana-dvayāt*—beginning from the breast; *mūrdhabhiḥ*—by the head; *satyalokaḥ*—the Satyaloka planetary system; *tu*—but; *brahmalokaḥ*—the spiritual planets; *sanātanaḥ*—eternal.
+
+**From the forefront of the chest up to the neck of the universal form of the Lord are situated the planetary systems named Janaloka and Tapoloka, whereas Satyaloka, the topmost planetary system, is situated on the head of the form. The spiritual planets, however, are eternal.**
+
+Many times in these pages we have discussed the spiritual planets situated beyond the material sky, and the description is corroborated in this verse. The word sanātana is significant. This very idea of eternity is expressed in the Bhagavad-gītā (Bg. 8.20), where it is said that beyond the material creation there is the spiritual sky, where everything is eternal. Sometimes Satyaloka, the planet in which Brahmā resides, is also called Brahmaloka. But the Brahmaloka mentioned here is not the same as the Satyaloka planetary system. This Brahmaloka is eternal, whereas the Satyaloka planetary system is not eternal. And to distinguish between the two, the adjective sanātana has been used in this case. According to Śrīla Jīva Gosvāmī, this Brahmaloka is the loka or abode of Brahma, or the Supreme Lord. In the spiritual sky all the planets are as good as the Lord Himself. The Lord is all spirit, and His name, fame, glories, qualities, pastimes, etc., are all nondifferent from Him because He is absolute. As such, the planets in the kingdom of God are also nondifferent from Him. In those planets there is no difference between the body and the soul, nor is there any influence of time as we experience it in the material world. And in addition to there being no influence of time, the planets in the Brahmaloka, due to their being spiritual, are never annihilated. All variegatedness in the spiritual planets is also one with the Lord, and therefore the Vedic aphorism ekam evādvitīyam is fully realized in that sanātana atmosphere of spiritual variegatedness. This material world is only a shadow phantasmagoria of the spiritual kingdom of the Lord, and because it is a shadow it is never eternal; the variegatedness in the material world of duality (spirit and matter) cannot be compared with that of the spiritual world. Because of a poor fund of knowledge, less intelligent persons sometimes mistake the conditions of the shadow world to be equivalent to those of the spiritual world, and thus the Lord and His pastimes in the material world are mistaken as one with the conditioned souls and their activities. The Lord condemns such less intelligent persons in the Bhagavad-gītā (9.11):
+
+avajānanti māṁ mūḍhā mānuṣīṁ tanum āśritam
+
+paraṁ bhāvam ajānanto mama bhūta-maheśvaram
+
+Whenever the Lord incarnates, He does so in His full internal potency (ātma-māyā), and less intelligent persons mistake Him to be one of the material creations. Śrīla Śrīdhara Svāmī, therefore, rightly commenting on this verse, says that the Brahmaloka mentioned here is Vaikuṇṭha, the kingdom of God, which is sanātana or eternal and is therefore not exactly like the material creations described above. The virāṭa universal form of the Lord is an imagination for the material world. It has nothing to do with the spiritual world, or the kingdom of God.

@@ -1,0 +1,14 @@
+### CC Adi 5.20
+
+> cintāmaṇi-bhūmi, kalpa-vṛkṣa-maya vana
+> carma-cakṣe dekhe tāre prapañcera sama
+
+*cintāmaṇi-bhūmi*—the land of touchstone; *kalpa-vṛkṣa-maya*—full of desire trees; *vana*—forests; *carma-cakṣe*—the material eyes; *dekhe*—see; *tāre*—it; *prapañcera sama*—equal to the material creation.
+
+**The land there is touchstone [cintāmaṇi], and the forests abound with desire trees. Material eyes see it as an ordinary place.**
+
+By the grace of the Lord His *dhāmas* and He Himself can all be present simultaneously, without losing their original importance. Only when one fully develops in affection and love of Godhead can one see those *dhāmas* in their original appearance.
+
+Śrīla Narottama dāsa Ṭhākura, a great *ācārya* in the preceptorial line of Lord Śrī Caitanya Mahāprabhu, has said for our benefit that one can perfectly see the *dhāmas* only when one completely gives up the mentality of lording it over material nature. One's spiritual vision develops proportionately to one's giving up the debased mentality of unnecessarily enjoying matter. A diseased person who has become diseased because of a certain bad habit must be ready to follow the advice of the physician, and as a natural sequence he must attempt to give up the cause of the disease. The patient cannot indulge in the bad habit and at the same time expect to be cured by the physician. Modern material civilization, however, is maintaining a diseased atmosphere. The living being is a spiritual spark, as spiritual as the Lord Himself. The only difference is that the Lord is great and the living being is small. Qualitatively they are one, but quantitatively they are different. Therefore, since the living being is spiritual in constitution, he can be happy only in the spiritual sky, where there are unlimited spiritual spheres called Vaikuṇṭhas. A spiritual being conditioned by a material body must therefore try to get rid of his disease instead of developing the cause of the disease.
+
+Foolish persons engrossed in their material assets are unnecessarily proud of being leaders of the people, but they ignore the spiritual value of man. Such illusioned leaders make plans covering any number of years, but they can hardly make humanity happy in a state conditioned by the threefold miseries inflicted by material nature. One cannot control the laws of nature by any amount of struggling. One must at last be subject to death, nature's ultimate law. Death, birth, old age and illness are symptoms of the diseased condition of the living being. The highest aim of human life should therefore be to get free from these miseries and go back home, back to Godhead.

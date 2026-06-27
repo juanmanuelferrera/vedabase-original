@@ -1,0 +1,33 @@
+### CC Madhya 6.242
+
+> harer nāma harer nāma
+> harer nāmaiva kevalam
+> kalau nāsty eva nāsty eva
+> nāsty eva gatir anyathā
+
+*hareḥ nāma*—the holy name of the Lord Hari; *hareḥ nāma*—the holy name of the Lord Hari; *hareḥ nāma*—the holy name of the Lord; *eva*—certainly; *kevalam*—only; *kalau*—in this Age of Kali; *na asti*—there is not; *eva*—certainly; *na asti*—there is not; *eva*—certainly; *na asti*—there is not; *eva*—certainly; *gatiḥ*—means; *anyathā*—other.
+
+**“ 'In this age of quarrel and hypocrisy, the only means of deliverence is the chanting of the holy names of the Lord. There is no other way. There is no other way. There is no other way.' "**
+
+Because the people of this age are so fallen, they can simply chant the Hare Kṛṣṇa *mahā-mantra.* In this way they can rid themselves of the bodily conception of life and become eligible to engage in the Lord's devotional service. One cannot engage in the devotional service of the Lord without being purified of all contamination. This is confirmed in the *Bhagavad-gītā* [[bg/7/28|(Bg. 7.28)]]:
+
+> yeṣāṁ tv anta-gataṁ pāpaṁ
+> janānāṁ puṇya-karmaṇām
+> te dvandva-moha-nirmuktā
+> bhajante māṁ dṛḍha-vratāḥ
+
+"Persons who have acted piously in previous lives and in this life, whose sinful actions are completely eradicated are freed from the duality of delusion engage themselves in My service with determination." Sometimes people are surprised to see young men and women take so seriously to the Kṛṣṇa consciousness movement. By giving up sinful activity-illicit sex, meat-eating, intoxication and gambling-and strictly following the injunctions given by the spiritual master, they have become purified of all contamination. They can therefore fully engage in the devotional service of the Lord.
+
+In this Age of Kali, *hari-kīrtana* is very, very important. The importance of chanting the holy name of the Lord is stated in the following verses from *Śrīmad-Bhāgavatam* (12.3.51-52):
+
+> kaler doṣa-nidhe rājann
+> asti hy eko mahān guṇaḥ
+> kīrtanād eva kṛṣṇasya
+> mukta-saṅgaḥ paraṁ vrajet
+
+> kṛte yad dhyāyato viṣṇuṁ
+> tretāyāṁ yajato makhaiḥ
+> dvāpare paricaryāyāṁ
+> kalau tad dhari-kīrtanāt
+
+"The most important factor in this Age of Kali, which is an ocean of faults, is that one can be free from all contamination and become eligible to enter the kingdom of God simply by chanting the Hare Kṛṣṇa *mantra.* The self-realization that was achieved in the Satya millennium by meditation, in the Tretā millennium by the performance of different sacrifices, and in the Dvāpara millennium by worship of Lord Kṛṣṇa can be achieved in the Age of Kali simply by chanting the holy names, Hare Kṛṣṇa." ()

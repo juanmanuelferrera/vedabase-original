@@ -1,0 +1,23 @@
+### CC Adi 17.44
+
+> hāḍike āniyā saba dūra karāila
+> jala-gomaya diyā sei sthāna lepāila
+
+*hāḍike*—a sweeper; *āniyā*—calling; *saba*—all; *dūra karāila*—caused to be thrown far; *jala*—water; *gomaya*—cow dung; *diyā*—mixing; *sei*—that; *sthāna*—place; *lepāila*—caused to be smeared over.
+
+**They called for a sweeper [hāḍi], who threw all the items of worship far away and cleansed the place by mopping it with a mixture of water and cow dung.**
+
+The men in Vedic society who engage in public sanitary activities like picking up stool and sweeping the street are called *hāḍis.* Sometimes they are untouchable, especially when engaged in their profession, yet such *hāḍis* also have the right to become devotees. This is established by *Śrī Bhagavad-gītā* (9.32), where the Lord declares:
+
+> māṁ hi pārtha vyapāśritya
+> ye 'pi syuḥ pāpa-yonayaḥ
+> striyo vaiśyās tathā śūdrās
+> te 'pi yānti parāṁ gatim
+
+"O son of Pṛthā, those who take shelter in Me, though they be of lower birth-women, *vaiśyas* [ merchants], as well as *śūdras* [workers]—can approach the supreme destination."
+
+There are many untouchables of the lower caste in India, but according to Vaiṣṇava principles everyone is welcome to accept this Kṛṣṇa consciousness movement on the spiritual platform of life and thus be freed from trouble. Equality or fraternity on the material platform is impossible.
+
+When Lord Caitanya declares, *tṛṇād api su-nīcena taror iva sahiṣṇunā,* He indicates that one must be above the material conception of life. When one thoroughly understands that he is not the material body but a spiritual soul, he is even humbler than a man of the lower castes, for he is spiritually elevated. Such humility, in which one thinks himself lower than the grass, is called *su-nīcatva,* and being more tolerant than a tree is called *sahiṣṇutva,* forbearance. Being situated in devotional service, not caring for the material conception of life, is called *amānitva,* indifference to material respect; yet a devotee thus situated is called *māna-da,* for he is prepared to give honor to others without hesitation.
+
+Mahatma Gandhi started the *hari-jana* movement to purify the untouchables, but he was a failure because he thought that one could become a *hari-jana,* a personal associate of the Lord, through some kind of material adjustment. That is not possible. Unless one fully realizes that he is not the body but a spiritual soul, there is no question of his becoming a *hari-jana.* Those who do not follow in the footsteps of Lord Caitanya Mahāprabhu and His disciplic succession cannot distinguish between matter and spirit, and therefore all their ideas are but a mixed-up hodgepodge of problems. They are virtually lost in the bewildering network of Māyādevī.

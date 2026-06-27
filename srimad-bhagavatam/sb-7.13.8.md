@@ -1,0 +1,12 @@
+### SB 7.13.8
+
+> na śiṣyān anubadhnīta
+> granthān naivābhyased bahūn
+> na vyākhyām upayuñjīta
+> nārambhān ārabhet kvacit
+
+*na*—not; *śiṣyān*—disciples; *anubadhnīta*—one should induce for material benefit; *granthān*—unnecessary literatures; *na*—not; *eva*—certainly; *abhyaset*—should try to understand or cultivate; *bahūn*—many; *na*—nor; *vyākhyām*—discourses; *upayuñjīta*—should make as a means of livelihood; *na*—nor; *ārambhān*—unnecessary opulences; *ārabhet*—should attempt to increase; *kvacit*—at any time.
+
+**A sannyāsī must not present allurements of material benefits to gather many disciples, nor should he unnecessarily read many books or give discourses as a means of livelihood. He must never attempt to increase material opulences unnecessarily.**
+
+So-called *svāmīs* and *yogīs* generally make disciples by alluring them with material benefits. There are many so-called *gurus* who attract disciples by promising to cure their diseases or increase their material opulence by manufacturing gold. These are lucrative allurements for unintelligent men. A *sannyāsī* is prohibited from making disciples through such material allurements. *Sannyāsīs* sometimes indulge in material opulence by unnecessarily constructing many temples and monasteries, but actually such endeavors should be avoided. Temples and monasteries should be constructed for the preaching of spiritual consciousness or Kṛṣṇa consciousness, not to provide free hotels for persons who are useful for neither material nor spiritual purposes. Temples and monasteries should be strictly off limits to worthless clubs of crazy men. In the Kṛṣṇa consciousness movement we welcome everyone who agrees at least to follow the movement's regulative principles—no illicit sex, no intoxication, no meat-eating and no gambling. In the temples and monasteries, gatherings of unnecessary, rejected, lazy fellows should be strictly disallowed. The temples and monasteries should be used exclusively by devotees who are serious about spiritual advancement in Kṛṣṇa consciousness. Śrīla Viśvanātha Cakravartī Ṭhākura explains the word *ārambhān* as meaning *maṭhādi-vyāpārān,* which means "attempts to construct temples and monasteries." The first business of the *sannyāsī* is to preach Kṛṣṇa consciousness, but if, by the grace of Kṛṣṇa, facilities are available, then he may construct temples and monasteries to give shelter to the serious students of Kṛṣṇa consciousness. Otherwise such temples and monasteries are not needed.

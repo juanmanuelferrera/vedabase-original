@@ -1,0 +1,10 @@
+### CC Adi 9.38
+
+> ātma-icchāmṛte vṛkṣa siñci nirantara
+> tāhāte asaṅkhya phala vṛkṣera upara
+
+*ātma*—self; *icchā-amṛte*—by the nectar of the will; *vṛkṣa*—the tree; *siñci*—sprinkle; *nirantara*—constantly; *tāhāte*—there; *asaṅkhya*—unlimited; *phala*—fruits; *vṛkṣera*—on the tree; *upara*—upper.
+
+**"By the transcendental desire of the Supreme Personality of Godhead, water has been sprinkled all over the tree, and thus there are innumerable fruits of love of Godhead.**
+
+God is unlimited, and His desires are also unlimited. This example of unlimited fruits is factually appropriate even within the material context, for with the good will of the Supreme Personality of Godhead there can be enough fruits, grains and other foodstuffs produced so that all the people in the world could not finish them, even if they ate ten times their capacity. In this material world there is actually no scarcity of anything but Kṛṣṇa consciousness. If people become Kṛṣṇa conscious, by the transcendental will of the Supreme Personality of Godhead there will be enough foodstuffs produced so that people will have no economic problems at all. One can very easily understand this fact. The production of fruits and flowers depends not upon our will but the supreme will of the Personality of Godhead. If He is pleased, He can supply enough fruits, flowers, etc., but if people are atheistic and godless, nature, by His will, restricts the supply of food. For example, in several provinces in India, especially Maharashtra, Uttar Pradesh and other adjoining states, there is sometimes a great scarcity of foodstuffs due to lack of rainfall. So-called scientists and economists cannot do anything about this. Therefore, to solve all problems, one must seek the good will of the Supreme Personality of Godhead by becoming Kṛṣṇa conscious and worshiping Him regularly in devotional service.

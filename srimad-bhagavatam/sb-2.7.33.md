@@ -1,0 +1,14 @@
+### SB 2.7.33
+
+> krīḍan vane niśi niśākara-raśmi-gauryāṁ
+> rāsonmukhaḥ kala-padāyata-mūrcchitena
+> uddīpita-smara-rujāṁ vraja-bhṛd-vadhūnāṁ
+> hartur hariṣyati śiro dhanadānugasya
+
+*krīḍan*—while engaged in His pastimes; *vane*—in the forest of Vṛndāvana; *niśi*—nocturnal; *niśākara*—the moon; *raśmi-gauryām*—white moonshine; *rāsa-unmukhaḥ*—desiring to dance with; *kala-padāyata*—accompanied by sweet songs; *mūrcchitena*—and melodious music; *uddīpita*—awakened; *smara-rujām*—sexual desires; *vraja-bhṛt*—the inhabitants of Vrajabhūmi; *vadhūnām*—of the wives; *hartuḥ*—of the kidnappers; *hariṣyati*—will vanquish; *śiraḥ*—the head; *dhanada-anugasya*—of the follower of the rich Kuvera.
+
+**When the Lord was engaged in His pastimes of the rāsa dance in the forest of Vṛndāvana, enlivening the sexual desires of the wives of the inhabitants of Vṛndāvana by sweet and melodious songs, a demon of the name Śaṅkhacūḍa, a rich follower of the treasurer of heaven [Kuvera], kidnapped the damsels, and the Lord severed his head from his trunk.**
+
+We should carefully note that the statements described herein are the statements of Brahmājī to Nārada, and He was speaking to Nārada of events that would happen in future during the advent of Lord Kṛṣṇa. The pastimes of the Lord are known to the experts who are able to see past, present and future, and Brahmājī, being one of them, foretold what would happen in the future. The killing of Śaṅkhacūḍa by the Lord is a more recent incident, after rāsa-līlā, and not exactly a simultaneous affair. In the previous verses we have seen also that the Lord's engagement in the forest fire affairs was described along with His pastimes of punishing the Kāliya snake, and similarly the pastimes of the rāsa dance and the killing of Śaṅkhacūḍa are also described herein. The adjustment is that all these incidences would take place in the future, after the time when it was being foretold by Brahmājī to Nārada. The demon Śaṅkhacūḍa was killed by the Lord during His pastimes at Horikā in the month of Phālgunī, and the same ceremony is still observed in India by the burning of the effigy of Śaṅkhacūḍa one day prior to the Lord's pastimes at Horikā generally known as Holi.
+
+Generally the future appearance and the activities of the Lord or His incarnations are foretold in the scriptures, and thus the pseudo-incarnations are unable to cheat persons who are in the knowledge of the events as they are described in the authoritative scriptures.

@@ -1,0 +1,20 @@
+### SB 4.24.40
+
+> artha-liṅgāya nabhase
+> namo 'ntar-bahir-ātmane
+> namaḥ puṇyāya lokāya
+> amuṣmai bhūri-varcase
+
+*artha*—meaning; *liṅgāya*—revealing; *nabhase*—unto the sky; *namaḥ*—offering obeisances; *antaḥ*—within; *bahiḥ*—and without; *ātmane*—unto the self; *namaḥ*—offering obeisances; *puṇyāya*—pious activities; *lokāya*—for creation; *amuṣmai*—beyond death; *bhūri-varcase*—the supreme effulgence.
+
+**My dear Lord, by expanding Your transcendental vibrations, You reveal the actual meaning of everything. You are the all-pervading sky within and without, and You are the ultimate goal of pious activities executed both within this material world and beyond it. I therefore offer my respectful obeisances again and again unto You.**
+
+Vedic evidence is called śabda-brahma. There are many things which are beyond the perception of our imperfect senses, yet the authoritative evidence of sound vibration is perfect. The Vedas are known as śabda-brahma because evidence taken from the Vedas constitutes the ultimate understanding. This is because śabda-brahma, or the Vedas, represents the Supreme Personality of Godhead. However, the real essence of śabda-brahma is the chanting of the Hare Kṛṣṇa mantra. By vibrating this transcendental sound, the meaning of everything both material and spiritual is revealed. This Hare Kṛṣṇa is nondifferent from the Personality of Godhead. The meaning of everything is received through the air through sound vibration. The vibration may be material or spiritual, but without sound vibration no one can understand the meaning of anything. In the Vedas it is said, antar bahiś ca tat sarvaṁ vyāpya nārāyaṇaḥ sthitaḥ: "Nārāyaṇa is all-pervading, and He exists both within and without." This is also confirmed in Bhagavad-gītā:
+
+yathā prakāśayaty ekaḥ kṛtsnaṁ lokam imaṁ raviḥ kṣetraṁ kṣetrī tathā kṛtsnaṁ prakāśayati bhārata
+
+"O son of Bharata, as the sun alone illuminates all this universe, so do the living entity and the Supersoul illuminate the entire body by consciousness." (Bg. 13.34)
+
+In other words, the consciousness of both the soul and Supersoul is all-pervading; the limited consciousness of the living entity is pervading the entire material body, and the supreme consciousness of the Lord is pervading the entire universe. Because the soul is present within the body, consciousness pervades the entire body; similarly, because the supreme soul, or Kṛṣṇa, is present within this universe, everything is working in order. Mayādhyakṣeṇa prakṛtiḥ sūyate sa-carācaram: "This material nature is working under My direction, O son of Kuntī, and it is producing all moving and unmoving beings." (Bg. 9.10)
+
+Lord Śiva is therefore praying to the Personality of Godhead to be kind to us so that simply by chanting the Hare Kṛṣṇa mantra we can understand everything in both the material and spiritual worlds. The word amuṣmai is significant in this regard because it indicates the best target one can aim for after attaining the higher planetary systems. Those who are engaged in fruitive activities (karmīs) attain the higher planetary systems as a result of their past activities, and the jñānīs, who seek unification or a monistic merging with the effulgence of the Supreme Lord, also attain their desired end, but in the ultimate issue, the devotees who desire to personally associate with the Lord are promoted to the Vaikuṇṭhalokas, or Goloka Vṛndāvana. The Lord is described in Bhagavad-gītā as pavitraṁ paramam (Bg. 10.12), the supremely pious one. This is also confirmed in this verse. Śukadeva Gosvāmī has stated that the cowherd boys who played with Lord Kṛṣṇa were not ordinary living entities. Only after accumulating many pious activities in various births does one get the opportunity to personally associate with the Supreme Personality of Godhead. Since only the pure can reach Him, He is the supreme pure.

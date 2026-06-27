@@ -1,0 +1,23 @@
+### SB 9.6.51
+
+> saṅgaṁ tyajeta mithuna-vratīnāṁ mumukṣuḥ
+> sarvātmanā na visṛjed bahir-indriyāṇi
+> ekaś caran rahasi cittam ananta īśe
+> yuñjīta tad-vratiṣu sādhuṣu cet prasaṅgaḥ
+
+*saṅgam*—association; *tyajeta*—must give up; *mithuna-vratīnām*—of a person engaged in sexual affairs, legal or illegal; *mumukṣuḥ*—persons who desire liberation; *sarva-ātmanā*—in all respects; *na*—do not; *visṛjet*—employ; *bahiḥ-indriyāṇi*—external senses; *ekaḥ*—alone; *caran*—moving; *rahasi*—in a secluded place; *cittam*—the heart; *anante īśe*—fixed at the lotus feet of the unlimited Supreme Personality of Godhead; *yuñjīta*—one can engage himself; *tat-vratiṣu*—with persons of the same category (desiring liberation from material bondage); *sādhuṣu*—such saintly persons; *cet*—if; *prasaṅgaḥ*—one wants association.
+
+**A person desiring liberation from material bondage must give up the association of persons interested in sex life and should not employ his senses externally [in seeing, hearing, talking, walking and so on]. One should always stay in a secluded place, completely fixing his mind at the lotus feet of the unlimited Personality of Godhead, and if one wants any association at all, he should associate with persons similarly engaged.**
+
+Saubhari Muni, giving conclusions derived from his practical experience, instructs us that persons interested in crossing to the other side of the material ocean must give up the association of persons interested in sex life and accumulating money. This is also advised by Śrī Caitanya Mahāprabhu:
+
+> niṣkiñcanasya bhagavad-bhajanonmukasya
+> pāraṁ paraṁ jigamiṣor bhava-sāgarasya
+> sandarśanaṁ viṣayiṇām atha yoṣitāṁ ca
+> hā hanta hanta viṣa-bhakṣaṇato 'py asādhu 
+> [[cc/madhya/11/8|[Cc. Madhya 11.8] ]]
+> (*Caitanya-candrodaya-nāṭaka* 8.27)
+
+"Alas, for a person seriously desiring to cross the material ocean and engage in the transcendental loving service of the Lord without material motives, seeing a materialist engaged in sense gratification and seeing a woman who is similarly interested is more abominable than drinking poison willingly."
+
+One who desires complete freedom from material bondage can engage himself in the transcendental loving service of the Lord. He must not associate with *viṣayī*—materialistic persons or those interested in sex life. Every materialist is interested in sex. Thus in plain language it is advised that an exalted saintly person avoid the association of those who are materially inclined. Śrīla Narottama dāsa Ṭhākura also recommends that one engage in the service of the *ācāryas,* and if one wants to live in association, he must live in the association of devotees (*tāṅdera caraṇa sevi bhakta-sane vāsa*). The Kṛṣṇa consciousness movement is creating many centers just to create devotees so that by associating with the members of such a center people will automatically become uninterested in material affairs. Although this is an ambitious proposal, this association is proving effective by the mercy of Śrī Caitanya Mahāprabhu. By gradually associating with the members of the Kṛṣṇa consciousness movement, simply by taking *prasāda* and taking part in chanting of the Hare Kṛṣṇa *mantra,* ordinary persons are being considerably elevated. Saubhari Muni regrets that he had bad association even in the deepest part of the water. Because of the bad association of the sexually engaged fish, he fell down. A secluded place is also not secure unless there is good association.

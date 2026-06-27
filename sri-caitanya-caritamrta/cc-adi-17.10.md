@@ -1,0 +1,19 @@
+### CC Adi 17.10
+
+> śacīke prema-dāna, tabe advaita-milana
+> advaita pāila viśvarūpa-daraśana
+
+*śacīke*—unto mother Śacīdevī; *prema-dāna*—giving love of Godhead; *tabe*—thereafter; *advaita*—with Advaita Ācārya; *milana*—meeting; *advaita*—Advaita Ācārya; *pāila*—received; *viśva-rūpa*—of the universal form of the Lord; *daraśana*—vision.
+
+**Thereafter the Lord delivered love of Kṛṣṇa to His mother, Śacīdevī, nullifying her offense at the feet of Advaita Ācārya. Thus there was a meeting with Advaita Ācārya, who later had a vision of the Lord's universal form.**
+
+One day Śrī Caitanya Mahāprabhu was sitting on the throne of Viṣṇu in the house of Śrīvāsa Prabhu, and in a mood of His own He said, "My mother has offended the lotus feet of Advaita Ācārya. Unless she nullifies this offense at the lotus feet of a Vaiṣṇava, it will not be possible for her to achieve love of Kṛṣṇa." Hearing this, all the devotees went to bring Advaita Ācārya there. While coming to see the Lord, Advaita Ācārya was glorifying the characteristics of mother Śacīdevī, and thus upon arriving He fell down on the ground in ecstasy. Then, under the instruction of Lord Caitanya, Śacīdevī took advantage of this situation to touch Advaita Ācārya's lotus feet. Śrī Caitanya Mahāprabhu was very much pleased by His mother's action, and He said, "Now My mother's offense at the lotus feet of Advaita Ācārya has been rectified, and she may have love of Kṛṣṇa without difficulty." By this example Lord Caitanya taught everyone that although one may be very much advanced in Kṛṣṇa consciousness, if one offends the lotus feet of a Vaiṣṇava his advancement will not bear fruit. We should therefore be very much conscious not to offend a Vaiṣṇava. *Caitanya-caritāmṛta* has described such an offense as follows:
+
+> yadi vaiṣṇava-aparādha uṭhe hātī mātā
+> upāḍe vā chiṇḍe, tāra śukhi' yāya pātā
+
+(Cc. Madhya 19.156)
+
+As a mad elephant may trample all the plants in a garden, so by committing one offense at the lotus feet of a Vaiṣṇava one may spoil all the devotional service he has accumulated in his life.
+
+After this incident, one day Advaita Ācārya Prabhu requested Caitanya Mahāprabhu to display the universal form He had very kindly shown Arjuna. Lord Caitanya agreed to this proposal, and Advaita Prabhu was fortunate enough to see the universal form of the Lord.

@@ -1,0 +1,18 @@
+### SB 5.24.17
+
+> tato 'dhastād vitale haro bhagavān hāṭakeśvaraḥ sva-pārṣada-bhūta-gaṇāvṛtaḥ prajāpati-sargopabṛṁhaṇāya bhavo bhavānyā saha mithunī-bhūta āste yataḥ pravṛttā sarit-pravarā hāṭakī nāma bhavayor vīryeṇa yatra citrabhānur mātariśvanā samidhyamāna ojasā pibati tan niṣṭhyūtaṁ hāṭakākhyaṁ suvarṇaṁ bhūṣaṇenāsurendrāvarodheṣu puruṣāḥ saha puruṣībhir dhārayanti.
+
+*tataḥ*—the planet Atala; *adhastāt*—beneath; *vitale*—on the planet; *haraḥ*—Lord Śiva; *bhagavān*—the most powerful personality; *hāṭakeśvaraḥ*—the master of gold; *sva-pārṣada*—by his own associates; *bhūta-gaṇa*—who are ghostly living beings; *āvṛtaḥ*—surrounded; *prajāpati-sarga*—of the creation of Lord Brahmā; *upabṛṁhaṇāya*—to increase the population; *bhavaḥ*—Lord Śiva; *bhavānyā saha*—with his wife, Bhavānī; *mithunī-bhūtaḥ*—being united in sex; *āste*—remains; *yataḥ*—from that planet (Vitala); *pravṛttā*—being emanated; *sarit-pravarā*—the great river; *hāṭakī*—Hāṭakī; *nāma*—named; *bhavayoḥ vīryeṇa*—due to the semina and ovum of Lord Śiva and Bhavānī; *yatra*—where; *citra-bhānuḥ*—the fire-god; *mātariśvanā*—by the wind; *samidhyamānaḥ*—being brightly inflamed; *ojasā*—with great strength; *pibati*—drinks; *tat*—that; *niṣṭhyūtam*—spit out with a hissing sound; *hāṭaka-ākhyam*—named Hāṭaka; *suvarṇam*—gold; *bhūṣaṇena*—by different types of ornaments; *asura-indra*—of the great *asuras*; *avarodheṣu*—in the homes; *puruṣāḥ*—the males; *saha*—with; *puruṣībhiḥ*—their wives and women; *dhārayanti*—wear.
+
+**The next planet below Atala is Vitala, wherein Lord Śiva, who is known as the master of gold mines, lives with his personal associates, the ghosts and similar living entities. Lord Śiva, as the progenitor, engages in sex with Bhavānī, the progenitress, to produce living entities, and from the mixture of their vital fluid the river named Hāṭakī is generated. When fire, being made to blaze by the wind, drinks of this river and then sizzles and spits it out, it produces gold called Hāṭaka. The demons who live on that planet with their wives decorate themselves with various ornaments made from that gold, and thus they live there very happily.**
+
+It appears that when Bhava and Bhavānī, Lord Śiva and his wife, unite sexually, the emulsification of their secretions creates a chemical which when heated by fire can produce gold. It is said that the alchemists of the medieval age tried to prepare gold from base metal, and Śrīla Sanātana Gosvāmī also states that when bell metal is treated with mercury, it can produce gold. Śrīla Sanātana Gosvāmī mentions this in regard to the initiation of low-class men to turn them into *brāhmaṇas.* Sanātana Gosvāmī said:
+
+> yathā kāñcanatāṁ yāti
+> kāṁsyaṁ rasa-vidhānataḥ
+> tathā dīkṣā-vidhānena
+> dvijatvaṁ jāyate nṛṇām
+
+"As one can transform *kaṁsa,* or bell metal, into gold by treating it with mercury, one can also turn a lowborn man into a *brāhmaṇa* by initiating him properly into Vaiṣṇava activities." The International Society for Krishna Consciousness is trying to turn *mlecchas* and *yavanas* into real *brāhmaṇas* by properly initiating them and stopping them from engaging in meat-eating, intoxication, illicit sex and gambling. One who stops these four principles of sinful activity and chants the Hare Kṛṣṇa *mahā-mantra* can certainly become a pure *brāhmaṇa* through the process of bona fide initiation, as suggested by Śrīla Sanātana Gosvāmī.
+
+Apart from this, if one takes a hint from this verse and learns how to mix mercury with bell metal by properly heating and melting them, one can get gold very cheaply. The alchemists of the medieval age tried to manufacture gold, but they were unsuccessful, perhaps because they did not follow the right instructions.

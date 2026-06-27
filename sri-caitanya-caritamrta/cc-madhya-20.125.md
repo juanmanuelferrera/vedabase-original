@@ -1,0 +1,12 @@
+### CC Madhya 20.125
+
+> abhidheya-nāma 'bhakti' 'prema'—prayojana
+> puruṣārtha-śiromaṇi prema mahā-dhana
+
+*abhidheya*—activities to revive one's relationship; *nāma*—named; *bhakti*—devotional service; *prema*—love of Godhead; *prayojana*—the ultimate goal of life; *puruṣa-artha-śiromaṇi*—the topmost interest of the living entity; *prema*—love of Godhead; *mahā-dhana*—the greatest wealth.
+
+**"Devotional service, or sense activity for the satisfaction of the Lord, is called abhidheya because it can develop one's original love of Godhead, which is the goal of life. This goal is the living entity's topmost interest and greatest wealth. Thus one attains the platform of transcendental loving service unto the Lord.**
+
+The conditioned soul is bewildered by the external material energy, which fully engages him in a variety of sense gratification. Due to engagement in material activities, one's original Kṛṣṇa consciousness is covered. However, as the supreme father of all living entities, Kṛṣṇa wants His sons to return home, back to Godhead; therefore He personally comes to deliver Vedic literatures like *Bhagavad-gītā.* He engages His confidential servants who serve as spiritual masters and enlighten the conditioned living entities. Being present in everyone's heart, the Lord gives the living entities the conscience whereby they can accept the *Vedas* and the spiritual master. In this way the living entity can understand his constitutional position and his relationship with the Supreme Lord. As personally enunciated by the Lord Himself in *Bhagavad-gītā* [[bg/15/15|(Bg. 15.15)]], *vedaiś ca sarvair aham eva vedyaḥ*/ through the study of Vedānta, one may become fully aware of his relationship with the Supreme Lord and act accordingly. In this way one may ultimately attain the platform of loving service to the Lord. It is in the living entity's best interest to understand the Supreme Lord. Unfortunately, the living entities have forgotten; therefore *Śrīmad-Bhāgavatam* says/ *na te viduḥ svārtha-gatiṁ hi viṣṇum* (Bhāg. 7.5.31).
+
+Everyone wants to achieve life's ultimate goal, but due to being absorbed in the material energy, we waste our time with sense gratification. Through the study of Vedic literatures-of which the essence is *Bhagavad-gītā*-one comes to Kṛṣṇa consciousness. Thus one engages in devotional service, called *abhidheya.* When actually developed, love of Godhead is called *prayojana,* the living entity's ultimate goal. When one becomes fully Kṛṣṇa conscious, he has attained the perfection of life.

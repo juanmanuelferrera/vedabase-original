@@ -1,0 +1,14 @@
+### SB 3.27.27
+
+> yadaivam adhyātma-rataḥ
+> kālena bahu-janmanā
+> sarvatra jāta-vairāgya
+> ābrahma-bhuvanān muniḥ
+
+*yadā*—when; *evam*—thus; *adhyātma-rataḥ*—engaged in self-realization; *kālena*—for many years; *bahu-janmanā*—for many births; *sarvatra*—everywhere; *jāta-vairāgyaḥ*—detachment is born; *ā-brahma-bhuvanāt*—up to Brahmaloka; *muniḥ*—a thoughtful person.
+
+**When a person thus engages in devotional service and self-realization for many, many years and births, he becomes completely reluctant to enjoy any one of the material planets, even up to the highest planet, which is known as Brahmaloka; he becomes fully developed in consciousness.**
+
+Anyone engaged in devotional service to the Supreme Personality of Godhead is known as a devotee, but there is a distinction between pure devotees and mixed devotees. A mixed devotee engages in devotional service for the spiritual benefit of being eternally engaged in the transcendental abode of the Lord in full bliss and knowledge. In material existence, when a devotee is not completely purified, he expects material benefit from the Lord in the form of relief from material miseries, or he wants material gain, advancement in knowledge of the relationship between the Supreme Personality of Godhead and the living entity, or knowledge as to the real nature of the Supreme Lord. When a person is transcendental to these conditions, he is called a pure devotee. He does not engage himself in the service of the Lord for any material benefit or for understanding of the Supreme Lord. His one interest is that he loves the Supreme Personality of Godhead, and he spontaneously engages in satisfying Him.
+
+The highest example of pure devotional service is that of the *gopīs* in Vṛndāvana. They are not interested in understanding Kṛṣṇa, but only in loving Him. That platform of love is the pure state of devotional service. Unless one is advanced to this pure state of devotional service, there is a tendency to desire elevation to a higher material position. A mixed devotee may desire to enjoy a comfortable life on another planet with a greater span of life, such as on Brahmaloka. These are material desires, but because a mixed devotee engages in the service of the Lord, ultimately, after many, many lives of material enjoyment, he undoubtedly develops Kṛṣṇa consciousness, and the symptom of this Kṛṣṇa consciousness is that he is no longer interested in any sort of materially elevated life. He does not even aspire to become a personality like Lord Brahmā.

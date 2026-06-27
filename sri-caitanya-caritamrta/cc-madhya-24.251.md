@@ -1,0 +1,10 @@
+### CC Madhya 24.251
+
+> kadarthiyā tumi yata mārilā jīvere
+> tārā taiche tomā māribe janma-janmāntare"
+
+*kadarthiyā*—giving unnecessary pangs; *tumi*—you; *yata*—all; *mārilā*—killed; *jīvere*—the living entities; *tārā*—all of them; *taiche*—similarly; *tomā*—you; *māribe*—will kill; *janma-janma-antare*—life after life.
+
+**"Nārada Muni continued, 'All the animals that you have killed and given unnecessary pain will kill you one after the other in your next life and in life after life.'**
+
+This is another authoritative statement made by the great sage Nārada. Those who kill animals and give them unnecessary pain-as people do in slaughterhouses-will be killed in a similar way in the next life and in many lives to come. One can never be excused from such an offense. If one kills many thousands of animals in a professional way so that other people can purchase the meat to eat, one must be ready to be killed in a similar way in his next life and in life after life. There are many rascals who violate their own religious principles. According to Judeo-Christian scriptures, it is clearly said, "Thou shalt not kill." Nonetheless, giving all kinds of excuses, even the heads of religions indulge in killing animals while trying to pass as saintly persons. This mockery and hypocrisy in human society bring about unlimited calamities; therefore occasionally there are great wars. Masses of such people go out onto battlefields and kill themselves. Presently they have discovered the atomic bomb, which is simply awaiting wholesale destruction. If people want to be saved from the killing business life after life, they must take to Kṛṣṇa consciousness and cease sinful activity. The International Society for Krishna Consciousness recommends that everyone abandon meat-eating, illicit sex, intoxication and gambling. When one gives up these sinful activities, he can understand Kṛṣṇa and take to this Kṛṣṇa consciousness movement. We therefore request everyone to abandon sinful activity and chant the Hare Kṛṣṇa *mantra.* In this way people can save themselves from repeated birth and death.

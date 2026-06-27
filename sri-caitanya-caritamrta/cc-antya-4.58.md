@@ -1,0 +1,8 @@
+### CC Antya 4.58
+
+> 'bhakti' vinā kṛṣṇe kabhu nahe 'premodaya'
+> prema vinā kṛṣṇa-prāpti anya haite naya
+
+*bhakti vinā*—without devotional service; *kṛṣṇe*—unto Kṛṣṇa; *kabhu*—at any time; *nahe*—is not; *prema-udaya*—development of dormant love for Kṛṣṇa; *prema vinā*—without love of Kṛṣṇa; *kṛṣṇa-prāpti*—attaining Kṛṣṇa; *anya*—anything else; *haite*—from; *naya*—is not possible.
+
+**"Unless one discharges devotional service, one cannot awaken one's dormant love for Kṛṣṇa, and there is no means to attain Him other than awakening that dormant love.**

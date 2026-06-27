@@ -1,0 +1,12 @@
+### CC Antya 5.20
+
+> sevya-bujhi āropiyā karena sevana
+> svābhāvika dāsī-bhāva karena āropaṇa
+
+*sevya-bujhi āropiyā*—considering worshipable; *karena sevana*—engages in service; *svābhāvika*—by his natural position; *dāsī-bhāva*—as a maidservant; *karena āropaṇa*—considers.
+
+**Śrīla Rāmānanda Rāya used to act in that way because he thought of himself in his original position as a maidservant of the gopīs. Thus although externally he appeared to be a man, internally, in his original spiritual position, he considered himself a maidservant and considered the two girls gopīs.**
+
+Śrīla Bhaktivinoda Ṭhākura writes in his *Amṛta-pravāha-bhāṣya:* "Śrīla Rāmānanda Rāya composed a drama named *Jagannātha-vallabha-nāṭaka,* and he engaged two young girls who were professional dancers and singers to demonstrate the ideology of the drama. Such girls, who are called *deva-dāsīs,* are still employed in the temple of Jagannātha, where they are called *māhārīs.* Śrī Rāmānanda Rāya engaged two such girls, and because they were meant to play the parts of *gopīs,* he taught them how to awaken thoughts like those of the *gopīs.* Because the gopīs are worshipable personalities, Rāmānanda Rāya, who considered the two girls *gopīs* and himself their maidservant, engaged in their service by massaging their bodies with oil to cleanse them completely. Because Rāmānanda Rāya always placed himself in the position of a maidservant of the *gopīs,* his rehearsal with the girls was actually on the spiritual platform."
+
+Because there was no question of personal sense gratification when Śrī Rāmānanda Rāya was serving the girls, his mind was steady and his body untransformed. This is not to be imitated, nor is such a mentality possible for anyone but Śrī Rāmānanda Rāya, as Śrī Caitanya Mahāprabhu will explain. The example of Śrī Rāmānanda Rāya is certainly unique. The author of *Śrī Caitanya-caritāmṛta* has given this description because in perfect devotional service one can attain such a position. Nevertheless, one must understand this subject very seriously and never attempt to imitate such activities.

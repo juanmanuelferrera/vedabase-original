@@ -1,0 +1,14 @@
+### SB 3.24.39
+
+> mām ātmānaṁ svayaṁ-jyotiḥ
+> sarva-bhūta-guhāśayam
+> ātmany evātmanā vīkṣya
+> viśoko 'bhayam ṛcchasi
+
+*mām*—Me; *ātmānam*—the Supreme Soul, or Paramātmā; *svayam-jyotiḥ*—self-effulgent; *sarva-bhūta*—of all beings; *guhā*—in the hearts; *āśayam*—dwelling; *ātmani*—in your own heart; *eva*—indeed; *ātmanā*—through your intellect; *vīkṣya*—always seeing, always thinking; *viśokaḥ*—free from lamentation; *abhayam*—fearlessness; *ṛcchasi*—you will achieve.
+
+**In your own heart, through your intellect, seeing Me, the supreme self-effulgent soul dwelling within the hearts of all living entities. Thus you will achieve the state of eternal life, free from all lamentation and fear.**
+
+People are very anxious to understand the Absolute Truth in various ways, especially by experiencing the *brahmajyoti,* or Brahman effulgence, by meditation and by mental speculation. But Kapiladeva uses the word *mām* to emphasize that the Personality of Godhead is the ultimate feature of the Absolute Truth. In *Bhagavad-gītā* the Personality of Godhead always says *mām,* "unto Me," but the rascals misinterpret the clear meaning. *Mām* is the Supreme Personality of Godhead. If one can see the Supreme Personality of Godhead as He appears in different incarnations and understand that He has not assumed a material body but is present in His own eternal, spiritual form, then one can understand the nature of the Personality of Godhead. Since the less intelligent cannot understand this point, it is stressed everywhere again and again. Simply by seeing the form of the Lord as He presents Himself by His own internal potency as Kṛṣṇa or Rāma or Kapila, one can directly see the *brahmajyoti,* because the *brahmajyoti* is no more than the effulgence of His bodily luster. Since the sunshine is the luster of the sun planet, by seeing the sun one automatically sees the sunshine; similarly, by seeing the Supreme Personality of Godhead one simultaneously sees and experiences the Paramātmā feature as well as the impersonal Brahman feature of the Supreme.
+
+The *Bhāgavatam* has already enunciated that the Absolute Truth is present in three features—in the beginning as the impersonal Brahman, in the next stage as the Paramātmā in everyone's heart, and, at last, as the ultimate realization of the Absolute Truth, Bhagavān, the Supreme Personality of Godhead. One who sees the Supreme Person can automatically realize the other features, namely the Paramātmā and Brahman features of the Lord. The words used here are *viśoko 'bhayam ṛcchasi.* Simply by seeing the Personality of Godhead one realizes everything, and the result is that one becomes situated on the platform where there is no lamentation and no fear. This can be attained simply by devotional service to the Personality of Godhead.

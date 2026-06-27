@@ -1,0 +1,8 @@
+### CC Madhya 4.5
+
+> sahaje vicitra madhura caitanya-vihāra
+> vṛndāvana-dāsa-mukhe amṛtera dhāra
+
+*sahaje*—naturally; *vicitra*—wonderful; *madhura*—sweet; *caitanya*—of Lord Caitanya Mahāprabhu; *vihāra*—the activities; *vṛndāvana-dāsa*—of Vṛndāvana dāsa Ṭhākura; *mukhe*—from the mouth; *amṛtera*—of nectar; *dhāra*—shower.
+
+**By nature all the activities of Śrī Caitanya Mahāprabhu are very wonderful and sweet, and when they are described by Vṛndāvana dāsa Ṭhākura, they become like a shower of nectar.**

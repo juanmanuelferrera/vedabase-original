@@ -1,0 +1,8 @@
+### CC Madhya 13.161
+
+> ei saba artha prabhu svarūpera sane
+> rātri-dine ghare vasi' kare āsvādane
+
+*ei saba*—all these; *artha*—meanings; *prabhu*—Śrī Caitanya Mahāprabhu; *svarūpera sane*—with Svarūpa Dāmodara; *rātri-dine*—both day and night; *ghare vasi'*—sitting within His room; *kare*—does; *āsvādane*—taste.
+
+**Śrī Caitanya Mahāprabhu would sit in His room with Svarūpa Dāmodara and taste the topics of these verses day and night.**

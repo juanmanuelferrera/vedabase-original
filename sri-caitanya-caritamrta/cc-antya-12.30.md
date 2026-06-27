@@ -1,0 +1,8 @@
+### CC Antya 12.30
+
+> āji mora saphala haila janma, kula, karma
+> āji pāinu kṛṣṇa-bhakti, artha, kāma, dharma"
+
+*āji*—today; *mora*—my; *sa-phala*—successful; *haila*—became; *janma*—birth; *kula*—family; *karma*—activities; *āji*—today; *pāinu*—I have gotten; *kṛṣṇa-bhakti*—devotional service to Lord Kṛṣṇa; *artha*—economic development; *kāma*—satisfaction of the senses; *dharma*—religion.
+
+**"Today my birth, my family and my activities have all become successful. Today I have achieved the fulfillment of religious principles, economic development, satisfaction of the senses and ultimately devotional service to Lord Kṛṣṇa."**

@@ -1,0 +1,14 @@
+### SB 4.8.53
+
+> japaś ca paramo guhyaḥ
+> śrūyatāṁ me nṛpātmaja
+> yaṁ sapta-rātraṁ prapaṭhan
+> pumān paśyati khecarān
+
+*japaḥ ca*—the chanting *mantra* in this connection; *paramaḥ*—very, very; *guhyaḥ*—confidential; *śrūyatām*—please hear; *me*—from me; *nṛpa-ātmaja*—O son of the King; *yam*—which; *sapta-rātram*—seven nights; *prapaṭhan*—chanting; *pumān*—a person; *paśyati*—can see; *khe-carān*—human beings who travel in space.
+
+**O son of the King, now I shall speak unto you the mantra which is to be chanted with this meditation process. One who carefully chants this mantra for seven nights can see the perfect human beings flying in the sky.**
+
+Within this universe there is a planet called Siddhaloka. The inhabitants of Siddhaloka are by nature perfect in the yoga achievements, which are of eight varieties: one can become smaller than the smallest, lighter than the lightest, or bigger than the biggest, one can immediately get whatever he likes, one can even create a planet, etc. These are some of the yogic perfections. By virtue of the laghimā-siddhi, or purificatory process to become lighter than the lightest, the inhabitants of Siddhaloka can fly in the sky without airplanes or airships. It is hinted herein by Nārada Muni to Dhruva Mahārāja that by meditating upon the transcendental form of the Lord and at the same time chanting the mantra one becomes so perfect within seven days that he can see the human beings who fly in the sky. Nārada Muni uses the word japaḥ, which indicates that the mantra to be chanted is very confidential. One may ask, "If it is confidential, why is it mentioned in the writing of Śrīmad-Bhāgavatam?" It is confidential in this sense: one may receive a published mantra anywhere, but unless it is accepted through the chain of disciplic succession, the mantra does not act. It is said by authoritative sources that any mantra chanted without having been received from the disciplic succession has no efficacy.
+
+Another point established in this verse is that meditation should be carried on with the chanting of a mantra. Chanting of the Hare Kṛṣṇa mantra is the easiest process of meditation in this age. As soon as one chants the Hare Kṛṣṇa mantra, he sees the forms of Kṛṣṇa, Rāma and Their energies, and that is the perfect stage of trance. One should not artificially try to see the form of the Lord while chanting Hare Kṛṣṇa, but when the chanting is performed offenselessly the Lord will automatically reveal Himself to the view of the chanter. The chanter, therefore, has to concentrate on hearing the vibration, and without extra endeavor on his part, the Lord will automatically appear.

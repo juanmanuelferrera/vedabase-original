@@ -1,0 +1,17 @@
+### CC Adi 7.37
+
+> aparādha kṣamāila, ḍubila prema-jale
+> kebā eḍāibe prabhura prema-mahājāle
+
+*aparādha*—offense; *kṣamāila*—excused; *ḍubila*—merged into; *prema-jale*—in the ocean of love of Godhead; *kebā*—who else; *eḍāibe*—will go away; *prabhura*—the Lord's; *prema*—loving; *mahā-jāle*—network.
+
+**Lord Caitanya excused them all, and they merged into the ocean of devotional service, for no one can escape the unique loving network of Śrī Caitanya Mahāprabhu.**
+
+Śrī Caitanya Mahāprabhu was an ideal *ācārya.* An *ācārya* is an ideal teacher who knows the purpose of the revealed scriptures, behaves exactly according to their injunctions and teaches his students to adopt these principles also. As an ideal *ācārya,* Śrī Caitanya Mahāprabhu devised ways to capture all kinds of atheists and materialists. Every *ācārya* has a specific means of propagating his spiritual movement with the aim of bringing men to Kṛṣṇa consciousness. Therefore, the method of one *ācārya* may be different from that of another, but the ultimate goal is never neglected. Śrīla Rūpa Gosvāmī recommends:
+
+> tasmāt kenāpy upāyena
+> manaḥ kṛṣṇe niveśayet
+> sarve vidhi-niṣedhā syur
+> etayor eva kiṅkarāḥ
+
+An *ācārya* should devise a means by which people may somehow or other come to Kṛṣṇa consciousness. First they should become Kṛṣṇa conscious, and all the prescribed rules and regulations may later gradually be introduced. In our Kṛṣṇa consciousness movement we follow this policy of Lord Śrī Caitanya Mahāprabhu. For example, since boys and girls in the Western countries freely intermingle, special concessions regarding their customs and habits are necessary to bring them to Kṛṣṇa consciousness. The *ācārya* must devise a means to bring them to devotional service. Therefore, although I am a *sannyāsī* I sometimes take part in getting boys and girls married, although in the history of *sannyāsa* no *sannyāsī* has personally taken part in marrying his disciples.

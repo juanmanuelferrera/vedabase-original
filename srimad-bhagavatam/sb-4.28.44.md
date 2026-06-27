@@ -1,0 +1,14 @@
+### SB 4.28.44
+
+> cīra-vāsā vrata-kṣāmā
+> veṇī-bhūta-śiroruhā
+> babhāv upa patiṁ śāntā
+> śikhā śāntam ivānalam
+
+*cīra-vāsā*—wearing old garments; *vrata-kṣāmā*—lean and thin on account of austerities; *veṇī-bhūta*—entangled; *śiroruhā*—her hair; *babhau*—she shone; *upa patim*—near the husband; *śāntā*—peaceful; *śikhā*—flames; *śāntam*—without being agitated; *iva*—like; *analam*—fire.
+
+**The daughter of King Vidarbha wore old garments, and she was lean and thin because of her vows of austerity. Since she did not arrange her hair, it became entangled and twisted in locks. Although she remained always near her husband, she was as silent and unagitated as the flame of an undisturbed fire.**
+
+When one begins to burn firewood, there is smoke and agitation in the beginning. Although there are so many disturbances in the beginning, once the fire is completely set, the firewood burns steadily. Similarly, when both husband and wife follow the regulative principles of austerity, they remain silent and are not agitated by sex impulses. At such a time both husband and wife are benefited spiritually. One can attain this stage of life by completely giving up a luxurious mode of life.
+
+In this verse the word cīra-vāsā refers to very old torn garments. The wife especially should remain austere, not desiring luxurious dresses and living standards. She should accept only the bare necessities of life and minimize her eating and sleeping. There should be no question of mating. Simply by engaging in the service of her exalted husband, who must be a pure devotee, the wife will never be agitated by sex impulses. The vānaprastha stage is exactly like this. Although the wife remains with the husband, she undergoes severe austerities and penances so that although both husband and wife live together, there is no question of sex. In this way both husband and wife can live together perpetually. Since the wife is weaker than the husband, this weakness is expressed in this verse with the words upa patim. Upa means "near to," or "almost equal to." Being a man, the husband is generally more advanced than his wife. Nonetheless, the wife is expected to give up all luxurious habits. She should not even dress nicely or comb her hair. Hair combing is one of the main businesses of women. In the vānaprastha stage the wife should not take care of her hair. Thus her hair will become tangled in knots. Consequently the wife herself will no longer be agitated by sex impulses. In this way both husband and wife can advance in spiritual consciousness. This advanced stage is called the paramahaṁsa stage, and once it is obtained, both husband and wife can be actually liberated from bodily consciousness. If the disciple remains steady in the service of the spiritual master, he need no longer fear falling down into the clutches of māyā.

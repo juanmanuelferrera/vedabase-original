@@ -1,0 +1,12 @@
+### SB 2.7.7
+
+> kāmaṁ dahanti kṛtino nanu roṣa-dṛṣṭyā
+> roṣaṁ dahantam uta te na dahanty asahyam
+> so 'yaṁ yad antaram alaṁ praviśan bibheti
+> kāmaḥ kathaṁ nu punar asya manaḥ śrayeta
+
+*kāmam*—lust; *dahanti*—chastise; *kṛtinaḥ*—great stalwarts; *nanu*—but; *roṣa-dṛṣṭyā*—by wrathful glance; *roṣam*—wrath; *dahantam*—being overwhelmed; *uta*—although; *te*—they; *na*—cannot; *dahanti*—subjugate; *asahyam*—intolerable; *saḥ*—that; *ayam*—Him; *yat*—because; *antaram*—within; *alam*—however; *praviśan*—entering; *bibheti*—is afraid of; *kāmaḥ*—lust; *katham*—how; *nu*—as a matter of fact; *punaḥ*—again; *asya*—His; *manaḥ*—mind; *śrayeta*—take shelter of.
+
+**Great stalwarts like Lord Śiva can, by their wrathful glance, overcome lust and vanquish him, yet they cannot be free from the overwhelming effects of their own wrath. Such wrath can never enter into the heart of Him [the Lord], who is above all this. So how can lust take shelter in His mind?**
+
+When Lord Śiva was engaged in severely austere meditation, Cupid, the demigod of lust, threw his arrow of sex desire, and Lord Śiva, thus being angry at him, glanced at Cupid in great wrath, and at once the body of Cupid was annihilated. Although Lord Śiva was so powerful, he was unable to get free from the effects of such wrath. But in the behavior of Lord Viṣṇu there is no incidence of such wrath at any time. On the contrary, Bhṛgu Muni tested the tolerance of the Lord by purposely kicking His chest, but instead of being angry at Bhṛgu Muni the Lord begged his pardon, saying that Bhṛgu Muni's leg might have been badly hurt due to His chest being too hard. The Lord has the sign of the foot of Bhṛgu-pāda as the mark of tolerance. The Lord, therefore, is never affected by any kind of wrath, so how can there be any place for lust, which is less strong than wrath? When lust or desire is not fulfilled, there is the appearance of wrath, but in the absence of wrath how can there by any place for lust? The Lord is known as āpta-kāmaḥ, or one who can fulfill His desires by Himself. He does not require anyone's help to satisfy His desires. The Lord is unlimited, and therefore His desires are also unlimited. All living entities but the Lord are limited in every respect; how then can the limited satisfy the desires of the unlimited? The conclusion is that the Absolute Personality of Godhead has neither lust nor anger, and even if there is sometimes a show of lust and anger by the Absolute, it should be considered an absolute benediction.

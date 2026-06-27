@@ -1,0 +1,12 @@
+### SB 1.11.25
+
+> nityaṁ nirīkṣamāṇānāṁ
+> yad api dvārakaukasām
+> na vitṛpyanti hi dṛśaḥ
+> śriyo dhāmāṅgam acyutam
+
+*nityam*—regularly, always; *nirīkṣamāṇānām*—of those who look at Him; *yat*—although; *api*—in spite of; *dvārakā-okasām*—the inhabitants of Dvārakā; *na*—never; *vitṛpyanti*—satisfied; *hi*—exactly; *dṛśaḥ*—sight; *śriyaḥ*—beauties; *dhāma-aṅgam*—the bodily reservoir; *acyutam*—the infallible.
+
+**The inhabitants of Dvārakā were regularly accustomed to look upon the reservoir of all beauty, the infallible Lord, yet they were never satiated.**
+
+When the ladies of the city of Dvārakā got up on the roofs of their palaces, they never thought that they had previously many times seen the beautiful body of the infallible Lord. This indicates that they had no satiation in desiring to see the Lord. Anything material seen for a number of times ultimately becomes unattractive by the law of satiation. The law of satiation acts materially, but there is no scope for it in the spiritual realm. The word infallible is significant here, because although the Lord has mercifully descended on earth, He is still infallible. The living entities are fallible because when they come in contact with the material world they lack their spiritual identity, and thus the body materially obtained becomes subjected to birth, growth, transformation, situation, deterioration and annihilation under the laws of nature. The Lord's body is not like that. He descends as He is and is never under the laws of the material modes. His body is the source of everything that be, the reservoir of all beauties beyond our experience. No one, therefore, is satiated by seeing the transcendental body of the Lord because there are always manifestations of newer and newer beauties. The transcendental name, form, qualities, entourage, etc., are all spiritual manifestations, and there is no satiation in chanting the holy name of the Lord, there is no satiation in discussing the qualities of the Lord, and there is no limitation of the entourage of the Lord. He is the source of all and is limitless.

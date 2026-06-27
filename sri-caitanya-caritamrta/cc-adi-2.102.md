@@ -1,0 +1,8 @@
+### CC Adi 2.102
+
+> māyā-śakti, bahiraṅgā, jagat-kāraṇa
+> tāhāra vaibhava ananta brahmāṇḍera gaṇa
+
+*māyā-śakti*—the illusory energy; *bahiḥ-aṅgā*—external; *jagat-kāraṇa*—the cause of the universe; *tāhāra*—of that; *vaibhava*—manifestations; *ananta*—unlimited; *brahma-aṇḍera*—of universes; *gaṇa*—multitudes.
+
+**"The external energy, called māyā-śakti, is the cause of innumerable universes with varied material potencies.**

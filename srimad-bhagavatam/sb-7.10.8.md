@@ -1,0 +1,20 @@
+### SB 7.10.8
+
+> indriyāṇi manaḥ prāṇa
+> ātmā dharmo dhṛtir matiḥ
+> hrīḥ śrīs tejaḥ smṛtiḥ satyaṁ
+> yasya naśyanti janmanā
+
+*indriyāṇi*—the senses; *manaḥ*—the mind; *prāṇaḥ*—the life air; *ātmā*—the body; *dharmaḥ*—religion; *dhṛtiḥ*—patience; *matiḥ*—intelligence; *hrīḥ*—shyness; *śrīḥ*—opulence; *tejaḥ*—strength; *smṛtiḥ*—memory; *satyam*—truthfulness; *yasya*—of which lusty desires; *naśyanti*—are vanquished; *janmanā*—from the very beginning of birth.
+
+**O my Lord, because of lusty desires from the very beginning of one's birth, the functions of one's senses, mind, life, body, religion, patience, intelligence, shyness, opulence, strength, memory and truthfulness are vanquished.**
+
+As stated in *Śrīmad-Bhāgavatam, kāmaṁ hṛd-rogam.* Materialistic life means that one is afflicted by a formidable disease called lusty desire. Liberation means freedom from lusty desires because it is only due to such desires that one must accept repeated birth and death. As long as one's lusty desires are unfulfilled, one must take birth after birth to fulfill them. Because of material desires, therefore, one performs various types of activities and receives various types of bodies with which to try to fulfill desires that are never satisfied. The only remedy is to take to devotional service, which begins when one is free from all material desires. *Anyābhilāṣitā-śūnyam [Bhakti-rasāmṛta-sindhu* 1.1.11]. *Anya-abhilāṣitā* means "material desire," and *śūnyam* means "free from." The spiritual soul has spiritual activities and spiritual desires, as described by Śrī Caitanya Mahāprabhu: *mama janmani janmanīśvare bhavatād bhaktir ahaitukī tvayi* [[cc/antya/20/29|[Cc. Antya 20.29, Śikṣāṣṭaka 4] ]]. Unalloyed devotion to the service of the Lord is the only spiritual desire. To fulfill this spiritual desire, however, one must be free from all material desires. Desirelessness means freedom from material desires. This is described by Śrīla Rūpa Gosvāmī as *Anyābhilāṣitā-śūnyam [Bhakti-rasāmṛta-sindhu* 1.1.11]. As soon as one has material desires, one loses his spiritual identity. Then all the paraphernalia of one's life, including one's senses, body, religion, patience and intelligence, are deviated from one's original Kṛṣṇa consciousness. As soon as one has material desires, one cannot properly use his senses, intelligence, mind and so on for the satisfaction of the Supreme Personality of Godhead. Māyāvādī philosophers want to become impersonal, senseless and mindless, but that is not possible. The living entity must be living, always existing with desires, ambitions and so on. These should be purified, however, so that one can desire spiritually and be spiritually ambitious, without material contamination. In every living entity these propensities exist because he is a living entity. When materially contaminated, however, one is put into the hands of material misery (*janma-mṛtyu jarā-vyādhi* [[bg/13/8-12|[Bg. 13.9] ]]). If one wants to stop repeated birth and death, one must take to the devotional service of the Lord.
+
+> sarvopādhi-vinirmuktaṁ
+> tat-paratvena nirmalam
+> hṛṣīkeṇa hṛṣīkeśa-
+> sevanaṁ bhaktir ucyate
+> [[cc/madhya/19/170|[Cc. Madhya 19.170] ]]
+
+"Bhakti, or devotional service, means engaging all our senses in the service of the Lord, the Supreme Personality of Godhead, the master of all the senses. When the spirit soul renders service unto the Supreme, there are two side effects. One is freed from all material designations, and, simply by being employed in the service of the Lord, one's senses are purified."

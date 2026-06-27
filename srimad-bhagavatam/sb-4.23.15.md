@@ -1,0 +1,14 @@
+### SB 4.23.15
+
+> utsarpayaṁs tu taṁ mūrdhni
+> krameṇāveśya niḥspṛhaḥ
+> vāyuṁ vāyau kṣitau kāyaṁ
+> tejas tejasy ayūyujat
+
+*utsarpayan*—thus placing; *tu*—but; *tam*—the air; *mūrdhni*—on the head; *krameṇa*—gradually; *āveśya*—placing; *niḥspṛhaḥ*—being freed from all material desires; *vāyum*—the air portion of the body; *vāyau*—in the total air covering the universe; *kṣitau*—in the total covering of earth; *kāyam*—this material body; *tejaḥ*—the fire in the body; *tejasi*—in the total fire of the material covering; *ayūyujat*—mixed.
+
+**In this way, Pṛthu Mahārāja gradually raised his air of life up to the hole in his skull, whereupon he lost all desire for material existence. Gradually he merged his air of life with the totality of air, his body with the totality of earth, and the fire within his body with the totality of fire.**
+
+When the spiritual spark, which is described as one ten-thousandth part of the tip of a hair, is forced into material existence, that spark is covered by gross and subtle material elements. The material body is composed of five gross elements—earth, water, fire, air and ether—and three subtle elements—mind, intelligence and ego. When one attains liberation, he is freed from these material coverings. Indeed, success in yoga involves getting free from these material coverings and entering into spiritual existence. Lord Buddha's teachings of nirvāṇa are based on this principle. Lord Buddha instructed his followers to give up these material coverings by means of meditation and yoga. Lord Buddha did not give any information about the soul, but if one follows his instructions strictly, he will ultimately become free from the material coverings and attain nirvāṇa.
+
+When a living entity gives up the material coverings, he remains a spirit soul. This spirit soul must enter into the spiritual sky to merge into the Brahman effulgence. Unfortunately, unless the living entity has information of the spiritual world and the Vaikuṇṭhas, there is a 99.9 percent chance of his falling down again into material existence. There is, however, a small chance of being promoted to a spiritual planet from the Brahman effulgence, or the brahmajyoti. This brahmajyoti is considered by impersonalists to be without variety, and the Buddhists consider it to be void. In either case, whether one accepts the spiritual sky as being without variety or void, there is none of the spiritual bliss which is enjoyed in the spiritual planets, the Vaikuṇṭhas or Kṛṣṇaloka. In the absence of varieties of enjoyment, the spirit soul gradually feels an attraction to enjoy a life of bliss, and not having any information of Kṛṣṇaloka or Vaikuṇṭhaloka, he naturally falls down to material activities in order to enjoy material varieties.

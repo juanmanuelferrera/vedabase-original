@@ -1,0 +1,22 @@
+### SB 4.3.5-7
+
+> tad upaśrutya nabhasi
+> khe-carāṇāṁ prajalpatām
+> satī dākṣāyaṇī devī
+> pitṛ-yajña-mahotsavam
+
+> vrajantīḥ sarvato digbhya
+> upadeva-vara-striyaḥ
+> vimāna-yānāḥ sa-preṣṭhā
+> niṣka-kaṇṭhīḥ suvāsasaḥ
+
+> dṛṣṭvā sva-nilayābhyāśe
+> lolākṣīr mṛṣṭa-kuṇḍalāḥ
+> patiṁ bhūta-patiṁ devam
+> autsukyād abhyabhāṣata
+
+*tat*—then; *upaśrutya*—hearing; *nabhasi*—in the sky; *khe-carāṇām*—of those who were flying in the air (the Gandharvas); *prajalpatām*—the conversation; *satī*—Sati; *dākṣāyaṇī*—the daughter of Dakṣa; *devī*—the wife of Śiva; *pitṛ-yajña-mahā-utsavam*—the great festival of sacrifice performed by her father; *vrajantīḥ*—were going; *sarvataḥ*—from all; *digbhyaḥ*—directions; *upadeva-vara-striyaḥ*—the beautiful wives of the demigods; *vimāna-yānāḥ*—flying in their airplanes; *sa-preṣṭhāḥ*—along with their husbands; *niṣka-kaṇṭhīḥ*—having nice necklaces with lockets; *su-vāsasaḥ*—dressed in fine clothing; *dṛṣṭvā*—seeing; *sva-nilaya-abhyāśe*—near her residence; *lola-akṣīḥ*—having beautiful glittering eyes; *mṛṣṭa-kuṇḍalāḥ*—nice earrings; *patim*—her husband; *bhūta-patim*—the master of the *bhūtas*; *devam*—the demigod; *autsukyāt*—from great anxiety; *abhyabhāṣata*—she spoke.
+
+**The chaste lady Satī, the daughter of Dakṣa, heard the heavenly denizens flying in the sky conversing about the great sacrifice being performed by her father. When she saw that from all directions the beautiful wives of the heavenly denizens, their eyes very beautifully glittering, were near her residence and were going to the sacrifice dressed in fine clothing and ornamented with earrings and necklaces with lockets, she approached her husband, the master of the bhūtas, in great anxiety, and spoke as follows.**
+
+It appears that the residence of Lord Śiva was not on this planet but somewhere in outer space, otherwise how could Satī see the airplanes coming from different directions towards this planet and hear the passengers talking about the great sacrifice being performed by Dakṣa? Satī is described here as Dākṣāyaṇī because she was the daughter of Dakṣa. The mention of upadeva-vara refers to inferior demigods like the Gandharvas, Kinnaras and Uragas, who are not exactly demigods but between the demigods and human beings. They were also coming in planes. The word sva-nilayābhyāśe indicates that they were passing right near her residential quarters. The dresses and bodily features of the wives of the heavenly denizens are very nicely described here. Their eyes moved, their earrings and other ornaments glittered and glared, their dresses were the nicest possible, and all of them had special lockets on their necklaces. Each woman was accompanied by her husband. Thus they looked so beautiful that Satī, Dākṣāyaṇī, was impelled to dress similarly and go to the sacrifice with her husband. That is the natural inclination of a woman.

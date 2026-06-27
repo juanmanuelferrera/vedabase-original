@@ -1,0 +1,12 @@
+### Bg 3.28
+
+> tattva-vit tu mahā-bāho
+> guṇa-karma-vibhāgayoḥ
+> guṇā guṇeṣu vartanta
+> iti matvā na sajjate
+
+*tattvavit*—the knower of the Absolute Truth; *tu*—but; *mahā-bāho*—O mighty-armed one; *guṇa-karma*—works under material influence; *vibhāgayoḥ*—differences; *guṇāḥ*—senses; *guṇeṣu*—in sense gratification; *vartante*—being engaged; *iti*—thus; *matvā*—thinking; *na*—never; *sajjate*—becomes attached.
+
+**One who is in knowledge of the Absolute Truth, O mighty-armed, does not engage himself in the senses and sense gratification, knowing well the differences between work in devotion and work for fruitive results.**
+
+The knower of the Absolute Truth is convinced of his awkward position in material association. He knows that he is part and parcel of the Supreme Personality of Godhead, Kṛṣṇa, and that his position should not be in the material creation. He knows his real identity as part and parcel of the Supreme, who is eternal bliss and knowledge, and he realizes that somehow or other he is entrapped in the material conception of life. In his pure state of existence he is meant to dovetail his activities in devotional service to the Supreme Personality of Godhead, Kṛṣṇa. He therefore engages himself in the activities of Kṛṣṇa consciousness and becomes naturally unattached to the activities of the material senses, which are all circumstantial and temporary. He knows that his material condition of life is under the supreme control of the Lord; consequently he is not disturbed by all kinds of material reactions, which he considers to be the mercy of the Lord. According to *Śrīmad-Bhāgavatam,* one who knows the Absolute Truth in three different features—namely Brahman, Paramātmā, and the Supreme Personality of Godhead—is called *tattvavit,* for he knows also his own factual position in relationship with the Supreme.

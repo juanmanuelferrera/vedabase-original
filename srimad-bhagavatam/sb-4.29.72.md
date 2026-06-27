@@ -1,0 +1,12 @@
+### SB 4.29.72
+
+> garbhe bālye 'py apauṣkalyād
+> ekādaśa-vidhaṁ tadā
+> liṅgaṁ na dṛśyate yūnaḥ
+> kuhvāṁ candramaso yathā
+
+*garbhe*—in the womb; *bālye*—in boyhood; *api*—also; *apauṣkalyāt*—because of immaturity; *ekādaśa*—the ten senses and the mind; *vidham*—in the form of; *tadā*—at that time; *liṅgam*—the subtle body or false ego; *na*—not; *dṛśyate*—is visible; *yūnaḥ*—of a youth; *kuhvām*—during the dark-moon night; *candramasaḥ*—the moon; *yathā*—as.
+
+**When one is a youth, all the ten senses and the mind are completely visible. However, in the mother's womb or in the boyhood state, the sense organs and the mind remain covered, just as the full moon is covered by the darkness of the dark-moon night.**
+
+When a living entity is within the womb, his gross body, the ten sense organs and the mind are not fully developed. At such a time the objects of the senses do not disturb him. In a dream a young man may experience the presence of a young woman because at that time the senses are active. Because of undeveloped senses, a child or boy will not see a young woman in his dreams. The senses are active in youth even when one dreams, and although there may be no young woman present, the senses may act and there may be a seminal discharge (nocturnal emission). The activities of the subtle and gross bodies depend on how developed conditions are. The example of the moon is very appropriate. On a dark-moon night, the full shining moon is still present, but it appears not to be present due to conditions. Similarly, the senses of the living entity are there, but they only become active when the gross body and the subtle body are developed. Unless the senses of the gross body are developed, they will not act on the subtle body. Similarly, because of the absence of desires in the subtle body, there may be no development in the gross body.

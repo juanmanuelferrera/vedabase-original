@@ -1,0 +1,12 @@
+### SB 1.13.50
+
+> niṣpāditaṁ deva-kṛtyam
+> avaśeṣaṁ pratīkṣate
+> tāvad yūyam avekṣadhvaṁ
+> bhaved yāvad iheśvaraḥ
+
+*niṣpāditam*—performed; *deva-kṛtyam*—what was to be done on behalf of the demigods; *avaśeṣam*—the rest; *pratīkṣate*—being awaited; *tāvat*—up to that time; *yūyam*—all of you Pāṇḍavas; *avekṣadhvam*—observe and wait; *bhavet*—may; *yāvat*—as long as; *iha*—in this world; *īśvaraḥ*—the Supreme Lord.
+
+**The Lord has already performed His duties to help the demigods, and He is awaiting the rest. You Pāṇḍavas may wait as long as the Lord is here on earth.**
+
+The Lord descends from His abode (Kṛṣṇaloka), the topmost planet in the spiritual sky, in order to help the demigod administrators of this material world when they are greatly vexed by the asuras, who are not only envious of the Lord but also of His devotees. As referred to above, the conditioned living beings contact material association by their own choice, dictated by a strong desire to lord it over the resources of the material world and become imitation lords of all they survey. Everyone is trying to become an imitation God; there is keen competition amongst such imitation gods, and such competitors are generally known as asuras. When there are too many asuras in the world, then it becomes a hell for those who are devotees of the Lord. Due to the growth of the asuras, the mass of people who are generally devoted to the Lord by nature and the pure devotees of the Lord, including the demigods in higher planets, pray to the Lord for relief, and the Lord either descends personally from His abode or deputes some of his devotees to remodel the fallen condition of human society, or even animal society. Such disruptions take place not only in the human society but also amongst animals, birds or other living beings, including the demigods in the higher planets. Lord Śrī Kṛṣṇa descended personally to vanquish asuras like Kaṁsa, Jarāsandha, Śiśupāla, etc., and during the reign of Mahārāja Yudhiṣṭhira almost all these asuras were killed by the Lord. Now he was awaiting the annihilation of His own dynasty, called the Yaduvaṁśa, who appeared by His will in this world. He wanted to take them away before His own departure to His eternal abode. Nārada, like Vidura, did not disclose the imminent annihilation of the Yadu dynasty, but indirectly gave a hint to the King and his brothers to wait till the incident happens and the Lord departs.

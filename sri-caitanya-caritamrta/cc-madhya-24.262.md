@@ -1,0 +1,17 @@
+### CC Madhya 24.262
+
+> āmi tomāya bahu anna pāṭhāimu dine
+> sei anna labe, yata khāo dui-jane"
+
+*āmi*—I; *tomāya*—for you; *bahu*—much; *anna*—food; *pāṭhāimu*—shall send; *dine*—every day; *sei*—that; *anna*—food; *labe*—you shall take; *yata*—whatever; *khāo*—you can eat; *dui-jane*—both of you.
+
+**"Nārada Muni continued, 'I shall send sufficient food to you both every day. You can take as much food as you want.'**
+
+When a person takes to Kṛṣṇa consciousness, there is no need to care for material necessities. Kṛṣṇa says that He personally carries all the necessities to His devotees.
+
+> ananyāś cintayanto māṁ
+> ye janāḥ paryupāsate
+> teṣāṁ nityābhiyuktānāṁ
+> yoga-kṣemaṁ vahāmy aham
+
+"Those who worship Me with love and devotion, meditating on My transcendental form-to them I carry what they lack and preserve what they have." [[bg/9/22|(Bg. 9.22)]] Why should one be anxious about the necessities of life? The principle should be that one should not want more than what is absolutely necessary. Nārada Muni advises the hunter to accept only what is absolutely necessary for him and his wife. The devotee should always be alert to consume only those things that he absolutely requires and not create unnecessary needs.

@@ -1,0 +1,14 @@
+### SB 4.6.33
+
+> tasmin mahā-yogamaye
+> mumukṣu-śaraṇe surāḥ
+> dadṛśuḥ śivam āsīnaṁ
+> tyaktāmarṣam ivāntakam
+
+*tasmin*—under that tree; *mahā-yoga-maye*—having many sages engaged in meditation on the Supreme; *mumukṣu*—of those who desire liberation; *śaraṇe*—the shelter; *surāḥ*—the demigods; *dadṛśuḥ*—saw; *śivam*—Lord Śiva; *āsīnam*—seated; *tyakta-amarṣam*—having given up anger; *iva*—as; *antakam*—eternal time.
+
+**The demigods saw Lord Śiva sitting under that tree, which was competent to give perfection to mystic yogīs and deliver all people. As grave as time eternal, he appeared to have given up all anger.**
+
+In this verse the word mahā-yoga-maye is very significant. Yoga means meditation on the Supreme Personality of Godhead, and mahā-yoga means those who engage in the devotional service of Viṣṇu. Meditation means remembering, smaraṇam. There are nine different kinds of devotional service, of which smaraṇam is one process; the yogī remembers the form of Viṣṇu within his heart. Thus there were many devotees engaged in meditation on Lord Viṣṇu under the big banyan tree.
+
+The Sanskrit word mahā is derived from the affix mahat. This affix is used when there is a great number or quantity, so mahā-yoga indicates that there were many great yogīs and devotees meditating on the form of Lord Viṣṇu. Generally such meditators are desirous of liberation from material bondage, and they are promoted to the spiritual world to one of the Vaikuṇṭhas. Liberation means freedom from material bondage or nescience. In the material world we are suffering life after life because of our bodily identification, and liberation is freedom from that miserable condition of life.

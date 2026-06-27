@@ -1,0 +1,19 @@
+### CC Adi 9.43
+
+> prāṇinām upakārāya
+> yad eveha paratra ca
+> karmaṇā manasā vācā
+> tad eva mati-mān bhajet
+
+*prāṇinām*—of all living entities; *upakārāya*—for the benefit; *yat*—whichever; *eva*—certainly; *iha*—in this world or in this life; *paratra*—in the next life; *ca*—and; *karmaṇā*—by work; *manasā*—by the mind; *vācā*—by words; *tat*—that; *eva*—certainly; *mati-mān*—an intelligent man; *bhajet*—must act.
+
+**“ 'By his work, thoughts and words, an intelligent man must perform actions which will be beneficial for all living entities in this life and in the next.'**
+
+Unfortunately, people in general do not know what is to take place in the next life. To prepare oneself for his next life is common sense, and it is a principle of the Vedic civilization, but presently people throughout the world do not believe in a next life. Even influential professors and other educators say that as soon as the body is finished, everything is finished. This atheistic philosophy is killing human civilization. People are irresponsibly performing all sorts of sinful activities, and thus the privilege of the human life is being taken away by the educational propaganda of the so-called leaders. Actually it is a fact that this life is meant for preparation for the next life; by evolution one has come through many species, or forms, and this human form of life is an opportunity to promote oneself to a better life. This is explained in the *Bhagavad-gītā* [[bg/9/25|(Bg. 9.25)]]:
+
+> yānti deva-vratā devān
+> pitṝn yānti pitṛ-vratāḥ
+> bhūtāni yānti bhūtejyā
+> yānti mad-yājino 'pi mām
+
+"Those who worship the demigods will take birth among the demigods;those who worship ghosts and spirits will take birth among such beings; those who worship ancestors go to the ancestors; and those who worship Me will live with Me." Therefore, one may promote himself to the higher planetary systems, which are the residence of the demigods, one can promote himself to the Pitṛloka, one can remain on earth, or one can also go back home, back to Godhead. This is further confirmed elsewhere in the *Bhagavad-gītā* [[bg/4/9|(Bg. 4.9)]]: *tyaktvā dehaṁ punar janma naiti mām eti so 'rjuna.* After giving up the body, one who knows Kṛṣṇa in truth does not come back again to this world to accept a material body, but he goes back home, back to Godhead. This knowledge is in the *śāstras,* and people should be given the opportunity to understand it. Even if one is not able to go back to Godhead in one life, the Vedic civilization at least gives one the opportunity to be promoted to the higher planetary systems, where the demigods live, and not glide down again to animal life. At present, people do not understand this knowledge, although it constitutes a great science, for they are uneducated and trained not to accept it. This is the horrible condition of modern human society. As such, the Kṛṣṇa consciousness movement is the only hope to direct the attention of intelligent men to a greater benefit in life.

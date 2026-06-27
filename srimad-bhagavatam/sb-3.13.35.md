@@ -1,0 +1,12 @@
+### SB 3.13.35
+
+> rūpaṁ tavaitan nanu duṣkṛtātmanāṁ
+> durdarśanaṁ deva yad adhvarātmakam
+> chandāṁsi yasya tvaci barhi-romasv
+> ājyaṁ dṛśi tv aṅghriṣu cātur-hotram
+
+*rūpam*—form; *tava*—Your; *etat*—this; *nanu*—but; *duṣkṛta-ātmanām*—of souls who are simply miscreants; *durdarśanam*—very difficult to see; *deva*—O Lord; *yat*—that; *adhvara-ātmakam*—worshipable by performances of sacrifice; *chandāṁsi*—the Gāyatrī *mantra* and others; *yasya*—whose; *tvaci*—touch of the skin; *barhiḥ*—sacred grass called *kuśa*; *romasu*—hairs on the body; *ājyam*—clarified butter; *dṛśi*—in the eyes; *tu*—also; *aṅghriṣu*—on the four legs; *cātuḥ-hotram*—four kinds of fruitive activities.
+
+**O Lord, Your form is worshipable by performances of sacrifice, but souls who are simply miscreants are unable to see it. All the Vedic hymns, Gāyatrī and others, are in the touch of Your skin. In Your bodily hairs is the kuśa grass, in Your eyes is the clarified butter, and in Your four legs are the four kinds of fruitive activities.**
+
+There is a class of miscreants who are known in the words of *Bhagavad-gītā* as *veda-vādī,* or so-called strict followers of the *Vedas.* They do not believe in the incarnation of the Lord, what to speak of the Lord's incarnation as the worshipable hog. They describe worship of the different forms or incarnations of the Lord as anthropomorphism. In the estimation of *Śrīmad-Bhāgavatam* these men are miscreants, and in *Bhagavad-gītā* [[bg/7/15|(Bg. 7.15)]] they are called not only miscreants but also fools and the lowest of mankind, and it is said that their knowledge has been plundered by illusion due to their atheistic temperament. For such condemned persons, the Lord's incarnation as the gigantic hog is invisible. These strict followers of the *Vedas* who despise the eternal forms of the Lord may know from *Śrīmad-Bhāgavatam* that such incarnations are personified forms of the *Vedas.* Lord Boar's skin, His eyes and His bodily hair holes are all described here as different parts of the *Vedas.* He is therefore the personified form of the Vedic hymns, and specifically the Gāyatrī *mantra.*

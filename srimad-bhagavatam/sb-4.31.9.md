@@ -1,0 +1,15 @@
+### SB 4.31.9
+
+> nārada uvāca
+> taj janma tāni karmāṇi
+> tad āyus tan mano vacaḥ
+> nṛṇāṁ yena hi viśvātmā
+> sevyate harir īśvaraḥ
+
+*nāradaḥ uvāca*—Nārada said; *tat janma*—that birth; *tāni*—those; *karmāṇi*—fruitive activities; *tat*—that; *āyuḥ*—span of life; *tat*—that; *manaḥ*—mind; *vacaḥ*—words; *nṛṇām*—of human beings; *yena*—by which; *hi*—certainly; *viśva-ātmā*—the Supersoul; *sevyate*—is served; *hariḥ*—the Supreme Personality of Godhead; *īśvaraḥ*—the supreme controller.
+
+**The great sage Nārada said: When a living entity is born to engage in the devotional service of the Supreme Personality of Godhead, who is the supreme controller, his birth, all his fruitive activities, his lifespan, his mind and his words are all factually perfect.**
+
+In this verse the word nṛṇām is very important. There are many other births besides human birth, but Nārada Muni is herein especially speaking of human birth. Amongst human beings there are different types of men. Of these, those who are advanced in spiritual consciousness, or Kṛṣṇa consciousness, are called Āryans. Amongst Āryans, one who engages in the devotional service of the Lord is most successful in life. The word nṛṇām indicates that lower animals do not engage in the devotional service of the Lord. In perfect human society everyone should engage in the devotional service of the Lord. It does not matter whether one is born poor or rich, black or white. There may be so many material distinctions for one who takes birth in human society, but everyone should engage in the Lord's devotional service. At the present moment civilized nations have given up God consciousness for economic development. They are actually no longer interested in advancing in God consciousness. Formerly their forefathers were engaged in executing religious principles. Whether one is Hindu, Muslim, Buddhist, Jewish or whatever, everyone has some religious institution. Real religion, however, means becoming God conscious. It is particularly mentioned herein that birth is successful if an interest in Kṛṣṇa consciousness is taken. Activity is successful if it results in serving the Lord. Philosophical speculation or mental speculation is successful when engaged in understanding the Supreme Personality of Godhead. The senses are worth possessing when engaged in the service of the Lord. Actually, devotional service means engaging the senses in the service of the Lord. At the present moment our senses are not purified; therefore our senses are engaged in the service of society, friendship, love, politics, sociology and so on. However, when the senses are engaged in the service of the Lord, one attains bhakti, or devotional service. In the next verse these matters will be more clearly explained.
+
+When one great devotee of Lord Caitanya Mahāprabhu saw the Lord, he said that all his desires were fulfilled. He said, "Today everything is auspicious. Today my birthplace and neighborhood are completely glorified. Today my senses, from my eyes down to my toes, are fortunate. Today my life is successful because I have been able to see the lotus feet that are worshiped by the goddess of fortune."

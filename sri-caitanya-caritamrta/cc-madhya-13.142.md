@@ -1,0 +1,12 @@
+### CC Madhya 13.142
+
+> deha-smṛti nāhi yāra, saṁsāra-kūpa kāhāṅ tāra,
+> tāhā haite nā cāhe uddhāra
+> viraha-samudra-jale, kāma-timiṅgile gile,
+> gopī-gaṇe neha' tāra pāra
+
+*deha-smṛti*—bodily concept of life; *nāhi*—not; *yāra*—one whose; *saṁsāra-kūpa*—blind well of material life; *kāhāṅ*—where is; *tāra*—his; *tāhā haite*—from that; *nā*—does not; *cāhe*—want; *uddhāra*—liberation; *viraha-samudra-jale*—in the water of the ocean of separation; *kāma-timiṅgile*—the transcendental Cupid in the form of *timiṅgila* fish; *gile*—swallow; *gopī-gaṇe*—the *gopīs*; *neha'*—please take out; *tāra pāra*—beyond that.
+
+**Śrī Caitanya Mahāprabhu continued: " 'The gopīs are fallen in the great ocean of separation, and they are being devoured by the timiṅgila fish, which represent their ambition to serve You. The gopīs are to be delivered from the mouths of these timiṅgila fish, for they are pure devotees. Since they have no material conception of life, why should they aspire for liberation? The gopīs do not want that liberation desired by yogīs and jñānīs, for they are already liberated from the ocean of material existence.**
+
+The bodily conception is created by the desire for material enjoyment. This is called *vipada-smṛti,* which is the opposite of real life. The living entity is eternally the servant of Kṛṣṇa, but when he desires to enjoy the material world, he cannot progress in spiritual life. One can never be happy by advancing materially. This is also stated in *Śrīmad-Bhāgavatam* (7.5.30): *adānta-gobhir viśatāṁ tamisraṁ punaḥ-punaś-carvita-carvaṇānām.* Through the uncontrolled senses, one may advance one's hellish condition. He may continue to chew the chewed; that is, repeatedly accept birth and death. The conditioned souls use the duration of life between birth and death only to engage in the same hackneyed activities-eating, sleeping, mating and defending. In the lower animal species, we find the same activities. Since these activities are repeated, engaging in them is like chewing that which has already been chewed. If one can give up his ambition to engage in hackneyed material life and take to Kṛṣṇa consciousness instead, he will be liberated from the stringent laws of material nature. One does not need to make a separate attempt to become liberated. If one simply engages in the service of the Lord, he will be liberated automatically. As Śrīla Bilvamaṅgala Ṭhākura therefore says, *muktiḥ svayaṁ mukulitāñjali sevate 'smān:* "Liberation stands before me with folded hands, begging to serve me."

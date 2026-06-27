@@ -1,0 +1,11 @@
+### CC Madhya 21.137
+
+> sanātana, kṛṣṇa-mādhurya—amṛtera sindhu
+> mora mana—sannipāti, saba pite kare mati,
+> durdaiva-vaidya nā deya eka bindu
+
+*sanātana*—O My dear Sanātana; *kṛṣṇa-mādhurya*—the sweetness of Lord Kṛṣṇa; *amṛtera sindhu*—an ocean of ambrosia; *mora mana*—my mind; *sannipāti*—a disease of convulsions; *saba*—all; *pite*—to drink; *kare*—does; *mati*—desire; *durdaiva-vaidya*—a physician who suppresses; *nā*—not; *deya*—gives; *eka*—one; *bindu*—drop.
+
+**"My dear Sanātana, the sweetness of Kṛṣṇa's personality is just like an ocean of ambrosia. Although My mind is now afflicted by convulsive diseases and I wish to drink that entire ocean, the repressive physician does not allow Me to drink even one drop.**
+
+When there is a combination of *kapha, pitta* and *vāyu,* the three bodily elements, there occurs *sannipāti,* or a convulsive disease. "This disease is caused by the personal features of Lord Kṛṣṇa. The three elements are the beauty of Kṛṣṇa's body, the beauty of His face, and the beauty of His smile. Stricken by these three beauties, My mind goes into convulsions. It wishes to drink the ocean of Kṛṣṇa's beauty, but because I am undergoing convulsions, My physician, who is Śrī Kṛṣṇa Himself, does not even allow Me to take a drop of water from that ocean." Śrī Caitanya Mahāprabhu was ecstatic in this way because He was presenting Himself in the mood of the *gopīs.* The *gopīs* wanted to drink the ocean of sweetness arising from the bodily features of Kṛṣṇa, but Kṛṣṇa did not allow them to come near. Consequently their desire to meet Kṛṣṇa increased, and being unable to drink the ambrosia of Kṛṣṇa's bodily features, they became very unhappy.

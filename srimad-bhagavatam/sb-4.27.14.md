@@ -1,0 +1,14 @@
+### SB 4.27.14
+
+> gandharvyas tādṛśīr asya
+> maithunyaś ca sitāsitāḥ
+> parivṛttyā vilumpanti
+> sarva-kāma-vinirmitām
+
+*gandharvyaḥ*—Gandharvīs; *tādṛśīḥ*—similarly; *asya*—of Caṇḍavega; *maithunyaḥ*—companions for sexual intercourse; *ca*—also; *sita*—white; *asitāḥ*—black; *parivṛttyā*—by surrounding; *vilumpanti*—they plundered; *sarva-kāma*—all kinds of desirable objects; *vinirmitām*—manufactured.
+
+**Along with Caṇḍavega were as many female Gandharvīs as there were soldiers, and all of them repetitively plundered all the paraphernalia for sense enjoyment.**
+
+The days have been compared to the soldiers of Caṇḍavega. Night is generally a time for sex enjoyment. Days are considered to be white, and nights are considered to be black, or, from another point of view, there are two kinds of nights—black nights and white nights. All these days and nights combine to pass away our span of life and everything we manufacture for sense gratification. Material activity means manufacturing things for sense gratification. Scientists are conducting research to find out how we can satisfy our senses more and more elaborately. In this Kali-yuga, the demoniac mentality is employed in manufacturing various machines to facilitate the process of sense gratification. There are so many machines for ordinary household activities. There are machines for washing dishes, cleansing the floor, shaving, clipping hair—today everything is done by machine. All these facilities for sense gratification are described in this verse as sarva-kāma-vinirmitām. The time factor, however, is so strong that not only is our span of life being expended, but all the machines and facilities for sense gratification are deteriorating. Therefore in this verse the word vilumpanti (plundering) is used. Everything is being plundered from the very beginning of our lives.
+
+This plundering of our possessions and life-span begins with the day of our birth. One day will come when death will finish everything, and the living entity will have to enter another body to begin another chapter of life and again begin the cycle of material sense gratification. Prahlāda Mahārāja describes this process as punaḥ punaś carvita-carvaṇānām (Bhāg. 7.5.30). Materialistic life means chewing the chewed again and again. The central point of material life is sense gratification. In different types of bodies, the living entity enjoys various senses, and through creating various types of facilities, he chews the chewed. Whether we squeeze sugar out of the sugarcane with our teeth or a machine, the result is the same—sugar cane juice. We may discover many ways to squeeze the juice out of the sugarcane, but the result is the same.

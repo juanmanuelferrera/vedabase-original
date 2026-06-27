@@ -1,0 +1,22 @@
+### Bg 2.51
+
+> karma-jaṁ buddhi-yuktā hi
+> phalaṁ tyaktvā manīṣiṇaḥ
+> janma-bandha-vinirmuktāḥ
+> padaṁ gacchanty anāmayam
+
+*karma-jam*—because of fruitive activities; *buddhi-yuktāḥ*—being done in devotional service; *hi*—certainly; *phalam*—results; *tyaktvā*—giving up; *manīṣiṇaḥ*—devotees who are great sages; *janma-bandha*—the bondage of birth and death; *vinirmuktāḥ*—liberated souls; *padam*—position; *gacchanti*—reach; *anāmayam*—without miseries.
+
+**The wise, engaged in devotional service, take refuge in the Lord, and free themselves from the cycle of birth and death by renouncing the fruits of action in the material world. In this way they can attain that state beyond all miseries.**
+
+The liberated living entities seek that place where there are no material miseries. The *Bhāgavatam* says:
+
+> samāśritā ye padapallava-plavaṁ
+> mahat-padaṁ puṇya-yaśo murāreḥ
+> bhāvambudhir vatsa-padaṁ paraṁ padaṁ
+> paraṁ padaṁ yad vipadāṁ na teṣām
+> (Bhāg. 10.14.58)
+
+"For one who has accepted the boat of the lotus feet of the Lord, who is the shelter of the cosmic manifestation and is famous as Mukunda or the giver of *mukti,* the ocean of the material world is like the water contained in a calf's hoofprint. *Param padam,* or the place where there are no material miseries, or Vaikuṇṭha, is his goal, not the place where there is danger in every step of life."
+
+Owing to ignorance, one does not know that this material world is a miserable place where there are dangers at every step. Out of ignorance only, less intelligent persons try to adjust to the situation by fruitive activities, thinking that resultant actions will make them happy. They do not know that no kind of material body anywhere within the universe can give life without miseries. The miseries of life, namely birth, death, old age and diseases, are present everywhere within the material world. But one who understands his real constitutional position as the eternal servitor of the Lord, and thus knows the position of the Personality of Godhead, engages himself in the transcendental loving service of the Lord. Consequently he becomes qualified to enter into the Vaikuṇṭha planets, where there is neither material, miserable life, nor the influence of time and death. To know one's constitutional position means to know also the sublime position of the Lord. One who wrongly thinks that the living entity's position and the Lord's position are on the same level is to be understood to be in darkness and therefore unable to engage himself in the devotional service of the Lord. He becomes a lord himself and thus paves the way for the repetition of birth and death. But one who, understanding that his position is to serve, transfers himself to the service of the Lord, at once becomes eligible for Vaikuṇṭhaloka. Service for the cause of the Lord is called *karma-yoga* or *buddhi-yoga,* or in plain words, devotional service to the Lord.

@@ -1,0 +1,8 @@
+### CC Antya 7.150
+
+> paṇḍitera ṭhāñi cāhe mantrādi śikhite
+> paṇḍita kahe,—"ei karma nahe āmā haite
+
+*paṇḍitera ṭhāñi*—from Gadādhara Paṇḍita; *cāhe*—wanted; *mantra-ādi śikhite*—to be initiated; *paṇḍita kahe*—Gadādhara Paṇḍita said; *ei karma*—this work; *nahe āmā haite*—is not possible for me.
+
+**Vallabha Bhaṭṭa wanted to be initiated by Gadādhara Paṇḍita, but Gadādhara Paṇḍita refused, saying, "The work of acting as a spiritual master is not possible for me.**

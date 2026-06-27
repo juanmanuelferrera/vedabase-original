@@ -1,0 +1,14 @@
+### Bg 6.41
+
+> prāpya puṇya-kṛtāṁ lokān
+> uṣitvā śāśvatīḥ samāḥ
+> śucīnāṁ śrīmatāṁ gehe
+> yoga-bhraṣṭo 'bhijāyate
+
+*prāpya*—after achieving; *puṇya-kṛtām*—of those who performed pious activities; *lokān*—planets; *uṣitvā*—after dwelling; *śāśvatīḥ*—many; *samāḥ*—years; *śucīnām*—of the pious; *śrīmatām*—of the prosperous; *gehe*—in the house of; *yoga-bhraṣṭaḥ*—one who is fallen from the path of self-realization; *abhijāyate*—takes his birth.
+
+**The unsuccessful yogī, after many, many years of enjoyment on the planets of the pious living entities, is born into a family of righteous people, or into a family of rich aristocracy.**
+
+The unsuccessful *yogīs* are divided into two classes: one is fallen after very little progress, and one is fallen after long practice of *yoga.* The *yogī* who falls after a short period of practice goes to the higher planets where pious living entities are allowed to enter. After prolonged life there, he is sent back again to this planet, to take birth in the family of a righteous *brāhmaṇa vaiṣṇava* or of aristocratic merchants.
+
+The real purpose of *yoga* practice is to achieve the highest perfection of Kṛṣṇa consciousness. But those who do not persevere to such an extent and fail due to material allurements are allowed, by the grace of the Lord, to make full utilization of their material propensities. And after that, they are given opportunities to live prosperous lives in righteous or aristocratic families. Those who are born in such families may take advantage of the facilities and try to elevate themselves to full Kṛṣṇa consciousness.

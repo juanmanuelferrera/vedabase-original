@@ -1,0 +1,12 @@
+### SB 3.19.37
+
+> yo vai hiraṇyākṣa-vadhaṁ mahādbhutaṁ
+> vikrīḍitaṁ kāraṇa-sūkarātmanaḥ
+> śṛṇoti gāyaty anumodate 'ñjasā
+> vimucyate brahma-vadhād api dvijāḥ
+
+*yaḥ*—he who; *vai*—indeed; *hiraṇyākṣa-vadham*—of the killing of Hiraṇyākṣa; *mahā-adbhutam*—most wonderful; *vikrīḍitam*—pastime; *kāraṇa*—for reasons like raising the earth from the ocean; *sūkara*—appearing in the form of a boar; *ātmanaḥ*—of the Supreme Personality of Godhead; *śṛṇoti*—hears; *gāyati*—chants; *anumodate*—takes pleasure; *añjasā*—at once; *vimucyate*—becomes freed; *brahma-vadhāt*—from the sin of killing a *brāhmaṇa*; *api*—even; *dvijāḥ*—O *brāhmaṇas.*
+
+**O brāhmaṇas, anyone who hears, chants, or takes pleasure in the wonderful narration of the killing of the Hiraṇyākṣa demon by the Lord, who appeared as the first boar in order to deliver the world, is at once relieved of the results of sinful activities, even the killing of a brāhmaṇa.**
+
+Since the Personality of Godhead is in the absolute position, there is no difference between His pastimes and His personality. Anyone who hears about the pastimes of the Lord associates with the Lord directly, and one who associates directly with the Lord is certainly freed from all sinful activities, even to the extent of the killing of a *brāhmaṇa,* which is considered the most sinful activity in the material world. One should be very eager to hear about the activities of the Lord from the bona fide source, the pure devotee. If one simply gives aural reception to the narration and accepts the glories of the Lord, then he is qualified. The impersonalist philosophers cannot understand the activities of the Lord. They think that all His activities are *māyā;* therefore they are called Māyāvādīs. Since everything to them is *māyā,* these narrations are not for them. Some impersonalists are reluctant to hear *Śrīmad-Bhāgavatam,* although many of them are now taking an interest in it just for monetary gain. Actually, however, they have no faith. On the contrary, they describe it in their own way. We should not hear, therefore, from the Māyāvādīs. We have to hear from Sūta Gosvāmī or Maitreya, who actually present the narrations as they are, and only then can we relish the pastimes of the Lord; otherwise the effects on the neophyte audience will be poisonous.

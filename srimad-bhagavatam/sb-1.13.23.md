@@ -1,0 +1,12 @@
+### SB 1.13.23
+
+> aho mahīyasī jantor
+> jīvitāśā yathā bhavān
+> bhīmāpavarjitaṁ piṇḍam
+> ādatte gṛha-pālavat
+
+*aho*—alas; *mahīyasī*—powerful; *jantoḥ*—of the living beings; *jīvita-āśā*—hope for life; *yathā*—as much as; *bhavān*—you are; *bhīma*—of Bhīmasena (a brother of Yudhiṣṭhira's); *apavarjitam*—remnants; *piṇḍam*—foodstuff; *ādatte*—eaten by; *gṛha-pāla-vat*—like a household dog.
+
+**Alas, how powerful are the hopes of a living being to continue his life. Verily, you are living just like a household dog and are eating remnants of food given by Bhīma.**
+
+A sādhu should never flatter kings or rich men to live comfortably at their cost. A sādhu is to speak to the householders about the naked truth of life so that they may come to their senses about the precarious life in material existence. Dhṛtarāṣṭra is a typical example of an attached old man in household life. He had become a pauper in the true sense, yet he wanted to live comfortably in the house of the Pāṇḍavas, of whom Bhīma especially is mentioned because personally he killed two prominent sons of Dhṛtarāṣṭra, namely Duryodhana and Duḥśāsana. These two sons were very much dear to him for their notorious and nefarious activities, and Bhīma is particularly pointed out because he killed these two pet sons. Why was Dhṛtarāṣṭra living there at the house of the Pāṇḍavas? Because he wanted to continue his life comfortably, even at the risk of all humiliation. Vidura, therefore, was astonished how powerful is the urge to continue life. This sense of continuing one’s life indicates that a living being is eternally a living entity, and he does not want to change his bodily habitation. The foolish man does not know that a particular term of bodily existence is awarded to him to undergo a term of imprisonment, and the human body is awarded, after many, many births and deaths, as a chance for self-realization to go back home, back to Godhead. But persons like Dhṛtarāṣṭra try to make plans to live there in a comfortable position with profit and interest, for they do not see things as they are. Dhṛtarāṣṭra is blind and continues to hope to live comfortably in the midst of all kinds of reverses of life. A sādhu like Vidura is meant to awaken such blind persons and thus help them go back to Godhead, where life is eternal. Once going there, no one wants to come back to this material world of miseries. We can just imagine how responsible a task is entrusted to a sādhu like Mahātmā Vidura.

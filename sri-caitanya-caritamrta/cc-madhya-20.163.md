@@ -1,0 +1,12 @@
+### CC Madhya 20.163
+
+> athavā bahunaitena
+> kiṁ jñātena tavārjuna
+> viṣṭabhyāham idaṁ kṛtsnam
+> ekāṁśena sthito jagat
+
+*athavā*—or; *bahunā*—much; *etena*—with this; *kim*—what use; *jñātena*—being known; *tava*—by you; *arjuna*—O Arjuna; *viṣṭabhya*—pervading; *aham*—I; *idam*—this; *kṛtsnam*—entire; *eka-aṁśena*—with one portion; *sthitaḥ*—situated; *jagat*—universe.
+
+**“ 'But what need is there, Arjuna, for all this detailed knowledge? With a single fragment of Myself, I pervade and support this entire universe.'**
+
+This is a quotation from *Bhagavad-gītā* [[bg/10/42|(Bg. 10.42)]].

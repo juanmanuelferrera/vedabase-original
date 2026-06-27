@@ -1,0 +1,21 @@
+### SB 3.29.11-12
+
+> mad-guṇa-śruti-mātreṇa
+> mayi sarva-guhāśaye
+> mano-gatir avicchinnā
+> yathā gaṅgāmbhaso 'mbudhau
+
+> lakṣaṇaṁ bhakti-yogasya
+> nirguṇasya hy udāhṛtam
+> ahaituky avyavahitā
+> yā bhaktiḥ puruṣottame
+
+*mat*—of Me; *guṇa*—qualities; *śruti*—by hearing; *mātreṇa*—just; *mayi*—towards Me; *sarva-guhā-āśaye*—residing in everyone's heart; *manaḥ-gatiḥ*—the heart's course; *avicchinnā*—continuous; *yathā*—as; *gaṅgā*—of the Ganges; *ambhasaḥ*—of the water; *ambudhau*—towards the ocean; *lakṣaṇam*—the manifestation; *bhakti-yogasya*—of devotional service; *nirguṇasya*—unadulterated; *hi*—indeed; *udāhṛtam*—exhibited; *ahaitukī*—causeless; *avyavahitā*—not separated; *yā*—which; *bhaktiḥ*—devotional service; *puruṣa-uttame*—towards the Supreme Personality of Godhead.
+
+**The manifestation of unadulterated devotional service is exhibited when one's mind is at once attracted to hearing the transcendental name and qualities of the Supreme Personality of Godhead, who is residing in everyone's heart. Just as the water of the Ganges flows naturally down towards the ocean, such devotional ecstasy, uninterrupted by any material condition, flows towards the Supreme Lord.**
+
+The basic principle of this unadulterated, pure devotional service is love of Godhead. *Mad-guṇa-śruti-mātreṇa* means "just after hearing about the transcendental qualities of the Supreme Personality of Godhead." These qualities are called *nirguṇa.* The Supreme Lord is uncontaminated by the modes of material nature; therefore He is attractive to the pure devotee. There is no need to practice meditation to attain such attraction; the pure devotee is already in the transcendental stage, and the affinity between him and the Supreme Personality of Godhead is natural and is compared to the Ganges water flowing towards the sea. The flow of the Ganges water cannot be stopped by any condition; similarly, a pure devotee's attraction for the transcendental name, form and pastimes of the Supreme Godhead cannot be stopped by any material condition. The word *avicchinnā,* "without interruptions," is very important in this connection. No material condition can stop the flow of the devotional service of a pure devotee.
+
+The word *ahaitukī* means "without reason." A pure devotee does not render loving service to the Personality of Godhead for any cause or for any benefit, material or spiritual. This is the first symptom of unalloyed devotion. *Anyābhilāṣitā-śūnyam:* [[cc/madhya/19/167|[Cc. Madhya 19.167] ]] he has no desire to fulfill by rendering devotional service. Such devotional service is meant for the *puruṣottama,* the Supreme Personality, and not for anyone else. Sometimes pseudodevotees show devotion to many demigods, thinking the forms of the demigods to be the same as the Supreme Personality of Godhead's form. It is specifically mentioned herein, however, that *bhakti,* devotional service, is meant only for the Supreme Personality of Godhead, Nārāyaṇa, Viṣṇu, or Kṛṣṇa, not for anyone else.
+
+*Avyavahitā* means "without cessation." A pure devotee must engage in the service of the Lord twenty-four hours a day, without cessation; his life is so molded that at every minute and every second he engages in some sort of devotional service to the Supreme Personality of Godhead. Another meaning of the word *avyavahitā* is that the interest of the devotee and the interest of the Supreme Lord are on the same level. The devotee has no interest but to fulfill the transcendental desire of the Supreme Lord. Such spontaneous service unto the Supreme Lord is transcendental and is never contaminated by the material modes of nature. These are the symptoms of pure devotional service, which is free from all contamination of material nature.

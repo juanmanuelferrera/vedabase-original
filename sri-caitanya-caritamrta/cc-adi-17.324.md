@@ -1,0 +1,8 @@
+### CC Adi 17.324
+
+> ekādaśe 'nityānanda-śākhā-vivaraṇa'
+> dvādaśe 'advaita-skandha śākhāra varṇana'
+
+*ekādaśe*—in the Eleventh Chapter; *nityānanda-śākhā*—of the branches of Śrī Nityānanda Prabhu; *vivaraṇa*—description; *dvādaśe*—in the Twelfth Chapter; *advaita-skandha*—the trunk known as Advaita Prabhu; *śākhāra*—of the branch; *varṇana*—description.
+
+**The Eleventh Chapter describes the branch called Śrī Nityānanda Prabhu. The Twelfth Chapter describes the branch called Śrī Advaita Prabhu.**

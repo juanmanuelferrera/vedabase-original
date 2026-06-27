@@ -1,0 +1,8 @@
+### CC Madhya 15.215
+
+> mudga-baḍā, māṣa-baḍā, kalā-baḍā miṣṭa
+> kṣīra-puli, nārikela-pulī āra yata piṣṭa
+
+*mudga-baḍā*—fried cakes made of mung *dhal*; *māṣa-baḍā*—fried cakes made of *urd dhal*; *kalā-baḍā*—fried cakes made of banana; *miṣṭa*—very sweet; *kṣīra-puli*—cakes made with sweet rice; *nārikela-pulī*—coconut cake; *āra*—and; *yata*—varieties of; *piṣṭa*—cakes.
+
+**There were bharats made of mung dhal, of urd dhal and of sweet bananas, and there was sweet rice cake, coconut cake and various other cakes.**

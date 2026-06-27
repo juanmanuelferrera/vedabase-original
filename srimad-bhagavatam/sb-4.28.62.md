@@ -1,0 +1,12 @@
+### SB 4.28.62
+
+> ahaṁ bhavān na cānyas tvaṁ
+> tvam evāhaṁ vicakṣva bhoḥ
+> na nau paśyanti kavayaś
+> chidraṁ jātu manāg api
+
+*aham*—I; *bhavān*—you; *na*—not; *ca*—also; *anyaḥ*—different; *tvam*—you; *tvam*—you; *eva*—certainly; *aham*—as I am; *vicakṣva*—just observe; *bhoḥ*—My dear friend; *na*—not; *nau*—of us; *paśyanti*—do observe; *kavayaḥ*—learned scholars; *chidram*—faulty differentiation; *jātu*—at any time; *manāk*—in a small degree; *api*—even.
+
+**My dear friend, I, the Supersoul, and you, the individual soul, are not different in quality, for we are both spiritual. In fact, My dear friend, you are qualitatively not different from Me in your constitutional position. Just try to consider this subject. Those who are actually advanced scholars, who are in knowledge, do not find any qualitative difference between you and Me.**
+
+Both the Supreme Personality of Godhead and the living entity are qualitatively one. There is no factual difference between the two. The Māyāvādī philosophers are again and again defeated by the illusory energy because they think that there is no separation between the Supersoul and the individual soul or that there is no Supersoul. They are also misled in thinking that everything is the Supersoul. However, those who are kavayaḥ, learned scholars, actually know the facts. They do not commit such mistakes. They know that God and the individual soul are one in quality, but that the individual soul falls under the clutches of māyā, whereas the Supersoul, the Supreme Personality of Godhead, is the controller of māyā. Māyā is the creation of the Supreme Lord (mayā sṛṣṭā); therefore the Supreme Lord is the controller of māyā. Although one in quality with the Supreme Lord, the individual soul is under the control of māyā. Māyāvādī philosophers cannot distinguish between the controller and the controlled.

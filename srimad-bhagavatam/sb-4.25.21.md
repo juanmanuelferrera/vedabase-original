@@ -1,0 +1,14 @@
+### SB 4.25.21
+
+> pañca-śīrṣāhinā guptāṁ
+> pratīhāreṇa sarvataḥ
+> anveṣamāṇām ṛṣabham
+> aprauḍhāṁ kāma-rūpiṇīm
+
+*pañca*—five; *śīrṣa*—heads; *ahinā*—by a snake; *guptām*—protected; *pratīhāreṇa*—by a bodyguard; *sarvataḥ*—all around; *anveṣamāṇām*—one who is searching after; *ṛṣabham*—a husband; *aprauḍhām*—not very old; *kāma-rūpiṇīm*—very attractive to fulfill lusty desires.
+
+**The woman was protected on all sides by a five-hooded snake. She was very beautiful and young, and she appeared very anxious to find a suitable husband.**
+
+The vital force of a living entity includes the five kinds of air working within the body, which are known as prāṇa, apāna, vyāna, samāna and udāna. The vital force is compared to a serpent because a serpent can live by simply drinking air. The vital force carried by the air is described as the pratīhāra, or the bodyguard. Without the vital force one cannot live for a moment. Indeed, all the senses are working under the protection of the vital force.
+
+The woman, who represents intelligence, was searching after a husband. This indicates that intelligence cannot act without consciousness. A beautiful woman is useless unless protected by the proper husband. Intelligence must always be very fresh; therefore the word aprauḍha (very young) is used here. Material enjoyment means utilizing the intelligence for the sake of rūpa, rasa, gandha, śabda and sparśa, or form, taste, smell, sound and touch.

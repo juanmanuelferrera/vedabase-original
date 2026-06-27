@@ -1,0 +1,12 @@
+### SB 4.22.59
+
+> dharma-rāḍ iva śikṣāyām
+> āścarye himavān iva
+> kuvera iva kośāḍhyo
+> guptārtho varuṇo yathā
+
+*dharma-rāṭ iva*—like King Yamarāja (the superintendent of death); *śikṣāyām*—in education; *āścarye*—in opulence; *himavān iva*—like the Himalaya Mountains; *kuveraḥ*—the treasurer of the heavenly planets; *iva*—like; *kośa-āḍhyaḥ*—in the matter of possessing wealth; *gupta-arthaḥ*—secrecy; *varuṇaḥ*—the demigod named Varuṇa; *yathā*—like.
+
+**Mahārāja Pṛthu's intelligence and education were exactly like that of Yamarāja, the superintendent of death. His opulence was comparable to the Himalaya Mountains, where all valuable jewels and metals are stocked. He possessed great riches like Kuvera, the treasurer of the heavenly planets, and no one could reveal his secrets, for they were like the demigod Varuṇa's.**
+
+Yamarāja, or Dharmarāja, as the superintendent of death, has to judge the criminal living entities who have committed sinful activities throughout their lives. Consequently Yamarāja is expected to be most expert in judicial matters. Pṛthu Mahārāja was also highly learned and exceedingly exact in delivering his judgment upon the citizens. No one could excel him in opulence any more than estimate the stock of minerals and jewels in the Himalaya Mountains; therefore he is compared to Kuvera, the treasurer of the heavenly planets. Nor could anyone discover the secrets of his life any more than learn the secrets of Varuṇa, the demigod presiding over the water, the night, and the western sky. Varuṇa is omniscient, and since he punishes sins, he is prayed to for forgiveness. He is also the sender of disease and is often associated with Mitra and Indra.

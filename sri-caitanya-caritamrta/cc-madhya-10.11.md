@@ -1,0 +1,8 @@
+### CC Madhya 10.11
+
+> tīrtha pavitra karite kare tīrtha-bhramaṇa
+> sei chale nistāraye sāṁsārika jana
+
+*tīrtha*—holy places; *pavitra karite*—to purify; *kare*—does; *tīrtha-bhramaṇa*—touring in places of pilgrimage; *sei chale*—on that plea; *nistāraye*—delivers; *sāṁsārika*—conditioned; *jana*—souls.
+
+**"Great saints go to holy places of pilgrimage in order to purify them. For that reason Caitanya Mahāprabhu is visiting many tīrthas and delivering many, many conditioned souls.**

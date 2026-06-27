@@ -1,0 +1,14 @@
+### SB 3.26.17
+
+> prakṛter guṇa-sāmyasya
+> nirviśeṣasya mānavi
+> ceṣṭā yataḥ sa bhagavān
+> kāla ity upalakṣitaḥ
+
+*prakṛteḥ*—of material nature; *guṇa-sāmyasya*—without interaction of the three modes; *nirviśeṣasya*—without specific qualities; *mānavi*—O daughter of Manu; *ceṣṭā*—movement; *yataḥ*—from whom; *saḥ*—He; *bhagavān*—the Supreme Personality of Godhead; *kālaḥ*—time; *iti*—thus; *upalakṣitaḥ*—is designated.
+
+**My dear mother, O daughter of Svāyambhuva Manu, the time factor, as I have explained, is the Supreme Personality of Godhead, from whom the creation begins as a result of the agitation of the neutral, unmanifested nature.**
+
+The unmanifested state of material nature, *pradhāna,* is being explained. The Lord says that when the unmanifested material nature is agitated by the glance of the Supreme Personality of Godhead, it begins to manifest itself in different ways. Before this agitation, it remains in the neutral state, without interaction by the three modes of material nature. In other words, material nature cannot produce any variety of manifestations without the contact of the Supreme Personality of Godhead. This is very nicely explained in *Bhagavad-gītā.* The Supreme Personality of Godhead is the cause of the products of material nature. Without His contact, material nature cannot produce anything.
+
+In the *Caitanya-caritāmṛta* also, a very suitable example is given in this connection. Although the nipples on a goat's neck appear to be breast nipples, they do not give milk. Similarly, material nature appears to the material scientist to act and react in a wonderful manner, but in reality it cannot act without the agitator, time, who is the representation of the Supreme Personality of Godhead. When time agitates the neutral state of material nature, material nature begins to produce varieties of manifestations. Ultimately it is said that the Supreme Personality of Godhead is the cause of creation. As a woman cannot produce children unless impregnated by a man, material nature cannot produce or manifest anything unless it is impregnated by the Supreme Personality of Godhead in the form of the time factor.

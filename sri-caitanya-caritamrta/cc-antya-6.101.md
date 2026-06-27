@@ -1,0 +1,8 @@
+### CC Antya 6.101
+
+> prabhu viśrāma kailā, yadi dina-śeṣa haila
+> rāghava-mandire tabe kīrtana ārambhila
+
+*prabhu*—Nityānanda Prabhu; *viśrāma kailā*—took rest; *yadi*—when; *dina-śeṣa haila*—the day was ended; *rāghava-mandire*—at the temple of Rāghava Paṇḍita; *tabe*—at that time; *kīrtana ārambhila*—began congregational chanting of the holy name.
+
+**Nityānanda Prabhu rested for the day, and when the day ended He went to the temple of Rāghava Paṇḍita and began congregational chanting of the holy name of the Lord.**

@@ -1,0 +1,21 @@
+### SB 7.10.4
+
+> nānyathā te 'khila-guro
+> ghaṭeta karuṇātmanaḥ
+> yas ta āśiṣa āśāste
+> na sa bhṛtyaḥ sa vai vaṇik
+
+*na*—not; *anyathā*—otherwise; *te*—of You; *akhila-guro*—O supreme instructor of the entire creation; *ghaṭeta*—such a thing can happen; *karuṇā-ātmanaḥ*—the Supreme Person, who is extremely kind to His devotees; *yaḥ*—any person who; *te*—from You; *āśiṣaḥ*—material benefits; *āśāste*—desires (in exchange for serving You); *na*—not; *saḥ*—such a person; *bhṛtyaḥ*—a servitor; *saḥ*—such a person; *vai*—indeed; *vaṇik*—a merchant (who wants to get material profit from his business).
+
+**Otherwise, O my Lord, O supreme instructor of the entire world, You are so kind to Your devotee that You could not induce him to do something unbeneficial for him. On the other hand, one who desires some material benefit in exchange for devotional service cannot be Your pure devotee. Indeed, he is no better than a merchant who wants profit in exchange for service.**
+
+It is sometimes found that one comes to a devotee or a temple of the Lord just to get some material benefit. Such a person is described here as a mercantile man. *Bhagavad-gītā* speaks of *ārto jijñāsur arthārthī.* The word *ārta* refers to one who is physically distressed, and *arthārthī* refers to one in need of money. Such persons are forced to approach the Supreme Personality of Godhead for mitigation of their distress or to get some money by the benediction of the Lord. They have been described as *sukṛtī,* pious, because in their distress or need for money they have approached the Supreme Lord. Unless one is pious, one cannot approach the Supreme Personality of Godhead. However, although a pious man may receive some material benefit, one who is concerned with material benefits cannot be a pure devotee. When a pure devotee receives material opulences, this is not because of his pious activity but for the service of the Lord. When one engages in devotional service, one is automatically pious. Therefore, a pure devotee is *anyābhilāṣitā-śūnyam [Bhakti-rasāmṛta-sindhu* 1.1.11]. He has no desire for material profit, nor does the Lord induce him to try to profit materially. When a devotee needs something, the Supreme Personality of Godhead supplies it (*yoga-kṣemaṁ vahāmy aham* [[bg/9/22|[Bg. 9.22] ]]).
+
+Sometimes materialists go to a temple to offer flowers and fruit to the Lord because they have learned from *Bhagavad-gītā* that if a devotee offers some flowers and fruits, the Lord accepts them. In *Bhagavad-gītā* [[bg/9/26|(Bg. 9.26)]] the Lord says:
+
+> patraṁ puṣpaṁ phalaṁ toyaṁ
+> yo me bhaktyā prayacchati
+> tad ahaṁ bhakty-upahṛtam
+> aśnāmi prayatātmanaḥ
+
+"If one offers Me with love and devotion a leaf, a flower, fruit or water, I will accept it." Thus a man with a mercantile mentality thinks that if he can get some material benefit, like a large amount of money, simply by offering a little fruit and flower, this is good business. Such persons are not accepted as pure devotees. Because their desires are not purified, they are still mercantile men, even though they go to temples to make a show of being devotees. *Sarvopādhi-vinirmuktaṁ tat-paratvena nirmalam:* [[cc/madhya/19/170|[Cc. Madhya 19.170] ]] only when one is fully freed from material desires can one be purified, and only in that purified state can one serve the Lord. *Hṛṣīkeṇa hṛṣīkeśa-sevanaṁ bhaktir ucyate.* This is the pure devotional platform.

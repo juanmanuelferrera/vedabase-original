@@ -1,0 +1,8 @@
+### CC Madhya 20.371
+
+> sanakādye 'jñāna'-śakti, nārade śakti 'bhakti'
+> brahmāya 'sṛṣṭi'-śakti, anante 'bhū-dhāraṇa'-śakti
+
+*sanaka-ādye*—in the four Kumāras; *jñāna-śakti*—the power of knowledge; *nārade*—in Nārada Muni; *śakti*—the power; *bhakti*—of devotional service; *brahmāya*—in Lord Brahmā; *sṛṣṭi-śakti*—the power of creation; *anante*—in Lord Ananta; *bhū-dhāraṇa-śakti*—the power to carry the planets.
+
+**"The power of knowledge was invested in the four Kumāras, and the power of devotional service was invested in Nārada. The power of creation was invested in Lord Brahmā, and the power to carry innumerable planets was invested in Lord Ananta.**

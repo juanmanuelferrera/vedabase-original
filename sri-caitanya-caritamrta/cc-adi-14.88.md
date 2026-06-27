@@ -1,0 +1,10 @@
+### CC Adi 14.88
+
+> vipra kahe,—putra yadi daiva-siddha haya
+> svataḥ-siddha-jñāna, tabe śikṣā vyartha haya
+
+*vipra kahe*—the *brāhmaṇa* replied; *putra*—son; *yadi*—if; *daiva*—transcendental; *siddha*—mystic; *haya*—were; *svataḥ-siddha-jñāna*—self-illuminated perfect knowledge; *tabe*—at that time; *śikṣā*—education; *vyartha*—futile; *haya*—becomes.
+
+**The brāhmaṇa replied, "If your son is a transcendental mystic boy with self-effulgent perfect knowledge, what is the use of your education?"**
+
+The *brāhmaṇa* Jagannātha Miśra saw in his dream told him that his son was not an ordinary human being. If He were a transcendental person, He would have self-effulgent knowledge, and thus there would be no need to educate Him.

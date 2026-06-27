@@ -1,0 +1,19 @@
+### CC Madhya 19.144
+
+> tāra madhye 'sthāvara', jaṅgama'—dui bheda
+> jaṅgame tiryak-jala-sthalacara-vibheda
+
+*tāra madhye*—among the living entities who are conditioned within the material world; *sthāvara*—immovable; *jaṅgama*—movable; *dui bheda*—two divisions; *jaṅgame*—among the living entities who can move; *tiryak*—the living entities who can move in the air (the birds); *jala*—or living entities who can move within the water; *sthala-cara*—living entities who can move on land; *vibheda*—three divisions.
+
+**"The unlimited living entities can be divided into two divisions—those that can move and those that cannot move. Among living entities that can move, there are birds, aquatics and animals.**
+
+Śrī Caitanya Mahāprabhu is giving clear instructions on how the living entities live under different conditions. There are trees, plants and stones that cannot move, but still they must be considered living entities, or spiritual sparks. The soul is present in bodies like those of trees, plants and stones. They are all living entities. Among moving living entities such as birds, aquatics and animals, the same spiritual spark is there. As stated herein, there are living entities that can fly, swim and walk. We must also conclude that there are living entities that can move within fire and ether. Living entities have different material bodies composed of earth, water, air, fire and ether. The words *tāra madhye* mean "within this universe." The entire material universe is composed of five material elements. It is not true that living entities reside only within this planet and not within others. Such a conclusion is completely contradictory to the *Vedas.* As stated in *Bhagavad-gītā* [[bg/2/24|(Bg. 2.24)]]:
+
+> acchedyo 'yam adāhyo 'yam
+> akledyo 'śoṣya eva ca
+> nityaḥ sarva-gataḥ sthāṇur
+> acalo 'yaṁ sanātanaḥ
+
+"This individual soul is unbreakable and insoluble, and can be neither burned nor dried. He is everlasting, all-pervading, unchangeable, immovable and eternally the same."
+
+The soul has nothing to do with the material elements. Any material element can be cut to pieces, especially earth. As far as the living entity is concerned, however, it can neither be burned nor cut to pieces. It can therefore live within fire. We can conclude that there are also living entities within the sun. Why should living entities be denied this planet or that planet? According to the *Vedas,* the living entities can live anywhere and everywhere-on land, in water, in air and in fire. Whatever the condition, the living entity is unchangeable (*sthāṇu).* From the statements of Śrī Caitanya Mahāprabhu and *Bhagavad-gītā,* we are to conclude that living entities are everywhere throughout the universes. They are distributed as trees, plants, aquatics, birds, human beings and so on.

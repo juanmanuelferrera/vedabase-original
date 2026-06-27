@@ -1,0 +1,8 @@
+### CC Antya 20.74
+
+> tāṅra tyakta 'avaśeṣa' saṅkṣepe kahila
+> līlāra bāhulye grantha tathāpi bāḍila
+
+*tāṅra*—his; *tyakta*—left out; *aveśeṣa*—remainders; *saṅkṣepe kahila*—I have described very briefly; *līlāra bāhulye*—because of the numerousness of the pastimes; *grantha*—this book; *tathāpi*—still; *bāḍila*—has increased.
+
+**I have only very briefly described the pastimes of Śrī Caitanya Mahāprabhu not described by Vṛndāvana dāsa Ṭhākura. Nevertheless, because those transcendental pastimes are so numerous, the size of this book has increased.**

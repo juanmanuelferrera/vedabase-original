@@ -1,0 +1,12 @@
+### SB 1.17.29
+
+> taṁ jighāṁsum abhipretya
+> vihāya nṛpa-lāñchanam
+> tat-pāda-mūlaṁ śirasā
+> samagād bhaya-vihvalaḥ
+
+*tam*—him; *jighāṁsum*—willing to kill; *abhipretya*—knowing it well; *vihāya*—leaving aside; *nṛpa-lāñchanam*—the dress of a king; *tat-pāda-mūlam*—at his feet; *śirasā*—by the head; *samagāt*—fully surrendered; *bhaya-vihvalaḥ*—under pressure of fearfulness.
+
+**When the personality of Kali understood that the King was willing to kill him, he at once abandoned the dress of a king, and, under pressure of fear, completely surrendered to him, bowing his head.**
+
+The royal dress of the personality of Kali is artificial. The royal dress is suitable for a king or kṣatriya, but when a lower class man artificially dresses himself as a king, his real identity is disclosed by the challenge of a bona fide kṣatriya like Mahārāja Parīkṣit. A real kṣatriya never surrenders. He accepts the challenge of his rival kṣatriya, and he fights either to die or to win. Surrender is unknown to a real kṣatriya. In the age of Kali there are so many pretenders dressed and posed like administrators or executive heads, but their real identity is disclosed when they are challenged by a real kṣatriya. Therefore when the artificially dressed personality of Kali saw that to fight Mahārāja Parīkṣit was beyond his capacity, he bowed down his head like a subordinate and gave up his royal dress.

@@ -1,0 +1,35 @@
+### SB 7.14.7
+
+> divyaṁ bhaumaṁ cāntarīkṣaṁ
+> vittam acyuta-nirmitam
+> tat sarvam upayuñjāna
+> etat kuryāt svato budhaḥ
+
+*divyam*—easily obtained because of rainfall from the sky; *bhaumam*—obtained from the mines and the sea; *ca*—and; *āntarīkṣam*—obtained by chance; *vittam*—all property; *acyuta-nirmitam*—created by the Supreme Personality of Godhead; *tat*—those things; *sarvam*—all; *upayuñjāna*—utilizing (for all human society or all living beings); *etat*—this (maintaining body and soul together); *kuryāt*—one must do; *svataḥ*—obtained of itself, without extra endeavor; *budhaḥ*—the intelligent person.
+
+**The natural products created by the Supreme Personality of Godhead should be utilized to maintain the bodies and souls of all living entities. The necessities of life are of three types: those produced from the sky [from rainfall], from the earth [from the mines, the seas or the fields], and from the atmosphere [that which is obtained suddenly and unexpectedly].**
+
+We living entities in different forms are all children of the Supreme Personality of Godhead, as confirmed by the Lord in *Bhagavad-gītā* [[bg/14/4|(Bg. 14.4)]]:
+
+> sarva-yoniṣu kaunteya
+> mūrtayaḥ sambhavanti yāḥ
+> tāsāṁ brahma mahad-yonir
+> ahaṁ bīja-pradaḥ pitā
+
+"It should be understood that all species of life, O son of Kuntī, are made possible by birth in this material nature, and that I am the seed-giving father." The Supreme Lord, Kṛṣṇa, is the father of all living entities in different species and forms. One who is intelligent can see that all living entities in the 8,400,000 bodily forms are part of the Supreme Personality of Godhead and are His sons. Everything within the material and spiritual worlds is the property of the Supreme Lord (*īśāvāsyam idaṁ sarvam [Īśo mantra 1]*), and therefore everything has a relationship with Him. Śrīla Rūpa Gosvāmī says in this regard:
+
+> prāpañcikatayā buddhyā
+> hari-sambandhi-vastunaḥ
+> mumukṣubhiḥ parityāgo
+> vairāgyaṁ phalgu kathyate
+
+"One who rejects anything without knowledge of its relationship to Kṛṣṇa is incomplete in his renunciation." (*Bhakti-rasāmṛta-sindhu* 1.2.256) Although Māyāvādī philosophers say that the material creation is false, actually it is not false; it is factual, but the idea that everything belongs to human society is false. Everything belongs to the Supreme Personality of Godhead, for everything is created by Him. All living entities, being the Lord's sons, His eternal parts and parcels, have the right to use their father's property by nature's arrangement. As stated in the *Upaniṣads, tena tyaktena bhuñjīthā mā gṛdhaḥ kasya svid dhanam [Īśo mantra 1].* Everyone should be satisfied with the things allotted him by the Supreme Personality of Godhead; no one should encroach upon another's rights or property.
+
+In *Bhagavad-gītā* it is said:
+
+> annād bhavanti bhūtāni
+> parjanyād anna-sambhavaḥ
+> yajñād bhavati parjanyo
+> yajñaḥ karma-samudbhavaḥ
+
+Ideal Family Life ‘All living bodies subsist on food grains, which are produced from rains. Rains are produced by performance of *yajña* [sacrifice], and *yajña* is born of prescribed duties." [[bg/3/14|(Bg. 3.14)]] When food grains are sufficiently produced, both animals and human beings can be nourished without difficulty for their maintenance. This is nature's arrangement. *prakṛteḥ kriyamāṇa-ni guṇaiḥ karmāṇi sarvaśaḥ* [[bg/3/27|[Bg. 3.27] ]]. Everyone is acting under the influence of material nature, and only fools think they can improve upon what God has created. The householders are specifically responsible for seeing that the laws of the Supreme Personality of Godhead are maintained, without fighting between men, communities, societies or nations. Human society should properly utilize the gifts of God, especially the food grains that grow because of rain falling from the sky. As stated in *Bhagavad-gītā, yajñād bhavati parjanyaḥ* [[bg/3/14|[Bg. 3.14] ]]. So that rainfall will be regulated, humanity should perform *yajñas,* sacrifices. *Yajñas* were previously performed with offerings of oblations of ghee and food grains, but in this age, of course, this is no longer possible, for the production of ghee and food grains has diminished because of the sinful life of human society. However, people should take to Kṛṣṇa consciousness and chant the Hare Kṛṣṇa *mantra,* as recommended in the *śāstras* (*yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ* [SB 11.5.32]). If people throughout the world take to the Kṛṣṇa consciousness movement and chant the easy sound vibration of the transcendental name and fame of the Supreme Personality of Godhead, there will be no scarcity of rainfall; consequently food grains, fruits and flowers will be properly produced, and all the necessities of life will be easily obtained. *Gṛhasthas,* or householders, should take the responsibility for organizing such natural production. It is therefore said, *tasyaiva hetoḥ prayateta kovidaḥ.* An intelligent person should try to spread Kṛṣṇa consciousness through the chanting of the holy name of the Lord, and all the necessities of life will automatically follow.

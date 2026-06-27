@@ -1,0 +1,16 @@
+### CC Antya 14.7
+
+> svarūpa-gosāñi āra raghunātha-dāsa
+> ei duira kaḍacāte e-līlā prakāśa
+
+*svarūpa-gosāñi*—Svarūpa Dāmodara Gosvāmī; *āra*—and; *raghunātha-dāsa*—Raghunātha dāsa Gosvāmī; *ei duira*—of these two; *kaḍacāte*—in the notebooks; *e-līlā*—these pastimes; *prakāśa*—described.
+
+**Svarūpa Dāmodara Gosvāmī and Raghunātha dāsa Gosvāmī recorded all these transcendental activities of Śrī Caitanya Mahāprabhu in their notebooks.**
+
+Śrī Caitanya Mahāprabhu's transcendental feelings of separation from Kṛṣṇa and His consequent madness are not at all understandable by a person on the material platform. Nonetheless, a so-called party of devotees named *nadīyā-nāgarī* has sprung up and introduced the worship of Viṣṇupriyā. This certainly indicates their ignorance concerning Śrī Caitanya Mahāprabhu's pastimes. In the opinion of Bhaktisiddhānta Sarasvatī Ṭhākura, such worship is a product of the imagination. Many other methods of worshiping Caitanya Mahāprabhu have also been introduced, but they have all been rejected by stalwart devotees like Bhaktivinoda Ṭhākura. The groups practicing such unauthorized worship have been listed by Śrīla Bhaktivinoda Ṭhākura:
+
+> āula, bāula, kartābhajā, neḍā, daraveśa, sāṅi
+> sahajiyā, sakhībhekī, smārta, jāta-gosāñi
+> ativāḍī, cūḍādhārī, gaurāṅga-nāgarī
+
+Svarūpa Dāmodara Gosvāmī and Raghunātha dāsa Gosvāmī witnessed Caitanya Mahāprabhu's activities firsthand, and they recorded them in two notebooks. Therefore, without reference to these notebooks, one cannot understand the activities of Śrī Caitanya Mahāprabhu. Anyone inventing some new method for worshiping Śrī Caitanya Mahāprabhu is certainly unable to understand the Lord's pastimes, for he is bereft of the real process of approaching the Lord.

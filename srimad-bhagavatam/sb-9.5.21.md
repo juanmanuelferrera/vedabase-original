@@ -1,0 +1,10 @@
+### SB 9.5.21
+
+> karmāvadātam etat te
+> gāyanti svaḥ-striyo muhuḥ
+> kīrtiṁ parama-puṇyāṁ ca
+> kīrtayiṣyati bhūr iyam
+
+*karma*—activity; *avadātam*—without any tinge; *etat*—all this; *te*—your; *gāyanti*—will sing; *svaḥ-striyaḥ*—women from the heavenly planets; *muhuḥ*—always; *kīrtim*—glories; *parama-puṇyām*—highly glorified and pious; *ca*—also; *kīrtayiṣyati*—will continuously chant; *bhūḥ*—the whole world; *iyam*—this.
+
+**All the blessed women in the heavenly planets will continuously chant about your spotless character at every moment, and the people of this world will also chant your glories continuously.**

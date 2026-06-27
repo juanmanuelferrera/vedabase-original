@@ -1,0 +1,16 @@
+### SB 3.25.2
+
+> na hy asya varṣmaṇaḥ puṁsāṁ
+> varimṇaḥ sarva-yoginām
+> viśrutau śruta-devasya
+> bhūri tṛpyanti me 'savaḥ
+
+*na*—not; *hi*—indeed; *asya*—about Him; *varṣmaṇaḥ*—the greatest; *puṁsām*—among men; *varimṇaḥ*—the foremost; *sarva*—all; *yoginām*—of *yogīs*; *viśrutau*—in hearing; *śruta-devasya*—the master of the *Vedas*; *bhūri*—repeatedly; *tṛpyanti*—are sated; *me*—my; *asavaḥ*—senses.
+
+**Śaunaka continued: There is no one who knows more than the Lord Himself. No one is more worshipable or more mature a yogī than He. He is therefore the master of the Vedas, and to hear about Him always is the actual pleasure of the senses.**
+
+In *Bhagavad-gītā* it is stated that no one can be equal to or greater than the Supreme Personality of Godhead. This is confirmed in the *Vedas* also: *eko bahūnāṁ yo vidadhāti kāmān.* He is the supreme living entity and is supplying the necessities of all other living entities. Thus all other living entities, both *viṣṇu-tattva* and *jīva-tattva,* are subordinate to the Supreme Personality of Godhead, Kṛṣṇa. The same concept is confirmed here. *Na hy asya varṣmaṇaḥ puṁsām:* amongst the living entities, no one can surpass the Supreme Person because no one is richer, more famous, stronger, more beautiful, wiser or more renounced than He. These qualifications make Him the Supreme Godhead, the cause of all causes. *Yogīs* are very proud of performing wonderful feats, but no one can compare to the Supreme Personality of Godhead.
+
+Anyone who is associated with the Supreme Lord is accepted as a first-class *yogī.* Devotees may not be as powerful as the Supreme Lord, but by constant association with the Lord they become as good as the Lord Himself. Sometimes the devotees act more powerfully than the Lord. Of course, that is the Lord's concession.
+
+Also used here is the word *varimṇaḥ,* meaning "the most worshipful of all *yogīs.*" To hear from Kṛṣṇa is the real pleasure of the senses; therefore He is known as Govinda, for by His words, by His teachings, by His instruction—by everything connected with Him—He enlivens the senses. Whatever He instructs is from the transcendental platform, and His instructions, being absolute, are nondifferent from Him. Hearing from Kṛṣṇa or His expansion or plenary expansion like Kapila is very pleasing to the senses. *Bhagavad-gītā* can be read or heard many times, but because it gives great pleasure, the more one reads *Bhagavad-gītā* the more he gets the appetite to read and understand it, and each time he gets new enlightenment. That is the nature of the transcendental message. Similarly, we find that transcendental happiness in the *Śrīmad-Bhāgavatam.* The more we hear and chant the glories of the Lord, the more we become happy.

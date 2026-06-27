@@ -1,0 +1,17 @@
+### Bg 6.45
+
+> prayatnād yatamānas tu
+> yogī saṁśuddha-kilbiṣaḥ
+> aneka-janma-saṁsiddhas
+> tato yāti parāṁ gatim
+
+*prayatnāt*—by rigid practice; *yatamānaḥ*—one who endeavors; *tu*—but; *yogī*—such a transcendentalist; *saṁśuddha*—washed off; *kilbiṣaḥ*—all kinds of sins; *aneka*—many, many; *janma*—births; *saṁsiddhaḥ*—so achieved perfection; *tataḥ*—thereafter; *yāti*—attains; *parām*—highest; *gatim*—destination.
+
+**But when the yogī engages himself with sincere endeavor in making further progress, being washed of all contaminations, then ultimately, after many, many births of practice, he attains the supreme goal.**
+
+A person born in a particularly righteous, aristocratic or sacred family becomes conscious of his favorable condition for executing *yoga* practice. With determination, therefore, he begins his unfinished task, and thus he completely cleanses himself of all material contaminations. When he is finally free from all contaminations, he attains the supreme perfection—Kṛṣṇa consciousness. Kṛṣṇa consciousness is the perfect stage of being freed of all contaminations. This is confirmed in the *Bhagavad-gītā:*
+
+> yeṣāṁ tvanta-gataṁ pāpaṁ janānāṁ puṇya-karmaṇām
+> te dvandva-moha-nirmuktā bhajante māṁ dṛḍha-vratāḥ
+
+"After many, many births of executing pious activities, when one is completely freed from all contaminations, and from all illusory dualities, one then becomes engaged in the transcendental loving service of the Lord."

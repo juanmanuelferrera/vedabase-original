@@ -1,0 +1,8 @@
+### CC Madhya 14.240
+
+> jagannāthera prasāda āila bahu upahāra
+> lakṣmīra prasāda āila vividha prakāra
+
+*jagannāthera prasāda*—the *prasāda* offered to Jagannātha; *āila*—arrived; *bahu*—many; *upahāra*—offerings; *lakṣmīra prasāda*—food offered to Lakṣmīdevī; *āila*—arrived; *vividha prakāra*—all varieties.
+
+**Then there arrived in large quantities a variety of food that had been offered to Śrī Jagannātha and a variety that had been offered to the goddess of fortune.**

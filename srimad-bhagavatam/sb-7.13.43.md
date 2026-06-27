@@ -1,0 +1,19 @@
+### SB 7.13.43
+
+> vikalpaṁ juhuyāc cittau
+> tāṁ manasy artha-vibhrame
+> mano vaikārike hutvā
+> taṁ māyāyāṁ juhoty anu
+
+*vikalpam*—discrimination (between good and bad, one person and another, one nation and another, and all similar discrimination); *juhuyāt*—one should offer as oblations; *cittau*—in the fire of consciousness; *tām*—that consciousness; *manasi*—in the mind; *artha-vibhrame*—the root of all acceptance and rejection; *manaḥ*—that mind; *vaikārike*—in false ego, identification of oneself with matter; *hutvā*—offering as oblations; *tam*—this false ego; *māyāyām*—in the total material energy; *juhoti*—offers as oblations; *anu*—following this principle.
+
+**The mental concoction of discrimination between good and bad should be accepted as one unit and then invested in the mind, which should then be invested in the false ego. The false ego should be invested in the total material energy. This is the process of fighting false discrimination.**
+
+This verse describes how a *yogī* can become free from material affection. Because of material attraction, a *karmī* cannot see himself. *Jñānīs* can discriminate between matter and spirit, but the *yogīs,* the best of whom are the *bhakti-yogīs,* want to return home, back to Godhead. The *karmīs* are completely in illusion, the *jñānīs* are neither in illusion nor in positive knowledge, but the *yogīs,* especially the *bhakti-yogīs,* are completely on the spiritual platform. As confirmed in *Bhagavad-gītā* [[bg/14/26|(Bg. 14.26)]]:
+
+> māṁ ca yo 'vyabhicāreṇa
+> bhakti-yogena sevate
+> sa guṇān samatītyaitān
+> brahma-bhūyāya kalpate
+
+"One who engages in full devotional service, who does not fall down under any circumstance, at once transcends the modes of material nature and thus comes to the level of Brahman." Thus a devotee's position is secure. A devotee is at once elevated to the spiritual platform. Others, such as *jñānīs* and *haṭha-yogīs,* can only gradually ascend to the spiritual platform by nullifying their material discrimination on the platform of psychology and nullifying the false ego, by which one thinks, "I am this body, a product of matter." One must merge the false ego into the total material energy and merge the total material energy into the supreme energetic. This is the process of becoming free from material attraction.

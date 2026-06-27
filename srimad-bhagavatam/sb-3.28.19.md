@@ -1,0 +1,12 @@
+### SB 3.28.19
+
+> sthitaṁ vrajantam āsīnaṁ
+> śayānaṁ vā guhāśayam
+> prekṣaṇīyehitaṁ dhyāyec
+> chuddha-bhāvena cetasā
+
+*sthitam*—standing; *vrajantam*—moving; *āsīnam*—sitting; *śayānam*—lying down; *vā*—or; *guhā-āśayam*—the Lord dwelling in the heart; *prekṣaṇīya*—beautiful; *īhitam*—pastimes; *dhyāyet*—he should visualize; *śuddha-bhāvena*—pure; *cetasā*—by the mind.
+
+**Thus always merged in devotional service, the yogī visualizes the Lord standing, moving, lying down or sitting within him, for the pastimes of the Supreme Lord are always beautiful and attractive.**
+
+The process of meditating on the form of the Supreme Personality of Godhead within oneself and the process of chanting the glories and pastimes of the Lord are the same. The only difference is that hearing and fixing the mind on the pastimes of the Lord is easier than visualizing the form of the Lord within one's heart because as soon as one begins to think of the Lord, especially in this age, the mind becomes disturbed, and due to so much agitation, the process of seeing the Lord within the mind is interrupted. When there is sound vibrated praising the transcendental pastimes of the Lord, however, one is forced to hear. That hearing process enters into the mind, and the practice of *yoga* is automatically performed. For example, even a child can hear and derive the benefit of meditating on the pastimes of the Lord simply by listening to a reading from the *Bhāgavatam* that describes the Lord as He is going to the pasturing ground with His cows and friends. Hearing includes applying the mind. In this age of Kali-yuga, Lord Caitanya has recommended that one should always engage in chanting and hearing *Bhagavad-gītā.* The Lord also says that the *mahātmās,* or great souls, always engage in the process of chanting the glories of the Lord, and just by hearing, others derive the same benefit. *Yoga* necessitates meditation on the transcendental pastimes of the Lord, whether He is standing, moving, lying down, etc.

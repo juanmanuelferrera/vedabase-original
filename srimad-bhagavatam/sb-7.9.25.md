@@ -1,0 +1,14 @@
+### SB 7.9.25
+
+> kutrāśiṣaḥ śruti-sukhā mṛgatṛṣṇi-rūpāḥ
+> kvedaṁ kalevaram aśeṣa-rujāṁ virohaḥ
+> nirvidyate na tu jano yad apīti vidvān
+> kāmānalaṁ madhu-lavaiḥ śamayan durāpaiḥ
+
+*kutra*—where; *āśiṣaḥ*—benedictions; *śruti-sukhāḥ*—simply pleasing to hear of; *mṛgatṛṣṇi-rūpāḥ*—exactly like a mirage in the desert; *kva*—where; *idam*—this; *kalevaram*—body; *aśeṣa*—unlimited; *rujām*—of diseases; *virohaḥ*—the place for generating; *nirvidyate*—become satiated; *na*—not; *tu*—but; *janaḥ*—people in general; *yat api*—although; *iti*—thus; *vidvān*—so-called learned philosophers, scientists and politicians; *kāma-analam*—the blazing fire of lusty desires; *madhu-lavaiḥ*—with drops of honey (happiness); *śamayan*—controlling; *durāpaiḥ*—very difficult to obtain.
+
+**In this material world, every living entity desires some future happiness, which is exactly like a mirage in the desert. Where is water in the desert, or, in other words, where is happiness in this material world? As for this body, what is its value? It is merely a source of various diseases. The so-called philosophers, scientists and politicians know this very well, but nonetheless they aspire for temporary happiness. Happiness is very difficult to obtain, but because they are unable to control their senses, they run after the so-called happiness of the material world and never come to the right conclusion.**
+
+There is a song in the Bengali language which states, "I constructed this home for happiness, but unfortunately there was a fire, and everything has now been burnt to ashes." This illustrates the nature of material happiness. Everyone knows it, but nonetheless one plans to hear or think something very pleasing. Unfortunately, all of one's plans are annihilated in due course of time. There were many politicians who planned empires, supremacy and control of the world, but in due time all their plans and empires—and even the politicians themselves—were vanquished. Everyone should take lessons from Prahlāda Mahārāja about how we are engaged in so-called temporary happiness through bodily exercises for sense enjoyment. All of us repeatedly make plans, which are all repeatedly frustrated. Therefore one should stop such planmaking.
+
+As one cannot stop a blazing fire by constantly pouring ghee upon it, one cannot satisfy oneself by increasing plans for sense enjoyment. The blazing fire is *bhava-mahā-dāvāgni,* the forest fire of material existence. This forest fire occurs automatically, without endeavor. We want to be happy in the material world, but this will never be possible; we shall simply increase the blazing fire of desires. Our desires cannot be satisfied by illusory thoughts and plans; rather, we have to follow the instructions of Lord Kṛṣṇa: *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja* [[bg/18/66|[Bg. 18.66] ]]. Then we shall be happy. Otherwise, in the name of happiness, we shall continue to suffer miserable conditions.

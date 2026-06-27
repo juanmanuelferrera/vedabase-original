@@ -1,0 +1,14 @@
+### SB 4.28.50
+
+> citiṁ dārumayīṁ citvā
+> tasyāṁ patyuḥ kalevaram
+> ādīpya cānumaraṇe
+> vilapantī mano dadhe
+
+*citim*—funeral pyre; *dāru-mayīm*—made with wood; *citvā*—having piled up; *tasyām*—on that; *patyuḥ*—of the husband; *kalevaram*—body; *ādīpya*—after igniting; *ca*—also; *anumaraṇe*—to die along with him; *vilapantī*—lamenting; *manaḥ*—her mind; *dadhe*—fixed.
+
+**She then prepared a blazing fire with firewood and placed the dead body of her husband upon it. When this was finished, she lamented severely and prepared herself to perish in the fire with her husband.**
+
+It is the long-standing tradition of the Vedic system that a faithful wife dies along with her husband. This is called saha-maraṇa. In India this system was prevalent even to the date of British occupation. At that time, however, a wife who did not wish to die with her husband was sometimes forced to do so by her relatives. Formerly that was not the case. The wife used to enter the fire voluntarily. The British government stopped this practice, considering it inhuman. However, from the early history of India we find that when Mahārāja Pāṇḍu died, he was survived by two wives—Mādrī and Kuntī. The question was whether both should die or one should die. After the death of Mahārāja Pāṇḍu, his wives settled that one should remain and the other should go. Mādrī would perish with her husband in the fire, and Kuntī would remain to take charge of the five Pāṇḍava children. Even as late as 1936 we saw a devoted wife voluntarily enter the fire of her husband.
+
+This indicates that a devotee's wife must be prepared to act in such a way. Similarly, a devoted disciple of the spiritual master would rather die with the spiritual master than fail to execute the spiritual master's mission. As the Supreme Personality of Godhead comes down upon this earth to reestablish the principles of religion, so His representative, the spiritual master, also comes to reestablish religious principles. It is the duty of the disciples to take charge of the mission of the spiritual master and execute it properly. Otherwise the disciple should decide to die along with the spiritual master. In other words, to execute the will of the spiritual master, the disciple should be prepared to lay down his life and abandon all personal considerations.

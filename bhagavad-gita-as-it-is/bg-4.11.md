@@ -1,0 +1,17 @@
+### Bg 4.11
+
+> ye yathā māṁ prapadyante
+> tāṁs tathaiva bhajāmy aham
+> mama vartmānuvartante
+> manuṣyāḥ pārtha sarvaśaḥ
+
+*ye*—all of them; *yathā*—as; *mām*—unto Me; *prapadyante*—surrender; *tān*—unto them; *tathā*—so; *eva*—certainly; *bhajāmi*—do I reward; *aham*—I; *mama*—My; *vartma*—path; *anuvartante*—do follow; *manuṣyāḥ*—all men; *pārtha*—O son of Pṛthā; *sarvaśaḥ*—in all respects.
+
+**All of them—as they surrender unto Me—I reward accordingly. Everyone follows My path in all respects, O son of Pṛthā.**
+
+Everyone is searching for Kṛṣṇa in the different aspects of His manifestations. Kṛṣṇa, the Supreme Personality of Godhead, is partially realized in His impersonal *brahmajyoti* effulgence and as the all-pervading Supersoul dwelling within everything, including the particles of atoms. But Kṛṣṇa is only fully realized by His pure devotees. Consequently, Kṛṣṇa is the object of everyone's realization, and thus anyone and everyone is satisfied according to one's desire to have Him. In the transcendental world also, Kṛṣṇa reciprocates with His pure devotees in the transcendental attitude, just as the devotee wants Him. One devotee may want Kṛṣṇa as supreme master, another as his personal friend, another as his son, and still another as his lover. Kṛṣṇa rewards all the devotees equally, according to their different intensities of love for Him. In the material world, the same reciprocations of feelings are there, and they are equally exchanged by the Lord with the different types of worshipers. The pure devotees both here and in the transcendental abode associate with Him in person and are able to render personal service to the Lord and thus derive transcendental bliss in His loving service. As for those who are impersonalists and who want to commit spiritual suicide by annihilating the individual existence of the living entity, Kṛṣṇa helps also by absorbing them into His effulgence. Such impersonalists do not agree to accept the eternal, blissful Personality of Godhead; consequently they cannot relish the bliss of transcendental personal service to the Lord, having extinguished their individuality. Some of them, who are not situated even in the impersonal existence, return to this material field to exhibit their dormant desires for activities. They are not admitted in the spiritual planets, but they are again given a chance to act on the material planets. For those who are fruitive workers, the Lord awards the desired results of their prescribed duties, as the *yajñeśvara;* and those who are *yogīs* seeking mystic powers are awarded such powers. In other words, everyone is dependant for success upon His mercy alone, and all kinds of spiritual processes are but different degrees of success on the same path. Unless, therefore, one comes to the highest perfection of Kṛṣṇa consciousness, all attempts remain imperfect, as is stated in the *Śrīmad Bhāgavatam:*
+
+> akāmaḥ sarva-kāmo vā mokṣa-kāma udāradhīḥ
+> tīvreṇa bhakti-yogena yajeta puruṣaṁ param
+
+"Whether one is without desire [the condition of the devotees], or is desirous of all fruitive results, or is after liberation, one should with all efforts try to worship the Supreme Personality of Godhead for complete perfection, culminating in Kṛṣṇa consciousness." (Bhāg. 2.3.10)

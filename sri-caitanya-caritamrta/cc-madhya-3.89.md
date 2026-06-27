@@ -1,0 +1,8 @@
+### CC Madhya 3.89
+
+> sei vyañjana ācārya punaḥ karena pūraṇa
+> ei mata punaḥ punaḥ pariveśe vyañjana
+
+*seivyañjana*—that half-finished vegetable; *ācārya*—Advaita Ācārya; *punaḥ*—again; *karena*—does; *pūraṇa*—filling; *ei mata*—in this way; *punaḥ punaḥ*—again and again; *pariveśe*—distributes; *vyañjana*—vegetables.
+
+**As soon as half of the vegetable in the pot was finished, Advaita Ācārya filled it up again. In this way, as the Lord finished half of a preparation, Advaita Ācārya again and again filled it up.**

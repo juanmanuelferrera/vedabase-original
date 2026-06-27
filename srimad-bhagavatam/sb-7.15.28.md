@@ -1,0 +1,19 @@
+### SB 7.15.28
+
+> ṣaḍ-varga-saṁyamaikāntāḥ
+> sarvā niyama-codanāḥ
+> tad-antā yadi no yogān
+> āvaheyuḥ śramāvahāḥ
+
+*ṣaṭ-varga*—the six elements, namely the five working senses and the mind; *saṁyama-ekāntāḥ*—the ultimate aim of subjugating; *sarvāḥ*—all such activities; *niyama-codanāḥ*—the regulative principles further meant for controlling the senses and mind; *tat-antāḥ*—the ultimate goal of such activities; *yadi*—if; *no*—not; *yogān*—the positive link with the Supreme; *āvaheyuḥ*—did lead to; *śrama-āvahāḥ*—a waste of time and labor.
+
+**Ritualistic ceremonies, regulative principles, austerities and the practice of yoga are all meant to control the senses and mind, but even after one is able to control the senses and mind, if he does not come to the point of meditation upon the Supreme Lord, all such activities are simply labor in frustration.**
+
+One may argue that one may achieve the ultimate goal of life—realization of the Supersoul—by practicing the *yoga* system and ritualistic performances according to the Vedic principles, even without staunch devotion to the spiritual master. The actual fact, however, is that by practicing *yoga* one must come to the platform of meditating upon the Supreme Personality of Godhead. As stated in the scriptures, *dhyānāvasthita-tad-gatena manasā paśyanti yaṁ yoginaḥ:* [SB 12.13.1] a person in meditation achieves the perfection of *yoga* practice when he can see the Supreme Personality of Godhead. By various practices, one may come to the point of controlling the senses, but simply controlling the senses does not bring one to a substantial conclusion. However, by staunch faith in the spiritual master and the Supreme Personality of Godhead, one not only controls the senses but also realizes the Supreme Lord.
+
+> yasya deve parā bhaktir
+> yathā deve tathā gurau
+> tasyaite kathitā hy arthāḥ
+> prakāśante mahātmanaḥ
+
+"Only unto those great souls who have implicit faith in both the Lord and the spiritual master are all the imports of the Vedic knowledge automatically revealed." (*Śvetāśvatara Upaniṣad* 6.23) It is further stated, *tuṣyeyaṁ sarva-bhūtātmā guru-śuśrūṣayā* and *taranty añjo bhavārṇavam.* Simply by rendering service to the spiritual master, one crosses the ocean of nescience and returns home, back to Godhead. Thus he gradually sees the Supreme Lord face to face and enjoys life in association with the Lord. The ultimate goal of *yoga* is to come in contact with the Supreme Personality of Godhead. Unless this point is achieved, one's so-called *yoga* practice is simply labor without any benefit.

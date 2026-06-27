@@ -1,0 +1,12 @@
+### SB 1.2.4
+
+> nārāyaṇaṁ namaskṛtya
+> naraṁ caiva narottamam
+> devīṁ sarasvatīṁ vyāsaṁ
+> tato jayam udīrayet
+
+*nārāyaṇam*—the Personality of Godhead; *namaḥ-kṛtya*—after offering respectful obeisances; *naram ca eva*—and Nārāyaṇa Ṛṣi; *nara-uttamam*—the supermost human being; *devīm*—the goddess; *sarasvatīm*—the mistress of learning; *vyāsam*—Vyāsadeva; *tataḥ*—thereafter; *jayam*—all that is meant for conquering; *udīrayet*—be announced.
+
+**Before reciting this Śrīmad-Bhāgavatam, which is our very means of conquest, I offer my respectful obeisances unto the Personality of Godhead, Nārāyaṇa, unto Nara-nārāyaṇa Ṛṣi, the supermost human being, unto Mother Sarasvatī, the goddess of learning, and unto Śrīla Vyāsadeva, the author.**
+
+All the Vedic literatures and the Purāṇas are meant for conquering the darkest region of material existence. The living being is in the state of forgetfulness of his relation with God due to his being overly attracted to material sense gratification from time immemorial. His struggle for existence in the material world is perpetual, and it is not possible for him to get out of it by making plans. If he at all wants to conquer this perpetual struggle for existence, he must reestablish his eternal relation with God. And one who wants to adopt such remedial measures must take shelter of literatures such as the Vedas and the Purāṇas. Foolish people say that the Purāṇas have no connection with the Vedas. However, the Purāṇas are supplementary explanations of the Vedas intended for different types of men. All men are not equal. There are men who are conducted by the mode of goodness, others who are under the mode of passion and others who are under the mode of ignorance. The Purāṇas are so divided that any class of men can take advantage of them and gradually regain their lost position and get out of the hard struggle for existence. Śrīla Sūta Gosvāmī shows the way of chanting the Purāṇas. This may be followed by persons who aspire to be preachers of the Vedic literatures and the Purāṇas. Śrīmad-Bhāgavatam is the spotless Purāṇa, and it is especially meant for them who are desirous to get out of the material entanglement permanently.

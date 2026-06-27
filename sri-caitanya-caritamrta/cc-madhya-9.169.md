@@ -1,0 +1,8 @@
+### CC Madhya 9.169
+
+> tina-dina preme doṅhe kṛṣṇa-kathā-raṅge
+> sei vipra-ghare doṅhe rahe eka-saṅge
+
+*tina-dina*—three days; *preme*—in ecstasy; *doṅhe*—both; *kṛṣṇa-kathā*—discussing topics of Kṛṣṇa; *raṅge*—in jubilation; *sei vipra-ghare*—in the home of a *brāhmaṇa*; *doṅhe*—both of them; *rahe*—stayed; *eka-saṅge*—together.
+
+**Śrī Caitanya Mahāprabhu stayed with Paramānanda Purī in the brāhmaṇa's house where he was residing. Both of them passed three days there discussing topics of Kṛṣṇa.**

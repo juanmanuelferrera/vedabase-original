@@ -1,0 +1,12 @@
+### CC Madhya 17.15
+
+> svarūpa kahe,—ei balabhadra-bhaṭṭācārya
+> tomāte susnigdha baḍa, paṇḍita, sādhu, ārya
+
+*svarūpa kahe*—Svarūpa Dāmodara Gosvāmī said; *ei*—this; *balabhadra-bhaṭṭācārya*—Balabhadra Bhaṭṭācārya; *tomāte*—unto You; *su-snigdha*—affectionate; *baḍa*—very; *paṇḍita*—educated; *sādhu*—honest; *ārya*—advanced in spiritual consciousness.
+
+**Svarūpa Dāmodara then said, "Here is Balabhadra Bhaṭṭācārya, who has great love for You. He is an honest, learned scholar, and he is advanced in spiritual consciousness.**
+
+Śrī Caitanya Mahāprabhu wanted a new man, not a person like Kālā Kṛṣṇadāsa who would fall for women. Svarūpa Dāmodara therefore immediately pointed out a new *brāhmaṇa* named Balabhadra Bhaṭṭācārya. Śrī Svarūpa Dāmodara Gosvāmī had studied this person very thoroughly and had seen that he had great love for Śrī Caitanya Mahāprabhu. Not only did he love the Lord, but he was also learned and honest. He was not duplicitous, and he was advanced in Kṛṣṇa consciousness. According to a Bengali proverb, *ati bhakti corera lakṣaṇa:* "Too much devotion is a symptom of a thief." A person who assumes himself to be a great devotee but mentally is thinking of something else is duplicitous. One who is not duplicitous is called *sādhu.* Svarūpa Dāmodara immediately pointed out that Balabhadra Bhaṭṭācārya was quite fit to accompany the Lord because he was a learned scholar and was simple and had great love for Śrī Kṛṣṇa Caitanya Mahāprabhu. He was also advanced in Kṛṣṇa consciousness; therefore he was considered appropriate to accompany the Lord as a personal servant.
+
+The word *snigdha* (very peaceful) and the word *su-snigdha* (affectionate) are used in verses fourteen and fifteen, and they are also found in *Śrīmad-Bhāgavatam* (1.1.8): *brūyuḥ snigdhasya śiṣyasya guravo guhyam apy uta.* "A disciple who has actual love for his spiritual master is endowed, by the blessings of the spiritual master, with all confidential knowledge." Śrīla Śrīdhara Svāmī has commented that the word *snigdhasya* means *prema-vataḥ.* The word *prema-vataḥ* indicates that one has great love for his spiritual master.

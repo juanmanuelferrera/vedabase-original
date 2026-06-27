@@ -1,0 +1,8 @@
+### CC Adi 5.103
+
+> sei padma-nāle haila caudda-bhuvana
+> teṅho brahmā hañā sṛṣṭi karila sṛjana
+
+*sei padma-nāle*—within the stem of that lotus flower; *haila*—were; *caudda-bhuvana*—the fourteen worlds; *teṅho*—He Himself; *brahmā hañā*—appearing as Brahmā; *sṛṣṭi*—the creation; *karila sṛjana*—created.
+
+**Within the stem of that lotus were the fourteen worlds. Thus the Supreme Lord, as Brahmā, created the entire creation.**

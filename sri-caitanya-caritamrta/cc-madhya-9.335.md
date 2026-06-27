@@ -1,0 +1,8 @@
+### CC Madhya 9.335
+
+> tabe mahāprabhu tāṅre āsite ājñā diyā
+> nīlācale calilā prabhu ānandita hañā
+
+*tabe*—then; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—unto him; *āsite*—to come; *ājñā diyā*—giving an order; *nīlācale*—to Jagannātha Purī; *calilā*—departed; *prabhu*—Lord Śrī Caitanya Mahāprabhu; *ānandita hañā*—with great pleasure.
+
+**Giving orders to Rāmānanda Rāya to come to Nīlācala, Śrī Caitanya Mahāprabhu departed for Jagannātha Purī with great pleasure.**

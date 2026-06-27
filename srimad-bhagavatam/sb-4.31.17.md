@@ -1,0 +1,30 @@
+### SB 4.31.17
+
+> yathā nabhasy abhra-tamaḥ-prakāśā
+> bhavanti bhūpā na bhavanty anukramāt
+> evaṁ pare brahmaṇi śaktayas tv amū
+> rajas tamaḥ sattvam iti pravāhaḥ
+
+*yathā*—as; *nabhasi*—in the sky; *abhra*—clouds; *tamaḥ*—darkness; *prakāśāḥ*—and illumination; *bhavanti*—exist; *bhū-pāḥ*—O Kings; *na bhavanti*—do not appear; *anukramāt*—consecutively; *evam*—thus; *pare*—supreme; *brahmaṇi*—in the Absolute; *śaktayaḥ*—energies; *tu*—then; *amūḥ*—those; *rajaḥ*—passion; *tamaḥ*—darkness; *sattvam*—goodness; *iti*—thus; *pravāhaḥ*—emanation.
+
+**My dear Kings, sometimes in the sky there are clouds, sometimes there is darkness, and sometimes there is illumination. The appearance of all these takes place consecutively. Similarly, in the Supreme Absolute, the modes of passion, darkness and goodness appear as consecutive energies. Sometimes they appear, and sometimes they disappear.**
+
+Darkness, illumination and clouds sometimes appear and sometimes disappear, but even when they have disappeared, the potency is still there, always existing. In the sky sometimes we see clouds, sometimes rainfall and sometimes snow. Sometimes we see night, sometimes day, sometimes illumination and sometimes darkness. All these exist due to the sun, but the sun is unaffected by all these changes. Similarly, although the Supreme Personality of Godhead is the original cause of the total cosmic manifestation, He is unaffected by the material existence. This is confirmed in Bhagavad-gītā:
+
+bhūmir āpo 'nalo vāyuḥ khaṁ mano buddhir eva ca ahaṅkāra itīyaṁ me bhinnā prakṛtir aṣṭadhā
+
+"Earth, water, fire, air, ether, mind, intelligence and false ego—all together these eight comprise My separated material energies." (Bg. 7.4)
+
+Although the material, or physical, elements are the energy of the Supreme Personality of Godhead, they are separate. The Supreme Personality of Godhead is therefore not affected by material conditions. The Vedānta-sūtra confirms (janmādy asya yataḥ) that the creation, maintenance and dissolution of this cosmic manifestation are due to the existence of the Supreme Lord. Nonetheless the Lord is unaffected by all these changes in the material elements. This is indicated by the word pravāha (emanation). The sun always shines brilliantly and is not affected by clouds or darkness. Similarly, the Supreme Personality of Godhead is always present in His spiritual energy and is not affected by the material emanations. Brahma-saṁhitā confirms:
+
+īśvaraḥ paramaḥ kṛṣṇaḥ sac-cid-ānanda-vigrahaḥ anādir ādir govindaḥ sarva-kāraṇa-kāraṇam
+
+"Kṛṣṇa, who is known as Govinda, is the Supreme Godhead. He has an eternal, blissful, spiritual body. He is the origin of all. He has no other origin, and He is the prime cause of all causes." (Bs. 5.1)
+
+Although He is the supreme cause, the cause of all causes, He is still parama, transcendental, and His form is sac-cid-ānanda, eternal, spiritual bliss. Kṛṣṇa is the shelter of everything, and this is the verdict of all scripture. Kṛṣṇa is the remote cause, and material nature is the immediate cause of the cosmic manifestation. In the Caitanya-caritāmṛta it is said that understanding prakṛti, or nature, to be the cause of everything is like understanding the nipples on the neck of a goat to be the cause of milk. Material nature is the immediate cause of the cosmic manifestation, but the original cause is Nārāyaṇa, Kṛṣṇa. Sometimes people think that the cause of an earthen pot is the earth. We see on a potter's wheel a sufficient amount of earth to produce many pots, and although unintelligent men will say that the earth on the wheel is the cause of the pot, those who are actually advanced will find that the original cause is the potter, who supplies the earth and moves the wheel. Material nature may be a helping factor in the creation of this cosmic manifestation, but it is not the ultimate cause. In Bhagavad-gītā the Lord therefore says:
+
+mayādhyakṣeṇa prakṛtiḥ sūyate sa-carācaram
+
+"This material nature is working under My direction, O son of Kuntī, and producing all moving and unmoving beings." (Bg. 9.10)
+
+The Supreme Lord casts His glance over material energy, and His glance agitates the three modes of nature. Creation then takes place. The conclusion is that nature is not the cause of the material manifestation. The Supreme Lord is the cause of all causes.

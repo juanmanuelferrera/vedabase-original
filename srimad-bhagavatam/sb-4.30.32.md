@@ -1,0 +1,12 @@
+### SB 4.30.32
+
+> pārijāte 'ñjasā labdhe
+> sāraṅgo 'nyan na sevate
+> tvad-aṅghri-mūlam āsādya
+> sākṣāt kiṁ kiṁ vṛṇīmahi
+
+*pārijāte*—the celestial tree known as *pārijāta*; *añjasā*—completely; *labdhe*—having achieved; *sāraṅgaḥ*—a bee; *anyat*—other; *na sevate*—does not resort to; *tvat-aṅghri*—Your lotus feet; *mūlam*—the root of everything; *āsādya*—having approached; *sākṣāt*—directly; *kim*—what; *kim*—what; *vṛṇīmahi*—may we ask.
+
+**Dear Lord, when the bee approaches the celestial tree called the pārijāta, it certainly does not leave the tree, because there is no need for such action. Similarly, when we have approached Your lotus feet and taken shelter of them, what further benediction may we ask of You?**
+
+When a devotee is actually engaged in the service of the lotus feet of the Lord, his engagement in itself is so perfect that there is no need to ask for further benediction. When a bee approaches the pārijāta tree, it gets unlimited supplies of honey. There is no need to go to another tree. If one is fixed in the service of the lotus feet of the Lord, there is unlimited transcendental bliss, and as such there is no need to ask for further benediction. The pārijāta tree is not commonly found within this material world. The pārijāta tree is also known as kalpa-vṛkṣa, or the wish-fulfilling tree. One can get anything he desires from such a tree. In the material world, one can get oranges from an orange tree or mangoes from a mango tree, but there is no possibility of getting oranges from a mango tree or vice versa. However, one can get whatever he wants from the pārijāta tree—oranges, mangoes, bananas, and so on. This tree is found in the spiritual world. Cintāmaṇi-prakara-sadmasu kalpa-vṛkṣa-lakṣāvṛteṣu. The spiritual world, cintāmaṇi-dhāma, is surrounded by these kalpa-vṛkṣa trees, but the pārijāta tree is also found in the kingdom of Indra, that is, on Indra's heavenly planet. This pārijāta tree was brought by Kṛṣṇa to please Satyabhāmā, one of His queens, and this tree was implanted in the Dvārakā mansions constructed for the queens. The lotus feet of the Lord are exactly like the pārijāta trees, or wish-fulfilling trees, and the devotees are like bumblebees. They are always attracted by the lotus feet of the Lord.

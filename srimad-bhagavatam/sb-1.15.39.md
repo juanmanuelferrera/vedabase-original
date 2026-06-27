@@ -1,0 +1,12 @@
+### SB 1.15.39
+
+> mathurāyāṁ tathā vajraṁ
+> śūrasena-patiṁ tataḥ
+> prājāpatyāṁ nirūpyeṣṭim
+> agnīn apibad īśvaraḥ
+
+*mathurāyām*—at Mathurā; *tathā*—also; *vajram*—Vajra; *śūrasena-patim*—King of the Śūrasenas; *tataḥ*—thereafter; *prājāpatyām*—Prājāpatya sacrifice; *nirūpya*—having performed; *iṣṭim*—goal; *agnīn*—fire; *apibat*—placed in himself; *īśvaraḥ*—capable.
+
+**Then he posted Vajra, the son of Aniruddha (grandson of Lord Kṛṣṇa), at Mathurā as the King of Śūrasena. Afterwards Mahārāja Yudhiṣṭhira performed a Prajāpati sacrifice and placed in himself the fire for quitting household life.**
+
+Mahārāja Yudhiṣṭhira, after placing Mahārāja Parīkṣit on the imperial throne of Hastināpura, and after posting Vajra, the great-grandson of Lord Kṛṣṇa, as the King of Mathurā, accepted the renounced order of life. The system of four orders of life and four castes in terms of quality and work known as varṇāśrama-dharma, is the beginning of real human life, and Mahārāja Yudhiṣṭhira, as the protector of this system of human activities, timely retired from active life as a sannyāsī, handing over the charge of the administration to a trained prince, Mahārāja Parīkṣit. The scientific system of varṇāśrama-dharma divides the human life in four divisions of occupation and four orders of life. The four orders of life as brahmacārī, grhastha, vānaprastha and sannyāsa are to be followed by all, irrespective of the occupational division. Modern politicians do not wish to retire from active life, even if they are old enough, but Yudhiṣṭhira Mahārāja, as an ideal king, voluntarily retired from active administrative life to prepare himself for the next life. Everyone’s life must be so arranged that the last stage of life, say at least the last fifteen to twenty years prior to death, can be absolutely devoted to devotional service of the Lord to attain the highest perfection of life. It is really foolishness to engage oneself all the days of one’s life in material enjoyment and fruitive activities, because as long as the mind remains absorbed in fruitive work for material enjoyment, there is no chance of getting out from conditioned life or material bondage. No one should follow the suicidal policy of neglecting one’s supreme task of attaining the highest perfection of life, namely going back home, back to Godhead.

@@ -1,0 +1,16 @@
+### Bg 7.25
+
+> nāhaṁ prakāśaḥ sarvasya
+> yoga-māyā-samāvṛtaḥ
+> mūḍho 'yaṁ nābhijānāti
+> loko mām ajam avyayam
+
+*na*—nor; *aham*—I; *prakāśaḥ*—manifest; *sarvasya*—to everyone; *yoga-māyā*—internal potency; *samāvṛtaḥ*—covered; *mūḍhaḥ*—foolish; *ayam*—this; *na*—not; *abhijānāti*—can understand; *lokaḥ*—such less intelligent persons; *mām*—Me; *ajam*—unborn; *avyayam*—inexhaustible.
+
+**I am never manifest to the foolish and unintelligent. For them I am covered by My eternal creative potency [yoga-māyā]; and so the deluded world knows Me not, who am unborn and infallible.**
+
+It may be argued that since Kṛṣṇa was present on this earth and was visible to everyone, then why isn't He manifest to everyone now? But actually He was not manifest to everyone. When Kṛṣṇa was present there were only a few people who could understand Him to be the Supreme Personality of Godhead. In the assembly of Kurus, when Śiśupāla spoke against Kṛṣṇa being elected president of the assembly, Bhīṣma supported Him and proclaimed Him to be the Supreme God. Similarly, the Pāṇḍavas and a few others knew that He was the Supreme, but not everyone. He was not revealed to the nondevotees and the common man. Therefore in the *Gītā* Kṛṣṇa says that but for His pure devotees, all men consider Him to be like themselves. He was manifest only to His devotees as the reservoir of all pleasure. But to others, to unintelligent nondevotees, He was covered by His eternal potency.
+
+In the prayers of Kuntī in the *Śrīmad-Bhāgavatam* (1.8.18), it is said that the Lord is covered by the curtain of *yoga-māyā* and thus ordinary people cannot understand Him. Kuntī prays: "O my Lord, You are the maintainer of the entire universe, and devotional service to You is the highest religious principle. Therefore, I pray that You will also maintain me. Your transcendental form is covered by the *yoga-māyā.* The *brahmajyoti* is the covering of the internal potency. May You kindly remove this glowing effulgence that impedes my seeing Your *sac-cid-ānanda-vigraha,* Your eternal form of bliss and knowledge."
+
+This yoga-māyā curtain is also mentioned in the Fifteenth Chapter of the Gītā. The Supreme Personality of Godhead in His transcendental form of bliss and knowledge is covered by the eternal potency of *brahmajyoti* and the less intelligent impersonalists cannot see the Supreme on this account. Also in the *Śrīmad-Bhāgavatam* (10.14.7) there is this prayer by Brahmā: "O Supreme Personality of Godhead, O Supersoul, O master of all mystery, who can calculate Your potency and pastimes in this world? You are always expanding Your eternal potency, and therefore no one can understand You. Learned scientists and learned scholars can examine the atomic constitution of the material world or even the planets, but still they are unable to calculate Your energy and potency, although You are present before them." The Supreme Personality of Godhead, Lord Kṛṣṇa, is not only unborn, but He is *avyaya,* inexhaustible. His eternal form is bliss and knowledge, and His energies are all inexhaustible.

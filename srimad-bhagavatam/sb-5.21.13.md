@@ -1,0 +1,7 @@
+### SB 5.21.13
+
+> yasyaikaṁ cakraṁ dvādaśāraṁ ṣaṇ-nemi tri-ṇābhi saṁvatsarātmakaṁ samāmananti tasyākṣo meror mūrdhani kṛto mānasottare kṛtetara-bhāgo yatra protaṁ ravi-ratha-cakraṁ taila-yantra-cakravad bhraman mānasottara-girau paribhramati.
+
+*yasya*—of which; *ekam*—one; *cakram*—wheel; *dvādaśa*—twelve; *aram*—spokes; *ṣaṭ*—six; *nemi*—the segments of the rim; *tri-ṇābhi*—the three pieces of the hub; *saṁvatsara-ātmakam*—whose nature is a *saṁvatsara*; *samāmananti*—they fully describe; *tasya*—the chariot of the sun-god; *akṣaḥ*—the axle; *meroḥ*—of Sumeru Mountain; *mūrdhani*—on the top; *kṛtaḥ*—fixed; *mānasottare*—on the mountain known as Mānasottara; *kṛta*—fixed; *itara-bhāgaḥ*—the other end; *yatra*—where; *protam*—fixed on; *ravi-ratha-cakram*—the wheel of the chariot of the sun-god; *taila-yantra-cakra-vat*—like the wheel of an oil-pressing machine; *bhramat*—moving; *mānasottara-girau*—on Mānasottara Mountain; *paribhramati*—turns.
+
+**The chariot of the sun-god has only one wheel, which is known as Saṁvatsara. The twelve months are calculated to be its twelve spokes, the six seasons are the sections of its rim, and the three cātur-māsya periods are its three-sectioned hub. One side of the axle carrying the wheel rests upon the summit of Mount Sumeru, and the other rests upon Mānasottara Mountain. Affixed to the outer end of the axle, the wheel continuously rotates on Mānasottara Mountain like the wheel of an oil-pressing machine.**

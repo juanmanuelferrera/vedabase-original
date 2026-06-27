@@ -1,0 +1,22 @@
+### CC Madhya 22.14-15
+
+> kāma-krodhera dāsa hañā tāra lāthi khāya
+> bhramite bhramite yadi sādhu-vaidya pāya
+
+> tāṅra upadeśa-mantre piśācī palāya
+> kṛṣṇa-bhakti pāya, tabe kṛṣṇa-nikaṭa yāya
+
+*kāma*—of lusty desires; *krodhera*—and of anger; *dāsa*—the servant; *hañā*—becoming; *tāra*—by them; *lāthi khāya*—is kicked; *bhramitebhramite*—wandering and wandering; *yadi*—if; *sādhu*—a devotee; *vaidya*—physician; *pāya*—he gets; *tāṅra*—his; *upadeśa-mantre*—by instruction and hymns; *piśācī*—the witch (the external energy); *palāya*—flees; *kṛṣṇa-bhakti*—devotional service to Kṛṣṇa; *pāya*—obtains; *tabe*—in this way; *kṛṣṇa-nikaṭa yāya*—he goes to Kṛṣṇa.
+
+**"In this way the conditioned soul becomes the servant of lusty desires, and when these are not fulfilled, he becomes a servant of anger and continues to be kicked by the external energy, māyā. Wandering and wandering throughout the universe, he may by chance get the association of a devotee physician, whose instructions and hymns make the witch of external energy flee. The conditioned soul thus gets into touch with the devotional service of Lord Kṛṣṇa, and in this way he can approach nearer and nearer to the Lord.**
+
+An explanation of verses 8 through 15 is given by Śrīla Bhaktivinoda Ṭhākura in his *Amṛta-pravāha-bhāṣya.* The Lord is spread throughout the creation in His quadruple expansions and incarnations. Kṛṣṇa is fully represented with all potencies in each and every personal extension, but the living entities, although separated expansions, are also considered one of the Lord's energies. The living entities are divided into two categories—the eternally liberated and eternally conditioned. Those who are ever-liberated never come in contact with *māyā,* the external energy. The ever-conditioned are always under the clutches of the external energy. This is described in *Bhagavad-gītā:*
+
+> daivī hy eṣā guṇa-mayī
+> mama māyā duratyayā
+
+"This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome." [[bg/7/14|(Bg. 7.14)]]
+
+The *nitya-baddhas* are always conditioned by the external energy, and the *nitya-muktas* never come in contact with the external energy. Sometimes an ever-liberated personal associate of the Supreme Personality of Godhead descends into this universe just as the Lord descends. Although working for the liberation of conditioned souls, the messenger of the Supreme Lord remains untouched by the material energy. Generally ever-liberated personalities live in the spiritual world as associates of Lord Kṛṣṇa, and they are known as *kṛṣṇa-pāriṣada,* associates of the Lord. Their only business is enjoying Lord Kṛṣṇa's company, and even though such eternally liberated persons come within this material world to serve the Lord's purpose, they enjoy Lord Kṛṣṇa's company without stoppage. The ever-liberated person who works on Kṛṣṇa's behalf enjoys Lord Kṛṣṇa's company through his engagement. The ever-conditioned soul, provoked by lusty desires to enjoy the material world, is subjected to transmigrate from one body to another. Sometimes he is elevated to higher planetary systems, and sometimes he is degraded to hellish planets and subjected to the tribulations of the external energy.
+
+Due to being conditioned by the external energy, the conditioned soul within this material world gets two kinds of bodies-a gross material body and a subtle body composed of mind, intelligence and ego. Due to the gross and subtle bodies, he is subjected to the threefold miseries (*ādhyātmika, ādhibhautika* and *ādhidaivika),* miseries arising from the body and mind, other living entities, and natural disturbances caused by demigods from higher planetary systems. The conditioned soul subjected to the threefold material miseries is ceaselessly kicked by *māyā,* and this is his disease. If by chance he meets a saintly person who works on Kṛṣṇa's behalf to deliver conditioned souls, and if he agrees to abide by his order, he can gradually approach the Supreme Personality of Godhead, Kṛṣṇa.

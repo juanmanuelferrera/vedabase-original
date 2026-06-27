@@ -1,0 +1,12 @@
+### SB 4.28.5
+
+> tasyāṁ prapīḍyamānāyām
+> abhimānī purañjanaḥ
+> avāporu-vidhāṁs tāpān
+> kuṭumbī mamatākulaḥ
+
+*tasyām*—when the city; *prapīḍyamānāyām*—was put into different difficulties; *abhimānī*—too much absorbed; *purañjanaḥ*—King Purañjana; *avāpa*—achieved; *uru*—many; *vidhān*—varieties; *tāpān*—pains; *kuṭumbī*—family man; *mamatā-ākulaḥ*—too much affected by attachment to family.
+
+**When the city was thus endangered by the soldiers and Kālakanyā, King Purañjana, being overly absorbed in affection for his family, was placed in difficulty by the attack of Yavana-rāja and Kālakanyā.**
+
+When we refer to the body, we include the external gross body with its various limbs, as well as the mind, intelligence and ego. In old age these all become weak when they are attacked by different diseases. The proprietor of the body, the living soul, becomes very sad at not being able to use the field of activities properly. In Bhagavad-gītā it is clearly explained that the living entity is the proprietor of this body (kṣetra jña) and that the body is the field of activities (kṣetra). When a field is overgrown with thorns and weeds, it becomes very difficult for the owner to work it. That is the position of the spirit soul when the body itself becomes a burden due to disease. Extra burdens are placed on the body in the form of anxiety and general deterioration of the bodily functions.

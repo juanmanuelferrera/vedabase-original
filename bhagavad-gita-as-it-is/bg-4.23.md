@@ -1,0 +1,12 @@
+### Bg 4.23
+
+> gata-saṅgasya muktasya
+> jñānāvasthita-cetasaḥ
+> yajñāyācarataḥ karma
+> samagraṁ pravilīyate
+
+*gata-saṅgasya*—unattached to the modes of material nature; *muktasya*—of the liberated; *jñāna-avasthita*—situated in transcendence; *cetasaḥ*—of such wisdom; *yajñāya*—for the sake of Yajña (Kṛṣṇa); *ācarataḥ*—so acting; *karma*—work; *samagram*—in total; *pravilīyate*—merges entirely.
+
+**The work of a man who is unattached to the modes of material nature and who is fully situated in transcendental knowledge merges entirely into transcendence.**
+
+Becoming fully Kṛṣṇa conscious, one is freed from all dualities and thus is free from the contaminations of the material modes. He can become liberated because he knows his constitutional position in relationship with Kṛṣṇa; and thus his mind cannot be drawn from Kṛṣṇa consciousness. Consequently, whatever he does, he does for Kṛṣṇa, who is the primeval Viṣṇu. Therefore, all his works are technically sacrifices because sacrifice involves satisfying the Supreme Person, Kṛṣṇa. The resultant reactions to all such work certainly merge into transcendence, and one does not suffer material effects.

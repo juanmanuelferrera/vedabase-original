@@ -1,0 +1,10 @@
+### CC Adi 16.32
+
+> vyākaraṇa-madhye, jāni, paḍāha kalāpa
+> śuniluṅ phāṅkite tomāra śiṣyera saṁlāpa
+
+*vyākaraṇa-madhye*—among grammars; *jāni*—I understand; *paḍāha*—You teach; *kalāpa*—the *Kalāpa-vyākaraṇa*; *śuniluṅ*—I have heard; *phāṅkite*—in deceitful word jugglery; *tomāra*—Your; *śiṣyera*—of the disciples; *saṁlāpa*—the specific knowledge.
+
+**"I understand that You teach Kalāpa-vyākaraṇa. I have heard that Your students are very expert in the word jugglery of this grammar."**
+
+There are many schools of grammar in the Sanskrit language, the most famous of which are the systems of Pāṇini and the Kalāpa and Kaumudī grammars. There were different branches of grammatical knowledge, and a student of grammar was supposed to study them all in twelve years. Caitanya Mahāprabhu, who was famous as Nimāi Paṇḍita, taught grammar to His students, who became expert in dealing with the word jugglery of complicated grammar. Almost anyone expert in studying grammar interprets the *śāstras* in many ways by changing the root meanings of their words. A student of grammar can sometimes completely change the meaning of a sentence by juggling grammatical rules. Keśava Kāśmīrī indirectly taunted Lord Caitanya Mahāprabhu by implying that although He was a great teacher of grammar, such grammatical jugglery of root meanings did not require great expertise. This was a challenge to Śrī Caitanya Mahāprabhu. Because it was prearranged that Keśava Kāśmīrī would have to discuss the *śāstras* with Nimāi Paṇḍita, from the very beginning he wanted to bluff the Lord. Thus the Lord replied as follows.

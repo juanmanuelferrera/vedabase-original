@@ -1,0 +1,19 @@
+### SB 6.17.32
+
+> nāhaṁ viriñco na kumāra-nāradau
+> na brahma-putrā munayaḥ sureśāḥ
+> vidāma yasyehitam aṁśakāṁśakā
+> na tat-svarūpaṁ pṛthag-īśa-māninaḥ
+
+*na*—not; *aham*—I (Lord Śiva); *viriñcaḥ*—Lord Brahmā; *na*—nor; *kumāra*—the Aśvinī-kumāras; *nāradau*—the great saint Nārada; *na*—nor; *brahma-putrāḥ*—the sons of Lord Brahmā; *munayaḥ*—great saintly persons; *sura-īśāḥ*—all the great demigods; *vidāma*—know; *yasya*—of whom; *īhitam*—activity; *aṁśaka-aṁśakāḥ*—those who are parts of the parts; *na*—not; *tat*—His; *sva-rūpam*—real personality; *pṛthak*—separate; *īśa*—rulers; *māninaḥ*—who consider ourselves to be.
+
+**Neither I [Lord Śiva], nor Brahmā, nor the Aśvinī-kumāras, nor Nārada or the other great sages who are Brahmā's sons, nor even the demigods can understand the pastimes and personality of the Supreme Lord. Although we are part of the Supreme Lord, we consider ourselves independent, separate controllers, and thus we cannot understand His identity.**
+
+*Brahma-saṁhitā* (5.33) states:
+
+> advaitam acyutam anādim ananta-rūpam
+> ādyaṁ purāṇa-puruṣaṁ nava-yauvanaṁ ca
+> vedeṣu durlabham adurlabham ātma-bhaktau
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+
+"I worship the Supreme Personality of Godhead, Govinda, who is the original person. He is absolute, infallible and beginningless, and although expanded into unlimited forms, He is still the same original person, the oldest person, who always appears as a fresh youth. The eternal, blissful, all-knowing forms of the Lord can not be understood even by the best Vedic scholars, but they are always manifest to pure, unalloyed devotees." Lord Śiva places himself as one of the nondevotees, who cannot understand the identity of the Supreme Lord. The Lord, being *ananta,* has an unlimited number of forms. Therefore, how is it possible for an ordinary, common man to understand Him? Lord Śiva, of course, is above the ordinary human beings, yet be is unable to understand the Supreme Personality of Godhead. Lord Śiva is not among the ordinary living entities, nor is he in the category of Lord Viṣṇu. He is between Lord Viṣṇu and the common living entity.

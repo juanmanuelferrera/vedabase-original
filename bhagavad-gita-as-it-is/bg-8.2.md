@@ -1,0 +1,16 @@
+### Bg 8.2
+
+> adhiyajñaḥ kathaṁ ko 'tra
+> dehe 'smin madhusūdana
+> prayāṇa-kāle ca kathaṁ
+> jñeyo 'si niyatātmabhiḥ
+
+*adhiyajñaḥ*—the Lord of sacrifice; *katham*—how; *kaḥ*—who; *atra*—here; *dehe*—in the body; *asmin*—in this; *madhusūdana*—O Madhusūdana; *prayāṇa-kāle*—at the time of death; *ca*—and; *katham*—how; *jñeyaḥ*—be known; *asi*—You can; *niyata-ātmabhiḥ*—by the self-controlled.
+
+**How does this Lord of sacrifice live in the body, and in which part does He live, O Madhusūdana? And how can those engaged in devotional service know You at the time of death?**
+
+The Lord of sacrifice accepts Indra and Viṣṇu. Viṣṇu is the chief of the primal demigods, including Brahmā and Śiva, and Indra is the chief of the administrative demigods. Both Indra and Viṣṇu are worshiped by *yajña* performances. But here Arjuna asks who is actually the Lord of *yajña* (sacrifice), and how is the Lord residing within the body of the living entity.
+
+Arjuna addresses the Lord as Madhusūdana because Kṛṣṇa once killed a demon named Madhu. Actually these questions, which are of the nature of doubts, should not have arisen in the mind of Arjuna because Arjuna is a Kṛṣṇa conscious devotee. Therefore these doubts are like demons. Since Kṛṣṇa is so expert in killing demons, Arjuna here addresses Him as Madhusūdana so that Kṛṣṇa might kill the demonic doubts that arise in Arjuna's mind.
+
+Now the word *prayāṇa-kāle* in this verse is very significant because whatever we do in life will be tested at the time of death. Arjuna fears that at the time of death, those who are in Kṛṣṇa consciousness will forget the Supreme Lord because at such a time body functions are disrupted and the mind may be in a panic-stricken state. Therefore Mahārāja Kulaśekhara, a great devotee, prays, "My dear Lord, may I die immediately now that I'm healthy so that the swan of my mind may enter into the stem of Thy lotus feet." This metaphor is used because the swan often takes pleasure in entering the stem of the lotus flower—similarly, the mind of the pure devotee is drawn to the lotus feet of the Lord. Mahārāja Kulaśekhara fears that at the moment of death his throat will be so choked up that he will not be able to chant the holy names, so it is better to "die immediately." Arjuna questions how one's mind can remain fixed on Kṛṣṇa's lotus feet at such times.

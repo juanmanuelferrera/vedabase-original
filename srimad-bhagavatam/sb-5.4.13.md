@@ -1,0 +1,9 @@
+### SB 5.4.13
+
+> yavīyāṁsa ekāśītir jāyanteyāḥ pitur ādeśakarā mahā-śālīnā mahā-śrotriyā yajña-śīlāḥ karma-viśuddhā brāhmaṇā babhūvuḥ.
+
+*yavīyāṁsaḥ*—younger; *ekāśītiḥ*—numbering eighty-one; *jāyanteyāḥ*—the sons of Jayantī, the wife of Ṛṣabhadeva; *pituḥ*—of their father; *ādeśakarāḥ*—following the order; *mahā-śālīnāḥ*—well behaved. well cultured; *mahā-śrotriyāḥ*—extremely learned in Vedic knowledge; *yajña-śīlāḥ*—expert in performing ritualistic ceremonies; *karma-viśuddhāḥ*—very pure in their activities; *brāhmaṇāḥ*—qualified *brāhmaṇas*; *babhūvuḥ*—became.
+
+**In addition to these nineteen sons mentioned above, there were eighty-one younger ones, all born of Ṛṣabhadeva and Jayantī. According to the order of their father, they became well cultured, well behaved, very pure in their activities and expert in Vedic knowledge and the performance of Vedic rituals. Thus they all became perfectly qualified brāhmaṇas.**
+
+From this verse we have good information of how the castes are qualified according to quality and work. Ṛṣabhadeva, a king, was certainly a *kṣatriya.* He had a hundred sons, and out of these, ten were engaged as *kṣatriyas* and ruled the planet. Nine sons became good preachers of *Śrīmad-Bhāgavatam* (*mahā-bhāgavatas*), and this indicates that they were above the position of *brāhmaṇas.* The other eighty-one sons became highly qualified *brāhmaṇas.* These are some practical examples of how one can become fit for a certain type of activity by qualification, not by birth. All the sons of Mahārāja Ṛṣabhadeva were *kṣatriyas* by birth, but by quality some of them became *kṣatriyas,* and some became *brāhmaṇas.* Nine became preachers of *Śrīmad-Bhāgavatam* (*bhāgavata-dharma-darśanāḥ*), which means that they were above the categories of *kṣatriya* and *brāhmaṇa.*

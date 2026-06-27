@@ -1,0 +1,12 @@
+### SB 1.9.29
+
+> dharmaṁ pravadatas tasya
+> sa kālaḥ pratyupasthitaḥ
+> yo yoginaś chanda-mṛtyor
+> vāñchitas tūttarāyaṇaḥ
+
+*dharmam*—occupational duties; *pravadataḥ*—while describing; *tasya*—his; *saḥ*—that; *kālaḥ*—time; *pratyupasthitaḥ*—exactly appeared; *yaḥ*—that is; *yoginaḥ*—for the mystics; *chanda-mṛtyoḥ*—of one who dies according to one's own selection of time; *vāñchitaḥ*—is desired by; *tu*—but; *uttarāyaṇaḥ*—the period when the sun runs on the northern horizon.
+
+**While Bhīṣmadeva was describing occupational duties, the sun's course ran into the northern hemisphere. This period is desired by mystics who die at their will.**
+
+The perfect yogīs or mystics can leave the material body at their own sweet will at a suitable time and go to a suitable planet desired by them. In the Bhagavad-gītā (Bg. 8.14) it is said that self-realized souls who have exactly identified themselves with the interest of the Supreme Lord can generally leave the material body during the time of the fire-god's effulgence and when the sun is in the northern horizon, and thus achieve the transcendental sky. In the Vedas these times are considered auspicious for quitting the body, and they are taken advantage of by the expert mystics who have perfected the system. Perfection of yoga means attainment of such supermental states as to be able to leave the material body as desired. They can also reach any planet within no time without a material vehicle. The yogīs can reach the highest planetary system within a very short time, and this is impossible for the materialist. Even attempting to reach the highest planet will take millions of years at a speed of millions of miles per hour. This is a different science, and Bhīṣmadeva knew well how to utilize it. He was just waiting for the suitable moment to quit his material body, and the golden opportunity arrived when he was instructing his noble grandsons, the Pāṇḍavas. He thus prepared himself to quit his body before the exalted Lord Śrī Kṛṣṇa, the pious Pāṇḍavas and the great sages headed by Bhagavān Vyaśā, etc., all great souls.

@@ -1,0 +1,17 @@
+### SB 6.3.20-21
+
+> svayambhūr nāradaḥ śambhuḥ
+> kumāraḥ kapilo manuḥ
+> prahlādo janako bhīṣmo
+> balir vaiyāsakir vayam
+
+> dvādaśaite vijānīmo
+> dharmaṁ bhāgavataṁ bhaṭāḥ
+> guhyaṁ viśuddhaṁ durbodhaṁ
+> yaṁ jñātvāmṛtam aśnute
+
+*svayambhūḥ*—Lord Brahmā; *nāradaḥ*—the great saint Nārada; *śambhuḥ*—Lord Śiva; *kumāraḥ*—the four Kumāras; *kapilaḥ*—Lord Kapila; *manuḥ*—Svāyambhuva Manu; *prahlādaḥ*—Prahlāda Mahārāja; *janakaḥ*—Janaka Mahārāja; *bhīṣmaḥ*—Grandfather Bhīṣma; *baliḥ*—Bali Mahārāja; *vaiyāsakiḥ*—Śukadeva, the son of Vyāsadeva; *vayam*—we; *dvādaśa*—twelve; *ete*—these; *vijānīmaḥ*—know; *dharmam*—real religious principles; *bhāgavatam*—which teach a person how to love the Supreme Personality of Godhead; *bhaṭāḥ*—O my dear servants; *guhyam*—very confidential; *viśuddham*—transcendental, not contaminated by the material modes of nature; *durbodham*—not easily understood; *yam*—which; *jñātvā*—understanding; *amṛtam*—eternal life; *aśnute*—he enjoys.
+
+**Lord Brahmā, Bhagavān Nārada, Lord Śiva, the four Kumāras, Lord Kapila [the son of Devahūti], Svāyambhuva Manu, Prahlāda Mahārāja, Janaka Mahārāja, Grandfather Bhīṣma, Bali Mahārāja, Śukadeva Gosvāmī and I myself know the real religious principle. My dear servants, this transcendental religious principle, which is known as bhāgavata-dharma, or surrender unto the Supreme Lord and love for Him, is uncontaminated by the material modes of nature. It is very confidential and difficult for ordinary human beings to understand, but if by chance one fortunately understands it, he is immediately liberated, and thus he returns home, back to Godhead.**
+
+In *Bhagavad-gītā* Lord Kṛṣṇa refers to *bhāgavata-dharma* as the most confidential religious principle (*sarva-guhyatamam, guhyād guhyataram*). Kṛṣṇa says to Arjuna, "Because you are My very dear friend, I am explaining to you the most confidential religion." *Sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja:* [[bg/18/66|[Bg. 18.66] ]] "Give up all other duties and surrender unto Me." One may ask, "If this principle is very rarely understood, what is the use of it?" In answer, Yamarāja states herein that this religious principle is understandable if one follows the *paramparā* system of Lord Brahmā, Lord Śiva, the four Kumāras and the other standard authorities. There are four lines of disciplic succession: one from Lord Brahmā, one from Lord Śiva, one from Lakṣmī, the goddess of fortune, and one from the Kumāras. The disciplic succession from Lord Brahmā is called the Brahma-sampradāya, the succession from Lord Śiva (Śambhu) is called the Rudra-sampradāya, the one from the goddess of fortune, Lakṣmījī, is called the Śrī-sampradāya, and the one from the Kumāras is called the Kumāra-sampradāya. One must take shelter of one of these four *sampradāyas* in order to understand the most confidential religious system. In the *Padma Purāṇa* it is said, *sampradāya-vihīnā ye mantrās te niṣphalā matāḥ:* if one does not follow the four recognized disciplic successions, his *mantra* or initiation is useless. In the present day there are many *apasampradāyas,* or *sampradāyas* which are not bona fide, which have no link to authorities like Lord Brahmā, Lord Śiva, the Kumāras or Lakṣmī. People are misguided by such *sampradāyas.* The *śāstras* say that being initiated in such a *sampradāya* is a useless waste of time, for it will never enable one to understand the real religious principles.

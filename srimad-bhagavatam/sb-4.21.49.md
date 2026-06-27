@@ -1,0 +1,12 @@
+### SB 4.21.49
+
+> aho vayaṁ hy adya pavitra-kīrte
+> tvayaiva nāthena mukunda-nāthāḥ
+> ya uttamaślokatamasya viṣṇor
+> brahmaṇya-devasya kathāṁ vyanakti
+
+*aho*—oh, goodness; *vayam*—we; *hi*—certainly; *adya*—today; *pavitra-kīrte*—O supreme purity; *tvayā*—by you; *eva*—certainly; *nāthena*—by the Lord; *mukunda*—the Supreme Personality of Godhead; *nāthāḥ*—being the subject of the Supreme; *ye*—one who; *uttama-śloka-tamasya*—of the Supreme Personality of Godhead, who is praised by the nicest verses; *viṣṇoḥ*—of Viṣṇu; *brahmaṇya-devasya*—of the worshipable Lord of the *brāhmaṇas*; *kathām*—words; *vyanakti*—expressed.
+
+**The audience continued: Dear King Pṛthu, your reputation is the purest of all, for you are preaching the glories of the most glorified of all, the Supreme Personality of Godhead, the Lord of the brāhmaṇas. Since, due to our great fortune, we have you as our master, we think that we are living directly under the agency of the Lord.**
+
+The citizens declared that through being under the protection of Mahārāja Pṛthu they were directly under the protection of the Supreme Personality of Godhead. This understanding is the proper situation of social steadiness within this material world. Since it is stated in the Vedas that the Supreme Personality of Godhead is the maintainer and leader of all living entities, the king or the executive head of the government must be a representative of the Supreme Person. Then he can claim honor exactly like the Lord's. How a king or leader of society can become the representative of the Supreme Personality of Godhead is also indicated in this verse by the statement that because Pṛthu Mahārāja was preaching the supremacy and the glories of the Supreme Personality of Godhead, Viṣṇu, he was therefore a proper representative of the Lord. To remain under the jurisdiction or administration of such a king or leader is the perfect status for human society. The primary responsibility of such a king or leader is to protect the brahminical culture and the cows in his state.

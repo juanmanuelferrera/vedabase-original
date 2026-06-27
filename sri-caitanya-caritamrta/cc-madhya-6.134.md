@@ -1,0 +1,8 @@
+### CC Madhya 6.134
+
+> mukhyārtha chāḍiyā kara gauṇārtha kalpanā
+> 'abhidhā'-vṛtti chāḍi' kara śabdera lakṣaṇā
+
+*mukhya-artha*—direct meaning; *chāḍiyā*—giving up; *kara*—you do; *gauṇa-artha*—indirect meaning; *kalpanā*—imagining; *abhidhā-vṛtti*—the meaning that is understood immediately; *chāḍi'*—giving up; *kara*—you do; *śabdera*—of the words; *lakṣaṇā*—interpretation.
+
+**"For each verse the direct meaning must be accepted without interpretation. However, you simply abandon the direct meaning and proceed with your imaginative interpretation.**

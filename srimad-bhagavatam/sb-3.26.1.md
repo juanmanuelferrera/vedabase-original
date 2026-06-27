@@ -1,0 +1,13 @@
+### SB 3.26.1
+
+> śrī-bhagavān uvāca
+> atha te sampravakṣyāmi
+> tattvānāṁ lakṣaṇaṁ pṛthak
+> yad viditvā vimucyeta
+> puruṣaḥ prākṛtair guṇaiḥ
+
+*śrī-bhagavān uvāca*—the Personality of Godhead said; *atha*—now; *te*—to you; *sampravakṣyāmi*—I shall describe; *tattvānām*—of the categories of the Absolute Truth; *lakṣaṇam*—the distinctive features; *pṛthak*—one by one; *yat*—which; *viditvā*—knowing; *vimucyeta*—one can be released; *puruṣaḥ*—any person; *prākṛtaiḥ*—of the material nature; *guṇaiḥ*—from the modes.
+
+**The Personality of Godhead, Kapila, continued: My dear mother, now I shall describe unto you the different categories of the Absolute Truth, knowing which any person can be released from the influence of the modes of material nature.**
+
+As stated in *Bhagavad-gītā,* one can understand the Supreme Personality of Godhead, the Absolute Truth, only through devotional service (*bhaktyā mām abhijānāti* [[bg/18/55|[Bg. 18.55] ]]). As stated in the *Bhāgavatam,* the object of devotional service is *mām,* Kṛṣṇa. And, as explained in the *Caitanya-caritāmṛta,* to understand Kṛṣṇa means to understand Kṛṣṇa in His personal form with His internal energy, His external energy, His expansions and His incarnations. There are many diverse departments of knowledge in understanding Kṛṣṇa. Sāṅkhya philosophy is especially meant for persons who are conditioned by this material world. It is generally understood by the *paramparā* system, or by disciplic succession, to be the science of devotional service. Preliminary studies of devotional service have already been explained. Now the analytical study of devotional service will be explained by the Lord, who says that by such an analytical study, one becomes freed from the modes of material nature. The same assertion is confirmed in *Bhagavad-gītā. Tato māṁ tattvato jñātvā:* by understanding the Lord according to various categories, one can become eligible to enter into the kingdom of God. This is also explained here. By understanding the science of devotional service in Sāṅkhya philosophy, one can become free from the modes of material nature. The eternal self, after becoming freed from the spell of material nature, becomes eligible to enter into the kingdom of God. As long as one has even a slight desire to enjoy or lord it over material nature, there is no chance of his being freed from the influence of nature's material modes. Therefore, one has to understand the Supreme Personality of Godhead analytically, as explained in the Sāṅkhya system of philosophy by Lord Kapiladeva.

@@ -1,0 +1,15 @@
+### SB 4.20.34
+
+> maitreya uvāca
+> iti vainyasya rājarṣeḥ
+> pratinandyārthavad vacaḥ
+> pūjito 'nugṛhītvainaṁ
+> gantuṁ cakre 'cyuto matim
+
+*maitreyaḥ uvāca*—the great sage Maitreya continued to speak; *iti*—thus; *vainyasya*—of the son of King Vena (Pṛthu Mahārāja); *rāja-ṛṣeḥ*—of the saintly King; *pratinandya*—appreciating; *artha-vat vacaḥ*—the prayers, which were full of meaning; *pūjitaḥ*—being worshiped; *anugṛhītvā*—sufficiently benedicting; *enam*—King Pṛthu; *gantum*—to go from that place; *cakre*—made up; *acyutaḥ*—the infallible Lord; *matim*—His mind.
+
+**The great saint Maitreya told Vidura: The Supreme Personality of Godhead amply appreciated the meaningful prayers of Mahārāja Pṛthu. Thus, after being properly worshiped by the King, the Lord benedicted him and decided to depart.**
+
+Most important in this verse are the words pratinandyārthavad vacaḥ, which indicate that the Lord appreciated the very meaningful prayers of the King. When a devotee prays to the Lord, it is not to ask for material benefits but to ask the Lord for His favor; he prays that he may be engaged in the service of the Lord's lotus feet birth after birth. Lord Caitanya therefore uses the words mama janmani janmani, which mean "birth after birth," because a devotee is not even interested in stopping the repetition of birth. The Lord and the devotee appear in this material world birth after birth, but such births are transcendental. In the Fourth Chapter of Bhagavad-gītā the Lord informed Arjuna that both He and Arjuna had undergone many, many births previously, but the Lord remembered everything about them whereas Arjuna had forgotten. The Lord and His confidential devotees appear many times to fulfill the Lord's mission, but since such births are transcendental, they are not accompanied by the miserable conditions of material birth, and they are therefore called divya, transcendental.
+
+One must understand the transcendental birth of the Lord and the devotee. The purpose of the Lord's taking birth is to establish devotional service, which is the perfect system of religion, and the purpose of the birth of a devotee is to broadcast the same system of religion, or the bhakti cult, all over the world. Pṛthu Mahārāja was an incarnation of the power of the Lord to spread the bhakti cult, and the Lord blessed him to remain fixed in his position. Thus when the King refused to accept any material benediction, the Lord appreciated that refusal very much. Another significant word in this verse is acyuta, which means "infallible." Although the Lord appears in this material world, He is never to be considered one of the conditioned souls, who are all fallible. When the Lord appears, He remains in His spiritual position, uncontaminated by the modes of material nature, and therefore in Bhagavad-gītā the Lord expresses the quality of His appearance as ātma-māyayā, "performed by internal potency." The Lord, being infallible, is not forced by material nature to take birth in this material world. He appears in order to reestablish the perfect order of religious principles and to vanquish the demoniac influence in human society.

@@ -1,0 +1,19 @@
+### SB 8.24.53
+
+> tvaṁ tvām ahaṁ deva-varaṁ vareṇyaṁ
+> prapadya īśaṁ pratibodhanāya
+> chindhy artha-dīpair bhagavan vacobhir
+> granthīn hṛdayyān vivṛṇu svam okaḥ
+
+*tvam*—how exalted You are; *tvām*—unto You; *aham*—myself; *deva-varam*—worshiped by the demigods; *vareṇyam*—the greatest of all; *prapadye*—fully surrendering; *īśam*—unto the supreme controller; *pratibodhanāya*—for understanding the real purpose of life; *chindhi*—cut off; *artha-dīpaiḥ*—by the light of purposeful instruction; *bhagavan*—O Supreme Lord; *vacobhiḥ*—by Your words; *granthīn*—knots; *hṛdayyān*—fixed within the core of the heart; *vivṛṇu*—kindly explain; *svam okaḥ*—my destination in life.
+
+**O Supreme Lord, for self-realization I surrender unto You, who are worshiped by the demigods as the supreme controller of everything. By Your instructions, exposing life's purpose, kindly cut the knot from the core of my heart and let me know the destination of my life.**
+
+Sometimes it is argued that people do not know who is a spiritual master and that finding a spiritual master from whom to get enlightenment in regard to the destination of life is very difficult. To answer all these questions, King Satyavrata shows us the way to accept the Supreme Personality of Godhead as the real spiritual master. The Supreme Lord has given full directions in *Bhagavad-gītā* about how to deal with everything in this material world and how to return home, back to Godhead. Therefore, one should not be misled by so-called *gurus* who are rascals and fools. Rather, one should directly see the Supreme Personality of Godhead as the *guru* or instructor. It is difficult, however, to understand *Bhagavad-gītā* without the help of the *guru.* Therefore the *guru* appears in the *paramparā* system. In *Bhagavad-gītā* [[bg/4/34|(Bg. 4.34)]] the Supreme Personality of Godhead recommends:
+
+> tad viddhi praṇipātena
+> paripraśnena sevayā
+> upadekṣyanti te jñānaṁ
+> jñāninas tattva-darśinaḥ
+
+"Just try to learn the truth by approaching a spiritual master. Inquire from him submissively and render service unto him. The self-realized soul can impart knowledge unto you because he has seen the truth." Lord Kṛṣṇa directly instructed Arjuna. Arjuna is therefore *tattva-darśī* or *guru.* Arjuna accepted the Supreme Personality of Godhead (*paraṁ brahma paraṁ dhāma pavitraṁ paramaṁ bhavān* [[bg/10/12-13|[Bg. 10.12] ]]). Similarly, following in the footsteps of Śrī Arjuna, who is a personal devotee of the Lord, one should accept the supremacy of Lord Kṛṣṇa, as supported by Vyāsa, Devala, Asita, Nārada and later by the *ācāryas* Rāmānujācārya, Madhvācārya, Nimbārka and Viṣṇu Svāmī and still later by the greatest *ācārya,* Śrī Caitanya Mahāprabhu. Where, then, is the difficulty in finding a *guru*? If one is sincere he can find the *guru* and learn everything. One should take lessons from the *guru* and find out the goal of life. Mahārāja Satyavrata, therefore, shows us the way of the *mahājana. Mahājano yena gataḥ sa panthāḥ* [[cc/madhya/17/186|[Cc. Madhya 17.186] ]]. One should surrender to the Supreme Personality of Godhead (*daśāvatāra*) and learn from Him about the spiritual world and the goal of life.

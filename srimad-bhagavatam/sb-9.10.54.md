@@ -1,0 +1,12 @@
+### SB 9.10.54
+
+> eka-patnī-vrata-dharo
+> rājarṣi-caritaḥ śuciḥ
+> sva-dharmaṁ gṛha-medhīyaṁ
+> śikṣayan svayam ācarat
+
+*eka-patnī-vrata-dharaḥ*—taking a vow not to accept a second wife or to have any connection with any other woman; *rāja-ṛṣi*—like a saintly king; *caritaḥ*—whose character; *śuciḥ*—pure; *sva-dharmam*—one's own occupational duty; *gṛha-medhīyam*—especially of persons situated in household life; *śikṣayan*—teaching (by personal behavior); *svayam*—personally; *ācarat*—executed His duty.
+
+**Lord Rāmacandra took a vow to accept only one wife and have no connection with any other women. He was a saintly king, and everything in His character was good, untinged by qualities like anger. He taught good behavior for everyone, especially for householders, in terms of varṇāśrama-dharma. Thus He taught the general public by His personal activities.**
+
+*Eka-patnī-vrata,* accepting only one wife, was the glorious example set by Lord Rāmacandra. One should not accept more than one wife. In those days, of course, people did marry more than one wife. Even Lord Rāmacandra's father accepted more wives than one. But Lord Rāmacandra, as an ideal king, accepted only one wife, mother Sītā. When mother Sītā was kidnapped by Rāvaṇa and the Rākṣasas, Lord Rāmacandra, as the Supreme Personality of Godhead, could have married hundreds and thousands of Sītās, but to teach us how faithful He was to His wife, He fought with Rāvaṇa and finally killed him. The Lord punished Rāvaṇa and rescued His wife to instruct men to have only one wife. Lord Rāmacandra accepted only one wife and manifested sublime character, thus setting an example for householders. A householder should live according to the ideal of Lord Rāmacandra, who showed how to be a perfect person. Being a householder or living with a wife and children is never condemned, provided one lives according to the regulative principles of *varṇāśrama-dharma.* Those who live in accordance with these principles, whether as householders, *brahmacārīs* or *vānaprasthas,* are all equally important.

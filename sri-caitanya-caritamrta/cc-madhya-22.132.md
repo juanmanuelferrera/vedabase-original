@@ -1,0 +1,10 @@
+### CC Madhya 22.132
+
+> nāma-saṅkīrtanaṁ śrīman-
+> mathurā-maṇḍale sthitiḥ
+
+*nāma-saṅkīrtanam*—chanting the Hare Kṛṣṇa *mahā-mantra*; *śrīman-mathurā-maṇḍale*—in Mathurā, where Kṛṣṇa specifically performs His pastimes; *sthitiḥ*—residence.
+
+**“ 'One should congregationally chant the holy name of the Lord and reside in Vṛndāvana.'**
+
+Navadvīpa-dhāma, Jagannātha Purī-dhāma and Vṛndāvana-dhāma are considered to be identical. If one goes to Mathurā-maṇḍala-bhūmi for sense gratification or to make a livelihood, he commits an offense and is condemned. Whoever does so must be penalized in the next life by becoming a hog or a monkey in Vṛndāvana-dhāma. After taking on such a body, the offender is liberated in the next life. Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura remarks that residing in Vṛndāvana with a view to enjoy sense gratification surely leads a so-called devotee to a lower species.

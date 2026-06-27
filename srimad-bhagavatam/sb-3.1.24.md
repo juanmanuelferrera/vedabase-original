@@ -1,0 +1,19 @@
+### SB 3.1.24
+
+> tatas tv ativrajya surāṣṭram ṛddhaṁ
+> sauvīra-matsyān kurujāṅgalāṁś ca
+> kālena tāvad yamunām upetya
+> tatroddhavaṁ bhāgavataṁ dadarśa
+
+*tataḥ*—from there; *tu*—but; *ativrajya*—by passing over; *surāṣṭram*—the kingdom of Surat; *ṛddham*—very wealthy; *sauvīra*—the kingdom of Sauvīra; *matsyān*—the kingdom of Matsya; *kurujāṅgalān*—the kingdom of western India up to the Delhi province; *ca*—also; *kālena*—in course of time; *tāvat*—as soon as; *yamunām*—bank of the River Yamunā; *upetya*—reaching; *tatra*—there; *uddhavam*—Uddhava, one of the prominent Yadus; *bhāgavatam*—the great devotee of Lord Kṛṣṇa; *dadarśa*—happened to see.
+
+**Thereafter he passed through very wealthy provinces like Surat, Sauvīra and Matsya and through western India, known as Kurujāṅgala. At last he reached the bank of the Yamunā, where he happened to meet Uddhava, the great devotee of Lord Kṛṣṇa.**
+
+The tract of land comprising about one hundred square miles from modern Delhi to the Mathurā district in Uttar Pradesh, including a portion of the Gurgaon district in Punjab (Fast India), is considered to be the topmost place of pilgrimage in all of India. This land is sacred because Lord Kṛṣṇa traveled through it many times. From the very beginning of His appearance, He was at Mathurā in the house of His maternal uncle Kaṁsa, and He was reared by His foster father Mahārāja Nanda at Vṛndāvana. There are still many devotees of the Lord lingering there in ecstasy in search of Kṛṣṇa and His childhood associates, the *gopīs.* It is not that such devotees meet Kṛṣṇa eye to eye in that tract of land, but a devotee's eagerly searching after Kṛṣṇa is as good as his seeing Him personally. How this is so cannot be explained, but it is factually realized by those who are pure devotees of the Lord. Philosophically, one can understand that Lord Kṛṣṇa and His remembrance are on the absolute plane and that the very idea of searching for Him at Vṛndāvana in pure God consciousness gives more pleasure to the devotee than seeing Him eye to eye. Such devotees of the Lord see Him eye to eye at every moment, as confirmed in the *Brahma-saṁhitā* (5.38):
+
+> premāñjana-cchurita-bhakti-vilocanena
+> santaḥ sadaiva hṛdayeṣu vilokayanti
+> yaṁ śyāmasundaram acintya-guṇa-svarūpaṁ
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+
+"Those who are in ecstasy of love with the Supreme Personality of Godhead, Lord Śyāmasundara [Kṛṣṇa], see Him always in their hearts due to love and devotional service rendered to the Lord." Both Vidura and Uddhava were such elevated devotees, and therefore they both came to the bank of the Yamunā and met each other.

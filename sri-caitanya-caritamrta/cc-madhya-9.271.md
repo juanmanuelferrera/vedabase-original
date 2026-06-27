@@ -1,0 +1,8 @@
+### CC Madhya 9.271
+
+> mukti, karma—dui vastu tyaje bhakta-gaṇa
+> sei dui sthāpa' tumi 'sādhya', 'sādhana'
+
+*mukti*—liberation; *karma*—fruitive activities; *dui*—two; *vastu*—things; *tyaje*—give up; *bhakta-gaṇa*—the devotees; *sei*—those; *dui*—two; *sthāpa'*—establish; *tumi*—you; *sādhya*—the goal of life; *sādhana*—the process of achievement.
+
+**"Both liberation and fruitive activity are rejected by devotees. You are trying to establish these things as life's goal and the process to attain it."**

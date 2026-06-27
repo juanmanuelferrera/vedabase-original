@@ -1,0 +1,8 @@
+### CC Madhya 15.90
+
+> kāśamdi, ācāra ādi aneka prakāra
+> gandha, vastra, alaṅkāra, sarva dravya-sāra
+
+*kāśamdi*—a kind of pickle; *ācāra*—other pickles; *ādi*—and so on; *aneka pra-kāra*—of many varieties; *gandha*—scents; *vastra*—clothing; *alaṅkāra*—ornaments; *sarva*—all; *dravya*—of things; *sāra*—best.
+
+**"Rāghava Paṇḍita would also offer all kinds of pickles, such as kāśamdi. He offered various scents, garments, ornaments and the best of everything.**

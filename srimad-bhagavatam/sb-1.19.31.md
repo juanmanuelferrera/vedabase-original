@@ -1,0 +1,12 @@
+### SB 1.19.31
+
+> praśāntam āsīnam akuṇṭha-medhasaṁ
+> muniṁ nṛpo bhāgavato 'bhyupetya
+> praṇamya mūrdhnāvahitaḥ kṛtāñjalir
+> natvā girā sūnṛtayānvapṛcchat
+
+*praśāntam*—perfectly pacified; *āsīnam*—sitting; *akuṇṭha*—without hesitation; *medhasam*—one who has sufficient intelligence; *munim*—unto the great sage; *nṛpaḥ*—the King (Mahārāja Parīkṣit); *bhāgavataḥ*—the great devotee; *abhyupetya*—approaching him; *praṇamya*—bowing down; *mūrdhnā*—his head; *avahitaḥ*—properly; *kṛta-añjaliḥ*—with folded hands; *natvā*—politely; *girā*—by words; *sūnṛtayā*—in sweet voices; *anvapṛcchat*—inquired.
+
+**The sage Śrī Śukadeva Gosvāmī sat perfectly pacified, intelligent and ready to answer any question without hesitation. The great devotee, Mahārāja Parīkṣit, approached him, offered his respects by bowing before him, and politely inquired with sweet words and folded hands.**
+
+The gesture now adopted by Mahārāja Parīkṣit of questioning a master is quite befitting in terms of scriptural injunctions. The scriptural injunction is that one should humbly approach a spiritual master to understand the transcendental science. Mahārāja Parīkṣit was now prepared for meeting his death, and within the very short time of seven days he was to know the process of entering the kingdom of God. In such important cases, one is required to approach a spiritual master. There is no necessity of approaching a spiritual master unless one is in need of solving the problems of life. One who does not know how to put questions before the spiritual master has no business to see him. And the qualification of the spiritual master is perfectly manifested in the person of Śukadeva Gosvāmī. Both the spiritual master and the disciple, namely Śrī Śukadeva Gosvāmī and Mahārāja Parīkṣit, attained perfection through the medium of Śrīmad-Bhāgavatam. Śukadeva Gosvāmī learned Śrīmad-Bhāgavatam from his father Vyāsadeva, but he had no chance to recite it. Before Mahārāja Parīkṣit he recited Śrīmad-Bhāgavatam and answered the questions of Mahārāja Parīkṣit unhesitatingly, and thus both the master and the disciple got salvation.

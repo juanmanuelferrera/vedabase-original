@@ -1,0 +1,19 @@
+### SB 8.11.8
+
+> tad idaṁ kāla-raśanaṁ
+> jagat paśyanti sūrayaḥ
+> na hṛṣyanti na śocanti
+> tatra yūyam apaṇḍitāḥ
+
+*tat*—therefore; *idam*—this whole material world; *kāla-raśanam*—is moving because of time eternal; *jagat*—moving forward (this whole universe); *paśyanti*—observe; *sūrayaḥ*—those who are intelligent by admission of the truth; *na*—not; *hṛṣyanti*—become jubilant; *na*—nor; *śocanti*—lament; *tatra*—in such; *yūyam*—all of you demigods; *apaṇḍitāḥ*—not very learned (having forgotten that you are working under eternal time).
+
+**Seeing the movements of time, those who are cognizant of the real truth neither rejoice nor lament for different circumstances. Therefore, because you are jubilant due to your victory, you should be considered not very learned.**
+
+Bali Mahārāja knew that Indra, King of heaven, was extremely powerful, certainly more powerful than he himself. Nonetheless, Bali Mahārāja challenged Indra by saying that Indra was not a very learned person. In *Bhagavad-gītā* [[bg/2/11|(Bg. 2.11)]] Kṛṣṇa rebuked Arjuna by saying:
+
+> aśocyān anvaśocas tvaṁ
+> prajñā-vādāṁś ca bhāṣase
+> gatāsūn agatāsūṁś ca
+> nānuśocanti paṇḍitāḥ
+
+"While speaking learned words, you are mourning for what is not worthy of grief. Those who are wise lament neither for the living nor the dead." Thus as Kṛṣṇa challenged Arjuna by saying that he was not a *paṇḍita,* or a learned person, Bali Mahārāja also challenged King Indra and his associates. In this material world, everything happens under the influence of time. Consequently, for a learned person who sees how things are taking place, there is no question of being sorry or happy because of the waves of material nature. After all, since we are being carried away by these waves, what is the meaning of being jubilant or morose? One who is fully conversant with the laws of nature is never jubilant or morose because of nature's activities. In *Bhagavad-gītā* [[bg/2/14|(Bg. 2.14)]], Kṛṣṇa advises that one be tolerant/ *tāṁs titikṣasva bhārata.* Following this advice of Kṛṣṇa's, one should not be morose or unhappy because of circumstantial changes. This is the symptom of a devotee. A devotee carries out his duty in Kṛṣṇa consciousness and is never unhappy in awkward circumstances. He has full faith that in such circumstances, Kṛṣṇa protects His devotee. Therefore a devotee never deviates from his prescribed duty of devotional service. The material qualities of jubilation and moroseness are present even in the demigods, who are very highly situated in the upper planetary system. Therefore, when one is undisturbed by the so-called favorable and unfavorable circumstances of this material world, he should be understood to be *brahma-bhūta [[sb/4/30/20|[SB 4.30.20] ]],* or self-realized. As stated in *Bhagavad-gītā* [[bg/18/54|(Bg. 18.54)]], *brahma-bhūtaḥ prasannātmā na śocati na kāṅkṣati:* "One who is transcendentally situated at once realizes the Supreme Brahman and becomes fully joyful." When one is undisturbed by material circumstances, he should be understood to be on the transcendental stage, above the reactions of the three modes of material nature.

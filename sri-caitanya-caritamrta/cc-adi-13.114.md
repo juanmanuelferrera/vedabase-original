@@ -1,0 +1,12 @@
+### CC Adi 13.114
+
+> durvā, dhānya, gorocana, haridrā, kuṅkuma, candana,
+> maṅgala-dravya pātra bhariyā
+> vastra-gupta dolā caḍi' saṅge lañā dāsī ceḍī,
+> vastrālaṅkāra peṭāri bhariyā
+
+*durvā*—fresh grass; *dhānya*—rice paddy; *gorocana*—a yellow patch for the head of a cow; *haridrā*—turmeric; *kuṅkuma*—a kind of scent produced in Kashmir; *candana*—sandalwood; *maṅgala-dravya*—auspicious things; *pātra bhariyā*—filling up a dish; *vastra-gupta*—covered by cloth; *dolā*—palanquin; *caḍi'*—riding; *saṅge*—along with; *lañā*—taking; *dāsī*—maidservant; *ceḍī*—female attendants; *vastra-alaṅkāra*—ornaments and clothes; *petāri*—basket; *bhariyā*—filled up.
+
+**Riding in a palanquin covered with cloth and accompanied by maidservants, Sītā Ṭhākurāṇī came to the house of Jagannātha Miśra, bringing with her many auspicious articles such as fresh grass, paddy, gorocana, turmeric, kuṅkuma and sandalwood. All these presentations filled a large basket.**
+
+The words *vastra-gupta dolā* are very significant in this verse. Even fifty or sixty years ago in Calcutta, all respectable ladies would go to a neighboring place riding on a palanquin carried by four men. The palanquin was covered with soft cotton, and in that way there was no chance to see a respectable lady traveling in public. Ladies, especially those coming from respectable families, could not be seen by ordinary men. This system is still current in remote places. The Sanskrit word *asūrya-paśyā* indicates that a respectable lady could not be seen even by the sun. In the oriental culture this system was very much prevalent and was strictly observed by respectable ladies, both Hindu and Muslim. We have actual experience in our childhood that our mother would not go next door to her house to observe an invitation by walking; she would go in either a carriage or a palanquin carried by four men. This custom was also strictly followed five hundred years ago, and the wife of Advaita Ācārya, being a very respectable lady, observed the customary rules current in that social environment.

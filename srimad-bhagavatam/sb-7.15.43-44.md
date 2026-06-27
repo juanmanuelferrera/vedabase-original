@@ -1,0 +1,32 @@
+### SB 7.15.43-44
+
+> rāgo dveṣaś ca lobhaś ca
+> śoka-mohau bhayaṁ madaḥ
+> māno 'vamāno 'sūyā ca
+> māyā hiṁsā ca matsaraḥ
+
+> rajaḥ pramādaḥ kṣun-nidrā
+> śatravas tv evam ādayaḥ
+> rajas-tamaḥ-prakṛtayaḥ
+> sattva-prakṛtayaḥ kvacit
+
+*rāgaḥ*—attachment; *dveṣaḥ*—hostility; *ca*—also; *lobhaḥ*—greed; *ca*—also; *śoka*—lamentation; *mohau*—illusion; *bhayam*—fear; *madaḥ*—madness; *mānaḥ*—false prestige; *avamānaḥ*—insult; *asūyā*—finding fault with others; *ca*—also; *māyā*—deception; *hiṁsā*—envy; *ca*—also; *matsaraḥ*—intolerance; *rajaḥ*—passion; *pramādaḥ*—bewilderment; *kṣut*—hunger; *nidrā*—sleep; *śatravaḥ*—enemies; *tu*—indeed; *evam ādayaḥ*—even other such conceptions of life; *rajaḥ-tamaḥ*—because of the conception of passion and ignorance; *prakṛtayaḥ*—causes; *sattva*—because of the conception of goodness; *prakṛtayaḥ*—causes; *kvacit*—sometimes.
+
+**In the conditioned stage, one's conceptions of life are sometimes polluted by passion and ignorance, which are exhibited by attachment, hostility, greed, lamentation, illusion, fear, madness, false prestige, insults, fault-finding, deception, envy, intolerance, passion, bewilderment, hunger and sleep. All of these are enemies. Sometimes one's conceptions are also polluted by goodness.**
+
+The actual aim of life is to go back home, back to Godhead, but there are many hindrances created by the three modes of material nature—sometimes by a combination of *rajo-guṇa* and *tamo-guṇa,* the modes of passion and ignorance, and sometimes by the mode of goodness. In the material world, even if one is a philanthropist, a nationalist and a good man according to materialistic estimations, these conceptions of life form a hindrance to spiritual advancement. How much more of a hindrance, then, are hostility, greed, illusion, lamentation and too much attachment to material enjoyment? To progress toward the target of Viṣṇu, which is our real self-interest, one must become very powerful in conquering these various hindrances or enemies. In other words, one should not be attached to being a good man or a bad man in this material world.
+
+In this material world, so-called goodness and badness are the same because they consist of the three modes of material nature. One must transcend this material nature. Even the Vedic ritualistic ceremonies consist of the three modes of material nature. Therefore Kṛṣṇa advised Arjuna:
+
+> traiguṇya-viṣayā vedā
+> nistraiguṇyo bhavārjuna
+> nirdvandvo nitya-sattva-stho
+> niryoga-kṣema ātmavān
+
+"The *Vedas* mainly deal with the subject of the three modes of material nature. Rise above these modes, O Arjuna. Be transcendental to all of them. Be free from all dualities and from all anxieties for gain and safety, and be established in the self." [[bg/2/45|(Bg. 2.45)]] Elsewhere in *Bhagavad-gītā* the Lord says, *ūrdhvaṁ gacchanti sattva-sthāḥ*/ [[bg/14/18|[Bg. 14.18] ]] if one becomes a very good person—in other words, if one is in the mode of goodness—he may be elevated to the higher planetary systems. Similarly, if one is infected by *rajo-guṇa* and *tamo-guṇa,* he may remain in this world or go down to the animal kingdom. But all of these situations are hindrances on the path of spiritual salvation. Śrī Caitanya Mahāprabhu therefore says:
+
+> brahmāṇḍa bhramite kona bhāgyavān jīva
+> guru-kṛṣṇa-prasāde pāya bhakti-latā-bīja
+> [[cc/madhya/19/151|[Cc. Madhya 19.151] ]]
+
+If one is fortunate enough to transcend all this so-called goodness and badness and come to the platform of devotional service by the mercy of Kṛṣṇa and the *guru,* his life becomes successful. In this regard, one must be very bold so that he can conquer these enemies of Kṛṣṇa consciousness. Not caring for the good and bad of this material world, one must boldly propagate Kṛṣṇa consciousness.

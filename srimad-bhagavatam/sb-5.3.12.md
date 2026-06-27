@@ -1,0 +1,9 @@
+### SB 5.3.12
+
+> atha kathañcit skhalana-kṣut-patana-jṛmbhaṇa-duravasthānādiṣu vivaśānāṁ naḥ smaraṇāya jvara-maraṇa-daśāyām api sakala-kaśmala-nirasanāni tava guṇa-kṛta-nāmadheyāni vacana-gocarāṇi bhavantu.
+
+*atha*—still; *kathañcit*—somehow or other; *skhalana*—stumbling; *kṣut*—hunger; *patana*—falling down; *jṛmbhaṇa*—yawning; *duravasthāna*—because of being placed in an undesirable position; *ādiṣu*—and so on; *vivaśānām*—unable; *naḥ*—of ourselves; *smaraṇāya*—to remember; *jvara-maraṇa-daśāyām*—in the case of having a high fever at the time of death; *api*—also; *sakala*—all; *kaśmala*—sins; *nirasanāni*—which can dispel; *tava*—Your; *guṇa*—attributes; *kṛta*—activities; *nāmadheyāni*—names; *vacana-gocarāṇi*—possible to be uttered; *bhavantu*—let them become.
+
+**Dear Lord, we may not be able to remember Your name, form and qualities due to stumbling, hunger, falling down, yawning or being in a miserable diseased condition at the time of death when there is a high fever. We therefore pray unto You, O Lord, for You are very affectionate to Your devotees. Please help us remember You and utter Your holy names, attributes and activities, which can dispel all the reactions of our sinful lives.**
+
+The real success in life is *ante nārāyaṇa-smṛti*—remembering the holy name, attributes, activities and form of the Lord at the time of death. Although we may be engaged in the Lord's devotional service in the temple, material conditions are so tough and inevitable that we may forget the Lord at the time of death due to a diseased condition or mental derangement. Therefore we should pray to the Lord to be able to remember His lotus feet without fail at the time of death, when we are in such a precarious condition. In this regard, one may also see *Śrīmad-Bhāgavatam* (6.2.9-10 and 14-15).

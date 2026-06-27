@@ -1,0 +1,16 @@
+### SB 3.26.21
+
+> yat tat sattva-guṇaṁ svacchaṁ
+> śāntaṁ bhagavataḥ padam
+> yad āhur vāsudevākhyaṁ
+> cittaṁ tan mahad-ātmakam
+
+*yat*—which; *tat*—that; *sattva-guṇam*—the mode of goodness; *svaccham*—clear; *śāntam*—sober; *bhagavataḥ*—of the Personality of Godhead; *padam*—the status of understanding; *yat*—which; *āhuḥ*—is called; *vāsudeva-ākhyam*—by the name *vāsudeva*; *cittam*—consciousness; *tat*—that; *mahat-ātmakam*—manifest in the *mahat-tattva.*
+
+**The mode of goodness, which is the clear, sober status of understanding the Personality of Godhead and which is generally called vāsudeva, or consciousness, becomes manifest in the mahat-tattva.**
+
+The *vāsudeva* manifestation, or the status of understanding the Supreme Personality of Godhead, is called pure goodness, or *śuddha-sattva.* In the *śuddha-sattva* status there is no infringement of the other qualities, namely passion and ignorance. In the Vedic literature there is mention of the Lord's expansion as the four Personalities of Godhead—Vāsudeva, Saṅkarṣaṇa, Pradyumna and Aniruddha. Here in the reappearance of the *mahat-tattva* the four expansions of Godhead occur. He who is seated within as Supersoul expands first as Vāsudeva.
+
+The *vāsudeva* stage is free from infringement by material desires and is the status in which one can understand the Supreme Personality of Godhead, or the objective which is described in the *Bhagavad-gītā* as *adbhuta.* This is another feature of the *mahat-tattva.* The *vāsudeva* expansion is also called Kṛṣṇa consciousness, for it is free from all tinges of material passion and ignorance. This clear state of understanding helps one to know the Supreme Personality of Godhead. The *vāsudeva* status is also explained in *Bhagavad-gītā* as *kṣetra-jña,* which means the knower of the field of activities as well as the Superknower. The living being who has occupied a particular type of body knows that body, but the Superknower, Vāsudeva, knows not only a particular type of body but also the field of activities in all the different varieties of bodies. In order to be situated in clear consciousness, or Kṛṣṇa consciousness, one must worship Vāsudeva. Vāsudeva is Kṛṣṇa alone. When Kṛṣṇa, or Viṣṇu, is alone, without the accompaniment of His internal energy, He is Vāsudeva. When He is accompanied by His internal potency, He is called Dvārakādhīśa. To have clear consciousness, or Kṛṣṇa consciousness, one has to worship Vāsudeva. It is also explained in *Bhagavad-gītā* that after many, many births one surrenders to Vāsudeva. Such a great soul is very rare.
+
+In order to get release from the false ego, one has to worship Saṅkarṣaṇa. Saṅkarṣaṇa is also worshiped through Lord Śiva; the snakes which cover the body of Lord Śiva are representations of Saṅkarṣaṇa, and Lord Śiva is always absorbed in meditation upon Saṅkarṣaṇa. One who is actually a worshiper of Lord Śiva as a devotee of Saṅkarṣaṇa can be released from false, material ego. If one wants to get free from mental disturbances, one has to worship Aniruddha. For this purpose, worship of the moon planet is also recommended in the Vedic literature. Similarly, to be fixed in one's intelligence one has to worship Pradyumna, who is reached through the worship of Brahmā. These matters are explained in Vedic literature.

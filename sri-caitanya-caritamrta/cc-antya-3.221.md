@@ -1,0 +1,24 @@
+### CC Antya 3.221
+
+> ācārya kahena,—"tumi nā kariha bhaya
+> sei ācariba, yei śāstra-mata haya
+
+*ācārya kahena*—Advaita Ācārya said; *tumi*—you; *nā*—not; *kariha*—do; *bhaya*—fear; *sei ācariba*—I shall behave in that way; *yei*—whatever; *śāstra-mata*—sanctioned by the revealed scriptures; *haya*—is.
+
+**Advaita Ācārya replied, "My dear Haridāsa, do not be afraid. I shall behave strictly according to the principles of the revealed scriptures.**
+
+Śrīla Advaita Ācārya was not afraid of the strict brahminical culture and customs of society. As stated in the śāstric injunctions, which are the true medium of evidence or proof, anyone can go back to Godhead, even if born of a low family. Kṛṣṇa says in *Bhagavad-gītā:*
+
+> māṁ hi pārtha vyapāśritya
+> ye 'pi syuḥ pāpa-yonayaḥ
+> striyo vaiśyās tathā śūdrās
+> te 'pi yānti parāṁ gatim
+
+"O son of Pṛthā, those who take shelter in Me, though they be of lower birth-women, *vaiśyas* [merchants], as well as *śūdras* [workers]—can approach the supreme destination." [[bg/9/32|(Bg. 9.32)]] Though having taken a low birth in human society, one who accepts Kṛṣṇa as the Supreme Personality of Godhead is quite competent to go back home, back to Godhead; and one who is a bona fide candidate for going back to Godhead should not be considered lowborn, or *caṇḍāla.* That is also a śāstric injunction. As stated in *Śrīmad-Bhāgavatam* (2.4.18):
+
+> kirāta-hūṇāndhra-pulinda-pulkaśā
+> ābhīra-śumbhā yavanāḥ khasādayaḥ
+> ye 'nye ca pāpā yad-apāśrayāśrayāḥ
+> śudhyanti tasmai prabhaviṣṇave namaḥ
+
+Not only the *yavanas* and *khasādayaḥ* but even those born in still lower families can be purified (*śudhyanti*) by the grace of a devotee of Lord Kṛṣṇa, for Kṛṣṇa empowers such devotees to perform this purification. Advaita Ācārya had confidence in the śāstric evidence and did not care about social customs. The Kṛṣṇa consciousness movement, therefore, is a cultural movement that does not care about local social conventions. Following in the footsteps of Śrī Caitanya Mahāprabhu and Advaita Ācārya, we can accept a devotee from any part of the world and recognize him as a *brāhmaṇa* as soon as he is qualified due to following the principles of Vaiṣṇava behavior.

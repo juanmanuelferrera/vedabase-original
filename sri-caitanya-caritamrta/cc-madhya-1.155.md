@@ -1,0 +1,8 @@
+### CC Madhya 1.155
+
+> vṛndāvana yābena prabhu śuni' nṛsiṁhānanda
+> patha sājāila mane pāiyā ānanda
+
+*vṛndāvana*—to Vṛndāvana; *yābena*—will go; *prabhu*—the Lord; *śuni'*—hearing; *nṛsiṁhānanda*—of the name Nṛsiṁhānanda; *patha*—the way; *sājāila*—decorated; *mane*—within the mind; *pāiyā*—getting; *ānanda*—pleasure.
+
+**When Śrī Nṛsiṁhānanda Brahmacārī heard that Lord Caitanya Mahāprabhu would go to Vṛndāvana, he became very pleased and mentally began decorating the way there.**

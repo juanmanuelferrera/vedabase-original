@@ -1,0 +1,12 @@
+### SB 4.4.13
+
+> nāścaryam etad yad asatsu sarvadā
+> mahad-vinindā kuṇapātma-vādiṣu
+> serṣyaṁ mahāpūruṣa-pāda-pāṁsubhir
+> nirasta-tejaḥsu tad eva śobhanam
+
+*na*—not; *āścaryam*—wonderful; *etat*—this; *yat*—which; *asatsu*—evil; *sarvadā*—always; *mahat-vinindā*—the deriding of great souls; *kuṇapa-ātma-vādiṣu*—among those who have accepted the dead body as the self; *sa-īrṣyam*—envy; *mahā-pūruṣa*—of great personalities; *pāda-pāṁsubhiḥ*—by the dust of the feet; *nirasta-tejaḥsu*—whose glory is diminished; *tat*—that; *eva*—certainly; *śobhanam*—very good.
+
+**It is not wonderful for persons who have accepted the transient material body as the self to engage always in deriding great souls. Such envy on the part of materialistic persons is very good because that is the way they fall down. They are diminished by the dust of the feet of great personalities.**
+
+Everything depends on the strength of the recipient. For example, due to the scorching sunshine many vegetables and flowers dry up, and many grow luxuriantly. Thus it is the recipient that causes growth and dwindling. Similarly, mahāpūruṣa-pāda-pāṁsubhiḥ: the dust of the lotus feet of great personalities offers all good to the recipient, but the same dust can also do harm. Those who are offenders at the lotus feet of a great personality dry up; their godly qualities diminish. A great soul may forgive offenses, but Kṛṣṇa does not excuse offenses to the dust of his feet, just as one can tolerate the scorching sunshine on his head but cannot tolerate the scorching sunshine on his feet. An offender glides down more and more; therefore naturally he continues to commit offenses at the feet of the great soul. Offenses are generally committed by persons who falsely identify with the impermanent body. King Dakṣa was deeply engrossed in a misconception because he identified the body with the soul. He offended the lotus feet of Lord Śiva because he thought that his body, being the father of the body of Satī, was superior to Lord Śiva's. Generally, less intelligent men misidentify in that way, and they act on the bodily concept of life. Thus they are subject to commit more and more offenses at the lotus feet of great souls. One who has such a concept of life is considered to be in the class of animals like cows and asses.

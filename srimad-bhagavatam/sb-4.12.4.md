@@ -1,0 +1,12 @@
+### SB 4.12.4
+
+> ahaṁ tvam ity apārthā dhīr
+> ajñānāt puruṣasya hi
+> svāpnīvābhāty atad-dhyānād
+> yayā bandha-viparyayau
+
+*aham*—I; *tvam*—you; *iti*—thus; *apārthā*—misconceived; *dhīḥ*—intelligence; *ajñānāt*—from ignorance; *puruṣasya*—of a person; *hi*—certainly; *svāpni*—a dream; *iva*—like; *ābhāti*—appears; *a-tat-dhyānāt*—from the bodily concept of life; *yayā*—by which; *bandha*—bondage; *viparyayau*—and misery.
+
+**Misidentification of oneself and others as "I" and "you" on the basis of the bodily concept of life is a product of ignorance. This bodily concept is the cause of repeated birth and death, and it makes us go on continuously in material existence.**
+
+The conception of "I" and "you," ahaṁ tvam, as separate from one another, is due to our forgetfulness of our eternal relationship with the Supreme Personality of Godhead. The Supreme Person, Kṛṣṇa, is the central point, and all of us are His parts and parcels, just as hands and legs are parts and parcels of the whole body. When we actually come to this understanding of being eternally related to the Supreme Lord, this distinction, which is based on the bodily concept of life, cannot exist. The same example can be cited herewith: the hand is the hand, and the leg is the leg, but when both of them engage in the service of the whole body, there is no such distinction as hands and legs, for all of them belong to the whole body, and all the parts working together constitute the whole body. Similarly, when the living entities are in Kṛṣṇa consciousness, there is no such distinction as "I" and "you" because everyone is engaged in the service of the Lord. Since the Lord is absolute, the services are also absolute; even though the hand is working one way and the leg is working in another way, since the purpose is the Supreme Personality of Godhead, they are all one. This is not to be confused with the statement by the Māyāvādī philosopher that "everything is one." Real knowledge is that hand is hand, leg is leg, body is body, and yet all together they are one. As soon as the living entity thinks that he is independent, his conditional, material existence begins. The conception of independent existence is, therefore, like a dream. One has to be in Kṛṣṇa consciousness, his original position. Then he can be freed from material bondage.

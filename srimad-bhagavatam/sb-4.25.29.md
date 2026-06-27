@@ -1,0 +1,14 @@
+### SB 4.25.29
+
+> nāsāṁ varorv anyatamā bhuvi-spṛk
+> purīm imāṁ vīra-vareṇa sākam
+> arhasy alaṅkartum adabhra-karmaṇā
+> lokaṁ paraṁ śrīr iva yajña-puṁsā
+
+*na*—not; *āsām*—of these; *varoru*—O most fortunate one; *anya-tamā*—anyone; *bhuvi-spṛk*—touching the ground; *purīm*—city; *imām*—this; *vīra-vareṇa*—the great hero; *sākam*—along with; *arhasi*—you deserve; *alaṅkartum*—to decorate; *adabhra*—glorious; *karmaṇā*—whose activities; *lokam*—world; *param*—transcendental; *śrīḥ*—the goddess of fortune; *iva*—like; *yajña-puṁsā*—with the enjoyer of all *yajñas.*
+
+**O greatly fortunate one, it appears that you are none of the women I have mentioned because I see that your feet are touching the ground. But if you are some woman of this planet, you can, like the goddess of fortune who, accompanied by Lord Viṣṇu, increases the beauty of the Vaikuṇṭha planets, also increase the beauty of this city by associating with me. You should understand that I am a great hero and a very powerful king on this planet.**
+
+There is a difference between demoniac mentality and devotional mentality. Devotees know perfectly well that the goddess of fortune, who is the constant companion of Viṣṇu, or Nārāyaṇa, cannot be enjoyed by a living entity. This higher sense of understanding is called Kṛṣṇa consciousness. Nonetheless, everyone wants to become happy by imitating the prosperity of Nārāyaṇa. In this verse Purañjana states that the girl appears to be an ordinary woman. However, since he is attracted by her, he requests that she become as happy as the goddess of fortune by associating with him. Thus he introduces himself as a great king with great influence so that she might accept him as her husband and be as happy as the goddess of fortune. To desire to enjoy this material world as a subordinate of the Supreme Personality of Godhead is godly. The demons, however, want to enjoy this material world without considering the Supreme Personality of Godhead. This is the difference between a demon and a demigod.
+
+The word bhuvi-spṛk mentioned in this verse is very significant. When the demigods sometimes come to this planet, they do not touch the ground. Purañjana could understand that this girl did not belong to the transcendental world or the higher planetary system because her feet were touching the ground. Since every woman in this world wants her husband to be very influential, rich and powerful, Purañjana, to seduce the girl, introduced himself as such a personality. In the material world, whether one be a man or a woman, one wants to enjoy. A man wants to enjoy a beautiful woman, and a woman wants to enjoy a powerful, opulent man. Every living entity who possesses such material desires is called puruṣa, an enjoyer. Superficially it appears that the woman is the enjoyed and the man is the enjoyer, but internally everyone is an enjoyer. Consequently everything in this material world is called māyā.

@@ -1,0 +1,8 @@
+### CC Madhya 12.9
+
+> tāṅ-sabāra prasāde mile śrī-prabhura pāya
+> prabhu-kṛpā vinā mora rājya nāhi bhāya
+
+*tāṅ-sabāra prasāde*—by the mercy of all of them; *mile*—one gets; *śrī-prabhura pāya*—the lotus feet of Śrī Caitanya Mahāprabhu; *prabhu-kṛpā*—the mercy of the Lord; *vinā*—without; *mora*—my; *rājya*—kingdom; *nāhi*—does not; *bhāya*—appeal to me.
+
+**"By the mercy of all the devotees, one can attain the shelter of the lotus feet of the Lord. Without His mercy, my kingdom does not appeal to me.**

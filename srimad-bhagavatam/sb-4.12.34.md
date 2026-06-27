@@ -1,0 +1,14 @@
+### SB 4.12.34
+
+> tatra tatra praśaṁsadbhiḥ
+> pathi vaimānikaiḥ suraiḥ
+> avakīryamāṇo dadṛśe
+> kusumaiḥ kramaśo grahān
+
+*tatra tatra*—here and there; *praśaṁsadbhiḥ*—by persons engaged in the praise of Dhruva Mahārāja; *pathi*—on the path; *vaimānikaiḥ*—carried by different types of airplanes; *suraiḥ*—by the demigods; *avakīryamāṇaḥ*—being covered; *dadṛśe*—could see; *kusumaiḥ*—by flowers; *kramaśaḥ*—one after another; *grahān*—all the planets of the solar system.
+
+**While Dhruva Mahārāja was passing through space, he gradually saw all the planets of the solar system, and on the path he saw all the demigods in their airplanes showering flowers upon him like rain.**
+
+There is a Vedic version, yasmin vijñāte sarvam evaṁ vijñātaṁ bhavati, which means that by knowing the Supreme Personality of Godhead, everything becomes known to the devotee. Similarly, by going to the planet of the Supreme Personality of Godhead, one can know all the other planetary systems on the path to Vaikuṇṭha. We should remember that Dhruva Mahārāja's body was different from our bodies. While boarding the Vaikuṇṭha airplane, his body changed to a completely spiritual golden hue. No one can surpass the higher planets in a material body, but when one gets a spiritual body he can travel not only to the higher planetary system of this material world, but he can go even to the still higher planetary system known as Vaikuṇṭhaloka. It is well known that Nārada Muni travels everywhere, both in the spiritual and material worlds.
+
+It should be noted also that while Sunīti was going to Vaikuṇṭhaloka she also changed her body into spiritual form. Like Śrī Sunīti, every mother should train her child to become a devotee like Dhruva Mahārāja. Sunīti instructed her son, even at the age of five years, to be unattached to worldly affairs and to go to the forest to search out the Supreme Lord. She never desired that her son remain at home comfortably without ever undertaking austerities and penances to achieve the favor of the Supreme Personality of Godhead. Every mother, like Sunīti, must take care of her son and train him to become a brahmacārī from the age of five years and to undergo austerities and penances for spiritual realization. The benefit will be that if her son becomes a strong devotee like Dhruva, certainly not only will he be transferred back home, back to Godhead, but she will also be transferred with him to the spiritual world, even though she may be unable to undergo austerities and penances in executing devotional service.

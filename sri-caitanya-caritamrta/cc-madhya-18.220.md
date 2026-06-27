@@ -1,0 +1,8 @@
+### CC Madhya 18.220
+
+> tāṅra saṅge anyonye, tāṅra saṅge āna
+> ei-mata 'vaiṣṇava' kailā saba deśa-grāma
+
+*tāṅra saṅge*—with Him; *anyonye*—other; *tāṅra saṅge*—and with him; *āna*—another; *ei-mata*—in this way; *vaiṣṇava*—Vaiṣṇava; *kailā*—made; *saba*—all; *deśa-grāma*—villages and towns.
+
+**Whoever met Śrī Caitanya Mahāprabhu became a Vaiṣṇava, and whoever met that Vaiṣṇava also became a Vaiṣṇava. In this way, all the towns and villages one after the other became Vaiṣṇava.**

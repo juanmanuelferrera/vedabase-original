@@ -1,0 +1,19 @@
+### CC Madhya 22.142
+
+> vidhi-dharma chāḍi' bhaje kṛṣṇera caraṇa
+> niṣiddha pāpācāre tāra kabhu nahe mana
+
+*vidhi-dharma chāḍi'*—giving up all regulative principles of the *varṇa* and *āśrama* institution; *bhaje*—worships; *kṛṣṇera caraṇa*—the lotus feet of Lord Kṛṣṇa; *niṣiddha*—forbidden; *pāpa-ācāre*—in sinful activities; *tāra*—his; *kabhu*—at any time; *nahe*—not; *mana*—the mind.
+
+**"Although the pure devotee does not follow all the regulative principles of varṇāśrama, he worships the lotus feet of Kṛṣṇa. Therefore he naturally has no tendency to commit sin.**
+
+The *varṇāśrama* institution is planned in such a way that one will not commit sinful activities. Material existence continues due to sinful activity. When one acts sinfully in this life, he gets a suitable body for the next life. When one again acts sinfully, he takes on another material body. In this way one is continuously under the influence of material nature.
+
+> puruṣaḥ prakṛti-stho hi
+> bhuṅkte prakṛti-jān guṇān
+> kāraṇaṁ guṇa-saṅgo 'sya
+> sad-asad-yoni-janmasu
+
+"The living entity in material nature thus follows the ways of life, enjoying the three modes of material nature. This is due to his association with that material nature. Thus he meets with good and evil among various species." [[bg/13/22|(Bg. 13.22)]]
+
+Due to our association with the modes of material nature, we get different types of bodies-good and bad. One cannot be liberated from the cycle of birth and death, known as transmigration of the soul, unless one is completely freed from all sinful activities. The best process, therefore, is to take to Kṛṣṇa consciousness. One cannot take to Kṛṣṇa consciousness without being freed from all sinful activities. Naturally one who is very serious about Kṛṣṇa consciousness is freed from all sinful activity. Consequently a devotee is never inclined to commit sins. If one is pressured by the law or obligations to give up sinful activity, one cannot do so. However, if one takes to Kṛṣṇa consciousness, he can very easily give up all sinful activity. This is confirmed herein.

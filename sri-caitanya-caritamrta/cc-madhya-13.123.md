@@ -1,0 +1,10 @@
+### CC Madhya 13.123
+
+> ei ślokārtha pūrve kariyāchi vyākhyāna
+> ślokera bhāvārtha kari saṅkṣepe ākhyāna
+
+*ei śloka-artha*—the meaning of this verse; *pūrve*—previously; *kariyāchi*—I have done; *vyākhyāna*—explanation; *ślokera*—of the same verse; *bhāva-artha*—purport; *kari*—I do; *saṅkṣepe*—in brief; *ākhyāna*—description.
+
+**I have already explained this verse. Now I shall simply describe it in brief.**
+
+In this connection, see *Madhya-līlā,* Chapter One, verses 53, 77-80 and 82-84.

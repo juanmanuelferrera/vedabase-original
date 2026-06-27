@@ -1,0 +1,12 @@
+### Bg 4.32
+
+> evaṁ bahu-vidhā yajñā
+> vitatā brahmaṇo mukhe
+> karma-jān viddhi tān sarvān
+> evaṁ jñātvā vimokṣyase
+
+*evam*—thus; *bahu-vidhāḥ*—various kinds of; *yajñāḥ*—sacrifices; *vitatāḥ*—widespread; *brahmaṇaḥ*—of the *Vedas*; *mukhe*—in the face of; *karma-jān*—born of work; *viddhi*—you should know; *tān*—them; *sarvān*—all; *evam*—thus; *jñātvā*—knowing; *vimokṣyase*—be liberated.
+
+**All these different types of sacrifice are approved by the Vedas, and all of them are born of different types of work. Knowing them as such, you will become liberated.**
+
+Different types of sacrifice, as discussed above, are mentioned in the *Vedas* to suit the different types of worker. Because men are so deeply absorbed in the bodily concept, these sacrifices are so arranged that one can work either with the body, the mind, or the intelligence. But all of them are recommended for ultimately bringing about liberation from the body. This is confirmed by the Lord herewith from His own mouth.

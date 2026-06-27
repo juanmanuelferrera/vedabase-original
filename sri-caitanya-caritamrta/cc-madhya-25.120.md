@@ -1,0 +1,10 @@
+### CC Madhya 25.120
+
+> 'abhidheya' sādhana-bhaktira śunaha vicāra
+> sarva-jana-deśa-kāla-daśāte vyāpti yāra
+
+*abhidheya*—the means to obtain an end; *sādhana-bhaktira*—of the process of executing devotional service; *śunaha vicāra*—please hear the procedure; *sarva*—all; *jana*—people; *deśa*—countries; *kāla*—times; *daśāte*—and in circumstances; *vyāpti yāra*—which is all-pervasive.
+
+**“ 'Now please hear from Me about the process of devotional service, which is applicable in any country, for any person, at all times and in all circumstances.**
+
+The cult of *bhāgavata-dharma* can be spread in all circumstances, among all people and in all countries. Many envious people accuse this Kṛṣṇa consciousness movement of spoiling the rigidity of so-called Hinduism. That is not actually the fact. Śrī Caitanya Mahāprabhu confirms that devotional service to the Lord—the cult of *bhāgavata-dharma,* which is now being spread as the Hare Kṛṣṇa movement-can be spread in every country, for every person, in any condition of life, and in all circumstances. *Bhāgavata-dharma* does not restrict pure devotees to the Hindu community. A pure devotee is above a *brāhmaṇa;* therefore it is not incompatible to offer the sacred thread to devotees in Europe, America, Australia, Japan, Canada, and so on. Sometimes these pure devotees, who have been accepted by Śrī Caitanya Mahāprabhu, are not allowed to enter certain temples in India. Some high-caste *brāhmaṇas* and *gosvāmīs* refuse to take *prasāda* in the temples of the International Society for Krishna Consciousness. Actually this is against the instruction of Śrī Caitanya Mahāprabhu. Devotees can come from any country, and they can belong to any creed or race. On the strength of this verse, those who are actually devotees and followers of Śrī Caitanya Mahāprabhu must accept devotees from all parts of the world as pure Vaiṣṇavas. They should be accepted not artificially but factually. One should see how they are advanced in Kṛṣṇa consciousness and how they are conducting Deity worship, *saṅkīrtana* and Ratha-yātrā. Considering all these points, an envious person should refrain from malicious atrocities.

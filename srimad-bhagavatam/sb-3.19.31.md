@@ -1,0 +1,21 @@
+### SB 3.19.31
+
+> maitreya uvāca
+> evaṁ hiraṇyākṣam asahya-vikramaṁ
+> sa sādayitvā harir ādi-sūkaraḥ
+> jagāma lokaṁ svam akhaṇḍitotsavaṁ
+> samīḍitaḥ puṣkara-viṣṭarādibhiḥ
+
+*maitreyaḥ uvāca*—Śrī Maitreya said; *evam*—thus; *hiraṇyākṣam*—Hiraṇyākṣa; *asahya-vikramam*—very powerful; *saḥ*—the Lord; *sādayitvā*—after killing; *hariḥ*—the Supreme Personality of Godhead; *ādi-sūkaraḥ*—the origin of the boar species; *jagāma*—returned; *lokam*—to His abode; *svam*—own; *akhaṇḍita*—uninterrupted; *utsavam*—festival; *samīḍitaḥ*—being praised; *puṣkara-viṣṭara*—lotus seat (by Lord Brahmā, whose seat is a lotus); *ādibhiḥ*—and the others.
+
+**Śrī Maitreya continued: After thus killing the most formidable demon Hiraṇyākṣa, the Supreme Lord Hari, the origin of the boar species, returned to His own abode, where there is always an uninterrupted festival. The Lord was praised by all the demigods, headed by Brahmā.**
+
+The Lord is spoken of herewith as the origin of the boar species. As stated in the *Vedānta-sūtra* (1.1.2), the Absolute Truth is the origin of everything. Therefore it is to be understood that all 8,400,000 species of bodily forms originate from the Lord, who is always *ādi,* or the beginning. In *Bhagavad-gītā* Arjuna addresses the Lord as *ādyam,* or the original. Similarly, in the *Brahma-saṁhitā* the Lord is addressed as *ādi-puruṣam,* the original person. Indeed, in *Bhagavad-gītā* [[bg/10/8|(Bg. 10.8)]] the Lord Himself declares, *mattaḥ sarvaṁ pravartate:* "From Me everything proceeds."
+
+In this situation the Lord assumed the shape of a boar to kill the demon Hiraṇyākṣa and pick up the earth from the Garbha Ocean. Thus He became *ādi-sūkara,* the original boar. In the material world a boar or pig is considered most abominable, but the *ādi-sūkara,* the Supreme Personality of Godhead, was not treated as an ordinary boar. Even Lord Brahmā and the other demigods praised the Lord's form as a boar.
+
+This verse confirms the statement in *Bhagavad-gītā* that the Lord appears as He is from His transcendental abode for the sake of killing the miscreants and saving the devotees. By killing the demon Hiraṇyākṣa He fulfilled His promise to kill the demons and always protect the demigods headed by Brahmā. The statement that the Lord returned to His own abode indicates that He has His own particular transcendental residence. Since He is full of all energies, He is all-pervasive in spite of His residing in Goloka Vṛndāvana, just as the sun, although situated in a particular place within the universe, is present by its sunshine throughout the universe.
+
+Although the Lord has His particular abode in which to reside, He is all-pervasive. The impersonalists accept one aspect of the Lord's features, the all-pervasive aspect, but they cannot understand His localized situation in His transcendental abode, where He always engages in fully transcendental pastimes. Especially mentioned in this verse is the word *akhaṇḍitotsavam. Utsava* means "pleasure." Whenever some function takes place to express happiness, it is called *utsava. Utsava,* the expression of complete happiness, is always present in the Vaikuṇṭhalokas, the abode of the Lord, who is worshipable even by demigods like Brahmā, to say nothing of other, less important entities such as human beings.
+
+The Lord descends from His abode to this world, and therefore He is called *avatāra,* which means "one who descends." Sometimes *avatāra* is understood to refer to an incarnation who assumes a material form of flesh and bone, but actually *avatāra* refers to one who descends from higher regions. The Lord's abode is situated far above this material sky, and He descends from that higher position; thus He is called *avatāra.*

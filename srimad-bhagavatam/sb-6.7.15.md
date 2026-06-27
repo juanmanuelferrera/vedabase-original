@@ -1,0 +1,24 @@
+### SB 6.7.15
+
+> athāham amarācāryam
+> agādha-dhiṣaṇaṁ dvijam
+> prasādayiṣye niśaṭhaḥ
+> śīrṣṇā tac-caraṇaṁ spṛśan
+
+*atha*—therefore; *aham*—I; *amara-ācāryam*—the spiritual master of the demigods; *agādha-dhiṣaṇam*—whose spiritual knowledge is deep; *dvijam*—the perfect *brāhmaṇa*; *prasādayiṣye*—I shall please; *niśaṭhaḥ*—without duplicity; *śīrṣṇā*—with my head; *tat-caraṇam*—his lotus feet; *spṛśan*—touching.
+
+**King Indra said: Therefore with great frankness and without duplicity I shall now bow my head at the lotus feet of Bṛhaspati, the spiritual master of the demigods. Because he is in the mode of goodness, he is fully aware of all knowledge and is the best of the brāhmaṇas. Now I shall touch his lotus feet and offer my obeisances unto him to try to satisfy him.**
+
+Coming to his senses, King Indra realized that he was not a very sincere disciple of his spiritual master, Bṛhaspati. Therefore he decided that henceforward he would be *niśaṭha,* nonduplicitous. *Niśaṭhaḥ śīrṣṇa-tac-caraṇaṁ spṛśan:* he decided to touch his head to the feet of his spiritual master. From this example, we should learn this principle enunciated by Viśvanātha Cakravartī Ṭhākura:
+
+> yasya prasādād bhagavat-prasādo
+> yasyāprasādān na gatiḥ kuto 'pi 
+
+"By the mercy of the spiritual master one is benedicted by the mercy of Kṛṣṇa. Without the grace of the spiritual master, one cannot make any advancement." A disciple should never be a hypocrite or be unfaithful to his spiritual master. In *Śrīmad-Bhāgavatam* (11.17.27), the spiritual master is also called *ācārya. Ācāryaṁ māṁ vijānīyān:* the Supreme Personality of Godhead says that one should respect the spiritual master, accepting him as the Lord Himself. *Nāvamanyeta karhicit:* one should not disrespect the *ācārya* at any time. *Na martya-buddhyāsūyeta:* one should never think the *ācārya* an ordinary person. Familiarity sometimes breeds contempt, but one should be very careful in one's dealings with the *ācārya. Agādha-dhiṣaṇaṁ dvijam: the ācārya* is a perfect *brāhmaṇa* and has unlimited intelligence in guiding the activities of his disciple. Therefore Kṛṣṇa advises in *Bhagavad-gītā* [[bg/4/34|(Bg. 4.34)]]:
+
+> tad viddhi praṇipātena
+> paripraśnena sevayā
+> upadekṣyanti te jñānaṁ
+> jñāninas tattva-darśinaḥ
+
+"Just try to learn the truth by approaching a spiritual master. Inquire from him submissively and render service unto him. The self-realized soul can impart knowledge unto you because he has seen the truth." One should fully surrender unto the spiritual master. and with service (*sevayā*) one should approach him for further spiritual enlightenment.

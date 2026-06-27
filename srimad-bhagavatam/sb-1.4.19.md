@@ -1,0 +1,12 @@
+### SB 1.4.19
+
+> cātur-hotraṁ karma śuddhaṁ
+> prajānāṁ vīkṣya vaidikam
+> vyadadhād yajña-santatyai
+> vedam ekaṁ catur-vidham
+
+*cātuḥ*—four; *hotram*—sacrificial fires; *karma śuddham*—purification of work; *prajānām*—of the people in general; *vīkṣya*—after seeing; *vaidikam*—according to Vedic rites; *vyadadhāt*—made into; *yajña*—sacrifice; *santatyai*—to expand; *vedam ekam*—only one *Veda*; *catuḥ-vidham*—in four divisions.
+
+**He saw that the sacrifices mentioned in the Vedas were means by which the people's occupations could be purified. And to simplify the process he divided the one Veda into four, in order to expand them among men.**
+
+Formerly there was only the Veda of the name Yajus, and the four divisions of sacrifices were there specifically mentioned. But to make them more easily performable, the Veda was divided into four divisions of sacrifice, just to purify the occupational service of the four orders. Above the four Vedas, namely Ṛk, Yajus, Sāma, and Atharva, there are the Purāṇas, the Mahābhārata, Saṁhitās, etc., which are known as the fifth Veda. Śrī Vyāsadeva and his many disciples were all historical personalities, and they were very kind and sympathetic toward the fallen souls of this age of Kali. As such, the Purāṇas and Mahābhārata were made from related historical facts which explained the teaching of the four Vedas. There is no point in doubting the authority of the Purāṇas and Mahābhārata as parts and parcels of the Vedas. In the Chāndogya Upaniṣad, the Purāṇas and Mahābhārata, generally known as histories, are mentioned as the fifth Veda. According to Śrīla Jīva Gosvāmī, that is the way of ascertaining the respective values of the revealed scriptures.

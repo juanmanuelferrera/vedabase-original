@@ -1,0 +1,8 @@
+### CC Antya 7.141
+
+> svagaṇa-sahita prabhura nimantraṇa kailā
+> mahāprabhu tāre tabe prasanna ha-ilā
+
+*sva-gaṇa-sahita*—with His associates; *prabhura*—of Śrī Caitanya Mahāprabhu; *nimantraṇa*—invitation; *kailā*—made; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāre*—upon him; *tabe*—then; *prasanna ha-ilā*—became very pleased.
+
+**When Vallabha Bhaṭṭa invited Śrī Caitanya Mahāprabhu and His associates, the Lord was very pleased with him.**

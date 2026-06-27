@@ -1,0 +1,8 @@
+### CC Madhya 7.2
+
+> jaya jaya śrī-caitanya jaya nityānanda
+> jayādvaita-candra jaya gaura-bhakta-vṛnda
+
+*jayajaya*—all glories; *śrī-caitanya*—to Lord Caitanya Mahāprabhu; *jaya*—all glories; *nityānanda*—to Lord Nityānanda Prabhu; *jaya advaita-candra*—all glories to Advaita Ācārya; *jaya gaura-bhakta-vṛnda*—all glories to the devotees of Lord Caitanya.
+
+**All glories to Lord Caitanya Mahāprabhu! All glories to Lord Nityānanda Prabhu! All glories to Advaita Ācārya! And all glories to the devotees of Lord Caitanya!**

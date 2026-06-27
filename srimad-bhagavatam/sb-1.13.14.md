@@ -1,0 +1,14 @@
+### SB 1.13.14
+
+> kañcit kālam athāvātsīt
+> sat-kṛto devavat sukham
+> bhrātur jyeṣṭhasya śreyas-kṛt
+> sarveṣāṁ sukham āvahan
+
+*kañcit*—for a few days; *kālam*—time; *atha*—thus; *avātsīt*—resided; *sat-kṛtaḥ*—being well treated; *deva-vat*—just like a godly personality; *sukham*—amenities; *bhrātuḥ*—of the brother; *jyeṣṭhasya*—of the elder; *śreyaḥ-kṛt*—for doing good to him; *sarveṣām*—all others; *sukham*—happiness; *āvahan*—made it possible.
+
+**Thus Mahātmā Vidura, being treated just like a godly person by his kinsmen, remained there for a certain period just to pacify the mentality of his eldest brother and in this way bring happiness to all the others.**
+
+Saintly persons like Vidura must be treated as well as a denizen from heaven. In those days denizens of heavenly planets used to visit homes like that of Mahārāja Yudhiṣṭhira, and sometimes persons like Arjuna and others used to visit higher planets. Nārada is a spaceman who can travel unrestrictedly, not only within the material universes but also in the spiritual universes. Even Nārada used to visit the palace of Mahārāja Yudhiṣṭhira and what to speak of other celestial demigods. It is only the spiritual culture of the people concerned that makes interplanetary travel possible, even in the present body. Mahārāja Yudhiṣṭhira therefore received Vidura in the manner of a reception offered to the demigods.
+
+Mahātmā Vidura had already adopted the renounced order of life, and therefore he did not return to his paternal palace to enjoy some material comforts. He accepted out of his own mercy what was offered to him by Mahārāja Yudhiṣṭhira, but the purpose of living in the palace was to deliver his too much materially attached elder brother Dhṛtarāṣṭra. Dhṛtarāṣṭra lost all his state and descendants in the fight with Mahārāja Yudhiṣṭhira, and still, due to his sense of helplessness, he did not feel ashamed to accept the charity and hospitality of Mahārāja Yudhiṣṭhira. On the part of Mahārāja Yudhiṣṭhira, it was quite in order to maintain his uncle in a befitting manner, but acceptance of such magnanimous hospitality by Dhṛtarāṣṭra was not at all desirable. He accepted it because he thought that there was no other alternative. Vidura particularly came to enlighten Dhṛtarāṣṭra and to give him a lift to the higher status of spiritual cognition. It is the duty of enlightened souls to deliver the fallen ones, and Vidura came for that reason. But talks of spiritual enlightenment are so refreshing that while instructing Dhṛtarāṣṭra, Vidura attracted the attention of all the members of the family, and all of them took pleasure in hearing him patiently. This is the way of spiritual realization. The message should be heard attentively, and if spoken by a realized soul, it will act on the dormant heart of the conditioned soul. And by continuously hearing, one can attain the perfect stage of self-realization.

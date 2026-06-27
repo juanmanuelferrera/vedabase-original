@@ -1,0 +1,14 @@
+### SB 3.28.2
+
+> sva-dharmācaraṇaṁ śaktyā
+> vidharmāc ca nivartanam
+> daivāl labdhena santoṣa
+> ātmavic-caraṇārcanam
+
+*sva-dharma-ācaraṇam*—executing one's prescribed duties; *śaktyā*—to the best of one's ability; *vidharmāt*—unauthorized duties; *ca*—and; *nivartanam*—avoiding; *daivāt*—by the grace of the Lord; *labdhena*—with what is achieved; *santoṣaḥ*—satisfied; *ātma-vit*—of the self-realized soul; *caraṇa*—the feet; *arcanam*—worshiping.
+
+**One should execute his prescribed duties to the best of his ability and avoid performing duties not allotted to him. One should be satisfied with as much gain as he achieves by the grace of the Lord, and one should worship the lotus feet of a spiritual master.**
+
+In this verse there are many important words which could be very elaborately explained, but we shall briefly discuss the important aspects of each. The final statement is *ātmavic-caraṇārcanam. Ātma-vit* means a self-realized soul or bona fide spiritual master. Unless one is self-realized and knows what his relationship with the Supersoul is, he cannot be a bona fide spiritual master. Here it is recommended that one should seek out a bona fide spiritual master and surrender unto him (*arcanam*), for by inquiring from and worshiping him one can learn spiritual activities.
+
+The first recommendation is *sva-dharmācaraṇam.* As long as we have this material body there are various duties prescribed for us. Such duties are divided by a system of four social orders: *brāhmaṇa, kṣatriya, vaiśya* and *śūdra.* These particular duties are mentioned in the *śāstra,* and particularly in *Bhagavad-gītā. Sva-dharmācaraṇam* means that one must discharge the prescribed duties of his particular division of society faithfully and to the best of his ability. One should not accept another's duty. If one is born in a particular society or community, he should perform the prescribed duties for that particular division. If, however, one is fortunate enough to transcend the designation of birth in a particular society or community by being elevated to the standard of spiritual identity, then his *sva-dharma,* or duty, is solely that of serving the Supreme Personality of Godhead. The actual duty of one who is advanced in Kṛṣṇa consciousness is to serve the Lord. As long as one remains in the bodily concept of life, he may act according to the duties of social convention, but if one is elevated to the spiritual platform, he must simply serve the Supreme Lord; that is the real execution of *sva-dharma.*

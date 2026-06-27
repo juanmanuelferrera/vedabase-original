@@ -1,0 +1,20 @@
+### SB 5.3.20
+
+> barhiṣi tasminn eva viṣṇudatta bhagavān paramarṣibhiḥ prasādito nābheḥ priya-cikīrṣayā tad-avarodhāyane merudevyāṁ dharmān darśayitu-kāmo vāta-raśanānāṁ śramaṇānām ṛṣīṇām ūrdhva-manthināṁ śuklayā tanuvāvatatāra.
+
+*barhiṣi*—in the arena of sacrifice; *tasmin*—that; *eva*—in this way; *viṣṇu-datta*—O Mahārāja Parīkṣit; *bhagavān*—the Supreme Personality of Godhead; *parama-ṛṣibhiḥ*—by the great *ṛṣis*; *prasāditaḥ*—being pleased; *nābheḥ priya-cikīrṣayā*—to please King Nābhi; *tat-avarodhāyane*—in his wife; *merudevyām*—Merudevī; *dharmān*—the principles of religion; *darśayitu-kāmaḥ*—desiring to exhibit how to perform; *vāta-raśanānām*—of the *sannyāsīs* (who have almost no cloth); *śramaṇānām*—of the *vānaprasthas*; *ṛṣīṇām*—of the great sages; *ūrdhva-manthinām*—of the *brahmacārīs*; *śuklayā tanuvā*—in His original spiritual form, which is above the modes of material nature; *avatatāra*—appeared as an incarnation.
+
+**O Viṣṇudatta, Parīkṣit Mahārāja, the Supreme Personality of Godhead was pleased by the great sages at that sacrifice. Consequently the Lord decided to personally exhibit the method of executing religious principles [as observed by brahmacārīs, sannyāsīs, vānaprasthas and gṛhasthas engaged in rituals] and also satisfy Mahārāja Nābhi's desire. Consequently He appeared as the son of Merudevī in His original spiritual form, which is above the modes of material nature.**
+
+When the Supreme Lord appears or descends as an incarnation within this material world, He does not accept a body made of the three modes of material nature (*sattva-guṇa, rajo-guṇa* and *tamo-guṇa*). Māyāvādī philosophers say that the impersonal God appears in this material world by accepting a body in the *sattva-guṇa.* Śrīla Viśvanātha Cakravartī states that the word *śukla* means "consisting of *śuddha-sattva.*" Lord Viṣṇu descends in His *śuddha-sattva* form. *Śuddha-sattva* refers to the *sattva-guṇa* which is never contaminated. In this material world, even the mode of goodness (*sattva-guṇa*) is contaminated by tinges of *rajo-guṇa* and *tamo-guṇa.* When *sattva-guṇa* is never contaminated by *rajo-guṇa* and *tamo-guṇa,* it is called *śuddha-sattva. Sattvaṁ viśuddhaṁ vasudeva-śabditam* [[sb/4/3/23|(SB 4.3.23)]]. That is the platform of *vasudeva,* whereby the Supreme Personality of Godhead, Vāsudeva, can be experienced. In *Bhagavad-gītā* [[bg/4/7|(Bg. 4.7)]] Śrī Kṛṣṇa Himself says:
+
+> yadā yadā hi dharmasya
+> glānir bhavati bhārata
+> abhyutthānam adharmasya
+> tadātmānaṁ sṛjāmy aham
+
+"Whenever and wherever there is a decline in religious practice, O descendant of Bharata, and a predominant rise of irreligion—at that time I descend Myself."
+
+Unlike ordinary living entities, the Supreme Lord is not forced by the modes of material nature to appear. He appears *dharmān darśayitu-kāma*—to show how to execute the functions of a human being. The word *dharma* is meant for human beings and is never used in connection with beings inferior to human beings, such as animals. Unfortunately, without being guided by the Supreme Lord, human beings sometimes manufacture a process of *dharma* by concoction. Actually *dharma* cannot be made by man. *Dharmaṁ tu sākṣād bhagavat-praṇītam.* [[sb/6/3/19|(SB 6.3.19)]] *Dharma* is given by the Supreme Personality of Godhead, just as the law is given by the state government. Man-made *dharma* has no meaning. *Śrīmad-Bhāgavatam* refers to man-made *dharma* as *kaitava-dharma,* cheating religion. The Supreme Lord sends an *avatāra* (incarnation) to teach human society the proper way to execute religious principles. Such religious principles are *bhakti-mārga.* As the Supreme Lord Himself says in *Bhagavad-gītā/ sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja* [[bg/18/66|[Bg. 18.66] ]]. The son of Mahārāja Nābhi, Ṛṣabhadeva, appeared on this earth to preach the principles of religion. That will be explained in the Fifth Chapter of this Fifth Canto.
+
+Thus end the Bhaktivedanta purports of the Fifth Canto, Third Chapter, of the *Śrīmad-Bhāgavatam,* entitled "Ṛṣabhadeva's Appearance in the Womb of Merudevī, the wife of King Nābhi."

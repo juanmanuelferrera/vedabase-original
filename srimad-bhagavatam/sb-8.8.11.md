@@ -1,0 +1,12 @@
+### SB 8.8.11
+
+> ābhiṣecanikā bhūmir
+> āharat sakalauṣadhīḥ
+> gāvaḥ pañca pavitrāṇi
+> vasanto madhu-mādhavau
+
+*ābhiṣecanikāḥ*—paraphernalia required for installing the Deity; *bhūmiḥ*—the land; *āharat*—collected; *sakala*—all kinds of; *auṣadhīḥ*—drugs and herbs; *gāvaḥ*—the cows; *pañca*—five different varieties of products from the cow, namely milk, yogurt, clarified butter, cow dung and cow urine; *pavitrāṇi*—uncontaminated; *vasantaḥ*—personified springtime; *madhu-mādhavau*—flowers and fruits produced during spring, or in the months of Caitra and Vaiśākha.
+
+**The land became a person and collected all the drugs and herbs needed for installing the Deity. The cows delivered five products, namely milk, yogurt, ghee, urine and cow dung, and spring personified collected everything produced in spring, during the months of Caitra and Vaiśākha [April and May].**
+
+*Pañca-gavya,* the five products received from the cow, namely milk, yogurt, ghee, cow dung and cow urine, are required in all ritualistic ceremonies performed according to the Vedic directions. Cow urine and cow dung are uncontaminated, and since even the urine and dung of a cow are important, we can just imagine how important this animal is for human civilization. Therefore the Supreme Personality of Godhead, Kṛṣṇa, directly advocates *go-rakṣya,* the protection of cows. Civilized men who follow the system of *varṇāśrama,* especially those of the *vaiśya* class, who engage in agriculture and trade, must give protection to the cows. Unfortunately, because people in Kali-yuga are *mandāḥ,* all bad, and *sumanda-matayaḥ,* misled by false conceptions of life, they are killing cows in the thousands. Therefore they are unfortunate in spiritual consciousness, and nature disturbs them in so many ways, especially through incurable diseases like cancer and through frequent wars and among nations. As long as human society continues to allow cows to be regularly killed in slaughterhouses, there cannot be any question of peace and prosperity.

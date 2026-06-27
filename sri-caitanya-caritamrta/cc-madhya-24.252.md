@@ -1,0 +1,21 @@
+### CC Madhya 24.252
+
+> nārada-saṅge vyādhera mana parasanna ha-ila
+> tāṅra vākya śuni' mane bhaya upajila
+
+*nārada-saṅge*—in the association of the great sage Nārada Muni; *vyādhera*—of the hunter; *mana*—the mind; *parasanna ha-ila*—became cleansed and satisfied; *tāṅra*—his; *vākya*—words; *śuni'*—hearing; *mane*—in the mind; *bhaya upajila*—some fear arose.
+
+**"In this way, through the association of the great sage Nārada Muni, the hunter was a little convinced of his sinful activity. He therefore became somewhat afraid due to his offenses.**
+
+This is the effect of associating with a pure devotee. Our preachers who are preaching Kṛṣṇa consciousness all over the world should follow in the footsteps of Nārada Muni and become purified by following the four principles and chanting the Hare Kṛṣṇa *mahā-mantra.* This will make them fit to become Vaiṣṇavas. Then, when they speak to sinful people about the teachings of this Kṛṣṇa consciousness movement, people will be affected and take the instructions. We receive instructions in devotional service through the disciplic succession. Nārada Muni is our original *guru* because he is the spiritual master of Vyāsadeva. Vyāsadeva is the spiritual master of our disciplic succession; therefore we should follow in the footsteps of Nārada Muni and become pure Vaiṣṇavas. A pure Vaiṣṇava is one who has no ulterior motive. He has totally dedicated himself to the service of the Lord. He does not have material desires, and he is not interested in so-called learning and philanthropic work. The so-called learned scholars and philanthropists are actually *karmīs* and *jñānīs,* and some are actually misers engaged in sinful activity. All are condemned because they are not devotees of Lord Kṛṣṇa.
+
+This is a chance to become purified by associating with this Kṛṣṇa consciousness movement and strictly following the rules and regulations. By chanting the Hare Kṛṣṇa *mahā-mantra,* one can become free from all contamination, especially contamination brought about by the killing of animals. Lord Kṛṣṇa Himself requested:
+
+> sarva-dharmān parityajya
+> mām ekaṁ śaraṇaṁ vraja
+> ahaṁ tvāṁ sarva-pāpebhyo
+> mokṣayiṣyāmi mā śucaḥ
+
+"Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear." [[bg/18/66|(Bg. 18.66)]]
+
+We should take this instruction from Kṛṣṇa and follow in the footsteps of Nārada Muni in the disciplic succession. If we simply surrender unto Kṛṣṇa's lotus feet and take this Kṛṣṇa consciousness movement seriously, we can be freed from the *karma* incurred by sin. If we are intelligent enough, we shall engage in the loving service of the Lord. Then our lives will be successful, and we shall not have to suffer like the hunter life after life. By killing animals, not only will we be bereft of the human form but we will have to take an animal form and somehow or other be killed by the same type of animal we have killed. This is the law of nature. The Sanskrit word *māṁsa* means "meat." It is said: *māṁ saḥ khadati iti māṁsaḥ.* That is, "I am now eating the flesh of an animal who will some day in the future be eating my flesh."

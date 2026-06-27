@@ -1,0 +1,12 @@
+### SB 3.25.18
+
+> jñāna-vairāgya-yuktena
+> bhakti-yuktena cātmanā
+> paripaśyaty udāsīnaṁ
+> prakṛtiṁ ca hataujasam
+
+*jñāna*—knowledge; *vairāgya*—renunciation; *yuktena*—equipped with; *bhakti*—devotional service; *yuktena*—equipped with; *ca*—and; *ātmanā*—by the mind; *paripaśyati*—one sees; *udāsīnam*—indifferent; *prakṛtim*—material existence; *ca*—and; *hata-ojasam*—reduced in strength.
+
+**In that position of self-realization, by practice of knowledge and renunciation in devotional service, one sees everything in the right perspective; he becomes indifferent to material existence, and the material influence acts less powerfully upon him.**
+
+As the contamination of the germs of a particular disease can influence a weaker person, similarly the influence of material nature, or illusory energy, can act on the weaker, or conditioned, soul but not on the liberated soul. Self-realization is the position of the liberated state. One understands his constitutional position by knowledge and *vairāgya,* renunciation. Without knowledge, one cannot have realization. The realization that one is the infinitesimal part and parcel of the Supreme Spirit makes him unattached to material, conditional life. That is the beginning of devotional service. Unless one is liberated from material contamination, one cannot engage himself in the devotional service of the Lord. In this verse, therefore, it is stated, *jñāna-vairāgya-yuktena:* when one is in full knowledge of one's constitutional position and is in the renounced order of life, detached from material attraction, then, by pure devotional service, *bhakti-yuktena,* he can engage himself as a loving servant of the Lord. *Paripaśyati* means that he can see everything in its right perspective. Then the influence of material nature becomes almost nil. This is also confirmed in *Bhagavad-gītā. Brahma-bhūtaḥ prasannātmā:* [[bg/18/54|[Bg. 18.54] ]] when one is self-realized he becomes happy and free from the influence of material nature, and at that time he is freed from lamentation and hankering. The Lord states that position as *mad-bhaktiṁ labhate parām* [[bg/18/54|[Bg. 18.54] ]], the real state of beginning devotional service. Similarly, it is confirmed in the *Nārada-pañcarātra* that when the senses are purified they can then be engaged in the devotional service of the Lord. One who is attached to material contamination cannot be a devotee.

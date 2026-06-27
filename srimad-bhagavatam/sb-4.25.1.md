@@ -1,0 +1,13 @@
+### SB 4.25.1
+
+> maitreya uvāca
+> iti sandiśya bhagavān
+> bārhiṣadair abhipūjitaḥ
+> paśyatāṁ rāja-putrāṇāṁ
+> tatraivāntardadhe haraḥ
+
+*maitreyaḥ uvāca*—the great sage Maitreya continued to speak; *iti*—thus; *sandiśya*—giving instruction; *bhagavān*—the most powerful lord; *bārhiṣadaiḥ*—by the sons of King Barhiṣat; *abhipūjitaḥ*—being worshiped; *paśyatām*—while they were looking on; *rāja-putrāṇām*—the sons of the King; *tatra*—there; *eva*—certainly; *antardadhe*—became invisible; *haraḥ*—Lord Śiva.
+
+**The great sage Maitreya continued speaking to Vidura: My dear Vidura, in this way Lord Śiva instructed the sons of King Barhiṣat. The sons of the King also worshiped Lord Śiva with great devotion and respect. Finally, Lord Śiva became invisible to the princes.**
+
+This chapter contains a great lesson concerning the monarchical kingdom in the days of yore. When King Barhiṣat was considering retiring from the royal duties, he sent his sons to perform austerities in order to become perfect kings for the welfare of the citizens. At the same time King Barhiṣat was being instructed by the great sage Nārada about the material world and the living entity who wants to enjoy it. It is therefore very clear how the kings and princes were trained to take charge of a kingdom. Welfare activities for the benefit of the citizens were aimed at understanding the Supreme Personality of Godhead. The human form of life is especially meant for understanding God, our relationship with Him and our activities in His service. Because the kings took charge of the spiritual education of the citizens, both the king and the citizens were happy in Kṛṣṇa consciousness. In this regard, we should remember that the monarchical hierarchy of Prācīnabarhiṣat comes from Mahārāja Dhruva, a great devotee of the Lord and the most celebrated disciple of Nārada Muni. King Prācīnabarhiṣat was then too much engaged in fruitive activities due to performing different types of yajñas. One can actually be promoted to higher planetary systems or to the heavenly kingdoms by performing various yajñas, but there is no question of liberation or going back home, back to Godhead. When the great sage Nārada saw that a descendant of Mahārāja Dhruva was being misled by fruitive activities, he took compassion upon him and personally came to instruct him about the ultimate benediction of life, bhakti-yoga. How Nārada Muni indirectly introduced the bhakti-yoga system to King Prācīnabarhiṣat is very interestingly described in this Twenty-fifth Chapter.

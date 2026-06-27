@@ -1,0 +1,16 @@
+### CC Madhya 2.35
+
+> kari' eta vilapana, prabhu śacī-nandana,
+> ughāḍiyā hṛdayera śoka
+> dainya-nirveda-viṣāde, hṛdayera avasāde,
+> punarapi paḍe eka śloka
+
+*kari'*—doing; *eta*—such; *vilapana*—lamenting; *prabhu*—the Lord; *śacī-nandana*—the son of mother Śacī; *ughāḍiyā*—opening; *hṛdayera*—of the heart; *śoka*—the lamentation; *dainya*—humility; *nirveda*—disappointment; *viṣāde*—in moroseness; *hṛdayera*—of the heart; *avasāde*—in despondency; *punarapi*—again and again; *paḍe*—recites; *eka*—one; *śloka*—verse.
+
+**Lamenting in this way, Śrī Caitanya Mahāprabhu opened the doors of grief within His heart. Morose, humble and disappointed, He read a verse again and again with a despondent heart.**
+
+In the *Bhakti-rasāmṛta-sindhu,* the word *dainya* (humility) is explained as follows: "When unhappiness, fearfulness and the sense of having offended combine, one feels condemned. This sense of condemnation is described as *dīnatā,* humility. When one is subjected to such humility, he feels physically inactive, he apologizes, and his consciousness is disturbed. His mind is also restless, and many other symptoms are visible."1. \\
+ Can you look this quote up and see if it ends where we indicate? \\
+(1) The word *nirveda* is also explained in the *Bhakti-rasāmṛta-sindhu:* "One may feel unhappiness and separation, as well as jealousy and lamentation, due to not discharging one's duties. The despondency that results is called *nirveda.* When one is captured by this despondency, thoughts, tears, loss of bodily luster, humility and heavy breathing result." *Viṣāda* is also explained in the *Bhakti-rasāmṛta-sindhu:* "When one fails to achieve his desired goal of life and repents for all his offenses, there is a state of regret called *viṣāda.*" The symptoms of *avasāda* are also explained: "One hankers to revive his original condition and inquires how to do so. There are also deep thought, heavy breathing, crying and lamentation, as well as a changing of the bodily color and drying up of the tongue."
+
+In the *Bhakti-rasāmṛta-sindhu* thirty-three such destructive symptoms are mentioned. They are expressed in words, in the eyebrows and in the eyes. These symptoms are called *vyabhicārī bhāva,* destructive ecstasy. If they continue, they are sometimes called *sañcārī,* or continued ecstasy.

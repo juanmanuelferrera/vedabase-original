@@ -1,0 +1,8 @@
+### CC Antya 7.9
+
+> tomāre ye smaraṇa kare, se haya pavitra
+> darśane pavitra habe,—ithe ki vicitra?
+
+*tomāre*—You; *ye*—anyone who; *smaraṇa kahe*—remembers; *se*—he; *haya*—becomes; *pavitra*—purified; *darśane*—by seeing; *pavitra*—purified; *habe*—will be; *ithe*—in this; *ki vicitra*—what astonishment.
+
+**"Since one who remembers You is purified, why should it be astonishing that one becomes purified by seeing You?**

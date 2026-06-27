@@ -1,0 +1,20 @@
+### SB 4.22.49
+
+> vainyas tu dhuryo mahatāṁ
+> saṁsthityādhyātma-śikṣayā
+> āpta-kāmam ivātmānaṁ
+> mena ātmany avasthitaḥ
+
+*vainyaḥ*—the son of Vena Mahārāja (Pṛthu); *tu*—of course; *dhuryaḥ*—the chief; *mahatām*—of great personalities; *saṁsthityā*—being completely fixed; *ādhyātma-śikṣayā*—in the matter of self-realization; *āpta*—achieved; *kāmam*—desires; *iva*—like; *ātmānam*—in self-satisfaction; *mene*—considered; *ātmani*—in the self; *avasthitaḥ*—situated.
+
+**Amongst great personalities, Mahārāja Pṛthu was the chief by virtue of his fixed position in relation to spiritual enlightenment. He remained satisfied as one who has achieved all success in spiritual understanding.**
+
+Remaining fixed in devotional service gives one the utmost in self-satisfaction. Actually self-satisfaction can be achieved only by pure devotees who have no desire other than to serve the Supreme Personality of Godhead. Since the Supreme Personality of Godhead has nothing to desire, He is fully satisfied with Himself. Similarly, a devotee who has no desire other than to serve the Supreme Personality of Godhead is as self-satisfied as the Supreme Lord. Everyone is hankering after peace of mind and self-satisfaction, but these can only be achieved by becoming a pure devotee of the Lord.
+
+King Pṛthu's statements in previous verses regarding his vast knowledge and perfect devotional service are justified here, for he is considered best amongst all mahātmās. In Bhagavad-gītā Śrī Kṛṣṇa speaks of mahātmās in this way:
+
+mahātmānas tu māṁ pārtha daivīṁ prakṛtim āśritāḥ bhajanty ananya-manaso jñātvā bhūtādim avyayam
+
+"O son of Pṛthā, those who are not deluded, the great souls, are under the protection of the divine nature. They are fully engaged in devotional service because they know Me as the Supreme Personality of Godhead, original and inexhaustible." (Bg. 9.13)
+
+The mahātmās are not under the clutches of the illusory energy but are under the protection of the spiritual energy. Because of this, the real mahātmā is always engaged in the devotional service of the Lord. Pṛthu Mahārāja exhibited all the symptoms of a mahātmā; therefore he is mentioned in this verse as dhuryo mahatām, best of the mahātmās.

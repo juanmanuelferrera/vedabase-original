@@ -1,0 +1,56 @@
+### SB 2.9.35
+
+> yathā mahānti bhūtāni
+> bhūteṣūccāvaceṣv anu
+> praviṣṭāny apraviṣṭāni
+> tathā teṣu na teṣv aham
+
+*yathā*—just as; *mahānti*—the universal; *bhūtāni*—elements; *bhūteṣu ucca-avaceṣu*—in the minute and gigantic; *anu*—after; *praviṣṭāni*—entered; *apraviṣṭāni*—not entered; *tathā*—so; *teṣu*—in them; *na*—not; *teṣu*—in them; *aham*—Myself.
+
+**O Brahmā, please know that the universal elements enter into the cosmos and at the same time do not enter into the cosmos; similarly, I Myself also exist within everything created, and at the same time I am outside of everything.**
+
+The great elements of material creation, namely earth, water, fire, air and ether, etc., all enter into the body of all manifested entities, namely the seas, mountains, aquatics, plants, reptiles, birds, beasts, human beings, demigods and everyone materially" manifested, and at the same time such elements are differently situated. In the developed stage of consciousness, the human being can study both physiological and physical science, but the basic principles of such sciences are nothing but the material elements and nothing more. The body of the human being and the body of the mountain, as also the body of the demigods, including Brahmā, are all of the same ingredients, namely earth, water, etc., and at the same time the elements are beyond the body. The elements were created first, and therefore they entered into the bodily construction later on, but in both circumstances they entered the cosmos as well as not entered. Similarly, the Supreme Lord, by His different energies, namely the internal and external, is within everything in the manifested cosmos, and at the same time He is outside of everything, situated in the kingdom of God (Vaikuṇṭhaloka) as described before. This is very nicely stated in the Brahma-saṁhitā as follows:
+
+ānanda-cinmaya-rasa-pratibhāvitābhis
+
+tābhir ya eva nijarūpatayā kalābhiḥ
+
+goloka eva nivasaty akhilātma-bhūto
+
+govindam ādi-puruṣaṁ tam ahaṁ bhajāmi (Bs. 5.37)
+
+"I worship the Personality of Godhead Govinda, who, by expansion of His internal potency of transcendental existence, knowledge and bliss, enjoys in His own and expanded forms. Simultaneously He enters into every atom of the creation."
+
+This expansion of His plenary parts is also more definitely explained in the same Brahma-saṁhitā as follows:
+
+eko 'py asau racayituṁ jagad-aṇḍa-koṭiṁ
+
+yac-chaktir asti jagad-aṇḍa-cayā yad-antaḥ
+
+aṇḍāntarastha-paramāṇu-cayāntarasthaṁ
+
+govindam ādi-puruṣaṁ tam ahaṁ bhajāmi(Bs. 5.35)
+
+"I worship the Personality of Godhead Govinda, who, by one of His plenary portions, enters into the existence of every universe and every particle of the atoms and thus manifests His infinite energy all over the material creation unlimitedly."
+
+The impersonalists can imagine or even perceive that the Supreme Brahman is thus all-pervading, and therefore they conclude that there is no possibility of His personal form. Herein lies the mystery of His transcendental knowledge. This mystery is the transcendental love of Godhead, and one who is surcharged with such transcendental love of Godhead can see the Personality of Godhead in every atom and every movable or immovable object without any difficulty. And at the same time he can see the Personality of Godhead in His abode of Goloka, enjoying eternal pastimes with His eternal associates, who are also expansions of His transcendental existence. This vision is the real mystery of spiritual knowledge, as is stated by the Lord in the beginning, "sa-rahasyaṁ tad-aṅgaṁ ca." This mystery is the most confidential part of the knowledge of the Supreme, and it is impossible to be discovered by the mental speculators by dint of intellectual gymnastics. The mystery can be revealed through the process recommended by Brahmājī in his Brahma-saṁhitā as follows:
+
+premāñjana-cchurita-bhakti-vilocanena
+
+santaḥ sadaiva hṛdayeṣu vilokayanti
+
+yaṁ śyāmasundaram acintya-guṇa-svarūpaṁ
+
+govindam ādi-puruṣaṁ tam ahaṁ bhajāmi(Bs. 5.38)
+
+"I worship the original Personality of Godhead, Govinda, whom the pure devotees whose eyes are smeared with the ointment of love of Godhead always observe within their hearts. This Govinda, the original Personality of Godhead, is Śyāmasundara with all transcendental qualities."
+
+Therefore, although He is present in every atom, the Supreme Personality of Godhead may not be visible to the dry speculators; still the mystery is unfolded before the eyes of the pure devotees because their eyes are anointed with love of Godhead. And this love of Godhead can be attained only by the practice of transcendental loving service of the Lord, and nothing else. The vision of the devotees is not ordinary; it is purified by the process of devotional service. In other words, as the universal elements are both within and without, similarly the Lord's name, form, quality, pastimes, entourage, etc., as they are described in the revealed scriptures or as they are being performed in the Vaikuṇṭhalokas, far, far beyond the material cosmic manifestation, are factually being televised in the heart of the devotee. The man with a poor fund of knowledge cannot understand, although by material science one can see things far away by means of television. Factually, the spiritually developed person is able to have the television of the kingdom of God always reflected within his heart. That is the mystery of knowledge of the Personality of Godhead.
+
+The Lord can award anyone and everyone liberation (mukti) from the bondage of material existence, yet He rarely awards the privilege of love of Godhead, as is confirmed by Nārada, "mukti dadhāti karhicit sma na bhakti-yogam." This transcendental devotional service of the Lord is so wonderful that the occupation keeps the deserving devotee always rapt in psychological activities, without any deviation from the absolute touch. Thus love of Godhead, developed in the heart of the devotee, is a great mystery. It was previously told by Brahmājī to Nārada that the desires of Brahmājī are never unfulfilled because he is always absorbed in the transcendental loving service of the Lord; nor has he any desire in his heart save and except the transcendental service of the Lord. That is the beauty and mystery of the process of bhakti-yoga. As the Lord's desire is infallible, as He is acyuta, similarly the desires of the devotees in the transcendental service of the Lord are also acyuta, infallible. It is very difficult, however, for the layman to understand without knowledge of the mystery of devotional service, as it is very difficult to know the potency of touchstone. As touchstone is rarely found, a pure devotee of the Lord is also rarely to be seen, even amongst the millions of liberated souls (katsv api mahāmune). Out of all kinds of perfections attained by the process of knowledge, yoga perfection in devotional service is the highest of all and the most mysterious also, even more mysterious than the eight kinds of mystic perfection attained by the process of yogic performances. In the Bhagavad-gītā. the Lord therefore advised Arjuna about this bhakti-yoga:
+
+sarva-guhyatamaṁ bhūyaḥ
+
+śṛṇu me paramaṁ vacaḥ
+
+"Just hear from Me again about the most confidential part of instructions in the Bhagavad-gītā." (Bg. 18.64) The same was confirmed by Brahmājī to Nārada in the following words: "idaṁ bhāgavataṁ nāma yan me bhagavatoditam/ saṅgraho 'yaṁ vibhūtīnāṁ tvam etad vipulīkuru. Yathā harau bhagavati nṛṇāṁ bhaktir bhaviṣyati." Brahmājī said to Nārada. "Whatever I have spoken to you about the Bhāgavatam was explained to me by the Supreme Personality of Godhead, and I am advising you to expand these topics nicely so that people may easily understand the mysterious bhakti-yoga by transcendental loving service to the Lord." It is to be noted here that the mystery of bhakti-yoga was disclosed to Brahmājī by the Lord Himself, and the same was explained by Brahmājī to Nārada, and Nārada explained the same to Vyāsa and from Vyāsa to Śukadeva Gosvāmī, and that same knowledge is coming down, in the unalloyed chain of disciplic succession. If one is fortunate enough to have received the knowledge in the transcendental disciplic succession, surely he may have the chance of understanding the mystery of the Lord and that of the Śrīmad-Bhāgavatam, the sound incarnation of the Lord.

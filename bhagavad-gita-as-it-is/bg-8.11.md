@@ -1,0 +1,14 @@
+### Bg 8.11
+
+> yad akṣaraṁ veda-vido vadanti
+> viśanti yad yatayo vīta-rāgāḥ
+> yad icchanto brahmacaryaṁ caranti
+> tat te padaṁ saṅgraheṇa pravakṣye
+
+*yat*—that which; *akṣaram*—inexhaustible; *veda-vidaḥ*—a person conversant with the *Vedas*; *vadanti*—say; *viśanti*—enters; *yat*—in which; *yatayaḥ*—great sages; *vīta-rāgāh*—in the renounced order of life; *yat*—that which; *icchantaḥ*—desiring; *brahmacaryam*—celibacy; *caranti*—practices; *tat*—that; *te*—unto you; *padam*—situation; *saṅgraheṇa*—in summary; *pravakṣye*—I shall explain.
+
+**Persons learned in the Vedas, who utter omkāra and who are great sages in the renounced order, enter into Brahman. Desiring such perfection, one practices celibacy. I shall now explain to you this process by which one may attain salvation.**
+
+Lord Kṛṣṇa explains that Brahman, although one without a second, has different manifestations and features. For the impersonalists, the syllable *om* is identical with Brahman. Kṛṣṇa here explains the impersonal Brahman in which the renounced order of sages enter.
+
+In the Vedic system of knowledge, students, from the very beginning, are taught to vibrate *om* and learn of the ultimate impersonal Brahman by living with the spiritual master in complete celibacy. In this way they realize two of Brahman's features. This practice is very essential for the student's advancement in spiritual life, but at the moment such *brahmacārī* (unmarried celibate) life is not at all possible. The social construction of the world has changed so much that there is no possibility of one's practicing celibacy from the beginning of student life. Throughout the world there are many institutions for different departments of knowledge, but there is no recognized institution where students can be educated in the *brahmacārī* principles. Unless one practices celibacy, advancement in spiritual life is very difficult. Therefore Lord Caitanya has announced, according to the scriptural injunctions for this age of Kali, that no process of realizing the Supreme is possible except the chanting of the holy name of Lord Kṛṣṇa: Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare, Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.

@@ -1,0 +1,16 @@
+### SB 3.26.30
+
+> saṁśayo 'tha viparyāso
+> niścayaḥ smṛtir eva ca
+> svāpa ity ucyate buddher
+> lakṣaṇaṁ vṛttitaḥ pṛthak
+
+*saṁśayaḥ*—doubt; *atha*—then; *viparyāsaḥ*—misapprehension; *niścayaḥ*—correct apprehension; *smṛtiḥ*—memory; *eva*—also; *ca*—and; *svāpaḥ*—sleep; *iti*—thus; *ucyate*—are said; *buddheḥ*—of intelligence; *lakṣaṇam*—characteristics; *vṛttitaḥ*—by their functions; *pṛthak*—different.
+
+**Doubt, misapprehension, correct apprehension, memory and sleep, as determined by their different functions, are said to be the distinct characteristics of intelligence.**
+
+Doubt is one of the important functions of intelligence; blind acceptance of something does not give evidence of intelligence. Therefore the word *saṁśaya* is very important; in order to cultivate intelligence, one should be doubtful in the beginning. But doubting is not very favorable when information is received from the proper source. In *Bhagavad-gītā* the Lord says that doubting the words of the authority is the cause of destruction.
+
+As described in the Patañjali *yoga* system, *pramāṇa-viparyaya-vikalpa-nidra-smṛtyaḥ.* By intelligence only one can understand things as they are. By intelligence only can one understand whether or not he is the body. The study to determine whether one's identity is spiritual or material begins in doubtfulness. When one is able to analyze his actual position, the false identification with the body is detected. This is *viparyāsa.* When false identification is detected, then real identification can be understood. Real understanding is described here as *niścayaḥ,* or proved experimental knowledge. This experimental knowledge can be achieved when one has understood the false knowledge. By experimental or proved knowledge, one can understand that he is not the body but spirit soul.
+
+*Smṛti* means "memory," and *svāpa* means "sleep." Sleep is also necessary to keep the intelligence in working order. If there is no sleep, the brain cannot work nicely. In *Bhagavad-gītā* it is especially mentioned that persons who regulate eating, sleeping and other necessities of the body in the proper proportion become very successful in the *yoga* process. These are some of the aspects of the analytical study of intelligence as described in both the Patañjali *yoga* system and the Sāṅkhya philosophy system of Kapiladeva in *Śrīmad-Bhāgavatam.*

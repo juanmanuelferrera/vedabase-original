@@ -1,0 +1,12 @@
+### CC Adi 2.74
+
+> anuvādam anuktvā tu
+> na vidheyam udīrayet
+> na hy alabdhāspadaṁ kiñcit
+> kutracit pratitiṣṭhati
+
+*anuvādam*—the subject; *anuktvā*—not stating; *tu*—but; *na*—not; *vidheyam*—the predicate; *udīrayet*—one should speak; *na*—not; *hi*—certainly; *alabdha-āspadam*—without a secure position; *kiñcit*—something; *kutracit*—anywhere; *pratitiṣṭhati*—stands.
+
+**“ 'One should not state a predicate before its subject, for it cannot thus stand without proper support.'**
+
+This rhetorical rule appears in the *Ekādaśī-tattva,* Thirteenth Canto, in connection with the metaphorical use of words. An unknown object should not be put before the known subject because the object has no meaning if the subject is not first given.

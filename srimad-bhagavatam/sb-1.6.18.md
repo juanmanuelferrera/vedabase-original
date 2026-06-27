@@ -1,0 +1,14 @@
+### SB 1.6.18
+
+> rūpaṁ bhagavato yat tan
+> manaḥ-kāntaṁ śucāpaham
+> apaśyan sahasottasthe
+> vaiklavyād durmanā iva
+
+*rūpam*—form; *bhagavataḥ*—of the Personality of Godhead; *yat*—as it is; *tat*—that; *manaḥ*—of the mind; *kāntam*—as it desires; *śuca-apaham*—vanishing all disparity; *apaśyan*—without seeing; *sahasā*—all of a sudden; *uttasthe*—got up; *vaiklavyāt*—being perturbed; *durmanāḥ*—having lost the desirable; *iva*—as it were.
+
+**The transcendental form of the Lord, as it is, manifests according to the mind's desire and at once erases all mental incongruities. Upon losing that form, I suddenly got up, being perturbed, as is usual when one loses that which is desirable.**
+
+That the Lord is not formless is experienced by Nārada Muni. But His form is completely different from all forms of our material experience. For the whole duration of our life we go see different forms in the material world, but none of them is just apt to satisfy the mind, nor can any one of them vanish all perturbance of the mind. These are the special features of the transcendental form of the Lord, and one who has once seen that form is not satisfied with anything else, and no form in the material world can any longer satisfy the seer. Formless means nothing like material form. Nor is He like any material personality.
+
+As spiritual beings, having eternal relations with that transcendental form of the Lord, we are, life after life, searching after that form of the Lord, and we are not satisfied by any other form of material appeasement. Nārada Muni got a glimpse of this, but having not seen it again he became perturbed and stood up all of a sudden to search it out. What we desire life after life was obtained by Nārada Muni, and losing sight of Him again was certainly a great shock for him.

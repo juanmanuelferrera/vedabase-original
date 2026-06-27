@@ -1,0 +1,8 @@
+### CC Madhya 24.41
+
+> 'guṇa' śabdera artha—kṛṣṇera guṇa ananta
+> sac-cid-rūpa-guṇa sarva pūrṇānanda
+
+*guṇa śabdera artha*—the meaning of the word *guṇa*; *kṛṣṇera guṇa ananta*—Kṛṣṇa has unlimited qualities; *sat-cit-rūpa-guṇa*—such qualities are spiritual and eternal; *sarva pūrṇa-ānanda*—full of all transcendental bliss.
+
+**"The word guṇa means 'quality.' The qualities of Kṛṣṇa are transcendentally situated and are unlimited in quantity. All of the spiritual qualities are full of transcendental bliss.**

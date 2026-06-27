@@ -1,0 +1,24 @@
+### SB 4.25.28
+
+> tvaṁ hrīr bhavāny asy atha vāg ramā patiṁ
+> vicinvatī kiṁ munivad raho vane
+> tvad-aṅghri-kāmāpta-samasta-kāmaṁ
+> kva padma-kośaḥ patitaḥ karāgrāt
+
+*tvam*—you; *hrīḥ*—shyness; *bhavānī*—the wife of Lord Śiva; *asi*—are; *atha*—rather; *vāk*—Sarasvatī, the goddess of learning; *ramā*—the goddess of fortune; *patim*—husband; *vicinvatī*—searching after, thinking of; *kim*—are you; *muni-vat*—like a sage; *rahaḥ*—in this lonely place; *vane*—in the forest; *tvat-aṅghri*—your feet; *kāma*—desiring; *āpta*—achieved; *samasta*—all; *kāmam*—desirable things; *kva*—where is; *padma-kośaḥ*—the lotus flower; *patitaḥ*—fallen; *kara*—of the hand; *agrāt*—from the front portion, or palm.
+
+**My dear beautiful girl, you are exactly like the goddess of fortune, or the wife of Lord Śiva, or the goddess of learning, the wife of Lord Brahmā. Although you must be one of them, I see that you are loitering in this forest. Indeed, you are as silent as the great sages. Is it that you are searching after your own husband? Whoever your husband may be, simply by understanding that you are so faithful to him, he will come to possess all opulences. I think you must be the goddess of fortune, but I do not see the lotus flower in your hand. Therefore I am asking you where you have thrown that lotus.**
+
+Everyone thinks that his intelligence is perfect. Sometimes one employs his intelligence in the worship of Umā, the wife of Lord Śiva, in order to obtain a beautiful wife. Sometimes, when one wants to become as learned as Lord Brahmā, he employs his intelligence in the worship of the goddess of learning, Sarasvatī. Sometimes, when one wishes to become as opulent as Lord Viṣṇu, he worships the goddess of fortune, Lakṣmī. In this verse all these inquiries are made by King Purañjana, the living entity who is bewildered and does not know how to employ his intelligence. Intelligence should be employed in the service of the Supreme Personality of Godhead. As soon as one uses his intelligence in this way, the goddess of fortune automatically becomes favorable to him. The goddess of fortune, Lakṣmī, never remains without her husband, Lord Viṣṇu. Consequently, when one worships Lord Viṣṇu he automatically obtains the favor of the goddess of fortune. One should not, like Rāvaṇa, worship the goddess of fortune alone, for she cannot remain long without her husband. Thus her other name is Cañcalā, or restless. In this verse it is clear that Purañjana is representing our intelligence while he is talking with the girl. He not only appreciated the shyness of the girl, but he actually became more and more attracted by that shyness. He was actually thinking of becoming her husband and consequently was asking her whether she was thinking of her prospective husband or whether she was married. This is an example of bhoga-icchā—the desire for enjoyment. One who is attracted by such desires becomes conditioned in this material world, and one who is not so attracted attains liberation. King Purañjana was appreciating the beauty of the girl as if she were the goddess of fortune, but at the same time he was careful to understand that the goddess of fortune cannot be enjoyed by anyone except Lord Viṣṇu. Since he doubted whether the girl was the goddess of fortune, he inquired about the lotus flower she was not holding. The material world is also the goddess of fortune because the material energy works under the direction of Lord Viṣṇu. As stated in Bhagavad-gītā:
+
+mayādhyakṣeṇa prakṛtiḥ
+
+sūyate sa-carācaram
+
+hetunānena kaunteya
+
+jagad viparivartate
+
+"This material nature is working under My direction, O son of Kuntī, and it is producing all moving and unmoving beings. By its rule this manifestation is created and annihilated again and again." (Bg. 9.10)
+
+The material world cannot be enjoyed by any living entity. If one so desires to enjoy it, he immediately becomes a demon like Rāvaṇa, Hiraṇyakaśipu or Kaṁsa. Because Rāvaṇa wanted to enjoy the goddess of fortune, Sītādevī, he was vanquished with all his family, wealth and opulence. One can, however, enjoy that māyā bestowed upon the living entity by Lord Viṣṇu. The satisfaction of one's senses and desires means enjoying māyā, not the goddess of fortune.

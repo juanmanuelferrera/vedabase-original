@@ -1,0 +1,12 @@
+### SB 3.27.2
+
+> sa eṣa yarhi prakṛter
+> guṇeṣv abhiviṣajjate
+> ahaṅkriyā-vimūḍhātmā
+> kartāsmīty abhimanyate
+
+*saḥ*—that very living entity; *eṣaḥ*—this; *yarhi*—when; *prakṛteḥ*—of material nature; *guṇeṣu*—in the modes; *abhiviṣajjate*—is absorbed; *ahaṅkriyā*—by false ego; *vimūḍha*—bewildered; *ātmā*—the individual soul; *kartā*—the doer; *asmi*—I am; *iti*—thus; *abhimanyate*—he thinks.
+
+**When the soul is under the spell of material nature and false ego, identifying his body as the self, he becomes absorbed in material activities, and by the influence of false ego he thinks that he is the proprietor of everything.**
+
+Actually the conditioned soul is forced to act under the pressure of the modes of material nature. The living entity has no independence. When he is under the direction of the Supreme Personality of Godhead he is free, but when, under the impression that he is satisfying his senses, he engages in sense gratificatory activities, he is actually under the spell of material nature. In *Bhagavad-gītā* it is said, *prakṛteḥ kriyamāṇāni:* [[bg/3/27|[Bg. 3.27] ]] one acts according to the particular modes of nature he has acquired. *Guṇa* means the qualities of nature. He is under the qualities of nature, but he falsely thinks that he is the proprietor. This false sense of proprietorship can be avoided simply by engaging oneself in devotional service under the direction of the Supreme Lord or His bona fide representative. Arjuna, in *Bhagavad-gītā,* was trying to accept for himself the responsibility for killing his grandfather and teacher in the fight, but he became freed from that proprietorship of action when he acted under the direction of Kṛṣṇa. He fought, but he was actually freed from the reactions of fighting, although in the beginning, when he was nonviolent, unwilling to fight, the entire responsibility was upon him. That is the difference between liberation and conditioning. A conditioned soul may be very good and act in the mode of goodness, but still he is conditioned under the spell of material nature. A devotee, however, acts completely under the direction of the Supreme Lord. Thus his actions may not appear to be of a very high quality to the common man, but the devotee has no responsibility.

@@ -1,0 +1,12 @@
+### Bg 2.66
+
+> nāsti buddhir ayuktasya
+> na cāyuktasya bhāvanā
+> na cābhāvayataḥ śāntir
+> aśāntasya kutaḥ sukham
+
+*na asti*—there cannot be; *buddhiḥ*—transcendental intelligence; *ayuktasya*—of one who is not connected (with Kṛṣṇa consciousness); *na*—neither; *ca*—and; *ayuktasya*—of one devoid of Kṛṣṇa consciousness; *bhāvanā*—mind fixed in happiness; *na*—neither; *ca*—and; *abhāvayataḥ*—one who is not fixed; *śāntiḥ*—peace; *aśāntasya*—of the unpeaceful; *kutaḥ*—where is; *sukham*—happiness.
+
+**One who is not in transcendental consciousness can have neither a controlled mind nor steady intelligence, without which there is no possibility of peace. And how can there be any happiness without peace?**
+
+Unless one is in Kṛṣṇa consciousness, there is no possibility of peace. So it is confirmed in the Fifth Chapter (5.29) that when one understands that Kṛṣṇa is the only enjoyer of all the good results of sacrifice and penance, and that He is the proprietor of all universal manifestations, that He is the real friend of all living entities, then only can one have real peace. Therefore, if one is not in Kṛṣṇa consciousness, there cannot be a final goal for the mind. Disturbance is due to want of an ultimate goal, and when one is certain that Kṛṣṇa is the enjoyer, proprietor and friend of everyone and everything, then one can, with a steady mind, bring about peace. Therefore, one who is engaged without a relationship with Kṛṣṇa is certainly always in distress and is without peace, however much one may make a show of peace and spiritual advancement in life. Kṛṣṇa consciousness is a self-manifested peaceful condition which can be achieved only in relationship with Kṛṣṇa.

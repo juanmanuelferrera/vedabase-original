@@ -1,0 +1,22 @@
+### CC Adi 17.304
+
+> sei kṛṣṇa, sei gopī,—parama virodha
+> acintya caritra prabhura ati sudurbodha
+
+*sei kṛṣṇa*—that Kṛṣṇa; *sei gopī*—that *gopī*; *parama virodha*—very much contradictory; *acintya*—inconceivable; *caritra*—character; *prabhura*—of the Lord; *ati*—very much; *sudurbodha*—difficult to understand.
+
+**He is Kṛṣṇa, yet He has accepted the mood of the gopīs. How is it so? It is the inconceivable character of the Lord, which is very difficult to understand.**
+
+Kṛṣṇa's accepting the part of the *gopīs* is certainly contradictory according to any mundane calculations, but the Lord, by His inconceivable character, may act like the *gopīs* and feel separation from Kṛṣṇa, although He is Kṛṣṇa Himself. Such a contradiction can be reconciled only in the Supreme Personality of Godhead because He has energy that is inconceivable (*acintya*), which can make possible that which is impossible to do (*aghaṭa-ghaṭana-patīyasī*). Such contradictions are very difficult to understand unless a devotee strictly follows the Vaiṣṇava philosophy under the direction of the Gosvāmīs. Therefore Kṛṣṇadāsa Kavirāja Gosvāmī ends every chapter with this verse:
+
+> śrī-rūpa-raghunātha-pade yāra āśa
+> caitanya-caritāmṛta kahe kṛṣṇadāsa
+
+"Praying at the lotus feet of Śrī Rūpa and Śrī Raghunātha, always desiring their mercy, I, Kṛṣṇadāsa, narrate *Śrī Caitanya-caritāmṛta,* following in their footsteps."
+
+In a song by Narottama dāsa Ṭhākura it is stated:
+
+> rūpa-raghunātha-pade ha-ibe ākuti
+> kabe hāma bujhaba se yugala-pīriti
+
+The conjugal love between Rādhā and Kṛṣṇa, which is called *yugala-pīriti,* is not understandable by mundane scholars, artists or poets. It is simply to be understood by devotees who strictly follow in the footsteps of the six Gosvāmīs. Sometimes so-called artists and poets try to understand the love affairs of Rādhā and Kṛṣṇa, and they publish cheap books of poetry and pictures on the subject. Unfortunately, however, they do not understand the transcendental affairs of Rādhā and Kṛṣṇa even to the smallest degree. They are simply meddling in a matter in which they are not fit even to enter.

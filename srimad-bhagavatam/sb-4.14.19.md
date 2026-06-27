@@ -1,0 +1,12 @@
+### SB 4.14.19
+
+> tasya rājño mahā-bhāga
+> bhagavān bhūta-bhāvanaḥ
+> parituṣyati viśvātmā
+> tiṣṭhato nija-śāsane
+
+*tasya*—with him; *rājñaḥ*—the king; *mahā-bhāga*—O noble one; *bhagavān*—the Supreme Personality of Godhead; *bhūta-bhāvanaḥ*—who is the original cause of the cosmic manifestation; *parituṣyati*—becomes satisfied; *viśva-ātmā*—the Supersoul of the entire universe; *tiṣṭhataḥ*—being situated; *nija-śāsane*—in his own governing situation.
+
+**O noble one, if the king sees that the Supreme Personality of Godhead, the original cause of the cosmic manifestation and the Supersoul within everyone, is worshiped, the Lord will be satisfied.**
+
+It is a fact that the government's duty is to see that the Supreme Personality of Godhead is satisfied by the activities of the people as well as by the activities of the government. There is no possibility of happiness if the government or citizenry have no idea of Bhagavān, the Supreme Personality of Godhead, who is the original cause of the cosmic manifestation, or if they have no knowledge of bhūta-bhāvana, who is viśvātmā, or the Supersoul, the soul of everyone's soul. The conclusion is that without engaging in devotional service, neither the citizens nor the government can be happy in any way. At the present moment neither the king nor the governing body is interested in seeing that the people are engaged in the devotional service of the Supreme Personality of Godhead. Rather, they are more interested in advancing the machinery of sense gratification. Consequently they are becoming more and more implicated in the complex machinery of the stringent laws of nature. People should be freed from the entanglement of the three modes of material nature, and the only process by which this is possible is surrender unto the Supreme Personality of Godhead. This is advised in Bhagavad-gītā. Unfortunately neither the government nor the people in general have any idea of this; they are simply interested in sense gratification and in being happy in this life. The word nija-śāsane (in his own governmental duty) indicates that both the government and the citizens are responsible for the execution of varṇāśrama-dharma. Once the populace is situated in the varṇāśrama-dharma, there is every possibility of real life and prosperity both in this world and in the next.

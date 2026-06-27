@@ -1,0 +1,9 @@
+### SB 6.9.43
+
+> ata eva svayaṁ tad upakalpayāsmākaṁ bhagavataḥ parama-guros tava caraṇa-śata-palāśac-chāyāṁ vividha-vṛjina-saṁsāra-pariśramopaśamanīm upasṛtānāṁ vayaṁ yat-kāmenopasāditāḥ.
+
+*ata eva*—therefore; *svayam*—Yourself; *tat*—that; *upakalpaya*—please arrange; *asmākam*—of us; *bhagavataḥ*—of the Supreme Personality of Godhead; *parama-guroḥ*—the supreme spiritual master; *tava*—of You; *caraṇa*—of the feet; *śata-palāśat*—like lotus flowers with hundreds of petals; *chāyām*—the shade; *vividha*—various; *vṛjina*—with dangerous positions; *saṁsāra*—of this conditioned life; *pariśrama*—the pain; *upaśamanīm*—relieving; *upasṛtānām*—the devotees who have taken shelter at Your lotus feet; *vayam*—we; *yat*—for which; *kāmena*—by the desires; *upasāditāḥ*—caused to come near (the shelter of Your lotus feet).
+
+**Dear Lord, You are omniscient, and therefore You know very well why we have taken shelter at Your lotus feet, which provide shade that gives relief from all material disturbances. Since You are the supreme spiritual master and You know everything, we have sought shelter of Your lotus feet for instruction. Please give us relief by counteracting our present distress. Your lotus feet are the only shelter for a fully surrendered devotee and are the only means for subduing all the tribulations of this material world.**
+
+One need only seek shelter of the shade of the Lord's lotus feet. Then all the material tribulations that disturb him will be subdued, just as when one comes under the shadow of a big tree, the disturbances caused by the heat of the scorching sun are immediately mitigated, without one's asking for relief. Therefore the whole concern of the conditioned soul should be the lotus feet of the Lord. The conditioned soul suffering from various tribulations because of existing in this material world can be relieved only when he seeks shelter at the Lord's lotus feet.

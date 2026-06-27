@@ -1,0 +1,20 @@
+### SB 2.5.12
+
+> tasmai namo bhagavate
+> vāsudevāya dhīmahi
+> yan-māyayā durjayayā
+> māṁ vadanti jagad-gurum
+
+*tasmai*—unto Him; *namaḥ*—offer my obeisances; *bhagavate*—unto the Personality of Godhead; *vāsudevāya*—unto Lord Kṛṣṇa; *dhīmahi*—do meditate upon Him; *yat*—by whose; *māyayā*—potencies; *durjayayā*—invincible; *mām*—unto me; *vadanti*—they say; *jagat*—the world; *gurum*—the master.
+
+**I offer my obeisances and meditate upon Lord Kṛṣṇa [Vāsudeva], the Personality of Godhead, whose invincible potency influences them [the less intelligent class of men] to call me the supreme controller.**
+
+As will be more clearly explained in the next verse, the illusory potency of the Lord bewilders the less intelligent to accept Brahmājī, or for that matter any other person, as the Supreme Lord. Brahmājī, however, refuses to be called this, and he directly offers his respectful obeisances unto Lord Vāsudeva, or Śrī Kṛṣṇa the Personality of Godhead, as he has already offered the same respects to Him in the Brahma-saṁhitā:
+
+īśvaraḥ paramaḥ kṛṣṇaḥ sac-cid-ānanda-vigrahaḥ
+
+anādir ādir govindaḥ sarva-kāraṇa-kāraṇam
+
+"The Supreme Lord is the Personality of Godhead Śrī Kṛṣṇa, the primeval Lord in His transcendental body, and the ultimate cause of all causes. I worship that primeval Lord Govinda."
+
+Brahmājī is conscious of his actual position, and he knows how less intelligent persons are bewildered by the illusory energy of the Lord and whimsically accept anyone and everyone as God. A responsible personality like Brahmājī refuses to be addressed as the Supreme Lord by his disciples or subordinates, but foolish persons praised by men of the nature of dogs, hogs, camels, and asses feel flattered to be addressed as the Supreme Lord. Why such persons take pleasure in being addressed as God, or why such persons are addressed as God by foolish admirers, is explained in the following verse.

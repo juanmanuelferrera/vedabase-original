@@ -1,0 +1,7 @@
+### 13
+
+Light of the Bhāgavata 13
+
+**In the rainy season some of the roads are not frequently used and become covered with long grasses, on account of which it becomes very difficult to see the road. Similarly, in this age the transcendental scriptures are not properly studied by the brāhmaṇas. Being covered by the effects of time, the scriptures are practically lost, and it becomes very difficult to understand or follow them.**
+
+A covered road is exactly like a *brāhmaṇa* who is not accustomed to studying and practicing the reformatory practices of Vedic injunctions-he becomes covered with the long grasses of illusion. In that condition, forgetful of his constitutional nature, he forgets his position of eternal servitorship to the Supreme Personality of Godhead. By being deviated by the seasonal overgrowth of long grasses created by *māyā,* a person identifies himself with illusory productions of nature and succumbs to illusion, forgetting his spiritual life.

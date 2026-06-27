@@ -1,0 +1,10 @@
+### CC Antya 6.63
+
+> uddhāraṇa datta ādi yata nija-gaṇa
+> upare vasilā saba, ke kare gaṇana?
+
+*uddhāraṇa datta*—Uddhāraṇa Datta; *ādi*—and similar other persons; *yata nija gaṇa*—all personal associates; *upare*—above; *vasilā*—sat down; *saba*—all; *ke*—who; *kare gaṇana*—can count.
+
+**Similarly, Uddhāraṇa Datta Ṭhākura and many other personal associates of the Lord sat on the raised platform with Nityānanda Prabhu. No one could count them all.**
+
+The devotees mentioned herein are described by Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura in his *Anubhāṣya.* For further information one may consult the following references in the *Ādi-līlā.* Rāmadāsa-Chapter Ten, texts 116 and 118, and Chapter Eleven, texts 13 and 16. Sundarānanda-11.23, Gadādhara dāsa-10.53, His full name is Murāri Caitanya dāsa, and he is a personal associate of Nityānanda Prabhu. Thus one should consult Chapter Eleven, text 20. Kamalākara-11.24. Sadāśiva-11.38. Purandara-11.28. Dhanañjaya-11.31. Jagadīśa-11.30. Parameśvara-11.29. Maheśa-11.32. Gaurīdāsa-11.26. Hoḍa Kṛṣṇadāsa-11.47. Uddhāraṇa Datta Ṭhākura-11.41.

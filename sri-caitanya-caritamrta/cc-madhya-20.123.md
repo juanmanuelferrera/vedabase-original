@@ -1,0 +1,28 @@
+### CC Madhya 20.123
+
+> 'śāstra-guru-ātma'-rūpe āpanāre jānāna
+> 'kṛṣṇa mora prabhu, trātā'—jīvera haya jñāna
+
+*śāstra-guru-ātma-rūpe*—in the form of Vedic literature, the spiritual master and the Supersoul; *āpanāre jānāna*—informs about Himself; *kṛṣṇa*—Lord Kṛṣṇa; *mora*—my; *prabhu*—Lord; *trātā*—deliver; *jīvera*—of the conditioned soul; *haya*—there is; *jñāna*—knowledge.
+
+**"The forgetful conditioned soul is educated by Kṛṣṇa through the Vedic literatures, the realized spiritual master and the Supersoul. Through these, he can understand the Supreme Personality of Godhead as He is, and he can understand that Lord Kṛṣṇa is his eternal master and deliverer from the clutches of māyā. In this way one can acquire real knowledge of his conditioned life and can come to understand how to attain liberation.**
+
+Being forgetful of his real position, the conditioned soul may take help from *śāstra, guru* and the Supersoul within his heart. Kṛṣṇa is situated within everyone's heart as the Supersoul. As stated in *Bhagavad-gītā:*
+
+> īśvaraḥ sarva-bhūtānām
+> hṛd-deśe 'rjuna tiṣṭhati
+> bhrāmayan sarva-bhūtāni
+> yantrārūḍhāni māyayā
+
+"The Supreme Lord is situated in everyone's heart, O Arjuna, and is directing the wanderings of all living entities, who are seated as on a machine, made of the material energy." [[bg/18/61|(Bg. 18.61)]]
+
+As the *śaktyāveśa-avatāra* Vyāsadeva, Kṛṣṇa teaches the conditioned soul through Vedic literatures. Kṛṣṇa externally appears as the spiritual master and trains the conditioned soul to come to Kṛṣṇa consciousness. When his original Kṛṣṇa consciousness is revived, the conditioned soul is delivered from the material clutches. Thus a conditioned soul is always helped by the Supreme Personality of
+
+Godhead in three ways-by the scriptures, the spiritual master and the Supersoul within the heart. The Lord is the deliverer of the conditioned soul and is accepted as the Supreme Lord of all living entities. Kṛṣṇa says in *Bhagavad-gītā* [[bg/18/66|(Bg. 18.66)]]:
+
+> sarva-dharmān parityajya
+> mām ekaṁ śaraṇaṁ vraja
+> ahaṁ tvāṁ sarva-pāpebhyo
+> mokṣayiṣyāmi mā śucaḥ
+
+This same instruction is found throughout all Vedic literature. *Sādhu, śāstra* and *guru* act as the representatives of Kṛṣṇa, and the Kṛṣṇa consciousness movement is also taking place all over the universe. Whoever takes advantage of this opportunity becomes liberated.

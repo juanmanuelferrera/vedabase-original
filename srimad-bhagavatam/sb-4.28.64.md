@@ -1,0 +1,18 @@
+### SB 4.28.64
+
+> evaṁ sa mānaso haṁso
+> haṁsena pratibodhitaḥ
+> sva-sthas tad-vyabhicāreṇa
+> naṣṭām āpa punaḥ smṛtim
+
+*evam*—thus; *saḥ*—he (the individual soul); *mānasaḥ*—living together within the heart; *haṁsaḥ*—like the swan; *haṁsena*—by the other swan; *pratibodhitaḥ*—being instructed; *sva-sthaḥ*—situated in self-realization; *tat-vyabhicāreṇa*—by being separated from the Supersoul; *naṣṭām*—which was lost; *āpa*—gained; *punaḥ*—again; *smṛtim*—real memory.
+
+**In this way both swans live together in the heart. When the one swan is instructed by the other, he is situated in his constitutional position. This means he regains his original Kṛṣṇa consciousness, which was lost because of his material attraction.**
+
+Here it is clearly stated: haṁso haṁsena pratibodhitaḥ. The individual soul and the Supersoul are both compared to swans (haṁsa) because they are white or uncontaminated. One swan, however, is superior and is the instructor of the other. When the inferior swan is separated from the other swan, he is attracted to material enjoyment. This is the cause of his falldown. When he hears the instructions of the other swan, he understands his real position and is again revived to his original consciousness. The Supreme Personality of Godhead, Kṛṣṇa, comes down (avatāra) to deliver His devotees and kill the demons. He also gives His sublime instructions in the form of Bhagavad-gītā. The individual soul has to understand his position by the grace of the Lord and the spiritual master because the text of Bhagavad-gītā cannot be understood simply by academic qualifications. One has to learn Bhagavad-gītā from a realized soul.
+
+tad viddhi praṇipātena paripraśnena sevayā upadekṣyanti te jñānaṁ jñāninas tattva-darśinaḥ
+
+"Just try to learn the truth by approaching a spiritual master. Inquire from him submissively and render service unto him. The self-realized soul can impart knowledge unto you because he has seen the truth." (Bg. 4.34)
+
+Thus one has to select a bona fide spiritual master and become enlightened to his original consciousness. In this way the individual soul can understand that he is always subordinate to the Supersoul. As soon as he declines to remain subordinate and tries to become an enjoyer, he begins his material conditioning. When he abandons this spirit of being an individual owner or enjoyer, he becomes situated in his liberated state. The word sva-sthaḥ, meaning "situated in one's original position," is very significant in this verse. When one gives up his unwanted attitude of superiority, he becomes situated in his original position. The word tad-vyabhicāreṇa is also significant, for it indicates that when one is separated from God due to disobedience, his real sense is lost. Again, by the grace of Kṛṣṇa and guru, he can be properly situated in his liberated position. These verses are spoken by Śrīla Nārada Muni, and his purpose in speaking them is to revive our consciousness. Although the living entity and the Supersoul are one in quality, the individual soul has to pursue the instruction of the Supersoul. That is the state of liberation.

@@ -1,0 +1,37 @@
+### SB 6.10.9
+
+> etāvān avyayo dharmaḥ
+> puṇya-ślokair upāsitaḥ
+> yo bhūta-śoka-harṣābhyām
+> ātmā śocati hṛṣyati
+
+*etāvān*—this much; *avyayaḥ*—imperishable; *dharmaḥ*—religious principle; *puṇya-ślokaiḥ*—by famous persons who are celebrated as pious; *upāsitaḥ*—recognized; *yaḥ*—which; *bhūta*—of the living beings; *śoka*—by the distress; *harṣābhyām*—and by the happiness; *ātmā*—the mind; *śocati*—laments; *hṛṣyati*—feels happiness.
+
+**If one is unhappy to see the distress of other living beings and happy to see their happiness, his religious principles are appreciated as imperishable by exalted persons who are considered pious and benevolent.**
+
+One generally follows different types of religious principles or performs various occupational duties according to the body given to him by the modes of material nature. In this verse, however, real religious principles are explained. Everyone should be unhappy to see others in distress and happy to see others happy. *Ātmavat sarva-bhūteṣu:* one should feel the happiness and distress of others as his own. It is on this basis that the Buddhist religious principle of nonviolence—*ahiṁsaḥ parama-dharmaḥ*—is established. We feel pain when someone disturbs us, and therefore we should not inflict pain upon other living beings. Lord Buddha's mission was to stop unnecessary animal killing, and therefore he preached that the greatest religious principle is nonviolence.
+
+One cannot continue killing animals and at the same time be a religious man. That is the greatest hypocrisy. Jesus Christ said, "Do not kill," but hypocrites nevertheless maintain thousands of slaughterhouses while posing as Christians. Such hypocrisy is condemned in this verse. One should be happy to see others happy, and one should be unhappy to see others unhappy. This is the principle to be followed. Unfortunately, at the present moment so-called philanthropists and humanitarians advocate the happiness of humanity at the cost of the lives of poor animals. That is not recommended herein. This verse clearly says that one should be compassionate to all living entities. Regardless of whether human, animal, tree or plant, all living entities are sons of the Supreme Personality of Godhead. Lord Kṛṣṇa says in *Bhagavad-gītā*  (14.4):
+
+> sarva-yoniṣu kaunteya
+> mūrtayaḥ sambhavanti yāḥ
+> tāsāṁ brahma mahad yonir
+> ahaṁ bīja-pradaḥ pitā
+
+"It should be understood that all species of life, O son of Kuntī, are made possible by birth in this material nature, and that I am the seed-giving father." The different forms of these living entities are only their external dresses. Every living being is actually a spirit soul, a part and parcel of God. Therefore one should not favor only one kind of living being. A Vaiṣṇava sees all living entities as part and parcel of God. As the Lord says in *Bhagavad-gītā* (5.18 and 18.54):
+
+> vidyā-vinaya-sampanne
+> brāhmaṇe gavi hastini
+> śuni caiva śvapāke ca
+> paṇḍitāḥ sama-darśinaḥ
+> [[bg/5/18|[Bg. 5.18] ]]
+
+"The humble sage, by virtue of true knowledge, sees with equal vision a learned and gentle *brāhmaṇa,* a cow, an elephant, a dog and a dog-eater [outcaste]."
+
+> brahma-bhūtaḥ prasannātmā
+> na śocati na kāṅkṣati
+> samaḥ sarveṣu bhūteṣu
+> mad-bhaktiṁ labhate parām
+> [[bg/18/54|[Bg. 18.54] ]]
+
+"One who is transcendentally situated at once realizes the Supreme Brahman and becomes fully joyful. He never laments nor desires to have anything; he is equally disposed to every living entity. In that state he attains pure devotional service unto Me." A Vaiṣṇava, therefore, is truly a perfect person because he laments to see others unhappy and feels joy at seeing others happy. A Vaiṣṇava is *para-duḥkha-duḥkhī;* he is always unhappy to see the conditioned souls in an unhappy state of materialism. Therefore a Vaiṣṇava is always busy preaching Kṛṣṇa consciousness throughout the world.

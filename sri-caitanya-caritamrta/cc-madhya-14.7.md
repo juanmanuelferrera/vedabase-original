@@ -1,0 +1,8 @@
+### CC Madhya 14.7
+
+> āṅkhi mudi' prabhu preme bhūmite śayāna
+> nṛpati naipuṇye kare pāda-saṁvāhana
+
+*āṅkhi mudi'*—with closed eyes; *prabhu*—Śrī Caitanya Mahāprabhu; *preme*—in ecstatic love; *bhūmite*—on the ground; *śayāna*—lying down; *nṛpati*—the King; *naipuṇye*—very expertly; *kare*—performs; *pāda-saṁvāhana*—massaging the legs.
+
+**Śrī Caitanya Mahāprabhu was lying on the ground with His eyes closed in ecstatic love and emotion, and the King very expertly began to massage His legs.**

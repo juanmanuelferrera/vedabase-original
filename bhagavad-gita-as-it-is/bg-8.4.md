@@ -1,0 +1,12 @@
+### Bg 8.4
+
+> adhibhūtaṁ kṣaro bhāvaḥ
+> puruṣaś cādhidaivatam
+> adhiyajño 'ham evātra
+> dehe deha-bhṛtāṁ vara
+
+*adhibhūtam*—the physical manifestation; *kṣaraḥ*—constantly changing; *bhāvaḥ*—nature; *puruṣaḥ*—the universal form; *ca*—and; *adhidaivatam*—including all demigods like the sun and moon; *adhiyajñaḥ*—the Supersoul; *aham*—I (Kṛṣṇa); *eva*—certainly; *atra*—in this; *dehe*—body; *deha-bhṛtām*—of the embodied; *vara*—the Supreme.
+
+**Physical nature is known to be endlessly mutable. The universe is the cosmic form of the Supreme Lord, and I am that Lord represented as the Supersoul, dwelling in the heart of every embodied being.**
+
+The physical nature is constantly changing. Material bodies generally pass through six stages: they are born, they grow, they remain for some duration, they produce some by-products, they dwindle, and then they vanish. This physical nature is called *adhibhūtam.* Because it is created at a certain point and will be annihilated at a certain point, the conception of the universal form of the Supreme Lord that includes all the demigods and their different planets is called *adhidaivatam.* The individual soul (*jīva*) accompanies the body. The Supersoul, a plenary representation of Lord Kṛṣṇa, is called the Paramātmā or *adhiyajña* and is situated in the heart. The word *eva* is particularly important in the context of this verse because by this word the Lord stresses that the Paramātmā is not different from Him. The Supersoul, the Supreme Personality of Godhead, seated beside the individual soul, is the witness of the individual soul's activities and is the source of consciousness. The Supersoul gives the *jīva* an opportunity to act freely, and He witnesses his activities. The functions of all these different manifestations of the Supreme Lord automatically become clarified for the pure Kṛṣṇa conscious devotee engaged in transcendental service of the Lord. The gigantic universal form of the Lord called *adhidaivatam* is contemplated by the neophyte who cannot approach the Supreme Lord in His manifestation as Supersoul. The neophyte is advised to contemplate the universal form whose legs are considered the lowest planets and whose eyes are considered the sun and moon, and whose head is considered the upper planetary system.

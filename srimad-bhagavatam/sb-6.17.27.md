@@ -1,0 +1,13 @@
+### SB 6.17.27
+
+> śrī-rudra uvāca
+> dṛṣṭavaty asi suśroṇi
+> harer adbhuta-karmaṇaḥ
+> māhātmyaṁ bhṛtya-bhṛtyānāṁ
+> niḥspṛhāṇāṁ mahātmanām
+
+*śrī-rudraḥ uvāca*—Lord Śiva said; *dṛṣṭavatī asi*—have you seen; *su-śroṇi*—O beautiful Pārvatī; *hareḥ*—of the Supreme Personality of Godhead; *adbhuta-karmaṇaḥ*—whose acts are wonderful; *māhātmyam*—the greatness; *bhṛtya-bhṛtyānām*—of the servants of the servants; *niḥspṛhāṇām*—who are without ambitions for sense gratification; *mahātmanām*—great souls.
+
+**Lord Śiva said: My dear beautiful Pārvatī, have you seen the greatness of the Vaiṣṇavas? Being servants of the servants of the Supreme Personality of Godhead, Hari, they are great souls and are not interested in any kind of material happiness.**
+
+Lord Śiva, the husband of Pārvatī, told his wife, "My dear Pārvatī, you are very beautiful in your bodily features. Certainly you are glorious. But I do not think that you can compete with the beauty and glory of devotees who have become servants of the servants of the Supreme Personality of Godhead." Of course, Lord Śiva smiled when he joked with his wife in that way, for others cannot speak like that. "The Supreme Lord," Śiva continued, "is always exalted in His activities, and here is another example of His wonderful influence upon King Citraketu, His devotee. Just see, although you cursed the King, he was not at all afraid or sorry. Rather, he offered respect to you, called you mother and accepted your curse, thinking himself faulty. He did not say anything in retaliation. This is the excellence of a devotee. By mildly tolerating your curse, he has certainly excelled the glory of your beauty and your power to curse him. I can impartially judge that this devotee, Citraketu, has defeated you and your excellence simply by becoming a pure devotee of the Lord." As stated by Śrī Caitanya Mahāprabhu, *taror api sahiṣṇunā.* Just like a tree, a devotee can tolerate all kinds of curses and reversals in life. This is the excellence of a devotee. Indirectly, Lord Śiva forbade Pārvatī to commit the mistake of cursing a devotee like Citraketu. He indicated that although she was powerful, the King, without showing any power, had excelled her power by his tolerance.

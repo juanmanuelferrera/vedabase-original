@@ -1,0 +1,28 @@
+### SB 5.12.11
+
+> jñānaṁ viśuddhaṁ paramārtham ekam
+> anantaraṁ tv abahir brahma satyam
+> pratyak praśāntaṁ bhagavac-chabda-saṁjñaṁ
+> yad vāsudevaṁ kavayo vadanti
+
+*jñānam*—the supreme knowledge; *viśuddham*—without contamination; *parama-artham*—giving the ultimate goal of life; *ekam*—unified; *anantaram*—without interior, unbroken; *tu*—also; *abahiḥ*—without exterior; *brahma*—the Supreme; *satyam*—Absolute Truth; *pratyak*—inner; *praśāntam*—the calm and peaceful Supreme Lord, worshiped by the *yogīs*; *bhagavat-śabda-saṁjñam*—known in the higher sense as Bhagavān, or full of all opulences; *yat*—that; *vāsudevam*—Lord Kṛṣṇa, the son of Vasudeva; *kavayaḥ*—the learned scholars; *vadanti*—say.
+
+**What, then, is the ultimate truth? The answer is that nondual knowledge is the ultimate truth. It is devoid of the contamination of material qualities. It gives us liberation. It is the one without a second, all-pervading and beyond imagination. The first realization of that knowledge is Brahman. Then Paramātmā, the Supersoul, is realized by the yogīs who try to see Him without grievance. This is the second stage of realization. Finally, full realization of the same supreme knowledge is realized in the Supreme Person. All learned scholars describe the Supreme Person as Vāsudeva, the cause of Brahman, Paramātmā and others.**
+
+In *Caitanya-caritāmṛta* it is said: *yad advaitaṁ brahmopaniṣadi tad apy asya tanu-bhā.* The impersonal Brahman effulgence of the Absolute Truth consists of the bodily rays of the Supreme Personality of Godhead. *Ya ātmāntaryāmī puruṣa iti so 'syāṁśa-vibhavaḥ.* What is known as *ātmā* and *antaryāmī,* the Supersoul, is but an expansion of the Supreme Personality of Godhead. *Sad-aiśvaryaiḥ pūrṇo ya iha bhagavān sa svayam ayam* [[cc/adi/1/3|[Cc. Ādi 1.3] ]]. What is described as the Supreme Personality of Godhead, complete with all six opulences, is Vāsudeva, and Śrī Caitanya Mahāprabhu is nondifferent from Him. Great learned scholars and philosophers accept this after many, many births. *Vāsudevaḥ sarvam iti sa mahātmā sudurlabhaḥ* [[bg/7/19|(Bg. 7.19)]]. The wise man can understand that ultimately Vāsudeva, Kṛṣṇa, is the cause of Brahman, and Paramātmā, the Supersoul. Thus Vāsudeva is *sarva-kāraṇa-kāraṇam* [Bs. 5.1], the cause of all causes. This is confirmed in *Śrīmad-Bhāgavatam.* The real *tattva,* Absolute Truth, is Bhagavān, but due to incomplete realization of the Absolute Truth, people sometimes describe the same Viṣṇu as impersonal Brahman or localized Paramātmā.
+
+> vadanti tat tattva-vidas
+> tattvaṁ yaj jñānam advayam
+> brahmeti paramātmeti
+> bhagavān iti śabdyate
+> [[sb/1/2/11|(SB 1.2.11)]]
+
+From the very beginning, *Śrīmad-Bhāgavatam* says, *satyaṁ paraṁ dhīmahi:* [[sb/1/1/1|[SB 1.1.1] ]] we meditate on the supreme truth. The supreme truth is explained here as *jñānaṁ viśuddhaṁ satyam.* The Absolute Truth is devoid of material contamination and is transcendental to the material qualities. It gives all spiritual success and liberation from this material world. That Supreme Absolute Truth is Kṛṣṇa, Vāsudeva. There is no difference between Kṛṣṇa's inner self and outward body. Kṛṣṇa is *pūrṇa,* the complete whole. There is no distinction between His body and soul as there is between ours. Sometimes so-called scholars, not knowing the constitutional position of Kṛṣṇa, mislead people by saying that the Kṛṣṇa within is different from the Kṛṣṇa without. When Kṛṣṇa says, *man-manā bhava mad-bhakto mad-yājī māṁ namaskuru* [[bg/18/65|[Bg. 18.65] ]], so-called scholars advise the reader that it is not the person Kṛṣṇa to whom we must surrender but the Kṛṣṇa within. So-called scholars, Māyāvādīs, cannot understand Kṛṣṇa with their poor fund of knowledge. One should therefore approach an authorized person to understand Kṛṣṇa. The spiritual master has actually seen Kṛṣṇa; therefore he can explain Him properly.
+
+> tad viddhi praṇipātena
+> paripraśnena sevayā
+> upadekṣyanti te jñānaṁ
+> jñāninas tattva-darśinaḥ
+> [[bg/4/34|(Bg. 4.34)]]
+
+Without approaching an authorized person, one cannot understand Kṛṣṇa.

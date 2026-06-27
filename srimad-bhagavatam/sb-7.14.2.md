@@ -1,0 +1,24 @@
+### SB 7.14.2
+
+> śrī-nārada uvāca
+> gṛheṣv avasthito rājan
+> kriyāḥ kurvan yathocitāḥ
+> vāsudevārpaṇaṁ sākṣād
+> upāsīta mahā-munīn
+
+*śrī-nāradaḥ uvāca*—Śrī Nārada Muni replied; *gṛheṣu*—at home; *avasthitaḥ*—staying (a householder generally stays home with his wife and children); *rājan*—O King; *kriyāḥ*—activities; *kurvan*—performing; *yathocitāḥ*—suitable (as instructed by the *guru* and *śāstra*); *vāsudeva*—unto Lord Vāsudeva; *arpaṇam*—dedicating; *sākṣāt*—directly; *upāsīta*—should worship; *mahā-munīn*—the great devotees.
+
+**Nārada Muni replied: My dear King, those who stay at home as householders must act to earn their livelihood, and instead of trying to enjoy the results of their work themselves, they should offer these results to Kṛṣṇa, Vāsudeva. How to satisfy Vāsudeva in this life can be perfectly understood through the association of great devotees of the Lord.**
+
+The format for *gṛhastha* life should be dedication to the Supreme Personality of Godhead. In *Bhagavad-gītā* [[bg/6/1|(Bg. 6.1)]] it is said:
+
+> anāśritaḥ karma-phalaṁ
+> kāryaṁ karma karoti yaḥ
+> sa sannyāsī ca yogī ca
+> na niragnir na cākriyaḥ
+
+"One who is unattached to the fruits of his work and who works as he is obligated is in the renounced order of life, and he is the true mystic, not he who lights no fire and performs no work." Whether one acts as a *brahmacārī, gṛhastha, vānaprastha* or *sannyāsī,* he must act only for the satisfaction of the Supreme Personality of Godhead, Vāsudeva-Kṛṣṇa, the son of Vasudeva. This should be the principle for everyone's life. Nārada Muni has already described the principles of life for a *brahmacārī, vānaprastha* and *sannyāsī,* and now he is describing how a *gṛhastha* should live. The basic principle is to satisfy the Supreme Personality of Godhead.
+
+The science of satisfying the Supreme Lord can be learned as described here: *sākṣād upāsīta mahā-munīn.* The word *mahā-munīn* refers to great saintly persons or devotees. Saintly persons are generally known as *munis,* or thoughtful philosophers concerned with transcendental subject matters, and *mahā-munīn* refers to those who have not only thoroughly studied the goal of life but who are actually engaged in satisfying the Supreme Personality of Godhead, Vāsudeva. These persons are known as devotees. Unless one associates with devotees, one cannot learn the science of *vāsudevārpaṇa,* or dedicating one's life to Vāsudeva, Kṛṣṇa, the Supreme Personality of Godhead.
+
+In India the principles of this science were followed strictly. Even fifty years ago, I saw that in the villages of Bengal and the suburbs of Calcutta, people engaged in hearing *Śrīmad-Bhāgavatam* daily when all their activities ended, or at least in the evening before going to bed. Everyone would hear the *Bhāgavatam. Bhāgavata* classes were held in every village, and thus people had the advantage of hearing *Śrīmad-Bhāgavatam,* which describes everything about the aim of life—liberation or salvation. This will be clearly explained in the next verses.

@@ -1,0 +1,21 @@
+### CC Madhya 8.255
+
+> 'śravaṇa-madhye jīvera kon śreṣṭha śravaṇa?'
+> 'rādhā-kṛṣṇa-prema-keli karṇa-rasāyana'
+
+*śravaṇa-madhye*—out of all topics for hearing; *jīvera*—of the living entity; *kon*—what; *śreṣṭha*—most important; *śravaṇa*—topic of hearing; *rādhā-kṛṣṇa-prema-keli*—the loving affairs between Rādhā and Kṛṣṇa; *karṇa-rasa-ayana*—most pleasing to the ear.
+
+**Śrī Caitanya Mahāprabhu asked, "Out of all topics people listen to, which is best for all living entities?"**
+
+**Rāmānanda Rāya replied, "Hearing about the loving affairs between Rādhā and Kṛṣṇa is most pleasing to the ear."**
+
+According to *Śrīmad-Bhāgavatam* (10.33.39):
+
+> vikrīḍitaṁ vraja-vadhūbhir idaṁ ca viṣṇoḥ
+> śraddhānvito 'nuśṛṇuyād atha varṇayed yaḥ
+> bhaktiṁ parāṁ bhagavati pratilabhya kāmaṁ
+> hṛd-rogam āśv apahinoty acireṇa dhīraḥ
+
+"He who faithfully hears about the dealings between Lord Kṛṣṇa and the *gopīs* in the *rāsa* dance and he who describes these activities attain to the perfectional stage of devotional service and simultaneously lose material, lusty desires."
+
+A liberated person who hears about the loving affairs, of Rādhā and Kṛṣṇa is not inclined to have lusty desires. One mundane rogue once said that when the Vaiṣṇavas chant the name "Rādhā, Rādhā," he simply remembers a barber's wife named Rādhā. This is a practical example. Unless one is liberated, he should not try to hear about the loving affairs between Rādhā and Kṛṣṇa. If one is not liberated and listens to a relation of the *rāsa* dance, he may remember his mundane activities and illicit connections with some woman whose name may also be Rādhā. In the conditioned stage one should not even try to remember such things. By practicing the regulative principles, one should rise to the platform of spontaneous attraction for Kṛṣṇa. Then and only then should one hear about *rādhā-kṛṣṇa-līlā.* Although these affairs may be very pleasing both to conditioned and to liberated souls, the conditioned soul should not try to hear them. The talks between Rāmānanda Rāya and Śrī Caitanya Mahāprabhu are conducted on the platform of liberation.

@@ -1,0 +1,10 @@
+### CC Adi 17.104
+
+> ke āchiluṅ āmi pūrva janme kaha gaṇi'
+> gaṇite lāgilā sarva-jña prabhu-vākya śuni'
+
+*ke āchiluṅ āmi*—who I was; *pūrva janme*—in My previous birth; *kaha*—please say; *gaṇi'*—by your astrological calculation; *gaṇite*—to calculate; *lāgilā*—began; *sarva-jña*—a man who knows past, present and future; *prabhu-vākya*—the words of Lord Caitanya; *śuni'*—hearing.
+
+**"Please tell Me who I was in My previous birth," the Lord said. "Please tell Me by your astrological computations." Hearing the words of the Lord, the astrologer immediately began to calculate.**
+
+Through astrology one can know past, present and future. Modern Western astrologers have no knowledge of the past or future, nor can they perfectly say anything about the present. Herein we find, however, that after hearing Śrī Caitanya Mahāprabhu's order, the astrologer immediately began his calculations. This was not a facade; he actually knew how to ascertain one's past life through astrology. A still-existing treatise called the *Bhṛgu-saṁhitā* describes a system by which anyone can immediately get information about what he was in the past and what he is going to be in the future. The *brāhmaṇas* who went door to door as if beggars had perfect command of such vast knowledge. Thus the highest knowledge was easily available even to the poorest man in society. The poorest man could inquire from an astrologer about his past, present and future, with no need for business agreements or exorbitant payments. The *brāhmaṇa* would give him all the benefit of his knowledge without asking remuneration, and the poor man, in return, would offer a handful of rice, or anything he had in his possession, to satisfy the *brāhmaṇa.* In a perfect human society, perfect knowledge in any science-medical, astrological, ecclesiastical and so on-is available even to the poorest man, with no anxiety over payment. In the present day, however, no one can get justice, medical treatment, astrological help or ecclesiastical enlightenment without money, and since people are generally poor, they are bereft of the benefits of all these great sciences.

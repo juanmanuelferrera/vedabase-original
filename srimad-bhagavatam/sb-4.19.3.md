@@ -1,0 +1,12 @@
+### SB 4.19.3
+
+> yatra yajña-patiḥ sākṣād
+> bhagavān harir īśvaraḥ
+> anvabhūyata sarvātmā
+> sarva-loka-guruḥ prabhuḥ
+
+*yatra*—where; *yajña-patiḥ*—the enjoyer of all sacrifices; *sākṣāt*—directly; *bhagavān*—the Supreme Personality of Godhead; *hariḥ*—Lord Viṣṇu; *īśvaraḥ*—the supreme controller; *anvabhūyata*—became visible; *sarva-ātmā*—the Supersoul of everyone; *sarva-loka-guruḥ*—the master of all planets, or the teacher of everyone; *prabhuḥ*—the proprietor.
+
+**The Supreme Personality of Godhead, Lord Viṣṇu, is present in everyone's heart as the Supersoul, and He is the proprietor of all planets and the enjoyer of the results of all sacrifices. He was personally present at the sacrifices made by King Pṛthu.**
+
+In this verse the word sākṣāt is significant. Pṛthu Mahārāja was a śaktyāveśa-avatāra incarnation of Lord Viṣṇu. Actually Pṛthu Mahārāja was a living entity, but he acquired specific powers from Lord Viṣṇu. Lord Viṣṇu, however, is directly the Supreme Personality of Godhead, and thus belongs to the category of viṣṇu-tattva. Mahārāja Pṛthu belonged to the jīva-tattva. The viṣṇu-tattva indicates God, whereas the jīva-tattva indicates the part and parcel of God. When God's part and parcel is especially empowered, he is called śaktyāveśa-avatāra. Lord Viṣṇu is herein described as harir īśvaraḥ. The Lord is so kind that He takes all miserable conditions away from His devotees. Consequently He is called hari. He is described as īśvara because He can do whatever He likes. He is the supreme controller. The supreme īśvara puruṣottama is Lord Kṛṣṇa. He exhibits His powers as īśvara, or the supreme controller, when He assures His devotee in Bhagavad-gītā: "Abandon all varieties of religion and just surrender unto Me. I shall deliver you from all sinful reaction. Do not fear."(Bg. 18.66) He can immediately make His devotee immune from all the reactions caused by sinful life if the devotee simply surrenders unto Him. He is described herein as sarvātmā, meaning that He is present in everyone's heart as the Supersoul, and as such He is the supreme teacher of everyone. If we are fortunate enough to take the lessons given by Lord Kṛṣṇa in Bhagavad-gītā, our lives immediately become successful. No one can give better instructions to human society than Lord Kṛṣṇa.

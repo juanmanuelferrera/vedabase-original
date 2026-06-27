@@ -1,0 +1,22 @@
+### SB 6.1.53
+
+> na hi kaścit kṣaṇam api
+> jātu tiṣṭhaty akarma-kṛt
+> kāryate hy avaśaḥ karma
+> guṇaiḥ svābhāvikair balāt
+
+*na*—not; *hi*—indeed; *kaścit*—anyone; *kṣaṇam api*—even for a moment; *jātu*—at any time; *tiṣṭhati*—remains; *akarma-kṛt*—without doing anything; *kāryate*—he is caused to perform; *hi*—indeed; *avaśaḥ*—automatically; *karma*—fruitive activities; *guṇaiḥ*—by the three modes of nature; *svābhāvikaiḥ*—which are produced by his own tendencies in previous lives; *balāt*—by force.
+
+**Not a single living entity can remain unengaged even for a moment. One must act by his natural tendency according to the three modes of material nature because this natural tendency forcibly makes him work in a particular way.**
+
+The *svābhāvika,* or one's natural tendency, is the most important factor in action. One's natural tendency is to serve because a living entity is an eternal servant of God. The living entity wants to serve, but because of his forgetfulness of his relationship with the Supreme Lord, he serves under the modes of material nature and manufactures various modes of service, such as socialism, humanitarianism and altruism. However, one should be enlightened in the tenets of *Bhagavad-gītā* and accept the instruction of the Supreme Personality of Godhead that one give up all natural tendencies for material service under different names and take to the service of the Lord. One's original natural tendency is to act in Kṛṣṇa consciousness because one's real nature is spiritual. The duty of a human being is to understand that since he is essentially spirit, he must abide by the spiritual tendency and not be carried away by material tendencies. Śrīla Bhaktivinoda Ṭhākura has therefore sung:
+
+> (miche) māyāra vaśe,     yāccha bhese', \\
+> khāccha hābuḍubu, bhāi
+
+"My dear brothers, you are being carried away by the waves of material energy and are suffering in many miserable conditions. Sometimes you are drowning in the waves of material nature, and sometimes you are tossed like a swimmer struggling in the ocean." As confirmed by Bhaktivinoda Ṭhākura, this tendency to be battered by the waves of *māyā* can be changed to one's original, natural tendency, which is spiritual, when the living entity comes to understand that he is eternally *kṛṣṇa-dāsa,* a servant of God, Kṛṣṇa.
+
+> (jīva) kṛṣṇa-dāsa,     ei viśvāsa, \\
+> karle ta' āra duḥkha nāi
+
+If instead of serving *māyā* under different names, one turns his service attitude toward the Supreme Lord, he is then safe, and there is no more difficulty. If one returns to his original, natural tendency in the human form of life by understanding the perfect knowledge given by Kṛṣṇa Himself in the Vedic literature, one's life is successful.

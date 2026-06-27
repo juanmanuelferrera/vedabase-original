@@ -1,0 +1,16 @@
+### SB 3.32.22
+
+> tasmāt tvaṁ sarva-bhāvena
+> bhajasva parameṣṭhinam
+> tad-guṇāśrayayā bhaktyā
+> bhajanīya-padāmbujam
+
+*tasmāt*—therefore; *tvam*—you (Devahūti); *sarva-bhāvena*—with loving ecstasy; *bhajasva*—worship; *parameṣṭhinam*—the Supreme Personality of Godhead; *tat-guṇa*—the qualities of the Lord; *āśrayayā*—connected with; *bhaktyā*—by devotional service; *bhajanīya*—worshipable; *pada-ambujam*—whose lotus feet.
+
+**My dear mother, I therefore advise that you take shelter of the Supreme Personality of Godhead, for His lotus feet are worth worshiping. Accept this with all devotion and love, for thus you can be situated in transcendental devotional service.**
+
+The word *parameṣṭhinam* is sometimes used in connection with Brahmā. *parameṣṭhī* means "the supreme person." As Brahmā is the supreme person within this universe, Kṛṣṇa is the Supreme Personality in the spiritual world. Lord Kapiladeva advises His mother that she should take shelter of the lotus feet of the Supreme Personality of Godhead, Kṛṣṇa, because it is worthwhile. Taking shelter of demigods, even those in the highest positions, like Brahmā and Śiva, is not advised herein. One should take shelter of the Supreme Godhead.
+
+*Sarva-bhāvena* means "in all-loving ecstasy." *Bhāva* is the preliminary stage of elevation before the attainment of pure love of Godhead. It is stated in *Bhagavad-gītā, budhā bhāva-samanvitāḥ:* [[bg/10/8|[Bg. 10.8] ]] one who has attained the stage of *bhāva* can accept the lotus feet of Lord Kṛṣṇa as worshipable. This is also advised here by Lord Kapila to His mother. Also significant in this verse is the phrase *tad-guṇāśrayayā bhaktyā.* This means that discharging devotional service unto Kṛṣṇa is transcendental; it is not material activity. This is confirmed in *Bhagavad-gītā*/ those who engage in devotional service are accepted to be situated in the spiritual kingdom. *Brahma-bhūyāya kalpate*/ [[bg/14/26|[Bg. 14.26] ]] they at once become situated in the transcendental kingdom.
+
+Devotional service in full Kṛṣṇa consciousness is the only means for attaining the highest perfection of life for the human being. This is recommended herein by Lord Kapila to His mother. *Bhakti* is therefore *nirguṇa,* free from all tinges of material qualities. Although the discharge of devotional service appears to be like material activities, it is never *saguṇa,* or contaminated by material qualities. *Tad-guṇāśrayayā* means that Lord Kṛṣṇa's transcendental qualities are so sublime that there is no need to divert one's attention to any other activities. His behavior with the devotees is so exalted that a devotee need not try to divert his attention to any other worship. It is said that the demoniac Pūtanā came to kill Kṛṣṇa by poisoning Him, but because Kṛṣṇa was pleased to suck her breast, she was given the same position as His mother. Devotees pray, therefore, that if a demon who wanted to kill Kṛṣṇa gets such an exalted position, why should they go to anyone other than Kṛṣṇa for their worshipful attachment? There are two kinds of religious activities: one for material advancement and the other for spiritual advancement. By taking shelter under the lotus feet of Kṛṣṇa, one is endowed with both kinds of prosperity, material and spiritual. Why then should one go to any demigod?

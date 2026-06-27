@@ -1,0 +1,12 @@
+### SB 4.9.4
+
+> sa taṁ vivakṣantam atad-vidaṁ harir
+> jñātvāsya sarvasya ca hṛdy avasthitaḥ
+> kṛtāñjaliṁ brahmamayena kambunā
+> pasparśa bālaṁ kṛpayā kapole
+
+*saḥ*—the Supreme Personality of Godhead; *tam*—Dhruva Mahārāja; *vivakṣantam*—wanting to offer prayers describing His qualities; *a-tat-vidam*—not experienced at that; *hariḥ*—the Personality of Godhead; *jñātvā*—having understood; *asya*—of Dhruva Mahārāja; *sarvasya*—of everyone; *ca*—and; *hṛdi*—in the heart; *avasthitaḥ*—being situated; *kṛta-añjalim*—situated with folded hands; *brahma-mayena*—just consistent with the words of the Vedic hymns; *kambunā*—with His conchshell; *pasparśa*—touched; *bālam*—the boy; *kṛpayā*—out of causeless mercy; *kapole*—on the forehead.
+
+**Although Dhruva Mahārāja was a small boy, still he wanted to offer prayers to the Supreme Personality of Godhead in suitable language. But because he was inexperienced, he could not adjust himself immediately. The Supreme Personality of Godhead, being situated in everyone's heart, could understand Dhruva Mahārāja's awkward position. Out of His causeless mercy He touched His conchshell to the forehead of Dhruva Mahārāja, who stood before Him with folded hands.**
+
+Every devotee wants to chant the transcendental qualities of the Lord. Devotees are always interested in hearing about the transcendental qualities of the Lord, and they are always eager to glorify these qualities, but sometimes they feel inconvenienced by humbleness. The Personality of Godhead, being situated in everyone's heart, specifically gives a devotee intelligence to describe Him. It is therefore understood that when a devotee writes or speaks about the Supreme Personality of Godhead, it is dictated by the Lord from within. This is confirmed in Bhagavad-gītā, Tenth Chapter: to those who constantly engage in the transcendental loving service of the Lord, the Lord, from within, dictates what to do next in order to serve Him. When Dhruva Mahārāja felt hesitant, not knowing how to describe the Lord for want of sufficient experience, the Lord, out of His causeless mercy, touched His conchshell to Dhruva's forehead, and he was transcendentally inspired. This transcendental inspiration is called brahma-maya because when one is thus inspired, the sound he produces exactly corresponds to the sound vibration of the Vedas. This is not the ordinary sound vibration of this material world. Therefore the sound vibration of the Hare Kṛṣṇa mantra, although presented in the ordinary alphabet, should not be taken as mundane or material.

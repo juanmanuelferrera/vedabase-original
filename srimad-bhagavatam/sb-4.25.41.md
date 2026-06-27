@@ -1,0 +1,14 @@
+### SB 4.25.41
+
+> kā nāma vīra vikhyātaṁ
+> vadānyaṁ priya-darśanam
+> na vṛṇīta priyaṁ prāptaṁ
+> mādṛśī tvādṛśaṁ patim
+
+*kā*—who; *nāma*—indeed; *vīra*—my dear hero; *vikhyātam*—famous; *vadānyam*—magnanimous; *priya-darśanam*—beautiful; *na*—not; *vṛṇīta*—would accept; *priyam*—easily; *prāptam*—gotten; *mādṛśī*—like me; *tvādṛśam*—like you; *patim*—husband.
+
+**O my dear hero, who in this world will not accept a husband like you? You are so famous, so magnanimous, so beautiful and so easily gotten.**
+
+Every husband is certainly a great hero to his wife. In other words, if a woman loves a man, that man appears very beautiful and magnanimous. Unless one becomes beautiful in the eyes of another, one cannot dedicate his whole life to another. The husband is considered very magnanimous because he gives as many children to the wife as she likes. Every woman is fond of children; therefore any husband who can please his wife by sex and give her children is considered very magnanimous. Not only does the husband become magnanimous by begetting children, but by giving his wife ornaments, nice food and dresses, he keeps her completely under submission. Such a satisfied wife will never give up the company of her husband. Manu-saṁhitā recommends that to keep a wife satisfied a husband should give her some ornaments because women are generally fond of home, ornaments, dresses, children, etc. In this way the woman is the center of all material enjoyment.
+
+In this regard, the word vikhyātam is very significant. A man is always famous for his aggression toward a beautiful woman, and such aggression is sometimes considered rape. Although rape is not legally allowed, it is a fact that a woman likes a man who is very expert at rape.

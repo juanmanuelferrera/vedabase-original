@@ -1,0 +1,12 @@
+### SB 4.4.15
+
+> yat-pāda-padmaṁ mahatāṁ mano-'libhir
+> niṣevitaṁ brahma-rasāsavārthibhiḥ
+> lokasya yad varṣati cāśiṣo 'rthinas
+> tasmai bhavān druhyati viśva-bandhave
+
+*yat-pāda-padmam*—the lotus feet of whom; *mahatām*—of the higher personalities; *manaḥ-alibhiḥ*—by the bees of the mind; *niṣevitam*—being engaged at; *brahma-rasa*—of transcendental bliss (*brahmānanda*); *āsava-arthibhiḥ*—seeking the nectar; *lokasya*—of the common man; *yat*—which; *varṣati*—he fulfills; *ca*—and; *āśiṣaḥ*—desires; *arthinaḥ*—seeking; *tasmai*—towards him (Lord Śiva); *bhavān*—you; *druhyati*—are envious; *viśva-bandhave*—unto the friend of all living entities within the three worlds.
+
+**You are envious of Lord Śiva, who is the friend of all living entities within the three worlds. For the common man he fulfills all desires, and because of their engagement in thinking of his lotus feet, he also blesses higher personalities who are seeking after brahmānanda [transcendental bliss].**
+
+Ordinarily there are two classes of men. One class, who are grossly materialistic, want material prosperity, and their desires are fulfilled if they worship Lord Śiva. Lord Śiva, being very quickly satisfied, satisfies the material desires of the common man very quickly; therefore it is seen that ordinary men are very much apt to worship him. Next, those who are disgusted or frustrated with the materialistic way of life worship Lord Śiva to attain salvation, which entails freedom from material identification. One who understands that he is not the material body but is spirit soul is liberated from ignorance. Lord Śiva also offers that facility. People generally practice religion for economic development, to get some money, for by getting money they can satisfy their senses. But when they are frustrated they want spiritual brahmānanda, or merging into the Supreme. These four principles of material life—religion, economic development, sense gratification and liberation—exist, and Lord Śiva is the friend of both the ordinary man and the man who is elevated in spiritual knowledge, so it was not good for Dakṣa to create enmity towards him. Even Vaiṣṇavas, who are above both the ordinary and the elevated men in this world, also worship Lord Śiva as the greatest Vaiṣṇava. Thus he is the friend of everyone—the common men, the elevated men and the devotees of the Lord—so no one should disrespect or create enmity towards Lord Śiva.

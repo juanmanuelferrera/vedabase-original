@@ -1,0 +1,18 @@
+### SB 4.29.79
+
+> atas tad apavādārthaṁ
+> bhaja sarvātmanā harim
+> paśyaṁs tad-ātmakaṁ viśvaṁ
+> sthity-utpatty-apyayā yataḥ
+
+*ataḥ*—therefore; *tat*—that; *apavāda-artham*—to counteract; *bhaja*—engage in devotional service; *sarva-ātmanā*—with all your senses; *harim*—unto the Supreme Personality of Godhead; *paśyan*—seeing; *tat*—of the Lord; *ātmakam*—under the control; *viśvam*—the cosmic manifestation; *sthiti*—maintenance; *utpatti*—creation; *apyayāḥ*—and annihilation; *yataḥ*—from whom.
+
+**You should always know that this cosmic manifestation is created, maintained and annihilated by the will of the Supreme Personality of Godhead. Consequently everything within this cosmic manifestation is under the control of the Lord. To be enlightened by this perfect knowledge, one should always engage himself in the devotional service of the Lord.**
+
+Self-realization, understanding oneself as Brahman or spirit soul, is very difficult in the material condition. However, if we accept the devotional service of the Lord, the Lord will gradually reveal Himself. In this way the progressive devotee will gradually realize his spiritual position. We cannot see anything in the darkness of night, not even our own selves, but when there is sunshine we can see not only the sun but everything within the world as well. Lord Kṛṣṇa explains in the Seventh Chapter of the Bhagavad-gītā:
+
+mayy āsakta-manāḥ pārtha yogaṁ yuñjan mad-āśrayaḥ asaṁśayaṁ samagraṁ māṁ yathā jñāsyasi tac chṛṇu
+
+"Now hear, O son of Pṛthā [Arjuna], how by practicing yoga in full consciousness of Me, with mind attached to Me, you can know Me in full, free from doubt." (Bg. 7.1)
+
+When we engage ourselves in the devotional service of the Lord to become Kṛṣṇa conscious, we understand not only Kṛṣṇa but everything related to Kṛṣṇa. In other words, through Kṛṣṇa consciousness we can understand not only Kṛṣṇa and the cosmic manifestation but also our constitutional position. In Kṛṣṇa consciousness we can understand that the entire material creation is created by the Supreme Personality of Godhead, maintained by Him, annihilated by Him, and absorbed in Him. We are also part and parcel of the Lord. Everything is under the control of the Lord, and therefore our only duty is to surrender unto the Supreme and engage in His transcendental loving service.

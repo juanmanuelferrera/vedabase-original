@@ -1,0 +1,8 @@
+### CC Madhya 4.108
+
+> svapna dekhi' purī-gosāñira haila premāveśa
+> prabhu-ājñā pālibāre gelā pūrva-deśa
+
+*svapna dekhi'*—after seeing the dream; *purī-gosāñira*—of Mādhavendra Purī; *haila*—there was; *prema-āveśa*—ecstasy on account of love of God; *prabhu-ājñā*—the order of the Lord; *pālibāre*—to execute; *gelā*—started; *pūrva-deśa*—for the eastern countries (Bengal).
+
+**After having this dream, Mādhavendra Purī Gosvāmī became very glad due to ecstasy of love of Godhead, and in order to execute the command of the Lord, he started east toward Bengal.**

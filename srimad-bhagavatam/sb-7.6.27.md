@@ -1,0 +1,12 @@
+### SB 7.6.27
+
+> jñānaṁ tad etad amalaṁ duravāpam āha
+> nārāyaṇo nara-sakhaḥ kila nāradāya
+> ekāntināṁ bhagavatas tad akiñcanānāṁ
+> pādāravinda-rajasāpluta-dehināṁ syāt
+
+*jñānam*—knowledge; *tat*—that; *etat*—this; *amalam*—without material contamination; *duravāpam*—very difficult to understand (without the mercy of a devotee); *āha*—explained; *nārāyaṇaḥ*—Lord Nārāyaṇa, the Supreme Personality of Godhead; *nara-sakhaḥ*—the friend of all living entities (especially human beings); *kila*—certainly; *nāradāya*—unto the great sage Nārada; *ekāntinām*—of those who have surrendered exclusively to the Supreme Personality of Godhead; *bhagavataḥ*—of the Supreme Personality of Godhead; *tat*—that (knowledge); *akiñcanānām*—who do not claim any material possessions; *pāda-aravinda*—of the lotus feet of the Lord; *rajasā*—by the dust; *āpluta*—bathed; *dehinām*—whose bodies; *syāt*—is possible.
+
+**Nārāyaṇa, the Supreme Personality of Godhead, the well-wisher and friend of all living entities, formerly explained this transcendental knowledge to the great saint Nārada. Such knowledge is extremely difficult to understand without the mercy of a saintly person like Nārada, but everyone who has taken shelter of Nārada's disciplic succession can understand this confidential knowledge.**
+
+It is stated here that this confidential knowledge is extremely difficult to understand, yet it is very easy to understand if one takes shelter of a pure devotee. This confidential knowledge is also mentioned at the end of *Bhagavad-gītā,* where the Lord says, *sarva-dharmān parityajya mām ekaṁ śaraṇaṁ vraja:* [[bg/18/66|[Bg. 18.66] ]] "Abandon all varieties of religion and just surrender unto Me." This knowledge is an extremely confidential secret, but it can be understood if one approaches the Supreme Personality of Godhead through the bona fide agent, the spiritual master in the disciplic succession from Nārada. Prahlāda Mahārāja wanted to impress upon the sons of the demons that although such knowledge can be understood only by a saintly person like Nārada, they should not be disappointed, for if one takes shelter of Nārada instead of material teachers, this knowledge is possible to understand. Understanding does not depend upon high parentage. The living entity is certainly pure on the spiritual platform, and therefore anyone who attains the spiritual platform by the grace of the spiritual master can also understand this confidential knowledge.

@@ -1,0 +1,13 @@
+### SB 4.7.35
+
+> siddhā ūcuḥ
+> ayaṁ tvat-kathā-mṛṣṭa-pīyūṣa-nadyāṁ
+> mano-vāraṇaḥ kleśa-dāvāgni-dagdhaḥ
+> tṛṣārto 'vagāḍho na sasmāra dāvaṁ
+> na niṣkrāmati brahma-sampannavan naḥ
+
+*siddhāḥ*—the Siddhas; *ūcuḥ*—prayed; *ayam*—this; *tvat-kathā*—Your pastimes; *mṛṣṭa*—pure; *pīyūṣa*—of nectar; *nadyām*—in the river; *manaḥ*—of the mind; *vāraṇaḥ*—the elephant; *kleśa*—sufferings; *dāva-agni*—by the forest fire; *dagdhaḥ*—burned; *tṛṣā*—thirst; *ārtaḥ*—afflicted; *avagāḍhaḥ*—being immersed; *na sasmāra*—does not remember; *dāvam*—the forest fire or the miseries; *na niṣkrāmati*—not come out; *brahma*—the Absolute; *sampanna-vat*—like having merged; *naḥ*—our.
+
+**The Siddhas prayed: Like an elephant that has suffered in a forest fire but can forget all its troubles by entering a river, our minds, O Lord, always merge in the nectarean river of Your transcendental pastimes, and they desire never to leave such transcendental bliss, which is as good as the pleasure of merging in the Absolute.**
+
+This statement is from the Siddhas, the inhabitants of Siddhaloka, where the eight kinds of material perfection are complete. The residents of Siddhaloka have full control in the eight kinds of yogic perfection, but from their statement it appears that they are pure devotees. They always merge in the nectarean river of hearing of the pastimes of the Lord. Hearing of the pastimes of the Lord is called Kṛṣṇa-kathā. Similarly, there is a statement by Prahlāda Mahārāja that those who are always merged in the ocean of the nectar of describing the pastimes of the Lord are liberated. They have no fear of the material condition of life. The Siddhas say that the mind of an ordinary person is full of anxieties. The example is given of the elephant who has suffered in a forest fire and who enters into a river to relieve himself. If persons who are suffering in the forest fire of this material existence will only enter into the nectarean river of the description of the pastimes of the Lord, they will forget all the troubles of the miserable material existence. The Siddhas do not care for fruitive activities, such as performing sacrifices and achieving the good results. They simply merge in the transcendental discussions of the pastimes of the Lord. That makes them completely happy, without care for pious or impious activities. For those who are always in Kṛṣṇa consciousness there is no need to perform any kind of pious or impious sacrifices or activities. Kṛṣṇa consciousness is itself complete, for it includes all the processes praised in the Vedic scriptures.

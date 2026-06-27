@@ -1,0 +1,12 @@
+### Bg 2.3
+
+> klaibyaṁ mā sma gamaḥ pārtha
+> naitat tvayy upapadyate
+> kṣudraṁ hṛdaya-daurbalyaṁ
+> tyaktvottiṣṭha parantapa
+
+*klaibyam*—impotence; *mā*—do not; *sma*—take it; *gamaḥ*—go in; *pārtha*—O son of Pṛthā; *na*—never; *etat*—like this; *tvayi*—unto you; *upapadyate*—is befitting; *kṣudram*—very little; *hṛdaya*—heart; *daurbalyam*—weakness; *tyaktvā*—giving up; *uttiṣṭha*—get up; *parantapa*—O chastiser of the enemies.
+
+**O son of Pṛthā, do not yield to this degrading impotence. It does not become you. Give up such petty weakness of heart and arise, O chastiser of the enemy.**
+
+Arjuna was addressed as the "son of Pṛthā," who happened to be the sister of Kṛṣṇa's father Vasudeva. Therefore Arjuna had a blood relationship with Kṛṣṇa. If the son of a *ksatriya* declines to fight, he is a *kṣatriya* in name only, and if the son of a *brāhmaṇa* acts impiously, he is a *brāhmaṇa* in name only. Such *kṣatriyas* and *brāhmaṇas* are unworthy sons of their fathers; therefore, Kṛṣṇa did not want Arjuna to become an unworthy son of a *kṣatriya.* Arjuna was the most intimate friend of Kṛṣṇa, and Kṛṣṇa was directly guiding him on the chariot; but in spite of all these credits, if Arjuna abandoned the battle, he would be committing an infamous act; therefore Kṛṣṇa said that such an attitude in Arjuna did not fit his personality. Arjuna might argue that he would give up the battle on the grounds of his magnanimous attitude for the most respectable Bhīṣma and his relatives, but Kṛṣṇa considered that sort of magnanimity not approved by authority. Therefore, such magnanimity or so-called nonviolence should be given up by persons like Arjuna under the direct guidance of Kṛṣṇa.

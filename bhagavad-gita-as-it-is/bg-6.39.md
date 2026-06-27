@@ -1,0 +1,12 @@
+### Bg 6.39
+
+> etan me saṁśayaṁ kṛṣṇa
+> chettum arhasy aśeṣataḥ
+> tvad-anyaḥ saṁśayasyāsya
+> chettā na hy upapadyate
+
+*etat*—this is; *me*—my; *saṁśayam*—doubt; *kṛṣṇa*—O Kṛṣṇa; *chettum*—to dispel; *arhasi*—requested to do; *aśeṣataḥ*—completely; *tvat*—Yourself; *anyaḥ*—without; *saṁśayāsya*—of the doubt; *asya*—of this; *chettā*—remover; *na*—never; *hi*—certainly; *upapadyate*—to be found.
+
+**This is my doubt O Kṛṣṇa, and I ask You to dispel it completely. But for Yourself, no one is to be found who can destroy this doubt.**
+
+Kṛṣṇa is the perfect knower of past, present and future. In the beginning of the *Bhagavad-gītā,* the Lord said that all living entities exist individually in the past, that they exist now in the present, and that they continue to retain individual identity in the future, even after liberation from the material entanglement. So He has already cleared up the question of the future of the individual living entity. Now, Arjuna wants to know of the future of the unsuccessful transcendentalist. No one is equal to or above Kṛṣṇa, and certainly the so-called great sages and philosophers who are at the mercy of material nature cannot equal Him. Therefore the verdict of Kṛṣṇa is the final and complete answer to all doubts because He knows past, present and future perfectly—but no one knows Him. Kṛṣṇa and Kṛṣṇa conscious devotees alone can know what is what.

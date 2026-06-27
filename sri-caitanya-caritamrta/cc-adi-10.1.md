@@ -1,0 +1,12 @@
+### CC Adi 10.1
+
+> śrī-caitanya-padāmbhoja-
+> madhupebhyo namo namaḥ
+> kathañcid āśrayād yeṣāṁ
+> śvāpi tad-gandha-bhāg bhavet
+
+*śrī-caitanya*—Lord Śrī Caitanya Mahāprabhu; *pada-ambhoja*—the lotus feet; *madhu*—honey; *pebhyaḥ*—unto those who drink; *namaḥ*—respectful obeisances; *namaḥ*—respectful obeisances; *kathañcit*—a little of it; *āśrayāt*—taking shelter of; *yeṣām*—of whom; *śvā*—dog; *api*—also; *tat-gandha*—the aroma of the lotus flower; *bhāk*—shareholder; *bhavet*—may become.
+
+**Let me repeatedly offer my respectful obeisances unto the beelike devotees who always taste the honey of the lotus feet of Lord Caitanya Mahāprabhu. If even a doggish nondevotee somehow takes shelter of such devotees, he enjoys the aroma of the lotus flower.**
+
+The example of a dog is very significant in this connection. A dog naturally does not become a devotee at any time, but still it is sometimes found that a dog of a devotee gradually becomes a devotee also. We have actually seen that a dog has no respect even for the *tulasī* plant. Indeed, a dog is especially inclined to pass urine on the *tulasī* plant. Therefore the dog is the number one nondevotee. But Śrī Caitanya Mahāprabhu's *saṅkīrtana* movement is so strong that even a doglike nondevotee can gradually become a devotee by the association of a devotee of Lord Caitanya. Śrīla Śivānanda Sena, a great householder devotee of Lord Caitanya Mahāprabhu, attracted a dog on the street while going to Jagannātha Purī. The dog began to follow him and ultimately went to see Caitanya Mahāprabhu and was liberated. Similarly, cats and dogs in the household of Śrīvāsa Ṭhākura were also liberated. Cats and dogs and other animals are not expected to become devotees, but in the association of a pure devotee they are also delivered.

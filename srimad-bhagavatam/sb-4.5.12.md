@@ -1,0 +1,12 @@
+### SB 4.5.12
+
+> bahv evam udvigna-dṛśocyamāne
+> janena dakṣasya muhur mahātmanaḥ
+> utpetur utpātatamāḥ sahasraśo
+> bhayāvahā divi bhūmau ca paryak
+
+*bahu*—much; *evam*—in this manner; *udvigna-dṛśā*—with nervous glances; *ucyamāne*—while this was being said; *janena*—by the persons (assembled at the sacrifice); *dakṣasya*—of Dakṣa; *muhuḥ*—again and again; *mahā-ātmanaḥ*—stronghearted; *utpetuḥ*—appeared; *utpāta-tamāḥ*—very powerful symptoms; *sahasraśaḥ*—by the thousands; *bhaya-āvahāḥ*—producing fear; *divi*—in the sky; *bhūmau*—on the earth; *ca*—and; *paryak*—from all sides.
+
+**While everyone was talking amongst themselves, Dakṣa saw dangerous omens from all sides, from the earth and from the sky.**
+
+In this verse Dakṣa has been described as mahātmā. The word mahātmā has been commented upon by different commentators in various manners. Vīrarāghavācārya has indicated that this word mahātmā means steady in heart. That is to say that Dakṣa was so stronghearted that even when his beloved daughter was prepared to lay down her life, he was steady and unshaken. But in spite of his being so stronghearted, he was perturbed when he saw the various disturbances created by the gigantic black demon. Viśvanātha Cakravartī Ṭhākura remarks in this connection that even if one is called mahātmā, a great soul, unless he exhibits the symptoms of a mahātmā, he should be considered a durātmā, or a degraded soul. In Bhagavad-gītā the word mahātmā describes the pure devotee of the Lord: mahātmānas tu māṁ pārtha daivīṁ prakṛtim āśritāḥ (Bg. 9.13). A mahātmā is always under the guidance of the internal energy of the Supreme Personality of Godhead, and thus how could such a misbehaved person as Dakṣa be a mahātmā? A mahātmā is supposed to have all the good qualities of the demigods, and thus Dakṣa, lacking those qualities, could not be called a mahātmā; he should instead be called durātmā, a degraded soul. The word mahātmā to describe the qualifications of Dakṣa is used sarcastically.

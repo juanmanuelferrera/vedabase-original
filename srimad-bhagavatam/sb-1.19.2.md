@@ -1,0 +1,12 @@
+### SB 1.19.2
+
+> dhruvaṁ tato me kṛta-deva-helanād
+> duratyayaṁ vyasanaṁ nāti-dīrghāt
+> tad astu kāmaṁ hy agha-niṣkṛtāya me
+> yathā na kuryāṁ punar evam addhā
+
+*dhruvam*—sure and certain; *tataḥ*—therefore; *me*—my; *kṛta-deva-helanāt*—because of disobeying the orders of the Lord; *duratyayam*—very difficult; *vyasanam*—calamity; *na*—not; *ati*—greatly; *dīrghāt*—far off; *tat*—that; *astu*—let it be; *kāmam*—desire without reservations; *hi*—certainly; *agha*—sins; *niṣkṛtāya*—for getting free; *me*—my; *yathā*—so that; *na*—never; *kuryām*—shall I do it; *punaḥ*—again; *evam*—as I have done; *addhā*—directly.
+
+**[King Parīkṣit thought:] Due to my neglecting the injunctions of the Supreme Lord I must certainly expect some difficulty to overcome me in the near future. I now desire without reservation that the calamity come now, for in this way I may be freed of the sinful action and not commit such an offense again.**
+
+The Supreme Lord enjoins that brāhmaṇas and cows must be given all protection. The Lord is Himself very much inclined to do good to brāhmaṇas and cows (go-brāhmaṇa-hitāya ca). Mahārāja Parīkṣit knew all this, and thus he concluded that his insulting a powerful brāhmaṇa was certainly to be punished by the laws of the Lord, and he was expecting something very difficult in the very near future. He therefore desired the imminent calamity to fall on him and not on his family members. A man’s personal misconduct affects all family members. Therefore Mahārāja Parīkṣit desired the calamity to fall on him alone. By suffering personally he would be restrained from future sins, and at the same time the sin which he had committed would be counteracted so that his descendants would not suffer. That is the way a responsible devotee thinks. The family members of a devotee also share the effects of a devotee’s service unto the Lord. Mahārāja Prahlāda saved his demon father by his personal devotional service. A devotee son in the family is the greatest boon or blessing of the Lord.

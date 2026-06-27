@@ -1,0 +1,10 @@
+### CC Antya 7.118
+
+> nānā avajñāne bhaṭṭe śodhena bhagavān
+> kṛṣṇa yaiche khaṇḍilena indrera abhimāna
+
+*nānā*—various; *avajñāne*—by disrespect; *bhaṭṭe*—Vallabha Bhaṭṭa; *śodhena*—purifies; *bhagavān*—the Supreme Personality of Godhead; *kṛṣṇa*—Lord Kṛṣṇa; *yaiche*—as; *khaṇḍilena*—cuts down; *indrera abhimāna*—the pride of Indra.
+
+**By various hints and refutations, Lord Caitanya, the Supreme Personality of Godhead, corrected Vallabha Bhaṭṭa exactly as Kṛṣṇa had cut down the false pride of Indra.**
+
+Indra, the King of heaven, was very proud of his position. Therefore when the residents of Vṛndāvana decided not to perform the Indra-yajña but to perform the Govardhana-yajña in accordance with the instructions of Kṛṣṇa, Indra, because of his false pride, wanted to chastise the residents of Vṛndāvana. Thinking himself extremely powerful, Indra poured incessant rain upon Vṛndāvana, but Lord Kṛṣṇa immediately cut down his pride by lifting the Govardhana Hill as an umbrella to save the residents of Vṛndāvana. In this way Kṛṣṇa proved Indra's power most insignificant in the presence of His own omnipotence.

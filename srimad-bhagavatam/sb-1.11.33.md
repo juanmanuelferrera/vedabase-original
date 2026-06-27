@@ -1,0 +1,16 @@
+### SB 1.11.33
+
+> yadyapy asau pārśva-gato raho-gatas
+> tathāpi tasyāṅghri-yugaṁ navaṁ navam
+> pade pade kā virameta tat-padāc
+> calāpi yac chrīr na jahāti karhicit
+
+*yadi*—although; *api*—certainly; *asau*—He (Lord Śrī Kṛṣṇa); *pārśva-gataḥ*—just by the side; *rahaḥ-gataḥ*—exclusively alone; *tathāpi*—still; *tasya*—His; *aṅghri-yugam*—the feet of the Lord; *navam navam*—newer and newer; *pade*—step; *pade*—in every step; *kā*—who; *virameta*—can be detached from; *tat-padāt*—from His feet; *calāpi*—moving; *yat*—whom; *śrīḥ*—the goddess of fortune; *na*—never; *jahāti*—quits; *karhicit*—at any time.
+
+**Although Lord Śrī Kṛṣṇa was constantly by their sides, as well as exclusively alone, His feet appeared to them to be newer and newer. The goddess of fortune, although by nature always restless and moving, could not quit the Lord's feet. So what woman can be detached from those feet, having once taken shelter of them?**
+
+Conditioned living beings are always after the favor of the goddess of fortune, although by nature she is moving from one place to another. In the material world no one is permanently fortunate, however clever one may be. There have been so many big empires in different parts of the world, there have been so many powerful kings all over the world, and there have been so many fortunate men, but all of them have been liquidated gradually. This is the law of material nature. But spiritually it is different. According to Brahma-saṁhitā, the Lord is served very respectfully by hundreds and thousands of goddesses of fortune. They are always in a lonely place also with the Lord. But still the association of the Lord is so inspiringly newer and newer that they cannot quit the Lord for a moment, even though they are by nature very restless and are moving about. The spiritual relation with the Lord is so enlivening and resourceful that no one can leave the company of the Lord, once having taken shelter of it.
+
+The living beings are by constitution feminine by nature. The male or enjoyer is the Lord, and all manifestations of His different potencies are feminine by nature. In the Bhagavad-gītā, the living beings are designated as parā-prakṛti, or the superior potency. The material elements are aparā-prakṛti, or inferior potency. Such potencies are always employed for the satisfaction of the employer or the enjoyer. The supreme enjoyer is the Lord Himself, as stated in the Bhagavad-gītā (Bg. 5.29). The potencies, therefore, when engaged directly in the service of the Lord, revive the natural color, and thus there is no disparity in the relation of the potent and potency.
+
+Generally people engaged in service are always seeking some post under the government or the supreme enjoyer of the state. Since the Lord is the supreme enjoyer of everything in or outside the universe, it is happiness to be employed by Him. Once engaged in the supreme governmental service of the Lord, no living being wishes to be relieved from the engagement. The highest perfection of human life is to seek some employment under the Lord's supreme service. That will make one extremely happy. One need not seek the moving goddess of fortune without the relation of the Lord.

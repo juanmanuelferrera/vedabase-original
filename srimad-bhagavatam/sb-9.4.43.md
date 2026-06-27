@@ -1,0 +1,10 @@
+### SB 9.4.43
+
+> manyunā pracalad-gātro
+> bhru-kuṭī-kuṭilānanaḥ
+> bubhukṣitaś ca sutarāṁ
+> kṛtāñjalim abhāṣata
+
+*manyunā*—agitated by great anger; *pracalat-gātraḥ*—his body trembling; *bhru-kuṭī*—by the eyebrows; *kuṭila*—curved; *ānanaḥ*—face; *bubhukṣitaḥ ca*—and hungry at the same time; *sutarām*—very much; *kṛta-añjalim*—to Ambarīṣa Mahārāja, who stood there with folded hands; *abhāṣata*—he addressed.
+
+**Still hungry, Durvāsā Muni, his body trembling, his face curved and his eyebrows crooked in a frown, angrily spoke as follows to King Ambarīṣa, who stood before him with folded hands.**

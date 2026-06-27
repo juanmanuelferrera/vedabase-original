@@ -1,0 +1,19 @@
+### SB 3.12.34
+
+> kadācid dhyāyataḥ sraṣṭur
+> vedā āsaṁś catur-mukhāt
+> kathaṁ srakṣyāmy ahaṁ lokān
+> samavetān yathā purā
+
+*kadācit*—once upon a time; *dhyāyataḥ*—while contemplating; *sraṣṭuḥ*—of Brahmā; *vedāḥ*—the Vedic literature; *āsan*—became manifested; *catuḥ-mukhāt*—from the four mouths; *katham srakṣyāmi*—how shall I create; *aham*—myself; *lokān*—all these worlds; *samavetān*—assembled; *yathā*—as they were; *purā*—in the past.
+
+**Once upon a time, when Brahmā was thinking of how to create the worlds as in the past millennium, the four Vedas, which contain all varieties of knowledge, became manifested from his four mouths.**
+
+As a fire can consume anything and everything without being contaminated, so, by the grace of the Lord, the fire of Brahmā's greatness consumed his desire for the sinful act of sex with his daughter. The *Vedas* are the source of all knowledge, and they were first revealed to Brahmā by the mercy of the Supreme Personality of Godhead while Brahmā was thinking of re-creating the material world. Brahmā is powerful by dint of his devotional service unto the Lord, and the Lord is always ready to forgive His devotee if by chance he falls down from the noble path of devotional service. The *Śrīmad-Bhāgavatam* (11.5.42) confirms this as follows:
+
+> sva-pāda-mūlaṁ bhajataḥ priyasya
+> tyaktvānya-bhāvasya hariḥ pareśaḥ
+> vikarma yac cotpatitaṁ kathañ-cid
+> dhunoti sarvaṁ hṛdi sannviṣṭaḥ
+
+"Any person who is engaged one hundred percent in the transcendental loving service of the Lord, at His lotus feet, is very dear to the Personality of Godhead Hari, and the Lord, being situated in the heart of the devotee, excuses all kinds of sins committed by chance." It was never expected that a great personality like Brahmā would ever think of sex indulgence with his daughter. The example shown by Brahmā only suggests that the power of material nature is so strong that it can act upon everyone, even Brahmā. Brahmā was saved by the mercy of the Lord with a little punishment, but by the grace of the Lord he did not lose his prestige as the great Brahmā.

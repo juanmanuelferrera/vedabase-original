@@ -1,0 +1,18 @@
+### SB 4.29.64
+
+> nānubhūtaṁ kva cānena
+> dehenādṛṣṭam aśrutam
+> kadācid upalabhyeta
+> yad rūpaṁ yādṛg ātmani
+
+*na*—never; *anubhūtam*—experienced; *kva*—at any time; *ca*—also; *anena dehena*—by this body; *adṛṣṭam*—never seen; *aśrutam*—never heard; *kadācit*—sometimes; *upalabhyeta*—may be experienced; *yat*—which; *rūpam*—form; *yādṛk*—whatever kind; *ātmani*—in the mind.
+
+**Sometimes we suddenly experience something that was never experienced in the present body by sight or hearing. Sometimes we see such things suddenly in dreams.**
+
+We sometimes see things in dreams that we have never experienced in the present body. Sometimes in dreams we think that we are flying in the sky, although we have no experience of flying. This means that once in a previous life, either as a demigod or astronaut, we flew in the sky. The impression is there in the stockpile of the mind, and it suddenly expresses itself. It is like fermentation taking place in the depths of water, which sometimes manifests itself in bubbles on the water's surface. Sometimes we dream of coming to a place we have never known or experienced in this lifetime, but this is proof that in a past life we experienced this. The impression is kept within the mind and sometimes becomes manifest either in dream or in thought. The conclusion is that the mind is the storehouse of various thoughts and experiences undergone during our past lives. Thus there is a chain of continuation from one life to another, from previous lives to this life, and from this life to future lives. This is also sometimes proved by saying that a man is a born poet, a born scientist or a born devotee. If, like Mahārāja Ambarīṣa, we think of Kṛṣṇa constantly in this life (sa vai manaḥ kṛṣṇa-padāravindayoḥ), we will certainly be transferred to the kingdom of God at the time of death. Even if our attempt to be Kṛṣṇa conscious is not complete, our Kṛṣṇa consciousness will continue in the next life. This is confirmed in Bhagavad-gītā:
+
+prāpya puṇya-kṛtāṁ lokān uṣitvā śāśvatīḥ samāḥ śucīnāṁ śrīmatāṁ gehe yoga-bhraṣṭo 'bhijāyate
+
+"The unsuccessful yogī, after many, many years of enjoyment on the planets of the pious living entities, is born into a family of righteous people, or into a family of rich aristocracy." (Bg. 6.41)
+
+If we rigidly follow the principles of meditation on Kṛṣṇa, there is no doubt that in our next life we will be transferred to Kṛṣṇaloka, Goloka Vṛndāvana.

@@ -1,0 +1,8 @@
+### CC Madhya 25.230
+
+> āra saba bhakta prabhura caraṇe paḍilā
+> sabā āliṅgiyā prabhu premāviṣṭa hailā
+
+*āra saba bhakta*—all the other devotees; *prabhura*—of Lord Śrī Caitanya Mahāprabhu; *caraṇe paḍilā*—fell down at the lotus feet; *sabā āliṅgiyā*—embracing all of them; *prabhu*—Śrī Caitanya Mahāprabhu; *prema-āviṣṭa*—overwhelmed in ecstatic love and emotion; *hailā*—became.
+
+**All the other devotees also came and fell down at the Lord's lotus feet. In return, Śrī Caitanya Mahāprabhu embraced them all with great ecstatic love.**

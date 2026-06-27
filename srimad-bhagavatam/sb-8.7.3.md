@@ -1,0 +1,23 @@
+### SB 8.7.3
+
+> tan naicchan daitya-patayo
+> mahā-puruṣa-ceṣṭitam
+> na gṛhṇīmo vayaṁ puccham
+> aher aṅgam amaṅgalam
+> svādhyāya-śruta-sampannāḥ
+> prakhyātā janma-karmabhiḥ
+
+*tat*—that arrangement; *na aicchan*—not liking; *daitya-patayaḥ*—the leaders of the demons; *mahā-puruṣa*—of the Supreme Personality of Godhead; *ceṣṭitam*—attempt; *na*—not; *gṛhṇīmaḥ*—shall take; *vayam*—all of us (the Daityas); *puccham*—the tail; *aheḥ*—of the serpent; *aṅgam*—part of the body; *amaṅgalam*—inauspicious, inferior; *svādhyāya*—with Vedic study; *śruta*—and Vedic knowledge; *sampannāḥ*—fully equipped; *prakhyātāḥ*—prominent; *janma-karmabhiḥ*—by birth and activities.
+
+**The leaders of the demons thought it unwise to hold the tail, the inauspicious portion of the snake. Instead, they wanted to hold the front, which had been taken by the Personality of Godhead and the demigods, because that portion was auspicious and glorious. Thus the demons, on the plea that they were all highly advanced students of Vedic knowledge and were all famous for their birth and activities, protested that they wanted to hold the front of the snake.**
+
+The demons thought that the front of the snake was auspicious and that catching hold of that portion would be more chivalrous. Moreover, Daityas must always do the opposite of the demigods. That is their nature. We have actually seen this in relation to our Kṛṣṇa consciousness movement. We are advocating cow protection and encouraging people to drink more milk and eat palatable preparations made of milk, but the demons, just to protest such proposals, are claiming that they are advanced in scientific knowledge, as described here by the words *svādhyāya-śruta-sampannāḥ.* They say that according to their scientific way, they have discovered that milk is dangerous and that the beef obtained by killing cows is very nutritious. This difference of opinion will always continue. Indeed, it has existed since days of yore. Millions of years ago, there was the same competition. The demons, as a result of their so-called Vedic study, preferred to hold the side of the snake near the mouth. The Supreme Personality of Godhead thought it wise to catch hold of the dangerous part of the snake and allow the demons to hold the tail, which was not dangerous, but because of a competitive desire, the demons thought it wise to hold the snake near the mouth. If the demigods were going to drink poison, the demons would resolve, "Why should we not share the poison and die gloriously by drinking it?"
+
+In regard to the words *svādhyāya-śruta-sampannāḥ prakhyātā janma-karmabhiḥ,* another question may be raised. If one is actually educated in Vedic knowledge, is famous for performing prescribed activities and has been born in a great aristocratic family, why should he be called a demon? The answer is that one may be highly educated and may have been born in an aristocratic family, but if he is godless, if he does not listen to the instructions of God, then he is a demon. There are many examples in history of men like Hiraṇyakaśipu, Rāvaṇa and Kaṁsa who were well educated, who were born in aristocratic families and who were very powerful and chivalrous in fighting, but who, because of deriding the Supreme Personality of Godhead, were called Rākṣasas, or demons. One may be very well educated, but if he has no sense of Kṛṣṇa consciousness, no obedience to the Supreme Lord, he is a demon. That is described by the Lord Himself in *Bhagavad-gītā* [[bg/7/15|(Bg. 7.15)]]:
+
+> na māṁ duṣkṛtino mūḍhāḥ
+> prapadyante narādhamāḥ
+> māyayāpahṛta-jñānā
+> āsuraṁ bhāvam āśritāḥ
+
+"Those miscreants who are grossly foolish, lowest among mankind, whose knowledge is stolen by illusion, and who partake of the atheistic nature of demons, do not surrender unto Me." *Āsuraṁ bhāvam* refers to not accepting the existence of God or the transcendental instructions of the Personality of Godhead. *Bhagavad-gītā* clearly consists of transcendental instructions imparted directly by the Supreme Personality of Godhead. But *asuras,* instead of accepting these instructions directly, make commentaries according to their own whimsical ways and mislead everyone, without profit even for themselves. One should therefore be very careful of demoniac, godless persons. According to the words of Lord Kṛṣṇa, even if a godless demon is very well educated, he must be considered a *mūḍha, narādhama* and *māyayāpahṛta jñāna.*

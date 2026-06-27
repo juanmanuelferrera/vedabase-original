@@ -1,0 +1,7 @@
+### SB 5.20.20
+
+> tasminn api praiyavrato ghṛtapṛṣṭho nāmādhipatiḥ sve dvīpe varṣāṇi sapta vibhajya teṣu putra-nāmasu sapta rikthādān varṣapān niveśya svayaṁ bhagavān bhagavataḥ parama-kalyāṇa-yaśasa ātma-bhūtasya hareś caraṇāravindam upajagāma.
+
+*tasmin*—in that island; *api*—also; *praiyavrataḥ*—the son of Mahārāja Priyavrata; *ghṛta-pṛṣṭhaḥ*—Ghṛtapṛṣṭha; *nāma*—named; *adhipatiḥ*—the king of that island; *sve*—his own; *dvīpe*—in the island; *varṣāṇi*—tracts of land; *sapta*—seven; *vibhajya*—dividing; *teṣu*—in each of them; *putra-nāmasu*—possessing the names of his sons; *sapta*—seven; *rikthā-dān*—sons; *varṣa-pān*—the masters of the *varṣas*; *niveśya*—appointing; *svayam*—himself; *bhagavān*—very powerful; *bhagavataḥ*—of the Supreme Personality of Godhead; *parama-kalyāṇa-yaśasaḥ*—whose glories are so auspicious; *ātma-bhūtasya*—the soul of all souls; *hareḥ caraṇa-aravindam*—the lotus feet of the Lord; *upajagāma*—took shelter at.
+
+**The ruler of this island was another son of Mahārāja Priyavrata. His name was Ghṛtapṛṣṭha, and he was a very learned scholar. He also divided his own island among his seven sons. After dividing the island into seven parts, named according to the names of his sons, Ghṛtapṛṣṭha Mahārāja completely retired from family life and took shelter at the lotus feet of the Lord, the soul of all souls, who has all auspicious qualities. Thus he attained perfection.**

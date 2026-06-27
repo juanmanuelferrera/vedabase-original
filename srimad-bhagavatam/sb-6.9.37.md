@@ -1,0 +1,9 @@
+### SB 6.9.37
+
+> sama-viṣama-matīnāṁ matam anusarasi yathā rajju-khaṇḍaḥ sarpādi-dhiyām.
+
+*sama*—equal or proper; *viṣama*—and unequal or mistaken; *matīnām*—of those having intelligence; *matam*—conclusion; *anusarasi*—You follow; *yathā*—just as; *rajju-khaṇḍaḥ*—a piece of rope; *sarpa-ādi*—a snake, etc.; *dhiyām*—of those who perceive.
+
+**A rope causes fear for a bewildered person who considers it a snake, but not for a person with proper intelligence who knows it to be only a rope. Similarly, You, as the Supersoul in everyone's heart, inspire fear or fearlessness according to one's intelligence, but in You there is no duality.**
+
+In *Bhagavad-gītā* [[bg/4/11|(Bg. 4.11)]] the Lord says, *ye yathā māṁ prapadyante tāṁs tathaiva bhajāmy aham:* "As one surrenders unto Me, I reward him accordingly." The Supreme Personality of Godhead is the reservoir of everything, including all knowledge, all truth and all contradictions. The example cited herein is very appropriate. A rope is one truth, but some mistake it for a snake, whereas others know it to be a rope. Similarly, devotees who know the Supreme Personality of Godhead do not see contradictions in Him, but nondevotees regard Him as the snakelike source of all fear. For example, when Nṛsiṁhadeva appeared, Prahlāda Mahārāja saw the Lord as the supreme solace, whereas his father, a demon, saw Him as the ultimate death. As stated in *Śrīmad-Bhāgavatam* (11.2.37), *bhayaṁ dvitīyābhiniveśataḥ syāt:* fear results from being absorbed in duality. When one is in knowledge of duality, one knows both fear and bliss. The same Supreme Lord is a source of bliss to devotees and fear to nondevotees who have a poor fund of knowledge. God is one, but people understand the Absolute Truth from different angles of vision. The unintelligent see contradictions in Him, but sober devotees find no contradictions.

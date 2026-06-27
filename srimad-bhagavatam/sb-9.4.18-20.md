@@ -1,0 +1,22 @@
+### SB 9.4.18-20
+
+> sa vai manaḥ kṛṣṇa-padāravindayor
+> vacāṁsi vaikuṇṭha-guṇānuvarṇane
+> karau harer mandira-mārjanādiṣu
+> śrutiṁ cakārācyuta-sat-kathodaye
+
+> mukunda-liṅgālaya-darśane dṛśau
+> tad-bhṛtya-gātra-sparśe 'ṅga-saṅgamam
+> ghrāṇaṁ ca tat-pāda-saroja-saurabhe
+> śrīmat-tulasyā rasanāṁ tad-arpite
+
+> pādau hareḥ kṣetra-padānusarpaṇe
+> śiro hṛṣīkeśa-padābhivandane
+> kāmaṁ ca dāsye na tu kāma-kāmyayā
+> yathottamaśloka-janāśrayā ratiḥ
+
+*saḥ*—he (Mahārāja Ambarīṣa); *vai*—indeed; *manaḥ*—his mind; *kṛṣṇa-pada-aravindayoḥ*—(fixed) upon the two lotus feet of Lord Kṛṣṇa; *vacāṁsi*—his words; *vaikuṇṭha-guṇa-anuvarṇane*—describing the glories of Kṛṣṇa; *karau*—his two hands; *hareḥ mandira-mārjana-ādiṣu*—in activities like cleansing the temple of Hari, the Supreme Personality of Godhead; *śrutim*—his ear; *cakāra*—engaged; *acyuta*—of or about Kṛṣṇa, who never falls down; *sat-kathā-udaye*—in hearing the transcendental narrations; *mukunda-liṅga-ālaya-darśane*—in seeing the Deity and temples and holy *dhāmas* of Mukunda; *dṛśau*—his two eyes; *tat-bhṛtya*—of the servants of Kṛṣṇa; *gātra-sparśe*—in touching the bodies; *aṅga-saṅgamam*—contact of his body; *ghrāṇam ca*—and his sense of smell; *tat-pāda*—of His lotus feet; *saroja*—of the lotus flower; *saurabhe*—in (smelling) the fragrance; *śrīmat-tulasyāḥ*—of the *tulasī* leaves; *rasanām*—his tongue; *tat-arpite*—in the *prasāda* offered to the Lord; *pādau*—his two legs; *hareḥ*—of the Personality of Godhead; *kṣetra*—holy places like the temple or Vṛndāvana and Dvārakā; *pada-anusarpaṇe*—walking to those places; *śiraḥ*—the head; *hṛṣīkeśa*—of Kṛṣṇa, the master of the senses; *pada-abhivandane*—in offering obeisances to the lotus feet; *kāmam ca*—and his desires; *dāsye*—in being engaged as a servant; *na*—not; *tu*—indeed; *kāma-kāmyayā*—with a desire for sense gratification; *yathā*—as; *uttamaśloka-jana-āśrayā*—if one takes shelter of a devotee such as Prahlāda; *ratiḥ*—attachment.
+
+**Mahārāja Ambarīṣa always engaged his mind in meditating upon the lotus feet of Kṛṣṇa, his words in describing the glories of the Lord, his hands in cleansing the Lord's temple, and his ears in hearing the words spoken by Kṛṣṇa or about Kṛṣṇa. He engaged his eyes in seeing the Deity of Kṛṣṇa, Kṛṣṇa's temples and Kṛṣṇa's places like Mathurā and Vṛndāvana, he engaged his sense of touch in touching the bodies of the Lord's devotees, he engaged his sense of smell in smelling the fragrance of tulasī offered to the Lord, and he engaged his tongue in tasting the Lord's prasāda. He engaged his legs in walking to the holy places and temples of the Lord, his head in bowing down before the Lord, and all his desires in serving the Lord, twenty-four hours a day. Indeed, Mahārāja Ambarīṣa never desired anything for his own sense gratification. He engaged all his senses in devotional service, in various engagements related to the Lord. This is the way to increase attachment for the Lord and be completely free from all material desires.**
+
+In *Bhagavad-gītā* [[bg/7/1|(Bg. 7.1)]] the Lord recommends, *mayy āsakta-manāḥ pārtha yogaṁ yuñjan mad-āśrayaḥ.* This indicates that one must execute devotional service under the guidance of a devotee or directly under the guidance of the Supreme Personality of Godhead. It is not possible, however, to train oneself without guidance from the spiritual master. Therefore, according to the instructions of Śrīla Rūpa Gosvāmī, the first business of a devotee is to accept a bona fide spiritual master who can train him to engage his various senses in rendering transcendental service to the Lord. The Lord also says in *Bhagavad-gītā* [[bg/7/1|(Bg. 7.1)]], *asaṁśayaṁ samagraṁ māṁ yathā jñāsyasi tac chṛṇu.* In other words, if one wants to understand the Supreme Personality of Godhead in completeness, one must follow the prescriptions given by Kṛṣṇa by following in the footsteps of Mahārāja Ambarīṣa. It is said, *hṛṣīkeṇa hṛṣīkeśa-sevanaṁ bhaktir ucyate*/ [[cc/madhya/19/170|[Cc. Madhya 19.170] ]] *bhakti* means to engage the senses in the service of the master of the senses, Kṛṣṇa, who is called Hṛṣīkeśa or Acyuta. These words are used in these verses. *Acyuta-sat-kathodaye, hṛṣīkeśa-padābhivandane.* The words Acyuta and Hṛṣīkeśa are also used in *Bhagavad-gītā. Bhagavad-gītā* is *kṛṣṇa-kathā* spoken directly by Kṛṣṇa, and *Śrīmad-Bhāgavatam* is also *kṛṣṇa-kathā* because everything described in the *Bhāgavatam* is in relationship with Kṛṣṇa.

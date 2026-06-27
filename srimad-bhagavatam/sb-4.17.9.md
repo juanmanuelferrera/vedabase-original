@@ -1,0 +1,13 @@
+### SB 4.17.9
+
+> maitreya uvāca
+> yadābhiṣiktaḥ pṛthur aṅga viprair
+> āmantrito janatāyāś ca pālaḥ
+> prajā niranne kṣiti-pṛṣṭha etya
+> kṣut-kṣāma-dehāḥ patim abhyavocan
+
+*maitreyaḥ uvāca*—the great sage Maitreya said; *yadā*—when; *abhiṣiktaḥ*—was enthroned; *pṛthuḥ*—King Pṛthu; *aṅga*—my dear Vidura; *vipraiḥ*—by the *brāhmaṇas*; *āmantritaḥ*—was declared; *janatāyāḥ*—of the people; *ca*—also; *pālaḥ*—the protector; *prajāḥ*—the citizens; *niranne*—being without food grains; *kṣiti-pṛṣṭhe*—the surface of the globe; *etya*—coming near; *kṣut*—by hunger; *kṣāma*—skinny; *dehāḥ*—their bodies; *patim*—to the protector; *abhyavocan*—they said.
+
+**The great sage Maitreya continued: My dear Vidura, at the time King Pṛthu was enthroned by the great sages and brāhmaṇas and declared to be the protector of the citizens, there was a scarcity of food grains. The citizens actually became skinny due to starvation. Therefore they came before the King and informed him of their real situation.**
+
+Information is given herein concerning the selection of the king by the brāhmaṇas. According to the varṇāśrama system, the brāhmaṇas are considered to be the heads of the society and therefore to be situated in the topmost social position. The varṇāśrama-dharma, the institution of four varṇas and four āśramas, is very scientifically designed. As stated in Bhagavad-gītā, varṇāśrama-dharma is not a man-made institution, but is God-made. In this narration it is clearly indicated that the brāhmaṇas used to control the royal power. When an evil king like Vena ruled, the brāhmaṇas would kill him through their brahminical powers and would select a proper ruler by testing his qualifications. In other words, the brāhmaṇas, the intelligent men or great sages, would control the monarchical powers. Here we have an indication of how the brāhmaṇas elected King Pṛthu to the throne as the protector of the citizens. The citizens, being skinny due to hunger, approached the King and informed him that necessary action should be taken. The structure of the varṇāśrama-dharma was so nice that the brāhmaṇas would guide the head of state. The head of state would then give protection to the citizens. The kṣatriyas would take charge of protecting the people in general, and under the protection of the kṣatriyas, the vaiśyas would protect the cows, produce food grains and distribute them. Śūdras, the working class, would help the higher three classes by manual labor. This is the perfect social system.

@@ -1,0 +1,12 @@
+### CC Adi 3.4
+
+> anarpita-carīṁ cirāt karuṇayāvatīrṇaḥ kalau
+> samarpayitum unnatojjvala-rasāṁ sva-bhakti-śriyam
+> hariḥ puraṭa-sundara-dyuti-kadamba-sandīpitaḥ
+> sadā hṛdaya-kandare sphuratu vaḥ śacī-nandanaḥ
+
+*anarpita*—not bestowed; *carīm*—having been formerly; *cirāt*—for a long time; *karuṇayā*—by causeless mercy; *avatīrṇaḥ*—descended; *kalau*—in the Age of Kali; *samarpayitum*—to bestow; *unnata*—elevated; *ujjvala-rasām*—the conjugal mellow; *sva-bhakti*—of His own service; *śriyam*—the treasure; *hariḥ*—the Supreme Lord; *puraṭa*—than gold; *sundara*—more beautiful; *dyuti*—of splendor; *kadamba*—with a multitude; *sandīpitaḥ*—illuminated; *sadā*—always; *hṛdaya-kandare*—in the cavity of the heart; *sphuratu*—let Him be manifest; *vaḥ*—your; *śacī-nandanaḥ*—the son of mother Śacī.
+
+**"May that Lord who is known as the son of Śrīmatī Śacīdevī be transcendentally situated in the innermost core of your heart. Resplendent with the radiance of molten gold, He has descended in the Age of Kali by His causeless mercy to bestow what no incarnation has ever offered before: the most elevated mellow of devotional service, the mellow of conjugal love."**
+
+This is a quotation from the *Vidagdha-mādhava,* a drama compiled and edited by Śrīla Rūpa Gosvāmī.

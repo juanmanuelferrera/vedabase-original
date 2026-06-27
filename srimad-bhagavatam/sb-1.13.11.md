@@ -1,0 +1,14 @@
+### SB 1.13.11
+
+> api naḥ suhṛdas tāta
+> bāndhavāḥ kṛṣṇa-devatāḥ
+> dṛṣṭāḥ śrutā vā yadavaḥ
+> sva-puryāṁ sukham āsate
+
+*api*—whether; *naḥ*—our; *suhṛdaḥ*—well-wishers; *tāta*—O my uncle; *bāndhavāḥ*—friends; *kṛṣṇa-devatāḥ*—those who are always rapt in the service of Lord Śrī Kṛṣṇa; *dṛṣṭāḥ*—by seeing them; *śrutāḥ*—or by hearing about them; *vā*—either; *yadavaḥ*—the descendants of Yadu; *sva-puryām*—along with their residential place; *sukham āsate*—if they are all happy.
+
+**My uncle, you must have visited Dvārakā. In that holy place there are our friends and well-wishers, the descendants of Yadu, who are always rapt in the service of the Lord Śrī Kṛṣṇa. You might have seen them or heard about them. Are they all living happily in their abodes?**
+
+The particular word Kṛṣṇa-devatāḥ, i.e., those who are always rapt in the service of Lord Kṛṣṇa, is significant. The Yadavas and the Pāṇḍavas, who were always rapt in the thought of the Lord Kṛṣṇa and His different transcendental activities, were all pure devotees of the Lord like Vidura. Vidura left home in order to devote himself completely to the service of the Lord, but the Pāṇḍavas and the Yādavas were always rapt in the thought of Lord Kṛṣṇa. Thus there is no difference in their pure devotional qualities. Either remaining at home or leaving home, the real qualification of a pure devotee is to become rapt in the thought of Kṛṣṇa favorably, ie., knowing well that Lord Kṛṣṇa is the Absolute Personality of Godhead. Kaṁsa, Jarāsandha, Śiśupāla and other demons like them were also always rapt in the thought of Lord Kṛṣṇa, but they were absorbed in a different way, namely unfavorably, or thinking Him to be a powerful man only. Therefore, Kaṁsa and Śiśupāla are not on the same level of pure devotees like Vidura, the Pāṇḍavas or the Yādavas.
+
+Mahārāja Yudhiṣṭhira was also always rapt in the thought of Lord Kṛṣṇa and His associates at Dvārakā. Otherwise he would not have asked all about them from Vidura. Mahārāja Yudhiṣṭhira is, therefore, on the same level of devotion as Vidura, although engaged in the state affairs of the kingdom of the world.

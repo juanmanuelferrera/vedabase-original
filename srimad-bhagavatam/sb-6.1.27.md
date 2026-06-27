@@ -1,0 +1,27 @@
+### SB 6.1.27
+
+> sa evaṁ vartamāno 'jño
+> mṛtyu-kāla upasthite
+> matiṁ cakāra tanaye
+> bāle nārāyaṇāhvaye
+
+*saḥ*—that Ajāmila; *evam*—thus; *vartamānaḥ*—living; *ajñaḥ*—foolish; *mṛtyu-kāle*—when the time of death; *upasthite*—arrived; *matim cakāra*—concentrated his mind; *tanaye*—on his son; *bāle*—the child; *nārāyaṇa-āhvaye*—whose name was Nārāyaṇa.
+
+**When the time of death arrived for the foolish Ajāmila, he began thinking exclusively of his son Nārāyaṇa.**
+
+In the Second Canto of the *Śrīmad-Bhāgavatam* (2.1.6) Śukadeva Gosvāmī says:
+
+> etāvān sāṅkhya-yogābhyāṁ
+> svadharma-pariniṣṭhayā
+> janma-lābhaḥ paraḥ puṁsām
+> ante nārāyaṇa-smṛtiḥ
+
+"The highest perfection of human life, achieved either by complete knowledge of matter and spirit, by acquirement of mystic powers, or by perfect discharge of one's occupational duty, is to remember the Personality of Godhead at the end of life." Somehow or other, Ajāmila consciously or unconsciously chanted the name of Nārāyaṇa at the time of death (*ante nārāyaṇa-smṛtiḥ*), and therefore he became all-perfect simply by concentrating his mind on the name of Nārāyaṇa.
+
+It may also be concluded that Ajāmila, who was the son of a *brāhmaṇa,* was accustomed to worshiping Nārāyaṇa in his youth because in every *brāhmaṇa's* house there is worship of the *nārāyaṇa-śilā.* This system is still present in India; in a rigid *brāhmaṇa's* house, there is *nārāyaṇa-sevā,* worship of Nārāyaṇa. Therefore, although the contaminated Ajāmila was calling for his son, by concentrating his mind on the holy name of Nārāyaṇa he remembered the Nārāyaṇa he had very faithfully worshiped in his youth.
+
+In this regard Śrīla Śrīdhara Svāmī expressed his verdict as follows: *etac ca tad-upalālanādi-śrī-nārāyaṇa-namoccāraṇa-māhātmyena tad-bhaktir evābhūd iti siddhāntopayogitvenāpi draṣṭavyam.* "According to the *bhaktisiddhānta,* it is to be analyzed that because Ajāmila constantly chanted his son's name, Nārāyaṇa, he was elevated to the platform of *bhakti,* although he did not know it." Similarly, Śrīla Vīrarāghava Ācārya gives this opinion: *evaṁ vartamānaḥ sa dvijaḥ mṛtyu-kāle upasthite satyajño nārāyaṇākhye putra eva matiṁ cakāra matim āsaktām akarod ity arthaḥ.* "Although at the time of death he was chanting the name of his son, he nevertheless concentrated his mind upon the holy name of Nārāyaṇa." Śrīla Vijayadhvaja Tīrtha gives a similar opinion:
+
+> mṛtyu-kāle deha-viyoga-lakṣaṇa-kāle mṛtyoḥ sarva-doṣa-pāpa-harasya harer anugrahāt kāle datta-jñāna-lakṣaṇe upasthite hṛdi prakāśite tanaye pūrṇa-jñāne bāle pañca-varṣa-kalpe prādeśa-mātre nārāyaṇāhvaye mūrti-viśeṣe matiṁ smaraṇa-samarthaṁ cittaṁ cakāra bhaktyāsmarad ity arthaḥ.
+
+Directly or indirectly, Ajāmila factually remembered Nārāyaṇa at the time of death (*ante nārāyaṇa-smṛtiḥ* [[sb/2/1/6|[SB 2.1.6] ]]).

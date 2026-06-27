@@ -1,0 +1,15 @@
+### SB 2.4.1
+
+> sūta uvāca
+> vaiyāsaker iti vacas
+> tattva-niścayam ātmanaḥ
+> upadhārya matiṁ kṛṣṇe
+> auttareyaḥ satīṁ vyadhāt
+
+*sūtaḥ uvāca*—Sūta Gosvāmī said; *vaiyāsakeḥ*—of Śukadeva Gosvāmī; *iti*—thus; *vacaḥ*—speeches; *tattva-niścayam*—that which verifies the truth; *ātmanaḥ*—in the self; *upadhārya*—just having realized; *matim*—concentration of the mind; *kṛṣṇe*—unto Lord Kṛṣṇa; *auttareyaḥ*—the son of Uttarā; *satīm*—chaste; *vyadhāt*—applied.
+
+**Sūta Gosvāmī said: Mahārāja Parīkṣit, the son of Uttarā, after hearing the speeches of Śukadeva Gosvāmī, which were all about the truth of the self, applied his concentration faithfully upon Lord Kṛṣṇa.**
+
+The word satīm is very significant. This means existing and chaste. And both imports are perfectly applicable in the case of Mahārāja Parīkṣit. The whole Vedic adventure is to draw one's attention entirely unto the lotus feet of Lord Kṛṣṇa without any diversion, as it is instructed in the Bhagavad-gītā (Bg. 15.15). Fortunately Mahārāja Parīkṣit had already been attracted to the Lord from the very beginning of his body, in the womb of his mother. In the womb of his mother, he was struck by the brahmāstra atomic bomb released by Aśvatthāmā, but by the grace of the Lord he was saved from being burnt by the fiery weapon, and since then the King continually concentrated his mind upon Lord Kṛṣṇa, which made him perfectly chaste in devotional service. So by natural sequence he was a chaste devotee of the Lord, and when he further heard from Śrīla Śukadeva Gosvāmī that one should worship the Lord only and no one else, even though full of all desires or desireless, his natural affection for Kṛṣṇa was strengthened. We have already discussed these topics in this connection.
+
+To become a pure devotee of Lord Kṛṣṇa, two things are very much essential, namely having a chance of being born in the family of a devotee and having the blessings of a bona fide spiritual master. By the grace of Lord Kṛṣṇa, Parīkṣit Mahārāja had both opportunities. He was born in a family of devotees like the Pāṇḍavas, and just to continue the dynasty of the Pāṇḍavas, Mahārāja Parīkṣit was specifically saved by the Lord just to show special favor to the Pāṇḍavas, and later on, by the arrangement of the Lord, Mahārāja Parīkṣit was cursed by the boy of a brāhmaṇa and was able to get the association of a spiritual master like Śukadeva Gosvāmī. In the Caitanya-caritāmṛta it is said that a fortunate person, by the mercy of the spiritual master and Lord Kṛṣṇa, achieves the path of devotional service. This was perfectly applicable in the case of Mahārāja Parīkṣit. By way of being born in the family of devotees, he automatically came in touch with Kṛṣṇa, and after being so contacted he constantly remembered Him. Consequently Lord Kṛṣṇa gave the King a further chance of development in devotional service by introducing him to Śukadeva Gosvāmī, a stalwart devotee of the Lord with perfect knowledge in self-realization. And by hearing from a bona fide spiritual master, he was perfectly able to concentrate his chaste mind further upon Lord Kṛṣṇa, as a matter of course.

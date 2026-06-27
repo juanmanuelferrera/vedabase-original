@@ -1,0 +1,27 @@
+### SB 8.6.8
+
+> śrī-brahmovāca
+> ajāta-janma-sthiti-saṁyamāyā-
+> guṇāya nirvāṇa-sukhārṇavāya
+> aṇor aṇimne 'parigaṇya-dhāmne
+> mahānubhāvāya namo namas te
+
+*śrī-brahmā uvāca*—Lord Brahmā said; *ajāta-janma-sthiti-saṁyamāya*—unto the Supreme Personality of Godhead, who is never born but whose appearance in different incarnations never ceases; *aguṇāya*—never affected by the material modes of nature (*sattva-guṇa, rajo-guṇa* and *tamo-guṇa*); *nirvāṇa-sukha-arṇavāya*—unto the ocean of eternal bliss, beyond material existence; *aṇoḥ aṇimne*—smaller than the atom; *aparigaṇya-dhāmne*—whose bodily features are never to be conceived by material speculation; *mahā-anubhāvāya*—whose existence is inconceivable; *namaḥ*—offering our obeisances; *namaḥ*—again offering our obeisances; *te*—unto You.
+
+**Lord Brahmā said: Although You are never born, Your appearance and disappearance as an incarnation never cease. You are always free from the material qualities, and You are the shelter of transcendental bliss resembling an ocean. Eternally existing in Your transcendental form, You are the supreme subtle of the most extremely subtle. We therefore offer our respectful obeisances unto You, the Supreme, whose existence is inconceivable.**
+
+The Lord says in *Bhagavad-gītā* [[bg/4/6|(Bg. 4.6)]]:
+
+> ajo 'pi sann avyayātmā
+> bhūtānām īśvaro 'pi san
+> prakṛtiṁ svām adhiṣṭhāya
+> sambhavāmy ātma-māyayā
+
+"Although I am unborn and My transcendental body never deteriorates, and although I am the Lord of all sentient beings, I still appear in every millennium in My original transcendental form." In the following verse in *Bhagavad-gītā* [[bg/4/7|(Bg. 4.7)]], the Lord says:
+
+> yadā yadā hi dharmasya
+> glānir bhavati bhārata
+> abhyutthānam adharmasya
+> tadātmānaṁ sṛjāmy aham
+
+"Whenever and wherever there is a decline in religious practice, O descendant of Bharata, and a predominant rise of irreligion—at that time descend Myself." Thus although the Supreme Lord is unborn, there is no cessation to His appearance in different forms as incarnations like Lord Kṛṣṇa and Lord Rāma. Since His incarnations are eternal, the various activities performed by these incarnations are also eternal. The Supreme Personality of Godhead does not appear because He is forced to do so by *karma* like ordinary living entities who are forced to accept a certain type of body. It is to be understood that the Lord's body and activities are all transcendental, being free from the contamination of the material modes of nature. These pastimes are transcendental bliss to the Lord. The word *aparigaṇya-dhāmne* is very significant. There is no limit to the Lord's appearance in different incarnations. All of these incarnations are eternal, blissful and full of knowledge.

@@ -1,0 +1,12 @@
+### SB 8.3.32
+
+> so 'ntaḥ-sarasy urubalena gṛhīta ārto
+> dṛṣṭvā garutmati hariṁ kha upātta-cakram
+> utkṣipya sāmbuja-karaṁ giram āha kṛcchrān
+> nārāyaṇākhila-guro bhagavan namas te
+
+*saḥ*—he (Gajendra); *antaḥ-sarasi*—in the water; *uru-balena*—with great force; *gṛhītaḥ*—who had been captured by the crocodile; *ārtaḥ*—and severely suffering; *dṛṣṭvā*—upon seeing; *garutmati*—on the back of Garuḍa; *harim*—the Lord; *khe*—in the sky; *upātta-cakram*—wielding His disc; *utkṣipya*—raising; *sa-ambuja-karam*—his trunk, along with a lotus flower; *giram-āha*—uttered the words; *kṛcchrāt*—with great difficulty (because of his precarious position); *nārāyaṇa*—O my Lord Nārāyaṇa; *akhila-guro*—O universal Lord; *bhagavan*—O Supreme Personality of Godhead; *namaḥ te*—I offer my respectful obeisances unto You.
+
+**Gajendra had been forcefully captured by the crocodile in the water and was feeling acute pain, but when he saw that Nārāyaṇa, wielding His disc, was coming in the sky on the back of Garuḍa, he immediately took a lotus flower in his trunk, and with great difficulty due to his painful condition, he uttered the following words: "O my Lord, Nārāyaṇa, master of the universe, O Supreme Personality of Godhead, I offer my respectful obeisances unto You."**
+
+The King of the elephants was so very eager to see the Supreme Personality of Godhead that when he saw the Lord coming in the sky, with great pain and in a feeble voice he offered respect to the Lord. A devotee does not consider a dangerous position to be dangerous, for in such a dangerous position he can fervently pray to the Lord in great ecstasy. Thus a devotee regards danger as a good opportunity. *Tat te'nukampāṁ susamīkṣamāṇaḥ.* When a devotee is in great danger, he sees that danger to be the great mercy of the Lord because it is an opportunity to think of the Lord very sincerely and with undiverted attention. *Tat te 'nukampāṁ susamīkṣamāṇo bhuñjāna evātma-kṛtaṁ vipākam* [[sb/10/14/8|(SB 10.14.8)]]. He does not accuse the Supreme Personality of Godhead for having let His devotee fall into such a dangerous condition. Rather, he considers that dangerous condition to be due to his past misdeeds and takes it as an opportunity to pray to the Lord and offer thanks for having been given such an opportunity. When a devotee lives in this way, his salvation—his going back home, back to Godhead—is guaranteed. We can see this to be true from the example of Gajendra, who anxiously prayed to the Lord and thus received an immediate chance to return home, back to Godhead.

@@ -1,0 +1,7 @@
+### SB 5.9.19
+
+> evam eva khalu mahad-abhicārāti-kramaḥ kārtsnyenātmane phalati.
+
+*evam eva*—in this way; *khalu*—indeed; *mahat*—to great personalities; *abhicāra*—in the form of envy; *ati-kramaḥ*—the limit of offense; *kārtsnyena*—always; *ātmane*—unto oneself; *phalati*—gives the result.
+
+**When an envious person commits an offense before a great personality, he is always punished in the way mentioned above.**

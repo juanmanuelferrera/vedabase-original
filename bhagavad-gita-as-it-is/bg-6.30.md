@@ -1,0 +1,23 @@
+### Bg 6.30
+
+> yo māṁ paśyati sarvatra
+> sarvaṁ ca mayi paśyati
+> tasyāhaṁ na praṇaśyāmi
+> sa ca me na praṇaśyati
+
+*yaḥ*—whoever; *mām*—Me; *paśyati*—sees; *sarvatra*—everywhere; *sarvam*—everything; *ca*—and; *mayi*—in Me; *paśyati*—he sees; *tasya*—his; *aham*—I; *na*—not; *praṇaśyāmi*—am lost; *saḥ*—he; *ca*—also; *me*—to Me; *na*—nor; *praṇaśyati*—is lost.
+
+**For one who sees Me everywhere and sees everything in Me, I am never lost, nor is he ever lost to Me.**
+
+A person in Kṛṣṇa consciousness certainly sees Lord Kṛṣṇa everywhere, and he sees everything in Kṛṣṇa. Such a person may appear to see all separate manifestations of the material nature, but in each and every instance he is conscious of Kṛṣṇa, knowing that everything is the manifestation of Kṛṣṇa's energy. Nothing can exist without Kṛṣṇa, and Kṛṣṇa is the Lord of everything-this is the basic principle of Kṛṣṇa consciousness.
+
+Kṛṣṇa consciousness is the development of love of Kṛṣṇa-a position transcendental even to material liberation. It is the stage beyond self-realization at which the devotee becomes one with Kṛṣṇa in the sense that Kṛṣṇa becomes everything for the devotee, and the devotee becomes full in loving Kṛṣṇa. An intimate relationship between the Lord and the devotee then exists. In that stage, the living entity attains his immortality. Nor is the Personality of Godhead ever out of the sight of the devotee. To merge in Kṛṣṇa is spiritual annihilation. A devotee takes no such risk. It is stated in the *Brahma-saṁhitā:*
+
+> premāñjana-cchurita-bhakti-vilocanena
+> santaḥ sadaiva hṛdayeṣu vilokayanti
+> yaṁ śyāmasundaram acintya-guṇa-svarūpaṁ
+> govindam ādi-puruṣaṁ tam ahaṁ bhajāmi
+
+"I worship the primeval Lord, Govinda, who is always seen by the devotee whose eyes are anointed with the pulp of love. He is seen in His eternal form of Śyāmasundara situated within the heart of the devotee." (Bs. 5.38)
+
+At this stage, Lord Kṛṣṇa never disappears from the sight of the devotee, nor does the devotee ever lose sight of the Lord. In the case of a *yogī* who sees the Lord as Paramātmā within the heart, the same applies. Such a *yogī* turns into a pure devotee and cannot bear to live for a moment without seeing the Lord within himself.

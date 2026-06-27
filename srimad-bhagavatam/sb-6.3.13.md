@@ -1,0 +1,23 @@
+### SB 6.3.13
+
+> yo nāmabhir vāci janaṁ nijāyāṁ
+> badhnāti tantryām iva dāmabhir gāḥ
+> yasmai baliṁ ta ime nāma-karma-
+> nibandha-baddhāś cakitā vahanti
+
+*yaḥ*—He who; *nāmabhiḥ*—by different names; *vāci*—to the Vedic language; *janam*—all people; *nijāyām*—which has emanated from Himself; *badhnāti*—binds; *tantryām*—to a rope; *iva*—like; *dāmabhiḥ*—by cords; *gāḥ*—bulls; *yasmai*—unto whom; *balim*—a small presentation of taxes; *te*—all of them; *ime*—these; *nāma-karma*—of names and different activities; *nibandha*—by the obligations; *baddhāḥ*—bound; *cakitāḥ*—being fearful; *vahanti*—carry.
+
+**Just as the driver of a bullock cart ties ropes through the nostrils of his bulls to control them, the Supreme Personality of Godhead binds all men through the ropes of His words in the Vedas, which set forth the names and activities of the distinct orders of human society [brāhmaṇa, kṣatriya, vaiśya and śūdra]. In fear, the members of these orders all worship the Supreme Lord by offering Him presentations according to their respective activities.**
+
+In this material world, everyone is conditioned, regardless of who he is. One may be a human being, a demigod or an animal, tree or plant, but everything is controlled by the laws of nature, and behind this natural control is the Supreme Personality of Godhead. This is confirmed by *Bhagavad-gītā* [[bg/9/10|(Bg. 9.10)]], wherein Kṛṣṇa says, *mayādhyakṣeṇa prakṛtiḥ sūyate sa-carācaram:* "The material nature is working under My direction and producing all moving and nonmoving beings." Thus Kṛṣṇa is behind the natural machine, which works under His control.
+
+Apart from other living entities, the living being in the human form of body is systematically controlled by the Vedic injunctions in terms of the divisions of *varṇa* and *āśrama.* A human being is expected to follow the rules and regulations of *varṇa* and *āśrama;* otherwise he cannot escape punishment by Yamarāja. The point is that every human being is expected to elevate himself to the position of a *brāhmaṇa,* the most intelligent man, and then one must transcend that position to become a Vaiṣṇava. This is the perfection of life. The *brāhmaṇa, kṣatriya, vaiśya* and *śūdra* can elevate themselves by worshiping the Lord according to their activities (*sve sve karmaṇy abhirataḥ saṁsiddhiṁ labhate naraḥ*). The divisions of *varṇa* and *āśrama* are necessary to insure the proper execution of duties and peaceful existence for everyone, but everyone is directed to worship the Supreme Lord, who is all-pervading (*yena sarvam idaṁ tatam*). The Supreme Lord exists vertically and horizontally (*otaṁ protam*), and therefore if one follows the Vedic injunctions by worshiping the Supreme Lord according to one's ability, his life will be perfect. As stated in *Śrīmad-Bhāgavatam* (1.2.13):
+
+> ataḥ pumbhir dvija-śreṣṭhā
+> varṇāśrama-vibhāgaśaḥ
+> svanuṣṭhitasya dharmasya
+> saṁsiddhir hari-toṣaṇam
+
+"O best among the twice-born, it is therefore concluded that the highest perfection one can achieve, by discharging his prescribed duties [*dharma*] according to caste divisions and orders of life, is to please the Lord Hari." The *varṇāśrama* institution offers the perfect process for making one eligible to return home, back to Godhead, because the aim of every *varṇa* and *āśrama* is to please the Supreme Lord. One can please the Lord under the direction of a bona fide spiritual master. and if one does so his life is perfect. The Supreme Lord is worshipable. and everyone worships Him directly or indirectly. Those who worship Him directly get the results of liberation quickly, whereas the liberation of those who serve Him indirectly is delayed.
+
+The words *nāmabhir vāci* are very important. In the *varṇāśrama* institution, there are different names—*brāhmaṇa, kṣatriya, vaiśya, śūdra, brahmacārī, gṛhastha, vānaprastha* and *sannyāsī.* The *vāk,* or Vedic injunctions, give directions for all these divisions. Everyone is expected to offer obeisances to the Supreme Lord and perform duties as indicated in the *Vedas.*

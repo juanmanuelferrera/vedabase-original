@@ -1,0 +1,22 @@
+### SB 4.25.55
+
+> sa yarhy antaḥpura-gato
+> viṣūcīna-samanvitaḥ
+> mohaṁ prasādaṁ harṣaṁ vā
+> yāti jāyātmajodbhavam
+
+*saḥ*—he; *yarhi*—when; *antaḥ-pura*—to his private home; *gataḥ*—used to go; *viṣūcīna*—by the mind; *samanvitaḥ*—accompanied; *moham*—illusion; *prasādam*—satisfaction; *harṣam*—happiness; *vā*—or; *yāti*—used to enjoy; *jāyā*—wife; *ātma-ja*—children; *udbhavam*—produced by them.
+
+**Sometimes he used to go to his private home with one of his chief servants, the mind, who was named Viṣūcīna. At that time, illusion, satisfaction and happiness used to be produced from his wife and children.**
+
+According to the Vedic conclusion, one's self is situated within the heart. As stated in Vedic language, hṛdy ayam ātmā pratiṣṭhitaḥ: the self is situated within the heart. In the material condition, however, the spirit soul is covered by the material qualities—namely goodness, passion and darkness—and within the heart these three qualities react. For instance, when one is in goodness, he feels happiness; when one is in passion, he feels satisfaction through material enjoyment; and when one is in darkness, he feels bewilderment. All these activities are of the mind, and they function on the platform of thinking, feeling and willing.
+
+When the living entity is encircled by wife, children and home, he acts on the mental plane. Sometimes he is very happy, sometimes he is very much satisfied, sometimes he is not satisfied, and sometimes he is bewildered. Bewilderment is called moha, illusion. Illusioned by society, friendship and love, the living entity thinks that his so-called society, friendship and love, nationality, community, etc. will give him protection. He does not know that after death he will be thrown into the hands of a very strong material nature that will force him to accept a certain type of body according to his present work. This body may not even be a human body. Thus the living entity's feeling of security in this life in the midst of society, wife and friendship is nothing but illusion. All living entities encaged in various material bodies are illusioned by the present activities of material enjoyment. They forget their real business, which is to go back home, back to Godhead.
+
+Everyone who is not in Kṛṣṇa consciousness must be considered to be in illusion. One's so-called feelings of happiness and satisfaction resulting from material things are also illusions. Factually neither society, friendship, love nor anything else can save one from the onslaught of the external energy, which is symptomized by birth, death, old age and disease. To get even one living entity out of the illusory condition is very difficult; therefore Lord Kṛṣṇa says in Bhagavad-gītā :
+
+daivī hy eṣā guṇamayī mama māyā duratyayā mām eva ye prapadyante māyām etāṁ taranti te
+
+"This divine energy of Mine, consisting of the three modes of material nature, is difficult to overcome. But those who have surrendered unto Me can easily cross beyond it." (Bg. 7.14)
+
+Therefore, unless one surrenders completely at the lotus feet of Kṛṣṇa, he cannot get out of the entanglement of the three modes of material nature.

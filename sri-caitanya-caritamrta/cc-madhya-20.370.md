@@ -1,0 +1,8 @@
+### CC Madhya 20.370
+
+> vaikuṇṭhe 'śeṣa'—dharā dharaye 'ananta'
+> ei mukhyāveśāvatāra—vistāre nāhi anta
+
+*vaikuṇṭhe*—in the spiritual world; *śeṣa*—Lord Śeṣa; *dharā dharaye*—carries innumerable planets; *ananta*—Ananta; *ei*—these; *mukhya-āveśa-avatāra*—primary directly empowered incarnations; *vistāre*—in expanding them; *nāhi*—there is not; *anta*—limit.
+
+**"Lord Śeṣa in the spiritual world of Vaikuṇṭha and, in the material world, Lord Ananta, who carries innumerable planets on His hood, are two primary empowered incarnations. There is no need to count the others, for they are unlimited.**

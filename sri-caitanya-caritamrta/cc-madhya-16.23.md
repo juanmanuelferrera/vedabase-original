@@ -1,0 +1,8 @@
+### CC Madhya 16.23
+
+> śivānandera bālaka, nāma—caitanya-dāsa
+> teṅho caliyāche prabhure dekhite ullāsa
+
+*śivānandera bālaka*—the son of Śivānanda; *nāma*—named; *caitanya-dāsa*—Caitanya dāsa; *teṅho*—he; *caliyāche*—was going; *prabhure*—Śrī Caitanya Mahāprabhu; *dekhite*—to see; *ullāsa*—jubilantly.
+
+**Caitanya dāsa, the son of Śivānanda Sena, also jubilantly accompanied them as they went to see the Lord.**

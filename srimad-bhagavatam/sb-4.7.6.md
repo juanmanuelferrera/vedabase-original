@@ -1,0 +1,15 @@
+### SB 4.7.6
+
+> maitreya uvāca
+> tadā sarvāṇi bhūtāni
+> śrutvā mīḍhuṣṭamoditam
+> parituṣṭātmabhis tāta
+> sādhu sādhv ity athābruvan
+
+*maitreyaḥ*—the sage Maitreya; *uvāca*—said; *tadā*—at that time; *sarvāṇi*—all; *bhūtāni*—personalities; *śrutvā*—after hearing; *mīḍhuḥ-tama*—the best of the benedictors (Lord Śiva); *uditam*—spoken by; *parituṣṭa*—being satisfied; *ātmabhiḥ*—by heart and soul; *tāta*—my dear Vidura; *sādhu sādhu*—well done, well done; *iti*—thus; *atha abruvan*—as we have said.
+
+**The great sage Maitreya said: My dear Vidura, all the personalities present were very much satisfied in heart and soul upon hearing the words of Lord Śiva, who is the best among the benedictors.**
+
+In this verse Lord Śiva is described as mīḍhuṣṭama, the best of the benedictors. He is also known as Āśutoṣa, which indicates that he is very quickly satisfied and very quickly angered. It is said in Bhagavad-gītā that less intelligent persons go to the demigods for material benedictions. In this connection, people generally go to Lord Śiva, and because he is always quickly satisfied and gives benedictions to his devotees without consideration, he is called mīḍhuṣṭama, or the best of the benedictors. Materialistic persons are always anxious to get material profit, but they are not serious about spiritual profit.
+
+Sometimes, of course, it so happens that Lord Śiva becomes the best benedictor in spiritual life. It is said that once a poor brāhmaṇa worshiped Lord Śiva for a benediction, and Lord Śiva advised the devotee to go to see Sanātana Gosvāmī. The devotee went to Sanātana Gosvāmī and informed him that Lord Śiva had advised him to seek out the best benediction from him (Sanātana). Sanātana had a touchstone with him, which he kept with the garbage. On the request of the poor brāhmaṇa, Sanātana Gosvāmī gave him the touchstone, and the brāhmaṇa was very happy to have it. He now could get as much gold as he desired simply by touching the touchstone to iron. But after he left Sanātana, he thought, "If a touchstone is the best benediction, why has Sanātana Gosvāmī kept it with the garbage?" He therefore returned and asked Sanātana Gosvāmī, "Sir, if this is the best benediction, why did you keep it with the garbage?" Sanātana Gosvāmī then informed him, "Actually, this is not the best benediction. But are you prepared to take the best benediction from me?" The brāhmaṇa said, "Yes, sir. Lord Śiva has sent me to you for the best benediction." Then Sanātana Gosvāmī asked him to throw the touchstone in the water nearby and then come back. The poor brāhmaṇa did so, and when he returned, Sanātana Gosvāmī initiated him with the Hare Kṛṣṇa mantra. Thus by the benediction of Lord Śiva the brāhmaṇa got the association of the best devotee of Lord Kṛṣṇa and was thus initiated in the mahāmantra, Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.

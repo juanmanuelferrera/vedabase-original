@@ -1,0 +1,8 @@
+### CC Madhya 10.97
+
+> prabhu kahe,-tomā-saṅge rahite vāñchā haya
+> more kṛpā kari' kara nīlādri āśraya
+
+*prabhu kahe*—Śrī Caitanya Mahāprabhu said; *tomā-saṅge*—with you; *rahite*—to stay; *vāñchā haya*—I desire; *more*—unto Me; *kṛpā kari'*—doing a favor; *kara*—accept; *nīlādri*—at Jagannātha Purī; *āśraya*—shelter.
+
+**Śrī Caitanya Mahāprabhu said, "Please stay with Me and thus show Me favor, accepting the shelter of Jagannātha Purī."**

@@ -1,0 +1,12 @@
+### SB 2.6.17
+
+> sva-dhiṣṇyaṁ pratapan prāṇo
+> bahiś ca pratapaty asau
+> evaṁ virājaṁ pratapaṁs
+> tapaty antar bahiḥ pumān
+
+*sva-dhiṣṇyam*—radiation; *pratapan*—by expansion; *prāṇaḥ*—living energy; *bahiḥ*—external; *ca*—also; *pratapati*—illuminated; *asau*—the sun; *evam*—in the same way; *virājam*—the universal form; *pratapan*—by expansion of; *tapati*—enlivens; *antaḥ*—internally; *bahiḥ*—externally; *pumān*—the Supreme Personality.
+
+**As the sun is illuminated both internally and externally by expanding its radiation, similarly the Supreme Personality of Godhead, by expanding His universal form, maintains everything in the creation both internally and externally.**
+
+The universal form of the Lord, or the impersonal feature of the Lord known as brahmajyoti, is clearly explained here, compared to the radiation of the sun. The sunshine may expand all over the universe, but the source of the sunshine, namely the sun planet or the deity known as the Sūryanārāyaṇa, is the basis of such radiation. Similarly, the Supreme Personality of Godhead Lord Kṛṣṇa is the basis of the impersonal brahmajyoti radiation, or the impersonal feature of the Lord. This is confirmed in the Bhagavad-gītā (14.27). So the universal form of the Lord is the secondary imagination of the impersonal form of the Lord, but the primary form of the Lord is Śyāmasundara, with two hands, playing on His eternal flute. Seventy-five percent of the expansive radiation of the Lord is manifested in the spiritual sky (tripād-vibhūti), and twenty-five percent of His personal radiation comprehends the entire expansion of the material universes. This is also explained and stated in the Bhagavad-gītā (10.42). Thus the seventy-five percent expansion of His radiation is called His internal energy, whereas the twenty-five percent expansion is called the external energy of the Lord. The living entities, who are residents of the spiritual as well as the material expansions, are His marginal energy (taṭastha-śakti), and they are at liberty to live in either of the energies, external or internal. Those who live within the spiritual expansion of the Lord are called liberated souls, whereas the residents of the external expansion are called the conditioned souls. We can just make an estimate of the number of the residents of the internal expansions in comparison with the number of residents in the external energy and may easily conclude that the liberated souls are far more numerous than the conditioned souls.

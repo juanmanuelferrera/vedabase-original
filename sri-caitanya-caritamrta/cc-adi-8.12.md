@@ -1,0 +1,10 @@
+### CC Adi 8.12
+
+> hena kṛpāmaya caitanya nā bhaje yei jana
+> sarvottama ha-ileo tāre asure gaṇana
+
+*hena*—such; *kṛpāmaya*—merciful; *caitanya*—Lord Srī Caitanya; *nā*—does not; *bhaje*—worship; *yei*—one; *jana*—person; *sarvottama*—supreme; *ha-ileo*—in spite of his being; *tāre*—unto him; *asure*—among the demons; *gaṇana*—the calculation.
+
+**One who does not show respect unto this merciful Lord, Caitanya Mahāprabhu, or does not worship Him should be considered a demon, even if he is very exalted in human society.**
+
+Śrīla Bhaktisiddhānta Sarasvatī Mahārāja says in this connection: "O living entities, simply engage yourselves in Kṛṣṇa consciousness. This is the message of Śrī Caitanya Mahāprabhu." Lord Caitanya preached this cult, instructing the philosophy of Kṛṣṇa consciousness in His eight verses, or *Śikṣāṣṭaka,* and He said, *ihā haite sarva-siddhi haibe tomāra:* "By chanting the Hare Kṛṣṇa *mantra,* one will get all perfection in life." Therefore one who does not show Him respect or cannot appreciate His mercy despite all these merciful gestures is still an *asura,* or opponent of bona fide devotional service to Lord Viṣṇu, even though he is very exalted in human society. The word *asura* refers to one who is against devotional service to the Supreme Personality of Godhead, Viṣṇu. It should be noted that unless one worships Śrī Caitanya Mahāprabhu it is useless to become a devotee of Kṛṣṇa, and unless one worships Kṛṣṇa it is also useless to become a devotee of Śrī Caitanya Mahāprabhu. Such devotional service is to be understood to be a product of Kali-yuga. Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura remarks in this connection that atheist *smārtas,* or worshipers of the five kinds of demigods, worship Lord Viṣṇu for a little satisfaction in material success but have no respect for Śrī Caitanya Mahāprabhu. Thinking Him to be one of the ordinary living entities, they discriminate between Gaurasundara and Śrī Kṛṣṇa. Such understanding is also demoniac and is against the conclusion of the *ācāryas.* Such a conclusion is a product of Kali-yuga.

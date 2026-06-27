@@ -1,0 +1,14 @@
+### Bg 1.26
+
+> tatrāpaśyat sthitān pārthaḥ
+> pitṝn atha pitāmahān
+> ācāryān mātulān bhrātṝn
+> putrān pautrān sakhīṁs tathā
+> śvaśurān suhṛdaś caiva
+> senayor ubhayor api
+
+*tatra*—there; *apaśyat*—he could see; *sthitān*—standing; *pārthaḥ*—Arjuna; *pitṝn*—fathers; *atha*—also; *pitāmahān*—grandfathers; *ācāryān*—teachers; *mātulān*—maternal uncles; *bhrātṝn*—brothers; *putrān*—sons; *pautrān*—grandsons; *sakhīn*—friends; *tathā*—too; *śvaśurān*—fathers-in-law; *suhṛdaḥ*—wellwishers; *ca*—also; *eva*—certainly; *senayoḥ*—of the armies; *ubhayoḥ*—of both parties; *api*—including.
+
+**There Arjuna could see, within the midst of the armies of both parties, his fathers, grandfathers, teachers, maternal uncles, brothers, sons, grandsons, friends, and also his father-in-law and well-wishers—all present there.**
+
+On the battlefield Arjuna could see all kinds of relatives. He could see persons like Bhūriśravā, who were his father's contemporaries, grandfathers Bhīṣma and Somadatta, teachers like Droṇācārya and Kṛpācārya, maternal uncles like Śalya and Śakuni, brothers like Duryodhana, sons like Lakṣmaṇa, friends like Aśvatthāmā, well-wishers like Kṛtavarmā, etc. He could see also the armies which contained many of his friends.

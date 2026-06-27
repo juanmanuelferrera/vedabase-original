@@ -1,0 +1,19 @@
+### SB 5.1.16
+
+> mukto 'pi tāvad bibhṛyāt sva-deham
+> ārabdham aśnann abhimāna-śūnyaḥ
+> yathānubhūtaṁ pratiyāta-nidraḥ
+> kiṁ tv anya-dehāya guṇān na vṛṅkte
+
+*muktaḥ*—a liberated person; *api*—even; *tāvat*—so long; *bibhṛyāt*—must maintain; *sva-deham*—his own body; *ārabdham*—obtained as a result of past activity; *aśnan*—accepting; *abhimāna-śūnyaḥ*—without erroneous conceptions; *yathā*—as; *anubhūtam*—what was perceived; *pratiyāta-nidraḥ*—one who has awakened from sleep; *kim tu*—but; *anya-dehāya*—for another material body; *guṇān*—the material qualities; *na*—never; *vṛṅkte*—enjoys.
+
+**Even if one is liberated, he nevertheless accepts the body he has received according to his past karma. Without misconceptions, however, he regards his enjoyment and suffering due to that karma the way an awakened person regards a dream he had while sleeping. He thus remains steadfast and never works to achieve another material body under the influence of the three modes of material nature.**
+
+The difference between a liberated and conditioned soul is that the conditioned soul is under the concept of bodily life, whereas a liberated person knows that he is not the body but a spirit, different from the body. Priyavrata might have thought that although a conditioned soul is forced to act according to the laws of nature, why should he, who was far advanced in spiritual understanding, accept the same kind of bondage and impediments to spiritual advancement? To answer this doubt, Lord Brahmā informed him that even those who are liberated do not resent accepting, in the present body, the results of their past activities. While sleeping, one dreams many unreal things, but when he awakens he disregards them and makes progress in factual life. Similarly, a liberated person—one who has completely understood that he is not the body but a spirit soul—disregards past activities performed in ignorance and performs his present activities in such a way that they produce no reactions. This is described in *Bhagavad-gītā* [[bg/3/9|(Bg. 3.9)]]. *Yajñārthāt karmaṇo 'nyatra loko 'yaṁ karma-bandhanaḥ:* if one performs activities for the satisfaction of the Supreme Personality, the *yajña-puruṣa,* his work does not produce reactions, whereas *karmīs,* who act for themselves, are bound by the reactions of their work. A liberated person, therefore, does not think about whatever he has ignorantly done in the past; instead, he acts in such a way that he will not produce another body by fruitive activities. As clearly mentioned in *Bhagavad-gītā:*
+
+> mām ca yo 'vyabhicāreṇa
+> bhakti-yogena sevate
+> sa guṇān samatītyaitān
+> brahma-bhūyāya kalpate
+
+"One who engages in full devotional service, who does not fall down in any circumstance, at once transcends the modes of material nature and thus comes to the level of Brahman." [[bg/14/26|(Bg. 14.26)]] Regardless of what we have done in our past lives, if we engage ourselves in unalloyed devotional service to the Lord in this life, we will always be situated in the *brahma-bhūta* [[sb/4/30/20|[SB 4.30.20] ]] (liberated) state, free from reactions, and will not be obliged to accept another material body. *Tyaktvā dehaṁ punar janma naiti mām eti so 'rjuna* [[bg/4/9|(Bg. 4.9)]]. After giving up the body, one who has acted in that way does not accept another material body, but instead goes back home, back to Godhead.

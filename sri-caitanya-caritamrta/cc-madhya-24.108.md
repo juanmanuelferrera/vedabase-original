@@ -1,0 +1,8 @@
+### CC Madhya 24.108
+
+> kevala brahmopāsaka tina bheda haya
+> sādhaka, brahmamaya, āra prāpta-brahma-laya
+
+*kevala brahma-upāsaka*—the worshiper of only the impersonal Brahman; *tina bheda haya*—there are three different groups; *sādhaka*—the beginner; *brahma-maya*—absorbed in thought of Brahman; *āra*—and; *prāpta-brahma-laya*—actually merged into the Brahman effulgence.
+
+**"There are three types of people who worship the impersonal Brahman. The first is the beginner, the second is one whose thoughts are absorbed in Brahman, and the third is one who is actually merged in the impersonal Brahman.**

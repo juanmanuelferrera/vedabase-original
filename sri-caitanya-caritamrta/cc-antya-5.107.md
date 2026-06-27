@@ -1,0 +1,10 @@
+### CC Antya 5.107
+
+> grāmya-kavira kavitva śunite haya 'duḥkha'
+> vidagdha-ātmīya-vākya śunite haya 'sukha'
+
+*grāmya-kavira*—of a poet who writes poetry concerning man and woman; *kavitva*—poetry; *śunite*—to hear; *haya*—there is; *duḥkha*—unhappiness; *vidagdha-ātmīya*—of a devotee fully absorbed in ecstatic love; *vākya*—the words; *śunite*—to hear; *haya*—there is; *sukha*—happiness.
+
+**"Hearing the poetry of a person who has no transcendental knowledge and who writes about the relationships between man and woman simply causes unhappiness, whereas hearing the words of a devotee fully absorbed in ecstatic love causes great happiness.**
+
+*Grāmya-kavi* refers to a poet or writer such as the authors of novels and other fiction who write only about the relationships between man and woman. *Vidagdha-ātmīya-vākya,* however, refers to words written by a devotee who fully understands pure devotional service. Such devotees, who follow the *paramparā* system, are sometimes described as *sajātīyāśaya-snigdha,* or "pleasing to the same class of people." Only the poetry and other writings of such devotees are accepted with great happiness by devotees.

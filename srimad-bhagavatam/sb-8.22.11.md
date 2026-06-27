@@ -1,0 +1,20 @@
+### SB 8.22.11
+
+> athāham apy ātma-ripos tavāntikaṁ
+> daivena nītaḥ prasabhaṁ tyājita-śrīḥ
+> idaṁ kṛtāntāntika-varti jīvitaṁ
+> yayādhruvaṁ stabdha-matir na budhyate
+
+*atha*—therefore; *aham*—I; *api*—also; *ātma-ripoḥ*—who are the traditional enemy of the family; *tava*—of Your good self; *antikam*—the shelter; *daivena*—by providence; *nītaḥ*—brought in; *prasabham*—by force; *tyājita*—bereft of; *śrīḥ*—all opulence; *idam*—this philosophy of life; *kṛta-anta-antika-varti*—always given the facility for death; *jīvitam*—the duration of life; *yayā*—by such material opulence; *adhruvam*—as temporary; *stabdha-matiḥ*—such an unintelligent person; *na budhyate*—cannot understand.
+
+**Only by providence have I been forcibly brought under Your lotus feet and deprived of all my opulence. Because of the illusion created by temporary opulence, people in general, who live under material conditions, facing accidental death at every moment, do not understand that this life is temporary. Only by providence have I been saved from that condition.**
+
+Bali Mahārāja appreciated the actions of the Supreme Personality of Godhead, although all the members of the demoniac families except Prahlāda Mahārāja and Bali Mahārāja considered Viṣṇu their eternal traditional enemy. As described by Bali Mahārāja, Lord Viṣṇu was actually not the enemy of the family but the best friend of the family. The principle of this friendship has already been stated. *Yasyāham anugṛhnāmi hariṣye tad-dhanaṁ śanaiḥ:* [SB 10.88.8] the Lord bestows special favor upon His devotee by taking away all his material opulences. Bali Mahārāja appreciated this behavior by the Lord. Therefore he said, *daivena nītaḥ prasabhaṁ tyājita-śrīḥ:* "It is to bring me to the right platform of eternal life that You have put me into these circumstances."
+
+Actually, everyone should fear the so-called society, friendship and love for which he works so hard all day and night. As indicated by Bali Mahārāja by the words *janād bhītaḥ,* every devotee in Kṛṣṇa consciousness should always be afraid of the common man engaged in pursuing material prosperity. Such a person is described as *pramatta,* a madman chasing the will-o'-the-wisp. Such men do not know that after a hard struggle for life one must change his body, with no certainty of what kind of body he will receive next. Those who are completely established in Kṛṣṇa conscious philosophy and who therefore understand the aim of life will never take to the activities of the materialistic dog race. But if a sincere devotee somehow does fall down, the Lord corrects him and saves him from gliding down to the darkest region of hellish life.
+
+> adānta-gobhir viśatāṁ tamisraṁ
+> punaḥ punaś carvita-carvaṇānām
+> [[sb/7/5/30|(SB 7.5.30)]]
+
+The materialistic way of life is nothing but the repeated chewing of that which has already been chewed. Although there is no profit in such a life, people are enamored of it because of uncontrolled senses. *Nūnaṁ pramattaḥ kurute vikarma* [[sb/5/5/4|[SB 5.5.4] ]]. Because of uncontrolled senses, people fully engage in sinful activities by which they get a body full of suffering. Bali Mahārāja appreciated how the Lord had saved him from such a bewildered life of ignorance. He therefore said that his intelligence had been stunned. *Stabdha-matir na budhyate.* He could not understand how the Supreme Personality of Godhead favors His devotees by forcibly stopping their materialistic activities.

@@ -1,0 +1,8 @@
+### CC Antya 10.139
+
+> ācāryaratna, ācāryanidhi, nandana, rāghava
+> śrīvāsa-ādi yata bhakta, vipra saba
+
+*ācāryaratna*—Ācāryaratna; *ācāryanidhi*—Ācāryanidhi; *nandana*—Nandana Ācārya; *rāghava*—Rāghava Paṇḍita; *śrīvāsa-ādi*—headed by Śrīvāsa; *yata bhakta*—all devotees; *vipra saba*—all *brāhmaṇas.*
+
+**Devotees like Ācāryaratna, Ācāryanidhi, Nandana Ācārya, Rāghava Paṇḍita and Śrīvāsa were all of the brāhmaṇa caste.**

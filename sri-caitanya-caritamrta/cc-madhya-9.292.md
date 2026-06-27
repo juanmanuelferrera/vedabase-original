@@ -1,0 +1,8 @@
+### CC Madhya 9.292
+
+> adbhuta premera vanyā duṅhāra uthalila
+> duṅhe mānya kari' duṅhe ānande vasila
+
+*adbhuta*—wonderful; *premera*—of love of Godhead; *vanyā*—inundation; *duṅhāra*—of both of them; *uthalila*—arose; *duṅhe*—both of them; *mānya kari'*—offering respect; *duṅhe*—both of them; *ānande*—with great happiness; *vasila*—sat down.
+
+**They were both inundated by the wonderful ecstasy of love that was aroused in them. Finally they sat down and respectfully began to converse.**

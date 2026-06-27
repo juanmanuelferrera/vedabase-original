@@ -1,0 +1,8 @@
+### CC Madhya 8.174
+
+> 'sūddīpta-sāttvika' bhāva, harṣādi 'sañcārī'
+> ei saba bhāva-bhūṣaṇa saba-aṅge bhari'
+
+*su-uddīpta-sāttvika bhāva*—blazing ecstasies of goodness; *harṣa-ādi*—like jubilation; *sañcārī*—the continuously existing ecstasies; *ei saba*—all these; *bhāva*—ecstasies; *bhūṣaṇa*—ornaments; *saba*—all; *aṅge*—body; *bhari'*—filling.
+
+**"The decorated ornaments on Her body are the blazing ecstasies of goodness, and these constantly existing ecstasies are headed by jubilation. All these ecstasies are like ornaments all over Her body.**

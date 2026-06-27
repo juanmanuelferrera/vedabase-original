@@ -1,0 +1,12 @@
+### Bg 3.21
+
+> yad yad ācarati śreṣṭhas
+> tat tad evetaro janaḥ
+> sa yat pramāṇaṁ kurute
+> lokas tad anuvartate
+
+*yat*—whatever; *yat*—and whichever; *ācarati*—does he act; *śreṣṭhaḥ*—respectable leader; *tat*—that; *tat*—and that alone; *eva*—certainly; *itaraḥ*—common; *janaḥ*—person; *saḥ*—he; *yat*—whichever; *pramāṇam*—evidence; *kurute*—does perform; *lokaḥ*—all the world; *tat*—that; *anuvartate*—follow in the footsteps.
+
+**Whatever action is performed by a great man, common men follow in his footsteps. And whatever standards he sets by exemplary acts, all the world pursues.**
+
+People in general always require a leader who can teach the public by practical behavior. A leader cannot teach the public to stop smoking if he himself smokes. Lord Caitanya said that a teacher should behave properly even before he begins teaching. One who teaches in that way is called *ācārya,* or the ideal teacher. Therefore, a teacher must follow the principles of *śāśtra* (scripture) to reach the common man. The teacher cannot manufacture rules against the principles of revealed scriptures. The revealed scriptures, like *Manu-saṁhitā* and similar others, are considered the standard books to be followed by human society. Thus the leader's teaching should be based on the principles of the standard rules as they are practiced by the great teachers. The *Śrīmad-Bhāgavatam* also affirms that one should follow in the footsteps of great devotees, and that is the way of progress on the path of spiritual realization. The king or the executive head of a state, the father and the school teacher are all considered to be natural leaders of the innocent people in general. All such natural leaders have a great responsibility to their dependants; therefore they must be conversant with standard books of moral and spiritual codes.

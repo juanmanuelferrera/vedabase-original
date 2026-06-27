@@ -1,0 +1,12 @@
+### Bg 2.63
+
+> krodhād bhavati sammohaḥ
+> sammohāt smṛti-vibhramaḥ
+> smṛti-bhraṁśād buddhi-nāśo
+> buddhi-nāśāt praṇaśyati
+
+*krodhāt*—from anger; *bhavati*—takes place; *saṁmohaḥ*—perfect illusion; *saṁmohāt*—from illusion; *smṛti*—of memory; *vibhramaḥ*—bewilderment; *smṛti-bhraṁśāt*—after bewilderment of memory; *buddhi-nāśaḥ*—loss of intelligence; *buddhi-nāśāt*—and from loss of intelligence; *praṇaśyati*—falls down.
+
+**From anger, delusion arises, and from delusion bewilderment of memory. When memory is bewildered, intelligence is lost, and when intelligence is lost, one falls down again into the material pool.**
+
+By development of Kṛṣṇa consciousness one can know that everything has its use in the service of the Lord. Those who are without knowledge of Kṛṣṇa consciousness artificially try to avoid material objects, and as a result, although they desire liberation from material bondage, they do not attain to the perfect stage of renunciation. On the other hand, a person in Kṛṣṇa consciousness knows how to use everything in the service of the Lord; therefore he does not become a victim of material consciousness. For example, for an impersonalist, the Lord, or the Absolute, being impersonal, cannot eat. Whereas an impersonalist tries to avoid good eatables, a devotee knows that Kṛṣṇa is the supreme enjoyer and that He eats all that is offered to Him in devotion. So, after offering good eatables to the Lord, the devotee takes the remnants, called *prasādam.* Thus everything becomes spiritualized and there is no danger of a downfall. The devotee takes *prasādam* in Kṛṣṇa consciousness, whereas the nondevotee rejects it as material. The impersonalist, therefore, cannot enjoy life due to his artificial renunciation; and for this reason, a slight agitation of the mind pulls him down again into the pool of material existence. It is said that such a soul, even though rising up to the point of liberation, falls down again due to his not having support in devotional service.

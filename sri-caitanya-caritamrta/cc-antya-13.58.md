@@ -1,0 +1,8 @@
+### CC Antya 13.58
+
+> sanātana kahe—"sādhu paṇḍita-mahāśaya!
+> tomā-sama caitanyera priya keha naya
+
+*sanātana kahe*—Sanātana Gosvāmī said; *sādhu*—saint; *paṇḍita*—learned scholar; *mahāśaya*—a great soul; *tomā-sama*—like you; *caitanyera*—of Śrī Caitanya Mahāprabhu; *priya*—dear; *keha naya*—no one is.
+
+**Sanātana Gosvāmī said, "My dear Jagadānanda Paṇḍita, you are a greatly learned saint. No one is dearer to Śrī Caitanya Mahāprabhu than you.**

@@ -1,0 +1,8 @@
+### CC Antya 20.66
+
+> yadyapiha prabhu—koṭī-samudra-gambhīra
+> nānā-bhāva-candrodaye hayena asthira
+
+*yadyapiha*—although; *prabhu*—Śrī Caitanya Mahāprabhu; *koṭī-samudra-gambhīra*—as deep as millions of oceans; *nānā*—various; *bhāva*—of ecstatic emotions; *candrodaye*—because of the moonrise; *hayena*—sometimes becomes; *asthira*—restless.
+
+**Although Śrī Caitanya Mahāprabhu is as deep and grave as millions of oceans, when the moon of His various emotions rises, He becomes restless.**

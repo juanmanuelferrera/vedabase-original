@@ -1,0 +1,14 @@
+### SB 3.29.29
+
+> tatrāpi sparśa-vedibhyaḥ
+> pravarā rasa-vedinaḥ
+> tebhyo gandha-vidaḥ śreṣṭhās
+> tataḥ śabda-vido varāḥ
+
+*tatra*—among them; *api*—moreover; *sparśa-vedibhyaḥ*—than those perceiving touch; *pravarāḥ*—better; *rasa-vedinaḥ*—those perceiving taste; *tebhyaḥ*—than them; *gandha-vidaḥ*—those perceiving smell; *śreṣṭhāḥ*—better; *tataḥ*—than them; *śabda-vidaḥ*—those perceiving sound; *varāḥ*—better.
+
+**Among the living entities who have developed sense perception, those who have developed the sense of taste are better than those who have developed only the sense of touch. Better than them are those who have developed the sense of smell, and better still are those who have developed the sense of hearing.**
+
+Although Westerners accept that Darwin first expounded the doctrine of evolution, the science of anthropology is not new. The development of the evolutionary process was known long before from the *Bhāgavatam,* which was written five thousand years ago. There are records of the statements of Kapila Muni, who was present almost in the beginning of the creation. This knowledge has existed since the Vedic time, and all these sequences are disclosed in Vedic literature; the theory of gradual evolution or anthropology is not new to the *Vedas.*
+
+It is said here that amongst the trees there are also evolutionary processes; the different kinds of trees have touch perception. It is said that better than the trees are the fish because fish have developed the sense of taste. Better than the fish are the bees, who have developed the sense of smell, and better than them are the serpents because serpents have developed the sense of hearing. In the darkness of night a snake can find its eatables simply by hearing the frog's very pleasant cry. The snake can understand, "There is the frog," and he captures the frog simply because of its sound vibration. This example is sometimes given for persons who vibrate sounds simply for death. One may have a very nice tongue that can vibrate sound like the frogs, but that kind of vibration is simply calling death. The best use of the tongue and of sound vibration is to chant Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. That will protect one from the hands of cruel death.

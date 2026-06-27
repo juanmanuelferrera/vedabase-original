@@ -1,0 +1,10 @@
+### CC Madhya 13.23
+
+> pañca-daśa dina īśvara mahā-lakṣmī lañā
+> tāṅra saṅge krīḍā kaila nibhṛte vasiyā
+
+*pañca-daśa dina*—fifteen days; *īśvara*—the Lord; *mahā-lakṣmī*—the supreme goddess of fortune; *lañā*—with; *tāṅra saṅge*—in her company; *krīḍā*—enjoyment; *kaila*—performed; *nibhṛte*—in a solitary place; *vasiyā*—sitting.
+
+**For fifteen days the Lord had remained in a secluded place with the supreme goddess of fortune and had performed His pastimes with her.**
+
+The fifteen-day period of *anavasara* is also called *nibhṛta,* in honor of the solitary place where the supreme goddess of fortune lives. After living there a fortnight, Lord Jagannātha took permission from the goddess of fortune to leave.

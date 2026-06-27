@@ -1,0 +1,14 @@
+### CC Adi 1.44
+
+> yadyapi āmāra guru—caitanyera dāsa
+> tathāpi jāniye āmi tāṅhāra prakāśa
+
+*yadyapi*—even though; *āmāra*—my; *guru*—spiritual master; *caitanyera*—of Lord Caitanya Mahāprabhu; *dāsa*—the servitor; *tathāpi*—still; *jāniye*—know; *āmi*—I; *tāṅhāra*—of the Lord; *prakāśa*—direct manifestation.
+
+**Although I know that my spiritual master is a servitor of Śrī Caitanya, I know Him also as a plenary manifestation of the Lord.**
+
+Every living entity is essentially a servant of the Supreme Personality of Godhead, and the spiritual master is also His servant. Still, the spiritual master is a direct manifestation of the Lord. With this conviction, a disciple can advance in Kṛṣṇa consciousness. The spiritual master is nondifferent from Kṛṣṇa because he is a manifestation of Kṛṣṇa.
+
+Lord Nityānanda, who is Balarāma Himself, the first direct manifestation or expansion of Kṛṣṇa, is the original spiritual master. He helps Lord Kṛṣṇa in His pastimes, and He is a servant of the Lord.
+
+Every living entity is eternally a servant of Śrī Kṛṣṇa Caitanya; therefore the spiritual master cannot be other than a servant of Lord Caitanya. The spiritual master's eternal occupation is to expand the service of the Lord by training disciples in a service attitude. A spiritual master never poses as the Supreme Lord Himself; he is considered a representative of the Lord. The revealed scriptures prohibit one's pretending to be God, but a bona fide spiritual master is a most faithful and confidential servant of the Lord and therefore deserves as much respect as Kṛṣṇa.

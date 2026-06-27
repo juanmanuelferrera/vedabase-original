@@ -1,0 +1,16 @@
+### SB 3.29.14
+
+> sa eva bhakti-yogākhya
+> ātyantika udāhṛtaḥ
+> yenātivrajya tri-guṇaṁ
+> mad-bhāvāyopapadyate
+
+*saḥ*—this; *eva*—indeed; *bhakti-yoga*—devotional service; *ākhyaḥ*—called; *ātyantikaḥ*—the highest platform; *udāhṛtaḥ*—explained; *yena*—by which; *ativrajya*—overcoming; *tri-guṇam*—the three modes of material nature; *mat-bhāvāya*—to My transcendental stage; *upapadyate*—one attains.
+
+**By attaining the highest platform of devotional service, as I have explained, one can overcome the influence of the three modes of material nature and be situated in the transcendental stage, as is the Lord.**
+
+Śrīpāda Śaṅkarācārya, who is supposed to be the leader of the impersonalist school of philosophers, has admitted in the beginning of his comments on *Bhagavad-gītā* that Nārāyaṇa, the Supreme Personality of Godhead, is beyond the material creation; except for Him, everything is within the material creation. It is also confirmed in the Vedic literature that before the creation there was only Nārāyaṇa; neither Lord Brahmā nor Lord Śiva existed. Only Nārāyaṇa, or the Supreme Personality of Godhead, Viṣṇu, or Kṛṣṇa, is always in the transcendental position, beyond the influence of material creation.
+
+The material qualities of goodness, passion and ignorance cannot affect the position of the Supreme Personality of Godhead; therefore He is called *nirguṇa* (free from all tinges of material qualities). Here the same fact is confirmed by Lord Kapila: one who is situated in pure devotional service is transcendentally situated, as is the Lord. Just as the Lord is unaffected by the influence of the material modes, so too are His pure devotees. One who is not affected by the three modes of material nature is called a liberated soul, or *brahma-bhūta* soul [[sb/4/30/20|[SB 4.30.20] ]]. *Brahma-bhūtaḥ prasannātmā* [[bg/18/54|[Bg. 18.54] ]] is the stage of liberation. *Ahaṁ brahmāsmi:* "I am not this body." This is applicable only to the person who constantly engages in the devotional service of Kṛṣṇa and is thus in the transcendental stage; he is above the influence of the three modes of material nature.
+
+It is the misconception of the impersonalists that one can worship any imaginary form of the Lord, or Brahman, and at the end merge in the Brahman effulgence. Of course, to merge into the bodily effulgence (Brahman) of the Supreme Lord is also liberation, as explained in the previous verse. *Ekatva* is also liberation, but that sort of liberation is never accepted by any devotee because qualitative oneness is immediately attained as soon as one is situated in devotional service. For a devotee, that qualitative equality, which is the result of impersonal liberation, is already attained; he does not have to try for it separately. It is clearly stated here that simply by pure devotional service one becomes qualitatively as good as the Lord Himself.

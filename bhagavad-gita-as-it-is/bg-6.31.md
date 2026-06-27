@@ -1,0 +1,24 @@
+### Bg 6.31
+
+> sarva-bhūta-sthitaṁ yo māṁ
+> bhajaty ekatvam āsthitaḥ
+> sarvathā vartamāno 'pi
+> sa yogī mayi vartate
+
+*sarva-bhūta-sthitam*—situated in everyone's heart; *yaḥ*—he who; *mām*—unto Me; *bhajati*—serves in devotional service; *ekatvam*—oneness; *āsthitaḥ*—thus situated; *sarvathā*—in all respects; *vartamānaḥ*—being situated; *api*—in spite of; *saḥ*—he; *yogī*—transcendentalist; *mayi*—unto Me; *vartate*—remains.
+
+**The yogī who knows that I and the Supersoul within all creatures are one worships Me and remains always in Me in all circumstances.**
+
+A *yogī* who is practicing meditation on the Supersoul sees within himself the plenary portion of Kṛṣṇa as Viṣṇu—with four hands, holding conchshell, wheel, club and lotus flower. The *yogī* should know that Viṣṇu is not different from Kṛṣṇa. Kṛṣṇa in this form of Supersoul is situated in everyone's heart. Furthermore, there is no difference between the innumerable Supersouls present in the innumerable hearts of living entities. Nor is there a difference between a Kṛṣṇa conscious person always engaged in the transcendental loving service of Kṛṣṇa and a perfect *yogī* engaged in meditation on the Supersoul. The *yogī* in Kṛṣṇa consciousness—even though he may be engaged in various activities while in material existence—remains always situated in Kṛṣṇa. This is confirmed in the *Bhakti-rasāmṛta-sindhu* of Śrīla Rūpa Gosvāmī: *nikhileṣu avasthāsu jīvanmukta sa ucyate.* A devotee of the Lord, always acting in Kṛṣṇa consciousness, is automatically liberated. In the *Nārada-pañcarātra* this is confirmed in this way:
+
+> dik-kālādy-anavacchinne kṛṣṇe ceto vidhāya ca
+> tanmayo bhavati kṣipraṁ jīvo brahmaṇi yojayet.
+
+"By concentrating one's attention on the transcendental form of Kṛṣṇa, who is all-pervading and beyond time and space, one becomes absorbed in thinking of Kṛṣṇa and then attains the happy state of transcendental association with Him."
+
+Kṛṣṇa consciousness is the highest stage of trance in *yoga* practice. This very understanding that Kṛṣṇa is present as Paramātmā in everyone's heart makes the *yogī* faultless. The *Vedas* confirm this inconceivable potency of the Lord as follows:
+
+> eko 'pi san bahudhā yo 'vabhāti
+> aiśvaryād rūpam ekaṁ ca sūryavad bahudheyate.
+
+"Viṣṇu is one, and yet He is certainly all-pervading. By His inconceivable potency, in spite of His one form, He is present everywhere. As the sun, He appears in many places at once."

@@ -1,0 +1,21 @@
+### CC Madhya 11.151
+
+> nimajjato 'nanta bhavārṇavāntaś
+> cirāya me kūlam ivāsi labdhaḥ
+> tvayāpi labdhaṁ bhagavann idānīm
+> anuttamaṁ pātram idaṁ dayāyāḥ
+
+*nimajjataḥ*—being immersed; *ananta*—O unlimited one; *bhava-arṇava-antaḥ*—within the ocean of nescience; *cirāya*—after a long time; *me*—of me; *kūlam*—the shore; *iva*—like; *asi*—You are; *labdhaḥ*—obtained; *tvayā*—by You; *api*—also; *labdham*—has been gained; *bhagavan*—O my Lord; *idānīm*—now; *anuttamam*—the best; *pātram*—candidate; *idam*—this; *dayāyāḥ*—for showing Your mercy.
+
+**“ 'O my Lord! O unlimited one! Although I was merged in the ocean of nescience, I have now, after a long time, attained You, just as one may attain the seashore. My dear Lord, by getting me, You have obtained the right person upon whom to bestow Your causeless mercy.' "**
+
+This is a verse from the *Stotra-ratna* (21), composed by Ālabandāru Yāmunācārya. One's relationship with the Supreme Personality of Godhead may be reestablished even after one has fallen into the ocean of nescience, which is the ocean of material existence involving the repetition of birth, death, old age and disease, all arising out of the acceptance of the material body. There are 8,400,000 species of material life, but in the human body one attains a chance to get release from the repetition of birth and death. When one becomes the Lord's devotee, he is rescued from this dangerous ocean of birth and death. The Lord is always prepared to show His mercy to the fallen souls struggling against miserable material conditions. As Lord Kṛṣṇa states in the *Bhagavad-gītā* [[bg/15/7|(Bg. 15.7)]]:
+
+> mamaivāṁśo jīva-loke
+> jīva-bhūtaḥ sanātanaḥ
+> manaḥ-ṣaṣṭhānīndriyāṇi
+> prakṛti-sthāni karṣati
+
+"The living entities in this conditioned world are My eternal fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind."
+
+Thus every living being is struggling hard in this material nature. Actually the living entity is part and parcel of the Supreme Lord, and when he surrenders unto the Supreme Personality of Godhead, he attains release from the ocean of birth and death. The Lord, being very kind to fallen souls, is always anxious to get the living entity out of the ocean of nescience. If the living entity understands his position and surrenders to the Lord, his life becomes successful.

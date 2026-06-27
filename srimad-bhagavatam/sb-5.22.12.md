@@ -1,0 +1,7 @@
+### SB 5.22.12
+
+> tata upariṣṭād uśanā dvi-lakṣa-yojanata upalabhyate purataḥ paścāt sahaiva vārkasya śaighrya-māndya-sāmyābhir gatibhir arkavac carati lokānāṁ nityadānukūla eva prāyeṇa varṣayaṁś cāreṇānumīyate sa vṛṣṭi-viṣṭambha-grahopaśamanaḥ.
+
+*tataḥ*—from that bunch of stars; *upariṣṭāt*—above; *uśanā*—Venus; *dvi-lakṣa-yojanataḥ*—200,000 *yojanas* (1,600,000 miles); *upalabhyate*—is experienced; *purataḥ*—in front; *paścāt*—behind; *saha*—along with; *eva*—indeed; *vā*—and; *arkasya*—of the sun; *śaighrya*—speedy; *māndya*—slow; *sāmyābhiḥ*—equal; *gatibhiḥ*—the movements; *arkavat*—exactly like the sun; *carati*—rotates; *lokānām*—of all the planets within the universe; *nityadā*—constantly; *anukūlaḥ*—offering favorable conditions; *eva*—indeed; *prāyeṇa*—almost always; *varṣayan*—causing rainfall; *cāreṇa*—by infusing the clouds; *anumīyate*—is perceived; *saḥ*—he (Venus); *vṛṣṭi-viṣṭambha*—obstacles to rainfall; *graha-upaśamanaḥ*—nullifying planets.
+
+**Some 1,600,000 miles above this group of stars is the planet Venus, which moves at almost exactly the same pace as the sun according to swift, slow and moderate movements. Sometimes Venus moves behind the sun, sometimes in front of the sun and sometimes along with it. Venus nullifies the influence of planets that are obstacles to rainfall. Consequently its presence causes rainfall, and it is therefore considered very favorable for all living beings within this universe. This has been accepted by learned scholars.**

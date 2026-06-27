@@ -1,0 +1,12 @@
+### SB 3.14.28
+
+> hasanti yasyācaritaṁ hi durbhagāḥ
+> svātman-ratasyāviduṣaḥ samīhitam
+> yair vastra-mālyābharaṇānulepanaiḥ
+> śva-bhojanaṁ svātmatayopalālitam
+
+*hasanti*—laugh at; *yasya*—whose; *ācaritam*—activity; *hi*—certainly; *durbhagāḥ*—the unfortunate; *sva-ātman*—in the self; *ratasya*—of one engaged; *aviduṣaḥ*—not knowing; *samīhitam*—his purpose; *yaiḥ*—by whom; *vastra*—clothing; *mālya*—garlands; *ābharaṇa*—ornaments; *anu*—such luxurious; *lepanaiḥ*—with ointments; *śva-bhojanam*—eatable by the dogs; *sva-ātmatayā*—as if the self; *upalālitam*—fondled.
+
+**Unfortunate, foolish persons, not knowing that he is engaged in his own self, laugh at him. Such foolish persons engage in maintaining the body—which is eatable by dogs—with dresses, ornaments, garlands and ointments.**
+
+Lord Śiva never accepts any luxurious dress, garland, ornament or ointment. But those who are addicted to the decoration of the body, which is finally eatable by dogs, very luxuriously maintain it as the self. Such persons do not understand Lord Śiva, but they approach him for luxurious material comforts. There are two kinds of devotees of Lord Śiva. One class is the gross materialist seeking only bodily comforts from Lord Śiva, and the other class desires to become one with him. They are mostly impersonalists and prefer to chant *śivo'ham,* "I am Śiva," or "After liberation I shall become one with Lord Śiva." In other words, the *karmīs* and *jñānīs* are generally devotees of Lord Śiva, but they do not properly understand his real purpose in life. Sometimes so-called devotees of Lord Śiva imitate him in using poisonous intoxicants. Lord Śiva once swallowed an ocean of poison, and thus his throat became blue. The imitation Śivas try to follow him by indulging in poisons, and thus they are ruined. The real purpose of Lord Śiva is to serve the Soul of the soul, Lord Kṛṣṇa. He desires that all luxurious articles, such as nice garments, garlands, ornaments and cosmetics, be given to Lord Kṛṣṇa only, because Kṛṣṇa is the real enjoyer. He refuses to accept such luxurious items himself because they are only meant for Kṛṣṇa. However, since they do not know this purpose of Lord Śiva, foolish persons either laugh at him or profitlessly try to imitate him.

@@ -1,0 +1,8 @@
+### CC Madhya 17.17
+
+> iṅhāra saṅge āche vipra eka 'bhṛtya'
+> iṅho pathe karibena sevā-bhikṣā-kṛtya
+
+*iṅhāra saṅge*—with him; *āche*—is; *vipra*—*brāhmaṇa*; *eka*—one; *bhṛtya*—servant; *iṅho*—this man; *pathe*—on the way; *karibena*—will do; *sevā*—service; *bhikṣā-kṛtya*—and arrangements for cooking.
+
+**"In addition, You may take another brāhmaṇa who would act as a servant en route and make arrangements for Your food.**

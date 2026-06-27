@@ -1,0 +1,12 @@
+### SB 3.16.25
+
+> yaṁ vānayor damam adhīśa bhavān vidhatte
+> vṛttiṁ nu vā tad anumanmahi nirvyalīkam
+> asmāsu vā ya ucito dhriyatāṁ sa daṇḍo
+> ye 'nāgasau vayam ayuṅkṣmahi kilbiṣeṇa
+
+*yam*—which; *vā*—or; *anayoḥ*—of both of them; *damam*—punishment; *adhīśa*—O Lord; *bhavān*—Your Lordship; *vidhatte*—awards; *vṛttim*—better existence; *nu*—certainly; *vā*—or; *tat*—that; *anumanmahi*—we accept; *nirvyalīkam*—without duplicity; *asmāsu*—to us; *vā*—or; *yaḥ*—whichever; *ucitaḥ*—is proper; *dhriyatām*—may be awarded; *saḥ*—that; *daṇḍaḥ*—punishment; *ye*—who; *anāgasau*—sinless; *vayam*—we; *ayuṅkṣmahi*—allotted; *kilbiṣeṇa*—with a curse.
+
+**O Lord, whatever punishment You wish to award to these two innocent persons or also to us we shall accept without duplicity. We understand that we have cursed two faultless persons.**
+
+The sages, the four Kumāras, now reject their cursing of the two doorkeepers, Jaya and Vijaya, because they are now conscious that persons who engage in the service of the Lord cannot be at fault at any stage. It is said that anyone who has implicit faith in the service of the Lord, or who actually engages in transcendental loving service, has all the good qualities of the demigods. Therefore, a devotee cannot be at fault. If sometimes it is found that he is in error by accident or by some temporary arrangement, that should not be taken very seriously. The cursing of Jaya and Vijaya is here repented. Now the Kumāras are thinking in terms of their position in the modes of passion and ignorance, and they are prepared to accept any kind of punishment from the Lord. In general, when dealing with devotees, we should not try to find faults. In *Bhagavad-gītā* also it is confirmed that the devotee who faithfully serves the Supreme Lord, even if found to commit a gross mistake, should be considered a *sādhu,* or saintly person. Due to former habits he may commit some wrong, but because he is engaged in the service of the Lord, that wrong should not be taken very seriously.

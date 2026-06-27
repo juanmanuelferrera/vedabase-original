@@ -1,0 +1,19 @@
+### CC Madhya 20.162
+
+> kṛṣṇam enam avehi tvam
+> ātmānam akhilātmanām
+> jagad-dhitāya so 'py atra
+> dehīvābhāti māyayā
+
+*kṛṣṇam*—in the Supreme Personality of Godhead; *enam*—this; *avehi*—just try to understand; *tvam*—you; *ātmānam*—the soul; *akhila-ātmanām*—of all living entities; *jagat-hita-ya*—the benefit of the whole universe; *saḥ*—He; *api*—certainly; *atra*—here; *dehī*—a human being; *iva*—like; *ābhāti*—appears; *māyayā*—by His internal potency.
+
+**“ 'You should know Kṛṣṇa as the original soul of all ātmās [living entities]. For the benefit of the whole universe, He has, out of His causeless mercy, appeared as an ordinary human being. He has done this with the strength of His own internal potency.'**
+
+This is a quotation from *Śrīmad-Bhāgavatam* (10.14.55). Parīkṣit Mahārāja asked Śukadeva Gosvāmī why Kṛṣṇa was so beloved by the residents of Vṛndāvana, who loved Him even more than their own offspring or life itself. At that time Śukadeva Gosvāmī replied that everyone's *ātmā,* or soul, is very, very dear, especially to all living entities who have accepted material bodies. However, that *ātmā,* the spirit soul, is part and parcel of Kṛṣṇa. For this reason, Kṛṣṇa is very dear to every living entity. Everyone's body is very dear to oneself, and one wants to protect the body by all means because within the body the soul is living. Due to the intimate relationship between the soul and the body, the body is important and dear to everyone. Similarly, the soul, being part and parcel of Kṛṣṇa, the Supreme Lord, is very, very dear to all living entities. Unfortunately, the soul forgets his constitutional position and thinks he is only the body (*deha-ātma-bud-dhi).* Thus the soul is subjected to the rules and regulations of material nature. When a living entity, by his intelligence, reawakens his attraction for Kṛṣṇa, he can understand that he is not the body but part and parcel of Kṛṣṇa. Thus filled with knowledge, he no longer labors under attachment to the body and everything related to the body. *janasya moho 'yam aham mameti.* Material existence, wherein one thinks, "I am the body, and this belongs to me," is also illusory. One must redirect his attraction to Kṛṣṇa. *Śrīmad-Bhāgavatam* (1.2.7) states:
+
+> vāsudeve bhagavati
+> bhakti-yogaḥ prayojitaḥ
+> janayaty āśu vairāgyaṁ
+> jñānaṁ ca yad ahaitukam
+
+"By rendering devotional service unto the Personality of Godhead, Śrī Kṛṣṇa, one immediately acquires causeless knowledge and detachment from the world."

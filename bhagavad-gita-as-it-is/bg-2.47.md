@@ -1,0 +1,16 @@
+### Bg 2.47
+
+> karmaṇy evādhikāras te
+> mā phaleṣu kadācana
+> mā karma-phala-hetur bhūr
+> mā te saṅgo 'stv akarmaṇi
+
+*karmaṇi*—prescribed duties; *eva*—certainly; *adhikāraḥ*—right; *te*—of you; *mā*—never; *phaleṣu*—in the fruits; *kadācana*—at any time; *mā*—never; *karma-phala*—in the result of the work; *hetuḥ*—cause; *bhūḥ*—become; *mā*—never; *te*—of you; *saṅgaḥ*—attachment; *astu*—be there; *akarmaṇi*—in not doing.
+
+**You have a right to perform your prescribed duty, but you are not entitled to the fruits of action. Never consider yourself to be the cause of the results of your activities, and never be attached to not doing your duty.**
+
+There are three considerations here: prescribed duties, capricious work, and inaction. Prescribed duties refer to activities performed while one is in the modes of material nature. Capricious work means actions without the sanction of authority, and inaction means not performing one's prescribed duties. The Lord advised that Arjuna not be inactive, but that he perform his prescribed duty without being attached to the result. One who is attached to the result of his work is also the cause of the action. Thus he is the enjoyer or sufferer of the result of such actions.
+
+As far as prescribed duties are concerned, they can be fitted into three subdivisions, namely routine work, emergency work and desired activities. Routine work, in terms of the scriptural injunctions, is done without desire for results. As one has to do it, obligatory work is action in the mode of goodness. Work with results becomes the cause of bondage; therefore such work is not auspicious. Everyone has his proprietory right in regard to prescribed duties, but should act without attachment to the result; such disinterested obligatory duties doubtlessly lead one to the path of liberation.
+
+Arjuna was therefore advised by the Lord to fight as a matter of duty without attachment to the result. His nonparticipation in the battle is another side of attachment. Such attachment never leads one to the path of salvation. Any attachment, positive or negative, is cause for bondage. Inaction is sinful. Therefore, fighting as a matter of duty was the only auspicious path of salvation for Arjuna.

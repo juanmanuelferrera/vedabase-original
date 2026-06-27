@@ -1,0 +1,10 @@
+### CC Madhya 14.173
+
+> ei-saba sthāne 'kila-kiñcita' udgama
+> prathame 'harṣa' sañcārī-mūla kāraṇa
+
+*ei-saba sthāne*—in such places; *kila-kiñcita*—of the symptom of the ecstasy known as *kila-kiñcita*; *udgama*—awakening; *prathame*—in the beginning; *harṣa*—jubilation; *sañcārī*—ecstatic emotion; *mūla kāraṇa*—the root cause.
+
+**"At such times, the ecstatic symptoms of kila-kiñcita are awakened. First there is jubilation in ecstatic love, which is the root cause of these symptoms.**
+
+Whenever Śrīmatī Rādhārāṇī leaves Her house, She is always well-dressed and attractive. It is Her womanly nature to attract Śrī Kṛṣṇa's attention, and upon seeing Her so attractively dressed, Śrī Kṛṣṇa desires to touch Her body. The Lord then finds some fault in Her and prohibits Her from going to a river crossing and stops Her from picking flowers. Such are the pastimes between Śrīmatī Rādhārāṇī and Śrī Kṛṣṇa. Being a cowherd girl, Śrīmatī Rādhārāṇī regularly carries a container of milk and often goes to sell it on the other side of the Yamunā. To cross the river, She has to pay the boatman, and the spot where the boatman collects his fares is called the *dāna-ghāṭi.* Lord Śrī Kṛṣṇa stops Her from going, telling Her, "First You have to pay the fee; then You will be allowed to go." This pastime is called *dāna-keli-līlā.* Similarly, if Śrīmatī Rādhārāṇī wants to pick a flower, Śrī Kṛṣṇa claims to be the garden's proprietor and prohibits Her. This pastime is called *kila-kiñcita.* Rādhārāṇī's shyness arises due to Śrī Kṛṣṇa's prohibitions, and ecstatic loving bodily symptoms called *kila-kiñcita-bhāva* are manifest at this time. These ecstatic symptoms are explained in the following verse, which is from Śrīla Rūpa Gosvāmī's *Ujjvala-nīlamaṇi* (*Anubhāva-prakaraṇa* 44).

@@ -1,0 +1,12 @@
+### SB 4.18.5
+
+> tān anādṛtya yo 'vidvān
+> arthān ārabhate svayam
+> tasya vyabhicaranty arthā
+> ārabdhāś ca punaḥ punaḥ
+
+*tān*—those; *anādṛtya*—neglecting; *yaḥ*—anyone who; *avidvān*—rascal; *arthān*—schemes; *ārabhate*—begins; *svayam*—personally; *tasya*—his; *vyabhicaranti*—do not become successful; *arthāḥ*—purposes; *ārabdhāḥ*—attempted; *ca*—and; *punaḥ punaḥ*—again and again.
+
+**A foolish person who manufactures his own ways and means through mental speculation and does not recognize the authority of the sages who lay down unimpeachable directions is simply unsuccessful again and again in his attempts.**
+
+At the present moment it has become fashionable to disobey the unimpeachable directions given by the ācāryas and liberated souls of the past. Presently people are so fallen that they cannot distinguish between a liberated soul and a conditioned soul. A conditioned soul is hampered by four defects: he is sure to commit mistakes, he is sure to become illusioned, he has a tendency to cheat others, and his senses are imperfect. Consequently we have to take direction from liberated persons. This Kṛṣṇa consciousness movement directly receives instructions from the Supreme Personality of Godhead via persons who are strictly following His instructions. Although a follower may not be a liberated person, if he follows the supreme liberated Personality of Godhead, his actions are naturally liberated from the contamination of the material nature. Lord Caitanya therefore says: "By My order you may become a spiritual master." One can immediately become a spiritual master by having full faith in the transcendental words of the Supreme Personality of Godhead and by following His instructions. Materialistic men are not interested in taking directions from a liberated person, but they are very much interested in their own concocted ideas, which make them repeatedly fail in their attempts. Because the entire world is now following the imperfect directions of conditioned souls, humanity is completely bewildered.

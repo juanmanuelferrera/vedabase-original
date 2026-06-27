@@ -1,0 +1,10 @@
+### CC Madhya 9.78
+
+> kumbhakarṇa-kapāle dekhi' sarovara
+> śiva-kṣetre śiva dekhe gaurāṅga-sundara
+
+*kumbhakarṇa-kapāle*—at Kumbhakarṇa-kapāla; *dekhi'*—after seeing; *sarovara*—the lake; *śiva-kṣetre*—at Śiva-kṣetra; *śiva*—Lord Śiva; *dekhe*—sees; *gaurāṅga-sundara*—Lord Śrī Caitanya Mahāprabhu.
+
+**At Kumbhakarṇa-kapāla, Śrī Caitanya Mahāprabhu saw a great lake and then the holy place named Śiva-kṣetra, where a temple of Lord Śiva is located.**
+
+Kumbhakarṇa is the name of the brother of Rāvaṇa. At the present moment the city of Kumbhakarṇa-kapāla is known as Kumbhakonṇam; it is situated twenty miles northeast of the city of Tanjoreāñ. There are twelve temples of Lord Śiva located at Kumbhakonṇam, as well as four Viṣṇu temples and one temple to Lord Brahmā. Śiva-kṣetra, within the city of Tanjoreāñ, is situated near a big lake known as Śiva-gaṅgā. At this place is a large temple of Lord Śiva known as Bṛhatīśvara-śiva-mandira.

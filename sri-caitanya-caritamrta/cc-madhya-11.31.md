@@ -1,0 +1,17 @@
+### CC Madhya 11.31
+
+> ārādhanānāṁ sarveṣāṁ
+> viṣṇor ārādhanaṁ param
+> tasmāt parataraṁ devi
+> tadīyānāṁ samarcanam
+
+*ārādhanānām*—of varieties of worship; *sarveṣām*—all; *viṣṇoḥ*—of Lord Viṣṇu; *ārādhanam*—worship; *param*—the most exalted; *tasmāt*—and above such worship of Lord Viṣṇu; *parataram*—of greater value; *devi*—O goddess; *tadīyānām*—of persons in relationship with Lord Viṣṇu; *samarcanam*—rigid and firm worship.
+
+**"Lord Śiva told the goddess Durgā, 'My dear Devī, although the Vedas recommend worship of demigods, the worship of Lord Viṣṇu is topmost. However, above the worship of Lord Viṣṇu is the rendering of service to Vaiṣṇavas, who are related to Lord Viṣṇu.'**
+
+The *Vedas* are divided into three divisions—*karma-kāṇḍa, jñāna-kāṇḍa* and *upāsanā-kāṇḍa.* These are activities dealing with fruitive work, empiric philosophical speculation and worship. There are recommendations in the *Vedas* for the worship of various demigods as well as Lord Viṣṇu. In this quotation from the *Padma Purāṇa,* Lord Śiva answers a question posed to him by the goddess Durgā. This verse is also included in the *Laghu-bhāgavatāmṛta* (2.4), by Śrīla Rūpa Gosvāmī. The words *viṣṇor ārādhanam* refer to the worship of Lord Viṣṇu, or Kṛṣṇa. Thus the supreme form of worship is the satisfaction of the Supreme Personality of Godhead Śrī Kṛṣṇa. It is further concluded that the worshiper of Lord Viṣṇu renders better service by worshiping the devotee of Lord Kṛṣṇa. There are different types of devotees—those in *śānta-rasa, dāsya-rasa, sakhya-rasa, vātsalya-rasa* and *mādhurya-rasa.* Although all the *rasas* are on the transcendental platform, *mādhurya-rasa* is the supreme transcendental mellow. Consequently it is concluded that the worship of devotees engaged in the Lord's service in *mādhurya-rasa* is the supreme spiritual activity. Śrī Caitanya Mahāprabhu and His followers mainly worship Lord Kṛṣṇa in *mādhurya-rasa.* Other Vaiṣṇava *ācāryas* recommended worship up to *vātsalya-rasa.* Therefore Śrīla Rūpa Gosvāmī in his *Vidagdha-mādhava* (1.2) describes Śrī Caitanya Mahāprabhu's cult as supreme:
+
+> anarpita-carīṁ cirāt karuṇayāvatīrṇaḥ kalau
+> samarpayitum unnatojjvala-rasāṁ sva-bhakti-śriyam
+
+Śrī Caitanya Mahāprabhu appeared in this Age of Kali to exhibit the superexcellence of *mādhurya-rasa,* a gift never previously bestowed by any *ācārya* or incarnation. Consequently Śrī Caitanya Mahāprabhu is accepted as the most magnanimous incarnation. It is He only who distributed love of Kṛṣṇa while exhibiting the superexcellence of loving Kṛṣṇa in the conjugal *rasa.*

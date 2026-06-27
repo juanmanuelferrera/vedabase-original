@@ -1,0 +1,14 @@
+### SB 3.17.15
+
+> dṛṣṭvānyāṁś ca mahotpātān
+> atat-tattva-vidaḥ prajāḥ
+> brahma-putrān ṛte bhītā
+> menire viśva-samplavam
+
+*dṛṣṭvā*—having seen; *anyān*—others; *ca*—and; *mahā*—great; *utpātān*—evil omens; *a-tat-tattva-vidaḥ*—not knowing the secret (of the portents); *prajāḥ*—people; *brahma-putrān*—the sons of Brahmā (the four Kumāras); *ṛte*—except; *bhītāḥ*—being fearful; *menire*—thought; *viśva-samplavam*—the dissolution of the universe.
+
+**Marking these and many other omens of evil times, everyone but the four sage—sons of Brahmā, who were aware of the fall of Jaya and Vijaya and of their birth as Diti's sons, was seized with fear. They did not know the secrets of these portents and thought that the dissolution of the universe was at hand.**
+
+According to *Bhagavad-gītā,* Seventh Chapter, the laws of nature are so stringent that it is impossible for the living entity to surpass their enforcement. It is also explained that only those who are fully surrendered to Kṛṣṇa in Kṛṣṇa consciousness can be saved. We can learn from the description of the *Śrīmad-Bhāgavatam* that it is because of the birth of two great demons that there were so many natural disturbances. It is to be indirectly understood, as previously described, that when there are constant disturbances on the earth, that is an omen that some demoniac people have been born or that the demoniac population has increased. In former days there were only two demons—those born of Diti—yet there were so many disturbances. At the present day, especially in this age of Kali, these disturbances are always visible, which indicates that the demoniac population has certainly increased.
+
+To check the increase of demoniac population, the Vedic civilization enacted so many rules and regulations of social life, the most important of which is the *garbhādhāna* process for begetting good children. In *Bhagavad-gītā* Arjuna informed Kṛṣṇa that if there is unwanted population (*varṇa-saṅkara*), the entire world will appear to be hell. People are very anxious for peace in the world, but there are so many unwanted children born without the benefit of the *garbhādhāna* ceremony, just like the demons born from Diti. Diti was so lusty that she forced her husband to copulate at a time which was inauspicious, and therefore the demons were born to create disturbances. In having sex life to beget children, one should observe the process for begetting nice children; if each and every householder in every family observes the Vedic system, then there are nice children, not demons, and automatically there is peace in the world. If we do not follow regulations in life for social tranquillity, we cannot expect peace. Rather, we will have to undergo the stringent reactions of natural laws.

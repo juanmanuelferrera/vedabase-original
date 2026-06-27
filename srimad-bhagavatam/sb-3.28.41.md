@@ -1,0 +1,16 @@
+### SB 3.28.41
+
+> bhūtendriyāntaḥ-karaṇāt
+> pradhānāj jīva-saṁjñitāt
+> ātmā tathā pṛthag draṣṭā
+> bhagavān brahma-saṁjñitaḥ
+
+*bhūta*—the five elements; *indriya*—the senses; *antaḥ-karaṇāt*—from the mind; *pradhānāt*—from the *pradhāna*; *jīva-saṁjñitāt*—from the *jīva* soul; *ātmā*—the Paramātmā; *tathā*—so; *pṛthak*—different; *draṣṭā*—the seer; *bhagavān*—the Personality of Godhead; *brahma-saṁjñitaḥ*—called Brahman.
+
+**The Supreme Personality of Godhead, who is known as Parambrahma, is the seer. He is different from the jīva soul, or individual living entity, who is combined with the senses, the five elements and consciousness.**
+
+A clear conception of the complete whole is given herewith. The living entity is different from the material elements, and the supreme living entity, the Personality of Godhead, who is the creator of the material elements, is also different from the individual living entity. This philosophy is propounded by Lord Caitanya as *acintya-bhedābheda-tattva.* Everything is simultaneously one with and different from everything else. The cosmic manifestation created by the Supreme Lord by His material energy is also simultaneously different and nondifferent from Him. The material energy is nondifferent from the Supreme Lord, but at the same time, because that energy is acting in a different way, it is different from Him. Similarly, the individual living entity is one with and different from the Supreme Lord. This "simultaneously one and different" philosophy is the perfect conclusion of the *Bhāgavata* school, as confirmed here by Kapiladeva.
+
+Living entities are compared to the sparks of a fire. As stated in the previous verse, fire, flame, smoke and firewood are combined together. Here the living entity, the material elements and the Supreme Personality of Godhead are combined together. The exact position of the living entities is just like that of the sparks of a fire; they are part and parcel. The material energy is compared to the smoke. The fire is also part and parcel of the Supreme Lord. In the *Viṣṇu Purāṇa* it is said that whatever we can see or experience, either in the material or spiritual world, is an expansion of the different energies of the Supreme Lord. As fire distributes its light and heat from one place, the Supreme Personality of Godhead distributes His different energies all over His creation.
+
+The four principles of the Vaiṣṇava philosophic doctrine are *śuddha-advaita* (purified oneness), *dvaita-advaita* (simultaneous oneness and difference), *viśiṣṭa-advaita* and *dvaita.* All four principles of Vaiṣṇava philosophy are based on the thesis of *Śrīmad-Bhāgavatam* explained in these two verses.

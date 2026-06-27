@@ -1,0 +1,8 @@
+### CC Madhya 25.73
+
+> śreṣṭha hañā kene kara hīnera vandana
+> āmāra sarva-nāśa haya, tumi brahma-sama
+
+*śreṣṭha hañā*—being a more honorable person; *kene*—why; *kara*—you do; *hīnera*—of an inferior person; *vandana*—worship; *āmāra sarva-nāśa haya*—I become minimized in My strength; *tumi brahma-sama*—you are equal with the impersonal Brahman.
+
+**Śrī Caitanya Mahāprabhu continued, "You are a great, spiritually advanced personality, and therefore you cannot worship a person like Me. I am far inferior. If you do so, My spiritual power will be diminished, for you are as good as the impersonal Brahman.**

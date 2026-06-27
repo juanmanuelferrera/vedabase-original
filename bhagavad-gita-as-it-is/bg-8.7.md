@@ -1,0 +1,12 @@
+### Bg 8.7
+
+> tasmāt sarveṣu kāleṣu
+> mām anusmara yudhya ca
+> mayy arpita-mano-buddhir
+> mām evaiṣyasy asaṁśayaḥ
+
+*tasmāt*—therefore; *sarveṣu*—always; *kāleṣu*—time; *mām*—unto Me; *anusmara*—go on remembering; *yudhya*—fight; *ca*—also; *mayi*—unto Me; *arpita*—surrender; *manaḥ*—mind; *buddhiḥ*—intellect; *mām*—unto Me; *eva*—surely; *eṣyasi*—will attain; *asaṁśayaḥ*—beyond a doubt.
+
+**Therefore, Arjuna, you should always think of Me in the form of Kṛṣṇa and at the same time carry out your prescribed duty of fighting. With your activities dedicated to Me and your mind and intelligence fixed on Me, you will attain Me without doubt.**
+
+This instruction to Arjuna is very important for all men engaged in material activities. The Lord does not say that one should give up his prescribed duties or engagements. One can continue them and at the same time think of Kṛṣṇa by chanting Hare Kṛṣṇa. This will free one from material contamination and engage the mind and intelligence in Kṛṣṇa. By chanting Kṛṣṇa's names, one will be transferred to the supreme planet, Kṛṣṇaloka, without a doubt.

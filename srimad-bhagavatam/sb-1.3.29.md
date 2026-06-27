@@ -1,0 +1,12 @@
+### SB 1.3.29
+
+> janma guhyaṁ bhagavato
+> ya etat prayato naraḥ
+> sāyaṁ prātar gṛṇan bhaktyā
+> duḥkha-grāmād vimucyate
+
+*janma*—birth; *guhyam*—mysterious; *bhagavataḥ*—of the Lord; *yaḥ*—one; *etat*—all these; *prayataḥ*—carefully; *naraḥ*—man; *sāyam*—evening; *prātaḥ*—morning; *gṛṇan*—recites; *bhaktyā*—with devotion; *duḥkha-grāmāt*—from all miseries; *vimucyate*—gets relief from.
+
+**Whoever carefully recites the mysterious appearances of the Lord, with devotion in the morning and in the evening, gets relief from all miseries of life.**
+
+In the Bhagavad-gītā, the Personality of Godhead has declared that anyone who knows the principles of the transcendental birth and activities of the Lord will go back to Godhead after being relieved from this material tabernacle. So simply knowing factually the mysterious way of the Lord's incarnation in this material world can liberate one from material bondage. Therefore the birth and activities of the Lord, as manifested by Him for the welfare of the people in general, are not ordinary. They are mysterious, and only by those who carefully try to go deep into the matter by spiritual devotion is the mystery discovered. Thus one gets liberation from the material bondage. It is advised therefore that one who simply recites this chapter of Bhāgavatam, describing the appearance of the Lord in different incarnations, in sincerity and devotion, can have insight into such birth and activities of the Lord. The very word vimukti, or liberation, indicates that the Lord's birth and activities are all transcendental; otherwise simply by reciting them one could not attain liberation. They are therefore mysterious, and those who do not follow the prescribed regulations of devotional service are not entitled to enter into the mysteries of His births and activities.

@@ -1,0 +1,8 @@
+### CC Madhya 9.176
+
+> tina dina bhikṣā dila kari' nimantraṇa
+> nibhṛte vasi' gupta-vārtā kahe dui jana
+
+*tina dina*—for three days; *bhikṣā dila*—offered alms; *kari' nimantraṇa*—inviting Him; *nibhṛte*—in a solitary place; *vasi'*—sitting together; *gupta-vārtā*—confidential talks; *kahe*—speak; *dui jana*—both of them.
+
+**Lord Śiva, dressed like a brāhmaṇa, gave alms to Śrī Caitanya Mahāprabhu and invited Him to spend three days in a solitary place. Sitting there together, they talked very confidentially.**

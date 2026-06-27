@@ -1,0 +1,14 @@
+### SB 1.3.40
+
+> idaṁ bhāgavataṁ nāma
+> purāṇaṁ brahma-sammitam
+> uttama-śloka-caritaṁ
+> cakāra bhagavān ṛṣiḥ
+> niḥśreyasāya lokasya
+> dhanyaṁ svasty-ayanaṁ mahat
+
+*idam*—this; *bhāgavatam*—book containing the narration of the Personality of Godhead and His pure devotees; *nāma*—of the name; *purāṇam*—supplementary to the *Vedas*; *brahma-sammitam*—incarnation of Lord Śrī Kṛṣṇa; *uttama-śloka*—of the Personality of Godhead; *caritam*—activities; *cakāra*—compiled; *bhagavān*—incarnation of the Personality of Godhead; *ṛṣiḥ*—Śrī Vyāsadeva; *niḥśreyasāya*—for the ultimate good; *lokasya*—of all people; *dhanyam*—fully successful; *svasti-ayanam*—all-blissful; *mahat*—all-perfect.
+
+**This Śrīmad-Bhāgavatam is the literary incarnation of God, and it is compiled by Śrīla Vyāsadeva, the incarnation of God. It is meant for the ultimate good of all people, and it is all-successful, all-blissful and all-perfect.**
+
+Lord Śrī Caitanya Mahāprabhu declared that Śrīmad-Bhāgavatam is the spotless sound representation of all Vedic knowledge and history. There are selected histories of great devotees who are in direct contact with the Personality of Godhead. Śrīmad-Bhāgavatam is the literary incarnation of Lord Śrī Kṛṣṇa and is therefore nondifferent from Him. Śrīmad-Bhāgavatam should be worshiped as respectfully as we worship the Lord. Thereby we can derive the ultimate blessings of the Lord through its careful and patient study. As God is all light, all bliss and all perfection, so also is Śrīmad-Bhāgavatam. We can have all the transcendental light of the Supreme Brahman Śrī Kṛṣṇa from the recitation of Śrīmad-Bhāgavatam, provided it is received through the medium of the transparent spiritual master. Lord Caitanya's private secretary Śrīla Svarūpa Dāmodara Gosvāmī advised all intending visitors who came to see the Lord at Purī to make a study of the Bhāgavatam from the person Bhāgavatam. Person Bhāgavatam is the self-realized bona fide spiritual master, and through him only can one understand the lessons of Bhāgavatam in order to receive the desired result. One can derive from the study of the Bhāgavatam all benefits that are possible to be derived from the personal presence of the Lord. It carries with it all the transcendental blessings of Lord Śrī Kṛṣṇa that we can expect from His personal contact.

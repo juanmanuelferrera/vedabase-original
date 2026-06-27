@@ -1,0 +1,12 @@
+### SB 3.22.11
+
+> tat pratīccha dvijāgryemāṁ
+> śraddhayopahṛtāṁ mayā
+> sarvātmanānurūpāṁ te
+> gṛhamedhiṣu karmasu
+
+*tat*—therefore; *pratīccha*—please accept; *dvija-agrya*—O best of the *brāhmaṇas*; *imām*—her; *śraddhayā*—with faith; *upahṛtām*—offered as a presentation; *mayā*—by me; *sarva-ātmanā*—in every way; *anurūpām*—suitable; *te*—for you; *gṛha-medhiṣu*—in the household; *karmasu*—duties.
+
+**Therefore please accept her, O chief of the brāhmaṇas, for I offer her with faith and she is in every respect fit to be your wife and take charge of your household duties.**
+
+The words *gṛhamedhiṣu karmasu* mean "in household duties." Another word is also used here: *sarvātmanānurūpām.* The purport is that a wife should not only be equal to her husband in age, character and qualities, but must be helpful to him in his household duties. The household duty of a man is not to satisfy his sense gratification, but to remain with a wife and children and at the same time attain advancement in spiritual life. One who does not do so is not a householder but a *gṛhamedhī.* Two words are used in Sanskrit literature; one is *gṛhastha,* and the other is *gṛhamedhī.* The difference between *gṛhamedhī* and *gṛhastha* is that *gṛhastha* is also an *āśrama,* or spiritual order, but if one simply satisfies his senses as a householder, then he is a *gṛhamedhī.* For a *gṛhamedhī,* to accept a wife means to satisfy the senses, but for a *gṛhastha* a qualified wife is an assistant in every respect for advancement in spiritual activities. It is the duty of the wife to take charge of household affairs and not to compete with the husband. A wife is meant to help, but she cannot help her husband unless he is completely equal to her in age, character and quality.

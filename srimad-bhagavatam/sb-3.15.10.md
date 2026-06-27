@@ -1,0 +1,12 @@
+### SB 3.15.10
+
+> eṣa deva diter garbha
+> ojaḥ kāśyapam arpitam
+> diśas timirayan sarvā
+> vardhate 'gnir ivaidhasi
+
+*eṣaḥ*—this; *deva*—O lord; *diteḥ*—of Diti; *garbhaḥ*—womb; *ojaḥ*—semen; *kāśyapam*—of Kaśyapa; *arpitam*—deposited; *diśaḥ*—directions; *timirayan*—causing complete darkness; *sarvāḥ*—all; *vardhate*—overloads; *agniḥ*—fire; *iva*—as; *edhasi*—fuel.
+
+**As fuel overloads a fire, so the embryo created by the semen of Kaśyapa in the womb of Diti has caused complete darkness throughout the universe.**
+
+The darkness throughout the universe is explained herewith as being caused by the embryo created in the womb of Diti by the semen of Kaśyapa.

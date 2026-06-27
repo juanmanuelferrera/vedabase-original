@@ -1,0 +1,14 @@
+### SB 4.11.19
+
+> so 'nanto 'nta-karaḥ kālo
+> 'nādir ādi-kṛd avyayaḥ
+> janaṁ janena janayan
+> mārayan mṛtyunāntakam
+
+*saḥ*—He; *anantaḥ*—infinite; *anta-karaḥ*—annihilator; *kālaḥ*—time; *anādiḥ*—without beginning; *ādi-kṛt*—beginning of everything; *avyayaḥ*—without decrease; *janam*—living entities; *janena*—by living entities; *janayan*—causing to be born; *mārayan*—killing; *mṛtyunā*—by death; *antakam*—killers.
+
+**My dear Dhruva, the Supreme Personality of Godhead is ever existing. In the form of time, He is the killer of everything. He has no beginning, although He is the beginning of everything, nor is He ever exhaustible, although everything is exhausted in due course of time. The living entities are created through the agency of the father, and they are killed through the agency of death, but He is perpetually free of birth and death.**
+
+The supreme authority and inconceivable power of the Supreme Personality of Godhead can be minutely studied from this verse. He is always unlimited. That means that He has no creation or end. He is, however, death (in the form of time), as described in Bhagavad-gītā. Kṛṣṇa says, "I am death. I take away everything at the end of life." Eternal time is also without beginning, but it is the creator of all creatures. The example is given of touchstone, which creates many valuable stones and jewels but does not decrease in power. Similarly, creation occurs many times, everything is maintained, and, after a time, everything is annihilated—but the original creator, the Supreme Lord, remains untouched and undiminished in power. The secondary creation is made by Brahmā, but Brahmā is created by the Supreme Godhead. Lord Śiva annihilates the whole creation, but at the end he is also annihilated by Viṣṇu. Lord Viṣṇu remains. In the Vedic hymns it is stated that in the beginning there is only Viṣṇu and that He alone remains at the end.
+
+An example can help us to understand the inconceivable potency of the Supreme Lord. In the recent history of warfare the Supreme Personality of Godhead created a Hitler and, before that, a Napoleon Bonaparte, and they each killed many living entities in war. But in the end Bonaparte and Hitler were also killed. People are still very much interested in writing and reading books about Hitler and Bonaparte and how they killed so many people in war. Year after year many books are published for public reading regarding Hitler's killing thousands of Jews in confinement. But no one is researching who killed Hitler and who created such a gigantic killer of human beings. The devotees of the Lord are not much interested in the study of the flickering history of the world. They are interested only in He who is the original creator, maintainer and annihilator. That is the purpose of the Kṛṣṇa consciousness movement.

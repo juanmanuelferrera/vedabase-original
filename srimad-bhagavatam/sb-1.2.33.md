@@ -1,0 +1,12 @@
+### SB 1.2.33
+
+> asau guṇamayair bhāvair
+> bhūta-sūkṣmendriyātmabhiḥ
+> sva-nirmiteṣu nirviṣṭo
+> bhuṅkte bhūteṣu tad-guṇān
+
+*asau*—that Paramātmā; *guṇa-mayaiḥ*—influenced by the modes of nature; *bhāvaiḥ*—naturally; *bhūta*—created; *sūkṣma*—subtle; *indriya*—senses; *ātmabhiḥ*—by the living beings; *sva-nirmiteṣu*—in His own creation; *nirviṣṭaḥ*—entering; *bhuṅkte*—causes to enjoy; *bhūteṣu*—in the living entities; *tat-guṇān*—those modes of nature.
+
+**The Supersoul enters into the bodies of the created beings who are influenced by the modes of material nature and causes them to enjoy the effects of these by the subtle mind.**
+
+There are 8,400,000 species of living beings beginning from the highest intellectual being Brahmā down to the insignificant ant, and all of them are enjoying the material world according to the desires of the subtle mind and gross material body. The gross material body is based on the conditions of the subtle mind, and the senses are created according to the desire of the living being. The Lord as Paramātmā helps the living being to get material happiness because the living being is helpless in all respects to obtain what he desires. He proposes and the Lord disposes. In another sense, the living beings are parts and parcels of the Lord. They are therefore one with the Lord. In the Bhagavad-gītā the living beings in all varieties of bodies have been claimed by the Lord as His sons. The sufferings and enjoyments of the sons are indirectly the suffering and enjoyments of the father. Still the father is not in any way affected directly by the suffering and enjoyment of the sons. He is so kind that He constantly remains with the living being as Paramātmā and always tries to convert the living being towards the real happiness.

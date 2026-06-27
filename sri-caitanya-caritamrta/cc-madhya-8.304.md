@@ -1,0 +1,8 @@
+### CC Madhya 8.304
+
+> sahaje caitanya-caritra—ghana-dugdha-pūra
+> rāmānanda-caritra tāhe khaṇḍa pracura
+
+*sahaje*—generally; *caitanya-caritra*—the activities of Śrī Caitanya Mahāprabhu; *ghana-dugdha-pūra*—like condensed milk; *rāmānanda-caritra*—the story of Rāmānanda Rāya; *tāhe*—in that; *khaṇḍa*—sugar candy; *pracura*—a large quantity.
+
+**The activities of Śrī Caitanya Mahāprabhu are like condensed milk, and the activities of Rāmānanda Rāya are like large quantities of sugar candy.**

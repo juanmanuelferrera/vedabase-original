@@ -1,0 +1,24 @@
+### SB 4.6.53
+
+> eṣa te rudra bhāgo 'stu
+> yad-ucchiṣṭo 'dhvarasya vai
+> yajñas te rudra bhāgena
+> kalpatām adya yajña-han
+
+*eṣaḥ*—this; *te*—your; *rudra*—O Lord Śiva; *bhāgaḥ*—portion; *astu*—let it be; *yat*—whatever; *ucchiṣṭaḥ*—is the remainder; *adhvarasya*—of the sacrifice; *vai*—indeed; *yajñaḥ*—the sacrifice; *te*—your; *rudra*—O Rudra; *bhāgena*—by the portion; *kalpatām*—may be completed; *adya*—today; *yajña-han*—O destroyer of the sacrifice.
+
+**O destroyer of the sacrifice, please take your portion of the sacrifice and let the sacrifice be completed by your grace.**
+
+A sacrifice is a ceremony performed to please the Supreme Personality of Godhead. In the Śrīmad-Bhāgavatam, First Canto, Second Chapter, it is stated that everyone should try to understand whether the Supreme Personality of Godhead is satisfied by his activity. In other words, the aim of our activities should be to satisfy the Supreme Personality of Godhead. Just as in an office it is the duty of the worker to see that the proprietor or the master is satisfied, so everyone's duty is to see whether the Supreme Personality of Godhead is satisfied by one's activity. Activities to satisfy the Supreme Godhead are prescribed in the Vedic literature, and execution of such activities is called yajña. In other words, acting on behalf of the Supreme Lord is called yajña. One should know very well that any activity besides yajña is the cause of material bondage. That is explained in Bhagavad-gītā, Third Chapter, ninth verse: yajñārthāt karmaṇo 'nyatra loko 'yaṁ karma-bandhanaḥ. Karma-bandhanaḥ means that if we do not work for the satisfaction of the Supreme Lord, Viṣṇu, then the reaction of our work will bind us. One should not work for his own sense gratification. Everyone should work for the satisfaction of God. That is called yajña.
+
+After the yajña was performed by Dakṣa, all the demigods expected prasādam, the remnants of foodstuffs offered to Viṣṇu. Lord Śiva is one of the demigods, so naturally he also expected his share of the prasādam from the yajña. But Dakṣa, out of his envy for Lord Śiva, did not invite Śiva to participate in the yajña nor did he give him his share after the offering. But after the destruction of the yajña arena by the followers of Lord Śiva, Lord Brahmā pacified him and assured him that he would get his share of prasādam. Thus he was requested to rectify whatever destruction was caused by his followers.
+
+In Bhagavad-gītā Third Chapter, eleventh verse, it is said that all the demigods are satisfied when one performs yajña. Because the demigods expect prasādam from yajñas, yajña must be performed. Those who engage in sense gratificatory materialistic activities must perform yajña, otherwise they will be implicated. Thus Dakṣa, being the father of mankind, was performing yajña, and Lord Śiva expected his share. But since he was not invited, there was trouble. By the mediation of Lord Brahmā, however, everything was settled satisfactorily.
+
+The performance of yajña is a very difficult task because all the demigods must be invited to participate in the yajña. In this Kali-yuga it is not possible to perform such costly sacrifices, nor is it possible to invite the demigods to participate. Therefore in this age it is recommended, yajñaiḥ saṅkīrtana-prāyair yajanti hi sumedhasaḥ (Bhāg. 11.5.32). Those who are intelligent should know that in the Kali-yuga there is no possibility of performing the Vedic sacrifices. But unless one pleases the demigods, there will be no regulated seasonal activities or rainfall. Everything is controlled by the demigods. Under the circumstances, in this age, in order to keep the balance of social peace and prosperity, all intelligent men should execute the performance of saṅkīrtana-yajña by chanting the holy names Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. One should invite people, chant Hare Kṛṣṇa, and then distribute prasādam. This yajña will satisfy all the demigods, and thus there will be peace and prosperity in the world. Another difficulty in performing the Vedic rituals is that if one fails to satisfy even one demigod out of the many hundreds of thousands of demigods, just as Dakṣa failed to satisfy Lord Śiva, there will be disaster. But in this age the performance of sacrifice has been simplified. One can chant Hare Kṛṣṇa, and by pleasing Kṛṣṇa one can satisfy all the demigods automatically.
+
+Thus end the Bhaktivedanta purports of the Fourth Canto, Sixth Chapter, of the Śrīmad-Bhāgavatam, entitled "Brahmā Satisfies Lord Śiva."
+
+SB 4.7: The Sacrifice Performed by Dakṣa
+
+7. The Sacrifice Performed by Dakṣa

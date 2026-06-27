@@ -1,0 +1,12 @@
+### SB 3.30.18
+
+> evaṁ kuṭumba-bharaṇe
+> vyāpṛtātmājitendriyaḥ
+> mriyate rudatāṁ svānām
+> uru-vedanayāsta-dhīḥ
+
+*evam*—thus; *kuṭumba-bharaṇe*—in maintaining a family; *vyāpṛta*—engrossed; *ātmā*—his mind; *ajita*—uncontrolled; *indriyaḥ*—his senses; *mriyate*—he dies; *rudatām*—while crying; *svānām*—his relatives; *uru*—great; *vedanayā*—with pain; *asta*—bereft of; *dhīḥ*—consciousness.
+
+**Thus the man, who engaged with uncontrolled senses in maintaining a family, dies in great grief, seeing his relatives crying. He dies most pathetically, in great pain and without consciousness.**
+
+In *Bhagavad-gītā* it is said that at the time of death one will be absorbed in the thoughts which he cultivated during his lifetime. A person who had no other idea than to properly maintain his family members must have family affairs in his last thoughts. That is the natural sequence for a common man. The common man does not know the destiny of his life; he is simply busy in his flash of life, maintaining his family. At the last stage, no one is satisfied with how he has improved the family economic condition; everyone thinks that he could not provide sufficiently. Because of his deep family affection, he forgets his main duty of controlling the senses and improving his spiritual consciousness. Sometimes a dying man entrusts the family affairs to either his son or some relative, saying, "I am going. Please look after the family." He does not know where he is going, but even at the time of death he is anxious about how his family will be maintained. Sometimes it is seen that a dying man requests the physician to increase his life at least for a few years so that the family maintenance plan which he has begun can be completed. These are the material diseases of the conditioned soul. He completely forgets his real engagement—to become Kṛṣṇa conscious—and is always serious about planning to maintain his family, although he changes families one after another.

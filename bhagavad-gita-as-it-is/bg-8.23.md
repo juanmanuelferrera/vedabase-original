@@ -1,0 +1,14 @@
+### Bg 8.23
+
+> yatra kāle tv anāvṛttim
+> āvṛttiṁ caiva yoginaḥ
+> prayātā yānti taṁ kālaṁ
+> vakṣyāmi bharatarṣabha
+
+*yatra*—in that; *kāle*—time; *tu*—but; *anāvṛttim*—no return; *āvṛttim*—return; *ca*—also; *eva*—certainly; *yoginaḥ*—of different kinds of mystics; *prayātāḥ*—one who goes; *yānti*—departs; *tam*—that; *kālam*—time; *vakṣyāmi*—describing; *bharatarṣabha*—O best of the Bhāratas.
+
+**O best of the Bhāratas, I shall now explain to you the different times at which, passing away from this world, one does or does not come back.**
+
+The unalloyed devotees of the Supreme Lord who are totally surrendered souls do not care when they leave their bodies or by what method. They leave everything in Kṛṣṇa's hands and so easily and happily return to Godhead. But those who are not unalloyed devotees and who depend instead on such methods of spiritual realization as *karma-yoga, jñāna-yoga, haṭha-yoga,* etc., must leave the body at a suitable time and thereby be assured whether or not they will return to the world of birth and death.
+
+If the *yogī* is perfect, he can select the time and place for leaving this material world, but if he is not so perfect, then he has to leave at nature's will. The most suitable time to leave the body and not return is being explained by the Lord in these verses. According to Ācārya Baladeva Vidyābhūṣaṇa, the Sanskrit word *kāla* used herein refers to the presiding deity of time.

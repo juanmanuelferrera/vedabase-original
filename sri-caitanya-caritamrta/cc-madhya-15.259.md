@@ -1,0 +1,8 @@
+### CC Madhya 15.259
+
+> prabhu-pade paḍi' bahu ātma-nindā kaila
+> tāṅre śānta kari' prabhu ghare pāṭhāila
+
+*prabhu-pade*—at the feet of Lord Śrī Caitanya Mahāprabhu; *paḍi'*—falling down; *bahu*—much; *ātma-nindā kaila*—made self-reproach; *tāṅre*—him; *śānta kari'*—making pacified; *prabhu*—Śrī Caitanya Mahāprabhu; *ghare pāṭhāila*—sent back to his home.
+
+**Falling down at the Lord's feet, Sārvabhauma Bhaṭṭācārya said many things in self-reproach. The Lord then pacified him and sent him back to his home.**

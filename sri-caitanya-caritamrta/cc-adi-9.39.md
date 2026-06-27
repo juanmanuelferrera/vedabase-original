@@ -1,0 +1,10 @@
+### CC Adi 9.39
+
+> ataeva saba phala deha' yāre tāre
+> khāiyā ha-uk loka ajara amare
+
+*ataeva*—therefore; *saba*—all; *phala*—fruits; *deha'*—distribute; *yāre tāre*—to everyone and anyone; *khāiyā*—eating; *ha-uk*—let them become; *loka*—all people; *ajara*—without old age; *amare*—without death.
+
+**"Distribute this Kṛṣṇa consciousness movement all over the world. Let people eat these fruits and ultimately become free from old age and death.**
+
+The Kṛṣṇa consciousness movement introduced by Lord Caitanya is extremely important because one who takes to it becomes eternal, being freed from birth, death and old age. People do not recognize that the real distresses in life are the four principles of birth, death, old age and disease. They are so foolish that they resign themselves to these four miseries, not knowing the transcendental remedy of the Hare Kṛṣṇa *mahā-mantra.* Simply by chanting the Hare Kṛṣṇa *mahā-mantra,* one can become free from all misery, but because they are enchanted by the illusory energy, people do not take this movement seriously. Therefore those who are actually servants of Śrī Caitanya Mahāprabhu must seriously distribute this movement all over the world to render the greatest benefit to human society. Of course, animals and other lower species are not capable of understanding this movement, but if even a small number of living beings take it seriously, by their chanting loudly, all living entities, including even trees, animals and other lower species, will be benefited. When Śrī Caitanya Mahāprabhu inquired from Haridāsa Ṭhākura how he was to benefit living entities other than humans, Śrīla Haridāsa Ṭhākura replied that the Hare Kṛṣṇa *mahā-mantra* is so potent that if it is chanted loudly, everyone will benefit, including the lower species of life.

@@ -1,0 +1,26 @@
+### SB 8.5.28
+
+> ajasya cakraṁ tv ajayeryamāṇaṁ
+> manomayaṁ pañcadaśāram āśu
+> tri-nābhi vidyuc-calam aṣṭa-nemi
+> yad-akṣam āhus tam ṛtaṁ prapadye
+
+*ajasya*—of the living being; *cakram*—the wheel (the cycle of birth and death in this material world); *tu*—but; *ajayā*—by the external energy of the Supreme Lord; *īryamāṇam*—going around with great force; *manaḥ-mayam*—which is nothing but a mental creation depending chiefly on the mind; *pañcadaśa*—fifteen; *aram*—possessing spokes; *āśu*—very quick; *tri-nābhi*—having three naves (the three modes of material nature); *vidyut*—like electricity; *calam*—moving; *aṣṭa-nemi*—made of eight fellies (the eight external energies of the Lord—*bhūmir āpo 'nalo vāyuḥ,* etc.); *yat*—who; *akṣam*—the hub; *āhuḥ*—they say; *tam*—unto Him; *ṛtam*—the fact; *prapadye*—let us offer our respectful obeisances.
+
+**In the cycle of material activities, the material body resembles the wheel of a mental chariot. The ten senses [five for working and five for gathering knowledge] and the five life airs within the body form the fifteen spokes of the chariot's wheel. The three modes of nature [goodness, passion and ignorance] are its center of activities, and the eight ingredients of nature [earth, water, fire, air, sky, mind, intelligence and false ego] comprise the rim of the wheel. The external, material energy moves this wheel like electrical energy. Thus the wheel revolves very quickly around its hub or central support, the Supreme Personality of Godhead, who is the Supersoul and the ultimate truth. We offer our respectful obeisances unto Him.**
+
+The cycle of repeated birth and death is figuratively described herein. As stated in *Bhagavad-gītā* [[bg/7/5|(Bg. 7.5)]]:
+
+> apareyam itas tv anyāṁ
+> prakṛtiṁ viddhi me parām
+> jīva-bhūtāṁ mahā-bāho
+> yayedaṁ dhāryate jagat
+
+The entire world is going on because the living entity, who is part and parcel of the Supreme Lord, is utilizing the material energy. Under the clutches of the material energy, the *jīvātmā* is revolving on the wheel of birth and death under the direction of the Supreme Personality of Godhead. The central point is the Supersoul. As explained in *Bhagavad-gītā* [[bg/18/61|(Bg. 18.61)]]:
+
+> īśvaraḥ sarva-bhūtānāṁ
+> hṛd-deśe 'rjuna tiṣṭhati
+> bhrāmayan sarva-bhūtāni
+> yantrārūḍhāni māyayā
+
+"The Supreme Lord is situated in everyone's heart, O Arjuna, and is directing the wanderings of all living entities, who are seated as on a machine, made of the material energy." The material body of the living entity is a result of the conditioned soul's activities, and because the supporter is the Supersoul, the Supersoul is the true reality. Every one of us, therefore, should offer respectful obeisances to this central reality. One should not be misguided by the activities of this material world and forget the central point, the Absolute Truth. That is the instruction given here by Lord Brahmā.

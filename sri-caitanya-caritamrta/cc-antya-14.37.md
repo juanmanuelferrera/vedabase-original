@@ -1,0 +1,17 @@
+### CC Antya 14.37
+
+> 'pāiluṅ vṛndāvana-nātha, punaḥ hārāiluṅ
+> ke mora nileka kṛṣṇa? kāhāṅ mui āinu'?
+
+*pāiluṅ*—I got; *vṛndāvana-nātha*—the Supreme Lord of Vṛndāvana; *punaḥ*—again; *hārāiluṅ*—I have lost; *ke*—who; *mora*—My; *nileka*—took away; *kṛṣṇa*—Lord Kṛṣṇa; *kāhāṅ*—where; *mui āinu*—have I come.
+
+**Śrī Caitanya Mahāprabhu said, "I found Kṛṣṇa, the Lord of Vṛndāvana, but I have lost Him again. Who has taken My Kṛṣṇa? Where have I come?"**
+
+These are the feelings of Śrīmatī Rādhārāṇī. First Lord Caitanya felt that He had been taken to Vṛndāvana, where He saw Kṛṣṇa's *rāsa* dance with the *gopīs.* Then He was brought to Kurukṣetra to see Lord Jagannātha, His sister (Subhadrā) and Lord Balarāma. Śrī Caitanya Mahāprabhu lost Vṛndāvana and Kṛṣṇa, the master of Vṛndāvana. At this time, Caitanya Mahāprabhu experienced *divyonmāda,* transcendental madness in separation from Kṛṣṇa. At Kurukṣetra, Kṛṣṇa displays His opulence, whereas in Vṛndāvana He is in His original position. Kṛṣṇa never goes even a step away from Vṛndāvana; therefore Kurukṣetra is less important for the *gopīs* than Vṛndāvana.
+
+Although devotees who worship Kṛṣṇa in opulence (His Vaikuṇṭha aspect) may prefer to see Lord Kṛṣṇa at Kurukṣetra along with Subhadrā and Balarāma, the *gopīs* want to see Kṛṣṇa in Vṛndāvana, performing the *rāsa* dance with Śrīmatī Rādhārāṇī. Śrī Caitanya Mahāprabhu showed by practical example how one can cultivate the mood of Rādhārāṇī and the other *gopīs* in separation from Kṛṣṇa. Devotees absorbed in this mood do not like to see Kṛṣṇa anywhere else but Vṛndāvana. Therefore Śrī Caitanya Mahāprabhu lamented, "I found Kṛṣṇa in Vṛndāvana, and now I have again lost Him and come to Kurukṣetra." Unless one is a very highly advanced devotee, he cannot understand these intricate feelings. The author of *Śrī Caitanya-caritāmṛta,* however, has tried to explain this *divyonmāda* as far as possible, and it is our duty simply to appreciate it as far as possible. Therefore the author has made the following request in verse 11:
+
+> tāte viśvāsa kari' śuna bhāvera varṇana
+> ha-ibe bhāvera jñāna, pāibā prema-dhana
+
+"My dear readers, simply try to hear this description with faith and love. That will help you to understand transcendental ecstasy, and at last you will achieve love of Godhead very easily."

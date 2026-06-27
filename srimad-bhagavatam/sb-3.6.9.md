@@ -1,0 +1,32 @@
+### SB 3.6.9
+
+> sādhyātmaḥ sādhidaivaś ca
+> sādhibhūta iti tridhā
+> virāṭ prāṇo daśa-vidha
+> ekadhā hṛdayena ca
+
+*sa-ādhyātmaḥ*—the body and mind with all the senses; *sa-ādhidaivaḥ*—and the controlling demigods of the senses; *ca*—and; *sa-ādhibhūtaḥ*—the present objectives; *iti*—thus; *tridhā*—three; *virāṭ*—gigantic; *prāṇaḥ*—moving force; *daśa-vidhaḥ*—ten kinds; *ekadhā*—one only; *hṛdayena*—living energy; *ca*—also.
+
+**The gigantic universal form is represented by three, ten and one in the sense that He is the body and the mind and the senses, He is the dynamic force for all movements by ten kinds of life energy, and He is the one heart where life energy is generated.**
+
+In *Bhagavad-gītā* (7.4-5) it is stated that the eight elements earth, water, fire, air, sky, mind, intelligence and false ego are all products of the Lord's inferior energy, whereas the living entities, who are seen to utilize the inferior energy, originally belong to the superior energy, the internal potency of the Lord. The eight inferior energies work grossly and subtly, whereas the superior energy works as the central generating force. This is experienced in the human body. The gross elements, namely, earth, etc., form the external gross body and are like a coat, whereas the subtle mind and false ego act like the inner clothing of the body.
+
+The movements of the body are first generated from the heart, and all the activities of the body are made possible by the senses, powered by the ten kinds of air within the body. The ten kinds of air are described as follows: The main air passing through the nose in breathing is called *prāṇa.* The air which passes through the rectum as evacuated bodily air is called *apāna.* The air which adjusts the foodstuff within the stomach and which sometimes sounds as belching is called *samāna.* The air which passes through the throat and the stoppage of which constitutes suffocation is called the *udāna* air. And the total air which circulates throughout the entire body is called the *vyāna* air. Subtler than these five airs, there are others also. That which facilitates the opening of the eyes, mouth, etc., is called *nāga* air. The air which increases appetite is called *kṛkara* air. The air which helps contraction is called *kūrma* air. The air which helps relaxation by opening the mouth wide (in yawning) is called *devadatta* air, and the air which helps sustenance is called *dhanañjaya* air.
+
+All these airs are generated from the center of the heart, which is one only. This central energy is superior energy of the Lord, who is seated within the heart with the soul of the body, who acts under the guidance of the Lord. This is explained in *Bhagavad-gītā* [[bg/15/15|(Bg. 15.15)]] as follows:
+
+> sarvasya cāhaṁ hṛdi sanniviṣṭo
+> mattaḥ smṛtir jñānam apohanaṁ ca
+> vedaiś ca sarvair aham eva vedyo
+> vedānta-kṛd veda-vid eva cāham
+
+The complete central force is generated from the heart by the Lord, who is seated there and who helps the conditioned soul in remembering and forgetting. The conditioned state is due to the soul's forgetfulness of his relationship of subordination to the Lord. One who wants to continue to forget the Lord is helped by the Lord to forget Him birth after birth, but one who remembers Him, by dint of association with a devotee of the Lord, is helped to remember Him more and more. Thus the conditioned soul can ultimately go back home, back to Godhead.
+
+This process of transcendental help by the Lord is described in *Bhagavad-gītā* [[bg/10/10|(Bg. 10.10)]] as follows:
+
+> teṣāṁ satata-yuktānāṁ
+> bhajatāṁ prīti-pūrvakam
+> dadāmi buddhi-yogaṁ taṁ
+> yena mām upayānti te
+
+The *buddhi-yoga* process of self-realization with intelligence transcendental to the mind (devotional service) can alone elevate one from the conditioned state of material entanglement in the cosmic construction. The conditioned state of the living entity is like that of a person who is within the depths of a huge mechanical arrangement. The mental speculators can reach the point of *buddhi-yoga* after many, many lifetimes of speculation, but the intelligent person who begins from the platform of intelligence above the mind makes rapid progress in self-realization. Because the *buddhi-yoga* process entails no fear of deterioration or retrogression at any time, it is the guaranteed path to self-realization, as confirmed in *Bhagavad-gītā* [[bg/2/40|(Bg. 2.40)]]. The mental speculators cannot understand that the two birds (*Śvetāśvatara Upaniṣad*) sitting in one tree are the soul and the Supersoul. The individual soul eats the fruit of the tree, while the other bird does not eat the fruit but only observes the activities of the eating bird. The witness bird helps the fruit-eating bird perform fruitful activities without attachment. One who cannot understand this difference between the soul and the Supersoul, or God and the living entities, is certainly still in the entanglement of the cosmic machinery and thus must still await the time when he will be free from bondage.

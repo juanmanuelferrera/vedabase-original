@@ -1,0 +1,12 @@
+### CC Adi 14.18
+
+> mahotsava kara, saba bolāha brāhmaṇa
+> āji dina bhāla,—kariba nāma-karaṇa
+
+*mahotsava*—a festival; *kara*—observe; *saba*—all; *bolāha*—call; *brāhmaṇa*—the *brāhmaṇas*; *āji*—today; *dina*—day; *bhāla*—auspicious; *kariba*—I shall perform; *nāma-karaṇa*—the name-giving ceremony.
+
+**"I propose to perform a name-giving ceremony. We should observe a festival and call for the brāhmaṇas because today is very auspicious.**
+
+It is a Vedic principle to observe a festival in connection with Nārāyaṇa and *brāhmaṇas.* Giving a child a particular name is among the purificatory processes known as *daśa-vidha-saṁskāra,* and on the day of such a ceremony one should observe a festival by worshiping Nārāyaṇa and distributing *prasāda,* chiefly among the *brāhmaṇas.*
+
+When Nīlāmbara Cakravartī, Śacīmātā and Jagannātha Miśra understood from the marks on the Lord's lotus feet that the child Nimāi was not an ordinary child but an incarnation of Nārāyaṇa, they decided that on that very same day, which was very auspicious, they should observe a festival for His name-giving ceremony. In this connection we can particularly see how an incarnation of the Supreme Personality of Godhead is ascertained by His bodily symptoms, His activities and the prediction of the *śāstras.* By factual evidence a person can be accepted as an incarnation of God, not whimsically or by the votes of rascals and fools. There have been many imitation incarnations in Bengal since the appearance of Lord Caitanya, but any impartial devotee or learned man can understand that Lord Caitanya Mahāprabhu was accepted as an incarnation of Kṛṣṇa not on the basis of popular votes but by evidence from the *śāstras* and bona fide scholars. It was not ordinary men who accepted Śrī Caitanya Mahāprabhu as the Supreme Personality of Godhead. In the beginning His identity was ascertained by learned scholars like Nīlāmbara Cakravartī, and later all His activities were confirmed by the six Gosvāmīs, especially Śrīla Jīva Gosvāmī and Śrīla Rūpa Gosvāmī, and many other learned scholars, with evidence from the *śāstra.* An incarnation of God is such from the very beginning of His life. It is not that by performing meditation one can become an incarnation of God all of a sudden. Such false incarnations are meant for fools and rascals, not sane men.

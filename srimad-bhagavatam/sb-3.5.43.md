@@ -1,0 +1,12 @@
+### SB 3.5.43
+
+> viśvasya janma-sthiti-saṁyamārthe
+> kṛtāvatārasya padāmbujaṁ te
+> vrajema sarve śaraṇaṁ yad īśa
+> smṛtaṁ prayacchaty abhayaṁ sva-puṁsām
+
+*viśvasya*—of the cosmic universe; *janma*—creation; *sthiti*—maintenance; *saṁyama-arthe*—for the dissolution also; *kṛta*—accepted or assumed; *avatārasya*—of the incarnations; *pada-ambujam*—lotus feet; *te*—Your; *vrajema*—let us take shelter of; *sarve*—all of us; *śaraṇam*—shelter; *yat*—that which; *īśa*—O Lord; *smṛtam*—remembrance; *prayacchati*—awarding; *abhayam*—courage; *sva-puṁsām*—of the devotees.
+
+**O Lord, You assume incarnations for the creation, maintenance and dissolution of the cosmic manifestation, and therefore we all take shelter of Your lotus feet because they always award remembrance and courage to Your devotees.**
+
+For the creation, maintenance and dissolution of the cosmic manifestations there are three incarnations: Brahmā, Viṣṇu and Maheśvara (Lord Śiva). They are the controllers or masters of the three modes of material nature, which cause the phenomenal manifestation. Viṣṇu is the master of the mode of goodness, Brahmā is the master of the mode of passion, and Maheśvara is the master of the mode of ignorance. There are different kinds of devotees according to the modes of nature. Persons in the mode of goodness worship Lord Viṣṇu, those in the mode of passion worship Lord Brahmā, and those in the mode of ignorance worship Lord Śiva. All three of these deities are incarnations of the Supreme Lord Kṛṣṇa because He is the original Supreme Personality of Godhead. The demigods directly refer to the lotus feet of the Supreme Lord and not to the different incarnations. The incarnation of Viṣṇu in the material world is, however, directly worshiped by the demigods. It is learned from various scriptures that the demigods approach Lord Viṣṇu in the ocean of milk and submit their grievances whenever there is some difficulty in the administration of universal affairs. Although they are incarnations of the Lord, Lord Brahmā and Lord Śiva worship Lord Viṣṇu, and thus they are also counted amongst the demigods and not as the Supreme Personality of Godhead. Persons who worship Lord Viṣṇu are called demigods, and persons who do not do so are called *asuras,* or demons. Viṣṇu always takes the part of the demigods, but Brahmā and Śiva sometimes take the side of the demons; it is not that they become one in interest with them, but sometimes they do something in order to gain control over the demons.

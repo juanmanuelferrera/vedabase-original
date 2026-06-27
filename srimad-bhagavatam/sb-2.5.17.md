@@ -1,0 +1,26 @@
+### SB 2.5.17
+
+> tasyāpi draṣṭur īśasya
+> kūṭa-sthasyākhilātmanaḥ
+> sṛjyaṁ sṛjāmi sṛṣṭo 'ham
+> īkṣayaivābhicoditaḥ
+
+*tasya*—His; *api*—certainly; *draṣṭuḥ*—of the seer; *īśasya*—of the controller; *kūṭa-sthasya*—of the one who is over everyone's intelligence; *akhila-ātmanaḥ*—of the Supersoul; *sṛjyam*—that which is already created; *sṛjāmi*—do I discover; *sṛṣṭaḥ*—created; *aham*—myself; *īkṣayā*—by glance over; *eva*—exactly; *abhicoditaḥ*—being inspired by Him.
+
+**Inspired by Him only, I discover what is already created by Him [Nārāyaṇa] under His vision as the all-pervading Supersoul, and I am also created by Him only.**
+
+Even Brahmā, the creator of the universe, admits that he is not the actual creator but is simply inspired by the Lord Nārāyaṇa and therefore creates under His superintendence those things which are already created by Him, the Supersoul of all living entities. Two identities of soul, the Supersoul and the individual soul, are admitted to be in the living entity, even by the greatest authority of the universe. The Supersoul is the Supreme Lord, the Personality of Godhead, whereas the individual soul is the eternal servitor of the Lord. The Lord inspires the individual soul to create what is already created by the Lord, and by the good will of the Lord a discoverer of something in the world is accredited as the discoverer. It is said that Columbus discovered the Western hemisphere, but actually the tract of land was not created by Columbus. The vast tract of land was already there by the omnipotency of the Supreme Lord, and Columbus, by dint of his past service unto the Lord, was blessed with the credit of discovering America. Similarly, no one can create anything without the sanction of the Lord, since everyone sees according to his ability. This ability is also awarded by the Lord according to one's willingness to render service unto the Lord. One must therefore be voluntarily willing to render service unto the Lord, and thus the Lord will empower the doer in proportion to his surrender unto the lotus feet of the Lord. Lord Brahmā is a great devotee of the Lord; therefore he has been empowered or inspired by the Lord to create a universe like the one manifested before us. The Lord also inspired Arjuna to fight in the field of Kurukṣetra as follows:
+
+tasmāt tvam uttiṣṭha yaśo labhasva
+
+jitvā śatrūn bhuṅkṣva rājyaṁ samṛddham
+
+mayaivaite nihatāḥ pūrvam eva
+
+nimitta-mātraṁ bhava savyasācin
+
+(Bg. 11.33)
+
+The Battle of Kurukṣetra, or any other battle at any place or at any time, is made by the will of the Lord, for no one can arrange such mass annihilation without the sanction of the Lord. The party of Duryodhana insulted Draupadī, a great devotee of Kṛṣṇa, and she appealed to the Lord as well as to all persons who were silent observers of this unwarranted insult. Arjuna was then advised by the Lord to fight and take credit; otherwise the party of Duryodhana would be killed anyway by the will of the Lord. So Arjuna was advised just to become the agent and take the credit for killing great generals like Bhīṣma, Karṇa, etc.
+
+In the Vedas such as the Kaṭha Upaniṣad, the Lord is described as the sarva-bhūta-antarātmā, or the Personality of Godhead who resides in everyone's body and who directs everything for one who is a surrendered soul unto Him. Those who are not surrendered souls are put under the care of the material nature (bhrāmayan sarva-bhūtāni yantrārūḍhāni māyayā); therefore, they are allowed to do things on their own account and suffer the consequences themselves. Devotees like Brahmā and Arjuna do not do anything on their own account, but as fully surrendered souls they always await indications from the Lord; therefore they attempt to do something which appears to be very wonderful to the ordinary vision. One of the Lord's names is Urukrama, or one whose actions are very wonderful and are beyond the imagination of the living being, so the actions of His devotees sometimes appear to be very wonderful due to the direction of the Lord. Beginning from Brahmā, the topmost intelligent living entity within the universe, down to the smallest ant, every living entity's intelligence is overseen by the Lord in His transcendental position as the witness of all actions. The subtle presence of the Lord is felt by the intelligent man who can study the psychic effects of thinking, feeling, and willing.

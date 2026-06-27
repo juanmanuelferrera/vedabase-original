@@ -1,0 +1,12 @@
+### SB 3.7.12
+
+> sa vai nivṛtti-dharmeṇa
+> vāsudevānukampayā
+> bhagavad-bhakti-yogena
+> tirodhatte śanair iha
+
+*saḥ*—that; *vai*—also; *nivṛtti*—detachment; *dharmeṇa*—by engagement; *vāsudeva*—the Supreme Personality of Godhead; *anukampayā*—by the mercy of; *bhagavat*—in relation with the Personality of Godhead; *bhakti-yogena*—by linking up; *tirodhatte*—diminishes; *śanaiḥ*—gradually; *iha*—in this existence.
+
+**But that misconception of self-identity can be diminished gradually by the mercy of the Personality of Godhead, Vāsudeva, through the process of devotional service to the Lord in the mode of detachment.**
+
+The quivering quality of material existence, which comes from identification with matter or from thinking oneself, under the material influence of philosophical speculation, to be God, can be eradicated by devotional service to the Lord, by the mercy of the Personality of Godhead, Vāsudeva. As discussed in the First Canto, because the application of devotional service to Lord Vāsudeva invites pure knowledge, it quickly detaches one from the material conception of life and thus revives one's normal condition of spiritual existence, even in this life, and frees one from the material winds which cause one to quiver. Only knowledge in devotional service can elevate one towards the path of liberation. The development of knowledge for the purpose of knowing everything, without rendering devotional service, is considered fruitless labor, and one cannot get the desired result by such labor of love. Lord Vāsudeva is pleased by devotional service only, and thus His mercy is realized by association with pure devotees of the Lord. Pure devotees of the Lord are transcendental to all material desires, including the desire for the results of fruitive activities and philosophical speculation. If one wants to acquire the mercy of the Lord, he has to associate with pure devotees. Such association alone can, by degrees, release one from the quivering elements.

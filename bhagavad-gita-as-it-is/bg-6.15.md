@@ -1,0 +1,14 @@
+### Bg 6.15
+
+> yuñjann evaṁ sadātmānaṁ
+> yogī niyata-mānasaḥ
+> śāntiṁ nirvāṇa-paramāṁ
+> mat-saṁsthām adhigacchati
+
+*yuñjan*—practicing like this; *evam*—as mentioned above; *sadā*—constantly; *ātmānam*—body, mind and soul; *yogī*—the mystic transcendentalist; *niyata-mānasaḥ*—regulated mind; *śāntim*—peace; *nirvāṇa-paramām*—cessation of material existence; *mat-saṁsthām*—in the spiritual sky (the kingdom of God); *adhigacchati*—does attain.
+
+**Thus practicing control of the body, mind and activities, the mystic transcendentalist attains to the kingdom of God [or the abode of Kṛṣṇa] by cessation of material existence.**
+
+The ultimate goal in practicing *yoga* is now clearly explained. *Yoga* practice is not meant for attaining any kind of material facility; it is to enable the cessation of all material existence. One who seeks an improvement in health or aspires after material perfection is no *yogī* according to *Bhagavad-gītā.* Nor does cessation of material existence entail one's entering into "the void," which is only a myth. There is no void anywhere within the creation of the Lord. Rather, the cessation of material existence enables one to enter into the spiritual sky, the abode of the Lord. The abode of the Lord is also clearly described in the *Bhagavad-gītā* as that place where there is no need of sun, moon, nor electricity. All the planets in the spiritual kingdom are self-illuminated like the sun in the material sky. The kingdom of God is everywhere, but the spiritual sky and the planets thereof are called *paraṁ dhāma,* or superior abodes.
+
+A consummate *yogī,* who is perfect in understanding Lord Kṛṣṇa, as is clearly stated herein (*mat-cittaḥ, mat-paraḥ, mat-sthānam*) by the Lord Himself, can attain real peace and can ultimately reach His supreme abode, the Kṛṣṇa-loka known as Goloka Vṛndāvana. In the *Brahma-saṁhitā* it is clearly stated (*goloka eva nivasaty akhilātma-bhūtaḥ*) that the Lord, although residing always in His abode called Goloka, is the all-pervading Brahman and the localized Paramātmā as well by dint of His superior spiritual energies. No one can reach the spiritual sky or enter into the eternal abode (Vaikuṇṭha Goloka Vṛndāvana) of the Lord without the proper understanding of Kṛṣṇa and His plenary expansion Viṣṇu. Therefore a person working in Kṛṣṇa consciousness is the perfect *yogī,* because his mind is always absorbed in Kṛṣṇa's activities. *Sa vai manaḥ kṛṣṇa-padāravindayoḥ.* In the *Vedas* also we learn: *tam eva viditvātimṛtyum eti:* "One can overcome the path of birth and death only by understanding the Supreme Personality of Godhead, Kṛṣṇa." In other words, perfection of the *yoga* system is the attainment of freedom from material existence and not some magical jugglery or gymnastic feats to befool innocent people.

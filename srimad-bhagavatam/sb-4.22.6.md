@@ -1,0 +1,12 @@
+### SB 4.22.6
+
+> hāṭakāsana āsīnān
+> sva-dhiṣṇyeṣv iva pāvakān
+> śraddhā-saṁyama-saṁyuktaḥ
+> prītaḥ prāha bhavāgrajān
+
+*hāṭaka-āsane*—on the throne made of gold; *āsīnān*—when they were seated; *sva-dhiṣṇyeṣu*—on the altar; *iva*—like; *pāvakān*—fire; *śraddhā*—respect; *saṁyama*—restraint; *saṁyuktaḥ*—being decorated with; *prītaḥ*—pleased; *prāha*—said; *bhava*—Lord Śiva; *agra-jān*—the elder brothers.
+
+**The four great sages were elder to Lord Śiva, and when they were seated on the golden throne, they appeared just like fire blazing on an altar. Mahārāja Pṛthu, out of his great gentleness and respect for them, began to speak with great restraint as follows.**
+
+The Kumāras are described herein as the elder brothers of Lord Śiva. When the Kumāras were born out of the body of Lord Brahmā they were requested to get married and increase the population. In the beginning of the creation there was a great need of population; therefore Lord Brahmā was creating one son after another and ordering them to increase. However, when the Kumāras were requested to do so, they declined. They wanted to remain brahmacārī throughout life and be engaged fully in the devotional service of the Lord. The Kumāras are called naiṣṭhika-brahmacārī, meaning they are never to marry. Because of their refusal to marry, Lord Brahmā became so angry that his eyes became reddish. Out of his eyes, Lord Śiva, or Rudra, appeared. The mode of anger is consequently known as rudra. Lord Śiva also has a sampradāya party, known as the Rudra-sampradāya, and they are also known as Vaiṣṇavas.

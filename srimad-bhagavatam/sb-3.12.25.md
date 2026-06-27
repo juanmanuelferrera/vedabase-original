@@ -1,0 +1,12 @@
+### SB 3.12.25
+
+> dharmaḥ stanād dakṣiṇato
+> yatra nārāyaṇaḥ svayam
+> adharmaḥ pṛṣṭhato yasmān
+> mṛtyur loka-bhayaṅkaraḥ
+
+*dharmaḥ*—religion; *stanāt*—from the breast; *dakṣiṇataḥ*—on the right side; *yatra*—wherein; *nārāyaṇaḥ*—the Supreme Lord; *svayam*—personally; *adharmaḥ*—irreligion; *pṛṣṭhataḥ*—from the back; *yasmāt*—from which; *mṛtyuḥ*—death; *loka*—to the living entity; *bhayam-karaḥ*—horrible.
+
+**Religion was manifested from the breast of Brahmā, wherein is seated the Supreme Personality of Godhead Nārāyaṇa, and irreligion appeared from his back, where horrible death takes place for the living entity.**
+
+That religion was manifested from the place where the Personality of Godhead is personally situated is very significant because religion means devotional service to the Personality of Godhead, as confirmed in *Bhagavad-gītā* as well as the *Bhāgavatam.* In *Bhagavad-gītā* the last instruction is to give up all other engagements in the name of religion and take shelter of the Personality of Godhead. *Śrīmad-Bhāgavatam* also confirms that the highest perfection of religion is that which leads to the devotional service of the Lord, unmotivated and unhampered by material impediments. Religion in its perfect form is the devotional service of the Lord, and irreligion is just the opposite. The heart is the most important part of the body, whereas the back is the most neglected part. When one is attacked by an enemy one is apt to endure attacks from the back and protect himself carefully from all attacks on the chest. All types of irreligion spring from the back of Brahmā, whereas real religion, the devotional service of the Lord, is generated from the chest, the seat of Nārāyaṇa. Anything which does not lead to the devotional service of the Lord is irreligion, and anything which leads to the devotional service of the Lord is called religion.

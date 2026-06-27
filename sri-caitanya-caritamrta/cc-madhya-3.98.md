@@ -1,0 +1,10 @@
+### CC Madhya 3.98
+
+> āpanāra sama more karibāra tare
+> jhuṭhā dile, vipra bali' bhaya nā karile
+
+*āpanārasama*—like You; *more*—Me; *karibāra tare*—for making; *jhuṭhā*—remnants of food; *dile*—You have given; *vipra bali'*—considering as a *brāhmaṇa*; *bhaya*—fear; *nā karile*—You did not do.
+
+**"To make Me a madman like Yourself, You have thrown the remnants of Your food at Me. You did not even fear the fact that I am a brāhmaṇa."**
+
+The words *āpanāra sama* indicate that Advaita Ācārya considered Himself to belong to the *smārta-brāhmaṇas,* and He considered Nityānanda Prabhu to be on the transcendental stage with pure Vaiṣṇavas. Lord Nityānanda gave Advaita Ācārya His remnants to situate Him on the same platform and make Him a pure unalloyed Vaiṣṇava or *paramahaṁsa.* Advaita Ācārya's statement indicates that a *paramahaṁsa* Vaiṣṇava is transcendentally situated. A pure Vaiṣṇava is not subject to the rules and regulations of the *smārta-brāhmaṇas.* That was the reason for Advaita Ācārya's stating, *āpanāra sama more karibāra tare:* "to raise Me to Your own standard." A pure Vaiṣṇava, or a person on the *paramahaṁsa* stage, accepts the remnants of food (*mahā-prasāda*) as spiritual. He does not consider it to be material or sense gratificatory. He accepts *mahā-prasāda* not as ordinary *dāl* and rice but as spiritual substance. To say nothing of the remnants of food left by a pure Vaiṣṇava, *prasāda* is never polluted even if it is touched by the mouth of a *caṇḍāla.* Indeed, it retains its spiritual value. Therefore by eating or touching such *mahā-prasāda,* a *brāhmaṇa* is not degraded. There is no question of being polluted by touching the remnants of such food. Actually, by eating such *mahā-prasāda,* one is freed from all the contaminations of the material condition. That is the verdict of the *śāstra.*

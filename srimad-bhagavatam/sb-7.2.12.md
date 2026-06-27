@@ -1,0 +1,14 @@
+### SB 7.2.12
+
+> yatra yatra dvijā gāvo
+> vedā varṇāśrama-kriyāḥ
+> taṁ taṁ janapadaṁ yāta
+> sandīpayata vṛścata
+
+*yatra yatra*—wherever; *dvijāḥ*—the *brāhmaṇas*; *gāvaḥ*—the protected cows; *vedāḥ*—the Vedic culture; *varṇa-āśrama*—of the Āryan civilization of four *varṇas* and four *āśramas*; *kriyāḥ*—the activities; *tam tam*—that; *jana-padam*—to the city or town; *yāta*—go; *sandīpayata*—set fire; *vṛścata*—cut down (all the trees).
+
+**Immediately go wherever there is good protection for the cows and brāhmaṇas and wherever the Vedas are studied in terms of the varṇāśrama principles. Set fire to those places and cut from the roots the trees there, which are the source of life.**
+
+The picture of a proper human civilization is indirectly described here. In a perfect human civilization there must be a class of men fully trained as perfect *brāhmaṇas.* Similarly, there must be *kṣatriyas* to rule the country very nicely according to the injunctions of the *śāstras,* and there must be *vaiśyas* who can protect the cows. The word *gāvaḥ* indicates that cows should be given protection. Because the Vedic civilization is lost, cows are not protected, but instead indiscriminately killed in slaughterhouses. Such are the acts of demons. Therefore this is a demoniac civilization. The *varṇāśrama-dharma* mentioned here is essential for human civilization. Unless there is a *brāhmaṇa* to guide, a *kṣatriya* to rule perfectly, and a perfect *vaiśya* to produce food and protect the cows, how will people live peacefully? It is impossible.
+
+Another point is that trees also should be given protection. During its lifetime, a tree should not be cut for industrial enterprises. In Kali-yuga, trees are indiscriminately and unnecessarily cut for industry, in particular for paper mills that manufacture a profuse quantity of paper for the publication of demoniac propaganda, nonsensical literature, huge quantities of newspapers and many other paper products. This is a sign of a demoniac civilization. The cutting of trees is prohibited unless necessary for the service of Lord Viṣṇu. *Yajñārthāt karmaṇo'nyatra loko'yaṁ karma-bandhanaḥ:* [[bg/3/9|[Bg. 3.9] ]] "work done as a sacrifice for Lord Viṣṇu must be performed, otherwise work binds one to this material world." But if the paper mills stop producing paper, one may argue, how can our ISKCON literature be published? The answer is that the paper mills should manufacture paper only for the publication of ISKCON literature because ISKCON literature is published for the service of Lord Viṣṇu. This literature clarifies our relationship with Lord Viṣṇu, and therefore the publication of ISKCON literature is the performance of *yajña. Yajñārthāt karmaṇo 'nyatra loko 'yaṁ karma-bandhanaḥ* [[bg/3/9|[Bg. 3.9] ]]). *Yajña* must be performed, as indicated by the superior authorities. The cutting of trees simply to manufacture paper for the publication of unwanted literature is the greatest sinful act.

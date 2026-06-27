@@ -1,0 +1,19 @@
+### CC Madhya 20.122
+
+> māyā-mugdha jīvera nāhi svataḥ kṛṣṇa-jñāna
+> jīvere kṛpāya kailā kṛṣṇa veda-purāṇa
+
+*māyā-mugdha*—enchanted by the illusory energy; *jīvera*—of the conditioned soul; *nāhi*—there is not; *svataḥ*—automatically; *kṛṣṇa-jñāna*—knowledge of Kṛṣṇa; *jīvere*—unto the conditioned soul; *kṛpāya*—out of mercy; *kailā*—presented; *kṛṣṇa*—Lord Kṛṣṇa; *veda-purāṇa*—the Vedic literature and the Purāṇas (supplements to the Vedic literature).
+
+**"The conditioned soul cannot revive his Kṛṣṇa consciousness by his own effort. But out of causeless mercy, Lord Kṛṣṇa compiled the Vedic literature and its supplements, the Purāṇas.**
+
+A conditioned soul is bewildered by the Lord's illusory energy (*māyā). Māyā's* business is to keep the conditioned soul forgetful of his real relationship with Kṛṣṇa. Thus the living entity forgets his real identity as spirit soul, Brahman, and instead of realizing his factual position thinks himself the product of the material energy. According to *Śrīmad-Bhāgavatam* (1.7.5):
+
+> yayā sammohito jīva
+> ātmānaṁ tri-guṇātmakam
+> paro 'pi manute 'narthaṁ
+> tat-kṛtaṁ cābhipadyate
+
+"Due to this external energy, the living entity, although transcendental to the three modes of material nature, thinks of himself as a material product and thus undergoes the reactions of material miseries."
+
+This is a description of *māyā's* action upon the conditioned soul. Thinking himself a product of the material energy, the conditioned soul engages in the service of material energy in so many ways. He becomes the servant of lust, anger, greed and envy. In this way one totally becomes a servant of the illusory energy. Later, the bewildered soul becomes a servant of mental speculation, but in any case he is simply covered by the illusory energy. Out of his causeless mercy and compassion, Kṛṣṇa has compiled various Vedic literatures in His incarnation as Vyāsadeva. Vyāsadeva is a *śaktyāveśa-avatāra* of Lord Kṛṣṇa. He has very kindly presented these literatures to awaken the conditioned soul to his senses. Unfortunately, at the present moment the conditioned souls are guided by demons who do not care to read the Vedic literatures. Although there is an immense treasure-house of knowledge, people are engaged in reading useless literature that will give them no information on how to get out of the clutches of *māyā.* The purpose of the Vedic literatures is explained in the following verses.

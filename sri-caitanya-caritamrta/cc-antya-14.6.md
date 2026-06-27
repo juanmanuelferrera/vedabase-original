@@ -1,0 +1,8 @@
+### CC Antya 14.6
+
+> bujhite nā pāri yāhā, varṇite ke pāre?
+> sei bujhe, varṇe, caitanya śakti dena yāṅre
+
+*bujhite*—to understand; *nā pāri*—not being able; *yāhā*—subject which; *varṇite ke pāre*—who can describe; *sei bujhe*—he can understand; *varṇe*—can describe; *caitanya*—Śrī Caitanya Mahāprabhu; *śakti*—capacity; *dena*—gives; *yāṅre*—to whom.
+
+**How can one describe unfathomable subject matters? It is possible only if Śrī Caitanya Mahāprabhu gives him the capability.**

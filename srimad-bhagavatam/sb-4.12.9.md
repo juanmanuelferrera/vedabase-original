@@ -1,0 +1,12 @@
+### SB 4.12.9
+
+> tasya prītena manasā
+> tāṁ dattvaiḍaviḍas tataḥ
+> paśyato 'ntardadhe so 'pi
+> sva-puraṁ pratyapadyata
+
+*tasya*—with Dhruva; *prītena*—being very pleased; *manasā*—with such a mentality; *tām*—that remembrance; *dattvā*—having given; *aiḍaviḍaḥ*—Kuvera, son of Iḍaviḍā; *tataḥ*—thereafter; *paśyataḥ*—while Dhruva was looking on; *antardadhe*—disappeared; *saḥ*—he (Dhruva); *api*—also; *sva-puram*—to his city; *pratyapadyata*—returned.
+
+**The son of Iḍaviḍā, Lord Kuvera, was very pleased, and happily he gave Dhruva Mahārāja the benediction he wanted. Thereafter he disappeared from Dhruva's presence, and Dhruva Mahārāja returned to his capital city.**
+
+Kuvera, who is known as the son of Iḍaviḍā, was very pleased with Dhruva Mahārāja because he did not ask him for anything materially enjoyable. Kuvera is one of the demigods, so one may put forward the argument, "Why did Dhruva Mahārāja take benediction from a demigod?" The answer is that for a Vaiṣṇava there is no objection in taking benediction from a demigod if it is favorable for advancing Kṛṣṇa consciousness. The gopīs, for example, worshiped Kātyāyanī, a demigoddess, but the only benediction they wanted from the goddess was to have Kṛṣṇa as their husband. A Vaiṣṇava is not interested in asking any benediction from the demigods, nor is he interested in asking benedictions from the Supreme Personality of Godhead. It is said in the Bhāgavatam that liberation can be offered by the Supreme Person, but even if a pure devotee is offered liberation by the Supreme Lord, he refuses to accept it. Dhruva Mahārāja did not ask Kuvera for transference to the spiritual world, which is called liberation; he simply asked that wherever he would remain—whether in the spiritual or material world—he would always remember the Supreme Personality of Godhead. A Vaiṣṇava is always respectful to everyone. So when Kuvera offered him a benediction, he did not refuse it. But he wanted something which would be favorable to his advancement in Kṛṣṇa consciousness.

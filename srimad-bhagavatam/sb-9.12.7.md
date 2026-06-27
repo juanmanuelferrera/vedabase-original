@@ -1,0 +1,10 @@
+### SB 9.12.7
+
+> tasmāt prasuśrutas tasya
+> sandhis tasyāpy amarṣaṇaḥ
+> mahasvāṁs tat-sutas tasmād
+> viśvabāhur ajāyata
+
+*tasmāt*—from Maru; *prasuśrutaḥ*—Prasuśruta, his son; *tasya*—of Prasuśruta; *sandhiḥ*—a son named Sandhi; *tasya*—his (Sandhi's); *api*—also; *amarṣaṇaḥ*—a son named Amarṣaṇa; *mahasvān*—the son of Amarṣaṇa; *tat*—his; *sutaḥ*—son; *tasmāt*—from him (Mahasvān); *viśvabāhuḥ*—Viśvabāhu; *ajāyata*—took birth.
+
+**From Maru was born a son named Prasuśruta, from Prasuśruta came Sandhi, from Sandhi came Amarṣaṇa, and from Amarṣaṇa a son named Mahasvān. From Mahasvān, Viśvabāhu took his birth.**

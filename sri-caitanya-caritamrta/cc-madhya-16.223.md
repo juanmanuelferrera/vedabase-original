@@ -1,0 +1,8 @@
+### CC Madhya 16.223
+
+> sannyāsa kari' prabhu yabe śāntipura āilā
+> tabe āsi' raghunātha prabhure mililā
+
+*sannyāsa kari'*—after accepting the *sannyāsa* order; *prabhu*—the Lord; *yabe*—when; *śāntipura āilā*—went to Śāntipura; *tabe*—at that time; *āsi'*—coming; *raghunātha*—Raghunātha dāsa; *prabhure*—Śrī Caitanya Mahāprabhu; *mililā*—met.
+
+**When Śrī Caitanya Mahāprabhu returned to Śāntipura after accepting the renounced order, Raghunātha dāsa met Him.**

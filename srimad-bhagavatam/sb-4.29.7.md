@@ -1,0 +1,12 @@
+### SB 4.29.7
+
+> bṛhad-balaṁ mano vidyād
+> ubhayendriya-nāyakam
+> pañcālāḥ pañca viṣayā
+> yan-madhye nava-khaṁ puram
+
+*bṛhat-balam*—very powerful; *manaḥ*—the mind; *vidyāt*—one should know; *ubhaya-indriya*—of both groups of senses; *nāyakam*—the leader; *pañcālāḥ*—the kingdom named Pañcāla; *pañca*—five; *viṣayāḥ*—sense objects; *yat*—of which; *madhye*—in the midst; *nava-kham*—having nine apertures; *puram*—the city.
+
+**The eleventh attendant, who is the commander of the others, is known as the mind. He is the leader of the senses both in the acquisition of knowledge and in the performance of work. The Pañcāla kingdom is that atmosphere in which the five sense objects are enjoyed. Within that Pañcāla kingdom is the city of the body, which has nine gates.**
+
+The mind is the center of all activities and is described here as bṛhad-bala, very powerful. To get out of the clutches of māyā, material existence, one has to control his mind. According to training, the mind is the friend and the enemy of the living entity. If one gets a good manager, his estate is very nicely managed, but if the manager is a thief, his estate is spoiled. Similarly, in his material, conditional existence, the living entity gives power of attorney to his mind. As such, he is liable to be misdirected by his mind into enjoying sense objects. Śrīla Ambarīṣa Mahārāja therefore first engaged his mind upon the lotus feet of the Lord. Sa vai manaḥ kṛṣṇa-padāravindayoḥ. When the mind is engaged in meditation on the lotus feet of the Lord, the senses are controlled. This system of control is called yama, and this means subduing the senses. One who can subdue the senses is called a gosvāmī, but one who cannot control the mind is called go-dāsa. The mind directs the activities of the senses, which are expressed through different outlets, as described in the next verse.

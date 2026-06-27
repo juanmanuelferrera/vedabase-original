@@ -1,0 +1,8 @@
+### CC Madhya 8.295
+
+> krame uṭhāite seha uttama vastu pāya
+> aiche praśnottara kaila prabhu-rāmarāya
+
+*krame*—gradually; *uṭhāite*—to raise; *seha*—that person; *uttama*—best; *vastu*—metal; *pāya*—*gets*; *aiche*—so also; *praśna-uttara*—the questions and answers; *kaila*—have done; *prabhu*—Śrī Caitanya Mahāprabhu; *rāma-rāya*—and Rāmānanda Rāya.
+
+**Śrī Caitanya Mahāprabhu and Rāmānanda Rāya worked like miners, excavating all kinds of valuable metals, each one better than the other. Their questions and answers are exactly like that.**

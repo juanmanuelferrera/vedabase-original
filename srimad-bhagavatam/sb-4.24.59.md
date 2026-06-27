@@ -1,0 +1,22 @@
+### SB 4.24.59
+
+> na yasya cittaṁ bahir-artha-vibhramaṁ
+> tamo-guhāyāṁ ca viśuddham āviśat
+> yad-bhakti-yogānugṛhītam añjasā
+> munir vicaṣṭe nanu tatra te gatim
+
+*na*—never; *yasya*—whose; *cittam*—heart; *bahiḥ*—external; *artha*—interest; *vibhramam*—bewildered; *tamaḥ*—darkness; *guhāyām*—in the hole; *ca*—also; *viśuddham*—purified; *āviśat*—entered; *yat*—that; *bhakti-yoga*—devotional service; *anugṛhītam*—being favored by; *añjasā*—happily; *muniḥ*—the thoughtful; *vicaṣṭe*—sees; *nanu*—however; *tatra*—there; *te*—Your; *gatim*—activities.
+
+**The devotee whose heart has been completely cleansed by the process of devotional service and who is favored by Bhaktidevī does not become bewildered by the external energy, which is just like a dark well. Being completely cleansed of all material contamination in this way, a devotee is able to understand very happily Your name, fame, form, activities, etc.**
+
+As stated in Śrīmad-Bhāgavatam :
+
+satāṁ prasaṅgān mama vīrya-saṁvido bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ taj-joṣaṇād āśv apavarga-vartmani śraddhā ratir bhaktir anukramiṣyati (Bhāg. 3.25.25)
+
+Simply by the association of pure devotees one can understand the transcendental name, fame, quality and activities of the Supreme Personality of Godhead. Śrī Caitanya Mahāprabhu has repeatedly said:
+
+'sādhu-saṅga', 'sādhu-saṅga'—sarva-śāstre kaya lavamātra sādhu-saṅge sarva-siddhi haya (Cc. Madhya 22.54)
+
+Simply by associating with a pure devotee, one becomes wonderfully advanced in Kṛṣṇa consciousness. Sādhu-saṅga, or association with a devotee, means always engaging in Kṛṣṇa consciousness by chanting the Hare Kṛṣṇa mantra and by acting for Kṛṣṇa. Specifically, chanting the Hare Kṛṣṇa mantra purifies one, and this chanting is therefore recommended by Śrī Caitanya Mahāprabhu. Ceto-darpaṇa-mārjanam: by chanting the names of Kṛṣṇa, the mirror of the heart is cleansed, and the devotee loses interest in everything external. When one is influenced by the external energy of the Lord, his heart is impure. When one's heart is not pure, he cannot see how things are related to the Supreme Personality of Godhead. Idaṁ hi viśvaṁ bhagavān ivetaraḥ (Bhāg. 1.5.20). He whose heart is purified can see that the whole cosmic manifestation is but the Supreme Personality of Godhead, but he whose heart is contaminated sees things differently. Therefore by sat-saṅga, or association with devotees, one becomes perfectly pure in heart.
+
+One who is pure in heart is never attracted by the external energy, which urges the individual soul to try to dominate material nature. The pure heart of a devotee is never disturbed when he executes devotional service in the form of hearing, chanting, remembering, etc. In all, there are nine processes one can follow in the execution of devotional service. In any case, a pure-hearted devotee is never disturbed. The bhakti-yoga process must be carried out by avoiding the ten offenses one can commit while chanting the mahā-mantra and the sixty-four offenses one can commit while worshiping the Deity. When a devotee strictly follows the rules and regulations, Bhaktidevī becomes very much satisfied with him, and at that time he is never disturbed by anything external. A devotee is also called a muni. The word muni means thoughtful. A devotee is as thoughtful as a nondevotee is speculative. The nondevotee's speculation is impure, but a devotee's thoughts are pure. Lord Kapila and Śukadeva Gosvāmī are also called muni, and Vyāsadeva is addressed as Mahāmuni. A devotee is addressed as muni, or thoughtful, when he purely understands the Supreme Personality of Godhead. The conclusion is that when one's heart is purified by the association of devotees and by the avoidance of the offenses committed when chanting and worshiping the Lord, the transcendental name, form and activities of the Lord are revealed by the Lord.

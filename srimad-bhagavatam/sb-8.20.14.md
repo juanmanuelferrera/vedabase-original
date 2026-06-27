@@ -1,0 +1,22 @@
+### SB 8.20.14
+
+> śrī-śuka uvāca
+> evam aśraddhitaṁ śiṣyam
+> anādeśakaraṁ guruḥ
+> śaśāpa daiva-prahitaḥ
+> satya-sandhaṁ manasvinam
+
+*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī said; *evam*—thus; *aśraddhitam*—who was not very respectful to the instruction of the spiritual master; *śiṣyam*—unto such a disciple; *anādeśa-karam*—who was not prepared to carry out the order of his spiritual master; *guruḥ*—the spiritual master (Śukrācārya); *śaśāpa*—cursed; *daiva-prahitaḥ*—being inspired by the Supreme Lord; *satya-sandham*—one who was fixed in his truthfulness; *manasvinam*—who was of a highly elevated character.
+
+**Śrī Śukadeva Gosvāmī continued: Thereafter, the spiritual master, Śukrācārya, being inspired by the Supreme Lord, cursed his exalted disciple Bali Mahārāja, who was so magnanimous and fixed in truthfulness that instead of respecting his spiritual master's instructions, he wanted to disobey his order.**
+
+The difference between the behavior of Bali Mahārāja and that of his spiritual master, Śukrācārya, was that Bali Mahārāja had already developed love of Godhead, whereas Śukrācārya, being merely a priest of routine rituals, had not. Thus Śukrācārya was never inspired by the Supreme Personality of Godhead to develop in devotional service. As stated by the Lord Himself in *Bhagavad-gītā* [[bg/10/10|(Bg. 10.10)]]:
+
+> teṣāṁ satata-yuktānāṁ
+> bhajatāṁ prīti-pūrvakam
+> dadāmi buddhi-yogaṁ taṁ
+> yena mām upayānti te
+
+"To those who are constantly devoted and worship Me with love, I give the understanding by which they can come to Me."
+
+Devotees who actually engage in devotional service with faith and love are inspired by the Supreme Personality of Godhead. Vaiṣṇavas are never concerned with ritualistic *smārta-brāhmaṇas.* Śrīla Sanātana Gosvāmī has therefore compiled *Hari-bhakti-vilāsa* to guide the Vaiṣṇavas, who never follow the *smārta-viddhi.* Although the Supreme Lord is situated in the core of everyone's heart, unless one is a Vaiṣṇava, unless one is engaged in devotional service, one does not get sound advice by which to return home, back to Godhead. Such instructions are meant only for devotees. Therefore in this verse the word *daiva-prahitaḥ,* "being inspired by the Supreme Lord," is important. Śukrācārya should have encouraged Bali Mahārāja to give everything to Lord Viṣṇu. This would have been a sign of love for the Supreme Lord. But he did not do so. On the contrary, he wanted to punish his devoted disciple by cursing him.

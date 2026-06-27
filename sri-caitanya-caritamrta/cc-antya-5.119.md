@@ -1,0 +1,26 @@
+### CC Antya 5.119
+
+> pūrṇa-ṣaḍ-aiśvarya caitanya—svayaṁ bhagavān
+> tāṅre kaili kṣudra jīva sphuliṅga-samāna!!
+
+*pūrṇa*—complete; *ṣaṭ-aiśvarya*—possessing six opulences; *caitanya*—Lord Śrī Caitanya Mahāprabhu; *svayam*—Himself; *bhagavān*—the Supreme Personality of Godhead; *tāṅre*—Him; *kaili*—you have made; *kṣudra jīva*—an ordinary living entity; *sphuliṅga-samāna*—exactly equal to the spark.
+
+**"You have calculated Śrī Caitanya Mahāprabhu, who is the Supreme Personality of Godhead, full in six opulences, to be on the level of an ordinary living being. Instead of knowing Him as the supreme fire, you have accepted Him as a spark."**
+
+In the *Upaniṣads* it is said, *yathāgner visphuliṅgā vyuccaranti:* the living entities are like sparks of fire, and His Lordship the Supreme Personality of Godhead is considered the original great fire. When we hear this *śruti-vākya,* or message from the *Vedas,* we should understand the distinction between the Supreme Lord Kṛṣṇa and the living entities. A person under the control of the external energy, however, cannot understand that distinction. Such a person cannot understand that the Supreme Person is the original great fire, whereas the living entities are simply small fragmental parts of that Supreme Personality of Godhead. As Kṛṣṇa says in *Bhagavad-gītā* [[bg/15/7|(Bg. 15.7)]]:
+
+> mamaivāṁśo jīva-loke
+> jīva-bhūtaḥ sanātanaḥ
+> manaḥ ṣaṣṭhānīndriyāṇi
+> prakṛti-sthāni karṣati
+
+"The living entities in this conditioned world are My eternal, fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind."
+
+There is a distinction between the body and soul of the materially existing living being, but because Śrī Caitanya Mahāprabhu and Lord Jagannātha do not possess material bodies, there is no distinction between Their bodies and souls. On the spiritual platform, body and soul are identical; there is no distinction between them. As stated in *Śrīmad-Bhāgavatam:*
+
+> etad īśanam īśasya
+> prakṛti-stho 'pi tad-guṇaiḥ
+> na yujyate sadātma-sthair
+> yathā buddhis tad-āśrayā
+
+"This is the divinity of the Personality of Godhead. He is not affected by the qualities of material nature, even though He is in contact with them. Similarly, the devotees who have taken shelter of the Lord cannot be influenced by the material qualities." (Bhāg. 1.11.38) His Lordship the Supreme Personality of Godhead, Kṛṣṇa, is unaffected by the influence of the three modes of material nature. Indeed, His devotees are also unpolluted by the influence of the external energy because they engage in the service of His Lordship. Even the very body of a devotee becomes spiritualized, just as an iron rod put into fire becomes as qualified as fire because it becomes red hot and will immediately burn anything it touches. Therefore the poet from Bengal committed a great offense by treating Lord Jagannātha's body and Lord Jagannātha, the Supreme Personality of Godhead, as two different entities, material and spiritual, as if the Lord were an ordinary living being. The Lord is always the master of the material energy; therefore He is not doomed to be covered by the material energy like an ordinary living entity.

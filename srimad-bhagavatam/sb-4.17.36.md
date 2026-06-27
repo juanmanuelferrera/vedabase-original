@@ -1,0 +1,22 @@
+### SB 4.17.36
+
+> nūnaṁ janair īhitam īśvarāṇām
+> asmad-vidhais tad-guṇa-sarga-māyayā
+> na jñāyate mohita-citta-vartmabhis
+> tebhyo namo vīra-yaśas-karebhyaḥ
+
+*nūnam*—surely; *janaiḥ*—by the people in general; *īhitam*—activities; *īśvarāṇām*—of the controllers; *asmat-vidhaiḥ*—like me; *tat*—of the Personality of Godhead; *guṇa*—of the modes of material nature; *sarga*—which brings forth creation; *māyayā*—by Your energy; *na*—never; *jñāyate*—are understood; *mohita*—bewildered; *citta*—whose minds; *vartmabhiḥ*—way; *tebhyaḥ*—unto them; *namaḥ*—obeisances; *vīra-yaśaḥ-karebhyaḥ*—who bring renown to heroes themselves.
+
+**My dear Lord, I am also the creation of one of Your energies, composed of the three modes of material nature. Consequently I am bewildered by Your activities. Even the activities of Your devotees cannot be understood, and what to speak of Your pastimes. Thus everything appears to us to be contradictory and wonderful.**
+
+The activities of the Supreme Personality of Godhead in His various forms and incarnations are always uncommon and wonderful. It is not possible for a tiny human being to estimate the purpose and plans of such activities; therefore Śrīla Jīva Gosvāmī has said that unless the Lord's activities are accepted as inconceivable, they cannot be explained. The Lord is eternally existing as Kṛṣṇa, the Supreme Personality of Godhead, in Goloka Vṛndāvana. He has also simultaneously expanded Himself in innumerable forms, beginning with Lord Rāma, Lord Nṛsiṁha, Lord Varāha and all the incarnations coming directly from Saṅkarṣaṇa. Saṅkarṣaṇa is the expansion of Baladeva, and Baladeva is the first manifestation of Kṛṣṇa. Therefore all these incarnations are known as kalā.
+
+The word īśvarāṇām refers to all the Personalities of Godhead. As stated in Brahma-saṁhitā: (5.39) rāmādi-mūrtiṣu kalā-niyamena tiṣṭhan. In the Śrīmad-Bhāgavatam it is confirmed that all the incarnations are partial expansions or kalā of the Supreme Personality of Godhead. However, Kṛṣṇa is the original Supreme Personality of Godhead. One should not take the plural number of the word īśvarāṇām to mean that there are many Godheads. The fact is that God is one, but He exists eternally and expands Himself in innumerable forms and acts in various ways. Sometimes the common man is bewildered by all this and considers such activities contradictory, but they are not contradictory. There is a great plan behind all the Lord's activities.
+
+For our understanding it is sometimes said that the Lord is situated in the heart of the thief as well as in the heart of the householder, but the Supersoul in the heart of the thief dictates, "Go and steal things from that particular house," and at the same time the Lord tells the householder, "Now be careful of thieves and burglars." These instructions to different persons appear contradictory, yet we should know that the Supersoul, the Supreme Personality of Godhead, has some plan, and we should not consider such activities contradictory. The best course is to surrender unto the Supreme Personality of Godhead wholeheartedly, and, being protected by Him, remain peaceful.
+
+Thus end the Bhaktivedanta purports of the Fourth Canto, Seventeenth Chapter, of the Śrīmad-Bhāgavatam, entitled "Mahārāja Pṛthu Becomes Angry at the Earth."
+
+SB 4.18: Pṛthu Mahārāja Milks the Earth Planet
+
+18. Pṛthu Mahārāja Milks the Earth Planet

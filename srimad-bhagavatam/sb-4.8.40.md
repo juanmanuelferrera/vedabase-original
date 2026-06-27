@@ -1,0 +1,15 @@
+### SB 4.8.40
+
+> nārada uvāca
+> jananyābhihitaḥ panthāḥ
+> sa vai niḥśreyasasya te
+> bhagavān vāsudevas taṁ
+> bhaja taṁ pravaṇātmanā
+
+*nāradaḥ uvāca*—the great sage Nārada said; *jananyā*—by your mother; *abhihitaḥ*—stated; *panthāḥ*—the path; *saḥ*—that; *vai*—certainly; *niḥśreyasasya*—the ultimate goal of life; *te*—for you; *bhagavān*—the Supreme Personality of Godhead; *vāsudevaḥ*—Kṛṣṇa; *tam*—unto Him; *bhaja*—render your service; *tam*—by Him; *pravaṇa-ātmanā*—fully absorbing your mind.
+
+**The great sage Nārada told Dhruva Mahārāja: The instruction given by your mother, Sunīti, to follow the path of devotional service to the Supreme Personality of Godhead, is just suitable for you. You should therefore completely absorb yourself in the devotional service of the Lord.**
+
+Dhruva Mahārāja's demand was to achieve an abode even greater than Lord Brahmā's. Within this universe, Lord Brahmā is supposed to be in the most exalted position, for he is the chief of all demigods, but Dhruva Mahārāja wanted a realm beyond his. Therefore his desire was not to be fulfilled by worshiping any demigod. As described in Bhagavad-gītā, the benedictions offered by the demigods are all temporary. Therefore Nārada Muni asked Dhruva Mahārāja to follow the path which was recommended by his mother—to worship Kṛṣṇa, Vāsudeva. When Kṛṣṇa offers anything, it is beyond the expectation of the devotee. Both Sunīti and Nārada Muni knew that the demand of Dhruva Mahārāja was impossible for any demigod to fulfill, and therefore both of them recommended following the process of devotional service to Lord Kṛṣṇa.
+
+Nārada Muni is referred to here as Bhagavān because he can bless any person just as the Supreme Personality of Godhead can. He was very pleased with Dhruva Mahārāja, and he could have at once personally given whatever he wanted, but that is not the duty of the spiritual master. His duty is to engage the disciple in proper devotional service as prescribed in the śāstras. Kṛṣṇa was similarly present before Arjuna, and even though He could have given him all facilities for victory over the opposing party without a fight, He did not do so; He asked him to fight. In the same way, Nārada Muni asked Dhruva Mahārāja to undergo devotional discipline in order to achieve the desired result.

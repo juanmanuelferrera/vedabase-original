@@ -1,0 +1,13 @@
+### SB 3.21.22
+
+> ṛṣir uvāca
+> ity avyalīkaṁ praṇuto 'bja-nābhas
+> tam ābabhāṣe vacasāmṛtena
+> suparṇa-pakṣopari rocamānaḥ
+> prema-smitodvīkṣaṇa-vibhramad-bhrūḥ
+
+*ṛṣiḥ uvāca*—the great sage Maitreya said; *iti*—thus; *avyalīkam*—sincerely; *praṇutaḥ*—having been praised; *abja-nābhaḥ*—Lord Viṣṇu; *tam*—to Kardama Muni; *ābabhāṣe*—replied; *vacasā*—with words; *amṛtena*—as sweet as nectar; *suparṇa*—of Garuḍa; *pakṣa*—the shoulders; *upari*—upon; *rocamānaḥ*—shining; *prema*—of affection; *smita*—with a smile; *udvīkṣaṇa*—looking; *vibhramat*—gracefully moving; *bhrūḥ*—eyebrows.
+
+**Maitreya resumed: Sincerely extolled in these words, Lord Viṣṇu, shining very beautifully on the shoulders of Garuḍa, replied with words as sweet as nectar. His eyebrows moved gracefully as He looked at the sage with a smile full of affection.**
+
+The word *vacasāmṛtena* is significant. Whenever the Lord speaks, He speaks from the transcendental world. He does not speak from the material world. Since He is transcendental, His speech is also transcendental, as is His activity; everything in relation to Him is transcendental. The word *amṛta* refers to one who does not meet with death. The words and activities of the Lord are deathless; therefore they are not manufactured of this material world. The sound of this material world and that of the spiritual world are completely different. The sound of the spiritual world is nectarean and eternal, whereas the sound of the material world is hackneyed and subject to end. The sound of the holy name—Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare—everlastingly increases the enthusiasm of the chanter. If one repeats monotonous material words, he will feel exhausted, but if he chants Hare Kṛṣṇa twenty-four hours a day, he will never feel exhausted; rather, he will feel encouraged to continue chanting more and more. When the Lord replied to the sage Kardama, the word *vacasāmṛtena* is specifically mentioned, since He spoke from the transcendental world. He replied in transcendental words, and when He spoke His eyebrows moved with great affection. When a devotee praises the glories of the Lord, the Lord is very satisfied, and He bestows His transcendental benediction upon the devotee without reservation because He is always causelessly merciful toward His devotee.

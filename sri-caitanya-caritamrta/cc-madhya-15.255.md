@@ -1,0 +1,8 @@
+### CC Madhya 15.255
+
+> sarvāṅge parāila prabhura mālya-candana
+> daṇḍavat hañā bale sadainya vacana
+
+*sarva-aṅge*—all over the body; *parāila*—put; *prabhura*—of the Lord; *mālya-candana*—a flower garland and sandalwood pulp; *daṇḍavat hañā*—offering obeisances; *bale*—says; *sa-dainya*—humble; *vacana*—statement.
+
+**The Bhaṭṭācārya then placed a flower garland over Śrī Caitanya Mahāprabhu and smeared His body with sandalwood pulp. After offering obeisances, the Bhaṭṭācārya submitted the following humble statement.**

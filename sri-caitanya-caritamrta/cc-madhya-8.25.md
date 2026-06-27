@@ -1,0 +1,8 @@
+### CC Madhya 8.25
+
+> dekhiyā brāhmaṇa-gaṇera haila camatkāra
+> vaidika brāhmaṇa saba karena vicāra
+
+*dekhiyā*—seeing this; *brāhmaṇa-gaṇera*—of the ritualistic *brāhmaṇas*; *haila*—there was; *camatkāra*—wonder; *vaidika*—followers of Vedic ritualistic ceremonies; *brāhmaṇa*—the *brāhmaṇas*; *saba*—all; *karena*—did; *vicāra*—consideration.
+
+**When the stereotyped, ritualistic brāhmaṇas who were following the Vedic principles saw this ecstatic manifestation of love, they were struck with wonder. All these brāhmaṇas began to reflect as follows.**

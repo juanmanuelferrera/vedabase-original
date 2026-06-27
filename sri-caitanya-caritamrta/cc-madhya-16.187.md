@@ -1,0 +1,10 @@
+### CC Madhya 16.187
+
+> tabe mahāprabhu tāṅre kṛpā-dṛṣṭi kari'
+> āśvāsiyā kahe,—tumi kaha 'kṛṣṇa' 'hari'
+
+*tabe*—thereafter; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—unto him; *kṛpā-dṛṣṭi kari'*—glancing with mercy; *āśvāsiyā*—giving assurance; *kahe*—says; *tumi*—you; *kaha*—utter; *kṛṣṇa*—the holy name Kṛṣṇa; *hari*—the holy name Hari.
+
+**Śrī Caitanya Mahāprabhu then glanced with mercy at the Mohammedan governor. Giving him assurance, He asked him to chant the holy names Kṛṣṇa and Hari.**
+
+It is Śrī Caitanya Mahāprabhu's mercy that He advises everyone—even *caṇḍālas, mlecchas* and *yavanas*—to chant the holy name of the Lord. In other words, one who has taken to chanting the holy names Kṛṣṇa and Hari has already received Śrī Caitanya Mahāprabhu's mercy. The Lord's request to chant the holy name of Kṛṣṇa is now extended to everyone in the world through this Kṛṣṇa consciousness movement. Whoever follows Śrī Caitanya Mahāprabhu's instructions will certainly be purified, and one who sincerely chants the holy name offenselessly is already more than a *brāhmaṇa.* Unfortunately there are many fools and rascals in India who do not allow Western Vaiṣṇavas to enter certain temples. Such rascals do not clearly understand the *Vedas.* As stated previously: *yan-nāmadheya-śravaṇānukīrtanād.*

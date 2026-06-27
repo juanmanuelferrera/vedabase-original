@@ -1,0 +1,14 @@
+### Bg 9.6
+
+> yathākāśa-sthito nityaṁ
+> vāyuḥ sarvatra-go mahān
+> tathā sarvāṇi bhūtāni
+> mat-sthānīty upadhāraya
+
+*yathā*—as much as; *ākāśa-sthitaḥ*—situated in space; *nityam*—always; *vāyuḥ*—wind; *sarvatra-gaḥ*—blowing everywhere; *mahān*—great; *tathā*—similarly; *sarvāṇi*—everything; *bhūtāni*—created beings; *mat-sthāni*—situated in Me; *iti*—thus; *upadhāraya*—try to understand.
+
+**As the mighty wind, blowing everywhere, always rests in ethereal space know that in the same manner all beings rest in Me.**
+
+For the ordinary person it is almost inconceivable how the huge material creation is resting in Him. But the Lord is giving an example which may help us to understand. Space is the biggest manifestation we can conceive. The cosmic manifestation rests in space. Space permits the movement of even the atoms and on up to the greatest planets, the sun and the moon. Although the sky (or wind or air) is great, still it is situated within space. Space is not beyond the sky.
+
+Similarly, all the wonderful cosmic manifestations are existing by the supreme will of God, and all of them are subordinate to that supreme will. As we generally say, not a blade of grass moves without the will of the Supreme Personality of Godhead. Thus everything is moving under His will: by His will everything is being created, everything is being maintained, and everything is being annihilated. Still He is aloof from everything, as space is always aloof from the activities of the atmosphere. In the *Upaniṣads,* it is stated, "It is out of the fear of the Supreme Lord that the wind is blowing." In the *Garga Upaniṣad* also it is stated, "By the supreme order, under the superintendence of the Supreme Personality of Godhead, the moon, the sun and the great planets are moving." In the *Brahma-saṁhitā* this is also stated. There is also a description of the movement of the sun, and it is said that the sun is considered to be one of the eyes of the Supreme Lord and that it has immense potency to diffuse heat and light. Still it is moving in its prescribed orbit by the order and the supreme will of Govinda. So, from the Vedic literature we can find evidence that this material manifestation, which appears to us to be very wonderful and great, is under the complete control of the Supreme Personality of Godhead. This will be further explained in the later verses of this chapter.

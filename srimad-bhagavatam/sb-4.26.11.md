@@ -1,0 +1,20 @@
+### SB 4.26.11
+
+> tataḥ kṣut-tṛṭ-pariśrānto
+> nivṛtto gṛham eyivān
+> kṛta-snānocitāhāraḥ
+> saṁviveśa gata-klamaḥ
+
+*tataḥ*—thereafter; *kṣut*—by hunger; *tṛṭ*—thirst; *pariśrāntaḥ*—being too fatigued; *nivṛttaḥ*—having ceased; *gṛham eyivān*—came back to his home; *kṛta*—taken; *snāna*—bath; *ucita-āhāraḥ*—exactly required foodstuffs; *saṁviveśa*—took rest; *gata-klamaḥ*—freed from all fatigue.
+
+**After this, the King, very much fatigued, hungry and thirsty, returned to his royal palace. After returning, he took a bath and had dinner. Then he took rest and thus became freed from all restlessness.**
+
+A materialistic person works throughout the whole week very, very hard. He is always asking, "Where is money? Where is money?" Then, at the end of the week, he wants to retire from these activities and go to some secluded place to rest. King Purañjana returned to his home because he was very much fatigued from hunting animals in the forest. In this way his conscience came to stop him from committing further sinful activities and make him return home. In Bhagavad-gītā materialistic persons are described as duṣkṛtinaḥ, which indicates those who are always engaged in sinful activities. When a person comes to his senses and understands how he is engaging in sinful activities, he returns to his conscience, which is herein figuratively described as the palace. Generally a materialistic person is infected by the material modes of passion and ignorance. The results of passion and ignorance are lust and greed. In the life of a materialist, activity means working in lust and greed. However, when he comes to his senses, he wants to retire. According to Vedic civilization, such retirement is positively recommended, and this portion of life is called vānaprastha. Retirement is absolutely necessary for a materialist who wants to become free from the activities of a sinful life.
+
+King Purañjana's coming home, taking bath and having an appropriate dinner indicate that a materialistic person must retire from sinful activities and become purified by accepting a spiritual master and hearing from him about the values of life. If one would do this, he would feel completely refreshed, just as one feels after taking a bath. After receiving initiation from a bona fide spiritual master, one must abandon all kinds of sinful activities, namely illicit sex, intoxication, gambling and meat-eating.
+
+The word ucitāhāraḥ used in this verse is important. Ucita means appropriate. One must eat appropriately and not take after food as hogs take after stool. For a human being there are eatables described in Bhagavad-gītā (Bg. 17.8) as sāttvika-āhāra, or food in the mode of goodness. One should not indulge in eating food in the modes of passion and ignorance. This is called ucitāhāra, or appropriate eating. One who is always eating meat or drinking liquor, which is eating and drinking in passion and ignorance, must give these things up so that his real consciousness may be awakened. In this way one may become peaceful and refreshed. If one is restless or fatigued, one cannot understand the science of God. As stated in Śrīmad-Bhāgavatam (1.2.20):
+
+evaṁ prasanna-manaso bhagavad-bhakti-yogataḥ bhagavat-tattva-vijñānaṁ mukta-saṅgasya jāyate
+
+Unless one can become free from the influence of passion and ignorance, he cannot be pacified, and without being pacified, one cannot understand the science of God. King Purañjana's returning home is indicative of man's returning to his original consciousness, known as Kṛṣṇa consciousness. Kṛṣṇa consciousness is absolutely necessary for one who has committed a lot of sinful activities, especially killing animals or hunting in the forest.

@@ -1,0 +1,22 @@
+### SB 4.31.20
+
+> apahata-sakalaiṣaṇāmalātmany
+> aviratam edhita-bhāvanopahūtaḥ
+> nija-jana-vaśa-gatvam ātmano 'yan
+> na sarati chidravad akṣaraḥ satāṁ hi
+
+*apahata*—vanquished; *sakala*—all; *eṣaṇa*—desires; *amala*—spotless; *ātmani*—to the mind; *aviratam*—constantly; *edhita*—increasing; *bhāvanā*—with feeling; *upahūtaḥ*—being called; *nija-jana*—of His devotees; *vaśa*—under the control; *gatvam*—going; *ātmanaḥ*—His; *ayan*—knowing; *na*—never; *sarati*—goes away; *chidra-vat*—like the sky; *akṣaraḥ*—the Supreme Personality of Godhead; *satām*—of the devotees; *hi*—certainly.
+
+**Being completely cleansed of all material desires, the devotees are freed from all mental contamination. Thus they can always think of the Lord constantly and address Him very feelingly. The Supreme Personality of Godhead, knowing Himself to be controlled by His devotees, does not leave them for a second, just as the sky overhead never becomes invisible.**
+
+It is clear from the previous verse that the Supreme Personality of Godhead, Janārdana, is very quickly satisfied by the activities of His devotees. The pure devotee is always absorbed in the thought of the Supreme Personality of Godhead. As stated, śṛṇvatāṁ sva-kathāḥ kṛṣṇaḥ. By always thinking of Kṛṣṇa, the pure devotee's heart is freed from all kinds of desires. In the material world, the heart of the living entity is filled with material desires. When the living entity is cleansed, he does not think of anything material. As the mind is completely cleansed, one attains the perfectional stage of mystic yoga, for then the yogī always sees the Supreme Personality of Godhead within his heart. As soon as the Lord is seated within the heart of the devotee, the devotee cannot be contaminated by the material modes of nature. As long as one is under the control of the material modes, he desires so many things and makes so many plans for material sense enjoyment, but as soon as the Lord is perceived in the heart, all material desires vanish. When the mind is completely free from material desire, the devotee can think of the Lord constantly. In this way he becomes completely dependent upon the lotus feet of the Lord. Caitanya Mahāprabhu prays:
+
+ayi nanda-tanuja kiṅkaraṁ patitaṁ māṁ viṣame bhavāmbudhau kṛpayā tava pāda-paṅkaja- sthita-dhūlī-sadṛśaṁ vicintaya
+
+"My dear Lord, I am Your eternal servant, but somehow or other I have fallen into the ocean of this material world. Kindly pick me up and fix me as a speck of dust at Your lotus feet." Similarly, Śrīla Narottama dāsa Ṭhākura prays:
+
+hā hā prabhu nanda-suta, vṛṣabhānu-sutā-yuta, karuṇā karaha ei-bāra narottama-dāsa kaya, nā ṭheliha rāṅgā-pāya, tomā vine ke āche āmāra
+
+"My dear Lord, You are now present with the daughter of King Vṛṣabhānu, Śrīmatī Rādhārāṇī. Now both of You please be merciful upon me. Don't kick me away, because I have no shelter other than You."
+
+In this way the Supreme Personality of Godhead becomes dependent on His devotee. The Lord is invincible, yet He is conquered by His pure devotee. He enjoys being dependent on His devotee, just as Kṛṣṇa enjoyed being dependent on the mercy of mother Yaśodā. Thinking Himself dependent on the devotee gives the Supreme Lord great enjoyment. Sometimes a king may engage a joker, and in the process of joking, the king is sometimes insulted. The king, however, enjoys these activities. Everyone worships the Supreme Lord with great reverence; therefore the Lord sometimes wants to enjoy the chastisement of His devotees. In this way the relationship eternally existing between the Lord and His devotees is fixed, just like the sky overhead.
