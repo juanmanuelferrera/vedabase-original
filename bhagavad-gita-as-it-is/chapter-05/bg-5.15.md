@@ -17,7 +17,7 @@ The Sanskrit word *vibhuḥ* means the Supreme Lord who is full of unlimited kno
 > ajño jantur anīso 'yam ātmanaḥ sukha-duḥkhayoḥ
 > īśvara-prerito gacchet svargaṁ vāśvabhram eva ca.
 
-"The Lord engages the living entity in pious activities so he may be elevated. The Lord engages him in impious activities so he may go to hell. The living entity is completely dependant in his distress and happiness. By the will of the Supreme he can go to heaven or hell, as a cloud is driven by the air."
+"The Lord engages the living entity in pious activities so he may be elevated. The Lord engages him in impious activities so he may go to hell. The living entity is completely dependent in his distress and happiness. By the will of the Supreme he can go to heaven or hell, as a cloud is driven by the air."
 
 Therefore the embodied soul, by his immemorial desire to avoid Kṛṣṇa consciousness, causes his own bewilderment. Consequently, although he is constitutionally eternal, blissful and cognizant, due to the littleness of his existence he forgets his constitutional position of service to the Lord and is thus entrapped by nescience. And, under the spell of ignorance, the living entity claims that the Lord is responsible for his conditional existence. The *Vedānta-sūtras* also confirm this:
 

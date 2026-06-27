@@ -10,7 +10,7 @@
 > upaviśyāsane yuñjyād
 > yogam ātma-viśuddhaye
 
-*śucau*—in sanctified; *deśe*—in the land; *pratiṣṭhāpya*—placing; *sthiram*—firm; *āsanam*—seat; *ātmanaḥ*—self-dependant; *na*—not; *ati*—too; *ucchritam*—high; *na*—nor; *ati*—too; *nīcam*—low; *caila-ajna*—soft cloth and deerskin; *kuśottaram*—kuśa grass; *tatra*—thereupon; *ekāgram*—one attention; *manaḥ*—mind; *kṛtvā*—doing so; *yata-citta*—controlling the mind; *indriya*—senses; *kriyaḥ*—activities; *upaviśya*—sitting on; *āsane*—on the seat; *yuñjyāt*—execute; *yogam*—yoga practice; *ātma*—heart; *viśuddhaye*—for clarifying.
+*śucau*—in sanctified; *deśe*—in the land; *pratiṣṭhāpya*—placing; *sthiram*—firm; *āsanam*—seat; *ātmanaḥ*—self-dependent; *na*—not; *ati*—too; *ucchritam*—high; *na*—nor; *ati*—too; *nīcam*—low; *caila-ajna*—soft cloth and deerskin; *kuśottaram*—kuśa grass; *tatra*—thereupon; *ekāgram*—one attention; *manaḥ*—mind; *kṛtvā*—doing so; *yata-citta*—controlling the mind; *indriya*—senses; *kriyaḥ*—activities; *upaviśya*—sitting on; *āsane*—on the seat; *yuñjyāt*—execute; *yogam*—yoga practice; *ātma*—heart; *viśuddhaye*—for clarifying.
 
 **To practice yoga, one should go to a secluded place and should lay kuśa-grass on the ground and then cover it with a deerskin and a soft cloth. The seat should neither be too high nor too low and should be situated in a sacred place. The yogī should then sit on it very firmly and should practice yoga by controlling the mind and the senses, purifying the heart and fixing the mind on one point.**
 
