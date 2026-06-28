@@ -7,4 +7,4 @@
 
 **I shall describe the contents of the bags of Rāghava Paṇḍita later in this book. Hearing this narration, devotees generally cry, and tears glide down from their eyes.**
 
-A vivid description of these *rāghavera jhāli* is to be found in Chapter Ten of the *Antya-līlā* portion of *Śrī Caitanya-caritāmṛta.*
+A vivid description of this *rāghavera jhāli* is to be found in Chapter Ten of the *Antya-līlā* portion of *Śrī Caitanya-caritāmṛta.*

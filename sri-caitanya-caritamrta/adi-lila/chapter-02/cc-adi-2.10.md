@@ -15,4 +15,4 @@ The Lord is not directly attached to the creation, maintenance and destruction o
 
 The living beings are not all in all. They are undoubtedly parts of the Supreme Lord and are qualitatively one with Him; yet they are subject to His control. Thus they are never equal to the Lord or one with Him. The Lord who associates with the living being is the Paramātmā, or supreme living being. No one, therefore, should view the tiny living beings and supreme living being to be on an equal level.
 
-The all-pervading truth that exists eternally during the creation, maintenance and annihilation of the material world and in which the living beings rest in trance is called the impersonal Brahman.
+The all-pervading truth which exists eternally during the creation, maintenance and annihilation of the material world and in which the living beings rest in trance is called the impersonal Brahman.

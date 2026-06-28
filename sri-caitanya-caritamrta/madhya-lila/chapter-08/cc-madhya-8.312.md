@@ -15,6 +15,6 @@ At the end of every chapter, the author admits the value of the disciplic succes
 > vivasvān manave prāha
 > manur ikṣvākave 'bravīt
 
-"The Supreme Lord said, 'I instructed this imperishable science of *yoga* to the sun-god, Vivasvān, and Vivasvān instructed it to Manu, the father of mankind, and Manu in turn instructed it to Ikṣvāku."
+"The Blessed Lord said, 'I instructed this imperishable science of *yoga* to the sun-god, Vivasvān, and Vivasvān instructed it to Manu, the father of mankind, and Manu in turn instructed it to Ikṣvāku."
 
 In this way the message is transmitted in the bona fide spiritual disciplic succession from bona fide spiritual master to bona fide student. Śrīla Kavirāja Gosvāmī therefore as usual concludes this chapter by reasserting his faith in the lotus feet of the six Gosvāmīs. Thus he is able to set forth this transcendental literature, *Caitanya-caritāmṛta.*

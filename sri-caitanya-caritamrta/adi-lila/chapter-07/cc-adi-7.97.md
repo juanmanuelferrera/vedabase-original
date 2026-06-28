@@ -5,7 +5,7 @@
 
 *kṛṣṇa-nāme*—in the holy name of the Lord; *ye*—which; *ānanda*—transcendental bliss; *sindhu*—ocean; *āsvādana*—tasting; *brahma-ānanda*—the transcendental bliss of impersonal understanding; *tāra*—its; *āge*—in front; *khāta-udaka*—shallow water in the canals; *sama*—like.
 
-**"Compared to the ocean of transcendental bliss that is tasted by chanting the Hare Kṛṣṇa mantra, the pleasure derived from impersonal Brahman realization [brahmānanda] is like the shallow water in a canal.**
+**"Compared to the ocean of transcendental bliss which is tasted by chanting the Hare Kṛṣṇa mantra, the pleasure derived from impersonal Brahman realization [brahmānanda] is like the shallow water in a canal.**
 
 In the *Bhakti-rasāmṛta-sindhu* (1.1.38) it is stated:
 

@@ -17,4 +17,4 @@
 > ahaituky apratihatā
 > yayātmā suprasīdati
 
-"That religion is best which causes its followers to become ecstatic in love of God that is unmotivated and free from material impediments, for this only can completely satisfy the self."
+"That religion is best which causes its followers to become ecstatic in love of God which is unmotivated and free from material impediments, for this only can completely satisfy the self."

@@ -5,9 +5,9 @@
 
 *śṛṅgeri-maṭhe*—to the Śṛṅgeri monastery; *āilā*—came; *śaṅkarācārya-sthāne*—at the place of Śaṅkarācārya; *matsya-tīrtha*—the holy place named Matsya-tīrtha; *dekhi'*—seeing; *kaila*—did; *tuṅgabhadrāya snāne*—bathing in the river Tuṅgabhadrā.
 
-**Then He saw the monastery known as Śṛṅgeri-maṭha, the abode of Ācārya Śaṅkara. He then visited Matsya-tīrtha, a place of pilgrimage, and took a bath in the river Tuṅgabhadrā.**
+**There He saw the monastery known as Śṛṅgeri-maṭha, the abode of Ācārya Śaṅkara. He then visited Matsya-tīrtha, a place of pilgrimage, and took a bath in the river Tuṅgabhadrā.**
 
-The monastery known as Śṛṅgeri-maṭha is situated in the state of Karnatakaīśū, in the district of Shimoga. This monastery is located on the left bank of the river Tuṅgabhadrā, seven miles south of Harihara-pura. The real name of this place is Śṛṅga-giri or Śṛṅgavera-purī, and it is the headquarters of Śaṅkarācārya.
+The monastery known as Śṛṅgeri-maṭha is situated in the province of Mysore (Mahisūra), in the district of Shimoga. This monastery is located on the left bank of the river Tuṅgabhadrā, seven miles south of Harihara-pura. The real name of this place is Śṛṅga-giri or Śṛṅgavera-purī, and it is the headquarters of Śaṅkarācārya.
 
 Śaṅkarācārya had four principal disciples, and he established four centers under their management. In North India at Badarikāśrama, the monastery named Jyotir-maṭha was established. At Puruṣottama, the Bhogavardhana or Govardhana monastery was established. In Dvārakā, the Sāradā monastery was established. And the fourth monastery, established in South India, is known as Śṛṅgeri-maṭha. In the Śṛṅgeri-maṭha the *sannyāsīs* assume the designations Sarasvatī, Bhāratī and Purī. They are all *ekadaṇḍi-sannyāsīs,* distinguished from the Vaiṣṇava *sannyāsīs,* who are known as *tridaṇḍi-sannyāsīs.* The Śṛṅgeri-maṭha is situated in South India in a portion of the country known as Āndhra, Draviḍa, Karṇāṭa and Kerala. The community is called Bhūrivāra, and the dynasty is called Bhūr-bhuvaḥ. The place is called Rāmeśvara, and the slogan is *ahaṁ brahmāsmi.* The Deity is Lord Varāha, and the energetic power is Kāmākṣī. The *ācārya* is Hastāmalaka, and the *brahmacārī* assistants of the *sannyāsīs* are known as Caitanya. The place of pilgrimage is called Tuṅgabhadrā, and the subject for Vedic study is the *Yajur Veda.*
 

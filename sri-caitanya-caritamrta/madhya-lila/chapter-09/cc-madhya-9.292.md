@@ -5,4 +5,4 @@
 
 *adbhuta*—wonderful; *premera*—of love of Godhead; *vanyā*—inundation; *duṅhāra*—of both of them; *uthalila*—arose; *duṅhe*—both of them; *mānya kari'*—offering respect; *duṅhe*—both of them; *ānande*—with great happiness; *vasila*—sat down.
 
-**They were both inundated by the wonderful ecstasy of love that was aroused in them. Finally they sat down and respectfully began to converse.**
+**They were both inundated by the wonderful ecstasy of love which was aroused in them. Finally they sat down and respectfully began to converse.**

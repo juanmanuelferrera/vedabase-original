@@ -5,4 +5,4 @@
 
 *upavane*—in the garden by the road; *kaila*—performed; *prabhu*—Lord Caitanya Mahāprabhu; *vividha*—varieties of; *vilāsa*—pastimes; *prabhura*—of Lord Caitanya Mahāprabhu; *abhiṣeka*—bathing; *kaila*—did; *vipra*—the *brāhmaṇa*; *kṛṣṇadāsa*—of the name Kṛṣṇadāsa.
 
-**In the garden along the road from the Jagannātha temple to Guṇḍicā, Lord Caitanya Mahāprabhu performed various pastimes. A brāhmaṇa named Kṛṣṇadāsa performed the bathing ceremony of Lord Śrī Caitanya Mahāprabhu.**
+**In the forest along the road from the Jagannātha temple to Guṇḍicā, Lord Caitanya Mahāprabhu performed various pastimes. A brāhmaṇa named Kṛṣṇadāsa performed the bathing ceremony of Lord Śrī Caitanya Mahāprabhu.**

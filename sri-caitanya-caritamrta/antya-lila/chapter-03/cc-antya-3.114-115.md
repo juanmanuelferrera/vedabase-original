@@ -8,4 +8,4 @@
 
 *haridāsa kahe*—Haridāsa Ṭhākura said; *tomā*—you; *karimu aṅgīkāra*—I shall accept; *saṅkhyā-nāma*—the number of holy names; *samāpti*—finishing; *yāvat*—as long as; *nā*—not; *haya*—it is; *āmāra*—my; *tāvat*—so long; *tumi*—you; *vasi'*—sitting; *śuna*—hear; *nāma-saṅkīrtana*—chanting of the holy name; *nāma*—of the holy name; *samāpti*—finishing; *haile*—when there is; *karimu*—I shall do; *ye*—what; *tomāra*—your; *mana*—mind.
 
-**Haridāsa Ṭhākura replied, "I shall accept you without fall, but you will have to wait until I have finished chanting my regular rounds on my beads. Until that time, please sit and listen to the chanting of the holy name. As soon as I am finished, I shall fulfill your desire."**
+**Haridāsa Ṭhākura replied, "I shall accept you without fail, but you will have to wait until I have finished chanting my regular rounds on my beads. Until that time, please sit and listen to the chanting of the holy name. As soon as I am finished, I shall fulfill your desire."**
