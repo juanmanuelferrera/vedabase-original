@@ -22,4 +22,4 @@
 > jānāti tattvaṁ bhagavan-mahimno
 > na cānya eko 'pi ciraṁ vicinvan
 
-"My Lord, if one is favored by even a slight trace of the mercy of Your lotus feet, he can understand the greatness of Your personality. But those who speculate to understand the Supreme Personality of Godhead are unable to know You, even though they continue to study the *Vedas* for many years." [[sb/10/14/29|(SB 10.14.29)]] The Lord, the Supreme Personality of Godhead, can be understood by one who is favored by the Lord; the Lord cannot be understood by others.
+"My Lord, if one is favored by even a slight trace of the mercy of Your lotus feet, he can understand the greatness of Your personality. But those who speculate to understand the Supreme Personality of Godhead are unable to know You, even though they continue to study the *Vedas* for many years." (SB 10.14.29) The Lord, the Supreme Personality of Godhead, can be understood by one who is favored by the Lord; the Lord cannot be understood by others.

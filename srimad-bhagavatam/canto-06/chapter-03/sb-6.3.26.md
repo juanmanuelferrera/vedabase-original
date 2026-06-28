@@ -9,7 +9,7 @@
 
 **Considering all these points, therefore, intelligent men decide to solve all problems by adopting the devotional service of chanting the holy name of the Lord, who is situated in everyone's heart and who is a mine of all auspicious qualities. Such persons are not within my jurisdiction for punishment. Generally they never commit sinful activities, but even if by mistake or because of bewilderment or illusion they sometimes commit sinful acts, they are protected from sinful reactions because they always chant the Hare Kṛṣṇa mantra.**
 
-In this regard Śrīla Viśvanātha Cakravartī Ṭhākura quotes the following verse from the prayers of Lord Brahmā [[sb/10/14/29|(SB 10.14.29)]]:
+In this regard Śrīla Viśvanātha Cakravartī Ṭhākura quotes the following verse from the prayers of Lord Brahmā (SB 10.14.29):
 
 > athāpi te deva padāmbuja-dvaya-
 > prasāda-leśānugṛhīta eva hi

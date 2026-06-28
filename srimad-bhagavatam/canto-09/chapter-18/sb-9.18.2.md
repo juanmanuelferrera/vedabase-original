@@ -13,6 +13,6 @@ Self-realization is the prime objective of human civilization, and it is regarde
 
 > sthāne sthitāḥ śruti-gatāṁ tanu-vāṅ-manobhir
 > ye prāyaśo 'jita jito 'py asi tais tri-lokyām
-> [[sb/10/14/3|(SB 10.14.3)]]
+> (SB 10.14.3)
 
 Regardless of whether one is in the mode of passion, ignorance or goodness, if one regularly hears *Śrīmad-Bhāgavatam* from the self-realized soul, one is freed from the bondage of material involvement.

@@ -13,6 +13,6 @@ Improvement of one's economic condition is the aim and object of a materialist, 
 
 > bhaktiṁ parāṁ bhagavati pratilabhya kāmaṁ
 > hṛd-rogam āśv apahinoty acireṇa dhīraḥ
-> [[sb/10/33/39|(SB 10.33.39)]]
+> (SB 10.33.39)
 
 If one becomes Kṛṣṇa conscious, then he can give up this heart disease; otherwise this disease of lusty desires will continue, and one cannot have peace in his mind.

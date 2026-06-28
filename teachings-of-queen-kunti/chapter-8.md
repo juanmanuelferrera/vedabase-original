@@ -20,7 +20,7 @@ In this very interesting verse, it is described that *vipadaḥ*—calamities or
 
 > tat te 'nukampāṁ susamīkṣamāṇo
 > bhuñjāna evātma-kṛtaṁ vipākam
-> [[sb/10/14/8|(SB 10.14.8)]]
+> (SB 10.14.8)
 
 How does a devotee receive dangers? There must be dangers because this material world is full of dangers. But foolish people who do not know this try to avoid the dangers. Thus they struggle for existence. Everyone is trying to become happy and avoid danger. This is our material business. Everyone is trying for *ātyantikaṁ sukham,* ultimate happiness. A working man thinks, "Let me work very hard now and put money in the bank, so that when I get old I shall enjoy life without working." This is the inner intention of everyone. No one wants to work; as soon as one gets some money, he wants to retire from work and become happy. But that is not possible. One cannot become happy in that way.
 
