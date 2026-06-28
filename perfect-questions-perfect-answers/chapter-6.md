@@ -248,7 +248,7 @@ If anyone approaches Rādhārāṇī, She recommends to Kṛṣṇa, "Here is th
 > bāliśeṣu dviṣatsu ca
 > prema-maitrī-kṛpopekṣā
 > yaḥ karoti sa madhyamaḥ
-> [[sb/11/2/46|(SB 11.2.46)]]
+> (SB 11.2.46)
 
 A second-class devotee has the vision that some are envious of God, but this is not the vision of the best devotee. The best devotee sees, "Nobody is envious of God. Everyone is better than me." Just like *Caitanya-caritāmṛta's* author, Kṛṣṇadāsa Kavirāja. He says, "I am lower than the worm in the stool."
 

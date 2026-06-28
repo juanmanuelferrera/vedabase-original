@@ -15,4 +15,4 @@ In this verse the words *dayā jīveṣu,* meaning "mercy to other living entiti
 > pūjāṁ yaḥ śraddhayehate
 > na tad-bhakteṣu cānyeṣu
 > sa bhaktaḥ prākṛtaḥ smṛtaḥ
-> [[sb/11/2/47|(SB 11.2.47)]]
+> (SB 11.2.47)

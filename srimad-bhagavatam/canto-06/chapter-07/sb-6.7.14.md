@@ -9,7 +9,7 @@
 
 **Leaders who have fallen into ignorance and who mislead people by directing them to the path of destruction [as described in the previous verse] are, in effect, boarding a stone boat, and so too are those who blindly follow them. A stone boat would be unable to float and would sink in the water with its passengers. Similarly, those who mislead people go to hell, and their followers go with them.**
 
-As stated in the Vedic literature [[sb/11/20/17|(SB 11.20.17)]]:
+As stated in the Vedic literature (SB 11.20.17):
 
 > nṛ-deham ādyaṁ sulabhaṁ sudurlabhaṁ
 > plavaṁ sukalpaṁ guru-karṇa-dhāram

@@ -23,7 +23,7 @@ In his commentary on this verse, for example, Śrīdhara Svāmī gives the follo
 > janma-karma-guṇānāṁ ca
 > tad-arthe 'khila-ceṣṭitam
 
-"One should always chant and hear about the extraordinarily wonderful activities of the Lord, one should meditate upon these activities, and one should endeavor to please the Lord." [[sb/11/3/27|(SB 11.3.27)]]
+"One should always chant and hear about the extraordinarily wonderful activities of the Lord, one should meditate upon these activities, and one should endeavor to please the Lord." (SB 11.3.27)
 
 Śrīdhara Svāmī also quotes from the *Purāṇas, pāpa-kṣayaś ca bhavati smaratāṁ tam ahar-niśam:* "One can become free from all sinful reactions simply by remembering the lotus feet of the Lord day and night [*ahar-niśam*]." Furthermore, he quotes from *Bhāgavatam* (6.3.31):
 

@@ -122,7 +122,7 @@ Whatever the case, we must have faith in the word of Kṛṣṇa. When we purcha
 
 Therefore when Lord Kṛṣṇa says that there is a supreme abode and that we can go there, we should have faith that such an abode exists. Many philosophers think that the spiritual abode is impersonal or void. Impersonalists like the Śaṅkarites and Buddhists generally speak of the void or emptiness, but *Bhagavad-gītā* does not disappoint us in this way. The philosophy of voidism has simply created atheism, because it is the nature of the living entity to want enjoyment. As soon as he thinks that his future is void, he will try to enjoy the variegatedness of this material life. Thus impersonalism leads to armchair philosophical discussions and attachment to material enjoyment. We may enjoy speculating, but no real spiritual benefit can be derived from such speculation.
 
-*Bhaktiḥ pareśānubhavo viraktir anyatra ca* [[sb/11/2/42|(SB 11.2.42)]]. Once we have developed the devotional spirit, we will become immediately detached from all kinds of material enjoyment. As soon as a hungry man eats, he feels immediate satisfaction and says, "No, I don't want any more. I am satisfied." This satisfaction is a characteristic of the Kṛṣṇa conscious man.
+*Bhaktiḥ pareśānubhavo viraktir anyatra ca* (SB 11.2.42). Once we have developed the devotional spirit, we will become immediately detached from all kinds of material enjoyment. As soon as a hungry man eats, he feels immediate satisfaction and says, "No, I don't want any more. I am satisfied." This satisfaction is a characteristic of the Kṛṣṇa conscious man.
 
 > brahma-bhūtaḥ prasannātmā
 > na śocati na kāṅkṣati

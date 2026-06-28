@@ -36,4 +36,4 @@ Here it is stated that anyone who chants and hears about the activities of Prahl
 > bhaktiḥ punāti man-niṣṭhā
 > śva-pākān api sambhavāt
 
-"Even one born in a family of meat-eaters is purified if he engages in devotional service." [[sb/11/14/21|(SB 11.14.21)]] Śrīla Jīva Gosvāmī cites this verse in logically supporting that anyone who chants about the pure life and activities of Prahlāda Mahārāja is freed from the reactions of material activities.
+"Even one born in a family of meat-eaters is purified if he engages in devotional service." (SB 11.14.21) Śrīla Jīva Gosvāmī cites this verse in logically supporting that anyone who chants about the pure life and activities of Prahlāda Mahārāja is freed from the reactions of material activities.
