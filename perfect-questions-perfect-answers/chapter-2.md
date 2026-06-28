@@ -44,7 +44,7 @@ It is said in *Śrīmad-Bhāgavatam* that—
 > janasya moho 'yam ahaṁ mameti
 > [[sb/5/5/8|(SB 5.5.8)]]
 
-This sex life is the basic principle of material life-attachment for man or woman. And when they are united, when a man and woman are united, that attachment becomes increased, and that increased attachment will induce one to accumulate *gṛha* (a home), *kṣetra* (land), *suta* (children), *āpta* (friendship or society) and *vitta. Vita* means money. In this way—*gṛha-kṣetra-sutāpta-vittaiḥ*—he becomes entangled. *janasya moho 'yam:* this is the illusion. And by this illusion he thinks, *ahaṁ mameti:* [[sb/5/5/8|[SB 5.5.8] ]] "I am this body, and anything in relationship with this body is mine."
+This sex life is the basic principle of material life-attachment for man or woman. And when they are united, when a man and woman are united, that attachment becomes increased, and that increased attachment will induce one to accumulate *gṛha* (a home), *kṣetra* (land), *suta* (children), *āpta* (friendship or society) and *vitta. Vitta* means money. In this way—*gṛha-kṣetra-sutāpta-vittaiḥ*—he becomes entangled. *janasya moho 'yam:* this is the illusion. And by this illusion he thinks, *ahaṁ mameti:* [[sb/5/5/8|[SB 5.5.8] ]] "I am this body, and anything in relationship with this body is mine."
 
 **Bob:**
 What is that again?

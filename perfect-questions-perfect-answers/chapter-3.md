@@ -306,7 +306,7 @@ Yes.
 From me to Him?
 
 **Śrīla Prabhupāda:**
-Yes, because He is within your heat He is always hearing you—whether you are praying or not praying. When you are doing some nonsense, He is also hearing you. And when you pray, that is very good—welcome.
+Yes, because He is within your heart He is always hearing you—whether you are praying or not praying. When you are doing some nonsense, He is also hearing you. And when you pray, that is very good—welcome.
 
 **Bob:**
 To Kṛṣṇa's ear, is praying louder than nonsense?
