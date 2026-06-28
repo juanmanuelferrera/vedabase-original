@@ -25,7 +25,7 @@ In *yoga* it is necessary to control all of the senses, and when all the senses 
 > jitātmanaḥ praśāntasya
 > paramātmā samāhitaḥ
 
-**"for one who has conquered the mind, the Supersoul is already reached, for he has attained tranquillity."** [[bg/6/7|(Bg. 6.7)]]
+**"for one who has conquered the mind, the Supersoul is already reached, for he has attained tranquility."** [[bg/6/7|(Bg. 6.7)]]
 
 This material world has been likened to a great forest fire. As in the forest, fire may automatically take place, so in this material world, although we may try to live peacefully, there is always a great conflagration. It is not possible to live in peace anywhere in the material world. But for one who is transcendentally situated—either by the meditational *yoga* system or by the empirical philosophical method or by *bhakti-yoga*—peace is possible. All forms of *yoga* are meant for transcendental life, but the method of chanting is especially effective in this age. *Kīrtana* may go on for hours, and one may not feel tired, but it is difficult to sit in lotus position perfectly still for more than a few minutes. Yet regardless of the process, once the fire of material life is extinguished, one does not simply experience what is called impersonal void. Rather, as Kṛṣṇa tells Arjuna, one enters into the supreme abode.
 
