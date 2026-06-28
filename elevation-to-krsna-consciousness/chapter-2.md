@@ -26,7 +26,7 @@ Hankering after material happiness is called lust, and lusty activities are sure
 
 
 
-In order to find this source, however, we need some knowledge of what that happiness is. There is the story of the foolish man who had no experience with sugar cane. When he asked his friend about the characteristics of sugar cane, he was imperfectly informed that sugar cane resembles the shape of a bamboo stick. Consequently he began trying to extract juice from bamboo sticks, but naturally he was baffled in his attempts. This is the situation with the illusioned living entity who, in his search for eternal happiness, ties to extract happiness from this material world, which is not only full of miseries but is also transient and flickering. In *Bhagavad-gītā* the material world is described as being full of miseries.
+In order to find this source, however, we need some knowledge of what that happiness is. There is the story of the foolish man who had no experience with sugar cane. When he asked his friend about the characteristics of sugar cane, he was imperfectly informed that sugar cane resembles the shape of a bamboo stick. Consequently he began trying to extract juice from bamboo sticks, but naturally he was baffled in his attempts. This is the situation with the illusioned living entity who, in his search for eternal happiness, tries to extract happiness from this material world, which is not only full of miseries but is also transient and flickering. In *Bhagavad-gītā* the material world is described as being full of miseries.
 
 
 
