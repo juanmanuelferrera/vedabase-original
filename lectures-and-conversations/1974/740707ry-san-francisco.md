@@ -1,0 +1,9 @@
+# Ratha-yātrā Address
+
+*Type: Lectures and Addresses Dated: July 7th 1974 Location: San Francisco Audio file: 740707RY-SAN_FRANCISCO_Mis.mp3*
+
+(Video - 02:10)
+
+This movement was started by Lord Caitanya Mahaprabhu 500 years ago . . . (indistinct) . . . before that Lord Kṛṣṇa five thousand years ago. On the battlefield of Kurukṣetra He spoke the great Bhagavad-gītā. Most of you, you have heard the name and (unclear) we have also published "*Bhagavad-gītā* As It Is." The basis of this Kṛṣṇa consciousness movement is "*Bhagavad-gita As It Is*." *Bhagavad-gītā *. . . the purpose of *Bhagavad-gītā* is to remind you that you are all . . . you means all living entities, not only human beings, but also other than human beings. The animals, the trees, the birds, the aquatics. Anywhere you find living force, that is part and parcel of God. God is also a living being, but as it is described in the *Vedas*, the chief living being. It is said in the *Kaṭha Upaniṣad, Nityo nityānāṁ cetanaś cetanānām*. God is one of the living beings, like us, but the difference between God and ourselves is this: *Eko yo bahūnāṁ vidadhāti kāmān*. That one living being is providing, maintaining all other living beings. So our position is being maintained by God and God is maintainer. Our position is being predominated and God is predominator. So, in this material world, the living entity, those living entities who wanted to become like God . . . [break] .
+
+So the human form of life is the opportunity to get free from the cycle of birth and death, disease and old age. And this Kṛṣṇa consciousness movement is meant for educating people in this great science. So we have published already about twenty books, four hundred pages each, to elaborate this science of Kṛṣṇa consciousness. So the scientists, the philosophers, they can also understand by reading our books and there will be more books, there will . . . [break] (end)
