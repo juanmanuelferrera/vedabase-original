@@ -9,7 +9,7 @@
 
 **The brāhmaṇa continued: I am actually seeing how a rich man, who is a victim of his senses, is very greedy to accumulate wealth, and therefore suffers from insomnia due to fear from all sides, despite his wealth and opulence.**
 
-Greedy capitalists accumulate wealth under so many miserable conditions, the result being that because they collect money by questionable means, their minds are always agitated. Thus they are unable to sleep at night, and they have to take pills for mental tranquillity to invite sleep. And sometimes even the pills are a failure. Consequently the result of having accumulated money by so much labor is certainly not happiness, but only distress. What is the value of acquiring a comfortable position if one's mind is always disturbed? Narottama dāsa Ṭhākura has therefore sung:
+Greedy capitalists accumulate wealth under so many miserable conditions, the result being that because they collect money by questionable means, their minds are always agitated. Thus they are unable to sleep at night, and they have to take pills for mental tranquility to invite sleep. And sometimes even the pills are a failure. Consequently the result of having accumulated money by so much labor is certainly not happiness, but only distress. What is the value of acquiring a comfortable position if one's mind is always disturbed? Narottama dāsa Ṭhākura has therefore sung:
 
 > saṁsāra-biṣānale,     dibāniśi hiyā jvale, \\
 > juḍāite nā kainu upāya

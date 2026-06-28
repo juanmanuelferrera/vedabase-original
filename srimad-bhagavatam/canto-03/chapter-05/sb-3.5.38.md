@@ -20,4 +20,4 @@ The Lord is equal to every living entity, just like the flowing Ganges. The Gang
 > kṣipāmy ajasram aśubhān
 > āsurīṣv eva yoniṣu
 
-"The envious, the mischievous, the lowest of mankind, these do I ever put back into the ocean of material existence, into various demoniac species of life." Demigods like Yamarāja and other controllers are there for the unwanted conditioned souls who always engage in threatening the tranquillity of the kingdom of God. Since all the demigods are confidential devotee-servitors of the Lord, they are never to be condemned.
+"The envious, the mischievous, the lowest of mankind, these do I ever put back into the ocean of material existence, into various demonic species of life." Demigods like Yamarāja and other controllers are there for the unwanted conditioned souls who always engage in threatening the tranquillity of the kingdom of God. Since all the demigods are confidential devotee-servitors of the Lord, they are never to be condemned.

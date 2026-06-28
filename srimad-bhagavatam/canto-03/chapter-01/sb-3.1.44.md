@@ -9,7 +9,7 @@
 
 **The appearance of the Lord is manifested for the annihilation of the upstarts. His activities are transcendental and are enacted for the understanding of all persons. Otherwise, since the Lord is transcendental to all material modes, what purpose could He serve by coming to earth?**
 
-*Īśvaraḥ paramaḥ kṛṣṇaḥ sac-cid-ānanda-vigrahaḥ* (Bs. 5.1): the form of the Lord is eternal, blissful, and all-satisfying. His so-called birth is therefore an appearance only, like the birth of the sun on the horizon. His birth does not, like that of the living entities, take place under the influence of material nature and the bondage of the reactions of past deeds. His works and activities are independent pastimes and are not subject to the reactions of material nature. In *Bhagavad-gītā* [[bg/4/14|(Bg. 4.14)]] it is said:
+*Īśvaraḥ paramaḥ kṛṣṇaḥ sac-cid-ānanda-vigrahaḥ* (Bs. 5.1): the form of the Lord is eternal, blissful, and all-knowing. His so-called birth is therefore an appearance only, like the birth of the sun on the horizon. His birth does not, like that of the living entities, take place under the influence of material nature and the bondage of the reactions of past deeds. His works and activities are independent pastimes and are not subject to the reactions of material nature. In *Bhagavad-gītā* [[bg/4/14|(Bg. 4.14)]] it is said:
 
 > na māṁ karmāṇi limpanti
 > na me karma-phale spṛhā

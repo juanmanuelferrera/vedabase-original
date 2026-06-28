@@ -21,4 +21,4 @@ bhoktāraṁ yajña-tapasāṁ sarva-loka-maheśvaram suhṛdaṁ sarva-bhūtān
 
 "The sages, knowing Me as the ultimate purpose of all sacrifices and austerities, the Supreme Lord of all planets and demigods and the benefactor and well-wisher of all living entities, attain peace from the pangs of material miseries." (Bg. 5.29)
 
-If one wants peace of mind and tranquillity in society, he must accept the fact that the real enjoyer is the Supreme Personality of Godhead. The Lord is the proprietor of everything all over the universe, and He is the supreme friend of all living entities as well. By understanding this, people can become happy and peaceful individually and collectively.
+If one wants peace of mind and tranquility in society, he must accept the fact that the real enjoyer is the Supreme Personality of Godhead. The Lord is the proprietor of everything all over the universe, and He is the supreme friend of all living entities as well. By understanding this, people can become happy and peaceful individually and collectively.

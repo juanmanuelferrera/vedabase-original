@@ -6,4 +6,4 @@
 
 **O supreme protector, O grandfather, O supreme pure, O Lord! We are all surrendered souls at Your lotus feet. Indeed, our minds are bound to Your lotus feet in meditation by chains of love. Now please manifest Your incarnation. Accepting us as Your own eternal servants and devotees, be pleased with us and sympathetic toward us. By Your love-filled glance, with its cool and pleasing smile of sympathy, and by the sweet, nectarean words emanating from Your beautiful face, free us from the anxiety caused by this Vṛtrāsura, who always pains the cores of our hearts.**
 
-Lord Brahmi is considered the father of the demigods, but Kṛṣṇa, or Lord Viṣṇu, is the father of Brahmi because Brahmi took birth from the lotus flower growing from the Lord's abdomen.
+Lord Brahmā is considered the father of the demigods, but Kṛṣṇa, or Lord Viṣṇu, is the father of Brahmā because Brahmā took birth from the lotus flower growing from the Lord's abdomen.

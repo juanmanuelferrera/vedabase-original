@@ -17,4 +17,4 @@ Everyone comes to this material world attracted to sense gratification, and the 
 
 ___________________________________________________________________________________
 
-SPECIAL NOTE: According to Vijayadhvaja Tīrtha, who belongs to the Madhvācārya-sampradāya, the first two of the following verses appear after the forthy-fifth verse of this chapter, and the remaining two verses appear after the seventy-ninth verse.
+SPECIAL NOTE: According to Vijayadhvaja Tīrtha, who belongs to the Madhvācārya-sampradāya, the first two of the following verses appear after the forty-fifth verse of this chapter, and the remaining two verses appear after the seventy-ninth verse.

@@ -15,7 +15,7 @@ Herein it is mentioned that Lord Śiva is always accompanied by his material ene
 
 sṛṣṭi-sthiti-pralaya-sādhana-śaktir ekā chāyeva yasya bhuvanāni bibharti durgā (Bs. 5.44)
 
-Asuras, however, try to pacify the Goddess Kālī or Durgā by worshiping her in material opulence, but when the asuras become too intolerable, Goddess Kālī does not discriminate in killing them wholesale. Asuras do not know the secret of the energy of Lord Śiva, and they prefer to worship Goddess Kālī or Durgā or Lord Śiva for material benefit. Due to their demoniac character, they are reluctant to surrender to Lord Kṛṣṇa, as indicated by Bhagavad-gītā:
+Asuras, however, try to pacify the Goddess Kālī or Durgā by worshiping her in material opulence, but when the asuras become too intolerable, Goddess Kālī does not discriminate in killing them wholesale. Asuras do not know the secret of the energy of Lord Śiva, and they prefer to worship Goddess Kālī or Durgā or Lord Śiva for material benefit. Due to their demonic character, they are reluctant to surrender to Lord Kṛṣṇa, as indicated by Bhagavad-gītā:
 
 na māṁ duṣkṛtino mūḍhāḥ prapadyante narādhamāḥ māyayāpahṛta-jñānā āsuraṁ bhāvam āśritāḥ (Bg. 7.15)
 
