@@ -248,7 +248,7 @@ The wealth of the world should be used for the welfare of all living entities, f
 > yat kiñca jagatyāṁ jagat
 > tena tyaktena bhuñjīthā
 > mā gṛdhaḥ kasya svid dhanam
-> [[books/iso/1|[Īśo mantra 1] ]]
+> [[iso/1|[Īśo mantra 1] ]]
 
 "Everything animate or inanimate that is within the universe is controlled and owned by the Lord. One should therefore accept only those things necessary for himself, which are set aside as his quota, and should not accept other things, knowing well to whom they belong."
 

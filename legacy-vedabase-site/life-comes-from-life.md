@@ -399,7 +399,7 @@ How have they created anything? They take the sand and mix it with some chemical
 They say, "We have taken the materials from nature."
 
 **Śrīla Prabhupāda:**
-"From nature" means from a person. They have taken from nature, but they are thieves because everything in nature belongs to Kṛṣṇa. *Īśāvāsyam idaṁ sarvam:* "Everything is God's creation." (Īśo mantra 1) In *Bhagavad-gītā* Kṛṣṇa states that if one does not perform *yajña* [sacrifice], he is a thief. *Yajña* means acknowledging that things have been taken from Kṛṣṇa. We should think, "Kṛṣṇa, You have given us many, many things for our maintenance." *This* much acknowledgement Kṛṣṇa wants; that's all. Otherwise, what can He expect from *you?* What are you in His presence? We should acknowledge Kṛṣṇa's kindness. Therefore, before we eat we offer the food to Kṛṣṇa and say, "Kṛṣṇa, You have given us this nice food, so first You taste it." Then we eat it. Kṛṣṇa is not hungry, yet He can eat the whole world and then again produce it exactly as it was. *Pūrṇasya pūrṇam ādāya pūrṇam evāvaśiṣyate* [[books/iso/0b|[Īśo Invocation] ]]. Kṛṣṇa is so perfect that if you take from Kṛṣṇa all of Kṛṣṇa's energy, all the original energy is still with Him. *That* is perfect conservation of energy.
+"From nature" means from a person. They have taken from nature, but they are thieves because everything in nature belongs to Kṛṣṇa. *Īśāvāsyam idaṁ sarvam:* "Everything is God's creation." (Īśo mantra 1) In *Bhagavad-gītā* Kṛṣṇa states that if one does not perform *yajña* [sacrifice], he is a thief. *Yajña* means acknowledging that things have been taken from Kṛṣṇa. We should think, "Kṛṣṇa, You have given us many, many things for our maintenance." *This* much acknowledgement Kṛṣṇa wants; that's all. Otherwise, what can He expect from *you?* What are you in His presence? We should acknowledge Kṛṣṇa's kindness. Therefore, before we eat we offer the food to Kṛṣṇa and say, "Kṛṣṇa, You have given us this nice food, so first You taste it." Then we eat it. Kṛṣṇa is not hungry, yet He can eat the whole world and then again produce it exactly as it was. *Pūrṇasya pūrṇam ādāya pūrṇam evāvaśiṣyate* [[iso/0b|[Īśo Invocation] ]]. Kṛṣṇa is so perfect that if you take from Kṛṣṇa all of Kṛṣṇa's energy, all the original energy is still with Him. *That* is perfect conservation of energy.
 
 ## The Origin of Nature
 
@@ -2107,7 +2107,7 @@ Lord Caitanya Mahāprabhu once gave the example of the jewel called *cintāmaṇ
 > pūrṇāt pūrṇam udacyate
 > pūrṇasya pūrṇam ādāya
 > pūrṇam evāvaśiṣyate
-> [[books/iso/0b|[Īśo Invocation] ]]
+> [[iso/0b|[Īśo Invocation] ]]
 
 The meaning of this verse is that although everything emanates from the Personality of Godhead, He never diminishes. Here on earth the petrol is running out, and this is becoming a terrible problem, but the sun is still shining and will continue to shine for an untold number of years. And Kṛṣṇa can create millions of suns; in fact, He has already done so. But He is still fully potent. He has lost nothing. That is God, and that is the supreme energy of God, *acintya-śakti.*
 

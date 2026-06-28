@@ -78,7 +78,7 @@ Lord Caitanya Mahāprabhu once gave the example of the jewel called *cintāmaṇ
 > pūrṇāt pūrṇam udacyate
 > pūrṇasya pūrṇam ādāya
 > pūrṇam evāvaśiṣyate
-> [[books/iso/0b|[Īśo Invocation] ]]
+> [[iso/0b|[Īśo Invocation] ]]
 
 The meaning of this verse is that although everything emanates from the Personality of Godhead, He never diminishes. Here on earth the petrol is running out, and this is becoming a terrible problem, but the sun is still shining and will continue to shine for an untold number of years. And Kṛṣṇa can create millions of suns; in fact, He has already done so. But He is still fully potent. He has lost nothing. That is God, and that is the supreme energy of God, *acintya-śakti.*
 
