@@ -12,21 +12,34 @@ to a printed page that was set in type while he was alive.
 
 ## Source
 
-The text comes **directly from the vedabase.cc database** (`vedabase-search-db`), the
-scan-verified original-edition corpus. The Markdown files in this repository are generated
-straight from that database — one export, no manual retyping — so they always match the
-database row-for-row. Each entry keeps the database's own markup: Devanāgarī and Bengali
-ślokas and IAST transliteration as `>` blockquotes, `*italic*` synonyms, `**bold**`
-translations, and italics inside the purports.
+This repository is the **source of truth** for the original-edition text — the master copy that
+the live site (vedabase.cc) is kept in sync with. Each entry keeps the original markup:
+Devanāgarī and Bengali ślokas and IAST transliteration as `>` blockquotes, `*italic*` synonyms,
+`**bold**` translations, and italics inside the purports.
 
-The database itself was not copied from another digital edition and trusted. It was corrected,
-cell by cell, against the **original printed scans** using the pipeline described below.
+**Provenance.** The corpus was first generated from the vedabase.cc database
+(`vedabase-search-db`), a scan-verified original-edition corpus — one export, no manual
+retyping. That database was not copied from another digital edition and trusted; it was
+corrected, cell by cell, against the **original printed scans** using the pipeline described
+below. To regenerate the Markdown from the current database at any time:
 
-> Generate the Markdown yourself: `bash scripts/export_d1.sh && python3 scripts/build_from_d1.py`
-> (read-only — it never writes to the database). See **Contents** below for the layout.
+> `bash scripts/export_d1.sh && python3 scripts/build_from_d1.py` (read-only — it never writes
+> to the database). See **Contents** below for the layout.
 
 The earlier text set (sourced from vedabase.site, before this database existed) is kept for
 reference in [`legacy-vedabase-site/`](legacy-vedabase-site/).
+
+## Making corrections (repo → live site)
+
+Wording fixes are now made **here first** — edit the relevant Markdown file, commit, and push —
+then mirrored into the live database so vedabase.cc reflects the change. For transcripts and
+letters this is a single command: the companion `astro_vedabase` repo's
+[`scripts/sync_transcript_to_d1.py`](https://github.com/juanmanuelferrera/astro_vedabase)
+takes the corrected phrase, updates the one matching row in the live D1 (`verses`), verifies it,
+and purges the edge cache. It refuses to write unless this repository already contains the new
+wording and the old wording occurs exactly once in that row, and it scopes the update to that
+single row — so it never rewrites anything it shouldn't. See `astro_vedabase`'s
+`SUCCESSION.md` §6 for the full procedure.
 
 ---
 
