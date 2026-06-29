@@ -1,0 +1,12 @@
+### SB 5.13.10
+
+> karhi sma cit kṣudra-rasān vicinvaṁs
+> tan-makṣikābhir vyathito vimānaḥ
+> tatrāti-kṛcchrāt pratilabdhamāno
+> balād vilumpanty atha taṁ tato 'nye
+
+*karhi sma cit*—a veces; *kṣudra*—muy insignificante; *rasān*—disfrute sexual; *vicinvan*—en busca de; *tat*—de esas mujeres; *makṣikābhiḥ*—por abejas, o los esposos o parientes; *vyathitaḥ*—muy afligido; *vimānaḥ*—insultado; *tatra*—en eso; *ati*—mucho; *kṛcchrāt*—con dificultad por gastar dinero; *pratilabdhamānaḥ*—obtener disfrute sexual; *balāt*—por la fuerza; *vilumpanti*—raptada; *atha*—a continuación; *tam*—al objeto de disfrute sensual (la mujer); *tataḥ*—de él; *anye*—otro libertino.
+
+**A veces, para disfrutar de un insignificante placer sexual, el alma condicionada busca mujeres libertinas, y tiene que soportar los insultos y reproches de los familiares de esas mujeres. Es como ir a recoger miel de una colmena y ser atacado por las abejas. A veces, a base de muchísimo dinero, puede conseguir otra mujer con la que disfrutar un poco más del placer sensual. Por desgracia, sin embargo, otro libertino se la arrebata, y se lleva su objeto de disfrute.**
+
+En un gran bosque, son muy importantes los panales de miel. La gente suele ir al bosque para recoger la miel de las colmenas, y a veces las abejas les atacan y les castigan. En la sociedad humana, las personas que no son conscientes de Kṛṣṇa permanecen en el bosque de la vida material solo para saborear la miel de la vida sexual. Son libertinos y no se sienten satisfechos con una esposa. Desean muchas mujeres. Día tras día, con gran dificultad, tratan de conseguirse mujeres, y a veces, mientras tratan de saborear esa clase de miel, son atacados por los parientes de alguna de sus amantes, quienes les propinan un severo castigo. Pagando dinero a otros, se pueden conseguir otra mujer para disfrutar; pero también puede aparecer otro mujeriego que la rapte o le ofrezca algo mejor. Esa compra y venta de mujeres tiene lugar en el bosque del mundo material, unas veces legal y otras veces ilegalmente. Los devotos del movimiento para la conciencia de Kṛṣṇa tienen por lo tanto prohibidas las relaciones sexuales ilícitas. De ese modo se evitan muchísimas dificultades. El hombre debe permanecer satisfecho con una sola mujer, su esposa legítima. Con la esposa se pueden satisfacer los deseos lujuriosos sin crear perturbación en la sociedad y tener que ser castigado por ello.

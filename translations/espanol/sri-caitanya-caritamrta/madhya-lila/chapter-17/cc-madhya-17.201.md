@@ -1,0 +1,8 @@
+### CC Madhya 17.201
+
+> phula-phala bhari' ḍāla paḍe prabhu-pāya
+> bandhu dekhi' bandhu yena'bheṭa' lañā yāya
+
+*phula-phala bhari'*—cargadas de frutos y flores; *ḍāla*—las ramas; *paḍe*—caen; *prabhu-pāya*—a los pies de loto del Señor; *bandhu dekhi'*—al ver a un amigo; *bandhu*—otro amigo; *yena*—como si; *bheṭa*—una ofrenda; *lañā*—tomando; *yāya*—va.
+
+**Los árboles y las enredaderas, cargados de frutos y flores, se inclinaron a los pies de loto del Señor y Lo saludaron con diversas ofrendas, cual si fuesen amigos.**

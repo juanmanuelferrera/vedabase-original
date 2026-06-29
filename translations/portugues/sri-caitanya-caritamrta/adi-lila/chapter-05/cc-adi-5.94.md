@@ -1,0 +1,8 @@
+### CC Adi 5.94
+
+sei ta' puruṣa ananta-brahmāṇḍa sṛjiyā
+saba aṇḍe praveśilā bahu-mūrti hañā
+
+*sei*—esse; *ta'*—certamente; *puruṣa*—a encarnação; *ananta-brahmāṇḍa*—inumeráveis universos; *sṛjiyā*—criando; *saba*—todos; *aṇḍe*—nos universos semelhantes a ovos; *praveśilā*—entrou; *bahu-mūrti hañā*—assumindo formas multifárias.
+
+**Depois de criar milhões de universos, o primeiro puruṣa entrou em cada um deles sob uma forma separada, como Śrī Garbhodakaśāyī.**

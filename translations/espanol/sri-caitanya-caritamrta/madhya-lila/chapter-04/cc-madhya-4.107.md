@@ -1,0 +1,8 @@
+### CC Madhya 4.107
+
+> malayaja āna, yāñā nīlācala haite
+> anye haite nahe, tumi calaha tvarite
+
+*malaya-ja*—sándalo; *āna*—trae; *yāñā*—viniendo; *nīlācala haite*—de Jagannātha Purī; *anye*—otros; *haite*—de; *nahe*—no; *tumi*—tú; *calaha*—ve; *tvarite*—rápidamente.
+
+**«Trae pasta de sándalo de Jagannātha Purī. Ten la bondad de ir rápidamente. Puesto que nadie más puede hacerlo, debes hacerlo tú».**

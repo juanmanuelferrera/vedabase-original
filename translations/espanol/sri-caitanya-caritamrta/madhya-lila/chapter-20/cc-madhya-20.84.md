@@ -1,0 +1,8 @@
+### CC Madhya 20.84
+
+> eta cinti' gelā gaṅgāya madhyāhna karite
+> eka gauḍiyā kānthā dhuñā diyāche śukāite
+
+*eta cinti'*—pensando esto; *gelā*—fue; *gaṅgāya*—a la orilla del Ganges; *madhyāhna*—baño del mediodía; *karite*—a realizar; *eka*—un; *gauḍiyā*—vaiṣṇava bengalí; *kānthā*—edredón; *dhuñā*—lavando; *diyāche*—extendió; *śukāite*—para secar.
+
+**Pensando de este modo, Sanātana fue a la orilla del Ganges a bañarse. Estando allí, vio que un mendicante de Bengala había lavado su edredón y lo había extendido a secar.**

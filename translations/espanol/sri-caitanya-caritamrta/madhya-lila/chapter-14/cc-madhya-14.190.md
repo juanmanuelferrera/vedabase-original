@@ -1,0 +1,8 @@
+### CC Madhya 14.190
+
+> kṛṣṇa-āge rādhā yadi rahe dāṇḍāñā
+> tina-aṅga-bhaṅge rahe bhrū nācāñā
+
+*kṛṣṇa-āge*—delante de Kṛṣṇa; *rādhā*—Śrīmatī Rādhārāṇī; *yadi*—si; *rahe*—permanece; *dāṇḍāñā*—de pie; *tina-aṅga-bhaṅge*—con tres curvaturas del cuerpo; *rahe*—permanece; *bhrū*—cejas; *nācāñā*—danzando.
+
+**«Cuando Śrīmatī Rādhārāṇī permanece de pie ante Kṛṣṇa, se mantiene curvada en tres puntos —el cuello, la cintura y las piernas— y Sus cejas danzan.»**

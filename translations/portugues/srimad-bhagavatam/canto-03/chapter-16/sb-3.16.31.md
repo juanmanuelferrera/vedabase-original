@@ -1,0 +1,16 @@
+### SB 3.16.31
+
+*mayi saṁrambha*-yogena
+*nistīrya brahma*-helanam
+pratyeṣyataṁ nikāśaṁ me
+kālenālpīyasā punaḥ
+
+*mayi*—para Mim; *saṁrambha-yogena*—pela prática do yoga místico de raiva; *nistīrya*—sendo liberado; *brahma-helanam*—do resultado da desobediência aos brāhmanas; *pratyeṣyatam*—voltarão; *nikāśam*—perto; *me*—de Mim; *kālena*—em devido tempo; *alpīyasā*—muito curto; *punaḥ*—novamente.
+
+**O Senhor assegurou aos dois habitantes de Vaikuṇṭha, Jaya e Vijaya: Praticando o sistema de yoga místico de raiva, vocês serão limpos do pecado de desobediência aos brāhmanas e dentro de muito pouco tempo retornarão a Mim.**
+
+*A Suprema Personalidade de Deus aconselhou aos dois porteiros, Jaya e Vijaya, que por dint de bhakti-yoga de raiva, seriam liberados das maldições dos brāhmanas. Śrīla Madhva Muni comenta nesta conexão que praticando bhakti-yoga, alguém pode se tornar livre de todas as reações pecaminosas. Até uma brahma-śāpa, ou maldição de um brāhmana, que não pode ser superada por nenhum outro meio, pode ser superada por bhakti-yoga.
+
+*Pode-se praticar bhakti-yoga em muitas rasas. Há doze rasas, cinco primárias e sete secundárias. As cinco rasas primárias constituem bhakti-yoga direto, mas embora as sete rasas secundárias sejam indiretas, também são contadas dentro de bhakti-yoga se forem usadas no serviço do Senhor. Em outras palavras, bhakti-yoga é tudo-inclusivo. Se alguém de alguma forma se torna apegado à Suprema Personalidade de Deus, se torna engajado em bhakti-yoga, como descrito no Śrīmad-Bhāgavatam (10.29.15): kāmaṁ krodhaṁ bhayam. As gopīs foram atraídas a Kṛṣṇa por bhakti-yoga em um relacionamento de desejo lascivo (kāma). De forma similar, Kaṁsa estava apegado a bhakti-yoga por dint de medo de sua morte. Portanto, bhakti-yoga é tão poderoso que até se tornar um inimigo do Senhor e sempre pensar Nele pode libertá-lo muito rapidamente. É dito, viṣṇu-bhaktaḥ smṛto daiva āsuras tad-vipanyayaḥ: "Os devotos do Senhor Viṣṇu são chamados semideuses, enquanto que não-devotos são chamados asuras." Mas bhakti-yoga é tão poderoso que tanto semideuses quanto asuras podem derivar seus benefícios se sempre pensarem na personalidade de Godhead. O princípio básico de bhakti-yoga é pensar no Senhor Supremo sempre. O Senhor diz no Bhagavad-gītā (18.65), man-manā bhava mad-bhaktaḥ: "Sempre pense em Mim." Não importa de qual forma se pensa; *o próprio pensamento da Personalidade de Godhead é o princípio básico de bhakti-yoga.
+
+*Nos planetas materiais há diferentes graus de atividades pecaminosas, de quais desrespeitar um brāhmana ou um Vaiṣṇava é a mais pecaminosa. Aqui é claramente dito que pode-se superar até este pecado grave simplesmente pensando em Viṣṇu, não até favoravelmente mas de raiva. Portanto, até mesmo aqueles que não são devotos se sempre pensarem em Viṣṇu, ficam livres de todas as atividades pecaminosas. A consciência de Kṛṣṇa é a forma mais elevada de pensamento. O Senhor Viṣṇu é pensado nesta era através do cântico Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare. Pelas afirmações do Bhāgavatam parece que se alguém pensa em Kṛṣṇa, até como um inimigo, aquela qualificação particular—pensar em Viṣṇu, ou Kṛṣṇa—limpa alguém de todos os pecados.

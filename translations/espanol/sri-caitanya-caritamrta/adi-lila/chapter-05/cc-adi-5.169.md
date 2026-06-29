@@ -1,0 +1,8 @@
+### CC Adi 5.169
+
+> aṅgane āsiyā teṅho nā kaila sambhāṣa
+> tāhā dekhi' kruddha hañā bale rāmadāsa
+
+*aṅgane*—al patio; *āsiyā*—viniendo; *teṅho*—él; *nā*—no; *kaila*—hizo; *sambhāṣa*—dirigirle la palabra; *tāhā dekhi'*—al ver esto; *kruddha hañā*—enfadándose; *bale*—dice; *rāma-dāsa*—Śrī Rāmadāsa.
+
+**Cuando Mīnaketana se hallaba sentado en el patio, aquel *brāhmaṇa* no le rindió honores. Al ver esto, Śrī Rāmadāsa se enfadó y habló.**

@@ -1,0 +1,8 @@
+### CC Antya 6.143
+
+> niścinta hañā yāha āpana-bhavana
+> acire nirvighne pābe caitanya-caraṇa"
+
+*niścinta*—sin ansiedad; *hañā*—estando; *yāha*—ve; *āpana-bhavana*—a tu propio hogar; *acire*—muy pronto; *nirvighne*—sin impedimentos; *pābe*—obtendrás; *caitanya-caraṇa*—el refugio del Señor Śrī Caitanya Mahāprabhu.
+
+**«Con la seguridad de todo esto, regresa a tu propio hogar. Muy pronto, sin impedimentos, alcanzarás el refugio del Señor Śrī Caitanya Mahāprabhu.»**

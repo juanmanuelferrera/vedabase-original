@@ -1,0 +1,10 @@
+### CC Adi 4.67
+
+kṛṣṇe bhagavattā-jñāna--saṁvitera sāra
+brahma-jñānādika saba tāra parivāra
+
+*kṛṣṇe*—em Kṛṣṇa; *bhagavattā*—da qualidade de ser a Suprema Personalidade de Deus original; *jñāna*—conhecimento; *saṁvitera*—da potência de conhecimento; *sāra*—a essência; *brahma-jñāna*—conhecimento do Brahman; *ādika*—e assim por diante; *saba*—todos; *tāra*—dela; *parivāra*—dependentes.
+
+**A essência da potência samvit é o conhecimento de que a Suprema Personalidade de Deus é o Senhor Kṛṣṇa. Todas as outras espécies de conhecimento, tais como o conhecimento do Brahman, são seus componentes.**
+
+As atividades da samvit-śakti produzem o efeito da cognição. Tanto o Senhor quanto as entidades vivas são cognoscentes. Śrī Kṛṣṇa, como a Suprema Personalidade de Deus, possui pleno conhecimento de tudo em toda parte e, portanto, não há impedimentos à Sua cognição. Ele pode obter conhecimento simplesmente lançando o olhar sobre um objeto, ao passo que inúmeros impedimentos bloqueiam a cognição dos seres vivos comuns. A cognição dos seres vivos tem três divisões: conhecimento direto, conhecimento indireto e conhecimento pervertido. A percepção sensorial dos objetos materiais pelos sentidos mundanos, tais como o olho, o ouvido, o nariz e a mão, sempre produz conhecimento definitivamente pervertido. Essa ilusão é uma apresentação da energia material, que é influenciada pela samvit-śakti de maneira pervertida. A cognição negativa de um objeto que está além do alcance da percepção sensorial é o caminho do conhecimento indireto, o qual não é de todo imperfeito, mas que produz apenas conhecimento fragmentário sob a forma de percepção espiritual impessoal e monismo. Mas quando o fator samvit da cognição é iluminado pela potência hlādinī da mesma energia interna, ambos atuam em conjunto, e somente assim se pode alcançar o conhecimento da Personalidade de Deus. A samvit-śakti deve ser mantida nesse estado. O conhecimento material e o conhecimento espiritual indireto são subprodutos da samvit-śakti.

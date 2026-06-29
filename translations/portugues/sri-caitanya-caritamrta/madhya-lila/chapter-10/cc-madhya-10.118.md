@@ -1,0 +1,9 @@
+### CC Madhya 10.118
+
+sei dāmodara āsi' daṇḍavat hailā
+
+caraṇe paḍiyā śloka paḍite lāgilā
+
+*sei dāmodara*—aquele Svarūpa Dāmodara; *āsi'*—vindo; *daṇḍa-vat hailā*—prostrou-se para oferecer reverências; *caraṇe paḍiyā*—caindo aos pés de lótus; *śloka*—um verso; *paḍite lāgilā*—começou a recitar.
+
+**Quando Svarūpa Dāmodara chegou a Jagannātha Purī, prostrou-se diante dos pés de lótus de Śrī Caitanya Mahāprabhu, oferecendo-Lhe reverências e recitando um verso.**

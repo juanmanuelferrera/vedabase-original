@@ -1,0 +1,9 @@
+### CC Madhya 16.58
+
+ācāryaratna-ādi yata mukhya bhakta-gaṇa
+
+madhye madhye prabhure karena nimantraṇa
+
+*ācāryaratna*—Candraśekhara; *ādi*—e outros; *yata*—todos; *mukhya bhakta-gaṇa*—principais devotos; *madhye madhye*—a intervalos; *prabhure*—a Śrī Caitanya Mahāprabhu; *karena nimantraṇa*—faziam convites.
+
+**Todos os principais devotos, encabeçados por Candraśekhara [Ācāryaratna], costumavam estender convites a Śrī Caitanya Mahāprabhu periodicamente.**

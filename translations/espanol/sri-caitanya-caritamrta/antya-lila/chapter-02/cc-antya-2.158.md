@@ -1,0 +1,8 @@
+### CC Antya 2.158
+
+> ājanma kṛṣṇa-kīrtana, prabhura sevana
+> prabhu-kṛpā-pātra, āra kṣetrera maraṇa
+
+*ājanma*—durante toda la vida; *kṛṣṇa-kīrtana*—canto del mantra Hare Kṛṣṇa; *prabhura sevana*—servicio a Śrī Caitanya Mahāprabhu; *prabhu-kṛpā-pātra*—muy querido por el Señor; *āra*—y; *kṣetrera maraṇa*—su muerte en un lugar sagrado.
+
+**«Haridāsa el joven cantó el mantra Hare Kṛṣṇa durante toda su vida y sirvió al Señor Supremo Śrī Caitanya Mahāprabhu. Además, era querido por el Señor y murió en un lugar sagrado.**

@@ -1,0 +1,10 @@
+### SB 9.20.7
+
+> tasya medhātithis tasmāt
+> praskannādyā dvijātayaḥ
+> putro 'bhūt sumate rebhir
+> duṣmantas tat-suto mataḥ
+
+*tasya*—de él (Kaṇva); *medhātithiḥ*—un hijo llamado Medhātithi; *tasmāt*—de él (Medhātithi); *praskanna-ādyāḥ*—hijos encabezados por Praskanna; *dvijātayaḥ*—todos *brāhmaṇas*; *putraḥ*—un hijo; *abhūt*—hubo; *sumateḥ*—de Sumati; *rebhiḥ*—Rebhi; *duṣmantaḥ*—Mahārāja Duṣmanta; *tat-sutaḥ*—el hijo de Rebhi; *mataḥ*—es bien conocido.
+
+**El hijo de Kaṇva fue Medhātithi, el mayor de cuyos hijos, que fueron brāhmaṇas, fue Praskanna. Sumati, el hijo de Rantināva, tuvo un hijo llamado Rebhi. Mahārāja Duṣmanta es bien conocido como hijo de Rebhi.**

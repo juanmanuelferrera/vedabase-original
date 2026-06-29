@@ -1,0 +1,11 @@
+### SB 4.1.29
+
+> maitreya uvāca
+> iti tasya vacaḥ śrutvā
+> trayas te vibudharṣabhāḥ
+> pratyāhuḥ ślakṣṇayā vācā
+> prahasya tam ṛṣiṁ prabho
+
+*maitreyaḥ uvāca*—el sabio Maitreya dijo; *iti*—así; *tasya*—sus; *vacaḥ*—palabras; *śrutvā*—después de escuchar; *trayaḥ te*—los tres; *vibudha*—semidioses; *ṛṣabhāḥ*—principales; *pratyāhuḥ*—contestaron; *ślakṣṇayā*—amables; *vācā*—palabras; *prahasya*—sonriendo; *tam*—a él; *ṛṣim*—al gran sabio; *prabho*—¡oh, poderoso!.
+
+**El gran sabio Maitreya continuó: Las tres grandes deidades sonrieron al oír a Atri Muni hablar de esa manera, y respondieron con las siguientes dulces palabras.**

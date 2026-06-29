@@ -1,0 +1,14 @@
+### SB 1.16.4
+
+> nijagrāhaujasā vīraḥ
+> kaliṁ digvijaye kvacit
+> nṛpa-liṅga-dharaṁ śūdraṁ
+> ghnantaṁ go-mithunaṁ padā
+
+*nijagrāha*—castigado lo suficiente; *ojasā*—con el valor; *vīraḥ*—héroe valiente; *kalim*—a Kali, el amo de la era; *digvijaye*—en camino a conquistar el mundo; *kvacit*—una vez; *nṛpa-liṅga-dharam*—aquel que se hace pasar por un rey; *śūdram*—la clase inferior; *ghnantam*—lastimando; *go-mithunam*—una vaca y un toro; *padā*—en la pata.
+
+**Una vez, cuando Mahārāja Parīkṣit se dirigía a conquistar el mundo, vio al amo de Kali-yuga, quien era más bajo que un *śūdra*, disfrazado de rey y lastimando las patas de una vaca y un toro. El rey lo aprehendió de inmediato para imponerle el debido castigo.**
+
+El propósito de que un rey salga a conquistar el mundo no es el engrandecimiento personal. Mahārāja Parīkṣit salió a conquistar el mundo tras su ascenso al trono, pero esto no tenía el propósito de agredir a otros Estados. Él era el emperador del mundo, y todos los Estados pequeños ya estaban bajo su régimen. Su propósito al salir era ver cómo iban las cosas en lo referente al Estado divino. El rey, siendo el representante del Señor, tiene que ejecutar debidamente la voluntad del Señor. No hay lugar para el engrandecimiento personal. Así, tan pronto como Mahārāja Parīkṣit vio que un hombre de clase baja, vestido de rey, estaba lastimando las piernas de una vaca y un toro, de inmediato lo arrestó y lo castigó. El rey no puede tolerar insultos al animal más importante, la vaca, ni puede tolerar la falta de respeto hacia el hombre más importante, el brāhmaṇa. La civilización humana significa promover la causa de la cultura brahmínica y, para mantenerla, la protección de la vaca es esencial. Hay un milagro en la leche, pues contiene todas las vitaminas necesarias para sostener las condiciones fisiológicas humanas en aras de logros superiores. La cultura brahmínica solo puede avanzar cuando se educa al hombre para que desarrolle la cualidad de la bondad, y para esto hay una necesidad primordial de alimentos preparados con leche, frutas y cereales. Mahārāja Parīkṣit se asombró al ver que un śūdra negro, vestido como un gobernante, estaba maltratando a una vaca, el animal más importante de la sociedad humana.
+
+La era de Kali significa mala administración y disputa. Y la causa fundamental de toda mala administración y disputa es que hombres indignos, con las modalidades de los hombres de clase baja, que no tienen ninguna ambición superior en la vida, llegan al timón de la administración del Estado. Tales hombres en el puesto de rey, con toda seguridad, lastimarán primero a la vaca y a la cultura brahmínica, y de ese modo empujarán a toda la sociedad hacia el infierno. Mahārāja Parīkṣit, tan preparado como estaba, percibió el indicio de esta causa fundamental de toda disputa en el mundo. Así pues, quiso detenerla desde el mismo comienzo.

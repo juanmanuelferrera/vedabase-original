@@ -1,0 +1,9 @@
+### CC Adi 10.132
+
+āliṅgana kari' tāṅre balila vacana
+
+tumi pāṇḍu, pañca-pāṇḍava--tomāra nandana
+
+*āliṅgana kari'*—abraçando; *tāṅre*—a ele; *balila*—disse; *vacana*—estas palavras; *tumi*—tu; *pāṇḍu*—foste Pāṇḍu; *pañca*—cinco; *pāṇḍava*—os Pāṇḍavas; *tomāra*—teus; *nandana*—filhos.
+
+**Abraçando Rāya Bhavānanda, o Senhor declarou-lhe: "Tu apareceste outrora como Pāṇḍu, e teus cinco filhos apareceram como os cinco Pāṇḍavas."**

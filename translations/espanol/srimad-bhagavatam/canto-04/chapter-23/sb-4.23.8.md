@@ -1,0 +1,21 @@
+### SB 4.23.8
+
+tena kramānusiddhena
+
+*dhvasta-karma-malāśayaḥ
+prāṇāyāmaiḥ sanniruddha-
+ṣaḍ-vargaś chinna-bandhanaḥ
+SINÓNIMOS
+tena*—así, mediante la práctica de tales austeridades; *krama*—gradualmente; *anu*—constantemente; *siddhena*—por la perfección; *dhvasta*—destruidos; *karma*—actividades fruitivas; *mala*—cosas sucias; *āśayaḥ*—deseo; *prāṇa-āyāmaiḥ*—mediante la práctica del prāṇāyāma-yoga, ejercicios de respiración; *san*—siendo; *niruddha*—detenidos; *ṣaṭ-vargaḥ*—la mente y los sentidos; *chinna-bandhanaḥ*—completamente libre de toda atadura.
+
+**Mediante la práctica de tan severas austeridades, Mahārāja Pṛthu gradualmente se afianzó en la vida espiritual y se liberó por completo de todo deseo de actividades fruitivas. También practicó ejercicios de respiración para controlar la mente y los sentidos, y mediante ese control se liberó completamente de todo deseo de actividad fruitiva.**
+
+La palabra prāṇāyāmaiḥ es muy importante en este verso, pues los haṭha-yogīs y los aṣṭāṅga-yogīs practican el prāṇāyāma, pero por lo general no conocen el propósito que hay tras él. El propósito del prāṇāyāma, o yoga místico, es detener la ocupación de la mente y los sentidos en actividades fruitivas. Los supuestos yogīs que practican en los países occidentales no tienen idea de esto. La finalidad del prāṇāyāma no es hacer que el cuerpo sea fuerte y apto para trabajar arduamente. La finalidad es la adoración de Kṛṣṇa. En el verso anterior se mencionó específicamente que cualesquiera austeridades, prāṇāyāma y prácticas de yoga místico que Pṛthu Mahārāja realizara, las realizaba con miras a adorar a Kṛṣṇa. Así pues, Pṛthu Mahārāja constituye un ejemplo perfecto también para los yogīs. Todo cuanto hizo, lo hizo para complacer a la Suprema Personalidad de Dios, Kṛṣṇa.
+
+Las mentes de quienes son adictos a la actividad fruitiva están siempre llenas de deseos impuros. Las actividades fruitivas son síntoma de nuestro contaminado deseo de dominar la naturaleza material. Mientras uno continúe sujeto a deseos contaminados, tendrá que aceptar un cuerpo material tras otro. Los supuestos yogīs, sin conocimiento del verdadero propósito del yoga, lo practican con el fin de mantener el cuerpo en buena forma. De ese modo se ocupan en actividades fruitivas, y así quedan atados por el deseo a aceptar otro cuerpo. No son conscientes de que la meta última de la vida es acercarse a Kṛṣṇa. A fin de salvar a tales yogīs de vagar por las diversas especies de vida, los śāstras advierten que en esta era semejante práctica yóguica no es más que una pérdida de tiempo. El único medio de elevación es el canto del mahā-mantra Hare Kṛṣṇa.
+
+Las actividades del rey Pṛthu tuvieron lugar en Satya-yuga, y en esta era esta práctica de yoga es malinterpretada por las almas caídas que no son capaces de practicar nada. En consecuencia, los śāstras ordenan: kalau nāsty eva nāsty eva nāsty eva gatir anyathā. La conclusión es que, a menos que los karmīs, jñānīs y yogīs lleguen al punto del servicio devocional al Señor Kṛṣṇa, sus supuestas austeridades y su yoga carecen de valor. Nārādhitaḥ: si no se adora a Hari, la Suprema Personalidad de Dios, no tiene sentido practicar el yoga de la meditación, ejecutar karma-yoga o cultivar el conocimiento empírico. En lo que respecta al prāṇāyāma, el canto del santo nombre del Señor y la danza en éxtasis también se consideran prāṇāyāma. En un verso anterior, Sanat-kumāra instruyó a Mahārāja Pṛthu a ocuparse constantemente en el servicio del Señor Supremo, Vāsudeva:
+
+yat pāda-paṅkaja-palāśa-vilāsa-bhaktyā karmāśayaṁ grathitam udgrathayanti santaḥ
+
+Solo mediante la adoración de Vāsudeva puede uno liberarse de los deseos de las actividades fruitivas. Fuera de la adoración de Vāsudeva, los yogīs y los jñānīs no pueden alcanzar la liberación de tales deseos. Tadvan na rikta-matayo yatayo 'pi ruddha-srotogaṇās tam araṇaṁ bhaja vāsudevam (Bhāg. 4.22.39). Aquí la palabra prāṇāyāma no se refiere a ningún motivo ulterior. El verdadero objetivo es fortalecer la mente y los sentidos a fin de ocuparlos en el servicio devocional. En la era actual, esta determinación puede adquirirse muy fácilmente con solo cantar los santos nombres: Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare.

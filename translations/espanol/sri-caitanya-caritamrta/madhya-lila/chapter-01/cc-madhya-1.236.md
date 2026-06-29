@@ -1,0 +1,8 @@
+### CC Madhya 1.236
+
+> balabhadra bhaṭṭācārya, āra paṇḍita dāmodara
+> dui-jana-saṅge prabhu āilā nīlācala
+
+*balabhadra bhaṭṭācārya*—llamado Balabhadra Bhaṭṭācārya; *āra*—y; *paṇḍita dāmodara*—Dāmodara Paṇḍita; *dui-jana*—dos personas; *saṅge*—con; *prabhu*—el Señor; *āilā*—regresó; *nīlācala*—a Jagannātha Purī.
+
+**Las dos personas que acompañaron a Śrī Caitanya Mahāprabhu a Jagannātha Purī [Nīlācala] fueron Balabhadra Bhaṭṭācārya y Dāmodara Paṇḍita.**

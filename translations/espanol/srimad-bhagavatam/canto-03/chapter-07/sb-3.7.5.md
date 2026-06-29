@@ -1,0 +1,12 @@
+### SB 3.7.5
+
+> deśataḥ kālato yo 'sāv
+> avasthātaḥ svato 'nyataḥ
+> aviluptāvabodhātmā
+> sa yujyetājayā katham
+
+*deśataḥ*—circunstancial; *kālataḥ*—por la influencia del tiempo; *yaḥ*—aquel que; *asau*—la entidad viviente; *avasthātaḥ*—por la situación; *svataḥ*—por el sueño; *anyataḥ*—por otros; *avilupta*—extinto; *avabodha*—conciencia; *ātmā*—el ser puro; *saḥ*—él; *yujyeta*—ocupado; *ajayā*—con ignorancia; *katham*—cómo ocurre.
+
+**El alma pura es conciencia pura, y nunca pierde la conciencia, ni por las circunstancias, el tiempo, las situaciones, los sueños, ni por otras causas. ¿Cómo es posible, entonces, que se vea ocupada en la ignorancia?**
+
+La conciencia del ser viviente se encuentra siempre presente, y nunca cambia bajo ninguna circunstancia, como se mencionó anteriormente. Cuando un hombre vivo se mueve de un lugar a otro, está consciente de que ha cambiado su posición. Siempre está presente en el pasado, en el presente y en el futuro, como la electricidad. Uno puede recordar incidentes de su pasado, y también puede hacer conjeturas acerca de su futuro, sobre la base de la experiencia pasada. Aunque a uno se le ponga en circunstancias difíciles, nunca olvida su identidad personal. ¿Cómo es posible, entonces, que la entidad viviente olvide su verdadera identidad como alma espiritual pura y se identifique con la materia, a menos que sea influenciada por algo que se encuentra más allá de sí misma? La conclusión es que a la entidad viviente la influencia la potencia *avidyā,* tal como se confirma tanto en el *Viṣṇu-Purāṇa* como al comienzo del *Śrīmad-Bhāgavatam.* A la entidad viviente se la menciona en el *Bhagavad-gītā* (7.5) como *parā prakṛti,* y en el *Viṣṇu-Purāṇa* se la menciona como *parā śakti.* Es parte integral del Señor Supremo en calidad de potencia, y no como fuente de potencia. La fuente de potencia puede exhibir muchas potencias, pero la potencia no puede igualar a la fuente en ninguna circunstancia. Una potencia puede ser dominada por otra potencia, pero para la fuente, todas las potencias se encuentran bajo control. La potencia *jīva,* la *kṣetrajña-śakti* del Señor, tiene la tendencia a ser dominada por la potencia externa, *avidyā-karma-saṁjñā,* y de esa manera es puesta en las difíciles circunstancias de la existencia material. La entidad viviente no puede olvidar su verdadera identidad a menos que se vea influenciada por la potencia *avidyā.* Debido a que la entidad viviente es propensa a la influencia de la potencia *avidyā,* nunca puede igualar a la suprema fuente de potencia.

@@ -1,0 +1,9 @@
+### 7
+
+**Los pequeños arroyos que casi se secaron durante los meses de mayo y junio ahora comienzan a desbordar sus riberas, como los advenedizos que de repente sobrepasan los límites del gasto.**
+
+Uno debería aprender gravedad del mar y del arroyo. El mar siempre se mantiene dentro de sus límites, a pesar de los muchos ríos que vierten agua en él. De forma similar, uno debería emplear adecuadamente los recursos de la vida y no malgastarlos en propósitos que carecen de valor permanente. Las personas descontroladas y sensuales juegan con los recursos del cuerpo y acumulan riqueza. Pero la fuerza del cuerpo debería emplearse para la autorrealización, no para la complacencia de los sentidos.
+
+Los seres humanos poseen dos clases de temperamento. Algunos son introspectivos y los otros son extravagantes. Aquellos que son extravagantes están fascinados por los rasgos externos de la belleza fenoménica y no tienen percepción del conjunto de la manifestación. Se hallan prácticamente dormidos respecto a la introspección, y de este modo son incapaces de derivar valor permanente alguno de los recursos de la forma humana del cuerpo. Pero aquel que ha desarrollado la introspección es tan grave como el mar. Mientras los extravagantes permanecen tranquilos y quietos en el sueño, tales personas graves aprovechan al máximo la forma humana de vida.
+
+Aunque las propensiones animales del cuerpo deben minimizarse, aquellos que son extravagantes se desbordan temporalmente en el disfrute material. Con todo, tan pronto como la estación lluviosa de la vida termina, se quedan tan secos como los lechos secos de los ríos. La vida está destinada a la causa correcta, o *sat*, lo que existe por siempre. En el mundo material nada es *sat*, o eterno, pero el mal negocio del mundo material puede emplearse con el mejor propósito. La mente dedicada a la extravagancia es un mal negocio, pero uno puede hacer el mejor uso de la mente mediante la introspección.

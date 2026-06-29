@@ -1,0 +1,8 @@
+### CC Antya 10.77
+
+> tabe nityānanda prabhu sṛjilā upāya
+> krame-krame kīrtanīyā rākhila sabāya
+
+*tabe*—en ese momento; *nityānanda*—el Señor Nityānanda; *prabhu*—el Señor; *sṛjilā upāya*—ideó un recurso; *krame-krame*—poco a poco; *kīrtanīyā*—los cantores; *rākhila*—detuvo; *sabāya*—a todos.
+
+**Entonces el Señor Nityānanda encontró un modo de poner fin al kīrtana. Poco a poco fue deteniendo a todos los cantores.**

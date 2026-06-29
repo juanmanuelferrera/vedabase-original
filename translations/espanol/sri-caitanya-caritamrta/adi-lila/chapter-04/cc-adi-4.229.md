@@ -1,0 +1,8 @@
+### CC Adi 4.229
+
+> ṣaṣṭha-ślokera ei kahila ābhāsa
+> mūla ślokera artha śuna kariye prakāśa
+
+*ṣaṣṭha-ślokera*—del sexto verso; *ei*—esto; *kahila*—se ha hablado; *ābhāsa*—una indicación; *mūla ślokera*—del verso original; *artha*—significado; *śuna*—por favor oíd; *kariye prakāśa*—estoy revelando.
+
+**He dado una indicación del sexto verso. Ahora, por favor, escucha mientras revelo el significado de ese verso original.**

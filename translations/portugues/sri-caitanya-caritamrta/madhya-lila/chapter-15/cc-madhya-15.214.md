@@ -1,0 +1,9 @@
+### CC Madhya 15.214
+
+bhṛṣṭa-māṣa-mudga-sūpa amṛta nindaya
+
+madhurāmla, baḍāmlādi amla pāṅca chaya
+
+*bhṛṣṭa*—frito; *māṣa*—dhal urad; *mudga*—dhal mung; *sūpa*—sopa; *amṛta*—néctar; *nindaya*—superando; *madhura-amla*—chutney doce; *baḍa-amla*—preparação azeda feita com dhal frito; *ādi*—e assim por diante; *amla*—azedas; *pāṅca chaya*—cinco ou seis tipos.
+
+**Havia uma sopa feita com dhal urad frito e dhal mung, que superava o néctar. Havia também chutney doce e cinco ou seis tipos de preparações azedas, a começar pelo baḍāmla.**

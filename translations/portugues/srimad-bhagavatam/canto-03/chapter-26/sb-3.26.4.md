@@ -1,0 +1,17 @@
+### SB 3.26.4
+
+sa eṣa prakṛtiṁ sūkṣmāṁ
+
+daivīṁ guṇamayīṁ vibhuḥ
+
+yadṛcchayaivopagatām
+
+abhyapadyata līlayā
+
+*saḥ eṣaḥ*—essa mesma Suprema Personalidade de Deus; *prakṛtim*—a energia material; *sūkṣmām*—sutil; *daivīm*—relacionada a Viṣṇu; *guṇamayīm*—investida dos três modos da natureza material; *vibhuḥ*—o maior dos grandes; *yadṛcchayā*—por Sua própria vontade; *iva*—perfeitamente; *upagatām*—obtida; *abhyapadyata*—Ele aceitou; *līlayā*—como Seu passatempo.
+
+**Como Seu passatempo, essa Suprema Personalidade de Deus, o maior dos grandes, aceitou a energia material sutil, que está investida dos três modos da natureza material e que está relacionada com Viṣṇu.**
+
+Neste verso a palavra *guṇamayīm* é muito significativa. *Daivīm* significa "a energia da Suprema Personalidade de Deus", e *guṇamayīm* significa "investida dos três modos da natureza material". Quando a energia material da Suprema Personalidade de Deus aparece, esta energia *guṇamayīm* age como uma manifestação das energias dos três modos; age como uma cobertura. A energia emanada da Suprema Personalidade de Deus se manifesta de duas maneiras — como emanação do Senhor Supremo e como cobertura do rosto do Senhor. No *Bhagavad-gītā* diz-se que, como o mundo inteiro está iludido pelos três modos da natureza material, a alma condicionada comum, coberta por tal energia, não pode ver a Suprema Personalidade de Deus. O exemplo de uma nuvem é dado de modo muito adequado. De repente pode aparecer uma grande nuvem no céu. Essa nuvem é percebida de duas maneiras. Para o sol, a nuvem é uma criação de sua energia, mas para o homem comum e condicionado, ela é uma cobertura para os olhos; por causa da nuvem, o sol não pode ser visto. Não é que o sol esteja realmente coberto pela nuvem; apenas a visão do ser comum está coberta. De modo semelhante, embora a māyā não possa cobrir o Senhor Supremo, que está além da māyā, a energia material cobre as entidades vivas comuns. As almas condicionadas que estão cobertas são entidades vivas individuais, e Aquele de cuja energia a māyā é criada é a Suprema Personalidade de Deus.
+
+Em outro lugar do *Śrīmad-Bhāgavatam*, no Sétimo Capítulo do Primeiro Canto, afirma-se que Vyāsadeva, por sua visão espiritual, viu o Senhor Supremo e a energia material de pé atrás dEle. Isso indica que a energia material não pode cobrir o Senhor, assim como a escuridão não pode cobrir o sol. A escuridão pode cobrir uma jurisdição muito insignificante em comparação com a do sol. A escuridão pode cobrir uma pequena caverna, mas não o céu aberto. De modo semelhante, a capacidade de cobertura da energia material é limitada e não pode agir sobre a Suprema Personalidade de Deus, que é chamado por isso de *vibhu*. Assim como o sol aceita o aparecimento de uma nuvem, o Senhor aceita o aparecimento da energia material em determinado intervalo. Embora Sua energia material seja utilizada para criar o mundo material, isso não significa que Ele esteja coberto por essa energia. Os que estão cobertos pela energia material são chamados de almas condicionadas. O Senhor aceita a energia material para Seus passatempos materiais na criação, manutenção e dissolução. Mas a alma condicionada está coberta; ela não consegue compreender que além dessa energia material está a Suprema Personalidade de Deus, que é a causa de todas as causas, assim como uma pessoa menos inteligente não consegue compreender que além da cobertura das nuvens há o brilho intenso do sol.

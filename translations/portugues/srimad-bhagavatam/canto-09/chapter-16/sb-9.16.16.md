@@ -1,0 +1,15 @@
+### SB 9.16.16
+
+vilapyaivaṁ pitur dehaṁ
+
+nidhāya bhrātṛṣu svayam
+
+pragṛhya paraśuṁ rāmaḥ
+
+kṣatrāntāya mano dadhe
+
+*vilapya*—lamentando; *evam*—dessa maneira; *pituḥ*—de seu pai; *deham*—o corpo; *nidhāya*—confiando; *bhrātṛṣu*—a seus irmãos; *svayam*—pessoalmente; *pragṛhya*—tomando; *paraśum*—o machado; *rāmaḥ*—o Senhor Paraśurāma; *kṣatra-antāya*—para dar fim a todos os *kṣatriyas*; *manaḥ*—a mente; *dadhe*—fixou.
+
+**Lamentando-se dessa maneira, o Senhor Paraśurāma confiou o corpo morto de seu pai a seus irmãos e pessoalmente empunhou seu machado, tendo decidido pôr fim a todos os *kṣatriyas* da face da Terra.**
+
+---

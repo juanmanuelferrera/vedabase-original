@@ -1,0 +1,8 @@
+### CC Adi 5.78
+
+yadyapi kahiye tāṅre kṛṣṇera 'kalā' kari
+matsya-kūrmādy-avatārera tiṅho avatārī
+
+*yadyapi*—embora; *kahiye*—eu diga; *tāṅre*—a Ele; *kṛṣṇera*—do Senhor Kṛṣṇa; *kalā*—parte da parte; *kari*—fazendo; *matsya*—a encarnação peixe; *kūrma-ādi*—a encarnação tartaruga e outras; *avatārera*—de todas essas encarnações; *tiṅho*—Ele; *avatārī*—a fonte original.
+
+**Embora Kṣīrodaśāyī Viṣṇu seja chamado de kalā do Senhor Kṛṣṇa, Ele é a fonte de Matsya, Kūrma e das demais encarnações.**

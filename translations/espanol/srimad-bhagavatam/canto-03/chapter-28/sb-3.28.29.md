@@ -1,0 +1,14 @@
+### SB 3.28.29
+
+> bhṛtyānukampita-dhiyeha gṛhīta-mūrteḥ
+> sañcintayed bhagavato vadanāravindam
+> yad visphuran-makara-kuṇḍala-valgitena
+> vidyotitāmala-kapolam udāra-nāsam
+
+*bhṛtya*—hacia los devotos; *anukampita-dhiyā*—por compasión; *iha*—en el mundo; *gṛhīta-mūrteḥ*—que presenta distintas formas; *sañcintayet*—debe meditar en; *bhagavataḥ*—de la Personalidad de Dios; *vadana*—semblante; *aravindam*—como el loto; *yat*—el cual; *visphuran*—resplandecientes; *makara*—con forma de cocodrilo; *kuṇḍala*—de Sus pendientes; *valgitena*—por el oscilar; *vidyotita*—iluminadas; *amala*—claras como el cristal; *kapolam*—Sus mejillas; *udāra*—prominente; *nāsam*—Su nariz.
+
+**El yogī debe entonces meditar en el semblante de loto del Señor. Sintiendo compasión por las ansiedades de los devotos, Él manifiesta en el mundo Sus diversas formas. Su nariz es prominente, y Sus brillantes pendientes en forma de cocodrilo iluminan, al moverse, Sus mejillas claras como el cristal con sus destellos.**
+
+El Señor desciende al mundo material movido por Su profunda compasión hacia los devotos. El advenimiento o encarnación del Señor en el mundo material tiene dos motivos. Cada vez que hay disensiones en el desempeño de los principios religiosos y predominio de la irreligión, el Señor desciende para proteger a los devotos y destruir a los no devotos. Cuando adviene, Su propósito principal es aliviar a los devotos. Para destruir a los demonios no tendría que venir personalmente, pues tiene muchos agentes; *māyā* misma, la energía externa, tiene fuerza suficiente para matarlos. Pero cuando viene para mostrar Su compasión por los devotos, mata, por supuesto, a los no devotos.
+
+El Señor adviene en la forma precisa amada por un tipo de devotos en particular. El Señor tiene millones de formas, pero todas ellas corresponden a un único Absoluto. Como se afirma en la *Brahma-saṁhitā: advaitam acyutam anādim ananta-rūpam:* Las diversas formas del Señor son todas una, pero algunos devotos quieren verle en la forma de Rādhā y Kṛṣṇa, otros Le prefieren como Sītā y Rāmacandra, a otros les gusta ver a Lakṣmī-Nārāyaṇa, y otros desean verle como el Nārāyaṇa de cuatro brazos, Vāsudeva. El Señor tiene innumerables formas, y adviene en una forma determinada según la preferencia de un determinado tipo de devotos. Al *yogī* se le aconseja que medite en las formas que cuentan con la aprobación de los devotos. El *yogī* no puede imaginarse una forma y meditar en ella. Los supuestos *yogīs* que inventan un círculo o una diana están haciendo el tonto. En realidad, el *yogī* debe meditar en la forma de la Suprema Personalidad de Dios de la que tienen experiencia los devotos puros del Señor. *Yogī* significa devoto. Los *yogīs* que no sean verdaderos devotos puros deben seguir los pasos de los devotos. En este verso se menciona especialmente que el *yogī* debe meditar en la forma aprobada de este modo; no puede inventarse una forma del Señor.

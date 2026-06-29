@@ -1,0 +1,12 @@
+### SB 1.12.2
+
+> tasya janma mahā-buddheḥ
+> karmāṇi ca mahātmanaḥ
+> nidhanaṁ ca yathaivāsīt
+> sa pretya gatavān yathā
+
+*tasya*—su (de Mahārāja Parīkṣit); *janma*—nacimiento; *mahā-buddheḥ*—de gran inteligencia; *karmāṇi*—actividades; *ca*—también; *mahā-ātmanaḥ*—del gran devoto; *nidhanam*—muerte; *ca*—también; *yathā*—tal como fue; *eva*—por supuesto; *āsīt*—ocurrió; *saḥ*—él; *pretya*—destino después de morir; *gatavān*—alcanzó; *yathā*—tal como fue.
+
+**¿Cómo nació en ese vientre el gran emperador Parīkṣit, quien era un devoto notable y sumamente inteligente? ¿Cómo ocurrió su muerte, y qué logró después de ella?**
+
+El rey de Hastināpura (ahora Delhi) solía ser el emperador del mundo, al menos hasta la época del hijo del emperador Parīkṣit. Mahārāja Parīkṣit fue salvado por el Señor en el vientre de su madre, de modo que ciertamente podía ser salvado de una muerte prematura causada por la mala voluntad del hijo de un brāhmaṇa. Como la era de Kali comenzó a actuar justo después de la asunción del poder por Mahārāja Parīkṣit, el primer signo de malos presagios se manifestó en la maldición de un rey tan sumamente inteligente y devoto como Mahārāja Parīkṣit. El rey es el protector de los ciudadanos desvalidos, y de él dependen el bienestar, la paz y la prosperidad de estos. Por desgracia, por instigación de la caída era de Kali, el hijo de un brāhmaṇa desafortunado fue empleado para condenar al inocente Mahārāja Parīkṣit, y así el rey tuvo que prepararse para morir en el plazo de siete días. Mahārāja Parīkṣit es especialmente famoso como aquel que está protegido por Viṣṇu, y cuando fue indebidamente maldecido por el hijo de un brāhmaṇa, podría haber invocado la misericordia del Señor para salvarse, pero no quiso hacerlo porque era un devoto puro. Un devoto puro jamás pide al Señor ningún favor indebido. Mahārāja Parīkṣit sabía que la maldición del hijo del brāhmaṇa sobre él era injustificada, como todos los demás sabían, pero no quiso contrarrestarla porque sabía también que la era de Kali había comenzado y que el primer síntoma de la era, a saber, la degradación de la sumamente talentosa comunidad brāhmaṇa, también había comenzado. No quiso interferir con la corriente del tiempo, sino que se preparó para afrontar la muerte de manera muy alegre y muy apropiada. Por ser afortunado, obtuvo al menos siete días para prepararse a afrontar la muerte, y así aprovechó debidamente el tiempo en compañía de Śukadeva Gosvāmī, el gran santo y devoto del Señor.

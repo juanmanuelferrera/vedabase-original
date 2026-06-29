@@ -1,0 +1,9 @@
+### SB 5.3.12
+
+> atha kathañcit skhalana-kṣut-patana-jṛmbhaṇa-duravasthānādiṣu vivaśānāṁ naḥ smaraṇāya jvara-maraṇa-daśāyām api sakala-kaśmala-nirasanāni tava guṇa-kṛta-nāmadheyāni vacana-gocarāṇi bhavantu.
+
+*atha*—aún; *kathañcit*—de una u otra forma; *skhalana*—balbuceo; *kṣut*—hambre; *patana*—caída; *jṛmbhaṇa*—bostezo; *duravasthāna*—por estar en una condición indeseable; *ādiṣu*—etc.; *vivaśānām*—incapaces; *naḥ*—de nosotros; *smaraṇāya*—recordar; *jvara-maraṇa-daśāyām*—en caso de tener una fiebre alta en el momento de la muerte; *api*—también; *sakala*—todos; *kaśmala*—los pecados; *nirasanāni*—que pueden disipar; *tava*—Tus; *guṇa*—atributos; *kṛta*—actividades; *nāmadheyāni*—nombres; *vacana-gocarāṇi*—posible pronunciar; *bhavantu*—que sea.
+
+**Querido Señor, es muy posible que a la hora de morir, cuando la fiebre es muy alta, nos falle la voz, y que el hambre, las caídas, los bostezos y los miserables sufrimientos de la enfermedad nos impidan recordar Tu nombre, Tu forma y Tus cualidades. Por eso Te oramos, ¡oh, Señor!, pues Tú eres siempre muy afectuoso con Tus devotos. Por favor, ayúdanos a recordarte y a alabar Tus santos nombres, atributos y actividades, que pueden disipar todas las reacciones de nuestras vidas pecaminosas.**
+
+El verdadero éxito en la vida consiste en *ante nārāyaṇa-smṛti:* recordar el santo nombre, los atributos, las actividades y la forma del Señor en el momento de la muerte. Aunque estemos en un templo, ocupados en el servicio devocional del Señor, el condicionamiento material es tan fuerte e ineludible, que a la hora de la muerte es posible que olvidemos al Señor, debido a la enfermedad o a la confusión de la mente. Por lo tanto, debemos orar al Señor para poder tener el recuerdo seguro de Sus pies de loto en el momento de la muerte, cuando nos encontremos en esa precaria situación. Con respecto a esto, podemos consultar el *Śrīmad-Bhāgavatam* (6.2.9-10 y 14-15).

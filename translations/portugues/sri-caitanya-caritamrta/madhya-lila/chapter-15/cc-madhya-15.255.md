@@ -1,0 +1,9 @@
+### CC Madhya 15.255
+
+sarvāṅge parāila prabhura mālya-candana
+
+daṇḍavat hañā bale sadainya vacana
+
+*sarva-aṅge*—por todo o corpo; *parāila*—colocou; *prabhura*—do Senhor; *mālya-candana*—uma guirlanda de flores e polpa de sândalo; *daṇḍavat hañā*—oferecendo reverências; *bale*—diz; *sa-dainya*—humilde; *vacana*—declaração.
+
+**O Bhaṭṭācārya então colocou uma guirlanda de flores sobre Śrī Caitanya Mahāprabhu e untou Seu corpo com polpa de sândalo. Após oferecer reverências, o Bhaṭṭācārya apresentou a seguinte declaração humilde.**

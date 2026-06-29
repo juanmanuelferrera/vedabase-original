@@ -1,0 +1,8 @@
+### CC Antya 13.6
+
+dekhi' saba bhakta-gaṇa mahā-duḥkha pāya
+sahite nāre jagadānanda, sṛjilā upāya
+
+*dekhi'*—vendo; *saba bhakta-gaṇa*—todos os devotos; *mahā-duḥkha*—grande infelicidade; *pāya*—sentem; *sahite*—tolerar; *nāre*—era incapaz; *jagadānanda*—Jagadānanda Paṇḍita; *sṛjilā upāya*—concebeu um meio.
+
+**Todos os devotos sentiam-se muito infelizes ao ver Śrī Caitanya Mahāprabhu sofrendo. De fato, não conseguiam tolerá-lo. Então Jagadānanda Paṇḍita concebeu um remédio.**

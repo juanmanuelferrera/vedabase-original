@@ -1,0 +1,13 @@
+### SB 4.4.24
+
+> maitreya uvāca
+> ity adhvare dakṣam anūdya śatru-han
+> kṣitāv udīcīṁ niṣasāda śānta-vāk
+> spṛṣṭvā jalaṁ pīta-dukūla-saṁvṛtā
+> nimīlya dṛg yoga-pathaṁ samāviśat
+
+*maitreyaḥ uvāca*—Maitreya dijo; *iti*—de este modo; *adhvare*—en el recinto del sacrificio; *dakṣam*—a Dakṣa; *anūdya*—hablando; *śatru-han*—¡oh, aniquilador de enemigos!; *kṣitau*—en el suelo; *udīcīm*—mirando al norte; *niṣasāda*—se sentó; *śānta-vāk*—en silencio; *spṛṣṭvā*—después de tocar; *jalam*—agua; *pīta-dukūla-saṁvṛtā*—vestida con ropas amarillas; *nimīlya*—cerrar; *dṛk*—la vista; *yoga-patham*—el proceso de *yoga* místico; *samāviśat*—se absorbió.
+
+**El sabio Maitreya dijo a Vidura: ¡Oh, aniquilador de enemigos!, diciendo estas palabras a su padre en el recinto del sacrificio, Satī se sentó en el suelo mirando hacia el norte. Vestida con ropas de color azafrán, tocó agua para santificarse y cerró los ojos para absorberse en el proceso del yoga místico.**
+
+Se dice que cuando alguien desea abandonar el cuerpo, se viste con ropas azafrán. Según parece, Satī se había cambiado de ropa, indicando con ello que iba a abandonar el cuerpo que Dakṣa le había dado. Como Dakṣa era padre de Satī, ella, en lugar de matarle, decidió que sería mejor destruir la parte de su cuerpo que era suya. De manera que decidió abandonar el cuerpo de Dakṣa mediante el proceso yóguico. Satī era la esposa del Señor Śiva, a quien se conoce con el nombre de Yogeśvara, «el mejor entre los *yogīs*», pues conoce todos los procesos místicos de *yoga,* y según parece, también Satī los conocía. O bien pudo haberlos aprendido de su esposo, o bien su iluminación se debía a que era la hija de un rey tan importante como Dakṣa. La perfección del *yoga* consiste en poder abandonar el cuerpo y liberar voluntariamente al ser de los elementos materiales que constituyen su envoltura corporal. Los *yogīs* que han alcanzado la perfección no se ven afectados por las leyes naturales de la muerte; esos *yogīs* perfectos pueden dejar el cuerpo en el momento en que lo deseen. Por lo general, el *yogī* comienza por alcanzar la madurez en el control del aire que circula por el cuerpo, hasta que sitúa el alma en el punto más alto del cerebro. Entonces, cuando el cuerpo estalla en llamas, el *yogī* puede ir al lugar que desee. Este sistema de *yoga* reconoce la existencia del alma, y es, por consiguiente, distinto del mal llamado proceso de *yoga* para el control de las células del cuerpo, que es un proceso de reciente invención. El verdadero proceso de *yoga* acepta la transmigración del alma de un planeta a otro y de un cuerpo a otro; de este incidente se desprende que Satī deseaba transferir su alma a otro cuerpo o a otra esfera.

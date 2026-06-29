@@ -1,0 +1,15 @@
+### SB 4.23.15
+
+utsarpayaṁs tu taṁ mūrdhni
+
+*krameṇāveśya niḥspṛhaḥ
+vāyuṁ vāyau kṣitau kāyaṁ
+tejas tejasy ayūyujat
+SINÓNIMOS
+utsarpayan*—situando así; *tu*—pero; *tam*—el aire; *mūrdhni*—en la cabeza; *krameṇa*—gradualmente; *āveśya*—situando; *niḥspṛhaḥ*—estando libre de todos los deseos materiales; *vāyum*—la porción de aire del cuerpo; *vāyau*—en el aire total que cubre el universo; *kṣitau*—en la cobertura total de tierra; *kāyam*—este cuerpo material; *tejaḥ*—el fuego del cuerpo; *tejasi*—en el fuego total de la cobertura material; *ayūyujat*—fusionó.
+
+**De esta forma, Pṛthu Mahārāja elevó gradualmente su aire vital hasta el orificio del cráneo, tras lo cual perdió todo deseo de existencia material. Poco a poco fusionó su aire vital con la totalidad del aire, su cuerpo con la totalidad de la tierra, y el fuego de su cuerpo con la totalidad del fuego.**
+
+*Cuando la chispa espiritual, que se describe como una diezmilésima parte de la punta de un cabello, se ve forzada a entrar en la existencia material, esa chispa queda cubierta por elementos materiales burdos y sutiles. El cuerpo material se compone de cinco elementos burdos —tierra, agua, fuego, aire y éter— y tres elementos sutiles —mente, inteligencia y ego—. Cuando se alcanza la liberación, la persona se libera de estas coberturas materiales. De hecho, el éxito del yoga consiste en liberarse de estas coberturas materiales e ingresar en la existencia espiritual. Las enseñanzas del Señor Buddha sobre el nirvāṇa se basan en este principio. El Señor Buddha instruyó a Sus seguidores para que se desprendieran de estas coberturas materiales por medio de la meditación y el yoga. El Señor Buddha no proporcionó información alguna acerca del alma, pero si alguien sigue Sus instrucciones estrictamente, en última instancia se liberará de las coberturas materiales y alcanzará el nirvāṇa*.
+
+Cuando una entidad viviente abandona las coberturas materiales, permanece como alma espiritual. Esta alma espiritual debe entrar en el cielo espiritual para fusionarse con la refulgencia Brahman. Lamentablemente, a menos que la entidad viviente disponga de información acerca del mundo espiritual y los Vaikuṇṭhas, existe un 99,9 por ciento de probabilidades de que vuelva a caer en la existencia material. Existe, no obstante, una pequeña posibilidad de ser promovido a un planeta espiritual desde la refulgencia Brahman, o el brahmajyoti. Los impersonalistas consideran que este brahmajyoti carece de variedad, y los budistas lo consideran vacío. En cualquiera de los dos casos, tanto si se acepta que el cielo espiritual carece de variedad como si se lo considera vacío, no se encuentra allí la bienaventuranza espiritual de la que se disfruta en los planetas espirituales, los Vaikuṇṭhas o Kṛṣṇaloka. En ausencia de variedades de disfrute, el alma espiritual siente gradualmente atracción por disfrutar de una vida de bienaventuranza, y al no disponer de información alguna acerca de Kṛṣṇaloka o Vaikuṇṭhaloka, cae naturalmente a las actividades materiales para disfrutar de las variedades materiales.

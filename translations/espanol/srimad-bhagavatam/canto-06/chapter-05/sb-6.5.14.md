@@ -1,0 +1,14 @@
+### SB 6.5.14
+
+> nānā-rūpātmano buddhiḥ
+> svairiṇīva guṇānvitā
+> tan-niṣṭhām agatasyeha
+> kim asat-karmabhir bhavet
+
+*nānā*—diversas; *rūpā*—que tiene formas o vestidos; *ātmanaḥ*—de la entidad viviente; *buddhiḥ*—la inteligencia; *svairiṇī*—una prostituta que se adorna libremente con vestidos y alhajas de distintos tipos; *iva*—como; *guṇa-anvitā*—dotada con la modalidad de la pasión y demás; *tat-niṣṭhām*—el final de eso; *agatasya*—de quien no ha obtenido; *iha*—en el mundo material; *kim asat-karmabhiḥ bhavet*—de qué sirve realizar actividades fruitivas, que son temporales.
+
+**[Nārada Muni había descrito a una mujer, una prostituta profesional. Los Haryaśvas comprendieron la identidad de esa mujer:] Mezclada con la modalidad de la pasión, la inestable inteligencia de la entidad viviente es como una prostituta que se cambia de ropas para atraer su atención. ¿Qué beneficio verdadero puede obtener alguien que, sin entender lo que está ocurriendo, se entrega por completo a las actividades fruitivas, que son temporales?**
+
+Que una mujer sin esposo se declare independiente, significa que es una prostituta. Las prostitutas, con su modo de vestir, buscan atraer la atención del hombre hacia la parte inferior de su cuerpo. Hoy en día se ha promovido mucho la moda de que las mujeres vayan casi desnudas, con la parte inferior del cuerpo solo ligeramente cubierta, a fin de atraer la atención del hombre hacia sus partes íntimas y hacia el disfrute sexual. La inteligencia que se dedica a atraer al hombre hacia la parte inferior del cuerpo es la inteligencia de una prostituta profesional. Del mismo modo, la inteligencia de la entidad viviente que no vuelve su atención hacia Kṛṣṇa o hacia el movimiento para la conciencia de Kṛṣṇa va cambiando de vestidos, como una prostituta. ¿De qué sirve esa inteligencia necia? Debemos ser conscientes e inteligentes, de manera que no tengamos que seguir cambiando de cuerpos.
+
+Los *karmīs* cambian de profesión a cada momento, pero la persona consciente de Kṛṣṇa no cambia de profesión, pues su única ocupación es atraer la atención de Kṛṣṇa, cantando el *mantra* Hare Kṛṣṇa y llevando una vida muy sencilla, sin seguir los cambios diarios de la moda. En nuestro movimiento para la conciencia de Kṛṣṇa, las personas que gustan de vestir aprenden a seguir la moda *vaiṣṇava*, con la cabeza afeitada y *tilaka*. También se les enseña a mantenerse limpios, en lo que se refiere a la mente, las ropas y el alimento, de modo que se establezcan firmemente en el plano de conciencia de Kṛṣṇa. ¿De qué sirve cambiar de modo de vestir y dejarse crecer el cabello y la barba, para de nuevo cambiar y seguir otra moda? Eso no es bueno. No hay que perder el tiempo en esas actividades frívolas. Hay que permanecer firmes en el cultivo de conciencia de Kṛṣṇa, y tomar la medicina del servicio devocional con plena determinación.

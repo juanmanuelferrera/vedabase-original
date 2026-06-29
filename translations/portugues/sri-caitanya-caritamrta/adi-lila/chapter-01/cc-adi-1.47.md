@@ -1,0 +1,14 @@
+### CC Adi 1.47
+
+> śikṣā-guruke ta' jāni kṛṣṇera svarūpa
+> antaryāmī, bhakta-śreṣṭha,—ei dui rūpa
+
+*śikṣā-guruke*—o mestre espiritual que instrui; *ta'*—de fato; *jāni*—sei; *kṛṣṇera*—de Kṛṣṇa; *sva-rūpa*—o representante direto; *antaryāmī*—a Superalma residente; *bhakta-śreṣṭha*—o melhor devoto; *ei*—estas; *dui*—duas; *rūpa*—formas.
+
+**Deve-se conhecer o mestre espiritual instrutor como sendo a Personalidade de Kṛṣṇa. O Senhor Kṛṣṇa Se manifesta como a Superalma e como o maior devoto do Senhor.**
+
+Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī afirma que o mestre espiritual instrutor é um representante genuíno de Śrī Kṛṣṇa. O próprio Śrī Kṛṣṇa nos ensina como o mestre espiritual instrutor, por dentro e por fora. Por dentro, Ele ensina como Paramātmā, nosso companheiro constante, e, por fora, Ele ensina a partir do *Bhagavad-gītā,* como o mestre espiritual instrutor. Há dois tipos de mestres espirituais instrutores. Um é a pessoa liberada plenamente absorta em meditação no serviço devocional, e o outro é aquele que invoca a consciência espiritual do discípulo por meio de instruções pertinentes. Dessa forma, as instruções na ciência da devoção diferenciam-se em termos das maneiras objetiva e subjetiva de compreensão. O *ācārya* no verdadeiro sentido do termo, que está autorizado a entregar Kṛṣṇa, enriquece o discípulo com pleno conhecimento espiritual e, assim, desperta-o para as atividades do serviço devocional.
+
+Quando, ao aprender com o mestre espiritual autorrealizado, a pessoa de fato se ocupa no serviço ao Senhor Viṣṇu, começa o serviço devocional funcional. Os procedimentos desse serviço devocional são conhecidos como *abhidheya,* ou as ações que se está obrigado a realizar. Nosso único refúgio é o Senhor Supremo, e aquele que ensina como aproximar-se de Kṛṣṇa é a forma funcional da Personalidade de Deus. Não há diferença entre o Senhor Supremo, que concede refúgio, e os mestres espirituais iniciador e instrutor. Se alguém, tolamente, discrimina entre eles, comete uma ofensa no desempenho do serviço devocional.
+
+Śrīla Sanātana Gosvāmī é o mestre espiritual ideal, pois ele concede o refúgio dos pés de lótus de Madana-mohana. Embora a pessoa possa ser incapaz de transitar pelo campo de Vṛndāvana devido ao esquecimento de seu relacionamento com a Suprema Personalidade de Deus, ela pode obter uma oportunidade adequada de permanecer em Vṛndāvana e auferir todos os benefícios espirituais pela misericórdia de Sanātana Gosvāmī. Śrī Govindajī age exatamente como o *śikṣā-guru* (mestre espiritual instrutor), ao ensinar a Arjuna o *Bhagavad-gītā.* Ele é o preceptor original, pois nos dá instruções e a oportunidade de servi-Lo. O mestre espiritual iniciador é uma manifestação pessoal de Śrīla Madana-mohana *vigraha,* ao passo que o mestre espiritual instrutor é um representante pessoal de Śrīla Govindadeva *vigraha.* Ambas essas Deidades são adoradas em Vṛndāvana. Śrīla Gopīnātha é a atração suprema na percepção espiritual.

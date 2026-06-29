@@ -1,0 +1,12 @@
+### SB 4.22.12
+
+> svāgataṁ vo dvija-śreṣṭhā
+> yad-vratāni mumukṣavaḥ
+> caranti śraddhayā dhīrā
+> bālā eva bṛhanti ca
+
+*su-āgatam*—bienvenida; *vaḥ*—a ustedes; *dvija-śreṣṭhāḥ*—los mejores entre los *brāhmaṇas*; *yat*—cuyos; *vratāni*—votos; *mumukṣavaḥ*—de personas que desean la liberación; *caranti*—se comportan; *śraddhayā*—con gran fe; *dhīrāḥ*—controlados; *bālāḥ*—niños; *eva*—como; *bṛhanti*—observan; *ca*—también.
+
+**Mahārāja Pṛthu ofreció su bienvenida a los cuatro Kumāras, dirigiéndose a ellos como los mejores de los brāhmaṇas. Les dio la bienvenida diciendo: Desde el comienzo mismo de vuestro nacimiento habéis observado estrictamente los votos de celibato y, aunque sois expertos en el sendero de la liberación, os mantenéis igual que niños pequeños.**
+
+La importancia específica de los Kumāras radica en que eran *brahmacārīs*, que vivían una vida de celibato desde el nacimiento. Se mantenían como niños pequeños de unos cuatro o cinco años de edad, porque al crecer hasta la juventud los sentidos de uno a veces se perturban y el celibato se hace difícil. Por eso los Kumāras permanecían deliberadamente como niños, porque en la vida de un niño los sentidos nunca se perturban con el sexo. Esa es la importancia de la vida de los Kumāras, y por ello Mahārāja Pṛthu se dirigió a ellos como los mejores de los *brāhmaṇas*. Los Kumāras no solo nacieron del mejor *brāhmaṇa* (el Señor Brahmā), sino que aquí se les llama dvija-śreṣṭhāḥ (los mejores de los *brāhmaṇas*) por ser también vaiṣṇavas. Como ya hemos explicado, tienen su *sampradāya* (sucesión discipular), y hasta el día de hoy se mantiene la *sampradāya*, conocida como la Nimbārka-sampradāya. De entre las cuatro *sampradāyas* de los ācāryas vaiṣṇavas, la Nimbārka-sampradāya es una de ellas. Mahārāja Pṛthu apreció de manera especial la posición de los Kumāras, porque mantuvieron el voto de *brahmacarya* desde el comienzo mismo de su nacimiento. Sin embargo, Mahārāja Pṛthu expresó su gran aprecio por el vaiṣṇavismo dirigiéndose a los Kumāras como vaiṣṇava-śreṣṭha. En otras palabras, todos deben ofrecer respeto a un vaiṣṇava sin tener en cuenta su origen de nacimiento. Vaiṣṇave jāti-buddhiḥ. Nadie debe considerar a un vaiṣṇava en función del nacimiento. El vaiṣṇava es siempre el mejor de los *brāhmaṇas*, y por ello uno debe ofrecer todos los respetos a un vaiṣṇava, no solo como un *brāhmaṇa*, sino como el mejor de los *brāhmaṇas*.

@@ -1,0 +1,9 @@
+### CC Madhya 17.129
+
+prabhu kahe,--"māyāvādī kṛṣṇe aparādhī
+
+'brahma', 'ātmā' 'caitanya' kahe niravadhi
+
+*prabhu kahe*—Śrī Caitanya Mahāprabhu disse; *māyāvādī*—os impersonalistas; *kṛṣṇe*—a Kṛṣṇa; *aparādhī*—grandes ofensores; *brahma*—brahma; *ātmā*—ātmā; *caitanya*—caitanya; *kahe*—dizem; *niravadhi*—sem cessar.
+
+**Śrī Caitanya Mahāprabhu respondeu: "Os impersonalistas māyāvādīs são grandes ofensores ao Senhor Kṛṣṇa; portanto, eles apenas pronunciam as palavras Brahman, ātmā e caitanya.**

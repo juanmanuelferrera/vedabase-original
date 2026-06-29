@@ -1,0 +1,9 @@
+### 29
+
+**Assim chegou ao fim a estação das chuvas. O outono começou, e não havia mais nuvens no céu. Todos os reservatórios de água tornaram-se cristalinos, e o vento já não soprava com força. O Senhor Kṛṣṇa, juntamente com Seu irmão mais velho, o Senhor Baladeva, vivia em Vṛndāvana nessa estação auspiciosa.**
+
+Quando o céu está livre de todas as nuvens, já não há qualquer distinção entre a porção do céu que estava coberta e aquela que nunca esteve coberta. De modo semelhante, quando a entidade viva, agora coberta pelos modos da natureza material, liberta-se da ignorância, da paixão e da assim chamada bondade, ela se torna una com a Verdade Absoluta. Tal unidade chama-se *mukti,* ou liberdade das misérias da vida material. Há cinco diferentes tipos de *mukti.* Os impersonalistas preferem fundir-se na existência da Transcendência, mas os personalistas, ou devotos, não aniquilam sua individualidade, e assim os devotos do Senhor desfrutam individualmente a variedade espiritual nos planetas do céu espiritual.
+
+O céu material também é o céu espiritual, mas está coberto pelos modos da natureza material. Essa natureza material também é uma criação temporária do Senhor, assim como a nuvem é uma criação do sol. Quando a nuvem dos modos materiais se dissipa, diz-se que a natureza material foi aniquilada.
+
+Há dois tipos de entidades vivas, a saber, as condicionadas e as puras. É para as entidades vivas condicionadas que a natureza material é criada, e as almas condicionadas são colocadas nela para se tornarem almas puras, não condicionadas. Aquelas que se tornam não condicionadas pelo serviço devocional entram no reino eterno de Deus, e aquelas que perdem a oportunidade apodrecem em condições materiais dormentes, às vezes manifestas e às vezes não manifestas. O Senhor Śrī Kṛṣṇa desce para resgatar as almas condicionadas.

@@ -1,0 +1,8 @@
+### CC Antya 6.129
+
+> vāmana hañā yena cānda dharibāre cāya
+> aneka yatna kainu, tāte kabhu siddha naya
+
+*vāmana hañā*—siendo un enano; *yena*—como si; *cānda*—la luna; *dharibāre*—atrapar; *cāya*—quiere; *aneka yatna*—muchos intentos; *kainu*—he hecho; *tāte*—en eso; *kabhu siddha naya*—no he tenido éxito.
+
+**»Como un enano que quiere atrapar la luna, lo he intentado con todo mi empeño muchas veces, pero nunca he tenido éxito.**

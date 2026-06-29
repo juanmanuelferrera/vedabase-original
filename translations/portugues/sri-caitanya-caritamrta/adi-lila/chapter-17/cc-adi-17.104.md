@@ -1,0 +1,11 @@
+### CC Adi 17.104
+
+ke āchiluṅ āmi pūrva janme kaha gaṇi'
+
+gaṇite lāgilā sarva-jña prabhu-vākya śuni'
+
+*ke āchiluṅ āmi*—quem eu fui; *pūrva janme*—em Meu nascimento anterior; *kaha*—por favor, diz; *gaṇi'*—por teu cálculo astrológico; *gaṇite*—calcular; *lāgilā*—começou; *sarva-jña*—um homem que conhece passado, presente e futuro; *prabhu-vākya*—as palavras do Senhor Caitanya; *śuni'*—ouvindo.
+
+**"Por favor, dize-Me quem Eu fui em Meu nascimento anterior", disse o Senhor. "Por favor, dize-Me por teus cálculos astrológicos." Ao ouvir as palavras do Senhor, o astrólogo imediatamente começou a calcular.**
+
+Pela astrologia, pode-se conhecer o passado, o presente e o futuro. Os astrólogos ocidentais modernos não têm conhecimento do passado nem do futuro, tampouco podem dizer perfeitamente algo a respeito do presente. Aqui descobrimos, porém, que, após ouvir a ordem de Śrī Caitanya Mahāprabhu, o astrólogo imediatamente começou seus cálculos. Isto não era uma fachada; ele de fato sabia como verificar a vida passada de alguém pela astrologia. Um tratado ainda existente, chamado Bhṛgu-saṁhitā, descreve um sistema pelo qual qualquer pessoa pode imediatamente obter informações sobre o que foi no passado e o que será no futuro. Os brāhmaṇas que iam de porta em porta como mendigos tinham domínio perfeito de tão vasto conhecimento. Assim, o mais elevado conhecimento estava facilmente disponível até mesmo para o homem mais pobre da sociedade. O homem mais pobre podia indagar de um astrólogo sobre seu passado, presente e futuro, sem necessidade de acordos comerciais ou pagamentos exorbitantes. O brāhmaṇa lhe dava todo o benefício de seu conhecimento sem pedir remuneração, e o homem pobre, em troca, oferecia um punhado de arroz, ou qualquer coisa que tivesse em sua posse, para satisfazer o brāhmaṇa. Numa sociedade humana perfeita, o conhecimento perfeito em qualquer ciência — médica, astrológica, eclesiástica e assim por diante — está disponível até mesmo para o homem mais pobre, sem ansiedade quanto ao pagamento. Nos dias atuais, contudo, ninguém pode obter justiça, tratamento médico, ajuda astrológica ou esclarecimento eclesiástico sem dinheiro e, visto que as pessoas geralmente são pobres, ficam privadas dos benefícios de todas essas grandes ciências.

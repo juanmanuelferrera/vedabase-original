@@ -1,0 +1,8 @@
+### CC Antya 16.99
+
+> sāmānya bhāgya haite tāra prāpti nāhi haya
+> kṛṣṇera yāṅte pūrṇa-kṛpā, sei tāhā pāya
+
+*sāmānya*—ordinaria; *bhāgya*—fortuna; *haite*—de; *tāra*—de eso; *prāpti*—obtención; *nāhi*—no; *haya*—hay; *kṛṣṇera*—del Señor Kṛṣṇa; *yāṅte*—a quien; *pūrṇa-kṛpā*—plena misericordia; *sei*—él; *tāhā*—eso; *pāya*—puede obtener.
+
+**»Quien solo posee una fortuna ordinaria no puede obtener semejante misericordia. Solo las personas que reciben la plena misericordia de Kṛṣṇa pueden recibir tales remanentes.**

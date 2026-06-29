@@ -1,0 +1,19 @@
+### Bg 7.5
+
+> apareyam itas tv anyāṁ
+> prakṛtiṁ viddhi me parām
+> jīva-bhūtāṁ mahā-bāho
+> yayedaṁ dhāryate jagat
+
+*aparā*—inferior; *iyam*—esta; *itaḥ*—aparte de esta; *tu*—pero; *anyām*—otra; *prakṛtim*—energía; *viddhi*—solo trata de entender; *me*—Mí; *parām*—superior; *jīva-bhūtām*—entidades vivientes; *mahā-bāho*—¡oh, el de los poderosos brazos!; *yayā*—por quienes; *idam*—este; *dhāryate*—siendo utilizado o explotado; *jagat*—el mundo material.
+
+**Además de esta naturaleza inferior, ¡oh Arjuna, el de los poderosos brazos!, hay una energía superior Mía, la cual consiste en todas las entidades vivientes que luchan con la naturaleza material y que sustentan el universo.**
+
+Aquí se menciona claramente que las entidades vivientes pertenecen a la naturaleza (o energía) superior del Señor Supremo. La energía inferior es la materia manifestada en diferentes elementos llamados: tierra, agua, fuego, aire, éter, mente, inteligencia y ego falso. Ambas formas de la naturaleza material, llamadas, burda (tierra, etc.) y sutil (mente, etc.), son productos de la energía inferior. Las entidades vivientes, quienes explotan estas energías inferiores con diferentes propósitos, son la energía superior del Señor Supremo y es debido a esta energía que todo el mundo material funciona. La manifestación cósmica no tiene poder para actuar a no ser que sea movida por la energía superior, la entidad viviente. Las energías siempre son controladas por el energético y por lo tanto, las entidades vivientes siempre son controladas por el Señor –no tienen existencia independiente. Nunca son igualmente poderosas, como creen los hombres poco inteligentes. La diferencia que existe entre las entidades vivientes y el Señor, se describe en el Śrīmad-Bhāgavatam como sigue (10.87.30):
+
+> aparimitā dhruvās tanubhṛto yadi sarva-gatās
+> tarhiṁ na śāsyateti niyamo dhruva netarathā
+> ajani ca yanmayaṁ tad avimucya niyantṛ
+> bhavet samam anujānatāṁ yad-amataṁ mata-duṣṭatayā
+
+«¡Oh Eterno Supremo! Si las entidades vivientes corporificadas fueran eternas y omnipresentes como Tú, entonces no estarían bajo Tu control. Pero si se acepta a las entidades vivientes como energías diminutas de Tu Señoría, entonces están sometidas de inmediato a Tu control supremo. Por lo tanto, la verdadera liberación implica la entrega de las entidades vivientes a Tu control y esa entrega las hará felices. Únicamente en esa posición constitucional pueden ser controladores. Por lo tanto, los hombres con conocimiento limitado que apoyan la teoría monista de que Dios y las entidades vivientes son iguales en todo aspecto, en realidad se desvían ellos mismos y a los demás». El Señor Supremo Kṛṣṇa es el único controlador y todas las entidades vivientes son controladas por Él. Estas entidades vivientes son Su energía superior porque la calidad de su existencia es una y la misma que la del Supremo, pero nunca son iguales al Señor en cantidad de poder. Mientras explota la energía inferior sutil y burda (la materia), la energía superior (la entidad viviente) olvida su verdadera mente e inteligencia espirituales. Este olvido se debe a la influencia de la materia sobre la entidad viviente. Pero cuando la entidad viviente se libera de la influencia de la energía material ilusoria, alcanza la etapa llamada mukti o liberación. El ego falso, bajo la influencia de la ilusión material piensa, «yo soy materia y las adquisiciones materiales son mías». Él comprende su posición verdadera cuando se libera de todas las ideas materiales, incluyendo el concepto de volverse uno con Dios en todos los aspectos. Por lo tanto, uno puede concluir que el Gītā confirma que la entidad viviente es solamente una de las múltiples energías de Kṛṣṇa y cuando esta energía se libera de la contaminación material se vuelve plenamente consciente de Kṛṣṇa, o liberada.

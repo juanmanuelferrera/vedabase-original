@@ -1,0 +1,14 @@
+### SB 4.31.3
+
+> tān nirjita-prāṇa-mano-vaco-dṛśo
+> jitāsanān śānta-samāna-vigrahān
+> pare 'male brahmaṇi yojitātmanaḥ
+> surāsureḍyo dadṛśe sma nāradaḥ
+
+*tān*—todos ellos; *nirjita*—completamente controlado; *prāṇa*—el aire vital (mediante el proceso de *prāṇāyāma*); *manaḥ*—la mente; *vacaḥ*—las palabras; *dṛśaḥ*—y la visión; *jita-āsanān*—que dominaron el *āsana* yóguico (postura de sentarse); *śānta*—serenos; *samāna*—erguidos derechos; *vigrahān*—cuyos cuerpos; *pare*—trascendental; *amale*—libre de contaminación material; *brahmaṇi*—en el Supremo; *yojita*—ocupadas; *ātmanaḥ*—cuyas mentes; *sura-asura-īḍyaḥ*—adorado por semidioses y demonios; *dadṛśe*—vieron; *sma*—en el pasado; *nāradaḥ*—al gran sabio Nārada.
+
+**Después de practicar la yogāsana adecuada para el yoga místico, los Pracetās practicaron el control del aire vital, de la mente, de las palabras y de la visión externa. De ese modo, mediante el proceso de prāṇāyāma, se liberaron por completo de los apegos materiales. Permaneciendo en una postura perpendicular, lograron concentrar sus mentes en el Brahman Supremo. Mientras practicaban ese prāṇāyāma fue a verles el gran sabio Nārada, a quien adoran por igual demonios y semidioses.**
+
+En este verso, las palabras pare amale son significativas. La comprensión del Brahman se explica en el Śrīmad-Bhāgavatam. La Verdad Absoluta se comprende en tres fases: la refulgencia impersonal (Brahman), el Paramātmā localizado y la Suprema Personalidad de Dios, Bhagavān. En sus oraciones, el Señor Śiva se concentró en los aspectos personales del Parabrahman, descritos en términos personales como snigdha-prāvṛḍ-ghana-śyāmam (Bhāg. 4.24.45). Siguiendo las instrucciones del Señor Śiva, los Pracetās también concentraron la mente en la forma Śyāmasundara del Brahman Supremo. Aunque el Brahman impersonal, el Paramātmā Brahman y el Brahman como Persona Suprema se hallan todos en el mismo plano trascendental, el aspecto personal del Brahman Supremo es la meta última y la última palabra en la trascendencia.
+
+El gran sabio Nārada viaja por doquier. Acude a los demonios y a los semidioses, y es respetado por igual. Por consiguiente, aquí se le describe como surāsureḍya, adorado tanto por los demonios como por los semidioses. Para Nārada Muni, la puerta de cada hogar está abierta. Aunque hay una animosidad perpetua entre los demonios y los semidioses, Nārada Muni es bien recibido en todas partes. Nārada es considerado uno de los semidioses, por supuesto, y la palabra devarṣi significa «la persona santa entre los semidioses». Ni siquiera los demonios envidian a Nārada Muni; por eso es adorado por igual tanto por los demonios como por los semidioses. La posición de un vaiṣṇava perfecto debería ser exactamente como la de Nārada Muni: completamente independiente e imparcial.

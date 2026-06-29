@@ -1,0 +1,9 @@
+### CC Antya 14.35
+
+prāpta-ratna hārāñā aiche vyagra ha-ilā
+
+viṣaṇṇa hañā prabhu nija-vāsā āilā
+
+*prāpta-ratna*—a joia conquistada; *hārāñā*—tendo perdido; *aiche*—dessa maneira; *vyagra ha-ilā*—ficou muito agitado; *viṣaṇṇa hañā*—estando abatido; *prabhu*—Śrī Caitanya Mahāprabhu; *nija*—própria; *vāsā*—à Sua residência; *āilā*—regressou.
+
+**O Senhor Caitanya ficou muito agitado, como uma pessoa que acaba de perder uma joia recém-adquirida. Em seguida, ficou muito abatido e regressou ao lar.**

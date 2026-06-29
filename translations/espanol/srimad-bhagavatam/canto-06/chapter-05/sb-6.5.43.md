@@ -1,0 +1,12 @@
+### SB 6.5.43
+
+> tantu-kṛntana yan nas tvam
+> abhadram acaraḥ punaḥ
+> tasmāl lokeṣu te mūḍha
+> na bhaved bhramataḥ padam
+
+*tantu-kṛntana*—¡oh, portador de discordia que, sin piedad alguna, me has separado de mis hijos!; *yat*—que; *naḥ*—a nosotros; *tvam*—tú; *abhadram*—una acción no auspiciosa; *acaraḥ*—has hecho; *punaḥ*—de nuevo; *tasmāt*—por lo tanto; *lokeṣu*—en todos los sistemas planetarios del universo; *te*—de ti; *mūḍha*—¡oh, sinvergüenza que no sabes cómo actuar!; *na*—no; *bhavet*—pueda haber; *bhramataḥ*—que estás vagando; *padam*—una morada.
+
+**Tú me hiciste perder a mis hijos una vez, y ahora reincides en tu nefasta conducta. Por eso, eres un sinvergüenza que no sabes comportarte con los demás. Tal vez viajes por todo el universo, pero yo te maldigo a que no puedas tener una residencia fija.**
+
+Prajāpati Dakṣa era un *gṛhamedhī* que quería permanecer en la vida familiar; por eso pensó que para Nārada Muni sería un gran castigo no poder quedarse en ningún lugar y tener que viajar por todo el mundo. Sin embargo, la realidad es que, para un predicador, ese castigo es una bendición. El predicador recibe el nombre de *parivrājakācārya*, es decir, es un*ācārya*, un maestro, que viaja constantemente para beneficio de la sociedad humana. Prajāpati Dakṣa maldijo a Nārada Muni diciendo que, aunque tuviera la capacidad de viajar por todo el universo, nunca podría quedarse en un lugar. Quienes formamos parte del sistema de *paramparā* que procede de Nārada Muni también hemos sido maldecidos. Maldecido por los padres de mis jóvenes discípulos, no puedo quedarme en ninguna parte, a pesar de que poseo muchos centros que serían muy adecuados como lugar de residencia. Desde la fundación del movimiento para la conciencia de Kṛṣṇa, doy la vuelta al mundo dos o tres veces al año, y aunque se me ofrecen cómodos lugares para quedarme dondequiera que vaya, no puedo quedarme en ningún lugar por más de tres días o una semana. Esta maldición de los padres de mis discípulos no me molesta, pero ahora es necesario que me establezca en un lugar para completar otra tarea: la traducción del *Śrīmad-Bhāgavatam*. Si mis jóvenes discípulos, y en especial los que han entrado en la orden de *sannyāsa*, se encargan de viajar por todo el mundo, yo podré transferir la maldición de los padres a esos jóvenes predicadores. Entonces podré instalarme convenientemente en un lugar y dedicarme a la tarea de traducción.

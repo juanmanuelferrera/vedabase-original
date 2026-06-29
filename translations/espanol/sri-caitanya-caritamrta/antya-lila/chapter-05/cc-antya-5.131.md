@@ -1,0 +1,23 @@
+### CC Antya 5.131
+
+> «yāha, bhāgavata paḍa vaiṣṇavera sthāne
+> ekānta āśraya kara caitanya-caraṇe
+
+*yāha*—simplemente ve; *bhāgavata paḍa*—lee el Śrīmad-Bhāgavatam; *vaiṣṇavera sthāne*—de un vaiṣṇava autorrealizado; *ekānta āśraya kara*—entrégate por completo; *caitanya-caraṇe*—a los pies de loto de Śrī Caitanya Mahāprabhu.
+
+**«Si quieres comprender el *Śrīmad-Bhāgavatam*», dijo, «debes acudir a un vaiṣṇava autorrealizado y escuchar de él. Puedes hacer esto cuando te hayas refugiado por completo en los pies de loto de Śrī Caitanya Mahāprabhu».**
+
+En este pasaje, Svarūpa Dāmodara Gosvāmī instruye al poeta de Bengala para que escuche el *Śrīmad-Bhāgavatam* de un vaiṣṇava puro y aprenda de él. Especialmente en la India, existe ahora una clase de recitadores profesionales del *Bhāgavatam* cuyo medio de sustento consiste en ir de aldea en aldea, de pueblo en pueblo, leyendo el *Bhāgavatam* y recogiendo dakṣiṇa, o recompensas, en forma de dinero o bienes, tales como paraguas, telas y frutas. De este modo, se ha establecido ahora un sistema de negocio con el Bhāgavata, con recitaciones llamadas Bhāgavata-saptāha que continúan durante una semana, aunque esto no se menciona en el *Śrīmad-Bhāgavatam*. En ningún lugar dice el *Śrīmad-Bhāgavatam* que se deba escuchar el *Bhāgavatam* durante una semana de profesionales. Más bien, el *Śrīmad-Bhāgavatam* (1.2.17) dice: śṛṇvatāṁ sva-kathāḥ kṛṣṇaḥ puṇya-śravaṇa-kīrtanaḥ. Uno debe escuchar regularmente el *Śrīmad-Bhāgavatam* de un vaiṣṇava autorrealizado. Mediante esa escucha, uno se vuelve piadoso. Hṛdy antaḥstho hy abhadrāṇi vidhunoti suhṛt-satām. Así, al escuchar regularmente el *Bhāgavatam* con sinceridad, el corazón se purifica de toda contaminación material.
+
+> naṣṭa-prāyeṣv abhadreṣu
+> nityaṁ bhāgavata-sevayā
+> bhagavaty uttama-śloke
+> bhaktir bhavati naiṣṭhikī
+
+«A medida que uno escucha regularmente el *Bhāgavatam* o presta servicio al devoto puro, prácticamente todo lo que perturba el corazón queda destruido, y el servicio amoroso al glorioso Señor, a quien se alaba con cantos trascendentales, se establece como un hecho irrevocable». (Bhāg. 1.2.18)
+
+Este es el proceso adecuado, pero la gente está acostumbrada a dejarse engañar por recitadores profesionales del *Bhāgavatam*. En consecuencia, Svarūpa Dāmodara Gosvāmī aconseja aquí que no se debe escuchar el *Śrīmad-Bhāgavatam* de recitadores profesionales. En su lugar, uno debe escuchar y aprender el *Bhāgavatam* de un vaiṣṇava autorrealizado. A veces se observa que cuando un *sannyāsī* māyāvādī lee el *Bhāgavatam*, multitudes de personas acuden a escuchar malabarismos de palabras que no pueden despertar su amor latente por Kṛṣṇa. A veces la gente acude a ver dramas profesionales y ofrece comida y dinero a los actores, que son expertos en recoger esas ofrendas muy bien. El resultado es que los miembros de la audiencia permanecen en la misma posición de gṛham andha-kūpam, el apego familiar, y no despiertan su amor por Kṛṣṇa.
+
+En el *Bhāgavatam* (7.5.30) se dice: matir na kṛṣṇe parataḥ svato vā mitho 'bhipadyeta gṛha-vratānām: los gṛhavratas, aquellos que están decididos a continuar la forma de vida materialista, nunca despertarán su amor latente por Kṛṣṇa, pues escuchan el *Bhāgavatam* solo para consolidar su posición en la vida hogareña y ser felices en los asuntos familiares y el sexo. Al condenar este proceso de escuchar el *Bhāgavatam* de profesionales, Svarūpa Dāmodara Gosvāmī dice: yāha, bhāgavata paḍa vaiṣṇavera sthāne: «Para comprender el *Śrīmad-Bhāgavatam*, debes acudir a un vaiṣṇava autorrealizado». Uno debe evitar rigurosamente escuchar el *Bhāgavatam* de un māyāvādī u otro no devoto que simplemente hace malabarismos gramaticales con las palabras para retorcer algún significado del texto, recaudar dinero del público inocente y así mantener a la gente en la oscuridad.
+
+Svarūpa Dāmodara Gosvāmī prohíbe estrictamente el comportamiento de los supuestos oyentes materialistas del *Śrīmad-Bhāgavatam*. En lugar de despertar verdadero amor por Kṛṣṇa, tales oyentes del *Bhāgavatam* se apegan cada vez más a los asuntos hogareños y la vida sexual (yan maithunādi-gṛhamedhi-sukhaṁ hi tuccham). Uno debe escuchar el *Śrīmad-Bhāgavatam* de una persona que no tenga ninguna relación con las actividades materiales, o, en otras palabras, de un *paramahaṁsa* vaiṣṇava, aquel que ha alcanzado la etapa más elevada de *sannyāsa*. Esto, por supuesto, no es posible a menos que uno se refugie en los pies de loto de Śrī Caitanya Mahāprabhu. El *Śrīmad-Bhāgavatam* solo es comprensible para aquel que pueda seguir los pasos de Śrī Caitanya Mahāprabhu.

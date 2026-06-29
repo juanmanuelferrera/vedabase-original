@@ -1,0 +1,9 @@
+### CC Madhya 16.139
+
+'pratijñā', 'sevā' chāḍibe,--e tomāra 'uddeśa'
+
+se siddha ha-ila--chāḍi' āilā dūra deśa
+
+*pratijñā*—o voto; *sevā*—e o serviço; *chāḍibe*—abandonarás; *e*—este; *tomāra*—teu; *uddeśa*—propósito; *se*—esse; *siddha*—completo; *ha-ila*—tornou-se; *chāḍi'*—abandonando; *āilā*—vieste; *dūra deśa*—a um lugar distante.
+
+**"Abandonaste o serviço a Gopīnātha e quebraste teu voto de viver em Purī. Tudo isso está agora completo, pois vieste até tão longe.**

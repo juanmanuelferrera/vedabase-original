@@ -1,0 +1,9 @@
+### CC Adi 2.39
+
+ataeva tumi hao mūla nārāyaṇa
+
+ei eka hetu, śuna dvitīya kāraṇa
+
+*ataeva*—portanto; *tumi*—Tu; *hao*—és; *mūla*—original; *nārāyaṇa*—Nārāyaṇa; *ei*—esta; *eka*—uma; *hetu*—razão; *śuna*—por favor, escuta; *dvitīya*—segunda; *kāraṇa*—a razão.
+
+**"Tu és, portanto, o Nārāyaṇa original. Esta é uma razão; por favor, escuta enquanto exponho a segunda.**

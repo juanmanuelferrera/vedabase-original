@@ -1,0 +1,9 @@
+### CC Antya 13.72
+
+prabhura caraṇa vandi' sabāre mililā
+
+mahāprabhu tāṅre dṛḍha āliṅgana kailā
+
+*prabhura*—de Śrī Caitanya Mahāprabhu; *caraṇa*—os pés de lótus; *vandi'*—oferecendo orações a; *sabāre mililā*—encontrou-se com todos; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a ele; *dṛḍha*—muito forte; *āliṅgana*—abraçando; *kailā*—fez.
+
+**Depois de oferecer orações aos pés de lótus de Śrī Caitanya Mahāprabhu, Jagadānanda Paṇḍita cumprimentou a todos. Então, o Senhor abraçou Jagadānanda muito fortemente.**

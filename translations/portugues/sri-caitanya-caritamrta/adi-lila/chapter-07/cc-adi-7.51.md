@@ -1,0 +1,10 @@
+### CC Adi 7.51
+
+tomāre nindaye yata sannyāsīra gaṇa
+śunite nā pāri, phāṭe hṛdaya-śravaṇa
+
+*tomāre*—a Ti; *nindaye*—blasfema; *yata*—todos; *sannyāsīra gaṇa*—os sannyāsīs māyāvādīs; *śunite*—ouvir; *nā*—não conseguimos; *pāri*—tolerar; *phāṭe*—parte-se; *hṛdaya*—nossos corações; *śravaṇa*—ao ouvir tal blasfêmia.
+
+**"Os sannyāsīs māyāvādīs estão todos criticando Tua Santidade. Não conseguimos tolerar ouvir tal crítica, pois essa blasfêmia parte nossos corações."**
+
+Esta é uma manifestação de verdadeiro amor por Kṛṣṇa e pelo Senhor Caitanya Mahāprabhu. Há três categorias de vaiṣṇavas: kaniṣṭha-adhikārīs, madhyama-adhikārīs e uttama-adhikārīs. O kaniṣṭha-adhikārī, ou o devoto no estágio mais baixo da vida vaiṣṇava, tem fé firme, mas não está familiarizado com as conclusões dos śāstras. O devoto no segundo estágio, o madhyama-adhikārī, está plenamente ciente da conclusão śāstrica e tem fé firme em seu guru e no Senhor. Ele, portanto, evitando os não-devotos, prega aos inocentes. Contudo, o mahā-bhāgavata, ou uttama-adhikārī, o devoto no estágio mais elevado da vida devocional, não vê ninguém como sendo contrário aos princípios vaiṣṇavas, pois considera todos vaiṣṇavas, exceto a si mesmo. Esta é a essência da instrução de Caitanya Mahāprabhu de que se deve ser mais tolerante que uma árvore e julgar-se mais baixo que a palha na rua (tṛṇād api su-nīcena taror iva sahiṣṇunā). Entretanto, ainda que um devoto esteja na posição uttama-bhāgavata, ele precisa descer ao segundo estágio da vida, madhyama-adhikārī, para ser um pregador, pois um pregador não deve tolerar a blasfêmia contra outro vaiṣṇava. Embora um kaniṣṭha-adhikārī também não possa tolerar tal blasfêmia, ele não é competente para detê-la citando evidências śāstricas. Portanto, entende-se que Tapana Miśra e Candraśekhara eram kaniṣṭha-adhikārīs, porque não podiam refutar os argumentos dos sannyāsīs em Benares. Eles apelaram ao Senhor Caitanya Mahāprabhu para que tomasse providências, pois sentiam que não podiam tolerar tal crítica, embora também não pudessem detê-la.

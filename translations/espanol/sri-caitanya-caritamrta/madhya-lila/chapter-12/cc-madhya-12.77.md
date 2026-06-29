@@ -1,0 +1,8 @@
+### CC Madhya 12.77
+
+> kintu ghaṭa, sammārjanī bahuta cāhiye
+> ājñā deha-āji saba ihāṅ āni diye
+
+*kintu*—pero; *ghaṭa*—cántaros de agua; *sammārjanī*—escobas; *bahuta*—muchos; *cāhiye*—necesitas; *ājñā deha*—tan solo ordena; *āji*—hoy mismo; *saba*—todo; *ihāṅ*—aquí; *āni diye*—traeré y entregaré.
+
+**«Para lavar el templo necesitas muchos cántaros de agua y escobas. Así pues, ordénamelo. Puedo traerte todo eso de inmediato.»**

@@ -1,0 +1,8 @@
+### CC Adi 8.2
+
+jaya jaya śrī-kṛṣṇa-caitanya gauracandra
+jaya jaya paramānanda jaya nityānanda
+
+*jaya jaya*—todas as glórias; *śrī-kṛṣṇa-caitanya*—a Śrī Kṛṣṇa Caitanya Mahāprabhu; *gaura-candra*—cujo nome é Senhor Gaurāṅga; *jaya jaya*—todas as glórias; *paramānanda*—o mais jubiloso; *jaya*—todas as glórias; *nityānanda*—ao Senhor Nityānanda Prabhu.
+
+**Permitam-me oferecer minhas respeitosas reverências a Śrī Kṛṣṇa Caitanya Mahāprabhu, que é conhecido como Gaurasundara. Também ofereço minhas respeitosas reverências a Nityānanda Prabhu, que é sempre muito jubiloso.**

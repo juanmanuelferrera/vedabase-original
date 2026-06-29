@@ -1,0 +1,9 @@
+### CC Antya 7.115
+
+prabhu hāsi' kahe,--"svāmī nā māne yei jana
+
+veśyāra bhitare tāre kariye gaṇana"
+
+*prabhu*—Śrī Caitanya Mahāprabhu; *hāsi'*—sorrindo; *kahe*—disse; *svāmī*—esposo; *nā māne*—não aceita; *yei jana*—todo aquele que; *veśyāra bhitare*—entre as prostitutas; *tāre*—a ele; *kariye gaṇana*—conto.
+
+**Śrī Caitanya Mahāprabhu respondeu, sorrindo: "Aquele que não aceita o svāmī [esposo] como autoridade, eu o considero uma prostituta."**

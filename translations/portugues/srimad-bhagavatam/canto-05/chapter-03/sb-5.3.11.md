@@ -1,0 +1,9 @@
+### SB 5.3.11
+
+*asaṅga*-niśita-jñānānala-vidhūtāśeṣa-malānāṁ bhavat-svabhāvānām ātmārāmāṇāṁ munīnām anavarata-pariguṇita-guṇa-gaṇa parama-maṅgalāyana-guṇa-gaṇa-kathano 'si.
+
+*asaṅga*—pelo desapego; *niśita*—fortalecido; *jñāna*—do conhecimento; *anala*—pelo fogo; *vidhūta*—removidas; *aśeṣa*—ilimitadas; *malānām*—cujas impurezas; *bhavat-svabhāvānām*—que alcançaram Tuas qualidades; *ātma-ārāmāṇām*—que são autossatisfeitos; *munīnām*—dos grandes sábios; *anavarata*—incessantemente; *pariguṇita*—narradas; *guṇa-gaṇa*—ó Senhor, cujas qualidades espirituais; *parama-maṅgala*—suprema bem-aventurança; *āyana*—produz; *guṇa-gaṇa-kathanaḥ*—Ele, o cantar de cujos atributos; *asi*—és Tu.
+
+**Querido Senhor, todos os grandes sábios que são pessoas santas e ponderadas narram incessantemente Tuas qualidades espirituais. Esses sábios já queimaram todas as ilimitadas impurezas e, pelo fogo do conhecimento, fortaleceram seu desapego do mundo material. Assim, alcançaram Tuas qualidades e são autossatisfeitos. No entanto, mesmo para aqueles que sentem bem-aventurança espiritual ao cantar Teus atributos, Tua presença pessoal é muito rara.**
+
+Os sacerdotes na arena sacrificial de Mahārāja Nābhi apreciaram a presença pessoal do Supremo Senhor Viṣṇu, e consideravam-se imensamente agradecidos. A aparição do Senhor é rara mesmo para grandes pessoas santas que se tornaram completamente desapegadas deste mundo material e cujos corações estão limpos devido a cantarem constantemente as glórias do Senhor. Tais pessoas se satisfazem cantando as qualidades transcendentais do Senhor. A presença pessoal do Senhor, na verdade, não é necessária. Os sacerdotes apontam que a presença pessoal do Senhor é muito rara mesmo para tais elevados sábios, mas que Ele foi tão bondoso com eles que agora estava pessoalmente presente. Por isso, os sacerdotes estavam imensamente agradecidos.

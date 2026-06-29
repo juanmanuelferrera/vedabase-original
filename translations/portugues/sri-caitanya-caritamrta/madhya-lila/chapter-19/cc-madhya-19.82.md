@@ -1,0 +1,9 @@
+### CC Madhya 19.82
+
+yadyapi bhaṭṭera āge prabhura dhairya haila mana
+
+durvāra udbhaṭa prema nahe samvaraṇa
+
+*yadyapi*—embora; *bhaṭṭera*—de Vallabhācārya; *āge*—diante; *prabhura*—de Śrī Caitanya Mahāprabhu; *dhairya*—paciente; *haila*—estava; *mana*—a mente; *durvāra*—difícil de deter; *udbhaṭa*—maravilhoso; *prema*—amor extático; *nahe*—não há; *samvaraṇa*—contenção.
+
+**Śrī Caitanya Mahāprabhu tentou conter-se o quanto pôde diante de Vallabhācārya, mas, embora procurasse manter-se calmo, Seu amor extático não pôde ser contido.**

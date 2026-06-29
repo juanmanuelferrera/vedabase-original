@@ -1,0 +1,8 @@
+### CC Madhya 9.308
+
+saundarya-mādhurya-kṛṣṇa-līlāra avadhi
+sei jāne, ye 'karṇāmṛta' paḍe niravadhi
+
+*saundarya*—beleza; *mādhurya*—doçura; *kṛṣṇa-līlāra*—dos passatempos do Senhor Kṛṣṇa; *avadhi*—limite; *sei jāne*—ele conhece; *ye*—aquele que; *karṇāmṛta*—o livro Kṛṣṇa-karṇāmṛta; *paḍe*—estuda; *niravadhi*—constantemente.
+
+**Aquele que lê constantemente o Kṛṣṇa-karṇāmṛta pode compreender plenamente a beleza e o doce sabor melodioso dos passatempos do Senhor Kṛṣṇa.**

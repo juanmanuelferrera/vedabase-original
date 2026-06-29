@@ -1,0 +1,10 @@
+### CC Madhya 1.4
+
+> dīvyad-vṛndāraṇya-kalpa-drumādhaḥ-
+> śrīmad-ratnāgāra-siṁhāsana-sthau
+> śrīmad-rādhā-śrīla-govinda-devau
+> preṣṭhālībhiḥ sevyamānau smarāmi
+
+*dīvyat*—resplandeciente; *vṛndā-araṇya*—en el bosque de Vṛndāvana; *kalpa-druma*—árbol de deseos; *adhaḥ*—debajo; *śrīmat*—hermosísimo; *ratna-āgāra*—en un templo de joyas; *siṁha-āsana-sthau*—sentados en un trono; *śrīmat*—bellísima; *rādhā*—Śrīmatī Rādhārāṇī; *śrīla-govinda-devau*—y Śrī Govindadeva; *preṣṭha-ālībhiḥ*—por las asociadas más confidenciales; *sevyamānau*—siendo servidos; *smarāmi*—recuerdo.
+
+**En un templo de joyas en Vṛndāvana, bajo un árbol de deseos, Śrī Śrī Rādhā-Govinda, atendidos por Sus asociadas más confidenciales, se sientan en un trono refulgente. Les ofrezco mis humildes reverencias.**

@@ -1,0 +1,25 @@
+### SB 3.22.33
+
+sabhāryaḥ saprajaḥ kāmān
+bubhuje 'nyāvirodhataḥ
+saṅgīyamāna-sat-kīrtiḥ
+sastrībhiḥ sura-gāyakaiḥ
+
+praty-ūṣeṣv anubaddhena
+hṛdā śṛṇvan hareḥ kathāḥ
+
+### Sinônimos
+
+*sa-bhāryaḥ*—junto com sua esposa; *sa-prajaḥ*—junto com seus súditos; *kāmān*—as necessidades da vida; *bubhuje*—ele desfrutou; *anya*—de outros; *avirodhataḥ*—sem perturbação; *saṅgīyamāna*—sendo louvada; *sat-kīrtiḥ*—reputação por atividades piedosas; *sa-strībhiḥ*—junto com suas esposas; *sura-gāyakaiḥ*—por músicos celestiais; *prati-ūṣeṣu*—a cada amanhecer; *anubaddhena*—sendo apegado; *hṛdā*—com o coração; *śṛṇvan*—ouvindo; *hareḥ*—de Senhor Hari; *kathāḥ*—os tópicos.
+
+**### Tradução**
+
+O Imperador Svāyambhuva Manu desfrutou a vida com sua esposa e súditos e cumpriu seus desejos sem ser perturbado por princípios indesejáveis contrários ao processo de religião. Músicos celestiais e suas esposas cantavam em coro sobre a reputação pura do Imperador, e cedo de manhã, cada dia, ele costumava ouvir os passatempos da Suprema Personalidade de Deus com um coração amoroso.
+
+### Significado
+
+A sociedade humana é realmente destinada para realização de perfeição em consciência de Kṛṣṇa. Não há restrição contra viver com uma esposa e filhos, mas a vida deve ser conduzida de tal forma que alguém não possa ir contra os princípios de religião, desenvolvimento econômico, desfrutar regulado dos sentidos e, ultimamente, libertação da existência material. Os princípios Védicos são projetados de tal forma que as almas condicionadas que vieram para esta existência material possam ser guiadas em cumprir seus desejos materiais e ao mesmo tempo ser libertadas e retornar a Godhead, de volta ao lar.
+
+Entende-se que o Imperador Svāyambhuva Manu desfrutou a vida do lar seguindo estes princípios. É afirmado aqui que cedo de manhã havia músicos que costumavam cantar com instrumentos musicais sobre as glórias do Senhor, e o Imperador, com sua família, pessoalmente costumava ouvir sobre os passatempos da Personalidade Suprema. Este costume ainda é prevalente na Índia em algumas das famílias reais e templos. Músicos profissionais cantam com śahnāīs, e os membros dormindo da casa gradualmente se levantam de suas camas em uma atmosfera agradável. Durante a hora de dormir também os cantores cantam canções em relação aos passatempos do Senhor, com acompanhamento de śahnāī, e os donos de casa gradualmente dormem lembrando-se das glórias do Senhor. Em toda casa, além do programa de canto, há um arranjo para lições de Bhāgavatam à noite; membros da família se sentam, seguram saṅkīrtana de Hare Kṛṣṇa, ouvem narrações do Śrīmad-Bhāgavatam e Bhagavad-gītā e desfrutam música antes de ir dormir. A atmosfera criada pelo movimento de saṅkīrtana vive em seus corações, e enquanto dormem eles também sonham com o canto e glorificação do Senhor. Dessa forma, perfeição da consciência de Kṛṣṇa consegue ser alcançada. Esta prática é muito antiga, como aprendida deste verso do Śrīmad-Bhāgavatam; milhões de anos atrás, Svāyambhuva Manu costumava aproveitar esta oportunidade para viver a vida de dono de casa na paz e prosperidade de uma atmosfera da consciência de Kṛṣṇa.
+
+Até onde templos estão em questão, em cada palácio real ou casa de homem rico, inevitavelmente há um templo legal, e os membros do lar se levantam cedo de manhã e vão ao templo para ver a cerimônia de maṅgalārātrika. A cerimônia de maṅgalārātrika é a primeira adoração de manhã. Na cerimônia de ārātrika uma luz é oferecida em círculos antes das Deidades, assim como um búzio e flores e um leque. O Senhor é suposto se levantar cedo de manhã e levar algum refrescante leve e dar audiência aos devotos. Os devotos então voltam à casa ou cantam as glórias do Senhor no templo. A cerimônia de cedo de manhã ainda ocorre em templos Indianos e palácios. Templos são destinados para o assembly do público geral. Templos dentro de palácios são especialmente para as famílias reais, mas em muitos destes templos de palácio o público também é permitido visitar. O templo do Rei de Jaipur é situado dentro do palácio, mas o público é permitido; se alguém vai lá, verá que o templo é sempre lotado com pelo menos quinhentos devotos. Depois da cerimônia de maṅgalārātrika eles se sentam junto e cantam as glórias do Senhor com instrumentos musicais e assim desfrutam a vida. Adoração de templo pela família real também é mencionada no Bhagavad-gītā, onde é afirmado que aqueles que falharem em alcançar sucesso nos princípios de bhakti-yoga dentro de uma vida são dados uma chance de tomar nascimento na próxima vida em uma família de homens ricos ou em uma família real ou família de brāhmaṇas aprendidos ou devotos. Se se conseguir a oportunidade de tomar nascimento nessas famílias, pode-se alcançar as facilidades de uma atmosfera consciente de Kṛṣṇa sem dificuldade. Uma criança nascida naquela atmosfera de Kṛṣṇa é certa se desenvolver consciência de Kṛṣṇa. A perfeição que ele falhou em alcançar em sua última vida é oferecida novamente nesta vida, e ele conseguir tornar-se perfeito sem falhar.

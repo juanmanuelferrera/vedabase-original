@@ -1,0 +1,8 @@
+### CC Adi 2.106
+
+svayaṁ bhagavān kṛṣṇa, kṛṣṇa sarvāśraya
+parama īśvara kṛṣṇa sarva-śāstre kaya
+
+*svayam*—Ele mesmo; *bhagavān*—a Suprema Personalidade de Deus; *kṛṣṇa*—o Senhor Kṛṣṇa; *kṛṣṇa*—o Senhor Kṛṣṇa; *sarva-āśraya*—o abrigo de todos; *parama*—Supremo; *īśvara*—Senhor; *kṛṣṇa*—o Senhor Kṛṣṇa; *sarva-śāstre*—todas as escrituras; *kaya*—dizem.
+
+**"Assim, a Personalidade de Deus Śrī Kṛṣṇa é o Senhor primordial original, a fonte de todas as outras expansões. Todas as escrituras reveladas aceitam Śrī Kṛṣṇa como o Senhor Supremo.**

@@ -1,0 +1,8 @@
+### CC Antya 2.162
+
+> varṣāntare śivānanda saba bhakta lañā
+> prabhure mililā āsi' ānandita hañā
+
+*varṣa-antare*—al final del año; *śivānanda*—Śivānanda Sena; *saba*—todos; *bhakta lañā*—llevando a los devotos; *prabhure mililā*—se encontró con Śrī Caitanya Mahāprabhu; *āsi'*—viniendo; *ānandita hañā*—con gran felicidad.
+
+**Al final del año, Śivānanda Sena acudió a Jagannātha Purī como de costumbre, acompañado de los demás devotos, y así, con gran felicidad, se encontró con Śrī Caitanya Mahāprabhu.**

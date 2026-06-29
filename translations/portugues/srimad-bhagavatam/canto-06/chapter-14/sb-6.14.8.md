@@ -1,0 +1,17 @@
+### SB 6.14.8
+
+*śrī*-sūta uvāca
+
+parīkṣito 'tha sampraśnaṁ
+
+bhagavān bādarāyaṇiḥ
+
+niśamya śraddadhānasya
+
+pratinandya vaco 'bravīt
+
+*śrī-sūtaḥ uvāca*—Śrī Sūta Gosvāmī disse; *parīkṣitaḥ*—de Mahārāja Parīkṣit; *atha*—assim; *sampraśnam*—a pergunta perfeita; *bhagavān*—o poderosíssimo; *bādarāyaṇiḥ*—Śukadeva Gosvāmī, o filho de Vyāsadeva; *niśamya*—ouvindo; *śraddadhānasya*—de seu discípulo, que era tão fiel em compreender a verdade; *pratinandya*—felicitando; *vacaḥ*—palavras; *abravīt*—falou.
+
+**Śrī Sūta Gosvāmī disse: Após ouvir a pergunta tão inteligente de Mahārāja Parīkṣit, Śukadeva Gosvāmī, o poderosíssimo sábio, começou a responder a seu discípulo com grande afeto.**
+
+---

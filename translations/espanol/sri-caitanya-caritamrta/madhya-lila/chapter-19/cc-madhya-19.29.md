@@ -1,0 +1,8 @@
+### CC Madhya 19.29
+
+> teṅho kahe,--yābe tumi devatāya duḥkha dite
+> mora śakti nāhi, tomāra saṅge yāite
+
+*teṅho kahe*—Sanātana Gosvāmī respondió; *yābe*—irás; *tumi*—tú; *devatāya*—a la Suprema Personalidad de Dios; *duḥkha dite*—a causar sufrimiento; *mora śakti*—mi poder; *nāhi*—no hay; *tomāra saṅge*—en tu compañía; *yāite*—ir.
+
+**Sanātana Gosvāmī respondió: «Vas a Orissa a causar dolor a la Suprema Personalidad de Dios. Por esa razón, me es imposible ir contigo.»**

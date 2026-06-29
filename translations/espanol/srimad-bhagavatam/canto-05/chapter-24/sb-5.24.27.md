@@ -1,0 +1,7 @@
+### SB 5.24.27
+
+> tasyānucaritam upariṣṭād vistariṣyate yasya bhagavān svayam akhila-jagad-gurur nārāyaṇo dvāri gadā-pāṇir avatiṣṭhate nija-janānukampita-hṛdayo yenāṅguṣṭhena padā daśa-kandharo yojanāyutāyutaṁ dig-vijaya uccāṭitaḥ.
+
+*tasya*—de Bali Mahārāja; *anucaritam*—la narración; *upariṣṭāt*—más adelante (en el Octavo Canto); *vistariṣyate*—se explicará; *yasya*—de quien; *bhagavān*—la Suprema Personalidad de Dios; *svayam*—personalmente; *akhila-jagad-guruḥ*—el amo de los tres mundos; *nārāyaṇaḥ*—el Señor Supremo, Nārāyaṇa en persona; *dvāri*—a la puerta; *gadā-pāṇiḥ*—con la maza en la mano; *avatiṣṭhate*—guarda; *nija-jana-anukampita-hṛdayaḥ*—cuyo corazón está siempre lleno de misericordia hacia Sus devotos; *yena*—por quien; *aṅguṣṭhena*—con el dedo gordo; *padā*—de Su pie; *daśa-kandharaḥ*—Rāvaṇa, que tiene diez cabezas; *yojana-ayuta-ayutam*—una distancia de ciento treinta mil kilómetros; *dik-vijaye*—con intención de vencer a Bali Mahārāja; *uccāṭitaḥ*—alejado.
+
+**Śukadeva Gosvāmī continuó: Mi querido rey, ¿cómo podría yo glorificar la personalidad de Bali Mahārāja? La Suprema Personalidad de Dios, el amo de los tres mundos, que es sumamente compasivo con Su devoto, guarda su puerta con una maza en la mano. Cuando Rāvaṇa, el poderoso demonio, se acercó allí con intención de derrotar a Bali Mahārāja, Vāmanadeva, con un golpe del dedo gordo de Su pie, lo envió a una distancia de 130 000 kilómetros. De la personalidad y actividades de Bali Mahārāja te hablaré más adelante [en el Octavo Canto del Śrīmad-Bhāgavatam].**

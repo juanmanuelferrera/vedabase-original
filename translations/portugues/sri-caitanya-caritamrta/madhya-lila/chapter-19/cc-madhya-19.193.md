@@ -1,0 +1,9 @@
+### CC Madhya 19.193
+
+gokule 'kevalā' rati--aiśvarya-jñāna-hīna
+
+purī-dvaye, vaikuṇṭhādye--aiśvarya-pravīṇa
+
+*gokule*—em Gokula Vṛndāvana; *kevalā rati*—apego imaculado; *aiśvarya-jñāna-hīna*—sem considerações reverenciais; *purī-dvaye*—em duas purīs, a saber, Mathurā Purī e Dvārakā Purī; *vaikuṇṭha-ādye*—nos planetas Vaikuṇṭha; *aiśvarya-pravīṇa*—predominância de temor e reverência.
+
+**"O apego puro, sem reverência, encontra-se em Goloka Vṛndāvana. O apego em que o temor e a reverência são predominantes encontra-se nas duas cidades de Mathurā e Dvārakā e em Vaikuṇṭha.**

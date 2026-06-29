@@ -1,0 +1,9 @@
+### CC Madhya 8.155
+
+ānandāṁśe 'hlādinī', sad-aṁśe 'sandhinī'
+
+cid-aṁśe 'samvit', yāre jñāna kari' māni
+
+*ānanda-aṁśe*—em bem-aventurança; *hlādinī*—a potência que confere prazer; *sat-aṁśe*—em eternidade; *sandhinī*—a potência criativa; *cit-aṁśe*—em conhecimento; *samvit*—a potência do conhecimento; *yāre*—a qual; *jñāna*—conhecimento; *kari'*—tomando como; *māni*—eu aceito.
+
+**"Hlādinī é Seu aspecto de bem-aventurança; sandhinī, de existência eterna; e samvit, de cognição, que também é aceita como conhecimento.**

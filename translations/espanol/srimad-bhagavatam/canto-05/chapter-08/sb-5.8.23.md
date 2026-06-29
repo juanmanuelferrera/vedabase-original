@@ -1,0 +1,14 @@
+### SB 5.8.23
+
+> kiṁ vā are ācaritaṁ tapas tapasvinyānayā yad iyam avaniḥ savinaya-kṛṣṇa-sāra-tanaya-tanutara-subhaga-śivatamākhara-khura-pada-paṅktibhir draviṇa-vidhurāturasya kṛpaṇasya mama draviṇa-padavīṁ sūcayanty ātmānaṁ ca sarvataḥ kṛta-kautukaṁ dvijānāṁ svargāpavarga-kāmānāṁ deva-yajanaṁ karoti.
+
+*kim vā*—qué; *are*—¡oh!; *ācaritam*—practicada; *tapaḥ*—penitencia; *tapasvinyā*—por el muy afortunado; *anayā*—este planeta Tierra; *yat*—puesto que; *iyam*—esta; *avaniḥ*—Tierra; *sa-vinaya*—muy manso y de muy buen comportamiento; *kṛṣṇa-sāra-tanaya*—de la cría de la cierva negra; *tanutara*—pequeñas; *subhaga*—hermosas; *śiva-tama*—muy auspiciosas; *akhara*—suaves; *khura*—de las pezuñas; *pada-paṅktibhiḥ*—por la serie de marcas; *draviṇa-vidhura-āturasya*—que está muy afligido por la pérdida de riquezas; *kṛpaṇasya*—una criatura muy desdichada; *mama*—para mí; *draviṇa-padavīm*—la manera de obtener esa riqueza; *sūcayanti*—indicar; *ātmānam*—su propio cuerpo; *ca*—y; *sarvataḥ*—por todas partes; *kṛta-kautukam*—adornada; *dvijānām*—de los *brāhmaṇas*; *svarga-apavarga-kāmānām*—que están deseosos de alcanzar los planetas celestiales o la liberación; *deva-yajanam*—lugar de sacrificio para los semidioses; *karoti*—hace.
+
+**Después de hablar con estas palabras de loco, Mahārāja Bharata se levantó y salió del āśrama. Al ver en el suelo las pisadas del ciervo, las alabó con amor, diciendo: ¡Oh, desdichado Bharata!, tus austeridades y penitencias son muy insignificantes en comparación con las penitencias y austeridades de este planeta Tierra. Debido a sus rigurosas penitencias, la Tierra ha visto impresas sobre su afortunada superficie las huellas de este ciervo, que son pequeñas, hermosas, suaves y muy auspiciosas. Soy una persona desconsolada, pues he perdido a mi ciervo, pero esta serie de huellas me muestran el camino que ha seguido el animal por el bosque, y la manera de recuperar mi perdida riqueza. Gracias a estas huellas, este lugar se ha convertido en un sitio adecuado para que los brāhmaṇas que desean la liberación o los planetas celestiales ejecuten sacrificios a los semidioses.**
+
+Se dice que cuando una persona se enreda demasiado en asuntos amorosos, se olvida tanto de sí misma como de los demás, hasta el punto de no saber cómo actuar ni cómo hablar. Una vez, un hombre tuvo un hijo ciego de nacimiento, pero llevado por el enorme cariño que sentía por él, le dio el nombre de Padmalocana, que significa «de ojos de loto». Esa clase de situaciones son resultado del amor ciego. Bharata Mahārāja, poco a poco, fue cayendo a esa condición, debido al amor material que sentía por el ciervo. En el *smṛti-śāstra* se dice:
+
+> yasmin deśe mṛgaḥ kṛṣṇas
+> tasmin dharmānn ivodhata
+
+«Aquel terreno en que deja sus huellas el ciervo negro, debe considerarse lugar adecuado para la celebración de rituales religiosos».

@@ -1,0 +1,9 @@
+### CC Adi 17.278
+
+gopikā-bhāvera ei sudṛḍha niścaya
+
+vrajendra-nandana vinā anyatra nā haya
+
+*gopikā-bhāvera*—do êxtase das gopīs; *ei*—esta; *sudṛḍha*—firme; *niścaya*—confirmação; *vrajendra-nandana*—o Senhor Śrī Kṛṣṇa; *vinā*—sem; *anyatra*—qualquer outro; *nā*—não; *haya*—é possível.
+
+**Está firmemente determinado que a disposição extática das gopīs só é possível diante de Kṛṣṇa, e de ninguém mais.**

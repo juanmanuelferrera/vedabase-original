@@ -1,0 +1,14 @@
+### SB 7.8.12
+
+> yas tvayā manda-bhāgyokto
+> mad-anyo jagad-īśvaraḥ
+> kvāsau yadi sa sarvatra
+> kasmāt stambhe na dṛśyate
+
+*yaḥ*—ese que; *tvayā*—por ti; *manda-bhāgya*—¡oh, desafortunado!; *uktaḥ*—descrito; *mat-anyaḥ*—aparte de mí; *jagat-īśvaraḥ*—el controlador supremo del universo; *kva*—dónde; *asau*—ese; *yadi*—si; *saḥ*—Él; *sarvatra*—en todas partes (omnipresente); *kasmāt*—por qué; *stambhe*—en la columna que tengo delante; *na dṛśyate*—no se ve.
+
+**¡Oh, desafortunado Prahlāda!, siempre estás hablando de un ser supremo que no soy yo, un ser supremo que está por encima de todo, que es el controlador de todos y está en todas partes. Pero, ¿dónde está? Si está en todas partes, ¿por qué no está presente ante mí, en esta columna?**
+
+Los demonios a veces declaran al devoto que, como no pueden ver a Dios, no aceptan Su existencia. Pero lo que el demonio no sabe es lo que el Señor mismo afirma en el *Bhagavad-gītā* (7.25):*nāhām prakāśaḥ sarvasya yogamāyā-samāvṛtaḥ*: «Yo nunca Me manifiesto a los necios y faltos de inteligencia. Para ellos, permanezco cubierto por *yogamāyā*». El Señor no tiene inconveniente en que Le vean los devotos, pero los no devotos no pueden verle. La cualidad necesaria para ver a Dios se expone en la*Brahma-saṁhitā* (5.38): *premāñjana-cchurita-bhakti-vilocanena santaḥ sadaiva hṛdayeṣu vilokayanti*. El devoto que ha adquirido un amor genuino por Kṛṣṇa puede verle siempre y en todas partes, mientras que el demonio, como no llega a comprender claramente al Señor Supremo, no puede verle. Cuando Hiraṇyakaśipu amenazó a Prahlāda Mahārāja con matarle, Prahlāda vio la columna que se alzaba ante ellos, y vio que el Señor estaba en ella para animarle a no tener miedo de las palabras de su demoníaco padre. El Señor estaba allí para protegerle. Hiraṇyakaśipu, notando que Prahlāda miraba hacia la columna, le preguntó: «¿Dónde está tu Dios?», y Prahlāda Mahārāja contestó: «En todas partes». Hiraṇyakaśipu preguntó entonces: «¿Y por qué no está ante mí, en esta columna?». El devoto puede ver siempre al Señor Supremo, en toda circunstancia, pero el no devoto no puede verle.
+
+En este verso, Hiraṇyakaśipu se dirige a Prahlāda Mahārāja llamándole «desafortunado». Hiraṇyakaśipu se consideraba sumamente afortunado por ser el propietario del universo. Prahlāda Mahārāja, su hijo legítimo, estaba destinado a heredar aquella enorme propiedad, pero, debido a su insolencia, iba a morir a manos de su padre. Así pues, el demoníaco Hiraṇyakaśipu consideraba a Prahlāda muy desafortunado, por no haber podido heredar sus propiedades. Hiraṇyakaśipu no sabía que Prahlāda Mahārāja era la persona más afortunada de los tres mundos, pues gozaba de la protección de la Suprema Personalidad de Dios. Así de confundidos viven los demonios. No saben que el devoto está protegido por el Señor en toda circunstancia (*kaunteya pratijānīhi na me bhaktaḥ praṇaśyati*).

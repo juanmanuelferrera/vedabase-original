@@ -1,0 +1,12 @@
+### CC Adi 2.9
+
+'nanda-suta' bali' yāṅre bhāgavate gāi
+sei kṛṣṇa avatīrṇa caitanya-gosāñi
+
+*nanda-suta*—o filho de Nanda Mahārāja; *bali'*—como; *yāṅre*—quem; *bhāgavate*—no Śrīmad-Bhāgavatam; *gāi*—é cantado; *sei*—aquele; *kṛṣṇa*—o Senhor Kṛṣṇa; *avatīrṇa*—descido; *caitanya-gosāñi*—o Senhor Caitanya Mahāprabhu.
+
+**Aquele que o *Śrīmad-Bhāgavatam* descreve como o filho de Nanda Mahārāja desceu à Terra como o Senhor Caitanya.**
+
+Segundo as regras de organização retórica para uma composição eficiente em literatura, um sujeito deve ser mencionado antes de seu predicado. A literatura Védica menciona com frequência o Brahman, o Paramātmā e o Bhagavān, e, por isso, esses três termos são amplamente conhecidos como os sujeitos da compreensão transcendental. Mas não é amplamente conhecido que aquilo que se aborda como o Brahman impessoal é a refulgência do corpo transcendental de Śrī Caitanya Mahāprabhu. Tampouco é amplamente conhecido que a Superalma, ou Paramātmā, é apenas uma representação parcial do Senhor Caitanya, que é idêntico ao próprio Bhagavān. Por conseguinte, as descrições do Brahman como a refulgência do Senhor Caitanya, do Paramātmā como Sua representação parcial e da Suprema Personalidade de Deus, Kṛṣṇa, como idêntica ao Senhor Caitanya Mahāprabhu devem ser verificadas mediante evidência das literaturas Védicas autorizadas.
+
+O autor deseja estabelecer, primeiramente, que a essência dos *Vedas* é o viṣṇu-tattva, a Verdade Absoluta, Viṣṇu, o onipenetrante Deus. O viṣṇu-tattva tem diferentes categorias, das quais a mais elevada é o Senhor Kṛṣṇa, o derradeiro viṣṇu-tattva, como se confirma no *Bhagavad-gītā* e em toda a literatura Védica. No *Śrīmad-Bhāgavatam*, essa mesma Suprema Personalidade de Deus, Kṛṣṇa, é descrita como Nanda-suta, o filho do rei Nanda. Kṛṣṇadāsa Kavirāja Gosvāmī diz que Nandasuta voltou a aparecer como o Senhor Śrī Kṛṣṇa Caitanya Mahāprabhu, porque a conclusão da literatura Védica é que não há diferença entre o Senhor Kṛṣṇa e o Senhor Caitanya Mahāprabhu. É isso que o autor provará. Uma vez assim provado que Śrī Kṛṣṇa é a origem de todos os tattvas (verdades), a saber, Brahman, Paramātmā e Bhagavān, e que não há diferença entre Śrī Kṛṣṇa e o Senhor Śrī Caitanya Mahāprabhu, não será difícil compreender que Śrī Caitanya Mahāprabhu é também a mesma origem de todos os tattvas. A mesma Verdade Absoluta, conforme Se revela aos estudantes de diferentes níveis de compreensão, é chamada de Brahman, Paramātmā e Bhagavān.

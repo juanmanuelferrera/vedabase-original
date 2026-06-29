@@ -1,0 +1,12 @@
+### SB 3.15.24
+
+> ye 'bhyarthitām api ca no nṛ-gatiṁ prapannā
+> jñānaṁ ca tattva-viṣayaṁ saha-dharmaṁ yatra
+> nārādhanaṁ bhagavato vitaranty amuṣya
+> sammohitā vitatayā bata māyayā te
+
+*ye*—aquellas personas; *abhyarthitām*—deseada; *api*—ciertamente; *ca*—y; *naḥ*—por nosotros (Brahmā y los demás semidioses); *nṛ-gatim*—la forma humana de vida; *prapannāḥ*—han conseguido; *jñānam*—conocimiento; *ca*—y; *tattva-viṣayam*—el tema de la Verdad Absoluta; *saha-dharmam*—junto con principios religiosos; *yatra*—donde; *na*—no; *ārādhanam*—adoración; *bhagavataḥ*—de la Suprema Personalidad de Dios; *vitaranti*—llevan a cabo; *amuṣya*—del Señor Supremo; *sammohitāḥ*—estando confundidos; *vitatayā*—omnipresente; *bata*—¡ay!; *māyayā*—por la influencia de la energía ilusoria; *te*—ellos.
+
+**Brahmā dijo: Mis queridos semidioses, la forma humana de vida es de tan gran importancia que también nosotros deseamos tener ese tipo de vida, pues en la forma humana se pueden lograr la verdad religiosa perfecta y el conocimiento. Si en esta forma de vida humana no se entiende a la Suprema Personalidad de Dios y Su morada, debe entenderse que se está muy afectado por la influencia de la naturaleza externa.**
+
+Brahmājī censura con mucha vehemencia la condición del ser humano que no muestra interés en la Personalidad de Dios y Su morada trascendental, Vaikuṇṭha. Incluso el propio Brahmājī desea la forma humana de vida. Brahmā y otros semidioses tienen cuerpos materiales mucho mejores que los de los seres humanos; pero los semidioses, incluido Brahmā, desean, no obstante, obtener la forma de vida humana, porque está hecha especialmente para la entidad viviente que puede conseguir conocimiento trascendental y perfección religiosa. No es posible ir de vuelta a Dios en una vida, pero en la forma humana se debe, como mínimo, entender la meta de la vida y comenzar el cultivo de conciencia de Kṛṣṇa. Se dice que la forma humana es una gran bendición, porque es el buque más adecuado para cruzar el océano de la nesciencia. Se considera también que el maestro espiritual es, en ese buque, el más avezado capitán, y la información que dan las Escrituras es el viento favorable para surcar el océano de la ignorancia. El ser humano que no aprovecha todas estas facilidades en su vida, está cometiendo suicidio. Por lo tanto, aquel que no emprende en la forma humana de vida el proceso de conciencia de Kṛṣṇa deja su vida a merced de la influencia de la energía ilusoria. Brahmā lamenta la situación de esa clase de seres humanos.

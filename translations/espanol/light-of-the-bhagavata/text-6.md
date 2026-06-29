@@ -1,0 +1,7 @@
+### 6
+
+**Al oír el sonido de las lluvias torrenciales, las ranas salen de las cuevas de las montañas y comienzan a cantar, como *brahmacārīs* que entonan los himnos Védicos por orden del maestro espiritual.**
+
+En esta era de civilización atea, los sabios de las sectas religiosas reconocidas mundialmente que creen en Dios deben salir de sus lugares recluidos y predicar la ciencia de Dios, la Voluntad Suprema, al pueblo en general. Los hindúes, los musulmanes, los cristianos y los miembros de las demás sectas que tienen fe convincente en la autoridad de Dios no deben permanecer sentados ociosamente y observar en silencio el rápido crecimiento de una civilización atea. Existe la voluntad suprema de Dios, y ninguna nación ni sociedad puede vivir en paz y prosperidad sin aceptar esta verdad vital.
+
+La advertencia ya está dada, y los líderes responsables de las sectas religiosas deben reunirse y formar una plataforma común de una liga de devotos del Señor. No hay necesidad de que las almas autorrealizadas vivan en un lugar recluido. Las almas autorrealizadas perfectas, dedicadas al servicio del Señor, no temen a la *māyā*, así como los ciudadanos que respetan la ley de un estado jamás temen a la policía. Tales devotos intrépidos de Dios siempre hablan científicamente sobre la existencia de Dios, aun a riesgo de su vida. Tales devotos de Dios sienten compasión por la masa del pueblo, que ha olvidado por completo al Señor Supremo y que se dedica a la falsa búsqueda de una felicidad que termina en los placeres sensuales que disfrutan los cerdos y los perros.

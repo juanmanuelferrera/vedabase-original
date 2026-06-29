@@ -1,0 +1,12 @@
+### SB 4.1.3
+
+> prajāpatiḥ sa bhagavān
+> rucis tasyām ajījanat
+> mithunaṁ brahma-varcasvī
+> parameṇa samādhinā
+
+*prajāpatiḥ*—aquel que tiene la misión de concebir hijos; *saḥ*—él; *bhagavān*—el muy opulento; *ruciḥ*—el gran sabio Ruci; *tasyām*—en ella; *ajījanat*—engendró; *mithunam*—pareja; *brahma-varcasvī*—muy poderoso espiritualmente; *parameṇa*—con gran fuerza; *samādhinā*—en trance.
+
+**Ruci, que era un brāhmaṇa cualificado muy poderoso y había sido designado como uno de los progenitores de las entidades vivientes, engendró en su esposa, Ākūti, un hijo y una hija.**
+
+La palabra brahma-varcasvī es muy significativa. Ruci era un brāhmaṇa, y ejecutaba los deberes brahmínicos de un modo muy riguroso. Como se afirma en el Bhagavad-gītā, las cualidades brahmínicas son el control de los sentidos, el control de la mente, la limpieza interna y externa, el desarrollo del conocimiento espiritual y material, la sencillez, la veracidad, la fe en la Suprema Personalidad de Dios, etc. Hay muchas cualidades que indican una personalidad brahmínica, y se entiende que Ruci seguía rigurosamente todos los principios brahmínicos. Por lo tanto, se le menciona específicamente como brahma-varcasvī. A aquel que nace de un padre brāhmaṇa pero no actúa como brāhmaṇa se le llama, en lenguaje Védico, brahma-bandhu, y se le considera al nivel de los śūdras y las mujeres. Así pues, en el Bhāgavatam encontramos que el Mahābhārata fue compilado específicamente por Vyāsadeva para los strī-śūdra-brahma-bandhu. Strī significa mujeres, śūdra significa la clase más baja de la sociedad humana civilizada, y brahma-bandhu significa personas que nacen en las familias de los brāhmaṇas pero no siguen cuidadosamente las reglas y regulaciones. Todas estas tres clases se llaman menos inteligentes; no tienen acceso al estudio de los Vedas, que están destinados específicamente a las personas que han adquirido las cualidades brahmínicas. Esta restricción no se basa en ninguna distinción sectaria, sino en la cualificación. Las Escrituras Védicas no pueden comprenderse a menos que uno haya desarrollado las cualidades brahmínicas. Es lamentable, por lo tanto, que personas que no tienen cualidades brahmínicas y que nunca han sido adiestradas bajo un maestro espiritual genuino comenten, no obstante, Escrituras Védicas como el Śrīmad-Bhāgavatam y otros Purāṇas, pues no pueden transmitir su verdadero mensaje. Ruci era considerado un brāhmaṇa de primera clase; por lo tanto, aquí se le menciona como brahma-varcasvī, aquel que tenía plena destreza en la fuerza brahmínica.

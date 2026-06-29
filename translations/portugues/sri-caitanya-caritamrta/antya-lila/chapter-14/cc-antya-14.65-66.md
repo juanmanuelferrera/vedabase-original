@@ -1,0 +1,13 @@
+### CC Antya 14.65-66
+
+eka eka hasta-pāda--dīrgha tina tina-hāta
+
+asthi-granthi bhinna, carma āche mātra tāta
+
+hasta, pāda, grīvā, kaṭi, asthi sandhi yata
+
+eka eka vitasti bhinna hañāche tata
+
+*eka eka*—cada um; *hasta-pāda*—braços e pernas; *dīrgha*—alongados; *tina tina-hāta*—três cúbitos; *asthi-granthi*—as articulações dos ossos; *bhinna*—separadas; *carma*—pele; *āche*—há; *mātra*—apenas; *tāta*—uma leve temperatura indicando vida; *hasta*—braços; *pāda*—pernas; *grīvā*—pescoço; *kaṭi*—cintura; *asthi*—ossos; *sandhi*—articulações; *yata*—todas quantas; *eka*—uma; *eka*—uma; *vitasti*—cerca de quinze centímetros; *bhinna*—separadas; *hañāche*—estavam; *tata*—todas elas.
+
+**Cada um de Seus braços e pernas havia se tornado três cúbitos de comprimento; apenas a pele unia as articulações separadas. A temperatura do corpo do Senhor, indicando vida, estava muito baixa. Todas as articulações de Seus braços, pernas, pescoço e cintura estavam separadas por pelo menos quinze centímetros.**

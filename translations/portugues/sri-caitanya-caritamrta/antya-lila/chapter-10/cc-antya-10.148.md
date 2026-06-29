@@ -1,0 +1,9 @@
+### CC Antya 10.148
+
+āra dina caitanya-dāsa kailā nimantraṇa
+
+prabhura 'abhīṣṭa' bujhi' ānilā vyañjana
+
+*āra dina*—no dia seguinte; *caitanya-dāsa*—o filho de Śivānanda Sena; *kailā nimantraṇa*—convidou; *prabhura*—de Śrī Caitanya Mahāprabhu; *abhīṣṭa*—desejo; *bujhi'*—compreendendo; *ānilā vyañjana*—comprou hortaliças diferentes.
+
+**No dia seguinte, Caitanya dāsa, o filho de Śivānanda Sena, fez um convite ao Senhor. Ele, porém, compreendia a mente do Senhor e, por isso, providenciou um tipo diferente de alimento.**

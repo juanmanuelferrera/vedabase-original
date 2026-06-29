@@ -1,0 +1,9 @@
+### SB 5.2.3
+
+> tad upalabhya bhagavān ādi-puruṣaḥ sadasi gāyantīṁ pūrvacittiṁ nāmāpsarasam abhiyāpayām āsa.
+
+*tat*—eso; *upalabhya*—comprendiendo; *bhagavān*—el muy poderoso; *ādi-puruṣaḥ*—el primer ser creado del universo; *sadasi*—en su corte; *gāyantīm*—a la bailarina; *pūrvacittim*—a Pūrvacitti; *nāma*—llamada; *apsarasam*—a la bailarina celestial; *abhiyāpayām āsa*—envió.
+
+**El Señor Brahmā, que es el primer ser creado, la persona más poderosa del universo, comprendiendo el deseo del rey Āgnīdhra, seleccionó a la mejor de las bailarinas de su corte, Pūrvacitti, y se la envió al rey.**
+
+En este verso son significativas las palabras *bhagavān ādi-puruṣaḥ. Bhagavān ādi-puruṣaḥ* es el Señor Kṛṣṇa. *Govindam ādi-puruṣaṁ tam ahaṁ bhajāmi:* el Señor Kṛṣṇa es la persona original. En el *Bhagavad-gītā,* Arjuna se dirige a Él con las palabras *puruṣam ādyam,* «la persona original», y recibe también el nombre de Bhagavān. En este verso, sin embargo, vemos que es el Señor Brahmā quien recibe el calificativo de *bhagavān ādi-puruṣaḥ.* La razón de que se le llame *bhagavān* es que él representa plenamente a la Suprema Personalidad de Dios y es la primera criatura nacida en el universo. El Señor Brahmā pudo comprender el deseo de Mahārāja Āgnīdhra porque es tan poderoso como el Señor Viṣṇu, quien, en Su aspecto de Paramātmā, puede comprender el deseo de la entidad viviente. El Señor Brahmā también puede comprender el deseo de la entidad viviente, pues Viṣṇu, actuando de intermediario, le facilita la información. Como se afirma en el *Śrīmad-Bhāgavatam* (1.1.1): *tene brahma hṛdā ya ādi-kavaye:* El Señor Viṣṇu informa de todo al Señor Brahmā desde dentro del corazón. Mahārāja Āgnīdhra adoró específicamente al Señor Brahmā, y debido a ello, este, complacido, envió a Pūrvacitti, la *apsarā,* para satisfacerle.

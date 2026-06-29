@@ -1,0 +1,14 @@
+### SB 3.31.17
+
+> dehy anya-deha-vivare jaṭharāgnināsṛg-
+> viṇ-mūtra-kūpa-patito bhṛśa-tapta-dehaḥ
+> icchann ito vivasituṁ gaṇayan sva-māsān
+> nirvāsyate kṛpaṇa-dhīr bhagavan kadā nu
+
+*dehī*—el alma corporificada; *anya-deha*—de otro cuerpo; *vivare*—en el abdomen; *jaṭhara*—del estómago; *agninā*—por el fuego; *asṛk*—de sangre; *viṭ*—excremento; *mūtra*—y orina; *kūpa*—en un charco; *patitaḥ*—caída; *bhṛśa*—fuertemente; *tapta*—abrasado; *dehaḥ*—su cuerpo; *icchan*—deseando; *itaḥ*—de ese lugar; *vivasitum*—salir; *gaṇayan*—contando; *svamāsān*—sus meses; *nirvāsyate*—será liberada; *kṛpaṇa-dhīḥ*—persona de inteligencia avarienta; *bhagavan*—¡oh, Señor!; *kadā*—cuándo; *nu*—en verdad.
+
+**Caída en un charco de orina, sangre y excremento dentro del abdomen de su madre, con el cuerpo abrasado por el fuego gástrico de la madre, el alma corporificada, ansiosa de salir, cuenta sus meses y ora diciendo: «¡Oh, mi Señor!, ¿cuándo se liberará esta alma desdichada de semejante confinamiento?».**
+
+En este verso se describe la precaria situación de la entidad viviente dentro del vientre de la madre. A un lado del lugar en que flota el niño está el calor del fuego gástrico; al otro lado hay orina, excremento, sangre y secreciones. El niño de siete meses, que ha recobrado su conciencia, percibe las horribles condiciones de existencia en que se encuentra, y ora al Señor. Contando los meses que faltan para el parto, está muy ansioso por liberarse de su confinamiento. El hombre supuestamente civilizado no tiene en cuenta lo horrible que es la vida en esa situación, y a veces, con la intención de complacer sus sentidos, trata de matar al niño con métodos anticonceptivos o mediante el aborto. Sin considerar seriamente las horribles condiciones de la vida en el vientre, esas personas se embarcan en el materialismo, tirando por la borda la oportunidad que supone la forma de vida humana.
+
+Es significativa en este verso la palabra *kṛpaṇa-dhīḥ. Dhī* quiere decir «inteligencia», y *kṛpaṇa* quiere decir «avarienta». La vida condicionada es para las personas de inteligencia avarienta, es decir, las que no utilizan su inteligencia como es debido. La forma humana de vida está dotada de una inteligencia evolucionada, que debe utilizarse para salir del ciclo de nacimientos y muertes. El que no la emplea de ese modo es un avaro, como la persona que tiene inmensas riquezas y no las utiliza, guardándolas simplemente para verlas. Cuando una persona no utiliza su inteligencia humana para salir de las garras de *māyā,* es decir, del ciclo de nacimientos y muertes, se considera que es avara. *Udāra,* «muy magnánimo», es exactamente lo contrario de «avaro». El *brāhmaṇa* utiliza su inteligencia humana para conseguir la iluminación espiritual, y por ello se dice que es *udāra.* Utiliza esa inteligencia para predicar acerca de la conciencia de Kṛṣṇa en beneficio del público y, por lo tanto, es magnánimo.

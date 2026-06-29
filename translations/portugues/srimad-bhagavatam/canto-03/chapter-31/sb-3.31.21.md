@@ -1,0 +1,19 @@
+### SB 3.31.21
+
+*tasmād ahaṁ vigata*-viklava uddhariṣya
+
+ātmānam āśu tamasaḥ suhṛdātmanaiva
+
+*bhūyo yathā vyasanam etad aneka*-randhraṁ
+
+*mā me bhaviṣyad upasādita*-viṣṇu-pādaḥ
+
+*tasmāt*—por isso; *aham*—eu; *vigata*—cessada; *viklavaḥ*—agitação; *uddhariṣye*—hei de me libertar; *ātmānam*—a mim mesmo; *āśu*—rapidamente; *tamasaḥ*—das trevas; *suhṛdā ātmanā*—com inteligência amiga; *eva*—de fato; *bhūyaḥ*—novamente; *yathā*—de modo que; *vyasanam*—situação miserável; *etat*—esta; *aneka-randhram*—de entrar em muitos ventres; *mā*—não; *me*—minha; *bhaviṣyat*—possa ocorrer; *upasādita*—colocados (em minha mente); *viṣṇu-pādaḥ*—os pés de lótus do Senhor Viṣṇu.
+
+**Por isso, sem mais agitar-me, hei de me libertar das trevas da ignorância com a ajuda de meu amigo, a consciência clara. Simplesmente mantendo os pés de lótus do Senhor Viṣṇu em minha mente, serei salvo de entrar nos ventres de muitas mães para o nascimento e a morte repetidos.**
+
+As misérias da existência material começam no próprio dia em que a alma espiritual toma refúgio no óvulo e no espermatozoide da mãe e do pai; continuam após ele nascer do ventre, e depois se prolongam ainda mais. Não sabemos onde o sofrimento termina. Ele não termina, porém, mudando-se de corpo. A mudança de corpo está ocorrendo a cada momento, mas isso não significa que estamos melhorando da condição fetal de vida para uma condição mais confortável. O melhor, por conseguinte, é desenvolver a consciência de Kṛṣṇa. Aqui se afirma *upasādita-viṣṇu-pādaḥ*. Isso significa a realização da consciência de Kṛṣṇa. Aquele que é inteligente, pela graça do Senhor, e desenvolve a consciência de Kṛṣṇa, tem êxito em sua vida, porque simplesmente por manter-se na consciência de Kṛṣṇa será salvo da repetição do nascimento e da morte.
+
+A criança ora que é melhor permanecer no ventre das trevas absorto constantemente na consciência de Kṛṣṇa do que sair e novamente tornar-se vítima da energia ilusória. A energia ilusória atua tanto dentro do abdômen quanto fora dele; mas o segredo é que se deve permanecer consciente de Kṛṣṇa, e então o efeito de tal condição horrível não poderá agir desfavoravelmente. No *Bhagavad-gītā* diz-se que a inteligência de alguém é sua amiga, e essa mesma inteligência também pode ser sua inimiga. Aqui também a mesma ideia se repete: *suhṛdātmanaiva*, inteligência amiga. A absorção da inteligência no serviço pessoal a Kṛṣṇa e a consciência plena de Kṛṣṇa sempre são o caminho da autorrealização e da liberação. Sem nos agitar desnecessariamente, se adotarmos o processo da consciência de Kṛṣṇa cantando constantemente Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare, o ciclo de nascimento e morte pode ser definitivamente interrompido.
+
+Pode-se perguntar aqui como a criança pode estar plenamente consciente de Kṛṣṇa dentro do ventre da mãe sem qualquer parafernália para executar a consciência de Kṛṣṇa. Não é necessário providenciar parafernália para adorar a Suprema Personalidade de Deus, Viṣṇu. A criança quer permanecer dentro do abdômen de sua mãe e ao mesmo tempo quer libertar-se das garras da māyā. Não se precisa de nenhum arranjo material para cultivar a consciência de Kṛṣṇa. Pode-se cultivar a consciência de Kṛṣṇa em qualquer lugar e em qualquer circunstância, desde que se possa sempre pensar em Kṛṣṇa. O *mahā-mantra* — Hare Kṛṣṇa, Hare Kṛṣṇa, Kṛṣṇa Kṛṣṇa, Hare Hare/ Hare Rāma, Hare Rāma, Rāma Rāma, Hare Hare — pode ser cantado mesmo dentro do abdômen da própria mãe. Pode-se cantar dormindo, trabalhando, aprisionado no ventre ou fora dele. Essa consciência de Kṛṣṇa não pode ser impedida em nenhuma circunstância. A conclusão da oração da criança é: "Que eu permaneça nesta condição; embora seja muito miserável, é melhor não cair novamente vítima da māyā saindo daqui."

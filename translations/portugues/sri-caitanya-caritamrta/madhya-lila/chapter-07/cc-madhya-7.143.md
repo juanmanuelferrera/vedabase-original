@@ -1,0 +1,15 @@
+### CC Madhya 7.143
+
+kvāhaṁ daridraḥ pāpīyān
+
+kva kṛṣṇaḥ śrī-niketanaḥ
+
+brahma-bandhur iti smāhaṁ
+
+bāhubhyāṁ parirambhitaḥ
+
+*kva*—quem; *aham*—eu; *daridraḥ*—pobre; *pāpīyān*—pecaminoso; *kva*—quem; *kṛṣṇaḥ*—a Suprema Personalidade de Deus; *śrī-niketanaḥ*—a forma transcendental de toda a opulência; *brahma-bandhuḥ*—o amigo de um brāhmaṇa, não digno sequer de ser chamado de brāhmaṇa; *iti*—assim; *sma*—certamente; *aham*—eu; *bāhubhyām*—pelos braços; *parirambhitaḥ*—abraçado.
+
+**Ele disse: " 'Quem sou eu? Um amigo pobre e pecaminoso de um brāhmaṇa. E quem é Kṛṣṇa? A Suprema Personalidade de Deus, pleno das seis opulências. Não obstante, Ele me abraçou com Seus dois braços.' "**
+
+Este verso foi proferido por Sudāmā Brāhmaṇa no *Śrīmad-Bhāgavatam* (10.81.16), em relação a seu encontro com o Senhor Kṛṣṇa.

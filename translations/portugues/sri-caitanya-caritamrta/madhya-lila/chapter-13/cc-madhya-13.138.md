@@ -1,0 +1,11 @@
+### CC Madhya 13.138
+
+prāṇa-nātha, śuna mora satya nivedana
+
+vraja-āmāra sadana, tāhāṅ tomāra saṅgama,
+
+nā pāile nā rahe jīvana
+
+*prāṇa-nātha*—ó Meu Senhor, mestre de Minha vida; *śuna*—por favor, ouve; *mora*—Minha; *satya*—verdadeira; *nivedana*—submissão; *vraja*—Vṛndāvana; *āmāra*—Minha; *sadana*—morada; *tāhāṅ*—lá; *tomāra*—Tua; *saṅgama*—associação; *nā pāile*—se Eu não a obtiver; *nā*—não; *rahe*—permanece; *jīvana*—vida.
+
+**" 'Meu querido Senhor, ouve bondosamente Minha verdadeira súplica. Minha morada é Vṛndāvana, e ali desejo Tua associação. Mas, se Eu não a obtiver, então será muito difícil para Mim conservar a vida.**

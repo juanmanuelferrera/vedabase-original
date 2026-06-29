@@ -1,0 +1,8 @@
+### CC Antya 7.159
+
+> eta bali' paṇḍita prabhura sthāne āilā
+> rodana kariyā prabhura caraṇe paḍilā
+
+*eta bali'*—diciendo esto; *paṇḍita*—Gadādhara Paṇḍita; *prabhura sthāne*—ante Śrī Caitanya Mahāprabhu; *āilā*—vino; *rodana kariyā*—llorando; *prabhura*—de Śrī Caitanya Mahāprabhu; *caraṇe*—a los pies de loto; *paḍilā*—cayó.
+
+**Tras decir esto, Gadādhara Paṇḍita acudió ante Śrī Caitanya Mahāprabhu y, llorando, cayó a los pies de loto del Señor.**

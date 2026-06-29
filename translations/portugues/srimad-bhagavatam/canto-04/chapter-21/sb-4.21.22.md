@@ -1,0 +1,17 @@
+### SB 4.21.22
+
+*ahaṁ daṇḍa*-dharo rājā
+
+prajānām iha yojitaḥ
+
+rakṣitā vṛttidaḥ sveṣu
+
+setuṣu sthāpitā pṛthak
+
+*aham*—eu; *daṇḍa-dharaḥ*—portador do cetro; *rājā*—rei; *prajānām*—dos cidadãos; *iha*—neste mundo; *yojitaḥ*—ocupado; *rakṣitā*—protetor; *vṛtti-daḥ*—empregador; *sveṣu*—em suas próprias; *setuṣu*—respectivas ordens sociais; *sthāpitā*—estabelecidos; *pṛthak*—distintamente.
+
+**O rei Pṛthu prosseguiu: Pela graça do Senhor Supremo, fui designado rei deste planeta, e empunho o cetro para governar os cidadãos, protegê-los de todo perigo e dar-lhes emprego de acordo com suas respectivas posições na ordem social estabelecida pelas injunções Védicas.**
+
+Supõe-se que um rei seja nomeado pela Suprema Personalidade de Deus para zelar pelos interesses de seu planeta particular. Em cada planeta há uma pessoa predominante, assim como vemos agora que em cada país há um presidente. Se alguém é presidente ou rei, deve-se compreender que esta oportunidade lhe foi concedida pelo Senhor Supremo. Segundo o sistema Védico, o rei é considerado um representante da Divindade e recebe respeito dos cidadãos como Deus na forma humana de vida. Na verdade, segundo a informação Védica, o Senhor Supremo mantém todos os seres vivos, e especialmente os seres humanos, a fim de elevá-los à mais alta perfeição. Após muitíssimos nascimentos em espécies inferiores, quando um ser vivo evolui até a forma humana de vida e, em particular, até a forma humana civilizada de vida, sua sociedade deve ser dividida em quatro gradações, conforme ordenado pela Suprema Personalidade de Deus no Bhagavad-gītā (cātur-varṇyaṁ mayā sṛṣṭam, etc.). As quatro ordens sociais — os brāhmaṇas, kṣatriyas, vaiśyas e śūdras — são divisões naturais da sociedade humana e, como declarado por Pṛthu Mahārāja, todo homem em sua respectiva ordem social deve ter ocupação adequada para seu sustento. É dever do rei ou do governo assegurar que o povo observe a ordem social e que também esteja empregado em seus respectivos deveres ocupacionais. Nos tempos modernos, uma vez que a proteção do governo ou do rei foi retirada, a ordem social praticamente entrou em colapso. Ninguém sabe quem é brāhmaṇa, quem é kṣatriya, quem é vaiśya ou quem é śūdra, e as pessoas alegam pertencer a uma ordem social particular apenas por direito de nascimento. É dever do governo restabelecer a ordem social em termos dos deveres ocupacionais e dos modos da natureza material, pois isso tornará realmente civilizada toda a população do mundo. Se não observa as funções institucionais das quatro ordens sociais, a sociedade humana não é melhor que a sociedade animal, na qual nunca há tranquilidade, paz e prosperidade, mas apenas caos e confusão. Mahārāja Pṛthu, como rei ideal, observava estritamente a manutenção da ordem social Védica.
+
+Prajāyate iti prajā. A palavra prajā refere-se àquele que toma nascimento. Por isso, Pṛthu Mahārāja garantia proteção para os prajānām — todos os seres vivos que tomavam nascimento em seu reino. Prajā refere-se não apenas aos seres humanos, mas também aos animais, às árvores e a todo outro ser vivo. É dever do rei dar proteção e alimento a todos os seres vivos. Os tolos e canalhas da sociedade moderna não têm conhecimento da extensão da responsabilidade do governo. Os animais também são cidadãos da terra em que por acaso nasceram, e também têm o direito de prosseguir sua existência às custas do Senhor Supremo. A perturbação da população animal por meio do abate em massa produz uma catastrófica reação futura para o açougueiro, sua terra e seu governo.

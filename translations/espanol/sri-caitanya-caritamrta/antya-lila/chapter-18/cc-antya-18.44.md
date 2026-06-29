@@ -1,0 +1,8 @@
+### CC Antya 18.44
+
+> dekhena--eka jāliyā āise kāndhe jāla kari'
+> hāse, kānde, nāce, gāya, bale 'hari' 'hari'
+
+*dekhena*—ven; *eka jāliyā*—un pescador; *āise*—viene; *kāndhe*—sobre el hombro; *jāla kari'*—llevando una red; *hāse*—ríe; *kānde*—llora; *nāce*—danza; *gāya*—canta; *bale*—dice; *hari hari*—Hari, Hari.
+
+**Mientras caminaban por la playa, vieron que un pescador se acercaba con la red al hombro. Riendo, llorando, danzando y cantando, no dejaba de repetir el santo nombre «Hari, Hari».**

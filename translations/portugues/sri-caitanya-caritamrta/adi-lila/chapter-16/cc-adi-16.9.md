@@ -1,0 +1,8 @@
+### CC Adi 16.9
+
+vidyāra prabhāva dekhi camatkāra cite
+śata śata paḍuyā āsi lāgilā paḍite
+
+*vidyāra*—de Seu aprendizado; *prabhāva*—a influência; *dekhi*—vendo; *camatkāra*—admiração; *cite*—dentro do coração; *śata śata*—muitas centenas; *paḍuyā*—discípulos ou estudantes; *āsi*—vindo até ali; *lāgila*—começaram; *paḍite*—a estudar.
+
+**Tomados de assombro ante a influência da proeza intelectual do Senhor Caitanya Mahāprabhu, muitas centenas de estudantes vieram até Ele e começaram a estudar sob Sua direção.**

@@ -1,0 +1,8 @@
+### SB 5.18.1
+
+> śrī-śuka uvāca
+> tathā ca bhadraśravā nāma dharma-sutas tat-kula-patayaḥ puruṣā bhadrāśva-varṣe sākṣād bhagavato vāsudevasya priyāṁ tanuṁ dharmamayīṁ hayaśīrṣābhidhānāṁ parameṇa samādhinā sannidhāpyedam abhigṛṇanta upadhāvanti.
+
+*śrī-śukaḥ uvāca*—Śukadeva Gosvāmī dijo; *tathā ca*—del mismo modo (tal como el Señor Śiva adora a Saṅkarṣaṇa en Ilāvṛta-varṣa); *bhadra-śravā*—Bhadraśravā; *nāma*—con el nombre de; *dharma-sutaḥ*—el hijo de Dharmarāja; *tat*—de él; *kula-patayaḥ*—los jefes de la dinastía; *puruṣāḥ*—todos los habitantes; *bhadrāśva-varṣe*—en la región de Bhadrāśva-varṣa; *sākṣāt*—directamente; *bhagavataḥ*—de la Suprema Personalidad de Dios; *vāsudevasya*—del Señor Vāsudeva; *priyām tanum*—forma muy querida; *dharma-mayīm*—quien tiene a Su cargo los principios religiosos; *hayaśīrṣa-abhidhānām*—Hayaśīrṣa, la encarnación del Señor (también llamado Hayagrīva); *parameṇa samādhinā*—con la forma de trance más elevada; *sannidhāpya*—acercándose; *idam*—esto; *abhigṛṇantaḥ*—cantando; *upadhāvanti*—adoran.
+
+**Śrī Śukadeva Gosvāmī dijo: Bhadraśravā, el hijo de Dharmarāja, gobierna la región conocida como Bhadrāśva-varṣa. Tal como el Señor Śiva adora a Saṅkarṣaṇa en Ilāvṛta-varṣa, Bhadraśravā, acompañado por sus servidores íntimos y por todos los habitantes de la región, adora a la expansión plenaria de Vāsudeva conocida como Hayaśīrṣa. El Señor Hayaśīrṣa es muy querido por los devotos, y Él es el director de todos los principios religiosos. Fijos en el trance supremo, Bhadraśravā y sus acompañantes ofrecen sus respetuosas reverencias al Señor y cantan las siguientes oraciones con cuidadosa pronunciación.**

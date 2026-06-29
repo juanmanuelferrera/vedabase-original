@@ -1,0 +1,9 @@
+### CC Antya 12.63
+
+prabhura priya nānā dravya āniyāche deśa haite
+
+sei vyañjana kari' bhikṣā dena ghara-bhāte
+
+*prabhura*—de Śrī Caitanya Mahāprabhu; *priya*—prediletas; *nānā dravya*—variedades de iguarias; *āniyāche*—trouxeram; *deśa haite*—de sua terra natal; *sei vyañjana kari'*—preparando aquelas hortaliças; *bhikṣā dena*—oferecem alimento; *ghara-bhāte*—cozinhando em casa.
+
+**De Bengala, os devotos haviam trazido variedades de comidas bengalis que Śrī Caitanya Mahāprabhu apreciava. Eles também cozinhavam diversos grãos e hortaliças em suas casas e os ofereciam ao Senhor.**

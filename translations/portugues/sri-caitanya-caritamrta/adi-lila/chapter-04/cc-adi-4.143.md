@@ -1,0 +1,8 @@
+### CC Adi 4.143
+
+āmāra mādhurya nitya nava nava haya
+sva-sva-prema-anurūpa bhakte āsvādaya
+
+*āmāra*—de Mim; *mādhurya*—a doçura; *nitya*—sempre; *nava nava*—cada vez mais nova; *haya*—é; *sva-sva-prema-anurūpa*—conforme o próprio amor de cada um; *bhakte*—o devoto; *āsvādaya*—saboreia.
+
+**"Minha doçura é sempre cada vez mais nova. Os devotos a saboreiam conforme o amor respectivo de cada um.**

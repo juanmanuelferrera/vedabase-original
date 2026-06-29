@@ -1,0 +1,8 @@
+### CC Adi 4.126
+
+> nija-premāsvāde mora haya ye āhlāda
+> tāhā ha'te koṭi-guṇa rādhā-premāsvāda
+
+*nija*—propio; *prema*—amor; *āsvāde*—al saborear; *mora*—Mío; *haya*—hay; *ye*—cualquier; *āhlāda*—placer; *tāhā ha'te*—de eso; *koṭi-guṇa*—diez millones de veces mayor; *rādhā*—de Śrīmatī Rādhārāṇī; *prema-āsvāda*—el saboreo del amor.
+
+**«Cualquier placer que Yo obtengo al saborear Mi amor por Śrīmatī Rādhārāṇī, Ella lo saborea diez millones de veces más que Yo mediante Su amor.**

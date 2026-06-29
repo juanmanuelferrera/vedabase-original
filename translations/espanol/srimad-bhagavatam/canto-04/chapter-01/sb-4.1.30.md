@@ -1,0 +1,15 @@
+### SB 4.1.30
+
+> devā ūcuḥ
+> yathā kṛtas te saṅkalpo
+> bhāvyaṁ tenaiva nānyathā
+> sat-saṅkalpasya te brahman
+> yad vai dhyāyati te vayam
+
+*devāḥ ūcuḥ*—los semidioses contestaron; *yathā*—como; *kṛtaḥ*—hecho; *te*—por ti; *saṅkalpaḥ*—determinación; *bhāvyam*—para que se haga; *tena eva*—por eso; *na anyathā*—de ninguna otra forma; *sat-saṅkalpasya*—aquel que nunca pierde su determinación; *te*—de ti; *brahman*—¡oh, querido *brāhmaṇa*!; *yat*—lo que; *vai*—ciertamente; *dhyāyati*—meditando; *te*—todos ellos; *vayam*—somos.
+
+**Las tres deidades le dijeron a Atri Muni: Querido brāhmaṇa, eres perfecto en tu determinación, de modo que, tal como has decidido, así sucederá; no sucederá de otro modo. Todos nosotros somos la misma persona en quien meditabas, y, por lo tanto, todos hemos venido a ti.**
+
+Atri Muni pensó, sin especificar, en la Personalidad de Dios, el Señor del universo, aunque no tenía una idea clara del Señor del universo ni de Su forma específica. Mahā-Viṣṇu, de cuya respiración emanan millones de universos y en quien de nuevo se recogen, puede aceptarse como el Señor del universo. Garbhodakaśāyī Viṣṇu, de cuyo abdomen brotó la flor de loto que es el lugar de nacimiento de Brahmā, también puede considerarse el Señor del universo. De manera similar, Kṣīrodakaśāyī Viṣṇu, quien es la Superalma de todas las entidades vivientes, también puede considerarse el Señor del universo. Luego, bajo la orden de Kṣīrodakaśāyī Viṣṇu, la forma de Viṣṇu dentro de este universo, el Señor Brahmā y el Señor Śiva también pueden aceptarse como los señores del universo. Viṣṇu es el Señor del universo porque es su mantenedor.
+
+De manera similar, Brahmā crea los diferentes sistemas planetarios y la población, así que él también puede considerarse el Señor del universo. O el Señor Śiva, quien en última instancia es el destructor del universo, también puede considerarse su Señor. Por lo tanto, puesto que Atri Muni no mencionó específicamente a quién quería, los tres —Brahmā, Viṣṇu y el Señor Śiva— se presentaron ante él. Dijeron: «Puesto que pensabas en tener un hijo exactamente como la Suprema Personalidad de Dios, el Señor del universo, tu determinación se cumplirá.» En otras palabras, la determinación de uno se cumple según la fuerza de la devoción de uno. Como se afirma en el Bhagavad-gītā (9.25): yānti deva-vratā devān pitḷn yānti pitṛ-vratāḥ. Si uno está apegado a un semidiós en particular, uno es promovido a la morada de ese semidiós; si uno está apegado a los pitṛs, o antepasados, uno es promovido a su planeta; y, de manera similar, si uno está apegado a la Suprema Personalidad de Dios, Kṛṣṇa, es promovido a la morada del Señor Kṛṣṇa. Atri Muni en verdad no tenía una concepción clara del Señor del universo; por lo tanto, las tres deidades regentes, que son en verdad los señores del universo en los tres departamentos de las modalidades de la naturaleza, se presentaron todas ante él. Ahora, según la fuerza de su determinación de tener un hijo, su deseo se cumpliría por la gracia del Señor.

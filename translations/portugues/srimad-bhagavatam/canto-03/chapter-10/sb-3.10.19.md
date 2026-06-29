@@ -1,0 +1,13 @@
+### SB 3.10.19
+
+*saptamo mukhya*-sargas tu
+
+*ṣaḍ*-vidhas tasthuṣāṁ ca yaḥ
+
+*vanaspaty*-oṣadhi-latā-
+
+tvaksārā vīrudho drumāḥ
+
+*saptamaḥ*—o sétimo; *mukhya*—principal; *sargaḥ*—criação; *tu*—de fato; *ṣaṭ-vidhaḥ*—seis tipos de; *tasthuṣām*—daqueles que não se movem; *ca*—também; *yaḥ*—aqueles; *vanaspati*—árvores frutíferas sem flores; *oṣadhi*—árvores e plantas que existem até o fruto amadurecer; *latā*—trepadeiras; *tvaksārāḥ*—plantas de caule oco; *vīrudhaḥ*—trepadeiras sem suporte; *drumāḥ*—árvores com flores e frutos.
+
+**A sétima criação é a das entidades imóveis, que são de seis tipos: as árvores frutíferas sem flores, as árvores e plantas que existem até o fruto amadurecer, as trepadeiras, as plantas de caule oco, as trepadeiras sem suporte e as árvores com flores e frutos.**

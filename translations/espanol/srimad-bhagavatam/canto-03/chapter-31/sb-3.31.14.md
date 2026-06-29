@@ -1,0 +1,16 @@
+### SB 3.31.14
+
+> yaḥ pañca-bhūta-racite rahitaḥ śarīre
+> cchanno 'yathendriya-guṇārtha-cid-ātmako 'ham
+> tenāvikuṇṭha-mahimānam ṛṣiṁ tam enaṁ
+> vande paraṁ prakṛti-pūruṣayoḥ pumāṁsam
+
+*yaḥ*—quien; *pañca-bhūta*—cinco elementos densos; *racite*—hecho de; *rahitaḥ*—separada; *śarīre*—en el cuerpo material; *channaḥ*—cubierta; *ayathā*—de forma inadecuada; *indriya*—sentidos; *guṇa*—cualidades; *artha*—objetos de los sentidos; *cit*—ego; *ātmakaḥ*—que consta de; *aham*—yo; *tena*—por un cuerpo material; *avikuṇṭha-mahimānam*—cuyas glorias no pierden brillo; *ṛṣim*—omnisciente; *tam*—a ese; *enam*—a Él; *vande*—yo ofrezco reverencias; *param*—trascendental; *prakṛti*—a la naturaleza material; *pūruṣayoḥ*—a las entidades vivientes; *pumāṁsam*—a la Suprema Personalidad de Dios.
+
+**Este cuerpo material, hecho de cinco elementos, me mantiene separada del Señor Supremo; por ello, aunque soy espiritual en esencia, no empleo mis sentidos y cualidades del modo correcto. Porque es trascendental a la naturaleza material y a las entidades vivientes, porque no tiene un cuerpo material como el mío, y por la gloria permanente de Sus cualidades espirituales, yo Le ofrezco mis reverencias a la Suprema Personalidad de Dios.**
+
+La diferencia entre la entidad viviente y la Suprema Personalidad de Dios es que la entidad viviente tiene la propensión a caer bajo el dominio de la naturaleza material, mientras que el Dios Supremo siempre es trascendental a la naturaleza material y a las entidades vivientes. Tan pronto como la entidad viviente entra en contacto con la naturaleza material, sus sentidos y cualidades se contaminan, o en otras palabras, adquieren designaciones. No es posible que el Señor Supremo adquiera un cuerpo de cualidades o sentidos materiales, pues Él está por encima de la influencia de la naturaleza material, y la oscuridad de la ignorancia no puede cubrirle como a las entidades vivientes. Como posee conocimiento completo, nunca Se supedita a la influencia de la naturaleza material. La naturaleza material siempre está bajo Su control; por ello, no es posible que la naturaleza material pueda controlar a la Suprema Personalidad de Dios.
+
+La identidad de la entidad viviente es muy diminuta; de ahí su propensión a caer bajo el dominio de la naturaleza material; pero cuando se libera del cuerpo material, que es falso, alcanza la misma naturaleza espiritual que el Señor Supremo. En ese momento no hay ninguna diferencia cualitativa entre ella y el Señor Supremo; pero cuantitativamente no es tan poderosa como para no caer nunca bajo la influencia de la naturaleza material; en consecuencia, cuantitativamente es diferente del Señor.
+
+El proceso del servicio devocional consiste en purificarse de la contaminación de la naturaleza material y situarse en el plano espiritual, donde somos cualitativamente uno con la Suprema Personalidad de Dios. En los *Vedas* se dice que la entidad viviente siempre es libre. *Asaṅgo hy ayaṁ puruṣaḥ.* La entidad viviente está liberada. Su contaminación material es temporal, y ella, en realidad, está liberada. Esa liberación la obtiene volviéndose consciente de Kṛṣṇa, y eso comienza a ocurrir en el momento de la entrega. Por eso, aquí se dice: «Ofrezco mis reverencias respetuosas a la Persona Suprema».

@@ -1,0 +1,14 @@
+### Bg 9.5
+
+> na ca mat-sthāni bhūtāni
+> paśya me yogam aiśvaram
+> bhūta-bhṛn na ca bhūta-stho
+> mamātmā bhūta-bhāvanaḥ
+
+*na*—nunca; *ca*—también; *mat-sthāni*—situado en Mí; *bhūtāni*—toda la creación; *paśya*—tan solo ve; *me*—Mi; *yogam aiśvaram*—poder místico inconcebible; *bhūta-bhṛt*—el sustentador de todas las entidades vivientes; *na*—nunca; *ca*—también; *bhūta-sthaḥ*—en la manifestación cósmica; *mama*—Mi; *ātmā*—Yo; *bhūta-bhāvanaḥ*—es la fuente de todas las manifestaciones.
+
+**Y aun así, todo lo creado no descansa en Mí. ¡He aquí Mi opulencia mística! Aunque Yo soy quien mantiene a todas las entidades vivientes y aunque estoy en todas partes, aun así Mi Yo es la fuente misma de la creación.**
+
+El Señor dice que todo reposa en Él. Eso no debe malinterpretarse. El Señor no está involucrado directamente en el mantenimiento y sustentación de esta manifestación material. A veces vemos una ilustración de Atlas sosteniendo el globo sobre sus hombros; parece estar muy cansado de sostener este gran planeta terráqueo. Dicha imagen no debe considerarse en relación a la forma como Kṛṣṇa sostiene este universo creado. Él dice que aunque todo reposa en Él, sin embargo Él esta aparte. Los sistemas planetarios flotan en el espacio y este espacio es la energía del Señor Supremo. Pero Él es diferente del espacio. Él está situado de manera diferente. Por lo tanto, el Señor dice: «Aunque ellos están situados en Mi energía inconcebible, sin embargo, Yo, como la Suprema Personalidad de Dios, estoy aparte de ellos». Ésta es la opulencia inconcebible del Señor. En el diccionario Védico, se dice: «El Señor Supremo realiza pasatiempos inconcebiblemente maravillosos, exhibiendo Su energía. Su persona está llena de diferentes energías potentes y Su determinación es en sí misma un hecho real. Así es como se debe entender a la Suprema Personalidad de Dios». Nosotros podemos pensar en hacer algo, pero existen muchos impedimentos y a veces no es posible hacer lo que nos gusta. Pero cuando Kṛṣṇa quiere hacer algo, simplemente por Su
+
+voluntad todas las cosas se llevan a cabo tan perfectamente, que uno no puede ni imaginar cómo suceden. El Señor explica este hecho: aunque Él es el que mantiene y sustenta toda la manifestación material, no toca esta manifestación material. Simplemente mediante Su voluntad Suprema todo es creado, todo es sustentado, todo es mantenido y todo es aniquilado. No hay diferencia entre Su mente y Él Mismo (así como si hay diferencia entre nosotros y nuestra mente material actual) porque Él es espíritu absoluto. El Señor está simultáneamente presente en todas las cosas; aun así, el hombre ordinario no puede entender como Él está también presente personalmente. Él es diferente de esta manifestación material, y aun así, todo reposa en Él. Esto se explica aquí como yogam aiśvaram, el poder místico de la Suprema Personalidad de Dios.

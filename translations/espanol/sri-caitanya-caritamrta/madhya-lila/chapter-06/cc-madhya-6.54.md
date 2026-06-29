@@ -1,0 +1,8 @@
+### CC Madhya 6.54
+
+> 'miśra purandara' tāṅra mānya, hena jāni
+> pitāra sambandhe doṅhāke pūjya kari' māni
+
+*miśra purandara*—Jagannātha Miśra Purandara; *tāṅra*—su; *mānya*—respetable; *hena*—así; *jāni*—sé; *pitāra sambandhe*—en relación con mi padre; *doṅhāke*—a ambos (Nīlāmbara Cakravartī y Jagannātha Miśra); *pūjya*—respetables; *kari'*—pensando; *māni*—acepto.
+
+**»Jagannātha Miśra Purandara era respetado por mi padre. Así pues, por la relación que tenían con mi padre, respeto tanto a Jagannātha Miśra como a Nīlāmbara Cakravartī».**

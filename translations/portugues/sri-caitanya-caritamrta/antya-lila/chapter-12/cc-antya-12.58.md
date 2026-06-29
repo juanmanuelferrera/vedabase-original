@@ -1,0 +1,9 @@
+### CC Antya 12.58
+
+'parameśvara kuśala hao, bhāla haila, āilā'
+
+'mukundāra mātā āsiyāche, seha prabhure kahilā
+
+*parameśvara*—ó Parameśvara; *kuśala hao*—sê abençoado; *bhāla haila*—é muito bom; *āilā*—vieste; *mukundāra mātā*—a mãe de Mukunda; *āsiyāche*—veio; *seha*—ele; *prabhure kahilā*—informou ao Senhor.
+
+**Śrī Caitanya Mahāprabhu disse: "Parameśvara, que sejas abençoado. É muito bom que tenhas vindo aqui." Parameśvara então informou ao Senhor: "Mukundāra Mātā também veio."**

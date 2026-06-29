@@ -1,0 +1,15 @@
+### SB 4.8.22
+
+*tam eva vatsāśraya bhṛtya*-vatsalaṁ
+
+*mumukṣubhir mṛgya*-padābja-paddhatim
+
+*ananya*-bhāve nija-dharma-bhāvite
+
+manasy avasthāpya bhajasva pūruṣam
+
+*tam*—a Ele; *eva*—também; *vatsa*—meu querido menino; *āśraya*—toma refúgio; *bhṛtya-vatsalam*—da Suprema Personalidade de Deus, que é muito bondoso para com Seus devotos; *mumukṣubhiḥ*—também por pessoas que desejam a liberação; *mṛgya*—a ser buscado; *pada-abja*—pés de lótus; *paddhatim*—sistema; *ananya-bhāve*—numa situação inabalável; *nija-dharma-bhāvite*—situado em sua posição constitucional original; *manasi*—na mente; *avasthāpya*—colocando; *bhajasva*—continua executando serviço devocional; *pūruṣam*—a Pessoa Suprema.
+
+**Meu querido menino, tu também deves abrigar-te na Suprema Personalidade de Deus, que é muito bondoso para com Seus devotos. As pessoas que buscam a liberação do ciclo de nascimento e morte sempre se abrigam nos pés de lótus do Senhor em serviço devocional. Purificando-te ao executar tua ocupação destinada, simplesmente situa a Suprema Personalidade de Deus em teu coração e, sem te desviares por um momento, ocupa-te sempre em Seu serviço.**
+
+O sistema de bhakti-yoga descrito pela rainha Sunīti a seu filho é a maneira padrão de compreensão de Deus. Todos podem prosseguir em seus deveres ocupacionais constitucionais e, ao mesmo tempo, manter a Suprema Personalidade de Deus dentro do coração. Isso também foi instruído pelo próprio Senhor a Arjuna no Bhagavad-gītā: "Continua lutando, mas mantém-Me dentro de tua mente." Esse deve ser o lema de toda pessoa honesta que busca a perfeição em consciência de Kṛṣṇa. A esse respeito, a rainha Sunīti aconselhou seu filho de que a Suprema Personalidade de Deus é conhecido como bhṛtya-vatsala, o que indica que Ele é muito bondoso para com Seus devotos. Ela disse: "Vieste a mim chorando, tendo sido insultado por tua madrasta, mas eu sou incapaz de fazer qualquer bem por ti. Mas Kṛṣṇa é tão bondoso para com Seus devotos que, se fores a Ele, então a bondade combinada de milhões de mães como eu seria superada por Seus afetuosos e ternos tratos. Quando todos os demais fracassam em mitigar a aflição da pessoa, Kṛṣṇa é capaz de ajudar o devoto." A rainha Sunīti também ressaltou que o processo de aproximar-se da Suprema Personalidade de Deus não é fácil, mas é buscado por grandes sábios que são muito avançados em compreensão espiritual. A rainha Sunīti também indicou, por sua instrução, que Dhruva Mahārāja era apenas uma criança pequena, de cinco anos de idade, e não lhe era possível purificar-se pela via do karma-kāṇḍa. Mas, pelo processo de bhakti-yoga, até mesmo uma criança com menos de cinco anos de idade, ou qualquer pessoa de qualquer idade, pode purificar-se. Esta é a importância especial do bhakti-yoga. Por isso, ela o aconselhou a não aceitar a adoração aos semideuses nem nenhum outro processo, mas simplesmente a recorrer à Suprema Personalidade de Deus, e o resultado seria toda a perfeição. Tão logo a pessoa coloca a Suprema Personalidade de Deus dentro de seu coração, tudo se torna fácil e bem-sucedido.

@@ -1,0 +1,29 @@
+### SB 3.33.6
+
+*yan*-nāmadheya-śravaṇānukīrtanād
+
+*yat*-prahvaṇād yat-smaraṇād api kvacit
+
+śvādo 'pi sadyaḥ savanāya kalpate
+
+kutaḥ punas te bhagavan nu darśanāt
+
+**SINÔNIMOS**
+
+*yat*—de quem (a Suprema Personalidade de Deus); *nāmadheya*—o nome; *śravaṇa*—ouvindo; *anukīrtanāt*—pelo canto; *yat*—a quem; *prahvaṇāt*—por oferecer reverências; *yat*—a quem; *smaraṇāt*—por lembrar; *api*—mesmo; *kvacit*—em qualquer momento; *śva-adaḥ*—um comedor de cães; *api*—mesmo; *sadyaḥ*—imediatamente; *savanāya*—para realizar sacrifícios Védicos; *kalpate*—torna-se elegível; *kutaḥ*—o que dizer; *punaḥ*—novamente; *te*—a Ti; *bhagavan*—ó Suprema Personalidade de Deus; *nu*—então; *darśanāt*—por ver face a face.
+
+**TRADUÇÃO**
+
+Para não mencionar o avanço espiritual das pessoas que veem a Suprema Pessoa face a face, até mesmo uma pessoa nascida numa família de comedores de cães torna-se imediatamente elegível para realizar sacrifícios Védicos se uma vez pronunciar o santo nome da Suprema Personalidade de Deus, ou cantar a Seu respeito, ouvir acerca de Seus passatempos, oferecer-Lhe reverências ou simplesmente lembrá-Lo.
+
+**SIGNIFICADO**
+
+Aqui é muito enfatizada a potência espiritual de cantar, ouvir ou lembrar o santo nome do Senhor Supremo. Rūpa Gosvāmī examinou a sequência das atividades pecaminosas da alma condicionada e estabeleceu, no *Bhakti-rasāmṛta-sindhu*, que aqueles que se ocupam no serviço devocional ficam livres das reações de todas as atividades pecaminosas. Isso também é confirmado no *Bhagavad-gītā*. O Senhor diz que Se encarrega de quem se rende a Ele, tornando-o imune a todas as reações de atividades pecaminosas. Se pelo simples canto do santo nome da Suprema Personalidade de Deus a pessoa se limpa tão rapidamente de todas as reações das atividades pecaminosas, o que dizer das pessoas que O veem face a face?
+
+Outra consideração aqui é que as pessoas purificadas pelo processo de cantar e ouvir tornam-se imediatamente elegíveis para realizar sacrifícios Védicos. Em geral, somente uma pessoa nascida em família de *brāhmaṇas*, que passou pelos dez tipos de processos purificatórios e que é versada na literatura Védica, tem permissão para realizar os sacrifícios Védicos. Mas aqui a palavra *sadyaḥ*, "imediatamente", é utilizada, e Śrīdhara Svāmī também observa que a pessoa pode tornar-se imediatamente elegível para realizar sacrifícios Védicos. Uma pessoa nascida em família de casta inferior, acostumada a comer cães, está assim posicionada devido a suas atividades pecaminosas passadas, mas ao cantar ou ouvir uma vez com pureza, ou de forma isenta de ofensas, ela é imediatamente liberada da reação pecaminosa. Não apenas se liberta da reação pecaminosa, mas alcança imediatamente o resultado de todos os processos purificatórios. Nascer em família de *brāhmaṇa* certamente se deve a atividades piedosas na vida anterior. Mas mesmo uma criança nascida em família de *brāhmaṇa* depende, para sua reforma posterior, da iniciação na aceitação do fio sagrado e de muitos outros processos reformatórios. Já a pessoa que canta o santo nome do Senhor, mesmo que nascida em família de *caṇḍālas*, comedores de cães, não precisa de reforma. Simplesmente cantando Hare Kṛṣṇa, purifica-se imediatamente e torna-se tão boa quanto o mais erudito dos *brāhmaṇas*.
+
+Śrīdhara Svāmī observa especialmente neste contexto: *anena pūjyatvaṁ lakṣyate*. Alguns *brāhmaṇas* de casta afirmam que ao cantar Hare Kṛṣṇa começa a purificação. É claro que isso depende do processo individual de canto, mas esta observação de Śrīdhara Svāmī é completamente aplicável quando a pessoa canta o santo nome do Senhor sem ofensa, pois imediatamente se torna mais do que um *brāhmaṇa*. Como Śrīdhara Svāmī diz, *pūjyatvam*: ela imediatamente se torna tão respeitável quanto o mais erudito dos *brāhmaṇas* e pode ser autorizada a realizar sacrifícios Védicos. Se simplesmente ao cantar o santo nome do Senhor a pessoa se santifica instantaneamente, o que dizer das pessoas que veem o Senhor Supremo face a face e que compreendem o advento do Senhor, como Devahūti compreende Kapiladeva?
+
+Em geral, a iniciação depende do mestre espiritual genuíno, que orienta o discípulo. Se ele percebe que o discípulo se tornou competente e purificado pelo processo de canto, oferece-lhe o fio sagrado para que seja reconhecido como cem por cento igual a um *brāhmaṇa*. Isso também é confirmado no *Hari-bhakti-vilāsa* por Śrī Sanātana Gosvāmī: "Assim como um metal inferior, como o bronze, pode ser convertido em ouro por um processo químico, qualquer pessoa pode de modo semelhante ser transformada em *brāhmaṇa* pelo *dīkṣā-vidhāna*, o processo de iniciação."
+
+Às vezes se afirma que pelo processo de canto a pessoa começa a se purificar e pode nascer em sua próxima vida em família de *brāhmaṇas* e então ser reformada. Mas no momento presente, mesmo aqueles que nascem nas melhores famílias de *brāhmaṇas* não são reformados, nem há certeza de que de fato nasceram de pais *brāhmaṇas*. Antigamente o sistema reformatório do *garbhādhāna* era prevalente, mas no momento presente não há tal *garbhādhāna*, ou cerimônia de fecundação. Nessas circunstâncias, ninguém sabe se um homem nasceu de fato de pai *brāhmaṇa*. Se a pessoa adquiriu a qualificação de *brāhmaṇa* depende do julgamento do mestre espiritual genuíno. Ele confere ao discípulo a posição de *brāhmaṇa* por seu próprio julgamento. Quando alguém é aceito como *brāhmaṇa* na cerimônia do fio sagrado conforme o sistema *pāñcarātrika*, então é *dvija*, nascido duas vezes. Isso é confirmado por Sanātana Gosvāmī: *dvijatvaṁ jāyate*. Pelo processo de iniciação pelo mestre espiritual, a pessoa é aceita como *brāhmaṇa* em seu estado purificado de canto do santo nome do Senhor. Ela então progride para tornar-se um *vaiṣṇava* qualificado, o que significa que a qualificação bramânica já foi adquirida.

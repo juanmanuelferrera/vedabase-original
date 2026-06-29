@@ -1,0 +1,11 @@
+### SB 3.2.16
+
+māṁ khedayaty etad ajasya janma-viḍambanaṁ yad vasudeva-gehe
+
+vraje ca vāso 'ri-bhayād iva svayaṁ purād vyavātsīd yad-ananta-vīryaḥ
+
+*mām*—a mim; *khedayati*—dá-me distress; *etat*—isto; *ajasya*—do não nascido; *janma*—nascimento; *viḍambanam*—perturbador; *yat*—que; *vasudeva-gehe*—na casa de Vasudeva; *vraje*—em Vṛndāvana; *ca*—também; *vāsaḥ*—habitação; *ari*—inimigo; *bhayāt*—por medo; *iva*—como se; *svayam*—Ele mesmo; *purāt*—de Mathurā Purī; *vyavātsīt*—fugiu; *yat*—quem; *ananta-vīryaḥ*—unlimitedly poderoso.
+
+**Quando penso no Senhor Kṛṣṇa – como Ele nasceu na prisão da casa de Vasudeva embora seja não nascido, como Ele foi embora da proteção de Seu pai para Vraja e lá viveu incognito por medo do inimigo, e como, embora unlimitedly poderoso, Ele fugiu de Mathurā por medo – todos estes incidentes perturbadores me dão distress.**
+
+Como o Senhor Śrī Kṛṣṇa é a pessoa original de quem tudo e todos emanaram – *ahaṁ sarvasya prabhavaḥ* (Bg. 10.8), *janmādy asya yataḥ* [SB 1.1.1] (Vedānta-sūtra 1.1.2) – nada pode ser igual a ou maior do que Ele. O Senhor é supremamente perfeito, e sempre que Ele encena Seus pasatiempos transcendentais como filho, rival ou objeto de inimizade, Ele toca a parte tão perfeitamente que até mesmo devotos puros como Uddhava são perturbados. Por exemplo, Uddhava sabia perfeitamente bem que o Senhor Śrī Kṛṣṇa é eternamente existente e não consegue morrer nem desaparecer para bem, mas ele se lamentava do Senhor Kṛṣṇa. Todos estes eventos são arranjos perfeitos para dar perfeição às Suas glórias supremas. É pelo bem do desfrutamento. Quando um pai brinca com seu filho pequeno e o pai deita no chão como se fosse derrotado pelo filho, é apenas para dar ao pequeno filho prazer, e nada mais. Como o Senhor é todo-poderoso, é possível para Ele ajustar opostos tais como nascimento e não nascimento, poder e derrota, medo e destemor. Um devoto puro sabe muito bem como é possível para o Senhor ajustar coisas opostas, mas ele se lamenta pelos não devotos que, não conhecendo as glórias supremas do Senhor, pensam Nele como imaginário simplesmente porque há tantos declarações aparentemente contraditórias nas escrituras. Factualmente não há nada contraditório; tudo é possível quando compreendemos o Senhor como o Senhor e não como um de nós, com toda nossa imperfeição.

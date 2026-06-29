@@ -1,0 +1,7 @@
+### 6
+
+**Ao ouvirem o som das chuvas torrenciais, as rãs saem das cavernas das montanhas e começam a cantar, como os brahmacārīs que cantam os hinos Védicos por ordem do mestre espiritual.**
+
+Nesta era de uma civilização ateísta, os sábios das seitas religiosas reconhecidas mundialmente que creem em Deus devem sair de seus locais retirados e pregar a ciência de Deus, a Vontade Suprema, ao povo em geral. Os hindus, os muçulmanos, os cristãos e os membros das demais seitas que têm fé convicta na autoridade de Deus não devem agora ficar ociosos e observar silenciosamente o rápido crescimento de uma civilização ateísta. Existe a vontade suprema de Deus, e nenhuma nação ou sociedade pode viver em paz e prosperidade sem aceitar esta verdade vital.
+
+A advertência já está dada, e os líderes responsáveis das seitas religiosas devem reunir-se e formar uma plataforma comum de uma liga de devotos do Senhor. Não há necessidade de que as almas autorrealizadas vivam em um local retirado. As almas perfeitamente autorrealizadas, ocupadas no serviço ao Senhor, não temem a *māyā,* assim como os cidadãos cumpridores da lei de um Estado jamais temem a polícia. Esses devotos destemidos de Deus sempre falam cientificamente sobre a existência de Deus, mesmo sob o risco de morte. Esses devotos de Deus sentem compaixão pela massa do povo, que se esqueceu por completo do Senhor Supremo e que se ocupa na falsa busca da felicidade que termina nos prazeres dos sentidos desfrutados pelos porcos e cães.

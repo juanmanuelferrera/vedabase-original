@@ -1,0 +1,13 @@
+### SB 7.8.43
+
+> śrī-ṛṣaya ūcuḥ
+> tvaṁ nas tapaḥ paramam āttha yad ātma-tejo
+> yenedam ādi-puruṣātma-gataṁ sasarktha
+> tad vipraluptam amunādya śaraṇya-pāla
+> rakṣā-gṛhīta-vapuṣā punar anvamaṁsthāḥ
+
+*śrī-ṛṣayaḥ ūcuḥ*—los grandes sabios dijeron; *tvam*—Tú; *naḥ*—nuestra; *tapaḥ*—austeridad; *paramam*—suprema; *āttha*—instruiste; *yat*—que; *ātma-tejaḥ*—Tu poder espiritual; *yena*—por el cual; *idam*—este (mundo material); *ādi-puruṣa*—¡oh, Personalidad de Dios original y suprema!; *ātma-gatam*—fundido en Tu propio ser; *sasarktha*—(Tú) creaste; *tat*—ese proceso de austeridad y penitencias; *vipraluptam*—arrebatado; *amunā*—por ese demonio (Hiraṇyakaśipu); *adya*—ahora; *śaraṇya-pāla*—¡oh, sustentador supremo de los necesitados de refugio!; *rakṣā-gṛhīta-vapuṣā*—por Tu cuerpo, que has adoptado para brindar protección; *punaḥ*—de nuevo; *anvamaṁsthāḥ*—Tú has aprobado.
+
+**Todas las personas santas allí presentes ofrecieron sus oraciones de la siguiente manera: ¡Oh, Señor!, ¡oh, sustentador supremo de quienes se refugian en Tus pies de loto!, ¡oh, Personalidad de Dios original!, los procesos de austeridad y penitencias, en los que Tú nos educaste en el pasado, son el poder espiritual de Tu propio ser. Tú, por medio de la austeridad, creas el mundo material, que yace dentro de Ti en estado latente. Las actividades de este demonio habían acabado casi por completo con esa austeridad, pero ahora, gracias a Tú aparición personal en la forma de Nṛsiṁhadeva, destinada a brindarnos protección, y gracias a que has matado a ese demonio, has vuelto a aprobar el sistema de austeridades.**
+
+Las entidades vivientes que vagan en el ámbito de las 8 400 000 especies de vida reciben la oportunidad de alcanzar la autorrealización en la forma humana, y, de modo gradual, en otras formas elevadas, como semidioses, *kinnaras* y *cāraṇas*, según se explicará en próximos versos. Los niveles de vida más elevados, que comienzan con la forma humana, tienen como principal deber la práctica de *tapasya* o austeridad. Ese es el consejo de Ṛṣabhadeva a Sus hijos: *tapo divyaṁ putrakā yena sattvaṁ śuddhyet*. La austeridad (*tapasya*) es absolutamente necesaria para rectificar nuestra existencia material. La gente, sin embargo, cuando está sometida al control de un demonio o de un gobierno demoníaco, olvida el proceso de*tapasya* y, poco a poco, se va volviendo demoníaca también. Todas las personas santas, que en general se dedicaban a la práctica de austeridades, se sintieron aliviadas cuando el Señor, en Su forma de Nṛsiṁhadeva, mató a Hiraṇyakaśipu. Entonces comprendieron que el Señor, al matar a Hiraṇyakaśipu, había reafirmado la instrucción original básica de la vida humana, es decir, que su finalidad es la *tapasya* dirigida a la autorrealización.

@@ -1,0 +1,8 @@
+### CC Madhya 14.67
+
+> āra bhakta-gaṇa cāturmāsye yata dina
+> eka eka dina kari' karila baṇṭana
+
+*āra bhakta-gaṇa*—los demás devotos; *cāturmāsye*—en los cuatro meses de la estación de lluvias; *yata dina*—todos los días; *eka eka dina kari'*—un día cada uno; *karila baṇṭana*—se repartieron.
+
+**Durante los cuatro meses de la estación de lluvias, los demás devotos extendieron invitaciones al Señor de un día cada uno. De esta manera se repartieron las invitaciones.**

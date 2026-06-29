@@ -1,0 +1,12 @@
+### SB 4.30.13
+
+> kaṇḍoḥ pramlocayā labdhā
+> kanyā kamala-locanā
+> tāṁ cāpaviddhāṁ jagṛhur
+> bhūruhā nṛpa-nandanāḥ
+
+*kaṇḍoḥ*—del sabio Kaṇḍu; *pramlocayā*—por una cortesana celestial llamada Pramlocā; *labdhā*—obtenida; *kanyā*—hija; *kamala-locanā*—de ojos de loto; *tām*—su; *ca*—también; *apaviddhām*—abandonada; *jagṛhuḥ*—aceptada; *bhūruhāḥ*—los árboles; *nṛpa-nandanāḥ*—¡oh, hijos del rey Prācīnabarhiṣat!.
+
+**¡Oh, hijos del rey Prācīnabarhiṣat!, la cortesana celestial llamada Pramlocā dejó a la hija del sabio Kaṇḍu bajo el cuidado de los árboles del bosque. Luego, regresó a los planetas celestiales. Esa hija de ojos como el loto nació de la unión de la apsarā Pramlocā con el sabio Kaṇḍu.**
+
+Siempre que un gran sabio se somete a severas austeridades en busca de poder material, el rey del cielo, Indra, se vuelve muy envidioso. Todos los semidioses ocupan puestos de responsabilidad para la administración de los asuntos universales y están muy bien cualificados con actividades piadosas. Aunque son entidades vivientes corrientes, no obstante son capaces de alcanzar puestos de responsabilidad, como el Señor Brahmā, Indra, Candra y Varuṇa. Tal como es la naturaleza de este mundo material, el rey del cielo, Indra, se inquieta mucho cuando un gran sabio se somete a severas austeridades. Todo el mundo material está tan lleno de envidia que cada cual teme a sus vecinos. Todo hombre de negocios teme a sus socios, porque este mundo material es el campo de actividades de toda clase de personas envidiosas que han venido aquí a competir con la opulencia de la Suprema Personalidad de Dios. Así, Indra sentía mucho temor de las severas austeridades que realizaba el gran sabio Kaṇḍu, y envió a Pramlocā para quebrantar sus votos y austeridades. Un incidente similar tuvo lugar en el caso de Viśvāmitra. Por otros incidentes que aparecen en los śāstras, parece ser que Indra siempre ha sido envidioso. Cuando el rey Pṛthu celebraba diversos sacrificios y superaba a Indra, este se volvió muy envidioso y perturbó el sacrificio del rey Pṛthu. Esto ya se ha tratado en capítulos anteriores. El rey Indra logró quebrantar el voto del gran sabio Kaṇḍu, quien quedó atraído por la belleza de la cortesana celestial Pramlocā y engendró una niña. Aquí se describe a esta niña como una criatura de ojos de loto y muy hermosa. Tras lograr así su misión, Pramlocā regresó a los planetas celestiales, dejando a la recién nacida al cuidado de los árboles. Afortunadamente, los árboles acogieron a la niña y accedieron a criarla.

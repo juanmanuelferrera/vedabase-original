@@ -1,0 +1,24 @@
+### SB 8.2.33
+
+> yaḥ kaścaneśo balino 'ntakoragāt
+> pracaṇḍa-vegād abhidhāvato bhṛśam
+> bhītaṁ prapannaṁ paripāti yad-bhayān
+> mṛtyuḥ pradhāvaty araṇaṁ tam īmahi
+
+*yaḥ*—aquel que (la Suprema Personalidad de Dios); *kaścana*—alguien; *īśaḥ*—el controlador supremo; *balinaḥ*—muy poderoso; *antaka-uragāt*—de la gran serpiente del tiempo, que trae consigo la muerte; *pracaṇḍa-vegāt*—de espantosa fuerza; *abhidhāvataḥ*—que persigue; *bhṛśam*—sin cesar (a cada hora, a cada minuto); *bhītam*—aquel que teme a la muerte; *prapannam*—que se ha entregado (a la Suprema Personalidad de Dios); *paripāti*—Él protege; *yat-bhayāt*—por miedo al Señor; *mṛtyuḥ*—la misma muerte; *pradhāvati*—sale huyendo; *araṇam*—el verdadero refugio de todos; *tam*—a Él; *īmahi*—Yo me entrego o me refugio.
+
+**En verdad, a la Suprema Personalidad de Dios no todos Le conocen, pero es muy poderoso e influyente. Así, pese a la espantosa fuerza de la serpiente del tiempo eterno, que persigue sin cesar a todos los seres dispuesta a tragárselos, el Señor brinda Su protección a la persona que, por miedo a esa serpiente, acude a refugiarse en Él; en verdad, la muerte misma tiene que salir huyendo por temor al Señor. Por esa razón, yo me entrego a Él, que es la autoridad suprema, que es grande y poderoso y es el verdadero refugio de todos.**
+
+Aquel que es inteligente comprende que hay una autoridad grande y suprema por encima de todo. Esa gran autoridad aparece en diversas encarnaciones para salvar a los inocentes de las perturbaciones. Como se confirma en el *Bhagavad-gītā, paritrāṇāya sādhūnāṁ vināśāya ca duṣkṛtām:* [[bg/4/8|[Bg. 4.8] ]] el Señor aparece en Sus diversas encarnaciones con dos propósitos: aniquilar a los *duṣkṛtīs,* los pecadores, y proteger a Sus devotos. El rey de los elefantes decidió entregarse a Él. Eso es inteligente. Uno debe conocer a esa gran Suprema Personalidad de Dios y entregarse a Él. El Señor viene personalmente a instruirnos sobre cómo ser felices, y solo los necios y los bribones no ven, mediante la inteligencia, a esta autoridad suprema, la Persona Suprema. En el *śruti-mantra* se dice:
+
+> bhīṣāsmād vātaḥ pavate
+> bhīṣodeti sūryaḥ
+> bhīṣāsmād agniś candraś ca
+> mṛtyur dhāvati pañcamaḥ
+> (*Taittirīya Upaniṣad* 2.8)
+
+Es por temor a la Suprema Personalidad de Dios que sopla el viento, que el sol distribuye calor y luz, y que la muerte persigue a todos. De modo que hay un controlador supremo, como se confirma en el *Bhagavad-gītā* [[bg/9/10|(Bg. 9.10)]]/ *mayādhyakṣeṇa prakṛtiḥ sūyate sacarācaram.* Esta manifestación material funciona tan bien gracias al controlador supremo. Cualquier persona inteligente puede comprender, por consiguiente, que existe un controlador supremo. Es más, el propio controlador supremo aparece como el Señor Kṛṣṇa, como el Señor Caitanya Mahāprabhu y como el Señor Rāmacandra para darnos instrucciones y mostrarnos con el ejemplo cómo entregarnos a la Suprema Personalidad de Dios. Aun así, aquellos que son *duṣkṛtīs,* los más bajos de los hombres, no se entregan (*na māṁ duṣkṛtino mūḍhāḥ prapadyante narādhamāḥ* [[bg/7/15|[Bg. 7.15] ]]).
+
+En el *Bhagavad-gītā,* el Señor dice claramente: *mṛtyuḥ sarva-haraś cāham:* [[bg/10/34|[Bg. 10.34] ]] «Yo soy la muerte que todo lo devora». De modo que *mṛtyu,* la muerte, es el representante que le quita todo a la entidad viviente que ha aceptado un cuerpo material. Nadie puede decir: «No le temo a la muerte». Esa es una proposición falsa. Todos temen a la muerte. Sin embargo, aquel que se refugia en la Suprema Personalidad de Dios puede salvarse de la muerte. Alguien podría argumentar: «¿Acaso el devoto no muere?». La respuesta es que el devoto ciertamente tiene que abandonar su cuerpo, pues el cuerpo es material. La diferencia, no obstante, es que, para aquel que se entrega por completo a Kṛṣṇa y que está protegido por Kṛṣṇa, el cuerpo actual es el último; no volverá a recibir un cuerpo material sujeto a la muerte. Esto se asegura en el *Bhagavad-gītā* [[bg/4/9|(Bg. 4.9)]]. *Tyaktvā dehaṁ punar janma naiti mām eti so'rjuna:* el devoto, tras abandonar su cuerpo, no acepta un cuerpo material, sino que regresa al hogar, de vuelta a Dios. Siempre estamos en peligro, pues en cualquier momento puede sobrevenir la muerte. No es que solo Gajendra, el rey de los elefantes, temiera a la muerte. Todos deben temer a la muerte, pues todos están atrapados por el cocodrilo del tiempo eterno y pueden morir en cualquier momento. Por consiguiente, lo mejor es refugiarse en Kṛṣṇa, la Suprema Personalidad de Dios, y salvarse de la lucha por la existencia en este mundo material, en el cual uno nace y muere repetidamente. Alcanzar esta comprensión es la meta última de la vida.
+
+Así terminan los significados de Bhaktivedanta correspondientes al Capítulo Segundo del Canto Octavo del *Śrīmad-Bhāgavatam,* titulado «La crisis del elefante Gajendra».

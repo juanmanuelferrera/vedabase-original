@@ -1,0 +1,15 @@
+### SB 3.7.11
+
+yathā jale candramasaḥ
+
+*kampādis tat*-kṛto guṇaḥ
+
+dṛśyate 'sann api draṣṭur
+
+ātmano 'nātmano guṇaḥ
+
+*yathā*—assim como; *jale*—na água; *candramasaḥ*—da lua; *kampa-ādiḥ*—tremulação, etc.; *tat-kṛtaḥ*—feita pela água; *guṇaḥ*—qualidade; *dṛśyate*—assim se vê; *asan api*—sem existência; *draṣṭuḥ*—do observador; *ātmanaḥ*—do eu; *anātmanaḥ*—do que não é o eu; *guṇaḥ*—qualidade.
+
+**Assim como a lua refletida na água parece ao observador tremer por estar associada à qualidade da água, assim o eu associado à matéria parece ser qualificado como matéria.**
+
+A Superalma Suprema, a Personalidade de Deus, é comparada à lua no céu, e as entidades vivas são comparadas ao reflexo da lua na água. A lua no céu está fixa e não parece tremer como a lua na água. Na verdade, assim como a lua original no céu, a lua refletida na água também não deveria tremer, mas por estar associada à água, o reflexo parece tremer, embora na realidade a lua esteja fixa. A água se move, mas a lua não se move. Da mesma forma, as entidades vivas parecem estar manchadas por qualidades materiais como ilusão, lamentação e misérias, embora na alma pura tais qualidades estejam completamente ausentes. A palavra *pratīyate*, que significa "aparentemente" e "não realmente" (como a experiência de ter a cabeça cortada em um sonho), é significativa aqui. O reflexo da lua na água são os raios separados da lua e não a lua real. As partes e parcelas separadas do Senhor enredadas na água da existência material têm a qualidade de tremulação, ao passo que o Senhor é como a lua real no céu, que não está de modo algum em contato com a água. A luz do sol e da lua refletida na matéria torna a matéria brilhante e digna de louvor. Os sintomas de vida são comparados à luz do sol e da lua iluminando manifestações materiais como árvores e montanhas. O reflexo do sol ou da lua é aceito como o sol ou a lua real por homens menos inteligentes, e a filosofia monística pura desenvolve-se dessas ideias. De fato, a luz do sol e da lua é efetivamente diferente do sol e da lua em si, embora estejam sempre conectados. A luz da lua espalhada pelo céu parece ser impessoal, mas o planeta lua, como é, é pessoal, e as entidades vivas no planeta lua também são pessoais. Nos raios da lua, diferentes entidades materiais parecem ser comparativamente mais ou menos importantes. A luz da lua no Taj Mahal parece ser mais bela do que a mesma luz no deserto. Embora a luz da lua seja a mesma em toda parte, por ser apreciada de modo diferente parece diferente. Da mesma forma, a luz do Senhor está igualmente distribuída em toda parte, mas por ser recebida de maneiras diferentes, parece ser diferente. Não se deve, portanto, aceitar o reflexo da lua na água como real e equivocar-se em toda a situação por meio da filosofia monística. A qualidade de tremulação da lua também é variável. Quando a água está parada, não há tremulação. Uma alma condicionada mais serena treme menos, mas devido à conexão material a qualidade de tremulação está mais ou menos presente em toda parte.

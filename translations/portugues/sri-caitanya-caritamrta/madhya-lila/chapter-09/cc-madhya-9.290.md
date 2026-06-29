@@ -1,0 +1,8 @@
+### CC Madhya 9.290
+
+eta bali' prabhuke uthāñā kaila āliṅgana
+galāgali kari' duṅhe karena krandana
+
+*eta bali'*—dizendo isto; *prabhuke*—o Senhor Śrī Caitanya Mahāprabhu; *uthāñā*—erguendo; *kaila*—fez; *āliṅgana*—abraço; *galāgali*—ombro a ombro; *kari'*—fazendo; *duṅhe*—ambos; *karena*—fazem; *krandana*—chorar.
+
+**Após dizer isso, Śrī Raṅga Purī ergueu Śrī Caitanya Mahāprabhu e O abraçou. Enquanto os dois se abraçavam, ombro a ombro, ambos começaram a chorar em êxtase.**

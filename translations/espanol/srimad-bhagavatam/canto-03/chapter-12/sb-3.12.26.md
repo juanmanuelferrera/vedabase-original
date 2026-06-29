@@ -1,0 +1,12 @@
+### SB 3.12.26
+
+> hṛdi kāmo bhruvaḥ krodho
+> lobhaś cādhara-dacchadāt
+> āsyād vāk sindhavo meḍhrān
+> nirṛtiḥ pāyor aghāśrayaḥ
+
+*hṛdi*—del corazón; *kāmaḥ*—la lujuria; *bhruvaḥ*—de las cejas; *krodhaḥ*—la ira; *lobhaḥ*—la codicia; *ca*—también; *adhara-dacchadāt*—de entre los labios; *āsyāt*—de la boca; *vāk*—el habla; *sindhavaḥ*—los mares; *meḍhrāt*—del pene; *nirṛtiḥ*—actividades bajas; *pāyoḥ*—del ano; *agha-āśrayaḥ*—el receptáculo de todos los vicios.
+
+**La lujuria y el deseo se manifestaron del corazón de Brahmā; la ira, de entre sus cejas; la codicia, de entre sus labios; el poder de hablar, de su boca; el océano, de su pene; y las actividades bajas y abominables, de su ano, la fuente de todos los pecados.**
+
+El alma condicionada está sometida a la influencia de la especulación mental. Por muy eminente que sea si medimos su educación y erudición mundanas, no puede estar libre de la influencia de las actividades síquicas. De modo que es muy difícil abandonar la lujuria y los deseos de actividades bajas hasta que se siguen las pautas del servicio devocional al Señor. Cuando la lujuria y los deseos bajos se frustran, de la mente se genera ira, que se expresa en el entrecejo. Se aconseja a los hombres comunes, por lo tanto, que concentren la mente enfocándola en el entrecejo, en tanto que los devotos del Señor ya son expertos en situar a la Suprema Personalidad de Dios en sus mentes. La teoría de llegar a no tener deseos es insostenible, porque no se puede hacer que la mente no tenga deseos. Cuando se recomienda no tener deseos, el sentido es que no se deben desear cosas destructivas para los valores espirituales. El devoto del Señor tiene siempre al Señor en su mente, y de esta manera no necesita liberarse de los deseos, porque todos sus deseos están en relación con el servicio al Señor. El poder de hablar se llama Sarasvatī, la diosa de la erudición, y el lugar de nacimiento de la diosa de la erudición es la boca de Brahmā. Aun en el caso de un hombre dotado con el favor de la diosa de la erudición, es completamente posible que su corazón esté lleno de lujuria y deseo material, y que sus cejas muestren los signos de la ira. Se puede ser muy erudito para la apreciación mundana, pero esto no quiere decir que se esté libre de todas las actividades bajas de la lujuria y la ira. Solo se puede esperar que tenga buenas cualidades el devoto puro, que está siempre ocupado en pensar en el Señor con fe, es decir, en *samādhi.*

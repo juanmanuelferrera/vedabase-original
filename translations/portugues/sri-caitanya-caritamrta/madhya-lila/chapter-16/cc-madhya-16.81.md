@@ -1,0 +1,9 @@
+### CC Madhya 16.81
+
+gāla phulila, ācārya antare ullāsa
+
+vistāri' varṇiyāchena vṛndāvana-dāsa
+
+*gāla*—as faces; *phulila*—incharam; *ācārya*—Puṇḍarīka Vidyānidhi; *antare*—no íntimo do coração; *ullāsa*—muito feliz; *vistāri'*—detalhando; *varṇiyāchena*—narrou; *vṛndāvana-dāsa*—Śrīla Vṛndāvana dāsa Ṭhākura.
+
+**Embora suas faces estivessem inchadas pelas bofetadas, Puṇḍarīka Vidyānidhi sentia-se muito feliz em seu íntimo. Esse incidente foi detalhadamente descrito por Ṭhākura Vṛndāvana dāsa.**

@@ -1,0 +1,9 @@
+### CC Madhya 15.47
+
+ei vastra mātāke diha', ei saba prasāda
+
+daṇḍavat kari' āmāra kṣamāiha aparādha
+
+*ei vastra*—este pano; *mātāke diha'*—entrega a Minha mãe, Śacīdevī; *ei saba prasāda*—todos estes restos do alimento de Jagannātha; *daṇḍavat kari'*—oferecendo reverências; *āmāra*—Minhas; *kṣamāiha*—faze perdoar; *aparādha*—ofensas.
+
+**"Leva este prasāda do Senhor Jagannātha e este pano e entrega-os a Minha mãe, Śacīdevī. Após oferecer-lhe reverências, por favor, pede-lhe que perdoe Minhas ofensas.**

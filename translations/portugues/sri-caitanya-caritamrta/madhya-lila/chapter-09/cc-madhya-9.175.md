@@ -1,0 +1,8 @@
+### CC Madhya 9.175
+
+śiva-durgā rahe tāhāṅ brāhmaṇera veśe
+mahāprabhu dekhi' doṅhāra ha-ila ullāse
+
+*śiva-durgā*—o Senhor Śiva e sua esposa, Durgā; *rahe tāhāṅ*—permaneciam ali; *brāhmaṇera veśe*—vestidos de brāhmaṇas; *mahāprabhu dekhi'*—ao verem Śrī Caitanya Mahāprabhu; *doṅhāra*—de ambos; *ha-ila*—houve; *ullāse*—grande prazer.
+
+**Foi em Śrī Śaila que o Senhor Śiva e sua esposa Durgā viviam vestidos de brāhmaṇas e, quando viram Śrī Caitanya Mahāprabhu, ficaram muito satisfeitos.**

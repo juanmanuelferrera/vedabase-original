@@ -1,0 +1,10 @@
+### SB 4.1.43
+
+> bhṛguḥ khyātyāṁ mahā-bhāgaḥ
+> patnyāṁ putrān ajījanat
+> dhātāraṁ ca vidhātāraṁ
+> śriyaṁ ca bhagavat-parām
+
+*bhṛguḥ*—el gran sabio Bhṛgu; *khyātyām*—en su esposa, Khyāti; *mahā-bhāgaḥ*—muy afortunado; *patnyām*—a la esposa; *putrān*—hijos; *ajījanat*—engendró; *dhātāram*—Dhātā; *ca*—también; *vidhātāram*—Vidhātā; *śriyam*—una hija llamada Śrī; *ca bhagavat-parām*—y una gran devota del Señor.
+
+**El sabio Bhṛgu fue sumamente afortunado, y en su esposa, conocida como Khyāti, engendró dos hijos, llamados Dhātā y Vidhātā, y una hija, llamada Śrī, que estaba muy entregada a la Suprema Personalidad de Dios.**

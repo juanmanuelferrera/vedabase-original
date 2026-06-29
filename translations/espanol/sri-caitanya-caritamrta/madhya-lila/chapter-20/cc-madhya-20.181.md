@@ -1,0 +1,8 @@
+### CC Madhya 20.181
+
+> mathurāya yaiche gandharva-nṛtya-daraśane
+> punaḥ dvārakāte yaiche citra-vilokane
+
+*mathurāya*—en Mathurā; *yaiche*—tal como; *gandharva-nṛtya*—la danza de los Gandharvas; *daraśane*—al ver; *punaḥ*—de nuevo; *dvārakāte*—en Dvārakā; *yaiche*—tal como; *citra-vilokane*—al ver una pintura de Kṛṣṇa.
+
+**«Un ejemplo de la atracción de Vāsudeva por Kṛṣṇa tuvo lugar cuando Vāsudeva vio la danza de los Gandharvas en Mathurā. Otro ejemplo ocurrió en Dvārakā, cuando Vāsudeva se sorprendió al ver una pintura de Kṛṣṇa.**

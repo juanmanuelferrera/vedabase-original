@@ -1,0 +1,8 @@
+### CC Antya 10.56
+
+> pūrva-vatsarera jhāli ājāḍa kariyā
+> dravya bharibāre rākhe anya gṛhe lañā
+
+*pūrva-vatsarera*—del año anterior; *jhāli*—bolsas; *ājāḍa kariyā*—vaciando; *dravya bharibāre*—para llenar con productos; *rākhe*—guarda; *anya gṛhe*—en otra habitación; *lañā*—llevando.
+
+**Govinda vació por completo las bolsas del año anterior y las guardó en otra habitación para llenarlas con otros productos.**

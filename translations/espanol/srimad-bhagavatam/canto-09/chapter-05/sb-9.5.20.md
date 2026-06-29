@@ -1,0 +1,12 @@
+### SB 9.5.20
+
+> prīto 'smy anugṛhīto 'smi
+> tava bhāgavatasya vai
+> darśana-sparśanālāpair
+> ātithyenātma-medhasā
+
+*prītaḥ*—muy satisfecho; *asmi*—estoy; *anugṛhītaḥ*—muy favorecido; *asmi*—estoy; *tava*—tuyo; *bhāgavatasya*—debido a que eres un devoto puro; *vai*—en verdad; *darśana*—por verte; *sparśana*—y tocar tus pies; *ālāpaiḥ*—por hablar contigo; *ātithyena*—por tu hospitalidad; *ātma-medhasā*—con mi propia inteligencia.
+
+**Durvāsā Muni dijo: Mi querido rey, estoy muy complacido contigo. Al principio te consideré un ser humano corriente y acepté tu hospitalidad, pero, más tarde, con mi propia inteligencia he podido darme cuenta de que tú eres el devoto más excelso del Señor. De esa forma, por el simple hecho de verte, tocar tus pies y hablar contigo, me siento complacido y estoy en deuda contigo.**
+
+*Vaiṣṇavera kriyā mudrā vijñeha na bujhaya*: Ni siquiera una persona muy inteligente puede entender las actividades del *vaiṣṇava* puro. Por esa razón, Durvāsā Muni, que era un gran *yogī* místico, tomó a Mahārāja Ambarīṣa por un ser humano corriente y quiso castigarle. Su error fue que no supo reconocer a un *vaiṣṇava*. Pero más tarde, cuando fue perseguido por el *cakra* Sudarśana, adquirió la inteligencia necesaria. Por consiguiente, la palabra *ātma-medhasā* se emplea para indicar que, mediante su propia experiencia, llegó a entender que el rey era un gran *vaiṣṇava*. Al verse perseguido por el *cakra* Sudarśana, Durvāsā Muni quiso refugiarse en el Señor Brahmā y el Señor Śiva, e incluso llegó a elevarse hasta el mundo espiritual, donde se entrevistó personalmente con la Personalidad de Dios; todo ello, sin embargo, no le salvó del ataque del *cakra* Sudarśana. Así, fue su propia experiencia la que le permitió comprender la influencia del *vaiṣṇava*. Durvāsā Muni era, sin lugar a dudas, un gran *yogī* y un *brāhmaṇa* muy erudito, pero, pese a ser un auténtico *yogī*, no supo entender la influencia del *vaiṣṇava*. Por esa razón, las Escrituras dicen: *vaiṣṇavera kriyā mudrā vijñeha nā bhujhaya*: Ni siquiera la persona más erudita puede valorar correctamente a un *vaiṣṇava*. Cuando los supuestos *jñānīs* y *yogīs* estudian la personalidad del *vaiṣṇava*, siempre existe la posibilidad de que se equivoquen. Para entender la posición del *vaiṣṇava* se debe considerar la gran misericordia que recibe de la Suprema Personalidad de Dios, que se hace visible en sus inconcebibles actividades.

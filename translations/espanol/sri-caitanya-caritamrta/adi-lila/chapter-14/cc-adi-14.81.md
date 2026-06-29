@@ -1,0 +1,8 @@
+### CC Adi 14.81
+
+> kibā kelāhala kare, bujhite nā pāri
+> kāhāke vā stuti kare--anumāna kari
+
+*kibā*—qué; *kelāhala*—sonidos estrepitosos; *kare*—hacen; *bujhite*—comprender; *nā*—no; *pāri*—puedo; *kāhāke*—a quién; *vā*—o; *stuti*—oraciones; *kare*—ofrecían; *anumāna*—conjeturo; *kari*—hago.
+
+**»Hacían sonidos estrepitosos que no pude comprender. Supongo que ofrecían oraciones a alguien».**

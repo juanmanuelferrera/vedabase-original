@@ -1,0 +1,8 @@
+### CC Madhya 6.234
+
+āji kṛṣṇa-prāpti-yogya haila tomāra mana
+veda-dharma laṅghi' kaile prasāda bhakṣaṇa"
+
+*āji*—hoje; *kṛṣṇa-prāpti*—para a obtenção dos pés de lótus de Kṛṣṇa; *yogya*—apto; *haila*—tornou-se; *tomāra*—tua; *mana*—mente; *veda*—dos quatro Vedas; *dharma*—os princípios; *laṅghi'*—ultrapassando; *kaile*—fizeste; *prasāda*—os restos do alimento oferecido a Kṛṣṇa; *bhakṣaṇa*—comer.
+
+**"Hoje tua mente tornou-se apta para abrigar-se nos pés de lótus de Kṛṣṇa porque, ultrapassando os princípios reguladores védicos, comeste os restos do alimento oferecido ao Senhor.**

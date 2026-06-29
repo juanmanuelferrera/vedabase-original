@@ -1,0 +1,10 @@
+### SB 1.13.12
+
+> ity ukto dharma-rājena
+> sarvaṁ tat samavarṇayat
+> yathānubhūtaṁ kramaśo
+> vinā yadu-kula-kṣayam
+
+*iti*—así pues; *uktaḥ*—habiéndosele preguntado; *dharma-rājena*—por el rey Yudhiṣṭhira; *sarvam*—todo; *tat*—eso; *samavarṇayat*—descrito debidamente; *yathā-anubhūtam*—como lo vivió; *kramaśaḥ*—uno tras otro; *vinā*—sin; *yadu-kula-kṣayam*—la aniquilación de la dinastía Yadu.
+
+**Así, interrogado por Mahārāja Yudhiṣṭhira, Mahātmā Vidura describió gradualmente todo lo que había experimentado personalmente, salvo la noticia de la aniquilación de la dinastía Yadu.**

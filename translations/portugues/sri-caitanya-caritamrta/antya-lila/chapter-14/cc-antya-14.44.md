@@ -1,0 +1,13 @@
+### CC Antya 14.44
+
+kṛṣṇa-līlā-maṇḍala, śuddha śaṅkha-kuṇḍala,
+
+gaḍiyāche śuka kārikara
+
+sei kuṇḍala kāṇe pari', tṛṣṇā-lāu-thālī dhari',
+
+āśā-jhuli kāndhera upara
+
+*kṛṣṇa-līlā-maṇḍala*—o aro dos passatempos de Kṛṣṇa; *śuddha*—puro; *śaṅkha-kuṇḍala*—um brinco de búzio; *gaḍiyāche*—fabricou; *śuka*—Śukadeva Gosvāmī; *kārikara*—o artífice; *sei kuṇḍala*—esse brinco; *kāṇe pari'*—pondo na orelha; *tṛṣṇā*—aspiração; *lāu*—de cabaça ou abóbora; *thālī*—a tigela; *dhari'*—tomando; *āśā*—expectativa; *jhuli*—bolsa; *kāndhera upara*—sobre o ombro.
+
+**"O aro da rāsa-līlā de Kṛṣṇa, fabricado por Śukadeva Gosvāmī, o mais auspicioso dos artífices, é tão puro quanto um brinco feito de búzio. O yogī da Minha mente usa esse brinco em sua orelha. De uma cabaça, ele esculpiu a tigela das Minhas aspirações, e tomou sobre o ombro a bolsa das Minhas expectativas.**

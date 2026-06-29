@@ -1,0 +1,23 @@
+### SB 3.5.38
+
+> ete devāḥ kalā viṣṇoḥ
+> kāla-māyāṁśa-liṅginaḥ
+> nānātvāt sva-kriyānīśāḥ
+> procuḥ prāñjalayo vibhum
+
+*ete*—de todos estos elementos físicos; *devāḥ*—los semidioses controladores; *kalāḥ*—partes integrales; *viṣṇoḥ*—de la Suprema Personalidad de Dios; *kāla*—tiempo; *māyā*—energía externa; *aṁśa*—parte integral; *liṅginaḥ*—encarnados así; *nānātvāt*—debido a varios; *sva-kriyā*—deberes personales; *anīśāḥ*—no siendo capaces de realizar; *procuḥ*—profirieron; *prāñjalayaḥ*—fascinantes; *vibhum*—al Señor.
+
+**Las deidades controladoras de todos los elementos físicos anteriormente mencionados son expansiones apoderadas de Śrī Viṣṇu. El tiempo eterno las encarna bajo la influencia de la energía externa, y son Sus partes integrales. Debido a que se les encargó de diferentes funciones de los deberes universales y no podían realizarlos, ofrecieron al Señor unas oraciones fascinantes de la siguiente manera.**
+
+El concepto de diversos semidioses controladores que habitan los sistemas planetarios superiores para la administración de los asuntos universales no es imaginario, como lo plantean las personas con débil base de conocimiento. Los semidioses son partes integrales expandidas del Señor Supremo, Viṣṇu, y los encarna el tiempo, la energía externa y la conciencia parcial del Supremo. Los seres humanos, los animales, las aves, etc., son también partes integrales del Señor, y tienen diferentes cuerpos materiales, pero no son las deidades controladoras de los asuntos materiales. Por el contrario, dichos semidioses los controlan a ellos. Ese control no es superfluo; es tan necesario como lo son los departamentos controladores en los asuntos de un Estado moderno. Los semidioses no deben ser despreciados por las entidades vivientes controladas. Todos ellos son grandes devotos del Señor, encargados de ejecutar ciertas funciones de los asuntos universales. Puede que alguien se enfade con Yamarāja por su ingrata tarea de castigar a las almas pecaminosas, pero Yamarāja es uno de los devotos autorizados del Señor, así como también lo son los demás semidioses. El devoto del Señor nunca es controlado por esos semidioses delegados, que actúan como asistentes del Señor, pero él les ofrece todo respeto por las posiciones de responsabilidad que les ha asignado el Señor. Al mismo tiempo, el devoto del Señor no los confunde neciamente con el Señor Supremo. Solo las personas necias consideran que los semidioses se encuentran en el mismo nivel que Viṣṇu; en realidad, todos ellos son designados como sirvientes de Viṣṇu.
+
+Todo aquel que ponga al Señor y a los semidioses en el mismo nivel recibe el nombre de *pāṣaṇḍī,* ateo. Los semidioses reciben la adoración de personas que están más o menos adictas a los procesos de *jñāna, yoga* y *karma,* es decir, los impersonalistas, los meditadores y los trabajadores fruitivos. No obstante, los devotos adoran únicamente al Señor Supremo, Viṣṇu. Esta adoración no tiene por objeto ningún beneficio material, como lo desean todos los materialistas, incluso los salvacionistas, los místicos y los que actúan de manera fruitiva. Los devotos adoran al Señor Supremo para alcanzar el estado de devoción pura por el Señor. Sin embargo, los demás no adoran al Señor, y carecen de todo programa para desarrollar amor por Dios, que es el objetivo esencial de la vida humana. Las personas que se oponen a la relación amorosa con Dios están más o menos condenadas por sus propias acciones.
+
+El Señor es imparcial con todas las entidades vivientes, tal como el fluyente Ganges. El agua del Ganges está destinada a la purificación de todo el mundo, pero los árboles que se hallan en las riberas del Ganges tienen diferentes valores. El árbol de mango de la ribera del Ganges ingiere el agua, y el árbol *nimba* también ingiere la misma agua. Pero los frutos de los dos árboles son diferentes. Uno es celestialmente dulce, y el otro es infernalmente amargo. La amargura condenada del *nimba* se debe a sus propias acciones pasadas, así como la dulzura del mango también se debe a su propio *karma.* El Señor dice en el *Bhagavad-gītā* (16.19):
+
+> tān ahaṁ dviṣataḥ krūrān
+> saṁsāreṣu narādhamān
+> kṣipāmy ajasram aśubhān
+> āsurīṣv eva yoniṣu
+
+«A los envidiosos, a los malvados, a los más bajos de la humanidad, Yo siempre los arrojo de nuevo al océano de la existencia material, en diversas especies de vida demoníaca». Semidioses como Yamarāja y otros controladores son designados para ocuparse de las almas condicionadas no deseadas, que siempre se dedican a amenazar la tranquilidad del reino de Dios. Como todos los semidioses son íntimos sirvientes-devotos del Señor, nunca se les debe condenar.

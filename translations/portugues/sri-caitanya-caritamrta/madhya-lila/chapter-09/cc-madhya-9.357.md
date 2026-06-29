@@ -1,0 +1,11 @@
+### CC Madhya 9.357
+
+eka rāmānanda rāya bahu sukha dila
+
+bhaṭṭa kahe,--ei lāgi' milite kahila
+
+*eka*—um; *rāmānanda rāya*—Rāmānanda Rāya; *bahu sukha*—muito prazer; *dila*—deu; *bhaṭṭa kahe*—Sārvabhauma Bhaṭṭācārya respondeu; *ei lāgi'*—por esta razão; *milite*—de encontrar; *kahila*—eu pedi.
+
+**Śrī Caitanya Mahāprabhu continuou: "Recebi muito prazer das conversas de Rāmānanda Rāya."**
+
+O Bhaṭṭācārya respondeu: "Por esta razão eu havia pedido que O encontrasses."

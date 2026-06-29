@@ -1,0 +1,8 @@
+### CC Madhya 1.247
+
+> ānande bhakta-saṅge sadā kīrtana-vilāsa
+> jagannātha-daraśana, premera vilāsa
+
+*ānande*—con gran gozo; *bhakta-saṅge*—con los devotos; *sadā*—siempre; *kīrtana*—del canto; *vilāsa*—disfrute; *jagannātha*—el Señor Jagannātha; *daraśana*—visita; *premera*—del éxtasis; *vilāsa*—pasatiempos.
+
+**Durante Su estancia en Jagannātha Purī, el Señor pasaba el tiempo con gran gozo realizando saṅkīrtana y visitando el templo del Señor Jagannātha con gran éxtasis.**

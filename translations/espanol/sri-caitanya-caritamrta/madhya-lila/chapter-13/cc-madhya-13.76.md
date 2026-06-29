@@ -1,0 +1,8 @@
+### CC Madhya 13.76
+
+> daṇḍavat kari, prabhu yuḍi' dui hāta
+> ūrdhva-mukhe stuti kare dekhi' jagannātha
+
+*daṇḍavat kari*—ofreciendo reverencias; *prabhu*—Śrī Caitanya Mahāprabhu; *yuḍi'*—juntando; *dui hāta*—las dos manos; *ūrdhva-mukhe*—levantando el rostro hacia arriba; *stuti kare*—ofrece oración; *dekhi'*—al ver; *jagannātha*—la Deidad del Señor Jagannātha.
+
+**Ofreciendo reverencias al Señor con las manos juntas, Śrī Caitanya Mahāprabhu levantó Su rostro hacia Jagannātha y oró de la siguiente manera.**

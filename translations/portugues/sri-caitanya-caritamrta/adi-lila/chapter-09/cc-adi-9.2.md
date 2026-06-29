@@ -1,0 +1,8 @@
+### CC Adi 9.2
+
+jaya jaya śrī-kṛṣṇa-caitanya gauracandra
+jaya jayādvaita jaya jaya nityānanda
+
+*jaya jaya*—todas as glórias; *śrī-kṛṣṇa-caitanya*—ao Senhor Śrī Caitanya Mahāprabhu; *gauracandra*—cujo nome é Gaurahari; *jaya jaya*—todas as glórias; *advaita*—a Advaita Gosāñi; *jaya jaya*—todas as glórias; *nityānanda*—a Nityānanda.
+
+**Todas as glórias a Śrī Kṛṣṇa Caitanya, conhecido como Gaurahari! Todas as glórias a Advaita e Nityānanda Prabhu!**

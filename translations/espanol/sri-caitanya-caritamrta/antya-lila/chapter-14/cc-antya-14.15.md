@@ -1,0 +1,8 @@
+### CC Antya 14.15
+
+> divyonmāde aiche haya, ki ihā vismaya?
+> adhirūḍha-bhāve divyonmāda-pralāpa haya
+
+*divya-unmāde*—en la locura trascendental; *aiche*—tal; *haya*—es; *ki ihā vismaya*—¿qué tiene de asombroso?; *adhirūḍha-bhāve*—en el amor sumamente elevado por Kṛṣṇa; *divya-unmāda*—en la locura trascendental; *pralāpa*—hablar; *haya*—hay.
+
+**Así es el estado de locura trascendental. ¿Por qué resulta difícil de comprender? Cuando uno se halla sumamente elevado en el amor por Kṛṣṇa, enloquece trascendentalmente y habla como un loco.**

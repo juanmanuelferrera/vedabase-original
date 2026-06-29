@@ -1,0 +1,9 @@
+### SB 6.19.7
+
+> oṁ namo bhagavate mahā-puruṣāya mahānubhāvāya mahāvibhūti-pataye saha mahā-vibhūtibhir balim upaharāmīti; anenāhar-ahar mantreṇa viṣṇor āvāhanārghya-pādyopasparśana-snāna-vāsa-upavīta-vibhūṣaṇa-gandha-puṣpa-dhūpa-dīpopahārādy-upacārān susamā-hitopāharet.
+
+*oṁ*—¡oh, mi Señor!; *namaḥ*—reverencias; *bhagavate*—a la Suprema Personalidad de Dios, que goza de plenitud en las seis opulencias; *mahā-puruṣāya*—el mejor de los disfrutadores; *mahā-anubhāvāya*—el más poderoso; *mahā-vibhūti*—de la diosa de la fortuna; *pataye*—el esposo; *saha*—con; *mahā-vibhūtibhiḥ*—acompañantes; *balim*—presentes; *upaharāmi*—estoy ofreciendo; *iti*—así; *anena*—con este; *ahaḥ-ahaḥ*—cada día; *mantreṇa*—*mantra*; *viṣṇoḥ*—del Señor Viṣṇu; *āvāhana*—invocación; *arghya-pādya-upasparśana*—agua para lavar las manos, los pies y la boca; *snāna*—agua para bañar; *vāsa*—ropas; *upavīta*—un cordón sagrado; *vibhūṣaṇa*—alhajas; *gandha*—perfumes; *puṣpa*—flores; *dhūpa*—incienso; *dīpa*—lámparas; *upahāra*—regalos; *ādi*—y demás; *upacārān*—presentes; *su-samāhitā*—con gran atención; *upāharet*—ella debe ofrecer.
+
+**«Mi querido Señor Viṣṇu, Tú eres el mejor de todos los disfrutadores, y el más poderoso. ¡Oh, esposo de madre Lakṣmī!, yo Te ofrezco respetuosas reverencias a Ti, que estás acompañado de muchos sirvientes, como Viśvaksena. Yo ofrezco todos los articulos necesarios para adorarte». Este mantra debe cantarse cada día con gran atención mientras se adora al Señor Viṣṇu con todos los artículos necesarios, como agua para lavarle los pies, las manos y la boca, y agua para Su baño. También deben ofrecerse diversos presentes para Su adoración, como ropas, un cordón sagrado, alhajas, perfumes, flores, incienso y lámparas.**
+
+Este *mantra* es muy importante. Todo el que se ocupe en adorar a la Deidad debe cantarlo tal como se ha citado, comenzando con *oṁ namo bhagavate mahā-puruṣāya*.

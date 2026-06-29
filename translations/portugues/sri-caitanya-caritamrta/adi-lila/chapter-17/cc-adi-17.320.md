@@ -1,0 +1,8 @@
+### CC Adi 17.320
+
+saptama paricchede 'pañca-tattve'ra ākhyāna
+pañca-tattva mili' yaiche kailā prema-dāna
+
+*saptama paricchede*—no Sétimo Capítulo; *pañca-tattvera*—dos cinco tattvas (verdades); *ākhyāna*—a elaboração; *pañca-tattva*—os cinco tattvas; *mili'*—combinando-se; *yaiche*—de que modo; *kailā*—fizeram; *prema-dāna*—distribuição do amor a Deus.
+
+**O Sétimo Capítulo descreve o Pañca-tattva–Śrī Caitanya, Prabhu Nityānanda, Śrī Advaita, Gadādhara e Śrīvāsa. Todos eles se combinaram para distribuir o amor a Deus por toda parte.**

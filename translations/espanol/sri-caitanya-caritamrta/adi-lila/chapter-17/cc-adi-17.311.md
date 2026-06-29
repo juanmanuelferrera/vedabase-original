@@ -1,0 +1,8 @@
+### CC Adi 17.311
+
+> likhita granthera yadi kari anuvāda
+> tabe se granthera artha pāiye āsvāda
+
+*likhita*—escrita; *granthera*—de la escritura; *yadi*—si; *kari*—hago; *anuvāda*—repetición; *tabe*—entonces; *se granthera*—de esa escritura; *artha*—el significado; *pāiye*—puedo obtener; *āsvāda*—sabor.
+
+**Si repito lo que ya se ha escrito, así podré saborear el propósito de esta escritura.**

@@ -1,0 +1,10 @@
+### CC Adi 7.38
+
+> sabā nistārite prabhu kṛpā-avatāra
+> sabā nistārite kare cāturī apāra
+
+*sabā*—a todos; *nistārite*—para liberar; *prabhu*—el Señor; *kṛpā*—misericordia; *avatāra*—encarnación; *sabā*—a todos; *nistārite*—para liberar; *kare*—empleó; *cāturī*—recursos; *apāra*—ilimitados.
+
+**Śrī Caitanya Mahāprabhu apareció para liberar a todas las almas caídas. Por eso ideó numerosos métodos para liberarlas de las garras de *māyā*.**
+
+Es deber del *ācārya* mostrar misericordia a las almas caídas. A este respecto, debe tomarse en consideración *deśa-kāla-pātra* (el lugar, el momento y el objeto). Puesto que los chicos y chicas europeos y americanos de nuestro movimiento de conciencia de Kṛṣṇa predican juntos, hombres menos inteligentes critican que se mezclan sin restricción. En Europa y América los chicos y chicas se relacionan sin restricción y tienen los mismos derechos; por lo tanto, no es posible separar completamente a los hombres de las mujeres. Sin embargo, estamos instruyendo minuciosamente tanto a hombres como a mujeres en el arte de predicar, y de hecho están predicando maravillosamente. Desde luego, prohibimos muy estrictamente las relaciones sexuales ilícitas. A los chicos y chicas que no están casados no se les permite dormir juntos ni vivir juntos, y existen arreglos separados para los chicos y las chicas en cada templo. Los *gṛhasthas* viven fuera del templo, pues en el templo no permitimos siquiera que marido y mujer vivan juntos. Los resultados de esto son maravillosos. Tanto hombres como mujeres predican el evangelio del Señor Caitanya Mahāprabhu y del Señor Kṛṣṇa con fuerzas redobladas. En este verso, las palabras *sabā nistārite kare cāturī apāra* indican que Śrī Caitanya Mahāprabhu quería liberar a todos sin excepción. Así pues, es un principio que el predicador debe seguir estrictamente las reglas y regulaciones establecidas en los *śāstras*, pero al mismo tiempo idear un medio por el cual la labor de prédica para reclamar a los caídos pueda proseguir con plena fuerza.

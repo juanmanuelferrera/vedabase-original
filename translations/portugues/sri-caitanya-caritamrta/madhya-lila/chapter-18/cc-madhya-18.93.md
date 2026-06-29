@@ -1,0 +1,9 @@
+### CC Madhya 18.93
+
+prabhu dekhi' karila loka caraṇa vandana
+
+prabhu kahe,--kāhāṅ haite karilā āgamana?
+
+*prabhu dekhi'*—ao verem o Senhor Śrī Caitanya Mahāprabhu; *karila*—ofereceram; *loka*—as pessoas; *caraṇa vandana*—respeito a Seus pés de lótus; *prabhu kahe*—Śrī Caitanya Mahāprabhu disse; *kāhāṅ haite*—de onde; *karilā āgamana*—viestes.
+
+**Ao verem Śrī Caitanya Mahāprabhu, todas as pessoas ofereceram respeitos a Seus pés de lótus. O Senhor então lhes perguntou: "De onde vindes todos vós?"**

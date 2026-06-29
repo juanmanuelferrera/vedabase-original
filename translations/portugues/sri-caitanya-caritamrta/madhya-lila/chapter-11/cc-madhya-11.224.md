@@ -1,0 +1,8 @@
+### CC Madhya 11.224
+
+'beḍā-nṛtya' mahāprabhu kari' kata-kṣaṇa
+mandirera pāche rahi' karaye kīrtana
+
+*beḍā-nṛtya*—a dança ao redor do templo; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *kari'*—realizando; *kata-kṣaṇa*—por algum tempo; *mandirera pāche*—na parte traseira do templo; *rahi'*—permanecendo; *karaye*—realizava; *kīrtana*—canto congregacional.
+
+**Após circum-ambular o templo, Śrī Caitanya Mahāprabhu permaneceu por algum tempo na parte traseira do templo e continuou Seu saṅkīrtana.**

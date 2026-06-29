@@ -1,0 +1,12 @@
+### SB 1.16.16
+
+> sārathya-pāraṣada-sevana-sakhya-dautya-
+> vīrāsanānugamana-stavana-praṇāmān
+> snigdheṣu pāṇḍuṣu jagat-praṇatiṁ ca viṣṇor
+> bhaktiṁ karoti nṛ-patiś caraṇāravinde
+
+*sārathya*—aceptación del puesto de auriga; *pāraṣada*—aceptación de la presidencia de la asamblea del sacrificio *rājasūya*; *sevana*—ocupando la mente de un modo constante en el servicio del Señor; *sakhya*—pensar en el Señor como amigo; *dautya*—aceptación del puesto de mensajero; *vīra-āsana*—aceptación del puesto de guardia nocturno con espada en mano; *anugamana*—siguiendo los pasos; *stavana*—ofrecimiento de oraciones; *praṇāmān*—ofreciendo reverencias; *snigdheṣu*—a aquellos que se amoldan a la voluntad del Señor; *pāṇḍuṣu*—a los hijos de Pāṇḍu; *jagat*—el universal; *praṇatim*—aquel que es obedecido; *ca*—y; *viṣṇoḥ*—de Viṣṇu; *bhaktim*—devoción; *karoti*—hace; *nṛ-patiḥ*—el rey; *caraṇa-aravinde*—a Sus pies de loto.
+
+**Mahārāja Parīkṣit oyó que, por Su misericordia sin causa, el Señor Kṛṣṇa [Viṣṇu], a quien obedece todo el universo, prestó toda clase de servicios a los maleables hijos de Pāṇḍu, aceptando cargos que iban desde auriga hasta presidente, mensajero, amigo, vigilante nocturno, etc., conforme a la voluntad de los Pāṇḍavas, obedeciéndoles como un sirviente y ofreciéndoles reverencias como alguien menor en años. Cuando oyó esto, Mahārāja Parīkṣit quedó abrumado por la devoción hacia los pies de loto del Señor.**
+
+El Señor Kṛṣṇa lo es todo para los devotos puros como los Pāṇḍavas. El Señor era para ellos el Señor Supremo, el maestro espiritual, la Deidad digna de adoración, el guía, el auriga, el amigo, el sirviente, el mensajero y todo lo que pudieran concebir. Y de ese modo el Señor también correspondía al sentimiento de los Pāṇḍavas. Mahārāja Parīkṣit, como devoto puro del Señor, podía apreciar la trascendental correspondencia del Señor a los sentimientos de Sus devotos, y de ese modo él mismo también quedó abrumado por el trato del Señor. Simplemente con apreciar el trato del Señor con Sus devotos puros, uno puede alcanzar la salvación. El trato del Señor con Sus devotos parece un trato humano corriente, pero aquel que lo conoce en verdad se vuelve de inmediato apto para ir de vuelta al hogar, de vuelta a Dios. Los Pāṇḍavas eran tan maleables a la voluntad del Señor que podían sacrificar cualquier cantidad de energía por el servicio del Señor, y, mediante esa determinación pura, podían obtener la misericordia del Señor en cualquier forma que desearan.

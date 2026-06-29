@@ -1,0 +1,9 @@
+### CC Madhya 1.217
+
+doṅhā āliṅgiyā prabhu balila bhakta-gaṇe
+
+sabe kṛpā kari' uddhāraha dui jane
+
+*doṅhā*—ambos; *āliṅgiyā*—abraçando; *prabhu*—o Senhor; *balila*—disse; *bhakta-gaṇe*—aos devotos; *sabe*—todos vós; *kṛpā*—misericórdia; *kari'*—mostrando; *uddhāraha*—libertai; *dui*—as duas; *jane*—pessoas.
+
+**Depois disso, o Senhor abraçou ambos e pediu a todos os devotos ali presentes que fossem misericordiosos para com eles e os libertassem.**

@@ -1,0 +1,8 @@
+### CC Madhya 24.234
+
+> kata-dūre dekhe vyādha vṛkṣe oṅta hañā
+> mṛga māribāre āche bāṇa yuḍiyā
+
+*kata-dūre*—un poco más adelante; *dekhe*—Nārada Muni vio; *vyādha*—el cazador; *vṛkṣe oṅta hañā*—escondido detrás de un árbol; *mṛga māribāre*—para matar a los animales; *āche*—estaba allí; *bāṇa yuḍiyā*—con flechas en la mano.
+
+**«Cuando Nārada Muni avanzó más, vio a un cazador detrás de un árbol. Este cazador sostenía flechas y estaba preparado para matar más animales.»**

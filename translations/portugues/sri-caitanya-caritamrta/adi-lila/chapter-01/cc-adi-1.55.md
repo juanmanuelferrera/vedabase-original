@@ -1,0 +1,14 @@
+### CC Adi 1.55
+
+> yathā mahānti bhūtāni
+> bhūteṣūccāvaceṣv anu
+> praviṣṭāny apraviṣṭāni
+> tathā teṣu na teṣv aham
+
+*yathā*—assim como; *mahānti*—os universais; *bhūtāni*—elementos; *bhūteṣu*—nas entidades vivas; *ucca-avaceṣu*—tanto gigantescas quanto diminutas; *anu*—após; *praviṣṭāni*—situados internamente; *apraviṣṭāni*—situados externamente; *tathā*—assim; *teṣu*—neles; *na*—não; *teṣu*—neles; *aham*—Eu.
+
+**"Assim como os elementos materiais entram nos corpos de todos os seres vivos e, ainda assim, permanecem fora de todos eles, Eu existo dentro de todas as criações materiais e, ainda assim, não estou dentro delas.**
+
+Os elementos materiais grosseiros (terra, água, fogo, ar e éter) combinam-se com os elementos materiais sutis (mente, inteligência e ego falso) para construir os corpos deste mundo material e, contudo, estão além desses corpos também. Qualquer construção material nada mais é que uma amálgama ou combinação de elementos materiais em proporções variadas. Esses elementos existem tanto dentro quanto além do corpo. Por exemplo, embora o céu exista no espaço, ele também penetra dentro do corpo. De modo semelhante, o Senhor Supremo, que é a causa da energia material, vive dentro do mundo material assim como além dele. Sem Sua presença dentro do mundo material, o corpo cósmico não poderia desenvolver-se, assim como, sem a presença do espírito dentro do corpo físico, o corpo não poderia desenvolver-se. Toda a manifestação material desenvolve-se e existe porque a Suprema Personalidade de Deus entra nela como Paramātmā, ou a Superalma. A Personalidade de Deus, em Seu aspecto onipenetrante de Paramātmā, entra em cada entidade, da maior à mais minúscula. Sua existência pode ser percebida por aquele que possui a única qualificação da submissão e que, dessa forma, torna-se uma alma rendida. O desenvolvimento da submissão é a causa da percepção espiritual proporcional, mediante a qual a pessoa pode, em última análise, encontrar o Senhor Supremo em pessoa, assim como um homem encontra outro homem face a face.
+
+Devido ao desenvolvimento de seu apego transcendental pelo Senhor Supremo, uma alma rendida sente a presença de seu amado em toda parte, e todos os seus sentidos ocupam-se no serviço amoroso ao Senhor. Seus olhos ocupam-se em ver o belo casal Śrī Rādhā e Kṛṣṇa sentado em um trono decorado sob uma árvore-dos-desejos na terra transcendental de Vṛndāvana. Seu nariz ocupa-se em sentir o aroma espiritual dos pés de lótus do Senhor. De modo semelhante, seus ouvidos ocupam-se em escutar mensagens de Vaikuṇṭha, e suas mãos abraçam os pés de lótus do Senhor e de Seus associados. Assim, o Senhor manifesta-Se ao devoto puro por dentro e por fora. Este é um dos mistérios da relação devocional, na qual o devoto e o Senhor estão atados por um laço de amor espontâneo. Alcançar esse amor deve ser a meta da vida para todo ser vivo.

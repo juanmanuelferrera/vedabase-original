@@ -1,0 +1,20 @@
+### CC Adi 1.54
+
+> ṛte 'rthaṁ yat pratīyeta
+> na pratīyeta cātmani
+> tad vidyād ātmano māyāṁ
+> yathābhāso yathā tamaḥ
+
+*ṛte*—sem; *artham*—valor; *yat*—aquilo que; *pratīyeta*—parece ser; *na*—não; *pratīyeta*—parece ser; *ca*—certamente; *ātmani*—em relação a Mim; *tat*—isso; *vidyāt*—deves saber; *ātmanaḥ*—Minha; *māyām*—energia ilusória; *yathā*—assim como; *ābhāsaḥ*—o reflexo; *yathā*—assim como; *tamaḥ*—a escuridão.
+
+**"Aquilo que parece ser verdade sem Mim é certamente Minha energia ilusória, pois nada pode existir sem Mim. É como o reflexo de uma luz real nas sombras, pois na luz não há sombras nem reflexos.**
+
+No verso anterior, explicaram-se a Verdade Absoluta e sua natureza. Para conhecer de fato o Absoluto, é preciso compreender também a verdade relativa. A verdade relativa, que se chama *māyā,* ou natureza material, é explicada aqui. A *māyā* não possui existência independente. Aquele que é menos inteligente fica cativado pelas atividades maravilhosas da *māyā,* mas não compreende que por trás dessas atividades está a direção do Senhor Supremo. No *Bhagavad-gītā* afirma-se: *mayādhyakṣeṇa prakṛtiḥ sūyate sa-carācaram:* a natureza material atua e produz os seres móveis e imóveis apenas sob a supervisão de Kṛṣṇa [[bg/9/10|(Bg. 9.10)]].
+
+A verdadeira natureza da *māyā,* a existência ilusória da manifestação material, é claramente explicada no *Śrīmad-Bhāgavatam.* A Verdade Absoluta é a substância, e a verdade relativa depende, para existir, de sua relação com o Absoluto. *Māyā* significa energia; portanto, explica-se que a verdade relativa é a energia da Verdade Absoluta. Visto que é difícil compreender a distinção entre as verdades absoluta e relativa, pode-se dar um exemplo para esclarecimento. A Verdade Absoluta pode ser comparada ao sol, que é apreciado em termos de duas verdades relativas: o reflexo e a escuridão. A escuridão é a ausência da luz solar, e um reflexo é uma projeção da luz solar na escuridão. Nem a escuridão nem o reflexo têm existência independente. A escuridão surge quando a luz solar é bloqueada. Por exemplo, se alguém fica de frente para o sol, suas costas estarão na escuridão. Visto que a escuridão decorre da ausência do sol, ela é, portanto, relativa ao sol. O mundo espiritual é comparado à verdadeira luz solar, e o mundo material é comparado às regiões escuras onde o sol não é visível.
+
+Quando a manifestação material parece muito maravilhosa, isso se deve a um reflexo pervertido da suprema luz solar, a Verdade Absoluta, como se confirma no *Vedānta-sūtra.* Tudo o que aqui se pode ver tem sua substância no Absoluto. Assim como a escuridão está situada muito longe do sol, do mesmo modo o mundo material também está muito longe do mundo espiritual. A literatura Védica nos orienta a não nos deixarmos cativar pelas regiões escuras (*tamaḥ*), mas a tentar alcançar as regiões resplandecentes do Absoluto (*yogi-dhāma*).
+
+O mundo espiritual é intensamente iluminado, mas o mundo material está envolto em escuridão. No mundo material, a luz do sol, o luar ou diferentes tipos de luz artificial são necessários para dissipar a escuridão, especialmente à noite, pois, por natureza, o mundo material é escuro. Por isso, o Senhor Supremo proveu a luz solar e o luar. Mas em Sua morada, conforme se descreve no *Bhagavad-gītā* [[bg/15/6|(Bg. 15.6)]], não há necessidade de iluminação pela luz solar, pelo luar ou pela eletricidade, porque tudo é autorrefulgente.
+
+Aquilo que é relativo, temporário e está longe da Verdade Absoluta chama-se *māyā,* ou ignorância. Essa ilusão manifesta-se de duas maneiras, como se explica no *Bhagavad-gītā.* A ilusão inferior é a matéria inerte, e a ilusão superior é a entidade viva. As entidades vivas são chamadas de ilusórias neste contexto apenas porque estão implicadas nas estruturas e atividades ilusórias do mundo material. Na verdade, as entidades vivas não são ilusórias, pois são partes da energia superior do Senhor Supremo e não precisam ser cobertas pela *māyā,* caso não o desejem. As ações das entidades vivas no reino espiritual não são ilusórias; são as atividades reais e eternas das almas liberadas.

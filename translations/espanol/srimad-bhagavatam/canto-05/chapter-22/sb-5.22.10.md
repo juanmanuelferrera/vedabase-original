@@ -1,0 +1,7 @@
+### SB 5.22.10
+
+> ya eṣa ṣoḍaśa-kalaḥ puruṣo bhagavān manomayo 'nnamayo 'mṛtamayo deva-pitṛ-manuṣya-bhūta-paśu-pakṣi-sarīsṛpa-vīrudhāṁ prāṇāpy āyana-śīlatvāt sarvamaya iti varṇayanti.
+
+*yaḥ*—que; *eṣaḥ*—esta; *ṣoḍaśa-kalaḥ*—con todas sus dieciséis partes (la Luna llena); *puruṣaḥ*—la persona; *bhagavān*—con gran poder, que ha recibido de la Suprema Personalidad de Dios; *manaḥ-mayaḥ*—la deidad regente de la mente; *anna-mayaḥ*—la fuente de la potencia de los cereales; *amṛta-mayaḥ*—la fuente de la sustancia de la vida; *deva*—de todos los semidioses; *pitṛ*—de todos los habitantes de Pitṛloka; *manuṣya*—todos los seres humanos; *bhūta*—todas las entidades vivientes; *paśu*—de los animales; *pakṣi*—de las aves; *sarīsṛpa*—de los reptiles; *vīrudhām*—de toda clase de hierbas y plantas; *prāṇa*—aire vital; *api*—ciertamente; *āyana-śīlatvāt*—debido a que refresca; *sarva-mayaḥ*—omnipresente; *iti*—así; *varṇayanti*—los sabios eruditos describen.
+
+**Por estar plena de potencias, la Luna representa la influencia de la Suprema Personalidad de Dios. Como deidad regente de todas las mentes, la Luna recibe el nombre de Manomaya. Otro de sus nombres, Annamaya, se debe a que da potencia a todas las hierbas y plantas; también se la llama Amṛtamaya, por ser fuente de vida para todas las entidades vivientes. La Luna complace a los semidioses, pitās, seres humanos, mamíferos, aves, reptiles, árboles, plantas y a todas las demás entidades vivientes. Su presencia satisface a todo el mundo. Por ello, recibe también el nombre de Sarvamaya [omnipresente].**

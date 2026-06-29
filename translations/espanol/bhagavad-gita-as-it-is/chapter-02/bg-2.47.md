@@ -1,0 +1,12 @@
+### Bg 2.47
+
+> karmaṇy evādhikāras te
+> mā phaleṣu kadācana
+> mā karma-phala-hetur bhūr
+> mā te saṅgo'stv akarmaṇi
+
+*karmaṇi*—deberes prescritos; *eva*—ciertamente; *adhikāraḥ*—derecho; *te*—de ti; *mā*—nunca; *phaleṣu*—en los frutos; *kadācana*—en ningún momento; *mā*—nunca; *karmaphala*—en el resultado del trabajo; *hetuḥ*—causa; *bhūḥ*—volverse; *mā*—nunca; *te*—de ti; *saṅgaḥ*—apego; *astu*—haber; *akarmaṇi*—en el no hacer.
+
+**Tienes derecho a desempeñar tu deber prescrito, mas no a los frutos de la acción. Nunca consideres ser la causa de los resultados de tus actividades y jamás te apegues al incumplimiento de tu deber.**
+
+Aquí hay tres consideraciones: los deberes prescritos, el trabajo caprichoso y la inacción. Los deberes prescritos se refieren a las actividades realizadas por alguien mientras está en las modalidades de la naturaleza material. Trabajo caprichoso quiere decir hacer acciones sin la sanción de la autoridad y la inacción significa la no ejecución de los deberes prescritos. El Señor aconsejó a Arjuna que no permaneciera inactivo, sino que desempeñara su deber prescrito sin tener apego al resultado. Aquel que se apega al resultado de su trabajo es también la causa de la acción. De este modo, él es quien disfruta y sufre el resultado de dichas acciones. En lo que concierne a los deberes prescritos, estos pueden clasificarse en tres subdivisiones, a saber, el trabajo rutinario, el trabajo de emergencia y las actividades deseadas. El trabajo rutinario, en función a los mandatos de las escrituras, se lleva a cabo sin deseo por los resultados. Ya que uno tiene que hacerlo, el trabajo obligatorio, es acción en la modalidad de la bondad. El trabajo con resultados causa el cautiverio; por lo tanto, ese trabajo no es auspicioso. Todo el mundo tiene su derecho de propiedad en relación a los deberes prescritos, pero debe actuar sin apego por el resultado; dichos deberes obligatorios desinteresados, conducen indudablemente al sendero de la liberación. Por lo tanto, el Señor aconsejó a Arjuna que luchara como una cuestión de deber, sin apego por el resultado. Su abstención de participar en la batalla es otro aspecto del apego. Dicho apego nunca conduce al sendero de la salvación. Cualquier apego, positivo o negativo, es causa de cautiverio. La inacción es pecaminosa. Por lo tanto, el luchar como una cuestión de deber era para Arjuna el único sendero auspicioso hacia la salvación.

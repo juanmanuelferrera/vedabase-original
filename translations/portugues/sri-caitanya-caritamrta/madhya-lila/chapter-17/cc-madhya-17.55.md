@@ -1,0 +1,9 @@
+### CC Madhya 17.55
+
+vana dekhi' bhrama haya--ei 'vṛndāvana'
+
+śaila dekhi' mane haya--ei 'govardhana'
+
+*vana dekhi'*—vendo a floresta; *bhrama haya*—há ilusão; *ei*—esta; *vṛndāvana*—a floresta de Vṛndāvana; *śaila dekhi'*—vendo uma colina; *mane haya*—considera; *ei govardhana*—esta é a colina Govardhana.
+
+**Quando Śrī Caitanya Mahāprabhu atravessava a floresta de Jhārikhaṇḍa, tinha como certo que se tratava de Vṛndāvana. Quando passava sobre as colinas, tinha como certo que eram Govardhana.**

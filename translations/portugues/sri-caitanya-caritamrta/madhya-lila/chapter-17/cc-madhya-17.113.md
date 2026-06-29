@@ -1,0 +1,9 @@
+### CC Madhya 17.113
+
+jagat-maṅgala tāṅra 'kṛṣṇa-caitanya'-nāma
+
+nāma, rūpa, guṇa tāṅra, saba--anupama
+
+*jagat-maṅgala*—todo-auspicioso para o mundo inteiro; *tāṅra*—Seu; *kṛṣṇa-caitanya*—Śrī Kṛṣṇa Caitanya; *nāma*—nome; *nāma*—nome; *rūpa*—forma; *guṇa*—a qualidade; *tāṅra*—Seu; *saba*—tudo; *anupama*—incomparável.
+
+**"Seu nome, Kṛṣṇa Caitanya, é todo-auspicioso para o mundo. Tudo a Seu respeito – Seu nome, Sua forma e Suas qualidades – é incomparável.**

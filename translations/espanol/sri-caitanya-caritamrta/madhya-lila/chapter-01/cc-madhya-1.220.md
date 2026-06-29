@@ -1,0 +1,10 @@
+### CC Madhya 1.220
+
+> sabāra caraṇe dhari, paḍe dui bhāi
+> sabe bale,--dhanya tumi, pāile gosāñi
+
+*sabāra*—de todos ellos; *caraṇe*—los pies de loto; *dhari*—tocando; *paḍe*—se postran; *dui bhāi*—los dos hermanos; *sabe bale*—todos los *vaiṣṇavas* dicen; *dhanya tumi*—sois muy afortunados; *pāile gosāñi*—habéis obtenido el refugio de los pies de loto del Señor Caitanya Mahāprabhu.
+
+**Siguiendo las instrucciones de Śrī Caitanya Mahāprabhu, los dos hermanos, Rūpa y Sanātana, tocaron de inmediato los pies de loto de estos *vaiṣṇavas*, quienes se sintieron muy complacidos y felicitaron a ambos hermanos por haber recibido la misericordia del Señor.**
+
+Este comportamiento es indicativo de los verdaderos *vaiṣṇavas*. Al ver que Rūpa y Sanātana habían tenido la fortuna de recibir la misericordia del Señor, se sintieron tan complacidos que felicitaron a los dos hermanos. Una persona celosa con vestimenta de *vaiṣṇava* no se alegra en absoluto al ver el éxito de otro *vaiṣṇava* que recibe la misericordia del Señor. Por desgracia, en esta era de Kali hay muchas personas mundanas con vestimenta de *vaiṣṇavas*, y Śrīla Bhaktivinoda Ṭhākura las ha descrito como discípulos de Kali. Dice: kali-celā. Indica que existe otro *vaiṣṇava*, un pseudo *vaiṣṇava* con tilaka en la nariz y cuentas de kaṇṭhī alrededor del cuello. Tal pseudo *vaiṣṇava* se asocia con el dinero y las mujeres, y tiene envidia de los *vaiṣṇavas* exitosos. Aunque pasa por *vaiṣṇava*, su único negocio es ganar dinero con vestimenta de *vaiṣṇava*. Bhaktivinoda Ṭhākura dice, por lo tanto, que tal pseudo *vaiṣṇava* no es en absoluto un *vaiṣṇava*, sino un discípulo del Kali-yuga. Un discípulo de Kali no puede convertirse en *ācārya* por decisión de algún tribunal supremo. Los votos mundanos no tienen jurisdicción para elegir a un *ācārya* *vaiṣṇava*. Un *ācārya* *vaiṣṇava* es autoefulgente, y no hay necesidad de ningún fallo judicial. Un *ācārya* falso puede intentar imponerse sobre un *vaiṣṇava* mediante una decisión de un tribunal supremo, pero Bhaktivinoda Ṭhākura dice que no es más que un discípulo del Kali-yuga.

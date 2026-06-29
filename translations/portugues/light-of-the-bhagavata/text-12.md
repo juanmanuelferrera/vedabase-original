@@ -1,0 +1,5 @@
+### 12
+
+**As montanhas, embora atingidas por torrentes de chuva durante a estação das chuvas, não se abalam, assim como aqueles cujos corações estão dedicados à transcendental Personalidade de Deus jamais se perturbam, mesmo quando assediados por grande infortúnio.**
+
+Como uma pessoa que é espiritualmente avançada aceita qualquer condição adversa da vida como a misericórdia do Senhor, ela está plenamente apta a ingressar no reino espiritual. Ainda que uma pessoa adote o serviço devocional ao Senhor Supremo, ela pode, às vezes, ficar doente, empobrecida ou desapontada pelos acontecimentos da vida. Um verdadeiro devoto do Senhor sempre considera que esses sofrimentos se devem a atividades pecaminosas passadas e, assim, sem se perturbar, aguarda pacientemente a misericórdia do Senhor Supremo. Tais devotos são comparados às elevadas montanhas, que jamais se agitam de modo algum, mesmo quando atingidas por poderosas torrentes de chuva na estação das chuvas. Pelo contrário, permanecem humildes na iluminação espiritual. Livres do orgulho e da inveja, alcançam com facilidade a misericórdia do Senhor e voltam ao lar, de volta ao Supremo.

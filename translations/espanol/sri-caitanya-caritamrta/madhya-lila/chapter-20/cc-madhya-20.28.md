@@ -1,0 +1,8 @@
+### CC Madhya 20.28
+
+> rāja-bandī āmi, gada-dvāra yāite nā pāri
+> puṇya habe, parvata āmā deha' pāra kari"
+
+*rāja-bandī*—un prisionero del gobierno; *āmi*—yo; *gaḍa-dvāra yāite*—ir abiertamente por el camino junto a las murallas; *nā pāri*—no puedo; *puṇya*—actividad piadosa; *habe*—habrá; *parvata*—la zona montañosa; *āmā*—a mí; *deha'*—prestad ayuda; *pāra kari*—cruzando.
+
+**»Soy un prisionero del gobierno y no puedo ir por el camino de las murallas. Será muy piadoso de vuestra parte tomar este dinero y ayudarme a cruzar esta zona montañosa.»**

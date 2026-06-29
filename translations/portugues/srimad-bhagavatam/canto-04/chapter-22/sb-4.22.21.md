@@ -1,0 +1,15 @@
+### SB 4.22.21
+
+śāstreṣv iyān eva suniścito nṛṇāṁ
+
+*kṣemasya sadhryag*-vimṛśeṣu hetuḥ
+
+*asaṅga ātma*-vyatirikta ātmani
+
+dṛḍhā ratir brahmaṇi nirguṇe ca yā
+
+*śāstreṣu*—nas escrituras; *iyān eva*—isso é somente; *su-niścitaḥ*—positivamente concluído; *nṛṇām*—da sociedade humana; *kṣemasya*—do bem-estar último; *sadhryak*—perfeitamente; *vimṛśeṣu*—com plena consideração; *hetuḥ*—causa; *asaṅgaḥ*—desapego; *ātma-vyatirikte*—o conceito corporal da vida; *ātmani*—à Alma Suprema; *dṛḍhā*—forte; *ratiḥ*—apego; *brahmaṇi*—Transcendência; *nirguṇe*—no Supremo, que está além dos modos materiais; *ca*—e; *yā*—que.
+
+**Decidiu-se conclusivamente nas escrituras, após a devida consideração, que a meta última para o bem-estar da sociedade humana é o desapego do conceito corporal da vida e o apego crescente e firme à Suprema Personalidade de Deus, que é transcendental e está além dos modos da natureza material.**
+
+Todos na sociedade humana ocupam-se em busca do benefício último da vida, mas as pessoas que estão no conceito corporal não podem alcançar a meta última, nem conseguem compreender o que ela é. A meta última da vida é descrita no Bhagavad-gītā. Paraṁ dṛṣṭvā nivartate (Bg. 2.59). Quando a pessoa descobre a meta suprema da vida, naturalmente se desapega do conceito corporal. Aqui, neste verso, a indicação é que se deve aumentar com firmeza o apego à Transcendência (brahmaṇi). Como se confirma no Vedānta-sūtra, athāto brahma jijñāsā (Vs. 1.1.1): sem indagar acerca do Supremo ou da Transcendência, ninguém pode abandonar o apego a este mundo material. Pelo processo evolutivo nas 8.400.000 espécies de vida, ninguém pode compreender a meta última da vida, porque, em todas essas espécies de vida, o conceito corporal é muito proeminente. Athāto brahma jijñāsā significa que, para sair do conceito corporal, a pessoa deve aumentar o apego ou a indagação acerca do Brahman. Então ela pode situar-se no transcendental serviço devocional — śravaṇaṁ kīrtanaṁ viṣṇoḥ. Aumentar o apego ao Brahman significa ocupar-se em serviço devocional. Aqueles que estão apegados à forma impessoal do Brahman não conseguem permanecer apegados por muito tempo. Os impersonalistas, após rejeitarem este mundo como mithyā, ou falso (jagan mithyā), descem novamente a este jagan mithyā, embora tomem sannyāsa para aumentar seu apego ao Brahman. De modo semelhante, muitos yogīs que estão apegados ao aspecto localizado do Brahman como Paramātmā — grandes sábios como Viśvāmitra — também caem como vítimas das mulheres. Por isso, o apego crescente à Suprema Personalidade de Deus é recomendado em todos os śāstras. Esse é o único modo de desapego da existência material e é explicado no Bhagavad-gītā como paraṁ dṛṣṭvā nivartate (Bg. 2.59). A pessoa pode cessar as atividades materiais quando realmente tem o gosto pelo serviço devocional. Śrī Caitanya Mahāprabhu também recomendou o amor a Deus como a meta última da vida (premā pumārtho mahān). Sem aumentar o amor a Deus, ninguém pode alcançar a fase de perfeição ou a posição transcendental.

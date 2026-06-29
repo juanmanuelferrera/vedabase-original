@@ -1,0 +1,9 @@
+### CC Madhya 20.52
+
+prabhu-sparśe premāviṣṭa ha-ilā sanātana
+
+'more nā chuṅiha'--kahe gadgada-vacana
+
+*prabhu-sparśe*—pelo toque de Śrī Caitanya Mahāprabhu; *prema-āviṣṭa*—dominado pelo amor extático; *ha-ilā*—ficou; *sanātana*—Sanātana Gosvāmī; *more*—em mim; *nā*—não; *chuṅiha*—toques; *kahe*—diz; *gadgada-vacana*—com voz embargada.
+
+**Tão logo Śrī Caitanya Mahāprabhu tocou Sanātana Gosvāmī, Sanātana também ficou dominado pelo amor extático. Com voz embargada, ele disse: "Ó meu Senhor, não me toques."**

@@ -1,0 +1,8 @@
+### CC Madhya 12.2
+
+> jaya jaya gauracandra jaya nityānanda
+> jayādvaita-candra jaya gaura-bhakta-vṛnda
+
+*jaya jaya*—¡todas las glorias!; *gauracandra*—a Gauracandra, el Señor Śrī Caitanya Mahāprabhu; *jaya*—¡todas las glorias!; *nityānanda*—a Nityānanda Prabhu; *jaya*—¡todas las glorias!; *advaita-candra*—a Advaita Prabhu; *jaya*—¡todas las glorias!; *gaura-bhakta-vṛnda*—a los devotos del Señor Caitanya Mahāprabhu.
+
+**¡Todas las glorias a Gauracandra! ¡Todas las glorias a Nityānanda! ¡Todas las glorias a Advaitacandra! ¡Y todas las glorias a los devotos del Señor Śrī Caitanya Mahāprabhu!**

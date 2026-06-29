@@ -1,0 +1,8 @@
+### CC Madhya 10.38
+
+> tabe sārvabhauma prabhura dakṣiṇa-pārśve vasi'
+> milāite lāgilā saba puruṣottama-vāsī
+
+*tabe*—a continuación; *sārvabhauma*—Sārvabhauma; *prabhura*—de Śrī Caitanya Mahāprabhu; *dakṣiṇa-pārśve*—al lado derecho; *vasi'*—sentándose; *milāite*—para presentar; *lāgilā*—comenzó; *saba*—a todos; *puruṣottama-vāsī*—los residentes de Puruṣottama (Jagannātha Purī).
+
+**Acto seguido, Sārvabhauma Bhaṭṭācārya, sentado a la derecha del Señor, comenzó a presentar a todos los habitantes de Puruṣottama, Jagannātha Purī.**

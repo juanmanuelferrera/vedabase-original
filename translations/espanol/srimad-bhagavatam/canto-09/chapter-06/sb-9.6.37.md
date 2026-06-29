@@ -1,0 +1,10 @@
+### SB 9.6.37
+
+> yāvat sūrya udeti sma
+> yāvac ca pratitiṣṭhati
+> tat sarvaṁ yauvanāśvasya
+> māndhātuḥ kṣetram ucyate
+
+*yāvat*—tanto como; *sūryaḥ*—el Sol; *udeti*—ha salido por el horizonte; *sma*—en el pasado; *yāvat*—tanto como; *ca*—también; *pratitiṣṭhati*—continúa y permanece; *tat*—todo lo antes mencionado; *sarvam*—todo; *yauvanāśvasya*—del hijo de Yuvanāśva; *māndhātuḥ*—llamado Māndhātā; *kṣetram*—lugar; *ucyate*—se dice que era.
+
+**Las propiedades de Māndhātā, el hijo de Yuvanāśva, se extendían desde el horizonte en que se divisa el primer resplandor del Sol hasta el lugar por donde se oculta.**

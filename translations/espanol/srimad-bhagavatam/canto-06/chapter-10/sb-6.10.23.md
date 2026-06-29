@@ -1,0 +1,10 @@
+### SB 6.10.23
+
+> śūlaiḥ paraśvadhaiḥ khaḍgaiḥ
+> śataghnībhir bhuśuṇḍibhiḥ
+> sarvato 'vākiran śastrair
+> astraiś ca vibudharṣabhān
+
+*śūlaiḥ*—con lanzas; *paraśvadhaih*—con hachas; *khaḍgaiḥ*—con espadas; *śataghnībhiḥ*—con *śataghnīs, bhuśuṇḍibhiḥ*—con *bhuśuṇḍis*; *sarvataḥ*—por todas partes; *avākiran*—dispersaron; *śastraiḥ*—con armas; *astraiḥ*—con flechas; *ca*—y; *vibudha-ṛṣabhān*—a los jefes de los semidioses.
+
+**Empuñando lanzas, tridentes, hachas, espadas y otras armas, como śataghnīs y bhuśuṇḍis, los demonios atacaron en distintas direcciones y dispersaron a los jefes de los ejércitos de los semidioses.**

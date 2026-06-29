@@ -1,0 +1,11 @@
+### SB 5.14.26
+
+*kvacin mitho vyavaharan yat kiñcid dhanam anyebhyo vā kākiṇikā*-mātram apy apaharan yat kiñcid vā vidveṣam eti vitta-śāṭhyāt.
+
+*kvacit*—às vezes; *mithaḥ*—uns com os outros; *vyavaharan*—negociando; *yat kiñcit*—qualquer pouquinho; *dhanam*—dinheiro; *anyebhyaḥ*—de outros; *vā*—ou; *kākiṇikā-mātram*—uma quantia muito pequena (vinte búzios); *api*—certamente; *apaharan*—tomando à força pela trapaça; *yat kiñcit*—qualquer pequena quantia; *vā*—ou; *vidveṣam eti*—cria inimizade; *vitta-śāṭhyāt*—por causa da trapaça.
+
+**No que se refere às transações com dinheiro, se uma pessoa trapaceia outra por uma pequena moeda ou menos, elas se tornam inimigas.**
+
+Isso se chama *saṁsāra-dāvānala*. Mesmo nas transações comuns entre duas pessoas, invariavelmente há trapaça, porque a alma condicionada é defeituosa de quatro maneiras: está iludida, comete enganos, seu conhecimento é imperfeito e tem propensão a trapacear. A menos que se liberte do condicionamento material, esses quatro defeitos devem estar presentes. Em consequência, todo homem tem propensão a trapacear, que é empregada nos negócios ou nas transações monetárias. Embora dois amigos possam viver pacificamente juntos, devido à sua propensão a trapacear, tornam-se inimigos quando há uma transação entre eles. Um filósofo acusa um economista de ser trapaceiro, e um economista pode acusar um filósofo de ser trapaceiro quando este entra em contato com dinheiro. Em qualquer caso, esta é a condição da vida material. Pode-se professar uma filosofia elevada, mas, quando se precisa de dinheiro, torna-se trapaceiro. Neste mundo material, os supostos cientistas, filósofos e economistas nada mais são que trapaceiros de uma maneira ou de outra. Os cientistas são trapaceiros porque apresentam tantas coisas espúrias em nome da ciência. Eles propõem ir à lua, mas, na verdade, acabam trapaceando todo o público de grandes somas de dinheiro para seus experimentos. Não conseguem fazer nada útil. A menos que se possa encontrar uma pessoa transcendental aos quatro defeitos básicos, não se deve aceitar conselhos e tornar-se vítima da condição material. O melhor processo é aceitar o conselho e as instruções de Śrī Kṛṣṇa ou de Seu representante genuíno. Dessa maneira, pode-se ser feliz nesta vida e na próxima.
+
+---

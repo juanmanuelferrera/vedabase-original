@@ -1,0 +1,16 @@
+### SB 4.21.23
+
+> tasya me tad-anuṣṭhānād
+> yān āhur brahma-vādinaḥ
+> lokāḥ syuḥ kāma-sandohā
+> yasya tuṣyati diṣṭa-dṛk
+
+*tasya*—sus; *me*—mis; *tat*—eso; *anuṣṭhānāt*—con la ejecución; *yān*—lo que; *āhuḥ*—dicho; *brahma-vādinaḥ*—por los expertos en conocimiento védico; *lokāḥ*—planetas; *syuḥ*—se vuelve; *kāma-sandohāḥ*—cumpliendo los objetivos deseados; *yasya*—cuyos; *tuṣyati*—se satisface; *diṣṭa-dṛk*—el observador de todo destino.
+
+**Mahārāja Pṛthu dijo: Creo que con la ejecución de mis deberes como rey podré obtener los atractivos resultados que describen los expertos en conocimiento védico. Ciertamente, ese objetivo se obtiene al complacer a la Suprema Personalidad de Dios, que es quien observa los destinos de todos.**
+
+Mahārāja Pṛthu hace especial hincapié en la palabra brahma-vādinaḥ («por los expertos en el conocimiento Védico»). Brahma se refiere a los Vedas, que también se conocen como śabda-brahma, o sonido trascendental. El sonido trascendental no es lenguaje ordinario, aunque parezca estar escrito en lenguaje ordinario. La evidencia de la literatura Védica debe aceptarse como autoridad final. En la literatura Védica hay mucha información y, desde luego, hay información sobre la ejecución del deber de un rey. Un rey responsable que ejecuta el deber que se le ha asignado, dando la debida protección a todas las entidades vivientes de su planeta, es promovido al sistema planetario celestial. Esto también depende del placer del Señor Supremo. No es que por ejecutar correctamente su deber uno sea automáticamente promovido, pues la promoción depende de la satisfacción de la Suprema Personalidad de Dios. En última instancia, debe concluirse que uno puede alcanzar el resultado deseado de sus actividades al satisfacer al Señor Supremo. Esto también se confirma en el Segundo Capítulo del Primer Canto del Śrīmad-Bhāgavatam:
+
+ataḥ pumbhir dvija-śreṣṭhā varṇāśrama-vibhāgaśaḥ svanuṣṭhitasya dharmasya saṁsiddhir hari-toṣaṇam.
+
+La perfección de la ejecución de los deberes asignados a uno es la satisfacción suprema del Señor Supremo. La palabra kāma-sandohāḥ significa «el logro del resultado deseado». Todos desean alcanzar la meta última de la vida, pero en la civilización moderna los grandes científicos piensan que la vida del hombre no tiene plan alguno. Esta crasa ignorancia es muy peligrosa y hace que la civilización resulte muy arriesgada. La gente no conoce las leyes de la naturaleza, que son los dictámenes de la Suprema Personalidad de Dios. Como son ateos de primer orden, no tienen fe en la existencia de Dios y en Sus dictámenes y, por lo tanto, no saben cómo actúa la naturaleza. Esta crasa ignorancia de las masas, que incluye incluso a los supuestos científicos y filósofos, hace de la vida una situación arriesgada en la cual los seres humanos no saben si están progresando en la vida o no. Según el Śrīmad-Bhāgavatam, simplemente progresan hacia la región más oscura de la existencia material. Adānta-gobhir viśatāṁ tamisram (Bhāg. 7.5.30). Por eso se ha iniciado el movimiento para la conciencia de Kṛṣṇa, a fin de dar a los filósofos, científicos y a la gente en general el conocimiento adecuado acerca del destino de la vida. Todos deberían aprovechar este movimiento y aprender la verdadera meta de la vida.

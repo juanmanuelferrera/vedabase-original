@@ -1,0 +1,8 @@
+### CC Madhya 14.124
+
+> prabhu kahe,-yātrā-chale kṛṣṇera gamana
+> subhadrā āra baladeva, saṅge dui jana
+
+*prabhu kahe*—Śrī Caitanya Mahāprabhu dijo; *yātrā-chale*—con el pretexto del festival de las carrozas; *kṛṣṇera*—del Señor Kṛṣṇa; *gamana*—partida; *subhadrā*—Su hermana; *āra*—y; *baladeva*—Su hermano; *saṅge*—con Él; *dui jana*—dos personas.
+
+**El Señor dijo: «Con el pretexto del festival de las carrozas, Kṛṣṇa va allí con Subhadrā y Baladeva.**

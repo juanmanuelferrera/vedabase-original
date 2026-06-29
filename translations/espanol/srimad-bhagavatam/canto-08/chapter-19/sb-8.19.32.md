@@ -1,0 +1,12 @@
+### SB 8.19.32
+
+> eṣa te sthānam aiśvaryaṁ
+> śriyaṁ tejo yaśaḥ śrutam
+> dāsyaty ācchidya śakrāya
+> māyā-māṇavako hariḥ
+
+*eṣaḥ*—esa persona con falso aspecto de *brahmacārī*; *te*—de ti; *sthānam*—la tierra que posees; *aiśvaryam*—las riquezas; *śriyam*—la belleza material; *tejaḥ*—el poder material; *yaśaḥ*—la reputación; *śrutam*—la educación; *dāsyati*—dará; *ācchidya*—quitándote; *śakrāya*—a tu enemigo, el señor Indra; *māyā*—con el engañoso aspecto; *māṇavakaḥ*—un*brahmacārī* hijo de un ser vivo; *hariḥ*—en realidad es la Suprema Personalidad de Dios, Hari.
+
+**Este brahmacārī de engañoso aspecto es, en realidad, la Suprema Personalidad de Dios, Hari, que ha venido en esa forma para quitarte todas tus tierras, tu riqueza, y tu belleza, poder, fama y educación. Cuando te lo haya quitado todo, se lo dará a Indra, tu enemigo.**
+
+En relación con esto, Śrīla Viśvanātha Cakravartī Ṭhākura explica que la misma palabra *hariḥ* significa «el que quita». El Señor, Hari, la Suprema Personalidad de Dios, quita todos los sufrimientos a la persona que entra en contacto con Él; además, al principio podría parecer que también le quita todas sus posesiones materiales, la fama, la educación y la belleza. Como se afirma en el *Śrīmad-Bhāgavatam* (10.88.8): *yasyāham anugṛhṇāmi hariṣye tad-dhanaṁ śanaiḥ*. El Señor dijo a Mahārāja Yudhiṣṭhira: «La primera manifestación de Mi misericordia hacia un devoto es que le privo de todas sus posesiones, y, en especial, de su opulencia material, su dinero». Ese es el favor especial del Señor para con el devoto sincero. Si un devoto es sincero y quiere a Kṛṣṇa por encima de todo, pero al mismo tiempo está apegado a las posesiones materiales, que suponen un obstáculo en su cultivo de conciencia de Kṛṣṇa, el Señor recurre a diversas tácticas y le despoja de todas sus posesiones. En este verso, Śukrācārya dice que el enano *brahmacārī* va a llevárselo todo. Con esas palabras, indica que el Señor nos quita todas nuestras posesiones materiales, así como nuestra mente. Quien entrega su mente a los pies de loto de Kṛṣṇa (*sa vai manaḥ kṛṣṇa-padāravindayoḥ*), de forma natural puede sacrificarlo todo por satisfacerle. Bali Mahārāja, a pesar de ser un devoto, estaba apegado a las posesiones materiales. Por esa razón, el Señor Se mostró muy bondadoso con él y, favoreciéndole de modo especial, apareció en la forma del Señor Vāmana para llevarse todas sus posesiones materiales, además de su mente.

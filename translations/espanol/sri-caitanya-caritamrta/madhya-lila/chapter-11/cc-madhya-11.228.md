@@ -1,0 +1,8 @@
+### CC Madhya 11.228
+
+> āra sampradāye nāce paṇḍita-vakreśvara
+> śrīvāsa nāce āra sampradāya-bhitara
+
+*āra sampradāye*—en otro sampradāya, o grupo; *nāce*—danza; *paṇḍita-vakreśvara*—Vakreśvara Paṇḍita; *śrīvāsa*—Śrīvāsa Ṭhākura; *nāce*—danza; *āra*—otro; *sampradāya-bhitara*—en medio de un grupo.
+
+**Vakreśvara Paṇḍita comenzó a danzar en otro grupo, y en otro grupo más, Śrīvāsa Ṭhākura comenzó a danzar.**

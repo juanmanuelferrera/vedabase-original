@@ -1,0 +1,8 @@
+### CC Madhya 8.34
+
+> sārvabhaume tomāra kṛpā,--tāra ei cihna
+> aspṛśya sparśile hañā tāṅra premādhīna
+
+*sārvabhaume*—a Sārvabhauma Bhaṭṭācārya; *tomāra*—Vuestra; *kṛpā*—misericordia; *tāra*—de tal misericordia; *ei*—este; *cihna*—el síntoma; *aspṛśya*—intocable; *sparśile*—habéis tocado; *hañā*—habiéndoos vuelto; *tāṅra*—de su; *prema-adhīna*—influenciado por el amor.
+
+**»Puedo ver que habéis otorgado misericordia especial a Sārvabhauma Bhaṭṭācārya. De ahí que me hayáis tocado, aunque soy intocable. Esto se debe únicamente a su amor por Vos.**

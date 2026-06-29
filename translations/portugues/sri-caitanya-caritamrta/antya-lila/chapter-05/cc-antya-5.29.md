@@ -1,0 +1,9 @@
+### CC Antya 5.29
+
+"bahu-kṣaṇa āilā, more keha nā kahila
+
+tomāra caraṇe mora aparādha ha-ila
+
+*bahu-kṣaṇa*—há muito tempo; *āilā*—chegaste; *more*—a mim; *keha nā kahila*—ninguém informou; *tomāra caraṇe*—a teus pés de lótus; *mora*—minha; *aparādha*—ofensa; *ha-ila*—houve.
+
+**"Senhor, chegaste aqui há muito tempo, mas ninguém me informou. Por isso, certamente tornei-me um ofensor a teus pés de lótus.**

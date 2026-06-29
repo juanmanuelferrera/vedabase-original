@@ -1,0 +1,10 @@
+### CC Adi 7.149
+
+> sei haite sannyāsīra phiri gela mana
+> 'kṛṣṇa' 'kṛṣṇa' nāma sadā karaye grahaṇa
+
+*sei haite*—desde aquel momento; *sannyāsīra*—de todos los *sannyāsīs* māyāvādīs; *phiri*—dieron un giro; *gela*—se volvió; *mana*—mente; *kṛṣṇa kṛṣṇa*—el santo nombre de la Suprema Personalidad de Dios, Kṛṣṇa; *nāma*—nombre; *sadā*—siempre; *karaye*—hacen; *grahaṇa*—aceptar.
+
+**Desde el momento en que los *sannyāsīs* māyāvādīs escucharon la explicación del *Vedānta-sūtra* del Señor, sus mentes cambiaron, y por instrucción de Caitanya Mahāprabhu, ellos también cantaron «¡Kṛṣṇa! ¡Kṛṣṇa!» siempre.**
+
+En este contexto puede mencionarse que a veces la clase *sahajiyā* de devotos opina que Prakāśānanda Sarasvatī y Prabodhānanda Sarasvatī son la misma persona. Prabodhānanda Sarasvatī fue un gran devoto vaiṣṇava del Señor Caitanya Mahāprabhu, pero Prakāśānanda Sarasvatī, el líder de los *sannyāsīs* māyāvādīs en Benarés, era una persona distinta. Prabodhānanda Sarasvatī pertenecía a la *Rāmānuja-sampradāya*, mientras que Prakāśānanda Sarasvatī pertenecía a la *Śaṅkarācārya-sampradāya*. Prabodhānanda Sarasvatī escribió diversas obras, entre las que se encuentran el *Caitanya-candrāmṛta*, el *Rādhā-rasa-sudhā-nidhi*, el *Saṅgīta-mādhava*, el *Vṛndāvana-śataka* y el *Navadvīpa-śataka*. Mientras viajaba por el sur de la India, Caitanya Mahāprabhu conoció a Prabodhānanda Sarasvatī, quien tenía dos hermanos, Veṅkaṭa Bhaṭṭa y Tirumalaya Bhaṭṭa, que eran vaiṣṇavas de la *Rāmānuja-sampradāya*. Gopāla Bhaṭṭa Gosvāmī era sobrino de Prabodhānanda Sarasvatī. Los registros históricos indican que Śrī Caitanya Mahāprabhu viajó por el sur de la India en el año 1433 *śakābda* (1511 d. C.) durante el período de *Cāturmāsya*, y fue en aquella ocasión cuando conoció a Prabodhānanda, que pertenecía a la *Rāmānuja-sampradāya*. ¿Cómo podría entonces la misma persona encontrarse con Él como miembro de la *Śaṅkara-sampradāya* en 1435 *śakābda*, dos años después? Ha de concluirse que la conjetura de la *sahijiyā-sampradāya* de que Prabodhānanda Sarasvatī y Prakāśānanda Sarasvatī eran la misma persona es una idea errónea.

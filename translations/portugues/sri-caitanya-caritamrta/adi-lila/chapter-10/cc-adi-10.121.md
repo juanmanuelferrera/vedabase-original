@@ -1,0 +1,9 @@
+### CC Adi 10.121
+
+gauḍa-deśa-bhaktera kaila saṅkṣepa kathana
+
+ananta caitanya-bhakta nā yāya gaṇana
+
+*gauḍa-deśa*—em Bengala; *bhaktera*—dos devotos; *kaila*—descrevi; *saṅkṣepa*—em breve; *kathana*—narração; *ananta*—ilimitados; *caitanya-bhakta*—devotos do Senhor Caitanya; *nā*—não; *yāya*—podem ser; *gaṇana*—contados.
+
+**Fiz uma breve descrição dos devotos do Senhor Caitanya em Bengala. Na verdade, Seus devotos são inumeráveis.**

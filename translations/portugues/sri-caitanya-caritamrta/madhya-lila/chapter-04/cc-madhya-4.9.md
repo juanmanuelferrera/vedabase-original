@@ -1,0 +1,8 @@
+### CC Madhya 4.9
+
+ataeva tāṅra pāye kari namaskāra
+tāṅra pāya aparādha nā ha-uk āmāra
+
+*ataeva*—portanto; *tāṅra pāye*—a seus pés de lótus; *kari*—eu faço; *namaskāra*—reverências; *tāṅra pāya*—aos pés de lótus de Vṛndāvana dāsa Ṭhākura; *aparādha*—ofensa; *nā*—não; *ha-uk*—que aconteça; *āmāra*—minha.
+
+**Ofereço, assim, minhas respeitosas reverências aos pés de lótus de Vṛndāvana dāsa Ṭhākura. Espero não ofender seus pés de lótus com esta ação.**

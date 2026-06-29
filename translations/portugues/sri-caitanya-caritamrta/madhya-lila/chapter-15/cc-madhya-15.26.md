@@ -1,0 +1,9 @@
+### CC Madhya 15.26
+
+ei-mata nityānanda phirāya laguḍa
+
+ke bujhibe tāṅhā duṅhāra gopa-bhāva gūḍha
+
+*ei-mata*—dessa maneira; *nityānanda*—o Senhor Nityānanda Prabhu; *phirāya laguḍa*—faz girar uma vara; *ke*—quem; *bujhibe*—compreenderá; *tāṅhā*—ali; *duṅhāra*—de Ambos; *gopa-bhāva*—o êxtase dos vaqueirinhos; *gūḍha*—muito profundo.
+
+**Nityānanda Prabhu também Se divertiu a rodopiar a vara. Quem poderá compreender como Eles estavam extaticamente imersos nas profundas emoções dos vaqueirinhos?**

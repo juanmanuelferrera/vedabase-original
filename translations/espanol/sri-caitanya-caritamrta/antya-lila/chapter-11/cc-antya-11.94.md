@@ -1,0 +1,8 @@
+### CC Antya 11.94
+
+> kṛpā kari' kṛṣṇa more diyāchilā saṅga
+> svatantra kṛṣṇera icchā,--kailā saṅga-bhaṅga
+
+*kṛpā kari'*—siendo misericordioso; *kṛṣṇa*—el Señor Kṛṣṇa; *more*—a Mí; *diyāchilā saṅga*—concedió la asociación; *svatantra*—independiente; *kṛṣṇera*—del Señor Kṛṣṇa; *icchā*—deseo; *kailā saṅga-bhaṅga*—Él ha roto Mi asociación.
+
+**«Siendo misericordioso conmigo, Kṛṣṇa Me dio la asociación de Haridāsa Ṭhākura. Siendo independiente en Sus deseos, ahora Él ha roto esa asociación.»**

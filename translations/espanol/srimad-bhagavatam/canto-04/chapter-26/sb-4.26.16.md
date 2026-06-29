@@ -1,0 +1,14 @@
+### SB 4.26.16
+
+> kva vartate sā lalanā
+> majjantaṁ vyasanārṇave
+> yā mām uddharate prajñāṁ
+> dīpayantī pade pade
+
+*kva*—dónde; *vartate*—está ahora; *sā*—ella; *lalanā*—mujer; *majjantam*—cuando me estoy ahogando; *vyasana-arṇave*—en el océano del peligro; *yā*—quien; *mām*—a mí; *uddharate*—libera; *prajñām*—buena inteligencia; *dīpayantī*—iluminando; *pade pade*—a cada paso.
+
+**Por favor, indíquenme el paradero de esa hermosa mujer que siempre me salva cuando me estoy ahogando en el océano del peligro. Siempre me salva, iluminándome a cada paso con su inteligencia.**
+
+No hay diferencia entre una buena esposa y una buena inteligencia. Aquel que posee buena inteligencia puede deliberar adecuadamente y salvarse de muchas condiciones peligrosas. En la existencia material hay peligro a cada paso. En el *Śrīmad-Bhāgavatam* se dice: padaṁ padaṁ yad vipadāṁ na teṣām (Bhāg. 10.14.58). Este mundo material no es en realidad un lugar de residencia para una persona inteligente o un devoto, porque aquí hay peligro a cada paso. Vaikuṇṭha es el verdadero hogar del devoto, pues allí no hay ansiedad ni peligro. Buena inteligencia significa volverse consciente de Kṛṣṇa. En el *Caitanya-caritāmṛta* se dice: kṛṣṇa ye bhaje se baḍa catura. A menos que uno sea consciente de Kṛṣṇa, no se le puede llamar persona inteligente.
+
+Aquí vemos que el rey Purañjana buscaba a su buena esposa, que siempre lo ayudaba a salir de las situaciones peligrosas que siempre se presentan en la existencia material. Como ya se ha explicado, una verdadera esposa es la dharma-patnī. Es decir, a la mujer aceptada en matrimonio mediante una ceremonia ritual se le denomina dharma-patnī, lo cual significa que es aceptada conforme a los principios religiosos. Los hijos nacidos de la dharma-patnī, o de una mujer desposada conforme a los principios religiosos, heredan la propiedad del padre, pero los hijos nacidos de una mujer que no está debidamente desposada no heredan la propiedad del padre. La palabra dharma-patnī también se refiere a una esposa casta. Una esposa casta es aquella que nunca tuvo relación alguna con hombres antes de su matrimonio. Una vez que a una mujer se le da la libertad de mezclarse con toda clase de hombres en su juventud, le resulta muy difícil mantenerse casta. Por lo general, no puede permanecer casta. Cuando se acerca la mantequilla a la proximidad del fuego, se derrite. La mujer es como el fuego, y el hombre es como la mantequilla. Pero si uno obtiene una esposa casta, aceptada a través de un ritual matrimonial religioso, ella puede ser de gran ayuda cuando uno se ve amenazado por las muchas situaciones peligrosas de la vida. En realidad, esa esposa puede convertirse en la fuente de toda buena inteligencia. Con tan buena esposa, la ocupación de la familia en el servicio devocional del Señor hace que el hogar sea en verdad un gṛhastha-āśrama, o un hogar dedicado al cultivo espiritual.

@@ -1,0 +1,8 @@
+### CC Madhya 16.287
+
+> bhikṣāte paṇḍitera sneha, prabhura āsvādana
+> manuṣyera śaktye dui nā yāya varṇana
+
+*bhikṣāte*—al ofrecer alimento; *paṇḍitera*—de Gadādhara Paṇḍita; *sneha*—el afecto; *prabhura*—de Śrī Caitanya Mahāprabhu; *āsvādana*—el saborear; *manuṣyera*—de un ser humano corriente; *śaktye*—con la capacidad; *dui*—estas dos cosas; *nā yāya*—no es posible; *varṇana*—la descripción.
+
+**Ningún ser humano corriente podría describir el afectuoso ofrecimiento de alimento de Gadādhara Paṇḍita ni el modo en que Śrī Caitanya Mahāprabhu lo saboreó.**

@@ -1,0 +1,7 @@
+### CC Antya 3.186
+
+mukti' tuccha-phala haya nāmābhāsa haite
+
+*mukti*—liberação; *tuccha-phala*—resultado insignificante; *haya*—é; *nāma-ābhāsa haite*—de um vislumbre do despertar do canto sem ofensas do santo nome.
+
+**"A liberação é o resultado insignificante derivado de um vislumbre do despertar do canto sem ofensas do santo nome.**

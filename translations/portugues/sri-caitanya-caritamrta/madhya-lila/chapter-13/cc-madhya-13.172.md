@@ -1,0 +1,9 @@
+### CC Madhya 13.172
+
+bhāvodaya, bhāva-śānti, sandhi, śābalya
+
+sañcārī, sāttvika, sthāyī svabhāva-prābalya
+
+*bhāva-udaya*—despertar da emoção; *bhāva-śānti*—emoções de paz; *sandhi*—a junção de diferentes emoções; *śābalya*—mistura de todas as emoções; *sañcārī*—impulsos para todos os tipos de emoção; *sāttvika*—transcendental; *sthāyī*—predominante; *svabhāva*—emoção natural; *prābalya*—aumento.
+
+**Houve um aumento de todos os sintomas emocionais naturais. Assim, manifestaram-se emoções em despertar, em paz, conjugadas, mescladas, transcendentais e predominantes, bem como os impulsos para a emoção.**

@@ -1,0 +1,10 @@
+### CC Adi 10.51
+
+> cikitsā karena yāre ha-iyā sadaya
+> deha-roga bhāva-roga,--dui tāra kṣaya
+
+*cikitsā*—tratamiento médico; *karena*—practicaba; *yāre*—a quien; *ha-iyā*—siendo; *sadaya*—compasivo; *deha-roga*—la enfermedad del cuerpo; *bhāva-roga*—la enfermedad de la existencia material; *dui*—ambas; *tāra*—sus; *kṣaya*—se reducían.
+
+**Cuando Murāri Gupta trataba a sus pacientes, por su misericordia se les aliviaban tanto las enfermedades del cuerpo como las del espíritu.**
+
+Murāri Gupta podía tratar tanto las enfermedades corporales como las espirituales porque era médico de profesión y un gran devoto del Señor en cuanto a avance espiritual. Este es un ejemplo de servicio a la humanidad. Todos deben saber que en la sociedad humana existen dos clases de enfermedades. Una enfermedad, llamada *adhyātmika*, o enfermedad material, atañe al cuerpo, pero la enfermedad principal es la espiritual. La entidad viviente es eterna, pero de un modo u otro, al ponerse en contacto con la energía material, queda sujeta a la repetición de nacimiento, muerte, vejez y enfermedad. Los médicos de hoy deberían aprender de Murāri Gupta. Aunque los filántropos médicos de la actualidad abren hospitales gigantescos, no existen hospitales para curar la enfermedad material del alma espiritual. El movimiento para la conciencia de Kṛṣṇa ha emprendido la misión de curar esta enfermedad, pero la gente no lo aprecia mucho porque no sabe cuál es esta enfermedad. Una persona enferma necesita tanto la medicina adecuada como la dieta apropiada, y por ello el movimiento para la conciencia de Kṛṣṇa suministra a las personas afligidas materialmente la medicina del canto del santo nombre, o el mahā-mantra Hare Kṛṣṇa, y la dieta de *prasādam*. Hay muchos hospitales y clínicas médicas para curar las enfermedades del cuerpo, pero no hay tales hospitales para curar la enfermedad material del alma espiritual. Los centros del movimiento para la conciencia de Kṛṣṇa son los únicos hospitales establecidos que pueden curar al ser humano del nacimiento, la muerte, la vejez y la enfermedad.

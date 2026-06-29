@@ -1,0 +1,9 @@
+### SB 5.26.32
+
+*ye tv iha vā anāgaso 'raṇye grāme vā vaiśrambhakair upasṛtān upaviśrambhayya jijīviṣūn śūla*-sūtrādiṣūpaprotān krīḍanakatayā yātayanti te 'pi ca pretya yama-yātanāsu śūlādiṣu protātmānaḥ kṣut-tṛḍbhyāṁ cābhihatāḥ kaṅka-vaṭādibhiś cetas tatas tigma-tuṇḍair āhanyamānā ātma-śamalaṁ smaranti.
+
+*ye*—pessoas que; *tu*—mas; *iha*—nesta vida; *vā*—ou; *anāgasaḥ*—que são inocentes; *araṇye*—na floresta; *grāme*—na aldeia; *vā*—ou; *vaiśrambhakaiḥ*—por meio de boa-fé; *upasṛtān*—trazidos para perto; *upaviśrambhayya*—inspirando confiança; *jijīviṣūn*—que querem ser protegidos; *śūla-sūtra-ādiṣu*—em uma lança, linha e assim por diante; *upaprotān*—fixados; *krīḍanakatayā*—como brinquedo; *yātayanti*—causam dor; *te*—essas pessoas; *api*—certamente; *ca*—e; *pretya*—após morrerem; *yama-yātanāsu*—as perseguições de Yamarāja; *śūla-ādiṣu*—em lanças e assim por diante; *prota-ātmānaḥ*—cujos corpos estão fixados; *kṣut-tṛḍbhyām*—pela fome e sede; *ca*—também; *abhihatāḥ*—dominados; *kaṅka-vaṭa-ādibhiḥ*—por aves como garças e abutres; *ca*—e; *itaḥ tataḥ*—aqui e ali; *tigma-tuṇḍaiḥ*—com bicos pontiagudos; *āhanyamānāḥ*—sendo torturados; *ātma-śamalam*—suas próprias atividades pecaminosas; *smaranti*—eles lembram.
+
+**Nesta vida, algumas pessoas dão abrigo a animais e aves que vão a elas em busca de proteção na aldeia ou na floresta e, depois de fazê-los acreditar que serão protegidos, tais pessoas os trespassam com lanças ou linhas e brincam com eles como se fossem brinquedos, causando-lhes grande dor. Após a morte, tais pessoas são levadas pelos assistentes de Yamarāja ao inferno conhecido como Śūlaprota, onde seus corpos são trespassados com lanças afiadas semelhantes a agulhas. Sofrem de fome e sede, e aves de bicos pontiagudos, como abutres e garças, vêm sobre eles de todos os lados para dilacerar-lhes os corpos. Torturados e sofrendo, podem então recordar-se das atividades pecaminosas que cometeram no passado.**
+
+---

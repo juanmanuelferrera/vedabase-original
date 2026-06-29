@@ -1,0 +1,8 @@
+### CC Antya 8.56
+
+> rāmacandra-purīke sabāya deya tiraskāra
+> 'ei pāpiṣṭha āsi' prāṇa la-ila sabāra'
+
+*rāmacandra-purīke*—a Rāmacandra Purī; *sabāya*—todos los devotos; *deya tiraskāra*—ofrecen reprimenda; *ei pāpiṣṭha*—este hombre pecaminoso; *āsi'*—al venir; *prāṇa*—la vida; *la-ila*—ha quitado; *sabāra*—de todos.
+
+**Todos los devotos condenaron a Rāmacandra Purī diciendo: «Este hombre pecaminoso ha venido aquí y nos ha quitado la vida».**

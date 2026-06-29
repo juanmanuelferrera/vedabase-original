@@ -1,0 +1,11 @@
+### SB 5.16.10
+
+*tathaivelāvṛtam apareṇa pūrveṇa ca mālyavad*-gandhamādanāv ānīla-niṣadhāyatau dvi-sahasraṁ paprathatuḥ ketumāla-bhadrāśvayoḥ sīmānaṁ vidadhāte.
+
+*tathā eva*—exatamente assim; *ilāvṛtam apareṇa*—no lado ocidental de Ilāvṛta-varṣa; *pūrveṇa ca*—e no lado oriental; *mālyavad-gandha-mādanau*—as montanhas demarcadoras de Mālyavān a oeste e Gandhamādana a leste; *ā-nīla-niṣadha-āyatau*—no lado norte até a montanha conhecida como Nīla e no lado sul até a montanha conhecida como Niṣadha; *dvi-sahasram*—dois mil yojanas; *paprathatuḥ*—elas se estendem; *ketumāla-bhadrāśvayoḥ*—dos dois *varṣas* chamados Ketumāla e Bhadrāśva; *sīmānam*—a fronteira; *vidadhāte*—estabelecem.
+
+**De maneira semelhante, a oeste e a leste de Ilāvṛta-varṣa há duas grandes montanhas chamadas Mālyavān e Gandhamādana, respectivamente. Essas duas montanhas, que têm 2.000 yojanas [26.000 quilômetros] de altura, estendem-se até a Montanha Nīla, ao norte, e Niṣadha, ao sul. Elas indicam as fronteiras de Ilāvṛta-varṣa e também dos *varṣas* conhecidos como Ketumāla e Bhadrāśva.**
+
+Há tantas montanhas mesmo neste planeta Terra. Não pensamos que as medidas de todas elas tenham sido de fato calculadas. Ao sobrevoarmos a região montanhosa do México a Caracas, vimos efetivamente tantas montanhas que duvidamos que sua altura, comprimento e largura tenham sido devidamente medidos. Assim sendo, como Śukadeva Gosvāmī indica no *Śrīmad-Bhāgavatam*, não devemos tentar compreender as maiores áreas montanhosas do universo apenas por meio de nossos cálculos. Śukadeva Gosvāmī já afirmou que tais cálculos seriam muito difíceis mesmo que se tivesse uma duração de vida como a de Brahmā. Devemos simplesmente contentar-nos com as declarações de autoridades como Śukadeva Gosvāmī e apreciar como a manifestação cósmica inteira foi tornada possível pela energia externa da Suprema Personalidade de Deus. As medidas aqui apresentadas, tais como 10.000 yojanas ou 100.000 yojanas, devem ser consideradas corretas porque foram dadas por Śukadeva Gosvāmī. Nosso conhecimento experimental não pode verificar nem refutar as declarações do *Śrīmad-Bhāgavatam*. Devemos simplesmente ouvir essas declarações das autoridades. Se conseguirmos apreciar a extensa energia da Suprema Personalidade de Deus, isso nos será benéfico.
+
+---

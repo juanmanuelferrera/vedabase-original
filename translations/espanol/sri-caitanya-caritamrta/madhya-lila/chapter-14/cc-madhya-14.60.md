@@ -1,0 +1,8 @@
+### CC Madhya 14.60
+
+> dekhiyā pratāparudra pātra-mitra-saṅge
+> prabhura mahimā dekhi' preme phule aṅge
+
+*dekhiyā*—al ver; *pratāparudra*—el rey Pratāparudra; *pātra-mitra-saṅge*—con sus ministros y amigos; *prabhura*—de Śrī Caitanya Mahāprabhu; *mahimā*—la grandeza; *dekhi'*—al contemplar; *preme*—en amor; *phule*—erupciones; *aṅge*—en el cuerpo.
+
+**Al contemplar la grandeza de Śrī Caitanya Mahāprabhu, Pratāparudra Mahārāja y sus ministros y amigos se sintieron tan conmovidos por el amor extático que se les erizó el vello del cuerpo.**

@@ -1,0 +1,9 @@
+### SB 5.4.13
+
+> yavīyāṁsa ekāśītir jāyanteyāḥ pitur ādeśakarā mahā-śālīnā mahā-śrotriyā yajña-śīlāḥ karma-viśuddhā brāhmaṇā babhūvuḥ.
+
+*yavīyāṁsaḥ*—menores; *ekāśītiḥ*—un total de ochenta y uno; *jāyanteyāḥ*—los hijos de Jayantī, la esposa de Ṛṣabhadeva; *pituḥ*—de su padre; *ādeśakarāḥ*—siguiendo la orden; *mahā-śālīnāḥ*—de buen comportamiento, cultos; *mahā-śrotriyāḥ*—de enorme erudición en conocimiento védico; *yajña-śīlāḥ*—expertos en la ejecución de ceremonias rituales; *karma-viśuddhāḥ*—de actividades muy puras; *brāhmaṇāḥ*—*brāhmaṇas* cualificados; *babhūvuḥ*—fueron.
+
+**Además de los diecinueve hijos hasta aquí mencionados, Ṛṣabhadeva y Jayantī tuvieron ochenta y un hijos menores. Siguiendo la orden de su padre, todos ellos fueron personas muy cultas, de buen comportamiento, de actividades muy puras, y expertos en el conocimiento védico y en la ejecución de rituales védicos. Así pues, todos eran brāhmaṇas perfectamente cualificados.**
+
+En este verso encontramos una información muy clara acerca de que las castas vienen determinadas por las cualidades y la actividad. Ṛṣabhadeva, como rey, era, sin lugar a dudas, un *kṣatriya.* De Sus cien hijos, diez actuaron como*kṣatriyas,* gobernando el planeta, y nueve fueron excelentes predicadores del *Śrīmad-Bhāgavatam (mahā-bhāgavatas),* lo cual indica que su posición era superior a la de los *brāhmaṇas.* Los ochenta y uno restantes fueron *brāhmaṇas* muy cualificados. Estos ejemplos prácticos nos muestran que, para poder llevar a cabo una determinada actividad, se deben tener en cuenta las cualidades, y no la cuna. Por nacimiento, todos los hijos de Mahārāja Ṛṣabhadeva eran *kṣatriyas,* pero por sus cualidades, algunos fueron *kṣatriyas,* y otros, *brāhmaṇas.* Nueve de ellos fueron predicadores del *Śrīmad-Bhāgavatam (bhāgavata-dharma-darśanāḥ),* lo que significa que estaban por encima de las categorías de *kṣatriya* y *brāhmaṇa.*

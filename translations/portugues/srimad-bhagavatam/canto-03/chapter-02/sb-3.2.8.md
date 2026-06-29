@@ -1,0 +1,17 @@
+### SB 3.2.8
+
+durbhago bata loko 'yaṁ
+
+yadavo nitarām api
+
+ye saṁvasanto na vidur
+
+hariṁ mīnā ivoḍupam
+
+*durbhagaḥ*—infortunado; *bata*—certamente; *lokaḥ*—universo; *ayam*—este; *yadavaḥ*—a dinastia Yadu; *nitarām*—mais especificamente; *api*—também; *ye*—aqueles; *saṁvasantaḥ*—vivendo junto; *na*—não; *viduḥ*—compreenderam; *harim*—a Personalidade de Deus; *mīnāḥ*—os peixes; *iva uḍupam*—como a lua.
+
+**Este universo com todos seus planetas é muito infortunado. E ainda mais infortunados são os membros da dinastia Yadu porque não conseguiram identificar o Senhor Hari como a Personalidade de Deus, da mesma forma que os peixes não conseguem identificar a lua.**
+
+Uddhava lamentou as pessoas infortunadas do mundo que não conseguiram reconhecer o Senhor Śrī Kṛṣṇa apesar de ver todas Suas qualidades divinas transcendentais. Desde o próprio início de Seu aparecimento dentro das barras da prisão do Rei Kaṁsa até Seu mausala-līlā, embora Ele exibisse Suas potências como a Personalidade de Deus nas seis opulências de riqueza, força, fama, beleza, conhecimento e renúncia, as pessoas tolas do mundo não conseguiram compreender que Ele era o Senhor Supremo. Pessoas tolas talvez pudessem tê-lo considerado uma figura histórica extraordinária porque não tinham contato íntimo com o Senhor, mas ainda mais infortunados foram os membros da família do Senhor, os membros da dinastia Yadu, que estavam sempre em companhia do Senhor mas não conseguiram reconhecê-lo como a Suprema Personalidade de Deus. Uddhava lamentou também sua própria fortuna porque embora conhecesse Kṛṣṇa ser a Suprema Personalidade de Deus, ele não conseguiu apropriadamente usar a oportunidade de prestar serviço devocional ao Senhor. Ele se arrependeu da infortúnio de todos, incluindo a sua. O devoto puro do Senhor se pensa muito infortunado. Isto é devido ao amor excessivo pelo Senhor e é uma das percepções transcendentais de viraha, o sofrimento de separação.
+
+Aprende-se das escrituras reveladas que a lua nasceu do oceano de leite. Há um oceano de leite nos planetas superiores, e lá o Senhor Viṣṇu, que controla o coração de toda entidade viva como Paramātmā (a Superalma), reside como o Viṣṇu que repousa nas águas de leite. Aqueles que não acreditam na existência do oceano de leite porque têm experiência apenas de água salgada no oceano devem saber que o mundo também é chamado de go, que significa a vaca. A urina da vaca é salgada, e de acordo com a medicina Āyur-veda a urina da vaca é muito efetiva no tratamento de pacientes sofrendo de problemas do fígado. Tais pacientes talvez não tenham nenhuma experiência do leite da vaca porque o leite nunca é dado a pacientes do fígado. Mas o paciente do fígado pode saber que a vaca tem leite também, embora ele nunca tenha provado. De modo semelhante, homens que têm experiência apenas deste pequenininho planeta onde existe o oceano de água salgada podem tomar informação das escrituras reveladas que existe também um oceano de leite, embora nós nunca o tenhamos visto. Deste oceano de leite a lua nasceu, mas os peixes no oceano de leite não conseguiram reconhecer que a lua não era outro peixe e era diferente deles. Os peixes tomaram a lua por um deles ou talvez algo luminoso, mas nada mais. As pessoas infortunadas que não reconhecem o Senhor Kṛṣṇa são como tais peixes. Eles o tomam por um deles, embora um pouco extraordinário em opulência, força, etc. O Bhagavad-gītā (9.11) confirma tais pessoas tolas como mais infortunadas: *avajānanti māṁ mūḍhā mānuṣīṁ tanum āśritam*.

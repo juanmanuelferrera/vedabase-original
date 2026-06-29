@@ -1,0 +1,9 @@
+### CC Antya 6.274
+
+viṣayīra dravya lañā kari nimantraṇa
+
+prasanna nā haya ihāya jāni prabhura mana
+
+*viṣayīra dravya*—coisas fornecidas por homens materialistas; *lañā*—aceitando; *kari nimantraṇa*—eu convido; *prasanna*—satisfeita; *nā haya*—não fica; *ihāya*—neste sentido; *jāni*—posso compreender; *prabhura mana*—a mente do Senhor Śrī Caitanya Mahāprabhu.
+
+**" 'Convido Śrī Caitanya Mahāprabhu aceitando bens de pessoas materialistas. Sei que a mente do Senhor não fica satisfeita com isso.**

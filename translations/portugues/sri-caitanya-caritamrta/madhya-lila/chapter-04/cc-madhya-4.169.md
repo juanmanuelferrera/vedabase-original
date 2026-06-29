@@ -1,0 +1,10 @@
+### CC Madhya 4.169
+
+grīṣma-kāla-ante punaḥ nīlācale gelā
+nīlācale cāturmāsya ānande rahilā
+
+*grīṣma-kāla*—da estação de verão; *ante*—no final; *punaḥ*—de novo; *nīlācale*—a Jagannātha Purī; *gelā*—foi; *nīlācale*—em Jagannātha Purī; *cātur-māsya*—os quatro meses de votos; *ānande*—em grande prazer; *rahilā*—permaneceu.
+
+**No final do verão, Mādhavendra Purī retornou a Jagannātha Purī, onde permaneceu com grande prazer durante todo o período de Cāturmāsya.**
+
+O período do Cāturmāsya começa no mês de Āṣāḍha (junho-julho) a partir do dia de Ekādaśī chamado Śayanā-ekādaśī, na quinzena da lua crescente. O período termina no mês de Kārtika (outubro-novembro) no dia de Ekādaśī conhecido como Utthānā-ekādaśī, na quinzena da lua crescente. Esse período de quatro meses é conhecido como Cāturmāsya. Alguns vaiṣṇavas também o observam do dia de lua cheia de Āṣāḍha até o dia de lua cheia de Kārtika. Esse também é um período de quatro meses. Esse período, calculado pelos meses lunares, é chamado de Cāturmāsya, mas outros também observam o Cāturmāsya de acordo com o mês solar, de Śrāvaṇa a Kārtika. Todo o período, seja lunar ou solar, ocorre durante a estação chuvosa. O Cāturmāsya deve ser observado por todas as seções da população. Não importa se alguém é um *gṛhastha* ou um *sannyāsī.* A observância é obrigatória para todos os *āśramas.* O real propósito por trás do voto feito durante esses quatro meses é minimizar a quantidade de gratificação dos sentidos. Isso não é muito difícil. No mês de Śrāvaṇa não se deve comer espinafre, no mês de Bhādra não se deve comer iogurte, e no mês de Āśvina não se deve beber leite. Não se deve comer peixe nem outros alimentos não vegetarianos durante o mês de Kārtika. Uma dieta não vegetariana significa peixe e carne. Da mesma forma, o *masura dāl* e o *urad dāl* também são considerados não vegetarianos. Esses dois *dāl*s contêm grande quantidade de proteína, e alimentos ricos em proteína são considerados não vegetarianos. De modo geral, durante o período de quatro meses do Cāturmāsya, deve-se praticar abandonar todo alimento destinado ao prazer dos sentidos.

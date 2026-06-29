@@ -1,0 +1,9 @@
+### CC Antya 11.21
+
+āra dina mahāprabhu tāṅra ṭhāñi āilā
+
+sustha hao, haridāsa--bali' tāṅre puchilā
+
+*āra dina*—no dia seguinte; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *tāṅra ṭhāñi*—ao lugar dele; *āilā*—veio; *su-stha hao*—estás bem; *haridāsa*—ó Haridāsa; *bali'*—dizendo; *tāṅre*—a ele; *puchilā*—perguntou.
+
+**No dia seguinte, Śrī Caitanya Mahāprabhu foi ao lugar de Haridāsa e lhe perguntou: "Haridāsa, estás bem?"**

@@ -1,0 +1,8 @@
+### CC Antya 11.6
+
+jaya nityānanda-candra jaya caitanyera prāṇa
+tomāra caraṇāravinde bhakti deha' dāna
+
+*jaya*—todas as glórias; *nityānanda-candra*—ao Senhor Nityānanda Prabhu; *jaya*—todas as glórias; *caitanyera prāṇa*—à própria vida de Śrī Caitanya Mahāprabhu; *tomāra caraṇa-aravinde*—a Teus pés de lótus; *bhakti*—serviço devocional; *deha'*—por favor, concede; *dāna*—a dádiva.
+
+**Todas as glórias ao Senhor Nityānanda, que é a própria vida de Śrī Caitanya Mahāprabhu. Meu querido Senhor, concede-me bondosamente ocupação em serviço devocional a Teus pés de lótus.**

@@ -1,0 +1,8 @@
+### CC Antya 20.123
+
+> caturdaśe--divyonmāda-ārambha varṇana
+> 'śarīra' ethā prabhura, 'mana' gelā vṛndāvana
+
+*caturdaśe*—en el capítulo decimocuarto; *divya-unmāda-ārambha*—el comienzo del trance espiritual de Śrī Caitanya Mahāprabhu; *varṇana*—descripción; *śarīra*—el cuerpo; *ethā*—aquí; *prabhura*—de Śrī Caitanya Mahāprabhu; *mana*—la mente; *gelā*—fue; *vṛndāvana*—a Vṛndāvana.
+
+**El capítulo decimocuarto describe el comienzo del trance espiritual del Señor, en el cual Su cuerpo se encontraba en Jagannātha Purī pero Su mente estaba en Vṛndāvana.**

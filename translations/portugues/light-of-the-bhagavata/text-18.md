@@ -1,0 +1,9 @@
+### 18
+
+**Muitas plantas e trepadeiras que estavam quase mortas durante os meses de abril e maio agora tornam-se novamente visíveis em diversas formas, pois são nutridas por suas raízes na terra úmida. Essas inúmeras plantas e trepadeiras assemelham-se às pessoas que se ressecam em severas penitências em busca de algum ganho material, mas que então alcançam seus objetivos e se tornam luxuriosamente gordas, nutridas pelo gozo dos sentidos.**
+
+No *Bhagavad-gītā* se diz que, quando o dia de Brahmā termina, as criações manifestas do universo todas desaparecem, e, depois do fim da noite de Brahmā, a criação volta a se manifestar. Assim, a criação cósmica, em sua manifestação e não manifestação, assemelha-se às trepadeiras e plantas que aparecem durante a estação das chuvas e gradualmente desaparecem quando a estação termina.
+
+Mesmo quando as plantas e trepadeiras já não são vistas, suas sementes permanecem, e essas sementes adormecidas frutificam em contato com a água. De modo semelhante, as centelhas espirituais semelhantes a sementes, que são dominadas pelo desejo de assenhorear-se da natureza material, existem em estado adormecido depois que a manifestação cósmica é aniquilada; e, quando a manifestação cósmica reaparece, todos os seres vivos silenciosos dentro do ventre da natureza material vêm à tona e ocupam-se no gozo dos sentidos, tornando-se assim luxuriosamente gordos.
+
+Para alcançar a liberação, é preciso purificar-se completamente das formas pervertidas de desejo. Um ser vivo não pode extinguir os desejos, e praticar artificialmente o apagamento das ações do desejo é mais perigoso do que os próprios desejos ativos. Todos os desejos devem ser reformados e dirigidos para atividades espirituais; do contrário, esses mesmos desejos se manifestarão repetidamente em diferentes variedades de gozo material, condicionando assim o ser vivo perpetuamente no cativeiro material.

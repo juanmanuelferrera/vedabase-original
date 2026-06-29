@@ -1,0 +1,10 @@
+### CC Adi 7.163
+
+> ei pañca-tattva-rūpe śrī-kṛṣṇa-caitanya
+> kṛṣṇa-nāma-prema diyā viśva kailā dhanya
+
+*ei*—este; *pañca-tattva-rūpe*—el Señor en Sus cinco formas; *śrī-kṛṣṇa-caitanya*—el Señor Śrī Caitanya Mahāprabhu; *kṛṣṇa-nāma*—el santo nombre del Señor Kṛṣṇa; *prema*—amor por Kṛṣṇa; *diyā*—distribuyendo; *viśva*—el mundo entero; *kailā*—hizo; *dhanya*—agradecido.
+
+**Śrī Kṛṣṇa Caitanya Mahāprabhu y Sus asociados del Pañca-tattva distribuyeron el santo nombre del Señor para invocar el amor por Dios por todo el universo, y de ese modo el universo entero quedó agradecido.**
+
+Aquí se dice que el Señor Caitanya hizo que el universo entero Le estuviera agradecido por propagar el movimiento de *saṅkīrtana* con Sus asociados. El Señor Caitanya Mahāprabhu ya ha santificado todo el universo con Su presencia hace quinientos años, y por eso cualquiera que intente servir a Śrī Caitanya Mahāprabhu sinceramente, siguiendo Sus huellas y las instrucciones de los *ācāryas*, podrá predicar con éxito los santos nombres del *mahā-mantra* Hare Kṛṣṇa por todo el universo. Hay algunos críticos necios que dicen que a los europeos y americanos no se les puede ofrecer *sannyāsa*, pero aquí encontramos que Śrī Caitanya Mahāprabhu quería predicar el movimiento de *saṅkīrtana* por todo el universo. Para la labor de prédica, los *sannyāsīs* son esenciales. Estos críticos piensan que solo a los indios o hindúes se les debería ofrecer *sannyāsa* para predicar, pero su conocimiento es prácticamente nulo. Sin *sannyāsīs*, la labor de prédica se verá obstaculizada. De ahí que, bajo la instrucción del Señor Caitanya y con las bendiciones de Sus asociados, no debe haber discriminación en este asunto, sino que gente de todas partes del mundo debe ser entrenada para predicar y recibir *sannyāsa*, para que el culto del movimiento de *saṅkīrtana* de Śrī Caitanya Mahāprabhu se expanda sin límites. No nos importan las críticas de los necios. Seguiremos adelante con nuestra labor y simplemente dependeremos de las bendiciones del Señor Caitanya Mahāprabhu y Sus asociados, el Pañca-tattva.

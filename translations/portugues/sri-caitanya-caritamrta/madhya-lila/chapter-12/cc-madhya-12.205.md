@@ -1,0 +1,9 @@
+### CC Madhya 12.205
+
+pakṣa-dina duḥkhī loka prabhura adarśane
+
+darśana kariyā loka sukha pāila mane
+
+*pakṣa-dina*—por uma quinzena; *duḥkhī*—infelizes; *loka*—os devotos; *prabhura*—do Senhor Jagannātha; *adarśane*—sem a visão; *darśana kariyā*—ao verem; *loka*—todos os devotos; *sukha*—felicidade; *pāila*—obtiveram; *mane*—na mente.
+
+**Todos estiveram infelizes por uma quinzena, pois não podiam ver a Deidade do Senhor Jagannātha. Ao verem o Senhor no festival, os devotos ficaram muito felizes.**

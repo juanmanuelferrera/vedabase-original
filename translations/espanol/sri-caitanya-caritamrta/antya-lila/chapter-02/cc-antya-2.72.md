@@ -1,0 +1,8 @@
+### CC Antya 2.72
+
+> śuni śivānandera citte ha-ila saṁśaya
+> kibā premāveśe kahe, kibā satya haya
+
+*śuni*—al oír; *śivānandera*—de Śivānanda; *citte*—en la mente; *ha-ila saṁśaya*—surgió cierta duda; *kibā*—si acaso; *prema-āveśe kahe*—hablaba movido por el amor extático; *kibā*—o; *satya haya*—era un hecho.
+
+**Al oír esta declaración, Śivānanda Sena no estaba seguro de si Nṛsiṁhānanda Brahmacārī hablaba así movido por el amor extático o si en verdad era un hecho.**

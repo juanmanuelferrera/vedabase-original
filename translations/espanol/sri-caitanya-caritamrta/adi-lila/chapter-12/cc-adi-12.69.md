@@ -1,0 +1,8 @@
+### CC Adi 12.69
+
+> kruddha hañā skandha tāre jala nā sañcāre
+> jalābhāve kṛśa śākhā śukāiyā mare
+
+*kruddha hañā*—estando airado; *skandha*—el tronco; *tāre*—sobre ellas; *jala*—agua; *nā*—no; *sañcāre*—roció; *jala-abhāve*—por falta de agua; *kṛśa*—más delgadas; *śākhā*—ramas; *śukāiyā*—secándose; *mare*—murieron.
+
+**De este modo, el Señor Caitanya no roció sobre ellas el agua de Su misericordia, y gradualmente se marchitaron y murieron.**

@@ -1,0 +1,8 @@
+### CC Adi 15.3
+
+> paugaṇḍa-līlāra sūtra kariye gaṇana
+> paugaṇḍa-vayase prabhura mukhya adhyayana
+
+*paugaṇḍa*—de la edad comprendida entre los cinco y los diez años; *līlāra*—de los pasatiempos; *sūtra*—sinopsis; *kariye*—hago; *gaṇana*—enumerar; *paugaṇḍa-vayase*—en esa edad entre los cinco y los diez años; *prabhura*—del Señor; *mukhya*—principal; *adhyayana*—estudio.
+
+**Permítaseme ahora enumerar las actividades del Señor entre los cinco y los diez años de edad. Su principal ocupación durante este período fue dedicarse al estudio.**

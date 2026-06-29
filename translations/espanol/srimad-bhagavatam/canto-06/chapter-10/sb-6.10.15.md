@@ -1,0 +1,10 @@
+### SB 6.10.15
+
+> vṛtram abhyadravac chatrum
+> asurānīka-yūthapaiḥ
+> paryastam ojasā rājan
+> kruddho rudra ivāntakam
+
+*vṛtram*—a Vṛtrāsura; *abhyadravat*—atacó; *śatrum*—al enemigo; *asura-anīka-yūthapaiḥ*—por los comandantes o capitanes de los soldados de los *asuras*; *paryastam*—rodeado; *ojasā*—con gran fuerza; *rājan*—¡oh, rey!; *kruddhaḥ*—iracundo; *rudraḥ*—una encarnación del Señor Śiva; *iva*—como; *antakam*—a Antaka, Yamarāja.
+
+**Mi querido rey Parīkṣit, en el pasado, Rudra, muy iracundo, había corrido hacia Antaka [Yamarāja] para matarle; del mismo modo, Indra, lleno de ira, atacó con gran fuerza a Vṛtrāsura, que estaba rodeado por los jefes de los ejércitos demoníacos.**

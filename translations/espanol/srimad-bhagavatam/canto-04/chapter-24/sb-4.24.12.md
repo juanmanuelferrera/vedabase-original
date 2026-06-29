@@ -1,0 +1,13 @@
+### SB 4.24.12
+
+vibudhāsura-gandharva-
+
+*muni-siddha-naroragāḥ
+vijitāḥ sūryayā dikṣu
+kvaṇayantyaiva nūpuraiḥ
+SINÓNIMOS
+vibudha*—eruditos; *asura*—los demonios; *gandharva*—los habitantes de Gandharvaloka; *muni*—grandes sabios; *siddha*—los habitantes de Siddhaloka; *nara*—los habitantes de los planetas terrenales; *uragāḥ*—los habitantes de Nāgaloka; *vijitāḥ*—cautivados; *sūryayā*—por la nueva novia; *dikṣu*—en todas las direcciones; *kvaṇayantyā*—tintineando; *eva*—solo; *nūpuraiḥ*—por sus ajorcas.
+
+**Mientras se estaba celebrando así el matrimonio de Śatadruti, los demonios, los habitantes de Gandharvaloka, los grandes sabios y los habitantes de Siddhaloka, los planetas terrenales y Nāgaloka, aunque de posición muy elevada, quedaron todos cautivados por el tintineo de sus ajorcas.**
+
+Generalmente, una mujer se vuelve más hermosa cuando, después de un matrimonio temprano, da a luz a un hijo. Dar a luz es la función natural de la mujer, y por ello una mujer se vuelve cada vez más hermosa a medida que da a luz un hijo tras otro. Sin embargo, en el caso de Śatadruti, era tan hermosa que atrajo a todo el universo en su ceremonia matrimonial. En verdad, atrajo a todos los eruditos y exaltados semidioses simplemente con el tintineo de sus ajorcas. Ello indica que todos los semidioses querían ver su belleza por completo, pero no les era posible, ya que ella se hallaba completamente vestida y cubierta con ornamentos. Como solo podían ver los pies de Śatadruti, se sintieron atraídos por sus ajorcas, que tintineaban al caminar. En otras palabras, los semidioses quedaron cautivados por ella simplemente al escuchar el tintineo de sus ajorcas. No necesitaron ver su belleza completa. A veces se entiende que una persona se vuelve lujuriosa simplemente al escuchar el tintineo de las pulseras en las manos de las mujeres o el tintineo de las ajorcas, o simplemente al ver el sari de una mujer. De ello se concluye que la mujer es la representación completa de māyā. Aunque Viśvāmitra Muni estaba ocupado en practicar yoga místico con los ojos cerrados, su meditación trascendental se rompió cuando escuchó el tintineo de las pulseras en las manos de Menakā. De ese modo, Viśvāmitra Muni se convirtió en víctima de Menakā y engendró una hija que es universalmente célebre como Śakuntalā. La conclusión es que nadie puede salvarse de la atracción de la mujer, aunque sea un semidiós exaltado o un habitante de los planetas superiores. Solo un devoto del Señor, que se siente atraído por Kṛṣṇa, puede escapar de las seducciones de la mujer. Una vez que uno se siente atraído por Kṛṣṇa, la energía ilusoria del mundo no puede atraerle.

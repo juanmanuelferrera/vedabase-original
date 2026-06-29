@@ -1,0 +1,8 @@
+### CC Antya 6.171
+
+> eta cinti' pūrva-mukhe karilā gamana
+> ulaṭiyā cāhe pāche,--nāhi kona jana
+
+*eta cinti'*—pensando así; *pūrva-mukhe*—hacia el este; *karilā gamana*—se puso en marcha; *ulaṭiyā*—volviéndose; *cāhe*—mira; *pāche*—detrás; *nāhi kona jana*—no había nadie.
+
+**Pensando de este modo, avanzó rápidamente hacia el este. De vez en cuando se volvía y miraba hacia atrás, pero nadie lo seguía.**

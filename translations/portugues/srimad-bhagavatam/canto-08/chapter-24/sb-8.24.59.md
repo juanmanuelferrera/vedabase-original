@@ -1,0 +1,12 @@
+### SB 8.24.59
+
+satyavratasya rājarṣer
+māyā-matsyasya śārṅgiṇaḥ
+saṁvādaṁ mahad-ākhyānaṁ
+śrutvā mucyeta kilbiṣāt
+
+*satyavratasya*—do rei Satyavrata; *rāja-ṛṣeḥ*—do grande rei; *māyā-matsyasya*—e da encarnação de peixe; *śārṅgiṇaḥ*—que tinha um chifre na cabeça; *saṁvādam*—a descrição ou os tratos; *mahat-ākhyānam*—a grande história; *śrutvā*—ouvindo; *mucyeta*—é libertado; *kilbiṣāt*—de todas as reações pecaminosas.
+
+**Esta história a respeito do grande rei Satyavrata e da encarnação de peixe da Suprema Personalidade de Deus, Viṣṇu, é uma grande narração transcendental. Todo aquele que a ouve livra-se das reações da vida pecaminosa.**
+
+---

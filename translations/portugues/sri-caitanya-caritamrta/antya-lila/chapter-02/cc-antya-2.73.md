@@ -1,0 +1,9 @@
+### CC Antya 2.73
+
+tabe śivānande kichu kahe brahmacārī
+
+sāmagrī āna nṛsiṁha lāgi punaḥ pāka kari'
+
+*tabe*—diante disso; *śivānande*—a Śivānanda; *kichu*—algo; *kahe*—diz; *brahmacārī*—Nṛsiṁhānanda Brahmacārī; *sāmagrī āna*—traze mais ingredientes; *nṛsiṁha lāgi'*—para o Senhor Nṛsiṁhadeva; *punaḥ*—novamente; *pāka kari'*—deixa-me cozinhar.
+
+**Quando Śivānanda Sena estava assim perplexo, Nṛsiṁhānanda Brahmacārī disse-lhe: "Traze mais alimento. Deixa-me cozinhar novamente para o Senhor Nṛsiṁhadeva."**

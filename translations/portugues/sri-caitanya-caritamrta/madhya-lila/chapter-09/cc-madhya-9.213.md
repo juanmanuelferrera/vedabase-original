@@ -1,0 +1,8 @@
+### CC Madhya 9.213
+
+patra pāñā viprera haila ānandita mana
+prabhura caraṇe dhari' karaye krandana
+
+*patra pāñā*—recebendo as folhas; *viprera*—do brāhmaṇa; *haila*—houve; *ānandita*—satisfeita; *mana*—mente; *prabhura caraṇe*—os pés de lótus do Senhor Śrī Caitanya Mahāprabhu; *dhari'*—segurando; *karaye*—faz; *krandana*—chorar.
+
+**Rāmadāsa Vipra ficou muito satisfeito ao receber o manuscrito original em folhas do Kūrma Purāṇa, e imediatamente caiu aos pés de lótus de Śrī Caitanya Mahāprabhu e começou a chorar.**

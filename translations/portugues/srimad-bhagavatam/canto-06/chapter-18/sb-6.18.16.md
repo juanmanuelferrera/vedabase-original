@@ -1,0 +1,15 @@
+### SB 6.18.16
+
+anuhrādasya sūryāyāṁ
+
+bāṣkalo mahiṣas tathā
+
+virocanas tu prāhrādir
+
+devyāṁ tasyābhavad baliḥ
+
+*anuhrādasya*—de Anuhlāda; *sūryāyām*—através de Sūryā; *bāṣkalaḥ*—Bāṣkala; *mahiṣaḥ*—Mahiṣa; *tathā*—também; *virocanaḥ*—Virocana; *tu*—de fato; *prāhrādiḥ*—o filho de Prahlāda; *devyām*—através de sua esposa; *tasya*—dele; *abhavat*—nasceu; *baliḥ*—Bali.
+
+**A esposa de Anuhlāda chamava-se Sūryā. Ela deu à luz dois filhos, chamados Bāṣkala e Mahiṣa. Prahlāda teve um filho, Virocana, cuja esposa deu à luz Bali Mahārāja.**
+
+---

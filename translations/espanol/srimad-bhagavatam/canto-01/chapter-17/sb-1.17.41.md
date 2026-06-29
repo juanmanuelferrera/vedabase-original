@@ -1,0 +1,12 @@
+### SB 1.17.41
+
+> athaitāni na seveta
+> bubhūṣuḥ puruṣaḥ kvacit
+> viśeṣato dharma-śīlo
+> rājā loka-patir guruḥ
+
+*atha*—por lo tanto; *etāni*—todos estos; *na*—nunca; *seveta*—se ponen en contacto; *bubhūṣuḥ*—aquellos que deseen bienestar; *puruṣaḥ*—persona; *kvacit*—en cualesquiera circunstancias; *viśeṣataḥ*—específicamente; *dharma-śīlaḥ*—aquellos que se encuentran en la senda progresiva de la liberación; *rājā*—el rey; *loka-patiḥ*—líder público; *guruḥ*—los *brāhmaṇas* y los *sannyāsīs*.
+
+**Por lo tanto, todo aquel que desee el bienestar progresivo, especialmente los reyes, los religiosos, los líderes públicos, los *brāhmaṇas* y los *sannyāsīs*, nunca deben ponerse en contacto con los cuatro principios irreligiosos antedichos.**
+
+El brāhmaṇa es el preceptor religioso de todas las demás castas, y los sannyāsīs son los maestros espirituales de todas las castas y órdenes de la sociedad. Así también lo son el rey y los líderes públicos, que son responsables del bienestar material de toda la gente. Los religiosos progresistas y aquellos que son seres humanos responsables, o aquellos que no quieren echar a perder su valiosa vida humana, deben abstenerse de todos los principios de la irreligiosidad, especialmente de la relación ilícita con mujeres. Si un brāhmaṇa no es veraz, todas sus pretensiones de ser un brāhmaṇa quedan de inmediato anuladas y sin valor. Si un sannyāsī está ilícitamente relacionado con mujeres, todas sus pretensiones de ser un sannyāsī se vuelven de inmediato falsas. De manera similar, si el rey y el líder público están innecesariamente orgullosos o habituados a beber y fumar, ciertamente quedan descalificados para llevar a cabo actividades de bienestar público. La veracidad es el principio básico de todas las religiones. Los cuatro líderes de la sociedad humana —a saber, el sannyāsī, el brāhmaṇa, el rey y el líder público— deben ser puestos a prueba de manera rigurosa por su carácter y cualificación. Antes de que se le pueda aceptar a alguien como maestro espiritual o material de la sociedad, debe ser puesto a prueba mediante los criterios de carácter arriba mencionados. Esos líderes públicos pueden estar menos cualificados en lo que respecta a la cualificación académica, pero es necesario, ante todo, que estén libres de la contaminación de las cuatro descalificaciones, a saber: el juego, la bebida, la prostitución y la matanza de animales.

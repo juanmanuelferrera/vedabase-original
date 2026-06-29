@@ -1,0 +1,8 @@
+### CC Antya 16.134
+
+> kahite kahite prabhura mana phiri' gela
+> krodha-aṁśa śānta haila, utkaṇṭhā bāḍila
+
+*kahite kahite*—hablando y hablando; *prabhura*—de Śrī Caitanya Mahāprabhu; *mana*—la mente; *phiri' gela*—cambió; *krodha-aṁśa*—la parte del enfado; *śānta haila*—se apaciguó; *utkaṇṭhā*—agitación de la mente; *bāḍila*—aumentó.
+
+**Mientras Śrī Caitanya Mahāprabhu hablaba de esta manera, Su mente cambió. Su enfado se apaciguó, pero Su agitación mental aumentó.**

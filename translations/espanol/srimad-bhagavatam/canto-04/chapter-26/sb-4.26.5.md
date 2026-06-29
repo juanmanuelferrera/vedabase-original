@@ -1,0 +1,14 @@
+### SB 4.26.5
+
+> āsurīṁ vṛttim āśritya
+> ghorātmā niranugrahaḥ
+> nyahanan niśitair bāṇair
+> vaneṣu vana-gocarān
+
+*āsurīm*—demoníaca; *vṛttim*—ocupación; *āśritya*—habiéndose refugiado en; *ghora*—horrible; *ātmā*—conciencia, corazón; *niranugrahaḥ*—sin misericordia; *nyahanat*—mató; *niśitaiḥ*—con afiladas; *bāṇaiḥ*—flechas; *vaneṣu*—en los bosques; *vana-gocarān*—a los animales del bosque.
+
+**En aquella ocasión, el rey Purañjana estaba muy influido por tendencias demoníacas. Debido a ello, tenía el corazón muy duro y despiadado; sin la menor consideración, fue al bosque y mató a muchos animales inocentes con sus afiladas flechas.**
+
+Cuando un hombre se enorgullece demasiado de su posición material, trata de disfrutar de sus sentidos de manera ilimitada, influido por las modalidades de la pasión y la ignorancia. Por ello se lo describe como *asura*, o demoníaco. Cuando las personas son demoníacas de espíritu, no son misericordiosas con los pobres animales. En consecuencia, mantienen diversos mataderos de animales. Esto se denomina técnicamente *sūnā* o *hiṁsā*, que significa la matanza de seres vivos. En Kali-yuga, debido al aumento de las modalidades de la pasión y la ignorancia, casi todos los hombres son *asuras* o demoníacos; por lo tanto, son muy aficionados a comer carne, y con ese fin mantienen diversas clases de mataderos de animales.
+
+En esta era de Kali, la propensión a la misericordia es prácticamente nula. Como consecuencia, siempre hay peleas y guerras entre los hombres y las naciones. Los hombres no comprenden que, debido a que matan tantos animales sin restricción alguna, ellos también deben ser masacrados como animales en grandes guerras. Esto es muy evidente en los países occidentales. En Occidente, los mataderos se mantienen sin restricción, y por consiguiente cada cinco o diez años hay una gran guerra en la que un sinnúmero de personas son masacradas de manera aún más cruel que los animales. A veces, durante la guerra, los soldados mantienen a sus enemigos en campos de concentración y los matan de formas muy crueles. Estas son reacciones provocadas por la matanza ilimitada de animales en el matadero y por los cazadores en el bosque. Las personas orgullosas y demoníacas no conocen las leyes de la naturaleza ni conocen las leyes de Dios. En consecuencia, matan a los pobres animales sin restricción, sin preocuparse en absoluto por ellos. En el movimiento para la conciencia de Kṛṣṇa, la matanza de animales está completamente prohibida. A nadie se lo acepta como estudiante genuino de este movimiento a menos que prometa seguir los cuatro principios regulativos: no matar animales, no consumir sustancias embriagantes, no tener vida sexual ilícita y no participar en juegos de azar. Este movimiento para la conciencia de Kṛṣṇa es el único medio por el cual pueden contrarrestarse las actividades pecaminosas de los hombres en este Kali-yuga.

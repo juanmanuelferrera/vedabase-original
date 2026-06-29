@@ -1,0 +1,9 @@
+### SB 5.26.20
+
+> yas tv iha vā agamyāṁ striyam agamyaṁ vā puruṣaṁ yoṣid abhigacchati tāv amutra kaśayā tāḍayantas tigmayā sūrmyā lohamayyā puruṣam āliṅgayanti striyaṁ ca puruṣa-rūpayā sūrmyā.
+
+*yaḥ*—toda persona; *tu*—pero; *iha*—en esta vida; *vā*—o; *agamyām*—inadecuada; *striyam*—a una mujer; *agamyam*—inadecuado; *vā*—o; *puruṣam*—a un hombre; *yoṣit*—una mujer; *abhigacchati*—acude en busca de relación sexual; *tau*—ambos; *amutra*—en la siguiente vida; *kaśayā*—con látigos; *tāḍayantaḥ*—azotados; *tigmayā*—muy caliente; *sūrmyā*—con una imagen; *loha-mayyā*—hecha de hierro; *puruṣam*—al hombre; *āliṅgayanti*—ellos abrazan; *striyam*—a la mujer; *ca*—también; *puruṣa-rūpayā*—en la forma de un hombre; *sūrmyā*—con una imagen.
+
+**El hombre o la mujer que se entregan a relaciones sexuales con un miembro indigno del sexo opuesto, después de morir son castigados por los sirvientes de Yamarāja en el infierno Taptasūrmi, donde se les azota con látigos. Al hombre se le obliga a abrazar la forma de una mujer hecha de hierro candente, y a la mujer se le obliga a hacer lo mismo con la forma de un hombre. Ese es el castigo por las relaciones sexuales ilícitas.**
+
+Por lo general, un hombre no debe tener relaciones sexuales con ninguna mujer más que con su esposa. Según los principios védicos, la esposa de otro hombre es como la propia madre, y está estrictamente prohibido que un hombre tenga relaciones sexuales con su madre, su hermana o su hija. La vida sexual con la esposa de otro hombre se considera idéntica a tener relaciones sexuales con la propia madre. Es algo muy pecaminoso. El mismo principio se aplica también a las mujeres: disfrutar de la vida sexual con un hombre que no sea su esposo es equivalente a tener relaciones sexuales con su padre o su hijo. La vida sexual ilícita está siempre prohibida; todo hombre que se entregue a esa actividad recibirá el castigo que se describe en este verso.

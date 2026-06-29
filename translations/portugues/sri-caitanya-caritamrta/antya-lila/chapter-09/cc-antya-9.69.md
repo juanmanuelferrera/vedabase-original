@@ -1,0 +1,11 @@
+### CC Antya 9.69
+
+tomāra bhajana-phale tomāte 'prema-dhana'
+
+viṣaya lāgi' tomāya bhaje, sei mūrkha jana
+
+*tomāra*—teu; *bhajana*—serviço devocional; *phale*—pelo resultado de; *tomāte*—a Ti; *prema-dhana*—tesouro de amor; *viṣaya lāgi'*—por lucro material; *tomāya bhaje*—ocupa-se em Teu serviço; *sei*—ele; *mūrkha jana*—um tolo.
+
+**Kāśī Miśra continuou: "Se alguém se ocupa em serviço devocional para Tua satisfação, isso resultará no despertar cada vez maior de seu amor adormecido por Ti. Mas, se alguém se ocupa em Teu serviço devocional para propósitos materiais, deve ser considerado o maior dos tolos.**
+
+Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura comenta que há muitas pessoas materialistas que se tornam pregadores, gurus, religiosos ou filósofos apenas para manter um alto padrão de vida e a gratificação dos sentidos para si mesmas e suas famílias. Às vezes, adotam a roupa de sannyāsī ou pregador. Treinam alguns de seus familiares como advogados e buscam continuamente o auxílio de algum tribunal superior para adquirir riquezas sob o pretexto de manter templos. Embora tais pessoas possam chamar-se pregadores, viver em Vṛndāvana ou Navadvīpa, e também imprimir muitos livros religiosos, tudo isso é feito com o mesmo propósito, a saber, ganhar a vida para sustentar suas esposas e filhos. Elas podem também recitar profissionalmente o *Bhāgavatam* ou outras escrituras, adorar a Deidade no templo e iniciar discípulos. Fazendo ostentação de parafernália devocional, podem ainda recolher dinheiro do público e usá-lo para curar a doença de algum familiar ou parente próximo. Às vezes, tornam-se bābājīs ou recolhem dinheiro sob o pretexto de adorar os pobres, a quem chamam de daridra-nārāyaṇa, ou para promover o soerguimento social e político. Dessa forma, espalham uma rede de esquemas comerciais para recolher dinheiro destinado à gratificação dos sentidos, enganando as pessoas em geral, que não têm conhecimento do serviço devocional puro. Tais trapaceiros não conseguem compreender que, ao oferecer serviço devocional à Suprema Personalidade de Deus, a pessoa pode ser elevada a uma posição de eterna servidão ao Senhor, posição que é ainda maior do que a de Brahmā e de outros semideuses. Infelizmente, os tolos não têm compreensão do prazer perpétuo do serviço devocional.

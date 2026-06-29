@@ -1,0 +1,9 @@
+### CC Madhya 7.136
+
+'vāsudeva'-nāma eka dvija mahāśaya
+
+sarvāṅge galita kuṣṭha, tāte kīḍā-maya
+
+*vāsudeva-nāma*—de nome Vāsudeva; *eka dvija*—um brāhmaṇa; *mahāśaya*—uma grande pessoa; *sarva-aṅge*—por todo o seu corpo; *galita*—aguda; *kuṣṭha*—lepra; *tāte*—nela; *kīḍā-maya*—cheia de vermes vivos.
+
+**Havia também um brāhmaṇa chamado Vāsudeva, que era uma grande pessoa, mas sofria de lepra. De fato, seu corpo estava cheio de vermes vivos.**

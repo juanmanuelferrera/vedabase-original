@@ -1,0 +1,9 @@
+### CC Madhya 15.224
+
+annādi dekhiyā prabhu vismita hañā
+
+bhaṭṭācārye kahe kichu bhaṅgi kariyā
+
+*anna-ādi dekhiyā*—ao ver a disposição dos alimentos; *prabhu*—Śrī Caitanya Mahāprabhu; *vismita hañā*—ficando admirado; *bhaṭṭācārye kahe*—disse a Bhaṭṭācārya; *kichu*—algo; *bhaṅgi*—gesto; *kariyā*—fazendo.
+
+**Śrī Caitanya Mahāprabhu ficou um pouco admirado ao ver a suntuosa disposição e, gesticulando, dirigiu-se a Sārvabhauma Bhaṭṭācārya.**

@@ -1,0 +1,9 @@
+### CC Madhya 20.389
+
+sūryodaya haite ṣaṣṭi-pala-kramodaya
+
+sei eka daṇḍa, aṣṭa daṇḍe 'prahara' haya
+
+*sūrya-udaya haite*—começando a partir do nascer do sol; *ṣaṣṭi-pala*—sessenta palas; *krama-udaya*—elevando-se gradualmente, cada vez mais alto; *sei*—isso; *eka daṇḍa*—um daṇḍa; *aṣṭa daṇḍe*—em oito daṇḍas; *prahara haya*—há um prahara.
+
+**"O sol eleva-se em etapas que consistem em sessenta palas. Sessenta palas equivalem a um daṇḍa, e oito daṇḍas compõem um prahara.**

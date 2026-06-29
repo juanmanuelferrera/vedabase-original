@@ -1,0 +1,14 @@
+### SB 1.2.13
+
+> ataḥ pumbhir dvija-śreṣṭhā
+> varṇāśrama-vibhāgaśaḥ
+> svanuṣṭhitasya dharmasya
+> saṁsiddhir hari-toṣaṇam
+
+*ataḥ*—así pues; *pumbhiḥ*—por el ser humano; *dvija-śreṣṭhāḥ*—¡oh, el mejor entre los nacidos por segunda vez!; *varṇa-āśrama*—la institución de cuatro castas y cuatro órdenes de vida; *vibhāgaśaḥ*—mediante la división de; *svanuṣṭhitasya*—de los deberes prescritos propios de uno; *dharmasya*—de la ocupación; *saṁsiddhiḥ*—la perfección más elevada de todas; *hari*—la Personalidad de Dios; *toṣaṇam*—complaciendo.
+
+**¡Oh, el mejor de entre los nacidos por segunda vez!, se concluye, por lo tanto, que la perfección más elevada que uno puede alcanzar, mediante el desempeño de los deberes prescritos [dharma] que le corresponden según las divisiones de casta y las órdenes de la vida, es complacer al Señor Hari.**
+
+La sociedad humana de todo el mundo está dividida en cuatro castas y cuatro órdenes de la vida. Las cuatro castas son la casta inteligente, la casta marcial, la casta productiva y la casta laboral. Estas castas se clasifican en función del trabajo y la aptitud de cada uno, y no por nacimiento. Luego, además, hay cuatro órdenes de la vida, a saber, la vida de estudiante, la vida de casado, la vida de retiro y la vida devocional. En aras del mayor bien de la sociedad humana, deben existir tales divisiones de la vida; de lo contrario, ninguna institución social puede desarrollarse en un estado saludable. Y en todas y cada una de las divisiones de la vida antes mencionadas, el objetivo debe ser complacer a la autoridad suprema de la Personalidad de Dios. Esta función institucional de la sociedad humana se conoce como el sistema de varṇāśrama-dharma, el cual es del todo natural para la vida civilizada. La institución del varṇāśrama está concebida para que uno pueda comprender la Verdad Absoluta. No es para el dominio artificial de una división sobre la otra. Cuando se pierde de vista el objetivo de la vida, es decir, la comprensión de la Verdad Absoluta, debido a un apego excesivo por el indriya-prīti, o complacencia de los sentidos, como ya se ha expuesto anteriormente, los hombres egoístas utilizan la institución del varṇāśrama para imponer un predominio artificial sobre la sección más débil. En la era de Kali, o era de las disputas, este predominio artificial ya impera, pero la sección más sensata de la gente sabe bien que la división de castas y órdenes de la vida está destinada a un trato social armonioso y a la elevada autorrealización que viene del pensamiento sublime, y no a ningún otro propósito.
+
+Aquí, la afirmación del Bhāgavatam es que el objetivo más elevado de la vida, o la perfección suprema de la institución del varṇāśrama-dharma, consiste en cooperar conjuntamente para la satisfacción del Señor Supremo, lo cual también se confirma en el Bhagavad-gītā (Bg. 4.13).

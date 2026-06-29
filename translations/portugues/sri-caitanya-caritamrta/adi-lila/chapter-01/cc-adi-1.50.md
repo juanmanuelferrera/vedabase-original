@@ -1,0 +1,10 @@
+### CC Adi 1.50
+
+> yathā brahmaṇe bhagavān
+> svayam upadiśyānubhāvitavān
+
+*yathā*—assim como; *brahmaṇe*—ao Senhor Brahmā; *bhagavān*—o Senhor Supremo; *svayam*—Ele mesmo; *upadiśya*—tendo instruído; *anubhāvitavān*—fez perceber.
+
+**A Suprema Personalidade de Deus [svayaṁ bhagavān] ensinou Brahmā e o tornou autorrealizado.**
+
+A máxima inglesa de que Deus ajuda aqueles que se ajudam também se aplica ao plano transcendental. Há muitos exemplos, nas escrituras reveladas, da Personalidade de Deus agindo como mestre espiritual a partir de dentro. Ele foi o mestre espiritual que instruiu Brahmā, o ser vivo original na criação cósmica. Quando Brahmā foi criado pela primeira vez, não pôde aplicar sua energia criativa para organizar a situação cósmica. No início, havia apenas som, vibrando a palavra *tapa,* que indica a aceitação de dificuldades em prol da compreensão espiritual. Abstendo-se do gozo sensual, deve-se aceitar voluntariamente todo tipo de dificuldade em prol da compreensão espiritual. Isso se chama *tapasya.* Um desfrutador dos sentidos jamais poderá compreender Deus, a divindade ou a ciência do conhecimento teísta. Assim, quando Brahmā, iniciado por Śrī Kṛṣṇa por meio da vibração sonora *tapa,* ocupou-se em atos de austeridade, pelo prazer de Viṣṇu pôde visualizar o mundo transcendental, Śrī Vaikuṇṭha, através da percepção transcendental. A ciência moderna pode comunicar-se usando descobertas materiais como o rádio, a televisão e os computadores, mas a ciência invocada pelas austeridades de Śrī Brahmā, o pai original da humanidade, era ainda mais sutil. Com o tempo, os cientistas materiais talvez também saibam como podemos nos comunicar com o mundo de Vaikuṇṭha. O Senhor Brahmā indagou sobre a potência do Senhor Supremo, e a Personalidade de Deus respondeu à sua indagação nas seis afirmações consecutivas a seguir. Essas instruções, que estão reproduzidas no *Śrīmad-Bhāgavatam* (2.9.31-36), foram transmitidas pela Personalidade de Deus, atuando como o mestre espiritual supremo.

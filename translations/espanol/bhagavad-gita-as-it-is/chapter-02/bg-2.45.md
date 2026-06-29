@@ -1,0 +1,12 @@
+### Bg 2.45
+
+> traiguṇya-viṣayā vedā
+> nistraiguṇyo bhavārjuna
+> nirdvandvo nitya-sattva-stho
+> niryoga-kṣema ātmavān
+
+*traiguṇya*—en relación con las tres modalidades de la naturaleza material; *viṣayāḥ*—en lo referente a; *vedāḥ*—escrituras Védicas; *nistraiguṇyaḥ*—en un estado puro de existencia espiritual; *bhava*—sé; *arjuna*—¡oh, Arjuna!; *nirdvandvaḥ*—libre del dolor causado por la dualidad; *nitya-sattva-sthaḥ*—estando siempre en sattva (bondad); *niryoga-kṣemaḥ*—libre (de ideas) de ganancia y conservacion; *ātmavān*—establecido en el Yo.
+
+**Los Vedas tratan principalmente del tema de las tres modalidades de la naturaleza material. Elévate por encima de estas modalidades, ¡oh Arjuna!, sé trascendental a todas ellas. Libérate de todas las dualidades y de todas las ansiedades por obtener seguridad y ganancia y establécete en el Yo.**
+
+Todas las actividades materiales implican acciones y reacciones en las tres modalidades de la naturaleza material. Se hacen para obtener resultados fruitivos, los cuales causan cautiverio en el mundo material. En su mayor parte, los Vedas tratan sobre las actividades fruitivas para elevar gradualmente al público en general desde el campo de la gratificación sensorial, hasta una posición en el nivel trascendental. A Arjuna, como estudiante y amigo del Señor Kṛṣṇa, se le aconseja que se eleve a la posición trascendental de la filosofía Vedānta, cuyo comienzo es brahma-jijñāsā, o preguntas sobre la Trascendencia Suprema. Todas las entidades vivientes que están en el mundo material luchan muy duro por la existencia. Para ellas, el Señor, después de la creación del mundo material dio la sabiduría Védica, la cual les aconseja cómo vivir y deshacerse del enredo material. Cuando se terminan las actividades de la gratificación de los sentidos, es decir el capítulo karma-kāṇḍa, se ofrece la oportunidad de la comprensión espiritual en la forma de los Upaniṣads, los cuales son parte de los diferentes Vedas, así como el Bhagavad-gītā es una parte del quinto Veda llamado Mahābhārata. Los Upaniṣads marcan el principio de la vida trascendental. Mientras el cuerpo material existe, hay acciones y reacciones en las modalidades materiales. Uno tiene que aprender tolerancia frente a las dualidades como la felicidad y el sufrimiento, o el frío y el calor y al tolerar dichas dualidades, liberarse de las ansiedades relacionadas con la pérdida y la ganancia. Ésta posición trascendental se alcanza en plena conciencia de Kṛṣṇa cuando dependes completamente de la buena voluntad de Kṛṣṇa.

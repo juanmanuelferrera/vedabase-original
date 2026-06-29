@@ -1,0 +1,9 @@
+### CC Antya 20.64
+
+pūrve aṣṭa-śloka kari' loke śikṣā dilā
+
+sei aṣṭa-ślokera artha āpane āsvādilā
+
+*pūrve*—anteriormente; *aṣṭa-śloka kari'*—compondo oito versos; *loke śikṣā dilā*—deu instrução às pessoas em geral; *sei*—aqueles; *aṣṭa-ślokera*—das oito estrofes; *artha*—o significado; *āpane āsvādilā*—saboreou pessoalmente.
+
+**O Senhor compusera anteriormente esses oito versos para ensinar as pessoas em geral. Agora, Ele saboreava pessoalmente o significado dos versos, que são chamados de Śikṣāṣṭaka.**

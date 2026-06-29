@@ -1,0 +1,22 @@
+### SB 1.10.22
+
+*sa eva bhūyo nija*-vīrya-coditāṁ
+
+*sva*-jīva-māyāṁ prakṛtiṁ sisṛkṣatīm
+
+*anāma*-rūpātmani rūpa-nāmanī
+
+*vidhitsamāno 'nusasāra śāstra*-kṛt
+
+*Sinônimos
+saḥ*—Ele; *eva*—assim; *bhūyaḥ*—novamente; *nija*—potência pessoal própria; *vīrya*—potência; *coditām*—desempenho de; *sva*—próprio; *jīva*—ser vivo; *māyām*—energia externa; *prakṛtim*—para a natureza material; *sisṛkṣatīm*—enquanto recria; *anāma*—sem designação mundana; *rūpa-ātmani*—formas da alma; *rūpa-nāmanī*—formas e nomes; *vidhitsamānaḥ*—desejando conceder; *anusasāra*—confiado; *śāstra-kṛt*—o compilador da escritura revelada.
+
+**A Personalidade de Deus, desejando novamente dar nomes e formas a Suas partes integrantes, as entidades vivas, colocou-as sob a orientação da natureza material. Por Sua própria potência, a natureza material é capacitada a recriar.**
+
+As entidades vivas são partes integrantes do Senhor. Há duas variedades delas, a saber, as nitya-mukta e as nitya-baddha. As nitya-muktas são almas eternamente liberadas e ocupam-se eternamente na reciprocidade do serviço amoroso transcendental com o Senhor em Sua morada eterna, além das criações mundanas manifestas. Mas as nitya-baddhas, ou almas eternamente condicionadas, são confiadas à Sua energia externa, māyā, para a retificação de sua atitude rebelde para com o Pai Supremo. As nitya-baddhas se esquecem eternamente de sua relação com o Senhor como partes integrantes. Elas se deixam confundir pela energia ilusória, na qualidade de produtos da matéria, e, assim, estão muito ocupadas em fazer planos no mundo material para se tornarem felizes. Elas prosseguem alegremente com seus planos, mas, pela vontade do Senhor, tanto os planejadores quanto os planos são aniquilados ao final de certo período, como mencionado acima. Isso se confirma no Bhagavad-gītā da seguinte maneira: "Ó filho de Kuntī, quando o período de um kalpa [a duração da vida de Brahmā] termina, todas as entidades vivas imergem em Minha natureza, e, novamente, quando o tempo da criação amadurece, dou início à criação por intermédio de Minha energia externa." (Bg. 9.7)
+
+A palavra bhūyaḥ indica repetidas vezes, ou seja, o processo de criação, manutenção e aniquilação prossegue perpetuamente pela energia externa do Senhor. Ele é a causa de tudo. Mas os seres vivos, que são constitucionalmente as partes integrantes do Senhor e se esquecem da doce relação, recebem novamente a oportunidade de livrar-se das garras da energia externa. E, para reviver a consciência dele (do ser vivo), o Senhor também cria as escrituras reveladas. As literaturas Védicas são as instruções orientadoras para as almas condicionadas, a fim de que possam libertar-se da repetição da criação e aniquilação do mundo material e do corpo material.
+
+O Senhor diz no Bhagavad-gītā: "Este mundo criado e a energia material estão sob Meu controle. Sob a influência de prakṛti, eles são automaticamente criados repetidas vezes, e isso é feito por Mim por intermédio de Minha energia externa."
+
+Na verdade, as entidades vivas, faíscas espirituais, não têm nomes nem formas materiais. Mas, a fim de satisfazer seu desejo de assenhorear-se da energia material de formas e nomes materiais, elas recebem a oportunidade desse falso desfrute e, ao mesmo tempo, recebem a oportunidade de compreender sua verdadeira posição por meio das escrituras reveladas. O ser vivo tolo e esquecido está sempre ocupado com formas falsas e nomes falsos. O nacionalismo moderno é a culminação desses nomes falsos e formas falsas. Os homens estão enlouquecidos atrás de nomes e formas falsos. A forma do corpo, obtida sob determinadas condições, é tomada como fato real, e o nome também adotado leva a alma condicionada a usar mal a energia em nome de tantos "ismos". As escrituras, contudo, fornecem a chave para compreender a verdadeira posição, mas os homens relutam em aprender as lições das escrituras criadas pelo Senhor para diferentes lugares e épocas. Por exemplo, o Bhagavad-gītā é o princípio orientador para todo ser humano, mas, pelo encanto da energia material, eles não se esmeram em conduzir os programas da vida em conformidade com o Bhagavad-gītā. O Śrīmad-Bhāgavatam é o estudo de pós-graduação do conhecimento para aquele que compreendeu cabalmente os princípios do Bhagavad-gītā. Infelizmente, eles não têm gosto por essas obras e, por isso, estão sob as garras de māyā para a repetição de nascimento e morte.

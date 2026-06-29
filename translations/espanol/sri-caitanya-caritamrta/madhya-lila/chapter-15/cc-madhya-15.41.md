@@ -1,0 +1,16 @@
+### CC Madhya 15.41
+
+> ācāryere ājñā dila kariyā sammāna
+> 'ā-caṇḍāla ādi kṛṣṇa-bhakti dio dāna'
+
+*ācāryere*—a Advaita Ācārya; *ājñā dila*—ordenó; *kariyā sammāna*—con gran respeto; *ā-caṇḍāla*—incluso al más bajo de los hombres, conocido como el caṇḍāla; *ādi*—empezando por; *kṛṣṇa-bhakti*—conciencia de Kṛṣṇa, o servicio devocional al Señor Kṛṣṇa; *dio*—entregad; *dāna*—en caridad.
+
+**Con gran respeto, Śrī Caitanya Mahāprabhu pidió a Advaita Ācārya: «Dad la conciencia de Kṛṣṇa, la devoción a Kṛṣṇa, incluso al más bajo de los hombres [los caṇḍālas]».**
+
+Esta es la orden de Śrī Caitanya Mahāprabhu a todos Sus devotos. El kṛṣṇa-bhakti, la devoción a Kṛṣṇa, está abierta a todos, incluso a los hombres de clase baja como los caṇḍālas. Uno debe seguir esta orden dentro de la sucesión discipular que proviene de Śrī Advaita y Nityānanda Prabhu, y distribuir la conciencia de Kṛṣṇa sin discriminación por todo el mundo.
+
+Existen distintas clases de hombres, empezando por los *brāhmaṇas* y descendiendo hasta la plataforma más baja, conocida como *caṇḍāla*. Sea cual sea la posición de cada uno, todos en esta era de Kali necesitan ser iluminados en la conciencia de Kṛṣṇa. Esa es la mayor necesidad de nuestros tiempos. Todos sienten agudamente los sufrimientos de la existencia material. Incluso en las filas del Senado estadounidense se sienten los pinchazos de la existencia material, hasta el punto de que el 30 de abril de 1974 fue declarado Día de Oración. Así pues, todos experimentan los pinchazos resultantes del Kali-yuga, provocados por la tendencia de la sociedad humana a entregarse al sexo ilícito, el consumo de carne, el juego y la intoxicación. Ahora es el momento de que los miembros de la Sociedad Internacional para la Conciencia de Krishna distribuyan el kṛṣṇa-bhakti por todo el mundo y sigan de este modo las órdenes de Śrī Caitanya Mahāprabhu. El Señor ordenó a todos que se convirtieran en gurus (Cc. Madhya 7.128): *āmāra ājñāya guru hañā tāra' ei deśa*. Todas las personas de cada pueblo y aldea deben ser iluminadas mediante las instrucciones de Śrī Caitanya Mahāprabhu. La conciencia de Kṛṣṇa debe distribuirse a todos indiscriminadamente. De esta manera, el mundo entero será pacífico y feliz, y todos glorificarán a Śrī Caitanya Mahāprabhu, tal como Él desea.
+
+La palabra *caṇḍāla* se refiere en realidad a un comedor de perros, que se considera el más bajo de los hombres. Incluso los *caṇḍālas* pueden ser iluminados en la conciencia de Kṛṣṇa gracias a las bendiciones de Śrī Caitanya Mahāprabhu. El kṛṣṇa-bhakti no es el monopolio de una determinada casta. Todos son elegibles para recibir esta gran bendición otorgada por Śrī Caitanya Mahāprabhu. A todos se les debe dar la oportunidad de recibirla y ser felices.
+
+La palabra *dāna*, que significa «caridad», también es significativa en este verso. Quienquiera que se dedique a la distribución de la conciencia de Kṛṣṇa es una persona caritativa. Los profesionales recitan el *Śrīmad-Bhāgavatam* y discuten el kṛṣṇa-bhakti a cambio de dinero. Ellos no pueden distribuir a todos y cada uno una propiedad trascendental tan exaltada. Solo los devotos puros, que no tienen otro motivo que servir a Kṛṣṇa, pueden ofrecer por caridad bendiciones de un valor trascendental tan elevado.

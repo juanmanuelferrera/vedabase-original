@@ -1,0 +1,9 @@
+### 7
+
+**Os pequenos riachos que quase secaram durante os meses de maio e junho começam agora a transbordar de suas margens, como os arrivistas que de repente transbordam os limites dos gastos.**
+
+Deve-se aprender a gravidade com o mar e com o riacho. O mar está sempre dentro de seus limites, apesar dos muitos rios que despejam água nele. De modo semelhante, deve-se utilizar adequadamente os bens da vida e não esbanjá-los em fins que não têm valor permanente. As pessoas descontroladas e sensuais brincam com os bens do corpo e acumulam riqueza. Mas a força do corpo deve ser empregada para a autorrealização, e não para a gratificação dos sentidos.
+
+Os seres humanos têm dois tipos de temperamento. Alguns são introspectivos, e os outros são extravagantes. Aqueles que são extravagantes ficam enamorados dos aspectos externos da beleza fenomenal e não têm nenhuma visão interior de toda a manifestação. Estão praticamente adormecidos para a introspecção e, assim, são incapazes de extrair qualquer valor permanente dos bens da forma humana de corpo. Mas aquele que desenvolveu a introspecção é tão grave quanto o mar. Enquanto os que são extravagantes estão calmos e quietos no sono, tais pessoas graves usam toda a vantagem da forma humana de vida.
+
+Embora as propensões animais do corpo devam ser minimizadas, aqueles que são extravagantes transbordam temporariamente no gozo material. Não obstante, tão logo a estação das chuvas da vida termina, eles se tornam tão secos quanto leitos de rios secos. A vida destina-se à causa correta, ou *sat* — aquilo que existe por todo o tempo. No mundo material, nada é *sat,* ou eterno, mas o mau negócio do mundo material pode ser usado para o melhor propósito. A mente dedicada à extravagância é um mau negócio, mas pode-se fazer o melhor uso da mente por meio da introspecção.

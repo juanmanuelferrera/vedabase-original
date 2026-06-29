@@ -1,0 +1,12 @@
+### SB 7.4.40
+
+> nadati kvacid utkaṇṭho
+> vilajjo nṛtyati kvacit
+> kvacit tad-bhāvanā-yuktas
+> tanmayo 'nucakāra ha
+
+*nadati*—exclama en voz alta (dirigiéndose al Señor: «¡Oh, Kṛṣṇa!»); *kvacit*—a veces; *utkaṇṭhaḥ*—ansioso; *vilajjaḥ*—sin vergüenza; *nṛtyati*—baila; *kvacit*—a veces; *kvacit*—a veces; *tat-bhāvanā*—pensando en Kṛṣṇa; *yuktaḥ*—absorto; *tat-mayaḥ*—pensando que se había vuelto Kṛṣṇa; *anucakāra*—imitaba; *ha*—en verdad.
+
+**A veces, al ver a la Suprema Personalidad de Dios, Prahlāda Mahārāja, lleno de ansiedad, Le llamaba a grandes voces. A veces, lleno de júbilo, perdía toda su timidez y se ponía a bailar en éxtasis, y a veces, completamente absorto en pensar en Kṛṣṇa, se sentía uno con el Señor e imitaba Sus pasatiempos.**
+
+A veces, Prahlāda Mahārāja sentía que el Señor estaba muy lejos de Él, y Le llamaba a grandes voces. Cuando veía que el Señor estaba a su lado, sentía una alegría completa. A veces, pensando que era uno con el Supremo, imitaba los pasatiempos del Señor, y a veces, debido a los sentimientos de separación, daba señales de locura. Los impersonalistas no saben reconocer estos sentimientos del devoto. En la comprensión espiritual se debe ir cada vez más lejos. La comprensión inicial es el Brahman impersonal, pero se debe ir más allá, hasta percibir a Paramātmā, y, finalmente, a la Suprema Personalidad de Dios, a quien el devoto adora con sentimientos trascendentales estableciendo una relación que puede ser o bien *śānta*, o *dāsya*, *sakhya*, *vātsalya* o *mādhurya*. Los sentimientos que Prahlāda Mahārāja manifiesta en este verso son propios de la melosidad de *vātsalya*, amor y cariño filial. Prahlāda Mahārāja, cuando sentía que el Señor se había alejado de él, comenzaba a llorar (*nadati*), como un niño que llora cuando su madre se separa de él. Y de nuevo, un devoto como Prahlāda a veces ve que el Señor viene de muy lejos para calmarle, como una madre que responde a su hijo diciendo: «No llores, querido hijito, ya vengo». Entonces el devoto, sin reparar en el lugar y las circunstancias en que se encuentra, se pone a bailar, pensando: «¡Aquí está mi Señor! ¡Mi Señor viene!». De ese modo el devoto, en pleno éxtasis, a veces imita los pasatiempos del Señor, como los pastorcillos de vacas que imitaban a los animales del bosque. Sin embargo, no se convierte en el Señor realmente. Prahlāda Mahārāja alcanzó los éxtasis espirituales que aquí se explican gracias a su avance en la comprensión espiritual.

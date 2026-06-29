@@ -1,0 +1,10 @@
+### CC Adi 5.139
+
+> kvacit krīḍā-pariśrāntaṁ
+> gopotsaṅgopabarhaṇam
+> svayaṁ viśrāmayaty āryaṁ
+> pāda-saṁvāhanādibhiḥ
+
+*kvacit*—a veces; *krīḍā*—jugando; *pariśrāntam*—muy fatigado; *gopa-utsaṅga*—el regazo de un pastorcillo de vacas; *upabarhaṇam*—cuya almohada; *svayam*—personalmente el Señor Kṛṣṇa; *viśrāmayati*—haciendo descansar; *āryam*—a Su hermano mayor; *pāda-saṁvāhana-ādibhiḥ*—masajeándole los pies, etc.
+
+**«A veces, cuando el hermano mayor del Señor Kṛṣṇa, el Señor Balarāma, Se sentía cansado después de jugar y recostaba Su cabeza en el regazo de un pastorcillo de vacas, el Señor Kṛṣṇa en persona Le servía masajeándole los pies».**

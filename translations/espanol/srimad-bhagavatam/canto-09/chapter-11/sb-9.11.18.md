@@ -1,0 +1,10 @@
+### SB 9.11.18
+
+> tata ūrdhvaṁ brahmacaryaṁ
+> dhāryann ajuhot prabhuḥ
+> trayodaśābda-sāhasram
+> agnihotram akhaṇḍitam
+
+*tataḥ*—a continuación; *ūrdhvam*—después de que madre Sītā entrase en la tierra; *brahmacaryam*—celibato completo; *dhārayan*—observar; *ajuhot*—celebró una ceremonia ritual de sacrificio; *prabhuḥ*—el Señor Rāmacandra; *trayodaśa-abda-sāhasram*—durante trece mil años; *agnihotram*—el sacrificio denominado *agnihotra-yajña*; *akhaṇḍitam*—sin interrupción.
+
+**Después de que madre Sītā entrase en la tierra, el Señor Rāmacandra observó celibato completo y celebró un agnihotra-yajña ininterrumpido durante trece mil años.**

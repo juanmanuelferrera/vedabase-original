@@ -1,0 +1,9 @@
+### CC Madhya 18.79
+
+akrūrera loka āise prabhure dekhite
+
+loka-bhiḍe svacchande nāre 'kīrtana' karite
+
+*akrūrera loka*—as pessoas de Akrūra-tīrtha; *āise*—vinham; *prabhure*—Śrī Caitanya Mahāprabhu; *dekhite*—para ver; *loka-bhiḍe*—por causa de tamanha multidão de pessoas; *svacchande*—sem perturbação; *nāre*—não podia; *kīrtana karite*—realizar o kīrtana.
+
+**Todas as pessoas que viviam perto de Akrūra-tīrtha vinham ver Śrī Caitanya Mahāprabhu e, devido às grandes multidões, o Senhor não podia cantar o santo nome em paz.**

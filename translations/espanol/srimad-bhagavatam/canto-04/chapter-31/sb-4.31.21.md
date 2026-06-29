@@ -1,0 +1,12 @@
+### SB 4.31.21
+
+> na bhajati kumanīṣiṇāṁ sa ijyāṁ
+> harir adhanātma-dhana-priyo rasa-jñaḥ
+> śruta-dhana-kula-karmaṇāṁ madair ye
+> vidadhati pāpam akiñcaneṣu satsu
+
+*na*—nunca; *bhajati*—acepta; *ku-manīṣiṇām*—de personas de corazón sucio; *saḥ*—Él; *ijyām*—ofrenda; *hariḥ*—el Señor Supremo; *adhana*—a los que no tienen posesiones materiales; *ātma-dhana*—que simplemente dependen del Señor; *priyaḥ*—que es querido; *rasa-jñaḥ*—que acepta la esencia de la vida; *śruta*—educación; *dhana*—riqueza; *kula*—aristocracia; *karmaṇām*—y de actividades fruitivas; *madaiḥ*—con orgullo; *ye*—todos aquellos que; *vidadhati*—ejecutan; *pāpam*—desgracia; *akiñcaneṣu*—sin posesiones materiales; *satsu*—a los devotos.
+
+**La Suprema Personalidad de Dios les es muy querido a los devotos que, aun careciendo de posesiones materiales, se sienten completamente felices debido a que poseen el servicio devocional del Señor. En verdad, el Señor saborea las actividades devocionales de esos devotos. Aquellos que están envanecidos con la educación material, la riqueza, la aristocracia y las actividades fruitivas, están muy orgullosos de sus posesiones materiales, y a menudo ridiculizan a los devotos. Aunque esas personas adoren al Señor, Él nunca las acepta.**
+
+La Suprema Personalidad de Dios depende de Sus devotos puros. Las ofrendas de los que no son devotos, ni siquiera las acepta. Devoto puro es aquel que tiene el sentimiento de no poseer nada material. El devoto siempre se siente feliz de poseer el servicio devocional del Señor. Desde el punto de vista material, a veces los devotos parecen pobres, pero debido a su avance y su riqueza espiritual, Le son muy queridos a la Suprema Personalidad de Dios. Estos devotos están libres del apego a la familia, la sociedad, la amistad, los hijos, etc. Abandonan el apego por todas esas posesiones materiales y están siempre felices en posesión del refugio de los pies de loto del Señor. La Suprema Personalidad de Dios comprende la posición de Su devoto. Él nunca reconoce a la persona que ridiculiza a un devoto puro. En otras palabras, el Señor Supremo jamás perdona a quien ofende a un devoto puro. La historia nos muestra muchos ejemplos de esto. Un gran *yogī* místico, Durvāsā Muni, ofendió al gran devoto Ambarīṣa Mahārāja. Inmediatamente, el *cakra* Sudarśana del Señor le persiguió para castigarle. A pesar de que acudió directamente a la Suprema Personalidad de Dios, el gran místico no mereció Su perdón. Los que siguen el sendero de la liberación deben cuidarse mucho de ofender a un devoto puro.

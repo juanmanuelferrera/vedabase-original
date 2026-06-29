@@ -1,0 +1,10 @@
+### CC Adi 17.266
+
+> praṇatite habe ihāra aparādha kṣaya
+> nirmala hṛdaye bhakti karāiba udaya
+
+*praṇatite*—al ofrecer reverencias; *habe*—habrá; *ihāra*—de tales ofensores; *aparādha*—las ofensas; *kṣaya*—destrucción; *nirmala*—puro; *hṛdaye*—en el corazón; *bhakti*—servicio devocional; *karāiba*—haré que surja; *udaya*—la aparición.
+
+**«El ofrecer reverencias les librará de todas las reacciones de sus ofensas. Entonces, por Mi gracia, el servicio devocional [*bhakti*] despertará en sus corazones purificados.**
+
+Según las prescripciones Védicas, solo a un *brāhmaṇa* se le puede ofrecer el *sannyāsa*. El *Śaṅkara-sampradāya* (*ekadaṇḍa-sannyāsa-sampradāya*) otorga la orden de *sannyāsa* solo a los *brāhmaṇas* de casta, o *brāhmaṇas* de nacimiento; pero en el sistema vaiṣṇava, incluso alguien que no haya nacido en una familia de *brāhmaṇas* puede ser elevado a *brāhmaṇa* conforme a la directriz del *Hari-bhakti-vilāsa* (*tathā dīkṣā-vidhānena dvijatvaṁ jāyate nṛṇām*). Cualquier persona de cualquier parte del mundo puede hacerse *brāhmaṇa* mediante el proceso regular de iniciación, y cuando observa la conducta brahmínica, siguiendo el principio de abstenerse de la intoxicación, la vida sexual ilícita, el consumo de carne y el juego de azar, puede recibir el *sannyāsa*. Todos los *sannyāsīs* del movimiento de conciencia de Kṛṣṇa que están predicando por todo el mundo son *brāhmaṇa-sannyāsīs* regulares. En consecuencia, los supuestos *brāhmaṇas* de casta no deberían objetar ofrecerles reverencias respetuosas. Al ofrecer tales reverencias, como recomienda Śrī Caitanya Mahāprabhu, disminuirán sus ofensas y despertarán automáticamente a su posición natural de servicio devocional. Como se dice: *nitya-siddha kṛṣṇa-prema sādhya kabhu naya*: el *kṛṣṇa-prema* puede despertar en un corazón purificado. Cuantas más reverencias ofrezcamos a los *sannyāsīs*, especialmente a los *sannyāsīs* vaiṣṇavas, más disminuimos nuestras ofensas y purificamos nuestros corazones. Solo en un corazón purificado puede despertar el *kṛṣṇa-prema*. Este es el proceso del culto de Śrī Caitanya Mahāprabhu, el movimiento de conciencia de Kṛṣṇa.

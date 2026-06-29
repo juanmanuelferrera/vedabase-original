@@ -1,0 +1,9 @@
+### SB 5.3.12
+
+*atha kathañcit skhalana*-kṣut-patana-jṛmbhaṇa-duravasthānādiṣu vivaśānāṁ naḥ smaraṇāya jvara-maraṇa-daśāyām api sakala-kaśmala-nirasanāni tava guṇa-kṛta-nāmadheyāni vacana-gocarāṇi bhavantu.
+
+*atha*—ainda assim; *kathañcit*—de algum modo; *skhalana*—tropeçando; *kṣut*—fome; *patana*—caindo; *jṛmbhaṇa*—bocejando; *duravasthāna*—por estarmos em uma posição indesejável; *ādiṣu*—e assim por diante; *vivaśānām*—incapazes; *naḥ*—de nós mesmos; *smaraṇāya*—de lembrar; *jvara-maraṇa-daśāyām*—no caso de termos febre alta na hora da morte; *api*—também; *sakala*—todos; *kaśmala*—pecados; *nirasanāni*—que podem dissipar; *tava*—Teus; *guṇa*—atributos; *kṛta*—atividades; *nāmadheyāni*—nomes; *vacana-gocarāṇi*—possíveis de serem proferidos; *bhavantu*—que se tornem.
+
+**Querido Senhor, talvez não consigamos lembrar de Teu nome, forma e qualidades em virtude de tropeçar, ter fome, cair, bocejar ou estar em uma condição miserável de doença na hora da morte, quando há febre alta. Por isso, oramos a Ti, ó Senhor, pois és muito afetuoso com Teus devotos. Por favor, ajuda-nos a lembrar de Ti e a proferir Teus santos nomes, atributos e atividades, que podem dissipar todas as reações de nossas vidas pecaminosas.**
+
+O verdadeiro êxito na vida é *ante nārāyaṇa-smṛti* — lembrar do santo nome, atributos, atividades e forma do Senhor na hora da morte. Embora possamos estar ocupados no serviço devocional do Senhor no templo, as condições materiais são tão duras e inevitáveis que poderemos esquecer-nos do Senhor na hora da morte devido a uma condição de doença ou desarranjo mental. Por conseguinte, devemos orar ao Senhor para que possamos lembrar de Seus pés de lótus sem falta na hora da morte, quando estivermos em condição tão precária. A esse respeito, pode-se também consultar o *Śrīmad-Bhāgavatam* (6.2.9–10 e 14–15).

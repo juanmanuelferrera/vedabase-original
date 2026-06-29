@@ -1,0 +1,14 @@
+### SB 9.4.65
+
+> ye dārāgāra-putrāpta-
+> prāṇān vittam imaṁ param
+> hitvā māṁ śaraṇaṁ yātāḥ
+> kathaṁ tāṁs tyaktum utsahe
+
+*ye*—esos devotos Míos que; *dāra*—la esposa; *agāra*—la casa; *putra*—los niños, hijos; *āpta*—los familiares, la sociedad; *prāṇān*—la misma vida; *vittam*—las riquezas; *imam*—todo ello; *param*—la elevación a los planetas celestiales o la unidad de fundirse en el Brahman; *hitvā*—abandonar (todas esas ambiciones y relaciones); *mām*—a Mí; *śaraṇam*—refugio; *yātāḥ*—haber aceptado; *katham*—cómo; *tān*—a esas personas; *tyaktum*—abandonarlas; *utsahe*—puedo Yo sentir entusiasmo por ello (no es posible).
+
+**Los devotos puros abandonan su hogar, esposa, hijos, familiares, riquezas y hasta su misma vida solo por servirme, sin ningún deseo de progreso material ni en esta vida ni en la siguiente. ¿Cómo podría yo abandonar nunca a esos devotos?**
+
+A la Suprema Personalidad de Dios se Le adora con las palabras *brahmaṇya-devāya go-brāhmaṇa-hitāya ca*, pues Él es el bienqueriente de los *brāhmaṇas*. Durvāsā Muni era, ciertamente, un gran *brāhmaṇa*; pero, como no era devoto, no podía sacrificarlo todo en el servicio devocional. En realidad, los grandes *yogīs* místicos tienen intereses egoístas. La prueba es que, cuando Durvāsā Muni creó un demonio para matar a Mahārāja Ambarīṣa, el rey se quedó quieto, orando a la Suprema Personalidad de Dios y dependiendo única y completamente de Él, mientras que Durvāsā Muni, cuando, por la voluntad suprema del Señor, se vio perseguido por el *cakra* Sudarśana, se perturbó tanto que huyó por todo el mundo, y trató de refugiarse en todos los rincones del universo. Al final, temiendo por su vida, acudió al Señor Brahmā, al Señor Śiva y, por último, a la Suprema Personalidad de Dios. Se preocupaba tanto de su propio cuerpo, que quiso matar el cuerpo de un *vaiṣṇava*. Por lo tanto, no era muy inteligente, y ¿cómo va a liberar la Suprema Personalidad de Dios a una persona sin inteligencia? Ciertamente, el Señor trata de proteger por entero a aquellos devotos que lo han abandonado todo por servirlo.
+
+En este verso se señala también que el apego a *dārāgāra-putrāpta* —el hogar, la esposa, los hijos, la amistad, la sociedad y el amor— no es la manera de obtener el favor de la Suprema Personalidad de Dios. La persona apegada a los placeres del hogar y el afecto material no puede llegar a ser devoto puro. A veces, un devoto puro siente atracción o está habituado a la esposa, los hijos y el hogar, pero, al mismo tiempo, desea servir al Señor Supremo lo mejor posible. En esa situación, el Señor dispone las cosas de manera especial para quitar al devoto los objetos de ese apego falso y, de ese modo, liberarle del apego a la esposa, el hogar, los hijos, los amigos, etc. Se trata de una misericordia especial que se concede al devoto para llevarle de regreso al hogar, de vuelta a Dios.

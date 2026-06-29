@@ -1,0 +1,9 @@
+### 18
+
+**Muchas plantas y enredaderas que estaban casi muertas durante los meses de abril y mayo son ahora visibles de nuevo en diversas formas, pues están nutridas por sus raíces en la tierra húmeda. Estas innumerables plantas y enredaderas se asemejan a personas que se consumen en severas penitencias por algún beneficio material, pero que luego alcanzan sus objetivos y engordan lujosamente, nutridas por el disfrute sensual.**
+
+En el *Bhagavad-gītā* se dice que cuando el día de Brahmā termina, las creaciones manifestadas del universo desaparecen por completo, y tras el fin de la noche de Brahmā la creación se manifiesta de nuevo. Así, la creación cósmica, en su manifestación y no manifestación, se asemeja a las enredaderas y plantas que aparecen durante la estación lluviosa y gradualmente desaparecen cuando la estación termina.
+
+Incluso cuando las plantas y enredaderas ya no se ven, sus semillas permanecen, y estas semillas latentes fructifican al entrar en contacto con el agua. De forma similar, las chispas espirituales semejantes a semillas que están dominadas por el deseo de señorear sobre la naturaleza material existen en estado latente después de que la manifestación cósmica es aniquilada; y cuando la manifestación cósmica reaparece, todos los seres vivientes silenciosos que se hallan dentro del seno de la naturaleza material salen y se dedican al disfrute sensual, engordando así lujosamente.
+
+Para alcanzar la liberación, uno debe purificarse por completo de las formas pervertidas del deseo. Un ser viviente no puede extinguir los deseos, y la práctica de borrar artificialmente las acciones del deseo es más peligrosa que los propios deseos activos. Todos los deseos deben reformarse y dirigirse hacia actividades espirituales; de lo contrario, esos mismos deseos se manifestarán repetidamente en distintas variedades de disfrute material, condicionando así perpetuamente al ser viviente en el cautiverio material.

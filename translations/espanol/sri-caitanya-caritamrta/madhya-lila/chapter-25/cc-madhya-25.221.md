@@ -1,0 +1,8 @@
+### CC Madhya 25.221
+
+> dina daśa rahi' rūpa gauḍe yātrā kaila
+> sanātana-rūpera ei caritra kahila
+
+*dina daśa*—unos diez días; *rahi'*—permaneciendo; *rūpa*—Rūpa Gosvāmī; *gauḍe yātrā kaila*—regresó a Bengala; *sanātana-rūpera*—de Śrī Sanātana Gosvāmī y Rūpa Gosvāmī; *ei*—así; *caritra*—carácter; *kahila*—he descrito.
+
+**Después de permanecer en Vārāṇasī unos diez días, Rūpa Gosvāmī regresó a Bengala. De esta manera he descrito las actividades de Rūpa y Sanātana.**

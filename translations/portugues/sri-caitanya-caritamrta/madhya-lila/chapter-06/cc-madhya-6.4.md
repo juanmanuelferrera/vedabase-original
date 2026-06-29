@@ -1,0 +1,8 @@
+### CC Madhya 6.4
+
+jagannātha āliṅgite calilā dhāñā
+mandire paḍilā preme āviṣṭa hañā
+
+*jagannātha*—o Senhor Jagannātha; *āliṅgite*—abraçar; *calilā*—foi; *dhāñā*—muito rapidamente; *mandire*—no templo; *paḍilā*—caiu; *preme*—em êxtase; *āviṣṭa*—dominado; *hañā*—ficando.
+
+**O Senhor Śrī Caitanya Mahāprabhu foi rapidamente abraçar o Senhor Jagannātha, mas, ao entrar no templo, ficou tão dominado pelo amor a Deus que desmaiou no chão.**

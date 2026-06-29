@@ -1,0 +1,15 @@
+### SB 4.22.29
+
+nimitte sati sarvatra
+
+*jalādāv api pūruṣaḥ
+ātmanaś ca parasyāpi
+bhidāṁ paśyati nānyadā
+SINÓNIMOS
+nimitte*—a causa de las causas; *sati*—existiendo; *sarvatra*—por doquier; *jala-ādau api*—el agua y otros medios reflectantes; *pūruṣaḥ*—la persona; *ātmanaḥ*—de uno mismo; *ca*—y; *parasya api*—del yo de otro; *bhidām*—diferenciación; *paśyati*—ve; *na anyadā*—no hay otra razón.
+
+**Únicamente debido a diferentes causas ve una persona una diferencia entre ella misma y los demás. Es como el reflejo de un cuerpo en el agua, en el aceite o en un espejo, que parece manifestarse de manera diferente.**
+
+El alma espiritual es una, la Suprema Personalidad de Dios. Se manifiesta en expansiones svāṁśa y vibhinnāṁśa. Las jīvas son expansiones vibhinnāṁśa. Las diferentes encarnaciones de la Suprema Personalidad de Dios son expansiones svāṁśa. Así pues, hay diferentes potencias del Señor Supremo, y hay diferentes expansiones de las diferentes potencias. De este modo, por diferentes razones hay diferentes expansiones de un mismo principio, la Suprema Personalidad de Dios. Esta comprensión es conocimiento verdadero; pero cuando la entidad viviente está cubierta por el upādhi o cuerpo designado, ve diferencias, exactamente igual que uno ve diferencias en los reflejos de sí mismo en el agua, en el aceite o en un espejo. Cuando algo se refleja en el agua, parece moverse. Cuando se refleja en el hielo, parece fijo. Cuando se refleja en el aceite, parece borroso. El sujeto es uno, pero bajo diferentes condiciones aparece de manera diferente. Cuando se retira el factor calificador, el conjunto parece ser uno. En otras palabras, cuando uno llega a la etapa paramahaṁsa o de perfección de la vida mediante la práctica del bhakti-yoga, ve únicamente a Kṛṣṇa en todas partes. Para él no hay ningún otro objetivo.
+
+En conclusión, debido a diferentes causas, la entidad viviente es visible en diferentes formas: como animal, ser humano, semidiós, árbol, etc. En realidad, cada entidad viviente es la potencia marginal del Señor Supremo. En el Bhagavad-gītā, por lo tanto, se explica que aquel que de hecho ve el alma espiritual no distingue entre un brāhmaṇa erudito y un perro, un elefante o una vaca. Paṇḍitāḥ sama-darśinaḥ (Bg. 5.18). Aquel que es verdaderamente erudito ve únicamente a la entidad viviente, no la cubierta externa. La diferenciación es, por consiguiente, el resultado de diferente karma o de diferentes actividades fruitivas; y cuando detenemos las actividades fruitivas, convirtiéndolas en actos de devoción, podemos comprender que no somos diferentes de nadie, independientemente de la forma. Esto solo es posible en el plano de la conciencia de Kṛṣṇa. En este movimiento participan muchas razas de hombres distintas de todas partes del mundo; pero como se consideran sirvientes de la Suprema Personalidad de Dios, no diferencian entre negro y blanco, amarillo y rojo. Por lo tanto, el movimiento para la conciencia de Kṛṣṇa es el único medio para hacer que las entidades vivientes trasciendan todas las designaciones.

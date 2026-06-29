@@ -1,0 +1,17 @@
+### SB 4.11.17
+
+*nimitta*-mātraṁ tatrāsīn
+
+nirguṇaḥ puruṣarṣabhaḥ
+
+vyaktāvyaktam idaṁ viśvaṁ
+
+yatra bhramati lohavat
+
+*nimitta-mātram*—causa remota; *tatra*—então; *āsīt*—foi; *nirguṇaḥ*—não contaminado; *puruṣa-ṛṣabhaḥ*—a Pessoa Suprema; *vyakta*—manifestado; *avyaktam*—imanifestado; *idam*—este; *viśvam*—mundo; *yatra*—onde; *bhramati*—se move; *loha-vat*—como ferro.
+
+**Meu caro Dhruva, a Suprema Personalidade de Deus não é contaminada pelos modos materiais da natureza. Ele é a causa remota da criação desta manifestação cósmica material. Quando Ele dá o impulso, são produzidas muitas outras causas e efeitos, e assim o universo inteiro se move, assim como o ferro se move pela força conjugada de um ímã.**
+
+Como a energia externa da Suprema Personalidade de Deus atua dentro deste mundo material é o que se explica neste verso. Tudo acontece pela energia do Senhor Supremo. Os filósofos ateístas, que não concordam em aceitar a Suprema Personalidade de Deus como a causa original da criação, pensam que o mundo material se movimenta pela ação e reação de diferentes elementos materiais. Um exemplo simples da interação de elementos ocorre quando misturamos bicarbonato e ácido e se produz o movimento da efervescência. Mas ninguém pode produzir vida por tal interação de substâncias químicas. Há 8.400.000 diferentes espécies de vida, com diferentes desejos e diferentes ações. Como a força material atua não pode ser explicado apenas com base na reação química. Um exemplo adequado a este respeito é o do oleiro e da roda do oleiro. A roda do oleiro gira, e várias espécies de potes de barro surgem. Há muitas causas para os potes de barro, mas a causa original é o oleiro, que imprime uma força à roda. Essa força provém de sua superintendência. A mesma ideia explica-se no Bhagavad-gītā — por trás de toda ação e reação material está Kṛṣṇa, a Suprema Personalidade de Deus. Kṛṣṇa diz que tudo depende de Sua energia e, ainda assim, Ele não está em toda parte. O pote é produzido sob certas condições de ação e reação da energia material, mas o oleiro não está no pote. De modo semelhante, a criação material é montada pelo Senhor, mas Ele permanece à parte. Como se afirma nos Vedas, Ele simplesmente lançou Seu olhar sobre ela, e a agitação da matéria imediatamente começou.
+
+No Bhagavad-gītā, também se diz que o Senhor fecunda a energia material com as jīvas, que são Suas partes integrantes, e assim as diferentes formas e diferentes atividades imediatamente surgem. Por causa dos diferentes desejos e atividades kármicas da alma jīva, produzem-se diferentes tipos de corpos em diferentes espécies. Na teoria de Darwin, não se aceita a entidade viva como alma espiritual e, por isso, sua explicação da evolução é incompleta. Variedades de fenômenos ocorrem dentro deste universo em razão das ações e reações dos três modos materiais, mas o criador original, ou a causa, é a Suprema Personalidade de Deus, mencionada aqui como nimitta-mātram, a causa remota. Ele simplesmente empurra a roda com Sua energia. Segundo os filósofos māyāvādīs, o Brahman Supremo transformou-Se em muitas variedades de formas, mas isso não é fato. Ele é sempre transcendental à ação e reação dos guṇas materiais, embora seja a causa de todas as causas. O Senhor Brahmā diz, por isso, na Brahma-saṁhitā: īśvaraḥ paramaḥ kṛṣṇaḥ sac-cid-ānanda-vigrahaḥ/ anādir ādir govindaḥ sarva-kāraṇa-kāraṇam. Há muitas causas e efeitos, mas a causa original é Śrī Kṛṣṇa.

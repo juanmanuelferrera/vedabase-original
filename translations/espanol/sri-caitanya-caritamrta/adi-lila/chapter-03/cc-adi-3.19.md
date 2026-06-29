@@ -1,0 +1,8 @@
+### CC Adi 3.19
+
+> yuga-dharma pravartāimu nāma-saṅkīrtana
+> cāri bhāva-bhakti diyā nācāmu bhuvana
+
+*yuga-dharma*—la religión de la era; *pravartāimu*—inauguraré; *nāma-saṅkīrtana*—el canto del santo nombre; *cāri*—cuatro; *bhāva*—de los sentimientos; *bhakti*—devoción; *diyā*—otorgando; *nācāmu*—haré danzar; *bhuvana*—el mundo.
+
+**«Yo personalmente inauguraré la religión de la era —*nāma-saṅkīrtana*, el canto congregacional del santo nombre—. Haré danzar al mundo en éxtasis, dándole a comprender las cuatro melosidades del servicio devocional amoroso.**

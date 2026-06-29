@@ -1,0 +1,8 @@
+### CC Madhya 12.156
+
+> purī-gosāñi, mahāprabhu, bhāratī brahmānanda
+> advaita-ācārya, āra prabhu-nityānanda
+
+*purī-gosāñi*—Paramānanda Purī; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *bhāratī brahmānanda*—Brahmānanda Bhāratī; *advaita-ācārya*—Advaita Ācārya; *āra*—y; *prabhu-nityānanda*—Nityānanda Prabhu.
+
+**Entre los devotos presentes con Śrī Caitanya Mahāprabhu se encontraban Paramānanda Purī, Brahmānanda Bhāratī, Advaita Ācārya y Nityānanda Prabhu.**

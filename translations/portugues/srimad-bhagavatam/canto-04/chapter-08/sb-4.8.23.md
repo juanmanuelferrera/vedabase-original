@@ -1,0 +1,21 @@
+### SB 4.8.23
+
+*nānyaṁ tataḥ padma*-palāśa-locanād
+
+*duḥkha*-cchidaṁ te mṛgayāmi kañcana
+
+*yo mṛgyate hasta*-gṛhīta-padmayā
+
+śriyetarair aṅga vimṛgyamāṇayā
+
+*na anyam*—nenhum outro; *tataḥ*—portanto; *padma-palāśa-locanāt*—da Suprema Personalidade de Deus, cujos olhos são como pétalas de lótus; *duḥkha-chidam*—aquele que pode mitigar as dificuldades alheias; *te*—teu; *mṛgayāmi*—busco; *kañcana*—qualquer outro; *yaḥ*—quem; *mṛgyate*—busca; *hasta-gṛhīta-padmayā*—segurando uma flor de lótus na mão; *śriyā*—a deusa da fortuna; *itaraiḥ*—pelos outros; *aṅga*—meu querido menino; *vimṛgyamāṇayā*—aquela que é adorada.
+
+**Meu querido Dhruva, no que me diz respeito, não encontro ninguém que possa mitigar tua condição aflita exceto a Suprema Personalidade de Deus, cujos olhos são como pétalas de lótus. Muitos semideuses, tais como o Senhor Brahmā e outros, buscam o prazer da deusa da fortuna, mas a própria deusa da fortuna, com uma flor de lótus na mão, está sempre pronta a prestar serviço ao Senhor Supremo.**
+
+Sunīti destacou aqui que a bênção recebida da Suprema Personalidade de Deus e aquela recebida dos semideuses não estão num mesmo nível. As pessoas tolas dizem que, não importa a quem a pessoa adore, ela obterá o mesmo resultado, mas, na verdade, isso não é um fato. No Bhagavad-gītā, também se diz que as bênçãos recebidas dos semideuses são todas temporárias e se destinam aos menos inteligentes. Em outras palavras, porque os semideuses são todos almas materialmente condicionadas, embora estejam situados em posições muito elevadas, suas bênçãos não podem ser permanentes. A bênção permanente é a bênção espiritual, visto que a alma espiritual é eterna. Também se diz no Bhagavad-gītā que somente as pessoas que perderam sua inteligência vão adorar os semideuses. Por isso, Sunīti disse a seu filho que ele não deveria buscar a misericórdia dos semideuses, mas deveria abordar diretamente a Suprema Personalidade de Deus para mitigar sua aflição.
+
+As opulências materiais são controladas pela Suprema Personalidade de Deus através de Suas diferentes potências e, especificamente, pela deusa da fortuna. Por isso, aqueles que estão atrás de opulências materiais buscam o prazer ou a misericórdia da deusa da fortuna. Mesmo os semideuses altamente situados adoram a deusa da fortuna, mas a deusa da fortuna, a própria Mahā-Lakṣmī, está sempre buscando o prazer da Suprema Personalidade de Deus. Por isso, qualquer pessoa que se dedica à adoração ao Senhor Supremo recebe automaticamente as bênçãos da deusa da fortuna. Nesta etapa de sua vida, Dhruva Mahārāja buscava opulências materiais, e sua mãe aconselhou-o, com razão, de que mesmo para opulências materiais é melhor adorar não os semideuses, mas o Senhor Supremo.
+
+Embora um devoto puro não busque bênçãos do Senhor Supremo para o avanço material, ainda assim afirma-se no Bhagavad-gītā que as pessoas piedosas vão ao Senhor mesmo em busca de bênçãos materiais. A pessoa que vai à Suprema Personalidade de Deus em busca de ganho material gradualmente se purifica na associação com o Senhor Supremo. Assim, ela se livra de todos os desejos materiais e é elevada à plataforma da vida espiritual. A menos que seja elevada à plataforma espiritual, não lhe é possível transcender completamente toda a contaminação material.
+
+Sunīti, a mãe de Dhruva, era uma mulher de visão ampla e, por isso, aconselhou seu filho a adorar o Senhor Supremo, e ninguém mais. O Senhor é aqui descrito como tendo olhos de lótus (padma-palāśa-locanāt). Quando uma pessoa está fatigada, se ela vê uma flor de lótus, toda a sua fadiga pode ser imediatamente reduzida a nada. De modo semelhante, quando uma pessoa aflita vê o rosto de lótus da Suprema Personalidade de Deus, imediatamente toda a sua aflição é reduzida. A flor de lótus também é uma insígnia na mão do Senhor Viṣṇu, bem como na mão da deusa da fortuna. Os adoradores da deusa da fortuna e do Senhor Viṣṇu, juntos, são certamente muito opulentos em todos os aspectos, mesmo na vida material. O Senhor é, às vezes, descrito como śiva-viriñci-nutam, o que significa que o Senhor Śiva e o Senhor Brahmā também oferecem suas respeitosas reverências aos pés de lótus da Suprema Personalidade de Deus, Nārāyaṇa.

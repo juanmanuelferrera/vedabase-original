@@ -1,0 +1,10 @@
+### SB 6.14.39
+
+> tāḥ paryatapyann ātmānaṁ
+> garhayantyo 'bhyasūyayā
+> ānapatyena duḥkhena
+> rājñaś cānādareṇa ca
+
+*tāḥ*—ellas (las reinas que no tenían hijos); *paryatapyan*—se lamentaban; *ātmānam*—a sí mismas; *garhayantyaḥ*—condenando; *abhyasūyayā*—por envidia; *ānapatyena*—por no tener hijos; *duḥkhena*—por infelicidad; *rājñaḥ*—del rey; *ca*—también; *anādareṇa*—debido a la falta de atención; *ca*—también.
+
+**Las demás reinas se sentían muy desdichadas por no tener hijos. Como el rey no les prestaba atención, se renegaban de sí mismas y se lamentaban, llenas de envidia.**

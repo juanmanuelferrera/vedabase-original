@@ -1,0 +1,8 @@
+### CC Antya 2.129
+
+> tabe purī-gosāñi ekā prabhu-sthāne āilā
+> namaskari' prabhu tāṅre sambhrame vasāilā
+
+*tabe*—acto seguido; *purī-gosāñi*—Paramānanda Purī; *ekā*—solo; *prabhu-sthāne*—al lugar de Śrī Caitanya Mahāprabhu; *āilā*—fue; *namaskari'*—tras ofrecer reverencias; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a él; *sambhrame*—con gran respeto; *vasāilā*—hizo sentarse.
+
+**Entonces Paramānanda Purī fue solo a la residencia de Śrī Caitanya Mahāprabhu. El Señor, tras ofrecerle reverencias, lo sentó a Su lado con gran respeto.**

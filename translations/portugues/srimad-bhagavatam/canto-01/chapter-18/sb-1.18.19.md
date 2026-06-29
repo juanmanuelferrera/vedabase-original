@@ -1,0 +1,15 @@
+### SB 1.18.19
+
+kutaḥ punar gṛṇato nāma tasya
+
+*mahattamaikānta*-parāyaṇasya
+
+yo 'nanta-śaktir bhagavān ananto
+
+*mahad*-guṇatvād yam anantam āhuḥ
+
+*kutaḥ*—o que dizer; *punaḥ*—ainda; *gṛṇataḥ*—aquele que canta; *nāma*—santo nome; *tasya*—Seu; *mahat-tama*—grandes devotos; *ekānta*—exclusivo; *parāyaṇasya*—d'Aquele que toma o refúgio de; *yaḥ*—Ele que; *ananta*—é o Ilimitado; *śaktiḥ*—potência; *bhagavān*—a Personalidade de Deus; *anantaḥ*—incomensurável; *mahat*—grande; *guṇatvāt*—por causa de tais atributos; *yam*—quem; *anantam*—pelo nome ananta; *āhuḥ*—é chamado.
+
+**E o que dizer daqueles que estão sob a direção dos grandes devotos, cantando o santo nome do Ilimitado, que tem potência ilimitada? A Personalidade de Deus, ilimitada em potência e transcendental em atributos, é chamada ananta [Ilimitado].**
+
+Os dvija-bandhus, ou os homens menos inteligentes e incultos nascidos de castas superiores, apresentam muitos argumentos contra a possibilidade de os homens de casta inferior tornarem-se brāhmaṇas nesta vida. Eles argumentam que o nascimento na família de śūdras, ou de classe inferior a śūdras, é possibilitado pelos atos pecaminosos anteriores da pessoa e, por isso, ela tem de cumprir os termos das desvantagens devidas ao nascimento inferior. E, para responder a esses falsos lógicos, o Śrīmad-Bhāgavatam afirma que aquele que canta o santo nome do Senhor sob a direção de um devoto puro pode imediatamente libertar-se das desvantagens devidas ao nascimento em casta inferior. Um devoto puro do Senhor não comete ofensa alguma ao cantar o santo nome do Senhor. Há dez ofensas diferentes no cantar do santo nome do Senhor. Cantar o santo nome sob a direção de um devoto puro é o cantar sem ofensas. O cantar do santo nome do Senhor sem ofensas é transcendental e, por isso, tal cantar pode imediatamente purificar a pessoa dos efeitos de toda espécie de pecados anteriores. Esse cantar sem ofensas indica que a pessoa compreendeu plenamente a natureza transcendental do santo nome e, assim, rendeu-se ao Senhor. Transcendentalmente, o santo nome do Senhor e o próprio Senhor são idênticos, por serem absolutos. O santo nome do Senhor é tão poderoso quanto o próprio Senhor. O Senhor é a todo-poderosa Personalidade de Deus, e Ele tem inumeráveis nomes, que não são, todos eles, diferentes dEle, e são igualmente poderosos também. Na última palavra do Bhagavad-gītā, o Senhor afirma que aquele que se rende plenamente a Ele é protegido de todos os pecados pela graça do Senhor. Visto que Seu nome e Ele próprio são idênticos, o santo nome do Senhor pode proteger o devoto de todos os efeitos dos pecados. O cantar do santo nome do Senhor pode, sem dúvida, livrar a pessoa das desvantagens de um nascimento em casta inferior. O ilimitado poder do Senhor estende-se cada vez mais pela ilimitada expansão dos devotos e das encarnações, e assim todo devoto do Senhor, bem como as encarnações, também podem ser igualmente sobrecarregados com a potência do Senhor. Visto que o devoto está sobrecarregado com a potência do Senhor, ainda que fracionalmente, a desqualificação devida ao nascimento inferior não pode interpor-se no caminho.

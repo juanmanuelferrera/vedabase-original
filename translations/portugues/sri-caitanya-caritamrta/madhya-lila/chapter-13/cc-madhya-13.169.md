@@ -1,0 +1,9 @@
+### CC Madhya 13.169
+
+sūryera kiraṇe mukha kare jhalamala
+
+mālya, vastra, divya alaṅkāra, parimala
+
+*sūryera*—do sol; *kiraṇe*—pelos raios da luz solar; *mukha*—o rosto; *kare*—faz; *jhalamala*—reluzir; *mālya*—guirlanda; *vastra*—vestes; *divya alaṅkāra*—belos ornamentos; *parimala*—envolto em fragrância.
+
+**O Senhor Jagannātha estava enguirlandado, trajado com belas vestes e adornado com belos ornamentos. Seu rosto reluzia sob os raios da luz solar, e toda a atmosfera estava fragrante.**

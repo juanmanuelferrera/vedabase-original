@@ -1,0 +1,9 @@
+### CC Adi 16.88
+
+kahite cāhaye kichu, nā āise uttara
+
+tabe vicāraye mane ha-iyā phāṅphara
+
+*kahite*—falar; *cāhaye*—quer; *kichu*—algo; *nā*—não; *āise*—vem; *uttara*—nenhuma resposta; *tabe*—em seguida; *vicāraye*—considera; *mane*—dentro da mente; *ha-iyā*—ficando; *phāṅphara*—perplexo.
+
+**Ele queria dizer algo, mas nenhuma resposta lhe saía da boca. Pôs-se, então, a considerar este enigma dentro de sua mente.**

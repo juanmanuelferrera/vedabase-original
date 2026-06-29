@@ -1,0 +1,10 @@
+### SB 4.1.35
+
+> tat-putrāv aparāv āstāṁ
+> khyātau svārociṣe 'ntare
+> utathyo bhagavān sākṣād
+> brahmiṣṭhaś ca bṛhaspatiḥ
+
+*tat*—sus; *putrau*—hijos; *aparau*—otros; *āstām*—nacieron; *khyātau*—muy famosos; *svārociṣe*—en el milenio de Svārociṣa; *antare*—del *manu*; *utathyaḥ*—Utathya; *bhagavān*—muy poderoso; *sākṣāt*—directamente; *brahmiṣṭhaḥ ca*—de avance espiritual completo; *bṛhaspatiḥ*—Bṛhaspati.
+
+**Además de estas cuatro hijas, tuvo otros dos hijos. Uno de ellos se llamó Utathya, y el otro fue Bṛhaspati, el sabio erudito.**

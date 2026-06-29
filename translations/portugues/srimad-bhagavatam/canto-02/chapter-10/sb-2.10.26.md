@@ -1,0 +1,15 @@
+### SB 2.10.26
+
+nirabhidyata śiśno vai
+
+prajānandāmṛtārthinaḥ
+
+upastha āsīt kāmānāṁ
+
+*priyaṁ tad*-ubhayāśrayam
+
+*nirabhidyata*—saiu; *śiśnaḥ*—os genitais; *vai*—certamente; *prajā-ānanda*—prazer sexual; *amṛta-arthinaḥ*—aspirando a saborear o néctar; *upasthaḥ*—o órgão masculino ou feminino; *āsīt*—veio à existência; *kāmānām*—dos lascivos; *priyam*—muito querido; *tat*—aquilo; *ubhaya-āśrayam*—refúgio para ambos.
+
+**Em seguida, para o prazer sexual, a procriação de descendentes e a degustação do néctar celestial, o Senhor desenvolveu os órgãos genitais, e assim há o órgão genital e sua deidade controladora, o Prajāpati. O objeto do prazer sexual e a deidade controladora estão sob o controle dos órgãos genitais do Senhor.**
+
+O prazer celestial para a alma condicionada é o prazer sexual, e este prazer é saboreado pelos órgãos genitais. A mulher é o objeto do prazer sexual, e tanto a percepção sensorial do prazer sexual quanto a mulher são controladas pelo Prajāpati, que está sob o controle dos órgãos genitais do Senhor. O impersonalista deve aprender com este verso que o Senhor não é impessoal, pois Ele tem Seus órgãos genitais, dos quais dependem todos os objetos prazerosos do sexo. Ninguém se daria ao trabalho de manter filhos se não houvesse o sabor do néctar celestial por meio da relação sexual. Este mundo material é criado para dar uma oportunidade às almas condicionadas de se rejuvenescerem para voltar ao lar, voltar ao Supremo, e, por conseguinte, a geração do ser vivo é necessária para a manutenção do propósito da criação. O prazer sexual é um impulso para tal ação e, dessa forma, pode-se até mesmo servir ao Senhor no ato desse prazer sexual. O serviço é contabilizado quando os filhos nascidos desse prazer sexual são devidamente treinados em consciência de Deus. Toda a ideia da criação material é reavivar a consciência de Deus adormecida da entidade viva. Em outras formas de vida, além da forma humana, o prazer sexual é proeminente apenas, sem nenhum motivo de serviço à missão do Senhor. Mas, na forma humana de vida, a alma condicionada pode prestar serviço ao Senhor ao criar progênie adequada para que se alcance a salvação. Pode-se gerar centenas de filhos e desfrutar do prazer celestial da relação sexual, contanto que se seja capaz de treinar os filhos em consciência de Deus. Caso contrário, gerar filhos está no nível do porco. Aliás, o porco é mais perito que o ser humano, pois o porco pode gerar uma dúzia de leitões de uma só vez, ao passo que o ser humano pode dar à luz apenas um de cada vez. Portanto, deve-se sempre lembrar que os órgãos genitais, o prazer sexual, a mulher e os descendentes estão todos relacionados ao serviço ao Senhor, e aquele que se esquece dessa relação no serviço ao Senhor Supremo fica sujeito às três espécies de misérias da existência material pelas leis da natureza. A percepção do prazer sexual existe até no corpo do cão, mas não há nenhum senso de consciência de Deus. A forma humana de vida distingue-se da do cão pela percepção da consciência de Deus.

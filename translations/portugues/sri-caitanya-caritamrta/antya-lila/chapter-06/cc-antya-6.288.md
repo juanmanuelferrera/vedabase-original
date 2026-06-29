@@ -1,0 +1,9 @@
+### CC Antya 6.288
+
+śaṅkarānanda-sarasvatī vṛndāvana haite āilā
+
+teṅha sei śilā-guñjā-mālā lañā gelā
+
+*śaṅkarānanda-sarasvatī*—um dos devotos de Śrī Caitanya Mahāprabhu; *vṛndāvana haite*—de Vṛndāvana; *āilā*—veio; *teṅha*—ele; *sei*—aquela; *śilā-guñjā-mālā*—a pedra e a guirlanda de pequenos búzios; *lañā*—levando; *gelā*—foi.
+
+**Anteriormente, quando Śaṅkarānanda Sarasvatī havia retornado de Vṛndāvana, ele trouxera a pedra da Colina de Govardhana e também a guirlanda de búzios.**

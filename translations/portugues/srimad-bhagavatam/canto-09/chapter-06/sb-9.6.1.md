@@ -1,0 +1,17 @@
+### SB 9.6.1
+
+śrī-śuka uvāca
+
+virūpaḥ ketumāñ chambhur
+
+*ambarīṣa*-sutās trayaḥ
+
+virūpāt pṛṣadaśvo 'bhūt
+
+*tat*-putras tu rathītaraḥ
+
+*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī disse; *virūpaḥ*—de nome Virūpa; *ketumān*—de nome Ketumān; *śambhuḥ*—de nome Śambhu; *ambarīṣa*—de Ambarīṣa Mahārāja; *sutāḥ trayaḥ*—os três filhos; *virūpāt*—de Virūpa; *pṛṣadaśvaḥ*—de nome Pṛṣadaśva; *abhūt*—houve; *tat-putraḥ*—seu filho; *tu*—e; *rathītaraḥ*—de nome Rathītara.
+
+**Śukadeva Gosvāmī disse: Ó Mahārāja Parīkṣit, Ambarīṣa teve três filhos, chamados Virūpa, Ketumān e Śambhu. De Virūpa veio um filho chamado Pṛṣadaśva, e de Pṛṣadaśva veio um filho chamado Rathītara.**
+
+---

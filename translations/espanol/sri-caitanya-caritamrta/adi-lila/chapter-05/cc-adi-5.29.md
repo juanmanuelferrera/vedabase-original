@@ -1,0 +1,8 @@
+### CC Adi 5.29
+
+> yadyapi kevala tāṅra krīḍā-mātra dharma
+> tathāpi jīvere kṛpāya kare eka karma
+
+*yadyapi*—aunque; *kevala*—solo; *tāṅra*—Su; *krīḍā-mātra*—únicamente pasatiempos; *dharma*—función característica; *tathāpi*—aun así; *jīvere*—a las almas caídas; *kṛpāya*—por misericordia sin causa; *kare*—hace; *eka*—una; *karma*—actividad.
+
+**Aunque Sus pasatiempos son Su única función característica, por Su misericordia sin causa realiza una actividad en favor de las almas caídas.**

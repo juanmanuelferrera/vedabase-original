@@ -1,0 +1,9 @@
+### CC Madhya 20.243
+
+prakāśa-vilāsera ei kailuṅ vivaraṇa
+
+svāṁśera bheda ebe śuna, sanātana
+
+*prakāśa-vilāsera*—das formas e manifestações dos passatempos; *ei*—esta; *kailuṅ*—eu fiz; *vivaraṇa*—descrição; *svāṁśera*—das expansões pessoais; *bhede*—as diferenças; *ebe*—agora; *śuna*—por favor, ouve; *sanātana*—ó Sanātana Gosvāmī.
+
+**"Já descrevi as formas do passatempo e prakāśa. Agora, por favor, ouve sobre as diferentes expansões pessoais.**

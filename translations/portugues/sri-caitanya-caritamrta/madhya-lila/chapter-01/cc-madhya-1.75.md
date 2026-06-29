@@ -1,0 +1,8 @@
+### CC Madhya 1.75
+
+e-saba kahiba āge vistāra kariñā
+saṅkṣepe uddeśa kaila prastāva pāiñā
+
+*e-saba*—todos estes; *kahiba*—narrarei; *āge*—mais tarde; *vistāra*—elaboração; *kariñā*—fazendo; *saṅkṣepe*—em breve; *uddeśa*—referência; *kaila*—fiz; *prastāva*—oportunidade; *pāiñā*—obtendo.
+
+**Descreverei todos esses incidentes de modo elaborado mais adiante. Por ora, dei apenas uma breve referência.**

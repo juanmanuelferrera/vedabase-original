@@ -1,0 +1,8 @@
+### CC Madhya 24.315
+
+> "sākṣāt īśvara tumi vrajendra-nandana
+> tomāra niśvāse sarva-veda-pravartana
+
+*sākṣāt īśvara tumi*—Tú eres la Suprema Personalidad de Dios; *vrajendra-nandana*—el hijo del Mahārāja Nanda; *tomāra niśvāse*—por Tu aliento; *sarva-veda*—toda la literatura Védica; *pravartana*—se hace vibrar.
+
+**Sanātana Gosvāmī dijo: «Mi querido Señor, Tú eres la Suprema Personalidad de Dios, Kṛṣṇa, el hijo del Mahārāja Nanda. Toda la literatura Védica vibra a través de Tu aliento.**

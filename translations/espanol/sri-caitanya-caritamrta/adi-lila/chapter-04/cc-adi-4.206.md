@@ -1,0 +1,10 @@
+### CC Adi 4.206
+
+> lakṣaṇaṁ bhakti-yogasya
+> nirguṇasya hy udāhṛtam
+> ahaituky avyavahitā
+> yā bhaktiḥ puruṣottame
+
+*lakṣaṇam*—el síntoma; *bhakti-yogasya*—del servicio devocional; *nirguṇasya*—más allá de las tres modalidades de la naturaleza; *hi*—ciertamente; *udāhṛtam*—se cita; *ahaitukī*—sin causa; *avyavahitā*—ininterrumpido; *yā*—el cual; *bhaktiḥ*—servicio devocional; *puruṣottame*—a la Suprema Personalidad de Dios.
+
+**»Estas son las características del servicio amoroso trascendental a Puruṣottama, la Suprema Personalidad de Dios: es sin causa y no puede ser obstruido de modo alguno.**

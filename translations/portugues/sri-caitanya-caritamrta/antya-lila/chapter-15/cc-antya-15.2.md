@@ -1,0 +1,8 @@
+### CC Antya 15.2
+
+jaya jaya śrī-kṛṣṇa-caitanya adhīśvara
+jaya nityānanda pūrṇānanda-kalevara
+
+*jaya jaya*—todas as glórias; *śrī-kṛṣṇa-caitanya*—ao Senhor Caitanya Mahāprabhu; *adhīśvara*—a Suprema Personalidade de Deus; *jaya*—todas as glórias; *nityānanda*—ao Senhor Nityānanda; *pūrṇa-ānanda*—repleto de prazer transcendental; *kalevara*—Seu corpo.
+
+**Todas as glórias a Śrī Kṛṣṇa Caitanya, a Suprema Personalidade de Deus! Todas as glórias ao Senhor Nityānanda, cujo corpo está sempre repleto de bem-aventurança transcendental!**

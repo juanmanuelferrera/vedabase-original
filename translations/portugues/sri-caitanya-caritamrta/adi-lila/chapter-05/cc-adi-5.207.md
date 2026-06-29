@@ -1,0 +1,9 @@
+### CC Adi 5.207
+
+emana nirghṛṇa more kebā kṛpā kare
+
+eka nityānanda vinu jagat bhitare
+
+*emana*—tão; *nirghṛṇa*—abominável; *more*—a mim; *kebā*—quem; *kṛpā*—misericórdia; *kare*—mostra; *eka*—único; *nityānanda*—o Senhor Nityānanda; *vinu*—exceto; *jagat*—mundo; *bhitare*—dentro.
+
+**Quem, neste mundo, além de Nityānanda, poderia mostrar Sua misericórdia a uma pessoa tão abominável como eu?**

@@ -1,0 +1,15 @@
+### SB 8.6.30
+
+mahendraḥ ślakṣṇayā vācā
+
+*sāntvayitvā mahā*-matiḥ
+
+abhyabhāṣata tat sarvaṁ
+
+śikṣitaṁ puruṣottamāt
+
+*mahā-indraḥ*—o rei do céu, Indra; *ślakṣṇayā*—muito brandas; *vācā*—por palavras; *sāntvayitvā*—agradando muito a Bali Mahārāja; *mahā-matiḥ*—a pessoa mais inteligente; *abhyabhāṣata*—dirigiu-se; *tat*—aquilo; *sarvam*—tudo; *śikṣitam*—que fora aprendido; *puruṣa-uttamāt*—do Senhor Viṣṇu.
+
+**Após agradar Bali Mahārāja com palavras brandas, o Senhor Indra, o rei dos semideuses, que era extremamente inteligente, apresentou muito polidamente todas as propostas que havia aprendido da Suprema Personalidade de Deus, o Senhor Viṣṇu.**
+
+---

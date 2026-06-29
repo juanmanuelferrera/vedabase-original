@@ -1,0 +1,8 @@
+### CC Madhya 10.111
+
+kṛṣṇa-rasa-tattva-vettā, deha-prema-rūpa
+sākṣāt mahāprabhura dvitīya svarūpa
+
+*kṛṣṇa-rasa*—das doçuras transcendentais em relação com Kṛṣṇa; *tattva*—da verdade; *vettā*—conhecedor; *deha*—corpo; *prema-rūpa*—prema personificado; *sākṣāt*—diretamente; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *dvitīya*—segunda; *svarūpa*—representação.
+
+**Śrī Svarūpa Dāmodara era a personificação do amor extático, plenamente conhecedor das doçuras transcendentais em relação com Kṛṣṇa. Ele representava diretamente Śrī Caitanya Mahāprabhu como Sua segunda expansão.**

@@ -1,0 +1,8 @@
+### CC Adi 16.13
+
+> teṅho tomāra sādhya-sādhana karibe niścaya
+> sākṣāt īśvara teṅho,--nāhika saṁśaya
+
+*teṅho*—Él; *tomāra*—tu; *sādhya*—objetivo de la vida; *sādhana*—proceso; *karibe*—hará; *niścaya*—determinar; *sākṣāt*—directamente; *īśvara*—el Señor; *teṅho*—Él es; *nāhika*—no hay; *saṁśaya*—duda.
+
+**«Puesto que Él es el Señor [īśvara]», le dijo el *brāhmaṇa*, «indudablemente Él puede darte la dirección apropiada».**

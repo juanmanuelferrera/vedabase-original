@@ -1,0 +1,12 @@
+### SB 1.15.49
+
+> viduro 'pi parityajya
+> prabhāse deham ātmanaḥ
+> kṛṣṇāveśena tac-cittaḥ
+> pitṛbhiḥ sva-kṣayaṁ yayau
+
+*viduraḥ*—Vidura (el tío de Mahārāja Yudhiṣṭhira); *api*—también; *parityajya*—al abandonar el cuerpo; *prabhāse*—en Prabhāsa, el lugar de peregrinaje; *deham ātmanaḥ*—su cuerpo; *kṛṣṇa*—la Personalidad de Dios; *āveśena*—estando absorto en ese pensamiento; *tat*—sus; *cittaḥ*—pensamientos y acciones; *pitṛbhiḥ*—junto con los residentes de Pitṛloka; *sva-kṣayam*—su propia morada; *yayau*—partió.
+
+**Vidura, mientras estaba de peregrinaje, abandonó su cuerpo en Prabhāsa. Como estaba absorto en el pensamiento del Señor Kṛṣṇa, fue recibido por los habitantes del planeta Pitṛloka, donde regresó a su puesto original.**
+
+La diferencia entre los Pāṇḍavas y Vidura consiste en que los Pāṇḍavas son asociados eternos del Señor, la Personalidad de Dios, mientras que Vidura es uno de los semidioses administrativos a cargo del planeta Pitṛloka, y se le conoce como Yamarāja. Los hombres temen a Yamarāja porque es él, únicamente, quien otorga castigo a los malvados del mundo material, pero aquellos que son devotos del Señor no tienen nada que temer de él. Para los devotos es un amigo cordial, pero para los no devotos es el temor personificado. Como ya hemos comentado, se entiende que Yamarāja fue maldecido por Maṇḍuka Muni a ser degradado como śūdra y, por lo tanto, Vidura era una encarnación de Yamarāja. Como servidor eterno del Señor, desplegó sus actividades devocionales con gran ardor y vivió una vida de hombre piadoso, hasta tal punto que incluso un hombre materialista como Dhṛtarāṣṭra obtuvo la salvación gracias a su instrucción. De modo que, por sus actividades piadosas en el servicio devocional del Señor, pudo recordar siempre los pies de loto del Señor, y de ese modo quedó lavado de toda contaminación de una vida nacida como śūdra. Al final fue recibido de nuevo por los habitantes de Pitṛloka y destinado a su posición original. Los semidioses son también asociados del Señor sin contacto personal, mientras que los asociados directos del Señor están en constante contacto personal con Él. El Señor y Sus asociados personales se encarnan en muchos universos sin cesación. El Señor los recuerda a todos, mientras que los asociados olvidan, debido a que son partes integrales muy diminutas del Señor; son propensos a olvidar tales incidencias por ser infinitesimales. Esto se corrobora en el Bhagavad-gītā (Bg. 4.5).

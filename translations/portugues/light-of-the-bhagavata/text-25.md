@@ -1,0 +1,7 @@
+### 25
+
+**O Senhor correspondia aos sentimentos dos habitantes da floresta de Vṛndāvana. Quando chovia, o Senhor abrigava-se aos pés das árvores ou nas cavernas e desfrutava o sabor de diferentes frutas com Seus associados eternos, os vaqueirinhos. Ele brincava com eles, sentava-se com eles e comia frutas com eles.**
+
+Tornar-se uno com Deus nem sempre indica que um ser vivo se funde na existência do Senhor. Tornar-se uno com Deus significa alcançar a própria qualidade original e espiritual. A menos que alcance sua qualidade espiritual, ninguém pode entrar no reino de Deus. Os membros da escola impersonalista explicam sua ideia de unidade pelo exemplo da mistura da água do rio com a água do mar. Mas devemos saber que dentro da água do mar há seres vivos que não se fundem na existência da água, mas mantêm suas identidades separadas e desfrutam a vida dentro da água. Eles são unos com a água no sentido de que alcançaram a qualidade de viver dentro da água. De modo semelhante, o mundo espiritual não carece de seus próprios elementos distintos. Um ser vivo pode manter sua identidade espiritual separada no reino espiritual e desfrutar a vida com o ser espiritual supremo, a Personalidade de Deus.
+
+Em Vṛndāvana, todas as entidades espirituais — os vaqueirinhos, as vaqueiras, a floresta, as árvores, as colinas, a água, as frutas, as vacas e todas as demais — desfrutam a vida espiritualmente em associação com o Senhor, Śrī Kṛṣṇa. Elas são, simultaneamente, unas com o Senhor e diferentes Dele. Mas, em última análise, são unas em variedades diferentes.

@@ -1,0 +1,8 @@
+### SB 5.24.1
+
+> śrī-śuka uvāca
+> adhastāt savitur yojanāyute svarbhānur nakṣatravac caratīty eke yo 'sāv amaratvaṁ grahatvaṁ cālabhata bhagavad-anukampayā svayam asurāpasadaḥ saiṁhikeyo hy atad-arhas tasya tāta janma karmāṇi copariṣṭād vakṣyāmaḥ.
+
+*śrī-śukaḥ uvāca*—Śrī Śukadeva Gosvāmī dijo; *adhastāt*—por debajo; *savituḥ*—el globo solar; *yojana*—medida de longitud equivalente a unos trece kilómetros; *ayute*—diez mil; *svarbhānuḥ*—el planeta Rāhu; *nakṣatra-vat*—como una de las estrellas; *carati*—gira; *iti*—así; *eke*—algunos eruditos en los *Purāṇas*; *yaḥ*—que; *asau*—ese; *amaratvam*—una vida como la de los semidioses; *grahatvam*—una posición semejante a la de los planetas principales; *ca*—y; *alabhata*—obtuvo; *bhagavat-anukampayā*—por la compasión de la Suprema Personalidad de Dios; *svayam*—personalmente; *asura-apasadaḥ*—el más bajo de los *asuras*; *saiṁhikeyaḥ*—siendo hijo de Siṁhikā; *hi*—en verdad; *a-tat-arhaḥ*—no cualificado para esa posición; *tasya*—su; *tāta*—¡oh, mi querido rey!; *janma*—nacimiento; *karmāṇi*—actividades; *ca*—también; *upariṣṭāt*—después; *vakṣyāmaḥ*—te explicaré.
+
+**Śrī Śukadeva Gosvāmī dijo: Mi querido rey, los historiadores que narraron los Purāṇas dicen que a 10 000 yojanas [129 000 kilómetros] por debajo del Sol se encuentra el planeta Rāhu, que sigue un curso semejante al de las estrellas. La deidad regente de ese planeta es el hijo de Siṁhikā, y es el más abominable de todos los asuras; está completamente incapacitado para ocupar una posición de semidiós o de deidad planetaria, pero ha logrado elevarse hasta ese nivel por la gracia de la Suprema Personalidad de Dios. Más adelante volveré a hablarte de él.**

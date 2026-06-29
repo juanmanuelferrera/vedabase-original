@@ -1,0 +1,16 @@
+### SB 4.29.81
+
+> prācīnabarhī rājarṣiḥ
+> prajā-sargābhirakṣaṇe
+> ādiśya putrān agamat
+> tapase kapilāśramam
+
+*prācīnabarhiḥ*—el rey Prācīnabarhi; *rāja-ṛṣiḥ*—el rey santo; *prajā-sarga*—a los ciudadanos; *abhirakṣaṇe*—que protegieran; *ādiśya*—después de ordenar; *putrān*—a sus hijos; *agamat*—partió; *tapase*—para someterse a austeridades; *kapila-āśramam*—al lugar sagrado conocido con el nombre de Kapilāśrama.
+
+**En presencia de sus ministros, el santo rey Prācīnabarhi dejó órdenes para sus hijos de que protegiesen a los ciudadanos. Entonces abandonó el hogar y partió para someterse a austeridades en un lugar sagrado que recibe el nombre de Kapilāśrama.**
+
+La palabra prajā-sarga es muy importante en este verso. Cuando el santo rey Prācīnabarhi fue inducido por el gran sabio Nārada a abandonar el hogar y dedicarse al servicio devocional del Señor, sus hijos aún no habían regresado de sus austeridades en el agua. Sin embargo, él no esperó a que regresaran, sino que simplemente dejó mensajes en el sentido de que sus hijos debían proteger a la masa de ciudadanos. Según Vīrarāghava Ācārya, esa protección significa organizar a los ciudadanos en las divisiones específicas de los cuatro varṇas y los cuatro āśramas. Era responsabilidad del orden real velar por que los ciudadanos siguieran los principios regulativos de los cuatro varṇas (a saber, brāhmaṇas, kṣatriyas, vaiśyas y śūdras) y los āśramas (a saber, brahmacarya, gṛhastha, vānaprastha y sannyāsa). Es muy difícil gobernar a los ciudadanos de un reino sin organizar este varṇāśrama-dharma. Gobernar a la masa de ciudadanos de un estado y mantenerlos en un orden completamente progresivo no es posible simplemente promulgando leyes cada año en una asamblea legislativa. El varṇāśrama-dharma es esencial en un buen gobierno. Una clase de hombres (los brāhmaṇas) debe ser inteligente y poseer las cualidades brahmínicas, otra clase debe estar adiestrada en la labor administrativa (kṣatriya), otra en los negocios mercantiles (vaiśya) y otra simplemente en el trabajo manual (śūdra). Estas cuatro clases de hombres ya existen conforme a la naturaleza, pero es deber del gobierno velar por que las cuatro sigan metódicamente los principios de sus varṇas. Esto se denomina abhirakṣaṇa, o protección.
+
+Es significativo que, cuando Mahārāja Prācīnabarhi quedó convencido de cuál era la meta de la vida a través de las instrucciones de Nārada, no esperó ni un instante a ver regresar a sus hijos, sino que partió de inmediato. Había muchas cosas que hacer al regreso de sus hijos, pero él simplemente les dejó un mensaje. Sabía cuál era su deber primordial. Se limitó a dejar instrucciones para sus hijos y se marchó con el propósito del avance espiritual. Este es el sistema de la civilización Védica.
+
+Śrīdhara Svāmī nos informa de que Kapilāśrama está situado en la confluencia del Ganges y la bahía de Bengala, un lugar conocido ahora como Gaṅgā-sāgara. Este lugar sigue siendo famoso como lugar de peregrinaje, y muchos millones de personas se reúnen allí cada año el día de Makara-saṅkrānti y se bañan. Se le llama Kapilāśrama porque el Señor Kapila vivió allí para realizar Sus austeridades y penitencias. El Señor Kapila expuso el sistema filosófico Sāṅkhya.

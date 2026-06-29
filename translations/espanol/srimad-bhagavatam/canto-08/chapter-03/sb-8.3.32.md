@@ -1,0 +1,12 @@
+### SB 8.3.32
+
+> so 'ntaḥ-sarasy urubalena gṛhīta ārto
+> dṛṣṭvā garutmati hariṁ kha upātta-cakram
+> utkṣipya sāmbuja-karaṁ giram āha kṛcchrān
+> nārāyaṇākhila-guro bhagavan namas te
+
+*saḥ*—él (Gajendra); *antaḥ-sarasi*—en el agua; *uru-balena*—con mucha fuerza; *gṛhītaḥ*—que había sido atrapado por el cocodrilo; *ārtaḥ*—y sufriendo muchísimo; *dṛṣṭvā*—al ver; *garutmati*—a lomos de Garuḍa; *harim*—al Señor; *khe*—en el cielo; *upātta-cakram*—empuñando Su disco; *utkṣipya*—levantando; *sa-ambuja-karam*—su trompa, con una flor de loto; *giram-āha*—pronunció las palabras; *kṛcchrāt*—con gran dificultad (debido a su precaria situación); *nārāyaṇa*—¡oh, mi Señor, Nārāyaṇa!; *akhila-guro*—¡oh, Señor universal!; *bhagavan*—¡oh, Suprema Personalidad de Dios!; *namaḥ te*—Te ofrezco mis respetuosas reverencias.
+
+**Gajendra había sido fuertemente atrapado por el cocodrilo en el agua y sentía un intenso dolor; pero cuando vio que Nārāyaṇa, empuñando Su disco, Se acercaba por el cielo a lomos de Garuḍa, inmediatamente recogió una flor de loto con la trompa y, a pesar del gran dolor que sentía, pronunció, con gran dificultad, las siguientes palabras: «¡Oh, mi Señor, Nārāyaṇa, amo del universo!, ¡oh, Suprema Personalidad de Dios!, Te ofrezco mis respetuosas reverencias».**
+
+El rey de los elefantes estaba tan deseoso de ver a la Suprema Personalidad de Dios que, cuando vio al Señor acercarse por el cielo, sintiendo un gran dolor y con una voz muy débil Le presentó sus respetos. El devoto no considera peligrosas las situaciones peligrosas, pues en esas ocasiones puede orar al Señor fervientemente y con gran éxtasis. Así, para el devoto, los peligros son oportunidades favorables. *Tat te 'nukampāṁ susamīkṣamāṇaḥ*. Cuando se encuentra en un gran peligro, el devoto lo considera una gran misericordia del Señor, pues le da la oportunidad de pensar en el Señor con gran sinceridad y atención firme. *Tat te 'nukampāṁ susamīkṣamāno bhuñjāna evātma-kṛtaṁ vipākam* (*Bhāg.* 10.14.8). El devoto no acusa a la Suprema Personalidad de Dios por no haberle evitado ese mal trago, sino que piensa que ese peligro se debe a sus fechorías pasadas, y lo toma como una oportunidad para orar al Señor y agradecerle esa oportunidad que le ofrece. El devoto que vive de este modo tiene garantizada la salvación, el regreso al hogar, de vuelta a Dios. Esto podemos comprobarlo en el caso de Gajendra, que, por orar al Señor lleno de ansiedad, recibió inmediatamente la oportunidad de ir de regreso al hogar, de vuelta a Dios.

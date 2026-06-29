@@ -1,0 +1,8 @@
+### CC Adi 3.21
+
+> āpane nā kaile dharma śikhāna nā yāya
+> ei ta' siddhānta gītā-bhāgavate gāya
+
+*āpane*—personalmente; *nā kaile*—si no se practica; *dharma*—religión; *śikhāna*—la enseñanza; *nā yāya*—no progresa; *ei*—esta; *ta'*—ciertamente; *siddhānta*—conclusión; *gītā*—en el *Bhagavad-gītā*; *bhāgavate*—en el *Śrīmad-Bhāgavatam*; *gāya*—se proclama.
+
+**«A menos que uno practique personalmente el servicio devocional, no puede enseñarlo a los demás. Esta conclusión se confirma ciertamente a lo largo del *Gītā* y del *Bhāgavatam*.**

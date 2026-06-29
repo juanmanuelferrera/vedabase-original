@@ -1,0 +1,8 @@
+### CC Antya 8.40
+
+> prabhura nimantraṇe lāge kauḍi cāri paṇa
+> kabhu kāśīśvara, govinda khāna tina jana
+
+*prabhura*—de Śrī Caitanya Mahāprabhu; *nimantraṇe*—para la invitación; *lāge*—se requiere; *kauḍi cāri paṇa*—cuatro veces ochenta pequeñas caracolas; *kabhu kāśīśvara*—a veces Kāśīśvara; *govinda*—el sirviente personal de Caitanya Mahāprabhu; *khāna*—comen; *tina jana*—tres personas.
+
+**Invitar a Śrī Caitanya Mahāprabhu costaba 320 *kauḍis* [pequeñas caracolas]. Esto proporcionaba el almuerzo para tres personas, incluyendo a Śrī Caitanya Mahāprabhu y a veces a Kāśīśvara y a Govinda.**

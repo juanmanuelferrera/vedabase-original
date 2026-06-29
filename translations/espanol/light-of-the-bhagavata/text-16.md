@@ -1,0 +1,11 @@
+### 16
+
+**De noche, por la gracia de la luz lunar, puede verse a las nubes desplazarse por el cielo. Sin embargo, la luna misma también parece estar moviéndose, al igual que un ser viviente parece estar moviéndose a causa de su falsa identificación con la materia.**
+
+De noche, en la estación lluviosa, las nubes en movimiento que reflejan la luz lunar hacen que la luna parezca moverse. Esto se denomina ilusión. El alma espiritual, o el ser viviente, es la raíz de todas las actividades del cuerpo material, pero a causa de la ilusión, el alma espiritual permanece cubierta por los cuerpos materiales burdo y sutil. Así cubierta, el alma condicionada se identifica con el cuerpo material y queda sujeta al sentido del ego falso.
+
+Este ego falso obliga al ser viviente a considerar que su cuerpo material es su yo, que la descendencia del cuerpo son sus hijos y que la tierra del nacimiento del cuerpo es un objeto de adoración. Así pues, la concepción de nacionalismo del ser viviente es otro tipo de ignorancia. A causa de la ignorancia, un ser viviente se identifica con la tierra de su nacimiento y se mueve con las ideas erróneas del concepto nacional. En realidad, sin embargo, un ser viviente no pertenece a ninguna nación ni especie de vida. No tiene nada que ver con el cuerpo, así como la luna no tiene nada que ver con las nubes en movimiento.
+
+La luna se encuentra lejos de las nubes y está fija en su propia órbita, pero la ilusión presenta una escena en la que la luna parece estar moviéndose. Un ser viviente no debería flotar con la idea errónea del cuerpo temporal; debe saberse siempre trascendental a la identidad corporal. Este es el sendero del conocimiento, y el conocimiento completo fija al ser viviente en la órbita de las actividades espirituales.
+
+La fuerza viviente espiritual es siempre activa por naturaleza. Por la ilusión, sus actividades se dirigen erróneamente en relación con el cuerpo, pero en la condición liberada de conocimiento completo, sus actividades se realizan en devoción espiritual. La liberación no significa detener las actividades; significa purificarse de las actividades ilusorias y volverse trascendental a las relaciones con los cuerpos burdo y sutil.

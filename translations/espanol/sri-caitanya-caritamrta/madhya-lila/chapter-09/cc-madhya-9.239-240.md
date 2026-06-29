@@ -1,0 +1,13 @@
+### CC Madhya 9.239-240
+
+> siddhānta-śāstra nāhi 'brahma-saṁhitā'ra sama
+> govinda-mahimā jñānera parama kāraṇa
+
+> alpākṣare kahe siddhānta apāra
+> sakala-vaiṣṇava-śāstra-madhye ati sāra
+
+*siddhānta-śāstra*—Escritura concluyente; *nāhi*—no hay; *brahma-saṁhitāra sama*—como la Escritura *Brahma-saṁhitā*; *govinda-mahimā*—de las glorias del Señor Govinda; *jñānera*—de conocimiento; *parama*—final; *kāraṇa*—causa; *alpa-akṣare*—brevemente; *kahe*—expresa; *siddhānta*—conclusión; *apāra*—ilimitada; *sakala*—todas; *vaiṣṇava-śāstra*—las Escrituras devocionales; *madhye*—entre; *ati sāra*—muy esencial.
+
+**En lo que se refiere a la conclusión espiritual suprema, no hay Escritura como la Brahma-saṁhitā. En verdad, esa Escritura es la revelación suprema de las glorias del Señor Govinda, pues revela el conocimiento supremo acerca de Él. En la Brahma-saṁhitā se exponen con brevedad todas las conclusiones, y por ello es esencial entre todas las Escrituras vaiṣṇavas.**
+
+La *Brahma-saṁhitā* es una Escritura muy importante. Śrī Caitanya Mahāprabhu consiguió el Capítulo Quinto en el templo de Ādi-keśava. En ese Capítulo Quinto se expone la conclusión filosófica de *acintya-bhedābheda-tattva* (unidad y diferencia simultáneas). El capítulo habla también de diversos métodos de servicio devocional y del himno védico de dieciocho sílabas; trata del alma, la Superalma y las actividades fruitivas, da una explicación acerca del *kāma-gāyatrī* y el *kāma-bīja,* y acerca del Mahā-Viṣṇu original, así como una descripción detallada del mundo espiritual, y, en particular, de Goloka Vṛndāvana. La *Brahma-saṁhitā* habla también del semidiós Gaṇeśa, de Garbhodakaśāyī Viṣṇu, del origen del *mantra* *gāyatrī*, de la forma de Govinda y de Su morada y Su posición trascendentales, de las entidades vivientes, del objetivo supremo, de la diosa Durgā, del sentido de la austeridad, de los cinco elementos densos, del amor por Dios, del Brahman impersonal, de la iniciación del Señor Brahmā y de la visión de amor trascendental que nos capacita para ver al Señor. Explica también los distintos pasos en el servicio devocional. Trata además de la mente, de *yoga-nidrā*, de la diosa de la fortuna, del servicio devocional en éxtasis espontáneo, de las encarnaciones, comenzando con el Señor Rāmacandra, de las Deidades, del alma condicionada y sus deberes, de la verdad acerca del Señor Viṣṇu, de las oraciones, de los himnos védicos, del Señor Śiva, de las Escrituras védicas, del personalismo y el impersonalismo, del buen comportamiento y de muchos otros temas. Habla también del Sol y de la forma universal del Señor. Todos estos temas se explican de forma conclusiva y sintetizada en la *Brahma-saṁhitā*.

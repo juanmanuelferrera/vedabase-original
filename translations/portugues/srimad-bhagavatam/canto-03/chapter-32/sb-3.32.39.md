@@ -1,0 +1,14 @@
+### SB 3.32.39
+
+naitat khalāyopadiśen
+nāvinītāya karhicit
+na stabdhāya na bhinnāya
+naiva dharma-dhvajāya ca
+
+– *na* — não; *etat*—esta instrução; *khalāya*—para o invejoso; *upadiśet*—deve-se ensinar; *na*—não; *avinītāya*—para o agnóstico; *karhicit*—nunca; *na*—não; *stabdhāya*—para o orgulhoso; *na*—não; *bhinnāya*—para aquele que se comporta mal; *na*—não; *eva*—certamente; *dharma-dhvajāya*—para hipócritas; *ca*—também.
+
+**O Senhor Kapila continuou: Esta instrução não é destinada para os invejosos, para os agnósticos ou para pessoas que são impuras em seu comportamento. Tampouco é para hipócritas ou para pessoas que estão orgulhosas de posses materiais.**
+
+Aqueles que constantemente planejam fazer mal a outras entidades vivas não são elegíveis para compreender consciência de Kṛṣṇa e não podem entrar no reino do transcendental serviço amoroso ao Senhor. Também, há os chamados discípulos que se tornam submissos a um mestre espiritual de modo artificial, com um motivo ulterior. Também não podem compreender o que é consciência de Kṛṣṇa ou serviço devocional. Pessoas que, por estar iniciadas por outra seita de fé religiosa, não acham o serviço devocional como a plataforma comum para aproximar-se da Suprema Personalidade de Deus, também não podem compreender consciência de Kṛṣṇa. Temos experiência que alguns alunos vêm juntar-se a nós, mas por serem tendenciosos em algum tipo de fé particular, deixam nosso acampamento e ficam perdidos no deserto. Na verdade, consciência de Kṛṣṇa não é uma fé religiosa sectária; é um processo de ensino para compreender o Senhor Supremo e nosso relacionamento com Ele. Qualquer um pode juntar-se a este movimento sem preconceito, mas infelizmente há pessoas que sentem diferentemente. É melhor, portanto, não instruir a ciência da consciência de Kṛṣṇa para tais pessoas.
+
+Geralmente, pessoas materialistas estão atrás de algum nome, fama e ganho material, de modo que se alguém toma consciência de Kṛṣṇa por essas razões, nunca será capaz de compreender esta filosofia. Tais pessoas tomam princípios religiosos como uma decoração social. Admitem a si mesmas em alguma instituição cultural apenas pelo nome, especialmente nesta era. Tais pessoas também não podem compreender a filosofia da consciência de Kṛṣṇa. Mesmo que alguém não seja ganancioso por posses materiais, mas seja muito apegado à vida familiar, também não pode compreender consciência de Kṛṣṇa. Superficialmente, tais pessoas não são muito gananciosas por posses materiais, mas são muito apegadas à esposa, filhos e melhoria familiar. Quando uma pessoa não é contaminada pelos problemas acima mencionados mas na questão final não está interessada no serviço da Suprema Personalidade de Deus, ou se é um não-devoto, também não pode compreender a filosofia da consciência de Kṛṣṇa.

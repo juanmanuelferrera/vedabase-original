@@ -1,0 +1,15 @@
+### SB 1.9.37
+
+*sva*-nigamam apahāya mat-pratijñām
+
+ṛtam adhikartum avapluto rathasthaḥ
+
+*dhṛta*-ratha-caraṇo 'bhyayāc caladgur
+
+harir iva hantum ibhaṁ gatottarīyaḥ
+
+*sva-nigamam*—a própria veracidade; *apahāya*—para anular; *mat-pratijñām*—minha própria promessa; *ṛtam*—factual; *adhi*—mais; *kartum*—para fazê-lo; *avaplutaḥ*—descendo; *ratha-sthaḥ*—da quadriga; *dhṛta*—pegando em; *ratha*—quadriga; *caraṇaḥ*—roda; *abhyayāt*—foi apressadamente; *caladguḥ*—pisando na terra; *hariḥ*—leão; *iva*—como; *hantum*—para matar; *ibham*—elefante; *gata*—deixando de lado; *uttarīyaḥ*—pano de cobertura.
+
+**Satisfazendo meu desejo e sacrificando Sua própria promessa, Ele desceu da quadriga, apanhou sua roda e correu em minha direção apressadamente, tal como um leão vai matar um elefante. Ele até deixou cair Seu manto externo no caminho.**
+
+A Batalha de Kurukṣetra foi travada segundo princípios militares, mas, ao mesmo tempo, num espírito esportivo, como um amigo combate com outro amigo. Duryodhana criticou Bhīṣmadeva, alegando que ele relutava em matar Arjuna por causa de afeição paterna. Um kṣatriya não pode tolerar insultos quanto ao princípio do combate. Bhīṣmadeva, portanto, prometeu que, no dia seguinte, mataria todos os cinco Pāṇḍavas com armas especiais feitas para esse propósito. Duryodhana ficou satisfeito e guardou as flechas consigo para serem entregues no dia seguinte, durante o combate. Por meio de ardis, Arjuna tomou as flechas de Duryodhana, e Bhīṣmadeva pôde compreender que esse era um ardil do Senhor Kṛṣṇa. Então, ele fez um voto de que, no dia seguinte, Kṛṣṇa teria de tomar armas Ele mesmo, do contrário Seu amigo Arjuna morreria. Assim, no combate do dia seguinte, Bhīṣmadeva lutou tão violentamente que tanto Arjuna quanto Kṛṣṇa ficaram em apuros. Arjuna estava quase derrotado; a situação era tão tensa que ele estava a ponto de ser morto por Bhīṣmadeva no momento seguinte. Naquele instante, o Senhor Kṛṣṇa quis satisfazer Seu devoto, Bhīṣma, mantendo a promessa dele, que era mais importante do que a Sua própria. Aparentemente, Ele quebrou Sua própria promessa. Antes do início da Batalha de Kurukṣetra, prometera que permaneceria sem armas e não usaria Sua força em favor de nenhum dos partidos. Mas, para proteger Arjuna, Ele desceu da quadriga, apanhou a roda da quadriga e, apressadamente, precipitou-se sobre Bhīṣmadeva num estado de espírito irado, tal como um leão vai matar um elefante. Ele deixou cair Seu pano que O cobria no caminho e, em virtude de Sua grande ira, não percebeu que o deixara cair. Bhīṣmadeva imediatamente abandonou suas armas e ficou de pé para ser morto por Kṛṣṇa, seu amado Senhor. O combate do dia terminou, assim, naquele exato momento, e Arjuna foi salvo. É claro que não havia possibilidade da morte de Arjuna, pois o próprio Senhor estava na quadriga, mas, como Bhīṣmadeva quis ver o Senhor Kṛṣṇa apanhar alguma arma para salvar Seu amigo, o Senhor criou essa situação, tornando iminente a morte de Arjuna. Ele postou-se diante de Bhīṣmadeva para mostrar-lhe que sua promessa estava cumprida e que Ele apanhara a roda.

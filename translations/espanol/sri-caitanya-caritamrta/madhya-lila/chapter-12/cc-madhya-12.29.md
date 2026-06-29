@@ -1,0 +1,8 @@
+### CC Madhya 12.29
+
+> yadyapi īśvara tumi parama svatantra
+> tathāpi svabhāve hao prema-paratantra
+
+*yadyapi*—aunque; *īśvara*—la Suprema Personalidad de Dios; *tumi*—Tú; *parama*—supremamente; *svatantra*—independiente; *tathāpi*—aun así; *svabhāve*—por Tu naturaleza; *hao*—Te vuelves; *prema-paratantra*—subordinado al amor.
+
+**«Aunque Tú eres la Suprema Personalidad de Dios y eres completamente independiente, aun así dependes del amor y el afecto de Tus devotos. Esa es Tu naturaleza».**

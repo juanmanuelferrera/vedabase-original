@@ -1,0 +1,9 @@
+### CC Madhya 14.150
+
+mukha ācchādiyā kare kevala rodana
+
+kāntera priya-vākya śuni' haya parasanna
+
+*mukha ācchādiyā*—cobrindo o rosto; *kare*—realiza; *kevala*—apenas; *rodana*—choro; *kāntera*—do amado; *priya-vākya*—doces palavras; *śuni'*—ouvindo; *haya*—torna-se; *parasanna*—satisfeita.
+
+**"A heroína cativada simplesmente cobre o rosto e prossegue chorando. Quando ouve doces palavras de seu amado, ela fica muito satisfeita.**

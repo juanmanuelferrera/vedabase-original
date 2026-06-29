@@ -1,0 +1,9 @@
+### CC Antya 15.47
+
+rādhā-aṅga-saṅge kuca-kuṅkuma-bhūṣita
+
+kṛṣṇa-kunda-mālā-gandhe vāyu--suvāsita
+
+*rādhā-aṅga*—o corpo de Śrīmatī Rādhārāṇī; *saṅge*—por abraçar; *kuca-kuṅkuma*—com o kuṅkuma dos seios; *bhūṣita*—adornado; *kṛṣṇa*—do Senhor Kṛṣṇa; *kunda-mālā*—da guirlanda de flores kunda; *gandhe*—pela fragrância; *vāyu*—o ar; *su-vāsita*—aromático.
+
+**" 'Kṛṣṇa tem abraçado Śrīmatī Rādhārāṇī, e o pó de kuṅkuma de Seus seios misturou-se com a guirlanda de flores kunda que adorna Seu corpo. A fragrância da guirlanda perfumou toda a atmosfera.**

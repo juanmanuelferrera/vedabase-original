@@ -1,0 +1,12 @@
+### SB 7.5.7
+
+> samyag vidhāryatāṁ bālo
+> guru-gehe dvi-jātibhiḥ
+> viṣṇu-pakṣaiḥ praticchannair
+> na bhidyetāsya dhīr yathā
+
+*samyak*—completamente; *vidhāryatām*—que sea protegido; *bālaḥ*—este niño tan pequeño; *guru-gehe*—en el *guru-kula*, el lugar al que son enviados los niños para que el *guru* les eduque; *dvi-jātibhiḥ*—por *brāhmaṇas*; *viṣṇu-pakṣaiḥ*—que están a favor de Viṣṇu; *praticchannaiḥ*—con distintos disfraces; *na bhidyeta*—que no sea influenciada; *asya*—de él; *dhīḥ*—la inteligencia; *yathā*—de modo que.
+
+**Hiraṇyakaśipu indicó a sus asistentes: Mis queridos demonios, brinden plena protección a este niño en el guru-kula en que estudia, de manera que, ningún vaiṣṇava pueda ir allí disfrazado e influenciar la inteligencia del muchacho más de lo que ya está.**
+
+En nuestro movimiento para la conciencia de Kṛṣṇa, nos vemos en la necesidad de recurrir a la táctica de vestirnos como *karmīs* corrientes, pues, cuando reinan los demonios, todo el mundo está en contra de las enseñanzas *vaiṣṇavas*. En la época actual, a los demonios no les agrada lo más mínimo el movimiento para la conciencia de Kṛṣṇa; tan pronto como ven a un *vaiṣṇava* con ropas de color azafrán, un collar de cuentas en el cuello y *tilaka* en la frente, se irritan. Entonces critican a los *vaiṣṇavas* diciendo Hare Kṛṣṇa en tono sarcástico; también hay personas que cantan Hare Kṛṣṇa con sinceridad. En cualquiera de los casos, Hare Kṛṣṇa es absoluto, y dará resultado tanto si se canta en broma como si se canta con sinceridad. Los *vaiṣṇavas* se complacen cuando los demonios cantan Hare Kṛṣṇa, pues eso demuestra que el movimiento Hare Kṛṣṇa se está asentando. Los grandes demonios, como Hiraṇyakaśipu, siempre están dispuestos a perseguir a los *vaiṣṇavas* y tratan de impedir que distribuyan sus libros y prediquen el proceso de conciencia de Kṛṣṇa. Lo que hizo Hiraṇyakaśipu hace muchísimo tiempo sigue haciéndose en la actualidad. Así es la vida materialista. A los demonios o materialistas no les gusta lo más mínimo que el movimiento para la conciencia de Kṛṣṇa progrese, y tratan de frenarlo por todos los medios. Sin embargo, los predicadores conscientes de Kṛṣṇa deben continuar con su misión de prédica, vestidos como *vaiṣṇavas* o como sea necesario. Cāṇakya Paṇḍita dice que la persona honesta que trate con un gran engañador también se verá en la necesidad de engañar, no porque lo desee, sino para lograr el éxito en su prédica.

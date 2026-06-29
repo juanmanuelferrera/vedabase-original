@@ -1,0 +1,8 @@
+### CC Madhya 16.93
+
+> duṅhe kahe,--ebe varṣā, calite nāribā
+> vijayā-daśamī āile avaśya calibā
+
+*duṅhe kahe*—ambos dijeron; *ebe*—ahora; *varṣā*—la estación de lluvias; *calite nāribā*—no podréis viajar; *vijayā-daśamī*—el día de Vijayā-daśamī; *āile*—cuando llegue; *avaśya*—ciertamente; *calibā*—iréis.
+
+**Ambos dijeron: «Ahora que ha llegado la estación de lluvias, será difícil que viajéis. Es mejor esperar al Vijayā-daśamī antes de partir hacia Vṛndāvana».**

@@ -1,0 +1,15 @@
+### SB 9.20.18
+
+kaṇvaḥ kumārasya vane
+
+cakre samucitāḥ kriyāḥ
+
+baddhvā mṛgendraṁ tarasā
+
+krīḍati sma sa bālakaḥ
+
+*kaṇvaḥ*—Kaṇva Muni; *kumārasya*—do filho nascido de Śakuntalā; *vane*—na floresta; *cakre*—executou; *samucitāḥ*—prescritas; *kriyāḥ*—cerimônias ritualísticas; *baddhvā*—capturando; *mṛga-indram*—um leão; *tarasā*—à força; *krīḍati*—brincando; *sma*—no passado; *saḥ*—ele; *bālakaḥ*—a criança.
+
+**Na floresta, Kaṇva Muni realizou todas as cerimônias ritualísticas referentes ao recém-nascido. Depois, o menino tornou-se tão poderoso que capturava um leão e brincava com ele.**
+
+---

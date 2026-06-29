@@ -1,0 +1,11 @@
+### SB 3.2.30
+
+prayuktān bhoja-rājena māyinaḥ kāma-rūpiṇaḥ
+
+līlayā vyanudat tāṁs tān bālaḥ krīḍanakān iva
+
+*prayuktān*—engajado; *bhoja-rājena*—pelo Rei Kaṁsa; *māyinaḥ*—grandes magos; *kāma-rūpiṇaḥ*—que conseguem assumir qualquer forma que gostarem; *līlayā*—no curso dos pasatiempos; *vyanudat*—matou; *tān tān*—eles como vieram ali; *bālaḥ*—a criança; *krīḍanakān*—bonecas; *iva*—como isto.
+
+**Os grandes magos que conseguem assumir qualquer forma foram engajados pelo Rei de Bhoja, Kaṁsa, para matar Kṛṣṇa, mas no curso de Seus pasatiempos o Senhor matou eles tão facilmente quanto uma criança quebra bonecas.**
+
+O ateu Kaṁsa queria matar Kṛṣṇa logo após Seu nascimento. Ele falhou em fazer isto, mas mais tarde obteve informação que Kṛṣṇa estava vivendo em Vṛndāvana na casa de Nanda Mahārāja. Ele portanto engajou muitos magos que conseguem executar atos maravilhosos e assumir qualquer forma que gostassem. Todos eles apareceram diante da criança-Senhor em várias formas, como Agha, Baka, Pūtanā, Śakaṭa, Tṛṇāvarta, Dhenuka e Gardabha, e tentaram matar o Senhor em cada oportunidade. Mas um após o outro, todos eles foram mortos pelo Senhor como se Ele apenas estivesse brincando com bonecas. Crianças brincam com brinquedos leões, elefantes, porcos e muitas bonecas similares, que são quebradas pelas crianças no curso de brincarem com elas. Diante do Senhor Todo-Poderoso, qualquer ser vivo poderoso é apenas como brinquedo leão nas mãos de uma criança brincante. Ninguém consegue superar Deus em nenhuma capacidade, e portanto ninguém consegue ser igual a ou maior do que Ele, nem consegue qualquer um alcançar o estágio de igualdade com Deus por nenhum tipo de esforço. Jñāna, yoga e bhakti são três processos reconhecidos de realização espiritual. A perfeição de tais processos conseguem levar a um ao objetivo desejado de vida em valor espiritual, mas isto não significa que alguém consegue alcançar uma perfeição igual ao do Senhor por tais esforços. O Senhor é o Senhor em cada estágio. Quando Ele estava brincando apenas como uma criança no colo de Sua mãe Yaśodāmayī ou apenas como um menino pastor com Seus amigos transcendentais, Ele continuou a permanecer Deus, sem a menor diminuição de Suas seis opulências. Assim Ele está sempre indivíduo.

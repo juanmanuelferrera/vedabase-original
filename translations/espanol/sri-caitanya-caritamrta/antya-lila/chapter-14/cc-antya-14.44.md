@@ -1,0 +1,10 @@
+### CC Antya 14.44
+
+> kṛṣṇa-līlā-maṇḍala, śuddha śaṅkha-kuṇḍala,
+> gaḍiyāche śuka kārikara
+> sei kuṇḍala kāṇe pari', tṛṣṇā-lāu-thālī dhari',
+> āśā-jhuli kāndhera upara
+
+*kṛṣṇa-līlā-maṇḍala*—el anillo de los pasatiempos de Kṛṣṇa; *śuddha*—puro; *śaṅkha-kuṇḍala*—un pendiente de caracola; *gaḍiyāche*—ha fabricado; *śuka*—Śukadeva Gosvāmī; *kārikara*—artesano; *sei kuṇḍala*—ese pendiente; *kāṇe pari'*—poniéndoselo en la oreja; *tṛṣṇā*—aspiración; *lāu*—de calabaza; *thālī*—el cuenco; *dhari'*—tomando; *āśā*—expectativa; *jhuli*—bolsa; *kāndhera upara*—sobre el hombro.
+
+**«El anillo del rāsa-līlā de Kṛṣṇa, fabricado por Śukadeva Gosvāmī, el más auspicioso artesano, es tan puro como un pendiente hecho de caracola. El yogī de Mi mente lleva ese pendiente en la oreja. De una calabaza ha tallado el cuenco de Mis aspiraciones, y ha cargado sobre su hombro la bolsa de Mis expectativas.**

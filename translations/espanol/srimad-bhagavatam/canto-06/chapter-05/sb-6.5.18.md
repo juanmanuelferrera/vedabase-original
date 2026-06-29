@@ -1,0 +1,14 @@
+### SB 6.5.18
+
+> aiśvaraṁ śāstram utsṛjya
+> bandha-mokṣānudarśanam
+> vivikta-padam ajñāya
+> kim asat-karmabhir bhavet
+
+*aiśvaram*—que aportan la comprensión de Dios, el estado de conciencia de Kṛṣṇa; *śāstram*—las Escrituras védicas; *utsṛjya*—abandonar; *bandha*—de cautiverio; *mokṣa*—y de liberación; *anudarśanam*—que informan acerca de las vías; *vivikta-padam*—que distingue entre espíritu y materia; *ajñāya*—sin conocer; *kim asat-karmabhiḥ bhavet*—de qué pueden servir las actividades fruitivas, que son temporales.
+
+**[Nārada Muni había hablado de un cisne. Ese cisne se explica en este verso:] Las Escrituras védicas [śāstras] explican con gran claridad la forma de entender al Señor Supremo, que es la fuente de todas las energías materiales y espirituales. De hecho, describen detalladamente esas dos energías. El cisne [haṁsa] es aquel que sabe distinguir entre la materia y el espíritu, que capta la esencia de todo y explica cómo se produce el cautiverio y cómo se obtiene la liberación. Las palabras de las Escrituras se componen de gran variedad de vibraciones. ¿Qué resultado puede obtener el necio sinvergüenza que deja de lado el estudio de esos śāstras para ocuparse en actividades temporales?**
+
+El movimiento para la conciencia de Kṛṣṇa está muy deseoso de presentar las Escrituras védicas en lenguas modernas, y especialmente en lenguas occidentales como el inglés, el francés y el alemán. Los líderes del mundo occidental, los norteamericanos y los europeos, se han convertido en ídolos de la civilización contemporánea, pues en occidente se ha alcanzado un alto nivel de refinamiento en las actividades temporales destinadas al adelanto de la civilización material. Sin embargo, cualquier persona sensata puede ver que todas esas grandiosas actividades, por importantes que sean para la vida temporal, no tienen nada que ver con la vida eterna. El mundo entero está imitando a la civilización materialista de occidente; por esa razón, el movimiento para la conciencia de Kṛṣṇa tiene un gran interés en dar conocimiento a los occidentales mediante la traducción de las Escrituras védicas del sánscrito original a las lenguas occidentales.
+
+La palabra *vivikta-padam* se refiere al proceso de argumentación lógica acerca del objetivo de la vida. A quien no se esfuerza por comprender lo que es importante en la vida, se le impone la oscuridad y la lucha por la existencia. ¿De qué le sirve entonces su avanzado conocimiento? Los occidentales se encuentran con que los estudiantes se vuelven hippies, a pesar de la espléndida organización destinada a la educación universitaria. El movimiento para la conciencia de Kṛṣṇa, sin embargo, está tratando de orientar a los estudiantes drogadictos y descarriados hacia el servicio de Kṛṣṇa y ocuparles en las más elevadas actividades de bienestar para la sociedad humana.

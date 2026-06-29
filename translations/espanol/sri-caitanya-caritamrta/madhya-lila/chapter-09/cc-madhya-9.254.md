@@ -1,0 +1,8 @@
+### CC Madhya 9.254
+
+> tattvavādī ācārya--saba śāstrete pravīṇa
+> tāṅre praśna kaila prabhu hañā yena dīna
+
+*tattvavādī ācārya*—el ācārya principal de la comunidad Tattvavāda; *saba*—todas; *śāstrete*—en las escrituras reveladas; *pravīṇa*—versado; *tāṅre*—a él; *praśna*—pregunta; *kaila*—formuló; *prabhu*—Śrī Caitanya Mahāprabhu; *hañā*—volviéndose; *yena*—como si fuera; *dīna*—muy humilde.
+
+**El ācārya principal de la comunidad Tattvavāda era muy versado en las escrituras reveladas. Śrī Caitanya Mahāprabhu le interrogó con humildad.**

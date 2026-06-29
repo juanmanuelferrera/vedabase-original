@@ -1,0 +1,9 @@
+### CC Antya 2.156
+
+'viṣādi khāñā haridāsa ātma-ghāta kaila
+
+sei pāpe jāni 'brahma-rākṣasa' haila
+
+*viṣa-ādi khāñā*—por beber veneno; *haridāsa*—Haridāsa Júnior; *ātma-ghāta kaila*—cometeu suicídio; *sei pāpe*—em virtude dessa atividade pecaminosa; *jāni*—compreendemos; *brahma-rākṣasa*—um fantasma brāhmaṇa; *haila*—ele se tornou.
+
+**"Haridāsa deve ter cometido suicídio bebendo veneno e, em razão desse ato pecaminoso, tornou-se agora um fantasma brāhmaṇa.**

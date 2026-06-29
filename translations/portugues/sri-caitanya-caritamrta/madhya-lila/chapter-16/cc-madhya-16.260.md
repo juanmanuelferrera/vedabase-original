@@ -1,0 +1,9 @@
+### CC Madhya 16.260
+
+kaṣṭe-sṛṣṭye kari' gelāṅa rāmakeli-grāma
+
+āmāra ṭhāñi āilā 'rūpa' 'sanātana' nāma
+
+*kaṣṭe-sṛṣṭye*—com grande dificuldade; *kari'*—fazendo; *gelāṅa*—fui; *rāmakeli-grāma*—à aldeia de Rāmakeli; *āmāra ṭhāñi*—diante de Mim; *āilā*—vieram; *rūpa sanātana nāma*—os dois irmãos chamados Rūpa e Sanātana.
+
+**"Com grande dificuldade, fui à cidade de Rāmakeli, onde conheci dois irmãos chamados Rūpa e Sanātana.**

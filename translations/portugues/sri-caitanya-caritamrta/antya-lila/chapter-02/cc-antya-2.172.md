@@ -1,0 +1,15 @@
+### CC Antya 2.172
+
+śrī-rūpa-raghunātha-pade yāra āśa
+
+caitanya-caritāmṛta kahe kṛṣṇadāsa
+
+*śrī-rūpa*—Śrīla Rūpa Gosvāmī; *raghunātha*—Śrīla Raghunātha dāsa Gosvāmī; *pade*—aos pés de lótus; *yāra*—cuja; *āśa*—expectativa; *caitanya-caritāmṛta*—o livro chamado Caitanya-caritāmṛta; *kahe*—descreve; *kṛṣṇa-dāsa*—Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī.
+
+**Orando aos pés de lótus de Śrī Rūpa e Śrī Raghunātha, desejando sempre a misericórdia deles, eu, Kṛṣṇadāsa, narro o Śrī *Caitanya-caritāmṛta*, seguindo seus passos.**
+
+Instruções deste Capítulo
+
+Resumindo este capítulo, Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura diz que dele se devem extrair as seguintes lições. (1) Embora Śrī Caitanya Mahāprabhu, a Suprema Personalidade de Deus, seja uma encarnação da misericórdia, Ele, não obstante, abandonou a companhia de um de Seus associados pessoais, a saber, Haridāsa Júnior, pois, caso não o tivesse feito, os pseudodevotos teriam tirado proveito da falta de Haridāsa Júnior, usando-a como pretexto para viver como devotos e, ao mesmo tempo, manter relações sexuais ilícitas. Tais atividades teriam desmoralizado o culto de Śrī Caitanya Mahāprabhu e, em consequência, os devotos certamente teriam ido para uma vida infernal em nome de Śrī Caitanya Mahāprabhu. (2) Ao castigar Haridāsa Júnior, o Senhor estabeleceu o padrão para os ācāryas, ou os dirigentes das instituições que propagam o culto de Caitanya, e para todos os devotos verdadeiros. Śrī Caitanya Mahāprabhu desejava manter o mais elevado padrão. (3) Śrī Caitanya Mahāprabhu ensinou que o devoto puro deve ser simples e livre de atividades pecaminosas, pois assim a pessoa pode ser Seu servo genuíno. Śrī Caitanya Mahāprabhu ensinou Seus seguidores a observar estritamente a ordem renunciada. (4) Śrī Caitanya Mahāprabhu desejava provar que Seus devotos são exaltados e que seu caráter é ideal. Ele bondosamente aceita Seus devotos fiéis e lhes ensina quanta tribulação e perturbação podem ser produzidas até mesmo por um leve desvio dos estritos princípios da vida devocional. (5) Ao castigar Haridāsa Júnior, Śrī Caitanya Mahāprabhu manifestou Sua misericórdia para com ele, mostrando assim quão elevada era a devoção de Haridāsa Júnior por Ele. Devido a esse relacionamento transcendental, o Senhor corrigiu até mesmo uma leve ofensa cometida por Seu devoto puro. Portanto, quem deseja ser um devoto puro de Śrī Caitanya Mahāprabhu deve abandonar toda gratificação material dos sentidos; do contrário, os pés de lótus de Śrī Caitanya Mahāprabhu são muito difíceis de alcançar. (6) Se a pessoa morre em um lugar sagrado tão célebre como Prayāga, Mathurā ou Vṛndāvana, pode ficar livre das reações da vida pecaminosa e então alcançar o refúgio da Suprema Personalidade de Deus. (7) Embora um devoto puro ou fiel possa cair, ele, não obstante, acaba por obter, pela misericórdia do Senhor, a oportunidade de voltar ao lar, voltar ao Supremo.
+
+Assim terminam os significados Bhaktivedanta do Śrī *Caitanya-caritāmṛta*, *Antya-līlā*, Segundo Capítulo, que descreve o castigo de Haridāsa Júnior.

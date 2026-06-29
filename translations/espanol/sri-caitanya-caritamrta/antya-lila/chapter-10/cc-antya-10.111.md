@@ -1,0 +1,8 @@
+### CC Antya 10.111
+
+> dharite dharite gharera bharila eka koṇa
+> śata-janera bhakṣya yata haila sañcayana
+
+*dharite dharite*—guardando y guardando; *gharera*—de la habitación; *bharila*—llenó; *eka koṇa*—un rincón; *śata-janera*—de cien personas; *bhakṣya*—suficiente para alimentar; *yata*—todo; *haila*—hubo; *sañcayana*—acumulación.
+
+**Govinda siguió acumulando la comida, y pronto esta llenó un rincón de la habitación. Había suficiente como para alimentar al menos a cien personas.**

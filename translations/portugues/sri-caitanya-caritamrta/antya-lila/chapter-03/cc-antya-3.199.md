@@ -1,0 +1,9 @@
+### CC Antya 3.199
+
+haridāsa kahena,--"yadi nāmābhāse 'mukti' naya
+
+tabe āmāra nāka kāṭimu,--ei suniścaya"
+
+*haridāsa kahena*—Haridāsa Ṭhākura disse; *yadi*—se; *nāma-ābhāse*—simplesmente pelo despertar do santo nome do Senhor; *mukti naya*—a mukti não estiver disponível; *tabe*—então; *āmāra*—meu; *nāka*—nariz; *kāṭimu*—cortarei; *ei*—isto; *suniścaya*—certo.
+
+**Então, Haridāsa Ṭhākura aceitou o desafio proposto por Gopāla Cakravartī. "Se pelo nāmābhāsa a liberação não estiver disponível", disse ele, "certamente cortarei o meu nariz."**

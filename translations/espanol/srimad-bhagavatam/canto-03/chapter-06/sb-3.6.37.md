@@ -1,0 +1,12 @@
+### SB 3.6.37
+
+> ekānta-lābhaṁ vacaso nu puṁsāṁ
+> suśloka-mauler guṇa-vādam āhuḥ
+> śruteś ca vidvadbhir upākṛtāyāṁ
+> kathā-sudhāyām upasamprayogam
+
+*eka-anta*—aquel que no tiene comparación; *lābham*—beneficio; *vacasaḥ*—mediante conversaciones; *nu puṁsām*—tras la Persona Suprema; *suśloka*—piadosas; *mauleḥ*—actividades; *guṇa-vādam*—la glorificación; *āhuḥ*—así se dice; *śruteḥ*—del oído; *ca*—también; *vidvadbhiḥ*—por el erudito; *upākṛtāyām*—redactado de esa manera; *kathā-sudhāyām*—en el néctar de ese mensaje trascendental; *upasamprayogam*—cumple el verdadero propósito, estando más cerca de.
+
+**El beneficio más elevado y perfecto que existe para la humanidad consiste en ocuparse en conversaciones acerca de las actividades y glorias del Actor Piadoso. Dichas actividades están tan hermosamente dispuestas en forma escrita por los grandes sabios eruditos, que el verdadero propósito del oído se cumple tan solo con estar cerca de ellas.**
+
+Los impersonalistas tienen mucho temor de oír hablar acerca de las actividades del Señor, debido a que piensan que la felicidad que se deriva de la situación trascendental del Brahman es la meta máxima de la vida; piensan que la actividad de cualquiera, incluso la de la Personalidad de Dios, es mundana. Pero la idea de felicidad que se indica en este verso es diferente, debido a que se relaciona con las actividades de la Suprema Personalidad, que tiene cualidades trascendentales. La palabra *guṇa-vādam* es significativa, debido a que las cualidades del Señor y Sus actividades y pasatiempos son materia para conversaciones de los devotos. A un *ṛṣi* como Maitreya no le interesa en lo más mínimo conversar sobre algo relacionado con las cualidades mundanas, mas, aun así, dice que la etapa más elevada y perfecta de la comprensión trascendental consiste en conversar sobre las actividades del Señor. Śrīla Jīva Gosvāmī, por lo tanto, concluye que las narraciones referentes a las actividades trascendentales del Señor se encuentran mucho más allá de la percepción trascendental de la felicidad *kaivalya.* Esas actividades trascendentales del Señor están dispuestas en escritos por los grandes sabios, de forma tal que simplemente por oír hablar de esas narraciones uno se vuelve perfectamente iluminado, y logra además dar el uso correcto al oído y a la lengua. El *Śrīmad-Bhāgavatam* es una de esas grandes obras literarias, y el estado más elevado y perfecto de la vida se alcanza simplemente con oír y recitar su contenido.

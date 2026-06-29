@@ -1,0 +1,8 @@
+### CC Adi 17.102
+
+> prabhu-saṅge nṛtya kare parama ullāse
+> prabhu tāre prema dila, prema-rase bhāse
+
+*prabhu-saṅge*—junto con el Señor; *nṛtya kare*—danzaba; *parama*—gran; *ullāse*—satisfacción; *prabhu*—el Señor; *tāre*—a él; *prema*—amor a Dios; *dila*—otorgó; *prema-rase*—en las melosidades del amor a Dios; *bhāse*—comenzó a flotar.
+
+**Danzó con el Señor porque fue favorecido con el amor por Kṛṣṇa. Así, flotó en las melosidades del amor a Dios.**

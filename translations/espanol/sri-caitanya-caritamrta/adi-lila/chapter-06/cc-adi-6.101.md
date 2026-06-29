@@ -1,0 +1,8 @@
+### CC Adi 6.101
+
+> ātmā haite kṛṣṇa bhakte baḍa kari' māne
+> ihāte bahuta śāstra-vacana pramāṇe
+
+*ātmā haite*—que Su propio ser; *kṛṣṇa*—el Señor Kṛṣṇa; *bhakte*—a Su devoto; *baḍa kari' māne*—acepta como más grande; *ihāte*—en relación con esto; *bahuta*—muchas; *śāstra-vacana*—citas de las escrituras reveladas; *pramāṇe*—evidencias.
+
+**El Señor Kṛṣṇa considera a Sus devotos más grandes que Él mismo. A este respecto, las escrituras aportan una abundancia de evidencias.**

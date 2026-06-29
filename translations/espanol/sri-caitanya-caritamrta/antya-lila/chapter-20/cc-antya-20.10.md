@@ -1,0 +1,12 @@
+### CC Antya 20.10
+
+> kṛṣṇa-varṇaṁ tviṣākṛṣṇaṁ
+> sāṅgopāṅgāstra-pārṣadam
+> yajñaiḥ saṅkīrtana-prāyair
+> yajanti hi sumedhasaḥ
+
+*kṛṣṇa-varṇam*—repitiendo las sílabas kṛṣ-ṇa; *tviṣā*—con un lustre; *akṛṣṇam*—no negro (dorado); *sa-aṅga*—con asociados; *upāṅga*—servidores; *astra*—armas; *pārṣadam*—compañeros confidenciales; *yajñaiḥ*—mediante sacrificio; *saṅkīrtana-prāyaiḥ*—que consiste principalmente en canto congregacional; *yajanti*—adoran; *hi*—ciertamente; *su-medhasaḥ*—personas inteligentes.
+
+**»"En la era de Kali, las personas inteligentes realizan canto congregacional para adorar a la encarnación de Dios que canta constantemente el nombre de Kṛṣṇa. Aunque Su complexión no es negruzca, Él es Kṛṣṇa mismo. Le acompañan Sus asociados, servidores, armas y compañeros confidenciales".**
+
+Este verso lo pronuncia el santo Karabhājana en el *Śrīmad-Bhāgavatam* (11.5.32). Para más información, véase el *Ādi-līlā*, capítulo tres, texto 52.

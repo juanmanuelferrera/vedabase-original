@@ -1,0 +1,13 @@
+### CC Madhya 21.111
+
+kahite kṛṣṇera rase, śloka paḍe premāveśe,
+
+preme sanātana-hāta dhari'
+
+gopī-bhāgya, kṛṣṇa guṇa, ye karila varṇana,
+
+bhāvāveśe mathurā-nāgarī
+
+*kahite*—para descrever; *kṛṣṇera*—do Senhor Kṛṣṇa; *rase*—os diferentes tipos de doçuras; *śloka*—um verso; *paḍe*—recita; *prema-āveśe*—absorto em amor extático; *preme*—em tal amor; *sanātana-hāta dhari'*—segurando a mão de Sanātana Gosvāmī; *gopī-bhāgya*—a fortuna das gopīs; *kṛṣṇa guṇa*—as qualidades transcendentais de Kṛṣṇa; *ye*—as quais; *karila varṇana*—descreveram; *bhāva-āveśe*—em amor extático; *mathurā-nāgarī*—as mulheres da cidade de Mathurā.
+
+**Assim como as mulheres de Mathurā descreveram extaticamente a fortuna das gopīs de Vṛndāvana e as qualidades transcendentais de Kṛṣṇa, Śrī Caitanya Mahāprabhu descreveu as diferentes doçuras de Kṛṣṇa e ficou dominado por amor extático. Segurando a mão de Sanātana Gosvāmī, Ele recitou o seguinte verso.**

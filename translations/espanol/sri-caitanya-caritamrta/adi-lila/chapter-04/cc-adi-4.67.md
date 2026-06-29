@@ -1,0 +1,10 @@
+### CC Adi 4.67
+
+> kṛṣṇe bhagavattā-jñāna--saṁvitera sāra
+> brahma-jñānādika saba tāra parivāra
+
+*kṛṣṇe*—en Kṛṣṇa; *bhagavattā*—de la cualidad de ser la Suprema Personalidad de Dios original; *jñāna*—conocimiento; *saṁvitera*—de la potencia del conocimiento; *sāra*—la esencia; *brahma-jñāna*—conocimiento del Brahman; *ādika*—y demás; *saba*—todo; *tāra*—de eso; *parivāra*—dependientes.
+
+**La esencia de la potencia samvit es el conocimiento de que la Suprema Personalidad de Dios es el Señor Kṛṣṇa. Todos los demás tipos de conocimiento, como el conocimiento del Brahman, son componentes de eso.**
+
+Las actividades de la samvit-śakti producen el efecto de la cognición. Tanto el Señor como las entidades vivientes son cognoscitivos. Śrī Kṛṣṇa, como Suprema Personalidad de Dios, posee pleno conocimiento de todo en todas partes y, en consecuencia, no existen obstáculos para Su cognición. Puede obtener conocimiento simplemente posando Su mirada sobre un objeto, mientras que innumerables impedimentos bloquean la cognición de las entidades vivientes comunes. La cognición de las entidades vivientes tiene tres divisiones: conocimiento directo, conocimiento indirecto y conocimiento pervertido. La percepción sensorial de objetos materiales mediante los sentidos mundanos —como el ojo, el oído, la nariz y la mano— siempre produce conocimiento definitivamente pervertido. Esta ilusión es una presentación de la energía material, influenciada por la samvit-śakti de manera pervertida. La cognición negativa de un objeto que está más allá del alcance de la percepción sensorial es el camino del conocimiento indirecto, el cual no es del todo imperfecto pero produce solo conocimiento fragmentario en forma de comprensión espiritual impersonal y monismo. Ahora bien, cuando el factor samvit de cognición es iluminado por la potencia hlādinī de la misma energía interna, ambos trabajan conjuntamente, y solo de ese modo puede uno alcanzar el conocimiento de la Personalidad de Dios. La samvit-śakti debe mantenerse en ese estado. El conocimiento material y el conocimiento espiritual indirecto son subproductos de la samvit-śakti.

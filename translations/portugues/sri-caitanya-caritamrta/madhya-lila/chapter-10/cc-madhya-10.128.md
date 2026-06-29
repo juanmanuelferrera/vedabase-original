@@ -1,0 +1,9 @@
+### CC Madhya 10.128
+
+paramānanda purīra kaila caraṇa vandana
+
+purī-gosāñi tāṅre kaila prema-āliṅgana
+
+*paramānanda purīra*—de Paramānanda Purī; *kaila*—ele fez; *caraṇa vandana*—adorando os pés de lótus; *purī-gosāñi*—Paramānanda Purī; *tāṅre*—a ele; *kaila*—fez; *prema-āliṅgana*—abraçando em amor.
+
+**Svarūpa Dāmodara também ofereceu suas preces de adoração aos pés de lótus de Paramānanda Purī, que, em retribuição, o abraçou em amor extático.**

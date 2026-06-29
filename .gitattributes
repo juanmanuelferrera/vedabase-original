@@ -1,0 +1,7 @@
+# Generated translation Markdown — rendered from the canonical per-book jsonl by
+# scripts/build_translations.py. Do NOT hand-edit; fix the jsonl and regenerate.
+translations/**/*.md linguist-generated=true
+
+# Canonical translation data: machine-maintained, very large per-book exports.
+# Marked generated so they don't dominate language stats or diffs on GitHub.
+translations/**/*.jsonl linguist-generated=true

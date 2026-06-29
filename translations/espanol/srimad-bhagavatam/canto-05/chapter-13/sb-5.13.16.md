@@ -1,0 +1,12 @@
+### SB 5.13.16
+
+> prasajjati kvāpi latā-bhujāśrayas
+> tad-āśrayāvyakta-pada-dvija-spṛhaḥ
+> kvacit kadācid dhari-cakratas trasan
+> sakhyaṁ vidhatte baka-kaṅka-gṛdhraiḥ
+
+*prasajjati*—se apega cada vez más; *kvāpi*—a veces; *latā-bhuja-āśrayaḥ*—que se refugia en los suaves brazos de su hermosa esposa, que son como enredaderas; *tat-āśraya*—a quienes esas enredaderas dan cobijo; *avyakta-pada*—que cantan canciones incomprensibles; *dvija-spṛhaḥ*—con el deseo de escuchar a los pájaros; *kvacit*—a veces; *kadācit*—en alguna parte; *hari-cakrataḥ trasan*—temerosa del rugido del león; *sakhyam*—amistad; *vidhatte*—hace; *baka-kaṅka-gṛdhraiḥ*—con grullas, garzas y buitres.
+
+**A veces, en el bosque de la existencia material la entidad viviente se refugia en las enredaderas, y en ellas desea escuchar el gorjeo de los pájaros. Temerosa de los leones que rugen en el bosque, hace amistad con las grullas, las garzas y los buitres.**
+
+En el bosque del mundo material hay muchos animales y pájaros, árboles y enredaderas. La entidad viviente a veces desea refugiarse en esas enredaderas; en otras palabras, quiere ser feliz entre los brazos de su esposa, que son como enredaderas. En las enredaderas hay muchos pájaros de dulces trinos; con ello se indica que desea satisfacerse escuchando la dulce voz de su esposa. Sin embargo, cuando llega a la vejez, a veces siente temor de la muerte que se acerca, a la que se compara a un león rugiente. Para salvarse del ataque del león, se refugia en una serie de falsos *svāmīs, yogīs,*encarnaciones, farsantes y engañadores. Así descarriado por la energía ilusoria, arruina su vida. En las Escrituras se dice:*hariṁ vinā mṛtiṁ na taranti:* Sin refugiarse en la Suprema Personalidad de Dios, nadie puede salvarse del inminente peligro de la muerte. La palabra *hari* se refiere al león, y también al Señor Supremo. Para salvarse de las garras de *hari,* el león de la muerte, es necesario refugiarse en el Hari supremo, la Suprema Personalidad de Dios. Las personas de escaso conocimiento se refugian en engañadores y farsantes no devotos, buscando salvarse de las garras de la muerte. Al principio, en el bosque del mundo material la entidad viviente desea ser muy feliz refugiándose en los brazos como enredaderas de su esposa y escuchando su dulce voz. Después, a veces se refugia en supuestos *gurus* y *sādhus* que son como grullas, garzas y buitres. Así, por no refugiarse en el Señor Supremo, su engaño es doble.

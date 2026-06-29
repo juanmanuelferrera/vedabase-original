@@ -1,0 +1,17 @@
+### Bg 4.11
+
+> ye yathā māṁ prapadyante
+> tāṁs tathaiva bhajāmy aham
+> mama vartmānuvartante
+> manuṣyāḥ pārtha sarvaśaḥ
+
+*ye*—todos ellos; *yathā*—como; *mām*—a Mí; *prapadyante*—entregarse; *tān*—a ellos; *tathā*—así; *eva*—ciertamente; *bhajāmi*—Yo recompenso; *aham*—Yo; *mama*—Mi; *vartma*—sendero; *anuvartante*—siguen; *manuṣyāḥ*—todos los hombres; *pārtha*—¡oh, hijo de Pṛthā!; *sarvaśaḥ*—en todos los aspectos.
+
+**En la medida en que se entregan a Mí, Yo les recompenso. Todo el mundo sigue Mi sendero en todos los aspectos, ¡oh, hijo de Pṛthā!**
+
+Todo el mundo está buscando a Kṛṣṇa en los diferentes aspectos de Sus manifestaciones. A Kṛṣṇa, la Suprema Personalidad de Dios, se le comprende parcialmente en Su refulgencia impersonal brahmajyoti y como la Superalma omnipresente, que reside dentro de todas las cosas, incluso en las partículas atómicas. Pero a Kṛṣṇa solo le comprenden completamente Sus devotos puros. Por consiguiente, Kṛṣṇa es el objeto de comprensión de todos y así, todo el mundo está satisfecho de acuerdo a su propio deseo de tenerle. En el mundo trascendental, Kṛṣṇa también reciproca con sus devotos puros en la actitud trascendental, exactamente como el devoto le quiera. Un devoto puede querer a Kṛṣṇa como el amo supremo, otro como su amigo personal, otro como su hijo y aun otro como su amante. Kṛṣṇa recompensa igualmente a todos los devotos, de acuerdo a su diferente intensidad de amor por Él. En el mundo material existe la misma reciprocidad de sentimientos y el Señor los intercambia igualmente con los diferentes tipos de adoradores. Los devotos puros, tanto aquí como en la morada trascendental, se relacionan con Él en persona y son capaces de prestar servicio personal al Señor, obteniendo así bienaventuranza trascendental en Su servicio amoroso. En lo que respecta a aquellos que son impersonalistas y que quieren suicidarse espiritualmente, aniquilando la existencia individual de la entidad viviente, Kṛṣṇa también les ayuda absorbiéndoles dentro de Su refulgencia. Dichos impersonalistas no están de acuerdo en aceptar a la eterna y bienaventurada Personalidad de Dios; por consiguiente, no pueden saborear la bienaventuranza del servicio trascendental personal al Señor, al haber extinguido su individualidad. Algunos de ellos que ni siquiera están situados en la existencia impersonal, regresan a este campo material para exhibir sus deseos latentes por las actividades. A ellos no se les admite en los planetas espirituales, pero se les da de nuevo una oportunidad de actuar en los planetas materiales. A aquellos que son trabajadores fruitivos, el Señor como el yajñesvara, les otorga el resultado deseado de sus deberes prescritos; y aquellos yogīs que buscan los poderes místicos, se les conceden dichos poderes. En otras palabras, todo el mundo depende únicamente de Su misericordia para el éxito y todos los tipos de procesos espirituales no son sino diferentes grados de éxito en el mismo sendero. Por lo tanto, a menos que se llegue a la más elevada perfección de la conciencia de Kṛṣṇa, todos los intentos seguirán siendo imperfectos, tal como se afirma en el Śrīmad-Bhāgavatam:
+
+> akāmaḥ sarva-kāmo vā mokṣa-kāma udāradhīḥ
+> tīvreṇa bhakti-yogena yajeta puruṣaṁ param
+
+«Ya sea que uno no tenga deseos (la condición de los devotos), o que esté deseoso de todos los resultados fruitivos, o que busque la liberación, uno debe tratar de adorar a la Suprema Personalidad de Dios con todos sus esfuerzos, para obtener la perfección completa que culmina en la conciencia de Kṛṣṇa» (Bhāg. 2.3.10).

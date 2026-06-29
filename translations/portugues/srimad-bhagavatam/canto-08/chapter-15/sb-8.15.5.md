@@ -1,0 +1,15 @@
+### SB 8.15.5
+
+*tato rathaḥ kāñcana*-paṭṭa-naddho
+
+*hayāś ca haryaśva*-turaṅga-varṇāḥ
+
+dhvajaś ca siṁhena virājamāno
+
+hutāśanād āsa havirbhir iṣṭāt
+
+*tataḥ*—em seguida; *rathaḥ*—uma quadriga; *kāñcana*—com ouro; *paṭṭa*—e vestes de seda; *naddhaḥ*—envolta; *hayāḥ ca*—também cavalos; *haryaśva-turaṅga-varṇāḥ*—exatamente da mesma cor que os cavalos de Indra (amarelos); *dhvajaḥ ca*—também uma bandeira; *siṁhena*—com a marca de um leão; *virājamānaḥ*—existindo; *huta-aśanāt*—do fogo ardente; *āsa*—surgiu; *havirbhiḥ*—por oblações de manteiga clarificada; *iṣṭāt*—adorado.
+
+**Quando se ofereceu *ghee* [manteiga clarificada] no fogo do sacrifício, surgiu dele uma quadriga celestial coberta de ouro e seda. Apareceram também cavalos amarelos como os de Indra, e uma bandeira com a marca de um leão.**
+
+---

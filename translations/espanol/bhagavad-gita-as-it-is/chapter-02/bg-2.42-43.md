@@ -1,0 +1,16 @@
+### Bg 2.42-43
+
+> yām imāṁ puṣpitāṁ vācaṁ
+> pravadanty avipaścitaḥ
+> veda-vāda-ratāḥ pārtha
+> nānyad astīti vādinaḥ
+> kāmātmānaḥ svarga-parā
+> janma-karma-phala-pradām
+> kriyā-viśeṣa-bahulāṁ
+> bhogaiśvarya-gatiṁ prati
+
+*yām imām*—todas estas; *puṣpitām*—floridas; *vācam*—palabras; *pravadanti*—dicen; *avipaścitaḥ*—hombres con una escasa reserva de conocimiento; *veda-vāda-ratāḥ*—supuestos seguidores de los Vedas; *pārtha*—¡oh, hijo de Pṛthā!; *na*—nunca; *anyat*—ninguna otra cosa; *asti*—hay; *iti*—esto; *vādinaḥ*—los defensores; *kāma-ātmānaḥ*—deseosos de gratificación sensorial; *svarga-parāḥ*—aspirando a alcanzar los planetas celestiales; *janma-karma-phala-pradām*—culminando en acción fruitiva, alta cuna, etc.; *kriyā-viśeṣa*—ceremonias pomposas; *bahulām*—diversos; *bhoga*—el disfrute de los sentidos; *aiśvarya*—opulencia; *gatim*—progreso; *prati*—hacia.
+
+**Los hombres de escaso conocimiento están muy apegados a las floridas palabras de los Vedas, las cuales recomiendan diversas actividades fruitivas para elevarse a los planetas celestiales, con el consiguiente buen nacimiento, poder, etcétera. Como están deseosos de gratificación de los sentidos y una vida opulenta, ellos dicen que no hay nada más que esto.**
+
+La gente en general no es muy inteligente y debido a su ignorancia, está muy apegada a las actividades fruitivas que se recomiendan en las secciones karma-kāṇḍa de los Vedas. No quieren nada más que proposiciones de gratificación de los sentidos para disfrutar la vida en el cielo, en donde el vino y las mujeres son asequibles y la opulencia material es muy común. En los Vedas se recomiendan muchos sacrificios para el ascenso a los planetas celestiales, especialmente los sacrificios jyotiṣṭoma. De hecho, se afirma que cualquiera que desee elevarse a los planetas celestiales debe llevar a cabo estos sacrificios y los hombres con escasa reserva de conocimiento piensan que ese es todo el propósito de la sabiduría Védica. Es muy difícil para dichas personas inexpertas situarse en la acción resuelta de la conciencia de Kṛṣṇa. Así como los necios tienen apego por las flores de árboles venenosos sin conocer el resultado de semejante atracción, de forma similar, los hombres carentes de iluminación son atraídos por dicha opulencia celestial y el subsecuente goce de los sentidos. En la sección karma-kāṇḍa de los Vedas se dice que aquellos que observan las cuatro penitencias mensuales, se vuelven elegibles para tomar la bebida somarasa y volverse inmortales y felices para siempre. Incluso en esta tierra hay quienes están ansiosos de tomar somarasa para volverse fuertes y aptos para disfrutar la gratificación de los sentidos. Dichas personas no tienen ninguna fe en la liberación del cautiverio material y están muy apegadas a las ceremonias pomposas de los sacrificios Védicos. Ellos son generalmente sensuales y no desean nada más aparte de los placeres celestiales de la vida. Se entiende que hay jardines llamados nandana-kānana, que ofrecen una buena oportunidad de disfrutar de la compañía de mujeres bellas y angelicales y de tomar también una abundante cantidad de vino somarasa. Semejante felicidad corporal es ciertamente sensual; por ello es que existen aquellos que están apegados únicamente a la felicidad material y temporal como si fueran los señores del mundo material.

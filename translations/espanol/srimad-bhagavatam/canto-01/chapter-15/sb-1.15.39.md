@@ -1,0 +1,12 @@
+### SB 1.15.39
+
+> mathurāyāṁ tathā vajraṁ
+> śūrasena-patiṁ tataḥ
+> prājāpatyāṁ nirūpyeṣṭim
+> agnīn apibad īśvaraḥ
+
+*mathurāyām*—en Mathurā; *tathā*—también; *vajram*—Vajra; *śūrasena-patim*—el rey de los Śūrasenas; *tataḥ*—luego; *prājāpatyām*—sacrificio *prājāpatya*; *nirūpya*—habiendo celebrado; *iṣṭim*—meta; *agnīn*—fuego; *apibat*—puesto en sí mismo; *īśvaraḥ*—capaz.
+
+**Entonces apostó a Vajra, el hijo de Aniruddha (nieto del Señor Kṛṣṇa), en Mathurā como rey de Śūrasena. Después, Mahārāja Yudhiṣṭhira realizó un sacrificio Prajāpati e instaló en sí mismo el fuego para abandonar la vida hogareña.**
+
+Mahārāja Yudhiṣṭhira, tras colocar a Mahārāja Parīkṣit en el trono imperial de Hastināpura, y tras apostar a Vajra, el bisnieto del Señor Kṛṣṇa, como rey de Mathurā, aceptó la orden de vida de renuncia. El sistema de cuatro órdenes de vida y cuatro castas en función de la cualidad y el trabajo, conocido como varṇāśrama-dharma, es el comienzo de la verdadera vida humana, y Mahārāja Yudhiṣṭhira, como protector de este sistema de actividades humanas, se retiró a su debido tiempo de la vida activa como sannyāsī, entregando el cargo de la administración a un príncipe instruido, Mahārāja Parīkṣit. El científico sistema del varṇāśrama-dharma divide la vida humana en cuatro divisiones de ocupación y cuatro órdenes de vida. Las cuatro órdenes de vida, como brahmacārī, gṛhastha, vānaprastha y sannyāsa, han de ser seguidas por todos, sin importar la división ocupacional. Los políticos modernos no desean retirarse de la vida activa, aun cuando sean lo bastante ancianos, pero Yudhiṣṭhira Mahārāja, como rey ideal, se retiró voluntariamente de la vida administrativa activa para prepararse para la siguiente vida. La vida de todos debe disponerse de tal modo que la última etapa de la vida —digamos, al menos los últimos quince o veinte años antes de la muerte— pueda dedicarse absolutamente al servicio devocional del Señor, para alcanzar la perfección más elevada de la vida. Es realmente una necedad ocuparse todos los días de la vida en el disfrute material y en las actividades fruitivas, porque, mientras la mente permanezca absorta en el trabajo fruitivo en pos del disfrute material, no hay posibilidad de salir de la vida condicionada o del cautiverio material. Nadie debe seguir la política suicida de descuidar su tarea suprema de alcanzar la perfección más elevada de la vida, a saber, ir de vuelta al hogar, de vuelta a Dios.

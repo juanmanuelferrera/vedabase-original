@@ -1,0 +1,12 @@
+### SB 1.17.5
+
+> kas tvaṁ mac-charaṇe loke
+> balād dhaṁsy abalān balī
+> nara-devo 'si veṣeṇa
+> naṭavat karmaṇādvijaḥ
+
+*kaḥ*—quién eres; *tvam*—tú; *mat*—mi; *śaraṇe*—bajo la protección; *loke*—en este mundo; *balāt*—a la fuerza; *haṁsi*—matando; *abalān*—aquellos que están indefensos; *balī*—aunque lleno de fuerza; *nara-devaḥ*—hombre-dios; *asi*—pareces ser; *veṣeṇa*—por tu ropa; *naṭa-vat*—como un actor de teatro; *karmaṇā*—por actos; *advi-jaḥ*—un hombre que, por cultura, no ha nacido por segunda vez.
+
+**¡Oh!, ¿quién eres tú? Pareces ser fuerte y, aun así, ¿te atreves a matar, dentro de mi protección, a aquellos que están desamparados? Por tu atuendo, te haces pasar por un hombre divino [rey], pero, por tus actos, te opones a los principios de los kṣatriyas nacidos dos veces.**
+
+Los brāhmaṇas, kṣatriyas y vaiśyas reciben el nombre de nacidos dos veces, porque para estas clases superiores de hombres hay un nacimiento mediante la unión de los padres y hay otro nacimiento de rejuvenecimiento cultural por medio de la iniciación espiritual de manos del genuino ācārya o maestro espiritual. De modo que un kṣatriya también nace dos veces, al igual que un brāhmaṇa, y su deber es brindar protección a los desamparados. Se considera que el rey kṣatriya es el representante de Dios para brindar protección a los desamparados y castigar a los malhechores. Cuando hay anomalías en esta labor rutinaria por parte de los administradores, hay una encarnación del Señor para restablecer los principios de un reino divino. En la era de Kali, los pobres animales desamparados, especialmente las vacas, que están destinadas a recibir toda clase de protección por parte de los jefes administrativos, son matadas sin restricción alguna. Así pues, los jefes administrativos, ante cuyas narices ocurren tales cosas, son supuestos representantes de Dios. Esos poderosos administradores son gobernantes de los pobres ciudadanos solo por el atuendo o el cargo, pero, de hecho, son hombres despreciables, de clase baja, sin las cualidades culturales de los nacidos dos veces. Nadie puede esperar justicia ni igualdad de trato de hombres de clase baja nacidos una sola vez (sin cultura espiritual). Por lo tanto, en la era de Kali todo el mundo es infeliz debido a la mala administración del Estado. La sociedad humana moderna no ha nacido dos veces por la cultura espiritual. En consecuencia, el gobierno del pueblo, por parte de un pueblo que no ha nacido dos veces, debe ser un gobierno de Kali, en el que todo el mundo es infeliz.

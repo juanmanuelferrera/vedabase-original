@@ -1,0 +1,8 @@
+### CC Antya 14.89
+
+> svarūpa, jagadānanda, paṇḍita-gadādhara
+> rāmāi, nandāi, āra paṇḍita śaṅkara
+
+*svarūpa*—Svarūpa Dāmodara Gosvāmī; *jagadānanda*—Jagadānanda Paṇḍita; *paṇḍita-gadādhara*—Gadādhara Paṇḍita; *rāmāi*—Rāmāi; *nandāi*—Nandāi; *āra*—y; *paṇḍita-śaṅkara*—Śaṅkara Paṇḍita.
+
+**Svarūpa Dāmodara Gosvāmī, Jagadānanda Paṇḍita, Gadādhara Paṇḍita, Rāmāi, Nandāi y Śaṅkara Paṇḍita son algunos de los devotos que corrieron tras Śrī Caitanya Mahāprabhu.**

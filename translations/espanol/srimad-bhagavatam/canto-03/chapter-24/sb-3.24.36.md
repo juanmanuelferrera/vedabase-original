@@ -1,0 +1,12 @@
+### SB 3.24.36
+
+> etan me janma loke 'smin
+> mumukṣūṇāṁ durāśayāt
+> prasaṅkhyānāya tattvānāṁ
+> sammatāyātma-darśane
+
+*etat*—este; *me*—Mi; *janma*—nacimiento; *loke*—en el mundo; *asmin*—en este; *mumukṣūṇām*—por aquellos grandes sabios que buscan la liberación; *durāśayāt*—de deseos materiales innecesarios; *prasaṅkhyānāya*—para explicar; *tattvānām*—de las verdades; *sammatāya*—que es muy apreciado; *ātma-darśane*—en la autorrealización.
+
+**Mi aparición en este mundo tiene como fin especial explicar la filosofía del Sāṅkhya, que es muy estimada para la autorrealización por quienes desean liberarse del enredo de los innecesarios deseos materiales.**
+
+Aquí la palabra *durāśayāt* es muy significativa. *Dur* significa dificultad, o *duḥkha*, miserias. *Āśayāt* significa «del refugio». Nosotros, las almas condicionadas, nos hemos refugiado en el cuerpo material, que está lleno de dificultades y miserias. Las personas necias no pueden comprender la situación, y esto se llama ignorancia, ilusión, o el hechizo de *māyā*. La sociedad humana debería comprender muy seriamente que el cuerpo en sí mismo es la fuente de toda vida miserable. Se supone que la civilización moderna está avanzando en el conocimiento científico, pero ¿qué es ese conocimiento científico? Se basa únicamente en las comodidades corporales, sin el conocimiento de que, por muy cómodamente que uno mantenga su cuerpo, el cuerpo es destructible. Como se afirma en el *Bhagavad-gītā*, *antavanta ime dehāḥ*: estos cuerpos están destinados a ser destruidos. *Nityasyoktāḥ śarīriṇaḥ* se refiere al alma viviente, o a la chispa viviente que está dentro del cuerpo. Esa alma es eterna, pero el cuerpo no lo es. Para nuestra actividad debemos tener un cuerpo; sin un cuerpo, sin órganos de los sentidos, no hay actividad. Pero la gente no se pregunta si es posible tener un cuerpo eterno. En realidad, aspiran a un cuerpo eterno, porque aunque se ocupen en el disfrute de los sentidos, ese disfrute de los sentidos no es eterno. Por eso están en busca de algo de lo que puedan disfrutar eternamente, pero no comprenden cómo alcanzar esa perfección. Por consiguiente, la filosofía *sāṅkhya*, como aquí la expone Kapiladeva, es *tattvānām*. El sistema de la filosofía *sāṅkhya* está concebido para brindar la comprensión de la verdad real. ¿Cuál es esa verdad real? La verdad real es el conocimiento de cómo salir del cuerpo material, que es la fuente de todas las dificultades. La encarnación, o descenso, del Señor Kapila está especialmente destinada a este fin. Eso se afirma con claridad aquí.

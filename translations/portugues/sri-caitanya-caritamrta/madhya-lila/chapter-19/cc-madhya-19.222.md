@@ -1,0 +1,9 @@
+### CC Madhya 19.222
+
+śāntera guṇa, dāsyera sevana--sakhye dui haya
+
+dāsyera 'sambhrama-gaurava'-sevā, sakhye 'viśvāsa'-maya
+
+*śāntera guṇa*—as qualidades do śānta-rasa; *dāsyera sevana*—o serviço do dāsya-rasa; *sakhye*—na plataforma da fraternidade; *dui*—duas qualidades; *haya*—há; *dāsyera*—da plataforma do dāsya; *sambhrama-gaurava*—com reverência e veneração; *sevā*—serviço; *sakhye*—na plataforma da fraternidade; *viśvāsa-maya*—imbuído de confiança.
+
+**"As qualidades do śānta-rasa e o serviço do dāsya-rasa estão ambos presentes na plataforma do sakhya-rasa. Na plataforma da fraternidade, as qualidades do dāsya-rasa misturam-se com a confiança da fraternidade, em vez de com reverência e veneração.**

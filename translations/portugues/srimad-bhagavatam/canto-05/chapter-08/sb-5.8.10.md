@@ -1,0 +1,11 @@
+### SB 5.8.10
+
+*nūnaṁ hy āryāḥ sādhava upaśama-śīlāḥ kṛpaṇa*-suhṛda evaṁ-vidhārthe svārthān api gurutarān upekṣante.
+
+*nūnam*—de fato; *hi*—certamente; *āryāḥ*—aqueles que são avançados em civilização; *sādhavaḥ*—pessoas santas; *upaśama-śīlāḥ*—embora completamente na ordem renunciada da vida; *kṛpaṇa-suhṛdaḥ*—os amigos dos desamparados; *evaṁ-vidha-arthe*—para executar tais princípios; *sva-arthān api*—mesmo seus próprios interesses pessoais; *guru-tarān*—muito importantes; *upekṣante*—negligenciam.
+
+**Embora se esteja na ordem renunciada, aquele que é avançado certamente sente compaixão pelas entidades vivas sofredoras. Deve-se certamente negligenciar os próprios interesses pessoais, ainda que estes possam ser muito importantes, para proteger aquele que se rendeu.**
+
+A *māyā* é muito forte. Em nome da filantropia, do altruísmo e do comunismo, as pessoas sentem compaixão pela humanidade sofredora em todo o mundo. Os filantropos e altruístas não percebem que é impossível melhorar as condições materiais das pessoas. As condições materiais já estão estabelecidas pela administração superior de acordo com o *karma* de cada um. Não podem ser modificadas. O único benefício que podemos prestar aos seres sofredores é tentar elevá-los à consciência espiritual. Os confortos materiais não podem ser aumentados nem diminuídos. Por isso, afirma-se no *Śrīmad-Bhāgavatam* (1.5.18), *tal labhyate duḥkhavad anyataḥ sukham*: "No que se refere à felicidade material, esta vem sem esforço, assim como as tribulações vêm sem esforço." A felicidade material e a dor podem ser obtidas sem empenho. Não se deve preocupar com atividades materiais. Se alguém é de algum modo solidário ou capaz de fazer o bem aos outros, deve esforçar-se por elevar as pessoas à consciência de Kṛṣṇa. Dessa maneira, todos avançam espiritualmente pela graça do Senhor. Para nossa instrução, Bharata Mahārāja agiu desse modo. Devemos ter muito cuidado para não nos deixarmos enganar por supostas atividades de bem-estar conduzidas em termos corpóreos. Não se deve abandonar o interesse de alcançar o favor do Senhor Viṣṇu a nenhum preço. Em geral, as pessoas não sabem disso ou se esquecem. Em consequência, sacrificam seu interesse original, a obtenção do favor de Viṣṇu, e ocupam-se em atividades filantrópicas em prol do conforto corpóreo.
+
+---

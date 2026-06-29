@@ -1,0 +1,8 @@
+### CC Madhya 9.363
+
+> caitanya-candrera līlā--agādha, gambhīra
+> praveśa karite nāri,--sparśi rahi' tīra
+
+*caitanya-candrera līlā*—los pasatiempos del Señor Śrī Caitanya Mahāprabhu; *agādha*—insondables; *gambhīra*—profundos; *praveśa karite*—para adentrarme; *nāri*—soy incapaz; *sparśi*—toco; *rahi' tīra*—permaneciendo en la orilla.
+
+**Los pasatiempos de Śrī Caitanya Mahāprabhu son como un océano insondable. No me es posible adentrarme en ellos. Permaneciendo simplemente en la orilla, tan solo toco el agua.**

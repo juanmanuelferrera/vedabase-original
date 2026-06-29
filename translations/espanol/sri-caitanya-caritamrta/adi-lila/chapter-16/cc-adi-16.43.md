@@ -1,0 +1,8 @@
+### CC Adi 16.43
+
+> jhañjhāvāta-prāya āmi śloka paḍila
+> tāra madhye śloka tumi kaiche kaṇṭhe kaila
+
+*jhañjhā-vāta*—el fuerte viento de una tormenta; *prāya*—como; *āmi*—yo; *śloka*—versos; *paḍila*—recité; *tāra*—de ellos; *madhye*—en medio; *śloka*—un verso; *tumi*—Tú; *kaiche*—cómo; *kaṇṭhe*—en el corazón; *kaila*—has tomado.
+
+**«Yo recité todos los versos como el viento que sopla. ¿Cómo pudiste aprender completamente de memoria ni siquiera uno de esos versos?»**

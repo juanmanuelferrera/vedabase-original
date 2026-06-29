@@ -1,0 +1,15 @@
+### SB 9.12.14
+
+tasmāc chākyo 'tha śuddhodo
+
+*lāṅgalas tat*-sutaḥ smṛtaḥ
+
+tataḥ prasenajit tasmāt
+
+kṣudrako bhavitā tataḥ
+
+*tasmāt*—de Sañjaya; *śākyaḥ*—Śākya; *atha*—em seguida; *śuddhodaḥ*—Śuddhoda; *lāṅgalaḥ*—Lāṅgala; *tat-sutaḥ*—o filho de Śuddhoda; *smṛtaḥ*—é bem conhecido; *tataḥ*—dele; *prasenajit*—Prasenajit; *tasmāt*—de Prasenajit; *kṣudrakaḥ*—Kṣudraka; *bhavitā*—nascerá; *tataḥ*—em seguida.
+
+**De Sañjaya virá Śākya; de Śākya virá Śuddhoda; e de Śuddhoda virá Lāṅgala. De Lāṅgala virá Prasenajit, e de Prasenajit, Kṣudraka.**
+
+---

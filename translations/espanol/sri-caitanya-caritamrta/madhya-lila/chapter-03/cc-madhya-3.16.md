@@ -1,0 +1,8 @@
+### CC Madhya 3.16
+
+> gupte tā-sabāke āni' ṭhākura nityānanda
+> śikhāilā sabākāre kariyā prabandha
+
+*gupte*—en confianza; *tā-sabāke*—a todos los pastorcillos; *āni'*—llevándolos aparte; *ṭhākura nityānanda*—Nityānanda Ṭhākura; *śikhāilā*—instruyó; *sabākāre*—a todos ellos; *kariyā prabandha*—ideando una historia razonable.
+
+**Llamando a todos los muchachos en confianza y contándoles una historia razonable, Nityānanda Prabhu les instruyó de la siguiente manera.**

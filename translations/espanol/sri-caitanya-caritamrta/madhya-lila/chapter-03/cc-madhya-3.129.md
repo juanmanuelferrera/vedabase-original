@@ -1,0 +1,8 @@
+### CC Madhya 3.129
+
+> dekhiyā cintita hailā yata bhakta-gaṇa
+> ācambite uṭhe prabhu kariyā garjana
+
+*dekhiyā*—al ver; *cintita*—ansiosos; *hailā*—se pusieron; *yata*—todos; *bhakta-gaṇa*—los devotos; *ācambite*—de repente; *uṭhe*—se levanta; *prabhu*—el Señor; *kariyā*—produciendo; *garjana*—sonidos atronadores.
+
+**Al ver la condición del Señor, todos los devotos se llenaron de gran ansiedad. Entonces, de repente, el Señor se levantó y comenzó a producir sonidos atronadores.**

@@ -1,0 +1,12 @@
+### Bg 9.10
+
+> mayādhyakṣeṇa prakṛtiḥ
+> sūyate sa-carācaram
+> hetunānena kaunteya
+> jagad viparivartate
+
+*mayā*—por Mí; *adhyakṣeṇa*—mediante la superintendencia; *prakṛtiḥ*—la naturaleza material; *sūyate*—manifiesta; *sa*—con; *carācaram*—móviles e inmóviles; *hetunā*—por esta razón; *anena*—esta; *kaunteya*—¡oh, hijo de Kuntī!; *jagat*—la manifestación cósmica; *viparivartate*—está funcionando.
+
+**Esta naturaleza material funciona bajo Mi dirección, ¡oh, hijo de Kuntī! y produce todos los seres móviles e inmóviles. Por orden suya, esta manifestación es creada y aniquilada una y otra vez.**
+
+Aquí se afirma claramente que, aunque el Señor Supremo está apartado de todas las actividades del mundo material, sigue siendo el director supremo. El Señor Supremo es la voluntad suprema y el fundamento de esta manifestación material, pero la administración es conducida por la naturaleza material. Kṛṣṇa también afirma en el Bhagavad-gītā que, de todas las entidades vivientes en sus diferentes formas y especies, «Yo soy el Padre». El padre pone la semilla del niño en el vientre de la madre y de forma similar el Señor Supremo tan solo con Su mirada, inyecta a todas las entidades vivientes en el vientre de la naturaleza material y ellas salen en diferentes formas y especies de acuerdo con sus últimos deseos y actividades. Todas estas entidades vivientes, aunque nacidas bajo la mirada del Señor Supremo, adoptan, sin embargo, sus diferentes cuerpos de acuerdo a sus pasadas acciones y deseos. Por lo tanto, el Señor no está directamente apegado a esta creación material. Él simplemente posa Su mirada sobre la naturaleza material; de este modo la naturaleza material se activa y todo se crea de inmediato. Como Él posa Su mirada sobre la naturaleza material, es indudable que existe actividad por parte del Señor Supremo, pero Él no tiene nada que ver directamente con la manifestación del mundo material. Este ejemplo se da en el smṛti: cuando alguien tiene ante sí una flor fragante, la fragancia es tocada por el poder olfativo de la persona, sin embargo, el olfato y la flor están separados el uno del otro. Existe una conexión similar entre el mundo material y la Suprema Personalidad de Dios. En realidad, Él no tiene nada que ver con este mundo material pero Él crea mediante Su mirada y dispone. En resumen, la naturaleza material, sin la superintendencia de la Suprema Personalidad de Dios, no puede hacer nada. No obstante, la Personalidad Suprema está desapegada de todas las actividades materiales.

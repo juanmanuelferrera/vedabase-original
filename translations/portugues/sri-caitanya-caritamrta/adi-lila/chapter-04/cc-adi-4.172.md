@@ -1,0 +1,9 @@
+### CC Adi 4.172
+
+ataeva gopī-gaṇera nāhi kāma-gandha
+
+kṛṣṇa-sukha lāgi mātra, kṛṣṇa se sambandha
+
+*ataeva*—portanto; *gopī-gaṇera*—das gopīs; *nāhi*—não; *kāma-gandha*—a mínima réstia de luxúria; *kṛṣṇa-sukha*—a felicidade do Senhor Kṛṣṇa; *lāgi*—por; *mātra*—apenas; *kṛṣṇa*—o Senhor Kṛṣṇa; *se*—essa; *sambandha*—a relação.
+
+**Assim, não há a mínima mácula de luxúria no amor das gopīs. Sua relação com Kṛṣṇa é apenas em prol de Seu desfrute.**

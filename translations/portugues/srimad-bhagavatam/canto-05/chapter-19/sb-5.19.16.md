@@ -1,0 +1,9 @@
+### SB 5.19.16
+
+*bhārate 'py asmin varṣe saric*-chailāḥ santi bahavo malayo maṅgala-prastho mainākas trikūṭa ṛṣabhaḥ kūṭakaḥ kollakaḥ sahyo devagirir ṛṣyamūkaḥ śrī-śailo veṅkaṭo mahendro vāridhāro vindhyaḥ śuktimān ṛkṣagiriḥ pāriyātro droṇaś citrakūṭo govardhano raivatakaḥ kakubho nīlo gokāmukha indrakīlaḥ kāmagirir iti cānye ca śata-sahasraśaḥ śailās teṣāṁ nitamba-prabhavā nadā nadyaś ca santy asaṅkhyātāḥ.
+
+*bhārate*—na terra de Bhārata-varṣa; *api*—também; *asmin*—nesta; *varṣe*—faixa de terra; *sarit*—rios; *śailāḥ*—montanhas; *santi*—há; *bahavaḥ*—muitas; *malayaḥ*—Malaya; *maṅgala-prasthaḥ*—Maṅgala-prastha; *mainākaḥ*—Maināka; *tri-kūṭaḥ*—Trikūṭa; *ṛṣabhaḥ*—Ṛṣabha; *kūṭakaḥ*—Kūṭaka; *kollakaḥ*—Kollaka; *sahyaḥ*—Sahya; *devagiriḥ*—Devagiri; *ṛṣya-mūkaḥ*—Ṛṣyamūka; *śrī-śailaḥ*—Śrī-śaila; *veṅkaṭaḥ*—Veṅkaṭa; *mahendraḥ*—Mahendra; *vāri-dhāraḥ*—Vāridhāra; *vindhyaḥ*—Vindhya; *śuktimān*—Śuktimān; *ṛkṣa-giriḥ*—Ṛkṣagiri; *pāriyātraḥ*—Pāriyātra; *droṇaḥ*—Droṇa; *citra-kūṭaḥ*—Citrakūṭa; *govardhanaḥ*—Govardhana; *raivatakaḥ*—Raivataka; *kakubhaḥ*—Kakubha; *nīlaḥ*—Nīla; *gokāmukhaḥ*—Gokāmukha; *indrakīlaḥ*—Indrakīla; *kāma-giriḥ*—Kāmagiri; *iti*—assim; *ca*—e; *anye*—outros; *ca*—também; *śata-sahasraśaḥ*—muitos centenas e milhares; *śailāḥ*—montanhas; *teṣām*—deles; *nitamba-prabhavāḥ*—nascidos das encostas; *nadāḥ*—grandes rios; *nadyaḥ*—pequenos rios; *ca*—e; *santi*—há; *asaṅkhyātāḥ*—inumeráveis.
+
+**Na faixa de terra conhecida como Bhārata-varṣa, assim como em Ilāvṛta-varṣa, há muitas montanhas e rios. Algumas das montanhas são conhecidas como Malaya, Maṅgala-prastha, Maināka, Trikūṭa, Ṛṣabha, Kūṭaka, Kollaka, Sahya, Devagiri, Ṛṣyamūka, Śrī-śaila, Veṅkaṭa, Mahendra, Vāridhāra, Vindhya, Śuktimān, Ṛkṣagiri, Pāriyātra, Droṇa, Citrakūṭa, Govardhana, Raivataka, Kakubha, Nīla, Gokāmukha, Indrakīla e Kāmagiri. Além dessas, há muitas outras colinas, com muitos rios grandes e pequenos fluindo de suas encostas.**
+
+---

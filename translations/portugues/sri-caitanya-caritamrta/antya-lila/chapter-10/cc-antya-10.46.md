@@ -1,0 +1,9 @@
+### CC Antya 10.46
+
+gauḍīyā-sampradāya saba karena kīrtana
+
+prabhura milane uṭhe premera krandana
+
+*gauḍīyā-sampradāya*—do grupo de vaiṣṇavas de Bengala; *saba*—todos; *karena kīrtana*—realizam canto congregacional; *prabhura milane*—ao encontrar Śrī Caitanya Mahāprabhu; *uṭhe*—ergue-se; *premera krandana*—pranto em amor extático.
+
+**A Gauḍīya-sampradāya, composta por todos os devotos de Bengala, deu início ao canto congregacional. Ao encontrarem o Senhor, começaram a chorar alto em amor extático.**

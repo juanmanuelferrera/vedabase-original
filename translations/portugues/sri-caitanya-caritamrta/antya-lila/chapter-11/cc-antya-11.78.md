@@ -1,0 +1,9 @@
+### CC Antya 11.78
+
+svarūpa-gosāñi kahilena saba pasārire
+
+eka eka dravyera eka eka puñjā deha' more
+
+*svarūpa-gosāñi*—Svarūpa Dāmodara Gosvāmī; *kahilena*—disse; *saba pasārire*—a todos os comerciantes; *eka eka dravyera*—de cada tipo específico de prasāda; *eka eka puñjā*—quatro punhados; *deha' more*—entreguem a mim.
+
+**Svarūpa Dāmodara disse a todos os comerciantes: "Entreguem-me quatro punhados de prasāda de cada um dos itens."**

@@ -1,0 +1,8 @@
+### CC Madhya 11.69
+
+> rājā kahe,-paḍichāke āmi ājñā diba
+> vāsā ādi ye cāhiye,-paḍichā saba diba
+
+*rājā kahe*—el rey dijo; *paḍichāke*—al asistente; *āmi*—yo; *ājñā diba*—daré órdenes; *vāsā*—residencia; *ādi*—y otros arreglos; *ye cāhiye*—lo que desees; *paḍichā*—el asistente; *saba*—todo; *diba*—suministrará.
+
+**El rey respondió: «Daré órdenes al asistente del templo. Él dispondrá la residencia y el prasādam de todos, conforme a vuestro deseo.**

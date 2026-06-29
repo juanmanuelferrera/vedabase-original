@@ -1,0 +1,14 @@
+### SB 4.11.19
+
+> so 'nanto 'nta-karaḥ kālo
+> 'nādir ādi-kṛd avyayaḥ
+> janaṁ janena janayan
+> mārayan mṛtyunāntakam
+
+*saḥ*—Él; *anantaḥ*—infinito; *anta-karaḥ*—aniquilador; *kālaḥ*—tiempo; *anādiḥ*—sin principio; *ādi-kṛt*—principio de todo; *avyayaḥ*—sin disminución; *janam*—entidades vivientes; *janena*—por entidades vivientes; *janayan*—causando que nazcan; *mārayan*—matando; *mṛtyunā*—por la muerte; *antakam*—que matan.
+
+**Mi querido Dhruva, la Suprema Personalidad de Dios existe por siempre. En la forma del tiempo, Él es quien mata todas las cosas. Él no tiene principio, aunque es el principio de todo, ni jamás se agota, aunque todo se agota a su debido tiempo. Las entidades vivientes son creadas por intermedio del padre, y son matadas por intermedio de la muerte, pero Él está perpetuamente libre del nacimiento y la muerte.**
+
+La autoridad suprema y el inconcebible poder de la Suprema Personalidad de Dios pueden estudiarse minuciosamente a partir de este verso. Él es siempre ilimitado. Eso significa que no tiene creación ni fin. No obstante, Él es la muerte (en la forma del tiempo), como se describe en el Bhagavad-gītā. Kṛṣṇa dice: «Yo soy la muerte. Lo arrebato todo al final de la vida». El tiempo eterno tampoco tiene principio, pero es el creador de todas las criaturas. Se da el ejemplo de la piedra de toque, que crea muchas piedras y joyas valiosas, pero no disminuye en poder. De manera similar, la creación ocurre muchas veces, todo se mantiene y, después de un tiempo, todo se aniquila; pero el creador original, el Señor Supremo, permanece intacto y sin que su poder disminuya. La creación secundaria la realiza Brahmā, pero Brahmā es creado por la Divinidad Suprema. El Señor Śiva aniquila toda la creación, pero, al final, también él es aniquilado por Viṣṇu. El Señor Viṣṇu permanece. En los himnos Védicos se afirma que, al principio, solo está Viṣṇu, y que únicamente Él permanece al final.
+
+Un ejemplo puede ayudarnos a comprender la inconcebible potencia del Señor Supremo. En la historia reciente de la guerra, la Suprema Personalidad de Dios creó a un Hitler y, antes de él, a un Napoleón Bonaparte, y cada uno de ellos mató a muchas entidades vivientes en la guerra. Pero, al final, también Bonaparte y Hitler fueron muertos. La gente todavía está muy interesada en escribir y leer libros sobre Hitler y Bonaparte, y sobre cómo mataron a tanta gente en la guerra. Año tras año se publican muchos libros para que el público lea acerca de cómo Hitler mató a miles de judíos en cautiverio. Pero nadie investiga quién mató a Hitler y quién creó a semejante gigantesco asesino de seres humanos. A los devotos del Señor no les interesa mucho el estudio de la fugaz historia del mundo. Solo les interesa Aquel que es el creador, el sustentador y el aniquilador original. Ese es el propósito del movimiento para la conciencia de Kṛṣṇa.

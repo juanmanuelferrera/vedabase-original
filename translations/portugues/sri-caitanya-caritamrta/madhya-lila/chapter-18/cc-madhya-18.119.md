@@ -1,0 +1,9 @@
+### CC Madhya 18.119
+
+mṛga-mada vastre bāndhe, tabu nā lukāya
+
+'īśvara-svabhāva' tomāra ṭākā nāhi yāya
+
+*mṛga-mada*—almíscar de cervo; *vastre*—em pano; *bāndhe*—envolve; *tabu*—ainda; *nā*—não; *lukāya*—se oculta; *īśvara-svabhāva*—características como a Suprema Personalidade de Deus; *tomāra*—de Ti; *ṭākā nāhi yāya*—não se ocultam.
+
+**"Assim como o aroma do almíscar de cervo não pode ser ocultado ao envolvê-lo num pano, Tuas características como a Suprema Personalidade de Deus não podem ser ocultadas por meio algum.**

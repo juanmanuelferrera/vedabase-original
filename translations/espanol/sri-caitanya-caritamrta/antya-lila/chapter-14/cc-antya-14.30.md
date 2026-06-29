@@ -1,0 +1,8 @@
+### CC Antya 14.30
+
+> aho bhāgyavatī ei, vandi ihāra pāya
+> ihāra prasāde aiche ārti āmāra vā haya"
+
+*aho*—¡ay!; *bhāgyavatī*—muy, muy afortunada; *ei*—ella; *vandi*—permítaseme ofrecer oraciones; *ihāra pāya*—a sus pies; *ihāra prasāde*—por su gracia; *aiche*—tal; *ārti*—anhelo; *āmāra vā haya*—que sea Mío.
+
+**»¡Ay, qué afortunada es esta mujer! Oro a sus pies para que me conceda su gracia y Me dé un anhelo tan grande de ver al Señor Jagannātha».**

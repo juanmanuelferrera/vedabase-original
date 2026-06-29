@@ -1,0 +1,7 @@
+### SB 5.23.7
+
+> uttarā-hanāv agastir adharā-hanau yamo mukheṣu cāṅgārakaḥ śanaiścara upasthe bṛhaspatiḥ kakudi vakṣasy ādityo hṛdaye nārāyaṇo manasi candro nābhyām uśanā stanayor aśvinau budhaḥ prāṇāpānayo rāhur gale ketavaḥ sarvāṅgeṣu romasu sarve tārā-gaṇāḥ.
+
+*uttarā-hanau*—en la mandíbula superior; *agastiḥ*—la estrella llamada Agasti; *adharā-hanau*—en la mandíbula inferior; *yamaḥ*—Yamarāja; *mukheṣu*—en la boca; *ca*—también; *aṅgārakaḥ*—Marte; *śanaiścaraḥ*—Saturno; *upasthe*—en los genitales; *bṛhaspatiḥ*—Júpiter; *kakudi*—en la nuca; *vakṣasi*—en el pecho; *ādityaḥ*—el Sol; *hṛdaye*—dentro del corazón; *nārāyaṇaḥ*—el Señor Nārāyaṇa; *manasi*—en la mente; *candraḥ*—la Luna; *nābhyām*—en el ombligo; *uśanā*—Venus; *stanayoḥ*—en las dos mamas; *aśvinau*—las dos estrellas llamadas Aśvin; *budhaḥ*—Mercurio; *prāṇāpānayoḥ*—en los aires internos conocidos como*prāṇa* y *apāna*; *rāhuḥ*—el planeta Rāhu; *gale*—en el cuello; *ketavaḥ*—cometas; *sarva-aṅgeṣu*—por todo el cuerpo; *romasu*—en los poros del cuerpo; *sarve*—todas; *tārā-gaṇāḥ*—las numerosas estrellas.
+
+**En la mandíbula superior del śiśumāra está Agasti; en la inferior, Yamarāja; en su boca, Marte; en sus genitales, Saturno; en su nuca, Júpiter; en su pecho, el Sol; y en lo más profundo de su corazón, Nārāyaṇa. En su mente está la Luna; en su ombligo, Venus; en sus mamas, los Aśvinī-kumāras. En su aire vital, que recibe el nombre de prāṇāpāna, está Mercurio; en su cuello está Rāhu; los cometas están por todo su cuerpo; y en sus poros están las numerosas estrellas.**

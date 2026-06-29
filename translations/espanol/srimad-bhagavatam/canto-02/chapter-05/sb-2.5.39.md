@@ -1,0 +1,18 @@
+### SB 2.5.39
+
+> grīvāyāṁ janaloko 'sya
+> tapolokaḥ stana-dvayāt
+> mūrdhabhiḥ satyalokas tu
+> brahmalokaḥ sanātanaḥ
+
+*grīvāyām*—hasta el cuello; *janalokaḥ*—el sistema planetario Janaloka; *asya*—de Él; *tapolokaḥ*—el sistema planetario Tapoloka; *stana-dvayāt*—comenzando desde el pecho; *mūrdhabhiḥ*—por la cabeza; *satyalokaḥ*—el sistema planetario Satyaloka; *tu*—pero; *brahmaloka*—los planetas espirituales; *sanātanaḥ*—eternos.
+
+**Desde la parte delantera del pecho hasta el cuello de la forma universal del Señor, se hallan situados los sistemas planetarios denominados Janaloka y Tapoloka, mientras que Satyaloka, el sistema planetario más elevado, se halla situado en la cabeza de la forma. Los planetas espirituales, sin embargo, son eternos.**
+
+Muchas veces en estas páginas hemos hablado de los planetas espirituales situados más allá del cielo material, y la descripción se corrobora en este verso. La palabra sanātana es significativa. Esta misma idea de eternidad se expresa en el Bhagavad-gītā (Bg. 8.20), donde se dice que, más allá de la creación material, está el cielo espiritual, donde todo es eterno. A veces, Satyaloka, el planeta en el que reside Brahmā, también recibe el nombre de Brahmaloka. Pero el Brahmaloka que aquí se menciona no es el mismo que el sistema planetario Satyaloka. Este Brahmaloka es eterno, mientras que el sistema planetario Satyaloka no lo es. Y para distinguir entre ambos, en este caso se ha empleado el adjetivo sanātana. Según Śrīla Jīva Gosvāmī, este Brahmaloka es el loka o morada de Brahma, o el Señor Supremo. En el cielo espiritual, todos los planetas son tan buenos como el propio Señor. El Señor es por entero espíritu, y Su nombre, fama, glorias, cualidades, pasatiempos, etc., no son diferentes de Él, porque Él es absoluto. Así pues, los planetas del reino de Dios tampoco son diferentes de Él. En esos planetas no hay diferencia entre el cuerpo y el alma, ni existe influencia alguna del tiempo tal como la experimentamos en el mundo material. Y, además de no haber influencia del tiempo, los planetas de Brahmaloka, por ser espirituales, nunca son aniquilados. Toda la diversidad de los planetas espirituales también es una con el Señor, y por consiguiente el aforismo védico ekam evādvitīyam se cumple plenamente en esa atmósfera sanātana de diversidad espiritual. Este mundo material es solo una fantasmagoría sombría del reino espiritual del Señor, y por ser una sombra nunca es eterno; la diversidad del mundo material de la dualidad (espíritu y materia) no puede compararse con la del mundo espiritual. Debido a un escaso caudal de conocimiento, las personas poco inteligentes confunden a veces las condiciones del mundo sombrío con las del mundo espiritual, y así toman al Señor y Sus pasatiempos en el mundo material por algo idéntico a las almas condicionadas y sus actividades. El Señor condena a tales personas poco inteligentes en el Bhagavad-gītā (9.11):
+
+avajānanti māṁ mūḍhā mānuṣīṁ tanum āśritam
+
+paraṁ bhāvam ajānanto mama bhūta-maheśvaram
+
+Siempre que el Señor Se encarna, lo hace en Su plena potencia interna (ātma-māyā), y las personas poco inteligentes Lo confunden con una de las creaciones materiales. Śrīla Śrīdhara Svāmī, por consiguiente, comentando con acierto este verso, dice que el Brahmaloka que aquí se menciona es Vaikuṇṭha, el reino de Dios, que es sanātana o eterno y que, por lo tanto, no es exactamente como las creaciones materiales descritas arriba. La forma universal virāṭa del Señor es una imaginación destinada al mundo material. No tiene nada que ver con el mundo espiritual, o el reino de Dios.

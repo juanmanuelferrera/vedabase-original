@@ -1,0 +1,9 @@
+### SB 5.8.15
+
+> anyadā bhṛśam udvigna-manā naṣṭa-draviṇa iva kṛpaṇaḥ sakaruṇam ati-tarṣeṇa hariṇa-kuṇaka-viraha-vihvala-hṛdaya-santāpas tam evānuśocan kila kaśmalaṁ mahad abhirambhita iti hovāca.
+
+*anyadā*—a veces (al no ver al ciervo); *bhṛśam*—mucho; *udvigna-manāḥ*—con la mente llena de ansiedad; *naṣṭa-draviṇaḥ*—que ha perdido sus riquezas; *iva*—como; *kṛpaṇaḥ*—un avaro; *sa-karuṇam*—lastimosamente; *ati-tarṣeṇa*—con gran ansiedad; *hariṇa-kuṇaka*—del cervatillo; *viraha*—por el sentimiento de separación; *vihvala*—agitado; *hṛdaya*—en la mente o en el corazón; *santāpaḥ*—cuya aflicción; *tam*—aquel cervatillo; *eva*—solamente; *anuśocan*—pensando continuamente en; *kila*—ciertamente; *kaśmalam*—ilusión; *mahat*—muy grande; *abhirambhitaḥ*—obtenida; *iti*—así; *ha*—ciertamente; *uvāca*—decía.
+
+**Si alguna vez Mahārāja Bharata no veía al ciervo, su mente se agitaba mucho. Se afligía como un avaro que pierde las riquezas que ha acumulado y se siente muy desdichado. Cuando no veía al ciervo, se llenaba de ansiedad y se lamentaba debido al sentimiento de separación. Entonces, bajo la influencia de la ilusión, hablaba de la siguiente manera.**
+
+Un hombre pobre, cuando pierde una cantidad de oro o de dinero, enseguida se agita muchísimo. De manera similar, cuando Mahārāja Bharata no veía al ciervo, su mente se agitaba. Este ejemplo nos muestra cómo puede cambiar la orientación de un apego. Cuando orientamos nuestro apego hacia el servicio del Señor, progresamos. Śrīla Rūpa Gosvāmī oró al Señor pidiéndole sentir por el servicio del Señor la misma atracción natural que sienten entre sí los muchachos y muchachas jóvenes. Ese apego por el Señor lo manifestó Śrī Caitanya Mahāprabhu, quien Se tiraba al mar o pasaba las noches llorando debido a la separación que sentía. Sin embargo, si nuestro apego se desvía hacia las cosas materiales, en lugar de centrarse en el Señor, caeremos del plano espiritual.

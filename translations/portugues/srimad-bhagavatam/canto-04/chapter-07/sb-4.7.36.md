@@ -1,0 +1,17 @@
+### SB 4.7.36
+
+yajamāny uvāca
+
+svāgataṁ te prasīdeśa tubhyaṁ namaḥ
+
+śrīnivāsa śriyā kāntayā trāhi naḥ
+
+tvām ṛte 'dhīśa nāṅgair makhaḥ śobhate
+
+*śīrṣa*-hīnaḥ ka-bandho yathā puruṣaḥ
+
+*yajamānī*—a esposa de Dakṣa; *uvāca*—orou; *su-āgatam*—auspicioso aparecimento; *te*—Teu; *prasīda*—fica satisfeito; *īśa*—meu querido Senhor; *tubhyam*—a Ti; *namaḥ*—respeitosas reverências; *śrīnivāsa*—ó morada da deusa da fortuna; *śriyā*—com Lakṣmī; *kāntayā*—Tua esposa; *trāhi*—protege; *naḥ*—a nós; *tvām*—Ti; *ṛte*—sem; *adhīśa*—ó controlador supremo; *na*—não; *aṅgaiḥ*—com os membros do corpo; *makhaḥ*—a arena sacrificial; *śobhate*—é belo; *śīrṣa-hīnaḥ*—sem cabeça; *ka-bandhaḥ*—possuidor apenas de um corpo; *yathā*—como; *puruṣaḥ*—uma pessoa.
+
+**A esposa de Dakṣa orou nestes termos: Meu querido Senhor, é muito venturoso que tenhas aparecido nesta arena de sacrifício. Ofereço-Te minhas respeitosas reverências e Te peço que fiques satisfeito nesta ocasião. A arena sacrificial não é bela sem Ti, assim como um corpo não é belo sem a cabeça.**
+
+Outro nome do Senhor Viṣṇu é Yajñeśvara. No Bhagavad-gītā, diz-se que todas as atividades devem ser executadas como Viṣṇu yajña, para o prazer do Senhor Viṣṇu. A menos que O satisfaçamos, tudo o que fizermos será a causa de nosso cativeiro no mundo material. Isso é confirmado aqui pela esposa de Dakṣa: "Sem Vossa presença, a grandiosidade desta cerimônia sacrificial é inútil, assim como um corpo sem cabeça, por mais decorado que esteja, é inútil." A comparação aplica-se igualmente ao corpo social. A civilização material orgulha-se muito de ser avançada, mas, na verdade, é o inútil tronco de um corpo sem cabeça. Sem a consciência de Kṛṣṇa, sem uma compreensão de Viṣṇu, a Suprema Personalidade de Deus, qualquer avanço numa civilização, por mais sofisticado que seja, não tem valor algum. Há uma afirmação no Śrīmad-Bhāgavatam: bhagavad-bhakti-hīnasya jātiḥ śāstraṁ japas tapaḥ aprāṇasyaiva dehasya maṇḍanaṁ loka-rañjanam. O significado é que, às vezes, quando um amigo ou parente morre, especialmente entre os homens de classe inferior, o corpo morto é decorado. Vestido e ornamentado, o corpo é levado em procissão. Esse tipo de decoração do corpo morto não tem valor real, porque a força vital já se foi. De modo semelhante, qualquer aristocracia, qualquer prestígio social ou qualquer avanço da civilização material sem a consciência de Kṛṣṇa equivale à decoração de um corpo morto. O nome da esposa de Dakṣa era Prasūti, e ela era filha de Svāyambhuva Manu. Sua irmã, Devahūti, casou-se com Kardama Muni, e Kapiladeva, a Personalidade de Deus, tornou-se seu filho. Prasūti, então, era a tia do Senhor Viṣṇu. Ela pedia o favor do Senhor Viṣṇu de modo afetuoso; visto que era Sua tia, buscava algum favor especial. Também é significativo neste verso que o Senhor é louvado juntamente com a deusa da fortuna. Onde quer que o Senhor Viṣṇu seja adorado, naturalmente há o favor da deusa da fortuna. O Senhor Viṣṇu é chamado de amṛta, transcendental. Os semideuses, inclusive Brahmā e o Senhor Śiva, foram produzidos depois da criação, mas o Senhor Viṣṇu existia antes da criação. Por isso, Ele é chamado de amṛta. O Senhor Viṣṇu é adorado com Sua energia interna pelos vaiṣṇavas. Prasūti, a esposa de Dakṣa, implorou ao Senhor que transformasse os sacerdotes em vaiṣṇavas, em vez de meros trabalhadores fruitivos executando sacrifícios para alguns benefícios materiais.

@@ -1,0 +1,15 @@
+### SB 3.20.37
+
+iti sāyantanīṁ sandhyām
+
+asurāḥ pramadāyatīm
+
+pralobhayantīṁ jagṛhur
+
+*matvā mūḍha*-dhiyaḥ striyam
+
+*iti*—deste modo; *sāyantanīm*—da noite; *sandhyām*—crepúsculo; *asurāḥ*—os demônios; *pramadāyatīm*—se comportando como uma mulher devassa; *pralobhayantīm*—sedutora; *jagṛhuḥ*—agarraram; *matvā*—pensando ser; *mūḍha*—dhiyaḥ–de inteligência nublada; *striyam*—uma mulher.
+
+**Os asuras, turvados em sua compreensão, tomaram o crepúsculo vespertino para ser uma bela mulher se mostrando em sua forma sedutora, e a agarraram.**
+
+Os asuras são descritos aqui como mūḍha-dhiyaḥ, significando que são cativados pela ignorância, tal como o asno. Os demônios foram cativados pela falsa beleza brilhante desta forma material, e deste modo a abraçaram.

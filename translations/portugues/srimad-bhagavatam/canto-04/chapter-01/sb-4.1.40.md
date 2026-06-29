@@ -1,0 +1,13 @@
+### SB 4.1.40
+
+ūrjāyāṁ jajñire putrā
+
+vasiṣṭhasya parantapa
+
+*citraketu*-pradhānās te
+
+sapta brahmarṣayo 'malāḥ
+
+*ūrjāyām*—em Ūrjā; *jajñire*—nasceram; *putrāḥ*—filhos; *vasiṣṭhasya*—do grande sábio Vasiṣṭha; *parantapa*—ó grande; *citraketu*—Citraketu; *pradhānāḥ*—encabeçados por; *te*—todos os filhos; *sapta*—sete; *brahma-ṛṣayaḥ*—grandes sábios com conhecimento espiritual; *amalāḥ*—sem contaminação.
+
+**O grande sábio Vasiṣṭha gerou em sua esposa Ūrjā, às vezes chamada Arundhatī, sete imaculados grandes sábios, encabeçados pelo sábio chamado Citraketu.**

@@ -1,0 +1,14 @@
+### SB 3.31.13
+
+> yas tv atra baddha iva karmabhir āvṛtātmā
+> bhūtendriyāśayamayīm avalambya māyām
+> āste viśuddham avikāram akhaṇḍa-bodham
+> ātapyamāna-hṛdaye 'vasitaṁ namāmi
+
+*yaḥ*—quien; *tu*—también; *atra*—aquí; *baddhaḥ*—atada; *iva*—como si; *karmabhiḥ*—por actividades; *āvṛta*—cubierta; *ātmā*—el alma pura; *bhūta*—los elementos densos; *indriya*—los sentidos; *āśaya*—la mente; *mayīm*—está compuesta de; *avalambya*—habiendo caído; *māyām*—en *māyā*; *āste*—permanece; *viśuddham*—completamente puro; *avikāram*—inmutable; *akhaṇḍa-bodham*—que posee conocimiento ilimitado; *ātapyamāna*—arrepentido; *hṛdaye*—en el corazón; *avasitam*—residir; *namāmi*—ofrezco mis reverencias respetuosas.
+
+**Yo, el alma pura, estoy ahora atada por mis actividades, y por disposición de māyā, me encuentro en el vientre de mi madre. Ofrezco mis reverencias respetuosas a aquel que, aunque está también aquí, conmigo, es inmutable e impasible. Él es ilimitado, pero un corazón arrepentido puede percibirlo. A Él Le ofrezco mis respetuosas reverencias.**
+
+Como se afirmó en el verso anterior, el alma *jīva* dice: «Yo me refugio en el Señor Supremo». Por lo tanto, el alma *jīva* es, por constitución, el servidor subordinado del Alma Suprema, la Personalidad de Dios. Como se confirma en los *Upaniṣads,* tanto el Alma Suprema como el alma *jīva* están en el mismo cuerpo. Son amigas, pero una está sufriendo, y la otra está aparte del sufrimiento.
+
+En este verso se dice *viśuddham avikāram akhaṇḍa-bodham:* La Superalma siempre está aparte de toda contaminación. La entidad viviente está contaminada y sufre porque tiene un cuerpo material, pero eso no significa que el Señor, por estar con ella, también tenga un cuerpo material. Él es *avikāram,* inmutable. Él es siempre el mismo Supremo, pero desgraciadamente, los filósofos *māyāvādīs,* debido a sus corazones impuros, no pueden entender que el Alma Suprema, la Superalma, es distinta del alma individual. Aquí se dice: *ātapyamāna-hṛdaye ’vasitam:* Él está en el corazón de todas las entidades vivientes, pero solo un alma arrepentida Le puede percibir. El alma individual se arrepiente de haber olvidado su posición constitucional, de haber querido ser una con el Alma Suprema y haber hecho todo lo posible por enseñorearse de la naturaleza material. Sus esfuerzos han sido en vano, y por ello, se siente arrepentido. En ese momento comprende a la Superalma, es decir, la relación entre la Superalma y el alma individual. Como se confirma en el *Bhagavad-gītā,* después de muchísimas vidas, el alma condicionada recibe el conocimiento de que Vāsudeva es grande, de que *Él* es el amo y de que *Él* es el Señor. El alma individual es el sirviente, y por lo tanto, se entrega a Él. En ese momento se convierte en *mahātmā,* una gran alma. En consecuencia, cuando una entidad viviente afortunada obtiene esa comprensión, incluso si se halla en el vientre de su madre, tiene la liberación asegurada.

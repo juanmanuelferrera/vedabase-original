@@ -1,0 +1,14 @@
+### Bg 2.16
+
+> nāsato vidyate bhāvo
+> nābhāvo vidyate sataḥ
+> ubhayor api dṛṣṭo'ntas
+> tv anayos tattva-darśibhiḥ
+
+*na*—nunca; *asataḥ*—de lo no existente; *vidyate*—hay; *bhāvaḥ*—duración; *na*—nunca; *abhāvaḥ*—cualidad cambiante; *vidyate*—hay; *sataḥ*—de lo eterno; *ubhayoḥ*—de los dos; *api*—en verdad; *dṛṣṭaḥ*—observado; *antaḥ*—conclusión; *tu*—pero; *anayoḥ*—de ellos; *tattva*—verdad; *darśibhiḥ*—por los videntes.
+
+**Los videntes de la verdad han concluido que no hay permanencia de lo inexistente, ni cese de lo existente. Ellos han concluido esto mediante el estudio de la naturaleza de ambos.**
+
+El cuerpo cambiante no perdura. La ciencia médica moderna admite que el cuerpo cambia a cada momento por las acciones y reacciones de las diferentes células; y de este modo ocurren el crecimiento y la vejez en el cuerpo. Pero el alma espiritual existe permanentemente y se mantiene igual a pesar de todos los cambios del cuerpo y de la mente. Ésa es la diferencia entre la materia y el espíritu. Por naturaleza, el cuerpo siempre está cambiando y el alma es eterna. Ésta conclusión la establecen toda clase de videntes de la verdad, tanto personalistas como impersonalistas. En el Viṣṇu Purāṇa se afirma que Viṣṇu y Sus moradas tienen todos existencia espiritual autoluminosa. «Jyotīṁṣi viṣṇur bhavanāni viṣṇuḥ». Las palabras existente e inexistente se refieren tan solo al espíritu y a la materia. Ésa es la versión de todos los videntes de la verdad. Éste es el principio de la instrucción del Señor a las entidades vivientes que están confundidas por la influencia de la ignorancia. Despejar la ignorancia implica el restablecimiento de la relación eterna entre el adorador y el adorado y la consiguiente comprensión de la diferencia entre las entidades vivientes, partes y porciones y la
+
+Suprema Personalidad de Dios. Uno puede entender la naturaleza del Supremo mediante el estudio completo de sí mismo y la diferencia entre uno mismo y el Supremo siendo entendida como la relación existente entre la parte y el todo. En los Vedānta-sūtras, así como en el Śrīmad-Bhāgavatam, se ha aceptado al Supremo como el origen de todas las emanaciones. Dichas emanaciones se experimentan mediante secuencias naturales superiores e inferiores. Las entidades vivientes pertenecen a la naturaleza superior, tal como se revelará en el Séptimo Capítulo. Aunque no existe diferencia alguna entre la energía y el energético, el energético se acepta como el Supremo y la energía o naturaleza se acepta como la subordinada. Así pues, las entidades vivientes están siempre subordinadas al Señor Supremo, como en el caso del amo y el sirviente, o el instructor y el instruido. Es imposible entender tan claro conocimiento bajo el hechizo de la ignorancia y para apartar dicha ignorancia, el Señor enseña el Bhagavad-gītā, a fin de iluminar a todas las entidades vivientes de todas las épocas.

@@ -1,0 +1,8 @@
+### CC Adi 17.142
+
+> uddhata loka bhāṅge kājīra ghara-puṣpavana
+> vistāri' varṇilā ihā dāsa-vṛndāvana
+
+*uddhata*—agitadas; *loka*—personas; *bhāṅge*—destrozan; *kājīra*—del Kazi; *ghara*—casa; *puṣpa-vana*—jardín de flores; *vistāri'*—detalladamente; *varṇilā*—describió; *ihā*—esto; *dāsa-vṛndāvana*—Śrīla Vṛndāvana dāsa Ṭhākura.
+
+**Naturalmente, algunas de las personas que estaban muy agitadas comenzaron a tomar represalias contra las acciones del Kazi destrozando su casa y su jardín de flores. Śrīla Vṛndāvana dāsa Ṭhākura ha descrito este suceso detalladamente.**

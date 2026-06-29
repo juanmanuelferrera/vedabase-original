@@ -1,0 +1,9 @@
+### CC Antya 6.313
+
+prāṇa-rakṣā lāgi' yebā karena bhakṣaṇa
+
+tāhā khāñā āpanāke kahe nirveda-vacana
+
+*prāṇa-rakṣā lāgi'*—para manter a vida; *yebā*—o que quer que; *karena bhakṣaṇa*—ele comia; *tāhā khāñā*—comendo aquilo; *āpanāke*—a si mesmo; *kahe*—dizia; *nirveda-vacana*—palavras de reprovação.
+
+**O que quer que comesse era apenas para manter o corpo e a alma juntos e, ao comer, ele se repreendia da seguinte maneira.**

@@ -1,0 +1,12 @@
+### SB 3.16.4
+
+> tad vaḥ prasādayāmy adya
+> brahma daivaṁ paraṁ hi me
+> tad dhīty ātma-kṛtaṁ manye
+> yat sva-pumbhir asat-kṛtāḥ
+
+*tat*—así pues; *vaḥ*—ustedes, sabios; *prasādayāmi*—trato de conseguir su perdón; *adya*—precisamente ahora; *brahma*—los *brāhmaṇas*; *daivam*—las personalidades más queridas; *param*—más elevadas; *hi*—porque; *me*—Mía; *tat*—esa ofensa; *hi*—porque; *iti*—así; *ātma-kṛtam*—hecha por Mí; *manye*—Yo considero; *yat*—lo cual; *sva-pumbhiḥ*—por Mis propios asistentes; *asat-kṛtāḥ*—habiéndoseles faltado al respeto.
+
+**Para Mí, el brāhmaṇa es la personalidad más elevada y más querida. La falta de respeto que Mis asistentes han mostrado, en realidad la he mostrado Yo personalmente, pues los porteros son Mis servidores. Tomo esto como una ofensa que Yo mismo he cometido; así pues, trato de conseguir su perdón por el incidente que se ha producido.**
+
+El Señor siempre quiere lo mejor para los *brāhmaṇas* y las vacas, y por eso se dice: *go-brāhmaṇa-hitāya ca.* Śrī Kṛṣṇa, Viṣṇu, la Suprema Personalidad de Dios, es también la Deidad adorable de los *brāhmaṇas.* En las Escrituras védicas, en los himnos *ṛg-mantra* del *Ṛg* *Veda,* se establece que aquellos que verdaderamente son *brāhmaṇas* siempre miran los pies de loto de Viṣṇu: *oṁ tad viṣṇoḥ paramaṁ padaṁ sadā paśyanti sūrayaḥ.* Aquellos que son *brāhmaṇas* cualificados adoran solo la forma de Viṣṇu de la Suprema Personalidad de Dios, lo cual significa Kṛṣṇa, Rāma y todas las expansiones Viṣṇu. Un supuesto *brāhmaṇa,* que nace en familia de *brāhmaṇas,* pero que lleva a cabo acciones que buscan el perjuicio de los *vaiṣṇavas,* no puede ser tenido por *brāhmaṇa,* porque *brāhmaṇa* quiere decir *vaiṣṇava,* y *vaiṣṇava* quiere decir *brāhmaṇa.* Quien se convierte en devoto del Señor es también un *brāhmaṇa.* La fórmula es: *brahma jānātīti brāhmaṇaḥ.* Es *brāhmaṇa* aquel que ha entendido el Brahman, y *vaiṣṇava* aquel que ha entendido a la Personalidad de Dios. Comprender el Brahman es el comienzo para comprender a la Personalidad de Dios. Una persona que entiende a la Personalidad de Dios conoce también el aspecto impersonal del Supremo, que es el Brahman. Por lo tanto, aquel que ha llegado a ser *vaiṣṇava* es ya un *brāhmaṇa.* Debe señalarse que las glorias del *brāhmaṇa* que en este capítulo describe el propio Señor se refieren a Su devoto-*brāhmaṇa,* al *vaiṣṇava.* A este respecto, nunca se debe malentender que se está haciendo mención de los supuestos *brāhmaṇas* que han nacido en familias *brāhmaṇas* pero que no tienen cualificaciones *brahmínicas.*

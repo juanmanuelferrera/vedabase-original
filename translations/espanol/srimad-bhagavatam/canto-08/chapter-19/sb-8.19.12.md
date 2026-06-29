@@ -1,0 +1,14 @@
+### SB 8.19.12
+
+> apaśyann iti hovāca
+> mayānviṣṭam idaṁ jagat
+> bhrātṛ-hā me gato nūnaṁ
+> yato nāvartate pumān
+
+*apaśyan*—sin verle; *iti*—de ese modo; *ha uvāca*—pronunció; *mayā*—por mí; *anviṣṭam*—ha sido buscado; *idam*—la totalidad; *jagat*—del universo; *bhrātṛ-hā*—el Señor Viṣṇu, que mató al hermano; *me*—mío; *gataḥ*—debe de haber ido; *nūnam*—en verdad; *yataḥ*—de donde; *na*—no; *āvartate*—regresa; *pumān*—una persona.
+
+**Cuando vio que no Le hallaba, Hiraṇyakaśipu dijo: «He recorrido todo el universo, pero no he podido encontrar a Viṣṇu, el que mató a mi hermano. Sin duda, habrá ido al lugar del que nadie regresa. [En otras palabras, debe de haber muerto]».**
+
+Por lo general, los ateos siguen la conclusión filosófica *bauddha* de que todo se termina con la muerte. Hiraṇyakaśipu, como ateo que era, pensaba de esa forma. Como no podía ver al Señor Viṣṇu, pensaba que el Señor estaba muerto. En la actualidad hay mucha gente que sigue la filosofía de que Dios ha muerto. Sin embargo, Dios nunca muere. Ni siquiera la entidad viviente, que es parte de Dios, muere nunca. El *Bhagavad-gītā* (2.20), dice: *na jāyate mriyate vā kadācit*: «Para el alma no existe el nacimiento ni la muerte». Si ni siquiera las entidades vivientes comunes nacen ni mueren nunca, ¿qué puede decirse de la Suprema Personalidad de Dios, que es la principal de todas las entidades vivientes? Ciertamente, Él nunca nace ni muere. *Ajo &#x27;pi sann avyayātmā* (*Bg*. 4.6). Tanto el Señor como la entidad viviente existen como personas innacientes e inagotables. Por lo tanto, la conclusión de Hiraṇyakaśipu de que Viṣṇu había muerto era errónea.
+
+Con las palabras *yato nāvartate pumān* se indica que existe un reino espiritual; la entidad viviente que llega a él, ya nunca regresa al mundo material. Esto se confirma también en el *Bhagavad-gītā* (4.9): *tyaktvā dehaṁ punar janma naiti mām eti so &#x27;rjuna*. Materialmente hablando, todas las entidades vivientes mueren. La muerte es inevitable. Sin embargo, mientras que los *karmīs*, *jñānīs* y *yogīs* tienen que regresar al mundo material después de morir, los *bhaktas* no. Por supuesto, el *bhakta*que no alcanza la perfección completa vuelve a nacer en el mundo material, solo que nace en una posición muy elevada, bien sea en una familia muy rica o en una familia de *brāhmaṇas* muy puros (*śucīnāṁ śrīmatāṁ gehe*), para, de esa forma, completar su cultivo de conciencia espiritual. Quienes llegan al final del proceso de conciencia de Kṛṣṇa y están libres de deseos materiales, van de regreso a la morada de la Suprema Personalidad de Dios (*yad gatvā na nivartante tad dhāma parama**ṁ mama*). Este verso expresa la misma idea: *yato nāvartate pumān*: Toda persona que va de regreso al hogar, de vuelta a Dios, ya no regresa al mundo material.

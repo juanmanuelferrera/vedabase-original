@@ -1,0 +1,5 @@
+### 11
+
+**En la estación lluviosa, cuando los ríos se hinchan y se precipitan hacia el océano, y mientras el viento agita las olas, el océano parece estar agitado. De forma similar, si una persona dedicada al proceso del *yoga* místico no se encuentra muy avanzada en la vida espiritual, puede verse afectada por las modalidades de la naturaleza y así será agitada por el impulso sexual.**
+
+Una persona fija en el conocimiento espiritual no se sentirá atraída por el atractivo de la naturaleza material en la forma de mujeres hermosas y el placer sexual disfrutado en su compañía. Sin embargo, quien es todavía inmaduro en el cultivo del conocimiento espiritual puede sentirse atraído en cualquier momento por la ilusión de la felicidad temporal, tal como el océano es agitado por los ríos impetuosos y el viento que sopla durante la estación lluviosa. Por ello es muy importante fijarse a los pies de loto de un maestro espiritual genuino que sea representante de Dios, para que uno no se deje arrastrar por la agitación sexual.

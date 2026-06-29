@@ -1,0 +1,8 @@
+### CC Adi 16.16
+
+> tāṅra icchā,--prabhu-saṅge navadvīpe vasi
+> prabhu ājñā dila,--tumi yāo vārāṇasī
+
+*tāṅra icchā*—su deseo; *prabhu-saṅge*—con el Señor; *navadvīpe*—en Navadvīpa; *vasi*—vivir allí; *prabhu ājñā dila*—pero el Señor le aconsejó; *tumi*—tú; *yāo*—ve; *vārāṇasī*—a Benarés.
+
+**Tapana Miśra deseaba vivir con el Señor en Navadvīpa, pero el Señor le pidió que fuese a Vārāṇasī [Benarés].**

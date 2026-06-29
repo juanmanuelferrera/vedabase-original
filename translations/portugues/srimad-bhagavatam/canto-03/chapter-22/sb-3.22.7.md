@@ -1,0 +1,22 @@
+### SB 3.22.7
+
+diṣṭyā tvayānuśiṣṭo 'haṁ
+kṛtaś cānugraho mahān
+apāvṛtaiḥ karṇa-randhraiḥ
+juṣṭā diṣṭyośatīr giraḥ
+
+### Sinônimos
+
+*diṣṭyā*—por sorte; *tvayā*—por vós; *anuśiṣṭa*—instruído; *aham*—eu; *kṛta*—bestowed; *ca*—e; *anugraha*—favor; *mahān*—grande; *apāvṛta*—abertos; *karṇa-randhraiḥ*—com os furos dos ouvidos; *juṣṭā*—recebidas; *diṣṭyā*—por sorte; *uśatī*—puras; *giraḥ*—palavras.
+
+**### Tradução**
+
+Tenho sido afortunadamente instruído por vós, e assim um grande favor me foi concedido. Agradeço a Deus que recebi com ouvidos abertos vossas palavras puras.
+
+### Significado
+
+Śrīla Rūpa Gosvāmī deu direções em seu *Bhakti-rasāmṛta-sindhu* sobre como aceitar um mestre espiritual genuíno e como lidar com ele. Primeiro, o candidato que deseja deve encontrar um mestre espiritual genuíno, e então deve receber com muita ânsia as instruções dele e executá-las. Isto é serviço recíproco. Um mestre espiritual genuíno ou pessoa santa sempre deseja elevar uma pessoa comum que vem a ele. Porque todos estão sob a ilusão de māyā e são esquecidos de seu dever primário, consciência de Kṛṣṇa, uma pessoa santa sempre deseja que todos se tornem pessoas santas. É função de uma pessoa santa invocar consciência de Kṛṣṇa em toda pessoa comum esquecida.
+
+Manu disse que, desde que foi aconselhado e instruído por Kardama Muni, estava muito favorecido. Considerava-se afortunado por receber a mensagem por recepção aural. É especialmente mencionado aqui que se deve ser muito inquisitivo ao ouvir com ouvidos abertos da fonte autorizada do mestre espiritual genuíno. Como se deve receber? Deve-se receber a mensagem transcendental por recepção aural. A palavra karṇa-randhraiḥ significa "através dos furos dos ouvidos." O favor do mestre espiritual não é recebido através de nenhuma outra parte do corpo, mas dos ouvidos. Isto não significa, porém, que o mestre espiritual dá um tipo particular de mantra através dos ouvidos em troca de alguns dólares e se a pessoa medita nisso alcança perfeição e torna-se Deus em seis meses. Tal recepção através dos ouvidos é falsa. O fato real é que um mestre espiritual genuíno conhece a natureza de uma pessoa particular e que tipo de deveres ela pode executar em consciência de Kṛṣṇa, e instrui-a desse jeito. Instrui-a através do ouvido, não particularmente, mas publicamente. "Você é apropriado para tal e tal trabalho em consciência de Kṛṣṇa. Você pode agir desta forma." Uma pessoa é aconselhada a agir em consciência de Kṛṣṇa trabalhando no quarto das Deidades, outra é aconselhada a agir em consciência de Kṛṣṇa realizando trabalho editorial, outra é aconselhada a fazer trabalho de pregação, e outra é aconselhada a executar consciência de Kṛṣṇa no departamento de cozinha. Há diferentes departamentos de atividade em consciência de Kṛṣṇa, e um mestre espiritual, conhecendo a habilidade particular de um homem particular, o treina de tal forma que por sua tendência em agir ele se torna perfeito. O Bhagavad-gītā deixa claro que se pode alcançar a mais alta perfeição da vida espiritual simplesmente oferecendo serviço de acordo com a sua capacidade, assim como Arjuna serviu Kṛṣṇa de acordo com sua capacidade na arte militar. Arjuna ofereceu seu serviço plenamente como militar, e se tornou perfeito. De modo semelhante, um artista pode alcançar perfeição simplesmente realizando trabalho artístico sob a direção do mestre espiritual. Se se é um homem literário, se pode escrever artigos e poesia para o serviço do Senhor sob a direção do mestre espiritual. Deve-se receber a mensagem do mestre espiritual concernente a como agir em sua capacidade, pois o mestre espiritual é expert em dar tais instruções.
+
+Esta combinação — a instrução do mestre espiritual e a execução fiel da instrução pelo discípulo — torna o processo inteiro perfeito. Śrīla Viśvanātha Cakravartī Ṭhākura descreve em sua explicação do verso no Bhagavad-gītā, vyavasāyātmikā buddhiḥ, que aquele que quer estar certo de alcançar sucesso espiritual deve tomar a instrução do mestre espiritual sobre qual é sua função particular. Deve tentar fielmente executar essa instrução particular e deve considerá-la sua vida e alma. A execução fiel da instrução que recebe do mestre espiritual é o único dever de um discípulo, e isto o trará perfeição. Deve-se ser muito cuidadoso para receber a mensagem do mestre espiritual através dos ouvidos e executá-la fielmente. Isto tornará a vida de alguém bem-sucedida.

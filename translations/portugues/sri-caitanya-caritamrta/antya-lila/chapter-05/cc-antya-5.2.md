@@ -1,0 +1,8 @@
+### CC Antya 5.2
+
+jaya jaya śacī-suta śrī-kṛṣṇa-caitanya
+jaya jaya kṛpā-maya nityānanda dhanya
+
+*jaya jaya*—todas as glórias; *śacī-suta*—ao filho de mãe Śacī; *śrī-kṛṣṇa-caitanya*—Śrī Caitanya Mahāprabhu; *jaya jaya*—todas as glórias; *kṛpā-maya*—ao mais misericordioso; *nityānanda dhanya*—o glorioso Śrīla Nityānanda Prabhu.
+
+**Todas as glórias a Śrī Caitanya Mahāprabhu, o filho de mãe Śacī! Todas as glórias a Śrī Nityānanda Prabhu! De fato, Ele é o mais glorioso e misericordioso.**

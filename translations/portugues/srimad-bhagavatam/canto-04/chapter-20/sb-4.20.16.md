@@ -1,0 +1,15 @@
+### SB 4.20.16
+
+varaṁ ca mat kañcana mānavendra
+
+*vṛṇīṣva te 'haṁ guṇa-śīla*-yantritaḥ
+
+nāhaṁ makhair vai sulabhas tapobhir
+
+*yogena vā yat sama*-citta-vartī
+
+*varam*—bênção; *ca*—também; *mat*—de Mim; *kañcana*—o que quer que desejes; *mānava-indra*—ó chefe dos seres humanos; *vṛṇīṣva*—por favor, pede; *te*—tuas; *aham*—Eu; *guṇa-śīla*—pelas elevadas qualidades e excelente comportamento; *yantritaḥ*—sendo cativado; *na*—não; *aham*—Eu; *makhaiḥ*—por sacrifícios; *vai*—certamente; *su-labhaḥ*—facilmente obtido; *tapobhiḥ*—por austeridades; *yogena*—por prática de yoga místico; *vā*—ou; *yat*—devido ao qual; *sama-citta*—naquele que é equilibrado; *vartī*—situado.
+
+**Meu querido rei, estou muito cativado por tuas qualidades elevadas e teu excelente comportamento, e, por isso, estou muitíssimo bem-disposto para contigo. Podes, portanto, pedir-Me qualquer bênção que desejes. Aquele que não possui qualidades e comportamento elevados não pode, de modo algum, conquistar Meu favor pela simples realização de sacrifícios, severas austeridades ou yoga místico. Eu sempre permaneço equânime no coração de quem também é equânime em todas as circunstâncias.**
+
+O Senhor Viṣṇu ficou muito satisfeito com o bom caráter e o comportamento de Mahārāja Pṛthu e ofereceu-lhe uma bênção. O Senhor diz abertamente que realizar grandes sacrifícios ou submeter-se às austeridades da prática do yoga místico não pode satisfazê-lO. Ele só fica satisfeito com o caráter e o comportamento elevados. Mas estes não podem desenvolver-se a menos que a pessoa se torne um devoto puro do Senhor. Todo aquele que desenvolveu serviço devocional imaculado e inabalável ao Senhor desenvolve suas boas qualidades originais como alma espiritual. A alma espiritual, como parte integrante da Suprema Personalidade de Deus, possui todas as boas qualidades do Senhor. Quando a alma espiritual é contaminada pelos modos materiais da natureza, considera-se a pessoa boa ou má com referência às qualidades materiais. Mas, quando alguém é transcendental a todas as qualidades materiais, todas as boas qualidades vêm à tona. Essas qualidades de um devoto, em número de vinte e seis, são enumeradas como se segue: (1) é bondoso com todos; (2) não disputa com ninguém; (3) é fixo na Verdade Absoluta; (4) é equânime para com todos; (5) é impecável; (6) é caridoso; (7) é brando; (8) é limpo; (9) é simples; (10) é benevolente; (11) é pacífico; (12) está completamente apegado a Kṛṣṇa; (13) não tem anseios materiais; (14) é manso; (15) é estável; (16) é autocontrolado; (17) não come mais do que o necessário; (18) é sensato; (19) é respeitoso; (20) é humilde; (21) é grave; (22) é compassivo; (23) é amigável; (24) é poético; (25) é perito; (26) é silencioso. O Senhor fica satisfeito com o desenvolvimento das qualidades transcendentais da entidade viva, e não com a realização artificial de sacrifícios e de yoga místico. Em outras palavras, a menos que a pessoa esteja plenamente qualificada para se tornar um devoto puro do Senhor, não pode esperar libertar-se do enredamento material.

@@ -1,0 +1,15 @@
+### SB 3.16.2
+
+> śrī-bhagavān uvāca
+> etau tau pārṣadau mahyaṁ
+> jayo vijaya eva ca
+> kadarthī-kṛtya māṁ yad vo
+> bahv akrātām atikramam
+
+*śrī-bhagavān uvāca*—la Suprema Personalidad de Dios dijo; *etau*—estos dos; *tau*—ellos; *pārṣadau*—asistentes; *mahyam*—Míos; *jayaḥ*—llamado Jaya; *vijayaḥ*—llamado Vijaya; *eva*—ciertamente; *ca*—y; *kadarthī-kṛtya*—por no tener en consideración; *mām*—a Mí; *yat*—los cuales; *vaḥ*—contra ustedes *bahu*—gran; *akrātām*—han cometido; *atikramam*—ofensa.
+
+**La Personalidad de Dios dijo: Estos asistentes Míos, Jaya y Vijaya, han cometido una gran ofensa contra ustedes por no haberme tenido en consideración.**
+
+Cometer una ofensa a los pies de un devoto del Señor es una gran equivocación. Una entidad viviente, una vez promovida a Vaikuṇṭha, tiene todavía la posibilidad de acaso cometer ofensas, pero la diferencia está en que, cuando se reside en un planeta Vaikuṇṭha, incluso si por azar se comete una ofensa, el Señor da Su protección. Este es el hecho digno de destacar en los tratos entre el Señor y el servidor, como se ve en el incidente que comentamos acerca de Jaya y Vijaya. La palabra *atikramam* que aquí se usa señala que, cuando se ofende a un devoto, se desatiende también al propio Señor Supremo.
+
+Por equivocación los porteros detuvieron la entrada de los sabios a Vaikuṇṭhaloka, pero, como estaban ocupados en el servicio trascendental del Señor, ningún devoto avanzado hubiera supuesto que les aniquilarían. La presencia del Señor en el lugar complació mucho los corazones de los devotos. El Señor entendió que el problema se debía a que los sabios no habían visto Sus pies de loto, y por ello quiso complacerles yendo allí personalmente. El Señor es tan misericordioso que si hay algún impedimento ante el devoto, Él en persona dispone las cosas de tal manera que el devoto no se vea privado de tener una audiencia a Sus pies de loto. En la vida de Haridāsa Ṭhākura hay un ejemplo muy bueno: Cuando Caitanya Mahāprabhu vivía en Jagannātha Purī, Haridāsa Ṭhākura, que era musulmán por nacimiento, estaba con Él. En los templos hindúes, en aquellos días especialmente, no se permitía entrar a nadie más que a los hindúes. Aunque Haridāsa Ṭhākura en comportamiento era el mejor de los hindúes, se tenía a sí mismo por musulmán, y no entraba al templo. Śrī Caitanya pudo comprender su humildad, y como él no iba a ver el templo, el propio Śrī Caitanya, no diferente de Jagannātha, solía ir diariamente a visitar a Haridāsa. También encontramos este mismo comportamiento del Señor en esta parte del *Śrīmad-Bhāgavatam.* Negaron a Sus devotos el ver Sus pies de loto, pero el Señor en persona fue a verlos andando sobre precisamente aquellos pies que eran su aspiración. También es significativo que fuese acompañado por la diosa de la fortuna. La diosa de la fortuna no es objeto para la visión de las personas comunes, pero el Señor fue tan bondadoso que, aunque los devotos no aspiraban a tal honor, Él Se presentó ante ellos con la diosa de la fortuna.

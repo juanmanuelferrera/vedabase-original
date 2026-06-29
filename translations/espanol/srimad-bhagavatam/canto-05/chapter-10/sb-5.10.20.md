@@ -1,0 +1,12 @@
+### SB 5.10.20
+
+> sa vai bhavāḹ loka-nirīkṣaṇārtham
+> avyakta-liṅgo vicaraty api svit
+> yogeśvarāṇāṁ gatim andha-buddhiḥ
+> kathaṁ vicakṣīta gṛhānubandhaḥ
+
+*saḥ*—esa Suprema Personalidad de Dios, o Su encarnación, Kapiladeva; *vai*—en verdad; *bhavān*—Tu Gracia; *loka-nirīkṣaṇa-artham*—simplemente para estudiar las costumbres de la gente del mundo; *avyakta-liṅgaḥ*—sin manifestar tu verdadera identidad; *vicarati*—viajas por el mundo; *api svit*—si; *yoga-īśvarāṇām*—de todos los *yogīs* avanzados; *gatim*—las características o el verdadero comportamiento; *andha-buddhiḥ*—que están bajo la influencia de la ilusión y son ciegos en cuanto a conocimiento espiritual; *katham*—cómo; *vicakṣīta*—puedo saber; *gṛha-anubandhaḥ*—yo, que estoy atado por el apego a la vida familiar, la vida mundana.
+
+**¿No es cierto que tú eres el representante directo de Kapiladeva, la encarnación de la Suprema Personalidad de Dios? Has aparentado ser un sordomudo para examinar a la gente y ver quién realmente es un ser humano y quién no lo es. ¿No es esa tu actividad sobre la superficie de la Tierra? Yo estoy muy apegado a la vida familiar y a las actividades mundanas, y soy ciego en cuanto a conocimiento espiritual. Aun así, ahora me encuentro ante ti con el deseo de que me ilumines. ¿Cómo puedo avanzar en la vida espiritual?**
+
+Mahārāja Rahūgaṇa estaba haciendo el papel de rey, pero Jaḍa Bharata le había informado de que no era rey, y de que él, Jaḍa Bharata, no era un sordomudo. Esas identificaciones no eran más que cubiertas del alma espiritual. Todo el mundo debe adquirir ese conocimiento. Como se confirma en el *Bhagavad-gītā* (2.13): *dehino ’smin yathā dehe.* Todos estamos encerrados en el cuerpo, y como el cuerpo jamás es lo mismo que el alma, las actividades del cuerpo son ilusorias. Al relacionarse con un *sādhu* de la talla de Jaḍa Bharata, Mahārāja Rahūgaṇa cobró conciencia de que sus actividades como autoridad monárquica eran simples fenómenos ilusorios. Por eso consintió en que Jaḍa Bharata le impartiese conocimiento; ese fue el comienzo de su perfección. *Tad-vijñānārthaṁ sa gurum evābhigacchet.* Una persona como Mahārāja Rahūgaṇa, con un profundo deseo de conocer el valor de la vida y la ciencia espiritual, debe acudir a una personalidad como Jaḍa Bharata. *Tasmād guruṁ prapadyeta jijñāsuḥ śreya uttamam* (*Bhāg.* 11.3.21). Debemos acudir a un *guru* como Jaḍa Bharata, un representante de la Suprema Personalidad de Dios, y preguntarle acerca del objetivo de la vida humana.

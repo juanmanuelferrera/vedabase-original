@@ -1,0 +1,14 @@
+### SB 1.2.18
+
+> naṣṭa-prāyeṣv abhadreṣu
+> nityaṁ bhāgavata-sevayā
+> bhagavaty uttama-śloke
+> bhaktir bhavati naiṣṭhikī
+
+*naṣṭa*—destruido; *prāyeṣu*—prácticamente a la nada; *abhadreṣu*—todo lo que no es auspicioso; *nityam*—regularmente; *bhāgavata*—el *Śrīmad-Bhāgavatam*, o el devoto puro; *sevayā*—por prestar servicio; *bhagavati*—a la Personalidad de Dios; *uttama*—trascendental; *śloke*—oraciones; *bhaktiḥ*—servicio amoroso; *bhavati*—llega a existir; *naiṣṭhikī*—irrevocable.
+
+**Al oír el Bhāgavatam con regularidad y prestar servicio al devoto puro, todo lo que perturba el corazón queda prácticamente destruido, y el servicio amoroso al glorioso Señor, que es alabado con cantos trascendentales, se establece como un hecho irrevocable.**
+
+He aquí el remedio para eliminar todas las cosas desfavorables que hay dentro del corazón, las cuales se consideran obstáculos en el sendero de la autorrealización. El remedio es la asociación con los Bhāgavatas. Hay dos clases de Bhāgavatas, a saber, el libro Bhāgavata y el devoto Bhāgavata. Ambos Bhāgavatas son remedios eficaces, y ambos, o cualquiera de ellos, pueden ser suficientes para eliminar los obstáculos. Un devoto Bhāgavata es tan bueno como el libro Bhāgavata, porque el devoto Bhāgavata lleva su vida conforme al libro Bhāgavata, y el libro Bhāgavata está lleno de información acerca de la Personalidad de Dios y Sus devotos puros, que también son Bhāgavatas. El libro Bhāgavata y la persona Bhāgavata son idénticos.
+
+El devoto Bhāgavata es un representante directo del Bhagavān, la Personalidad de Dios. Así pues, al complacer al devoto Bhāgavata uno puede recibir el beneficio del libro Bhāgavata. La razón humana no alcanza a comprender cómo, sirviendo al devoto Bhāgavata o al libro Bhāgavata, uno obtiene una promoción gradual en el sendero de la devoción. Pero, en realidad, estos son hechos explicados por Śrīla Nāradadeva, quien en su vida anterior resultó ser el hijo de una sirvienta. La sirvienta estaba ocupada en el humilde servicio de los sabios, y de ese modo él también entró en contacto con ellos. Y simplemente por asociarse con ellos y aceptar los remanentes de alimento dejados por los sabios, el hijo de la sirvienta obtuvo la oportunidad de convertirse en el gran devoto y la gran personalidad Śrīla Nāradadeva. Estos son los milagrosos efectos de la asociación con los Bhāgavatas. Y para comprender estos efectos en la práctica, debe notarse que, mediante esa sincera asociación con los Bhāgavatas, uno tiene la seguridad de recibir el conocimiento trascendental con mucha facilidad, y el resultado es que queda fijo en el servicio devocional del Señor. Cuanto más progresa uno en el servicio devocional bajo la guía de los Bhāgavatas, más se fija en el trascendental servicio amoroso del Señor. Por lo tanto, los mensajes del libro Bhāgavata han de recibirse del devoto Bhāgavata, y la combinación de estos dos Bhāgavatas ayudará al devoto neófito a progresar más y más.

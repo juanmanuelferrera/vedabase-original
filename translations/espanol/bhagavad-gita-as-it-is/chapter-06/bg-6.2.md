@@ -1,0 +1,12 @@
+### Bg 6.2
+
+> yaṁ sannyāsam iti prāhur
+> yogaṁ taṁ viddhi pāṇḍava
+> na hy asannyasta-saṅkalpo
+> yogī bhavati kaścana
+
+*yam*—que; *sannyāsam*—renunciación; *iti*—así; *prāhuḥ*—dicen; *yogam*—vinculándose con el Supremo; *tam*—eso; *viddhi*—has de saber; *pāṇḍava*—¡oh, hijo de Pāṇḍu!; *na*—nunca; *hi*—ciertamente; *asannyasta*—sin abandonar; *saṅkalpaḥ*—satisfacción personal; *yogī*—un trascendentalista místico; *bhavati*—se vuelve; *kaścana*—cualquiera.
+
+**Lo que es llamado renunciación es lo mismo que el yoga, o sea vincularse con el Supremo, ya que nadie puede volverse un yogī, a menos que renuncie al deseo de gratificación de los sentidos.**
+
+El verdadero sannyāsa-yoga, o bhakti, significa que uno debe conocer su posición constitucional como entidad viviente y actuar de acuerdo a ello. La entidad viviente no tiene identidad separada independiente. Ella es la energía marginal del Supremo. Cuando está atrapada por la energía material, está condicionada y cuando es consciente de Kṛṣṇa o consciente de la energía espiritual, entonces se encuentra situada en su estado de vida natural y verdadero. Por lo tanto, cuando uno está situado en el conocimiento completo, cesa toda la gratificación material de los sentidos, es decir, renuncia a toda clase de actividades para la gratificación de los sentidos. Esto lo practican los yogīs que restringen los sentidos del apego material. Pero una persona en conciencia de Kṛṣṇa no tiene oportunidad de ocupar sus sentidos en nada que no sea para el propósito de Kṛṣṇa. Por lo tanto, una persona consciente de Kṛṣṇa es un sannyāsī y un yogī simultáneamente. El propósito del conocimiento y de la restricción de los sentidos, tal como se prescribe en los procesos de jñāna y de yoga, se cumple de forma automática en la conciencia de Kṛṣṇa. Si uno es incapaz de abandonar las actividades de su naturaleza egoísta, entonces el yajña y el yoga no sirven de nada. Para una entidad viviente el verdadero objetivo es abandonar toda satisfacción egoísta y prepararse para satisfacer al Supremo. Una persona consciente de Kṛṣṇa no tiene deseo de ningún tipo de disfrute personal. Siempre está ocupada en hacer disfrutar al Supremo. Aquel que no tiene información sobre el Supremo tendrá que ocuparse en la satisfacción personal porque nadie puede mantenerse en la plataforma de la inactividad. Todos estos propósitos se cumplen perfectamente mediante la práctica de la conciencia de Kṛṣṇa.

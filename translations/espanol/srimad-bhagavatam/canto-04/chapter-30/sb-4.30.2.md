@@ -1,0 +1,14 @@
+### SB 4.30.2
+
+> kiṁ bārhaspatyeha paratra vātha
+> kaivalya-nātha-priya-pārśva-vartinaḥ
+> āsādya devaṁ giriśaṁ yadṛcchayā
+> prāpuḥ paraṁ nūnam atha pracetasaḥ
+
+*kim*—qué; *bārhaspatya*—¡oh, discípulo de Bṛhaspati!; *iha*—aquí; *paratra*—en otros planetas; *vā*—o; *atha*—como tal; *kaivalya-nātha*—al que otorga la liberación; *priya*—querido; *pārśva-vartinaḥ*—en relación con; *āsādya*—después de su encuentro; *devam*—el gran semidiós; *giri-śam*—el Señor de la montaña Kailāsa; *yadṛcchayā*—por la providencia; *prāpuḥ*—alcanzaron; *param*—al Supremo; *nūnam*—ciertamente; *atha*—por lo tanto; *pracetasaḥ*—los hijos de Barhiṣat.
+
+**Mi querido Bārhaspatya, ¿qué obtuvieron los Pracetās, los hijos del rey Barhiṣat, después de su encuentro con el Señor Śiva, quien es muy querido a la Suprema Personalidad de Dios, el que otorga la liberación? Sin duda, se elevaron al mundo espiritual, pero, aparte de eso, ¿qué obtuvieron en el mundo material, bien sea en esa o en otras vidas?**
+
+Todos los tipos de felicidad material se obtienen en esta vida o en la siguiente, en este planeta o en otro. La entidad viviente vaga dentro del universo material pasando por muchas especies de vida y por muchos sistemas planetarios. La felicidad y la aflicción que se obtienen durante esta vida se denominan *iha,* y la felicidad y la aflicción que se obtienen en la siguiente vida son *paratra.*
+
+El Señor Mahādeva (Śiva) es uno de los grandes semidioses del mundo material. Por lo general, las bendiciones que otorga a la gente común se manifiestan en forma de felicidad material. Durgā, la deidad regente del mundo material, está bajo el control del Señor Mahādeva, Giriśa. Por esa razón, el Señor Mahādeva puede ofrecer a todo el mundo cualquier forma de felicidad material posible. Por lo general, la gente prefiere la devoción por el Señor Giriśa, a fin de obtener felicidad material; sin embargo, el encuentro de los Pracetās con el Señor Mahādeva había sido una disposición de la providencia. El Señor Mahādeva les dio la instrucción de que adorasen a la Suprema Personalidad de Dios, y él en persona ofreció una oración. Como se afirma en el verso anterior *(rudra-gītena),* con el simple hecho de cantar las oraciones del Señor Śiva a Viṣṇu, los Pracetās se elevaron hasta el mundo espiritual. A veces los devotos desean disfrutar también de felicidad material; por consiguiente, por disposición de la Suprema Personalidad de Dios, reciben la oportunidad de disfrutar del mundo material antes de su entrada definitiva en el mundo espiritual. El devoto a veces se eleva hasta un planeta celestial (Janaloka, Maharloka, Tapoloka, Siddhaloka, etc.). Sin embargo, el devoto puro nunca aspira a ningún tipo de felicidad material. Por consiguiente, se eleva directamente a Vaikuṇṭhaloka, que en este verso se califica con la palabra *param.* En el verso, Vidura pregunta a Maitreya, el discípulo de Bṛhaspati, acerca de los logros que alcanzaron los Pracetās.

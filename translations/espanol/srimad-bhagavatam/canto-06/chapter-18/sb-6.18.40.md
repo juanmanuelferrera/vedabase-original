@@ -1,0 +1,12 @@
+### SB 6.18.40
+
+> ko 'tikramo 'nuvartantyāḥ
+> svabhāvam iha yoṣitaḥ
+> dhiṅ māṁ batābudhaṁ svārthe
+> yad ahaṁ tv ajitendriyaḥ
+
+*kaḥ*—qué; *atikramaḥ*—ofensa; *anuvartantyāḥ*—seguir; *sva-bhāvam*—su naturaleza; *iha*—aquí; *yoṣitaḥ*—de la mujer; *dhik*—condenación; *mām*—a mí; *bata*—¡ay!; *abudham*—no versado; *sva-arthe*—en lo que es bueno para mí; *yat*—debido a; *aham*—yo; *tu*—en verdad; *ajita-indriyaḥ*—incapaz de controlar mis sentidos.
+
+**Esta mujer, mi esposa, se ha valido de los medios que su naturaleza le dicta, y no se la puede criticar por ello. Pero yo soy un hombre. ¡Condenado sea! Ignoro por completo lo que me conviene, pues no he sabido controlar mis sentidos.**
+
+El instinto natural de la mujer es disfrutar del mundo material. Ella induce a su esposo a disfrutar de este mundo satisfaciendo su lengua, su estómago y sus genitales, que reciben los nombres de *jihvā*, *udara* y *upastha*. La mujer es experta en cocinar platos deliciosos, de modo que tiene gran facilidad para satisfacer a su esposo con el alimento. Después de una buena comida, el estómago se siente satisfecho, y, con la satisfacción del estómago, aumenta el vigor de los genitales. Esa inclinación por la vida sexual se da especialmente en el caso del hombre acostumbrado a la carne, el vino y otros hábitos influenciados por la pasión. Hay que entender que esas inclinaciones sexuales no llevan al progreso espiritual, sino que nos arrastran hacia el infierno. Así, Kaśyapa Muni, al meditar en su situación, se lamentaba. En otras palabras, formar una familia es algo muy arriesgado, a no ser que se haya recibido la formación necesaria y que la esposa siga fielmente al marido. Este debe ser educado desde el mismo comienzo de la vida: *kaumāra ācaret prājño dharmān bhāgavatān iha* (*Bhāg.* 7.6.1). Durante el período de *brahmacarya*, la vida de estudiante, se debe educar al *brahmacārī* para que se vuelva experto en el *bhāgavata-dharma*, es decir, en el servicio devocional. Si luego, cuando se casa, tiene una esposa fiel que le sigue en ese modo de vida, la relación matrimonial es muy deseable. Sin embargo, una relación matrimonial sin conciencia espiritual y sin otro objeto que la complacencia de los sentidos, no es nada buena. En el *Śrīmad-Bhāgavatam* (12.2.3), se dice que, sobre todo en la era actual, Kali-yuga, la relación entre marido y mujer se basará en la potencia sexual (*dām-patye* *&#x27;bhirucir hetuḥ*). Por lo tanto, en Kali-yuga la vida familiar es muy peligrosa, a no ser que ambos cónyuges sigan el proceso de conciencia de Kṛṣṇa.

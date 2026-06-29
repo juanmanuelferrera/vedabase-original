@@ -1,0 +1,17 @@
+### SB 4.16.2
+
+nālaṁ vayaṁ te mahimānuvarṇane
+
+*yo deva*-varyo 'vatatāra māyayā
+
+*venāṅga*-jātasya ca pauruṣāṇi te
+
+*vācas*-patīnām api babhramur dhiyaḥ
+
+*na alam*—incapazes; *vayam*—nós; *te*—tuas; *mahima*—glórias; *anuvarṇane*—em descrever; *yaḥ*—tu que; *deva*—a Personalidade de Deus; *varyaḥ*—o supremo; *avatatāra*—desceu; *māyayā*—por Suas potências internas ou misericórdia imotivada; *vena-aṅga*—do corpo do rei Vena; *jātasya*—que apareceu; *ca*—e; *pauruṣāṇi*—atividades gloriosas; *te*—tuas; *vācaḥ-patīnām*—de grandes oradores; *api*—embora; *babhramuḥ*—ficaram desconcertadas; *dhiyaḥ*—as mentes.
+
+**Os recitadores prosseguiram: Querido rei, és uma encarnação direta da Suprema Personalidade de Deus, o Senhor Viṣṇu, e, por Sua misericórdia imotivada, desceste a esta terra. Por isso, não nos é possível glorificar verdadeiramente as tuas sublimes atividades. Embora tenhas aparecido pelo corpo do rei Vena, mesmo grandes oradores e expositores como o Senhor Brahmā e outros semideuses não conseguem descrever com exatidão as gloriosas atividades de Vossa Majestade.**
+
+Neste verso, a palavra māyayā significa "por vossa misericórdia imotivada". Os filósofos māyāvādīs explicam a palavra māyā como significando "ilusão" ou "falsidade". Contudo, há outro significado de māyā, a saber, "misericórdia imotivada". Existem duas espécies de māyā: yogamāyā e mahāmāyā. Mahāmāyā é uma expansão de yogamāyā, e ambas essas māyās são diferentes expressões das potências internas do Senhor. Como se afirma no Bhagavad-gītā, o Senhor aparece através de Suas potências internas (ātma-māyayā). Devemos, portanto, rejeitar a explicação māyāvāda de que o Senhor aparece num corpo dado pela potência externa, a energia material. O Senhor e Sua encarnação são plenamente independentes e podem aparecer em qualquer lugar e em toda parte em virtude da potência interna. Embora nascido do suposto cadáver do rei Vena, o rei Pṛthu ainda assim era uma encarnação da Suprema Personalidade de Deus mediante a potência interna do Senhor. O Senhor pode aparecer em qualquer família. Às vezes, Ele aparece como encarnação peixe (matsya-avatāra), ou como encarnação javali (varāha-avatāra). Assim, o Senhor é completamente livre e independente para aparecer em qualquer lugar e em toda parte mediante Sua potência interna. Afirma-se que Ananta, uma encarnação do Senhor que possui ilimitadas bocas, não consegue alcançar o fim de sua glorificação do Senhor, embora Ananta venha descrevendo o Senhor desde tempos imemoriais. Então, o que dizer de semideuses como o Senhor Brahmā, o Senhor Śiva e outros? Diz-se que o Senhor é śiva-viriñci-nutam, sempre adorado por semideuses como o Senhor Śiva e o Senhor Brahmā. Se os semideuses não encontram linguagem adequada para expressar as glórias do Senhor, então o que dizer dos demais? Por conseguinte, recitadores como o sūta e o māgadha sentiram-se inadequados para falar a respeito do rei Pṛthu.
+
+Ao glorificar o Senhor com versos exaltados, a pessoa purifica-se. Embora sejamos incapazes de oferecer preces ao Senhor de maneira adequada, nosso dever é fazer a tentativa a fim de nos purificarmos. Não devemos cessar nossa glorificação só porque semideuses como o Senhor Brahmā e o Senhor Śiva não conseguem glorificar o Senhor adequadamente. Pelo contrário, como afirma Prahlāda Mahārāja, todos devem glorificar o Senhor conforme sua própria capacidade. Se formos devotos sérios e sinceros, o Senhor nos dará a inteligência para oferecer preces de maneira apropriada.

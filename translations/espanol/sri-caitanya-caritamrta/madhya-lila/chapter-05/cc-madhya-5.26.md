@@ -1,0 +1,8 @@
+### CC Madhya 5.26
+
+> choṭa-vipra bale,--"tomāra strī-putra saba
+> bahu jñāti-goṣṭhī tomāra bahuta bāndhava
+
+*choṭa-vipra*—el brāhmaṇa joven; *bale*—dice; *tomāra*—tu; *strī-putra*—esposa e hijos; *saba*—todos; *bahu*—muchos; *jñāti*—de familiares; *goṣṭhī*—grupo; *tomāra*—tus; *bahuta*—muchos; *bāndhava*—amigos.
+
+**El *brāhmaṇa* joven dijo: «Usted tiene esposa e hijos, y tiene un gran círculo de familiares y amigos.**

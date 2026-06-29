@@ -213,6 +213,50 @@ database, and so are not here.
 
 ---
 
+## Translations
+
+`translations/` holds the books in four languages — Spanish (`espanol/`), Hindi (`hindi/`),
+Portuguese (`portugues/`), Russian (`russian/`) — plus English (`english/`), in the same book
+folders as the originals above.
+
+Each language carries two things per book:
+
+- **Canonical data** — one `<book>_<lang>.jsonl` per book (e.g. `espanol/bhagavad-gita-as-it-is/bg_es.jsonl`).
+  Each line is one verse with the full schema: `ref`, `book`, `lang`, `url`, `verse_text`,
+  `devanagari`, `synonyms`, `translation`, `purport`.
+- **Generated Markdown** — one file per verse/chapter, mirroring the English layout exactly
+  (same paths, same `### Bg 1.1` headings). The Devanāgarī is kept in the jsonl but **omitted
+  from the Markdown**, matching the English verse files, which carry only the IAST `>` blockquote.
+
+### Source of truth runs the other way from English
+
+For English, the Markdown is canonical and is mirrored *into* the database. For the translations
+it is the reverse: **the jsonl is canonical**, and the database (and the live site) is regenerated
+*from* it — never the other way. The Markdown is a generated view rendered from the jsonl.
+
+```
+jsonl (canonical)  ──render──►  Markdown (read-only view)
+        │
+        └──sync──►  D1 / vedabase.cc
+```
+
+This means:
+
+- **Fixing a translation:** edit the `.jsonl` (or fix it in D1 and re-export), then regenerate.
+  Never hand-edit a generated `.md` — `scripts/build_translations.py` will overwrite it.
+- The English Devanāgarī in `english/*.jsonl` is the one field sourced from D1 (the repo Markdown
+  has none); it is verified to contain Indic script only.
+- Synonyms and translations are normalized to the English convention — each synonym term is
+  italicized (`*term*—gloss`) and each verse translation is bold (`**…**`).
+
+### Scripts
+
+- `scripts/build_translations.py` — regenerate the jsonl and Markdown for all languages.
+- `scripts/check_translations_drift.py` — verify every generated `.md` still equals
+  `render(its jsonl)`; fails on any hand-edit, stale, or orphan file.
+
+---
+
 ## Independent verification
 
 The original scanned PDFs are available so anyone can check the text against the paper:

@@ -1,0 +1,10 @@
+### SB 6.4.20
+
+> tam abṛṁhitam ālokya
+> prajā-sargaṁ prajāpatiḥ
+> vindhya-pādān upavrajya
+> so 'carad duṣkaraṁ tapaḥ
+
+*tam*—eso; *abṛṁhitam*—no aumentar; *ālokya*—viendo; *prajā-sargam*—la creación de las entidades vivientes; *prajāpatiḥ*—Dakṣa, el progenitor de entidades vivientes; *vindhya-pādān*—las montañas próximas a la cordillera Vindhya; *upavrajya*—yendo a; *saḥ*—él; *acarat*—ejecutó; *duṣkaram*—muy difíciles; *tapaḥ*—austeridades.
+
+**Sin embargo, cuando vio que no estaba generando debidamente todas las especies de entidades vivientes, Prajāpati Dakṣa se retiró a una montaña próxima a la cordillera Vindhya, y allí ejecutó austeridades sumamente difíciles.**

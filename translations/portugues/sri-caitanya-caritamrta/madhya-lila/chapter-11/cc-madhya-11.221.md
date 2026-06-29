@@ -1,0 +1,8 @@
+### CC Madhya 11.221
+
+āge-pāche gāna kare cāri sampradāya
+āchāḍera kāle dhare nityānanda rāya
+
+*āge-pāche*—à frente e atrás; *gāna*—cantando; *kare*—fazem; *cāri*—quatro; *sampradāya*—grupos; *āchāḍera*—de cair; *kāle*—no momento; *dhare*—segura; *nityānanda rāya*—o Senhor Śrī Nityānanda Prabhu.
+
+**Enquanto se realizava a circum-ambulação, os quatro grupos de kīrtana cantavam à frente e atrás. Quando Śrī Caitanya Mahāprabhu caía ao solo, Śrī Nityānanda Rāya Prabhu O erguia.**

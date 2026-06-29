@@ -1,0 +1,9 @@
+### CC Madhya 15.33
+
+hanumān-āveśe prabhu vṛkṣa-śākhā lañā
+
+laṅkā-gaḍe caḍi' phele gaḍa bhāṅgiyā
+
+*hanumān-āveśe*—na emoção de ser Hanumān; *prabhu*—Śrī Caitanya Mahāprabhu; *vṛkṣa-śākhā lañā*—tomando um grande galho de árvore; *laṅkā-gaḍe*—no forte de Laṅkā; *caḍi'*—subindo; *phele*—derruba; *gaḍa*—o forte; *bhāṅgiyā*—desmantelando.
+
+**Manifestando as emoções de Hanumān, Śrī Caitanya Mahāprabhu pegou um grande galho de árvore e, subindo nos muros do forte de Laṅkā, começou a desmantelá-lo.**

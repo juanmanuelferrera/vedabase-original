@@ -1,0 +1,10 @@
+### SB 4.1.7
+
+> toṣaḥ pratoṣaḥ santoṣo
+> bhadraḥ śāntir iḍaspatiḥ
+> idhmaḥ kavir vibhuḥ svahnaḥ
+> sudevo rocano dvi-ṣaṭ
+
+*toṣaḥ*—Toṣa; *pratoṣaḥ*—Pratoṣa; *santoṣaḥ*—Santoṣa; *bhadraḥ*—Bhadra; *śāntiḥ*—Śānti; *iḍaspatiḥ*—Iḍaspati; *idhmaḥ*—Idhma; *kaviḥ*—Kavi; *vibhuḥ*—Vibhu; *svahnaḥ*—Svahna; *sudevaḥ*—Sudeva; *rocanaḥ*—Rocana; *dvi-ṣaṭ*—doce.
+
+**Los doce hijos de Yajña y Dakṣiṇā recibieron los siguientes nombres: Toṣa, Pratoṣa, Santoṣa, Bhadra, Śānti, Iḍaspati, Idhma, Kavi, Vibhu, Svahna, Sudeva y Rocana.**

@@ -1,0 +1,8 @@
+### CC Madhya 18.53
+
+> ei saba mukhya-bhakta lañā nija-saṅge
+> śrī-gopāla daraśana kailā bahu-raṅge
+
+*ei saba*—todos estos; *mukhya-bhakta*—devotos principales; *lañā nija-saṅge*—llevándolos consigo personalmente; *śrī-gopāla daraśana*—visitando al Señor Gopāla; *kailā bahu-raṅge*—lo realizó con gran júbilo.
+
+**Fue con gran júbilo que Rūpa Gosvāmī visitó al Señor Gopāla acompañado de todos estos devotos.**

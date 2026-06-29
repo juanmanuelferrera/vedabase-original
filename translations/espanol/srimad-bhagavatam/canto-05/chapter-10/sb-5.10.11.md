@@ -1,0 +1,12 @@
+### SB 5.10.11
+
+> jīvan-mṛtatvaṁ niyamena rājan
+> ādyantavad yad vikṛtasya dṛṣṭam
+> sva-svāmya-bhāvo dhruva īḍya yatra
+> tarhy ucyate 'sau vidhikṛtya-yogaḥ
+
+*jīvat-mṛtatvam*—la cualidad de estar muerto en vida; *niyamena*—por las leyes de la naturaleza; *rājan*—¡oh, rey!; *ādi-anta-vat*—todo lo material tiene un principio y un fin; *yat*—porque; *vikṛtasya*—de las cosas que se transforman, como el cuerpo; *dṛṣṭam*—se ve; *sva-svāmya-bhāvaḥ*—las posiciones de servidumbre y señorío; *dhruvaḥ*—inmutables; *īḍya*—¡oh, tú, que eres adorado!; *yatra*—de dónde; *tarhi*—entonces; *ucyate*—se dice; *asau*—eso; *vidhi-kṛtya-yogaḥ*—armonía entre orden y deber.
+
+**Mi querido rey, no hacía falta que me acusaras de estar muerto en vida. Con respecto a eso, lo único que puedo decir es que eso es lo que ocurre con todo, pues todo lo material tiene un principio y un fin. Y en cuanto a tu manera de pensar, creyéndote rey y señor y dándome órdenes, tampoco es correcta, pues esas posiciones son temporales. Hoy tú eres el rey y yo tu sirviente, pero mañana pueden cambiarse las tornas, y ser tú mi sirviente y yo tu amo. Todo eso son circunstancias temporales creadas por la providencia.**
+
+El concepto corporal es el principio básico del sufrimiento en la existencia material. Kali-yuga es una era en la que, de manera especial, la gente recibe una educación tan pobre que ni siquiera pueden entender que el cuerpo está cambiando a cada instante y que el cambio definitivo se denomina muerte. Según el *karma,* podemos ser reyes en esta vida y perros en la siguiente. El alma espiritual se encuentra en un estado de profundo sueño, causado por la fuerza de la naturaleza material. Se ve sometida a un determinado condicionamiento, del que pasa a otro condicionamiento distinto. Cuando no hay autorrealización y conocimiento, esa vida condicionada continúa, y falsamente nos creemos reyes, sirvientes, perros o gatos. Todo ello no son más que distintas transformaciones dispuestas por la administración suprema. No debemos dejarnos engañar por esos conceptos materiales pasajeros. En realidad, en el mundo material nadie es amo de nada, pues todos estamos bajo el control de la naturaleza material, que a su vez está bajo el control de la Suprema Personalidad de Dios. Por lo tanto, el amo supremo es Kṛṣṇa, la Suprema Personalidad de Dios. Como se explica en el *Caitanya-caritāmṛta: ekale īśvara kṛṣṇa, āra saba bhṛtya:* Kṛṣṇa es el único amo, y todos los demás somos Sus sirvientes. Cuando olvidamos nuestra relación con el Señor Supremo, sufrimos en el mundo material.

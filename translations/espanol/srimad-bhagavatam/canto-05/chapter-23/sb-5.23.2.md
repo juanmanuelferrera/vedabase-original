@@ -1,0 +1,9 @@
+### SB 5.23.2
+
+> sa hi sarveṣāṁ jyotir-gaṇānāṁ graha-nakṣatrādīnām animiṣeṇāvyakta-raṁhasā bhagavatā kālena bhrāmyamāṇānāṁ sthāṇur ivāvaṣṭambha īśvareṇa vihitaḥ śaśvad avabhāsate.
+
+*saḥ*—ese planeta de Dhruva Mahārāja; *hi*—en verdad; *sarveṣām*—de todos; *jyotiḥ-gaṇānām*—los astros luminosos; *graha-nakṣatra-ādīnām*—como los planetas y las estrellas; *animiṣeṇa*—que no descansa; *avyakta*—inconcebible; *raṁhasā*—cuya fuerza; *bhagavatā*—el muy poderoso; *kālena*—por el factor tiempo; *bhrāmyamāṇānām*—a quienes hace girar; *sthāṇuḥ iva*—como un poste; *avaṣṭambhaḥ*—el pivote; *īśvareṇa*—por la voluntad de la Suprema Personalidad de Dios; *vihitaḥ*—establecida; *śaśvat*—constantemente; *avabhāsate*—brilla.
+
+**Establecida por la suprema voluntad de la Suprema Personalidad de Dios, la Estrella Polar, el planeta de Mahārāja Dhruva, brilla constantemente como pivote central en torno al que giran todas las estrellas y planetas. El muy poderoso factor tiempo, que es invisible y jamás duerme, hace que esos astros giren sin cesar en torno a ella.**
+
+Aquí se afirma con toda claridad que los astros luminosos, planetas y estrellas, giran por la influencia suprema del factor tiempo, que es otro aspecto de la Suprema Personalidad de Dios. Todo el mundo está bajo la influencia del factor tiempo, pero la Suprema Personalidad de Dios es tan bondadoso y ama tanto a Su devoto Mahārāja Dhruva que ha puesto todos los astros luminosos bajo el control del planeta de Dhruva, y ha dispuesto que el factor tiempo actúe bajo su orden o con su colaboración. En realidad, todo se hace conforme a la voluntad y a la dirección de la Suprema Personalidad de Dios; pero el Señor, para hacer de Su devoto Dhruva Mahārāja la persona más importante del universo, ha puesto las actividades del factor tiempo bajo su control.

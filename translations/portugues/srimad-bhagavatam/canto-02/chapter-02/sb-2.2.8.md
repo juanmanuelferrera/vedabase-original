@@ -1,0 +1,12 @@
+### SB 2.2.8
+
+> kecit sva-dehāntar-hṛdayāvakāśe
+> prādeśa-mātraṁ puruṣaṁ vasantam
+> catur-bhujaṁ kañja-rathāṅga-śaṅkha-
+> gadā-dharaṁ dhāraṇayā smaranti
+
+*kecit*—outros; *sva-deha-antaḥ*—dentro do corpo; *hṛdaya-avakāśe*—na região do coração; *prādeśa-mātram*—medindo apenas vinte centímetros; *puruṣam*—a Personalidade de Deus; *vasantam*—residindo; *catuḥ-bhujam*—com quatro mãos; *kañja*—lótus; *ratha-aṅga*—a roda de uma quadriga; *śaṅkha*—búzio; *gadā-dharam*—e com uma maça na mão; *dhāraṇayā*—concebendo dessa maneira; *smaranti*—meditam Nele.
+
+**Outros concebem a Personalidade de Deus residindo dentro do corpo, na região do coração, medindo apenas vinte centímetros, com quatro mãos que sustentam, respectivamente, um lótus, uma roda de quadriga, um búzio e uma maça.**
+
+A onipenetrante Personalidade de Deus reside como Paramātmā no coração de cada uma das entidades vivas. Estima-se que a medida da localizada Personalidade de Deus se estende do dedo anular à ponta do polegar, mais ou menos vinte centímetros. A forma do Senhor descrita neste verso, com a distribuição dos diferentes símbolos — começando da mão direita inferior, subindo e descendo até a mão esquerda inferior, com lótus, roda de quadriga, búzio e maça, respectivamente —, chama-se Janārdana, ou a porção plenária do Senhor que controla a massa em geral. Há muitas outras formas do Senhor com situações variadas dos símbolos do lótus, búzio, etc., e são conhecidas distintamente como Puruṣottama, Acyuta, Narasiṁha, Trivikrama, Hṛṣīkeśa, Keśava, Mādhava, Aniruddha, Pradyumna, Saṅkarṣaṇa, Śrīdhara, Vāsudeva, Dāmodara, Janārdana, Nārāyaṇa, Hari, Padmanābha, Vāmana, Madhusūdana, Govinda, Kṛṣṇa, Viṣṇumūrti, Adhokṣaja e Upendra. Essas vinte e quatro formas da localizada Personalidade de Deus são adoradas em diferentes partes do sistema planetário, e em cada uma delas há uma encarnação do Senhor que possui um diferente planeta Vaikuṇṭha no céu espiritual, o qual se chama Paravyoma. Há muitas outras centenas e dezenas de diferentes formas do Senhor, e cada uma delas possui um planeta particular no céu espiritual, do qual este céu material é apenas um fragmentário ramo secundário. O Senhor existe como puruṣa, ou o desfrutador masculino, embora não haja como compará-Lo a forma masculina alguma do mundo material. Mas todas essas formas, advaita, não diferem umas das outras, e cada uma delas é eternamente jovem. O jovem Senhor de quatro mãos está belamente adornado, como se descreve a seguir.

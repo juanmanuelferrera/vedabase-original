@@ -1,0 +1,15 @@
+### SB 9.24.47-48
+
+> subhadro bhadrabāhuś ca
+> durmado bhadra eva ca
+> pauravyās tanayā hy ete
+> bhūtādyā dvādaśābhavan
+
+> nandopananda-kṛtaka-
+> śūrādyā madirātmajāḥ
+> kauśalyā keśinaṁ tv ekam
+> asūta kula-nandanam
+
+*subhadraḥ*—Subhadra; *bhadrabāhuḥ*—Bhadrabāhu; *ca*—y; *durmadaḥ*—Durmada; *bhadraḥ*—Bhadra; *eva*—en verdad; *ca*—también; *pauravyāḥ*—de la esposa llamada Pauravī; *tanayāḥ*—hijos; *hi*—en verdad; *ete*—todos ellos; *bhūta-ādyāḥ*—encabezados por Bhūta; *dvādaśa*—doce; *abhavan*—nacieron; *nanda-upananda-kṛtaka-śūra-ādyāḥ*—Nanda, Upananda, Kṛtaka, Śūra y otros; *madirā-ātmajāḥ*—los hijos de Madirā; *kauśalyā*—Kauśalyā; *keśinam*—un hijo llamado Keśī; *tu ekam*—solo uno; *asūta*—trajo al mundo; *kula-nandanam*—un hijo.
+
+**Del vientre de Pauravī nacieron Bhūta, Subhadra, Bhadrabāhu, Durmada, Bhadra, y otros, hasta un total de doce. Nanda, Upananda, Kṛtaka y Śūra fueron algunos de los hijos nacidos del vientre de Madirā. Bhadrā [Kauśalyā] fue madre de un único hijo, que se llamó Keśī.**

@@ -1,0 +1,10 @@
+### CC Madhya 11.102
+
+> bhaṭṭa kahe,-tāṅra kṛpā-leśa haya yāṅre
+> sei se tāṅhāre 'kṛṣṇa' kari' la-ite pāre
+
+*bhaṭṭa kahe*—Sārvabhauma Bhaṭṭācārya dijo; *tāṅra kṛpā*—de la misericordia del Señor Caitanya; *leśa*—incluso una fracción; *haya*—hay; *yāṅre*—aquel a quien; *sei se*—solo esa persona; *tāṅhāre*—al Señor Śrī Caitanya Mahāprabhu; *kṛṣṇa kari'*—aceptándolo como Kṛṣṇa; *la-ite pāre*—puede aceptar.
+
+**El Bhaṭṭācārya respondió: «Una persona que ha recibido tan solo una pequeña fracción de la misericordia de Śrī Caitanya Mahāprabhu puede comprender que Él es el Señor Kṛṣṇa. Nadie más puede.**
+
+El movimiento de *saṅkīrtana* puede difundirlo una persona especialmente favorecida por el Señor Kṛṣṇa (*kṛṣṇa-śakti vinā nahe tāra pravartana*). Sin obtener primero la misericordia del Señor, uno no puede difundir el santo nombre del Señor. A aquel que puede difundir el nombre del Señor se le llama *labdha-caitanya*, en palabras de Bhaktisiddhānta Sarasvatī. El *labdha-caitanya* es quien ha despertado de verdad su conciencia original, la conciencia de Kṛṣṇa. La influencia de los devotos puros en la conciencia de Kṛṣṇa es tal que puede despertar a otros para que de inmediato se vuelvan conscientes de Kṛṣṇa y se ocupen en el servicio amoroso y trascendental de Kṛṣṇa. De esta manera aumentan los descendientes de los devotos puros, y el Señor Caitanya Mahāprabhu se complace mucho al ver el aumento de Sus devotos. La palabra *su-medhasaḥ* significa «sumamente inteligente». Cuando la inteligencia de uno es aguda, puede acrecentar el interés del hombre común en amar a Caitanya Mahāprabhu y, a través de Él, en amar a Rādhā-Kṛṣṇa. Quienes no tienen interés en comprender a Śrī Caitanya Mahāprabhu son simplemente materiales en sus intentos de cantar y bailar profesionalmente a cambio de dinero, pese a su supuesto arte. Si uno no tiene plena fe en Śrī Caitanya Mahāprabhu, no puede cantar ni bailar debidamente en el movimiento de *saṅkīrtana*. El canto y la danza artificiales pueden deberse a sentimentalismos o a agitación sentimental, pero eso no puede ayudar a nadie a avanzar en la conciencia de Kṛṣṇa.

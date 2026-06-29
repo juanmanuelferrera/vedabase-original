@@ -1,0 +1,14 @@
+### CC Madhya 4.197
+
+ayi dīna-dayārdra nātha he
+mathurā-nātha kadāvalokyase
+hṛdayaṁ tvad-aloka-kātaraṁ
+dayita bhrāmyati kiṁ karomy aham
+
+*ayi*—ó Meu Senhor; *dīna*—para com os pobres; *dayā-ārdra*—compassivo; *nātha*—ó mestre; *he*—ó; *mathurā-nātha*—o mestre de Mathurā; *kadā*—quando; *avalokyase*—Te verei; *hṛdayam*—Meu coração; *tvat*—de Ti; *aloka*—sem ver; *kātaram*—em grande aflição; *dayita*—ó mais amado; *bhrāmyati*—fica dominado; *kim*—o que; *karomi*—farei; *aham*—Eu.
+
+**"Ó Meu Senhor! Ó mestre o mais misericordioso! Ó mestre de Mathurā! Quando Te verei novamente? Por não Te ver, Meu coração agitado se tornou inquieto. Ó Tu, o mais amado, o que farei agora?"**
+
+Os devotos imaculados que dependem estritamente da filosofia Vedānta dividem-se em quatro sampradāyas, ou partidos transcendentais. Dentre os quatro sampradāyas, a Śrī Madhvācārya-sampradāya foi aceita por Mādhavendra Purī. Assim, ele aceitou sannyāsa de acordo com a paramparā, a sucessão discipular. Começando de Madhvācārya e descendo até o mestre espiritual de Mādhavendra Purī, o ācārya chamado Lakṣmīpati, não havia realização de serviço devocional em amor conjugal. Śrī Mādhavendra Purī introduziu pela primeira vez a concepção de amor conjugal na Madhvācārya-sampradāya, e esta conclusão da Madhvācārya-sampradāya foi revelada por Śrī Caitanya Mahāprabhu quando Ele percorreu o sul da Índia e encontrou os Tattvavādīs, que supostamente pertenciam à Madhvācārya-sampradāya.
+
+Quando Śrī Kṛṣṇa deixou Vṛndāvana e aceitou o reino de Mathurā, Śrīmatī Rādhārāṇī, por sentimentos extáticos de separação, expressou como Kṛṣṇa pode ser amado em separação. Assim, o serviço devocional em separação é central neste verso. A adoração em separação é considerada pela Gauḍīya-Mādhva sampradāya como o nível mais elevado de serviço devocional. Segundo esta concepção, o devoto pensa em si mesmo como muito pobre e negligenciado pelo Senhor. Por isso ele se dirige ao Senhor como dīna-dayārdra nātha, assim como fez Mādhavendra Purī. Tal sentimento extático é a mais elevada forma de serviço devocional. Como Kṛṣṇa havia partido para Mathurā, Śrīmatī Rādhārāṇī ficou muito afetada, e Ela Se expressou desta maneira: "Meu querido Senhor, por causa de Tua separação Minha mente ficou demasiadamente agitada. Agora dize-Me, o que posso fazer? Sou muito pobre, e Tu és muito misericordioso, então, por favor, tem compaixão de Mim e faze-Me saber quando Te verei." Śrī Caitanya Mahāprabhu sempre expressava as emoções extáticas de Śrīmatī Rādhārāṇī que Ela exibiu ao ver Uddhava em Vṛndāvana. Sentimentos semelhantes, experimentados por Mādhavendra Purī, são expressos neste verso. Portanto, os vaiṣṇavas na Gauḍīya-Mādhva sampradāya dizem que os sentimentos extáticos experimentados por Śrī Caitanya Mahāprabhu durante Seu advento vieram de Śrī Mādhavendra Purī através de Īśvara Purī. Todos os devotos na linha da Gauḍīya-Mādhva sampradāya aceitam estes princípios de serviço devocional.

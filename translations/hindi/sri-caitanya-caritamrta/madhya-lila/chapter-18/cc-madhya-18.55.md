@@ -1,0 +1,36 @@
+### CC Madhya 18.55
+
+> prastāve kahiluṅ gopāla-kṛpāra ākhyāna
+> tabe mahāprabhu gelā 'śrī-kāmyavana'
+
+*प्रस्तावे*—कथा के प्रसंग में; *कहिलुङ*—मैंने कहा; *गोपाल-कृपार*—गोपाल की कृपा का; *आख्यान*—वर्णन; *तबे*—इसके पश्चात्; *महाप्रभु*—श्रीचैतन्य महाप्रभु; *गेला*—गए; *श्री-काम्य-वन*—श्रीकाम्यवन की ओर।
+
+**इस कथा के प्रसंग में मैंने भगवान् गोपाल की कृपा का वर्णन किया। गोपाल विग्रह के दर्शन के पश्चात् श्रीचैतन्य महाप्रभु श्रीकाम्यवन की ओर गए।**
+
+काम्यवन का उल्लेख आदि-वराह पुराण में हुआ है:
+
+
+
+
+
+caturthaṁ kāmyaka-vanaṁ
+
+vanānāṁ vanam uttamam
+
+tatra gatvā naro devi
+
+mama loke mahīyate
+
+
+
+भक्ति-रत्नाकर (पञ्चम तरंग) में भी कहा गया है:
+
+
+
+
+
+ei kāmyavane kṛṣṇa-līlā manohara
+
+karibe darśana sthāna kuṇḍa bahutara
+
+kāmyavane yata tīrtha lekhā nāhi tāra

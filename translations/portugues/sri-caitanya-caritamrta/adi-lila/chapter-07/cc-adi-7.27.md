@@ -1,0 +1,13 @@
+### CC Adi 7.27
+
+jagat ḍubila, jīvera haila bīja nāśa
+
+tāhā dekhi' pāṅca janera parama ullāsa
+
+*jagat*—o mundo inteiro; *ḍubila*—afogou-se; *jīvera*—das entidades vivas; *haila*—assim se deu; *bīja*—a semente; *nāśa*—completamente destruída; *tāhā*—então; *dekhi'*—ao ver; *pāñca*—cinco; *janera*—das pessoas; *parama*—suprema; *ullāsa*—felicidade.
+
+**Quando os cinco membros do Pañca-tattva viram o mundo inteiro afogado em amor a Deus e a semente do gozo material nas entidades vivas completamente destruída, todos ficaram extremamente felizes.**
+
+A esse respeito, Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura escreve em seu *Anubhāṣya* que, como todas as entidades vivas pertencem à potência marginal do Senhor, cada uma delas tem uma tendência natural de tornar-se consciente de Kṛṣṇa, embora ao mesmo tempo a semente do desfrute material esteja indubitavelmente nela presente. A semente do desfrute material, regada pelo curso da natureza material, frutifica e se transforma numa árvore de enredamento material que concede à entidade viva todas as espécies de desfrute material. Desfrutar de tais facilidades materiais é ser afligido pelas três misérias materiais. No entanto, quando por lei da natureza sobrevém uma inundação, as sementes dentro da terra ficam inativas. De modo semelhante, à medida que a inundação do amor a Deus se espalha por todo o mundo, as sementes do desfrute material tornam-se impotentes. Assim sendo, quanto mais o movimento de consciência de Kṛṣṇa se expande, mais o desejo de desfrute material diminui. A semente do desfrute material automaticamente se torna impotente com o crescimento do movimento de consciência de Kṛṣṇa.
+
+Em vez de sentir inveja de que a consciência de Kṛṣṇa se está espalhando por todo o mundo pela graça do Senhor Caitanya, os que são ciumentos deveriam estar felizes, como aqui se indica pelas palavras *parama ullāsa.* Mas, por serem *kaniṣṭha-adhikārīs* ou *prākṛta-bhaktas* (devotos materialistas que não estão avançados no conhecimento espiritual), sentem inveja em vez de alegria e tentam encontrar falhas no movimento de consciência de Kṛṣṇa. Todavia, Śrīmat Prabodhānanda Sarasvatī escreve em seu *Caitanya-candrāmṛta* que, quando influenciados pelo movimento de consciência de Kṛṣṇa do Senhor Caitanya, os materialistas tornam-se avessos a falar de suas esposas e filhos, supostos eruditos abandonam seus fastidiosos estudos da literatura Védica, os *yogīs* abandonam suas práticas impraticáveis de *yoga* místico, os ascetas abandonam suas árduas atividades de penitência e austeridade, e os *sannyāsīs* abandonam seus estudos da filosofia Sāṅkhya. Desse modo, todos são atraídos pelas práticas de *bhakti-yoga* do Senhor Caitanya e não conseguem saborear nenhum rasa superior ao da consciência de Kṛṣṇa.

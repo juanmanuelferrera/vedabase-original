@@ -1,0 +1,8 @@
+### CC Madhya 1.277
+
+> prabhu dekhi' preme loka ānandita mana
+> prabhuke īśvara bali' karaye stavana
+
+*prabhu dekhi'*—al ver al Señor; *preme*—en éxtasis; *loka*—toda la gente; *ānandita*—jubilosa; *mana*—la mente; *prabhuke*—al Señor; *īśvara*—como el Señor Supremo; *bali'*—aceptando; *karaye*—hicieron; *stavana*—oración.
+
+**Al ver al Señor, todos se llenaron de júbilo por amor. Todos aceptaron al Señor como el Supremo, y así Le ofrecieron sus oraciones.**

@@ -1,0 +1,12 @@
+### CC Antya 1.186
+
+> padāni tv agatārthāni
+> tad-artha-gataye narāḥ
+> yojayanti padair anyaiḥ
+> sa udghātyaka ucyate
+
+*padāni*—palabras; *tu*—pero; *agata-arthāni*—que tienen un significado poco claro; *tat*—ese; *artha-gataye*—para comprender el significado; *narāḥ*—los hombres; *yojayanti*—unen; *padaiḥ*—con palabras; *anyaiḥ*—otras; *saḥ*—ese; *udghātyakaḥ*—udghātyaka; *ucyate*—se denomina.
+
+**Para explicar una palabra poco clara, los hombres generalmente la unen con otras palabras. Tal intento se denomina udghātyaka». »**
+
+Este verso se cita del Sāhitya-darpaṇa (6.289).

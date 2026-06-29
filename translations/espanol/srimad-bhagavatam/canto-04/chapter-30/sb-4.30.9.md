@@ -1,0 +1,10 @@
+### SB 4.30.9
+
+> yo 'nusmarati sandhyāyāṁ
+> yuṣmān anudinaṁ naraḥ
+> tasya bhrātṛṣv ātma-sāmyaṁ
+> tathā bhūteṣu sauhṛdam
+
+*yaḥ*—el que; *anusmarati*—siempre recuerde; *sandhyāyām*—en la tarde; *yuṣmān*—a ustedes; *anudinam*—cada día; *naraḥ*—ser humano; *tasya bhrātṛṣu*—con sus hermanos; *ātma-sāmyam*—ecuanimidad personal; *tathā*—como también; *bhūteṣu*—con todos los seres vivos; *sauhṛdam*—amistad.
+
+**El Señor continuó: Aquellos que les recuerden al anochecer de cada día, serán amistosos con sus hermanos y con todas las demás entidades vivientes.**

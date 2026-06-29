@@ -1,0 +1,12 @@
+### SB 1.13.26
+
+> gata-svārtham imaṁ dehaṁ
+> virakto mukta-bandhanaḥ
+> avijñāta-gatir jahyāt
+> sa vai dhīra udāhṛtaḥ
+
+*gata-sva-artham*—sin ser bien utilizado; *imam*—este; *deham*—cuerpo material; *viraktaḥ*—con indiferencia; *mukta*—estando liberado; *bandhanaḥ*—de toda obligación; *avijñāta-gatiḥ*—destino desconocido; *jahyāt*—uno debe abandonar ese cuerpo; *saḥ*—semejante persona; *vai*—ciertamente; *dhīraḥ*—imperturbable; *udāhṛtaḥ*—se dice que lo es.
+
+**Se llama imperturbable a aquel que va a un lugar remoto y desconocido, y que, libre de todas las obligaciones, abandona el cuerpo material cuando el mismo se ha vuelto inservible.**
+
+Narottama Dāsa Ṭhākur, un gran devoto y *ācārya* de la secta Gauḍīya Vaiṣṇava, ha cantado: «Mi Señor, simplemente he malgastado mi vida. Habiendo obtenido el cuerpo humano, he descuidado adorar a Tu Señoría, y por ello, de buena gana, he bebido veneno». En otras palabras, el cuerpo humano está especialmente destinado a cultivar el conocimiento del servicio devocional del Señor, sin el cual la vida se llena de ansiedades y condiciones miserables. Por consiguiente, a quien ha echado a perder su vida sin tales actividades culturales se le aconseja que abandone el hogar sin que lo sepan sus amigos y parientes, y, liberándose así de todas las obligaciones de la familia, la sociedad, el país, etcétera, abandone el cuerpo en algún destino desconocido, de modo que los demás no sepan dónde ni cómo ha encontrado la muerte. *Dhīra* significa aquel que no se perturba, aun cuando haya suficiente provocación. Uno no puede abandonar una cómoda vida familiar debido a su afectuosa relación con la esposa y los hijos. La autorrealización se ve obstaculizada por semejante afecto indebido por la familia, y, si alguien es en absoluto capaz de olvidar tal relación, se le llama imperturbable, o *dhīra*. Este es, no obstante, el sendero de la renunciación basado en una vida frustrada, pero la estabilización de semejante renunciación solo es posible mediante la compañía de santos genuinos y de almas autorrealizadas, gracias a la cual uno puede ocuparse en el amoroso servicio devocional del Señor. La sincera entrega a los pies de loto del Señor es posible mediante el despertar del trascendental sentido de servicio, que se hace posible gracias a la compañía de los devotos puros del Señor. Dhṛtarāṣṭra fue lo bastante afortunado de tener un hermano cuya sola compañía era una fuente de liberación para su frustrada vida.

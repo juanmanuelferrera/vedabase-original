@@ -1,0 +1,9 @@
+### CC Madhya 4.69
+
+daśa-vipra anna rāndhi' kare eka stūpa
+
+janā-pāṅca rāndhe vyañjanādi nānā sūpa
+
+*daśa-vipra*—dez brāhmaṇas; *anna*—grãos alimentícios; *rāndhi'*—cozinhando; *kare*—fazem; *eka stūpa*—num único monte; *janā-pāṅca*—cinco brāhmaṇas; *rāndhe*—cozinham; *vyañjana-ādi*—vegetais; *nānā*—vários; *sūpa*—líquidos.
+
+**Dez brāhmaṇas cozinharam os grãos alimentícios, e cinco brāhmaṇas cozinharam tanto os vegetais secos quanto os líquidos.**

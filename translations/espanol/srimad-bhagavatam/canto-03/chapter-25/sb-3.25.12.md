@@ -1,0 +1,13 @@
+### SB 3.25.12
+
+> maitreya uvāca
+> iti sva-mātur niravadyam īpsitaṁ
+> niśamya puṁsām apavarga-vardhanam
+> dhiyābhinandyātmavatāṁ satāṁ gatir
+> babhāṣa īṣat-smita-śobhitānanaḥ
+
+*maitreyaḥ uvāca*—Maitreya dijo; *iti*—de este modo; *sva-mātuḥ*—de Su madre; *niravadyam*—inmaculado; *īpsitam*—deseo; *niśamya*—después de escuchar; *puṁsām*—de la gente; *apavarga*—interrupción de la existencia corporal; *vardhanam*—aumentando; *dhiyā*—mentalmente; *abhinandya*—habiendo agradecido; *ātma-vatām*—interesados en la autorrealización; *satām*—de los trascendentalistas; *gatiḥ*—el sendero; *babhāṣe*—Él explicó; *īṣat*—ligeramente; *smita*—sonriendo; *śobhita*—hermoso; *ānanaḥ*—Su rostro.
+
+**Maitreya dijo: Después de que Su madre Le expresase su inmaculado deseo de iluminación trascendental, el Señor le agradeció internamente sus preguntas y, con el rostro sonriente, explicó el sendero de los trascendentalistas, que se interesan en la autorrealización.**
+
+Devahūti ha confesado su enredo material y su deseo de liberarse. Las preguntas que ha hecho al Señor Kapila son de gran interés para quienes tratan sinceramente de liberarse del enredo material y alcanzar la perfección de la vida humana. Aquel que no se interesa en comprender su vida espiritual, su posición constitucional, y que tampoco se siente incómodo en la existencia material, está desperdiciando su forma humana de vida. Aquel que se despreocupa de las necesidades trascendentales de la vida y se dedica simplemente a comer, dormir, defenderse y aparearse, como un animal, está desperdiciando su vida. El Señor Kapila estaba muy satisfecho con las preguntas de Su madre, pues las respuestas estimularían los deseos de liberarse de la vida condicionada de la existencia material. Esas preguntas son *apavarga-vardhanam.* A aquellos que tienen un interés sincero por lo espiritual se les llama *sat,* devotos. *Satāṁ prasaṅgāt. Sat* significa «lo que existe eternamente», y*asat,* «lo que no es eterno». Quien no esté en el plano espiritual no es *sat;* es *asat.* El *asat* se establece en un plano que dejará de existir, pero todo aquel que se establezca en el plano espiritual existirá eternamente. Como almas espirituales, todos existimos eternamente, pero el *asat* ha aceptado como refugio el mundo material, y por lo tanto está lleno de ansiedades. *Asad-grāhān,* el deseo de disfrutar de la materia, es la causa de que el alma sea *asat.* En realidad, el alma espiritual no es *asat.* En cuanto es consciente de este hecho y adopta el proceso de conciencia de Kṛṣṇa, pasa a ser *sat. Satāṁ gatiḥ,* el sendero de lo eterno, es muy interesante para las personas que buscan la liberación, y Su Señoría Kapila comenzó a explicar ese sendero.

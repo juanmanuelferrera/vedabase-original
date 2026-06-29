@@ -1,0 +1,13 @@
+### SB 4.22.33
+
+arthendriyārthābhidhyānaṁ
+
+*sarvārthāpahnavo nṛṇām
+bhraṁśito jñāna-vijñānād
+yenāviśati mukhyatām
+SINÓNIMOS
+artha*—riquezas; *indriya-artha*—para la satisfacción de los sentidos; *abhidhyānam*—pensar constantemente; *sarva-artha*—cuatro clases de logros; *apahnavaḥ*—destructivo; *nṛṇām*—de la sociedad humana; *bhraṁśitaḥ*—desprovisto; *jñāna*—conocimiento; *vijñānāt*—servicio devocional; *yena*—por todo esto; *āviśati*—entra; *mukhyatām*—vida inmóvil.
+
+**Para la sociedad humana, el pensar constantemente en cómo ganar dinero y aplicarlo a la complacencia de los sentidos provoca la destrucción de los intereses de todos. Cuando uno queda desprovisto de conocimiento y servicio devocional, entra en especies de vida como las de los árboles y las piedras.**
+
+Jñāna, o conocimiento, significa comprender la posición constitucional propia, y vijñāna se refiere a la aplicación práctica de ese conocimiento en la vida. En la forma de vida humana, uno debe llegar a la posición de jñāna y vijñāna, pero a pesar de esta gran oportunidad, si no se desarrollan conocimiento y aplicación práctica del conocimiento con la ayuda de un maestro espiritual y los śāstras –en otras palabras, si se desaprovecha esta oportunidad–, entonces en la próxima vida es seguro que se nacerá como una especie de entidad viviente inmóvil. Las entidades vivientes inmóviles incluyen colinas, montañas, árboles, plantas, etc. Esa etapa de la vida se denomina puṇyatām o mukhyatām, es decir, hacer que todas las actividades sean nulas. A los filósofos que apoyan la detención de todas las actividades se les llama śūnyavādī. Por la propia vía de la naturaleza, nuestras actividades deben dirigirse gradualmente al servicio devocional. Pero hay filósofos que, en lugar de purificar sus actividades, intentan hacerlo todo nulo, o vacío de toda actividad. Esta falta de actividad se representa con los árboles y las colinas. Se trata de una clase de castigo impuesto por las leyes de la naturaleza. Si no se ejecuta debidamente la misión de la vida en la autorrealización, el castigo de la naturaleza nos volverá inactivos al situarnos en la forma de árboles y colinas. Por consiguiente, las actividades dirigidas a la complacencia de los sentidos se condenan en este pasaje. Quien piensa constantemente en actividades para ganar dinero y complacer los sentidos sigue un sendero suicida. De hecho, toda la sociedad humana sigue este camino. De un modo u otro, las personas están decididas a ganar dinero o a conseguirlo mendigando, pidiendo prestado o robando, y a aplicarlo a la complacencia de los sentidos. Semejante civilización es el mayor obstáculo en el sendero de la autorrealización.

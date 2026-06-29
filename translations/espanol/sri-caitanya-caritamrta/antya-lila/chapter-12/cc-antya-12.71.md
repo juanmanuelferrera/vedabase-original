@@ -1,0 +1,8 @@
+### CC Antya 12.71
+
+> mora lāgi' strī-putra-gṛhādi chāḍiyā
+> nānā durgama patha laṅghi' āisena dhāñā
+
+*mora lāgi'*—por Mí; *strī*—esposa; *putra*—hijos; *gṛha-ādi*—hogar, etc.; *chāḍiyā*—dejando a un lado; *nānā*—diversos; *durgama*—difíciles; *patha*—caminos; *laṅghi'*—cruzando; *āisena dhāñā*—vienen aquí con gran premura.
+
+**»Todos Mis devotos vienen aquí solo por Mí. Dejando a un lado sus hogares y familias, recorren senderos muy difíciles y vienen aquí con gran premura.**

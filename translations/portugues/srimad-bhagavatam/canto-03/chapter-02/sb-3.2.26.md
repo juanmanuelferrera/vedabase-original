@@ -1,0 +1,11 @@
+### SB 3.2.26
+
+tato nanda-vrajam itaḥ pitrā kaṁsād vibibhyatā
+
+ekādaśa samās tatra gūḍhārciḥ sa-balo 'vasat
+
+*tataḥ*—posteriormente; *nanda-vrajam*—as pastagens de vacas de Nanda Mahārāja; *itaḥ*—sendo trazido; *pitrā*—por Seu pai; *kaṁsāt*—de Kaṁsa; *vibibhyatā*—tendo medo; *ekādaśa*—onze; *samāḥ*—anos; *tatra*—lá; *gūḍha*—fogo coberto; *arciḥ*—chama; *sa-balaḥ*—com Baladeva; *avasat*—residiu.
+
+**Posteriormente, Seu pai, tendo medo de Kaṁsa, trouxe Ele para as pastagens de vacas de Mahārāja Nanda, e lá Ele viveu por onze anos como chama coberta com Seu irmão mais velho, Baladeva.**
+
+Não havia necessidade do Senhor ser enviado para a casa de Nanda Mahārāja por medo da determinação de Kaṁsa de matá-lo assim que Ele aparecesse. É o negócio dos asuras tentar matar a Suprema Personalidade de Deus ou provar por todos os meios que não há Deus ou que Kṛṣṇa é um ser humano comum e não Deus. O Senhor Kṛṣṇa não é afetado por tal determinação de homens da classe de Kaṁsa, mas a fim de tocar o papel de uma criança Ele concordou em ser carregado por Seu pai para as pastagens de vacas de Nanda Mahārāja porque Vasudeva tinha medo de Kaṁsa. Nanda Mahārāja estava para recebê-lo como seu filho, e Yaśodāmayī também estava para desfrutar os pasatiempos da infância do Senhor, e portanto para cumprir o desejo de todos, Ele foi carregado de Mathurā para Vṛndāvana logo após Seu aparecimento na prisão da casa de Kaṁsa. Ele viveu lá por onze anos e completou todos os Seus fascinantes pasatiempos de infância, juventude e adolescência com Seu irmão mais velho, o Senhor Baladeva, Sua primeira expansão. O pensamento de Vasudeva de proteger Kṛṣṇa da ira de Kaṁsa é parte de uma relação transcendental. O Senhor goza mais quando alguém o toma como seu filho subordinado quem precisa da proteção de um pai do que Ele faz quando alguém o aceita como o Senhor Supremo. Ele é o pai de todos, e Ele protege todos, mas quando Seu devoto o toma para concedido que o Senhor está para ser protegido pela cuidado de devoto, é alegria transcendental para o Senhor. Assim quando Vasudeva, fora de medo de Kaṁsa, carregou Ele para Vṛndāvana, o Senhor desfrutou isto; caso contrário, Ele nenhum medo de Kaṁsa ou qualquer outro tinha.

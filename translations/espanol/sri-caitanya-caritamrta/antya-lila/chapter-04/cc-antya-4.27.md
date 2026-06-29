@@ -1,0 +1,8 @@
+### CC Antya 4.27
+
+> tomāra bhāi anupamera haila gaṅgā-prāpti
+> bhāla chila, raghunāthe dṛḍha tāra bhakti"
+
+*tomāra bhāi*—tu hermano; *anupamera*—de Anupama; *haila*—fue; *gaṅgā-prāpti*—muerte; *bhāla chila*—era muy buena persona; *raghu-nāthe*—hacia el Señor Raghunātha (el Señor Rāmacandra); *dṛḍha*—firme; *tāra bhakti*—su devoción.
+
+**»Tu hermano Anupama ha muerto. Era un devoto muy bueno que tenía una firme convicción en Raghunātha [el Señor Rāmacandra]».**

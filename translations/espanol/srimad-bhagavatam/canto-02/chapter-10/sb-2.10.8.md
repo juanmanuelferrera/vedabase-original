@@ -1,0 +1,20 @@
+### SB 2.10.8
+
+> yo 'dhyātmiko 'yaṁ puruṣaḥ
+> so 'sāv evādhidaivikaḥ
+> yas tatrobhaya-vicchedaḥ
+> puruṣo hy ādhibhautikaḥ
+
+*yaḥ*—aquel que; *adhyātmikaḥ*—posee los órganos de los sentidos; *ayam*—esta; *puruṣaḥ*—personalidad; *saḥ*—él; *asau*—ese; *eva*—también; *adhidaivikaḥ*—deidad controladora; *yaḥ*—aquella que; *tatra*—ahí; *ubhaya*—de ambos; *vicchedaḥ*—separación; *puruṣaḥ*—persona; *hi*—para; *ādhibhautikaḥ*—el cuerpo visible o la entidad viviente que mora en el cuerpo.
+
+**La persona individual que posee diferentes instrumentos de los sentidos se denomina la persona adhyātmica, y la deidad regente individual de los sentidos se denomina adhidaivica. Y el ser corporificado que se ve en los globos oculares se denomina la persona adhibhautica.**
+
+El supremo summum bonum que controla es la Personalidad de Dios en Su porción plenaria de Paramātmā o la manifestación de la Superalma. En el Bhagavad-gītā se dice:
+
+athavā bahunaitena kiṁ jñātena tavārjuna
+
+viṣṭabhyāham idaṁ kṛtsnam ekāṁśena sthito jagat
+
+«Todas las deidades regentes, como Viṣṇu, Brahmā y Śiva, son diferentes manifestaciones del aspecto Paramātmā de la Suprema Personalidad de Dios, Śrī Kṛṣṇa, y Él se manifiesta de tales maneras al entrar en todos y cada uno de los universos generados a partir de Él». (Bg. 10.42) Pero, aun así, aparentemente hay divisiones del controlador y lo controlado. Por ejemplo, en el departamento que controla los alimentos, el controlador de los alimentos es una persona hecha de los mismos ingredientes que la persona que es controlada. De manera similar, todos y cada uno de los individuos del mundo material son controlados por los semidioses superiores. Por ejemplo, tenemos nuestros sentidos, pero los sentidos son controlados por deidades regentes superiores. No podemos ver sin luz, y el controlador supremo de la luz es el sol. El dios del sol está en el planeta solar, y nosotros, los seres humanos individuales o cualquier otro ser de esta Tierra, somos todos controlados por el dios del sol en lo que se refiere a nuestros ojos. De manera similar, todos los sentidos que tenemos son controlados por los semidioses superiores, quienes también son entidades vivientes tanto como nosotros, pero uno está dotado de poder mientras que el otro es controlado. La entidad viviente controlada se denomina la persona adhyātmica, y el controlador se denomina la persona adhidaivica. Todas estas posiciones en el mundo material se deben a diferentes actividades fruitivas. Cualquier ser viviente individual puede convertirse en el dios del sol o incluso en Brahmā o cualquier otro dios del sistema planetario superior mediante un grado más elevado de trabajo piadoso, y de manera similar uno queda controlado por los semidioses superiores mediante grados inferiores de actividades fruitivas. Así pues, toda entidad viviente individual está sujeta al control supremo del Paramātmā, quien coloca a cada uno en diferentes posiciones del controlador y lo controlado.
+
+Aquello que distingue al controlador y lo controlado, es decir, el cuerpo material, se denomina el adhibhautica puruṣa. El cuerpo a veces se denomina puruṣa, como se confirma en los Vedas en el siguiente himno: «sa vā eṣa puruṣo 'nna-rasamaya». Este cuerpo se denomina la corporificación anna-rasa. Este cuerpo depende del alimento. La entidad viviente que está corporificada no come nada, sin embargo, porque el propietario es espíritu en esencia. El cuerpo material requiere reemplazo de materias por el desgaste y deterioro del cuerpo mecánico. Por lo tanto, la distinción entre la entidad viviente individual y las deidades planetarias que controlan está en el cuerpo anna-rasamaya. El sol puede tener un cuerpo gigantesco, y el hombre puede tener un cuerpo más pequeño, pero todos estos cuerpos visibles están hechos de materia; no obstante, el dios del sol y la persona individual, relacionados como el controlador y lo controlado, son las mismas partes integrales espirituales del Ser Supremo, y es el Ser Supremo quien coloca a las diferentes partes integrales en diferentes posiciones. Y de este modo se concluye que la Persona Suprema es el refugio de todos.

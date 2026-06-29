@@ -1,0 +1,8 @@
+### CC Madhya 8.309
+
+> alaukika līlā ei parama nigūḍha
+> viśvāse pāiye, tarke haya bahu-dūra
+
+*alaukika*—extraordinarios; *līlā*—pasatiempos; *ei*—estos; *parama*—sumamente; *nigūḍha*—confidenciales; *viśvāse*—con fe; *pāiye*—podemos obtener; *tarke*—mediante argumentos; *haya*—está; *bahu-dūra*—muy lejos.
+
+**Esta parte de los pasatiempos de Śrī Caitanya Mahāprabhu es sumamente confidencial. Solo mediante la fe se puede obtener beneficio rápidamente; de lo contrario, argumentando, uno siempre permanecerá muy lejos.**

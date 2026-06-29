@@ -1,0 +1,12 @@
+### SB 5.19.8
+
+> suro 'suro vāpy atha vānaro naraḥ
+> sarvātmanā yaḥ sukṛtajñam uttamam
+> bhajeta rāmaṁ manujākṛtiṁ hariṁ
+> ya uttarān anayat kosalān divam iti
+
+*suraḥ*—semidiós; *asuraḥ*—demonio; *vā api*—o; *atha*—por lo tanto; *vā*—o; *anaraḥ*—distinto del ser humano (ave, animal, etc.); *naraḥ*—un ser humano; *sarva-ātmanā*—de todo corazón; *yaḥ*—quien; *su-kṛtajñam*—que fácilmente agradece; *uttamam*—sumamente elevado; *bhajeta*—debe adorar; *rāmam*—al Señor Rāmacandra; *manuja-ākṛtim*—que aparece como ser humano; *harim*—a la Suprema Personalidad de Dios; *yaḥ*—quien; *uttarān*—del norte de la India; *anayat*—llevó de regreso; *kosalān*—a los habitantes de Kosala-deśa, Ayodhyā; *divam*—al mundo espiritual, Vaikuṇṭha; *iti*—así.
+
+**Por lo tanto, no importa si somos semidioses o demonios, hombres o criaturas de otro tipo, como animales o aves: todos debemos adorar al Señor Rāmacandra, la Suprema Personalidad de Dios, que aparece en la Tierra con forma humana. Para adorar al Señor no se necesitan grandes austeridades ni penitencias, pues Él acepta el servicio del devoto y Se satisface con ese servicio, por insignificante que sea. Esa satisfacción del Señor es el éxito del devoto. En verdad, el Señor Śrī Rāmacandra llevó a todos los devotos de Ayodhyā de regreso al hogar, de vuelta a Dios [Vaikuṇṭha].**
+
+El Señor Śrī Rāmacandra es tan bueno y misericordioso con Sus devotos que, sean o no humanos, Se satisface fácilmente con cualquier pequeño servicio que Le ofrezcan. Esa es la ventaja especial de la adoración del Señor Rāmacandra; lo mismo ocurre cuando se adora al Señor Śrī Caitanya Mahāprabhu. El Señor Kṛṣṇa y el Señor Rāmacandra, en Su papel de*kṣatriyas,* a veces mostraban Su misericordia matando *asuras,* pero el Señor Śrī Caitanya Mahāprabhu otorgaba amor por Dios sin ningún tipo de dificultad, incluso a los *asuras.* Todas las encarnaciones de la Suprema Personalidad de Dios, y en especial el Señor Rāmacandra, el Señor Kṛṣṇa y, más tarde, el Señor Śrī Caitanya Mahāprabhu, liberaron a muchas de las entidades vivientes de Sus respectivas épocas, prácticamente a la totalidad; por esa razón, a Śrī Caitanya Mahāprabhu se Le representa en la forma de seis brazos *ṣaḍ-bhūja-mūrti,* que es una combinación del Señor Rāmacandra, el Señor Kṛṣṇa y el Señor Śrī Caitanya Mahāprabhu. Adorando esa *ṣaḍ-bhūja-mūrti,* la forma del Señor con seis brazos (dos de Rāmacandra, dos de Kṛṣṇa y dos de Śrī Caitanya Mahāprabhu), podemos cumplir el objetivo primordial de la vida humana.

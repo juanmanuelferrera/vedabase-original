@@ -1,0 +1,10 @@
+### CC Adi 10.43
+
+> haridāsa-ṭhākura śākhāra adbhuta carita
+> tina lakṣa nāma teṅho layena apatita
+
+*haridāsa-ṭhākura*—de nombre Haridāsa Ṭhākura; *śākhāra*—de la rama; *adbhuta*—maravilloso; *carita*—carácter; *tina*—tres; *lakṣa*—cien mil; *nāma*—nombres; *teṅho*—él; *layena*—cantaba; *apatita*—sin falta.
+
+**La vigésima rama del árbol de Caitanya era Haridāsa Ṭhākura. Su carácter era maravilloso. Solía cantar el santo nombre de Kṛṣṇa 300.000 veces al día sin falta.**
+
+Sin duda, cantar 300.000 santos nombres del Señor es maravilloso. Ninguna persona común puede cantar tantos nombres, ni se debe imitar artificialmente el comportamiento de Haridāsa Ṭhākura. Sin embargo, es esencial que todos cumplan un voto específico de cantar el mahā-mantra Hare Kṛṣṇa. En consecuencia, hemos prescrito en nuestra Sociedad que todos nuestros estudiantes deben cantar al menos dieciséis rondas diarias. Dicho canto debe realizarse sin ofensas para que sea de alta calidad. El canto mecánico no es tan poderoso como cantar el santo nombre sin ofensas. En el *Caitanya-bhāgavata*, *Ādi-līlā*, Capítulo Dos, se afirma que Haridāsa Ṭhākura nació en una aldea conocida como Buḍhana, pero que al cabo de un tiempo se estableció a orillas del Ganges en Phuliyā, cerca de Śāntipura. Por la descripción del castigo que le impuso un magistrado musulmán, que se encuentra en el Capítulo Dieciséis del *Ādi-līlā* del *Caitanya-bhāgavata*, podemos comprender cuán humilde y manso era Haridāsa Ṭhākura y cómo alcanzó la misericordia sin causa del Señor. En las representaciones dramáticas del Señor Caitanya Mahāprabhu, Haridāsa Ṭhākura desempeñaba el papel de jefe de policía. Mientras cantaba el mahā-mantra Hare Kṛṣṇa en Benāpola, fue puesto a prueba personalmente por la propia Māyādevī. La partida de Haridāsa Ṭhākura se describe en el *Antya-līlā* del *Caitanya-caritāmṛta*, Capítulo Undécimo. No se sabe con certeza si Śrī Haridāsa Ṭhākura apareció en la aldea llamada Buḍhana, que se encuentra en el distrito de Khulnā. Anteriormente, esta aldea se encontraba dentro de un distrito de veinticuatro pargaṇas en la división de Sātakṣīrā.

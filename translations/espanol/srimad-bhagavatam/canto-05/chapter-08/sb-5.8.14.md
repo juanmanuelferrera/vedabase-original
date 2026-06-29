@@ -1,0 +1,9 @@
+### SB 5.8.14
+
+> kriyāyāṁ nirvartyamānāyām antarāle 'py utthāyotthāya yadainam abhicakṣīta tarhi vāva sa varṣa-patiḥ prakṛti-sthena manasā tasmā āśiṣa āśāste svasti stād vatsa te sarvata iti.
+
+*kriyāyām*—las actividades de adorar al Señor o celebrar ceremonias rituales; *nirvartyamānāyām*—incluso sin haber terminado; *antarāle*—de vez en cuando en medio de; *api*—aunque; *utthāya utthāya*—levantarse repetidas veces; *yadā*—cuando; *enam*—el cervatillo; *abhicakṣīta*—veía; *tarhi vāva*—en ese momento; *saḥ*—él; *varṣa-patiḥ*—Mahārāja Bharata; *prakṛti-sthena*—feliz; *manasā*—en su mente; *tasmai*—a él; *āśiṣaḥ āśāste*—concede bendiciones; *svasti*—todo lo auspicioso; *stāt*—que haya; *vatsa*—¡oh, mi querido ciervo!; *te*—a ti; *sarvataḥ*—en todo aspecto; *iti*—así.
+
+**Cuando estaba adorando al Señor, o celebraba alguna ceremonia ritual, Mahārāja Bharata solía levantarse de vez en cuando, aunque no hubiera terminado sus ceremonias, para ver dónde estaba el ciervo. De esta forma, lo buscaba, y cuando veía que el ciervo estaba bien, sentía el corazón y la mente satisfechos, y lo bendecía diciendo: «Mi querido cervatillo, que seas feliz en todo aspecto».**
+
+La atracción que Bharata Mahārāja sentía por el ciervo era tan intensa que no podía concentrarse en la adoración del Señor o en la ejecución de sus ceremonias rituales. A pesar de estar ocupado en adorar a la Deidad, su desmedido apego por el ciervo le llenaba la mente de inquietud. Cuando intentaba meditar, lo único que hacía era pensar en el ciervo, preguntándose a dónde habría ido. En otras palabras, cuando se adora con la mente distraída, esa supuesta adoración no tiene ningún valor. El hecho de que Bharata Mahārāja tuviera que levantarse cada cierto tiempo para buscar al ciervo era señal de que había caído del nivel espiritual.

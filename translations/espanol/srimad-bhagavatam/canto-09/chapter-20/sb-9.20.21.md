@@ -1,0 +1,12 @@
+### SB 9.20.21
+
+> mātā bhastrā pituḥ putro
+> yena jātaḥ sa eva saḥ
+> bharasva putraṁ duṣmanta
+> māvamaṁsthāḥ śakuntalām
+
+*mātā*—la madre; *bhastrā*—como el cuero de un fuelle que contiene aire; *pituḥ*—del padre; *putraḥ*—el hijo; *yena*—por quien; *jātaḥ*—nace; *saḥ*—el padre; *eva*—en verdad; *saḥ*—el hijo; *bharasva*—cuida; *putram*—a tu hijo; *duṣmanta*—Duṣmanta; *mā*—no; *avamaṁsthāḥ*—insultes; *śakuntalām*—a Śakuntalā.
+
+**La voz dijo: ¡Oh, Mahārāja Duṣmanta!, los hijos en realidad pertenecen al padre, y la madre no es más que un recipiente, como el cuero de un fuelle. Según los mandamientos védicos, el padre nace en la forma del hijo. Por lo tanto, cuida de tu hijo y no insultes a Śakuntalā.**
+
+Según el mandamiento védico *ātmā vai putra-nāmāsi*, el padre se vuelve el hijo. La madre es como un simple almacenista que guarda en su vientre la semilla del hijo, pero el verdadero responsable de mantener al hijo es el padre. En el *Bhagavad-gītā*, el Señor dice que Él es el padre que aporta la semilla de todas las entidades vivientes (*ahaṁ bīja-pradaḥ pitā*), por lo cual es responsable de mantenerlas. Esto se confirma también en los *Vedas*: *eko bahūnāṁ yo vidadhāti kāmān*: Aunque Dios es uno, Él mantiene a todas las entidades vivientes con todo lo que necesitan para vivir. Las entidades vivientes, en sus diversas formas, son hijos del Señor, de modo que el padre, el Señor Supremo, les abastece de alimentos conforme al cuerpo que poseen. La pequeña hormiga recibe un granito de azúcar, y el elefante recibe toneladas de comida, pero todos tienen para comer. Por lo tanto, la idea de «superpoblación» no tiene fundamento. Como el padre, Kṛṣṇa, goza de plena opulencia, no hay escasez de alimentos, y como no hay escasez, la tan divulgada idea de «superpoblación» no es más que un mito. En realidad, cuando sufrimos por falta de alimentos es porque la naturaleza material, bajo la orden del padre, se niega a alimentarnos, pero es la posición de la entidad viviente la que determina que recibamos o no los alimentos necesarios. Cuando a un enfermo se le prohíbe comer, no es porque escasee la comida, sino porque el tratamiento de la enfermedad requiere que no reciba ningún alimento. En el *Bhagavad-gītā* (7.10), el Señor dice también: *bījaṁ māṁ sarva-bhūtānām*: «Yo soy la semilla de todas las entidades vivientes». En la tierra se siembra una determinada semilla, que germina y da un determinado árbol o planta. La madre es semejante a la tierra, y cuando el padre siembra en ella una determinada semilla, nace un determinado tipo de cuerpo.

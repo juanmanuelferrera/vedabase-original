@@ -1,0 +1,12 @@
+### CC Antya 3.100
+
+> nirjana-vane kuṭira kari' tulasī sevana
+> rātri-dine tina lakṣa nāma-saṅkīrtana
+
+*nirjana-vane*—en un bosque solitario; *kuṭira*—una cabaña; *kari'*—construyendo; *tulasī*—la planta de *tulasī*; *sevana*—adorar; *rātri-dine*—durante todo el día y la noche; *tina*—tres; *lakṣa*—cien mil; *nāma-saṅkīrtana*—canto del santo nombre.
+
+**Haridāsa Ṭhākura construyó una cabaña en un bosque solitario. Allí plantó una planta de *tulasī*, y frente a la *tulasī* cantaba el santo nombre del Señor 300.000 veces al día. Cantaba durante todo el día y la noche.**
+
+La aldea de Benāpola está situada en el distrito de Yaśohara, que ahora se encuentra en Bangladés. Benāpola se halla cerca de la estación de Banagāṅo, que está en la frontera de Bangladés y a la que se puede llegar por el ferrocarril oriental desde la estación de Shelda en Calcuta. Haridāsa Ṭhākura, al ser el *ācārya* del canto del *mahā-mantra* Hare Kṛṣṇa, recibe el nombre de Nāmācārya Haridāsa Ṭhākura. Por su ejemplo personal podemos comprender que cantar el *mantra* Hare Kṛṣṇa y elevarse mucho en la conciencia de Kṛṣṇa es muy sencillo. Sin dificultad, uno puede sentarse en cualquier lugar, especialmente a orillas del Ganges, el Yamunā o cualquier río sagrado, disponer un lugar para sentarse o una cabaña, plantar una *tulasī*, y ante la *tulasī* cantar el *mahā-mantra* Hare Kṛṣṇa sin perturbación.
+
+Haridāsa Ṭhākura solía cantar el santo nombre en sus cuentas 300.000 veces al día. Durante todo el día y la noche, cantaba los dieciséis nombres del *mahā-mantra* Hare Kṛṣṇa. Sin embargo, uno no debe imitar a Haridāsa Ṭhākura, pues ninguna otra persona puede cantar el *mahā-mantra* Hare Kṛṣṇa 300.000 veces al día. Tal canto es para el *mukta-puruṣa*, o alma liberada. No obstante, podemos seguir su ejemplo cantando dieciséis rondas del *mahā-mantra* Hare Kṛṣṇa en las cuentas cada día y ofreciendo respetos a la planta de *tulasī*. Esto no es en absoluto difícil para nadie, y el proceso de cantar el *mahā-mantra* Hare Kṛṣṇa con un voto ante la planta de *tulasī* tiene una potencia espiritual tan grande que simplemente haciendo esto uno puede fortalecerse espiritualmente. En consecuencia, pedimos a los miembros del movimiento Hare Kṛṣṇa que sigan rigurosamente el ejemplo de Haridāsa Ṭhākura. Cantar dieciséis rondas no lleva mucho tiempo, ni ofrecer respetos a la planta de *tulasī* es difícil. El proceso tiene una potencia espiritual inmensa. Uno no debe desaprovechar esta oportunidad.

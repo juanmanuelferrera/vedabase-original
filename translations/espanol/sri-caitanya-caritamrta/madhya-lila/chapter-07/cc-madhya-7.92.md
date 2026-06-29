@@ -1,0 +1,8 @@
+### CC Madhya 7.92
+
+> mūrcchita hañā sabe bhūmite paḍilā
+> tāṅhā-sabā pāne prabhu phiri' nā cāhilā
+
+*mūrcchita hañā*—quedando inconscientes; *sabe*—todos; *bhūmite*—al suelo; *paḍilā*—cayeron; *tāṅhā-sabā*—todos ellos; *pāne*—hacia; *prabhu*—el Señor Śrī Caitanya Mahāprabhu; *phiri'*—volviéndose; *nā*—no; *cāhilā*—miró.
+
+**Aunque todos cayeron al suelo inconscientes, el Señor no se volvió a mirarlos, sino que continuó Su camino.**

@@ -1,0 +1,23 @@
+### SB 9.10.50
+
+agrahīd āsanaṁ bhrātrā
+
+praṇipatya prasāditaḥ
+
+*prajāḥ sva*-dharma-niratā
+
+*varṇāśrama*-guṇānvitāḥ
+
+jugopa pitṛvad rāmo
+
+menire pitaraṁ ca tam
+
+*agrahīt*—aceitou; *āsanam*—o trono do estado; *bhrātrā*—por Seu irmão (Bharata); *praṇipatya*—após render-se completamente a Ele; *prasāditaḥ*—tendo ficado satisfeito; *prajāḥ*—e os cidadãos; *sva-dharma-niratāḥ*—plenamente ocupados em seus respectivos deveres ocupacionais; *varṇāśrama*—segundo o sistema de *varṇa* e *āśrama*; *guṇa-anvitāḥ*—todos eles sendo qualificados nesse processo; *jugopa*—o Senhor protegeu-os; *pitṛ-vat*—exatamente como um pai; *rāmaḥ*—o Senhor Rāmacandra; *menire*—eles consideraram; *pitaram*—exatamente como um pai; *ca*—também; *tam*—a Ele, o Senhor Rāmacandra.
+
+**Estando satisfeito com a plena rendição e submissão do Senhor Bharata, o Senhor Rāmacandra então aceitou o trono do estado. Cuidou dos cidadãos exatamente como um pai, e os cidadãos, plenamente ocupados em seus deveres ocupacionais de *varṇa* e *āśrama*, aceitaram-nO como seu pai.**
+
+As pessoas são muito apreciadoras do modelo do *Rāma-rājya*, e até hoje os políticos às vezes formam um partido chamado *Rāma-rājya*, mas, infelizmente, eles não têm obediência ao Senhor Rāma. Diz-se às vezes que as pessoas querem o reino de Deus sem Deus. Tal aspiração, contudo, jamais se concretizará. Um bom governo pode existir quando o relacionamento entre os cidadãos e o governo é como aquele exemplificado pelo Senhor Rāmacandra e Seus cidadãos. O Senhor Rāmacandra governou Seu reino exatamente como um pai cuida de seus filhos, e os cidadãos, sentindo-se gratos pelo bom governo do Senhor Rāmacandra, aceitaram o Senhor como seu pai. Assim, o relacionamento entre os cidadãos e o governo deve ser exatamente como aquele entre pai e filho. Quando os filhos numa família são bem treinados, eles obedecem ao pai e à mãe, e, quando o pai é bem qualificado, ele cuida bem dos filhos. Como aqui indicado pelas palavras *sva-dharma-niratā varṇāśrama-guṇān-vitāḥ*, as pessoas eram bons cidadãos porque aceitavam a instituição de *varṇa* e *āśrama*, que organiza a sociedade nas divisões de *varṇa* — *brāhmaṇa*, *kṣatriya*, *vaiśya* e *śūdra* — e nas divisões de *āśrama* — *brahmacarya*, *gṛhastha*, *vānaprastha* e *sannyāsa*. Esta é a verdadeira civilização humana. As pessoas devem ser treinadas segundo os diferentes deveres ocupacionais de *varṇāśrama*. Como se confirma no *Bhagavad-gītā* (4.13), *cātur-varṇyaṁ mayā sṛṣṭaṁ guṇa-karma-vibhāgaśaḥ*: os quatro *varṇas* devem ser estabelecidos segundo qualidades e trabalho variados. O primeiro princípio para um bom governo é que ele deve instituir esse sistema de *varṇāśrama*. O propósito de *varṇāśrama* é capacitar as pessoas a tornarem-se conscientes de Deus. *Varṇāśramācāravatā puruṣeṇa paraḥ pumān viṣṇur ārādhyate*. Todo o esquema de *varṇāśrama* tem o objetivo de capacitar as pessoas a tornarem-se vaiṣṇavas. *Viṣṇur asya devatā*. Quando as pessoas adoram o Senhor Viṣṇu como o Senhor Supremo, elas se tornam vaiṣṇavas. Assim, as pessoas devem ser treinadas a tornarem-se vaiṣṇavas por meio do sistema de *varṇa* e *āśrama*, como o eram durante o reinado do Senhor Rāmacandra, quando todos eram plenamente treinados a seguir os princípios de *varṇāśrama*.
+
+Simplesmente impor leis e ordenações não pode tornar os cidadãos obedientes e cumpridores da lei. Isso é impossível. Em todo o mundo existem tantos estados, assembleias legislativas e parlamentos, mas, mesmo assim, os cidadãos são pilantras e ladrões. Boa cidadania, portanto, não pode ser imposta; os cidadãos devem ser treinados. Assim como existem escolas e faculdades para treinar os estudantes para se tornarem engenheiros químicos, advogados ou especialistas em muitos outros departamentos do conhecimento, deve haver escolas e faculdades para treinar os estudantes para se tornarem *brāhmaṇas*, *kṣatriyas*, *vaiśyas*, *śūdras*, *brahmacārīs*, *gṛhasthas*, *vānaprasthas* e *sannyāsīs*. Isso proporcionará a condição preliminar para uma boa cidadania (*varṇāśrama-guṇān-vitāḥ*). De um modo geral, se o rei ou presidente é um *rājarṣi*, o relacionamento entre os cidadãos e o chefe do executivo será claro, e não haverá possibilidade de perturbação no estado, pois o número de ladrões e pilantras diminuirá. Em Kali-yuga, contudo, por se negligenciar o sistema de *varṇāśrama*, as pessoas são, em geral, ladrões e pilantras. No sistema de democracia, tais ladrões e pilantras naturalmente arrecadam dinheiro de outros ladrões e pilantras, e, assim, há caos em todos os governos, e ninguém é feliz. Mas aqui o exemplo de bom governo encontra-se no reinado do Senhor Rāmacandra. Se as pessoas seguirem este exemplo, haverá bom governo em todo o mundo.
+
+---

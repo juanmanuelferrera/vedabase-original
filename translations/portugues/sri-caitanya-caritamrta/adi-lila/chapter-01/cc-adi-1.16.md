@@ -1,0 +1,10 @@
+### CC Adi 1.16
+
+dīvyad-vṛndāraṇya-kalpa-drumādhaḥ-
+śrīmad-ratnāgāra-siṁhāsana-sthau
+śrīmad-rādhā-śrīla-govinda-devau
+preṣṭhālībhiḥ sevyamānau smarāmi
+
+*dīvyat*—brilhante; *vṛndā-araṇya*—na floresta de Vṛndāvana; *kalpa-druma*—árvore dos desejos; *adhaḥ*—debaixo; *śrīmat*—belíssimo; *ratna-āgāra*—num templo de joias; *siṁha-āsana-sthau*—sentados num trono; *śrīmat*—muito belos; *rādhā*—Śrīmatī Rādhārāṇī; *śrīla-govinda-devau*—e Śrī Govindadeva; *preṣṭha-ālībhiḥ*—pelos mais íntimos associados; *sevyamānau*—sendo servidos; *smarāmi*—eu me lembro.
+
+**Num templo de joias em Vṛndāvana, debaixo de uma árvore dos desejos, Śrī Śrī Rādhā-Govinda, servidos por Seus mais íntimos associados, sentam-Se sobre um trono refulgente. Ofereço-Lhes minhas humildes reverências.**

@@ -1,0 +1,9 @@
+### CC Madhya 16.136
+
+eta bali' paṇḍita-gosāñi pṛthak calilā
+
+kaṭaka āsi' prabhu tāṅre saṅge ānāilā
+
+*eta bali'*—dizendo isto; *paṇḍita-gosāñi*—Gadādhara Paṇḍita; *pṛthak calilā*—seguiu separadamente; *kaṭaka āsi'*—quando chegou a Kaṭaka; *prabhu*—Śrī Caitanya Mahāprabhu; *tāṅre*—a ele; *saṅge*—conSigo; *ānāilā*—trouxe.
+
+**Assim, Gadādhara Paṇḍita Gosvāmī viajou sozinho, mas, quando todos chegaram a Kaṭaka, Śrī Caitanya Mahāprabhu o chamou, e ele foi na companhia do Senhor.**

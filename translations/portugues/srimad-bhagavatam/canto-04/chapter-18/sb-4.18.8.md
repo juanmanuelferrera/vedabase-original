@@ -1,0 +1,17 @@
+### SB 4.18.8
+
+nūnaṁ tā vīrudhaḥ kṣīṇā
+
+mayi kālena bhūyasā
+
+tatra yogena dṛṣṭena
+
+bhavān ādātum arhati
+
+*nūnam*—portanto; *tāḥ*—aquelas; *vīrudhaḥ*—ervas e grãos; *kṣīṇāḥ*—deteriorados; *mayi*—dentro de mim; *kālena*—com o tempo; *bhūyasā*—muito; *tatra*—portanto; *yogena*—pelos meios apropriados; *dṛṣṭena*—reconhecidos; *bhavān*—Vossa Majestade; *ādātum*—tomar; *arhati*—deve.
+
+**Por terem ficado armazenadas por muito tempo, todas as sementes de grãos dentro de mim certamente se deterioraram. Portanto, deves providenciar imediatamente para que essas sementes sejam extraídas pelo processo padrão recomendado pelos *ācāryas* ou pelos *śāstras*.**
+
+Quando há escassez de grãos, o governo deve seguir os métodos prescritos no śāstra e aprovados pelos ācāryas; assim, haverá uma produção suficiente de grãos, e a escassez de alimento e a fome poderão ser contidas. O Bhagavad-gītā recomenda que executemos yajña, sacrifícios. Pela execução de yajña, suficientes nuvens se reúnem no céu e, quando há nuvens suficientes, há também chuva suficiente. Dessa maneira, as questões agrícolas ficam atendidas. Quando há produção suficiente de grãos, a população em geral come os grãos, e animais como vacas, cabras e outros animais domésticos comem as gramas e os grãos também. Segundo este sistema, os seres humanos devem executar os sacrifícios recomendados nos śāstras e, se assim fizerem, não haverá mais escassez de alimento. Em Kali-yuga, o único sacrifício recomendado é o saṅkīrtana-yajña.
+
+Neste verso, há duas palavras significativas: yogena, "pelo método aprovado", e dṛṣṭena, "conforme exemplificado pelos ācāryas anteriores". A pessoa está equivocada se pensa que, aplicando máquinas modernas como tratores, é possível produzir grãos. Se a pessoa for a um deserto e usar um trator, ainda assim não haverá possibilidade de produzir grãos. Podemos adotar vários meios, mas é essencial saber que o planeta Terra deixará de produzir grãos se não forem executados sacrifícios. A Terra já explicou que, por os não devotos estarem desfrutando da produção de alimento, ela reservou sementes de alimento para a execução de sacrifício. Ora, é claro que os ateístas não acreditarão neste método espiritual de produzir grãos, mas, quer acreditem, quer não, o fato permanece que não somos independentes para produzir grãos por meios mecânicos. No que se refere ao método aprovado, está prescrito nos śāstras que os homens inteligentes nesta era se dedicarão ao movimento de saṅkīrtana e, assim fazendo, adorarão a Suprema Personalidade de Deus, o Senhor Caitanya, cuja compleição corpórea é dourada e que está sempre acompanhado de Seus devotos íntimos para pregar este movimento da consciência de Kṛṣṇa por todo o mundo. Em sua condição atual, o mundo só pode ser salvo pela introdução deste saṅkīrtana, este movimento da consciência de Kṛṣṇa. Como aprendemos do verso anterior, aquele que não está em consciência de Kṛṣṇa é considerado um ladrão. Mesmo que seja muito avançado materialmente, um ladrão não pode ser colocado numa posição confortável. Um ladrão é um ladrão, e ele é punível. Por estarem sem a consciência de Kṛṣṇa, as pessoas se tornaram ladras e, consequentemente, estão sendo punidas pelas leis da natureza material. Ninguém pode conter isso, nem mesmo introduzindo tantos fundos de auxílio e instituições humanitárias. A menos que as pessoas do mundo se dediquem à consciência de Kṛṣṇa, haverá escassez de alimento e muito sofrimento.

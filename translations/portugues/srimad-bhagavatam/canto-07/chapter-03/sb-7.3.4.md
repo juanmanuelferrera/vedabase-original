@@ -1,0 +1,15 @@
+### SB 7.3.4
+
+tasya mūrdhnaḥ samudbhūtaḥ
+
+sadhūmo 'gnis tapomayaḥ
+
+tīryag ūrdhvam adho lokān
+
+prātapad viṣvag īritaḥ
+
+*tasya*—dele; *mūrdhnaḥ*—da cabeça; *samudbhūtaḥ*—gerado; *sa-dhūmaḥ*—com fumaça; *agniḥ*—fogo; *tapaḥ-mayaḥ*—por causa de severas austeridades; *tīryak*—para os lados; *ūrdhvam*—para cima; *adhaḥ*—para baixo; *lokān*—todos os planetas; *prātapat*—aqueceu; *viṣvak*—por toda parte; *īritaḥ*—espalhando-se.
+
+**Por causa das severas austeridades de Hiraṇyakaśipu, saía fogo de sua cabeça, e esse fogo e sua fumaça espalharam-se por todo o céu, abrangendo os planetas superiores e inferiores, os quais ficaram todos extremamente quentes.**
+
+---

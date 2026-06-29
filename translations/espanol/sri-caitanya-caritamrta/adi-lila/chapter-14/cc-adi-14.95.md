@@ -1,0 +1,8 @@
+### CC Adi 14.95
+
+> bālyalīlā-sūtra ei kaila anukrama
+> ihā vistāriyāchena dāsa-vṛndāvana
+
+*bālya-līlā-sūtra*—sinopsis de los pasatiempos de la infancia; *ei*—esto; *kaila*—hice; *anukrama*—en orden cronológico; *ihā*—esto; *vistāriyāchena*—ha explicado extensamente; *dāsa-vṛndāvana*—Vṛndāvana dāsa Ṭhākura.
+
+**Esta es una sinopsis de los pasatiempos de la infancia del Señor Caitanya Mahāprabhu, presentada aquí en orden cronológico. Vṛndāvana dāsa Ṭhākura ya ha explicado extensamente estos pasatiempos en su libro *Caitanya-bhāgavata*.**

@@ -1,0 +1,12 @@
+### SB 8.1.20
+
+tatrendro rocanas tv āsīd
+devāś ca tuṣitādayaḥ
+*ūrja*-stambhādayaḥ sapta
+*ṛṣayo brahma*-vādinaḥ
+
+*tatra*—neste *manvantara*; *indraḥ*—Indra; *rocanaḥ*—Rocana, o filho de Yajña; *tu*—mas; *āsīt*—tornou-se; *devāḥ*—semideuses; *ca*—também; *tuṣita-ādayaḥ*—Tuṣita e outros; *ūrja*—Ūrja; *stambha*—Stambha; *ādayaḥ*—e outros; *sapta*—sete; *ṛṣayaḥ*—grandes santos; *brahma-vādinaḥ*—todos fiéis devotos.
+
+**Durante o reinado de Svārociṣa, o posto de Indra foi assumido por Rocana, o filho de Yajña. Tuṣita e outros tornaram-se os principais semideuses, e Ūrja, Stambha e outros tornaram-se os sete santos. Todos eles eram fiéis devotos do Senhor.**
+
+---

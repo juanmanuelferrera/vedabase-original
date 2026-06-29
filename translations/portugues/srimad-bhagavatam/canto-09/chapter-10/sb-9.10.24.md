@@ -1,0 +1,15 @@
+### SB 9.10.24
+
+tato niṣkramya laṅkāyā
+
+yātudhānyaḥ sahasraśaḥ
+
+mandodaryā samaṁ tatra
+
+prarudantya upādravan
+
+*tataḥ*—em seguida; *niṣkramya*—saindo; *laṅkāyāḥ*—de Laṅkā; *yātudhānyaḥ*—as esposas dos Rākṣasas; *sahasraśaḥ*—aos milhares e milhares; *mandodaryā*—encabeçadas por Mandodarī, a esposa de Rāvaṇa; *samam*—com; *tatra*—ali; *prarudantyaḥ*—chorando em lamentação; *upādravan*—aproximaram-se (de seus esposos mortos).
+
+**Em seguida, todas as mulheres cujos esposos haviam tombado na batalha, encabeçadas por Mandodarī, esposa de Rāvaṇa, saíram de Laṅkā. Chorando continuamente, aproximaram-se dos cadáveres de Rāvaṇa e dos demais Rākṣasas.**
+
+---

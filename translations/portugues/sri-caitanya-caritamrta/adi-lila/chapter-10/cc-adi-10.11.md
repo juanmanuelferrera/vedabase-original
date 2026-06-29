@@ -1,0 +1,10 @@
+### CC Adi 10.11
+
+cāri bhāi sa-vaṁśe kare caitanyera sevā
+gauracandra vinā nāhi jāne devī-devā
+
+*cāri bhāi*—quatro irmãos; *sa-vaṁśe*—com todos os membros da família; *kare*—fazem; *caitanyera*—do Senhor Śrī Caitanya Mahāprabhu; *sevā*—serviço; *gauracandra*—Gaurasundara (o Senhor Caitanya Mahāprabhu); *vinā*—exceto; *nāhi jāne*—eles não conhecem; *devī*—deusa; *devā*—ou deus.
+
+**Esses quatro irmãos e os membros de sua família ocuparam-se plenamente no serviço do Senhor Caitanya. Eles não conheciam nenhum outro deus ou deusa.**
+
+Śrīla Narottama dāsa Ṭhākura disse: anya-devāśraya nāi, tomāre kahinu bhāi, ei bhakti parama-kāraṇa: se alguém deseja tornar-se um devoto puro e firme, não deve abrigar-se em nenhum dos semideuses ou semideusas. Tolos māyāvādīs dizem que adorar semideuses é tão bom quanto adorar a Suprema Personalidade de Deus, mas isso não é um fato. Esta filosofia desencaminha as pessoas para o ateísmo. Aquele que não tem ideia do que Deus realmente é pensa que qualquer forma que ele imagine, ou qualquer canalha que ele aceite, pode ser Deus. Esta aceitação de deuses baratos ou encarnações de Deus é, na verdade, ateísmo. Conclui-se, portanto, que aqueles que adoram semideuses ou autoproclamadas encarnações de Deus são todos ateus. Eles perderam seu conhecimento, como se confirma no *Bhagavad-gītā* (7.20): kāmais tais tair hṛta-jñānāḥ prapadyante 'nya-devatāḥ. "Aqueles cujas mentes estão distorcidas por desejos materiais rendem-se aos semideuses." Infelizmente, aqueles que não cultivam a consciência de Kṛṣṇa e não compreendem corretamente o conhecimento Védico aceitam qualquer canalha como uma encarnação de Deus, e são da opinião de que se pode tornar-se uma encarnação simplesmente adorando um semideus. Esta salada filosófica existe sob o nome de religião hindu, mas o movimento da consciência de Kṛṣṇa não a aprova. De fato, condenamo-la veementemente. Tal adoração de semideuses e supostas encarnações de Deus jamais deve ser confundida com o puro movimento da consciência de Kṛṣṇa.

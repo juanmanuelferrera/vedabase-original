@@ -1,0 +1,8 @@
+### CC Madhya 11.206
+
+> tabe prabhu prasādānna govinda-hāte dilā
+> yatna kari' haridāsa-ṭhākure pāṭhāilā
+
+*tabe*—a continuación; *prabhu*—Śrī Caitanya Mahāprabhu; *prasāda-anna*—remanentes de la comida de Jagannātha; *govinda-hāte*—en las manos de Govinda; *dilā*—entregó; *yatna kari'*—con gran esmero; *haridāsa-ṭhākure*—a Haridāsa Ṭhākura; *pāṭhāilā*—envió.
+
+**Después de esto, Śrī Caitanya Mahāprabhu entregó cuidadosamente algo de prasādam en las manos de Govinda para que se lo llevara a Haridāsa Ṭhākura.**

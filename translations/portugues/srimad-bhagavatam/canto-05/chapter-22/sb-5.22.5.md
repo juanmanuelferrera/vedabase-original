@@ -1,0 +1,9 @@
+### SB 5.22.5
+
+*atha sa eṣa ātmā lokānāṁ dyāv-āpṛthivyor antareṇa nabho*-valayasya kālacakra-gato dvādaśa māsān bhuṅkte rāśi-saṁjñān saṁvatsarāvayavān māsaḥ pakṣa-dvayaṁ divā naktaṁ ceti sapādarkṣa-dvayam upadiśanti yāvatā ṣaṣṭham aṁśaṁ bhuñjīta sa vai ṛtur ity upadiśyate saṁvatsarāvayavaḥ.
+
+*atha*—portanto; *saḥ*—Ele; *eṣaḥ*—este; *ātmā*—a força vital; *lokānām*—de todos os três mundos; *dyāv-ā-pṛthivyoḥ antareṇa*—entre as porções superior e inferior do universo; *nabhaḥ-valayasya*—do espaço sideral; *kāla-cakra-gataḥ*—situado na roda do tempo; *dvādaśa māsān*—doze meses; *bhuṅkte*—passa; *rāśi-saṁjñān*—nomeados em referência aos signos do zodíaco; *saṁvatsara-avayavān*—as partes do ano inteiro; *māsaḥ*—um mês; *pakṣa-dvayam*—duas quinzenas; *divā*—um dia; *naktam ca*—e uma noite; *iti*—assim; *sapāda-ṛkṣa-dvayam*—pelos cálculos estelares, duas constelações e um quarto; *upadiśanti*—instruem; *yāvatā*—pelo tempo equivalente; *ṣaṣṭham aṁśam*—um sexto de sua órbita; *bhuñjīta*—passe; *saḥ*—essa porção; *vai*—de fato; *ṛtuḥ*—uma estação; *iti*—assim; *upadiśyate*—instrui-se; *saṁvatsara-avayavaḥ*—uma parte de um ano.
+
+**O deus do sol, que é Nārāyaṇa, ou Viṣṇu, a alma de todos os mundos, está situado no espaço sideral, entre as porções superior e inferior do universo. Passando por doze meses sobre a roda do tempo, o sol entra em contato com doze signos diferentes do zodíaco e assume doze nomes distintos conforme esses signos. O conjunto desses doze meses é denominado *saṁvatsara*, ou ano inteiro. Segundo os cálculos lunares, duas quinzenas — uma da lua crescente e outra da lua minguante — formam um mês. Esse mesmo período corresponde a um dia e uma noite para o planeta Pitṛloka. Segundo os cálculos estelares, um mês equivale a duas constelações e um quarto. Quando o sol viaja por dois meses, passa-se uma estação e, por conseguinte, as mudanças sazonais são consideradas partes do corpo do ano.**
+
+---

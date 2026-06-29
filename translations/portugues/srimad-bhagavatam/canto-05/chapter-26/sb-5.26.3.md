@@ -1,0 +1,9 @@
+### SB 5.26.3
+
+*athedānīṁ pratiṣiddha*-lakṣaṇasyādharmasya tathaiva kartuḥ śraddhāyā vaisādṛśyāt karma-phalaṁ visadṛśaṁ bhavati yā hy anādy-avidyayā kṛta-kāmānāṁ tat-pariṇāma-lakṣaṇāḥ sṛtayaḥ sahasraśaḥ pravṛttās tāsāṁ prācuryeṇānuvarṇayiṣyāmaḥ.
+
+*atha*—assim; *idānīm*—agora; *pratiṣiddha*—pelo que é proibido; *lakṣaṇasya*—caracterizadas; *adharmasya*—das atividades ímpias; *tathā*—também; *eva*—certamente; *kartuḥ*—do executor; *śraddhāyāḥ*—da fé; *vaisādṛśyāt*—pela diferença; *karma-phalam*—a reação das atividades fruitivas; *visadṛśam*—diferente; *bhavati*—é; *yā*—as quais; *hi*—de fato; *anādi*—desde tempos imemoriais; *avidyayā*—pela ignorância; *kṛta*—realizados; *kāmānām*—de pessoas que possuem muitos desejos lascivos; *tat-pariṇāma-lakṣaṇāḥ*—os sintomas dos resultados de tais desejos ímpios; *sṛtayaḥ*—condições infernais de vida; *sahasraśaḥ*—aos milhares; *pravṛttāḥ*—resultantes; *tāsām*—elas; *prācuryeṇa*—de maneira ampla; *anuvarṇayiṣyāmaḥ*—explicarei.
+
+**Assim como, ao executar diversas atividades piedosas, alcançam-se diferentes posições na vida celestial, ao agir impiamente alcançam-se diferentes posições na vida infernal. Aqueles que são impelidos pelo modo material da ignorância ocupam-se em atividades ímpias, e, conforme o grau de sua ignorância, são colocados em diferentes graus de vida infernal. Se alguém age no modo da ignorância por loucura, sua miséria resultante é a menos severa. Aquele que age impiamente, mas conhece a distinção entre atividades piedosas e ímpias, é posto num inferno de severidade intermediária. E para aquele que age impia e ignorantemente em razão do ateísmo, a vida infernal resultante é a pior. Por causa da ignorância, toda entidade viva tem sido levada por diversos desejos a milhares de planetas infernais distintos desde tempos imemoriais. Tentarei descrevê-los tanto quanto possível.**
+
+---

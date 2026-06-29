@@ -1,0 +1,15 @@
+### SB 7.1.1
+
+> śrī-rājovāca
+> samaḥ priyaḥ suhṛd brahman
+> bhūtānāṁ bhagavān svayam
+> indrasyārthe kathaṁ daityān
+> avadhīd viṣamo yathā
+
+*śrī-rājā uvāca*—Mahārāja Parīkṣit dijo; *samaḥ*—ecuánime; *priyaḥ*—querido; *suhṛt*—amigo; *brahman*—¡oh, *brāhmaṇa*! (Śukadeva); *bhūtānām*—hacia todas las entidades vivientes; *bhagavān*—el Señor Supremo, Viṣṇu; *svayam*—Él mismo; *indrasya*—de Indra; *arthe*—para beneficio; *katham*—cómo; *daityān*—a los demonios; *avadhīt*—mató; *viṣamaḥ*—partidista; *yathā*—como si.
+
+**El rey Parīkṣit preguntó: Mi querido brāhmaṇa, la Suprema Personalidad de Dios, Viṣṇu, es el bienqueriente de todos, y por tanto es ecuánime y el objeto del amor de todos. ¿Por qué razón, entonces, mató a los enemigos de Indra y Se puso de parte de este, comportándose como un hombre corriente? ¿Cómo es posible que una persona ecuánime se ponga de parte de unos y en contra de otros?**
+
+En el *Bhagavad-gītā* (9.29), el Señor dice: *samo &#x27;haṁ sarva-bhūteṣu na me dveṣyo &#x27;sti na priyaḥ*: «Yo soy ecuánime con todos. Nadie Me es querido, y nadie es Mi enemigo». Sin embargo, en el canto anterior hemos visto que el Señor Se puso de parte de Indra y, por favorecerle, mató a los demonios (*hata-putrā ditiḥ śakra-pārṣṇi-grāheṇa viṣṇunā*). Es obvio que el Señor, aunque es la Superalma que está en el corazón de todos, Se puso de parte de Indra. Todo el mundo siente un profundo afecto tanto por el alma como por la Superalma. Así pues, en las actividades de la Superalma nunca puede haber error. El Señor siempre es bondadoso con todas las entidades vivientes, sin tener en cuenta su forma ni su situación; no obstante, Él Se puso de parte de Indra, como lo haría un amigo corriente. Esa fue la pregunta de Parīkṣit Mahārāja; como devoto del Señor Kṛṣṇa, sabía muy bien que Kṛṣṇa no puede ser partidista; pero cuando vio que Kṛṣṇa actuaba como enemigo de los demonios, se le plantearon algunas dudas, y, en busca de una respuesta clara, formuló esta pregunta a Śukadeva Gosvāmī.
+
+El devoto no puede aceptar que se diga que el Señor Viṣṇu manifiesta cualidades materiales. Mahārāja Parīkṣit sabía perfectamente bien que el Señor Viṣṇu es trascendental y que, por lo tanto, jamás Se ve afectado por las cualidades materiales; sin embargo, quiso confirmar su convicción escuchando de labios de la autoridad, Śukadeva Gosvāmī. Dice Śrīla Viśvanātha Cakravartī Ṭhākura: *samasya kathaṁ vaiṣamyam*: ¿Cómo puede mostrar favoritismo el Señor, que es ecuánime con todos? *Priyasya katham asureṣu prīty-abhāvaḥ*: El Señor es la Superalma, y por ello les es muy querido a todos. ¿Por qué razón tuvo entonces que mostrarse poco benévolo con los *asuras*? ¿El Señor es partidista? *Suhṛdaś ca kathaṁ teṣv asauhārdam*. El Señor dice que Él es *suhṛdaṁ sarva-bhūtānām*, el bienqueriente de todas las entidades vivientes. ¿Cómo pudo entonces manifestar preferencias y matar a los demonios? Esas son las preguntas que surgieron en el corazón de Mahārāja Parīkṣit, quien, por tanto, las planteó a Śukadeva Gosvāmī.

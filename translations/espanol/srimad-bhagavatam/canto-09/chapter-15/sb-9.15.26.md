@@ -1,0 +1,12 @@
+### SB 9.15.26
+
+> havirdhānīm ṛṣer darpān
+> narān hartum acodayat
+> te ca māhiṣmatīṁ ninyuḥ
+> sa-vatsāṁ krandatīṁ balāt
+
+*haviḥ-dhānīm*—la *kāmadhenu*; *ṛṣeḥ*—del gran sabio Jamadagni; *darpāt*—debido a que estaba envanecido de su poder material; *narān*—todos sus hombres (soldados); *hartum*—a robar o llevarse; *acodayat*—incitó; *te*—los hombres de Kārtavīryārjuna; *ca*—también; *māhiṣmatīm*—a la capital de Kārtavīryārjuna; *ninyuḥ*—llevaron; *sa-vatsām*—con el ternero; *krandatīm*—llorando; *balāt*—por ser llevados por la fuerza.
+
+**Envanecido de su poder material, Kārtavīryārjuna incitó a sus hombres a robar la kāmadhenu de Jamadagni. Llorando sin cesar, la kāmadhenu y su ternero fueron llevados por la fuerza a Māhiṣmatī, la capital de Kārtavīryārjuna.**
+
+En este verso es muy significativa la palabra *havirdhānīm*. *Havirdhānīm* se refiere a la vaca que es necesaria porque abastece de *havis*, *ghī*, para la celebración de ceremonias rituales en los sacrificios. En la vida humana, debemos educarnos en la celebración de *yajñas*. Como se nos informa en el *Bhagavad-gītā* (3.9): *yajñārthāt karmaṇo &#x27;nyatra loko &#x27;yaṁ karma-bandhanaḥ*: Si no celebramos *yajñas*, lo único que haremos será trabajar arduamente para complacer los sentidos, como los perros y los cerdos. Eso no es civilización. El ser humano debe formarse en la celebración de *yajñas*. *Yajñād bhavati parjanyaḥ*. Cuando se celebran *yajñas* con regularidad, el cielo trae lluvia en abundancia, y cuando llueve lo suficiente, la tierra es fértil y produce todo lo necesario para la vida. La importancia de los *yajñas* es, por lo tanto, fundamental, y fundamental para su realización es la mantequilla clarificada. Por consiguiente, también es fundamental brindar protección a las vacas. Es decir, si hacemos caso omiso de la civilización védica, sufriremos inevitablemente. Los supuestos eruditos y filósofos no conocen el secreto del éxito en la vida, y debido a ello tienen que sufrir en manos de *prakṛti*, la naturaleza (*prakṛteḥ kriyamāṇāni guṇaiḥ karmāṇi sarvaśaḥ*). Pero, aunque se ven forzados a sufrir, creen que la civilización está progresando (*ahaṅkāra-vimūḍhātmā kartāham iti manyate*). El movimiento para la conciencia de Kṛṣṇa tiene, por lo tanto, la misión de revivir una forma de civilización en que todo el mundo pueda ser feliz. Ese es el motivo a que obedece nuestro movimiento para la conciencia de Kṛṣṇa. *Yajñe sukhena bhavantu*.

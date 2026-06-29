@@ -1,0 +1,15 @@
+### SB 9.1.41
+
+tasyotkalo gayo rājan
+
+vimalaś ca trayaḥ sutāḥ
+
+*dakṣiṇā*-patha-rājāno
+
+*babhūvur dharma*-vatsalāḥ
+
+*tasya*—de Sudyumna; *utkalaḥ*—com o nome de Utkala; *gayaḥ*—com o nome de Gaya; *rājan*—ó rei Parīkṣit; *vimalaḥ ca*—e Vimala; *trayaḥ*—três; *sutāḥ*—filhos; *dakṣiṇā-patha*—da parte sul do mundo; *rājānaḥ*—reis; *babhūvuḥ*—tornaram-se; *dharma-vatsalāḥ*—muito religiosos.
+
+***Ó rei, Sudyumna teve três filhos muito piedosos, chamados Utkala, Gaya e Vimala, que se tornaram reis da Dakṣiṇā*-patha.**
+
+---

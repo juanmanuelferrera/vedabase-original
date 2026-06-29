@@ -1,0 +1,14 @@
+### SB 1.9.31
+
+> viśuddhayā dhāraṇayā hatāśubhas
+> tad-īkṣayaivāśu gatā-yudha-śramaḥ
+> nivṛtta-sarvendriya-vṛtti-vibhramas
+> tuṣṭāva janyaṁ visṛjañ janārdanam
+
+*viśuddhayā*—mediante la purificada; *dhāraṇayā*—meditación; *hata-aśubhaḥ*—aquel que ha reducido al mínimo las cualidades desfavorables de la existencia material; *tat*—Él; *īkṣayā*—mirando; *eva*—simplemente; *āśu*—inmediatamente; *gatā*—habiéndose ido; *yudha*—de las flechas; *śramaḥ*—fatiga; *nivṛtta*—siendo detenido; *sarva*—todos; *indriya*—sentidos; *vṛtti*—actividades; *vibhramaḥ*—estando muy dedicados; *tuṣṭāva*—oró; *janyam*—el tabernáculo material; *visṛjan*—mientras abandonaba; *janārdanam*—al controlador de los seres vivientes.
+
+**Mediante la meditación pura, contemplando al Señor Śrī Kṛṣṇa, de inmediato quedó libre de todo lo material que era de mal augurio, y se vio aliviado de todos los dolores corporales causados por las heridas de las flechas. Así, todas las actividades externas de sus sentidos cesaron al instante, y oró trascendentalmente al controlador de todos los seres vivientes, mientras abandonaba su cuerpo material.**
+
+El cuerpo material es un regalo de la energía material, que técnicamente se denomina ilusión. La identificación con el cuerpo material se debe al olvido de nuestra relación eterna con el Señor. Para un devoto puro del Señor como Bhīṣmadeva, esa ilusión se disipó tan pronto como el Señor llegó. El Señor Kṛṣṇa es como el sol, y la ilusoria energía material externa es como la oscuridad. En presencia del sol no hay ninguna posibilidad de que la oscuridad perdure. Por lo tanto, con la sola llegada del Señor Kṛṣṇa, toda la contaminación material se eliminó por completo, y Bhīṣmadeva pudo así situarse trascendentalmente al detener las actividades de los sentidos impuros en colaboración con la materia. El alma es originalmente pura, y los sentidos también lo son. A causa de la contaminación material, los sentidos asumen el papel de la imperfección y la impureza. Al revivir el contacto con el supremamente puro Señor Kṛṣṇa, los sentidos vuelven a quedar libres de las contaminaciones materiales. Bhīṣmadeva alcanzó todas estas condiciones trascendentales antes de abandonar el cuerpo material, gracias a la presencia del Señor. El Señor es el controlador y benefactor de todos los seres vivientes. Ese es el veredicto de todos los Vedas. Él es la eternidad suprema y la entidad viviente suprema entre todos los eternos seres vivientes.* Y solo Él provee de todo lo necesario a toda clase de seres vivientes. De ese modo, Él proporcionó todas las facilidades para satisfacer los deseos trascendentales de Su gran devoto Śrī Bhīṣmadeva, y este último comenzó a orar de la siguiente manera.
+
+*nityo nityānāṁ cetanaś cetanānām, eko bahūnāṁ yo vidadhāti kāmān, tam ātma-sthaṁ ye 'nupaśyanti dhīrās, teṣāṁ śāntiḥ śāśvatī netareṣām (Kaṭha Upaniṣad)

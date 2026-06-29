@@ -1,0 +1,11 @@
+### CC Madhya 25.120
+
+'abhidheya' sādhana-bhaktira śunaha vicāra
+
+sarva-jana-deśa-kāla-daśāte vyāpti yāra
+
+*abhidheya*—o meio de obter um fim; *sādhana-bhaktira*—do processo de executar o serviço devocional; *śunaha vicāra*—ouve, por favor, o procedimento; *sarva*—todas; *jana*—pessoas; *deśa*—países; *kāla*—tempos; *daśāte*—e circunstâncias; *vyāpti yāra*—que é onipenetrante.
+
+**" 'Agora, ouve de Mim, por favor, sobre o processo do serviço devocional, que é aplicável em qualquer país, para qualquer pessoa, em todos os tempos e em todas as circunstâncias.**
+
+O culto do bhāgavata-dharma pode ser difundido em todas as circunstâncias, entre todas as pessoas e em todos os países. Muitas pessoas invejosas acusam este movimento da consciência de Kṛṣṇa de arruinar a rigidez do suposto hinduísmo. Na verdade, isso não é um fato. Śrī Caitanya Mahāprabhu confirma que o serviço devocional ao Senhor — o culto do bhāgavata-dharma, que agora se difunde como o movimento Hare Kṛṣṇa — pode ser difundido em todos os países, para toda pessoa, em qualquer condição de vida e em todas as circunstâncias. O bhāgavata-dharma não restringe os devotos puros à comunidade hindu. Um devoto puro está acima de um *brāhmaṇa*; portanto, não é incompatível oferecer o cordão sagrado a devotos na Europa, na América, na Austrália, no Japão, no Canadá e assim por diante. Às vezes, esses devotos puros, que foram aceitos por Śrī Caitanya Mahāprabhu, não têm permissão para entrar em certos templos na Índia. Alguns *brāhmaṇas* e gosvāmīs de casta elevada recusam-se a tomar prasāda nos templos da Sociedade Internacional para a Consciência de Krishna. Na verdade, isto é contrário à instrução de Śrī Caitanya Mahāprabhu. Os devotos podem vir de qualquer país, e podem pertencer a qualquer credo ou raça. Com base neste verso, aqueles que são realmente devotos e seguidores de Śrī Caitanya Mahāprabhu devem aceitar devotos de todas as partes do mundo como vaiṣṇavas puros. Devem ser aceitos não artificialmente, mas de fato. Deve-se observar como estão avançados na consciência de Kṛṣṇa e como conduzem a adoração à Deidade, o saṅkīrtana e a Ratha-yātrā. Considerando todos estes pontos, uma pessoa invejosa deve abster-se de atrocidades maliciosas.

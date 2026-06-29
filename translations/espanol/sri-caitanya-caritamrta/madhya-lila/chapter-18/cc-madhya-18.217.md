@@ -1,0 +1,8 @@
+### CC Madhya 18.217
+
+> mleccha-deśa, keha kāhāṅ karaye utpāta
+> bhaṭṭācārya--paṇḍita, kahite nā jānena vāt
+
+*mleccha-deśa*—este es un país ocupado por los mahometanos; *keha*—cualquiera; *kāhāṅ*—en cualquier lugar; *karaye utpāta*—puede crear una perturbación; *bhaṭṭācārya*—Balabhadra Bhaṭṭācārya; *paṇḍita*—erudito; *kahite*—hablar; *nā jānena*—no sabe; *vāt*—el idioma.
+
+**»Este país está ocupado principalmente por los mahometanos. En cualquier lugar, alguien puede causar perturbaciones, y aunque Tu compañero Balabhadra Bhaṭṭācārya es un erudito, no sabe hablar el idioma local.»**

@@ -1,0 +1,8 @@
+### CC Madhya 10.153
+
+> eta bali' mahāprabhu bhakta-gaṇa-saṅge
+> cali' āilā brahmānanda-bhāratīra āge
+
+*eta bali'*—diciendo esto; *mahāprabhu*—Śrī Caitanya Mahāprabhu; *bhakta-gaṇa-saṅge*—con los devotos; *cali'*—caminando; *āilā*—llegó; *brahmānanda-bhāratīra*—de Brahmānanda Bhāratī; *āge*—a la presencia.
+
+**Tras decir esto, Śrī Caitanya Mahāprabhu y Sus devotos se presentaron ante Brahmānanda Bhāratī.**

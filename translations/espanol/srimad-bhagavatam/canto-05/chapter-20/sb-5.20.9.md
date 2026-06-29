@@ -1,0 +1,7 @@
+### SB 5.20.9
+
+> tad-dvīpādhipatiḥ priyavratātmajo yajñabāhuḥ sva-sutebhyaḥ saptabhyas tan-nāmāni sapta-varṣāṇi vyabhajat surocanaṁ saumanasyaṁ ramaṇakaṁ deva-varṣaṁ pāribhadram āpyāyanam avijñātam iti.
+
+*tat-dvīpa-adhipatiḥ*—el soberano de esa isla; *priyavrata-ātmajaḥ*—el hijo de Mahārajā Priyavrata; *yajña-bāhuḥ*—llamado Yajñabāhu; *sva-sutebhyaḥ*—a sus hijos; *saptabhyaḥ*—en número de siete; *tat-nāmāni*—con nombres correspondientes a los suyos; *sapta-varṣāṇi*—siete regiones; *vyabhajat*—dividió; *surocanam*—Surocana; *saumanasyam*—Saumanasya; *ramaṇakam*—Ramaṇaka; *deva-varṣam*—Deva-varṣa; *pāribhadram*—Pāribhadra; *āpyāyanam*—Āpyāyana; *avijñātam*—Avijñāta; *iti*—así.
+
+**El soberano de Śālmalīdvīpa, Yajñabāhu, el hijo de Mahārāja Priyavrata, dividió la isla en siete regiones, que entregó a sus siete hijos. Cada una de ellas lleva el nombre de uno de los hijos: Surocana, Saumanasya, Ramaṇaka, Deva-varṣa, Pāribhadra, Āpyāyana y Avijñāta.**

@@ -1,0 +1,25 @@
+### SB 2.4.21
+
+*yad*-aṅghry-abhidhyāna-samādhi-dhautayā
+
+dhiyānupaśyanti hi tattvam ātmanaḥ
+
+*vadanti caitat kavayo yathā*-rucaṁ
+
+sa me mukundo bhagavān prasīdatām
+
+*yat-aṅghri*—cujos pés de lótus; *abhidhyāna*—pensando em, a cada segundo; *samādhi*—transe; *dhautayā*—sendo lavado; *dhiyā*—por tal inteligência pura; *anupaśyanti*—vê seguindo as autoridades; *hi*—certamente; *tattvam*—a Verdade Absoluta; *ātmanaḥ*—do Senhor Supremo e de si mesmo; *vadanti*—eles dizem; *ca*—também; *etat*—isto; *kavayaḥ*—filósofos ou estudiosos eruditos; *yathā-rucam*—como pensa; *saḥ*—Ele; *me*—meu; *mukundaḥ*—o Senhor Kṛṣṇa (que concede a liberação); *bhagavān*—a Personalidade de Deus; *prasīdatām*—sede complacente comigo.
+
+**É a Personalidade de Deus Śrī Kṛṣṇa quem concede a liberação. Pensando em Seus pés de lótus a cada segundo, o devoto em transe pode ver a Verdade Absoluta seguindo as pegadas das autoridades, ao passo que os eruditos especuladores mentais pensam nEle conforme seus caprichos. Que o Senhor Se agrade de mim.**
+
+Os yogīs místicos, após um árduo esforço para controlar os sentidos, podem situar-se num transe de yoga apenas para terem uma visão da Superalma dentro de todos; o devoto puro, porém, pelo simples fato de lembrar-se dos pés de lótus do Senhor a cada segundo, situa-se de imediato em verdadeiro transe, pois, mediante tal compreensão, sua mente e sua inteligência ficam completamente purificadas das doenças do gozo material. O devoto puro considera-se caído no oceano do nascimento e da morte e ora incessantemente ao Senhor para que o erga. Ele aspira apenas a tornar-se uma partícula de poeira transcendental aos pés de lótus do Senhor. Pela graça do Senhor, o devoto puro perde por completo toda a atração pelo gozo material e, para manter-se livre da contaminação, pensa sempre nos pés de lótus do Senhor. O rei Kulaśekhara, um grande devoto do Senhor, orou:
+
+kṛṣṇa tvadīya-pada-paṅkaja-pañjarāntam adyaiva me viśatu mānasa-rāja-haṁsaḥ
+
+prāṇa-prayāṇa-samaye kapha-vāta-pittaiḥ kaṇṭhāvarodhanavidhau smaraṇaṁ kutas te
+
+"Meu Senhor Kṛṣṇa, oro para que o cisne de minha mente mergulhe imediatamente nos caules dos pés de lótus de Vossa Senhoria e fique aprisionado em sua rede; do contrário, no momento de meu último suspiro, quando minha garganta estiver entupida de tosse, como me será possível pensar em Vós?"
+
+Há uma relação íntima entre o cisne e o caule do lótus. A comparação, portanto, é muito apropriada: sem tornar-se um cisne, ou paramahaṁsa, ninguém pode penetrar na rede dos pés de lótus do Senhor. Os especuladores mentais, como se afirma na Brahma-saṁhitā, mesmo com toda a sua erudição, não conseguem nem mesmo sonhar com a Verdade Absoluta, ainda que especulem sobre ela por toda a eternidade. O Senhor reserva para Si o direito de não Se expor a tais especuladores mentais. E, como não conseguem penetrar no caule-rede dos pés de lótus do Senhor, todos os especuladores mentais divergem em suas conclusões, e, ao final, fazem um inútil acordo dizendo "quantas conclusões, tantos caminhos", de acordo com a própria inclinação de cada um (yathā-rucam). O Senhor, contudo, não é como um lojista que tenta agradar a toda sorte de fregueses na bolsa de valores dos especuladores mentais. O Senhor é o que é, a absoluta Personalidade de Deus, e Ele exige a rendição absoluta unicamente a Ele. O devoto puro, todavia, seguindo os passos dos ācāryas ou autoridades anteriores, pode ver o Senhor Supremo por intermédio do meio transparente de um mestre espiritual genuíno (anupaśyanti). O devoto puro jamais tenta ver o Senhor mediante especulação mental, mas sim seguindo as pegadas dos ācāryas (mahājano yena gataḥ sa panthā). Por conseguinte, não há divergência de conclusões entre os ācāryas vaiṣṇavas no que se refere ao Senhor e aos devotos. O Senhor Caitanya afirma que a entidade viva (jīva) é eternamente serva do Senhor e que ela é, simultaneamente, una e diferente do Senhor. Esse tattva do Senhor Caitanya é partilhado por todos os quatro sampradāyas da escola vaiṣṇava (que aceitam a eterna servidão ao Senhor mesmo após a salvação), e não existe nenhum ācārya vaiṣṇava autorizado que possa pensar no Senhor e em si mesmo como uma só coisa.
+
+Essa humildade do devoto puro, que se ocupa cem por cento no serviço do Senhor, coloca o devoto do Senhor em transe para compreender tudo, pois, ao devoto sincero do Senhor, o Senhor Se revela, como se afirma no Bhagavad-gītā (Bg. 10.10). O Senhor, sendo o Senhor da inteligência em todos (mesmo no não-devoto), favorece Seu devoto com a inteligência apropriada, de modo que o devoto puro é automaticamente iluminado com a verdade factual a respeito do Senhor e de Suas diferentes energias. O Senhor não Se revela pelo poder especulativo de ninguém nem pelos malabarismos verbais de quem quer que seja em torno da Verdade Absoluta. Ao contrário, Ele Se revela a um devoto quando fica plenamente satisfeito com sua atitude de serviço. Śukadeva Gosvāmī não é um especulador mental nem alguém que faça concessões à teoria de "tantos caminhos, tantas conclusões", mas ora unicamente ao Senhor, invocando Seu prazer transcendental. Esse é o modo de conhecer o Senhor.

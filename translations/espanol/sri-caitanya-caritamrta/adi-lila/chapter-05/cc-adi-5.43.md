@@ -1,0 +1,8 @@
+### CC Adi 5.43
+
+> cic-chakti-vilāsa eka--'śuddha-sattva' nāma
+> śuddha-sattva-maya yata vaikuṇṭhādi-dhāma
+
+*cit-śakti-vilāsa*—pasatiempos en la energía espiritual; *eka*—uno; *śuddha-sattva nāma*—denominado śuddha-sattva, existencia pura, libre de contaminación material; *śuddha-sattva-maya*—de existencia puramente espiritual; *yata*—todas; *vaikuṇṭha-ādi-dhāma*—las moradas espirituales, conocidas como Vaikuṇṭhas.
+
+**Una variedad de los pasatiempos de la energía espiritual se describe como bondad pura [viśuddha-sattva]. Comprende todas las moradas de Vaikuṇṭha.**

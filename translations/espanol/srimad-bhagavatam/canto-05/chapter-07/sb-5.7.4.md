@@ -1,0 +1,9 @@
+### SB 5.7.4
+
+> sa bahuvin mahī-patiḥ pitṛ-pitāmahavad uru-vatsalatayā sve sve karmaṇi vartamānāḥ prajāḥ sva-dharmam anuvartamānaḥ paryapālayat.
+
+*saḥ*—ese rey (Mahārāja Bharata); *bahu-vit*—muy avanzado en conocimiento; *mahī-patiḥ*—el gobernante de la Tierra; *pitṛ*—padre; *pitāmaha*—abuelo; *vat*—exactamente como; *uru-vatsalatayā*—con la cualidad de ser muy afectuoso con los súbditos; *sve sve*—en los suyos propios; *karmaṇi*—deberes; *vartamānāḥ*—permanecer; *prajāḥ*—los súbditos; *sva-dharmam anuvartamānaḥ*—perfectamente establecidos en su propio deber prescrito; *paryapālayat*—gobernó.
+
+**En el gobierno de la Tierra, Mahārāja Bharata fue un rey muy sabio y experimentado, que gobernó a sus súbditos perfectamente, mientras él mismo cumplía con sus propios deberes. Mahārāja Bharata fue tan afectuoso con sus súbditos como lo habían sido su padre y su abuelo, y los gobernó manteniéndolos ocupados en sus deberes prescritos.**
+
+Es de suma importancia que el jefe ejecutivo gobierne a sus súbditos manteniéndoles plenamente ocupados en los deberes propios de sus respectivas ocupaciones. Algunos ciudadanos eran *brāhmaṇas,* mientras que otros eran*kṣatriyas, vaiśyas* o *śūdras.* El gobierno tiene el deber de velar porque los ciudadanos actúen conforme a esas divisiones materiales establecidas para su avance espiritual. Nadie debe permanecer desocupado o sin empleo. En el sendero material, todos deben actuar como *brāhmaṇas, kṣatriyas, vaiśyas* o *śūdras,* y en el sendero espiritual, todos deben actuar como*brahmacārīs, gṛhasthas, vānaprasthas* o *sannyāsīs.* En el pasado, la forma de gobierno era la monarquía, pero los reyes eran muy afectuosos con sus súbditos, y les mantenían estrictamente ocupados en sus respectivos deberes. Como consecuencia, en la sociedad reinaba la armonía.

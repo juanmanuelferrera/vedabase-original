@@ -1,0 +1,9 @@
+### CC Madhya 14.115
+
+kāśī-miśra prabhure bahu ādara kariyā
+
+svagaṇa-saha bhāla-sthāne vasāila lañā
+
+*kāśī-miśra*—Kāśī Miśra; *prabhure*—a Śrī Caitanya Mahāprabhu; *bahu*—muito; *ādara kariyā*—prestando respeito; *sva-gaṇa-saha*—com Seus associados; *bhāla-sthāne*—num belo lugar; *vasāila*—fez sentar; *lañā*—levando.
+
+**Kāśī Miśra recebeu Caitanya Mahāprabhu com grande respeito e, levando o Senhor e Seus associados a um belíssimo lugar, fê-los sentar.**

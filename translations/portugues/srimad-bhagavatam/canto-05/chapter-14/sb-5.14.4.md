@@ -1,0 +1,11 @@
+### SB 5.14.4
+
+*yathā hy anuvatsaraṁ kṛṣyamāṇam apy adagdha*-bījaṁ kṣetraṁ punar evāvapana-kāle gulma-tṛṇa-vīrudbhir gahvaram iva bhavaty evam eva gṛhāśramaḥ karma-kṣetraṁ yasmin na hi karmāṇy utsīdanti yad ayaṁ kāma-karaṇḍa eṣa āvasathaḥ.
+
+*yathā*—assim como; *hi*—certamente; *anuvatsaram*—todos os anos; *kṛṣyamāṇam*—sendo arado; *api*—embora; *adagdha-bījam*—em que as sementes não são queimadas; *kṣetram*—o campo; *punaḥ*—novamente; *eva*—certamente; *āvapana-kāle*—nos momentos de semear as sementes; *gulma*—por arbustos; *tṛṇa*—por ervas; *vīrudbhiḥ*—pelas trepadeiras; *gahvaram iva*—como um caramanchão; *bhavati*—torna-se; *evam*—assim; *eva*—certamente; *gṛha-āśramaḥ*—a vida familiar; *karma-kṣetram*—o campo de atividades; *yasmin*—no qual; *na*—não; *hi*—certamente; *karmāṇi utsīdanti*—as atividades fruitivas desaparecem; *yat*—portanto; *ayam*—esta; *kāma-karaṇḍaḥ*—o depósito do desejo fruitivo; *eṣaḥ*—esta; *āvasathaḥ*—morada.
+
+**Todos os anos, o lavrador ara seu campo de grãos, arrancando completamente todas as ervas daninhas. Não obstante, as sementes ali permanecem e, não sendo completamente queimadas, brotam novamente com as plantas semeadas no campo. Mesmo depois de aradas, as ervas daninhas brotam de modo denso. De modo semelhante, o *gṛhastha-āśrama* [vida familiar] é um campo de atividade fruitiva. A não ser que o desejo de desfrutar a vida familiar seja completamente queimado, ele cresce repetidamente. Embora a cânfora possa ser retirada de um pote, o pote, ainda assim, retém o aroma da cânfora. Enquanto as sementes do desejo não forem destruídas, as atividades fruitivas não serão destruídas.**
+
+A menos que os desejos da pessoa sejam completamente transferidos para o serviço à Suprema Personalidade de Deus, o desejo da vida familiar continua, mesmo depois de ela ter aceitado o *sannyāsa*. Às vezes, em nossa sociedade, ISKCON, uma pessoa, por sentimentalismo, pode aceitar o *sannyāsa*, mas, como seus desejos não são queimados por completo, ela retoma a vida familiar, mesmo correndo o risco de perder seu prestígio e manchar seu bom nome. Esses fortes desejos podem ser inteiramente queimados quando alguém se ocupa plenamente no serviço ao Senhor em serviço devocional.
+
+---

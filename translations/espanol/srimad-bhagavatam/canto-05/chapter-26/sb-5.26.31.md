@@ -1,0 +1,7 @@
+### SB 5.26.31
+
+> ye tv iha vai puruṣāḥ puruṣa-medhena yajante yāś ca striyo nṛ-paśūn khādanti tāṁś ca te paśava iva nihatā yama-sadane yātayanto rakṣo-gaṇāḥ saunikā iva svadhitināvadāyāsṛk pibanti nṛtyanti ca gāyanti ca hṛṣyamāṇā yatheha puruṣādāḥ.
+
+*ye*—personas que; *tu*—pero; *iha*—en esta vida; *vai*—en verdad; *puruṣāḥ*—hombres; *puruṣa-medhena*—con un sacrificio humano; *yajante*—adoran (a la diosa Kālī o Bhadra Kālī); *yāḥ*—aquellos que; *ca*—y; *striyaḥ*—mujeres; *nṛ-paśūn*—a los hombres víctimas del sacrificio; *khādanti*—comen; *tān*—a ellos; *ca*—y; *te*—ellos; *paśavaḥ iva*—como los animales; *nihatāḥ*—matados; *yama-sadane*—en la morada de Yamarāja; *yātayantaḥ*—castigando; *rakṣaḥ-gaṇāḥ*—como *rākṣasas*; *saunikāḥ*—los que mataron; *iva*—como; *svadhitinā*—con una espada; *avadāya*—cortando en pedazos; *asṛk*—la sangre; *pibanti*—beben; *nṛtyanti*—bailan; *ca*—y; *gāyanti*—cantan; *ca*—también; *hṛṣyamāṇāḥ*—deleitándose; *yathā*—tal como; *iha*—en este mundo; *puruṣa-adāḥ*—los caníbales.
+
+**En este mundo hay hombres y mujeres que sacrifican seres humanos ante Bhairava, Bhadra Kālī, para luego comer la carne de sus víctimas. Después de morir, los ejecutores de esos sacrificios son llevados a la morada de Yamarāja, donde sus víctimas, en cuerpo de rākṣasa, les cortan en pedazos con sus afiladas espadas. Del mismo modo que los caníbales de este mundo bailan y cantan llenos de júbilo mientras beben la sangre de sus víctimas, esos rākṣasas disfrutan bebiendo la sangre de quienes les sacrificaron y lo festejan del mismo modo.**

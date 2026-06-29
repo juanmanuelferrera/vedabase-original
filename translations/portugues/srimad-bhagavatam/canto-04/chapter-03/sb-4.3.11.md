@@ -1,0 +1,15 @@
+### SB 4.3.11
+
+*tvayy etad āścaryam ajātma*-māyayā
+
+*vinirmitaṁ bhāti guṇa*-trayātmakam
+
+*tathāpy ahaṁ yoṣid atattva*-vic ca te
+
+*dīnā didṛkṣe bhava me bhava*-kṣitim
+
+*tvayi*—em você; *etat*—isto; *āścaryam*—maravilhoso; *aja*—ó Senhor Śiva; *ātma-māyayā*—pela energia externa do Senhor Supremo; *vinirmitam*—criado; *bhāti*—parece; *guṇa-traya-ātmakam*—sendo uma interação dos três modos da natureza material; *tathā api*—mesmo assim; *aham*—eu; *yoṣit*—mulher; *atattva-vit*—não versada na verdade; *ca*—e; *te*—sua; *dīnā*—pobre; *didṛkṣe*—desejo ver; *bhava*—ó Senhor Śiva; *me*—meu; *bhava-kṣitim*—lugar de nascimento.
+
+**Embora esta manifestação cósmica seja uma criação maravilhosa da interação dos três modos materiais, ou seja, da energia externa do Senhor Supremo, a verdade é plenamente conhecida por ti. Contudo, não passo de uma pobre mulher e, como sabes, não tenho familiaridade com a verdade. Por isso, desejo ver mais uma vez meu local de nascimento.**
+
+Dākṣāyaṇī, Satī, sabia muito bem que seu esposo, o Senhor Śiva, não se interessava muito pela reluzente manifestação do mundo material, que é causada pela interação dos três modos da natureza. Por isso, ela se dirigiu a seu esposo como aja, aquele que transcendeu o cativeiro do nascimento e da morte, ou aquele que percebeu sua posição eterna. Ela declarou: "A ilusão de aceitar como real o reflexo pervertido, a manifestação material ou cósmica, não está presente em ti, porque és autorrealizado. Para ti, já se acabou a atração da vida social e a consideração de que alguém é pai, alguém é mãe e alguém é irmã, que são relações ilusórias; mas, por ser uma pobre mulher, não estou tão avançada em realização transcendental. Naturalmente, portanto, essas coisas me parecem reais." Apenas as pessoas menos inteligentes aceitam como real este reflexo pervertido do mundo espiritual. Aqueles que estão sob o feitiço da energia externa aceitam esta manifestação como fato, ao passo que aqueles que estão avançados em realização espiritual sabem que ela é ilusão. A realidade verdadeira está em outro lugar, no mundo espiritual. "Mas, no que me concerne", disse Satī, "não tenho muito conhecimento sobre a autorrealização. Sou pobre porque não conheço os verdadeiros fatos. Sinto-me atraída por meu local de nascimento, e quero vê-lo." Aquele que tem atração por seu local de nascimento, por seu corpo e por outros itens semelhantes mencionados no Bhāgavatam é considerado como um asno ou uma vaca. Satī poderia ter ouvido tudo isso muitas vezes de seu esposo, o Senhor Śiva, mas, por ser mulher, yoṣit, ela ainda ansiava pelos mesmos objetos materiais de afeição. A palavra yoṣit significa "aquela de quem se desfruta". Por isso, a mulher se chama yoṣit. No avanço espiritual, a associação com yoṣit é sempre restrita, pois, se alguém é como uma boneca de brinquedo nas mãos de yoṣit, então todo o seu avanço espiritual é imediatamente detido. Diz-se: "Aqueles que são como meros brinquedos nas mãos de uma mulher não podem fazer nenhum avanço em realização espiritual."

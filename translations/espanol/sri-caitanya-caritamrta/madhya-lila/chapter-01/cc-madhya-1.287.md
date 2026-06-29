@@ -1,0 +1,10 @@
+### CC Madhya 1.287
+
+> śrī-rūpa-raghunātha-pade yāra āśa
+> caitanya-caritāmṛta kahe kṛṣṇadāsa
+
+*śrī-rūpa*—Śrīla Rūpa Gosvāmī; *raghunātha*—Śrīla Raghunātha dāsa Gosvāmī; *pade*—a los pies de loto; *yāra*—cuya; *āśa*—esperanza; *caitanya-caritāmṛta*—el libro llamado Caitanya-caritāmṛta; *kahe*—narra; *kṛṣṇadāsa*—Śrīla Kṛṣṇadāsa Kavirāja Gosvāmī.
+
+**Orando a los pies de loto de Śrī Rūpa y Śrī Raghunātha, deseando siempre su misericordia, yo, Kṛṣṇadāsa, narro el Śrī Caitanya-caritāmṛta, siguiendo sus huellas.**
+
+*Así concluyen los significados Bhaktivedanta del Śrī Caitanya-caritāmṛta, Madhya-līlā, Capítulo Uno, que resume los pasatiempos posteriores del Señor Śrī Caitanya Mahāprabhu.*

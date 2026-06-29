@@ -1,0 +1,21 @@
+### SB 1.3.1
+
+sūta uvāca
+
+jagṛhe pauruṣaṁ rūpaṁ
+
+bhagavān mahad-ādibhiḥ
+
+*sambhūtaṁ ṣoḍaśa*-kalam
+
+*ādau loka*-sisṛkṣayā
+
+*sūtaḥ uvāca*—Sūta disse; *jagṛhe*—aceitou; *pauruṣam*—porção plenária como a encarnação puruṣa; *rūpam*—forma; *bhagavān*—a Personalidade de Deus; *mahat-ādibhiḥ*—com os ingredientes do mundo material; *sambhūtam*—assim houve a criação de; *ṣoḍaśa-kalam*—dezesseis princípios primários; *ādau*—no princípio; *loka*—os universos; *sisṛkṣayā*—com a intenção de criar.
+
+**Sūta disse: No princípio da criação, o Senhor Se expandiu pela primeira vez na forma universal da encarnação puruṣa e manifestou todos os ingredientes para a criação material. Assim, em primeiro lugar, houve a criação dos dezesseis princípios da ação material. Isso teve como propósito a criação do universo material.**
+
+O Bhagavad-gītā afirma que a Personalidade de Deus, Śrī Kṛṣṇa, mantém estes universos materiais estendendo Suas expansões plenárias.
+
+Assim, esta forma puruṣa é a confirmação do mesmo princípio. A Personalidade de Deus original, Vāsudeva, ou o Senhor Kṛṣṇa, que é famoso como o filho do rei Vāsudeva ou do rei Nanda, é pleno de todas as opulências, todas as potências, todas as famas, todas as belezas, todo o conhecimento e toda a renúncia. Parte de Suas opulências manifesta-se como Brahman impessoal, e parte de Suas opulências manifesta-se como Paramātmā. Este aspecto puruṣa da mesma Personalidade de Deus, Śrī Kṛṣṇa, é a manifestação Paramātmā original do Senhor. Há três aspectos puruṣa na criação material, e esta forma, que é conhecida como o Kāraṇodakaśāyī Viṣṇu, é o primeiro dos três. Os outros são conhecidos como o Garbhodakaśāyī Viṣṇu e o Kṣīrodakaśāyī Viṣṇu, que conheceremos um após o outro. Os inumeráveis universos são gerados a partir dos poros da pele deste Kāraṇodakaśāyī Viṣṇu, e em cada um dos universos o Senhor entra como Garbhodakaśāyī Viṣṇu.
+
+No Bhagavad-gītā, também se menciona que o mundo material é criado em certos intervalos e, então, novamente destruído. Essa criação e destruição é feita pela vontade suprema, por causa das almas condicionadas, ou dos seres vivos nitya-badhya. As nitya-badhya, ou as almas eternamente condicionadas, têm o sentido de individualidade, ou ahaṅkāra, que lhes dita o gozo dos sentidos, que elas são incapazes de ter constitucionalmente. O Senhor é o único desfrutador, e todos os demais são desfrutados. Os seres vivos são desfrutadores dominados. Mas as almas eternamente condicionadas, esquecidas dessa posição constitucional, têm fortes aspirações de desfrutar. Essa oportunidade de desfrutar a matéria é dada às almas condicionadas no mundo material e, paralelamente, é-lhes dada a oportunidade de compreender sua verdadeira posição constitucional. Aquelas afortunadas entidades vivas que captam a verdade e se rendem aos pés de lótus de Vāsudeva, após muitíssimos nascimentos no mundo material, juntam-se às almas eternamente liberadas e, assim, são autorizadas a entrar no reino de Deus. Depois disso, tais afortunadas entidades vivas não precisam voltar à criação material ocasional. Mas aquelas que não conseguem captar a verdade constitucional são novamente fundidas no mahat-tattva por ocasião da aniquilação da criação material. Quando a criação é novamente estabelecida, este mahat-tattva é novamente liberado. Este mahat-tattva contém todos os ingredientes das manifestações materiais, incluindo as almas condicionadas. Primariamente, este mahat-tattva divide-se em dezesseis partes, a saber, os cinco elementos materiais grosseiros e os onze instrumentos de trabalho, ou sentidos. É como a nuvem no céu límpido. No céu espiritual, a refulgência do Brahman espalha-se por toda parte, e todo o sistema reluz em luz espiritual. O mahat-tattva está reunido em algum canto do vasto e ilimitado céu espiritual, e a parte que é assim coberta pelo mahat-tattva chama-se o céu material. Esta parte do céu espiritual, chamada o mahat-tattva, é apenas uma porção insignificante de todo o céu espiritual, e dentro deste mahat-tattva há inumeráveis universos. Todos esses universos são coletivamente produzidos pelo Kāraṇodakaśāyī Viṣṇu, também chamado de Mahā-Viṣṇu, que simplesmente lança Seu olhar para fecundar o céu material.

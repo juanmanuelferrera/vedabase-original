@@ -1,0 +1,8 @@
+### CC Madhya 14.234
+
+> cāri sampradāya gāna kari' bahu śrānta haila
+> mahāprabhura premāveśa dviguṇa bāḍila
+
+*cāri sampradāya*—cuatro grupos de los grupos de saṅkīrtana; *gāna kari'*—después de cantar; *bahu*—mucho; *śrānta haila*—se fatigaron; *mahāprabhura*—de Śrī Caitanya Mahāprabhu; *prema-āveśa*—el amor extático; *dvi-guṇa*—el doble; *bāḍila*—aumentó.
+
+**Después de cantar largo rato, los cuatro grupos de saṅkīrtana se fatigaron, pero el amor extático de Śrī Caitanya Mahāprabhu se duplicó.**

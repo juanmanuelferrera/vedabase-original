@@ -1,0 +1,10 @@
+### SB 8.15.23
+
+> tāṁ deva-dhānīṁ sa varūthinī-patir
+> bahiḥ samantād rurudhe pṛtanyayā
+> ācārya-dattaṁ jalajaṁ mahā-svanaṁ
+> dadhmau prayuñjan bhayam indra-yoṣitām
+
+*tām*—a ese; *deva-dhānīm*—lugar en que vivía Indra; *saḥ*—él (Bali Mahārāja); *varūthinī-patiḥ*—el general de los soldados; *bahiḥ*—fuera; *samantāt*—en todas direcciones; *rurudhe*—atacó; *pṛtanyayā*—con soldados; *ācārya-dattam*—dada por Śukrācārya; *jala-jam*—la caracola; *mahā-svanam*—un poderoso sonido; *dadhmau*—resonó; *prayuñjan*—crear; *bhayam*—miedo; *indra-yoṣitām*—de todas las damas protegidas por Indra.
+
+**Al mando de infinidad de soldados, Bali Mahārāja llegó con sus ejércitos ante las puertas de la morada de Indra y la atacó desde todos los flancos. El sonido de la caracola que había recibido de Śukrācārya, su maestro espiritual, sembró el pánico entre las mujeres protegidas por Indra.**

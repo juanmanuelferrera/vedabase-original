@@ -1,0 +1,14 @@
+### SB 4.20.11
+
+> udāsīnam ivādhyakṣaṁ
+> dravya-jñāna-kriyātmanām
+> kūṭa-stham imam ātmānaṁ
+> yo vedāpnoti śobhanam
+
+*udāsīnam*—indiferente; *iva*—simplemente; *adhyakṣam*—el superintendente; *dravya*—de los elementos físicos; *jñāna*—sentidos para adquirir conocimiento; *kriyā*—sentidos de trabajo; *ātmanām*—y de la mente; *kūṭa-stham*—fija; *imam*—esta; *ātmānam*—alma; *yaḥ*—todo el que; *veda*—sabe; *āpnoti*—obtiene; *śobhanam*—toda buena fortuna.
+
+**Todo el que sabe que el cuerpo material, que está compuesto de cinco elementos densos, los órganos de los sentidos, los sentidos de trabajo y la mente, actúa simplemente bajo la supervisión del alma inmutable es un candidato para la liberación del cautiverio material.**
+
+Este verso describe cómo uno puede liberarse del cautiverio material. El primer punto es que uno debe saber que el alma es diferente del cuerpo. El alma se denomina dehī, o aquel que posee el cuerpo, y el cuerpo material se denomina deha, o la encarnación del alma. El cuerpo cambia a cada instante, pero el alma es fija; por consiguiente, al alma se la denomina kūṭastham. El cambio de cuerpo lo provocan las reacciones de las tres modalidades de la naturaleza. Aquel que ha comprendido la posición fija del alma no debe perturbarse por las interacciones que entran y salen, en forma de felicidad y aflicción, de las modalidades de la naturaleza material. También en el Bhagavad-gītā el Señor Kṛṣṇa recomienda que, puesto que la felicidad y la aflicción van y vienen debido a la interacción de las modalidades de la naturaleza sobre el cuerpo, uno no debe perturbarse por esos movimientos externos. Aunque a veces uno se vea absorto en esos movimientos externos, ha de aprender a tolerarlos. La entidad viviente siempre debe permanecer indiferente a la acción y reacción del cuerpo externo.
+
+El Señor Kṛṣṇa dice en el Bhagavad-gītā que el cuerpo, hecho de los elementos físicos densos (tierra, agua, fuego, aire y éter) y los elementos sutiles (mente, inteligencia y ego), es completamente diferente del alma propiamente dicha. Por lo tanto, uno no debe perturbarse por la acción y reacción de estos ocho elementos materiales densos y sutiles. El proceso práctico para alcanzar esta etapa de indiferencia consiste en ejecutar servicio devocional. Solo aquel que se ocupa constantemente en servicio devocional las veinticuatro horas del día puede permanecer indiferente a la acción y reacción del cuerpo externo. Cuando un hombre está absorto en un pensamiento determinado, no oye ni ve ninguna actividad externa, aunque se realice en su presencia. De manera similar, aquellos que están plenamente absortos en servicio devocional no se preocupan por lo que ocurre con el cuerpo externo. Ese estado se denomina samādhi. De aquel que está verdaderamente situado en samādhi se entiende que es un yogī de primera categoría.

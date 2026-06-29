@@ -1,0 +1,12 @@
+### SB 1.1.21
+
+> kalim āgatam ājñāya
+> kṣetre 'smin vaiṣṇave vayam
+> āsīnā dīrgha-satreṇa
+> kathāyāṁ sakṣaṇā hareḥ
+
+*kalim*—la era de Kali (era de hierro y riña); *āgatam*—habiendo llegado; *ājñāya*—sabiendo esto; *kṣetre*—en esta extensión de tierra; *asmin*—en esta; *vaiṣṇave*—especialmente dirigido al devoto del Señor; *vayam*—nosotros; *āsīnāḥ*—sentados; *dīrgha*—prolongado; *satreṇa*—para la ejecución de sacrificios; *kathāyām*—en las palabras de; *sa-kṣaṇāḥ*—con el tiempo a nuestra disposición; *hareḥ*—de la Personalidad de Dios.
+
+**Sabiendo bien que la era de Kali ya ha comenzado, estamos reunidos aquí, en este santo lugar, para oír con gran detalle el trascendental mensaje de Dios y, de esta manera, realizar sacrificio.**
+
+Esta era de Kali no es en absoluto adecuada para la autorrealización, como sí lo era Satya-yuga, la era dorada, o las eras de Tretā y Dvāpara, las eras de plata y de cobre. Para la autorrealización, la gente de Satya-yuga, que vivía una existencia de cien mil años, era capaz de realizar prolongada meditación. Y en Tretā-yuga, cuando la duración de la vida era de diez mil años, la autorrealización se alcanzaba mediante la ejecución de grandes sacrificios. Y en Dvāpara-yuga, cuando la duración de la vida era de mil años, la autorrealización se alcanzaba mediante la adoración del Señor. Pero en Kali-yuga, siendo la duración máxima de la vida de tan solo cien años, y eso combinado con diversas dificultades, el proceso de autorrealización que se recomienda es el de oír y cantar el santo nombre, la fama y los pasatiempos del Señor. Los sabios de Naimiṣāraṇya iniciaron este proceso para los devotos del Señor. De modo que se prepararon para oír los pasatiempos del Señor durante un período de mil años. Por el ejemplo de estos sabios, uno debe aprender que oír y recitar regularmente el Bhāgavatam es la única manera de lograr la autorrealización. Otros intentos no son sino una pérdida de tiempo, pues no dan ningún resultado tangible. El Señor Śrī Caitanya Mahāprabhu predicó este sistema de Bhāgavata-dharma, y recomendó que todos aquellos que hubieran nacido en la India asumieran la responsabilidad de difundir los mensajes del Señor Śrī Kṛṣṇa, principalmente el mensaje del Bhagavad-gītā. Y cuando uno está bien establecido en las enseñanzas del Bhagavad-gītā, puede emprender el estudio del Śrīmad-Bhāgavatam para una mayor iluminación en la autorrealización.

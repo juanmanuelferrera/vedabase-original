@@ -1,0 +1,8 @@
+### CC Madhya 19.235
+
+> ei bhakti-rasera karilāṅa, dig-daraśana
+> ihāra vistāra mane kariha bhāvana
+
+*ei*—este; *bhakti-rasera*—de los sentimientos del servicio devocional; *karilāṅa*—he descrito; *dik-daraśana*—panorama general; *ihāra*—de esto; *vistāra*—expansión; *mane*—dentro de la mente; *kariha*—debes hacer; *bhāvana*—consideración.
+
+**Śrī Caitanya Mahāprabhu concluyó entonces: «Simplemente he ofrecido una descripción general de los *mellows* del servicio devocional. Tú puedes considerar cómo ajustar y ampliar esto.»**
