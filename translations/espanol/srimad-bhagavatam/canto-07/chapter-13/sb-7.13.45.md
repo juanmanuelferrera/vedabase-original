@@ -1,5 +1,8 @@
 ### SB 7.13.45
 
+> स्वात्मवृत्तं मयेत्थं ते सुगुप्तमपि वर्णितम
+> व्यपेतं लोकशास्त्राभ्यां भवान्हि भगवत्परः ॥४५॥
+
 > svātma-vṛttaṁ mayetthaṁ te
 > suguptam api varṇitam
 > vyapetaṁ loka-śāstrābhyāṁ

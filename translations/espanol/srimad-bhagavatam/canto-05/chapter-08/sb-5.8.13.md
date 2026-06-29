@@ -1,5 +1,7 @@
 ### SB 5.8.13
 
+> पथिषु च मुग्धभावेन तत्र तत्र विषक्तमतिप्रणयभरहृदयःकार्पण्यात्स्कन्धेनोद्वहति एवमुत्सङ्ग उरसि चाधायोपलालयन्मुदं परमामवाप ॥१३॥
+
 > pathiṣu ca mugdha-bhāvena tatra tatra viṣakta-mati-praṇaya-bhara-hṛdayaḥ kārpaṇyāt skandhenodvahati evam utsaṅga urasi cādhāyopalālayan mudaṁ paramām avāpa.
 
 *pathiṣu*—por los senderos del bosque; *ca*—también; *mugdha-bhāvena*—por la actitud juguetona del ciervo; *tatra tatra*—aquí y allí; *viṣakta-mati*—cuya mente estaba demasiado atraída; *praṇaya*—con amor; *bhara*—cargado; *hṛdayaḥ*—cuyo corazón; *kārpaṇyāt*—por amor y afecto; *skandhena*—a hombros; *udvahati*—lleva; *evam*—de este modo; *utsaṅge*—a veces en el regazo; *urasi*—sobre el pecho mientras duerme; *ca*—también; *ādhāya*—mantener; *upalālayan*—mimar; *mudam*—placer; *paramām*—muy grande; *avāpa*—sentía.

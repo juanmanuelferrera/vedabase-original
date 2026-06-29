@@ -1,5 +1,8 @@
 ### CC Antya 6.301
 
+> ‘প্রভুর স্বহস্ত-দত্ত গোবর্ধন-শিলা ।
+> এই চিন্তি’ রঘুনাথ প্রেমে ভাসি’ গেলা ॥৩০১॥
+
 > 'prabhura svahasta-datta govardhana-śilā
 > ei cinti' raghunātha preme bhāsi' gelā
 

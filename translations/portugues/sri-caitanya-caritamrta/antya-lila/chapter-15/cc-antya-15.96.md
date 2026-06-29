@@ -1,5 +1,8 @@
 ### CC Antya 15.96
 
+> প্রলাপ সহিত এই উন্মাদ-বর্ণন ।
+> শ্রীরূপ-গোসাঞি ইহা করিয়াছেন বর্ণন ॥৯৬॥
+
 pralāpa sahita ei unmāda-varṇana
 
 śrī-rūpa-gosāñi ihā kariyāchena varṇana

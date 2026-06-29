@@ -1,5 +1,8 @@
 ### CC Madhya 1.128
 
+> রাজ-আজ্ঞা লঞা তেঁহো আইলা কত দিনে ।
+> রাত্রি-দিনে কৃষ্ণকথা রামানন্দসনে ॥১২৮॥
+
 rāja-ājñā lañā teṅho āilā kata dine
 rātri-dine kṛṣṇa-kathā rāmānanda-sane
 

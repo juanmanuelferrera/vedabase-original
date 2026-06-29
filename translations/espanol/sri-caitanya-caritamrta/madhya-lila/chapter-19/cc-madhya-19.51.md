@@ -1,5 +1,8 @@
 ### CC Madhya 19.51
 
+> এই শ্লোক পড়ি’ দুঁহারে কৈলা আলিঙ্গন ।
+> কৃপাতে দুঁহার মাথায় ধরিলা চরণ ॥৫১॥
+
 > ei śloka paḍi' duṅhāre kailā āliṅgana
 > kṛpāte duṅhāra māthāya dharilā caraṇa
 

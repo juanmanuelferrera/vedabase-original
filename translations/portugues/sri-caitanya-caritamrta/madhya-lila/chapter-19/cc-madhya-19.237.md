@@ -1,5 +1,8 @@
 ### CC Madhya 19.237
 
+> এত বলি’ প্রভু তাঁরে কৈলা আলিঙ্গন ।
+> বারাণসী চলিবারে প্রভুর হৈল মন ॥২৩৭॥
+
 eta bali' prabhu tāṅre kailā āliṅgana
 
 vārāṇasī calibāre prabhura haila mana

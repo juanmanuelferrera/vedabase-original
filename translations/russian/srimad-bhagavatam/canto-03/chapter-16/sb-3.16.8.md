@@ -1,5 +1,10 @@
 ### SB 3.16.8
 
+> नाहं तथाद्मि यजमानहविर्विताने
+> श्च्योतद्घृतप्लुतमदन्हुतभुङ्मुखेन ।
+> यद्ब्राह्मणस्य मुखतश्चरतोऽनुघासं
+> तुष्टस्य मय्यवहितैर्निजकर्मपाकैः ॥८॥
+
 > nāhaṁ tathādmi yajamāna-havir vitāne
 > ścyotad-ghṛta-plutam adan huta-bhuṅ-mukhena
 > yad brāhmaṇasya mukhataś carato 'nughāsaṁ

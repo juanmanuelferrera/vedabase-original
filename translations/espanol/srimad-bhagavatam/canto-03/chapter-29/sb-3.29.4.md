@@ -1,5 +1,8 @@
 ### SB 3.29.4
 
+> कालस्येश्वररूपस्य परेषां च परस्य ते ।
+> स्वरूपं बत कुर्वन्ति यद्धेतोः कुशलं जनाः ॥४॥
+
 > kālasyeśvara-rūpasya
 > pareṣāṁ ca parasya te
 > svarūpaṁ bata kurvanti

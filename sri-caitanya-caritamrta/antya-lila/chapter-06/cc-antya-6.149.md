@@ -1,5 +1,8 @@
 ### CC Antya 6.149
 
+> অনেক ‘প্রসাদ’ দিলা পথে খাইবারে  ।
+> তবে পুনঃ রঘুনাথ কহে পণ্ডিতেরে ॥১৪৯॥
+
 > aneka 'prasāda' dilā pathe khāibāre
 > tabe punaḥ raghunātha kahe paṇḍitere
 

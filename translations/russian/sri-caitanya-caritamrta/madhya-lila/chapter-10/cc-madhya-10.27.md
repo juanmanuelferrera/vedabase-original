@@ -1,5 +1,8 @@
 ### CC Madhya 10.27
 
+> প্রভুর সহিত আমা-সবার করাহ মিলন ।
+> তোমার প্রসাদে পাই প্রভুর চরণ ॥২৭॥
+
 > prabhura sahita āmā-sabāra karāha milana
 > tomāra prasāde pāi prabhura caraṇa
 

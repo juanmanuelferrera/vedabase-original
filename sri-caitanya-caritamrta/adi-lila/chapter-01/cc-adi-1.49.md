@@ -1,5 +1,8 @@
 ### CC Adi 1.49
 
+> তেষাং সততযুক্তানাং ভজতাং প্রীতিপূর্বকম ।
+> দদামি বুদ্ধিযোগং তং যেন মামুপযান্তি তে ॥৪৯॥
+
 > teṣāṁ satata-yuktānāṁ
 > bhajatāṁ prīti-pūrvakam
 > dadāmi buddhi-yogaṁ taṁ

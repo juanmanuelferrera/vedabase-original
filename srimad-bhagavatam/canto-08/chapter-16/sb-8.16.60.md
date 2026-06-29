@@ -1,5 +1,8 @@
 ### SB 8.16.60
 
+> अयं वै सर्वयज्ञआख्यः सर्वव्रतमिति स्मृतम
+> तपःसारमिदं भद्रे दानं चेश्वरतर्पणम ॥६०॥
+
 > ayaṁ vai sarva-yajñākhyaḥ
 > sarva-vratam iti smṛtam
 > tapaḥ-sāram idaṁ bhadre

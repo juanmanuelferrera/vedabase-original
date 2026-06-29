@@ -1,5 +1,8 @@
 ### CC Madhya 11.124
 
+> গোপীনাথাচার্য ভট্টাচার্য সার্বভৌম ।
+> দূরে রহি’ দেখে প্রভুর বৈষ্ণব-মিলন ॥১২৪॥
+
 > gopīnāthācārya bhaṭṭācārya sārvabhauma
 > dūre rahi' dekhe prabhura vaiṣṇava-milana
 

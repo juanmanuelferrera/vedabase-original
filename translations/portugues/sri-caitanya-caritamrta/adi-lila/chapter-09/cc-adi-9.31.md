@@ -1,5 +1,8 @@
 ### CC Adi 9.31
 
+> মালাকার কহে, — শুন, বৃক্ষ-পরিবার ।
+> মূলশাখা-উপশাখা যতেক প্রকার ॥৩১॥
+
 mālākāra kahe,--śuna, vṛkṣa-parivāra
 mūlaśākhā-upaśākhā yateka prakāra
 

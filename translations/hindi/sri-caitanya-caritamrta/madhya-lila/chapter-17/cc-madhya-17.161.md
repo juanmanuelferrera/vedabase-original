@@ -1,5 +1,8 @@
 ### CC Madhya 17.161
 
+> লোকে কহে প্রভু দেখি’ হঞা বিস্ময় ।
+> ঐছে হেন প্রেম ‘লৌকিক’ কভু নয় ॥১৬১॥
+
 > loke kahe prabhu dekhi' hañā vismaya
 > aiche hena prema'laukika' kabhu naya
 

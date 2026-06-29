@@ -1,5 +1,8 @@
 ### CC Adi 12.94
 
+> গৌরলীলামৃতসিন্ধু — অপার অগাধ ।
+> কে করিতে পারে তাহাঁ অবগাহ-সাধ ॥৯৪॥
+
 > gaura-līlāmṛta-sindhu—apāra agādha
 > ke karite pāre tāhāṅ avagāha-sādha
 

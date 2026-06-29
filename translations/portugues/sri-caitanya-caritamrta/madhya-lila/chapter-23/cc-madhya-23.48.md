@@ -1,5 +1,8 @@
 ### CC Madhya 23.48
 
+> বিভাব, অনুভাব, সাত্ত্বিক, ব্যভিচারী ।
+> স্থায়ীভাব ‘রস’ হয় এই চারি মিলি’ ॥৪৮॥
+
 vibhāva, anubhāva, sāttvika, vyabhicārī
 
 sthāyi-bhāva 'rasa' haya ei cāri mili'

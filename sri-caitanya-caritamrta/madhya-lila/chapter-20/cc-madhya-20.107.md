@@ -1,5 +1,8 @@
 ### CC Madhya 20.107
 
+> যোগ্যপাত্র হও তুমি ভক্তি প্রবর্তাইতে ।
+> ক্রমে সব তত্ত্ব শুন, কহিয়ে তোমাতে ॥১০৭॥
+
 > yogya-pātra hao tumi bhakti pravartāite
 > krame saba tattva śuna, kahiye tomāte
 

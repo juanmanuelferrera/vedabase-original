@@ -1,5 +1,8 @@
 ### CC Adi 5.164
 
+> নমস্কার করিতে, কা’র উপরেতে চড়ে ।
+> প্রেমে কা’রে বংশী মারে, কাহাকে চাপড়ে ॥১৬৪॥
+
 > namaskāra karite, kā'ra uparete caḍe
 > preme kā're vaṁśī māre, kāhāke cāpaḍe
 

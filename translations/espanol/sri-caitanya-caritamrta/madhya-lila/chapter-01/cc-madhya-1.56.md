@@ -1,5 +1,8 @@
 ### CC Madhya 1.56
 
+> এই ধুয়া-গানে নাচেন দ্বিতীয় প্রহর ।
+> কৃষ্ণ লঞা ব্রজে যাই — এভাব অন্তর ॥৫৬॥
+
 > ei dhuyā-gāne nācena dvitīya prahara
 > kṛṣṇa lañā vraje yāi--e-bhāva antara
 

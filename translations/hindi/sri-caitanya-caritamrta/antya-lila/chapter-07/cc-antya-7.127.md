@@ -1,5 +1,8 @@
 ### CC Antya 7.127
 
+> তুমি — ঈশ্বর, নিজোচিত কৃপা যে করিলা ।
+> অপমান করি’ সর্ব গর্ব খণ্ডাইলা ॥১২৭॥
+
 > tumi--īśvara, nijocita kṛpā ye karilā
 > apamāna kari' sarva garva khaṇḍāilā
 

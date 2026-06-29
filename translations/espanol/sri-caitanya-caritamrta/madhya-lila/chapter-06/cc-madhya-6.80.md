@@ -1,5 +1,8 @@
 ### CC Madhya 6.80
 
+> শিষ্যগণ কহে, — ‘ঈশ্বর কহ কোন্ প্রমাণে ৷’
+> আচার্য কহে, — ‘বিজ্ঞমত ঈশ্বর-লক্ষণে ।।’ ॥ ৮০ ॥
+
 > śiṣya-gaṇa kahe,--'īśvara kaha kon pramāṇe'
 > ācārya kahe,--'vijña-mata īśvara-lakṣaṇe'
 

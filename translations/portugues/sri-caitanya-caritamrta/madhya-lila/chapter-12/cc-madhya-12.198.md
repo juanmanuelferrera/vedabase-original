@@ -1,5 +1,8 @@
 ### CC Madhya 12.198
 
+> ভোজন করি’ উঠে সবে হরিধ্বনি করি’ ।
+> হরিধ্বনি উঠিল সব স্বর্গমর্ত্য ভরি’ ॥১৯৮॥
+
 bhojana kari' uṭhe sabe hari-dhvani kari'
 
 hari-dhvani uṭhila saba svarga-martya bhari'

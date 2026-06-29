@@ -1,5 +1,8 @@
 ### CC Antya 19.86
 
+> কৃষ্ণ দেখি’ মহাপ্রভু ধাঞা চলিলা ।
+> আগে দেখি’ হাসি’ কৃষ্ণ অন্তর্ধান হইলা ॥৮৬॥
+
 > kṛṣṇa dekhi' mahāprabhu dhāñā calilā
 > āge dekhi' hāsi' kṛṣṇa antardhāna ha-ilā
 

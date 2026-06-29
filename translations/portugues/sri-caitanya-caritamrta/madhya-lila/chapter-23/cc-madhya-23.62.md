@@ -1,5 +1,8 @@
 ### CC Madhya 23.62
 
+> ‘সম্ভোগ’-‘বিপ্রলম্ভ’-ভেদে দ্বিবিধ শৃঙ্গার ।
+> সম্ভোগের অনন্ত অঙ্গ, নাহি অন্ত তার ॥৬২॥
+
 'sambhoga'-'vipralambha'-bhede dvividha śṛṅgāra
 
 sambhogera ananta aṅga, nāhi anta tāra

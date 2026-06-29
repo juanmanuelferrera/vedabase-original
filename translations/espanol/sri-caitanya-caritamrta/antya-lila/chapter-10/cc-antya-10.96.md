@@ -1,5 +1,8 @@
 ### CC Antya 10.96
 
+> ‘সেবা’ লাগি’ কোটি ‘অপরাধ’ নাহি গণি  ।
+> স্ব-নিমিত্ত ‘অপরাধাভাসে’ ভয় মানি ।।” ৯৬ ॥৯৬॥
+
 > 'sevā' lāgi' koṭi 'aparādha' nāhi gaṇi
 > sva-nimitta 'aparādhābhāse' bhaya māni"
 

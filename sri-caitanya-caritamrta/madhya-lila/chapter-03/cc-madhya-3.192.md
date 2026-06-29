@@ -1,5 +1,8 @@
 ### CC Madhya 3.192
 
+> এত বলি’ সবাকারে ঈষৎ হাসিঞা ।
+> বিদায় করিল প্রভু সম্মান করিঞা ॥১৯২॥
+
 > eta bali' sabākāre īṣat hāsiñā
 > vidāya karila prabhu sammāna kariñā
 

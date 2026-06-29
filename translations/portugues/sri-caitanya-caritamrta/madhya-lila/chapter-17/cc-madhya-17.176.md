@@ -1,5 +1,8 @@
 ### CC Madhya 17.176
 
+> ভিক্ষা লাগি’ ভট্টাচার্যে করাইলা রন্ধন । 
+> তবে মহাপ্রভু হাসি’ বলিলা বচন ॥১৭৬॥
+
 bhikṣā lāgi' bhaṭṭācārye karāilā randhana
 
 tabe mahāprabhu hāsi' balilā vacana

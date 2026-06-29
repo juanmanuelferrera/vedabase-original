@@ -1,5 +1,8 @@
 ### CC Madhya 15.63
 
+> ঈশানে বোলাঞা পুনঃ স্থান লেপাইল ৷
+> পুনরপি গোপালকে অন্ন সমর্পিল ॥৬৩॥
+
 > īśāne bolāñā punaḥ sthāna lepāila
 > punarapi gopālake anna samarpila
 

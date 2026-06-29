@@ -1,5 +1,8 @@
 ### CC Antya 13.24
 
+> জগদানন্দ কহে প্রভুর ধরিয়া চরণ  ।
+> “পূর্ব হৈতে ইচ্ছা মোর যাইতে বৃন্দাবন ॥২৪॥
+
 jagadānanda kahe prabhura dhariyā caraṇa
 
 "pūrva haite icchā mora yāite vṛndāvana

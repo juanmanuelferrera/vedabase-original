@@ -1,5 +1,8 @@
 ### CC Antya 12.93
 
+> মাতা কহে, — “কত রান্ধি উত্তম ব্যঞ্জন ।
+> নিমাঞি ইঁহা খায়, — ইচ্ছা হয় মোর মন ॥৯৩॥
+
 > mātā kahe,—"kata rāndhi uttama vyañjana
 > nimāñi ihāṅ khāya,—icchā haya mora mana
 

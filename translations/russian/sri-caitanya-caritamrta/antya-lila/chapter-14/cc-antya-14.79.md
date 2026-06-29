@@ -1,5 +1,8 @@
 ### CC Antya 14.79
 
+> হেনকালে জগন্নাথের পাণি-শঙ্খ বাজিলা ।
+> স্নান করি’ মহাপ্রভু দরশনে গেলা ॥৭৯॥
+
 > hena-kāle jagannāthera pāṇi-śaṅkha bājilā
 > snāna kari' mahāprabhu daraśane gelā
 

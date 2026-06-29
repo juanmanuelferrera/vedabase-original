@@ -1,5 +1,8 @@
 ### CC Madhya 19.22
 
+> মোর যত কার্য-কাম, সব কৈলা নাশ ।
+> কি তোমার হৃদয়ে আছে, কহ মোর পাশ ॥২২॥
+
 mora yata kārya-kāma, saba kailā nāśa
 
 ki tomāra hṛdaye āche, kaha mora pāśa

@@ -1,5 +1,8 @@
 ### SB 3.24.37
 
+> एष आत्मपथोऽव्यक्तो नष्टः कालेन भूयसा ।
+> तं प्रवर्तयितुं देहमिमं विद्धि मया भृतम् ॥३७॥
+
 *eṣa ātma-patho 'vyakto
 naṣṭaḥ kālena bhūyasā
 taṁ pravartayituṁ deham

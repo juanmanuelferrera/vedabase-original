@@ -1,5 +1,8 @@
 ### CC Madhya 15.115
 
+> মুকুন্দ কহে, — রঘুনন্দন মোর ‘পিতা’ হয় ।
+> আমি তার ‘পুত্র’, — এই আমার নিশ্চয় ॥১১৫॥
+
 > mukunda kahe,--raghunandana mora 'pitā' haya
 > āmi tāra 'putra',--ei āmāra niścaya
 

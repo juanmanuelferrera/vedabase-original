@@ -1,5 +1,8 @@
 ### SB 8.7.46
 
+> निशम्य कर्म तच्छम्भोर्देवदेवस्य मीढुषः
+> प्रजा दाक्षायणी ब्रह्मा वैकुण्ठश्च शशंसिरे ॥४६॥
+
 > praskannaṁ pibataḥ pāṇer
 > yat kiñcij jagṛhuḥ sma tat
 > vṛścikāhi-viṣauṣadhyo

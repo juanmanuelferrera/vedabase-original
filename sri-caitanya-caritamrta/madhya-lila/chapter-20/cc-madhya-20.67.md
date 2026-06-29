@@ -1,5 +1,8 @@
 ### CC Madhya 20.67
 
+> তপনমিশ্রেরে আর চন্দ্রশেখরেরে ।
+> প্রভু-আজ্ঞায় সনাতন মিলিলা দোঁহারে ॥৬৭॥
+
 > tapana-miśrere āra candraśekharere
 > prabhu-ājñāya sanātana mililā doṅhāre
 

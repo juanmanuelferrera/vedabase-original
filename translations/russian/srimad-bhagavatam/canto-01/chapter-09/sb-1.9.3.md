@@ -1,5 +1,8 @@
 ### SB 1.9.3
 
+> भगवानपि विप्रर्षे रथेन सधनञ्जयः ।
+> स तैर्व्यरोचत नृपः कुवेर इव गुह्यकैः ॥३॥
+
 > bhagavān api viprarṣe
 > rathena sa-dhanañjayaḥ
 > sa tair vyarocata nṛpaḥ

@@ -1,5 +1,8 @@
 ### CC Antya 6.221
 
+> প্রভুরে গোবিন্দ কহে, — “রঘুনাথ ‘প্রসাদ’ না লয় ।
+> রাত্র্যে সিংহদ্বারে খাড়া হঞা মাগি’ খায় ।।” ॥ ২২১ ॥
+
 prabhure govinda kahe,--"raghunātha 'prasāda' nā laya
 
 rātrye siṁha-dvāre khāḍā hañā māgi' khāya"

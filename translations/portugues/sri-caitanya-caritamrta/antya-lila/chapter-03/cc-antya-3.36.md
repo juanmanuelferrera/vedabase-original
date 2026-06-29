@@ -1,5 +1,8 @@
 ### CC Antya 3.36
 
+> বাহ্য-বিরহ-দশায় পুনঃ ভ্রান্তি হৈল ।
+> ‘ভোগ না লাগাইলুঁ’, — এই জ্ঞান হৈল ॥৩৬॥
+
 bāhya-viraha-daśāya punaḥ bhrānti haila
 
 'bhoga nā lāgāiluṅ',--ei jñāna haila

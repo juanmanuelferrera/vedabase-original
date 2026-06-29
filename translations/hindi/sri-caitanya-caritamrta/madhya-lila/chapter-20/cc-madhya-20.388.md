@@ -1,5 +1,8 @@
 ### CC Madhya 20.388
 
+> রাত্রি-দিনে হয় ষষ্টিদণ্ড-পরিমাণ ।
+> তিনসহস্র ছয়শত ‘পল’ তার মান ॥৩৮৮॥
+
 > rātri-dine haya ṣaṣṭi-daṇḍa-parimāṇa
 > tina-sahasra chaya-śata 'pala' tāra māna
 

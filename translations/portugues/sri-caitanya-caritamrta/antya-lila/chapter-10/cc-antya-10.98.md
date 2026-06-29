@@ -1,5 +1,8 @@
 ### CC Antya 10.98
 
+> প্রত্যহ প্রভুর নিদ্রায় যান প্রসাদ লইতে ।
+> সে দিবসের শ্রম দেখি’ লাগিলা চাপিতে ॥৯৮॥
+
 pratyaha prabhura nidrāya yāna prasāda la-ite
 
 se divasera śrama dekhi' lāgilā cāpite

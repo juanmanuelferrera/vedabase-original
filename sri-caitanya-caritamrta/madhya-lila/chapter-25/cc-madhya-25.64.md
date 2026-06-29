@@ -1,5 +1,8 @@
 ### CC Madhya 25.64
 
+> “হরয়ে নমঃ কৃষ্ণ যাদবায় নমঃ ।
+> গোপাল গোবিন্দ রাম শ্রীমধুসূদন ।।” ॥ ৬৪ ॥
+
 > "haraye namaḥ kṛṣṇa yādavāya namaḥ
 > gopāla govinda rāma śrī-madhusūdana"
 

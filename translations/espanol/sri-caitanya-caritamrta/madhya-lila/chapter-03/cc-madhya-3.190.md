@@ -1,5 +1,8 @@
 ### CC Madhya 3.190
 
+> ঘরে যাঞা কর সদা কৃষ্ণসংকীর্তন ।
+> কৃষ্ণনাম, কৃষ্ণকথা, কৃষ্ণ আরাধন ॥১৯০॥
+
 > ghare yāñā kara sadā kṛṣṇa-saṅkīrtana
 > kṛṣṇa-nāma, kṛṣṇa-kathā, kṛṣṇa ārādhana
 

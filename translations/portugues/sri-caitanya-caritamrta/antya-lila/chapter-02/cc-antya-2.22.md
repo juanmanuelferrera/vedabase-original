@@ -1,5 +1,8 @@
 ### CC Antya 2.22
 
+> চৈতন্যের আবেশ হয় নকুলের দেহে ।
+> শুনি’ শিবানন্দ আইলা করিয়া সন্দেহে ॥২২॥
+
 caitanyera āveśa haya nakulera dehe
 
 śuni' śivānanda āilā kariyā sandehe

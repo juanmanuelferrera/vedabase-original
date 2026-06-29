@@ -1,5 +1,8 @@
 ### CC Madhya 6.275
 
+> যদ্যপি ‘মুক্তি’-শব্দের হয় পঞ্চ বৃত্তি ।
+> রূঢ়িবৃত্ত্যে কহে তবু ‘সাযুজ্যে’ প্রতীতি ॥২৭৫॥
+
 yadyapi 'mukti'-śabdera haya pañca vṛtti
 rūḍhi-vṛttye kahe tabu 'sāyujye' pratīti
 

@@ -1,5 +1,8 @@
 ### CC Madhya 12.190
 
+> প্রভু ত’ সন্ন্যাসী, উঁহার নাহি অপচয়  ।
+> অন্ন-দোষে সন্ন্যাসীর দোষ নাহি হয় ॥১৯০॥
+
 prabhu ta' sannyāsī, uṅhāra nāhi apacaya
 
 anna-doṣe sannyāsīra doṣa nāhi haya

@@ -1,5 +1,8 @@
 ### CC Madhya 20.314
 
+> পালনার্থ স্বাংশ বিষ্ণুরূপে অবতার ।
+> সত্ত্বগুণ দ্ৰষ্টা, তাতে গুণমায়া-পার ॥৩১৪॥
+
 > pālanārtha svāṁśa viṣṇu-rūpe avatāra
 > sattva-guṇa draṣṭā, tāte guṇa-māyā-pāra
 

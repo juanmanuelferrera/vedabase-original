@@ -1,5 +1,8 @@
 ### CC Madhya 24.95
 
+> আর্ত, অর্থার্থী, — দুই সকাম-ভিতরে গণি ।
+> জিজ্ঞাসু, জ্ঞানী, — দুই মোক্ষকাম মানি ॥৯৫॥
+
 ārta, arthārthī,--dui sakāma-bhitare gaṇi
 
 jijñāsu, jñānī,--dui mokṣa-kāma māni

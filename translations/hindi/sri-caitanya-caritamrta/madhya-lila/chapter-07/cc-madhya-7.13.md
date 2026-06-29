@@ -1,5 +1,8 @@
 ### CC Madhya 7.13
 
+> বিশ্বরূপ-সিদ্ধি-প্রাপ্তি জানেন সকল ।
+> দক্ষিণ-দেশ উদ্ধারিতে করেন এই ছল ॥১৩॥
+
 > viśvarūpa-siddhi-prāpti jānena sakala
 > dakṣiṇa-deśa uddhārite karena ei chala
 

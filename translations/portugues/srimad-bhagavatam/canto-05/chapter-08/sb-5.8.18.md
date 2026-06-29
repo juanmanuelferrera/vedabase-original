@@ -1,5 +1,7 @@
 ### SB 5.8.18
 
+> अपि च न वृकः सालावृकोऽन्यतमो वा नैकचर एकचरो वा भक्षयति ॥१८॥
+
 *api ca na vṛkaḥ sālā*-vṛko 'nyatamo vā naika-cara eka-caro vā bhak-ṣayati.
 
 *api ca*—ou; *na*—não; *vṛkaḥ*—um lobo; *sālā-vṛkaḥ*—um cão; *anyatamaḥ*—um qualquer entre muitos; *vā*—ou; *na-eka-caraḥ*—os javalis que andam em bando; *eka-caraḥ*—o tigre que vagueia sozinho; *vā*—ou; *bhakṣayati*—está comendo (a pobre criatura).

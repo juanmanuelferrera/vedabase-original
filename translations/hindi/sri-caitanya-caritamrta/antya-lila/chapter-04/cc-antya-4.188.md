@@ -1,5 +1,8 @@
 ### CC Antya 4.188
 
+> হরিদাস কহে, — “তুমি ঈশ্বর দয়াময় ।
+> তোমার গম্ভীর হৃদয় বুঝন না যায় ॥১৮৮॥
+
 > haridāsa kahe,--"tumi īśvara dayā-maya
 > tomāra gambhīra hṛdaya bujhana nā yāya
 

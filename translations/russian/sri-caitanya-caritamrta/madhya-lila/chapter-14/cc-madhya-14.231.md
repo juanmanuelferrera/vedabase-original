@@ -1,5 +1,8 @@
 ### CC Madhya 14.231
 
+> রসাবেশে প্রভুর নৃত্য, স্বরূপের গান ।
+> ‘বল’ ‘বল’ বলি’ প্রভু পাতে নিজ-কাণ ॥২৩১॥
+
 > rasāveśe prabhura nṛtya, svarūpera gāna
 > 'bala' 'bala' bali' prabhu pāte nija-kāṇa
 

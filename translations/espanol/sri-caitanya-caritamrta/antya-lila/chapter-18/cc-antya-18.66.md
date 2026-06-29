@@ -1,5 +1,8 @@
 ### CC Antya 18.66
 
+> তাঁর স্পর্শে হইল তোমার কৃষ্ণপ্রেমোদয় ।
+> ভূত-প্রেত-জ্ঞানে তোমার হৈল মহাভয় ॥৬৬॥
+
 > tāṅra sparśe ha-ila tomāra kṛṣṇa-premodaya
 > bhūta-preta-jñāne tomāra haila mahā-bhaya
 

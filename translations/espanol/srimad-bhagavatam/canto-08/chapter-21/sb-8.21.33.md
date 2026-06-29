@@ -1,5 +1,8 @@
 ### SB 8.21.33
 
+> वृथा मनोरथस्तस्य दूरः स्वर्गः पतत्यधः
+> प्रतिश्रुतस्यादानेन योऽर्थिनं विप्रलम्भते ॥३३॥
+
 > vṛthā manorathas tasya
 > dūraḥ svargaḥ pataty adhaḥ
 > pratiśrutasyādānena

@@ -1,5 +1,8 @@
 ### Bg 6.42
 
+> अथवा योगिनामेव कुले भवति धीमताम् ।
+> एतद्धि दुर्लभतरं लोके जन्म यदीदृशम् ॥४२॥
+
 > atha vā yoginām eva
 > kule bhavati dhīmatām
 > etad dhi durlabhataraṁ

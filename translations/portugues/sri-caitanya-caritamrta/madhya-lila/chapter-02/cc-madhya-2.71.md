@@ -1,5 +1,10 @@
 ### CC Madhya 2.71
 
+> মোর বাক্য নিন্দা মানি, কৃষ্ণ ছাড়ি’ গেলা জানি,
+> শুন, মোর এ স্তুতি-বচন ।
+> নয়নের অভিরাম, তুমি মোর ধন-প্রাণ,
+> হাহা পুনঃ দেহ দরশন ॥৭১॥
+
 mora vākya nindā māni, kṛṣṇa chāḍi' gelā jāni,
 śuna, mora e stuti-vacana
 nayanera abhirāma, tumi mora dhana-prāṇa,

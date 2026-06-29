@@ -1,5 +1,8 @@
 ### CC Antya 10.43
 
+> সেইকালে মহাপ্রভু ভক্তগণ-সঙ্গে ।
+> নরেন্দ্রে আইলা দেখিতে জলকেলি-রঙ্গে ॥৪৩॥
+
 sei-kāle mahāprabhu bhakta-gaṇa-saṅge
 
 narendre āilā dekhite jala-keli-raṅge

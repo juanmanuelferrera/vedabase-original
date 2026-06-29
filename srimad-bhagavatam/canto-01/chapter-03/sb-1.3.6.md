@@ -1,5 +1,8 @@
 ### SB 1.3.6
 
+> स एव प्रथमं देवः कौमारं सर्गमाश्रितः ।
+> चचार दुश्चरं ब्रह्मा ब्रह्मचर्यमखण्डितम् ॥६॥
+
 > sa eva prathamaṁ devaḥ
 > kaumāraṁ sargam āśritaḥ
 > cacāra duścaraṁ brahmā

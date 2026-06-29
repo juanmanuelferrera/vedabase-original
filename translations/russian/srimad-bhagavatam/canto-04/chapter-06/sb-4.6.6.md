@@ -1,5 +1,8 @@
 ### SB 4.6.6
 
+> आशासाना जीवितमध्वरस्य लोकः सपालः कुपिते न यस्मिन् ।
+> तमाशु देवं प्रियया विहीनं क्षमापयध्वं हृदि विद्धं दुरुक्तैः ॥६॥
+
 > āśāsānā jīvitam adhvarasya
 > lokaḥ sa-pālaḥ kupite na yasmin
 > tam āśu devaṁ priyayā vihīnaṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 11.223
 
+> পিচ্কারি-ধারা জিনি’ অশ্রু নয়নে ৷
+> চারিদিকের লোক সব করয়ে সিনানে ৷৷ ২২৩ ৷৷ ॥২২৩॥
+
 pickāri-dhārā jini' aśru nayane
 cāri-dikera loka saba karaye siṅcāne
 

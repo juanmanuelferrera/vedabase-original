@@ -1,5 +1,8 @@
 ### CC Madhya 3.116
 
+> ফিরি’ ফিরি’ কভু প্রভুর ধরেন চরণ ।
+> চরণে ধরিয়া প্ৰভুরে বলেন বচন ॥১১৬॥
+
 phiri' phiri' kabhu prabhura dharena caraṇa
 
 caraṇe dhariyā prabhure balena vacana

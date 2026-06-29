@@ -1,5 +1,8 @@
 ### CC Madhya 25.52
 
+> ‘পাতঞ্জল’ কহে, — ‘ঈশ্বর হয় স্বরূপ-জ্ঞান’ ।
+> বেদমতে কহে তাঁরে ‘স্বয়ংভগবান্’ ॥৫২॥
+
 > 'pātañjala' kahe,-'īśvara haya svarūpa-jñāna'
 > veda-mate kahe tāṅre 'svayaṁ-bhagavān'
 

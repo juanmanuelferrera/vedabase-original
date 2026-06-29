@@ -1,5 +1,10 @@
 ### SB 3.15.35
 
+> तेषामितीरितमुभाववधार्य घोरं
+> तं ब्रह्मदण्डमनिवारणमस्त्रपूगैः ।
+> सद्यो हरेरनुचरावुरु बिभ्यतस्तत्
+> पादग्रहावपततामतिकातरेण ॥३५॥
+
 > teṣām itīritam ubhāv avadhārya ghoraṁ
 > taṁ brahma-daṇḍam anivāraṇam astra-pūgaiḥ
 > sadyo harer anucarāv uru bibhyatas tat-

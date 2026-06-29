@@ -1,5 +1,8 @@
 ### CC Madhya 10.143
 
+> তাঁহারে আপন-সেবা করাইতে না ষুয়ায় ।
+> গুরু আজ্ঞা দিয়াছেন, কি করি উপায় ॥১৪৩॥
+
 > tāṅhāre āpana-sevā karāite nā yuyāya
 > guru ājñā diyāchena, ki kari upāya
 

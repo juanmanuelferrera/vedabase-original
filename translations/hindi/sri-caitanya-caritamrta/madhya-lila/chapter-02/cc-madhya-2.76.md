@@ -1,5 +1,10 @@
 ### CC Madhya 2.76
 
+> গুরু — নানা ভাবগণ, শিষ্য — প্রভুর তনু-মন,
+> নানা রীতে সতত নাচায় ।
+> নির্বেদ, বিষাদ, দৈন্য, চাপল্য, হর্ষ, ধৈর্য, মন্যু,
+> এই নৃত্যে প্রভুর কাল যায় ॥৭৬॥
+
 > guru--nānā bhāva-gaṇa, śiṣya--prabhura tanu-mana,
 > nānā rīte satata nācāya
 > nirveda, viṣāda, dainya, cāpalya, harṣa, dhairya, manyu,

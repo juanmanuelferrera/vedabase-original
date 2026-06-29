@@ -1,5 +1,8 @@
 ### CC Antya 9.150
 
+> কাশীমিশ্রে না সাধিল, রাজারে না সাধিল ।
+> উদ্যোগ বিনা মহাপ্রভু এত ফল দিল ॥১৫০॥
+
 kāśī-miśre nā sādhila, rājāre nā sādhila
 
 udyoga vinā mahāprabhu eta phala dila

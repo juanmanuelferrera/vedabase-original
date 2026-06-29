@@ -1,5 +1,8 @@
 ### SB 4.25.31
 
+> त्वदाननं सुभ्रु सुतारलोचनं व्यालम्बिनीलालकवृन्दसंवृतम् ।
+> उन्नीय मे दर्शय वल्गुवाचकं यद्व्रीडया नाभिमुखं शुचिस्मिते ॥३१॥
+
 > tvad-ānanaṁ subhru sutāra-locanaṁ
 > vyālambi-nīlālaka-vṛnda-saṁvṛtam
 > unnīya me darśaya valgu-vācakaṁ

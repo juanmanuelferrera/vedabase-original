@@ -1,5 +1,10 @@
 ### SB 7.9.11
 
+> नैवात्मनः प्रभुरयं निजलाभपूर्णो
+> मानं जनादविदुषः करुणो वृणीते
+> यद्यज्जनो भगवते विदधीत मानं
+> तच्चात्मने प्रतिमुखस्य यथा मुखश्रीः ॥११॥
+
 > naivātmanaḥ prabhur ayaṁ nija-lābha-pūrṇo
 > mānaṁ janād aviduṣaḥ karuṇo vṛṇīte
 > yad yaj jano bhagavate vidadhīta mānaṁ

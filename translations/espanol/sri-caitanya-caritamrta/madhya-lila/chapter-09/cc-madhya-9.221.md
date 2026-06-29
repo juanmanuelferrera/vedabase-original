@@ -1,5 +1,8 @@
 ### CC Madhya 9.221
 
+> গজেন্দ্রমোক্ষণ-তীর্থে দেখি বিষ্ণুমূর্তি ৷
+> পানাগড়ি-তীর্থে আসি’ দেখিল সীতাপতি ৷৷ ২২১ ৷৷ ॥২২১॥
+
 > gajendra-mokṣaṇa-tīrthe dekhi viṣṇu-mūrti
 > pānāgaḍi-tīrthe āsi' dekhila sītāpati
 

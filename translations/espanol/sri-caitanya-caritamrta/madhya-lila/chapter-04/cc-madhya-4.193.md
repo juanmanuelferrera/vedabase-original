@@ -1,5 +1,8 @@
 ### CC Madhya 4.193
 
+> রত্নগণ-মধ্যে যৈছে কৌস্তুভমণি ।
+> রসকাব্য-মধ্যে তৈছে এই শ্লোক গণি ॥১৯৩॥
+
 > ratna-gaṇa-madhye yaiche kaustubha-maṇi
 > rasa-kāvya-madhye taiche ei śloka gaṇi
 

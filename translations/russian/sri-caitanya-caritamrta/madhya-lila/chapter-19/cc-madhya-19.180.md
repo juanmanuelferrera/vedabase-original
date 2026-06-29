@@ -1,5 +1,8 @@
 ### CC Madhya 19.180
 
+> এই সব কৃষ্ণভক্তি-রসের স্থায়িভাব  ।
+> স্থায়িভাবে মিলে যদি বিভাব, অনুভাব ॥১৮০॥
+
 > ei saba kṛṣṇa-bhakti-rasera sthāyibhāva
 > sthāyibhāve mile yadi vibhāva, anubhāva
 

@@ -1,5 +1,8 @@
 ### SB 8.15.16
 
+> सभाचत्वररथ्याढ्यां विमानैर्न्यर्बुदैर्युताम
+> शृङ्गाटकैर्मणिमयैर्वज्रविद्रुमवेदिभिः ॥१६॥
+
 > sabhā-catvara-rathyāḍhyāṁ
 > vimānair nyarbudair yutām
 > śṛṅgāṭakair maṇimayair

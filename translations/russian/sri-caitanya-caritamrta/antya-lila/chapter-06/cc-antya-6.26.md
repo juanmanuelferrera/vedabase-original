@@ -1,5 +1,8 @@
 ### CC Antya 6.26
 
+> কভু কলহ, কভু প্রীতি — ইহার নিশ্চয় নাই  ।
+> কালি পুনঃ তিন ভাই হইবা এক-ঠাঞি ॥২৬॥
+
 > kabhu kalaha, kabhu prīti—ihāra niścaya nāi
 > kāli punaḥ tina bhāi ha-ibā eka-ṭhāñi
 

@@ -1,5 +1,10 @@
 ### SB 7.9.9
 
+> मन्ये धनाभिजनरूपतपःश्रुतौजस
+> तेजःप्रभावबलपौरुषबुद्धियोगाः
+> नाराधनाय हि भवन्ति परस्य पुंसो
+> भक्त्या तुतोष भगवान्गजयूथपाय ॥९॥
+
 > manye dhanābhijana-rūpa-tapaḥ-śrutaujas-
 > tejaḥ-prabhāva-bala-pauruṣa-buddhi-yogāḥ
 > nārādhanāya hi bhavanti parasya puṁso

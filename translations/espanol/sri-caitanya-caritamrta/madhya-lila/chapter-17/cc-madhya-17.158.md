@@ -1,5 +1,8 @@
 ### CC Madhya 17.158
 
+> একবিপ্র পড়ে প্রভুর চরণ ধরিয়া ।
+> প্রভু-সঙ্গে নৃত্য করে প্রেমাবিষ্ট হঞা ॥১৫৮॥
+
 > eka-vipra paḍe prabhura caraṇa dhariyā
 > prabhu-saṅge nṛtya kare premāviṣṭa hañā
 

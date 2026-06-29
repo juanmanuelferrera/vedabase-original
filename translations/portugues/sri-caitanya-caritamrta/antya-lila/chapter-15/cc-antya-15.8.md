@@ -1,5 +1,8 @@
 ### CC Antya 15.8
 
+> একবারে স্ফুরে প্রভুর কৃষ্ণের পঞ্চগুণ ।
+> পঞ্চগুণে করে পঞ্চেন্দ্রিয় আকর্ষণ ॥৮॥
+
 eka-bāre sphure prabhura kṛṣṇera pañca-guṇa
 pañca-guṇe kare pañcendriya ākarṣaṇa
 

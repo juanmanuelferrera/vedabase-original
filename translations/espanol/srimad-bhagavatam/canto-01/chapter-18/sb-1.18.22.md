@@ -1,5 +1,8 @@
 ### SB 1.18.22
 
+> यत्रानुरक्ताः सहसैव धीरा व्यपोह्य देहादिषु सङ्गमूढम् ।
+> व्रजन्ति तत्पारमहंस्यमन्त्यं यस्मिन्नहिंसोपशमः स्वधर्मः ॥२२॥
+
 > yatrānuraktāḥ sahasaiva dhīrā
 > vyapohya dehādiṣu saṅgam ūḍham
 > vrajanti tat pārama-haṁsyam antyaṁ

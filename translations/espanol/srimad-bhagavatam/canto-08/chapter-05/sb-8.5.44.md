@@ -1,5 +1,8 @@
 ### SB 8.5.44
 
+> नमोऽस्तु तस्मा उपशान्तशक्तये स्वाराज्यलाभप्रतिपूरितात्मने
+> गुणेषु मायारचितेषु वृत्तिभिर्न सज्जमानाय नभस्वदूतये ॥४४॥
+
 > namo 'stu tasmā upaśānta-śaktaye
 > svārājya-lābha-pratipūritātmane
 > guṇeṣu māyā-raciteṣu vṛttibhir

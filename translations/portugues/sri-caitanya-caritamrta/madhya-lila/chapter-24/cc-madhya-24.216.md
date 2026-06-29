@@ -1,5 +1,8 @@
 ### CC Madhya 24.216
 
+> ‘তপস্বী’ প্রভৃতি যত দেহারামী হয় ।
+> সাধুসঙ্গে তপ ছাড়ি’ শ্রীকৃষ্ণ ভজয় ॥২১৬॥
+
 'tapasvī' prabhṛti yata dehārāmī haya
 
 sādhu-saṅge tapa chāḍi' śrī-kṛṣṇa bhajaya

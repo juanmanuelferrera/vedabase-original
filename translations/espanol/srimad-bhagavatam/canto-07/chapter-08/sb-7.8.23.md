@@ -1,5 +1,8 @@
 ### SB 7.8.23
 
+> दुरासदं सर्वनिजेतरायुध प्रवेकविद्रावितदैत्यदानवम
+> प्रायेण मेऽयं हरिणोरुमायिना वधः स्मृतोऽनेन समुद्यतेन किम ॥२३॥
+
 > prāyeṇa me 'yaṁ hariṇorumāyinā
 > vadhaḥ smṛto 'nena samudyatena kim
 > evaṁ bruvaṁs tv abhyapatad gadāyudho

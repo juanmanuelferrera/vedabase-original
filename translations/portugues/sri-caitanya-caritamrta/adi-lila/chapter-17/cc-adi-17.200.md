@@ -1,5 +1,8 @@
 ### CC Adi 17.200
 
+> সেই হৈতে জিহ্বা মোর বলে ‘হরি’ ‘হরি’ ।
+> ইচ্ছা নাহি, তবু বলে, — কি উপায় করি ॥২০০॥
+
 sei haite jihvā mora bale 'hari' 'hari'
 
 icchā nāhi, tabu bale,--ki upāya kari

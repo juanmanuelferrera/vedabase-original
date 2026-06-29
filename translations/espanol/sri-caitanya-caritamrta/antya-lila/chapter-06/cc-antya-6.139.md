@@ -1,5 +1,8 @@
 ### CC Antya 6.139
 
+> “তুমি যে করাইলা এই পুলিন-ভোজন  ।
+> তোমায় কৃপা করি’ গৌর কৈলা আগমন ॥১৩৯॥
+
 > "tumi ye karāilā ei pulina-bhojana
 > tomāya kṛpā kari' gaura kailā āgamana
 

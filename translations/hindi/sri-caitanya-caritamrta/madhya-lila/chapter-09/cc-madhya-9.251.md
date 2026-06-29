@@ -1,5 +1,8 @@
 ### CC Madhya 9.251
 
+> পাছে প্রেমাবেশ দেখি’ হৈল চমৎকার ।
+> বৈষ্ণব-জ্ঞানে বহুত করিল সৎকার ॥২৫১॥
+
 > pāche premāveśa dekhi' haila camatkāra
 > vaiṣṇava-jñāne bahuta karila satkāra
 

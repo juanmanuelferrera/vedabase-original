@@ -1,5 +1,8 @@
 ### CC Antya 6.33
 
+> যাহ তুমি, তোমার জ্যেঠারে মিলাহ আমারে ।
+> যে-মতে ভাল হয় করুন, ভার দিলুঁ তাঁরে ।।” ॥ ৩৩ ॥
+
 yāha tumi, tomāra jyeṭhāre milāha āmāre
 
 ye-mate bhāla haya karuna, bhāra diluṅ tāṅre

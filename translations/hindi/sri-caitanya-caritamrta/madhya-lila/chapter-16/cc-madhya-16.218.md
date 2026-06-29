@@ -1,5 +1,8 @@
 ### CC Madhya 16.218
 
+> মহৈশ্বর্যযুক্ত দুঁহে — বদান্য, ব্রহ্মণ্য ।
+> সদাচারী, সৎকুলীন, ধার্মিকাগ্রগণ্য ॥২১৮॥
+
 > mahaiśvarya-yukta duṅhe--vadānya, brahmaṇya
 > sadācārī, satkulīna, dhārmikāgra-gaṇya
 

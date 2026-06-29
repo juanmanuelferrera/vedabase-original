@@ -1,5 +1,8 @@
 ### CC Madhya 8.91
 
+> যে যথা মাং প্ৰপদ্যন্তে তাংস্তথৈব ভজাম্যহম্ ৷
+> মম বর্ত্মানুবর্তন্তে মনুষ্যাঃ পার্থ সর্বশঃ ৷৷ ৯১ ৷৷ ॥৯১॥
+
 ye yathā māṁ prapadyante
 tāṁs tathaiva bhajāmy aham
 mama vartmānuvartante

@@ -1,5 +1,8 @@
 ### CC Adi 7.80
 
+> পাগল হইলাঙ আমি, ধৈর্য নাহি মনে ।
+> এত চিন্তি’ নিবেদিলুঁ গুরুর চরণে ॥৮০॥
+
 pāgala ha-ilāṅ āmi, dhairya nāhi mane
 
 eta cinti' nivediluṅ gurura caraṇe

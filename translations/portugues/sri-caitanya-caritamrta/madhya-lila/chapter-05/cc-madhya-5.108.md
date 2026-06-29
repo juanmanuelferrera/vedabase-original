@@ -1,5 +1,8 @@
 ### CC Madhya 5.108
 
+> তবে সেই বিপ্র যাই নগরে কহিল ।
+> শুনিঞা সকল লোক চমৎকার হৈল ॥১০৮॥
+
 tabe sei vipra yāi nagare kahila
 śuniñā sakala loka camatkāra haila
 

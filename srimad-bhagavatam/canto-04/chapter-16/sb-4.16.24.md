@@ -1,5 +1,8 @@
 ### SB 4.16.24
 
+> एषोऽश्वमेधाञ्शतमाजहार सरस्वती प्रादुरभावि यत्र ।
+> अहार्षीद्यस्य हयं पुरन्दरः शतक्रतुश्चरमे वर्तमाने ॥२४॥
+
 > eṣo 'śvamedhāñ śatam ājahāra
 > sarasvatī prādurabhāvi yatra
 > ahārṣīd yasya hayaṁ purandaraḥ

@@ -1,5 +1,8 @@
 ### SB 3.13.41
 
+> त्रयीमयं रूपमिदं च सौकरं भूमण्डलेनाथ दता धृतेन ते ।
+> चकास्ति शृङ्गोढघनेन भूयसा कुलाचलेन्द्रस्य यथैव विभ्रमः ॥४१॥
+
 > trayīmayaṁ rūpam idaṁ ca saukaraṁ
 > bhū-maṇḍalenātha datā dhṛtena te
 > cakāsti śṛṅgoḍha-ghanena bhūyasā

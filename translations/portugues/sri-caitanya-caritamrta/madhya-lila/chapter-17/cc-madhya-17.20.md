@@ -1,5 +1,8 @@
 ### CC Madhya 17.20
 
+> তাঁহার বচন প্রভু অঙ্গীকার কৈল ।
+> বলভদ্র-ভট্টাচার্যে সঙ্গে করি’ নিল ॥২০॥
+
 tāṅhāra vacana prabhu aṅgīkāra kaila
 
 balabhadra-bhaṭṭācārye saṅge kari' nila

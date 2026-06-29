@@ -1,5 +1,10 @@
 ### CC Antya 2.34-35
 
+> শচীর মন্দিরে, আর নিত্যানন্দ-নর্তনে ।
+> শ্রীবাস-কীর্তনে, আর রাঘব-ভবনে ॥৩৪॥
+> এই চারি ঠাঞি প্রভুর সদা ‘আবির্ভাব’ ।
+> প্রেমাকৃষ্ট হয়, — প্রভুর সহজ স্বভাব ॥৩৫॥
+
 > śacīra mandire, āra nityānanda-nartane
 > śrīvāsa-kīrtane, āra rāghava-bhavane
 > ei cāri ṭhāñi prabhura sadā 'āvirbhāva'

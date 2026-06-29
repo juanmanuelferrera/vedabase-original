@@ -1,5 +1,8 @@
 ### CC Antya 4.113
 
+> সকল বৈষ্ণব যবে গৌড়দেশে গেলা ।
+> সনাতন মহাপ্রভুর চরণে রহিলা ॥১১৩॥
+
 sakala vaiṣṇava yabe gauḍa-deśe gelā
 
 sanātana mahāprabhura caraṇe rahilā

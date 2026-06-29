@@ -1,5 +1,10 @@
 ### CC Antya 19.35
 
+> ক্ব নন্দকুলচন্দ্রমাঃ ক্ব শিখিচন্দ্রকালঙ্কৃতিঃ
+> ক্ব মন্দ্রমুরলীরবঃ ক্ব নু সুরেন্দ্রনীলদ্যুতিঃ ।
+> ক্ব রাসরসতাণ্ডবী ক্ব সখি জীবরক্ষৌষধি-
+> নিধির্মম সুহৃত্তমঃ ক্ব বত হন্ত হা ধিগ্বিধিম্ ॥৩৫॥
+
 > kva nanda-kula-candramāḥ kva śikhi-candrakālaṅkṛtiḥ
 > kva mandra-muralī-ravaḥ kva nu surendra-nīla-dyutiḥ
 > kva rāsa-rasa-tāṇḍavī kva sakhi jīva-rakṣauṣadhir

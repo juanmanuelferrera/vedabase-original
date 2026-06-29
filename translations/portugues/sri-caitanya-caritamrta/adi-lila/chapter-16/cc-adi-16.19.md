@@ -1,5 +1,8 @@
 ### CC Adi 16.19
 
+> এই মত বঙ্গের লোকের কৈলা মহা হিত ।
+> ‘নাম’ দিয়া ভক্ত কৈল, পড়াঞা পণ্ডিত ॥১৯॥
+
 ei mata baṅgera lokera kailā mahā hita
 
 'nāma' diyā bhakta kaila, paḍāñā paṇḍita

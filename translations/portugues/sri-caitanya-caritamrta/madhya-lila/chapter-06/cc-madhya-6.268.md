@@ -1,5 +1,8 @@
 ### CC Madhya 6.268
 
+> ‘সাযুজ্য’ শুনিতে ভক্তের হয় ঘৃণা ভয় ।
+> নরক বাঞ্ছয়ে, তবু সাযুজ্য না লয় ॥২৬৮॥
+
 'sāyujya' śunite bhaktera haya ghṛṇā-bhaya
 naraka vāñchaye, tabu sāyujya nā laya
 

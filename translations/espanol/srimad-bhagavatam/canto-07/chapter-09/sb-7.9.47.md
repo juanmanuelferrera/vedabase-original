@@ -1,5 +1,10 @@
 ### SB 7.9.47
 
+> रूपे इमे सदसती तव वेदसृष्टे
+> बीजाङ्कुराविव न चान्यदरूपकस्य
+> युक्ताः समक्षमुभयत्र विचक्षन्ते त्वां
+> योगेन वह्निमिव दारुषु नान्यतः स्यात ॥४७॥
+
 > rūpe ime sad-asatī tava veda-sṛṣṭe
 > bījāṅkurāv iva na cānyad arūpakasya
 > yuktāḥ samakṣam ubhayatra vicakṣante tvāṁ

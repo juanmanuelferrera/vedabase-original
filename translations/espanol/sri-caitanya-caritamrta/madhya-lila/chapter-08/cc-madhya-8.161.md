@@ -1,5 +1,8 @@
 ### CC Madhya 8.161
 
+> তয়োরপ্যুভয়োর্মধ্যে রাধিকা সর্বথাধিকা ৷
+> মহাভাবস্বরূপেয়ং গুণৈরতিবরীয়সী ৷৷ ১৬১ ৷৷ ॥১৬১॥
+
 > tayor apy ubhayor madhye
 > rādhikā sarvathādhikā
 > mahābhāva-svarūpeyaṁ

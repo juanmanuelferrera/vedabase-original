@@ -1,5 +1,8 @@
 ### CC Antya 2.8
 
+> গৌড়-দেশের ভক্তগণ প্রত্যব্দ আসিয়া ।
+> পুনঃ গৌড়দেশে যায় প্রভুরে মিলিয়া ॥৮॥
+
 gauḍa-deśera bhakta-gaṇa pratyabda āsiyā
 punaḥ gauḍa-deśe yāya prabhure miliyā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 13.48
 
+> সাত সম্প্রদায়ে বাজে চৌদ্দ মাদল ।
+> যার ধ্বনি শুনি’ বৈষ্ণব হৈল পাগল ॥৪৮॥
+
 > sāta sampradāye bāje caudda mādala
 > yāra dhvani śuni' vaiṣṇava haila pāgala
 

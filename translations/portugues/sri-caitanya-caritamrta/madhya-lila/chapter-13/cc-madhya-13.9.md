@@ -1,5 +1,8 @@
 ### CC Madhya 13.9
 
+> কতক দয়িতা করে স্কন্ধ আলম্বন ।
+> কতক দয়িতা ধরে শ্রীপদ্ম-চরণ ॥৯॥
+
 kataka dayitā kare skandha ālambana
 kataka dayitā dhare śrī-padma-caraṇa
 

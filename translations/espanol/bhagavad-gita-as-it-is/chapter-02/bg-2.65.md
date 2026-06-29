@@ -1,5 +1,8 @@
 ### Bg 2.65
 
+> प्रसादे सर्वदुःखानां हानिरस्योपजायते ।
+> प्रसन्नचेतसो ह्याशु बुद्धिः पर्यवतिष्ठते ॥६५॥
+
 > prasāde sarva-duḥkhānāṁ
 > hānir asyopajāyate
 > prasanna-cetaso hy āśu

@@ -1,5 +1,7 @@
 ### SB 5.17.4
 
+> ततोऽनेकसहस्रकोटिविमानानीकसङ्कुलदेवयानेनावतरन्तीन्दु मण्डलमावार्य ब्रह्मसदने निपतति ॥४॥
+
 > tato 'neka-sahasra-koṭi-vimānānīka-saṅkula-deva-yānenāvatar-antīndu maṇḍalam āvārya brahma-sadane nipatati.
 
 *tataḥ*—después de purificar los siete planetas de los siete grandes sabios; *aneka*—muchos; *sahasra*—miles; *koṭi*—de millones; *vimāna-anīka*—con grandes cantidades de aeroplanos; *saṅkula*—congestionadas; *deva-yānena*—por las vías espaciales de los semidioses; *avatarantī*—descender; *indu-maṇḍalam*—al planeta Luna; *āvārya*—inundado; *brahma-sadane*—a la morada del Señor Brahmā, en lo alto de Sumeru-parvata; *nipatati*—cae.

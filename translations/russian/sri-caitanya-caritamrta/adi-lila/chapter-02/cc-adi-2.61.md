@@ -1,5 +1,8 @@
 ### CC Adi 2.61
 
+> অবতারী নারায়ণ, কৃষ্ণ অবতার ।
+> তেঁহ চতুর্ভুজ, ইঁহ মনুষ্য-আকার ॥৬১॥
+
 > avatārī nārāyaṇa, kṛṣṇa avatāra
 > teṅha catur-bhuja, iṅha manuṣya-ākāra
 

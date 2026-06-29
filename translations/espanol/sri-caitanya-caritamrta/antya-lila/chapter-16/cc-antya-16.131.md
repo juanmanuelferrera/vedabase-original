@@ -1,5 +1,10 @@
 ### CC Antya 16.131
 
+> সে ফেলার এক লব, না পায় দেবতা সব,
+> এ দম্ভে কেবা পাতিয়ায় ?
+> বহুজন্ম পুণ্য করে, তবে ‘সুকৃতি’ নাম ধরে,
+> সে ‘সুকৃতে’ তার লব পায় ॥১৩১॥
+
 > se phelāra eka lava, nā pāya devatā saba,
 > e dambhe kebā pātiyāya?
 > bahu-janma puṇya kare, tabe 'sukṛti' nāma dhare,

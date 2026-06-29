@@ -1,5 +1,8 @@
 ### CC Antya 10.58
 
+> বেড়া-সঙ্কীর্তন তাহাঁ আরম্ভ করিলা ।
+> সাত-সম্প্রদায় তবে গাইতে লাগিলা ॥৫৮॥
+
 beḍā-saṅkīrtana tāhāṅ ārambha karilā
 
 sāta-sampradāya tabe gāite lāgilā

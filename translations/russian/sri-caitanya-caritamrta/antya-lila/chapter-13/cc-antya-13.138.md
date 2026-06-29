@@ -1,5 +1,8 @@
 ### CC Antya 13.138
 
+> যে এইসকল কথা শুনে শ্রদ্ধা করি’ ।
+> তাঁরে কৃষ্ণপ্রেমধন দেন গৌরহরি ॥১৩৮॥
+
 > ye ei-sakala kathā śune śraddhā kari'
 > tāṅre kṛṣṇa-prema-dhana dena gaurahari
 

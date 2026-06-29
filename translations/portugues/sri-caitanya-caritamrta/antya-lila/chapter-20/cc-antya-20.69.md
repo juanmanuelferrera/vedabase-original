@@ -1,5 +1,8 @@
 ### CC Antya 20.69
 
+> দ্বাদশ বৎসর ঐছে দশা — রাত্রি-দিনে ।
+> কৃষ্ণরস আস্বাদয়ে দুইবন্ধু-সনে ॥৬৯॥
+
 dvādaśa vatsara aiche daśā--rātri-dine
 
 kṛṣṇa-rasa āsvādaye dui-bandhu-sane

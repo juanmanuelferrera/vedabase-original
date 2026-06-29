@@ -1,5 +1,8 @@
 ### CC Madhya 3.20
 
+> আচার্যরত্নেরে কহে নিত্যানন্দ-গোসাঞি ।
+> শীঘ্র যাহ তুমি অদ্বৈত-আচার্যের ঠাঞি ॥২০॥
+
 > ācāryaratnere kahe nityānanda-gosāñi
 > śīghra yāha tumi advaita-ācāryera ṭhāñi
 

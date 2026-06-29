@@ -1,5 +1,7 @@
 ### SB 5.23.7
 
+> उत्तराहनावगस्तिरधराहनौ यमो मुखेषु चाङ्गारकः शनैश्चर उपस्थे बृहस्पतिः ककुदिवक्षस्यादित्यो हृदये नारायणो मनसि चन्द्रो नाभ्यामुशना स्तनयोरश्विनौ बुधः प्राणापानयोराहुर्गले केतवः सर्वाङ्गेषु रोमसु सर्वे तारागणाः ॥७॥
+
 *uttarā*-hanāv agastir adharā-hanau yamo mukheṣu cāṅgārakaḥ śanaiścara upasthe bṛhaspatiḥ kakudi vakṣasy ādityo hṛdaye nārāyaṇo manasi candro nābhyām uśanā stanayor aśvinau budhaḥ prāṇāpānayo rāhur gale ketavaḥ sarvāṅgeṣu romasu sarve tārā-gaṇāḥ.
 
 *uttarā-hanau*—na mandíbula superior; *agastiḥ*—a estrela chamada Agasti; *adharā-hanau*—na mandíbula inferior; *yamaḥ*—Yamarāja; *mukheṣu*—na boca; *ca*—também; *aṅgārakaḥ*—Marte; *śanaiścaraḥ*—Saturno; *upasthe*—nos órgãos genitais; *bṛhaspatiḥ*—Júpiter; *kakudi*—na nuca; *vakṣasi*—no peito; *ādityaḥ*—o sol; *hṛdaye*—dentro do coração; *nārāyaṇaḥ*—o Senhor Nārāyaṇa; *manasi*—na mente; *candraḥ*—a lua; *nābhyām*—no umbigo; *uśanā*—Vênus; *stanayoḥ*—nos dois seios; *aśvinau*—as duas estrelas chamadas Aśvin; *budhaḥ*—Mercúrio; *prāṇāpānayoḥ*—nos ares internos conhecidos como prāṇa e apāna; *rāhuḥ*—o planeta Rāhu; *gale*—no pescoço; *ketavaḥ*—cometas; *sarva-aṅgeṣu*—por todo o corpo; *romasu*—nos poros do corpo; *sarve*—todas; *tārā-gaṇāḥ*—as numerosas estrelas.

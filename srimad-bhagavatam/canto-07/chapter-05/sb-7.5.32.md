@@ -1,5 +1,8 @@
 ### SB 7.5.32
 
+> नैषां मतिस्तावदुरुक्रमाङ्घ्रिं स्पृशत्यनर्थापगमो यदर्थः
+> महीयसां पादरजोऽभिषेकं निष्किञ्चनानां न वृणीत यावत ॥३२॥
+
 > naiṣāṁ matis tāvad urukramāṅghriṁ
 > spṛśaty anarthāpagamo yad-arthaḥ
 > mahīyasāṁ pāda-rajo-'bhiṣekaṁ

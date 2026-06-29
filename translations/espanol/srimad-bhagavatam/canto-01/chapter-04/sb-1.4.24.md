@@ -1,5 +1,8 @@
 ### SB 1.4.24
 
+> त एव वेदा दुर्मेधैर्धार्यन्ते पुरुषैर्यथा ।
+> एवं चकार भगवान्व्यासः कृपणवत्सलः ॥२४॥
+
 > ta eva vedā durmedhair
 > dhāryante puruṣair yathā
 > evaṁ cakāra bhagavān

@@ -1,5 +1,8 @@
 ### CC Madhya 23.101
 
+> সংক্ষেপে কহিলুঁ এই ‘প্রয়োজন’-বিবরণ ।
+> পঞ্চম-পুরুষার্থ — এই ‘কৃষ্ণপ্রেম’-ধন ॥১০১॥
+
 > saṅkṣepe kahiluṅ ei 'prayojana'-vivaraṇa
 > pañcama-puruṣārtha--ei 'kṛṣṇa-prema'-dhana
 

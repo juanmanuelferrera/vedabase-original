@@ -1,5 +1,8 @@
 ### CC Adi 2.71
 
+> পূর্বপক্ষ কহে — তোমার ভালত’ ব্যাখ্যান ।
+> পরব্যোম-নারায়ণ স্বয়ং-ভগবান্ ॥৭১॥
+
 pūrva-pakṣa kahe--tomāra bhāla ta' vyākhyāna
 paravyoma-nārāyaṇa svayaṁ-bhagavān
 

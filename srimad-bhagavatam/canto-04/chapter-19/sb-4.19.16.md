@@ -1,5 +1,8 @@
 ### SB 4.19.16
 
+> एवं वैन्यसुतः प्रोक्तस्त्वरमाणं विहायसा ।
+> अन्वद्रवदभिक्रुद्धो रावणं गृध्रराडिव ॥१६॥
+
 > evaṁ vainya-sutaḥ proktas
 > tvaramāṇaṁ vihāyasā
 > anvadravad abhikruddho

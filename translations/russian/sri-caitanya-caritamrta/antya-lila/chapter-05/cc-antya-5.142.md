@@ -1,5 +1,8 @@
 ### CC Antya 5.142
 
+> ‘পণ্ডিতের মান্য-পাত্র হয় ‘পণ্ডিতমানী’ ।
+> তথাপি ভক্তবাৎসল্যে ‘মনুষ্য’ অভিমানী ॥১৪২॥
+
 > 'paṇḍitera mānya-pātra—haya 'paṇḍita-mānī'
 > tathāpi bhakta-vātsalye 'manuṣya' abhimānī
 

@@ -1,5 +1,8 @@
 ### CC Madhya 11.38
 
+> আমি কি করিব, মন ইহাঁ লঞা আইল ।
+> জগন্নাথ-দরশনে বিচার না কৈল ॥৩৮॥
+
 > āmi ki kariba, mana ihāṅ lañā āila
 > jagannātha-daraśane vicāra nā kaila
 

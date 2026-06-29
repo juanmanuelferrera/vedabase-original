@@ -1,5 +1,8 @@
 ### CC Madhya 1.252
 
+> পণ্ডিত-গোসাঞি কৈল নীলাচলে বাস ।
+> বক্রেশ্বর, দামোদর, শঙ্কর, হরিদাস ॥২৫২॥
+
 paṇḍita-gosāñi kaila nīlācale vāsa
 
 vakreśvara, dāmodara, śaṅkara, haridāsa

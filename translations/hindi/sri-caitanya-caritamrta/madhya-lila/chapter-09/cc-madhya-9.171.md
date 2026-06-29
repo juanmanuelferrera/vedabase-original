@@ -1,5 +1,8 @@
 ### CC Madhya 9.171
 
+> প্রভু কহে, — তুমি পুনঃ আইস নীলাচলে ।
+> আমি সেতুবন্ধ হৈতে আসিব অল্পকালে ॥১৭১॥
+
 > prabhu kahe,--tumi punaḥ āisa nīlācale
 > āmi setubandha haite āsiba alpa-kāle
 

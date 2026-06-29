@@ -1,5 +1,8 @@
 ### CC Madhya 15.289
 
+> তাবৎ রহিব আমি এথায় বসিয়া ।
+> যাবৎ না খাইবে তুমি প্রসাদ আসিয়া ॥২৮৯॥
+
 tāvat rahiba āmi ethāya vasiyā
 
 yāvat nā khāibe tumi prasāda āsiyā

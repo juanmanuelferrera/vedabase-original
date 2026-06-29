@@ -1,5 +1,8 @@
 ### CC Adi 13.53
 
+> আগে অবতারিলা যে যে গুরু-পরিবার ।
+> সংক্ষেপে কহিয়ে, কহা না যায় বিস্তার ॥৫৩॥
+
 > āge avatārilā ye ye guru-parivāra
 > saṅkṣepe kahiye, kahā nā yāya vistāra
 

@@ -1,5 +1,8 @@
 ### CC Antya 7.5
 
+> আসিয়া বন্দিল ভট্ট প্রভুর চরণে ।
+> প্রভু ‘ভাগবতবুদ্ধ্যে’ কৈলা আলিঙ্গনে ॥৫॥
+
 āsiyā vandila bhaṭṭa prabhura caraṇe
 prabhu 'bhāgavata-buddhye' kailā āliṅgane
 

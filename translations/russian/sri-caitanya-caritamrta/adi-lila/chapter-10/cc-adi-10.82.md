@@ -1,5 +1,8 @@
 ### CC Adi 10.82
 
+> প্রভু কহে, কুলীনগ্রামের যে হয় কুক্কুর ।
+> সেই মোর প্রিয়, অন্য জন রহু দূর ॥৮২॥
+
 > prabhu kahe, kulīnagrāmera ye haya kukkura
 > sei mora priya, anya jana rahu dūra
 

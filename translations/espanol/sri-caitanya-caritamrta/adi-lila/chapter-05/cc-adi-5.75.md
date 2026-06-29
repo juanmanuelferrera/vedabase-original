@@ -1,5 +1,8 @@
 ### CC Adi 5.75
 
+> যাঁহাকে ত’ কলা কহি, তিঁহো মহাবিষ্ণু ।
+> মহাপুরুষাবতারী তেঁহো সর্বজিষ্ণু ॥৭৫॥
+
 > yāṅhāke ta' kalā kahi, tiṅho mahā-viṣṇu
 > mahā-puruṣāvatārī teṅho sarva-jiṣṇu
 

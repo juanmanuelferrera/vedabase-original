@@ -1,5 +1,8 @@
 ### CC Madhya 13.180
 
+> এইমত প্রভু নৃত্য করিতে ভ্রমিতে  ।
+> প্ৰতাপরুদ্রের আগে লাগিলা পড়িতে ॥১৮০॥
+
 ei-mata prabhu nṛtya karite bhramite
 
 pratāparudrera āge lāgilā paḍite

@@ -1,5 +1,8 @@
 ### CC Antya 8.23
 
+> ‘কৃষ্ণ না পাইনু, না পাইনু ‘মথুরা’ ।
+> আপন-দুঃখে মরোঁ — এই দিতে আইল জ্বালা ॥২৩॥
+
 > 'kṛṣṇa nā pāinu, nā pāinu 'mathurā'
 > āpana-duḥkhe maroṅ--ei dite āila jvālā
 

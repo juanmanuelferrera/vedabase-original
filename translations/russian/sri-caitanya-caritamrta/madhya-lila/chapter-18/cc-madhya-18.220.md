@@ -1,5 +1,8 @@
 ### CC Madhya 18.220
 
+> তাঁর সঙ্গে অন্যোন্যে, তাঁর সঙ্গে আন ।
+> এইমত ‘বৈষ্ণব’ কৈলা সব দেশ-গ্রাম ॥২২০॥
+
 > tāṅra saṅge anyonye, tāṅra saṅge āna
 > ei-mata 'vaiṣṇava' kailā saba deśa-grāma
 

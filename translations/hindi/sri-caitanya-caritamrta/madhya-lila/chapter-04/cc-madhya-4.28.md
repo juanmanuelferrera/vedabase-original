@@ -1,5 +1,8 @@
 ### CC Madhya 4.28
 
+> বালক কহে, — গোপ আমি, এই গ্রামে বসি ।
+> আমার গ্রামেতে কেহ না রহে উপবাসী ॥২৮॥
+
 > bālaka kahe,--gopa āmi, ei grāme vasi
 > āmāra grāmete keha nā rahe upavāsī
 

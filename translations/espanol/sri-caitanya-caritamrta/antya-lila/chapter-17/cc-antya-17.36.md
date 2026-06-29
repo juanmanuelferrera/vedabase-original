@@ -1,5 +1,10 @@
 ### CC Antya 17.36
 
+> ধর্ম ছাড়ায় বেণুদ্বারে, হানে কটাক্ষ-কামশরে,
+> লজ্জা, ভয়, সকল ছাড়ায় ।
+> এবে আমায় করি’ রোষ, কহি’ পতিত্যাগে ‘দোষ’,
+> ধার্মিক হঞা ধর্ম শিখায় ! ॥ ৩৬ ॥
+
 > dharma chāḍāya veṇu-dvāre, hāne kaṭākṣa-kāma-śare,
 > lajjā, bhaya, sakala chāḍāya
 > ebe āmāya kari' roṣa, kahi' pati-tyāge 'doṣa',

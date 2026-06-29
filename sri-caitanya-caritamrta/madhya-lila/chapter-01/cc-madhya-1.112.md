@@ -1,5 +1,8 @@
 ### CC Madhya 1.112
 
+> তবে ভট্টথারি হৈতে কৃষ্ণদাসের উদ্ধার ।
+> রামজপী বিপ্রমুখে কৃষ্ণনাম প্রচার ॥১১২॥
+
 > tabe bhaṭṭathāri haite kṛṣṇa-dāsera uddhāra
 > rāma-japī vipra-mukhe kṛṣṇa-nāma pracāra
 

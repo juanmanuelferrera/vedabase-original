@@ -1,5 +1,7 @@
 ### SB 5.22.13
 
+> उशनसा बुधो व्याख्यातस्तत उपरिष्टाद्द्विलक्षयोजनतो बुधः सोमसुत उपलभ्यमानःप्रायेण शुभकृद्यदार्काद्व्यतिरिच्येत तदातिवाताभ्रप्रायानावृष्ट्यादिभयमाशंसते ॥१३॥
+
 *uśanasā budho vyākhyātas tata upariṣṭād dvi*-lakṣa-yojanato budhaḥ soma-suta upalabhyamānaḥ prāyeṇa śubha-kṛd yadārkād vyatiricyeta tadātivātābhra-prāyānāvṛṣṭy-ādi-bhayam āśaṁsate.
 
 *uśanasā*—com Vênus; *budhaḥ*—Mercúrio; *vyākhyātaḥ*—explicado; *tataḥ*—desse (Vênus); *upariṣṭāt*—acima; *dvi-lakṣa-yojanataḥ*—1.600.000 milhas; *budhaḥ*—Mercúrio; *soma-sutaḥ*—o filho da lua; *upalabhyamānaḥ*—está situado; *prāyeṇa*—quase sempre; *śubha-kṛt*—muito auspicioso para os habitantes do universo; *yadā*—quando; *arkāt*—do sol; *vyatiricyeta*—está separado; *tadā*—nessa ocasião; *ativāta*—de ciclones e outros efeitos ruins; *abhra*—nuvens; *prāya*—quase sempre; *anāvṛṣṭi-ādi*—tais como a escassez de chuva; *bhayam*—condições temíveis; *āśaṁsate*—expande.

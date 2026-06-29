@@ -1,5 +1,8 @@
 ### CC Adi 17.324
 
+> একাদশে ‘নিত্যানন্দশাখা-বিবরণ’ ।
+> দ্বাদশে ‘অদ্বৈতস্কন্ধ শাখার বর্ণন’ ॥৩২৪॥
+
 ekādaśe 'nityānanda-śākhā-vivaraṇa'
 dvādaśe 'advaita-skandha śākhāra varṇana'
 

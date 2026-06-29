@@ -1,5 +1,8 @@
 ### CC Madhya 20.31
 
+> সন্তুষ্ট হইলাঙ আমি, মোহর না লইব ।
+> পুণ্য লাগি’ পর্বত তোমা’ পার করি’ দিব ।।” ॥ ৩১ ॥
+
 > santuṣṭa ha-ilāṅa āmi, mohara nā la-iba
 > puṇya lāgi' parvata tomā' pāra kari' diba"
 

@@ -1,5 +1,8 @@
 ### CC Madhya 12.203
 
+> স্বতন্ত্র ঈশ্বর প্রভু করে নানা খেলা ।
+> ‘ধোয়াপাখলা’ নাম কৈল এই এক লীলা ॥২০৩॥
+
 svatantra īśvara prabhu kare nānā khelā
 
 'dhoyā-pākhalā' nāma kaila ei eka līlā

@@ -3,6 +3,9 @@
 > tomāra dui hasta baddha nāma-gaṇane
 > jala-pātra-bahirvāsa vahibe kemane
 
+> tomāra dui hasta baddha nāma-gaṇane
+> jala-pātra-bahirvāsa vahibe kemane
+
 *tomāra*—Tus; *dui*—dos; *hasta*—manos; *baddha*—ocupadas; *nāma*—el santo nombre; *gaṇane*—en contar; *jala-pātra*—recipiente de agua; *bahir-vāsa*—vestimentas exteriores; *vahibe*—llevará; *kemane*—cómo.
 
 **«Puesto que Tus dos manos estarán siempre ocupadas cantando y contando el santo nombre, ¿cómo podrás llevar el recipiente de agua y las vestimentas exteriores?**

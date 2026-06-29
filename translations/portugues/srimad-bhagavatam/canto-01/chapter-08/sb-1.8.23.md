@@ -1,5 +1,8 @@
 ### SB 1.8.23
 
+> यथा हृषीकेश खलेन देवकी कंसेन रुद्धातिचिरं शुचार्पिता ।
+> विमोचिताहं च सहात्मजा विभो त्वयैव नाथेन मुहुर्विपद्गणात् ॥२३॥
+
 yathā hṛṣīkeśa khalena devakī
 kaṁsena ruddhāticiraṁ śucārpitā
 vimocitāhaṁ ca sahātmajā vibho

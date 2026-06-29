@@ -1,5 +1,8 @@
 ### CC Madhya 6.26
 
+> ঈশ্বর-দর্শনে প্রভু প্রেমে অচেতন ।
+> সার্বভৌম লঞা গেলা আপন-ভবন ॥২৬॥
+
 īśvara-darśane prabhu preme acetana
 sārvabhauma lañā gelā āpana-bhavana
 

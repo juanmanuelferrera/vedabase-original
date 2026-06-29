@@ -1,5 +1,8 @@
 ### CC Antya 20.137
 
+> বসন্ত-রজনীতে পুষ্পোদ্যানে বিহরণ ।
+> কৃষ্ণের সৌরভ্য-শ্লোকের অর্থ-বিবরণ ॥১৩৭॥
+
 vasanta-rajanīte puṣpodyāne viharaṇa
 
 kṛṣṇera saurabhya-ślokera artha-vivaraṇa

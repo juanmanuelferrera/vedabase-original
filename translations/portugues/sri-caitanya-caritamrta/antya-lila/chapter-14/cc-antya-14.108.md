@@ -1,5 +1,8 @@
 ### CC Antya 14.108
 
+> বেণুনাদ শুনি’ আইলা রাধা-ঠাকুরাণী ।
+> সব সখীগণ-সঙ্গে করিয়া সাজনি ॥১০৮॥
+
 veṇu-nāda śuni' āilā rādhā-ṭhākurāṇī
 
 saba sakhī-gaṇa-saṅge kariyā sājani

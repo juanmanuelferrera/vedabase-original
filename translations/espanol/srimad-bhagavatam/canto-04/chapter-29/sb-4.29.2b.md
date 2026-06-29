@@ -5,6 +5,11 @@
 > bhūtaṁ bhavad bhaviṣyac ca
 > suptaṁ sarva-raho-rahaḥ
 
+> adṛṣṭaṁ dṛṣṭavan naṅkṣed
+> bhūtaṁ svapnavad anyathā
+> bhūtaṁ bhavad bhaviṣyac ca
+> suptaṁ sarva-raho-rahaḥ
+
 *adṛṣṭam*—felicidad futura; *dṛṣṭa-vat*—como experiencia directa; *naṅkṣet*—se desvanece; *bhūtam*—la existencia material; *svapnavat*—como un sueño; *anyathā*—de otra manera; *bhūtam*—lo ocurrido en el pasado; *bhavat*—presente; *bhaviṣyat*—futuro; *ca*—también; *suptam*—un sueño; *sarva*—de todo; *rahaḥ-rahaḥ*—la conclusión secreta.
 
 **Todo lo que ocurre en el ámbito del tiempo, que consiste en pasado, presente y futuro, no es más que un sueño. Esa es la conclusión secreta que contienen todas las Escrituras védicas.**

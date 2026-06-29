@@ -1,5 +1,8 @@
 ### CC Antya 14.53
 
+> চিন্তাত্র জাগরোদ্বেগৌ তানবং মলিনাঙ্গতা ।
+> প্রলাপো ব্যাধিরুন্মাদো মোহো মৃত্যুর্দশা দশ ॥৫৩॥
+
 > cintātra jāgarodvegau
 > tānavaṁ malināṅgatā
 > pralāpo vyādhir unmādo

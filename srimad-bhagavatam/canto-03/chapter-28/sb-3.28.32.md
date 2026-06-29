@@ -1,5 +1,10 @@
 ### SB 3.28.32
 
+> हासं हरेरवनताखिललोकतीव्र
+> शोकाश्रुसागरविशोषणमत्युदारम् ।
+> सम्मोहनाय रचितं निजमाययास्य
+> भ्रूमण्डलं मुनिकृते मकरध्वजस्य ॥३२॥
+
 > hāsaṁ harer avanatākhila-loka-tīvra-
 > śokāśru-sāgara-viśoṣaṇam atyudāram
 > sammohanāya racitaṁ nija-māyayāsya

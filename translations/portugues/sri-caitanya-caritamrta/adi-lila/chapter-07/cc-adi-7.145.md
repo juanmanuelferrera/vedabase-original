@@ -1,5 +1,8 @@
 ### CC Adi 7.145
 
+> প্রেমা হৈতে কৃষ্ণ হয় নিজ ভক্তবশ ।
+> প্রেমা হৈতে পায় কৃষ্ণের সেবা-সুখরস ॥১৪৫॥
+
 premā haite kṛṣṇa haya nija bhakta-vaśa
 
 premā haite pāya kṛṣṇera sevā-sukha-rasa

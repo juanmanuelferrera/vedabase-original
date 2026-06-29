@@ -1,5 +1,8 @@
 ### CC Adi 5.186
 
+> সুবর্ণ-কুণ্ডল কর্ণে, স্বর্ণাঙ্গদ-বালা ।
+> পায়েতে নূপুর বাজে, কণ্ঠে পুষ্পমালা ॥১৮৬॥
+
 suvarṇa-kuṇḍala karṇe, svarṇāṅgada-vālā
 pāyete nūpura bāje, kaṇṭhe puṣpa-mālā
 

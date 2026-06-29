@@ -1,5 +1,8 @@
 ### CC Madhya 6.112
 
+> আচার্য — ভগিনীপতি, শ্যালক — ভট্টাচার্য ৷
+> নিন্দা-স্তুতি-হাস্যে শিক্ষা করা’ন আচার্য ॥১১২॥
+
 > ācārya--bhaginī-pati, śyālaka--bhaṭṭācārya
 > nindā-stuti-hāsye śikṣā karā'na ācārya
 

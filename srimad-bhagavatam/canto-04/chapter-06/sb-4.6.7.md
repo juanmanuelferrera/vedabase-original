@@ -1,5 +1,8 @@
 ### SB 4.6.7
 
+> नाहं न यज्ञो न च यूयमन्ये ये देहभाजो मुनयश्च तत्त्वम् ।
+> विदुः प्रमाणं बलवीर्ययोर्वा यस्यात्मतन्त्रस्य क उपायं विधित्सेत् ॥७॥
+
 > nāhaṁ na yajño na ca yūyam anye
 > ye deha-bhājo munayaś ca tattvam
 > viduḥ pramāṇaṁ bala-vīryayor vā

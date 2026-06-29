@@ -1,5 +1,8 @@
 ### SB 7.6.14
 
+> कुटुम्बपोषाय वियन्निजायुर्न बुध्यतेऽर्थं विहतं प्रमत्तः
+> सर्वत्र तापत्रयदुःखितात्मा निर्विद्यते न स्वकुटुम्बरामः ॥१४॥
+
 > kuṭumba-poṣāya viyan nijāyur
 > na budhyate 'rthaṁ vihataṁ pramattaḥ
 > sarvatra tāpa-traya-duḥkhitātmā

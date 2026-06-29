@@ -1,5 +1,8 @@
 ### CC Antya 15.58
 
+> পূর্ববৎ সর্বাঙ্গে সাত্ত্বিকভাবসকল ।
+> অন্তরে আনন্দ-আস্বাদ, বাহিরে বিহ্বল ॥৫৮॥
+
 > pūrvavat sarvāṅge sāttvika-bhāva-sakala
 > antare ānanda-āsvāda, bāhire vihvala
 

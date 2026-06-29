@@ -1,5 +1,8 @@
 ### CC Madhya 5.149
 
+> প্রেমাবেশে পড়িলা তুমি, তোমারে ধরিনু ।
+> তোমা-সহ সেই দণ্ড-উপরে পড়িনু ॥১৪৯॥
+
 premāveśe paḍilā tumi, tomāre dharinu
 
 tomā-saha sei daṇḍa-upare paḍinu

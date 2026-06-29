@@ -1,5 +1,8 @@
 ### CC Antya 2.41
 
+> এ-বৎসর তাঁহা আমি যাইমু আপনে  ।
+> তাহাই মিলিমু সব অদ্বৈতাদি সনে ॥৪১॥
+
 > e-vatsara tāṅhā āmi yāimu āpane
 > tāhāi milimu saba advaitādi sane
 

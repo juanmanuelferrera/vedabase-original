@@ -1,5 +1,8 @@
 ### SB 9.24.58
 
+> यन्मायाचेष्टितं पुंसः स्थित्युत्पत्त्यप्ययाय हि
+> अनुग्रहस्तन्निवृत्तेरात्मलाभाय चेष्यते ॥५८॥
+
 > yan māyā-ceṣṭitaṁ puṁsaḥ
 > sthity-utpatty-apyayāya hi
 > anugrahas tan-nivṛtter

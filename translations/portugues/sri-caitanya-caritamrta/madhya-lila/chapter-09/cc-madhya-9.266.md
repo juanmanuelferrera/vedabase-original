@@ -1,5 +1,8 @@
 ### CC Madhya 9.266
 
+> তাবৎ কর্মাণি কুর্বীত ন নির্বিদ্যেত যাবতা ৷
+> মৎকথা-শ্রবণাদৌ বা শ্রদ্ধা যাবন্ন জায়তে ৷৷ ২৬৬ ৷৷ ॥২৬৬॥
+
 tāvat karmāṇi kurvīta
 na nirvidyeta yāvatā
 mat-kathā-śravaṇādau vā

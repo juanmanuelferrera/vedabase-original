@@ -1,5 +1,8 @@
 ### SB 8.7.9
 
+> विलोक्य विघ्नेशविधिं तदेश्वरो दुरन्तवीर्योऽवितथाभिसन्धिः
+> कृत्वा वपुः कच्छपमद्भुतं महत्प्रविश्य तोयं गिरिमुज्जहार ॥९॥
+
 > tam utthitaṁ vīkṣya kulācalaṁ punaḥ
 > samudyatā nirmathituṁ surāsurāḥ
 > dadhāra pṛṣṭhena sa lakṣa-yojana-

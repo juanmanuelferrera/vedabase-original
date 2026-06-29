@@ -1,5 +1,8 @@
 ### SB 7.2.43
 
+> यथानलो दारुषु भिन्न ईयते यथानिलो देहगतः पृथक्स्थितः
+> यथा नभः सर्वगतं न सज्जते तथा पुमान्सर्वगुणाश्रयः परः ॥४३॥
+
 > yathānalo dāruṣu bhinna īyate
 > yathānilo deha-gataḥ pṛthak sthitaḥ
 > yathā nabhaḥ sarva-gataṁ na sajjate

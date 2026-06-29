@@ -1,5 +1,8 @@
 ### SB 7.2.48
 
+> वितथाभिनिवेशोऽयं यद्गुणेष्वर्थदृग्वचः
+> यथा मनोरथः स्वप्नः सर्वमैन्द्रियकं मृषा ॥४८॥
+
 > vitathābhiniveśo 'yaṁ
 > yad guṇeṣv artha-dṛg-vacaḥ
 > yathā manorathaḥ svapnaḥ

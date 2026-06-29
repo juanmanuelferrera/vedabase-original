@@ -1,5 +1,8 @@
 ### CC Madhya 7.49
 
+> স্বতন্ত্র-ঈশ্বর তুমি করিবে গমন ।
+> দিন কথো রহ, দেখি তোমার চরণ’ ॥৪৯॥
+
 > svatantra-īśvara tumi karibe gamana
 > dina katho raha, dekhi tomāra caraṇa'
 

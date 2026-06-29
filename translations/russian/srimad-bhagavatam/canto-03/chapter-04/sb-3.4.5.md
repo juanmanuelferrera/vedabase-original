@@ -1,5 +1,8 @@
 ### SB 3.4.5
 
+> तथापि तदभिप्रेतं जानन्नहमरिन्दम ।
+> पृष्ठतोऽन्वगमं भर्तुः पादविश्लेषणाक्षमः ॥५॥
+
 > tathāpi tad-abhipretaṁ
 > jānann aham arindama
 > pṛṣṭhato 'nvagamaṁ bhartuḥ

@@ -1,5 +1,8 @@
 ### CC Madhya 7.64
 
+> তোমার সঙ্গের যোগ্য তেঁহো এক জন ।
+> পৃথিবীতে রসিক ভক্ত নাহি তাঁর সম ॥৬৪॥
+
 > tomāra saṅgera yogya teṅho eka jana
 > pṛthivīte rasika bhakta nāhi tāṅra sama
 

@@ -1,5 +1,8 @@
 ### CC Antya 11.70
 
+> তাহা বেড়ি’ প্রভু কৈলা কীর্তন, নর্তন ।
+> হরিধ্বনি-কোলাহলে ভরিল ভুবন ॥৭০॥
+
 tāhā beḍi' prabhu kailā kīrtana, nartana
 
 hari-dhvani-kolāhale bharila bhuvana

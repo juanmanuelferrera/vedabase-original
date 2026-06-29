@@ -1,5 +1,8 @@
 ### CC Adi 4.229
 
+> ষষ্ঠশ্লোকের এই কহিল আভাস ।
+> মূল শ্লোকের অর্থ শুন করিয়ে প্রকাশ ॥২২৯॥
+
 ṣaṣṭha-ślokera ei kahila ābhāsa
 
 mūla ślokera artha śuna kariye prakāśa

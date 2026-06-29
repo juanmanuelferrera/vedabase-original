@@ -1,5 +1,10 @@
 ### CC Madhya 13.155
 
+> মোর ভাগ্য মো-বিষয়ে, তোমার যে প্রেম হয়ে,
+> সেই প্রেম — পরম প্রবল ।
+> লুকাঞা আমা আনে, সঙ্গ করায় তোমা-সনে,
+> প্ৰকটেহ আনিবে সত্বর ॥১৫৫॥
+
 > mora bhāgya mo-viṣaye, tomāra ye prema haye,
 > sei prema-parama prabala
 > lukāñā āmā āne, saṅga karāya tomā-sane,

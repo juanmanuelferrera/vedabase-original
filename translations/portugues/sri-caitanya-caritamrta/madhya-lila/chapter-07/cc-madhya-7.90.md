@@ -1,5 +1,8 @@
 ### CC Madhya 7.90
 
+> এইরূপে সেই ঠাঞি ভক্তগণ-সঙ্গে ৷
+> সেই রাত্রি গোঙাইলা কৃষ্ণকথা-রঙ্গে ৷৷ ৯০ ৷৷ ॥৯০॥
+
 ei-rūpe sei ṭhāñi bhakta-gaṇa-saṅge
 
 sei rātri goṅāilā kṛṣṇa-kathā-raṅge

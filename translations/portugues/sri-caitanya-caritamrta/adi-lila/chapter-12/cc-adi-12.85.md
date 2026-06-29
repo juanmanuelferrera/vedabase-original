@@ -1,5 +1,8 @@
 ### CC Adi 12.85
 
+> শ্রীহরি আচার্য, সাদি-পুরিয়া গোপাল ।
+> কৃষ্ণদাস ব্রহ্মচারী, পুষ্পগোপাল ॥৮৫॥
+
 śrī-hari ācārya, sādi-puriyā gopāla
 
 kṛṣṇadāsa brahmacārī, puṣpa-gopāla

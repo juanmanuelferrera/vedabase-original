@@ -1,5 +1,8 @@
 ### CC Adi 10.163
 
+> সংক্ষেপে কহিল মহাপ্রভুর ভক্তগণ ।
+> সমগ্র বলিতে নারে ‘সহস্র-বদন’ ॥১৬৩॥
+
 > saṅkṣepe kahila mahāprabhura bhakta-gaṇa
 > samagra balite nāre 'sahasra-vadana'
 

@@ -1,5 +1,8 @@
 ### CC Madhya 6.160
 
+> অন্তরঙ্গা — চিচ্ছক্তি, তটস্থা — জীবশক্তি ৷
+> বহিরঙ্গা — মায়া, — তিনে করে প্রেমভক্তি ॥১৬০॥
+
 > antaraṅgā--cic-chakti, taṭasthā--jīva-śakti
 > bahiraṅgā--māyā,--tine kare prema-bhakti
 

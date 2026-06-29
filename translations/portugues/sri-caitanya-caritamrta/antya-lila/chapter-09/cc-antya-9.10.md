@@ -1,5 +1,8 @@
 ### CC Antya 9.10
 
+> প্রহ্লাদ, বলি, ব্যাস, শুক আদি মুনিগণ ।
+> আসি’ প্রভু দেখি’ প্রেমে হয় অচেতন ॥১০॥
+
 prahlāda, bali, vyāsa, śuka ādi muni-gaṇa
 āsi' prabhu dekhi' preme haya acetana
 

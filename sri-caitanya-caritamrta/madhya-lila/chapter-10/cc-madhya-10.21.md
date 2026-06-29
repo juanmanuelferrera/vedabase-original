@@ -1,5 +1,8 @@
 ### CC Madhya 10.21
 
+> রাজা কহে, — ঐছে কাশীমিশ্রের ভবন ।
+> ঠাকুরের নিকট, হয় পরম নির্জন ॥২১॥
+
 > rājā kahe,-aiche kāśī-miśrera bhavana
 > ṭhākurera nikaṭa, haya parama nirjana
 

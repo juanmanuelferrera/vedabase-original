@@ -1,5 +1,8 @@
 ### CC Antya 16.139
 
+> ‘কহ রাম-রায়, কিছু শুনিতে হয় মন’ ।
+> ভাব জানি’ পড়ে রায় গোপীর বচন ॥১৩৯॥
+
 > 'kaha rāma-rāya, kichu śunite haya mana'
 > bhāva jāni' paḍe rāya gopīra vacana
 

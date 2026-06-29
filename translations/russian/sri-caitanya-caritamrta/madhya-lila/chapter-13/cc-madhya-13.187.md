@@ -1,5 +1,8 @@
 ### CC Madhya 13.187
 
+> তোমার উপরে প্ৰভুর সুপ্রসন্ন মন ।
+> তোমা লক্ষ্য করি’ শিখায়েন নিজ গণ ॥১৮৭॥
+
 > tomāra upare prabhura suprasanna mana
 > tomā lakṣya kari' śikhāyena nija gaṇa
 

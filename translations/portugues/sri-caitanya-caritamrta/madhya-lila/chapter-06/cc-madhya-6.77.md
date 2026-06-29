@@ -1,5 +1,8 @@
 ### CC Madhya 6.77
 
+> শুনি’ গোপীনাথ-মুকুন্দ দুঁহে দুঃখী হৈলা ।
+> গোপীনাথাচার্য কিছু কহিতে লাগিলা ॥৭৭॥
+
 śuni' gopīnātha-mukunda duṅhe duḥkhā hailā
 gopīnāthācārya kichu kahite lāgilā
 

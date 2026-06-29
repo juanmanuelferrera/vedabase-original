@@ -1,5 +1,8 @@
 ### CC Antya 6.68
 
+> কোন কোন বিপ্র উপরে স্থান না পাঞা ।
+> দুই হোল্নায় চিড়া ভিজায় গঙ্গাতীরে গিয়া ॥৬৮॥
+
 > kona kona vipra upare sthāna nā pāñā
 > dui holnāya ciḍā bhijāya gaṅgā-tīre giyā
 

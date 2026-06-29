@@ -1,5 +1,8 @@
 ### CC Madhya 15.34
 
+> ‘কাহাঁরে রাব্ণা’ প্রভু কহে ক্রোধাবেশে ।
+> ‘জগন্মাতা হরে পাপী, মারিমু সবংশে ।।’ ॥৩৪॥
+
 > 'kāhāṅre rāvṇā' prabhu kahe krodhāveśe
 > jagan-mātā hare pāpī, mārimu savaṁśe'
 

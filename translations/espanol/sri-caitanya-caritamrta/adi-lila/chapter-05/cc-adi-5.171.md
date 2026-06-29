@@ -1,5 +1,8 @@
 ### CC Adi 5.171
 
+> এত বলি’ নাচে গায়, করয়ে সন্তোষ ।
+> কৃষ্ণকার্য করে বিপ্র — না করিল রোষ ॥১৭১॥
+
 > eta bali' nāce gāya, karaye santoṣa
 > kṛṣṇa-kārya kare vipra--nā karila roṣa
 

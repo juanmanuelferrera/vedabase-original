@@ -1,5 +1,8 @@
 ### CC Adi 17.122
 
+> ‘হরয়ে নমঃ, কৃষ্ণ যাদবায় নমঃ ।
+> গোপাল গোবিন্দ রাম শ্রীমধুসূদন ॥১২২॥
+
 > 'haraye namaḥ, kṛṣṇa yādavāya namaḥ
 > gopāla govinda rāma śrī-madhusūdana'
 

@@ -1,5 +1,8 @@
 ### CC Madhya 17.132
 
+> দেহ-দেহীর, নাম-নামীর কৃষ্ণে নাহি ‘ভেদ’ ।
+> জীবের ধর্ম — নাম-দেহ-স্বরূপে ‘বিভেদ’ ॥১৩২॥
+
 deha-dehīra, nāma-nāmīra kṛṣṇe nāhi 'bheda'
 
 jīvera dharma--nāma-deha-svarūpe 'vibheda'

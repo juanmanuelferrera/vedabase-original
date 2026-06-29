@@ -1,5 +1,8 @@
 ### CC Antya 3.128
 
+> তুলসীকে, ঠাকুরকে নমস্কার করি’ ।
+> দ্বারে বসি’ নাম শুনে, বলে ‘হরি’ ‘হরি’ ॥১২৮॥
+
 > tulasīke, ṭhākurake namaskāra kari'
 > dvāre vasi' nāma śune, bale 'hari' 'hari'
 

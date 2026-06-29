@@ -1,5 +1,8 @@
 ### CC Madhya 25.258
 
+> বিংশতি পরিচ্ছেদে — সনাতনের মিলন ।
+> তার মধ্যে ভগবানের স্বরূপ-বর্ণন ॥২৫৮॥
+
 > viṁśati paricchede-sanātanera milana
 > tāra madhye bhagavānera svarūpa-varṇana
 

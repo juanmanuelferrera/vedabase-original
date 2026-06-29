@@ -1,5 +1,8 @@
 ### CC Adi 10.60
 
+> আস্বাদিল এ সব রস সেন শিবানন্দ ।
+> বিস্তারি’ কহিব আগে এসব আনন্দ ॥৬০॥
+
 > āsvādila e saba rasa sena śivānanda
 > vistāri' kahiba āge esaba ānanda
 

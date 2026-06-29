@@ -1,5 +1,8 @@
 ### CC Antya 10.45
 
+> ভক্তগণ পড়ে আসি’ প্রভুর চরণে ।
+> উঠাঞা প্রভু সবারে কৈলা আলিঙ্গনে ॥৪৫॥
+
 bhakta-gaṇa paḍe āsi' prabhura caraṇe
 
 uṭhāñā prabhu sabāre kailā āliṅgane

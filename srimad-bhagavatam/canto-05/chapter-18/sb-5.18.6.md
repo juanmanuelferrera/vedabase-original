@@ -1,5 +1,8 @@
 ### SB 5.18.6
 
+> वेदान्युगान्ते तमसा तिरस्कृतान्रसातलाद्यो नृतुरङ्गविग्रहः
+> प्रत्याददे वै कवयेऽभियाचते तस्मै नमस्तेऽवितथेहिताय इति ॥६॥
+
 > vedān yugānte tamasā tiraskṛtān
 > rasātalād yo nṛ-turaṅga-vigrahaḥ
 > pratyādade vai kavaye 'bhiyācate

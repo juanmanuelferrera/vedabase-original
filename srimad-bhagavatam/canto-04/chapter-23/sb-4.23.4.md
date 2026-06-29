@@ -1,5 +1,8 @@
 ### SB 4.23.4
 
+> तत्राप्यदाभ्यनियमो वैखानससुसम्मते ।
+> आरब्ध उग्रतपसि यथा स्वविजये पुरा ॥४॥
+
 > tatrāpy adābhya-niyamo
 > vaikhānasa-susammate
 > ārabdha ugra-tapasi

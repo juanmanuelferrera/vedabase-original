@@ -1,5 +1,8 @@
 ### CC Adi 4.179
 
+> সে প্রতিজ্ঞা ভঙ্গ হৈল গোপীর ভজনে ।
+> তাহাতে প্রমাণ কৃষ্ণ-শ্রীমুখবচনে ॥১৭৯॥
+
 > se pratijñā bhaṅga haila gopīra bhajane
 > tāhāte pramāṇa kṛṣṇa-śrī-mukha-vacane
 

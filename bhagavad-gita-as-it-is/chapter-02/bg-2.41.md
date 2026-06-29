@@ -1,5 +1,8 @@
 ### Bg 2.41
 
+> व्यवसायात्मिका बुद्धिरेकेह कुरुनन्दन ।
+> बहुशाखा ह्यनन्ताश्च बुद्धयोऽव्यवसायिनाम् ॥४१॥
+
 > vyavasāyātmikā buddhir
 > ekeha kuru-nandana
 > bahu-śākhā hy anantāś ca

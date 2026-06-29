@@ -1,5 +1,8 @@
 ### SB 1.3.31
 
+> यथा नभसि मेघौघो रेणुर्वा पार्थिवोऽनिले ।
+> एवं द्रष्टरि दृश्यत्वमारोपितमबुद्धिभिः ॥३१॥
+
 > yathā nabhasi meghaugho
 > reṇur vā pārthivo 'nile
 > evaṁ draṣṭari dṛśyatvam

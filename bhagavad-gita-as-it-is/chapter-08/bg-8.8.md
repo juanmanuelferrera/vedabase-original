@@ -1,5 +1,8 @@
 ### Bg 8.8
 
+> अभ्यासयोगयुक्तेन चेतसा नान्यगामिना ।
+> परमं पुरुषं दिव्यं याति पार्थानुचिन्तयन् ॥८॥
+
 > abhyāsa-yoga-yuktena
 > cetasā nānya-gāminā
 > paramaṁ puruṣaṁ divyaṁ

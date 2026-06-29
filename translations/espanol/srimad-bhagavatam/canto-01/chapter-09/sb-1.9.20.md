@@ -1,5 +1,8 @@
 ### SB 1.9.20
 
+> यं मन्यसे मातुलेयं प्रियं मित्रं सुहृत्तमम् ।
+> अकरोः सचिवं दूतं सौहृदादथ सारथिम् ॥२०॥
+
 > yaṁ manyase mātuleyaṁ
 > priyaṁ mitraṁ suhṛttamam
 > akaroḥ sacivaṁ dūtaṁ

@@ -1,5 +1,8 @@
 ### CC Antya 12.53
 
+> শিবানন্দের ‘প্রকৃতি’, পুত্র — যাবৎ এথায়  ।
+> আমার অবশেষ-পাত্র তারা যেন পায় ।।” ৫৩ ॥৫৩॥
+
 "śivānandera 'prakṛti', putra--yāvat ethāya
 
 āmāra avaśeṣa-pātra tārā yena pāya"

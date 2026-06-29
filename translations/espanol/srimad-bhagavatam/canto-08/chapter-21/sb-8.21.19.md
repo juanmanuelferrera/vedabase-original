@@ -1,5 +1,8 @@
 ### SB 8.21.19
 
+> हे विप्रचित्ते हे राहो हे नेमे श्रूयतां वचः
+> मा युध्यत निवर्तध्वं न नः कालोऽयमर्थकृत ॥१९॥
+
 > he vipracitte he rāho
 > he neme śrūyatāṁ vacaḥ
 > mā yudhyata nivartadhvaṁ

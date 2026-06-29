@@ -1,5 +1,7 @@
 ### SB 5.8.10
 
+> नूनं ह्यार्याः साधव उपशमशीलाः कृपणसुहृद एवंविधार्थे स्वार्थानपिगुरुतरानुपेक्षन्ते ॥१०॥
+
 > nūnaṁ hy āryāḥ sādhava upaśama-śīlāḥ kṛpaṇa-suhṛda evaṁ-vidhārthe svārthān api gurutarān upekṣante.
 
 *nūnam*—en verdad; *hi*—ciertamente; *āryāḥ*—las personas de civilización avanzada; *sādhavaḥ*—personas santas; *upaśama-śīlāḥ*—aunque estén en la orden de vida de renuncia completa; *kṛpaṇa-suhṛdaḥ*—los amigos de los desamparados; *evaṁ-vidha-arthe*—para poner en práctica esos principios; *sva-arthān api*—incluso sus propios intereses personales; *guru-tarān*—muy importantes; *upekṣante*—pasan por alto.

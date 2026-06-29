@@ -1,5 +1,8 @@
 ### CC Adi 14.20
 
+> শুনি’ শচী-মিশ্রের মনে আনন্দ বাড়িল ।
+> ব্রাহ্মণ-ব্রাহ্মণী আনি’ মহোৎসব কৈল ॥২০॥
+
 > śuni' śacī-miśrera mane ānanda bāḍila
 > brāhmaṇa-brāhmaṇī āni' mahotsava kaila
 

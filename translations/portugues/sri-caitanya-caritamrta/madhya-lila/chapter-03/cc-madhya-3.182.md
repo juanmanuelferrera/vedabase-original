@@ -1,5 +1,8 @@
 ### CC Madhya 3.182
 
+> তাতে এই যুক্তি ভাল, মোর মনে লয় ।
+> নীলাচলে রহে যদি, দুই কার্য হয় ॥১৮২॥
+
 tāte ei yukti bhāla, mora mane laya
 nīlācale rahe yadi, dui kārya haya
 

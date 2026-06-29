@@ -1,5 +1,8 @@
 ### SB 3.7.34
 
+> दानस्य तपसो वापि यच्चेष्टापूर्तयोः फलम् ।
+> प्रवासस्थस्य यो धर्मो यश्च पुंस उतापदि ॥३४॥
+
 > dānasya tapaso vāpi
 > yac ceṣṭā-pūrtayoḥ phalam
 > pravāsa-sthasya yo dharmo

@@ -1,5 +1,8 @@
 ### SB 9.7.19
 
+> एवं द्वितीये तृतीये चतुर्थे पञ्चमे तथा
+> अभ्येत्याभ्येत्य स्थविरो विप्रो भूत्वाह वृत्रहा ॥१९॥
+
 > evaṁ dvitīye tṛtīye
 > caturthe pañcame tathā
 > abhyetyābhyetya sthaviro

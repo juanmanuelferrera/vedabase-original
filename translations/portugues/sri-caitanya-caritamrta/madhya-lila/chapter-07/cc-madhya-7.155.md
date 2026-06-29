@@ -1,5 +1,8 @@
 ### CC Madhya 7.155
 
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ৷
+> চৈতন্য-চরিতামৃত কহে কৃষ্ণদাস ৷৷ ১৫৫ ৷৷ ॥১৫৫॥
+
 śrī-rūpa-raghunātha-pade yāra āśa
 
 caitanya-caritāmṛta kahe kṛṣṇadāsa

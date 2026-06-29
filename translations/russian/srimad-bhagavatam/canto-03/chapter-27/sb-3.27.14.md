@@ -1,5 +1,8 @@
 ### SB 3.27.14
 
+> भूतसूक्ष्मेन्द्रियमनो बुद्ध्यादिष्विह निद्रया ।
+> लीनेष्वसति यस्तत्र विनिद्रो निरहङ्क्रियः ॥१४॥
+
 > bhūta-sūkṣmendriya-mano-
 > buddhy-ādiṣv iha nidrayā
 > līneṣv asati yas tatra

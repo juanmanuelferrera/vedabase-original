@@ -1,5 +1,8 @@
 ### CC Antya 7.46
 
+> তেঁহ যাঁর পদধূলি করেন প্রার্থন  ।
+> স্বরূপের সঙ্গে পাইলুঁ এ সব শিক্ষণ ॥৪৬॥
+
 teṅha yāṅra pada-dhūli karena prārthana
 
 svarūpera saṅge pāiluṅ e saba śikṣaṇa

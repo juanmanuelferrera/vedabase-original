@@ -1,5 +1,8 @@
 ### CC Madhya 20.139
 
+> অতএব ‘ভক্তি’ — কৃষ্ণপ্রাপ্ত্যের উপায় ।
+> ‘অভিধেয়’ বলি’ তারে সর্বশাস্ত্রে গায় ॥১৩৯॥
+
 > ataeva 'bhakti'--kṛṣṇa-prāptyera upāya
 > 'abhidheya' bali' tāre sarva-śāstre gāya
 

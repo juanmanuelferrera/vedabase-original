@@ -1,5 +1,8 @@
 ### SB 5.19.1
 
+> श्रीशुक उवाच
+> किम्पुरुषे वर्षे भगवन्तमादिपुरुषं लक्ष्मणाग्रजं सीताभिरामं रामं तच्चरणसन्निकर्षाभिरतः परमभागवतो हनुमान्सह किम्पुरुषैरविरतभक्तिरुपास्ते ॥१॥
+
 > śrī-śuka uvāca
 > kimpuruṣe varṣe bhagavantam ādi-puruṣaṁ lakṣmaṇāgrajaṁ sītābhirāmaṁ rāmaṁ tac-caraṇa-sannikarṣābhirataḥ parama-bhāgavato hanumān saha kimpuruṣair avirata-bhaktir upāste.
 

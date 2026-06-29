@@ -1,5 +1,8 @@
 ### SB 4.16.25
 
+> एष स्वसद्मोपवने समेत्य सनत्कुमारं भगवन्तमेकम् ।
+> आराध्य भक्त्यालभतामलं तज्ज्ञानं यतो ब्रह्म परं विदन्ति ॥२५॥
+
 > eṣa sva-sadmopavane sametya
 > sanat-kumāraṁ bhagavantam ekam
 > ārādhya bhaktyālabhatāmalaṁ taj

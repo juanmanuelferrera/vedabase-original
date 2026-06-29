@@ -1,5 +1,8 @@
 ### CC Madhya 19.152
 
+> মালী হঞা করে সেই বীজ আরোপণ ।
+> শ্রবণ-কীর্তন-জলে করয়ে সেচন ॥১৫২॥
+
 > mālī hañā kare sei bīja āropaṇa
 > śravaṇa-kīrtana-jale karaye secana
 

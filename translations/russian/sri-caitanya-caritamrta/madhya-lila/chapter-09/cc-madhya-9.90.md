@@ -1,5 +1,8 @@
 ### CC Madhya 9.90
 
+> কৃষ্ণনাম বিনা কেহ নাহি কহে আর ।
+> সবে কৃষ্ণভক্ত হৈল, — লোকে চমৎকার ॥৯০॥
+
 > kṛṣṇa-nāma vinā keha nāhi kahe āra
 > sabe kṛṣṇa-bhakta haila,—loke camatkāra
 

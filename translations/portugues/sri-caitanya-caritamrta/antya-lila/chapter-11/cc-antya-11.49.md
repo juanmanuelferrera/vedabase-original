@@ -1,5 +1,8 @@
 ### CC Antya 11.49
 
+> স্বরূপ-গোসাঞি আদি যত প্রভুর গণ ।
+> হরিদাসে বেড়ি’ করে নাম-সঙ্কীর্তন ॥৪৯॥
+
 svarūpa-gosāñi ādi yata prabhura gaṇa
 
 haridāse beḍi' kare nāma-saṅkīrtana

@@ -1,5 +1,8 @@
 ### CC Antya 11.58
 
+> ‘হরি’ ‘কৃষ্ণ’-শব্দে সবে করে কোলাহল ।
+> প্রেমানন্দে মহাপ্রভু হইলা বিহ্বল ॥৫৮॥
+
 > 'hari' 'kṛṣṇa'-śabde sabe kare kolāhala
 > premānande mahāprabhu ha-ilā vihvala
 

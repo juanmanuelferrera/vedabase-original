@@ -1,5 +1,8 @@
 ### SB 8.3.16
 
+> गुणारणिच्छन्नचिदुष्मपाय तत्क्षोभविस्फूर्जितमानसाय
+> नैष्कर्म्यभावेन विवर्जितागम स्वयंप्रकाशाय नमस्करोमि ॥१६॥
+
 guṇāraṇi-cchanna-cid-uṣmapāya
 tat-kṣobha-visphūrjita-mānasāya
 naiṣkarmya-bhāvena vivarjitāgama-

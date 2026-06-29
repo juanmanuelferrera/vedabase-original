@@ -1,5 +1,8 @@
 ### CC Madhya 6.238
 
+> গোপীনাথাচার্য তাঁর বৈষ্ণবতা দেখিয়া ।
+> ‘হরি’ ‘হরি’ বলি’ নাচে হাতে তালি দিয়া ॥২৩৮॥
+
 gopīnāthācārya tāṅra vaiṣṇavatā dekhiyā
 'hari' 'hari' bali' nāce hāte tāli diyā
 

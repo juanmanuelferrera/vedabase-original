@@ -1,5 +1,8 @@
 ### SB 3.33.21
 
+> वनं प्रव्रजिते पत्यावपत्यविरहातुरा ।
+> ज्ञाततत्त्वाप्यभून्नष्टे वत्से गौरिव वत्सला ॥२१॥
+
 > vanaṁ pravrajite patyāv
 > apatya-virahāturā
 > jñāta-tattvāpy abhūn naṣṭe

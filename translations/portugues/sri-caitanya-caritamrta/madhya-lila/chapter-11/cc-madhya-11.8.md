@@ -1,5 +1,10 @@
 ### CC Madhya 11.8
 
+> নিষ্কিঞ্চনস্য ভগবদ্ভজনোন্মুখস্য
+> পারং পরং জিগমিষোর্ভবসাগরস্য ৷
+> সন্দর্শনং বিষয়িণামথ যোষিতাঞ্চ
+> হা হন্ত হন্ত বিষভক্ষণতোঽপ্যসাধু ৷৷ ৮ ৷৷ ॥৮॥
+
 niṣkiñcanaṣya bhagavad-bhajanonmukhasya
 pāraṁ paraṁ jigamiṣor bhava-sāgarasya
 sandarśanaṁ viṣayiṇām atha yoṣitāṁ ca

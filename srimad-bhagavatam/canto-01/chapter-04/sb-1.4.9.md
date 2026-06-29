@@ -1,5 +1,8 @@
 ### SB 1.4.9
 
+> अभिमन्युसुतं सूत प्राहुर्भागवतोत्तमम् ।
+> तस्य जन्म महाश्चर्यं कर्माणि च गृणीहि नः ॥९॥
+
 > abhimanyu-sutaṁ sūta
 > prāhur bhāgavatottamam
 > tasya janma mahāścaryaṁ

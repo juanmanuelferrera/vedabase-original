@@ -1,5 +1,8 @@
 ### CC Madhya 17.35
 
+> ডাহিনে-বামে ধ্বনি শুনি’ যায় প্রভু-সঙ্গে ।
+> প্রভু তার অঙ্গ মুছে, শ্লোক পড়ে রঙ্গে ॥৩৫॥
+
 > ḍāhine-vāme dhvani śuni' yāya prabhu-saṅge
 > prabhu tāra aṅga muche, śloka paḍe raṅge
 

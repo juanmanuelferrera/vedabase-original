@@ -1,5 +1,8 @@
 ### CC Antya 8.71
 
+> আর দিন ভক্তগণ-সহ পরমানন্দপুরী  ।
+> প্রভু-পাশে নিবেদিলা দৈন্য-বিনয় করি’ ॥৭১॥
+
 āra dina bhakta-gaṇa-saha paramānanda-purī
 
 prabhu-pāśe nivedilā dainya-vinaya kari'

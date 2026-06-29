@@ -1,5 +1,8 @@
 ### CC Madhya 18.166
 
+> তবে সেই পাঠান চারি-জনেরে বাঁধিল ।
+> কাটিতে চাহে, গৌড়িয়া সব কাঁপিতে লাগিল ॥১৬৬॥
+
 tabe sei pāṭhāna cāri-janere bāṅdhila
 
 kāṭite cāhe, gauḍiyā saba kāṅpite lāgila

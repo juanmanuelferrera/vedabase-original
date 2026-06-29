@@ -1,5 +1,8 @@
 ### CC Madhya 23.47
 
+> প্রেমাদিক স্থায়িভাব সামগ্রী-মিলনে ।
+> কৃষ্ণভক্তি রসরূপে পায় পরিণামে ॥৪৭॥
+
 > premādika sthāyi-bhāva sāmagrī-milane
 > kṛṣṇa-bhakti rasa-rūpe pāya pariṇāme
 

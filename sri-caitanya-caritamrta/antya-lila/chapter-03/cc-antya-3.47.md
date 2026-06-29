@@ -1,5 +1,8 @@
 ### CC Antya 3.47
 
+> চৈতন্যের লীলা — গম্ভীর, কোটিসমুদ্র হৈতে ।
+> কি লাগি’ কি করে, কেহ না পারে বুঝিতে ॥৪৭॥
+
 > caitanyera līlā—gambhīra, koṭi-samudra haite
 > ki lāgi' ki kare, keha nā pāre bujhite
 

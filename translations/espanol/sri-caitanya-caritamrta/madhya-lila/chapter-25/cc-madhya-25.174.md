@@ -1,5 +1,8 @@
 ### CC Madhya 25.174
 
+> লক্ষ কোটি লোক আইসে, নাহিক গণন ৷
+> সঙ্কীর্ণ স্থানে প্রভুর না পায় দরশন ৷৷ ১৭৪ ৷৷ ॥১৭৪॥
+
 > lakṣa koṭi loka āise, nāhika gaṇana
 > saṅkīrṇa-sthāne prabhura nā pāya daraśana
 

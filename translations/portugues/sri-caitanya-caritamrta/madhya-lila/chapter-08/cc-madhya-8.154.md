@@ -1,5 +1,8 @@
 ### CC Madhya 8.154
 
+> সচ্চিদানন্দময় কৃষ্ণের স্বরূপ ৷
+> অতএব স্বরূপ-শক্তি হয় তিন রূপ ৷৷ ১৫৪ ৷৷ ॥১৫৪॥
+
 sac-cid-ānanda-maya kṛṣṇera svarūpa
 
 ataeva svarūpa-śakti haya tina rūpa

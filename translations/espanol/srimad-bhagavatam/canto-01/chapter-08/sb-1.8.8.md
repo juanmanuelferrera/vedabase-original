@@ -1,5 +1,8 @@
 ### SB 1.8.8
 
+> गन्तुं कृतमतिर्ब्रह्मन्द्वारकां रथमास्थितः ।
+> उपलेभेऽभिधावन्तीमुत्तरां भयविह्वलाम् ॥८॥
+
 > gantuṁ kṛtamatir brahman
 > dvārakāṁ ratham āsthitaḥ
 > upalebhe 'bhidhāvantīm

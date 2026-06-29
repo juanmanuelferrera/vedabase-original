@@ -1,5 +1,10 @@
 ### CC Madhya 20.270
 
+> প্রবর্ততে যত্র রজস্তমস্তয়োঃ
+> সত্ত্বষ্ণ মিশ্রং ন চ কালবিক্রমঃ ।
+> ন যত্র মায়া কিমুতাপরে হরে-
+> রনুব্রতা যত্র সুরাসুরার্চিতাঃ ॥২৭০॥
+
 pravartate yatra rajas tamas tayoḥ
 
 sattvaṁ ca miśraṁ na ca kāla-vikramaḥ

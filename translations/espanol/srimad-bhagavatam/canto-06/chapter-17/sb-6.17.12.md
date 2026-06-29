@@ -1,5 +1,8 @@
 ### SB 6.17.12
 
+> न वेद धर्मं किल पद्मयोनिर्न ब्रह्मपुत्रा भृगुनारदाद्याः
+> न वै कुमारः कपिलो मनुश्च ये नो निषेधन्त्यतिवर्तिनं हरम ॥१२॥
+
 > na veda dharmaṁ kila padmayonir
 > na brahma-putrā bhṛgu-nāradādyāḥ
 > na vai kumāraḥ kapilo manuś ca

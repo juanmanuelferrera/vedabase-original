@@ -1,5 +1,8 @@
 ### CC Madhya 13.74
 
+> উদ্দণ্ড-নৃত্যে প্ৰভুর যবে হৈল মন ।
+> স্বরূপের সঙ্গে দিল এই নব জন ॥৭৪॥
+
 uddaṇḍa-nṛtye prabhura yabe haila mana
 
 svarūpera saṅge dila ei nava jana

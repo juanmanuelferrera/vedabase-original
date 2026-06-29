@@ -1,5 +1,8 @@
 ### SB 7.7.33
 
+> एवं निर्जितषड्वर्गैः क्रियते भक्तिरीश्वरे
+> वासुदेवे भगवति यया संलभ्यते रतिः ॥३३॥
+
 > evaṁ nirjita-ṣaḍ-vargaiḥ
 > kriyate bhaktir īśvare
 > vāsudeve bhagavati

@@ -1,5 +1,8 @@
 ### CC Madhya 22.99
 
+> শরণাগতের, অকিঞ্চনের — একই লক্ষণ ।
+> তার মধ্যে প্রবেশয়ে ‘আত্মসমর্পণ’ ॥৯৯॥
+
 > śaraṇāgatera, akiñcanera--eka-i lakṣaṇa
 > tāra madhye praveśaye 'ātma-samarpaṇa'
 

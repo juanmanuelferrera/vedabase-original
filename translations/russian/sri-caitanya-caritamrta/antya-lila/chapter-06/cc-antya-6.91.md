@@ -1,5 +1,8 @@
 ### CC Antya 6.91
 
+> মহোৎসব শুনি’ পসারি নানা-গ্রাম হৈতে ।
+> চিড়া, দধি, সন্দেশ, কলা আনিল বেচিতে ॥৯১॥
+
 > mahotsava śuni' pasāri nānā-grāma haite
 > ciḍā, dadhi, sandeśa, kalā ānila vecite
 

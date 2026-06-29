@@ -1,5 +1,10 @@
 ### CC Antya 16.125
 
+> বেণু ধৃষ্ট-পুরুষ হঞা, পুরুষাধর পিয়া পিয়া,
+> গোপীগণে জানায় নিজ-পান ।
+> ‘অহো শুন, গোপীগণ, বলে পিঙো তোমার ধন,
+> তোমার যদি থাকে অভিমান ॥১২৫॥
+
 > veṇu dhṛṣṭa-puruṣa hañā, puruṣādhara piyā piyā,
 > gopī-gaṇe jānāya nija-pāna
 > 'aho śuna, gopī-gaṇa, bale piṅo tomāra dhana,

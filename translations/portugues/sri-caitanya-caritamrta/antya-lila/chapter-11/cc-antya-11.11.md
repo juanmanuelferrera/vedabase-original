@@ -1,5 +1,8 @@
 ### CC Antya 11.11
 
+> এইমত মহাপ্রভুর নীলাচলে বাস ।
+> সঙ্গে ভক্তগণ লঞা কীর্তন-বিলাস ॥১১॥
+
 ei-mata mahāprabhura nīlācale vāsa
 saṅge bhakta-gaṇa lañā kīrtana-vilāsa
 

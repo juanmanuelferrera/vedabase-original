@@ -1,5 +1,8 @@
 ### SB 3.2.26
 
+> ततो नन्दव्रजमितः पित्रा कंसाद्विबिभ्यता ।
+> एकादश समास्तत्र गूढार्चिः सबलोऽवसत् ॥२६॥
+
 > tato nanda-vrajam itaḥ
 > pitrā kaṁsād vibibhyatā
 > ekādaśa samās tatra

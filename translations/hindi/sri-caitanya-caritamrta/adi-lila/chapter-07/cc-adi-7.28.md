@@ -1,5 +1,8 @@
 ### CC Adi 7.28
 
+> যত যত প্রেমবৃষ্টি করে পঞ্চজনে ।
+> তত তত বাঢ়ে জল, ব্যাপে ত্রিভুবনে ॥২৮॥
+
 > yata yata prema-vṛṣṭi kare pañca-jane
 > tata tata bāḍhe jala, vyāpe tri-bhuvane
 

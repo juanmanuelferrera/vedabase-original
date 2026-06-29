@@ -1,5 +1,8 @@
 ### CC Adi 12.91
 
+> এই তিন স্কন্ধের কৈলুঁ শাখার গণন ।
+> যাঁ-সবা-স্মরণে ভববন্ধ-বিমোচন ॥৯১॥
+
 > ei tina skandhera kailuṅ śākhāra gaṇana
 > yāṅ-sabā-smaraṇe bhava-bandha-vimocana
 

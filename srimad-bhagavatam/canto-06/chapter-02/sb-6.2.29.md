@@ -1,5 +1,8 @@
 ### SB 6.2.29
 
+> सोऽहं व्यक्तं पतिष्यामि नरके भृशदारुणे
+> धर्मघ्नाः कामिनो यत्र विन्दन्ति यमयातनाः ॥२९॥
+
 > so 'haṁ vyaktaṁ patiṣyāmi
 > narake bhṛśa-dāruṇe
 > dharma-ghnāḥ kāmino yatra

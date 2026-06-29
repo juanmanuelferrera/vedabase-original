@@ -1,5 +1,8 @@
 ### CC Antya 9.16
 
+> প্রভু কহে, — ‘রাজা কেনে করয়ে তাড়ন ?’
+> তবে সেই লোক কহে সব বিবরণ ॥১৬॥
+
 prabhu kahe,--'rājā kene karaye tāḍana?'
 
 tabe sei loka kahe saba vivaraṇa

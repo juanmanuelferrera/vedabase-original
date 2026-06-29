@@ -1,5 +1,8 @@
 ### CC Madhya 10.66
 
+> এত শুনি’ কৃষ্ণদাস কান্দিতে লাগিল ।
+> মধ্যাহ্ন করিতে মহাপ্রভু চলি’ গেল ॥৬৬॥
+
 > eta śuni' kṛṣṇadāsa kāndite lāgila
 > madhyāhna karite mahāprabhu cali' gela
 

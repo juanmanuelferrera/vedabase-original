@@ -1,5 +1,7 @@
 ### SB 5.25.3
 
+> यस्य ह वा इदं कालेनोपसञ्जिहीर्षतोऽमर्षविरचितरुचिरभ्रमद्भ्रुवोरन्तरेण साङ्कर्षणोनाम रुद्र एकादशव्यूहस्त्र्यक्षस्त्रिशिखं शूलमुत्तम्भयन्नुदतिष्ठत ॥३॥
+
 > yasya ha vā idaṁ kālenopasañjihīrṣato 'marṣa-viracita-rucira-bhramad-bhruvor antareṇa sāṅkarṣaṇo nāma rudra ekādaśa-vyūhas try-akṣas tri-śikhaṁ śūlam uttambhayann udatiṣṭhat.
 
 *yasya*—de quien; *ha vā*—en verdad; *idam*—este (mundo material); *kālena*—con el paso del tiempo; *upasañjihīrṣataḥ*—con el deseo de destruir; *amarṣa*—con ira; *viracita*—formado; *rucira*—muy hermoso; *bhramat*—moviendo; *bhruvoḥ*—las dos cejas; *antareṇa*—de entre; *sāṅkarṣaṇaḥ nāma*—llamado Sāṅkarṣaṇa; *rudraḥ*—una encarnación del Señor Śiva; *ekādaśa-vyūhaḥ*—que tiene once expansiones; *tri-akṣaḥ*—con tres ojos; *tri-śikham*—con tres puntas; *śūlam*—un tridente; *uttambhayan*—levantando; *udatiṣṭhat*—surgió.

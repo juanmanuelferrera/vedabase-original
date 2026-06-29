@@ -1,5 +1,8 @@
 ### CC Madhya 23.20
 
+> এই নব প্রীত্যঙ্কুর যাঁর চিত্তে হয় ।
+> প্রাকৃত-ক্ষোভে তাঁর ক্ষোভ নাহি হয় ॥২০॥
+
 > ei nava prīty-aṅkura yāṅra citte haya
 > prākṛta-kṣobhe tāṅra kṣobha nāhi haya
 

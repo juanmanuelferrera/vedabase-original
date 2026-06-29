@@ -1,5 +1,8 @@
 ### CC Madhya 13.19
 
+> রথের সাজনি দেখি’ লোকে চমৎকার ।
+> নব হেমময় রথ — সুমেরু-আকার ॥১৯॥
+
 > rathera sājani dekhi' loke camatkāra
 > nava hemamaya ratha-sumeru-ākāra
 

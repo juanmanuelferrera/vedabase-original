@@ -1,5 +1,8 @@
 ### SB 1.19.22
 
+> आश्रुत्य तदृषिगणवचः परीक्षित्समं मधुच्युद्गुरु चाव्यलीकम् ।
+> आभाषतैनानभिनन्द्य युक्तान्शुश्रूषमाणश्चरितानि विष्णोः ॥२२॥
+
 > āśrutya tad ṛṣi-gaṇa-vacaḥ parīkṣit
 > samaṁ madhu-cyud guru cāvyalīkam
 > ābhāṣatainān abhinandya yuktān

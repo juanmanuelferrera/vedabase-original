@@ -1,5 +1,8 @@
 ### CC Madhya 4.59
 
+> তুলসী আদি, পুষ্প, বস্ত্র আইল অনেক ।
+> আপনে মাধবপুরী কৈল অভিষেক ॥৫৯॥
+
 > tulasī ādi, puṣpa, vastra āila aneka
 > āpane mādhava-purī kaila abhiṣeka
 

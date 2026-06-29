@@ -1,5 +1,8 @@
 ### CC Madhya 16.8
 
+> দুঁহে কহে, — রথযাত্রা কর দরশন ৷
+> কার্তিক আইলে, তবে করিহ গমন ॥৮॥
+
 duṅhe kahe,--ratha-yātrā kara daraśana
 kārtika āile, tabe kariha gamana
 

@@ -1,5 +1,8 @@
 ### CC Antya 15.62
 
+> বিশাখারে রাধা যৈছে শ্লোক কহিলা ।
+> সেই শ্লোক মহাপ্রভু পড়িতে লাগিলা ॥৬২॥
+
 viśākhāre rādhā yaiche śloka kahilā
 
 sei śloka mahāprabhu paḍite lāgilā

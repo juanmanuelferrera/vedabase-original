@@ -1,5 +1,8 @@
 ### CC Madhya 19.191
 
+> মধুর-রসে ভক্তমুখ্য — ব্রজে গোপীগণ ।
+> মহিষীগণ, লক্ষ্মীগণ, অসংখ্য গণন ॥১৯১॥
+
 > madhura-rase bhakta-mukhya--vraje gopī-gaṇa
 > mahiṣī-gaṇa, lakṣmī-gaṇa, asaṅkhya gaṇana
 

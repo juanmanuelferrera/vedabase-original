@@ -1,5 +1,8 @@
 ### CC Antya 1.56
 
+> ‘অদ্বৈত নিত্যানন্দ, তোমরা দুইজনে’  ।
+> প্রভু কহে — রূপে কৃপা কর কায়মনে ॥৫৬॥
+
 'advaita nityānanda, tomarā dui-jane
 
 prabhu kahe--rūpe kṛpā kara kāya-mane

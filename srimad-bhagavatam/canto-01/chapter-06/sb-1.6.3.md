@@ -1,5 +1,8 @@
 ### SB 1.6.3
 
+> स्वायम्भुव कया वृत्त्या वर्तितं ते परं वयः ।
+> कथं चेदमुदस्राक्षीः काले प्राप्ते कलेवरम् ॥३॥
+
 > svāyambhuva kayā vṛttyā
 > vartitaṁ te paraṁ vayaḥ
 > kathaṁ cedam udasrākṣīḥ

@@ -1,5 +1,8 @@
 ### CC Madhya 6.174
 
+> ‘প্রণব’ যে মহাবাক্য — ঈশ্বরের মূর্তি ।
+> প্রণব হৈতে সর্ববেদ, জগৎ-উৎপত্তি ॥১৭৪॥
+
 'praṇava' ye mahā-vākya--īśvarera mūrti
 
 praṇava haite sarva-veda, jagat-utpatti

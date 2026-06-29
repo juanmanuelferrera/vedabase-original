@@ -1,5 +1,8 @@
 ### CC Antya 8.82
 
+> ইঁহার স্বভাব ইহাঁ করিতে না যুয়ায় ।
+> তথাপি কহিয়ে কিছু মর্ম-দুঃখ পায় ॥৮২॥
+
 > iṅhāra svabhāva ihāṅ karite nā yuyāya
 > tathāpi kahiye kichu marma-duḥkha pāya
 

@@ -1,5 +1,8 @@
 ### CC Adi 9.20
 
+> মুখ্য মুখ্য শাখাগণের নাম অগণন ।
+> আগে ত’ করিব, শুন বৃক্ষের বর্ণন ॥২০॥
+
 > mukhya mukhya śākhā-gaṇera nāma agaṇana
 > āge ta' kariba, śuna vṛkṣera varṇana
 

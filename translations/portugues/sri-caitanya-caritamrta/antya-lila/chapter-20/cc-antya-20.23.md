@@ -1,5 +1,8 @@
 ### CC Antya 20.23
 
+> বৃক্ষ যেন কাটিলেহ কিছু না বোলয় ।
+> শুকাঞা মৈলেহ কারে পানী না মাগয় ॥২৩॥
+
 vṛkṣa yena kāṭileha kichu nā bolaya
 
 śukāñā maileha kāre pānī nā māgaya

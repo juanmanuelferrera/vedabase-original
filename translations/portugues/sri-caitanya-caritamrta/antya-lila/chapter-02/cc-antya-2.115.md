@@ -1,5 +1,8 @@
 ### CC Antya 2.115
 
+> তিনদিন হৈল হরিদাস করে উপবাস  ।
+> স্বরূপাদি আসি, পুছিলা মহাপ্রভুর পাশ ॥১১৫॥
+
 tina-dina haila haridāsa kare upavāsa
 
 svarūpādi āsi, puchilā mahāprabhura pāśa

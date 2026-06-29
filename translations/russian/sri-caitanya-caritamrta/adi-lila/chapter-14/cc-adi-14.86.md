@@ -1,5 +1,8 @@
 ### CC Adi 14.86
 
+> মিশ্র কহে, — “দেব, সিদ্ধ, মুনি কেনে নয় ।
+> যে সে বড় হউক্ মাত্র আমার তনয় ॥৮৬॥
+
 > miśra kahe,—deva, siddha, muni kene naya
 > ye se baḍa ha-uk mātra āmāra tanaya
 

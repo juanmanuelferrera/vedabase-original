@@ -1,5 +1,8 @@
 ### CC Madhya 15.106
 
+> প্রভু কহে, — “যাঁর মুখে শুনি একবার ।
+> কৃষ্ণনাম, সেই পূজ্য, — শ্রেষ্ঠ সবাকার ।।” ॥ ১০৬ ॥
+
 > prabhu kahe,—"yāṅra mukhe śuni eka-bāra
 > kṛṣṇa-nāma, sei pūjya,—śreṣṭha sabākāra"
 

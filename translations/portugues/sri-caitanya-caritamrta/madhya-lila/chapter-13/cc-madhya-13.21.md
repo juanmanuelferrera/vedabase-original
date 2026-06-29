@@ -1,5 +1,8 @@
 ### CC Madhya 13.21
 
+> ঘাঘর, কিঙ্কিণী বাজে, ঘণ্টার ক্বণিত ।
+> নানা চিত্র-পট্টবস্ত্রে রথ বিভূষিত ॥২১॥
+
 ghāghara, kiṅkiṇī bāje, ghaṇṭāra kvaṇita
 
 nānā citra-paṭṭa-vastre ratha vibhūṣita

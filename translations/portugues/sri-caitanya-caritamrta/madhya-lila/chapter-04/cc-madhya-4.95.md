@@ -1,5 +1,8 @@
 ### CC Madhya 4.95
 
+> ব্রজবাসী লোকের কৃষ্ণে সহজ পিরীতি ।
+> গোপালের সহজ-প্রীতি ব্রজবাসি-প্রতি ॥৯৫॥
+
 vraja-vāsī lokera kṛṣṇe sahaja pirīti
 gopālera sahaja-prīti vraja-vāsi-prati
 

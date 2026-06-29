@@ -1,5 +1,8 @@
 ### CC Adi 10.89
 
+> পশ্চিমের লোক সব মূঢ় অনাচার ।
+> তাহাঁ প্রচারিল দোঁহে ভক্তি-সদাচার ॥৮৯॥
+
 > paścimera loka saba mūḍha anācāra
 > tāhāṅ pracārila doṅhe bhakti-sadācāra
 

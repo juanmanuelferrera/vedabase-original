@@ -1,5 +1,8 @@
 ### CC Antya 5.80
 
+> ‘গৃহস্থ’ হঞা নহে রায় ষড়্বর্গের বশে ।
+> ‘বিষয়ী’ হঞা সন্ন্যাসীরে উপদেশে ॥৮০॥
+
 'gṛhastha' hañā nahe rāya ṣaḍ-vargera vaśe
 
 'viṣayī' hañā sannyāsīre upadeśe

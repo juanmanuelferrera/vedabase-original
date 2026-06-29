@@ -1,5 +1,8 @@
 ### CC Madhya 19.171
 
+> মদ্গুণশ্রুতিমাত্রেণ ময়ি সর্বগুহাশয়ে ।
+> মনোগতিরবিচ্ছিন্না যথা গঙ্গাম্ভসোঽম্বুধৌ ॥১৭১॥
+
 > mad-guṇa-śruti-mātreṇa
 > mayi sarva-guhāśaye
 > manogatir avicchinnā

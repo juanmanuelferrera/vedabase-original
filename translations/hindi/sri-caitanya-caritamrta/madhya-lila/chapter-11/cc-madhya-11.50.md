@@ -1,5 +1,8 @@
 ### CC Madhya 11.50
 
+> এত শুনি’ সার্বভৌম হইলা চিন্তিত ।
+> রাজার অনুরাগ দেখি’ হইলা বিস্মিত ॥৫০॥
+
 > eta śuni' sārvabhauma ha-ilā cintita
 > rājāra anurāga dekhi' ha-ilā vismita
 

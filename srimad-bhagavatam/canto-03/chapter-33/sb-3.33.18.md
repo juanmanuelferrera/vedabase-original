@@ -1,5 +1,8 @@
 ### SB 3.33.18
 
+> गृहोद्यानं कुसुमितै रम्यं बह्वमरद्रुमैः ।
+> कूजद्विहङ्गमिथुनं गायन्मत्तमधुव्रतम् ॥१८॥
+
 > gṛhodyānaṁ kusumitai
 > ramyaṁ bahv-amara-drumaiḥ
 > kūjad-vihaṅga-mithunaṁ

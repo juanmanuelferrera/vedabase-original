@@ -1,5 +1,8 @@
 ### CC Madhya 10.161
 
+> চর্মাম্বর ছাড়ি’ ব্রহ্মানন্দ পরিল বসন ৷
+> প্রভু আসি’ কৈল তাঁর চরণ বন্দন ৷৷ ১৬১ ৷৷ ॥১৬১॥
+
 > carmāmbara chāḍi' brahmānanda parila vasana
 > prabhu āsi' kaila tāṅra caraṇa vandana
 

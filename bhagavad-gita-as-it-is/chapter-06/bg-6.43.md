@@ -1,5 +1,8 @@
 ### Bg 6.43
 
+> तत्र तं बुद्धिसंयोगं लभते पौर्वदेहिकम् ।
+> यतते च ततो भूयः संसिद्धौ कुरुनन्दन ॥४३॥
+
 > tatra taṁ buddhi-saṁyogaṁ
 > labhate paurva-dehikam
 > yatate ca tato bhūyaḥ

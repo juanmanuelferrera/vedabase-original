@@ -1,5 +1,8 @@
 ### CC Adi 17.199
 
+> কেহ — হরিদাস, সদা বলে ‘হরি’ ‘হরি’ ।
+> জানি কার ঘরে ধন করিবেক চুরি ॥১৯৯॥
+
 > keha--haridāsa, sadā bale 'hari' 'hari'
 > jāni kāra ghare dhana karibeka curi
 

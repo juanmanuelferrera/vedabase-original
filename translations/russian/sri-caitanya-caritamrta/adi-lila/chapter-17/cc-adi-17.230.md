@@ -1,5 +1,8 @@
 ### CC Adi 17.230
 
+> তবে ত’ করিলা সব ভক্তে বর দান ।
+> উচ্ছিষ্ট দিয়া নারায়ণীর করিল সম্মান ॥২৩০॥
+
 > tabe ta' karilā saba bhakte vara dāna
 > ucchiṣṭa diyā nārāyaṇīra karila sammāna
 

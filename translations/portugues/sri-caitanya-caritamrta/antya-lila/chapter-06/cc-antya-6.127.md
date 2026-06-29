@@ -1,5 +1,8 @@
 ### CC Antya 6.127
 
+> রঘুনাথ আসি’ কৈলা চরণ বন্দন  ।
+> রাঘবপণ্ডিত-দ্বারা কৈলা নিবেদন ॥১২৭॥
+
 raghunātha āsi' kailā caraṇa vandana
 
 rāghava-paṇḍita-dvārā kailā nivedana

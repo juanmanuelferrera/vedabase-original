@@ -1,5 +1,7 @@
 ### CC Madhya 22.68
 
+> যঃ শাস্ত্রাদিষ্বনিপুণঃ শ্রদ্ধাবান্ স তু মধ্যমঃ ॥৬৮॥
+
 yaḥ śāstrādiṣv anipuṇaḥ
 
 śraddhāvān sa tu madhyamaḥ

@@ -1,5 +1,8 @@
 ### CC Adi 7.116
 
+> ঈশ্বরের তত্ত্ব — যেন জ্বলিত জ্বলন ।
+> জীবের স্বরূপ — যৈছে স্ফুলিঙ্গের কণ ॥১১৬॥
+
 īśvarera tattva--yena jvalita jvalana
 
 jīvera svarūpa--yaiche sphuliṅgera kaṇa

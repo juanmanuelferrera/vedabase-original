@@ -1,5 +1,8 @@
 ### SB 4.12.5
 
+> तद्गच्छ ध्रुव भद्रं ते भगवन्तमधोक्षजम् ।
+> सर्वभूतात्मभावेन सर्वभूतात्मविग्रहम् ॥५॥
+
 > tad gaccha dhruva bhadraṁ te
 > bhagavantam adhokṣajam
 > sarva-bhūtātma-bhāvena

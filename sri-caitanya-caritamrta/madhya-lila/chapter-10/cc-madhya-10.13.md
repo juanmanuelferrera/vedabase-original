@@ -1,5 +1,8 @@
 ### CC Madhya 10.13
 
+> বৈষ্ণবের এই হয় এক স্বভাব নিশ্চল ।
+> তেঁহো জীব নহেন, হন স্বতন্ত্র ঈশ্বর ॥১৩॥
+
 > vaiṣṇavera ei haya eka svabhāva niścala
 > teṅho jīva nahena, hana svatantra īśvara
 

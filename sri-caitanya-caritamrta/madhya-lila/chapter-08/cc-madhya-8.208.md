@@ -1,5 +1,8 @@
 ### CC Madhya 8.208
 
+> কৃষ্ণসহ রাধিকার লীলা যে করায় ।
+> নিজ-সুখ হৈতে তাতে কোটি সুখ পায় ॥২০৮॥
+
 > kṛṣṇa saha rādhikāra līlā ye karāya
 > nija-sukha haite tāte koṭi sukha pāya
 

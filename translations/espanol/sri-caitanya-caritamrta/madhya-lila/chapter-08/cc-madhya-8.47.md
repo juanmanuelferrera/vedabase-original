@@ -1,5 +1,8 @@
 ### CC Madhya 8.47
 
+> এইমত দুঁহে স্তুতি করে দুঁহার গুণ ৷
+> দুঁহে দুঁহার দরশনে আনন্দিত মন ৷৷ ৪৭ ৷৷ ॥৪৭॥
+
 > ei-mata duṅhe stuti kare duṅhāra guṇa
 > duṅhe duṅhāra daraśane ānandita mana
 

@@ -1,5 +1,8 @@
 ### CC Adi 17.18
 
+> তবে সপ্তপ্রহর ছিলা প্রভু ভাবাবেশে ।
+> যথা তথা ভক্তগণ দেখিল বিশেষে ॥১৮॥
+
 > tabe sapta-prahara chilā prabhu bhāvāveśe
 > yathā tathā bhakta-gaṇa dekhila viśeṣe
 

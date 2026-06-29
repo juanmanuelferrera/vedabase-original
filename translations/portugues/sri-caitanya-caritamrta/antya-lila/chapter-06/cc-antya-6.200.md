@@ -1,5 +1,8 @@
 ### CC Antya 6.200
 
+> হেন ‘বিষয়’ হৈতে কৃষ্ণ উদ্ধারিলা তোমা’ ।
+> কহন না যায় কৃষ্ণকৃপার মহিমা ।।” ॥ ২০০ ॥
+
 hena 'viṣaya' haite kṛṣṇa uddhārilā tomā'
 
 kahana nā yāya kṛṣṇa-kṛpāra mahimā"

@@ -1,5 +1,8 @@
 ### SB 4.3.13
 
+> कथं सुतायाः पितृगेहकौतुकं निशम्य देहः सुरवर्य नेङ्गते ।
+> अनाहुता अप्यभियन्ति सौहृदं भर्तुर्गुरोर्देहकृतश्च केतनम् ॥१३॥
+
 > kathaṁ sutāyāḥ pitṛ-geha-kautukaṁ
 > niśamya dehaḥ sura-varya neṅgate
 > anāhutā apy abhiyanti sauhṛdaṁ

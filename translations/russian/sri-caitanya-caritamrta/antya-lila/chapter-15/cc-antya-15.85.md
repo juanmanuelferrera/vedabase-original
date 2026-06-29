@@ -1,5 +1,8 @@
 ### CC Antya 15.85
 
+> স্বরূপ-গোসাঞি যবে এই পদ গাহিলা ।
+> উঠি’ প্রেমাবেশে প্রভু নাচিতে লাগিলা ॥৮৫॥
+
 > svarūpa-gosāñi yabe ei pada gāhilā
 > uṭhi' premāveśe prabhu nācite lāgilā
 

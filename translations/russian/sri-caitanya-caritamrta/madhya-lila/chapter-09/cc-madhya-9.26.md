@@ -1,5 +1,8 @@
 ### CC Madhya 9.26
 
+> বাল্যাবধি রামনাম-গ্রহণ আমার ।
+> তোমা দেখি’ কৃষ্ণনাম আইল একবার ॥২৬॥
+
 > bālyāvadhi rāma-nāma-grahaṇa āmāra
 > tomā dekhi' kṛṣṇa-nāma āila eka-bāra
 

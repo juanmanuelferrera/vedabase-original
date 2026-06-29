@@ -1,5 +1,8 @@
 ### CC Madhya 20.307
 
+> নিজাংশ-কলায় কৃষ্ণ তমো-গুণ অঙ্গীকরি’ ।
+> সংহারার্থে মায়া-সঙ্গে রুদ্র-রূপ ধরে ॥৩০৭॥
+
 > nijāṁśa-kalāya kṛṣṇa tamo-guṇa aṅgīkari'
 > saṁhārārthe māyā-saṅge rudra-rūpa dhari
 

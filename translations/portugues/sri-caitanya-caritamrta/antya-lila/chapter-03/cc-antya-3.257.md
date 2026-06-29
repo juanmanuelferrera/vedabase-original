@@ -1,5 +1,8 @@
 ### CC Antya 3.257
 
+> মুক্তি-হেতুক তারক হয় ‘রামনাম’ ।
+> ‘কৃষ্ণনাম’ পারক হঞা করে প্রেমদান ॥২৫৭॥
+
 mukti-hetuka tāraka haya 'rāma-nāma'
 
 'kṛṣṇa-nāma' pāraka hañā kare prema-dāna

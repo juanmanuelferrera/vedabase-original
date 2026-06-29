@@ -1,5 +1,8 @@
 ### SB 4.30.2
 
+> किं बार्हस्पत्येह परत्र वाथ कैवल्यनाथप्रियपार्श्ववर्तिनः ।
+> आसाद्य देवं गिरिशं यदृच्छया प्रापुः परं नूनमथ प्रचेतसः ॥२॥
+
 > kiṁ bārhaspatyeha paratra vātha
 > kaivalya-nātha-priya-pārśva-vartinaḥ
 > āsādya devaṁ giriśaṁ yadṛcchayā

@@ -1,5 +1,8 @@
 ### CC Adi 4.13
 
+> অতএব বিষ্ণু তখন কৃষ্ণের শরীরে ।
+> বিষ্ণুদ্বারে করে কৃষ্ণ অসুর-সংহারে ॥১৩॥
+
 > ataeva viṣṇu takhana kṛṣṇera śarīre
 > viṣṇu-dvāre kare kṛṣṇa asura-saṁhāre
 

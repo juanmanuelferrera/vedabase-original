@@ -1,5 +1,8 @@
 ### CC Adi 17.209
 
+> নগরিয়াকে পাগল কৈল সদা সংকীর্তন ।
+> রাত্রে নিদ্রা নাহি যাই, করি জাগরণ ॥২০৯॥
+
 nagariyāke pāgala kaila sadā saṅkīrtana
 
 rātre nidrā nāhi yāi, kari jāgaraṇa

@@ -1,5 +1,7 @@
 ### SB 5.24.14
 
+> न हि तेषां कल्याणानां प्रभवति कुतश्चन मृत्युर्विना भगवत्तेजसश्चक्रापदेशात ॥१४॥
+
 *na hi teṣāṁ kalyāṇānāṁ prabhavati kutaścana mṛtyur vinā bhagavat*-tejasaś cakrāpadeśāt.
 
 *na hi*—não; *teṣām*—deles; *kalyāṇānām*—que são por natureza auspiciosos; *prabhavati*—é capaz de influenciar; *kutaścana*—de lugar algum; *mṛtyuḥ*—morte; *vinā*—exceto; *bhagavat-tejasaḥ*—da energia da Suprema Personalidade de Deus; *cakra-apadeśāt*—daquela arma chamada Sudarśana cakra.

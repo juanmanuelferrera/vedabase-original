@@ -1,5 +1,8 @@
 ### CC Antya 12.111
 
+> দিন দশ গেলে গোবিন্দ জানাইল আরবার ।
+> পণ্ডিতের ইচ্ছা, — ‘তৈল প্রভু করে অঙ্গীকার’ ॥১১১॥
+
 > dina daśa gele govinda jānāila āra-bāra
 > paṇḍitera icchā,—'taila prabhu kare aṅgīkāra'
 

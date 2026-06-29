@@ -1,5 +1,8 @@
 ### CC Madhya 13.61
 
+> সাক্ষাতে না দেয় দেখা, পরোক্ষে ত’ দয়া ।
+> কে বুঝিতে পারে চৈতন্যচন্দ্রের মায়া ॥৬১॥
+
 > sākṣāte nā deya dekhā, parokṣe ta' dayā
 > ke bujhite pāre caitanya-candrera māyā
 

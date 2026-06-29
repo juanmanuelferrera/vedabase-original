@@ -1,5 +1,8 @@
 ### CC Antya 14.19
 
+> মণ্ডলীবন্ধে গোপীগণ করেন নর্তন ।
+> মধ্যে রাধা-সহ নাচে ব্রজেন্দ্রনন্দন ॥১৯॥
+
 > maṇḍalī-bandhe gopī-gaṇa karena nartana
 > madhye rādhā-saha nāce vrajendra-nandana
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.222
 
+> তুমি খাইলে হয় কোটিব্রাহ্মণ-ভোজন ।”
+> এত বলি, শ্রাদ্ধ-পাত্র করাইলা ভোজন ॥২২২॥
+
 tumi khāile haya koṭi-brāhmaṇa-bhojana"
 
 eta bali, śrāddha-pātra karāilā bhojana

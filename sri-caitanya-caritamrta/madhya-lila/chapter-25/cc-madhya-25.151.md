@@ -1,5 +1,10 @@
 ### CC Madhya 25.151
 
+> নিগমকল্পতরোর্গলিতং ফলং
+> শুকমুখাদমৃতদ্রবসংযুতম্ ।
+> পিবত ভাগবতং রসমালয়ং
+> মুহুরহো রসিকা ভুবি ভাবুকাঃ ॥১৫১॥
+
 > nigama-kalpa-taror galitaṁ phalaṁ
 > śuka-mukhād amṛta-drava-saṁyutam
 > pibata bhāgavataṁ rasam ālayaṁ

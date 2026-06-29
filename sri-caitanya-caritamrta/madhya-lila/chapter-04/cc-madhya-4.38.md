@@ -1,5 +1,8 @@
 ### CC Madhya 4.38
 
+> এক মঠ করি’ তাহাঁ করহ স্থাপন ।
+> বহু শীতল জলে কর শ্রীঅঙ্গ মার্জন ॥৩৮॥
+
 > eka maṭha kari' tāhāṅ karaha sthāpana
 > bahu śītala jale kara śrī-aṅga mārjana
 

@@ -1,5 +1,8 @@
 ### SB 8.15.25
 
+> भगवन्नुद्यमो भूयान्बलेर्नः पूर्ववैरिणः
+> अविषह्यमिमं मन्ये केनासीत्तेजसोर्जितः ॥२५॥
+
 > bhagavann udyamo bhūyān
 > baler naḥ pūrva-vairiṇaḥ
 > aviṣahyam imaṁ manye

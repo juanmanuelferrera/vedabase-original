@@ -1,5 +1,8 @@
 ### CC Madhya 17.143
 
+> অতএব ‘কৃষ্ণনাম’ না আইসে তার মুখে ।
+> মায়াবাদি-গণ যাতে মহা বহির্মুখে ॥১৪৩॥
+
 > ataeva 'kṛṣṇa-nāma' nā āise tāra mukhe
 > māyāvādi-gaṇa yāte mahā bahirmukhe
 

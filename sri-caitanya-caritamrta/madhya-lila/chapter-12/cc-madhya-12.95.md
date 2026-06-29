@@ -1,5 +1,8 @@
 ### CC Madhya 12.95
 
+> আর শত জন শত ঘটে জল ভরি’ ।
+> প্রথমেই লঞা আছে কাল অপেক্ষা করি’ ॥৯৫॥
+
 > āra śata jana śata ghaṭe jala bhari'
 > prathamei lañā āche kāla apekṣā kari'
 

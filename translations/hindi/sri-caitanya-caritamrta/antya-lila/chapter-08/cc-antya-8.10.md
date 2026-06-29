@@ -1,5 +1,8 @@
 ### CC Antya 8.10
 
+> তিনজনে ইষ্টগোষ্ঠী কৈলা কতক্ষণ ।
+> জগদানন্দ-পণ্ডিত তাঁরে কৈলা নিমন্ত্রণ ॥১০॥
+
 > tina-jane iṣṭha-goṣṭhī kailā kata-kṣaṇa
 > jagadānanda-paṇḍita tāṅre kailā nimantraṇa
 

@@ -1,5 +1,8 @@
 ### CC Adi 17.166
 
+> গো-অঙ্গে যত লোম, তত সহস্র বৎসর ।
+> গোবধী রৌরব-মধ্যে পচে নিরন্তর ॥১৬৬॥
+
 > go-aṅge yata loma, tata sahasra vatsara
 > go-vadhī raurava-madhye pace nirantara
 

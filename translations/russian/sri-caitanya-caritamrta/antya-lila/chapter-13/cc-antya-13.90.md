@@ -1,5 +1,8 @@
 ### CC Antya 13.90
 
+> কাশী হৈতে চলিলা তেঁহো গৌড়পথ দিয়া ।
+> সঙ্গে সেবক চলে তাঁর ঝালি বহিয়া ॥৯০॥
+
 > kāśī haite calilā teṅho gauḍa-patha diyā
 > saṅge sevaka cale tāṅra jhāli vahiyā
 

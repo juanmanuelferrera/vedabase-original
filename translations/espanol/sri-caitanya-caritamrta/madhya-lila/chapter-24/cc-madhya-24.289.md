@@ -1,5 +1,8 @@
 ### CC Madhya 24.289
 
+> বিধিভক্ত্যে নিত্যসিদ্ধ পারিষদ — ‘দাস’ ৷
+> ‘সখা’ ‘গুরু’, ‘কান্তাগণ’, — চারিবিধ প্রকাশ ॥২৮৯॥
+
 > vidhi-bhaktye nitya-siddha pāriṣada--'dāsa'
 > 'sakhā' 'guru' 'kāntā-gaṇa',--cāri-vidha prakāśa
 > SYNONYMS

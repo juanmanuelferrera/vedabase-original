@@ -1,5 +1,8 @@
 ### CC Antya 11.66
 
+> ডোর, কড়ার, প্রসাদ, বস্ত্র অঙ্গে দিলা ।
+> বালুকার গর্ত করি’ তাহে শোয়াইলা ॥৬৬॥
+
 ḍora, kaḍāra, prasāda, vastra aṅge dilā
 
 vālukāra garta kari' tāhe śoyāilā

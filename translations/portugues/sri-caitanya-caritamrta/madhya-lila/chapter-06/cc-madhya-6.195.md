@@ -1,5 +1,8 @@
 ### CC Madhya 6.195
 
+> তত্তৎপদ-প্রাধান্যে ‘আত্মারাম’ মিলাঞা ।
+> অষ্টাদশ অর্থ কৈল অভিপ্রায় লঞা ॥১৯৫॥
+
 tat-tat-pada-prādhānye 'ātmārāma' milāñā
 aṣṭādaśa artha kaila abhiprāya lañā
 

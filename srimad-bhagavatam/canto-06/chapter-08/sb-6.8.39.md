@@ -1,5 +1,8 @@
 ### SB 6.8.39
 
+> तस्योपरि विमानेन गन्धर्वपतिरेकदा
+> ययौ चित्ररथः स्त्रीभिर्वृतो यत्र द्विजक्षयः ॥३९॥
+
 > tasyopari vimānena
 > gandharva-patir ekadā
 > yayau citrarathaḥ strībhir

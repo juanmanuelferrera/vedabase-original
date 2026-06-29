@@ -1,5 +1,8 @@
 ### CC Madhya 10.186
 
+> প্রভুকে লঞা করা’ন ঈশ্বর দরশন ৷
+> আগে লোক-ভিড় সব করি’ নিবারণ ৷৷ ১৮৬ ৷৷ ॥১৮৬॥
+
 > prabhuke lañā karā'na īśvara daraśana
 > āge loka-bhiḍa saba kari' nivāraṇa
 

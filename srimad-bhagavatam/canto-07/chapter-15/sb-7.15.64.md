@@ -1,5 +1,8 @@
 ### SB 7.15.64
 
+> यद्ब्रह्मणि परे साक्षात्सर्वकर्मसमर्पणम
+> मनोवाक्तनुभिः पार्थ क्रियाद्वैतं तदुच्यते ॥६४॥
+
 > yad brahmaṇi pare sākṣāt
 > sarva-karma-samarpaṇam
 > mano-vāk-tanubhiḥ pārtha

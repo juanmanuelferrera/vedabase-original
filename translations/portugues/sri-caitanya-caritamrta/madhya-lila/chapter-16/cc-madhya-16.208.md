@@ -1,5 +1,8 @@
 ### CC Madhya 16.208
 
+> মাধবদাস-গৃহে তথা শচীর নন্দন ।
+> লক্ষ-কোটি লোক তথা পাইল দরশন ॥২০৮॥
+
 mādhava-dāsa-gṛhe tathā śacīra nandana
 
 lakṣa-koṭi loka tathā pāila daraśana

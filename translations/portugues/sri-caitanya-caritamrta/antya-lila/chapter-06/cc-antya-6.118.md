@@ -1,5 +1,8 @@
 ### CC Antya 6.118
 
+> ভোজনে বসিতে রঘুনাথে কহে সর্বজন ।
+> পণ্ডিত কহে, — ‘ইঁহ পাছে করিবে ভোজন ।।’ ॥ ১১৮ ॥
+
 bhojane vasite raghunāthe kahe sarva-jana
 
 paṇḍita kahe,--iṅha pāche karibe bhojana'

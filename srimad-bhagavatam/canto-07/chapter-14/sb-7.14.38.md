@@ -1,5 +1,8 @@
 ### SB 7.14.38
 
+> तेष्वेव भगवान्राजंस्तारतम्येन वर्तते
+> तस्मात्पात्रं हि पुरुषो यावानात्मा यथेयते ॥३८॥
+
 > teṣv eva bhagavān rājaṁs
 > tāratamyena vartate
 > tasmāt pātraṁ hi puruṣo

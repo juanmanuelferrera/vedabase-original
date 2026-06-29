@@ -1,5 +1,8 @@
 ### CC Madhya 6.94
 
+> মহা-ভাগবত হয় চৈতন্য-গোসাঞি ।
+> এই কলিকালে বিষ্ণুর অবতার নাই ॥৯৪॥
+
 mahā-bhāgavata haya caitanya-gosāñi
 
 ei kali-kāle viṣṇura avatāra nāi

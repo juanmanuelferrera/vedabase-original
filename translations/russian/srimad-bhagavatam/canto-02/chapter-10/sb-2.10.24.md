@@ -1,5 +1,8 @@
 ### SB 2.10.24
 
+> हस्तौ रुरुहतुस्तस्य नानाकर्मचिकीर्षया ।
+> तयोस्तु बलवानिन्द्र आदानमुभयाश्रयम् ॥२४॥
+
 > hastau ruruhatus tasya
 > nānā-karma-cikīrṣayā
 > tayos tu balavān indra

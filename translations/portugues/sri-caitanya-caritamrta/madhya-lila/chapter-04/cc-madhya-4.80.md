@@ -1,5 +1,8 @@
 ### CC Madhya 4.80
 
+> আচমন দিয়া দিল বিড়ক-সঞ্চয় ।
+> আরতি করিল লোকে, করে জয় জয় ॥৮০॥
+
 ācamana diyā dila viḍaka-sañcaya
 
 ārati karila loke, kare jaya jaya

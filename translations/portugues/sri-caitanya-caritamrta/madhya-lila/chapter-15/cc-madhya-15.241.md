@@ -1,5 +1,8 @@
 ### CC Madhya 15.241
 
+> ব্রজে জ্যেঠা, খুড়া, মামা, পিসাদি গোপগণ  ।
+> সখাবৃন্দ সবার ঘরে দ্বিসন্ধ্যা-ভোজন ॥২৪১॥
+
 vraje jyeṭhā, khuḍā, māmā, pisādi gopa-gaṇa
 
 sakhā-vṛnda sabāra ghare dvisandhyā-bhojana

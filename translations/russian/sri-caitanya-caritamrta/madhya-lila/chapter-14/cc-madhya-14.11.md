@@ -1,5 +1,8 @@
 ### CC Madhya 14.11
 
+> তুমি মোরে দিলে বহু অমূল্য রতন ।
+> মোর কিছু দিতে নাহি, দিলুঁ আলিঙ্গন ॥১১॥
+
 > tumi more dile bahu amūlya ratana
 > mora kichu dite nāhi, diluṅ āliṅgana
 

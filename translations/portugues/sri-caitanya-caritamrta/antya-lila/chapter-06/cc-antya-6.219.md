@@ -1,5 +1,8 @@
 ### CC Antya 6.219
 
+> কেহ ছত্রে মাগি’ খায়, যেবা কিছু পায়  ।
+> কেহ রাত্রে ভিক্ষা লাগি’ সিংহদ্বারে রয় ॥২১৯॥
+
 keha chatre māgi' khāya, yebā kichu pāya
 
 keha rātre bhikṣā lāgi' siṁha-dvāre raya

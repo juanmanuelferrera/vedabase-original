@@ -1,5 +1,8 @@
 ### CC Madhya 14.16
 
+> এই দেখ, — চৈতন্যের কৃপা-মহাবল ৷
+> তার অনুসন্ধান বিনা করায় সফল ॥১৬॥
+
 > ei dekha,-caitanyera kṛpā-mahābala
 > tāra anusandhāna vinā karāya saphala
 

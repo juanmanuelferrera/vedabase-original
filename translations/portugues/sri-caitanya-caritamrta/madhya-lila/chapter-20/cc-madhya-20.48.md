@@ -1,5 +1,8 @@
 ### CC Madhya 20.48
 
+> ‘দ্বারেতে বৈষ্ণব নাহি’ — প্রভুরে কহিল ।
+> ‘কেহ হয়’ করি’ প্রভু তাহারে পুছিল ॥৪৮॥
+
 'dvārete vaiṣṇava nāhi'--prabhure kahila
 
 'keha haya' kari' prabhu tāhāre puchila

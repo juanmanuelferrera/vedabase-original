@@ -1,5 +1,7 @@
 ### CC Antya 4.37
 
+> “তোমা-দুঁহার আজ্ঞা আমি কেমনে লঙ্ঘিমু ? দীক্ষা-মন্ত্র দেহ’ কৃষ্ণ-ভজন করিমু ।।” ৩৭ ॥৩৭॥
+
 > "tomā-duṅhāra ājñā āmi kemane laṅghimu?
 > dīkṣā-mantra deha' kṛṣṇa-bhajana karimu"
 

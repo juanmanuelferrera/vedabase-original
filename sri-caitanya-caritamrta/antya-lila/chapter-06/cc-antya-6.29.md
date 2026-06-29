@@ -1,5 +1,8 @@
 ### CC Antya 6.29
 
+> এত শুনি’ সেই ম্লেচ্ছের মন আর্দ্র হৈল ।
+> দাড়ি বাহি’ অশ্রু পড়ে, কাঁদিতে লাগিল ॥২৯॥
+
 > eta śuni' sei mlecchera mana ārdra haila
 > dāḍi vāhi' aśru paḍe, kāṅdite lāgila
 

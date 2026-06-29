@@ -1,5 +1,10 @@
 ### SB 5.2.8
 
+> बाणाविमौ भगवतः शतपत्रपत्रौ
+> शान्तावपुङ्खरुचिरावतितिग्मदन्तौ
+> कस्मै युयुङ्क्षसि वने विचरन्न विद्मः
+> क्षेमाय नो जडधियां तव विक्रमोऽस्तु ॥८॥
+
 > bāṇāv imau bhagavataḥ śata-patra-patrau
 > śāntāv apuṅkha-rucirāv ati-tigma-dantau
 > kasmai yuyuṅkṣasi vane vicaran na vidmaḥ

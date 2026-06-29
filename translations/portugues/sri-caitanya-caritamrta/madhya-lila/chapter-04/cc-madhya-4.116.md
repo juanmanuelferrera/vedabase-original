@@ -1,5 +1,8 @@
 ### CC Madhya 4.116
 
+> এই লাগি’ পুছিলেন ব্রাহ্মণের স্থানে ।
+> ব্রাহ্মণ কহিল সব ভোগ-বিবরণে ॥১১৬॥
+
 ei lāgi' puchilena brāhmaṇera sthāne
 brāhmaṇa kahila saba bhoga-vivaraṇe
 

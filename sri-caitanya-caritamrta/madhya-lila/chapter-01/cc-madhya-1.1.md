@@ -1,5 +1,8 @@
 ### CC Madhya 1.1
 
+> যস্য প্রসাদাদজ্ঞোঽপি সদ্যঃ সর্বজ্ঞতাং ব্রজেৎ ।
+> স শ্রীচৈতন্যদেবো মে ভগবান্ সংপ্রসীদতু ॥১॥
+
 > yasya prasādād ajño 'pi
 > sadyaḥ sarva-jñatāṁ vrajet
 > sa śrī-caitanya-devo me

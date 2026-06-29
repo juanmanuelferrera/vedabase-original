@@ -1,5 +1,8 @@
 ### CC Antya 19.72
 
+> উঘাড়-অঙ্গে পড়িয়া শঙ্কর নিদ্রা যায় ।
+> প্রভু উঠি’ আপন-কাঁথা তাহারে জড়ায় ॥৭২॥
+
 > ughāḍa-aṅge paḍiyā śaṅkara nidrā yāya
 > prabhu uṭhi' āpana-kāṅthā tāhāre jaḍāya
 

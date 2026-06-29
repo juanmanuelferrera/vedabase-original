@@ -1,5 +1,8 @@
 ### CC Madhya 5.64
 
+> তবে ছোটবিপ্র কহে, — “শুন, মহাজন ।
+> ন্যায় জিনিবারে কহে অসত্য-বচন ॥৬৪॥
+
 tabe choṭa-vipra kahe, "śuna, mahājana
 
 nyāya jinibāre kahe asatya-vacana

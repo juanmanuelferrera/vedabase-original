@@ -1,5 +1,8 @@
 ### CC Antya 2.36
 
+> নৃসিংহানন্দের আগে আবির্ভূত হঞা ।
+> ভোজন করিলা, তাহা শুন মন দিয়া ॥৩৬॥
+
 nṛsiṁhānandera āge āvirbhūta hañā
 
 bhojana karilā, tāhā śuna mana diyā

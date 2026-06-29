@@ -1,5 +1,8 @@
 ### CC Antya 18.19
 
+> প্রেমার বিকার বর্ণিতে চাহে যেই জন ।
+> চান্দ ধরিতে চাহে, যেন হঞা ‘বামন’ ॥১৯॥
+
 > premāra vikāra varṇite cāhe yei jana
 > cānda dharite cāhe, yena hañā 'vāmana'
 

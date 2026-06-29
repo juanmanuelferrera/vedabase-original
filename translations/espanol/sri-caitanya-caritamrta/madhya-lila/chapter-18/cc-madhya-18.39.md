@@ -1,5 +1,8 @@
 ### CC Madhya 18.39
 
+> এইমত তিনদিন গোপালে দেখিলা ।
+> চতুর্থ-দিবসে গোপাল স্বমন্দিরে গেলা ॥৩৯॥
+
 > ei-mata tina-dina gopāle dekhilā
 > caturtha-divase gopāla svamandire gelā
 

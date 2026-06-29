@@ -1,5 +1,8 @@
 ### CC Madhya 25.207
 
+> রূপ-গোসাঞি, আইলে তাঁরে বহু প্রীতি কৈলা ।
+> আপন-সঙ্গে লঞা ‘দ্বাদশ বন’ দেখাইলা ॥২০৭॥
+
 > rūpa-gosāñi, āile tāṅre bahu prīti kailā
 > āpana-saṅge lañā 'dvādaśa vana' dekhāilā
 

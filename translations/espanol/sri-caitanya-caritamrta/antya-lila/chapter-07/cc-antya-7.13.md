@@ -1,5 +1,8 @@
 ### CC Antya 7.13
 
+> জগতে করিলা তুমি কৃষ্ণনাম প্রকাশে ।
+> যেই তোমা দেখে, সেই কৃষ্ণপ্রেমে ভাসে ॥১৩॥
+
 > jagate karilā tumi kṛṣṇa-nāma prakāśe
 > yei tomā dekhe, sei kṛṣṇa-preme bhāse
 

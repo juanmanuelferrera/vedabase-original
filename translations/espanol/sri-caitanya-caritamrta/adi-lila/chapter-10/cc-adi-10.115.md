@@ -1,5 +1,8 @@
 ### CC Adi 10.115
 
+> গোবিন্দ, মাধব, বাসুদেব, — তিন ভাই ।
+> যাঁ-সবার কীর্তনে নাচে চৈতন্য-নিতাই ॥১১৫॥
+
 > govinda, mādhava, vāsudeva--tina bhāi
 > yāṅ-sabāra kīrtane nāce caitanya-nitāi
 

@@ -1,5 +1,8 @@
 ### CC Madhya 12.116
 
+> ভাল কর্ম দেখি’ তারে করে প্রসংশন ।
+> মনে না মিলিলে করে পবিত্র ভর্ত্সন ॥১১৬॥
+
 bhāla karma dekhi' tāre kare prasaṁśana
 
 mane nā milile kare pavitra bhartsana

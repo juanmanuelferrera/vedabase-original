@@ -1,5 +1,8 @@
 ### SB 8.6.15
 
+> अहं गिरित्रश्च सुरादयो ये दक्षादयोऽग्नेरिव केतवस्ते
+> किं वा विदामेश पृथग्विभाता विधत्स्व शं नो द्विजदेवमन्त्रम ॥१५॥
+
 > ahaṁ giritraś ca surādayo ye
 > dakṣādayo 'gner iva ketavas te
 > kiṁ vā vidāmeśa pṛthag-vibhātā

@@ -1,5 +1,8 @@
 ### CC Antya 1.47
 
+> ‘উপল-ভোগ’ দেখি’ হরিদাসেরে দেখিতে ।
+> প্রতিদিন আইসেন, প্রভু আইলা আচম্বিতে ॥৪৭॥
+
 'upala-bhoga' dekhi' haridāsere dekhite
 
 pratidina āisena, prabhu āilā ācambite

@@ -1,5 +1,8 @@
 ### CC Madhya 18.227
 
+> যেই তর্ক করে ইহাঁ, সেই — ‘মূর্খরাজ’ ।
+> আপনার মুণ্ডে সে আপনি পাড়ে বাজ ॥২২৭॥
+
 > yei tarka kare ihāṅ, sei—'mūrkha-rāja'
 > āpanāra muṇḍe se āpani pāḍe vāja
 

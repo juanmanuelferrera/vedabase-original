@@ -1,5 +1,10 @@
 ### CC Madhya 2.18
 
+> প্রেমচ্ছেদরুজোঽবগচ্ছতি হরির্নায়ং ন চ প্রেম বা
+> স্থানাস্থানমবৈতি নাপি মদনো জানাতি নো দুর্বলাঃ ।
+> অন্যো বেদ ন চান্যদুঃখমখিলং নো জীবনং বাশ্রবং
+> দ্বিত্রাণ্যেব দিনানি যৌবনমিদং হাহা বিধে কা গতিঃ ॥১৮॥
+
 > prema-ccheda-rujo 'vagacchati harir nāyaṁ na ca prema vā
 > sthānāsthānam avaiti nāpi madano jānāti no durbalāḥ
 > anyo veda na cānya-duḥkham akhilaṁ no jīvanaṁ vāśravaṁ

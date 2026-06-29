@@ -1,5 +1,7 @@
 ### CC Madhya 24.55
 
+> যোগ্যভাবে জগতে যত যুবতীর গণ ॥৫৫॥
+
 > yogya-bhāve jagate yata yuvatīra gaṇa
 
 *yogya-bhāve*—con el comportamiento apropiado; *jagate*—dentro de los tres mundos; *yata*—todas; *yuvatīra gaṇa*—los grupos de muchachas jóvenes.

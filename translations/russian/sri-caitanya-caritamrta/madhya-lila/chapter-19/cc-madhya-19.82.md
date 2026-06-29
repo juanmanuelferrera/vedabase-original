@@ -1,5 +1,8 @@
 ### CC Madhya 19.82
 
+> যদ্যপি ভট্টের আগে প্রভুর ধৈর্য হৈল মন ।
+> দুর্বার উদ্ভট প্রেম নহে সম্বরণ ॥৮২॥
+
 > yadyapi bhaṭṭera āge prabhura dhairya haila mana
 > durvāra udbhaṭa prema nahe samvaraṇa
 

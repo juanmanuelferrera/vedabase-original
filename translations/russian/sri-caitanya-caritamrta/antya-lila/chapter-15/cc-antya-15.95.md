@@ -1,5 +1,8 @@
 ### CC Antya 15.95
 
+> এই ত’ কহিলুঁ প্রভুর উদ্যান-বিহার ।
+> বৃন্দাবন-ভ্রমে যাঁহা প্রবেশ তাঁহার ॥৯৫॥
+
 > ei ta' kahiluṅ prabhura udyāna-vihāra
 > vṛndāvana-bhrame yāhāṅ praveśa tāṅhāra
 

@@ -1,5 +1,10 @@
 ### SB 3.31.21
 
+> तस्मादहं विगतविक्लव उद्धरिष्य
+> आत्मानमाशु तमसः सुहृदात्मनैव ।
+> भूयो यथा व्यसनमेतदनेकरन्ध्रं
+> मा मे भविष्यदुपसादितविष्णुपादः ॥२१॥
+
 > tasmād ahaṁ vigata-viklava uddhariṣya
 > ātmānam āśu tamasaḥ suhṛdātmanaiva
 > bhūyo yathā vyasanam etad aneka-randhraṁ

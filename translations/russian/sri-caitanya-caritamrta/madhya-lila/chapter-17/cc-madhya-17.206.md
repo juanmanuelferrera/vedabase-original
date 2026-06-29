@@ -1,5 +1,8 @@
 ### CC Madhya 17.206
 
+> স্থাবর-জঙ্গম মিলি’ করে কৃষ্ণধ্বনি । 
+> প্রভুর গম্ভীর-স্বরে যেন প্রতিধ্বনি ॥২০৬॥
+
 > sthāvara-jaṅgama mili' kare kṛṣṇa-dhvani
 > prabhura gambhīra-svare yena prati-dhvani
 

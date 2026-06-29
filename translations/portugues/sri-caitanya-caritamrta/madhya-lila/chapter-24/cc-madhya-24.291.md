@@ -1,5 +1,8 @@
 ### CC Madhya 24.291
 
+> অজাতরতি সাধকভক্ত, — এ চারি প্রকার ।
+> বিধিমার্গে ভক্তে ষোড়শ ভেদ প্রচার ॥২৯১॥
+
 ajāta-rati sādhaka-bhakta,--e cāri prakāra
 
 vidhi-mārge bhakte ṣoḍaśa bheda pracāra

@@ -1,5 +1,8 @@
 ### Bg 7.8
 
+> रसोऽहमप्सु कौन्तेय प्रभास्मि शशिसूर्ययोः ।
+> प्रणवः सर्ववेदेषु शब्दः खे पौरुषं नृषु ॥८॥
+
 > raso'ham apsu kaunteya
 > prabhāsmi śaśi-sūryayoḥ
 > praṇavaḥ sarva-vedeṣu

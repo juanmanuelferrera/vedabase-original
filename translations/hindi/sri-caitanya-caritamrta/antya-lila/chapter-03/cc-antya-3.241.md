@@ -1,5 +1,8 @@
 ### CC Antya 3.241
 
+> যাবৎ কীর্তন সমাপ্ত নহে, না করি অন্য কাম  ।
+> কীর্তন সমাপ্ত হৈলে, হয় দীক্ষার বিশ্রাম ॥২৪১॥
+
 > yāvat kīrtana samāpta nahe, nā kari anya kāma
 > kīrtana samāpta haile, haya dīkṣāra viśrāma
 

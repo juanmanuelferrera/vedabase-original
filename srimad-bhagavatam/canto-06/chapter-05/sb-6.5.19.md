@@ -1,5 +1,8 @@
 ### SB 6.5.19
 
+> कालचक्रं भ्रमि तीक्ष्णं सर्वं निष्कर्षयज्जगत
+> स्वतन्त्रमबुधस्येह किमसत्कर्मभिर्भवेत ॥१९॥
+
 > kāla-cakraṁ bhrami tīkṣṇaṁ
 > sarvaṁ niṣkarṣayaj jagat
 > svatantram abudhasyeha

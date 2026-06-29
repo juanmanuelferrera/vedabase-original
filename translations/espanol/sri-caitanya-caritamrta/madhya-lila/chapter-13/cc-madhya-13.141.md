@@ -1,5 +1,10 @@
 ### CC Madhya 13.141
 
+> নহে গোপী যোগেশ্বর, পদকমল তোমার,
+> ধ্যান করি’ পাইবে সন্তোষ ।
+> তোমার বাক্য-পরিপাটী, তার মধ্যে কুটিনাটী,
+> শুনি’ গোপীর আরো বাঢ়ে রোষ ॥১৪১॥
+
 > nahe gopī yogeśvara, pada-kamala tomāra,
 > dhyāna kari' pāibe santoṣa
 > tomāra vākya-paripāṭī, tāra madhye kuṭināṭī,

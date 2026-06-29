@@ -1,5 +1,8 @@
 ### CC Antya 2.143
 
+> মহাপ্রভু — কৃপাসিন্ধু, কে পারে বুঝিতে ?
+> প্রিয় ভক্তে দণ্ড করেন ধর্ম বুঝাইতে ॥১৪৩॥
+
 > mahāprabhu--kṛpā-sindhu, ke pāre bujhite?
 > priya bhakte daṇḍa karena dharma bujhāite
 

@@ -1,5 +1,8 @@
 ### SB 3.1.31
 
+> क्षेमं स कच्चिद्युयुधान आस्ते यः फाल्गुनाल्लब्धधनूरहस्यः ।
+> लेभेऽञ्जसाधोक्षजसेवयैव गतिं तदीयां यतिभिर्दुरापाम् ॥३१॥
+
 > kṣemaṁ sa kaccid yuyudhāna āste
 > yaḥ phālgunāl labdha-dhanū-rahasyaḥ
 > lebhe 'ñjasādhokṣaja-sevayaiva

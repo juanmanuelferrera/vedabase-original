@@ -1,5 +1,8 @@
 ### CC Madhya 21.33
 
+> স্বয়ন্ত্বসাম্যাতিশয়স্ত্র্যধীশঃ স্বারাজ্যলক্ষ্ম্যাপ্তসমস্তকামঃ ।
+> বলিং হরদ্ভিশ্চিরলোকপালৈঃ কিরীটকোটীড়িতপাদপীঠঃ ॥৩৩॥
+
 > svayaṁ tv asāmyātiśayas tryadhīśaḥ
 > svārājya-lakṣmy-āpta-samasta-kāmaḥ
 > baliṁ haradbhiś cira-loka-pālaiḥ

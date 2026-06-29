@@ -1,5 +1,8 @@
 ### SB 4.14.10
 
+> अहेरिव पयःपोषः पोषकस्याप्यनर्थभृत् ।
+> वेनः प्रकृत्यैव खलः सुनीथागर्भसम्भवः ॥१०॥
+
 > aher iva payaḥ-poṣaḥ
 > poṣakasyāpy anartha-bhṛt
 > venaḥ prakṛtyaiva khalaḥ

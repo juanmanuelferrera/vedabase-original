@@ -1,5 +1,7 @@
 ### SB 5.8.30
 
+> इत्येवं निगूढनिर्वेदो विसृज्य मृगीं मातरं पुनर्भगवत्क्षेत्रमुपशमशीलमुनिगणदयितं शालग्रामं पुलस्त्यपुलहाश्रमं कालञ्जरात्प्रत्याजगाम ॥३०॥
+
 *ity evaṁ nigūḍha*-nirvedo visṛjya mṛgīṁ mātaraṁ punar bhagavat-kṣetram upaśama-śīla-muni-gaṇa-dayitaṁ śālagrāmaṁ pulastya-pulahāśramaṁ kālañjarāt pratyājagāma.
 
 *iti*—assim; *evam*—dessa maneira; *nigūḍha*—oculto; *nirvedaḥ*—completamente desapegado das atividades materiais; *visṛjya*—abandonando; *mṛgīm*—a cerva; *mātaram*—sua mãe; *punaḥ*—novamente; *bhagavat-kṣetram*—o lugar onde se adora o Senhor Supremo; *upaśama-śīla*—completamente desapegado de todos os apegos materiais; *muni-gaṇa-dayitam*—que é querido aos grandes residentes santos; *śālagrāmam*—a aldeia conhecida como Śālagrāma; *pulastya-pulaha-āśramam*—ao āśrama conduzido por grandes sábios como Pulastya e Pulaha; *kālañjarāt*—da montanha Kālañjara, onde havia nascido no ventre de uma cerva; *pratyājagāma*—retornou.

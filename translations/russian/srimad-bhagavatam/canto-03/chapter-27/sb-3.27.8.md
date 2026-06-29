@@ -1,5 +1,8 @@
 ### SB 3.27.8
 
+> यदृच्छयोपलब्धेन सन्तुष्टो मितभुङ्मुनिः ।
+> विविक्तशरणः शान्तो मैत्रः करुण आत्मवान् ॥८॥
+
 > yadṛcchayopalabdhena
 > santuṣṭo mita-bhuṅ muniḥ
 > vivikta-śaraṇaḥ śānto

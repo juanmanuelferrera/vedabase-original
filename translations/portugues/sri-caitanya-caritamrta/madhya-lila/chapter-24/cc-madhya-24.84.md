@@ -1,5 +1,8 @@
 ### CC Madhya 24.84
 
+> রাগভক্তি, বিধিভক্তি হয় দুইরূপ ।
+> ‘স্বয়ং-ভগবত্ত্বে’, ভগবত্ত্বে — প্রকাশ দ্বিরূপ ॥৮৪॥
+
 rāga-bhakti-vidhi-bhakti haya dui-rūpa
 
 'svayaṁ-bhagavattve', bhagavattve--prakāśa dvi-rūpa

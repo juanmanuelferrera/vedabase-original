@@ -1,5 +1,8 @@
 ### CC Madhya 12.88
 
+> তৃণ, ধূলি, ঝিঁকুর, সব একত্র করিয়া ।
+> বহির্বাসে লঞা ফেলায় বাহির করিয়া ॥৮৮॥
+
 tṛṇa, dhūli, jhiṅkura, saba ekatra kariyā
 
 bahirvāse lañā phelāya bāhira kariyā

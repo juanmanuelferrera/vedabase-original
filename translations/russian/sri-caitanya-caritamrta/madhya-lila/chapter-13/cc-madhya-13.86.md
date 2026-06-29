@@ -1,5 +1,8 @@
 ### CC Madhya 13.86
 
+> নিত্যানন্দপ্রভু দুই হাত প্রসারিয়া ।
+> প্রভুরে ধরিতে চাহে আশপাশ ধাঞা ॥৮৬॥
+
 > nityānanda-prabhu dui hāta prasāriyā
 > prabhure dharite cāhe āśa-pāśa dhāñā
 

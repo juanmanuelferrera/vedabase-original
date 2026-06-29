@@ -1,5 +1,10 @@
 ### CC Madhya 2.64
 
+> মত্তগজ ভাবগণ, প্রভুর দেহ — ইক্ষুবন,
+> গজ-যুদ্ধে বনের দলন ।
+> প্ৰভুর হৈল দিব্যোন্মাদ, তনুমনের অবসাদ,
+> ভাবাবেশে করে সম্বোধন ॥৬৪॥
+
 > matta-gaja bhāva-gaṇa, prabhura deha—īkṣu-vana,
 > gaja-yuddhe vanera dalana
 > prabhura haila divyonmāda, tanu-manera avasāda,

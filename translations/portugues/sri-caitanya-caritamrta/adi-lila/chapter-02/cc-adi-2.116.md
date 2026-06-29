@@ -1,5 +1,8 @@
 ### CC Adi 2.116
 
+> সব শ্রোতাগণের করি চরণ বন্দন ।
+> এ সব সিদ্ধান্ত শুন, করি’ এক মন ॥১১৬॥
+
 saba śrotā-gaṇera kari caraṇa vandana
 
 e saba siddhānta śuna, kari' eka mana

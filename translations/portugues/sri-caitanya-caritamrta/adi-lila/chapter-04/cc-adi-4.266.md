@@ -1,5 +1,8 @@
 ### CC Adi 4.266
 
+> এই তিন তৃষ্ণা মোর নহিল পূরণ ।
+> বিজাতীয়-ভাবে নহে তাহা আস্বাদন ॥২৬৬॥
+
 ei tina tṛṣṇā mora nahila pūraṇa
 
 vijātīya-bhāve nahe tāhā āsvādana

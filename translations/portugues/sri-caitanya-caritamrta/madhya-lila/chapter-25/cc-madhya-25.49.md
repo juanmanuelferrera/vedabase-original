@@ -1,5 +1,8 @@
 ### CC Madhya 25.49
 
+> যেই গ্রন্থকর্তা চাহে স্ব-মত স্থাপিতে ।
+> শাস্ত্রের সহজ অর্থ নহে তাঁহে হৈতে ॥৪৯॥
+
 yei grantha-kartā cāhe sva-mata sthāpite
 
 śāstrera sahaja artha nahe tāṅhā haite

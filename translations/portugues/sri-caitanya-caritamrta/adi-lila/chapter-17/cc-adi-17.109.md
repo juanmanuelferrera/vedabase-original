@@ -1,5 +1,8 @@
 ### CC Adi 17.109
 
+> পূর্বে যৈছে ছিলা তুমি এবেহ সেরূপ ।
+> দুর্বিজ্ঞেয় নিত্যানন্দ — তোমার স্বরূপ ॥১০৯॥
+
 pūrve yaiche chilā tumi ebeha se-rūpa
 durvijñeya nityānanda--tomāra svarūpa
 

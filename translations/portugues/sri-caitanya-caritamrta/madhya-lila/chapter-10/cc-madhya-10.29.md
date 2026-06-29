@@ -1,5 +1,8 @@
 ### CC Madhya 10.29
 
+> আর দিন মহাপ্রভু ভট্টাচার্যের সঙ্গে ৷
+> জগন্নাথ দরশন কৈল মহারঙ্গে ৷৷ ২৯ ৷৷ ॥২৯॥
+
 āra dina mahāprabhu bhaṭṭācāryera saṅge
 
 jagannātha daraśana kaila mahā-raṅge

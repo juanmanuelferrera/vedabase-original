@@ -1,5 +1,8 @@
 ### CC Antya 20.101
 
+> তোমা-সবার চরণ-ধূলি করিনু বন্দন ।
+> তাতে চৈতন্য-লীলা হৈল যে কিছু লিখন ॥১০১॥
+
 tomā-sabāra caraṇa-dhūli karinu vandana
 
 tāte caitanya-līlā haila ye kichu likhana

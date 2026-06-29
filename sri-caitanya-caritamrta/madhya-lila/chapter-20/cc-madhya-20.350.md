@@ -1,5 +1,8 @@
 ### CC Madhya 20.350
 
+> রাজমন্ত্রী সনাতন — বুদ্ধ্যে বৃহস্পতি ।
+> প্রভুর কৃপাতে পুছে অসঙ্কোচ-মতি ॥৩৫০॥
+
 > rāja-mantrī sanātana—buddhye bṛhaspati
 > prabhura kṛpāte puche asaṅkoca-mati
 

@@ -1,5 +1,8 @@
 ### CC Adi 4.136
 
+> এত চিন্তি’ রহে কৃষ্ণ পরমকৌতুকী ।
+> হৃদয়ে বাড়য়ে প্রেম-লোভ ধক্ধকি ॥১৩৬॥
+
 > eta cinti' rahe kṛṣṇa parama-kautukī
 > hṛdaye bāḍaye prema-lobha dhakdhaki
 

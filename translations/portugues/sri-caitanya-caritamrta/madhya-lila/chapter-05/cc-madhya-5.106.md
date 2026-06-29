@@ -1,5 +1,8 @@
 ### CC Madhya 5.106
 
+> এত ভাবি’ সেই বিপ্র ফিরিয়া চাহিল ।
+> হাসিঞা গোপাল-দেব তথায় রহিল ॥১০৬॥
+
 eta bhāvi' sei vipra phiriyā cāhila
 hāsiñā gopāla-deva tathāya rahila
 

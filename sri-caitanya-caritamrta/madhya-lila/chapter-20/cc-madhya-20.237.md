@@ -1,5 +1,8 @@
 ### CC Madhya 20.237
 
+> হয়শীর্ষ-পঞ্চরাত্রে কহে ষোলজন ।
+> তার মতে কহি এবে চক্রাদি-ধারণ ॥২৩৭॥
+
 > hayaśīrṣa-pañcarātre kahe ṣola-jana
 > tāra mate kahi ebe cakrādi-dhāraṇa
 

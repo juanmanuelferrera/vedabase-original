@@ -1,5 +1,8 @@
 ### SB 6.18.2
 
+> सिद्धिर्भगस्य भार्याङ्ग महिमानं विभुं प्रभुम
+> आशिषं च वरारोहां कन्यां प्रासूत सुव्रताम ॥२॥
+
 > siddhir bhagasya bhāryāṅga
 > mahimānaṁ vibhuṁ prabhum
 > āśiṣaṁ ca varārohāṁ

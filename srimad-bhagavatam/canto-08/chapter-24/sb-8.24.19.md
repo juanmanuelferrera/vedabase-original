@@ -1,5 +1,8 @@
 ### SB 8.24.19
 
+> स एनां तत आदाय न्यधादौदञ्चनोदके
+> तत्र क्षिप्ता मुहूर्तेन हस्तत्रयमवर्धत ॥१९॥
+
 > sa enāṁ tata ādāya
 > nyadhād audañcanodake
 > tatra kṣiptā muhūrtena

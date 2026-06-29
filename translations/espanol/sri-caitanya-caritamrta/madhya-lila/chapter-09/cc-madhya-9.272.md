@@ -1,5 +1,8 @@
 ### CC Madhya 9.272
 
+> সন্ন্যাসী দেখিয়া মোরে করহ বঞ্চন ৷
+> না কহিলা তেঞি সাধ্য-সাধন-লক্ষণ ৷৷ ২৭২ ৷৷ ॥২৭২॥
+
 > sannyāsī dekhiyā more karaha vañcana
 > nā kahilā teñi sādhya-sādhana-lakṣaṇa
 

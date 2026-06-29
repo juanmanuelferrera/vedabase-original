@@ -1,5 +1,8 @@
 ### CC Madhya 17.159
 
+> দুঁহে প্রেমে নৃত্য করি’ করে কোলাকুলি ।
+> হরি কৃষ্ণ কহ দুঁহে বলে বাহু তুলি’ ॥১৫৯॥
+
 > duṅhe preme nṛtya kari' kare kolākuli
 > hari kṛṣṇa kaha duṅhe bale bāhu tuli'
 

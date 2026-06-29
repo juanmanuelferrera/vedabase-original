@@ -1,5 +1,8 @@
 ### CC Madhya 1.280
 
+> সূর্য যৈছে উদয় করি’ চাহে লুকাইতে ।
+> বুঝিতে না পারি তৈছে তোমার চরিতে ॥২৮০॥
+
 > sūrya yaiche udaya kari' cāhe lukāite
 > bujhite nā pāri taiche tomāra carite
 

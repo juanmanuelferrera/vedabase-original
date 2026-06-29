@@ -1,5 +1,8 @@
 ### SB 6.18.48
 
+> नाप्सु स्नायान्न कुप्येत न सम्भाषेत दुर्जनैः
+> न वसीताधौतवासः स्रजं च विधृतां क्वचित ॥४८॥
+
 > nāpsu snāyān na kupyeta
 > na sambhāṣeta durjanaiḥ
 > na vasītādhauta-vāsaḥ

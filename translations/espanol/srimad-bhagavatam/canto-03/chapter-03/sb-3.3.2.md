@@ -1,5 +1,8 @@
 ### SB 3.3.2
 
+> सान्दीपनेः सकृत्प्रोक्तं ब्रह्माधीत्य सविस्तरम् ।
+> तस्मै प्रादाद्वरं पुत्रं मृतं पञ्चजनोदरात् ॥२॥
+
 > sāndīpaneḥ sakṛt proktaṁ
 > brahmādhītya sa-vistaram
 > tasmai prādād varaṁ putraṁ

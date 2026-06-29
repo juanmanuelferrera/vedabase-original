@@ -1,5 +1,8 @@
 ### CC Madhya 1.143
 
+> সবা লঞা কৈল গুণ্ডিচা-গৃহ-সংমার্জন ।
+> রথযাত্রা-দরশনে প্রভুর নর্তন ॥১৪৩॥
+
 sabā lañā kaila guṇḍicā-gṛha-sammārjana
 
 ratha-yātrā-daraśane prabhura nartana

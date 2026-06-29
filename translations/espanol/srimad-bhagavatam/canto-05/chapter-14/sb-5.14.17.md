@@ -1,5 +1,7 @@
 ### SB 5.14.17
 
+> कदाचिन्मनोरथोपगतपितृपितामहाद्यसत्सदिति स्वप्ननिर्वृतिलक्षणमनुभवति ॥१७॥
+
 > kadācin manorathopagata-pitṛ-pitāmahādy asat sad iti svapna-nirvṛti-lakṣaṇam anubhavati.
 
 *kadācit*—a veces; *manoratha-upagata*—obtenida mediante la invención mental; *pitṛ*—el padre; *pitā-maha-ādi*—o el abuelo y otros; *asat*—aunque llevan tiempo muertos (y aunque nadie sabe que el alma se ha ido); *sat*—el padre o el abuelo han venido otra vez; *iti*—pensando así; *svapna-nirvṛti-lakṣaṇam*—el tipo de felicidad de que se goza en sueños; *anubhavati*—el alma condicionada siente.

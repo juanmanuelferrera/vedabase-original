@@ -1,5 +1,8 @@
 ### CC Adi 4.56
 
+> রাধাকৃষ্ণ এক আত্মা, দুই দেহ ধরি’ ।
+> অন্যোন্যে বিলসে রস আস্বাদন করি’ ॥৫৬॥
+
 rādhā-kṛṣṇa eka ātmā, dui deha dhari'
 anyonye vilase rasa āsvādana kari'
 

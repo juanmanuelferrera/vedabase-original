@@ -1,5 +1,8 @@
 ### CC Madhya 25.166
 
+> সন্ন্যাসী পণ্ডিত করে ভাগবত বিচার ৷
+> বারাণসীপুর প্রভু করিলা নিস্তার ৷৷ ১৬৬ ৷৷ ॥১৬৬॥
+
 sannyāsī paṇḍita kare bhāgavata vicāra
 
 vārāṇasī-pura prabhu karilā nistāra

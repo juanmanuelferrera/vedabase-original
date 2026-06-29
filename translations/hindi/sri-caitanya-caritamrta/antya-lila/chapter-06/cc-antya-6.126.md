@@ -1,5 +1,8 @@
 ### CC Antya 6.126
 
+> প্রাতে নিত্যানন্দ প্রভু গঙ্গাস্নান করিয়া ।
+> সেই বৃক্ষমূলে বসিলা নিজগণ লঞা ॥১২৬॥
+
 > prāte nityānanda prabhu gaṅgā-snāna kariyā
 > sei vṛkṣa-mūle vasilā nija-gaṇa lañā
 

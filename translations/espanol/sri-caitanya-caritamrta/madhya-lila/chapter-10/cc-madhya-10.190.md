@@ -1,5 +1,8 @@
 ### CC Madhya 10.190
 
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ৷
+> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ৷৷ ১৯০ ৷৷ ॥১৯০॥
+
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
 

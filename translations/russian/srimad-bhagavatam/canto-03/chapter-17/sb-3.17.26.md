@@ -1,5 +1,8 @@
 ### SB 3.17.26
 
+> स वर्षपूगानुदधौ महाबलश्चरन्महोर्मीञ्छ्वसनेरितान्मुहुः ।
+> मौर्व्याभिजघ्ने गदया विभावरीमासेदिवांस्तात पुरीं प्रचेतसः ॥२६॥
+
 > sa varṣa-pūgān udadhau mahā-balaś
 > caran mahormīñ chvasaneritān muhuḥ
 > maurvyābhijaghne gadayā vibhāvarīm

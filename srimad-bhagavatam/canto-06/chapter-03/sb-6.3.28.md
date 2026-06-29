@@ -1,5 +1,10 @@
 ### SB 6.3.28
 
+> तानानयध्वमसतो विमुखान्मुकुन्द
+> पादारविन्दमकरन्दरसादजस्रम
+> निष्किञ्चनैः परमहंसकुलैरसङ्गैर
+> जुष्टाद्गृहे निरयवर्त्मनि बद्धतृष्णान ॥२८॥
+
 > tān ānayadhvam asato vimukhān mukunda-
 > pādāravinda-makaranda-rasād ajasram
 > niṣkiñcanaiḥ paramahaṁsa-kulair asaṅgair

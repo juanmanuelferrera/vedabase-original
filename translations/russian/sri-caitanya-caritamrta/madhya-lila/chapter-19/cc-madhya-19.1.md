@@ -1,5 +1,10 @@
 ### CC Madhya 19.1
 
+> বৃন্দাবনীয়াং রসকেলিবার্তাং
+> কালেন লুপ্তাং নিজশক্তিমুৎকঃ ।
+> সঞ্চার্য রূপে ব্যতনোৎ পুনঃ স
+> প্রভুর্বিধৌ প্রাগিব লোকসৃষ্টিম্ ॥১॥
+
 > vṛndāvanīyāṁ rasa-keli-vārtāṁ
 > kālena luptāṁ nija-śaktim utkaḥ
 > sañcārya rūpe vyatanot punaḥ sa

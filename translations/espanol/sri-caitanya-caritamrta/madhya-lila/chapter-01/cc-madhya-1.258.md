@@ -1,5 +1,8 @@
 ### CC Madhya 1.258
 
+> তবে রূপ-গোসাঞির পুনরাগমন ।
+> তাঁহার হৃদয়ে কৈল প্রভু শক্তি-সঞ্চারণ ॥২৫৮॥
+
 > tabe rūpa-gosāñira punar-āgamana
 > tāṅhāra hṛdaye kaila prabhu śakti-sañcāraṇa
 

@@ -1,5 +1,8 @@
 ### CC Madhya 8.109
 
+> শতকোটি গোপী-সঙ্গে রাস-বিলাস ৷
+> তার মধ্যে এক-মূর্ত্যে রহে রাধা-পাশ ॥১০৯॥
+
 > śata-koṭi gopī-saṅge rāsa-vilāsa
 > tāra madhye eka-mūrtye rahe rādhā-pāśa
 

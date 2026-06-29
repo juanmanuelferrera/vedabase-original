@@ -1,5 +1,8 @@
 ### CC Adi 3.46
 
+> চন্দনের অঙ্গদ-বালা, চন্দন-ভূষণ ।
+> নৃত্যকালে পরি’ করেন কৃষ্ণসংকীর্তন ॥৪৬॥
+
 > candanera aṅgada-bālā, candana-bhūṣaṇa
 > nṛtya-kāle pari' karena kṛṣṇa-saṅkīrtana
 

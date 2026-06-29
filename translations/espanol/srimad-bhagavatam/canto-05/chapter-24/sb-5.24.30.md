@@ -1,5 +1,7 @@
 ### SB 5.24.30
 
+> ततोऽधस्ताद्रसातले दैतेया दानवाः पणयो नाम निवातकवचाः कालेया हिरण्यपुरवासिन इतिविबुधप्रत्यनीका उत्पत्त्या महौजसो महासाहसिनो भगवतः सकललोकानुभावस्य हरेरेव तेजसाप्रतिहतबलावलेपा बिलेशया इव वसन्ति ये वै सरमयेन्द्रदूत्या वाग्भिर्मन्त्रवर्णाभिरिन्द्राद्बिभ्यति ॥३०॥
+
 > tato 'dhastād rasātale daiteyā dānavāḥ paṇayo nāma nivāta-kavacāḥ kāleyā hiraṇya-puravāsina iti vibudha-pratyanīkā utpattyā mahaujaso mahā-sāhasino bhagavataḥ sakala-lokānubhāvasya harer eva tejasā pratihata-balāvalepā bileśayā iva vasanti ye vai saramayendra-dūtyā vāgbhir mantra-varṇābhir indrād bibhyati.
 
 En este verso se afirma que las serpientes que viven en el sistema planetario de Mahātala son muy poderosas y tienen muchas capuchas. Viven en compañía de sus esposas e hijos, y se consideran muy felices, aunque siempre están llenas de ansiedad por temor a Garuḍa, que visita el lugar para destruirlas. Así es la vida material. Incluso el que vive en las circunstancias más abominables se cree feliz en compañía de su esposa, hijos, amigos y familiares.

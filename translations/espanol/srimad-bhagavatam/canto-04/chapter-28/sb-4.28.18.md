@@ -1,5 +1,8 @@
 ### SB 4.28.18
 
+> लोकान्तरं गतवति मय्यनाथा कुटुम्बिनी ।
+> वर्तिष्यते कथं त्वेषा बालकाननुशोचती ॥१८॥
+
 > lokāntaraṁ gatavati
 > mayy anāthā kuṭumbinī
 > vartiṣyate kathaṁ tv eṣā

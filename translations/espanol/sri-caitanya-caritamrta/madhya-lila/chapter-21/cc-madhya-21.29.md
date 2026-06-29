@@ -1,5 +1,8 @@
 ### CC Madhya 21.29
 
+> ষোলক্রোশ বৃন্দাবন, — শাস্ত্রের প্রকাশে ।
+> তার একদেশে বৈকুণ্ঠাজাণ্ডগণ ভাসে ॥২৯॥
+
 > ṣola-krośa vṛndāvana,--śāstrera prakāśe
 > tāra eka-deśe vaikuṇṭhājāṇḍa-gaṇa bhāse
 

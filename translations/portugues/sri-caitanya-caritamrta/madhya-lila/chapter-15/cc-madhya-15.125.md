@@ -1,5 +1,8 @@
 ### CC Madhya 15.125
 
+> রাজা বলে — ব্যথা তুমি পাইলে কোন ঠাঞি ?
+> মুকুন্দ কহে, — অতিবড় ব্যথা পাই নাই ॥১২৫॥
+
 rājā bale--vyathā tumi pāile kona ṭhāñi?
 
 mukunda kahe,--ati-baḍa vyathā pāi nāi

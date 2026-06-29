@@ -1,5 +1,8 @@
 ### CC Antya 10.107
 
+> পূর্বে যদি গৌড় হইতে ভক্তগণ আইল ।
+> প্রভুরে কিছু খাওয়াইতে সবার ইচ্ছা হৈল ॥১০৭॥
+
 > pūrve yadi gauḍa ha-ite bhakta-gaṇa āila
 > prabhure kichu khāoyāite sabāra icchā haila
 

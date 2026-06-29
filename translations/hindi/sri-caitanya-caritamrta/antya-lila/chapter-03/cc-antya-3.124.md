@@ -1,5 +1,8 @@
 ### CC Antya 3.124
 
+> “কোটিনামগ্রহণ-যজ্ঞ করি একমাসে  ।
+> এই দীক্ষা করিয়াছি, হৈল আসি’ শেষে ॥১২৪॥
+
 > "koṭi-nāma-grahaṇa-yajña kari eka-māse
 > ei dīkṣā kariyāchi, haila āsi' śeṣe
 

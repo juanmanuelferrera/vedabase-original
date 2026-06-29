@@ -1,5 +1,8 @@
 ### CC Madhya 8.141
 
+> নানা-ভক্তের রসামৃত নানাবিধ হয় ।
+> সেই সব রসামৃতের ‘বিষয়’ ‘আশ্রয়’ ॥১৪১॥
+
 > nānā-bhaktera rasāmṛta nānā-vidha haya
 > sei saba rasāmṛtera 'viṣaya' 'āśraya'
 

@@ -1,5 +1,8 @@
 ### CC Antya 4.61
 
+> প্রেমী ভক্ত বিয়োগে চাহে দেহ ছাড়িতে ।
+> প্রেমে কৃষ্ণ মিলে, সেহ না পারে মরিতে ॥৬১॥
+
 > premī bhakta viyoge cāhe deha chāḍite
 > preme kṛṣṇa mile, seha nā pāre marite
 

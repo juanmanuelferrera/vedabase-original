@@ -1,5 +1,8 @@
 ### CC Madhya 11.184
 
+> প্রভু নমস্করি’ সবে বাসাতে চলিলা ।
+> গোপীনাথাচার্য সবে বাসা-স্থান দিলা ॥১৮৪॥
+
 > prabhu namaskari' sabe vāsāte calilā
 > gopīnāthācārya sabe vāsā-sthāna dilā
 

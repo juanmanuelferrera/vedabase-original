@@ -1,5 +1,8 @@
 ### SB 4.16.14
 
+> अस्याप्रतिहतं चक्रं पृथोरामानसाचलात् ।
+> वर्तते भगवानर्को यावत्तपति गोगणैः ॥१४॥
+
 > asyāpratihataṁ cakraṁ
 > pṛthor āmānasācalāt
 > vartate bhagavān arko

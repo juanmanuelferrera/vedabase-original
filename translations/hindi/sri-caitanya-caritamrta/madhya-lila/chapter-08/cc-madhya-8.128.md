@@ -1,5 +1,8 @@
 ### CC Madhya 8.128
 
+> কিবা বিপ্র, কিবা ন্যাসী, শূদ্র কেনে নয় ।
+> যেই কৃষ্ণতত্ত্ববেত্তা, সেই ‘গুরু’ হয় ॥১২৮॥
+
 > kibā vipra, kibā nyāsī, śūdra kene naya
 > yei kṛṣṇa-tattva-vettā, sei 'guru' haya
 

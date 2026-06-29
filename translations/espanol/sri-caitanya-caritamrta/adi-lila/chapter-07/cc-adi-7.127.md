@@ -1,5 +1,8 @@
 ### CC Adi 7.127
 
+> প্রাকৃত-বস্তুতে যদি অচিন্ত্যশক্তি হয় ।
+> ঈশ্বরের অচিন্ত্যশক্তি, — ইথে কি বিস্ময় ॥১২৭॥
+
 > prākṛta-vastute yadi acintya-śakti haya
 > īśvarera acintya-śakti,--ithe ki vismaya
 

@@ -1,5 +1,8 @@
 ### SB 9.24.36
 
+> तं सात्यजन्नदीतोये कृच्छ्राल्लोकस्य बिभ्यती
+> प्रपितामहस्तामुवाह पाण्डुर्वै सत्यविक्रमः ॥३६॥
+
 > taṁ sātyajan nadī-toye
 > kṛcchrāl lokasya bibhyatī
 > prapitāmahas tām uvāha

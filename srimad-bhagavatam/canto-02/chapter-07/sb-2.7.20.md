@@ -1,5 +1,10 @@
 ### SB 2.7.20
 
+> चक्रं च दिक्ष्वविहतं दशसु स्वतेजो
+> मन्वन्तरेषु मनुवंशधरो बिभर्ति ।
+> दुष्टेषु राजसु दमं व्यदधात्स्वकीर्तिं
+> सत्ये त्रिपृष्ठ उशतीं प्रथयंश्चरित्रैः ॥२०॥
+
 > cakraṁ ca dikṣv avihataṁ daśasu sva-tejo
 > manvantareṣu manu-vaṁśa-dharo bibharti
 > duṣṭeṣu rājasu damaṁ vyadadhāt sva-kīrtiṁ

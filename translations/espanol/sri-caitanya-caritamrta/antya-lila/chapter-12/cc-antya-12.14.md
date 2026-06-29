@@ -1,5 +1,8 @@
 ### CC Antya 12.14
 
+> শচীমাতা দেখি’ সবে তাঁর আজ্ঞা লঞা ।
+> আনন্দে চলিলা কৃষ্ণকীর্তন করিয়া ॥১৪॥
+
 > śacīmātā dekhi' sabe tāṅra ājñā lañā
 > ānande calilā kṛṣṇa-kīrtana kariyā
 

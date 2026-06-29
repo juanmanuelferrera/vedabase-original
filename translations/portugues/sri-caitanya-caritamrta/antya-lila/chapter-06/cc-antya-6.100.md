@@ -1,5 +1,8 @@
 ### CC Antya 6.100
 
+> এই ত’ কহিলুঁ নিত্যানন্দের বিহার ।
+> ‘চিড়া-দধি-মহোৎসব’-নামে খ্যাতি যার ॥১০০॥
+
 ei ta' kahiluṅ nityānandera vihāra
 
 'ciḍā-dadhi-mahotsava'-nāme khyāti yāra

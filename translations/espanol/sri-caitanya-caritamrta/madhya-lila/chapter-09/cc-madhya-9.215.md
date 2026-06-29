@@ -1,5 +1,8 @@
 ### CC Madhya 9.215
 
+> মহা-দুঃখ হইতে মোরে করিলা নিস্তার ৷
+> আজি মোর ঘরে ভিক্ষা কর অঙ্গীকার ৷৷ ২১৫ ৷৷ ॥২১৫॥
+
 > mahā-duḥkha ha-ite more karilā nistāra
 > āji mora ghare bhikṣā kara aṅgīkāra
 

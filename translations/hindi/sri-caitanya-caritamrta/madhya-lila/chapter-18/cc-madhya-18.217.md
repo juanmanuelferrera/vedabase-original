@@ -1,5 +1,8 @@
 ### CC Madhya 18.217
 
+> ম্লেচ্ছদেশ, কেহ কাহাঁ করয়ে উৎপাত ।
+> ভট্টাচার্য — পণ্ডিত, কহিতে না জানেন বাত়্ ॥২১৭॥
+
 > mleccha-deśa, keha kāhāṅ karaye utpāta
 > bhaṭṭācārya--paṇḍita, kahite nā jānena vāt
 

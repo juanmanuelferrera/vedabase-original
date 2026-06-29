@@ -1,5 +1,8 @@
 ### CC Antya 2.120
 
+> ক্ষুদ্রজীব সব মর্কট-বৈরাগ্য করিয়া ।
+> ইন্দ্রিয় চরাঞা বুলে ‘প্রকৃতি’ সম্ভাষিয়া ।।” ॥ ১২০ ॥
+
 > kṣudra-jīva saba markaṭa-vairāgya kariyā
 > indriya carāñā bule 'prakṛti' sambhāṣiyā"
 

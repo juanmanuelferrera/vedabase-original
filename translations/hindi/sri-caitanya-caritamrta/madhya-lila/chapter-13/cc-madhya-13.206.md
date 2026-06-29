@@ -1,5 +1,8 @@
 ### CC Madhya 13.206
 
+> রথাগ্রেতে প্রভু যৈছে করিলা নর্তন ।
+> চৈতন্যাষ্টকে রূপ-গোসাঞি কর্যাছে বর্ণন ॥২০৬॥
+
 > rathāgrete prabhu yaiche karilā nartana
 > caitanyāṣṭake rūpa-gosāñi karyāche varṇana
 

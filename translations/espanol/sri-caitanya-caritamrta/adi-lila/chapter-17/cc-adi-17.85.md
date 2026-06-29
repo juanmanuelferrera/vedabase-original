@@ -1,5 +1,8 @@
 ### CC Adi 17.85
 
+> অষ্ঠি-বল্কল নাহি, — অমৃত-রসময় ।
+> এক ফল খাইলে রসে উদর পূরয় ॥৮৫॥
+
 > aṣṭhi-valkala nāhi,--amṛta-rasamaya
 > eka phala khāile rase udara pūraya
 

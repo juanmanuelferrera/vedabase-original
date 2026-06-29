@@ -1,5 +1,8 @@
 ### SB 8.5.23
 
+> अयं च तस्य स्थितिपालनक्षणः सत्त्वं जुषाणस्य भवाय देहिनाम
+> तस्माद्व्रजामः शरणं जगद्गुरुं स्वानां स नो धास्यति शं सुरप्रियः ॥२३॥
+
 > ayaṁ ca tasya sthiti-pālana-kṣaṇaḥ
 > sattvaṁ juṣāṇasya bhavāya dehinām
 > tasmād vrajāmaḥ śaraṇaṁ jagad-guruṁ

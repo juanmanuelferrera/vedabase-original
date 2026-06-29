@@ -1,5 +1,8 @@
 ### SB 3.5.47
 
+> तथापरे चात्मसमाधियोग बलेन जित्वा प्रकृतिं बलिष्ठाम् ।
+> त्वामेव धीराः पुरुषं विशन्ति तेषां श्रमः स्यान्न तु सेवया ते ॥४७॥
+
 > tathāpare cātma-samādhi-yoga-
 > balena jitvā prakṛtiṁ baliṣṭhām
 > tvām eva dhīrāḥ puruṣaṁ viśanti

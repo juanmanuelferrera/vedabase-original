@@ -1,5 +1,8 @@
 ### CC Adi 7.100
 
+> যে কিছু কহিলে তুমি, সব সত্য হয় ।
+> কৃষ্ণপ্রেমা সেই পায়, যার ভাগ্যোদয় ॥১০০॥
+
 > ye kichu kahile tumi, saba satya haya
 > kṛṣṇa-premā sei pāya, yāra bhāgyodaya
 

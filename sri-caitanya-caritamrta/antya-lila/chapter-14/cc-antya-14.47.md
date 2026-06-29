@@ -1,5 +1,10 @@
 ### CC Antya 14.47
 
+> দশেন্দ্রিয়ে শিষ্য করি’, ‘মহা-বাউল’ নাম ধরি’,
+> শিষ্য লঞা করিল গমন ।
+> মোর দেহ স্ব-সদন, বিষয়-ভোগ মহাধন,
+> সব ছাড়ি’ গেলা বৃন্দাবন ॥৪৭॥
+
 > daśendriye śiṣya kari', 'mahā-bāula' nāma dhari',
 > śiṣya lañā karila gamana
 > mora deha sva-sadana, viṣaya-bhoga mahā-dhana,

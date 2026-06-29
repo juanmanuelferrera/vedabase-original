@@ -1,5 +1,8 @@
 ### SB 8.15.36
 
+> ततस्तदनुभावेन भुवनत्रयविश्रुताम
+> कीर्तिं दिक्षुवितन्वानः स रेज उडुराडिव ॥३६॥
+
 > bubhuje ca śriyaṁ svṛddhāṁ
 > dvija-devopalambhitām
 > kṛta-kṛtyam ivātmānaṁ

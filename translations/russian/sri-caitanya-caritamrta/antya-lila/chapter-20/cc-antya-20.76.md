@@ -1,5 +1,8 @@
 ### CC Antya 20.76
 
+> যে কিছু কহিলুঁ এই দিগ্দরশন ।
+> এই অনুসারে হবে তার আস্বাদন ॥৭৬॥
+
 > ye kichu kahiluṅ ei dig-daraśana
 > ei anusāre habe tāra āsvādana
 

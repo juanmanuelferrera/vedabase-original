@@ -1,5 +1,8 @@
 ### CC Madhya 6.90
 
+> ইঁহার শরীরে সব ঈশ্বর-লক্ষণ  ।
+> মহা-প্রেমাবেশ তুমি পাঞাছ দর্শন ॥৯০॥
+
 > iṅhāra śarīre saba īśvara-lakṣaṇa
 > mahā-premāveśa tumi pāñācha darśana
 

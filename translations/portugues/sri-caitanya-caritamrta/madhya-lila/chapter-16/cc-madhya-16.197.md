@@ -1,5 +1,8 @@
 ### CC Madhya 16.197
 
+> মহাপাত্রে মহাপ্ৰভু করিলা বিদায় ।
+> কান্দিতে কান্দিতে সেই তীরে রহি’ চায় ॥১৯৭॥
+
 mahā-pātre mahāprabhu karilā vidāya
 
 kāndite kāndite sei tīre rahi' cāya

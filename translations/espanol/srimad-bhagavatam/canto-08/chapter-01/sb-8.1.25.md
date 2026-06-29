@@ -1,5 +1,8 @@
 ### SB 8.1.25
 
+> धर्मस्य सूनृतायां तु भगवान्पुरुषोत्तमः
+> सत्यसेन इति ख्यातो जातः सत्यव्रतैः सह ॥२५॥
+
 > dharmasya sūnṛtāyāṁ tu
 > bhagavān puruṣottamaḥ
 > satyasena iti khyāto

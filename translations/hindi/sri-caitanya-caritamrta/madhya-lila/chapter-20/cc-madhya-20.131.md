@@ -1,5 +1,8 @@
 ### CC Madhya 20.131
 
+> ‘বাপের ধন আছে’ — জ্ঞানে ধন নাহি পায় ।
+> তবে সর্বজ্ঞ কহে তারে প্রাপ্তির উপায় ॥১৩১॥
+
 > 'bāpera dhana āche'--jñāne dhana nāhi pāya
 > tabe sarvajña kahe tāre prāptira upāya
 

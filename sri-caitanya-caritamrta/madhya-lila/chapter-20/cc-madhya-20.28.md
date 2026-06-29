@@ -1,5 +1,8 @@
 ### CC Madhya 20.28
 
+> রাজবন্দী আমি, গড়দ্বার যাইতে না পারি ।
+> পুণ্য হবে, পর্বত আমা দেহ’ পার করি ।।” ॥ ২৮ ॥
+
 > rāja-bandī āmi, gada-dvāra yāite nā pāri
 > puṇya habe, parvata āmā deha' pāra kari"
 

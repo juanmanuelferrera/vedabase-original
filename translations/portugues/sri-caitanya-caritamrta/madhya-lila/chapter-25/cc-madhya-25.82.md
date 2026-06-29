@@ -1,5 +1,8 @@
 ### CC Madhya 25.82
 
+> তবু পূজ্য হও, তুমি বড় আমা হৈতে ।
+> সর্বনাশ হয় মোর তোমার নিন্দাতে ॥৮২॥
+
 tabu pūjya hao, tumi baḍa āmā haite
 
 sarva-nāśa haya mora tomāra nindāte

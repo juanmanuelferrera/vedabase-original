@@ -1,5 +1,8 @@
 ### SB 7.15.13
 
+> धर्मबाधो विधर्मः स्यात्परधर्मोऽन्यचोदितः
+> उपधर्मस्तु पाखण्डो दम्भो वा शब्दभिच्छलः ॥१३॥
+
 > dharma-bādho vidharmaḥ syāt
 > para-dharmo 'nya-coditaḥ
 > upadharmas tu pākhaṇḍo

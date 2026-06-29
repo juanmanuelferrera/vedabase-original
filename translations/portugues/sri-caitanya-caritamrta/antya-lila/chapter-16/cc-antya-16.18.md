@@ -1,5 +1,8 @@
 ### CC Antya 16.18
 
+> “আমি — নীচজাতি, তুমি, — অতিথি সর্বোত্তম  ।
+> কোন্ প্রকারে করিমু আমি তোমার সেবন ? ১৮ ॥১৮॥
+
 "āmi--nīca-jāti, tumi,--atithi sarvottama
 
 kon prakāre karimu āmi tomāra sevana?

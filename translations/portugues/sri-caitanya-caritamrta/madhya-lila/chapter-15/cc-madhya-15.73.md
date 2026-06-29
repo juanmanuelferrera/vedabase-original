@@ -1,5 +1,8 @@
 ### CC Madhya 15.73
 
+> প্রতিদিন পাঁচ-সাত ফল ছোলাঞা  ।
+> সুশীতল করিতে রাখে জলে ডুবাইঞা ॥৭৩॥
+
 prati-dina pāṅca-sāta phala cholāñā
 
 suśītala karite rākhe jale ḍubāiñā

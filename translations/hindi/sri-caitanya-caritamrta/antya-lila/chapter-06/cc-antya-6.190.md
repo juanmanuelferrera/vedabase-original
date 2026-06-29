@@ -1,5 +1,8 @@
 ### CC Antya 6.190
 
+> অঙ্গনেতে দূরে রহি’ করেন প্রণিপাত ।
+> মুকুন্দ-দত্ত কহে, — ‘এই আইল রঘুনাথ’ ॥১৯০॥
+
 > aṅganete dūre rahi' karena praṇipāta
 > mukunda-datta kahe,--'ei āila raghunātha'
 

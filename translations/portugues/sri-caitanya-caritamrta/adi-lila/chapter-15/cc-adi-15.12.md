@@ -1,5 +1,8 @@
 ### CC Adi 15.12
 
+> বিশ্বরূপ শুনি’ ঘর ছাড়ি পলাইলা ।
+> সন্ন্যাস করিয়া তীর্থ করিবারে গেলা ॥১২॥
+
 viśvarūpa śuni' ghara chāḍi palāilā
 sannyāsa kariyā tīrtha karibāre gelā
 

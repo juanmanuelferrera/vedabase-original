@@ -1,5 +1,8 @@
 ### CC Antya 18.32
 
+> যমুনাতে জলকেলি গোপীগণ-সঙ্গে ।
+> কৃষ্ণ করেন — মহাপ্রভু মগ্ন সেই রঙ্গে ॥৩২॥
+
 > yamunāte jala-keli gopī-gaṇa-saṅge
 > kṛṣṇa karena—mahāprabhu magna sei raṅge
 

@@ -1,5 +1,8 @@
 ### SB 9.7.4
 
+> त्रसद्दस्युः पौरुकुत्सो योऽनरण्यस्य देहकृत
+> हर्यश्वस्तत्सुतस्तस्मात्प्रारुणोऽथ त्रिबन्धनः ॥४॥
+
 > trasaddasyuḥ paurukutso
 > yo 'naraṇyasya deha-kṛt
 > haryaśvas tat-sutas tasmāt

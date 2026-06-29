@@ -1,5 +1,8 @@
 ### CC Madhya 16.220
 
+> নীলাম্বর চক্রবর্তী — আরাধ্য দুঁহার ।
+> চক্রবর্তী করে দুঁহায় ‘ভ্রাতৃ’-ব্যবহার ॥২২০॥
+
 nīlāmbara cakravartī--ārādhya duṅhāra
 
 cakravartī kare duṅhāya 'bhrātṛ'-vyavahāra

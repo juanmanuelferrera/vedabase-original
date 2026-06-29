@@ -1,5 +1,8 @@
 ### CC Madhya 18.83
 
+> ‘কেশী’ স্নান করি’ সেই ‘কালীয়দহ’ যাইতে ।
+> আম্লি-তলায় গোসাঞিরে দেখে আচম্বিতে ॥৮৩॥
+
 'keśī' snāna kari' sei 'kālīya-daha' yāite
 
 āmli-talāya gosāñire dekhe ācambite

@@ -1,5 +1,10 @@
 ### SB 5.17.24
 
+> यन्निर्मितां कर्ह्यपि कर्मपर्वणीं
+> मायां जनो ऽयं गुणसर्गमोहितः
+> न वेद निस्तारणयोगमञ्जसा
+> तस्मै नमस्ते विलयोदयात्मने ॥२४॥
+
 > yan-nirmitāṁ karhy api karma-parvaṇīṁ
 > māyāṁ jano 'yaṁ guṇa-sarga-mohitaḥ
 > na veda nistāraṇa-yogam añjasā

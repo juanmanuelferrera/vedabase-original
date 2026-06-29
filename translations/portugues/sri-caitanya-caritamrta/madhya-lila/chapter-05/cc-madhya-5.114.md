@@ -1,5 +1,8 @@
 ### CC Madhya 5.114
 
+> দুঁহার সত্যে তুষ্ট হইলাঙ, দুঁহে মাগ’ বর ।”
+> দুইবিপ্র বর মাগে আনন্দ-অন্তর ॥১১৪॥
+
 duṅhāra satye tuṣṭa ha-ilāṅ, duṅhe māga' vara"
 dui-vipra vara māge ānanda-antara
 

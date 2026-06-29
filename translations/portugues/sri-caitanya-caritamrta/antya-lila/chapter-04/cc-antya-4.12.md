@@ -1,5 +1,8 @@
 ### CC Antya 4.12
 
+> মহাপ্রভুর আগে, আর দেখি’ জগন্নাথ ।
+> রথে দেহ ছাড়িমু, — এই পরম-পুরুষার্থ ।।’ ॥ ১২ ॥
+
 mahāprabhura āge, āra dekhi' jagannātha
 rathe deha chāḍimu,--ei parama-puruṣārtha'
 

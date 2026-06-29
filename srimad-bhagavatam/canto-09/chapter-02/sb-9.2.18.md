@@ -1,5 +1,8 @@
 ### SB 9.2.18
 
+> वसोः प्रतीकस्तत्पुत्र ओघवानोघवत्पिता
+> कन्या चौघवती नाम सुदर्शन उवाह ताम ॥१८॥
+
 > vasoḥ pratīkas tat-putra
 > oghavān oghavat-pitā
 > kanyā caughavatī nāma

@@ -1,5 +1,8 @@
 ### CC Adi 17.316
 
+> তহিঁ মধ্যে প্রেমদান — ‘বিশেষ’ কারণ ।
+> যুগধর্ম — কৃষ্ণনাম-প্রেম-প্রচারণ ॥৩১৬॥
+
 > tahiṅ madhye prema-dāna--'viśeṣa' kāraṇa
 > yuga-dharma--kṛṣṇa-nāma-prema-pracāraṇa
 

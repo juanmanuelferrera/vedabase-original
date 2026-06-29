@@ -1,5 +1,8 @@
 ### CC Antya 8.12
 
+> ভিক্ষা করি’ কহে পুরী, — “শুন, জগদানন্দ ।
+> অবশেষ প্রসাদ তুমি করহ ভক্ষণ ।।” ॥ ১২ ॥
+
 > bhikṣā kari' kahe purī,--"śuna, jagadānanda
 > avaśeṣa prasāda tumi karaha bhakṣaṇa"
 

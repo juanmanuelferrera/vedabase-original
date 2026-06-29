@@ -1,5 +1,8 @@
 ### CC Madhya 13.38
 
+> অদ্বৈতেরে নৃত্য করিবারে আজ্ঞা দিল ।
+> শ্রীবাস — প্রধান আর সম্প্রদায় কৈল ॥৩৮॥
+
 advaitere nṛtya karibāre ājñā dila
 
 śrīvāsa-pradhāna āra sampradāya kaila

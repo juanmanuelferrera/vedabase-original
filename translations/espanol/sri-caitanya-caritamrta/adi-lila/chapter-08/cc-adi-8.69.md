@@ -1,5 +1,8 @@
 ### CC Adi 8.69
 
+> তাঁর শিষ্য — গোবিন্দ পূজক চৈতন্যদাস ।
+> মুকুন্দানন্দ চক্রবর্তী, প্রেমী কৃষ্ণদাস ॥৬৯॥
+
 > tāṅra śiṣya--govinda pūjaka caitanya-dāsa
 > mukundānanda cakravartī, premī kṛṣṇadāsa
 

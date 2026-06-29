@@ -1,5 +1,8 @@
 ### CC Madhya 9.124
 
+> শ্রুতি পায়, লক্ষ্মী না পায়, ইথে কি কারণ ।
+> ভট্ট কহে, — ইহা প্রবেশিতে নারে মোর মন ॥১২৪॥
+
 > śruti pāya, lakṣmī nā pāya, ithe ki kāraṇa
 > bhaṭṭa kahe,—ihā praveśite nāre mora mana
 

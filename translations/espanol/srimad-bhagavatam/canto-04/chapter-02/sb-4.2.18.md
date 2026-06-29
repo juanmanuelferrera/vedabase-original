@@ -1,5 +1,8 @@
 ### SB 4.2.18
 
+> अयं तु देवयजन इन्द्रोपेन्द्रादिभिर्भवः ।
+> सह भागं न लभतां देवैर्देवगणाधमः ॥१८॥
+
 > ayaṁ tu deva-yajana
 > indropendrādibhir bhavaḥ
 > saha bhāgaṁ na labhatāṁ

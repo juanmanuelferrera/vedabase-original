@@ -1,5 +1,8 @@
 ### SB 7.2.56
 
+> एवं कुलिङ्गं विलपन्तमारात्प्रियावियोगातुरमश्रुकण्ठम
+> स एव तं शाकुनिकः शरेण विव्याध कालप्रहितो विलीनः ॥५६॥
+
 > evaṁ kuliṅgaṁ vilapantam ārāt
 > priyā-viyogāturam aśru-kaṇṭham
 > sa eva taṁ śākunikaḥ śareṇa

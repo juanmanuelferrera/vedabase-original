@@ -1,5 +1,8 @@
 ### CC Madhya 19.205
 
+> তং মত্বাত্মজমব্যক্তং মর্ত্যলিঙ্গমধোক্ষজম্ ।
+> গোপিকোলূখলে দাম্না ববন্ধ প্রাকৃতং যথা ॥২০৫॥
+
 > taṁ matvātmajam avyaktaṁ
 > martya-liṅgam adhokṣajam
 > gopikolūkhale dāmnā

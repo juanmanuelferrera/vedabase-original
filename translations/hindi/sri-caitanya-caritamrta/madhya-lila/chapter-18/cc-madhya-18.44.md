@@ -1,5 +1,8 @@
 ### CC Madhya 18.44
 
+> কভু কুঞ্জে রহে, কভু রহে গ্রামান্তরে ।
+> সেই ভক্ত, তাহাঁ আসি’ দেখয়ে তাঁহারে ॥৪৪॥
+
 > kabhu kuñje rahe, kabhu rahe grāmāntare
 > sei bhakta, tāhāṅ āsi' dekhaye tāṅhāre
 

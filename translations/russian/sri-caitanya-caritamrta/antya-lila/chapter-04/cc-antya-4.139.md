@@ -1,5 +1,8 @@
 ### CC Antya 4.139
 
+> অপরাধ হয় মোর, নাহিক নিস্তার ।
+> জগন্নাথেহ না দেখিয়ে, — এ দুঃখ অপার ॥১৩৯॥
+
 > aparādha haya mora, nāhika nistāra
 > jagannātheha nā dekhiye,—e duḥkha apāra
 

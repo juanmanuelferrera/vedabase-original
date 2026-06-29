@@ -1,5 +1,8 @@
 ### CC Madhya 1.6
 
+> জয় জয় গৌরচন্দ্র জয় কৃপাসিন্ধু ।
+> জয় জয় শচীসুত জয় দীনবন্ধু ॥৬॥
+
 > jaya jaya gauracandra jaya kṛpā-sindhu
 > jaya jaya śacī-suta jaya dīna-bandhu
 

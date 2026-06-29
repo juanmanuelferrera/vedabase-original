@@ -1,5 +1,8 @@
 ### CC Madhya 9.139
 
+> তাঁহার ভজন সর্বোপরি-কক্ষা হয় ।
+> ‘শ্রী-বৈষ্ণবে’র ভজন এই সর্বোপরি হয় ॥১৩৯॥
+
 > tāṅhāra bhajana sarvopari-kakṣā haya
 > śrī-vaiṣṇave'ra bhajana ei sarvopari haya
 

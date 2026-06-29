@@ -1,5 +1,7 @@
 ### SB 5.25.6
 
+> स एव भगवाननन्तोऽनन्तगुणार्णव आदिदेव उपसंहृतामर्षरोषवेगो लोकानां स्वस्तयआस्ते ॥६॥
+
 > sa eva bhagavān ananto 'nanta-guṇārṇava ādi-deva upasaṁhṛtāmarṣa-roṣa-vego lokānāṁ svastaya āste.
 
 *saḥ*—ese; *eva*—ciertamente; *bhagavān*—la Suprema Personalidad de Dios; *anantaḥ*—Anantadeva; *ananta-guṇa-arṇavaḥ*—el receptáculo de ilimitadas cualidades trascendentales; *ādi-devaḥ*—el Señor original, o no diferente de la Suprema Personalidad de Dios original; *upasaṁhṛta*—que ha contenido; *amarṣa*—de Su intolerancia; *roṣa*—e ira; *vegaḥ*—la fuerza; *lokānām*—de todos los habitantes de todos los planetas; *svastaye*—para el bien; *āste*—permanece.

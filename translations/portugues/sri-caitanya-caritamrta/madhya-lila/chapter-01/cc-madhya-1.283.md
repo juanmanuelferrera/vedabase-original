@@ -1,5 +1,8 @@
 ### CC Madhya 1.283
 
+> রঘুনাথ-দাস নিত্যানন্দ-পাশে গেলা ।
+> চিড়া-দধি-মহোৎসব তাহাঁই করিলা ॥২৮৩॥
+
 raghunātha-dāsa nityānanda-pāśe gelā
 
 ciḍā-dadhi-mahotsava tāhāṅi karilā

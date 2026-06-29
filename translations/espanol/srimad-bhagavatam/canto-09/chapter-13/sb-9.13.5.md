@@ -1,5 +1,8 @@
 ### SB 9.13.5
 
+> निमिः प्रतिददौ शापं गुरवेऽधर्मवर्तिने
+> तवापि पतताद्देहो लोभाद्धर्ममजानतः ॥५॥
+
 > nimiḥ pratidadau śāpaṁ
 > gurave 'dharma-vartine
 > tavāpi patatād deho

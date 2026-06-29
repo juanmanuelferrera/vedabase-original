@@ -1,5 +1,10 @@
 ### SB 2.7.16
 
+> श्रुत्वा हरिस्तमरणार्थिनमप्रमेयश्
+> चक्रायुधः पतगराजभुजाधिरूढः ।
+> चक्रेण नक्रवदनं विनिपाट्य तस्माद्
+> धस्ते प्रगृह्य भगवान्कृपयोज्जहार ॥१६॥
+
 > śrutvā haris tam araṇārthinam aprameyaś
 > cakrāyudhaḥ patagarāja-bhujādhirūḍhaḥ
 > cakreṇa nakra-vadanaṁ vinipāṭya tasmād

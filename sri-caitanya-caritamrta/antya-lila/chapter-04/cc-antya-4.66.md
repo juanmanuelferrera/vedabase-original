@@ -1,5 +1,8 @@
 ### CC Antya 4.66
 
+> নীচ-জাতি নহে কৃষ্ণভজনে অযোগ্য ।
+> সৎকুল-বিপ্র নহে ভজনের যোগ্য ॥৬৬॥
+
 > nīca-jāti nahe kṛṣṇa-bhajane ayogya
 > sat-kula-vipra nahe bhajanera yogya
 

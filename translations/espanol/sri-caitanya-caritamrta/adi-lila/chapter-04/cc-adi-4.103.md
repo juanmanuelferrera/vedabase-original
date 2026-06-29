@@ -1,5 +1,8 @@
 ### CC Adi 4.103
 
+> অবতারের আর এক আছে মুখ্যবীজ ।
+> রসিকশেখর কৃষ্ণের সেই কার্য নিজ ॥১০৩॥
+
 > avatārera āra eka āche mukhya-bīja
 > rasika-śekhara kṛṣṇera sei kārya nija
 

@@ -1,5 +1,8 @@
 ### CC Adi 10.96
 
+> তবে দুই ভাই তাঁরে মরিতে না দিল ।
+> নিজ তৃতীয় ভাই করি’ নিকটে রাখিল ॥৯৬॥
+
 > tabe dui bhāi tāṅre marite nā dila
 > nija tṛtīya bhāi kari' nikaṭe rākhila
 

@@ -1,5 +1,8 @@
 ### CC Adi 13.86
 
+> এত বলি’ দুঁহে রহে হরষিত হঞা ।
+> শালগ্রাম সেবা করে বিশেষ করিয়া ॥৮৬॥
+
 > eta bali' duṅhe rahe haraṣita hañā
 > śālagrāma sevā kare viśeṣa kariyā
 

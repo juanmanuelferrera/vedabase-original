@@ -1,5 +1,8 @@
 ### CC Madhya 15.220
 
+> দুই পাশে সুগন্ধি শীতল জল-ঝারী  ।
+> অন্ন-ব্যঞ্জনোপরি দিল তুলসী-মঞ্জরী ॥২২০॥
+
 dui pāśe sugandhi śītala jala-jhārī
 
 anna-vyañjanopari dila tulasī-mañjarī

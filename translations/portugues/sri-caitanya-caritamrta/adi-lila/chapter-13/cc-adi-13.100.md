@@ -1,5 +1,10 @@
 ### CC Adi 13.100
 
+> দেখি’ উপরাগ হাসি’, শীঘ্র গঙ্গাঘাটে আসি’,
+> আনন্দে করিল গঙ্গাস্নান ।
+> পাঞা উপরাগ-ছলে, আপনার মনোবলে,
+> ব্রাহ্মণেরে দিল নানা দান ॥১০০॥
+
 dekhi' uparāga hāsi', śīghra gaṅgā-ghāṭe āsi'
 ānande karila gaṅgā-snāna
 pāñā uparāga-chale, āpanāra mano-bale,

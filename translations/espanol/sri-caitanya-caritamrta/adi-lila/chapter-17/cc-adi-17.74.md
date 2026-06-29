@@ -1,5 +1,8 @@
 ### CC Adi 17.74
 
+> সগণে সচেলে গিয়া কৈল গঙ্গাস্নান ।
+> ভক্তির মহিমা তাহাঁ করিল ব্যাখ্যান ॥৭৪॥
+
 > sagaṇe sacele giyā kaila gaṅgā-snāna
 > bhaktira mahimā tāhāṅ karila vyākhyāna
 

@@ -1,5 +1,8 @@
 ### CC Adi 7.105
 
+> তোমার প্রভাবে সবার আনন্দিত মন ।
+> কভু অসঙ্গত নহে তোমার বচন ॥১০৫॥
+
 tomāra prabhāve sabāra ānandita mana
 
 kabhu asaṅgata nahe tomāra vacana

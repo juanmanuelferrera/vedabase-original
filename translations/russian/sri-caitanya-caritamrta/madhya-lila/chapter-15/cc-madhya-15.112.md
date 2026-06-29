@@ -1,5 +1,8 @@
 ### CC Madhya 15.112
 
+> খণ্ডের মুকুন্দদাস, শ্রীরঘুনন্দন ।
+> শ্রীনরহরি, — এই মুখ্য তিন জন ॥১১২॥
+
 > khaṇḍera mukunda-dāsa, śrī-raghunandana
 > śrī-narahari,—ei mukhya tina jana
 

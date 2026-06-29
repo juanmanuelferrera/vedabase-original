@@ -1,5 +1,10 @@
 ### CC Madhya 22.52
 
+> রহূগণৈতত্তপসা ন যাতি
+> ন চেজ্যয়া নির্বপণাদ্গৃহাদ্বা ।
+> ন চ্ছন্দসা নৈব জলাগ্নিসূর্যৈ-
+> র্বিনা মহৎপাদরজোঽভিষেকম্ ॥৫২॥
+
 > rahūgaṇaitat tapasā na yāti
 > na cejyayā nirvapaṇād gṛhād vā
 > na cchandasā naiva jalāgni-sūryair

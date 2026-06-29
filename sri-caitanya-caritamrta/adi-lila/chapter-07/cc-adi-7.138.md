@@ -1,5 +1,8 @@
 ### CC Adi 7.138
 
+> বৃহদ্বস্তু ‘ব্রহ্ম’ কহি — ‘শ্রীভগবান্’ ।
+> ষড়্বিধৈশ্বর্যপূর্ণ, পরতত্ত্বধাম ॥১৩৮॥
+
 > bṛhad-vastu 'brahma' kahi—'śrī-bhagavān'
 > ṣaḍ-vidhaiśvarya-pūrṇa, para-tattva-dhāma
 

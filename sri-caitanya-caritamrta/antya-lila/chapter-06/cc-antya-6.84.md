@@ -1,5 +1,8 @@
 ### CC Antya 6.84
 
+> আসন দিয়া মহাপ্রভুরে তাহাঁ বসাইলা ।
+> দুই ভাই তবে চিড়া খাইতে লাগিলা ॥৮৪॥
+
 > āsana diyā mahāprabhure tāhāṅ vasāilā
 > dui bhāi tabe ciḍā khāite lāgilā
 

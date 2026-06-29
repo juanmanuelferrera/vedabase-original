@@ -1,5 +1,8 @@
 ### CC Adi 4.4
 
+> মূল-শ্লোকের অর্থ করিতে প্রকাশ ।
+> অর্থ লাগাইতে আগে কহিয়ে আভাস ॥৪॥
+
 mūla-ślokera artha karite prakāśa
 artha lāgāite āge kahiye ābhāsa
 

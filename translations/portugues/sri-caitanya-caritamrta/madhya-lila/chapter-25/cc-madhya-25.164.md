@@ -1,5 +1,8 @@
 ### CC Madhya 25.164
 
+> এত কহি’ উঠিয়া চলিলা গৌরহরি ৷
+> নমস্কার করে লোক হরিধ্বনি করি ৷৷ ১৬৪ ৷৷ ॥১৬৪॥
+
 eta kahi' uṭhiyā calilā gaurahari
 
 namaskāra kare loka hari-dhvani kari

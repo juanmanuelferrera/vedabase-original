@@ -1,5 +1,8 @@
 ### SB 3.26.7
 
+> तदस्य संसृतिर्बन्धः पारतन्त्र्यं च तत्कृतम् ।
+> भवत्यकर्तुरीशस्य साक्षिणो निर्वृतात्मनः ॥७॥
+
 > tad asya saṁsṛtir bandhaḥ
 > pāra-tantryaṁ ca tat-kṛtam
 > bhavaty akartur īśasya

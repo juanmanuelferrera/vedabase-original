@@ -1,5 +1,8 @@
 ### SB 6.14.30
 
+> सापि तत्प्राशनादेव चित्रकेतोरधारयत
+> गर्भं कृतद्युतिर्देवी कृत्तिकाग्नेरिवात्मजम ॥३०॥
+
 > sāpi tat-prāśanād eva
 > citraketor adhārayat
 > garbhaṁ kṛtadyutir devī

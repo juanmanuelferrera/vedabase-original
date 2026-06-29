@@ -1,5 +1,8 @@
 ### CC Madhya 9.172
 
+> তোমার নিকটে রহি, — হেন বাঞ্ছা হয় ।
+> নীলাচলে আসিবে মোরে হঞা সদয় ॥১৭২॥
+
 > tomāra nikaṭe rahi,--hena vāñchā haya
 > nīlācale āsibe more hañā sadaya
 

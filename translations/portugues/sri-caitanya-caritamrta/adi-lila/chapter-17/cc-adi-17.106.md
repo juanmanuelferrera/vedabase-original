@@ -1,5 +1,8 @@
 ### CC Adi 17.106
 
+> পরমতত্ত্ব, পরব্রহ্ম, পরম-ঈশ্বর ।
+> দেখি’ প্রভুর মূর্তি সর্বজ্ঞ হইল ফাঁফর ॥১০৬॥
+
 parama-tattva, para-brahma, parama-īśvara
 dekhi' prabhura mūrti sarva-jña ha-ila phāṅphara
 

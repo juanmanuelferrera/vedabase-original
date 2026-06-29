@@ -1,5 +1,8 @@
 ### SB 4.19.15
 
+> वधान्निवृत्तं तं भूयो हन्तवेऽत्रिरचोदयत् ।
+> जहि यज्ञहनं तात महेन्द्रं विबुधाधमम् ॥१५॥
+
 > vadhān nivṛttaṁ taṁ bhūyo
 > hantave 'trir acodayat
 > jahi yajña-hanaṁ tāta

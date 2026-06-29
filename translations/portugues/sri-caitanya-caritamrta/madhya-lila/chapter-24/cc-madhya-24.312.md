@@ -1,5 +1,8 @@
 ### CC Madhya 24.312
 
+> ‘একষষ্টি’ অর্থ এবে স্ফুরিল তোমা-সঙ্গে ।
+> তোমার ভক্তিবশে উঠে অর্থের তরঙ্গে ॥৩১২॥
+
 'eka-ṣaṣṭi' artha ebe sphurila tomā-saṅge
 
 tomāra bhakti-vaśe uṭhe arthera taraṅge

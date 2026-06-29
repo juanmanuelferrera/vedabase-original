@@ -1,5 +1,8 @@
 ### CC Antya 14.7
 
+> স্বরূপ-গোসাঞি আর রঘুনাথ-দাস ।
+> এই দুইর কড়চাতে এ-লীলা প্রকাশ ॥৭॥
+
 > svarūpa-gosāñi āra raghunātha-dāsa
 > ei duira kaḍacāte e-līlā prakāśa
 

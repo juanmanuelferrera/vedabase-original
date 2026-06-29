@@ -1,5 +1,10 @@
 ### SB 4.9.17
 
+> सत्याशिषो हि भगवंस्तव पादपद्मम्
+> आशीस्तथानुभजतः पुरुषार्थमूर्तेः ।
+> अप्येवमर्य भगवान्परिपाति दीनान्
+> वाश्रेव वत्सकमनुग्रहकातरोऽस्मान् ॥१७॥
+
 > satyāśiṣo hi bhagavaṁs tava pāda-padmam
 > āśīs tathānubhajataḥ puruṣārtha-mūrteḥ
 > apy evam arya bhagavān paripāti dīnān

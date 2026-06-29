@@ -1,5 +1,8 @@
 ### CC Antya 6.75
 
+> গোপ-জাতি আমি বহু গোপগণ সঙ্গে ।
+> আমি সুখ পাই এই পুলিনভোজন-রঙ্গে ।।” ॥ ৭৫ ॥
+
 gopa-jāti āmi bahu gopa-gaṇa saṅge
 
 āmi sukha pāi ei pulina-bhojana-raṅge"

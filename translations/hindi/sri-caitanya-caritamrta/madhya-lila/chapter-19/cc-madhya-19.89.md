@@ -1,5 +1,8 @@
 ### CC Madhya 19.89
 
+> ভট্টাচার্য শ্রীরূপে দেওয়াইল ‘অবশেষ’ ।
+> তবে সেই প্রসাদ কৃষ্ণদাস পাইল শেষ ॥৮৯॥
+
 > bhaṭṭācārya śrī-rūpe deoyāila 'avaśeṣa'
 > tabe sei prasāda kṛṣṇadāsa pāila śeṣa
 

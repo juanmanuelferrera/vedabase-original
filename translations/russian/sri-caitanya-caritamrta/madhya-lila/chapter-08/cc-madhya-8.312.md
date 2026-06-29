@@ -1,5 +1,8 @@
 ### CC Madhya 8.312
 
+> দামোদর-স্বরূপের কড়চা-অনুসারে ।
+> রামানন্দ-মিলন-লীলা করিল প্রচারে ॥৩১২॥
+
 > dāmodara-svarūpera kaḍacā-anusāre
 > rāmānanda-milana-līlā karila pracāre
 

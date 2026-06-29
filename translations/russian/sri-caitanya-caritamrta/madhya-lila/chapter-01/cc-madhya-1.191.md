@@ -1,5 +1,8 @@
 ### CC Madhya 1.191
 
+> পতিত-পাবন-হেতু তোমার অবতার ।
+> আমা-বই জগতে, পতিত নাহি আর ॥১৯১॥
+
 > patita-pāvana-hetu tomāra avatāra
 > āmā-ba-i jagate, patita nāhi āra
 

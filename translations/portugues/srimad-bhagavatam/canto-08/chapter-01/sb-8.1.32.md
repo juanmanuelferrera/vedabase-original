@@ -1,5 +1,8 @@
 ### SB 8.1.32
 
+> तत्कथासु महत्पुण्यं धन्यं स्वस्त्ययनं शुभम
+> यत्र यत्रोत्तमश्लोको भगवान्गीयते हरिः ॥३२॥
+
 *tat*-kathāsu mahat puṇyaṁ
 dhanyaṁ svastyayanaṁ śubham
 yatra yatrottamaśloko

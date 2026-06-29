@@ -1,5 +1,8 @@
 ### CC Madhya 20.167
 
+> ‘প্রাভব-বৈভব’-রূপে দ্বিবিধ প্রকাশে ।
+> এক-বপু বহু রূপ যৈছে হৈল রাসে ॥১৬৭॥
+
 'prābhava-vaibhava'-rūpe dvividha prakāśe
 
 eka-vapu bahu rūpa yaiche haila rāse

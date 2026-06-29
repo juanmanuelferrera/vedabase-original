@@ -1,5 +1,8 @@
 ### CC Madhya 15.47
 
+> এই বস্ত্র মাতাকে দিহ’, এই সব প্রসাদ  ।
+> দণ্ডবৎ করি’ আমার ক্ষমাইহ অপরাধ ॥৪৭॥
+
 > ei vastra mātāke diha', ei saba prasāda
 > daṇḍavat kari' āmāra kṣamāiha aparādha
 

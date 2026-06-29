@@ -1,5 +1,8 @@
 ### SB 6.3.2
 
+> यमस्य देवस्य न दण्डभङ्गः कुतश्चनर्षे श्रुतपूर्व आसीत
+> एतन्मुने वृश्चति लोकसंशयं न हि त्वदन्य इति मे विनिश्चितम ॥२॥
+
 > yamasya devasya na daṇḍa-bhaṅgaḥ
 > kutaścanarṣe śruta-pūrva āsīt
 > etan mune vṛścati loka-saṁśayaṁ

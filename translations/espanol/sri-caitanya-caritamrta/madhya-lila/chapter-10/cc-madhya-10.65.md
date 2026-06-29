@@ -3,6 +3,9 @@
 > ebe āmi ihāṅ āni' karilāṅa vidāya
 > yāhāṅ icchā, yāha, āmā-sane nāhi āra dāya
 
+> ebe āmi ihāṅ āni' karilāṅa vidāya
+> yāhāṅ icchā, yāha, āmā-sane nāhi āra dāya
+
 *ebe*—ahora; *āmi*—Yo; *ihāṅ*—aquí; *āni'*—trayéndolo; *karilāṅa vidāya*—le he pedido que se marche; *yāhāṅ icchā*—adonde le plazca; *yāha*—ve; *āmā-sane*—Conmigo; *nāhi āra*—ya no hay más; *dāya*—responsabilidad.
 
 **»Ahora que lo he traído aquí, le pido que se marche. Que vaya adonde le plazca, pues Yo ya no soy responsable de él».**

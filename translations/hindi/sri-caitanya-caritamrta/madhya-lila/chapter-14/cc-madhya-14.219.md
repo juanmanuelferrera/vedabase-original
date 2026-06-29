@@ -1,5 +1,8 @@
 ### CC Madhya 14.219
 
+> বৃন্দাবনে সাহজিক যে সম্পৎসিন্ধু ।
+> দ্বারকা-বৈকুণ্ঠ-সম্পত্ — তার এক বিন্দু ॥২১৯॥
+
 > vṛndāvane sāhajika ye sampat-sindhu
 > dvārakā-vaikuṇṭha-sampat-tāra eka bindu
 

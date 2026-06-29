@@ -1,5 +1,8 @@
 ### CC Antya 7.113
 
+> “ভাগবতে স্বামীর ব্যাখ্যান কৈরাছি খণ্ডন  ।
+> লইতে না পারি তাঁর ব্যাখ্যান-বচন ॥১১৩॥
+
 "bhāgavate svāmīra vyākhyāna kairāchi khaṇḍana
 
 la-ite nā pāri tāṅra vyākhyāna-vacana

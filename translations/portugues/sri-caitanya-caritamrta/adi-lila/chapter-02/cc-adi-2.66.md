@@ -1,5 +1,8 @@
 ### CC Adi 2.66
 
+> এই শ্লোকের অর্থে তুমি হৈলা নির্বচন ।
+> আর এক শুন ভাগবতের বচন ॥৬৬॥
+
 ei ślokera arthe tumi hailā nirvacana
 āra eka śuna bhāgavatera vacana
 

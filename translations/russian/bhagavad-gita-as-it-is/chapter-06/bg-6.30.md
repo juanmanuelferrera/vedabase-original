@@ -1,5 +1,8 @@
 ### Bg 6.30
 
+> यो मां पश्यति सर्वत्र सर्वं च मयि पश्यति ।
+> तस्याहं न प्रणश्यामि स च मे न प्रणश्यति ॥३०॥
+
 > yo māṁ paśyati sarvatra
 > sarvaṁ ca mayi paśyati
 > tasyāhaṁ na praṇaśyāmi

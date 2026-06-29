@@ -1,5 +1,8 @@
 ### CC Madhya 15.66
 
+> এই বিজয়া-দশমীতে হৈল এই রীতি ৷
+> তাঁহাকে পুছিয়া তাঁর করাইহ প্ৰতীতি ॥৬৬॥
+
 > ei vijayā-daśamīte haila ei rīti
 > tāṅhāke puchiyā tāṅra karāiha pratīti
 

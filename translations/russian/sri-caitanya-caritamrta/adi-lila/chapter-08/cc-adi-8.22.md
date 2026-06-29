@@ -1,5 +1,8 @@
 ### CC Adi 8.22
 
+> অদ্যাপিহ দেখ চৈতন্য-নাম যেই লয় ।
+> কৃষ্ণ-প্রেমে পুলকাশ্রু-বিহ্বল সে হয় ॥২২॥
+
 > adyāpiha dekha caitanya-nāma yei laya
 > kṛṣṇa-preme pulakāśru-vihvala se haya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 9.340
 
+> জগদানন্দ, দামোদর-পণ্ডিত, মুকুন্দ ৷
+> নাচিয়া চলিলা, দেহে না ধরে আনন্দ ৷৷ ৩৪০ ৷৷ ॥৩৪০॥
+
 > jagadānanda, dāmodara-paṇḍita, mukunda
 > nāciyā calilā, dehe nā dhare ānanda
 

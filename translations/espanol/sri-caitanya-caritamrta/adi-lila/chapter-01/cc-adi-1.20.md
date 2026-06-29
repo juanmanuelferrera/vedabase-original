@@ -1,5 +1,8 @@
 ### CC Adi 1.20
 
+> গ্রন্থের আরম্ভে করি ‘মঙ্গলাচরণ’ ।
+> গুরু, বৈষ্ণব, ভগবান্ — তিনের স্মরণ ॥২০॥
+
 > granthera ārambhe kari 'maṅgalācaraṇa'
 > guru, vaiṣṇava, bhagavān,--tinera smaraṇa
 

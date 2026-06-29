@@ -1,5 +1,8 @@
 ### CC Antya 19.74
 
+> তাঁর ভয়ে নারেন প্রভু বাহিরে যাইতে ।
+> তাঁর ভয়ে নারেন ভিত্ত্যে মুখাব্জ ঘষিতে ॥৭৪॥
+
 > tāṅra bhaye nārena prabhu bāhire yāite
 > tāṅra bhaye nārena bhittye mukhābja ghaṣite
 

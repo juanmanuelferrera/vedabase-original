@@ -1,5 +1,8 @@
 ### CC Madhya 4.102
 
+> এক এক ব্রজবাসী এক এক গাভী দিল ।
+> সহস্র সহস্র গাভী গোপালের হৈল ॥১০২॥
+
 > eka eka vraja-vāsī eka eka gābhī dila
 > sahasra sahasra gābhī gopālera haila
 

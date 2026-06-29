@@ -1,5 +1,8 @@
 ### CC Antya 4.126
 
+> সিংহদ্বারে যাইতে মোর নাহি অধিকার ।
+> বিশেষে — ঠাকুরের তাহাঁ সেবকের প্রচার ॥১২৬॥
+
 siṁha-dvāre yāite mora nāhi adhikāra
 
 viśeṣe--ṭhākurera tāhāṅ sevakera pracāra

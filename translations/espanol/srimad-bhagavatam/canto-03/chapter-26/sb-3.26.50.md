@@ -1,5 +1,8 @@
 ### SB 3.26.50
 
+> एतान्यसंहत्य यदा महदादीनि सप्त वै ।
+> कालकर्मगुणोपेतो जगदादिरुपाविशत् ॥५०॥
+
 > etāny asaṁhatya yadā
 > mahad-ādīni sapta vai
 > kāla-karma-guṇopeto

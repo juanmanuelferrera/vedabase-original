@@ -1,5 +1,10 @@
 ### CC Antya 1.108
 
+> ভৃত্যস্য পশ্যতি গুরূনপি নাপরাধান্
+> সেবাং মনাগপি কৃতাং বহুধাভ্যুপৈতি ।
+> আবিষ্করোতি পিশুনেষ্বপি নাভ্যসূয়াং
+> শীলেন নির্মলমতিঃ পুরুষোত্তমোঽয়ম্ ॥১০৮॥
+
 > bhṛtyasya paśyati gurūn api nāparādhān
 > sevāṁ manāg api kṛtāṁ bahudhābhyupaiti
 > āviṣkaroti piśuneṣv api nābhyasūyāṁ

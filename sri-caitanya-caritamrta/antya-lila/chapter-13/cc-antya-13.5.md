@@ -1,5 +1,8 @@
 ### CC Antya 13.5
 
+> কলার শরলাতে, শয়ন, অতি ক্ষীণ কায় ।
+> শরলাতে হাড় লাগে, ব্যথা হয় গায় ॥৫॥
+
 > kalāra śaralāte, śayana, ati kṣīṇa kāya
 > śaralāte hāḍa lāge, vyathā haya gāya
 

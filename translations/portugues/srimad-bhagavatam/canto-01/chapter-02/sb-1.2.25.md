@@ -1,5 +1,8 @@
 ### SB 1.2.25
 
+> भेजिरे मुनयोऽथाग्रे भगवन्तमधोक्षजम् ।
+> सत्त्वं विशुद्धं क्षेमाय कल्पन्ते येऽनु तानिह ॥२५॥
+
 bhejire munayo 'thāgre
 bhagavantam adhokṣajam
 sattvaṁ viśuddhaṁ kṣemāya

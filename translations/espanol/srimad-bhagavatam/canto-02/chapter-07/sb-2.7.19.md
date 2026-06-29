@@ -1,5 +1,10 @@
 ### SB 2.7.19
 
+> तुभ्यं च नारद भृशं भगवान्विवृद्ध
+> भावेन साधु परितुष्ट उवाच योगम् ।
+> ज्ञानं च भागवतमात्मसतत्त्वदीपं
+> यद्वासुदेवशरणा विदुरञ्जसैव ॥१९॥
+
 > tubhyaṁ ca nārada bhṛśaṁ bhagavān vivṛddha-
 > bhāvena sādhu parituṣṭa uvāca yogam
 > jñānaṁ ca bhāgavatam ātma-satattva-dīpaṁ

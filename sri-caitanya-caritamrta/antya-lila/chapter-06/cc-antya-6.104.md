@@ -1,5 +1,8 @@
 ### CC Antya 6.104
 
+> নিত্যানন্দের নৃত্য, — যেন তাঁহার নর্তনে ।
+> উপমা দিবার নাহি এ-তিন ভুবনে ॥১০৪॥
+
 > nityānandera nṛtya,—yena tāṅhāra nartane
 > upamā dibāra nāhi e-tina bhuvane
 

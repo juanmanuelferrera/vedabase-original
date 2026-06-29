@@ -1,5 +1,7 @@
 ### SB 5.9.12
 
+> अथ कदाचित्कश्चिद्वृषलपतिर्भद्रकाल्यै पुरुषपशुमालभतापत्यकामः ॥१२॥
+
 *atha kadācit kaścid vṛṣala*-patir bhadra-kālyai puruṣa-paśum ālabhatāpatya-kāmaḥ.
 
 *atha*—em seguida; *kadācit*—em certa ocasião; *kaścit*—certo; *vṛṣala-patiḥ*—o líder dos śūdras dedicados a saquear a propriedade alheia; *bhadra-kālyai*—à deusa conhecida como Bhadra Kālī; *puruṣa-paśum*—um animal em forma de homem; *ālabhata*—começou a sacrificar; *apatya-kāmaḥ*—desejando um filho.

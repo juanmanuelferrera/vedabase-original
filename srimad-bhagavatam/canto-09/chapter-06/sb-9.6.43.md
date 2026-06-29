@@ -1,5 +1,8 @@
 ### SB 9.6.43
 
+> मुनिः प्रवेशितः क्षत्रा कन्यान्तःपुरमृद्धिमत
+> वृतः स राजकन्याभिरेकं पञ्चाशता वरः ॥४३॥
+
 > muniḥ praveśitaḥ kṣatrā
 > kanyāntaḥpuram ṛddhimat
 > vṛtaḥ sa rāja-kanyābhir

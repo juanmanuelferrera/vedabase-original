@@ -1,5 +1,7 @@
 ### SB 5.14.23
 
+> अथ च तस्मादुभयथापि हि कर्मास्मिन्नात्मनः संसारावपनमुदाहरन्ति ॥२३॥
+
 > atha ca tasmād ubhayathāpi hi karmāsminn ātmanaḥ saṁsārāvapanam udāharanti.
 
 *atha*—ahora; *ca*—y; *tasmāt*—debido a esto; *ubhayathā api*—tanto en esta vida como en la siguiente; *hi*—indudablemente; *karma*—actividades fruitivas; *asmin*—en este sendero del disfrute de los sentidos; *ātmanaḥ*—de la entidad viviente; *saṁsāra*—de la vida material; *āvapanam*—el campo de cultivo, o la fuente; *udāharanti*—las autoridades en los *Vedas*dicen.

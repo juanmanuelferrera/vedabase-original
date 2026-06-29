@@ -1,5 +1,8 @@
 ### CC Antya 7.11
 
+> কলিকালের ধর্ম — কৃষ্ণনাম-সঙ্কীর্তন ।
+> কৃষ্ণ-শক্তি বিনা নহে তার প্রবর্তন ॥১১॥
+
 > kali-kālera dharma—kṛṣṇa-nāma-saṅkīrtana
 > kṛṣṇa-śakti vinā nahe tāra pravartana
 

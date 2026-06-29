@@ -1,5 +1,8 @@
 ### CC Madhya 3.42
 
+> তিন ঠাঞি ভোগ বাড়াইল সম করি’ ।
+> কৃষ্ণের ভোগ বাড়াইল ধাতু-পাত্রোপরি ॥৪২॥
+
 tina ṭhāñi bhoga bāḍāila sama kari'
 kṛṣṇera bhoga bāḍāila dhātu-pātropari
 

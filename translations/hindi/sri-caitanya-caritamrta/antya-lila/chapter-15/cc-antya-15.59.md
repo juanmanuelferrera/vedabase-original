@@ -1,5 +1,8 @@
 ### CC Antya 15.59
 
+> পূর্ববৎ সবে মিলি’ করাইলা চেতন ।
+> উঠিয়া চৌদিকে প্রভু করেন দর্শন ॥৫৯॥
+
 > pūrvavat sabe mili' karāilā cetana
 > uṭhiyā caudike prabhu karena darśana
 

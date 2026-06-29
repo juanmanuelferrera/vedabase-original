@@ -1,5 +1,8 @@
 ### CC Adi 3.102
 
+> আনিয়া কৃষ্ণেরে করোঁ কীর্তন সঞ্চার ।
+> তবে সে ‘অদ্বৈত’ নাম সফল আমার ॥১০২॥
+
 > āniyā kṛṣṇere karoṅ kīrtana sañcāra
 > tabe se 'advaita' nāma saphala āmāra
 

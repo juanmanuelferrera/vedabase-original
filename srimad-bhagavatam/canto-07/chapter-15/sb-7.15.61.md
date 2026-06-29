@@ -1,5 +1,8 @@
 ### SB 7.15.61
 
+> स्यात्सादृश्यभ्रमस्तावद्विकल्पे सति वस्तुनः
+> जाग्रत्स्वापौ यथा स्वप्ने तथा विधिनिषेधता ॥६१॥
+
 > syāt sādṛśya-bhramas tāvad
 > vikalpe sati vastunaḥ
 > jāgrat-svāpau yathā svapne

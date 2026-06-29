@@ -1,5 +1,7 @@
 ### SB 5.4.9
 
+> येषां खलु महायोगी भरतो ज्येष्ठः श्रेष्ठगुण आसीद्येनेदंवर्षं भारतमिति व्यपदिशन्ति ॥९॥
+
 *yeṣāṁ khalu mahā*-yogī bharato jyeṣṭhaḥ śreṣṭha-guṇa āsīd yenedaṁ varṣaṁ bhāratam iti vyapadiśanti.
 
 *yeṣām*—dos quais; *khalu*—de fato; *mahā-yogī*—um devoto altamente exaltado do Senhor; *bharataḥ*—Bharata; *jyeṣṭhaḥ*—o mais velho; *śreṣṭha-guṇaḥ*—qualificado com os melhores atributos; *āsīt*—era; *yena*—por quem; *idam*—este; *varṣam*—planeta; *bhāratam*—Bhārata; *iti*—assim; *vyapadiśanti*—as pessoas chamam.

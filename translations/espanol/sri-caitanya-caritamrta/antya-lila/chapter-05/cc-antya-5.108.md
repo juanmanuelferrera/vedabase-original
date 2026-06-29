@@ -1,5 +1,8 @@
 ### CC Antya 5.108
 
+> রূপ যৈছে দুই নাটক করিয়াছে আরম্ভে ।
+> শুনিতে আনন্দ বাড়ে যার মুখবন্ধে ।।” ॥ ১০৮ ॥
+
 > rūpa yaiche dui nāṭaka kariyāche ārambhe
 > śunite ānanda bāḍe yāra mukha-bandhe"
 

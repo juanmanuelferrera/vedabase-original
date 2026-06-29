@@ -1,5 +1,8 @@
 ### SB 1.11.2
 
+> स उच्चकाशे धवलोदरो दरोऽप्युरुक्रमस्याधरशोणशोणिमा ।
+> दाध्मायमानः करकञ्जसम्पुटे यथाब्जखण्डे कलहंस उत्स्वनः ॥२॥
+
 > sa uccakāśe dhavalodaro daro
 > 'py urukramasyādharaśoṇa-śoṇimā
 > dādhmāyamānaḥ kara-kañja-sampuṭe

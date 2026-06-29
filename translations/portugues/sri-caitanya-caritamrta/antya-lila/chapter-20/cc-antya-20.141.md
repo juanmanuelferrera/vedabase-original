@@ -1,5 +1,8 @@
 ### CC Antya 20.141
 
+> এক এক পরিচ্ছেদের কথা — অনেক প্রকার ।
+> মুখ্য-মুখ্য কহিলুঁ, কথা না যায় বিস্তার ॥১৪১॥
+
 eka eka paricchedera kathā--aneka-prakāra
 
 mukhya-mukhya kahiluṅ, kathā nā yāya vistāra

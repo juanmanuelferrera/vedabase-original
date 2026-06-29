@@ -1,5 +1,8 @@
 ### CC Madhya 1.178
 
+> মোরে কেন পুছ, তুমি পুছ আপন-মন ।
+> তুমি নরাধিপ হও বিষ্ণু-অংশ সম ॥১৭৮॥
+
 more kena pucha, tumi pucha āpana-mana
 
 tumi narādhipa hao viṣṇu-aṁśa sama

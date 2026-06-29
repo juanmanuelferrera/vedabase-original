@@ -1,5 +1,8 @@
 ### CC Madhya 12.53
 
+> প্রভু কহে, — পূর্ণ যৈছে দুগ্ধের কলস  ।
+> সুরাবিন্দু-পাতে কেহ না করে পরশ ॥৫৩॥
+
 prabhu kahe,-pūrṇa yaiche dugdhera kalasa
 
 surā-bindu-pāte keha nā kare paraśa

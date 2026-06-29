@@ -1,5 +1,8 @@
 ### CC Adi 10.143
 
+> রামাই-নন্দাই — দোঁহে প্রভুর কিঙ্কর ।
+> গোবিন্দের সঙ্গে সেবা করে নিরন্তর ॥১৪৩॥
+
 rāmāi-nandāi--doṅhe prabhura kiṅkara
 
 govindera saṅge sevā kare nirantara

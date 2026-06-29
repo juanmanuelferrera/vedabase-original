@@ -1,5 +1,8 @@
 ### CC Antya 1.203
 
+> রায় কহে, — “ঈশ্বর তুমি যে চাহ করিতে ।
+> কাষ্ঠের পুতলী তুমি পার নাচাইতে ॥২০৩॥
+
 > rāya kahe,—"īśvara tumi ye cāha karite
 > kāṣṭhera putalī tumi pāra nācāite
 

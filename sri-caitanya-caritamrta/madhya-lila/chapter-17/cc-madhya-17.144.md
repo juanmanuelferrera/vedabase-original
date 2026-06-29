@@ -1,5 +1,8 @@
 ### CC Madhya 17.144
 
+> ভাবকালি বেচিতে আমি আইলাঙ কাশীপুরে ।
+> গ্রাহক নাহি, না বিকায়, লঞা যাব ঘরে ॥১৪৪॥
+
 > bhāvakāli vecite āmi āilāṅa kāśīpure
 > grāhaka nāhi, nā vikāya, lañā yāba ghare
 

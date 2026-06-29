@@ -1,5 +1,8 @@
 ### CC Madhya 19.216
 
+> নারায়ণপরাঃ সর্বে ন কুতশ্চন বিভ্যতি ।
+> স্বর্গাপবর্গনরকেষ্বপি তুল্যার্থদর্শিনঃ ॥২১৬॥
+
 > nārāyaṇa-parāḥ sarve
 > na kutaścana bibhyati
 > svargāpavarga-narakeṣv

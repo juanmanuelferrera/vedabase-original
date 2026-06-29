@@ -1,5 +1,8 @@
 ### CC Madhya 20.12
 
+> অনেক দেখিল, তার লাগ্ না পাইল ।
+> দাড়ুকা-সহিত ডুবি কাহাঁ বহি’ গেল ॥১২॥
+
 > aneka dekhila, tāra lāg nā pāila
 > dāḍukā-sahita ḍubi kāhāṅ vahi' gela
 

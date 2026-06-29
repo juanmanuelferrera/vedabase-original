@@ -1,5 +1,8 @@
 ### CC Adi 3.20
 
+> আপনি করিমু ভক্তভাব অঙ্গীকারে ।
+> আপনি আচরি’ ভক্তি শিখাইমু সবারে ॥২০॥
+
 āpani karimu bhakta-bhāva aṅgīkāre
 āpani ācari' bhakti śikhāimu sabāre
 

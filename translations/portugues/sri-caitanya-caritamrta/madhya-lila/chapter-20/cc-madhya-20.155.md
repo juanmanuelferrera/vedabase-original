@@ -1,5 +1,8 @@
 ### CC Madhya 20.155
 
+> স্বয়ং ভগবান্ কৃষ্ণ, ‘গোবিন্দ’ পর নাম ।
+> সর্বৈশ্বর্যপূর্ণ যাঁর গোলক — নিত্যধাম ॥১৫৫॥
+
 svayaṁ bhagavān kṛṣṇa, 'govinda' para nāma
 
 sarvaiśvarya-pūrṇa yāṅra goloka--nitya-dhāma

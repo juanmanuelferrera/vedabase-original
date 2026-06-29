@@ -1,5 +1,8 @@
 ### CC Antya 4.84
 
+> তবে সনাতন কহে, — “তোমাকে নমস্কারে ।
+> তোমার গম্ভীর হৃদয় কে বুঝিতে পারে ? ॥ ৮৪ ॥
+
 tabe sanātana kahe,--"tomāke namaskāre
 
 tomāra gambhīra hṛdaya ke bujhite pāre?

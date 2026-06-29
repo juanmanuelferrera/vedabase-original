@@ -1,5 +1,8 @@
 ### SB 2.9.40
 
+> प्रजापतिर्धर्मपतिरेकदा नियमान्यमान् ।
+> भद्रं प्रजानामन्विच्छन्नातिष्ठत्स्वार्थकाम्यया ॥४०॥
+
 prajāpatir dharma-patir
 ekadā niyamān yamān
 bhadraṁ prajānām anvicchann

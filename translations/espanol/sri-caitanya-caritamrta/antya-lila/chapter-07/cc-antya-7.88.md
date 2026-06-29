@@ -1,5 +1,8 @@
 ### CC Antya 7.88
 
+> ফল্গুপ্রায় ভট্টের নামাদি সব-ব্যাখ্যা ।
+> সর্বজ্ঞ প্রভু জানি’ তারে করেন উপেক্ষা ॥৮৮॥
+
 > phalgu-prāya bhaṭṭera nāmādi saba-vyākhyā
 > sarvajña prabhu jāni' tāre karena upekṣā
 

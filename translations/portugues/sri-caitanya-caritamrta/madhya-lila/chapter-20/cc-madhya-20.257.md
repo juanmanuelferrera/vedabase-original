@@ -1,5 +1,8 @@
 ### CC Madhya 20.257
 
+> যদ্যপি অসৃজ্য নিত্য চিচ্ছক্তিবিলাস ।
+> তথাপি সঙ্কর্ষণ-ইচ্ছায় তাহার প্রকাশ ॥২৫৭॥
+
 yadyapi asṛjya nitya cic-chakti-vilāsa
 
 tathāpi saṅkarṣaṇa-icchāya tāhāra prakāśa

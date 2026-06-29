@@ -1,5 +1,8 @@
 ### CC Madhya 8.284
 
+> প্রভু তাঁরে হস্ত স্পর্শি’ করাইলা চেতন ৷
+> সন্ন্যাসীর বেষ দেখি’ বিস্মিত হৈল মন ৷৷ ২৮৪ ৷৷ ॥২৮৪॥
+
 prabhu tāṅre hasta sparśi' karāilā cetana
 
 sannyāsīra veṣa dekhi' vismita haila mana

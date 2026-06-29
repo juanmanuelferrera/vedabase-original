@@ -1,5 +1,8 @@
 ### CC Madhya 8.26
 
+> এই ত’ সন্ন্যাসীর তেজ দেখি ব্রহ্মসম ।
+> শূদ্রে আলিঙ্গিয়া কেনে করেন ক্রন্দন ॥২৬॥
+
 > ei ta' sannyāsīra teja dekhi brahma-sama
 > śūdre āliṅgiyā kene karena krandana
 

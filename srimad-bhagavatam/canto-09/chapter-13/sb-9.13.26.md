@@ -1,5 +1,8 @@
 ### SB 9.13.26
 
+> शुनकस्तत्सुतो जज्ञए वीतहव्यो धृतिस्ततः
+> बहुलाश्वो धृतेस्तस्य कृतिरस्य महावशी ॥२६॥
+
 > śunakas tat-suto jajñe
 > vītahavyo dhṛtis tataḥ
 > bahulāśvo dhṛtes tasya

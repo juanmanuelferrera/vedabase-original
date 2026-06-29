@@ -1,5 +1,8 @@
 ### CC Madhya 6.36
 
+> প্রসাদ পাঞা সবে হৈলা আনন্দিত মনে ।
+> পুনরপি আইলা সবে মহাপ্রভুর স্থানে ॥৩৬॥
+
 prasāda pāñā sabe hailā ānandita mane
 
 punarapi āilā sabe mahāprabhura sthāne

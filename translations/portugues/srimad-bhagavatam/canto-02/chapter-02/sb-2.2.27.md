@@ -1,5 +1,8 @@
 ### SB 2.2.27
 
+> न यत्र शोको न जरा न मृत्युर्नार्तिर्न चोद्वेग ऋते कुतश्चित् ।
+> यच्चित्ततोऽदः कृपयानिदंविदां दुरन्तदुःखप्रभवानुदर्शनात् ॥२७॥
+
 na yatra śoko na jarā na mṛtyur
 nārtir na codvega ṛte kutaścit
 yac cit tato 'daḥ kṛpayānidaṁ-vidāṁ

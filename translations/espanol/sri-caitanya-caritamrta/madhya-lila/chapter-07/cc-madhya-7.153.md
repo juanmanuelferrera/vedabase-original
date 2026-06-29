@@ -1,5 +1,8 @@
 ### CC Madhya 7.153
 
+> চৈতন্যলীলার আদি-অন্ত নাহি জানি ৷
+> সেই লিখি, যেই মহান্তের মুখে শুনি ৷৷ ১৫৩ ৷৷ ॥১৫৩॥
+
 > caitanya-līlāra ādi-anta nāhi jāni
 > sei likhi, yei mahāntera mukhe śuni
 

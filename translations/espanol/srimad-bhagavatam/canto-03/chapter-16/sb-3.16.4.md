@@ -1,5 +1,8 @@
 ### SB 3.16.4
 
+> तद्वः प्रसादयाम्यद्य ब्रह्म दैवं परं हि मे ।
+> तद्धीत्यात्मकृतं मन्ये यत्स्वपुम्भिरसत्कृताः ॥४॥
+
 > tad vaḥ prasādayāmy adya
 > brahma daivaṁ paraṁ hi me
 > tad dhīty ātma-kṛtaṁ manye

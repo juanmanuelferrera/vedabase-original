@@ -1,5 +1,8 @@
 ### CC Madhya 19.99
 
+> প্রভু কহেন, — কহ, তেঁহো পড়ে কৃষ্ণলীলা ।
+> প্রেমাবেশে প্রভুর দেহ-মন আলুয়াইলা ॥৯৯॥
+
 > prabhu kahena,--kaha, teṅho paḍe kṛṣṇa-līlā
 > premāveśe prabhura deha-mana āyuyāilā
 

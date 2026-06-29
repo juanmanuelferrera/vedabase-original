@@ -1,5 +1,8 @@
 ### CC Madhya 24.116
 
+> ব্যাসকৃপায় শুকদেবের লীলাদি-স্মরণ ।
+> কৃষ্ণগুণাকৃষ্ট হঞা করেন ভজন ॥১১৬॥
+
 > vyāsa-kṛpāya śukadevera līlādi-smaraṇa
 > kṛṣṇa-guṇākṛṣṭa hañā karena bhajana
 

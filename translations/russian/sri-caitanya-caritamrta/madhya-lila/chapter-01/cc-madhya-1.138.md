@@ -1,5 +1,8 @@
 ### CC Madhya 1.138
 
+> বর্ষান্তরে অদ্বৈতাদি ভক্তের আগমন ।
+> প্ৰভুরে দেখিতে সবে করিলা গমন ॥১৩৮॥
+
 > varṣāntare advaitādi bhaktera āgamana
 > prabhure dekhite sabe karilā gamana
 

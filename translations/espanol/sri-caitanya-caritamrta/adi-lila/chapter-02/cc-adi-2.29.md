@@ -1,5 +1,8 @@
 ### CC Adi 2.29
 
+> ইহোঁত দ্বিভুজ, তিঁহো ধরে চারি হাথ ।
+> ইহোঁ বেণু ধরে, তিঁহো চক্রাদিক সাথ ॥২৯॥
+
 > iṅhota dvi-bhuja, tiṅho dhare cāri hātha
 > iṅho veṇu dhare, tiṅho cakrādika sātha
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.170
 
+> “সেবক রক্ষক আর কেহ নাহি সঙ্গে  ।
+> পলাইতে আমার ভাল এইত প্রসঙ্গে ।।” ১৭০ ॥১৭০॥
+
 "sevaka rakṣaka āra keha nāhi saṅge
 
 palāite āmāra bhāla eita prasaṅge

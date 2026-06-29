@@ -1,5 +1,7 @@
 ### SB 5.4.19
 
+> स कदाचिदटमानो भगवानृषभो ब्रह्मावर्तगतो ब्रह्मर्षिप्रवरसभायां प्रजानांनिशामयन्तीनामात्मजानवहितात्मनः प्रश्रयप्रणयभरसुयन्त्रितानप्युपशिक्षयन्निति होवाच ॥१९॥
+
 *sa kadācid aṭamāno bhagavān ṛṣabho brahmāvarta*-gato brahmarṣi-pravara-sabhāyāṁ prajānāṁ niśāmayantīnām ātmajān avahitātmanaḥ praśraya-praṇaya-bhara-suyantritān apy upaśikṣayann iti hovāca.
 
 *saḥ*—Ele; *kadācit*—uma vez; *aṭamānaḥ*—enquanto em uma turnê; *bhagavān*—a Suprema Personalidade de Deus; *ṛṣabhaḥ*—o Senhor Ṛṣabha; *brahmāvarta-gataḥ*—quando alcançou o lugar conhecido como Brahmāvarta (identificado por alguns como Burma e por outros como um lugar perto de Kanpura, Uttar Pradesh); *brahma-ṛṣi-pravara-sabhāyām*—em uma assembleia de brāhmaṇas de primeira classe; *prajānām*—enquanto os cidadãos; *niśāmayantīnām*—estavam ouvindo; *ātmajān*—Seus filhos; *avahita-ātmanaḥ*—atentos; *praśraya*—de bom comportamento; *praṇaya*—de devoção; *bhara*—por uma abundância; *su-yantritān*—bem controlados; *api*—embora; *upaśikṣayan*—ensinando; *iti*—assim; *ha*—certamente; *uvāca*—disse.

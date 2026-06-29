@@ -1,5 +1,8 @@
 ### SB 5.4.1
 
+> श्रीशुक उवाच
+> अथ ह तमुत्पत्त्यैवाभिव्यज्यमानभगवल्लक्षणं साम्योपशमवैराग्यैश्वर्यमहाविभूतिभिरनुदिनमेधमानानुभावं प्रकृतयः प्रजा ब्राह्मणा देवताश्चावनितलसमवनायातितरांजगृधुः ॥१॥
+
 > śrī-śuka uvāca
 > atha ha tam utpattyaivābhivyajyamāna-bhagaval-lakṣaṇaṁ sāmyopaśama-vairāgyaiśvarya-mahā-vibhūtibhir anudinam edhamānānubhāvaṁ prakṛtayaḥ prajā brāhmaṇā devatāś cāvani-tala-samavanāyātitarāṁ jagṛdhuḥ.
 

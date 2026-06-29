@@ -1,5 +1,8 @@
 ### SB 5.18.27
 
+> यं लोकपालाः किल मत्सरज्वरा हित्वा यतन्तोऽपि पृथक्समेत्य च
+> पातुं न शेकुर्द्विपदश्चतुष्पदः सरीसृपं स्थाणु यदत्र दृश्यते ॥२७॥
+
 > yaṁ loka-pālāḥ kila matsara-jvarā
 > hitvā yatanto 'pi pṛthak sametya ca
 > pātuṁ na śekur dvi-padaś catuṣ-padaḥ

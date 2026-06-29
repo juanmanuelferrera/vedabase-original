@@ -1,5 +1,8 @@
 ### CC Antya 13.34
 
+> “বারাণসী পর্যন্ত স্বচ্ছন্দে যাইবা পথে ।
+> আগে সাবধানে যাইবা ক্ষত্রিয়াদি-সাথে ॥৩৪॥
+
 "vārāṇasī paryanta svacchande yāibā pathe
 
 āge sāvadhāne yāibā kṣatriyādi-sāthe

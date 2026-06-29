@@ -1,5 +1,8 @@
 ### CC Madhya 25.265
 
+> কৃষ্ণতত্ত্ব, ভক্তিতত্ত্ব, প্রেমতত্ত্ব সার ।
+> ভাবতত্ত্ব, রসতত্ত্ব, লীলাতত্ত্ব আর ॥২৬৫॥
+
 kṛṣṇa-tattva, bhakti-tattva, prema-tattva sāra
 
 bhāva-tattva, rasa-tattva, līlā-tattva āra

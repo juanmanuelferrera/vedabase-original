@@ -1,5 +1,8 @@
 ### CC Madhya 5.116
 
+> গোপাল রহিলা, দুঁহে করেন সেবন ।
+> দেখিতে আইলা সব দেশের লোক-জন ॥১১৬॥
+
 > gopāla rahilā, duṅhe karena sevana
 > dekhite āilā saba deśera loka-jana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.32
 
+> শান্ত-ভক্তের রতি বাড়ে ‘প্রেম’-পর্যন্ত ।
+> দাস্য-ভক্তের রতি হয় ‘রাগ’-দশা-অন্ত ॥৩২॥
+
 > śānta-bhaktera rati bāḍe 'prema'-paryanta
 > dāsya-bhaktera rati haya 'rāga'-daśā-anta
 

@@ -1,5 +1,8 @@
 ### CC Madhya 13.89
 
+> কাশীশ্বর গোবিন্দাদি যত ভক্তগণ ।
+> হাতাহাতি করি’ হৈল দ্বিতীয় আবরণ ॥৮৯॥
+
 > kāśīśvara govindādi yata bhakta-gaṇa
 > hātāhāti kari' haila dvitīya āvaraṇa
 

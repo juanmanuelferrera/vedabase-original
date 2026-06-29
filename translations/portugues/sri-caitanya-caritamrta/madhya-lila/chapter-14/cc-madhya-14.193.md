@@ -1,5 +1,8 @@
 ### CC Madhya 14.193
 
+> ললিত-ভূষিত রাধা দেখে যদি কৃষ্ণ ।
+> দুঁহে দুঁহা মিলিবারে হয়েন সতৃষ্ণ ॥১৯৩॥
+
 lalita-bhūṣita rādhā dekhe yadi kṛṣṇa
 
 duṅhe duṅhā milibāre hayena satṛṣṇa

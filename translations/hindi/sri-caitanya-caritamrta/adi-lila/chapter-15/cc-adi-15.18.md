@@ -1,5 +1,8 @@
 ### CC Adi 15.18
 
+> এথা হৈতে বিশ্বরূপ মোরে লঞা গেলা ।
+> সন্ন্যাস করহ তুমি, আমারে কহিলা ॥১৮॥
+
 > ethā haite viśvarūpa more lañā gelā
 > sannyāsa karaha tumi, āmāre kahilā
 

@@ -1,5 +1,8 @@
 ### SB 4.25.17
 
+> पुर्यास्तु बाह्योपवने दिव्यद्रुमलताकुले ।
+> नदद्विहङ्गालिकुल कोलाहलजलाशये ॥१७॥
+
 > puryās tu bāhyopavane
 > divya-druma-latākule
 > nadad-vihaṅgāli-kula-

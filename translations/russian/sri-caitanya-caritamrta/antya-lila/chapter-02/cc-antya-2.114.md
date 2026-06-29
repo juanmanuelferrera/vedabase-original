@@ -1,5 +1,8 @@
 ### CC Antya 2.114
 
+> দ্বার মানা হৈল, হরিদাস দুঃখী হৈল মনে ।
+> কি লাগিয়া দ্বার-মানা কেহ নাহি জানে ॥১১৪॥
+
 > dvāra mānā haila, haridāsa duḥkhī haila mane
 > ki lāgiyā dvāra-mānā keha nāhi jāne
 

@@ -1,5 +1,8 @@
 ### CC Antya 13.78
 
+> একদিন প্রভু যমেশ্বর-টোটা যাইতে ।
+> সেইকালে দেবদাসী লাগিলা গাইতে ॥৭৮॥
+
 eka-dina prabhu yameśvara-ṭoṭā yāite
 
 sei-kāle deva-dāsī lāgilā gāite

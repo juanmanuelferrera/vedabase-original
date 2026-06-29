@@ -1,5 +1,8 @@
 ### SB 5.13.4
 
+> निवासतोयद्रविणात्मबुद्धिस्ततस्ततो धावति भो अटव्याम
+> क्वचिच्च वात्योत्थितपांसुधूम्रा दिशो न जानाति रजस्वलाक्षः ॥४॥
+
 > nivāsa-toya-draviṇātma-buddhis
 > tatas tato dhāvati bho aṭavyām
 > kvacic ca vātyotthita-pāṁsu-dhūmrā

@@ -1,5 +1,8 @@
 ### CC Antya 11.24
 
+> প্রভু কহে, — “বৃদ্ধ হইলা ‘সংখ্যা’ অল্প কর ।
+> সিদ্ধ-দেহ তুমি, সাধনে আগ্রহ কেনে কর ? ॥ ২৪ ॥
+
 > prabhu kahe,—"vṛddha ha-ilā 'saṅkhyā' alpa kara
 > siddha-deha tumi, sādhane āgraha kene kara?
 

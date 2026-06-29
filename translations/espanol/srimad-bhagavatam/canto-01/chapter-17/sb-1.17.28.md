@@ -1,5 +1,8 @@
 ### SB 1.17.28
 
+> इति धर्मं महीं चैव सान्त्वयित्वा महारथः ।
+> निशातमाददे खड्गं कलयेऽधर्महेतवे ॥२८॥
+
 > iti dharmaṁ mahīṁ caiva
 > sāntvayitvā mahā-rathaḥ
 > niśātam ādade khaḍgaṁ

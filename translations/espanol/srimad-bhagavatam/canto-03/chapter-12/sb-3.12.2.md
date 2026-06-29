@@ -1,5 +1,8 @@
 ### SB 3.12.2
 
+> ससर्जाग्रेऽन्धतामिस्रमथ तामिस्रमादिकृत् ।
+> महामोहं च मोहं च तमश्चाज्ञानवृत्तयः ॥२॥
+
 > sasarjāgre 'ndha-tāmisram
 > atha tāmisram ādi-kṛt
 > mahāmohaṁ ca mohaṁ ca

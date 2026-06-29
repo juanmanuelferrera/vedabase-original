@@ -1,5 +1,7 @@
 ### SB 5.19.19
 
+> अस्मिन्नेव वर्षे पुरुषैर्लब्धजन्मभिः शुक्ललोहितकृष्णवर्णेन स्वारब्धेन कर्मणा दिव्यमानुषनारकगतयो बह्व्य आत्मन आनुपूर्व्येण सर्वा ह्येव सर्वेषां विधीयन्ते यथावर्णविधानमपवर्गश्चापि भवति ॥१९॥
+
 > asminn eva varṣe puruṣair labdha-janmabhiḥ śukla-lohita-kṛṣṇa-varṇena svārabdhena karmaṇā divya-mānuṣa-nāraka-gatayo bahvya ātmana ānupūrvyeṇa sarvā hy eva sarveṣāṁ vidhīyante yathā-varṇa-vidhānam apavargaś cāpi bhavati.
 
 *asmin eva varṣe*—en esa región (Bhārata-varṣa); *puruṣaiḥ*—por la gente; *labdha-janmabhiḥ*—que ha nacido; *śukla*—de la modalidad de la bondad; *lohita*—de la modalidad de la pasión; *kṛṣṇa*—de la modalidad de la ignorancia; *varṇena*—según las divisiones; *sva*—por él mismo; *ārabdhena*—comenzadas; *karmaṇā*—por actividades; *divya*—divinas; *mānuṣa*—humanos; *nāraka*—infernales; *gatayaḥ*—objetivos; *bahvyaḥ*—muchos; *ātmanaḥ*—de sus propios; *ānupūrvyeṇa*—conforme a los actos realizados en el pasado; *sarvāḥ*—todos; *hi*—ciertamente; *eva*—en verdad; *sarveṣām*—de todos ellos; *vidhīyante*—se asigna; *yathā-varṇa-vidhānam*—conforme a las distintas castas; *apavargaḥ*—la senda de la liberación; *ca*—y; *api*—también; *bhavati*—es posible.

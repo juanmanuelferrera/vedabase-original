@@ -1,5 +1,8 @@
 ### CC Antya 20.117
 
+> দশমে — কহিলুঁ ভক্তদত্ত-আস্বাদন ।
+> রাঘব-পণ্ডিতের তাহাঁ ঝালির সাজন ॥১১৭॥
+
 > daśame—kahiluṅ bhakta-datta-āsvādana
 > rāghava-paṇḍitera tāhāṅ jhālira sājana
 

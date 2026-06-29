@@ -1,5 +1,8 @@
 ### CC Madhya 6.261
 
+> তত্তেঽনুকম্পাং সুসমীক্ষমাণো ভুঞ্জান এবাত্মকৃতং বিপাকম্ ।
+> হৃদ্বাগ্বপুর্ভির্বিদধন্নমস্তে জীবেত যো ভক্তিপদে স দায়ভাক্ ॥২৬১॥
+
 > tat te 'nukampāṁ su-samīkṣamāṇo
 > bhuñjāna evātma-kṛtaṁ vipākam
 > hṛd-vāg-vapurbhir vidadhan namas te

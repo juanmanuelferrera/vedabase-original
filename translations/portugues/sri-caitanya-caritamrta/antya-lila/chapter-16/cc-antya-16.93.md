@@ -1,5 +1,8 @@
 ### CC Antya 16.93
 
+> কোটি-অমৃত-স্বাদ পাঞা প্রভুর চমৎকার ।
+> সর্বাঙ্গে পুলক, নেত্রে বহে অশ্রুধার ॥৯৩॥
+
 koṭi-amṛta-svāda pāñā prabhura camatkāra
 
 sarvāṅge pulaka, netre vahe aśru-dhāra

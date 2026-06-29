@@ -1,5 +1,8 @@
 ### CC Adi 16.1
 
+> কৃপাসুধা-সরিদ্যস্য বিশ্বমাপ্লাবয়ন্ত্যপি ।
+> নীচগৈব সদা ভাতি তং চৈতন্যপ্রভুং ভজে ॥১॥
+
 > kṛpā-sudhā-sarid yasya
 > viśvam āplāvayanty api
 > nīca-gaiva sadā bhāti

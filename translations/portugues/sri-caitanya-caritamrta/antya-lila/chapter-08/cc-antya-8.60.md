@@ -1,5 +1,8 @@
 ### CC Antya 8.60
 
+> অর্ধাশন করেন প্রভু, গোবিন্দ অর্ধাশন ।
+> সব ভক্তগণ তবে ছাড়িল ভোজন ॥৬০॥
+
 ardhāśana karena prabhu, govinda ardhāśana
 
 saba bhakta-gaṇa tabe chāḍila bhojana

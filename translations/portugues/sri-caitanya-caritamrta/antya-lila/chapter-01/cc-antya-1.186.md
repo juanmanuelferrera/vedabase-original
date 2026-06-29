@@ -1,5 +1,8 @@
 ### CC Antya 1.186
 
+> “পদানি ত্বগতার্থানি তদর্থগতয়ে নরাঃ ।
+> যোজয়ন্তি পদৈরন্যৈঃ স উদঘাত্যক উচ্যতে ।।” ॥ ১৮৬ ॥
+
 padāni tv agatārthāni
 tad-artha-gataye narāḥ
 yojayanti padair anyaiḥ

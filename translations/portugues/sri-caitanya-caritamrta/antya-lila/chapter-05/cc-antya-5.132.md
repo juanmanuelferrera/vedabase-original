@@ -1,5 +1,8 @@
 ### CC Antya 5.132
 
+> চৈতন্যের ভক্তগণের নিত্য কর ‘সঙ্গ’ ।
+> তবেত জানিবা সিদ্ধান্তসমুদ্র-তরঙ্গ ॥১৩২॥
+
 caitanyera bhakta-gaṇera nitya kara 'saṅga'
 
 tabeta jānibā siddhānta-samudra-taraṅga

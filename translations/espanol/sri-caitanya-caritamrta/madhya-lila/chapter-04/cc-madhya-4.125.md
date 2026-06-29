@@ -1,5 +1,8 @@
 ### CC Madhya 4.125
 
+> গ্রামের শূন্যহাটে বসি’ করেন কীর্তন ।
+> এথা পূজারী করাইল ঠাকুরে শয়ন ॥১২৫॥
+
 > grāmera śūnya-hāṭe vasi' karena kīrtana
 > ethā pūjārī karāila ṭhākure śayana
 

@@ -1,5 +1,8 @@
 ### SB 1.4.19
 
+> चातुर्होत्रं कर्म शुद्धं प्रजानां वीक्ष्य वैदिकम् ।
+> व्यदधाद्यज्ञसन्तत्यै वेदमेकं चतुर्विधम् ॥१९॥
+
 > cātur-hotraṁ karma śuddhaṁ
 > prajānāṁ vīkṣya vaidikam
 > vyadadhād yajña-santatyai

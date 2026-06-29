@@ -1,5 +1,8 @@
 ### CC Madhya 25.181
 
+> “যাঁর ইচ্ছা, পাছে আইস আমারে দেখিতে ৷
+> এবে আমি একা যামু ঝারিখণ্ড-পথে” ৷৷ ১৮১ ৷৷ ॥১৮১॥
+
 "yāṅra icchā, pāche āisa āmāre dekhite
 
 ebe āmi ekā yāmu jhārikhaṇḍa-pathe"

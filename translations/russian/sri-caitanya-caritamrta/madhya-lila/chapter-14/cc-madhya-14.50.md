@@ -1,5 +1,8 @@
 ### CC Madhya 14.50
 
+> ব্যগ্র হঞা আনে রাজা মত্ত-হাতীগণ ।
+> রথ চালাইতে রথে করিল যোজন ॥৫০॥
+
 > vyagra hañā āne rājā matta-hātī-gaṇa
 > ratha cālāite rathe karila yojana
 

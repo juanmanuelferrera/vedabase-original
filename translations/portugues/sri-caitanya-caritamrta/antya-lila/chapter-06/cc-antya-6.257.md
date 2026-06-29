@@ -1,5 +1,8 @@
 ### CC Antya 6.257
 
+> এত শুনি’ সেই মনুষ্য গোবর্ধন-স্থানে ।
+> কহিল গিয়া সব রঘুনাথ-বিবরণে ॥২৫৭॥
+
 eta śuni' sei manuṣya govardhana-sthāne
 
 kahila giyā saba raghunātha-vivaraṇe

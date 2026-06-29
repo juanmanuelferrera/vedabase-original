@@ -1,5 +1,8 @@
 ### CC Antya 10.37
 
+> সামান্য ঝালি হৈতে দ্বিগুণ ঝালি কৈলা  ।
+> পারিপাটি করি’ সব ঝালি ভরাইলা ॥৩৭॥
+
 sāmānya jhāli haite dviguṇa jhāli kailā
 
 pāripāṭi kari' saba jhāli bharāilā

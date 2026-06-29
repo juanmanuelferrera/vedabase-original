@@ -1,5 +1,8 @@
 ### CC Adi 4.9
 
+> কিন্তু কৃষ্ণের যেই হয় অবতার-কাল ।
+> ভারহরণ-কাল তাতে হইল মিশাল ॥৯॥
+
 kintu kṛṣṇera yei haya avatāra-kāla
 bhāra-haraṇa-kāla tāte ha-ila miśāla
 

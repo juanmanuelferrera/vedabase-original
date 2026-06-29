@@ -1,5 +1,8 @@
 ### CC Adi 10.134
 
+> এই পঞ্চ পুত্র তোমার মোর প্রিয়পাত্র ।
+> রামানন্দ সহ মোর দেহ-ভেদ মাত্র ॥১৩৪॥
+
 > ei pañca putra tomāra mora priyapātra
 > rāmānanda saha mora deha-bheda mātra
 

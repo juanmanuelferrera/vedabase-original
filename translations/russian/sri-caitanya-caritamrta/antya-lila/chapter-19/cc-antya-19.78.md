@@ -1,5 +1,8 @@
 ### CC Antya 19.78
 
+> এককালে বৈশাখের পৌর্ণমাসী-দিনে ।
+> রাত্রিকালে মহাপ্রভু চলিলা উদ্যানে ॥৭৮॥
+
 > eka-kāle vaiśākhera paurṇamāsī-dine
 > rātri-kāle mahāprabhu calilā udyāne
 

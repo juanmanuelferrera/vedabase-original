@@ -1,5 +1,8 @@
 ### CC Madhya 6.111
 
+> প্রসাদ আনি’ তাঁরে করাহ আগে ভিক্ষা ।
+> পশ্চাৎ আসি’ আমারে করাইহ শিক্ষা ॥১১১॥
+
 > prasāda āni' tāṅre karāha āge bhikṣā
 > paścāt āsi' āmāre karāiha śikṣā
 

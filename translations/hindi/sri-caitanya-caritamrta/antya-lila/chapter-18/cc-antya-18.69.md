@@ -1,5 +1,8 @@
 ### CC Antya 18.69
 
+> স্বরূপ কহে, — “তাঁর হয় প্রেমের বিকার ।
+> অস্থি-সন্ধি ছাড়ে, হয় অতি দীর্ঘাকার ।।” ॥ ৬৯ ॥
+
 > svarūpa kahe,--"tāṅra haya premera vikāra
 > asthi-sandhi chāḍe, haya ati dīrghākāra"
 

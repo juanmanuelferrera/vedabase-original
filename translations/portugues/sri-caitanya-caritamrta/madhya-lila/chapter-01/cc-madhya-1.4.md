@@ -1,5 +1,10 @@
 ### CC Madhya 1.4
 
+> দীব্যদ্বৃন্দারণ্যকল্পদ্রুমাধঃ-
+> শ্রীমদ্রত্নাগারসিংহাসনস্থৌ ।
+> শ্রীমদ্রাধাশ্রীলগোবিন্দদেবৌ
+> প্রেষ্ঠালীভিঃ সেব্যমানৌ স্মরামি ॥৪॥
+
 dīvyad-vṛndāraṇya-kalpa-drumādhaḥ-
 śrīmad-ratnāgāra-siṁhāsana-sthau
 śrīmad-rādhā-śrīla-govinda-devau

@@ -1,5 +1,8 @@
 ### CC Madhya 19.225
 
+> ‘মমতা’ অধিক, কৃষ্ণে আত্মসম জ্ঞান ।
+> অতএব সখ্যরসের বশ ভগবান্ ॥২২৫॥
+
 > 'mamatā' adhika, kṛṣṇe ātma-sama jñāna
 > ataeva sakhya-rasera vaśa bhagavān
 

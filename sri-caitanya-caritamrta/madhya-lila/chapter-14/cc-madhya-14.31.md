@@ -1,5 +1,8 @@
 ### CC Madhya 14.31
 
+> পদ্মচিনি, চন্দ্রকান্তি, খাজা, খণ্ডসার ।
+> বিয়রি, কদ্মা, তিলাখাজার প্রকার ॥৩১॥
+
 > padmacini, candrakānti, khājā, khaṇḍasāra
 > viyari, kadmā, tilākhājāra prakāra
 

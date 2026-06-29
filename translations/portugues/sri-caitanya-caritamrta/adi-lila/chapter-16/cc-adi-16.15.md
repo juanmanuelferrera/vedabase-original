@@ -1,5 +1,8 @@
 ### CC Adi 16.15
 
+> প্রভু তুষ্ট হঞা সাধ্য-সাধন কহিল ।
+> নাম-সংকীর্তন কর, — উপদেশ কৈল ॥১৫॥
+
 prabhu tuṣṭa hañā sādhya-sādhana kahila
 nāma-saṅkīrtana kara,--upadeśa kaila
 

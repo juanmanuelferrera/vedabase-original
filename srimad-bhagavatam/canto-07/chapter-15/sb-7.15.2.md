@@ -1,5 +1,8 @@
 ### SB 7.15.2
 
+> ज्ञआननिष्ठाय देयानि कव्यान्यानन्त्यमिच्छता
+> दैवे च तदभावे स्यादितरेभ्यो यथार्हतः ॥२॥
+
 > jñāna-niṣṭhāya deyāni
 > kavyāny ānantyam icchatā
 > daive ca tad-abhāve syād

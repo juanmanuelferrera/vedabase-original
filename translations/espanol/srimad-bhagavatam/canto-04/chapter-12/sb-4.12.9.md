@@ -1,5 +1,8 @@
 ### SB 4.12.9
 
+> तस्य प्रीतेन मनसा तां दत्त्वैडविडस्ततः ।
+> पश्यतोऽन्तर्दधे सोऽपि स्वपुरं प्रत्यपद्यत ॥९॥
+
 > tasya prītena manasā
 > tāṁ dattvaiḍaviḍas tataḥ
 > paśyato 'ntardadhe so 'pi

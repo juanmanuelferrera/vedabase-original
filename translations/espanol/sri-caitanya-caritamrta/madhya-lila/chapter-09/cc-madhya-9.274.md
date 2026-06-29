@@ -1,5 +1,8 @@
 ### CC Madhya 9.274
 
+> আচার্য কহে, — তুমি যেই কহ, সেই সত্য হয় ৷
+> সর্বশাস্ত্রে বৈষ্ণবের এই সুনিশ্চয় ৷৷ ২৭৪ ৷৷ ॥২৭৪॥
+
 > ācārya kahe,--tumi yei kaha, sei satya haya
 > sarva-śāstre vaiṣṇavera ei suniścaya
 

@@ -1,5 +1,8 @@
 ### CC Adi 5.170
 
+> ‘এই ত’ দ্বিতীয় সূত রোমহরষণ ।
+> বলদেব দেখি’ যে না কৈল প্রত্যুদ্গম’ ॥১৭০॥
+
 > 'ei ta' dvitīya sūta romaharaṣaṇa
 > baladeva dekhi' ye nā kaila pratyudgama'
 

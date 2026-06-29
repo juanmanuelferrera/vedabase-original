@@ -1,5 +1,7 @@
 ### SB 5.4.4
 
+> नाभिस्तु यथाभिलषितं सुप्रजस्त्वमवरुध्यातिप्रमोदभरविह्वलो गद्गदाक्षरया गिरास्वैरं गृहीतनरलोकसधर्मं भगवन्तं पुराणपुरुषं मायाविलसितमतिर्वत्स तातेतिसानुरागमुपलालयन्परां निर्वृतिमुपगतः ॥४॥
+
 > nābhis tu yathābhilaṣitaṁ suprajastvam avarudhyāti-pramoda-bhara-vihvalo gadgadākṣarayā girā svairaṁ gṛhīta-naraloka-sadharmaṁ bhagavantaṁ purāṇa-puruṣaṁ māyā-vilasita-matir vatsa tāteti sānurāgam upalālayan parāṁ nirvṛtim upagataḥ.
 
 *nābhiḥ*—el rey Nābhi; *tu*—ciertamente; *yathā-abhilaṣitam*—conforme a su deseo; *su-prajastvam*—el más hermoso hijo; *avarudhya*—obtener; *ati-pramoda*—de gran júbilo; *bhara*—por un exceso; *vihvalaḥ*—sobrecogido; *gadgada-akṣarayā*—ahogada por el éxtasis; *girā*—con una voz; *svairam*—con Su voluntad independiente; *gṛhīta*—aceptó; *nara-loka-sadharmam*—actuar como un ser humano; *bhagavantam*—a la Suprema Personalidad de Dios; *purāṇa-puruṣam*—la más anciana de las entidades vivientes; *māyā*—por *yoga-māyā*; *vilasita*—confundida; *matiḥ*—su mentalidad; *vatsa*—querido hijo mío; *tāta*—cariño mío; *iti*—así; *sa-anurāgam*—con gran afecto; *upalālayan*—criar; *parām*—trascendental; *nirvṛtim*—bienaventuranza; *upagataḥ*—obtuvo.

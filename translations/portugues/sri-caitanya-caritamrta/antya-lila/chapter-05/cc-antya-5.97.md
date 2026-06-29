@@ -1,5 +1,8 @@
 ### CC Antya 5.97
 
+> ‘রসাভাস’ হয় যদি ‘সিদ্ধান্তবিরোধ’ ।
+> সহিতে না পারে প্রভু, মনে হয় ক্রোধ ॥৯৭॥
+
 'rasābhāsa' haya yadi 'siddhānta-virodha'
 
 sahite nā pāre prabhu, mane haya krodha

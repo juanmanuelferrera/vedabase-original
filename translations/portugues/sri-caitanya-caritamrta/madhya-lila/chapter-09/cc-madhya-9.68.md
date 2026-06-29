@@ -1,5 +1,8 @@
 ### CC Madhya 9.68
 
+> শিবকাঞ্চী আসিয়া কৈল শিব দরশন ৷
+> প্রভাবে ‘বৈষ্ণব’ কৈল সব শৈবগণ ৷৷ ৬৮ ৷৷ ॥৬৮॥
+
 śiva-kāñcī āsiyā kaila śiva daraśana
 
 prabhāve 'vaiṣṇava' kaila saba śaiva-gaṇa

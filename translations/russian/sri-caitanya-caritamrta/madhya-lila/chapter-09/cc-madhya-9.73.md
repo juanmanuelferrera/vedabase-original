@@ -1,5 +1,8 @@
 ### CC Madhya 9.73
 
+> শ্বেতবরাহ দেখি, তাঁরে নমস্করি’ ।
+> পীতাম্বর-শিব-স্থানে গেলা গৌরহরি ॥৭৩॥
+
 > śveta-varāha dekhi, tāṅre namaskari'
 > pītāmbara-śiva-sthāne gelā gaurahari
 

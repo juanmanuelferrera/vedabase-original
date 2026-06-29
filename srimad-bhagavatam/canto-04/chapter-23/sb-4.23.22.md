@@ -1,5 +1,8 @@
 ### SB 4.23.22
 
+> विधाय कृत्यं ह्रदिनीजलाप्लुता दत्त्वोदकं भर्तुरुदारकर्मणः ।
+> नत्वा दिविस्थांस्त्रिदशांस्त्रिः परीत्य विवेश वह्निं ध्यायती भर्तृपादौ ॥२२॥
+
 > vidhāya kṛtyaṁ hradinī-jalāplutā
 > dattvodakaṁ bhartur udāra-karmaṇaḥ
 > natvā divi-sthāṁs tridaśāṁs triḥ parītya

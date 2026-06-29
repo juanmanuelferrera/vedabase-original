@@ -1,5 +1,8 @@
 ### CC Adi 10.58
 
+> ‘প্রদ্যুম্ন ব্রহ্মচারী’ তাঁর আগে নাম ছিল ।
+> ‘নৃসিংহানন্দ’ নাম প্রভু পাছে ত’ রাখিল ॥৫৮॥
+
 > 'pradyumna brahmacārī' tāṅra āge nāma chila
 > 'nṛsiṁhānanda' nāma prabhu pāche ta' rākhila
 

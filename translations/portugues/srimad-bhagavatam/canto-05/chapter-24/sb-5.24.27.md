@@ -1,5 +1,7 @@
 ### SB 5.24.27
 
+> तस्यानुचरितमुपरिष्टाद्विस्तरिष्यते यस्य भगवान्स्वयमखिलजगद्गुरुर्नारायणो द्वारिगदापाणिरवतिष्ठते निजजनानुकम्पितहृदयो येनाङ्गुष्ठेन पदा दशकन्धरो योजनायुतायुतं दिगविजय उच्चाटितः ॥२७॥
+
 *tasyānucaritam upariṣṭād vistariṣyate yasya bhagavān svayam akhila*-jagad-gurur nārāyaṇo dvāri gadā-pāṇir avatiṣṭhate nija-janānukampita-hṛdayo yenāṅguṣṭhena padā daśa-kandharo yojanāyutāyutaṁ dig-vijaya uccāṭitaḥ.
 
 *tasya*—de Bali Mahārāja; *anucaritam*—a narração; *upariṣṭāt*—mais tarde (no Oitavo Canto); *vistariṣyate*—será explicada; *yasya*—de quem; *bhagavān*—a Suprema Personalidade de Deus; *svayam*—pessoalmente; *akhila-jagat-guruḥ*—o mestre de todos os três mundos; *nārāyaṇaḥ*—o Senhor Supremo, o próprio Nārāyaṇa; *dvāri*—à porta; *gadā-pāṇiḥ*—portando a maça em Sua mão; *avatiṣṭhate*—permanece; *nija-jana-anukampita-hṛdayaḥ*—cujo coração está sempre cheio de misericórdia por Seus devotos; *yena*—por quem; *aṅguṣṭhena*—pelo dedão; *padā*—de Seu pé; *daśa-kandharaḥ*—Rāvaṇa, que tinha dez cabeças; *yojana-ayuta-ayutam*—uma distância de oitenta mil milhas; *dik-vijaye*—com o propósito de obter vitória sobre Bali Mahārāja; *uccāṭitaḥ*—expulso.

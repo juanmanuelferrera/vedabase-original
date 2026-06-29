@@ -1,5 +1,8 @@
 ### CC Madhya 6.16
 
+> মূর্চ্ছিত হৈল, চেতন না হয় শরীরে  ।
+> সার্বভৌম লঞা গেলা আপনার ঘরে ॥১৬॥
+
 > mūrcchita haila, cetana nā haya śarīre
 > sārvabhauma lañā gelā āpanāra ghare
 

@@ -1,5 +1,8 @@
 ### CC Madhya 10.115
 
+> বিদ্যাপতি, চণ্ডীদাস, শ্রীগীতগোবিন্দ ।
+> এই তিন গীতে করা’ন প্রভুর আনন্দ ॥১১৫॥
+
 > vidyāpati, caṇḍīdāsa, śrī-gīta-govinda
 > ei tina gīte karā'na prabhura ānanda
 

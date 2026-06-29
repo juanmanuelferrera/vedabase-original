@@ -1,5 +1,8 @@
 ### CC Madhya 20.398
 
+> ব্রজে কৃষ্ণ — সর্বৈশ্বর্যপ্ৰকাশে ‘পূর্ণতম’ ।
+> পুরীদ্বয়ে, পরব্যোমে — ‘পূর্ণতর,’ ‘পূর্ণ’ ॥৩৯৮॥
+
 > vraje kṛṣṇa--sarvaiśvarya-prakāśe 'pūrṇatama'
 > purī-dvaye, paravyome--'pūrṇatara', 'pūrṇa'
 

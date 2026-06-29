@@ -1,5 +1,8 @@
 ### CC Madhya 20.341
 
+> ধর্ম প্রবর্তন করে ব্রজেন্দ্রনন্দন ।
+> প্রেমে গায় নাচে লোক করে সঙ্কীর্তন ॥৩৪১॥
+
 > dharma pravartana kare vrajendra-nandana
 > preme gāya nāce loka kare saṅkīrtana
 

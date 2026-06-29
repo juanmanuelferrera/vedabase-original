@@ -1,5 +1,8 @@
 ### SB 8.3.25
 
+> जिजीविषे नाहमिहामुया किमन्तर्बहिश्चावृतयेभयोन्या
+> इच्छामि कालेन न यस्य विप्लवस्तस्यात्मलोकावरणस्य मोक्षम ॥२५॥
+
 > jijīviṣe nāham ihāmuyā kim
 > antar bahiś cāvṛtayebha-yonyā
 > icchāmi kālena na yasya viplavas

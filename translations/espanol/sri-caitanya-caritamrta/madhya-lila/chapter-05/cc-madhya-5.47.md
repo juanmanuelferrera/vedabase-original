@@ -1,5 +1,8 @@
 ### CC Madhya 5.47
 
+> ‘মোর ধর্ম রক্ষা পায়, না মরে নিজ-জন ৷
+> দুই রক্ষা কর, গোপাল, লইনু শরণ ।।’ ॥ ৪৭ ॥
+
 > 'mora dharma rakṣā pāya, nā mare nija-jana
 > dui rakṣā kara, gopāla, lainu śaraṇa'
 

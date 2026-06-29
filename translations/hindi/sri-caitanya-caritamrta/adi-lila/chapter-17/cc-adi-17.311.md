@@ -1,5 +1,8 @@
 ### CC Adi 17.311
 
+> লিখিত গ্রন্থের যদি করি অনুবাদ ।
+> তবে সে গ্রন্থের অর্থ পাইয়ে আস্বাদ ॥৩১১॥
+
 > likhita granthera yadi kari anuvāda
 > tabe se granthera artha pāiye āsvāda
 

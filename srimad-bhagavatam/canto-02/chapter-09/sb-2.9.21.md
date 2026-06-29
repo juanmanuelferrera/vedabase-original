@@ -1,5 +1,8 @@
 ### SB 2.9.21
 
+> वरं वरय भद्रं ते वरेशं माभिवाञ्छितम् ।
+> ब्रह्मञ्छ्रेयःपरिश्रामः पुंसां मद्दर्शनावधिः ॥२१॥
+
 > varaṁ varaya bhadraṁ te
 > vareśaṁ mābhivāñchitam
 > brahmañ chreyaḥ-pariśrāmaḥ

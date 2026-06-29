@@ -1,5 +1,8 @@
 ### CC Antya 10.129
 
+> আর দিন প্রভু যদি নিভৃতে ভোজন কৈলা ।
+> রাঘবের ঝালি খুলি’ সকল দেখিলা ॥১২৯॥
+
 > āra dina prabhu yadi nibhṛte bhojana kailā
 > rāghavera jhāli khuli' sakala dekhilā
 

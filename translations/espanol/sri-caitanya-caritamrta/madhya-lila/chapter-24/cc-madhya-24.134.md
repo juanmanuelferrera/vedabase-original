@@ -1,5 +1,8 @@
 ### CC Madhya 24.134
 
+> ভক্তিবলে ‘প্রাপ্তস্বরূপ’ দিব্যদেহ পায় ৷
+> কৃষ্ণগুণাকৃষ্ট হঞা ভজে কৃষ্ণ-পা’য় ॥১৩৪॥
+
 > bhakti-bale 'prāpta-svarūpa' divya-deha pāya
 > kṛṣṇa-guṇākṛṣṭa hañā bhaje kṛṣṇa-pā'ya
 

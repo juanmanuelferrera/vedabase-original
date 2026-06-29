@@ -1,5 +1,8 @@
 ### CC Adi 3.25
 
+> যদ্যদাচরতি শ্রেষ্ঠস্তত্তদেবেতরো জনঃ ।
+> স যৎ প্রমাণং কুরুতে লোকস্তদনুবর্ততে ॥২৫॥
+
 yad yad ācarati śreṣṭhas
 tat tad evetaro janaḥ
 sa yat pramāṇaṁ kurute

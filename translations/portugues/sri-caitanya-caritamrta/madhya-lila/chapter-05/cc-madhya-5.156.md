@@ -1,5 +1,8 @@
 ### CC Madhya 5.156
 
+> এত শুনি’ প্রভু আগে চলিলা শীঘ্রগতি ।
+> বুঝিতে না পারে কেহ দুই প্রভুর মতি ॥১৫৬॥
+
 eta śuni' prabhu āge calilā śīghra-gati
 bujhite nā pāre keha dui prabhura mati
 

@@ -1,5 +1,8 @@
 ### CC Antya 11.20
 
+> এত বলি’ মহাপ্রসাদ করিলা বন্দন ।
+> এক রঞ্চ লঞা তার করিলা ভক্ষণ ॥২০॥
+
 > eta bali' mahā-prasāda karilā vandana
 > eka rañca lañā tāra karilā bhakṣaṇa
 

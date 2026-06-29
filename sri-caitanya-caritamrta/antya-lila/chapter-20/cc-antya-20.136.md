@@ -1,5 +1,8 @@
 ### CC Antya 20.136
 
+> ঊনবিংশে — ভিত্ত্যে প্রভুর মুখসংঘর্ষণ ।
+> কৃষ্ণের বিরহ-স্ফূর্তি-প্রলাপ-বর্ণন ॥১৩৬॥
+
 > ūnaviṁśe—bhittye prabhura mukha-saṅgharṣaṇa
 > kṛṣṇera viraha-sphūrti-pralāpa-varṇana
 

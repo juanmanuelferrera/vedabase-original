@@ -1,5 +1,8 @@
 ### CC Madhya 3.61
 
+> মুকুন্দ, হরিদাস — দুই প্রভু বোলাইল ।
+> যোড়হাতে দুইজন কহিতে লাগিল ॥৬১॥
+
 mukunda, haridāsa,--dui prabhu bolāila
 yoḍa-hāte dui-jana kahite lāgila
 

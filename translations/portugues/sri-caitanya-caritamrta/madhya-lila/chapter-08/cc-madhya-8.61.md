@@ -1,5 +1,8 @@
 ### CC Madhya 8.61
 
+> প্রভু কহে, — “এহো বাহ্য, আগে কহ আর ৷”
+> রায় কহে, “স্বধর্ম-ত্যাগ, — এই সাধ্য-সার ৷৷” ৬১ ৷৷ ॥৬১॥
+
 prabhu kahe,--"eho bāhya, āge kaha āra"
 rāya kahe,--"svadharma-tyāga, ei sādhya-sāra"
 

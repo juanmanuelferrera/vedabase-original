@@ -1,5 +1,10 @@
 ### CC Madhya 2.88
 
+> ভাগবত — শ্লোকময়, টীকা তার সংস্কৃত হয়,
+> তবু কৈছে বুঝে ত্রিভুবন ।
+> ইহাঁ শ্লোক দুই চারি, তার ব্যাখ্যা ভাষা করি,
+> কেনে না বুঝিবে সর্বজন ॥৮৮॥
+
 > bhāgavata--śloka-maya, ṭīkā tāra saṁskṛta haya,
 > tabu kaiche bujhe tri-bhuvana
 > ihāṅ śloka dui cāri, tāra vyākhyā bhāṣā kari,

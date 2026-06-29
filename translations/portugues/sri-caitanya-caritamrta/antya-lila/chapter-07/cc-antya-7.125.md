@@ -1,5 +1,8 @@
 ### CC Antya 7.125
 
+> এত চিন্তি’ প্রাতে আসি’ প্রভুর চরণে ।
+> দৈন্য করি’ স্তুতি করি’ লইল শরণে ॥১২৫॥
+
 eta cinti' prāte āsi' prabhura caraṇe
 
 dainya kari' stuti kari' la-ila śaraṇe

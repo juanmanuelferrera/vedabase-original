@@ -1,5 +1,8 @@
 ### SB 4.22.57
 
+> दुर्धर्षस्तेजसेवाग्निर्महेन्द्र इव दुर्जयः ।
+> तितिक्षया धरित्रीव द्यौरिवाभीष्टदो नृणाम् ॥५७॥
+
 > durdharṣas tejasevāgnir
 > mahendra iva durjayaḥ
 > titikṣayā dharitrīva

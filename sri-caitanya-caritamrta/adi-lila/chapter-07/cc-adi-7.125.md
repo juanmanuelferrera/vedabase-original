@@ -1,5 +1,8 @@
 ### CC Adi 7.125
 
+> তথাপি অচিন্ত্যশক্ত্যে হয় অবিকারী ।
+> প্রাকৃত চিন্তামণি তাহে দৃষ্টান্ত যে ধরি ॥১২৫॥
+
 > tathāpi acintya-śaktye haya avikārī
 > prākṛta cintāmaṇi tāhe dṛṣṭānta ye dhari
 

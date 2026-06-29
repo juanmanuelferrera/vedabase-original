@@ -1,5 +1,8 @@
 ### CC Adi 4.93
 
+> কিংবা ‘কান্তি’-শব্দে কৃষ্ণের সব ইচ্ছা কহে ।
+> কৃষ্ণের সকল বাঞ্ছা রাধাতেই রহে ॥৯৩॥
+
 kimvā 'kānti'-śabde kṛṣṇera saba icchā kahe
 kṛṣṇera sakala vāñchā rādhātei rahe
 

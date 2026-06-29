@@ -1,5 +1,10 @@
 ### CC Adi 5.71
 
+> যস্যৈকনিশ্বসিত-কালমথাবলম্ব্য
+> জীবন্তি লোমবিলজা জগদণ্ডনাথাঃ ।
+> বিষ্ণুর্মহান্ স ইহ যস্য কলাবিশেষো
+> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥৭১॥
+
 yasyaika-niśvasita-kālam athāvalambya
 jīvanti loma-vila-jā jagad-aṇḍa-nāthāḥ
 viṣṇur mahān sa iha yasya kalā-viśeṣo

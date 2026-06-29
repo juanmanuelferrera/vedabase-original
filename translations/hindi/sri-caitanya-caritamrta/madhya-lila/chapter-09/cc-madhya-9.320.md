@@ -1,5 +1,8 @@
 ### CC Madhya 9.320
 
+> দণ্ডবৎ হঞা পড়ে চরণে ধরিয়া ।
+> আলিঙ্গন কৈল প্রভু তাঁরে উঠাঞা ॥৩২০॥
+
 > daṇḍavat hañā paḍe caraṇe dhariyā
 > āliṅgana kaila prabhu tāṅre uṭhāñā
 

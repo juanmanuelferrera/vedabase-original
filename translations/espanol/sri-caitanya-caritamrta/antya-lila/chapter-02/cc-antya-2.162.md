@@ -1,5 +1,8 @@
 ### CC Antya 2.162
 
+> বর্ষান্তরে শিবানন্দ সব ভক্ত লঞা ।
+> প্রভুরে মিলিলা আসি’ আনন্দিত হঞা ॥১৬২॥
+
 > varṣāntare śivānanda saba bhakta lañā
 > prabhure mililā āsi' ānandita hañā
 

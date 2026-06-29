@@ -1,5 +1,8 @@
 ### CC Adi 6.82
 
+> পিতা-মাতা-গুরু-সখা-ভাব কেনে নয় ।
+> কৃষ্ণপ্রেমের স্বভাবে দাস্য-ভাব সে করয় ॥৮২॥
+
 > pitā-mātā-guru-sakhā-bhāva kene naya
 > kṛṣṇa-premera svabhāve dāsya-bhāva se karaya
 

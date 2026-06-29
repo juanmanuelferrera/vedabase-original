@@ -1,5 +1,8 @@
 ### CC Antya 1.211
 
+> শ্রীরূপ কহেন, — “আমি কিছুই না জানি ।
+> যেই মহাপ্রভু কহান, সেই কহি বাণী ।।” ॥ ২১১ ॥
+
 śrī-rūpa kahena,--āmi kichui nā jāni
 
 yei mahāprabhu kahāna, sei kahi vāṇī

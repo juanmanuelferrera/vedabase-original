@@ -1,5 +1,8 @@
 ### CC Adi 5.157
 
+> নিত্যানন্দ-মহিমা-সিন্ধু অনন্ত, অপার ।
+> এক কণা স্পর্শি মাত্র, — সে কৃপা তাঁহার ॥১৫৭॥
+
 nityānanda-mahimā-sindhu ananta, apāra
 eka kaṇā sparśi mātra,--se kṛpā tāṅhāra
 

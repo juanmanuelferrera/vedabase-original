@@ -1,5 +1,8 @@
 ### CC Antya 5.59
 
+> এত কহি তারে লঞা নিভৃতে বসিলা ।
+> ‘কি কথা শুনিতে চাহ?’ মিশ্রেরে পুছিলা ॥৫৯॥
+
 eta kahi tāre lañā nibhṛte vasilā
 
 'ki kathā śunite cāha?' miśrere puchilā

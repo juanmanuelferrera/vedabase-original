@@ -1,5 +1,8 @@
 ### CC Antya 19.55
 
+> এইমত বিলপিতে অর্ধরাত্রি গেল ।
+> গম্ভীরাতে স্বরূপ-গোসাঞ্চি প্রভুরে শোয়াইল ॥৫৫॥
+
 ei-mata vilapite ardha-rātri gela
 
 gambhīrāte svarūpa-gosāñi prabhure śoyāila

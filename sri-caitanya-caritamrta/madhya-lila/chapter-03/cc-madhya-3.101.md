@@ -1,5 +1,8 @@
 ### CC Madhya 3.101
 
+> আচার্য কহে — না করিব সন্ন্যাসি-নিমন্ত্রণ ।
+> সন্ন্যাসী নাশিল মোর সব স্মৃতি-ধর্ম ॥১০১॥
+
 > ācārya kahe—nā kariba sannyāsi-nimantraṇa
 > sannyāsī nāśila mora saba smṛti-dharma
 

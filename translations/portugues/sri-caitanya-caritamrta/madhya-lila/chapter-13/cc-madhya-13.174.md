@@ -1,5 +1,8 @@
 ### CC Madhya 13.174
 
+> দেখিতে আকর্ষয়ে সবার চিত্ত-মন ।
+> প্রেমামৃতবৃষ্ট্যে প্রভু সিঞ্চে সবার মন ॥১৭৪॥
+
 dekhite ākarṣaye sabāra citta-mana
 
 premāmṛta-vṛṣṭye prabhu siñce sabāra mana

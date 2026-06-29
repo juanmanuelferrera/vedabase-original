@@ -1,5 +1,10 @@
 ### CC Adi 4.146
 
+> অপরিকলিতপূর্বঃ কশ্চমৎকারকারী
+> স্ফুরতি মম গরীয়ানেষ মাধুর্যপূরঃ ।
+> অয়মহমপি হন্ত প্রেক্ষ্য যং লুব্ধচেতাঃ
+> সরভসমুপভোক্তুং কাময়ে রাধিকেব ॥১৪৬॥
+
 > aparikalita-pūrvaḥ kaś camatkāra-kārī
 > sphurati mama garīyān eṣa mādhurya-pūraḥ
 > ayam aham api hanta prekṣya yaṁ lubdha-cetāḥ

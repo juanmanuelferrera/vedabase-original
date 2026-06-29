@@ -1,5 +1,8 @@
 ### CC Adi 10.81
 
+> বাণীনাথ বসু আদি যত গ্রামী জন ।
+> সবেই চৈতন্যভৃত্য, — চৈতন্য-প্রাণধন ॥৮১॥
+
 vāṇīnātha vasu ādi yata grāmī jana
 sabei caitanya-bhṛtya,--caitanya-prāṇadhana
 

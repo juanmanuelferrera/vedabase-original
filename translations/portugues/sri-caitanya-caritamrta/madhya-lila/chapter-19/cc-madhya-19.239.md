@@ -1,5 +1,8 @@
 ### CC Madhya 19.239
 
+> ‘আজ্ঞা হয়, আসি মুঞি শ্রীচরণ-সঙ্গে  ।
+> সহিতে না পারি মুঞি বিরহ-তরঙ্গে ।।’ ২৩৯ ॥২৩৯॥
+
 'ājñā haya, āsi muñi śrī-caraṇa-saṅge
 
 sahite nā pāri muñi viraha-taraṅge'

@@ -1,5 +1,8 @@
 ### CC Antya 9.93
 
+> আলালনাথ যাই’ তাহাঁ নিশ্চিন্তে রহিমু ।
+> বিষয়ীর ভাল মন্দ বার্তা না শুনিমু’ ।।” ॥ ৯৩ ॥
+
 > ālālanātha yāi' tāhāṅ niścinte rahimu
 > viṣayīra bhāla manda vārtā nā śunimu' "
 

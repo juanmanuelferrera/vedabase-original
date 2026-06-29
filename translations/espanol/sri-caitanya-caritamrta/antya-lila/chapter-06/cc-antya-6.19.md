@@ -1,5 +1,8 @@
 ### CC Antya 6.19
 
+> বার লক্ষ দেয় রাজায়, সাধে বিশ লক্ষ ।
+> সে ‘তুরুক্’ কিছু না পাঞা হৈল প্রতিপক্ষ ॥১৯॥
+
 > bāra lakṣa deya rājāya, sādhe biśa lakṣa
 > se 'turuk' kichu nā pāñā haila pratipakṣa
 

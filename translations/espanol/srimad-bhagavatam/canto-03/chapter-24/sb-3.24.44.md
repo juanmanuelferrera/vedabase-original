@@ -1,5 +1,8 @@
 ### SB 3.24.44
 
+> निरहङ्कृतिर्निर्ममश्च निर्द्वन्द्वः समदृक्स्वदृक् ।
+> प्रत्यक्प्रशान्तधीर्धीरः प्रशान्तोर्मिरिवोदधिः ॥४४॥
+
 > nirahaṅkṛtir nirmamaś ca
 > nirdvandvaḥ sama-dṛk sva-dṛk
 > pratyak-praśānta-dhīr dhīraḥ

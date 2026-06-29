@@ -1,5 +1,8 @@
 ### CC Madhya 20.41
 
+> দুইজন মিলি’ তথা ইষ্টগোষ্ঠী কৈল ।
+> বন্ধন-মোক্ষণ-কথা গোসাঞি সকলি কহিল ॥৪১॥
+
 dui-jana mili' tathā iṣṭa-goṣṭhī kaila
 
 bandhana-mokṣaṇa-kathā gosāñi sakali kahila

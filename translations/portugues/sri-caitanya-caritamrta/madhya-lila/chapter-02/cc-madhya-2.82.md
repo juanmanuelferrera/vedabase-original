@@ -1,5 +1,10 @@
 ### CC Madhya 2.82
 
+> এই গুপ্ত ভাব-সিন্ধু, ব্রহ্মা না পায় এক বিন্দু,
+> হেন ধন বিলাইল সংসারে ।
+> ঐছে দয়ালু অবতার, ঐছে দাতা নাহি আর,
+> গুণ কেহ নারে বর্ণিবারে ॥৮২॥
+
 ei gupta bhāva-sindhu, brahmā nā pāya eka bindu,
 hena dhana vilāila saṁsāre
 aiche dayālu avatāra, aiche dātā nāhi āra,

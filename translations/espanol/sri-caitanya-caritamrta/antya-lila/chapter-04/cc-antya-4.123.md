@@ -1,5 +1,8 @@
 ### CC Antya 4.123
 
+> প্রভু কহে, — “তপ্ত-বালুকাতে কেমনে আইলা ?
+> সিংহদ্বারের পথ — শীতল, কেনে না আইলা ? ॥ ১২৩ ॥
+
 > prabhu kahe,--"tapta-vālukāte kemane āilā?
 > siṁha-dvārera patha--śītala, kene nā āilā?
 

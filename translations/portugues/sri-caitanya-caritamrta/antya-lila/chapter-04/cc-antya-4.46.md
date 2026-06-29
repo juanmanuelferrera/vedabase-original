@@ -1,5 +1,8 @@
 ### CC Antya 4.46
 
+> সেই ভক্ত ধন্য, যে না ছাড়ে প্রভুর চরণ ।
+> সেই প্রভু ধন্য, যে না ছাড়ে নিজ-জন ॥৪৬॥
+
 sei bhakta dhanya, ye nā chāḍe prabhura caraṇa
 
 sei prabhu dhanya, ye nā chāḍe nija-jana

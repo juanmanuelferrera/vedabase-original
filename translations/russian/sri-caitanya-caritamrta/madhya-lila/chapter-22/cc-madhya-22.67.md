@@ -1,5 +1,8 @@
 ### CC Madhya 22.67
 
+> শাস্ত্র-যুক্তি নাহি জানে দৃঢ়, শ্রদ্ধাবান্ ।
+> ‘মধ্যম-অধিকারী’ সেই মহা-ভাগ্যবান্ ॥৬৭॥
+
 > śāstra-yukti nāhi jāne dṛḍha, śraddhāvān
 > 'madhyama-adhikārī' sei mahā-bhāgyavān
 

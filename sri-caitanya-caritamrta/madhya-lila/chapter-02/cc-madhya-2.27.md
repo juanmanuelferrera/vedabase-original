@@ -1,5 +1,10 @@
 ### CC Madhya 2.27
 
+> এতেক বিলাপ করি’, বিষাদে শ্রীগৌরহরি,
+> উঘাড়িয়া দুঃখের কপাট ।
+> ভাবের তরঙ্গ-বলে, নানারূপে মন চলে,
+> আর এক শ্লোক কৈল পাঠ ॥২৭॥
+
 > eteka vilāpa kari', viṣāde śrī-gaurahari,
 > ughāḍiyā duḥkhera kapāṭa
 > bhāvera taraṅga-bale, nānā-rūpe mana cale,

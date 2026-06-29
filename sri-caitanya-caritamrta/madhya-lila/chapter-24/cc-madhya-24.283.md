@@ -1,5 +1,8 @@
 ### CC Madhya 24.283
 
+> এই আর তিন অর্থ গণনাতে পাইল ।
+> এই দুই অর্থ মিলি’ ‘ছাব্বিশ’ অর্থ হৈল ॥২৮৩॥
+
 > ei āra tina artha gaṇanāte pāila
 > ei dui artha mili' 'chābbiśa' artha haila
 

@@ -1,5 +1,8 @@
 ### CC Adi 5.105
 
+> রুদ্ররূপ ধরি’ করে জগৎ সংহার ।
+> সৃষ্টি-স্থিতি-প্রলয় — ইচ্ছায় যাঁহার ॥১০৫॥
+
 > rudra-rūpa dhari' kare jagat saṁhāra
 > sṛṣṭi-sthiti-pralaya—icchāya yāṅhāra
 

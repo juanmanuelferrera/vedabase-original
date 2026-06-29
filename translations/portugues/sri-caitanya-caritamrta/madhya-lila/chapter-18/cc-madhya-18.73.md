@@ -1,5 +1,8 @@
 ### CC Madhya 18.73
 
+> চেতন পাঞা পুনঃ গড়াগড়ি যায় ।
+> হাসে, কান্দে, নাচে, পড়ে, উচ্চৈঃস্বরে গায় ॥৭৩॥
+
 cetana pāñā punaḥ gaḍāgaḍi yāya
 
 hāse, kānde, nāce, paḍe, uccaiḥ-svare gāya

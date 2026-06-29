@@ -1,5 +1,8 @@
 ### CC Madhya 25.28
 
+> শ্রীকৃষ্ণচৈতন্য-বাক্য দৃঢ় সত্য মানি ।
+> কলিকালে সন্ন্যাসে ‘সংসার’ নাহি জিনি ॥২৮॥
+
 śrī-kṛṣṇa-caitanya-vākya dṛḍha satya māni
 
 kali-kāle sannyāse 'saṁsāra' nāhi jini

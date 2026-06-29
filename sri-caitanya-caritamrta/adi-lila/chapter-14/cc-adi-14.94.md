@@ -1,5 +1,8 @@
 ### CC Adi 14.94
 
+> কত দিনে মিশ্র পুত্রের হাতে খড়ি দিল ।
+> অল্প দিনে দ্বাদশ-ফলা অক্ষর শিখিল ॥৯৪॥
+
 > kata dine miśra putrera hāte khaḍi dila
 > alpa dine dvādaśa-phalā akṣara śikhila
 

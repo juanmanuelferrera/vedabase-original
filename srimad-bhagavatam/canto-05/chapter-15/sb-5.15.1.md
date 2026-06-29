@@ -1,5 +1,8 @@
 ### SB 5.15.1
 
+> श्रीशुक उवाच
+> भरतस्यात्मजः सुमतिर्नामाभिहितो यमु ह वाव केचित्पाखण्डिन ऋषभपदवीमनुवर्तमानं चानार्या अवेदसमाम्नातां देवतां स्वमनीषया पापीयस्या कलौ कल्पयिष्यन्ति ॥१॥
+
 > śrī-śuka uvāca
 > bharatasyātmajaḥ sumatir nāmābhihito yam u ha vāva kecit pākhaṇḍina ṛṣabha-padavīm anuvartamānaṁ cānāryā aveda-samāmnātāṁ devatāṁ sva-manīṣayā pāpīyasyā kalau kalpayiṣyanti.
 

@@ -1,5 +1,8 @@
 ### CC Antya 11.85
 
+> প্রভু না খাইলে কেহ না করে ভোজন ।
+> প্রভুরে সে দিনে কাশীমিশ্রের নিমন্ত্রণ ॥৮৫॥
+
 > prabhu nā khāile keha nā kare bhojana
 > prabhure se dine kāśī-miśrera nimantraṇa
 

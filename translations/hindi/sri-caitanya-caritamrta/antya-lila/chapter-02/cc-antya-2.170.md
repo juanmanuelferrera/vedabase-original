@@ -1,5 +1,8 @@
 ### CC Antya 2.170
 
+> মধুর চৈতন্যলীলা — সমুদ্র-গম্ভীর ।
+> লোকে নাহি বুঝে, বুঝে যেই ‘ভক্ত’ ‘ধীর’ ॥১৭০॥
+
 > madhura caitanya-līlā--samudra-gambhīra
 > loke nāhi bujhe, bujhe yei 'bhakta' 'dhīra'
 

@@ -1,5 +1,8 @@
 ### CC Madhya 9.275
 
+> তথাপি মধ্বাচার্য যে করিয়াছে নির্বন্ধ ।
+> সেই আচরিয়ে সবে সম্প্রদায়-সম্বন্ধ ॥২৭৫॥
+
 > tathāpi madhvācārya ye kariyāche nirbandha
 > sei ācariye sabe sampradāya-sambandha
 

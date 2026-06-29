@@ -1,5 +1,8 @@
 ### CC Adi 6.57
 
+> তেঁহো রতি-মতি মাগে কৃষ্ণের চরণে ।
+> তাহার শ্রীমুখবাণী তাহাতে প্রমাণে ॥৫৭॥
+
 teṅho rati-mati māge kṛṣṇera caraṇe
 tāhāra śrī-mukha-vāṇī tāhāte pramāṇe
 

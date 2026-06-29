@@ -1,5 +1,8 @@
 ### SB 5.13.13
 
+> अन्योन्यवित्तव्यतिषङ्गवृद्ध वैरानुबन्धो विवहन्मिथश्च
+> अध्वन्यमुष्मिन्नुरुकृच्छ्रवित्त बाधोपसर्गैर्विहरन्विपन्नः ॥१३॥
+
 > anyonya-vitta-vyatiṣaṅga-vṛddha-
 > vairānubandho vivahan mithaś ca
 > adhvany amuṣminn uru-kṛcchra-vitta-

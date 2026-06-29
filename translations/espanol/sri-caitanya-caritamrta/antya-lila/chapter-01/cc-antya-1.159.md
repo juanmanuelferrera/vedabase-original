@@ -1,5 +1,10 @@
 ### CC Antya 1.159
 
+> বৃন্দাবনং দিব্যলতা-পরীতং
+> লতাশ্চ পুষ্পস্ফুরিতাগ্রভাজঃ ।
+> পুষ্পাণি চ স্ফীতমধুব্রতানি
+> মধুব্রতাশ্চ শ্রুতিহারিগীতাঃ ॥১৫৯॥
+
 > vṛndāvanaṁ divya-latā-parītaṁ
 > latāś ca puṣpa-sphuritāgra-bhājaḥ
 > puṣpāṇi ca sphīta-madhu-vratāni

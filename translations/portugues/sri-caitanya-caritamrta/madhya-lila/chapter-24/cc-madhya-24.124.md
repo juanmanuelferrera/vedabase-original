@@ -1,5 +1,8 @@
 ### CC Madhya 24.124
 
+> সেই সবের সাধুসঙ্গে গুণ স্ফুরায় ।
+> কৃষ্ণভজন করায়, ‘মুমুক্ষা’ ছাড়ায় ॥১২৪॥
+
 sei sabera sādhu-saṅge guṇa sphurāya
 
 kṛṣṇa-bhajana karāya, 'mumukṣā' chāḍāya

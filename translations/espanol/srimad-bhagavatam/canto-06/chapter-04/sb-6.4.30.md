@@ -1,5 +1,8 @@
 ### SB 6.4.30
 
+> यस्मिन्यतो येन च यस्य यस्मै यद्यो यथा कुरुते कार्यते च
+> परावरेषां परमं प्राक्प्रसिद्धं तद्ब्रह्म तद्धेतुरनन्यदेकम ॥३०॥
+
 > yasmin yato yena ca yasya yasmai
 > yad yo yathā kurute kāryate ca
 > parāvareṣāṁ paramaṁ prāk prasiddhaṁ

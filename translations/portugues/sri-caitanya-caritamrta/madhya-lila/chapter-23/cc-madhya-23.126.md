@@ -1,5 +1,8 @@
 ### CC Madhya 23.126
 
+> প্রভুর উপদেশামৃত শুনে যেই জন ।
+> অচিরাৎ মিলয়ে তাঁরে কৃষ্ণপ্রেমধন ॥১২৬॥
+
 prabhura upadeśāmṛta śune yei jana
 
 acirāt milaye tāṅre kṛṣṇa-prema-dhana

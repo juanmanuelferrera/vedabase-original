@@ -1,5 +1,8 @@
 ### CC Adi 15.33
 
+> অতএব দিঙ্মাত্র ইহাঁ দেখাইল ।
+> ‘চৈতন্যমঙ্গলে’ সর্বলোকে খ্যাত হৈল ॥৩৩॥
+
 ataeva diṅmātra ihāṅ dekhāila
 'caitanya-maṅgale' sarva-loke khyāta haila
 

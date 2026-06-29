@@ -1,5 +1,7 @@
 ### CC Madhya 15.48
 
+> তাঁর সেবা ছাড়ি’ আমি করিয়াছি সন্ন্যাস । ধর্ম নহে, করি আমি নিজ ধর্ম-নাশ ॥৪৮॥
+
 > tāṅra sevā chāḍi' āmi kariyāchi sannyāsa
 > dharma nahe, kari āmi nija dharma-nāśa
 

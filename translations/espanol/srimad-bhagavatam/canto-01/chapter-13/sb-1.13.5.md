@@ -1,5 +1,8 @@
 ### SB 1.13.5
 
+> प्रत्युज्जग्मुः प्रहर्षेण प्राणं तन्व इवागतम् ।
+> अभिसङ्गम्य विधिवत्परिष्वङ्गाभिवादनैः ॥५॥
+
 > pratyujjagmuḥ praharṣeṇa
 > prāṇaṁ tanva ivāgatam
 > abhisaṅgamya vidhivat

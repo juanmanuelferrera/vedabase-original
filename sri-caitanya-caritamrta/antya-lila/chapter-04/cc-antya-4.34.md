@@ -1,5 +1,8 @@
 ### CC Antya 4.34
 
+> “শুনহ বল্লভ, কৃষ্ণ — পরম-মধুর  ।
+> সৌন্দর্য, মাধুর্য, প্রেম-বিলাস — প্রচুর ॥৩৪॥
+
 > śunaha vallabha, kṛṣṇa—parama-madhura
 > saundarya, mādhurya, prema-vilāsa—pracura
 

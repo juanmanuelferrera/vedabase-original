@@ -1,5 +1,7 @@
 ### SB 5.5.34
 
+> एवं गोमृगकाकचर्यया व्रजंस्तिष्ठन्नासीनः शयानः काकमृगगोचरितः पिबतिखादत्यवमेहति स्म ॥३४॥
+
 > evaṁ go-mṛga-kāka-caryayā vrajaṁs tiṣṭhann āsīnaḥ śayānaḥ kāka-mṛga-go-caritaḥ pibati khādaty avamehati sma.
 
 *evam*—thus; *go*—of cows; *mṛga*—deer; *kāka*—crows; *caryayā*—by the activities; *vrajan*—moving; *tiṣṭhan*—standing; *āsīnaḥ*—sitting; *śayānaḥ*—lying down; *kāka-mṛga-go-caritaḥ*—behaving exactly like the crows, deer and cows; *pibati*—drinks; *khādati*—eats; *avamehati*—passes urine; *sma*—He did so.

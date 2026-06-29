@@ -1,5 +1,8 @@
 ### CC Adi 17.239
 
+> ‘বল’ ‘বল’ বলে প্রভু শুনিতে উল্লাস ।
+> শ্রীবাস কহেন তবে রাস রসের বিলাস ॥২৩৯॥
+
 > 'bala' 'bala' bale prabhu śunite ullāsa
 > śrīvāsa kahena tabe rāsa rasera vilāsa
 

@@ -1,5 +1,8 @@
 ### SB 5.19.13
 
+> इदं हि योगेश्वर योगनैपुणं हिरण्यगर्भो भगवाञ्जगाद यत
+> यदन्तकाले त्वयि निर्गुणे मनो भक्त्या दधीतोज्झितदुष्कलेवरः ॥१३॥
+
 > idaṁ hi yogeśvara yoga-naipuṇaṁ
 > hiraṇyagarbho bhagavāñ jagāda yat
 > yad anta-kāle tvayi nirguṇe mano

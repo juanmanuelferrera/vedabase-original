@@ -1,5 +1,8 @@
 ### CC Madhya 8.15
 
+> তাঁর সঙ্গে বহু আইলা বৈদিক ব্রাহ্মণ ৷
+> বিধিমতে কৈল তেঁহো স্নানাদি-তর্পণ ৷৷ ১৫ ৷৷ ॥১৫॥
+
 tāṅra saṅge bahu āilā vaidika brāhmaṇa
 
 vidhi-mate kaila teṅho snānādi-tarpaṇa

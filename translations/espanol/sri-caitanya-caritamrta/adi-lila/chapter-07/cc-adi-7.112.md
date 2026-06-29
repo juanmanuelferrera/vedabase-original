@@ -1,5 +1,8 @@
 ### CC Adi 7.112
 
+> তাঁহার বিভূতি, দেহ, — সব চিদাকার ।
+> চিদ্বিভূতি আচ্ছাদি’ তাঁরে কহে ‘নিরাকার’ ॥১১২॥
+
 > tāṅhāra vibhūti, deha,--saba cid-ākāra
 > cid-vibhūti ācchādi' tāṅre kahe 'nirākāra'
 

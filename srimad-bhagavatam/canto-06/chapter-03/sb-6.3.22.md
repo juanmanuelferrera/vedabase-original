@@ -1,5 +1,8 @@
 ### SB 6.3.22
 
+> एतावानेव लोकेऽस्मिन्पुंसां धर्मः परः स्मृतः
+> भक्तियोगो भगवति तन्नामग्रहणादिभिः ॥२२॥
+
 > etāvān eva loke 'smin
 > puṁsāṁ dharmaḥ paraḥ smṛtaḥ
 > bhakti-yogo bhagavati

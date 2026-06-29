@@ -1,5 +1,8 @@
 ### CC Antya 20.132
 
+> কৃষ্ণের শব্দ-গুণে প্রভুর মন আকর্ষিলা ।
+> “কাস্ত্র্যঙ্গ তে” শ্লোকের অর্থ আবেশে করিলা ॥১৩২॥
+
 > kṛṣṇera śabda-guṇe prabhura mana ākarṣilā
 > "kā stry aṅga te" ślokera artha āveśe karilā
 

@@ -1,5 +1,8 @@
 ### CC Antya 9.139
 
+> শুদ্ধ কৃপা কর, গোসাঞি, ঘুচাহ ‘বিষয়’ ।
+> নির্বিণ্ণ হইনু, মোতে ‘বিষয়’ না হয় ।।” ॥ ১৩৯ ॥
+
 śuddha kṛpā kara, gosāñi, ghucāha 'viṣaya'
 
 nirviṇṇa ha-inu, mote 'viṣaya' nā haya"

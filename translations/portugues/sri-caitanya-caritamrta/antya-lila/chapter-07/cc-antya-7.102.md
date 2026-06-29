@@ -1,5 +1,8 @@
 ### CC Antya 7.102
 
+> আচার্যাদি-আগে ভট্ট যবে যবে যায় ।
+> রাজহংস-মধ্যে যেন রহে বকপ্রায় ॥১০২॥
+
 ācāryādi-āge bhaṭṭa yabe yabe yāya
 
 rājahaṁsa-madhye yena rahe baka-prāya

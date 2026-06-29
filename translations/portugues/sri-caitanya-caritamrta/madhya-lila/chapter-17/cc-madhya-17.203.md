@@ -1,5 +1,8 @@
 ### CC Madhya 17.203
 
+> তা-সবার প্রীতি দেখি’ প্রভু ভাবাবেশে ।
+> সবা-সনে ক্রীড়া করে হঞা তার বশে ॥২০৩॥
+
 tā-sabāra prīti dekhi' prabhu bhāvāveśe
 
 sabā-sane krīḍā kare hañā tāra vaśe

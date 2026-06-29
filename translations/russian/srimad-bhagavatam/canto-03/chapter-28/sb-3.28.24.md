@@ -1,5 +1,10 @@
 ### SB 3.28.24
 
+> ऊरू सुपर्णभुजयोरधि शोभमानाव्
+> ओजोनिधी अतसिकाकुसुमावभासौ ।
+> व्यालम्बिपीतवरवाससि वर्तमान
+> काञ्चीकलापपरिरम्भि नितम्बबिम्बम् ॥२४॥
+
 > ūrū suparṇa-bhujayor adhi śobhamānāv
 > ojo-nidhī atasikā-kusumāvabhāsau
 > vyālambi-pīta-vara-vāsasi vartamāna-

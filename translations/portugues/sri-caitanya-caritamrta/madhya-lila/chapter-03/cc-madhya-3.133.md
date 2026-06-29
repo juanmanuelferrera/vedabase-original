@@ -1,5 +1,8 @@
 ### CC Madhya 3.133
 
+> তিন দিন উপবাসে করিয়া ভোজন ।
+> উদ্দণ্ড-নৃত্যেতে প্রভুর হৈল পরিশ্রম ॥১৩৩॥
+
 tina dina upavāse kariyā bhojana
 
 uddaṇḍa-nṛtyete prabhura haila pariśrama

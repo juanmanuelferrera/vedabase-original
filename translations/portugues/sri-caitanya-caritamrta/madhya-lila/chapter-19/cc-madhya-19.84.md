@@ -1,5 +1,8 @@
 ### CC Madhya 19.84
 
+> ভয়ে ভট্ট সঙ্গে রহে, মধ্যাহ্ন করাঞা ।
+> নিজ-গৃহে আনিলা প্রভুরে সঙ্গেতে লঞা ॥৮৪॥
+
 bhaye bhaṭṭa saṅge rahe, madhyāhna karāñā
 
 nija-gṛhe ānilā prabhure saṅgete lañā

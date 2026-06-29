@@ -1,5 +1,8 @@
 ### CC Madhya 11.118
 
+> যদা যমনুগৃহ্ণাতি ভগবানাত্মভাবিতঃ ।
+> স জহাতি মতিং লোকে বেদে চ পরিনিষ্ঠিতাম্ ॥১১৮॥
+
 > yadā yam anugṛhṇāti
 > bhagavān ātma-bhāvitaḥ
 > sa jahāti matiṁ loke

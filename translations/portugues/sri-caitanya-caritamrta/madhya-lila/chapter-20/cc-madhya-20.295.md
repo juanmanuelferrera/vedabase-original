@@ -1,5 +1,8 @@
 ### CC Madhya 20.295
 
+> বিরাট্ ব্যষ্টি-জীবের তেঁহো অন্তর্যামী ।
+> ক্ষীরোদকশায়ী তেঁহো — পালনকর্তা, স্বামী ॥২৯৫॥
+
 virāṭ vyaṣṭi-jīvera teṅho antaryāmī
 
 kṣīrodakaśāyī teṅho--pālana-kartā, svāmī

@@ -1,5 +1,8 @@
 ### CC Antya 5.141
 
+> বন্দ্যাভাবে ‘অনম্র’ — ‘স্তব্ধ’-শব্দে কয় ।
+> যাহা হৈতে অন্য ‘বিজ্ঞ’ নাহি — সে ‘অজ্ঞ’ হয় ॥১৪১॥
+
 > vandyābhāve 'anamra'—'stabdha'-śabde kaya
 > yāhā haite anya 'vijña' nāhi—se 'ajña' haya
 

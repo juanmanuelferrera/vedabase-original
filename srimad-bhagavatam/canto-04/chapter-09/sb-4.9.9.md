@@ -1,5 +1,10 @@
 ### SB 4.9.9
 
+> नूनं विमुष्टमतयस्तव मायया ते
+> ये त्वां भवाप्ययविमोक्षणमन्यहेतोः ।
+> अर्चन्ति कल्पकतरुं कुणपोपभोग्यम्
+> इच्छन्ति यत्स्पर्शजं निरयेऽपि न्णाम् ॥९॥
+
 > nūnaṁ vimuṣṭa-matayas tava māyayā te
 > ye tvāṁ bhavāpyaya-vimokṣaṇam anya-hetoḥ
 > arcanti kalpaka-taruṁ kuṇapopabhogyam

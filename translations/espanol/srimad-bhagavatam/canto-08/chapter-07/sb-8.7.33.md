@@ -1,5 +1,10 @@
 ### SB 8.7.33
 
+> कामाध्वरत्रिपुरकालगराद्यनेक
+> भूतद्रुहः क्षपयतः स्तुतये न तत्ते
+> यस्त्वन्तकाल इदमात्मकृतं स्वनेत्र
+> वह्निस्फुलिङ्गशिखया भसितं न वेद ॥३३॥
+
 > ye tv ātma-rāma-gurubhir hṛdi cintitāṅghri-
 > dvandvaṁ carantam umayā tapasābhitaptam
 > katthanta ugra-paruṣaṁ nirataṁ śmaśāne

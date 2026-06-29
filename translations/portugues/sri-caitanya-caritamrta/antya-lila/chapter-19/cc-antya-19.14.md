@@ -1,5 +1,8 @@
 ### CC Antya 19.14
 
+> মাতৃভক্তগণের প্রভু হন শিরোমণি ।
+> সন্ন্যাস করিয়া সদা সেবেন জননী ॥১৪॥
+
 mātṛ-bhakta-gaṇera prabhu hana śiromaṇi
 sannyāsa kariyā sadā sevena jananī
 

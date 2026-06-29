@@ -1,5 +1,8 @@
 ### CC Madhya 8.158
 
+> সুখরূপ কৃষ্ণ করে সুখ আস্বাদন ৷
+> ভক্তগণে সুখ দিতে ‘হ্লাদিনী’ — কারণ ৷৷ ১৫৮ ৷৷ ॥১৫৮॥
+
 sukha-rūpa kṛṣṇa kare sukha āsvādana
 
 bhakta-gaṇe sukha dite 'hlādinī'--kāraṇa

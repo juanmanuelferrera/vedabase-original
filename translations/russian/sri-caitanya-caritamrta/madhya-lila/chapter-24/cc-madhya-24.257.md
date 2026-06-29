@@ -1,5 +1,8 @@
 ### CC Madhya 24.257
 
+> ব্যাধ কহে, — ‘ধনুক ভাঙ্গিলে বর্তিব কেমনে ?’
+> নারদ কহে, — ‘আমি অন্ন দিব প্রতিদিনে ।।’ ॥ ২৫৭ ॥
+
 > vyādha kahe,—'dhanuka bhāṅgile vartiba kemane?'
 > nārada kahe,—'āmi anna diba prati-dine'
 

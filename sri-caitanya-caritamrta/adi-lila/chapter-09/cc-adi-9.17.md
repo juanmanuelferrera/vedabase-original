@@ -1,5 +1,8 @@
 ### CC Adi 9.17
 
+> স্কন্ধের উপরে বহু শাখা উপজিল।
+> উপরি উপরি শাখা অসংখ্য হইল ॥১৭॥
+
 > skandhera upare bahu śākhā upajila
 > upari upari śākhā asaṅkhya ha-ila
 

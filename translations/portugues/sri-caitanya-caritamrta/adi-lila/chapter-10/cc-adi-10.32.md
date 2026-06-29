@@ -1,5 +1,8 @@
 ### CC Adi 10.32
 
+> দণ্ড-কথা কহিব আগে বিস্তার করিয়া ।
+> দণ্ডে তুষ্ট প্রভু তাঁরে পাঠাইলা নদীয়া ॥৩২॥
+
 daṇḍa-kathā kahiba āge vistāra kariyā
 
 daṇḍe tuṣṭa prabhu tāṅre pāṭhāilā nadīyā

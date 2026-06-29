@@ -1,5 +1,8 @@
 ### CC Antya 2.46
 
+> পৌষ-মাস আইল দুহেঁ সামগ্রী করিয়া ।
+> সন্ধ্যা-পর্যন্ত রহে অপেক্ষা করিয়া ॥৪৬॥
+
 > pauṣa-māse āila duṅhe sāmagrī kariyā
 > sandhyā-paryanta rahe apekṣā kariyā
 

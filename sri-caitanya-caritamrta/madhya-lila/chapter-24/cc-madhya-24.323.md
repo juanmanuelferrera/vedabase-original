@@ -1,5 +1,8 @@
 ### CC Madhya 24.323
 
+> আমা-হেন যেবা কেহ ‘বাতুল’ হয় ।
+> এইদৃষ্টে ভাগবতের অর্থ জানয় ।।” ॥ ৩২৩ ॥
+
 > āmā-hena yebā keha 'vātula' haya
 > ei-dṛṣṭe bhāgavatera artha jānaya"
 

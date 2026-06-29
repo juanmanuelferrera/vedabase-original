@@ -1,5 +1,8 @@
 ### CC Antya 18.6
 
+> প্রভু প্রেমাবেশে করেন গান, নর্তন ।
+> কভু ভাবাবেশে রাসলীলানুকরণ ॥৬॥
+
 > prabhu premāveśe karena gāna, nartana
 > kabhu bhāvāveśe rāsa-līlānukaraṇa
 

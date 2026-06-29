@@ -1,5 +1,8 @@
 ### CC Madhya 3.45
 
+> সার্দ্রক, বাস্তুক-শাক বিবিধ প্রকার ।
+> পটোল, কুষ্মাণ্ড-বড়ি, মানকচু আর ॥৪৫॥
+
 > sārdraka, vāstuka-śāka vividha prakāra
 > paṭola, kuṣmāṇḍa-baḍi, mānakacu āra
 

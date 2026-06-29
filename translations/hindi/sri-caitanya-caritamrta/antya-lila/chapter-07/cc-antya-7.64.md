@@ -1,5 +1,8 @@
 ### CC Antya 7.64
 
+> পরমানন্দ পুরী-সঙ্গে সন্ন্যাসীর গণ ।
+> একদিকে বৈসে সব করিতে ভোজন ॥৬৪॥
+
 > paramānanda purī-saṅge sannyāsīra gaṇa
 > eka-dike vaise saba karite bhojana
 

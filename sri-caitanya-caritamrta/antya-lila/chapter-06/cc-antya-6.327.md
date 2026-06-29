@@ -1,5 +1,10 @@
 ### CC Antya 6.327
 
+> মহাসম্পদ্দাবাদপি পতিতমুদ্ধৃত্য কৃপয়া
+> স্বরূপে যঃ স্বীয়ে কুজনমপি মাং ন্যস্য মুদিতঃ ।
+> উরোগুঞ্জাহারং প্রিয়মপি চ গোবর্ধনশিলাং
+> দদৌ মে গৌরাঙ্গো হৃদয় উদয়ন্মাং মদয়তি ॥৩২৭॥
+
 > mahā-sampad-dāvād api patitam uddhṛtya kṛpayā
 > svarūpe yaḥ svīye kujanam api māṁ nyasya muditaḥ
 > uro-guñjā-hāraṁ priyam api ca govardhana-śilāṁ

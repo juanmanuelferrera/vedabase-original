@@ -1,5 +1,8 @@
 ### CC Madhya 20.326
 
+> রৈবতে ‘বৈকুণ্ঠ’, চাক্ষুষে ‘অজিত’, বৈবস্বতে ‘বামন’ ।
+> সাবর্ণ্যে ‘সার্বভৌম’, দক্ষসাবর্ণ্যে ‘ঋষভ’ গণন ॥৩২৬॥
+
 raivate 'vaikuṇṭha' cākṣuṣe 'ajita', vaivasvate 'vāmana'
 
 sāvarṇye 'sārvabhauma', dakṣa-sāvarṇye 'ṛṣabha' gaṇana

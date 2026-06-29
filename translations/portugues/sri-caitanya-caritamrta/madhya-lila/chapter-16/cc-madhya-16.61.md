@@ -1,5 +1,8 @@
 ### CC Madhya 16.61
 
+> তাঁর মুখ দেখি’ হাসে শচীর নন্দন ।
+> অঙ্গীকার জানি’ আচার্য করেন নর্তন ॥৬১॥
+
 tāṅra mukha dekhi' hāse śacīra nandana
 
 aṅgīkāra jāni' ācārya karena nartana

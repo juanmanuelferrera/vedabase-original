@@ -1,5 +1,8 @@
 ### CC Madhya 20.124
 
+> বেদশাস্ত্র কহে — ‘সম্বন্ধ’, ‘অভিধেয়,’ ‘প্রয়োজন’ ।
+> ‘কৃষ্ণ’ — প্রাপ্য সম্বন্ধ, ‘ভক্তি’ — প্রাপ্ত্যের সাধন ॥১২৪॥
+
 > veda-śāstra kahe--'sambandha' 'abhidheya' 'prayojana'
 > 'kṛṣṇa'--prāpya sambandha, 'bhakti'--prāptyera sādhana
 

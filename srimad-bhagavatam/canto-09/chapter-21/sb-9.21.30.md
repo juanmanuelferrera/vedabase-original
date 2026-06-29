@@ -1,5 +1,8 @@
 ### SB 9.21.30
 
+> ततो बहुरथो नाम पुरुमीढोऽप्रजोऽभवत
+> नलिन्यामजमीढस्य नीलः शान्तिस्तु तत्सुतः ॥३०॥
+
 > tato bahuratho nāma
 > purumīḍho 'prajo 'bhavat
 > nalinyām ajamīḍhasya

@@ -1,5 +1,8 @@
 ### CC Adi 5.130
 
+> কেহো কহে, কৃষ্ণ ক্ষীরোদশায়ী অবতার ।
+> অসম্ভব নহে, সত্য বচন সবার ॥১৩০॥
+
 keho kahe, kṛṣṇa kṣīroda-śāyī avatāra
 
 asambhava nahe, satya vacana sabāra

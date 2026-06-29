@@ -1,5 +1,8 @@
 ### CC Adi 5.18
 
+> সর্বগ, অনন্ত, বিভু, কৃষ্ণতনুসম ।
+> উপর্যধো ব্যাপিয়াছে, নাহিক নিয়ম ॥১৮॥
+
 sarvaga, ananta, vibhu, kṛṣṇa-tanu-sama
 upary-adho vyāpiyāche, nāhika niyama
 

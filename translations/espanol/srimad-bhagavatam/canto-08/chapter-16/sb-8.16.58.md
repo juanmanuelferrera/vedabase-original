@@ -1,5 +1,8 @@
 ### SB 8.16.58
 
+> एतत्पयोव्रतं नाम पुरुषाराधनं परम
+> पितामहेनाभिहितं मया ते समुदाहृतम ॥५८॥
+
 > etat payo-vrataṁ nāma
 > puruṣārādhanaṁ param
 > pitāmahenābhihitaṁ

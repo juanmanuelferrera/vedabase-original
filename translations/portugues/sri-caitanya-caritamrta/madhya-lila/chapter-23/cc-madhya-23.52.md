@@ -1,5 +1,8 @@
 ### CC Madhya 23.52
 
+> নির্বেদ-হর্ষাদি — তেত্রিশ ‘ব্যভিচারী’ ।
+> সব মিলি’ ‘রস’ হয় চমৎকারকারী ॥৫২॥
+
 nirveda-harṣādi--tetriśa 'vyabhicārī'
 
 saba mili' 'rasa' haya camatkārakārī

@@ -1,5 +1,8 @@
 ### CC Madhya 10.4
 
+> বসিতে আসন দিল করি’ নমস্কারে ৷
+> মহাপ্রভুর বার্তা তবে পুছিল তাঁহারে ৷৷ ৪ ৷৷ ॥৪॥
+
 > vasite āsana dila kari' namaskāre
 > mahāprabhura vārtā tabe puchila tāṅhāre
 

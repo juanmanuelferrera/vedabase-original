@@ -1,5 +1,8 @@
 ### CC Antya 1.67
 
+> কৃষ্ণোঽন্যো যদুসম্ভূতো যঃ পূর্ণঃ সোঽস্ত্যতঃ পরঃ ।
+> বৃন্দাবনং পরিত্যজ্য স ক্কচিন্নৈব গচ্ছতি ॥৬৭॥
+
 > kṛṣṇo 'nyo yadu-sambhūto
 > yaḥ pūrṇaḥ so 'sty ataḥ paraḥ
 > vṛndāvanaṁ parityajya

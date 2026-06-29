@@ -1,5 +1,8 @@
 ### CC Adi 13.65
 
+> সর্বশাস্ত্রে কহে কৃষ্ণভক্তির ব্যাখ্যান ।
+> জ্ঞান, যোগ, তপো-ধর্ম নাহি মানে আন ॥৬৫॥
+
 > sarva-śāstre kahe kṛṣṇa-bhaktira vyākhyāna
 > jñāna, yoga, tapo-dharma nāhi māne āna
 

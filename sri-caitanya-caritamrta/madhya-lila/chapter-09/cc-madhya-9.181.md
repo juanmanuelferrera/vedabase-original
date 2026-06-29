@@ -1,5 +1,8 @@
 ### CC Madhya 9.181
 
+> মহাপ্রভু কহে তাঁরে, — শুন মহাশয় ।
+> মধ্যাহ্ন হৈল, কেনে পাক নাহি হয় ॥১৮১॥
+
 > mahāprabhu kahe tāṅre,—śuna mahāśaya
 > madhyāhna haila, kene pāka nāhi haya
 

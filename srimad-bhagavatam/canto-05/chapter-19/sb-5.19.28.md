@@ -1,5 +1,8 @@
 ### SB 5.19.28
 
+> यद्यत्र नः स्वर्गसुखावशेषितं स्विष्टस्य सूक्तस्य कृतस्य शोभनम
+> तेनाजनाभे स्मृतिमज्जन्म नः स्याद्वर्षे हरिर्यद्भजतां शं तनोति ॥२८॥
+
 > yady atra naḥ svarga-sukhāvaśeṣitaṁ
 > sviṣṭasya sūktasya kṛtasya śobhanam
 > tenājanābhe smṛtimaj janma naḥ syād

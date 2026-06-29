@@ -1,5 +1,8 @@
 ### CC Madhya 8.89
 
+> ময়ি ভক্তির্হি ভূতানামমৃতত্বায় কল্পতে ।
+> দিষ্ট্যা যদাসীন্মত্স্প্তেহো ভবতীনাং মদাপনঃ ॥৮৯॥
+
 > mayi bhaktir hi bhūtānām
 > amṛtatvāya kalpate
 > diṣṭyā yad āsīn mat-sneho

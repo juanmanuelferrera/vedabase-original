@@ -1,5 +1,8 @@
 ### SB 8.10.27
 
+> तेऽन्योन्यमभिसंसृत्य क्षिपन्तो मर्मभिर्मिथः
+> आह्वयन्तो विशन्तोऽग्रे युयुधुर्द्वन्द्वयोधिनः ॥२७॥
+
 > te 'nyonyam abhisaṁsṛtya
 > kṣipanto marmabhir mithaḥ
 > āhvayanto viśanto 'gre

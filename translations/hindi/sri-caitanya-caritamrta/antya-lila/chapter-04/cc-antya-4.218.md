@@ -1,5 +1,8 @@
 ### CC Antya 4.218
 
+> নানাশাস্ত্র আনি’ লুপ্ত-তীর্থ উদ্ধারিলা ।
+> বৃন্দাবনে কৃষ্ণসেবা প্রকাশ করিলা ॥২১৮॥
+
 > nānā-śāstra āni' lupta-tīrtha uddhārilā
 > vṛndāvane kṛṣṇa-sevā prakāśa karilā
 

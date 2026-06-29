@@ -3,6 +3,9 @@
 > pratāparudra chāḍi' karibe jagat nistāra
 > ei pratijñā kari' kariyāchena avatāra?
 
+> pratāparudra chāḍi' karibe jagat nistāra
+> ei pratijñā kari' kariyāchena avatāra?
+
 *pratāparudra chāḍi'*—excepto a Pratāparudra; *karibe*—hará; *jagat*—de todo el universo; *nistāra*—liberación; *ei pratijñā*—esta promesa; *kari'*—haciendo; *kariyāchena*—ha hecho; *avatāra*—encarnación.
 
 **»¡Ay!, ¿acaso Śrī Caitanya Mahāprabhu Se ha encarnado para liberar a toda clase de pecadores con la excepción de un rey llamado Mahārāja Pratāparudra?**

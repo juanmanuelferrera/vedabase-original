@@ -1,5 +1,10 @@
 ### SB 3.28.27
 
+> बाहूंश्च मन्दरगिरेः परिवर्तनेन
+> निर्णिक्तबाहुवलयानधिलोकपालान् ।
+> सञ्चिन्तयेद्दशशतारमसह्यतेजः
+> शङ्खं च तत्करसरोरुहराजहंसम् ॥२७॥
+
 > bāhūṁś ca mandara-gireḥ parivartanena
 > nirṇikta-bāhu-valayān adhiloka-pālān
 > sañcintayed daśa-śatāram asahya-tejaḥ

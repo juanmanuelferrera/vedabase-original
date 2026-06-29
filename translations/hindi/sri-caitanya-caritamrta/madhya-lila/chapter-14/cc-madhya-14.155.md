@@ -1,5 +1,8 @@
 ### CC Madhya 14.155
 
+> দামোদর কহে, — কৃষ্ণ রসিকশেখর ।
+> রস-আস্বাদক, রসময়-কলেবর ॥১৫৫॥
+
 > dāmodara kahe,-kṛṣṇa rasika-śekhara
 > rasa-āsvādaka, rasamaya-kalevara
 

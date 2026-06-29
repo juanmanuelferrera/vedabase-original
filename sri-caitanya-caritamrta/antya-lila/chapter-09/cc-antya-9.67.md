@@ -1,5 +1,8 @@
 ### CC Antya 9.67
 
+> কাশীমিশ্র কহে প্রভুর ধরিয়া চরণে ।
+> “তুমি কেনে এই বাতে ক্ষোভ কর মনে ? ॥ ৬৭ ॥
+
 > kāśī-miśra kahe prabhura dhariyā caraṇe
 > "tumi kene ei vāte kṣobha kara mane?
 

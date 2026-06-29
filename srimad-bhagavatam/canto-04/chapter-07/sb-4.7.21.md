@@ -1,5 +1,10 @@
 ### SB 4.7.21
 
+> वक्षस्यधिश्रितवधूर्वनमाल्युदार
+> हासावलोककलया रमयंश्च विश्वम् ।
+> पार्श्वभ्रमद्व्यजनचामरराजहंसः
+> श्वेतातपत्रशशिनोपरि रज्यमानः ॥२१॥
+
 > vakṣasy adhiśrita-vadhūr vana-māly udāra-
 > hāsāvaloka-kalayā ramayaṁś ca viśvam
 > pārśva-bhramad-vyajana-cāmara-rāja-haṁsaḥ

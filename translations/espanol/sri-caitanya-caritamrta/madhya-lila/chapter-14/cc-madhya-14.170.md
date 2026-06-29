@@ -1,5 +1,8 @@
 ### CC Madhya 14.170
 
+> কিলকিঞ্চিতাদি-ভাবের শুন বিবরণ ৷
+> যে ভাব-ভূষায় রাধা হরে কৃষ্ণ-মন ॥১৭০॥
+
 > kila-kiñcitādi-bhāvera śuna vivaraṇa
 > ye bhāva-bhūṣāya rādhā hare kṛṣṇa-mana
 

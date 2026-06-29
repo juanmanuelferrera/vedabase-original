@@ -1,5 +1,8 @@
 ### SB 6.11.12
 
+> न सन्नवाहाय विषण्णचेतसे प्रायुङ्क्त भूयः स गदां महात्मा
+> इन्द्रोऽमृतस्यन्दिकराभिमर्श वीतव्यथक्षतवाहोऽवतस्थे ॥१२॥
+
 > na sanna-vāhāya viṣaṇṇa-cetase
 > prāyuṅkta bhūyaḥ sa gadāṁ mahātmā
 > indro 'mṛta-syandi-karābhimarśa-

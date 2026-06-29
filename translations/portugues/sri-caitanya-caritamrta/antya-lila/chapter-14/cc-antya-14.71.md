@@ -1,5 +1,8 @@
 ### CC Antya 14.71
 
+> চেতন পাইতে অস্থি-সন্ধি লাগিল ।
+> পূর্বপ্রায় যথাবৎ শরীর হইল ॥৭১॥
+
 cetana pāite asthi-sandhi lāgila
 
 pūrva-prāya yathāvat śarīra ha-ila

@@ -1,5 +1,7 @@
 ### CC Antya 2.110
 
+> উত্তম অন্ন এত তণ্ডুল কাঁহাতে পাইলা ? আচার্য কহে, — মাধবী-পাশ মাগিয়া আনিলা ॥১১০॥
+
 > uttama anna eta taṇḍula kāṅhāte pāilā?
 > ācārya kahe,—mādhavī-pāśa māgiyā ānilā
 

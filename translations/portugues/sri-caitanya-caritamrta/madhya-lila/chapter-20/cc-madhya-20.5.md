@@ -1,5 +1,8 @@
 ### CC Madhya 20.5
 
+> “তুমি এক জিন্দাপীর মহাভাগ্যবান্ ।
+> কেতাব-কোরাণ-শাস্ত্রে আছে তোমার জ্ঞান ॥৫॥
+
 "tumi eka jindā-pīra mahā-bhāgyavān
 ketāba-korāṇa-śāstre āche tomāra jñāna
 

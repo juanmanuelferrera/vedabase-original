@@ -1,5 +1,8 @@
 ### SB 4.7.61
 
+> इदं पवित्रं परमीशचेष्टितं यशस्यमायुष्यमघौघमर्षणम् ।
+> यो नित्यदाकर्ण्य नरोऽनुकीर्तयेद्धुनोत्यघं कौरव भक्तिभावतः ॥६१॥
+
 > idaṁ pavitraṁ param īśa-ceṣṭitaṁ
 > yaśasyam āyuṣyam aghaugha-marṣaṇam
 > yo nityadākarṇya naro 'nukīrtayed

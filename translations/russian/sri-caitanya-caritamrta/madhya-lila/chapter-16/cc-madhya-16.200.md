@@ -1,5 +1,8 @@
 ### CC Madhya 16.200
 
+> তাঁরে বিদায় দিল প্রভু সেই গ্রাম হৈতে ।
+> সে-কালে তাঁর প্রেম-চেষ্টা না পারি বর্ণিতে ॥২০০॥
+
 > tāṅre vidāya dila prabhu sei grāma haite
 > se-kāle tāṅra prema-ceṣṭā nā pāri varṇite
 

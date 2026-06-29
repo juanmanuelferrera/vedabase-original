@@ -1,5 +1,8 @@
 ### CC Madhya 13.50
 
+> ত্রিভুবন ভরি’ উঠে কীর্তনের ধ্বনি ।
+> অন্য বাদ্যাদির ধ্বনি কিছুই না শুনি ॥৫০॥
+
 tri-bhuvana bhari' uṭhe kīrtanera dhvani
 
 anya vādyādira dhvani kichui nā śuni

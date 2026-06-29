@@ -1,5 +1,8 @@
 ### CC Antya 4.73
 
+> সর্বজ্ঞ মহাপ্রভু নিষেধিলা মোরে  ।
+> প্রভুর চরণ ধরি’ কহেন তাঁহারে ॥৭৩॥
+
 > sarvajña mahāprabhu niṣedhilā more
 > prabhura caraṇa dhari' kahena tāṅhāre
 

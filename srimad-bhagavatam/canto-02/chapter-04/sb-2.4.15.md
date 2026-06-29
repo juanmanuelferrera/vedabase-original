@@ -1,5 +1,8 @@
 ### SB 2.4.15
 
+> यत्कीर्तनं यत्स्मरणं यदीक्षणं यद्वन्दनं यच्छ्रवणं यदर्हणम् ।
+> लोकस्य सद्यो विधुनोति कल्मषं तस्मै सुभद्रश्रवसे नमो नमः ॥१५॥
+
 > yat-kīrtanaṁ yat-smaraṇaṁ yad-īkṣaṇaṁ
 > yad-vandanaṁ yac-chravaṇaṁ yad-arhaṇam
 > lokasya sadyo vidhunoti kalmaṣaṁ

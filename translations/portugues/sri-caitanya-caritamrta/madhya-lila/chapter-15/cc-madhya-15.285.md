@@ -1,5 +1,8 @@
 ### CC Madhya 15.285
 
+> অপরাধ’ নাহি, সদা লও কৃষ্ণনাম ।
+> এত বলি’ প্রভু আইলা সার্বভৌম-স্থান ॥২৮৫॥
+
 aparādha' nāhi, sadā lao kṛṣṇa-nāma
 
 eta bali' prabhu āilā sārvabhauma-sthāna

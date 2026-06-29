@@ -1,5 +1,8 @@
 ### CC Antya 6.117
 
+> সুগন্ধি সুন্দর প্রসাদ — মাধুর্যের সার ।
+> দুই ভাই তাহা খাঞা সন্তোষ অপার ॥১১৭॥
+
 > sugandhi sundara prasāda—mādhuryera sāra
 > dui bhāi tāhā khāñā santoṣa apāra
 

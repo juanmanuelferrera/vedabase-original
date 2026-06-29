@@ -1,5 +1,8 @@
 ### SB 3.33.6
 
+> यन्नामधेयश्रवणानुकीर्तनाद्यत्प्रह्वणाद्यत्स्मरणादपि क्वचित् ।
+> श्वादोऽपि सद्यः सवनाय कल्पते कुतः पुनस्ते भगवन्नु दर्शनात् ॥६॥
+
 > yan-nāmadheya-śravaṇānukīrtanād
 > yat-prahvaṇād yat-smaraṇād api kvacit
 > śvādo 'pi sadyaḥ savanāya kalpate

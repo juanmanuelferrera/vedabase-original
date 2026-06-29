@@ -1,5 +1,10 @@
 ### SB 3.9.7
 
+> दैवेन ते हतधियो भवतः प्रसङ्गात्
+> सर्वाशुभोपशमनाद्विमुखेन्द्रिया ये ।
+> कुर्वन्ति कामसुखलेशलवाय दीना
+> लोभाभिभूतमनसोऽकुशलानि शश्वत् ॥७॥
+
 > daivena te hata-dhiyo bhavataḥ prasaṅgāt
 > sarvāśubhopaśamanād vimukhendriyā ye
 > kurvanti kāma-sukha-leśa-lavāya dīnā

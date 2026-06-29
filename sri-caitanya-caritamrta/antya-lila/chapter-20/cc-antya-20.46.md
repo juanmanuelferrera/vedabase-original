@@ -1,5 +1,8 @@
 ### CC Antya 20.46
 
+> সেই ভাবে প্রভু সেই শ্লোক উচ্চারিলা ।
+> শ্লোক উচ্চারিতে তদ্রূপ আপনে হইলা ॥৪৬॥
+
 > sei bhāve prabhu sei śloka uccārilā
 > śloka uccārite tad-rūpa āpane ha-ilā
 

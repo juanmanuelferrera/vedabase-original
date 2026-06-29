@@ -1,5 +1,8 @@
 ### CC Adi 11.11
 
+> অদ্যাপি যাঁহার কৃপা-মহিমা হইতে ।
+> চৈতন্য-নিত্যানন্দ গায় সকল জগতে ॥১১॥
+
 > adyāpi yāṅhāra kṛpā-mahimā ha-ite
 > caitanya-nityānanda gāya sakala jagate
 

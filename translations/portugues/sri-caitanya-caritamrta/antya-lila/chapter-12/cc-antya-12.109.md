@@ -1,5 +1,8 @@
 ### CC Antya 12.109
 
+> জগন্নাথে দেহ’ তৈল, — দীপ যেন জ্বলে ।
+> তার পরিশ্রম হৈব পরম-সফলে ।।” ॥ ১০৯ ॥
+
 jagannāthe deha' taila,--dīpa yena jvale
 
 tāra pariśrama haiba parama-saphale"

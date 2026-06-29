@@ -1,5 +1,8 @@
 ### CC Adi 7.166
 
+> আপনে দক্ষিণ দেশ করিলা গমন ।
+> গ্রামে গ্রামে কৈলা কৃষ্ণনাম প্রচারণ ॥১৬৬॥
+
 > āpane dakṣiṇa deśa karilā gamana
 > grāme grāme kailā kṛṣṇa-nāma pracāraṇa
 

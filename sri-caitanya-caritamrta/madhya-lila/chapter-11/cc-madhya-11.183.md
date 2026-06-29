@@ -1,5 +1,8 @@
 ### CC Madhya 11.183
 
+> সমুদ্রস্নান করি’ কর চূড়া দরশন ।
+> তবে আজি ইহঁ আসি’ করিবে ভোজন ॥১৮৩॥
+
 > samudra-snāna kari' kara cūḍā daraśana
 > tabe āji ihaṅ āsi' karibe bhojana
 

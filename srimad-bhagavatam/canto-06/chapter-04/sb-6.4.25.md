@@ -1,5 +1,8 @@
 ### SB 6.4.25
 
+> देहोऽसवोऽक्षा मनवो भूतमात्रामात्मानमन्यं च विदुः परं यत
+> सर्वं पुमान्वेद गुणांश्च तजज्ञओ न वेद सर्वज्ञअमनन्तमीडे ॥२५॥
+
 > deho 'savo 'kṣā manavo bhūta-mātrām
 > ātmānam anyaṁ ca viduḥ paraṁ yat
 > sarvaṁ pumān veda guṇāṁś ca taj-jño

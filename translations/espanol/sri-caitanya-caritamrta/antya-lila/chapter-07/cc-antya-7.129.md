@@ -1,5 +1,8 @@
 ### CC Antya 7.129
 
+> তোমার কৃপা-অঞ্জনে এবে গর্ব-আন্ধ্য গেল ।
+> তুমি এত কৃপা কৈলা, — এবে ‘জ্ঞান’ হৈল ॥১২৯॥
+
 > tomāra kṛpā-añjane ebe garva-āndhya gela
 > tumi eta kṛpā kailā,--ebe 'jñāna' haila
 

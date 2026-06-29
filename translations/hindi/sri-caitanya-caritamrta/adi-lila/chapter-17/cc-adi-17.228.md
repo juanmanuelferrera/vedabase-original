@@ -1,5 +1,8 @@
 ### CC Adi 17.228
 
+> শ্রীবাস-পুত্রের তাহাঁ হৈল পরলোক ।
+> তবু শ্রীবাসের চিত্তে না জন্মিল শোক ॥২২৮॥
+
 > śrīvāsa-putrera tāhāṅ haila paraloka
 > tabu śrīvāsera citte nā janmila śoka
 

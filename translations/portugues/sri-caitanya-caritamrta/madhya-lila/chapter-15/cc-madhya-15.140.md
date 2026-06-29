@@ -1,5 +1,8 @@
 ### CC Madhya 15.140
 
+> সকল-সদ্গুণ-বৃন্দ-রত্ন-রত্নাকর  ।
+> বিদগ্ধ, চতুর, ধীর, রসিক-শেখর ॥১৪০॥
+
 sakala-sadguṇa-vṛnda-ratna-ratnākara
 
 vidagdha, catura, dhīra, rasika-śekhara

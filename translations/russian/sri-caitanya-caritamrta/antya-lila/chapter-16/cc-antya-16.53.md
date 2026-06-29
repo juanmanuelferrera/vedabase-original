@@ -1,5 +1,10 @@
 ### CC Antya 16.53
 
+> ইতো নৃসিংহঃ পরতো নৃসিংহো
+> যতো যতো যামি ততো নৃসিংহঃ ।
+> বহির্নৃসিংহো হৃদয়ে নৃসিংহো
+> নৃসিংহমাদিং শরণং প্রপদ্যে ॥৫৩॥
+
 > ito nṛsiṁhaḥ parato nṛsiṁho
 > yato yato yāmi tato nṛsiṁhaḥ
 > bahir nṛsiṁho hṛdaye nṛsiṁho

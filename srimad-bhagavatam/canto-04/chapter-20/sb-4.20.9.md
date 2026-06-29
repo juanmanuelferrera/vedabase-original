@@ -1,5 +1,8 @@
 ### SB 4.20.9
 
+> यः स्वधर्मेण मां नित्यं निराशीः श्रद्धयान्वितः ।
+> भजते शनकैस्तस्य मनो राजन्प्रसीदति ॥९॥
+
 > yaḥ sva-dharmeṇa māṁ nityaṁ
 > nirāśīḥ śraddhayānvitaḥ
 > bhajate śanakais tasya

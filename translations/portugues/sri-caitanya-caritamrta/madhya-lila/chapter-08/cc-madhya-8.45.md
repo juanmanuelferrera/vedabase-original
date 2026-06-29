@@ -1,5 +1,8 @@
 ### CC Madhya 8.45
 
+> অন্যের কি কথা, আমি — ‘মায়াবাদী সন্ন্যাসী’ ৷
+> আমিহ তোমার স্পর্শে কৃষ্ণ-প্রেমে ভাসি ৷৷ ৪৫ ৷৷ ॥৪৫॥
+
 anyera ki kathā, āmi--'māyāvādī sannyāsī'
 
 āmiha tomāra sparśe kṛṣṇa-preme bhāsi

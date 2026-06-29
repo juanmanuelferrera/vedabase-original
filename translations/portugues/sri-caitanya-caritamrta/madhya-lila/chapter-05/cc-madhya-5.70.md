@@ -1,5 +1,8 @@
 ### CC Madhya 5.70
 
+> কন্যা দিতে নারিবে, হবে অসত্য-বচন ।
+> পুনরপি কহে বিপ্র করিয়া যতন ॥৭০॥
+
 kanyā dite nāribe, habe asatya-vacana
 
 punarapi kahe vipra kariyā yatana

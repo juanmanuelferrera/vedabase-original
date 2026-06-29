@@ -1,5 +1,8 @@
 ### SB 1.5.25
 
+> उच्छिष्टलेपाननुमोदितो द्विजैः सकृत्स्म भुञ्जे तदपास्तकिल्बिषः ।
+> एवं प्रवृत्तस्य विशुद्धचेतसस्तद्धर्म एवात्मरुचिः प्रजायते ॥२५॥
+
 > ucchiṣṭa-lepān anumodito dvijaiḥ
 > sakṛt sma bhuñje tad-apāsta-kilbiṣaḥ
 > evaṁ pravṛttasya viśuddha-cetasas

@@ -1,5 +1,8 @@
 ### CC Madhya 13.71
 
+> এইমত কীর্তন প্রভু করিল কতক্ষণ ।
+> আপন-উদ্যোগে নাচাইল ভক্তগণ ॥৭১॥
+
 ei-mata kīrtana prabhu karila kata-kṣaṇa
 
 āpana-udyoge nācāila bhakta-gaṇa

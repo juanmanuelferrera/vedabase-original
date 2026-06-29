@@ -1,5 +1,8 @@
 ### CC Madhya 3.21
 
+> প্রভু লয়ে যাব আমি তাঁহার মন্দিরে ।
+> সাবধানে রহেন যেন নৌকা লঞা তীরে ॥২১॥
+
 prabhu laye yāba āmi tāṅhāra mandire
 
 sāvadhāne rahena yena naukā lañā tīre

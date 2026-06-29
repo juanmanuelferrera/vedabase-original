@@ -1,5 +1,8 @@
 ### CC Madhya 16.52
 
+> ঘট ভরি’ প্রভুর তেঁহো অভিষেক কৈল  ।
+> তাঁর অভিষেকে প্রভু মহা-তৃপ্ত হৈল ॥৫২॥
+
 ghaṭa bhari' prabhura teṅho abhiṣeka kaila
 
 tāṅra abhiṣeke prabhu mahā-tṛpta haila

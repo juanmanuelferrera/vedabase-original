@@ -1,5 +1,8 @@
 ### CC Adi 11.52
 
+> পীতাম্বর, মাধবাচার্য, দাস দামোদর ।
+> শঙ্কর, মুকুন্দ, জ্ঞানদাস, মনোহর ॥৫২॥
+
 pītāmbara, mādhavācārya, dāsa dāmodara
 
 śaṅkara, mukunda, jñāna-dāsa, manohara

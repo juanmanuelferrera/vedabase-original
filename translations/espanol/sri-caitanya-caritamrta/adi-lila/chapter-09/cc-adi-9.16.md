@@ -1,5 +1,8 @@
 ### CC Adi 9.16
 
+> মধ্যমূল পরমানন্দ পুরী মহাধীর ।
+> অষ্ট দিকে অষ্ট মূল বৃক্ষ কৈল স্থির ॥১৬॥
+
 > madhya-mūla paramānanda purī mahā-dhīra
 > aṣṭa dike aṣṭa mūla vṛkṣa kaila sthira
 

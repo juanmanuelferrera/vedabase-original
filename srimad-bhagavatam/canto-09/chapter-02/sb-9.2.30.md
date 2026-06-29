@@ -1,5 +1,8 @@
 ### SB 9.2.30
 
+> तत्सुतः केवलस्तस्माद्धुन्धुमान्वेगवांस्ततः
+> बुधस्तस्याभवद्यस्य तृणबिन्दुर्महीपतिः ॥३०॥
+
 > tat-sutaḥ kevalas tasmād
 > dhundhumān vegavāṁs tataḥ
 > budhas tasyābhavad yasya

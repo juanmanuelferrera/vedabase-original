@@ -1,5 +1,8 @@
 ### CC Antya 2.51
 
+> শুনি’ ব্রহ্মচারী কহে, — ‘করহ সন্তোষে ।
+> আমি ত’ আনিব তাঁরে তৃতীয় দিবসে ।।” ॥ ৫১ ॥
+
 > śuni' brahmacārī kahe,--'karaha santoṣe
 > āmi ta' āniba tāṅre tṛtīya divase'
 

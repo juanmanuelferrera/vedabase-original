@@ -1,5 +1,8 @@
 ### CC Madhya 19.231
 
+> মধুর-রসে — কৃষ্ণনিষ্ঠা, সেবা অতিশয়  ।
+> সখ্যের অসঙ্কোচ, লালন-মমতাধিক্য হয় ॥২৩১॥
+
 > madhura-rase—kṛṣṇa-niṣṭhā, sevā atiśaya
 > sakhyera asaṅkoca, lālana-mamatādhikya haya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 22.54
 
+> ‘সাধুসঙ্গ’, ‘সাধুসঙ্গ’ — সর্বশাস্ত্রে কয় ।
+> লবমাত্র সাধুসঙ্গে সর্বসিদ্ধি হয় ॥৫৪॥
+
 > 'sādhu-saṅga', 'sādhu-saṅga'—sarva-śāstre kaya
 > lava-mātra sādhu-saṅge sarva-siddhi haya
 

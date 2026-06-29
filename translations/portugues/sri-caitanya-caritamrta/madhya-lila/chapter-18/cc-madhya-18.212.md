@@ -1,5 +1,8 @@
 ### CC Madhya 18.212
 
+> সেই বিজুলী-খাঁন হৈল ‘মহাভাগবত’ ।
+> সর্বতীর্থে হৈল তাঁর পরম-মহত্ত্ব ॥২১২॥
+
 sei vijulī-khāṅna haila 'mahā-bhāgavata'
 
 sarva-tīrthe haila tāṅra parama-mahattva

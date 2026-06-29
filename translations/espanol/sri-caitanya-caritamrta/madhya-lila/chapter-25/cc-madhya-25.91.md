@@ -1,5 +1,8 @@
 ### CC Madhya 25.91
 
+> প্রভু কহে, — “আমি ‘জীব’, অতি তুচ্ছ-জ্ঞান ।
+> ব্যাসসূত্রের গম্ভীর অর্থ, ব্যাস — ভগবান্ ॥৯১॥
+
 > prabhu kahe,-"āmi jīva', ati tuccha-jñāna!
 > vyāsa-sūtrera gambhīra artha, vyāsa-bhagavān
 

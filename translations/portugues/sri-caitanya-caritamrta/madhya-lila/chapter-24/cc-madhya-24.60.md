@@ -1,5 +1,8 @@
 ### CC Madhya 24.60
 
+> যৈছে তৈছে যোহি কোহি করয়ে স্মরণ ।
+> চারিবিধ তাপ তার করে সংহরণ ॥৬০॥
+
 yaiche taiche yohi kohi karaye smaraṇa
 
 cāri-vidha tāpa tāra kare saṁharaṇa

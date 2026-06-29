@@ -1,5 +1,8 @@
 ### CC Madhya 5.41
 
+> জ্ঞাতি লোক কহে, — ‘মোরা তোমাকে ছাড়িব ।’
+> স্ত্রী-পুত্র কহে, — ‘বিষ খাইয়া মরিব ।।’ ॥৪১॥
+
 > jñāti loka kahe,—'morā tomāke chāḍiba'
 > strī-putra kahe,—'viṣa khāiyā mariba'
 

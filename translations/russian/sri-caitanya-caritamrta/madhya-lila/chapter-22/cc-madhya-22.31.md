@@ -1,5 +1,8 @@
 ### CC Madhya 22.31
 
+> কৃষ্ণ — সূর্যসম, মায়া হয় অন্ধকার ।
+> যাহাঁ কৃষ্ণ, তাহাঁ নাহি মায়ার অধিকার ॥৩১॥
+
 > kṛṣṇa—sūrya-sama; māyā haya andhakāra
 > yāhāṅ kṛṣṇa, tāhāṅ nāhi māyāra adhikāra
 

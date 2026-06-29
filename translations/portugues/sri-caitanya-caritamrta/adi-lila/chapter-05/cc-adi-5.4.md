@@ -1,5 +1,8 @@
 ### CC Adi 5.4
 
+> সর্ব-অবতারী কৃষ্ণ স্বয়ং ভগবান্ ।
+> তাঁহার দ্বিতীয় দেহ শ্রীবলরাম ॥৪॥
+
 sarva-avatārī kṛṣṇa svayaṁ bhagavān
 tāṅhāra dvitīya deha śrī-balarāma
 

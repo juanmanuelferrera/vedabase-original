@@ -1,5 +1,8 @@
 ### CC Madhya 20.134
 
+> ‘উত্তরে’ খুদিলে আছে কৃষ্ণ ‘অজগরে’ ।
+> ধন নাহি পাবে, খুদিতে গিলিবে সবারে ॥১৩৪॥
+
 > 'uttare' khudile āche kṛṣṇa 'ajagare'
 > dhana nāhi pābe, khudite gilibe sabāre
 

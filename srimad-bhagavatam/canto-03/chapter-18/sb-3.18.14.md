@@ -1,5 +1,8 @@
 ### SB 3.18.14
 
+> सृजन्नमर्षितः श्वासान्मन्युप्रचलितेन्द्रियः ।
+> आसाद्य तरसा दैत्यो गदया न्यहनद्धरिम् ॥१४॥
+
 > sṛjann amarṣitaḥ śvāsān
 > manyu-pracalitendriyaḥ
 > āsādya tarasā daityo

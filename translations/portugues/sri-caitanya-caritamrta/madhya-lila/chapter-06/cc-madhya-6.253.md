@@ -1,5 +1,8 @@
 ### CC Madhya 6.253
 
+> প্রভু শ্লোক পড়ি’ পত্র ছিণ্ডিয়া ফেলিল ।
+> ভিত্ত্যে দেখি’ ভক্ত সব শ্লোক কণ্ঠে কৈল ॥২৫৩॥
+
 prabhu śloka paḍi' patra chiṇḍiyā phelila
 
 bhittye dekhi' bhakta saba śloka kaṇṭhe kaila

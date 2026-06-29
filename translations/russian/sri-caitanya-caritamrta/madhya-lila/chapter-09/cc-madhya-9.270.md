@@ -1,5 +1,8 @@
 ### CC Madhya 9.270
 
+> নারায়ণপরাঃ সর্বে ন কুতশ্চন বিভ্যতি ।
+> স্বর্গাপবর্গনরকেষ্বপি তুল্যার্থদর্শিনঃ ॥২৭০॥
+
 > nārāyaṇa-parāḥ sarve
 > na kutaścana bibhyati
 > svargāpavarga-narakeṣv

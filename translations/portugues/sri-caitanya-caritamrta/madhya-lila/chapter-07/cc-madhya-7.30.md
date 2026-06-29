@@ -1,5 +1,8 @@
 ### CC Madhya 7.30
 
+> চৈতন্যের ভক্ত-বাত্সল্য — অকথ্য-কথন ৷
+> আপনে বৈরাগ্য-দুঃখ করেন সহন ৷৷ ৩০ ৷৷ ॥৩০॥
+
 caitanyera bhakta-vātsalya--akathya-kathana
 
 āpane vairāgya-duḥkha karena sahana

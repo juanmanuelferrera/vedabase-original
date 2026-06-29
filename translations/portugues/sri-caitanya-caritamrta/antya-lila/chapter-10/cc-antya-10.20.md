@@ -1,5 +1,8 @@
 ### CC Antya 10.20
 
+> সুকুতা খাইলে সেই আম হইবেক নাশ ।
+> এই স্নেহ মনে ভাবি’ প্রভুর উল্লাস ॥২০॥
+
 sukutā khāile sei āma ha-ibeka nāśa
 
 ei sneha mane bhāvi' prabhura ullāsa

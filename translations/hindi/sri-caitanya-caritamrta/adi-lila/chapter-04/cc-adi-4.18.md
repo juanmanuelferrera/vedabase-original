@@ -1,5 +1,8 @@
 ### CC Adi 4.18
 
+> আমারে ঈশ্বর মানে, আপনাকে হীন ।
+> তার প্রেমে বশ আমি না হই অধীন ॥১৮॥
+
 > āmāre īśvara māne, āpanāke hīna
 > tāra preme vaśa āmi nā ha-i adhīna
 

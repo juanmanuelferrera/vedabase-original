@@ -1,5 +1,8 @@
 ### CC Madhya 4.168
 
+> প্রত্যহ চন্দন পরায়, যাবৎ হৈল অন্ত ।
+> তথায় রহিল পুরী তাবৎ পর্যন্ত ॥১৬৮॥
+
 pratyaha candana parāya, yāvat haila anta
 tathāya rahila purī tāvat paryanta
 

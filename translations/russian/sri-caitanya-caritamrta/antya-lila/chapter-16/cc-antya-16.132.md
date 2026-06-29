@@ -1,5 +1,10 @@
 ### CC Antya 16.132
 
+> কৃষ্ণ যে খায় তাম্বূল, কহে তার নাহি মূল,
+> তাহে আর দম্ভ-পরিপাটি ।
+> তার যেবা উদ্গার, তারে কয় ‘অমৃতসার’,
+> গোপীর মুখ করে ‘আলবাটি’ ॥১৩২॥
+
 > kṛṣṇa ye khāya tāmbūla, kahe tāra nāhi rnūla,
 > tāhe āra dambha-paripāṭī
 > tāra yebā udgāra, tāre kaya 'amṛta-sa-ra',

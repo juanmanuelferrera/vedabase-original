@@ -1,5 +1,8 @@
 ### CC Antya 11.105
 
+> মহাভাগবত হরিদাস — পরম-বিদ্বান্ ।
+> এ সৌভাগ্য লাগি’ আগে করিলা প্রয়াণ ॥১০৫॥
+
 mahā-bhāgavata haridāsa--parama-vidvān
 
 e saubhāgya lāgi' āge karilā prayāṇa

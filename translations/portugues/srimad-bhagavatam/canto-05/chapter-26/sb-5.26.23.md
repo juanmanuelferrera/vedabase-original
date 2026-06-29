@@ -1,5 +1,7 @@
 ### SB 5.26.23
 
+> ये त्विह वै वृषलीपतयो नष्टशौचाचारनियमास्त्यक्तलज्जाः पशुचर्यां चरन्ति ते चापि प्रेत्यपूयविण्मूत्रश्लेष्ममलापूर्णार्णवे निपतन्ति तदेवातिबीभत्सितमश्नन्ति ॥२२॥
+
 *ye tv iha vai vṛṣalī*-patayo naṣṭa-śaucācāra-niyamās tyakta-lajjāḥ paśu-caryāṁ caranti te cāpi pretya pūya-viṇ-mūtra-śleṣma-malā-pūrṇārṇave nipatanti tad evātibībhatsitam aśnanti.
 
 *ye*—pessoas que; *tu*—mas; *iha*—nesta vida; *vai*—de fato; *vṛṣalī-patayaḥ*—os esposos de śūdras; *naṣṭa*—perdidos; *śauca-ācāra-niyamāḥ*—cuja limpeza, bom comportamento e vida regulada; *tyakta-lajjāḥ*—sem vergonha; *paśu-caryām*—o comportamento de animais; *caranti*—eles executam; *te*—eles; *ca*—também; *api*—de fato; *pretya*—morrendo; *pūya*—de pus; *viṭ*—fezes; *mūtra*—urina; *śleṣma*—muco; *malā*—saliva; *pūrṇa*—cheio; *arṇave*—num oceano; *nipatanti*—caem; *tat*—aquilo; *eva*—apenas; *atibībhatsitam*—extremamente nojento; *aśnanti*—eles comem.

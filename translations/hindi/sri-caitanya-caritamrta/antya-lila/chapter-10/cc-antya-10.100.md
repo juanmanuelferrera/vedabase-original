@@ -1,5 +1,8 @@
 ### CC Antya 10.100
 
+> এই সব হয় ভক্তিশাস্ত্র-সূক্ষ্ম মর্ম ।
+> চৈতন্যের কৃপায় জানে এই সব ধর্ম ॥১০০॥
+
 > ei saba haya bhakti-śāstra-sūkṣma marma
 > caitanyera kṛpāya jāne ei saba dharma
 

@@ -1,5 +1,10 @@
 ### SB 6.3.25
 
+> प्रायेण वेद तदिदं न महाजनोऽयं
+> देव्या विमोहितमतिर्बत माययालम
+> त्रय्यां जडीकृतमतिर्मधुपुष्पितायां
+> वैतानिके महति कर्मणि युज्यमानः ॥२५॥
+
 > prāyeṇa veda tad idaṁ na mahājano 'yaṁ
 > devyā vimohita-matir bata māyayālam
 > trayyāṁ jaḍī-kṛta-matir madhu-puṣpitāyāṁ

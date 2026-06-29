@@ -1,5 +1,8 @@
 ### CC Adi 3.16
 
+> ঐশ্বর্যজ্ঞানেতে সব জগৎ মিশ্রিত ।
+> ঐশ্বর্য-শিথিল-প্রেমে নাহি মোর প্রীত ॥১৬॥
+
 > aiśvarya-jñānete saba jagat miśrita
 > aiśvarya-śithila-preme nāhi mora prīta
 

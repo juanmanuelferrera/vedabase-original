@@ -1,5 +1,8 @@
 ### CC Antya 15.43
 
+> আগে মৃগীগণ দেখি’ কৃষ্ণাঙ্গগন্ধ পাঞা ।
+> তার মুখ দেখি’ পুছেন নির্ণয় করিয়া ॥৪৩॥
+
 > āge mṛgī-gaṇa dekhi' kṛṣṇāṅga-gandha pāñā
 > tāra mukha dekhi' puchena nirṇaya kariyā
 

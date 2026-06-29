@@ -1,5 +1,8 @@
 ### CC Antya 2.92
 
+> স্বরূপ গোসাঞিরে আচার্য কহে আর দিনে  ।
+> ‘বেদান্ত পড়িয়া গোপাল আইসাছে এখানে ॥৯২॥
+
 svarūpa gosāñire ācārya kahe āra dine
 
 'vedānta paḍiyā gopāla āisāche ekhāne

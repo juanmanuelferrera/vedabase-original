@@ -1,5 +1,8 @@
 ### SB 4.19.5
 
+> सिद्धा विद्याधरा दैत्या दानवा गुह्यकादयः ।
+> सुनन्दनन्दप्रमुखाः पार्षदप्रवरा हरेः ॥५॥
+
 > siddhā vidyādharā daityā
 > dānavā guhyakādayaḥ
 > sunanda-nanda-pramukhāḥ

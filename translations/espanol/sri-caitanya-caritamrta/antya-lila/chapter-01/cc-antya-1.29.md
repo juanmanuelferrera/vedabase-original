@@ -1,5 +1,8 @@
 ### CC Antya 1.29
 
+> প্রসাদ নারিকেল-শস্য দেন ফেলাঞা ।
+> ‘রাম’ ‘কৃষ্ণ’ ‘হরি’ কহ’ — বলেন হাসিয়া ॥২৯॥
+
 > prasāda nārikela-śasya dena phelāñā
 > 'rāma' 'kṛṣṇa' 'hari' kaha'--balena hāsiyā
 

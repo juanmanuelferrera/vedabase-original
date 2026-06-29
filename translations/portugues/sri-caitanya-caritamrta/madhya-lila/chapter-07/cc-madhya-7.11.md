@@ -1,5 +1,8 @@
 ### CC Madhya 7.11
 
+> বিশ্বরূপ-উদ্দেশে অবশ্য আমি যাব ৷
+> একাকী যাইব, কাহো সঙ্গে না লইব ৷৷ ১১ ৷৷ ॥১১॥
+
 viśvarūpa-uddeśe avaśya āmi yāba
 ekākī yāiba, kāho saṅge nā la-iba
 

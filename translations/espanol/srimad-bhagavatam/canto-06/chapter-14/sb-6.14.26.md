@@ -1,5 +1,8 @@
 ### SB 6.14.26
 
+> ततः पाहि महाभाग पूर्वैः सह गतं तमः
+> यथा तरेम दुष्पारं प्रजया तद्विधेहि नः ॥२६॥
+
 > tataḥ pāhi mahā-bhāga
 > pūrvaiḥ saha gataṁ tamaḥ
 > yathā tarema duṣpāraṁ

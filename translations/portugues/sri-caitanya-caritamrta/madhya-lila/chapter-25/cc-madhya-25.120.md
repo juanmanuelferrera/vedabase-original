@@ -1,5 +1,8 @@
 ### CC Madhya 25.120
 
+> ‘অভিধেয়’ সাধনভক্তির শুনহ বিচার ।
+> সর্ব-জন-দেশ-কাল-দশাতে ব্যাপ্তি যার ॥১২০॥
+
 'abhidheya' sādhana-bhaktira śunaha vicāra
 
 sarva-jana-deśa-kāla-daśāte vyāpti yāra

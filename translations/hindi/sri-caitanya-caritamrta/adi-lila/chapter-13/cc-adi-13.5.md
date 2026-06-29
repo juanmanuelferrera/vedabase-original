@@ -1,5 +1,8 @@
 ### CC Adi 13.5
 
+> জয় শ্রীচৈতন্যচন্দ্রের ভক্ত চন্দ্রগণ ।
+> সবার প্রেম-জ্যোৎস্নায় উজ্জ্বল ত্রিভুবন ॥৫॥
+
 > jaya śrī-caitanyacandrera bhakta candra-gaṇa
 > sabāra prema jyotsnāya ujjvala tri-bhuvana
 

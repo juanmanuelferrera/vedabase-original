@@ -1,5 +1,8 @@
 ### CC Madhya 3.56
 
+> অন্ন-ব্যঞ্জন-উপরি দিল তুলসীমঞ্জরী ।
+> তিন জলপাত্রে সুবাসিত জল ভরি’ ॥৫৬॥
+
 anna-vyañjana-upari dila tulasī-mañjarī
 tina jala-pātre suvāsita jala bhari'
 

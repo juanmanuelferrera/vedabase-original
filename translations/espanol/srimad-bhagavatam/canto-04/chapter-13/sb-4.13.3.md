@@ -1,5 +1,8 @@
 ### SB 4.13.3
 
+> मन्ये महाभागवतं नारदं देवदर्शनम् ।
+> येन प्रोक्तः क्रियायोगः परिचर्याविधिर्हरेः ॥३॥
+
 > manye mahā-bhāgavataṁ
 > nāradaṁ deva-darśanam
 > yena proktaḥ kriyā-yogaḥ

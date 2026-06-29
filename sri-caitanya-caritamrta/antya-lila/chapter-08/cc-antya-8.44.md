@@ -1,5 +1,8 @@
 ### CC Antya 8.44
 
+> ‘সন্ন্যাসী হঞা করে মিষ্টান্ন ভক্ষণ ।
+> এই ভোগে হয় কৈছে ইন্দ্রিয়-বারণ’? ॥৪৪॥
+
 > 'sannyāsī hañā kare miṣṭānna bhakṣaṇa
 > ei bhoge haya kaiche indriya-vāraṇa'?
 

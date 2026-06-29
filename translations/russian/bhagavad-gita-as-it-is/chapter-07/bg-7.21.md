@@ -1,5 +1,8 @@
 ### Bg 7.21
 
+> यो यो यां यां तनुं भक्तः श्रद्धयार्चितुमिच्छति ।
+> तस्य तस्याचलां श्रद्धां तामेव विदधाम्यहम् ॥२१॥
+
 > yo yo yāṁ yāṁ tanuṁ bhaktaḥ
 > śraddhayārcitum icchati
 > tasya tasyācalāṁ śraddhāṁ

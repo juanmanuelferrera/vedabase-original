@@ -1,5 +1,8 @@
 ### CC Antya 20.30
 
+> “ধন, জন নাহি মাগোঁ, কবিতা সুন্দরী ।
+> ‘শুদ্ধভক্তি’ দেহ’ মোরে, কৃষ্ণ কৃপা করি’ ॥৩০॥
+
 dhana, jana nāhi māgoṅ, kavitā sundarī
 
 'śuddha-bhakti' deha' more, kṛṣṇa kṛpā kari'

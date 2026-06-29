@@ -1,5 +1,8 @@
 ### CC Antya 13.121
 
+> ভাগবত পড়, সদা লহ কৃষ্ণনাম ।
+> অচিরে করিবেন কৃপা কৃষ্ণ ভগবান্ ।।” ॥ ১২১ ॥
+
 > bhāgavata paḍa, sadā laha kṛṣṇa-nāma
 > acire karibena kṛpā kṛṣṇa bhagavān"
 

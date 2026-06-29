@@ -1,5 +1,8 @@
 ### CC Madhya 16.138
 
+> তাঁহার চরিত্রে প্রভু অন্তরে সন্তোষ ।
+> তাঁহার হাতে ধরি’ কহে করি’ প্রণয়-রোষ ॥১৩৮॥
+
 > tāṅhāra caritre prabhu antare santoṣa
 > tāṅhāra hāte dhari' kahe kari' praṇaya-roṣa
 

@@ -1,5 +1,8 @@
 ### CC Antya 1.129
 
+> রায় কহে, — ‘কহ ইষ্টদেবের বর্ণন’ ।
+> প্রভুর সঙ্কোচে রূপ না করে পঠন ॥১২৯॥
+
 > rāya kahe,--'kaha iṣṭa-devera varṇana'
 > prabhura saṅkoce rūpa nā kare paṭhana
 

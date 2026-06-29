@@ -1,5 +1,8 @@
 ### CC Antya 12.31
 
+> শুনি’ নিত্যানন্দপ্রভুর আনন্দিত মন ।
+> উঠি’ শিবানন্দে কৈলা প্রেম-আলিঙ্গন ॥৩১॥
+
 śuni' nityānanda-prabhura ānandita mana
 
 uṭhi' śivānande kailā prema-āliṅgana

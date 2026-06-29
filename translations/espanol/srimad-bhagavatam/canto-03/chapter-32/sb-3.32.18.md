@@ -1,5 +1,8 @@
 ### SB 3.32.18
 
+> त्रैवर्गिकास्ते पुरुषा विमुखा हरिमेधसः ।
+> कथायां कथनीयोरु विक्रमस्य मधुद्विषः ॥१८॥
+
 > trai-vargikās te puruṣā
 > vimukhā hari-medhasaḥ
 > kathāyāṁ kathanīyoru-

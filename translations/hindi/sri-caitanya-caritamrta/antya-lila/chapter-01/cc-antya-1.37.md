@@ -1,5 +1,8 @@
 ### CC Antya 1.37
 
+> এইমতে দুই ভাই গৌড়দেশে আইলা ।
+> গৌড়ে আসি’ অনুপমের গঙ্গা-প্রাপ্তি হৈলা ॥৩৭॥
+
 > ei-mate dui bhāi gauḍa-deśe āilā
 > gauḍe āsi' anupamera gaṅgā-prāpti hailā
 

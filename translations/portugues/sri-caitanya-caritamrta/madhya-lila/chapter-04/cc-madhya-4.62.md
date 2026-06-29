@@ -1,5 +1,8 @@
 ### CC Madhya 4.62
 
+> পুনঃ তৈল দিয়া কৈল শ্রীঅঙ্গ চিক্কণ ।
+> শঙ্খ-গন্ধোদকে কৈল স্নান সমাধান ॥৬২॥
+
 punaḥ taila diya kaila śrī-aṅga cikkaṇa
 
 śaṅkha-gandhodake kaila snāna samādhāna

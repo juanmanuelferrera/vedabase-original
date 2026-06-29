@@ -1,5 +1,8 @@
 ### CC Adi 5.19
 
+> ব্রহ্মাণ্ডে প্রকাশ তার কৃষ্ণের ইচ্ছায় ।
+> একই স্বরূপ তার, নাহি দুই কায় ॥১৯॥
+
 brahmāṇḍe prakāśa tāra kṛṣṇera icchāya
 eka-i svarūpa tāra, nāhi dui kāya
 

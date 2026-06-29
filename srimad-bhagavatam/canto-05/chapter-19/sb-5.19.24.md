@@ -1,5 +1,8 @@
 ### SB 5.19.24
 
+> न यत्र वैकुण्ठकथासुधापगा न साधवो भागवतास्तदाश्रयाः
+> न यत्र यज्ञएशमखा महोत्सवाः सुरेशलोकोऽपि न वै स सेव्यताम ॥२४॥
+
 > na yatra vaikuṇṭha-kathā-sudhāpagā
 > na sādhavo bhāgavatās tadāśrayāḥ
 > na yatra yajñeśa-makhā mahotsavāḥ

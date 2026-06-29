@@ -1,5 +1,8 @@
 ### SB 8.2.28
 
+> तथातुरं यूथपतिं करेणवो विकृष्यमाणं तरसा बलीयसा
+> विचुक्रुशुर्दीनधियोऽपरे गजाः पार्ष्णिग्रहास्तारयितुं न चाशकन ॥२८॥
+
 > tathāturaṁ yūtha-patiṁ kareṇavo
 > vikṛṣyamāṇaṁ tarasā balīyasā
 > vicukruśur dīna-dhiyo 'pare gajāḥ

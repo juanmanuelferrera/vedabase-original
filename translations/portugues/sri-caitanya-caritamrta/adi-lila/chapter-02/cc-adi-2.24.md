@@ -1,5 +1,8 @@
 ### CC Adi 2.24
 
+> বেদ, ভাগবত, উপনিষৎ, আগম ।
+> ‘পূর্ণতত্ত্ব’ যাঁরে কহে, নাহি যাঁর সম ॥২৪॥
+
 veda, bhāgavata, upaniṣat, āgama
 'pūrṇa-tattva' yāṅre kahe, nāhi yāṅra sama
 

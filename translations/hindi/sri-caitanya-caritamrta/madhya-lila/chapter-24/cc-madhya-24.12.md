@@ -1,5 +1,8 @@
 ### CC Madhya 24.12
 
+> “আত্মা দেহমনোব্রহ্মস্বভাবধৃতিবুদ্ধিষু  ।
+> প্রযত্নে চ” ইতি ॥১২॥
+
 > "ātmā deha-mano-brahma-svabhāva-dhṛti-buddhiṣu
 > prayatne ca" iti xxx
 

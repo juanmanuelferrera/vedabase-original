@@ -1,5 +1,8 @@
 ### SB 2.5.12
 
+> तस्मै नमो भगवते वासुदेवाय धीमहि ।
+> यन्मायया दुर्जयया मां वदन्ति जगद्गुरुम् ॥१२॥
+
 > tasmai namo bhagavate
 > vāsudevāya dhīmahi
 > yan-māyayā durjayayā

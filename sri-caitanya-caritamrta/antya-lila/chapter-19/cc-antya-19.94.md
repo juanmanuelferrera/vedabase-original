@@ -1,5 +1,10 @@
 ### CC Antya 19.94
 
+> নেত্র-নাভি, বদন, কর-যুগ চরণ,
+> এই অষ্টপদ্ম কৃষ্ণ-অঙ্গে ।
+> কর্পূর-লিপ্ত কমল, তার যৈছে পরিমল,
+> সেই গন্ধ অষ্টপদ্ম-সঙ্গে ॥৯৪॥
+
 > netra-nābhi, vadana, kara-yuga caraṇa,
 > ei aṣṭa-padma kṛṣṇa-aṅge
 > karpūra-lipta kamala, tāra yaiche parimala,

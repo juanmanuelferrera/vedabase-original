@@ -1,5 +1,8 @@
 ### CC Madhya 21.38
 
+> এ সামান্য, ত্র্যধীশ্বরের শুন অর্থ আর ।
+> জগৎকারণ তিন পুরুষাবতার ॥৩৮॥
+
 e sāmānya, tryadhīśvarera śuna artha āra
 
 jagat-kāraṇa tina puruṣāvatāra

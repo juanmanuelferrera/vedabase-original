@@ -1,5 +1,8 @@
 ### CC Madhya 11.59
 
+> শুনি’ গজপতির মনে সুখ উপজিল ।
+> প্রভুরে মিলিতে এই মন্ত্রণা দৃঢ় কৈল ॥৫৯॥
+
 > śuni' gajapatira mane sukha upajila
 > prabhure milite ei mantraṇā dṛḍha kaila
 

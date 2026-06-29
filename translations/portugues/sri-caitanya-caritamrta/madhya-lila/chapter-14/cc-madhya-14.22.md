@@ -1,5 +1,8 @@
 ### CC Madhya 14.22
 
+> দণ্ডবৎ করি’ রাজা বাহিরে চলিলা ।
+> যোড় হস্ত করি’ সব ভক্তেরে বন্দিলা ॥২২॥
+
 daṇḍavat kari' rājā bāhire calilā
 
 yoḍa hasta kari' saba bhaktere vandilā

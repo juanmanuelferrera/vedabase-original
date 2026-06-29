@@ -1,5 +1,8 @@
 ### CC Antya 6.243
 
+> সবা লঞা কৈলা প্রভু গুণ্ডিচা-মার্জন ।
+> সবা লঞা কৈলা প্রভু বন্য-ভোজন ॥২৪৩॥
+
 > sabā lañā kailā prabhu guṇḍicā-mārjana
 > sabā lañā kailā prabhu vanya-bhojana
 

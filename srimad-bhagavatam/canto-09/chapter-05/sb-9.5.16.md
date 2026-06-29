@@ -1,5 +1,8 @@
 ### SB 9.5.16
 
+> यन्नामश्रुतिमात्रेण पुमान्भवति निर्मलः
+> तस्य तीर्थपदः किं वा दासानामवशिष्यते ॥१६॥
+
 > yan-nāma-śruti-mātreṇa
 > pumān bhavati nirmalaḥ
 > tasya tīrtha-padaḥ kiṁ vā

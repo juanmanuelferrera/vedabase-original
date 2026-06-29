@@ -1,5 +1,8 @@
 ### CC Antya 13.105
 
+> এইমত প্রভু-সঙ্গে রহিলা অষ্টমাস ।
+> দিনে দিনে প্রভুর কৃপায় বাড়য়ে উল্লাস ॥১০৫॥
+
 > ei-mata prabhu-saṅge rahilā aṣṭa-māsa
 > dine dine prabhura kṛpāya bāḍaye ullāsa
 

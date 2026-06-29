@@ -1,5 +1,8 @@
 ### CC Antya 2.23
 
+> পরীক্ষা করিতে তাঁর যবে ইচ্ছা হৈল  ।
+> বাহিরে রহিয়া তবে বিচার করিল ॥২৩॥
+
 > parīkṣā karite tāṅra yabe icchā haila
 > bāhire rahiyā tabe vicāra karila
 

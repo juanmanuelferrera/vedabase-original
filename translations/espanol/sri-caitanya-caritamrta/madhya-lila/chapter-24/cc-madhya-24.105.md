@@ -1,5 +1,8 @@
 ### CC Madhya 24.105
 
+> আগে যত যত অর্থ ব্যাখ্যান করিব ।
+> কৃষ্ণগুণাস্বাদের এই হেতু জানিব ॥১০৫॥
+
 > āge yata yata artha vyākhyāna kariba
 > kṛṣṇa-guṇāsvādera ei hetu jāniba
 

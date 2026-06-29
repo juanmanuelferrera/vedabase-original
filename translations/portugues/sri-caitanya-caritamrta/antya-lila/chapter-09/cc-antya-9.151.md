@@ -1,5 +1,8 @@
 ### CC Antya 9.151
 
+> চৈতন্যচরিত্র এই পরম গম্ভীর ।
+> সেই বুঝে, তাঁর পদে যাঁর মন ‘ধীর’ ॥১৫১॥
+
 caitanya-caritra ei parama gambhīra
 
 sei bujhe' tāṅra pade yāṅra mana 'dhīra'

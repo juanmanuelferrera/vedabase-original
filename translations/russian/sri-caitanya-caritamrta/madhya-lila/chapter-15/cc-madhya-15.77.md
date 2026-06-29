@@ -1,5 +1,8 @@
 ### CC Madhya 15.77
 
+> শস্য সমর্পণ করি’ বাহিরে ধেয়ান ।
+> শস্য খাঞা কৃষ্ণ করে শূন্য ভাজন ॥৭৭॥
+
 > śasya samarpaṇa kari' bāhire dheyāna
 > śasya khāñā kṛṣṇa kare śūnya bhājana
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.227
 
+> আর অলৌকিক এক চরিত্র তাঁহার ।
+> যাহার শ্রবণে লোকে হয় চমৎকার ॥২২৭॥
+
 āra alaukika eka caritra tāṅhāra
 
 yāhāra śravaṇe loke haya camatkāra

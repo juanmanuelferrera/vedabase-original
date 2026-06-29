@@ -1,5 +1,8 @@
 ### CC Madhya 18.29
 
+> শুনিয়া গ্রামের লোক চিন্তিত হইল ।
+> প্রথমে গোপাল লঞা গাঁঠুলি-গ্রামে খুইল ॥২৯॥
+
 > śuniyā grāmera loka cintita ha-ila
 > prathame gopāla lañā gāṅṭhuli-grāme khuila
 

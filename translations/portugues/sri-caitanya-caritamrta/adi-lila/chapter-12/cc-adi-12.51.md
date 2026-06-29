@@ -1,5 +1,8 @@
 ### CC Adi 12.51
 
+> মন দুষ্ট হইলে নহে কৃষ্ণের স্মরণ ।
+> কৃষ্ণস্মৃতি বিনু হয় নিষ্ফল জীবন ॥৫১॥
+
 mana duṣṭa ha-ile nahe kṛṣṇera smaraṇa
 kṛṣṇa-smṛti vinu haya niṣphala jīvana
 

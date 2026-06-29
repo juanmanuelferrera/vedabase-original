@@ -1,5 +1,8 @@
 ### CC Madhya 24.76
 
+> অহমেবাসমেবাগ্রে নান্যদ্যত্ সদসত্পরম্ ।
+> পশ্চাদহং যদেতচ্চ যোঽবশিষ্যেত সোঽস্ম্যহম্ ॥৭৬॥
+
 > aham evāsam evāgre
 > nānyad yat sad-asat-param
 > paścād ahaṁ yad etac ca

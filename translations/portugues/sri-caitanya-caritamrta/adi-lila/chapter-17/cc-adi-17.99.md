@@ -1,5 +1,8 @@
 ### CC Adi 17.99
 
+> আর দিন শিবভক্ত শিবগুণ গায় ।
+> প্রভুর অঙ্গনে নাচে, ডমরু বাজায় ॥৯৯॥
+
 āra dina śiva-bhakta śiva-guṇa gāya
 
 prabhura aṅgane nāce, ḍamaru bājāya

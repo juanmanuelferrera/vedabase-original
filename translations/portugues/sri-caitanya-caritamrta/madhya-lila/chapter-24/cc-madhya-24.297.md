@@ -1,5 +1,7 @@
 ### CC Madhya 24.297
 
+> সরূপাণামেকশেষ একবিভক্তৌ, উক্তার্থানামপ্রয়োগ ইতি ॥২৯৭॥
+
 sarūpāṇām eka-śeṣa eka-vibhaktau,
 
 uktārthānām aprayoga iti

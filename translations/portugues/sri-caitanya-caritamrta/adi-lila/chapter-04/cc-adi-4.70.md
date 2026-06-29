@@ -1,5 +1,8 @@
 ### CC Adi 4.70
 
+> তয়োরপ্যুভয়োর্মধ্যে রাধিকা সর্বথাধিকা ।
+> মহাভাবস্বরূপেয়ং গুণৈরতিবরীয়সী ॥৭০॥
+
 tayor apy ubhayor madhye
 rādhikā sarvathādhikā
 mahābhāva-svarūpeyaṁ

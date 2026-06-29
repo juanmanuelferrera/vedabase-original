@@ -1,5 +1,8 @@
 ### CC Antya 4.173
 
+> অপ্রাকৃত-দেহ তোমার ‘প্রাকৃত’ কভু নয় ।
+> তথাপি তোমার তাতে প্রাকৃত-বুদ্ধি হয় ॥১৭৩॥
+
 > aprākṛta-deha tomāra 'prākṛta' kabhu naya
 > tathāpi tomāra tāte prākṛta-buddhi haya
 

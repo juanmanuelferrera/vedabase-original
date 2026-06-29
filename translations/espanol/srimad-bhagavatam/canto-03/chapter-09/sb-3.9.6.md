@@ -1,5 +1,10 @@
 ### SB 3.9.6
 
+> तावद्भयं द्रविणदेहसुहृन्निमित्तं
+> शोकः स्पृहा परिभवो विपुलश्च लोभः ।
+> तावन्ममेत्यसदवग्रह आर्तिमूलं
+> यावन्न तेऽङ्घ्रिमभयं प्रवृणीत लोकः ॥६॥
+
 > tāvad bhayaṁ draviṇa-deha-suhṛn-nimittaṁ
 > śokaḥ spṛhā paribhavo vipulaś ca lobhaḥ
 > tāvan mamety asad-avagraha ārti-mūlaṁ

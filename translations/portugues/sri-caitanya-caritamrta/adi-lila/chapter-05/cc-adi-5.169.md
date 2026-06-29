@@ -1,5 +1,8 @@
 ### CC Adi 5.169
 
+> অঙ্গনে আসিয়া তেঁহো না কৈল সম্ভাষ ।
+> তাহা দেখি’ ক্রুদ্ধ হঞা বলে রামদাস ॥১৬৯॥
+
 aṅgane āsiyā teṅho nā kaila sambhāṣa
 
 tāhā dekhi' kruddha hañā bale rāmadāsa

@@ -1,5 +1,8 @@
 ### CC Adi 4.189
 
+> এ বিরোধের এক মাত্র দেখি সমাধান ।
+> গোপিকার সুখ কৃষ্ণসুখে পর্যবসান ॥১৮৯॥
+
 > e virodhera eka mātra dekhi samādhāna
 > gopikāra sukha kṛṣṇa-sukhe paryavasāna
 

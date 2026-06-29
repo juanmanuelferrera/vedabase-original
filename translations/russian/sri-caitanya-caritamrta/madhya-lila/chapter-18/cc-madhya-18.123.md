@@ -1,5 +1,8 @@
 ### CC Madhya 18.123
 
+> দর্শনের কার্য আছুক, যে তোমার ‘নাম’ শুনে ।
+> সেই কৃষ্ণপ্রেমে মত্ত, তারে ত্রিভুবনে ॥১২৩॥
+
 > darśanera kārya āchuka, ye tomāra 'nāma' śune
 > sei kṛṣṇa-preme matta, tāre tribhuvane
 

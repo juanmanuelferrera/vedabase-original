@@ -1,5 +1,8 @@
 ### CC Madhya 25.14
 
+> হেনকালে বিপ্র আসি’ করিল নিমন্ত্রণ ।
+> অনেক দৈন্যাদি করি’ ধরিল চরণ ॥১৪॥
+
 > hena-kāle vipra āsi' karila nimantraṇa
 > aneka dainyādi kari' dharila caraṇa
 

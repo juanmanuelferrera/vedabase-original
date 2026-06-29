@@ -1,5 +1,8 @@
 ### CC Adi 9.43
 
+> প্রাণিনামুপকারায় যদেবেহ পরত্র চ ।
+> কর্মণা মনসা বাচা তদেব মতিমান্ ভজেৎ ॥৪৩॥
+
 prāṇinām upakārāya
 yad eveha paratra ca
 karmaṇā manasā vācā

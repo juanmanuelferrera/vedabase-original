@@ -1,5 +1,8 @@
 ### CC Madhya 2.9
 
+> চটক পর্বত দেখি’ ‘গোবর্ধন’ ভ্রমে ।
+> ধাঞা চলে আর্তনাদ করিয়া ক্রন্দনে ॥৯॥
+
 > caṭaka parvata dekhi' 'govardhana' bhrame
 > dhāñā cale ārta-nāda kariyā krandane
 

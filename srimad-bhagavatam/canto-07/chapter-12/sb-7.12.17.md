@@ -1,5 +1,8 @@
 ### SB 7.12.17
 
+> वानप्रस्थस्य वक्ष्यामि नियमान्मुनिसम्मतान
+> यानास्थाय मुनिर्गच्छेदृषिलोकमुहाञ्जसा ॥१७॥
+
 > vānaprasthasya vakṣyāmi
 > niyamān muni-sammatān
 > yān āsthāya munir gacched

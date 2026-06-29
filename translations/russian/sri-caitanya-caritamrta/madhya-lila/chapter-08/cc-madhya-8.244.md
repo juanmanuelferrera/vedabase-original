@@ -1,5 +1,8 @@
 ### CC Madhya 8.244
 
+> প্রভু পুছে, রামানন্দ করেন উত্তর ।
+> এই মত সেই রাত্রে কথা পরস্পর ॥২৪৪॥
+
 > prabhu puche, rāmānanda karena uttara
 > ei mata sei rātre kathā paraspara
 

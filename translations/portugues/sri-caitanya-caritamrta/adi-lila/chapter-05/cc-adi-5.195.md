@@ -1,5 +1,8 @@
 ### CC Adi 5.195
 
+> আরে আরে কৃষ্ণদাস, না করহ ভয় ।
+> বৃন্দাবনে যাহ, — তাঁহা সর্ব লভ্য হয় ॥১৯৫॥
+
 āre āre kṛṣṇadāsa, nā karaha bhaya
 vṛndāvane yāha,--tāṅhā sarva labhya haya
 

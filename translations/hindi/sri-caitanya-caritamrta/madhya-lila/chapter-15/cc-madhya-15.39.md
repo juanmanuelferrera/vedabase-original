@@ -1,5 +1,8 @@
 ### CC Madhya 15.39
 
+> তবে মহাপ্রভু সব ভক্তে বোলাইল ।
+> গৌড়দেশে যাহ সবে বিদায় করিল ॥৩৯॥
+
 > tabe mahāprabhu saba bhakte bolāila
 > gauḍa-deśe yāha sabe vidāya karila
 

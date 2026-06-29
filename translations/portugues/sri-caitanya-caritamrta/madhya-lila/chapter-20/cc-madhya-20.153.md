@@ -1,5 +1,8 @@
 ### CC Madhya 20.153
 
+> সর্ব-আদি, সর্ব-অংশী, কিশোর-শেখর ।
+> চিদানন্দ-দেহ, সর্বাশ্রয়, সর্বেশ্বর ॥১৫৩॥
+
 sarva-ādi, sarva-aṁśī, kiśora-śekhara
 
 cid-ānanda-deha, sarvāśraya, sarveśvara

@@ -1,5 +1,8 @@
 ### SB 3.33.26
 
+> ब्रह्मण्यवस्थितमतिर्भगवत्यात्मसंश्रये ।
+> निवृत्तजीवापत्तित्वात्क्षीणक्लेशाप्तनिर्वृतिः ॥२६॥
+
 > brahmaṇy avasthita-matir
 > bhagavaty ātma-saṁśraye
 > nivṛtta-jīvāpattitvāt

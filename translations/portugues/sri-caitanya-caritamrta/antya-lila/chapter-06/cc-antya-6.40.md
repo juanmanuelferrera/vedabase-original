@@ -1,5 +1,7 @@
 ### CC Antya 6.40
 
+> দড়ির বন্ধনে তাঁরে রাখিবা কেমতে ? জন্মদাতা পিতা নারে ‘প্রারব্ধ’ খণ্ডাইতে ॥৪০॥
+
 daḍira bandhane tāṅre rākhibā ke-mate?
 
 janma-dātā-pitā nāre 'prārabdha' khaṇḍāite

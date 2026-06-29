@@ -1,5 +1,8 @@
 ### CC Adi 5.204
 
+> জয় জয় নিত্যানন্দ-চরণারবিন্দ ।
+> যাঁহা হৈতে পাইনু শ্রীরাধাগোবিন্দ ॥২০৪॥
+
 jaya jaya nityānanda-caraṇāravinda
 
 yāṅhā haite pāinu śrī-rādhā-govinda

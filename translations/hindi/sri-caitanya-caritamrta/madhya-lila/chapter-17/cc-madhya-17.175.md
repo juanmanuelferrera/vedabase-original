@@ -1,5 +1,8 @@
 ### CC Madhya 17.175
 
+> তবে বিপ্র প্রভুরে লঞা আইলা নিজ-ঘরে ।
+> আপন-ইচ্ছায় প্রভুর নানা সেবা করে ॥১৭৫॥
+
 > tabe vipra prabhure lañā āilā nija-ghare
 > āpana-icchāya prabhura nānā sevā kare
 

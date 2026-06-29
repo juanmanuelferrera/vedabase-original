@@ -1,5 +1,8 @@
 ### CC Adi 4.115
 
+> কৈশোর-বয়সে কাম, জগৎসকল ।
+> রাসাদি-লীলায় তিন করিল সফল ॥১১৫॥
+
 kaiśora-vayase kāma, jagat-sakala
 rāsādi-līlāya tina karila saphala
 

@@ -1,5 +1,8 @@
 ### SB 4.22.4
 
+> गौरवाद्यन्त्रितः सभ्यः प्रश्रयानतकन्धरः ।
+> विधिवत्पूजयां चक्रे गृहीताध्यर्हणासनान् ॥४॥
+
 > gauravād yantritaḥ sabhyaḥ
 > praśrayānata-kandharaḥ
 > vidhivat pūjayāṁ cakre

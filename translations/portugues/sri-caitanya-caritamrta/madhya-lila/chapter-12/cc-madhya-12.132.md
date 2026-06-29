@@ -1,5 +1,8 @@
 ### CC Madhya 12.132
 
+> কে কত কুড়ায়, সব একত্র করিব ।
+> যার অল্প, তার ঠাঞি পিঠা-পানা লইব ॥১৩২॥
+
 ke kata kuḍāya, saba ekatra kariba
 
 yāra alpa, tāra ṭhāñi piṭhā-pānā la-iba

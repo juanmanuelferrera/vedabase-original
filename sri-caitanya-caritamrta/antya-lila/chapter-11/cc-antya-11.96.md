@@ -1,5 +1,8 @@
 ### CC Antya 11.96
 
+> ইচ্ছামাত্রে কৈলা নিজপ্রাণ নিষ্ক্রামণ ।
+> পূর্বে যেন শুনিয়াছি ভীষ্মের মরণ ॥৯৬॥
+
 > icchā-mātre kailā nija-prāṇa niṣkrāmaṇa
 > pūrve yena śuniyāchi bhīṣmera maraṇa
 

@@ -1,5 +1,10 @@
 ### SB 7.9.15
 
+> नाहं बिभेम्यजित तेऽतिभयानकास्य
+> जिह्वार्कनेत्रभ्रुकुटीरभसोग्रदंष्ट्रात
+> आन्त्रस्रजःक्षतजकेशरशङ्कुकर्णान
+> निर्ह्रादभीतदिगिभादरिभिन्नखाग्रात ॥१५॥
+
 > nāhaṁ bibhemy ajita te 'tibhayānakāsya-
 > jihvārka-netra-bhrukuṭī-rabhasogra-daṁṣṭrāt
 > āntra-srajaḥ-kṣataja-keśara-śaṅku-karṇān

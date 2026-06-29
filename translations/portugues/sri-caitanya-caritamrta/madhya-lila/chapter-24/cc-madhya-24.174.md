@@ -1,5 +1,8 @@
 ### CC Madhya 24.174
 
+> ‘আত্মা’-শব্দে ‘ধৃতি’ কহে, — ধৈর্যে যেই রমে ।
+> ধৈর্যবন্ত এব হঞা করয় ভজনে ॥১৭৪॥
+
 'ātmā'-śabde 'dhṛti' kahe,--dhairye yei rame
 
 dhairyavanta eva hañā karaya bhajane

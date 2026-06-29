@@ -1,5 +1,8 @@
 ### SB 6.11.8
 
+> ममर्द पद्भ्यां सुरसैन्यमातुरं निमीलिताक्षं रणरङ्गदुर्मदः
+> गां कम्पयन्नुद्यतशूल ओजसा नालं वनं यूथपतिर्यथोन्मदः ॥८॥
+
 > mamarda padbhyāṁ sura-sainyam āturaṁ
 > nimīlitākṣaṁ raṇa-raṅga-durmadaḥ
 > gāṁ kampayann udyata-śūla ojasā

@@ -1,5 +1,8 @@
 ### CC Madhya 15.243
 
+> তুমি ত’ ঈশ্বর, মুঞি — ক্ষুদ্র জীব ছার ।
+> এক-গ্রাস মাধুকরী করহ অঙ্গীকার ॥২৪৩॥
+
 > tumi ta' īśvara, muñi—kṣudra jīva chāra
 > eka-grāsa mādhukarī karaha aṅgīkāra
 

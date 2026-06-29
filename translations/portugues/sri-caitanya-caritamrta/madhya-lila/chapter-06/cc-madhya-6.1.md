@@ -1,5 +1,8 @@
 ### CC Madhya 6.1
 
+> নৌমি তং গৌরচন্দ্রং যঃ কুতর্ক-কর্কশাশয়ম্ ।
+> সার্বভৌমং সর্বভূমা ভক্তিভূমানমাচরৎ ॥১॥
+
 naumi taṁ gauracandraṁ yaḥ
 kutarka-karkaśāśayam
 sārvabhaumaṁ sarva-bhūmā

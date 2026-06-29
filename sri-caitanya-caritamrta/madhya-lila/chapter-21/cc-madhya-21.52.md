@@ -1,5 +1,8 @@
 ### CC Madhya 21.52
 
+> তার তলে ‘বাহ্যাবাস’ বিরজার পার ।
+> অনন্ত ব্রহ্মাণ্ড যাহাঁ কোঠরি অপার ॥৫২॥
+
 > tāra tale 'bāhyāvāsa' virajāra pāra
 > ananta brahmāṇḍa yāhāṅ koṭhari apāra
 

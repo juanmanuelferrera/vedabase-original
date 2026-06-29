@@ -1,5 +1,8 @@
 ### CC Madhya 8.299
 
+> এত বলি’ রামানন্দে করি’ আলিঙ্গন ।
+> তাঁরে ঘরে পাঠাইয়া করিল শয়ন ॥২৯৯॥
+
 > eta bali' rāmānande kari' āliṅgana
 > tāṅre ghare pāṭhāiyā karila śayana
 

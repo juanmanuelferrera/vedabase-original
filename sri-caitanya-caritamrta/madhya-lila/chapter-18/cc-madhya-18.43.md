@@ -1,5 +1,8 @@
 ### CC Madhya 18.43
 
+> দেখিতে উৎকণ্ঠা হয়, না চড়ে গোবর্ধনে ।
+> কোন ছলে গোপাল আসি’ উতরে আপনে ॥৪৩॥
+
 > dekhite utkaṇṭhā haya, nā caḍe govardhane
 > kona chale gopāla āsi' utare āpane
 

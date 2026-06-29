@@ -1,5 +1,8 @@
 ### SB 8.2.6
 
+> यत्र सङ्गीतसन्नादैर्नदद्गुहममर्षया
+> अभिगर्जन्ति हरयः श्लाघिनः परशङ्कया ॥६॥
+
 > yatra saṅgīta-sannādair
 > nadad-guham amarṣayā
 > abhigarjanti harayaḥ

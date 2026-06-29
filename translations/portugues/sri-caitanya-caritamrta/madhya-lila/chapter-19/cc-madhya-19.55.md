@@ -1,5 +1,8 @@
 ### CC Madhya 19.55
 
+> তবে মহাপ্রভু তাঁরে নিকটে বসাইলা ।
+> ‘সনাতনের বার্তা কহ’ — তাঁহারে পুছিলা ॥৫৫॥
+
 tabe mahāprabhu tāṅre nikaṭe vasāilā
 
 'sanātanera vārtā kaha'--tāṅhāre puchilā

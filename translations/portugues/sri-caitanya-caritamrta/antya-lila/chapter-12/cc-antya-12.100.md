@@ -1,5 +1,8 @@
 ### CC Antya 12.100
 
+> জগদানন্দ মিলিতে যায় যেই ভক্ত-ঘরে ।
+> সেই সেই ভক্ত সুখে আপনা পাসরে ॥১০০॥
+
 jagadānanda milite yāya yei bhakta-ghare
 
 sei sei bhakta sukhe āpanā pāsare

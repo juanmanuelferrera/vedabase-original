@@ -1,5 +1,8 @@
 ### CC Antya 7.65
 
+> অদ্বৈত, নিত্যানন্দ-রায় — পার্শ্বে দুইজন ।
+> মধ্যে মহাপ্রভু বসিলা, আগে-পাছে ভক্তগণ ॥৬৫॥
+
 advaita, nityānanda-rāya--pārśve dui-jana
 
 madhye mahāprabhu vasilā, āge-pāche bhakta-gaṇa

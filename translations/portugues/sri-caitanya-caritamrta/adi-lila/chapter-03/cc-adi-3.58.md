@@ -1,5 +1,10 @@
 ### CC Adi 3.58
 
+> কলৌ যং বিদ্বাংসঃ স্ফূটমভিযজন্তে দ্যুতিভরা-
+> দকৃষ্ণাঙ্গং কৃষ্ণং মখবিধিভিরুৎকীর্তনময়ৈঃ ।
+> উপাস্যঞ্চ প্রাহুর্যমখিলচতুর্থাশ্রমজুষাং
+> স দেবশ্চৈতন্যাকৃতিরতিতরাং নঃ কৃপয়তু ॥৫৮॥
+
 kalau yaṁ vidvāṁsaḥ sphuṭam abhiyajante dyuti-bharād
 akṛṣṇāṅgaṁ kṛṣṇaṁ makha-vidhibhir utkīrtana-mayaiḥ
 upāsyaṁ ca prāhur yam akhila-caturthāśrama-juṣāṁ

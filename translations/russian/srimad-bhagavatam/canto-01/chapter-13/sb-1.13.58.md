@@ -1,5 +1,8 @@
 ### SB 1.13.58
 
+> दह्यमानेऽग्निभिर्देहे पत्युः पत्नी सहोटजे ।
+> बहिः स्थिता पतिं साध्वी तमग्निमनु वेक्ष्यति ॥५८॥
+
 > dahyamāne 'gnibhir dehe
 > patyuḥ patnī sahoṭaje
 > bahiḥ sthitā patiṁ sādhvī

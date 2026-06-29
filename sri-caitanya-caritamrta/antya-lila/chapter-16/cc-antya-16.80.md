@@ -1,5 +1,8 @@
 ### CC Antya 16.80
 
+> একদিন প্রভু গেলা জগন্নাথ-দরশনে ।
+> সিংহদ্বারে দলই আসি’ করিল বন্দনে ॥৮০॥
+
 > eka-dina prabhu gelā jagannātha-daraśane
 > siṁha-dvāre dala-i āsi' karila vandane
 

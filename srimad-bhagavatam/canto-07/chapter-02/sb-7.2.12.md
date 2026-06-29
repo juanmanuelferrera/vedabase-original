@@ -1,5 +1,8 @@
 ### SB 7.2.12
 
+> यत्र यत्र द्विजा गावो वेदा वर्णाश्रमक्रियाः
+> तं तं जनपदं यात सन्दीपयत वृश्चत ॥१२॥
+
 > yatra yatra dvijā gāvo
 > vedā varṇāśrama-kriyāḥ
 > taṁ taṁ janapadaṁ yāta

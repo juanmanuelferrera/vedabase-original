@@ -1,5 +1,8 @@
 ### CC Antya 2.43
 
+> জগদানন্দ হয় তাহাঁ, তেঁহো ভিক্ষা দিবে ।
+> সবারে কহিহ, — এ বৎসর কেহ না আসিবে ।।” ॥ ৪৩ ॥
+
 > jagadānanda haya tāhāṅ, teṅho bhikṣā dibe
 > sabāre kahiha,--e vatsara keha nā āsibe"
 

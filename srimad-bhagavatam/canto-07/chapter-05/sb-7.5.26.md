@@ -1,5 +1,8 @@
 ### SB 7.5.26
 
+> ब्रह्मबन्धो किमेतत्ते विपक्षं श्रयतासता
+> असारं ग्राहितो बालो मामनादृत्य दुर्मते ॥२६॥
+
 > brahma-bandho kim etat te
 > vipakṣaṁ śrayatāsatā
 > asāraṁ grāhito bālo

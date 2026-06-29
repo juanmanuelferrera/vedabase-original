@@ -1,5 +1,8 @@
 ### CC Antya 12.16
 
+> সবার সব কার্য করেন, দেন বাসস্থান ।
+> শিবানন্দ জানে উড়িয়া-পথের সন্ধান ॥১৬॥
+
 sabāra saba kārya karena, dena vāsa-sthāna
 
 śivānanda jāne uḍiyā-pathera sandhāna

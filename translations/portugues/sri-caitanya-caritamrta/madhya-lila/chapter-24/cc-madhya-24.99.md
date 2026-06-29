@@ -1,5 +1,8 @@
 ### CC Madhya 24.99
 
+> ‘দুঃসঙ্গ’ কহিয়ে — ‘কৈতব’, ‘আত্মবঞ্চনা’ ।
+> কৃষ্ণ, কৃষ্ণভক্তি বিনু অন্য কামনা ॥৯৯॥
+
 'duḥsaṅga' kahiye--'kaitava', 'ātma-vañcanā'
 
 kṛṣṇa, kṛṣṇa-bhakti vinu anya kāmanā

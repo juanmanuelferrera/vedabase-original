@@ -1,5 +1,8 @@
 ### CC Antya 9.85
 
+> শুনি রাজা দুঃখী হৈলা, পুছিলেন কারণ ।
+> তবে মিশ্র কহে তাঁরে সব বিবরণ ॥৮৫॥
+
 śuni rājā duḥkhī hailā, puchilena kāraṇa
 
 tabe miśra kahe tāṅre saba vivaraṇa

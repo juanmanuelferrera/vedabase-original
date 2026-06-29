@@ -1,5 +1,8 @@
 ### CC Madhya 11.56
 
+> 'kṛṣṇa-rāsa-pañcādhyāya' karite paṭhana
+> ekale yāi' mahāprabhura dharibe caraṇa
+
 > kṛṣṇa-rāsa-pañcādhyāya karite paṭhana
 > ekale yāi' mahāprabhura dharibe caraṇa
 

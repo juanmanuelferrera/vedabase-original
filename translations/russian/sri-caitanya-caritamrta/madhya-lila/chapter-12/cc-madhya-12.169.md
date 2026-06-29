@@ -1,5 +1,8 @@
 ### CC Madhya 12.169
 
+> জগদানন্দ বেড়ায় পরিবেশন করিতে ।
+> প্রভুর পাতে ভাল-দ্রব্য দেন আচম্বিতে ॥১৬৯॥
+
 > jagadānanda beḍāya pariveśana karite
 > prabhura pāte bhāla-dravya dena ācambite
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.345
 
+> এই সংক্ষেপে সূত্র কহিলুঁ দিগ্দরশন ।
+> যবে তুমি লিখিবা, কৃষ্ণ করাবে স্ফুরণ ॥৩৪৫॥
+
 > ei saṅkṣepe sūtra kahiluṅ dig-daraśana
 > yabe tumi likhibā, kṛṣṇa karābe sphuraṇa
 

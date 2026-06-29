@@ -1,5 +1,8 @@
 ### CC Madhya 17.131
 
+> ‘নাম’, ‘বিগ্রহ’, ‘স্বরূপ’ — তিন একরূপ ।
+> তিনে ‘ভেদ’ নাহি, — তিন ‘চিদানন্দ-রূপ’ ॥১৩১॥
+
 'nāma', 'vigraha', 'svarūpa'--tina eka-rūpa
 
 tine 'bheda' nāhi,--tina 'cid-ānanda-rūpa'

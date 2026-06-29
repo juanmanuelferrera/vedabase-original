@@ -1,5 +1,8 @@
 ### SB 3.4.9
 
+> तस्मिन्महाभागवतो द्वैपायनसुहृत्सखा ।
+> लोकाननुचरन्सिद्ध आससाद यदृच्छया ॥९॥
+
 > tasmin mahā-bhāgavato
 > dvaipāyana-suhṛt-sakhā
 > lokān anucaran siddha

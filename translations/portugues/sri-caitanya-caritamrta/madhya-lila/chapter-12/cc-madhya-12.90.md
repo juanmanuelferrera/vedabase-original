@@ -1,5 +1,8 @@
 ### CC Madhya 12.90
 
+> প্রভু কহে, — কে কত করিয়াছ সংমার্জন ।
+> তৃণ, ধূলি দেখিলেই জানিব পরিশ্রম ॥৯০॥
+
 prabhu kahe,-ke kata kariyācha sammārjana
 
 tṛṇa, dhūli dekhilei jāniba pariśrama

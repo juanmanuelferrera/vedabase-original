@@ -1,5 +1,8 @@
 ### CC Madhya 20.102
 
+> ‘কে আমি’, ‘কেনে আমায় জারে তাপত্রয়’ ।
+> ইহা নাহি জানি — ‘কেমনে হিত হয়’ ॥১০২॥
+
 > 'ke āmi', 'kene āmāya jāre tāpa-traya'
 > ihā nāhi jāni—'kemane hita haya'
 

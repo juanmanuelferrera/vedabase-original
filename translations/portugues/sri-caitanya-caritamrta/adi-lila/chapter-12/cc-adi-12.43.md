@@ -1,5 +1,8 @@
 ### CC Adi 12.43
 
+> এত কহি’ আচার্য তাঁরে করিয়া আশ্বাস ।
+> আনন্দিত হইয়া আইল মহাপ্রভু-পাশ ॥৪৩॥
+
 eta kahi' ācārya tāṅre kariyā āśvāsa
 ānandita ha-iyā āila mahāprabhu-pāśa
 

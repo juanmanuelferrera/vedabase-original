@@ -1,5 +1,8 @@
 ### CC Adi 17.191
 
+> তাহা দেখি’ রহিনু মুঞি মহাভয় পাঞা ।
+> কীর্তন না বর্জিহ, ঘরে রহোঁ ত’ বসিয়া ॥১৯১॥
+
 tāhā dekhi' rahinu muñi mahā-bhaya pāñā
 kīrtana nā varjiha, ghare rahoṅ ta' vasiyā
 

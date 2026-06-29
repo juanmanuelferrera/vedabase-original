@@ -1,5 +1,8 @@
 ### SB 1.5.18
 
+> तस्यैव हेतोः प्रयतेत कोविदो न लभ्यते यद्भ्रमतामुपर्यधः ।
+> तल्लभ्यते दुःखवदन्यतः सुखं कालेन सर्वत्र गभीररंहसा ॥१८॥
+
 tasyaiva hetoḥ prayateta kovido
 
 na labhyate yad bhramatām upary adhaḥ

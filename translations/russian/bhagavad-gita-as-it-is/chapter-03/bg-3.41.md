@@ -1,5 +1,8 @@
 ### Bg 3.41
 
+> तस्मात्त्वमिन्द्रियाण्यादौ नियम्य भरतर्षभ ।
+> पाप्मानं प्रजहि ह्येनं ज्ञानविज्ञाननाशनम् ॥४१॥
+
 > tasmāt tvam indriyāṇy ādau
 > niyamya bharatarṣabha
 > pāpmānaṁ prajahi hy enaṁ

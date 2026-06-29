@@ -1,5 +1,7 @@
 ### SB 5.24.30
 
+> ततोऽधस्ताद्रसातले दैतेया दानवाः पणयो नाम निवातकवचाः कालेया हिरण्यपुरवासिन इतिविबुधप्रत्यनीका उत्पत्त्या महौजसो महासाहसिनो भगवतः सकललोकानुभावस्य हरेरेव तेजसाप्रतिहतबलावलेपा बिलेशया इव वसन्ति ये वै सरमयेन्द्रदूत्या वाग्भिर्मन्त्रवर्णाभिरिन्द्राद्बिभ्यति ॥३०॥
+
 > tato 'dhastād rasātale daiteyā dānavāḥ paṇayo nāma nivāta-kavacāḥ kāleyā hiraṇya-puravāsina iti vibudha-pratyanīkā utpattyā mahaujaso mahā-sāhasino bhagavataḥ sakala-lokānubhāvasya harer eva tejasā pratihata-balāvalepā bileśayā iva vasanti ye vai saramayendra-dūtyā vāgbhir mantra-varṇābhir indrād bibhyati.
 
 *tataḥ adhastāt*—below the planetary system Mahātala; *rasātale*—on the planet called Rasātala; *daiteyāḥ*—the sons of Diti; *dānavāḥ*—the sons of Danu; *paṇayaḥ nāma*—named Paṇis; *nivāta-kavacāḥ*—Nivāta-kavacas; *kāleyāḥ*—Kāleyas; *hiraṇya-puravāsinaḥ*—Hiraṇya-puravāsīs; *iti*—thus; *vibudha-pratyanīkāḥ*—enemies of the demigods; *utpattyāḥ*—from birth; *mahā-ojasaḥ*—very powerful; *mahā-sāhasinaḥ*—very cruel; *bhagavataḥ*—of the Personality of Godhead; *sakala-loka-anubhāvasya*—who is auspicious for all planetary systems; *hareḥ*—of the Supreme Personality of Godhead; *eva*—certainly; *tejasā*—by the Sudarśana *cakra*; *pratihata*—defeated; *bala*—strength; *avalepāḥ*—and pride (because of bodily strength); *bila-īśayāḥ*—the snakes; *iva*—like; *vasanti*—they live; *ye*—who; *vai*—indeed; *saramayā*—by Saramā; *indra-dūtyā*—the messenger of Indra; *vāgbhiḥ*—by the words; *mantra-varṇābhiḥ*—in the form of a *mantra*; *indrāt*—from King Indra; *bibhyati*—are afraid.

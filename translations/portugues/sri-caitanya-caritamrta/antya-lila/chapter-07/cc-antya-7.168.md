@@ -1,5 +1,8 @@
 ### CC Antya 7.168
 
+> অন্তরে ‘অনুগ্রহ’, বাহ্যে ‘উপেক্ষার প্রায়’ ।
+> বাহ্যার্থ যেই লয়, সেই নাশ যায় ॥১৬৮॥
+
 antare 'anugraha,' bāhye 'upekṣāra prāya'
 
 bāhyārtha yei laya, sei nāśa yāya

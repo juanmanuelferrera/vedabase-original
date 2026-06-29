@@ -1,5 +1,8 @@
 ### CC Madhya 21.27
 
+> জানন্ত এব জানন্তু কিং বহূক্ত্যা ন মে প্রভো ।
+> মনসো বপুষো বাচো বৈভবং তব গোচরঃ ॥২৭॥
+
 > jānanta eva jānantu
 > kiṁ bahūktyā na me prabho
 > manaso vapuṣo vāco

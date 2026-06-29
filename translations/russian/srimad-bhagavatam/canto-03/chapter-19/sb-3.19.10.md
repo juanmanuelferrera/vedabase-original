@@ -1,5 +1,8 @@
 ### SB 3.19.10
 
+> आह चायुधमाधत्स्व घटस्व त्वं जिगीषसि ।
+> इत्युक्तः स तदा भूयस्ताडयन्व्यनदद्भृशम् ॥१०॥
+
 > āha cāyudham ādhatsva
 > ghaṭasva tvaṁ jigīṣasi
 > ity uktaḥ sa tadā bhūyas

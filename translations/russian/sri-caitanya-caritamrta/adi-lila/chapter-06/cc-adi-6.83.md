@@ -1,5 +1,8 @@
 ### CC Adi 6.83
 
+> এক কৃষ্ণ — সর্বসেব্য, জগৎ-ঈশ্বর ।
+> আর যত সব, — তাঁর সেবকানুচর ॥৮৩॥
+
 > eka kṛṣṇa—sarva-sevya, jagat-īśvara
 > āra yata saba,—tāṅra sevakānucara
 

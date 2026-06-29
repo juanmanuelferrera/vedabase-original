@@ -1,5 +1,8 @@
 ### CC Adi 4.57
 
+> সেই দুই এক এবে চৈতন্য গোসাঞি ।
+> রস আস্বাদিতে দোঁহে হৈলা একঠাঁই ॥৫৭॥
+
 sei dui eka ebe caitanya gosāñi
 rasa āsvādite doṅhe hailā eka-ṭhāṅi
 

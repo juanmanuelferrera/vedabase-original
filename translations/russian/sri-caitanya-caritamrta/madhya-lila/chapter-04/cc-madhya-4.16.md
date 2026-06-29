@@ -1,5 +1,8 @@
 ### CC Madhya 4.16
 
+> প্রভুর প্রভাব দেখি’ প্রেম-রূপ-গুণ ।
+> বিস্মিত হইলা গোপীনাথের দাসগণ ॥১৬॥
+
 > prabhura prabhāva dekhi' prema-rūpa-guṇa
 > vismita ha-ilā gopīnāthera dāsa-gaṇa
 

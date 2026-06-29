@@ -1,5 +1,8 @@
 ### CC Antya 20.127
 
+> তার মধ্যে প্রভুর পঞ্চেন্দ্রিয়-আকর্ষণ ।
+> তার মধ্যে করিলা রাসে কৃষ্ণ-অন্বেষণ ॥১২৭॥
+
 > tāra madhye prabhura pañcendriya-ākarṣaṇa
 > tāra madhye karilā rāse kṛṣṇa-anveṣaṇa
 

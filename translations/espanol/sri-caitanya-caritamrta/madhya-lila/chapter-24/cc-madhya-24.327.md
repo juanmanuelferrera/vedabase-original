@@ -1,5 +1,8 @@
 ### CC Madhya 24.327
 
+> তবে তার দিশা স্ফুরে মো-নীচের হৃদয় ৷
+> ঈশ্বর তুমি, — যে করাহ, সেই সিদ্ধ হয় ।।” ॥ ৩২৭ ॥
+
 > tabe tāra diśā sphure mo-nīcera hṛdaya
 > īśvara tumi,--ye karāha, sei siddha haya"
 

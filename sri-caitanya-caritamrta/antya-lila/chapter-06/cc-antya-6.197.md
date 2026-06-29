@@ -1,5 +1,8 @@
 ### CC Antya 6.197
 
+> তোমার বাপ-জ্যেঠা — বিষয়বিষ্ঠা-গর্তের কীড়া ।
+> সুখ করি’ মানে বিষয়-বিষের মহাপীড়া ॥১৯৭॥
+
 > tomāra bāpa-jyeṭhā—viṣaya-viṣṭhā-gartera kīḍā
 > sukha kari' māne viṣaya-viṣera mahā-pīḍā
 

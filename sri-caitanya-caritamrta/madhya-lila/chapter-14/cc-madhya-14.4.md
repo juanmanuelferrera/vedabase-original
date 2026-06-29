@@ -1,5 +1,8 @@
 ### CC Madhya 14.4
 
+> এইমত প্রভু আছেন প্রেমের আবেশে ।
+> হেনকালে প্রতাপরুদ্র করিল প্রবেশে ॥৪॥
+
 > ei-mata prabhu āchena premera āveśe
 > hena-kāle pratāparudra karila praveśe
 

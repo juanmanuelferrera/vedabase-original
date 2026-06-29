@@ -1,5 +1,8 @@
 ### CC Antya 4.208
 
+> যে-কালে বিদায় হৈলা প্রভুর চরণে ।
+> দুইজনার বিচ্ছেদ-দশা না যায় বর্ণনে ॥২০৮॥
+
 ye-kāle vidāya hailā prabhura caraṇe
 
 dui-janāra viccheda-daśā nā yāya varṇane

@@ -1,5 +1,8 @@
 ### SB 9.1.17
 
+> भगवन्किमिदं जातं कर्म वो ब्रह्मवादिनाम
+> विपर्ययमहो कष्टं मैवं स्याद्ब्रह्मविक्रिया ॥१७॥
+
 > bhagavan kim idaṁ jātaṁ
 > karma vo brahma-vādinām
 > viparyayam aho kaṣṭaṁ

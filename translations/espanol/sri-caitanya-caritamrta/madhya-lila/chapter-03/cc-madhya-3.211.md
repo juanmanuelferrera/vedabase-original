@@ -1,5 +1,8 @@
 ### CC Madhya 3.211
 
+> তাঁরে প্রদক্ষিণ করি’ করিল গমন ।
+> এথা আচার্যের ঘরে উঠিল ক্রন্দন ॥২১১॥
+
 > tāṅre pradakṣiṇa kari' karila gamana
 > ethā ācāryera ghare uṭhila krandana
 

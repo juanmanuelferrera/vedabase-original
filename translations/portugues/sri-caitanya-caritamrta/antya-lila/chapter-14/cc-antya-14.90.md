@@ -1,5 +1,8 @@
 ### CC Antya 14.90
 
+> পুরী-ভারতী-গোসাঞি আইলা সিন্ধুতীরে ।
+> ভগবান্-আচার্য খঞ্জ চলিলা ধীরে ধীরে ॥৯০॥
+
 purī-bhāratī-gosāñi āilā sindhu-tīre
 
 bhagavān-ācārya khañja calilā dhīre dhīre

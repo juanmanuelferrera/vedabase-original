@@ -1,5 +1,8 @@
 ### CC Madhya 25.240
 
+> মধ্যলীলার করিলুঁ এই দিগ্দরশন ।
+> ছয় বৎসর কৈলা যৈছে গমনাগমন ॥২৪০॥
+
 > madhya-līlāra kariluṅ ei dig-daraśana
 > chaya vatsara kailā yaiche gamanāgamana
 

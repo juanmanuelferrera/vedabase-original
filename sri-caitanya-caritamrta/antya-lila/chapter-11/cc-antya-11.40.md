@@ -1,5 +1,8 @@
 ### CC Antya 11.40
 
+> মোর শিরোমণি কত কত মহাশয় ।
+> তোমার লীলার সহায় কোটিভক্ত হয় ॥৪০॥
+
 > mora śiromaṇi kata kata mahāśaya
 > tomāra līlāra sahāya koṭi-bhakta haya
 

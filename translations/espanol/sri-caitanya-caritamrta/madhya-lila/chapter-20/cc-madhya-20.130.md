@@ -1,5 +1,8 @@
 ### CC Madhya 20.130
 
+> সর্বজ্ঞের বাক্যে মূলধন অনুবন্ধ ৷
+> সর্বশাস্ত্রে উপদেশে, ‘শ্রীকৃষ্ণ’ — সম্বন্ধ ৷৷ ১৩০ ৷৷ ॥১৩০॥
+
 > sarvajñera vākye mūla-dhana anubandha
 > sarva-śāstre upadeśe, 'śrī-kṛṣṇa'--sambandha
 

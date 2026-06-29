@@ -1,5 +1,8 @@
 ### CC Madhya 6.59
 
+> আমি বালক-সন্ন্যাসী — ভাল-মন্দ নাহি জানি ।
+> তোমার আশ্রয় নিলুঁ, গুরু করি’ মানি ॥৫৯॥
+
 āmi bālaka-sannyāsī--bhānda-manda nāhi jāni
 tomāra āśraya niluṅ, guru kari' māni
 

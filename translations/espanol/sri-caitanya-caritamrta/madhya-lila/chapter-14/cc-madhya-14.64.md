@@ -1,5 +1,8 @@
 ### CC Madhya 14.64
 
+> আনন্দে মহাপ্রভুর প্রেম উথলিল ।
+> দেখি’ সব লোক প্রেম-সাগরে ভাসিল ॥৬৪॥
+
 > ānande mahāprabhura prema uthalila
 > dekhi' saba loka prema-sāgare bhāsila
 

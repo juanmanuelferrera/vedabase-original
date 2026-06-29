@@ -1,5 +1,8 @@
 ### CC Antya 3.137
 
+> নিরন্তর নাম লও, কর তুলসী সেবন ।
+> অচিরাৎ পাবে তবে কৃষ্ণের চরণ ।।” ॥ ১৩৭ ॥
+
 nirantara nāma lao, kara tulasī sevana
 
 acirāt pābe tabe kṛṣṇera caraṇa"

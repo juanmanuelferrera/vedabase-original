@@ -1,5 +1,8 @@
 ### CC Madhya 20.122
 
+> মায়ামুগ্ধ জীবের নাহি স্বতঃ কৃষ্ণজ্ঞান ।
+> জীবেরে কৃপায় কৈলা কৃষ্ণ বেদ-পুরাণ ॥১২২॥
+
 > māyā-mugdha jīvera nāhi svataḥ kṛṣṇa-jñāna
 > jīvere kṛpāya kailā kṛṣṇa veda-purāṇa
 

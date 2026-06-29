@@ -1,5 +1,7 @@
 ### SB 5.8.15
 
+> अन्यदा भृशमुद्विग्नमना नष्टद्रविण इव कृपणः सकरुणमतितर्षेण हरिणकुणकविरहविह्वलहृदयसन्तापस्तमेवानुशोचन्किल कश्मलं महदभिरम्भित इति होवाच ॥१५॥
+
 *anyadā bhṛśam udvigna*-manā naṣṭa-draviṇa iva kṛpaṇaḥ sakaruṇam ati-tarṣeṇa hariṇa-kuṇaka-viraha-vihvala-hṛdaya-santāpas tam evānuśocan kila kaśmalaṁ mahad abhirambhita iti hovāca.
 
 *anyadā*—às vezes (não vendo o filhote); *bhṛśam*—muitíssimo; *udvigna-manāḥ*—sua mente cheia de ansiedade; *naṣṭa-draviṇaḥ*—que perdeu suas riquezas; *iva*—como; *kṛpaṇaḥ*—um avarento; *sa-karuṇam*—lamentavelmente; *ati-tarṣeṇa*—com grande ansiedade; *hariṇa-kuṇaka*—do filhote do cervo; *viraha*—pela separação; *vihvala*—agitado; *hṛdaya*—em mente ou coração; *santāpaḥ*—cuja aflição; *tam*—esse filhote; *eva*—somente; *anuśocan*—pensando continuamente em; *kila*—certamente; *kaśmalam*—ilusão; *mahat*—muito grande; *abhirambhitaḥ*—obteve; *iti*—assim; *ha*—certamente; *uvāca*—disse.

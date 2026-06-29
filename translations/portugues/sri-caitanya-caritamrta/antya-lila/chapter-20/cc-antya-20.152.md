@@ -1,5 +1,8 @@
 ### CC Antya 20.152
 
+> শ্রোতার পদরেণু করোঁ মস্তক-ভূষণ ।
+> তোমরা এ-অমৃত পিলে সফল হৈল শ্রম ॥১৫২॥
+
 śrotāra pada-reṇu karoṅ mastaka-bhūṣaṇa
 
 tomarā e-amṛta pile saphala haila śrama

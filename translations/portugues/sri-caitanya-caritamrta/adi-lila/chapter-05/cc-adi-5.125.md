@@ -1,5 +1,8 @@
 ### CC Adi 5.125
 
+> সেই ত’ অনন্ত, যাঁর কহি এক কলা ।
+> হেন প্রভু নিত্যানন্দ, কে জানে তাঁর খেলা ॥১২৫॥
+
 sei ta' ananta, yāṅra kahi eka kalā
 
 hena prabhu nityānanda, ke jāne tāṅra khelā

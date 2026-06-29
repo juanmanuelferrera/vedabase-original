@@ -1,5 +1,7 @@
 ### SB 5.26.37
 
+> एवंविधा नरका यमालये सन्ति शतशः सहस्रशस्तेषु सर्वेषु च सर्व एवाधर्मवर्तिनो येकेचिदिहोदिता अनुदिताश्चावनिपते पर्यायेण विशन्ति तथैव धर्मानुवर्तिन इतरत्र इह तु पुनर्भवे तउभयशेषाभ्यां निविशन्ति ॥३६॥
+
 > evaṁ-vidhā narakā yamālaye santi śataśaḥ sahasraśas teṣu sarveṣu ca sarva evādharma-vartino ye kecid ihoditā anuditāś cāvani-pate paryāyeṇa viśanti tathaiva dharmānuvartina itaratra iha tu punar-bhave ta ubhaya-śeṣābhyāṁ niviśanti.
 
 *evam-vidhāḥ*—of this sort; *narakāḥ*—the many hells; *yama-ālaye*—in the province of Yamarāja; *santi*—are; *śataśaḥ*—hundreds; *sahasraśaḥ*—thousands; *teṣu*—in those hellish planets; *sarveṣu*—all; *ca*—also; *sarve*—all; *eva*—indeed; *adharma-vartinaḥ*—persons not following the Vedic principles or regulative principles; *ye kecit*—whosoever; *iha*—here; *uditāḥ*—mentioned; *anuditāḥ*—not mentioned; *ca*—and; *avani-pate*—O King; *paryāyeṇa*—according to the degree of different kinds of sinful activity; *viśanti*—they enter; *tathā eva*—similarly; *dharma-anuvartinaḥ*—those who are pious and act according to the regulative principles or Vedic injunctions; *itaratra*—elsewhere; *iha*—on this planet; *tu*—but; *punaḥ-bhave*—into another birth; *te*—all of them; *ubhaya-śeṣābhyām*—by the remainder of the results of piety or vice; *niviśanti*—they enter.

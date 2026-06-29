@@ -1,5 +1,10 @@
 ### CC Madhya 8.266
 
+> জন্মাদ্যস্য যতোঽন্বয়াদিতরতশ্চার্থেষ্বভিজ্ঞঃ স্বরাট্
+> তেনে ব্রহ্ম হৃদা য আদিকবয়ে মুহ্যন্তি যৎ সূরয়ঃ ৷
+> তেজোবারিমৃদাং যথা বিনিময়ো যত্র ত্রিসর্গোঽমৃষা
+> ধাম্না স্বেন সদা নিরস্তকুহকং সত্যং পরং ধীমহি ৷৷ ২৬৬ ৷৷ ॥২৬৬॥
+
 > janmādy asya yato 'nvayād itarataś cārtheṣv abhijñaḥ sva-rāṭ
 > tene brahma hṛdā ya ādi-kavaye muhyanti yat sūrayaḥ
 > tejo-vāri-mṛdāṁ yathā vinimayo yatra tri-sargo 'mṛṣā

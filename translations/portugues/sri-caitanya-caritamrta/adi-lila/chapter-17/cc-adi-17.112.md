@@ -1,5 +1,8 @@
 ### CC Adi 17.112
 
+> সর্বজ্ঞ কহে আমি তাহা ধ্যানে দেখিলাঙ ।
+> তাহাতে ঐশ্বর্য দেখি’ ফাঁফর হইলাঙ ॥১১২॥
+
 sarva-jña kahe āmi tāhā dhyāne dekhilāṅ
 tāhāte aiśvarya dekhi' phāṅphara ha-ilāṅ
 

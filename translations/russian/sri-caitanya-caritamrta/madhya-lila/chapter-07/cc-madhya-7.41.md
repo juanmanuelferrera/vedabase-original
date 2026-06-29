@@ -1,5 +1,8 @@
 ### CC Madhya 7.41
 
+> তবে তাঁর বাক্য প্রভু করি’ অঙ্গীকারে ।
+> তাহা-সবা লঞা গেলা সার্বভৌম ঘরে ॥৪১॥
+
 > tabe tāṅra vākya prabhu kari' aṅgīkāre
 > tāhā-sabā lañā gelā sārvabhauma-ghare
 

@@ -1,5 +1,8 @@
 ### CC Madhya 18.222
 
+> এইমত চলি’ প্রভু ‘প্রয়াগ’ আইলা ।
+> দশ-দিন ত্রিবেণীতে মকর-স্নান কৈলা ॥২২২॥
+
 > ei-mata cali' prabhu 'prayāga' āilā
 > daśa-dina triveṇīte makara-snāna kailā
 

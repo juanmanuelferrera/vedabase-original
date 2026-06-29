@@ -1,5 +1,8 @@
 ### CC Adi 13.10
 
+> চব্বিশ বৎসর প্রভু কৈল গৃহবাস ।
+> নিরন্তর কৈল কৃষ্ণ-কীর্তন-বিলাস ॥১০॥
+
 cabbiśa vatsara prabhu kaila gṛha-vāsa
 nirantara kaila kṛṣṇa-kīrtana-vilāsa
 

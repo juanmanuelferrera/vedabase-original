@@ -1,5 +1,8 @@
 ### CC Madhya 19.95
 
+> নিজ-কৃত কৃষ্ণলীলা-শ্লোক পড়িল ।
+> শুনি’ মহাপ্রভুর মহা প্রেমাবেশ হৈল ॥৯৫॥
+
 > nija-kṛta kṛṣṇa-līlā-śloka paḍila
 > śuni' mahāprabhura mahā premāveśa haila
 

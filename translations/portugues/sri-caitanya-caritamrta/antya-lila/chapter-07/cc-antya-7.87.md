@@ -1,5 +1,8 @@
 ### CC Antya 7.87
 
+> এই অর্থ আমি মাত্র জানিয়ে নির্ধার ।
+> আর সর্ব-অর্থে মোর নাহি অধিকার ।।” ॥ ৮৭ ॥
+
 ei artha āmi mātra jāniye nirdhāra
 
 āra sarva-arthe mora nāhi adhikāra"

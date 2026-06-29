@@ -1,5 +1,8 @@
 ### CC Antya 2.122
 
+> আর দিনে সবে মেলি’ প্রভুর চরণে  ।
+> হরিদাস লাগি, কিছু কৈলা নিবেদনে ॥১২২॥
+
 āra dine sabe meli' prabhura caraṇe
 
 haridāsa lāgi, kichu kailā nivedane

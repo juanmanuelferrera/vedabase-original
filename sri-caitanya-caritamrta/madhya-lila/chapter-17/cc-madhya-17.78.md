@@ -1,5 +1,8 @@
 ### CC Madhya 17.78
 
+> মুঞি ছার, মোরে তুমি সঙ্গে লঞা আইলা ।
+> কৃপা করি’ মোর হাতে ‘প্রভু’ ভিক্ষা কৈলা ॥৭৮॥
+
 > muñi chāra, more tumi saṅge lañā āilā
 > kṛpā kari' mora hāte 'prabhu' bhikṣā kailā
 

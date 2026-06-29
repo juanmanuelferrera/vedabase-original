@@ -1,5 +1,8 @@
 ### CC Madhya 12.48
 
+> রাজার মিলনে ভিক্ষুকের দুই লোক নাশ ।
+> পরলোক রহু, লোকে করে উপহাস ॥৪৮॥
+
 > rājāra milane bhikṣukera dui loka nāśa
 > paraloka rahu, loke kare upahāsa
 

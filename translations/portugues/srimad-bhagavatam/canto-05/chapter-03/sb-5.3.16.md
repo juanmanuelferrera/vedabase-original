@@ -1,5 +1,8 @@
 ### SB 5.3.16
 
+> श्रीशुक उवाच
+> इति निगदेनाभिष्टूयमानो भगवाननिमिषर्षभो वर्षधराभिवादिताभिवन्दितचरणःसदयमिदमाह ॥१५॥
+
 śrī-śuka uvāca
 
 *iti nigadenābhiṣṭūyamāno bhagavān animiṣarṣabho varṣa*-dharābhivāditābhivandita-caraṇaḥ sadayam idam āha.

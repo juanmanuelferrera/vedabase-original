@@ -1,5 +1,8 @@
 ### CC Madhya 16.285
 
+> সবার ইচ্ছায় প্রভু চারি মাস রহিলা ।
+> শুনিয়া প্রতাপরুদ্র আনন্দিত হৈলা ॥২৮৫॥
+
 > sabāra icchāya prabhu cāri māsa rahilā
 > śuniyā pratāparudra ānandita hailā
 

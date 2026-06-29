@@ -1,5 +1,8 @@
 ### CC Adi 16.24
 
+> শিষ্যগণ লঞা পুনঃ বিদ্যার বিলাস ।
+> বিদ্যা-বলে সবা জিনি’ ঔদ্ধত্য প্রকাশ ॥২৪॥
+
 > śiṣya-gaṇa lañā punaḥ vidyāra vilāsa
 > vidyā-bale sabā jini' auddhatya prakāśa
 

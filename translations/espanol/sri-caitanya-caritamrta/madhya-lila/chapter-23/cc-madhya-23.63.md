@@ -1,5 +1,8 @@
 ### CC Madhya 23.63
 
+> ‘বিপ্রলম্ভ’ চতুর্বিধ — পূর্বরাগ, মান ।
+> প্রবাসাখ্য, আর প্রেমবৈচিত্ত্য-আখ্যান ॥৬৩॥
+
 > 'vipralambha' catur-vidha--pūrva-rāga, māna
 > pravāsākhya, āra prema-vaicittya-ākhyāna
 

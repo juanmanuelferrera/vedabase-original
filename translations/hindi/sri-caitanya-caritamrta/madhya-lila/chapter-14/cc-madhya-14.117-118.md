@@ -1,5 +1,9 @@
 ### CC Madhya 14.117-118
 
+> যদ্যপি জগন্নাথ করেন দ্বারকায় বিহার । সহজ প্রকট করে পরম উদার ॥১১৭॥
+> তথাপি বত্সর-মধ্যে হয় একবার ।
+> বৃন্দাবন দেখিতে তাঁর উৎকণ্ঠা অপার ॥১১৮॥
+
 > yadyapi jagannātha karena dvārakāya vihāra
 > sahaja prakaṭa kare parama udāra
 > tathāpi vatsara-madhye haya eka-bāra

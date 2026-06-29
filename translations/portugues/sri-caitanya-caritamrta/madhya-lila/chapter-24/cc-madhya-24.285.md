@@ -1,5 +1,8 @@
 ### CC Madhya 24.285
 
+> ‘আত্মা’-শব্দে কহে — সর্ববিধ ভগবান্ ।
+> এক ‘স্বয়ং ভগবান্’, আর ‘ভগবান্’-আখ্যান ॥২৮৫॥
+
 'ātmā'-śabde kahe--sarva-vidha bhagavān
 
 eka 'svayaṁ bhagavān', āra 'bhagavān'-ākhyāna

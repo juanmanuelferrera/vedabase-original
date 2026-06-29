@@ -1,5 +1,8 @@
 ### CC Antya 11.57
 
+> মহাযোগেশ্বর-প্রায় দেখি’ স্বচ্ছন্দে মরণ ।
+> ‘ভীষ্মের নির্যাণ’ সবার হইল স্মরণ ॥৫৭॥
+
 > mahā-yogeśvara-prāya dekhi' svacchande maraṇa
 > 'bhīṣmera niryāṇa' sabāra ha-ila smaraṇa
 

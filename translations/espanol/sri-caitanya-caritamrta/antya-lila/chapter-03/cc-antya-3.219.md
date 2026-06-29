@@ -1,5 +1,8 @@
 ### CC Antya 3.219
 
+> মহা-মহা-বিপ্র এথা কুলীন-সমাজ ।
+> নীচে আদর কর, না বাসহ ভয় লাজ !! ॥ ২১৯ ॥
+
 > mahā-mahā-vipra ethā kulīna-samāja
 > nīce ādara kara, nā vāsaha bhaya lāja!!
 

@@ -1,5 +1,8 @@
 ### CC Madhya 19.128
 
+> ‘বিপ্রগৃহে’ স্থূলভিক্ষা, কাহাঁ মাধুকরী ।
+> শুষ্ক রুটী-চানা চিবায় ভোগ পরিহরি’ ॥১২৮॥
+
 'vipra-gṛhe' sthūla-bhikṣā, kāhāṅ mādhu-karī
 
 śuṣka ruṭī-cānā civāya bhoga parihari'

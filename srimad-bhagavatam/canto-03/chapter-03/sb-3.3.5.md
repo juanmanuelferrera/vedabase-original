@@ -1,5 +1,8 @@
 ### SB 3.3.5
 
+> प्रियं प्रभुर्ग्राम्य इव प्रियाया विधित्सुरार्च्छद्द्युतरुं यदर्थे ।
+> वज्र्याद्रवत्तं सगणो रुषान्धः क्रीडामृगो नूनमयं वधूनाम् ॥५॥
+
 > priyaṁ prabhur grāmya iva priyāyā
 > vidhitsur ārcchad dyutaruṁ yad-arthe
 > vajry ādravat taṁ sa-gaṇo ruṣāndhaḥ

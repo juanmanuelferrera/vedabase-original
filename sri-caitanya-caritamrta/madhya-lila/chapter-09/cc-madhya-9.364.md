@@ -1,5 +1,8 @@
 ### CC Madhya 9.364
 
+> চৈতন্যচরিত শ্রদ্ধায় শুনে যেই জন ।
+> যতেক বিচারে, তত পায় প্রেমধন ॥৩৬৪॥
+
 > caitanya-carita śraddhāya śune yei jana
 > yateka vicāre, tata pāya prema-dhana
 

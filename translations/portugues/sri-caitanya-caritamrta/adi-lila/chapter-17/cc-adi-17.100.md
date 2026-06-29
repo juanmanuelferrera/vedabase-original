@@ -1,5 +1,8 @@
 ### CC Adi 17.100
 
+> মহেশ-আবেশ হৈলা শচীর নন্দন ।
+> তার স্কন্ধে চড়ি নৃত্য কৈল বহুক্ষণ ॥১০০॥
+
 maheśa-āveśa hailā śacīra nandana
 
 tāra skandhe caḍi nṛtya kaila bahu-kṣaṇa

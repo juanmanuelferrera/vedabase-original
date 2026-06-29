@@ -1,5 +1,8 @@
 ### CC Madhya 8.248
 
+> ‘দুঃখ-মধ্যে কোন দুঃখ হয় গুরুতর?’
+> ‘কৃষ্ণভক্ত-বিরহ বিনা দুঃখ নাহি দেখি পর ।।’ ॥২৪৮॥
+
 > 'duḥkha-madhye kona duḥkha haya gurutara?'
 > 'kṛṣṇa-bhakta-viraha vinā duḥkha nāhi dekhi para'
 

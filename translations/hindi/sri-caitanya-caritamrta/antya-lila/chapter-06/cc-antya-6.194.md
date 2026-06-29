@@ -1,5 +1,8 @@
 ### CC Antya 6.194
 
+> রঘুনাথ মনে কহে, — ‘কৃষ্ণ নাহি জানি ।
+> তব কৃপা কাড়িল আমা, — এই আমি মানি ।।’ ॥ ১৯৪ ॥
+
 > raghunātha mane kahe,--'kṛṣṇa nāhi jāni
 > tava kṛpā kāḍila āmā,--ei āmi māni'
 

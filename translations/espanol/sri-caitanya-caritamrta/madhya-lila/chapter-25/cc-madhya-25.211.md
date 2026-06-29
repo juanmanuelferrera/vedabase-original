@@ -1,5 +1,8 @@
 ### CC Madhya 25.211
 
+> মথুরাতে সুবুদ্ধি-রায় তাহারে মিলিলা ৷
+> রূপ-অনুপম-কথা সকলি কহিলা ॥২১১॥
+
 > mathurāte subuddhi-rāya tāhāre mililā
 > rūpa-anupama-kathā sakali kahilā
 

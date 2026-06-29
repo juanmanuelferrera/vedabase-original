@@ -1,5 +1,8 @@
 ### CC Antya 6.270
 
+> দুই নিমন্ত্রণে লাগে কৌড়ি অষ্টপণ ।
+> ব্রাহ্মণ-ভৃত্য-ঠাঞি করেন এতেক গ্রহণ ॥২৭০॥
+
 dui nimantraṇe lāge kauḍi aṣṭa-paṇa
 
 brāhmaṇa-bhṛtya-ṭhāñi karena eteka grahaṇa

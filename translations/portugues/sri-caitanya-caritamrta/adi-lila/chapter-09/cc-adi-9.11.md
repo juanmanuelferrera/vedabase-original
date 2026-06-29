@@ -1,5 +1,8 @@
 ### CC Adi 9.11
 
+> শ্রীঈশ্বরপুরী-রূপে অঙ্কুর পুষ্ট হৈল ।
+> আপনে চৈতন্যমালী স্কন্ধ উপজিল ॥১১॥
+
 śrī-iśvarapurī-rūpe aṅkura puṣṭa haila
 āpane caitanya-mālī skandha upajila
 

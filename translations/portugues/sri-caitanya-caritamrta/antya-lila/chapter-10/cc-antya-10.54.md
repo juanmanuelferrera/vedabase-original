@@ -1,5 +1,8 @@
 ### CC Antya 10.54
 
+> ইষ্টগোষ্ঠী সবা লঞা কতক্ষণ কৈলা ।
+> নিজ নিজ পূর্ব-বাসায় সবায় পাঠাইলা ॥৫৪॥
+
 iṣṭa-goṣṭhī sabā lañā kata-kṣaṇa kailā
 
 nija nija pūrva-vāsāya sabāya pāṭhāilā

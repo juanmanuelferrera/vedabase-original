@@ -1,5 +1,8 @@
 ### CC Antya 6.171
 
+> এত চিন্তি’ পূর্বমুখে করিলা গমন ।
+> উলটিয়া চাহে পাছে, — নাহি কোন জন ॥১৭১॥
+
 > eta cinti' pūrva-mukhe karilā gamana
 > ulaṭiyā cāhe pāche,--nāhi kona jana
 

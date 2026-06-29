@@ -1,5 +1,8 @@
 ### CC Adi 16.61
 
+> ‘অবিমৃষ্ট-বিধেয়াংশ’ — এই দোষের নাম ।
+> আর এক দোষ আছে, শুন সাবধান ॥৬১॥
+
 > 'avimṛṣṭa-vidheyāṁśa'--ei doṣera nāma
 > āra eka doṣa āche, śuna sāvadhāna
 

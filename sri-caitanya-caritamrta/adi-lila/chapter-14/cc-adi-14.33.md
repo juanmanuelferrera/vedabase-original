@@ -1,5 +1,8 @@
 ### CC Adi 14.33
 
+> আত্ম লুকাইতে প্রভু বলিলা তাঁহারে ।
+> “আগে কেন ইহা, মাতা, না শিখালে মোরে ॥৩৩॥
+
 > ātma lukāite prabhu balilā tāṅhāre
 > "āge kena ihā, mātā, nā śikhāle more
 

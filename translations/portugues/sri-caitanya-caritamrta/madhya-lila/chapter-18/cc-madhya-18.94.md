@@ -1,5 +1,8 @@
 ### CC Madhya 18.94
 
+> লোকে কহে, — কৃষ্ণ প্ৰকট কালীয়দহের জলে !
+> কালীয়-শিরে নৃত্য করে, ফণা-রত্ন জ্বলে ॥৯৪॥
+
 loke kahe,--kṛṣṇa prakaṭa kālīya-dahera jale!
 
 kālīya-śire nṛtya kare, phaṇā-ratna jvale

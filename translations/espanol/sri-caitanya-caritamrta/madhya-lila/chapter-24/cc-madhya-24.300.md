@@ -1,5 +1,8 @@
 ### CC Madhya 24.300
 
+> “অস্মিন্ বনে বৃক্ষাঃ ফলন্তি” যৈছে হয় ।
+> তৈছে সব আত্মারাম কৃষ্ণে ভক্তি করয় ॥৩০০॥
+
 > "asmin vane vṛkṣāḥ phalanti" yaiche haya
 > taiche saba ātmārāma kṛṣṇe bhakti karaya
 > SYNONYMS

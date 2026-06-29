@@ -1,5 +1,8 @@
 ### CC Antya 12.7
 
+> এথা গৌড়দেশে প্রভুর যত ভক্তগণ ।
+> প্রভু দেখিবারে সবে করিলা গমন ॥৭॥
+
 > ethā gauḍa-deśe prabhura yata bhakta-gaṇa
 > prabhu dekhibāre sabe karilā gamana
 

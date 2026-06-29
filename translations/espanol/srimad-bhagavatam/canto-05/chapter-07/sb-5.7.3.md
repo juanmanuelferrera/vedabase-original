@@ -1,5 +1,7 @@
 ### SB 5.7.3
 
+> अजनाभं नामैतद्वर्षं भारतमिति यत आरभ्य व्यपदिशन्ति ॥३॥
+
 > ajanābhaṁ nāmaitad varṣaṁ bhāratam iti yata ārabhya vyapadiśanti.
 
 *ajanābham*—Ajanābha; *nāma*—con el nombre; *etat*—esta; *varṣam*—isla; *bhāratam*—Bhārata; *iti*—así; *yataḥ*—de quien; *ārabhya*—comenzando; *vyapadiśanti*—proclaman.

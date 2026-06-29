@@ -1,5 +1,8 @@
 ### CC Madhya 19.219
 
+> কেবল ‘স্বরূপ-জ্ঞান’ হয় শান্ত-রসে ।
+> ‘পূর্ণৈশ্বর্যপ্ৰভু প্ৰভু-জ্ঞান’ অধিক হয় দাস্যে ॥২১৯॥
+
 > kevala 'svarūpa-jñāna' haya śānta-rase
 > 'pūrṇaiśvarya-prabhu-jñāna' adhika haya dāsye
 

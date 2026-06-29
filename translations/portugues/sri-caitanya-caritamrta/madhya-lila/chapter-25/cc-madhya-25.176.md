@@ -1,5 +1,8 @@
 ### CC Madhya 25.176
 
+> বাহু তুলি’ প্রভু কহে — বল ‘কৃষ্ণ’ ‘হরি’ ৷
+> দণ্ডবৎ করে লোকে হরিধ্বনি করি’ ৷৷ ১৭৬ ৷৷ ॥১৭৬॥
+
 bāhu tuli' prabhu kahe-bala 'kṛṣṇa' 'hari'
 
 daṇḍavat kare loke hari-dhvani kari'

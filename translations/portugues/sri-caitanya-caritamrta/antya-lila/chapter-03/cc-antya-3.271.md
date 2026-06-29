@@ -1,5 +1,8 @@
 ### CC Antya 3.271
 
+> হরিদাস ঠাকুরের কহিলুঁ মহিমার কণ ।
+> যাহার শ্রবণে ভক্তের জুড়ায় শ্রবণ ॥২৭১॥
+
 haridāsa ṭhākurera kahiluṅ mahimāra kaṇa
 
 yāhāra śravaṇe bhaktera juḍāya śravaṇa

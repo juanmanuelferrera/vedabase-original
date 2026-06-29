@@ -1,5 +1,8 @@
 ### SB 1.1.8
 
+> वेत्थ त्वं सौम्य तत्सर्वं तत्त्वतस्तदनुग्रहात् ।
+> ब्रूयुः स्निग्धस्य शिष्यस्य गुरवो गुह्यमप्युत ॥८॥
+
 > vettha tvaṁ saumya tat sarvaṁ
 > tattvatas tad-anugrahāt
 > brūyuḥ snigdhasya śiṣyasya

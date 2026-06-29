@@ -1,5 +1,8 @@
 ### CC Madhya 16.192
 
+> তবে সেই মহাপ্রভুর চরণ বন্দিয়া ।
+> সবার চরণ বন্দি’ চলে হৃষ্ট হঞা ॥১৯২॥
+
 > tabe sei mahāprabhura caraṇa vandiyā
 > sabāra caraṇa vandi' cale hṛṣṭa hañā
 

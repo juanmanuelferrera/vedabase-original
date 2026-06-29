@@ -1,5 +1,8 @@
 ### CC Madhya 24.294
 
+> বত্রিশে ছাব্বিশে মিলি’ অষ্টপঞ্চাশ ।
+> আর এক ভেদ শুন অর্থের প্রকাশ ॥২৯৪॥
+
 batriśe chābbiśe mili, aṣṭa-pañcāśa
 
 āra eka bheda śuna arthera prakāśa

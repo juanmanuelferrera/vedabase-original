@@ -1,5 +1,8 @@
 ### CC Adi 6.45
 
+> মুঞি যে চৈতন্যদাস, আর নিত্যানন্দ ।
+> দাস-ভাব-সম নহে অন্যত্র আনন্দ ॥৪৫॥
+
 muñi ye caitanya-dāsa āra nityānanda
 dāsa-bhāva-sama nahe anyatra ānanda
 

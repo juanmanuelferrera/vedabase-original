@@ -1,5 +1,8 @@
 ### CC Madhya 25.109
 
+> যাবানহং যথা-ভাবো যদ্রূপগুণকর্মকঃ ।
+> তথৈব তত্ত্ববিজ্ঞানমস্তু তে মদনুগ্রহাৎ ॥১০৯॥
+
 > yāvān ahaṁ yathā-bhāvo
 > yad-rūpa-guṇa-karmakaḥ
 > tathaiva tattva-vijñānam

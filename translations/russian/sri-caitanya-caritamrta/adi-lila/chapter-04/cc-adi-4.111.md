@@ -1,5 +1,8 @@
 ### CC Adi 4.111
 
+> এবে কার্য নাহি কিছু এসব বিচারে ।
+> আগে ইহা বিবরিব করিয়া বিস্তারে ॥১১১॥
+
 > ebe kārya nāhi kichu e-saba vicāre
 > āge ihā vivariba kariyā vistāre
 

@@ -1,5 +1,8 @@
 ### CC Antya 2.14
 
+> সেই জীবে নিজ-ভক্তি করেন প্রকাশে ।
+> তাহার দর্শনে ‘বৈষ্ণব’ হয় সর্বদেশে ॥১৪॥
+
 > sei jīve nija-bhakti karena prakāśe
 > tāhāra darśane 'vaiṣṇava' haya sarva-deśe
 

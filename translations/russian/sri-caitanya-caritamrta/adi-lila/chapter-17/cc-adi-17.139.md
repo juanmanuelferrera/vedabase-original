@@ -1,5 +1,8 @@
 ### CC Adi 17.139
 
+> এই মত কীর্তন করি’ নগরে ভ্রমিলা ।
+> ভ্রমিতে ভ্রমিতে সভে কাজীদ্বারে গেলা ॥১৩৯॥
+
 > ei mata kīrtana kari' nagare bhramilā
 > bhramite bhramite sabhe kājī-dvāre gelā
 

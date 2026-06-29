@@ -1,5 +1,8 @@
 ### CC Madhya 25.48
 
+> ‘ভগবত্তা’ মানিলে ‘অদ্বৈত’ না যায় স্থাপন ।
+> অতএব সব শাস্ত্র করয়ে খণ্ডন ॥৪৮॥
+
 > 'bhagavattā' mānile 'advaita' nā yāya sthāpana
 > ataeva saba śāstra karaye khaṇḍana
 

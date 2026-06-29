@@ -1,5 +1,8 @@
 ### CC Madhya 23.59
 
+> ‘মাদনে’ — চুম্বনাদি হয় অনন্ত বিভেদ ।
+> ‘উদঘূর্ণা’, ‘চিত্রজল্প’ — ‘মোহনে’ দুই ভেদ ॥৫৯॥
+
 'mādane' cumbanādi haya ananta vibheda
 
 'udghūrṇā', 'citra-jalpa' 'mohane' dui bheda

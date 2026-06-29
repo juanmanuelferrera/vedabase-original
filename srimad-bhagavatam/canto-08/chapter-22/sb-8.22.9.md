@@ -1,5 +1,8 @@
 ### SB 8.22.9
 
+> किमात्मनानेन जहाति योऽन्ततः किं रिक्थहारैः स्वजनाख्यदस्युभिः
+> किं जायया संसृतिहेतुभूतया मर्त्यस्य गेहैः किमिहायुषो व्ययः ॥९॥
+
 > kim ātmanānena jahāti yo 'ntataḥ
 > kiṁ riktha-hāraiḥ svajanākhya-dasyubhiḥ
 > kiṁ jāyayā saṁsṛti-hetu-bhūtayā

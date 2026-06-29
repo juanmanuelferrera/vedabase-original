@@ -1,5 +1,8 @@
 ### SB 9.24.12
 
+> वृष्णेः सुमित्रः पुत्रोऽभूद्युधाजिच्च परन्तप
+> शिनिस्तस्यानमित्रश्च निघ्नोऽभूदनमित्रतः ॥१२॥
+
 > vṛṣṇeḥ sumitraḥ putro 'bhūd
 > yudhājic ca parantapa
 > śinis tasyānamitraś ca

@@ -1,5 +1,10 @@
 ### CC Antya 16.149
 
+> বেণুর তপ জানি যবে, সেই তপ করি তবে,
+> এ — অযোগ্য, আমরা — যোগ্যা নারী ।
+> যা না পাঞা দুঃখে মরি, অযোগ্য পিয়ে সহিতে নারি,
+> তাহা লাগি’ তপস্যা বিচারি ॥১৪৯॥
+
 > veṇura tapa jāni yabe, sei tapa kari tabe,
 > e—a yogya, āmarā—yogyā nārī
 > yā nā pāñā duḥkhe mari, ayogya piye sahite nāri,

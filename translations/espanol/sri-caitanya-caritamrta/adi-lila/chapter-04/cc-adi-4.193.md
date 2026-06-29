@@ -1,5 +1,8 @@
 ### CC Adi 4.193
 
+> এইমত পরস্পর পড়ে হুড়াহুড়ি ।
+> পরস্পর বাঢ়ে, কেহ মুখ নাহি মুড়ি ॥১৯৩॥
+
 > ei-mata paraspara paḍe huḍāhuḍi
 > paraspara bāḍhe, keha mukha nāhi muḍi
 

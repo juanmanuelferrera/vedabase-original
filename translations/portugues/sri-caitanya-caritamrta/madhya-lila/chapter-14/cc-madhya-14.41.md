@@ -1,5 +1,8 @@
 ### CC Madhya 14.41
 
+> আপনে বৈস, প্রভু, ভোজন করিতে ।
+> তুমি না খাইলে, কেহ না পারে খাইতে ॥৪১॥
+
 āpane vaisa, prabhu, bhojana karite
 
 tumi nā khāile, keha nā pāre khāite

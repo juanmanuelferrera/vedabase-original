@@ -1,5 +1,8 @@
 ### CC Antya 13.41
 
+> এত বলি’ জগদানন্দে কৈলা আলিঙ্গন ।
+> জগদানন্দ চলিলা প্রভুর বন্দিয়া চরণ ॥৪১॥
+
 > eta bali' jagadānande kailā āliṅgana
 > jagadānanda calilā prabhura vandiyā caraṇa
 

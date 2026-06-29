@@ -1,5 +1,8 @@
 ### CC Madhya 14.147
 
+> ‘অধীরা’ নিষ্ঠুর-বাক্যে করয়ে ভর্ৎসন ।
+> কর্ণোৎপলে তাড়ে, করে মালায় বন্ধন ॥১৪৭॥
+
 'adhīrā' niṣṭhura-vākye karaye bhartsana
 
 karṇotpale tāḍe, kare mālāya bandhana

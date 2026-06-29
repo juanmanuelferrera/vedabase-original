@@ -1,5 +1,8 @@
 ### CC Antya 9.40
 
+> পাঁচগণ্ডার পাত্র হয় সন্ন্যাসী ব্রাহ্মণ ।
+> মাগিলে বা কেনে দিবে দুইলক্ষ কাহন ?” ॥ ৪০ ॥
+
 pāṅca-gaṇḍāra pātra haya sannyāsī brāhmaṇa
 
 māgile vā kene dibe dui-lakṣa kāhana?"

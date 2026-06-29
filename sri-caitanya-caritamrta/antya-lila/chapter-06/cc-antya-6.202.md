@@ -1,5 +1,8 @@
 ### CC Antya 6.202
 
+> “এই রঘুনাথে আমি সঁপিনু তোমারে  ।
+> পুত্র-ভৃত্য-রূপে তুমি কর অঙ্গীকারে ॥২০২॥
+
 > "ei raghunāthe āmi saṅpinu tomāre
 > putra-bhṛtya-rūpe tumi kara aṅgīkāre
 

@@ -1,5 +1,8 @@
 ### CC Antya 18.42
 
+> পূর্ব-দিশায় চলে স্বরূপ লঞা কত জন ।
+> সিন্ধু-তীরে-নীরে করেন প্রভুর অন্বেষণ ॥৪২॥
+
 pūrva-diśāya cale svarūpa lañā kata jana
 
 sindhu-tīre-nīre karena prabhura anveṣaṇa

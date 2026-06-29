@@ -1,5 +1,8 @@
 ### SB 6.4.7
 
+> न द्रुमेभ्यो महाभागा दीनेभ्यो द्रोग्धुमर्हथ
+> विवर्धयिषवो यूयं प्रजानां पतयः स्मृताः ॥७॥
+
 > na drumebhyo mahā-bhāgā
 > dīnebhyo drogdhum arhatha
 > vivardhayiṣavo yūyaṁ

@@ -1,5 +1,8 @@
 ### CC Antya 7.21
 
+> ষড়্দর্শন-বেত্তা ভট্টাচার্য-সার্বভৌম ।
+> ষড়্দর্শনে জগদ্গুরু ভাগবতোত্তম ॥২১॥
+
 > ṣaḍ-darśana-vettā bhaṭṭācārya-sārvabhauma
 > ṣaḍ-darśane jagad-guru bhāgavatottama
 

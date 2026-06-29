@@ -1,5 +1,8 @@
 ### CC Madhya 17.108
 
+> আজানুলম্বিত ভুজ, কমল-নয়ন ।
+> যত কিছু ঈশ্বরের সর্ব সল্লক্ষণ ॥১০৮॥
+
 ājānu-lambita bhuja, kamala-nayana
 
 yata kichu īśvarera sarva sal-lakṣaṇa

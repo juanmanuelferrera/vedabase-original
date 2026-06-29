@@ -1,5 +1,8 @@
 ### CC Antya 2.17
 
+> গৌড়দেশের লোক নিস্তারিতে মন হৈল ।
+> নকুল-হৃদয়ে প্রভু ‘আবেশ’ করিল ॥১৭॥
+
 gauḍa-deśera loka nistārite mana haila
 
 nakula-hṛdaye prabhu 'āveśa' karila

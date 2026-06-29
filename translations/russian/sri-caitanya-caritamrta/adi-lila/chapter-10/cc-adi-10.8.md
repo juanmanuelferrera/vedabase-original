@@ -1,5 +1,8 @@
 ### CC Adi 10.8
 
+> শ্রীবাস পণ্ডিত, আর শ্রীরাম পণ্ডিত ।
+> দুই ভাই — দুই শাখা, জগতে বিদিত ॥৮॥
+
 > śrīvāsa paṇḍita, āra śrī-rāma paṇḍita
 > dui bhāi—dui śākhā, jagate vidita
 

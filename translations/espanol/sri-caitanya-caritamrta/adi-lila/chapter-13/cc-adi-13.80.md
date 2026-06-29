@@ -1,5 +1,8 @@
 ### CC Adi 13.80
 
+> চৌদ্দশত ছয় শকে শেষ মাঘ মাসে ।
+> জগন্নাথ-শচীর দেহে কৃষ্ণের প্রবেশে ॥৮০॥
+
 > caudda-śata chaya śake śeṣa māgha māse
 > jagannātha-śacīra dehe kṛṣṇera praveśe
 

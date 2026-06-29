@@ -1,5 +1,10 @@
 ### CC Adi 5.155
 
+> রামাদিমূর্তিষু কলানিয়মেন তিষ্ঠন্
+> নানাবতারমকরোদ্ভুবনেষু কিন্তু ।
+> কৃষ্ণঃ স্বয়ং সমভবৎ পরমঃ পুমান্ যো
+> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥১৫৫॥
+
 rāmādi-mūrtiṣu kalā-niyamena tiṣṭhan
 nānāvatāram akarod bhuvaneṣu kintu
 kṛṣṇaḥ svayaṁ samabhavat paramaḥ pumān yo

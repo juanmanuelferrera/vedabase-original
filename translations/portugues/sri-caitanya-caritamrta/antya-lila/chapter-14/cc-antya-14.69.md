@@ -1,5 +1,8 @@
 ### CC Antya 14.69
 
+> স্বরূপ-গোসাঞি তবে উচ্চ করিয়া ।
+> প্রভুর কাণে কৃষ্ণনাম কহে ভক্তগণ লঞা ॥৬৯॥
+
 svarūpa-gosāñi tabe ucca kariyā
 
 prabhura kāṇe kṛṣṇa-nāma kahe bhakta-gaṇa lañā

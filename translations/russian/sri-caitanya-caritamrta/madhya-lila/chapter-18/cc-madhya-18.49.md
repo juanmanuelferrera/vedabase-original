@@ -1,5 +1,8 @@
 ### CC Madhya 18.49
 
+> সঙ্গে গোপাল-ভট্ট, দাস-রঘুনাথ ।
+> রঘুনাথ-ভট্টগোসাঞি, আর লোকনাথ ॥৪৯॥
+
 > saṅge gopāla-bhaṭṭa, dāsa-raghunātha
 > raghunātha-bhaṭṭa-gosāñi, āra lokanātha
 

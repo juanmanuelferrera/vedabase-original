@@ -1,5 +1,8 @@
 ### Bg 8.16
 
+> आब्रह्मभुवनाल्लोकाः पुनरावर्तिनोऽर्जुन ।
+> मामुपेत्य तु कौन्तेय पुनर्जन्म न विद्यते ॥१६॥
+
 > ā-brahma-bhuvanāl lokāḥ
 > punar āvartino ‘rjuna
 > mām upetya tu kaunteya

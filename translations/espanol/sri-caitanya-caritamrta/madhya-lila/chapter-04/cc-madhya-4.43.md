@@ -1,5 +1,8 @@
 ### CC Madhya 4.43
 
+> সেই হৈতে রহি আমি এই কুঞ্জ-স্থানে ৷
+> ভাল হৈল আইলা আমা কাঢ় সাবধানে ॥৪৩॥
+
 > sei haite rahi āmi ei kuñja-sthāne
 > bhāla haila āilā āmā kāḍha sāvadhāne
 

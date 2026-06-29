@@ -1,5 +1,8 @@
 ### CC Adi 16.29
 
+> হেনকালে দিগ্বিজয়ী তাহাঁই আইলা ।
+> গঙ্গারে বন্দন করি’ প্রভুরে মিলিলা ॥২৯॥
+
 hena-kāle digvijayī tāhāṅi āilā
 
 gaṅgāre vandana kari' prabhure mililā

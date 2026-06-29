@@ -1,5 +1,8 @@
 ### CC Madhya 17.11
 
+> ‘উত্তম ব্রাহ্মণ’ এক সঙ্গে অবশ্য চাহি  ।
+> ভিক্ষা করি’ ভিক্ষা দিবে, যাবে পাত্র বহি’ ॥১১॥
+
 > 'uttama brāhmaṇa' eka saṅge avaśya cāhi
 > bhikṣā kari' bhikṣā dibe, yābe pātra vahi'
 

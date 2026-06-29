@@ -1,5 +1,8 @@
 ### CC Adi 13.50
 
+> প্রভুর লীলামৃত তেঁহো কৈল আস্বাদন ।
+> তাঁর ভুক্ত-শেষ কিছু করিয়ে চর্বণ ॥৫০॥
+
 prabhura līlāmṛta teṅho kaila āsvādana
 tāṅra bhukta-śeṣa kichu kariye carvaṇa
 

@@ -1,5 +1,8 @@
 ### CC Antya 5.51
 
+> রাগানুগ-মার্গে জানি রায়ের ভজন ।
+> সিদ্ধদেহ তুল্য, তাতে ‘প্রাকৃত’ নহে মন ॥৫১॥
+
 > rāgānuga-mārge jāni rāyera bhajana
 > siddha-deha-tulya, tāte 'prākṛta' nahe mana
 

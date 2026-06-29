@@ -1,5 +1,8 @@
 ### SB 6.4.53
 
+> त्वत्तोऽधस्तात्प्रजाः सर्वा मिथुनीभूय मायया
+> मदीयया भविष्यन्ति हरिष्यन्ति च मे बलिम ॥५३॥
+
 > tvatto 'dhastāt prajāḥ sarvā
 > mithunī-bhūya māyayā
 > madīyayā bhaviṣyanti

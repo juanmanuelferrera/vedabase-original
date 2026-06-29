@@ -1,5 +1,8 @@
 ### CC Antya 14.111
 
+> কেনে বা আনিলা মোরে বৃথা দুঃখ দিতে ।
+> পাঞা কৃষ্ণের লীলা, না পাইনু দেখিতে !” ॥ ১১১ ॥
+
 kene vā ānilā more vṛthā duḥkha dite
 
 pāñā kṛṣṇera līlā, nā pāinu dekhite

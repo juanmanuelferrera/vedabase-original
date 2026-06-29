@@ -1,5 +1,8 @@
 ### CC Madhya 22.153
 
+> লোভে ব্রজবাসীর ভাবে করে অনুগতি ।
+> শাস্ত্রযুক্তি নাহি মানে — রাগানুগার প্রকৃতি ॥১৫৩॥
+
 lobhe vraja-vāsīra bhāve kare anugati
 
 śāstra-yukti nāhi māne--rāgānugāra prakṛti

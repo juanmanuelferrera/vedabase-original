@@ -1,5 +1,8 @@
 ### SB 3.1.41
 
+> सौम्यानुशोचे तमधःपतन्तं भ्रात्रे परेताय विदुद्रुहे यः ।
+> निर्यापितो येन सुहृत्स्वपुर्या अहं स्वपुत्रान्समनुव्रतेन ॥४१॥
+
 > saumyānuśoce tam adhaḥ-patantaṁ
 > bhrātre paretāya vidudruhe yaḥ
 > niryāpito yena suhṛt sva-puryā

@@ -1,5 +1,8 @@
 ### CC Adi 10.49
 
+> শ্রীমুরারি গুপ্ত শাখা — প্রেমের ভাণ্ডার ।
+> প্রভুর হৃদয় দ্রবে শুনি’ দৈন্য যাঁর ॥৪৯॥
+
 śrī-murāri gupta śākhā--premera bhāṇḍāra
 
 prabhura hṛdaya drave śuni' dainya yāṅra

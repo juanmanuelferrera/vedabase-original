@@ -1,5 +1,8 @@
 ### CC Madhya 1.196
 
+> জগাই-মাধাই হৈতে কোটী কোটী গুণ ।
+> অধম পতিত পাপী আমি দুই জন ॥১৯৬॥
+
 > jagāi-mādhāi haite koṭī koṭī guṇa
 > adhama patita pāpī āmi dui jana
 

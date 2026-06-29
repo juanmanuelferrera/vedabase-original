@@ -1,5 +1,8 @@
 ### SB 3.1.34
 
+> अपिस्विदास्ते भगवान्सुखं वो यः सात्वतां कामदुघोऽनिरुद्धः ।
+> यमामनन्ति स्म हि शब्दयोनिं मनोमयं सत्त्वतुरीयतत्त्वम् ॥३४॥
+
 > apisvid āste bhagavān sukhaṁ vo
 > yaḥ sātvatāṁ kāma-dugho 'niruddhaḥ
 > yam āmananti sma hi śabda-yoniṁ

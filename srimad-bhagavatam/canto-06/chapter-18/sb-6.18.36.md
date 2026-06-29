@@ -1,5 +1,8 @@
 ### SB 6.18.36
 
+> सोऽहं त्वयार्चितो भद्रे ईदृग्भावेन भक्तितः
+> तं ते सम्पादये काममसतीनां सुदुर्लभम ॥३६॥
+
 > so 'haṁ tvayārcito bhadre
 > īdṛg-bhāvena bhaktitaḥ
 > taṁ te sampādaye kāmam

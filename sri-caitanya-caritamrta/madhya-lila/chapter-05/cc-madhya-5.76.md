@@ -1,5 +1,8 @@
 ### CC Madhya 5.76
 
+> এই বাক্যে সাক্ষী মোর আছে মহাজন ।
+> যাঁর বাক্য সত্য করি মানে ত্রিভুবন ।।” ॥ ৭৬ ॥
+
 > ei vākye sākṣī mora āche mahājana
 > yāṅra vākya satya kari māne tribhuvana"
 

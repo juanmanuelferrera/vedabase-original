@@ -1,5 +1,8 @@
 ### CC Madhya 11.151
 
+> নিমজ্জতোঽনন্ত ভবার্ণবান্তশ্চিরায় মে কূলমিবাসি লব্ধঃ ।
+> ত্বয়াপি লব্ধং ভগবন্নিদানীমনুত্তমং পাত্রমিদং দয়ায়াঃ ॥১৫১॥
+
 > nimajjato 'nanta bhavārṇavāntaś
 > cirāya me kūlam ivāsi labdhaḥ
 > tvayāpi labdhaṁ bhagavann idānīm

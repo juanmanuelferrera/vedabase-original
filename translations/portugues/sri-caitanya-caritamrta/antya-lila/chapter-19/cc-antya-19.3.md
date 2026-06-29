@@ -1,5 +1,8 @@
 ### CC Antya 19.3
 
+> এইমত মহাপ্রভু কৃষ্ণপ্রেমাবেশে ।
+> উন্মাদ-প্রলাপ করে রাত্রি-দিবসে ॥৩॥
+
 ei-mate mahāprabhu kṛṣṇa-premāveśe
 unmāda-pralāpa kare rātri-divase
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.170
 
+> হরিদাস কৃপা করে তাঁহার উপরে ।
+> সেই কৃপা ‘কারণ’ হৈল চৈতন্য পাইবারে ॥১৭০॥
+
 haridāsa kṛpā kare tāṅhāra upare
 
 sei kṛpā 'kāraṇa' haila caitanya pāibāre

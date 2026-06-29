@@ -1,5 +1,8 @@
 ### CC Antya 6.187
 
+> কভু চর্বণ, কভু রন্ধন, কভু দুগ্ধপান ।
+> যবে যেই মিলে, তাহে রাখে নিজ প্রাণ ॥১৮৭॥
+
 kabhu carvaṇa, kabhu randhana, kabhu dugdha-pāna
 
 yabe yei mile, tāhe rākhe nija prāṇa

@@ -1,5 +1,8 @@
 ### SB 3.1.26
 
+> कच्चित्पुराणौ पुरुषौ स्वनाभ्य पाद्मानुवृत्त्येह किलावतीर्णौ ।
+> आसात उर्व्याः कुशलं विधाय कृतक्षणौ कुशलं शूरगेहे ॥२६॥
+
 > kaccit purāṇau puruṣau svanābhya-
 > pādmānuvṛttyeha kilāvatīrṇau
 > āsāta urvyāḥ kuśalaṁ vidhāya

@@ -1,5 +1,8 @@
 ### CC Madhya 18.161
 
+> আচম্বিতে এক গোপ বংশী বাজাইল ।
+> শুনি’ মহাপ্ৰভুর মহা-প্রেমাবেশ হৈল ॥১৬১॥
+
 > ācambite eka gopa vaṁśī bājāila
 > śuni' mahāprabhura mahā-premāveśa haila
 

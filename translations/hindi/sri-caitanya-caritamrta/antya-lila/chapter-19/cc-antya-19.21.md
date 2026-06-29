@@ -1,5 +1,8 @@
 ### CC Antya 19.21
 
+> বাউলকে কহিহ, — কাযে নাহিক আউল  ।
+> বাউলকে কহিহ, — ইহা কহিয়াছে বাউল ।।” ২১ ॥২১॥
+
 > bāulake kahiha,--kāye nāhika āula
 > bāulake kahiha,--ihā kahiyāche bāula"
 

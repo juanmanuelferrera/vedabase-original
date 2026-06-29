@@ -1,5 +1,10 @@
 ### SB 6.3.29
 
+> जिह्वा न वक्ति भगवद्गुणनामधेयं
+> चेतश्च न स्मरति तच्चरणारविन्दम
+> कृष्णाय नो नमति यच्छिर एकदापि
+> तानानयध्वमसतोऽकृतविष्णुकृत्यान ॥२९॥
+
 > jihvā na vakti bhagavad-guṇa-nāmadheyaṁ
 > cetaś ca na smarati tac-caraṇāravindam
 > kṛṣṇāya no namati yac-chira ekadāpi

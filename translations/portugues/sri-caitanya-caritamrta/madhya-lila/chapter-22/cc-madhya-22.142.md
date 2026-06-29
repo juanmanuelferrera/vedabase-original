@@ -1,5 +1,8 @@
 ### CC Madhya 22.142
 
+> বিধি-ধর্ম ছাড়ি’ ভজে কৃষ্ণের চরণ ।
+> নিষিদ্ধ পাপাচারে তার কভু নহে মন ॥১৪২॥
+
 vidhi-dharma chāḍi' bhaje kṛṣṇera caraṇa
 
 niṣiddha pāpācāre tāra kabhu nahe mana

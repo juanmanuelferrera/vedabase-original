@@ -1,5 +1,8 @@
 ### CC Adi 5.225
 
+> সাক্ষাৎ ব্রজেন্দ্রসুত ইথে নাহি আন ।
+> যেবা অজ্ঞে করে তাঁরে প্রতিমা-হেন জ্ঞান ॥২২৫॥
+
 sākṣāt vrajendra-suta ithe nāhi āna
 
 yebā ajñe kare tāṅre pratimā-hena jñāna

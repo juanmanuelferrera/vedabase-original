@@ -1,5 +1,8 @@
 ### CC Madhya 23.27
 
+> হরৌ রতিং বহন্নেষ নরেন্দ্রাণাং শিখামণিঃ ।
+> ভিক্ষামটন্নরিপুরে শ্বপাকমপি বন্দতে ॥২৭॥
+
 harau ratiṁ vahann eṣa
 narendrāṇāṁ śikhāmaṇiḥ
 bhikṣām aṭann ari-pure

@@ -1,5 +1,8 @@
 ### CC Adi 17.54
 
+> এত বলি’ গেলা প্রভু করিতে গঙ্গাস্নান ।
+> সেই পাপী দুঃখ ভোগে, না যায় পরাণ ॥৫৪॥
+
 > eta bali' gelā prabhu karite gaṅgā-snāna
 > sei pāpī duḥkha bhoge, nā yāya parāṇa
 

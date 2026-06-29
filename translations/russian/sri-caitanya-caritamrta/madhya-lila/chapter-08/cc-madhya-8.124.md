@@ -1,5 +1,8 @@
 ### CC Madhya 8.124
 
+> প্রভু কহে, — মায়াবাদী আমি ত’ সন্ন্যাসী ।
+> ভক্তিতত্ত্ব নাহি জানি, মায়াবাদে ভাসি ॥১২৪॥
+
 > prabhu kahe,—māyāvādī āmi ta' sannyāsī
 > bhakti-tattva nāhi jāni, māyāvāde bhāsi
 

@@ -1,5 +1,8 @@
 ### CC Adi 13.7
 
+> প্রথমে ত’ সূত্ররূপে করিয়ে গণন ।
+> পাছে তাহা বিস্তারি করিব বিবরণ ॥৭॥
+
 prathame ta' sūtra-rūpe kariye gaṇana
 pācṅe tāhā vistāri kariba vivarana
 

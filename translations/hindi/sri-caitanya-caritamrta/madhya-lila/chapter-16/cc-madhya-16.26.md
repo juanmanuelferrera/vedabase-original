@@ -1,5 +1,8 @@
 ### CC Madhya 16.26
 
+> শিবানন্দ-সেন করে সব সমাধান  ।
+> ঘাটিয়াল প্রবোধি’ দেন সবারে বাসা-স্থান ॥২৬॥
+
 > śivānanda-sena kare saba samādhāna
 > ghāṭiyāla prabodhi' dena sabāre vāsā-sthāna
 

@@ -1,5 +1,8 @@
 ### CC Adi 10.16
 
+> তাঁর শিষ্য-উপশিষ্য, — তাঁর উপশাখা ।
+> এইমত সব শাখা-উপশাখার লেখা ॥১৬॥
+
 tāṅra śiṣya-upaśiṣya,--tāṅra upaśākhā
 eimata saba śākhā-upaśākhāra lekhā
 

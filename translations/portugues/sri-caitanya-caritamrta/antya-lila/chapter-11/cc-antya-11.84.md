@@ -1,5 +1,8 @@
 ### CC Antya 11.84
 
+> স্বরূপ, জগদানন্দ, কাশীশ্বর, শঙ্কর ।
+> চারিজন পরিবেশন করে নিরন্তর ॥৮৪॥
+
 svarūpa, jagadānanda, kāśīśvara, śaṅkara
 
 cāri-jana pariveśana kare nirantara

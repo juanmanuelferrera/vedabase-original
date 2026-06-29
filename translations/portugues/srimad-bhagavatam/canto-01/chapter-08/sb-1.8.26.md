@@ -1,5 +1,8 @@
 ### SB 1.8.26
 
+> जन्मैश्वर्यश्रुतश्रीभिरेधमानमदः पुमान् ।
+> नैवार्हत्यभिधातुं वै त्वामकिञ्चनगोचरम् ॥२६॥
+
 janmaiśvarya-śruta-śrībhir
 *edhamāna*-madaḥ pumān
 naivārhaty abhidhātuṁ vai

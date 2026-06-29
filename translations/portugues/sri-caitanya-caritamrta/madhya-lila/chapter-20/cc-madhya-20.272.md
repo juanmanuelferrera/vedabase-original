@@ -1,5 +1,8 @@
 ### CC Madhya 20.272
 
+> সেই পুরুষ মায়া-পানে করে অবধান ।
+> প্রকৃতি ক্ষোভিত করি’ করে বীর্যের আধান ॥২৭২॥
+
 sei puruṣa māyā-pāne kare avadhāna
 
 prakṛti kṣobhita kari' kare vīryera ādhāna

@@ -1,5 +1,10 @@
 ### CC Madhya 13.156
 
+> যাদবের বিপক্ষ, যত দুষ্ট কংসপক্ষ,
+> তাহা আমি কৈলুঁ সব ক্ষয় ।
+> আছে দুই-চারি জন, তাহা মারি’ বৃন্দাবন,
+> আইলাম আমি, জানিহ নিশ্চয় ॥১৫৬॥
+
 > yādavera vipakṣa, yata duṣṭa kaṁsa-pakṣa,
 > tāhā āmi kailuṅ saba kṣaya
 > āche dui-cāri jana, tāhā māri' vṛndāvana,

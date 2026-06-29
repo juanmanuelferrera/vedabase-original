@@ -1,5 +1,8 @@
 ### CC Antya 1.14
 
+> শুনি’ শচী আনন্দিত, সব ভক্তগণ ।
+> সবে মিলি’ নীলাচলে করিলা গমন ॥১৪॥
+
 > śuni' śacī ānandita, saba bhakta-gaṇa
 > sabe mili' nīlācale karilā gamana
 

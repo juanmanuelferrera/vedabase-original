@@ -1,5 +1,8 @@
 ### SB 2.2.4
 
+> सत्यां क्षितौ किं कशिपोः प्रयासैर्बाहौ स्वसिद्धे ह्युपबर्हणैः किम् ।
+> सत्यञ्जलौ किं पुरुधान्नपात्र्या दिग्वल्कलादौ सति किं दुकूलैः ॥४॥
+
 > satyāṁ kṣitau kiṁ kaśipoḥ prayāsair
 > bāhau svasiddhe hy upabarhaṇaiḥ kim
 > saty añjalau kiṁ purudhānna-pātryā

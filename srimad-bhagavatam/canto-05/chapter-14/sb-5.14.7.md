@@ -1,5 +1,7 @@
 ### SB 5.14.7
 
+> क्वचिच्चाशेषदोषनिषदनं पुरीषविशेषं तद्वर्णगुणनिर्मितमतिःसुवर्णमुपादित्सत्यग्निकामकातर इवोल्मुकपिशाचम ॥७॥
+
 > kvacic cāśeṣa-doṣa-niṣadanaṁ purīṣa-viśeṣaṁ tad-varṇa-guṇa-nirmita-matiḥ suvarṇam upāditsaty agni-kāma-kātara ivolmuka-piśācam.
 
 *kvacit*—sometimes; *ca*—also; *aśeṣa*—unlimited; *doṣa*—of faults; *niṣadanam*—the source of; *purīṣa*—of stool; *viśeṣam*—a particular type; *tat-varṇa-guṇa*—whose color is the same as that of the mode of passion (reddish); *nirmita-matiḥ*—whose mind is absorbed in that; *suvarṇam*—gold; *upāditsati*—desiring to get; *agni-kāma*—by the desire for fire; *kātaraḥ*—who is troubled; *iva*—like; *ulmuka-piśācam*—a phosphorescent light known as a will-o'-the-wisp, which is sometimes mistaken for a ghost.

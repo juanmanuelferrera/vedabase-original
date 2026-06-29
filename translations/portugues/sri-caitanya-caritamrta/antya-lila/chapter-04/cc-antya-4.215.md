@@ -1,5 +1,8 @@
 ### CC Antya 4.215
 
+> গৌড়ে যে অর্থ ছিল, তাহা আনাইলা ।
+> কুটুম্ব-ব্রাহ্মণ-দেবালয়ে বাঁটি’ দিলা ॥২১৫॥
+
 gauḍe ye artha chila, tāhā ānāilā
 
 kuṭumba-brāhmaṇa-devālaye bāṅṭi' dilā

@@ -1,5 +1,8 @@
 ### CC Madhya 16.275
 
+> ধিক্ ধিক্ আপনাকে বলি’ হইলাঙ অস্থির ।
+> নিবৃত্ত হঞা পুনঃ আইলাঙ গঙ্গাতীর ॥২৭৫॥
+
 > dhik, dhik āpanāke bali' ha-ilāṅa asthira
 > nivṛtta hañā punaḥ āilāṅa gaṅgā-tīra
 

@@ -1,5 +1,8 @@
 ### Bg 8.2
 
+> अधियज्ञः कथं कोऽत्र देहेऽस्मिन्मधुसूदन ।
+> प्रयाणकाले च कथं ज्ञेयोऽसि नियतात्मभिः ॥२॥
+
 > adhiyajñaḥ kathaṁ ko 'tra
 > dehe 'smin madhusūdana
 > prayāṇa-kāle ca kathaṁ

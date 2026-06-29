@@ -1,5 +1,8 @@
 ### SB 5.16.4
 
+> ऋषिरुवाच
+> न वै महाराज भगवतो मायागुणविभूतेः काष्ठां मनसा वचसा वाधिगन्तुमलंविबुधायुषापि पुरुषस्तस्मात्प्राधान्येनैव भूगोलकविशेषं नामरूपमानलक्षणतोव्याख्यास्यामः ॥४॥
+
 ṛṣir uvāca
 
 *na vai mahārāja bhagavato māyā*-guṇa-vibhūteḥ kāṣṭhāṁ manasā vacasā vādhigantum alaṁ vibudhāyuṣāpi puruṣas tasmāt prādhān-yenaiva bhū-golaka-viśeṣaṁ nāma-rūpa-māna-lakṣaṇato vyākhyāsyāmaḥ.

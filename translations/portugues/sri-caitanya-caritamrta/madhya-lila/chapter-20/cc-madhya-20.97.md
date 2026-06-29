@@ -1,5 +1,8 @@
 ### CC Madhya 20.97
 
+> কৃষ্ণস্বরূপমাধুর্যৈশ্বর্যভক্তিরসাশ্রয়ম্ ।
+> তত্ত্বং সনাতনায়েশঃ কৃপয়োপদিদেশ সঃ ॥৯৭॥
+
 kṛṣṇa-svarūpa-mādhuryaiś-
 varya-bhakti-rasāśrayam
 tattvaṁ sanātanāyeśaḥ

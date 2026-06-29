@@ -1,5 +1,8 @@
 ### SB 4.8.31
 
+> मुनयः पदवीं यस्य निःसङ्गेनोरुजन्मभिः ।
+> न विदुर्मृगयन्तोऽपि तीव्रयोगसमाधिना ॥३१॥
+
 > munayaḥ padavīṁ yasya
 > niḥsaṅgenoru-janmabhiḥ
 > na vidur mṛgayanto 'pi

@@ -1,5 +1,8 @@
 ### CC Antya 12.15
 
+> শিবানন্দ-সেন করে ঘাটী-সমাধান ।
+> সবারে পালন করি’ সুখে লঞা যান ॥১৫॥
+
 > śivānanda-sena kare ghāṭī-samādhāna
 > sabāre pālana kari' sukhe lañā yāna
 

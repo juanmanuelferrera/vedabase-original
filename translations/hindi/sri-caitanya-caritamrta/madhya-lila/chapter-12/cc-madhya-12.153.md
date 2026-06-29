@@ -1,5 +1,8 @@
 ### CC Madhya 12.153
 
+> উদ্যানে বসিলা প্রভু ভক্তগণ লঞা ।
+> তবে বাণীনাথ আইলা মহাপ্রসাদ লঞা ॥১৫৩॥
+
 > udyāne vasilā prabhu bhakta-gaṇa lañā
 > tabe vāṇīnātha āilā mahā-prasāda lañā
 

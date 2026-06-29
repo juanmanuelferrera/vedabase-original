@@ -1,5 +1,8 @@
 ### CC Adi 5.115
 
+> তবে অবতরি’ করে জগৎ পালন ।
+> অনন্ত বৈভব তাঁর নাহিক গণন ॥১১৫॥
+
 tabe avatari' kare jagat pālana
 ananta vaibhava tāṅra nāhika gaṇana
 

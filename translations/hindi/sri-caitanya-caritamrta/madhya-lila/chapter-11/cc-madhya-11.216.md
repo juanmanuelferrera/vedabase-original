@@ -1,5 +1,8 @@
 ### CC Madhya 11.216
 
+> অষ্ট মৃদঙ্গ বাজে, বত্রিশ করতাল ।
+> হরিধ্বনি করে সবে, বলে — ভাল, ভাল ॥২১৬॥
+
 > aṣṭa mṛdaṅga bāje, batriśa karatāla
 > hari-dhvani kare sabe, bale-bhāla, bhāla
 

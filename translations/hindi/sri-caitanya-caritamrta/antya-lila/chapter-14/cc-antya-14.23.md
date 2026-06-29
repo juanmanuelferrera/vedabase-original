@@ -1,5 +1,8 @@
 ### CC Antya 14.23
 
+> যাবৎ কাল দর্শন করেন গরুড়ের পাছে ।
+> প্রভুর আগে দর্শন করে লোক লাখে লাখে ॥২৩॥
+
 > yāvat kāla darśana karena garuḍera pāche
 > prabhura āge darśana kare loka lākhe lākhe
 

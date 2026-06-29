@@ -1,5 +1,8 @@
 ### CC Madhya 10.179
 
+> প্রভু কহে, — কৃষ্ণে তোমার গাঢ় প্রেমা হয় ।
+> যাহাঁ নেত্র পড়ে, তাহাঁ শ্রীকৃষ্ণ স্ফুরয় ॥১৭৯॥
+
 > prabhu kahe,-kṛṣṇe tomāra gāḍha premā haya
 > yāhāṅ netra paḍe, tāhāṅ śrī-kṛṣṇa sphuraya
 

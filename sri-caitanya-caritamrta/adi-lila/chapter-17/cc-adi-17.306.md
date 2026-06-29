@@ -1,5 +1,8 @@
 ### CC Adi 17.306
 
+> অচিন্ত্য, অদ্ভুত কৃষ্ণচৈতন্য-বিহার ।
+> চিত্র ভাব, চিত্র গুণ, চিত্র ব্যবহার ॥৩০৬॥
+
 > acintya, adbhuta kṛṣṇa-caitanya-vihāra
 > citra bhāva, citra guṇa, citra vyavahāra
 

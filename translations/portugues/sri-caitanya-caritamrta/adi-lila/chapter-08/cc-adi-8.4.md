@@ -1,5 +1,8 @@
 ### CC Adi 8.4
 
+> জয় জয় শ্রীবাসাদি যত ভক্তগণ ।
+> প্রণত হইয়া বন্দোঁ সবার চরণ ॥৪॥
+
 jaya jaya śrīvāsādi yata bhakta-gaṇa
 praṇata ha-iyā vandoṅ sabāra caraṇa
 

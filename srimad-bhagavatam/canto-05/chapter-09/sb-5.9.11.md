@@ -1,5 +1,7 @@
 ### SB 5.9.11
 
+> यदा तु परत आहारं कर्मवेतनत ईहमानः स्वभ्रातृभिरपि केदारकर्मणि निरूपितस्तदपिकरोति किन्तु न समं विषमं न्यूनमधिकमिति वेद कणपिण्याकफलीकरणकुल्माषस्थालीपुरीषादीन्यप्यमृतवदभ्यवहरति ॥११॥
+
 > yadā tu parata āhāraṁ karma-vetanata īhamānaḥ sva-bhrātṛbhir api kedāra-karmaṇi nirūpitas tad api karoti kintu na samaṁ viṣamaṁ nyūnam adhikam iti veda kaṇa-piṇyāka-phalī-karaṇa-kulmāṣa-sthālīpurīṣādīny apy amṛtavad abhyavaharati.
 
 *yadā*—when; *tu*—but; *parataḥ*—from others; *āhāram*—food; *karma-vetanataḥ*—in exchange for wages from working; *īhamānaḥ*—looking for; *sva-bhrātṛbhiḥ api*—even by his own stepbrothers; *kedāra-karmaṇi*—in working in the field and adjusting the agricultural work; *nirūpitaḥ*—engaged; *tat api*—at that time also; *karoti*—he used to do; *kintu*—but; *na*—not; *samam*—level; *viṣamam*—uneven; *nyūnam*—deficient; *adhikam*—more raised; *iti*—thus; *veda*—he knew; *kaṇa*—broken rice; *piṇyāka*—oil cakes; *phalī-karaṇa*—the chaff of rice; *kulmāṣa*—worm-eaten grains; *sthālī-purīṣa-ādīni*—burned rice stuck to the pot and so on; *api*—even; *amṛta-vat*—like nectar; *abhyavaharati*—used to eat.

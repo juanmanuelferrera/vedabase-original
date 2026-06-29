@@ -1,5 +1,8 @@
 ### CC Madhya 6.188
 
+> প্রভু কহে, — ‘তুমি কি অর্থ কর, তাহা আগে শুনি’ ।
+> পাছে আমি করিব অর্থ, যেবা কিছু জানি ।।’ ॥ ১৮৮ ॥
+
 > prabhu kahe,--'tumi ki artha kara, tāhā āge śuni'
 > pāche āmi kariba artha, yebā kichu jāni'
 

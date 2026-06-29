@@ -1,5 +1,8 @@
 ### CC Madhya 24.352
 
+> কৃষ্ণের স্বরূপগণের সকল হয় ‘জ্ঞান’ ।
+> বিধি-রাগ-মার্গে ‘সাধনভক্তি’র বিধান ॥৩৫২॥
+
 > kṛṣṇera svarūpa-gaṇera sakala haya 'jñāna'
 > vidhi-rāga-mārge 'sādhana bhakti'ra vidhāna
 

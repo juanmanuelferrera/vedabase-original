@@ -1,5 +1,8 @@
 ### CC Madhya 15.272
 
+> আচার্য কহে, — উপবাস কৈল দুই জন ।
+> বিসূচিকা-ব্যাধিতে অমোঘ ছাড়িছে জীবন ॥২৭২॥
+
 > ācārya kahe,--upavāsa kaila dui jana
 > visūcikā-vyādhite amogha chāḍiche jīvana
 

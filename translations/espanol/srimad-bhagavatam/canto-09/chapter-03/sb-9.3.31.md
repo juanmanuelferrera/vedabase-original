@@ -1,5 +1,8 @@
 ### SB 9.3.31
 
+> तदन्त आद्यमानम्य स्वाभिप्रायं न्यवेदयत
+> तच्छ्रुत्वा भगवान्ब्रह्मा प्रहस्य तमुवाच ह ॥३१॥
+
 > tac chrutvā bhagavān brahmā
 > prahasya tam uvāca ha
 > aho rājan niruddhās te

@@ -1,5 +1,9 @@
 ### CC Madhya 21.102
 
+> কৃষ্ণের মধুর রূপ, শুন, সনাতন ।
+> যে রূপের এক কণ, ডুবায় সব ত্রিভুবন,
+> সর্ব প্রাণী করে আকর্ষণ ।। ১০২ ।। ধ্রু ।। ॥১০২॥
+
 > kṛṣṇera madhura rūpa, śuna, sanātana
 > ye rūpera eka kaṇa, ḍubāya saba tribhuvana,
 > sarva prāṇī kare ākarṣaṇa

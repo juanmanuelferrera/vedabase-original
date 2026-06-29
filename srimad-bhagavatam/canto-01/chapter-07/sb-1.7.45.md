@@ -1,5 +1,8 @@
 ### SB 1.7.45
 
+> स एष भगवान्द्रोणः प्रजारूपेण वर्तते ।
+> तस्यात्मनोऽर्धं पत्न्यास्ते नान्वगाद्वीरसूः कृपी ॥४५॥
+
 > sa eṣa bhagavān droṇaḥ
 > prajā-rūpeṇa vartate
 > tasyātmano 'rdhaṁ patny āste

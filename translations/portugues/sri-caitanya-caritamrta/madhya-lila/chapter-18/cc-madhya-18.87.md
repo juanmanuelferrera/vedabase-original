@@ -1,5 +1,8 @@
 ### CC Madhya 18.87
 
+> কিন্তু আজি এক মুঞি ‘স্বপ্ন’ দেখিনু ।
+> সেই স্বপ্ন পরতেক তোমা আসি’ পাইনু ॥৮৭॥
+
 kintu āji eka muñi 'svapna' dekhinu
 
 sei svapna parateka tomā āsi' pāinu

@@ -1,5 +1,7 @@
 ### SB 5.26.28
 
+> यस्त्विह वा अनृतं वदति साक्ष्ये द्रव्यविनिमये दाने वा कथञ्चित्स वै प्रेत्य नरकेऽवीचिमत्यधःशिरा निरवकाशे योजनशतोच्छ्रायाद्गिरिमूर्ध्नः सम्पात्यते यत्र जलमिव स्थलमश्मपृष्ठमवभासते तदवीचिमत्तिलशो विशीर्यमाणशरीरो न म्रियमाणः पुनरारोपितो निपतति ॥२७॥
+
 > yas tv iha vā anṛtaṁ vadati sākṣye dravya-vinimaye dāne vā kathañcit sa vai pretya narake 'vīcimaty adhaḥ-śirā niravakāśe yojana-śatocchrāyād giri-mūrdhnaḥ sampātyate yatra jalam iva sthalam aśma-pṛṣṭham avabhāsate tad avīcimat tilaśo viśīryamāṇa-śarīro na mriyamāṇaḥ punar āropito nipatati.
 
 *yaḥ*—anyone who; *tu*—but; *iha*—in this life; *vā*—or; *anṛtam*—a lie; *vadati*—speaks; *sākṣye*—giving witness; *dravya-vinimaye*—in exchange for goods; *dāne*—in giving charity; *vā*—or; *kathañcit*—somehow; *saḥ*—that person; *vai*—indeed; *pretya*—after dying; *narake*—in the hell; *avīcimati*—named Avīcimat (having no water); *adhaḥ-śirāḥ*—with his head downward; *niravakāśe*—without support; *yojana-śata*—of eight hundred miles; *ucchrāyāt*—having a height; *giri*—of a mountain; *mūrdhnaḥ*—from the top; *sampātyate*—is thrown; *yatra*—where; *jalam iva*—like water; *sthalam*—land; *aśma-pṛṣṭham*—having a surface of stone; *avabhāsate*—appears; *tat*—that; *avīcimat*—having no water or waves; *tilaśaḥ*—in pieces as small as seeds; *viśīryamāṇa*—being broken; *śarīraḥ*—the body; *na mriyamāṇaḥ*—not dying; *punaḥ*—again; *āropitaḥ*—raised to the top; *nipatati*—falls down.

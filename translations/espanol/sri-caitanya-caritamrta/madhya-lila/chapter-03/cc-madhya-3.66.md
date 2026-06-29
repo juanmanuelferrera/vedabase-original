@@ -1,5 +1,8 @@
 ### CC Madhya 3.66
 
+> প্রভু জানে তিনভোগ — কৃষ্ণের নৈবেদ্য ।
+> আচার্যের মনঃকথা নহে প্ৰভুর বেদ্য ॥৬৬॥
+
 > prabhu jāne tina bhoga--kṛṣṇera naivedya
 > ācāryera manaḥ-kathā nahe prabhura vedya
 

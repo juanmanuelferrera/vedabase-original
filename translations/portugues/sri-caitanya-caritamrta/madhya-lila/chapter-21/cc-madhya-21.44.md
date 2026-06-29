@@ -1,5 +1,8 @@
 ### CC Madhya 21.44
 
+> মধুরৈশ্বর্য-মাধুর্য-কৃপাদি-ভাণ্ডার ।
+> যোগমায়া দাসী যাহাঁ রাসাদি লীলা-সার ॥৪৪॥
+
 madhuraiśvarya-mādhurya-kṛpādi-bhāṇḍāra
 
 yogamāyā dāsī yāhāṅ rāsādi līlā-sāra

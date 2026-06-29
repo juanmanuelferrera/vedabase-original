@@ -1,5 +1,8 @@
 ### CC Madhya 10.102
 
+> আর দিনে আইলা স্বরূপ দামোদর ।
+> প্রভুর অত্যন্ত মর্মী, রসের সাগর ॥১০২॥
+
 > āra dine āilā svarūpa dāmodara
 > prabhura atyanta marmī, rasera sāgara
 

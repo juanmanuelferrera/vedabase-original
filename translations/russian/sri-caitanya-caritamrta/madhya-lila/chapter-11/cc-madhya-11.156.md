@@ -1,5 +1,8 @@
 ### CC Madhya 11.156
 
+> মোরে না ছুঁইহ, প্রভু, মুঞি ত’ পামর ।
+> তোমার স্পর্শযোগ্য নহে পাপ কলেবর ॥১৫৬॥
+
 > more nā chuṅiha, prabhu, muñi ta' pāmara
 > tomāra sparśa-yogya nahe pāpa kalevara
 

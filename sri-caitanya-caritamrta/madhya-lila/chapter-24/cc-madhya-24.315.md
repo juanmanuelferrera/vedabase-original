@@ -1,5 +1,8 @@
 ### CC Madhya 24.315
 
+> “সাক্ষাৎ ঈশ্বর তুমি ব্রজেন্দ্রনন্দন ।
+> তোমার নিশ্বাসে সর্ববেদ-প্রবর্তন ॥৩১৫॥
+
 > "sākṣāt īśvara tumi vrajendra-nandana
 > tomāra niśvāse sarva-veda-pravartana
 

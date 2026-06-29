@@ -1,5 +1,8 @@
 ### CC Madhya 23.7
 
+> সম্যঙ্মসৃণিতস্বান্তো মমত্বাতিশয়াঙ্কিতঃ ।
+> ভাবঃ স এব সান্দ্রাত্মা বুধৈঃ প্রেমা নিগদ্যতে ॥৭॥
+
 > samyaṅ masṛṇita-svānto
 > mamatvātiśayāṅkitaḥ
 > bhāvaḥ sa eva sāndrātmā

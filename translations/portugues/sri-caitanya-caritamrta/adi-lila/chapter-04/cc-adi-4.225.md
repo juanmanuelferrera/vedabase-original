@@ -1,5 +1,8 @@
 ### CC Adi 4.225
 
+> শ্রীকৃষ্ণচৈতন্য গোসাঞি রসের সদন ।
+> অশেষ-বিশেষে কৈল রস আস্বাদন ॥২২৫॥
+
 śrī-kṛṣṇa-caitanya gosāñi rasera sadana
 aśeṣa-viśeṣe kaila rasa āsvādana
 

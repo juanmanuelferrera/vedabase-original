@@ -1,5 +1,8 @@
 ### CC Antya 19.66
 
+> স্বরূপ-গোসাঞি তবে চিন্তা পাইলা মনে ।
+> ভক্তগণ লঞা বিচার কৈলা আর দিনে ॥৬৬॥
+
 > svarūpa-gosāñi tabe cintā pāilā mane
 > bhakta-gaṇa lañā vicāra kailā āra dine
 

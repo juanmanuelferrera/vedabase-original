@@ -1,5 +1,8 @@
 ### SB 3.32.32
 
+> ज्ञानयोगश्च मन्निष्ठो नैर्गुण्यो भक्तिलक्षणः ।
+> द्वयोरप्येक एवार्थो भगवच्छब्दलक्षणः ॥३२॥
+
 jñāna-yogaś ca man-niṣṭho
 nairguṇyo bhakti-lakṣaṇaḥ
 dvayor apy eka evārtho

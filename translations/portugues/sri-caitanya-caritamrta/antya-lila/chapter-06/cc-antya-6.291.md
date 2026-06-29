@@ -1,5 +1,8 @@
 ### CC Antya 6.291
 
+> গোবর্ধন-শিলা প্রভু হৃদয়ে-নেত্রে ধরে ।
+> কভু নাসায় ঘ্রাণ লয়, কভু শিরে করে ॥২৯১॥
+
 govardhana-śilā prabhu hṛdaye-netre dhare
 
 kabhu nāsāya ghrāṇa laya, kabhu śire kare

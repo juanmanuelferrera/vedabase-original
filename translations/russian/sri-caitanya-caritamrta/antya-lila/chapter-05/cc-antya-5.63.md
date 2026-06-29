@@ -1,5 +1,8 @@
 ### CC Antya 5.63
 
+> তবে রামানন্দ ক্রমে কহিতে লাগিলা ।
+> কৃষ্ণকথা-রসামৃত-সিন্ধু উথলিলা ॥৬৩॥
+
 > tabe rāmānanda krame kahite lāgilā
 > kṛṣṇa-kathā-rasāmṛta-sindhu uthalilā
 

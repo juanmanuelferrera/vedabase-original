@@ -1,5 +1,7 @@
 ### SB 5.16.17
 
+> तेषां विशीर्यमाणानामतिमधुरसुरभिसुगन्धिबहुलारुणरसोदेनारुणोदा नाम नदीमन्दरगिरिशिखरान्निपतन्ती पूर्वेणेलावृतमुपप्लावयति ॥१७॥
+
 > teṣāṁ viśīryamāṇānām ati-madhura-surabhi-sugandhi-bahulāruṇa-rasodenāruṇodā nāma nadī mandara-giri-śikharān nipatantī pūr-veṇelāvṛtam upaplāvayati.
 
 *teṣām*—de todos los mangos; *viśīryamāṇānām*—rotos por caer desde lo alto; *ati-madhura*—muy dulce; *surabhi*—fragante; *sugandhi*—perfumado con otros aromas; *bahula*—grandes cantidades; *aruṇa-rasa-udena*—por jugo rojizo; *aruṇodā*—Aruṇodā; *nāma*—llamado; *nadī*—el río; *mandara-giri-śikharāt*—desde las cumbres de la montaña Mandara; *nipatantī*—cayendo; *pūrveṇa*—en el lado oriental; *ilāvṛtam*—por Ilāvṛta-varṣa; *upaplāvayati*—discurre.

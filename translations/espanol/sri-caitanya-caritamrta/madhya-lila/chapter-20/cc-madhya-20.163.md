@@ -1,5 +1,8 @@
 ### CC Madhya 20.163
 
+> অথবা বহুনৈতেন কিং জ্ঞাতেন তবার্জুন ৷
+> বিষ্টভ্যাহমিদং কৃৎস্নমেকাংশেন স্থিতো জগৎ ॥১৬৩॥
+
 > athavā bahunaitena
 > kiṁ jñātena tavārjuna
 > viṣṭabhyāham idaṁ kṛtsnam

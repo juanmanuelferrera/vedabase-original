@@ -1,5 +1,8 @@
 ### CC Madhya 1.208
 
+> আজি হৈতে দুঁহার নাম ‘রূপ’ ‘সনাতন’ ।
+> দৈন্য ছাড়, তোমার দৈন্যে ফাটে মোর মন ॥২০৮॥
+
 > āji haite duṅhāra nāma 'rūpa' 'sanātana'
 > dainya chāḍa, tomāra dainye phāṭe mora mana
 

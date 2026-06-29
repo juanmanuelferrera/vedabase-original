@@ -1,5 +1,8 @@
 ### CC Antya 2.100
 
+> লজ্জা-ভয় পাঞা আচার্য মৌন হইলা ।
+> আর দিন গোপালেরে দেশে পাঠাইলা ॥১০০॥
+
 > lajjā-bhaya pāñā ācārya mauna ha-ilā
 > āra dina gopālere deśe pāṭhāilā
 

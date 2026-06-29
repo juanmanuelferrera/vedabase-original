@@ -1,5 +1,8 @@
 ### CC Madhya 3.122
 
+> আচার্য উঠাইল প্ৰভুকে করিতে নর্তন ।
+> পদ শুনি’ প্ৰভুর অঙ্গ না যায় ধারণ ॥১২২॥
+
 ācārya uṭhāila prabhuke karite nartana
 
 pada śuni' prabhura aṅga nā yāya dhāraṇa

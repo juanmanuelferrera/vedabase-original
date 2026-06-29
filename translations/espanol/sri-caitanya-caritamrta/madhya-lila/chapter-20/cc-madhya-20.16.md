@@ -1,5 +1,8 @@
 ### CC Madhya 20.16
 
+> গড়দ্বার-পথ ছাড়িলা, নারে তাহাঁ যাইতে ।
+> রাত্রি-দিন চলি’ আইলা পাতড়া-পর্বতে ॥১৬॥
+
 > gaḍa-dvāra-patha chāḍilā, nāre tāhāṅ yāite
 > rātri-dina cali' āilā pātaḍā-parvate
 

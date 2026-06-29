@@ -1,5 +1,8 @@
 ### CC Adi 5.222
 
+> চৌদ্দভুবনে যাঁর সবে করে ধ্যান ।
+> বৈকুণ্ঠাদি-পুরে যাঁর লীলাগুণ গান ॥২২২॥
+
 caudda-bhuvane yāṅra sabe kare dhyāna
 
 vaikuṇṭhādi-pure yāṅra līlā-guṇa gāna

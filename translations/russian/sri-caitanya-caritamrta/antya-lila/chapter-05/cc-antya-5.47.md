@@ -1,5 +1,8 @@
 ### CC Antya 5.47
 
+> উজ্জ্বল মধুর প্রেমভক্তি সেই পায় ।
+> আনন্দে কৃষ্ণমাধুর্যে বিহরে সদায় ॥৪৭॥
+
 > ujjvala madhura prema-bhakti sei pāya
 > ānande kṛṣṇa-mādhurye vihare sadāya
 

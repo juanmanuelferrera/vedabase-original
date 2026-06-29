@@ -1,5 +1,8 @@
 ### SB 7.1.25
 
+> तस्माद्वैरानुबन्धेन निर्वैरेण भयेन वा
+> स्नेहात्कामेन वा युञ्ज्यात्कथञ्चिन्नेक्षते पृथक ॥२५॥
+
 > yan-nibaddho 'bhimāno 'yaṁ
 > tad-vadhāt prāṇināṁ vadhaḥ
 > tathā na yasya kaivalyād

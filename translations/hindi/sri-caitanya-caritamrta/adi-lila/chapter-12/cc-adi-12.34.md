@@ -1,5 +1,8 @@
 ### CC Adi 12.34
 
+> আচার্যেরে স্থাপিয়াছে করিয়া ঈশ্বর ।
+> ইথে দোষ নাহি, আচার্য — দৈবত ঈশ্বর ॥৩৪॥
+
 > ācāryere sthāpiyāche kariyā īśvara
 > ithe doṣa nāhi, ācārya—daivata īśvara
 

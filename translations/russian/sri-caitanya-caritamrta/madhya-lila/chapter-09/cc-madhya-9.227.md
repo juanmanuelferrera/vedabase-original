@@ -1,5 +1,8 @@
 ### CC Madhya 9.227
 
+> স্ত্রীধন দেখাঞা তাঁর লোভ জন্মাইল ।
+> আর্য সরল বিপ্রের বুদ্ধিনাশ কৈল ॥২২৭॥
+
 > strī-dhana dekhāñā tāṅra lobha janmāila
 > ārya sarala viprera buddhi-nāśa kaila
 

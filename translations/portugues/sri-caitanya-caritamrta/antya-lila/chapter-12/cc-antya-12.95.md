@@ -1,5 +1,8 @@
 ### CC Antya 12.95
 
+> এইমত জগদানন্দ শচীমাতা-সনে ।
+> চৈতন্যের সুখ-কথা কহে রাত্রি-দিনে ॥৯৫॥
+
 ei-mata jagadānanda śacīmātā-sane
 
 caitanyera sukha-kathā kahe rātri-dine

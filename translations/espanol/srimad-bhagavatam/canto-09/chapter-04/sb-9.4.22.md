@@ -1,5 +1,8 @@
 ### SB 9.4.22
 
+> ईजेऽश्वमेधैरधियज्ञअमीश्वरं महाविभूत्योपचिताङ्गदक्षिणैः
+> ततैर्वसिष्ठासितगौतमादिभिर्धन्वन्यभिस्रोतमसौ सरस्वतीम ॥२२॥
+
 > īje 'śvamedhair adhiyajñam īśvaraṁ
 > mahā-vibhūtyopacitāṅga-dakṣiṇaiḥ
 > tatair vasiṣṭhāsita-gautamādibhir

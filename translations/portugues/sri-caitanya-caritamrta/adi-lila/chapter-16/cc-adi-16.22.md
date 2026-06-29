@@ -1,5 +1,8 @@
 ### CC Adi 16.22
 
+> অন্তরে জানিলা প্রভু, যাতে অন্তর্যামী ।
+> দেশেরে আইলা প্রভু শচী-দুঃখ জানি’ ॥২২॥
+
 antare jānilā prabhu, yāte antaryāmī
 
 deśere āilā prabhu śacī-duḥkha jāni'

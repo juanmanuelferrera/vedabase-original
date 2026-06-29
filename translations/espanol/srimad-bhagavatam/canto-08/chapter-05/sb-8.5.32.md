@@ -1,5 +1,8 @@
 ### SB 8.5.32
 
+> पादौ महीयं स्वकृतैव यस्य चतुर्विधो यत्र हि भूतसर्गः
+> स वै महापूरुष आत्मतन्त्रः प्रसीदतां ब्रह्म महाविभूतिः ॥३२॥
+
 > pādau mahīyaṁ sva-kṛtaiva yasya
 > catur-vidho yatra hi bhūta-sargaḥ
 > sa vai mahā-pūruṣa ātma-tantraḥ

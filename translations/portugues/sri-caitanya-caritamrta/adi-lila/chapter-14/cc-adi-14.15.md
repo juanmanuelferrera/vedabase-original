@@ -1,5 +1,8 @@
 ### CC Adi 14.15
 
+> পঞ্চদীর্ঘঃ পঞ্চসূক্ষ্মঃ সপ্তরক্তঃ ষড়ুন্নতঃ ।
+> ত্রিহ্রস্ব-পৃথু-গম্ভীরো দ্বাত্রিংশল্লক্ষণো মহান্ ॥১৫॥
+
 pañca-dīrghaḥ pañca-sūkṣmaḥ
 sapta-raktaḥ ṣaḍ-unnataḥ
 tri-hrasva-pṛthu-gambhīro

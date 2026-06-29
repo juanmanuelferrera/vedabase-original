@@ -1,5 +1,8 @@
 ### CC Madhya 20.74
 
+> মিশ্র কহে, — ‘সনাতনের কিছু কৃত্য আছে ।
+> তুমি ভিক্ষা কর, প্রসাদ তাঁরে দিব পাছে ।।’ ॥ ৭৪ ॥
+
 miśra kahe,--'sanātanera kichu kṛtya āche
 
 tumi bhikṣā kara, prasāda tāṅre diba pāche'

@@ -1,5 +1,8 @@
 ### CC Madhya 17.185
 
+> ধর্ম-স্থাপন-হেতু সাধুর ব্যবহার ।
+> পুরী-গোসাঞির যে আচরণ, সেই ধর্ম সার ॥১৮৫॥
+
 > dharma-sthāpana-hetu sādhura vyavahāra
 > purī-gosāñira ye ācaraṇa, sei dharma sāra
 

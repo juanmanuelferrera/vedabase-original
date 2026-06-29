@@ -1,5 +1,8 @@
 ### CC Madhya 3.55
 
+> দুই পাশে ধরিল সব মৃৎকুণ্ডিকা ভরি’ ৷
+> চাঁপাকলা-দধি-সন্দেশ কহিতে না পারি ॥৫৫॥
+
 dui pāśe dharila saba mṛt-kuṇḍikā bhari'
 cāṅpākalā-dadhi-sandeśa kahite nā pāri
 

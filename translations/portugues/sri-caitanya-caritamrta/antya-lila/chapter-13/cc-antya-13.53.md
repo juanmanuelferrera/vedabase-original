@@ -1,5 +1,7 @@
 ### CC Antya 13.53
 
+> “কাহাঁ পাইলা তুমি এই রাতুল বসন ?” ‘মুকুন্দ-সরস্বতী’ দিল, — কহে সনাতন ॥৫৩॥
+
 "kāhāṅ pāilā tumi ei rātula vasana?"
 
 'mukunda-sarasvatī' dila,--kahe sanātana

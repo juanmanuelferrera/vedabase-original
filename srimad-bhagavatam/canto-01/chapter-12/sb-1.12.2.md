@@ -1,5 +1,8 @@
 ### SB 1.12.2
 
+> तस्य जन्म महाबुद्धेः कर्माणि च महात्मनः ।
+> निधनं च यथैवासीत्स प्रेत्य गतवान्यथा ॥२॥
+
 > tasya janma mahā-buddheḥ
 > karmāṇi ca mahātmanaḥ
 > nidhanaṁ ca yathaivāsīt

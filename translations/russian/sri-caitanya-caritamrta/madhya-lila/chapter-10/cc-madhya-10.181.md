@@ -1,5 +1,8 @@
 ### CC Madhya 10.181
 
+> প্রেম বিনা কভু নহে তাঁর সাক্ষাৎকার ।
+> ইঁহার কৃপাতে হয় দরশন ইঁহার ॥১৮১॥
+
 > prema vinā kabhu nahe tāṅra sākṣātkāra
 > iṅhāra kṛpāte haya daraśana iṅhāra
 

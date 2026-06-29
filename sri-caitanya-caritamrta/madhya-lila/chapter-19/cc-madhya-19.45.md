@@ -1,5 +1,8 @@
 ### CC Madhya 19.45
 
+> বিপ্র-গৃহে আসি’ প্রভু নিভৃতে বসিলা ।
+> শ্রীরূপ-বল্লভ দুঁহে আসিয়া মিলিলা ॥৪৫॥
+
 > vipra-gṛhe āsi' prabhu nibhṛte vasilā
 > śrī-rūpa-vallabha duṅhe āsiyā mililā
 

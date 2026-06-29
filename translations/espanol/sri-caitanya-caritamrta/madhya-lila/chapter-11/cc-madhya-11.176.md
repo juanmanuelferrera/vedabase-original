@@ -3,6 +3,9 @@
 > sei ghara āmāke deha'-āche prayojana
 > nibhṛte vasiyā tāhāṅ kariba smaraṇa
 
+> sei ghara āmāke deha'-āche prayojana
+> nibhṛte vasiyā tāhāṅ kariba smaraṇa
+
 *sei ghara*—esa habitación; *āmāke deha'*—por favor dádmela; *āche prayojana*—hay necesidad; *nibhṛte*—en el lugar solitario; *vasiyā*—sentándose; *tāhāṅ*—allí; *kariba smaraṇa*—recordaré los pies de loto del Señor.
 
 **»Por favor, dadme esa habitación, pues la necesito. En verdad, sentado en ese lugar solitario, recordaré los pies de loto del Señor».**

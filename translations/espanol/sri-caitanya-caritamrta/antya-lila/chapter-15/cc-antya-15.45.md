@@ -1,5 +1,8 @@
 ### CC Antya 15.45
 
+> “কহ, মৃগি, রাধা-সহ শ্রীকৃষ্ণ সর্বথা ।
+> তোমায় সুখ দিতে আইলা? নাহিক অন্যথা ॥৪৫॥
+
 > "kaha, mṛgi, rādhā-saha śrī-kṛṣṇa sarvathā
 > tomāya sukha dite āilā? nāhika anyathā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 12.156
 
+> পুরী-গোসাঞি, মহাপ্রভু, ভারতী ব্রহ্মানন্দ  ।
+> অদ্বৈত-আচার্য, আর প্রভু-নিত্যানন্দ ॥১৫৬॥
+
 > purī-gosāñi, mahāprabhu, bhāratī brahmānanda
 > advaita-ācārya, āra prabhu-nityānanda
 

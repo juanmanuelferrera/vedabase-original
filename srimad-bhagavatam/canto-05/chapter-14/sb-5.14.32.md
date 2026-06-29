@@ -1,5 +1,7 @@
 ### SB 5.14.32
 
+> क्वचिद्द्रुमवदैहिकार्थेषु गृहेषु रंस्यन्यथा वानरः सुतदारवत्सलो व्यवायक्षणः ॥३२॥
+
 > kvacid drumavad aihikārtheṣu gṛheṣu raṁsyan yathā vānaraḥ suta-dāra-vatsalo vyavāya-kṣaṇaḥ.
 
 *kvacit*—sometimes; *druma-vat*—like trees (as monkeys jump from one tree to another, the conditioned soul transmigrates from one body to another); *aihika-artheṣu*—simply to bring about better worldly comforts; *gṛheṣu*—in houses (or bodies); *raṁsyan*—delighting (in one body after another, either in animal life, human life or demigod life); *yathā*—exactly as; *vānaraḥ*—the monkey; *suta-dāra-vatsalaḥ*—very affectionate to the children and wife; *vyavāya-kṣaṇaḥ*—whose leisure time is spent in sex pleasure.

@@ -1,5 +1,8 @@
 ### CC Antya 3.226
 
+> দুইজনের ভক্ত্যে চৈতন্য কৈলা অবতার ।
+> নাম-প্রেম প্রচারি’ কৈলা জগৎ উদ্ধার ॥২২৬॥
+
 > dui-janera bhaktye caitanya kailā avatāra
 > nāma-prema pracāri' kailā jagat uddhāra
 

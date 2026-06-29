@@ -1,5 +1,8 @@
 ### CC Madhya 10.16
 
+> তথাপি রাখিতে তাঁরে বহু যত্ন কৈলুঁ ৷
+> ঈশ্বরের স্বতন্ত্র ইচ্ছা, রাখিতে নারিলুঁ ৷৷ ১৬ ৷৷ ॥১৬॥
+
 > tathāpi rākhite tāṅre bahu yatna kailuṅ
 > īśvarera svatantra icchā, rākhite nāriluṅ
 

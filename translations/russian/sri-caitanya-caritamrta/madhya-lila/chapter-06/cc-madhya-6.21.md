@@ -1,5 +1,8 @@
 ### CC Madhya 6.21
 
+> মুকুন্দ কহে, — প্রভুর ইহাঁ হৈল আগমনে ।
+> আমি-সব আসিয়াছি মহাপ্রভুর সনে ॥২১॥
+
 > mukunda kahe,—prabhura ihāṅ haila āgamane
 > āmi-saba āsiyāchi mahāprabhura sane
 

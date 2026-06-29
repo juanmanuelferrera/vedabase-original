@@ -1,5 +1,8 @@
 ### CC Adi 17.75
 
+> জ্ঞান-কর্ম-যোগ-ধর্মে নহে কৃষ্ণ বশ ।
+> কৃষ্ণবশ-হেতু এক — প্রেমভক্তি-রস ॥৭৫॥
+
 > jñāna-karma-yoga-dharme nahe kṛṣṇa vaśa
 > kṛṣṇa-vaśa-hetu eka—prema-bhakti-rasa
 

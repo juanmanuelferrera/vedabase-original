@@ -1,5 +1,8 @@
 ### CC Antya 12.45
 
+> ছোটপুত্রে দেখি’ প্রভু নাম পুছিলা ।
+> ‘পরমানন্দদাস’-নাম সেন জানাইলা ॥৪৫॥
+
 > choṭa-putre dekhi' prabhu nāma puchilā
 > 'paramānanda-dāsa'-nāma sena jānāilā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 18.6
 
+> দেখি’ সব গ্রাম্য-লোকের বিস্ময় হৈল মন ।
+> প্রেমে প্রভু করে রাধাকুণ্ডের স্তবন ॥৬॥
+
 > dekhi' saba grāmya-lokera vismaya haila mana
 > preme prabhu kare rādhā-kuṇḍera stavana
 

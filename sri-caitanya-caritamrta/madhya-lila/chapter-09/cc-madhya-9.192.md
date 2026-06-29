@@ -1,5 +1,8 @@
 ### CC Madhya 9.192
 
+> স্পর্শিবার কার্য আছুক, না পায় দর্শন ।
+> সীতার আকৃতি-মায়া হরিল রাবণ ॥১৯২॥
+
 > sparśibāra kārya āchuka, nā pāya darśana
 > sītāra ākṛti-māyā harila rāvaṇa
 

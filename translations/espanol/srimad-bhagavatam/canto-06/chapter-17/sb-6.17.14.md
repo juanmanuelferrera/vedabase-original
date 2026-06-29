@@ -1,5 +1,8 @@
 ### SB 6.17.14
 
+> नायमर्हति वैकुण्ठ पादमूलोपसर्पणम
+> सम्भावितमतिः स्तब्धः साधुभिः पर्युपासितम ॥१४॥
+
 > nāyam arhati vaikuṇṭha-
 > pāda-mūlopasarpaṇam
 > sambhāvita-matiḥ stabdhaḥ

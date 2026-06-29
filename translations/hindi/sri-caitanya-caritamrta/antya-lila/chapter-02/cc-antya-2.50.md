@@ -1,5 +1,8 @@
 ### CC Antya 2.50
 
+> তবে শিবানন্দ তাঁরে সকল কহিলা ।
+> ‘আসিব আজ্ঞা দিলা প্রভু কেনে না আইলা ?’ ॥ ৫০ ॥
+
 > tabe śivānanda tāṅre sakala kahilā
 > 'āsiba ājñā dilā prabhu kene nā āilā?'
 

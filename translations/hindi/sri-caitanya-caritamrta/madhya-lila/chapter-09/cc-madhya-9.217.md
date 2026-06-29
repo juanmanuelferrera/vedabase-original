@@ -1,5 +1,8 @@
 ### CC Madhya 9.217
 
+> এত বলি’ সেই বিপ্র সুখে পাক কৈল ।
+> উত্তম প্রকারে প্রভুকে ভিক্ষা করাইল ॥২১৭॥
+
 > eta bali' sei vipra sukhe pāka kaila
 > uttama prakāre prabhuke bhikṣā karāila
 

@@ -1,5 +1,8 @@
 ### SB 1.6.31
 
+> अन्तर्बहिश्च लोकांस्त्रीन्पर्येम्यस्कन्दितव्रतः ।
+> अनुग्रहान्महाविष्णोरविघातगतिः क्वचित् ॥३१॥
+
 > antar bahiś ca lokāṁs trīn
 > paryemy askandita-vrataḥ
 > anugrahān mahā-viṣṇor

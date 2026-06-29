@@ -1,5 +1,8 @@
 ### CC Madhya 22.143
 
+> অজ্ঞানে বা হয় যদি ‘পাপ’ উপস্থিত ।
+> কৃষ্ণ তাঁরে শুদ্ধ করে, না করায় প্রায়শ্চিত্ত ॥১৪৩॥
+
 > ajñāne vā haya yadi 'pāpa' upasthita
 > kṛṣṇa tāṅre śuddha kare, nā karāya prāyaścitta
 

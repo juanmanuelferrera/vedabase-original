@@ -1,5 +1,8 @@
 ### CC Madhya 9.244
 
+> শৃঙ্গেরি-মঠে আইলা শঙ্করাচার্য-স্থানে ।
+> মৎস্য-তীর্থ দেখি’ কৈল তুঙ্গভদ্রায় স্নানে ॥২৪৪॥
+
 > śṛṅgeri-maṭhe āilā śaṅkarācārya-sthāne
 > matsya-tīrtha dekhi' kaila tuṅgabhadrāya snāne
 

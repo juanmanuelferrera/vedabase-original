@@ -1,5 +1,8 @@
 ### CC Madhya 14.249
 
+> এই পট্টডোরীর তুমি হও যজমান  ।
+> প্রতিবৎসর আনিবে ‘ডোরী’ করিয়া নির্মাণ ॥২৪৯॥
+
 > ei paṭṭa-ḍorīra tumi hao yajamāna
 > prati-vatsara ānibe 'ḍorī' kariyā nirmāṇa
 

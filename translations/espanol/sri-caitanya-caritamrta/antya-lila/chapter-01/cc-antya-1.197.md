@@ -1,5 +1,8 @@
 ### CC Antya 1.197
 
+> প্রভু কহে, — “প্রয়াগে ইহার হইল মিলন ।
+> ইহার গুণে ইহাতে আমার তুষ্ট হৈল মন ॥১৯৭॥
+
 > prabhu kahe,--"prayāge ihāra ha-ila milana
 > ihāra guṇe ihāte āmāra tuṣṭa haila mana
 

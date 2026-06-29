@@ -1,5 +1,8 @@
 ### CC Madhya 15.217
 
+> ঘৃত-সিক্ত পরমান্ন, মৃৎকুণ্ডিকা ভরি’ ৷
+> চাঁপাকলা-ঘনদুগ্ধ-আম্র তাহা ধরি ॥২১৭॥
+
 ghṛta-sikta paramānna, mṛt-kuṇḍikā bhari'
 
 cāṅpākalā-ghanadugdha-āmra tāhā dhari

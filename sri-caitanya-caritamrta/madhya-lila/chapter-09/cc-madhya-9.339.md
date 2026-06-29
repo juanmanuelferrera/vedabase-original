@@ -1,5 +1,8 @@
 ### CC Madhya 9.339
 
+> প্রভুর আগমন শুনি’ নিত্যানন্দ রায় ।
+> উঠিয়া চলিলা, প্রেমে থেহ নাহি পায় ॥৩৩৯॥
+
 > prabhura āgamana śuni' nityānanda rāya
 > uṭhiyā calilā, preme theha nāhi pāya
 

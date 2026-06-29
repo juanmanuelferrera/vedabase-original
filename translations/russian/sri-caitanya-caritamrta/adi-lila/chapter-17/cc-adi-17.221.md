@@ -1,5 +1,8 @@
 ### CC Adi 17.221
 
+> প্রভু কহে, — এক দান মাগিয়ে তোমায় ।
+> সংকীর্তন বাদ যৈছে নহে নদীয়ায় ॥২২১॥
+
 > prabhu kahe,—eka dāna māgiye tomāya
 > saṅkīrtana vāda yaiche nahe nadīyāya
 

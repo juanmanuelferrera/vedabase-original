@@ -1,5 +1,8 @@
 ### SB 8.16.57
 
+> नृत्यवादित्रगीतैश्च स्तुतिभिः स्वस्तिवाचकैः
+> कारयेत्तत्कथाभिश्च पूजां भगवतोऽन्वहम ॥५७॥
+
 > nṛtya-vāditra-gītaiś ca
 > stutibhiḥ svasti-vācakaiḥ
 > kārayet tat-kathābhiś ca

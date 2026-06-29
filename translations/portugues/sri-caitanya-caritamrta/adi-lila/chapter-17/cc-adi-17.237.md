@@ -1,5 +1,8 @@
 ### CC Adi 17.237
 
+> বংশীবাদ্যে গোপীগণের বনে আকর্ষণ ।
+> তাঁ-সবার সঙ্গে যৈছে বন-বিহরণ ॥২৩৭॥
+
 vaṁśī-vādye gopī-gaṇera vane ākarṣaṇa
 
 tāṅ-sabāra saṅge yaiche vana-viharaṇa

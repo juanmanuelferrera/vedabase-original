@@ -1,5 +1,8 @@
 ### CC Madhya 8.101
 
+> প্রভু কহে, — আগে কহ, শুনিতে পাই সুখে ।
+> অপূর্বামৃত-নদী বহে তোমার মুখে ॥১০১॥
+
 > prabhu kahe—āge kaha, śunite pāi sukhe
 > apūrvāmṛta-nadī vahe tomāra mukhe
 

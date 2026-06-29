@@ -1,5 +1,8 @@
 ### Bg 2.26
 
+> अथ चैनं नित्यजातं नित्यं वा मन्यसे मृतम् ।
+> तथापि त्वं महाबाहो नैवं शोचितुमर्हसि ॥२६॥
+
 > atha cainaṁ nitya-jātaṁ
 > nityaṁ vā manyase mṛtam
 > tathāpi tvaṁ mahā-bāho

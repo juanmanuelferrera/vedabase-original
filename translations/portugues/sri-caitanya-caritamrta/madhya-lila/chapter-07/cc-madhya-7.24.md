@@ -1,5 +1,8 @@
 ### CC Madhya 7.24
 
+> অন্তরে দুঃখী মুকুন্দ, নাহি কহে মুখে ৷
+> ইহার দুঃখ দেখি’ মোর দ্বিগুণ হয়ে দুঃখে ৷৷ ২৪ ৷৷ ॥২৪॥
+
 antare duḥkhī mukunda, nāhi kahe mukhe
 
 ihāra duḥkha dekhi' mora dvi-guṇa haye duḥkhe

@@ -1,5 +1,8 @@
 ### CC Madhya 9.236
 
+> প্রেম দেখি’ লোকে হৈল মহা-চমৎকার ৷
+> সর্বলোক কৈল প্রভুর পরম সৎকার ৷৷ ২৩৬ ৷৷ ॥২৩৬॥
+
 prema dekhi' loke haila mahā-camatkāra
 
 sarva-loka kaila prabhura parama satkāra

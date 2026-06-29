@@ -1,5 +1,7 @@
 ### CC Madhya 15.46
 
+> তোমার ঘরে কীর্তনে আমি নিত্য নাচিব ৷ তুমি দেখা পাবে, আর কেহ না দেখিব ॥৪৬॥
+
 > tomāra ghare kīrtane āmi nitya nāciba
 > tumi dekhā pābe, āra keha nā dekhiba
 

@@ -1,5 +1,8 @@
 ### CC Adi 2.102
 
+> মায়াশক্তি, বহিরঙ্গা, জগৎকারণ ।
+> তাহার বৈভব অনন্ত ব্রহ্মাণ্ডের গণ ॥১০২॥
+
 > māyā-śakti, bahiraṅgā, jagat-kāraṇa
 > tāhāra vaibhava ananta brahmāṇḍera gaṇa
 

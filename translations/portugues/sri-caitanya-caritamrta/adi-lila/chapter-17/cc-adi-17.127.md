@@ -1,5 +1,8 @@
 ### CC Adi 17.127
 
+> কেহ কীর্তন না করিহ সকল নগরে ।
+> আজি আমি ক্ষমা করি’ যাইতেছোঁ ঘরে ॥১২৭॥
+
 keha kīrtana nā kariha sakala nagare
 
 āji āmi kṣamā kari' yāitechoṅ ghare

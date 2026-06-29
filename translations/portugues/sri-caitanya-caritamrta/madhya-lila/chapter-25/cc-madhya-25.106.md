@@ -1,5 +1,8 @@
 ### CC Madhya 25.106
 
+> এই ‘তিন’ তত্ত্ব আমি কহিনু তোমারে ।
+> ‘জীব’ তুমি এই তিন নারিবে জানিবারে ॥১০৬॥
+
 ei 'tina' tattva āmi kahinu tomāre
 
 'jīva' tumi ei tina nāribe jānibāre

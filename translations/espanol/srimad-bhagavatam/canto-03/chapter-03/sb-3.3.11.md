@@ -1,5 +1,8 @@
 ### SB 3.3.11
 
+> शम्बरं द्विविदं बाणं मुरं बल्वलमेव च ।
+> अन्यांश्च दन्तवक्रादीनवधीत्कांश्च घातयत् ॥११॥
+
 > śambaraṁ dvividaṁ bāṇaṁ
 > muraṁ balvalam eva ca
 > anyāṁś ca dantavakrādīn

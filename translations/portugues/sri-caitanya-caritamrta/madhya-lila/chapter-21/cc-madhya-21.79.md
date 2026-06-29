@@ -1,5 +1,8 @@
 ### CC Madhya 21.79
 
+> কৃষ্ণ-সহ দ্বারকা-বৈভব অনুভব হৈল ।
+> একত্র মিলনে কেহ কাহো না দেখিল ॥৭৯॥
+
 kṛṣṇa-saha dvārakā-vaibhava anubhava haila
 
 ekatra milane keha kāho nā dekhila

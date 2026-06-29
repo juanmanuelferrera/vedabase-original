@@ -1,5 +1,8 @@
 ### SB 6.19.18
 
+> कृतमेकतरेणापि दम्पत्योरुभयोरपि
+> पत्न्यां कुर्यादनर्हायां पतिरेतत्समाहितः ॥१८॥
+
 > kṛtam ekatareṇāpi
 > dam-patyor ubhayor api
 > patnyāṁ kuryād anarhāyāṁ

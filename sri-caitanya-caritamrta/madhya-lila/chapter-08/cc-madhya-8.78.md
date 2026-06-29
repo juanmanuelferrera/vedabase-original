@@ -1,5 +1,8 @@
 ### CC Madhya 8.78
 
+> নেমং বিরিঞ্চো ন ভবো ন শ্রীরপ্যঙ্গসংশ্রয়া ।
+> প্রসাদং লেভিরে গোপী যত্তৎ প্রাপ বিমুক্তিদাত্ ॥৭৮॥
+
 > nemaṁ viriñco na bhavo
 > na śrīr apy aṅga-saṁśrayā
 > prasādaṁ lebhire gopī

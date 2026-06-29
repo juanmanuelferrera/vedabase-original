@@ -1,5 +1,10 @@
 ### CC Madhya 8.204-205
 
+> সখী বিনা এই লীলায় অন্যের নাহি গতি ।
+> সখীভাবে যে তাঁরে করে অনুগতি ॥২০৪॥
+> রাধাকৃষ্ণ-কুঞ্জসেবা-সাধ্য সেই পায় ।
+> সেই সাধ্য পাইতে আর নাহিক উপায় ॥২০৫॥
+
 > sakhī vinā ei līlāya anyera nāhi gati
 > sakhī-bhāve ye tāṅre kare anugati
 > rādhā-kṛṣṇa-kuñjasevā-sādhya sei pāya

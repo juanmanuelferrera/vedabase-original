@@ -1,5 +1,8 @@
 ### CC Adi 8.18
 
+> কৃষ্ণ যদি ছুটে ভক্তে ভুক্তি মুক্তি দিয়া ।
+> কভু প্রেমভক্তি না দেন রাখেন লুকাইয়া ॥১৮॥
+
 kṛṣṇa yadi chuṭe bhakte bhukti mukti diyā
 
 kabhu prema-bhakti nā dena rākhena lukāiyā

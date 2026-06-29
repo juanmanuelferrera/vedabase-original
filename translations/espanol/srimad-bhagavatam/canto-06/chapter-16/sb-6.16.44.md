@@ -1,5 +1,8 @@
 ### SB 6.16.44
 
+> न हि भगवन्नघटितमिदं त्वद्दर्शनान्नृणामखिलपापक्षयः
+> यन्नाम सकृच्छ्रवणात्पुक्कशोऽपि विमुच्यते संसारात ॥४४॥
+
 > na hi bhagavann aghaṭitam idaṁ
 > tvad-darśanān nṛṇām akhila-pāpa-kṣayaḥ
 > yan-nāma sakṛc chravaṇāt

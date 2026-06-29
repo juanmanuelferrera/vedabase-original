@@ -1,5 +1,8 @@
 ### Bg 3.34
 
+> इन्द्रियस्येन्द्रियस्यार्थे रागद्वेषौ व्यवस्थितौ ।
+> तयोर्न वशमागच्छेत्तौ ह्यस्य परिपन्थिनौ ॥३४॥
+
 > indriyasyendriyasyārthe
 > rāga-dveṣau vyavasthitau
 > tayor na vaśam āgacchet

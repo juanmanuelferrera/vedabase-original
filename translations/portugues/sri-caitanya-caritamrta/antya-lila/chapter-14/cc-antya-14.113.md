@@ -1,5 +1,8 @@
 ### CC Antya 14.113
 
+> হেনকালে আইলা পুরী, ভারতী, — দুইজন ।
+> দুঁহে দেখি’ মহাপ্রভুর হইল সম্ভ্রম ॥১১৩॥
+
 hena-kāle āilā purī, bhāratī,--dui-jana
 
 duṅhe dekhi' mahāprabhura ha-ila sambhrama

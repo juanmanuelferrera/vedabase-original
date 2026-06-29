@@ -1,5 +1,8 @@
 ### SB 3.33.3
 
+> स एव विश्वस्य भवान्विधत्ते गुणप्रवाहेण विभक्तवीर्यः ।
+> सर्गाद्यनीहोऽवितथाभिसन्धिरात्मेश्वरोऽतर्क्यसहस्रशक्तिः ॥३॥
+
 > sa eva viśvasya bhavān vidhatte
 > guṇa-pravāheṇa vibhakta-vīryaḥ
 > sargādy anīho 'vitathābhisandhir

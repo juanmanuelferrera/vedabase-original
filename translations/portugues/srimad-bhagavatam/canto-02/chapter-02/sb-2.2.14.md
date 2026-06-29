@@ -1,5 +1,8 @@
 ### SB 2.2.14
 
+> यावन्न जायेत परावरेऽस्मिन्विश्वेश्वरे द्रष्टरि भक्तियोगः ।
+> तावत्स्थवीयः पुरुषस्य रूपं क्रियावसाने प्रयतः स्मरेत ॥१४॥
+
 yāvan na jāyeta parāvare 'smin
 viśveśvare draṣṭari bhakti-yogaḥ
 tāvat sthavīyaḥ puruṣasya rūpaṁ

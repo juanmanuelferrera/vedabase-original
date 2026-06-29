@@ -1,5 +1,8 @@
 ### SB 1.6.36
 
+> सर्वं तदिदमाख्यातं यत्पृष्टोऽहं त्वयानघ ।
+> जन्मकर्मरहस्यं मे भवतश्चात्मतोषणम् ॥३६॥
+
 > sarvaṁ tad idam ākhyātaṁ
 > yat pṛṣṭo 'haṁ tvayānagha
 > janma-karma-rahasyaṁ me

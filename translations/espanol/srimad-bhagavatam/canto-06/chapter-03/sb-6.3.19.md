@@ -1,5 +1,8 @@
 ### SB 6.3.19
 
+> धर्मं तु साक्षाद्भगवत्प्रणीतं न वै विदुरृषयो नापि देवाः
+> न सिद्धमुख्या असुरा मनुष्याः कुतो नु विद्याधरचारणादयः ॥१९॥
+
 > dharmaṁ tu sākṣād bhagavat-praṇītaṁ
 > na vai vidur ṛṣayo nāpi devāḥ
 > na siddha-mukhyā asurā manuṣyāḥ

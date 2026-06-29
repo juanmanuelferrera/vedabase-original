@@ -1,5 +1,10 @@
 ### CC Madhya 2.75
 
+> কিবা এই সাক্ষাত্ কাম, দ্যুতিবিম্ব মূর্তিমান্,
+> কি মাধুর্য স্বয়ং মূর্তিমন্ত ।
+> কিবা মনো-নেত্রোৎসব, কিবা প্রাণবল্লভ,
+> সত্য কৃষ্ণ আইলা নেত্রানন্দ ॥৭৫॥
+
 kibā ei sākṣāt kāma, dyuti-bimba mūrtimān,
 ki mādhurya svayaṁ mūrtimanta
 kibā mano-netrotsava, kibā prāṇa-vallabha,

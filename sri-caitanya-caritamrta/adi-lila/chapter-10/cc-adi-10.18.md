@@ -1,5 +1,8 @@
 ### CC Adi 10.18
 
+> আপনে মহাপ্রভু গায় যাঁর নৃত্যকালে ।
+> প্রভুর চরণ ধরি’ বক্রেশ্বর বলে ॥১৮॥
+
 > āpane mahāprabhu gāya yāṅra nṛtya-kāle
 > prabhura caraṇa dhari' vakreśvara bale
 

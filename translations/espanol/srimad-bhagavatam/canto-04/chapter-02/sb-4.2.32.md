@@ -1,5 +1,8 @@
 ### SB 4.2.32
 
+> तद्ब्रह्म परमं शुद्धं सतां वर्त्म सनातनम् ।
+> विगर्ह्य यात पाषण्डं दैवं वो यत्र भूतराट् ॥३२॥
+
 > tad brahma paramaṁ śuddhaṁ
 > satāṁ vartma sanātanam
 > vigarhya yāta pāṣaṇḍaṁ

@@ -1,5 +1,8 @@
 ### CC Adi 4.241
 
+> আমা হৈতে গুণী বড় জগতে অসম্ভব ।
+> একলি রাধাতে তাহা করি অনুভব ॥২৪১॥
+
 > āmā haite guṇī baḍa jagate asambhava
 > ekali rādhāte tāhā kari anubhava
 

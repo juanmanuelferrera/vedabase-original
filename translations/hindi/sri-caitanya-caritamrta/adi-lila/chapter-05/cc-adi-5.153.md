@@ -1,5 +1,8 @@
 ### CC Adi 5.153
 
+> রাম-লক্ষ্মণ — কৃষ্ণ-রামের অংশবিশেষ ।
+> অবতার-কালে দোঁহে দোঁহাতে প্রবেশ ॥১৫৩॥
+
 > rāma-lakṣmaṇa—kṛṣṇa-rāmera aṁśa-viśeṣa
 > avatāra-kāle doṅhe doṅhāte praveśa
 

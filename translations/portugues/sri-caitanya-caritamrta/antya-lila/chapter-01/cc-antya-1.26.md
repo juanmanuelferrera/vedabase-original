@@ -1,5 +1,8 @@
 ### CC Antya 1.26
 
+> সবা লঞা কৈলা জগন্নাথ দরশন ।
+> সবা লঞা মহাপ্রভু করেন ভোজন ॥২৬॥
+
 sabā lañā kailā jagannātha daraśana
 
 sabā lañā mahāprabhu karena bhojana

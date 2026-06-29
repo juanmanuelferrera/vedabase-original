@@ -1,5 +1,8 @@
 ### CC Adi 16.102
 
+> দোষ-গুণ-বিচার — এই অল্প করি’ মানি ।
+> কবিত্ব-করণে শক্তি, তাঁহা সে বাখানি ॥১০২॥
+
 > doṣa-guṇa-vicāra—ei alpa kari' māni
 > kavitva-karaṇe śakti, tāṅhā se vākhāni
 

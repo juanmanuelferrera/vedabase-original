@@ -1,5 +1,8 @@
 ### CC Madhya 10.41
 
+> জগন্নাথ-সেবক এই, নাম — জনার্দন ৷
+> অনবসরে করে প্রভুর শ্রীঅঙ্গ-সেবন ৷৷ ৪১ ৷৷ ॥৪১॥
+
 jagannātha-sevaka ei, nāma-janārdana
 anavasare kare prabhura śrī-aṅga-sevana
 

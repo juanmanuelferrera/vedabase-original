@@ -1,5 +1,7 @@
 ### SB 5.14.37
 
+> एवं वित्तव्यतिषङ्गविवृद्धवैरानुबन्धोऽपि पूर्ववासनया मिथ उद्वहत्यथापवहति ॥३७॥
+
 > evaṁ vitta-vyatiṣaṅga-vivṛddha-vairānubandho 'pi pūrva-vāsanayā mitha udvahaty athāpavahati.
 
 *evam*—in this way; *vitta-vyatiṣaṅga*—because of monetary transactions; *vivṛddha*—increased; *vaira-anubandhaḥ*—having relationships of enmity; *api*—although; *pūrva-vāsanayā*—by the fructifying results of previous impious activities; *mithaḥ*—with each other; *udvahati*—become united by means of the marriage of sons and daughters; *atha*—thereafter; *apavahati*—they give up the marriage or get a divorce.

@@ -1,5 +1,8 @@
 ### CC Antya 12.20
 
+> ‘তিন পুত্র মরুক শিবার, এখন না আইল ।
+> ভোখে মরি’ গেনু, মোরে বাসা না দেওয়াইল’ ॥২০॥
+
 'tina putra maruka śivāra, ekhana nā āila
 
 bhokhe mari' genu, more vāsā nā deoyāila'

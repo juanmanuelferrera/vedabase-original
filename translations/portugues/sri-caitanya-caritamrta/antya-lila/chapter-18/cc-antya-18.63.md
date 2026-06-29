@@ -1,5 +1,8 @@
 ### CC Antya 18.63
 
+> একে প্রেম, আরে ভয়, — দ্বিগুণ অস্থির ।
+> ভয়-অংশ গেল, — সে হৈল কিছু ধীর ॥৬৩॥
+
 eke prema, āre bhaya,--dviguṇa asthira
 
 bhaya-aṁśa gela,--se haila kichu dhīra

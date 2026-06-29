@@ -1,5 +1,8 @@
 ### CC Madhya 8.241
 
+> নীলাচলে তুমি-আমি থাকিব এক-সঙ্গে ।
+> সুখে গোঙাইব কাল কৃষ্ণকথা-রঙ্গে ॥২৪১॥
+
 > nīlācale tumi-āmi thākiba eka-saṅge
 > sukhe goṅāiba kāla kṛṣṇa-kathā-raṅge
 

@@ -1,5 +1,8 @@
 ### SB 6.16.15
 
+> स इत्थं प्रतिबुद्धात्मा चित्रकेतुर्द्विजोक्तिभिः
+> गृहान्धकूपान्निष्क्रान्तः सरःपङ्कादिव द्विपः ॥१५॥
+
 > sa itthaṁ pratibuddhātmā
 > citraketur dvijoktibhiḥ
 > gṛhāndha-kūpān niṣkrāntaḥ

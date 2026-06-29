@@ -1,5 +1,10 @@
 ### CC Antya 18.88
 
+> সহস্র-করে জল সেকে, সহস্র নেত্রে গোপী দেখে,
+> সহস্র-পদে নিকট গমনে ।
+> সহস্রমুখ-চুম্বনে, সহস্রবপু-সঙ্গমে,
+> গোপীনর্ম শুনে সহস্র-কাণে ॥৮৮॥
+
 > sahasra-kare jala seke, sahasra netre gopī dekhe,
 > sahasra-pade nikaṭa gamane
 > sahasra-mukha-cumbane, sahasra-vapu-saṅgame,

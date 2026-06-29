@@ -1,5 +1,8 @@
 ### CC Adi 17.49
 
+> লোক সব উদ্ধারিতে তোমার অবতার ।
+> মুঞি বড় দুখী, মোরে করহ উদ্ধার ॥৪৯॥
+
 loka saba uddhārite tomāra avatāra
 
 muñi baḍa dukhī, more karaha uddhāra

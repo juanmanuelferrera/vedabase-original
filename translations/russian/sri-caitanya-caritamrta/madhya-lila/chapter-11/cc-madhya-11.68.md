@@ -1,5 +1,8 @@
 ### CC Madhya 11.68
 
+> নরেন্দ্রে আসিয়া সবে হৈল বিদ্যমান ।
+> তাঁ-সবারে চাহি বাসা প্রসাদ-সমাধান ॥৬৮॥
+
 > narendre āsiyā sabe haila vidyamāna
 > tāṅ-sabāre cāhi vāsā prasāda-samādhāna
 

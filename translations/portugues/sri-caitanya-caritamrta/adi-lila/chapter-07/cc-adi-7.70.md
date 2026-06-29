@@ -1,5 +1,8 @@
 ### CC Adi 7.70
 
+> প্রভাবে দেখিয়ে তোমা সাক্ষাৎ নারায়ণ ।
+> হীনাচার কর কেনে, ইথে কি কারণ ॥৭০॥
+
 prabhāve dekhiye tomā sākṣāt nārāyaṇa
 
 hīnācāra kara kene, ithe ki kāraṇa

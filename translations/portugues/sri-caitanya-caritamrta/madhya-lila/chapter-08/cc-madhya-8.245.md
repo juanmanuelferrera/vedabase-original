@@ -1,5 +1,8 @@
 ### CC Madhya 8.245
 
+> প্রভু কহে, — “কোন্ বিদ্যা বিদ্যা-মধ্যে সার?”
+> রায় কহে, — “কৃষ্ণভক্তি বিনা বিদ্যা নাহি আর ৷৷” ২৪৫ ৷৷ ॥২৪৫॥
+
 prabhu kahe,--"kon vidyā vidyā-madhye sāra?"
 
 rāya kahe,--"kṛṣṇa-bhakti vinā vidyā nāhi āra"

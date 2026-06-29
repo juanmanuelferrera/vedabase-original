@@ -1,5 +1,8 @@
 ### CC Adi 2.16
 
+> সেই গোবিন্দ ভজি আমি, তেহোঁ মোর পতি ।
+> তাঁহার প্রসাদে মোর হয় সৃষ্টিশক্তি ॥১৬॥
+
 sei govinda bhaji āmi, tehoṅ mora pati
 tāṅhāra prasāde mora haya sṛṣṭi-śakti
 

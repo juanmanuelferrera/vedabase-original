@@ -1,5 +1,8 @@
 ### CC Adi 15.17
 
+> আস্তে-ব্যস্তে পিতা-মাতা মুখে দিল পানি ।
+> সুস্থ হঞা কহে প্রভু অপূর্ব কাহিনী ॥১৭॥
+
 > āste-vyaste pitā-mātā mukhe dila pāni
 > sustha hañā kahe prabhu apūrva kāhinī
 

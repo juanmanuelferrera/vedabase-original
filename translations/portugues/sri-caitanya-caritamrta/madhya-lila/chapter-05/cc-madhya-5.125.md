@@ -1,5 +1,8 @@
 ### CC Madhya 5.125
 
+> তাঁহার মহিষী আইলা গোপাল-দর্শনে ।
+> ভক্তি করি’ বহু অলঙ্কার কৈল সমর্পণে ॥১২৫॥
+
 tāṅhāra mahiṣī āilā gopāla-darśane
 bhakti kari' bahu alaṅkāra kaila samarpaṇe
 

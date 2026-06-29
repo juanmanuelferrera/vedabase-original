@@ -1,5 +1,8 @@
 ### CC Madhya 7.83
 
+> অতিকাল হৈল, লোক ছাড়িয়া না যায় ।
+> তবে নিত্যানন্দ-গোসাঞি সৃজিলা উপায় ॥৮৩॥
+
 > atikāla haila, loka chāḍiyā nā yāya
 > tabe nityānanda-gosāñi sṛjilā upāya
 

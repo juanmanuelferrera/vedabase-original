@@ -1,5 +1,8 @@
 ### CC Madhya 14.235
 
+> রাধা-প্রেমাবেশে প্রভু হৈলা সেই মূর্তি ।
+> নিত্যানন্দ দূরে দেখি’ করিলেন স্তুতি ॥২৩৫॥
+
 > rādhā-premāveśe prabhu hailā sei mūrti
 > nityānanda dūre dekhi' karilena stuti
 

@@ -1,5 +1,8 @@
 ### CC Adi 3.104
 
+> তুলসীদলমাত্রেণ জলস্য চুলুকেন বা ।
+> বিক্রীণীতে স্বমাত্মানং ভক্তেভ্যো ভক্তবৎসলঃ ॥১০৪॥
+
 > tulasī-dala-mātreṇa
 > jalasya culukena vā
 > vikrīṇīte svam ātmānaṁ

@@ -1,5 +1,10 @@
 ### CC Madhya 21.141
 
+> সে ধ্বনি চৌদিকে ধায়, অণ্ড ভেদি’ বৈকুণ্ঠে যায়,
+> বলে পৈশে জগতের কাণে ।
+> সবা মাতোয়াল করি’, বলাৎকারে আনে ধরি’,
+> বিশেষতঃ যুবতীর গণে ॥১৪১॥
+
 > se dhvani caudike dhāya, aṇḍa bhedi' vaikuṇṭhe yāya,
 > bale paiśe jagatera kāṇe
 > sabā mātoyāla kari', balātkāre āne dhari',

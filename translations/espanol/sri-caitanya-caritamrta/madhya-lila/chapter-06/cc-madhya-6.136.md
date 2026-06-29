@@ -1,5 +1,8 @@
 ### CC Madhya 6.136
 
+> জীবের অস্থি-বিষ্ঠা দুই — শঙ্খ-গোময় ।
+> শ্রুতি-বাক্যে সেই দুই মহা-পবিত্র হয় ॥১৩৬॥
+
 > jīvera asthi-viṣṭhā dui--śaṅkha-gomaya
 > śruti-vākye sei dui mahā-pavitra haya
 

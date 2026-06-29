@@ -1,5 +1,8 @@
 ### CC Madhya 11.97
 
+> ভট্টাচার্য কহে এই মধুর বচন ৷
+> চৈতন্যের সৃষ্টি — এই প্রেম-সংকীর্তন ৷৷ ৯৭ ৷৷ ॥৯৭॥
+
 > bhaṭṭācārya kahe ei madhura vacana
 > caitanyera sṛṣṭi-ei prema-saṅkīrtana
 

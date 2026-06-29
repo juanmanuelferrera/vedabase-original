@@ -1,5 +1,7 @@
 ### SB 5.24.23
 
+> यत्तद्भगवतानधिगतान्योपायेन याचञ्आच्छलेनापहृतस्वशरीरावशेषितलोकत्रयो वरुणपाशैश्च सम्प्रतिमुक्तो गिरिदर्यां चापविद्ध इति होवाच ॥२३॥
+
 *yat tad bhagavatānadhigatānyopāyena yācñā*-cchalenāpahṛta-sva-śarīrāvaśeṣita-loka-trayo varuṇa-pāśaiś ca sampratimukto giri-daryāṁ cāpaviddha iti hovāca.
 
 *yat*—que; *tat*—isso; *bhagavatā*—pela Suprema Personalidade de Deus; *anadhigata-anya-upāyena*—que não é percebido por outros meios; *yācñā-chalena*—por um ardil de mendicância; *apahṛta*—tomado; *sva-śarīra-avaśeṣita*—restando apenas seu próprio corpo; *loka-trayaḥ*—os três mundos; *varuṇa-pāśaiḥ*—pelas cordas de Varuṇa; *ca*—e; *sampratimuktaḥ*—completamente atado; *giri-daryām*—em uma caverna em uma montanha; *ca*—e; *apaviddhaḥ*—sendo retido; *iti*—assim; *ha*—de fato; *uvāca*—disse.

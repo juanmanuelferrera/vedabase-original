@@ -1,5 +1,8 @@
 ### SB 4.26.26
 
+> तन्मे प्रसीद सुहृदः कृतकिल्बिषस्य स्वैरं गतस्य मृगयां व्यसनातुरस्य ।
+> का देवरं वशगतं कुसुमास्त्रवेग विस्रस्तपौंस्नमुशती न भजेत कृत्ये ॥२६॥
+
 > tan me prasīda suhṛdaḥ kṛta-kilbiṣasya
 > svairaṁ gatasya mṛgayāṁ vyasanāturasya
 > kā devaraṁ vaśa-gataṁ kusumāstra-vega-

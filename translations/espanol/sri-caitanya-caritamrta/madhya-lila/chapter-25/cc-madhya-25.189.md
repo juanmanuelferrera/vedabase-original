@@ -1,5 +1,8 @@
 ### CC Madhya 25.189
 
+> পাছে যবে হুসেন-খাঁ গৌড়ে ‘রাজা’ হইল ৷
+> সুবুদ্ধি-রায়েরে তিঁহো বহু বাড়াইল ৷৷ ১৮৯ ৷৷ ॥১৮৯॥
+
 > pāche yabe husena-khāṅ gauḍe 'rājā' ha-ila
 > subuddhi-rāyere tiṅho bahu bāḍāila
 

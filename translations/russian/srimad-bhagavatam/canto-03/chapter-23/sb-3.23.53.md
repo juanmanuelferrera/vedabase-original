@@ -1,5 +1,8 @@
 ### SB 3.23.53
 
+> एतावतालं कालेन व्यतिक्रान्तेन मे प्रभो ।
+> इन्द्रियार्थप्रसङ्गेन परित्यक्तपरात्मनः ॥५३॥
+
 > etāvatālaṁ kālena
 > vyatikrāntena me prabho
 > indriyārtha-prasaṅgena

@@ -1,5 +1,8 @@
 ### CC Antya 2.84
 
+> পুরুষোত্তমে প্রভু-পাশে ভগবান্ আচার্য ।
+> পরম বৈষ্ণব তেঁহো সুপণ্ডিত আর্য ॥৮৪॥
+
 puruṣottame prabhu-pāśe bhagavān ācārya
 
 parama vaiṣṇava teṅho supaṇḍita ārya

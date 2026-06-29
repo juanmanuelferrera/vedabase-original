@@ -1,5 +1,8 @@
 ### SB 3.18.6
 
+> स तुद्यमानोऽरिदुरुक्ततोमरैर्दंष्ट्राग्रगां गामुपलक्ष्य भीताम् ।
+> तोदं मृषन्निरगादम्बुमध्याद्ग्राहाहतः सकरेणुर्यथेभः ॥६॥
+
 > sa tudyamāno 'ri-durukta-tomarair
 > daṁṣṭrāgra-gāṁ gām upalakṣya bhītām
 > todaṁ mṛṣan niragād ambu-madhyād

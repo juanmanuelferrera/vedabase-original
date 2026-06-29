@@ -1,5 +1,8 @@
 ### CC Madhya 11.169
 
+> হেনকালে কাশীমিশ্র, পড়িছা, — দুই জন ৷
+> আসিয়া করিল প্রভুর চরণ বন্দন ৷৷ ১৬৯ ৷৷ ॥১৬৯॥
+
 > hena-kāle kāśī-miśra, paḍichā,-dui jana
 > āsiyā karila prabhura caraṇa vandana
 

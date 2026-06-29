@@ -1,5 +1,8 @@
 ### CC Antya 14.24
 
+> উড়িয়া এক স্ত্রী ভীড়ে দর্শন না পাঞা ।
+> গরুড়ে চড়ি’ দেখে প্রভুর স্কন্ধে পদ দিয়া ॥২৪॥
+
 > uḍiyā eka strī bhīḍe darśana nā pāñā
 > garuḍe caḍi' dekhe prabhura skandhe pada diyā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 16.270
 
+> ‘দুর্লভ’ ‘দুর্গম’ সেই ‘নির্জন’ বৃন্দাবন ।
+> একাকী যাইব, কিবা সঙ্গে একজন ॥২৭০॥
+
 > 'durlabha' 'durgama' sei 'nirjana' vṛndāvana
 > ekākī yāiba, kibā saṅge eka-jana
 

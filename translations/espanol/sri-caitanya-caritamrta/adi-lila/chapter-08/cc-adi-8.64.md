@@ -1,5 +1,8 @@
 ### CC Adi 8.64
 
+> কথায় সভা উজ্জ্বল করে যেন পূর্ণচন্দ্র ।
+> নিজ-গুণামৃতে বাড়ায় বৈষ্ণব-আনন্দ ॥৬৪॥
+
 > kathāya sabhā ujjvala kare yena pūrṇa-candra
 > nija-guṇāmṛte bāḍāya vaiṣṇava-ānanda
 

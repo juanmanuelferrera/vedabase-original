@@ -1,5 +1,8 @@
 ### CC Antya 4.199
 
+> প্রভু কহে, — সনাতন, না মানিহ দুঃখ ।
+> তোমার আলিঙ্গনে আমি পাই বড় সুখ ॥১৯৯॥
+
 > prabhu kahe,--"sanātana, nā māniha duḥkha
 > tomāra āliṅgane āmi pāi baḍa sukha
 

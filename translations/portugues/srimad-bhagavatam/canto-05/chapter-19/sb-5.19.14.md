@@ -1,5 +1,8 @@
 ### SB 5.19.14
 
+> यथैहिकामुष्मिककामलम्पटः सुतेषु दारेषु धनेषु चिन्तयन
+> शङ्केत विद्वान्कुकलेवरात्ययाद्यस्तस्य यत्नः श्रम एव केवलम ॥१४॥
+
 *yathaihikāmuṣmika*-kāma-lampaṭaḥ
 suteṣu dāreṣu dhaneṣu cintayan
 śaṅketa vidvān kukalevarātyayād

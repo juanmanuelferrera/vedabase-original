@@ -1,5 +1,8 @@
 ### CC Madhya 3.31
 
+> আগে আচার্য আসি’ রহিলা নমস্কার করি’ ।
+> আচার্য দেখি’ বলে প্রভু মনে সংশয় করি’ ॥৩১॥
+
 āge ācārya āsi' rahilā namaskāra kari'
 
 ācārya dekhi' bale prabhu mane saṁśaya kari'

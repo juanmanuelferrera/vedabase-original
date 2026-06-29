@@ -1,5 +1,8 @@
 ### CC Madhya 11.150
 
+> শুনি’ শিবানন্দ-সেন প্রেমাবিষ্ট হঞা ।
+> দণ্ডবৎ হঞা পড়ে শ্লোক পড়িয়া ॥১৫০॥
+
 > śuni' śivānanda-sena premāviṣṭa hañā
 > daṇḍavat hañā paḍe śloka paḍiyā
 

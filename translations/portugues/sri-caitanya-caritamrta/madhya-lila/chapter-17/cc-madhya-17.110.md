@@ -1,5 +1,8 @@
 ### CC Madhya 17.110
 
+> ‘মহাভাগবত’-লক্ষণ শুনি ভাগবতে ।
+> সে-সব লক্ষণ প্রকট দেখিয়ে তাঁহাতে ॥১১০॥
+
 'mahā-bhāgavata'-lakṣaṇa śuni bhāgavate
 
 se-saba lakṣaṇa prakaṭa dekhiye tāṅhāte

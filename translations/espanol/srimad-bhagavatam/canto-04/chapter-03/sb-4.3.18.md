@@ -1,5 +1,8 @@
 ### SB 4.3.18
 
+> नैतादृशानां स्वजनव्यपेक्षया गृहान्प्रतीयादनवस्थितात्मनाम् ।
+> येऽभ्यागतान्वक्रधियाभिचक्षते आरोपितभ्रूभिरमर्षणाक्षिभिः ॥१८॥
+
 > naitādṛśānāṁ sva-jana-vyapekṣayā
 > gṛhān pratīyād anavasthitātmanām
 > ye 'bhyāgatān vakra-dhiyābhicakṣate

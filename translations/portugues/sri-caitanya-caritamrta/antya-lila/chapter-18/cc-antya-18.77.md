@@ -1,5 +1,8 @@
 ### CC Antya 18.77
 
+> তিন-দশায় মহাপ্রভু রহেন সর্বকাল ।
+> ‘অন্তর্দশা’, ‘বাহ্যদশা’, ‘অর্ধবাহ্য’ আর ॥৭৭॥
+
 tina-daśāya mahāprabhu rahena sarva-kāla
 
 'antar-daśā', 'bāhya-daśā', 'ardha-bāhya' āra

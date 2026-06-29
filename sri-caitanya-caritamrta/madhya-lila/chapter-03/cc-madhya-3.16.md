@@ -1,5 +1,8 @@
 ### CC Madhya 3.16
 
+> গুপ্তে তা-সবাকে আনি’ ঠাকুর নিত্যানন্দ ।
+> শিখাইল সবাকারে করিয়া প্রবন্ধ ॥১৬॥
+
 > gupte tā-sabāke āni' ṭhākura nityānanda
 > śikhāilā sabākāre kariyā prabandha
 

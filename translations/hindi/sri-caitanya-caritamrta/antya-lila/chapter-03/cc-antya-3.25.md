@@ -1,5 +1,8 @@
 ### CC Antya 3.25
 
+> মাতার গৃহে রহ যাই মাতার চরণে ।
+> তোমার আগে নহিবে কারো স্বচ্ছন্দাচরণে ॥২৫॥
+
 > mātāra gṛhe raha yāi mātāra caraṇe
 > tomāra āge nahibe kāro svacchandācaraṇe
 

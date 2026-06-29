@@ -1,5 +1,8 @@
 ### CC Madhya 7.47
 
+> ‘বহুজন্মের পুণ্যফলে পাইনু তোমার সঙ্গ ৷
+> হেন-সঙ্গ বিধি মোর করিলেক ভঙ্গ ৷৷ ৪৭ ৷৷ ॥৪৭॥
+
 'bahu-janmera puṇya-phale pāinu tomāra saṅga
 
 hena-saṅga vidhi mora karileka bhaṅga

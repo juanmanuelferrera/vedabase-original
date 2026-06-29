@@ -1,5 +1,8 @@
 ### CC Adi 17.158
 
+> তোমার বেদেতে আছে গোবধের বাণী ।
+> অতএব গোবধ করে বড় বড় মুনি ॥১৫৮॥
+
 > tomāra vedete āche go-vadhera vāṇī
 > ataeva go-vadha kare baḍa baḍa muni
 

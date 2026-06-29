@@ -1,5 +1,8 @@
 ### CC Madhya 20.225
 
+> প্ৰদ্যুম্ন — চক্রশঙ্খগদাপদ্মধর ।
+> অনিরুদ্ধ — চক্রগদাশঙ্খপদ্মকর ॥২২৫॥
+
 > pradyumna--cakra-śaṅkha-gadā-padma-dhara
 > aniruddha--cakra-gadā-śaṅkha-padma-kara
 

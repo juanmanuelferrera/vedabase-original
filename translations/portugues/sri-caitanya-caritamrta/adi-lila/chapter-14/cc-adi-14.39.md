@@ -1,5 +1,8 @@
 ### CC Adi 14.39
 
+> ব্যাধি-ছলে জগদীশ-হিরণ্য-সদনে ।
+> বিষ্ণু-নৈবেদ্য খাইল একাদশী-দিনে ॥৩৯॥
+
 vyādhi-chale jagadīśa-hiraṇya-sadane
 
 viṣṇu-naivedya khāila ekādaśī-dine

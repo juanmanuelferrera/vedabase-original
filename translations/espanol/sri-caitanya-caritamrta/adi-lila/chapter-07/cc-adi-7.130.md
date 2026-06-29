@@ -1,5 +1,8 @@
 ### CC Adi 7.130
 
+> ‘প্রণব, মহাবাক্য — তাহা করি’ আচ্ছাদন ।
+> মহাবাক্যে করি ‘তত্ত্বমসি’র স্থাপন ॥১৩০॥
+
 > 'praṇava, mahā-vākya--tāhā kari' ācchādana
 > mahāvākye kari 'tat tvam asi'ra sthāpana
 

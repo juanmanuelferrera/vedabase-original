@@ -1,5 +1,8 @@
 ### CC Madhya 19.91
 
+> প্রভু পাঠাইল তাঁরে করিতে ভোজনে ।
+> ভোজন করি’ আইলা তেঁহো প্রভুর চরণে ॥৯১॥
+
 prabhu pāṭhāila tāṅre karite bhojane
 
 bhojana kari' āilā teṅho prabhura caraṇe

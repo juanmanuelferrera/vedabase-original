@@ -1,5 +1,8 @@
 ### CC Antya 2.72
 
+> শুনি শিবানন্দের চিত্তে হইল সংশয় ।
+> কিবা প্রেমাবেশে কহে, — কিবা সত্য হয় ॥৭২॥
+
 śuni śivānandera citte ha-ila saṁśaya
 
 kibā premāveśe kahe, kibā satya haya

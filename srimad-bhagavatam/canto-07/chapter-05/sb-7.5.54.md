@@ -1,5 +1,8 @@
 ### SB 7.5.54
 
+> यदाचार्यः परावृत्तो गृहमेधीयकर्मसु
+> वयस्यैर्बालकैस्तत्र सोपहूतः कृतक्षणैः ॥५४॥
+
 > yadācāryaḥ parāvṛtto
 > gṛhamedhīya-karmasu
 > vayasyair bālakais tatra

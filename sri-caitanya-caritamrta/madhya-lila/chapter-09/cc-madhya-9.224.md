@@ -1,5 +1,8 @@
 ### CC Madhya 9.224
 
+> আম্লিতলায় দেখি’ শ্রীরাম গৌরহরি ।
+> মল্লার-দেশেতে আইলা যথা ভট্টথারি ॥২২৪॥
+
 > āmlitalāya dekhi' śrī-rāma gaurahari
 > mallāra-deśete āilā yathā bhaṭṭathāri
 

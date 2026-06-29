@@ -1,5 +1,8 @@
 ### SB 2.10.4
 
+> स्थितिर्वैकुण्ठविजयः पोषणं तदनुग्रहः ।
+> मन्वन्तराणि सद्धर्म ऊतयः कर्मवासनाः ॥४॥
+
 > sthitir vaikuṇṭha-vijayaḥ
 > poṣaṇaṁ tad-anugrahaḥ
 > manvantarāṇi sad-dharma

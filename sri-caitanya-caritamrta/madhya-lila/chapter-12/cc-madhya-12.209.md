@@ -1,5 +1,8 @@
 ### CC Madhya 12.209
 
+> পাছে পাছে চলি’ যায় আর ভক্তগণ ।
+> উত্কণ্ঠাতে গেলা সব জগন্নাথ-ভবন ॥২০৯॥
+
 > pāche pāche cali' yāya āra bhakta-gaṇa
 > utkaṇṭhāte gelā saba jagannātha-bhavana
 

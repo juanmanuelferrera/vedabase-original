@@ -1,5 +1,8 @@
 ### CC Antya 1.116
 
+> আমাতে সঞ্চারি’ পূর্বে কহিলা সিদ্ধান্ত ।
+> যে সব সিদ্ধান্তে ব্রহ্মা নাহি পায় অন্ত ॥১১৬॥
+
 > āmāte sañcāri' pūrve kahilā siddhānta
 > ye saba siddhānte brahmā nāhi pāya anta
 

@@ -1,5 +1,8 @@
 ### CC Adi 3.7
 
+> সত্য, ত্রেতা, দ্বাপর, কলি, চারিযুগ জানি ।
+> সেই চারিযুগে দিব্য একযুগ মানি ॥৭॥
+
 satya, tretā, dvāpara, kali, cāri-yuga jāni
 sei cāri-yuge divya eka-yuga māni
 

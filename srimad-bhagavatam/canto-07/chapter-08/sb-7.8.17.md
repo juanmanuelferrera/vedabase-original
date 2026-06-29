@@ -1,5 +1,8 @@
 ### SB 7.8.17
 
+> स विक्रमन्पुत्रवधेप्सुरोजसा निशम्य निर्ह्रादमपूर्वमद्भुतम
+> अन्तःसभायां न ददर्श तत्पदं वितत्रसुर्येन सुरारियूथपाः ॥१७॥
+
 > satyaṁ vidhātuṁ nija-bhṛtya-bhāṣitaṁ
 > vyāptiṁ ca bhūteṣv akhileṣu cātmanaḥ
 > adṛśyatātyadbhuta-rūpam udvahan

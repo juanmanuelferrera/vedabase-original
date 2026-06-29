@@ -1,5 +1,8 @@
 ### CC Adi 1.30
 
+> সব শ্রোতা-বৈষ্ণবেরে করি’ নমস্কার ।
+> এই সব শ্লোকের করি অর্থ-বিচার ॥৩০॥
+
 > saba śrotā-vaiṣṇavere kari' namaskāra
 > ei saba ślokera kari artha-vicāra
 

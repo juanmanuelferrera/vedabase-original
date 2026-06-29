@@ -1,5 +1,8 @@
 ### CC Madhya 4.14
 
+> তাঁর পাদপদ্ম নিকট প্রণাম করিতে ।
+> তাঁর পুষ্প-চূড়া পড়িল প্ৰভুর মাথাতে ॥১৪॥
+
 > tāṅra pāda-padma nikaṭa praṇāma karite
 > tāṅra puṣpa-cūḍā paḍila prabhura māthāte
 

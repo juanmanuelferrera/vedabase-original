@@ -1,5 +1,8 @@
 ### SB 3.3.23
 
+> दैवाधीनेषु कामेषु दैवाधीनः स्वयं पुमान् ।
+> को विश्रम्भेत योगेन योगेश्वरमनुव्रतः ॥२३॥
+
 > daivādhīneṣu kāmeṣu
 > daivādhīnaḥ svayaṁ pumān
 > ko viśrambheta yogena

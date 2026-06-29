@@ -1,5 +1,8 @@
 ### CC Madhya 5.122
 
+> পুরুষোত্তম-দেব সেই বড় ভক্ত আর্য ।
+> গোপাল-চরণে মাগে, — ‘চল মোর রাজ্য ।।’ ॥ ১২২ ॥
+
 > puruṣottama-deva sei baḍa bhakta ārya
 > gopāla-caraṇe māge,—'cala mora rājya
 

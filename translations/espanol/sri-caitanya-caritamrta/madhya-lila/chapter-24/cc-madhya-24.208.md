@@ -1,5 +1,10 @@
 ### CC Madhya 24.208
 
+> বনলতাস্তরব আত্মনি বিষ্ণুং
+> ব্যঞ্জয়ন্ত্য ইব পুষ্পফলাঢ্যাঃ ।
+> প্রণতভারবিটপা মধুধারাঃ
+> প্রেমহৃষ্টতনবো ববৃষুঃ স্ম ॥২০৮॥
+
 > vana-latās tarava ātmani viṣṇuṁ
 > vyañjayantya iva puṣpa-phalāḍhyāḥ
 > praṇata-bhāra-viṭapā madhu-dhārāḥ

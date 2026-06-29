@@ -1,5 +1,8 @@
 ### CC Madhya 5.66
 
+> তবে মুঞি-নিষেধিনু, — শুন, দ্বিজবর ।
+> তোমার কন্যার যোগ্য নহি মুঞি বর ॥৬৬॥
+
 tabe muñi niṣedhinu,--śuna, dvija-vara
 
 tomāra kanyāra yogya nahi muñi vara

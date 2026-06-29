@@ -1,5 +1,8 @@
 ### CC Adi 4.143
 
+> আমার মাধুর্য নিত্য নব নব হয় ।
+> স্ব-স্ব-প্রেম-অনুরূপ ভক্তে আস্বাদয় ॥১৪৩॥
+
 > āmāra mādhurya nitya nava nava haya
 > sva-sva-prema-anurūpa bhakte āsvādaya
 

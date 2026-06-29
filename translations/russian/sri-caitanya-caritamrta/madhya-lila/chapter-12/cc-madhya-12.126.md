@@ -1,5 +1,8 @@
 ### CC Madhya 12.126
 
+> ঈশ্বরমন্দিরে মোর পদ ধোয়াইল  ।
+> সেই জল আপনি লঞা পান কৈল ॥১২৬॥
+
 > īśvara-mandire mora pada dhoyāila
 > sei jala āpani lañā pāna kaila
 

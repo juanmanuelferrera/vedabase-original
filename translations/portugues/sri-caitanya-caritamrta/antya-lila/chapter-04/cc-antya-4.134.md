@@ -1,5 +1,8 @@
 ### CC Antya 4.134
 
+> বার বার নিষেধেন, তবু করে আলিঙ্গন ।
+> অঙ্গে রসা লাগে, দুঃখ পায় সনাতন ॥১৩৪॥
+
 bāra bāra niṣedhena, tabu kare āliṅgana
 
 aṅge rasā lāge, duḥkha pāya sanātana

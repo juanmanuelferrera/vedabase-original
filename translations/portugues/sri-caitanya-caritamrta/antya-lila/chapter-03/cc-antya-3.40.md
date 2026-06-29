@@ -1,5 +1,8 @@
 ### CC Antya 3.40
 
+> এইমত বার বার করাইহ স্মরণ ।
+> মোর নাম লঞা তাঁর বন্দিহ চরণ ।।” ॥ ৪০ ॥
+
 ei-mata bāra bāra karāiha smaraṇa
 
 mora nāma lañā tāṅra vandiha caraṇa"

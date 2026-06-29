@@ -1,5 +1,8 @@
 ### SB 8.5.34
 
+> सोमं मनो यस्य समामनन्ति दिवौकसां यो बलमन्ध आयुः
+> ईशो नगानां प्रजनः प्रजानां प्रसीदतां नः स महाविभूतिः ॥३४॥
+
 > somaṁ mano yasya samāmananti
 > divaukasāṁ yo balam andha āyuḥ
 > īśo nagānāṁ prajanaḥ prajānāṁ

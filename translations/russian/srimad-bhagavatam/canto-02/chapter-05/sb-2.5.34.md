@@ -1,5 +1,8 @@
 ### SB 2.5.34
 
+> वर्षपूगसहस्रान्ते तदण्डमुदके शयम् ।
+> कालकर्मस्वभावस्थो जीवो ञ्जीवमजीवयत् ॥३४॥
+
 > varṣa-pūga-sahasrānte
 > tad aṇḍam udake śayam
 > kāla-karma-svabhāva-stho

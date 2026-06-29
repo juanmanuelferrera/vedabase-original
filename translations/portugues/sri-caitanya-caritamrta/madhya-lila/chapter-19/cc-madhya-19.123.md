@@ -1,5 +1,8 @@
 ### CC Madhya 19.123
 
+> মহাপ্ৰভুর যত বড় বড় ভক্ত মাত্র ।
+> রূপ-সনাতন — সবার কৃপা-গৌরব-পাত্র ॥১২৩॥
+
 mahāprabhura yata baḍa baḍa bhakta mātra
 
 rūpa-sanātana--sabāra kṛpā-gaurava-pātra

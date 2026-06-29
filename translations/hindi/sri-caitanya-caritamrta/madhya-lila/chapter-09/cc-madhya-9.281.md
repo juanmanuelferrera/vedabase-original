@@ -1,5 +1,8 @@
 ### CC Madhya 9.281
 
+> কোলাপুরে লক্ষ্মী দেখি’ দেখেন ক্ষীর-ভগবতী ।
+> লাঙ্গ-গণেশ দেখি’ দেখেন চোর-পার্বতী ॥২৮১॥
+
 > kolāpure lakṣmī dekhi' dekhena kṣīra-bhagavatī
 > lāṅga-gaṇeśa dekhi' dekhena cora-pārvatī
 

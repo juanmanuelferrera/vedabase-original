@@ -1,5 +1,8 @@
 ### CC Antya 4.9
 
+> জগন্নাথের সেবক ফেরে কার্য-অনুরোধে ।
+> তাঁর স্পর্শ হৈলে মোর হবে অপরাধে ॥৯॥
+
 > jagannāthera sevaka phere kārya-anurodhe
 > tāṅra sparśa haile mora habe aparādhe
 

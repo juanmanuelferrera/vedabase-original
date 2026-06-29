@@ -1,5 +1,7 @@
 ### SB 3.11.24
 
+> स्वं स्वं कालं मनुर्भुङ्क्ते साधिकां ह्येकसप्तति ॥२४॥
+
 svaṁ svaṁ kālaṁ manur bhuṅkte
 
 *sādhikāṁ hy eka*-saptatim

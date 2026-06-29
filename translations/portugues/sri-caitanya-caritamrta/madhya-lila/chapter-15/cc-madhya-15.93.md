@@ -1,5 +1,8 @@
 ### CC Madhya 15.93
 
+> শিবানন্দ সেনে কহে করিয়া সম্মান  ।
+> বাসুদেব-দত্তের তুমি করিহ সমাধান ॥৯৩॥
+
 śivānanda sene kahe kariyā sammāna
 
 vāsudeva-dattera tumi kariha samādhāna

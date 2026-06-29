@@ -1,5 +1,10 @@
 ### CC Madhya 1.76
 
+> প্রিয়ঃ সোঽয়ং কৃষ্ণঃ সহচরি কুরুক্ষেত্রমিলিত-
+> স্তথাহং সা রাধা তদিদমুভয়োঃ সঙ্গমসুখম ।
+> তথাপ্যন্তঃ-খেলন্মধুরমুরলীপঞ্চমজুষে
+> মনো মে কালিন্দীপুলিনবিপিনায় স্পৃহয়তি ॥৭৬॥
+
 > priyaḥ so 'yaṁ kṛṣṇaḥ saha-cari kuru-kṣetra-militas
 > tathāhaṁ sā rādhā tad idam ubhayoḥ saṅgama-sukham
 > tathāpy antaḥ-khelan-madhura-muralī-pañcama-juṣe

@@ -1,5 +1,8 @@
 ### CC Madhya 13.104
 
+> সর্বাঙ্গে প্রস্বেদ ছুটে তাতে রক্তোদ্গম ।
+> ‘জজ গগ’ ‘জজ গগ’ — গদগদ-বচন ॥১০৪॥
+
 sarvāṅge prasveda chuṭe tāte raktodgama
 
 jaja gaga' 'jaja gaga'-gadgada-vacana

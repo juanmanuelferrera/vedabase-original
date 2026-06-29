@@ -1,5 +1,8 @@
 ### CC Madhya 7.35
 
+> কিন্তু এক নিবেদন করোঁ আর বার ৷
+> বিচার করিয়া তাহা কর অঙ্গীকার ৷৷ ৩৫ ৷৷ ॥৩৫॥
+
 > kintu eka nivedana karoṅ āra bāra
 > vicāra kariyā tāhā kara aṅgīkāra
 

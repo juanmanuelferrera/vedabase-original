@@ -1,5 +1,8 @@
 ### CC Madhya 16.40
 
+> তাহাঞি আরম্ভ কৈল কৃষ্ণ-সংকীর্তন ।
+> নাচিতে নাচিতে চলি’ আইলা দুইজন ॥৪০॥
+
 > tāhāñi ārambha kaila kṛṣṇa-saṅkīrtana
 > nācite nācite cali' āilā dui-jana
 

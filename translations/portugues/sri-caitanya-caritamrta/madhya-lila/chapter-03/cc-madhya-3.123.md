@@ -1,5 +1,8 @@
 ### CC Madhya 3.123
 
+> অশ্রু, কম্প, পুলক, স্বেদ, গদ্গদ বচন ।
+> ক্ষণে উঠে, ক্ষণে পড়ে, ক্ষণেক রোদন ॥১২৩॥
+
 aśru, kampa, pulaka, sveda, gadgada vacana
 
 kṣaṇe uṭhe, kṣaṇe paḍe, kṣaṇeka rodana

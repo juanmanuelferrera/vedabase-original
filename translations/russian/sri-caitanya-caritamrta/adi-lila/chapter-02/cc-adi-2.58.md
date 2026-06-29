@@ -1,5 +1,8 @@
 ### CC Adi 2.58
 
+> অতএব ব্রহ্মবাক্যে — পরব্যোম-নারায়ণ ।
+> তেঁহো কৃষ্ণের বিলাস — এই তত্ত্ব-বিবরণ ॥৫৮॥
+
 > ataeva brahma-vākye—paravyoma-nārāyaṇa
 > teṅho kṛṣṇera vilāsa—ei tattva-vivaraṇa
 

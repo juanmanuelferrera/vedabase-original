@@ -1,5 +1,8 @@
 ### CC Madhya 4.140
 
+> প্রতিদিন একখানি করেন ভক্ষণ ।
+> খাইলে প্রেমাবেশ হয়, — অদ্ভুত কথন ॥১৪০॥
+
 > prati-dina eka-khāni karena bhakṣaṇa
 > khāile premāveśa haya,--adbhuta kathana
 

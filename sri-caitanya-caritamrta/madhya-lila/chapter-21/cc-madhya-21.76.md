@@ -1,5 +1,8 @@
 ### CC Madhya 21.76
 
+> সুখী হও সবে, কিছু নাহি দৈত্য-ভয় ?
+> তারা কহে, — ‘তোমার প্রসাদে সর্বত্রই জয় ॥৭৬॥
+
 > sukhī hao sabe, kichu nāhi daitya-bhaya?
 > tārā kahe,—'tomāra prasāde sarvatra-i jaya
 

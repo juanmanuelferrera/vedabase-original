@@ -1,5 +1,8 @@
 ### CC Madhya 1.127
 
+> পূর্বে যবে প্রভু রামানন্দেরে মিলিলা ।
+> নীলাচলে আসিবারে তাঁরে আজ্ঞা দিলা ॥১২৭॥
+
 > pūrve yabe prabhu rāmānandere mililā
 > nīlācale āsibāre tāṅre ājñā dilā
 

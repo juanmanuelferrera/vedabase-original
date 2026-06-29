@@ -1,5 +1,8 @@
 ### CC Madhya 7.25
 
+> আমি ত’ — সন্ন্যাসী, দামোদর — ব্রহ্মচারী ।
+> সদা রহে আমার উপর শিক্ষা-দণ্ড ধরি’ ॥২৫॥
+
 > āmi ta'—sannyāsī, dāmodara—brahmacārī
 > sadā rahe āmāra upara śikṣā-daṇḍa dhari'
 

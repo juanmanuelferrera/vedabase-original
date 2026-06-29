@@ -1,5 +1,8 @@
 ### CC Antya 11.16
 
+> একদিন গোবিন্দ মহাপ্রসাদ লঞা ।
+> হরিদাসে দিতে গেলা আনন্দিত হঞা ॥১৬॥
+
 eka-dina govinda mahā-prasāda lañā
 
 haridāse dite gelā ānandita hañā

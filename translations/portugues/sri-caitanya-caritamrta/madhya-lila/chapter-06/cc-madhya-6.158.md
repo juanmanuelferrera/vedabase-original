@@ -1,5 +1,8 @@
 ### CC Madhya 6.158
 
+> সচ্চিদানন্দময় হয় ঈশ্বর-স্বরূপ ৷
+> তিন অংশে চিচ্ছক্তি হয় তিন রূপ ॥১৫৮॥
+
 sac-cid-ānanda-maya haya īśvara-svarūpa
 
 tina aṁśe cic-chakti haya tina rūpa

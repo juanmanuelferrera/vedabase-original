@@ -1,5 +1,8 @@
 ### CC Adi 5.196
 
+> এত বলি’ প্রেরিলা মোরে হাতসানি দিয়া ।
+> অন্তর্ধান কৈল প্রভু নিজগণ লঞা ॥১৯৬॥
+
 > eta bali' prerilā more hātasāni diyā
 > antardhāna kaila prabhu nija-gaṇa lañā
 

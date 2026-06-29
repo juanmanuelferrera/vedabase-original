@@ -1,5 +1,8 @@
 ### SB 1.9.39
 
+> विजयरथकुटुम्ब आत्ततोत्रे धृतहयरश्मिनि तच्छ्रियेक्षणीये ।
+> भगवति रतिरस्तु मे मुमूर्षोर्यमिह निरीक्ष्य हता गताः स्वरूपम् ॥३९॥
+
 > vijaya-ratha-kuṭumba ātta-totre
 > dhṛta-haya-raśmini tac-chriyekṣaṇīye
 > bhagavati ratir astu me mumūrṣor

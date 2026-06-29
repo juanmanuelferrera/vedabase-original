@@ -1,5 +1,7 @@
 ### CC Madhya 25.145
 
+> সর্ব-বেদেতিহাসানাং সারং সারং সমুদ্ধৃতম্ ৷৷ ১৪৫ ৷৷ ॥১৪৫॥
+
 sarva-vedetihāsānāṁ
 
 sāraṁ sāraṁ samuddhṛtam

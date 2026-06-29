@@ -1,5 +1,8 @@
 ### CC Antya 13.57
 
+> অন্য সন্ন্যাসীর বস্ত্র তুমি ধর শিরে ।
+> কোন্ ঐছে হয়, — ইহা পারে সহিবারে ?” ॥ ৫৭ ॥
+
 > anya sannyāsīra vastra tumi dhara śire
 > kon aiche haya,—ihā pāre sahibāre?"
 

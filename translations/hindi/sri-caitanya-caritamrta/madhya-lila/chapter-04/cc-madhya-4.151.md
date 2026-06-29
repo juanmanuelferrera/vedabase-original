@@ -1,5 +1,8 @@
 ### CC Madhya 4.151
 
+> রাজপাত্র-সনে যার যার পরিচয় ।
+> তারে মাগি’ কর্পূর-চন্দন করিলা সঞ্চয় ॥১৫১॥
+
 > rāja-pātra-sane yāra yāra paricaya
 > tāre māgi' karpūra-candana karilā sañcaya
 

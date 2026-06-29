@@ -1,5 +1,8 @@
 ### CC Adi 14.69
 
+> সংকল্পো বিদিতঃ সাধ্ব্যো ভবতীনাং মদর্চনম্ ।
+> ময়ানুমোদিতঃ সোঽসৌ সত্যো ভবিতুমর্হতি ॥৬৯॥
+
 > saṅkalpo viditaḥ sādhvyo
 > bhavatīnāṁ mad-arcanam
 > mayānumoditaḥ so 'sau

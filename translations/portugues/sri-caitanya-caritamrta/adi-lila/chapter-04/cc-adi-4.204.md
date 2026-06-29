@@ -1,5 +1,8 @@
 ### CC Adi 4.204
 
+> আর শুদ্ধভক্ত কৃষ্ণ-প্রেম-সেবা বিনে ।
+> স্বসুখার্থ সালোক্যাদি না করে গ্রহণে ॥২০৪॥
+
 āra śuddha-bhakta kṛṣṇa-prema-sevā vine
 
 sva-sukhārtha sālokyādi nā kare grahaṇe

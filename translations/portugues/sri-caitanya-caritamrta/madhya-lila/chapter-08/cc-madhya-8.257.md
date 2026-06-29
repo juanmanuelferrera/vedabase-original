@@ -1,5 +1,8 @@
 ### CC Madhya 8.257
 
+> ‘মুক্তি, ভুক্তি বাঞ্ছে যেই, কাহাঁ দুঁহার গতি?’
+> ‘স্থাবরদেহ, দেবদেহ যৈছে অবস্থিতি ৷৷’ ২৫৭ ৷৷ ॥২৫৭॥
+
 'mukti, bhukti vāñche yei, kāhāṅ duṅhāra gati?'
 
 'sthāvara-deha, deva-deha yaiche avasthiti'

@@ -1,5 +1,8 @@
 ### CC Adi 13.87
 
+> হৈতে হৈতে হৈল গর্ভ ত্রয়োদশ মাস ।
+> তথাপি ভূমিষ্ঠ নহে, — মিশ্রের হৈল ত্রাস ॥৮৭॥
+
 > haite haite haila garbha trayodaśa māsa
 > tathāpi bhūmiṣṭha nahe,—miśrera haila trāsa
 

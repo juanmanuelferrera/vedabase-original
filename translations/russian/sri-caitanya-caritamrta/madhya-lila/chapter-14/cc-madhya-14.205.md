@@ -1,5 +1,8 @@
 ### CC Madhya 14.205
 
+> বৃন্দাবন দেখিবারে গেলা জগন্নাথ ।
+> শুনি’ লক্ষ্মী-দেবীর মনে হৈল আসোয়াথ ॥২০৫॥
+
 > vṛndāvana dekhibāre gelā jagannātha
 > śuni' lakṣmī-devīra mane haila āsoyātha
 

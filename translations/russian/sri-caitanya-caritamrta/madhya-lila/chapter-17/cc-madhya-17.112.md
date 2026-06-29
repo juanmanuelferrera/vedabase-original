@@ -1,5 +1,8 @@
 ### CC Madhya 17.112
 
+> ক্ষণে নাচে, হাসে, গায়, করয়ে ক্রন্দন ।
+> ক্ষণে হুহুঙ্কার করে, — সিংহের গর্জন ॥১১২॥
+
 > kṣaṇe nāce, hāse, gāya, karaye krandana
 > kṣaṇe huhuṅkāra kare,—siṁhera garjana
 

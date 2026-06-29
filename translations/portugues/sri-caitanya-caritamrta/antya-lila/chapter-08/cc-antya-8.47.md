@@ -1,5 +1,8 @@
 ### CC Antya 8.47
 
+> যত নিন্দা করে তাহা প্রভু সব জানে ।
+> তথাপি আদর করে বড়ই সম্ভ্রমে ॥৪৭॥
+
 yata nindā kare tāhā prabhu saba jāne
 
 tathāpi ādara kaṛe baḍa-i sambhrame

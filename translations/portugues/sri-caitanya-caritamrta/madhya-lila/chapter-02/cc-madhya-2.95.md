@@ -1,5 +1,10 @@
 ### CC Madhya 2.95
 
+> পাঞা যাঁর আজ্ঞা-ধন, ব্রজের বৈষ্ণবগণ,
+> বন্দোঁ তাঁর মুখ্য হরিদাস ।
+> চৈতন্যবিলাস-সিন্ধু- কল্লোলের এক বিন্দু,
+> তার কণা কহে কৃষ্ণদাস ॥৯৫॥
+
 pāñā yāṅra ājñā-dhana, vrajera vaiṣṇava-gaṇa,
 vandoṅ tāṅra mukhya haridāsa
 caitanya-vilāsa-sindhu-kallolera eka bindu,

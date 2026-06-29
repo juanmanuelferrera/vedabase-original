@@ -1,5 +1,7 @@
 ### SB 5.21.11
 
+> एवं ततो वारुणीं सौम्यामैन्द्रीं च पुनस्तथान्ये च ग्रहाः सोमादयो नक्षत्रैः सह ज्योतिशचक्रे समभ्युद्यन्ति सह वा निम्लोचन्ति ॥११॥
+
 > evaṁ tato vāruṇīṁ saumyām aindrīṁ ca punas tathānye ca grahāḥ somādayo nakṣatraiḥ saha jyotiś-cakre samabhyudyanti saha vā nimlo-canti.
 
 *evam*—de este modo; *tataḥ*—de ahí; *vāruṇīm*—a la morada de Varuṇa; *saumyām*—a la morada de la Luna; *aindrīṁ ca*—y a la morada de Indra; *punaḥ*—de nuevo; *tathā*—así también; *anye*—los demás; *ca*—también; *grahāḥ*—planetas; *soma-ādayaḥ*—encabezados por la Luna; *nakṣatraiḥ*—todas las estrellas; *saha*—con; *jyotiḥ-cakre*—en la esfera celestial; *samabhyudyanti*—se levantan; *saha*—junto con; *vā*—o; *nimlocanti*—se ponen.

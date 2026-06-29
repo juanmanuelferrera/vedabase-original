@@ -1,5 +1,8 @@
 ### CC Antya 10.1
 
+> বন্দে শ্রীকৃষ্ণচৈতন্যং ভক্তানুগ্রহকাতরম্ ।
+> যেন কেনাপি সন্তুষ্টং ভক্তদত্তেন শ্রদ্ধয়া ॥১॥
+
 vande śrī-kṛṣṇa-caitanyaṁ
 bhaktānugraha-kātaram
 yena kenāpi santuṣṭaṁ

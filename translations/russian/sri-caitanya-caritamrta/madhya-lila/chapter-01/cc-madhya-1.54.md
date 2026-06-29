@@ -1,5 +1,8 @@
 ### CC Madhya 1.54
 
+> রথযাত্রায় আগে যবে করেন নর্তন ।
+> তাহাঁ এই পদ মাত্র করয়ে গায়ন ॥৫৪॥
+
 > ratha-yātrāya āge yabe karena nartana
 > tāhāṅ ei pada mātra karaye gāyana
 

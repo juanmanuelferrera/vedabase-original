@@ -1,5 +1,8 @@
 ### CC Antya 18.115
 
+> তুমি মূর্চ্ছা-ছলে বৃন্দাবনে দেখ ক্রীড়া ।
+> তোমার মূর্চ্ছা দেখি’ সবে মনে পাই পীড়া ॥১১৫॥
+
 > tumi mūrcchā-chale vṛndāvane dekha krīḍā
 > tomāra mūrcchā dekhi' sabe mane pāi pīḍā
 

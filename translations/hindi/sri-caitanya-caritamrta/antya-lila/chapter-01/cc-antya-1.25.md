@@ -1,5 +1,8 @@
 ### CC Antya 1.25
 
+> উৎকণ্ঠায় চলি’ সবে আইলা নীলাচলে ।
+> পূর্ববৎ মহাপ্রভু মিলিলা সকলে ॥২৫॥
+
 > utkaṇṭhāya cali' sabe āilā nīlācale
 > pūrvavat mahāprabhu mililā sakale
 

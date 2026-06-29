@@ -1,5 +1,8 @@
 ### CC Adi 10.13
 
+> আচার্যরত্নের নাম ‘শ্রীচন্দ্রশেখর’ ।
+> যাঁর ঘরে দেবী-ভাবে নাচিলা ঈশ্বর ॥১৩॥
+
 > ācāryaratnera nāma 'śrī-candraśekhara'—
 > yāṅra ghare devī-bhāve nācilā īśvara
 

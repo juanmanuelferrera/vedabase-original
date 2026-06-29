@@ -1,5 +1,8 @@
 ### CC Madhya 20.336
 
+> ‘কৃষ্ণপদার্চন’ হয় দ্বাপরের ধর্ম ।
+> ‘কৃষ্ণ’-বর্ণে করায় লোকে কৃষ্ণার্চন-কর্ম ॥৩৩৬॥
+
 'kṛṣṇa-padārcana' haya dvāparera dharma
 
 'kṛṣṇa'-varṇe karāya loke kṛṣṇārcana-karma

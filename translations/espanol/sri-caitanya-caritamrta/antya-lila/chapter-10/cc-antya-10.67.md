@@ -1,5 +1,8 @@
 ### CC Antya 10.67
 
+> উড়িয়া-পদ মহাপ্রভুর মনে স্মৃতি হৈল ।
+> স্বরূপেরে সেই পদ গাইতে আজ্ঞা দিল ॥৬৭॥
+
 > uḍiyā-pada mahāprabhura mane smṛti haila
 > svarūpere sei pada gāite ājñā dila
 

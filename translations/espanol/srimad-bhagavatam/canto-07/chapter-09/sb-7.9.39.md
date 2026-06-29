@@ -1,5 +1,10 @@
 ### SB 7.9.39
 
+> नैतन्मनस्तव कथासु विकुण्ठनाथ
+> सम्प्रीयते दुरितदुष्टमसाधु तीव्रम
+> कामातुरं हर्षशोकभयैषणार्तं
+> तस्मिन्कथं तव गतिं विमृशामि दीनः ॥३९॥
+
 > naitan manas tava kathāsu vikuṇṭha-nātha
 > samprīyate durita-duṣṭam asādhu tīvram
 > kāmāturaṁ harṣa-śoka-bhayaiṣaṇārtaṁ

@@ -1,5 +1,8 @@
 ### SB 9.13.7
 
+> गन्धवस्तुषु तद्देहं निधाय मुनिसत्तमाः
+> समाप्ते सत्रयागे च देवानूचुः समागतान ॥७॥
+
 > gandha-vastuṣu tad-dehaṁ
 > nidhāya muni-sattamāḥ
 > samāpte satra-yāge ca

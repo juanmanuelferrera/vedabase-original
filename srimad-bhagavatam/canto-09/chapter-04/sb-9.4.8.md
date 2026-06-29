@@ -1,5 +1,8 @@
 ### SB 9.4.8
 
+> यज्ञअवास्तुगतं सर्वमुच्छिष्टमृषयः क्वचित
+> चक्रुर्हि भागं रुद्राय स देवः सर्वमर्हति ॥८॥
+
 > yajña-vāstu-gataṁ sarvam
 > ucchiṣṭam ṛṣayaḥ kvacit
 > cakrur hi bhāgaṁ rudrāya

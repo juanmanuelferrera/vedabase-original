@@ -1,5 +1,8 @@
 ### CC Madhya 14.191
 
+> মুখে-নেত্রে হয় নানা-ভাবের উদ্গার ।
+> এই কান্তা-ভাবের নাম ‘ললিত’-অলঙ্কার ॥১৯১॥
+
 > mukhe-netre haya nānā-bhāvera udgāra
 > ei kāntā-bhāvera nāma 'lalita'-alaṅkāra
 

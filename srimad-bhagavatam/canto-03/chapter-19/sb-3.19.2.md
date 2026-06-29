@@ -1,5 +1,8 @@
 ### SB 3.19.2
 
+> ततः सपत्नं मुखतश्चरन्तमकुतोभयम् ।
+> जघानोत्पत्य गदया हनावसुरमक्षजः ॥२॥
+
 > tataḥ sapatnaṁ mukhataś
 > carantam akuto-bhayam
 > jaghānotpatya gadayā

@@ -1,5 +1,8 @@
 ### CC Madhya 25.20
 
+> সর্বশাস্ত্র খণ্ডি’ প্রভু ‘ভক্তি’ করে সার ।
+> সযুক্তিক বাক্যে মন ফিরায় সবার ॥২০॥
+
 > sarva-śāstra khaṇḍi' prabhu 'bhakti' kare sāra
 > sayuktika vākye mana phirāya sabāra
 > SYNONYMS

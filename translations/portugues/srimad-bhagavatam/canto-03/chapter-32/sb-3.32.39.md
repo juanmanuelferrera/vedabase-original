@@ -1,5 +1,8 @@
 ### SB 3.32.39
 
+> नैतत्खलायोपदिशेन्नाविनीताय कर्हिचित् ।
+> न स्तब्धाय न भिन्नाय नैव धर्मध्वजाय च ॥३९॥
+
 naitat khalāyopadiśen
 nāvinītāya karhicit
 na stabdhāya na bhinnāya

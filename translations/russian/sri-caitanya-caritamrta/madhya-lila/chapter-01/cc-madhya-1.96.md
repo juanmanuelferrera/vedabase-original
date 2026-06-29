@@ -1,5 +1,8 @@
 ### CC Madhya 1.96
 
+> পথে নানা লীলারস, দেব-দরশন ।
+> মাধবপুরীর কথা, গোপাল-স্থাপন ॥৯৬॥
+
 > pathe nānā līlā-rasa, deva-daraśana
 > mādhava-purīra kathā, gopāla-sthāpana
 

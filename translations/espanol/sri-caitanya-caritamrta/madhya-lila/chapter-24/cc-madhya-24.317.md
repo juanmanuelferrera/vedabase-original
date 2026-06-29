@@ -1,5 +1,8 @@
 ### CC Madhya 24.317
 
+> প্রভু কহে, — “কেনে কর আমার স্তবন ৷
+> ভাগবতের স্বরূপ কেনে না কর বিচারণ ? ॥ ৩১৭ ॥
+
 > prabhu kahe,--"kene kara āmāra stavana
 > bhāgavatera svarūpa kene nā kara vicāraṇa?
 

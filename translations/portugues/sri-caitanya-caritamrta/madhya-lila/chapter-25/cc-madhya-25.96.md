@@ -1,5 +1,8 @@
 ### CC Madhya 25.96
 
+> নারদ সেই অর্থ ব্যাসেরে কহিলা ।
+> শুনি’ বেদব্যাস মনে বিচার করিলা ॥৯৬॥
+
 nārada sei artha vyāsere kahilā
 
 śuni' veda-vyāsa mane vicāra karilā

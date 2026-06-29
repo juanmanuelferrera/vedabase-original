@@ -1,5 +1,8 @@
 ### CC Adi 13.34
 
+> চব্বিশ বৎসর ছিলা করিয়া সন্ন্যাস ।
+> ভক্তগণ লঞা কৈলা নীলাচলে বাস ॥৩৪॥
+
 > cabbiśa vatsara chilā kariyā sannyāsa
 > bhakta-gaṇa lañā kailā nīlācale vāsa
 

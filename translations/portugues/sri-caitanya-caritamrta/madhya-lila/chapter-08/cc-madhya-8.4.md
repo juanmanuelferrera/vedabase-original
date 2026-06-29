@@ -1,5 +1,8 @@
 ### CC Madhya 8.4
 
+> নৃসিংহ দেখিয়া কৈল দণ্ডবৎপ্রণতি ৷
+> প্রেমাবেশে কৈল বহু নৃত্য-গীত-স্তুতি ৷৷ ৪ ৷৷ ॥৪॥
+
 nṛsiṁha dekhiyā kaila daṇḍavat-praṇati
 premāveśe kaila bahu nṛtya-gīta-stuti
 

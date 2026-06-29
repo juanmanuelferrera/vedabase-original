@@ -1,5 +1,8 @@
 ### CC Madhya 7.6
 
+> চৈত্রে রহি’ কৈল সার্বভৌম-বিমোচন ৷
+> বৈশাখের প্রথমে দক্ষিণ যাইতে হৈল মন ৷৷ ৬ ৷৷ ॥৬॥
+
 caitre rahi' kaila sārvabhauma-vimocana
 vaiśākhera prathame dakṣiṇa yāite haila mana
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.3
 
+> পুরুষোত্তমে এক উড়িয়া-ব্রাহ্মণকুমার ।
+> পিতৃশূন্য, মহাসুন্দর, মৃদুব্যবহার ॥৩॥
+
 > puruṣottame eka uḍiyā-brāhmaṇa-kumāra
 > pitṛ-śūnya, mahā-sundara, mṛdu-vyavahāra
 

@@ -1,5 +1,8 @@
 ### CC Madhya 3.203
 
+> আচার্যের শ্রদ্ধা-ভক্তি-গৃহ-সম্পদ-ধনে ।
+> সকল সফল হৈল প্ৰভুর আরাধনে ॥২০৩॥
+
 ācāryera śraddhā-bhakti-gṛha-sampada-dhane
 sakala saphala haila prabhura ārādhane
 

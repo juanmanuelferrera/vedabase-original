@@ -1,5 +1,8 @@
 ### CC Madhya 9.58
 
+> তুমি ত’ ঈশ্বর সাক্ষাৎ, ক্ষম অপরাধ ৷
+> জীয়াও আমার গুরু, করহ প্রসাদ ৷৷ ৫৮ ৷৷ ॥৫৮॥
+
 > tumi ta' īśvara sākṣāt, kṣama aparādha
 > jīyāo āmāra guru, karaha prasāda
 

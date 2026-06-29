@@ -1,5 +1,7 @@
 ### CC Madhya 24.309
 
+> “ক্ষেত্রজ্ঞ আত্মা পুরুষঃ প্রধানং প্রকৃতিঃ স্ত্রিয়াম্ ।।” ॥ ৩০৯ ॥
+
 "kṣetrajña ātmā puruṣaḥ
 
 pradhānaṁ prakṛtiḥ striyām"

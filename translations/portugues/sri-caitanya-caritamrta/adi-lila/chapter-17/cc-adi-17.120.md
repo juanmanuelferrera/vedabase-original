@@ -1,5 +1,8 @@
 ### CC Adi 17.120
 
+> এইমত নৃত্য হইল চারি প্রহর ।
+> সন্ধ্যায় গঙ্গাস্নান করি’ সবে গেলা ঘর ॥১২০॥
+
 ei-mata nṛtya ha-ila cāri prahara
 
 sandhyāya gaṅgā-snāna kari' sabe gelā ghara

@@ -1,5 +1,8 @@
 ### CC Madhya 3.214
 
+> জননী প্ৰবোধি’ কর ভক্ত সমাধান ।
+> তুমি ব্যগ্র হৈলে কারো না রহিবে প্রাণ ॥২১৪॥
+
 jananī prabodhi' kara bhakta samādhāna
 tumi vyagra haile kāro nā rahibe prāṇa
 

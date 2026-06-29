@@ -1,5 +1,8 @@
 ### SB 3.20.25
 
+> स उपव्रज्य वरदं प्रपन्नार्तिहरं हरिम् ।
+> अनुग्रहाय भक्तानामनुरूपात्मदर्शनम् ॥२५॥
+
 > sa upavrajya varadaṁ
 > prapannārti-haraṁ harim
 > anugrahāya bhaktānām

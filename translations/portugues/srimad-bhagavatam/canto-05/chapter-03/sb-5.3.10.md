@@ -1,5 +1,7 @@
 ### SB 5.3.10
 
+> अथायमेव वरो ह्यर्हत्तम यर्हि बर्हिषि राजर्षेर्वरदर्षभो भवान्निजपुरुषेक्षणविषयआसीत ॥९॥
+
 *athāyam eva varo hy arhattama yarhi barhiṣi rājarṣer varadarṣabho bhavān nija*-puruṣekṣaṇa-viṣaya āsīt.
 
 *atha*—então; *ayam*—esta; *eva*—certamente; *varaḥ*—bênção; *hi*—de fato; *arhat-tama*—ó mais adorável dos adoráveis; *yarhi*—porque; *barhiṣi*—no sacrifício; *rāja-ṛṣeḥ*—do rei Nābhi; *varada-ṛṣabhaḥ*—o melhor dos benfeitores; *bhavān*—Tua Senhoria; *nija-puruṣa*—de Teus devotos; *īkṣaṇa-viṣayaḥ*—o objeto da visão; *āsīt*—tornou-se.

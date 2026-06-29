@@ -1,5 +1,8 @@
 ### CC Madhya 12.41
 
+> মহাপ্রভু মহাকৃপা করেন তোমারে ।
+> মোরে মিলিবারে অবশ্য সাধিবে তাঁহারে ॥৪১॥
+
 > mahāprabhu mahā-kṛpā karena tomāre
 > more milibāre avaśya sādhibe tāṅhāre
 

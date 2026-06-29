@@ -1,5 +1,8 @@
 ### SB 1.3.33
 
+> यत्रेमे सदसद्रूपे प्रतिषिद्धे स्वसंविदा ।
+> अविद्ययात्मनि कृते इति तद्ब्रह्मदर्शनम् ॥३३॥
+
 > yatreme sad-asad-rūpe
 > pratiṣiddhe sva-saṁvidā
 > avidyayātmani kṛte

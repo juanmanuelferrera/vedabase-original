@@ -1,5 +1,10 @@
 ### CC Madhya 17.210
 
+> সৌন্দর্যং ললনালিধৈর্যদলনং লীলা রমাস্তম্ভিনী ।
+> বীর্যং কন্দুকিতাদ্রিবর্যমমলাঃ পারে-পরার্ধং গুণাঃ ।
+> শীলং সর্বজনানুরঞ্জনমহো যস্যায়মস্মৎপ্রভু-
+> র্বিশ্বং বিশ্বজনীনকীর্তিরবতাৎ কৃষ্ণো জগন্মোহনঃ ॥২১০॥
+
 > saundaryaṁ lalanāli-dhairya-dalanaṁ līlā ramā-stambhinī
 > vīryaṁ kandukitādri-varyam amalāḥ pāre-parārdhaṁ guṇāḥ
 > śīlaṁ sarva-janānurañjanam aho yasyāyam asmat-prabhur

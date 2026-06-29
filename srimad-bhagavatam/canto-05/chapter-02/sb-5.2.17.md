@@ -1,5 +1,8 @@
 ### SB 5.2.17
 
+> श्रीशुक उवाच
+> इति ललनानुनयातिविशारदो ग्राम्यवैदग्ध्यया परिभाषया तां विबुधवधूं विबुधमतिरधिसभाजयामास ॥१७॥
+
 > śrī-śuka uvāca
 > iti lalanānunayāti-viśārado grāmya-vaidagdhyayā paribhāṣayā tāṁ vibudha-vadhūṁ vibudha-matir adhisabhājayām āsa.
 

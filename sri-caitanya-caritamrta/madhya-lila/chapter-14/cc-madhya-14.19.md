@@ -1,5 +1,8 @@
 ### CC Madhya 14.19
 
+> তবে মহাপ্রভু তাঁরে ঐশ্বর্য দেখাইল ।
+> ‘কারেহ না কহিবে’ এই নিষেধ করিল ॥১৯॥
+
 > tabe mahāprabhu tāṅre aiśvarya dekhāila
 > 'kāreha nā kahibe' ei niṣedha karila
 

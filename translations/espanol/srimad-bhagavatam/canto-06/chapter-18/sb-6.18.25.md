@@ -1,5 +1,8 @@
 ### SB 6.18.25
 
+> कृमिविड्भस्मसंज्ञआसीद्यस्येशाभिहितस्य च
+> भूतध्रुक्तत्कृते स्वार्थं किं वेद निरयो यतः ॥२५॥
+
 > kṛmi-viḍ-bhasma-saṁjñāsīd
 > yasyeśābhihitasya ca
 > bhūta-dhruk tat-kṛte svārthaṁ

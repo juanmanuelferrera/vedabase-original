@@ -1,5 +1,8 @@
 ### CC Madhya 6.277
 
+> শুনিয়া হাসেন প্রভু আনন্দিত-মনে ।
+> ভট্টাচার্যে কৈল প্রভু দৃঢ় আলিঙ্গনে ॥২৭৭॥
+
 > śuniyā hāsena prabhu ānandita-mane
 > bhaṭṭācārya kaila prabhu dṛḍha āliṅgane
 

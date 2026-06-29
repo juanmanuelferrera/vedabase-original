@@ -1,5 +1,8 @@
 ### SB 2.6.8
 
+> अपां वीर्यस्य सर्गस्य पर्जन्यस्य प्रजापतेः ।
+> पुंसः शिश्न उपस्थस्तु प्रजात्यानन्दनिर्वृतेः ॥८॥
+
 > apāṁ vīryasya sargasya
 > parjanyasya prajāpateḥ
 > puṁsaḥ śiśna upasthas tu

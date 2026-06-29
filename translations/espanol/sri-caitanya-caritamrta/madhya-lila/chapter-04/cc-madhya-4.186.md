@@ -1,5 +1,8 @@
 ### CC Madhya 4.186
 
+> প্রগাঢ় প্রেমের এই স্বভাব-আচার ৷
+> নিজ-দুঃখ-বিঘ্নাদির না করে বিচার ॥১৮৬॥
+
 > pragāḍha-premera ei svabhāva-ācāra
 > nija-duḥkha-vighnādira nā kare vicāra
 

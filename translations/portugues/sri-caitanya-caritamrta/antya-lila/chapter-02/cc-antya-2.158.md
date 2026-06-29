@@ -1,5 +1,8 @@
 ### CC Antya 2.158
 
+> আজন্ম কৃষ্ণকীর্তন, প্রভুর সেবন  ।
+> প্রভু-কৃপাপাত্র, আর ক্ষেত্রের মরণ ॥১৫৮॥
+
 ājanma kṛṣṇa-kīrtana, prabhura sevana
 
 prabhu-kṛpā-pātra, āra kṣetrera maraṇa

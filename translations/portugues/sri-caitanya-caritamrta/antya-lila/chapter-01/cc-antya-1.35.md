@@ -1,5 +1,8 @@
 ### CC Antya 1.35
 
+> বৃন্দাবনে নাটকের আরম্ভ করিলা ।
+> মঙ্গলাচরণ ‘নান্দী-শ্লোক’ তথাই লিখিলা ॥৩৫॥
+
 vṛndāvane nāṭakera ārambha karilā
 
 maṅgalācaraṇa 'nāndī-śloka' tathāi likhilā

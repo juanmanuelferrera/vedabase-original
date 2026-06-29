@@ -1,5 +1,10 @@
 ### CC Madhya 11.47
 
+> অদর্শনীয়ানপি নীচজাতীন্
+> সংবীক্ষতে হন্ত তথাপি নো মাম্ ৷
+> মদেকবর্জং কৃপয়িষ্যতীতি
+> নির্ণীয় কিং সোঽবততার দেবঃ ৷৷ ৪৭ ৷৷ ॥৪৭॥
+
 > adarśanīyān api nīca-jātīn
 > saṁvīkṣate hanta tathāpi no mām
 > mad-eka-varjaṁ kṛpayiṣyatīti

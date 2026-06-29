@@ -1,5 +1,8 @@
 ### CC Madhya 16.181
 
+> “অধম যবনকুলে কেন জন্ম হৈল  ।
+> বিধি মোরে হিন্দুকুলে কেন না জন্মাইল ॥১৮১॥
+
 > "adhama yavana-kule kena janma haila
 > vidhi more hindu-kule kena nā janmāila
 

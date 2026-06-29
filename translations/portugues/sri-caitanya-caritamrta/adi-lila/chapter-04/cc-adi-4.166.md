@@ -1,5 +1,8 @@
 ### CC Adi 4.166
 
+> কামের তাৎপর্য — নিজসম্ভোগ কেবল ।
+> কৃষ্ণসুখতাৎপর্য-মাত্র প্রেম ত’ প্রবল ॥১৬৬॥
+
 kāmera tātparya--nija-sambhoga kevala
 
 kṛṣṇa-sukha-tātparya-mātra prema ta' prabala

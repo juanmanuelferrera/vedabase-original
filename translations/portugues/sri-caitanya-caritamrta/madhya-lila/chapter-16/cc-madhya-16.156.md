@@ -1,5 +1,8 @@
 ### CC Madhya 16.156
 
+> তবে ‘ওঢ্র দেশ-সীমা’ প্রভু চলি’ আইলা ।
+> তথা রাজ-অধিকারী প্রভুরে মিলিলা ॥১৫৬॥
+
 tabe 'oḍhra-deśa-sīmā' prabhu cali' āilā
 
 tathā rāja-adhikārī prabhure mililā

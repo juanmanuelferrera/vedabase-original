@@ -1,5 +1,8 @@
 ### CC Madhya 20.361
 
+> বিশ্বসৃষ্ট্যাদি কৈল, বেদ ব্রহ্মাকে পড়াইল ।
+> অর্থাভিজ্ঞতা, স্বরূপশক্ত্যে মায়া দূর কৈল ॥৩৬১॥
+
 > viśva-sṛṣṭy-ādi kaila, veda brahmāke paḍāila
 > arthābhijñatā, svarūpa-śaktye māyā dūra kaila
 

@@ -1,5 +1,8 @@
 ### SB 3.23.2
 
+> विश्रम्भेणात्मशौचेन गौरवेण दमेन च ।
+> शुश्रूषया सौहृदेन वाचा मधुरया च भोः ॥२॥
+
 > viśrambheṇātma-śaucena
 > gauraveṇa damena ca
 > śuśrūṣayā sauhṛdena

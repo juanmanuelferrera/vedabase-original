@@ -1,5 +1,8 @@
 ### CC Antya 19.81
 
+> পুষ্পগন্ধ লঞা বহে মলয়-পবন ।
+> ‘গুরু’ হঞা তরুলতায় শিখায় নাচন ॥৮১॥
+
 > puṣpa-gandha lañā vahe malaya-pavana
 > 'guru' hañā taru-latāya śikhāya nācana
 

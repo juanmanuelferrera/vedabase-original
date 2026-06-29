@@ -1,5 +1,10 @@
 ### CC Madhya 21.132
 
+> যাঁর পুণ্যপুঞ্জফলে, সে-মুখ-দর্শন মিলে,
+> দুই আঁখি কি করিবে পানে ?
+> দ্বিগুণ বাড়ে তৃষ্ণা-লোভ, পিতে নারে — মনঃক্ষোভ,
+> দুঃখে করে বিধির নিন্দনে ॥১৩২॥
+
 > yāṅra puṇya-puñja-phale, se-mukha-darśana mile,
 > dui āṅkhi ki karibe pāne?
 > dviguṇa bāḍe tṛṣṇā-lobha, pite nāre--manaḥ-kṣobha,

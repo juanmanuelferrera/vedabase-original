@@ -1,5 +1,8 @@
 ### CC Antya 3.120
 
+> ‘কালি দুঃখ পাইলা, অপরাধ না লইবা মোর ।
+> অবশ্য করিমু আমি তোমায় অঙ্গীকার ॥১২০॥
+
 'kāli duḥkha pāilā, aparādha nā la-ibā mora
 
 avaśya karimu āmi tomāya aṅgīkāra

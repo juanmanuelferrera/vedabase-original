@@ -1,5 +1,8 @@
 ### CC Adi 8.85
 
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
+> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৮৫॥
+
 śrī-rūpa-raghunātha-pade yāra āśa
 
 caitanya-caritāmṛta kahe kṛṣṇadāsa

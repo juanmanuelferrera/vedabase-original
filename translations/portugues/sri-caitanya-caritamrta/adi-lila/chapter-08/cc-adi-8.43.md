@@ -1,5 +1,8 @@
 ### CC Adi 8.43
 
+> অতএব ভজ, লোক, চৈতন্য-নিত্যানন্দ ।
+> খণ্ডিবে সংসার-দুঃখ, পাবে প্রেমানন্দ ॥৪৩॥
+
 ataeva bhaja, loka, caitanya-nityānanda
 
 khaṇḍibe saṁsāra-duḥkha, pābe premānanda

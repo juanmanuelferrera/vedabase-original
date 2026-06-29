@@ -1,5 +1,8 @@
 ### SB 1.5.23
 
+> अहं पुरातीतभवेऽभवं मुने दास्यास्तु कस्याश्चन वेदवादिनाम् ।
+> निरूपितो बालक एव योगिनां शुश्रूषणे प्रावृषि निर्विविक्षताम् ॥२३॥
+
 > ahaṁ purātīta-bhave 'bhavaṁ mune
 > dāsyās tu kasyāścana veda-vādinām
 > nirūpito bālaka eva yogināṁ

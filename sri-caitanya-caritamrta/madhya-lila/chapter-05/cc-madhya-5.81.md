@@ -1,5 +1,8 @@
 ### CC Madhya 5.81
 
+> ছোটবিপ্র বলে, — ‘পত্র করহ লিখন ।
+> পুনঃ যেন নাহি চলে এসব বচন ।।’ ॥ ৮১ ॥
+
 > choṭa-vipra bale,—'patra karaha likhana
 > punaḥ yena nāhi cale e-saba vacana'
 

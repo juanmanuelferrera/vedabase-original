@@ -1,5 +1,8 @@
 ### CC Madhya 3.160
 
+> সেই দিন হৈতে শচী করেন রন্ধন ।
+> ভক্তগণ লঞা প্রভু করেন ভোজন ॥১৬০॥
+
 > sei dina haite śacī karena randhana
 > bhakta-gaṇa lañā prabhu karena bhojana
 

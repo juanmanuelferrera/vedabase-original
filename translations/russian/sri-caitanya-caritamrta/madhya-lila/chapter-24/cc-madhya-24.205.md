@@ -1,5 +1,8 @@
 ### CC Madhya 24.205
 
+> কৃষ্ণকৃপাদি-হেতু হৈতে সবার উদয় ।
+> কৃষ্ণগুণাকৃষ্ট হঞা তাঁহারে ভজয় ॥২০৫॥
+
 > kṛṣṇa-kṛpādi-hetu haite sabāra udaya
 > kṛṣṇa-guṇākṛṣṭa hañā tāṅhāre bhajaya
 

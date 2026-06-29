@@ -1,5 +1,8 @@
 ### SB 6.16.57
 
+> यदेतद्विस्मृतं पुंसो मद्भावं भिन्नमात्मनः
+> ततः संसार एतस्य देहाद्देहो मृतेर्मृतिः ॥५७॥
+
 > yad etad vismṛtaṁ puṁso
 > mad-bhāvaṁ bhinnam ātmanaḥ
 > tataḥ saṁsāra etasya

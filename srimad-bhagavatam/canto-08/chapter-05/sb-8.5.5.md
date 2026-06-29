@@ -1,5 +1,8 @@
 ### SB 8.5.5
 
+> वैकुण्ठः कल्पितो येन लोको लोकनमस्कृतः
+> रमया प्रार्थ्यमानेन देव्या तत्प्रियकाम्यया ॥५॥
+
 > vaikuṇṭhaḥ kalpito yena
 > loko loka-namaskṛtaḥ
 > ramayā prārthyamānena

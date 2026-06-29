@@ -1,5 +1,8 @@
 ### CC Adi 7.46
 
+> তপন-মিশ্রের ঘরে ভিক্ষা-নির্বাহণ ।
+> সন্ন্যাসীর সঙ্গে নাহি মানে নিমন্ত্রণ ॥৪৬॥
+
 > tapana-miśrera ghare bhikṣā-nirvāhaṇa
 > sannyāsīra saṅge nāhi māne nimantraṇa
 

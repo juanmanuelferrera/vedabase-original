@@ -1,5 +1,8 @@
 ### CC Adi 5.98
 
+> জলে ভরি’ অর্ধ তাঁহা কৈল নিজ-বাস ।
+> আর অর্ধে কৈল চৌদ্দভুবন প্রকাশ ॥৯৮॥
+
 jale bhari' ardha tāṅhā kaila nija-vāsa
 āra ardhe kaila caudda-bhuvana prakāśa
 

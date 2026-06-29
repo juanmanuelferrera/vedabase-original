@@ -1,5 +1,8 @@
 ### CC Madhya 22.145
 
+> জ্ঞান-বৈরাগ্যাদি — ভক্তির কভু নহে ‘অঙ্গ’ ৷
+> অহিংসাযম-নিয়মাদি বুলে কৃষ্ণভক্ত-সঙ্গ ॥১৪৫॥
+
 > jñāna-vairāgyādi--bhaktira kabhu nahe 'aṅga'
 > ahiṁsā-yama-niyamādi bule kṛṣṇa-bhakta-saṅga
 

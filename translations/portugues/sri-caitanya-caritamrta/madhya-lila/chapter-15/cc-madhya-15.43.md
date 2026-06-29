@@ -1,5 +1,8 @@
 ### CC Madhya 15.43
 
+> রামদাস, গদাধর আদি কত জনে ৷
+> তোমার সহায় লাগি’ দিলু তোমার সনে ॥৪৩॥
+
 rāma-dāsa, gadādhara ādi kata jane
 
 tomāra sahāya lāgi' dilu tomāra sane

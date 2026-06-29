@@ -1,5 +1,8 @@
 ### CC Madhya 9.358
 
+> তীর্থযাত্রা-কথা এই কৈলুঁ সমাপন ৷
+> সংক্ষেপে কহিলুঁ, বিস্তার না যায় বর্ণন ৷৷ ৩৫৮ ৷৷ ॥৩৫৮॥
+
 > tīrtha-yātrā-kathā ei kailuṅ samāpana
 > saṅkṣepe kahiluṅ, vistāra nā yāya varṇana
 

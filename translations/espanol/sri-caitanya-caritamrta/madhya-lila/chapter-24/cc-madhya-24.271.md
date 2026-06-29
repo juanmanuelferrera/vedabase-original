@@ -1,5 +1,8 @@
 ### CC Madhya 24.271
 
+> দণ্ডবৎ-স্থানে পিপীলিকারে দেখিয়া ।
+> বস্ত্রে স্থান ঝাড়ি’ পড়ে দণ্ডবৎ হঞা ॥২৭১॥
+
 > daṇḍavat-sthāne pipīlikāre dekhiyā
 > vastre sthāna jhāḍi' paḍe daṇḍavat hañā
 

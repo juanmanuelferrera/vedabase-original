@@ -1,5 +1,8 @@
 ### CC Madhya 25.245
 
+> তৃতীয় পরিচ্ছেদে — প্রভুর কহিলুঁ সন্ন্যাস ।
+> আচার্যের ঘরে যৈছে করিলা বিলাস ॥২৪৫॥
+
 tṛtīya paricchede-prabhura kahiluṅ sannyāsa
 
 ācāryera ghare yaiche karilā vilāsa

@@ -1,5 +1,8 @@
 ### CC Adi 17.111
 
+> গোপগৃহে জন্ম ছিল, গাভীর রাখাল ।
+> সেই পুণ্যে হৈলাঙ এবে ব্রাহ্মণ-ছাওয়াল ॥১১১॥
+
 gopa-gṛhe janma chila, gābhīra rākhāla
 sei puṇye hailāṅ ebe brāhmaṇa-chāoyāla
 

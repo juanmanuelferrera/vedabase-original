@@ -1,5 +1,8 @@
 ### CC Madhya 8.217
 
+> নিজেন্দ্রিয়সুখহেতু কামের তাত্পর্য ।
+> কৃষ্ণসুখ-তাত্পর্য গোপীভাব-বর্য ॥২১৭॥
+
 > nijendriya-sukha-hetu kāmera tātparya
 > kṛṣṇa-sukha-tātparya gopī-bhāva-varya
 

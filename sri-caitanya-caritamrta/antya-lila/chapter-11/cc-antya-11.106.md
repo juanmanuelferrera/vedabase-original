@@ -1,5 +1,8 @@
 ### CC Antya 11.106
 
+> চৈতন্যচরিত্র এই অমৃতের সিন্ধু ।
+> কর্ণ-মন তৃপ্ত করে যার এক বিন্দু ॥১০৬॥
+
 > caitanya-caritra ei amṛtera sindhu
 > karṇa-mana tṛpta kare yāra eka bindu
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.261
 
+> এবে ঘর যাহ, যবে আমি সব চলিমু ।
+> তবে তোমা সবাকারে সঙ্গে লঞা যামু ।।” ॥ ২৬১ ॥
+
 ebe ghara yāha, yabe āmi saba calimu
 
 tabe tomā sabākāre saṅge lañā yāmu

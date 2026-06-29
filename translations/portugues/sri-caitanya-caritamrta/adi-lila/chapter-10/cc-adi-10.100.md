@@ -1,5 +1,8 @@
 ### CC Adi 10.100
 
+> রাত্রিদিনে রাধাকৃষ্ণের মানস সেবন ।
+> প্রহরেক মহাপ্রভুর চরিত্র-কথন ॥১০০॥
+
 rātri-dine rādhā-kṛṣṇera mānasa sevana
 
 prahareka mahāprabhura caritra-kathana

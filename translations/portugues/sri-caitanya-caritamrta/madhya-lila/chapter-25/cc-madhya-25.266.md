@@ -1,5 +1,8 @@
 ### CC Madhya 25.266
 
+> শ্রীভাগবত-তত্ত্বরস করিলা প্রচারে ।
+> কৃষ্ণতুল্য ভাগবত, জানাইলা সংসারে ॥২৬৬॥
+
 śrī-bhāgavata-tattva-rasa karilā pracāre
 
 kṛṣṇa-tulya bhāgavata, jānāilā saṁsāre

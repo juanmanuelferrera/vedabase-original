@@ -1,5 +1,8 @@
 ### CC Madhya 8.75
 
+> ইত্থং সতাং ব্রহ্মসুখানুভূত্যা দাস্যং গতানাং পরদৈবতেন ৷
+> মায়াশ্রিতানাং নরদারকেণ সার্ধং বিজহ্রুঃ কৃতপুণ্যপুঞ্জাঃ ৷৷ ৭৫ ৷৷ ॥৭৫॥
+
 itthaṁ satāṁ brahma-sukhānubhūtyā
 dāsyaṁ gatānāṁ para-daivatena
 māyāśritānāṁ nara-dārakeṇa

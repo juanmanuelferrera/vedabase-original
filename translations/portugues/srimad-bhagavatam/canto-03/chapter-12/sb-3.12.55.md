@@ -1,5 +1,7 @@
 ### SB 3.12.55
 
+> तदा मिथुनधर्मेण प्रजा ह्येधाम्बभूविर् ॥५५॥
+
 *tadā mithuna*-dharmeṇa
 
 prajā hy edhām babhūvire

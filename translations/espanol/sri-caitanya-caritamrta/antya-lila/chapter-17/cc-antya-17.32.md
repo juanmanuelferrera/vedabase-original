@@ -1,5 +1,8 @@
 ### CC Antya 17.32
 
+> শুনি’ প্রভু গোপীভাবে আবিষ্ট হইলা ।
+> ভাগবতের শ্লোকের অর্থ করিতে লাগিলা ॥৩২॥
+
 > śuni' prabhu gopī-bhāve āviṣṭa ha-ilā
 > bhāgavatera ślokera artha karite lāgilā
 

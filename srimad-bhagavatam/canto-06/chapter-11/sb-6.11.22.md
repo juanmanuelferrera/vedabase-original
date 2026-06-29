@@ -1,5 +1,8 @@
 ### SB 6.11.22
 
+> पुंसां किलैकान्तधियां स्वकानां याः सम्पदो दिवि भूमौ रसायाम
+> न राति यद्द्वेष उद्वेग आधिर्मदः कलिर्व्यसनं सम्प्रयासः ॥२२॥
+
 > puṁsāṁ kilaikānta-dhiyāṁ svakānāṁ
 > yāḥ sampado divi bhūmau rasāyām
 > na rāti yad dveṣa udvega ādhir

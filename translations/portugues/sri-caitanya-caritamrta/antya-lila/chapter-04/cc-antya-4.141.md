@@ -1,5 +1,8 @@
 ### CC Antya 4.141
 
+> পণ্ডিত কহে, — “তোমার বাসযোগ্য ‘বৃন্দাবন’ ।
+> রথযাত্রা দেখি’ তাহাঁ করহ গমন ॥১৪১॥
+
 paṇḍita kahe,--"tomāra vāsa-yogya 'vṛndāvana'
 
 ratha-yātrā dekhi' tāhāṅ karaha gamana

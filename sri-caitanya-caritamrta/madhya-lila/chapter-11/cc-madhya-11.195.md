@@ -1,5 +1,8 @@
 ### CC Madhya 11.195
 
+> মন্দিরের চক্র দেখি’ করিহ প্রণাম ।
+> এই ঠাঞি তোমার আসিবে প্রসাদান্ন ॥১৯৫॥
+
 > mandirera cakra dekhi' kariha praṇāma
 > ei ṭhāñi tomāra āsibe prasādānna
 

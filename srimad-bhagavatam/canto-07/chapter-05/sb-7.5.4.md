@@ -1,5 +1,8 @@
 ### SB 7.5.4
 
+> एकदासुरराट्पुत्रमङ्कमारोप्य पाण्डव
+> पप्रच्छ कथ्यतां वत्स मन्यते साधु यद्भवान ॥४॥
+
 > ekadāsura-rāṭ putram
 > aṅkam āropya pāṇḍava
 > papraccha kathyatāṁ vatsa

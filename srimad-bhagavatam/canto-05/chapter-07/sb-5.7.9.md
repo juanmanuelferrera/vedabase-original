@@ -1,5 +1,7 @@
 ### SB 5.7.9
 
+> यत्र ह वाव भगवान्हरिरद्यापि तत्रत्यानां निजजनानां वात्सल्येन सन्निधाप्यत इच्छारूपेण ॥९॥
+
 > yatra ha vāva bhagavān harir adyāpi tatratyānāṁ nija-janānāṁ vātsalyena sannidhāpyata icchā-rūpeṇa.
 
 *yatra*—where; *ha vāva*—certainly; *bhagavān*—the Supreme Personality of Godhead; *hariḥ*—the Lord; *adya-api*—even today; *tatratyānām*—residing in that place; *nija-janānām*—for His own devotees; *vātsalyena*—by His transcendental affection; *sannidhāpyate*—becomes visible; *icchā-rūpeṇa*—according to the desire of the devotee.

@@ -1,5 +1,8 @@
 ### SB 4.11.18
 
+> स खल्विदं भगवान्कालशक्त्या गुणप्रवाहेण विभक्तवीर्यः ।
+> करोत्यकर्तैव निहन्त्यहन्ता चेष्टा विभूम्नः खलु दुर्विभाव्या ॥१८॥
+
 > sa khalv idaṁ bhagavān kāla-śaktyā
 > guṇa-pravāheṇa vibhakta-vīryaḥ
 > karoty akartaiva nihanty ahantā

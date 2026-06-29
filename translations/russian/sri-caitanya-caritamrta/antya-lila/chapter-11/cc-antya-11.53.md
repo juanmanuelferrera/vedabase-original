@@ -1,5 +1,8 @@
 ### CC Antya 11.53
 
+> হরিদাস নিজাগ্রেতে প্রভুরে বসাইলা ।
+> নিজ-নেত্র — দুই ভৃঙ্গ — মুখপদ্মে দিলা ॥৫৩॥
+
 > haridāsa nijāgrete prabhure vasāilā
 > nija-netra—dui bhṛṅga—mukha-padme dilā
 

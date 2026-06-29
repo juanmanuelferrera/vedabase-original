@@ -1,5 +1,8 @@
 ### CC Madhya 19.255
 
+> শ্রীরূপ-উপরে প্রভুর যত কৃপা হৈল ।
+> অত্যন্ত বিস্তার-কথা সংক্ষেপে কহিল ॥২৫৫॥
+
 > śrī-rūpa-upare prabhura yata kṛpā haila
 > atyanta vistāra-kathā saṅkṣepe kahila
 

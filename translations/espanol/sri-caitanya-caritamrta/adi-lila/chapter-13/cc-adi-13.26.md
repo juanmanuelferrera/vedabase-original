@@ -1,5 +1,8 @@
 ### CC Adi 13.26
 
+> বাল্য বয়স — যাবৎ হাতে খড়ি দিল ।
+> পৌগণ্ড বয়স — যাবৎ বিবাহ না কৈল ॥২৬॥
+
 > bālya vayasa--yāvat hāte khaḍi dila
 > paugaṇḍa vayasa--yāvat vivāha nā kaila
 

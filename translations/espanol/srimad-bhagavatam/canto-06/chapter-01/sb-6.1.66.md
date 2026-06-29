@@ -1,5 +1,8 @@
 ### SB 6.1.66
 
+> यतस्ततश्चोपनिन्ये न्यायतोऽन्यायतो धनम
+> बभारास्याः कुटुम्बिन्याः कुटुम्बं मन्दधीरयम ॥६६॥
+
 > yatas tataś copaninye
 > nyāyato 'nyāyato dhanam
 > babhārāsyāḥ kuṭumbinyāḥ

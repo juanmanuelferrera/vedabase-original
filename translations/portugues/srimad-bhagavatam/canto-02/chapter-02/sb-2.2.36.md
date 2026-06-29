@@ -1,5 +1,8 @@
 ### SB 2.2.36
 
+> तस्मात्सर्वात्मना राजन्हरिः सर्वत्र सर्वदा ।
+> श्रोतव्यः कीर्तितव्यश्च स्मर्तव्यो भगवान्नृणाम् ॥३६॥
+
 tasmāt sarvātmanā rājan
 hariḥ sarvatra sarvadā
 śrotavyaḥ kīrtitavyaś ca

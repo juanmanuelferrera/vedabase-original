@@ -1,5 +1,8 @@
 ### CC Madhya 3.57
 
+> তিন শুভ্রপীঠ, তার উপরি বসন ।
+> এইরূপে সাক্ষাৎ কৃষ্ণে করাইল ভোজন ॥৫৭॥
+
 > tina śubhra-pīṭha, tāra upari vasana
 > ei-rūpe sākṣāt kṛṣṇe karāila bhojana
 

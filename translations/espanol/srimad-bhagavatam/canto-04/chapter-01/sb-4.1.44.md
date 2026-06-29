@@ -1,5 +1,8 @@
 ### SB 4.1.44
 
+> आयतिं नियतिं चैव सुते मेरुस्तयोरदात् ।
+> ताभ्यां तयोरभवतां मृकण्डः प्राण एव च ॥४४॥
+
 > āyatiṁ niyatiṁ caiva
 > sute merus tayor adāt
 > tābhyāṁ tayor abhavatāṁ

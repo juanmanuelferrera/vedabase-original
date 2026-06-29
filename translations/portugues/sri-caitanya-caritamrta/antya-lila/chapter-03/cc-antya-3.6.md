@@ -1,5 +1,8 @@
 ### CC Antya 3.6
 
+> বার বার নিষেধ করে ব্রাহ্মণকুমারে ।
+> প্রভুরে না দেখিলে সেই রহিতে না পারে ॥৬॥
+
 bāra bāra niṣedha kare brāhmaṇa-kumāre
 prabhure nā dekhile sei rahite nā pāre
 

@@ -1,5 +1,8 @@
 ### CC Adi 7.134
 
+> এই মতে প্রতিসূত্রে করেন দূষণ ।
+> শুনি’ চমৎকার হৈল সন্ন্যাসীর গণ ॥১৩৪॥
+
 ei mate pratisūtre karena dūṣaṇa
 
 śuni' camatkāra haila sannyāsīra gaṇa

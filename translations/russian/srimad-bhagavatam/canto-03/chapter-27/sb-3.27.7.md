@@ -1,5 +1,8 @@
 ### SB 3.27.7
 
+> सर्वभूतसमत्वेन निर्वैरेणाप्रसङ्गतः ।
+> ब्रह्मचर्येण मौनेन स्वधर्मेण बलीयसा ॥७॥
+
 > sarva-bhūta-samatvena
 > nirvaireṇāprasaṅgataḥ
 > brahmacaryeṇa maunena

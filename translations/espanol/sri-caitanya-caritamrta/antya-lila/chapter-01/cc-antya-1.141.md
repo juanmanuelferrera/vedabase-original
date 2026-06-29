@@ -1,5 +1,8 @@
 ### CC Antya 1.141
 
+> ক্রমে শ্রীরূপ-গোসাঞি সকলি কহিল ।
+> শুনি’ প্রভুর ভক্তগণের চমৎকার হৈল ॥১৪১॥
+
 > krame śrī-rūpa-gosāñi sakali kahila
 > śuni' prabhura bhakta-gaṇera camatkāra haila
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.205
 
+> স্বরূপ কহে, — ‘মহাপ্রভুর যে আজ্ঞা হৈল’ ।
+> এত কহি’ রঘুনাথে পুনঃ আলিঙ্গিল ॥২০৫॥
+
 svarūpa kahe,--'mahāprabhura ye ājñā haila'
 
 eta kahi' raghunāthe punaḥ āliṅgila

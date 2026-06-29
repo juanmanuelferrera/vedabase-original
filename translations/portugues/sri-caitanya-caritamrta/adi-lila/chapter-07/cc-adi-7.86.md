@@ -1,5 +1,8 @@
 ### CC Adi 7.86
 
+> কৃষ্ণনামের ফল — ‘প্রেমা’, সর্বশাস্ত্রে কয় ।
+> ভাগ্যে সেই প্রেমা তোমায় করিল উদয় ॥৮৬॥
+
 kṛṣṇa-nāmera phala--'premā', sarva-śāstre kaya
 
 bhāgye sei premā tomāya karila udaya

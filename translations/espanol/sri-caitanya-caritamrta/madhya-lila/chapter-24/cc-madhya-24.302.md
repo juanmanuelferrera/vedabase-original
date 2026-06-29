@@ -1,5 +1,8 @@
 ### CC Madhya 24.302
 
+> ‘নির্গ্রন্থা এব’ হঞা, ‘অপি’ — নির্ধারণে ।
+> এই ‘ঊনষষ্টি’ প্রকার অর্থ করিলুঁ ব্যাখ্যানে ॥৩০২॥
+
 > 'nirgranthā eva' hañā, 'api'--nirdhāraṇe
 > ei 'ūnaṣaṣṭi' prakāra artha kariluṅ vyākhyāne
 > SYNONYMS

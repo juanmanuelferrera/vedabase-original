@@ -1,5 +1,8 @@
 ### CC Adi 14.63
 
+> তাঁরে দেখি’ প্রভুর হইল সাভিলাষ মন ।
+> লক্ষ্মী চিত্তে প্রীত পাইল প্রভুর দর্শন ॥৬৩॥
+
 > tāṅre dekhi' prabhura ha-ila sābhilāṣa mana
 > lakṣmī citte prīta pāila prabhura darśana
 

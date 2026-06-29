@@ -1,5 +1,8 @@
 ### CC Madhya 19.162
 
+> ‘প্রেমফল’ পাকি’ পড়ে, মালী আস্বাদয় ।
+> লতা অবলম্বি’ মালী ‘কল্পবৃক্ষ’ পায় ॥১৬২॥
+
 'prema-phala' pāki' paḍe, mālī āsvādaya
 
 latā avalambi' mālī 'kalpa-vṛkṣa' pāya

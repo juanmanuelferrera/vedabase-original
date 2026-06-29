@@ -1,5 +1,8 @@
 ### CC Antya 6.114
 
+> দুই ভাইরে রাঘব আনি’ পরিবেশে ।
+> যত্ন করি’ খাওয়ায়, না রহে অবশেষে ॥১১৪॥
+
 dui bhāire rāghava āni' pariveśe
 
 yatna kari' khāoyāya, nā rahe avaśeṣe

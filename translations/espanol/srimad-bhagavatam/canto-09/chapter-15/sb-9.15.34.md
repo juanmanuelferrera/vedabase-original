@@ -1,5 +1,8 @@
 ### SB 9.15.34
 
+> पुनः स्वहस्तैरचलान्मृधेऽङ्घ्रिपानुत्क्षिप्य वेगादभिधावतो युधि
+> भुजान्कुठारेण कठोरनेमिना चिच्छेद रामः प्रसभं त्वहेरिव ॥३४॥
+
 > punaḥ sva-hastair acalān mṛdhe 'ṅghripān
 > utkṣipya vegād abhidhāvato yudhi
 > bhujān kuṭhāreṇa kaṭhora-neminā

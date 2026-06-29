@@ -1,5 +1,8 @@
 ### CC Madhya 20.216
 
+> প্ৰয়াগে মাধব, মন্দারে শ্রীমধুসূদন ।
+> আনন্দারণ্যে বাসুদেব, পদ্মনাভ জনার্দন ॥২১৬॥
+
 prayāge mādhava, mandāre śrī-madhusūdana
 
 ānandāraṇye vāsudeva, padmanābha janārdana

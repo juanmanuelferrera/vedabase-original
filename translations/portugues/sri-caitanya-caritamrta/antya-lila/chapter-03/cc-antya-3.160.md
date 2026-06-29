@@ -1,5 +1,8 @@
 ### CC Antya 3.160
 
+> আসি’ সেই দুর্গামণ্ডপে বাসা কৈল ।
+> অবধ্য বধ করি’ মাংস সে-ঘরে রান্ধাইল ॥১৬০॥
+
 āsi' sei durgā-maṇḍape vāsā kaila
 
 avadhya vadha kari' māṁsa se-ghare rāndhāila

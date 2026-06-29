@@ -1,5 +1,10 @@
 ### CC Madhya 21.15
 
+> দ্যুপতয় এব তে ন যযুরন্তমনন্ততয়া
+> ত্বমপি যদন্তরাণ্ডনিচয়া ননু সাবরণাঃ ।
+> খ ইব রজাংসি বান্তি বয়সা সহ যচ্ছ্রুতয়-
+> স্ত্বয়ি হি ফলন্ত্যতন্নিরসনেন ভবন্নিধনাঃ ॥১৫॥
+
 dyu-pataya eva te na yayur antam anantatayā
 tvam api yad antarāṇḍa-nicayā nanu sāvaraṇāḥ
 kha iva rajāṁsi vānti vayasā saha yac chrutayas

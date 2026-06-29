@@ -1,5 +1,7 @@
 ### SB 5.22.17
 
+> तत उत्तरस्मादृषय एकादशलक्षयोजनान्तर उपलभ्यन्ते य एव लोकानां शमनुभावयन्तोभगवतो विष्णोर्यत्परमं पदं प्रदक्षिणं प्रक्रमन्ति ॥१७॥
+
 > tata uttarasmād ṛṣaya ekādaśa-lakṣa-yojanāntara upalabhyante ya eva lokānāṁ śam anubhāvayanto bhagavato viṣṇor yat paramaṁ padaṁ pradakṣiṇaṁ prakramanti.
 
 *tataḥ*—del planeta Saturno; *uttarasmāt*—por encima; *ṛṣayaḥ*—grandes sabios santos; *ekādaśa-lakṣa-yojana-antare*—a una distancia de 1 100 000 *yojanas*; *upalabhyante*—están situados; *ye*—todos ellos; *eva*—en verdad; *lokānām*—para todos los habitantes del universo; *śam*—la buena fortuna; *anubhāvayantaḥ*—pensar siempre en; *bhagavataḥ*—de la Suprema Personalidad de Dios; *viṣṇoḥ*—el Señor Viṣṇu; *yat*—que; *paramam padam*—la morada suprema; *pradakṣiṇam*—dejando a su derecha; *prakramanti*—caminan alrededor.

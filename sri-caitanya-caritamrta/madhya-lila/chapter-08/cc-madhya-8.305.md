@@ -1,5 +1,8 @@
 ### CC Madhya 8.305
 
+> রাধাকৃষ্ণলীলা — তাতে কর্পূর-মিলন ।
+> ভাগ্যবান্ যেই, সেই করে আস্বাদন ॥৩০৫॥
+
 > rādhā-kṛṣṇa-līlā—tāte karpūra-milana
 > bhāgyavān yei, sei kare āsvādana
 

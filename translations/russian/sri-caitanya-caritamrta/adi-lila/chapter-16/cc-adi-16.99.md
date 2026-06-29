@@ -1,5 +1,8 @@
 ### CC Adi 16.99
 
+> তুমি বড় পণ্ডিত, মহাকবি-শিরোমণি ।
+> যাঁর মুখে বাহিরায় ঐছে কাব্যবাণী ॥৯৯॥
+
 > tumi baḍa paṇḍita, mahākavi-śiromaṇi
 > yāṅra mukhe bāhirāya aiche kavya-vāṇī
 

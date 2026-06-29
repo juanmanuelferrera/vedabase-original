@@ -1,5 +1,8 @@
 ### CC Madhya 21.22
 
+> সবে হৈলা চতুর্ভুজ বৈকুণ্ঠের পতি ।
+> পৃথক্ পৃথক্ ব্রহ্মাণ্ডের ব্রহ্মা করে স্তুতি ॥২২॥
+
 > sabe hailā caturbhuja vaikuṇṭhera pati
 > pṛthak pṛthak brahmāṇḍera brahmā kare stuti
 

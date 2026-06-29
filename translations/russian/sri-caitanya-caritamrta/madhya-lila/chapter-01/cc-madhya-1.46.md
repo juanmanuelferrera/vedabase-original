@@ -1,5 +1,8 @@
 ### CC Madhya 1.46
 
+> প্রথম বৎসরে অদ্বৈতাদি ভক্তগণ ।
+> প্রভুরে দেখিতে কৈল, নীলাদ্রি গমন ॥৪৬॥
+
 > prathama vatsare advaitādi bhakta-gaṇa
 > prabhure dekhite kaila, nīlādri gamana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 18.36
 
+> সেই গ্রামে গিয়া কৈল গোপাল-দরশন ।
+> প্রেমাবেশে প্রভু করে কীর্তন-নর্তন ॥৩৬॥
+
 > sei grāme giyā kaila gopāla-daraśana
 > premāveśe prabhu kare kīrtana-nartana
 

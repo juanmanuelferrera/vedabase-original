@@ -1,5 +1,8 @@
 ### CC Adi 8.48
 
+> নিত্যানন্দ-লীলা-বর্ণনে হইল আবেশ ।
+> চৈতন্যের শেষ-লীলা রহিল অবশেষ ॥৪৮॥
+
 > nityānanda-līlā-varṇane ha-ila āveśa
 > caitanyera śeṣa-līlā rahila avaśeṣa
 

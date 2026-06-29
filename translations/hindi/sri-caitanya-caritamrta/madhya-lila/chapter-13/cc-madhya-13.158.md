@@ -1,5 +1,10 @@
 ### CC Madhya 13.158
 
+> তোমার যে প্রেমগুণ, করে আমা আকর্ষণ,
+> আনিবে আমা দিন দশ বিশে ।
+> পুনঃ আসি’ বৃন্দাবনে, ব্রজবধূ তোমা-সনে,
+> বিলসিব রজনী-দিবসে ॥১৫৮॥
+
 > tomāra ye prema-guṇa, kare āmā ākarṣaṇa,
 > ānibe āmā dina daśa biśe
 > punaḥ āsi' vṛndāvane, vraja-vadhū tomā-sane,

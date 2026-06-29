@@ -1,5 +1,8 @@
 ### CC Antya 16.38
 
+> এইমত যত বৈষ্ণব বৈসে গৌড়দেশে ।
+> কালিদাস ঐছে সবার নিলা অবশেষে ॥৩৮॥
+
 ei-mata yata vaiṣṇava vaise gauḍa-deśe
 
 kālidāsa aiche sabāra nilā avaśeṣe

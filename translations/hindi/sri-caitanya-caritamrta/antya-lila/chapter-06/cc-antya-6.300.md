@@ -1,5 +1,8 @@
 ### CC Antya 6.300
 
+> এইমত রঘুনাথ করেন পূজন ।
+> পূজা-কালে দেখে শিলায় ‘ব্রজেন্দ্রনন্দন’ ॥৩০০॥
+
 > ei-mata raghunātha karena pūjana
 > pūjā-kāle dekhe śilāya 'vrajendra-nandana'
 

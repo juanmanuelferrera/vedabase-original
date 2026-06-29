@@ -1,5 +1,8 @@
 ### SB 6.7.20
 
+> तांस्तथाभ्यर्दितान्वीक्ष्य भगवानात्मभूरजः
+> कृपया परया देव उवाच परिसान्त्वयन ॥२०॥
+
 > tāṁs tathābhyarditān vīkṣya
 > bhagavān ātmabhūr ajaḥ
 > kṛpayā parayā deva

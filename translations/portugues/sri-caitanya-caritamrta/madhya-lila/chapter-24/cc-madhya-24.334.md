@@ -1,5 +1,8 @@
 ### CC Madhya 24.334
 
+> পঞ্চ, ষোড়শ, পঞ্চাশৎ উপচারে অর্চন ।
+> পঞ্চকাল পূজা আরতি, কৃষ্ণের ভোজন-শয়ন ॥৩৩৪॥
+
 pañca, ṣoḍaśa, pañcāśat upacāre arcana
 
 pañca-kāla pūjā ārati, kṛṣṇera bhojana-śayana

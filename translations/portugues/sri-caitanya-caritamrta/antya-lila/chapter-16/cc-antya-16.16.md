@@ -1,5 +1,8 @@
 ### CC Antya 16.16
 
+> পত্নী-সহিত তেঁহো আছেন বসিয়া ।
+> বহু সম্মান কৈলা কালিদাসেরে দেখিয়া ॥১৬॥
+
 patnī-sahita teṅho āchena vasiyā
 
 bahu sammāna kailā kālidāsere dekhiyā

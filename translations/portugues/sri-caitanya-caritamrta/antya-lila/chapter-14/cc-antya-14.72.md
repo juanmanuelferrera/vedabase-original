@@ -1,5 +1,8 @@
 ### CC Antya 14.72
 
+> এই লীলা মহাপ্রভুর রঘুনাথদাস ।
+> ‘গৌরাঙ্গস্তবকল্পবৃক্ষে’ করিয়াছেন প্রকাশ ॥৭২॥
+
 ei līlā mahāprabhura raghunātha-dāsa
 
 'gaurāṅga-stava-kalpavṛkṣe' kariyāche prakāśa

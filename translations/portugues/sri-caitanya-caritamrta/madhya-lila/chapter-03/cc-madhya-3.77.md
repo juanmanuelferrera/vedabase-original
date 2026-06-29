@@ -1,5 +1,8 @@
 ### CC Madhya 3.77
 
+> মোর ভাগ্যে, মোর ঘরে, তোমার আগমন ।
+> ছাড়হ চাতুরী, প্রভু, করহ ভোজন ॥৭৭॥
+
 mora bhāgye, mora ghare, tomāra āgamana
 
 chāḍaha cāturī, prabhu, karaha bhojana

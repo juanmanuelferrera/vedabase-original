@@ -1,5 +1,8 @@
 ### CC Antya 19.13
 
+> জগন্নাথের উত্তম প্রসাদ আনিয়া যতনে ।
+> মাতারে পৃথক্ পাঠান, আর ভক্তগণে ॥১৩॥
+
 jagannāthera uttama prasāda āniyā yatane
 mātāre pṛthak pāṭhāna, āra bhakta-gaṇe
 

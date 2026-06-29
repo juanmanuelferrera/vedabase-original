@@ -1,5 +1,8 @@
 ### SB 7.2.36
 
+> तत्र ह प्रेतबन्धूनामाश्रुत्य परिदेवितम
+> आह तान्बालको भूत्वा यमः स्वयमुपागतः ॥३६॥
+
 > tatra ha preta-bandhūnām
 > āśrutya paridevitam
 > āha tān bālako bhūtvā

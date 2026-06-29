@@ -1,5 +1,8 @@
 ### CC Antya 11.41
 
+> আমা-হেন যদি এক কীট মরি’ গেল ।
+> এক পিপীলিকা মৈলে পৃথ্বীর কাহাঁ হানি হৈল ? ॥ ৪১ ॥
+
 āmā-hena yadi eka kīṭa mari' gela
 
 eka pipīlikā maile pṛthvīra kāhāṅ hāni haila?

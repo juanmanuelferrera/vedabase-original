@@ -1,5 +1,7 @@
 ### SB 5.4.13
 
+> यवीयांस एकाशीतिर्जायन्तेयाः पितुरादेशकरा महाशालीनामहाश्रोत्रिया यज्ञअशीलाः कर्मविशुद्धा ब्राह्मणा बभूवुः ॥१३॥
+
 *yavīyāṁsa ekāśītir jāyanteyāḥ pitur ādeśakarā mahā-śālīnā mahā-śrotriyā yajña-śīlāḥ karma*-viśuddhā brāhmaṇā babhūvuḥ.
 
 *yavīyāṁsaḥ*—mais jovens; *ekāśītiḥ*—em número de oitenta e um; *jāyanteyāḥ*—os filhos de Jayantī, a esposa de Ṛṣabhadeva; *pituḥ*—de seu pai; *ādeśakarāḥ*—seguindo a ordem; *mahā-śālīnāḥ*—bem comportados, bem cultos; *mahā-śrotriyāḥ*—extremamente eruditos no conhecimento védico; *yajña-śīlāḥ*—peritos na realização de cerimônias ritualísticas; *karma-viśuddhāḥ*—muito puros em suas atividades; *brāhmaṇāḥ*—brāhmaṇas qualificados; *babhūvuḥ*—tornaram-se.

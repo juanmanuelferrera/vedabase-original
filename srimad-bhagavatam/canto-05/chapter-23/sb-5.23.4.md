@@ -1,5 +1,7 @@
 ### SB 5.23.4
 
+> केचनैतज्ज्योतिरनीकं शिशुमारसंस्थानेन भगवतो वासुदेवस्य योगधारणायामनुवर्णयन्ति ॥४॥
+
 > kecanaitaj jyotir-anīkaṁ śiśumāra-saṁsthānena bhagavato vāsudevasya yoga-dhāraṇāyām anuvarṇayanti.
 
 *kecana*—some *yogīs* or learned scholars of astronomy; *etat*—this; *jyotiḥ-anīkam*—great wheel of planets and stars; *śiśumāra-saṁsthānena*—imagine this wheel to be a *śiśumāra* (dolphin); *bhagavataḥ*—of the Supreme Personality of Godhead; *vāsudevasya*—Lord Vāsudeva (the son of Vasudeva), Kṛṣṇa; *yoga-dhāraṇāyām*—in absorption in worship; *anuvarṇayanti*—describe.

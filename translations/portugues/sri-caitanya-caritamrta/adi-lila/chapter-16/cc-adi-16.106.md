@@ -1,5 +1,8 @@
 ### CC Adi 16.106
 
+> সরস্বতী স্বপ্নে তাঁরে উপদেশ কৈল ।
+> সাক্ষাৎ ঈশ্বর করি’ প্রভুকে জানিল ॥১০৬॥
+
 sarasvatī svapne tāṅre upadeśa kaila
 
 sākṣāt īśvara kari' prabhuke jānila

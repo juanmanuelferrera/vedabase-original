@@ -1,5 +1,8 @@
 ### CC Antya 8.5
 
+> জয় জয় শ্রীবাসাদি যত ভক্তগণ ।
+> শ্রীকৃষ্ণচৈতন্য প্রভু — যাঁর প্রাণধন ॥৫॥
+
 > jaya jaya śrīvāsādi yata bhakta-gaṇa
 > śrī-kṛṣṇa-caitanya prabhu—yāṅra prāṇa-dhana
 

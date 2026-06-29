@@ -1,5 +1,8 @@
 ### SB 3.1.39
 
+> यमावुतस्वित्तनयौ पृथायाः पार्थैर्वृतौ पक्ष्मभिरक्षिणीव ।
+> रेमात उद्दाय मृधे स्वरिक्थं परात्सुपर्णाविव वज्रिवक्त्रात् ॥३९॥
+
 > yamāv utasvit tanayau pṛthāyāḥ
 > pārthair vṛtau pakṣmabhir akṣiṇīva
 > remāta uddāya mṛdhe sva-rikthaṁ

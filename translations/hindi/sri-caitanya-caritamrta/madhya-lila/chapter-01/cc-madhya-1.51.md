@@ -1,5 +1,8 @@
 ### CC Madhya 1.51
 
+> শেষ আর যেই রহে দ্বাদশ বৎসর ।
+> কৃষ্ণের বিরহলীলা প্রভুর অন্তর ॥৫১॥
+
 > śeṣa āra yei rahe dvādaśa vatsara
 > kṛṣṇera viraha-līlā prabhura antara
 

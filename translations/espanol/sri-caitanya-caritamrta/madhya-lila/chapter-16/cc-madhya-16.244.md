@@ -1,5 +1,8 @@
 ### CC Madhya 16.244
 
+> দেখি’ তাঁর পিতা-মাতা বড় সুখ পাইল ।
+> তাঁহার আবরণ কিছু শিথিল হইল ॥২৪৪॥
+
 > dekhi' tāṅra pitā-mātā baḍa sukha pāila
 > tāṅhāra āvaraṇa kichu śithila ha-ila
 

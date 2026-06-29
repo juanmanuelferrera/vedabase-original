@@ -1,5 +1,8 @@
 ### CC Antya 9.15
 
+> সবংশে তোমার সেবক — ভবানন্দ-রায় ।
+> তাঁর পুত্র — তোমার সেবকে রাখিতে যুয়ায় ॥১৫॥
+
 > savaṁśe tomāra sevaka—bhavānanda-rāya
 > tāṅra putra—tomāra sevake rākhite yuyāya
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.127
 
+> বেশ্যা গিয়া সমাচার খাঁনেরে কহিল ।
+> আর দিন সন্ধ্যা হইতে ঠাকুর-ঠাঞি আইল ॥১২৭॥
+
 > veśyā giyā samācāra khāṅnere kahila
 > āra dina sandhyā ha-ite ṭhākura-ṭhāñi āila
 

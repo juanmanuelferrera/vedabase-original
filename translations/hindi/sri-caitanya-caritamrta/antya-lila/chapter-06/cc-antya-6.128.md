@@ -1,5 +1,7 @@
 ### CC Antya 6.128
 
+> “অধম, পামর মুই হীন জীবাধম ! মোর ইচ্ছা হয় — পাঙ চৈতন্য-চরণ ॥১২৮॥
+
 > "adhama, pāmara mui hīna jīvādhama!
 > mora icchā haya--pāṅa caitanya-caraṇa
 

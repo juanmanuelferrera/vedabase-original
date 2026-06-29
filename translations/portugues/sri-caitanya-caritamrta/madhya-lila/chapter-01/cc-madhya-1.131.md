@@ -1,5 +1,8 @@
 ### CC Madhya 1.131
 
+> গৌড় হইতে সর্ব বৈষ্ণবের আগমন ।
+> কুলীনগ্রামবাসি-সঙ্গে প্রথম মিলন ॥১৩১॥
+
 gauḍa ha-ite sarva vaiṣṇavera āgamana
 kulīna-grāma-vāsi-saṅge prathama milana
 

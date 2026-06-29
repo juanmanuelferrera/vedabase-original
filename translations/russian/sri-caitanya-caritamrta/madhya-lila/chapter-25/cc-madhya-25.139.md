@@ -1,5 +1,8 @@
 ### CC Madhya 25.139
 
+> এবে শুন, প্রেম, যেই — মূল ‘প্রয়োজন’ ।
+> পুলকাশ্রু-নৃত্য-গীত — যাহার লক্ষণ ॥১৩৯॥
+
 > ebe śuna, prema, yei-mūla 'prayojana'
 > pulakāśru-nṛtya-gīta-yāhāra lakṣaṇa
 

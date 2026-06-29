@@ -1,5 +1,8 @@
 ### SB 3.2.8
 
+> दुर्भगो बत लोकोऽयं यदवो नितरामपि ।
+> ये संवसन्तो न विदुर्हरिं मीना इवोडुपम् ॥८॥
+
 > durbhago bata loko 'yaṁ
 > yadavo nitarām api
 > ye saṁvasanto na vidur

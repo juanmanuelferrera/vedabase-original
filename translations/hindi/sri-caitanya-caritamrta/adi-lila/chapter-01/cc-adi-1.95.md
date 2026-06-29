@@ -1,5 +1,8 @@
 ### CC Adi 1.95
 
+> যাঁহার প্রসাদে এই তমো হয় নাশ ।
+> তমো নাশ করি’ করে তত্ত্বের প্রকাশ ॥৯৫॥
+
 > yāṅhāra prasāde ei tamo haya nāśa
 > tamo nāśa kari' kare tattvera prakāśa
 

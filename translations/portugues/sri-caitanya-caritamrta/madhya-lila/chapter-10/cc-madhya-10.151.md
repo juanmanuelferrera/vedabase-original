@@ -1,5 +1,8 @@
 ### CC Madhya 10.151
 
+> আর দিনে মুকুন্দদত্ত কহে প্রভুর স্থানে ৷
+> ব্রহ্মানন্দ-ভারতী আইলা তোমার দরশনে ৷৷ ১৫১ ৷৷ ॥১৫১॥
+
 āra dine mukunda-datta kahe prabhura sthāne
 
 brahmānanda-bhāratī āilā tomāra daraśane

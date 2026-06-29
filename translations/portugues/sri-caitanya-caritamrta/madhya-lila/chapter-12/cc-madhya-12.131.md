@@ -1,5 +1,8 @@
 ### CC Madhya 12.131
 
+> আপনে বসিয়া মাঝে, আপনার হাতে  ।
+> তৃণ, কাঁকর, কুটা লাগিলা কুড়াইতে ॥১৩১॥
+
 āpane vasiyā mājhe, āpanāra hāte
 
 tṛṇa, kāṅkara, kuṭā lāgilā kuḍāite

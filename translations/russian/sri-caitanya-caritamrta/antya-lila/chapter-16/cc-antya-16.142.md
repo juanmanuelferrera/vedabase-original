@@ -1,5 +1,10 @@
 ### CC Antya 16.142
 
+> এহো ব্রজেন্দ্রনন্দন, ব্রজের কোন কন্যাগণ,
+> অবশ্য করিব পরিণয় ।
+> সে-সম্বন্ধে গোপীগণ, যারে মানে নিজধন,
+> সে সুধা অন্যের লভ্য নয় ॥১৪২॥
+
 > eho vrajendra-nandana, vrajera kona kanyā-gaṇa,
 > avaśya kariba pariṇaya
 > se-sambandhe gopī-gaṇa, yāre māne nija-dhana,

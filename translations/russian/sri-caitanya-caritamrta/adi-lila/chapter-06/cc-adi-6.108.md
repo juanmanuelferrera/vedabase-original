@@ -1,5 +1,8 @@
 ### CC Adi 6.108
 
+> স্বমাধুর্য আস্বাদিতে করেন যতন ।
+> ভক্তভাব বিনু নহে তাহা আস্বাদন ॥১০৮॥
+
 > svā-mādhurya āsvādite karena yatana
 > bhakta-bhāva vinu nahe tāhā āsvādana
 

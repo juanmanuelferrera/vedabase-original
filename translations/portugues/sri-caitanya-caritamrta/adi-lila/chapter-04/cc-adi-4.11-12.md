@@ -1,5 +1,10 @@
 ### CC Adi 4.11-12
 
+> নারায়ণ, চতুর্ব্যূহ, মৎস্যাদ্যবতার ।
+> যুগ-মন্বন্তরাবতার, যত আছে আর ॥১১॥
+> সবে আসি’ কৃষ্ণ-অঙ্গে হয় অবতীর্ণ ।
+> ঐছে অবতরে কৃষ্ণ ভগবান্ পূর্ণ ॥১২॥
+
 nārāyaṇa, catur-vyūha, matsyādy-avatāra
 yuga-manvantarāvatāra, yata āche āra
 sabe āsi' kṛṣṇa-aṅge haya avatīrṇa

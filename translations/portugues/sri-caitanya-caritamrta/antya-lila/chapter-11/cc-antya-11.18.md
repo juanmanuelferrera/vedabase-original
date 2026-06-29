@@ -1,5 +1,8 @@
 ### CC Antya 11.18
 
+> গোবিন্দ কহে, — ‘উঠ আসি’ করহ ভোজন’ ।
+> হরিদাস কহে, — আজি করিমু লঙ্ঘন ॥১৮॥
+
 govinda kahe,--'uṭha āsi' karaha bhojana'
 
 haridāsa kahe,--āji karimu laṅghana

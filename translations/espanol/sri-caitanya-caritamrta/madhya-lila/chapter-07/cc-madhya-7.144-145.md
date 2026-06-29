@@ -3,6 +3,9 @@
 > bahu stuti kari' kahe,—śuna, dayā-maya
 > jīve ei guṇa nāhi, tomāte ei haya
 
+> bahu stuti kari' kahe,—śuna, dayā-maya
+> jīve ei guṇa nāhi, tomāte ei haya
+
 > more dekhi' mora gandhe palāya pāmara
 > hena-more sparśa' tumi,—svatantra īśvara
 

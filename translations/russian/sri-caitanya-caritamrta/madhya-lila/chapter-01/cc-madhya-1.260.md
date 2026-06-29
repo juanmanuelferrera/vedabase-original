@@ -1,5 +1,8 @@
 ### CC Madhya 1.260
 
+> তবে সনাতন-গোসাঞির পুনরাগমন ।
+> জ্যৈষ্ঠমাসে প্রভু তাঁরে কৈল পরীক্ষণ ॥২৬০॥
+
 > tabe sanātana-gosāñira punar-āgamana
 > jyaiṣṭha-māse prabhu tāṅre kaila parīkṣaṇa
 

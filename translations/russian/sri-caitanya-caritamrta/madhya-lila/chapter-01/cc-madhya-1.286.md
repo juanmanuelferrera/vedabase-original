@@ -1,5 +1,8 @@
 ### CC Madhya 1.286
 
+> এই ত’ কহিল মধ্যলীলার সূত্রগণ ।
+> শেষ দ্বাদশ বৎসরের শুন বিবরণ ॥২৮৬॥
+
 > ei ta' kahila madhya-līlāra sūtra-gaṇa
 > śeṣa dvādaśa vatsarera śuna vivaraṇa
 

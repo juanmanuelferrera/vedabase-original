@@ -1,5 +1,9 @@
 ### CC Antya 20.49
 
+> সখি হে, শুন মোর মনের নিশ্চয় ।
+> কিবা অনুরাগ করে, কিবা দুঃখ দিয়া মারে,
+> মোর প্রাণেশ্বর কৃষ্ণ — অন্য নয় ॥৪৯॥
+
 > sakhi he, śuna mora manera niścaya
 > kibā anurāga kare, kibā duḥkha diyā māre,
 > mora prāṇeśvara kṛṣṇa—anya naya

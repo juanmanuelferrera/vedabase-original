@@ -1,5 +1,8 @@
 ### SB 3.13.4
 
+> श्रुतस्य पुंसां सुचिरश्रमस्य नन्वञ्जसा सूरिभिरीडितोऽर्थः ।
+> तत्तद्गुणानुश्रवणं मुकुन्द पादारविन्दं हृदयेषु येषाम् ॥४॥
+
 > śrutasya puṁsāṁ sucira-śramasya
 > nanv añjasā sūribhir īḍito 'rthaḥ
 > tat-tad-guṇānuśravaṇaṁ mukunda-

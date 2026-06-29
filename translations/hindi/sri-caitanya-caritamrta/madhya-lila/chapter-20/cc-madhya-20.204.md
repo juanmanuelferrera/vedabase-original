@@ -1,5 +1,8 @@
 ### CC Madhya 20.204
 
+> পুরুষোত্তম, অচ্যুত, নৃসিংহ, জনার্দন ।
+> হরি, কৃষ্ণ, অধোক্ষজ, উপেন্দ্র, — অষ্টজন ॥২০৪॥
+
 > puruṣottama, acyuta, nṛsiṁha, janārdana
 > hari, kṛṣṇa, adhokṣaja, upendra,--aṣṭa-jana
 

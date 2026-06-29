@@ -1,5 +1,8 @@
 ### CC Adi 17.125
 
+> ক্রোধে সন্ধ্যাকালে কাজী এক ঘরে আইল ।
+> মৃদঙ্গ ভাঙ্গিয়া লোকে কহিতে লাগিল ॥১২৫॥
+
 krodhe sandhyā-kāle kājī eka ghare āila
 
 mṛdaṅga bhāṅgiyā loke kahite lāgila

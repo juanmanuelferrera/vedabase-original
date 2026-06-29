@@ -1,5 +1,8 @@
 ### CC Antya 15.57
 
+> সৌন্দর্য দেখিয়া ভূমে পড়ে মূর্চ্ছা পাঞা ।
+> হেনকালে স্বরূপাদি মিলিলা আসিয়া ॥৫৭॥
+
 > saundarya dekhiyā bhūme paḍe mūrcchā pāñā
 > hena-kāle svarūpādi mililā āsiyā
 

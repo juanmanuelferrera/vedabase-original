@@ -1,5 +1,8 @@
 ### SB 9.16.33
 
+> ये मधुच्छन्दसो ज्येष्ठाः कुशलं मेनिरे न तत
+> अशपत्तान्मुनिः क्रुद्धो म्लेच्छा भवत दुर्जनाः ॥३३॥
+
 > ye madhucchandaso jyeṣṭhāḥ
 > kuśalaṁ menire na tat
 > aśapat tān muniḥ kruddho

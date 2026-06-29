@@ -1,5 +1,8 @@
 ### CC Antya 16.11
 
+> তাঁর ঠাঞি শেষ-পাত্র লয়েন মাগিয়া ।
+> কাহাঁ না পায়, তবে রহে লুকাঞা ॥১১॥
+
 tāṅra ṭhāñi śeṣa-pātra layena māgiyā
 kāhāṅ nā pāya, tabe rahe lukāñā
 

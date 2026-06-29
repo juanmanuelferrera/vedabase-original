@@ -1,5 +1,7 @@
 ### SB 5.16.27
 
+> जठरदेवकूटौ मेरुं पूर्वेणाष्टादशयोजनसहस्रमुदगायतौ द्विसहस्रं पृथुतुङ्गौभवतः एवमपरेण पवनपारियात्रौ दक्षिणेन कैलासकरवीरौ प्रागायतावेवमुत्तरतस्त्रिशृङ्गमकरावष्टभिरेतैः परिसृतोऽग्निरिव परितश्चकास्ति काञ्चनगिरिः ॥२७॥
+
 > jaṭhara-devakūṭau meruṁ pūrveṇāṣṭādaśa-yojana-sahasram udagāyatau dvi-sahasraṁ pṛthu-tuṅgau bhavataḥ; evam apareṇa pavana-pāriyātrau dakṣiṇena kailāsa-karavīrau prāg-āyatāv evam uttaratas triśṛṅga-makarāv aṣṭabhir etaiḥ parisṛto 'gnir iva paritaś cakāsti kāñcana-giriḥ.
 
 *jaṭhara-devakūṭau*—dos montañas llamadas Jaṭhara y Devakūṭa; *merum*—el monte Sumeru; *pūrveṇa*—en el lado oriental; *aṣṭādaśa-yojana-sahasram*—dieciocho mil *yojanas*; *udagāyatau*—que se extienden de norte a sur; *dvi-sahasram*—dos mil*yojanas*; *pṛthu-tuṅgau*—en ancho y alto; *bhavataḥ*—hay; *evam*—del mismo modo; *apareṇa*—en el lado occidental; *pavana-pāriyātrau*—dos montañas llamadas Pavana y Pāriyātra; *dakṣiṇena*—en el lado sur; *kailāsa-karavīrau*—dos montañas llamadas Kailāsa y Karavīra; *prāk-āyatau*—que se extienden de este a oeste; *evam*—del mismo modo; *uttarataḥ*—en el lado norte; *triśṛṅga-makarau*—dos montañas llamadas Triśṛṅga y Makara; *aṣṭabhiḥ etaiḥ*—por esas ocho montañas; *parisṛtaḥ*—rodeado; *agniḥ iva*—como el fuego; *paritaḥ*—por todas partes; *cakāsti*—brilla resplandeciente; *kāñcana-giriḥ*—la montaña de oro llamada Sumeru, o Meru.

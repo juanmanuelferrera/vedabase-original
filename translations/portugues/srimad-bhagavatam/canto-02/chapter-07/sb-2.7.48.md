@@ -1,5 +1,8 @@
 ### SB 2.7.48
 
+> सध्र्यङ्नियम्य यतयो यमकर्तहेतिं ।
+> जह्युः स्वराडिव निपानखनित्रमिन्द्रः ॥४८॥
+
 *sadhryaṅ niyamya yatayo yama*-karta-hetiṁ
 
 *jahyuḥ svarāḍ iva nipāna*-khanitram indraḥ

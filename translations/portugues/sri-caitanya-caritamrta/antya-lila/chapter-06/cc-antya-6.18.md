@@ -1,5 +1,8 @@
 ### CC Antya 6.18
 
+> হিরণ্যদাস মুলুক নিল ‘মক্ররি’ করিয়া ।
+> তার অধিকার গেল, মরে সে দেখিয়া ॥১৮॥
+
 hiraṇya-dāsa muluka nila 'makrari' kariyā
 
 tāra adhikāra gela, mare se dekhiyā

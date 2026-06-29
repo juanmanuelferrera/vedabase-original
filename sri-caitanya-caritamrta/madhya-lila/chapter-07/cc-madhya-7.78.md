@@ -1,5 +1,8 @@
 ### CC Madhya 7.78
 
+> চৌদিকেতে সব লোক বলে ‘হরি’ ‘হরি’ ।
+> প্রেমাবেশে মধ্যে নৃত্য করে গৌরহরি ॥৭৮॥
+
 > caudikete saba loka bale 'hari' 'hari'
 > premāveśe madhye nṛtya kare gaurahari
 

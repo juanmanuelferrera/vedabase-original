@@ -1,5 +1,8 @@
 ### CC Madhya 15.21
 
+> ইঁহা-সবা লঞা প্রভু করে নৃত্য-রঙ্গ ।
+> দধি-দুগ্ধ হরিদ্রা-জলে ভরে সবার অঙ্গ ॥২১॥
+
 > iṅhā-sabā lañā prabhu kare nṛtya-raṅga
 > dadhi-dugdha haridrā-jale bhare sabāra aṅga
 

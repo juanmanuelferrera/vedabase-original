@@ -1,5 +1,8 @@
 ### CC Madhya 3.91
 
+> আচার্য কহে — যে দিয়াছি, তাহা না ছাড়িবা ।
+> এখন যে দিয়ে, তার অর্ধেক খাইবা ॥৯১॥
+
 > ācārya kahe—ye diyāchi, tāhā nā chāḍibā
 > ekhana ye diye, tāra ardheka khāibā
 

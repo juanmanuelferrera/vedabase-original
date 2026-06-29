@@ -1,5 +1,8 @@
 ### CC Antya 6.93
 
+> কৌতুক দেখিতে আইল যত যত জন ।
+> সেই চিড়া, দধি, কলা করিল ভক্ষণ ॥৯৩॥
+
 > kautuka dekhite āila yata yata jana
 > sei ciḍā, dadhi, kalā karila bhakṣaṇa
 

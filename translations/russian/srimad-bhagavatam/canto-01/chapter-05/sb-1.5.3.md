@@ -1,5 +1,8 @@
 ### SB 1.5.3
 
+> जिज्ञासितं सुसम्पन्नमपि ते महदद्भुतम् ।
+> कृतवान्भारतं यस्त्वं सर्वार्थपरिबृंहितम् ॥३॥
+
 > jijñāsitaṁ susampannam
 > api te mahad-adbhutam
 > kṛtavān bhārataṁ yas tvaṁ

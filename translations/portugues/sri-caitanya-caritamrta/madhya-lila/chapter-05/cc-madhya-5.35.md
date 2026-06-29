@@ -1,5 +1,8 @@
 ### CC Madhya 5.35
 
+> দেশে আসি’ দুইজনে গেলা নিজ-ঘরে ।
+> কত দিনে বড়-বিপ্র চিন্তিত অন্তরে ॥৩৫॥
+
 deśe āsi' dui-jane gelā nija-ghare
 
 kata dine baḍa-vipra cintita antare

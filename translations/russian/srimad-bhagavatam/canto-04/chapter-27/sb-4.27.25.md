@@ -1,5 +1,8 @@
 ### SB 4.27.25
 
+> द्वाविमावनुशोचन्ति बालावसदवग्रहौ ।
+> यल्लोकशास्त्रोपनतं न राति न तदिच्छति ॥२५॥
+
 > dvāv imāv anuśocanti
 > bālāv asad-avagrahau
 > yal loka-śāstropanataṁ

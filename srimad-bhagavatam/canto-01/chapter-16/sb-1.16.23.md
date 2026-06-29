@@ -1,5 +1,8 @@
 ### SB 1.16.23
 
+> यद्वाम्ब ते भूरिभरावतार कृतावतारस्य हरेर्धरित्रि ।
+> अन्तर्हितस्य स्मरती विसृष्टा कर्माणि निर्वाणविलम्बितानि ॥२३॥
+
 > yadvāmba te bhūri-bharāvatāra-
 > kṛtāvatārasya harer dharitri
 > antarhitasya smaratī visṛṣṭā

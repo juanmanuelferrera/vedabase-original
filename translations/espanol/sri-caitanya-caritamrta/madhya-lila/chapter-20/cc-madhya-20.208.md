@@ -1,5 +1,8 @@
 ### CC Madhya 20.208
 
+> ইঁহার মধ্যে যাহার হয় আকার-বেশ-ভেদ ।
+> সেই সেই হয় বিলাস-বৈভব-বিভেদ ॥২০৮॥
+
 > iṅhāra madhye yāhāra haya ākāra-veśa-bheda
 > sei sei haya vilāsa-vaibhava-vibheda
 

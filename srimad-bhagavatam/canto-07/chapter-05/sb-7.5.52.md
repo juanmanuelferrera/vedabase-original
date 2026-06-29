@@ -1,5 +1,8 @@
 ### SB 7.5.52
 
+> धर्ममर्थं च कामं च नितरां चानुपूर्वशः
+> प्रह्रादायोचतू राजन्प्रश्रितावनताय च ॥५२॥
+
 > dharmam arthaṁ ca kāmaṁ ca
 > nitarāṁ cānupūrvaśaḥ
 > prahrādāyocatū rājan

@@ -1,5 +1,8 @@
 ### SB 3.24.42
 
+> व्रतं स आस्थितो मौनमात्मैकशरणो मुनिः ।
+> निःसङ्गो व्यचरत्क्षोणीमनग्निरनिकेतनः ॥४२॥
+
 > vrataṁ sa āsthito maunam
 > ātmaika-śaraṇo muniḥ
 > niḥsaṅgo vyacarat kṣoṇīm

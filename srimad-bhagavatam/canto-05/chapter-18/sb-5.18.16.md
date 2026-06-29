@@ -1,5 +1,7 @@
 ### SB 5.18.16
 
+> अतीव सुललितगतिविलासविलसितरुचिरहासलेशावलोकलीलयाकिञ्चिदुत्तम्भितसुन्दरभ्रूमण्डलसुभगवदनारविन्दश्रिया रमां रमयन्निन्द्रियाणि रमयते ॥१६॥
+
 > atīva sulalita-gati-vilāsa-vilasita-rucira-hāsa-leśāvaloka-līlayā kiñcid-uttambhita-sundara-bhrū-maṇḍala-subhaga-vadanāravinda-śriyā ramāṁ ramayann indriyāṇi ramayate.
 
 *atīva*—very much; *su-lalita*—beautiful; *gati*—with movements; *vilāsa*—by pastimes; *vilasita*—manifested; *rucira*—pleasing; *hāsa-leśa*—mild smiling; *avaloka-līlayā*—by playful glancing; *kiñcit-uttambhita*—slightly raised; *sundara*—beautiful; *bhrū-maṇḍala*—by the eyebrows; *subhaga*—auspicious; *vadana-aravinda-śriyā*—with His beautiful lotuslike face; *ramām*—the goddess of fortune; *ramayan*—pleasing; *indriyāṇi*—all the senses; *ramayate*—He pleases.

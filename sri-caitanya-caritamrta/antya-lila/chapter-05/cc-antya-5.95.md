@@ -1,5 +1,8 @@
 ### CC Antya 5.95
 
+> গীত, শ্লোক, গ্রন্থ, কবিত্ব — যেই করি’ আনে ।
+> প্রথমে শুনায় সেই স্বরূপের স্থানে ॥৯৫॥
+
 > gīta, śloka, grantha, kavitva—yei kari' āne
 > prathame śunāya sei svarūpera sthāne
 

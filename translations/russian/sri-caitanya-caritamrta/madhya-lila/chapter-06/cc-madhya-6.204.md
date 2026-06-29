@@ -1,5 +1,8 @@
 ### CC Madhya 6.204
 
+> দেখি’ সার্বভৌম দণ্ডবৎ করি’ পড়ি’ ।
+> পুনঃ উঠি’ স্তুতি করে দুই কর যুড়ি’ ॥২০৪॥
+
 > dekhi' sārvabhauma daṇḍavat kari' paḍi'
 > punaḥ uṭhi' stuti kare dui kara yuḍi'
 

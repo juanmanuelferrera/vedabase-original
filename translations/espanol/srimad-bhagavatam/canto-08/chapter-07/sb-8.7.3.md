@@ -1,5 +1,8 @@
 ### SB 8.7.3
 
+> तन्नैच्छन्दैत्यपतयो महापुरुषचेष्टितम
+> न गृह्णीमो वयं पुच्छमहेरङ्गममङ्गलम ॥३॥
+
 > tan naicchan daitya-patayo
 > mahā-puruṣa-ceṣṭitam
 > na gṛhṇīmo vayaṁ puccham

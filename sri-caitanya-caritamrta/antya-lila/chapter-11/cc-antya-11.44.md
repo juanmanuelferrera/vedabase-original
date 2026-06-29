@@ -1,5 +1,8 @@
 ### CC Antya 11.44
 
+> তবে মহাপ্রভু তাঁরে করি’ আলিঙ্গন ।
+> মধ্যাহ্ন করিতে সমুদ্রে করিলা গমন ॥৪৪॥
+
 > tabe mahāprabhu tāṅre kari' āliṅgana
 > madhyāhna karite samudre karilā gamana
 

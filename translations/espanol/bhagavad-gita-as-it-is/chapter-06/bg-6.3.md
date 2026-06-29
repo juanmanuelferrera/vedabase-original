@@ -1,5 +1,8 @@
 ### Bg 6.3
 
+> आरुरुक्षोर्मुनेर्योगं कर्म कारणमुच्यते ।
+> योगारूढस्य तस्यैव शमः कारणमुच्यते ॥३॥
+
 > ārurukṣor muner yogaṁ
 > karma kāraṇam ucyate
 > yogārūḍhasya tasyaiva

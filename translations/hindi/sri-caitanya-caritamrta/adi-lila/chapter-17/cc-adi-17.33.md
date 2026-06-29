@@ -1,5 +1,8 @@
 ### CC Adi 17.33
 
+> প্রভু-আজ্ঞায় কর এই শ্লোক আচরণ ।
+> অবশ্য পাইবে তবে শ্রীকৃষ্ণ-চরণ ॥৩৩॥
+
 > prabhu-ājñāya kara ei śloka ācaraṇa
 > avaśya pāibe tabe śrī-kṛṣṇa-caraṇa
 

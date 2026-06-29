@@ -1,5 +1,7 @@
 ### SB 5.26.21
 
+> यस्त्विह वै सर्वाभिगमस्तममुत्र निरये वर्तमानं वज्रकण्टकशाल्मलीमारोप्यनिष्कर्षन्ति ॥२०॥
+
 > yas tv iha vai sarvābhigamas tam amutra niraye vartamānaṁ vajrakaṇṭaka-śālmalīm āropya niṣkarṣanti.
 
 *yaḥ*—anyone who; *tu*—but; *iha*—in this life; *vai*—indeed; *sarva-abhigamaḥ*—indulges in sex life indiscriminately, with both men and animals; *tam*—him; *amutra*—in the next life; *niraye*—in the hell; *vartamānam*—existing; *vajrakaṇṭaka-śālmalīm*—a silk-cotton tree with thorns like thunderbolts; *āropya*—mounting him on; *niṣkarṣanti*—they pull him out.

@@ -1,5 +1,8 @@
 ### CC Madhya 7.50
 
+> তাহার বিনয়ে প্ৰভুর শিথিল হৈল মন ৷
+> রহিল দিবস কথো, না কৈল গমন ৷৷ ৫০ ৷৷ ॥৫০॥
+
 tāhāra vinaye prabhura śithila haila mana
 
 rahila divasa katho, nā kaila gamana

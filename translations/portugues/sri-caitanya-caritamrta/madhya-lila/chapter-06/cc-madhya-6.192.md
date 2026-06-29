@@ -1,5 +1,8 @@
 ### CC Madhya 6.192
 
+> কিন্তু তুমি অর্থ কৈলে পাণ্ডিত্য-প্রতিভায় ।
+> ইহা বই শ্লোকের আছে আরো অভিপ্রায় ॥১৯২॥
+
 kintu tumi artha kaile pāṇḍitya-pratibhāya
 ihā va-i ślokera āche āro abhiprāya
 

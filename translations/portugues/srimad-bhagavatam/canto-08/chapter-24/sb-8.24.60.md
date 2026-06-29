@@ -1,5 +1,8 @@
 ### SB 8.24.60
 
+> अवतारं हरेर्योऽयं कीर्तयेदन्वहं नरः
+> सङ्कल्पास्तस्य सिध्यन्ति स याति परमां गतिम ॥६०॥
+
 avatāraṁ harer yo 'yaṁ
 kīrtayed anvahaṁ naraḥ
 saṅkalpās tasya sidhyanti

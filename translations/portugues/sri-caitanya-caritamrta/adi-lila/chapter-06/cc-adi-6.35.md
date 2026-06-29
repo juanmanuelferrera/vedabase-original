@@ -1,5 +1,8 @@
 ### CC Adi 6.35
 
+> যাঁর দ্বারা কৈল প্রভু কীর্তন প্রচার ।
+> যাঁর দ্বারা কৈল প্রভু জগৎ নিস্তার ॥৩৫॥
+
 yāṅra dvārā kaila prabhu kīrtana pracāra
 yāṅra dvārā kaila prabhu jagat nistāra
 

@@ -1,5 +1,8 @@
 ### CC Antya 4.60
 
+> দেহত্যাগাদি তমো-ধর্ম — পাতক-কারণ ।
+> সাধক না পায় তাতে কৃষ্ণের চরণ ॥৬০॥
+
 > deha-tyāgādi tamo-dharma—pātaka-kāraṇa
 > sādhaka nā pāya tāte kṛṣṇera caraṇa
 

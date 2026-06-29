@@ -1,5 +1,8 @@
 ### CC Madhya 12.123
 
+> সেই জল লঞা আপনে পান কৈল  ।
+> তাহা দেখি’ প্রভুর মনে দুঃখ রোষ হৈল ॥১২৩॥
+
 > sei jala lañā āpane pāna kaila
 > tāhā dekhi' prabhura mane duḥkha roṣa haila
 

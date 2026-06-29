@@ -1,5 +1,8 @@
 ### CC Antya 14.110
 
+> হেনকালে তুমি-সব কোলাহল কৈলা ।
+> তাহাঁ হৈতে ধরি’ মোরে ইহাঁ লঞা আইলা ॥১১০॥
+
 > hena-kāle tumi-saba kolāhala kailā
 > tāhāṅ haite dhari' more ihāṅ lañā āilā
 

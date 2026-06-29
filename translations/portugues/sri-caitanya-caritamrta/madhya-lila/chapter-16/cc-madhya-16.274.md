@@ -1,5 +1,8 @@
 ### CC Madhya 16.274
 
+> বৃন্দাবন যাব কাহাঁ ‘একাকী’ হঞা !
+> সৈন্য সঙ্গে চলিয়াছি ঢাক বাজাঞা ! ॥ ২৭৪ ॥
+
 vṛndāvana yāba kāhāṅ 'ekākī' hañā!
 
 sainya saṅge caliyāchi ḍhāka bājāñā!

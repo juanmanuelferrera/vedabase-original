@@ -1,5 +1,8 @@
 ### SB 6.2.38
 
+> ममाहमिति देहादौ हित्वामिथ्यार्थधीर्मतिम
+> धास्ये मनो भगवति शुद्धं तत्कीर्तनादिभिः ॥३८॥
+
 > mamāham iti dehādau
 > hitvāmithyārtha-dhīr matim
 > dhāsye mano bhagavati

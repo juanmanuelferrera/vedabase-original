@@ -1,5 +1,8 @@
 ### CC Antya 8.55
 
+> সকল বৈষ্ণবে গোবিন্দ কহে এই বাত্ ।
+> শুনি’ সবার মাথে যৈছে হৈল বজ্রাঘাত ॥৫৫॥
+
 sakala vaiṣṇave govinda kahe ei vāt
 
 śuni' sabāra māthe yaiche haila vajrāghāta

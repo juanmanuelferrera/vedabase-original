@@ -1,5 +1,8 @@
 ### CC Antya 6.195
 
+> প্রভু কহেন, — “তোমার পিতা-জ্যেঠা দুই জনে ।
+> চক্রবর্তী-সম্বন্ধে হাম ‘আজা’ করি’ মানে ॥১৯৫॥
+
 > prabhu kahena,—"tomāra pitā-jyeṭhā dui jane
 > cakravarti-sambandhe hāma 'ājā' kari' māne
 

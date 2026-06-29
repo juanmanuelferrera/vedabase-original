@@ -1,5 +1,10 @@
 ### SB 3.16.12
 
+> तन्मे स्वभर्तुरवसायमलक्षमाणौ
+> युष्मद्व्यतिक्रमगतिं प्रतिपद्य सद्यः ।
+> भूयो ममान्तिकमितां तदनुग्रहो मे
+> यत्कल्पतामचिरतो भृतयोर्विवासः ॥१२॥
+
 *tan me sva*-bhartur avasāyam alakṣamāṇau
 *yuṣmad*-vyatikrama-gatiṁ pratipadya sadyaḥ
 bhūyo mamāntikam itāṁ tad anugraho me

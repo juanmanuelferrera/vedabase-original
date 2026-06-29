@@ -1,5 +1,8 @@
 ### CC Madhya 25.68
 
+> কম্প, স্বরভঙ্গ, স্বেদ, বৈবর্ণ, স্তম্ভ ।
+> অশ্রুধারায় ভিজে লোক, পুলক-কদম্ব ॥৬৮॥
+
 > kampa, svara-bhaṅga, sveda, vaivarṇya, stambha
 > aśru-dhārāya bhije loka, pulaka-kadamba
 

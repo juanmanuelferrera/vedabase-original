@@ -1,5 +1,8 @@
 ### CC Madhya 3.186
 
+> শুনি’ ভক্তগণ তাঁরে করিল স্তবন ।
+> বেদ-আজ্ঞা যৈছে, মাতা, তোমার বচন ॥১৮৬॥
+
 śuni' bhakta-gaṇa tāṅre karila stavana
 
 veda-ājñā yaiche, mātā, tomāra vacana

@@ -1,5 +1,8 @@
 ### SB 8.16.5
 
+> अपि वाकुशलं किञ्चिद्गृहेषु गृहमेधिनि
+> धर्मस्यार्थस्य कामस्य यत्र योगो ह्ययोगिनाम ॥५॥
+
 > api vākuśalaṁ kiñcid
 > gṛheṣu gṛha-medhini
 > dharmasyārthasya kāmasya

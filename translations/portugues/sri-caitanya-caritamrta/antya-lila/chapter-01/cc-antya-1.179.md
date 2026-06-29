@@ -1,5 +1,8 @@
 ### CC Antya 1.179
 
+> “কাঁহা তোমার কৃষ্ণরসকাব্য-সুধাসিন্ধু  ।
+> তার মধ্যে মিথ্যা কেনে স্তুতি-ক্ষারবিন্দু” ॥১৭৯॥
+
 kāṅhā tomāra kṛṣṇa-rasa-kāvya-sudhā-sindhu
 
 tāra madhye mithyā kene stuti-kṣāra-bindu

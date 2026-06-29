@@ -1,5 +1,8 @@
 ### SB 6.4.26
 
+> यदोपरामो मनसो नामरूप रूपस्य दृष्टस्मृतिसम्प्रमोषात
+> य ईयते केवलया स्वसंस्थया हंसाय तस्मै शुचिसद्मने नमः ॥२६॥
+
 > yadoparāmo manaso nāma-rūpa-
 > rūpasya dṛṣṭa-smṛti-sampramoṣāt
 > ya īyate kevalayā sva-saṁsthayā

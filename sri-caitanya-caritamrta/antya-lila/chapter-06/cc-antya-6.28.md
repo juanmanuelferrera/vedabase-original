@@ -1,5 +1,8 @@
 ### CC Antya 6.28
 
+> পালক হঞা পাল্যেরে তাড়িতে না যুয়ায়  ।
+> তুমি সর্বশাস্ত্র জান ‘জিন্দাপীর’-প্রায় ।।” ২৮ ॥২৮॥
+
 > pālaka hañā pālyere tāḍite nā yuyāya
 > tumi sarva-śāstra jāna jindā-pīra'-prāya"
 

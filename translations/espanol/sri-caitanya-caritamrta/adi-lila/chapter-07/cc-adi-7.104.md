@@ -1,5 +1,8 @@
 ### CC Adi 7.104
 
+> তোমার বচন শুনি’ জুড়ায় শ্রবণ ।
+> তোমার মাধুরী দেখি’ জুড়ায় নয়ন ॥১০৪॥
+
 > tomāra vacana śuni' juḍāya śravaṇa
 > tomāra mādhurī dekhi' juḍāya nayana
 

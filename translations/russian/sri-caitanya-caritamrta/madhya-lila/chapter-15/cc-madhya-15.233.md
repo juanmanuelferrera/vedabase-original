@@ -1,5 +1,8 @@
 ### CC Madhya 15.233
 
+> উদ্যোগ না ছিল মোর গৃহিণীর রন্ধনে ।
+> যাঁর শক্ত্যে ভোগ সিদ্ধ, সেই তাহা জানে ॥২৩৩॥
+
 > udyoga nā chila mora gṛhiṇīra randhane
 > yāṅra śaktye bhoga siddha, sei tāhā jāne
 

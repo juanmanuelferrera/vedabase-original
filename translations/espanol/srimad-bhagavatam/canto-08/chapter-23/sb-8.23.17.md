@@ -1,5 +1,8 @@
 ### SB 8.23.17
 
+> तथापि वदतो भूमन्करिष्याम्यनुशासनम
+> एतच्छ्रेयः परं पुंसां यत्तवाज्ञआनुपालनम ॥१७॥
+
 > tathāpi vadato bhūman
 > kariṣyāmy anuśāsanam
 > etac chreyaḥ paraṁ puṁsāṁ

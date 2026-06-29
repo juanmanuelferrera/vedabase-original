@@ -1,5 +1,8 @@
 ### CC Madhya 9.107
 
+> সেই বিপ্র মহাপ্রভুর বড় ভক্ত হৈল ৷
+> চারি মাস প্রভু-সঙ্গ কভু না ছাড়িল ৷৷ ১০৭ ৷৷ ॥১০৭॥
+
 > sei vipra mahāprabhura baḍa bhakta haila
 > cāri māsa prabhu-saṅga kabhu nā chāḍila
 

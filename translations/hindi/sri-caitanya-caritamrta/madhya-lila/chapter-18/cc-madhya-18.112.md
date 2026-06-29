@@ -1,5 +1,8 @@
 ### CC Madhya 18.112
 
+> সন্ন্যাসী — চিত্কণ জীব, কিরণ-কণ-সম ।
+> ষড়ৈশ্বর্যপূর্ণ কৃষ্ণ হয় সূর্যোপম ॥১১২॥
+
 > sannyāsī--cit-kaṇa jīva, kiraṇa-kaṇa-sama
 > ṣaḍ-aiśvarya-pūrṇa kṛṣṇa haya sūryopama
 

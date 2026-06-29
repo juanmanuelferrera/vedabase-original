@@ -1,5 +1,8 @@
 ### CC Madhya 15.118
 
+> ভক্তের মহিমা প্রভু কহিতে পায় সুখ ।
+> ভক্তের মহিমা কহিতে হয় পঞ্চমুখ ॥১১৮॥
+
 > bhaktera mahimā prabhu kahite pāya sukha
 > bhaktera mahimā kahite haya pañca-mukha
 

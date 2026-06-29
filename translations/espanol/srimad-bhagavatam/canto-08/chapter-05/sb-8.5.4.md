@@ -1,5 +1,8 @@
 ### SB 8.5.4
 
+> पत्नी विकुण्ठा शुभ्रस्य वैकुण्ठैः सुरसत्तमैः
+> तयोः स्वकलया जज्ञए वैकुण्ठो भगवान्स्वयम ॥४॥
+
 > patnī vikuṇṭhā śubhrasya
 > vaikuṇṭhaiḥ sura-sattamaiḥ
 > tayoḥ sva-kalayā jajñe

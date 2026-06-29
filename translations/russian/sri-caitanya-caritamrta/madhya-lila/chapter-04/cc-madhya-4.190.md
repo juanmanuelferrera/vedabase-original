@@ -1,5 +1,8 @@
 ### CC Madhya 4.190
 
+> এই ভক্তি, ভক্তপ্রিয়-কৃষ্ণ-ব্যবহার ।
+> বুঝিতেও আমা-সবার নাহি অধিকার ॥১৯০॥
+
 > ei bhakti, bhakta-priya-kṛṣṇa-vyavahāra
 > bujhiteo āmā-sabāra nāhi adhikāra
 

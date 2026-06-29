@@ -1,5 +1,10 @@
 ### SB 2.7.36
 
+> कालेन मीलितधियामवमृश्य न्णां
+> स्तोकायुषां स्वनिगमो बत दूरपारः ।
+> आविर्हितस्त्वनुयुगं स हि सत्यवत्यां
+> वेदद्रुमं विटपशो विभजिष्यति स्म ॥३६॥
+
 > kālena mīlita-dhiyām avamṛśya nṝṇāṁ
 > stokāyuṣāṁ sva-nigamo bata dūra-pāraḥ
 > āvirhitas tv anuyugaṁ sa hi satyavatyāṁ

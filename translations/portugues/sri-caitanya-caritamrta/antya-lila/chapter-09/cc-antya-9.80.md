@@ -1,5 +1,8 @@
 ### CC Antya 9.80
 
+> এত বলি’ কাশীমিশ্র গেলা স্ব-মন্দিরে ।
+> মধ্যাহ্নে প্রতাপরুদ্র আইলা তাঁর ঘরে ॥৮০॥
+
 eta bali' kāśī-miśra gelā sva-mandire
 
 madhyāhne pratāparudra āilā tāṅra ghare

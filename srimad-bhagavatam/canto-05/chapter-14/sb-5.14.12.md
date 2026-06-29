@@ -1,5 +1,7 @@
 ### SB 5.14.12
 
+> स यदा दुग्धपूर्वसुकृतस्तदा कारस्करकाकतुण्डाद्यपुण्यद्रुमलताविषोदपानवदुभयार्थशून्यद्रविणान्जीवन्मृतान्स्वयं जीवन्म्रियमाण उपधावति ॥१२॥
+
 > sa yadā dugdha-pūrva-sukṛtas tadā kāraskara-kākatuṇḍādy-apuṇya-druma-latā-viṣoda-pānavad ubhayārtha-śūnya-draviṇān jīvan-mṛtān svayaṁ jīvan-mriyamāṇa upadhāvati.
 
 *saḥ*—that conditioned soul; *yadā*—when; *dugdha*—exhausted; *pūrva*—previous; *sukṛtaḥ*—pious activities; *tadā*—at that time; *kāraskara-kākatuṇḍa-ādi*—named *kāraskara, kākatuṇḍa,* etc.; *apuṇya-druma-latā*—impious trees and creepers; *viṣa-uda-pāna-vat*—like wells with poisonous water; *ubhaya-artha-śūnya*—which cannot give happiness either in this life or in the next; *draviṇān*—those who possess wealth; *jīvat-mṛtān*—who are dead, although apparently alive; *svayam*—he himself; *jīvat*—living; *mriyamāṇaḥ*—being dead; *upadhāvati*—approaches for material acquisition.

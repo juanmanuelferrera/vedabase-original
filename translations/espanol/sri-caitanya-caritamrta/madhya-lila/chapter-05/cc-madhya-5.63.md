@@ -1,5 +1,8 @@
 ### CC Madhya 5.63
 
+> এত শুনি’ লোকের মনে হইল সংশয় ।
+> ‘সম্ভবে, — ধনলোভে লোক ছাড়ে ধর্মভয় ।।’ ॥ ৬৩ ॥
+
 > eta śuni' lokera mane ha-ila saṁśaya
 > 'sambhave,--dhana-lobhe loka chāḍe dharma-bhaya'
 

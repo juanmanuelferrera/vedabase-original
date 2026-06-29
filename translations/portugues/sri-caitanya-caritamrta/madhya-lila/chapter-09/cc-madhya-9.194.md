@@ -1,5 +1,8 @@
 ### CC Madhya 9.194
 
+> অপ্রাকৃত বস্তু নহে প্রাকৃত-গোচর ৷
+> বেদ-পুরাণেতে এই কহে নিরন্তর ৷৷ ১৯৪ ৷৷ ॥১৯৪॥
+
 aprākṛta vastu nahe prākṛta-gocara
 veda-purāṇete ei kahe nirantara
 

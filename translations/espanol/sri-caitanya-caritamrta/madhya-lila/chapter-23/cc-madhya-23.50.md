@@ -1,5 +1,8 @@
 ### CC Madhya 23.50
 
+> দ্বিবিধ ‘বিভাব’, — আলম্বন, উদ্দীপন ।
+> বংশীস্বরাদি — ‘উদ্দীপন,’ কৃষ্ণাদি — ‘আলম্বন’ ॥৫০॥
+
 > dvividha 'vibhāva',--ālambana, uddīpana
 > vaṁśī-svarādi--'uddīpana', kṛṣṇādi--'ālambana'
 

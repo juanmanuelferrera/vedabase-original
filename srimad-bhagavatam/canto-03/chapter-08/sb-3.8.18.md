@@ -1,5 +1,8 @@
 ### SB 3.8.18
 
+> क एष योऽसावहमब्जपृष्ठ एतत्कुतो वाब्जमनन्यदप्सु ।
+> अस्ति ह्यधस्तादिह किञ्चनैतदधिष्ठितं यत्र सता नु भाव्यम् ॥१८॥
+
 > ka eṣa yo 'sāv aham abja-pṛṣṭha
 > etat kuto vābjam ananyad apsu
 > asti hy adhastād iha kiñcanaitad

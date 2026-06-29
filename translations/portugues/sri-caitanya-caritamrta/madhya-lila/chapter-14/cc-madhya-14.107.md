@@ -1,5 +1,8 @@
 ### CC Madhya 14.107
 
+> কল্য ‘হেরা-পঞ্চমী’ হবে লক্ষ্মীর বিজয়  ।
+> ঐছে উৎসব কর যেন কভু নাহি হয় ॥১০৭॥
+
 kalya 'herā-pañcamī' habe lakṣmīra vijaya
 
 aiche utsava kara yena kabhu nāhi haya

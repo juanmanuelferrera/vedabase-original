@@ -1,5 +1,8 @@
 ### CC Adi 7.137
 
+> মুখ্যার্থ ব্যাখ্যা কর, দেখি তোমার বল ।’
+> মুখ্যার্থে লাগাল প্রভু সূত্রসকল ॥১৩৭॥
+
 mukhyārtha vyākhyā kara, dekhi tomāra bala'
 
 mukhyārthe lāgāla prabhu sūtra-sakala

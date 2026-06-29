@@ -1,5 +1,8 @@
 ### CC Adi 11.20
 
+> মুরারি-চৈতন্যদাসের অলৌকিক লীলা ।
+> ব্যাঘ্র-গালে চড় মারে, সর্প-সনে খেলা ॥২০॥
+
 > murāri-caitanya-dāsera alaukika līlā
 > vyāghra-gāle caḍa māre, sarpa-sane khelā
 

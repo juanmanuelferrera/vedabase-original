@@ -1,5 +1,8 @@
 ### CC Antya 8.61
 
+> গোবিন্দ-কাশীশ্বরে প্রভু কৈলা আজ্ঞাপন ।
+> ‘দুঁহে অন্যত্র মাগি’ কর উদর ভরণ’ ॥৬১॥
+
 > govinda-kāśīśvare prabhu kailā ājñāpana
 > 'duṅhe anyatra māgi' kara udara bharaṇa'
 

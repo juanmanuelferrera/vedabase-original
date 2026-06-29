@@ -1,5 +1,8 @@
 ### CC Madhya 8.56
 
+> নমস্কার কৈল রায়, প্রভু কৈল আলিঙ্গনে ।
+> দুই জনে কৃষ্ণ-কথা কয় রহঃস্থানে ॥৫৬॥
+
 > namaskāra kaila rāya, prabhu kaila āliṅgane
 > dui jane kṛṣṇa-kathā kaya rahaḥ-sthāne
 

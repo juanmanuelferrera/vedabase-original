@@ -1,5 +1,8 @@
 ### CC Madhya 24.344
 
+> ‘সামান্য’ সদাচার, আর ‘বৈষ্ণব’-আচার ।
+> কর্তব্যাকর্তব্য সব ‘স্মার্ত’ ব্যবহার ॥৩৪৪॥
+
 'sāmānya' sad-ācāra, āra 'vaiṣṇava'-ācāra
 
 kartavyākartavya saba 'smārta' vyavahāra

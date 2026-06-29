@@ -1,5 +1,8 @@
 ### CC Madhya 16.205
 
+> একদিন প্রভু তথা করিয়া নিবাস ।
+> প্রাতে কুমারহট্টে আইলা, — যাহাঁ শ্রীনিবাস ॥২০৫॥
+
 > eka-dina prabhu tathā kariyā nivāsa
 > prāte kumārahaṭṭe āilā,--yāhāṅ śrīnivāsa
 

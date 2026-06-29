@@ -1,5 +1,8 @@
 ### CC Madhya 10.171
 
+> এই সব নামের ইঁহ হয় নিজাস্পদ ।
+> চন্দনাক্ত প্রসাদ-ডোর — শ্রীভুজে অঙ্গদ ॥১৭১॥
+
 > ei saba nāmera iṅha haya nijāspada
 > candanākta prasāda-ḍora-śrī-bhuje aṅgada
 

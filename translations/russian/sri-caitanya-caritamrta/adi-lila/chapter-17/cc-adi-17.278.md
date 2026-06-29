@@ -1,5 +1,8 @@
 ### CC Adi 17.278
 
+> গোপিকা-ভাবের এই সুদৃঢ় নিশ্চয় ।
+> ব্রজেন্দ্রনন্দন বিনা অন্যত্র না হয় ॥২৭৮॥
+
 > gopikā-bhāvera ei sudṛḍha niścaya
 > vrajendra-nandana vinā anyatra nā haya
 

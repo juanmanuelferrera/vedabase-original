@@ -1,5 +1,8 @@
 ### CC Madhya 7.134
 
+> এইমত সেই রাত্রি তাহাঁই রহিলা ।
+> প্রাতঃকালে প্রভু স্নান করিয়া চলিলা ॥১৩৪॥
+
 > ei-mata sei rātri tāhāṅi rahilā
 > prātaḥ-kāle prabhu snāna kariyā calilā
 

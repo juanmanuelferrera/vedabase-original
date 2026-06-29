@@ -1,5 +1,8 @@
 ### CC Madhya 6.71
 
+> গোপীনাথ কহে, — নাম শ্রীকৃষ্ণচৈতন্য ।
+> গুরু ইঁহার কেশব-ভারতী মহাধন্য ॥৭১॥
+
 > gopīnātha kahe,--nāma śrī-kṛṣṇa-caitanya
 > guru iṅhāra keśava-bhāratī mahā-dhanya
 

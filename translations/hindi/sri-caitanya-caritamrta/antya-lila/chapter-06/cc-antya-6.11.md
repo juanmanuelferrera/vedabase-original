@@ -1,5 +1,8 @@
 ### CC Antya 6.11
 
+> এই দুই জনার সৌভাগ্য কহন না যায় ।
+> প্রভুর ‘অন্তরঙ্গ’ বলি’ যাঁরে লোকে গায় ॥১১॥
+
 > ei dui janāra saubhāgya kahana nā yāya
 > prabhura 'antaraṅga' bali' yāṅre loke gāya
 

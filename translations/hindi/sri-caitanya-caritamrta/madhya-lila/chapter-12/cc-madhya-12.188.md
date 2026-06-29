@@ -1,5 +1,8 @@
 ### CC Madhya 12.188
 
+> অদ্বৈত-নিত্যানন্দ বসিয়াছেন এক ঠাঞি ।
+> দুইজনে ক্রীড়া-কলহ লাগিল তথাই ॥১৮৮॥
+
 > advaita-nityānanda vasiyāchena eka ṭhāñi
 > dui-jane krīḍā-kalaha lāgila tathāi
 

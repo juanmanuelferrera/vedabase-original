@@ -1,5 +1,8 @@
 ### CC Antya 10.156
 
+> প্রথমে আছিল ‘নির্বন্ধ’ কৌড়ি চারিপণ ।
+> রামচন্দ্রপুরী-ভয়ে ঘাটাইলা নিমন্ত্রণ ॥১৫৬॥
+
 prathame āchila 'nirbandha' kauḍi cāri-paṇa
 
 rāmacandra-purī-bhaye ghāṭāilā nimantraṇa

@@ -1,5 +1,10 @@
 ### SB 8.12.10
 
+> नाहं परायुरृषयो न मरीचिमुख्या
+> जानन्ति यद्विरचितं खलु सत्त्वसर्गाः
+> यन्मायया मुषितचेतस ईश दैत्य
+> मर्त्यादयः किमुत शश्वदभद्रवृत्ताः ॥१०॥
+
 > nāhaṁ parāyur ṛṣayo na marīci-mukhyā
 > jānanti yad-viracitaṁ khalu sattva-sargāḥ
 > yan-māyayā muṣita-cetasa īśa daitya-

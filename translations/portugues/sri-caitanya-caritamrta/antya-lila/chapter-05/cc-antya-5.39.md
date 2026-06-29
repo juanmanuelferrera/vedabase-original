@@ -1,5 +1,8 @@
 ### CC Antya 5.39
 
+> স্নানাদি করায়, পরায় বাস-বিভূষণ  ।
+> গুহ্য অঙ্গের হয় তাহা দর্শন-স্পর্শন ॥৩৯॥
+
 snānādi karāya, parāya vāsa-vibhūṣaṇa
 
 guhya aṅgera haya tāhā darśana-sparśana

@@ -1,5 +1,8 @@
 ### CC Madhya 10.153
 
+> এত বলি’ মহাপ্রভু ভক্তগণ-সঙ্গে ।
+> চলি’ আইলা ব্রহ্মানন্দ-ভারতীর আগে ॥১৫৩॥
+
 > eta bali' mahāprabhu bhakta-gaṇa-saṅge
 > cali' āilā brahmānanda-bhāratīra āge
 

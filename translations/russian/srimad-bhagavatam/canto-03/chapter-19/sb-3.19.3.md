@@ -1,5 +1,8 @@
 ### SB 3.19.3
 
+> सा हता तेन गदया विहता भगवत्करात् ।
+> विघूर्णितापतद्रेजे तदद्भुतमिवाभवत् ॥३॥
+
 > sā hatā tena gadayā
 > vihatā bhagavat-karāt
 > vighūrṇitāpatad reje

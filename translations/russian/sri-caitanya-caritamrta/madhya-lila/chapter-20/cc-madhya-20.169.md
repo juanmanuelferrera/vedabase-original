@@ -1,5 +1,8 @@
 ### CC Madhya 20.169
 
+> সৌভর্যাদি-প্রায় সেই কায়ব্যূহ নয় ।
+> কায়ব্যূহ হৈলে নারদের বিস্ময় না হয় ॥১৬৯॥
+
 > saubhary-ādi-prāya sei kāya-vyūha naya
 > kāya-vyūha haile nāradera vismaya nā haya
 

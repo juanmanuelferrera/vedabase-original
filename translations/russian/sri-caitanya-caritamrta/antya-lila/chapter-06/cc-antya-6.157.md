@@ -1,5 +1,8 @@
 ### CC Antya 6.157
 
+> হেনকালে গৌড়দেশের সব ভক্তগণ ।
+> প্রভুরে দেখিতে নীলাচলে করিলা গমন ॥১৫৭॥
+
 > hena-kāle gauḍa-deśera saba bhakta-gaṇa
 > prabhure dekhite nīlācale karilā gamana
 

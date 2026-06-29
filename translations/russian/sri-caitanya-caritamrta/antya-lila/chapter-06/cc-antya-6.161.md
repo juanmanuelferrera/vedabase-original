@@ -1,5 +1,8 @@
 ### CC Antya 6.161
 
+> বাসুদেব-দত্তের তেঁহ হয় ‘অনুগৃহীত’ ।
+> রঘুনাথের ‘গুরু’ তেঁহো হয় ‘পুরোহিত’ ॥১৬১॥
+
 > vāsudeva-dattera teṅha haya 'anugṛhīta'
 > raghunāthera 'guru' teṅho haya 'purohita'
 

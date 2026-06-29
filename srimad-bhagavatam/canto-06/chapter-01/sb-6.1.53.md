@@ -1,5 +1,8 @@
 ### SB 6.1.53
 
+> न हि कश्चित्क्षणमपि जातु तिष्ठत्यकर्मकृत
+> कार्यते ह्यवशः कर्म गुणैः स्वाभाविकैर्बलात ॥५३॥
+
 > na hi kaścit kṣaṇam api
 > jātu tiṣṭhaty akarma-kṛt
 > kāryate hy avaśaḥ karma

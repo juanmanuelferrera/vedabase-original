@@ -1,5 +1,8 @@
 ### SB 8.8.22
 
+> धर्मः क्वचित्तत्र न भूतसौहृदं त्यागः क्वचित्तत्र न मुक्तिकारणम
+> वीर्यं न पुंसोऽस्त्यजवेगनिष्कृतं न हि द्वितीयो गुणसङ्गवर्जितः ॥२२॥
+
 > kvacic cirāyur na hi śīla-maṅgalaṁ
 > kvacit tad apy asti na vedyam āyuṣaḥ
 > yatrobhayaṁ kutra ca so 'py amaṅgalaḥ

@@ -1,5 +1,8 @@
 ### SB 3.13.48
 
+> य एवमेतां हरिमेधसो हरेः कथां सुभद्रां कथनीयमायिनः ।
+> शृण्वीत भक्त्या श्रवयेत वोशतीं जनार्दनोऽस्याशु हृदि प्रसीदति ॥४८॥
+
 > ya evam etāṁ hari-medhaso hareḥ
 > kathāṁ subhadrāṁ kathanīya-māyinaḥ
 > śṛṇvīta bhaktyā śravayeta vośatīṁ

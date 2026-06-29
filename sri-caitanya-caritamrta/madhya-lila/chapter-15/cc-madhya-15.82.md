@@ -1,5 +1,8 @@
 ### CC Madhya 15.82
 
+> পণ্ডিত কহে, — দ্বারে লোক করে গতায়াতে ।
+> তার পদধূলি উড়ি’ লাগে উপর ভিতে ॥৮২॥
+
 > paṇḍita kahe,—dvāre loka kare gatāyāte
 > tāra pada-dhūli uḍi' lāge upara bhite
 

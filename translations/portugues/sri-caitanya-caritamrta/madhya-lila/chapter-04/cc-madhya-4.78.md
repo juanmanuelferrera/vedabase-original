@@ -1,5 +1,8 @@
 ### CC Madhya 4.78
 
+> ইহা অনুভব কৈল মাধব গোসাঞি ।
+> তাঁর ঠাঞি গোপালের লুকান কিছু নাই ॥৭৮॥
+
 ihā anubhava kaila mādhava gosāñi
 
 tāṅra ṭhāñi gopālera lukāna kichu nāi

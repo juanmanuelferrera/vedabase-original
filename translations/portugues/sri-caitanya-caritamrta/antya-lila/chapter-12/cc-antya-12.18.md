@@ -1,5 +1,8 @@
 ### CC Antya 12.18
 
+> সবে গিয়া রহিলা গ্রাম-ভিতর বৃক্ষতলে ।
+> শিবানন্দ বিনা বাসস্থান নাহি মিলে ॥১৮॥
+
 sabe giyā rahilā grāma-bhitara vṛkṣa-tale
 
 śivānanda vinā vāsa-sthāna nāhi mile

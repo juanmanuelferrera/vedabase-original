@@ -1,5 +1,8 @@
 ### SB 1.2.24
 
+> पार्थिवाद्दारुणो धूमस्तस्मादग्निस्त्रयीमयः ।
+> तमसस्तु रजस्तस्मात्सत्त्वं यद्ब्रह्मदर्शनम् ॥२४॥
+
 pārthivād dāruṇo dhūmas
 tasmād agnis trayīmayaḥ
 tamasas tu rajas tasmāt

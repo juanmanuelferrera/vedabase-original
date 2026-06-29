@@ -1,5 +1,8 @@
 ### SB 8.1.8
 
+> सुनन्दायां वर्षशतं पदैकेन भुवं स्पृशन
+> तप्यमानस्तपो घोरमिदमन्वाह भारत ॥८॥
+
 > sunandāyāṁ varṣa-śataṁ
 > padaikena bhuvaṁ spṛśan
 > tapyamānas tapo ghoram

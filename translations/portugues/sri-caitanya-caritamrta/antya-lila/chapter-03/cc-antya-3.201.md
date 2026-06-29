@@ -1,5 +1,8 @@
 ### CC Antya 3.201
 
+> বলাই-পুরোহিত তারে করিলা ভর্ৎসন ।
+> “ঘট-পটিয়া মূর্খ তুঞি ভক্তি কাঁহা জান ? ॥ ২০১ ॥
+
 balāi-purohita tāre karilā bhartsana
 
 "ghaṭa-paṭiyā mūrkha tuñi bhakti kāṅhā jāna?

@@ -1,5 +1,8 @@
 ### CC Antya 10.146
 
+> জগন্নাথের বহুমূল্য প্রসাদ আনাইলা ।
+> ভক্তগণে লঞা প্রভু ভোজনে বসিলা ॥১৪৬॥
+
 jagannāthera bahu-mūlya prasāda ānāilā
 
 bhakta-gaṇe lañā prabhu bhojane vasilā

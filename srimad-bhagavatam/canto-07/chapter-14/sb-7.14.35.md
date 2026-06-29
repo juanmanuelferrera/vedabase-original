@@ -1,5 +1,8 @@
 ### SB 7.14.35
 
+> देवर्ष्यर्हत्सु वै सत्सु तत्र ब्रह्मात्मजादिषु
+> राजन्यदग्रपूजायां मतः पात्रतयाच्युतः ॥३५॥
+
 > devarṣy-arhatsu vai satsu
 > tatra brahmātmajādiṣu
 > rājan yad agra-pūjāyāṁ

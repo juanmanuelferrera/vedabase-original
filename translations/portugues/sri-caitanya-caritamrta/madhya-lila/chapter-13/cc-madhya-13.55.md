@@ -1,5 +1,8 @@
 ### CC Madhya 13.55
 
+> কীর্তন দেখিয়া জগন্নাথ হরষিত ।
+> সংকীর্তন দেখে রথ করিয়া স্থগিত ॥৫৫॥
+
 kīrtana dekhiyā jagannātha haraṣita
 
 saṅkīrtana dekhe ratha kariyā sthagita

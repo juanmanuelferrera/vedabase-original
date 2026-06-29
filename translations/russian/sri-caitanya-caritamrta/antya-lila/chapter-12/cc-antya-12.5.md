@@ -1,5 +1,8 @@
 ### CC Antya 12.5
 
+> ‘হাহা কৃষ্ণ প্রাণনাথ ব্রজেন্দ্রনন্দন !
+> কাহাঁ যাঙ কাহাঁ পাঙ, মুরলীবদন !’ ॥ ৫ ॥
+
 > 'hāhā kṛṣṇa prāṇa-nātha vrajendra-nandana!
 > kāhāṅ yāṅa kāhāṅ pāṅa, muralī-vadana!'
 

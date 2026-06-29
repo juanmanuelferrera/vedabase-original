@@ -1,5 +1,8 @@
 ### CC Adi 2.115
 
+> কেহো কহে, পরব্যোমে নারায়ণ হরি ।
+> সকল সম্ভবে কৃষ্ণে, যাতে অবতারী ॥১১৫॥
+
 > keho kahe, para-vyome nārāyaṇa hari
 > sakala sambhave kṛṣṇe, yāte avatārī
 

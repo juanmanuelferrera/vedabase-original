@@ -1,5 +1,8 @@
 ### CC Antya 5.155
 
+> কৃষ্ণে গালি দিতে করে নাম উচ্চারণ ।
+> সেই নাম হয় তার ‘মুক্তির’ কারণ ।।” ॥ ১৫৫ ॥
+
 kṛṣṇe gāli dite kare nāma uccāraṇa
 
 sei nāma haya tāra 'muktira' kāraṇa"

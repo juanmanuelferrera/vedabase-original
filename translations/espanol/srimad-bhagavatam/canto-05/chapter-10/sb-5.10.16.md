@@ -1,5 +1,8 @@
 ### SB 5.10.16
 
+> कस्त्वं निगूढश्चरसि द्विजानां बिभर्षि सूत्रं कतमोऽवधूतः
+> कस्यासि कुत्रत्य इहापि कस्मात्क्षेमाय नश्चेदसि नोत शुक्लः ॥१६॥
+
 > kas tvaṁ nigūḍhaś carasi dvijānāṁ
 > bibharṣi sūtraṁ katamo 'vadhūtaḥ
 > kasyāsi kutratya ihāpi kasmāt

@@ -1,5 +1,8 @@
 ### CC Adi 3.15
 
+> সকল জগতে মোরে করে বিধি-ভক্তি ।
+> বিধি-ভক্ত্যে ব্রজভাব পাইতে নাহি শক্তি ॥১৫॥
+
 sakala jagate more kare vidhi-bhakti
 vidhi-bhaktye vraja-bhāva pāite nāhi śakti
 

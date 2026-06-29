@@ -1,5 +1,8 @@
 ### CC Antya 4.234
 
+> আজ্ঞা দিলা, — “শীঘ্র তুমি যাহ বৃন্দাবনে ।
+> তোমার বংশে প্রভু দিয়াছেন সেইস্থানে ॥২৩৪॥
+
 ājñā dilā,--"śīghra tumi yāha vṛndāvane
 
 tomāra vaṁśe prabhu diyāchena sei-sthāne

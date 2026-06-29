@@ -1,5 +1,8 @@
 ### CC Madhya 24.163
 
+> উরুক্রমে অহৈতুকী কাহাঁ কোন অর্থ ।
+> এই তের অর্থ কহিলুঁ পরম সমর্থ ॥১৬৩॥
+
 urukrame ahaitukī kāhāṅ kona artha
 
 ei tera artha kahiluṅ parama samartha

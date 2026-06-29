@@ -1,5 +1,8 @@
 ### CC Madhya 20.343
 
+> আর তিনযুগে ধ্যানাদিতে যেই ফল হয় ।
+> কলিযুগে কৃষ্ণনামে সেই ফল পায় ॥৩৪৩॥
+
 āra tina-yuge dhyānādite yei phala haya
 
 kali-yuge kṛṣṇa-nāme sei phala pāya

@@ -1,5 +1,8 @@
 ### CC Madhya 12.32
 
+> যাজ্ঞিক-ব্রাহ্মণী সব তাহাতে প্রমাণ ।
+> কৃষ্ণ লাগি’ পতি-আগে ছাড়িলেক প্রাণ ॥৩২॥
+
 yājñika-brāhmaṇī saba tāhāte pramāṇa
 kṛṣṇa lāgi' pati-āge chāḍileka prāṇa
 

@@ -1,5 +1,8 @@
 ### SB 4.24.52
 
+> पदा शरत्पद्मपलाशरोचिषा नखद्युभिर्नोऽन्तरघं विधुन्वता ।
+> प्रदर्शय स्वीयमपास्तसाध्वसं पदं गुरो मार्गगुरुस्तमोजुषाम् ॥५२॥
+
 > padā śarat-padma-palāśa-rociṣā
 > nakha-dyubhir no 'ntar-aghaṁ vidhunvatā
 > pradarśaya svīyam apāsta-sādhvasaṁ

@@ -1,5 +1,8 @@
 ### CC Antya 7.97
 
+> আভিজাত্যে পণ্ডিত করিতে নারে নিষেধন ।
+> “এ সঙ্কটে রাখ, কৃষ্ণ লইলাঙ শরণ ॥৯৭॥
+
 > ābhijātye paṇḍita karite nāre niṣedhana
 > "e saṅkaṭe rākha, kṛṣṇa la-ilāṅa śaraṇa
 

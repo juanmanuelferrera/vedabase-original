@@ -1,5 +1,8 @@
 ### CC Adi 6.28
 
+> জীব নিস্তারিল কৃষ্ণভক্তি করি’ দান ।
+> গীতা-ভাগবতে কৈল ভক্তির ব্যাখ্যান ॥২৮॥
+
 jīva nistārila kṛṣṇa-bhakti kari' dāna
 gītā-bhāgavate kaila bhaktira vyākhyāna
 

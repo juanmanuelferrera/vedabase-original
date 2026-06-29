@@ -1,5 +1,8 @@
 ### CC Antya 3.73
 
+> যৈছে কৈলা ঝারিখণ্ডে বৃন্দাবন যাইতে ।
+> বলভদ্র-ভট্টাচার্য কহিয়াছেন আমাতে ॥৭৩॥
+
 yaiche kailā jhārikhaṇḍe vṛndāvana yāite
 
 balabhadra-bhaṭṭācārya kahiyāchena āmāte

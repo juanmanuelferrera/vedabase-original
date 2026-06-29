@@ -1,5 +1,8 @@
 ### CC Madhya 7.23
 
+> মুকুন্দ হয়েন দুঃখী দেখি’ সন্ন্যাস-ধর্ম ।
+> তিনবারে শীতে স্নান, ভূমিতে শয়ন ॥২৩॥
+
 > mukunda hayena duḥkhī dekhi' sannyāsa-dharma
 > tinabāre śīte snāna, bhūmite śayana
 

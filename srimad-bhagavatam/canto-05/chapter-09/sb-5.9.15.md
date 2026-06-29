@@ -1,5 +1,7 @@
 ### SB 5.9.15
 
+> अथ पणयस्तं स्वविधिनाभिषिच्याहतेन वाससाच्छाद्य भूषणालेपस्रक्तिलकादिभिरुपस्कृतंभुक्तवन्तं धूपदीपमाल्यलाजकिसलयाङ्कुरफलोपहारोपेतया वैशससंस्थया महता गीतस्तुतिमृदङ्गपणवघोषेण च पुरुषपशुं भद्रकाल्याः पुरत उपवेशयामासुः ॥१५॥
+
 > atha paṇayas taṁ sva-vidhinābhiṣicyāhatena vāsasācchādya bhūṣaṇālepa-srak-tilakādibhir upaskṛtaṁ bhuktavantaṁ dhūpa-dīpa-mālya-lāja-kisalayāṅkura-phalopahāropetayā vaiśasa-saṁsthayā mahatā gīta-stuti-mṛdaṅga-paṇava-ghoṣeṇa ca puruṣa-paśuṁ bhadra-kālyāḥ purata upaveśayām āsuḥ.
 
 *atha*—thereafter; *paṇayaḥ*—all the followers of the dacoit; *tam*—him (Jaḍa Bharata); *sva-vidhinā*—according to their own ritualistic principles; *abhiṣicya*—bathing; *ahatena*—with new; *vāsasā*—garments; *ācchādya*—covering; *bhūṣaṇa*—ornaments; *ālepa*—smearing the body with sandalwood pulp; *srak*—a flower garland; *tilaka-ādibhiḥ*—with markings on the body and so on; *upaskṛtam*—completely decorated; *bhuktavantam*—having eaten; *dhūpa*—with incense; *dīpa*—lamps; *mālya*—garlands; *lāja*—parched grain; *kisalaya-aṅkura*—twigs and sprouts; *phala*—fruits; *upahāra*—other paraphernalia; *upetayā*—fully equipped; *vaiśasa-saṁsthayā*—with complete arrangements for sacrifice; *mahatā*—great; *gīta-stuti*—of songs and prayers; *mṛdaṅga*—of the drums; *paṇava*—of the bugles; *ghoṣeṇa*—by vibration; *ca*—also; *puruṣa-paśum*—the man-animal; *bhadra-kālyāḥ*—of the goddess Kālī; *purataḥ*—just in front; *upaveśayām āsuḥ*—made him sit down.

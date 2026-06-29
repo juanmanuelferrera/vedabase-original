@@ -1,5 +1,8 @@
 ### CC Antya 12.49
 
+> প্রভু-আজ্ঞায় ধরিলা নাম — ‘পরমানন্দ-দাস’ ।
+> ‘পুরীদাস’ করি’ প্রভু করেন উপহাস ॥৪৯॥
+
 > prabhu-ājñāya dharilā nāma—'paramānanda-dāsa'
 > 'purī-dāsa' kari' prabhu karena upahāsa
 

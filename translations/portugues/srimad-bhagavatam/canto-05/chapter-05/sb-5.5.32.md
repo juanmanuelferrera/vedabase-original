@@ -1,5 +1,7 @@
 ### SB 5.5.32
 
+> यर्हि वाव स भगवान्लोकमिमं योगस्याद्धा प्रतीपमिवाचक्षाणस्तत्प्रतिक्रियाकर्मबीभत्सितमिति व्रतमाजगरमास्थितः शयान एवाश्नाति पिबति खादत्यवमेहति हदति स्म चेष्टमानउच्चरित आदिग्धोद्देशः ॥३२॥
+
 *yarhi vāva sa bhagavān lokam imaṁ yogasyāddhā pratīpam ivācakṣāṇas tat*-pratikriyā-karma bībhatsitam iti vratam ājagaram-āsthitaḥ śayāna evāśnāti pibati khādaty avamehati hadati sma ceṣṭamāna uccarita ādigdhoddeśaḥ.
 
 *yarhi vāva*—quando; *saḥ*—Ele; *bhagavān*—a Personalidade de Deus; *lokam*—as pessoas em geral; *imam*—estas; *yogasya*—à execução do yoga; *addhā*—diretamente; *pratīpam*—antagonistas; *iva*—como; *ācakṣāṇaḥ*—observou; *tat*—disso; *pratikriyā*—para contra-ação; *karma*—atividade; *bībhatsitam*—abominável; *iti*—assim; *vratam*—o comportamento; *ājagaram*—de uma jiboia (de permanecer em um lugar); *āsthitaḥ*—aceitando; *śayānaḥ*—deitando-Se; *eva*—de fato; *aśnāti*—come; *pibati*—bebe; *khādati*—mastiga; *avamehati*—urina; *hadati*—evacua; *sma*—assim; *ceṣṭamānaḥ*—rolando; *uccarite*—nas fezes e na urina; *ādigdha-uddeśaḥ*—Seu corpo, assim sujo.

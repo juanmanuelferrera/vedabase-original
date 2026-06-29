@@ -1,5 +1,8 @@
 ### SB 8.3.18
 
+> आत्मात्मजाप्तगृहवित्तजनेषु सक्तैर्दुष्प्रापणाय गुणसङ्गविवर्जिताय
+> मुक्तात्मभिः स्वहृदये परिभाविताय ज्ञआनात्मने भगवते नम ईश्वराय ॥१८॥
+
 ātmātma-jāpta-gṛha-vitta-janeṣu saktair
 duṣprāpaṇāya guṇa-saṅga-vivarjitāya
 muktātmabhiḥ sva-hṛdaye paribhāvitāya

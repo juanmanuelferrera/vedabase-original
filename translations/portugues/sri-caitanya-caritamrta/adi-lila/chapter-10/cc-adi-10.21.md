@@ -1,5 +1,8 @@
 ### CC Adi 10.21
 
+> পণ্ডিত জগদানন্দ প্রভুর প্রাণরূপ ।
+> লোকে খ্যাত যেঁহো সত্যভামার স্বরূপ ॥২১॥
+
 paṇḍita jagadānanda prabhura prāṇa-rūpa
 loke khyāta yeṅho satyabhāmāra svarūpa
 

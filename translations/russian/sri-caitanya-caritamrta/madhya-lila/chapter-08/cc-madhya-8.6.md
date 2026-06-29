@@ -1,5 +1,8 @@
 ### CC Madhya 8.6
 
+> উগ্রোঽপ্যনুগ্র এবায়ং স্বভক্তানাং নৃকেশরী ।
+> কেশরীব স্বপোতানামন্যেষামুগ্রবিক্রমঃ ॥৬॥
+
 > ugro 'py anugra evāyaṁ
 > sva-bhaktānāṁ nṛ-keśarī
 > keśarīva sva-potānām

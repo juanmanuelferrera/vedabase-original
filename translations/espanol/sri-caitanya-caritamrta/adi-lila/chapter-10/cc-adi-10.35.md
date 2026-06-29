@@ -1,5 +1,8 @@
 ### CC Adi 10.35
 
+> শ্রীনৃসিংহ-উপাসক — প্রদ্যুম্ন ব্রহ্মচারী ।
+> প্রভু তাঁর নাম কৈলা ‘নৃসিংহানন্দ’ করি’ ॥৩৫॥
+
 > śrī-nṛsiṁha-upāsaka--pradyumna brahmacārī
 > prabhu tāṅra nāma kailā 'nṛsiṁhānanda' kari'
 

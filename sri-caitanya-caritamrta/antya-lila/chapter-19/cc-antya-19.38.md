@@ -1,5 +1,10 @@
 ### CC Antya 19.38
 
+> এই ব্রজের রমণী, কামার্কতপ্ত-কুমুদিনী,
+> নিজ-করামৃত দিয়া দান ।
+> প্রফুল্লিত করে যেই, কাহাঁ মোর চন্দ্র সেই,
+> দেখাহ, সখি, রাখ মোর প্রাণ ॥৩৮॥
+
 > ei vrajera ramaṇī, kāmārka-tapta-kumudinī,
 > nija-karāmṛta diyā dāna
 > praphullita kare yei, kāhāṅ mora candra sei,

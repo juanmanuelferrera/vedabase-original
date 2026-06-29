@@ -1,5 +1,8 @@
 ### CC Madhya 18.158
 
+> প্রেমী কৃষ্ণদাস, আর সেইত ব্রাহ্মণ ।
+> গঙ্গাতীর-পথে যাইবার বিজ্ঞ দুইজন ॥১৫৮॥
+
 premī kṛṣṇadāsa, āra seita brāhmaṇa
 
 gaṅgā-tīra-pathe yāibāra vijña dui-jana

@@ -1,5 +1,8 @@
 ### SB 7.2.50
 
+> लुब्धको विपिने कश्चित्पक्षिणां निर्मितोऽन्तकः
+> वितत्य जालं विदधे तत्र तत्र प्रलोभयन ॥५०॥
+
 > lubdhako vipine kaścit
 > pakṣiṇāṁ nirmito 'ntakaḥ
 > vitatya jālaṁ vidadhe

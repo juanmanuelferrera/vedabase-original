@@ -1,5 +1,8 @@
 ### CC Madhya 24.333
 
+> গোপীচন্দন-মাল্য-ধৃতি, তুলসী-আহরণ ।
+> বস্ত্র-পীঠ-গৃহ-সংস্কার, কৃষ্ণ-প্রবোধন ॥৩৩৩॥
+
 gopīcandana-mālya-dhṛti, tulasī-āharaṇa
 
 vastra-pīṭha-gṛha-saṁskāra, kṛṣṇa-prabodhana

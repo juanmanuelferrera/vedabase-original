@@ -1,5 +1,8 @@
 ### CC Madhya 19.241
 
+> বৃন্দাবন হৈতে তুমি গৌড়দেশ দিয়া ।
+> আমারে মিলিবা নীলাচলেতে আসিয়া ॥২৪১॥
+
 vṛndāvana haite tumi gauḍa-deśa diyā
 
 āmāre milibā nīlācalete āsiyā

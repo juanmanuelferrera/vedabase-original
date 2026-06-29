@@ -1,5 +1,8 @@
 ### SB 1.14.18
 
+> नद्यो नदाश्च क्षुभिताः सरांसि च मनांसि च ।
+> न ज्वलत्यग्निराज्येन कालोऽयं किं विधास्यति ॥१८॥
+
 > nadyo nadāś ca kṣubhitāḥ
 > sarāṁsi ca manāṁsi ca
 > na jvalaty agnir ājyena

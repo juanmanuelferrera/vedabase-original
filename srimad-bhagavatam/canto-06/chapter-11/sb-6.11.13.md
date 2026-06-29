@@ -1,5 +1,8 @@
 ### SB 6.11.13
 
+> स तं नृपेन्द्राहवकाम्यया रिपुं वज्रायुधं भ्रातृहणं विलोक्य
+> स्मरंश्च तत्कर्म नृशंसमंहः शोकेन मोहेन हसन्जगाद ॥१३॥
+
 > sa taṁ nṛpendrāhava-kāmyayā ripuṁ
 > vajrāyudhaṁ bhrātṛ-haṇaṁ vilokya
 > smaraṁś ca tat-karma nṛ-śaṁsam aṁhaḥ

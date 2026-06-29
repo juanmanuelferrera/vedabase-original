@@ -1,5 +1,8 @@
 ### CC Adi 6.116
 
+> আচার্য-চরণে মোর কোটি নমস্কার ।
+> ইথে কিছু অপরাধ না লবে আমার ॥১১৬॥
+
 > ācārya-caraṇe mora koṭi namaskāra
 > ithe kichu aparādha nā labe āmāra
 

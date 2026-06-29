@@ -1,5 +1,8 @@
 ### CC Madhya 16.99
 
+> প্রসাদ ভোজন করি’ তথায় রহিলা ।
+> প্রাতঃকালে চলি’ প্রভু ‘ভুবনেশ্বর’ আইলা ॥৯৯॥
+
 > prasāda bhojana kari' tathāya rahilā
 > prātaḥ-kāle cali' prabhu 'bhuvaneśvara' āilā
 

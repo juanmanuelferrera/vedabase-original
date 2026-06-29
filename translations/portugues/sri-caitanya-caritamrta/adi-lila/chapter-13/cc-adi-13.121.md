@@ -1,5 +1,10 @@
 ### CC Adi 13.121
 
+> লগ্ন গণি’ হর্ষমতি, নীলাম্বর চক্রবর্তী,
+> গুপ্তে কিছু কহিল মিশ্রেরে ।
+> মহাপুরুষের চিহ্ন, লগ্নে অঙ্গে ভিন্ন ভিন্ন,
+> দেখি, — এই তারিবে সংসারে ॥১২১॥
+
 lagna gaṇi' harṣamati, nīlāmbara cakravartī,
 gupte kichu kahila miśrere
 mahāpuruṣera cihna, lagne aṅge bhinna bhinna,

@@ -1,5 +1,8 @@
 ### CC Madhya 3.63
 
+> হরিদাস কহে — মুঞি পাপিষ্ঠ অধম ।
+> বাহিরে এক মুষ্টি পাছে করিমু ভোজন ॥৬৩॥
+
 > haridāsa kahe—muñi pāpiṣṭha adhama
 > bāhire eka muṣṭi pāche karimu bhojana
 

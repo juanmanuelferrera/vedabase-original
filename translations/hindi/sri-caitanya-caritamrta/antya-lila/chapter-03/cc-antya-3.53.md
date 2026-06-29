@@ -1,5 +1,8 @@
 ### CC Antya 3.53
 
+> যবনসকলের ‘মুক্তি’ হবে অনায়াসে ।
+> ‘হা রাম, হা রাম’ বলি’ কহে নামাভাসে ॥৫৩॥
+
 > yavana-sakalera 'mukti' habe anāyāse
 > 'hā rāma, hā rāma' bali' kahe nāmābhāse
 

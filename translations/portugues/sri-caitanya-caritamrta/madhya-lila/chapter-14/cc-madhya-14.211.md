@@ -1,5 +1,8 @@
 ### CC Madhya 14.211
 
+> রথের উপরে করে দণ্ডের তাড়ন ।
+> চোর-প্রায় করে জগন্নাথের সেবকগণ ॥২১১॥
+
 rathera upare kare daṇḍera tāḍana
 
 cora-prāya kare jagannāthera sevaka-gaṇa

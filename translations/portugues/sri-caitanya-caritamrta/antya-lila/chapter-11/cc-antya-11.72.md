@@ -1,5 +1,8 @@
 ### CC Antya 11.72
 
+> হরিদাসে প্রদক্ষিণ করি’ আইল সিংহদ্বারে ।
+> হরিকীর্তন-কোলাহল সকল নগরে ॥৭২॥
+
 haridāse pradakṣiṇa kari' āila siṁha-dvāre
 
 hari-kīrtana-kolāhala sakala nagare

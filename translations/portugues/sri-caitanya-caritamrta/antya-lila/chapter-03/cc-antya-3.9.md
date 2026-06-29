@@ -1,5 +1,8 @@
 ### CC Antya 3.9
 
+> আর দিন সেই বালক প্রভুস্থানে আইলা ।
+> গোসাঞি তারে প্রীতি করি’ বার্তা পুছিলা ॥৯॥
+
 āra dina sei bālaka prabhu-sthāne āilā
 gosāñi tāre prīti kari' vārtā puchilā
 

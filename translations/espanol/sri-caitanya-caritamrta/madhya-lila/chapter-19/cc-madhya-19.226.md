@@ -1,5 +1,8 @@
 ### CC Madhya 19.226
 
+> বাৎসল্যে শান্তের গুণ, দাস্যের সেবন ।
+> সেই সেই সেবনের ইহাঁ নাম — ‘পালন’ ॥২২৬॥
+
 > vātsalye śāntera guṇa, dāsyera sevana
 > sei sei sevanera ihāṅ nāma--'pālana'
 

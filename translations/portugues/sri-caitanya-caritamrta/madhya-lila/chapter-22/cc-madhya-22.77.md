@@ -1,5 +1,8 @@
 ### CC Madhya 22.77
 
+> সেই সব গুণ হয় বৈষ্ণব-লক্ষণ ।
+> সব কহা না যায়, করি দিগ্দরশন ॥৭৭॥
+
 sei saba guṇa haya vaiṣṇava-lakṣaṇa
 
 saba kahā nā yāya, kari dig-daraśana

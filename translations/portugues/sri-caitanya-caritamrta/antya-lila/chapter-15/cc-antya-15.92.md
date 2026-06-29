@@ -1,5 +1,8 @@
 ### CC Antya 15.92
 
+> রামানন্দ-রায় তবে প্রভুরে বসাইলা ।
+> বীজনাদি করি’ প্রভুর শ্রম ঘুচাইলা ॥৯২॥
+
 rāmānanda-rāya tabe prabhure vasāilā
 
 vījanādi kari' prabhura śrama ghucāilā

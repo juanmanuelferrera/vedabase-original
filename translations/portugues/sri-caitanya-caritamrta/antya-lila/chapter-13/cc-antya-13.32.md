@@ -1,5 +1,8 @@
 ### CC Antya 13.32
 
+> আইরে দেখিতে যৈছে গৌড়দেশে যায় ।
+> তৈছে একবার বৃন্দাবন দেখি’ আয় ।।” ॥ ৩২ ॥
+
 āire dekhite yaiche gauḍa-deśe yāya
 
 taiche eka-bāra vṛndāvana dekhi' āya"

@@ -1,5 +1,8 @@
 ### CC Adi 4.276
 
+> মঙ্গলাচরণং কৃষ্ণচৈতন্য-তত্ত্বলক্ষণম্ ।
+> প্রয়োজনঞ্চাবতারে শ্লোকষট্কৈর্নিরূপিতম্ ॥২৭৬॥
+
 maṅgalācaraṇaṁ kṛṣṇa-
 caitanya-tattva-lakṣaṇam
 prayojanaṁ cāvatāre

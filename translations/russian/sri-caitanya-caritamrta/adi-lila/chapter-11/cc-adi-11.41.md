@@ -1,5 +1,8 @@
 ### CC Adi 11.41
 
+> মহাভাগবত-শ্রেষ্ঠ দত্ত উদ্ধারণ ।
+> সর্বভাবে সেবে নিত্যানন্দের চরণ ॥৪১॥
+
 > mahā-bhāgavata-śreṣṭha datta uddhāraṇa
 > sarva-bhāve seve nityānandera caraṇa
 

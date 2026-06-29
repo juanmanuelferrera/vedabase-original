@@ -1,5 +1,8 @@
 ### CC Madhya 6.17
 
+> শুনি’ সবে জানিলা এই মহাপ্রভুর কার্য ।
+> হেনকালে আইলা তাহাঁ গোপীনাথাচার্য ॥১৭॥
+
 śuni' sabe jānilā ei mahāprabhura kārya
 hena-kāle āilā tāhāṅ gopīnāthācārya
 

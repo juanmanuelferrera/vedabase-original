@@ -1,5 +1,8 @@
 ### CC Madhya 11.43
 
+> তথাপি না করে তেঁহ রাজ-দরশন ।
+> ক্ষেত্র ছাড়ি’ যাবেন পুনঃ যদি করি নিবেদন ॥৪৩॥
+
 > tathāpi nā kare teṅha rāja-daraśana
 > kṣetra chāḍi' yābena punaḥ yadi kari nivedana
 

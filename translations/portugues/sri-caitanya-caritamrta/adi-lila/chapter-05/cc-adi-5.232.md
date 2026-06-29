@@ -1,5 +1,8 @@
 ### CC Adi 5.232
 
+> সে সব পাইনু আমি বৃন্দাবনে আয় ।
+> সেই সব লভ্য এই প্রভুর কৃপায় ॥২৩২॥
+
 se saba pāinu āmi vṛndāvane āya
 
 sei saba labhya ei prabhura kṛpāya

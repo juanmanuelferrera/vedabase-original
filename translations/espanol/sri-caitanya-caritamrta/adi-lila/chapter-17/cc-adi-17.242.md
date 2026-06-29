@@ -1,5 +1,8 @@
 ### CC Adi 17.242
 
+> কভু দুর্গা, লক্ষ্মী হয়, কভু বা চিচ্ছক্তি ।
+> খাটে বসি’ ভক্তগণে দিলা প্রেমভক্তি ॥২৪২॥
+
 > kabhu durgā, lakṣmī haya, kabhu vā cic-chakti
 > khāṭe vasi' bhakta-gaṇe dilā prema-bhakti
 

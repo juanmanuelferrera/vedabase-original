@@ -1,5 +1,8 @@
 ### CC Madhya 11.228
 
+> আর সম্প্রদায়ে নাচে পণ্ডিত-বক্রেশ্বর ৷
+> শ্রীবাস নাচে আর সম্প্রদায়-ভিতর ৷৷ ২২৮ ৷৷ ॥২২৮॥
+
 > āra sampradāye nāce paṇḍita-vakreśvara
 > śrīvāsa nāce āra sampradāya-bhitara
 

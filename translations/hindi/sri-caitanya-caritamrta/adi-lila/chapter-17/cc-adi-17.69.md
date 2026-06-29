@@ -1,5 +1,8 @@
 ### CC Adi 17.69
 
+> মুরারিগুপ্ত-মুখে শুনি’ রাম-গুণগ্রাম ।
+> ললাটে লিখিল তাঁর ‘রামদাস’ নাম ॥৬৯॥
+
 > murāri-gupta-mukhe śuni' rāma-guṇa-grāma
 > lalāṭe likhila tāṅra 'rāmadāsa' nāma
 

@@ -1,5 +1,8 @@
 ### CC Antya 14.37
 
+> ‘পাইলুঁ বৃন্দাবননাথ, পুনঃ হারাইলুঁ ।
+> কে মোর নিলেক কৃষ্ণ? কাহাঁ মুই আইনু’ ? ॥ ৩৭ ॥
+
 > 'pāiluṅ vṛndāvana-nātha, punaḥ hārāiluṅ
 > ke mora nileka kṛṣṇa? kāhāṅ mui āinu'?
 

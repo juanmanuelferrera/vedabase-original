@@ -1,5 +1,8 @@
 ### CC Madhya 12.139
 
+> চারিদিকে ভক্ত-অঙ্গ কৈল প্রক্ষালন ।
+> শ্রাবণের মেঘ যেন করে বরিষণ ॥১৩৯॥
+
 cāri-dike bhakta-aṅga kaila prakṣālana
 
 śrāvaṇera megha yena kare variṣaṇa

@@ -1,5 +1,8 @@
 ### CC Madhya 9.307
 
+> ‘কর্ণামৃত’-সম বস্তু নাহি ত্রিভুবনে ৷
+> যাহা হৈতে হয় কৃষ্ণে শুদ্ধপ্রেমজ্ঞানে ৷৷ ৩০৭ ৷৷ ॥৩০৭॥
+
 > 'karṇāmṛta'-sama vastu nāhi tribhuvane
 > yāhā haite haya kṛṣṇe śuddha-prema-jñāne
 

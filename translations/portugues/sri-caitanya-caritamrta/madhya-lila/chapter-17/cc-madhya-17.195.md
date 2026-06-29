@@ -1,5 +1,8 @@
 ### CC Madhya 17.195
 
+> গাভী দেখি’ স্তব্ধ প্রভু প্রেমের তরঙ্গে ।
+> বাৎসল্যে গাভী প্রভুর চাটে সব-অঙ্গে ॥১৯৫॥
+
 gābhī dekhi' stabdha prabhu premera taraṅge
 
 vātsalye gābhī prabhura cāṭe saba-aṅge

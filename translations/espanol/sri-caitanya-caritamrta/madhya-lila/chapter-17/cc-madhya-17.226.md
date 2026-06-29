@@ -1,5 +1,8 @@
 ### CC Madhya 17.226
 
+> নীলাচলে ছিলা যৈছে প্রেমাবেশ মন ।
+> বৃন্দাবন যাইতে পথে হৈল শত-গুণ ॥২২৬॥
+
 > nīlācale chilā yaiche premāveśa mana
 > vṛndāvana yāite pathe haila śata-guṇa
 

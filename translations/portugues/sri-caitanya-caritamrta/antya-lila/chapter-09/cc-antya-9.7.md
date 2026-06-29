@@ -1,5 +1,8 @@
 ### CC Antya 9.7
 
+> ত্রিজগতের লোক আসি’ করেন দরশন ।
+> যেই দেখে, সেই পায় কৃষ্ণপ্রেম-ধন ॥৭॥
+
 trijagatera loka āsi' karena daraśana
 yei dekhe, sei pāya kṛṣṇa-prema-dhana
 

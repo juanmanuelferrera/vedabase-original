@@ -1,5 +1,8 @@
 ### CC Antya 12.126
 
+> অন্ন-ব্যঞ্জনোপরি তুলসী-মঞ্জরী ।
+> জগন্নাথের পিঠা-পানা আগে আনে ধরি’ ॥১২৬॥
+
 anna-vyañjanopari tulasī-mañjarī
 
 jagannāthera piṭhā-pānā āge āne dhari'

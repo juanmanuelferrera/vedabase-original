@@ -1,5 +1,8 @@
 ### CC Madhya 9.315
 
+> সশরীরে তাল গেল শ্রীবৈকুণ্ঠ-ধাম ।
+> ঐছে শক্তি কার হয়, বিনা এক রাম ॥৩১৫॥
+
 > saśarīre tāla gela śrī-vaikuṇṭha-dhāma
 > aiche śakti kāra haya, vinā eka rāma
 

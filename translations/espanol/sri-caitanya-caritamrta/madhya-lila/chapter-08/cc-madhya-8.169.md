@@ -1,5 +1,8 @@
 ### CC Madhya 8.169
 
+> কৃষ্ণ-অনুরাগ দ্বিতীয় অরুণ-বসন ৷
+> প্রণয়-মান-কঞ্চুলিকায় বক্ষ আচ্ছাদন ৷৷ ১৬৯ ৷৷ ॥১৬৯॥
+
 > kṛṣṇa-anurāga dvitīya aruṇa-vasana
 > praṇaya-māna-kañculikāya vakṣa ācchādana
 

@@ -1,5 +1,8 @@
 ### SB 5.13.22
 
+> न ह्यद्भुतं त्वच्चरणाब्जरेणुभिर्हतांहसो भक्तिरधोक्षजेऽमला
+> मौहूर्तिकाद्यस्य समागमाच्च मे दुस्तर्कमूलोऽपहतोऽविवेकः ॥२२॥
+
 > na hy adbhutaṁ tvac-caraṇābja-reṇubhir
 > hatāṁhaso bhaktir adhokṣaje 'malā
 > mauhūrtikād yasya samāgamāc ca me

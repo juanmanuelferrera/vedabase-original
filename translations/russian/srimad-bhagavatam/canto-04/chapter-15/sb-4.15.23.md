@@ -1,5 +1,8 @@
 ### SB 4.15.23
 
+> तस्मात्परोक्षेऽस्मदुपश्रुतान्यलं करिष्यथ स्तोत्रमपीच्यवाचः ।
+> सत्युत्तमश्लोकगुणानुवादे जुगुप्सितं न स्तवयन्ति सभ्याः ॥२३॥
+
 > tasmāt parokṣe 'smad-upaśrutāny alaṁ
 > kariṣyatha stotram apīcya-vācaḥ
 > saty uttamaśloka-guṇānuvāde

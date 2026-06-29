@@ -1,5 +1,8 @@
 ### CC Adi 10.120
 
+> মহা-কৃপাপাত্র প্রভুর জগাই, মাধাই ।
+> ‘পতিতপাবন’ নামের সাক্ষী দুই ভাই ॥১২০॥
+
 > mahā-kṛpā-pātra prabhura jagāi, mādhāi
 > 'patita-pāvana' nāmera sākṣī dui bhāi
 

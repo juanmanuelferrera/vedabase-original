@@ -1,5 +1,10 @@
 ### CC Madhya 25.283
 
+> তদিদমতিরহস্যং গৌরলীলামৃতং যৎ
+> খল-সমুদয়-কোলৈর্নাদৃতং তৈরলভ্যম্ ।
+> ক্ষতিরিয়মিহ কা মে স্বাদিতং যৎ সমন্তাৎ
+> সহৃদয়-সুমনোভির্মোদমেষাং তনোতি ॥২৮৩॥
+
 > tad idam ati-rahasyaṁ gaura-līlāmṛtaṁ yat
 > khala-samudaya-kolair nādṛtaṁ tair alabhyam
 > kṣatir iyam iha kā me svāditaṁ yat samantāt

@@ -1,5 +1,8 @@
 ### CC Madhya 5.30
 
+> তোমাকে কন্যা দিব, সবাকে করি’ তিরস্কার ।
+> সংশয় না কর তুমি, করহ স্বীকার ।।” ॥ ৩০ ॥
+
 > tomāke kanyā diba, sabāke kari' tiraskāra
 > saṁśaya nā kara tumi, karaha svīkāra"
 

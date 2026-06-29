@@ -1,5 +1,8 @@
 ### CC Madhya 7.9
 
+> তুমি-সব বন্ধু মোর বন্ধুকৃত্য কৈলে ।
+> ইহাঁ আনি’ মোরে জগন্নাথ দেখাইলে ॥৯॥
+
 > tumi-saba bandhu mora bandhu-kṛtya kaile
 > ihāṅ āni' more jagannātha dekhāile
 

@@ -1,5 +1,8 @@
 ### CC Antya 9.138
 
+> রাম-রায়ে, বাণীনাথে কৈলা ‘নির্বিষয়’ ।
+> সেই কৃপা মোতে নাহি, যাতে ঐছে হয় ! ॥ ১৩৮ ॥
+
 rāma-rāye, vāṇīnāthe kailā 'nirviṣaya'
 
 sei kṛpā mote nāhi, yāte aiche haya!

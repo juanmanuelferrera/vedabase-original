@@ -1,5 +1,8 @@
 ### CC Madhya 17.170
 
+> প্রভু কহে, — “তুমি ‘গুরু,’ আমি ‘শিষ্য’-প্রায় ।
+> ‘গুরু’ হঞা ‘শিষ্যে’ নমস্কার না যুয়ায় ” ॥ ১৭০ ॥
+
 prabhu kahe,--"tumi 'guru', āmi 'śiṣya'-prāya
 
 'guru' hañā 'śiṣye' namaskāra nā yuyāya

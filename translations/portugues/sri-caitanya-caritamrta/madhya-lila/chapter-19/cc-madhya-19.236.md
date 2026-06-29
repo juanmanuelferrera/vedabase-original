@@ -1,5 +1,8 @@
 ### CC Madhya 19.236
 
+> ভাবিতে ভাবিতে কৃষ্ণ স্ফুরয়ে অন্তরে ।
+> কৃষ্ণকৃপায় অজ্ঞ পায় রসসিন্ধু-পারে ॥২৩৬॥
+
 bhāvite bhāvite kṛṣṇa sphuraye antare
 
 kṛṣṇa-kṛpāya ajña pāya rasa-sindhu-pāre

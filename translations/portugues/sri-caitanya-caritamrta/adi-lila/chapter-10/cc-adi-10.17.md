@@ -1,5 +1,8 @@
 ### CC Adi 10.17
 
+> বক্রেশ্বর পণ্ডিত — প্রভুর বড় প্রিয় ভৃত্য ।
+> এক-ভাবে চব্বিশ প্রহর যাঁর নৃত্য ॥১৭॥
+
 vakreśvara paṇḍita--prabhura baḍa priya bhṛtya
 eka-bhāve cabbiśa prahara yāṅra nṛtya
 

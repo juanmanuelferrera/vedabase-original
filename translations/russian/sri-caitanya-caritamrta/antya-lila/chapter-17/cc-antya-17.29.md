@@ -1,5 +1,8 @@
 ### CC Antya 17.29
 
+> ভাবাবেশে স্বরূপে কহেন গদ্গদ-বাণী ।
+> ‘কর্ণ তৃষ্ণায় মরে, পড় রসায়ন, শুনি ।।’ ॥ ২৯ ॥
+
 > bhāvāveśe svarūpe kahena gadgada-vāṇī
 > 'karṇa tṛṣṇāya mare, paḍa rasāyana, śuni'
 

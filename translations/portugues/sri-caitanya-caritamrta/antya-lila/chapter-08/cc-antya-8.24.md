@@ -1,5 +1,8 @@
 ### CC Antya 8.24
 
+> মোরে মুখ না দেখাবি তুই, যাও যথি-তথি ।
+> তোরে দেখি’ মৈলে মোর হবে অসদ্গতি ॥২৪॥
+
 more mukha nā dekhābi tui, yāo yathi-tathi
 
 tore dekhi' maile mora habe asad-gati

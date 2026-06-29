@@ -1,5 +1,8 @@
 ### SB 9.19.29
 
+> नमस्तुभ्यं भगवते वासुदेवाय वेधसे
+> सर्वभूताधिवासाय शान्ताय बृहते नमः ॥२९॥
+
 > namas tubhyaṁ bhagavate
 > vāsudevāya vedhase
 > sarva-bhūtādhivāsāya

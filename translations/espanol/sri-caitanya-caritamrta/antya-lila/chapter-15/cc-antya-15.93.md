@@ -1,5 +1,8 @@
 ### CC Antya 15.93
 
+> প্রভুরে লঞা গেলা সবে সমুদ্রের তীরে ।
+> স্নান করাঞা পুনঃ তাঁরে লঞা আইলা ঘরে ॥৯৩॥
+
 > prabhure lañā gelā sabe samudrera tīre
 > snāna karāñā punaḥ tāṅre lañā āilā ghare
 

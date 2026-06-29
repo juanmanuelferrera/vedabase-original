@@ -1,5 +1,8 @@
 ### CC Antya 6.213
 
+> এইমত রহে তেঁহ স্বরূপ-চরণে ।
+> গোবিন্দ প্রসাদ তাঁরে দিল পঞ্চ দিনে ॥২১৩॥
+
 ei-mata rahe teṅha svarūpa-caraṇe
 
 govinda prasāda tāṅre dila pañca dine

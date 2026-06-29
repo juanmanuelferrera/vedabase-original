@@ -1,5 +1,8 @@
 ### CC Adi 2.74
 
+> অনুবাদমনুক্ত্বা তু ন বিধেয়মুদীরয়েৎ ।
+> ন হ্যলব্ধাস্পদং কিঞ্চিৎ কুত্রচিৎ প্রতিতিষ্ঠতি ॥৭৪॥
+
 anuvādam anuktvā tu
 na vidheyam udīrayet
 na hy alabdhāspadaṁ kiñcit

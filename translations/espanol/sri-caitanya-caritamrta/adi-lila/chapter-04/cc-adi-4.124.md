@@ -1,5 +1,8 @@
 ### CC Adi 4.124
 
+> রাধিকার প্রেম — গুরু, আমি — শিষ্য নট ।
+> সদা আমা নানা নৃত্যে নাচায় উদ্ভট ॥১২৪॥
+
 > rādhikāra prema--guru, āmi--śiṣya naṭa
 > sadā āmā nānā nṛtye nācāya udbhaṭa
 

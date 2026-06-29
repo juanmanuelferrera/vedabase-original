@@ -1,5 +1,8 @@
 ### CC Madhya 14.111
 
+> দ্বিগুণ করিয়া কর সব উপহার  ।
+> রথযাত্রা হৈতে যৈছে হয় চমৎকার ॥১১১॥
+
 dviguṇa kariyā kara saba upahāra
 
 ratha-yātrā haite yaiche haya camatkāra

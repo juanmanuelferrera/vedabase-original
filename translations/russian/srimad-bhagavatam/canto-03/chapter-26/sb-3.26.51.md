@@ -1,5 +1,8 @@
 ### SB 3.26.51
 
+> ततस्तेनानुविद्धेभ्यो युक्तेभ्योऽण्डमचेतनम् ।
+> उत्थितं पुरुषो यस्मादुदतिष्ठदसौ विराट् ॥५१॥
+
 > tatas tenānuviddhebhyo
 > yuktebhyo 'ṇḍam acetanam
 > utthitaṁ puruṣo yasmād

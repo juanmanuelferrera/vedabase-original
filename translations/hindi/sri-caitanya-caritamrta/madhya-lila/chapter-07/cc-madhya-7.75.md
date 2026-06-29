@@ -1,5 +1,8 @@
 ### CC Madhya 7.75
 
+> ভক্তগণ শীঘ্র আসি’ লৈল প্রভুর সাথ ।
+> বস্ত্র-প্রসাদ লঞা তবে আইলা গোপীনাথ ॥৭৫॥
+
 > bhakta-gaṇa śīghra āsi' laila prabhura sātha
 > vastra-prasāda lañā tabe āilā gopīnātha
 

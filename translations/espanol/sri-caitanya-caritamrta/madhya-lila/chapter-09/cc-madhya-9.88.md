@@ -1,5 +1,8 @@
 ### CC Madhya 9.88
 
+> সৌন্দর্যাদি প্রেমাবেশ দেখি, সর্বলোক ৷
+> দেখিবারে আইসে, দেখে, খণ্ডে দুঃখ-শোক ৷৷ ৮৮ ৷৷ ॥৮৮॥
+
 > saundaryādi premāveśa dekhi, sarva-loka
 > dekhibāre āise, dekhe, khaṇḍe duḥkha-śoka
 

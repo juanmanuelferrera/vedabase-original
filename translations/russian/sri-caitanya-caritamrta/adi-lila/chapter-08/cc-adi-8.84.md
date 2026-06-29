@@ -1,5 +1,8 @@
 ### CC Adi 8.84
 
+> শ্রীরূপ-রঘুনাথ-চরণের এই বল ।
+> যাঁর স্মৃতে সিদ্ধ হয় বাঞ্ছিতসকল ॥৮৪॥
+
 > śrī-rūpa-raghunātha-caraṇera ei bala
 > yāṅra smṛte siddha haya vāñchita-sakala
 

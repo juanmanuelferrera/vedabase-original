@@ -1,5 +1,8 @@
 ### SB 6.5.39
 
+> ननु भागवता नित्यं भूतानुग्रहकातराः
+> ऋते त्वां सौहृदघ्नं वै वैरङ्करमवैरिणाम ॥३९॥
+
 > nanu bhāgavatā nityaṁ
 > bhūtānugraha-kātarāḥ
 > ṛte tvāṁ sauhṛda-ghnaṁ vai

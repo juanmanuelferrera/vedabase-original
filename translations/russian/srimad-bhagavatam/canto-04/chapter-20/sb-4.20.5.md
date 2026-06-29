@@ -1,5 +1,8 @@
 ### SB 4.20.5
 
+> अतः कायमिमं विद्वानविद्याकामकर्मभिः ।
+> आरब्ध इति नैवास्मिन्प्रतिबुद्धोऽनुषज्जते ॥५॥
+
 > ataḥ kāyam imaṁ vidvān
 > avidyā-kāma-karmabhiḥ
 > ārabdha iti naivāsmin

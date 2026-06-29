@@ -1,5 +1,8 @@
 ### CC Antya 19.29
 
+> শুনিয়া বিস্মিত হইলা সব ভক্তগণ ।
+> স্বরূপ-গোসাঞি কিছু হইলা বিমন ॥২৯॥
+
 > śuniyā vismita ha-ilā saba bhakta-gaṇa
 > svarūpa-gosāñi kichu ha-ilā vimana
 

@@ -1,5 +1,8 @@
 ### CC Adi 10.127
 
+> ইত্যাদিক পূর্বসঙ্গী বড় ভক্তগণ ।
+> নীলাচলে রহি’ করে প্রভুর সেবন ॥১২৭॥
+
 ityādika pūrva-saṅgī baḍa bhakta-gaṇa
 
 nīlācale rahi' kare prabhura sevana

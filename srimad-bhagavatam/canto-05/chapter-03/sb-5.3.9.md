@@ -1,5 +1,7 @@
 ### SB 5.3.9
 
+> तद्यथा बालिशानां स्वयमात्मनः श्रेयः परमविदुषां परमपरमपुरुष प्रकर्षकरुणया स्वमहिमानं चापवर्गाख्यमुपकल्पयिष्यन्स्वयं नापचित एवेतरवदिहोपलक्षितः ॥८॥
+
 > tad yathā bāliśānāṁ svayam ātmanaḥ śreyaḥ param aviduṣāṁ parama-parama-puruṣa prakarṣa-karuṇayā sva-mahimānaṁ cāpavargākhyam upakalpayiṣyan svayaṁ nāpacita evetaravad ihopalakṣitaḥ.
 
 *tat*—that; *yathā*—as; *bāliśānām*—of the fools; *svayam*—by Yourself; *ātmanaḥ*—own; *śreyaḥ*—welfare; *param*—ultimate; *aviduṣām*—of persons who do not know; *parama-parama-puruṣa*—O Lord of lords; *prakarṣa-karuṇayā*—by abundant causeless mercy; *sva-mahimānam*—Your personal glory; *ca*—and; *apavarga-ākhyam*—called *apavarga* (liberation); *upakalpayiṣyan*—desiring to give; *svayam*—personally; *na apacitaḥ*—not properly worshiped; *eva*—although; *itara-vat*—like an ordinary person; *iha*—here; *upalakṣitaḥ*—(You are) present and seen (by us).

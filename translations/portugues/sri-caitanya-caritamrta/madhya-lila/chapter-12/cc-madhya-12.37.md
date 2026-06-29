@@ -1,5 +1,8 @@
 ### CC Madhya 12.37
 
+> সেই বহির্বাস সার্বভৌমপাশ দিল ।
+> সার্বভৌম সেই বস্ত্র রাজারে পাঠা’ল ॥৩৭॥
+
 sei bahirvāsa sārvabhauma-pāśa dila
 sārvabhauma sei vastra rājāre pāṭhā'la
 

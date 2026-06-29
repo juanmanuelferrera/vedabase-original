@@ -1,5 +1,8 @@
 ### CC Madhya 12.40
 
+> তবে রাজা সন্তোষে তাঁহারে আজ্ঞা দিলা ।
+> আপনি মিলন লাগি’ সাধিতে লাগিলা ॥৪০॥
+
 > tabe rājā santoṣe tāṅhāre ājñā dilā
 > āpani milana lāgi' sādhite lāgilā
 

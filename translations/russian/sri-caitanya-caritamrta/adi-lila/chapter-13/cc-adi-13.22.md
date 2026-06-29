@@ -1,5 +1,8 @@
 ### CC Adi 13.22
 
+> জন্ম-বাল্য-পৌগণ্ড-কৈশোর-যুবাকালে ।
+> হরিনাম লওয়াইলা প্রভু নানা ছলে ॥২২॥
+
 > janma-bālya-paugaṇḍa-kaiśora-yuvā-kāle
 > hari-nāma laoyāilā prabhu nānā chale
 

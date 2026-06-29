@@ -1,5 +1,8 @@
 ### SB 5.19.26
 
+> यैः श्रद्धया बर्हिषि भागशो हविर्निरुप्तमिष्टं विधिमन्त्रवस्तुतः
+> एकः पृथङ्नामभिराहुतो मुदा गृह्णाति पूर्णः स्वयमाशिषां प्रभुः ॥२६॥
+
 > yaiḥ śraddhayā barhiṣi bhāgaśo havir
 > niruptam iṣṭaṁ vidhi-mantra-vastutaḥ
 > ekaḥ pṛthaṅ-nāmabhir āhuto mudā

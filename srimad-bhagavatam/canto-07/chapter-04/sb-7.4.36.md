@@ -1,5 +1,8 @@
 ### SB 7.4.36
 
+> गुणैरलमसङ्ख्येयैर्माहात्म्यं तस्य सूच्यते
+> वासुदेवे भगवति यस्य नैसर्गिकी रतिः ॥३६॥
+
 > guṇair alam asaṅkhyeyair
 > māhātmyaṁ tasya sūcyate
 > vāsudeve bhagavati

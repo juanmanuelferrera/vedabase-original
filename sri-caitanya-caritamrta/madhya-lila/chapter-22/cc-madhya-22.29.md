@@ -1,5 +1,8 @@
 ### CC Madhya 22.29
 
+> জ্ঞানী জীবন্মুক্তদশা পাইনু করি’ মানে ।
+> বস্তুতঃ বুদ্ধি ‘শুদ্ধ’ নহে কৃষ্ণভক্তি বিনে ॥২৯॥
+
 > jñānī jīvan-mukta-daśā pāinu kari, māne
 > vastutaḥ buddhi 'śuddha' nahe kṛṣṇa-bhakti vine
 

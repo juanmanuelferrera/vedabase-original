@@ -1,5 +1,8 @@
 ### CC Madhya 5.121
 
+> সেই রাজা জিনি’ নিল তাঁর সিংহাসন ।
+> ‘মাণিক্য-সিংহাসন’ নাম অনেক রতন ॥১২১॥
+
 > sei rājā jini' nila tāṅra siṁhāsana
 > 'māṇikya-siṁhāsana' nāma aneka ratana
 

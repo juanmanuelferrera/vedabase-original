@@ -1,5 +1,8 @@
 ### CC Adi 16.52
 
+> নাহি পড়ি অলঙ্কার, করিয়াছি শ্রবণ ।
+> তাতে এই শ্লোকে দেখি বহু দোষ-গুণ ॥৫২॥
+
 nāhi paḍi alaṅkāra, kariyāchi śravaṇa
 
 tāte ei śloke dekhi bahu doṣa-guna

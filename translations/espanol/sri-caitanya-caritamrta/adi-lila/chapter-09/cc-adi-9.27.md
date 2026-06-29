@@ -1,5 +1,8 @@
 ### CC Adi 9.27
 
+> পাকিল যে প্রেমফল অমৃত-মধুর ।
+> বিলায় চৈতন্যমালী, নাহি লয় মূল ॥২৭॥
+
 > pākila ye prema-phala amṛta-madhura
 > vilāya caitanya-mālī, nāhi laya mūla
 

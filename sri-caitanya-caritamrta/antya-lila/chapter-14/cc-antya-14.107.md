@@ -1,5 +1,8 @@
 ### CC Antya 14.107
 
+> গোবর্ধনে চড়ি’ কৃষ্ণ বাজাইলা বেণু ।
+> গোবর্ধনের চৌদিকে চরে সব ধেনু ॥১০৭॥
+
 > govardhane caḍi' kṛṣṇa bājāilā veṇu
 > govardhanera caudike care saba dhenu
 

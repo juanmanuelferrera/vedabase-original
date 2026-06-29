@@ -1,5 +1,8 @@
 ### CC Antya 2.29
 
+> শুনি’ শিবানন্দ সেন তাঁহা শীঘ্র আইল ।
+> নমস্কার করি’ তাঁর নিকটে বসিল ॥২৯॥
+
 śuni, śivānanda sena tāṅhā śīghra āila
 
 namaskāra kari' tāṅra nikaṭe vasila

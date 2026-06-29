@@ -1,5 +1,8 @@
 ### CC Madhya 8.202
 
+> সবে এক সখীগণের ইহাঁ অধিকার ৷
+> সখী হৈতে হয় এই লীলার বিস্তার ৷৷ ২০২ ৷৷ ॥২০২॥
+
 sabe eka sakhī-gaṇera ihāṅ adhikāra
 
 sakhī haite haya ei līlāra vistāra

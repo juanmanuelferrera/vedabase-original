@@ -1,5 +1,8 @@
 ### CC Adi 4.212
 
+> গোপিকা জানেন কৃষ্ণের মনের বাঞ্ছিত ।
+> প্রেমসেবা-পরিপাটী, ইষ্ট-সমীহিত ॥২১২॥
+
 gopikā jānena kṛṣṇera manera vāñchita
 prema-sevā-paripāṭī, iṣṭa-samīhita
 

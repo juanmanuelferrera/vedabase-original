@@ -1,5 +1,8 @@
 ### Bg 6.32
 
+> आत्मौपम्येन सर्वत्र समं पश्यति योऽर्जुन ।
+> सुखं वा यदि वा दुःखं स योगी परमो मतः ॥३२॥
+
 > ātmaupamyena sarvatra
 > samaṁ paśyati yo'rjuna
 > sukhaṁ vā yadi vā duḥkhaṁ

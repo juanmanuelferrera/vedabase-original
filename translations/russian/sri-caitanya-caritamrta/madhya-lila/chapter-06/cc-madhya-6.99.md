@@ -1,5 +1,8 @@
 ### CC Madhya 6.99
 
+> কলিযুগে লীলাবতার না করে ভগবান্ ।
+> অতএব ‘ত্রিযুগ’ করি’ কহি তার নাম ॥৯৯॥
+
 > kali-yuge līlāvatāra nā kare bhagavān
 > ataeva 'tri-yuga' kari' kahi tāra nāma
 

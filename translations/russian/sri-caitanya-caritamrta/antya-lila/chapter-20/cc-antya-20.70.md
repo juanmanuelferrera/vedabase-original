@@ -1,5 +1,8 @@
 ### CC Antya 20.70
 
+> সেই সব লীলারস আপনে অনন্ত ।
+> সহস্র-বদনে বর্ণি’ নাহি পা’ন অন্ত ॥৭০॥
+
 > sei saba līlā-rasa āpane ananta
 > sahasra-vadane varṇi' nāhi pā'na anta
 

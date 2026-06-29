@@ -1,5 +1,8 @@
 ### CC Antya 6.299
 
+> এক-বিতস্তি দুইবস্ত্র, পিঁড়া একখানি ।
+> স্বরূপ দিলেন কুঁজা আনিবারে পানি ॥২৯৯॥
+
 eka-vitasti dui-vastra, piṅḍā eka-khāni
 
 svarūpa dilena kuṅjā ānibāre pāni

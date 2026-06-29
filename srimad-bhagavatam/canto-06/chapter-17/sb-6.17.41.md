@@ -1,5 +1,8 @@
 ### SB 6.17.41
 
+> य एतत्प्रातरुत्थाय श्रद्धया वाग्यतः पठेत
+> इतिहासं हरिं स्मृत्वा स याति परमां गतिम ॥४१॥
+
 > ya etat prātar utthāya
 > śraddhayā vāg-yataḥ paṭhet
 > itihāsaṁ hariṁ smṛtvā

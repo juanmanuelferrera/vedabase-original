@@ -1,5 +1,8 @@
 ### SB 9.10.33
 
+> लङ्कामायुश्च कल्पान्तं ययौ चीर्णव्रतः पुरीम
+> अवकीर्यमाणः सुकुसुमैर्लोकपालार्पितैः पथि ॥३३॥
+
 > avakīryamāṇaḥ sukusumair
 > lokapālārpitaiḥ pathi
 > upagīyamāna-caritaḥ

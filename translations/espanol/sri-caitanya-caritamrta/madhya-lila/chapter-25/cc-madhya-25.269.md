@@ -1,5 +1,8 @@
 ### CC Madhya 25.269
 
+> শ্রদ্ধা করি’ এই লীলা শুন, ভক্তগণ ।
+> ইহার প্ৰসাদে পাইবা চৈতন্য-চরণ ॥২৬৯॥
+
 > śraddhā kari' ei līlā śuna, bhakta-gaṇa
 > ihāra prasāde pāibā caitanya-caraṇa
 

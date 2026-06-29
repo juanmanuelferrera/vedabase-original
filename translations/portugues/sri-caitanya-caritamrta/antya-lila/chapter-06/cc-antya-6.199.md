@@ -1,5 +1,8 @@
 ### CC Antya 6.199
 
+> তথাপি বিষয়ের স্বভাব — করে মহা-অন্ধ ।
+> সেই কর্ম করায়, যাতে হয় ভব-বন্ধ ॥১৯৯॥
+
 tathāpi viṣayera svabhāva--kare mahā-andha
 
 sei karma karāya, yāte haya bhava-bandha

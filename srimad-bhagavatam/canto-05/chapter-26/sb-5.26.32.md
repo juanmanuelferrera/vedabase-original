@@ -1,5 +1,7 @@
 ### SB 5.26.32
 
+> ये त्विह वा अनागसोऽरण्ये ग्रामे वा वैश्रम्भकैरुपसृतानुपविश्रम्भय्य जिजीविषून्शूलसूत्रादिषूपप्रोतान्क्रीडनकतया यातयन्ति तेऽपि च प्रेत्य यमयातनासु शूलादिषु प्रोतात्मानः क्षुत्तृड्भ्यांचाभिहताः कङ्कवटादिभिश्चेतस्ततस्तिग्मतुण्डैराहन्यमाना आत्मशमलं स्मरन्ति ॥३१॥
+
 > ye tv iha vā anāgaso 'raṇye grāme vā vaiśrambhakair upasṛtān upaviśrambhayya jijīviṣūn śūla-sūtrādiṣūpaprotān krīḍanakatayā yātayanti te 'pi ca pretya yama-yātanāsu śūlādiṣu protātmānaḥ kṣut-tṛḍbhyāṁ cābhihatāḥ kaṅka-vaṭādibhiś cetas tatas tigma-tuṇḍair āhanyamānā ātma-śamalaṁ smaranti.
 
 *ye*—persons who; *tu*—but; *iha*—in this life; *vā*—or; *anāgasaḥ*—who are faultless; *araṇye*—in the forest; *grāme*—in the village; *vā*—or; *vaiśrambhakaiḥ*—by means of good faith; *upasṛtān*—brought near; *upaviśrambhayya*—inspiring with confidence; *jijīviṣūn*—who want to be protected; *śūla-sūtra-ādiṣu*—on a lance, thread, and so on; *upaprotān*—fixed; *krīḍanakatayā*—like a plaything; *yātayanti*—cause pain; *te*—those persons; *api*—certainly; *ca*—and; *pretya*—after dying; *yama-yātanāsu*—the persecutions of Yamarāja; *śūla-ādiṣu*—on lances and so on; *prota-ātmānaḥ*—whose bodies are fixed; *kṣut-tṛḍbhyām*—by hunger and thirst; *ca*—also; *abhihatāḥ*—overwhelmed; *kaṅka-vaṭa-ādibhiḥ*—by birds such as herons and vultures; *ca*—and; *itaḥ tataḥ*—here and there; *tigma-tuṇḍaiḥ*—having pointed beaks; *āhanyamānāḥ*—being tortured; *ātma-śamalam*—own sinful activities; *smaranti*—they remember.

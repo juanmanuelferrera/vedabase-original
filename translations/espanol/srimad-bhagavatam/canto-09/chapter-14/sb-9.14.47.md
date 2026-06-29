@@ -1,5 +1,8 @@
 ### SB 9.14.47
 
+> तेनायजत यज्ञएशं भगवन्तमधोक्षजम
+> उर्वशीलोकमन्विच्छन्सर्वदेवमयं हरिम ॥४७॥
+
 > tenāyajata yajñeśaṁ
 > bhagavantam adhokṣajam
 > urvaśī-lokam anvicchan

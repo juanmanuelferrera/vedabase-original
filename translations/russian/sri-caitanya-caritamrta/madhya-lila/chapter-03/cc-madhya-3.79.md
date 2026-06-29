@@ -1,5 +1,8 @@
 ### CC Madhya 3.79
 
+> নিত্যানন্দ কহে — কৈলুঁ তিন উপবাস ।
+> আজি পারণা করিতে ছিল বড় আশ ॥৭৯॥
+
 > nityānanda kahe—kailuṅ tina upavāsa
 > āji pāraṇā karite chila baḍa āśa
 

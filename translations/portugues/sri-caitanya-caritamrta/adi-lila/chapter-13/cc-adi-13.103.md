@@ -1,5 +1,10 @@
 ### CC Adi 13.103
 
+> এই মত ভক্তততি, যাঁর যেই দেশে স্থিতি,
+> তাহাঁ তাহাঁ পাঞা মনোবলে ।
+> নাচে, করে সংকীর্তন, আনন্দে বিহ্বল মন,
+> দান করে গ্রহণের ছলে ॥১০৩॥
+
 ei mata bhakta-tati, yāṅra yei deśe sthiti,
 tāhāṅ tāhāṅ pāñā mano-bale
 nāce, kare saṅkīrtana, ānande vihvala mana,

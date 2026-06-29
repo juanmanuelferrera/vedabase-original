@@ -1,5 +1,10 @@
 ### SB 3.15.44
 
+> ते वा अमुष्य वदनासितपद्मकोशम्
+> उद्वीक्ष्य सुन्दरतराधरकुन्दहासम् ।
+> लब्धाशिषः पुनरवेक्ष्य तदीयमङ्घ्रि
+> द्वन्द्वं नखारुणमणिश्रयणं निदध्युः ॥४४॥
+
 > te vā amuṣya vadanāsita-padma-kośam
 > udvīkṣya sundaratarādhara-kunda-hāsam
 > labdhāśiṣaḥ punar avekṣya tadīyam aṅghri-

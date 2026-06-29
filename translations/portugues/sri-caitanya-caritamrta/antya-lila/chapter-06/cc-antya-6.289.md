@@ -1,5 +1,8 @@
 ### CC Antya 6.289
 
+> পার্শ্বে গাঁথা গুঞ্জামালা, গোবর্ধনশিলা ।
+> দুই বস্তু মহাপ্রভুর আগে আনি’ দিলা ॥২৮৯॥
+
 pārśve gāṅthā guñjā-mālā, govardhana-śilā
 
 dui vastu mahāprabhura āge āni' dilā

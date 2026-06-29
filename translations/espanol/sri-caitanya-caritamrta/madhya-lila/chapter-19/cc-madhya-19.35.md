@@ -1,5 +1,8 @@
 ### CC Madhya 19.35
 
+> যৈছে তৈছে ছুটি’ তুমি আইস বৃন্দাবন ।’
+> এত লিখি’ দুইভাই করিলা গমন ॥৩৫॥
+
 > yaiche taiche chuṭi' tumi āisa vṛndāvana'
 > eta likhi' dui-bhāi karilā gamana
 

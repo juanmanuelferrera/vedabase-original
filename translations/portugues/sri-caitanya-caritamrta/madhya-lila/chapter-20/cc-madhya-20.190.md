@@ -1,5 +1,8 @@
 ### CC Madhya 20.190
 
+> কৃষ্ণের এই চারি প্রাভববিলাস ।
+> দ্বারকা-মথুরা-পুরে নিত্য ইঁহার বাস ॥১৯০॥
+
 kṛṣṇera ei cāri prābhava-vilāsa
 
 dvārakā-mathurā-pure nitya iṅhāra vāsa

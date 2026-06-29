@@ -1,5 +1,10 @@
 ### SB 2.2.5
 
+> चीराणि किं पथि न सन्ति दिशन्ति भिक्षां
+> नैवाङ्घ्रिपाः परभृतः सरितोऽप्यशुष्यन् ।
+> रुद्धा गुहाः किमजितोऽवति नोपसन्नान्
+> कस्माद्भजन्ति कवयो धनदुर्मदान्धान् ॥५॥
+
 > cīrāṇi kiṁ pathi na santi diśanti bhikṣāṁ
 > naivāṅghripāḥ para-bhṛtaḥ sarito 'py aśuṣyan
 > ruddhā guhāḥ kim ajito 'vati nopasannān

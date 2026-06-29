@@ -1,5 +1,8 @@
 ### CC Antya 6.185
 
+> ছত্রভোগ পার হঞা ছাড়িয়া সরাণ ।
+> কুগ্রাম দিয়া দিয়া করিল প্রয়াণ ॥১৮৫॥
+
 > chatrabhoga pāra hañā chāḍiyā sarāṇa
 > kugrāma diyā diyā karila prayāṇa
 

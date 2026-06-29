@@ -1,5 +1,8 @@
 ### CC Antya 4.111
 
+> যথাযোগ্য করাইল সবার চরণ বন্দন ।
+> তাঁরে করাইলা সবার কৃপার ভাজন ॥১১১॥
+
 > yathā-yogya karāila sabāra caraṇa vandana
 > tāṅre karāilā sabāra kṛpāra bhājana
 

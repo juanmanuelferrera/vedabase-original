@@ -1,5 +1,8 @@
 ### CC Adi 12.35
 
+> ঈশ্বরের দৈন্য করি’ করিয়াছে ভিক্ষা ।
+> অতএব দণ্ড করি’ করাইব শিক্ষা ॥৩৫॥
+
 īśvarera dainya kari' kariyāche bhikṣā
 ataeva daṇḍa kari' karāiba śiksā
 

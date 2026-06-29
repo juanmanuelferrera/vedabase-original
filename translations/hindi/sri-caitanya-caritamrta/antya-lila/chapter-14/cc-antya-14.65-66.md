@@ -1,5 +1,10 @@
 ### CC Antya 14.65-66
 
+> এক এক হস্ত-পাদ — দীর্ঘ তিন তিন-হাত ।
+> অস্থিগ্রন্থি ভিন্ন, চর্ম আছে মাত্র তাত ॥৬৫॥
+> হস্ত, পাদ, গ্রীবা, কটি, অস্থি, সন্ধি যত ।
+> এক এক বিতস্তি ভিন্ন হঞাছে তত ॥৬৬॥
+
 > eka eka hasta-pāda--dīrgha tina tina-hāta
 > asthi-granthi bhinna, carma āche mātra tāta
 > hasta, pāda, grīvā, kaṭi, asthi sandhi yata

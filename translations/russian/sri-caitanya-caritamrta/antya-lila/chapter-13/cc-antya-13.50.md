@@ -1,5 +1,8 @@
 ### CC Antya 13.50
 
+> ‘মুকুন্দ সরস্বতী’ নাম সন্ন্যাসী মহাজনে ।
+> এক বহির্বাস তেঁহো দিল সনাতনে ॥৫০॥
+
 > 'mukunda sarasvatī' nāma sannyāsī mahā-jane
 > eka bahirvāsa teṅho dila sanātane
 

@@ -1,5 +1,8 @@
 ### CC Antya 4.160
 
+> আমার উপদেষ্টা তুমি — প্রামাণিক আর্য ।
+> তোমারেহ উপদেশে — বালকা করে ঐছে কার্য ।।” ॥ ১৬০ ॥
+
 > āmāra upadeṣṭā tumi--prāmāṇika ārya
 > tomāreha upadeśe--bālakā kare aiche kārya
 

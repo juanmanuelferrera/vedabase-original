@@ -1,5 +1,10 @@
 ### CC Madhya 2.93
 
+> ছোট বড় ভক্তগণ, বন্দোঁ সবার শ্রীচরণ,
+> সবে মোরে করহ সন্তোষ ।
+> স্বরূপ-গোসাঞির মত, রূপ-রঘুনাথ জানে যত,
+> তাই লিখি’ নাহি মোর দোষ ॥৯৩॥
+
 choṭa baḍa bhakta-gaṇa, vandoṅ sabāra śrī-caraṇa,
 sabe more karaha santoṣa
 svarūpa-gosāñira mata, rūpa-raghunātha jāne yata,

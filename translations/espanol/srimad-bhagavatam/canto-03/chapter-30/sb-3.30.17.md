@@ -1,5 +1,8 @@
 ### SB 3.30.17
 
+> शयानः परिशोचद्भिः परिवीतः स्वबन्धुभिः ।
+> वाच्यमानोऽपि न ब्रूते कालपाशवशं गतः ॥१७॥
+
 > śayānaḥ pariśocadbhiḥ
 > parivītaḥ sva-bandhubhiḥ
 > vācyamāno 'pi na brūte

@@ -1,5 +1,8 @@
 ### CC Madhya 9.69
 
+> বিষ্ণুকাঞ্চী আসি’ দেখিল লক্ষ্মী-নারায়ণ ৷
+> প্রণাম করিয়া কৈল বহুত স্তবন ৷৷ ৬৯ ৷৷ ॥৬৯॥
+
 viṣṇu-kāñcī āsi' dekhila lakṣmī-nārāyaṇa
 
 praṇāma kariyā kaila bahuta stavana

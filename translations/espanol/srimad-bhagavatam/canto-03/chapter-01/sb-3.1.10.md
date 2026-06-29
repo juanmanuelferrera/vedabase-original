@@ -1,5 +1,8 @@
 ### SB 3.1.10
 
+> यदोपहूतो भवनं प्रविष्टो मन्त्राय पृष्टः किल पूर्वजेन ।
+> अथाह तन्मन्त्रदृशां वरीयान्यन्मन्त्रिणो वैदुरिकं वदन्ति ॥१०॥
+
 > yadopahūto bhavanaṁ praviṣṭo
 > mantrāya pṛṣṭaḥ kila pūrvajena
 > athāha tan mantra-dṛśāṁ varīyān

@@ -1,5 +1,8 @@
 ### CC Antya 12.12
 
+> শিবানন্দ-পত্নী চলে তিন-পুত্র লঞা ।
+> রাঘব-পণ্ডিত চলে ঝালি সাজাঞা ॥১২॥
+
 > śivānanda-patnī cale tina-putra lañā
 > rāghava-paṇḍita cale jhāli sājāñā
 

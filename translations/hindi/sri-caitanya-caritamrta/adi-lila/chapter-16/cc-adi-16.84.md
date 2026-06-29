@@ -1,5 +1,8 @@
 ### CC Adi 16.84
 
+> স্থূল এই পঞ্চ দোষ, পঞ্চ অলঙ্কার ।
+> সূক্ষ্ম বিচারিয়ে যদি আছয়ে অপার ॥৮৪॥
+
 > sthūla ei pañca doṣa, pañca alaṅkāra
 > sūkṣma vicāriye yadi āchaye apāra
 

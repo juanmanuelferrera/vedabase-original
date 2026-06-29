@@ -1,5 +1,8 @@
 ### CC Adi 17.217
 
+> তোমার মুখে কৃষ্ণনাম, — এ বড় বিচিত্র ।
+> পাপক্ষয় গেল, হৈলা পরম পবিত্র ॥২১৭॥
+
 > tomāra mukhe kṛṣṇa-nāma,--e baḍa vicitra
 > pāpa-kṣaya gela, hailā parama pavitra
 

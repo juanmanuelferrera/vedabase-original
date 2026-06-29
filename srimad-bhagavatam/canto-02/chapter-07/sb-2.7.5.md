@@ -1,5 +1,10 @@
 ### SB 2.7.5
 
+> तप्तं तपो विविधलोकसिसृक्षया मे
+> आदौ सनात्स्वतपसः स चतुःसनोऽभूत् ।
+> प्राक्कल्पसम्प्लवविनष्टमिहात्मतत्त्वं
+> सम्यग्जगाद मुनयो यदचक्षतात्मन् ॥५॥
+
 > taptaṁ tapo vividha-loka-sisṛkṣayā me
 > ādau sanāt sva-tapasaḥ sa catuḥ-sano 'bhūt
 > prāk-kalpa-samplava-vinaṣṭam ihātma-tattvaṁ

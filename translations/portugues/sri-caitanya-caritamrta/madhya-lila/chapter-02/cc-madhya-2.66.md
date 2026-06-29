@@ -1,5 +1,10 @@
 ### CC Madhya 2.66
 
+> উন্মাদের লক্ষণ, করায় কৃষ্ণ-স্ফুরণ,
+> ভাবাবেশে উঠে প্রণয় মান ৷
+> সোল্লুণ্ঠ-বচন-রীতি, মান, গর্ব, ব্যাজ-স্তুতি,
+> কভু নিন্দা, কভু বা সম্মান ৷৷ ৬৬ ৷৷ ॥৬৬॥
+
 unmādera lakṣaṇa, karāya kṛṣṇa-sphuraṇa,
 bhāvāveśe uṭhe praṇaya māna
 solluṇṭha-vacana-rīti, māna, garva, vyāja-stuti,

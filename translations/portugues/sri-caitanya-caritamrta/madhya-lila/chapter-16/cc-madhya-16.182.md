@@ -1,5 +1,8 @@
 ### CC Madhya 16.182
 
+> ‘হিন্দু’ হৈলে পাইতাম তোমার চরণ-সন্নিধান  ।
+> ব্যর্থ মোর এই দেহ, যাউক পরাণ ।।” ১৮২ ॥১৮২॥
+
 'hindu' haile pāitāma tomāra caraṇa-sannidhāna
 
 vyartha mora ei deha, yāuka parāṇa"

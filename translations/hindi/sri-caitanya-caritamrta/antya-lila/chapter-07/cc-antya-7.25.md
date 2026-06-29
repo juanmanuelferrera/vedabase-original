@@ -1,5 +1,8 @@
 ### CC Antya 7.25
 
+> দাস্য, সখ্য, বাৎসল্য, আর যে শৃঙ্গার ।
+> দাস, সখা, গুরু, কান্তা, — ‘আশ্রয়’ যাহার ॥২৫॥
+
 > dāsya, sakhya, vātsalya, āra ye śṛṅgāra
 > dāsa, sakhā, guru, kāntā,--'āśraya' yāhāra
 

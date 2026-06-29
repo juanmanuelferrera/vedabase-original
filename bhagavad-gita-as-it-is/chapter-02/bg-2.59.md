@@ -1,5 +1,8 @@
 ### Bg 2.59
 
+> विषया विनिवर्तन्ते निराहारस्य देहिनः ।
+> रसवर्जं रसोऽप्यस्य परं दृष्ट्वा निवर्तते ॥५९॥
+
 > viṣayā vinivartante
 > nirāhārasya dehinaḥ
 > rasa-varjaṁ raso 'py asya

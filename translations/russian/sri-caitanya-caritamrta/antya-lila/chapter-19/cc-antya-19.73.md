@@ -1,5 +1,8 @@
 ### CC Antya 19.73
 
+> নিরন্তর ঘুমায় শঙ্কর শীঘ্র-চেতন ।
+> বসি’ পাদ চাপি’ করে রাত্রি-জাগরণ ॥৭৩॥
+
 > nirantara ghumāya śaṅkara śīghra-cetana
 > vasi' pāda cāpi' kare rātri-jāgaraṇa
 

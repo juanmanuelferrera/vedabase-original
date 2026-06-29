@@ -1,5 +1,8 @@
 ### CC Antya 10.62
 
+> সঙ্কীর্তন-কোলাহলে আকাশ ভেদিল ।
+> সব জগন্নাথবাসী দেখিতে আইল ॥৬২॥
+
 > saṅkīrtana-kolāhale ākāśa bhedila
 > saba jagannātha-vāsī dekhite āila
 

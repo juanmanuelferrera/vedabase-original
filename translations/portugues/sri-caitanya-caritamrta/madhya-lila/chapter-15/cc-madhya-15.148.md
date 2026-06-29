@@ -1,5 +1,8 @@
 ### CC Madhya 15.148
 
+> প্রাতঃকালে আসি’ মোর ধরিল চরণ  ।
+> কান্দিতে কান্দিতে কিছু করে নিবেদন ॥১৪৮॥
+
 prātaḥ-kāle āsi' mora dharila caraṇa
 
 kāndite kāndite kichu kare nivedana

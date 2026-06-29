@@ -1,5 +1,8 @@
 ### CC Madhya 3.191
 
+> আজ্ঞা দেহ নীলাচলে করিয়ে গমন ।
+> মধ্যে মধ্যে আসি’ তোমায় দিব দরশন ॥১৯১॥
+
 > ājñā deha nīlācale kariye gamana
 > madhye madhye āsi' tomāya diba daraśana
 

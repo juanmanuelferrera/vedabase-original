@@ -1,5 +1,8 @@
 ### CC Madhya 24.118
 
+> নব-যোগীশ্বর জন্ম হৈতে ‘সাধক’ জ্ঞানী ।
+> বিধি-শিব-নারদ-মুখে কৃষ্ণগুণ শুনি’ ॥১১৮॥
+
 > nava-yogīśvara janma haite 'sādhaka' jñānī
 > vidhi-śiva-nārada-mukhe kṛṣṇa-guṇa śuni'
 

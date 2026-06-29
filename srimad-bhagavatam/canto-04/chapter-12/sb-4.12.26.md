@@ -1,5 +1,8 @@
 ### SB 4.12.26
 
+> अनास्थितं ते पितृभिरन्यैरप्यङ्ग कर्हिचित् ।
+> आतिष्ठ जगतां वन्द्यं तद्विष्णोः परमं पदम् ॥२६॥
+
 > anāsthitaṁ te pitṛbhir
 > anyair apy aṅga karhicit
 > ātiṣṭha jagatāṁ vandyaṁ

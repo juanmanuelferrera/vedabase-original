@@ -1,5 +1,8 @@
 ### CC Adi 2.112
 
+> অবতারীর দেহে সব অবতারের স্থিতি ।
+> কেহো কোনমতে কহে, যেমন যার মতি ॥১১২॥
+
 avatārīra dehe saba avatārera sthiti
 
 keho kona-mate kahe, yemana yāra mati

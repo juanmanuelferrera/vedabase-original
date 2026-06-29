@@ -1,5 +1,8 @@
 ### CC Adi 6.16
 
+> আপনে পুরুষ — বিশ্বের ‘নিমিত্ত’-কারণ ।
+> অদ্বৈত-রূপে ‘উপাদান’ হন নারায়ণ ॥১৬॥
+
 > āpane puruṣa--viśvera 'nimitta'-kāraṇa
 > advaita-rūpe 'upādāna' hana nārāyaṇa
 

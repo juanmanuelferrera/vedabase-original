@@ -1,5 +1,8 @@
 ### CC Adi 1.13
 
+> অদ্বৈতং হরিণাদ্বৈতাদাচার্যং ভক্তিশংসনাৎ ।
+> ভক্তাবতারমীশং তমদ্বৈতাচার্যমাশ্রয়ে ॥১৩॥
+
 advaitaṁ hariṇādvaitād
 ācāryaṁ bhakti-śaṁsanāt
 bhaktāvatāram īśaṁ tam

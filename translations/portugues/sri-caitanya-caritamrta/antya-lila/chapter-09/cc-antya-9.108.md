@@ -1,5 +1,8 @@
 ### CC Antya 9.108
 
+> পরমার্থে প্রভুর কৃপা, সেহ রহু দূরে ।
+> অনন্ত তাহার ফল, কে বলিতে পারে ? ॥ ১০৮ ॥
+
 paramārthe prabhura kṛpā, seha rahu dūre
 
 ananta tāhāra phala, ke balite pāre?

@@ -1,5 +1,8 @@
 ### CC Madhya 10.95
 
+> সত্বরে আসিয়া তেঁহ মিলিলা প্রভুরে ।
+> প্রভুর আনন্দ হৈল পাঞা তাঁহারে ॥৯৫॥
+
 > satvare āsiyā teṅha mililā prabhure
 > prabhura ānanda haila pāñā tāṅhāre
 

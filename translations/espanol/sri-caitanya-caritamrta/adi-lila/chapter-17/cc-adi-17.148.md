@@ -1,5 +1,8 @@
 ### CC Adi 17.148
 
+> গ্রামসম্বন্ধে ‘চক্রবর্তী’ হয় মোর চাচা ।
+> দেহ-সম্বন্ধে হৈতে হয় গ্রাম-সম্বন্ধ সাঁচা ॥১৪৮॥
+
 > grāma-sambandhe 'cakravartī' haya mora cācā
 > deha-sambandhe haite haya grāma-sambandha sāṅcā
 

@@ -1,5 +1,8 @@
 ### SB 3.16.36
 
+> तयोरसुरयोरद्य तेजसा यमयोर्हि वः ।
+> आक्षिप्तं तेज एतर्हि भगवांस्तद्विधित्सति ॥३६॥
+
 tayor asurayor adya
 tejasā yamayor hi vaḥ
 ākṣiptaṁ teja etarhi

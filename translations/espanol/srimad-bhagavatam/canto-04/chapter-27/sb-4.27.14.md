@@ -1,5 +1,8 @@
 ### SB 4.27.14
 
+> गन्धर्व्यस्तादृशीरस्य मैथुन्यश्च सितासिताः ।
+> परिवृत्त्या विलुम्पन्ति सर्वकामविनिर्मिताम् ॥१४॥
+
 > gandharvyas tādṛśīr asya
 > maithunyaś ca sitāsitāḥ
 > parivṛttyā vilumpanti

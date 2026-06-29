@@ -1,5 +1,8 @@
 ### CC Madhya 18.157
 
+> এত বলি’ মহাপ্রভুরে নৌকায় বসাঞা ।
+> পার করি’ ভট্টাচার্য চলিলা লঞা ॥১৫৭॥
+
 eta bali' mahāprabhure naukāya vasāñā
 
 pāra kari' bhaṭṭācārya calilā lañā

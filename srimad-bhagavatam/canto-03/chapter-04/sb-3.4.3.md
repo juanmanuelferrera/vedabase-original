@@ -1,5 +1,8 @@
 ### SB 3.4.3
 
+> भगवान्स्वात्ममायाया गतिं तामवलोक्य सः ।
+> सरस्वतीमुपस्पृश्य वृक्षमूलमुपाविशत् ॥३॥
+
 > bhagavān svātma-māyāyā
 > gatiṁ tām avalokya saḥ
 > sarasvatīm upaspṛśya

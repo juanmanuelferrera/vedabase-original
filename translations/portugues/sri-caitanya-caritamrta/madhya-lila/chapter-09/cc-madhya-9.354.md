@@ -1,5 +1,8 @@
 ### CC Madhya 9.354
 
+> প্রভু তাঁরে পাঠাইল ভোজন করিতে ৷
+> সেই রাত্রি তাঁর ঘরে রহিলা তাঁর প্রীতে ৷৷ ৩৫৪ ৷৷ ॥৩৫৪॥
+
 prabhu tāṅre pāṭhāila bhojana karite
 
 sei rātri tāṅra ghare rahilā tāṅra prīte

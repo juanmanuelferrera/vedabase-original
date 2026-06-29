@@ -1,5 +1,8 @@
 ### CC Madhya 15.271
 
+> গোপীনাথাচার্য গেলা প্রভু-দরশনে ।
+> প্রভু তাঁরে পুছিল ভট্টাচার্য-বিবরণে ॥২৭১॥
+
 gopīnāthācārya gelā prabhu-daraśane
 
 prabhu tāṅre puchila bhaṭṭācārya-vivaraṇe

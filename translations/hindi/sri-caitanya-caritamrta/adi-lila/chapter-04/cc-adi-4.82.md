@@ -1,5 +1,8 @@
 ### CC Adi 4.82
 
+> গোবিন্দানন্দিনী, রাধা, গোবিন্দমোহিনী ।
+> গোবিন্দসর্বস্ব, সর্বকান্তা-শিরোমণি ॥৮২॥
+
 > govindānandinī rādhā, govinda-mohinī
 > govinda-sarvasva, sarva-kāntā-śiromaṇi
 

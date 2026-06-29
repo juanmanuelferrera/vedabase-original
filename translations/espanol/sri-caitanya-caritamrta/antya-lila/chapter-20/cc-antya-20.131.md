@@ -1,5 +1,8 @@
 ### CC Antya 20.131
 
+> সপ্তদশে — গাভী-মধ্যে প্রভুর পতন ।
+> কূর্মাকার-অনুভাবের তাহাঁই উদ্গম ॥১৩১॥
+
 > saptadaśe--gābhī-madhye prabhura patana
 > kūrmākāra-anubhāvera tāhāṅi udgama
 

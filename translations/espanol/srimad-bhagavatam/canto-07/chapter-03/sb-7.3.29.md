@@ -1,5 +1,8 @@
 ### SB 7.3.29
 
+> त्वमीशिषे जगतस्तस्थुषश्च प्राणेन मुख्येन पतिः प्रजानाम
+> चित्तस्य चित्तैर्मनैन्द्रियाणां पतिर्महान्भूतगुणाशयेशः ॥२९॥
+
 > tvam īśiṣe jagatas tasthuṣaś ca
 > prāṇena mukhyena patiḥ prajānām
 > cittasya cittair mana-indriyāṇāṁ

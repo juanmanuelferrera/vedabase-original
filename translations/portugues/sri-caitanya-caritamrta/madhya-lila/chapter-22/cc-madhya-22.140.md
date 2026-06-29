@@ -1,5 +1,8 @@
 ### CC Madhya 22.140
 
+> কাম ত্যজি’ কৃষ্ণ ভজে শাস্ত্র-আজ্ঞা মানি’ ৷
+> দেব-ঋষি-পিত্রাদিকের কভু নহে ঋণী ॥১৪০॥
+
 kāma tyaji' kṛṣṇa bhaje śāstra-ājñā māni'
 
 deva-ṛṣi-pitrādikera kabhu nahe ṛṇī

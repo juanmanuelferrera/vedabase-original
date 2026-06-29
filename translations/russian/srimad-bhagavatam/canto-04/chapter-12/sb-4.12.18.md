@@ -1,5 +1,10 @@
 ### SB 4.12.18
 
+> भक्तिं हरौ भगवति प्रवहन्नजस्रम्
+> आनन्दबाष्पकलया मुहुरर्द्यमानः ।
+> विक्लिद्यमानहृदयः पुलकाचिताङ्गो
+> नात्मानमस्मरदसाविति मुक्तलिङ्गः ॥१८॥
+
 > bhaktiṁ harau bhagavati pravahann ajasram
 > ānanda-bāṣpa-kalayā muhur ardyamānaḥ
 > viklidyamāna-hṛdayaḥ pulakācitāṅgo

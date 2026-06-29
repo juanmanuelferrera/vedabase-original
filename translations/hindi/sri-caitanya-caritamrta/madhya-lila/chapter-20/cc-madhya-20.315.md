@@ -1,5 +1,8 @@
 ### CC Madhya 20.315
 
+> স্বরূপ — ঐশ্বর্যপূর্ণ, কৃষ্ণসম প্রায় ।
+> কৃষ্ণ অংশী, তেঁহো অংশ, বেদে হেন গায় ॥৩১৫॥
+
 > svarūpa--aiśvarya-pūrṇa, kṛṣṇa-sama prāya
 > kṛṣṇa aṁśī, teṅho aṁśa, vede hena gāya
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.242
 
+> দ্বারে বসি’ শুন তুমি নাম-সঙ্কীর্তন  ।
+> নাম সমাপ্ত হৈলে করিমু তব প্রীতি-আচরণ ॥২৪২॥
+
 dvāre vasi' śuna tumi nāma-saṅkīrtana
 
 nāma samāpta haile karimu tava prīti-ācaraṇa

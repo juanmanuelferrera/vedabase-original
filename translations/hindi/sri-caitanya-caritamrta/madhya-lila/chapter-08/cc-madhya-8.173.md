@@ -1,5 +1,8 @@
 ### CC Madhya 8.173
 
+> রাগ-তাম্বূলরাগে অধর উজ্জ্বল ।
+> প্রেমকৌটিল্য — নেত্রযুগলে কজ্জল ॥১৭৩॥
+
 > rāga-tāmbūla-rāge adhara ujjvala
 > prema-kauṭilya--netra-yugale kajjala
 

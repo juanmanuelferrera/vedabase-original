@@ -1,5 +1,8 @@
 ### CC Adi 17.226
 
+> এই মতে কাজীরে প্রভু করিলা প্রসাদ ।
+> ইহা যেই শুনে তার খণ্ডে অপরাধ ॥২২৬॥
+
 > ei mate kājīre prabhu karilā prasāda
 > ihā yei śune tāra khaṇḍe aparādha
 

@@ -1,5 +1,8 @@
 ### CC Antya 12.36
 
+> এত বলি শ্রীকান্ত, বালক আগে চলি’ যান ।
+> সঙ্গ ছাড়ি’ আগে গেলা মহাপ্রভুর স্থান ॥৩৬॥
+
 eta bali' śrīkānta, bālaka āge cali' yāna
 
 saṅga chāḍi' āge gelā mahāprabhura sthāna

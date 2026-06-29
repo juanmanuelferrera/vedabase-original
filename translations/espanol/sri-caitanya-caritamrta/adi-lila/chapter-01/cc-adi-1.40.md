@@ -1,5 +1,8 @@
 ### CC Adi 1.40
 
+> নিত্যানন্দরায় — প্রভুর স্বরূপপ্রকাশ ।
+> তাঁর পাদপদ্ম বন্দো যাঁর মুঞি দাস ॥৪০॥
+
 > nityānanda-rāya--prabhura svarūpa-prakāśa
 > tāṅra pāda-padma vando yāṅra muñi dāsa
 

@@ -1,5 +1,8 @@
 ### SB 3.32.16
 
+> ये त्विहासक्तमनसः कर्मसु श्रद्धयान्विताः ।
+> कुर्वन्त्यप्रतिषिद्धानि नित्यान्यपि च कृत्स्नशः ॥१६॥
+
 > ye tv ihāsakta-manasaḥ
 > karmasu śraddhayānvitāḥ
 > kurvanty apratiṣiddhāni

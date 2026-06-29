@@ -1,5 +1,8 @@
 ### CC Madhya 15.169
 
+> তুমি যাঁর হিত বাঞ্ছ’, সে হৈল ‘বৈষ্ণব’ ।
+> বৈষ্ণবের পাপ কৃষ্ণ দূর করে সব ॥১৬৯॥
+
 > tumi yāṅra hita vāñcha', se haila 'vaiṣṇava'
 > vaiṣṇavera pāpa kṛṣṇa dūra kare saba
 

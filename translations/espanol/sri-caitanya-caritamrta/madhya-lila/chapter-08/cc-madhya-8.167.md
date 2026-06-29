@@ -1,5 +1,8 @@
 ### CC Madhya 8.167
 
+> কারুণ্যামৃত-ধারায় স্নান প্রথম ৷
+> তারুণ্যামৃত-ধারায় স্নান মধ্যম ৷৷ ১৬৭ ৷৷ ॥১৬৭॥
+
 > kāruṇyāmṛta-dhārāya snāna prathama
 > tāruṇyāmṛta-dhārāya snāna madhyama
 

@@ -1,5 +1,8 @@
 ### CC Madhya 11.171
 
+> প্রভুপদে দুই জনে কৈল নিবেদনে ।
+> আজ্ঞা দেহ’, — বৈষ্ণবের করি সমাধানে ॥১৭১॥
+
 > prabhu-pade dui jane kaila nivedane
 > ājñā deha',-vaiṣṇavera kari samādhāne
 

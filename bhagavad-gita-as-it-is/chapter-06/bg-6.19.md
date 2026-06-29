@@ -1,5 +1,8 @@
 ### Bg 6.19
 
+> यथा दीपो निवातस्थो नेङ्गते सोपमा स्मृता ।
+> योगिनो यतचित्तस्य युञ्जतो योगमात्मनः ॥१९॥
+
 > yathā dīpo nivāta-stho
 > neṅgate sopamā smṛtā
 > yogino yata-cittasya

@@ -1,5 +1,8 @@
 ### CC Madhya 10.65
 
+> এবে আমি ইহাঁ আনি’ করিলাঙ বিদায় ।
+> যাহাঁ ইচ্ছা, যাহ, আমা-সনে নাহি আর দায় ॥৬৫॥
+
 > ebe āmi ihāṅ āni' karilāṅa vidāya
 > yāhāṅ icchā, yāha, āmā-sane nāhi āra dāya
 

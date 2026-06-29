@@ -1,5 +1,8 @@
 ### CC Madhya 20.334
 
+> সত্যযুগে ধর্ম-ধ্যান করায় ‘শুক্ল’-মূর্তি ধরি’ ।
+> কর্দমকে বর দিলা যেঁহো কৃপা করি’ ॥৩৩৪॥
+
 satya-yuge dharma-dhyāna karāya 'śukla'-mūrti dhari'
 
 kardamake vara dilā yeṅho kṛpā kari'

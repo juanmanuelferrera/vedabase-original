@@ -1,5 +1,8 @@
 ### SB 1.5.22
 
+> इदं हि पुंसस्तपसः श्रुतस्य वा स्विष्टस्य सूक्तस्य च बुद्धिदत्तयोः ।
+> अविच्युतोऽर्थः कविभिर्निरूपितो यदुत्तमश्लोकगुणानुवर्णनम् ॥२२॥
+
 > idaṁ hi puṁsas tapasaḥ śrutasya vā
 > sviṣṭasya sūktasya ca buddhi-dattayoḥ
 > avicyuto 'rthaḥ kavibhir nirūpito

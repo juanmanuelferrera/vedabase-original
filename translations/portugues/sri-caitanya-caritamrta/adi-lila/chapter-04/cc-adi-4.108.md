@@ -1,5 +1,8 @@
 ### CC Adi 4.108
 
+> রাধিকার ভাব যৈছে উদ্ধবদর্শনে ।
+> সেই ভাবে মত্ত প্রভু রহে রাত্রিদিনে ॥১০৮॥
+
 rādhikāra bhāva yaiche uddhava-darśane
 sei bhāve matta prabhu rahe rātri-dine
 

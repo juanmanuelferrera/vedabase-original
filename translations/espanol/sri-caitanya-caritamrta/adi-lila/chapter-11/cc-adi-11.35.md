@@ -1,5 +1,8 @@
 ### CC Adi 11.35
 
+> মহাভাগবত যদুনাথ কবিচন্দ্র ।
+> যাঁহার হৃদয়ে নৃত্য করে নিত্যানন্দ ॥৩৫॥
+
 > mahā-bhāgavata yadunātha kavicandra
 > yāṅhāra hṛdaye nṛtya kare nityānanda
 

@@ -1,5 +1,8 @@
 ### CC Madhya 16.150
 
+> দুই রাজপাত্র যেই প্রভু-সঙ্গে যায় ।
+> ‘যাজপুর’ আসি’ প্রভু তারে দিলেন বিদায় ॥১৫০॥
+
 > dui rāja-pātra yei prabhu-saṅge yāya
 > 'yājapura' āsi' prabhu tāre dilena vidāya
 

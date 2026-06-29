@@ -1,5 +1,8 @@
 ### CC Madhya 7.81
 
+> কেহ নাচে, কেহ গায়, ‘শ্রীকৃষ্ণ’ ‘গোপাল’ ৷
+> প্রেমেতে ভাসিল লোক, — স্ত্রী-বৃদ্ধ-আবাল ৷৷ ৮১ ৷৷ ॥৮১॥
+
 keha nāce, keha gāya, 'śrī-kṛṣṇa' 'gopāla'
 
 premete bhāsila loka,--strī-vṛddha-ābāla

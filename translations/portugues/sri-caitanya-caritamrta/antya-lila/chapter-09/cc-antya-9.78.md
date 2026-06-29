@@ -1,5 +1,8 @@
 ### CC Antya 9.78
 
+> এথা তুমি বসি’ রহ, কেনে যাবে আলালনাথ ?
+> কেহ তোমা না শুনাবে বিষয়ীর বাত্ ॥৭৮॥
+
 ethā tumi vasi' raha, kene yābe ālālanātha?
 
 keha tomā nā śunābe viṣayīra vāt

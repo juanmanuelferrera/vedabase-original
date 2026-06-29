@@ -1,5 +1,8 @@
 ### SB 9.4.17
 
+> वासुदेवे भगवति तद्भक्तेषु च साधुषु
+> प्राप्तो भावं परं विश्वं येनेदं लोष्ट्रवत्स्मृतम ॥१७॥
+
 > vāsudeve bhagavati
 > tad-bhakteṣu ca sādhuṣu
 > prāpto bhāvaṁ paraṁ viśvaṁ

@@ -1,5 +1,8 @@
 ### SB 1.4.33
 
+> तमभिज्ञाय सहसा प्रत्युत्थायागतं मुनिः ।
+> पूजयामास विधिवन्नारदं सुरपूजितम् ॥३३॥
+
 > tam abhijñāya sahasā
 > pratyutthāyāgataṁ muniḥ
 > pūjayām āsa vidhivan

@@ -1,5 +1,8 @@
 ### CC Madhya 18.31
 
+> ঐছে ম্লেচ্ছভয়ে গোপাল ভাগে বারে-বারে ।
+> মন্দির ছাড়ি’ কুঞ্জে রহে, কিবা গ্রামান্তরে ॥৩১॥
+
 aiche mleccha-bhaye gopāla bhāge bāre-bāre
 
 mandira chāḍi' kuñje rahe, kibā grāmāntare

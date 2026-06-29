@@ -1,5 +1,8 @@
 ### CC Madhya 6.206
 
+> শত শ্লোক কৈল এক দণ্ড না যাইতে ।
+> বৃহস্পতি তৈছে শ্লোক না পারে করিতে ॥২০৬॥
+
 > śata śloka kaila eka daṇḍa nā yāite
 > bṛhaspati taiche śloka nā pāre karite
 

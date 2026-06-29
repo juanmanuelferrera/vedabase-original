@@ -1,5 +1,8 @@
 ### CC Antya 2.85
 
+> সখ্যভাবাক্রান্ত-চিত্ত, গোপ-অবতার ।
+> স্বরূপ-গোসাঞি-সহ সখ্য-ব্যবহার ॥৮৫॥
+
 sakhya-bhāvākrānta-citta, gopa-avatāra
 
 svarūpa-gosāñi-saha sakhya-vyavahāra

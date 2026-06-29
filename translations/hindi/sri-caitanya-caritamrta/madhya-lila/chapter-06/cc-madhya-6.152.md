@@ -1,5 +1,8 @@
 ### CC Madhya 6.152
 
+> ষড়ৈশ্বর্যপূর্ণানন্দ-বিগ্রহ যাঁহার ।
+> হেন-ভগবানে তুমি কহ নিরাকার? ॥১৫২॥
+
 > ṣaḍ-aiśvarya-pūrṇānanda-vigraha yāṅhāra
 > hena-bhagavāne tumi kaha nirākāra ?
 

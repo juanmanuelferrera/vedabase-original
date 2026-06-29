@@ -1,5 +1,8 @@
 ### SB 4.24.63
 
+> त्वमेक आद्यः पुरुषः सुप्तशक्तिस्तया रजःसत्त्वतमो विभिद्यते ।
+> महानहं खं मरुदग्निवार्धराः सुरर्षयो भूतगणा इदं यतः ॥६३॥
+
 > tvam eka ādyaḥ puruṣaḥ supta-śaktis
 > tayā rajaḥ-sattva-tamo vibhidyate
 > mahān ahaṁ khaṁ marud agni-vār-dharāḥ

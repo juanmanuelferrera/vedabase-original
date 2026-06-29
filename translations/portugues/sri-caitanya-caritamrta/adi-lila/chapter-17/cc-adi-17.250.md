@@ -1,5 +1,8 @@
 ### CC Adi 17.250
 
+> শুনি’ প্রভু ক্রোধে কৈল কৃষ্ণে দোষোদ্গার ।
+> ঠেঙ্গা লঞা উঠিলা প্রভু পড়ুয়া মারিবার ॥২৫০॥
+
 śuni' prabhu krodhe kaila kṛṣṇe doṣodgāra
 
 ṭheṅgā lañā uṭhilā prabhu paḍuyā māribāra

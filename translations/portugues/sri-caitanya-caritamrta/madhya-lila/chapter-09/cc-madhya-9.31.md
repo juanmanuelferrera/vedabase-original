@@ -1,5 +1,8 @@
 ### CC Madhya 9.31
 
+> পরংব্রহ্ম দুই নাম সমান হইল ৷
+> পুনঃ আর শাস্ত্রে কিছু বিশেষ পাইল ৷৷ ৩১ ৷৷ ॥৩১॥
+
 paraṁ brahma dui-nāma samāna ha-ila
 punaḥ āra śāstre kichu viśeṣa pāila
 

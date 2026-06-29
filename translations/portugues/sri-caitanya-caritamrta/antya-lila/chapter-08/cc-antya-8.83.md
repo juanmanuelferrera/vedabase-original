@@ -1,5 +1,8 @@
 ### CC Antya 8.83
 
+> ইঁহার বচনে কেনে অন্ন ত্যাগ কর ?
+> পূর্ববৎ নিমন্ত্রণ মান’, — সবার বোল ধর ।।” ॥ ৮৩ ॥
+
 iṅhāra vacane kene anna tyāga kara?
 
 pūrvavat nimantraṇa māna',--sabāra bola dhara"

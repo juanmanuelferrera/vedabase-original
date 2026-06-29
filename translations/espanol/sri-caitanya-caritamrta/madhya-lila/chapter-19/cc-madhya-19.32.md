@@ -1,5 +1,8 @@
 ### CC Madhya 19.32
 
+> শুনিয়া শ্রীরূপ লিখিল সনাতন-ঠাঞি ।
+> ‘বৃন্দাবন চলিলা শ্রীচৈতন্য-গোসাঞি ॥৩২॥
+
 > śuniyā śrī-rūpa likhila sanātana-ṭhāñi
 > 'vṛndāvana calilā śrī-caitanya-gosāñi
 

@@ -1,5 +1,8 @@
 ### CC Adi 1.75
 
+> অনেকত্র প্রকটতা রূপস্যৈকস্য যৈকদা ।
+> সর্বথা তত্স্বরূপৈব স প্রকাশ ইতীর্যতে ॥৭৫॥
+
 > anekatra prakaṭatā
 > rūpasyaikasya yaikadā
 > sarvathā tat-svarūpaiva

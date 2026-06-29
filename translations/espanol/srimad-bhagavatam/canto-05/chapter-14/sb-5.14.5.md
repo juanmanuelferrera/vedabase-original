@@ -1,5 +1,7 @@
 ### SB 5.14.5
 
+> तत्र गतो दंशमशकसमापसदैर्मनुजैः शलभशकुन्ततस्करमूषकादिभिरुपरुध्यमानबहिःप्राणः क्वचित्परिवर्तमानोऽस्मिन्नध्वन्यविद्याकामकर्मभिरुपरक्तमनसानुपपन्नार्थं नरलोकं गन्धर्वनगरमुपपन्नमिति मिथ्यादृष्टिरनुपश्यति ॥५॥
+
 > tatra gato daṁśa-maśaka-samāpasadair manujaiḥ śalabha-śakunta-taskara-mūṣakādibhir uparudhyamāna-bahiḥ-prāṇaḥ kvacit parivartamāno 'sminn adhvany avidyā-kāma-karmabhir uparakta-manasānupapannārthaṁ nara-lokaṁ gandharva-nagaram upapannam iti mithyā-dṛṣṭir anupaśyati.
 
 *tatra*—a esa vida familiar; *gataḥ*—ido; *daṁśa*—tábanos; *maśaka*—mosquitos; *sama*—iguales a; *apasadaiḥ*—que son de clase baja; *manu-jaiḥ*—por hombres; *śalabha*—langostas; *śakunta*—una gran ave de presa; *taskara*—ladrones; *mūṣaka-ādibhiḥ*—por ratas, etc.; *uparudhyamāna*—molestado; *bahiḥ-prāṇaḥ*—el aire vital externo en forma de riquezas, etc.; *kvacit*—a veces; *parivartamānaḥ*—vagar; *asmin*—en este; *adhvani*—sendero de la existencia material; *avidyā-kāma*—por la ignorancia y el deseo de disfrute; *karmabhiḥ*—y por las actividades fruitivas; *uparakta-manasā*—debido a que la mente es influida; *anupapanna-artham*—en el cual nunca se obtienen los resultados deseados; *nara-lokam*—este mundo material; *gandharva-nagaram*—una ciudad espejismo; *upapannam*—existir; *iti*—considerándolo; *mithyā-dṛṣṭiḥ*—aquel que ve las cosas de modo equivocado; *anupaśyati*—observa.

@@ -1,5 +1,8 @@
 ### CC Madhya 3.108
 
+> শান্তিপুরের লোক শুনি’ প্রভুর আগমন ।
+> দেখিতে আইলা লোক প্রভুর চরণ ॥১০৮॥
+
 > śāntipurera loka śuni' prabhura āgamana
 > dekhite āilā loka prabhura caraṇa
 

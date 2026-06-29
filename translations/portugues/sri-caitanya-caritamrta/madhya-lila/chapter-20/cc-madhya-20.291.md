@@ -1,5 +1,8 @@
 ### CC Madhya 20.291
 
+> ব্রহ্মা, বিষ্ণু, শিব — তাঁর গুণ-অবতার ।
+> সৃষ্টি-স্থিতি-প্রলয়ের তিনের অধিকার ॥২৯১॥
+
 brahmā, viṣṇu, śiva--tāṅra guṇa-avatāra
 
 sṛṣṭi-sthiti-pralayera tinera adhikāra

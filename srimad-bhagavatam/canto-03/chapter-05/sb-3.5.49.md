@@ -1,5 +1,8 @@
 ### SB 3.5.49
 
+> यावद्बलिं तेऽज हराम काले यथा वयं चान्नमदाम यत्र ।
+> यथोभयेषां त इमे हि लोका बलिं हरन्तोऽन्नमदन्त्यनूहाः ॥४९॥
+
 > yāvad baliṁ te 'ja harāma kāle
 > yathā vayaṁ cānnam adāma yatra
 > yathobhayeṣāṁ ta ime hi lokā

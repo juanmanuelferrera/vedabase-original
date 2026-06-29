@@ -1,5 +1,8 @@
 ### CC Antya 6.61
 
+> রামদাস, সুন্দরানন্দ, দাস-গদাধর ।
+> মুরারি, কমলাকর, সদাশিব, পুরন্দর ॥৬১॥
+
 > rāmadāsa, sundarānanda, dāsa-gadādhara
 > murāri, kamalākara, sadāśiva, purandara
 

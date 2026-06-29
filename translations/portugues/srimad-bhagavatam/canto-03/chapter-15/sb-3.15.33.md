@@ -1,5 +1,10 @@
 ### SB 3.15.33
 
+> न ह्यन्तरं भगवतीह समस्तकुक्षाव्
+> आत्मानमात्मनि नभो नभसीव धीराः ।
+> पश्यन्ति यत्र युवयोः सुरलिङ्गिनोः किं
+> व्युत्पादितं ह्युदरभेदि भयं यतोऽस्य ॥३३॥
+
 na hy antaraṁ bhagavatīha samasta-kukṣāv
 ātmānam ātmani nabho nabhasīva dhīrāḥ
 paśyanti yatra yuvayoḥ sura-liṅginoḥ kiṁ

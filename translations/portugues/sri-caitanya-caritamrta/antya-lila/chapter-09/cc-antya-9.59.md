@@ -1,5 +1,8 @@
 ### CC Antya 9.59
 
+> হেনকালে কাশীমিশ্র আইলা প্রভু-স্থানে ।
+> প্রভু তাঁরে কহে কিছু সোদ্বেগ-বচনে ॥৫৯॥
+
 hena-kāle kāśī-miśra āilā prabhu-sthāne
 
 prabhu tāṅre kahe kichu sodvega-vacane

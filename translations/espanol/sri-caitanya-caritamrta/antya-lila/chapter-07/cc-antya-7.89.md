@@ -1,5 +1,8 @@
 ### CC Antya 7.89
 
+> বিমনা হঞা ভট্ট গেলা নিজ-ঘর ।
+> প্রভু-বিষয়ে ভক্তি কিছু হইল অন্তর ॥৮৯॥
+
 > vimanā hañā bhaṭṭa gelā nija-ghara
 > prabhu-viṣaye bhakti kichu ha-ila antara
 

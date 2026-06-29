@@ -1,5 +1,8 @@
 ### CC Adi 7.122
 
+> পরিণাম-বাদে ঈশ্বর হয়েন বিকারী ।
+> এত কহি’ ‘বিবর্ত’-বাদ স্থাপনা যে করি ॥১২২॥
+
 pariṇāma-vāde īśvara hayena vikārī
 
 eta kahi' 'vivarta'-vāda sthāpanā ye kari

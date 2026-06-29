@@ -1,5 +1,8 @@
 ### SB 3.8.15
 
+> तल्लोकपद्मं स उ एव विष्णुः प्रावीविशत्सर्वगुणावभासम् ।
+> तस्मिन्स्वयं वेदमयो विधाता स्वयम्भुवं यं स्म वदन्ति सोऽभूत् ॥१५॥
+
 > tal loka-padmaṁ sa u eva viṣṇuḥ
 > prāvīviśat sarva-guṇāvabhāsam
 > tasmin svayaṁ vedamayo vidhātā

@@ -1,5 +1,8 @@
 ### Bg 6.4
 
+> यदा हि नेन्द्रियार्थेषु न कर्मस्वनुषज्जते ।
+> सर्वसङ्कल्पसंन्यासी योगारूढस्तदोच्यते ॥४॥
+
 > yadā hi nendriyārtheṣu
 > na karmasv anuṣajjate
 > sarva-saṅkalpa-sannyāsī

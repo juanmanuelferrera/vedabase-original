@@ -1,5 +1,10 @@
 ### CC Madhya 2.39
 
+> ক্ষণে বাহ্য হৈল মন, আগে দেখে দুই জন,
+> তাঁরে পুছে, — আমি না চৈতন্য?
+> স্বপ্নপ্রায় কি দেখিনু, কিবা আমি প্রলাপিনু,
+> তোমরা কিছু শুনিয়াছ দৈন্য? ॥ ৩৯ ॥
+
 kṣaṇe bāhya haila mana, āge dekhe dui jana,
 tāṅre puche,--āmi nā caitanya?
 svapna-prāya ki dekhinu, kibā āmi pralāpinu,

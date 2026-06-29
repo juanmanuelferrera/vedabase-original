@@ -1,5 +1,8 @@
 ### SB 3.24.28
 
+> बहुजन्मविपक्वेन सम्यग्योगसमाधिना ।
+> द्रष्टुं यतन्ते यतयः शून्यागारेषु यत्पदम् ॥२८॥
+
 *bahu-janma-vipakvena
 samyag-yoga-samādhinā
 draṣṭuṁ yatante yatayaḥ

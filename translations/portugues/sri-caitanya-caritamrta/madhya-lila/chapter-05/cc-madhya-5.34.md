@@ -1,5 +1,8 @@
 ### CC Madhya 5.34
 
+> এত বলি’ দুইজনে চলিলা দেশেরে ।
+> গুরুবুদ্ধ্যে ছোট-বিপ্ৰ বহু সেবা করে ॥৩৪॥
+
 eta bali' dui-jane calilā deśere
 
 guru-buddhye choṭa-vipra bahu sevā kare

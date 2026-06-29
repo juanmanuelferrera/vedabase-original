@@ -1,5 +1,8 @@
 ### CC Madhya 24.226
 
+> ‘নির্গ্রন্থ হঞা’ — এই দুঁহার ‘বিশেষণ’ ।
+> আর অর্থ শুন, যৈছে সাধুর সঙ্গম ॥২২৬॥
+
 > 'nirgrantha hañā'—ei duṅhāra 'viśeṣaṇa'
 > āra artha śuna, yaiche sādhura saṅgama
 

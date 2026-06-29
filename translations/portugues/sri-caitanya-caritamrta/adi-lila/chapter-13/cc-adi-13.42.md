@@ -1,5 +1,8 @@
 ### CC Adi 13.42
 
+> বিদ্যাপতি, জয়দেব, চণ্ডীদাসের গীত ।
+> আস্বাদেন রামানন্দ-স্বরূপ-সহিত ॥৪২॥
+
 vidyāpati, jayadeva, caṇḍīdāsera gīta
 āsvādena rāmānanda-svarūpa-sahita
 

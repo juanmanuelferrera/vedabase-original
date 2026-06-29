@@ -1,5 +1,7 @@
 ### SB 5.26.16
 
+> यस्त्विह वै राजा राजपुरुषो वा अदण्ड्ये दण्डं प्रणयति ब्राह्मणे वा शरीरदण्डं सपापीयान्नरकेऽमुत्र सूकरमुखे निपतति तत्रातिबलैर्विनिष्पिष्यमाणावयवो यथैवेहेक्षुखण्ड आर्तस्वरेण स्वनयन्क्वचिन्मूर्च्छितः कश्मलमुपगतो यथैवेहादृष्टदोषा उपरुद्धाः ॥१५॥
+
 > yas tv iha vai rājā rāja-puruṣo vā adaṇḍye daṇḍaṁ praṇayati brāhmaṇe vā śarīra-daṇḍaṁ sa pāpīyān narake 'mutra sūkaramukhe nipatati tatrātibalair viniṣpiṣyamāṇāvayavo yathaivehekṣukhaṇḍa ārta-svareṇa svanayan kvacin mūrcchitaḥ kaśmalam upagato yathaivehā-dṛṣṭa-doṣā uparuddhāḥ.
 
 *yaḥ*—anyone who; *tu*—but; *iha*—in this life; *vai*—indeed; *rājā*—a king; *rāja-puruṣaḥ*—a king's man; *vā*—or; *adaṇḍye*—unto one not punishable; *daṇḍam*—punishment; *praṇayati*—inflicts; *brāhmaṇe*—unto a *brāhmaṇa*; *vā*—or; *śarīra-daṇḍam*—corporal punishment; *saḥ*—that person, king or government officer; *pāpīyān*—the most sinful; *narake*—in the hell; *amutra*—in the next life; *sūkaramukhe*—named Sūkaramukha; *nipatati*—falls down; *tatra*—there; *ati-balaiḥ*—by very strong assistants of Yamarāja; *viniṣpiṣyamāṇa*—being crushed; *avayavaḥ*—the different parts of whose body; *yathā*—like; *eva*—certainly; *iha*—here; *ikṣu-khaṇḍaḥ*—sugarcane; *ārta-svareṇa*—with a pitiable sound; *svanayan*—crying; *kvacit*—sometimes; *mūrcchitaḥ*—fainted; *kaśmalam upagataḥ*—becoming illusioned; *yathā*—just like; *eva*—indeed; *iha*—here; *adṛṣṭa-doṣāḥ*—who is not at fault; *uparuddhāḥ*—arrested for punishment.

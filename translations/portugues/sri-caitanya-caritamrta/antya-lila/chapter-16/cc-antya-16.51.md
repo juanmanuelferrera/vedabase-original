@@ -1,5 +1,8 @@
 ### CC Antya 16.51
 
+> প্রতিদিন তাঁরে প্রভু করেন নমস্কার ।
+> নমস্করি’ এই শ্লোক পড়ে বারবার ॥৫১॥
+
 prati-dina tāṅre prabhu karena namaskāra
 
 namaskari' ei śloka paḍe bāra-bāra

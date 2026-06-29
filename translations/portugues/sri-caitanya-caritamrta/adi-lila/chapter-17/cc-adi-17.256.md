@@ -1,5 +1,8 @@
 ### CC Adi 17.256
 
+> পুনঃ যদি ঐছে করে মারিব তাহারে ।
+> কোন্ বা মানুষ হয়, কি করিতে পারে ॥২৫৬॥
+
 punaḥ yadi aiche kare māriba tāhare
 
 kon vā mānuṣa haya, ki karite pāre

@@ -1,5 +1,10 @@
 ### CC Madhya 21.41
 
+> যস্যৈকনিশ্বসিতকালমথাবলম্ব্য
+> জীবন্তি লোমবিলজা জগদণ্ডনাথাঃ ।
+> বিষ্ণুর্মহান্ স ইহ যস্য কলাবিশেষো
+> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥৪১॥
+
 > yasyaika-niśvasita-kālam athāvalambya
 > jīvanti loma-vilajā jagad-aṇḍa-nāthāḥ
 > viṣṇur mahān sa iha yasya kalā-viśeṣo

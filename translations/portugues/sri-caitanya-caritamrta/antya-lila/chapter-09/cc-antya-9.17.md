@@ -1,5 +1,8 @@
 ### CC Antya 9.17
 
+> “গোপীনাথ-পট্টনায়ক — রামানন্দ-ভাই ।
+> সর্বকাল হয় তেঁহ রাজবিষয়ী ॥১৭॥
+
 "gopīnātha-paṭṭanāyaka--rāmānanda-bhāi
 
 sarva-kāla haya teṅha rāja-viṣayī

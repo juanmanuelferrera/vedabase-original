@@ -1,5 +1,8 @@
 ### CC Madhya 8.120
 
+> কৃপা করি’ এই তত্ত্ব কহ ত’ আমারে ।
+> তোমা-বিনা কেহ ইহা নিরূপিতে নারে ॥১২০॥
+
 > kṛpā kari' ei tattva kaha ta' āmāre
 > tomā-vinā keha ihā nirūpite nāre
 

@@ -1,5 +1,10 @@
 ### SB 3.16.9
 
+> येषां बिभर्म्यहमखण्डविकुण्ठयोग
+> मायाविभूतिरमलाङ्घ्रिरजः किरीटैः ।
+> विप्रांस्तु को न विषहेत यदर्हणाम्भः
+> सद्यः पुनाति सहचन्द्रललामलोकान् ॥९॥
+
 > yeṣāṁ bibharmy aham akhaṇḍa-vikuṇṭha-yoga-
 > māyā-vibhūtir amalāṅghri-rajaḥ kirīṭaiḥ
 > viprāṁs tu ko na viṣaheta yad-arhaṇāmbhaḥ

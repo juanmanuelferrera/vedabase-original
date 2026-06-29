@@ -1,5 +1,8 @@
 ### CC Antya 12.114
 
+> পথে যাইতে তৈলগন্ধ মোর যেই পাবে ।
+> ‘দারী সন্ন্যাসী’ করি’ আমারে কহিবে ॥১১৪॥
+
 pathe yāite taila-gandha mora yei pābe
 
 'dārī sannyāsī' kari' āmāre kahibe

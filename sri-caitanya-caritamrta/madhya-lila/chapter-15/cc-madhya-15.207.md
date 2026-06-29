@@ -1,5 +1,8 @@
 ### CC Madhya 15.207
 
+> বত্তিশা-আঠিয়া কলার আঙ্গটিয়া পাতে ।
+> তিন-মান তণ্ডুলের উভারিল ভাতে ॥২০৭॥
+
 > battiśā-āṭhiyā kalāra āṅgaṭiyā pāte
 > tina-māna taṇḍulera ubhārila bhāte
 

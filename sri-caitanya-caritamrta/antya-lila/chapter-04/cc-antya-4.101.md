@@ -1,5 +1,8 @@
 ### CC Antya 4.101
 
+> প্রত্যহ কর তিনলক্ষ নাম-সঙ্কীর্তন  ।
+> সবার আগে কর নামের মহিমা কথন ॥১০১॥
+
 > pratyaha kara tina-lakṣa nāma-saṅkīrtana
 > sabāra āge kara nāmera mahimā kathana
 

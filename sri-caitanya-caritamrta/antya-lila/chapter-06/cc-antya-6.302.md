@@ -1,5 +1,8 @@
 ### CC Antya 6.302
 
+> জল-তুলসীর সেবায় তাঁর যত সুখোদয় ।
+> ষোড়শোপচার-পূজায় তত সুখ নয় ॥৩০২॥
+
 > jala-tulasīra sevāya tāṅra yata sukhodaya
 > ṣoḍaśopacāra-pūjāya tata sukha naya
 

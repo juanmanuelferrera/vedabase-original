@@ -1,5 +1,8 @@
 ### CC Antya 6.234
 
+> ‘সাধ্য’-‘সাধন’-তত্ত্ব শিখ ইঁহার স্থানে  ।
+> আমি তত নাহি জানি, ইঁহো যত জানে ॥২৩৪॥
+
 > 'sādhya'-'sādhana'-tattva śikha iṅhāra sthāne
 > āmi tata nāhi jāni, iṅho yata jāne
 

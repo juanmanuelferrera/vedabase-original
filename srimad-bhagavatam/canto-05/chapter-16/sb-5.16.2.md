@@ -1,5 +1,7 @@
 ### SB 5.16.2
 
+> तत्रापि प्रियव्रतरथचरणपरिखातैः सप्तभिः सप्त सिन्धव उपकॢप्ता यत एतस्याः सप्तद्वीपविशेषविकल्पस्त्वया भगवन्खलु सूचित एतदेवाखिलमहं मानतो लक्षणतश्च सर्वं विजिज्ञआसामि ॥२॥
+
 > tatrāpi priyavrata-ratha-caraṇa-parikhātaiḥ saptabhiḥ sapta sindhava upakḷptā yata etasyāḥ sapta-dvīpa-viśeṣa-vikalpas tvayā bhagavan khalu sūcita etad evākhilam ahaṁ mānato lakṣaṇataś ca sarvaṁ vi-jijñāsāmi.
 
 *tatra api*—in that Bhū-maṇḍala; *priyavrata-ratha-caraṇa-parikhātaiḥ*—by the ditches made by the wheels of the chariot used by Priyavrata Mahārāja while circumambulating Sumeru behind the sun; *saptabhiḥ*—by the seven; *sapta*—seven; *sindhavaḥ*—oceans; *upakḷptāḥ*—created; *yataḥ*—because of which; *etasyāḥ*—of this Bhū-maṇḍala; *sapta-dvīpa*—of the seven islands; *viśeṣa-vikalpaḥ*—the mode of the construction; *tvayā*—by you; *bhagavan*—O great saint; *khalu*—indeed; *sūcitaḥ*—described; *etat*—this; *eva*—certainly; *akhilam*—whole subject; *aham*—I; *mānataḥ*—from the point of view of measurement; *lakṣaṇataḥ*—and from symptoms; *ca*—also; *sarvam*—everything; *vijijñāsāmi*—wish to know.

@@ -1,5 +1,8 @@
 ### CC Madhya 19.70
 
+> দুঁহার মুখে নিরন্তর কৃষ্ণনাম শুনি’ ।
+> ভট্ট কহে, প্রভুর কিছু ইঙ্গিত-ভঙ্গী জানি’ ॥৭০॥
+
 > duṅhāra mukhe nirantara kṛṣṇa-nāma śuni'
 > bhaṭṭa kahe, prabhura kichu iṅgita-bhaṅgī jāni'
 

@@ -1,5 +1,8 @@
 ### CC Antya 7.24
 
+> তাতে প্রেমভক্তি — ‘পুরুষার্থ-শিরোমণি’ ।
+> রাগমার্গে প্রেমভক্তি ‘সর্বাধিক’ জানি ॥২৪॥
+
 > tāte prema-bhakti—'puruṣārtha-śiromaṇi'
 > rāga-mārge prema-bhakti 'sarvādhika' jāni
 

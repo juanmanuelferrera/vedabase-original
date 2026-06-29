@@ -1,5 +1,8 @@
 ### CC Antya 7.142
 
+> জগদানন্দ-পণ্ডিতের শুদ্ধ গাঢ় ভাব ।
+> সত্যভামা-প্রায় প্রেম ‘বাম্য-স্বভাব’ ॥১৪২॥
+
 > jagadānanda-paṇḍitera śuddha gāḍha bhāva
 > satyabhāmā-prāya prema 'vāmya-svabhāva'
 

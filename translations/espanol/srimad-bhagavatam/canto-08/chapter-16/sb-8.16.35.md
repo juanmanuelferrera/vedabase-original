@@ -1,5 +1,8 @@
 ### SB 8.16.35
 
+> नमो मरकतश्याम वपुषेऽधिगतश्रिये
+> केशवाय नमस्तुभ्यं नमस्ते पीतवाससे ॥३५॥
+
 > namo marakata-śyāma-
 > vapuṣe 'dhigata-śriye
 > keśavāya namas tubhyaṁ

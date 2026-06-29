@@ -1,5 +1,8 @@
 ### CC Antya 4.86
 
+> যারে যৈছে নাচাও, সে তৈছে করে নর্তনে ।
+> কৈছে নাচে, কেবা নাচায়, সেহ নাহি জানে" ॥৮৬॥
+
 > yāre yaiche nācāo, se taiche kare nartane
 > kaiche nāce, kebā nācāya, seha nāhi jāne"
 

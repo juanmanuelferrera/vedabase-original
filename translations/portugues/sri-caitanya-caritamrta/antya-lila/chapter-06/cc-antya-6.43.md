@@ -1,5 +1,8 @@
 ### CC Antya 6.43
 
+> পানিহাটি-গ্রামে পাইলা প্রভুর দরশন ।
+> কীর্তনীয়া সেবক সঙ্গে আর বহুজন ॥৪৩॥
+
 pānihāṭi-grāme pāilā prabhura daraśana
 
 kīrtanīyā sevaka saṅge āra bahu-jana

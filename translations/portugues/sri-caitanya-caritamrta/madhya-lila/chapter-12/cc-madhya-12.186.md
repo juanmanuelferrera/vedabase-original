@@ -1,5 +1,8 @@
 ### CC Madhya 12.186
 
+> ভক্ত-মহিমা বাড়াইতে, ভক্তে সুখ দিতে ।
+> মহাপ্রভু বিনা অন্য নাহি ত্রিজগতে ॥১৮৬॥
+
 bhakta-mahimā bāḍāite, bhakte sukha dite
 
 mahāprabhu vinā anya nāhi trijagate

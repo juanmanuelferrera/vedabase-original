@@ -1,5 +1,8 @@
 ### CC Madhya 12.69
 
+> এইমত মহাপ্রভু ভক্তগণ-সঙ্গে ।
+> নিরন্তর ক্রীড়া করে সংকীর্তন-রঙ্গে ॥৬৯॥
+
 ei-mata mahāprabhu bhakta-gaṇa-saṅge
 
 nirantara krīḍā kare saṅkīrtana-raṅge

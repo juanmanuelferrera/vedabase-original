@@ -1,5 +1,8 @@
 ### CC Antya 5.101
 
+> স্বরূপ কহে, — “তুমি ‘গোপ’ পরম-উদার ।
+> যে-সে শাস্ত্র শুনিতে ইচ্ছা উপজে তোমার ॥১০১॥
+
 > svarūpa kahe,--"tumi 'gopa' parama-udāra
 > ye-se śāstra śunite icchā upaje tomāra
 

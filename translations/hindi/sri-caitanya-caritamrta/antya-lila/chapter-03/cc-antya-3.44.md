@@ -1,5 +1,8 @@
 ### CC Antya 3.44
 
+> দামোদর আগে স্বাতন্ত্র্য না হয় কাহার ।
+> তার ভয়ে সবে করে সঙ্কোচ ব্যবহার ॥৪৪॥
+
 > dāmodara āge svātantrya nā haya kāhāra
 > tāra bhaye sabe kare saṅkoca vyavahāra
 

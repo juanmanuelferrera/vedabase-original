@@ -1,5 +1,7 @@
 ### CC Madhya 23.30
 
+> সমুত্কণ্ঠা হয় সদা লালসা-প্রধান ॥৩০॥
+
 > samutkaṇṭhā haya sadā lālasā-pradhāna
 
 *samutkaṇṭhā*—anhelo; *haya*—es; *sadā*—siempre; *lālasā*—deseo ardiente; *pradhāna*—caracterizado principalmente por.

@@ -1,5 +1,8 @@
 ### CC Madhya 10.137
 
+> প্রভু কহে, — ঈশ্বর হয় পরম স্বতন্ত্র ।
+> ঈশ্বরের কৃপা নহে বেদ-পরতন্ত্র ॥১৩৭॥
+
 > prabhu kahe,-īśvara haya parama svatantra
 > īśvarera kṛpā nahe veda-paratantra
 

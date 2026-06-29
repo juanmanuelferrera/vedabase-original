@@ -1,5 +1,8 @@
 ### CC Madhya 1.198
 
+> মোর কর্ম, মোর হাতে-গলায় বান্ধিয়া ।
+> কু-বিষয়-বিষ্ঠা-গর্তে দিয়াছে ফেলাইয়া ॥১৯৮॥
+
 > mora karma, mora hāte-galāya bāndhiyā
 > ku-viṣaya-viṣṭhā-garte diyāche phelāiyā
 

@@ -1,5 +1,8 @@
 ### CC Antya 10.123
 
+> কুলীনগ্রামের এই আগে দেখ যত ।
+> খণ্ডবাসী লোকের এই দেখ তত ।।” ॥ ১২৩ ॥
+
 kulīna-grāmera ei āge dekha yata
 
 khaṇḍa-vāsī lokera ei dekha tata"

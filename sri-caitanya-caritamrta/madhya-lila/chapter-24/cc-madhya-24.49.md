@@ -1,5 +1,7 @@
 ### CC Madhya 24.49
 
+> শ্রীঅঙ্গ-রূপে হরে গোপিকার মন ॥৪৯॥
+
 > śrī-aṅga-rūpe hare gopikāra mana
 
 *śrī-aṅga*—of His transcendental body; *rūpe*—by the beauty; *hare*—attracts; *gopikāra mana*—the minds of the *gopīs.*

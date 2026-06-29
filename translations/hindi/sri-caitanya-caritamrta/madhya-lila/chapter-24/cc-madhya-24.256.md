@@ -1,5 +1,8 @@
 ### CC Madhya 24.256
 
+> ব্যাধ কহে, — ‘যেই কহ, সেই ত’ করিব’ ।
+> নারদ কহে, — ‘ধনুক ভাঙ্গ, তবে সে কহিব’ ॥২৫৬॥
+
 > vyādha kahe,--'yei kaha, sei ta' kariba'
 > nārada kahe,--'dhanuka bhāṅga, tabe se kahiba'
 

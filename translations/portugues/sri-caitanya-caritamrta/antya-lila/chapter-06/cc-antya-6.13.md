@@ -1,5 +1,8 @@
 ### CC Antya 6.13
 
+> পূর্বে শান্তিপুরে রঘুনাথ যবে আইলা ।
+> মহাপ্রভু কৃপা করি’ তাঁরে শিখাইলা ॥১৩॥
+
 pūrve śāntipure raghunātha yabe āilā
 mahāprabhu kṛpā kari' tāṅre śikhāilā
 

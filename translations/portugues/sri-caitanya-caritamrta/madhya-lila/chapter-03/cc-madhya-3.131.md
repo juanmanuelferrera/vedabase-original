@@ -1,5 +1,8 @@
 ### CC Madhya 3.131
 
+> নিত্যানন্দ সঙ্গে বুলে প্ৰভুকে ধরিঞা ।
+> আচার্য, হরিদাস বুলে পাছে ত’ নাচিঞা ॥১৩১॥
+
 nityānanda saṅge bule prabhuke dhariñā
 
 ācārya, haridāsa bule pāche ta', nāciñā

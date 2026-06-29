@@ -1,5 +1,8 @@
 ### CC Adi 7.10
 
+> একলে ঈশ্বর-তত্ত্ব চৈতন্য-ঈশ্বর ।
+> ভক্তভাবময় তাঁর শুদ্ধ কলেবর ॥১০॥
+
 ekale īśvara-tattva caitanya-īśvara
 bhakta-bhāvamaya tāṅra śuddha kalevara
 

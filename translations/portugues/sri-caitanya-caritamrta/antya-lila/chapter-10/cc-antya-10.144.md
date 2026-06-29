@@ -1,5 +1,8 @@
 ### CC Antya 10.144
 
+> ‘চৈতন্যদাস’ নাম শুনি’ কহে গৌররায় ।
+> ‘কিবা নাম ধরাঞাছ, বুঝন না যায়’ ॥১৪৪॥
+
 'caitanya-dāsa' nāma śuni' kahe gaura-rāya
 
 'kibā nāma dharāñācha, bujhana nā yāya'

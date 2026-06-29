@@ -1,5 +1,8 @@
 ### SB 9.24.46
 
+> बलं गदं सारणं च दुर्मदं विपुलं ध्रुवम
+> वसुदेवस्तु रोहिण्यां कृतादीनुदपादयत ॥४६॥
+
 > balaṁ gadaṁ sāraṇaṁ ca
 > durmadaṁ vipulaṁ dhruvam
 > vasudevas tu rohiṇyāṁ

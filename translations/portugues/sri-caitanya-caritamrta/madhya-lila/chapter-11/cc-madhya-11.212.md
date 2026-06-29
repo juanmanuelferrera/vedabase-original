@@ -1,5 +1,8 @@
 ### CC Madhya 11.212
 
+> হেনকালে রামানন্দ আইলা প্রভু-স্থানে ৷
+> প্রভু মিলাইল তাঁরে সব বৈষ্ণবগণে ৷৷ ২১২ ৷৷ ॥২১২॥
+
 hena-kāle rāmānanda āilā prabhu-sthāne
 
 prabhu milāila tāṅre saba vaiṣṇava-gaṇe

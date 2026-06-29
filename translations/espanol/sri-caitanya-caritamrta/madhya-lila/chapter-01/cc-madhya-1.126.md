@@ -1,5 +1,8 @@
 ### CC Madhya 1.126
 
+> সবে মিলি’ যুক্তি করি’ কীর্তন আরম্ভিল ।
+> কীর্তন-আবেশে প্রভুর মন স্থির হৈল ॥১২৬॥
+
 > sabe mili' yukti kari' kīrtana ārambhila
 > kīrtana-āveśe prabhura mana sthira haila
 

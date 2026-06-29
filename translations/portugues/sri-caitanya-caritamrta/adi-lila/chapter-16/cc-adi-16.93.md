@@ -1,5 +1,8 @@
 ### CC Adi 16.93
 
+> ইহা শুনি’ মহাপ্রভু অতি বড় রঙ্গী ।
+> তাঁহার হৃদয় জানি’ কহে করি’ ভঙ্গী ॥৯৩॥
+
 ihā śuni' mahāprabhu ati baḍa raṅgī
 
 tāṅhāra hṛdaya jāni' kahe kari' bhaṅgī

@@ -1,5 +1,8 @@
 ### CC Adi 2.119
 
+> চৈতন্যপ্রভুর মহিমা কহিবার তরে ।
+> কৃষ্ণের মহিমা কহি করিয়া বিস্তারে ॥১১৯॥
+
 caitanya-prabhura mahimā kahibāra tare
 
 kṛṣṇera mahimā kahi kariyā vistāre

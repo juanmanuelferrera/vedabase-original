@@ -1,5 +1,8 @@
 ### CC Madhya 24.186
 
+> ‘আত্মা’-শব্দে ‘বুদ্ধি’ কহে বুদ্ধিবিশেষ ।
+> সামান্যবুদ্ধিযুক্ত যত জীব অবশেষ ॥১৮৬॥
+
 > 'ātmā'-śabde 'buddhi' kahe buddhi-viśeṣa
 > sāmānya-buddhi-yukta yata jīva avaśeṣa
 

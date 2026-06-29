@@ -1,5 +1,8 @@
 ### CC Antya 4.30
 
+> সেই অনুপম-ভাই শিশুকাল হৈতে  ।
+> রঘুনাথ-উপাসনা করে দৃঢ়চিত্তে ॥৩০॥
+
 > sei anupama-bhāi śiśu-kāla haite
 > raghunātha-upāsanā kare dṛḍha-citte
 

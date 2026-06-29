@@ -1,5 +1,10 @@
 ### CC Madhya 25.158
 
+> তস্যারবিন্দনয়নস্য পদারবিন্দ-
+> কিঞ্জল্কমিশ্রতুলসীমকরন্দবায়ুঃ ।
+> অন্তর্গতঃ স্ববিবরেণ চকার তেষাং
+> সংক্ষোভমক্ষরজুষামপি চিত্ততন্বোঃ ॥১৫৮॥
+
 > tasyāravinda-nayanasya padāravinda-
 > kiñjalka-miśra-tulasī-makaranda-vāyuḥ
 > antargataḥ svavivareṇa cakāra teṣāṁ

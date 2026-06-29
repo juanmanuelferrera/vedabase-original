@@ -1,5 +1,10 @@
 ### CC Madhya 24.169
 
+> তস্যৈব হেতোঃ প্ৰযতেত কোবিদো
+> ন লভ্যতে যদ্ভ্রমতামুপর্যধঃ ।
+> তল্লভ্যতে দুঃখবদন্যতঃ সুখং
+> কালেন সর্বত্র গভীর-রংহসা ॥১৬৯॥
+
 > tasyaiva hetoḥ prayateta kovido
 > na labhyate yad bhramatām upary adhaḥ
 > tal labhyate duḥkhavad anyataḥ sukhaṁ

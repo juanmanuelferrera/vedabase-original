@@ -1,5 +1,8 @@
 ### CC Madhya 20.319
 
+> মন্বন্তরাবতার এবে শুন, সনাতন ।
+> অসংখ্য গণন তাঁর, শুনহ কারণ ॥৩১৯॥
+
 manvantarāvatāra ebe śuna, sanātana
 
 asaṅkhya gaṇana tāṅra, śunaha kāraṇa

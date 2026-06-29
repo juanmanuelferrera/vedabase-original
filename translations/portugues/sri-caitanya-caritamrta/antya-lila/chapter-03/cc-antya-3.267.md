@@ -1,5 +1,8 @@
 ### CC Antya 3.267
 
+> চৈতন্য-গোসাঞির লীলার এই ত’ স্বভাব ।
+> ত্রিভুবন নাচে, গায়, পাঞা প্রেমভাব ॥২৬৭॥
+
 caitanya-gosāñira līlāra ei ta' svabhāva
 
 tribhuvana nāce, gāya, pāñā prema-bhāva

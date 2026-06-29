@@ -1,5 +1,10 @@
 ### CC Madhya 2.32
 
+> কৃষ্ণের অধরামৃত, কৃষ্ণ-গুণ-চরিত,
+> সুধাসার-স্বাদ-বিনিন্দন ।
+> তার স্বাদ যে না জানে, জন্মিয়া না মৈল কেনে,
+> সে রসনা ভেক জিহ্বা সম ॥৩২॥
+
 > kṛṣṇera adharāmṛta, kṛṣṇa-guṇa-carita,
 > sudhā-sāra-svāda-vinindana
 > tāra svāda ye nā jāne, janmiyā nā maila kene,

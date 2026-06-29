@@ -1,5 +1,8 @@
 ### CC Madhya 20.381
 
+> পূতনা-বধাদি যত লীলা ক্ষণে ক্ষণে ।
+> সব লীলা নিত্য প্রকট করে অনুক্রমে ॥৩৮১॥
+
 > pūtanā-vadhādi yata līlā kṣaṇe kṣaṇe
 > saba līlā nitya prakaṭa kare anukrame
 

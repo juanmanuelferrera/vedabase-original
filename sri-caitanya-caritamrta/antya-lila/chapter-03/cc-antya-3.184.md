@@ -1,5 +1,8 @@
 ### CC Antya 3.184
 
+> চৌর-প্রেত-রাক্ষসাদির ভয় হয় নাশ  ।
+> উদয় হৈলে ধর্ম-কর্ম-আদি পরকাশ ॥১৮৪॥
+
 > caura-preta-rākṣasādira bhaya haya nāśa
 > udaya haile dharma-karma-ādi parakāśa
 

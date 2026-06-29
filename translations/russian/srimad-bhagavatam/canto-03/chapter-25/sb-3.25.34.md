@@ -1,5 +1,8 @@
 ### SB 3.25.34
 
+> नैकात्मतां मे स्पृहयन्ति केचिन्मत्पादसेवाभिरता मदीहाः ।
+> येऽन्योन्यतो भागवताः प्रसज्य सभाजयन्ते मम पौरुषाणि ॥३४॥
+
 > naikātmatāṁ me spṛhayanti kecin
 > mat-pāda-sevābhiratā mad-īhāḥ
 > ye 'nyonyato bhāgavatāḥ prasajya

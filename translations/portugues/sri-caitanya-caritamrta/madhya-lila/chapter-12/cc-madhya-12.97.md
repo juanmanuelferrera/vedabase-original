@@ -1,5 +1,8 @@
 ### CC Madhya 12.97
 
+> প্রথমে করিল প্রভু মন্দির প্রক্ষালন ।
+> ঊর্ধ্ব-অধো ভিত্তি, গৃহ-মধ্য, সিংহাসন ॥৯৭॥
+
 prathame karila prabhu mandira prakṣālana
 
 ūrdhva-adho bhitti, gṛha-madhya, siṁhāsana

@@ -1,5 +1,8 @@
 ### CC Antya 6.311
 
+> বৈরাগ্যের কথা তাঁর অদ্ভুত-কথন ।
+> আজন্ম না দিল জিহ্বায় রসের স্পর্শন ॥৩১১॥
+
 > vairāgyera kathā tāṅra adbhuta-kathana
 > ājanma nā dila jihvāya rasera sparśana
 

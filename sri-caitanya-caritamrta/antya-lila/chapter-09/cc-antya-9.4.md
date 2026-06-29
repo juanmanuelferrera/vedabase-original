@@ -1,5 +1,8 @@
 ### CC Antya 9.4
 
+> এইমত মহাপ্রভু ভক্তগণ-সঙ্গে ।
+> নীলাচলে বাস করেন কৃষ্ণপ্রেমরঙ্গে ॥৪॥
+
 > ei-mata mahāprabhu bhakta-gaṇa-saṅge
 > nīlācale vāsa karena kṛṣṇa-prema-raṅge
 

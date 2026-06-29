@@ -1,5 +1,8 @@
 ### CC Madhya 20.392
 
+> সওয়াশত বৎসর কৃষ্ণের প্রকট-প্রকাশ ।
+> তাহা যৈছে ব্রজ-পুরে করিলা বিলাস ॥৩৯২॥
+
 saoyāśata vatsara kṛṣṇera prakaṭa-prakāśa
 
 tāhā yaiche vraja-pure karilā vilāsa

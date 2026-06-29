@@ -1,5 +1,8 @@
 ### CC Antya 9.122
 
+> রাজমহিন্দার ‘রাজা’ কৈনু রাম-রায় ।
+> যে খাইল, যেবা দিল, নাহি লেখা-দায় ॥১২২॥
+
 rājamahindāra 'rājā' kainu rāma-rāya
 
 ye khāila, yebā dila, nāhi lekhā-dāya

@@ -1,5 +1,8 @@
 ### CC Madhya 16.94
 
+> আনন্দে মহাপ্রভু বর্ষা কৈল সমাধান ।
+> বিজয়া-দশমী-দিনে করিল পয়ান ॥৯৪॥
+
 ānande mahāprabhu varṣā kaila samādhāna
 
 vijayā-daśamī-dine karila payāna

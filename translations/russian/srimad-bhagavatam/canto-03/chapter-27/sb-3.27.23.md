@@ -1,5 +1,8 @@
 ### SB 3.27.23
 
+> प्रकृतिः पुरुषस्येह दह्यमाना त्वहर्निशम् ।
+> तिरोभवित्री शनकैरग्नेर्योनिरिवारणिः ॥२३॥
+
 > prakṛtiḥ puruṣasyeha
 > dahyamānā tv ahar-niśam
 > tiro-bhavitrī śanakair

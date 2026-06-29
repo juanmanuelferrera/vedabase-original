@@ -1,5 +1,8 @@
 ### CC Madhya 17.121
 
+> ‘বেদান্ত’ শ্রবণ কর, না যাইহ তাঁর পাশ ।
+> উচ্ছৃঙ্খল-লোক-সঙ্গে দুইলোক-নাশ ” ॥ ১২১ ॥
+
 > 'vedānta' śravaṇa kara, nā yāiha tāṅra pāśa
 > ucchṛṅkhala-loka-saṅge dui-loka-nāśa"
 

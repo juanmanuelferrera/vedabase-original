@@ -1,5 +1,8 @@
 ### CC Adi 3.30
 
+> চৈতন্যসিংহের নবদ্বীপে অবতার ।
+> সিংহগ্রীব, সিংহবীর্য, সিংহের হুঙ্কার ॥৩০॥
+
 caitanya-siṁhera navadvīpe avatāra
 siṁha-grīva, siṁha-vīrya, siṁhera huṅkāra
 

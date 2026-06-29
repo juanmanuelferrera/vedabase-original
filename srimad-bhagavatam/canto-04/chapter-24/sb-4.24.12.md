@@ -1,5 +1,8 @@
 ### SB 4.24.12
 
+> विबुधासुरगन्धर्व मुनिसिद्धनरोरगाः ।
+> विजिताः सूर्यया दिक्षु क्वणयन्त्यैव नूपुरैः ॥१२॥
+
 > vibudhāsura-gandharva-
 > muni-siddha-naroragāḥ
 > vijitāḥ sūryayā dikṣu

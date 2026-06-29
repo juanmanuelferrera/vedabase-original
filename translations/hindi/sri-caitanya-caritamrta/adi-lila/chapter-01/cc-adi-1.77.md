@@ -1,5 +1,8 @@
 ### CC Adi 1.77
 
+> স্বরূপমন্যাকারং যত্তস্য ভাতি বিলাসতঃ ।
+> প্রায়েণাত্মসমং শক্ত্যা স বিলাসো নিগদ্যতে ॥৭৭॥
+
 > svarūpam anyākāraṁ yat
 > tasya bhāti vilāsataḥ
 > prāyeṇātma-samaṁ śaktyā

@@ -1,5 +1,10 @@
 ### CC Adi 4.176
 
+> এবং মদর্থোজ্ঝিতলোকবেদ-
+> স্বানাং হি বো ময্যনুবৃত্তয়েঽবলাঃ ।
+> ময়া পরোক্ষং ভজতা তিরোহিতং
+> মাসূয়িতুং মার্হথ তৎ প্রিয়ং প্রিয়াঃ ॥১৭৬॥
+
 evaṁ mad-arthojjhita-loka-veda-
 svānāṁ hi vo mayy anuvṛttaye 'balāḥ
 mayā parokṣaṁ bhajatā tirohitaṁ

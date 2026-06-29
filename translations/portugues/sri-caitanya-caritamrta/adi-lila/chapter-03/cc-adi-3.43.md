@@ -1,5 +1,8 @@
 ### CC Adi 3.43
 
+> ‘ন্যগ্রোধপরিমণ্ডল’ হয় তাঁর নাম ।
+> ন্যগ্রোধপরিমণ্ডল-তনু চৈতন্য গুণধাম ॥৪৩॥
+
 'nyagrodha-parimaṇḍala' haya tāṅra nāma
 nyagrodha-parimaṇḍala-tanu caitanya guṇa-dhāma
 

@@ -1,5 +1,8 @@
 ### CC Adi 8.11
 
+> সন্ন্যাসি-বুদ্ধ্যে মোরে করিবে নমস্কার ।
+> তথাপি খণ্ডিবে দুঃখ, পাইবে নিস্তার ॥১১॥
+
 sannyāsi-buddhye more karibe namaskāra
 tathāpi khaṇḍibe duḥkha, pāibe nistāra
 

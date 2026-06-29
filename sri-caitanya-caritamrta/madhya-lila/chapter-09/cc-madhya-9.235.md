@@ -1,5 +1,8 @@
 ### CC Madhya 9.235
 
+> কেশব দেখিয়া প্রেমে আবিষ্ট হৈলা ।
+> নতি, স্তুতি, নৃত্য, গীত, বহুত করিলা ॥২৩৫॥
+
 > keśava dekhiyā preme āviṣṭa hailā
 > nati, stuti, nṛtya, gīta, bahuta karilā
 

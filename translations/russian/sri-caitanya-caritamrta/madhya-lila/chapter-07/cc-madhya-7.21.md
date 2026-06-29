@@ -1,5 +1,8 @@
 ### CC Madhya 7.21
 
+> জগদানন্দ চাহে আমা বিষয় ভুঞ্জাইতে ।
+> যেই কহে সেই ভয়ে চাহিয়ে করিতে ॥২১॥
+
 > jagadānanda cāhe āmā viṣaya bhuñjāite
 > yei kahe sei bhaye cāhiye karite
 

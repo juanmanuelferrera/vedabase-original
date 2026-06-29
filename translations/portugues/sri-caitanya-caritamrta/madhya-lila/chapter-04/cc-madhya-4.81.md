@@ -1,5 +1,8 @@
 ### CC Madhya 4.81
 
+> শয্যা করাইল, নূতন খাট আনাঞা ৷
+> নব বস্ত্র আনি’ তার উপরে পাতিয়া ॥৮১॥
+
 śayyā karāila, nūtana khāṭa ānāñā
 
 nava vastra āni' tāra upare pātiyā

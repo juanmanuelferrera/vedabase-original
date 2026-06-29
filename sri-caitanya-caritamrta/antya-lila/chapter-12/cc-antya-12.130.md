@@ -1,5 +1,8 @@
 ### CC Antya 12.130
 
+> তবে মহাপ্রভু সুখে ভোজনে বসিলা  ।
+> ব্যঞ্জনের স্বাদ পাঞা কহিতে লাগিলা ॥১৩০॥
+
 > tabe mahāprabhu sukhe bhojane vasilā
 > vyañjanera svāda pāñā kahite lāgilā
 

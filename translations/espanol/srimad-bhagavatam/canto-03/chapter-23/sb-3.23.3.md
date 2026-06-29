@@ -1,5 +1,8 @@
 ### SB 3.23.3
 
+> विसृज्य कामं दम्भं च द्वेषं लोभमघं मदम् ।
+> अप्रमत्तोद्यता नित्यं तेजीयांसमतोषयत् ॥३॥
+
 > visṛjya kāmaṁ dambhaṁ ca
 > dveṣaṁ lobham aghaṁ madam
 > apramattodyatā nityaṁ

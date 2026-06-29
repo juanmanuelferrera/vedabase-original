@@ -1,5 +1,8 @@
 ### SB 4.2.30
 
+> ब्रह्म च ब्राह्मणांश्चैव यद्यूयं परिनिन्दथ ।
+> सेतुं विधारणं पुंसामतः पाषण्डमाश्रिताः ॥३०॥
+
 > brahma ca brāhmaṇāṁś caiva
 > yad yūyaṁ parinindatha
 > setuṁ vidhāraṇaṁ puṁsām

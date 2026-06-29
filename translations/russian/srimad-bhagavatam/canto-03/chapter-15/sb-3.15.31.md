@@ -1,5 +1,10 @@
 ### SB 3.15.31
 
+> ताभ्यां मिषत्स्वनिमिषेषु निषिध्यमानाः
+> स्वर्हत्तमा ह्यपि हरेः प्रतिहारपाभ्याम् ।
+> ऊचुः सुहृत्तमदिदृक्षितभङ्ग ईषत्
+> कामानुजेन सहसा त उपप्लुताक्षाः ॥३१॥
+
 > tābhyāṁ miṣatsv animiṣeṣu niṣidhyamānāḥ
 > svarhattamā hy api hareḥ pratihāra-pābhyām
 > ūcuḥ suhṛttama-didṛkṣita-bhaṅga īṣat

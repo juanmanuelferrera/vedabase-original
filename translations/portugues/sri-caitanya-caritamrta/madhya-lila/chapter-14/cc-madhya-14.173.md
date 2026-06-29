@@ -1,5 +1,8 @@
 ### CC Madhya 14.173
 
+> এইসব স্থানে ‘কিলকিঞ্চিত’ উদ্গম ।
+> প্রথমে ‘হর্ষ’ সঞ্চারী — মূল কারণ ॥১৭৩॥
+
 ei-saba sthāne 'kila-kiñcita' udgama
 
 prathame 'harṣa' sañcārī-mūla kāraṇa

@@ -1,5 +1,8 @@
 ### CC Antya 12.134
 
+> পণ্ডিত কহে, — “যে খাইবে, সেই পাককর্তা ।
+> আমি-সব — কেবলমাত্র সামগ্রী-আহর্তা ।।” ॥ ১৩৪ ॥
+
 > paṇḍita kahe,--"ye khāibe, sei pāka-kartā
 > āmi-saba--kevala-mātra sāmagrī-āhartā"
 

@@ -1,5 +1,8 @@
 ### CC Madhya 25.90
 
+> তুমি ত’ ঈশ্বর, তোমার আছে সর্বশক্তি ।
+> সংক্ষেপরূপে কহ তুমি শুনিতে হয় মতি ॥৯০॥
+
 tumi ta' īśvara, tomāra āche sarva-śakti
 
 saṅkṣepa-rūpe kaha tumi śunite haya mati

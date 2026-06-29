@@ -1,5 +1,8 @@
 ### SB 6.10.6
 
+> नूनं स्वार्थपरो लोको न वेद परसङ्कटम
+> यदि वेद न याचेत नेति नाह यदीश्वरः ॥६॥
+
 > nūnaṁ svārtha-paro loko
 > na veda para-saṅkaṭam
 > yadi veda na yāceta

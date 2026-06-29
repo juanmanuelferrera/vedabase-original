@@ -1,5 +1,8 @@
 ### CC Madhya 20.352
 
+> প্রভু কহে, — “অন্যাবতার শাস্ত্র-দ্বারে জানি ।
+> কলিতে অবতার তৈছে শাস্ত্রবাক্যে মানি ॥৩৫২॥
+
 > prabhu kahe,—"anyāvatāra śāstra-dvāre jāni
 > kalite avatāra taiche śāstra-vākye māni
 

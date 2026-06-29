@@ -1,5 +1,8 @@
 ### CC Madhya 25.205
 
+> আপনে রহে এক পৈসার চানা চাবাইয়া ।
+> আর পৈসা বাণিয়া-স্থানে রাখেন ধরিয়া ॥২০৫॥
+
 > āpane rahe eka paisāra cānā cābāiyā
 > āra paisā bāṇiyā-sthāne rākhena dhariyā
 

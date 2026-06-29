@@ -1,5 +1,8 @@
 ### SB 8.6.39
 
+> अवरोप्य गिरिं स्कन्धात्सुपर्णः पततां वरः
+> ययौ जलान्त उत्सृज्य हरिणा स विसर्जितः ॥३९॥
+
 > avaropya giriṁ skandhāt
 > suparṇaḥ patatāṁ varaḥ
 > yayau jalānta utsṛjya

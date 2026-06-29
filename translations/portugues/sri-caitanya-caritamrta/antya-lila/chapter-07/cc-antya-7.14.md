@@ -1,5 +1,8 @@
 ### CC Antya 7.14
 
+> প্রেম-পরকাশ নহে কৃষ্ণশক্তি বিনে ।
+> ‘কৃষ্ণ’ — এক প্রেমদাতা, শাস্ত্র-প্রমাণে ॥১৪॥
+
 prema-parakāśa nahe kṛṣṇa-śakti vine
 'kṛṣṇa'--eka prema-dātā, śāstra-pramāṇe
 

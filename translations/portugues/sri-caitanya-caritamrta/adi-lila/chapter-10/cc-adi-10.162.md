@@ -1,5 +1,8 @@
 ### CC Adi 10.162
 
+> এক এক শাখার শক্তি অনন্ত মহিমা ।
+> ‘সহস্র বদনে’ যার দিতে নারে সীমা ॥১৬২॥
+
 eka eka śākhāra śakti ananta mahimā
 
 'sahasra vadane' yāra dite nāre sīmā

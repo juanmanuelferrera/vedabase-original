@@ -1,5 +1,10 @@
 ### SB 7.9.34
 
+> तत्सम्भवः कविरतोऽन्यदपश्यमानस
+> त्वां बीजमात्मनि ततं स बहिर्विचिन्त्य
+> नाविन्ददब्दशतमप्सु निमज्जमानो
+> जातेऽङ्कुरे कथमुहोपलभेत बीजम ॥३४॥
+
 > tat-sambhavaḥ kavir ato 'nyad apaśyamānas
 > tvāṁ bījam ātmani tataṁ sa bahir vicintya
 > nāvindad abda-śatam apsu nimajjamāno

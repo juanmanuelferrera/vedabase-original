@@ -1,5 +1,8 @@
 ### CC Madhya 9.135
 
+> গোপজাতি কৃষ্ণ, গোপী — প্রেয়সী তাঁহার ।
+> দেবী বা অন্য স্ত্রী কৃষ্ণ না করে অঙ্গীকার ॥১৩৫॥
+
 > gopa-jāti kṛṣṇa, gopī--preyasī tāṅhāra
 > devī vā anya strī kṛṣṇa nā kare aṅgīkāra
 

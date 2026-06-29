@@ -1,5 +1,8 @@
 ### CC Madhya 8.104
 
+> রায় কহে, — তবে শুন প্রেমের মহিমা ৷
+> ত্রিজগতে রাধা-প্রেমের নাহিক উপমা ৷৷ ১০৪ ৷৷ ॥১০৪॥
+
 > rāya kahe,--tabe śuna premera mahimā
 > tri-jagate rādhā-premera nāhika upamā
 

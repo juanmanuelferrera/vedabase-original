@@ -1,5 +1,8 @@
 ### CC Adi 5.82
 
+> আদ্যাবতার, মহাপুরুষ, ভগবান্ ।
+> সর্ব-অবতার-বীজ, সর্বাশ্রয়-ধাম ॥৮২॥
+
 ādyāvatāra, mahā-puruṣa, bhagavān
 sarva-avatāra-bīja, sarvāśraya-dhāma
 

@@ -1,5 +1,8 @@
 ### CC Antya 7.10
 
+> যেষাং সংস্মরণাৎ পুংসাং সদ্যঃ শুধ্যন্তি বৈ গৃহাঃ ।
+> কিং পুনর্দর্শনস্পর্শপাদশৌচাসনাদিভিঃ ॥১০॥
+
 > yeṣāṁ saṁsmaraṇāt puṁsāṁ
 > sadyaḥ śuddhyanti vai gṛhāḥ
 > kiṁ punar darśana-sparśa-

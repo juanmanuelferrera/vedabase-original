@@ -1,5 +1,8 @@
 ### CC Madhya 18.176
 
+> শুনিয়া পাঠান মনে সঙ্কোচ হইল ।
+> হেনকালে মহাপ্রভু ‘চৈতন্য’ পাইল ॥১৭৬॥
+
 > śuniyā pāṭhāna mane saṅkoca ha-ila
 > hena-kāle mahāprabhu 'caitanya' pāila
 

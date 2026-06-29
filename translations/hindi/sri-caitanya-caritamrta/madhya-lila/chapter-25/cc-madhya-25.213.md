@@ -1,5 +1,8 @@
 ### CC Madhya 25.213
 
+> সুবুদ্ধি-রায় বহু স্নেহ করে সনাতনে ।
+> ব্যবহার-স্নেহ সনাতন নাহি মানে ॥২১৩॥
+
 > subuddhi-rāya bahu sneha kare sanātane
 > vyavahāra-sneha sanātana nāhi māne
 

@@ -1,5 +1,8 @@
 ### CC Madhya 9.185
 
+> প্রভু ভিক্ষা কৈল দিনের তৃতীয়প্রহরে ৷
+> নির্বিণ্ণ সেই বিপ্র উপবাস করে ৷৷ ১৮৫ ৷৷ ॥১৮৫॥
+
 > prabhu bhikṣā kaila dinera tṛtīya-prahare
 > nirviṇṇa sei vipra upavāsa kare
 

@@ -1,5 +1,7 @@
 ### SB 5.16.19
 
+> एवं जम्बूफलानामत्युच्चनिपातविशीर्णानामनस्थिप्रायाणामिभकायनिभानां रसेनजम्बू नाम नदी मेरुमन्दरशिखरादयुतयोजनादवनितले निपतन्ती दक्षिणेनात्मानंयावदिलावृतमुपस्यन्दयति ॥१९॥
+
 > evaṁ jambū-phalānām atyucca-nipāta-viśīrṇānām anasthi-prāyāṇām ibha-kāya-nibhānāṁ rasena jambū nāma nadī meru-mandara-śikharād ayuta-yojanād avani-tale nipatantī dakṣiṇenātmānaṁ yāvad ilāvṛtam upasyandayati.
 
 *evam*—similarly; *jambū-phalānām*—of the fruits called *jambū* (the rose apple); *ati-ucca-nipāta*—because of falling from a great height; *viśīrṇānām*—which are broken to pieces; *anasthi-prāyāṇām*—having very small seeds; *ibha-kāya-nibhānām*—and which are as large as the bodies of elephants; *rasena*—by the juice; *jambū nāma nadī*—a river named Jambū-nadī; *meru-mandara-śikharāt*—from the top of Merumandara Mountain; *ayuta-yojanāt*—ten thousand *yojanas* high; *avani-tale*—on the ground; *nipatantī*—falling; *dakṣiṇena*—on the southern side; *ātmānam*—itself; *yāvat*—the whole; *ilāvṛtam*—Ilāvṛta-varṣa; *upasyandayati*—flows through.

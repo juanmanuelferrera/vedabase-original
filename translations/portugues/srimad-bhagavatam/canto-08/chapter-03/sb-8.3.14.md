@@ -1,5 +1,8 @@
 ### SB 8.3.14
 
+> सर्वेन्द्रियगुणद्रष्ट्रे सर्वप्रत्ययहेतवे
+> असता च्छाययोक्ताय सदाभासाय ते नमः ॥१४॥
+
 sarvendriya-guṇa-draṣṭre
 sarva-pratyaya-hetave
 asatā cchāyayoktāya

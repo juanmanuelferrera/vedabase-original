@@ -1,5 +1,8 @@
 ### CC Madhya 18.77
 
+> নিকটে যমুনা বহে শীতল সমীর ।
+> বৃন্দাবন-শোভা দেখে যমুনার নীর ॥৭৭॥
+
 nikaṭe yamunā vahe śītala samīra
 
 vṛndāvana-śobhā dekhe yamunāra nīra

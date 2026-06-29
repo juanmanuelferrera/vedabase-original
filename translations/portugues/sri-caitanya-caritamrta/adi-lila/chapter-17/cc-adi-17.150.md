@@ -1,5 +1,8 @@
 ### CC Adi 17.150
 
+> ভাগিনার ক্রোধ মামা অবশ্য সহয় ।
+> মাতুলের অপরাধ ভাগিনা না লয় ॥১৫০॥
+
 bhāgināra krodha māmā avaśya sahaya
 
 mātulera aparādha bhāginā nā laya

@@ -1,5 +1,8 @@
 ### CC Adi 4.79
 
+> আকার স্বভাব-ভেদে ব্রজদেবীগণ ।
+> কায়ব্যূহরূপ তাঁর রসের কারণ ॥৭৯॥
+
 > ākāra svabhāva-bhede vraja-devī-gaṇa
 > kāya-vyūha-rūpa tāṅra rasera kāraṇa
 

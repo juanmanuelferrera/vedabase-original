@@ -1,5 +1,8 @@
 ### CC Madhya 9.120
 
+> প্রভু কহে, — দোষ নাহি, ইহা আমি জানি ৷
+> রাস না পাইল লক্ষ্মী, শাস্ত্রে ইহা শুনি ৷৷ ১২০ ৷৷ ॥১২০॥
+
 > prabhu kahe,--doṣa nāhi, ihā āmi jāni
 > rāsa nā pāila lakṣmī, śāstre ihā śuni
 

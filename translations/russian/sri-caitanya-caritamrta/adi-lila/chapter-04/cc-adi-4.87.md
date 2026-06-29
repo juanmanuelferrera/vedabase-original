@@ -1,5 +1,8 @@
 ### CC Adi 4.87
 
+> কৃষ্ণবাঞ্ছা-পূর্তিরূপ করে আরাধনে ।
+> অতএব ‘রাধিকা’ নাম পুরাণে বাখানে ॥৮৭॥
+
 > kṛṣṇa-vāñchā-pūrti-rūpa kare ārādhane
 > ataeva 'rādhikā' nāma purāṇe vākhāne
 

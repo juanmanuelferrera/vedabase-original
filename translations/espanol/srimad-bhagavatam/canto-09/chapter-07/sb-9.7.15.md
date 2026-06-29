@@ -1,5 +1,8 @@
 ### SB 9.7.15
 
+> इति पुत्रानुरागेण स्नेहयन्त्रितचेतसा
+> कालं वञ्चयता तं तमुक्तो देवस्तमैक्षत ॥१५॥
+
 > iti putrānurāgeṇa
 > sneha-yantrita-cetasā
 > kālaṁ vañcayatā taṁ tam

@@ -1,5 +1,8 @@
 ### CC Adi 17.280
 
+> ইহা ছাড়ি’ কৃষ্ণ যদি হয় অন্যাকার ।
+> গোপিকার ভাব নাহি যায় নিকট তাহার ॥২৮০॥
+
 > ihā chāḍi' kṛṣṇa yadi haya anyākāra
 > gopikāra bhāva nāhi yāya nikaṭa tāhāra
 

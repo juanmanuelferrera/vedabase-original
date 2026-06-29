@@ -1,5 +1,8 @@
 ### CC Madhya 5.128
 
+> এত চিন্তি’ নমস্করি’ গেলা স্বভবনে ।
+> রাত্রিশেষে গোপাল তাঁরে কহেন স্বপনে ॥১২৮॥
+
 eta cinti' namaskari' gelā sva-bhavane
 rātri-śeṣe gopāla tāṅre kahena svapane
 

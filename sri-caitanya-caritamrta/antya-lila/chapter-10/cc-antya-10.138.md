@@ -1,5 +1,8 @@
 ### CC Antya 10.138
 
+> জগন্নাথের প্রসাদ আনে করিতে মিশ্রিত ।
+> কাহাঁ একা যায়েন, কাঁহা গণের সহিত ॥১৩৮॥
+
 > jagannāthera prasāda āne karite miśrita
 > kāhāṅ ekā yāyena, kāhāṅ gaṇera sahita
 

@@ -1,5 +1,8 @@
 ### CC Madhya 6.244
 
+> গোপীনাথাচার্য বলে — ‘আমি পূর্বে যে কহিল ।
+> শুন, ভট্টাচার্য, তোমার সেই ত’ হইল’ ॥২৪৪॥
+
 gopīnāthācārya bale,--'āmi pūrve ye kahila
 śuna, bhaṭṭācārya, tomāra sei ta' ha-ila'
 

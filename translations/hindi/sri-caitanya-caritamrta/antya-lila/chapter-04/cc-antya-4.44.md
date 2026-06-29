@@ -1,5 +1,8 @@
 ### CC Antya 4.44
 
+> যে বংশের উপরে তোমার হয় কৃপা-লেশ ।
+> সকল মঙ্গল তাহে খণ্ডে সব ক্লেশ ॥৪৪॥
+
 > ye vaṁśera upare tomāra haya kṛpā-leśa
 > sakala maṅgala tāhe khaṇḍe saba kleśa'
 

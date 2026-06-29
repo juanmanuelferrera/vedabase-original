@@ -1,5 +1,8 @@
 ### SB 4.29.68
 
+> सर्वे क्रमानुरोधेन मनसीन्द्रियगोचराः ।
+> आयान्ति बहुशो यान्ति सर्वे समनसो जनाः ॥६८॥
+
 > sarve kramānurodhena
 > manasīndriya-gocarāḥ
 > āyānti bahuśo yānti

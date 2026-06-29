@@ -1,5 +1,8 @@
 ### CC Madhya 12.25
 
+> তোমা-সবার আজ্ঞায় আমি না মিলি রাজারে  ।
+> দামোদর কহে যবে, মিলি তবে তাঁরে ॥২৫॥
+
 > tomā-sabāra ājñāya āmi nā mili rājāre
 > dāmodara kahe yabe, mili tabe tāṅre
 

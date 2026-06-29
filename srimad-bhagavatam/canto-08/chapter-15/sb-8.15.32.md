@@ -1,5 +1,8 @@
 ### SB 8.15.32
 
+> एष विप्रबलोदर्कः सम्प्रत्यूर्जितविक्रमः
+> तेषामेवापमानेन सानुबन्धो विनङ्क्ष्यति ॥३२॥
+
 > evaṁ sumantritārthās te
 > guruṇārthānudarśinā
 > hitvā tri-viṣṭapaṁ jagmur

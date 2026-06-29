@@ -1,5 +1,8 @@
 ### CC Madhya 25.87
 
+> এত বলি’ প্রভুরে লঞা তথায় বসিল ।
+> প্রভুরে প্রকাশানন্দ পুছিতে লাগিল ॥৮৭॥
+
 > eta bali' prabhure lañā tathāya vasila
 > prabhure prakāśānanda puchite lāgila
 

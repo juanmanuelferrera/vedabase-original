@@ -1,5 +1,8 @@
 ### CC Madhya 19.108
 
+> দেখি’ বল্লভ-ভট্ট মনে চমৎকার হৈল ।
+> দুই পুত্র আনি’ প্রভুর চরণে পাড়িল ॥১০৮॥
+
 > dekhi' vallabha-bhaṭṭa mane camatkāra haila
 > dui putra āni' prabhura caraṇe pāḍila
 

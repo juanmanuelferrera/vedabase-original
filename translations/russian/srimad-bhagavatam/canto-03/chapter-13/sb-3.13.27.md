@@ -1,5 +1,8 @@
 ### SB 3.13.27
 
+> उत्क्षिप्तवालः खचरः कठोरः सटा विधुन्वन्खररोमशत्वक् ।
+> खुराहताभ्रः सितदंष्ट्र ईक्षा ज्योतिर्बभासे भगवान्महीध्रः ॥२७॥
+
 > utkṣipta-vālaḥ kha-caraḥ kaṭhoraḥ
 > saṭā vidhunvan khara-romaśa-tvak
 > khurāhatābhraḥ sita-daṁṣṭra īkṣā-

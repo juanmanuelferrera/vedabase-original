@@ -1,5 +1,8 @@
 ### CC Adi 10.25
 
+> তাঁহার ভগিনী দময়ন্তী প্রভুর প্রিয় দাসী ।
+> প্রভুর ভোগসামগ্রী যে করে বারমাসি ॥২৫॥
+
 tāṅhāra bhaginī damayantī prabhura priya dāsī
 prabhura bhoga-sāmagrī ye kare vāra-māsi
 

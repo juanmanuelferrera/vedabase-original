@@ -1,5 +1,8 @@
 ### SB 4.7.49
 
+> भगवान्स्वेन भागेन सर्वात्मा सर्वभागभुक् ।
+> दक्षं बभाष आभाष्य प्रीयमाण इवानघ ॥४९॥
+
 > bhagavān svena bhāgena
 > sarvātmā sarva-bhāga-bhuk
 > dakṣaṁ babhāṣa ābhāṣya

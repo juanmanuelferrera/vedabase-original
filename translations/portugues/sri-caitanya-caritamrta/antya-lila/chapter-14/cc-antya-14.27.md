@@ -1,5 +1,8 @@
 ### CC Antya 14.27
 
+> আস্তে-ব্যস্তে সেই নারী ভূমেতে নামিলা ।
+> মহাপ্রভুরে দেখি’ তাঁর চরণ বন্দিলা ॥২৭॥
+
 āste-vyaste sei nārī bhūmete nāmilā
 
 mahāprabhure dekhi' tāṅra caraṇa vandilā

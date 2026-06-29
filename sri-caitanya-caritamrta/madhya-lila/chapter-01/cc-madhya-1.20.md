@@ -1,5 +1,8 @@
 ### CC Madhya 1.20
 
+> তাহাঁ যেই লীলা, তার ‘মধ্যলীলা’ নাম ।
+> তার পাছে লীলা — ‘অন্ত্যলীলা’ অভিধান ॥২০॥
+
 > tāhāṅ yei līlā, tāra 'madhya-līlā' nāma
 > tāra pāche līlā—'antya-līlā' abhidhāna
 

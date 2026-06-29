@@ -1,5 +1,10 @@
 ### CC Madhya 2.80
 
+> পূর্বে ব্ৰজবিলাসে, যেই তিন অভিলাষে,
+> যত্নেহ আস্বাদ না হৈল ।
+> শ্রীরাধার ভাবসার, আপনে করি’ অঙ্গীকার,
+> সেই তিন বস্তু আস্বাদিল ॥৮০॥
+
 pūrve vraja-vilāse, yei tina abhilāṣe,
 yatneha āsvāda nā haila
 śrī-rādhāra bhāva-sāra, āpane kari' aṅgīkāra,

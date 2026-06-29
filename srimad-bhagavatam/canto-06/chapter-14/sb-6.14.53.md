@@ -1,5 +1,8 @@
 ### SB 6.14.53
 
+> स्तनद्वयं कुङ्कुमपङ्कमण्डितं निषिञ्चती साञ्जनबाष्पबिन्दुभिः
+> विकीर्य केशान्विगलत्स्रजः सुतं शुशोच चित्रं कुररीव सुस्वरम ॥५३॥
+
 > stana-dvayaṁ kuṅkuma-paṅka-maṇḍitaṁ
 > niṣiñcatī sāñjana-bāṣpa-bindubhiḥ
 > vikīrya keśān vigalat-srajaḥ sutaṁ

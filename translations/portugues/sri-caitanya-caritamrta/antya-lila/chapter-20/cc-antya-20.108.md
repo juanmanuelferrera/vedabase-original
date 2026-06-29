@@ -1,5 +1,8 @@
 ### CC Antya 20.108
 
+> চতুর্থে — শ্রীসনাতনের দ্বিতীয়-মিলন ।
+> দেহত্যাগ হৈতে তাঁর করিলা রক্ষণ ॥১০৮॥
+
 caturthe--śrī-sanātanera dvitīya-milana
 
 deha-tyāga haite tāṅra karilā rakṣaṇa

@@ -1,5 +1,8 @@
 ### CC Madhya 19.245
 
+> রাত্রে তেঁহো স্বপ্ন দেখে, — প্রভু আইলা ঘরে ।
+> প্রাতঃকালে আসি’ রহে গ্রামের বাহিরে ॥২৪৫॥
+
 > rātre teṅho svapna dekhe,--prabhu āilā ghare
 > prātaḥ-kāle āsi' rahe grāmera bāhire
 

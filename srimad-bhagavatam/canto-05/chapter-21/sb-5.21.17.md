@@ -1,5 +1,7 @@
 ### SB 5.21.17
 
+> तथा वालिखिल्या ऋषयोऽङ्गुष्ठपर्वमात्राः षष्टिसहस्राणि पुरतः सूर्यं सूक्तवाकाय नियुक्ताःसंस्तुवन्ति ॥१७॥
+
 > tathā vālikhilyā ṛṣayo 'ṅguṣṭha-parva-mātrāḥ ṣaṣṭi-sahasrāṇi purataḥ sūryaṁ sūkta-vākāya niyuktāḥ saṁstuvanti.
 
 *tathā*—there; *vālikhilyāḥ*—Vālikhilyas; *ṛṣayaḥ*—great sages; *aṅguṣṭha-parva-mātrāḥ*—whose size is that of a thumb; *ṣaṣṭi-sahasrāṇi*—sixty thousand; *purataḥ*—in front; *sūryam*—the sun-god; *su-ukta-vākāya*—for speaking eloquently; *niyuktāḥ*—engaged; *saṁstuvanti*—offer prayers.

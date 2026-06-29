@@ -1,5 +1,8 @@
 ### SB 3.2.2
 
+> यः पञ्चहायनो मात्रा प्रातराशाय याचितः ।
+> तन्नैच्छद्रचयन्यस्य सपर्यां बाललीलया ॥२॥
+
 > yaḥ pañca-hāyano mātrā
 > prātar-āśāya yācitaḥ
 > tan naicchad racayan yasya

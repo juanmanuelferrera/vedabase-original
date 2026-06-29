@@ -1,5 +1,8 @@
 ### CC Antya 11.74
 
+> ‘হরিদাস-ঠাকুরের মহোৎসবের তরে ।
+> প্রসাদ মাগিয়ে ভিক্ষা দেহ’ ত’ আমারে’ ॥৭৪॥
+
 > 'haridāsa-ṭhākurera mahotsavera tare
 > prasāda māgiye bhikṣā deha' ta' āmāre'
 

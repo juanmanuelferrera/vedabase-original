@@ -1,5 +1,8 @@
 ### CC Antya 12.139
 
+> তবে প্রভু কহেন করি’ বিনয়-সম্মান ।
+> ‘দশগুণ খাওয়াইলা এবে কর সমাধান’ ॥১৩৯॥
+
 tabe prabhu kahena kari' vinaya-sammāna
 
 'daśa-guṇa khāoyāilā ebe kara samādhāna'

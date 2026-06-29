@@ -1,5 +1,8 @@
 ### CC Antya 2.69
 
+> ভোজন করিয়া প্রভু গেলা পাণিহাটি ।
+> সন্তোষ পাইলা দেখি’ ব্যঞ্জন-পরিপাটী ॥৬৯॥
+
 bhojana kariyā prabhu gelā pāṇihāṭi
 
 santoṣa pāilā dekhi' vyañjana-paripāṭī

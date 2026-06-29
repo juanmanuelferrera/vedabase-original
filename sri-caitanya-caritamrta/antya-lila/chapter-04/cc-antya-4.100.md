@@ -1,5 +1,8 @@
 ### CC Antya 4.100
 
+> অবতারকার্য প্রভুর — নামপ্রচারে ।
+> সেই নিজকার্য প্রভু করেন তোমার দ্বারে ॥১০০॥
+
 > avatāra-kārya prabhura—nāma-pracāre
 > sei nija-kārya prabhu karena tomāra dvāre
 

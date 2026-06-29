@@ -1,5 +1,8 @@
 ### CC Antya 2.12
 
+> এইমত দর্শনে ত্রিজগৎ নিস্তারি  ।
+> যে কেহ আসিতে নারে অনেক সংসারী ॥১২॥
+
 > ei-mata darśane trijagat nistāri
 > ye keha āsite nāre aneka saṁsārī
 

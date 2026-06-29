@@ -1,5 +1,8 @@
 ### CC Adi 5.215
 
+> স্বমাধুর্যে লোকের মন করে আকর্ষণ ।
+> দুই পাশে রাধা ললিতা করেন সেবন ॥২১৫॥
+
 sva-mādhurye lokera mana kare ākarṣaṇa
 
 dui pāśe rādhā lalitā karena sevana

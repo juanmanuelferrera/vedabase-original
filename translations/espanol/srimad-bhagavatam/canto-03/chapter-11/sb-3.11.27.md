@@ -1,5 +1,8 @@
 ### SB 3.11.27
 
+> मन्वन्तरेषु भगवान्बिभ्रत्सत्त्वं स्वमूर्तिभिः ।
+> मन्वादिभिरिदं विश्वमवत्युदितपौरुषः ॥२७॥
+
 > manvantareṣu bhagavān
 > bibhrat sattvaṁ sva-mūrtibhiḥ
 > manv-ādibhir idaṁ viśvam

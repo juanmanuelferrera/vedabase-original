@@ -1,5 +1,8 @@
 ### CC Madhya 17.57
 
+> পথে যাইতে ভট্টাচার্য শাক-মূল-ফল ৷
+> যাহাঁ যেই পায়েন তাহাঁ লয়েন সকল ॥৫৭॥
+
 > pathe yāite bhaṭṭācārya śāka-mūla-phala
 > yāhāṅ yei pāyena tāhāṅ layena sakala
 

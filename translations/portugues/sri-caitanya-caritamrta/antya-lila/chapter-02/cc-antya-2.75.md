@@ -1,5 +1,8 @@
 ### CC Antya 2.75
 
+> বর্ষান্তরে শিবানন্দ লঞা ভক্তগণ ।
+> নীলাচলে দেখে যাঞা প্রভুর চরণ ॥৭৫॥
+
 varṣāntare śivānanda lañā bhakta-gaṇa
 
 nīlācale dekhe yāñā prabhura caraṇa

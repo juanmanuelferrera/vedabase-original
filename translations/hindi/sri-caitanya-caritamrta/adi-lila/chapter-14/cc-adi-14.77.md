@@ -1,5 +1,8 @@
 ### CC Adi 14.77
 
+> শচী বলে, — যাহ, পুত্র, বোলাহ বাপেরে ।
+> মাতৃ-আজ্ঞা পাইয়া প্রভু চলিলা বাহিরে ॥৭৭॥
+
 > śacī bale,—yāha, putra, bolāha bāpere
 > mātṛ-ājñā pāiyā prabhu calilā bāhire
 

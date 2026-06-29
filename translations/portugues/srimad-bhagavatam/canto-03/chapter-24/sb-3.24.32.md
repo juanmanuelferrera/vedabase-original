@@ -1,5 +1,8 @@
 ### SB 3.24.32
 
+> त्वां सूरिभिस्तत्त्वबुभुत्सयाद्धा सदाभिवादार्हणपादपीठम् ।
+> ऐश्वर्यवैराग्ययशोऽवबोध वीर्यश्रिया पूर्तमहं प्रपद्ये ॥३२॥
+
 *tvāṁ sūribhis tattva-bubhutsayāddhā
 sadābhivādārhaṇa-pāda-pīṭham
 aiśvarya-vairāgya-yaśo-'vabodha-

@@ -1,5 +1,8 @@
 ### CC Antya 10.142
 
+> শিবানন্দ-সেনের শুন নিমন্ত্রণাখ্যান ।
+> শিবানন্দের বড়-পুত্রের ‘চৈতন্যদাস’ নাম ॥১৪২॥
+
 > śivānanda-senera śuna nimantraṇākhyāna
 > śivānandera baḍa-putrera 'caitanya-dāsa' nāma
 

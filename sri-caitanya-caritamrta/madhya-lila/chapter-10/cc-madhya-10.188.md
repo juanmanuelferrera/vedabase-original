@@ -1,5 +1,8 @@
 ### CC Madhya 10.188
 
+> সবে আসি’ মিলিলা প্রভুর শ্রীচরণে ।
+> প্রভু কৃপা করি’ সবায় রাখিল নিজ স্থানে ॥১৮৮॥
+
 > sabe āsi' mililā prabhura śrī-caraṇe
 > prabhu kṛpā kari' sabāya rākhila nija sthāne
 

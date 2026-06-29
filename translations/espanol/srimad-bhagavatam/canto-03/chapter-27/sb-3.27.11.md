@@ -1,5 +1,8 @@
 ### SB 3.27.11
 
+> मुक्तलिङ्गं सदाभासमसति प्रतिपद्यते ।
+> सतो बन्धुमसच्चक्षुः सर्वानुस्यूतमद्वयम् ॥११॥
+
 > mukta-liṅgaṁ sad-ābhāsam
 > asati pratipadyate
 > sato bandhum asac-cakṣuḥ

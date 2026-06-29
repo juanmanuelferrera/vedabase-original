@@ -1,5 +1,8 @@
 ### CC Madhya 4.10
 
+> এইমত মহাপ্রভু চলিলা নীলাচলে ।
+> চারি ভক্ত সঙ্গে কৃষ্ণকীর্তন-কুতূহলে ॥১০॥
+
 ei-mata mahāprabhu calilā nīlācale
 cāri bhakta saṅge kṛṣṇa-kīrtana-kutūhale
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.255
 
+> নারদ কহে, — ‘যদি ধর আমার বচন ।
+> তবে সে করিতে পারি তোমার মোচন ।।’ ॥ ২৫৫ ॥
+
 > nārada kahe,--'yadi dhara āmāra vacana
 > tabe se karite pāri tomāra mocana'
 

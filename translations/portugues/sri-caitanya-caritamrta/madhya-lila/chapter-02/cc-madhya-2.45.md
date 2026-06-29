@@ -1,5 +1,10 @@
 ### CC Madhya 2.45
 
+> ন প্রেমগন্ধোঽস্তি দরাপি মে হরৌ
+> ক্রন্দামি সৌভাগ্যভরং প্রকাশিতুম্ ।
+> বংশীবিলাস্যাননলোকনং বিনা
+> বিভর্মি যৎ প্রাণপতঙ্গকান্ বৃথা ॥৪৫॥
+
 na prema-gandho 'sti darāpi me harau
 krandāmi saubhāgya-bharaṁ prakāśitum
 vaṁśī-vilāsy-ānana-lokanaṁ vinā

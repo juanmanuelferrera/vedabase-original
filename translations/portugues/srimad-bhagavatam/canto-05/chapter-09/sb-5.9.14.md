@@ -1,5 +1,7 @@
 ### SB 5.9.14
 
+> अथ त एनमनवद्यलक्षणमवमृश्य भर्तृकर्मनिष्पत्तिं मन्यमाना बद्ध्वा रशनयाचण्डिकागृहमुपनिन्युर्मुदा विकसितवदनाः ॥१४॥
+
 *atha ta enam anavadya*-lakṣaṇam avamṛśya bhartṛ-karma-niṣpattiṁ manyamānā baddhvā raśanayā caṇḍikā-gṛham upaninyur mudā vikasita-vadanāḥ.
 
 *atha*—em seguida; *te*—eles (os servos do líder dos salteadores); *enam*—este (Jaḍa Bharata); *anavadya-lakṣaṇam*—como portador das características de um animal obtuso devido a um corpo gordo como o de um touro e por ser surdo e mudo; *avamṛśya*—reconhecendo; *bhartṛ-karma-niṣpattim*—a realização do trabalho de seu mestre; *manyamānāḥ*—compreendendo; *baddhvā*—amarrando firmemente; *raśanayā*—com cordas; *caṇḍikā-gṛham*—ao templo da deusa Kālī; *upaninyuḥ*—conduziram; *mudā*—com grande felicidade; *vikasita-vadanāḥ*—com semblantes radiantes.

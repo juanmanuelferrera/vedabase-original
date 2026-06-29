@@ -1,5 +1,8 @@
 ### CC Adi 4.222
 
+> শ্রীকৃষ্ণচৈতন্য গোসাঞি ব্রজেন্দ্রকুমার ।
+> রসময়-মূর্তি কৃষ্ণ সাক্ষাৎ শৃঙ্গার ॥২২২॥
+
 > śrī-kṛṣṇa-caitanya gosāñi vrajendra-kumāra
 > rasa-maya-mūrti kṛṣṇa sākṣāt śṛṅgāra
 

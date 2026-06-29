@@ -1,5 +1,8 @@
 ### CC Antya 1.2
 
+> দুর্গমে পথি মেঽন্ধস্য স্খলৎপাদগতের্মুহুঃ ।
+> স্বকৃপা-যষ্টিদানেন সন্তঃ সন্ত্ববলম্বনম্ ॥২॥
+
 > durgame pathi me 'ndhasya
 > skhalat-pāda-gater muhuḥ
 > sva-kṛpā-yaṣṭi-dānena

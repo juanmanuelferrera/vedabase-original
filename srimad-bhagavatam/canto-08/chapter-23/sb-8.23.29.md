@@ -1,5 +1,10 @@
 ### SB 8.23.29
 
+> पारं महिम्न उरुविक्रमतो गृणानो
+> यः पार्थिवानि विममे स रजांसि मर्त्यः
+> किं जायमान उत जात उपैति मर्त्य
+> इत्याह मन्त्रदृगृषिः पुरुषस्य यस्य ॥२९॥
+
 > pāraṁ mahimna uruvikramato gṛṇāno
 > yaḥ pārthivāni vimame sa rajāṁsi martyaḥ
 > kiṁ jāyamāna uta jāta upaiti martya

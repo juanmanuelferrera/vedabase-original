@@ -1,5 +1,8 @@
 ### SB 8.7.17
 
+> मथ्यमानात्तथा सिन्धोर्देवासुरवरूथपैः
+> यदा सुधा न जायेत निर्ममन्थाजितः स्वयम ॥१७॥
+
 > megha-śyāmaḥ kanaka-paridhiḥ karṇa-vidyota-vidyun
 > mūrdhni bhrājad-vilulita-kacaḥ srag-dharo rakta-netraḥ
 > jaitrair dorbhir jagad-abhaya-dair dandaśūkaṁ gṛhītvā

@@ -1,5 +1,8 @@
 ### CC Madhya 17.177
 
+> “পুরী-গোসাঞি তোমার ঘরে কর্যাছেন ভিক্ষা । 
+> মোরে তুমি ভিক্ষা দেহ, — এই মোর ‘শিক্ষা’ ” ॥১৭৭॥
+
 > "purī-gosāñi tomāra ghare karyāchena bhikṣā
 > more tumi bhikṣā deha,--ei mora 'śikṣā' "
 

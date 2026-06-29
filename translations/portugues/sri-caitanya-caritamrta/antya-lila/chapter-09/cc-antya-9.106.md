@@ -1,5 +1,8 @@
 ### CC Antya 9.106
 
+> আর বার ঐছে না খাইহ রাজধন ।
+> আজি হৈতে দিলুঁ তোমায় দ্বিগুণ বর্তন ।।” ॥ ১০৬ ॥
+
 āra bāra aiche nā khāiha rāja-dhana
 
 āji haite diluṅ tomāya dviguṇa vartana"

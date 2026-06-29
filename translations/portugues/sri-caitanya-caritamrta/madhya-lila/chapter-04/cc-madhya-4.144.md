@@ -1,5 +1,8 @@
 ### CC Madhya 4.144
 
+> প্রেমাবেশে উঠে, পড়ে, হাসে, নাচে, গায় ।
+> জগন্নাথ-দরশনে মহাসুখ পায় ॥১৪৪॥
+
 premāveśe uṭhe, paḍe, hāse, nāce, gāya
 
 jagannātha-daraśane mahā-sukha pāya

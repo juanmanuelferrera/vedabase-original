@@ -1,5 +1,8 @@
 ### CC Adi 14.73
 
+> উচ্ছিষ্ট-গর্তে ত্যক্ত-হাণ্ডীর উপর ।
+> বসিয়াছেন সুখে প্রভু দেব-বিশ্বম্ভর ॥৭৩॥
+
 > ucchiṣṭa-garte tyakta-hāṇḍīra upara
 > basiyāchena sukhe prabhu deva-viśvambhara
 

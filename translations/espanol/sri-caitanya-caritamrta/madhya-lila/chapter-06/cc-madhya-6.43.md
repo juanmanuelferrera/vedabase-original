@@ -1,5 +1,8 @@
 ### CC Madhya 6.43
 
+> সার্বভৌম পরিবেশন করেন আপনে ।
+> প্রভু কহে, — মোরে দেহ লাফ্রা-ব্যঞ্জনে ॥৪৩॥
+
 > sārvabhauma pariveśana karena āpane
 > prabhu kahe,--more deha lāphrā-vyañjane
 

@@ -1,5 +1,8 @@
 ### CC Adi 6.119
 
+> দুই শ্লোকে কহিল অদ্বৈত-তত্ত্বনিরূপণ ।
+> পঞ্চতত্ত্বের বিচার কিছু শুন, ভক্তগণ ॥১১৯॥
+
 > dui śloke kahila advaita-tattva-nirūpaṇa
 > pañca-tattvera vicāra kichu śuna, bhakta-gaṇa
 

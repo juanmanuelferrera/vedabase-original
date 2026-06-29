@@ -1,5 +1,8 @@
 ### Bg 9.6
 
+> यथाकाशस्थितो नित्यं वायुः सर्वत्रगो महान् ।
+> तथा सर्वाणि भूतानि मत्स्थानीत्युपधारय ॥६॥
+
 > yathākāśa-sthito nityaṁ
 > vāyuḥ sarvatra-go mahān
 > tathā sarvāṇi bhūtāni

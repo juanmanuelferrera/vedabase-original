@@ -1,5 +1,8 @@
 ### CC Madhya 24.90
 
+> অকামঃ সর্বকামো বা মোক্ষকাম উদারধীঃ ।
+> তীব্রেণ ভক্তিযোগেন যজেত পুরুষং পরম্ ॥৯০॥
+
 > akāmaḥ sarva-kāmo vā
 > mokṣa-kāma udāra-dhīḥ
 > tīvreṇa bhakti-yogena

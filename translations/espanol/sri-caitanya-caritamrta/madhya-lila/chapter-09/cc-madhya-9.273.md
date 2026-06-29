@@ -1,5 +1,8 @@
 ### CC Madhya 9.273
 
+> শুনি’ তত্ত্বাচার্য হৈলা অন্তরে লজ্জিত ৷
+> প্রভুর বৈষ্ণবতা দেখি, হইলা বিস্মিত ৷৷ ২৭৩ ৷৷ ॥২৭৩॥
+
 > śuni' tattvācārya hailā antare lajjita
 > prabhura vaiṣṇavatā dekhi, ha-ilā vismita
 

@@ -1,5 +1,8 @@
 ### CC Madhya 13.46
 
+> খণ্ডের সম্প্রদায় করে অন্যত্র কীর্তন ।
+> নরহরি নাচে তাহাঁ শ্রীরঘুনন্দন ॥৪৬॥
+
 > khaṇḍera sampradāya kare anyatra kīrtana
 > narahari nāce tāhāṅ śrī-raghunandana
 

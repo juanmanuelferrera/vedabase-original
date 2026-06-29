@@ -1,5 +1,10 @@
 ### CC Madhya 21.118
 
+> গোপীভাব-দরপণ, নব নব ক্ষণে ক্ষণ,
+> তার আগে কৃষ্ণের মাধুর্য ।
+> দোঁহে করে হুড়াহুড়ি, বাড়ে, মুখ নাহি মুড়ি,
+> নব নব দোঁহার প্রাচুর্য ॥১১৮॥
+
 > gopī-bhāva-darapaṇa, nava nava kṣaṇe kṣaṇa,
 > tāra āge kṛṣṇera mādhurya
 > doṅhe kare huḍāhuḍi, bāḍe, mukha nāhi muḍi,

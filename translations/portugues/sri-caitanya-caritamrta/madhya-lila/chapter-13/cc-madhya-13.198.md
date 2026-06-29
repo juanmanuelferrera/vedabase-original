@@ -1,5 +1,8 @@
 ### CC Madhya 13.198
 
+> রাজা, রাজমহিষীবৃন্দ, পাত্র, মিত্রগণ ।
+> নীলাচলবাসী যত ছোট-বড় জন ॥১৯৮॥
+
 rājā, rāja-mahiṣī-vṛnda, pātra, mitra-gaṇa
 
 nīlācala-vāsī yata choṭa-baḍa jana

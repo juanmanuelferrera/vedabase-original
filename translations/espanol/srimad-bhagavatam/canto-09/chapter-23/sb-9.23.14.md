@@ -1,5 +1,8 @@
 ### SB 9.23.14
 
+> वृषसेनः सुतस्तस्य कर्णस्य जगतीपते
+> द्रुह्योश्च तनयो बभ्रुः सेतुस्तस्यात्मजस्ततः ॥१४॥
+
 > vṛṣasenaḥ sutas tasya
 > karṇasya jagatīpate
 > druhyoś ca tanayo babhruḥ

@@ -1,5 +1,8 @@
 ### CC Madhya 18.110
 
+> বৃন্দাবনে হইলা তুমি কৃষ্ণ-অবতার ।
+> তোমা দেখি’ সর্বলোক হইল নিস্তার ।।’ ॥ ১১০ ॥
+
 > vṛndāvane ha-ilā tumi kṛṣṇa-avatāra
 > tomā dekhi' sarva-loka ha-ila nistāra
 

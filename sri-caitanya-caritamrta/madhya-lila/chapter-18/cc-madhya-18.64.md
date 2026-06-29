@@ -1,5 +1,8 @@
 ### CC Madhya 18.64
 
+> লীলাস্থল দেখি’ তাহাঁ গেলা ‘শেষশায়ী’ ।
+> ‘লক্ষ্মী’ দেখি’ এই শ্লোক পড়েন গোসাঞি ॥৬৪॥
+
 > līlā-sthala dekhi' tāhāṅ gelā 'śeṣaśāyī'
 > 'lakṣmī' dekhi' ei śloka paḍena gosāñi
 

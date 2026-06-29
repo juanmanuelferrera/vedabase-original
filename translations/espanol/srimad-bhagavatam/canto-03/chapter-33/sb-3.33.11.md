@@ -1,5 +1,8 @@
 ### SB 3.33.11
 
+> श्रद्धत्स्वैतन्मतं मह्यं जुष्टं यद्ब्रह्मवादिभिः ।
+> येन मामभयं याया मृत्युमृच्छन्त्यतद्विदः ॥११॥
+
 > śraddhatsvaitan mataṁ mahyaṁ
 > juṣṭaṁ yad brahma-vādibhiḥ
 > yena mām abhayaṁ yāyā

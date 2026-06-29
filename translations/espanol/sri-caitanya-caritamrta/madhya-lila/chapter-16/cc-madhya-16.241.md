@@ -1,5 +1,8 @@
 ### CC Madhya 16.241
 
+> সে ছল সেকালে কৃষ্ণ স্ফুরাবে তোমারে ।
+> কৃষ্ণকৃপা যাঁরে, তারে কে রাখিতে পারে ।।” ॥ ২৪১ ॥
+
 > se chala se-kāle kṛṣṇa sphurābe tomāre
 > kṛṣṇa-kṛpā yāṅre, tāre ke rākhite pāre"
 

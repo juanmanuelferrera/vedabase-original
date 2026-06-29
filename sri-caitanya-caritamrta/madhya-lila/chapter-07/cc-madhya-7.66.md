@@ -1,5 +1,8 @@
 ### CC Madhya 7.66
 
+> অলৌকিক বাক্য চেষ্টা তাঁর না বুঝিয়া ।
+> পরিহাস করিয়াছি তাঁরে ‘বৈষ্ণব’ বলিয়া ॥৬৬॥
+
 > alaukika vākya ceṣṭā tāṅra nā bujhiyā
 > parihāsa kariyāchi tāṅre 'vaiṣṇava' baliyā
 

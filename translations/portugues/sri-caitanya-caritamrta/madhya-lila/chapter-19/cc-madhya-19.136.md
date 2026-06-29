@@ -1,5 +1,8 @@
 ### CC Madhya 19.136
 
+> প্রভু কহে, — শুন, রূপ, ভক্তিরসের লক্ষণ ।
+> সূত্ররূপে কহি, বিস্তার না যায় বর্ণন ॥১৩৬॥
+
 prabhu kahe,--śuna, rūpa, bhakti-rasera lakṣaṇa
 
 sūtra-rūpe kahi, vistāra nā yāya varṇana

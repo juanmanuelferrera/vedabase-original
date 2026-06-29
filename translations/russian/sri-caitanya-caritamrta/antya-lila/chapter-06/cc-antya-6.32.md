@@ -1,5 +1,8 @@
 ### CC Antya 6.32
 
+> “তোমার জ্যেঠা নির্বুদ্ধি অষ্টলক্ষ খায়  ।
+> আমি — ভাগী, আমারে কিছু দিবারে যুয়ায় ॥৩২॥
+
 > "tomāra jyeṭhā nirbuddhi aṣṭa-lakṣa khāya
 > āmi—bhāgī, āmāre kichu dibāre yuyāya
 

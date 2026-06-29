@@ -1,5 +1,8 @@
 ### CC Madhya 1.97
 
+> ক্ষীর-চুরি-কথা, সাক্ষি-গোপাল-বিবরণ ।
+> নিত্যানন্দ কৈল প্রভুর দণ্ড-ভঞ্জন ॥৯৭॥
+
 > kṣīra-curi-kathā, sākṣi-gopāla-vivaraṇa
 > nityānanda kaila prabhura daṇḍa-bhañjana
 

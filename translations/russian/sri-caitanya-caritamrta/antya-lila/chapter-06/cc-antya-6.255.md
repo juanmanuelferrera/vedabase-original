@@ -1,5 +1,8 @@
 ### CC Antya 6.255
 
+> দশদণ্ড রাত্রি গেলে ‘পুষ্পাঞ্জলি’ দেখিয়া ।
+> সিংহদ্বারে খাড়া হয় আহার লাগিয়া ॥২৫৫॥
+
 > daśa-daṇḍa rātri gele 'puṣpāñjali' dekhiyā
 > siṁha-dvāre khāḍā haya āhāra lāgiyā
 

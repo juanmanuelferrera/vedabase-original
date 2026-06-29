@@ -1,5 +1,7 @@
 ### CC Madhya 22.70
 
+> যো ভবেৎ কোমলশ্রদ্ধঃ স কনিষ্ঠো নিগদ্যতে ॥৭০॥
+
 > yo bhavet komala-śraddhaḥ
 > sa kaniṣṭho nigadyate
 

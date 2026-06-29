@@ -1,5 +1,8 @@
 ### CC Adi 7.73
 
+> কৃষ্ণমন্ত্র হৈতে হবে সংসার-মোচন ।
+> কৃষ্ণনাম হৈতে পাবে কৃষ্ণের চরণ ॥৭৩॥
+
 > kṛṣṇa-mantra haite habe saṁsāra-mocana
 > kṛṣṇa-nāma haite pābe kṛṣṇera caraṇa
 

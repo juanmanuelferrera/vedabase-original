@@ -1,5 +1,8 @@
 ### CC Madhya 8.145
 
+> লক্ষ্মীকান্তাদি অবতারের হরে মন ।
+> লক্ষ্মী আদি নারীগণের করে আকর্ষণ ॥১৪৫॥
+
 > lakṣmī-kāntādi avatārera hare mana
 > lakṣmī-ādi nārī-gaṇera kare ākarṣaṇa
 

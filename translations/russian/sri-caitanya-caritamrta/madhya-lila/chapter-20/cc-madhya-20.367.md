@@ -1,5 +1,8 @@
 ### CC Madhya 20.367
 
+> শক্ত্যাবেশাবতার কৃষ্ণের অসংখ্য গণন ।
+> দিগ্দরশন করি মুখ্য মুখ্য জন ॥৩৬৭॥
+
 > śaktyāveśāvatāra kṛṣṇera asaṅkhya gaṇana
 > dig-daraśana kari mukhya mukhya jana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 19.247
 
+> তপনমিশ্র শুনি’ আসি’ প্রভুরে মিলিলা ।
+> ইষ্টগোষ্ঠী করি’ প্রভুর নিমন্ত্রণ কৈলা ॥২৪৭॥
+
 tapana-miśra śuni' āsi' prabhure mililā
 
 iṣṭa-goṣṭhī kari' prabhura nimantraṇa kailā

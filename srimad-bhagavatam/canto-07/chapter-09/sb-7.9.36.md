@@ -1,5 +1,10 @@
 ### SB 7.9.36
 
+> एवं सहस्रवदनाङ्घ्रिशिरःकरोरु
+> नासाद्यकर्णनयनाभरणायुधाढ्यम
+> मायामयं सदुपलक्षितसन्निवेशं
+> दृष्ट्वा महापुरुषमाप मुदं विरिञ्चः ॥३६॥
+
 > evaṁ sahasra-vadanāṅghri-śiraḥ-karoru-
 > nāsādya-karṇa-nayanābharaṇāyudhāḍhyam
 > māyāmayaṁ sad-upalakṣita-sanniveśaṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 9.66
 
+> স্বপ্রভাবে লোক-সবার করাঞা বিস্ময় ৷
+> পানা-নৃসিংহে আইলা প্রভু দয়াময় ৷৷ ৬৬ ৷৷ ॥৬৬॥
+
 > sva-prabhāve loka-sabāra karāñā vismaya
 > pānā-nṛsiṁhe āilā prabhu dayā-maya
 

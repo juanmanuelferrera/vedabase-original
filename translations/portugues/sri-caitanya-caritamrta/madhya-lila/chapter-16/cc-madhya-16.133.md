@@ -1,5 +1,8 @@
 ### CC Madhya 16.133
 
+> প্রভু কহে, — “সেবা ছাড়িবে, আমায় লাগে দোষ ।
+> ইঁহা রহি’ সেবা কর, — আমার সন্তোষ ।।” ॥ ১৩৩ ॥
+
 prabhu kahe,--"sevā chāḍibe, āmāya lāge doṣa
 
 iṅhā rahi' sevā kara,--āmāra santoṣa"

@@ -1,5 +1,8 @@
 ### CC Madhya 16.228
 
+> বার বার পলায় তেঁহো নীলাদ্রি যাইতে ।
+> পিতা তাঁরে বান্ধি’ রাখে আনি’ পথ হৈতে ॥২২৮॥
+
 bāra bāra palāya teṅho nīlādri yāite
 
 pitā tāṅre bāndhi' rākhe āni' patha haite

@@ -1,5 +1,8 @@
 ### CC Antya 13.114
 
+> পুনরপি একবার আসিহ নীলাচলে ।”
+> এত বলি’ কণ্ঠ-মালা দিলা তাঁর গলে ॥১১৪॥
+
 > punarapi eka-bāra āsiha nīlācale"
 > eta bali' kaṇṭha-mālā dilā tāṅra gale
 

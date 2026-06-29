@@ -1,5 +1,8 @@
 ### CC Adi 5.66
 
+> এক অঙ্গাভাসে করে মায়াতে মিলন ।
+> মায়া হৈতে জন্মে তবে ব্রহ্মাণ্ডের গণ ॥৬৬॥
+
 eka aṅgābhāse kare māyāte milana
 māyā haite janme tabe brahmāṇḍera gaṇa
 

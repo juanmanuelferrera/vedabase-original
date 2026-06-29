@@ -1,5 +1,8 @@
 ### SB 7.15.25
 
+> रजस्तमश्च सत्त्वेन सत्त्वं चोपशमेन च
+> एतत्सर्वं गुरौ भक्त्या पुरुषो ह्यञ्जसा जयेत ॥२५॥
+
 > rajas tamaś ca sattvena
 > sattvaṁ copaśamena ca
 > etat sarvaṁ gurau bhaktyā

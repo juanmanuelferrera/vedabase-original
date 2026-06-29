@@ -1,5 +1,7 @@
 ### SB 5.20.39
 
+> तदुपरिष्टाच्चतसृष्वाशास्वात्मयोनिनाखिलजगद्गुरुणाधिनिवेशिता ये द्विरदपतय ऋषभःपुष्करचूडो वामनोऽपराजित इति सकललोकस्थितिहेतवः ॥३९॥
+
 *tad*-upariṣṭāc catasṛṣv āśāsvātma-yoninākhila-jagad-guruṇādhiniveśitā ye dvirada-pataya ṛṣabhaḥ puṣkaracūḍo vāmano 'parājita iti sakala-loka-sthiti-hetavaḥ.
 
 *tat-upariṣṭāt*—no topo da montanha Lokāloka; *catasṛṣu āśāsu*—nas quatro direções; *ātma-yoninā*—pelo Senhor Brahmā; *akhila-jagat-guruṇā*—o mestre espiritual de todo o universo; *adhiniveśitāḥ*—estabelecidos; *ye*—todos esses; *dvirada-patayaḥ*—os melhores dos elefantes; *ṛṣabhaḥ*—Ṛṣabha; *puṣkara-cūḍaḥ*—Puṣkaracūḍa; *vāmanaḥ*—Vāmana; *aparājitaḥ*—Aparājita; *iti*—assim; *sakala-loka-sthiti-hetavaḥ*—as causas da manutenção dos diferentes planetas dentro do universo.

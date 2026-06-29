@@ -1,5 +1,8 @@
 ### SB 8.18.28
 
+> तत्पादशौचं जनकल्मषापहं स धर्मविन्मूर्ध्न्यदधात्सुमङ्गलम
+> यद्देवदेवो गिरिशश्चन्द्रमौलिर्दधार मूर्ध्ना परया च भक्त्या ॥२८॥
+
 > tat-pāda-śaucaṁ jana-kalmaṣāpahaṁ
 > sa dharma-vin mūrdhny adadhāt sumaṅgalam
 > yad deva-devo giriśaś candra-maulir

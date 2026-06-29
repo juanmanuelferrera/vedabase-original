@@ -1,5 +1,8 @@
 ### SB 8.22.17
 
+> यया हि विद्वानपि मुह्यते यतस्तत्को विचष्टे गतिमात्मनो यथा
+> तस्मै नमस्ते जगदीश्वराय वै नारायणायाखिललोकसाक्षिणे ॥१७॥
+
 > yayā hi vidvān api muhyate yatas
 > tat ko vicaṣṭe gatim ātmano yathā
 > tasmai namas te jagad-īśvarāya vai

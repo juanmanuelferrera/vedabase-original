@@ -1,5 +1,8 @@
 ### CC Madhya 17.53
 
+> মথুরা যাইবার ছলে আসেন ঝারিখণ্ড ।
+> ভিল্লপ্রায় লোক তাহাঁ পরম-পাষণ্ড ॥৫৩॥
+
 > mathurā yāibāra chale āsena jhārikhaṇḍa
 > bhilla-prāya loka tāhāṅ parama-pāṣaṇḍa
 

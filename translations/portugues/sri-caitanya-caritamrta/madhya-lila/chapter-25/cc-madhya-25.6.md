@@ -1,5 +1,8 @@
 ### CC Madhya 25.6
 
+> সন্ন্যাসীরে কৃপা পূর্বে লিখিয়াছোঁ বিস্তারিয়া ।
+> উদ্দেশে কহিয়ে ইহাঁ সংক্ষেপ করিয়া ॥৬॥
+
 sannyāsīre kṛpā pūrve likhiyāchoṅ vistāriyā
 uddeśe kahiye ihāṅ saṅkṣepa kariyā
 

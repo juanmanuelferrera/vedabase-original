@@ -1,5 +1,8 @@
 ### CC Adi 4.192
 
+> গোপী-শোভা দেখি’ কৃষ্ণের শোভা বাঢ়ে যত ।
+> কৃষ্ণ-শোভা দেখি’ গোপীর শোভা বাঢ়ে তত ॥১৯২॥
+
 > gopī-śobhā dekhi' kṛṣṇera śobhā bāḍhe yata
 > kṛṣṇa-śobhā dekhi' gopīra śobhā bāḍhe tata
 

@@ -1,5 +1,8 @@
 ### CC Madhya 22.113
 
+> স্মর্তব্যঃ সততং বিষ্ণুর্বিস্মর্তব্যো ন জাতুচিৎ ।
+> সর্বে বিধিনিষেধাঃ স্যুরেতয়োরেব কিঙ্করাঃ ॥১১৩॥
+
 > smartavyaḥ satataṁ viṣṇur
 > vismartavyo na jātucit
 > sarve vidhi-niṣedhāḥ syur

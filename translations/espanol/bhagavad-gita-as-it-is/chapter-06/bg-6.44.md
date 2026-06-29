@@ -1,5 +1,8 @@
 ### Bg 6.44
 
+> पूर्वाभ्यासेन तेनैव ह्रियते ह्यवशोऽपि सः ।
+> जिज्ञासुरपि योगस्य शब्दब्रह्मातिवर्तते ॥४४॥
+
 > pūrvābhyāsena tenaiva
 > hriyate hy avaśo'pi saḥ
 > jijñāsur api yogasya

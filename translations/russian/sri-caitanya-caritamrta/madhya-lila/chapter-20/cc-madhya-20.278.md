@@ -1,5 +1,8 @@
 ### CC Madhya 20.278
 
+> ইঁহো মহৎস্রষ্টা পুরুষ — ‘মহাবিষ্ণু’ নাম ।
+> অনন্ত ব্রহ্মাণ্ড তাঁর লোমকূপে ধাম ॥২৭৮॥
+
 > iṅho mahat-sraṣṭā puruṣa—'mahā-viṣṇu' nāma
 > ananta brahmāṇḍa tāṅra loma-kūpe dhāma
 

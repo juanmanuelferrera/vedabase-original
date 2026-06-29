@@ -1,5 +1,8 @@
 ### CC Madhya 20.164
 
+> ‘ভক্ত্যে’ ভগবানের অনুভব — পূর্ণরূপ ।
+> একই বিগ্রহে তাঁর অনন্ত স্বরূপ ॥১৬৪॥
+
 'bhaktye' bhagavānera anubhava--pūrṇa-rūpa
 
 eka-i vigrahe tāṅra ananta svarūpa

@@ -1,5 +1,8 @@
 ### CC Adi 7.27
 
+> জগৎ ডুবিল, জীবের হৈল বীজ নাশ ।
+> তাহা দেখি’ পাঁচ জনের পরম উল্লাস ॥২৭॥
+
 jagat ḍubila, jīvera haila bīja nāśa
 
 tāhā dekhi' pāṅca janera parama ullāsa

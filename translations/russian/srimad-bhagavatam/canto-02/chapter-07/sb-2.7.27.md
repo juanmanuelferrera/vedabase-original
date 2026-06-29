@@ -1,5 +1,10 @@
 ### SB 2.7.27
 
+> तोकेन जीवहरणं यदुलूकिकायास्
+> त्रैमासिकस्य च पदा शकटोऽपवृत्तः ।
+> यद्रिङ्गतान्तरगतेन दिविस्पृशोर्वा
+> उन्मूलनं त्वितरथार्जुनयोर्न भाव्यम् ॥२७॥
+
 > tokena jīva-haraṇaṁ yad ulūki-kāyās
 > trai-māsikasya ca padā śakaṭo 'pavṛttaḥ
 > yad riṅgatāntara-gatena divi-spṛśor vā

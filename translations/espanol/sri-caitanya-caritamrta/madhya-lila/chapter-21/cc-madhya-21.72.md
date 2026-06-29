@@ -1,5 +1,8 @@
 ### CC Madhya 21.72
 
+> পাদপীট-মুকুটাগ্র-সংঘট্টে উঠে ধ্বনি ।
+> পাদপীঠে স্তুতি করে মুকুট হেন জানি’ ॥৭২॥
+
 > pāda-pīṭa-mukuṭāgra-saṅghaṭṭe uṭhe dhvani
 > pāda-pīṭhe stuti kare mukuṭa hena jāni'
 

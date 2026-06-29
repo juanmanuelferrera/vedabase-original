@@ -1,5 +1,8 @@
 ### CC Adi 5.37
 
+> তৈছে পরব্যোমে নানা চিচ্ছক্তিবিলাস ।
+> নির্বিশেষ জ্যোতির্বিম্ব বাহিরে প্রকাশ ॥৩৭॥
+
 taiche para-vyome nānā cic-chakti-vilāsa
 
 nirviśeṣa jyotir-bimba bāhire prakāśa

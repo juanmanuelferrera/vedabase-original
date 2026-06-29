@@ -1,5 +1,8 @@
 ### CC Antya 16.78
 
+> তাঁ-সবার সঙ্গে প্রভুর ছিল বাহ্যজ্ঞান ।
+> তাঁরা গেলে পুনঃ হৈলা উন্মাদ প্রধান ॥৭৮॥
+
 > tāṅ-sabāra saṅge prabhura chila bāhya-jñāna
 > tāṅrā gele punaḥ hailā unmāda pradhāna
 

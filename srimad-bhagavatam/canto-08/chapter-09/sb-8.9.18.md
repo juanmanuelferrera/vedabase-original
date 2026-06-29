@@ -1,5 +1,8 @@
 ### SB 8.9.18
 
+> तां श्रीसखीं कनककुण्डलचारुकर्ण नासाकपोलवदनां परदेवताख्याम
+> संवीक्ष्य सम्मुमुहुरुत्स्मितवीक्षणेन देवासुरा विगलितस्तनपट्टिकान्ताम ॥१८॥
+
 > tāṁ śrī-sakhīṁ kanaka-kuṇḍala-cāru-karṇa-
 > nāsā-kapola-vadanāṁ para-devatākhyām
 > saṁvīkṣya sammumuhur utsmita-vīkṣaṇena

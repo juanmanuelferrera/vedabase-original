@@ -1,5 +1,8 @@
 ### CC Madhya 20.353
 
+> সর্বজ্ঞ মুনির বাক্য — শাস্ত্র-‘পরমাণ’ ।
+> আমা-সবা জীবের হয় শাস্ত্রদ্বারা ‘জ্ঞান’ ॥৩৫৩॥
+
 > sarvajña munira vākya--śāstra-'paramāṇa'
 > āmā-sabā jīvera haya śāstra-dvārā jñāna'
 

@@ -1,5 +1,8 @@
 ### CC Antya 4.5
 
+> ঝারিখণ্ডের জলের দোষে, উপবাস হৈতে ।
+> গাত্রে কণ্ডু হৈল, রসা পড়ে খাজুয়াইতে ॥৫॥
+
 > jhārikhaṇḍera jalera doṣe, upavāsa haite
 > gātre kaṇḍu haila, rasā paḍe khājuyāite
 

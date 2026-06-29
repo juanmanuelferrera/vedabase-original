@@ -1,5 +1,8 @@
 ### CC Antya 7.121
 
+> স্বগণ-সহিতে মোর মানিলা নিমন্ত্রণ ।
+> এবে কেনে প্রভুর মোতে ফিরি’ গেল মন? ॥১২১॥
+
 > svagaṇa-sahite mora mānilā nimantraṇa
 > ebe kene prabhura mote phiri' gela mana?
 

@@ -1,5 +1,8 @@
 ### CC Adi 7.72
 
+> মূর্খ তুমি, তোমার নাহিক বেদান্তাধিকার ।
+> ‘কৃষ্ণমন্ত্র’ জপ’ সদা, — এই মন্ত্রসার ॥৭২॥
+
 mūrkha tumi, tomāra nāhika vedāntādhikāra
 
 'kṛṣṇa-mantra' japa sadā,--ei mantra-sāra

@@ -1,5 +1,8 @@
 ### CC Antya 6.173
 
+> গ্রামে-গ্রামের পথ ছাড়ি’ যায় বনে বনে ।
+> কায়মনোবাক্যে চিন্তে চৈতন্য-চরণে ॥১৭৩॥
+
 > grāme-grāmera patha chāḍi' yāya vane vane
 > kāya-mano-vākye cinte caitanya-caraṇe
 

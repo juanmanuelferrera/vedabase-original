@@ -1,5 +1,8 @@
 ### CC Madhya 13.203
 
+> নৃত্য-পরিশ্রমে প্রভুর দেহে ঘন ঘর্ম ।
+> সুগন্ধি শীতল-বায়ু করেন সেবন ॥২০৩॥
+
 nṛtya-pariśrame prabhura dehe ghana gharma
 
 sugandhi śītala-vāyu karena sevana

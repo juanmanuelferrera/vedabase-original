@@ -1,5 +1,8 @@
 ### CC Antya 18.51
 
+> কিবা ব্রহ্মদৈত্য, কিবা ভূত, কহনে না যায় ।
+> দর্শনমাত্রে মনুষ্যের পৈশে সেই কায় ॥৫১॥
+
 > kibā brahma-daitya, kibā bhūta, kahane nā yāya
 > darśana-mātre manuṣyera paiśe sei kāya
 

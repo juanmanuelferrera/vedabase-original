@@ -1,5 +1,8 @@
 ### CC Madhya 12.30
 
+> নিত্যানন্দ কহে — ঐছে হয় কোন্ জন ।
+> যে তোমারে কহে, ‘কর রাজদরশন’ ॥৩০॥
+
 > nityānanda kahe-aiche haya kon jana
 > ye tomāre kahe, 'kara rāja-daraśana'
 

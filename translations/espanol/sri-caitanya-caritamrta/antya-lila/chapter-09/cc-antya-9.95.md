@@ -1,5 +1,8 @@
 ### CC Antya 9.95
 
+> একক্ষণ প্রভুর যদি পাইয়ে দরশন ।
+> কোটিচিন্তামণি-লাভ নহে তার সম ॥৯৫॥
+
 > eka-kṣaṇa prabhura yadi pāiye daraśana
 > koṭi-cintāmaṇi-lābha nahe tāra sama
 

@@ -1,5 +1,8 @@
 ### CC Adi 5.133
 
+> অতএব শ্রীকৃষ্ণচৈতন্য গোসাঞি ।
+> সর্ব অবতার-লীলা করি’ সবারে দেখাই ॥১৩৩॥
+
 ataeva śrī-kṛṣṇa-caitanya gosāñi
 
 sarva avatāra-līlā kari' sabāre dekhāi

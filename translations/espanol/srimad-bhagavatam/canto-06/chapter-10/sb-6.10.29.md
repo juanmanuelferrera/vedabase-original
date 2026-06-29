@@ -1,5 +1,8 @@
 ### SB 6.10.29
 
+> ते स्वप्रयासं वितथं निरीक्ष्य हरावभक्ता हतयुद्धदर्पाः
+> पलायनायाजिमुखे विसृज्य पतिं मनस्ते दधुरात्तसाराः ॥२९॥
+
 > te sva-prayāsaṁ vitathaṁ nirīkṣya
 > harāv abhaktā hata-yuddha-darpāḥ
 > palāyanāyāji-mukhe visṛjya

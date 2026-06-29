@@ -1,5 +1,8 @@
 ### SB 8.3.6
 
+> न यस्य देवा ऋषयः पदं विदुर्जन्तुः पुनः कोऽर्हति गन्तुमीरितुम
+> यथा नटस्याकृतिभिर्विचेष्टतो दुरत्ययानुक्रमणः स मावतु ॥६॥
+
 > na yasya devā ṛṣayaḥ padaṁ vidur
 > jantuḥ punaḥ ko 'rhati gantum īritum
 > yathā naṭasyākṛtibhir viceṣṭato

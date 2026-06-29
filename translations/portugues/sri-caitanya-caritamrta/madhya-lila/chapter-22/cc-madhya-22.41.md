@@ -1,5 +1,8 @@
 ### CC Madhya 22.41
 
+> কাম লাগি’ কৃষ্ণে ভজে, পায় কৃষ্ণ-রসে ।
+> কাম ছাড়ি’ ‘দাস’ হৈতে হয় অভিলাষে ॥৪১॥
+
 kāma lāgi' kṛṣṇe bhaje, pāya kṛṣṇa-rase
 
 kāma chāḍi' 'dāsa' haite haya abhilāṣe

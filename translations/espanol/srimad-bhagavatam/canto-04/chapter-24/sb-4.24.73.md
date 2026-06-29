@@ -1,5 +1,8 @@
 ### SB 4.24.73
 
+> ते वयं नोदिताः सर्वे प्रजासर्गे प्रजेश्वराः ।
+> अनेन ध्वस्ततमसः सिसृक्ष्मो विविधाः प्रजाः ॥७३॥
+
 > te vayaṁ noditāḥ sarve
 > prajā-sarge prajeśvarāḥ
 > anena dhvasta-tamasaḥ

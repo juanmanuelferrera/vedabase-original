@@ -1,5 +1,8 @@
 ### CC Madhya 8.237
 
+> তোমা বিনা অন্য নাহি জীব উদ্ধারিতে ।
+> তোমা বিনা অন্য নাহি কৃষ্ণপ্রেম দিতে ॥’ ২৩৭ ॥
+
 > tomā vinā anya nāhi jīva uddhārite
 > tomā vinā anya nāhi kṛṣṇa-prema dite'
 

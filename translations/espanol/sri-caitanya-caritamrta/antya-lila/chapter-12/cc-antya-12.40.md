@@ -1,5 +1,8 @@
 ### CC Antya 12.40
 
+> ‘দুঃখ পাঞা আসিয়াছে’ — এই প্রভুর বাক্য শুনি’ ।
+> জানিলা ‘সর্বজ্ঞ প্রভু’ — এত অনুমানি’ ॥৪০॥
+
 > 'duḥkha pāñā āsiyāche'--ei prabhura vākya śuni'
 > jānilā 'sarvajña prabhu'--eta anumāni'
 

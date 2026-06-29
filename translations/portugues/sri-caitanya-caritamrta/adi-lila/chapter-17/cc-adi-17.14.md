@@ -1,5 +1,8 @@
 ### CC Adi 17.14
 
+> তবে চতুর্ভুজ হৈলা, তিন অঙ্গ বক্র ।
+> দুই হস্তে বেণু বাজায়, দুয়ে শঙ্খ-চক্র ॥১৪॥
+
 tabe catur-bhuja hailā, tina aṅga vakra
 dui haste veṇu bājāya, duye śaṅkha-cakra
 

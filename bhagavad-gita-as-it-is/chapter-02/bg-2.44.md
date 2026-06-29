@@ -1,5 +1,8 @@
 ### Bg 2.44
 
+> भोगैश्वर्यप्रसक्तानां तयापहृतचेतसाम् ।
+> व्यवसायात्मिका बुद्धिः समाधौ न विधीयते ॥४४॥
+
 > bhogaiśvarya-prasaktānāṁ
 > tayāpahṛta-cetasām
 > vyavasāyātmikā buddhiḥ

@@ -1,5 +1,7 @@
 ### SB 5.22.3
 
+> स एष भगवानादिपुरुष एव साक्षान्नारायणो लोकानां स्वस्तय आत्मानं त्रयीमयं कर्मविशुद्धिनिमित्तं कविभिरपि च वेदेन विजिज्ञआस्यमानो द्वादशधा विभज्य षट्सु वसन्तादिष्वृतुषु यथोपजोषमृतुगुणान्विदधाति ॥३॥
+
 > sa eṣa bhagavān ādi-puruṣa eva sākṣān nārāyaṇo lokānāṁ svastaya ātmānaṁ trayīmayaṁ karma-viśuddhi-nimittaṁ kavibhir api ca vedena vijijñāsyamāno dvādaśadhā vibhajya ṣaṭsu vasantādiṣv ṛtuṣu yathopa-joṣam ṛtu-guṇān vidadhāti.
 
 *saḥ*—ese; *eṣaḥ*—este; *bhagavān*—el supremamente poderoso; *ādi-puruṣaḥ*—la persona original; *eva*—ciertamente; *sākṣāt*—directamente; *nārāyaṇaḥ*—la Suprema Personalidad de Dios, Nārāyaṇa; *lokānām*—de todos los planetas; *svastaye*—para beneficio; *ātmānam*—Él mismo; *trayī-mayam*—que está compuesto de los tres *Vedas* (*Sāma, Yajur* y *Ṛg*); *karma-viśuddhi*—de la purificación de las actividades fruitivas; *nimittam*—la causa; *kavibhiḥ*—por grandes personas santas; *api*—también; *ca*—y; *vedena*—con conocimiento védico; *vijijñāsyamānaḥ*—preguntado acerca de; *dvādaśa-dhā*—en doce divisiones; *vibhajya*—dividir; *ṣaṭsu*—en seis; *vasanta-ādiṣu*—comenzando por la primavera; *ṛtuṣu*—estaciones; *yathā-upajoṣam*—conforme al disfrute de sus actividades pasadas; *ṛtu-guṇān*—los fenómenos propios de cada estación; *vidadhāti*—dispone.

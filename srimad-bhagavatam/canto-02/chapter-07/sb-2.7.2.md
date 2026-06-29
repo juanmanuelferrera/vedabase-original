@@ -1,5 +1,10 @@
 ### SB 2.7.2
 
+> जातो रुचेरजनयत्सुयमान्सुयज्ञ
+> आकूतिसूनुरमरानथ दक्षिणायाम् ।
+> लोकत्रयस्य महतीमहरद्यदार्तिं
+> स्वायम्भुवेन मनुना हरिरित्यनूक्तः ॥२॥
+
 > jāto rucer ajanayat suyamān suyajña
 > ākūti-sūnur amarān atha dakṣiṇāyām
 > loka-trayasya mahatīm aharad yad ārtiṁ

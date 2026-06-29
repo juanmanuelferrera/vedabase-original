@@ -1,5 +1,7 @@
 ### SB 5.4.5
 
+> विदितानुरागमापौरप्रकृति जनपदो राजा नाभिरात्मजं समयसेतुरक्षायामभिषिच्यब्राह्मणेषूपनिधाय सह मेरुदेव्या विशालायां प्रसन्ननिपुणेन तपसा समाधियोगेन नरनारायणाख्यं भगवन्तं वासुदेवमुपासीनः कालेन तन्महिमानमवाप ॥५॥
+
 > viditānurāgam āpaura-prakṛti jana-pado rājā nābhir ātmajaṁ samaya-setu-rakṣāyām abhiṣicya brāhmaṇeṣūpanidhāya saha merudevyā viśālāyāṁ prasanna-nipuṇena tapasā samādhi-yogena nara-nārāyaṇākhyaṁ bhagavantaṁ vāsudevam upāsīnaḥ kālena tan-mahimānam avāpa.
 
 *vidita*—sabiendo muy bien; *anurāgam*—popularidad; *āpaura-prakṛti*—entre todos los ciudadanos y funcionarios del gobierno; *jana-padaḥ*—deseando servir a la gente; *rājā*—el rey; *nābhiḥ*—Nābhi; *ātmajam*—a su hijo; *samaya-setu-rakṣāyām*—para proteger a la gente actuando de estricta conformidad con los principios védicos de vida religiosa; *abhiṣicya*—elevar al trono; *brāhmaṇeṣu*—a los *brāhmaṇas* eruditos; *upanidhāya*—confiando; *saha*—con; *merudevyā*—su esposa, Merudevī; *viśālāyām*—en Badarikāśrama; *prasanna-nipuṇena*—practicadas con gran satisfacción y maestría; *tapasā*—con austeridades y penitencias; *samādhi-yogena*—con la plenitud del *samādhi*; *nara-nārāyaṇa-ākhyam*—llamado Nara-Nārāyaṇa; *bhagavantam*—la Suprema Personalidad de Dios; *vāsudevam*—a Kṛṣṇa; *upāsīnaḥ*—adorar; *kālena*—a su debido tiempo; *tat-mahimānam*—Su gloriosa morada, el mundo espiritual, Vaikuṇṭha; *avāpa*—alcanzó.

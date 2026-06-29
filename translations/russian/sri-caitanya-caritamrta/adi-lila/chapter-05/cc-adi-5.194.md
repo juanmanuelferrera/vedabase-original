@@ -1,5 +1,8 @@
 ### CC Adi 5.194
 
+> আনন্দে বিহ্বল আমি, কিছু নাহি জানি ।
+> তবে হাসি’ প্রভু মোরে কহিলেন বাণী ॥১৯৪॥
+
 > ānande vihvala āmi, kichu nāhi jāni
 > tabe hāsi' prabhu more kahilena vāṇī
 

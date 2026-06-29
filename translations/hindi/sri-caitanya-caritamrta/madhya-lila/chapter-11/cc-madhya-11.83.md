@@ -1,5 +1,8 @@
 ### CC Madhya 11.83
 
+> আচার্য কহে, — ইঁহার নাম অদ্বৈত আচার্য ।
+> মহাপ্রভুর মান্যপাত্র, সর্ব-শিরোধার্য ॥৮৩॥
+
 > ācārya kahe,-iṅhāra nāma advaita ācārya
 > mahāprabhura mānya-pātra, sarva-śirodhārya
 

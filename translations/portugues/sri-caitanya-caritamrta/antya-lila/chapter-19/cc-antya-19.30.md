@@ -1,5 +1,8 @@
 ### CC Antya 19.30
 
+> সেই দিন হৈতে প্রভুর আর দশা হইল ।
+> কৃষ্ণের বিচ্ছেদ-দশা দ্বিগুণ বাড়িল ॥৩০॥
+
 sei dina haite prabhura āra daśā ha-ila
 
 kṛṣṇera viccheda-daśā dviguṇa bāḍila

@@ -1,5 +1,8 @@
 ### CC Antya 1.117
 
+> তাতে জানি — পূর্বে তোমার পাঞাছে প্রসাদ ।
+> তাহা বিনা নহে তোমার হৃদয়ানুবাদ ।।” ॥ ১১৭ ॥
+
 > tāte jāni—pūrve tomāra pāñāche prasāda
 > tāhā vinā nahe tomāra hṛdayānuvāda"
 

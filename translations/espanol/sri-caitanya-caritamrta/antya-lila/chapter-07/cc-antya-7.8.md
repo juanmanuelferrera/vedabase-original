@@ -1,5 +1,8 @@
 ### CC Antya 7.8
 
+> তোমার দর্শন যে পায় সেই ভাগ্যবান্ ।
+> তোমাকে দেখিয়ে, — যেন সাক্ষাৎ ভগবান্ ॥৮॥
+
 > tomāra darśana ye pāya sei bhāgyavān
 > tomāke dekhiye,--yena sākṣāt bhagavān
 

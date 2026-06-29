@@ -1,5 +1,8 @@
 ### CC Madhya 17.83
 
+> সেইকালে তপনমিশ্র করে গঙ্গাস্নান ।
+> প্রভু দেখি’ হৈল তাঁর কিছু বিস্ময় জ্ঞান ॥৮৩॥
+
 sei-kāle tapana-miśra kare gaṅgā-snāna
 
 prabhu dekhi' haila tāṅra kichu vismaya jñāna

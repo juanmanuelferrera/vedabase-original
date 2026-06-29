@@ -1,5 +1,8 @@
 ### CC Adi 7.168
 
+> এই ত’ কহিল পঞ্চতত্ত্বের ব্যাখ্যান ।
+> ইহার শ্রবণে হয় চৈতন্যতত্ত্ব-জ্ঞান ॥১৬৮॥
+
 ei ta' kahila pañca-tattvera vyākhyāna
 
 ihāra śravaṇe haya caitanya-tattva jñāna

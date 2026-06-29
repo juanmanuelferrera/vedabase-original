@@ -1,5 +1,8 @@
 ### SB 9.13.3
 
+> निमित्तश्चलमिदं विद्वान्सत्रमारभतामात्मवान
+> ऋत्विग्भिरपरैस्तावन्नागमद्यावता गुरुः ॥३॥
+
 > nimiś calam idaṁ vidvān
 > satram ārabhatātmavān
 > ṛtvigbhir aparais tāvan

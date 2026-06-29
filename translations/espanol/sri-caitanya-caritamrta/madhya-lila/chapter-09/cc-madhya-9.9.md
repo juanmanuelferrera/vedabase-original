@@ -1,5 +1,8 @@
 ### CC Madhya 9.9
 
+> দক্ষিণ দেশের লোক অনেক প্রকার ৷
+> কেহ জ্ঞানী, কেহ কর্মী, পাষণ্ডী অপার ৷৷ ৯ ৷৷ ॥৯॥
+
 > dakṣiṇa deśera loka aneka prakāra
 > keha jñānī, keha karmī, pāṣaṇḍī apāra
 

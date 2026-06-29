@@ -1,5 +1,8 @@
 ### CC Madhya 11.148
 
+> দামোদর কহে, — শঙ্কর ছোট আমা হৈতে ।
+> এবে আমার বড় ভাই তোমার কৃপাতে ॥১৪৮॥
+
 > dāmodara kahe,-śaṅkara choṭa āmā haite
 > ebe āmāra baḍa bhāi tomāra kṛpāte
 

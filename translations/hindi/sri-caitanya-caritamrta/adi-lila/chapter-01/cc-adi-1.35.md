@@ -1,5 +1,8 @@
 ### CC Adi 1.35
 
+> মন্ত্রগুরু আর যত শিক্ষাগুরুগণ ।
+> তাঁহার চরণ আগে করিয়ে বন্দন ॥৩৫॥
+
 > mantra-guru āra yata śikṣā-guru-gaṇa
 > tāṅhāra caraṇa āge kariye vandana
 

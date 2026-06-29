@@ -1,5 +1,8 @@
 ### CC Madhya 5.6
 
+> প্রেমাবেশে নৃত্যগীত কৈল কতক্ষণ ।
+> আবিষ্ট হঞা কৈল গোপাল স্তবন ॥৬॥
+
 premāveśe nṛtya-gīta kaila kata-kṣaṇa
 āviṣṭa hañā kaila gopāla stavana
 

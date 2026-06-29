@@ -1,5 +1,8 @@
 ### CC Madhya 11.210
 
+> ভোজন সমাপ্ত হৈল, কৈল আচমন ।
+> সবারে পরাইল প্রভু মাল্য-চন্দন ॥২১০॥
+
 > bhojana samāpta haila, kaila ācamana
 > sabāre parāila prabhu mālya-candana
 

@@ -1,5 +1,8 @@
 ### SB 1.2.6
 
+> स वै पुंसां परो धर्मो यतो भक्तिरधोक्षजे ।
+> अहैतुक्यप्रतिहता ययात्मा सुप्रसीदति ॥६॥
+
 > sa vai puṁsāṁ paro dharmo
 > yato bhaktir adhokṣaje
 > ahaituky apratihatā

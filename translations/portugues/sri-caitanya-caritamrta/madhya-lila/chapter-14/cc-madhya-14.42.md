@@ -1,5 +1,8 @@
 ### CC Madhya 14.42
 
+> তবে মহাপ্রভু বৈসে নিজগণ লঞা ।
+> ভোজন করাইল সবাকে আকণ্ঠ পূরিয়া ॥৪২॥
+
 tabe mahāprabhu vaise nija-gaṇa lañā
 
 bhojana karāila sabāke ākaṇṭha pūriyā

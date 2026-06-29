@@ -1,5 +1,8 @@
 ### CC Madhya 11.111
 
+> রাজা কহে, — উপবাস, ক্ষৌর — তীর্থের বিধান ।
+> তাহা না করিয়া কেনে খাইব অন্ন-পান ॥১১১॥
+
 > rājā kahe,-upavāsa, kṣaura-tīrthera vidhāna
 > tāhā nā kariyā kene khāiba anna-pāna
 

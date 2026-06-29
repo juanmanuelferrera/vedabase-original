@@ -1,5 +1,10 @@
 ### CC Madhya 2.51
 
+> এই প্রেমা-আস্বাদন, তপ্ত-ইক্ষু-চর্বণ,
+> মুখ জ্বলে, না যায় ত্যজন ।
+> সেই প্রেমা যাঁর মনে, তার বিক্রম সেই জানে,
+> বিষামৃতে একত্র মিলন ॥৫১॥
+
 > ei premā-āsvādana, tapta-ikṣu-carvaṇa,
 > mukha jvale, nā yāya tyajana
 > sei premā yāṅra mane, tāra vikrama sei jāne,

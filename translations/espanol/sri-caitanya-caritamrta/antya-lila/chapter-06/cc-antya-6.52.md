@@ -1,5 +1,8 @@
 ### CC Antya 6.52
 
+> সেইক্ষণে নিজ-লোক পাঠাইলা গ্রামে ।
+> ভক্ষ্য-দ্রব্য লোক সব গ্রাম হৈতে আনে ॥৫২॥
+
 > sei-kṣaṇe nija-loka pāṭhāilā grāme
 > bhakṣya-dravya loka saba grāma haite āne
 

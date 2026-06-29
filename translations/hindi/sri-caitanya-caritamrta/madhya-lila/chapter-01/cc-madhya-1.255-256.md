@@ -1,5 +1,10 @@
 ### CC Madhya 1.255-256
 
+> অদ্বৈত, নিত্যানন্দ, মুকুন্দ, শ্রীবাস ।
+> বিদ্যানিধি, বাসুদেব, মুরারি, — যত দাস ॥২৫৫॥
+> প্রতিবর্ষে আইসে সঙ্গে রহে চারিমাস ।
+> তাঁ-সবা লঞা প্রভুর বিবিধ বিলাস ॥২৫৬॥
+
 > advaita, nityānanda, mukunda, śrīvāsa
 > vidyānidhi, vāsudeva, murāri,--yata dāsa
 > prativarṣe āise saṅge rahe cāri-māsa

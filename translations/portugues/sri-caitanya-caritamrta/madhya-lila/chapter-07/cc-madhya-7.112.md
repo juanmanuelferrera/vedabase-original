@@ -1,5 +1,8 @@
 ### CC Madhya 7.112
 
+> প্রথমেই কহিল প্রভুর যেরূপে গমন ৷
+> এইমত জানিহ যাবৎ দক্ষিণ-ভ্রমণ ৷৷ ১১২ ৷৷ ॥১১২॥
+
 prathamei kahila prabhura ye-rūpe gamana
 
 ei-mata jāniha yāvat dakṣiṇa-bhramaṇa

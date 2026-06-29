@@ -1,5 +1,8 @@
 ### SB 8.9.24
 
+> देवलिङ्गप्रतिच्छन्नः स्वर्भानुर्देवसंसदि
+> प्रविष्टः सोममपिबच्चन्द्रार्काभ्यां च सूचितः ॥२४॥
+
 > deva-liṅga-praticchannaḥ
 > svarbhānur deva-saṁsadi
 > praviṣṭaḥ somam apibac

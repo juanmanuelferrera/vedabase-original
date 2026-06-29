@@ -1,5 +1,8 @@
 ### SB 8.5.30
 
+> न यस्य कश्चातितितर्ति मायां यया जनो मुह्यति वेद नार्थम
+> तं निर्जितात्मात्मगुणं परेशं नमाम भूतेषु समं चरन्तम ॥३०॥
+
 > na yasya kaścātititarti māyāṁ
 > yayā jano muhyati veda nārtham
 > taṁ nirjitātmātma-guṇaṁ pareśaṁ

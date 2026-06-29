@@ -1,5 +1,8 @@
 ### SB 1.7.32
 
+> प्रजोपद्रवमालक्ष्य लोकव्यतिकरं च तम् ।
+> मतं च वासुदेवस्य सञ्जहारार्जुनो द्वयम् ॥३२॥
+
 > prajopadravam ālakṣya
 > loka-vyatikaraṁ ca tam
 > mataṁ ca vāsudevasya

@@ -1,5 +1,8 @@
 ### CC Antya 8.54
 
+> ইহা বই অধিক আর কিছু না আনিবা ।
+> অধিক আনিলে আমা এথা না দেখিবা ।।” ॥ ৫৪ ॥
+
 > ihā ba-i adhika āra kichu nā ānibā
 > adhika ānile āmā ethā nā dekhibā"
 

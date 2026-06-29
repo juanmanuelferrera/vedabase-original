@@ -1,5 +1,8 @@
 ### CC Madhya 11.218
 
+> কীর্তন-আরম্ভে প্রেম উথলি’ চলিল ।
+> নীলাচলবাসী লোক ধাঞা আইল ॥২১৮॥
+
 > kīrtana-ārambhe prema uthali' calila
 > nīlācala-vāsī loka dhāñā āila
 

@@ -1,5 +1,8 @@
 ### SB 3.16.28
 
+> भगवन्तं परिक्रम्य प्रणिपत्यानुमान्य च ।
+> प्रतिजग्मुः प्रमुदिताः शंसन्तो वैष्णवीं श्रियम् ॥२८॥
+
 bhagavantaṁ parikramya
 praṇipatyānumānya ca
 pratijagmuḥ pramuditāḥ

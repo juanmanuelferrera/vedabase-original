@@ -1,5 +1,8 @@
 ### CC Madhya 19.193
 
+> গোকুলে ‘কেবলা’ রতি ঐশ্বর্যজ্ঞানহীন ।
+> পুরীদ্বয়ে, বৈকুণ্ঠাদ্যে — ঐশ্বর্য-প্রবীণ ॥১৯৩॥
+
 > gokule 'kevalā' rati—aiśvarya-jñāna-hīna
 > purī-dvaye, vaikuṇṭhādye—aiśvarya-pravīṇa
 

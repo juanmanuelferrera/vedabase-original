@@ -1,5 +1,8 @@
 ### CC Madhya 8.253
 
+> ‘ধ্যেয়-মধ্যে জীবের কর্তব্য কোন্ ধ্যান?’
+> ‘রাধাকৃষ্ণপদাম্বুজ-ধ্যান — প্রধান ।।’ ॥২৫৩॥
+
 > 'dhyeya-madhye jīvera kartavya kon dhyāna?'
 > 'rādhā-kṛṣṇa-padāmbuja-dhyāna—pradhāna'
 

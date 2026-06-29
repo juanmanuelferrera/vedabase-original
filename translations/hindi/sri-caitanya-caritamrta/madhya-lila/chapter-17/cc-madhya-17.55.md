@@ -1,5 +1,8 @@
 ### CC Madhya 17.55
 
+> বন দেখি’ ভ্রম হয় — এই ‘বৃন্দাবন’ ।
+> শৈল দেখি’ মনে হয় — এই ‘গোবর্ধন’ ॥৫৫॥
+
 > vana dekhi' bhrama haya--ei 'vṛndāvana'
 > śaila dekhi' mane haya--ei 'govardhana'
 

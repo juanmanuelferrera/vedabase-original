@@ -1,5 +1,8 @@
 ### CC Antya 14.31
 
+> পূর্বে আসি’ যবে কৈলা জগন্নাথ দরশন ।
+> জগন্নাথে দেখে — সাক্ষাৎ ব্রজেন্দ্রনন্দন ॥৩১॥
+
 > pūrve āsi' yabe kailā jagannātha daraśana
 > jagannāthe dekhe--sākṣāt vrajendra-nandana
 

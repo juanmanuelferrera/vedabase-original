@@ -1,5 +1,10 @@
 ### SB 5.2.15
 
+> रूपं तपोधन तपश्चरतां तपोघ्नं
+> ह्येतत्तु केन तपसा भवतोपलब्धम
+> चर्तुं तपोऽर्हसि मया सह मित्र मह्यं
+> किं वा प्रसीदति स वै भवभावनो मे ॥१५॥
+
 > rūpaṁ tapodhana tapaś caratāṁ tapoghnaṁ
 > hy etat tu kena tapasā bhavatopalabdham
 > cartuṁ tapo 'rhasi mayā saha mitra mahyaṁ

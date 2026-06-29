@@ -1,5 +1,8 @@
 ### SB 7.15.77
 
+> न यस्य साक्षाद्भवपद्मजादिभी रूपं धिया वस्तुतयोपवर्णितम
+> मौनेन भक्त्योपशमेन पूजितः प्रसीदतामेष स सात्वतां पतिः ॥७७॥
+
 > na yasya sākṣād bhava-padmajādibhī
 > rūpaṁ dhiyā vastutayopavarṇitam
 > maunena bhaktyopaśamena pūjitaḥ

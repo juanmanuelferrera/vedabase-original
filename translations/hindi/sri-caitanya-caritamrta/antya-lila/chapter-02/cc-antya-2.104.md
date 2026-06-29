@@ -1,5 +1,8 @@
 ### CC Antya 2.104
 
+> মাহিতির ভগিনী সেই, নাম — মাধবী-দেবী ।
+> বৃদ্ধা তপস্বিনী আর পরমা বৈষ্ণবী ॥১০৪॥
+
 > māhitira bhaginī sei, nāma--mādhavī-devī
 > vṛddhā tapasvinī āra paramā vaiṣṇavī
 

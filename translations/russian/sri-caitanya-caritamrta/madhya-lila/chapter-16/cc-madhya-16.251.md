@@ -1,5 +1,8 @@
 ### CC Madhya 16.251
 
+> সেই সব লোক পথে করেন সেবন ।
+> সুখে নীলাচল আইলা শচীর নন্দন ॥২৫১॥
+
 > sei saba loka pathe karena sevana
 > sukhe nīlācala āilā śacīra nandana
 

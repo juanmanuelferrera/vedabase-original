@@ -1,5 +1,8 @@
 ### CC Madhya 13.37
 
+> দামোদর, নারায়ণ, দত্ত গোবিন্দ ।
+> রাঘব পণ্ডিত, আর শ্রীগোবিন্দানন্দ ॥৩৭॥
+
 dāmodara, nārāyaṇa, datta govinda
 
 rāghava paṇḍita, āra śrī-govindānanda

@@ -1,5 +1,8 @@
 ### CC Antya 13.81
 
+> তারে মিলিবারে প্রভু আবেশে ধাইলা ।
+> পথে ‘সিজের বাড়ি’ হয়, ফুটিয়া চলিলা ॥৮১॥
+
 tāre milibāre prabhu āveśe dhāilā
 
 pathe 'sijera bāḍi' haya, phuṭiyā calilā

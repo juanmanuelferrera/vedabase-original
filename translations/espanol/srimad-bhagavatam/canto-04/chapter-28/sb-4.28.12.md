@@ -1,5 +1,8 @@
 ### SB 4.28.12
 
+> तस्यां सन्दह्यमानायां सपौरः सपरिच्छदः ।
+> कौटुम्बिकः कुटुम्बिन्या उपातप्यत सान्वयः ॥१२॥
+
 > tasyāṁ sandahyamānāyāṁ
 > sapauraḥ saparicchadaḥ
 > kauṭumbikaḥ kuṭumbinyā

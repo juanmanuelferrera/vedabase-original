@@ -1,5 +1,8 @@
 ### CC Adi 4.191
 
+> আমার দর্শনে কৃষ্ণ পাইল এত সুখ ।
+> এই সুখে গোপীর প্রফুল্ল অঙ্গমুখ ॥১৯১॥
+
 āmāra darśane kṛṣṇa pāila eta sukha
 ei sukhe gopīra praphulla aṅga-mukha
 

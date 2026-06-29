@@ -1,5 +1,8 @@
 ### CC Madhya 9.59
 
+> প্রভু কহে, — সবে কহ ‘কৃষ্ণ’ ‘কৃষ্ণ’ ‘হরি’ ।
+> গুরুকর্ণে কহ কৃষ্ণনাম উচ্চ করি’ ॥৫৯॥
+
 > prabhu kahe,--sabe kaha 'kṛṣṇa' 'kṛṣṇa' 'hari'
 > guru-karṇe kaha kṛṣṇa-nāma ucca kari'
 

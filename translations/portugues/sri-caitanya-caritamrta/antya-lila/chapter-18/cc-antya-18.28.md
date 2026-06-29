@@ -1,5 +1,8 @@
 ### CC Antya 18.28
 
+> যমুনার ভ্রমে প্রভু ধাঞা চলিলা ।
+> অলক্ষিতে যাই’ সিন্ধু-জলে ঝাঁপ দিলা ॥২৮॥
+
 yamunāra bhrame prabhu dhāñā calilā
 
 alakṣite yāi' sindhu-jale jhāṅpa dilā

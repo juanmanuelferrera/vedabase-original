@@ -1,5 +1,8 @@
 ### CC Madhya 1.150
 
+> আসি’ বিদ্যাবাচস্পতির গৃহেতে রহিলা ।
+> প্রভুরে দেখিতে লোকসংঘট্ট হইলা ॥১৫০॥
+
 > āsi' vidyā-vācaspatira gṛhete rahilā
 > prabhure dekhite loka-saṅghaṭṭa ha-ilā
 

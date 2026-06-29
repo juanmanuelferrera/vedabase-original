@@ -1,5 +1,8 @@
 ### CC Adi 3.99
 
+> আপনি শ্রীকৃষ্ণ যদি করেন অবতার ।
+> আপনে আচরি’ ভক্তি করেন প্রচার ॥৯৯॥
+
 āpani śrī-kṛṣṇa yadi karena avatāra
 āpane ācari' bhakti karena pracāra
 

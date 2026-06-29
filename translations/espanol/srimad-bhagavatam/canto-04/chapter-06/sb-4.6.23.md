@@ -1,5 +1,8 @@
 ### SB 4.6.23
 
+> ददृशुस्तत्र ते रम्यामलकां नाम वै पुरीम् ।
+> वनं सौगन्धिकं चापि यत्र तन्नाम पङ्कजम् ॥२३॥
+
 > dadṛśus tatra te ramyām
 > alakāṁ nāma vai purīm
 > vanaṁ saugandhikaṁ cāpi

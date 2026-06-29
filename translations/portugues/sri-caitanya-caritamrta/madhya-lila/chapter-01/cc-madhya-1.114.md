@@ -1,5 +1,8 @@
 ### CC Madhya 1.114
 
+> তত্ত্ববাদী সহ কৈল তত্ত্বের বিচার ।
+> আপনাকে হীনবুদ্ধি হৈল তাঁ-সবার ॥১১৪॥
+
 tattva-vādī saha kaila tattvera vicāra
 
 āpanāke hīna-buddhi haila tāṅ-sabāra

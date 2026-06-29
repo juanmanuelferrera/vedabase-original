@@ -1,5 +1,8 @@
 ### CC Madhya 20.377
 
+> এইত কহিলুঁ শক্ত্যাবেশ-অবতার ।
+> বাল্য-পৌগণ্ড-ধর্মের শুনহ বিচার ॥৩৭৭॥
+
 eita kahiluṅ śakty-āveśa-avatāra
 
 bālya-paugaṇḍa-dharmera śunaha vicāra

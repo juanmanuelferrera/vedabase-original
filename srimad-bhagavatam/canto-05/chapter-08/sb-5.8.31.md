@@ -1,5 +1,7 @@
 ### SB 5.8.31
 
+> तस्मिन्नपि कालं प्रतीक्षमाणः सङ्गाच्च भृशमुद्विग्न आत्मसहचरः शुष्कपर्णतृणवीरुधा वर्तमानो मृगत्वनिमित्तावसानमेव गणयन्मृगशरीरं तीर्थोदकक्लिन्नमुत्ससर्ज ॥३१॥
+
 > tasminn api kālaṁ pratīkṣamāṇaḥ saṅgāc ca bhṛśam udvigna ātma-sahacaraḥ śuṣka-parṇa-tṛṇa-vīrudhā vartamāno mṛgatva-nimittāvasānam eva gaṇayan mṛga-śarīraṁ tīrthodaka-klinnam ut-sasarja.
 
 *tasmin api*—in that *āśrama* (Pulaha-āśrama); *kālam*—the end of the duration of life in the deer body; *pratīkṣamāṇaḥ*—always waiting for; *saṅgāt*—from association; *ca*—and; *bhṛśam*—constantly; *udvignaḥ*—full of anxiety; *ātma-sahacaraḥ*—having the Supersoul as the only constant companion (no one should think of being alone); *śuṣka-parṇa-tṛṇa-vīrudhā*—by eating only the dry leaves and herbs; *vartamānaḥ*—existing; *mṛgatva-nimitta*—of the cause of a deer's body; *avasānam*—the end; *eva*—only; *gaṇayan*—considering; *mṛga-śarīram*—the body of a deer; *tīrtha-udaka-klinnam*—bathing in the water of that holy place; *utsasarja*—gave up.

@@ -1,5 +1,8 @@
 ### CC Madhya 17.79
 
+> অধম-কাকেরে কৈলা গরুড়-সমান ।
+> ‘স্বতন্ত্র ঈশ্বর’ তুমি — স্বয়ং ভগবান্ ” ॥ ৭৯ ॥
+
 > adhama-kākere kailā garuḍa-samāna
 > 'svatantra īśvara' tumi--svayaṁ bhagavān"
 

@@ -1,5 +1,8 @@
 ### CC Antya 13.16
 
+> স্বরূপ-গোসাঞি আসি’ পণ্ডিতে কহিলা ।
+> শুনি’ জগদানন্দ মনে মহাদুঃখ পাইলা ॥১৬॥
+
 svarūpa-gosāñi āsi' paṇḍite kahilā
 
 śuni' jagadānanda mane mahā-duḥkha pāilā

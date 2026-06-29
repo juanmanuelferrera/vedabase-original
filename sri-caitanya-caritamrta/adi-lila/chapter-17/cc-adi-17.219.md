@@ -1,5 +1,8 @@
 ### CC Adi 17.219
 
+> এত শুনি’ কাজীর দুই চক্ষে পড়ে পানি ।
+> প্রভুর চরণ ছুঁই’ বলে প্রিয়বাণী ॥২১৯॥
+
 > eta śuni' kājīra dui cakṣe paḍe pāni
 > prabhura caraṇa chuṅi' bale priya-vāṇī
 

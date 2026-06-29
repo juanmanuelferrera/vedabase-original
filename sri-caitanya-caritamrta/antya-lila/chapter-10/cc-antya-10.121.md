@@ -1,5 +1,8 @@
 ### CC Antya 10.121
 
+> বাসুদেব-দত্তের এই মুরারি-গুপ্তের আর ।
+> বুদ্ধিমন্ত-খাঁনের এই বিবিধ প্রকার ॥১২১॥
+
 > vāsudeva-dattera ei murāri-guptera āra
 > buddhimanta-khāṅnera ei vividha prakāra
 

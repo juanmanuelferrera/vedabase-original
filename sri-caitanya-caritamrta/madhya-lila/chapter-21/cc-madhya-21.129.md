@@ -1,5 +1,10 @@
 ### CC Madhya 21.129
 
+> নাচে মকর-কুণ্ডল, নেত্র — লীলা-কমল,
+> বিলাসী রাজা সতত নাচায় ।
+> ভ্রূ — ধনু, নেত্র — বাণ, ধনুর্গুণ — দুই কাণ,
+> নারীমন-লক্ষ্য বিন্ধে তায় ॥১২৯॥
+
 > nāce makara-kuṇḍala, netra—līlā-kamala,
 > vilāsī rājā satata nācāya
 > bhrū—dhanu, netra—bāṇa, dhanur-guṇa—dui kāṇa,

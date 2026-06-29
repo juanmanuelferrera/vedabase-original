@@ -1,5 +1,8 @@
 ### CC Adi 9.45
 
+> মালী হঞা বৃক্ষ হইলাঙ এই ত’ ইচ্ছাতে ।
+> সর্বপ্রাণীর উপকার হয় বৃক্ষ হৈতে ॥৪৫॥
+
 mālī hañā vṛkṣa ha-ilāṅ ei ta' icchāte
 sarva-prāṇīra upakāra haya vṛkṣa haite
 

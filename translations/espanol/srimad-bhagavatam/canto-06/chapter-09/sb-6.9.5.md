@@ -1,5 +1,8 @@
 ### SB 6.9.5
 
+> सोमपीथं तु यत्तस्य शिर आसीत्कपिञ्जलः
+> कलविङ्कः सुरापीथमन्नादं यत्स तित्तिरिः ॥५॥
+
 > soma-pīthaṁ tu yat tasya
 > śira āsīt kapiñjalaḥ
 > kalaviṅkaḥ surā-pītham

@@ -1,5 +1,8 @@
 ### CC Antya 20.18
 
+> খাইতে শুইতে যথা তথা নাম লয় ।
+> কাল-দেশ-নিয়ম নাহি, সর্ব সিদ্ধি হয় ॥১৮॥
+
 khāite śuite yathā tathā nāma laya
 
 kāla-deśa-niyama nāhi, sarva siddhi haya

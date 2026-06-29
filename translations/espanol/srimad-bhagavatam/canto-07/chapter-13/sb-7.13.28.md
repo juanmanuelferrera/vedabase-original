@@ -1,5 +1,8 @@
 ### SB 7.13.28
 
+> जलं तदुद्भवैश्छन्नं हित्वाज्ञओ जलकाम्यया
+> मृगतृष्णामुपाधावेत्तथान्यत्रार्थदृक्स्वतः ॥२८॥
+
 > ity etad ātmanaḥ svārthaṁ
 > santaṁ vismṛtya vai pumān
 > vicitrām asati dvaite

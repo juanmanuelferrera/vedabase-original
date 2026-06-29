@@ -1,5 +1,8 @@
 ### CC Madhya 8.230
 
+> গোপী-আনুগত্য বিনা ঐশ্বর্যজ্ঞানে ।
+> ভজিলেহ নাহি পায় ব্রজেন্দ্রনন্দনে ॥২৩০॥
+
 > gopī-ānugatya vinā aiśvarya-jñāne
 > bhajileha nāhi pāya vrajendra-nandane
 

@@ -1,5 +1,8 @@
 ### CC Adi 4.245
 
+> যদ্যপি আমার গন্ধে জগৎ সুগন্ধ ।
+> মোর চিত্ত-প্রাণ হরে রাধা-অঙ্গ-গন্ধ ॥২৪৫॥
+
 > yadyapi āmāra gandhe jagat sugandha
 > mora citta-prāṇa hare rādhā-aṅga-gandha
 

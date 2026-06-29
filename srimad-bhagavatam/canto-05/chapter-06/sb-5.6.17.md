@@ -1,5 +1,7 @@
 ### SB 5.6.17
 
+> यस्यामेव कवय आत्मानमविरतं विविधवृजिनसंसारपरितापोपतप्यमानमनुसवनंस्नापयन्तस्तयैव परया निर्वृत्या ह्यपवर्गमात्यन्तिकं परमपुरुषार्थमपि स्वयमासादितं नोएवाद्रियन्ते भगवदीयत्वेनैव परिसमाप्तसर्वार्थाः ॥१७॥
+
 > yasyām eva kavaya ātmānam avirataṁ vividha-vṛjina-saṁsāra-paritāpopatapyamānam anusavanaṁ snāpayantas tayaiva parayā nirvṛtyā hy apavargam ātyantikaṁ parama-puruṣārtham api svayam āsāditaṁ no evādriyante bhagavadīyatvenaiva parisamāpta-sarvārthāḥ.
 
 *yasyām eva*—in which (Kṛṣṇa consciousness or the nectar of devotional service); *kavayaḥ*—the advancement of learned scholars or philosophers in spiritual life; *ātmānam*—the self; *aviratam*—constantly; *vividha*—various; *vṛjina*—full of sins; *saṁsāra*—in material existence; *paritāpa*—from miserable conditions; *upatapyamānam*—suffering; *anusavanam*—without stopping; *snāpayantaḥ*—bathing; *tayā*—by that; *eva*—certainly; *parayā*—great; *nirvṛtyā*—with happiness; *hi*—certainly; *apavargam*—liberation; *ātyantikam*—uninterrupted; *parama-puruṣa-artham*—the best of all human achievements; *api*—although; *svayam*—itself; *āsāditam*—obtained; *no*—not; *eva*—certainly; *ādriyante*—endeavor to achieve; *bhagavadīyatvena eva*—because of a relationship with the Supreme Personality of Godhead; *parisamāpta-sarva-arthāḥ*—those who have ended all kinds of material desires.

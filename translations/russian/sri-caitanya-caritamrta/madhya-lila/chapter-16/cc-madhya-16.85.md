@@ -1,5 +1,8 @@
 ### CC Madhya 16.85
 
+> আর দুই বৎসর চাহে বৃন্দাবন যাইতে ।
+> রামানন্দ-হঠে প্রভু না পারে চলিতে ॥৮৫॥
+
 > āra dui vatsara cāhe vṛndāvana yāite
 > rāmānanda-haṭhe prabhu nā pāre calite
 

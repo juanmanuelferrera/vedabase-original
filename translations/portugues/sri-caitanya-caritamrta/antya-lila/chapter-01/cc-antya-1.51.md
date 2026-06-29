@@ -1,5 +1,8 @@
 ### CC Antya 1.51
 
+> আমি গঙ্গাপথে আইলাঙ, তিঁহো রাজপথে  ।
+> অতএব আমার দেখা নহিল তাঁর সাথে ॥৫১॥
+
 āmi gaṅgā-pathe āilāṅa, tiṅho rāja-pathe
 
 ataeva āmāra dekhā nahila tāṅra sāthe

@@ -1,5 +1,8 @@
 ### CC Adi 10.148
 
+> রামভদ্রাচার্য, আর ওঢ্র সিংহেশ্বর ।
+> তপন আচার্য, আর রঘু, নীলাম্বর ॥১৪৮॥
+
 > rāmabhadrācārya, āra oḍhra siṁheśvara
 > tapana ācārya, āra raghu, nīlāmbara
 

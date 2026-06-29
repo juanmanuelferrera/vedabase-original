@@ -1,5 +1,8 @@
 ### CC Madhya 14.2
 
+> জয় জয় গৌরচন্দ্র শ্রীকৃষ্ণচৈতন্য ।
+> জয় জয় নিত্যানন্দ জয়াদ্বৈত ধন্য ॥২॥
+
 jaya jaya gauracandra śrī-kṛṣṇa-caitanya
 jaya jaya nityānanda jayādvaita dhanya
 

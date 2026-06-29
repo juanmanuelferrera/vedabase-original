@@ -1,5 +1,8 @@
 ### CC Madhya 9.220
 
+> চিয়ড়তলা তীর্থে দেখি’ শ্রীরাম-লক্ষ্মণ ।
+> তিলকাঞ্চী আসি’ কৈল শিব দরশন ॥২২০॥
+
 > ciyaḍatalā tīrthe dekhi' śrī-rāma-lakṣmaṇa
 > tila-kāñcī āsi' kaila śiva daraśana
 

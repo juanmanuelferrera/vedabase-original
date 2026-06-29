@@ -1,5 +1,8 @@
 ### SB 6.2.14
 
+> साङ्केत्यं पारिहास्यं वा स्तोभं हेलनमेव वा
+> वैकुण्ठनामग्रहणमशेषाघहरं विदुः ॥१४॥
+
 > sāṅketyaṁ pārihāsyaṁ vā
 > stobhaṁ helanam eva vā
 > vaikuṇṭha-nāma-grahaṇam

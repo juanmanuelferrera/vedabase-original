@@ -1,5 +1,8 @@
 ### CC Madhya 24.148
 
+> চ-শব্দে করি যদি ‘ইতরেতর’ অর্থ ।
+> আর এক অর্থ কহে পরম সমর্থ ॥১৪৮॥
+
 ca-śabde kari yadi'itaretara' artha
 
 āra eka artha kahe parama samartha

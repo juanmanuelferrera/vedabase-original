@@ -1,5 +1,8 @@
 ### CC Madhya 19.79
 
+> হুঙ্কার করি’ যমুনার জলে দিলা ঝাঁপ ।
+> প্রভু দেখি’ সবার মনে হৈল ভয়-কাঁপ ॥৭৯॥
+
 > huṅkāra kari' yamunāra jale dilā jhāṅpa
 > prabhu dekhi' sabāra mane haila bhaya-kāṅpa
 

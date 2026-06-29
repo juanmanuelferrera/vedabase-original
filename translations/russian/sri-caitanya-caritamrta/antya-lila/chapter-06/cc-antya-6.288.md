@@ -1,5 +1,8 @@
 ### CC Antya 6.288
 
+> শঙ্করানন্দ-সরস্বতী বৃন্দাবন হৈতে আইলা ।
+> তেঁহ সেই শিলা-গুঞ্জামালা লঞা গেলা ॥২৮৮॥
+
 > śaṅkarānanda-sarasvatī vṛndāvana haite āilā
 > teṅha sei śilā-guñjā-mālā lañā gelā
 

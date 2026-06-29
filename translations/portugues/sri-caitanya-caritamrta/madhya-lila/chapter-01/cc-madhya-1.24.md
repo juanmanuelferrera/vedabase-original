@@ -1,5 +1,8 @@
 ### CC Madhya 1.24
 
+> নিত্যানন্দ-গোসাঞিরে পাঠাইল গৌড়দেশে ।
+> তেঁহো গৌড়দেশ ভাসাইল প্রেমরসে ॥২৪॥
+
 nityānanda-gosāñire pāṭhāila gauḍa-deśe
 
 teṅho gauḍa-deśa bhāsāila prema-rase

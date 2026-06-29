@@ -1,5 +1,8 @@
 ### SB 4.4.25
 
+> कृत्वा समानावनिलौ जितासना सोदानमुत्थाप्य च नाभिचक्रतः ।
+> शनैर्हृदि स्थाप्य धियोरसि स्थितं कण्ठाद्भ्रुवोर्मध्यमनिन्दितानयत् ॥२५॥
+
 > kṛtvā samānāv anilau jitāsanā
 > sodānam utthāpya ca nābhi-cakrataḥ
 > śanair hṛdi sthāpya dhiyorasi sthitaṁ

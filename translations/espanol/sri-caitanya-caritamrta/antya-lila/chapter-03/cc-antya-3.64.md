@@ -1,5 +1,8 @@
 ### CC Antya 3.64
 
+> ম্রিয়মাণো হরের্নাম গৃণন্ পুত্রোপচারিতম্ ।
+> অজামিলোঽপ্যগাদ্ধাম কিমুত শ্রদ্ধয়া গৃণন্ ॥৬৪॥
+
 > mriyamāṇo harer nāma
 > gṛṇan putropacāritam
 > ajāmilo 'py agād dhāma

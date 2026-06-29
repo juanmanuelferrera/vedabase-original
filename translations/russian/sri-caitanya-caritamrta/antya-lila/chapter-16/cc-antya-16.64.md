@@ -1,5 +1,8 @@
 ### CC Antya 16.64
 
+> নীলাচলে মহাপ্রভু রহে এইমতে ।
+> কালিদাসে মহাকৃপা কৈলা অলক্ষিতে ॥৬৪॥
+
 > nīlācale mahāprabhu rahe ei-mate
 > kālidāse mahā-kṛpā kailā alakṣite
 

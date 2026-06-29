@@ -1,5 +1,8 @@
 ### CC Adi 15.23
 
+> কত দিন রহি’ মিশ্র গেলা পরলোক ।
+> মাতা-পুত্র দুঁহার বাড়িল হৃদি শোক ॥২৩॥
+
 > kata dina rahi' miśra gelā para-loka
 > mātā-putra duṅhāra bāḍila hṛdi śoka
 

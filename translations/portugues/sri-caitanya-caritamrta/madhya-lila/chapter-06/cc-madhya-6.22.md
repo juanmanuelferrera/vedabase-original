@@ -1,5 +1,8 @@
 ### CC Madhya 6.22
 
+> নিত্যানন্দ-গোসাঞিকে আচার্য কৈল নমস্কার ।
+> সবে মেলি’ পুছে প্রভুর বার্তা বার বার ॥২২॥
+
 nityānanda-gosāñike ācārya kaila namaskāra
 sabe meli' puche prabhura vārtā bāra bāra
 

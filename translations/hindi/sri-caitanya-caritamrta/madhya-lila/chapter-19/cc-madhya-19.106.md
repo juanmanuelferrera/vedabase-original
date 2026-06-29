@@ -1,5 +1,8 @@
 ### CC Madhya 19.106
 
+> শ্যামমেব পরং রূপং পুরী মধুপুরী বরা ।
+> বয়ঃ কৈশোরকং ধ্যেয়মাদ্য এব পরো রসঃ ॥১০৬॥
+
 > śyāmam eva paraṁ rūpaṁ
 > purī madhu-purī varā
 > vayaḥ kaiśorakaṁ dhyeyam

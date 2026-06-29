@@ -1,5 +1,8 @@
 ### CC Madhya 11.20
 
+> তোমার নাম শুনি’ রাজা আনন্দিত হৈল ৷
+> আসন হৈতে উঠি’ মোরে আলিঙ্গন কৈল ৷৷ ২০ ৷৷ ॥২০॥
+
 > tomāra nāma śuni' rājā ānandita haila
 > āsana haite uṭhi' more āliṅgana kaila
 

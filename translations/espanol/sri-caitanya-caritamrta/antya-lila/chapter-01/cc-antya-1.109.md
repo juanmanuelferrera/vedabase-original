@@ -1,5 +1,8 @@
 ### CC Antya 1.109
 
+> ভক্তসঙ্গে প্রভু আইলা, দেখি’ দুই জন ।
+> দণ্ডবৎ হঞা কৈলা চরণ বন্দন ॥১০৯॥
+
 > bhakta-saṅge prabhu āilā, dekhi' dui jana
 > daṇḍavat hañā kailā caraṇa vandana
 

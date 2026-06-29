@@ -1,5 +1,8 @@
 ### CC Madhya 9.22
 
+> পুনঃ সিদ্ধবট আইলা সেই বিপ্র-ঘরে ।
+> সেই বিপ্র কৃষ্ণনাম লয় নিরন্তরে ॥২২॥
+
 > punaḥ siddhavaṭa āilā sei vipra-ghare
 > sei vipra kṛṣṇa-nāma laya nirantare
 

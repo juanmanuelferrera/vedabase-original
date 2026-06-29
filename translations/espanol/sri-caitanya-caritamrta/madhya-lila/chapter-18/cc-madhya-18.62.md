@@ -1,5 +1,8 @@
 ### CC Madhya 18.62
 
+> ব্রজেন্দ্র-ব্রজেশ্বরীর কৈল চরণ বন্দন ।
+> প্রেমাবেশে কৃষ্ণের কৈল সর্বাঙ্গ-স্পর্শন ॥৬২॥
+
 > vrajendra-vrajeśvarīra kaila caraṇa vandana
 > premāveśe kṛṣṇera kaila sarvāṅga-sparśana
 

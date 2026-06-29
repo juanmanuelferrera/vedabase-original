@@ -1,5 +1,8 @@
 ### CC Madhya 3.204
 
+> শচীর আনন্দ বাড়ে দেখি’ পুত্রমুখ ।
+> ভোজন করাঞা পূর্ণ কৈল নিজসুখ ॥২০৪॥
+
 śacīra ānanda bāḍe dekhi' putra-mukha
 bhojana karāñā pūrṇa kaila nija-sukha
 

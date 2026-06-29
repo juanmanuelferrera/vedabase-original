@@ -1,5 +1,8 @@
 ### CC Madhya 24.227
 
+> নির্গ্রন্থ-শব্দে কহে তবে ‘ব্যাধ’, ‘নির্ধন’ ।
+> সাধুসঙ্গে সেহ করে শ্রীকৃষ্ণ-ভজন ॥২২৭॥
+
 > nirgrantha-śabde kahe tabe 'vyādha', 'nirdhana'
 > sādhu-saṅge seha kare śrī-kṛṣṇa-bhajana
 

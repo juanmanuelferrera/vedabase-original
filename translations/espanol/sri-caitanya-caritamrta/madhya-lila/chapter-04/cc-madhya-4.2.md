@@ -1,5 +1,8 @@
 ### CC Madhya 4.2
 
+> জয় জয় গৌরচন্দ্র জয় নিত্যানন্দ ।
+> জয়াদ্বৈতচন্দ্র জয় গৌড়ভক্তবৃন্দ ॥২॥
+
 > jaya jaya gauracandra jaya nityānanda
 > jayādvaitacandra jaya gaura-bhakta-vṛnda
 

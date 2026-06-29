@@ -1,5 +1,8 @@
 ### CC Madhya 4.33
 
+> দুগ্ধ পান করি’ ভাণ্ড ধুঞা রাখিল ।
+> বাট দেখে, সে বালক পুনঃ না আইল ॥৩৩॥
+
 > dugdha pāna kari' bhāṇḍa dhuñā rākhila
 > bāṭa dekhe, se bālaka punaḥ nā āila
 

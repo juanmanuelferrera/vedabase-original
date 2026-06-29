@@ -1,5 +1,8 @@
 ### CC Madhya 23.17
 
+> যাঁহার হৃদয়ে এই ভাবাঙ্কুর হয় ।
+> তাঁহাতে এতেক চিহ্ন সর্বশাস্ত্রে কয় ॥১৭॥
+
 yāṅhāra hṛdaye ei bhāvāṅkura haya
 tāṅhāte eteka cihna sarva-śāstre kaya
 

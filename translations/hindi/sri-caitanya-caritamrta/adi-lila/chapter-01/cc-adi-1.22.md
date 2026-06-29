@@ -1,5 +1,8 @@
 ### CC Adi 1.22
 
+> সে মঙ্গলাচরণ হয় ত্রিবিধ প্রকার ।
+> বস্তুনির্দেশ, আশীর্বাদ, নমস্কার ॥২২॥
+
 > se maṅgalācaraṇa haya tri-vidha prakāra
 > vastu-nirdeśa, āśīrvāda, namaskāra
 

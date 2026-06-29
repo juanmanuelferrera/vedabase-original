@@ -1,5 +1,8 @@
 ### CC Madhya 25.147
 
+> গায়ত্রীর অর্থে এই গ্রন্থ-আরম্ভন ।
+> “সত্যং পরং” — সম্বন্ধ, “ধীমহি” — সাধন-প্রয়োজন ॥১৪৭॥
+
 > gāyatrīra arthe ei grantha-ārambhana
 > "satyaṁ paraṁ"-sambandha, "dhīmahi"-sādhana-prayojana
 

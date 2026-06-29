@@ -1,5 +1,8 @@
 ### SB 4.21.41
 
+> अश्नात्यनन्तः खलु तत्त्वकोविदैः श्रद्धाहुतं यन्मुख इज्यनामभिः ।
+> न वै तथा चेतनया बहिष्कृते हुताशने पारमहंस्यपर्यगुः ॥४१॥
+
 > aśnāty anantaḥ khalu tattva-kovidaiḥ
 > śraddhā-hutaṁ yan-mukha ijya-nāmabhiḥ
 > na vai tathā cetanayā bahiṣ-kṛte

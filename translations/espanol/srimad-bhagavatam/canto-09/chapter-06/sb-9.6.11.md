@@ -1,5 +1,8 @@
 ### SB 9.6.11
 
+> पितर्युपरतेऽभ्येत्य विकुक्षिः पृथिवीमिमाम
+> शासदीजे हरिं यज्ञऐः शशाद इति विश्रुतः ॥११॥
+
 > pitary uparate 'bhyetya
 > vikukṣiḥ pṛthivīm imām
 > śāsad īje hariṁ yajñaiḥ

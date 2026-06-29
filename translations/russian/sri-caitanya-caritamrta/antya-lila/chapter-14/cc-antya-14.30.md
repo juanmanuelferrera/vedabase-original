@@ -1,5 +1,8 @@
 ### CC Antya 14.30
 
+> অহো ভাগ্যবতী এই, বন্দি ইহার পায় ।
+> ইহার প্রসাদে ঐছে আর্তি আমার বা হয়” ! ॥ ৩০ ॥
+
 > aho bhāgyavatī ei, vandi ihāra pāya
 > ihāra prasāde aiche ārti āmāra vā haya"
 

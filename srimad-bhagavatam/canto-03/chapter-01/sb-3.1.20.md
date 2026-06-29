@@ -1,5 +1,8 @@
 ### SB 3.1.20
 
+> इत्थं व्रजन्भारतमेव वर्षं कालेन यावद्गतवान्प्रभासम् ।
+> तावच्छशास क्षितिमेक चक्राम्लेकातपत्रामजितेन पार्थः ॥२०॥
+
 > itthaṁ vrajan bhāratam eva varṣaṁ
 > kālena yāvad gatavān prabhāsam
 > tāvac chaśāsa kṣitim eka cakrām

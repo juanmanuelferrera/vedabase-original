@@ -1,5 +1,7 @@
 ### SB 2.9.12
 
+> प्रवालवैदूर्यमृणालवर्चसः परिस्फुरत्कुण्डलमौलिमालिन ॥१२॥
+
 > pravāla-vaidūrya-mṛṇāla-varcasaḥ
 > parisphurat-kuṇḍala-mauli-mālinaḥ
 

@@ -1,5 +1,8 @@
 ### SB 3.17.28
 
+> त्वं लोकपालोऽधिपतिर्बृहच्छ्रवा वीर्यापहो दुर्मदवीरमानिनाम् ।
+> विजित्य लोकेऽखिलदैत्यदानवान्यद्राजसूयेन पुरायजत्प्रभो ॥२८॥
+
 > tvaṁ loka-pālo 'dhipatir bṛhac-chravā
 > vīryāpaho durmada-vīra-māninām
 > vijitya loke 'khila-daitya-dānavān

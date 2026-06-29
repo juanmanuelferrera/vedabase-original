@@ -1,5 +1,8 @@
 ### CC Antya 2.71
 
+> তিন জনার ভোগ তেঁহো একেলা খাইলা  ।
+> জগন্নাথ-নৃসিংহ উপবাসী হইলা ।।” ৭১ ॥৭১॥
+
 tina janāra bhoga teṅho ekelā khāilā
 
 jagannātha-nṛsiṁha upavāsī ha-ilā"

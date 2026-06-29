@@ -1,5 +1,8 @@
 ### CC Madhya 8.88
 
+> পরিপূর্ণ-কৃষ্ণপ্রাপ্তি এই ‘প্রেমা’ হৈতে ৷
+> এই প্রেমার বশ কৃষ্ণ — কহে ভাগবতে ৷৷ ৮৮ ৷৷ ॥৮৮॥
+
 > paripūrṇa-kṛṣṇa-prāpti ei 'premā' haite
 > ei premāra vaśa kṛṣṇa--kahe bhāgavate
 

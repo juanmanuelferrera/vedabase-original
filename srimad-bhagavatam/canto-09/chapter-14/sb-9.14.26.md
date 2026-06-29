@@ -1,5 +1,8 @@
 ### SB 9.14.26
 
+> अपश्यन्नुर्वशीमिन्द्रो गन्धर्वान्समचोदयत
+> उर्वशीरहितं मह्यमास्थानं नातिशोभते ॥२६॥
+
 > apaśyann urvaśīm indro
 > gandharvān samacodayat
 > urvaśī-rahitaṁ mahyam

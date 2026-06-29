@@ -1,5 +1,8 @@
 ### CC Madhya 6.118
 
+> আর দিন মহাপ্ৰভু ভট্টাচার্য-সনে ।
+> আনন্দে করিলা জগন্নাথ দরশনে ॥১১৮॥
+
 āra dina mahāprabhu bhaṭṭācārya-sane
 ānande karilā jagannātha daraśane
 

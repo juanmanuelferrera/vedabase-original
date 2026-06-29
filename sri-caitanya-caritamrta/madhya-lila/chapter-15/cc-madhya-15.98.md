@@ -1,5 +1,8 @@
 ### CC Madhya 15.98
 
+> কুলীনগ্ৰামীরে কহে সম্মান করিয়া ।
+> প্রত্যব্দ আসিবে যাত্রায় পট্টডোরী লঞা ॥৯৮॥
+
 > kulīna-grāmīre kahe sammāna kariyā
 > pratyabda āsibe yātrāya paṭṭa-ḍorī lañā
 

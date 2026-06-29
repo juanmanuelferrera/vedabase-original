@@ -1,5 +1,8 @@
 ### CC Adi 17.173
 
+> তোমার নগরে হয় সদা সংকীর্তন ।
+> বাদ্যগীত-কোলাহল, সঙ্গীত, নর্তন ॥১৭৩॥
+
 > tomāra nagare haya sadā saṅkīrtana
 > vādya-gīta-kolāhala, saṅgīta, nartana
 

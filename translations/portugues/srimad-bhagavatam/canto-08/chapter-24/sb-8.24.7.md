@@ -1,5 +1,8 @@
 ### SB 8.24.7
 
+> आसीदतीतकल्पान्ते ब्राह्मो नैमित्तिको लयः
+> समुद्रोपप्लुतास्तत्र लोका भूरादयो नृप ॥७॥
+
 āsīd atīta-kalpānte
 brāhmo naimittiko layaḥ
 samudropaplutās tatra

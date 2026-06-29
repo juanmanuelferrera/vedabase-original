@@ -1,5 +1,8 @@
 ### CC Madhya 5.104
 
+> ‘এবে মুঞি গ্রামে আইনু, যাইমু ভবন ।
+> লোকেরে কহিব গিয়া সাক্ষীর আগমন ॥১০৪॥
+
 'ebe muñi grāme āinu, yāimu bhavana
 lokere kahiba giyā sākṣīra āgamana
 

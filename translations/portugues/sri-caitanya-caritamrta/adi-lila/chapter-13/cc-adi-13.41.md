@@ -1,5 +1,8 @@
 ### CC Adi 13.41
 
+> শ্রীরাধার প্রলাপ যৈছে উদ্ধব-দর্শনে ।
+> সেইমত উন্মাদ-প্রলাপ করে রাত্রি-দিনে ॥৪১॥
+
 śrī-rādhāra pralāpa yaiche uddhava-darśane
 seimata unmāda-pralāpa kare rātri-dine
 

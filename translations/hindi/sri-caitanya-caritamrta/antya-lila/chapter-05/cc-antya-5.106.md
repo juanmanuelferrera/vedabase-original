@@ -1,5 +1,8 @@
 ### CC Antya 5.106
 
+> কৃষ্ণলীলা, গৌরলীলা সে করে বর্ণন ।
+> গৌর-পাদপদ্ম যাঁর হয় প্রাণ-ধন ॥১০৬॥
+
 > kṛṣṇa-līlā, gaura-līlā se kare varṇana
 > gaura-pāda-padma yāṅra haya prāṇa-dhana
 

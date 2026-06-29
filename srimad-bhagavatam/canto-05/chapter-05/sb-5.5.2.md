@@ -1,5 +1,8 @@
 ### SB 5.5.2
 
+> महत्सेवां द्वारमाहुर्विमुक्तेस्तमोद्वारं योषितां सङ्गिसङ्गम
+> महान्तस्ते समचित्ताः प्रशान्ता विमन्यवः सुहृदः साधवो ये ॥२॥
+
 > mahat-sevāṁ dvāram āhur vimuktes
 > tamo-dvāraṁ yoṣitāṁ saṅgi-saṅgam
 > mahāntas te sama-cittāḥ praśāntā

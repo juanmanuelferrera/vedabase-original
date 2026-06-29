@@ -1,5 +1,8 @@
 ### CC Antya 14.63
 
+> দেখি’ স্বরূপ-গোসাঞি-আদি আনন্দিত হৈলা ।
+> প্রভুর দশা দেখি’ পুনঃ চিন্তিতে লাগিলা ॥৬৩॥
+
 dekhi' svarūpa-gosāñi-ādi ānandita hailā
 
 prabhura daśā dekhi' punaḥ cintite lāgilā

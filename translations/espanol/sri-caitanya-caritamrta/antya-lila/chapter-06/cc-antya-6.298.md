@@ -1,5 +1,8 @@
 ### CC Antya 6.298
 
+> শ্রীহস্তে শিলা দিয়া এই আজ্ঞা দিলা ।
+> আনন্দে রঘুনাথ সেবা করিতে লাগিলা ॥২৯৮॥
+
 > śrī-haste śilā diyā ei ājñā dilā
 > ānande raghunātha sevā karite lāgilā
 

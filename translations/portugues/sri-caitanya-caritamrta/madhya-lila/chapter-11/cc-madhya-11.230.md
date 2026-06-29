@@ -1,5 +1,8 @@
 ### CC Madhya 11.230
 
+> চারিদিকে নৃত্যগীত করে যত জন ৷
+> সবে দেখে, — প্ৰভু করে আমারে দরশন ৷৷ ২৩০ ৷৷ ॥২৩০॥
+
 cāri-dike nṛtya-gīta kare yata jana
 sabe dekhe,–prabhu kare āmāre daraśana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.204
 
+> পাকশালার দক্ষিণে — দুই ভোগালয়  ।
+> এক-ঘরে শালগ্রামের ভোগ-সেবা হয় ॥২০৪॥
+
 > pāka-śālāra dakṣiṇe--dui bhogālaya
 > eka-ghare śālagrāmera bhoga-sevā haya
 

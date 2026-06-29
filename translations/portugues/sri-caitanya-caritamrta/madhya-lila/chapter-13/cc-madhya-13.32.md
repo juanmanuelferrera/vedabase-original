@@ -1,5 +1,8 @@
 ### CC Madhya 13.32
 
+> কীর্তনীয়াগণে দিল মাল্য-চন্দন ৷
+> স্বরূপ, শ্রীবাস, — যাহাঁ মুখ্য দুইজন ॥৩২॥
+
 kīrtanīyā-gaṇe dila mālya-candana
 
 svarūpa, śrīvāsa,-yāhāṅ mukhya dui-jana

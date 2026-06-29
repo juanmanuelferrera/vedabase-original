@@ -1,5 +1,8 @@
 ### CC Antya 4.43
 
+> তবে আমি-দুঁহে তারে আলিঙ্গন কৈলুঁ ।
+> ‘সাধু, দৃঢ়ভক্তি তোমার’ — কহি’ প্রশংসিলুঁ ॥৪৩॥
+
 > tabe āmi-duṅhe tāre āliṅgana kailuṅ
 > 'sādhu, dṛḍha-bhakti tomāra '—kahi' praśaṁsiluṅ
 

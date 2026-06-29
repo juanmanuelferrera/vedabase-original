@@ -1,5 +1,8 @@
 ### CC Madhya 4.130
 
+> স্বপ্ন দেখি’ পূজারী উঠি’ করিলা বিচার ।
+> স্নান করি’ কপাট খুলি, মুক্ত কৈল দ্বার ॥১৩০॥
+
 svapna dekhi' pūjārī uṭhi' karilā vicāra
 snāna kari' kapāṭa khuli, mukta kaila dvāra
 

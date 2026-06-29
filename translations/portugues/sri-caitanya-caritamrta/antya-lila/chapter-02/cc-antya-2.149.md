@@ -1,5 +1,8 @@
 ### CC Antya 2.149
 
+> গন্ধর্ব-দেহে গান করেন অন্তর্ধানে ।
+> রাত্র্যে প্রভুরে শুনায় গীত, অন্যে নাহি জানে ॥১৪৯॥
+
 gandharva-dehe gāna karena antardhāne
 
 rātrye prabhure śunāya gīta, anye nāhi jāne

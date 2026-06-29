@@ -1,5 +1,8 @@
 ### CC Antya 6.242
 
+> হেন-কালে আইলা সব গৌড়ের ভক্তগণ ।
+> পূর্ববত্ প্রভু সবায় করিলা মিলন ॥২৪২॥
+
 > hena-kāle āilā saba gauḍera bhakta-gaṇa
 > pūrvavat prabhu sabāya karilā milana
 

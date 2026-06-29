@@ -1,5 +1,8 @@
 ### CC Antya 15.79
 
+> প্রভু কহে, — “কৃষ্ণ মুঞি এখনই পাইনু ।
+> আপনার দুর্দৈবে পুনঃ হারাইনু ॥৭৯॥
+
 prabhu kahe,--"kṛṣṇa muñi ekhana-i pāinu
 
 āpanāra durdaive punaḥ hārāinu

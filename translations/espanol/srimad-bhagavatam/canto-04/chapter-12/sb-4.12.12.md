@@ -1,5 +1,8 @@
 ### SB 4.12.12
 
+> तमेवं शीलसम्पन्नं ब्रह्मण्यं दीनवत्सलम् ।
+> गोप्तारं धर्मसेतूनां मेनिरे पितरं प्रजाः ॥१२॥
+
 > tam evaṁ śīla-sampannaṁ
 > brahmaṇyaṁ dīna-vatsalam
 > goptāraṁ dharma-setūnāṁ

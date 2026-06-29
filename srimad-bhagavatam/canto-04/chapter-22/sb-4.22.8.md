@@ -1,5 +1,8 @@
 ### SB 4.22.8
 
+> किं तस्य दुर्लभतरमिह लोके परत्र च ।
+> यस्य विप्राः प्रसीदन्ति शिवो विष्णुश्च सानुगः ॥८॥
+
 > kiṁ tasya durlabhataram
 > iha loke paratra ca
 > yasya viprāḥ prasīdanti

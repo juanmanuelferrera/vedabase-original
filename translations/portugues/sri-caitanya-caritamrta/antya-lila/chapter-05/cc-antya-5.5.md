@@ -1,5 +1,7 @@
 ### CC Antya 5.5
 
+> “শুন, প্রভু, মুঞি দীন গৃহস্থ অধম ! কোন ভাগ্যে পাঞাছোঁ তোমার দুর্লভ চরণ ॥৫॥
+
 "śuna, prabhu, muñi dīna gṛhastha adhama!
 kona bhāgye pāñāchoṅ tomāra durlabha caraṇa
 

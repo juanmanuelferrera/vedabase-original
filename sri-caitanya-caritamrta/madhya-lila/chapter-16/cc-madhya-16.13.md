@@ -1,5 +1,8 @@
 ### CC Madhya 16.13
 
+> সবে মেলি’ গেলা অদ্বৈত আচার্যের পাশে ।
+> প্রভু দেখিতে আচার্য চলিলা উল্লাসে ॥১৩॥
+
 > sabe meli' gelā advaita ācāryera pāśe
 > prabhu dekhite ācārya calilā ullāse
 

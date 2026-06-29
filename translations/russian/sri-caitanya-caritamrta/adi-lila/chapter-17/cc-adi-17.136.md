@@ -1,5 +1,8 @@
 ### CC Adi 17.136
 
+> আগে সম্প্রদায়ে নৃত্য করে হরিদাস ।
+> মধ্যে নাচে আচার্য-গোসাঞি পরম উল্লাস ॥১৩৬॥
+
 > āge sampradāye nṛtya kare haridāsa
 > madhye nāce ācārya-gosāñi parama ullāsa
 

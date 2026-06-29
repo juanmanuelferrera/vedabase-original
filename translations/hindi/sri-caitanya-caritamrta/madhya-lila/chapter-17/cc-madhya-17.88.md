@@ -1,5 +1,8 @@
 ### CC Madhya 17.88
 
+> প্রভুর চরণোদক সবংশে কৈল পান ।
+> ভট্টাচার্যের পূজা কৈল করিয়া সম্মান ॥৮৮॥
+
 > prabhura caraṇodaka savaṁśe kaila pāna
 > bhaṭṭācāryera pūjā kaila kariyā sammāna
 

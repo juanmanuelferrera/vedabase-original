@@ -1,5 +1,8 @@
 ### CC Madhya 4.210
 
+> গোপাল-গোপীনাথ-পুরীগোসাঞির গুণ ।
+> ভক্ত-সঙ্গে শ্রীমুখে প্রভু কৈলা আস্বাদন ॥২১০॥
+
 gopāla-gopīnātha-purī-gosāñira guṇa
 bhakta-saṅge śrī-mukhe prabhu kailā āsvādana
 

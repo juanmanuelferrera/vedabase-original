@@ -1,5 +1,8 @@
 ### CC Madhya 18.60
 
+> দুইদিকে মাতা-পিতা পুষ্ট কলেবর ।
+> মধ্যে এক ‘শিশু’ হয় ত্রিভঙ্গ-সুন্দর ॥৬০॥
+
 > dui-dike mātā-pitā puṣṭa kalevara
 > madhye eka 'śiśu' haya tribhaṅga-sundara
 

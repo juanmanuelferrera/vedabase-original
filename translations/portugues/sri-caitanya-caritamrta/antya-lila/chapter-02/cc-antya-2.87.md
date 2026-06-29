@@ -1,5 +1,8 @@
 ### CC Antya 2.87
 
+> ঘরে ভাত করি’ করেন বিবিধ ব্যঞ্জন ।
+> একলে গোসাঞি লঞা করান ভোজন ॥৮৭॥
+
 ghare bhāta kari' karena vividha vyañjana
 
 ekale gosāñi lañā karāna bhojana

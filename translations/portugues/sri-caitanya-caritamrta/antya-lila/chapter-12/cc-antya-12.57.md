@@ -1,5 +1,8 @@
 ### CC Antya 12.57
 
+> ‘পরমেশ্বরা মুঞি’ বলি’ দণ্ডবৎ কৈল  ।
+> তারে দেখি’ প্রভু প্রীতে তাহারে পুছিল ॥৫৭॥
+
 'parameśvarā muñi' bali' daṇḍavat kaila
 
 tāre dekhi' prabhu prīte tāhāre puchila

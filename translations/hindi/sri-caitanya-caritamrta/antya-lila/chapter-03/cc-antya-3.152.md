@@ -1,5 +1,8 @@
 ### CC Antya 3.152
 
+> সেবক বলে — “গোসাঞি, মোরে পাঠাইল খাঁন ।
+> গৃহস্থের ঘরে তোমায় দিব বাসাস্থান ॥১৫২॥
+
 > sevaka bale--"gosāñi, more pāṭhāila khāṅna
 > gṛhasthera ghare tomāya diba vāsā-sthāna
 

@@ -1,5 +1,8 @@
 ### CC Antya 17.21
 
+> চেতন হইলে হস্ত-পাদ বাহিরে আইল ।
+> পূর্ববৎ যথাযোগ্য শরীর হইল ॥২১॥
+
 cetana ha-ile hasta-pāda bāhire āila
 
 pūrvavat yathā-yogya śarīra ha-ila

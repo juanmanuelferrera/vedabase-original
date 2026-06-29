@@ -1,5 +1,8 @@
 ### SB 9.14.28
 
+> निशम्याक्रन्दितं देवी पुत्रयोर्नीयमानयोः
+> हतास्म्यहं कुनाथेन नपुंसा वीरमानिना ॥२८॥
+
 > niśamyākranditaṁ devī
 > putrayor nīyamānayoḥ
 > hatāsmy ahaṁ kunāthena

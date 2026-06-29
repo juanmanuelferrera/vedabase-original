@@ -1,5 +1,8 @@
 ### CC Madhya 18.78
 
+> তেঁতুল-তলে বসি’ করে নাম সংকীর্তন ।
+> মধ্যাহ্ন করি’ আসি’ করে ‘অক্রূরে’ ভোজন ॥৭৮॥
+
 teṅtula-tale vasi' kare nāma-saṅkīrtana
 
 madhyāhna kari' āsi' kare 'akrūre' bhojana

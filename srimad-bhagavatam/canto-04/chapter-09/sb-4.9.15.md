@@ -1,5 +1,10 @@
 ### SB 4.9.15
 
+> त्वं नित्यमुक्तपरिशुद्धविबुद्ध आत्मा
+> कूटस्थ आदिपुरुषो भगवांस्त्र्यधीशः ।
+> यद्बुद्ध्यवस्थितिमखण्डितया स्वदृष्ट्या
+> द्रष्टा स्थितावधिमखो व्यतिरिक्त आस्से ॥१५॥
+
 > tvaṁ nitya-mukta-pariśuddha-vibuddha ātmā
 > kūṭa-stha ādi-puruṣo bhagavāṁs try-adhīśaḥ
 > yad-buddhy-avasthitim akhaṇḍitayā sva-dṛṣṭyā

@@ -1,5 +1,8 @@
 ### CC Adi 8.27
 
+> প্রেমের উদয়ে হয় প্রেমের বিকার ।
+> স্বেদ-কম্প-পুলকাদি গদ্গদাশ্রুধার ॥২৭॥
+
 premera udaye haya premera vikāra
 
 sveda-kampa-pulakādi gadgadāśrudhāra

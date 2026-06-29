@@ -1,5 +1,8 @@
 ### CC Madhya 22.7
 
+> অদ্বয়জ্ঞান-তত্ত্ব কৃষ্ণ — স্বয়ং ভগবান্ ।
+> ‘স্বরূপ-শক্তি’রূপে তাঁর হয় অবস্থান ॥৭॥
+
 > advaya-jñāna-tattva kṛṣṇa—svayaṁ bhagavān
 > 'svarūpa-śakti' rūpe tāṅra haya avasthāna
 

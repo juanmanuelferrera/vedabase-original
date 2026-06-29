@@ -1,5 +1,8 @@
 ### CC Adi 16.51
 
+> প্রভু কহেন, — অতএব পুছিয়ে তোমারে ।
+> বিচারিয়া গুণ-দোষ বুঝাহ আমারে ॥৫১॥
+
 prabhu kahena--ataeva puchiye tomāre
 
 vicāriyā guṇa-doṣa bujhāha āmāre

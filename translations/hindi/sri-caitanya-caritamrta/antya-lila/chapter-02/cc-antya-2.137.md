@@ -1,5 +1,8 @@
 ### CC Antya 2.137
 
+> এত বলি’ পুরী-গোসাঞি গেলা নিজ-স্থানে ।
+> হরিদাস-স্থানে গেলা সব ভক্তগণে ॥১৩৭॥
+
 > eta bali' purī-gosāñi gelā nija-sthāne
 > haridāsa-sthāne gelā saba bhakta-gaṇe
 

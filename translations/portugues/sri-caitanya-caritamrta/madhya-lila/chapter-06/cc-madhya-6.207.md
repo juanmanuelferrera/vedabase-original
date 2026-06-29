@@ -1,5 +1,8 @@
 ### CC Madhya 6.207
 
+> শুনি’ সুখে প্রভু তাঁরে কৈল আলিঙ্গন ।
+> ভট্টাচার্য প্রেমাবেশে হৈল অচেতন ॥২০৭॥
+
 śuni' sukhe prabhu tāṅre kaila āliṅgana
 bhaṭṭācārya premāveśe haila acetana
 

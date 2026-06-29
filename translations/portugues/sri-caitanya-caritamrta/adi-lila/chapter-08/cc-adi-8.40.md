@@ -1,5 +1,8 @@
 ### CC Adi 8.40
 
+> বৃন্দাবনদাস-পদে কোটি নমস্কার ।
+> ঐছে গ্রন্থ করি’ তেঁহো তারিলা সংসার ॥৪০॥
+
 vṛndāvana-dāsa-pade koṭi namaskāra
 
 aiche grantha kari' teṅho tārilā saṁsāra

@@ -1,5 +1,8 @@
 ### CC Madhya 7.150
 
+> ‘বাসুদেবোদ্ধার’ এই কহিল আখ্যান ।
+> ‘বাসুদেবামৃতপ্ৰদ’ হৈল প্রভুর নাম ॥১৫০॥
+
 > 'vāsudevoddhāra' ei kahila ākhyāna
 > 'vāsudevāmṛta-prada' haila prabhura nāma
 

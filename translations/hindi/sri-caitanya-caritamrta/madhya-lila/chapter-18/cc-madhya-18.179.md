@@ -1,5 +1,8 @@
 ### CC Madhya 18.179
 
+> ভয় পাঞা ম্লেচ্ছ ছাড়ি’ দিল চারিজন ।
+> প্রভু না দেখিল নিজ-গণের বন্ধন ॥১৭৯॥
+
 > bhaya pāñā mleccha chāḍi' dila cāri-jana
 > prabhu nā dekhila nija-gaṇera bandhana
 

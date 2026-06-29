@@ -1,5 +1,8 @@
 ### CC Antya 7.119
 
+> অজ্ঞ জীব নিজ-‘হিতে’ ‘অহিত’ করি’ মানে ।
+> গর্ব চূর্ণ হৈলে, পাছে উঘাড়ে নয়নে ॥১১৯॥
+
 > ajña jīva nija-'hite' 'ahita' kari' māne
 > garva cūrṇa haile, pāche ughāḍe nayane
 

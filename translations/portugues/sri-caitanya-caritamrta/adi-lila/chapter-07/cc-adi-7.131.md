@@ -1,5 +1,8 @@
 ### CC Adi 7.131
 
+> সর্ববেদসূত্রে করে কৃষ্ণের অভিধান ।
+> মুখ্যবৃত্তি ছাড়ি’ কৈল লক্ষণা-ব্যাখ্যান ॥১৩১॥
+
 sarva-veda-sūtre kare kṛṣṇera abhidhāna
 
 mukhya-vṛtti chāḍi' kaila lakṣaṇā-vyākhyāna

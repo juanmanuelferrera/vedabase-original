@@ -1,5 +1,8 @@
 ### CC Adi 8.16
 
+> বহু জন্ম করে যদি শ্রবণ, কীর্তন ।
+> তবু ত’ না পায় কৃষ্ণপদে প্রেমধন ॥১৬॥
+
 > bahu janma kare yadi śravaṇa, kīrtana
 > tabu ta' nā pāya kṛṣṇa-pade prema-dhana
 

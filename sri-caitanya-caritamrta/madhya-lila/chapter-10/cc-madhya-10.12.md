@@ -1,5 +1,8 @@
 ### CC Madhya 10.12
 
+> ভবদ্বিধা ভাগবতাস্তীর্থীভূতাঃ স্বয়ং বিভো ।
+> তীর্থীকুর্বন্তি তীর্থানি স্বান্তঃস্থেন গদাভৃতা ॥১২॥
+
 > bhavad-vidhā bhāgavatās
 > tīrthī-bhūtāḥ svayaṁ vibho
 > tīrthī-kurvanti tīrthāni

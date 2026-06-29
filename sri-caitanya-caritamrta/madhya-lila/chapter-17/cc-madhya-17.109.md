@@ -1,5 +1,8 @@
 ### CC Madhya 17.109
 
+> তাহা দেখি’ জ্ঞান হয় — ‘এই নারায়ণ’ ।
+> যেই তাঁরে দেখে, করে কৃষ্ণসংকীর্তন ॥১০৯॥
+
 > tāhā dekhi' jñāna haya—'ei nārāyaṇa
 > yei tāṅre dekhe, kare kṛṣṇa-saṅkīrtana
 

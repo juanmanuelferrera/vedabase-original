@@ -1,5 +1,7 @@
 ### SB 5.14.9
 
+> क्वचिच्च वात्यौपम्यया प्रमदयारोहमारोपितस्तत्कालरजसा रजनीभूत इवासाधुमर्यादोरजस्वलाक्षोऽपि दिग्देवता अतिरजस्वलमतिर्न विजानाति ॥९॥
+
 > kvacic ca vātyaupamyayā pramadayāroham āropitas tat-kāla-rajasā rajanī-bhūta ivāsādhu-maryādo rajas-valākṣo 'pi dig-devatā atirajas-vala-matir na vijānāti.
 
 *kvacit*—sometimes; *ca*—also; *vātyā aupamyayā*—compared to a whirlwind; *pramadayā*—by a beautiful woman; *āroham āropitaḥ*—raised onto the lap for sex enjoyment; *tat-kāla-rajasā*—by the passion of lusty desires at that moment; *rajanī-bhūtaḥ*—the darkness of night; *iva*—like; *asādhu-maryādaḥ*—who is without proper respect for the higher witnesses; *rajaḥ-vala-akṣaḥ*—blinded by strong lusty desires; *api*—certainly; *dik-devatāḥ*—the demigods in charge of different directions, like the sun and the moon; *atirajaḥ-vala-matiḥ*—whose mind is overcome by lust; *na vijānāti*—he does not know (that witnesses all around take note of his impudent sexual act).

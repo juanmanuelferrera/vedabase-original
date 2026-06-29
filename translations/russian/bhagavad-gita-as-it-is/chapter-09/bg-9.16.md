@@ -1,5 +1,8 @@
 ### Bg 9.16
 
+> अहं क्रतुरहं यज्ञः स्वधाहमहमौषधम् ।
+> मन्त्रोऽहमहमेवाज्यमहमग्निरहं हुतम् ॥१६॥
+
 > ahaṁ kratur ahaṁ yajñaḥ
 > svadhāham aham auṣadham
 > mantro 'ham aham evājyam

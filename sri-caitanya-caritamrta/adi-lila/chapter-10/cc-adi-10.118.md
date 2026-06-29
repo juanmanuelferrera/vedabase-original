@@ -1,5 +1,8 @@
 ### CC Adi 10.118
 
+> রামদাস, মাধব, আর বাসুদেব ঘোষ ।
+> প্রভু-সঙ্গে রহে গোবিন্দ পাইয়া সন্তোষ ॥১১৮॥
+
 > rāmadāsa, mādhava, āra vāsudeva ghoṣa
 > prabhu-saṅge rahe govinda pāiyā santoṣa
 

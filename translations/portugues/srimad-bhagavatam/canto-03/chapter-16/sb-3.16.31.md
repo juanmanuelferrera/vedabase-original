@@ -1,5 +1,8 @@
 ### SB 3.16.31
 
+> मयि संरम्भयोगेन निस्तीर्य ब्रह्महेलनम् ।
+> प्रत्येष्यतं निकाशं मे कालेनाल्पीयसा पुनः ॥३१॥
+
 *mayi saṁrambha*-yogena
 *nistīrya brahma*-helanam
 pratyeṣyataṁ nikāśaṁ me

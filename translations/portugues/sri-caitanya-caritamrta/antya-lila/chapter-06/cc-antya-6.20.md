@@ -1,5 +1,8 @@
 ### CC Antya 6.20
 
+> রাজ-ঘরে কৈফিয়ৎ দিয়া উজীরে আনিল ।
+> হিরণ্যদাস পলাইল, রঘুনাথেরে বান্ধিল ॥২০॥
+
 rāja-ghare kaiphiyat diyā ujīre ānila
 
 hiraṇya-dāsa palāila, raghunāthere bāndhila

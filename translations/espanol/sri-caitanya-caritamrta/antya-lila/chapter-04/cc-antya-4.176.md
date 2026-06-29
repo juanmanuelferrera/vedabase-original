@@ -1,5 +1,8 @@
 ### CC Antya 4.176
 
+> ‘দ্বৈতে’ ভদ্রাভদ্র-জ্ঞান, সব — ‘মনোধর্ম’ ।
+> ‘এই ভাল, এই মন্দ’, — এই সব ‘ভ্রম’ ॥১৭৬॥
+
 > 'dvaite' bhadrābhadra-jñāna, saba--'manodharma'
 > 'ei bhāla, ei manda',--ei saba 'bhrama'
 

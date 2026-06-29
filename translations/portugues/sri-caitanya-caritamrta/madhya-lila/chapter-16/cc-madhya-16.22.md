@@ -1,5 +1,8 @@
 ### CC Madhya 16.22
 
+> শ্রীবাস পণ্ডিত-সঙ্গে চলিলা মালিনী ।
+> শিবানন্দ-সঙ্গে চলে তাঁহার গৃহিণী ॥২২॥
+
 śrīvāsa paṇḍita-saṅge calilā mālinī
 
 śivānanda-saṅge cale tāṅhāra gṛhiṇī

@@ -1,5 +1,7 @@
 ### SB 5.16.7
 
+> एषां मध्ये इलावृतं नामाभ्यन्तरवर्षं यस्य नाभ्यामवस्थितः सर्वतः सौवर्णः कुलगिरिराजो मेरुर्द्वीपायामसमुन्नाहः कर्णिकाभूतः कुवलयकमलस्य मूर्धनि द्वात्रिंशत्सहस्रयोजनविततो मूले षोडशसहस्रं तावतान्तर्भूम्यां प्रविष्टः ॥७॥
+
 *eṣāṁ madhye ilāvṛtaṁ nāmābhyantara*-varṣaṁ yasya nābhyām avasthitaḥ sarvataḥ sauvarṇaḥ kula-giri-rājo merur dvīpāyāma-samunnāhaḥ karṇikā-bhūtaḥ kuvalaya-kamalasya mūrdhani dvā-triṁśat sahasra-yojana-vitato mūle ṣoḍaśa-sahasraṁ tāvat āntar-bhūmyāṁ praviṣṭaḥ.
 
 *eṣām*—de todas essas divisões de Jambūdvīpa; *madhye*—entre; *ilāvṛtam nāma*—chamada Ilāvṛta-varṣa; *abhyantara-varṣam*—a divisão interna; *yasya*—de que; *nābhyām*—no umbigo; *avasthitaḥ*—situada; *sarvataḥ*—inteiramente; *sauvarṇaḥ*—feita de ouro; *kula-giri-rājaḥ*—a mais famosa entre as famosas montanhas; *meruḥ*—Monte Meru; *dvīpa-āyāma-samunnāhaḥ*—cuja altura é da mesma medida que a largura de Jambūdvīpa; *karṇikā-bhūtaḥ*—existindo como o pericarpo; *kuvalaya*—deste sistema planetário; *kamalasya*—como uma flor de lótus; *mūrdhani*—no alto; *dvā-triṁśat*—trinta e dois; *sahasra*—mil; *yojana*—yojanas (treze quilômetros cada); *vitataḥ*—expandida; *mūle*—na base; *ṣoḍaśa-sahasram*—dezesseis mil yojanas; *tāvat*—outro tanto; *āntaḥ-bhūmyām*—dentro da terra; *praviṣṭaḥ*—entrou.

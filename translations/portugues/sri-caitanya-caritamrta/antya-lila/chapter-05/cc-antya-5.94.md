@@ -1,5 +1,8 @@
 ### CC Antya 5.94
 
+> সবেই প্রশংসে নাটক ‘পরম উত্তম’ ।
+> মহাপ্রভুরে শুনাইতে সবার হৈল মন ॥৯৪॥
+
 sabei praśaṁse nāṭaka 'parama uttama'
 
 mahāprabhure śunāite sabāra haila mana

@@ -1,5 +1,8 @@
 ### SB 3.11.36
 
+> तस्यैव चान्ते कल्पोऽभूद्यं पाद्ममभिचक्षते ।
+> यद्धरेर्नाभिसरस आसील्लोकसरोरुहम् ॥३६॥
+
 > tasyaiva cānte kalpo 'bhūd
 > yaṁ pādmam abhicakṣate
 > yad dharer nābhi-sarasa

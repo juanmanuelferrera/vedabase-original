@@ -1,5 +1,8 @@
 ### CC Madhya 19.28
 
+> হেনকালে গেল রাজা উড়িয়া মারিতে ।
+> সনাতনে কহে, — তুমি চল মোর সাথে ॥২৮॥
+
 > hena-kāle gela rājā uḍiyā mārite
 > sanātane kahe,—tumi cala mora sāthe
 

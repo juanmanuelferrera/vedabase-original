@@ -1,5 +1,8 @@
 ### CC Madhya 9.109
 
+> ‘শ্রী-বৈষ্ণব’ ভট্ট সেবে লক্ষ্মী-নারায়ণ ।
+> তাঁর ভক্তি দেখি’ প্রভুর তুষ্ট হৈল মন ॥১০৯॥
+
 > śrī-vaiṣṇava' bhaṭṭa seve lakṣmī-nārāyaṇa
 > tāṅra bhakti dekhi' prabhura tuṣṭa haila mana
 

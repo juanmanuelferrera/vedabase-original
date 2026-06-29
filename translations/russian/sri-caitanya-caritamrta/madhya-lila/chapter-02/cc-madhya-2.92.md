@@ -1,5 +1,10 @@
 ### CC Madhya 2.92
 
+> সংক্ষেপে এই সূত্র কৈল, যেই ইহাঁ না লিখিল,
+> আগে তাহা করিব বিস্তার ।
+> যদি তত দিন জিয়ে, মহাপ্ৰভুর কৃপা হয়ে,
+> ইচ্ছা ভরি’ করিব বিচার ॥৯২॥
+
 > saṅkṣepe ei sūtra kaila, yei ihāṅ nā likhila,
 > āge tāhā kariba vistāra
 > yadi tata dina jiye, mahāprabhura kṛpā haye,

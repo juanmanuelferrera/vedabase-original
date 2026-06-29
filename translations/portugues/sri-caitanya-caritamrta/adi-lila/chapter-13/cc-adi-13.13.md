@@ -1,5 +1,8 @@
 ### CC Adi 13.13
 
+> অষ্টাদশ বৎসর রহিলা নীলাচলে ।
+> কৃষ্ণপ্রেম-নামামৃতে ভাসা’ল সকলে ॥১৩॥
+
 aṣṭādaśa vatsara rahilā nīlācale
 kṛṣṇa-prema-nāmāmṛte bhāsā'la sakale
 

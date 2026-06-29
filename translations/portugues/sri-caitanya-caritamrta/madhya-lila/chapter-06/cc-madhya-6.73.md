@@ -1,5 +1,8 @@
 ### CC Madhya 6.73
 
+> গোপীনাথ কহে, — ইঁহার নাহি বাহ্যাপেক্ষা ।
+> অতএব বড় সম্প্রদায়ের নাহিক অপেক্ষা ॥৭৩॥
+
 gopīnātha kahe,--iṅhāra nāhi bāhyāpekṣā
 ataeva baḍa sampradāyera nāhika apekṣā
 

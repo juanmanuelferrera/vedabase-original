@@ -1,5 +1,8 @@
 ### CC Madhya 24.280
 
+> এত অন্ন না পাঠাও, কিছু কার্য নাই ।
+> সবে দুইজনার যোগ্য ভক্ষ্যমাত্র চাই ।।” ॥২৮০॥
+
 > eta anna nā pāṭhāo, kichu kārya nāi
 > sabe dui-janāra yogya bhakṣya-mātra cāi"
 

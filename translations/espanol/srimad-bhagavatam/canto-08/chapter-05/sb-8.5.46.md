@@ -1,5 +1,8 @@
 ### SB 8.5.46
 
+> तैस्तैः स्वेच्छाभूतै रूपैः काले काले स्वयं विभो
+> कर्म दुर्विषहं यन्नो भगवांस्तत्करोति हि ॥४६॥
+
 > tais taiḥ svecchā-bhūtai rūpaiḥ
 > kāle kāle svayaṁ vibho
 > karma durviṣahaṁ yan no

@@ -1,5 +1,8 @@
 ### CC Madhya 1.31
 
+> তবে প্রভু ব্রজে পাঠাইল রূপ-সনাতন ।
+> প্রভু-আজ্ঞায় দুই ভাই আইলা বৃন্দাবন ॥৩১॥
+
 > tabe prabhu vraje pāṭhāila rūpa-sanātana
 > prabhu-ājñāya dui bhāi āilā vṛndāvana
 

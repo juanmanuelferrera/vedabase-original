@@ -1,5 +1,8 @@
 ### SB 1.3.17
 
+> धान्वन्तरं द्वादशमं त्रयोदशममेव च ।
+> अपाययत्सुरानन्यान्मोहिन्या मोहयन्स्त्रिया ॥१७॥
+
 > dhānvantaraṁ dvādaśamaṁ
 > trayodaśamam eva ca
 > apāyayat surān anyān

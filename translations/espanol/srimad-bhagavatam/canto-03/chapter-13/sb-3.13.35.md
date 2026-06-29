@@ -1,5 +1,8 @@
 ### SB 3.13.35
 
+> रूपं तवैतन्ननु दुष्कृतात्मनां दुर्दर्शनं देव यदध्वरात्मकम् ।
+> छन्दांसि यस्य त्वचि बर्हिरोमस्वाज्यं दृशि त्वङ्घ्रिषु चातुर्होत्रम् ॥३५॥
+
 > rūpaṁ tavaitan nanu duṣkṛtātmanāṁ
 > durdarśanaṁ deva yad adhvarātmakam
 > chandāṁsi yasya tvaci barhi-romasv

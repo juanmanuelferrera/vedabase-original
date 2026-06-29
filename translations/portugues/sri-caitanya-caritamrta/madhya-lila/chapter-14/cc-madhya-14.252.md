@@ -1,5 +1,8 @@
 ### CC Madhya 14.252
 
+> ভাগ্যবান্ সত্যরাজ বসু রামানন্দ ।
+> সেবা-আজ্ঞা পাঞা হৈল পরম-আনন্দ ॥২৫২॥
+
 bhāgyavān satyarāja vasu rāmānanda
 
 sevā-ājñā pāñā haila parama-ānanda

@@ -1,5 +1,8 @@
 ### CC Madhya 24.215
 
+> কর্মণ্যস্মিন্ননাশ্বাসে ধূমধূম্রাত্মনাং ভবান্ ।
+> আপায়য়তি গোবিন্দপাদপদ্মাসবং মধু ॥২১৫॥
+
 > karmaṇy asminn anāśvāse
 > dhūma-dhūmrātmanāṁ bhavān
 > āpāyayati govinda-

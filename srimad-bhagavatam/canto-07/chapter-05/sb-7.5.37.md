@@ -1,5 +1,8 @@
 ### SB 7.5.37
 
+> परोऽप्यपत्यं हितकृद्यथौषधं स्वदेहजोऽप्यामयवत्सुतोऽहितः
+> छिन्द्यात्तदङ्गं यदुतात्मनोऽहितं शेषं सुखं जीवति यद्विवर्जनात ॥३७॥
+
 > paro 'py apatyaṁ hita-kṛd yathauṣadhaṁ
 > sva-dehajo 'py āmayavat suto 'hitaḥ
 > chindyāt tad aṅgaṁ yad utātmano 'hitaṁ

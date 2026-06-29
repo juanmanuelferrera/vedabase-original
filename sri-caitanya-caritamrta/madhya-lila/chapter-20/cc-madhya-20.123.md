@@ -1,5 +1,8 @@
 ### CC Madhya 20.123
 
+> ‘শাস্ত্র-গুরু-আত্ম’-রূপে আপনারে জানান ।
+> ‘কৃষ্ণ মোর প্রভু, ত্রাতা’ — জীবের হয় জ্ঞান ॥১২৩॥
+
 > 'śāstra-guru-ātma'-rūpe āpanāre jānāna
 > 'kṛṣṇa mora prabhu, trātā'—jīvera haya jñāna
 

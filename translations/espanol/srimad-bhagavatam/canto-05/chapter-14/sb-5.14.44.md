@@ -1,5 +1,10 @@
 ### SB 5.14.44
 
+> यो दुस्त्यजान्क्षितिसुतस्वजनार्थदारान
+> प्रार्थ्यां श्रियं सुरवरैः सदयावलोकाम
+> नैच्छन्नृपस्तदुचितं महतां मधुद्विट
+> सेवानुरक्तमनसामभवोऽपि फल्गुः ॥४४॥
+
 > yo dustyajān kṣiti-suta-svajanārtha-dārān
 > prārthyāṁ śriyaṁ sura-varaiḥ sadayāvalokām
 > naicchan nṛpas tad-ucitaṁ mahatāṁ madhudviṭ-

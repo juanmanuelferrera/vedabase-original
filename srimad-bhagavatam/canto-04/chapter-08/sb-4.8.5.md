@@ -1,5 +1,8 @@
 ### SB 4.8.5
 
+> सङ्ग्रहेण मयाख्यातः प्रतिसर्गस्तवानघ ।
+> त्रिः श्रुत्वैतत्पुमान्पुण्यं विधुनोत्यात्मनो मलम् ॥५॥
+
 > saṅgraheṇa mayākhyātaḥ
 > pratisargas tavānagha
 > triḥ śrutvaitat pumān puṇyaṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 14.203
 
+> শ্রীবাস হাসিয়া কহে, — শুন, দামোদর ।
+> আমার লক্ষ্মীর দেখ সম্পত্তি বিস্তর ॥২০৩॥
+
 > śrīvāsa hāsiyā kahe,-śuna, dāmodara
 > āmāra lakṣmīra dekha sampatti vistara
 

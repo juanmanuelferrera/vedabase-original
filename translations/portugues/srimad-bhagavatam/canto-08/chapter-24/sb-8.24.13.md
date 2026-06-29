@@ -1,5 +1,8 @@
 ### SB 8.24.13
 
+> सत्यव्रतोऽञ्जलिगतां सह तोयेन भारत
+> उत्ससर्ज नदीतोये शफरीं द्रविडेश्वरः ॥१३॥
+
 satyavrato 'ñjali-gatāṁ
 saha toyena bhārata
 utsasarja nadī-toye

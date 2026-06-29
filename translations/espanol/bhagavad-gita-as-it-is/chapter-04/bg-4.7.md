@@ -1,5 +1,8 @@
 ### Bg 4.7
 
+> यदा यदा हि धर्मस्य ग्लानिर्भवति भारत ।
+> अभ्युत्थानमधर्मस्य तदात्मानं सृजाम्यहम् ॥७॥
+
 > yadā yadā hi dharmasya
 > glānir bhavati bhārata
 > abhyutthānam adharmasya

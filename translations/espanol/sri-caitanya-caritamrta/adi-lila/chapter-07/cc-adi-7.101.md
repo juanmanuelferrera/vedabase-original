@@ -1,5 +1,8 @@
 ### CC Adi 7.101
 
+> কৃষ্ণে ভক্তি কর — ইহায় সবার সন্তোষ ।
+> বেদান্ত না শুন কেনে, তার কিবা দোষ ॥১০১॥
+
 > kṛṣṇe bhakti kara--ihāya sabāra santoṣa
 > vedānta nā śuna kene, tāra kibā doṣa
 

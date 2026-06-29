@@ -1,5 +1,8 @@
 ### CC Madhya 6.217
 
+> পূজারী আনিয়া মালা-প্রসাদান্ন দিলা ।
+> প্রসাদান্ন-মালা পাঞা প্রভু হর্ষ হৈলা ॥২১৭॥
+
 > pūjārī āniyā mālā-prasādānna dilā
 > prasādānna-mālā pāñā prabhu harṣa hailā
 

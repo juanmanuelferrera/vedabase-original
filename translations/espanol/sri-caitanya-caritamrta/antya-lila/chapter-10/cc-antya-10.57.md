@@ -1,5 +1,8 @@
 ### CC Antya 10.57
 
+> আর দিন মহাপ্রভু নিজগণ লঞা ।
+> জগন্নাথ দেখিলেন শয্যোত্থানে যাঞা ॥৫৭॥
+
 > āra dina mahāprabhu nija-gaṇa lañā
 > jagannātha dekhilena śayyotthāne yāñā
 

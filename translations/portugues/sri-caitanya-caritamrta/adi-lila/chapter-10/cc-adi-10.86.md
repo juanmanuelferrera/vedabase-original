@@ -1,5 +1,8 @@
 ### CC Adi 10.86
 
+> মালীর ইচ্ছায় শাখা বহুত বাড়িল ।
+> বাড়িয়া পশ্চিম দেশ সব আচ্ছাদিল ॥৮৬॥
+
 mālīra icchāya śākhā bahuta bāḍila
 
 bāḍiyā paścima deśa saba ācchādila

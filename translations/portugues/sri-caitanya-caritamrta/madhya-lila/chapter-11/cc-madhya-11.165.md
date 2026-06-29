@@ -1,5 +1,8 @@
 ### CC Madhya 11.165
 
+> হরিদাস কহে, — মুঞি নীচ-জাতি ছার ৷
+> মন্দির-নিকটে যাইতে মোর নাহি অধিকার ৷৷ ১৬৫ ৷৷ ॥১৬৫॥
+
 haridāsa kahe,—muñi nīca-jāti chāra
 mandira-nikaṭe yāite mora nāhi ādhikāra
 

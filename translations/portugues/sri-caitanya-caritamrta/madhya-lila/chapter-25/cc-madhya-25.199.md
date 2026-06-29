@@ -1,5 +1,8 @@
 ### CC Madhya 25.199
 
+> এক ‘নামাভাসে’ তোমার পাপ-দোষ যাবে ।
+> আর ‘নাম’ লইতে কৃষ্ণচরণ পাইবে ॥১৯৯॥
+
 eka 'nāmābhāse' tomāra pāpa-doṣa yābe
 
 āra 'nāma' la-ite kṛṣṇa-caraṇa pāibe

@@ -1,5 +1,8 @@
 ### CC Adi 17.207
 
+> উচ্চ করি’ গায় গীত, দেয় করতালি ।
+> মৃদঙ্গ-করতাল-শব্দে কর্ণে লাগে তালি ॥২০৭॥
+
 ucca kari' gāya gīta, deya karatāli
 
 mṛdaṅga-karatāla-śabde karṇe lāge tāli

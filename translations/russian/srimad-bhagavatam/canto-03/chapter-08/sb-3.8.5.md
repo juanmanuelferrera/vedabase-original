@@ -1,5 +1,8 @@
 ### SB 3.8.5
 
+> स्वर्धुन्युदार्द्रैः स्वजटाकलापैरुपस्पृशन्तश्चरणोपधानम् ।
+> पद्मं यदर्चन्त्यहिराजकन्याः सप्रेम नानाबलिभिर्वरार्थाः ॥५॥
+
 > svardhuny-udārdraiḥ sva-jaṭā-kalāpair
 > upaspṛśantaś caraṇopadhānam
 > padmaṁ yad arcanty ahi-rāja-kanyāḥ

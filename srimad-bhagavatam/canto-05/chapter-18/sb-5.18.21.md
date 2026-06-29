@@ -1,5 +1,8 @@
 ### SB 5.18.21
 
+> या तस्य ते पादसरोरुहार्हणं निकामयेत्साखिलकामलम्पटा
+> तदेव रासीप्सितमीप्सितोऽर्चितो यद्भग्नयाचञ्आ भगवन्प्रतप्यते ॥२१॥
+
 > yā tasya te pāda-saroruhārhaṇaṁ
 > nikāmayet sākhila-kāma-lampaṭā
 > tad eva rāsīpsitam īpsito 'rcito

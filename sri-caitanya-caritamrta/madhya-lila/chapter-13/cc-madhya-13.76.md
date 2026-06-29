@@ -1,5 +1,8 @@
 ### CC Madhya 13.76
 
+> দণ্ডবৎ করি, প্রভু যুড়ি’ দুই হাত ।
+> ঊর্ধ্ব মুখে স্তুতি করে দেখি’ জগন্নাথ ॥৭৬॥
+
 > daṇḍavat kari, prabhu yuḍi' dui hāta
 > ūrdhva-mukhe stuti kare dekhi' jagannātha
 

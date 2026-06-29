@@ -1,5 +1,7 @@
 ### SB 5.9.5
 
+> एवं स्वतनुज आत्मन्यनुरागावेशितचित्तः शौचाध्ययनव्रतनियमगुर्वनलशुश्रूषणाद्यऔपकुर्वाणककर्माण्यनभियुक्तान्यपि समनुशिष्टेन भाव्यमित्यसदाग्रहः पुत्रमनुशास्यस्वयं तावदनधिगतमनोरथः कालेनाप्रमत्तेन स्वयं गृह एव प्रमत्त उपसंहृतः ॥५॥
+
 *sa cāpi tad u ha pitṛ*-sannidhāv evāsadhrīcīnam iva sma karoti chandāṁsy adhyāpayiṣyan saha vyāhṛtibhiḥ sapraṇava-śiras tripadīṁ sāvitrīṁ graiṣma-vāsantikān māsān adhīyānam apy asamaveta-rūpaṁ grāhayām āsa.
 
 *saḥ*—ele (Jaḍa Bharata); *ca*—também; *api*—de fato; *tat u ha*—aquilo que era instruído por seu pai; *pitṛ-sannidhau*—na presença de seu pai; *eva*—mesmo; *asadhrīcīnam iva*—não correto, como se não pudesse entender nada; *sma karoti*—costumava executar; *chandāṁsi adhyāpayiṣyan*—desejando ensinar-lhe os mantras Védicos durante os meses que começam com Śrāvaṇa ou durante o período de Cāturmāsya; *saha*—junto com; *vyāhṛtibhiḥ*—a pronunciação dos nomes dos planetas celestiais (bhūḥ, bhuvaḥ, svaḥ); *sa-praṇava-śiraḥ*—encabeçado por oṁkāra; *tri-padīm*—de três pés; *sāvitrīm*—o mantra Gāyatrī; *graiṣma-vāsantikān*—por quatro meses, começando com Caitra, no dia quinze de maio; *māsān*—os meses; *adhīyānam api*—embora estudasse plenamente; *asamaveta-rūpam*—de forma incompleta; *grāhayām āsa*—fez com que ele aprendesse.

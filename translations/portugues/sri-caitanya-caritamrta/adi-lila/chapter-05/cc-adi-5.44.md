@@ -1,5 +1,8 @@
 ### CC Adi 5.44
 
+> ষড়্বিধৈশ্বর্য তাঁহা সকল চিন্ময় ।
+> সঙ্কর্ষণের বিভূতি সব, জানিহ নিশ্চয় ॥৪৪॥
+
 ṣaḍ-vidhaiśvarya tāṅhā sakala cinmaya
 
 saṅkarṣaṇera vibhūti saba, jāniha niścaya

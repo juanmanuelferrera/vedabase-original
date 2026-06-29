@@ -1,5 +1,8 @@
 ### SB 8.1.3
 
+> यद्यस्मिन्नन्तरे ब्रह्मन्भगवान्विश्वभावनः
+> कृतवान्कुरुते कर्ता ह्यतीतेऽनागतेऽद्य वा ॥३॥
+
 > yad yasminn antare brahman
 > bhagavān viśva-bhāvanaḥ
 > kṛtavān kurute kartā

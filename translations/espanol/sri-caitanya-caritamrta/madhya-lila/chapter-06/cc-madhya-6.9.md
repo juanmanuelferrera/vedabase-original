@@ -1,5 +1,8 @@
 ### CC Madhya 6.9
 
+> শ্বাস-প্রশ্বাস নাহি উদর-স্পন্দন ।
+> দেখিয়া চিন্তিত হৈল ভট্টাচার্যের মন ॥৯॥
+
 > śvāsa-praśvāsa nāhi udara-spandana
 > dekhiyā cintita haila bhaṭṭācāryera mana
 

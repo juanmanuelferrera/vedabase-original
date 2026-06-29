@@ -1,5 +1,8 @@
 ### CC Madhya 20.245
 
+> অবতার হয় কৃষ্ণের ষড়্বিধ প্রকার  ।
+> পুরুষাবতার এক, লীলাবতার আর ॥২৪৫॥
+
 avatāra haya kṛṣṇera ṣaḍ-vidha prakāra
 
 puruṣāvatāra eka, līlāvatāra āra

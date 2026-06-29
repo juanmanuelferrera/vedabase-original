@@ -1,5 +1,8 @@
 ### SB 7.7.24
 
+> अन्वयव्यतिरेकेण विवेकेनोशतात्मना
+> स्वर्गस्थानसमाम्नायैर्विमृशद्भिरसत्वरैः ॥२४॥
+
 > anvaya-vyatirekeṇa
 > vivekenośatātmanā
 > svarga-sthāna-samāmnāyair

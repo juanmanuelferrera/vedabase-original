@@ -1,5 +1,8 @@
 ### CC Madhya 9.138
 
+> পূর্বে ভট্টের মনে এক ছিল অভিমান ৷
+> ‘শ্রীনারায়ণ’ হয়েন স্বয়ং-ভগবান্ ৷৷ ১৩৮ ৷৷ ॥১৩৮॥
+
 pūrve bhaṭṭera mane eka chila abhimāna
 
 'śrī-nārāyaṇa' hayena svayaṁ-bhagavān

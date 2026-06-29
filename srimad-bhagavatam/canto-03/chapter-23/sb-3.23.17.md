@@ -1,5 +1,8 @@
 ### SB 3.23.17
 
+> तत्र तत्र विनिक्षिप्त नानाशिल्पोपशोभितम् ।
+> महामरकतस्थल्या जुष्टं विद्रुमवेदिभिः ॥१७॥
+
 > tatra tatra vinikṣipta-
 > nānā-śilpopaśobhitam
 > mahā-marakata-sthalyā

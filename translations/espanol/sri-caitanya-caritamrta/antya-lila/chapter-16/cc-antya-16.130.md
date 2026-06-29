@@ -1,5 +1,10 @@
 ### CC Antya 16.130
 
+> অধরের এই রীতি, আর শুন কুনীতি,
+> সে অধর-সনে যার মেলা ।
+> সেই ভক্ষ্য-ভোজ্য-পান, হয় অমৃত-সমান,
+> নাম তার হয় ‘কৃষ্ণ-ফেলা’ ॥১৩০॥
+
 > adharera ei rīti, āra śuna kunīti,
 > se adhara-sane yāra melā
 > sei bhakṣya-bhojya-pāna, haya amṛta-samāna,

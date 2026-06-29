@@ -1,5 +1,8 @@
 ### CC Madhya 13.88
 
+> লোক নিবারিতে হৈল তিন মণ্ডল ।
+> প্রথম-মণ্ডলে নিত্যানন্দ মহাবল ॥৮৮॥
+
 loka nivārite haila tina maṇḍala
 
 prathama-maṇḍale nityānanda mahā-bala

@@ -1,5 +1,8 @@
 ### CC Madhya 20.309
 
+> দুগ্ধ যেন অম্লযোগে দধিরূপ ধরে ।
+> দুগ্ধান্তর বস্তু নহে, দুগ্ধ হৈতে নারে ॥৩০৯॥
+
 dugdha yena amla-yoge dadhi-rūpa dhare
 
 dugdhāntara vastu nahe, dugdha haite nāre

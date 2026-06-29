@@ -1,5 +1,8 @@
 ### CC Madhya 20.241
 
+> পুরীর আবরণরূপে পুরীর নবদেশে ।
+> নবব্যূহরূপে নবমূর্তি পরকাশে ॥২৪১॥
+
 > purīra āvaraṇa-rūpe purīra nava-deśe
 > nava-vyūha-rūpe nava-mūrti parakāśe
 

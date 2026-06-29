@@ -1,5 +1,8 @@
 ### CC Adi 7.13
 
+> ‘ভক্ত-অবতার’ তাঁর আচার্য-গোসাঞি ।
+> এই তিন তত্ত্ব সবে প্রভু করি’ গাই ॥১৩॥
+
 > 'bhakta-avatāra' tāṅra ācārya-gosāñi
 > ei tina tattva sabe prabhu kari' gāi
 

@@ -1,5 +1,8 @@
 ### CC Madhya 4.74
 
+> তার পাশে দধি, দুগ্ধ, মাঠা, শিখরিণী ৷
+> পায়স, মথনী, সর পাশে ধরি আনি’ ॥৭৪॥
+
 > tāra pāśe dadhi, dugdha, māṭhā, śikhariṇī
 > pāyasa, mathanī, sara pāśe dhari āni'
 

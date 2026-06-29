@@ -1,5 +1,8 @@
 ### CC Madhya 1.118
 
+> শুনিয়া প্রভুর আনন্দিত হৈল মন ।
+> রামদাস বিপ্রের কথা হইল স্মরণ ॥১১৮॥
+
 śuniyā prabhura ānandita haila mana
 
 rāma-dāsa viprera kathā ha-ila smaraṇa

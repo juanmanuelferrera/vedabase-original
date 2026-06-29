@@ -1,5 +1,8 @@
 ### SB 9.9.15
 
+> सन्निवेश्य मनो यस्मिञ्छ्रद्धया मुनयोऽमलाः
+> त्रैगुण्यं दुस्त्यजं हित्वा सद्यो यातास्तदात्मताम ॥१५॥
+
 > sanniveśya mano yasmiñ
 > chraddhayā munayo 'malāḥ
 > traiguṇyaṁ dustyajaṁ hitvā

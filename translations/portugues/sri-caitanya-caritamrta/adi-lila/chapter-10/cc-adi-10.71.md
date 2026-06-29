@@ -1,5 +1,8 @@
 ### CC Adi 10.71
 
+> এই দুই-ঘরে প্রভু একাদশী দিনে ।
+> বিষ্ণুর নৈবেদ্য মাগি’ খাইল আপনে ॥৭১॥
+
 ei dui-ghare prabhu ekādaśī dine
 viṣṇura naivedya māgi' khāila āpane
 

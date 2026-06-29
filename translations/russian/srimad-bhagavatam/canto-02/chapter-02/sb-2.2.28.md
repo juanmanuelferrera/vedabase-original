@@ -1,5 +1,8 @@
 ### SB 2.2.28
 
+> ततो विशेषं प्रतिपद्य निर्भयस्तेनात्मनापोऽनलमूर्तिरत्वरन् ।
+> ज्योतिर्मयो वायुमुपेत्य काले वाय्वात्मना खं बृहदात्मलिङ्गम् ॥२८॥
+
 > tato viśeṣaṁ pratipadya nirbhayas
 > tenātmanāpo 'nala-mūrtir atvaran
 > jyotirmayo vāyum upetya kāle

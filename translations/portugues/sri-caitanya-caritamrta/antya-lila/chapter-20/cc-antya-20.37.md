@@ -1,5 +1,8 @@
 ### CC Antya 20.37
 
+> “প্রেমধন বিনা ব্যর্থ দরিদ্র জীবন ।
+> ‘দাস’ করি’ বেতন মোরে দেহ প্রেমধন ।।” ॥ ৩৭ ॥
+
 "prema-dhana vinā vyartha daridra jīvana
 
 'dāsa' kari' vetana more deha prema-dhana"

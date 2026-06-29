@@ -1,5 +1,8 @@
 ### CC Adi 8.42
 
+> তাঁর কি অদ্ভুত চৈতন্যচরিত-বর্ণন ।
+> যাহার শ্রবণে শুদ্ধ কৈল ত্রিভুবন ॥৪২॥
+
 > tāṅra ki adbhuta caitanya-carita-varṇana
 > yāhāra śravaṇe śuddha kaila tri-bhuvana
 

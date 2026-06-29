@@ -1,5 +1,8 @@
 ### CC Adi 17.225
 
+> কাজীরে বিদায় দিল শচীর নন্দন ।
+> নাচিতে নাচিতে আইলা আপন ভবন ॥২২৫॥
+
 kājīre vidāya dila śacīra nandana
 nācite nācite āilā āpana bhavana
 

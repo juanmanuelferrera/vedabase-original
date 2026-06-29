@@ -1,5 +1,8 @@
 ### CC Madhya 16.213
 
+> অতএব ইহাঁ তার না কৈলুঁ বিস্তার ।
+> পুনরুক্তি হয়, গ্রন্থ বাড়য়ে অপার ॥২১৩॥
+
 ataeva ihāṅ tāra nā kailuṅ vistāra
 
 punarukti haya, grantha bāḍaye apāra

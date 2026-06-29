@@ -1,5 +1,8 @@
 ### CC Antya 3.260
 
+> উপদেশ পাঞা মায়া চলিলা হঞা প্রীত ।
+> এ-সব কথাতে কারো না জন্মে প্রতীত ॥২৬০॥
+
 upadeśa pāñā māyā calilā hañā prīta
 
 e-saba kathāte kāro nā janme pratīta

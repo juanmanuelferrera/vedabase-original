@@ -1,5 +1,8 @@
 ### CC Antya 2.15
 
+> এইমত আবেশে তারিল ত্রিভুবন ।
+> গৌড়ে যৈছে আবেশ, করি দিগ্ দরশন ॥১৫॥
+
 ei-mata āveśe tārila tribhuvana
 
 gauḍe yaiche āveśa, kari dig daraśana

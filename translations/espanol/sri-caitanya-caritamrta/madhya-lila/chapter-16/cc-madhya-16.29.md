@@ -1,5 +1,8 @@
 ### CC Madhya 16.29
 
+> নিত্যানন্দের পরিচয় সব সেবক সনে ।
+> বহুত সম্মান আসি’ কৈল সেবকগণে ॥২৯॥
+
 > nityānandera paricaya saba sevaka sane
 > bahuta sammāna āsi' kaila sevaka-gaṇe
 

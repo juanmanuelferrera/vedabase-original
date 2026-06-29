@@ -1,5 +1,8 @@
 ### CC Madhya 3.183
 
+> নীলাচলে নবদ্বীপে যেন দুই ঘর ।
+> লোক-গতাগতি-বার্তা পাব নিরন্তর ॥১৮৩॥
+
 nīlācale navadvīpe yena dui ghara
 
 loka-gatāgati-vārtā pāba nirantara

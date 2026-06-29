@@ -1,5 +1,7 @@
 ### SB 5.10.5
 
+> सांसर्गिको दोष एव नूनमेकस्यापि सर्वेषां सांसर्गिकाणां भवितुमर्हतीति निश्चित्य निशम्यकृपणवचो राजा रहूगण उपासितवृद्धोऽपि निसर्गेण बलात्कृत ईषदुत्थितमन्युरविस्पष्टब्रह्मतेजसं जातवेदसमिव रजसावृतमतिराह ॥५॥
+
 > sāṁsargiko doṣa eva nūnam ekasyāpi sarveṣāṁ sāṁsargikāṇāṁ bhavitum arhatīti niścitya niśamya kṛpaṇa-vaco rājā rahūgaṇa upāsita-vṛddho 'pi nisargeṇa balāt kṛta īṣad-utthita-manyur avispaṣṭa-brahma-tejasaṁ jāta-vedasam iva rajasāvṛta-matir āha.
 
 *sāṁsargikaḥ*—resulting from intimate association; *doṣaḥ*—a fault; *eva*—indeed; *nūnam*—certainly; *ekasya*—of one; *api*—although; *sarveṣām*—of all other; *sāṁsargikāṇām*—persons associated with him; *bhavitum*—to become; *arhati*—is able; *iti*—thus; *niścitya*—ascertaining; *niśamya*—by hearing; *kṛpaṇa-vacaḥ*—the words of the poor servants, who were very afraid of being punished; *rājā*—the King; *rahūgaṇaḥ*—Rahūgaṇa; *upāsita-vṛddhaḥ*—having served and heard from many elderly sages; *api*—in spite of; *nisargeṇa*—by his personal nature, which was that of a *kṣatriya*; *balāt*—by force; *kṛtaḥ*—done; *īṣat*—slightly; *utthita*—awakened; *manyuḥ*—whose anger; *avispaṣṭa*—not being distinctly visible; *brahma-tejasam*—his (Jaḍa Bharata's) spiritual effulgence; *jāta-vedasam*—a fire covered by ashes in Vedic ritualistic ceremonies; *iva*—like; *rajasā āvṛta*—covered by the mode of passion; *matiḥ*—whose mind; *āha*—said.

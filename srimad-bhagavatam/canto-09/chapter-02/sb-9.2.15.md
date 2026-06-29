@@ -1,5 +1,8 @@
 ### SB 9.2.15
 
+> कविः कनीयान्विषयेषु निःस्पृहो विसृज्य राज्यं सह बन्धुभिर्वनम
+> निवेश्य चित्ते पुरुषं स्वरोचिषं विवेश कैशोरवयाः परं गतः ॥१५॥
+
 > kaviḥ kanīyān viṣayeṣu niḥspṛho
 > visṛjya rājyaṁ saha bandhubhir vanam
 > niveśya citte puruṣaṁ sva-rociṣaṁ

@@ -1,5 +1,8 @@
 ### SB 2.9.8
 
+> दिव्यं सहस्राब्दममोघदर्शनो जितानिलात्मा विजितोभयेन्द्रियः ।
+> अतप्यत स्माखिललोकतापनं तपस्तपीयांस्तपतां समाहितः ॥८॥
+
 > divyaṁ sahasrābdam amogha-darśano
 > jitānilātmā vijitobhayendriyaḥ
 > atapyata smākhila-loka-tāpanaṁ

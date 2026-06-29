@@ -1,5 +1,8 @@
 ### CC Adi 5.230
 
+> সে বৈষ্ণবের পদরেণু, তার পদছায়া ।
+> অধমেরে দিল প্রভু-নিত্যানন্দ-দয়া ॥২৩০॥
+
 > se vaiṣṇavera pada-reṇu, tāra pada-chāyā
 > adhamere dila prabhu-nityānanda-dayā
 

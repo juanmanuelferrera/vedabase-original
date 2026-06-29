@@ -1,5 +1,7 @@
 ### SB 6.9.35
 
+> अथ तत्र भवान्किं देवदत्तवदिह गुणविसर्गपतितः पारतन्त्र्येण स्वकृतकुशलाकुशलंफलमुपाददात्याहोस्विदात्माराम उपशमशीलः समञ्जसदर्शन उदास्त इति ह वाव न विदामः ॥३५॥
+
 *atha tatra bhavān kiṁ devadattavad iha guṇa*-visarga-patitaḥ pāratantryeṇa sva-kṛta-kuśalākuśalaṁ phalam upādadāty āhosvid ātmārāma upaśama-śīlaḥ samañjasa-darśana udāsta iti ha vāva na vidāmaḥ.
 
 *atha*—portanto; *tatra*—nisso; *bhavān*—Vossa Onipotência; *kim*—acaso; *deva-datta-vat*—como um ser humano comum, forçado pelos frutos de suas atividades; *iha*—neste mundo material; *guṇa-visarga-patitaḥ*—caído em um corpo material impelido pelos modos da natureza material; *pāratantryeṇa*—pela dependência das condições de tempo, espaço, atividade e natureza; *sva-kṛta*—executado por si mesmo; *kuśala*—auspicioso; *akuśalam*—inauspicioso; *phalam*—resultados da ação; *upādadāti*—aceitais; *āhosvit*—ou; *ātmārāmaḥ*—completamente autossatisfeito; *upaśama-śīlaḥ*—de natureza autocontrolada; *samañjasa-darśanaḥ*—não privado das plenas potências espirituais; *udāste*—permaneceis neutro como a testemunha; *iti*—assim; *ha vāva*—certamente; *na vidāmaḥ*—não compreendemos.

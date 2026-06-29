@@ -1,5 +1,7 @@
 ### SB 5.20.24
 
+> एवं पुरस्तात्क्षीरोदात्परित उपवेशितः शाकद्वीपो द्वात्रिंशल्लक्षयोजनायामः समानेन चदधिमण्डोदेन परीतो यस्मिन्शाको नाम महीरुहः स्वक्षेत्रव्यपदेशको यस्य ह महासुरभिगन्धस्तं द्वीपमनुवासयति ॥२४॥
+
 *evaṁ purastāt kṣīrodāt parita upaveśitaḥ śākadvīpo dvātriṁśal*-lakṣa-yojanāyāmaḥ samānena ca dadhi-maṇḍodena parīto yasmin śāko nāma mahīruhaḥ sva-kṣetra-vyapadeśako yasya ha mahā-surabhi-gandhas taṁ dvīpam anuvāsayati.
 
 *evam*—assim; *purastāt*—para além; *kṣīra-udāt*—do oceano de leite; *paritaḥ*—ao redor; *upaveśitaḥ*—situada; *śāka-dvīpaḥ*—outra ilha, conhecida como Śākadvīpa; *dvā-triṁśat*—trinta e dois; *lakṣa*—100.000; *yojana*—yojanas; *āyāmaḥ*—cuja medida; *samānena*—de igual extensão; *ca*—e; *dadhi-maṇḍa-udena*—por um oceano contendo água semelhante a iogurte batido; *parītaḥ*—circundada; *yasmin*—na qual terra; *śākaḥ*—śāka; *nāma*—chamada; *mahīruhaḥ*—uma figueira; *sva-kṣetra-vyapadeśakaḥ*—dando à ilha seu nome; *yasya*—do qual; *ha*—de fato; *mahā-surabhi*—uma grande fragrância; *gandhaḥ*—aroma; *tam dvīpam*—essa ilha; *anuvāsayati*—torna fragrante.

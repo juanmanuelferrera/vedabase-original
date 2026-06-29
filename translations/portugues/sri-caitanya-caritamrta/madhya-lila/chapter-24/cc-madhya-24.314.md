@@ -1,5 +1,8 @@
 ### CC Madhya 24.314
 
+> অর্থ শুনি’ সনাতন বিস্মিত হঞা ।
+> স্তুতি করে মহাপ্রভুর চরণে ধরিয়া ॥৩১৪॥
+
 artha śuni' sanātana vismita hañā
 
 stuti kare mahāprabhura caraṇe dhariyā

@@ -1,5 +1,8 @@
 ### CC Madhya 14.134
 
+> অচেতনবৎ তারে করেন তাড়নে ।
+> নানামত গালি দেন ভণ্ড-বচনে ॥১৩৪॥
+
 > acetanavat tāre karena tāḍane
 > nānā-mata gāli dena bhaṇḍa-vacane
 

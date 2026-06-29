@@ -1,5 +1,8 @@
 ### SB 5.21.1
 
+> श्रीशुक उवाच
+> एतावानेव भूवलयस्य सन्निवेशः प्रमाणलक्षणतो व्याख्यातः ॥१॥
+
 śrī-śuka uvāca
 
 etāvān eva bhū-valayasya sanniveśaḥ pramāṇa-lakṣaṇato vyākhyātaḥ.

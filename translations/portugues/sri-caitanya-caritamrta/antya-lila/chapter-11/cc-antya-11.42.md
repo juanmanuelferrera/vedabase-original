@@ -1,5 +1,8 @@
 ### CC Antya 11.42
 
+> ‘ভকতবৎসল’ প্রভু, তুমি, মুই ‘ভক্তাভাস’ ।
+> অবশ্য পূরাবে, প্রভু, মোর এই আশ ।।” ॥ ৪২ ॥
+
 'bhakata-vatsala' prabhu, tumi, mui 'bhaktābhāsa'
 
 avaśya pūrābe, prabhu, mora ei āśa"

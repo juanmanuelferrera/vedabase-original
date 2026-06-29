@@ -1,5 +1,8 @@
 ### CC Madhya 10.160
 
+> আজি হৈতে না পরিব এই চর্মাম্বর ।
+> প্রভু বহির্বাস আনাইলা জানিয়া অন্তর ॥১৬০॥
+
 > āji haite nā pariba ei carmāmbara
 > prabhu bahirvāsa ānāilā jāniyā antara
 

@@ -1,5 +1,8 @@
 ### SB 5.6.4
 
+> नित्यं ददाति कामस्य च्छिद्रं तमनु येऽरयः
+> योगिनः कृतमैत्रस्य पत्युर्जायेव पुंश्चली ॥४॥
+
 > nityaṁ dadāti kāmasya
 > cchidraṁ tam anu ye 'rayaḥ
 > yoginaḥ kṛta-maitrasya

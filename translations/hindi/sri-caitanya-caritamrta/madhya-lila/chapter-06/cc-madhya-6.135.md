@@ -1,5 +1,8 @@
 ### CC Madhya 6.135
 
+> প্রমাণের মধ্যে শ্রুতি প্রমাণ — প্রধান ।
+> শ্রুতি যে মুখ্যার্থ কহে, সেই সে প্রমাণ ॥১৩৫॥
+
 > pramāṇera madhye śruti pramāṇa--pradhāna
 > śruti ye mukhyārtha kahe, sei se pramāṇa
 

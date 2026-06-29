@@ -1,5 +1,8 @@
 ### CC Madhya 9.306
 
+> কৃষ্ণকর্ণামৃত শুনি’ প্রভুর আনন্দ হৈল ।
+> আগ্রহ করিয়া পুঁথি লেখাঞা লৈল ॥৩০৬॥
+
 > kṛṣṇa-karṇāmṛta śuni' prabhura ānanda haila
 > āgraha kariyā puṅthi lekhāñā laila
 

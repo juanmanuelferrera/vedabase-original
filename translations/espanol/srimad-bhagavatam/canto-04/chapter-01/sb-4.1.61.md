@@ -1,5 +1,8 @@
 ### SB 4.1.61
 
+> तेभ्योऽग्नयः समभवन्चत्वारिंशच्च पञ्च च ।
+> त एवैकोनपञ्चाशत्साकं पितृपितामहैः ॥६१॥
+
 > tebhyo 'gnayaḥ samabhavan
 > catvāriṁśac ca pañca ca
 > ta evaikonapañcāśat

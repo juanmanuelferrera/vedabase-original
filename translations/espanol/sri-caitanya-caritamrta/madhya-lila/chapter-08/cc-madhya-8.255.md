@@ -1,5 +1,8 @@
 ### CC Madhya 8.255
 
+> ‘শ্রবণমধ্যে জীবের কোন্ শ্রেষ্ঠ শ্রবণ?’
+> ‘রাধাকৃষ্ণ-প্রেমকেলি কর্ণ-রসায়ন ৷৷’ ২৫৫ ৷৷ ॥২৫৫॥
+
 > 'śravaṇa-madhye jīvera kon śreṣṭha śravaṇa?'
 > 'rādhā-kṛṣṇa-prema-keli karṇa-rasāyana'
 

@@ -1,5 +1,8 @@
 ### SB 2.1.4
 
+> देहापत्यकलत्रादिष्वात्मसैन्येष्वसत्स्वपि ।
+> तेषां प्रमत्तो निधनं पश्यन्नपि न पश्यति ॥४॥
+
 > dehāpatya-kalatrādiṣv
 > ātma-sainyeṣv asatsv api
 > teṣāṁ pramatto nidhanaṁ

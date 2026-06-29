@@ -1,5 +1,8 @@
 ### CC Adi 17.123
 
+> মৃদঙ্গ-করতাল সংকীর্তন-মহাধ্বনি ।
+> ‘হরি’ ‘হরি’ — ধ্বনি বিনা অন্য নাহি শুনি ॥১২৩॥
+
 > mṛdaṅga-karatāla saṅkīrtana-mahādhvani
 > 'hari' 'hari'--dhvani vinā anya nāhi śuni
 

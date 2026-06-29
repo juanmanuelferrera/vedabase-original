@@ -1,5 +1,8 @@
 ### CC Madhya 20.183
 
+> সেই বপু ভিন্নাভাসে কিছু ভিন্নাকার ।
+> ভাবাবেশাকৃতি-ভেদে ‘তদেকাত্ম’ নাম তাঁর ॥১৮৩॥
+
 sei vapu bhinnābhāse kichu bhinnākāra
 
 bhāvāveśākṛti-bhede 'tad-ekātma' nāma tāṅra

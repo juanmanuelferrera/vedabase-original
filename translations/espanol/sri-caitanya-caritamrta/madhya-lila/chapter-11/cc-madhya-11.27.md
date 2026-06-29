@@ -3,6 +3,9 @@
 > tomāte ye eta prīti ha-ila rājāra
 > ei guṇe kṛṣṇa tāṅre karibe aṅgīkāra
 
+> tomāte ye eta prīti ha-ila rājāra
+> ei guṇe kṛṣṇa tāṅre karibe aṅgīkāra
+
 *tomāte*—a ti; *ye*—ese; *eta*—tanto; *prīti*—amor; *ha-ila*—hubo; *rājāra*—del rey; *ei guṇe*—por esta razón; *kṛṣṇa*—el Señor Kṛṣṇa; *tāṅre*—a él; *karibe aṅgīkāra*—aceptará.
 
 **«Debido a que el rey te ha demostrado tanto amor, el Señor Kṛṣṇa ciertamente lo aceptará.»**

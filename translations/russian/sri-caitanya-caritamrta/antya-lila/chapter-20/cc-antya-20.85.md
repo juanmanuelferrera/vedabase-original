@@ -1,5 +1,8 @@
 ### CC Antya 20.85
 
+> চৈতন্যমঙ্গলে তেঁহো লিখিয়াছেন স্থানে-স্থানে ।
+> সেই বচন শুন, সেই পরম-প্রমাণে ॥৮৫॥
+
 > caitanya-maṅgale teṅho likhiyāche sthāne-sthāne
 > sei vacana śuna, sei parama-pramāṇe
 

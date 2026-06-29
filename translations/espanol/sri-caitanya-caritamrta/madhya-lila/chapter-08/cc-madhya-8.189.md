@@ -1,5 +1,8 @@
 ### CC Madhya 8.189
 
+> রাত্রি-দিন কুঞ্জে ক্রীড়া করে রাধা-সঙ্গে ৷
+> কৈশোর বয়স সফল কৈল ক্রীড়া-রঙ্গে ৷৷ ১৮৯ ৷৷ ॥১৮৯॥
+
 > rātri-dina kuñje krīḍā kare rādhā-saṅge
 > kaiśora vayasa saphala kaila krīḍā-raṅge
 

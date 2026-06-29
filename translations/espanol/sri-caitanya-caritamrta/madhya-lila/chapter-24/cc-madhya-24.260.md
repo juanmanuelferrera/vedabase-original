@@ -1,5 +1,8 @@
 ### CC Madhya 24.260
 
+> নদী-তীরে একখানি কুটীর করিয়া  ।
+> তার আগে একপিণ্ডি তুলসী রোপিয়া ॥২৬০॥
+
 > nadī-tīre eka-khāni kuṭīra kariyā
 > tāra āge eka-piṇḍi tulasī ropiyā
 

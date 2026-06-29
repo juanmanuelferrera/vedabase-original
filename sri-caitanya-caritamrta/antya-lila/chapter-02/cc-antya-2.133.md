@@ -1,5 +1,8 @@
 ### CC Antya 2.133
 
+> এত বলি’ প্রভু যদি গোবিন্দে বোলাইলা ।
+> পুরীরে নমস্কার করি’ উঠিয়া চলিলা ॥১৩৩॥
+
 > eta bali' prabhu yadi govinde bolāilā
 > purīre namaskāra kari' uṭhiyā calilā
 

@@ -1,5 +1,8 @@
 ### CC Adi 10.122
 
+> নীলাচলে এই সব ভক্ত প্রভুসঙ্গে ।
+> দুই স্থানে প্রভু-সেবা কৈল নানা-রঙ্গে ॥১২২॥
+
 nīlācale ei saba bhakta prabhu-saṅge
 
 dui sthāne prabhu-sevā kaila nānā-raṅge

@@ -1,5 +1,10 @@
 ### CC Madhya 13.148
 
+> শুনিয়া রাধিকা-বাণী, ব্ৰজপ্রেম মনে আনি,
+> ভাবে ব্যাকুলিত দেহ-মন ।
+> ব্রজলোকের প্রেম শুনি’, আপনাকে ‘ঋণী’ মানি’,
+> করে কৃষ্ণ তাঁরে আশ্বাসন ॥১৪৮॥
+
 > śuniyā rādhikā-vāṇī, vraja-prema mane āni,
 > bhāve vyākulita deha-mana
 > vraja-lokera prema śuni', āpanāke 'ṛṇī' māni',

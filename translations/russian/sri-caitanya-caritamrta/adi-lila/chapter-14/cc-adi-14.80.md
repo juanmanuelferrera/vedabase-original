@@ -1,5 +1,8 @@
 ### CC Adi 14.80
 
+> শচী কহে, — আর এক অদ্ভুত দেখিল ।
+> দিব্য দিব্য লোক আসি’ অঙ্গন ভরিল ॥৮০॥
+
 > śacī kahe,—āra eka adbhuta dekhila
 > divya divya loka āsi' aṅgana bharila
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.104
 
+> কোন প্রকারে হরিদাসের ছিদ্র নাহি পায় ।
+> বেশ্যাগণে আনি’ করে ছিদ্রের উপায় ॥১০৪॥
+
 > kona-prakāre haridāsera chidra nāhi pāya
 > veśyā-gaṇe āni' kare chidrera upāya
 

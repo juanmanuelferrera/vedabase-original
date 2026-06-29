@@ -1,5 +1,8 @@
 ### CC Madhya 8.12
 
+> সেই বনে কতক্ষণ করি’ নৃত্য-গান ।
+> গোদাবরী পার হঞা তাহাঁ কৈল স্নান ॥১২॥
+
 > sei vane kata-kṣaṇa kari' nṛtya-gāna
 > godāvarī pāra hañā tāhāṅ kaila snāna
 

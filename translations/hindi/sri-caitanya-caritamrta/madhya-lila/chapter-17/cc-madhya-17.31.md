@@ -1,5 +1,8 @@
 ### CC Madhya 17.31
 
+> প্রভু জল-কৃত্য করে, আগে হস্তী আইলা ।
+> ‘কৃষ্ণ কহ’ বলি’ প্রভু জল ফেলি’ মারিলা ॥৩১॥
+
 > prabhu jala-kṛtya kare, āge hastī āilā
 > 'kṛṣṇa kaha' bali' prabhu jala pheli' mārilā
 

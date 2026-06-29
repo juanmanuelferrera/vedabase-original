@@ -1,5 +1,8 @@
 ### CC Madhya 12.7
 
+> প্ৰভুর নিকটে আছে যত ভক্তগণ  ।
+> মোর লাগি’ তাঁ-সবারে করিহ নিবেদন ॥৭॥
+
 > prabhura nikaṭe āche yata bhakta-gaṇa
 > mora lāgi' tāṅ-sabāre kariha nivedana
 

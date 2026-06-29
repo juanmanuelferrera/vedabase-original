@@ -1,5 +1,8 @@
 ### CC Madhya 22.159
 
+> নিজাভীষ্ট কৃষ্ণপ্রেষ্ঠ পাছেত’ লাগিয়া ।
+> নিরন্তর সেবা করে অন্তর্মনা হঞা ॥১৫৯॥
+
 > nijābhīṣṭa kṛṣṇa-preṣṭha pācheta' lāgiyā
 > nirantara sevā kare antarmanā hañā
 

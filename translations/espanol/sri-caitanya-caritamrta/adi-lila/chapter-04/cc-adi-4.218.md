@@ -1,5 +1,8 @@
 ### CC Adi 4.218
 
+> কৃষ্ণের বল্লভা রাধা কৃষ্ণ-প্রাণধন ।
+> তাঁহা বিনু সুখহেতু নহে গোপীগণ ॥২১৮॥
+
 > kṛṣṇera vallabhā rādhā kṛṣṇa-prāṇa-dhana
 > tāṅhā vinu sukha-hetu nahe gopī-gaṇa
 

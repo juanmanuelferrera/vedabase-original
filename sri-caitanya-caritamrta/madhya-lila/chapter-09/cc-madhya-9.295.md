@@ -1,5 +1,8 @@
 ### CC Madhya 9.295
 
+> শ্রীমাধব-পুরীর সঙ্গে শ্রীরঙ্গ-পুরী ।
+> পূর্বে আসিয়াছিলা তেঁহো নদীয়া-নগরী ॥২৯৫॥
+
 > śrī-mādhava-purīra saṅge śrī-raṅga-purī
 > pūrve āsiyāchilā teṅho nadīyā-nagarī
 

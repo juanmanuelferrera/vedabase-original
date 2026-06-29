@@ -1,5 +1,8 @@
 ### SB 1.13.18
 
+> विदुरस्तदभिप्रेत्य धृतराष्ट्रमभाषत ।
+> राजन्निर्गम्यतां शीघ्रं पश्येदं भयमागतम् ॥१८॥
+
 > viduras tad abhipretya
 > dhṛtarāṣṭram abhāṣata
 > rājan nirgamyatāṁ śīghraṁ

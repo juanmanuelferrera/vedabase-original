@@ -1,5 +1,8 @@
 ### CC Madhya 24.232
 
+> আর কতদূরে এক দেখেন শূকর ।
+> তৈছে বিদ্ধ ভগ্নপাদ করে ধড়্ফড় ॥২৩২॥
+
 āra kata-dūre eka dekhena śūkara
 
 taiche viddha bhagna-pāda kare dhaḍ-phaḍa

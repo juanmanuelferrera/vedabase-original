@@ -1,5 +1,8 @@
 ### SB 4.3.24
 
+> तत्ते निरीक्ष्यो न पितापि देहकृद्दक्षो मम द्विट्तदनुव्रताश्च ये ।
+> यो विश्वसृग्यज्ञगतं वरोरु मामनागसं दुर्वचसाकरोत्तिरः ॥२४॥
+
 > tat te nirīkṣyo na pitāpi deha-kṛd
 > dakṣo mama dviṭ tad-anuvratāś ca ye
 > yo viśvasṛg-yajña-gataṁ varoru mām

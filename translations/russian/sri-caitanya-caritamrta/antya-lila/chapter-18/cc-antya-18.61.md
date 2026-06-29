@@ -1,5 +1,8 @@
 ### CC Antya 18.61
 
+> ‘আমি — বড় ওঝা জানি ভূত ছাড়াইতে’ ।
+> মন্ত্র পড়ি’ শ্রীহস্ত দিলা তাহার মাথাতে ॥৬১॥
+
 > 'āmi—baḍa ojhā jāni bhūta chāḍāite'
 > mantra paḍi' śrī-hasta dilā tāhāra māthāte
 

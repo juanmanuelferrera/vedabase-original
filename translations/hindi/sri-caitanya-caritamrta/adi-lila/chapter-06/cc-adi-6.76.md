@@ -1,5 +1,8 @@
 ### CC Adi 6.76
 
+> আনের কি কথা, বলদেব মহাশয়  ।
+> যাঁর ভাব — শুদ্ধসখ্য-বাৎসল্যাদিময় ॥৭৬॥
+
 > ānera ki kathā, baladeva mahāśaya
 > yāṅra bhāva—śuddha-sakhya-vātsalyādi-maya
 

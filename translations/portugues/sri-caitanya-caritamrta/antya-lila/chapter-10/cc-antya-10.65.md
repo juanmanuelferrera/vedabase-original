@@ -1,5 +1,8 @@
 ### CC Antya 10.65
 
+> এইমত কতক্ষণ করাইলা কীর্তন ।
+> আপনে নাচিতে তবে প্রভুর হৈল মন ॥৬৫॥
+
 ei-mata kata-kṣaṇa karāilā kīrtana
 
 āpane nācite tabe prabhura haila mana

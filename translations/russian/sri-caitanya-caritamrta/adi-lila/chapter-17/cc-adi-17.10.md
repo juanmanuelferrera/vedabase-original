@@ -1,5 +1,8 @@
 ### CC Adi 17.10
 
+> শচীকে প্রেমদান, তবে অদ্বৈত-মিলন ।
+> অদ্বৈত পাইল বিশ্বরূপ-দরশন ॥১০॥
+
 > śacīke prema-dāna, tabe advaita-milana
 > advaita pāila viśvarūpa-daraśana
 

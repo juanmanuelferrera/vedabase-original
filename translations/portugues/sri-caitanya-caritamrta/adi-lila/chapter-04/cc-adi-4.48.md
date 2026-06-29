@@ -1,5 +1,8 @@
 ### CC Adi 4.48
 
+> ব্রজবধূগণের এই ভাব নিরবধি ।
+> তার মধ্যে শ্রীরাধায় ভাবের অবধি ॥৪৮॥
+
 vraja-vadhū-gaṇera ei bhāva niravadhi
 tāra madhye śrī-rādhāya bhāvera avadhi
 

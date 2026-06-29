@@ -1,5 +1,8 @@
 ### CC Madhya 20.187
 
+> ব্রজে গোপভাব রামের, পুরে ক্ষত্রিয়-ভাবন ।
+> বর্ণ-বেশ-ভেদ, তাতে ‘বিলাস’ তাঁর নাম ॥১৮৭॥
+
 > vraje gopa-bhāva rāmera, pure kṣatriya-bhāvana
 > varṇa-veśa-bheda, tāte 'vilāsa' tāṅra nāma
 

@@ -1,5 +1,10 @@
 ### CC Madhya 25.85
 
+> নৈষাং মতিস্তাবদুরুক্রমাঙ্ঘ্রিং
+> স্পৃশত্যনর্থাপগমো যদর্থঃ ।
+> মহীয়সাং পাদরজোঽভিষেকং
+> নিষ্কিঞ্চনানাং ন বৃণীত যাবৎ ॥৮৫॥
+
 > naiṣāṁ matis tāvad urukramāṅghriṁ
 > spṛśaty anarthāpagamo yad-arthaḥ
 > mahīyasāṁ pāda-rajo-'bhiṣekaṁ

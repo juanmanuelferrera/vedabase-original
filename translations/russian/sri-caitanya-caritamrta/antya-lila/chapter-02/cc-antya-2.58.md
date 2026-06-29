@@ -1,5 +1,8 @@
 ### CC Antya 2.58
 
+> পাক-সামগ্রী আনহ, আমি যাহা চাই ।’
+> যে মাগিল, শিবানন্দ আনি’ দিলা তাই ॥৫৮॥
+
 > pāka-sāmagrī ānaha, āmi yāhā cāi'
 > ye māgila, śivānanda āni' dilā tāi
 

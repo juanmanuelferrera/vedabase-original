@@ -1,5 +1,7 @@
 ### CC Madhya 13.185
 
+> তথাপি আপন-গণে করিতে সাবধান । বাহ্যে কিছু রোষাভাস কৈলা ভগবান্ ॥১৮৫॥
+
 > tathāpi āpana-gaṇe karite sāvadhāna
 > bāhye kichu roṣābhāsa kailā bhagavān
 

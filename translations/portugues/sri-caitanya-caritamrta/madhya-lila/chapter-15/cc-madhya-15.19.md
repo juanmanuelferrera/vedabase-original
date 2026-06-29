@@ -1,5 +1,8 @@
 ### CC Madhya 15.19
 
+> কানাঞি-খুটিয়া আছেন ‘নন্দ’-বেশ ধরি’ ।
+> জগন্নাথ মাহাতি হঞাছেন ‘ব্রজেশ্বরী’ ॥১৯॥
+
 kānāñi-khuṭiyā āchena 'nanda'-veśa dhari'
 
 jagannātha-māhāti hañāchena 'vrajeśvarī'

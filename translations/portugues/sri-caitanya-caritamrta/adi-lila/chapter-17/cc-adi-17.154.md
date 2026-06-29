@@ -1,5 +1,8 @@
 ### CC Adi 17.154
 
+> পিতা-মাতা মারি’ খাও — এবা কোন্ ধর্ম ।
+> কোন্ বলে কর তুমি এমত বিকর্ম ॥১৫৪॥
+
 pitā-mātā māri' khāo--ebā kon dharma
 
 kon bale kara tumi e-mata vikarma

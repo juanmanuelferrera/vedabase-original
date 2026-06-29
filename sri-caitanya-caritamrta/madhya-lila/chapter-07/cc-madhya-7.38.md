@@ -1,5 +1,8 @@
 ### CC Madhya 7.38
 
+> প্রেমাবেশে পথে তুমি হবে অচেতন ।
+> এ-সব সামগ্রী তোমার কে করে রক্ষণ ॥৩৮॥
+
 > premāveśe pathe tumi habe acetana
 > e-saba sāmagrī tomāra ke kare rakṣaṇa
 

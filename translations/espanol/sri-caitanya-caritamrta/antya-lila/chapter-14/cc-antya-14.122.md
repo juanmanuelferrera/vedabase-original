@@ -1,5 +1,8 @@
 ### CC Antya 14.122
 
+> সংক্ষেপে কহিয়া করি দিক্ দরশন ।
+> যেই ইহা শুনে, পায় কৃষ্ণের চরণ ॥১২২॥
+
 > saṅkṣepe kahiyā kari dik daraśana
 > yei ihā śune, pāya kṛṣṇera caraṇa
 

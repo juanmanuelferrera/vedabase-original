@@ -1,5 +1,8 @@
 ### CC Madhya 9.81
 
+> প্রেমাবেশে কৈল বহুত গান নর্তন ।
+> দেখি’ চমৎকার হৈল সব লোকের মন ॥৮১॥
+
 > premāveśe kaila bahuta gāna nartana
 > dekhi' camatkāra haila saba lokera mana
 

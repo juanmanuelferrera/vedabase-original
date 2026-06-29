@@ -1,5 +1,8 @@
 ### SB 2.10.13
 
+> एको नानात्वमन्विच्छन्योगतल्पात्समुत्थितः ।
+> वीर्यं हिरण्मयं देवो मायया व्यसृजत्त्रिधा ॥१३॥
+
 > eko nānātvam anvicchan
 > yoga-talpāt samutthitaḥ
 > vīryaṁ hiraṇmayaṁ devo

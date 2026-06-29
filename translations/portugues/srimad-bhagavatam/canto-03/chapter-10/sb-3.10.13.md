@@ -1,5 +1,7 @@
 ### SB 3.10.13
 
+> यथेदानीं तथाग्रे च पश्चादप्येतदीदृश ॥१३॥
+
 yathedānīṁ tathāgre ca
 
 paścād apy etad īdṛśam

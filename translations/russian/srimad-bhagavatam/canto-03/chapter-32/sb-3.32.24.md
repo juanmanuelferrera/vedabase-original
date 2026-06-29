@@ -1,5 +1,8 @@
 ### SB 3.32.24
 
+> यदास्य चित्तमर्थेषु समेष्विन्द्रियवृत्तिभिः ।
+> न विगृह्णाति वैषम्यं प्रियमप्रियमित्युत ॥२४॥
+
 > yadāsya cittam artheṣu
 > sameṣv indriya-vṛttibhiḥ
 > na vigṛhṇāti vaiṣamyaṁ

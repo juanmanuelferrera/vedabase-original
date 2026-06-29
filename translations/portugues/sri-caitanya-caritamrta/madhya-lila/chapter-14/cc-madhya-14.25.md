@@ -1,5 +1,8 @@
 ### CC Madhya 14.25
 
+> ‘বলগণ্ডি ভোগে’র প্রসাদ — উত্তম, অনন্ত ।
+> ‘নি-সকড়ি’ প্রসাদ আইল, যার নাহি অন্ত ॥২৫॥
+
 'balagaṇḍi bhoge'ra prasāda-uttama, ananta
 
 'ni-sakaḍi' prasāda āila, yāra nāhi anta

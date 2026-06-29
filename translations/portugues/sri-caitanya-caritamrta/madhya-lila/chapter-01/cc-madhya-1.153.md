@@ -1,5 +1,8 @@
 ### CC Madhya 1.153
 
+> কুলিয়া-গ্রামে কৈল দেবানন্দেরে প্রসাদ ।
+> গোপাল-বিপ্রেরে ক্ষমাইল শ্রীবাসাপরাধ ॥১৫৩॥
+
 kuliyā-grāme kaila devānandere prasāda
 
 gopāla-viprere kṣamāila śrīvāsāparādha

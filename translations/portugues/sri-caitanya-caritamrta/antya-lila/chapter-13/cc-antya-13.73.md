@@ -1,5 +1,8 @@
 ### CC Antya 13.73
 
+> সনাতনের নামে পণ্ডিত দণ্ডবৎ কৈলা ।
+> রাসস্থলীর ধূলি আদি সব ভেট দিলা ॥৭৩॥
+
 sanātanera nāme paṇḍita daṇḍavat kailā
 
 rāsa-sthalīra dhūli ādi saba bheṭa dilā

@@ -1,5 +1,8 @@
 ### CC Madhya 4.76
 
+> অনেক ঘট ভরি’ দিল সুবাসিত জল ।
+> বহুদিনের ক্ষুধায় গোপাল খাইল সকল ॥৭৬॥
+
 > aneka ghaṭa bhari' dila suvāsita jala
 > bahu-dinera kṣudhāya gopāla khāila sakala
 

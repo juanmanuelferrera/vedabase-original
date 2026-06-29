@@ -1,5 +1,8 @@
 ### CC Madhya 4.57
 
+> কেহ গায়, কেহ নাচে, মহোৎসব হৈল ।
+> দধি, দুগ্ধ, ঘৃত আইল গ্রামে যত ছিল ॥৫৭॥
+
 > keha gāya, keha nāce, mahotsava haila
 > dadhi, dugdha, ghṛta āila grāme yata chila
 

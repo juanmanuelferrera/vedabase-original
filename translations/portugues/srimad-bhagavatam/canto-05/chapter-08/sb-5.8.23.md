@@ -1,5 +1,7 @@
 ### SB 5.8.23
 
+> किं वा अरे आचरितं तपस्तपस्विन्यानया यदियमवनिः सविनयकृष्णसारतनयतनुतरसुभगशिवतमाखरखुरपदपङ्क्तिभिर्द्रविणविधुरातुरस्य कृपणस्य मम द्रविणपदवींसूचयन्त्यात्मानं च सर्वतः कृतकौतुकं द्विजानां स्वर्गापवर्गकामानां देवयजनं करोति ॥२३॥
+
 *kiṁ vā are ācaritaṁ tapas tapasvinyānayā yad iyam avaniḥ savinaya*-kṛṣṇa-sāra-tanaya-tanutara-subhaga-śivatamākhara-khura-pada-paṅktibhir draviṇa-vidhurāturasya kṛpaṇasya mama draviṇa-padavīṁ sūcayanty ātmānaṁ ca sarvataḥ kṛta-kautukaṁ dvijānāṁ svargāpavarga-kāmānāṁ deva-yajanaṁ karoti.
 
 *kim vā*—quê; *are*—oh; *ācaritam*—praticada; *tapaḥ*—penitência; *tapasvinyā*—pela mais afortunada; *anayā*—este planeta Terra; *yat*—visto que; *iyam*—esta; *avaniḥ*—terra; *sa-vinaya*—muito dócil e bem-comportado; *kṛṣṇa-sāra-tanaya*—do filhote do cervo negro; *tanutara*—pequenas; *subhaga*—belas; *śiva-tama*—muito auspiciosas; *akhara*—macias; *khura*—dos cascos; *pada-paṅktibhiḥ*—pela série das marcas; *draviṇa-vidhura-āturasya*—que está muito atribulado por causa da perda da riqueza; *kṛpaṇasya*—a criatura mais infeliz; *mama*—para mim; *draviṇa-padavīm*—o caminho para alcançar essa riqueza; *sūcayanti*—indicando; *ātmānam*—seu próprio corpo; *ca*—e; *sarvataḥ*—de todos os lados; *kṛta-kautukam*—ornado; *dvijānām*—dos *brāhmaṇas*; *svarga-apavarga-kāmānām*—que desejam alcançar os planetas celestiais ou a liberação; *deva-yajanam*—um lugar de sacrifício aos semideuses; *karoti*—torna.

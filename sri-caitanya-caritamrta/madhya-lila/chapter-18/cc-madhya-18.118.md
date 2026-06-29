@@ -1,5 +1,8 @@
 ### CC Madhya 18.118
 
+> ‘আকৃত্যে’ তোমারে দেখি ‘ব্রজেন্দ্র-নন্দন’  ।
+> দেহকান্তি পীতাম্বর কৈল আচ্ছাদন ॥১১৮॥
+
 > 'ākṛtye' tomāre dekhi 'vrajendra-nandana'
 > deha-kānti pītāmbara kaila ācchādana
 

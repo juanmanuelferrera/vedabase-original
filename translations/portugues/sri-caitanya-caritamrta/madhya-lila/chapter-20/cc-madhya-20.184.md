@@ -1,5 +1,8 @@
 ### CC Madhya 20.184
 
+> তদেকাত্মরূপে ‘বিলাস’, ‘স্বাংশ’ — দুই ভেদ ।
+> বিলাস, স্বাংশের ভেদে বিবিধ বিভেদ ॥১৮৪॥
+
 tad-ekātma-rūpe 'vilāsa', 'svāṁśa'--dui bheda
 
 vilāsa, svāṁśera bhede vividha vibheda

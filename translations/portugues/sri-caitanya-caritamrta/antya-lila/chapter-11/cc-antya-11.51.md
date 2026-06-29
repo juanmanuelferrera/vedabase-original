@@ -1,5 +1,8 @@
 ### CC Antya 11.51
 
+> হরিদাসের গুণ কহিতে প্রভু হইলা পঞ্চমুখ ।
+> কহিতে কহিতে প্রভুর বাড়ে মহাসুখ ॥৫১॥
+
 haridāsera guṇa kahite prabhu ha-ilā pañca-mukha
 
 kahite kahite prabhura bāḍe mahā-sukha

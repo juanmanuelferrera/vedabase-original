@@ -1,5 +1,8 @@
 ### CC Antya 18.33
 
+> ইহাঁ স্বরূপাদিগণ প্রভু না দেখিয়া ।
+> ‘কাহাঁ গেলা প্রভু?’ কহে চমকিত হঞা ॥৩৩॥
+
 > ihāṅ svarūpādi-gaṇa prabhu nā dekhiyā
 > 'kāhāṅ gelā prabhu?' kahe camakita hañā
 

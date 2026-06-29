@@ -1,5 +1,8 @@
 ### CC Madhya 4.150
 
+> গোপাল চন্দন মাগে, — শুনি’ ভক্তগণ ।
+> আনন্দে চন্দন লাগি’ করিল যতন ॥১৫০॥
+
 > gopāla candana māge,—śuni' bhakta-gaṇa
 > ānande candana lāgi' karila yatana
 

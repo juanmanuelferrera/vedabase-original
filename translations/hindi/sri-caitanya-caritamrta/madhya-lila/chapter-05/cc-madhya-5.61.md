@@ -1,5 +1,8 @@
 ### CC Madhya 5.61
 
+> সব ধন লঞা কহে — ‘চোরে লইল ধন ।’
+> ‘কন্যা দিতে চাহিয়াছে’ — উঠাইল বচন ॥৬১॥
+
 > saba dhana lañā kahe--'core la-ila dhana'
 > 'kanyā dite cāhiyāche'--uṭhāila vacana
 

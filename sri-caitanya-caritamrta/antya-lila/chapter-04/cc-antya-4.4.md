@@ -1,5 +1,8 @@
 ### CC Antya 4.4
 
+> ঝারিখণ্ড-বনপথে আইলা একেলা চলিয়া ।
+> কভু উপবাস, কভু চর্বণ করিয়া ॥৪॥
+
 > jhārikhaṇḍa-vanapathe āilā ekelā caliyā
 > kabhu upavāsa, kabhu carvaṇa kariyā
 

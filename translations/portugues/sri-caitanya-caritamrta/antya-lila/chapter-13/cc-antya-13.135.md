@@ -1,5 +1,8 @@
 ### CC Antya 13.135
 
+> মহাপ্রভুর কৃপায় কৃষ্ণপ্রেম অনর্গল ।
+> এই ত’ কহিলুঁ তাতে চৈতন্য-কৃপাফল ॥১৩৫॥
+
 mahāprabhura kṛpāya kṛṣṇa-prema anargala
 
 ei ta' kahiluṅ tāte caitanya-kṛpā-phala

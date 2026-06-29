@@ -1,5 +1,7 @@
 ### SB 5.17.6
 
+> सीता तु ब्रह्मसदनात्केसराचलादिगिरिशिखरेभ्योऽधोऽधः प्रस्रवन्ती गन्धमादनमूर्धसुपतित्वान्तरेण भद्राश्ववर्षं प्राच्यां दिशि क्षारसमुद्रमभिप्रविशति ॥६॥
+
 > sītā tu brahma-sadanāt kesarācalādi-giri-śikharebhyo 'dho 'dhaḥ prasravantī gandhamādana-mūrdhasu patitvāntareṇa bhadrāśva-varṣaṁ prācyāṁ diśi kṣāra-samudram abhipraviśati.
 
 *sītā*—the branch known as Sītā; *tu*—certainly; *brahma-sadanāt*—from Brahmapurī; *kesarācala-ādi*—of Kesarācala and of other great mountains; *giri*—hills; *śikharebhyaḥ*—from the tops; *adhaḥ adhaḥ*—downward; *prasravantī*—flowing; *gandhamādana*—of Gandhamādana Mountain; *mūrdhasu*—on the top; *patitvā*—falling down; *antareṇa*—within; *bhadrāśva-varṣam*—the province known as Bhadrāśva; *prācyām*—in the western; *diśi*—direction; *kṣāra-samudram*—the ocean of salt water; *abhipraviśati*—enters.

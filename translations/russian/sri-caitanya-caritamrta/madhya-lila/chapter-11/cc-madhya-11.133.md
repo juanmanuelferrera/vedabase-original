@@ -1,5 +1,8 @@
 ### CC Madhya 11.133
 
+> ভট্টাচার্য, আচার্য তবে মহাপ্রভুর স্থানে ।
+> যথাযোগ্য মিলিলা সবাকার সনে ॥১৩৩॥
+
 > bhaṭṭācārya, ācārya tabe mahāprabhura sthāne
 > yathā-yogya mililā sabākāra sane
 

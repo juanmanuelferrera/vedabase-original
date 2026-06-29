@@ -1,5 +1,8 @@
 ### SB 4.28.60
 
+> न त्वं विदर्भदुहिता नायं वीरः सुहृत्तव ।
+> न पतिस्त्वं पुरञ्जन्या रुद्धो नवमुखे यया ॥६०॥
+
 > na tvaṁ vidarbha-duhitā
 > nāyaṁ vīraḥ suhṛt tava
 > na patis tvaṁ purañjanyā

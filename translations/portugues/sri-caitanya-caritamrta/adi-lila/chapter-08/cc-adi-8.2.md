@@ -1,5 +1,8 @@
 ### CC Adi 8.2
 
+> জয় জয় শ্রীকৃষ্ণচৈতন্য গৌরচন্দ্র ।
+> জয় জয় পরমানন্দ জয় নিত্যানন্দ ॥২॥
+
 jaya jaya śrī-kṛṣṇa-caitanya gauracandra
 jaya jaya paramānanda jaya nityānanda
 

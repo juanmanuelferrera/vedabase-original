@@ -1,5 +1,8 @@
 ### CC Madhya 3.207
 
+> ঘরে গিয়া কর সবে কৃষ্ণসংকীর্তন ।
+> পুনরপি আমা-সঙ্গে হইবে মিলন ॥২০৭॥
+
 ghare giyā kara sabe kṛṣṇa-saṅkīrtana
 punarapi āmā-saṅge ha-ibe milana
 

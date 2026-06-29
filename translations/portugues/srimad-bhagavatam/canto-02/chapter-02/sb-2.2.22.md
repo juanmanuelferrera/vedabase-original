@@ -1,5 +1,8 @@
 ### SB 2.2.22
 
+> यदि प्रयास्यन्नृप पारमेष्ठ्यं वैहायसानामुत यद्विहारम् ।
+> अष्टाधिपत्यं गुणसन्निवाये सहैव गच्छेन्मनसेन्द्रियैश्च ॥२२॥
+
 yadi prayāsyan nṛpa pārameṣṭhyaṁ
 vaihāyasānām uta yad vihāram
 aṣṭādhipatyaṁ guṇa-sannivāye

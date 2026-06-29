@@ -1,5 +1,8 @@
 ### SB 4.8.71
 
+> तत्राभिषिक्तः प्रयतस्तामुपोष्य विभावरीम् ।
+> समाहितः पर्यचरदृष्यादेशेन पूरुषम् ॥७१॥
+
 > tatrābhiṣiktaḥ prayatas
 > tām upoṣya vibhāvarīm
 > samāhitaḥ paryacarad

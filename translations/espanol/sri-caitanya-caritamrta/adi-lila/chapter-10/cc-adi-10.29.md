@@ -1,5 +1,8 @@
 ### CC Adi 10.29
 
+> প্রভুর অত্যন্ত প্রিয় — পণ্ডিত গঙ্গাদাস ।
+> যাঁহার স্মরণে হয় সর্ববন্ধ-নাশ ॥২৯॥
+
 > prabhura atyanta priya--paṇḍita gaṅgādāsa
 > yāṅhāra smaraṇe haya sarva-bandha-nāśa
 

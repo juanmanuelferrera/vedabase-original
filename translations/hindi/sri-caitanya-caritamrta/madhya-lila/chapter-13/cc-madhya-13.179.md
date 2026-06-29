@@ -1,5 +1,8 @@
 ### CC Madhya 13.179
 
+> কভু সুখে নৃত্যরঙ্গ দেখে রথ রাখি’ ।
+> সে কৌতুক যে দেখিল, সেই তার সাক্ষী ॥১৭৯॥
+
 > kabhu sukhe nṛtya-raṅga dekhe ratha rākhi'
 > se kautuka ye dekhila, sei tāra sākṣī
 

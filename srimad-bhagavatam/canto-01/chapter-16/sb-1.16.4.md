@@ -1,5 +1,8 @@
 ### SB 1.16.4
 
+> निजग्राहौजसा वीरः कलिं दिग्विजये क्वचित् ।
+> नृपलिङ्गधरं शूद्रं घ्नन्तं गोमिथुनं पदा ॥४॥
+
 > nijagrāhaujasā vīraḥ
 > kaliṁ digvijaye kvacit
 > nṛpa-liṅga-dharaṁ śūdraṁ

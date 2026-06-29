@@ -1,5 +1,8 @@
 ### CC Madhya 1.10
 
+> এবে কহি শেষলীলার মুখ্য সূত্রগণ ।
+> প্রভুর অশেষ লীলা না যায় বর্ণন ॥১০॥
+
 ebe kahi śeṣa-līlāra mukhya sūtra-gaṇa
 prabhura aśeṣa līlā nā yāya varṇana
 

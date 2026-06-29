@@ -1,5 +1,8 @@
 ### CC Madhya 9.169
 
+> তিনদিন প্রেমে দোঁহে কৃষ্ণকথা-রঙ্গে ।
+> সেই বিপ্র-ঘরে দোঁহে রহে-একসঙ্গে ॥১৬৯॥
+
 > tina-dina preme doṅhe kṛṣṇa-kathā-raṅge
 > sei vipra-ghare doṅhe rahe eka-saṅge
 

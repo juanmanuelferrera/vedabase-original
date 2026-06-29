@@ -1,5 +1,8 @@
 ### CC Madhya 23.94
 
+> এই রস অনুভবে যৈছে ভক্তগণ ।
+> যৈছে রস হয়, শুন তাহার লক্ষণ ॥৯৪॥
+
 ei rasa anubhave yaiche bhakta-gaṇa
 
 yaiche rasa haya, śuna tāhāra lakṣaṇa

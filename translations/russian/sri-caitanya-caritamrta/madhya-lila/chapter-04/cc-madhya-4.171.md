@@ -1,5 +1,8 @@
 ### CC Madhya 4.171
 
+> প্রভু কহে, — নিত্যানন্দ, করহ বিচার ।
+> পুরী-সম ভাগ্যবান্ জগতে নাহি আর ॥১৭১॥
+
 > prabhu kahe,—nityānanda, karaha vicāra
 > purī-sama bhāgyavān jagate nāhi āra
 

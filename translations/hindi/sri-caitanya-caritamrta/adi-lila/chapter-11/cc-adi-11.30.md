@@ -1,5 +1,8 @@
 ### CC Adi 11.30
 
+> জগদীশ পণ্ডিত হয় জগৎ-পাবন ।
+> কৃষ্ণপ্রেমামৃত বর্ষে, যেন বর্ষা ঘন ॥৩০॥
+
 > jagadīśa paṇḍita haya jagat-pāvana
 > kṛṣṇa-premāmṛta varṣe, yena varṣā ghana
 

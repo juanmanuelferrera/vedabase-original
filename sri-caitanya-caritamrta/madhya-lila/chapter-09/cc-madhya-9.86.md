@@ -1,5 +1,8 @@
 ### CC Madhya 9.86
 
+> তাঁর ঘরে রহিলা প্রভু কৃষ্ণকথা-রসে ।
+> ভট্টসঙ্গে গোঙাইল সুখে চারি মাসে ॥৮৬॥
+
 > tāṅra ghare rahilā prabhu kṛṣṇa-kathā-rase
 > bhaṭṭa-saṅge goṅāila sukhe cāri māse
 

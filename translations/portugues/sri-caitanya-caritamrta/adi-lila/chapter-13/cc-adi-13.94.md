@@ -1,5 +1,8 @@
 ### CC Adi 13.94
 
+> জগৎ ভরিয়া লোক বলে — ‘হরি’ ‘হরি’ ।
+> সেইক্ষণে গৌরকৃষ্ণ ভূমে অবতরি ॥৯৪॥
+
 jagat bhariyā loka bale--'hari' 'hari'
 sei-kṣaṇe gaurakṛṣṇa bhūme avatari
 

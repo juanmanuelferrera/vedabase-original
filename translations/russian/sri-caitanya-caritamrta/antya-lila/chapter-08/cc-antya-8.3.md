@@ -1,5 +1,8 @@
 ### CC Antya 8.3
 
+> জয় জয় অবধূতচন্দ্র নিত্যানন্দ ।
+> জগৎ বাঁধিল যেঁহ দিয়া প্রেমফাঁদ ॥৩॥
+
 > jaya jaya avadhūta-candra nityānanda
 > jagat bāṅdhila yeṅha diyā prema-phāṅda
 

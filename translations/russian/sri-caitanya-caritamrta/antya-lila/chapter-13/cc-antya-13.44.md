@@ -1,5 +1,8 @@
 ### CC Antya 13.44
 
+> মথুরাতে আসি’ মিলিলা সনাতনে ।
+> দুইজনের সঙ্গে দুঁহে আনন্দিত মনে ॥৪৪॥
+
 > mathurāte āsi' mililā sanātane
 > dui-janera saṅge duṅhe ānandita mane
 

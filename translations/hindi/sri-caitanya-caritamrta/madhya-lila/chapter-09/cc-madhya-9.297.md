@@ -1,5 +1,8 @@
 ### CC Madhya 9.297
 
+> জগন্নাথের ব্রাহ্মণী, তেঁহ — মহা-পতিব্রতা ।
+> বাৎসল্যে হয়েন তেঁহ যেন জগন্মাতা ॥২৯৭॥
+
 > jagannāthera brāhmaṇī, teṅha--mahā-pativratā
 > vātsalye hayena teṅha yena jagan-mātā
 

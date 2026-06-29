@@ -1,5 +1,8 @@
 ### CC Adi 9.47
 
+> এই আজ্ঞা কৈল যদি চৈতন্য-মালাকার ।
+> পরম আনন্দ পাইল বৃক্ষ-পরিবার ॥৪৭॥
+
 ei ājñā kaila yadi caitanya-mālākāra
 parama ānanda pāila vṛkṣa-parivāra
 

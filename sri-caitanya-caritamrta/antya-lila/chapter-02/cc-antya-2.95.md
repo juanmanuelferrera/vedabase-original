@@ -1,5 +1,8 @@
 ### CC Antya 2.95
 
+> বৈষ্ণব হঞা যেবা শারীরক-ভাষ্য শুনে ।
+> সেব্য-সেবক-ভাব ছাড়ি’ আপনারে ‘ঈশ্বর’ মানে ॥৯৫॥
+
 > vaiṣṇava hañā yebā śārīraka-bhāṣya śune
 > sevya-sevaka-bhāva chāḍi' āpanāre 'īśvara' māne
 

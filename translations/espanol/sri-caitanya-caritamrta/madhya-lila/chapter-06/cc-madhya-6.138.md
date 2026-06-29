@@ -1,5 +1,8 @@
 ### CC Madhya 6.138
 
+> ব্যাস-সূত্রের অর্থ — যৈছে সূর্যের কিরণ ।
+> স্বকল্পিত ভাষ্য-মেঘে করে আচ্ছাদন ॥১৩৮॥
+
 > vyāsa-sūtrera artha--yaiche sūryera kiraṇa
 > sva-kalpita bhāṣya-meghe kare ācchādana
 

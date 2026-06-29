@@ -1,5 +1,8 @@
 ### CC Madhya 12.113
 
+> যেই যেই কহে, সেই কহে কৃষ্ণনামে ।
+> কৃষ্ণনাম হইল সঙ্কেত সব-কামে ॥১১৩॥
+
 > yei yei kahe, sei kahe kṛṣṇa-nāme
 > kṛṣṇa-nāma ha-ila saṅketa saba-kāme
 

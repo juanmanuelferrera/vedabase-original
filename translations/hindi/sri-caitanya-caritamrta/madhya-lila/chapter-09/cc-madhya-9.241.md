@@ -1,5 +1,8 @@
 ### CC Madhya 9.241
 
+> বহু যত্নে সেই পুঁথি নিল লেখাইয়া ।
+> ‘অনন্ত-পদ্মনাভ’ আইলা হরষিত হঞা ॥২৪১॥
+
 > bahu yatne sei puṅthi nila lekhāiyā
 > 'ananta padmanābha' āilā haraṣita hañā
 

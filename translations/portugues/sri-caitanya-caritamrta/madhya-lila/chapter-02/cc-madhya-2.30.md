@@ -1,5 +1,9 @@
 ### CC Madhya 2.30
 
+> সখি হে, শুন, মোর হত বিধিবল ।
+> মোর বপু-চিত্ত-মন, সকল ইন্দ্রিয়গণ,
+> কৃষ্ণ বিনু সকল বিফল ।। ৩০ ।। ধ্রু ।। ॥৩০॥
+
 sakhī he, śuna, mora hata vidhi-bala
 
 mora vapu-citta-mana, sakala indriya-gaṇa,

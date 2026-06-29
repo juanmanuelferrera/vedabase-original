@@ -1,5 +1,8 @@
 ### CC Antya 9.13
 
+> একদিন লোক আসি’ প্রভুরে নিবেদিল ।
+> গোপীনাথেরে ‘বড় জানা’ চাঙ্গে চড়াইল ॥১৩॥
+
 > eka-dina loka āsi' prabhure nivedila
 > gopīnāthere 'baḍa jānā' cāṅge caḍāila
 

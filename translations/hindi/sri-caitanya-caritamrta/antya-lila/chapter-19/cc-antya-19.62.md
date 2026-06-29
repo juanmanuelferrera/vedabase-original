@@ -1,5 +1,8 @@
 ### CC Antya 19.62
 
+> প্রভুরে শয্যাতে আনি’ সুস্থির করাইলা ।
+> ‘কাঁহে কৈলা এই তুমি?’ — স্বরূপ পুছিলা ॥৬২॥
+
 > prabhure śayyāte āni' susthira karāilā
 > 'kāṅhe kailā ei tumi?'--svarūpa puchilā
 

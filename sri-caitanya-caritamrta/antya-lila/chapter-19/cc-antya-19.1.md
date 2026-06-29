@@ -1,5 +1,8 @@
 ### CC Antya 19.1
 
+> বন্দে তং কৃষ্ণচৈতন্যং মাতৃভক্তশিরোমণিম্ ।
+> প্রলপ্য মুখসংঘর্ষী মধুদ্যানে ললাস যঃ ॥১॥
+
 > vande taṁ kṛṣṇa-caitanyaṁ
 > mātṛ-bhakta-śiromaṇim
 > pralapya mukha-saṅgharṣī

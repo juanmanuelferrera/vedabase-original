@@ -1,5 +1,10 @@
 ### CC Antya 4.64
 
+> সিঞ্চাঙ্গ নস্ত্বদধরামৃতপূরকেণ
+> হাসাবলোক-কলগীতজ-হৃচ্ছয়াগ্নিম্ ।
+> নো চেদ্বয়ং বিরহজাগ্ন্যুপযুক্তদেহা
+> ধ্যানেন যাম পদয়োঃ পদবীং সখে তে ॥৬৪॥
+
 > siñcāṅga nas tvad-adharāmṛta-pūrakeṇa
 > hāsāvaloka-kala-gītaja-hṛc-chayāgnim
 > no ced vayaṁ virahajāgny-upayukta-dehā

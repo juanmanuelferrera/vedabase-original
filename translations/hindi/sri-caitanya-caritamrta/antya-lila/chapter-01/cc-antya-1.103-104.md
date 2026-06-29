@@ -1,5 +1,10 @@
 ### CC Antya 1.103-104
 
+> আর দিন মহাপ্রভু দেখি’ জগন্নাথ ।
+> সার্বভৌম-রামানন্দ-স্বরূপাদি-সাথ ॥১০৩॥
+> সবে মিলি’ চলি আইলা শ্রীরূপে মিলিতে ।
+> পথে তাঁর গুণ সবারে লাগিলা কহিতে ॥১০৪॥
+
 > āra dina mahāprabhu dekhi' jagannātha
 > sārvabhauma-rāmānanda-svarūpādi-sātha
 > sabe mili' cali āilā śrī-rūpe milite

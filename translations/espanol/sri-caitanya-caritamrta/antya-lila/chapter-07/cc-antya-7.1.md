@@ -1,5 +1,8 @@
 ### CC Antya 7.1
 
+> চৈতন্যচরণাম্ভোজমকরন্দলিহো ভজে ।
+> যেষাং প্রসাদমাত্রেণ পামরোঽপ্যমরো ভবেৎ ॥১॥
+
 > caitanya-caraṇāmbhoja-
 > makaranda-liho bhaje
 > yeṣāṁ prasāda-mātreṇa

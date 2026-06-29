@@ -1,5 +1,8 @@
 ### SB 3.6.32
 
+> विशोऽवर्तन्त तस्योर्वोर्लोकवृत्तिकरीर्विभोः ।
+> वैश्यस्तदुद्भवो वार्तां नृणां यः समवर्तयत् ॥३२॥
+
 > viśo 'vartanta tasyorvor
 > loka-vṛttikarīr vibhoḥ
 > vaiśyas tad-udbhavo vārtāṁ

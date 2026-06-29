@@ -1,5 +1,8 @@
 ### CC Madhya 17.164
 
+> তবে মহাপ্রভু সেই ব্রাহ্মণে লঞা  ।
+> তাঁহারে পুছিলা কিছু নিভৃতে বসিয়া ॥১৬৪॥
+
 tabe mahāprabhu sei brāhmaṇe lañā
 
 tāṅhāre puchilā kichu nibhṛte vasiyā

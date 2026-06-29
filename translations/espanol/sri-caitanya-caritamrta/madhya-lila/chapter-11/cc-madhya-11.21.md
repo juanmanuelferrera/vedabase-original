@@ -1,5 +1,8 @@
 ### CC Madhya 11.21
 
+> তোমার নাম শুনি’ হৈল মহা-প্রেমাবেশ ৷
+> মোর হাতে ধরি’ করে পিরীতি বিশেষ ৷৷ ২১ ৷৷ ॥২১॥
+
 > tomāra nāma śuni' haila mahā-premāveśa
 > mora hāte dhari' kare pirīti viśeṣa
 

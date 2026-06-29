@@ -1,5 +1,8 @@
 ### CC Antya 3.259
 
+> এত বলি’ বন্দিলা হরিদাসের চরণ ।
+> হরিদাস কহে, — “কর কৃষ্ণ-সঙ্কীর্তন” ॥২৫৯॥
+
 > eta bali' vandilā haridāsera caraṇa
 > haridāsa kahe,—"kara kṛṣṇa-saṅkīrtana"
 

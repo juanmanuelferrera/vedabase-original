@@ -1,5 +1,10 @@
 ### CC Antya 20.12
 
+> চেতোদর্পণমার্জনং ভবমহাদাবাগ্নিনির্বাপণং
+> শ্রেয়ঃকৈরবচন্দ্রিকাবিতরণং বিদ্যাবধূজীবনম্ ।
+> আনন্দাম্বুধিবর্ধনং প্রতিপদং পূর্ণামৃতাস্বাদনং
+> সর্বাত্মস্নপনং পরং বিজয়তে শ্রীকৃষ্ণসঙ্কীর্তনম্ ॥১২॥
+
 > ceto-darpaṇa-mārjanaṁ bhava-mahā-dāvāgni-nirvāpaṇaṁ
 > śreyaḥ-kairava-candrikā-vitaraṇaṁ vidyā-vadhū-jīvanam
 > ānandāmbudhi-vardhanaṁ prati-padaṁ pūrṇāmṛtāsvādanaṁ

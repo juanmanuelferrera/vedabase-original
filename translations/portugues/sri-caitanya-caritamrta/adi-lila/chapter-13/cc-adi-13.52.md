@@ -1,5 +1,8 @@
 ### CC Adi 13.52
 
+> কোন বাঞ্ছা পূরণ লাগি’ ব্রজেন্দ্রকুমার ।
+> অবতীর্ণ হৈতে মনে করিলা বিচার ॥৫২॥
+
 kona vāñchā pūraṇa lāgi' vrajendra-kumāra
 avatīrṇa haite mane karilā vicāra
 

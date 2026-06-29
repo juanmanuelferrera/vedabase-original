@@ -1,5 +1,8 @@
 ### CC Madhya 22.47
 
+> কৃষ্ণ যদি কৃপা করে কোন ভাগ্যবানে ।
+> গুরু-অন্তর্যামি-রূপে শিখায় আপনে ॥৪৭॥
+
 > kṛṣṇa yadi kṛpā kare kona bhāgyavāne
 > guru-antaryāmi-rūpe śikhāya āpane
 

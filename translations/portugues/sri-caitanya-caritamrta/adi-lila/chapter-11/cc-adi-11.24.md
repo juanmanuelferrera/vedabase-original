@@ -1,5 +1,8 @@
 ### CC Adi 11.24
 
+> কমলাকর পিপ্পলাই — অলৌকিক রীত ।
+> অলৌকিক প্রেম তাঁর ভুবনে বিদিত ॥২৪॥
+
 kamalākara pippalāi--alaukika rīta
 alaukika prema tāṅra bhuvane vidita
 

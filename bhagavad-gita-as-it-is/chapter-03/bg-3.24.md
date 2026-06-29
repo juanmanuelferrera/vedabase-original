@@ -1,5 +1,8 @@
 ### Bg 3.24
 
+> उत्सीदेयुरिमे लोका न कुर्यां कर्म चेदहम् ।
+> सङ्करस्य च कर्ता स्यामुपहन्यामिमाः प्रजाः ॥२४॥
+
 > utsīdeyur ime lokā
 > na kuryāṁ karma ced aham
 > saṅkarasya ca kartā syām

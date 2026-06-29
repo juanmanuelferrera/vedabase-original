@@ -1,5 +1,8 @@
 ### CC Adi 2.26
 
+> জ্ঞানযোগমার্গে তাঁরে ভজে যেই সব ।
+> ব্রহ্ম-আত্মরূপে তাঁরে করে অনুভব ॥২৬॥
+
 > jñāna-yoga-mārge tāṅre bhaje yei saba
 > brahma-ātma-rūpe tāṅre kare anubhava
 

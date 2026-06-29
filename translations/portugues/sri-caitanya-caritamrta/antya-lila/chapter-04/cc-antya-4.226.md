@@ -1,5 +1,8 @@
 ### CC Antya 4.226
 
+> ‘দানকেলিকৌমুদী’ আদি লক্ষগ্রন্থ কৈল ।
+> সেই সব গ্রন্থে ব্রজের রস বিচারিল ॥২২৬॥
+
 'dāna-keli-kaumudī' ādi lakṣa-grantha kaila
 
 sei saba granthe vrajera rasa vicārila

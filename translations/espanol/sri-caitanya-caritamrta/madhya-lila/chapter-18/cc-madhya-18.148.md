@@ -1,5 +1,8 @@
 ### CC Madhya 18.148
 
+> “সহিতে না পারি আমি লোকের গড়বড়ি ।
+> নিমন্ত্রণ লাগি’ লোক করে হুড়াহুড়ি ॥১৪৮॥
+
 > «sahite nā pāri āmi lokera gaḍabaḍi
 > nimantraṇa lāgi' loka kare huḍāhuḍi
 

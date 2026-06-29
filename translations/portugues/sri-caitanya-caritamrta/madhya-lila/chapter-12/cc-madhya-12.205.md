@@ -1,5 +1,8 @@
 ### CC Madhya 12.205
 
+> পক্ষদিন দুঃখী লোক প্রভুর অদর্শনে ।
+> দর্শন করিয়া লোক সুখ পাইল মনে ॥২০৫॥
+
 pakṣa-dina duḥkhī loka prabhura adarśane
 
 darśana kariyā loka sukha pāila mane

@@ -1,5 +1,8 @@
 ### CC Antya 5.13
 
+> “দুই দেব-কন্যা হয় পরম-সুন্দরী  ।
+> নৃত্য-গীতে সুনিপুণা, বয়সে কিশোরী ॥১৩॥
+
 "dui deva-kanyā haya parama-sundarī
 nṛtya-gīte sunipuṇā, vayase kiśorī
 

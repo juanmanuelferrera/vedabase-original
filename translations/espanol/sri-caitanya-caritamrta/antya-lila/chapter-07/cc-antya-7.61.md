@@ -1,5 +1,8 @@
 ### CC Antya 7.61
 
+> আর দিন সব বৈষ্ণব প্রভু-স্থানে আইলা ।
+> সবা-সনে মহাপ্রভু ভট্টে মিলাইলা ॥৬১॥
+
 > āra dina saba vaiṣṇava prabhu-sthāne āilā
 > sabā-sane mahāprabhu bhaṭṭe milāilā
 

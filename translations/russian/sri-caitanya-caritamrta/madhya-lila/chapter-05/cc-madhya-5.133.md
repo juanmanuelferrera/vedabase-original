@@ -1,5 +1,8 @@
 ### CC Madhya 5.133
 
+> সেই হৈতে গোপালের কটকেতে স্থিতি ।
+> এই লাগি ‘সাক্ষিগোপাল, নাম হৈল খ্যাতি ॥১৩৩॥
+
 > sei haite gopālera kaṭakete sthiti
 > ei lāgi 'sākṣi-gopāla' nāma haila khyāti
 

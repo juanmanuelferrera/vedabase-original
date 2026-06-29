@@ -1,5 +1,8 @@
 ### CC Madhya 15.226
 
+> শত চুলায় শত জন পাক যদি করে ।
+> তবু শীঘ্র এত দ্রব্য রান্ধিতে না পারে ॥২২৬॥
+
 > śata culāya śata jana pāka yadi kare
 > tabu śīghra eta dravya rāndhite nā pāre
 

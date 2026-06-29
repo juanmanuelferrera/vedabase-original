@@ -1,5 +1,8 @@
 ### CC Adi 2.19
 
+> অনন্ত স্ফটিকে যৈছে এক সূর্য ভাসে ।
+> তৈছে জীবে গোবিন্দের অংশ প্রকাশে ॥১৯॥
+
 ananta sphaṭike yaiche eka sūrya bhāse
 taiche jīve govindera aṁśa prakāśe
 

@@ -1,5 +1,8 @@
 ### CC Madhya 23.115
 
+> তবে সনাতন সব সিদ্ধান্ত পুছিলা ।
+> ভাগবত-সিদ্ধান্ত গূঢ় সকলি কহিলা ॥১১৫॥
+
 tabe sanātana saba siddhānta puchilā
 
 bhāgavata-siddhānta gūḍha sakali kahilā

@@ -1,5 +1,8 @@
 ### CC Madhya 16.187
 
+> তবে মহাপ্ৰভু তাঁরে কৃপা-দৃষ্টি করি’ ।
+> আশ্বাসিয়া কহে, — তুমি কহ ‘কৃষ্ণ’ ‘হরি’ ॥১৮৭॥
+
 > tabe mahāprabhu tāṅre kṛpā-dṛṣṭi kari'
 > āśvāsiyā kahe,--tumi kaha 'kṛṣṇa' 'hari'
 

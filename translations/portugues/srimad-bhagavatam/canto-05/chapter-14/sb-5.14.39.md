@@ -1,5 +1,7 @@
 ### SB 5.14.39
 
+> यदिदं योगानुशासनं न वा एतदवरुन्धते यन्न्यस्तदण्डा मुनय उपशमशीलाउपरतात्मानः समवगच्छन्ति ॥३९॥
+
 *yad idaṁ yogānuśāsanaṁ na vā etad avarundhate yan nyasta*-daṇḍā munaya upaśama-śīlā uparatātmānaḥ samavagacchanti.
 
 *yat*—que; *idam*—esta morada suprema da Suprema Personalidade de Deus; *yoga-anuśāsanam*—apenas a ser alcançada pela prática do serviço devocional; *na*—não; *vā*—ou; *etat*—este caminho da liberação; *avarundhate*—obtêm; *yat*—portanto; *nyasta-daṇḍāḥ*—pessoas que abandonaram a inveja pelos outros; *munayaḥ*—pessoas santas; *upaśama-śīlāḥ*—que agora se situam em uma existência mais pacífica; *uparata-ātmānaḥ*—que têm controle sobre a mente e os sentidos; *samavagacchanti*—obtêm muito facilmente.

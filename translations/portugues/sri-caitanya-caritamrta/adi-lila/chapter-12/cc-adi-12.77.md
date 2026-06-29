@@ -1,5 +1,8 @@
 ### CC Adi 12.77
 
+> এই ত’ কহিলাঙ আচার্য-গোসাঞির গণ ।
+> তিন স্কন্ধ-শাখার কৈল সংক্ষেপ গণন ॥৭৭॥
+
 ei ta' kahilāṅ ācārya-gosāñira gaṇa
 
 tina skandha-śākhāra kaila saṅkṣepa gaṇana

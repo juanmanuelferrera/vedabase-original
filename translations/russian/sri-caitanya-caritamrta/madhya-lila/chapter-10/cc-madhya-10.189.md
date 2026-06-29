@@ -1,5 +1,8 @@
 ### CC Madhya 10.189
 
+> এই ত’ কহিল প্রভুর বৈষ্ণব-মিলন ।
+> ইহা যেই শুনে, পায় চৈতন্য-চরণ ॥১৮৯॥
+
 > ei ta' kahila prabhura vaiṣṇava-milana
 > ihā yei śune, pāya caitanya-caraṇa
 

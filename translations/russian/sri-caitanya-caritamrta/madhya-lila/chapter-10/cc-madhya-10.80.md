@@ -1,5 +1,8 @@
 ### CC Madhya 10.80
 
+> শুনি’ আচার্য-গোসাঞির আনন্দ হইল ।
+> প্রেমাবেশে হুঙ্কার বহু নৃত্য-গীত কৈল ॥৮০॥
+
 > śuni' ācārya-gosāñira ānanda ha-ila
 > premāveśe huṅkāra bahu nṛtya-gīta kaila
 

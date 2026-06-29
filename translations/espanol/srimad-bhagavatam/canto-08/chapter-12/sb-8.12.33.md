@@ -1,5 +1,8 @@
 ### SB 8.12.33
 
+> यत्र यत्रापतन्मह्यां रेतस्तस्य महात्मनः
+> तानि रूप्यस्य हेम्नश्च क्षेत्राण्यासन्महीपते ॥३३॥
+
 > yatra yatrāpatan mahyāṁ
 > retas tasya mahātmanaḥ
 > tāni rūpyasya hemnaś ca

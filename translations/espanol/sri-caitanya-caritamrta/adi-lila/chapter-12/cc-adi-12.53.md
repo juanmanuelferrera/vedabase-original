@@ -1,5 +1,8 @@
 ### CC Adi 12.53
 
+> এই শিক্ষা সবাকারে, সবে মনে কৈল ।
+> আচার্য-গোসাঞি মনে আনন্দ পাইল ॥৫৩॥
+
 > ei śikṣā sabākāre, sabe mane kaila
 > ācārya-gosāñi mane ānanda pāila
 

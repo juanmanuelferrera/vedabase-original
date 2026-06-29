@@ -1,5 +1,8 @@
 ### CC Madhya 12.26
 
+> দামোদর কহে, — তুমি স্বতন্ত্র ঈশ্বর ।
+> কর্তব্যাকর্তব্য সব তোমার গোচর ॥২৬॥
+
 > dāmodara kahe,-tumi svatantra īśvara
 > kartavyākartavya saba tomāra gocara
 

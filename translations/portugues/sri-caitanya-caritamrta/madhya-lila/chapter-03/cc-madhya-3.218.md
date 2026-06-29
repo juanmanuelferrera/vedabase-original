@@ -1,5 +1,8 @@
 ### CC Madhya 3.218
 
+> অদ্বৈত-গৃহে প্রভুর বিলাস শুনে যেই জন ।
+> অচিরে মিলয়ে তাঁরে কৃষ্ণপ্রেম-ধন ॥২১৮॥
+
 advaita-gṛhe prabhura vilāsa śune yei jana
 acire milaye tāṅre kṛṣṇa-prema-dhana
 

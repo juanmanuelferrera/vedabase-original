@@ -1,5 +1,8 @@
 ### CC Adi 8.13
 
+> অতএব পুনঃ কহোঁ ঊর্ধ্ববাহু হঞা ।
+> চৈতন্য-নিত্যানন্দ ভজ কুতর্ক ছাড়িয়া ॥১৩॥
+
 ataeva punaḥ kahoṅ ūrdhva-bāhu hañā
 caitanya-nityānanda bhaja kutarka chāḍiyā
 

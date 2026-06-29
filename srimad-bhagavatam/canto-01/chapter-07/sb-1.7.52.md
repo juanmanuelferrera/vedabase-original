@@ -1,5 +1,8 @@
 ### SB 1.7.52
 
+> निशम्य भीमगदितं द्रौपद्याश्च चतुर्भुजः ।
+> आलोक्य वदनं सख्युरिदमाह हसन्निव ॥५२॥
+
 > niśamya bhīma-gaditaṁ
 > draupadyāś ca catur-bhujaḥ
 > ālokya vadanaṁ sakhyur

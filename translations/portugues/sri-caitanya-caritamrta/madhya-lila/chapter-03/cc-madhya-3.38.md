@@ -1,5 +1,8 @@
 ### CC Madhya 3.38
 
+> প্রেমাবেশে তিন দিন আছ উপবাস ।
+> আজি মোর ঘরে ভিক্ষা, চল মোর বাস ॥৩৮॥
+
 premāveśe tina dina ācha upavāsa
 āji mora ghare bhikṣā, cala mora vāsa
 

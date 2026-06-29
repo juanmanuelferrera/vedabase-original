@@ -1,5 +1,8 @@
 ### CC Adi 14.1
 
+> কথঞ্চন স্মৃতে যস্মিন্ দুষ্করং সুকরং ভবেৎ ।
+> বিস্মৃতে বিপরীতং স্যাৎ শ্রীচৈতন্যং নমামি তম্ ॥১॥
+
 kathañcana smṛte yasmin
 duṣkaraṁ sukaraṁ bhavet
 vismṛte viparītaṁ syāt

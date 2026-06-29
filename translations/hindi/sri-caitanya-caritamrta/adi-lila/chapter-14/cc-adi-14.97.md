@@ -1,5 +1,8 @@
 ### CC Adi 14.97
 
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
+> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৯৭॥
+
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
 

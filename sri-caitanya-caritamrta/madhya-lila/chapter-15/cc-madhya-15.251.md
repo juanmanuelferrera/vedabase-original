@@ -1,5 +1,8 @@
 ### CC Madhya 15.251
 
+> তবে গালি, শাপ দিতে ভট্টাচার্য আইলা ।
+> নিন্দা শুনি’ মহাপ্ৰভু হাসিতে লাগিলা ॥২৫১॥
+
 > tabe gāli, śāpa dite bhaṭṭācārya āilā
 > nindā śuni' mahāprabhu hāsite lāgilā
 

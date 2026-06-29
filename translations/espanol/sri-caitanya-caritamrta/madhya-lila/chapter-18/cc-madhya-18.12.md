@@ -1,5 +1,10 @@
 ### CC Madhya 18.12
 
+> শ্রীরাধেব হরেস্তদীয়সরসী প্রেষ্ঠাদ্ভুতৈঃ স্বৈর্গুণৈ-
+> র্যস্যাং শ্রীযুত-মাধববেন্দুরনিশং প্রীত্যা তয়া ক্রীড়তি ৷
+> প্রেমাস্মিন্ বত রাধিকেব লভতে যস্যাং সকৃৎ স্নানকৃৎ
+> তস্যা বৈ মহিমা তথা মধুরিমা কেনাস্তু বর্ণ্যঃ ক্ষিতৌ ॥১২॥
+
 > śrī-rādheva hares tadīya-sarasī preṣṭhādbhutaiḥ svair guṇair
 > yasyāṁ śrī-yuta-mādhavendur aniśaṁ prītyā tayā krīḍati
 > premāsmin bata rādhikeva labhate yasyāṁ sakṛt snāna-kṛt

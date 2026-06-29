@@ -1,5 +1,8 @@
 ### SB 8.3.27
 
+> योगरन्धितकर्माणो हृदि योगविभाविते
+> योगिनो यं प्रपश्यन्ति योगेशं तं नतोऽस्म्यहम ॥२७॥
+
 > yoga-randhita-karmāṇo
 > hṛdi yoga-vibhāvite
 > yogino yaṁ prapaśyanti

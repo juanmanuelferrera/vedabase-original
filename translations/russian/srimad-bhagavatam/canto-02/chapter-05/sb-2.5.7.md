@@ -1,5 +1,8 @@
 ### SB 2.5.7
 
+> स भवानचरद्घोरं यत्तपः सुसमाहितः ।
+> तेन खेदयसे नस्त्वं पराशङ्कां च यच्छसि ॥७॥
+
 > sa bhavān acarad ghoraṁ
 > yat tapaḥ susamāhitaḥ
 > tena khedayase nas tvaṁ

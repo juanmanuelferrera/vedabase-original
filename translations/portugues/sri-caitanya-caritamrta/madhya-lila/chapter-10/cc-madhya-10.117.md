@@ -1,5 +1,8 @@
 ### CC Madhya 10.117
 
+> অদ্বৈত-নিত্যানন্দের পরম প্রিয়তম ৷
+> শ্রীবাসাদি ভক্তগণের হয় প্রাণ-সম ৷৷ ১১৭ ৷৷ ॥১১৭॥
+
 advaita-nityānandera parama priyatama
 
 śrīvāsādi bhakta-gaṇera haya prāṇa-sama

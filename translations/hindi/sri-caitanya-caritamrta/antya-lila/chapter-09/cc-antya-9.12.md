@@ -1,5 +1,8 @@
 ### CC Antya 9.12
 
+> প্রভুর দর্শনে সব লোক প্রেমে ভাসে ।
+> এইমত যায় প্রভুর রাত্রি-দিবসে ॥১২॥
+
 > prabhura darśane saba loka preme bhāse
 > ei-mata yāya prabhura rātri-divase
 

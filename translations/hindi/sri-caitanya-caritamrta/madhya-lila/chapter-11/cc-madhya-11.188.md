@@ -1,5 +1,8 @@
 ### CC Madhya 11.188
 
+> হরিদাস কহে, — প্রভু, না ছুঁইও মোরে ।
+> মুঞি — নীচ, অস্পৃশ্য, পরম পামরে ॥১৮৮॥
+
 > haridāsa kahe,-prabhu, nā chuṅio more
 > muñi-nīca, aspṛśya, parama pāmare
 

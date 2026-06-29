@@ -1,5 +1,8 @@
 ### CC Antya 18.56
 
+> সেই ত’ ভূতের কথা কহন না যায় ।
+> ওঝা-ঠাঞি যাইছোঁ, — যদি সে ভূত ছাড়ায় ॥৫৬॥
+
 sei ta' bhūtera kathā kahana nā yāya
 
 ojhā-ṭhāñi yāichoṅ,--yadi se bhūta chāḍāya

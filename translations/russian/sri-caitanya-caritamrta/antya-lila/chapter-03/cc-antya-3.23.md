@@ -1,5 +1,8 @@
 ### CC Antya 3.23
 
+> তোমা সম ‘নিরপেক্ষ’ নাহি মোর গণে ।
+> ‘নিরপেক্ষ’ নহিলে ‘ধর্ম’ না যায় রক্ষণে ॥২৩॥
+
 > tomā sama 'nirapekṣa' nāhi mora gaṇe
 > 'nirapekṣa' nahile 'dharma' nā yāya rakṣaṇe
 

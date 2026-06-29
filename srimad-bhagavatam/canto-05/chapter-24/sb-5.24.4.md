@@ -1,5 +1,7 @@
 ### SB 5.24.4
 
+> ततोऽधस्तात्सिद्धचारणविद्याधराणां सदनानि तावन्मात्र एव ॥४॥
+
 > tato 'dhastāt siddha-cāraṇa-vidyādharāṇāṁ sadanāni tāvan mātra eva.
 
 *tataḥ*—the planet Rāhu; *adhastāt*—below; *siddha-cāraṇa*—of the planets known as Siddhaloka and Cāraṇaloka; *vidyādharāṇām*—and the planets of the Vidyādharas; *sadanāni*—the residential places; *tāvat mātra*—only that much distance (eighty thousand miles); *eva*—indeed.

@@ -1,5 +1,8 @@
 ### CC Madhya 8.302
 
+> রামানন্দ হৈলা প্রভুর বিরহে বিহ্বল ।
+> প্রভুর ধ্যানে রহে বিষয় ছাড়িয়া সকল ॥৩০২॥
+
 > rāmānanda hailā prabhura virahe vihvala
 > prabhura dhyāne rahe viṣaya chāḍiyā sakala
 

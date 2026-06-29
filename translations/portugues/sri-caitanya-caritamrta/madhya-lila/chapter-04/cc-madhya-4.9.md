@@ -1,5 +1,8 @@
 ### CC Madhya 4.9
 
+> অতএব তাঁর পায়ে করি নমস্কার ।
+> তাঁর পায় অপরাধ না হউক্ আমার ॥৯॥
+
 ataeva tāṅra pāye kari namaskāra
 tāṅra pāya aparādha nā ha-uk āmāra
 

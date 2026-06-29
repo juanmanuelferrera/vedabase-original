@@ -1,5 +1,8 @@
 ### Bg 6.27
 
+> प्रशान्तमनसं ह्येनं योगिनं सुखमुत्तमम् ।
+> उपैति शान्तरजसं ब्रह्मभूतमकल्मषम् ॥२७॥
+
 > praśānta-manasaṁ hy enaṁ
 > yoginaṁ sukham uttamam
 > upaiti śānta-rajasaṁ

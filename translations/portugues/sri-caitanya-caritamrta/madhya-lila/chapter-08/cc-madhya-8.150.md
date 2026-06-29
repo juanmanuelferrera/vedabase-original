@@ -1,5 +1,8 @@
 ### CC Madhya 8.150
 
+> এই ত’ সংক্ষেপে কহিল কৃষ্ণের স্বরূপ ৷
+> এবে সংক্ষেপে কহি শুন রাধা-তত্ত্বরূপ ৷৷ ১৫০ ৷৷ ॥১৫০॥
+
 ei ta' saṅkṣepe kahila kṛṣṇera svarūpa
 ebe saṅkṣepe kahi śuna rādhā-tattva-rūpa
 

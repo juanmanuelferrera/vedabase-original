@@ -1,5 +1,8 @@
 ### CC Madhya 23.100
 
+> সর্বথৈব দুরূহোঽয়মভক্তৈর্ভগবদ্রসঃ ।
+> তৎপাদাম্বুজসর্বস্বৈর্ভক্তৈরেবানুরস্যতে ॥১০০॥
+
 sarvathaiva durūho 'yam
 
 abhaktair bhagavad-rasaḥ

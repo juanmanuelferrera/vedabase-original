@@ -1,5 +1,8 @@
 ### CC Antya 2.166
 
+> স্বরূপাদি মিলি’ তবে বিচার করিলা ।
+> ত্রিবেণী-প্রভাবে হরিদাস প্রভুপদ পাইলা ॥১৬৬॥
+
 > svarūpādi mili' tabe vicāra karilā
 > triveṇī-prabhāve haridāsa prabhu-pada pāilā
 

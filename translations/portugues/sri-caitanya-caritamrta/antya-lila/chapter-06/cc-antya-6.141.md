@@ -1,5 +1,8 @@
 ### CC Antya 6.141
 
+> তোমা উদ্ধারিতে গৌর আইলা আপনে  ।
+> ছুটিল তোমার যত বিঘ্ন়াদি-বন্ধনে ॥১৪১॥
+
 tomā uddhārite gaura āilā āpane
 
 chuṭila tomāra yata vighnādi-bandhane

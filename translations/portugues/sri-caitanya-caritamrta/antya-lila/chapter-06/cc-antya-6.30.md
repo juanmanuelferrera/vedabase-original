@@ -1,5 +1,8 @@
 ### CC Antya 6.30
 
+> ম্লেচ্ছ বলে, — “আজি হৈতে তুমি — মোর ‘পুত্র’ ।
+> আজি ছাড়াইমু তোমা’ করি’ এক সূত্র ।।” ॥ ৩০ ॥
+
 mleccha bale,--"āji haite tumi--mora'putra'
 
 āji chāḍāimu tomā' kari' eka sūtra"

@@ -1,5 +1,8 @@
 ### CC Madhya 25.122
 
+> সর্ব-দেশ-কাল-দশায় জনের কর্তব্য ।
+> গুরু-পাশে সেই ভক্তি প্রষ্টব্য, শ্রোতব্য ॥১২২॥
+
 > sarva-deśa-kāla-daśāya janera kartavya
 > guru-pāśe sei bhakti praṣṭavya, śrotavya
 

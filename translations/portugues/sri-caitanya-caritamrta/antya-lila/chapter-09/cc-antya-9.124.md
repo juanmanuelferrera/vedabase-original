@@ -1,5 +1,8 @@
 ### CC Antya 9.124
 
+> কিছু দেয়, কিছু না দেয়, না করি বিচার ।
+> ‘জানা’-সহিত অপ্রীত্যে দুঃখ পাইল এইবার ॥১২৪॥
+
 kichu deya, kichu nā deya, nā kari vicāra
 
 jānā'-sahita aprītye duḥkha pāila ei-bāra

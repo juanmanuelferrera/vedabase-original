@@ -1,5 +1,8 @@
 ### CC Antya 20.134
 
+> অষ্টাদশ পরিচ্ছেদে — সমুদ্রে পতন ।
+> কৃষ্ণ-গোপী-জলকেলি তাহাঁ দরশন ॥১৩৪॥
+
 > aṣṭādaśa paricchede—samudre patana
 > kṛṣṇa-gopī-jala-keli tāhāṅ daraśana
 

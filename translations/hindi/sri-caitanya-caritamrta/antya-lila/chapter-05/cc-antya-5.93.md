@@ -1,5 +1,8 @@
 ### CC Antya 5.93
 
+> প্রথমে নাটক তেঁহো তাঁরে শুনাইল ।
+> তাঁর সঙ্গে অনেক বৈষ্ণব নাটক শুনিল ॥৯৩॥
+
 > prathame nāṭaka teṅho tāṅre śunāila
 > tāṅra saṅge aneka vaiṣṇava nāṭaka śunila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 13.133
 
+> সেই ভাবাবেশে প্রভু পড়ে আর শ্লোক ।
+> সেই সব শ্লোকের অর্থ নাহি বুঝে লোক ॥১৩৩॥
+
 > sei bhāvāveśe prabhu paḍe āra śloka
 > sei saba ślokera artha nāhi bujhe loka
 

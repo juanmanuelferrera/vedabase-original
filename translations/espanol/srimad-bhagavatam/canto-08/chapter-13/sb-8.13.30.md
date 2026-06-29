@@ -1,5 +1,8 @@
 ### SB 8.13.30
 
+> मनुस्त्रयोदशो भाव्यो देवसावर्णिरात्मवान
+> चित्रसेनविचित्राद्या देवसावर्णिदेहजाः ॥३०॥
+
 > manus trayodaśo bhāvyo
 > deva-sāvarṇir ātmavān
 > citrasena-vicitrādyā

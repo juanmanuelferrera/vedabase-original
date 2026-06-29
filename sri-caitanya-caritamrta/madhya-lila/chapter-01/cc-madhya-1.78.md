@@ -1,5 +1,8 @@
 ### CC Madhya 1.78
 
+> শ্রীরাধিকা কুরুক্ষেত্রে কৃষ্ণের দরশন ।
+> যদ্যপি পায়েন, তবু ভাবেন ঐছন ॥৭৮॥
+
 > śrī-rādhikā kurukṣetre kṛṣṇera daraśana
 > yadyapi pāyena, tabu bhāvena aichana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 14.137
 
+> মানিনী নিরুৎসাহে ছাড়ে বিভূষণ ।
+> ভূমে বসি’ নখে লেখে, মলিন-বদন ॥১৩৭॥
+
 > māninī nirutsāhe chāḍe vibhūṣaṇa
 > bhūme vasi' nakhe lekhe, malina-vadana
 

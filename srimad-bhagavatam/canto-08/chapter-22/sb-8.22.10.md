@@ -1,5 +1,8 @@
 ### SB 8.22.10
 
+> इत्थं स निश्चित्य पितामहो महानगाधबोधो भवतः पादपद्मम
+> ध्रुवं प्रपेदे ह्यकुतोभयं जनाद्भीतः स्वपक्षक्षपणस्य सत्तम ॥१०॥
+
 > itthaṁ sa niścitya pitāmaho mahān
 > agādha-bodho bhavataḥ pāda-padmam
 > dhruvaṁ prapede hy akutobhayaṁ janād

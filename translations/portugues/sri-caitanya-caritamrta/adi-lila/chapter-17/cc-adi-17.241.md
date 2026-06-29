@@ -1,5 +1,8 @@
 ### CC Adi 17.241
 
+> তবে আচার্যের ঘরে কৈল কৃষ্ণলীলা ।
+> রুক্মিণী-স্বরূপ প্রভু আপনে হইলা ॥২৪১॥
+
 tabe ācāryera ghare kaila kṛṣṇa-līlā
 
 rukmiṇī-svarūpa prabhu āpane ha-ilā

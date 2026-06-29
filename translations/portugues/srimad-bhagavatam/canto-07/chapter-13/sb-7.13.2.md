@@ -1,5 +1,8 @@
 ### SB 7.13.2
 
+> बिभृयाद्यद्यसौ वासः कौपीनाच्छादनं परम
+> त्यक्तं न लिङ्गाद्दण्डादेरन्यत्किञ्चिदनापदि ॥२॥
+
 bibhṛyād yady asau vāsaḥ
 kaupīnācchādanaṁ param
 tyaktaṁ na liṅgād daṇḍāder

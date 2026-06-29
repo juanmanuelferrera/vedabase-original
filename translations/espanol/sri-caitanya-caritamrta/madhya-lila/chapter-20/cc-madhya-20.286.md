@@ -1,5 +1,8 @@
 ### CC Madhya 20.286
 
+> নিজাঙ্গ-স্বেদজলে ব্রহ্মাণ্ডার্ধ ভরিল ৷
+> সেই জলে শেষ-শয্যায় শয়ন করিল ॥২৮৬॥
+
 > nijāṅga-sveda-jale brahmāṇḍārdha bharila
 > sei jale śeṣa-śayyāya śayana karila
 

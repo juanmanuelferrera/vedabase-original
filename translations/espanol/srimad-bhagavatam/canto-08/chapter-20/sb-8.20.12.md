@@ -1,5 +1,8 @@
 ### SB 8.20.12
 
+> यद्यप्यसावधर्मेण मां बध्नीयादनागसम
+> तथाप्येनं न हिंसिष्ये भीतं ब्रह्मतनुं रिपुम ॥१२॥
+
 > yadyapy asāv adharmeṇa
 > māṁ badhnīyād anāgasam
 > tathāpy enaṁ na hiṁsiṣye

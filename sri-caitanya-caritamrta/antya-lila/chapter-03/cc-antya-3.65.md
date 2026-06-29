@@ -1,5 +1,8 @@
 ### CC Antya 3.65
 
+> নামাভাসে ‘মুক্তি’ হয় সর্বশাস্ত্রে দেখি ।
+> শ্রীভাগবতে তাতে অজামিল — সাক্ষী ।।” ॥ ৬৫ ॥
+
 > nāmābhāse 'mukti' haya sarva-śāstre dekhi
 > śrī-bhāgavate tāte ajāmila—sākṣī"
 

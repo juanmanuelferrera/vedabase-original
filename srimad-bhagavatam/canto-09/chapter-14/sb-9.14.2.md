@@ -1,5 +1,8 @@
 ### SB 9.14.2
 
+> सहस्रशिरसः पुंसो नाभिह्रदसरोरुहात
+> जातस्यासीत्सुतो धातुरत्रिः पितृसमो गुणैः ॥२॥
+
 > sahasra-śirasaḥ puṁso
 > nābhi-hrada-saroruhāt
 > jātasyāsīt suto dhātur

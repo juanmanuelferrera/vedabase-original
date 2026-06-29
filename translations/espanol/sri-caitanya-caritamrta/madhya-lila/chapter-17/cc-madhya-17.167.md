@@ -1,5 +1,8 @@
 ### CC Madhya 17.167
 
+> কৃপা করি’ তেঁহো মোর নিলয়ে আইলা ।
+> মোরে শিষ্য করি’ মোর হাতে ‘ভিক্ষা’ কৈলা ॥১৬৭॥
+
 > kṛpā kari' teṅho mora nilaye āilā
 > more śisya kari' mora hāte 'bhikṣā' kailā
 

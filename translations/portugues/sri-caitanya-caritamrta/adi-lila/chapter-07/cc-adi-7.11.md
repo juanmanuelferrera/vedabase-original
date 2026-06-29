@@ -1,5 +1,8 @@
 ### CC Adi 7.11
 
+> কৃষ্ণমাধুর্যের এক অদ্ভুত স্বভাব ।
+> আপনা আস্বাদিতে কৃষ্ণ করে ভক্তভাব ॥১১॥
+
 kṛṣṇa-mādhuryera eka adbhuta svabhāva
 āpanā āsvādite kṛṣṇa kare bhakta-bhāva
 

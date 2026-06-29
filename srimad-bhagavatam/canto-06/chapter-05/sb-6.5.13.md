@@ -1,5 +1,8 @@
 ### SB 6.5.13
 
+> पुमान्नैवैति यद्गत्वा बिलस्वर्गं गतो यथा
+> प्रत्यग्धामाविद इह किमसत्कर्मभिर्भवेत ॥१३॥
+
 > pumān naivaiti yad gatvā
 > bila-svargaṁ gato yathā
 > pratyag-dhāmāvida iha

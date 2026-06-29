@@ -1,5 +1,8 @@
 ### CC Madhya 18.86
 
+> রাজপুত-জাতি মুঞি, ও-পারে মোর ঘর ।
+> মোর ইচ্ছা হয় — ‘হঙ বৈষ্ণব-কিঙ্কর’ ॥৮৬॥
+
 > rājaputa-jāti muñi, o-pāre mora ghara
 > mora icchā haya--'haṅa vaiṣṇava-kiṅkara'
 

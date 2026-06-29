@@ -1,5 +1,8 @@
 ### CC Madhya 10.43
 
+> প্রদ্যুম্নমিশ্র ইঁহ বৈষ্ণব প্রধান ।
+> জগন্নাথের মহা-সোয়ার ইঁহ ‘দাস’ নাম ॥৪৩॥
+
 > pradyumna-miśra iṅha vaiṣṇava pradhāna
 > jagannāthera mahā-soyāra iṅha 'dāsa' nāma
 

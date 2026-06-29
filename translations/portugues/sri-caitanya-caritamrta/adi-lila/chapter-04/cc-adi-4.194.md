@@ -1,5 +1,8 @@
 ### CC Adi 4.194
 
+> কিন্তু কৃষ্ণের সুখ হয় গোপী-রূপ-গুণে ।
+> তাঁর সুখে সুখবৃদ্ধি হয়ে গোপীগণে ॥১৯৪॥
+
 kintu kṛṣṇera sukha haya gopī-rūpa-guṇe
 tāṅra sukhe sukha-vṛddhi haye gopī-gaṇe
 

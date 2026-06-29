@@ -1,5 +1,10 @@
 ### SB 5.26.40
 
+> भूद्वीपवर्षसरिदद्रिनभ:समुद्र-
+> पातालदिङ्नरकभागणलोकसंस्था ।
+> गीता मया तव नृपाद्भुतमीश्वरस्य
+> स्थूलं वपु: सकलजीवनिकायधाम ॥ ४० ॥
+
 > bhū-dvīpa-varṣa-sarid-adri-nabhaḥ-samudra-
 > pātāla-diṅ-naraka-bhāgaṇa-loka-saṁsthā
 > gītā mayā tava nṛpādbhutam īśvarasya

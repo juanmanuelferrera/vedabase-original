@@ -1,5 +1,8 @@
 ### SB 3.6.4
 
+> प्रबुद्धकर्म दैवेन त्रयोविंशतिको गणः ।
+> प्रेरितोऽजनयत्स्वाभिर्मात्राभिरधिपूरुषम् ॥४॥
+
 > prabuddha-karmā daivena
 > trayoviṁśatiko gaṇaḥ
 > prerito 'janayat svābhir

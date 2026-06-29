@@ -1,5 +1,8 @@
 ### CC Madhya 12.177
 
+> সার্বভৌমে প্রভু বসাঞাছেন বাম-পাশে ।
+> দুই ভক্তের স্নেহ দেখি’ সার্বভৌম হাসে ॥১৭৭॥
+
 > sārvabhaume prabhu vasāñāchena vāma-pāśe
 > dui bhaktera sneha dekhi' sārvabhauma hāse
 

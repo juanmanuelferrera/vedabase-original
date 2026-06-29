@@ -1,5 +1,8 @@
 ### CC Antya 14.77
 
+> শুনি’ মহাপ্রভু বড় হৈলা চমৎকার ।
+> প্রভু কহে, — ‘কিছু স্মৃতি নাহিক আমার ! ॥ ৭৭ ॥
+
 śuni' mahāprabhu baḍa hailā camatkāra
 
 prabhu kahe,--'kichu smṛti nāhika āmāra

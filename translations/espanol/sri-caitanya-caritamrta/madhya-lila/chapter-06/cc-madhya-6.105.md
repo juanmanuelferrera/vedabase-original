@@ -1,5 +1,8 @@
 ### CC Madhya 6.105
 
+> তোমার আগে এত কথার নাহি প্রয়োজন ৷
+> ঊষর-ভূমিতে যেন বীজের রোপণ ॥১০৫॥
+
 > tomāra āge eta kathāra nāhi prayojana
 > ūṣara-bhūmite yena bījera ropaṇa
 

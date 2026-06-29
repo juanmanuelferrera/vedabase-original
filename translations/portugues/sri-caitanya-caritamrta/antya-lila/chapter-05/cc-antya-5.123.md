@@ -1,5 +1,7 @@
 ### CC Antya 5.123
 
+> “দেহ-দেহি-বিভাগোঽয়ং নেশ্বরে বিদ্যতে ক্বচিৎ ।।” ॥ ১২৩ ॥
+
 "deha-dehi-vibhāgo 'yaṁ
 
 neśvare vidyate kvacit"

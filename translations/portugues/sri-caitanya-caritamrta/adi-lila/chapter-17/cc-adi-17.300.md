@@ -1,5 +1,8 @@
 ### CC Adi 17.300
 
+> শ্রীবাসাদি যত মহাপ্রভুর ভক্তগণ ।
+> নিজ নিজ ভাবে করেন চৈতন্য-সেবন ॥৩০০॥
+
 śrīvāsādi yata mahāprabhura bhakta-gaṇa
 
 nija nija bhāve karena caitanya-sevana

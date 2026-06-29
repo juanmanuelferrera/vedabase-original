@@ -1,5 +1,8 @@
 ### SB 4.1.53
 
+> ययोर्जन्मन्यदो विश्वमभ्यनन्दत्सुनिर्वृतम् ।
+> मनांसि ककुभो वाताः प्रसेदुः सरितोऽद्रयः ॥५३॥
+
 > yayor janmany ado viśvam
 > abhyanandat sunirvṛtam
 > manāṁsi kakubho vātāḥ

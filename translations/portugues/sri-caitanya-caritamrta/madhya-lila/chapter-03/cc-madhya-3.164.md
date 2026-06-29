@@ -1,5 +1,8 @@
 ### CC Madhya 3.164
 
+> চূর্ণ হৈল, হেন বাসোঁ নিমাঞি-কলেবর  ।
+> হাহা করি’ বিষ্ণু-পাশে মাগে এই বর ॥১৬৪॥
+
 cūrṇa haila, hena vāsoṅ nimāñi-kalevara
 hā-hā kari' viṣṇu-pāśe māge ei vara
 

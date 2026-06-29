@@ -1,5 +1,8 @@
 ### CC Madhya 7.148
 
+> কৃষ্ণ উপদেশি’ কর জীবের নিস্তার ।
+> অচিরাতে কৃষ্ণ তোমা করিবেন অঙ্গীকার ।।” ॥১৪৮॥
+
 > kṛṣṇa upadeśi' kara jīvera nistāra
 > acirāte kṛṣṇa tomā karibena aṅgīkāra"
 

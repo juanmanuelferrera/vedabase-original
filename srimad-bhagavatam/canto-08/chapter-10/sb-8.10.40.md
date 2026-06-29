@@ -1,5 +1,8 @@
 ### SB 8.10.40
 
+> कबन्धास्तत्र चोत्पेतुः पतितस्वशिरोऽक्षिभिः
+> उद्यतायुधदोर्दण्डैराधावन्तो भटान्मृधे ॥४०॥
+
 > kabandhās tatra cotpetuḥ
 > patita-sva-śiro-'kṣibhiḥ
 > udyatāyudha-dordaṇḍair

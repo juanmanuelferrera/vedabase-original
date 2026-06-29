@@ -1,5 +1,8 @@
 ### CC Antya 3.138
 
+> এত বলি’ তারে ‘নাম’ উপদেশ করি’ ।
+> উঠিয়া চলিলা ঠাকুর বলি’ ‘হরি’ ‘হরি’ ॥১৩৮॥
+
 > eta bali' tāre 'nāma' upadeśa kari'
 > uṭhiyā calilā ṭhākura bali' 'hari' 'hari'
 

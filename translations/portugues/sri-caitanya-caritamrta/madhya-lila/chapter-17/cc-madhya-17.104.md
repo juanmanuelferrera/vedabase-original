@@ -1,5 +1,8 @@
 ### CC Madhya 17.104
 
+> প্রকাশানন্দ শ্রীপাদ সভাতে বসিয়া ।
+> ‘বেদান্ত’ পড়ান বহু শিষ্যগণ লঞা ॥১০৪॥
+
 prakāśānanda śrīpāda sabhāte vasiyā
 
 'vedānta' paḍāna bahu śiṣya-gaṇa lañā

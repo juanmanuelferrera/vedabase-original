@@ -1,5 +1,8 @@
 ### CC Adi 17.90
 
+> একদিন প্রভু শ্রীবাসেরে আজ্ঞা দিল ।
+> ‘বৃহৎ সহস্রনাম’ পড়, শুনিতে মন হৈল ॥৯০॥
+
 eka-dina prabhu śrīvāsere ājñā dila
 
 'bṛhat sahasra-nāma' paḍa, śunite mana haila

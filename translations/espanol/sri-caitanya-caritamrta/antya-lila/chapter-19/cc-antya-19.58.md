@@ -1,5 +1,8 @@
 ### CC Antya 19.58
 
+> বিরহে ব্যাকুল প্রভু উদ্বেগে উঠিলা ।
+> গম্ভীরার ভিত্ত্যে মুখ ঘষিতে লাগিলা ॥৫৮॥
+
 > virahe vyākula prabhu udvege uṭhilā
 > gambhīrāra bhittye mukha ghaṣite lāgilā
 

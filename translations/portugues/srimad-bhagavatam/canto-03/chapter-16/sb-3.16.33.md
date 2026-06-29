@@ -1,5 +1,8 @@
 ### SB 3.16.33
 
+> तौ तु गीर्वाणऋषभौ दुस्तराद्धरिलोकतः ।
+> हतश्रियौ ब्रह्मशापादभूतां विगतस्मयौ ॥३३॥
+
 tau tu gīrvāṇa-ṛṣabhau
 *dustarād dhari*-lokataḥ
 hata-śriyau brahma-śāpād

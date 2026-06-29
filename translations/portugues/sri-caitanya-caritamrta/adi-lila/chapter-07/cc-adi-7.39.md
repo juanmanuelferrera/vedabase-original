@@ -1,5 +1,8 @@
 ### CC Adi 7.39
 
+> তবে নিজ ভক্ত কৈল যত ম্লেচ্ছ আদি ।
+> সবে এড়াইল মাত্র কাশীর মায়াবাদী ॥৩৯॥
+
 tabe nija bhakta kaila yata mleccha ādi
 
 sabe eḍāila mātra kāśīra māyāvādī

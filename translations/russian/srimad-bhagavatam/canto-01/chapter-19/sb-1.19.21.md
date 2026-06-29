@@ -1,5 +1,8 @@
 ### SB 1.19.21
 
+> सर्वे वयं तावदिहास्महेऽथ कलेवरं यावदसौ विहाय ।
+> लोकं परं विरजस्कं विशोकं यास्यत्ययं भागवतप्रधानः ॥२१॥
+
 > sarve vayaṁ tāvad ihāsmahe 'tha
 > kalevaraṁ yāvad asau vihāya
 > lokaṁ paraṁ virajaskaṁ viśokaṁ

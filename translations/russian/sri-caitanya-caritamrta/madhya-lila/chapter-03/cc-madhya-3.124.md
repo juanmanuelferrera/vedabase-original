@@ -1,5 +1,8 @@
 ### CC Madhya 3.124
 
+> হা হা প্রাণপ্রিয়সখি, কি না হৈল মোরে ।
+> কানুপ্রেমবিষে মোর তনু-মন জরে ।। ১২৪ ।। ধ্রু ।। ॥১২৪॥
+
 > hā hā prāṇa-priya-sakhī, ki nā haila more
 > kānu-prema-viṣe mora tanu-mana jare
 

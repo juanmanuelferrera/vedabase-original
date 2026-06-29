@@ -1,5 +1,8 @@
 ### CC Adi 4.10
 
+> পূর্ণ ভগবান্ অবতরে যেই কালে ।
+> আর সব অবতার তাঁতে আসি’ মিলে ॥১০॥
+
 pūrṇa bhagavān avatare yei kāle
 āra saba avatāra tāṅte āsi' mile
 

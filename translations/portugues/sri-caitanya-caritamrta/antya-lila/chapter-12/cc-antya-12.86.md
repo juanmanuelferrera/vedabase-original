@@ -1,5 +1,8 @@
 ### CC Antya 12.86
 
+> পূর্ববর্ষে জগদানন্দ ‘আই’ দেখিবারে ।
+> প্রভু-আজ্ঞা লঞা আইলা নদীয়া-নগরে ॥৮৬॥
+
 pūrva-varṣe jagadānanda 'ai' dekhibāre
 
 prabhu-ājñā lañā āilā nadīyā-nagare

@@ -1,5 +1,8 @@
 ### CC Madhya 3.40
 
+> এত বলি’ নৌকায় চড়াঞা নিল নিজ-ঘর ।
+> পাদপ্রক্ষালন কৈল আনন্দ-অন্তর ॥৪০॥
+
 > eta bali' naukāya caḍāñā nila nija-ghara
 > pāda-prakṣālana kaila ānanda-antara
 

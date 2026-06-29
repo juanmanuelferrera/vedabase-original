@@ -1,5 +1,8 @@
 ### CC Antya 4.219
 
+> সনাতন গ্রন্থ কৈলা ‘ভাগবতামৃতে’ ।
+> ভক্ত-ভক্তি-কৃষ্ণ-তত্ত্ব জানি যাহা হৈতে ॥২১৯॥
+
 > sanātana grantha kailā 'bhāgavatāmṛte'
 > bhakta-bhakti-kṛṣṇa-tattva jāni yāhā haite
 

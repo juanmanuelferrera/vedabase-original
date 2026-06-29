@@ -1,5 +1,8 @@
 ### SB 8.24.39
 
+> इत्थमादिश्य राजानं हरिरन्तरधीयत
+> सोऽन्ववैक्षत तं कालं यं हृषीकेश आदिशत ॥३९॥
+
 > ittham ādiśya rājānaṁ
 > harir antaradhīyata
 > so 'nvavaikṣata taṁ kālaṁ

@@ -1,5 +1,8 @@
 ### CC Adi 16.104
 
+> আজি বাসা’ যাহ, কালি মিলিব আবার ।
+> শুনিব তোমার মুখে শাস্ত্রের বিচার ॥১০৪॥
+
 > āji vāsā' yāha, kāli miliba ābāra
 > śuniba tomāra mukhe śāstrera vicāra
 

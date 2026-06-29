@@ -1,5 +1,7 @@
 ### CC Madhya 19.142
 
+> সূক্ষ্মাণামপ্যহং জীবঃ ॥১৪২॥
+
 sūkṣmāṇām apy ahaṁ jīvaḥ
 
 *sūkṣmāṇām*—das partículas diminutas; *api*—certamente; *aham*—Eu; *jīvaḥ*—a entidade viva.

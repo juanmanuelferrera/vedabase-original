@@ -1,5 +1,8 @@
 ### CC Madhya 9.103
 
+> এত বলি’ সেই বিপ্রে কৈল আলিঙ্গন ।
+> প্রভু-পদ ধরি’ বিপ্র করেন রোদন ॥১০৩॥
+
 > eta bali' sei vipre kaila āliṅgana
 > prabhu-pada dhari' vipra karena rodana
 

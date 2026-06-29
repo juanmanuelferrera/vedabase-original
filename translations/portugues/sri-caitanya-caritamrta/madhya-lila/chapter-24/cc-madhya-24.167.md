@@ -1,5 +1,8 @@
 ### CC Madhya 24.167
 
+> এহো কৃষ্ণগুণাকৃষ্ট মহামুনি হঞা ।
+> অহৈতুকী ভক্তি করে নির্গ্রন্থ হঞা ॥১৬৭॥
+
 eho kṛṣṇa-guṇākṛṣṭa mahā-muni hañā
 
 ahaitukī bhakti kare nirgrantha hañā

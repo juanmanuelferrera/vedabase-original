@@ -1,5 +1,8 @@
 ### CC Madhya 24.165
 
+> ‘আত্মা’ শব্দে ‘মন’ কহ — মনে যেই রমে ।
+> সাধুসঙ্গে সেহ ভজে শ্রীকৃষ্ণচরণে ॥১৬৫॥
+
 > 'ātmā' śabde 'mana' kaha—mane yei rame
 > sādhu-saṅge seha bhaje śrī-kṛṣṇa-caraṇe
 

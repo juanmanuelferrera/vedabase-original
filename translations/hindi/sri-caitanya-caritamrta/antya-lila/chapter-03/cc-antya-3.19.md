@@ -1,5 +1,8 @@
 ### CC Antya 3.19
 
+> “ইহারে কহিয়ে শুদ্ধপ্রেমের তরঙ্গ  ।
+> দামোদর-সম মোর নাহি ‘অন্তরঙ্গ’ ।।” ১৯ ॥১৯॥
+
 > "ihāre kahiye śuddha-premera taraṅga
 > dāmodara-sama mora nāhi 'antaraṅga' "
 

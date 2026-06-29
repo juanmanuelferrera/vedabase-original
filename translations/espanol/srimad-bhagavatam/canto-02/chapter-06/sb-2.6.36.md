@@ -1,5 +1,8 @@
 ### SB 2.6.36
 
+> नतोऽस्म्यहं तच्चरणं समीयुषां भवच्छिदं स्वस्त्ययनं सुमङ्गलम् ।
+> यो ह्यात्ममायाविभवं स्म पर्यगाद्यथा नभः स्वान्तमथापरे कुतः ॥३६॥
+
 > nato 'smy ahaṁ tac-caraṇaṁ samīyuṣāṁ
 > bhavac-chidaṁ svasty-ayanaṁ sumaṅgalam
 > yo hy ātma-māyā-vibhavaṁ sma paryagād

@@ -1,5 +1,8 @@
 ### CC Madhya 18.225
 
+> অলৌকিক-লীলা প্রভুর অলৌকিক-রীতি ।
+> শুনিলেও ভাগ্যহীনের না হয় প্রতীতি ॥২২৫॥
+
 alaukika-līlā prabhura alaukika-rīti
 
 śunileo bhāgya-hīnera nā haya pratīti

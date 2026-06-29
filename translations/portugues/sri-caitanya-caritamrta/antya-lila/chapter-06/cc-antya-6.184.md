@@ -1,5 +1,8 @@
 ### CC Antya 6.184
 
+> এথা রঘুনাথ-দাস প্রভাতে উঠিয়া ।
+> পূর্বমুখ ছাড়ি’ চলে দক্ষিণ-মুখ হঞা ॥১৮৪॥
+
 ethā raghunātha-dāsa prabhāte uṭhiyā
 
 pūrva-mukha chāḍi' cale dakṣiṇa-mukha hañā

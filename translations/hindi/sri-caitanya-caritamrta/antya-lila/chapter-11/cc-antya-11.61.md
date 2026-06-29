@@ -1,5 +1,8 @@
 ### CC Antya 11.61
 
+> এইমতে নৃত্য প্রভু কৈলা কতক্ষণ ।
+> স্বরূপ-গোসাঞি প্রভুরে করাইল সাবধান ॥৬১॥
+
 > ei-mate nṛtya prabhu kailā kata-kṣaṇa
 > svarūpa-gosāñi prabhure karāila sāvadhāna
 

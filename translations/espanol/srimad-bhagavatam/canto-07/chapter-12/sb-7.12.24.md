@@ -1,5 +1,8 @@
 ### SB 7.12.24
 
+> आत्मन्यग्नीन्समारोप्य सन्न्यस्याहं ममात्मताम
+> कारणेषु न्यसेत्सम्यक्सङ्घातं तु यथार्हतः ॥२४॥
+
 > ātmany agnīn samāropya
 > sannyasyāhaṁ mamātmatām
 > kāraṇeṣu nyaset samyak

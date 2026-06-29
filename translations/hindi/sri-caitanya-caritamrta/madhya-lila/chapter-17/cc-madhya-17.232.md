@@ -1,5 +1,8 @@
 ### CC Madhya 17.232
 
+> তবু লিখিবারে নারে তার এক কণ ।
+> উদ্দেশ করিতে করি দিগ্দরশন ॥২৩২॥
+
 > tabu likhibāre nāre tāra eka kaṇa
 > uddeśa karite kari dig-daraśana
 

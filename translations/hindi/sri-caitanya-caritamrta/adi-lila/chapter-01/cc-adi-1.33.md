@@ -1,5 +1,8 @@
 ### CC Adi 1.33
 
+> এই ছয় তত্ত্বের করি চরণ বন্দন ।
+> প্রথমে সামান্যে করি মঙ্গলাচরণ ॥৩৩॥
+
 > ei chaya tattvera kari caraṇa vandana
 > prathame sāmānye kari maṅgalācaraṇa
 

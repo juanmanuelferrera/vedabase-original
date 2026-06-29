@@ -1,5 +1,8 @@
 ### CC Adi 17.261
 
+> এই সব মোর নিন্দা-অপরাধ হৈতে ।
+> আমি না লওয়াইলে ভক্তি, না পারে লইতে ॥২৬১॥
+
 ei saba mora nindā-aparādha haite
 āmi nā laoyāile bhakti, nā pāre la-ite
 

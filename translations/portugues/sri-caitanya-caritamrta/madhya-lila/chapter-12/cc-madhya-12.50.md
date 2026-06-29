@@ -1,5 +1,8 @@
 ### CC Madhya 12.50
 
+> প্রভু কহে, — আমি মনুষ্য আশ্রমে সন্ন্যাসী ।
+> কায়মনোবাক্যে ব্যবহারে ভয় বাসি ॥৫০॥
+
 prabhu kahe,-āmi manuṣya āśrame sannyāsī
 
 kāya-mano-vākye vyavahāre bhaya vāsi

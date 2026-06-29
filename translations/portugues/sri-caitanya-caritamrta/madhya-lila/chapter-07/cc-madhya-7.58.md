@@ -1,5 +1,8 @@
 ### CC Madhya 7.58
 
+> ভট্টাচার্য-সঙ্গে আর যত নিজগণ ৷
+> জগন্নাথ প্রদক্ষিণ করি’ করিলা গমন ৷৷ ৫৮ ৷৷ ॥৫৮॥
+
 bhaṭṭācārya-saṅge āra yata nija-gaṇa
 jagannātha pradakṣiṇa kari' karilā gamana
 

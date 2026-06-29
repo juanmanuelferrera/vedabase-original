@@ -1,5 +1,8 @@
 ### CC Madhya 25.165
 
+> সব কাশীবাসী করে নামসংকীর্তন ।
+> প্রেমে হাসে, কাঁদে, গায়, করয়ে নর্তন ॥১৬৫॥
+
 > saba kāśī-vāsī kare nāma-saṅkīrtana
 > preme hāse, kāṅde, gāya, karaye nartana
 

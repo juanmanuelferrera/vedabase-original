@@ -1,5 +1,8 @@
 ### CC Adi 15.9
 
+> মাতা বলে, — তাই দিব, যা তুমি মাগিবে ।
+> প্রভু কহে, — একাদশীতে অন্ন না খাইবে ॥৯॥
+
 > mātā bale,—tāi diba, yā tumi māgibe
 > prabhu kahe,—ekādaśīte anna nā khāibe
 

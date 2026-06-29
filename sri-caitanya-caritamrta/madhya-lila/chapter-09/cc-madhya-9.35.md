@@ -1,5 +1,8 @@
 ### CC Madhya 9.35
 
+> ইষ্টদেব রাম, তাঁর নামে সুখ পাই ।
+> সুখ পাঞা রামনাম রাত্রিদিন গাই ॥৩৫॥
+
 > iṣṭa-deva rāma, tāṅra nāme sukha pāi
 > sukha pāñā rāma-nāma rātri-dina gāi
 

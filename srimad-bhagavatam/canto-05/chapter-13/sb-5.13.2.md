@@ -1,5 +1,8 @@
 ### SB 5.13.2
 
+> यस्यामिमे षण्नरदेव दस्यवः सार्थं विलुम्पन्ति कुनायकं बलात
+> गोमायवो यत्र हरन्ति सार्थिकं प्रमत्तमाविश्य यथोरणं वृकाः ॥२॥
+
 > yasyām ime ṣaṇ nara-deva dasyavaḥ
 > sārthaṁ vilumpanti kunāyakaṁ balāt
 > gomāyavo yatra haranti sārthikaṁ

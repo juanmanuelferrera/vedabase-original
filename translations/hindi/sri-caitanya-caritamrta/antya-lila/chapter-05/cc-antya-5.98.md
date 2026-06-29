@@ -1,5 +1,8 @@
 ### CC Antya 5.98
 
+> অতএব প্রভু কিছু আগে নাহি শুনে ।
+> এই মর্যাদা প্রভু করিয়াছে নিয়মে ॥৯৮॥
+
 > ataeva prabhu kichu āge nāhi śune
 > ei maryādā prabhu kariyāche niyame
 

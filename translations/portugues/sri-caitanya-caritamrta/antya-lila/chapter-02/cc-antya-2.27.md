@@ -1,5 +1,8 @@
 ### CC Antya 2.27
 
+> আবেশে ব্রহ্মচারী কহে, — ‘শিবানন্দ আছে দূরে ।
+> জন দুই চারি যাহ, বোলাহ তাহারে ।।’ ॥ ২৭ ॥
+
 āveśe brahmacārī kahe,--'śivānanda āche dūre
 
 jana dui cāri yāha, bolāha tāhāre'

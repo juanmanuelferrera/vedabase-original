@@ -1,5 +1,8 @@
 ### CC Madhya 16.196
 
+> এক নবীন নৌকা, তার মধ্যে ঘর ।
+> স্বগণে চড়াইলা প্রভু তাহার উপর ॥১৯৬॥
+
 > eka navīna naukā, tāra madhye ghara
 > svagaṇe caḍāilā prabhu tāhāra upara
 

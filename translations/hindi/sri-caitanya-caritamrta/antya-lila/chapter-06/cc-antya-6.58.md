@@ -1,5 +1,8 @@
 ### CC Antya 6.58
 
+> আর অর্ধেক ঘনাবৃত-দুগ্ধেতে ছানিল ।
+> চাঁপাকলা, চিনি, ঘৃত, কর্পূর তাতে দিল ॥৫৮॥
+
 > āra ardheka ghanāvṛta-dugdhete chānila
 > cāṅpā-kalā, cini, ghṛta, karpūra tāte dila
 

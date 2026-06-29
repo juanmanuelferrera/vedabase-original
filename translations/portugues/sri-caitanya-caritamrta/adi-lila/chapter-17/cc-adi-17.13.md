@@ -1,5 +1,8 @@
 ### CC Adi 17.13
 
+> প্রথমে ষড়্ভুজ তাঁরে দেখাইল ঈশ্বর ।
+> শঙ্খচক্রগদাপদ্ম-শার্ঙ্গবেণুধর ॥১৩॥
+
 prathame ṣaḍ-bhuja tāṅre dekhāila īśvara
 śaṅkha-cakra-gadā-padma-śārṅga-veṇu-dhara
 

@@ -1,5 +1,8 @@
 ### CC Madhya 7.88
 
+> তবে মহাপ্রভু দ্বার করাইল মোচন ।
+> আনন্দে আসিয়া লোক পাইল দরশন ॥৮৮॥
+
 > tabe mahāprabhu dvāra karāila mocana
 > ānande āsiyā loka pāila daraśana
 

@@ -1,5 +1,8 @@
 ### CC Antya 9.54
 
+> যথার্থ মূল্য করি’ তবে সব ঘোড়া লইল ।
+> আর দ্রব্যের মুদ্দতী করি’ ঘরে পাঠাইল ॥৫৪॥
+
 yathārtha mūlya kari' tabe saba ghoḍā la-ila
 
 āra dravyera muddatī kari' ghare pāṭhāila

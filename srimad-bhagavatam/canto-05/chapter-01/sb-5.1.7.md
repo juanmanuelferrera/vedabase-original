@@ -1,5 +1,7 @@
 ### SB 5.1.7
 
+> अथ ह भगवानादिदेव एतस्य गुणविसर्गस्य परिबृंहणानुध्यानव्यवसितसकलजगदअभिप्राय आत्मयोनिरखिलनिगमनिजगणपरिवेष्टितः स्वभवनादवततार ॥७॥
+
 > atha ha bhagavān ādi-deva etasya guṇa-visargasya paribṛṁhaṇānudhyāna-vyavasita-sakala-jagad-abhiprāya ātma-yonir akhila-nigama-nija-gaṇa-pariveṣṭitaḥ sva-bhavanād avatatāra.
 
 *atha*—thus; *ha*—indeed; *bhagavān*—the most powerful; *ādi-devaḥ*—the first demigod; *etasya*—of this universe; *guṇa-visargasya*—the creation of the three modes of material nature; *paribṛṁhaṇa*—the welfare; *anudhyāna*—always thinking of; *vyavasita*—known; *sakala*—whole; *jagat*—of the universe; *abhiprāyaḥ*—by whom the ultimate purpose; *ātma*—the Supreme Self; *yoniḥ*—whose source of birth; *akhila*—all; *nigama*—by the *Vedas*; *nija-gaṇa*—by personal associates; *pariveṣṭitaḥ*—being surrounded; *sva-bhavanāt*—from his own abode; *avatatāra*—descended.

@@ -1,5 +1,8 @@
 ### CC Madhya 9.18
 
+> রঘুনাথ দেখি’ কৈল প্রণতি স্তবন ।
+> তাহাঁ এক বিপ্র প্রভুর কৈল নিমন্ত্রণ ॥১৮॥
+
 > raghunātha dekhi' kaila praṇati stavana
 > tāhāṅ eka vipra prabhura kaila nimantraṇa
 

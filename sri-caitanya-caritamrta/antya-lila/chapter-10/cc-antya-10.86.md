@@ -1,5 +1,8 @@
 ### CC Antya 10.86
 
+> ‘একপাশ হও, মোরে দেহ’ ভিতর যাইতে’  ।
+> প্রভু কহে, — ‘শক্তি নাহি অঙ্গ চালাইতে’ ॥৮৬॥
+
 > 'eka-pāśa hao, more deha' bhitara yāite'
 > prabhu kahe,—'śakti nāhi aṅga cālāite'
 

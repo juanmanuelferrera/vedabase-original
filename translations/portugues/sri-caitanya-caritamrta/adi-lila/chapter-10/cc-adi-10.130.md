@@ -1,5 +1,8 @@
 ### CC Adi 10.130
 
+> বড়শাখা এক, — সার্বভৌম ভট্টাচার্য ।
+> তাঁর ভগ্নীপতি শ্রীগোপীনাথাচার্য ॥১৩০॥
+
 baḍa-śākhā eka,--sārvabhauma bhaṭṭācārya
 
 tāṅra bhagnī-pati śrī-gopīnāthācārya

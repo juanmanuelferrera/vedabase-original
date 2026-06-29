@@ -1,5 +1,8 @@
 ### CC Antya 2.82
 
+> শিবানন্দের প্রেমসীমা কে কহিতে পারে ?
+> যাঁর প্রেমে বশ প্রভু আইসে বারে বারে ॥৮২॥
+
 śivānandera prema-sīmā ke kahite pāre?
 
 yāṅra preme vaśa prabhu āise bāre bāre

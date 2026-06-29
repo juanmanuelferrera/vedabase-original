@@ -1,5 +1,8 @@
 ### SB 4.5.12
 
+> बह्वेवमुद्विग्नदृशोच्यमाने जनेन दक्षस्य मुहुर्महात्मनः ।
+> उत्पेतुरुत्पाततमाः सहस्रशो भयावहा दिवि भूमौ च पर्यक् ॥१२॥
+
 > bahv evam udvigna-dṛśocyamāne
 > janena dakṣasya muhur mahātmanaḥ
 > utpetur utpātatamāḥ sahasraśo

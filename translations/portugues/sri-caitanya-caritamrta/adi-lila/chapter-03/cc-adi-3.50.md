@@ -1,5 +1,8 @@
 ### CC Adi 3.50
 
+> ব্যক্ত করি’ ভাগবতে কহে বার বার ।
+> কলিযুগে ধর্ম — নামসংকীর্তন সার ॥৫০॥
+
 vyakta kari' bhāgavate kahe bāra bāra
 kali-yuge dharma--nāma-saṅkīrtana sāra
 

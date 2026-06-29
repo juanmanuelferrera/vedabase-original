@@ -1,5 +1,10 @@
 ### SB 3.23.39
 
+> तेनाष्टलोकपविहारकुलाचलेन्द्र
+> द्रोणीष्वनङ्गसखमारुतसौभगासु ।
+> सिद्धैर्नुतो द्युधुनिपातशिवस्वनासु
+> रेमे चिरं धनदवल्ललनावरूथी ॥३९॥
+
 > tenāṣṭa-lokapa-vihāra-kulācalendra-
 > droṇīṣv anaṅga-sakha-māruta-saubhagāsu
 > siddhair nuto dyudhuni-pāta-śiva-svanāsu

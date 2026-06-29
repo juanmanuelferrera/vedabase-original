@@ -1,5 +1,8 @@
 ### CC Antya 14.60
 
+> শব্দ না পাঞা স্বরূপ কপাট কৈলা দূরে ।
+> তিনদ্বার দেওয়া আছে, প্রভু নাহি ঘরে ! ॥ ৬০ ॥
+
 > śabda nā pāñā svarūpa kapāṭa kailā dūre
 > tina-dvāra deoyā āche, prabhu nāhi ghare!
 

@@ -1,5 +1,8 @@
 ### SB 8.3.3
 
+> यस्मिन्निदं यतश्चेदं येनेदं य इदं स्वयम
+> योऽस्मात्परस्माच्च परस्तं प्रपद्ये स्वयम्भुवम ॥३॥
+
 > yasminn idaṁ yataś cedaṁ
 > yenedaṁ ya idaṁ svayam
 > yo 'smāt parasmāc ca paras

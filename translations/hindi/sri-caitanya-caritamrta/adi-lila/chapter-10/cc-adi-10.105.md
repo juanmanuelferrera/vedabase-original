@@ -1,5 +1,8 @@
 ### CC Adi 10.105
 
+> শ্রীগোপাল ভট্ট এক শাখা সর্বোত্তম ।
+> রূপ-সনাতন-সঙ্গে যাঁর প্রেম-আলাপন ॥১০৫॥
+
 > śrī-gopāla bhaṭṭa eka śākhā sarvottama
 > rūpa-sanātana-saṅge yāṅra prema-ālāpana
 

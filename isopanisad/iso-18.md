@@ -1,5 +1,8 @@
 ### Īśo 18
 
+> अग्ने नय सुपथा राये अस्मान् विश्वानि देव वयुनानि विद्वान्।
+> युयोध्यस्मज्जुहुराणमेनो भूयिष्ठां ते नमउक्तिं विधेम॥१८॥
+
 > agne naya supathā rāye asmān
 > viśvāni deva vayunāni vidvān
 > yuyodhy asmaj juhurāṇam eno

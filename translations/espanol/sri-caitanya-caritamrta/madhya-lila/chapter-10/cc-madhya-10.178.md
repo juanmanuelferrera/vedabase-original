@@ -1,5 +1,8 @@
 ### CC Madhya 10.178
 
+> অদ্বৈতবীথীপথিকৈরুপাস্যাঃ, স্বানন্দসিংহাসন-লব্ধদীক্ষাঃ ৷
+> শঠেন কেনাপি বয়ং হঠেন, দাসীকৃতা গোপবধূবিটেন ৷৷ ১৭৮ ৷৷ ॥১৭৮॥
+
 > advaita-vīthī-pathikair upāsyāḥ
 > svānanda-siṁhāsana-labdha-dīkṣāḥ
 > śaṭhena kenāpi vayaṁ haṭhena

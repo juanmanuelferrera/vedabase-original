@@ -1,5 +1,8 @@
 ### SB 8.24.20
 
+> न म एतदलं राजन्सुखं वस्तुमुदञ्चनम
+> पृथु देहि पदं मह्यं यत्त्वाहं शरणं गता ॥२०॥
+
 na ma etad alaṁ rājan
 sukhaṁ vastum udañcanam
 pṛthu dehi padaṁ mahyaṁ

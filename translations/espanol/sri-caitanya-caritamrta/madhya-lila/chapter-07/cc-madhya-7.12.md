@@ -1,5 +1,8 @@
 ### CC Madhya 7.12
 
+> সেতুবন্ধ হৈতে আমি না আসি যাবৎ ৷
+> নীলাচলে তুমি সব রহিবে তাবৎ ৷৷ ১২ ৷৷ ॥১২॥
+
 > setubandha haite āmi nā āsi yāvat
 > nīlācale tumi saba rahibe tāvat
 

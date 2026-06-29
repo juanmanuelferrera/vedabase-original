@@ -1,5 +1,8 @@
 ### CC Madhya 12.211
 
+> তৃষার্ত প্ৰভুর নেত্র — ভ্রমর-যুগল ৷
+> গাঢ় তৃষ্ণায় পিয়ে কৃষ্ণের বদন-কমল ॥২১১॥
+
 > tṛṣārta prabhura netra-bhramara-yugala
 > gāḍha tṛṣṇāya piye kṛṣṇera vadana-kamala
 

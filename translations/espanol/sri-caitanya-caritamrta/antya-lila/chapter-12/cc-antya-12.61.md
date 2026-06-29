@@ -1,5 +1,8 @@
 ### CC Antya 12.61
 
+> পূর্ববৎ সবা লঞা গুণ্ডিচা-মার্জন ।
+> রথ-আগে পূর্ববৎ করিলা নর্তন ॥৬১॥
+
 > pūrvavat sabā lañā guṇḍicā-mārjana
 > ratha-āge pūrvavat karilā nartana
 

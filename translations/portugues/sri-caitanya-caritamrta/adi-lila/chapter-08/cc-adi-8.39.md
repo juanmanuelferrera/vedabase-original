@@ -1,5 +1,8 @@
 ### CC Adi 8.39
 
+> মনুষ্যে রচিতে নারে ঐছে গ্রন্থ ধন্য ।
+> বৃন্দাবনদাস-মুখে বক্তা শ্রীচৈতন্য ॥৩৯॥
+
 manuṣye racite nāre aiche grantha dhanya
 
 vṛndāvana-dāsa-mukhe vaktā śrī-caitanya

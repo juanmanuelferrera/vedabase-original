@@ -1,5 +1,8 @@
 ### CC Madhya 3.139
 
+> প্রাতঃকৃত্য করি’ করে নাম-সংকীর্তন ৷
+> শচীমাতা লঞা আইলা অদ্বৈত-ভবন ॥১৩৯॥
+
 prātaḥ-kṛtya kari' kare nāma-saṅkīrtana
 
 śacīmātā lañā āilā advaita-bhavana

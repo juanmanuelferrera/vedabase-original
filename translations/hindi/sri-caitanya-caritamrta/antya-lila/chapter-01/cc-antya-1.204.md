@@ -1,5 +1,8 @@
 ### CC Antya 1.204
 
+> মোর মুখে যে সব রস করিলা প্রচারণে ।
+> সেই রস দেখি এই ইহার লিখনে ॥২০৪॥
+
 > mora mukhe ye saba rasa karilā pracāraṇe
 > sei rasa dekhi ei ihāra likhane
 

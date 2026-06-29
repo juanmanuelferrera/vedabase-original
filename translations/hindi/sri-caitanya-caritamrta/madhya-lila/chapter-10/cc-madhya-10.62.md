@@ -1,5 +1,8 @@
 ### CC Madhya 10.62
 
+> ভট্টাচার্য সব লোকে বিদায় করাইল ।
+> তবে প্রভু কালা-কৃষ্ণদাসে বোলাইল ॥৬২॥
+
 > bhaṭṭācārya saba loke vidāya karāila
 > tabe prabhu kālā-kṛṣṇadāse bolāila
 

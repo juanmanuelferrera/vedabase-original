@@ -1,5 +1,8 @@
 ### CC Antya 1.209
 
+> তবে মহাপ্রভু সব ভক্ত লঞা গেলা ।
+> হরিদাস-ঠাকুর রূপে আলিঙ্গন কৈলা ॥২০৯॥
+
 > tabe mahāprabhu saba bhakta lañā gelā
 > haridāsa-ṭhākura rūpe āliṅgana kailā
 

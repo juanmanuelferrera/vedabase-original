@@ -1,5 +1,8 @@
 ### CC Adi 6.54
 
+> ইহার প্রমাণ শুন — শাস্ত্রের ব্যাখ্যান ।
+> মহদনুভব যাতে সুদৃঢ় প্রমাণ ॥৫৪॥
+
 > ihāra pramāṇa śuna--śāstrera vyākhyāna
 > mahad-anubhava yāte sudṛḍha pramāṇa
 

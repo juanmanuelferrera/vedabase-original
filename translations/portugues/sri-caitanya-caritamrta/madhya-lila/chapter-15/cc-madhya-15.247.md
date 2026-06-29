@@ -1,5 +1,8 @@
 ### CC Madhya 15.247
 
+> তেঁহো যদি প্রসাদ দিতে হৈলা আন-মন ।
+> অমোঘ আসি’ অন্ন দেখি’ করয়ে নিন্দন ॥২৪৭॥
+
 teṅho yadi prasāda dite hailā āna-mana
 
 amogha āsi' anna dekhi' karaye nindana

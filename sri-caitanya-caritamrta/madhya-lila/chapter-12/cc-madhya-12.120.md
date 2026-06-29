@@ -1,5 +1,8 @@
 ### CC Madhya 12.120
 
+> নাটশালা-ধুই’ ধুইল চত্বর-প্রাঙ্গণ ।
+> পাকশালা-আদি করি’ করিল প্রক্ষালন ॥১২০॥
+
 > nāṭaśālā dhui' dhuila catvara-prāṅgaṇa
 > pākaśālā-ādi kari' karila prakṣālana
 

@@ -1,5 +1,8 @@
 ### SB 8.18.12
 
+> यत्तद्वपुर्भाति विभूषणायुधैरव्यक्तचिद्व्यक्तमधारयद्धरिः
+> बभूव तेनैव स वामनो वटुः सम्पश्यतोर्दिव्यगतिर्यथा नटः ॥१२॥
+
 > yat tad vapur bhāti vibhūṣaṇāyudhair
 > avyakta-cid-vyaktam adhārayad dhariḥ
 > babhūva tenaiva sa vāmano vaṭuḥ

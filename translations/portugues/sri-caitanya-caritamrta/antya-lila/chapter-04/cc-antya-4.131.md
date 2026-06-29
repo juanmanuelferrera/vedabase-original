@@ -1,5 +1,8 @@
 ### CC Antya 4.131
 
+> মর্যাদা-লঙ্ঘনে লোক করে উপহাস  ।
+> ইহলোক, পরলোক — দুই হয় নাশ ॥১৩১॥
+
 maryādā-laṅghane loka kare upahāsa
 
 iha-loka, para-loka--dui haya nāśa

@@ -1,5 +1,8 @@
 ### CC Adi 17.305
 
+> ইথে তর্ক করি’ কেহ না কর সংশয় ।
+> কৃষ্ণের অচিন্ত্যশক্তি এই মত হয় ॥৩০৫॥
+
 ithe tarka kari' keha nā kara saṁśaya
 kṛṣṇera acintya-śakti ei mata haya
 

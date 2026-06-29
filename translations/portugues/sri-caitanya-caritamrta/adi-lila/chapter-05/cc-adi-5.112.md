@@ -1,5 +1,8 @@
 ### CC Adi 5.112
 
+> সকল জীবের তিঁহো হয়ে অন্তর্যামী ।
+> জগৎ-পালক তিঁহো জগতের স্বামী ॥১১২॥
+
 sakala jīvera tiṅho haye antaryāmī
 jagat-pālaka tiṅho jagatera svāmī
 

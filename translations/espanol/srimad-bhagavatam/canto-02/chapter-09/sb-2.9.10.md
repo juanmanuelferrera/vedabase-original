@@ -1,5 +1,8 @@
 ### SB 2.9.10
 
+> प्रवर्तते यत्र रजस्तमस्तयोः सत्त्वं च मिश्रं न च कालविक्रमः ।
+> न यत्र माया किमुतापरे हरेरनुव्रता यत्र सुरासुरार्चिताः ॥१०॥
+
 > pravartate yatra rajas tamas tayoḥ
 > sattvaṁ ca miśraṁ na ca kāla-vikramaḥ
 > na yatra māyā kim utāpare harer

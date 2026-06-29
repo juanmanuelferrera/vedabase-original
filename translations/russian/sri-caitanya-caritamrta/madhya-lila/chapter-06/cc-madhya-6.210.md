@@ -1,5 +1,8 @@
 ### CC Madhya 6.210
 
+> গোপীনাথাচার্য কহে মহাপ্রভুর প্রতি ।
+> ‘সেই ভট্টাচার্যের প্রভু কৈলে এই গতি ।।’ ॥ ২১০ ॥
+
 > gopīnāthācārya kahe mahāprabhura prati
 > 'sei bhaṭṭācāryera prabhu kaile ei gati'
 

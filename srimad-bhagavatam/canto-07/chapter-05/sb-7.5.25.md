@@ -1,5 +1,8 @@
 ### SB 7.5.25
 
+> निशम्यैतत्सुतवचो हिरण्यकशिपुस्तदा
+> गुरुपुत्रमुवाचेदं रुषा प्रस्फुरिताधरः ॥२५॥
+
 > niśamyaitat suta-vaco
 > hiraṇyakaśipus tadā
 > guru-putram uvācedaṁ

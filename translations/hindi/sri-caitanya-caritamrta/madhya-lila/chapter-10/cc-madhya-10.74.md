@@ -1,5 +1,8 @@
 ### CC Madhya 10.74
 
+> তবে সেই কৃষ্ণদাসে গৌড়ে পাঠাইল ।
+> বৈষ্ণব-সবাকে দিতে মহাপ্রসাদ দিল ॥৭৪॥
+
 > tabe sei kṛṣṇadāse gauḍe pāṭhāila
 > vaiṣṇava-sabāke dite mahā-prasāda dila
 

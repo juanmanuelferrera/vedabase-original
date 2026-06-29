@@ -1,5 +1,8 @@
 ### SB 2.9.6
 
+> स चिन्तयन्द्व्यक्षरमेकदाम्भस्युपाशृणोद्द्विर्गदितं वचो विभुः ।
+> स्पर्शेषु यत्षोडशमेकविंशं निष्किञ्चनानां नृप यद्धनं विदुः ॥६॥
+
 > sa cintayan dvy-akṣaram ekadāmbhasy
 > upāśṛṇod dvir-gaditaṁ vaco vibhuḥ
 > sparśeṣu yat ṣoḍaśam ekaviṁśaṁ

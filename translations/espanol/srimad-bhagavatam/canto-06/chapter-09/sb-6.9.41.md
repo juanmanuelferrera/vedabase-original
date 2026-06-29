@@ -1,5 +1,7 @@
 ### SB 6.9.41
 
+> अस्माकं तावकानां तततत नतानां हरे तवचरणनलिनयुगलध्यानानुबद्धहृदयनिगडानांस्वलिङ्गविवरणेनात्मसात्कृतानामनुकम्पानुरञ्जितविशदरुचिरशिशिरस्मितावलोकेनविगलितमधुरमुखरसामृतकलया चान्तस्तापमनघार्हसि शमयितुम ॥४१॥
+
 > asmākaṁ tāvakānāṁ tatatata natānāṁ hare tava caraṇa-nalina-yugala-dhyānānubaddha-hṛdaya-nigaḍānāṁ sva-liṅga-vivaraṇenātmasāt-kṛtānām anukampānurañjita-viśada-rucira-śiśira-smitāvalokena vigalita-madhura-mukha-rasāmṛta-kalayā cāntas tāpam anaghārhasi śamayitum.
 
 *asmākam*—de nosotros; *tāvakānām*—que dependemos completa y exclusivamente de Ti; *tata-tata*—¡oh, abuelo, padre del padre!; *natānām*—que estamos completamente entregados a Ti; *hare*—¡oh, Señor Hari!; *tava*—Tus; *caraṇa*—en los pies; *nalina-yugala*—como dos flores de loto azules; *dhyāna*—mediante la meditación; *anubaddha*—atados; *hṛdaya*—en el corazón; *nigaḍānām*—cuyas cadenas; *sva-liṅga-vivaraṇena*—por manifestar Tu propia forma; *ātmasāt-kṛtānām*—de aquellos que Tú has aceptado como Tuyos propios; *anukampā*—por compasión; *anurañjita*—con el color; *viśada*—brillante; *rucira*—muy agradable; *śiśira*—fresca; *smita*—con una sonrisa; *avalokena*—por Tu mirada; *vigalita*—fundida de compasión; *madhura-mukha-rasa*—de las muy dulces palabras de Tu boca; *amṛta-kalayā*—con las gotas de néctar; *ca*—y; *antaḥ*—en lo más profundo de nuestros corazones; *tāpam*—el gran sufrimiento; *anagha*—¡oh, pureza suprema!; *arhasi*—mereces; *śamayitum*—reprimir.

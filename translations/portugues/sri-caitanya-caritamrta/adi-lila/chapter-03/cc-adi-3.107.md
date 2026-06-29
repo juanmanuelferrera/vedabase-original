@@ -1,5 +1,8 @@
 ### CC Adi 3.107
 
+> তবে আত্মা বেচি’ করে ঋণের শোধন ।
+> এত ভাবি’ আচার্য করেন আরাধন ॥১০৭॥
+
 tabe ātmā veci' kare ṛṇera śodhana
 eta bhāvi' ācārya karena ārādhana
 

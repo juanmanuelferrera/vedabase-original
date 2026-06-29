@@ -1,5 +1,7 @@
 ### SB 5.6.9
 
+> यस्य किलानुचरितमुपाकर्ण्य कोङ्कवेङ्ककुटकानां राजार्हन्नामोपशिक्ष्य कलावधर्मउत्कृष्यमाणे भवितव्येन विमोहितः स्वधर्मपथमकुतोभयमपहाय कुपथपाखण्डमसमञ्जसं निजमनीषया मन्दः सम्प्रवर्तयिष्यते ॥९॥
+
 > yasya kilānucaritam upākarṇya koṅka-veṅka-kuṭakānāṁ rājārhan-nāmopaśikṣya kalāv adharma utkṛṣyamāṇe bhavitavyena vimohitaḥ sva-dharma-patham akuto-bhayam apahāya kupatha-pākhaṇḍam asamañjasaṁ nija-manīṣayā mandaḥ sampravartayiṣyate.
 
 *yasya*—de quien (el Señor Ṛṣabhadeva); *kila anucaritam*—pasatiempos como *paramahaṁsa,* por encima de todos los principios regulativos del *varṇāśrama*; *upākarṇya*—escuchar; *koṅka-veṅka-kuṭakānām*—de Koṅka, Veṅka y Kuṭaka; *rājā*—el rey; *arhat-nāma*—cuyo nombre era Arhat (conocido ahora como el Jaín); *upaśikṣya*—imitando las actividades del Señor Ṛṣabhadeva en Su aspecto de *paramahaṁsa*; *kalau*—en la era de Kali; *adharme utkṛṣyamāṇe*—debido al aumento de la vida irreligiosa; *bhavitavyena*—por lo que estaba a punto de ocurrir; *vimohitaḥ*—confundido; *sva-dharma-patham*—el sendero de la religión; *akutaḥ-bhayam*—que está libre de todo tipo de temibles peligros; *apahāya*—abandonar (prácticas como la limpieza, la veracidad, el control de la mente y los sentidos, la sencillez, los principios de la religión y la aplicación práctica del conocimiento); *ku-patha-pākhaṇḍam*—la errónea senda del ateísmo; *asamañjasam*—impropio o contrario a las Escrituras védicas; *nija-manīṣayā*—de su fértil cerebro; *mandaḥ*—muy necio; *sampravartayiṣyate*—introducirá.

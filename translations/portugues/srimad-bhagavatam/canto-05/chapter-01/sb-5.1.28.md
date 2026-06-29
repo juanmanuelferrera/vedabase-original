@@ -1,5 +1,7 @@
 ### SB 5.1.28
 
+> अन्यस्यामपि जायायां त्रयः पुत्रा आसन्नुत्तमस्तामसो रैवत इति मन्वन्तराधिपतयः ॥२८॥
+
 anyasyām api jāyāyāṁ trayaḥ putrā āsann uttamas tāmaso raivata iti manvantarādhipatayaḥ.
 
 *anyasyām*—outra; *api*—também; *jāyāyām*—na esposa; *trayaḥ*—três; *putrāḥ*—filhos; *āsan*—houve; *uttamaḥ tāmasaḥ raivataḥ*—Uttama, Tāmasa e Raivata; *iti*—assim; *manu-antara*—do milênio *manvantara*; *adhipatayaḥ*—governantes.

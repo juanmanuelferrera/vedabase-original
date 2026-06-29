@@ -1,5 +1,8 @@
 ### CC Madhya 9.75
 
+> গো-সমাজে শিব দেখি’ আইলা বেদাবন ।
+> মহাদেব দেখি’ তাঁরে করিলা বন্দন ॥৭৫॥
+
 > go-samāje śiva dekhi' āilā vedāvana
 > mahādeva dekhi' tāṅre karilā vandana
 

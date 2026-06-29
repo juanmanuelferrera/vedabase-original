@@ -1,5 +1,8 @@
 ### CC Antya 5.150
 
+> সংসারতারণ-হেতু যেই ইচ্ছা-শক্তি ।
+> তাহার মিলন করি’ একতা যৈছে প্রাপ্তি ॥১৫০॥
+
 > saṁsāra-tāraṇa-hetu yei icchā-śakti
 > tāhāra milana kari' ekatā yaiche prāpti
 

@@ -1,5 +1,10 @@
 ### CC Antya 19.46
 
+> “না জানিস্ প্রেম-মর্ম, ব্যর্থ করিস্ পরিশ্রম,
+> তোর চেষ্টা — বালক-সমান ।
+> ‘তোর যদি লাগ্ পাইয়ে, তবে তোরে শিক্ষা দিয়ে,
+> এমন যেন না করিস্ বিধান ॥৪৬॥
+
 > "nā jānis prema-marma, vyartha karis pariśrama,
 > tora ceṣṭā--bālaka-samāna
 > 'tora yadi lāg pāiye, tabe tore śikṣā diye,

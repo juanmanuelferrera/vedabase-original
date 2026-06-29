@@ -1,5 +1,8 @@
 ### CC Madhya 1.186
 
+> দৈন্য রোদন করে, আনন্দে বিহ্বল ।
+> প্রভু কহে, — উঠ, উঠ, হইল মঙ্গল ॥১৮৬॥
+
 dainya rodana kare, ānande vihvala
 
 prabhu kahe,--uṭha, uṭha, ha-ila maṅgala

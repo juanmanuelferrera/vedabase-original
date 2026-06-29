@@ -1,5 +1,8 @@
 ### CC Antya 6.25
 
+> “আমার পিতা, জ্যেঠা হয় তোমার দুই ভাই  ।
+> ভাই-ভাইয়ে তোমরা কলহ কর সর্বদাই ॥২৫॥
+
 "āmāra pitā, jyeṭhā haya tomāra dui bhāi
 
 bhāi-bhāiye tomarā kalaha kara sarvadāi

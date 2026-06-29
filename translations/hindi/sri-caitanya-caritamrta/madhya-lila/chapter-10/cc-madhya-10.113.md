@@ -1,5 +1,8 @@
 ### CC Madhya 10.113
 
+> ভক্তিসিদ্ধান্ত-বিরুদ্ধ, আর রসাভাস ।
+> শুনিতে না হয় প্রভুর চিত্তের উল্লাস ॥১১৩॥
+
 > bhakti-siddhānta-viruddha, āra rasābhāsa
 > śunite nā haya prabhura cittera ullāsa
 

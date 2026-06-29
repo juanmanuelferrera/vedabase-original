@@ -1,5 +1,8 @@
 ### Bg 4.37
 
+> यथैधांसि समिद्धोऽग्निर्भस्मसात्कुरुतेऽर्जुन ।
+> ज्ञानाग्निः सर्वकर्माणि भस्मसात्कुरुते तथा ॥३७॥
+
 > yathaidhāṁsi samiddho 'gnir
 > bhasma-sāt kurute 'rjuna
 > jñānāgniḥ sarva-karmāṇi

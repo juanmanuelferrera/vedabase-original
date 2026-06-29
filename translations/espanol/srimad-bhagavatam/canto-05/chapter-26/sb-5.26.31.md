@@ -1,5 +1,7 @@
 ### SB 5.26.31
 
+> ये त्विह वै पुरुषाः पुरुषमेधेन यजन्ते याश्च स्त्रियो नृपशून्खादन्ति तांश्च ते पशव इवनिहता यमसदने यातयन्तो रक्षोगणाः सौनिका इव स्वधितिनावदायासृक्पिबन्ति नृत्यन्ति च गायन्ति चहृष्यमाणा यथेह पुरुषादाः ॥३०॥
+
 > ye tv iha vai puruṣāḥ puruṣa-medhena yajante yāś ca striyo nṛ-paśūn khādanti tāṁś ca te paśava iva nihatā yama-sadane yātayanto rakṣo-gaṇāḥ saunikā iva svadhitināvadāyāsṛk pibanti nṛtyanti ca gāyanti ca hṛṣyamāṇā yatheha puruṣādāḥ.
 
 *ye*—personas que; *tu*—pero; *iha*—en esta vida; *vai*—en verdad; *puruṣāḥ*—hombres; *puruṣa-medhena*—con un sacrificio humano; *yajante*—adoran (a la diosa Kālī o Bhadra Kālī); *yāḥ*—aquellos que; *ca*—y; *striyaḥ*—mujeres; *nṛ-paśūn*—a los hombres víctimas del sacrificio; *khādanti*—comen; *tān*—a ellos; *ca*—y; *te*—ellos; *paśavaḥ iva*—como los animales; *nihatāḥ*—matados; *yama-sadane*—en la morada de Yamarāja; *yātayantaḥ*—castigando; *rakṣaḥ-gaṇāḥ*—como *rākṣasas*; *saunikāḥ*—los que mataron; *iva*—como; *svadhitinā*—con una espada; *avadāya*—cortando en pedazos; *asṛk*—la sangre; *pibanti*—beben; *nṛtyanti*—bailan; *ca*—y; *gāyanti*—cantan; *ca*—también; *hṛṣyamāṇāḥ*—deleitándose; *yathā*—tal como; *iha*—en este mundo; *puruṣa-adāḥ*—los caníbales.

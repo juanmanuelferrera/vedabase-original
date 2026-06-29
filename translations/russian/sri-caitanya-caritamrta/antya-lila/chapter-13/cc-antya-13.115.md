@@ -1,5 +1,8 @@
 ### CC Antya 13.115
 
+> আলিঙ্গন করি’ প্রভু বিদায় তাঁরে দিলা ।
+> প্রেমে গর গর ভট্ট কান্দিতে লাগিলা ॥১১৫॥
+
 > āliṅgana kari' prabhu vidāya tāṅre dilā
 > preme gara gara bhaṭṭa kāndite lāgilā
 

@@ -1,5 +1,8 @@
 ### CC Antya 12.124
 
+> মধ্যাহ্ন করিয়া প্রভু আইলা ভোজনে ।
+> পাদ প্রক্ষালন করি’ দিলেন আসনে ॥১২৪॥
+
 > madhyāhna kariyā prabhu āilā bhojane
 > pāda prakṣālana kari' dilena āsane
 

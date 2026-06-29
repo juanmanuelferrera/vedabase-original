@@ -1,5 +1,8 @@
 ### CC Antya 2.112
 
+> অন্ন প্রশংসিয়া প্রভু ভোজন করিলা  ।
+> নিজগৃহে আসি’ গোবিন্দেরে আজ্ঞা দিলা ॥১১২॥
+
 anna praśaṁsiyā prabhu bhojana karilā
 
 nija-gṛhe āsi' govindere ājñā dilā

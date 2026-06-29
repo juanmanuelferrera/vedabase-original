@@ -1,5 +1,8 @@
 ### CC Antya 8.41
 
+> প্রত্যহ প্রভুর ভিক্ষা ইতি-উতি হয় ।
+> কেহ যদি মূল্য আনে, চারিপণ-নির্ণয় ॥৪১॥
+
 pratyaha prabhura bhikṣā iti-uti haya
 
 keha yadi mūlya āne, cāri-paṇa-nirṇaya

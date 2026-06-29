@@ -1,5 +1,8 @@
 ### CC Madhya 4.47
 
+> প্রাতঃস্নান করি’ পুরী গ্রামমধ্যে গেলা ।
+> সব লোক একত্র করি’ কহিতে লাগিলা ॥৪৭॥
+
 > prātaḥ-snāna kari' purī grāma-madhye gelā
 > saba loka ekatra kari' kahite lāgilā
 

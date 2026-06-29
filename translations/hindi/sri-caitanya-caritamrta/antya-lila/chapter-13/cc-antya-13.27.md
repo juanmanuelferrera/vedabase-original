@@ -1,5 +1,8 @@
 ### CC Antya 13.27
 
+> স্বরূপ-গোসাঞিরে পণ্ডিত কৈলা নিবেদন  ।
+> “পূর্ব হৈতে বৃন্দাবন যাইতে মোর মন ॥২৭॥
+
 > svarūpa-gosāñire paṇḍita kailā nivedana
 > "pūrva haite vṛndāvana yāite mora mana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 21.96
 
+> নিজ-চিচ্ছক্তে কৃষ্ণ নিত্য বিরাজমান ।
+> চিচ্ছক্তি-সম্পত্তির ‘ষড়ৈশ্বর্য’ নাম ॥৯৬॥
+
 > nija-cic-chakte kṛṣṇa nitya virājamāna
 > cic-chakti-sampattira 'ṣaḍ-aiśvarya' nāma
 

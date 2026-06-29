@@ -1,5 +1,8 @@
 ### SB 4.29.85
 
+> अध्यात्मपारोक्ष्यमिदं मयाधिगतमद्भुतम् ।
+> एवं स्त्रियाश्रमः पुंसश्छिन्नोऽमुत्र च संशयः ॥८५॥
+
 > adhyātma-pārokṣyam idaṁ
 > mayādhigatam adbhutam
 > evaṁ striyāśramaḥ puṁsaś

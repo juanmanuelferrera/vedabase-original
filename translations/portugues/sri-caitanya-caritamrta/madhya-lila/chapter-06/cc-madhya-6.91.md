@@ -1,5 +1,8 @@
 ### CC Madhya 6.91
 
+> তবু ত’ ঈশ্বর-জ্ঞান না হয় তোমার  ।
+> ঈশ্বরের মায়া এই — বলি ব্যবহার ॥৯১॥
+
 tabu ta' īśvara-jñāna nā haya tomāra
 
 īśvarera māyā ei--bali vyavahāra

@@ -1,5 +1,8 @@
 ### CC Madhya 8.129
 
+> ‘সন্ন্যাসী’ বলিয়া মোরে না করিহ বঞ্চন ৷
+> কৃষ্ণ-রাধা-তত্ত্ব কহি’ পূর্ণ কর মন ৷৷ ১২৯ ৷৷ ॥১২৯॥
+
 > 'sannyāsī' baliyā more nā kariha vañcana
 > kṛṣṇa-rādhā-tattva kahi' pūrṇa kara mana
 

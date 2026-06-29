@@ -1,5 +1,8 @@
 ### SB 9.15.41
 
+> राज्ञओ मूर्धाभिषिक्तस्य वधो ब्रह्मवधाद्गुरुः
+> तीर्थसंसेवया चांहो जह्यङ्गाच्युतचेतनः ॥४१॥
+
 > rājño mūrdhābhiṣiktasya
 > vadho brahma-vadhād guruḥ
 > tīrtha-saṁsevayā cāṁho

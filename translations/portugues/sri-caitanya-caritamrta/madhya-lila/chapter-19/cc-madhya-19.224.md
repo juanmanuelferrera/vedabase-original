@@ -1,5 +1,8 @@
 ### CC Madhya 19.224
 
+> বিশ্রম্ভ-প্রধান সখ্য — গৌরব-সম্ভ্রম-হীন ।
+> অতএব সখ্য-রসের ‘তিন’ গুণ — চিহ্ন ॥২২৪॥
+
 viśrambha-pradhāna sakhya--gaurava-sambhrama-hīna
 
 ataeva sakhya-rasera 'tina' guṇa--cihna

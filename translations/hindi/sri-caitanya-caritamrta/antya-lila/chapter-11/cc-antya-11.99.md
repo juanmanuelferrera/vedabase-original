@@ -1,5 +1,8 @@
 ### CC Antya 11.99
 
+> সবে গায়, — “জয় জয় জয় হরিদাস ।
+> নামের মহিমা যেঁহ করিলা প্রকাশ ।।” ॥ ৯৯ ॥
+
 > sabe gāya,--"jaya jaya jaya haridāsa
 > nāmera mahimā yeṅha karilā prakāśa"
 

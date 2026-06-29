@@ -1,5 +1,8 @@
 ### SB 9.21.7
 
+> अथान्यो भोक्ष्यमाणस्य विभक्तस्य महीपतेः
+> विभक्तं व्यभजत्तस्मै वृषलाय हरिं स्मरन ॥७॥
+
 > athānyo bhokṣyamāṇasya
 > vibhaktasya mahīpateḥ
 > vibhaktaṁ vyabhajat tasmai

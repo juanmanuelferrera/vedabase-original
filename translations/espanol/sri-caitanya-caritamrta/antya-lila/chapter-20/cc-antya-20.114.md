@@ -1,5 +1,8 @@
 ### CC Antya 20.114
 
+> সপ্তম-পরিচ্ছেদে — বল্লভ ভট্টের মিলন ।
+> নানা-মতে কৈলা তাঁর গর্ব খণ্ডন ॥১১৪॥
+
 > saptama-paricchede--vallabha bhaṭṭera milana
 > nānā-mate kailā tāṅra garva khaṇḍana
 

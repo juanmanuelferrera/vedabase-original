@@ -1,5 +1,8 @@
 ### SB 4.22.3
 
+> तद्दर्शनोद्गतान्प्राणान्प्रत्यादित्सुरिवोत्थितः ।
+> ससदस्यानुगो वैन्य इन्द्रियेशो गुणानिव ॥३॥
+
 > tad-darśanodgatān prāṇān
 > pratyāditsur ivotthitaḥ
 > sa-sadasyānugo vainya

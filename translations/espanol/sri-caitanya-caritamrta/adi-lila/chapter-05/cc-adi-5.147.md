@@ -1,5 +1,8 @@
 ### CC Adi 5.147
 
+> অদ্বৈত-আচার্য-গোসাঞি সাক্ষাৎ ঈশ্বর ।
+> প্রভু গুরু করি’ মানে, তিঁহো ত’ কিঙ্কর ॥১৪৭॥
+
 > advaita-ācārya-gosāñi sākṣāt īśvara
 > prabhu guru kari' māne, tiṅho ta' kiṅkara
 

@@ -1,5 +1,8 @@
 ### CC Adi 5.217
 
+> মো-অধমে দিল শ্রীগোবিন্দ দরশন ।
+> কহিবার কথা নহে অকথ্য-কথন ॥২১৭॥
+
 mo-adhame dila śrī-govinda daraśana
 
 kahibāra kathā nahe akathya-kathana

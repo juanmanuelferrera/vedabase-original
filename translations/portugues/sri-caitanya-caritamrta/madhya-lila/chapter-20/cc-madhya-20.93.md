@@ -1,5 +1,8 @@
 ### CC Madhya 20.93
 
+> গোসাঞি কহে, — “যে খণ্ডিল কুবিষয়-ভোগ ।
+> তাঁর ইচ্ছায় গেল মোর শেষ বিষয়-রোগ ।।” ॥ ৯৩ ॥
+
 gosāñi kahe,--'ye khaṇḍila kuviṣaya-bhoga
 
 tāṅra icchāya gela mora śeṣa viṣaya-roga"

@@ -1,5 +1,8 @@
 ### CC Madhya 12.68
 
+> সেই হৈতে ভাগ্যবান্ রাজার নন্দন ।
+> প্রভুভক্তগণ-মধ্যে হৈলা একজন ॥৬৮॥
+
 sei haite bhāgyavān rājāra nandana
 
 prabhu-bhakta-gaṇa-madhye hailā eka-jana

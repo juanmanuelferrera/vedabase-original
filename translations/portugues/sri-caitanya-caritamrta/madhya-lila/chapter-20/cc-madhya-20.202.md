@@ -1,5 +1,8 @@
 ### CC Madhya 20.202
 
+> দ্বাদশ-তিলক-মন্ত্র এই দ্বাদশ নাম ।
+> আচমনে এই নামে স্পর্শি তত্তৎস্থান ॥২০২॥
+
 dvādaśa-tilaka-mantra ei dvādaśa nāma
 
 ācamane ei nāme sparśi tat-tat-sthāna

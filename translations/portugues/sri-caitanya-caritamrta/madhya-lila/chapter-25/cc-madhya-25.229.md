@@ -1,5 +1,8 @@
 ### CC Madhya 25.229
 
+> কাশী-মিশ্র, প্রদ্যুম্ন-মিশ্র, পণ্ডিত-দামোদর  ।
+> হরিদাস-ঠাকুর, আর পণ্ডিত-শঙ্কর ॥২২৯॥
+
 kāśī-miśra, pradyumna-miśra, paṇḍita-dāmodara
 
 haridāsa-ṭhākura, āra paṇḍita-śaṅkara

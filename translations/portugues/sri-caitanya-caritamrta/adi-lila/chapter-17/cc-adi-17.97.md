@@ -1,5 +1,8 @@
 ### CC Adi 17.97
 
+> অপরাধ নাহি, কৈলে লোকের নিস্তার ।
+> যে তোমা’ দেখিল, তার ছুটিল সংসার ॥৯৭॥
+
 aparādha nāhi, kaile lokera nistāra
 
 ye tomā' dekhila, tāra chuṭila saṁsāra

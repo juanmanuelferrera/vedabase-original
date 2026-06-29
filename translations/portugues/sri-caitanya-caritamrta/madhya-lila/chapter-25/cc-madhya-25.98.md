@@ -1,5 +1,8 @@
 ### CC Madhya 25.98
 
+> চারিবেদ-উপনিষদে যত কিছু হয় ।
+> তার অর্থ লঞা ব্যাস করিলা সঞ্চয় ॥৯৮॥
+
 cāri-veda-upaniṣade yata kichu haya
 
 tāra artha lañā vyāsa karilā sañcaya

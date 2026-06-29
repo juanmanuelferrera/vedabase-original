@@ -1,5 +1,8 @@
 ### CC Madhya 9.101
 
+> যাবৎ পড়োঁ, তাবৎ পাঙ তাঁর দরশন ।
+> এই লাগি’ গীতা-পাঠ না ছাড়ে মোর মন ॥১০১॥
+
 > yāvat paḍoṅ, tāvat pāṅa tāṅra daraśana
 > ei lāgi' gītā-pāṭha nā chāḍe mora mana
 

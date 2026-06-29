@@ -1,5 +1,8 @@
 ### CC Adi 4.19
 
+> আমাকে ত’ যে যে ভক্ত ভজে যেই ভাবে ।
+> তারে সে সে ভাবে ভজি, — এ মোর স্বভাবে ॥১৯॥
+
 > āmāke ta' ye ye bhakta bhaje yei bhāve
 > tāre se se bhāve bhaji,—e mora svabhāve
 

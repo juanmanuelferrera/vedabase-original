@@ -1,5 +1,8 @@
 ### CC Adi 10.147
 
+> বড় হরিদাস, আর ছোট হরিদাস ।
+> দুই কীর্তনীয়া রহে মহাপ্রভুর পাশ ॥১৪৭॥
+
 baḍa haridāsa, āra choṭa haridāsa
 
 dui kīrtanīyā rahe mahāprabhura pāśa

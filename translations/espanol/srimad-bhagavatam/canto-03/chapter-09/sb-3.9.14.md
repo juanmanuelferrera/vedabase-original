@@ -1,5 +1,10 @@
 ### SB 3.9.14
 
+> शश्वत्स्वरूपमहसैव निपीतभेद
+> मोहाय बोधधिषणाय नमः परस्मै ।
+> विश्वोद्भवस्थितिलयेषु निमित्तलीला
+> रासाय ते नम इदं चकृमेश्वराय ॥१४॥
+
 > śaśvat svarūpa-mahasaiva nipīta-bheda-
 > mohāya bodha-dhiṣaṇāya namaḥ parasmai
 > viśvodbhava-sthiti-layeṣu nimitta-līlā-

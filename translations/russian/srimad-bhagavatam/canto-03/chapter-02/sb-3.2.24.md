@@ -1,5 +1,8 @@
 ### SB 3.2.24
 
+> मन्येऽसुरान्भागवतांस्त्र्यधीशे संरम्भमार्गाभिनिविष्टचित्तान् ।
+> ये संयुगेऽचक्षत तार्क्ष्यपुत्रमंसे सुनाभायुधमापतन्तम् ॥२४॥
+
 > manye 'surān bhāgavatāṁs tryadhīśe
 > saṁrambha-mārgābhiniviṣṭa-cittān
 > ye saṁyuge 'cakṣata tārkṣya-putram

@@ -1,5 +1,8 @@
 ### CC Madhya 25.194
 
+> তবে সুবুদ্ধি-রায় সেই ‘ছদ্ম’ পাঞা ।
+> বারাণসী আইলা, সব বিষয় ছাড়িয়া ॥১৯৪॥
+
 > tabe subuddhi-rāya sei 'chadma' pāñā
 > vārāṇasī āilā, saba viṣaya chādiyā
 

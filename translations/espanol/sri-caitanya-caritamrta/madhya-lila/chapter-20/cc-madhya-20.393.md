@@ -1,5 +1,8 @@
 ### CC Madhya 20.393
 
+> অলাতচক্রপ্রায় সেই লীলাচক্র ফিরে ।
+> সব লীলা সব ব্রহ্মাণ্ডে ক্রমে উদয় করে ॥৩৯৩॥
+
 > alāta-cakra-prāya sei līlā-cakra phire
 > saba līlā saba brahmāṇḍe krame udaya kare
 

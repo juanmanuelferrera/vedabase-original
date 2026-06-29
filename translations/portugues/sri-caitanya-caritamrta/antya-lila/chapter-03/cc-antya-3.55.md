@@ -1,5 +1,8 @@
 ### CC Antya 3.55
 
+> যদ্যপি অন্য সঙ্কেতে অন্য হয় নামাভাস ।
+> তথাপি নামের তেজ না হয় বিনাশ ॥৫৫॥
+
 yadyapi anya saṅkete anya haya nāmābhāsa
 
 tathāpi nāmera teja nā haya vināśa

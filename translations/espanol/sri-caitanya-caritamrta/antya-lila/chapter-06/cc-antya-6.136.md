@@ -1,5 +1,8 @@
 ### CC Antya 6.136
 
+> কৃষ্ণপাদপদ্ম-গন্ধ যেই জন পায়  ।
+> ব্রহ্মলোক-আদি-সুখ তাঁরে নাহি ভায় ।।” ১৩৬ ॥১৩৬॥
+
 > kṛṣṇa-pāda-padma-gandha yei jana pāya
 > brahmaloka-ādi-sukha tāṅre nāhi bhāya"
 

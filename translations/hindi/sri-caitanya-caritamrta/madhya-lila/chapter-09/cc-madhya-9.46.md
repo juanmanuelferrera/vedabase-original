@@ -1,5 +1,8 @@
 ### CC Madhya 9.46
 
+> পাষণ্ডী আইল যত পাণ্ডিত্য শুনিয়া ।
+> গর্ব করি’ আইল সঙ্গে শিষ্যগণ লঞা ॥৪৬॥
+
 > pāṣaṇḍī āila yata pāṇḍitya śuniyā
 > garva kari' āila saṅge śiṣya-gaṇa lañā
 

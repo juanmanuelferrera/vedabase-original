@@ -1,5 +1,8 @@
 ### SB 3.22.16
 
+> कामः स भूयान्नरदेव तेऽस्याः पुत्र्याः समाम्नायविधौ प्रतीतः ।
+> क एव ते तनयां नाद्रियेत स्वयैव कान्त्या क्षिपतीमिव श्रियम् ॥१६॥
+
 > kāmaḥ sa bhūyān naradeva te 'syāḥ
 > putryāḥ samāmnāya-vidhau pratītaḥ
 > ka eva te tanayāṁ nādriyeta

@@ -1,5 +1,8 @@
 ### SB 4.19.37
 
+> भवान्परित्रातुमिहावतीर्णो धर्मं जनानां समयानुरूपम् ।
+> वेनापचारादवलुप्तमद्य तद्देहतो विष्णुकलासि वैन्य ॥३७॥
+
 > bhavān paritrātum ihāvatīrṇo
 > dharmaṁ janānāṁ samayānurūpam
 > venāpacārād avaluptam adya

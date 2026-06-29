@@ -1,5 +1,8 @@
 ### CC Madhya 9.80
 
+> কাবেরীতে স্নান করি’ দেখি’ রঙ্গনাথ ৷
+> স্তুতি-প্রণতি করি’ মানিলা কৃতার্থ ৷৷ ৮০ ৷৷ ॥৮০॥
+
 kāverīte snāna kari' dekhi' raṅganātha
 
 stuti-praṇati kari' mānilā kṛtārtha

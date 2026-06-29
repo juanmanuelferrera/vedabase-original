@@ -1,5 +1,8 @@
 ### CC Antya 10.41
 
+> এইমতে বৈষ্ণব সব নীলাচলে আইলা ।
+> দৈবে জগন্নাথের সে দিন জল-লীলা ॥৪১॥
+
 > ei-mate vaiṣṇava saba nīlācale āilā
 > daive jagannāthera se dina jala-līlā
 

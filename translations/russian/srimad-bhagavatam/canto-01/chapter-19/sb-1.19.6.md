@@ -1,5 +1,8 @@
 ### SB 1.19.6
 
+> या वै लसच्छ्रीतुलसीविमिश्र कृष्णाङ्घ्रिरेण्वभ्यधिकाम्बुनेत्री ।
+> पुनाति लोकानुभयत्र सेशान्कस्तां न सेवेत मरिष्यमाणः ॥६॥
+
 > yā vai lasac-chrī-tulasī-vimiśra-
 > kṛṣṇāṅghri-reṇv-abhyadhikāmbu-netrī
 > punāti lokān ubhayatra seśān

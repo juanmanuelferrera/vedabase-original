@@ -1,5 +1,8 @@
 ### CC Madhya 16.34
 
+> সেই কথা সবার মধ্যে কহে নিত্যানন্দ ।
+> শুনিয়া বৈষ্ণব-মনে বাড়িল আনন্দ ॥৩৪॥
+
 sei kathā sabāra madhye kahe nityānanda
 
 śuniyā vaiṣṇava-mane bāḍila ānanda

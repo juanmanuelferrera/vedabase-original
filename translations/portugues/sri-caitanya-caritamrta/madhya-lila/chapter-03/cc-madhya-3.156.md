@@ -1,5 +1,8 @@
 ### CC Madhya 3.156
 
+> আনন্দে নাচয়ে সবে বলি’ ‘হরি’ ‘হরি’ ৷
+> আচার্য-মন্দির হৈল শ্রীবৈকুণ্ঠপুরী ॥১৫৬॥
+
 ānande nācaye sabe bali' 'hari' 'hari'
 ācārya-mandira haila śrī-vaikuṇṭha-purī
 

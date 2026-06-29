@@ -1,5 +1,8 @@
 ### CC Antya 13.100
 
+> এইমতে রঘুনাথ আইলা নীলাচলে ।
+> প্রভুর চরণে যাঞা মিলিলা কুতূহলে ॥১০০॥
+
 ei-mate raghunātha āilā nīlācale
 
 prabhura caraṇe yāñā mililā kutūhale

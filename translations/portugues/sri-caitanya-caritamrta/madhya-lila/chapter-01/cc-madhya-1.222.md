@@ -1,5 +1,8 @@
 ### CC Madhya 1.222
 
+> ইহাঁ হৈতে চল, প্রভু, ইহাঁ নাহি কায ।
+> যদ্যপি তোমারে ভক্তি করে গৌড়রাজ ॥২২২॥
+
 ihāṅ haite cala, prabhu, ihāṅ nāhi kāya
 
 yadyapi tomāre bhakti kare gauḍa-rāja

@@ -1,5 +1,8 @@
 ### CC Madhya 9.283
 
+> প্রেমাবেশে কৈল বহুত কীর্তন-নর্তন ৷
+> তাহাঁ এক বিপ্র তাঁরে কৈল নিমন্ত্রণ ৷৷ ২৮৩ ৷৷ ॥২৮৩॥
+
 > premāveśe kaila bahuta kīrtana-nartana
 > tāhāṅ eka vipra tāṅre kaila nimantraṇa
 

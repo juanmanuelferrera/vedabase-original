@@ -1,5 +1,8 @@
 ### CC Madhya 24.355
 
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
+> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৩৫৫॥
+
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
 

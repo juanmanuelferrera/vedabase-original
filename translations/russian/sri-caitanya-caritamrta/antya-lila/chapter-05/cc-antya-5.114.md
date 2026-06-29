@@ -1,5 +1,8 @@
 ### CC Antya 5.114
 
+> কবি কহে, — “জগন্নাথ — সুন্দর-শরীর ।
+> চৈতন্য-গোসাঞি — শরীরী মহাধীর ॥১১৪॥
+
 > kavi kahe,—'jagannātha—sundara-śarīra
 > caitanya-gosāñi—śarīrī mahā-dhīra
 

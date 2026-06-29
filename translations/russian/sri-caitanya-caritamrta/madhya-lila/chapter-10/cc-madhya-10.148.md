@@ -1,5 +1,8 @@
 ### CC Madhya 10.148
 
+> প্রভুর প্রিয় ভৃত্য করি’ সবে করে মান ।
+> সকল বৈষ্ণবের গোবিন্দ করে সমাধান ॥১৪৮॥
+
 > prabhura priya bhṛtya kari' sabe kare māna
 > sakala vaiṣṇavera govinda kare samādhāna
 

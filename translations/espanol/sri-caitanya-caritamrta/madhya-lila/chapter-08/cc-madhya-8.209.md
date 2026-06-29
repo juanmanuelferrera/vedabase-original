@@ -1,5 +1,8 @@
 ### CC Madhya 8.209
 
+> রাধার স্বরূপ — কৃষ্ণপ্রেম-কল্পলতা ৷
+> সখীগণ হয় তার পল্লব-পুষ্প-পাতা ৷৷ ২০৯ ৷৷ ॥২০৯॥
+
 > rādhāra svarūpa--kṛṣṇa-prema-kalpalatā
 > sakhī-gaṇa haya tāra pallava-puṣpa-pātā
 

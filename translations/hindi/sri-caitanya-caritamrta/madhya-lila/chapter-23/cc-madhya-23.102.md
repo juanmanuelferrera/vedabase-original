@@ -1,5 +1,8 @@
 ### CC Madhya 23.102
 
+> পূর্বে প্রয়াগে আমি রসের বিচারে ।
+> তোমার ভাই রূপে কৈলুঁ শক্তি-সঞ্চারে ॥১০২॥
+
 > pūrve prayāge āmi rasera vicāre
 > tomāra bhāi rūpe kailuṅ śakti-sañcāre
 

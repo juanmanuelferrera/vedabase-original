@@ -1,5 +1,8 @@
 ### CC Madhya 13.107
 
+> কভু স্তম্ভ, কভু প্রভু ভূমিতে লোটায় ।
+> শুষ্ককাষ্ঠসম পদ-হস্ত না চলয় ॥১০৭॥
+
 > kabhu stambha, kabhu prabhu bhūmite loṭāya
 > śuṣka-kāṣṭha-sama pada-hasta nā calaya
 

@@ -1,5 +1,8 @@
 ### SB 7.13.43
 
+> विकल्पं जुहुयाच्चित्तौ तां मनस्यर्थविभ्रमे
+> मनो वैकारिके हुत्वा तं मायायां जुहोत्यनु ॥४३॥
+
 > vikalpaṁ juhuyāc cittau
 > tāṁ manasy artha-vibhrame
 > mano vaikārike hutvā

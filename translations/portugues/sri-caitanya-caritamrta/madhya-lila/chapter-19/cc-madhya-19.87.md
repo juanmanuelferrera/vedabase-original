@@ -1,5 +1,8 @@
 ### CC Madhya 19.87
 
+> গন্ধ-পুষ্প-ধূপ-দীপে মহাপূজা কৈল ।
+> ভট্টাচার্যে মান্য করি’ পাক করাইল ॥৮৭॥
+
 gandha-puṣpa-dhūpa-dīpe mahā-pūjā kaila
 
 bhaṭṭācārye mānya kari' pāka karāila

@@ -1,5 +1,8 @@
 ### CC Madhya 25.89
 
+> সূত্রের করিলা তুমি মুখ্যার্থ-বিবরণ ।
+> তাহা শুনি’ সবার হৈল চমৎকার মন ॥৮৯॥
+
 > sūtrera karilā tumi mukhyārtha-vivaraṇa
 > tāhā śuni' sabāra haila camatkāra mana
 

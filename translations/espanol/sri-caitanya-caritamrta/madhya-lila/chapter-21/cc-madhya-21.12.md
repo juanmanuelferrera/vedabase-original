@@ -1,5 +1,8 @@
 ### CC Madhya 21.12
 
+> ব্রহ্মাদি রহু — সহস্রবদনে ‘অনন্ত’ ।
+> নিরন্তর গায় মুখে, না পায় গুণের অন্ত ॥১২॥
+
 > brahmādi rahu--sahasra-vadane 'ananta'
 > nirantara gāya mukhe, nā pāya guṇera anta
 

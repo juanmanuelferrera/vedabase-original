@@ -1,5 +1,8 @@
 ### CC Madhya 14.242
 
+> জগন্নাথ দেখি’ করেন নর্তন-কীর্তন ।
+> নরেন্দ্র জলক্রীড়া করে লঞা ভক্তগণ ॥২৪২॥
+
 jagannātha dekhi' karena nartana-kīrtana
 
 narendre jala-krīḍā kare lañā bhakta-gaṇa

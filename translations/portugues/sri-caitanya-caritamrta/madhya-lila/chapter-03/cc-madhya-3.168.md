@@ -1,5 +1,8 @@
 ### CC Madhya 3.168
 
+> শ্রীবাসাদি যত প্রভুর বিপ্র ভক্তগণ ।
+> প্রভুকে ভিক্ষা দিতে হৈল সবাকার মন ॥১৬৮॥
+
 śrīvāsādi yata prabhura vipra bhakta-gaṇa
 prabhuke bhikṣā dite haila sabākāra mana
 

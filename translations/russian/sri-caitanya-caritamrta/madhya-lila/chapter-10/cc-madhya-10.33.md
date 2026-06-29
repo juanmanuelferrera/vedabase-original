@@ -1,5 +1,8 @@
 ### CC Madhya 10.33
 
+> প্রভু চতুর্ভুজ-মূর্তি তাঁরে দেখাইল ।
+> আত্মসাৎ করি’ তারে আলিঙ্গন কৈল ॥৩৩॥
+
 > prabhu catur-bhuja-mūrti tāṅre dekhāila
 > ātmasāt kari' tāre āliṅgana kaila
 

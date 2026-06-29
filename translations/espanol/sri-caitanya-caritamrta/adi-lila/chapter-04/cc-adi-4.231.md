@@ -1,5 +1,8 @@
 ### CC Adi 4.231
 
+> এ সব সিদ্ধান্ত গূঢ়, — কহিতে না যুয়ায় ।
+> না কহিলে, কেহ ইহার অন্ত নাহি পায় ॥২৩১॥
+
 > e saba siddhānta gūḍha,--kahite nā yuyāya
 > nā kahile, keha ihāra anta nāhi pāya
 

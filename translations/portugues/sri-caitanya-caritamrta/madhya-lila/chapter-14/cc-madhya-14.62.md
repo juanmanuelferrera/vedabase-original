@@ -1,5 +1,8 @@
 ### CC Madhya 14.62
 
+> সুভদ্রা-বলরাম নিজ-সিংহাসনে আইলা ।
+> জগন্নাথের স্নানভোগ হইতে লাগিলা ॥৬২॥
+
 subhadrā-balarāma nija-siṁhāsane āilā
 
 jagannāthera snāna-bhoga ha-ite lāgilā

@@ -1,5 +1,8 @@
 ### CC Madhya 20.24
 
+> ‘তোমার ঠাঞি জানি কিছু দ্রব্য আছয়’  ।
+> ঈশান কহে, — ‘মোর ঠাঞি সাত মোহর হয়’ ॥২৪॥
+
 'tomāra ṭhāñi jāni kichu dravya āchaya'
 
 īśāna kahe,--'mora ṭhāñi sāta mohara haya'

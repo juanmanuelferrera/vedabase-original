@@ -1,5 +1,8 @@
 ### CC Madhya 24.111
 
+> ভক্তদেহ পাইলে হয় গুণের স্মরণ ।
+> গুণাকৃষ্ট হঞা করে নির্মল ভজন ॥১১১॥
+
 > bhakta-deha pāile haya guṇera smaraṇa
 > guṇākṛṣṭa hañā kare nirmala bhajana
 

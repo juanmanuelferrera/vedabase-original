@@ -1,5 +1,8 @@
 ### CC Antya 13.15
 
+> সন্ন্যাসী মানুষ আমার ভূমিতে শয়ন ।
+> আমারে খাট-তূলি-বালিস মস্তক-মুণ্ডন !” ॥ ১৫ ॥
+
 > sannyāsī mānuṣa āmāra bhūmite śayana
 > āmāre khāṭa-tūli-bālisa mastaka-muṇḍana
 

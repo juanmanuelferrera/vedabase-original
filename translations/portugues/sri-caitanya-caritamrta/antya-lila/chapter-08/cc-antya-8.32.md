@@ -1,5 +1,8 @@
 ### CC Antya 8.32
 
+> মহদনুগ্রহ-নিগ্রহের ‘সাক্ষী’ দুইজনে ।
+> এই দুইদ্বারে শিখাইলা জগজনে ॥৩২॥
+
 mahad-anugraha-nigrahera 'sākṣī' dui-jane
 
 ei dui-dvāre śikhāilā jaga-jane

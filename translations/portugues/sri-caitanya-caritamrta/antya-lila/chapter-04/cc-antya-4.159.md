@@ -1,5 +1,8 @@
 ### CC Antya 4.159
 
+> ব্যবহারে-পরমার্থে তুমি — তার গুরু-তুল্য  ।
+> তোমারে উপদেশে, না জানে আপন-মূল্য ॥১৫৯॥
+
 vyavahāre-paramārthe tumi--tāra guru-tulya
 
 tomāre upadeśe, nā jāne āpana-mūlya

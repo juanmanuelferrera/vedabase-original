@@ -1,5 +1,8 @@
 ### CC Adi 5.198
 
+> কি দেখিনু কি শুনিনু, করিয়ে বিচার ।
+> প্রভু-আজ্ঞা হৈল বৃন্দাবন যাইবার ॥১৯৮॥
+
 ki dekhinu ki śuninu, kariye vicāra
 prabhu-ājñā haila vṛndāvana yāibāra
 

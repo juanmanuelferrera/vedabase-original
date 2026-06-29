@@ -1,5 +1,8 @@
 ### CC Madhya 6.139
 
+> বেদ-পুরাণে কহে ব্রহ্ম-নিরূপণ ।
+> সেই ব্রহ্ম — বৃহদ্বস্তু, ঈশ্বর-লক্ষণ ॥১৩৯॥
+
 > veda-purāṇe kahe brahma-nirūpaṇa
 > sei brahma—bṛhad-vastu, īśvara-lakṣaṇa
 

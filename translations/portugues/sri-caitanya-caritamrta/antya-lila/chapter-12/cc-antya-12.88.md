@@ -1,5 +1,8 @@
 ### CC Antya 12.88
 
+> প্রভুর নামে মাতারে দণ্ডবৎ কৈলা ।
+> প্রভুর বিনতি-স্তুতি মাতারে কহিলা ॥৮৮॥
+
 prabhura nāme mātāre daṇḍavat kailā
 
 prabhura vinati-stuti mātāre kahilā

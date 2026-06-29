@@ -1,5 +1,8 @@
 ### CC Adi 17.189
 
+> আসি’ কহে, — গেলুঁ মুঞি কীর্তন নিষেধিতে ।
+> অগ্নি উল্কা মোর মুখে লাগে আচম্বিতে ॥১৮৯॥
+
 > āsi' kahe,--geluṅ muñi kīrtana niṣedhite
 > agni ulkā mora mukhe lāge ācambite
 

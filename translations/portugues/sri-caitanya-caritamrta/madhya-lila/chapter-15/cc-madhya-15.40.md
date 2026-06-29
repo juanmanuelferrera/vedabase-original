@@ -1,5 +1,8 @@
 ### CC Madhya 15.40
 
+> সবারে কহিল প্রভু — প্রত্যব্দ আসিয়া ।
+> গুণ্ডিচা দেখিয়া যাবে আমারে মিলিয়া ॥৪০॥
+
 sabāre kahila prabhu--pratyabda āsiyā
 
 guṇḍicā dekhiyā yābe āmāre miliyā

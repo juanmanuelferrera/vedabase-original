@@ -1,5 +1,8 @@
 ### CC Antya 6.181
 
+> ঝাঁকরা পর্যন্ত গেল সেই দশ জনে ।
+> ঝাঁকরাতে পাইল গিয়া বৈষ্ণবের গণে ॥১৮১॥
+
 jhāṅkarā paryanta gela sei daśa jane
 
 jhāṅkarāte pāila giyā vaiṣṇavera gaṇe

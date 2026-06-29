@@ -1,5 +1,8 @@
 ### CC Antya 19.24
 
+> জানিয়াও স্বরূপ গোসাঞি প্রভুরে পুছিল ।
+> ‘এই তরজার অর্থ বুঝিতে নারিল’ ॥২৪॥
+
 > jāniyāo svarūpa gosāñi prabhure puchila
 > 'ei tarajāra artha bujhite nārila'
 

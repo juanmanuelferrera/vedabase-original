@@ -1,5 +1,8 @@
 ### CC Madhya 6.106
 
+> তোমার উপরে তাঁর কৃপা যবে হবে ।
+> এসব সিদ্ধান্ত তবে তুমিহ কহিবে ॥১০৬॥
+
 > tomāra upare tāṅra kṛpā yabe habe
 > e-saba siddhānta tabe tumiha kahibe
 

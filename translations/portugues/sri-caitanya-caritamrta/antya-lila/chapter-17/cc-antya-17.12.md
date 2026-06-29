@@ -1,5 +1,8 @@
 ### CC Antya 17.12
 
+> সিংহদ্বার-দক্ষিণে আছে তৈলঙ্গী-গাভীগণ ।
+> তাঁহা যাই’ পড়িলা প্রভু হঞা অচেতন ॥১২॥
+
 siṁha-dvāra-dakṣiṇe āche tailaṅgī-gābhī-gaṇa
 tāhāṅ yāi' paḍilā prabhu hañā acetana
 

@@ -1,5 +1,8 @@
 ### SB 9.15.37
 
+> स्वकर्म तत्कृतं रामः पित्रे भ्रातृभ्य एव च
+> वर्णयामास तच्छ्रुत्वाजमदग्निरभाषत ॥३७॥
+
 > sva-karma tat kṛtaṁ rāmaḥ
 > pitre bhrātṛbhya eva ca
 > varṇayām āsa tac chrutvā

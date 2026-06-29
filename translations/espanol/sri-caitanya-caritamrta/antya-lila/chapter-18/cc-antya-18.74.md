@@ -1,5 +1,8 @@
 ### CC Antya 18.74
 
+> সবে মেলি’ উচ্চ করি’ করেন সঙ্কীর্তনে ।
+> উচ্চ করি’ কৃষ্ণনাম কহেন প্রভুর কাণে ॥৭৪॥
+
 > sabe meli' ucca kari' karena saṅkīrtane
 > ucca kari' kṛṣṇa-nāma kahena prabhura kāṇe
 

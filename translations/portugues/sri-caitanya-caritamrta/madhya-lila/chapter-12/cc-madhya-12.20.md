@@ -1,5 +1,8 @@
 ### CC Madhya 12.20
 
+> কাণে মুদ্রা লই’ মুঞি হইব ভিখারী ।
+> রাজ্যভোগ নহে চিত্তে বিনা গৌরহরি ॥২০॥
+
 kāṇe mudrā la-i' muñi ha-iba bhikhārī
 rājya-bhoga nahe citte vinā gaurahari
 

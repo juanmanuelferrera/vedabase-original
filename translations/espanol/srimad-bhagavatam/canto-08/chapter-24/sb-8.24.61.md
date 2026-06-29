@@ -1,5 +1,10 @@
 ### SB 8.24.61
 
+> प्रलयपयसि धातुः सुप्तशक्तेर्मुखेभ्यः
+> श्रुतिगणमपनीतं प्रत्युपादत्त हत्वा
+> दितिजमकथयद्यो ब्रह्म सत्यव्रतानां
+> तमहमखिलहेतुं जिह्ममीनं नतोऽस्मि ॥६१॥
+
 > pralaya-payasi dhātuḥ supta-śakter mukhebhyaḥ
 > śruti-gaṇam apanītaṁ pratyupādatta hatvā
 > ditijam akathayad yo brahma satyavratānāṁ

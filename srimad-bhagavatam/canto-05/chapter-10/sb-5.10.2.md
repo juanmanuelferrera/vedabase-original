@@ -1,5 +1,7 @@
 ### SB 5.10.2
 
+> यदा हि द्विजवरस्येषुमात्रावलोकानुगतेर्न समाहिता पुरुषगतिस्तदा विषमगतां स्वशिबिकांरहूगण उपधार्य पुरुषानधिवहत आह हे वोढारः साध्वतिक्रमत किमिति विषममुह्यते यानमिति ॥२॥
+
 > yadā hi dvija-varasyeṣu-mātrāvalokānugater na samāhitā puruṣa-gatis tadā viṣama-gatāṁ sva-śibikāṁ rahūgaṇa upadhārya puruṣān adhivahata āha he voḍhāraḥ sādhv atikramata kim iti viṣamam uhyate yānam iti.
 
 *yadā*—when; *hi*—certainly; *dvija-varasya*—of Jaḍa Bharata; *iṣu-mātra*—the measurement of an arrow (three feet) ahead; *avaloka-anugateḥ*—from moving only after glancing; *na samāhitā*—not united; *puruṣa-gatiḥ*—the movement of the carriers; *tadā*—at that time; *viṣama-gatām*—becoming uneven; *sva-śibikām*—his own palanquin; *rahūgaṇaḥ*—King Rahūgaṇa; *upadhārya*—understanding; *puruṣān*—unto the men; *adhivahataḥ*—who were carrying the palanquin; *āha*—said; *he*—oh; *voḍhāraḥ*—carriers of the palanquin; *sādhu atikramata*—please walk evenly so that there will not be bouncing; *kim iti*—for what reason; *viṣamam*—uneven; *uhyate*—is being carried; *yānam*—the palanquin; *iti*—thus.

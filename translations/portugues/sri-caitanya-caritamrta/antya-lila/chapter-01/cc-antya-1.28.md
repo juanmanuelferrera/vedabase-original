@@ -1,5 +1,8 @@
 ### CC Antya 1.28
 
+> আসিয়া দেখিল সবে সেই ত কুক্কুরে ।
+> প্রভু-পাশে বসিয়াছে কিছু অল্পদূরে ॥২৮॥
+
 āsiyā dekhila sabe sei ta kukkure
 
 prabhu-pāśe vasiyāche kichu alpa-dūre

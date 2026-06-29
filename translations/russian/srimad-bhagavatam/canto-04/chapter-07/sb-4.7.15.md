@@ -1,5 +1,10 @@
 ### SB 4.7.15
 
+> योऽसौ मयाविदिततत्त्वदृशा सभायां
+> क्षिप्तो दुरुक्तिविशिखैर्विगणय्य तन्माम् ।
+> अर्वाक्पतन्तमर्हत्तमनिन्दयापाद्
+> दृष्ट्यार्द्रया स भगवान्स्वकृतेन तुष्येत् ॥१५॥
+
 > yo 'sau mayāvidita-tattva-dṛśā sabhāyāṁ
 > kṣipto durukti-viśikhair vigaṇayya tan mām
 > arvāk patantam arhattama-nindayāpād

@@ -1,5 +1,8 @@
 ### CC Madhya 15.80
 
+> অবসর নাহি হয়, বিলম্ব হইল ।
+> ফল-পাত্র-হাতে সেবক দ্বারে ত’ রহিল ॥৮০॥
+
 > avasara nāhi haya, vilamba ha-ila
 > phala-pātra-hāte sevaka dvāre ta' rahila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 4.182
 
+> ‘মণেক চন্দন, তোলা-বিশেক কর্পূর ।
+> গোপালে পরাইব’ — এই আনন্দ প্রচুর ॥১৮২॥
+
 > 'maṇeka candana, tolā-viśeka karpūra
 > gopāle parāiba'—ei ānanda pracura
 

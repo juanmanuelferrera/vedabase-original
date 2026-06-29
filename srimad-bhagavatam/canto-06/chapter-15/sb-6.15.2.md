@@ -1,5 +1,8 @@
 ### SB 6.15.2
 
+> कोऽयं स्यात्तव राजेन्द्र भवान्यमनुशोचति
+> त्वं चास्य कतमः सृष्टौ पुरेदानीमतः परम ॥२॥
+
 > ko 'yaṁ syāt tava rājendra
 > bhavān yam anuśocati
 > tvaṁ cāsya katamaḥ sṛṣṭau

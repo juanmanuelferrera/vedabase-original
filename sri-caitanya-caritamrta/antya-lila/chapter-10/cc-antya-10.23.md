@@ -1,5 +1,8 @@
 ### CC Antya 10.23
 
+> শুণ্ঠিখণ্ড নাড়ু, আর আমপিত্তহর ।
+> পৃথক্ পৃথক্ বান্ধি’ বস্ত্রের কুথলী ভিতর ॥২৩॥
+
 > śuṇṭhi-khaṇḍa nāḍu, āra āma-pitta-hara
 > pṛthak pṛthak bāndhi' vastrera kuthalī bhitara
 

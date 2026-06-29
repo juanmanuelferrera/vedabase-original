@@ -1,5 +1,8 @@
 ### CC Adi 13.82
 
+> যাহাঁ তাহাঁ সর্বলোক করয়ে সম্মান ।
+> ঘরে পাঠাইয়া দেয় ধন, বস্ত্র, ধান ॥৮২॥
+
 yāhāṅ tāhāṅ sarva-loka karaye sammāna
 
 ghare pāṭhāiyā deya dhana, vastra, dhāna

@@ -1,5 +1,8 @@
 ### CC Antya 18.57
 
+> একা রাত্র্যে বুলি’ মৎস্য মারিয়ে নির্জনে ।
+> ভূত-প্রেত আমার না লাগে ‘নৃসিংহ’-স্মরণে ॥৫৭॥
+
 ekā rātrye buli' matsya māriye nirjane
 
 bhūta-preta āmāra nā lāge 'nṛsiṁha'-smaraṇe

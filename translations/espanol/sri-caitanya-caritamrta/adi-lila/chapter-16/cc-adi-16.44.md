@@ -1,5 +1,8 @@
 ### CC Adi 16.44
 
+> প্রভু কহে, দেবের বরে তুমি — ‘কবিবর’ ।
+> ঐছে দেবের বরে কেহো হয় ‘শ্রুতিধর’ ॥৪৪॥
+
 > prabhu kahe, devera vare tumi--'kavi-vara'
 > aiche devera vare keho haya 'śrutidhara'
 

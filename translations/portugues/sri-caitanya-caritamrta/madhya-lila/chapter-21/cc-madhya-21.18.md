@@ -1,5 +1,8 @@
 ### CC Madhya 21.18
 
+> এমত অন্যত্র নাহি শুনিয়ে অদ্ভুত ।
+> যাহার শ্রবণে চিত্ত হয় অবধূত ॥১৮॥
+
 e-mata anyatra nāhi śuniye adbhuta
 
 yāhāra śravaṇe citta haya avadhūta

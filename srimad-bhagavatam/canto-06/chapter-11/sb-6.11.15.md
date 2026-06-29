@@ -1,5 +1,8 @@
 ### SB 6.11.15
 
+> यो नोऽग्रजस्यात्मविदो द्विजातेर्गुरोरपापस्य च दीक्षितस्य
+> विश्रभ्य खड्गेन शिरांस्यवृश्चत्पशोरिवाकरुणः स्वर्गकामः ॥१५॥
+
 > yo no 'grajasyātma-vido dvijāter
 > guror apāpasya ca dīkṣitasya
 > viśrabhya khaḍgena śirāṁsy avṛścat

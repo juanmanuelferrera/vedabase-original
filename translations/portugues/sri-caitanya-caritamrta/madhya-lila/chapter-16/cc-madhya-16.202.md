@@ -1,5 +1,8 @@
 ### CC Madhya 16.202
 
+> সেই নৌকা চড়ি’ প্রভু আইলা ‘পানিহাটি’ ।
+> নাবিকেরে পরাইল নিজ-কৃপা-সাটি ॥২০২॥
+
 sei naukā caḍi' prabhu āilā 'pānihāṭi'
 
 nāvikere parāila nija-kṛpā-sāṭī

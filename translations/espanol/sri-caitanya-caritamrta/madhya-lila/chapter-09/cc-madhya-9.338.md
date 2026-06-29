@@ -1,5 +1,8 @@
 ### CC Madhya 9.338
 
+> আলালনাথে আসি’ কৃষ্ণদাসে পাঠাইল ৷
+> নিত্যানন্দ-আদি নিজগণে বোলাইল ৷৷ ৩৩৮ ৷৷ ॥৩৩৮॥
+
 > ālālanāthe āsi' kṛṣṇadāse pāṭhāila
 > nityānanda-ādi nija-gaṇe bolāila
 

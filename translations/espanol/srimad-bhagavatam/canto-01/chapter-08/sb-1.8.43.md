@@ -1,5 +1,8 @@
 ### SB 1.8.43
 
+> श्रीकृष्ण कृष्णसख वृष्ण्यृषभावनिध्रुग्राजन्यवंशदहनानपवर्गवीर्य ।
+> गोविन्द गोद्विजसुरार्तिहरावतार योगेश्वराखिलगुरो भगवन्नमस्ते ॥४३॥
+
 > śrī-kṛṣṇa kṛṣṇa-sakha vṛṣṇy-ṛṣabhāvani-dhrug-
 > rājanya-vaṁśa-dahanānapavarga-vīrya
 > govinda go-dvija-surārti-harāvatāra

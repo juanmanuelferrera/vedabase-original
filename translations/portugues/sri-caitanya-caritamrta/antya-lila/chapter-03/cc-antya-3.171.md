@@ -1,5 +1,8 @@
 ### CC Antya 3.171
 
+> তাহাঁ যৈছে হৈল হরিদাসের মহিমা কথন ।
+> ব্যাখ্যান, — অদ্ভুত কথা শুন, ভক্তগণ ॥১৭১॥
+
 tāhāṅ yaiche haila haridāsera mahimā kathana
 
 vyākhyāna,--adbhuta kathā śuna, bhakta-gaṇa

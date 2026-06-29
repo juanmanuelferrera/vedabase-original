@@ -1,5 +1,8 @@
 ### SB 4.15.25
 
+> प्रभवो ह्यात्मनः स्तोत्रंजुगुप्सन्त्यपि विश्रुताः ।
+> ह्रीमन्तः परमोदाराः पौरुषं वा विगर्हितम् ॥२५॥
+
 > prabhavo hy ātmanaḥ stotraṁ
 > jugupsanty api viśrutāḥ
 > hrīmantaḥ paramodārāḥ

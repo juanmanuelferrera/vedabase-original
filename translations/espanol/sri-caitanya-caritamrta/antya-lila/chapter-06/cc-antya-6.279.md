@@ -1,5 +1,8 @@
 ### CC Antya 6.279
 
+> বিষয়ীর অন্ন হয় ‘রাজস’ নিমন্ত্রণ ।
+> দাতা, ভোক্তা — দুঁহার মলিন হয় মন ॥২৭৯॥
+
 > viṣayīra anna haya 'rājasa' nimantraṇa
 > dātā, bhoktā--duṅhāra malina haya mana
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.50
 
+> “হরিদাস, কলিকালে যবন অপার  ।
+> গো-ব্রাহ্মণে হিংসা করে মহা দুরাচার ॥৫০॥
+
 > "haridāsa, kali-kāle yavana apāra
 > go-brāhmaṇe hiṁsā kare mahā durācāra
 

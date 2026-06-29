@@ -1,5 +1,8 @@
 ### CC Madhya 22.109
 
+> রাগহীন জন ভজে শাস্ত্রের আজ্ঞায় ।
+> ‘বৈধী ভক্তি’ বলি’ তারে সর্বশাস্ত্রে গায় ॥১০৯॥
+
 > rāga-hīna jana bhaje śāstrera ājñāya
 > 'vaidhī bhakti' bali' tāre sarva-śāstre gāya
 

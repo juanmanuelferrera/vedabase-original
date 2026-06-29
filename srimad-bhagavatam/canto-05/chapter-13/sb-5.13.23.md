@@ -1,5 +1,8 @@
 ### SB 5.13.23
 
+> नमो महद्भ्योऽस्तु नमः शिशुभ्यो नमो युवभ्यो नम आवटुभ्यः
+> ये ब्राह्मणा गामवधूतलिङ्गाश्चरन्ति तेभ्यः शिवमस्तु राज्ञआम ॥२३॥
+
 > namo mahadbhyo 'stu namaḥ śiśubhyo
 > namo yuvabhyo nama āvaṭubhyaḥ
 > ye brāhmaṇā gām avadhūta-liṅgāś

@@ -1,5 +1,7 @@
 ### SB 5.1.9
 
+> तत्र ह वा एनं देवर्षिर्हंसयानेन पितरं भगवन्तं हिरण्यगर्भमुपलभमानःसहसैवोत्थायार्हणेन सह पितापुत्राभ्यामवहिताञ्जलिरुपतस्थे ॥९॥
+
 *tatra ha vā enaṁ devarṣir haṁsa*-yānena pitaraṁ bhagavantaṁ hiraṇya-garbham upalabhamānaḥ sahasaivotthāyārhaṇena saha pitā-putrābhyām avahitāñjalir upatasthe.
 
 *tatra*—ali; *ha vā*—certamente; *enam*—ele; *deva-ṛṣiḥ*—o grande santo Nārada; *haṁsa-yānena*—pelo portador-cisne; *pitaram*—seu pai; *bhagavantam*—o mais poderoso; *hiraṇya-garbham*—o Senhor Brahmā; *upalabhamānaḥ*—compreendendo; *sahasā eva*—imediatamente; *utthāya*—tendo-se levantado; *arhaṇena*—com parafernália para a adoração; *saha*—acompanhado; *pitā-putrābhyām*—por Priyavrata e seu pai, Svāyambhuva Manu; *avahita-añjaliḥ*—com respeito e mãos postas; *upatasthe*—adorou.

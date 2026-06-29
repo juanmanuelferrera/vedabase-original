@@ -1,5 +1,8 @@
 ### CC Madhya 20.340
 
+> ‘পীত’-বর্ণ ধরি’ তবে কৈলা প্রবর্তন ।
+> প্রেমভক্তি দিলা লোকে লঞা ভক্তগণ ॥৩৪০॥
+
 pita'-varṇa dhari' tabe kailā pravartana
 
 prema-bhakti dilā loke lañā bhakta-gaṇa

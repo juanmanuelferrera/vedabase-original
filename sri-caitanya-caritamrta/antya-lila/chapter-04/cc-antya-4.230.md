@@ -1,5 +1,8 @@
 ### CC Antya 4.230
 
+> ‘গোপাল-চম্পূ’ নাম গ্রন্থ সার কৈল ।
+> ব্রজ-প্রেম-লীলা-রস-সার দেখাইল ॥২৩০॥
+
 > 'gopāla-campū' nāma grantha sāra kaila
 > vraja-prema-līlā-rasa-sāra dekhāila
 

@@ -1,5 +1,8 @@
 ### CC Antya 9.72
 
+> তোমার চরণ-কৃপা হঞাছে তাহারে ।
+> ছত্রে মাগি’ খায়, ‘বিষয়’ স্পর্শ নাহি করে ॥৭২॥
+
 > tomāra caraṇa-kṛpā hañāche tāhāre
 > chatre māgi' khāya, 'viṣaya' sparśa nāhi kare
 

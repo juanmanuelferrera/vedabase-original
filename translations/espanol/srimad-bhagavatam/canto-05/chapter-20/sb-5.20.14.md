@@ -1,5 +1,7 @@
 ### SB 5.20.14
 
+> तद्द्वीपपतिः प्रैयव्रतो राजन्हिरण्यरेता नाम स्वं द्वीपं सप्तभ्यः स्वपुत्रेभ्यो यथाभागं विभज्य स्वयं तप आतिष्ठत वसुवसुदानदृढरुचिनाभिगुप्तस्तुत्यव्रतविविक्तवामदेवनामभ्यः ॥१४॥
+
 > tad-dvīpa-patiḥ praiyavrato rājan hiraṇyaretā nāma svaṁ dvīpaṁ saptabhyaḥ sva-putrebhyo yathā-bhāgaṁ vibhajya svayaṁ tapa ātiṣṭhata vasu-vasudāna-dṛḍharuci-nābhigupta-stutyavrata-vivikta-vāmadeva-nāmabhyaḥ.
 
 *tat-dvīpa-patiḥ*—el soberano de la isla; *praiyavrataḥ*—el hijo de Mahārāja Priyavrata; *rājan*—¡oh, rey!; *hiraṇyaretā*—Hiraṇyaretā; *nāma*—llamado; *svam*—su propia; *dvīpam*—isla; *saptabhyaḥ*—a siete; *sva-putrebhyaḥ*—a sus propios hijos; *yathā-bhāgam*—conforme a la división; *vibhajya*—dividir; *svayam*—él mismo; *tapaḥ ātiṣṭhata*—ocupado en austeridades; *vasu*—a Vasu; *vasudāna*—Vasudāna; *dṛḍharuci*—Dṛḍharuci; *nābhi-gupta*—Nābhigupta; *stutya-vrata*—Stutyavrata; *vivikta*—Vivikta; *vāma-deva*—Vāmadeva; *nāmabhyaḥ*—llamados.

@@ -1,5 +1,8 @@
 ### SB 3.32.2
 
+> स चापि भगवद्धर्मात्काममूढः पराङ्मुखः ।
+> यजते क्रतुभिर्देवान्पित्ंश्च श्रद्धयान्वितः ॥२॥
+
 > sa cāpi bhagavad-dharmāt
 > kāma-mūḍhaḥ parāṅ-mukhaḥ
 > yajate kratubhir devān

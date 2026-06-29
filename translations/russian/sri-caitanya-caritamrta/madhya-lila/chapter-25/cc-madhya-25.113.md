@@ -1,5 +1,8 @@
 ### CC Madhya 25.113
 
+> অহমেবাসমেবাগ্রে নান্যদ্যত্ সদসৎপরম্ ।
+> পশ্চাদহং যদেতচ্চ যোঽবশিষ্যেত সোঽস্ম্যহম্ ॥১১৩॥
+
 > aham evāsam evāgre
 > nānyad yat sad-asat-param
 > paścād ahaṁ yad etac ca

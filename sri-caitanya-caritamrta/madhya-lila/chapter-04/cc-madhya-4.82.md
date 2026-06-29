@@ -1,5 +1,8 @@
 ### CC Madhya 4.82
 
+> তৃণ-টাটি দিয়া চারিদিক্ আবরিল ।
+> উপরেতে এক টাটি দিয়া আচ্ছাদিল ॥৮২॥
+
 > tṛṇa-ṭāṭi diyā cāri-dik āvarila
 > uparete eka ṭāṭi diyā ācchādila
 

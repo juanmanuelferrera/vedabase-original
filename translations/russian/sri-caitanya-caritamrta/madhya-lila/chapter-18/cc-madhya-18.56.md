@@ -1,5 +1,8 @@
 ### CC Madhya 18.56
 
+> প্রভুর গমন-রীতি পূর্বে যে লিখিল ।
+> সেইমত বৃন্দাবনে তাবৎ দেখিল ॥৫৬॥
+
 > prabhura gamana-rīti pūrve ye likhila
 > sei-mata vṛndāvane tāvat dekhila
 

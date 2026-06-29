@@ -1,5 +1,8 @@
 ### CC Adi 1.45
 
+> গুরু কৃষ্ণরূপ হন শাস্ত্রের প্রমাণে ।
+> গুরুরূপে কৃষ্ণ কৃপা করেন ভক্তগণে ॥৪৫॥
+
 > guru kṛṣṇa-rūpa hana śāstrera pramāṇe
 > guru-rūpe kṛṣṇa kṛpā karena bhakta-gaṇe
 

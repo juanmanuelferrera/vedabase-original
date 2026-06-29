@@ -1,5 +1,8 @@
 ### CC Antya 9.39
 
+> tomā-sabāra ei mata,—rāja-ṭhāñi yāñā
+> kauḍi māgi' laṅ muñi āṅcala pātiyā
+
 > tomā-sabāra ei mata,--rāja-ṭhāñi yāñā
 > kauḍi māgi' laṅ muñi āṅcala pātiyā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 16.11
 
+> যদ্যপি স্বতন্ত্র প্রভু নহে নিবারণ ।
+> ভক্ত-ইচ্ছা বিনা প্রভু না করে গমন ॥১১॥
+
 yadyapi svatantra prabhu nahe nivāraṇa
 bhakta-icchā vinā prabhu nā kare gamana
 

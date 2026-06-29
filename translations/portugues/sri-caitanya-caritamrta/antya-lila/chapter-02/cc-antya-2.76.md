@@ -1,5 +1,8 @@
 ### CC Antya 2.76
 
+> একদিন সভাতে প্রভু বাত চালাইলা ।
+> নৃসিংহানন্দের গুণ কহিতে লাগিলা ॥৭৬॥
+
 eka-dina sabhāte prabhu vāta cālāilā
 
 nṛsiṁhānandera guṇa kahite lāgilā

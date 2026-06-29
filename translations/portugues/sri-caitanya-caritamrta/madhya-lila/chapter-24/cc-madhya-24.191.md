@@ -1,5 +1,8 @@
 ### CC Madhya 24.191
 
+> বিচার করিয়া যবে ভজে কৃষ্ণ-পায় ।
+> সেই বুদ্ধি দেন তাঁরে, যাতে কৃষ্ণ পায় ॥১৯১॥
+
 vicāra kariyā yabe bhaje kṛṣṇa-pāya
 
 sei buddhi dena tāṅre, yāte kṛṣṇa pāya

@@ -1,5 +1,8 @@
 ### CC Adi 4.113
 
+> বাৎসল্য-আবেশে কৈল কৌমার সফল ।
+> পৌগণ্ড সফল কৈল লঞা সখাবল ॥১১৩॥
+
 vātsalya-āveśe kaila kaumāra saphala
 paugaṇḍa saphala kaila lañā sakhāvala
 

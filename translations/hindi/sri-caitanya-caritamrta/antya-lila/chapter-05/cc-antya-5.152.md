@@ -1,5 +1,8 @@
 ### CC Antya 5.152
 
+> জগন্নাথের দর্শনে খণ্ডায় সংসার ।
+> সব-দেশের সব-লোক নারে আসিবার ॥১৫২॥
+
 > jagannāthera darśane khaṇḍāya saṁsāra
 > saba-deśera saba-loka nāre āsibāra
 

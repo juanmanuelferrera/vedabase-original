@@ -1,5 +1,8 @@
 ### CC Madhya 24.80
 
+> তিন সাধনে ভগবান্ তিন স্বরূপে ভাসে ।
+> ব্রহ্ম, পরমাত্মা, ভগবত্তা, — ত্রিবিধ প্রকাশে ॥৮০॥
+
 > tina sādhane bhagavān tina svarūpe bhāse
 > brahma, paramātmā, bhagavattā,--trividha prakāśe
 

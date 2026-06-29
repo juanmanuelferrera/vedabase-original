@@ -1,5 +1,8 @@
 ### CC Madhya 11.161
 
+> সবারে সম্মানি’ প্রভুর হইল উল্লাস ৷
+> হরিদাসে না দেখিয়া কহে, — কাহাঁ হরিদাস ৷৷ ১৬১ ৷৷ ॥১৬১॥
+
 > sabāre sammāni' prabhura ha-ila ullāsa
 > haridāse nā dekhiyā kahe,-kāhāṅ haridāsa
 

@@ -1,5 +1,8 @@
 ### CC Adi 7.103
 
+> ইহা শুনি’ বলে সর্ব সন্ন্যাসীর গণ ।
+> তোমাকে দেখিয়ে যৈছে সাক্ষাৎ নারায়ণ ॥১০৩॥
+
 ihā śuni' bale sarva sannyāsīra gaṇa
 
 tomāke dekhiye yaiche sākṣāt nārāyaṇa

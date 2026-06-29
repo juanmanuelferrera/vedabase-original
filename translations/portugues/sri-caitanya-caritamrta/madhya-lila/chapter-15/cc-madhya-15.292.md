@@ -1,5 +1,8 @@
 ### CC Madhya 15.292
 
+> এবে ‘বৈষ্ণব’ হৈল, তার গেল ‘অপরাধ’ ।
+> তাহার উপরে এবে করহ প্রসাদ ॥২৯২॥
+
 ebe 'vaiṣṇava' haila, tāra gela 'aparādha'
 
 tāhāra upare ebe karaha prasāda

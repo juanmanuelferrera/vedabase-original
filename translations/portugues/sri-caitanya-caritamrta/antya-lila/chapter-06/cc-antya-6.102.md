@@ -1,5 +1,8 @@
 ### CC Antya 6.102
 
+> ভক্ত সব নাচাঞা নিত্যানন্দ-রায় ।
+> শেষে নৃত্য করে প্রেমে জগৎ ভাসায় ॥১০২॥
+
 bhakta saba nācāñā nityānanda-rāya
 
 śeṣe nṛtya kare preme jagat bhāsāya

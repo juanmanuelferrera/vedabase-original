@@ -1,5 +1,8 @@
 ### CC Antya 1.21
 
+> রাত্রে আসি’ শিবানন্দ ভোজনের কালে ।
+> ‘কুক্কুর পাঞাছে ভাত?’ — সেবকে পুছিলে ॥২১॥
+
 > rātre asi' śivānanda bhojanera kale
 > 'kukkura pāñāche bhāta?'--sevake puchile
 

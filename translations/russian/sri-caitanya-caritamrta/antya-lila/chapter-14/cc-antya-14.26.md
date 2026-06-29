@@ -1,5 +1,8 @@
 ### CC Antya 14.26
 
+> ‘আদিবস্যা’ এই স্ত্রীরে না কর বর্জন ।
+> করুক যথেষ্ট জগন্নাথ দরশন ॥২৬॥
+
 > 'ādi-vasyā' ei strīre nā kara varjana
 > karuka yatheṣṭa jagannātha daraśana
 

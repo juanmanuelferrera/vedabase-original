@@ -1,5 +1,8 @@
 ### CC Madhya 19.64
 
+> অন্তরে গর-গর প্রেম, নহে সম্বরণ ।
+> দেখি’ চমৎকার হৈল বল্লভ-ভট্টের মন ॥৬৪॥
+
 antare gara-gara prema, nahe samvaraṇa
 
 dekhi' camatkāra haila vallabha-bhaṭṭera mana

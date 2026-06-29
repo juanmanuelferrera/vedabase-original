@@ -1,5 +1,10 @@
 ### CC Adi 13.101
 
+> জগৎ আনন্দময়, দেখি’ মনে সবিস্ময়,
+> ঠারেঠোরে কহে হরিদাস ।
+> তোমার ঐছন রঙ্গ, মোর মন পরসন্ন,
+> দেখি — কিছু কার্যে আছে ভাস ॥১০১॥
+
 jagat ānandamaya, dekhi' mane sa-vismaya,
 ṭhāreṭhore kahe haridāsa
 tomāra aichana raṅga, mora mana parasanna,

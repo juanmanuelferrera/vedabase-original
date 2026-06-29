@@ -1,5 +1,8 @@
 ### CC Antya 6.215
 
+> জগন্নাথের সেবক যত — ‘বিষয়ীর গণ’  ।
+> সেবা সারি’ রাত্র্যে করে গৃহেতে গমন ॥২১৫॥
+
 > jagannāthera sevaka yata--'viṣayīra gaṇa'
 > sevā sāri' rātrye kare gṛhete gamana
 

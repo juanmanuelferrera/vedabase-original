@@ -1,5 +1,10 @@
 ### CC Antya 18.95
 
+> চক্রবাক-মণ্ডল, পৃথক্ পৃথক্ যুগল,
+> জল হৈতে করিল উদ্গম ।
+> উঠিল পদ্মমণ্ডল, পৃথক্ পৃথক্ যুগল,
+> চক্রবাকে কৈল আচ্ছাদন ॥৯৫॥
+
 > cakravāka-maṇḍala, pṛthak pṛthak yugala,
 > jala haite karila udgama
 > uṭhila padma-maṇḍala, pṛthak pṛthak yugala,

@@ -1,5 +1,8 @@
 ### SB 5.15.9
 
+> गयं नृपः कः प्रतियाति कर्मभिर्यज्वाभिमानी बहुविद्धर्मगोप्ता
+> समागतश्रीः सदसस्पतिः सतां सत्सेवकोऽन्यो भगवत्कलामृते ॥९॥
+
 > gayaṁ nṛpaḥ kaḥ pratiyāti karmabhir
 > yajvābhimānī bahuvid dharma-goptā
 > samāgata-śrīḥ sadasas-patiḥ satāṁ

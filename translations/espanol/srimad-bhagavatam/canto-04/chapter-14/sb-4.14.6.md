@@ -1,5 +1,8 @@
 ### SB 4.14.6
 
+> न यष्टव्यं न दातव्यं न होतव्यं द्विजाः क्वचित् ।
+> इति न्यवारयद्धर्मं भेरीघोषेण सर्वशः ॥६॥
+
 > na yaṣṭavyaṁ na dātavyaṁ
 > na hotavyaṁ dvijāḥ kvacit
 > iti nyavārayad dharmaṁ

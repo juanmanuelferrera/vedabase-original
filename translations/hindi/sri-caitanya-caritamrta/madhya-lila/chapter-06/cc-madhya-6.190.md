@@ -1,5 +1,8 @@
 ### CC Madhya 6.190
 
+> নববিধ অর্থ কৈল শাস্ত্রমত লঞা ।
+> শুনি’ প্রভু কহে কিছু ঈষৎ হাসিয়া ॥১৯০॥
+
 > nava-vidha artha kaila śāstra-mata lañā
 > śuni' prabhu kahe kichu īṣat hāsiyā
 

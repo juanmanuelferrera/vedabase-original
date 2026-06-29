@@ -1,5 +1,8 @@
 ### CC Madhya 16.130
 
+> গদাধর-পণ্ডিত যবে সঙ্গেতে চলিলা ।
+> ‘ক্ষেত্র-সন্ন্যাস না ছাড়িহ’ — প্রভু নিষেধিলা ॥১৩০॥
+
 > gadādhara-paṇḍita yabe saṅgete calilā
 > 'kṣetra-sannyāsa nā chāḍiha'—prabhu niṣedhilā
 

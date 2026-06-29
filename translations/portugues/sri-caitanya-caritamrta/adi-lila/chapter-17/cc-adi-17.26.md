@@ -1,5 +1,8 @@
 ### CC Adi 17.26
 
+> তৃণ হৈতে নীচ হঞা সদা লবে নাম ।
+> আপনি নিরভিমানী, অন্যে দিবে মান ॥২৬॥
+
 tṛṇa haite nīca hañā sadā labe nāma
 āpani nirabhimānī, anye dibe māna
 

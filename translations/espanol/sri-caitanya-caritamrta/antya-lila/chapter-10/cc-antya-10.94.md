@@ -1,5 +1,8 @@
 ### CC Antya 10.94
 
+> প্রভু কহে, — ‘ভিতরে তবে আইলা কেমনে ?
+> তৈছে কেনে প্রসাদ লৈতে না কৈলা গমনে ?’ ॥ ৯৪ ॥
+
 > prabhu kahe,--'bhitare tabe āilā kemane?
 > taiche kene prasāda laite nā kailā gamane?'
 

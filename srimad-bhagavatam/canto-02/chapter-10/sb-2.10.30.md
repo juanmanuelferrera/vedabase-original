@@ -1,5 +1,8 @@
 ### SB 2.10.30
 
+> निदिध्यासोरात्ममायां हृदयं निरभिद्यत ।
+> ततो मनश्चन्द्र इति सङ्कल्पः काम एव च ॥३०॥
+
 > nididhyāsor ātma-māyāṁ
 > hṛdayaṁ nirabhidyata
 > tato manaś candra iti

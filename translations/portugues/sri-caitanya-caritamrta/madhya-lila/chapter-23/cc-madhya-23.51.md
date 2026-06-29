@@ -1,5 +1,8 @@
 ### CC Madhya 23.51
 
+> ‘অনুভাব’ — স্মিত, নৃত্য, গীতাদি উদ্ভাস্বর ।
+> স্তম্ভাদি — ‘সাত্ত্বিক’ অনুভাবের ভিতর ॥৫১॥
+
 'anubhāva'--smita, nṛtya, gītādi udbhāsvara
 
 stambhādi--'sāttvika' anubhāvera bhitara

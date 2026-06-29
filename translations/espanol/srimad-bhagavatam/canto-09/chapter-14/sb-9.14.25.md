@@ -1,5 +1,8 @@
 ### SB 9.14.25
 
+> रममाणस्तया देव्या पद्मकिञ्जल्कगन्धया
+> तन्मुखामोदमुषितो मुमुदेऽहर्गणान्बहून ॥२५॥
+
 > ramamāṇas tayā devyā
 > padma-kiñjalka-gandhayā
 > tan-mukhāmoda-muṣito

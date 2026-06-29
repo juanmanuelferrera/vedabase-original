@@ -1,5 +1,7 @@
 ### SB 5.14.21
 
+> कदाचिद्भग्नमानदंष्ट्रो दुर्जनदन्दशूकैरलब्धनिद्राक्षणो व्यथितहृदयेनानुक्षीयमाणविज्ञआनोऽन्धकूपेऽन्धवत्पतति ॥२१॥
+
 > kadācid bhagna-māna-daṁṣṭro durjana-danda-śūkair alabdha-nidrā-kṣaṇo vyathita-hṛdayenānukṣīyamāṇa-vijñāno 'ndha-kūpe 'ndhavat patati.
 
 *kadācit*—sometimes; *bhagna-māna-daṁṣṭraḥ*—whose teeth of pride are broken; *durjana-danda-śūkaiḥ*—by the envious activities of evil men, who are compared to a kind of serpent; *alabdha-nidrā-kṣaṇaḥ*—who does not get an opportunity to sleep; *vyathita-hṛdayena*—by a disturbed mind; *anukṣīyamāṇa*—gradually being decreased; *vijñānaḥ*—whose real consciousness; *andha-kūpe*—in a blind well; *andha-vat*—like illusion; *patati*—he falls down.

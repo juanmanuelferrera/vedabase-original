@@ -1,5 +1,8 @@
 ### CC Madhya 5.52
 
+> ‘আরে অধম! মোর ভগ্নী চাহ বিবাহিতে ।
+> বামন হঞা চাঁদ যেন চাহ ত’ ধরিতে ।।’ ॥ ৫২ ॥
+
 > 'āre adhama! mora bhagnī cāha vivāhite
 > vāmana hañā cāṅda yena cāha ta' dharite'
 

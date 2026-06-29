@@ -1,5 +1,8 @@
 ### CC Madhya 14.148
 
+> ‘ধীরাধীরা’ বক্র-বাক্যে করে উপহাস ।
+> কভু স্তুতি, কভু নিন্দা, কভু বা উদাস ॥১৪৮॥
+
 'dhīrādhīrā' vakra-vākye kare upahāsa
 
 kabhu stuti, kabhu nindā, kabhu vā udāsa

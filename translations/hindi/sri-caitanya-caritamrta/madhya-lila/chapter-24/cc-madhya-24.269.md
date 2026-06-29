@@ -1,5 +1,8 @@
 ### CC Madhya 24.269
 
+> তবে দুই ঋষি আইলা সেই ব্যাধ-স্থানে ।
+> দূর হৈতে ব্যাধ পাইল গুরুর দরশনে ॥২৬৯॥
+
 > tabe dui ṛṣi āilā sei vyādha-sthāne
 > dūra haite vyādha pāila gurura daraśane
 

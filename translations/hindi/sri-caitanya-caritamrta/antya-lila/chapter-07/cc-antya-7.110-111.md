@@ -1,5 +1,10 @@
 ### CC Antya 7.110-111
 
+> “নিত্য আমার এই সভায় হয় কক্ষা-পাত ।
+> একদিন উপরে যদি হয় মোর বাত্ ॥১১০॥
+> তবে সুখ হয়, আর সব লজ্জা যায় ।
+> স্ব-বচন স্থাপিতে আমি কি করি উপায়? ।।” ১১১ ॥১১১॥
+
 > "nitya āmāra ei sabhāya haya kakṣā-pāta
 > eka-dina upare yadi haya mora vāt
 > tabe sukha haya, āra saba lajjā yāya

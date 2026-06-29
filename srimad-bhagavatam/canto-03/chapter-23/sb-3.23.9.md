@@ -1,5 +1,10 @@
 ### SB 3.23.9
 
+> एवं ब्रुवाणमबलाखिलयोगमाया
+> विद्याविचक्षणमवेक्ष्य गताधिरासीत् ।
+> सम्प्रश्रयप्रणयविह्वलया गिरेषद्
+> व्रीडावलोकविलसद्धसिताननाह ॥९॥
+
 > evaṁ bruvāṇam abalākhila-yogamāyā-
 > vidyā-vicakṣaṇam avekṣya gatādhir āsīt
 > sampraśraya-praṇaya-vihvalayā gireṣad-

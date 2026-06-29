@@ -1,5 +1,8 @@
 ### CC Adi 3.35
 
+> তাঁর যুগাবতার জানি’ গর্গ মহাশয় ।
+> কৃষ্ণের নামকরণে করিয়াছে নির্ণয় ॥৩৫॥
+
 tāṅra yugāvatāra jāni' garga mahāśaya
 kṛṣṇera nāma-karaṇe kariyāche nirṇaya
 

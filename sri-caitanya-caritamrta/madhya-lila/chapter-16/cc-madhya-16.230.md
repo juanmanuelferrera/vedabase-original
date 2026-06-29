@@ -1,5 +1,8 @@
 ### CC Madhya 16.230
 
+> একাদশ জন তাঁরে রাখে নিরন্তর ।
+> নীলাচলে যাইতে না পায়, দুঃখিত অন্তর ॥২৩০॥
+
 > ekādaśa jana tāṅre rākhe nirantara
 > nīlācale yāite nā pāya, duḥkhita antara
 

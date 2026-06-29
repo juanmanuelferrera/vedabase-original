@@ -1,5 +1,8 @@
 ### CC Antya 7.4
 
+> এইমত বিলাস প্রভুর ভক্তগণ লঞা ।
+> হেনকালে বল্লভ-ভট্ট মিলিল আসিয়া ॥৪॥
+
 ei-mata vilāsa prabhura bhakta-gaṇa lañā
 hena-kāle vallabha-bhaṭṭa milila āsiyā
 

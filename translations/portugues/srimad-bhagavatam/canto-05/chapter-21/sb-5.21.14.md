@@ -1,5 +1,7 @@
 ### SB 5.21.14
 
+> तस्मिन्नक्षे कृतमूलो द्वितीयोऽक्षस्तुर्यमानेन सम्मितस्तैलयन्त्राक्षवद्ध्रुवे कृतोपरिभागः ॥१४॥
+
 tasminn akṣe kṛtamūlo dvitīyo 'kṣas turyamānena sammitas taila-yantrākṣavad dhruve kṛtopari-bhāgaḥ.
 
 *tasmin akṣe*—nesse eixo; *kṛta-mūlaḥ*—cuja base está fixada; *dvitīyaḥ*—um segundo; *akṣaḥ*—eixo; *turyamānena*—em um quarto; *sammitaḥ*—medido; *taila-yantra-akṣa-vat*—como o eixo de uma máquina de prensar óleo; *dhruve*—a Dhruvaloka; *kṛta*—fixada; *upari-bhāgaḥ*—porção superior.

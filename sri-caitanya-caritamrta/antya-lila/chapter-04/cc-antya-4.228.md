@@ -1,5 +1,8 @@
 ### CC Antya 4.228
 
+> সর্ব ত্যজি’ তেঁহো পাছে আইলা বৃন্দাবন ।
+> তেঁহ ভক্তিশাস্ত্র বহু কৈলা প্রচারণ ॥২২৮॥
+
 > sarva tyāji' teṅho pāche āilā vṛndāvana
 > teṅha bhakti-śāstra bahu kailā pracāraṇa
 

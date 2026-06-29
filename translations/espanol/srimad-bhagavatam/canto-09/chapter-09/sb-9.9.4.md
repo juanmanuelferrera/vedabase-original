@@ -1,5 +1,8 @@
 ### SB 9.9.4
 
+> कोऽपि धारयिता वेगं पतन्त्या मे महीतले
+> अन्यथा भूतलं भित्त्वा नृप यास्ये रसातलम ॥४॥
+
 > ko 'pi dhārayitā vegaṁ
 > patantyā me mahī-tale
 > anyathā bhū-talaṁ bhittvā

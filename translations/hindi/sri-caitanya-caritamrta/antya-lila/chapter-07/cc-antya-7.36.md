@@ -1,5 +1,8 @@
 ### CC Antya 7.36
 
+> এ সব শিখাইলা মোরে রায়-রামানন্দ ।
+> অনর্গল রসবেত্তা প্রেমসুখানন্দ ॥৩৬॥
+
 > e saba śikhāilā more rāya-rāmānanda
 > anargala rasa-vettā prema-sukhānanda
 

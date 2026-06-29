@@ -1,5 +1,9 @@
 ### SB 8.3.2
 
+> श्रीगजेन्द्र उवाच
+> ओं नमो भगवते तस्मै यत एतच्चिदात्मकम
+> पुरुषायादिबीजाय परेशायाभिधीमहि ॥२॥
+
 śrī-gajendra uvāca
 oṁ namo bhagavate tasmai
 yata etac cid-ātmakam

@@ -1,5 +1,8 @@
 ### SB 6.8.23
 
+> चक्रं युगान्तानलतिग्मनेमि भ्रमत्समन्ताद्भगवत्प्रयुक्तम
+> दन्दग्धि दन्दग्ध्यरिसैन्यमाशु कक्षं यथा वातसखो हुताशः ॥२३॥
+
 > cakraṁ yugāntānala-tigma-nemi
 > bhramat samantād bhagavat-prayuktam
 > dandagdhi dandagdhy ari-sainyam āśu

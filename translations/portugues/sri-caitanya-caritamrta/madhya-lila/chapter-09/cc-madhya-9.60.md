@@ -1,5 +1,8 @@
 ### CC Madhya 9.60
 
+> তোমা-সবার ‘গুরু’ তবে পাইবে চেতন ৷
+> সব বৌদ্ধ মিলি’ করে কৃষ্ণসঙ্কীর্তন ৷৷ ৬০ ৷৷ ॥৬০॥
+
 tomā-sabāra 'guru' tabe pāibe cetana
 
 saba bauddha mili' kare kṛṣṇa-saṅkīrtana

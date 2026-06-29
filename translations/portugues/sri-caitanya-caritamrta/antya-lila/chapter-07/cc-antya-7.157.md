@@ -1,5 +1,8 @@
 ### CC Antya 7.157
 
+> পণ্ডিত কহেন, — প্রভু স্বতন্ত্র সর্বজ্ঞ-শিরোমণি ।
+> তাঁর সনে ‘হঠ’ করি, — ভাল নাহি মানি ॥১৫৭॥
+
 paṇḍita kahena,--prabhu svatantra sarvajña-śiromaṇi
 
 tāṅra sane 'haṭha' kari,--bhāla nāhi māni

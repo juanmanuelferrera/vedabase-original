@@ -1,5 +1,8 @@
 ### CC Adi 10.10
 
+> দুই শাখার উপশাখায় তাঁ-সবার গণন  ।
+> যাঁর গৃহে মহাপ্রভুর সদা সংকীর্তন ॥১০॥
+
 dui śākhāra upaśākhāya tāṅ-sabāra gaṇana
 yāṅra gṛhe mahāprabhura sadā saṅkīrtana
 

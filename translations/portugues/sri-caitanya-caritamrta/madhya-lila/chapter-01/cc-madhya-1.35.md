@@ -1,5 +1,8 @@
 ### CC Madhya 1.35
 
+> হরিভক্তিবিলাস, আর ভাগবতামৃত ।
+> দশম-টিপ্পনী, আর দশম-চরিত ॥৩৫॥
+
 hari-bhakti-vilāsa, āra bhāgavatāmṛta
 
 daśama-ṭippanī, āra daśama-carita

@@ -1,5 +1,8 @@
 ### CC Antya 20.103
 
+> প্রথম পরিচ্ছেদে — রূপের দ্বিতীয়-মিলন ।
+> তার মধ্যে দুইনাটকের বিধান-শ্রবণ ॥১০৩॥
+
 > prathama paricchede--rūpera dvitīya-milana
 > tāra madhye dui-nāṭakera vidhāna-śravaṇa
 

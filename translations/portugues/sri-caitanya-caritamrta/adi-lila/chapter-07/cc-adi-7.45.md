@@ -1,5 +1,8 @@
 ### CC Adi 7.45
 
+> কাশীতে লেখক শূদ্র-শ্রীচন্দ্রশেখর ।
+> তাঁর ঘরে রহিলা প্রভু স্বতন্ত্র ঈশ্বর ॥৪৫॥
+
 kāśīte lekhaka śūdra-śrīcandraśekhara
 tāṅra ghare rahilā prabhu svatantra īśvara
 

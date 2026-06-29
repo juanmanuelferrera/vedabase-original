@@ -1,5 +1,8 @@
 ### CC Antya 6.209
 
+> এত বলি’ প্রভু মধ্যাহ্ন করিতে উঠিলা ।
+> রঘুনাথ-দাস সব ভক্তেরে মিলিলা ॥২০৯॥
+
 eta bali' prabhu madhyāhna karite uṭhilā
 
 raghunātha-dāsa saba bhaktere mililā

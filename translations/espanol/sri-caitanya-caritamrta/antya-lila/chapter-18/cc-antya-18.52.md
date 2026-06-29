@@ -1,5 +1,8 @@
 ### CC Antya 18.52
 
+> শরীর দীঘল তার — হাত পাঁচ-সাত ।
+> একেক-হস্ত-পদ তার, তিন তিন হাত ॥৫২॥
+
 > śarīra dīghala tāra--hāta pāṅca-sāta
 > ekeka-hasta-pada tāra, tina tina hāta
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.42
 
+> তবে দামোদর চলি’ নদীয়া আইলা ।
+> মাতারে মিলিয়া তাঁর চরণে রহিলা ॥৪২॥
+
 > tabe dāmodara cali' nadīyā āilā
 > mātāre miliyā tāṅra caraṇe rahilā
 

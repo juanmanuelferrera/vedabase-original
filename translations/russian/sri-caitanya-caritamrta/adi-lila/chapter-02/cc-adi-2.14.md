@@ -1,5 +1,10 @@
 ### CC Adi 2.14
 
+> যস্য প্রভা প্রভবতো জগদণ্ডকোটি-
+> কোটিষ্বশেষবসুধাদিবিভূতিভিন্নম্ ।
+> তদ্ব্রহ্ম নিষ্কলমনন্তমশেষভূতং
+> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥১৪॥
+
 > yasya prabhā prabhavato jagad-aṇḍa-koṭi-
 > koṭīṣv aśeṣa-vasudhādi-vibhūti-bhinnam
 > tad brahma niṣkalam anantam aśeṣa-bhūtaṁ

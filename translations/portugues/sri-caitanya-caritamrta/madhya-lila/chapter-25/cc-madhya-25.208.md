@@ -1,5 +1,8 @@
 ### CC Madhya 25.208
 
+> মাসমাত্র রূপ-গোসাঞি রহিলা বৃন্দাবনে ।
+> শীঘ্র চলি’ আইলা সনাতনানুসন্ধানে ॥২০৮॥
+
 māsa-mātra rūpa-gosāñi rahilā vṛndāvane
 
 śīghra cali' āilā sanātanānusandhāne

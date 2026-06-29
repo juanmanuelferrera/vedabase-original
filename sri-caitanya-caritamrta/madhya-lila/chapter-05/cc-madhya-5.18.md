@@ -1,5 +1,8 @@
 ### CC Madhya 5.18
 
+> বিপ্র বলে, — তুমি মোর বহু সেবা কৈলা ।
+> সহায় হঞা মোরে তীর্থ করাইলা ॥১৮॥
+
 > vipra bale—tumi mora bahu sevā kailā
 > sahāya hañā more tīrtha karāilā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 6.32
 
+> সবা সহিত যথাযোগ্য করিল মিলন ।
+> প্রভু দেখি’ সবার হৈল হরষিত মন ॥৩২॥
+
 > sabā sahita yathā-yogya karila milana
 > prabhu dekhi' sabāra haila haraṣita mana
 

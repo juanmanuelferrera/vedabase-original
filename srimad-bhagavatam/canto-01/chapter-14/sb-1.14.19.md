@@ -1,5 +1,8 @@
 ### SB 1.14.19
 
+> न पिबन्ति स्तनं वत्सा न दुह्यन्ति च मातरः ।
+> रुदन्त्यश्रुमुखा गावो न हृष्यन्त्यृषभा व्रजे ॥१९॥
+
 > na pibanti stanaṁ vatsā
 > na duhyanti ca mātaraḥ
 > rudanty aśru-mukhā gāvo

@@ -1,5 +1,8 @@
 ### CC Madhya 19.153
 
+> উপজিয়া বাড়ে লতা ‘ব্রহ্মাণ্ড’ ভেদি’ যায় ।
+> ‘বিরজা’, ‘ব্রহ্মলোক’ ভেদি’ ‘পরব্যোম’ পায় ॥১৫৩॥
+
 upajiyā bāḍe latā 'brahmāṇḍa' bhedi' yāya
 
 'virajā' 'brahma-loka' bhedi' 'para-vyoma' pāya

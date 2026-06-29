@@ -1,5 +1,8 @@
 ### CC Antya 20.42
 
+> কৃষ্ণ উদাসীন হইলা করিতে পরীক্ষণ ।
+> সখী সব কহে, — ‘কৃষ্ণে কর উপেক্ষণ’ ॥৪২॥
+
 kṛṣṇa udāsīna ha-ilā karite parīkṣaṇa
 
 sakhī saba kahe,--'kṛṣṇe kara upekṣaṇa'

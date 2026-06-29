@@ -1,5 +1,8 @@
 ### SB 2.10.6
 
+> निरोधोऽस्यानुशयनमात्मनः सह शक्तिभिः ।
+> मुक्तिर्हित्वान्यथा रूपं स्वरूपेण व्यवस्थितिः ॥६॥
+
 > nirodho 'syānuśayanam
 > ātmanaḥ saha śaktibhiḥ
 > muktir hitvānyathā rūpaṁ

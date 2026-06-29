@@ -1,5 +1,8 @@
 ### CC Madhya 20.238
 
+> কেশব-ভেদে পদ্মশঙ্খগদাচক্রধর ।
+> মাধব-ভেদে চক্রগদাশঙ্খপদ্মকর ॥২৩৮॥
+
 > keśava-bhede padma-śaṅkha-gadā-cakra-dhara
 > mādhava-bhede cakra-gadā-śaṅkha-padma-kara
 

@@ -1,5 +1,8 @@
 ### CC Madhya 25.97
 
+> “এই অর্থ — আমার সূত্রের ব্যাখ্যানুরূপ ।
+> ‘ভাগবত’ করিব সূত্রের ভাষ্যস্বরূপ ।।” ॥ ৯৭ ॥
+
 > "ei artha-āmāra sūtrera vyākhyānurūpa
 > 'bhāgavata' kariba sūtrera bhāṣya-svarūpa"
 

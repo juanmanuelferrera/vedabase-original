@@ -1,5 +1,8 @@
 ### CC Antya 2.60
 
+> জগন্নাথের ভিন্ন ভোগ পৃথক্ বাড়িল  ।
+> চৈতন্য প্রভুর লাগি’ আর ভোগ কৈল ॥৬০॥
+
 > jagannāthera bhinna bhoga pṛthak bāḍila
 > caitanya prabhura lāgi' āra bhoga kaila
 

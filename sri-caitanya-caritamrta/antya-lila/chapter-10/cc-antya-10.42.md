@@ -1,5 +1,8 @@
 ### CC Antya 10.42
 
+> নরেন্দ্রের জলে ‘গোবিন্দ’ নৌকাতে চড়িয়া ।
+> জলক্রীড়া করে সব ভক্তগণ লঞা ॥৪২॥
+
 > narendrera jale 'govinda' naukāte caḍiyā
 > jala-krīḍā kare saba bhakta-gaṇa lañā
 

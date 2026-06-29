@@ -1,5 +1,8 @@
 ### SB 9.22.29
 
+> युधिष्ठिरात्प्रतिविन्ध्यः श्रुतसेनो वृकोदरात
+> अर्जुनाच्छ्रुतकीर्तिस्तु शतानीकस्तु नाकुलिः ॥२९॥
+
 > yudhiṣṭhirāt prativindhyaḥ
 > śrutaseno vṛkodarāt
 > arjunāc chrutakīrtis tu

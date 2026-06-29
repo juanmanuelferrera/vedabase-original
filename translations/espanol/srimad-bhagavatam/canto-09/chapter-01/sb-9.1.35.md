@@ -1,5 +1,8 @@
 ### SB 9.1.35
 
+> सापि तं चकमे सुभ्रूः सोमराजसुतं पतिम
+> स तस्यां जनयामास पुरूरवसमात्मजम ॥३५॥
+
 > sāpi taṁ cakame subhrūḥ
 > somarāja-sutaṁ patim
 > sa tasyāṁ janayām āsa

@@ -1,5 +1,8 @@
 ### SB 5.5.14
 
+> कर्माशयं हृदयग्रन्थिबन्धमविद्ययासादितमप्रमत्तः
+> अनेन योगेन यथोपदेशं सम्यग्व्यपोह्योपरमेत योगात ॥१४॥
+
 > karmāśayaṁ hṛdaya-granthi-bandham
 > avidyayāsāditam apramattaḥ
 > anena yogena yathopadeśaṁ

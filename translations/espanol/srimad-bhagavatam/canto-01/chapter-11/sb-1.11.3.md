@@ -1,5 +1,8 @@
 ### SB 1.11.3
 
+> तमुपश्रुत्य निनदं जगद्भयभयावहम् ।
+> प्रत्युद्ययुः प्रजाः सर्वा भर्तृदर्शनलालसाः ॥३॥
+
 > tam upaśrutya ninadaṁ
 > jagad-bhaya-bhayāvaham
 > pratyudyayuḥ prajāḥ sarvā

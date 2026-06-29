@@ -1,5 +1,8 @@
 ### CC Madhya 1.125
 
+> বিরহে বিহ্বল প্রভু না জানে রাত্রি-দিনে ।
+> হেনকালে আইলা গৌড়ের ভক্তগণে ॥১২৫॥
+
 virahe vihvala prabhu nā jāne rātri-dine
 
 hena-kāle āilā gauḍera bhakta-gaṇe

@@ -1,5 +1,8 @@
 ### CC Madhya 3.96
 
+> অবধূতের ঝুঠা লাগিল মোর অঙ্গে ।
+> পরম পবিত্র মোরে কৈল এই ঢঙ্গে ॥৯৬॥
+
 > avadhūtera jhuṭhā lāgila mora aṅge
 > parama pavitra more kaila ei ḍhaṅge
 

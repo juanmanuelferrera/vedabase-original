@@ -1,5 +1,8 @@
 ### CC Madhya 19.101
 
+> প্রভু কহে, — উপাধ্যায়, শ্রেষ্ঠ মান’ কায় ?
+> ‘শ্যামমেব পরং রূপং’ — কহে উপাধ্যায় ॥১০১॥
+
 > prabhu kahe,—upādhyāya, śreṣṭha māna' kāya?
 > 'śyāmam eva paraṁ rūpaṁ'—kahe upādhyāya
 

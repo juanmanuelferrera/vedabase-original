@@ -1,5 +1,8 @@
 ### CC Madhya 17.99
 
+> মিশ্র কহে, — ‘প্রভু, যাবৎ কাশীতে রহিবা ।
+> মোর নিমন্ত্রণ বিনা অন্য না মানিবা’ ॥ ৯৯ ॥
+
 miśra kahe,--'prabhu, yāvat kāśīte rahibā
 
 mora nimantraṇa vinā anya nā mānibā'

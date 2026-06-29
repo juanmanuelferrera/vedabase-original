@@ -1,5 +1,8 @@
 ### CC Madhya 8.90
 
+> কৃষ্ণের প্রতিজ্ঞা দৃঢ় সর্বকালে আছে ৷
+> যে যৈছে ভজে, কৃষ্ণ তারে ভজে তৈছে ৷৷ ৯০ ৷৷ ॥৯০॥
+
 > kṛṣṇera pratijñā dṛḍha sarva-kāle āche
 > ye yaiche bhaje, kṛṣṇa tāre bhaje taiche
 

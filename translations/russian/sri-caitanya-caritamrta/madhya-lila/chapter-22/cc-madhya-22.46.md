@@ -1,5 +1,10 @@
 ### CC Madhya 22.46
 
+> ভবাপবর্গো ভ্রমতো যদা ভবে-
+> জ্জনস্য তর্হ্যচ্যুত সৎসমাগমঃ ।
+> সৎসঙ্গমো যর্হি তদৈব সদ্গতৌ
+> পরাবরেশে ত্বয়ি জায়তে রতিঃ ॥৪৬॥
+
 > bhavāpavargo bhramato yadā bhavej
 > janasya tarhy acyuta sat-samāgamaḥ
 > sat-saṅgamo yarhi tadaiva sad-gatau

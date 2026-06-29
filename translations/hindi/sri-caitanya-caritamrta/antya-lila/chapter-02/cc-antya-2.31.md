@@ -1,5 +1,8 @@
 ### CC Antya 2.31
 
+> ‘গৌরগোপাল মন্ত্র’ তোমার চারি অক্ষর  ।
+> অবিশ্বাস ছাড়, যেই করিয়াছ অন্তর ।।” ৩১ ॥৩১॥
+
 > 'gaura-gopāla mantra' tomāra cāri akṣara
 > aviśvāsa chāḍa, yei kariyācha antara"
 

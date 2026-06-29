@@ -1,5 +1,8 @@
 ### CC Adi 9.52
 
+> সর্বলোকে মত্ত কৈলা আপন-সমান ।
+> প্রেমে মত্ত লোক বিনা নাহি দেখি আন ॥৫২॥
+
 > sarva-loke matta kailā āpana-samāna
 > preme matta loka vinā nāhi dekhi āna
 

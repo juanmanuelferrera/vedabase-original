@@ -1,5 +1,8 @@
 ### CC Madhya 3.83
 
+> নিত্যানন্দ বলে — যবে কৈলে নিমন্ত্রণ ৷
+> তত দিতে চাহ, যত করিয়ে ভোজন ॥৮৩॥
+
 nityānanda bale--yabe kaile nimantraṇa
 
 tata dite cāha, yata kariye bhojana

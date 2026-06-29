@@ -1,5 +1,8 @@
 ### CC Madhya 21.43
 
+> ‘অন্তঃপুর’ — গোলোক-শ্রীবৃন্দাবন ।
+> যাহাঁ নিত্যস্থিতি মাতাপিতা-বন্ধুগণ ॥৪৩॥
+
 > 'antaḥpura'--goloka-śrī-vṛndāvana
 > yāhāṅ nitya-sthiti mātā-pitā-bandhu-gaṇa
 > SYNONYMS

@@ -1,5 +1,8 @@
 ### CC Antya 3.236
 
+> “জগতের বন্ধু তুমি রূপগুণবান্  ।
+> তব সঙ্গ লাগি’ মোর এথাকে প্রয়াণ ॥২৩৬॥
+
 "jagatera bandhu tumi rūpa-guṇavān
 
 tava saṅga lāgi' mora ethāke prayāṇa

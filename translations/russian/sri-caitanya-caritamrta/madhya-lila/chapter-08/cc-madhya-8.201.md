@@ -1,5 +1,8 @@
 ### CC Madhya 8.201
 
+> রাধাকৃষ্ণের লীলা এই অতি গূঢ়তর ।
+> দাস্য-বাৎসল্যাদি-ভাবে না হয় গোচর ॥২০১॥
+
 > rādhā-kṛṣṇera līlā ei ati gūḍhatara
 > dāsya-vātsalyādi-bhāve nā haya gocara
 

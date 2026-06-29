@@ -1,5 +1,8 @@
 ### CC Antya 7.18
 
+> সর্বশাস্ত্রে কৃষ্ণভক্ত্যে নাহি যাঁর সম ।
+> অতএব ‘অদ্বৈত-আচার্য’ তাঁর নাম ॥১৮॥
+
 sarva-śāstre kṛṣṇa-bhaktye nāhi yāṅra sama
 
 ataeva 'advaita-ācārya' tāṅra nāma

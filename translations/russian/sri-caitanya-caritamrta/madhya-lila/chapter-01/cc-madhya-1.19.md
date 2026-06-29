@@ -1,5 +1,8 @@
 ### CC Madhya 1.19
 
+> তার মধ্যে ছয় বৎসর — গমনাগমন ।
+> নীলাচল-গৌড়-সেতুবন্ধ-বৃন্দাবন ॥১৯॥
+
 > tāra madhye chaya vatsara—gamanāgamana
 > nīlācala-gauḍa-setubandha-vṛndāvana
 

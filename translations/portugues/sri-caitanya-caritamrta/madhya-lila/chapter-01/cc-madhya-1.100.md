@@ -1,5 +1,8 @@
 ### CC Madhya 1.100
 
+> নিত্যানন্দ, জগদানন্দ, দামোদর, মুকুন্দ ।
+> পাছে আসি’ মিলি’ সবে পাইল আনন্দ ॥১০০॥
+
 nityānanda, jagadānanda, dāmodara, mukunda
 
 pāche āsi' mili' sabe pāila ānanda

@@ -1,5 +1,8 @@
 ### CC Madhya 20.98
 
+> তবে সনাতন প্রভুর চরণে ধরিয়া ।
+> দৈন্য বিনতি করে দন্তে তৃণ লঞা ॥৯৮॥
+
 tabe sanātana prabhura caraṇe dhariyā
 
 dainya vinati kare dante tṛṇa lañā

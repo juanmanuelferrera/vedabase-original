@@ -1,5 +1,8 @@
 ### CC Madhya 18.137
 
+> এত বলি’ ঝাঁপ দিলা জলের উপরে ।
+> ডুবিয়া রহিলা প্রভু জলের ভিতরে ॥১৩৭॥
+
 > eta bali' jhāṅpa dilā jalera upare
 > ḍubiyā rahilā prabhu jalera bhitare
 

@@ -1,5 +1,8 @@
 ### SB 1.2.22
 
+> अतो वै कवयो नित्यं भक्तिं परमया मुदा ।
+> वासुदेवे भगवति कुर्वन्त्यात्मप्रसादनीम् ॥२२॥
+
 > ato vai kavayo nityaṁ
 > bhaktiṁ paramayā mudā
 > vāsudeve bhagavati

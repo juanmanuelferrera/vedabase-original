@@ -1,5 +1,8 @@
 ### SB 4.6.40
 
+> स तूपलभ्यागतमात्मयोनिं सुरासुरेशैरभिवन्दिताङ्घ्रिः ।
+> उत्थाय चक्रे शिरसाभिवन्दनमर्हत्तमः कस्य यथैव विष्णुः ॥४०॥
+
 > sa tūpalabhyāgatam ātma-yoniṁ
 > surāsureśair abhivanditāṅghriḥ
 > utthāya cakre śirasābhivandanam

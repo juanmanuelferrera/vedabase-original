@@ -1,5 +1,8 @@
 ### SB 3.18.27
 
+> अधुनैषोऽभिजिन्नाम योगो मौहूर्तिको ह्यगात् ।
+> शिवाय नस्त्वं सुहृदामाशु निस्तर दुस्तरम् ॥२७॥
+
 > adhunaiṣo 'bhijin nāma
 > yogo mauhūrtiko hy agāt
 > śivāya nas tvaṁ suhṛdām

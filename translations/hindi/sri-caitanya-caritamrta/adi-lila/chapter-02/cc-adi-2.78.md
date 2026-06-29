@@ -1,5 +1,8 @@
 ### CC Adi 2.78
 
+> বিপ্রত্ব বিখ্যাত তার পাণ্ডিত্য অজ্ঞাত ।
+> অতএব বিপ্র আগে, পাণ্ডিত্য পশ্চাত ॥৭৮॥
+
 > vipratva vikhyāta tāra pāṇḍitya ajñāta
 > ataeva vipra āge, pāṇḍitya paścāta
 

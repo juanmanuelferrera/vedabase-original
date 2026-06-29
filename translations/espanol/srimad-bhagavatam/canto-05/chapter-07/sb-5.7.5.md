@@ -1,5 +1,7 @@
 ### SB 5.7.5
 
+> ईजे च भगवन्तं यज्ञअक्रतुरूपं क्रतुभिरुच्चावचैः श्रद्धयाहृताग्निहोत्रदर्शपूर्णमासचातुर्मास्यपशुसोमानां प्रकृतिविकृतिभिरनुसवनं चातुर्होत्रविधिना ॥५॥
+
 > īje ca bhagavantaṁ yajña-kratu-rūpaṁ kratubhir uccāvacaiḥ śraddhayāhṛtāgnihotra-darśa-pūrṇamāsa-cāturmāsya-paśu-somānāṁ prakṛti-vikṛtibhir anusavanaṁ cāturhotra-vidhinā.
 
 *īje*—adoró; *ca*—también; *bhagavantam*—a la Suprema Personalidad de Dios; *yajña-kratu-rūpam*—en forma de sacrificios con y sin animales; *kratubhiḥ*—con esos sacrificios; *uccāvacaiḥ*—muy grandes y muy pequeños; *śraddhayā*—con fe; *āhṛta*—celebrados; *agni-hotra*—del *agnihotra-yajña*; *darśa*—del *darśa-yajña*; *pūrṇamāsa*—del *pūrṇamāsa-yajña*; *cāturmāsya*—del *cāturmāsya-yajña*; *paśu-somānām*—del *yajña* con animales y del *yajña* con *soma-rasa*; *prakṛti*—con celebraciones completas; *vikṛtibhiḥ*—y con celebraciones parciales; *anusavanam*—casi siempre; *cātuḥ-hotra-vidhinā*—de los principios regulativos del sacrificio dirigido por cuatro clases de sacerdotes.

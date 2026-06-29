@@ -1,5 +1,8 @@
 ### CC Adi 7.92
 
+> নাচ, গাও, ভক্তসঙ্গে কর সংকীর্তন ।
+> কৃষ্ণনাম উপদেশি’ তার’ সর্বজন ॥৯২॥
+
 nāca, gāo, bhakta-saṅge kara saṅkīrtana
 
 kṛṣṇa-nāma upadeśi' tāra' sarva-jana

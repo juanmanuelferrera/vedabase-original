@@ -1,5 +1,8 @@
 ### SB 7.13.5
 
+> सुप्तिप्रबोधयोः सन्धावात्मनो गतिमात्मदृक
+> पश्यन्बन्धं च मोक्षं च मायामात्रं न वस्तुतः ॥५॥
+
 > supti-prabodhayoḥ sandhāv
 > ātmano gatim ātma-dṛk
 > paśyan bandhaṁ ca mokṣaṁ ca

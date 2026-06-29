@@ -1,5 +1,8 @@
 ### CC Antya 3.41
 
+> এত কহি’ জগন্নাথের প্রসাদ আনাইল ।
+> মাতাকে বৈষ্ণবে দিতে পৃথক্ পৃথক্ দিল ॥৪১॥
+
 > eta kahi' jagannāthera prasāda ānāila
 > mātāke vaiṣṇave dite pṛthak pṛthak dila
 

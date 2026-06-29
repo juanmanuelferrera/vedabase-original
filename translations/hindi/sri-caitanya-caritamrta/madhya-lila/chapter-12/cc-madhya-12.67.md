@@ -1,5 +1,8 @@
 ### CC Madhya 12.67
 
+> পুত্রে আলিঙ্গন করি’ প্রেমাবিষ্ট হৈলা ।
+> সাক্ষাৎ পরশ যেন মহাপ্রভুর পাইলা ॥৬৭॥
+
 > putre āliṅgana kari' premāviṣṭa hailā
 > sākṣāt paraśa yena mahāprabhura pāilā
 

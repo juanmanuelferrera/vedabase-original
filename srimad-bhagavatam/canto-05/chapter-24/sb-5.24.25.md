@@ -1,5 +1,7 @@
 ### SB 5.24.25
 
+> यस्यानुदास्यमेवास्मत्पितामहः किल वव्रे न तु स्वपित्र्यं यदुताकुतोभयं पदंदीयमानं भगवतः परमिति भगवतोपरते खलु स्वपितरि ॥२५॥
+
 > yasyānudāsyam evāsmat-pitāmahaḥ kila vavre na tu sva-pitryaṁ yad utākutobhayaṁ padaṁ dīyamānaṁ bhagavataḥ param iti bhagavatoparate khalu sva-pitari.
 
 *yasya*—of whom (the Supreme Personality of Godhead); *anudāsyam*—the service; *eva*—certainly; *asmat*—our; *pitā-mahaḥ*—grandfather; *kila*—indeed; *vavre*—accepted; *na*—not; *tu*—but; *sva*—own; *pitryam*—paternal property; *yat*—which; *uta*—certainly; *akutaḥ-bhayam*—fearlessness; *padam*—position; *dīyamānam*—being offered; *bhagavataḥ*—than the Supreme Personality of Godhead; *param*—other; *iti*—thus; *bhagavatā*—by the Supreme Personality of Godhead; *uparate*—when killed; *khalu*—indeed; *sva-pitari*—his own father.

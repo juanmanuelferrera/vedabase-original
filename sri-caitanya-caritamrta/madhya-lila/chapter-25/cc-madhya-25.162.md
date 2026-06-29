@@ -1,5 +1,8 @@
 ### CC Madhya 25.162
 
+> তবে সব লোক শুনিতে আগ্রহ করিল ।
+> ‘একষষ্টি’ অর্থ প্রভু বিবরি’ কহিল ॥১৬২॥
+
 > tabe saba loka śunite āgraha karila
 > 'ekaṣaṣṭi' artha prabhu vivari' kahila
 

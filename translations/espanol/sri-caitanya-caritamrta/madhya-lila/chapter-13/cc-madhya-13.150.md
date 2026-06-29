@@ -1,5 +1,10 @@
 ### CC Madhya 13.150
 
+> ব্রজবাসী যত জন, মাতা, পিতা, সখাগণ,
+> সবে হয় মোর প্রাণসম ।
+> তাঁর মধ্যে গোপীগণ, সাক্ষাৎ মোর জীবন,
+> তুমি মোর জীবনের জীবন ॥১৫০॥
+
 > vraja-vāsī yata jana, mātā, pitā, sakhā-gaṇa,
 > sabe haya mora prāṇa-sama
 > tāṅra madhye gopī-gaṇa, sākṣāt mora jīvana,

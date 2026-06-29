@@ -1,5 +1,8 @@
 ### CC Madhya 25.54
 
+> ‘বেদান্ত’-মতে, — ব্ৰহ্ম ‘সাকার’ নিরূপণ ।
+> ‘নির্গুণ’ ব্যতিরেকে তিঁহো হয় ত’ ‘সগুণ’ ॥৫৪॥
+
 'vedānta'-mate,-brahma 'sākāra' nirūpaṇa
 
 'nirguṇa' vyatireke tiṅho haya ta' 'saguṇa'

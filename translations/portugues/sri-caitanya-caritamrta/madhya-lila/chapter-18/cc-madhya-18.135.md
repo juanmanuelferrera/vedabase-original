@@ -1,5 +1,8 @@
 ### CC Madhya 18.135
 
+> একদিন সেই অক্রূর-ঘাটের উপরে ।
+> বসি’ মহাপ্রভু কিছু করেন বিচারে ॥১৩৫॥
+
 eka-dina sei akrūra-ghāṭera upare
 
 vasi' mahāprabhu kichu karena vicāre

@@ -1,5 +1,7 @@
 ### SB 5.4.16
 
+> यद्यपि स्वविदितं सकलधर्मं ब्राह्मं गुह्यं ब्राह्मणैर्दर्शितमार्गेणसामादिभिरुपायैर्जनतामनुशशास ॥१६॥
+
 > yadyapi sva-viditaṁ sakala-dharmaṁ brāhmaṁ guhyaṁ brāhmaṇair darśita-mārgeṇa sāmādibhir upāyair janatām anuśaśāsa.
 
 *yadyapi*—aunque; *sva-viditam*—conocido por Él; *sakala-dharmam*—que incluye todo tipo de deberes prescritos; *brāhmam*—instrucción védica; *guhyam*—muy confidencial; *brāhmaṇaiḥ*—por los *brāhmaṇas*; *darśita-mārgeṇa*—por el sendero mostrado; *sāma-ādibhiḥ*—*sāma, dama, titikṣā* (control de la mente, control de los sentidos, práctica de la tolerancia); *upāyaiḥ*—por los medios; *janatām*—la generalidad de la gente; *anuśaśāsa*—gobernó a.

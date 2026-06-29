@@ -1,5 +1,8 @@
 ### CC Madhya 11.63
 
+> গোপীভাবে বিরহে প্রভু ব্যাকুল হঞা ৷
+> আলালনাথে গেলা প্রভু সবারে ছাড়িয়া ৷৷ ৬৩ ৷৷ ॥৬৩॥
+
 gopī-bhāve virahe prabhu vyākula hañā
 
 ālālanāthe gelā prabhu sabāre chāḍiyā

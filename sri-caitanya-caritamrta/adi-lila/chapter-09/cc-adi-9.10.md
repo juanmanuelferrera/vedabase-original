@@ -1,5 +1,8 @@
 ### CC Adi 9.10
 
+> জয় শ্রীমাধবপুরী কৃষ্ণপ্রেমপূর ।
+> ভক্তিকল্পতরুর তেঁহো প্রথম অঙ্কুর ॥১০॥
+
 > jaya śrī mādhavapurī kṛṣṇa-prema-pūra
 > bhakti-kalpatarura teṅho prathama aṅkura
 

@@ -1,5 +1,8 @@
 ### CC Adi 2.96
 
+> কৃষ্ণের স্বরূপ, আর শক্তিত্রয়-জ্ঞান ।
+> যাঁর হয়, তাঁর নাহি কৃষ্ণেতে অজ্ঞান ॥৯৬॥
+
 kṛṣṇera svarūpa, āra śakti-traya-jñāna
 
 yāṅra haya, tāṅra nāhi kṛṣṇete ajñāna

@@ -1,5 +1,8 @@
 ### CC Antya 3.238
 
+> এত বলি’ নানা-ভাব করয়ে প্রকাশ ।
+> যাহার দর্শনে মুনির হয় ধৈর্যনাশ ॥২৩৮॥
+
 eta bali' nānā-bhāva karaye prakāśa
 
 yāhāra darśane munira haya dhairya-nāśa

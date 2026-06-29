@@ -1,5 +1,8 @@
 ### CC Madhya 19.229
 
+> সে অমৃতানন্দে ভক্ত সহ ডুবেন আপনে ।
+> ‘কৃষ্ণ — ভক্তবশ’ গুণ কহে ঐশ্বর্য-জ্ঞানিগণে ॥২২৯॥
+
 > se amṛtānande bhakta saha ḍubena āpane
 > 'kṛṣṇa--bhakta-vaśa' guṇa kahe aiśvarya-jñāni-gaṇe
 

@@ -1,5 +1,8 @@
 ### CC Adi 3.84
 
+> ভাগবত, ভারতশাস্ত্র, আগম, পুরাণ ।
+> চৈতন্য-কৃষ্ণ-অবতারে প্রকট প্রমাণ ॥৮৪॥
+
 > bhāgavata, bhārata-śāstra, āgama, purāṇa
 > caitanya-kṛṣṇa-avatāre prakaṭa pramāṇa
 

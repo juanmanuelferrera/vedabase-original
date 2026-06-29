@@ -1,5 +1,8 @@
 ### SB 5.18.20
 
+> स वै पतिः स्यादकुतोभयः स्वयं समन्ततः पाति भयातुरं जनम
+> स एक एवेतरथा मिथो भयं नैवात्मलाभादधि मन्यते परम ॥२०॥
+
 > sa vai patiḥ syād akutobhayaḥ svayaṁ
 > samantataḥ pāti bhayāturaṁ janam
 > sa eka evetarathā mitho bhayaṁ

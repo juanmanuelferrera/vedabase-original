@@ -1,5 +1,8 @@
 ### CC Madhya 9.71
 
+> ত্রিমলয় দেখি’ গেলা ত্রিকালহস্তি-স্থানে ৷
+> মহাদেব দেখি’ তাঁরে করিল প্রণামে ৷৷ ৭১ ৷৷ ॥৭১॥
+
 > trimalaya dekhi' gelā trikāla-hasti-sthāne
 > mahādeva dekhi' tāṅre karila praṇāme
 

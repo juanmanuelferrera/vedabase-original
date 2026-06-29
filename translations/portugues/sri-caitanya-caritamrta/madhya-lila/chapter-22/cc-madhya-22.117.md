@@ -1,5 +1,8 @@
 ### CC Madhya 22.117
 
+> ধাত্র্যশ্বত্থগোবিপ্র-বৈষ্ণব-পূজন ।
+> সেবা-নামাপরাধাদি দূরে বিসর্জন ॥১১৭॥
+
 dhātry-aśvattha-go-vipra-vaiṣṇava-pūjana
 
 sevā-nāmāparādhādi dūre visarjana

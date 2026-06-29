@@ -1,5 +1,8 @@
 ### CC Adi 3.5
 
+> পূর্ণ ভগবান্ কৃষ্ণ ব্রজেন্দ্রকুমার ।
+> গোলোকে ব্রজের সহ নিত্য বিহার ॥৫॥
+
 > pūrṇa bhagavān kṛṣṇa vrajendra-kumāra
 > goloke vrajera saha nitya vihāra
 

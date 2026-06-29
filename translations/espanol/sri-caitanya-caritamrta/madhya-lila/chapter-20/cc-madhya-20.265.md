@@ -1,5 +1,8 @@
 ### CC Madhya 20.265
 
+> সেই মায়া অবলোকিতে শ্রীসঙ্কর্ষণ ।
+> পুরুষরূপে অবতীর্ণ হইলা প্রথম ॥২৬৫॥
+
 > sei māyā avalokite śrī-saṅkarṣaṇa
 > puruṣa-rūpe avatīrṇa ha-ilā prathama
 

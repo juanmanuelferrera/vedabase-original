@@ -1,5 +1,8 @@
 ### CC Antya 7.15
 
+> সন্ত্ববতারা বহবঃ পুষ্করনাভস্য সর্বতোভদ্রাঃ ।
+> কৃষ্ণাদন্যঃ কো বা লতাস্বপি প্রেমদো ভবতি ।।” ॥ ১৫ ॥
+
 > santv avatārā bahavaḥ
 > puṣkara-nābhasya sarvato-bhadrāḥ
 > kṛṣṇād anyaḥ ko vā latāsv

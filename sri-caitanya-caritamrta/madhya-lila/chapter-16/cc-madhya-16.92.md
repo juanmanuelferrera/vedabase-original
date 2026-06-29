@@ -1,5 +1,8 @@
 ### CC Madhya 16.92
 
+> শুনিয়া প্রভুর বাণী মনে বিচারয় ।
+> প্রভু-সনে অতি হঠ কভু ভাল নয় ॥৯২॥
+
 > śuniyā prabhura vāṇī mane vicāraya
 > prabhu-sane ati haṭha kabhu bhāla naya
 

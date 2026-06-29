@@ -1,5 +1,8 @@
 ### CC Antya 18.10
 
+> সে সব শ্লোকের অর্থ, সে সব ‘বিকার’ ।
+> সে সব বর্ণিতে গ্রন্থ হয় অতি-বিস্তার ॥১০॥
+
 > se saba ślokera artha, se saba 'vikāra'
 > se saba varṇite grantha haya ati-vistāra
 

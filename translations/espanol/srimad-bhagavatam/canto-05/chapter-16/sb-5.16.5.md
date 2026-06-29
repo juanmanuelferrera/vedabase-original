@@ -1,5 +1,7 @@
 ### SB 5.16.5
 
+> यो वायं द्वीपः कुवलयकमलकोशाभ्यन्तरकोशो नियुतयोजनविशालः समवर्तुलो यथापुष्करपत्रम ॥५॥
+
 > yo vāyaṁ dvīpaḥ kuvalaya-kamala-kośābhyantara-kośo niyuta-yojana-viśālaḥ samavartulo yathā puṣkara-patram.
 
 *yaḥ*—que; *vā*—o bien; *ayam*—esta; *dvīpaḥ*—isla; *kuvalaya*—el Bhūloka; *kamala-kośa*—del verticilo de una flor de loto; *abhyantara*—interior; *kośaḥ*—verticilo; *niyuta-yojana-viśālaḥ*—un millón de *yojanas* (unos trece millones de kilómetros) de ancho; *samavartulaḥ*—perfectamente redonda, o igual de larga que ancha; *yathā*—como; *puṣkara-patram*—una hoja de loto.

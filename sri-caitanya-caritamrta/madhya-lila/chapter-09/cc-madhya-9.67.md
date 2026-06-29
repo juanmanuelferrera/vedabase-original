@@ -1,5 +1,8 @@
 ### CC Madhya 9.67
 
+> নৃসিংহে প্রণতি-স্তুতি প্রেমাবেশে কৈল ।
+> প্রভুর প্রভাবে লোক চমৎকার হৈল ॥৬৭॥
+
 > nṛsiṁhe praṇati-stuti premāveśe kaila
 > prabhura prabhāve loka camatkāra haila
 

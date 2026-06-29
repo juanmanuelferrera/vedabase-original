@@ -1,5 +1,8 @@
 ### CC Antya 9.3
 
+> জয়াদ্বৈতাচার্য জয় জয় দয়াময় ।
+> জয় গৌরভক্তগণ সব রসময় ॥৩॥
+
 jayādvaitācārya jaya jaya dayāmaya
 jaya gaura-bhakta-gaṇa saba rasamaya
 

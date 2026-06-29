@@ -1,5 +1,8 @@
 ### CC Antya 3.109
 
+> রাত্রিকালে সেই বেশ্যা সুবেশ ধরিয়া ।
+> হরিদাসের বাসায় গেল উল্লসিত হঞা ॥১০৯॥
+
 rātri-kāle sei veśyā suveśa dhariyā
 
 haridāsera vāsāya gela ullasita hañā

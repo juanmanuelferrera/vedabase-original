@@ -1,5 +1,7 @@
 ### SB 5.26.33
 
+> ये त्विह वै भूतान्युद्वेजयन्ति नरा उल्बणस्वभावा यथा दन्दशूकास्तेऽपि प्रेत्य नरकेदन्दशूकाख्ये निपतन्ति यत्र नृप दन्दशूकाः पञ्चमुखाः सप्तमुखा उपसृत्य ग्रसन्ति यथा बिलेशयान ॥३२॥
+
 > ye tv iha vai bhūtāny udvejayanti narā ulbaṇa-svabhāvā yathā dandaśūkās te 'pi pretya narake dandaśūkākhye nipatanti yatra nṛpa dandaśūkāḥ pañca-mukhāḥ sapta-mukhā upasṛtya grasanti yathā bileśayān.
 
 *ye*—personas que; *tu*—pero; *iha*—en esta vida; *vai*—en verdad; *bhūtāni*—a entidades vivientes; *udvejayanti*—causan sufrimientos innecesarios; *narāḥ*—hombres; *ulbaṇa-svabhāvāḥ*—iracundos por naturaleza; *yathā*—tal como; *dandaśūkāḥ*—serpientes; *te*—ellos; *api*—también; *pretya*—después de morir; *narake*—al infierno; *dandaśūka-ākhye*—llamado Dandaśūka; *nipatanti*—caen; *yatra*—donde; *nṛpa*—¡oh, rey!; *dandaśūkāḥ*—serpientes; *pañca-mukhāḥ*—con cinco cabezas; *sapta-mukhāḥ*—de siete cabezas; *upasṛtya*—alcanzando; *grasanti*—comen; *yathā*—tal como; *bileśayān*—ratones.

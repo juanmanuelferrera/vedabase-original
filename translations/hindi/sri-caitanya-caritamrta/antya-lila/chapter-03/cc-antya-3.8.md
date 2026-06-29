@@ -1,5 +1,8 @@
 ### CC Antya 3.8
 
+> তাহা দেখি’ দামোদর দুঃখ পায় মনে ।
+> বলিতে না পারে, বালক নিষেধ না মানে ॥৮॥
+
 > tāhā dekhi' dāmodara duḥkha pāya mane
 > balite nā pāre, bālaka niṣedha nā māne
 

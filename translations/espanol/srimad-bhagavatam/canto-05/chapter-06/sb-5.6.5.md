@@ -1,5 +1,8 @@
 ### SB 5.6.5
 
+> कामो मन्युर्मदो लोभः शोकमोहभयादयः
+> कर्मबन्धश्च यन्मूलः स्वीकुर्यात्को नु तद्बुधः ॥५॥
+
 > kāmo manyur mado lobhaḥ
 > śoka-moha-bhayādayaḥ
 > karma-bandhaś ca yan-mūlaḥ

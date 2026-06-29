@@ -1,5 +1,8 @@
 ### SB 3.6.28
 
+> आत्यन्तिकेन सत्त्वेन दिवं देवाः प्रपेदिरे ।
+> धरां रजःस्वभावेन पणयो ये च ताननु ॥२८॥
+
 > ātyantikena sattvena
 > divaṁ devāḥ prapedire
 > dharāṁ rajaḥ-svabhāvena

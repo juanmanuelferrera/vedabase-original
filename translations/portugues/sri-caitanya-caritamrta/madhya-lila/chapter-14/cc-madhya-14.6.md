@@ -1,5 +1,8 @@
 ### CC Madhya 14.6
 
+> সব-ভক্তের আজ্ঞা নিল যোড়-হাত হঞা ।
+> প্রভু-পদ ধরি’ পড়ে সাহস করিয়া ॥৬॥
+
 saba-bhaktera ājñā nila yoḍa-hāta hañā
 prabhu-pada dhari' paḍe sāhasa kariyā
 

@@ -1,5 +1,8 @@
 ### Bg 3.7
 
+> यस्त्विन्द्रियाणि मनसा नियम्यारभतेऽर्जुन ।
+> कर्मेन्द्रियैः कर्मयोगमसक्तः स विशिष्यते ॥७॥
+
 > yas tv indriyāṇi manasā
 > niyamyārabhate'rjuna
 > karmendriyaiḥ karma-yogam

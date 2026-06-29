@@ -1,5 +1,8 @@
 ### CC Madhya 20.20
 
+> “রাত্র্যে পর্বত পার করিব নিজ-লোক দিয়া  ।
+> ভোজন করহ তুমি রন্ধন করিয়া ।।” ২০ ॥২০॥
+
 > "rātrye parvata pāra kariba nija-loka diyā
 > bhojana karaha tumi randhana kariyā"
 

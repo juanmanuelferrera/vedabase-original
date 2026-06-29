@@ -1,5 +1,10 @@
 ### SB 2.7.22
 
+> क्षत्रं क्षयाय विधिनोपभृतं महात्मा
+> ब्रह्मध्रुगुज्झितपथं नरकार्तिलिप्सु ।
+> उद्धन्त्यसाववनिकण्टकमुग्रवीर्यस्
+> त्रिःसप्तकृत्व उरुधारपरश्वधेन ॥२२॥
+
 > kṣatraṁ kṣayāya vidhinopabhṛtaṁ mahātmā
 > brahma-dhrug ujjhita-pathaṁ narakārti-lipsu
 > uddhanty asāv avanikaṇṭakam ugra-vīryas

@@ -1,5 +1,10 @@
 ### CC Madhya 22.14-15
 
+> কাম-ক্রোধের দাস হঞা তার লাথি খায় ।
+> ভ্রমিতে ভ্রমিতে যদি সাধু-বৈদ্য পায় ॥১৪॥
+> তাঁর উপদেশ-মন্ত্রে পিশাচী পলায় ।
+> কৃষ্ণভক্তি পায়, তবে কৃষ্ণ-নিকট যায় ॥১৫॥
+
 kāma-krodhera dāsa hañā tāra lāthi khāya
 bhramite bhramite yadi sādhu-vaidya pāya
 tāṅra upadeśa-mantre piśācī palāya

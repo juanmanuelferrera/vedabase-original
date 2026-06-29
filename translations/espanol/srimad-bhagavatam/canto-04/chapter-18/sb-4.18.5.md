@@ -1,5 +1,8 @@
 ### SB 4.18.5
 
+> ताननादृत्य योऽविद्वानर्थानारभते स्वयम् ।
+> तस्य व्यभिचरन्त्यर्था आरब्धाश्च पुनः पुनः ॥५॥
+
 > tān anādṛtya yo 'vidvān
 > arthān ārabhate svayam
 > tasya vyabhicaranty arthā

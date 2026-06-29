@@ -1,5 +1,8 @@
 ### SB 9.20.12
 
+> व्यक्तं राजन्यतनयां वेद्म्यहं त्वां सुमध्यमे
+> न हि चेतः पौरवाणामधर्मे रमते क्वचित ॥१२॥
+
 > vyaktaṁ rājanya-tanayāṁ
 > vedmy ahaṁ tvāṁ sumadhyame
 > na hi cetaḥ pauravāṇām

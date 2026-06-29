@@ -1,5 +1,8 @@
 ### SB 1.8.17
 
+> ब्रह्मतेजोविनिर्मुक्तैरात्मजैः सह कृष्णया ।
+> प्रयाणाभिमुखं कृष्णमिदमाह पृथा सती ॥१७॥
+
 *brahma*-tejo-vinirmuktair
 ātmajaiḥ saha kṛṣṇayā
 prayāṇābhimukhaṁ kṛṣṇam

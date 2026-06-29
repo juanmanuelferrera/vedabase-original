@@ -1,5 +1,8 @@
 ### CC Madhya 2.5
 
+> নিরন্তর হয় প্রভুর বিরহ-উন্মাদ ।
+> ভ্রমময় চেষ্টা সদা, প্রলাপময় বাদ ॥৫॥
+
 nirantara haya prabhura viraha-unmāda
 bhrama-maya ceṣṭā sadā, pralāpa-maya vāda
 

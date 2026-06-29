@@ -1,5 +1,8 @@
 ### SB 2.9.45
 
+> नारदः प्राह मुनये सरस्वत्यास्तटे नृप ।
+> ध्यायते ब्रह्म परमं व्यासायामिततेजसे ॥४५॥
+
 nāradaḥ prāha munaye
 sarasvatyās taṭe nṛpa
 dhyāyate brahma paramaṁ

@@ -1,5 +1,8 @@
 ### SB 8.9.21
 
+> दैत्यान्गृहीतकलसो वञ्चयन्नुपसञ्चरैः
+> दूरस्थान्पाययामासजरामृत्युहरां सुधाम ॥२१॥
+
 > daityān gṛhīta-kalaso
 > vañcayann upasañcaraiḥ
 > dūra-sthān pāyayām āsa

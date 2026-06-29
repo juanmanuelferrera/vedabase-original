@@ -1,5 +1,8 @@
 ### CC Madhya 16.119
 
+> ‘চিত্রোৎপলা-নদী’ আসি’ ঘাটে কৈল স্নান ।
+> মহিষীসকল দেখি’ করয়ে প্রণাম ॥১১৯॥
+
 'citrotpalā-nadī' āsi' ghāṭe kaila snāna
 
 mahiṣī-sakala dekhi' karaye praṇāma

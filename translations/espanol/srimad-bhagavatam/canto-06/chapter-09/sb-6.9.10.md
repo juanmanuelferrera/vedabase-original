@@ -1,5 +1,8 @@
 ### SB 6.9.10
 
+> द्रव्यभूयोवरेणापस्तुरीयं जगृहुर्मलम
+> तासु बुद्बुदफेनाभ्यां दृष्टं तद्धरति क्षिपन ॥१०॥
+
 > dravya-bhūyo-vareṇāpas
 > turīyaṁ jagṛhur malam
 > tāsu budbuda-phenābhyāṁ

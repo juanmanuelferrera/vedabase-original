@@ -1,5 +1,8 @@
 ### SB 2.2.26
 
+> अथो अनन्तस्य मुखानलेन दन्दह्यमानं स निरीक्ष्य विश्वम् ।
+> निर्याति सिद्धेश्वरयुष्टधिष्ण्यं यद्द्वैपरार्ध्यं तदु पारमेष्ठ्यम् ॥२६॥
+
 > atho anantasya mukhānalena
 > dandahyamānaṁ sa nirīkṣya viśvam
 > niryāti siddheśvara-yuṣṭa-dhiṣṇyaṁ

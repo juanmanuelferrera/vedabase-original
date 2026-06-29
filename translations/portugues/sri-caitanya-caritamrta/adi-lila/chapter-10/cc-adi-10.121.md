@@ -1,5 +1,8 @@
 ### CC Adi 10.121
 
+> গৌড়দেশ-ভক্তের কৈল সংক্ষেপ কথন ।
+> অনন্ত চৈতন্যভক্ত না যায় গণন ॥১২১॥
+
 gauḍa-deśa-bhaktera kaila saṅkṣepa kathana
 
 ananta caitanya-bhakta nā yāya gaṇana

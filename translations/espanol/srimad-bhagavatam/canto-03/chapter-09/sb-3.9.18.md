@@ -1,5 +1,10 @@
 ### SB 3.9.18
 
+> यस्माद्बिभेम्यहमपि द्विपरार्धधिष्ण्यम्
+> अध्यासितः सकललोकनमस्कृतं यत् ।
+> तेपे तपो बहुसवोऽवरुरुत्समानस्
+> तस्मै नमो भगवतेऽधिमखाय तुभ्यम् ॥१८॥
+
 > yasmād bibhemy aham api dviparārdha-dhiṣṇyam
 > adhyāsitaḥ sakala-loka-namaskṛtaṁ yat
 > tepe tapo bahu-savo 'varurutsamānas

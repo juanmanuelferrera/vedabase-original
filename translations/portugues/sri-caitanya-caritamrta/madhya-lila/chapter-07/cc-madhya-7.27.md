@@ -1,5 +1,8 @@
 ### CC Madhya 7.27
 
+> লোকাপেক্ষা নাহি ইঁহার কৃষ্ণকৃপা হৈতে ৷
+> আমি লোকাপেক্ষা কভু না পারি ছাড়িতে ৷৷ ২৭ ৷৷ ॥২৭॥
+
 lokāpekṣā nāhi iṅhāra kṛṣṇa-kṛpā haite
 
 āmi lokāpekṣā kabhu nā pāri chāḍite

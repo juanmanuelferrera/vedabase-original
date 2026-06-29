@@ -1,5 +1,8 @@
 ### CC Madhya 1.77
 
+> এই শ্লোকের সংক্ষেপার্থ শুন, ভক্তগণ ।
+> জগন্নাথ দেখি’ যৈছে প্রভুর ভাবন ॥৭৭॥
+
 > ei ślokera saṅkṣepārtha śuna, bhakta-gaṇa
 > jagannātha dekhi' yaiche prabhura bhāvana
 

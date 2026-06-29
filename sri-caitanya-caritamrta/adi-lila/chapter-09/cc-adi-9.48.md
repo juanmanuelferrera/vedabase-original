@@ -1,5 +1,8 @@
 ### CC Adi 9.48
 
+> যেই যাহাঁ তাহাঁ দান করে প্রেমফল ।
+> ফলাস্বাদে মত্ত লোক হইল সকল ॥৪৮॥
+
 > yei yāhāṅ tāhāṅ dāna kare prema-phala
 > phalāsvāde matta loka ha-ila sakala
 

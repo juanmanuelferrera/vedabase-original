@@ -1,5 +1,8 @@
 ### SB 9.9.28
 
+> देहोऽयं मानुषो राजन्पुरुषस्याखिलार्थदः
+> तस्मादस्य वधो वीर सर्वार्थवध उच्यते ॥२८॥
+
 > deho 'yaṁ mānuṣo rājan
 > puruṣasyākhilārthadaḥ
 > tasmād asya vadho vīra

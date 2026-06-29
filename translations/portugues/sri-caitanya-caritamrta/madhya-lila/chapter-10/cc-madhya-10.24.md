@@ -1,5 +1,8 @@
 ### CC Madhya 10.24
 
+> এইমত পুরুষোত্তমবাসী যত জন ৷
+> প্রভুকে মিলিতে সবার উৎকণ্ঠিত মন ৷৷ ২৪ ৷৷ ॥২৪॥
+
 ei-mata puruṣottama-vāsī yata jana
 
 prabhuke milite sabāra utkaṇṭhita mana

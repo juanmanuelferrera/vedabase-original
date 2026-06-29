@@ -1,5 +1,8 @@
 ### CC Adi 8.6
 
+> এ-সব না মানে যেই পণ্ডিত সকল ।
+> তা-সবার বিদ্যাপাঠ ভেক-কোলাহল ॥৬॥
+
 e-saba nā māne yei paṇḍita sakala
 tā-sabāra vidyā-pāṭha bheka-kolāhala
 

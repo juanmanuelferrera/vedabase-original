@@ -1,5 +1,8 @@
 ### SB 2.10.36
 
+> स वाच्यवाचकतया भगवान्ब्रह्मरूपधृक् ।
+> नामरूपक्रिया धत्ते सकर्माकर्मकः परः ॥३६॥
+
 > sa vācya-vācakatayā
 > bhagavān brahma-rūpa-dhṛk
 > nāma-rūpa-kriyā dhatte

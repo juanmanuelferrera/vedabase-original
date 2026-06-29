@@ -1,5 +1,8 @@
 ### CC Madhya 7.86
 
+> তবে গোপীনাথ দুইপ্রভুরে ভিক্ষা করাইল ।
+> প্রভুর শেষ প্রসাদান্ন সবে বাঁটি’ খাইল ॥৮৬॥
+
 > tabe gopīnātha dui-prabhure bhikṣā karāila
 > prabhura śeṣa prasādānna sabe bāṅṭi' khāila
 

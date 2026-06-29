@@ -1,5 +1,8 @@
 ### CC Madhya 3.53
 
+> সঘৃত-পায়স নব-মৃৎকুণ্ডিকা ভরিঞা ।
+> তিন পাত্রে ঘনাবর্ত-দুগ্ধ রাখেত ধরিঞা ॥৫৩॥
+
 > saghṛta-pāyasa nava-mṛt-kuṇḍikā bhariñā
 > tina pātre ghanāvarta-dugdha rākheta dhariñā
 

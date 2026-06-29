@@ -1,5 +1,8 @@
 ### CC Madhya 9.249
 
+> কৃষ্ণমূর্তি দেখি’ প্রভু মহাসুখ পাইল ।
+> প্রেমাবেশে বহুক্ষণ নৃত্য-গীত কৈল ॥২৪৯॥
+
 > kṛṣṇa-mūrti dekhi' prabhu mahā-sukha pāila
 > premāveśe bahu-kṣaṇa nṛtya-gīta kaila
 

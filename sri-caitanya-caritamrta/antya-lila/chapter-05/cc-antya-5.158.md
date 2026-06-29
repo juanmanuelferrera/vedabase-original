@@ -1,5 +1,8 @@
 ### CC Antya 5.158
 
+> সেই কবি সর্ব ত্যজি’ রহিলা নীলাচলে ।
+> গৌরভক্তগণের কৃপা কে কহিতে পারে ? ॥ ১৫৮ ॥
+
 > sei kavi sarva tyaji' rahilā nīlācale
 > gaura-bhakta-gaṇera kṛpā ke kahite pāre?
 

@@ -1,5 +1,8 @@
 ### CC Madhya 10.123
 
+> স্বরূপ কহে, — প্রভু, মোর ক্ষম’ অপরাধ ৷
+> তোমা ছাড়ি’ অন্যত্র গেনু, করিনু প্রমাদ ৷৷ ১২৩ ৷৷ ॥১২৩॥
+
 > svarūpa kahe,-prabhu, mora kṣama' aparādha
 > tomā chāḍi' anyatra genu, karinu pramāda
 

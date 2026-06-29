@@ -1,5 +1,8 @@
 ### CC Adi 1.58
 
+> জীবে সাক্ষাৎ নাহি তাতে গুরু চৈত্ত্যরূপে ।
+> শিক্ষাগুরু হয় কৃষ্ণ মহান্তস্বরূপে ॥৫৮॥
+
 > jīve sākṣāt nāhi tāte guru caittya-rūpe
 > śikṣā-guru haya kṛṣṇa-mahānta-svarūpe
 

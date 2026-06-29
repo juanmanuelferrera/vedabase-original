@@ -1,5 +1,7 @@
 ### SB 5.26.13
 
+> यस्त्विह वा उग्रः पशून्पक्षिणो वा प्राणत उपरन्धयति तमपकरुणं पुरुषादैरपिविगर्हितममुत्र यमानुचराः कुम्भीपाके तप्ततैले उपरन्धयन्ति ॥१२॥
+
 > yas tv iha vā ugraḥ paśūn pakṣiṇo vā prāṇata uparandhayati tam apakaruṇaṁ puruṣādair api vigarhitam amutra yamānucarāḥ kumbhīpāke tapta-taile uparandhayanti.
 
 *yaḥ*—la persona que; *tu*—pero; *iha*—en esta vida; *vā*—o; *ugraḥ*—muy cruel; *paśūn*—animales; *pakṣiṇaḥ*—aves; *vā*—o; *prāṇataḥ*—mientras están vivos; *uparandhayati*—cocina; *tam*—a él; *apakaruṇam*—de corazón muy cruel; *puruṣa-ādaiḥ*—por los que comen carne humana; *api*—incluso; *vigarhitam*—condenada; *amutra*—en la siguiente vida; *yama-anucarāḥ*—los sirvientes de Yamarāja; *kumbhīpāke*—en el infierno de Kumbhīpāka; *tapta-taile*—en aceite hirviendo; *uparandhayanti*—cocinan.

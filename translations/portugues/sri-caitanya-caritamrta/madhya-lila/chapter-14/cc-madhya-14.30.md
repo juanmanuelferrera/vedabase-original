@@ -1,5 +1,8 @@
 ### CC Madhya 14.30
 
+> হরিবল্লভ, সেঁওতি, কর্পূর, মালতী ।
+> ডালিমা মরিচ-লাড়ু, নবাত, অমৃতি ॥৩০॥
+
 hari-vallabha, seṅoti, karpūra, mālatī
 
 ḍālimā marica-lāḍu, navāta, amṛti

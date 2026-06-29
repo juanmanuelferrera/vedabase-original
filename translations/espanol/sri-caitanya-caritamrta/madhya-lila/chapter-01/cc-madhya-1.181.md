@@ -1,5 +1,8 @@
 ### CC Madhya 1.181
 
+> এত কহি’ রাজা গেলা নিজ অভ্যন্তরে ।
+> তবে দবির খাস আইলা আপনার ঘরে ॥১৮১॥
+
 > eta kahi' rājā gelā nija abhyantare
 > tabe dabira khāsa āilā āpanāra ghare
 

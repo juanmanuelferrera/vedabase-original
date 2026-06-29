@@ -1,5 +1,8 @@
 ### CC Antya 16.70
 
+> ইহারে নারিলুঙ্ কৃষ্ণনাম কহাইতে!" ।
+> শুনিয়া স্বরূপগোসাঞি লাগিলা কহিতে ॥৭০॥
+
 > ihāre nāriluṅ kṛṣṇa-nāma kahāite!"
 > śuniyā svarūpa-gosāñi lāgilā kahite
 

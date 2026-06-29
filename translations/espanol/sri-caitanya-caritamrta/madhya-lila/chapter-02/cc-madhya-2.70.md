@@ -1,5 +1,10 @@
 ### CC Madhya 2.70
 
+> তুমি নাথ — ব্রজপ্রাণ, ব্রজের কর পরিত্রাণ,
+> বহু কার্যে নাহি অবকাশ ।
+> তুমি আমার রমণ, সুখ দিতে আগমন,
+> এ তোমার বৈদগ্ধ্য-বিলাস ॥৭০॥
+
 > tumi nātha--vraja-prāṇa, vrajera kara paritrāṇa,
 > bahu kārye nāhi avakāśa
 > tumi āmāra ramaṇa, sukha dite āgamana,

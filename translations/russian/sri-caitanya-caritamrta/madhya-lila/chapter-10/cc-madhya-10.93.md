@@ -1,5 +1,8 @@
 ### CC Madhya 10.93
 
+> প্রভুর আগমন তেঁহ তাহাঁঞি শুনিল ।
+> শীঘ্র নীলাচল যাইতে তাঁর ইচ্ছা হৈল ॥৯৩॥
+
 > prabhura āgamana teṅha tāhāṅi śunila
 > śīghra nīlācala yāite tāṅra icchā haila
 

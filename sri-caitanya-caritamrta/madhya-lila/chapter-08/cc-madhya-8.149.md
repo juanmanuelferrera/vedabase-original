@@ -1,5 +1,10 @@
 ### CC Madhya 8.149
 
+> অপরিকলিতপূর্বঃ কশ্চমৎকারকারী
+> স্ফুরতি মম গরীয়ানেষ মাধুর্যপূরঃ ।
+> অয়মহমপি হন্ত প্রেক্ষ্য যং লুব্ধচেতাঃ
+> সরভসমুপভোক্তুং কাময়ে রাধিকেব ॥১৪৯॥
+
 > aparikalita-pūrvaḥ kaś camatkāra-kārī
 > sphurati mama garīyān eṣa mādhurya-pūraḥ
 > ayam aham api hanta prekṣya yaṁ lubdha-cetāḥ

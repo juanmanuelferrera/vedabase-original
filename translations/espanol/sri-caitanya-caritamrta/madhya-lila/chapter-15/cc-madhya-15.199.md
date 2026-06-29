@@ -1,5 +1,8 @@
 ### CC Madhya 15.199
 
+> প্রভুর ইঙ্গিত পাঞা আনন্দিত মন ৷
+> সেই দিন মহাপ্রভুর কৈল নিমন্ত্রণ ॥১৯৯॥
+
 > prabhura iṅgita pāñā ānandita mana
 > sei dina mahāprabhura kaila nimantraṇa
 

@@ -1,5 +1,8 @@
 ### CC Adi 8.37
 
+> ভাগবতে যত ভক্তিসিদ্ধান্তের সার ।
+> লিখিয়াছেন ইঁহা জানি’ করিয়া উদ্ধার ॥৩৭॥
+
 > bhāgavate yata bhakti-siddhāntera sāra
 > likhiyāchena iṅhā jāni' kariyā uddhāra
 

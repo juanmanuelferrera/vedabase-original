@@ -1,5 +1,8 @@
 ### SB 8.19.25
 
+> पुंसोऽयं संसृतेर्हेतुरसन्तोषोऽर्थकामयोः
+> यदृच्छयोपपन्नेन सन्तोषो मुक्तये स्मृतः ॥२५॥
+
 > puṁso 'yaṁ saṁsṛter hetur
 > asantoṣo 'rtha-kāmayoḥ
 > yadṛcchayopapannena

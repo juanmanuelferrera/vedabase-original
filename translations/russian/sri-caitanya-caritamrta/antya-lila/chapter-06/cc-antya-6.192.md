@@ -1,5 +1,8 @@
 ### CC Antya 6.192
 
+> স্বরূপাদি সব ভক্তের চরণ বন্দিলা ।
+> প্রভু-কৃপা দেখি’ সবে আলিঙ্গন কৈলা ॥১৯২॥
+
 > svarūpādi saba bhaktera caraṇa vandilā
 > prabhu-kṛpā dekhi' sabe āliṅgana kailā
 

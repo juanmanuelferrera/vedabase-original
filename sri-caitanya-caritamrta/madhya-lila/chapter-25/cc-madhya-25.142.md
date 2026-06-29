@@ -1,5 +1,8 @@
 ### CC Madhya 25.142
 
+> অতএব ভাগবত — সূত্রের ‘অর্থ’-রূপ ।
+> নিজ-কৃত সূত্রের নিজ-‘ভাষ্য’-স্বরূপ ॥১৪২॥
+
 > ataeva bhāgavata-sūtrera 'artha'-rūpa
 > nija-kṛta sūtrera nija-'bhāṣya'-svarūpa
 

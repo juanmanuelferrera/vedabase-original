@@ -1,5 +1,8 @@
 ### CC Madhya 16.160
 
+> দিন কত রহ, সন্ধি করি’ তাঁর সনে ।
+> তবে সুখে নৌকাতে করাইব গমনে ॥১৬০॥
+
 dina kata raha--sandhi kari' tāṅra sane
 
 tabe sukhe naukāte karāiba gamane

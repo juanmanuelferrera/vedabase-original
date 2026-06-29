@@ -1,5 +1,8 @@
 ### CC Madhya 11.103
 
+> তাঁর কৃপা নহে যারে, পণ্ডিত নহে কেনে ।
+> দেখিলে শুনিলেহ তাঁরে ‘ঈশ্বর’ না মানে ॥১০৩॥
+
 > tāṅra kṛpā nahe yāre, paṇḍita nahe kene
 > dekhile śunileha tāṅre 'īśvara' nā māne
 

@@ -1,5 +1,8 @@
 ### CC Antya 7.164
 
+> পণ্ডিতে প্রভুর প্রসাদ কহন না যায় ।
+> ‘গদাইর গৌরাঙ্গ’ বলি’ যাঁরে লোকে গায় ॥১৬৪॥
+
 > paṇḍite prabhura prasāda kahana nā yāya
 > 'gadāira gaurāṅga' bali' yāṅre loke gāya
 

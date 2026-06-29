@@ -1,5 +1,8 @@
 ### CC Adi 16.85
 
+> প্রতিভা, কবিত্ব তোমার দেবতা-প্রসাদে ।
+> অবিচার কাব্যে অবশ্য পড়ে দোষ-বাধে ॥৮৫॥
+
 > pratibhā, kavitva tomāra devatā-prasāde
 > avicāra kāvye avaśya paḍe doṣa-bādhe
 

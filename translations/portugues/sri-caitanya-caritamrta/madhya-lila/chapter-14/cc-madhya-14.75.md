@@ -1,5 +1,8 @@
 ### CC Madhya 14.75
 
+> নানোদ্যানে ভক্তসঙ্গে বৃন্দাবন-লীলা ।
+> ‘ইন্দ্রদ্যুম্ন’-সরোবরে করে জলখেলা ॥৭৫॥
+
 nānodyāne bhakta-saṅge vṛndāvana-līlā
 
 'indradyumna'-sarovare kare jala-khelā

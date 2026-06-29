@@ -1,5 +1,8 @@
 ### CC Madhya 18.26
 
+> ‘অন্নকূট’-নামে গ্রামে গোপালের স্থিতি ।
+> রাজপুত-লোকের সেই গ্রামে বসতি ॥২৬॥
+
 > 'annakūṭa'-nāme grāme gopālera sthiti
 > rāja-puta-lokera sei grāme vasati
 

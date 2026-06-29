@@ -1,5 +1,8 @@
 ### SB 3.28.9
 
+> प्राणस्य शोधयेन्मार्गं पूरकुम्भकरेचकैः ।
+> प्रतिकूलेन वा चित्तं यथा स्थिरमचञ्चलम् ॥९॥
+
 > prāṇasya śodhayen mārgaṁ
 > pūra-kumbhaka-recakaiḥ
 > pratikūlena vā cittaṁ

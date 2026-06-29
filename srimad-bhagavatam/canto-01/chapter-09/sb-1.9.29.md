@@ -1,5 +1,8 @@
 ### SB 1.9.29
 
+> धर्मं प्रवदतस्तस्य स कालः प्रत्युपस्थितः ।
+> यो योगिनश्छन्दमृत्योर्वाञ्छितस्तूत्तरायणः ॥२९॥
+
 > dharmaṁ pravadatas tasya
 > sa kālaḥ pratyupasthitaḥ
 > yo yoginaś chanda-mṛtyor

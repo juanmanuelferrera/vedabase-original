@@ -1,5 +1,8 @@
 ### CC Adi 11.13
 
+> শ্রীরামদাস আর, গদাধর দাস ।
+> চৈতন্য-গোসাঞির ভক্ত রহে তাঁর পাশ ॥১৩॥
+
 > śrī-rāmadāsa āra, gadādhara dāsa
 > caitanya-gosāñira bhakta rahe tāṅra pāśa
 

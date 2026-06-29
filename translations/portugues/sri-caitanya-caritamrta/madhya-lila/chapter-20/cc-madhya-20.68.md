@@ -1,5 +1,8 @@
 ### CC Madhya 20.68
 
+> তপনমিশ্র তবে তাঁরে কৈলা নিমন্ত্রণ ।
+> প্রভু কহে, — ‘ক্ষৌর করাহ, যাহ, সনাতন ।।’ ॥ ৬৮ ॥
+
 tapana-miśra tabe tāṅre kailā nimantraṇa
 
 prabhu kahe,--'kṣaura karāha, yāha, sanātana'

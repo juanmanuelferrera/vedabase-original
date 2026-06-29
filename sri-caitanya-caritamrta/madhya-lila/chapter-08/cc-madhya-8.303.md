@@ -1,5 +1,8 @@
 ### CC Madhya 8.303
 
+> সংক্ষেপে কহিলুঁ রামানন্দের মিলন ।
+> বিস্তারি’ বর্ণিতে নারে সহস্র-বদন ॥৩০৩॥
+
 > saṅkṣepe kahiluṅ rāmānandera milana
 > vistāri' varṇite nāre sahasra-vadana
 

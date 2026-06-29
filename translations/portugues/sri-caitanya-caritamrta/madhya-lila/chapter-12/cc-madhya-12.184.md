@@ -1,5 +1,8 @@
 ### CC Madhya 12.184
 
+> কাহাঁ বহির্মুখ তার্কিক-শিষ্যগণ-সঙ্গে ।
+> কাহাঁ এই সঙ্গসুধা-সমুদ্র-তরঙ্গে ॥১৮৪॥
+
 kāhāṅ bahirmukha tārkika-śiṣyagaṇa-saṅge
 
 kāhāṅ ei saṅga-sudhā-samudra-taraṅge

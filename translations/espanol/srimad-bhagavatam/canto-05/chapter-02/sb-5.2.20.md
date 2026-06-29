@@ -1,5 +1,7 @@
 ### SB 5.2.20
 
+> सा सूत्वाथ सुतान्नवानुवत्सरं गृह एवापहाय पूर्वचित्तिर्भूय एवाजं देवमुपतस्थे ॥२०॥
+
 > sā sūtvātha sutān navānuvatsaraṁ gṛha evāpahāya pūrvacittir bhūya evājaṁ devam upatasthe.
 
 *sā*—ella; *sūtvā*—después de dar a luz; *atha*—a continuación; *sutān*—hijos; *nava*—nueve; *anuvatsaram*—año tras año; *gṛhe*—en el hogar; *eva*—ciertamente; *apahāya*—abandonando; *pūrvacittiḥ*—Pūrvacitti; *bhūyaḥ*—de nuevo; *eva*—ciertamente; *ajam*—al Señor Brahmā; *devam*—al semidiós; *upatasthe*—se dirigió.

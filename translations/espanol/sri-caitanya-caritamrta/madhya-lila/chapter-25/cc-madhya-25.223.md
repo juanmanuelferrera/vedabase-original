@@ -1,5 +1,8 @@
 ### CC Madhya 25.223
 
+> সুখে চলি’ আইসে প্রভু বলভদ্র-সঙ্গে ।
+> পূর্ববত্ মৃগাদি-সঙ্গে কৈলা নানারঙ্গে ॥২২৩॥
+
 > sukhe cali' āise prabhu balabhadra-saṅge
 > pūrvavat mṛgādi-saṅge kailā nānā-raṅge
 

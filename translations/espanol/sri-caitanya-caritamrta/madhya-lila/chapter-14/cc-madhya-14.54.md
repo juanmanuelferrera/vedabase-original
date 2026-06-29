@@ -1,5 +1,8 @@
 ### CC Madhya 14.54
 
+> তবে মহাপ্রভু সব হস্তী ঘুচাইল  ।
+> নিজগণে রথ-কাছি টানিবারে দিল ॥৫৪॥
+
 > tabe mahāprabhu saba hastī ghucāila
 > nija-gaṇe ratha-kāchi ṭānibāre dila
 

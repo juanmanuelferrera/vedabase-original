@@ -1,5 +1,10 @@
 ### CC Madhya 2.53
 
+> যে কালে দেখে জগন্নাথ- শ্রীরাম-সুভদ্রা-সাথ,
+> তবে জানে — আইলাম কুরুক্ষেত্র ।
+> সফল হৈল জীবন, দেখিলুঁ পদ্মলোচন,
+> জুড়াইল তনু-মন-নেত্র ॥৫৩॥
+
 > ye kāle dekhe jagannātha-śrīrāma-subhadrā-sātha,
 > tabe jāne—āilāma kurukṣetra
 > saphala haila jīvana, dekhiluṅ padma-locana,

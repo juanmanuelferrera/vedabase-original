@@ -1,5 +1,7 @@
 ### SB 5.4.3
 
+> यस्य हीन्द्रः स्पर्धमानो भगवान्वर्षे न ववर्ष तदवधार्य भगवानृषभदेवोयोगेश्वरः प्रहस्यात्मयोगमायया स्ववर्षमजनाभं नामाभ्यवर्षत ॥३॥
+
 > yasya hīndraḥ spardhamāno bhagavān varṣe na vavarṣa tad avadhārya bhagavān ṛṣabhadevo yogeśvaraḥ prahasyātma-yogamāyayā sva-varṣam ajanābhaṁ nāmābhyavarṣat.
 
 *yasya*—of whom; *hi*—indeed; *indraḥ*—King Indra of heaven; *spardhamānaḥ*—being envious; *bhagavān*—very opulent; *varṣe*—on Bhārata-varṣa; *na vavarṣa*—did not pour water; *tat*—that; *avadhārya*—knowing; *bhagavān*—the Supreme Personality of Godhead; *ṛṣabhadevaḥ*—Ṛṣabhadeva; *yoga-īśvaraḥ*—the master of all mystic power; *prahasya*—smiling; *ātma-yoga-māyayā*—by His own spiritual potency; *sva-varṣam*—on His place; *ajanābham*—Ajanābha; *nāma*—named; *abhyavarṣat*—He poured water.

@@ -1,5 +1,8 @@
 ### CC Madhya 16.252
 
+> প্রভু আসি’ জগন্নাথ দরশন কৈল ।
+> ‘মহাপ্রভু আইলা’ — গ্রামে কোলাহল হৈল ॥২৫২॥
+
 prabhu āsi' jagannātha daraśana kaila
 
 'mahāprabhu āilā'--grāme kolāhala haila

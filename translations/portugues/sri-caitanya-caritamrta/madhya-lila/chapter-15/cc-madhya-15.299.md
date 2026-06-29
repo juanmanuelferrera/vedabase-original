@@ -1,5 +1,8 @@
 ### CC Madhya 15.299
 
+> সার্বভৌম-ঘরে এই ভোজন-চরিত ৷
+> সার্বভৌম-প্রেম যাঁহা হইলা বিদিত ॥২৯৯॥
+
 sārvabhauma-ghare ei bhojana-carita
 
 sārvabhauma-prema yāṅhā ha-ilā vidita

@@ -1,5 +1,8 @@
 ### CC Madhya 14.88
 
+> হাসি’ মহাপ্রভু তবে অদ্বৈতে আনিল ।
+> জলের উপরে তাঁরে শেষ-শয্যা কৈল ॥৮৮॥
+
 > hāsi' mahāprabhu tabe advaite ānila
 > jalera upare tāṅre śeṣa-śayyā kaila
 

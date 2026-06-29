@@ -1,5 +1,8 @@
 ### CC Antya 2.157
 
+> আকার না দেখি, মাত্র শুনি তার গান ।’
+> স্বরূপ কহেন, — “এই মিথ্যা অনুমান ॥১৫৭॥
+
 > ākāra nā dekhi, mātra śuni tāra gāna'
 > svarūpa kahena,--"ei mithyā anumāna
 

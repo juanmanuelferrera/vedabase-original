@@ -1,5 +1,8 @@
 ### CC Adi 7.42
 
+> মূর্খ সন্ন্যাসী নিজ-ধর্ম নাহি জানে ।
+> ভাবুক হইয়া ফেরে ভাবুকের সনে ॥৪২॥
+
 mūrkha sannyāsī nija-dharma nāhi jane
 bhāvuka ha-iyā phere bhāvukera sane
 

@@ -1,5 +1,8 @@
 ### SB 5.12.7
 
+> शोच्यानिमांस्त्वमधिकष्टदीनान्विष्ट्या निगृह्णन्निरनुग्रहोऽसि
+> जनस्य गोप्तास्मि विकत्थमानो न शोभसे वृद्धसभासु धृष्टः ॥७॥
+
 > śocyān imāṁs tvam adhikaṣṭa-dīnān
 > viṣṭyā nigṛhṇan niranugraho 'si
 > janasya goptāsmi vikatthamāno

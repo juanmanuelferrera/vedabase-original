@@ -1,5 +1,8 @@
 ### CC Adi 4.265
 
+> রাগমার্গে ভক্ত ভক্তি করে যে প্রকারে ।
+> তাহা শিখাইল লীলা-আচরণ-দ্বারে ॥২৬৫॥
+
 rāga-mārge bhakta bhakti kare ye prakāre
 
 tāhā śikhāiba līlā-ācaraṇa-dvāre

@@ -1,5 +1,8 @@
 ### CC Adi 7.146
 
+> সম্বন্ধ, অভিধেয়, প্রয়োজন নাম ।
+> এই তিন অর্থ সর্বসূত্রে পর্যবসান ॥১৪৬॥
+
 sambandha, abhidheya, prayojana nāma
 
 ei tina artha sarva-sūtre paryavasāna

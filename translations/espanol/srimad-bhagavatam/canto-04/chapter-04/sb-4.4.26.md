@@ -1,5 +1,8 @@
 ### SB 4.4.26
 
+> एवं स्वदेहं महतां महीयसा मुहुः समारोपितमङ्कमादरात् ।
+> जिहासती दक्षरुषा मनस्विनी दधार गात्रेष्वनिलाग्निधारणाम् ॥२६॥
+
 > evaṁ sva-dehaṁ mahatāṁ mahīyasā
 > muhuḥ samāropitam aṅkam ādarāt
 > jihāsatī dakṣa-ruṣā manasvinī

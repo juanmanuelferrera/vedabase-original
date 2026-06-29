@@ -1,5 +1,8 @@
 ### CC Antya 4.225
 
+> ‘বিদগ্ধমাধব’, ‘ললিতমাধব’, — নাটকযুগল ।
+> কৃষ্ণলীলা-রস তাহাঁ পাইয়ে সকল ॥২২৫॥
+
 > 'vidagdha-mādhava', 'lalita-mādhava,—nāṭaka-yuga la
 > kṛṣṇa-līlā-rasa tāhāṅ pāiye sakala
 

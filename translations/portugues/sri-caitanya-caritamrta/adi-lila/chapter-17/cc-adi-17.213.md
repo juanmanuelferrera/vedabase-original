@@ -1,5 +1,8 @@
 ### CC Adi 17.213
 
+> গ্রামের ঠাকুর তুমি, সব তোমার জন ।
+> নিমাই বোলাইয়া তারে করহ বর্জন ॥২১৩॥
+
 grāmera ṭhākura tumi, saba tomāra jana
 
 nimāi bolāiyā tāre karaha varjana

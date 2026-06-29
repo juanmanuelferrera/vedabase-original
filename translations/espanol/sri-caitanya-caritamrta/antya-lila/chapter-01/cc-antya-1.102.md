@@ -1,5 +1,8 @@
 ### CC Antya 1.102
 
+> তবে মহাপ্রভু দুঁহে করি’ আলিঙ্গন ।
+> মধ্যাহ্ন করিতে সমুদ্রে করিলা গমন ॥১০২॥
+
 > tabe mahāprabhu duṅhe kari' āliṅgana
 > madhyāhna karite samudre karilā gamana
 

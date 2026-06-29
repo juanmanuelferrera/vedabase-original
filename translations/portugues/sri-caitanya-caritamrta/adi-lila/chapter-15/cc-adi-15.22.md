@@ -1,5 +1,8 @@
 ### CC Adi 15.22
 
+> এই মত নানা লীলা করে গৌরহরি ।
+> কি কারণে লীলা, — ইহা বুঝিতে না পারি ॥২২॥
+
 ei mata nānā līlā kare gaurahari
 ki kāraṇe līlā,--ihā bujhite nā pāri
 

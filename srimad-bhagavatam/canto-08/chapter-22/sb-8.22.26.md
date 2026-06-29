@@ -1,5 +1,8 @@
 ### SB 8.22.26
 
+> जन्मकर्मवयोरूप विद्यैश्वर्यधनादिभिः
+> यद्यस्य न भवेत्स्तम्भस्तत्रायं मदनुग्रहः ॥२६॥
+
 > janma-karma-vayo-rūpa-
 > vidyaiśvarya-dhanādibhiḥ
 > yady asya na bhavet stambhas

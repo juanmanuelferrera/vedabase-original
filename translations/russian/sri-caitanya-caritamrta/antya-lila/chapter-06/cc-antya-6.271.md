@@ -1,5 +1,8 @@
 ### CC Antya 6.271
 
+> এইমত নিমন্ত্রণ বর্ষ দুই কৈলা ।
+> পাছে রঘুনাথ নিমন্ত্রণ ছাড়ি’ দিলা ॥২৭১॥
+
 > ei-mata nimantraṇa varṣa dui kailā
 > pāche raghunātha nimantraṇa chāḍi' dilā
 

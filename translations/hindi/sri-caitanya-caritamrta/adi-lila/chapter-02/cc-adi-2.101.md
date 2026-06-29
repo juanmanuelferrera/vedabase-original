@@ -1,5 +1,8 @@
 ### CC Adi 2.101
 
+> চিচ্ছক্তি, স্বরূপশক্তি, অন্তরঙ্গা নাম ।
+> তাহার বৈভব অনন্ত বৈকুণ্ঠাদি ধাম ॥১০১॥
+
 > cic-chakti, svarūpa-śakti, antaraṅgā nāma
 > tāhāra vaibhava ananta vaikuṇṭhādi dhāma
 

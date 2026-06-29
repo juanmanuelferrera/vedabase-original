@@ -1,5 +1,8 @@
 ### CC Madhya 17.139
 
+> ব্রহ্মানন্দ হৈতে পূর্ণানন্দ কৃষ্ণগুণ ।
+> অতএব আকর্ষয়ে আত্মারামের মন ॥১৩৯॥
+
 > brahmānanda haite pūrṇānanda kṛṣṇa-guṇa
 > ataeva ākarṣaye ātmā-rāmera mana
 

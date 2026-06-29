@@ -1,5 +1,8 @@
 ### CC Antya 6.12
 
+> এইমত বিহরে গৌর লঞা ভক্তগণ ।
+> রঘুনাথ-মিলন এবে শুন, ভক্তগণ ॥১২॥
+
 ei-mata vihare gaura lañā bhakta-gaṇa
 raghunātha-milana ebe śuna, bhakta-gaṇa
 

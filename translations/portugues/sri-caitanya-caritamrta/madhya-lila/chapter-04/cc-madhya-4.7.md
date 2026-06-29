@@ -1,5 +1,8 @@
 ### CC Madhya 4.7
 
+> চৈতন্যমঙ্গলে যাহা করিল বর্ণন ।
+> সূত্ররূপে সেই লীলা করিয়ে সূচন ॥৭॥
+
 caitanya-maṅgale yāhā karila varṇana
 sūtra-rūpe sei līlā kariye sūcana
 

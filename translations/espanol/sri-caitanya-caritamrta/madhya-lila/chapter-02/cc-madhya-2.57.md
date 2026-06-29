@@ -1,5 +1,10 @@
 ### CC Madhya 2.57
 
+> উঠিল নানা ভাবাবেগ, মনে হৈল উদ্বেগ,
+> ক্ষণমাত্র নারে গোঙাইতে ।
+> প্রবল বিরহানলে, ধৈর্য হৈল টলমলে,
+> নানা শ্লোক লাগিলা পড়িতে ॥৫৭॥
+
 > uṭhila nānā bhāvāvega, mane haila udvega,
 > kṣaṇa-mātra nāre goṅāite
 > prabala virahānale, dhairya haila ṭalamale,

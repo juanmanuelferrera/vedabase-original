@@ -1,5 +1,8 @@
 ### SB 9.18.44
 
+> उत्तमश्चिन्तितं कुर्यात्प्रोक्तकारी तु मध्यमः
+> अधमोऽश्रद्धया कुर्यादकर्तोच्चरितं पितुः ॥४४॥
+
 > uttamaś cintitaṁ kuryāt
 > prokta-kārī tu madhyamaḥ
 > adhamo 'śraddhayā kuryād

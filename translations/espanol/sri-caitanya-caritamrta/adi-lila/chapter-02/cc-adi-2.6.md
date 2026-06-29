@@ -1,5 +1,8 @@
 ### CC Adi 2.6
 
+> ব্রহ্ম, আত্মা, ভগবান্ — অনুবাদ তিন ।
+> অঙ্গপ্রভা, অংশ, স্বরূপ — তিন বিধেয়-চিহ্ন ॥৬॥
+
 > brahma, ātmā, bhagavān--anuvāda tina
 > aṅga-prabhā, aṁśa, svarūpa--tina vidheya-cihna
 

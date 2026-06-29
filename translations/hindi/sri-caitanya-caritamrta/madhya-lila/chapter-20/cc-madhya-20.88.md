@@ -1,5 +1,8 @@
 ### CC Madhya 20.88
 
+> এত বলি’ কাঁথা লইল, ভোট তাঁরে দিয়া ।
+> গোসাঞির ঠাঁই আইলা কাঁথা গলে দিয়া ॥৮৮॥
+
 > eta bali' kāṅthā la-ila, bhoṭa tāṅre diyā
 > gosāñira ṭhāṅi āilā kāṅthā gale diyā
 

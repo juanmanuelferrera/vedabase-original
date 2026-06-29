@@ -1,5 +1,8 @@
 ### SB 4.18.13
 
+> तथापरे च सर्वत्र सारमाददते बुधाः ।
+> ततोऽन्ये च यथाकामं दुदुहुः पृथुभाविताम् ॥१३॥
+
 > tathāpare ca sarvatra
 > sāram ādadate budhāḥ
 > tato 'nye ca yathā-kāmaṁ

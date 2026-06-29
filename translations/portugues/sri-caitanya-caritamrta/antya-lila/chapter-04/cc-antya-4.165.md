@@ -1,5 +1,8 @@
 ### CC Antya 4.165
 
+> শুনি’ মহাপ্রভু কিছু লজ্জিত হৈলা মনে ।
+> তাঁরে সন্তোষিতে কিছু বলেন বচনে ॥১৬৫॥
+
 śuni' mahāprabhu kichu lajjita hailā mane
 
 tāṅre santoṣite kichu balena vacane

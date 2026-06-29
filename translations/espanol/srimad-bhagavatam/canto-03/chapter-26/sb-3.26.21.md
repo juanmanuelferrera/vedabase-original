@@ -1,5 +1,8 @@
 ### SB 3.26.21
 
+> यत्तत्सत्त्वगुणं स्वच्छं शान्तं भगवतः पदम् ।
+> यदाहुर्वासुदेवाख्यं चित्तं तन्महदात्मकम् ॥२१॥
+
 > yat tat sattva-guṇaṁ svacchaṁ
 > śāntaṁ bhagavataḥ padam
 > yad āhur vāsudevākhyaṁ

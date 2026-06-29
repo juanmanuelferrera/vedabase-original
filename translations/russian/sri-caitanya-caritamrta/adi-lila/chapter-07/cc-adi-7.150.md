@@ -1,5 +1,8 @@
 ### CC Adi 7.150
 
+> এইমতে তাঁ-সবার ক্ষমি’ অপরাধ ।
+> সবাকারে কৃষ্ণ নাম করিলা প্রসাদ ॥১৫০॥
+
 > ei-mate tāṅ-sabāra kṣami' aparādha
 > sabākāre kṛṣṇa-nāma karilā prasāda
 

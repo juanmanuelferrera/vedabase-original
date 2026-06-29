@@ -1,5 +1,8 @@
 ### CC Madhya 4.101
 
+> এক মহাধনী ক্ষত্রিয় করাইল মন্দির ।
+> কেহ পাক-ভাণ্ডার কৈল, কেহ ত’ প্রাচীর ॥১০১॥
+
 > eka mahā-dhanī kṣatriya karāila mandira
 > keha pāka-bhāṇḍāra kaila, keha ta' prācīra
 

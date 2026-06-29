@@ -1,5 +1,8 @@
 ### CC Madhya 16.110
 
+> বাহিরে আসি’ রাজা আজ্ঞা-পত্র লেখাইল ।
+> নিজ-রাজ্যে যত ‘বিষয়ী’, তাহারে পাঠাইল ॥১১০॥
+
 bāhire āsi' rājā ājñā-patra lekhāila
 
 nija-rājye yata 'viṣayī', tāhāre pāṭhāila

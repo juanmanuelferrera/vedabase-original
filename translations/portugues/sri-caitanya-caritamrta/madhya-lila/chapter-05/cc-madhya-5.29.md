@@ -1,5 +1,8 @@
 ### CC Madhya 5.29
 
+> বড়বিপ্র কহে, — “কন্যা মোর নিজ-ধন ।
+> নিজ-ধন দিতে নিষেধিবে কোন্ জন ॥২৯॥
+
 baḍa-vipra kahe,--"kanyā mora nija-dhana
 
 nija-dhana dite niṣedhibe kon jana

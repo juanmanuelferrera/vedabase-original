@@ -1,5 +1,7 @@
 ### SB 5.24.11
 
+> यत्र ह वाव न भयमहोरात्रादिभिः कालविभागैरुपलक्ष्यते ॥११॥
+
 > yatra ha vāva na bhayam aho-rātrādibhiḥ kāla-vibhāgair upalakṣyate.
 
 *yatra*—donde; *ha vāva*—ciertamente; *na*—no; *bhayam*—temor; *ahaḥ-rātra-ādibhiḥ*—debidas a los días y las noches; *kāla-vibhāgaiḥ*—las divisiones del tiempo; *upalakṣyate*—se percibe.

@@ -1,5 +1,8 @@
 ### CC Adi 7.69
 
+> বেদান্ত-পঠন, ধ্যান, — সন্ন্যাসীর ধর্ম ।
+> তাহা ছাড়ি’ কর কেনে ভাবুকের কর্ম ॥৬৯॥
+
 > vedānta-paṭhana, dhyāna,--sannyāsīra dharma
 > tāhā chāḍi' kara kene bhāvukera karma
 

@@ -1,5 +1,8 @@
 ### SB 3.32.30
 
+> एतद्वै श्रद्धया भक्त्या योगाभ्यासेन नित्यशः ।
+> समाहितात्मा निःसङ्गो विरक्त्या परिपश्यति ॥३०॥
+
 etad vai śraddhayā bhaktyā
 yogābhyāsena nityaśaḥ
 samāhitātmā niḥsaṅgo

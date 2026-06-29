@@ -1,5 +1,8 @@
 ### CC Adi 2.33
 
+> পিতা মাতা বালকের না লয় অপরাধ ।
+> অপরাধ ক্ষম, মোরে করহ প্রসাদ ॥৩৩॥
+
 pitā mātā bālakera nā laya aparādha
 aparādha kṣama, more karaha prasāda
 

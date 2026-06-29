@@ -1,5 +1,8 @@
 ### CC Madhya 12.34
 
+> এক বহির্বাস যদি দেহ’ কৃপা করি’  ।
+> তাহা পাঞা প্রাণ রাখে তোমার আশা ধরি’ ॥৩৪॥
+
 > eka bahirvāsa yadi deha' kṛpā kari'
 > tāhā pāñā prāṇa rākhe tomāra āśā dhari'
 

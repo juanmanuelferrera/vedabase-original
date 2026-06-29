@@ -1,5 +1,8 @@
 ### CC Madhya 7.37
 
+> তোমার দুই হস্ত বদ্ধ নাম-গণনে ।
+> জলপাত্র-বহির্বাস বহিবে কেমনে ॥৩৭॥
+
 > tomāra dui hasta baddha nāma-gaṇane
 > jala-pātra-bahirvāsa vahibe kemane
 

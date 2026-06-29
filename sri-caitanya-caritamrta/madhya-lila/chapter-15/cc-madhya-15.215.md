@@ -1,5 +1,8 @@
 ### CC Madhya 15.215
 
+> মুদ্গবড়া, মাষবড়া, কলাবড়া মিষ্ট ।
+> ক্ষীরপুলি, নারিকেল-পুলি আর যত পিষ্ট ॥২১৫॥
+
 > mudga-baḍā, māṣa-baḍā, kalā-baḍā miṣṭa
 > kṣīra-puli, nārikela-pulī āra yata piṣṭa
 

@@ -1,5 +1,8 @@
 ### CC Madhya 19.181
 
+> সাত্ত্বিক-ব্যভিচারি-ভাবের মিলনে  ।
+> কৃষ্ণভক্তি-রস হয় অমৃত আস্বাদনে ॥১৮১॥
+
 sāttvika-vyabhicāri-bhāvera milane
 
 kṛṣṇa-bhakti-rasa haya amṛta āsvādane

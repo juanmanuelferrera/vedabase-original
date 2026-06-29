@@ -1,5 +1,8 @@
 ### CC Madhya 3.32
 
+> তুমি ত’ আচার্য গোসাঞি, এথা কেনে আইলা ।
+> আমি বৃন্দাবনে, তুমি কেমতে জানিলা ॥৩২॥
+
 > tumi ta' ācārya-gosāñi, ethā kene āilā
 > āmi vṛndāvane, tumi ke-mate jānilā
 

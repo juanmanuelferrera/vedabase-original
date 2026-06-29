@@ -1,5 +1,8 @@
 ### CC Antya 4.145
 
+> এত বলি’ দুঁহে নিজ-কার্যে উঠি’ গেলা ।
+> আর দিন মহাপ্রভু মিলিবারে আইলা ॥১৪৫॥
+
 eta bali' duṅhe nija-kārye uṭhi' gelā
 
 āra dina mahāprabhu milibāre āilā

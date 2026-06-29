@@ -1,5 +1,8 @@
 ### CC Antya 3.231
 
+> দ্বারে তুলসী লেপা-পিণ্ডির উপর ।
+> গোঁফার শোভা দেখি’ লোকের জুড়ায় অন্তর ॥২৩১॥
+
 dvāre tulasī lepā-piṇḍira upara
 
 goṅphāra śobhā dekhi' lokera juḍāya antara

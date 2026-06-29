@@ -1,5 +1,8 @@
 ### SB 9.24.34
 
+> अमोघं देवसन्दर्शमादधे त्वयि चात्मजम
+> योनिर्यथा न दुष्येत कर्ताहं ते सुमध्यमे ॥३४॥
+
 > amoghaṁ deva-sandarśam
 > ādadhe tvayi cātmajam
 > yonir yathā na duṣyeta

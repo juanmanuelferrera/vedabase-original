@@ -1,5 +1,8 @@
 ### CC Antya 3.82
 
+> অবতরি’ তুমি ঐছে পাতিয়াছ হাট ।
+> কেহ না বুঝিতে পারে তোমার গূঢ় নাট ॥৮২॥
+
 avatari' tumi aiche pātiyācha hāṭa
 
 keha nā bujhite pāre tomāra gūḍha nāṭa

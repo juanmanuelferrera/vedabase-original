@@ -1,5 +1,8 @@
 ### CC Madhya 18.88
 
+> প্রভু তাঁরে কৃপা কৈলা আলিঙ্গন করি ।
+> প্রেমে মত্ত কৈল সেই নাচে, বলে ‘হরি’ ॥৮৮॥
+
 > prabhu tāṅre kṛpā kailā āliṅgana kari
 > preme matta haila sei nāce, bale 'hari'
 

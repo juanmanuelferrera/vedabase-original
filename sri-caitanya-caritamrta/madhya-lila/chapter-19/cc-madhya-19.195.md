@@ -1,5 +1,8 @@
 ### CC Madhya 19.195
 
+> শান্ত-দাস্য-রসে ঐশ্বর্য কাহাঁ উদ্দীপন ।
+> বাৎসল্য-সখ্য-মধুরে ত’ করে সঙ্কোচন ॥১৯৫॥
+
 > śānta-dāsya-rase aiśvarya kāhāṅ uddīpana
 > vātsalya-sakhya-madhure ta' kare saṅkocana
 

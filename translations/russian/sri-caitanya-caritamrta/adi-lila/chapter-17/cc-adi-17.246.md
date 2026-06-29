@@ -1,5 +1,8 @@
 ### CC Adi 17.246
 
+> বিজয় আচার্যের ঘরে সে রাত্রে রহিলা ।
+> প্রাতঃকালে ভক্ত সবে ঘরে লঞা গেলা ॥২৪৬॥
+
 > vijaya ācāryera ghare se rātre rahilā
 > prātaḥ-kāle bhakta sabe ghare lañā gelā
 

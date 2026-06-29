@@ -1,5 +1,8 @@
 ### CC Adi 13.90
 
+> সিংহ-রাশি, সিংহ-লগ্ন, উচ্চ গ্রহগণ ।
+> ষড়্বর্গ, অষ্টবর্গ, সর্ব সুলক্ষণ ॥৯০॥
+
 > siṁha-rāśi, siṁha-lagna, ucca graha-gaṇa
 > ṣaḍ-varga, aṣṭa-varga, sarva sulakṣaṇa
 

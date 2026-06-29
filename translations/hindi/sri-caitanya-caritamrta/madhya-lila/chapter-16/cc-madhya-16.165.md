@@ -1,5 +1,8 @@
 ### CC Madhya 16.165
 
+> লক্ষ লক্ষ লোক আইসে তাহা দেখিবারে ।
+> তাঁরে দেখি’ পুনরপি যাইতে নারে ঘরে ॥১৬৫॥
+
 > lakṣa lakṣa loka āise tāhā dekhibāre
 > tāṅre dekhi' punarapi yāite nāre ghare
 

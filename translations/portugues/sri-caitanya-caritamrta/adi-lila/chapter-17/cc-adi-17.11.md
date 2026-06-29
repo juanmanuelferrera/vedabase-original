@@ -1,5 +1,8 @@
 ### CC Adi 17.11
 
+> প্রভুর অভিষেক তবে করিল শ্রীবাস ।
+> খাটে বসি’ প্রভু কৈলা ঐশ্বর্য প্রকাশ ॥১১॥
+
 prabhura abhiṣeka tabe karila śrīvāsa
 khāṭe vasi' prabhu kailā aiśvarya prakāśa
 

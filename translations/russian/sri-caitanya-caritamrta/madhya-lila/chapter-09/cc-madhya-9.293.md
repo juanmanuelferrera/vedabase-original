@@ -1,5 +1,8 @@
 ### CC Madhya 9.293
 
+> দুই জনে কৃষ্ণকথা কহে রাত্রি-দিনে ।
+> এইমতে গোঙাইল পাঁচ-সাত দিনে ॥২৯৩॥
+
 > dui jane kṛṣṇa-kathā kahe rātri-dine
 > ei-mate goṅāila pāṅca-sāta dine
 

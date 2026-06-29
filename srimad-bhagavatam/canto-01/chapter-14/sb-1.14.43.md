@@ -1,5 +1,8 @@
 ### SB 1.14.43
 
+> अपि स्वित्पर्यभुङ्क्थास्त्वं सम्भोज्यान्वृद्धबालकान् ।
+> जुगुप्सितं कर्म किञ्चित्कृतवान्न यदक्षमम् ॥४३॥
+
 > api svit parya-bhuṅkthās tvaṁ
 > sambhojyān vṛddha-bālakān
 > jugupsitaṁ karma kiñcit

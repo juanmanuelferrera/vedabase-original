@@ -1,5 +1,8 @@
 ### CC Madhya 20.26
 
+> তবে সেই সাত মোহর হস্তেতে করিয়া  ।
+> ভূঞার কাছে যাঞা কহে মোহর ধরিয়া ॥২৬॥
+
 tabe sei sāta mohara hastete kariyā
 
 bhūñāra kāche yāñā kahe mohara dhariyā

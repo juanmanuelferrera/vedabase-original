@@ -1,5 +1,8 @@
 ### SB 8.11.8
 
+> तदिदं कालरशनं जगत्पश्यन्ति सूरयः
+> न हृष्यन्ति न शोचन्ति तत्र यूयमपण्डिताः ॥८॥
+
 > tad idaṁ kāla-raśanaṁ
 > jagat paśyanti sūrayaḥ
 > na hṛṣyanti na śocanti

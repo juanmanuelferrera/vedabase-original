@@ -1,5 +1,8 @@
 ### CC Antya 14.109
 
+> রাধা লঞা কৃষ্ণ প্রবেশিলা কন্দরাতে ।
+> সখীগণ কহে মোরে ফুল উঠাইতে ॥১০৯॥
+
 rādhā lañā kṛṣṇa praveśilā kandarāte
 
 sakhī-gaṇa kahe more phula uṭhāite

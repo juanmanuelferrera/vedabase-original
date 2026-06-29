@@ -1,5 +1,8 @@
 ### CC Antya 11.97
 
+> হরিদাস আছিল পৃথিবীর ‘শিরোমণি’ ।
+> তাহা বিনা রত্ন-শূন্যা হইল মেদিনী ॥৯৭॥
+
 > haridāsa āchila pṛthivīra 'śiromaṇi'
 > tāhā vinā ratna-śūnyā ha-ila medinī
 

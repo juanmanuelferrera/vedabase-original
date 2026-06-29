@@ -1,5 +1,8 @@
 ### CC Madhya 12.83
 
+> ছোট-বড়-মন্দির কৈল মার্জন-শোধন ।
+> পাছে তৈছে শোধিল শ্রীজগমোহন ॥৮৩॥
+
 > choṭa-baḍa-mandira kaila mārjana-śodhana
 > pāche taiche śodhila śrī-jagamohana
 

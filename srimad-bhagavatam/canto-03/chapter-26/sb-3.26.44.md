@@ -1,5 +1,8 @@
 ### SB 3.26.44
 
+> रसमात्राद्विकुर्वाणादम्भसो दैवचोदितात् ।
+> गन्धमात्रमभूत्तस्मात्पृथ्वी घ्राणस्तु गन्धगः ॥४४॥
+
 > rasa-mātrād vikurvāṇād
 > ambhaso daiva-coditāt
 > gandha-mātram abhūt tasmāt

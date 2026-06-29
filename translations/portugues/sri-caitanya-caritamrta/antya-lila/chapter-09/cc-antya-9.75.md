@@ -1,5 +1,8 @@
 ### CC Antya 9.75
 
+> সেই ‘শুদ্ধভক্ত’, যে তোমা ভজে তোমা লাগি’ ।
+> আপনার সুখ-দুঃখে হয় ভোগ-ভাগী’ ॥৭৫॥
+
 sei 'śuddha-bhakta', ye tomā bhaje tomā lāgi'
 
 āpanāra sukha-duḥkhe haya bhoga-bhogī'

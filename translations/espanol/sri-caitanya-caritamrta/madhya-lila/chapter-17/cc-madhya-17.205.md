@@ -1,5 +1,8 @@
 ### CC Madhya 17.205
 
+> অশ্রু-কম্প-পুলক-প্রেমে শরীর অস্থিরে ।
+> ‘কৃষ্ণ’ বল, ‘কৃষ্ণ’ বল — বলে উচ্চৈঃস্বরে ॥২০৫॥
+
 > aśru-kampa-pulaka-preme śarīra asthire
 > 'kṛṣṇa' bala, 'kṛṣṇa' bala--bale uccaiḥsvare
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.204
 
+> এত কহি’ রঘুনাথের হস্ত ধরিলা ।
+> স্বরূপের হস্তে তাঁরে সমর্পণ কৈলা ॥২০৪॥
+
 > eta kahi' raghunāthera hasta dharilā
 > svarūpera haste tāṅre samarpaṇa kailā
 

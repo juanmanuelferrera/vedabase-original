@@ -1,5 +1,10 @@
 ### SB 2.7.10
 
+> नाभेरसावृषभ आस सुदेविसूनुर्
+> यो वै चचार समदृग्जडयोगचर्याम् ।
+> यत्पारमहंस्यमृषयः पदमामनन्ति
+> स्वस्थः प्रशान्तकरणः परिमुक्तसङ्गः ॥१०॥
+
 > nābher asāv ṛṣabha āsa sudevi-sūnur
 > yo vai cacāra sama-dṛg jaḍa-yoga-caryām
 > yat pāramahaṁsyam ṛṣayaḥ padam āmananti

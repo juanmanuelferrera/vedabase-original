@@ -1,5 +1,7 @@
 ### SB 5.14.25
 
+> क्वचिच्च शीतवाताद्यनेकाधिदैविकभौतिकात्मीयानां दशानां प्रतिनिवारणेऽकल्पो दुरन्तचिन्तया विषण्ण आस्ते ॥२५॥
+
 > kvacic ca śīta-vātādy-anekādhidaivika-bhautikātmīyānāṁ daśānāṁ pratinivāraṇe 'kalpo duranta-cintayā viṣaṇṇa āste.
 
 *kvacit*—sometimes; *ca*—also; *śīta-vāta-ādi*—such as cold and strong wind; *aneka*—various; *adhidaivika*—created by the demigods; *bhautika*—*adhibhautika,* created by other living beings; *ātmīyānām*—*adhyātmika,* created by the body and mind; *daśānām*—of conditions of misery; *pratinivāraṇe*—in the counteracting; *akalpaḥ*—unable; *duranta*—very severe; *cintayā*—by anxieties; *viṣaṇṇaḥ*—morose; *āste*—he remains.

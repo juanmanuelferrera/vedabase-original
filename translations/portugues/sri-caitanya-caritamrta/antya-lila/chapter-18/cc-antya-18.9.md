@@ -1,5 +1,8 @@
 ### CC Antya 18.9
 
+> এইমত রাসলীলায় হয় যত শ্লোক ।
+> সবার অর্থ করে, পায় কভু হর্ষ-শোক ॥৯॥
+
 ei-mata rāsa-līlāya haya yata śloka
 sabāra artha kare, pāya kabhu harṣa-śoka
 

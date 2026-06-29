@@ -1,5 +1,8 @@
 ### CC Adi 17.84
 
+> দেখিয়া সন্তুষ্ট হৈলা শচীর নন্দন ।
+> সবাকে খাওয়াল আগে করিয়া ভক্ষণ ॥৮৪॥
+
 dekhiyā santuṣṭa hailā śacīra nandana
 
 sabāke khāoyāla āge kariyā bhakṣaṇa

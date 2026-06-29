@@ -1,5 +1,8 @@
 ### CC Antya 20.31
 
+> অতিদৈন্যে পুনঃ মাগে দাস্যভক্তি-দান ।
+> আপনারে করে সংসারী জীব-অভিমান ॥৩১॥
+
 > ati-dainye punaḥ māge dāsya-bhakti-dāna
 > āpanāre kare saṁsārī jīva-abhimāna
 

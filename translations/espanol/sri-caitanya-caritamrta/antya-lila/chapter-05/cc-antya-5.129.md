@@ -1,5 +1,8 @@
 ### CC Antya 5.129
 
+> শুনিয়া কবির হৈল লজ্জা, ভয়, বিস্ময় ।
+> হংস-মধ্যে বক যৈছে কিছু নাহি কয় ॥১২৯॥
+
 > śuniyā kavira haila lajjā, bhaya, vismaya
 > haṁsa-madhye baka yaiche kichu nāhi kaya
 

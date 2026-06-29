@@ -1,5 +1,8 @@
 ### CC Madhya 8.22
 
+> তবে তারে কৈল প্রভু দৃঢ় আলিঙ্গন ৷
+> প্রেমাবেশে প্রভু-ভৃত্য দোঁহে অচেতন ৷৷ ২২ ৷৷ ॥২২॥
+
 tabe tāre kaila prabhu dṛḍha āliṅgana
 
 premāveśe prabhu-bhṛtya doṅhe acetana

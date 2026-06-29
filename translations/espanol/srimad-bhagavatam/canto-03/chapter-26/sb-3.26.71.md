@@ -1,5 +1,8 @@
 ### SB 3.26.71
 
+> यथा प्रसुप्तं पुरुषं प्राणेन्द्रियमनोधियः ।
+> प्रभवन्ति विना येन नोत्थापयितुमोजसा ॥७१॥
+
 > yathā prasuptaṁ puruṣaṁ
 > prāṇendriya-mano-dhiyaḥ
 > prabhavanti vinā yena

@@ -1,5 +1,8 @@
 ### CC Madhya 3.185
 
+> আপনার দুঃখ-সুখ তাহাঁ নাহি গণি ।
+> তাঁর যেই সুখ, তাহা নিজ-সুখ মানি ॥১৮৫॥
+
 āpanāra duḥkha-sukha tāhāṅ nāhi gaṇi
 
 tāṅra yei sukha, tāhā nija-sukha māni

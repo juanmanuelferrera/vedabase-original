@@ -1,5 +1,8 @@
 ### SB 7.2.51
 
+> कुलिङ्गमिथुनं तत्र विचरत्समदृश्यत
+> तयोः कुलिङ्गी सहसा लुब्धकेन प्रलोभिता ॥५१॥
+
 > kuliṅga-mithunaṁ tatra
 > vicarat samadṛśyata
 > tayoḥ kuliṅgī sahasā

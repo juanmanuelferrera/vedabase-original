@@ -1,5 +1,8 @@
 ### CC Adi 5.10
 
+> সৃষ্ট্যাদিক সেবা, — তাঁর আজ্ঞার পালন ।
+> ‘শেষ’-রূপে করে কৃষ্ণের বিবিধ সেবন ॥১০॥
+
 > sṛṣṭy-ādika sevā,--tāṅra ājñāra pālana
 > 'śeṣa'-rūpe kare kṛṣṇera vividha sevana
 

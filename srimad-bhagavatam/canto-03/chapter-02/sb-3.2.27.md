@@ -1,5 +1,8 @@
 ### SB 3.2.27
 
+> परीतो वत्सपैर्वत्सांश्चारयन्व्यहरद्विभुः ।
+> यमुनोपवने कूजद् द्विजसङ्कुलिताङ्घ्रिपे ॥२७॥
+
 > parīto vatsapair vatsāṁś
 > cārayan vyaharad vibhuḥ
 > yamunopavane kūjad-

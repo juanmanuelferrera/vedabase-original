@@ -1,5 +1,7 @@
 ### SB 5.16.15
 
+> येष्वमरपरिवृढाः सह सुरललनाललामयूथपतय उपदेवगणैरुपगीयमानमहिमानः किल विहरन्ति ॥१५॥
+
 *yeṣv amara*-parivṛḍhāḥ saha sura-lalanā-lalāma-yūtha-pataya upadeva-gaṇair upagīyamāna-mahimānaḥ kila viharanti.
 
 *yeṣu*—nos quais; *amara-parivṛḍhāḥ*—os melhores dos semideuses; *saha*—com; *sura-lalanā*—das esposas de todos os semideuses e semi-semideuses; *lalāma*—daquelas mulheres que são como ornamentos; *yūtha-patayaḥ*—os esposos; *upadeva-gaṇaiḥ*—pelos semi-semideuses (os Gandharvas); *upagīyamāna*—sendo cantadas; *mahimānaḥ*—cujas glórias; *kila*—de fato; *viharanti*—eles desfrutam de divertimentos.

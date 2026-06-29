@@ -1,5 +1,8 @@
 ### CC Madhya 15.67
 
+> এতেক কহিতে প্রভু বিহ্বল হইলা ।
+> লোক বিদায় করিতে প্রভু ধৈর্য ধরিলা ॥৬৭॥
+
 > eteka kahite prabhu vihvala ha-ilā
 > loka vidāya karite prabhu dhairya dharilā
 

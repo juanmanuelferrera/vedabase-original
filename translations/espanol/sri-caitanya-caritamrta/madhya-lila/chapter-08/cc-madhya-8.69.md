@@ -1,5 +1,10 @@
 ### CC Madhya 8.69
 
+> নানোপচার-কৃতপূজনমার্তবন্ধোঃ ।
+> প্রেম্ণৈব ভক্তহৃদয়ং সুখবিদ্রুতং স্যাত্ ৷
+> যাবত্ ক্ষুদস্তি জঠরে জরঠা পিপাসা
+> তাবত্ সুখায় ভবতো ননু ভক্ষ্য-পেয়ে ৷৷ ৬৯ ৷৷ ॥৬৯॥
+
 > nānopacāra-kṛta-pūjanam ārta-bandhoḥ
 > premṇaiva bhakta-hṛdayaṁ sukha-vidrutaṁ syāt
 > yāvat kṣud asti jaṭhare jaraṭhā pipāsā

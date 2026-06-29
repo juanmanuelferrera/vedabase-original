@@ -1,5 +1,8 @@
 ### CC Antya 5.135
 
+> তুমি যৈছে-তৈছে কহ, না জানিয়া রীতি ।
+> সরস্বতী সেই-শব্দে করিয়াছে স্তুতি ॥১৩৫॥
+
 tumi yaiche-taiche kaha, nā jāniyā rīti
 
 sarasvatī sei-śabde kariyāche stuti

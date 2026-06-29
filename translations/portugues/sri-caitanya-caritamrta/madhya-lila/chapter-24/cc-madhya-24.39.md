@@ -1,5 +1,8 @@
 ### CC Madhya 24.39
 
+> ভুক্তি-মুক্তি-সিদ্ধি-সুখ ছাড়য় যার গন্ধে ।
+> অলৌকিক শক্তি-গুণে কৃষ্ণকৃপায় বান্ধে ॥৩৯॥
+
 bhukti-mukti-siddhi-sukha chāḍaya yāra gandhe
 
 alaukika śakti-guṇe kṛṣṇa-kṛpāya bāndhe

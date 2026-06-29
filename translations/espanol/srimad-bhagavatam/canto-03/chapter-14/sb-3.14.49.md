@@ -1,5 +1,8 @@
 ### SB 3.14.49
 
+> अलम्पटः शीलधरो गुणाकरो हृष्टः परर्द्ध्या व्यथितो दुःखितेषु ।
+> अभूतशत्रुर्जगतः शोकहर्ता नैदाघिकं तापमिवोडुराजः ॥४९॥
+
 > alampaṭaḥ śīla-dharo guṇākaro
 > hṛṣṭaḥ pararddhyā vyathito duḥkhiteṣu
 > abhūta-śatrur jagataḥ śoka-hartā

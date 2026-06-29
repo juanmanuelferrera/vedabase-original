@@ -1,5 +1,7 @@
 ### SB 5.10.3
 
+> अथ त ईश्वरवचः सोपालम्भमुपाकर्ण्योपायतुरीयाच्छङ्कितमनसस्तं विज्ञआपयांबभूवुः ॥३॥
+
 *atha ta īśvara*-vacaḥ sopālambham upākarṇyopāya-turīyāc chaṅkita-manasas taṁ vijñāpayāṁ babhūvuḥ.
 
 *atha*—assim; *te*—eles (os carregadores do palanquim); *īśvara-vacaḥ*—as palavras do mestre, o rei Rahūgaṇa; *sa-upālambham*—com reprovação; *upākarṇya*—ouvindo; *upāya*—os meios; *turīyāt*—do quarto; *śaṅkita-manasaḥ*—cujas mentes estavam temerosas; *tam*—a ele (o rei); *vijñāpayām babhūvuḥ*—informaram.

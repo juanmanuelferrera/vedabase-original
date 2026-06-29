@@ -1,5 +1,8 @@
 ### CC Antya 4.97
 
+> ভক্তিসিদ্ধান্ত, শাস্ত্র-আচার-নির্ণয়  ।
+> তোমা-দ্বারে করাইবেন, বুঝিলুঁ আশয় ॥৯৭॥
+
 > bhakti-siddhānta, śāstra-ācāra-nirṇaya
 > tomā-dvāre karāibena, bujhiluṅ āśaya
 

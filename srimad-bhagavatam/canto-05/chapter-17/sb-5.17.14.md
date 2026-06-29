@@ -1,5 +1,7 @@
 ### SB 5.17.14
 
+> नवस्वपि वर्षेषु भगवान्नारायणो महापुरुषः पुरुषाणां तदनुग्रहायात्मतत्त्वव्यूहेनात्मनाद्यापि सन्निधीयते ॥१४॥
+
 > navasv api varṣeṣu bhagavān nārāyaṇo mahā-puruṣaḥ puruṣāṇāṁ tad-anugrahāyātma-tattva-vyūhenātmanādyāpi sannidhīyate.
 
 *navasu*—in the nine; *api*—certainly; *varṣeṣu*—tracts of land known as *varṣas*; *bhagavān*—the Supreme Personality of Godhead; *nārāyaṇaḥ*—Lord Viṣṇu; *mahā-puruṣaḥ*—the Supreme Person; *puruṣāṇām*—unto His various devotees; *tat-anugrahāya*—to show His mercy; *ātma-tattva-vyūhena*—by expansions of Himself in the quadruple forms Vāsudeva, Saṅkarṣaṇa, Pradyumna and Aniruddha; *ātmanā*—personally; *adya api*—until now; *sannidhīyate*—is near the devotees for accepting their services.

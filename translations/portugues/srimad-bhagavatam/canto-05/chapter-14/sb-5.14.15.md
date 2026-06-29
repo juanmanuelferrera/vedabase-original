@@ -1,5 +1,7 @@
 ### SB 5.14.15
 
+> क्वचिदासाद्य गृहं दाववत्प्रियार्थविधुरमसुखोदर्कं शोकाग्निना दह्यमानो भृशंनिर्वेदमुपगच्छति ॥१५॥
+
 *kvacid āsādya gṛhaṁ dāvavat priyārtha*-vidhuram asukhodarkaṁ śokāgninā dahyamāno bhṛśaṁ nirvedam upagacchati.
 
 *kvacit*—às vezes; *āsādya*—experimentando; *gṛham*—a vida no lar; *dāva-vat*—exatamente como um fogo ardente na floresta; *priya-artha-vidhuram*—sem nenhum objeto benéfico; *asukha-udarkam*—resultando apenas em cada vez mais infelicidade; *śoka-agninā*—pelo fogo da lamentação; *dahyamānaḥ*—sendo queimada; *bhṛśam*—muito grande; *nirvedam*—decepção; *upagacchati*—ele obtém.

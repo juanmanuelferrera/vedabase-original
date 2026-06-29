@@ -1,5 +1,8 @@
 ### CC Adi 2.15
 
+> কোটী কোটী ব্রহ্মাণ্ডে যে ব্রহ্মের বিভূতি ।
+> সেই ব্রহ্ম গোবিন্দের হয় অঙ্গকান্তি ॥১৫॥
+
 koṭī koṭī brahmāṇḍe ye brahmera vibhūti
 sei brahma govindera haya aṅga-kānti
 

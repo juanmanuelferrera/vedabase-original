@@ -1,5 +1,8 @@
 ### SB 7.15.66
 
+> यद्यस्य वानिषिद्धं स्याद्येन यत्र यतो नृप
+> स तेनेहेत कार्याणि नरो नान्यैरनापदि ॥६६॥
+
 > yad yasya vāniṣiddhaṁ syād
 > yena yatra yato nṛpa
 > sa teneheta kāryāṇi

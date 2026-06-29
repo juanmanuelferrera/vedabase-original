@@ -1,5 +1,8 @@
 ### CC Madhya 5.9
 
+> সাক্ষিগোপালের কথা শুনি, লোকমুখে ।
+> সেই কথা কহেন, প্রভু শুনে মহাসুখে ॥৯॥
+
 sākṣi-gopālera kathā śuni, loka-mukhe
 sei kathā kahena, prabhu śune mahā-sukhe
 

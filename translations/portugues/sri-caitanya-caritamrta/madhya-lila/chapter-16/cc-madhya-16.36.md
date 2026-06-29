@@ -1,5 +1,8 @@
 ### CC Madhya 16.36
 
+> সাক্ষিগোপালের কথা কহে নিত্যানন্দ ।
+> শুনিয়া বৈষ্ণব-মনে বাড়িল আনন্দ ॥৩৬॥
+
 sākṣi-gopālera kathā kahe nityānanda
 
 śuniyā vaiṣṇava-mane bāḍila ānanda

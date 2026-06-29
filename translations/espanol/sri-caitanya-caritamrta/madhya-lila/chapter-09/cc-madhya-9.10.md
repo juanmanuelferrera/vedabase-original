@@ -1,5 +1,8 @@
 ### CC Madhya 9.10
 
+> সেই সব লোক প্রভুর দর্শনপ্রভাবে ৷
+> নিজ-নিজ-মত ছাড়ি’ হইল বৈষ্ণবে ৷৷ ১০ ৷৷ ॥১০॥
+
 > sei saba loka prabhura darśana-prabhāve
 > nija-nija-mata chāḍi' ha-ila vaiṣṇave
 

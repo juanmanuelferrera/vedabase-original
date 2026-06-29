@@ -1,5 +1,8 @@
 ### CC Adi 12.83
 
+> বাণীনাথ ব্রহ্মচারী — বড় মহাশয় ।
+> বল্লভচৈতন্যদাস — কৃষ্ণপ্রেমময় ॥৮৩॥
+
 > vāṇīnātha brahmacārī--baḍa mahāśaya
 > vallabha-caitanya-dāsa--kṛṣṇa-premamaya
 

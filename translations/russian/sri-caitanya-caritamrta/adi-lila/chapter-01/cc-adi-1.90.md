@@ -1,5 +1,8 @@
 ### CC Adi 1.90
 
+> অজ্ঞান-তমের নাম কহিয়ে ‘কৈতব’ ।
+> ধর্ম-অর্থ-কাম-মোক্ষ-বাঞ্ছা আদি সব ॥৯০॥
+
 > ajñāna-tamera nāma kahiye 'kaitava'
 > dharma-artha-kāma-mokṣa-vāñchā ādi saba
 

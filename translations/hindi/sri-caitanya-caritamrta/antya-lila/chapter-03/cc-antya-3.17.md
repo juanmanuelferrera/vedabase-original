@@ -1,5 +1,8 @@
 ### CC Antya 3.17
 
+> তুমিহ — পরম যুবা, পরম সুন্দর ।
+> লোকের কাণাকাণি-বাতে দেহ অবসর ।।” ॥ ১৭ ॥
+
 > tumi-ha--parama yuvā, parama sundara
 > lokera kāṇākāṇi-vāte deha avasara"
 

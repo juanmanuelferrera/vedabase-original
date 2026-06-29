@@ -1,5 +1,8 @@
 ### CC Antya 19.107
 
+> ইহার সত্যত্বে প্রমাণ শ্রীভাগবতে ।
+> শ্রীরাধার প্রেম-প্রলাপ ‘ভ্রমর-গীতা’তে ॥১০৭॥
+
 ihāra satyatve pramāṇa śrī-bhāgavate
 
 śrī-rādhāra prema-pralāpa 'bhramara-gītā'te

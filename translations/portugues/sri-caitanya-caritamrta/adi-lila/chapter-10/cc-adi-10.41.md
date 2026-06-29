@@ -1,5 +1,8 @@
 ### CC Adi 10.41
 
+> বাসুদেব দত্ত — প্রভুর ভৃত্য মহাশয় ।
+> সহস্র-মুখে যাঁর গুণ কহিলে না হয় ॥৪১॥
+
 vāsudeva datta--prabhura bhṛtya mahāśaya
 
 sahasra-mukhe yāṅra guṇa kahile nā haya

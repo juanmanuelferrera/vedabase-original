@@ -1,5 +1,8 @@
 ### CC Adi 17.184
 
+> সে দিন বহুত নাহি কৈলি উৎপাত ।
+> তেঞি ক্ষমা করি’ না করিনু প্রাণাঘাত ॥১৮৪॥
+
 > se dina bahuta nāhi kaili utpāta
 > teñi kṣamā kari' nā karinu prāṇāghāta
 

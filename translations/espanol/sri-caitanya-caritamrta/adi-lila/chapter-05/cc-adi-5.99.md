@@ -1,5 +1,8 @@
 ### CC Adi 5.99
 
+> তাঁহাই প্রকট কৈল বৈকুণ্ঠ নিজ-ধাম ।
+> শেষ-শয়ন-জলে করিল বিশ্রাম ॥৯৯॥
+
 > tāṅhāi prakaṭa kaila vaikuṇṭha nija-dhāma
 > śeṣa-śayana-jale karila viśrāma
 

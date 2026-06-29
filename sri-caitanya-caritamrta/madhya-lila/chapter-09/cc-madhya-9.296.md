@@ -1,5 +1,8 @@
 ### CC Madhya 9.296
 
+> জগন্নাথমিশ্র-ঘরে ভিক্ষা যে করিল ।
+> অপূর্ব মোচার ঘণ্ট তাহাঁ যে খাইল ॥২৯৬॥
+
 > jagannātha-miśra-ghare bhikṣā ye karila
 > apūrva mocāra ghaṇṭa tāhāṅ ye khāila
 

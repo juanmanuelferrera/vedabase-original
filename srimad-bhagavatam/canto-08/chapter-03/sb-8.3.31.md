@@ -1,5 +1,10 @@
 ### SB 8.3.31
 
+> तं तद्वदार्तमुपलभ्य जगन्निवासः
+> स्तोत्रं निशम्य दिविजैः सह संस्तुवद्भिः
+> छन्दोमयेन गरुडेन समुह्यमानश
+> चक्रायुधोऽभ्यगमदाशु यतो गजेन्द्रः ॥३१॥
+
 > taṁ tadvad ārtam upalabhya jagan-nivāsaḥ
 > stotraṁ niśamya divijaiḥ saha saṁstuvadbhiḥ
 > chandomayena garuḍena samuhyamānaś

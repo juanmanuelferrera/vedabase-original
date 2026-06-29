@@ -1,5 +1,8 @@
 ### CC Madhya 7.135
 
+> প্রভুর অনুব্রজি’ কূর্ম বহু দূর আইলা ৷
+> প্রভু তাঁরে যত্ন করি’ ঘরে পাঠাইলা ৷৷ ১৩৫ ৷৷ ॥১৩৫॥
+
 > prabhura anuvraji' kūrma bahu dūra āilā
 > prabhu tāṅre yatna kari' ghare pāṭhāilā
 

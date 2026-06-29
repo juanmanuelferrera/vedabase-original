@@ -1,5 +1,8 @@
 ### SB 4.23.36
 
+> विजयाभिमुखो राजा श्रुत्वैतदभियाति यान् ।
+> बलिं तस्मै हरन्त्यग्रे राजानः पृथवे यथा ॥३६॥
+
 > vijayābhimukho rājā
 > śrutvaitad abhiyāti yān
 > baliṁ tasmai haranty agre

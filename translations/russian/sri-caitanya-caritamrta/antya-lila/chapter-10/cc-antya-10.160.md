@@ -1,5 +1,8 @@
 ### CC Antya 10.160
 
+> শ্রদ্ধা করি’ শুনে যেই চৈতন্যের কথা ।
+> চৈতন্যচরণে প্রেম পাইবে সর্বথা ॥১৬০॥
+
 > śraddhā kari' śune yei caitanyera kathā
 > caitanya-caraṇe prema pāibe sarvathā
 

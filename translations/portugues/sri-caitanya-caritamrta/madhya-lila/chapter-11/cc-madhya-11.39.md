@@ -1,5 +1,8 @@
 ### CC Madhya 11.39
 
+> প্রভু কহে, — শীঘ্র গিয়া কর দরশন ৷
+> ঐছে ঘর যাই’ কর কুটুম্ব মিলন ৷৷ ৩৯ ৷৷ ॥৩৯॥
+
 prabhu kahe,—śīghra giyā kara daraśana
 aiche ghara yāi' kara kuṭumba milana
 

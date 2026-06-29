@@ -1,5 +1,8 @@
 ### SB 7.1.19
 
+> कथं तस्मिन्भगवति दुरवग्राह्यधामनि
+> पश्यतां सर्वलोकानां लयमीयतुरञ्जसा ॥१९॥
+
 > śapator asakṛd viṣṇuṁ
 > yad brahma param avyayam
 > śvitro na jāto jihvāyāṁ

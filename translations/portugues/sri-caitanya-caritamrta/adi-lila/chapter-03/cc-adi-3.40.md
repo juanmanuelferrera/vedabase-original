@@ -1,5 +1,8 @@
 ### CC Adi 3.40
 
+> কলিযুগে যুগধর্ম — নামের প্রচার ।
+> তথি লাগি’ পীতবর্ণ চৈতন্যাবতার ॥৪০॥
+
 kali-yuge yuga-dharma--nāmera pracāra
 tathi lāgi' pīta-varṇa caitanyāvatāra
 

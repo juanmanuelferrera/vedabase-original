@@ -1,5 +1,8 @@
 ### SB 3.23.49
 
+> पतिं सा प्रव्रजिष्यन्तं तदालक्ष्योशती बहिः ।
+> स्मयमाना विक्लवेन हृदयेन विदूयता ॥४९॥
+
 > patiṁ sā pravrajiṣyantaṁ
 > tadālakṣyośatī bahiḥ
 > smayamānā viklavena

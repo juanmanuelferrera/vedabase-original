@@ -1,5 +1,8 @@
 ### CC Madhya 1.214
 
+> ভাল হৈল, দুই ভাই আইলা মোর স্থানে ।
+> ঘরে যাহ, ভয় কিছু না করিহ মনে ॥২১৪॥
+
 > bhāla haila, dui bhāi āilā mora sthāne
 > ghare yāha, bhaya kichu nā kariha mane
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.14
 
+> ‘মুনি’-আদি শব্দের অর্থ শুন, সনাতন ।
+> পৃথক্ পৃথক্ অর্থ পাছে করিব মিলন ॥১৪॥
+
 'muni'-ādi śabdera artha śuna, sanātana
 pṛthak pṛthak artha pāche kariba milana
 

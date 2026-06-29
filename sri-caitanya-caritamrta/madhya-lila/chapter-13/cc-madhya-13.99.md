@@ -1,5 +1,8 @@
 ### CC Madhya 13.99
 
+> রথ স্থির কৈল, আগে না করে গমন ।
+> অনিমিষ-নেত্রে করে নৃত্য দরশন ॥৯৯॥
+
 > ratha sthira kaila, āge nā kare gamana
 > animiṣa-netre kare nṛtya daraśana
 

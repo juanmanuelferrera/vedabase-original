@@ -1,5 +1,10 @@
 ### CC Antya 20.62
 
+> ব্রজের বিশুদ্ধপ্রেম, — যেন জাম্বূনদ হেম,
+> আত্ম-সুখের যাহাঁ নাহি গন্ধ ।
+> সে প্রেম জানা’তে লোকে, প্রভু কৈলা এই শ্লোকে,
+> পদে কৈলা অর্থের নির্বন্ধ ॥৬২॥
+
 > vrajera viśuddha-prema,--yena jāmbū-nada hema,
 > ātma-sukhera yāhāṅ nāhi gandha
 > se prema jānā'te loke, prabhu kailā ei śloke,

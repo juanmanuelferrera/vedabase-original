@@ -1,5 +1,8 @@
 ### CC Antya 2.52
 
+> তাঁহার প্রভাব-প্রেম জানে দুইজনে ।
+> আনিবে প্রভুরে এবে নিশ্চয় কৈলা মনে ॥৫২॥
+
 tāṅhāra prabhāva-prema jāne dui-jane
 
 ānibe prabhure ebe niścaya kailā mane

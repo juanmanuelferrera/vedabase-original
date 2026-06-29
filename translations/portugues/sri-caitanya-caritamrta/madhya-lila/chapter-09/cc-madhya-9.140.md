@@ -1,5 +1,8 @@
 ### CC Madhya 9.140
 
+> এই তাঁর গর্ব প্রভু করিতে খণ্ডন ৷
+> পরিহাসদ্বারে উঠায় এতেক বচন ৷৷ ১৪০ ৷৷ ॥১৪০॥
+
 ei tāṅra garva prabhu karite khaṇḍana
 
 parihāsa-dvāre uṭhāya eteka vacana

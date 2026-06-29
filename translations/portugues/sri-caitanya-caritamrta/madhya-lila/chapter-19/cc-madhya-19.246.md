@@ -1,5 +1,8 @@
 ### CC Madhya 19.246
 
+> আচম্বিতে প্রভু দেখি’ চরণে পড়িলা ।
+> আনন্দিত হঞা নিজ-গৃহে লঞা গেলা ॥২৪৬॥
+
 ācambite prabhu dekhi' caraṇe paḍilā
 
 ānandita hañā nija-gṛhe lañā gelā

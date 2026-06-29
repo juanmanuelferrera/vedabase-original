@@ -1,5 +1,8 @@
 ### CC Antya 7.43
 
+> সর্বোত্তম ভজন এই সর্বভক্তি জিনি’ ।
+> অতএব কৃষ্ণ কহে, — ‘আমি তোমার ঋণী’ ॥৪৩॥
+
 sarvottama bhajana ei sarva-bhakti jini'
 
 ataeva kṛṣṇa kahe,--'āmi tomāra ṛṇī'

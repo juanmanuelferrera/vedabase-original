@@ -1,5 +1,8 @@
 ### CC Madhya 14.3
 
+> জয় জয় শ্রীবাসাদি গৌরভক্তগণ ।
+> জয় শ্রোতাগণ, — যাঁর গৌর প্রাণধন ॥৩॥
+
 > jaya jaya śrīvāsādi gaura-bhakta-gaṇa
 > jaya śrotā-gaṇa,-yāṅra gaura prāṇa-dhana
 

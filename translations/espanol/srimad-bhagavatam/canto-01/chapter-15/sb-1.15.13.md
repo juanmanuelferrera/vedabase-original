@@ -1,5 +1,8 @@
 ### SB 1.15.13
 
+> तत्रैव मे विहरतो भुजदण्डयुग्मं गाण्डीवलक्षणमरातिवधाय देवाः ।
+> सेन्द्राः श्रिता यदनुभावितमाजमीढ तेनाहमद्य मुषितः पुरुषेण भूम्ना ॥१३॥
+
 > tatraiva me viharato bhuja-daṇḍa-yugmaṁ
 > gāṇḍīva-lakṣaṇam arāti-vadhāya devāḥ
 > sendrāḥ śritā yad-anubhāvitam ājamīḍha

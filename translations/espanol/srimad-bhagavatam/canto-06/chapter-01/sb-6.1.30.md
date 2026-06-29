@@ -1,5 +1,8 @@
 ### SB 6.1.30
 
+> निशम्य म्रियमाणस्य मुखतो हरिकीर्तनम
+> भर्तुर्नाम महाराज पार्षदाः सहसापतन ॥३०॥
+
 > niśamya mriyamāṇasya
 > mukhato hari-kīrtanam
 > bhartur nāma mahārāja

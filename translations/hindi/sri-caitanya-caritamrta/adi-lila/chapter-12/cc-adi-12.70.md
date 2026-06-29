@@ -1,5 +1,8 @@
 ### CC Adi 12.70
 
+> চৈতন্য-রহিত দেহ — শুষ্ককাষ্ঠ-সম ।
+> জীবিতেই মৃত সেই, মৈলে দণ্ডে যম ॥৭০॥
+
 > caitanya-rahita deha—śuṣkakāṣṭha-sama
 > jīvitei mṛta sei, maile daṇḍe yama
 

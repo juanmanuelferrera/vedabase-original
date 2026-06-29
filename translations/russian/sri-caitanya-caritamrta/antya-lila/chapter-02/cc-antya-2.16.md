@@ -1,5 +1,8 @@
 ### CC Antya 2.16
 
+> আম্বুয়া-মুলুকে হয় নকুল-ব্রহ্মচারী ।
+> পরম-বৈষ্ণব তেঁহো বড় অধিকারী ॥১৬॥
+
 > āmbuyā-muluke haya nakula-brahmacārī
 > parama-vaiṣṇava teṅho baḍa adhikārī
 

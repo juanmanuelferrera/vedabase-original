@@ -1,5 +1,8 @@
 ### CC Antya 5.54
 
+> শীঘ্র যাহ, যাবৎ তেঁহো আছেন সভাতে ।”
+> এত শুনি’ প্রদ্যুম্ন-মিশ্র চলিলা তুরিতে ॥৫৪॥
+
 śīghra yāha, yāvat teṅho āchena sabhāte"
 
 eta śuni' pradyumna-miśra calilā turite

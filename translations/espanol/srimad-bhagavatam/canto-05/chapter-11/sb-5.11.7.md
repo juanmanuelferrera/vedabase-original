@@ -1,5 +1,8 @@
 ### SB 5.11.7
 
+> तावानयं व्यवहारः सदाविः क्षेत्रज्ञअसाक्ष्यो भवति स्थूलसूक्ष्मः
+> तस्मान्मनो लिङ्गमदो वदन्ति गुणागुणत्वस्य परावरस्य ॥७॥
+
 > tāvān ayaṁ vyavahāraḥ sadāviḥ
 > kṣetrajña-sākṣyo bhavati sthūla-sūkṣmaḥ
 > tasmān mano liṅgam ado vadanti

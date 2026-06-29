@@ -1,5 +1,8 @@
 ### CC Antya 4.78
 
+> তোমার শরীর — মোর প্রধান 'সাধন' ।
+> এ শরীরে সাধিমু আমি বহু প্রয়োজন ॥৭৮॥
+
 > tomāra śarīra--mora pradhāna 'sādhana'
 > e śarīre sādhimu āmi bahu prayojana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.161
 
+> করিতে সমর্থ তুমি হও, দয়াময় ।
+> তুমি মন কর, তবে আনায়াসে হয় ॥১৬১॥
+
 > karite samartha tumi hao, dayāmaya
 > tumi mana kara, tabe anāyāse haya
 

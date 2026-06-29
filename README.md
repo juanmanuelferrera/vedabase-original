@@ -229,8 +229,9 @@ Each language carries two things per book:
   Each line is one verse with the full schema: `ref`, `book`, `lang`, `url`, `verse_text`,
   `devanagari`, `synonyms`, `translation`, `purport`.
 - **Generated Markdown** — one file per verse/chapter, mirroring the English layout exactly
-  (same paths, same `### Bg 1.1` headings). The Devanāgarī is kept in the jsonl but **omitted
-  from the Markdown**, matching the English verse files, which carry only the IAST `>` blockquote.
+  (same paths, same `### Bg 1.1` headings). Each verse carries the **Devanāgarī/Bengali śloka**
+  and the **IAST transliteration** as separate `>` blockquotes, the same as the English verse
+  files in the main folder.
 
 ### Source of truth runs the other way from English
 

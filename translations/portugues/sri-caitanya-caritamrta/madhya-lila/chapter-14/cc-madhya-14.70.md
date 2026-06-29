@@ -1,5 +1,8 @@
 ### CC Madhya 14.70
 
+> প্রাতঃকালে স্নান করি’ দেখি’ জগন্নাথ ।
+> সংকীর্তনে নৃত্য করে ভক্তগণ সাথ ॥৭০॥
+
 prātaḥ-kāle snāna kari' dekhi' jagannātha
 
 saṅkīrtane nṛtya kare bhakta-gaṇa sātha

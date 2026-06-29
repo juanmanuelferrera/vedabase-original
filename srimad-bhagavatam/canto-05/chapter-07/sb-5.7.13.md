@@ -1,5 +1,7 @@
 ### SB 5.7.13
 
+> इत्थं धृतभगवद्व्रत ऐणेयाजिनवाससानुसवनाभिषेकार्द्रकपिशकुटिलजटाकलापेन चविरोचमानः सूर्यर्चा भगवन्तं हिरण्मयं पुरुषमुज्जिहाने सूर्यमण्डलेऽभ्युपतिष्ठन्नेतदुहोवाच ॥१३॥
+
 > itthaṁ dhṛta-bhagavad-vrata aiṇeyājina-vāsasānusavanābhiṣekārdra-kapiśa-kuṭila-jaṭā-kalāpena ca virocamānaḥ sūryarcā bhagavantaṁ hiraṇmayaṁ puruṣam ujjihāne sūrya-maṇḍale 'bhyupatiṣṭhann etad u hovāca.
 
 *ittham*—in this way; *dhṛta-bhagavat-vrataḥ*—having accepted the vow to serve the Supreme Personality of Godhead; *aiṇeya-ajina-vāsasa*—with a dress of a deerskin; *anusavana*—three times in a day; *abhiṣeka*—by a bath; *ardra*—wet; *kapiśa*—tawny; *kuṭila-jaṭā*—of curling and matted hair; *kalāpena*—by masses; *ca*—and; *virocamānaḥ*—being very beautifully decorated; *sūryarcā*—by the Vedic hymns worshiping the expansion of Nārāyaṇa within the sun; *bhagavantam*—unto the Supreme Personality of Godhead; *hiraṇmayam*—the Lord, whose bodily hue is just like gold; *puruṣam*—the Supreme Personality of Godhead; *ujjihāne*—when rising; *sūrya-maṇḍale*—the sun globe; *abhyupatiṣṭhan*—worshiping; *etat*—this; *u ha*—certainly; *uvāca*—he recited.

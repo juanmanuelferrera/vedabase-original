@@ -1,5 +1,8 @@
 ### CC Antya 20.99
 
+> শ্রীমদনগোপাল মোরে লেখায় আজ্ঞা করি’ ।
+> কহিতে না যুয়ায়, তবু রহিতে না পারি ॥৯৯॥
+
 > śrī-madana-gopāla more lekhāya ājñā kari'
 > kahite nā yuyāya, tabu rahite nā pāri
 

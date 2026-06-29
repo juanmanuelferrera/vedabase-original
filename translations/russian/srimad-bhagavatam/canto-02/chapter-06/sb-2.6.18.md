@@ -1,5 +1,8 @@
 ### SB 2.6.18
 
+> सोऽमृतस्याभयस्येशो मर्त्यमन्नं यदत्यगात् ।
+> महिमैष ततो ब्रह्मन्पुरुषस्य दुरत्ययः ॥१८॥
+
 > so 'mṛtasyābhayasyeśo
 > martyam annaṁ yad atyagāt
 > mahimaiṣa tato brahman

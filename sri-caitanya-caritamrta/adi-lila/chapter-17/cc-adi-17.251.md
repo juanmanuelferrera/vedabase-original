@@ -1,5 +1,8 @@
 ### CC Adi 17.251
 
+> ভয়ে পলায় পড়ুয়া, প্রভু পাছে পাছে ধায় ।
+> আস্তে ব্যস্তে ভক্তগণ প্রভুরে রহায় ॥২৫১॥
+
 > bhaye palāya paḍuyā, prabhu pāche pāche dhāya
 > āste vyaste bhakta-gaṇa prabhure rahāya
 

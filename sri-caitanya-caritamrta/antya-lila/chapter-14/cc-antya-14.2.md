@@ -1,5 +1,8 @@
 ### CC Antya 14.2
 
+> জয় জয় শ্রীচৈতন্য স্বয়ং ভগবান্ ।
+> জয় জয় গৌরচন্দ্র ভক্তগণ-প্রাণ ॥২॥
+
 > jaya jaya śrī-caitanya svayaṁ bhagavān
 > jaya jaya gauracandra bhakta-gaṇa-prāṇa
 

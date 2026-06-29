@@ -1,5 +1,8 @@
 ### CC Madhya 17.200
 
+> প্রভু দেখি’ বৃন্দাবনের বৃক্ষ-লতাগণে ।
+> অঙ্কুর-পুলক, মধু-অশ্রু বরিষণে ॥২০০॥
+
 > prabhu dekhi' vṛndāvanera vṛkṣa-latā-gaṇe
 > aṅkura pulaka, madhu-aśru variṣaṇe
 

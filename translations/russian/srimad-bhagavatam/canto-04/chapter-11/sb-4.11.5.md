@@ -1,5 +1,8 @@
 ### SB 4.11.5
 
+> स तान्पृषत्कैरभिधावतो मृधे निकृत्तबाहूरुशिरोधरोदरान् ।
+> निनाय लोकं परमर्कमण्डलं व्रजन्ति निर्भिद्य यमूर्ध्वरेतसः ॥५॥
+
 > sa tān pṛṣatkair abhidhāvato mṛdhe
 > nikṛtta-bāhūru-śirodharodarān
 > nināya lokaṁ param arka-maṇḍalaṁ

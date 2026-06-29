@@ -1,5 +1,8 @@
 ### CC Madhya 24.119
 
+> গুণাকৃষ্ট হঞা করে কৃষ্ণের ভজন ।
+> একাদশ-স্কন্ধে তাঁর ভক্তি-বিবরণ ॥১১৯॥
+
 guṇākṛṣṭa hañā kare kṛṣṇera bhajana
 
 ekādaśa-skandhe tāṅra bhakti-vivaraṇa

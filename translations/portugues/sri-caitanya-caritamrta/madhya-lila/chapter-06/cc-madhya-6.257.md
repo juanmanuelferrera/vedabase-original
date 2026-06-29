@@ -1,5 +1,8 @@
 ### CC Madhya 6.257
 
+> সার্বভৌম হৈলা প্রভুর ভক্ত একতান ।
+> মহাপ্রভুর সেবা-বিনা নাহি জানে আন ॥২৫৭॥
+
 sārvabhauma hailā prabhura bhakta ekatāna
 
 mahāprabhura sevā-vinā nāhi jāne āna

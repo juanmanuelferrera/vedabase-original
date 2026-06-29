@@ -1,5 +1,8 @@
 ### SB 3.29.10
 
+> कर्मनिर्हारमुद्दिश्य परस्मिन्वा तदर्पणम् ।
+> यजेद्यष्टव्यमिति वा पृथग्भावः स सात्त्विकः ॥१०॥
+
 > karma-nirhāram uddiśya
 > parasmin vā tad-arpaṇam
 > yajed yaṣṭavyam iti vā

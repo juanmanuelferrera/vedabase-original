@@ -1,5 +1,7 @@
 ### SB 5.24.2
 
+> यददस्तरणेर्मण्डलं प्रतपतस्तद्विस्तरतो योजनायुतमाचक्षते द्वादशसहस्रंसोमस्य त्रयोदशसहस्रं राहोर्यः पर्वणि तद्व्यवधानकृद्वैरानुबन्धः सूर्याचन्द्रमसावभिधावति ॥२॥
+
 *yad adas taraṇer maṇḍalaṁ pratapatas tad vistarato yojanāyutam ācakṣate dvādaśa*-sahasraṁ somasya trayodaśa-sahasraṁ rāhor yaḥ parvaṇi tad-vyavadhāna-kṛd vairānubandhaḥ sūryā-candramasāv abhidhāvati.
 
 *yat*—que; *adaḥ*—aquele; *taraṇeḥ*—do sol; *maṇḍalam*—globo; *pratapataḥ*—que distribui sempre calor; *tat*—isso; *vistarataḥ*—em termos de largura; *yojana*—uma distância de oito milhas; *ayutam*—dez mil; *ācakṣate*—estimam; *dvādaśa-sahasram*—20.000 yojanas (160.000 milhas); *somasya*—da lua; *trayodaśa*—trinta; *sahasram*—mil; *rāhoḥ*—do planeta Rāhu; *yaḥ*—que; *parvaṇi*—em certa ocasião; *tat-vyavadhāna-kṛt*—que criou uma obstrução ao sol e à lua na ocasião da distribuição do néctar; *vaira-anubandhaḥ*—cujas intenções são hostis; *sūryā*—o sol; *candramasau*—e a lua; *abhidhāvati*—persegue-os na noite de lua cheia e no dia de lua nova.

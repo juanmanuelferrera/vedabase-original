@@ -1,5 +1,8 @@
 ### CC Adi 17.276
 
+> স্বমাধুর্য রাধা-প্রেমরস আস্বাদিতে ।
+> রাধাভাব অঙ্গী করিয়াছে ভালমতে ॥২৭৬॥
+
 sva-mādhurya rādhā-prema-rasa āsvādite
 
 rādhā-bhāva aṅgī kariyāche bhāla-mate

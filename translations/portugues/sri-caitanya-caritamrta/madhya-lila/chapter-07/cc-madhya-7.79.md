@@ -1,5 +1,8 @@
 ### CC Madhya 7.79
 
+> কাঞ্চন-সদৃশ দেহ, অরুণ বসন ৷
+> পুলকাশ্রু-কম্প-স্বেদ তাহাতে ভূষণ ৷৷ ৭৯ ৷৷ ॥৭৯॥
+
 kāñcana-sadṛśa deha, aruṇa vasana
 
 pulakāśru-kampa-sveda tāhāte bhūṣaṇa

@@ -1,5 +1,8 @@
 ### SB 1.19.23
 
+> समागताः सर्वत एव सर्वे वेदा यथा मूर्तिधरास्त्रिपृष्ठे ।
+> नेहाथ नामुत्र च कश्चनार्थ ऋते परानुग्रहमात्मशीलम् ॥२३॥
+
 > samāgatāḥ sarvata eva sarve
 > vedā yathā mūrti-dharās tri-pṛṣṭhe
 > nehātha nāmutra ca kaścanārtha

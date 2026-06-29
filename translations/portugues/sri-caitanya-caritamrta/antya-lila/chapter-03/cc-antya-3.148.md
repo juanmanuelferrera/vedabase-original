@@ -1,5 +1,8 @@
 ### CC Antya 3.148
 
+> নিত্যানন্দ-গোসাঞি গৌড়ে যবে আইলা ।
+> প্রেম প্রচারিতে তবে ভ্রমিতে লাগিলা ॥১৪৮॥
+
 nityānanda-gosāñi gauḍe yabe āilā
 
 prema pracārite tabe bhramite lāgilā

@@ -1,5 +1,8 @@
 ### CC Adi 14.74
 
+> শচী আসি’ কহে, — কেনে অশুচি ছুইঁলা ।
+> গঙ্গাস্নান কর যাই’ — অপবিত্র হইলা ॥৭৪॥
+
 śacī āsi' kahe,--kene aśuci chuṅilā
 
 gaṅgā-snāna kara yāi'--apavitra ha-ilā

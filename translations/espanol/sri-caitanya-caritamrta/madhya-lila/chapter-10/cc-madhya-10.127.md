@@ -1,5 +1,8 @@
 ### CC Madhya 10.127
 
+> জগদানন্দ, মুকুন্দ, শঙ্কর, সার্বভৌম ৷
+> সবা-সঙ্গে যথাযোগ্য করিল মিলন ৷৷ ১২৭ ৷৷ ॥১২৭॥
+
 > jagadānanda, mukunda, śaṅkara, sārvabhauma
 > sabā-saṅge yathā-yogya karila milana
 

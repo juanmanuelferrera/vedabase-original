@@ -1,5 +1,8 @@
 ### CC Adi 2.111
 
+> সেই ত’ ভক্তের বাক্য নহে ব্যভিচারী ।
+> সকল সম্ভবে তাঁতে, যাতে অবতারী ॥১১১॥
+
 sei ta' bhaktera vākya nahe vyabhicārī
 sakala sambhave tāṅte, yāte avatārī
 

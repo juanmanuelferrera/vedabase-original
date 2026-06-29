@@ -1,5 +1,8 @@
 ### CC Madhya 4.55
 
+> গ্রামের ব্রাহ্মণ সব নব ঘট লঞা ।
+> গোবিন্দ-কুণ্ডের জল আনিল ছানিঞা ॥৫৫॥
+
 grāmera brāhmaṇa saba nava ghaṭa lañā
 
 govinda-kuṇḍera jala ānila chāniñā

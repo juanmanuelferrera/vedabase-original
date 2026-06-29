@@ -1,5 +1,8 @@
 ### SB 8.24.11
 
+> योऽसावस्मिन्महाकल्पे तनयः स विवस्वतः
+> श्राद्धदेव इति ख्यातो मनुत्वे हरिणार्पितः ॥११॥
+
 yo 'sāv asmin mahā-kalpe
 tanayaḥ sa vivasvataḥ
 śrāddhadeva iti khyāto

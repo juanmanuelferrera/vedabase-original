@@ -1,5 +1,8 @@
 ### CC Adi 6.88
 
+> ভক্ত-অভিমান মূল শ্রীবলরামে ।
+> সেই ভাবে অনুগত তাঁর অংশগণে ॥৮৮॥
+
 bhakta-abhimāna mūla śrī-balarāme
 sei bhāve anugata tāṅra aṁśa-gaṇe
 

@@ -1,5 +1,8 @@
 ### Bg 8.6
 
+> यं यं वापि स्मरन्भावं त्यजत्यन्ते कलेवरम् ।
+> तं तमेवैति कौन्तेय सदा तद्भावभावितः ॥६॥
+
 > yaṁ yaṁ vāpi smaran bhāvaṁ
 > tyajaty ante kalevaram
 > taṁ tam evaiti kaunteya

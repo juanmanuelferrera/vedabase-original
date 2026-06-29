@@ -1,5 +1,8 @@
 ### CC Adi 12.82
 
+> ভূগর্ভ গোসাঞি, আর ভাগবতদাস ।
+> যেই দুই আসি’ কৈল বৃন্দাবনে বাস ॥৮২॥
+
 bhūgarbha gosāñi, āra bhāgavata-dāsa
 
 yei dui āsi' kaila vṛndāvane vāsa

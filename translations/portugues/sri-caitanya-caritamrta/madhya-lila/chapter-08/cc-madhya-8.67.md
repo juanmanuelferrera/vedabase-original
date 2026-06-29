@@ -1,5 +1,10 @@
 ### CC Madhya 8.67
 
+> জ্ঞানে প্রয়াসমুদপাস্য নমন্ত এব
+> জীবন্তি সন্মুখরিতাং ভবদীয়বার্তাম্ ৷
+> স্থানে স্থিতাঃ শ্রুতিগতাং তনুবাঙ্মনোভি-
+> র্যে প্রায়শোঽজিত জিতোঽপ্যসি তৈস্ত্রিলোক্যাম্ ৷৷ ৬৭ ৷৷ ॥৬৭॥
+
 jñāne prayāsam udapāsya namanta eva
 jīvanti san-mukharitāṁ bhavadīya-vārtām
 sthāne sthitāḥ śruti-gatāṁ tanu-vāṅ-manobhir

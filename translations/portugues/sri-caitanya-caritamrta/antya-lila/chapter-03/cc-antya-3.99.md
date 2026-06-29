@@ -1,5 +1,8 @@
 ### CC Antya 3.99
 
+> হরিদাস যবে নিজ-গৃহ ত্যাগ কৈলা ।
+> বেনাপোলের বন-মধ্যে কতদিন রহিলা ॥৯৯॥
+
 haridāsa yabe nija-gṛha tyāga kailā
 
 benāpolera vana-madhye kata-dina rahilā

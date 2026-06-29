@@ -1,5 +1,8 @@
 ### CC Madhya 16.91
 
+> গৌড়-দেশ দিয়া যাব তাঁ-সবা দেখিয়া ।
+> তুমি দুঁহে আজ্ঞা দেহ’ পরসন্ন হঞা ॥৯১॥
+
 > gauḍa-deśa diyā yāba tāṅ-sabā dekhiyā
 > tumi duṅhe ājñā deha' parasanna hañā
 

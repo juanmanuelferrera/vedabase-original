@@ -1,5 +1,8 @@
 ### CC Madhya 14.209
 
+> এত বলি’ মহালক্ষ্মীর সব দাসীগণে  ।
+> কটি-বস্ত্রে বান্ধি’ আনে প্রভুর নিজগণে ॥২০৯॥
+
 eta bali' mahā-lakṣmīra saba dāsī-gaṇe
 
 kaṭi-vastre bāndhi' āne prabhura nija-gaṇe

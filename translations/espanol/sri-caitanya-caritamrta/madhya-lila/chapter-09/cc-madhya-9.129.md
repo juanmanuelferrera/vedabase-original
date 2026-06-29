@@ -1,5 +1,8 @@
 ### CC Madhya 9.129
 
+> কেহ তাঁরে পুত্র-জ্ঞানে উদুখলে বান্ধে ৷
+> কেহ সখা-জ্ঞানে জিনি’ চড়ে তাঁর কান্ধে ৷৷ ১২৯ ৷৷ ॥১২৯॥
+
 > keha tāṅre putra-jñāne udukhale bāndhe
 > keha sakhā-jñāne jini' caḍe tāṅra kāndhe
 

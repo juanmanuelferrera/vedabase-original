@@ -1,5 +1,8 @@
 ### CC Madhya 4.96
 
+> মহাপ্রসাদ খাইল আসিয়া সব লোক ।
+> গোপাল দেখিয়া সবার খণ্ডে দুঃখ-শোক ॥৯৬॥
+
 mahā-prasāda khāila āsiyā saba loka
 gopāla dekhiyā sabāra khaṇḍe duḥkha-śoka
 

@@ -1,5 +1,8 @@
 ### CC Antya 10.63
 
+> রাজা আসি’ দূরে দেখে নিজগণ লঞা ।
+> রাজপত্নী সব দেখে অট্টালী চড়িয়া ॥৬৩॥
+
 > rājā āsi' dūre dekhe nija-gaṇa lañā
 > rāja-patnī saba dekhe aṭṭālī caḍiyā
 

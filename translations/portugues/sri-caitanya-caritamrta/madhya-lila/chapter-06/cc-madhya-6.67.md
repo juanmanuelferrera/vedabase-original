@@ -1,5 +1,8 @@
 ### CC Madhya 6.67
 
+> আর দিন গোপীনাথ প্রভু স্থানে গিয়া ।
+> শয্যোত্থান দরশন করাইল লঞা ॥৬৭॥
+
 āra dina gopīnātha prabhu sthāne giyā
 śayyotthāna daraśana karāila lañā
 

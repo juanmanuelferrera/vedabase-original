@@ -1,5 +1,10 @@
 ### SB 2.7.17
 
+> ज्यायान्गुणैरवरजोऽप्यदितेः सुतानां
+> लोकान्विचक्रम इमान्यदथाधियज्ञः ।
+> क्ष्मां वामनेन जगृहे त्रिपदच्छलेन
+> याच्ञामृते पथि चरन्प्रभुभिर्न चाल्यः ॥१७॥
+
 > jyāyān guṇair avarajo 'py aditeḥ sutānāṁ
 > lokān vicakrama imān yad athādhiyajñaḥ
 > kṣmāṁ vāmanena jagṛhe tripada-cchalena

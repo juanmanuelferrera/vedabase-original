@@ -1,5 +1,8 @@
 ### CC Madhya 25.236
 
+> প্রভু কহে, — “মহাপ্রসাদ আন’ এই স্থানে ।
+> সবা-সঙ্গে ইহাঁ আজি করিমু ভোজনে ।।” ॥ ২৩৬ ॥
+
 prabhu kahe,-"mahā-prasāda āna' ei sthāne
 
 sabā-saṅge ihāṅ āji karimu bhojane"

@@ -1,5 +1,8 @@
 ### CC Madhya 25.78
 
+> প্রভু কহে, — ‘বিষ্ণু’ ‘বিষ্ণু’, আমি ক্ষুদ্র জীব হীন ।
+> জীবে ‘বিষ্ণু’ মানি — এই অপরাধ-চিহ্ন ॥৭৮॥
+
 prabhu kahe,-'viṣṇu' 'viṣṇu', āmi kṣudra jīva hīna
 
 jīve 'viṣṇu' māni-ei aparādha-cihna

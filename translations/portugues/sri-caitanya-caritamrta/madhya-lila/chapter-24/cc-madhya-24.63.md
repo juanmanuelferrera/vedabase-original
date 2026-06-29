@@ -1,5 +1,8 @@
 ### CC Madhya 24.63
 
+> নিজ-গুণে তবে হরে দেহেন্দ্রিয়মন ।
+> ঐছে কৃপালু কৃষ্ণ, ঐছে তাঁর গুণ ॥৬৩॥
+
 nija-guṇe tabe hare dehendriya-mana
 
 aiche kṛpālu kṛṣṇa, aiche tāṅra guṇa

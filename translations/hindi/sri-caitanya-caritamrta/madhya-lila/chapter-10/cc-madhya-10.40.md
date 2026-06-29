@@ -1,5 +1,8 @@
 ### CC Madhya 10.40
 
+> তৃষিত চাতক যৈছে করে হাহাকার ।
+> তৈছে এই সব, — সবে কর অঙ্গীকার ॥৪০॥
+
 > tṛṣita cātaka yaiche kare hāhākāra
 > taiche ei saba,—sabe kara aṅgīkāra
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.235
 
+> যোড়-হাতে হরিদাসের বন্দিলা চরণ  ।
+> দ্বারে বসি’ কহে কিছু মধুর বচন ॥২৩৫॥
+
 > yoḍa-hāte haridāsera vandilā caraṇa
 > dvāre vasi' kahe kichu madhura vacana
 

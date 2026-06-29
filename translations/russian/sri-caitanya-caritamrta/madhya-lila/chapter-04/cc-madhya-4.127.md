@@ -1,5 +1,8 @@
 ### CC Madhya 4.127
 
+> উঠহ, পূজারী, কর দ্বার বিমোচন ।
+> ক্ষীর এক রাখিয়াছি সন্ন্যাসি-কারণ ॥১২৭॥
+
 > uṭhaha, pūjārī, kara dvāra vimocana
 > kṣīra eka rākhiyāchi sannyāsi-kāraṇa
 

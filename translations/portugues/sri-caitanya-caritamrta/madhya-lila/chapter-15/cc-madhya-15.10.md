@@ -1,5 +1,8 @@
 ### CC Madhya 15.10
 
+> পূজা-পাত্রে পুষ্প-তুলসী শেষ যে আছিল ।
+> সেই সব লঞা প্রভু আচার্যে পূজিল ॥১০॥
+
 pūjā-pātre puṣpa-tulasī śeṣa ye āchila
 sei saba lañā prabhu ācārye pūjila
 

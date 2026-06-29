@@ -1,5 +1,8 @@
 ### CC Madhya 11.78
 
+> আদৌ মালা অদ্বৈতেরে স্বরূপ পরাইল ।
+> পাছে গোবিন্দ দ্বিতীয় মালা আনি’ তাঁরে দিল ॥৭৮॥
+
 > ādau mālā advaitere svarūpa parāila
 > pāche govinda dvitīya mālā āni' tāṅre dila
 

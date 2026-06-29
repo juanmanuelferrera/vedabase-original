@@ -1,5 +1,8 @@
 ### CC Madhya 1.148
 
+> বৃন্দাবন যাইতে কৈল গৌড়েরে গমন ।
+> প্রতাপরুদ্র কৈল পথে বিবিধ সেবন ॥১৪৮॥
+
 vṛndāvana yāite kaila gauḍere gamana
 
 pratāparudra kaila pathe vividha sevana

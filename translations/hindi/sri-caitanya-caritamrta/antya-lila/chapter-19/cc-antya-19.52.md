@@ -1,5 +1,10 @@
 ### CC Antya 19.52
 
+> কৃষ্ণে কেনে করি রোষ, আপন দুর্দৈব-দোষ,
+> পাকিল মোর এই পাপফল ।
+> যে কৃষ্ণ — মোর প্রেমাধীন, তারে কৈল উদাসীন,
+> এই মোর অভাগ্য প্রবল ।।” ॥ ৫২ ॥
+
 > kṛṣṇe kene kari roṣa, āpana durdaiva-doṣa,
 > pākila mora ei pāpa-phala
 > ye kṛṣṇa--mora premādhīna, tāre kaila udāsīna,

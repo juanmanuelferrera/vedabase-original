@@ -1,5 +1,8 @@
 ### CC Adi 11.26
 
+> গৌরীদাস পণ্ডিত যাঁর প্রেমোদ্দণ্ডভক্তি ।
+> কৃষ্ণপ্রেমা দিতে, নিতে, ধরে মহাশক্তি ॥২৬॥
+
 gaurīdāsa paṇḍita yāṅra premoddaṇḍa-bhakti
 kṛṣṇa-premā dite, nite, dhare mahāśakti
 

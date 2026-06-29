@@ -1,5 +1,8 @@
 ### SB 8.11.23
 
+> नमुचिः पञ्चदशभिः स्वर्णपुङ्खैर्महेषुभिः
+> आहत्य व्यनदत्सङ्ख्ये सतोय इव तोयदः ॥२३॥
+
 > namuciḥ pañca-daśabhiḥ
 > svarṇa-puṅkhair maheṣubhiḥ
 > āhatya vyanadat saṅkhye

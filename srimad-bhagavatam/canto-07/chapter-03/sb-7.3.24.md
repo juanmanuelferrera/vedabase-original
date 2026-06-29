@@ -1,5 +1,8 @@
 ### SB 7.3.24
 
+> स निरीक्ष्याम्बरे देवं हंसवाहमुपस्थितम
+> ननाम शिरसा भूमौ तद्दर्शनमहोत्सवः ॥२४॥
+
 > sa nirīkṣyāmbare devaṁ
 > haṁsa-vāham upasthitam
 > nanāma śirasā bhūmau

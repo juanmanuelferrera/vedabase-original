@@ -1,5 +1,8 @@
 ### CC Adi 5.113
 
+> যুগ-মন্বন্তরে ধরি’ নানা অবতার ।
+> ধর্ম সংস্থাপন করে, অধর্ম সংহার ॥১১৩॥
+
 yuga-manvantare dhari' nānā avatāra
 dharma saṁsthāpana kare, adharma saṁhāra
 

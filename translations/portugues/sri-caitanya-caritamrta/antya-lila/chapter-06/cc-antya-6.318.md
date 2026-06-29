@@ -1,5 +1,8 @@
 ### CC Antya 6.318
 
+> ভিতরের দৃঢ় যেই মাজি ভাত পায়  ।
+> লবণ দিয়া রঘুনাথ সেই অন্ন খায় ॥৩১৮॥
+
 bhitarera dṛḍha yei māji bhāta pāya
 
 lavaṇa diyā raghunātha sei anna khāya

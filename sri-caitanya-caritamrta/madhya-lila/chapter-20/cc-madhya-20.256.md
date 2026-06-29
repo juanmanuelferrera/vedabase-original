@@ -1,5 +1,8 @@
 ### CC Madhya 20.256
 
+> অহঙ্কারের অধিষ্ঠাতা কৃষ্ণের ইচ্ছায় ।
+> গোলোক, বৈকুণ্ঠ সৃজে চিচ্ছক্তিদ্বারায় ॥২৫৬॥
+
 > ahaṅkārera adhiṣṭhātā kṛṣṇera icchāya
 > goloka, vaikuṇṭha sṛje cic-chakti-dvārāya
 

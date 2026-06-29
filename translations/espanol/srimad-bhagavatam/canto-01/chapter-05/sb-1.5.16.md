@@ -1,5 +1,8 @@
 ### SB 1.5.16
 
+> विचक्षणोऽस्यार्हति वेदितुं विभोरनन्तपारस्य निवृत्तितः सुखम् ।
+> प्रवर्तमानस्य गुणैरनात्मनस्ततो भवान्दर्शय चेष्टितं विभोः ॥१६॥
+
 > vicakṣaṇo 'syārhati vedituṁ vibhor
 > ananta-pārasya nivṛttitaḥ sukham
 > pravartamānasya guṇair anātmanas

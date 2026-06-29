@@ -1,5 +1,8 @@
 ### CC Madhya 1.244
 
+> কাশীতে প্রভুকে আসি’ মিলিলা সনাতন ।
+> দুই মাস রহি’ তাঁরে করাইলা শিক্ষণ ॥২৪৪॥
+
 kāśīte prabhuke āsi' mililā sanātana
 
 dui māsa rahi' tāṅre karāilā śikṣaṇa

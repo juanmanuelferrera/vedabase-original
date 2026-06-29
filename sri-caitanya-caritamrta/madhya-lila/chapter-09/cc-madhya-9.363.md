@@ -1,5 +1,8 @@
 ### CC Madhya 9.363
 
+> চৈতন্যচন্দ্রের লীলা — অগাধ, গম্ভীর ।
+> প্রবেশ করিতে নারি, — স্পর্শি রহি’ তীর ॥৩৬৩॥
+
 > caitanya-candrera līlā—agādha, gambhīra
 > praveśa karite nāri,—sparśi rahi' tīra
 

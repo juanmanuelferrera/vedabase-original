@@ -1,5 +1,8 @@
 ### CC Adi 4.238
 
+> কৃষ্ণের বিচার এক আছয়ে অন্তরে ।
+> পূর্ণানন্দ-পূর্ণরসরূপ কহে মোরে ॥২৩৮॥
+
 kṛṣṇera vicara eka āchaye antare
 
 pūrṇānanda-pūrṇa-rasa-rūpa kahe more

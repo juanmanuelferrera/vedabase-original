@@ -1,5 +1,8 @@
 ### CC Antya 1.124
 
+> স্বরূপ কহে, — “কৃষ্ণলীলার নাটক করিতে  ।
+> ব্রজলীলা-পুরলীলা একত্র বর্ণিতে ॥১২৪॥
+
 > svarūpa kahe,--"kṛṣṇa-līlāra nāṭaka karite
 > vraja-līlā-pura-līlā ekatra varṇite
 

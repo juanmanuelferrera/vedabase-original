@@ -1,5 +1,7 @@
 ### SB 5.22.16
 
+> तत उपरिष्टाद्योजनलक्षद्वयात्प्रतीयमानः शनैश्चर एकैकस्मिन्राशौत्रिंशन्मासान्विलम्बमानः सर्वानेवानुपर्येति तावद्भिरनुवत्सरैः प्रायेण हि सर्वेषामशान्तिकरः ॥१६॥
+
 *tata upariṣṭād yojana*-lakṣa-dvayāt pratīyamānaḥ śanaiścara ekaikasmin rāśau triṁśan māsān vilambamānaḥ sarvān evānuparyeti tāvadbhir anuvatsaraiḥ prāyeṇa hi sarveṣām aśāntikaraḥ.
 
 *tataḥ*—aquele (Júpiter); *upariṣṭāt*—acima; *yojana-lakṣa-dvayāt*—por uma distância de 1.600.000 milhas; *pratīyamānaḥ*—está situado; *śanaiścaraḥ*—o planeta Saturno; *eka-ekasmin*—em um após outro; *rāśau*—signos do zodíaco; *triṁśat māsān*—pelo período de trinta meses em cada um; *vilam-bamānaḥ*—demorando-se; *sarvān*—todos os doze signos do zodíaco; *eva*—certamente; *anuparyeti*—passa por; *tāvadbhiḥ*—por tantos; *anuvatsaraiḥ*—Anuvatsaras; *prāyeṇa*—quase sempre; *hi*—de fato; *sarveṣām*—a todos os habitantes; *aśāntikaraḥ*—muito perturbador.

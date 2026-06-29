@@ -1,5 +1,8 @@
 ### CC Antya 9.115
 
+> কে কহিতে পারে গৌরের আশ্চর্য স্বভাব ?
+> ব্রহ্মা-শিব আদি যাঁর না পায় অন্তর্ভাব ॥১১৫॥
+
 > ke kahite pāre gaurera āścarya svabhāva?
 > brahmā-śiva ādi yāṅra nā pāya antarbhāva
 

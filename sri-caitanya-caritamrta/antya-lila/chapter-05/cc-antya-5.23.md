@@ -1,5 +1,8 @@
 ### CC Antya 5.23
 
+> সঞ্চারী, সাত্ত্বিক, স্থায়ি-ভাবের লক্ষণ ।
+> মুখে নেত্রে অভিনয় করে প্রকটন ॥২৩॥
+
 > sañcārī, sāttvika, sthāyi-bhāvera lakṣaṇa
 > mukhe netre abhinaya kare prakaṭana
 

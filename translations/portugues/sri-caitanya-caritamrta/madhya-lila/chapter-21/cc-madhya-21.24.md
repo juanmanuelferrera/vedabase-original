@@ -1,5 +1,8 @@
 ### CC Madhya 21.24
 
+> ইহা দেখি’ ব্রহ্মা হৈলা মোহিত, বিস্মিত  ।
+> স্তুতি করি’ এই পাছে করিলা নিশ্চিত ॥২৪॥
+
 ihā dekhi' brahmā hailā mohita, vismita
 
 stuti kari' ei pāche karilā niścita

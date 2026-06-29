@@ -1,5 +1,8 @@
 ### CC Madhya 13.164
 
+> স্বরূপের ইন্দ্রিয়ে প্রভুর নিজেন্দ্রিয়গণ ।
+> আবিষ্ট হঞা করে গান-আস্বাদন ॥১৬৪॥
+
 svarūpera indriye prabhura nijendriya-gaṇa
 
 āviṣṭa hañā kare gāna-āsvādana

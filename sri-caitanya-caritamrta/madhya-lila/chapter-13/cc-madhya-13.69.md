@@ -1,5 +1,8 @@
 ### CC Madhya 13.69
 
+> এইমত হৈল কৃষ্ণের রথে আরোহণ ।
+> তার আগে প্রভু নাচাইল ভক্তগণ ॥৬৯॥
+
 > ei-mata haila kṛṣṇera rathe ārohaṇa
 > tāra āge prabhu nācāila bhakta-gaṇa
 

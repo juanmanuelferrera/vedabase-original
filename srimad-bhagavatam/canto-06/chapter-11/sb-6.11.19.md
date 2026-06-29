@@ -1,5 +1,8 @@
 ### SB 6.11.19
 
+> सुरेश कस्मान्न हिनोषि वज्रं पुरः स्थिते वैरिणि मय्यमोघम
+> मा संशयिष्ठा न गदेव वज्रः स्यान्निष्फलः कृपणार्थेव याचञ्आ ॥१९॥
+
 > sureśa kasmān na hinoṣi vajraṁ
 > puraḥ sthite vairiṇi mayy amogham
 > mā saṁśayiṣṭhā na gadeva vajraḥ

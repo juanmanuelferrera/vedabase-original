@@ -1,5 +1,8 @@
 ### SB 1.16.18
 
+> धर्मः पदैकेन चरन्विच्छायामुपलभ्य गाम् ।
+> पृच्छति स्माश्रुवदनां विवत्सामिव मातरम् ॥१८॥
+
 > dharmaḥ padaikena caran
 > vicchāyām upalabhya gām
 > pṛcchati smāśru-vadanāṁ

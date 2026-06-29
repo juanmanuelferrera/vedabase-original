@@ -1,5 +1,8 @@
 ### CC Madhya 15.194
 
+> পুরী-গোসাঞির ভিক্ষা পাঁচদিন মোর ঘরে ।
+> পূর্বে আমি কহিয়াছোঁ তোমার গোচরে ॥১৯৪॥
+
 purī-gosāñira bhikṣā pāṅca-dina mora ghare
 
 pūrve āmi kahiyāchoṅ tomāra gocare

@@ -1,5 +1,8 @@
 ### CC Madhya 20.372
 
+> শেষে ‘স্ব-সেবন’-শক্তি, পৃথুতে ‘পালন’  ।
+> পরশুরামে ‘দুষ্টনাশক-বীর্যসঞ্চারণ’ ॥৩৭২॥
+
 > śeṣe 'sva-sevana'-śakti, pṛthute 'pālana'
 > paraśurāme 'duṣṭa-nāśaka-vīrya-sañcāraṇa'
 

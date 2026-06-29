@@ -3,6 +3,9 @@
 > kintu yāṅra yei rasa, sei sarvottama
 > taṭa-stha hañā vicārile, āche tara-tama
 
+> kintu yāṅra yei rasa, sei sarvottama
+> taṭa-stha hañā vicārile, āche tara-tama
+
 *kintu*—no obstante; *yāṅra*—de algunos devotos; *yei rasa*—cualquiera que sea la melosidad de los intercambios de amor; *sei*—esa; *sarva-uttama*—la mejor; *taṭa-stha*—neutral; *hañā*—siendo; *vicārile*—si se considera; *āche*—hay; *tara-tama*—niveles inferiores y superiores.
 
 **«Es cierto que cualquiera que sea la relación que un devoto particular tenga con el Señor es la mejor para él; aun así, cuando estudiamos todos los diferentes métodos desde una posición neutral, podemos comprender que existen grados superiores e inferiores de amor.**

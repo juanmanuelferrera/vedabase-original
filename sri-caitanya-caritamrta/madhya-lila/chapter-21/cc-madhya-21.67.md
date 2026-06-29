@@ -1,5 +1,8 @@
 ### CC Madhya 21.67
 
+> দশ-বিশ-শত-সহস্র-অযুত-লক্ষ-বদন ।
+> কোট্যর্বুদ মুখ কারো, না যায় গণন ॥৬৭॥
+
 > daśa-biśa-śata-sahasra-ayuta-lakṣa-vadana
 > koṭy-arbuda mukha kāro, nā yāya gaṇana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 9.247
 
+> গোপীচন্দন-তলে আছিল ডিঙ্গাতে ।
+> মধ্বাচার্য সেই কৃষ্ণ পাইলা কোনমতে ॥২৪৭॥
+
 > gopī-candana-tale āchila ḍiṅgāte
 > madhvācārya sei kṛṣṇa pāilā kona-mate
 

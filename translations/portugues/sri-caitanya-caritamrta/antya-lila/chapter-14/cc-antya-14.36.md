@@ -1,5 +1,8 @@
 ### CC Antya 14.36
 
+> ভূমির উপর বসি’ নিজ-নখে ভূমি লিখে ।
+> অশ্রু-গঙ্গা নেত্রে বহে, কিছুই না দেখে ॥৩৬॥
+
 bhūmira upara vasi' nija-nakhe bhūmi likhe
 
 aśru-gaṅgā netre vahe, kichui nā dekhe

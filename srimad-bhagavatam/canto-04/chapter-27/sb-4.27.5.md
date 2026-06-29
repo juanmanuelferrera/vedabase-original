@@ -1,5 +1,8 @@
 ### SB 4.27.5
 
+> तयैवं रममाणस्य कामकश्मलचेतसः ।
+> क्षणार्धमिव राजेन्द्र व्यतिक्रान्तं नवं वयः ॥५॥
+
 > tayaivaṁ ramamāṇasya
 > kāma-kaśmala-cetasaḥ
 > kṣaṇārdham iva rājendra

@@ -1,5 +1,10 @@
 ### SB 2.7.28
 
+> यद्वै व्रजे व्रजपशून्विषतोयपीतान्
+> पालांस्त्वजीवयदनुग्रहदृष्टिवृष्ट्या ।
+> तच्छुद्धयेऽतिविषवीर्यविलोलजिह्वम्
+> उच्चाटयिष्यदुरगं विहरन्ह्रदिन्याम् ॥२८॥
+
 > yad vai vraje vraja-paśūn viṣatoya-pītān
 > pālāṁs tv ajīvayad anugraha-dṛṣṭi-vṛṣṭyā
 > tac-chuddhaye 'ti-viṣa-vīrya-vilola-jihvam

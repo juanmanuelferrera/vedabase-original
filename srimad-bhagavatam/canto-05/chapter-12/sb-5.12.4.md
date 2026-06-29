@@ -1,5 +1,8 @@
 ### SB 5.12.4
 
+> यदाह योगेश्वर दृश्यमानं क्रियाफलं सद्व्यवहारमूलम
+> न ह्यञ्जसा तत्त्वविमर्शनाय भवानमुष्मिन्भ्रमते मनो मे ॥४॥
+
 > yad āha yogeśvara dṛśyamānaṁ
 > kriyā-phalaṁ sad-vyavahāra-mūlam
 > na hy añjasā tattva-vimarśanāya

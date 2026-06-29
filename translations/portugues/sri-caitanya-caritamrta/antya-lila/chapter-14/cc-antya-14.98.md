@@ -1,5 +1,8 @@
 ### CC Antya 14.98
 
+> স্বরূপাদিগণ তাহাঁ আসিয়া মিলিলা ।
+> প্রভুর অবস্থা দেখি’ কান্দিতে লাগিলা ॥৯৮॥
+
 svarūpādi-gaṇa tāhāṅ āsiyā mililā
 
 prabhura avasthā dekhi' kāndite lāgilā

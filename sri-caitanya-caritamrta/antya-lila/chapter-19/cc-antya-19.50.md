@@ -1,5 +1,10 @@
 ### CC Antya 19.50
 
+> আপনার কর্ম-দোষ, তোরে কিবা করি রোষ,
+> তোয়-মোয় সম্বন্ধ বিদূর ।
+> যে আমার প্রাণনাথ, একত্র রহি যাঁর সাথ,
+> সেই কৃষ্ণ হইলা নিঠুর ! ॥ ৫০ ॥
+
 > āpanāra karma-doṣa, tore kibā kari roṣa,
 > toya-moya sambandha vidūra
 > ye āmāra prāṇa-nātha, ekatra rahi yāṅra sātha,

@@ -1,5 +1,8 @@
 ### SB 3.23.13
 
+> सर्वकामदुघं दिव्यं सर्वरत्नसमन्वितम् ।
+> सर्वर्द्ध्युपचयोदर्कं मणिस्तम्भैरुपस्कृतम् ॥१३॥
+
 > sarva-kāma-dughaṁ divyaṁ
 > sarva-ratna-samanvitam
 > sarvarddhy-upacayodarkaṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 24.318
 
+> কৃষ্ণ-তুল্য ভাগবত — বিভু, সর্বাশ্রয় ।
+> প্ৰতি-শ্লোকে প্ৰতি-অক্ষরে নানা অর্থ কয় ॥৩১৮॥
+
 > kṛṣṇa-tulya bhāgavata—vibhu, sarvāśraya
 > prati-śloke prati-akṣare nānā artha kaya
 

@@ -1,5 +1,8 @@
 ### SB 4.19.26
 
+> तदभिज्ञाय भगवान्पृथुः पृथुपराक्रमः ।
+> इन्द्राय कुपितो बाणमादत्तोद्यतकार्मुकः ॥२६॥
+
 > tad abhijñāya bhagavān
 > pṛthuḥ pṛthu-parākramaḥ
 > indrāya kupito bāṇam

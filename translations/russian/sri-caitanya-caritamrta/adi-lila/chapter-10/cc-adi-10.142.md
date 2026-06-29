@@ -1,5 +1,8 @@
 ### CC Adi 10.142
 
+> অপরশ যায় গোসাঞি মনুষ্য-গহনে ।
+> মনুষ্য ঠেলি’ পথ করে কাশী বলবানে ॥১৪২॥
+
 > aparaśa yāya gosāñi manuṣya-gahane
 > manuṣya ṭheli' patha kare kāśī balavāne
 

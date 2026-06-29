@@ -1,5 +1,8 @@
 ### CC Madhya 20.144
 
+> বেদাদি সকল শাস্ত্রে কৃষ্ণ — মুখ্য সম্বন্ধ ।
+> তাঁর জ্ঞানে আনুষঙ্গে যায় মায়াবন্ধ ॥১৪৪॥
+
 vedādi sakala śāstre kṛṣṇa--mukhya sambandha
 
 tāṅra jñāne ānuṣaṅge yāya māyā-bandha

@@ -1,5 +1,8 @@
 ### SB 4.21.42
 
+> यद्ब्रह्म नित्यं विरजं सनातनं श्रद्धातपोमङ्गलमौनसंयमैः ।
+> समाधिना बिभ्रति हार्थदृष्टये यत्रेदमादर्श इवावभासते ॥४२॥
+
 > yad brahma nityaṁ virajaṁ sanātanaṁ
 > śraddhā-tapo-maṅgala-mauna-saṁyamaiḥ
 > samādhinā bibhrati hārtha-dṛṣṭaye

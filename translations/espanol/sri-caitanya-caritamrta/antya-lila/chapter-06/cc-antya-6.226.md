@@ -1,5 +1,8 @@
 ### CC Antya 6.226
 
+> বৈরাগীর কৃত্য — সদা নাম-সঙ্কীর্তন ।
+> শাক-পত্র-ফল-মূলে উদর-ভরণ ॥২২৬॥
+
 > vairāgīra kṛtya--sadā nāma-saṅkīrtana
 > śāka-patra-phala-mūle udara-bharaṇa
 

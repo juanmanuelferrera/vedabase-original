@@ -1,5 +1,7 @@
 ### SB 5.20.42
 
+> योऽन्तर्विस्तार एतेन ह्यलोकपरिमाणं च व्याख्यातं यद्बहिर्लोकालोकाचलात्ततःपरस्ताद्योगेश्वरगतिं विशुद्धामुदाहरन्ति ॥४२॥
+
 *yo 'ntar*-vistāra etena hy aloka-parimāṇaṁ ca vyākhyātaṁ yad bahir lokālokācalāt; *tataḥ parastād yogeśvara*-gatiṁ viśuddhām udāharanti.
 
 *yaḥ*—aquilo que; *antaḥ-vistāraḥ*—a distância dentro da montanha Lokāloka; *etena*—por isto; *hi*—de fato; *aloka-parimāṇam*—a largura da extensão de terra conhecida como Aloka-varṣa; *ca*—e; *vyākhyātam*—descrita; *yat*—que; *bahiḥ*—fora; *lokāloka-acalāt*—para além da montanha Lokāloka; *tataḥ*—essa; *parastāt*—para além; *yogeśvara-gatim*—o caminho de Yogeśvara (Kṛṣṇa) ao penetrar as coberturas do universo; *viśuddhām*—sem contaminação material; *udāharanti*—eles dizem.

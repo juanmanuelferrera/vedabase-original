@@ -1,5 +1,8 @@
 ### CC Madhya 20.127
 
+> ইহাতে দৃষ্টান্ত — যৈছে দরিদ্রের ঘরে ।
+> ‘সর্বজ্ঞ’ আসি’ দুঃখ দেখি’ পুছয়ে তাহারে ॥১২৭॥
+
 > ihāte dṛṣṭānta—yaiche daridrera ghare
 > 'sarvajña' āsi' duḥkha dekhi' puchaye tāhāre
 

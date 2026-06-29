@@ -1,5 +1,8 @@
 ### CC Madhya 24.223
 
+> চ-শব্দে ‘অন্বাচয়ে’ অর্থ কহে আর ।
+> ‘বটো, ভিক্ষামট, গাঞ্চানয়’ যৈছে প্রকার ॥২২৩॥
+
 > ca-śabde 'anvācaye' artha kahe āra
 > 'baṭo, bhikṣām aṭa, gāṁ cānaya' yaiche prakāra
 

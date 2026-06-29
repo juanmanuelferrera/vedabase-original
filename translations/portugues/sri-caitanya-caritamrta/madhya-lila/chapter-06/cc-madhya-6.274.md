@@ -1,5 +1,8 @@
 ### CC Madhya 6.274
 
+> যদ্যপি তোমার অর্থ এই শব্দে কয় ।
+> তথাপি ‘আশ্লিষ্য-দোষে’ কহন না যায় ॥২৭৪॥
+
 yadyapi tomāra artha ei śabde kaya
 tathāpi 'āśliṣya-doṣe' kahana nā yāya
 

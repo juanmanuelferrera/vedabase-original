@@ -1,5 +1,8 @@
 ### CC Antya 14.14
 
+> রাধিকার ভাবে প্রভুর সদা ‘অভিমান’ ।
+> সেই ভাবে আপনাকে হয় ‘রাধা’-জ্ঞান ॥১৪॥
+
 > rādhikāra bhāve prabhura sadā 'abhimāna'
 > sei bhāve āpanāke haya 'rādhā'-jñāna
 

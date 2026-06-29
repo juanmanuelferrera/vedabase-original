@@ -1,5 +1,8 @@
 ### SB 3.29.36
 
+> एतद्भगवतो रूपं ब्रह्मणः परमात्मनः ।
+> परं प्रधानं पुरुषं दैवं कर्मविचेष्टितम् ॥३६॥
+
 > etad bhagavato rūpaṁ
 > brahmaṇaḥ paramātmanaḥ
 > paraṁ pradhānaṁ puruṣaṁ

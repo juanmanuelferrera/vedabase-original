@@ -1,5 +1,8 @@
 ### CC Madhya 17.169
 
+> শুনি’ প্রভু কৈল তাঁর চরণ বন্দন ।
+> ভয় পাঞা প্রভু-পায় পড়িলা ব্রাহ্মণ ॥১৬৯॥
+
 > śuni' prabhu kaila tāṅra caraṇa vandana
 > bhaya pāñā prabhu-pāya padilā brāhmaṇa
 

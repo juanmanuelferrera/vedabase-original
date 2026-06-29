@@ -1,5 +1,8 @@
 ### CC Antya 2.109
 
+> মধ্যাহ্নে আসিয়া প্রভু ভোজনে বসিলা  ।
+> শাল্যন্ন দেখি’ প্রভু আচার্যে পুছিলা ॥১০৯॥
+
 > madhyāhne āsiyā prabhu bhojane vasilā
 > śālyanna dekhi' prabhu ācārye puchilā
 

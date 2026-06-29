@@ -1,5 +1,8 @@
 ### CC Madhya 19.148
 
+> কোটিজ্ঞানি-মধ্যে হয় একজন ‘মুক্ত’ ।
+> কোটিমুক্ত-মধ্যে ‘দুর্লভ’ এক কৃষ্ণভক্ত ॥১৪৮॥
+
 koṭi-jñāni-madhye haya eka-jana 'mukta'
 
 koṭi-mukta-madhye 'durlabha' eka kṛṣṇa-bhakta

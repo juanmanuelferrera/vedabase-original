@@ -1,5 +1,8 @@
 ### CC Antya 7.76
 
+> দেখি’ বল্লভ-ভট্টের হৈল চমৎকার ।
+> আনন্দে বিহ্বল নাহি আপন-সাম্ভাল ॥৭৬॥
+
 > dekhi' vallabha-bhaṭṭera haila camatkāra
 > ānande vihvala nāhi āpana-sāmbhāla
 

@@ -1,5 +1,8 @@
 ### CC Madhya 23.70
 
+> অয়ং নেতা সুরম্যাঙ্গঃ সর্বসল্লক্ষণান্বিতঃ ।
+> রুচিরস্তেজসা যুক্তো বলীয়ান্ বয়সান্বিতঃ ॥৭০॥
+
 > ayaṁ netā suramyāṅgaḥ
 > sarva-sal-lakṣaṇānvitaḥ
 > ruciras tejasā yukto

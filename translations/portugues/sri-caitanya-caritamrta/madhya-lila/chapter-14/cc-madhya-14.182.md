@@ -1,5 +1,8 @@
 ### CC Madhya 14.182
 
+> এত শুনি’প্রভু হৈলা আনন্দিত মন ৷
+> সুখাবিষ্ট হঞা স্বরূপে কৈলা আলিঙ্গন ॥১৮২॥
+
 eta śuni' prabhu hailā ānandita mana
 
 sukhāviṣṭa hañā svarūpe kailā āliṅgana

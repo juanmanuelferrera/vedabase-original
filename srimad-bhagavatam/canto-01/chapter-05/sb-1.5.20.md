@@ -1,5 +1,8 @@
 ### SB 1.5.20
 
+> इदं हि विश्वं भगवानिवेतरो यतो जगत्स्थाननिरोधसम्भवाः ।
+> तद्धि स्वयं वेद भवांस्तथापि ते प्रादेशमात्रं भवतः प्रदर्शितम् ॥२०॥
+
 > idaṁ hi viśvaṁ bhagavān ivetaro
 > yato jagat-sthāna-nirodha-sambhavāḥ
 > tad dhi svayaṁ veda bhavāṁs tathāpi te

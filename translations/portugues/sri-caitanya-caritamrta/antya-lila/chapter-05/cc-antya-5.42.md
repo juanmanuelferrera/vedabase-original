@@ -1,5 +1,8 @@
 ### CC Antya 5.42
 
+> এক রামানন্দের হয় এই অধিকার ।
+> তাতে জানি অপ্রাকৃত-দেহ তাঁহার ॥৪২॥
+
 eka rāmānandera haya ei adhikāra
 
 tāte jāni aprākṛta-deha tāṅhāra

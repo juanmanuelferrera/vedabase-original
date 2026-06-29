@@ -1,5 +1,8 @@
 ### SB 3.9.31
 
+> तत आत्मनि लोके च भक्तियुक्तः समाहितः ।
+> द्रष्टासि मां ततं ब्रह्मन्मयि लोकांस्त्वमात्मनः ॥३१॥
+
 > tata ātmani loke ca
 > bhakti-yuktaḥ samāhitaḥ
 > draṣṭāsi māṁ tataṁ brahman

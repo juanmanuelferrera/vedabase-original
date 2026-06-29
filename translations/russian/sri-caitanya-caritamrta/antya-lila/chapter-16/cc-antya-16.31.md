@@ -1,5 +1,8 @@
 ### CC Antya 16.31
 
+> তাঁরে বিদায় দিয়া ঠাকুর যদি ঘরে আইল  ।
+> তাঁর চরণ-চিহ্ন যেই ঠাঞি পড়িল ॥৩১॥
+
 > tāṅre vidāya diyā ṭhākura yadi ghare āila
 > tāṅra caraṇa-cihna yei ṭhāñi paḍila
 

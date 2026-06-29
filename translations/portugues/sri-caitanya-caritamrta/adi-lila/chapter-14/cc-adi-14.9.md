@@ -1,5 +1,8 @@
 ### CC Adi 14.9
 
+> মিশ্র কহে, — বালগোপাল আছে শিলা-সঙ্গে ।
+> তেঁহো মূর্তি হঞা ঘরে খেলে, জানি, রঙ্গে ॥৯॥
+
 miśra kahe,--bālagopāla āche śilā-saṅge
 teṅho mūrti hañā ghare khele, jāni, raṅge
 

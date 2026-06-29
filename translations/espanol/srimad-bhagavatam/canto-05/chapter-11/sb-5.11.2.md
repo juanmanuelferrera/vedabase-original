@@ -1,5 +1,8 @@
 ### SB 5.11.2
 
+> तथैव राजन्नुरुगार्हमेध वितानविद्योरुविजृम्भितेषु
+> न वेदवादेषु हि तत्त्ववादः प्रायेण शुद्धो नु चकास्ति साधुः ॥२॥
+
 > tathaiva rājann uru-gārhamedha-
 > vitāna-vidyoru-vijṛmbhiteṣu
 > na veda-vādeṣu hi tattva-vādaḥ

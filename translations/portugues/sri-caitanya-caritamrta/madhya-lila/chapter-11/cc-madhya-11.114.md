@@ -1,5 +1,8 @@
 ### CC Madhya 11.114
 
+> তাহাঁ উপবাস, যাহাঁ নাহি মহাপ্রসাদ ৷
+> প্রভু-আজ্ঞা-প্রসাদ-ত্যাগে হয় অপরাধ ৷৷ ১১৪ ৷৷ ॥১১৪॥
+
 tāhāṅ upavāsa, yāhāṅ nāhi mahā-prasāda
 prabhu-ājñā-prasāda-tyāge haya aparādha
 

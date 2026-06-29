@@ -1,5 +1,8 @@
 ### CC Madhya 10.175
 
+> আজন্ম করিনু মুঞি ‘নিরাকার’-ধ্যান ।
+> তোমা দেখি’ ‘কৃষ্ণ’ হৈল মোর বিদ্যমান ॥১৭৫॥
+
 > ājanma karinu muñi 'nirākāra'-dhyāna
 > tomā dekhi' 'kṛṣṇa' haila mora vidyamāna
 

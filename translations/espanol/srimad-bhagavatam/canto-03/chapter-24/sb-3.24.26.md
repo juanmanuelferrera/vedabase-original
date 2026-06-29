@@ -1,5 +1,8 @@
 ### SB 3.24.26
 
+> स चावतीर्णं त्रियुगमाज्ञाय विबुधर्षभम् ।
+> विविक्त उपसङ्गम्य प्रणम्य समभाषत ॥२६॥
+
 > sa cāvatīrṇaṁ tri-yugam
 > ājñāya vibudharṣabham
 > vivikta upasaṅgamya

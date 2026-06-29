@@ -1,5 +1,8 @@
 ### CC Adi 14.10
 
+> সেই ক্ষণে জাগি’ নিমাই করয়ে ক্রন্দন ।
+> অঙ্কে লঞা শচী তাঁরে পিয়াইল স্তন ॥১০॥
+
 > sei kṣaṇe jāgi' nimāi karaye krandana
 > aṅke lañā śacī tāṅre piyāila stana
 

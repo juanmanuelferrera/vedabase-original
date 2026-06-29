@@ -1,5 +1,8 @@
 ### CC Adi 17.35
 
+> কপাট দিয়া কীর্তন করে পরম আবেশে ।
+> পাষণ্ডী হাসিতে আইসে, না পায় প্রবেশে ॥৩৫॥
+
 > kapāṭa diyā kīrtana kare parama āveśe
 > pāṣaṇḍī hāsite āise, nā pāya praveśe
 

@@ -1,5 +1,8 @@
 ### SB 1.12.21
 
+> धन्विनामग्रणीरेष तुल्यश्चार्जुनयोर्द्वयोः ।
+> हुताश इव दुर्धर्षः समुद्र इव दुस्तरः ॥२१॥
+
 > dhanvinām agraṇīr eṣa
 > tulyaś cārjunayor dvayoḥ
 > hutāśa iva durdharṣaḥ

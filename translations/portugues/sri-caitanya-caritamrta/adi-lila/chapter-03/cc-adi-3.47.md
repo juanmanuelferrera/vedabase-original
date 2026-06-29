@@ -1,5 +1,8 @@
 ### CC Adi 3.47
 
+> এই সব গুণ লঞা মুনি বৈশম্পায়ন ।
+> সহস্রনামে কৈল তাঁর নাম-গণন ॥৪৭॥
+
 ei saba guṇa lañā muni vaiśampāyana
 sahasra-nāme kaila tāṅra nāma-gaṇana
 

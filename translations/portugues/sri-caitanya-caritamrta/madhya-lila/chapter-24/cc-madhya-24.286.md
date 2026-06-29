@@ -1,5 +1,8 @@
 ### CC Madhya 24.286
 
+> তাঁতে রমে যেই, সেই সব — ‘আত্মারাম’ ।
+> ‘বিধিভক্ত’, ‘রাগভক্ত’, — দুইবিধ নাম ॥২৮৬॥
+
 tāṅte rame yei, sei saba--'ātmārāma'
 
 'vidhi-bhakta', 'rāga-bhakta',--dui-vidha nāma

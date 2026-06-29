@@ -1,5 +1,8 @@
 ### SB 9.3.15
 
+> पुरुषास्त्रय उत्तस्थुरपीव्या वनिताप्रियाः
+> पद्मस्रजः कुण्डलिनस्तुल्यरूपाः सुवाससः ॥१५॥
+
 > puruṣās traya uttasthur
 > apīvyā vanitā-priyāḥ
 > padma-srajaḥ kuṇḍalinas

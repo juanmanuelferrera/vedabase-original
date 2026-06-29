@@ -1,5 +1,8 @@
 ### CC Antya 10.19
 
+> ‘মনুষ্য’-বুদ্ধি দময়ন্তী করে প্রভুর পায় ।
+> গুরু-ভোজনে উদরে কভু ‘আম’ হঞা যায় ॥১৯॥
+
 > 'manuṣya'-buddhi damayantī kare prabhura pāya
 > guru-bhojane udare kabhu 'āma' hañā yāya
 

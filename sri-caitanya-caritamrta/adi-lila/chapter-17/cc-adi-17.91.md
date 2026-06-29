@@ -1,5 +1,8 @@
 ### CC Adi 17.91
 
+> পড়িতে আইলা স্তবে নৃসিংহের নাম ।
+> শুনিয়া আবিষ্ট হৈলা প্রভু গৌরধাম ॥৯১॥
+
 > paḍite āilā stave nṛsiṁhera nāma
 > śuniyā āviṣṭa hailā prabhu gauradhāma
 

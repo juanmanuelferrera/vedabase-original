@@ -1,5 +1,8 @@
 ### CC Madhya 22.73
 
+> ঈশ্বরে তদধীনেষু বালিশেষু দ্বিষৎসু চ ।
+> প্রেম-মৈত্রী-কৃপোপেক্ষা যঃ করোতি স মধ্যমঃ ॥৭৩॥
+
 > īśvare tad-adhīneṣu
 > bāliśeṣu dviṣatsu ca
 > prema-maitrī-kṛpopekṣā

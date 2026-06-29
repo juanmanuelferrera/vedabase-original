@@ -1,5 +1,8 @@
 ### CC Madhya 12.180
 
+> কাহাঁ ভট্টাচার্যের পূর্ব জড়-ব্যবহার  ।
+> কাহাঁ এই পরমানন্দ, — করহ বিচার ॥১৮০॥
+
 > kāhāṅ bhaṭṭācāryera pūrva jaḍa-vyavahāra
 > kāhāṅ ei paramānanda,-karaha vicāra
 

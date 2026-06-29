@@ -1,5 +1,8 @@
 ### CC Antya 6.296
 
+> এক কুঁজা জল আর তুলসী-মঞ্জরী ।
+> সাত্ত্বিক-সেবা এই — শুদ্ধ ভাবে করি ॥২৯৬॥
+
 eka kuṅjā jala āra tulasī-mañjarī
 
 sāttvika-sevā ei--śuddha-bhāve kari

@@ -1,5 +1,10 @@
 ### SB 3.15.21
 
+> श्री रूपिणी क्वणयती चरणारविन्दं
+> लीलाम्बुजेन हरिसद्मनि मुक्तदोषा ।
+> संलक्ष्यते स्फटिककुड्य उपेतहेम्नि
+> सम्मार्जतीव यदनुग्रहणेऽन्ययत्नः ॥२१॥
+
 > śrī rūpiṇī kvaṇayatī caraṇāravindaṁ
 > līlāmbujena hari-sadmani mukta-doṣā
 > saṁlakṣyate sphaṭika-kuḍya upeta-hemni

@@ -1,5 +1,8 @@
 ### CC Madhya 2.11
 
+> কাহাঁ নাহি শুনি যেই ভাবের বিকার ।
+> সেই ভাব হয় প্রভুর শরীরে প্রচার ॥১১॥
+
 > kāhāṅ nāhi śuni yei bhāvera vikāra
 > sei bhāva haya prabhura śarīre pracāra
 

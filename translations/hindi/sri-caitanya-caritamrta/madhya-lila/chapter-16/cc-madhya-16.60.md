@@ -1,5 +1,8 @@
 ### CC Madhya 16.60
 
+> আচার্য-গোসাঞি প্ৰভুকে কহে ঠারে-ঠোরে ।
+> আচার্য তর্জা পড়ে, কেহ বুঝিতে না পারে ॥৬০॥
+
 > ācārya-gosāñi prabhuke kahe ṭhāre-ṭhore
 > ācārya tarjā paḍe, keha bujhite nā pāre
 

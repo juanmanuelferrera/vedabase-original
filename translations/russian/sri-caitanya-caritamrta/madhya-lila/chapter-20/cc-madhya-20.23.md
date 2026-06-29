@@ -1,5 +1,7 @@
 ### CC Madhya 20.23
 
+> ‘এই ভূঞা কেনে মোরে সম্মান করিল ?’ এত চিন্তি’ সনাতন ঈশানে পুছিল ॥২৩॥
+
 > 'ei bhūñā kene more sammāna karila?'
 > eta cinti' sanātana īśāne puchila
 

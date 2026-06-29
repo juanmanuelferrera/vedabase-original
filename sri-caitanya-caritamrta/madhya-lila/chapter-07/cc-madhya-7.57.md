@@ -1,5 +1,8 @@
 ### CC Madhya 7.57
 
+> আজ্ঞা-মালা পাঞা হর্ষে নমস্কার করি’ ।
+> আনন্দে দক্ষিণ-দেশে চলে গৌরহরি ॥৫৭॥
+
 > ājñā-mālā pāñā harṣe namaskāra kari'
 > ānande dakṣiṇa-deśe cale gaurahari
 

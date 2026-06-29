@@ -1,5 +1,8 @@
 ### CC Adi 17.145
 
+> প্রভু বলেন, — আমি তোমার আইলাম অভ্যাগত ।
+> আমি দেখি’ লুকাইলা, — এ-ধর্ম কেমত ॥১৪৫॥
+
 prabhu balena,--āmi tomāra āilāma abhyāgata
 āmi dekhi' lukāilā,--e-dharma kemata
 

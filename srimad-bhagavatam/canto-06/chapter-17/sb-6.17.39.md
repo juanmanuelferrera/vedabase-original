@@ -1,5 +1,8 @@
 ### SB 6.17.39
 
+> एतत्ते सर्वमाख्यातं यन्मां त्वं परिपृच्छसि
+> वृत्रस्यासुरजातेश्च कारणं भगवन्मतेः ॥३९॥
+
 > etat te sarvam ākhyātaṁ
 > yan māṁ tvaṁ paripṛcchasi
 > vṛtrasyāsura-jāteś ca

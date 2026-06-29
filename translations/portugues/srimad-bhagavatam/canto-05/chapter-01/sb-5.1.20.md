@@ -1,5 +1,8 @@
 ### SB 5.1.20
 
+> श्रीशुक उवाच
+> इति समभिहितो महाभागवतो भगवतस्त्रिभुवनगुरोरनुशासनमात्मनो लघुतयावनतशिरोधरो बाढमिति सबहुमानमुवाह ॥२०॥
+
 śrī-śuka uvāca
 
 *iti samabhihito mahā*-bhāgavato bhagavatas tri-bhuvana-guror anuśāsanam ātmano laghutayāvanata-śirodharo bāḍham iti sabahu-mānam uvāha.

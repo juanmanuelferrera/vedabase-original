@@ -1,5 +1,8 @@
 ### CC Madhya 13.195
 
+> আগে নৃত্য করে গৌর লঞা ভক্তগণ ।
+> রথ রাখি’ জগন্নাথ করেন দরশন ॥১৯৫॥
+
 > āge nṛtya kare gaura lañā bhakta-gaṇa
 > ratha rākhi' jagannātha karena daraśana
 

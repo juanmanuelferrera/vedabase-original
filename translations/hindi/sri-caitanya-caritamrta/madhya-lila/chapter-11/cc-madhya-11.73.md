@@ -1,5 +1,8 @@
 ### CC Madhya 11.73
 
+> এত বলি’ তিন জন অট্টালিকায় চড়িল ।
+> হেনকালে বৈষ্ণব সব নিকটে আইল ॥৭৩॥
+
 > eta bali' tina jana aṭṭālikāya caḍila
 > hena-kāle vaiṣṇava saba nikaṭe āila
 

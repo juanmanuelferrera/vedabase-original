@@ -1,5 +1,8 @@
 ### CC Madhya 14.36
 
+> এইমত জগন্নাথ করেন ভোজন ।
+> এই সুখে মহাপ্রভুর জুড়ায় নয়ন ॥৩৬॥
+
 ei-mata jagannātha karena bhojana
 
 ei sukhe mahāprabhura juḍāya nayana

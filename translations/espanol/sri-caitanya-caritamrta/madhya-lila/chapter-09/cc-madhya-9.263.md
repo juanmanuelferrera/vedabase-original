@@ -1,5 +1,8 @@
 ### CC Madhya 9.263
 
+> কর্মনিন্দা, কর্মত্যাগ, সর্বশাস্ত্রে কহে ৷
+> কর্ম হৈতে প্রেমভক্তি কৃষ্ণে কভু নহে ৷৷ ২৬৩ ৷৷ ॥২৬৩॥
+
 > karma-nindā, karma-tyāga, sarva-śāstre kahe
 > karma haite prema-bhakti kṛṣṇe kabhu nahe
 

@@ -1,5 +1,7 @@
 ### SB 5.14.5
 
+> तत्र गतो दंशमशकसमापसदैर्मनुजैः शलभशकुन्ततस्करमूषकादिभिरुपरुध्यमानबहिःप्राणः क्वचित्परिवर्तमानोऽस्मिन्नध्वन्यविद्याकामकर्मभिरुपरक्तमनसानुपपन्नार्थं नरलोकं गन्धर्वनगरमुपपन्नमिति मिथ्यादृष्टिरनुपश्यति ॥५॥
+
 > tatra gato daṁśa-maśaka-samāpasadair manujaiḥ śalabha-śakunta-taskara-mūṣakādibhir uparudhyamāna-bahiḥ-prāṇaḥ kvacit parivartamāno 'sminn adhvany avidyā-kāma-karmabhir uparakta-manasānupapannārthaṁ nara-lokaṁ gandharva-nagaram upapannam iti mithyā-dṛṣṭir anupaśyati.
 
 *tatra*—to that household life; *gataḥ*—gone; *daṁśa*—gadflies; *maśaka*—mosquitoes; *sama*—equal to; *apasadaiḥ*—who are low-class; *manu-jaiḥ*—by men; *śalabha*—locusts; *śakunta*—a large bird of prey; *taskara*—thieves; *mūṣaka-ādibhiḥ*—by rats and so on; *uparudhyamāna*—being disturbed; *bahiḥ-prāṇaḥ*—the external life air in the form of wealth and so on; *kvacit*—sometimes; *parivartamānaḥ*—wandering; *asmin*—in this; *adhvani*—path of material existence; *avidyā-kāma*—by ignorance and lust; *karmabhiḥ*—and by fruitive activities; *uparakta-manasā*—due to the mind's being influenced; *anupapanna-artham*—in which the desired results are never obtained; *nara-lokam*—this material world; *gandharva-nagaram*—a will-o'-the-wisp city; *upapannam*—existing; *iti*—taking it as; *mithyā-dṛṣṭiḥ*—he whose vision is mistaken; *anupaśyati*—observes.

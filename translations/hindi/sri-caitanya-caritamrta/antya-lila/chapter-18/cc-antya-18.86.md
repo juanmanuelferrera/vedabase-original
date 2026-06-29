@@ -1,5 +1,10 @@
 ### CC Antya 18.86
 
+> বর্ষে স্থির তড়িদ্গণ, সিঞ্চে শ্যাম নবঘন,
+> ঘন বর্ষে তড়িৎ-উপরে ।
+> সখীগণের নয়ন, তৃষিত চাতকগণ,
+> সেই অমৃত সুখে পান করে ॥৮৬॥
+
 > varṣe sthira taḍid-gaṇa, siñce śyāma nava-ghana,
 > ghana varṣe taḍit-upare
 > sakhī-gaṇera nayana, tṛṣita cātaka-gaṇa,

@@ -1,5 +1,8 @@
 ### CC Adi 17.326
 
+> চতুর্দশে ‘বাল্যলীলা’র কিছু বিবরণ ।
+> পঞ্চদশে ‘পৌগণ্ডলীলা’র সংক্ষেপে কথন ॥৩২৬॥
+
 caturdaśe 'bālya-līlāra' kichu vivaraṇa
 pañcadaśe 'paugaṇḍa-līlāra' saṅkṣepe kathana
 

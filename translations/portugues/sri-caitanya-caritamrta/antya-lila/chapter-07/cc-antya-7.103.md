@@ -1,5 +1,8 @@
 ### CC Antya 7.103
 
+> একদিন ভট্ট পুছিল আচার্যেরে ।
+> “জীব-‘প্রকৃতি’ ‘পতি’ করি’ মানয়ে কৃষ্ণেরে ॥১০৩॥
+
 eka-dina bhaṭṭa puchila ācāryere
 
 "jīva-'prakṛti' 'pati' kari' mānaye kṛṣṇere

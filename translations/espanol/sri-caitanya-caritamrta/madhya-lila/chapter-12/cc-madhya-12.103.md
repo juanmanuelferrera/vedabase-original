@@ -1,5 +1,8 @@
 ### CC Madhya 12.103
 
+> ঘর ধুই’ প্রণালিকায় জল ছাড়ি’ দিল ।
+> সেই জলে প্রাঙ্গণ সব ভরিয়া রহিল ॥১০৩॥
+
 > ghara dhui' praṇālikāya jala chāḍi' dila
 > sei jale prāṅgaṇa saba bhariyā rahila
 

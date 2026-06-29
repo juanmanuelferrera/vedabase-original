@@ -1,5 +1,7 @@
 ### CC Antya 12.131
 
+> “ক্রোধাবেশের পাকের হয় ঐছে স্বাদ ! এই ত’ জানিয়ে তোমায় কৃষ্ণের ‘প্রসাদ’ ॥১৩১॥
+
 "krodhāveśera pākera haya aiche svāda!
 
 ei ta' jāniye tomāya kṛṣṇera 'prasāda'

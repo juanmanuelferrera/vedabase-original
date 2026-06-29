@@ -1,5 +1,8 @@
 ### CC Madhya 6.281
 
+> কাশীমিশ্র-আদি যত নীলাচলবাসী ।
+> শরণ লইল সবে প্ৰভু-পদে আসি’ ॥২৮১॥
+
 > kāśī-miśra-ādi yata nīlācala-vāsī
 > śaraṇa la-ila sabe prabhu-pade āsi'
 

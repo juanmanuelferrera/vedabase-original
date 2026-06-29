@@ -1,5 +1,8 @@
 ### CC Madhya 13.191
 
+> তবে প্রভু নিজ-ভক্তগণ লঞা সঙ্গে ।
+> বলদেব-সুভদ্রাগ্রে নৃত্য করে রঙ্গে ॥১৯১॥
+
 > tabe prabhu nija-bhakta-gaṇa lañā saṅge
 > baladeva-subhadrāgre nṛtya kare raṅge
 

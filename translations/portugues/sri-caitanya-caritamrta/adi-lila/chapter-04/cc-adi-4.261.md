@@ -1,5 +1,8 @@
 ### CC Adi 4.261
 
+> তাতে জানি, মোতে আছে কোন এক রস ।
+> আমার মোহিনী রাধা, তারে করে বশ ॥২৬১॥
+
 tāte jāni, mote āche kona eka rasa
 
 āmāra mohinī rādhā, tāre kare vaśa

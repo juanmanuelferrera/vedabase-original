@@ -1,5 +1,10 @@
 ### SB 3.16.11
 
+> ये ब्राह्मणान्मयि धिया क्षिपतोऽर्चयन्तस्
+> तुष्यद्धृदः स्मितसुधोक्षितपद्मवक्त्राः ।
+> वाण्यानुरागकलयात्मजवद्गृणन्तः
+> सम्बोधयन्त्यहमिवाहमुपाहृतस्तैः ॥११॥
+
 ye brāhmaṇān mayi dhiyā kṣipato 'rcayantas
 *tuṣyad*-dhṛdaḥ smita-sudhokṣita-padma-vaktrāḥ
 *vāṇyānurāga*-kalayātmajavad gṛṇantaḥ

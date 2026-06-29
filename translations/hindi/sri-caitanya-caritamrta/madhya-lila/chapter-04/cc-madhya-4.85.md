@@ -1,5 +1,8 @@
 ### CC Madhya 4.85
 
+> অন্য গ্রামের লোক যত দেখিতে আইল ।
+> গোপাল দেখিয়া সবে প্রসাদ খাইল ॥৮৫॥
+
 > anya grāmera loka yata dekhite āila
 > gopāla dekhiyā saba prasāda khāila
 

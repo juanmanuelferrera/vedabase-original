@@ -1,5 +1,8 @@
 ### SB 1.10.8
 
+> आमन्त्र्य चाभ्यनुज्ञातः परिष्वज्याभिवाद्य तम् ।
+> आरुरोह रथं कैश्चित्परिष्वक्तोऽभिवादितः ॥८॥
+
 > āmantrya cābhyanujñātaḥ
 > pariṣvajyābhivādya tam
 > āruroha rathaṁ kaiścit

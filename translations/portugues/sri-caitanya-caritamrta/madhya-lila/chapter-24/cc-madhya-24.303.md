@@ -1,5 +1,8 @@
 ### CC Madhya 24.303
 
+> সর্বসমুচ্চয়ে আর এক অর্থ হয় ।
+> ‘আত্মারামাশ্চ মুনয়শ্চ নির্গ্রন্থাশ্চ’ ভজয় ॥৩০৩॥
+
 sarva-samuccaye āra eka artha haya
 
 'ātmārāmāś ca munayaś ca nirgranthāś ca' bhajaya

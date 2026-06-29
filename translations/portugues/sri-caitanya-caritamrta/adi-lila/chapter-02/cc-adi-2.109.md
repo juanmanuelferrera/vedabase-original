@@ -1,5 +1,8 @@
 ### CC Adi 2.109
 
+> সেই কৃষ্ণ অবতারী ব্রজেন্দ্রকুমার ।
+> আপনে চৈতন্যরূপে কৈল অবতার ॥১০৯॥
+
 sei kṛṣṇa avatārī vrajendra-kumāra
 āpane caitanya-rūpe kaila avatāra
 

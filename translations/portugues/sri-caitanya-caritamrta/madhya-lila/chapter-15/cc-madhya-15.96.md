@@ -1,5 +1,8 @@
 ### CC Madhya 15.96
 
+> ইহার ঘরের আয়-ব্যয় সব — তোমার স্থানে ।
+> ‘সরখেল’ হঞা তুমি করিহ সমাধানে ॥৯৬॥
+
 ihāra gharera āya-vyaya saba--tomāra sthāne
 
 'sara-khela' hañā tumi kariha samādhāne

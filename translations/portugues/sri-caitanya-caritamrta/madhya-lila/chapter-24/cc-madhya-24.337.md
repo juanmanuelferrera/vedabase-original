@@ -1,5 +1,8 @@
 ### CC Madhya 24.337
 
+> শঙ্খ-জল-গন্ধ-পুষ্প-ধূপাদি-লক্ষণ ।
+> জপ, স্তুতি, পরিক্রমা, দণ্ডবৎ বন্দন ॥৩৩৭॥
+
 śaṅkha-jala-gandha-puṣpa-dhūpādi-lakṣaṇa
 
 japa, stuti, parikramā, daṇḍavat vandana

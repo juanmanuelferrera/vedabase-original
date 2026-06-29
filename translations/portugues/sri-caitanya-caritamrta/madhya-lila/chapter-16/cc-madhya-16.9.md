@@ -1,5 +1,8 @@
 ### CC Madhya 16.9
 
+> কার্তিক আইলে কহে — এবে মহাশীত ।
+> দোলযাত্রা দেখি’ যাও — এই ভাল রীত ॥৯॥
+
 kārtika āile kahe--ebe mahā-śīta
 dola-yātrā dekhi' yāo--ei bhāla rīta
 

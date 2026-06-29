@@ -1,5 +1,7 @@
 ### SB 5.7.11
 
+> तस्मिन्वाव किल स एकलः पुलहाश्रमोपवने विविधकुसुमकिसलयतुलसिकाम्बुभिः कन्दमूलफलोपहारैश्च समीहमानो भगवत आराधनं विविक्त उपरतविषयाभिलाष उपभृतोपशमः परांनिर्वृतिमवाप ॥११॥
+
 > tasmin vāva kila sa ekalaḥ pulahāśramopavane vividha-kusuma-kisalaya-tulasikāmbubhiḥ kanda-mūla-phalopahāraiś ca samīhamāno bhagavata ārādhanaṁ vivikta uparata-viṣayābhilāṣa upabhṛtopaśamaḥ parāṁ nirvṛtim avāpa.
 
 *tasmin*—en ese *āśrama*; *vāva kila*—en verdad; *saḥ*—Bharata Mahārāja; *ekalaḥ*—en soledad, solamente; *pulaha-āśrama-upavane*—en los jardines de Pulaha-āśrama; *vividha-kusuma-kisalaya-tulasikā-ambubhiḥ*—con diversas clases de flores, ramitas y hojas de *tulasī,* además de agua; *kanda-mūla-phala-upahāraiḥ*—con ofrenda de raíces, bulbos y fruta; *ca*—y; *samīhamānaḥ*—llevar a cabo; *bhagavataḥ*—de la Suprema Personalidad de Dios; *ārādhanam*—adorar; *viviktaḥ*—purificado; *uparata*—liberado de; *viṣaya-abhilāṣaḥ*—deseo de disfrute material de los sentidos; *upabhṛta*—aumentó; *upaśamaḥ*—tranquilidad; *parām*—trascendental; *nirvṛtim*—satisfacción; *avāpa*—obtuvo.

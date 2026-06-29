@@ -1,5 +1,8 @@
 ### CC Madhya 23.103
 
+> তুমিহ করিহ ভক্তি-শাস্ত্রের প্রচার ।
+> মথুরায় লুপ্ততীর্থের করিহ উদ্ধার ॥১০৩॥
+
 tumiha kariha bhakti-śāstrera pracāra
 
 mathurāya lupta-tīrthera kariha uddhāra

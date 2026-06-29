@@ -1,5 +1,10 @@
 ### CC Madhya 21.117
 
+> সেই ত’ মাধুর্য-সার, অন্য-সিদ্ধি নাহি তার,
+> তিঁহো — মাধুর্যাদি-গুণখনি ।
+> আর সব প্রকাশে, তাঁর দত্ত গুণ ভাসে,
+> যাহাঁ যত প্রকাশে কার্য জানি ॥১১৭॥
+
 > sei ta' mādhurya-sāra, anya-siddhi nāhi tāra,
 > tiṅho—mādhuryādi-guṇa-khani
 > āra saba prakāśe, tāṅra datta guṇa bhāse,

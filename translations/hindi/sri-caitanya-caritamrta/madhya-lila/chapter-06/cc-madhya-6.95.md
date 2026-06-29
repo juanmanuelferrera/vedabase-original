@@ -1,5 +1,8 @@
 ### CC Madhya 6.95
 
+> অতএব ‘ত্রিযুগ’ করি’ কহি বিষ্ণুনাম ।
+> কলিযুগে অবতার নাহি, — শাস্ত্রজ্ঞান ॥৯৫॥
+
 > ataeva 'tri-yuga' kari' kahi viṣṇu-nāma
 > kali-yuge avatāra nāhī,--śāstra-jñāna
 

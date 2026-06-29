@@ -1,5 +1,8 @@
 ### CC Madhya 21.28
 
+> কৃষ্ণের মহিমা রহু — কেবা তার জ্ঞাতা ।
+> বৃন্দাবন-স্থানের দেখ আশ্চর্য বিভুতা ॥২৮॥
+
 > kṛṣṇera mahimā rahu--kebā tāra jñātā
 > vṛndāvana-sthānera dekha āścarya vibhutā
 

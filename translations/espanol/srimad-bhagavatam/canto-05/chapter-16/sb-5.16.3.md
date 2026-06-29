@@ -1,5 +1,7 @@
 ### SB 5.16.3
 
+> भगवतो गुणमये स्थूलरूप आवेशितं मनो ह्यगुणेऽपि सूक्ष्मतम आत्मज्योतिषि परे ब्रह्मणिभगवति वासुदेवाख्ये क्षममावेशितुं तदु हैतद्गुरोऽर्हस्यनुवर्णयितुमिति ॥३॥
+
 > bhagavato guṇamaye sthūla-rūpa āveśitaṁ mano hy aguṇe 'pi sūkṣmatama ātma-jyotiṣi pare brahmaṇi bhagavati vāsudevākhye kṣamam āveśituṁ tad u haitad guro 'rhasy anuvarṇayitum iti.
 
 *bhagavataḥ*—de la Suprema Personalidad de Dios; *guṇa-maye*—en los aspectos externos, compuestos de las tres modalidades de la naturaleza material; *sthūla-rūpe*—la forma densa; *āveśitam*—entrado; *manaḥ*—la mente; *hi*—en verdad; *aguṇe*—trascendental; *api*—aunque; *sūkṣmatame*—en Su forma más pequeña, como Paramātmā en el corazón; *ātma-jyotiṣi*—que está pleno de refulgencia Brahman; *pare*—la suprema; *brahmaṇi*—entidad espiritual; *bhagavati*—la Suprema Personalidad de Dios; *vāsudeva-ākhye*—que recibe el nombre de Bhagavān Vāsudeva; *kṣamam*—adecuado; *āveśitum*—absorber; *tat*—esa; *u ha*—en verdad; *etat*—esto; *guro*—¡oh, mi querido maestro espiritual!; *arhasi anuvarṇayitum*—por favor, explica concretamente; *iti*—así.

@@ -1,5 +1,8 @@
 ### CC Madhya 18.45
 
+> পর্বতে না চড়ে দুই — রূপ-সনাতন ৷
+> এইরূপে তাঁ-সবারে দিয়াছেন দরশন ॥৪৫॥
+
 > parvate nā caḍe dui--rūpa-sanātana
 > ei-rūpe tāṅ-sabāre diyāchena daraśana
 

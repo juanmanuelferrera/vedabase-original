@@ -1,5 +1,8 @@
 ### CC Madhya 13.33
 
+> চারি সম্প্রদায়ে হৈল চব্বিশ গায়ন ।
+> দুই দুই মার্দঙ্গিক হৈল অষ্ট জন ॥৩৩॥
+
 > cāri sampradāye haila cabbiśa gāyana
 > dui dui mārdaṅgika haila aṣṭa jana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 20.82
 
+> সনাতনের বৈরাগ্যে প্রভুর আনন্দ অপার ।
+> ভোটকম্বল পানে প্রভু চাহে বারে বার ॥৮২॥
+
 > sanātanera vairāgye prabhura ānanda apāra
 > bhoṭa-kambala pāne prabhu cāhe bāre bāra
 

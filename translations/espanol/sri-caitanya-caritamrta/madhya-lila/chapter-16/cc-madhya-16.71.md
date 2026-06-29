@@ -1,5 +1,8 @@
 ### CC Madhya 16.71
 
+> তেঁহো কহে, — “কে বৈষ্ণব, কি তাঁর লক্ষণ ?”
+> তবে হাসি’ কহে প্রভু জানি’ তাঁর মন ॥৭১॥
+
 > teṅho kahe,–"ke vaiṣṇava, ki tāṅra lakṣaṇa?"
 > tabe hāsi' kahe prabhu jāni' tāṅra mana
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.188
 
+> বার দিনে চলি’ গেলা শ্রীপুরুষোত্তম ।
+> পথে তিনদিন মাত্র করিলা ভোজন ॥১৮৮॥
+
 bāra dine cali' gelā śrī-puruṣottama
 
 pathe tina-dina mātra karilā bhojana

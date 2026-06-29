@@ -1,5 +1,8 @@
 ### CC Madhya 10.114
 
+> অতএব স্বরূপ আগে করে পরীক্ষণ ৷
+> শুদ্ধ হয় যদি, প্রভুরে করা’ন শ্রবণ ৷৷ ১১৪ ৷৷ ॥১১৪॥
+
 > ataeva svarūpa āge kare parīkṣaṇa
 > śuddha haya yadi, prabhure karā'na śravaṇa
 

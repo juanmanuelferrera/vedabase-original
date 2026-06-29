@@ -1,5 +1,8 @@
 ### CC Adi 5.59
 
+> জগৎকারণ নহে প্রকৃতি জড়রূপা ।
+> শক্তি সঞ্চারিয়া তারে কৃষ্ণ করে কৃপা ॥৫৯॥
+
 jagat-kāraṇa nahe prakṛti jaḍa-rūpā
 śakti sañcāriyā tāre kṛṣṇa kare kṛpā
 

@@ -1,5 +1,8 @@
 ### CC Antya 2.81
 
+> প্রেমবশ গৌরপ্রভু, যাহাঁ প্রেমোত্তম ।
+> প্রেমবশ হঞা তাহা দেন দরশন ॥৮১॥
+
 prema-vaśa gaura-prabhu, yāhāṅ premottama
 
 prema-vasa hañā tāhā dena daraśana

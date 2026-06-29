@@ -1,5 +1,7 @@
 ### SB 5.26.35
 
+> यस्त्विह वा अतिथीनभ्यागतान्वा गृहपतिरसकृदुपगतमन्युर्दिधक्षुरिव पापेनचक्षुषा निरीक्षते तस्य चापि निरये पापदृष्टेरक्षिणी वज्रतुण्डा गृध्राः कङ्ककाकवटादयः प्रसह्योरुबलादुत्पाटयन्ति ॥३४॥
+
 > yas tv iha vā atithīn abhyāgatān vā gṛha-patir asakṛd upagata-manyur didhakṣur iva pāpena cakṣuṣā nirīkṣate tasya cāpi niraye pāpa-dṛṣṭer akṣiṇī vajra-tuṇḍā gṛdhrāḥ kaṅka-kāka-vaṭādayaḥ prasahyoru-balād utpāṭayanti.
 
 *yaḥ*—una persona que; *tu*—pero; *iha*—en esta vida; *vā*—o; *atithīn*—huéspedes; *abhyāgatān*—visitantes; *vā*—o; *gṛha-patiḥ*—jefe de familia; *asakṛt*—muchas veces; *upagata*—obtener; *manyuḥ*—ira; *didhakṣuḥ*—quien desea quemar; *iva*—como; *pāpena*—pecaminosos; *cakṣuṣā*—con ojos; *nirīkṣate*—mira a; *tasya*—de él; *ca*—y; *api*—ciertamente; *niraye*—en el infierno; *pāpa-dṛṣṭeḥ*—de aquel cuya mirada se ha vuelto pecaminosa; *akṣiṇī*—los ojos; *vajra-tuṇḍāḥ*—los que tienen picos poderosos; *gṛdhrāḥ*—buitres; *kaṅka*—garzas; *kāka*—cuervos; *vaṭa-ādayaḥ*—y otras aves; *prasahya*—con violencia; *uru-balāt*—con gran fuerza; *utpāṭayanti*—sacan.

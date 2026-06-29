@@ -1,5 +1,8 @@
 ### CC Madhya 8.166
 
+> রাধা-প্রতি কৃষ্ণ-স্নেহ — সুগন্ধি উদ্বর্তন ।
+> তা’তে অতি সুগন্ধি দেহ — উজ্জ্বল-বরণ ॥১৬৬॥
+
 > rādhā-prati kṛṣṇa-sneha--sugandhi udvartana
 > tā'te ati sugandhi deha--ujjvala-varaṇa
 

@@ -1,5 +1,8 @@
 ### CC Adi 17.137
 
+> পাছে সম্প্রদায়ে নৃত্য করে গৌরচন্দ্র ।
+> তাঁর সঙ্গে নাচি’ বুলে প্রভু নিত্যানন্দ ॥১৩৭॥
+
 pāche sampradāye nṛtya kare gauracandra
 tāṅra saṅge nāci' bule prabhu nityānanda
 

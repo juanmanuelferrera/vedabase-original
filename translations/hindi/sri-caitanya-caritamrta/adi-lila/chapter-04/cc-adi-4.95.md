@@ -1,5 +1,8 @@
 ### CC Adi 4.95
 
+> জগৎমোহন কৃষ্ণ, তাঁহার মোহিনী ।
+> অতএব সমস্তের পরা ঠাকুরাণী ॥৯৫॥
+
 > jagat-mohana kṛṣṇa, tāṅhāra mohinī
 > ataeva samastera parā ṭhākurāṇī
 

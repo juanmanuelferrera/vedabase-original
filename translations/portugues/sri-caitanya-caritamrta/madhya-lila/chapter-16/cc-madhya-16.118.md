@@ -1,5 +1,8 @@
 ### CC Madhya 16.118
 
+> প্রভুর চলিবার পথে রহে সারি হঞা ।
+> সন্ধ্যাতে চলিলা প্রভু নিজগণ লঞা ॥১১৮॥
+
 prabhura calibāra pathe rahe sāri hañā
 
 sandhyāte calilā prabhu nija-gaṇa lañā

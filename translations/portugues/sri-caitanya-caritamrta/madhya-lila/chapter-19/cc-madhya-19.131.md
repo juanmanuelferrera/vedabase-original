@@ -1,5 +1,8 @@
 ### CC Madhya 19.131
 
+> কভু ভক্তিরসশাস্ত্র করয়ে লিখন ।
+> চৈতন্যকথা শুনে, করে চৈতন্য-চিন্তন ।।” ॥ ১৩১ ॥
+
 kabhu bhakti-rasa-śāstra karaye likhana
 
 caitanya-kathā śune, kare caitanya-cintana"

@@ -1,5 +1,8 @@
 ### CC Madhya 13.115
 
+> ধীরে ধীরে জগন্নাথ করেন গমন ।
+> আগে নৃত্য করি’ চলেন শচীর নন্দন ॥১১৫॥
+
 dhīre dhīre jagannātha karena gamana
 
 āge nṛtya kari' calena śacīra nandana

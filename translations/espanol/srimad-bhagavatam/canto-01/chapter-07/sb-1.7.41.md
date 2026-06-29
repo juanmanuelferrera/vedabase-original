@@ -1,5 +1,8 @@
 ### SB 1.7.41
 
+> अथोपेत्य स्वशिबिरं गोविन्दप्रियसारथिः ।
+> न्यवेदयत्तं प्रियायै शोचन्त्या आत्मजान्हतान् ॥४१॥
+
 > athopetya sva-śibiraṁ
 > govinda-priya-sārathiḥ
 > nyavedayat taṁ priyāyai

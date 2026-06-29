@@ -1,5 +1,8 @@
 ### CC Adi 16.68
 
+> যদ্যপি এই শ্লোকে আছে পঞ্চ অলঙ্কার ।
+> এই পঞ্চদোষে শ্লোক কৈল ছারখার ॥৬৮॥
+
 > yadyapi ei śloke āche pañca alaṅkāra
 > ei pañca-doṣe śloka kaila chārakhāra
 

@@ -1,5 +1,8 @@
 ### CC Antya 15.6
 
+> স্নান, দর্শন, ভোজন দেহ-স্বভাবে হয় ।
+> কুমারের চাক যেন সতত ফিরয় ॥৬॥
+
 > snāna, darśana, bhojana deha-svabhāve haya
 > kumārera cāka yena satata phiraya
 

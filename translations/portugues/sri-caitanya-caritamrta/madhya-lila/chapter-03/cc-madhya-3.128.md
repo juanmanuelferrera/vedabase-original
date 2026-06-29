@@ -1,5 +1,8 @@
 ### CC Madhya 3.128
 
+> জর-জর হৈল প্রভু ভাবের প্রহারে ।
+> ভূমিতে পড়িল, শ্বাস নাহিক শরীরে ॥১২৮॥
+
 jara-jara haila prabhu bhāvera prahāre
 
 bhūmite paḍila, śvāsa nāhika śarīre

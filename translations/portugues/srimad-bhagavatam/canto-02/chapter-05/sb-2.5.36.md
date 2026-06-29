@@ -1,5 +1,8 @@
 ### SB 2.5.36
 
+> यस्येहावयवैर्लोकान्कल्पयन्ति मनीषिणः ।
+> कट्यादिभिरधः सप्त सप्तोर्ध्वं जघनादिभिः ॥३६॥
+
 yasyehāvayavair lokān
 kalpayanti manīṣiṇaḥ
 kaṭy-ādibhir adhaḥ sapta

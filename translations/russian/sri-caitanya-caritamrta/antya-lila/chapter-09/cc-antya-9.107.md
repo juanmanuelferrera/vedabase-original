@@ -1,5 +1,8 @@
 ### CC Antya 9.107
 
+> এত বলি’ ‘নেতধটী’ তারে পরাইল ।
+> “প্রভু-আজ্ঞা লঞা যাহ, বিদায় তোমা দিল” ॥১০৭॥
+
 > eta bali' 'neta-dhaṭī' tāre parāila
 > "prabhu-ājñā lañā yāha, vidāya tomā dila"
 

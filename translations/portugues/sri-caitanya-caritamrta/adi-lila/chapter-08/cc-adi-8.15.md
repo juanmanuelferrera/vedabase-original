@@ -1,5 +1,8 @@
 ### CC Adi 8.15
 
+> শ্রীকৃষ্ণচৈতন্য-দয়া করহ বিচার ।
+> বিচার করিলে চিত্তে পাবে চমৎকার ॥১৫॥
+
 śrī-kṛṣṇa-caitanya-dayā karaha vicāra
 
 vicāra karite citte pābe camatkāra

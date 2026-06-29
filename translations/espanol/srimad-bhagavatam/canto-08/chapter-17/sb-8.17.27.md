@@ -1,5 +1,8 @@
 ### SB 8.17.27
 
+> त्वमादिरन्तो भुवनस्य मध्यमनन्तशक्तिं पुरुषं यमाहुः
+> कालो भवानाक्षिपतीश विश्वं स्रोतो यथान्तः पतितं गभीरम ॥२७॥
+
 > tvam ādir anto bhuvanasya madhyam
 > ananta-śaktiṁ puruṣaṁ yam āhuḥ
 > kālo bhavān ākṣipatīśa viśvaṁ

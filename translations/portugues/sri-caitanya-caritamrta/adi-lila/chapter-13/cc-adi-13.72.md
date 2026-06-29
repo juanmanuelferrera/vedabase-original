@@ -1,5 +1,8 @@
 ### CC Adi 13.72
 
+> জগন্নাথমিশ্র-পত্নী শচীর উদরে ।
+> অষ্ট কন্যা ক্রমে হৈল, জন্মি’ জন্মি’ মরে ॥৭২॥
+
 jagannāthamiśra-patnī śacīra udare
 aṣṭa kanyā krame haila, janmi' janmi' mare
 

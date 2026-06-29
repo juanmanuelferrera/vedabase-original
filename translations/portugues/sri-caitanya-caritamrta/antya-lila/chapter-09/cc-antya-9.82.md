@@ -1,5 +1,8 @@
 ### CC Antya 9.82
 
+> নিত্য আসি’ করে মিশ্রের পাদ সম্বাহন  ।
+> জগন্নাথ-সেবার করে ভিয়ান শ্রবণ ॥৮২॥
+
 nitya āsi' kare miśrera pāda saṁvāhana
 
 jagannātha-sevāra kare bhiyāna śravaṇa

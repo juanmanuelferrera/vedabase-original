@@ -1,5 +1,8 @@
 ### CC Madhya 17.163
 
+> সর্বথা-নিশ্চিত — ইঁহো কৃষ্ণ-অবতার  ।
+> মথুরা আইলা লোকের করিতে নিস্তার ॥১৬৩॥
+
 sarvathā-niścita--iṅho kṛṣṇa-avatāra
 
 mathurā āilā lokera karite nistāra

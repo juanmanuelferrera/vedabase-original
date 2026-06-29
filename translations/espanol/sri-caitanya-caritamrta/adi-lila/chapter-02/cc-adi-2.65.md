@@ -1,5 +1,8 @@
 ### CC Adi 2.65
 
+> অদ্বয়জ্ঞান তত্ত্ববস্তু কৃষ্ণের স্বরূপ ।
+> ব্রহ্ম, আত্মা, ভগবান্ — তিন তাঁর রূপ ॥৬৫॥
+
 > advaya-jñāna tattva-vastu kṛṣṇera svarūpa
 > brahma, ātmā, bhagavān--tina tāṅra rūpa
 

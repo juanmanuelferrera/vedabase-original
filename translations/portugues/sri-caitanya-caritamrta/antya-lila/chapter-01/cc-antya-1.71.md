@@ -1,5 +1,8 @@
 ### CC Antya 1.71
 
+> দুই ‘নান্দী’ ‘প্রস্তাবনা’, দুই ‘সংঘটনা’ ।
+> পৃথক্ করিয়া লিখি করিয়া ভাবনা ॥৭১॥
+
 dui 'nāndī' 'prastāvanā', dui 'saṁghaṭanā'
 
 pṛthak kariyā likhi kariyā bhāvanā

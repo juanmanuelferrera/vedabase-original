@@ -1,5 +1,8 @@
 ### CC Madhya 9.20
 
+> সেই দিন তাঁর ঘরে রহি’ ভিক্ষা করি’ ৷
+> তাঁরে কৃপা করি’ আগে চলিলা গৌরহরি ৷৷ ২০ ৷৷ ॥২০॥
+
 > sei dina tāṅra ghare rahi' bhikṣā kari'
 > tāṅre kṛpā kari' āge calilā gaurahari
 

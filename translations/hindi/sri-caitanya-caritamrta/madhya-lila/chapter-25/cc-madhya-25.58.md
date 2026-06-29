@@ -1,5 +1,8 @@
 ### CC Madhya 25.58
 
+> শ্রীকৃষ্ণচৈতন্য-বাণী — অমৃতের ধার ।
+> তিঁহো যে কহয়ে বস্তু, সেই ‘তত্ত্ব’ — সার ।।” ॥ ৫৮ ॥
+
 > śrī-kṛṣṇa-caitanya-vāṇī-amṛtera dhāra
 > tiṅho ye kahaye vastu, sei 'tattva'-sāra"
 

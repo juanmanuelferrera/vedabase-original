@@ -1,5 +1,8 @@
 ### CC Madhya 17.115
 
+> শুনিয়া প্রকাশানন্দ বহুত হাসিলা ।
+> বিপ্রে উপহাস করি’ কহিতে লাগিলা ॥১১৫॥
+
 > śuniyā prakāśānanda bahuta hāsilā
 > vipre upahāsa kari' kahite lāgilā
 

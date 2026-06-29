@@ -1,5 +1,8 @@
 ### CC Madhya 9.19
 
+> সেই বিপ্র রামনাম নিরন্তর লয় ৷
+> ‘রাম’ ‘রাম’ বিনা অন্য বাণী না কহয় ৷৷ ১৯ ৷৷ ॥১৯॥
+
 > sei vipra rāma-nāma nirantara laya
 > 'rāma''rāma' vinā anya vāṇī nā kahaya
 

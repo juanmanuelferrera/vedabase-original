@@ -1,5 +1,7 @@
 ### SB 5.16.16
 
+> मन्दरोत्सङ्ग एकादशशतयोजनोत्तुङ्गदेवचूतशिरसो गिरिशिखरस्थूलानि फलान्यमृतकल्पानि पतन्ति ॥१६॥
+
 *mandarotsaṅga ekādaśa-śata*-yojanottuṅga-devacūta-śiraso giri-śikhara-sthūlāni phalāny amṛta-kalpāni patanti.
 
 *mandara-utsaṅge*—nas encostas inferiores da Montanha Mandara; *ekādaśa-śata-yojana-uttuṅga*—1.100 yojanas de altura; *devacūta-śirasaḥ*—do alto de uma mangueira chamada Devacūta; *giri-śikhara-sthūlāni*—que são tão grossas quanto picos de montanhas; *phalāni*—frutos; *amṛta-kalpāni*—doces como néctar; *patanti*—caem.

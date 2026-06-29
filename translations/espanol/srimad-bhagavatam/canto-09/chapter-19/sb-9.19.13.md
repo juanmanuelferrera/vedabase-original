@@ -1,5 +1,8 @@
 ### SB 9.19.13
 
+> यत्पृथिव्यां व्रीहियवं हिरण्यं पशवः स्त्रियः
+> न दुह्यन्ति मनःप्रीतिं पुंसः कामहतस्य ते ॥१३॥
+
 > yat pṛthivyāṁ vrīhi-yavaṁ
 > hiraṇyaṁ paśavaḥ striyaḥ
 > na duhyanti manaḥ-prītiṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 5.40
 
+> বিপ্র বলে, — “তীর্থ-বাক্য কেমনে করি আন ।
+> যে হউক্, সে হউক, আমি দিব কন্যাদান ।।” ॥ ৪০ ॥
+
 > vipra bale,--"tīrtha-vākya kemane kari āna
 > ye ha-uk, se ha-uka, āmi diba kanyā-dāna"
 

@@ -1,5 +1,8 @@
 ### CC Madhya 20.305
 
+> কোন কল্পে যদি যোগ্য জীব নাহি পায় ৷
+> আপনে ঈশ্বর তবে অংশে ‘ব্ৰহ্মা’ হয় ॥৩০৫॥
+
 > kona kalpe yadi yogya jīva nāhi pāya
 > āpane īśvara tabe aṁśe 'brahmā' haya
 

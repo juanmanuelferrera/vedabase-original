@@ -1,5 +1,8 @@
 ### CC Antya 11.3
 
+> জয় শ্রীনিবাসেশ্বর হরিদাসনাথ ।
+> জয় গদাধরপ্রিয় স্বরূপ-প্রাণনাথ ॥৩॥
+
 > jaya śrīnivāseśvara haridāsa-nātha
 > jaya gadādhara-priya svarūpa-prāṇa-nātha
 

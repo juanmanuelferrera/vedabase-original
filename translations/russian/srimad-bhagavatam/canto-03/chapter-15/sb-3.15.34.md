@@ -1,5 +1,10 @@
 ### SB 3.15.34
 
+> तद्वाममुष्य परमस्य विकुण्ठभर्तुः
+> कर्तुं प्रकृष्टमिह धीमहि मन्दधीभ्याम् ।
+> लोकानितो व्रजतमन्तरभावदृष्ट्या
+> पापीयसस्त्रय इमे रिपवोऽस्य यत्र ॥३४॥
+
 > tad vām amuṣya paramasya vikuṇṭha-bhartuḥ
 > kartuṁ prakṛṣṭam iha dhīmahi manda-dhībhyām
 > lokān ito vrajatam antara-bhāva-dṛṣṭyā

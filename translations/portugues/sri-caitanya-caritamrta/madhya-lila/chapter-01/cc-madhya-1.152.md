@@ -1,5 +1,8 @@
 ### CC Madhya 1.152
 
+> কুলিয়া-গ্রামেতে প্রভুর শুনিয়া আগমন ।
+> কোটি কোটি লোক আসি’ কৈল দরশন ॥১৫২॥
+
 kuliyā-grāmete prabhura śuniyā āgamana
 
 koṭi koṭi loka āsi' kaila daraśana

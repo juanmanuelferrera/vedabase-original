@@ -1,5 +1,7 @@
 ### CC Antya 3.14
 
+> স্বচ্ছন্দে আচার কর, কে পারে বলিতে ? মুখর জগতের মুখ পার আচ্ছাদিতে ? ১৪ ॥১৪॥
+
 > svacchande ācāra kara, ke pāre balite?
 > mukhara jagatera mukha pāra ācchādite?
 

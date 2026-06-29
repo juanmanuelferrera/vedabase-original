@@ -1,5 +1,8 @@
 ### CC Madhya 14.186
 
+> দেখিতে নানা-ভাব হয় বিলক্ষণ  ।
+> যে বৈলক্ষণ্যের নাম ‘বিলাস’-ভূষণ ॥১৮৬॥
+
 > dekhite nānā-bhāva haya vilakṣaṇa
 > se vailakṣaṇyera nāma 'vilāsa'-bhūṣaṇa
 

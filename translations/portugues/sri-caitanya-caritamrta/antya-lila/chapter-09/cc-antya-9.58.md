@@ -1,5 +1,8 @@
 ### CC Antya 9.58
 
+> শুনি’ মহাপ্রভু হইলা পরম আনন্দ ।
+> কে বুঝিতে পারে গৌরের কৃপা-ছন্দবন্ধ ? ॥ ৫৮ ॥
+
 śuni' mahāprabhu ha-ilā parama ānanda
 
 ke bujhite pāre gaurera kṛpā-chanda-bandha?

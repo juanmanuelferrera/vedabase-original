@@ -1,5 +1,8 @@
 ### CC Antya 3.122
 
+> তুলসীরে তাঁকে বেশ্যা নমস্কার করি’ ।
+> দ্বারে বসি’ নাম শুনে বলে ‘হরি’ ‘হরি’ ॥১২২॥
+
 tulasīre tāṅke veśyā namaskāra kari'
 
 dvāre vasi' nāma śune bale 'hari' 'hari'

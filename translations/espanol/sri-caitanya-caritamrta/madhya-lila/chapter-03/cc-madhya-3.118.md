@@ -1,5 +1,8 @@
 ### CC Madhya 3.118
 
+> এত বলি’ আচার্য আনন্দে করেন নর্তন ।
+> প্রহরেক-রাত্রি আচার্য কৈল সঙ্কীর্তন ॥১১৮॥
+
 > eta bali' ācārya ānande karena nartana
 > prahareka-rātri ācārya kaila saṅkīrtana
 

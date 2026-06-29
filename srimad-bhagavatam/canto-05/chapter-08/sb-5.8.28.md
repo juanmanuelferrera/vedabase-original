@@ -1,5 +1,7 @@
 ### SB 5.8.28
 
+> तत्रापि ह वा आत्मनो मृगत्वकारणं भगवदाराधनसमीहानुभावेनानुस्मृत्यभृशमनुतप्यमान आह ॥२८॥
+
 > tatrāpi ha vā ātmano mṛgatva-kāraṇaṁ bhagavad-ārādhana-samīhānubhāvenānusmṛtya bhṛśam anutapyamāna āha.
 
 *tatra api*—in that birth; *ha vā*—indeed; *ātmanaḥ*—of himself; *mṛgatva-kāraṇam*—the cause of accepting the body of a deer; *bhagavat-ārādhana-samīhā*—of past activities in devotional service; *anubhāvena*—by consequence; *anusmṛtya*—remembering; *bhṛśam*—always; *anutapya-mānaḥ*—repenting; *āha*—said.

@@ -1,5 +1,8 @@
 ### CC Antya 4.229
 
+> ‘ভাগবত-সন্দর্ভ’-নাম কৈল গ্রন্থ সার ।
+> ভাগবত-সিদ্ধান্তের তাহাঁ পাইয়ে পার ॥২২৯॥
+
 > 'bhāgavata-sandarbha'-nāma kaila grantha-sāra
 > bhāgavata-siddhāntera tāhāṅ pāiye pāra
 

@@ -1,5 +1,8 @@
 ### CC Madhya 18.68
 
+> যমলার্জুনভঙ্গাদি দেখিল সেই স্থল ।
+> প্রেমাবেশে প্রভুর মন হৈল টলমল ॥৬৮॥
+
 yamalārjuna-bhaṅgādi dekhila sei sthala
 
 premāveśe prabhura mana haila ṭalamala

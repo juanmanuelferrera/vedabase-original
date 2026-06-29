@@ -1,5 +1,8 @@
 ### Bg 1.13
 
+> ततः शङ्खाश्च भेर्यश्च पणवानकगोमुखाः ।
+> सहसैवाभ्यहन्यन्त स शब्दस्तुमुलोऽभवत् ॥१३॥
+
 > tataḥ śaṅkhāś ca bheryaś ca
 > paṇavānaka-gomukhāḥ
 > sahasaivābhyahanyanta

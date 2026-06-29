@@ -1,5 +1,8 @@
 ### CC Antya 3.111
 
+> অঙ্গ উঘাড়িয়া দেখাই বসিলা দুয়ারে  ।
+> কহিতে লাগিলা কিছু সুমধুর স্বরে ॥১১১॥
+
 aṅga ughāḍiyā dekhāi vasilā duyāre
 
 kahite lāgilā kichu sumadhura svare

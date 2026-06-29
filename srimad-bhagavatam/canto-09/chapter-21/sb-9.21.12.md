@@ -1,5 +1,8 @@
 ### SB 9.21.12
 
+> न कामयेऽहं गतिमीश्वरात्परामष्टर्द्धियुक्तामपुनर्भवं वा
+> आर्तिं प्रपद्येऽखिलदेहभाजामन्तःस्थितो येन भवन्त्यदुःखाः ॥१२॥
+
 > na kāmaye 'haṁ gatim īśvarāt parām
 > aṣṭarddhi-yuktām apunar-bhavaṁ vā
 > ārtiṁ prapadye 'khila-deha-bhājām

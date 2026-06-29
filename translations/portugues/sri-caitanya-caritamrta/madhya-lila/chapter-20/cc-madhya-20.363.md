@@ -1,5 +1,8 @@
 ### CC Madhya 20.363
 
+> অবতার-কালে হয় জগতে গোচর ।
+> এই দুই লক্ষণে কেহ জানয়ে ঈশ্বর ।।” ॥ ৩৬৩ ॥
+
 avatāra-kāle haya jagate gocara
 
 ei dui lakṣaṇe keha jānaye īśvara"

@@ -1,5 +1,8 @@
 ### SB 8.2.27
 
+> तं तत्र कश्चिन्नृप दैवचोदितो ग्राहो बलीयांश्चरणे रुषाग्रहीत
+> यदृच्छयैवं व्यसनं गतो गजो यथाबलं सोऽतिबलो विचक्रमे ॥२७॥
+
 > taṁ tatra kaścin nṛpa daiva-codito
 > grāho balīyāṁś caraṇe ruṣāgrahīt
 > yadṛcchayaivaṁ vyasanaṁ gato gajo

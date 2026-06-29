@@ -1,5 +1,8 @@
 ### CC Antya 1.27
 
+> পূর্ববৎ সবারে প্রভু পাঠাইলা বাসা-স্থানে ।
+> প্রভু-ঠাঞি প্রাতঃকালে আইলা আর দিনে ॥২৭॥
+
 > pūrvavat sabāre prabhu pāṭhāilā vāsā-sthāne
 > prabhu-ṭhāñi prātaḥ-kāle āilā āra dine
 

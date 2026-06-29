@@ -1,5 +1,8 @@
 ### CC Madhya 8.277
 
+> রাধাকৃষ্ণে তোমার মহাপ্রেম হয় ৷
+> যাহাঁ তাহাঁ রাধাকৃষ্ণ তোমারে স্ফুরয় ৷৷ ২৭৭ ৷৷ ॥২৭৭॥
+
 > rādhā-kṛṣṇe tomāra mahā-prema haya
 > yāhāṅ tāhāṅ rādhā-kṛṣṇa tomāre sphuraya
 

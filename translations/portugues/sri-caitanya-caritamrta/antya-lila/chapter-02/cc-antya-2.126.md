@@ -1,5 +1,8 @@
 ### CC Antya 2.126
 
+> এত শুনি’ সবে নিজ-কর্ণে হস্ত দিয়া ।
+> নিজ নিজ কার্যে সবে গেল ত’ উঠিয়া ॥১২৬॥
+
 eta śuni' sabe nija-karṇe hasta diyā
 
 nija nija kārye sabe gela ta' uṭhiyā

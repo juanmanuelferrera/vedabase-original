@@ -1,5 +1,8 @@
 ### CC Madhya 16.89
 
+> অবশ্য চলিব, দুঁহে করহ সম্মতি ।
+> তোমা-দুঁহা বিনা মোর নাহি অন্য গতি ॥৮৯॥
+
 avaśya caliba, duṅhe karaha sammati
 
 tomā-duṅhā vinā mora nāhi anya gati

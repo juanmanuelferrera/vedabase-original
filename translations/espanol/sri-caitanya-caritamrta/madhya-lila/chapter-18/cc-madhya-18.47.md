@@ -1,5 +1,8 @@
 ### CC Madhya 18.47
 
+> ম্লেচ্ছভয়ে আইলা গোপাল মথুরা-নগরে  ।
+> একমাস রহিল বিঠ্ঠলেশ্বর-ঘরে ॥৪৭॥
+
 > mleccha-bhaye āilā gopāla mathurā-nagare
 > eka-māsa rahila viṭhṭhaleśvara-ghare
 

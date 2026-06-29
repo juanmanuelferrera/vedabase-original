@@ -1,5 +1,8 @@
 ### CC Antya 5.70
 
+> মিশ্র কহে, — “প্রভু, মোরে কৃতার্থ করিলা ।
+> কৃষ্ণকথামৃতার্ণবে মোরে ডুবাইলা ॥৭০॥
+
 > miśra kahe,—"prabhu, more kṛtārtha karilā
 > kṛṣṇa-kathāmṛtārṇave more ḍubāilā
 

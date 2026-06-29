@@ -1,5 +1,7 @@
 ### SB 5.8.21
 
+> क्ष्वेलिकायां मां मृषासमाधिनामीलितदृशं प्रेमसंरम्भेण चकितचकित आगत्य पृषदअपरुषविषाणाग्रेण लुठति ॥२१॥
+
 *kṣvelikāyāṁ māṁ mṛṣā*-samādhināmīlita-dṛśaṁ prema-saṁrambheṇa cakita-cakita āgatya pṛṣad-aparuṣa-viṣāṇāgreṇa luṭhati.
 
 *kṣvelikāyām*—enquanto brincava; *mām*—a mim; *mṛṣā*—fingindo; *samādhinā*—por um transe meditativo; *āmīlita-dṛśam*—com olhos fechados; *prema-saṁrambheṇa*—devido à ira nascida do amor; *cakita-cakitaḥ*—com temor; *āgatya*—vindo; *pṛṣat*—como gotas d'água; *aparuṣa*—muito macios; *viṣāṇa*—dos chifres; *agreṇa*—pela ponta; *luṭhati*—toca meu corpo.

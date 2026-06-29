@@ -1,5 +1,8 @@
 ### CC Antya 12.28
 
+> ‘শাস্তি’-ছলে কৃপা কর, — এ তোমার ‘করুণা’ ।
+> ত্রিজগতে তোমার চরিত্র বুঝে কোন্ জনা ? ॥ ২৮ ॥
+
 > 'śāsti'-chale kṛpā kara,--e tomāra 'karuṇā'
 > trijagate tomāra caritra bujhe kon janā?
 

@@ -1,5 +1,8 @@
 ### CC Antya 16.20
 
+> কালিদাস কহে, — “ঠাকুর, কৃপা কর মোরে ।
+> তোমার দর্শনে আইনু মুই পতিত পামরে ॥২০॥
+
 > kālidāsa kahe,—"ṭhākura, kṛpā kara more
 > tomāra darśane āinu mui patita pāmare
 

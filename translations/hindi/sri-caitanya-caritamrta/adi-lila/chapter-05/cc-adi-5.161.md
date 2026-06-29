@@ -1,5 +1,8 @@
 ### CC Adi 5.161
 
+> অবধূত গোসাঞির এক ভৃত্য প্রেমধাম ।
+> মীনকেতন রামদাস হয় তাঁর নাম ॥১৬১॥
+
 > avadhūta gosāñira eka bhṛtya prema-dhāma
 > mīnaketana rāmadāsa haya tāṅra nāma
 

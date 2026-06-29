@@ -1,5 +1,8 @@
 ### SB 7.7.26
 
+> एभिस्त्रिवर्णैः पर्यस्तैर्बुद्धिभेदैः क्रियोद्भवैः
+> स्वरूपमात्मनो बुध्येद्गन्धैर्वायुमिवान्वयात ॥२६॥
+
 > ebhis tri-varṇaiḥ paryastair
 > buddhi-bhedaiḥ kriyodbhavaiḥ
 > svarūpam ātmano budhyed

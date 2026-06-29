@@ -1,5 +1,8 @@
 ### CC Adi 12.30
 
+> সেই পত্রীর কথা আচার্য নাহি জানে ।
+> কোন পাকে সেই পত্রী আইল প্রভুস্থানে ॥৩০॥
+
 sei patrīra kathā ācārya nāhi jāne
 kona pāke sei patrī āila prabhu-sthāne
 

@@ -1,5 +1,8 @@
 ### CC Antya 2.10
 
+> সপ্তদ্বীপের লোক আর নবখণ্ডবাসী ।
+> দেব, গন্ধর্ব, কিন্নর মনুষ্য-বেশে আসি’ ॥১০॥
+
 sapta-dvīpera loka āra nava-khaṇḍa-vāsī
 deva, gandharva, kinnara manuṣya-veśe āsi'
 

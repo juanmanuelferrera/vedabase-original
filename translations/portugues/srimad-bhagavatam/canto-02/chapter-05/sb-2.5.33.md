@@ -1,5 +1,8 @@
 ### SB 2.5.33
 
+> तदा संहत्य चान्योन्यं भगवच्छक्तिचोदिताः ।
+> सदसत्त्वमुपादाय चोभयं ससृजुर्ह्यदः ॥३३॥
+
 tadā saṁhatya cānyonyaṁ
 *bhagavac*-chakti-coditāḥ
 *sad*-asattvam upādāya

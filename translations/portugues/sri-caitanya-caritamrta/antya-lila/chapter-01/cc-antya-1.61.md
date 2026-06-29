@@ -1,5 +1,8 @@
 ### CC Antya 1.61
 
+> এইমত প্রতিদিন প্রভুর ব্যবহার ।
+> প্রভুকৃপা পাঞা রূপের আনন্দ অপার ॥৬১॥
+
 ei-mata pratidina prabhura vyavahāra
 
 prabhu-kṛpā pāñā rūpera ānanda apāra

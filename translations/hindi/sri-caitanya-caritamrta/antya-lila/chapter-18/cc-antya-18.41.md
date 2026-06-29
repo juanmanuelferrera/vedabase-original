@@ -1,5 +1,8 @@
 ### CC Antya 18.41
 
+> সমুদ্রের তীরে আসি’ যুকতি করিলা ।
+> চিরায়ু-পর্বত-দিকে কতজন গেলা ॥৪১॥
+
 > samudrera tīre āsi' yukati karilā
 > cirāyu-parvata-dike kata-jana gelā
 

@@ -1,5 +1,10 @@
 ### CC Madhya 25.130
 
+> গায়ন্ত উচ্চৈরমুমেব সংহতাঃ
+> বিচিক্যুরুন্মত্তকবদ্বনাদ্বনম্ ।
+> পপ্রচ্ছুরাকাশবদন্তরং বহি-
+> র্ভূতেষু সন্তং পুরুষং বনস্পতীন্ ॥১৩০॥
+
 > gāyanta uccair amum eva saṁhatāḥ
 > vicikyur unmattakavad vanād vanam
 > papracchur ākāśavad antaraṁ bahir

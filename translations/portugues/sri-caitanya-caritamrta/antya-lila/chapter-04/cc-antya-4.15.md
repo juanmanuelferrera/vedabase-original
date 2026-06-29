@@ -1,5 +1,8 @@
 ### CC Antya 4.15
 
+> মহাপ্রভু দেখিতে তাঁর উৎকণ্ঠিত মন ।
+> হরিদাস কহে, — ‘প্রভু আসিবেন এখন ।।’ ॥ ১৫ ॥
+
 mahāprabhu dekhite tāṅra utkaṇṭhita mana
 
 haridāsa kahe,--'prabhu āsibena ekhana'

@@ -1,5 +1,8 @@
 ### CC Adi 17.279
 
+> শ্যামসুন্দর, শিখিপিচ্ছ-গুঞ্জা-বিভূষণ ।
+> গোপ-বেশ, ত্রিভঙ্গিম, মুরলী-বদন ॥২৭৯॥
+
 śyāmasundara, śikhipiccha-guñjā-vibhūṣaṇa
 
 gopa-veśa, tri-bhaṅgima, muralī-vadana

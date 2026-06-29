@@ -1,5 +1,8 @@
 ### CC Madhya 3.65
 
+> ঐছে অন্ন যে কৃষ্ণকে করায় ভোজন ।
+> জন্মে জন্মে শিরে ধরোঁ তাঁহার চরণ ॥৬৫॥
+
 > aiche anna ye kṛṣṇake karāya bhojana
 > janme janme śire dharoṅ tāṅhāra caraṇa
 

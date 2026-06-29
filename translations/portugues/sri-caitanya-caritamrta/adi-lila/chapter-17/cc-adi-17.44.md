@@ -1,5 +1,8 @@
 ### CC Adi 17.44
 
+> হাড়িকে আনিয়া সব দূর করাইল ।
+> জল-গোময় দিয়া সেই স্থান লেপাইল ॥৪৪॥
+
 hāḍike āniyā saba dūra karāila
 
 jala-gomaya diyā sei sthāna lepāila

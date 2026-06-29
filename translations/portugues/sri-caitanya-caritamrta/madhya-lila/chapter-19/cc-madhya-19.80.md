@@ -1,5 +1,8 @@
 ### CC Madhya 19.80
 
+> আস্তে-ব্যস্তে সবে ধরি’ প্রভুরে উঠাইল ।
+> নৌকার উপরে প্রভু নাচিতে লাগিল ॥৮০॥
+
 āste-vyaste sabe dhari' prabhure uṭhāila
 
 naukāra upare prabhu nācite lāgila

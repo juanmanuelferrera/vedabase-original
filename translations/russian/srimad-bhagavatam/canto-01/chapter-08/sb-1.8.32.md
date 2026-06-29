@@ -1,5 +1,8 @@
 ### SB 1.8.32
 
+> केचिदाहुरजं जातं पुण्यश्लोकस्य कीर्तये ।
+> यदोः प्रियस्यान्ववाये मलयस्येव चन्दनम् ॥३२॥
+
 > kecid āhur ajaṁ jātaṁ
 > puṇya-ślokasya kīrtaye
 > yadoḥ priyasyānvavāye

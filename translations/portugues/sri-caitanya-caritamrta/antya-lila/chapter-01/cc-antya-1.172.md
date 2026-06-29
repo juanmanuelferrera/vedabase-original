@@ -1,5 +1,8 @@
 ### CC Antya 1.172
 
+> রায় কহে, — “তোমার কবিত্ব অমৃতের ধার ।
+> দ্বিতীয় নাটকের কহ নান্দী-ব্যবহার ।।” ॥ ১৭২ ॥
+
 rāya kahe,--"tomāra kavitva amṛtera dhāra
 
 dvitīya nāṭakera kaha nāndī-vyavahāra"

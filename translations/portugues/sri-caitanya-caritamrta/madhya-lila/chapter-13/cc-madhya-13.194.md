@@ -1,5 +1,8 @@
 ### CC Madhya 13.194
 
+> বামে — ‘বিপ্রশাসন’, নারিকেল-বন ।
+> ডাহিনে ত’ পুষ্পোদ্যান যেন বৃন্দাবন ॥১৯৪॥
+
 vāme-'vipra-śāsana' nārikela-vana
 
 ḍāhine ta' puṣpodyāna yena vṛndāvana

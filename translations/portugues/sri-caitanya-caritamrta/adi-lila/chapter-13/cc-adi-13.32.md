@@ -1,5 +1,8 @@
 ### CC Adi 13.32
 
+> নগরে নগরে ভ্রমে কীর্তন করিয়া ।
+> ভাসাইল ত্রিভুবন প্রেমভক্তি দিয়া ॥৩২॥
+
 nagare nagare bhrame kīrtana kariyā
 
 bhāsāila tri-bhuvana prema-bhakti diyā

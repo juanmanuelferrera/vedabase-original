@@ -1,5 +1,8 @@
 ### CC Madhya 20.9
 
+> তবে সেই যবন কহে, — “শুন, মহাশয় ।
+> তোমারে ছাড়িব, কিন্তু করি রাজভয় ।।” ॥ ৯ ॥
+
 > tabe sei yavana kahe,--"śuna, mahāśaya
 > tomāre chāḍiba, kintu kari rāja-bhaya"
 

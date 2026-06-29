@@ -1,5 +1,8 @@
 ### SB 3.25.35
 
+> पश्यन्ति ते मे रुचिराण्यम्ब सन्तः प्रसन्नवक्त्रारुणलोचनानि ।
+> रूपाणि दिव्यानि वरप्रदानि साकं वाचं स्पृहणीयां वदन्ति ॥३५॥
+
 > paśyanti te me rucirāṇy amba santaḥ
 > prasanna-vaktrāruṇa-locanāni
 > rūpāṇi divyāni vara-pradāni

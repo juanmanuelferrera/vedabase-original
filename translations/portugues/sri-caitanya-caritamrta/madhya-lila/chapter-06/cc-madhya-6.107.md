@@ -1,5 +1,8 @@
 ### CC Madhya 6.107
 
+> তোমার যে শিষ্য কহে কুতর্ক, নানাবাদ ।
+> ইহার কি দোষ — এই মায়ার প্রসাদ ॥১০৭॥
+
 tomāra ye śiṣya kahe kutarka, nānā-vāda
 ihāra ki doṣa--ei māyāra prasāda
 

@@ -1,5 +1,8 @@
 ### CC Madhya 20.135
 
+> পূর্বদিকে তাতে মাটী অল্প খুদিতে ।
+> ধনের ঝারি পড়িবেক তোমার হাতেতে ॥১৩৫॥
+
 > pūrva-dike tāte māṭī alpa khudite
 > dhanera jhāri paḍibeka tomāra hātete
 

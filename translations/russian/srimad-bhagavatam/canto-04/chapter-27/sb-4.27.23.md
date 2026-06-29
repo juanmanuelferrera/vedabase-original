@@ -1,5 +1,8 @@
 ### SB 4.27.23
 
+> ततो विहतसङ्कल्पा कन्यका यवनेश्वरम् ।
+> मयोपदिष्टमासाद्य वव्रे नाम्ना भयं पतिम् ॥२३॥
+
 > tato vihata-saṅkalpā
 > kanyakā yavaneśvaram
 > mayopadiṣṭam āsādya

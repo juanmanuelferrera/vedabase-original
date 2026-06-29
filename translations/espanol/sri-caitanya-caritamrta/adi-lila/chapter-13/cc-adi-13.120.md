@@ -1,5 +1,10 @@
 ### CC Adi 13.120
 
+> মিশ্র — বৈষ্ণব, শান্ত, অলম্পট, শুদ্ধ, দান্ত,
+> ধনভোগে নাহি অভিমান ।
+> পুত্রের প্রভাবে যত, ধন আসি’ মিলে, তত,
+> বিষ্ণুপ্রীতে দ্বিজে দেন দান ॥১২০॥
+
 > miśra--vaiṣṇava, śānta, alampaṭa, śuddha, dānta,
 > dhana-bhoge nāhi abhimāna
 > putrera prabhāve yata, dhana āsi' mile, tata,

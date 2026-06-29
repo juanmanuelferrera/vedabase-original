@@ -1,5 +1,8 @@
 ### CC Antya 6.144
 
+> সব ভক্তদ্বারে তাঁরে আশীর্বাদ করাইলা ।
+> তাঁ-সবার চরণ রঘুনাথ বন্দিলা ॥১৪৪॥
+
 > saba bhakta-dvāre tāṅre āśīrvāda karāilā
 > tāṅ-sabāra caraṇa raghunātha vandilā
 

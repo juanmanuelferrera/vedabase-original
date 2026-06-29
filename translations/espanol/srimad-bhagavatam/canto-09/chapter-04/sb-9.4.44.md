@@ -1,5 +1,8 @@
 ### SB 9.4.44
 
+> अहो अस्य नृशंसस्य श्रियोन्मत्तस्य पश्यत
+> धर्मव्यतिक्रमं विष्णोरभक्तस्येशमानिनः ॥४४॥
+
 > aho asya nṛ-śaṁsasya
 > śriyonmattasya paśyata
 > dharma-vyatikramaṁ viṣṇor

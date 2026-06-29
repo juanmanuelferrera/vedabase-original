@@ -1,5 +1,8 @@
 ### CC Madhya 19.125
 
+> “কহ, — তাহাঁ কৈছে রহে রূপ-সনাতন ?
+> কৈছে রহে, কৈছে বৈরাগ্য, কৈছে ভোজন ? ॥ ১২৫ ॥
+
 "kaha,--tāhāṅ kaiche rahe rūpa-sanātana?
 
 kaiche rahe, kaiche vairāgya, kaiche bhojana?

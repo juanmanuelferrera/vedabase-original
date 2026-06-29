@@ -1,5 +1,8 @@
 ### CC Madhya 25.163
 
+> শুনিয়া লোকের বড় চমৎকার হৈল ৷
+> চৈতন্যগোসাঞি — ‘শ্রীকৃষ্ণ’, নির্ধারিল ৷৷ ১৬৩ ৷৷ ॥১৬৩॥
+
 > śuniyā lokera baḍa camatkāra haila
 > caitanya-gosāñi-'śrī-kṛṣṇa', nirdhārila
 

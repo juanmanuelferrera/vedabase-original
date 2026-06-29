@@ -1,5 +1,8 @@
 ### CC Antya 3.175
 
+> হরিদাসের গুণ সবে কহে পঞ্চমুখে ।
+> শুনিয়া ত’ দুই ভাই পাইলা বড় সুখে ॥১৭৫॥
+
 haridāsera guṇa sabe kahe pañca-mukhe
 
 śuniyā ta' dui bhāi pāilā baḍa sukhe

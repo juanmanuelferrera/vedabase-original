@@ -1,5 +1,8 @@
 ### CC Madhya 10.109
 
+> গুরু-ঠাঞি আজ্ঞা মাগি’ আইলা নীলাচলে ।
+> রাত্রিদিনে কৃষ্ণপ্রেম-আনন্দ-বিহ্বলে ॥১০৯॥
+
 > guru-ṭhāñi ājñā māgi' āilā nīlācale
 > rātri-dine kṛṣṇa-prema-ānanda-vihvale
 

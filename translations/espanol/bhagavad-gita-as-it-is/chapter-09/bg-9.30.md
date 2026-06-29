@@ -1,5 +1,8 @@
 ### Bg 9.30
 
+> अपि चेत्सुदुराचारो भजते मामनन्यभाक् ।
+> साधुरेव स मन्तव्यः सम्यग्व्यवसितो हि सः ॥३०॥
+
 > api cet sudurācāro
 > bhajate mām ananya-bhāk
 > sādhur eva sa mantavyaḥ

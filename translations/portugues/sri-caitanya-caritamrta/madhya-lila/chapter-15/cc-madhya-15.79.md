@@ -1,5 +1,8 @@
 ### CC Madhya 15.79
 
+> এক দিন ফল দশ সংস্কার করিয়া ।
+> ভোগ লাগাইতে সেবক আইল লঞা ॥৭৯॥
+
 eka dina phala daśa saṁskāra kariyā
 
 bhoga lāgāite sevaka āila lañā

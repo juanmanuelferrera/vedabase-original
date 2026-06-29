@@ -1,5 +1,8 @@
 ### SB 6.18.38
 
+> निशम्य तद्वचो विप्रो विमनाः पर्यतप्यत
+> अहो अधर्मः सुमहानद्य मे समुपस्थितः ॥३८॥
+
 > niśamya tad-vaco vipro
 > vimanāḥ paryatapyata
 > aho adharmaḥ sumahān

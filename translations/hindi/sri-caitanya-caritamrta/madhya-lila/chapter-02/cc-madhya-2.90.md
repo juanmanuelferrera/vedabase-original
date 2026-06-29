@@ -1,5 +1,10 @@
 ### CC Madhya 2.90
 
+> আমি বৃদ্ধ জরাতুর, লিখিতে কাঁপয়ে কর,
+> মনে কিছু স্মরণ না হয় ।
+> না দেখিয়ে নয়নে, না শুনিয়ে শ্রবণে,
+> তবু লিখি’ — এ বড় বিস্ময় ॥৯০॥
+
 > āmi vṛddha jarātura, likhite kāṅpaye kara,
 > mane kichu smaraṇa nā haya
 > nā dekhiye nayane, nā śuniye śravaṇe,

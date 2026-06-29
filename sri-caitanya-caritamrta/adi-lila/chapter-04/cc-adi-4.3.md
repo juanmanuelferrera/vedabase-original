@@ -1,5 +1,8 @@
 ### CC Adi 4.3
 
+> চতুর্থ শ্লোকের অর্থ কৈল বিবরণ ।
+> পঞ্চম শ্লোকের অর্থ শুন ভক্তগণ ॥৩॥
+
 > caturtha ślokera artha kaila vivaraṇa
 > pañcama ślokera artha śuna bhakta-gaṇa
 

@@ -1,5 +1,8 @@
 ### CC Antya 17.28
 
+> শুনিতে না পাইনু সেই অমৃতসম বাণী ।
+> শুনিতে না পাইনু ভূষণ-মুরলীর ধ্বনি ।।” ॥ ২৮ ॥
+
 > śunite nā pāinu sei amṛta-sama vāṇī
 > śunite nā pāinu bhūṣaṇa-muralīra dhvani"
 

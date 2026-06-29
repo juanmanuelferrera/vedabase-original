@@ -1,5 +1,10 @@
 ### CC Adi 2.5
 
+> যদদ্বৈতং ব্রহ্মোপনিষদি তদপ্যস্য তনুভা
+> য আত্মান্তর্যামী পুরুষ ইতি সোঽস্যাংশবিভবঃ ।
+> ষড়ৈশ্বর্যৈঃ পূর্ণো য ইহ ভগবান্ স স্বয়ময়ং
+> ন চৈতন্যাৎ কৃষ্ণাজ্জগতি পরতত্ত্বং পরমিহ ॥৫॥
+
 yad advaitaṁ brahmopaniṣadi tad apy asya tanu-bhā
 ya ātmāntar-yāmī puruṣa iti so 'syāṁśa-vibhavaḥ
 ṣaḍ-aiśvaryaiḥ pūrṇo ya iha bhagavān sa svayam ayaṁ

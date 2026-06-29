@@ -1,5 +1,8 @@
 ### CC Antya 19.83
 
+> ছয় ঋতুগণ যাহাঁ বসন্ত প্রধান ।
+> দেখি’ আনন্দিত হৈলা গৌর ভগবান্ ॥৮৩॥
+
 > chaya ṛtu-gaṇa yāhāṅ vasanta pradhāna
 > dekhi' ānandita hailā gaura bhagavān
 

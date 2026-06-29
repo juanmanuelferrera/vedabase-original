@@ -1,5 +1,8 @@
 ### SB 4.30.41
 
+> मनुः स्वयम्भूर्भगवान्भवश्च येऽन्ये तपोज्ञानविशुद्धसत्त्वाः ।
+> अदृष्टपारा अपि यन्महिम्नः स्तुवन्त्यथो त्वात्मसमं गृणीमः ॥४१॥
+
 > manuḥ svayambhūr bhagavān bhavaś ca
 > ye 'nye tapo-jñāna-viśuddha-sattvāḥ
 > adṛṣṭa-pārā api yan-mahimnaḥ

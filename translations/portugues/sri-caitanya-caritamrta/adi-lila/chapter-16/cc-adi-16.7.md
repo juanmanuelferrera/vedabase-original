@@ -1,5 +1,8 @@
 ### CC Adi 16.7
 
+> বিবিধ ঔদ্ধত্য করে শিষ্যগণ-সঙ্গে ।
+> জাহ্নবীতে জলকেলি করে নানা রঙ্গে ॥৭॥
+
 vividha auddhatya kare śiṣya-gaṇa-saṅge
 jahnavite jala-keli kare nana range
 

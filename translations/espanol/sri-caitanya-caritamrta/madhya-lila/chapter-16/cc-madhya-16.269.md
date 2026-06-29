@@ -1,5 +1,8 @@
 ### CC Madhya 16.269
 
+> ভালত’ কহিল, — মোর এত লোক সঙ্গে ।
+> লোক দেখি’ কহিবে মোরে — ‘এই এক ঢঙ্গে’ ॥২৬৯॥
+
 > bhālata' kahila,--mora eta loka saṅge
 > loka dekhi' kahibe more--'ei eka ḍhaṅge'
 

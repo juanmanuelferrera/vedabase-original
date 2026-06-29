@@ -1,5 +1,8 @@
 ### CC Madhya 20.168
 
+> মহিষী-বিবাহে হৈল বহুবিধ মূর্তি ।
+> ‘প্রাভব প্রকাশ’ — এই শাস্ত্র-পরসিদ্ধি ॥১৬৮॥
+
 mahiṣī-vivāhe haila bahu-vidha mūrti
 
 'prābhava prakāśa'--ei śāstra-parasiddhi

@@ -1,5 +1,8 @@
 ### CC Madhya 9.219
 
+> তাম্রপর্ণী স্নান করি’ তাম্রপর্ণী-তীরে ৷
+> নয় ত্রিপতি দেখি’ বুলে কুতূহলে ৷৷ ২১৯ ৷৷ ॥২১৯॥
+
 tāmraparṇī snāna kari' tāmraparṇī-tīre
 naya tripati dekhi' bule kutūhale
 

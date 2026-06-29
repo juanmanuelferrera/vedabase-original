@@ -1,5 +1,10 @@
 ### SB 3.15.28
 
+> मत्तद्विरेफवनमालिकया निवीतौ
+> विन्यस्तयासितचतुष्टयबाहुमध्ये ।
+> वक्त्रं भ्रुवा कुटिलया स्फुटनिर्गमाभ्यां
+> रक्तेक्षणेन च मनाग्रभसं दधानौ ॥२८॥
+
 matta-dvirepha-vanamālikayā nivītau
 vinyastayāsita-catuṣṭaya-bāhu-madhye
 vaktram bhruvā kuṭilayā sphuṭa-nirgamābhyāṁ

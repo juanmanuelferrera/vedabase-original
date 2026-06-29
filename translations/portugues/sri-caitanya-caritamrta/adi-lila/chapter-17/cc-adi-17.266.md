@@ -1,5 +1,8 @@
 ### CC Adi 17.266
 
+> প্রণতিতে হ’বে ইহার অপরাধ ক্ষয় ।
+> নির্মল হৃদয়ে ভক্তি করাইব উদয় ॥২৬৬॥
+
 praṇatite habe ihāra aparādha kṣaya
 nirmala hṛdaye bhakti karāiba udaya
 

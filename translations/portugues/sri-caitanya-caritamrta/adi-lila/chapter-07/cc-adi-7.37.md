@@ -1,5 +1,8 @@
 ### CC Adi 7.37
 
+> অপরাধ ক্ষমাইল, ডুবিল প্রেমজলে ।
+> কেবা এড়াইবে প্রভুর প্রেম-মহাজালে ॥৩৭॥
+
 aparādha kṣamāila, ḍubila prema-jale
 
 kebā eḍāibe prabhura prema-mahājāle

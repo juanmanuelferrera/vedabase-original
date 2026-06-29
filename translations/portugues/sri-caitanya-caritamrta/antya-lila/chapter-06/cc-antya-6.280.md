@@ -1,5 +1,8 @@
 ### CC Antya 6.280
 
+> ইঁহার সঙ্কোচে আমি এত দিন নিল ।
+> ভাল হৈল — জানিয়া আপনি ছাড়ি দিল ।।” ॥ ২৮০ ॥
+
 iṅhāra saṅkoce āmi eta dina nila
 
 bhāla haila--jāniyā āpani chāḍi dila"

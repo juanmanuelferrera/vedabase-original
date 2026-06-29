@@ -1,5 +1,8 @@
 ### CC Madhya 24.43
 
+> অলৌকিক রূপ, রস, সৌরভাদি গুণ ।
+> কারো মন কোন গুণে করে আকর্ষণ ॥৪৩॥
+
 alaukika rūpa, rasa, saurabhādi guṇa
 
 kāro mana kona guṇe kare ākarṣaṇa

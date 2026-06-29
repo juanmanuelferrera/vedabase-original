@@ -1,5 +1,8 @@
 ### CC Adi 6.12
 
+> জগৎ-মঙ্গল অদ্বৈত, মঙ্গল-গুণধাম ।
+> মঙ্গল-চরিত্র সদা, ‘মঙ্গল’ যাঁর নাম ॥১২॥
+
 jagat-maṅgala advaita, maṅgala-guṇa-dhāma
 maṅgala-caritra sadā, 'maṅgala' yāṅra nāma
 

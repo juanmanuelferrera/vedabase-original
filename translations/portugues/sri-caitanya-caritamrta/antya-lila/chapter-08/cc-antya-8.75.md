@@ -1,5 +1,8 @@
 ### CC Antya 8.75
 
+> সন্ন্যাসীকে এত খাওয়াঞা কর ধর্ম নাশ !
+> অতএব জানিনু, — তোমার কিছু নাহি ভাস’ ॥৭৫॥
+
 sannyāsīke eta khāoyāñā kara dharma nāśa!
 
 ataeva jāninu,--tomāra kichu nāhi bhāsa'

@@ -1,5 +1,8 @@
 ### CC Madhya 2.8
 
+> তিন দ্বারে কপাট, প্রভু যায়েন বাহিরে ।
+> কভু সিংহদ্বারে পড়ে, কভু সিন্ধুনীরে ॥৮॥
+
 > tina dvāre kapāṭa, prabhu yāyena bāhire
 > kabhu siṁha-dvāre paḍe, kabhu sindhu-nīre
 

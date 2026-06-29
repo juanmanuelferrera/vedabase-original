@@ -1,5 +1,8 @@
 ### SB 8.18.14
 
+> तस्योपनीयमानस्य सावित्रीं सविताब्रवीत
+> बृहस्पतिर्ब्रह्मसूत्रं मेखलां कश्यपोऽददात ॥१४॥
+
 > tasyopanīyamānasya
 > sāvitrīṁ savitābravīt
 > bṛhaspatir brahma-sūtraṁ

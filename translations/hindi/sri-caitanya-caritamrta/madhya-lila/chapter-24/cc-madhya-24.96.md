@@ -1,5 +1,8 @@
 ### CC Madhya 24.96
 
+> এই চারি সুকৃতি হয় মহাভাগ্যবান্ ।
+> তত্তৎকামাদি ছাড়ি’ হয় শুদ্ধভক্তিমান্ ॥৯৬॥
+
 > ei cāri sukṛti haya mahā-bhāgyavān
 > tat-tat-kāmādi chāḍi' haya śuddha-bhaktimān
 

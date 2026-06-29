@@ -1,5 +1,8 @@
 ### SB 8.19.3
 
+> न ह्येतस्मिन्कुले कश्चिन्निःसत्त्वः कृपणः पुमान
+> प्रत्याख्याता प्रतिश्रुत्य यो वादाता द्विजातये ॥३॥
+
 > na hy etasmin kule kaścin
 > niḥsattvaḥ kṛpaṇaḥ pumān
 > pratyākhyātā pratiśrutya

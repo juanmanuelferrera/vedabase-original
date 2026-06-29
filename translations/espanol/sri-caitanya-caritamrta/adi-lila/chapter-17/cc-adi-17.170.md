@@ -1,5 +1,8 @@
 ### CC Adi 17.170
 
+> কল্পিত আমার শাস্ত্র, — আমি সব জানি ।
+> জাতি-অনুরোধে তবু সেই শাস্ত্র মানি ॥১৭০॥
+
 > kalpita āmāra śāstra,--āmi saba jāni
 > jāti-anurodhe tabu sei śāstra māni
 

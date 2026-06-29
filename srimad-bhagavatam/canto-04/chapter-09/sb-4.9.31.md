@@ -1,5 +1,8 @@
 ### SB 4.9.31
 
+> अहो बत ममानात्म्यं मन्दभाग्यस्य पश्यत ।
+> भवच्छिदः पादमूलं गत्वा याचे यदन्तवत् ॥३१॥
+
 > aho bata mamānātmyaṁ
 > manda-bhāgyasya paśyata
 > bhava-cchidaḥ pāda-mūlaṁ

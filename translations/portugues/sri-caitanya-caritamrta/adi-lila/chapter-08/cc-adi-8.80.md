@@ -1,5 +1,8 @@
 ### CC Adi 8.80
 
+> কুলাধিদেবতা মোর — মদনমোহন ।
+> যাঁর সেবক — রঘুনাথ, রূপ, সনাতন ॥৮০॥
+
 kulādhidevatā mora--madana-mohana
 
 yāṅra sevaka--raghunātha, rūpa, sanātana

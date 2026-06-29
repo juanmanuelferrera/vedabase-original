@@ -1,5 +1,8 @@
 ### CC Madhya 20.185
 
+> প্রাভব-বৈভব-ভেদে বিলাস — দ্বিধাকার ।
+> বিলাসের বিলাস-ভেদ — অনন্ত প্রকার ॥১৮৫॥
+
 > prābhava-vaibhava-bhede vilāsa--dvidhākāra
 > vilāsera vilāsa-bheda--ananta prakāra
 

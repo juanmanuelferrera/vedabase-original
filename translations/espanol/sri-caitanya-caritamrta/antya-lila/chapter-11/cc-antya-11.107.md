@@ -1,5 +1,8 @@
 ### CC Antya 11.107
 
+> ভবসিন্ধু তরিবারে আছে যার চিত্ত ।
+> শ্রদ্ধা করি’ শুন সেই চৈতন্যচরিত্র ॥১০৭॥
+
 > bhava-sindhu taribāre āche yāra citta
 > śraddhā kari' śuna sei caitanya-caritra
 

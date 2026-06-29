@@ -1,5 +1,8 @@
 ### SB 7.3.33
 
+> व्यक्तं विभो स्थूलमिदं शरीरं येनेन्द्रियप्राणमनोगुणांस्त्वम
+> भुङ्क्षे स्थितो धामनि पारमेष्ठ्ये अव्यक्त आत्मा पुरुषः पुराणः ॥३३॥
+
 > vyaktaṁ vibho sthūlam idaṁ śarīraṁ
 > yenendriya-prāṇa-mano-guṇāṁs tvam
 > bhuṅkṣe sthito dhāmani pārameṣṭhye

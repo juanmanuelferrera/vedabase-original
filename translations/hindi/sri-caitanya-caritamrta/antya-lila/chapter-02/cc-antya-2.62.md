@@ -1,5 +1,8 @@
 ### CC Antya 2.62
 
+> দেখে, শীঘ্র আসি’ বসিলা চৈতন্য-গোসাঞি ।
+> তিন ভোগ খাইলা, কিছু অবশিষ্ট নাই ॥৬২॥
+
 > dekhe, śīghra āsi' vasilā caitanya-gosāñi
 > tina bhoga khāilā, kichu avaśiṣṭa nāi
 

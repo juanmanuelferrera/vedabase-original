@@ -1,5 +1,8 @@
 ### CC Antya 13.76
 
+> মুখে তার ঝাল গেল, জিহ্বা করে জ্বালা ।
+> বৃন্দাবনের ‘পীলু’ খাইতে এই এক লীলা ॥৭৬॥
+
 > mukhe tāra jhāla gela, jihvā kare jvālā
 > vṛndāvanera 'pīlu' khāite ei eka līlā
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.124
 
+> ভক্ত-চিত্তে ভক্ত-গৃহে সদা অবস্থান ।
+> কভু গুপ্ত, কভু ব্যক্ত, স্বতন্ত্র ভগবান্ ॥১২৪॥
+
 > bhakta-citte bhakta-gṛhe sadā avasthāna
 > kabhu gupta, kabhu vyakta, svatantra bhagavān
 

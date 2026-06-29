@@ -1,5 +1,8 @@
 ### CC Adi 10.77
 
+> ভাগবতী দেবানন্দ বক্রেশ্বর-কৃপাতে ।
+> ভাগবতের ভক্তি-অর্থ পাইল প্রভু হৈতে ॥৭৭॥
+
 bhāgavatī devānanda vakreśvara-kṛpāte
 bhāgavatera bhakti-artha pāila prabhu haite
 

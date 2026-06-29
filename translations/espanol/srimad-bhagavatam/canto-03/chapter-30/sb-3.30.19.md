@@ -1,5 +1,8 @@
 ### SB 3.30.19
 
+> यमदूतौ तदा प्राप्तौ भीमौ सरभसेक्षणौ ।
+> स दृष्ट्वा त्रस्तहृदयः शकृन्मूत्रं विमुञ्चति ॥१९॥
+
 > yama-dūtau tadā prāptau
 > bhīmau sarabhasekṣaṇau
 > sa dṛṣṭvā trasta-hṛdayaḥ

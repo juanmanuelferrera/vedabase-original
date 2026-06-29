@@ -1,5 +1,8 @@
 ### SB 2.2.6
 
+> एवं स्वचित्ते स्वत एव सिद्ध आत्मा प्रियोऽर्थो भगवाननन्तः ।
+> तं निर्वृतो नियतार्थो भजेत संसारहेतूपरमश्च यत्र ॥६॥
+
 > evaṁ sva-citte svata eva siddha
 > ātmā priyo 'rtho bhagavān anantaḥ
 > taṁ nirvṛto niyatārtho bhajeta

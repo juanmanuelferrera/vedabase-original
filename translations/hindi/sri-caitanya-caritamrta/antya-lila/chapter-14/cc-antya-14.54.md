@@ -1,5 +1,8 @@
 ### CC Antya 14.54
 
+> এই দশ-দশায় প্রভু ব্যাকুল রাত্রিদিনে ।
+> কভু কোন দশা উঠে, স্থির নহে মনে ॥৫৪॥
+
 > ei daśa-daśāya prabhu vyākula rātri-dine
 > kabhu kona daśā uṭhe, sthira nahe mane
 

@@ -1,5 +1,9 @@
 ### SB 7.13.19
 
+> श्रीनारद उवाच
+> स इत्थं दैत्यपतिना परिपृष्टो महामुनिः
+> स्मयमानस्तमभ्याह तद्वागमृतयन्त्रितः ॥१९॥
+
 *kaviḥ kalpo nipuṇa*-dṛk
 *citra*-priya-kathaḥ samaḥ
 lokasya kurvataḥ karma

@@ -1,5 +1,9 @@
 ### SB 5.3.4-5
 
+> ऋत्विज ऊचुः
+> अर्हसि मुहुरर्हत्तमार्हणमस्माकमनुपथानां नमो नम इत्येतावत्सदुपशिक्षितं कोऽर्हति पुमान्प्रकृतिगुणव्यतिकरमतिरनीश ईश्वरस्य परस्य प्रकृतिपुरुषयोरर्वाक्तनाभिर्नामरूपाकृतिभी रूपनिरूपणम्सकलजननिकायवृजिननिरसनशिवतमप्रवरगुणगणैकदेशकथनादृते ॥४॥
+> परिजनानुरागविरचितशबलसंशब्दसलिलसितकिसलयतुलसिकादूर्वाङ्कुरैरपि सम्भृतयासपर्यया किल परम परितुष्यसि ॥५॥
+
 > ṛtvija ūcuḥ
 > arhasi muhur arhattamārhaṇam asmākam anupathānāṁ namo nama ity etāvat sad-upaśikṣitaṁ ko 'rhati pumān prakṛti-guṇa-vyatikara-matir anīśa īśvarasya parasya prakṛti-puruṣayor arvāktanābhir nāma-rūpākṛtibhī rūpa-nirūpaṇam; sakala-jana-nikāya-vṛjina-nirasana-śivatama-pravara-guṇa-gaṇaika-deśa-kathanād ṛte.
 

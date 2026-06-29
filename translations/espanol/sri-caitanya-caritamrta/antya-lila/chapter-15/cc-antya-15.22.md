@@ -1,5 +1,10 @@
 ### CC Antya 15.22
 
+> কৃষ্ণাঙ্গ — সৌরভভর, মৃগমদ-মদহর,
+> নীলোৎপলের হরে গর্ব-ধন ।
+> জগৎ-নারীর নাসা, তার ভিতর পাতে বাসা,
+> নারীগণে করে আকর্ষণ ॥২২॥
+
 > kṛṣṇāṅga--saurabhya-bhara, mṛga-mada-mada-hara,
 > nīlotpalera hare garva-dhana
 > jagat-nārīra nāsā, tāra bhitara pāte vāsā,

@@ -1,5 +1,8 @@
 ### CC Antya 8.22
 
+> শুনি’ মাধবেন্দ্র-মনে ক্রোধ উপজিল ।
+> ‘দূর, দূর, পাপিষ্ঠ’ বলি’ ভর্ৎসনা করিল ॥২২॥
+
 > śuni' mādhavendra-mane krodha upajila
 > 'dūra, dūra, pāpiṣṭha' bali' bhartsanā karila
 

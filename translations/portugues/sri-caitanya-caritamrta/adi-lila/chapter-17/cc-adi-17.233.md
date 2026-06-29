@@ -1,5 +1,8 @@
 ### CC Adi 17.233
 
+> আবেশেতে শ্রীবাসে প্রভু বংশী ত’ মাগিল ।
+> শ্রীবাস কহে, — বংশী তোমার গোপী হরি’ নিল ॥২৩৩॥
+
 āveśete śrīvāse prabhu vaṁśī ta' māgila
 
 śrīvāsa kahe,--vaṁśī tomāra gopī hari' nila

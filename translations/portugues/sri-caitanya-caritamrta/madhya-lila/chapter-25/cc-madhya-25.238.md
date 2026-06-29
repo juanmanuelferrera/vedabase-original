@@ -1,5 +1,8 @@
 ### CC Madhya 25.238
 
+> এই ত’ কহিলুঁ, — প্রভু দেখি’ বৃন্দাবন ।
+> পুনঃ করিলেন যৈছে নীলাদ্রি গমন ॥২৩৮॥
+
 ei ta' kahiluṅ,-prabhu dekhi' vṛndāvana
 
 punaḥ karilena yaiche nīlādri gamana

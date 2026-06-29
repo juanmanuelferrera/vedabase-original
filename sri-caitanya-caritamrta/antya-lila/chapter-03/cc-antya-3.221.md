@@ -1,5 +1,8 @@
 ### CC Antya 3.221
 
+> আচার্য কহেন, — “তুমি না করিহ ভয় ।
+> সেই আচরিব, যেই শাস্ত্রমত হয় ॥২২১॥
+
 > ācārya kahena,—"tumi nā kariha bhaya
 > sei ācariba, yei śāstra-mata haya
 

@@ -1,5 +1,8 @@
 ### SB 8.12.31
 
+> तस्यासौ पदवीं रुद्रो विष्णोरद्भुतकर्मणः
+> प्रत्यपद्यत कामेन वैरिणेव विनिर्जितः ॥३१॥
+
 > tasyāsau padavīṁ rudro
 > viṣṇor adbhuta-karmaṇaḥ
 > pratyapadyata kāmena

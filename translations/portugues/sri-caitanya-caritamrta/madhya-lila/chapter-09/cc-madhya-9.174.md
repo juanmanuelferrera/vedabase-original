@@ -1,5 +1,8 @@
 ### CC Madhya 9.174
 
+> পরমানন্দ পুরী তবে চলিলা নীলাচলে ৷
+> মহাপ্ৰভু চলি চলি আইলা শ্রীশৈলে ৷৷ ১৭৪ ৷৷ ॥১৭৪॥
+
 paramānanda purī tabe calilā nīlācale
 mahāprabhu cali cali āilā śrī-śaile
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.162
 
+> চ-শব্দে ‘অপি’র অর্থ ইহাঁও কহয় ।
+> ‘মুনি’, ‘নির্গ্রন্থ’-শব্দের পূর্ববৎ অর্থ হয় ॥১৬২॥
+
 ca-śabde 'api'ra artha ihāṅo kahaya
 
 'muni', 'nirgrantha'-śabdera pūrvavat artha haya

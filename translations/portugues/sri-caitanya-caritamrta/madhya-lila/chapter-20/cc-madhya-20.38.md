@@ -1,5 +1,8 @@
 ### CC Madhya 20.38
 
+> সেই হাজিপুরে রহে — শ্রীকান্ত তার নাম ।
+> গোসাঞির ভগিনীপতি, করে রাজকাম ॥৩৮॥
+
 sei hājipure rahe--śrīkānta tāra nāma
 
 gosāñira bhaginī-pati, kare rāja-kāma

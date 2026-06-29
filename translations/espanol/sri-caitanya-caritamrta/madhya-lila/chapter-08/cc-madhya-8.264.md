@@ -3,6 +3,9 @@
 > eta tattva mora citte kaile prakāśana
 > brahmāke veda yena paḍāila nārāyaṇa
 
+> eta tattva mora citte kaile prakāśana
+> brahmāke veda yena paḍāila nārāyaṇa
+
 *eta tattva*—todas estas variedades de verdad; *mora citte*—en mi corazón; *kaile*—hiciste; *prakāśana*—manifestar; *brahmāke*—al Señor Brahmā; *veda*—el conocimiento Védico; *yena*—como; *paḍāila*—enseñó; *nārāyaṇa*—el Señor Supremo.
 
 **Rāmānanda Rāya admitió entonces: «Tú has manifestado muchas verdades trascendentales en mi corazón. De este modo exacto enseñó Nārāyaṇa al Señor Brahmā».**

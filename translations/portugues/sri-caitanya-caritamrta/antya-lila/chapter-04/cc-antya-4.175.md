@@ -1,5 +1,8 @@
 ### CC Antya 4.175
 
+> কিং ভদ্রং কিমভদ্রং বা দ্বৈতস্যাবস্তুনঃ কিয়ৎ ।
+> বাচোদিতং তদনৃতং মনসা ধ্যাতমেব চ ॥১৭৫॥
+
 kiṁ bhadraṁ kim abhadraṁ vā
 
 dvaitasyāvastunaḥ kiyat

@@ -1,5 +1,8 @@
 ### CC Adi 13.27
 
+> বিবাহ করিলে হৈল নবীন যৌবন ।
+> সর্বত্র লওয়াইল প্রভু নাম-সংকীর্তন ॥২৭॥
+
 > vivāha karile haila navīna yauvana
 > sarvatra laoyāila prabhu nāma-saṅkīrtana
 

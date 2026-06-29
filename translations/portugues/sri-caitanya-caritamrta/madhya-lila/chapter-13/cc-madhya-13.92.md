@@ -1,5 +1,8 @@
 ### CC Madhya 13.92
 
+> হেনকালে শ্রীনিবাস প্রেমাবিষ্ট-মন ।
+> রাজার আগে রহি’ দেখে প্রভুর নর্তন ॥৯২॥
+
 hena-kāle śrīnivāsa premāviṣṭa-mana
 
 rājāra āge rahi' dekhe prabhura nartana

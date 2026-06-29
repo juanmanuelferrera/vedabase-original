@@ -1,5 +1,8 @@
 ### Bg 6.46
 
+> तपस्विभ्योऽधिको योगी ज्ञानिभ्योऽपि मतोऽधिकः ।
+> कर्मिभ्यश्चाधिको योगी तस्माद्योगी भवार्जुन ॥४६॥
+
 > tapasvibhyo'dhiko yogī
 > jñānibhyo'pi mato'dhikaḥ
 > karmibhyaś cādhiko yogī

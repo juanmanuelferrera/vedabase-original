@@ -1,5 +1,8 @@
 ### SB 1.12.34
 
+> तेन सम्भृतसम्भारो धर्मपुत्रो युधिष्ठिरः ।
+> वाजिमेधैस्त्रिभिर्भीतो यज्ञैः समयजद्धरिम् ॥३४॥
+
 > tena sambhṛta-sambhāro
 > dharma-putro yudhiṣṭhiraḥ
 > vājimedhais tribhir bhīto

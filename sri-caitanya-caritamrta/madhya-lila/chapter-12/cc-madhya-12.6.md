@@ -1,5 +1,8 @@
 ### CC Madhya 12.6
 
+> ভট্টাচার্য লিখিল, — প্ৰভুর আজ্ঞা না হৈল  ।
+> পুনরপি রাজা তাঁরে পত্রী পাঠাইল ॥৬॥
+
 > bhaṭṭācārya likhila,-prabhura ājñā nā haila
 > punarapi rājā tāṅre patrī pāṭhāila
 

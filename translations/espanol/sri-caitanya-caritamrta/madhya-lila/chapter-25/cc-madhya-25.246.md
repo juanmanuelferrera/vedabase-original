@@ -1,5 +1,8 @@
 ### CC Madhya 25.246
 
+> চতুর্থে — মাধব পুরীর চরিত্র-আস্বাদন ।
+> গোপাল স্থাপন, ক্ষীর-চুরির বর্ণন ॥২৪৬॥
+
 > caturthe-mādhava purīra caritra-āsvādana
 > gopāla sthāpana, kṣīra-curira varṇana
 

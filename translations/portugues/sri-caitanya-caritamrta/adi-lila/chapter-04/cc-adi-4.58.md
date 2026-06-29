@@ -1,5 +1,8 @@
 ### CC Adi 4.58
 
+> ইথি লাগি’ আগে করি তার বিবরণ ।
+> যাহা হৈতে হয় গৌরের মহিমা-কথন ॥৫৮॥
+
 ithi lāgi' āge kari tāra vivaraṇa
 yāhā haite haya gaurera mahimā-kathana
 

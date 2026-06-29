@@ -1,5 +1,8 @@
 ### CC Adi 3.24
 
+> উৎসীদেয়ুরিমে লোকা ন কুর্যাং কর্ম চেদহম্ ।
+> সঙ্করস্য চ কর্তা স্যামুপহন্যামিমাঃ প্রজাঃ ॥২৪॥
+
 > utsīdeyur ime lokā
 > na kuryāṁ karma ced aham
 > saṅkarasya ca kartā syām

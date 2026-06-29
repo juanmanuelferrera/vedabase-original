@@ -1,5 +1,8 @@
 ### CC Antya 1.18
 
+> একদিন একস্থানে নদী পার হৈতে  ।
+> উড়িয়া নাবিক কুক্কুর না চড়ায় নৌকাতে ॥১৮॥
+
 > eka-dina eka-sthāne nadī pāra haite
 > uḍiyā nāvika kukkura nā caḍāya naukāte
 

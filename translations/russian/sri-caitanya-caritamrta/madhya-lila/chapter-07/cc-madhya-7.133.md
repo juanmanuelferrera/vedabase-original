@@ -1,5 +1,8 @@
 ### CC Madhya 7.133
 
+> অতএব ইহাঁ কহিলাঙ করিয়া বিস্তার ।
+> এইমত জানিবে প্রভুর সর্বত্র ব্যবহার ॥১৩৩॥
+
 > ataeva ihāṅ kahilāṅ kariyā vistāra
 > ei-mata jānibe prabhura sarvatra vyavahāra
 

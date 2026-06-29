@@ -1,5 +1,8 @@
 ### CC Madhya 19.217
 
+> এই দুই গুণ ব্যাপে সব ভক্তজনে ৷
+> আকাশের ‘শব্দ’-গুণ যেন ভূতগণে ॥২১৭॥
+
 > ei dui guṇa vyāpe saba bhakta-jane
 > ākāśera 'śabda'-guṇa yena bhūta-gaṇe
 

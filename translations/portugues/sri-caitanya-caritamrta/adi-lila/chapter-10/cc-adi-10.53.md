@@ -1,5 +1,8 @@
 ### CC Adi 10.53
 
+> শ্রীগদাধর দাস শাখা সর্বোপরি ।
+> কাজীগণের মুখে যেঁহ বোলাইল হরি ॥৫৩॥
+
 śrī-gadādhara dāsa śākhā sarvopari
 
 kājī-gaṇera mukhe yeṅha bolāila hari

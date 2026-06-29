@@ -1,5 +1,8 @@
 ### CC Madhya 7.59
 
+> সমুদ্ৰ-তীরে তীরে আলালনাথ-পথে ৷
+> সার্বভৌম কহিলেন আচার্য-গোপীনাথে ৷৷ ৫৯ ৷৷ ॥৫৯॥
+
 > samudra-tīre tīre ālālanātha-pathe
 > sārvabhauma kahilena ācārya-gopīnāthe
 

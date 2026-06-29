@@ -1,5 +1,8 @@
 ### CC Madhya 9.294
 
+> কৌতুকে পুরী তাঁরে পুছিল জন্মস্থান
+> গোসাঞি কৌতুকে কহেন ‘নবদ্বীপ’ নাম ॥২৯৪॥
+
 > kautuke purī tāṅre puchila janma-sthāna
 > gosāñi kautuke kahena 'navadvīpa' nāma
 

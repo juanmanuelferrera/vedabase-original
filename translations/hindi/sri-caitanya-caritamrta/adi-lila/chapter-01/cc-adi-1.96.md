@@ -1,5 +1,8 @@
 ### CC Adi 1.96
 
+> তত্ত্ববস্তু — কৃষ্ণ, কৃষ্ণভক্তি, প্রেমরূপ ।
+> নাম-সংকীর্তন — সব আনন্দস্বরূপ ॥৯৬॥
+
 > tattva-vastu—kṛṣṇa, kṛṣṇa-bhakti, prema-rūpa
 > nāma-saṅkīrtana—saba ānanda-svarūpa
 

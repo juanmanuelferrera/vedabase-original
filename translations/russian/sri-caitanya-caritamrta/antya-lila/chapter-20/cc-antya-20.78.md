@@ -1,5 +1,8 @@
 ### CC Antya 20.78
 
+> সব শ্রোতা-বৈষ্ণবের বন্দিয়া চরণ ।
+> চৈতন্যচরিত্র-বর্ণন কৈলুঁ সমাপন ॥৭৮॥
+
 > saba śrotā vaiṣṇavera vandiyā caraṇa
 > caitanya-caritra-varṇana kailuṅ samāpana
 

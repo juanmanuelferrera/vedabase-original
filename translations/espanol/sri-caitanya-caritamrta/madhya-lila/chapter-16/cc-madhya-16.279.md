@@ -1,5 +1,8 @@
 ### CC Madhya 16.279
 
+> তবে গদাধর-পণ্ডিত প্রেমাবিষ্ট হঞা  ।
+> প্রভু-পদ ধরি’ কহে বিনয় করিয়া ॥২৭৯॥
+
 > tabe gadādhara-paṇḍita premāviṣṭa hañā
 > prabhu-pada dhari' kahe vinaya kariyā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 4.180
 
+> হেন-জন গোপালের আজ্ঞামৃত পাঞা ।
+> সহস্র ক্রোশ আসি’ বুলে চন্দন মাগিঞা ॥১৮০॥
+
 > hena-jana gopālera ājñāmṛta pāñā
 > sahasra krośa āsi' bule candana māgiñā
 

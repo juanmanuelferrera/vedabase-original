@@ -1,5 +1,8 @@
 ### SB 7.11.17
 
+> जघन्यो नोत्तमां वृत्तिमनापदि भजेन्नरः
+> ऋते राजन्यमापत्सु सर्वेषामपि सर्वशः ॥१७॥
+
 > jaghanyo nottamāṁ vṛttim
 > anāpadi bhajen naraḥ
 > ṛte rājanyam āpatsu

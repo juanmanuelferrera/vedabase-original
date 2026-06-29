@@ -1,5 +1,8 @@
 ### CC Madhya 9.136
 
+> লক্ষ্মী চাহে সেই দেহে কৃষ্ণের সঙ্গম ৷
+> গোপিকা-অনুগা হঞা না কৈল ভজন ৷৷ ১৩৬ ৷৷ ॥১৩৬॥
+
 > lakṣmī cāhe sei dehe kṛṣṇera saṅgama
 > gopikā-anugā hañā nā kaila bhajana
 

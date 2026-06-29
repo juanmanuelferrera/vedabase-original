@@ -1,5 +1,8 @@
 ### CC Antya 9.30
 
+> রাজপুত্র আসি’ তারে চাঙ্গে চড়াইল ।
+> খড়্গ-উপরে ফেলাইতে তলে খড়্গ পাতিল ।।” ॥ ৩০ ॥
+
 > rāja-putra āsi' tāre cāṅge caḍāila
 > khaḍaga-upare phelāite tale khaḍaga pātila"
 

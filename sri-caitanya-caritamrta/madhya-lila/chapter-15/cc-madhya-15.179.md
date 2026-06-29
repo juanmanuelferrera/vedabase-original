@@ -1,5 +1,8 @@
 ### CC Madhya 15.179
 
+> কোটি-কামধেনু-পতির ছাগী যৈছে মরে ।
+> ষড়ৈশ্বর্যপতি কৃষ্ণের মায়া কিবা করে ? ॥ ১৭৯ ॥
+
 > koṭi-kāmadhenu-patira chāgī yaiche mare
 > ṣaḍ-aiśvarya-pati kṛṣṇera māyā kibā kare?
 

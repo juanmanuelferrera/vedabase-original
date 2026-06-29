@@ -1,5 +1,8 @@
 ### CC Madhya 13.188
 
+> অবসর জানি’ আমি করিব নিবেদন ।
+> সেইকালে যাই’ করিহ প্রভুর মিলন ॥১৮৮॥
+
 > avasara jāni' āmi kariba nivedana
 > sei-kāle yāi' kariha prabhura milana
 

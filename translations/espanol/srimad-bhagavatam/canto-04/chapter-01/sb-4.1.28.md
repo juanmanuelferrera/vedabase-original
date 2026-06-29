@@ -1,5 +1,10 @@
 ### SB 4.1.28
 
+> एको मयेह भगवान्विविधप्रधानैश्
+> चित्तीकृतः प्रजननाय कथं नु यूयम् ।
+> अत्रागतास्तनुभृतां मनसोऽपि दूराद्
+> ब्रूत प्रसीदत महानिह विस्मयो मे ॥२८॥
+
 > eko mayeha bhagavān vividha-pradhānaiś
 > cittī-kṛtaḥ prajananāya kathaṁ nu yūyam
 > atrāgatās tanu-bhṛtāṁ manaso 'pi dūrād

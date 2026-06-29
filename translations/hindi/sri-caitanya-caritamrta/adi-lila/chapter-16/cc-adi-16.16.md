@@ -1,5 +1,8 @@
 ### CC Adi 16.16
 
+> তাঁর ইচ্ছা, — প্রভুসঙ্গে নবদ্বীপে বসি ।
+> প্রভু আজ্ঞা দিল, — তুমি যাও বারাণসী ॥১৬॥
+
 > tāṅra icchā,—prabhu-saṅge navadvīpe vasi
 > prabhu ājñā dila,—tumi yāo vārāṇasī
 

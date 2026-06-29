@@ -1,5 +1,8 @@
 ### SB 3.33.22
 
+> तमेव ध्यायती देवमपत्यं कपिलं हरिम् ।
+> बभूवाचिरतो वत्स निःस्पृहा तादृशे गृहे ॥२२॥
+
 > tam eva dhyāyatī devam
 > apatyaṁ kapilaṁ harim
 > babhūvācirato vatsa

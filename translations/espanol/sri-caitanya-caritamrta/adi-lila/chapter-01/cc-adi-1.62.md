@@ -1,5 +1,8 @@
 ### CC Adi 1.62
 
+> সাধবো হৃদয়ং মহ্যং সাধূনাং হৃদয়ন্ত্বহম্ ।
+> মদন্যত্তে ন জানন্তি নাহং তেভ্যো মনাগপি ॥৬২॥
+
 > sādhavo hṛdayaṁ mahyaṁ
 > sādhūnāṁ hṛdayaṁ tv aham
 > mad-anyat te na jānanti

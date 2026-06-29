@@ -1,5 +1,8 @@
 ### SB 4.1.23
 
+> तत्प्रादुर्भावसंयोग विद्योतितमना मुनिः ।
+> उत्तिष्ठन्नेकपादेन ददर्श विबुधर्षभान् ॥२३॥
+
 > tat-prādurbhāva-saṁyoga-
 > vidyotita-manā muniḥ
 > uttiṣṭhann eka-pādena

@@ -1,5 +1,8 @@
 ### CC Madhya 18.55
 
+> প্রস্তাবে কহিলুঁ গোপাল-কৃপার আখ্যান ।
+> তবে মহাপ্ৰভু গেলা ‘শ্রীকাম্যবন’ ॥৫৫॥
+
 prastāve kahiluṅ gopāla-kṛpāra ākhyāna
 
 tabe mahāprabhu gelā 'śrī-kāmyavana'

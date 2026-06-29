@@ -1,5 +1,8 @@
 ### CC Madhya 5.89
 
+> কন্যা পাব, — মোর মনে ইহা নাহি সুখ ।
+> ব্রাহ্মণের প্রতিজ্ঞা যায় — এই বড় দুঃখ ॥৮৯॥
+
 > kanyā pāba,—mora mane ihā nāhi sukha
 > brāhmaṇera pratijñā yāya—ei baḍa duḥkha
 

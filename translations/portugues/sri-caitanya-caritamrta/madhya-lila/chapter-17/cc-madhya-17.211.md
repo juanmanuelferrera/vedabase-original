@@ -1,5 +1,8 @@
 ### CC Madhya 17.211
 
+> শুক-মুখে শুনি’ তবে কৃষ্ণের বর্ণন ।
+> শারিকা পড়য়ে তবে রাধিকা-বর্ণন ॥২১১॥
+
 śuka-mukhe śuni' tabe kṛṣṇera varṇana
 
 śārikā paḍaye tabe rādhikā-varṇana

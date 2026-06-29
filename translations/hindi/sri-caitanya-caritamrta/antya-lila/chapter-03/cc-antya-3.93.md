@@ -1,5 +1,8 @@
 ### CC Antya 3.93
 
+> তবে মহাপ্রভু নিজভক্তপাশে যাঞা ।
+> হরিদাসের গুণ কহে শতমুখ হঞা ॥৯৩॥
+
 > tabe mahāprabhu nija-bhakta-pāśe yāñā
 > haridāsera guṇa kahe śata-mukha hañā
 

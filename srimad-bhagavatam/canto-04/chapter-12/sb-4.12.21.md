@@ -1,5 +1,10 @@
 ### SB 4.12.21
 
+> विज्ञाय तावुत्तमगायकिङ्कराव्
+> अभ्युत्थितः साध्वसविस्मृतक्रमः ।
+> ननाम नामानि गृणन्मधुद्विषः
+> पार्षत्प्रधानाविति संहताञ्जलिः ॥२१॥
+
 > vijñāya tāv uttamagāya-kiṅkarāv
 > abhyutthitaḥ sādhvasa-vismṛta-kramaḥ
 > nanāma nāmāni gṛṇan madhudviṣaḥ

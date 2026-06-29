@@ -1,5 +1,8 @@
 ### SB 9.22.36
 
+> जनमेजयस्त्वां विदित्वा तक्षकान्निधनं गतम
+> सर्पान्वै सर्पयागाग्नौ स होष्यति रुषान्वितः ॥३६॥
+
 > janamejayas tvāṁ viditvā
 > takṣakān nidhanaṁ gatam
 > sarpān vai sarpa-yāgāgnau

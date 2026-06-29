@@ -1,5 +1,8 @@
 ### CC Madhya 14.79
 
+> অদ্বৈত-নিত্যানন্দে জল-ফেলাফেলি ।
+> আচার্য হারিয়া পাছে করে গালাগালি ॥৭৯॥
+
 advaita-nityānande jala-phelāpheli
 
 ācārya hāriyā pāche kare gālāgāli

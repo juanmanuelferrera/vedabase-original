@@ -1,5 +1,7 @@
 ### SB 5.8.25
 
+> किं वात्मजविश्लेषज्वरदवदहनशिखाभिरुपतप्यमानहृदयस्थलनलिनीकंमामुपसृतमृगीतनयं शिशिरशान्तानुरागगुणितनिजवदनसलिलामृतमयगभस्तिभिः स्वधयतीति च ॥२५॥
+
 *kiṁ vātmaja*-viśleṣa-jvara-dava-dahana-śikhābhir upatapyamāna-hṛdaya-sthala-nalinīkaṁ mām upasṛta-mṛgī-tanayaṁ śiśira-śāntānurāga-guṇita-nija-vadana-salilāmṛtamaya-gabhastibhiḥ svadhayatīti ca.
 
 *kim vā*—ou talvez seja; *ātma-ja*—do filho; *viśleṣa*—por causa da separação; *jvara*—o calor; *dava-dahana*—do incêndio florestal; *śikhābhiḥ*—pelas chamas; *upatapyamāna*—sendo queimado; *hṛdaya*—o coração; *sthala-nalinīkam*—comparado a um lótus vermelho; *mām*—a mim; *upasṛta-mṛgī-tanayam*—a quem o filho do cervo era tão submisso; *śiśira-śānta*—que é tão tranquilo e fresco; *anurāga*—por amor; *guṇita*—fluindo; *nija-vadana-salila*—a água de sua boca; *amṛta-maya*—tão boa quanto néctar; *gabhastibhiḥ*—pelos raios da lua; *svadhayati*—está a me dar prazer; *iti*—assim; *ca*—e.

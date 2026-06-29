@@ -1,5 +1,8 @@
 ### CC Madhya 18.163
 
+> হেনকালে তাহাঁ আশোয়ার দশ আইলা ।
+> ম্লেচ্ছ-পাঠান ঘোড়া হৈতে উত্তরিলা ॥১৬৩॥
+
 > hena-kāle tāhāṅ āśoyāra daśa āilā
 > mleccha-pāṭhāna ghoḍā haite uttarilā
 

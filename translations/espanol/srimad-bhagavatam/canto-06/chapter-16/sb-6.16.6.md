@@ -1,5 +1,8 @@
 ### SB 6.16.6
 
+> यथा वस्तूनि पण्यानि हेमादीनि ततस्ततः
+> पर्यटन्ति नरेष्वेवं जीवो योनिषु कर्तृषु ॥६॥
+
 > yathā vastūni paṇyāni
 > hemādīni tatas tataḥ
 > paryaṭanti nareṣv evaṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 20.236
 
+> অধোক্ষজ — পদ্মগদাশঙ্খচক্রকর ।
+> উপেন্দ্র — শঙ্খগদাচক্রপদ্মকর ॥২৩৬॥
+
 adhokṣaja--padma-gadā-śaṅkha-cakra-kara
 
 upendra--śaṅkha-gadā-cakra-padma-kara

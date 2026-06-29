@@ -1,5 +1,8 @@
 ### CC Adi 7.41
 
+> সন্ন্যাসী হইয়া করে গায়ন, নাচন ।
+> না করে বেদান্ত-পাঠ, করে সংকীর্তন ॥৪১॥
+
 > sannyāsī ha-iyā kare gāyana, nācana
 > nā kare vedānta-pāṭha, kare saṅkīrtana
 

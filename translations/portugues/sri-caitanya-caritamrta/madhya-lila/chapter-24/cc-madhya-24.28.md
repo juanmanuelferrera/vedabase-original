@@ -1,5 +1,8 @@
 ### CC Madhya 24.28
 
+> এক ভুক্তি কহে, ভোগ — অনন্ত-প্রকার ।
+> সিদ্ধি — অষ্টাদশ, মুক্তি — পঞ্চবিধাকার ॥২৮॥
+
 eka bhukti kahe, bhoga--ananta-prakāra
 
 siddhi--aṣṭādaśa, mukti--pañca-vidhākāra

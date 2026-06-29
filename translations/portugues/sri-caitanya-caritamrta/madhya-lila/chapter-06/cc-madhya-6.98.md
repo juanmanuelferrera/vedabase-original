@@ -1,5 +1,8 @@
 ### CC Madhya 6.98
 
+> সেই দুই কহে কলিতে সাক্ষাৎ-অবতার  ।
+> তুমি কহ, — কলিতে নাহি বিষ্ণুর প্রচার ॥৯৮॥
+
 sei dui kahe kalite sākṣāt-avatāra
 tumi kaha,--kalite nāhi viṣṇura pracāra
 

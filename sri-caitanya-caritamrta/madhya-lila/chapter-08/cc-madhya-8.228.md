@@ -1,5 +1,8 @@
 ### CC Madhya 8.228
 
+> অতএব গোপীভাব করি অঙ্গীকার ।
+> রাত্রি-দিন চিন্তে রাধাকৃষ্ণের বিহার ॥২২৮॥
+
 > ataeva gopī-bhāva kari aṅgīkāra
 > rātri-dina cinte rādhā-kṛṣṇera vihāra
 

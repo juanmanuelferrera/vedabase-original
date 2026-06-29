@@ -1,5 +1,8 @@
 ### CC Madhya 9.154
 
+> গোপীদ্বারে লক্ষ্মী করে কৃষ্ণসঙ্গাস্বাদ ।
+> ঈশ্বরত্বে ভেদ মানিলে হয় অপরাধ ॥১৫৪॥
+
 > gopī-dvāre lakṣmī kare kṛṣṇa-saṅgāsvāda
 > īśvaratve bheda mānile haya aparādha
 

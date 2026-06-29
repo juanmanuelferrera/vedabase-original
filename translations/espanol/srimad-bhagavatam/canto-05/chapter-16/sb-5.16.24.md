@@ -1,5 +1,7 @@
 ### SB 5.16.24
 
+> एवं कुमुदनिरूढो यः शतवल्शो नाम वटस्तस्य स्कन्धेभ्यो नीचीनाः पयोदधिमधुघृतगुडान्नाद्यम्बरशय्यासनाभरणादयः सर्व एव कामदुघा नदाःकुमुदाग्रात्पतन्तस्तमुत्तरेणेलावृतमुपयोजयन्ति ॥२४॥
+
 > evaṁ kumuda-nirūḍho yaḥ śatavalśo nāma vaṭas tasya skandhebhyo nīcīnāḥ payo-dadhi-madhu-ghṛta-guḍānnādy-ambara-śayyāsanābharaṇādayaḥ sarva eva kāma-dughā nadāḥ kumudāgrāt patantas tam uttareṇelāvṛtam upayojayanti.
 
 *evam*—así; *kumuda-nirūḍhaḥ*—que ha crecido en el monte Kumuda; *yaḥ*—ese; *śata-valśaḥ nāma*—el árbol llamado Śatavalśa (por tener cientos de troncos); *vaṭaḥ*—un árbol de los banianos; *tasya*—de él; *skandhebhyaḥ*—de las ramas gruesas; *nīcīnāḥ*—fluye; *payaḥ*—leche; *dadhi*—yogur; *madhu*—miel; *ghṛta*—mantequilla clarificada; *guḍa*—melaza; *anna*—cereales; *ādi*—y otros productos; *ambara*—ropa; *śayyā*—camas; *āsana*—asientos; *ābharaṇa-ādayaḥ*—que llevan alhajas, etc.; *sarve*—todo; *eva*—ciertamente; *kāma-dughāḥ*—cumpliendo todos los deseos; *nadāḥ*—grandes ríos; *kumuda-agrāt*—de la cima del monte Kumuda; *patantaḥ*—fluir; *tam*—a esa; *uttareṇa*—en la parte norte; *ilāvṛtam*—a la tierra de Ilāvṛta-varṣa; *upayojayanti*—da felicidad.

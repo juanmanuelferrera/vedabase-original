@@ -1,5 +1,8 @@
 ### CC Madhya 9.197
 
+> তাঁরে আশ্বাসিয়া প্রভু করিলা গমন ৷
+> কৃতমালায় স্নান করি আইলা দুর্বশন ৷৷ ১৯৭ ৷৷ ॥১৯৭॥
+
 tāṅre āśvāsiyā prabhu karilā gamana
 kṛtamālāya snāna kari āilā durvaśana
 

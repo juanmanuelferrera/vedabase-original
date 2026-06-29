@@ -1,5 +1,8 @@
 ### CC Antya 6.86
 
+> আজ্ঞা দিলা, — ‘হরি বলি’ করহ ভোজন’ ।
+> ‘হরি’ ‘হরি’-ধ্বনি উঠি’ ভরিল ভুবন ॥৮৬॥
+
 ājñā dilā,--'hari bali' karaha bhojana'
 
 'hari' 'hari'-dhvani uṭhi' bharila bhuvana

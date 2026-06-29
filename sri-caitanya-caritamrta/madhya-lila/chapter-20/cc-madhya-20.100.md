@@ -1,5 +1,8 @@
 ### CC Madhya 20.100
 
+> আপনার হিতাহিত কিছুই না জানি !
+> গ্রাম্য-ব্যবহারে পণ্ডিত, তাই সত্য মানি ॥১০০॥
+
 > āpanāra hitāhita kichui nā jāni!
 > grāmya-vyavahāre paṇḍita, tāi satya māni
 

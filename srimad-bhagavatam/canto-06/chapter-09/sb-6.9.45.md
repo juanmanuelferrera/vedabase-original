@@ -1,5 +1,8 @@
 ### SB 6.9.45
 
+> हंसाय दह्रनिलयाय निरीक्षकाय कृष्णाय मृष्टयशसे निरुपक्रमाय
+> सत्सङ्ग्रहाय भवपान्थनिजाश्रमाप्तावन्ते परीष्टगतये हरये नमस्ते ॥४५॥
+
 > haṁsāya dahra-nilayāya nirīkṣakāya
 > kṛṣṇāya mṛṣṭa-yaśase nirupakramāya
 > sat-saṅgrahāya bhava-pāntha-nijāśramāptāv

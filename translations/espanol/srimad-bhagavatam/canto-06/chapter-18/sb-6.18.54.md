@@ -1,5 +1,8 @@
 ### SB 6.18.54
 
+> सांवत्सरं पुंसवनं व्रतमेतदविप्लुतम
+> धारयिष्यसि चेत्तुभ्यं शक्रहा भविता सुतः ॥५४॥
+
 > sāṁvatsaraṁ puṁsavanaṁ
 > vratam etad aviplutam
 > dhārayiṣyasi cet tubhyaṁ

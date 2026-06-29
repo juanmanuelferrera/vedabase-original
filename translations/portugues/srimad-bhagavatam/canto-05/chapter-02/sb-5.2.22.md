@@ -1,5 +1,7 @@
 ### SB 5.2.22
 
+> आग्नीध्रो राजातृप्तः कामानामप्सरसमेवानुदिनमधिमन्यमानस्तस्याः सलोकतांश्रुतिभिरवारुन्ध यत्र पितरो मादयन्ते ॥२२॥
+
 *āgnīdhro rājātṛptaḥ kāmānām apsarasam evānudinam adhi*-manyamānas tasyāḥ salokatāṁ śrutibhir avārundha yatra pitaro mādayante.
 
 *āgnīdhraḥ*—Āgnīdhra; *rājā*—o rei; *atṛptaḥ*—não satisfeito; *kāmānām*—com a gratificação dos sentidos; *apsarasam*—a mulher celestial (Pūrvacitti); *eva*—certamente; *anudinam*—dia após dia; *adhi*—grandemente; *manyamānaḥ*—pensando em; *tasyāḥ*—dela; *sa-lokatām*—promoção ao mesmo planeta; *śrutibhiḥ*—pelos Vedas; *avārundha*—obteve; *yatra*—onde; *pitaraḥ*—os antepassados; *mādayante*—deleitam-se.

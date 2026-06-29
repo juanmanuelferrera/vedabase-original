@@ -1,5 +1,8 @@
 ### CC Madhya 4.15
 
+> চূড়া পাঞা মহাপ্ৰভুর আনন্দিত মন ।
+> বহু নৃত্যগীত কৈল লঞা ভক্তগণ ॥১৫॥
+
 > cūḍā pāñā mahāprabhura ānandita mana
 > bahu nṛtya-gīta kaila lañā bhakta-gaṇa
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.249
 
+> শুনিতেই ভট্টাচার্য উলটি’ চাহিল ।
+> তাঁর অবধান দেখি’ অমোঘ পলাইল ॥২৪৯॥
+
 śunitei bhaṭṭācārya ulaṭi' cāhila
 
 tāṅra avadhāna dekhi' amogha palāila

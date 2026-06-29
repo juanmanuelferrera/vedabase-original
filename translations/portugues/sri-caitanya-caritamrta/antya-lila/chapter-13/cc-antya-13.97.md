@@ -1,5 +1,8 @@
 ### CC Antya 13.97
 
+> রামদাস কহে, — “আমি শূদ্র অধম !
+> ‘ব্রাহ্মণের সেবা’, — এই মোর নিজ-ধর্ম ॥৯৭॥
+
 rāmadāsa kahe,--"āmi śūdra adhama!
 
 'brāhmaṇera sevā',--ei mora nija-dharma

@@ -1,5 +1,8 @@
 ### CC Adi 12.36
 
+> গোবিন্দেরে আজ্ঞা দিল, — “ইঁহা আজি হৈতে ।
+> বাউলিয়া বিশ্বাসে এথা না দিবে আসিতে ।।” ॥ ৩৬ ॥
+
 govindere ājñā dila,--"iṅhā āji haite
 bāuliyā viśvāse ethā nā dibe āsite"
 

@@ -1,5 +1,8 @@
 ### CC Antya 10.116
 
+> প্রভু কহে, — ‘আদিবস্যা’ দুঃখ কাঁহে মানে ?
+> কেবা কি দিয়াছে, তাহা আনহ এখানে ॥১১৬॥
+
 > prabhu kahe,--'ādi-vasyā' duḥkha kāṅhe māne?
 > kebā ki diyāche, tāhā ānaha ekhāne'
 

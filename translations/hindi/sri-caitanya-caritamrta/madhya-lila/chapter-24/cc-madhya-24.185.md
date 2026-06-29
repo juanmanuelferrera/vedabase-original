@@ -1,5 +1,8 @@
 ### CC Madhya 24.185
 
+> ‘চ’ — অবধারণে, ইহা ‘অপি’ — সমুচ্চয়ে ।
+> ধৃতিমন্ত হঞা ভজে পক্ষি-মূর্খ-চয়ে ॥১৮৫॥
+
 > 'ca'--avadhāraṇe, ihā 'api'--samuccaye
 > dhṛtimanta hañā bhaje pakṣi-mūrkha-caye
 

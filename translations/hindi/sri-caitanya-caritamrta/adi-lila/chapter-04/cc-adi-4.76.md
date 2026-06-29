@@ -1,5 +1,8 @@
 ### CC Adi 4.76
 
+> অবতারী কৃষ্ণ যৈছে করে অবতার ।
+> অংশিনী রাধা হৈতে তিন গণের বিস্তার ॥৭৬॥
+
 > avatārī kṛṣṇa yaiche kare avatāra
 > aṁśinī rādhā haite tina gaṇera vistāra
 

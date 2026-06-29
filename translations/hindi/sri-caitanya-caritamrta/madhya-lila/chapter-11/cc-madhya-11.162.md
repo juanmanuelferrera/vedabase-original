@@ -1,5 +1,8 @@
 ### CC Madhya 11.162
 
+> দূর হৈতে হরিদাস গোসাঞে দেখিয়া ।
+> রাজপথ-প্রান্তে পড়ি’ আছে দণ্ডবৎ হঞা ॥১৬২॥
+
 > dūra haite haridāsa gosāñe dekhiyā
 > rājapatha-prānte paḍi' āche daṇḍavat hañā
 

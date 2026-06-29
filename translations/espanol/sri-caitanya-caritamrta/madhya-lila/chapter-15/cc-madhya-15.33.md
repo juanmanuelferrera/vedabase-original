@@ -1,5 +1,8 @@
 ### CC Madhya 15.33
 
+> হনুমান্-আবেশে প্রভু বৃক্ষশাখা লঞা  ।
+> লঙ্কা-গড়ে চড়ি’ ফেলে গড় ভাঙ্গিয়া ॥৩৩॥
+
 > hanumān-āveśe prabhu vṛkṣa-śākhā lañā
 > laṅkā-gaḍe caḍi' phele gaḍa bhāṅgiyā
 

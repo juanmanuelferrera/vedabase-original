@@ -1,5 +1,8 @@
 ### SB 8.3.28
 
+> नमो नमस्तुभ्यमसह्यवेग शक्तित्रयायाखिलधीगुणाय
+> प्रपन्नपालाय दुरन्तशक्तये कदिन्द्रियाणामनवाप्यवर्त्मने ॥२८॥
+
 namo namas tubhyam asahya-vega-
 śakti-trayāyākhila-dhī-guṇāya
 prapanna-pālāya duranta-śaktaye

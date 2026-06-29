@@ -1,5 +1,7 @@
 ### SB 5.14.16
 
+> क्वचित्कालविषमितराजकुलरक्षसापहृतप्रियतमधनासुः प्रमृतक इव विगतजीवलक्षणआस्ते ॥१६॥
+
 *kvacit kāla*-viṣa-mita-rāja-kula-rakṣasāpahṛta-priyatama-dhanāsuḥ pramṛtaka iva vigata-jīva-lakṣaṇa āste.
 
 *kvacit*—às vezes; *kāla-viṣa-mita*—tornados sinuosos pelo tempo; *rāja-kula*—os homens do governo; *rakṣasā*—por aqueles que são como seres humanos carnívoros; *apahṛta*—sendo saqueada; *priya-tama*—muitíssimo querida; *dhana*—sob a forma de riqueza; *asuḥ*—cujo ar vital; *pramṛtakaḥ*—morto; *iva*—como; *vigata-jīva-lakṣaṇaḥ*—privado de todos os sinais de vida; *āste*—permanece.

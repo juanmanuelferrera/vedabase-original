@@ -1,5 +1,8 @@
 ### CC Madhya 13.96
 
+> ক্রুদ্ধ হঞা তাঁরে কিছু চাহে বলিবারে ।
+> আপনি প্রতাপরুদ্র নিবারিল তারে ॥৯৬॥
+
 kruddha hañā tāṅre kichu cāhe balibāre
 
 āpani pratāparudra nivārila tāre

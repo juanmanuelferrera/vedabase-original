@@ -1,5 +1,8 @@
 ### SB 8.7.40
 
+> प्राणैः स्वैः प्राणिनः पान्ति साधवः क्षणभङ्गुरैः
+> बद्धवैरेषु भूतेषु मोहितेष्वात्ममायया ॥४०॥
+
 > puṁsaḥ kṛpayato bhadre
 > sarvātmā prīyate hariḥ
 > prīte harau bhagavati

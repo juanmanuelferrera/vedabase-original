@@ -1,5 +1,8 @@
 ### CC Antya 3.52
 
+> হরিদাস কহে, — “প্রভু, চিন্তা না করিহ ।
+> যবনের সংসার দেখি’ দুঃখ না ভাবিহ ॥৫২॥
+
 > haridāsa kahe,--"prabhu, cintā nā kariha
 > yavanera saṁsāra dekhi' duḥkha nā bhāviha
 

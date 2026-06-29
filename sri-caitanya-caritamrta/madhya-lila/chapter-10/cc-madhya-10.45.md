@@ -1,5 +1,8 @@
 ### CC Madhya 10.45
 
+> চন্দনেশ্বর, সিংহেশ্বর, মুরারি ব্রাহ্মণ ।
+> বিষ্ণুদাস, — ইঁহ ধ্যায়ে তোমার চরণ ॥৪৫॥
+
 > candaneśvara, siṁheśvara, murāri brāhmaṇa
 > viṣṇudāsa,-iṅha dhyāye tomāra caraṇa
 

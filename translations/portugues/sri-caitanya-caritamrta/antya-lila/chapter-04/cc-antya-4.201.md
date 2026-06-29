@@ -1,5 +1,8 @@
 ### CC Antya 4.201
 
+> এত বলি’ পুনঃ তাঁরে কৈলা আলিঙ্গন ।
+> কণ্ডু গেল, অঙ্গ হৈল সুবর্ণের সম ॥২০১॥
+
 eta bali' punaḥ tāṅre kailā āliṅgana
 
 kaṇḍu gela, aṅga haila suvarṇera sama

@@ -1,5 +1,8 @@
 ### CC Madhya 16.95
 
+> জগন্নাথের প্রসাদ প্রভু যত পাঞাছিল ।
+> কড়ার, চন্দন, ডোর, সব সঙ্গে লৈল ॥৯৫॥
+
 jagannāthera prasāda prabhu yata pāñāchila
 
 kaḍāra, candana, ḍora, saba saṅge laila

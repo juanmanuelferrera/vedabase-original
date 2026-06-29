@@ -1,5 +1,8 @@
 ### CC Adi 17.195
 
+> ‘হরি’ ‘হরি’ করি’ হিন্দু করে কোলাহল ।
+> পাতসাহ শুনিলে তোমার করিবেক ফল ॥১৯৫॥
+
 > 'hari' 'hari' kari' hindu kare kolāhala
 > pātasāha śunile tomāra karibeka phala
 

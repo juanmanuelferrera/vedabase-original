@@ -1,5 +1,8 @@
 ### CC Madhya 4.177
 
+> মহা-দয়াময় প্ৰভু — ভকতবত্সল  ।
+> চন্দন পরি’ ভক্তশ্রম করিল সফল ॥১৭৭॥
+
 mahā-dayā-maya prabhu--bhakata-vatsala
 candana pari' bhakta-śrama karila saphala
 

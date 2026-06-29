@@ -1,5 +1,8 @@
 ### SB 4.12.46
 
+> श्रुत्वैतच्छ्रद्धयाभीक्ष्णमच्युतप्रियचेष्टितम् ।
+> भवेद्भक्तिर्भगवति यया स्यात्क्लेशसङ्क्षयः ॥४६॥
+
 > śrutvaitac chraddhayābhīkṣṇam
 > acyuta-priya-ceṣṭitam
 > bhaved bhaktir bhagavati

@@ -1,5 +1,8 @@
 ### CC Madhya 21.68
 
+> রুদ্রগণ আইলা লক্ষ কোটি-বদন ।
+> ইন্দ্রগণ আইলা লক্ষ কোটি-নয়ন ॥৬৮॥
+
 rudra-gaṇa āilā lakṣa koṭi-vadana
 
 indra-gaṇa āilā lakṣa koṭi-nayana

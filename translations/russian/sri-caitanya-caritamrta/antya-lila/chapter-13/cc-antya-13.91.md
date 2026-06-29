@@ -1,5 +1,8 @@
 ### CC Antya 13.91
 
+> পথে তারে মিলিলা বিশ্বাস-রামদাস ।
+> বিশ্বাসখানার কায়স্থ তেঁহো রাজার বিশ্বাস ॥৯১॥
+
 > pathe tāre mililā viśvāsa-rāmadāsa
 > viśvāsa-khānāra kāyastha teṅho rājāra viśvāsa
 

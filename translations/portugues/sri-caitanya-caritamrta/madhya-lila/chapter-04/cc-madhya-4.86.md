@@ -1,5 +1,8 @@
 ### CC Madhya 4.86
 
+> দেখিয়া পুরীর প্রভাব লোকে চমৎকার ।
+> পূর্ব অন্নকূট যেন হৈল সাক্ষাৎকার ॥৮৬॥
+
 dekhiyā purīra prabhāva loke camatkāra
 pūrva annakūṭa yena haila sākṣātkāra
 

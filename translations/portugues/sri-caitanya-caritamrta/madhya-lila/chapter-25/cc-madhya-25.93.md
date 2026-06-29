@@ -1,5 +1,8 @@
 ### CC Madhya 25.93
 
+> যেই সূত্রকর্তা, সে যদি করয়ে ব্যাখ্যান ।
+> তবে সূত্রের মূল অর্থ লোকের হয় জ্ঞান ॥৯৩॥
+
 yei sūtra-kartā, se yadi karaye vyākhyāna
 
 tabe sūtrera mūla artha lokera haya jñāna

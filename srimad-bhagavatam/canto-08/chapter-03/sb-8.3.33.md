@@ -1,5 +1,10 @@
 ### SB 8.3.33
 
+> तं वीक्ष्य पीडितमजः सहसावतीर्य
+> सग्राहमाशु सरसः कृपयोज्जहार
+> ग्राहाद्विपाटितमुखादरिणा गजेन्द्रं
+> संपश्यतां हरिरमूमुचदुच्छ्रियाणाम ॥३३॥
+
 > taṁ vīkṣya pīḍitam ajaḥ sahasāvatīrya
 > sa-grāham āśu sarasaḥ kṛpayojjahāra
 > grāhād vipāṭita-mukhād ariṇā gajendraṁ

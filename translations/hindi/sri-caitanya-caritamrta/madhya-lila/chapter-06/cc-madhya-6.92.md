@@ -1,5 +1,8 @@
 ### CC Madhya 6.92
 
+> দেখিলে না দেখে তারে বহির্মুখ জন ।”
+> শুনি’ হাসি’ সার্বভৌম বলিল বচন ॥৯২॥
+
 > dekhile nā dekhe tāre bahirmukha jana"
 > śuni' hāsi' sārvabhauma balila vacana
 

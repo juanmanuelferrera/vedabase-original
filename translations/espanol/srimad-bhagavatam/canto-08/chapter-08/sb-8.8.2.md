@@ -1,5 +1,8 @@
 ### SB 8.8.2
 
+> तामग्निहोत्रीमृषयो जगृहुर्ब्रह्मवादिनः
+> यज्ञअस्य देवयानस्य मेध्याय हविषे नृप ॥२॥
+
 > tām agni-hotrīm ṛṣayo
 > jagṛhur brahma-vādinaḥ
 > yajñasya deva-yānasya

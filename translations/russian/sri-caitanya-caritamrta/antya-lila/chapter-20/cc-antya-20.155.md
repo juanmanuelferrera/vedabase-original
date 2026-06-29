@@ -1,5 +1,8 @@
 ### CC Antya 20.155
 
+> শ্রীমন্মদনগোপাল-গোবিন্দদেব-তুষ্টয়ে ।
+> চৈতন্যার্পিতমস্ত্বেতচ্চৈতন্যচরিতামৃতম্ ॥১৫৫॥
+
 > śrīman-madana-gopāla-
 > govindadeva-tuṣṭaye
 > caitanyārpitam astv etac

@@ -1,5 +1,8 @@
 ### CC Madhya 9.127
 
+> প্রভু কহে, — কৃষ্ণের এক স্বভাব বিলক্ষণ ৷
+> স্বমাধুর্যে সর্ব চিত্ত করে আকর্ষণ ৷৷ ১২৭ ৷৷ ॥১২৭॥
+
 prabhu kahe,--kṛṣṇera eka svabhāva vilakṣaṇa
 sva-mādhurye sarva citta kare ākarṣaṇa
 

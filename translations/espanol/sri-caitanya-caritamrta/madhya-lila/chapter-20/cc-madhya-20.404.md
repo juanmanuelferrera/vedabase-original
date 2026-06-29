@@ -1,5 +1,8 @@
 ### CC Madhya 20.404
 
+> অনন্ত স্বরূপ কৃষ্ণের নাহিক গণন ।
+> শাখা-চন্দ্র-ন্যায়ে করি দিগ্দরশন ॥৪০৪॥
+
 > ananta svarūpa kṛṣṇera nāhika gaṇana
 > śākhā-candra-nyāye kari dig-daraśana
 

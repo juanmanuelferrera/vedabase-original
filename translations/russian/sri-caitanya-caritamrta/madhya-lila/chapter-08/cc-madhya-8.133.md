@@ -1,5 +1,8 @@
 ### CC Madhya 8.133
 
+> মোর জিহ্বা — বীণাযন্ত্র, তুমি — বীণা-ধারী ।
+> তোমার মনে যেই উঠে, তাহাই উচ্চারি ॥১৩৩॥
+
 > mora jihvā—vīṇā-yantra, tumi—vīṇā-dhārī
 > tomāra mane yei uṭhe, tāhāi uccāri
 

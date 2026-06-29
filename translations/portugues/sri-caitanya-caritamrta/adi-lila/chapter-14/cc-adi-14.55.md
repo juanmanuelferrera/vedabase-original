@@ -1,5 +1,8 @@
 ### CC Adi 14.55
 
+> পণ্ডিত, বিদগ্ধ, যুবা, ধনধান্যবান্ ।
+> সাত সাত পুত্র হবে — চিরায়ু, মতিমান্ ।।” ॥ ৫৫ ॥
+
 paṇḍita, vidagdha, yuvā, dhana-dhānyavān
 sāta sāta putra habe--cirāyu, matimān"
 

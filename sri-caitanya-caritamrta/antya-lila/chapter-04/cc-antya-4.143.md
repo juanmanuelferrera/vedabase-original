@@ -1,5 +1,8 @@
 ### CC Antya 4.143
 
+> যে-কার্যে আইলা, প্রভুর দেখিলা চরণ ।
+> রথে জগন্নাথ দেখি’ করহ গমন ।।” ॥ ১৪৩ ॥
+
 > ye-kārye āilā, prabhura dekhilā caraṇa
 > rathe jagannātha dekhi' karaha gamana"
 

@@ -1,5 +1,8 @@
 ### CC Madhya 10.125
 
+> মুঞি তোমা ছাড়িল, তুমি মোরে না ছাড়িলা ।
+> কৃপা-পাশ গলে বান্ধি’ চরণে আনিলা ॥১২৫॥
+
 > muñi tomā chāḍila, tumi more nā chāḍilā
 > kṛpā-pāśa gale bāndhi' caraṇe ānilā
 

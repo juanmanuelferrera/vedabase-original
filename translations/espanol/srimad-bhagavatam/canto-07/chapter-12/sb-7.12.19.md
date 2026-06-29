@@ -1,5 +1,8 @@
 ### SB 7.12.19
 
+> वन्यैश्चरुपुरोडाशान्निर्वपेत्कालचोदितान
+> लब्धे नवे नवेऽन्नाद्ये पुराणं च परित्यजेत ॥१९॥
+
 > vanyaiś caru-puroḍāśān
 > nirvapet kāla-coditān
 > labdhe nave nave 'nnādye

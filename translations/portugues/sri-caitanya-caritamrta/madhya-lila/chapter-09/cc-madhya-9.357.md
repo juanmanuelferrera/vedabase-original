@@ -1,5 +1,8 @@
 ### CC Madhya 9.357
 
+> এক রামানন্দ রায় বহু সুখ দিল ৷
+> ভট্ট কহে, — এই লাগি’ মিলিতে কহিল ৷৷ ৩৫৭ ৷৷ ॥৩৫৭॥
+
 eka rāmānanda rāya bahu sukha dila
 
 bhaṭṭa kahe,--ei lāgi' milite kahila

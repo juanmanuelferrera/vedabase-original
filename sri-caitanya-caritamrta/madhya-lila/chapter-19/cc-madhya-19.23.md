@@ -1,5 +1,8 @@
 ### CC Madhya 19.23
 
+> সনাতন কহে — নহে আমা হৈতে কাম ।
+> আর একজন দিয়া কর সমাধান ॥২৩॥
+
 > sanātana kahe,—nahe āmā haite kāma
 > āra eka-jana diyā kara samādhāna
 

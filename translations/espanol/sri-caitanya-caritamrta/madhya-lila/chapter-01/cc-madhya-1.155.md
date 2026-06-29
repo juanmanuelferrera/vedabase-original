@@ -1,5 +1,8 @@
 ### CC Madhya 1.155
 
+> বৃন্দাবন যাবেন প্রভু শুনি’ নৃসিংহানন্দ ।
+> পথ সাজাইল মনে পাইয়া আনন্দ ॥১৫৫॥
+
 > vṛndāvana yābena prabhu śuni' nṛsiṁhānanda
 > patha sājāila mane pāiyā ānanda
 

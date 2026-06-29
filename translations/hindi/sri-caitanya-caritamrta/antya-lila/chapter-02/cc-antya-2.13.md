@@ -1,5 +1,8 @@
 ### CC Antya 2.13
 
+> তা-সবা তারিতে প্রভু সেই সব দেশে  ।
+> যোগ্যভক্ত জীবদেহে করেন ‘আবেশে’ ॥১৩॥
+
 > tā-sabā tārite prabhu sei saba deśe
 > yogya-bhakta jīva-dehe karena 'āveśe'
 

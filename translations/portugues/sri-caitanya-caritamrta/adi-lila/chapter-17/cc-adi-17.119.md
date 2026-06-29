@@ -1,5 +1,8 @@
 ### CC Adi 17.119
 
+> বনমালী আচার্য দেখে সোণার লাঙ্গল ।
+> সবে মিলি’ নৃত্য করে আবেশে বিহ্বল ॥১১৯॥
+
 vanamālī ācārya dekhe soṇāra lāṅgala
 
 sabe mili' nṛtya kare āveśe vihvala

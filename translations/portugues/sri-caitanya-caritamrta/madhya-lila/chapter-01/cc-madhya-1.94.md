@@ -1,5 +1,8 @@
 ### CC Madhya 1.94
 
+> শান্তিপুরে আচার্যের গৃহে আগমন ।
+> প্রথম ভিক্ষা কৈল তাহাঁ, রাত্রে সংকীর্তন ॥৯৪॥
+
 śāntipure ācāryera gṛhe āgamana
 prathama bhikṣā kaila tāhāṅ, rātre saṅkīrtana
 

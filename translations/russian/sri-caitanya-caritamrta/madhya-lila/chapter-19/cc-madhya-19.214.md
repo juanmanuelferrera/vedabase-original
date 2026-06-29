@@ -1,5 +1,8 @@
 ### CC Madhya 19.214
 
+> কৃষ্ণ বিনা তৃষ্ণা-ত্যাগ — তার কার্য মানি ।
+> অতএব ‘শান্ত’ কৃষ্ণভক্ত এক জানি ॥২১৪॥
+
 > kṛṣṇa vinā tṛṣṇā-tyāga—tāra kārya māni
 > ataeva 'śānta' kṛṣṇa-bhakta eka jāni
 

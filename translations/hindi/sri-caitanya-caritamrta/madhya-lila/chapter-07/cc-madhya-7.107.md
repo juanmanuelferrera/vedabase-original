@@ -1,5 +1,8 @@
 ### CC Madhya 7.107
 
+> প্রভুর কৃপায় হয় মহাভাগবত ।
+> সেই সব আচার্য হঞা তারিল জগৎ ॥১০৭॥
+
 > prabhura kṛpāya haya mahābhāgavata
 > sei saba ācārya hañā tārila jagat
 

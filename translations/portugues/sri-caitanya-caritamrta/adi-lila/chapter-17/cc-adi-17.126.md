@@ -1,5 +1,8 @@
 ### CC Adi 17.126
 
+> এতকাল কেহ নাহি কৈল হিন্দুয়ানি ।
+> এবে যে উদ্যম চালাও কার বল জানি’ ॥১২৬॥
+
 eta-kāla keha nāhi kaila hinduyāni
 
 ebe ye udyama cālāo kāra bala jāni'

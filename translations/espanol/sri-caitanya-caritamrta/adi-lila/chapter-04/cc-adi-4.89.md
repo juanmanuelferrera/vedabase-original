@@ -1,5 +1,8 @@
 ### CC Adi 4.89
 
+> অতএব সর্বপূজ্যা, পরম-দেবতা ।
+> সর্বপালিকা, সর্ব-জগতের মাতা ॥৮৯॥
+
 > ataeva sarva-pūjyā, parama-devatā
 > sarva-pālikā, sarva jagatera mātā
 

@@ -1,5 +1,8 @@
 ### SB 9.13.15
 
+> तस्माद्बृहद्रथस्तस्य महावीर्यः सुधृत्पिता
+> सुधृतेर्धृष्टकेतुर्वै हर्यश्वोऽथ मरुस्ततः ॥१५॥
+
 > tasmād bṛhadrathas tasya
 > mahāvīryaḥ sudhṛt-pitā
 > sudhṛter dhṛṣṭaketur vai

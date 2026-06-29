@@ -1,5 +1,8 @@
 ### SB 3.30.13
 
+> एवं स्वभरणाकल्पं तत्कलत्रादयस्तथा ।
+> नाद्रियन्ते यथा पूर्वं कीनाशा इव गोजरम् ॥१३॥
+
 > evaṁ sva-bharaṇākalpaṁ
 > tat-kalatrādayas tathā
 > nādriyante yathā pūrvaṁ

@@ -1,5 +1,8 @@
 ### SB 4.7.39
 
+> जगदुद्भवस्थितिलयेषु दैवतो बहुभिद्यमानगुणयात्ममायया ।
+> रचितात्मभेदमतये स्वसंस्थया विनिवर्तितभ्रमगुणात्मने नमः ॥३९॥
+
 > jagad-udbhava-sthiti-layeṣu daivato
 > bahu-bhidyamāna-guṇayātma-māyayā
 > racitātma-bheda-mataye sva-saṁsthayā

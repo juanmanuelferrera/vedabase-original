@@ -1,5 +1,8 @@
 ### CC Madhya 15.102
 
+> তবে রামানন্দ, আর সত্যরাজ খাঁন  ।
+> প্রভুর চরণে কিছু কৈল নিবেদন ॥১০২॥
+
 tabe rāmānanda, āra satyarāja khāṅna
 
 prabhura caraṇe kichu kaila nivedana

@@ -1,5 +1,8 @@
 ### CC Madhya 11.62
 
+> স্নানযাত্রা দেখি’ প্রভুর হৈল বড় সুখ ।
+> ঈশ্বরের ‘অনবসরে’ পাইল বড় দুঃখ ॥৬২॥
+
 > snāna-yātrā dekhi' prabhura haila baḍa sukha
 > īśvarera 'anavasare' pāila baḍa duḥkha
 

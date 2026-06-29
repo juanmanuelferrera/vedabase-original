@@ -1,5 +1,8 @@
 ### CC Adi 17.192
 
+> তবে ত’ নগরে হইবে স্বচ্ছন্দে কীর্তন ।
+> শুনি’ সব ম্লেচ্ছ আসি’ কৈল নিবেদন ॥১৯২॥
+
 > tabe ta' nagare ha-ibe svacchande kīrtana
 > śuni' saba mleccha āsi' kaila nivedana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 21.6
 
+> অনন্ত বৈকুণ্ঠ এক এক দেশে যার ।
+> সেই পরব্যোম-ধামের কে করু বিস্তার ॥৬॥
+
 > ananta vaikuṇṭha eka eka deśe yāra
 > sei paravyoma-dhāmera ke karu vistāra
 

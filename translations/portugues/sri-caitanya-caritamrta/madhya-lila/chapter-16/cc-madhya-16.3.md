@@ -1,5 +1,8 @@
 ### CC Madhya 16.3
 
+> প্রভুর হইল ইচ্ছা যাইতে বৃন্দাবন ।
+> শুনিয়া প্রতাপরুদ্র হইলা বিমন ॥৩॥
+
 prabhura ha-ila icchā yāite vṛndāvana
 śuniyā pratāparudra ha-ilā vimana
 

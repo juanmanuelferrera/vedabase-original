@@ -1,5 +1,7 @@
 ### SB 5.2.2
 
+> स च कदाचित्पितृलोककामः सुरवरवनिताक्रीडाचलद्रोण्यां भगवन्तं विश्वसृजांपतिमाभृतपरिचर्योपकरण आत्म इकाग्र्येण तपस्व्याराधयां बभूव ॥२॥
+
 *sa ca kadācit pitṛloka*-kāmaḥ sura-vara-vanitākrīḍācala-droṇyāṁ bhagavantaṁ viśva-sṛjāṁ patim ābhṛta-paricaryopakaraṇa ātmaikāgryeṇa tapasvy ārādhayāṁ babhūva.
 
 *saḥ*—ele (o rei Āgnīdhra); *ca*—também; *kadācit*—certa vez; *pitṛloka*—o planeta Pitṛloka; *kāmaḥ*—desejando; *sura-vara*—dos grandes semideuses; *vanitā*—as mulheres; *ākrīḍā*—o lugar de passatempos; *acala-droṇyām*—num vale da colina de Mandara; *bhagavantam*—ao mais poderoso (o Senhor Brahmā); *viśva-sṛjām*—das personalidades que criaram este universo; *patim*—o senhor; *ābhṛta*—tendo reunido; *paricaryā-upakaraṇaḥ*—ingredientes para adoração; *ātma*—da mente; *eka-agryeṇa*—com plena atenção; *tapasvī*—aquele que executa austeridade; *ārādhayām babhūva*—passou a ocupar-se em adorar.

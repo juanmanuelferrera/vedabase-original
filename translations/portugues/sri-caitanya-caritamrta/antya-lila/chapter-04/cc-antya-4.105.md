@@ -1,5 +1,8 @@
 ### CC Antya 4.105
 
+> যাত্রাকালে আইলা সব গৌড়ের ভক্তগণ ।
+> পূর্ববৎ কৈলা সবে রথযাত্রা দরশন ॥১০৫॥
+
 yātrā-kāle āilā saba gauḍera bhakta-gaṇa
 
 pūrvavat kailā sabe ratha-yātrā daraśana

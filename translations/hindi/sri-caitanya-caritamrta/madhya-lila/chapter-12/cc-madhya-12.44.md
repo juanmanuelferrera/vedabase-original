@@ -1,5 +1,8 @@
 ### CC Madhya 12.44
 
+> রাজমন্ত্রী রামানন্দ — ব্যবহারে নিপুণ ।
+> রাজপ্রীতি কহি’ দ্রবাইল প্ৰভুর মন ॥৪৪॥
+
 > rāja-mantrī rāmānanda-vyavahāre nipuṇa
 > rāja-prīti kahi' dravāila prabhura mana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.18
 
+> দধিদুগ্ধ-ভার সবে নিজ-স্কন্ধে করি’  ।
+> মহোত্সব-স্থানে আইলা বলি ‘হরি’ ‘হরি’ ॥১৮॥
+
 > dadhi-dugdha-bhāra sabe nija-skandhe kari'
 > mahotsava-sthāne āilā bali 'hari' 'hari'
 

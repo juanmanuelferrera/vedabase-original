@@ -1,5 +1,10 @@
 ### CC Adi 4.155
 
+> অক্ষণ্বতাং ফলমিদং ন পরং বিদামঃ
+> সখ্যঃ পশূননুবিবেশয়তোর্বয়স্যৈঃ ।
+> বক্ত্রং ব্রজেশসুতয়োরনুবেণুজুষ্টং
+> যৈর্বা নিপীতমনুরক্তকটাক্ষমোক্ষম্ ॥১৫৫॥
+
 > akṣaṇvatāṁ phalam idaṁ na paraṁ vidāmaḥ
 > sakhyaḥ paśūn anuviveśayator vayasyaiḥ
 > vaktraṁ vrajeśa-sutayor anuveṇu-juṣṭaṁ

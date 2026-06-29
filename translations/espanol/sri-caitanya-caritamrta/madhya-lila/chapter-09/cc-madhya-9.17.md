@@ -1,5 +1,8 @@
 ### CC Madhya 9.17
 
+> নৃসিংহ দেখিয়া তাঁরে কৈল নতি-স্তুতি ৷
+> সিদ্ধবট গেলা যাহাঁ মূর্তি সীতাপতি ৷৷ ১৭ ৷৷ ॥১৭॥
+
 > nṛsiṁha dekhiyā tāṅre kaila nati-stuti
 > siddhavaṭa gelā yāhāṅ mūrti sītāpati
 

@@ -1,5 +1,8 @@
 ### CC Antya 2.80
 
+> নিত্যানন্দের নৃত্য দেখেন আসি’ বারে বারে ।
+> ‘নিরন্তর আবির্ভাব’ রাঘবের ঘরে ॥৮০॥
+
 nityānandera nṛtya dekhena āsi' bāre bāre
 
 'nirantara āvirbhāva' rāghavera ghare

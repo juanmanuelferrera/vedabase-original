@@ -1,5 +1,8 @@
 ### CC Madhya 18.37
 
+> গোপালের সৌন্দর্য দেখি’ প্রভুর আবেশ ।
+> এই শ্লোক পড়ি’ নাচে, হৈল দিন-শেষ ॥৩৭॥
+
 > gopālera saundarya dekhi' prabhura āveśa
 > ei śloka paḍi' nāce, haila dina-śeṣa
 

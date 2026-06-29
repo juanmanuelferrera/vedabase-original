@@ -1,5 +1,8 @@
 ### CC Antya 13.33
 
+> স্বরূপ-গোসাঞির বোলে প্রভু আজ্ঞা দিলা ।
+> জগদানন্দে বোলাঞা তাঁরে শিখাইলা ॥৩৩॥
+
 svarūpa-gosāñira bole prabhu ājñā dilā
 
 jagadānande bolāñā tāṅre śikhāilā

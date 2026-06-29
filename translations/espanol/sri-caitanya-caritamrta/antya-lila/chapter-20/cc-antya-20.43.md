@@ -1,5 +1,8 @@
 ### CC Antya 20.43
 
+> এতেক চিন্তিতে রাধার নির্মল হৃদয় ।
+> স্বাভাবিক প্রেমার স্বভাব করিল উদয় ॥৪৩॥
+
 > eteka cintite rādhāra nirmala hṛdaya
 > svābhāvika premāra svabhāva karila udaya
 

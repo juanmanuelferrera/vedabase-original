@@ -1,5 +1,8 @@
 ### CC Adi 14.21
 
+> তবে কত দিনে প্রভুর জানু-চংক্রমণ ।
+> নানা চমৎকার তথা করাইল দর্শন ॥২১॥
+
 > tabe kata dine prabhura jānu-caṅkramaṇa
 > nānā camatkāra tathā karāila darśana
 

@@ -1,5 +1,8 @@
 ### CC Adi 6.61
 
+> কর্মভির্ভ্রাম্যমাণানাং যত্র ক্বাপীশ্বরেচ্ছয়া ।
+> মঙ্গলাচরিতৈর্দানৈ রতির্নঃ কৃষ্ণ ঈশ্বরে ॥৬১॥
+
 > karmabhir bhrāmyamāṇānāṁ
 > yatra kvāpīśvarecchayā
 > maṅgalācaritair dānai

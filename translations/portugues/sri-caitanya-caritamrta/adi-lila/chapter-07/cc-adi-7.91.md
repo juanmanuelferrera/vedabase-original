@@ -1,5 +1,8 @@
 ### CC Adi 7.91
 
+> ভাল হৈল, পাইলে তুমি পরমপুরুষার্থ ।
+> তোমার প্রেমেতে আমি হৈলাঙ কৃতার্থ ॥৯১॥
+
 bhāla haila, pāile tumi parama-puruṣārtha
 
 tomāra premete āmi hailāṅ kṛtārtha

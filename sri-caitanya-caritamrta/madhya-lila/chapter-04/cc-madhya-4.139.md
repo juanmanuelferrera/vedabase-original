@@ -1,5 +1,8 @@
 ### CC Madhya 4.139
 
+> পাত্র প্রক্ষালন করি’ খণ্ড খণ্ড কৈল ।
+> বহির্বাসে বান্ধি’ সেই ঠিকারি রাখিল ॥১৩৯॥
+
 > pātra prakṣālana kari' khaṇḍa khaṇḍa kaila
 > bahir-vāse bāndhi' sei ṭhikāri rākhila
 

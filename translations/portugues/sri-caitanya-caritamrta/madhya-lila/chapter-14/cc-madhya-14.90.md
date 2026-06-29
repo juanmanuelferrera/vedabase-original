@@ -1,5 +1,8 @@
 ### CC Madhya 14.90
 
+> অদ্বৈত নিজ-শক্তি প্রকট করিয়া ।
+> মহাপ্রভু লঞা বুলে জলেতে ভাসিয়া ॥৯০॥
+
 advaita nija-śakti prakaṭa kariyā
 
 mahāprabhu lañā bule jalete bhāsiyā

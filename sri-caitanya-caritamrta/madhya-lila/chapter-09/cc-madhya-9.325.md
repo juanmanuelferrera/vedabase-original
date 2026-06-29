@@ -1,5 +1,8 @@
 ### CC Madhya 9.325
 
+> রায়ের আনন্দ হৈল পুস্তক পাইয়া ।
+> প্রভু-সহ আস্বাদিল, রাখিল লিখিয়া ॥৩২৫॥
+
 > rāyera ānanda haila pustaka pāiyā
 > prabhu-saha āsvādila, rākhila likhiyā
 

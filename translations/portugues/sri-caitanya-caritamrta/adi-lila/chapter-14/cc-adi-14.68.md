@@ -1,5 +1,8 @@
 ### CC Adi 14.68
 
+> প্রভু তাঁর পূজা পাঞা হাসিতে লাগিলা ।
+> শ্লোক পড়ি’ তাঁর ভাব অঙ্গীকার কৈলা ॥৬৮॥
+
 prabhu tāṅra pūjā pāñā hāsite lāgilā
 
 śloka paḍi' tāṅra bhāva aṅgīkāra kailā

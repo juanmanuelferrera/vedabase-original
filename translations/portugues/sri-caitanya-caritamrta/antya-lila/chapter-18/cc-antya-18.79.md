@@ -1,5 +1,8 @@
 ### CC Antya 18.79
 
+> ‘অর্ধবাহ্যে’ কহেন প্রভু প্রলাপ-বচনে ।
+> আকাশে কহেন প্রভু, শুনেন ভক্তগণে ॥৭৯॥
+
 'ardha-bāhye' kahena prabhu pralāpa-vacane
 
 ākāśe kahena prabhu, śunena bhakta-gaṇe

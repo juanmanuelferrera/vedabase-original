@@ -1,5 +1,10 @@
 ### SB 8.9.28
 
+> एवं सुरासुरगणाः समदेशकाल
+> हेत्वर्थकर्ममतयोऽपि फले विकल्पाः
+> तत्रामृतं सुरगणाः फलमञ्जसापुर
+> यत्पादपङ्कजरजःश्रयणान्न दैत्याः ॥२८॥
+
 > evaṁ surāsura-gaṇāḥ sama-deśa-kāla-
 > hetv-artha-karma-matayo 'pi phale vikalpāḥ
 > tatrāmṛtaṁ sura-gaṇāḥ phalam añjasāpur

@@ -1,5 +1,8 @@
 ### CC Antya 8.93
 
+> কভু লৌকিক রীতি, — যেন ‘ইতর’ জন ।
+> কভু স্বতন্ত্র, করেন ‘ঐশ্বর্য’ প্রকটন ॥৯৩॥
+
 kabhu laukika rīti,--yena 'itara' jana
 
 kabhu svatantra, karena 'aiśvarya' prakaṭana

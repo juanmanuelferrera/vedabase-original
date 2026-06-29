@@ -1,5 +1,8 @@
 ### CC Madhya 12.17
 
+> প্রভু কহে, — কি কহিতে সবার আগমন ।
+> দেখিয়ে কহিতে চাহ, — না কহ, কি কারণ ? ॥ ১৭ ॥
+
 > prabhu kahe,-ki kahite sabāra āgamana
 > dekhiye kahite cāha,-nā kaha, ki kāraṇa?
 

@@ -1,5 +1,8 @@
 ### SB 3.33.23
 
+> ध्यायती भगवद्रूपं यदाह ध्यानगोचरम् ।
+> सुतः प्रसन्नवदनं समस्तव्यस्तचिन्तया ॥२३॥
+
 > dhyāyatī bhagavad-rūpaṁ
 > yad āha dhyāna-gocaram
 > sutaḥ prasanna-vadanaṁ

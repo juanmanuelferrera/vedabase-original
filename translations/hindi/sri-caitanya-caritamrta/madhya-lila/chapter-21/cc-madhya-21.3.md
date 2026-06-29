@@ -1,5 +1,8 @@
 ### CC Madhya 21.3
 
+> সর্ব স্বরূপের ধাম — পরব্যোম-ধামে ।
+> পৃথক্ পৃথক্ বৈকুণ্ঠ সব, নাহিক গণনে ॥৩॥
+
 > sarva svarūpera dhāma--paravyoma-dhāme
 > pṛthak pṛthak vaikuṇṭha saba, nāhika gaṇane
 

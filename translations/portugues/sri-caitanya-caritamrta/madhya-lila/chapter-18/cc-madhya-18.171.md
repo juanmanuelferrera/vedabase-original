@@ -1,5 +1,8 @@
 ### CC Madhya 18.171
 
+> ক্ষণেক ইহাঁ বৈস, বান্ধি’ রাখহ সবারে ।
+> ইঁহাকে পুছিয়া, তবে মারিহ সবারে ॥১৭১॥
+
 kṣaṇeka ihāṅ vaisa, bāndhi' rākhaha sabāre
 
 iṅhāke puchiyā, tabe māriha sabāre

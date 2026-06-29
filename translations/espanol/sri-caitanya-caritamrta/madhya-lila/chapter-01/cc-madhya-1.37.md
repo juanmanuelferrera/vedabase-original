@@ -1,5 +1,8 @@
 ### CC Madhya 1.37
 
+> প্রধান প্রধান কিছু করিয়ে গণন ।
+> লক্ষ গ্রন্থে কৈল ব্রজবিলাস বর্ণন ॥৩৭॥
+
 > pradhāna pradhāna kichu kariye gaṇana
 > lakṣa granthe kaila vraja-vilāsa varṇana
 

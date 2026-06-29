@@ -1,5 +1,8 @@
 ### CC Madhya 2.42
 
+> কই অবরহিঅং পেম্মং ণ হি হোই মাণুসে লোএ ।
+> জই হোই কস্স বিরহে হোন্তম্মি কো জীঅই ॥৪২॥
+
 ka-i-avarahi-aṁ pemmaṁ ṇa hi hoi māṇuse loe
 ja-i hoi kassa virahe hontammi ko jīa-i
 

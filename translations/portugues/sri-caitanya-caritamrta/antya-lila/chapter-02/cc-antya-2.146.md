@@ -1,5 +1,8 @@
 ### CC Antya 2.146
 
+> রাত্রি অবশেষে প্রভুরে দণ্ডবৎ হঞা ।
+> প্রয়াগেতে গেল কারেহ কিছু না বলিয়া ॥১৪৬॥
+
 rātri avaśeṣe prabhure daṇḍavat hañā
 
 prayāgete gela kāreha kichu nā baliyā

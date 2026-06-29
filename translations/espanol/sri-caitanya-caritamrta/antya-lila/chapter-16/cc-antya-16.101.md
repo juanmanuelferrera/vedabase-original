@@ -1,5 +1,8 @@
 ### CC Antya 16.101
 
+> এত বলি’ প্রভু তা-সবারে বিদায় দিলা ।
+> উপল-ভোগ দেখিয়া প্রভু নিজ-বাসা আইলা ॥১০১॥
+
 > eta bali' prabhu tā-sabāre vidāya dilā
 > upala-bhoga dekhiyā prabhu nija-vāsā āilā
 

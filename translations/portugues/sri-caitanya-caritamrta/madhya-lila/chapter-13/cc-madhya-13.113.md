@@ -1,5 +1,8 @@
 ### CC Madhya 13.113
 
+> “সেই ত পরাণ-নাথ পাইনু ।
+> যাহা লাগি’ মদন-দহনে ঝুরি’ গেনু ।।” ১১৩ ।। ধ্রু ।। ॥১১৩॥
+
 "sei ta parāṇa-nātha pāinu
 
 yāhā lāgi' madana-dahane jhuri' genu"

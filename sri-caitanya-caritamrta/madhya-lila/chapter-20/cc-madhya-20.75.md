@@ -1,5 +1,8 @@
 ### CC Madhya 20.75
 
+> ভিক্ষা করি’ মহাপ্রভু বিশ্রাম করিল ।
+> মিশ্র প্রভুর শেষপাত্র সনাতনে দিল ॥৭৫॥
+
 > bhikṣā kari' mahāprabhu viśrāma karila
 > miśra prabhura śeṣa-pātra sanātane dila
 

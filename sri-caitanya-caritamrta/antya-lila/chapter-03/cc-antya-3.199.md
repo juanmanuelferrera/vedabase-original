@@ -1,5 +1,8 @@
 ### CC Antya 3.199
 
+> হরিদাস কহেন, — “যদি নামাভাসে ‘মুক্তি’ নয় ।
+> তবে আমার নাক কাটিমু, — এই সুনিশ্চয় ।।” ॥ ১৯৯ ॥
+
 > haridāsa kahena,—"yadi nāmābhāse 'mukti' naya
 > tabe āmāra nāka kāṭimu,—ei suniścaya"
 

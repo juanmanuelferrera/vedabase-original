@@ -1,5 +1,8 @@
 ### SB 4.24.17
 
+> सङ्गमः खलु विप्रर्षे शिवेनेह शरीरिणाम् ।
+> दुर्लभो मुनयो दध्युरसङ्गाद्यमभीप्सितम् ॥१७॥
+
 > saṅgamaḥ khalu viprarṣe
 > śiveneha śarīriṇām
 > durlabho munayo dadhyur

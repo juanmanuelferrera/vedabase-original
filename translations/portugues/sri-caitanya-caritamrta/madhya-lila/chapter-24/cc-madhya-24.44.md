@@ -1,5 +1,7 @@
 ### CC Madhya 24.44
 
+> সনকাদির মন হরিল সৌরভাদি গুণে ॥৪৪॥
+
 sanakādira mana harila saurabhādi guṇe
 
 *sanaka-ādira mana*—as mentes de sábios santos como Sanaka e Sanātana; *harila*—atraídas; *saurabha-ādi*—tal como o aroma transcendental de Seus pés de lótus; *guṇe*—pela qualidade.

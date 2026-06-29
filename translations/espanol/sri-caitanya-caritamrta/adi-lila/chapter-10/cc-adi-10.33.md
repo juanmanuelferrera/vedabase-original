@@ -1,5 +1,8 @@
 ### CC Adi 10.33
 
+> তাঁহার অনুজ শাখা — শঙ্করপণ্ডিত ।
+> ‘প্রভু-পাদোপাধান’ যাঁর নাম বিদিত ॥৩৩॥
+
 > tāṅhāra anuja śākhā--śaṅkara-paṇḍita
 > 'prabhu-pādopādhāna' yāṅra nāma vidita
 

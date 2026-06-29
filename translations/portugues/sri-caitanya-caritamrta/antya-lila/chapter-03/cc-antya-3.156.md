@@ -1,5 +1,8 @@
 ### CC Antya 3.156
 
+> এত বলি’ ক্রোধে গোসাঞি উঠিয়া চলিলা ।
+> তারে দণ্ড দিতে সে গ্রামে না রহিলা ॥১৫৬॥
+
 eta bali' krodhe gosāñi uṭhiyā calilā
 
 tāre daṇḍa dite se grāme nā rahilā

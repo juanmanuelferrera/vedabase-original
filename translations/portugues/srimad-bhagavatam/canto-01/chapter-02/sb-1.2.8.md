@@ -1,5 +1,8 @@
 ### SB 1.2.8
 
+> धर्मः स्वनुष्ठितः पुंसां विष्वक्सेनकथासु यः ।
+> नोत्पादयेद्यदि रतिं श्रम एव हि केवलम् ॥८॥
+
 dharmaḥ svanuṣṭhitaḥ puṁsāṁ
 *viṣvaksena*-kathāsu yaḥ
 notpādayed yadi ratiṁ

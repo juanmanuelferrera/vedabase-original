@@ -1,5 +1,8 @@
 ### CC Antya 15.80
 
+> চঞ্চল-স্বভাব কৃষ্ণের, না রয় একস্থানে ।
+> দেখা দিয়া মন হরি’ করে অন্তর্ধানে ॥৮০॥
+
 > cañcala-svabhāva kṛṣṇera, nā raya eka-sthāne
 > dekhā diyā mana hari' kare antardhāne
 

@@ -1,5 +1,8 @@
 ### CC Madhya 9.105
 
+> কৃষ্ণস্ফূর্ত্যে তাঁর মন হঞাছে নির্মল ।
+> অতএব প্রভুর তত্ত্ব জানিল সকল ॥১০৫॥
+
 > kṛṣṇa-sphūrtye tāṅra mana hañāche nirmala
 > ataeva prabhura tattva jānila sakala
 

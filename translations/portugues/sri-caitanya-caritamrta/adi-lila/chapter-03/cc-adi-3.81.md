@@ -1,5 +1,8 @@
 ### CC Adi 3.81
 
+> অন্তঃকৃষ্ণং বহির্গৌরং দর্শিতাঙ্গাদিবৈভবম্ ।
+> কলৌ সংকীর্তনাদ্যৈঃ স্ম কৃষ্ণচৈতন্যমাশ্রিতাঃ ॥৮১॥
+
 antaḥ kṛṣṇaṁ bahir gauraṁ
 darśitāṅgādi-vaibhavam
 kalau saṅkīrtanādyaiḥ sma

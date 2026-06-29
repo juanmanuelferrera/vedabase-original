@@ -1,5 +1,8 @@
 ### CC Madhya 9.156
 
+> মণির্যথা বিভাগেন নীলপীতাদিভির্যুতঃ ।
+> রূপভেদমবাপ্নোতি ধ্যানভেদাত্তথাচ্যুতঃ ॥১৫৬॥
+
 > maṇir yathā vibhāgena
 > nīla-pītādibhir yutaḥ
 > rūpa-bhedam avāpnoti

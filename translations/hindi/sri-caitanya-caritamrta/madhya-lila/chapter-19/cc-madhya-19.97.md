@@ -1,5 +1,8 @@
 ### CC Madhya 19.97
 
+> ‘আগে কহ’ — প্রভু-বাক্যে উপাধ্যায় কহিল ।
+> রঘুপতি উপাধ্যায় নমস্কার কৈল ॥৯৭॥
+
 > 'āge kaha'--prabhu-vākye upādhyāya kahila
 > raghupati upādhyāya namaskāra kaila
 

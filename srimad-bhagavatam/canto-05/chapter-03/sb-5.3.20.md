@@ -1,5 +1,7 @@
 ### SB 5.3.20
 
+> बर्हिषि तस्मिन्नेव विष्णुदत्त भगवान्परमर्षिभिः प्रसादितो नाभेः प्रियचिकीर्षया तदवरोधायने मेरुदेव्यां धर्मान्दर्शयितुकामो वातरशनानां श्रमणानामृषीणामूर्ध्वमन्थिनां शुक्लया तनुवावततार ॥२०॥
+
 > barhiṣi tasminn eva viṣṇudatta bhagavān paramarṣibhiḥ prasādito nābheḥ priya-cikīrṣayā tad-avarodhāyane merudevyāṁ dharmān darśayitu-kāmo vāta-raśanānāṁ śramaṇānām ṛṣīṇām ūrdhva-manthināṁ śuklayā tanuvāvatatāra.
 
 *barhiṣi*—in the arena of sacrifice; *tasmin*—that; *eva*—in this way; *viṣṇu-datta*—O Mahārāja Parīkṣit; *bhagavān*—the Supreme Personality of Godhead; *parama-ṛṣibhiḥ*—by the great *ṛṣis*; *prasāditaḥ*—being pleased; *nābheḥ priya-cikīrṣayā*—to please King Nābhi; *tat-avarodhāyane*—in his wife; *merudevyām*—Merudevī; *dharmān*—the principles of religion; *darśayitu-kāmaḥ*—desiring to exhibit how to perform; *vāta-raśanānām*—of the *sannyāsīs* (who have almost no cloth); *śramaṇānām*—of the *vānaprasthas*; *ṛṣīṇām*—of the great sages; *ūrdhva-manthinām*—of the *brahmacārīs*; *śuklayā tanuvā*—in His original spiritual form, which is above the modes of material nature; *avatatāra*—appeared as an incarnation.

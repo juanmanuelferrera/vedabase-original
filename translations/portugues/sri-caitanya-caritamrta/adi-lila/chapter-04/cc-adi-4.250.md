@@ -1,5 +1,8 @@
 ### CC Adi 4.250
 
+> রাধার দর্শনে মোর জুড়ায় নয়ন ।
+> আমার দর্শনে রাধা সুখে অগেয়ান ॥২৫০॥
+
 rādhāra darśane mora juḍāya nayana
 āmāra darśane rādhā sukhe ageyāna
 

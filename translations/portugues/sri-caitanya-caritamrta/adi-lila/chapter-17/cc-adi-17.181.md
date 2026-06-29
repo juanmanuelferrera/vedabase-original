@@ -1,5 +1,8 @@
 ### CC Adi 17.181
 
+> মোর বুকে নখ দিয়া ঘোর-স্বরে বলে ।
+> ফাড়িমু তোমার বুক মৃদঙ্গ বদলে ॥১৮১॥
+
 mora buke nakha diyā ghora-svare bale
 
 phāḍimu tomāra buka mṛdaṅga badale

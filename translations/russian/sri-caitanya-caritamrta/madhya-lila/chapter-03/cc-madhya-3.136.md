@@ -1,5 +1,8 @@
 ### CC Madhya 3.136
 
+> এইমত দশদিন ভোজন-কীর্তন ।
+> একরূপে করি’ করে প্রভুর সেবন ॥১৩৬॥
+
 > ei-mata daśa-dina bhojana-kīrtana
 > eka-rūpe kari' kare prabhura sevana
 

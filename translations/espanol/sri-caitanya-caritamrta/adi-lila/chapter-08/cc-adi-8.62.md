@@ -1,5 +1,8 @@
 ### CC Adi 8.62
 
+> বৈষ্ণবের গুণগ্রাহী, না দেখয়ে দোষ ।
+> কায়মনোবাক্যে করে বৈষ্ণব-সন্তোষ ॥৬২॥
+
 > vaiṣṇavera guṇa-grāhī, nā dekhaye doṣa
 > kāya-mano-vākye kare vaiṣṇava-santoṣa
 

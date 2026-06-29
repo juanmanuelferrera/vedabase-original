@@ -1,5 +1,8 @@
 ### CC Antya 4.106
 
+> রথ-অগ্রে প্রভু তৈছে করিলা নর্তন ।
+> দেখি চমৎকার হৈল সনাতনের মন ॥১০৬॥
+
 > ratha-agre prabhu taiche karilā nartana
 > dekhi camatkāra haila sanātanera mana
 

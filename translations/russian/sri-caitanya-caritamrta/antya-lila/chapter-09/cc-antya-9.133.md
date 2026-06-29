@@ -1,5 +1,8 @@
 ### CC Antya 9.133
 
+> “বাকী-কৌড়ি বাদ, আর দ্বিগুণ বর্তন কৈলা ।
+> পুনঃ ‘বিষয়’ দিয়া ‘নেতধটী’ পরাইলা ॥১৩৩॥
+
 > "bākī-kauḍi bāda, āra dviguṇa vartana kailā
 > punaḥ 'viṣaya' diyā 'neta-dhaṭī' parāilā
 

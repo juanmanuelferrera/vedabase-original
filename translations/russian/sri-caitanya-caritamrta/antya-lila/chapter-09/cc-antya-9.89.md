@@ -1,5 +1,8 @@
 ### CC Antya 9.89
 
+> ব্রহ্মস্ব-অধিক এই হয় রাজধন ।
+> তাহা হরি’ ভোগ করে মহাপাপী জন ॥৮৯॥
+
 > brahmasva-adhika ei haya rāja-dhana
 > tāhā hari' bhoga kare mahā-pāpī jana
 

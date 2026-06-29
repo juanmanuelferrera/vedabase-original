@@ -1,5 +1,8 @@
 ### CC Adi 1.44
 
+> যদ্যপি আমার গুরু — চৈতন্যের দাস ।
+> তথাপি জানিয়ে আমি তাঁহার প্রকাশ ॥৪৪॥
+
 > yadyapi āmāra guru—caitanyera dāsa
 > tathāpi jāniye āmi tāṅhāra prakāśa
 

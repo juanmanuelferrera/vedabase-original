@@ -1,5 +1,8 @@
 ### CC Madhya 24.114
 
+> সনকাদ্যের কৃষ্ণকৃপায় সৌরভে হরে মন ।
+> গুণাকৃষ্ট হঞা করে নির্মল ভজন ॥১১৪॥
+
 sanakādyera kṛṣṇa-kṛpāya saurabhe hare mana
 
 guṇākṛṣṭa hañā kare nirmala bhajana

@@ -1,5 +1,8 @@
 ### CC Adi 11.60
 
+> সংক্ষেপে কহিলাঙ এই নিত্যানন্দগণ ।
+> যাঁহার অবধি না পায় ‘সহস্র-বদন’ ॥৬০॥
+
 > saṅkṣepe kahilāṅ ei nityānanda-gaṇa
 > yāṅhāra avadhi nā pāya 'sahasra-vadana'
 

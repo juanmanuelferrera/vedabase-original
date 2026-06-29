@@ -1,5 +1,8 @@
 ### CC Madhya 4.145
 
+> ‘মাধবপুরী শ্রীপাদ আইল’, — লোকে হৈল খ্যাতি ।
+> সব লোক আসি’ তাঁরে করে বহু ভক্তি ॥১৪৫॥
+
 'mādhava-purī śrīpāda āila',--loke haila khyāti
 
 saba loka āsi' tāṅre kare bahu bhakti

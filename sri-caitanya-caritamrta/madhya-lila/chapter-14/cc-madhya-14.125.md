@@ -1,5 +1,8 @@
 ### CC Madhya 14.125
 
+> গোপী-সঙ্গে যত লীলা হয় উপবনে  ।
+> নিগূঢ় কৃষ্ণের ভাব কেহ নাহি জানে ॥১২৫॥
+
 > gopī-saṅge yata līlā haya upavane
 > nigūḍha kṛṣṇera bhāva keha nāhi jāne
 

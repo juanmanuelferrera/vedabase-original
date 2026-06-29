@@ -1,5 +1,8 @@
 ### SB 9.17.17
 
+> ततः कृतः कृतस्यापि जज्ञए हर्यबलो नृपः
+> सहदेवस्ततो हीनो जयसेनस्तु तत्सुतः ॥१७॥
+
 > sahadevas tato hīno
 > jayasenas tu tat-sutaḥ
 > saṅkṛtis tasya ca jayaḥ

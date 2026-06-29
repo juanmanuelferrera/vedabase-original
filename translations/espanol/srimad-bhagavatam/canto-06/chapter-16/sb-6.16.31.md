@@ -1,5 +1,8 @@
 ### SB 6.16.31
 
+> तद्दर्शनध्वस्तसमस्तकिल्बिषः स्वस्थामलान्तःकरणोऽभ्ययान्मुनिः
+> प्रवृद्धभक्त्या प्रणयाश्रुलोचनः प्रहृष्टरोमानमदादिपुरुषम ॥३१॥
+
 > tad-darśana-dhvasta-samasta-kilbiṣaḥ
 > svasthāmalāntaḥkaraṇo 'bhyayān muniḥ
 > pravṛddha-bhaktyā praṇayāśru-locanaḥ

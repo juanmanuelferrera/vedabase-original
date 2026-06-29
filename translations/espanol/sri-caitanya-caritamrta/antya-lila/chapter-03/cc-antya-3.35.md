@@ -1,5 +1,8 @@
 ### CC Antya 3.35
 
+> ক্ষণেকে অশ্রু মুছিয়া শূন্য দেখি’ পাত ।
+> স্বপন দেখিলুঁ, ‘যেন নিমাঞি খাইল ভাত’ ॥৩৫॥
+
 > kṣaṇeke aśru muchiyā śūnya dekhi' pāta
 > svapana dekhiluṅ,'yena nimāñi khāila bhāta'
 

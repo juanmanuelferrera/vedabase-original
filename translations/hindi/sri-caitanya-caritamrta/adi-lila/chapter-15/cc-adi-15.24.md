@@ -1,5 +1,8 @@
 ### CC Adi 15.24
 
+> বন্ধু-বান্ধব আসি’ দুঁহা প্রবোধিল ।
+> পিতৃক্রিয়া বিধিমতে ঈশ্বর করিল ॥২৪॥
+
 > bandhu-bāndhava asi' duṅhā prabodhila
 > pitṛ-kriyā vidhi-mate īśvara karila
 

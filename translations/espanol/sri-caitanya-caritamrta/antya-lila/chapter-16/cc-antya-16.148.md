@@ -1,5 +1,10 @@
 ### CC Antya 16.148
 
+> নিজাঙ্কুরে পুলকিত, পুষ্পে হাস্য বিকশিত,
+> মধু-মিষে বহে অশ্রুধার ।
+> বেণুরে মানি’ নিজ-জাতি, আর্যের যেন পুত্র-নাতি,
+> ‘বৈষ্ণব’ হৈলে আনন্দ-বিকার ॥১৪৮॥
+
 > nijāṅkure pulakita, puṣpe hāsya vikasita,
 > madhu-miṣe vahe aśru-dhāra
 > veṇure māni' nija-jāti, āryera yena putra-nāti,

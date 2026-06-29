@@ -1,5 +1,8 @@
 ### CC Antya 1.97
 
+> শ্রীরূপের অক্ষর — যেন মুকুতার পাঁতি ।
+> প্রীত হঞা করেন প্রভু অক্ষরের স্তুতি ॥৯৭॥
+
 śrī-rūpera akṣara--yena mukutāra pāṅti
 
 prīta hañā karena prabhu akṣarera stuti

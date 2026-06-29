@@ -1,5 +1,8 @@
 ### CC Madhya 7.127
 
+> প্রভু কহে, — “ঐছে বাত্ কভু না কহিবা ৷
+> গৃহে রহি’ কৃষ্ণ-নাম নিরন্তর লৈবা ৷৷ ১২৭ ৷৷ ॥১২৭॥
+
 prabhu kahe,--"aiche bāt kabhu nā kahibā
 gṛhe rahi' kṛṣṇa-nāma nirantara laibā
 

@@ -1,5 +1,8 @@
 ### CC Antya 18.36
 
+> গুণ্ডিচা-মন্দিরে গেলা, কিবা নরেন্দ্রেরে ?
+> চটক-পর্বতে গেলা, কিবা কোণার্কেরে?’ ॥৩৬॥
+
 > guṇḍicā-mandire gelā, kibā narendrere?
 > caṭaka-parvate gelā, kibā koṇārkere?'
 

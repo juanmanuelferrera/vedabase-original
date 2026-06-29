@@ -1,5 +1,8 @@
 ### SB 4.14.28
 
+> तस्मान्मां कर्मभिर्विप्रा यजध्वं गतमत्सराः ।
+> बलिं च मह्यं हरत मत्तोऽन्यः कोऽग्रभुक्पुमान् ॥२८॥
+
 > tasmān māṁ karmabhir viprā
 > yajadhvaṁ gata-matsarāḥ
 > baliṁ ca mahyaṁ harata

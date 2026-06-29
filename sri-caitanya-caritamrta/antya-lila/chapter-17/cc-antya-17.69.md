@@ -1,5 +1,8 @@
 ### CC Antya 17.69
 
+> সর্বভাবে ভজ, লোক, চৈতন্য-চরণ ।
+> যাহা হৈতে পাইবা কৃষ্ণপ্রেমামৃত-ধন ॥৬৯॥
+
 > sarva-bhāve bhaja, loka, caitanya-caraṇa
 > yāhā haite pāibā kṛṣṇa-premāmṛta-dhana
 

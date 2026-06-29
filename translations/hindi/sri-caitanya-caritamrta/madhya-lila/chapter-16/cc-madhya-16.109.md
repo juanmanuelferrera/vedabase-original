@@ -1,5 +1,8 @@
 ### CC Madhya 16.109
 
+> রাজ-পাত্রগণ কৈল প্রভুর বন্দন ।
+> রাজারে বিদায় দিলা শচীর নন্দন ॥১০৯॥
+
 > rāja-pātra-gaṇa kaila prabhura vandana
 > rājāre vidāya dilā śacīra nandana
 

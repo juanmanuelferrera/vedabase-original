@@ -1,5 +1,7 @@
 ### SB 5.22.7
 
+> अथ च यावन्नभोमण्डलं सह द्यावापृथिव्योर्मण्डलाभ्यां कार्त्स्न्येन स ह भुञ्जीत तंकालं संवत्सरं परिवत्सरमिडावत्सरमनुवत्सरं वत्सरमिति भानोर्मान्द्यशैघ्र्यसमगतिभिः समामनन्ति ॥७॥
+
 *atha ca yāvan nabho*-maṇḍalaṁ saha dyāv-āpṛthivyor maṇḍalābhyāṁ kārtsnyena sa ha bhuñjīta taṁ kālaṁ saṁvatsaraṁ parivatsaram iḍāvatsaram anuvatsaraṁ vatsaram iti bhānor māndya-śaighrya-sama-gatibhiḥ samāmananti.
 
 *atha*—agora; *ca*—também; *yāvat*—pelo tempo que; *nabhaḥ-maṇḍalam*—o espaço sideral, entre o mundo superior e o inferior; *saha*—junto com; *dyau*—do mundo superior; *āpṛthivyoḥ*—do mundo inferior; *maṇḍalābhyām*—as esferas; *kārtsnyena*—inteiramente; *saḥ*—ele; *ha*—de fato; *bhuñjīta*—pode passar; *tam*—aquele; *kālam*—tempo; *saṁvatsaram*—Saṁvatsara; *parivatsaram*—Parivatsara; *iḍāvatsaram*—Iḍāvatsara; *anuvatsaram*—Anuvatsara; *vatsaram*—Vatsara; *iti*—assim; *bhānoḥ*—do sol; *māndya*—lenta; *śaighrya*—rápida; *sama*—e igual; *gatibhiḥ*—pelas velocidades; *samāmananti*—os eruditos experientes descrevem.

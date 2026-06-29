@@ -1,5 +1,8 @@
 ### CC Antya 5.92
 
+> ভগবান্-আচার্য-সনে তার পরিচয় ।
+> তাঁরে মিলি’ তাঁর ঘরে করিল আলয় ॥৯২॥
+
 bhagavān-ācārya-sane tāra paricaya
 
 tāṅre mili' tāṅra ghare karila ālaya

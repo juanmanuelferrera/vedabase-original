@@ -1,5 +1,8 @@
 ### CC Antya 11.4
 
+> জয় কাশীপ্রিয় জগদানন্দ-প্রাণেশ্বর ।
+> জয় রূপ-সনাতন-রঘুনাথেশ্বর ॥৪॥
+
 > jaya kāśī-priya jagadānanda-prāṇeśvara
 > jaya rūpa-sanātana-raghunātheśvara
 

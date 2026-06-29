@@ -1,5 +1,8 @@
 ### CC Madhya 22.122
 
+> অগ্রে নৃত্য, গীত, বিজ্ঞপ্তি, দণ্ডবন্নতি ।
+> অভ্যুত্থান, অনুব্রজ্যা, তীর্থগৃহে গতি ॥১২২॥
+
 agre nṛtya, gīta, vijñapti, daṇḍavan-nati
 
 abhyūtthāna, anuvrajyā, tīrtha-gṛhe gati

@@ -1,5 +1,8 @@
 ### CC Antya 6.294
 
+> প্রভু কহে, — “এই শিলা কৃষ্ণের বিগ্রহ ।
+> ইঁহার সেবা কর তুমি করিয়া আগ্রহ ॥২৯৪॥
+
 > prabhu kahe,--"ei śilā kṛṣṇera vigraha
 > iṅhāra sevā kara tumi kariyā āgraha
 

@@ -1,5 +1,7 @@
 ### SB 5.17.10
 
+> अन्ये च नदा नद्यश्च वर्षे वर्षे सन्ति बहुशो मेर्वादिगिरिदुहितरः शतशः ॥१०॥
+
 > anye ca nadā nadyaś ca varṣe varṣe santi bahuśo merv-ādi-giri-duhitaraḥ śataśaḥ.
 
 *anye*—muchos otros; *ca*—también; *nadāḥ*—ríos; *nadyaḥ*—ríos pequeños; *ca*—y; *varṣe varṣe*—en cada región; *santi*—son; *bahuśaḥ*—de gran diversidad; *meru-ādi-giri-duhitaraḥ*—hijas de las montañas, comenzando con Meru; *śataśaḥ*—a cientos.

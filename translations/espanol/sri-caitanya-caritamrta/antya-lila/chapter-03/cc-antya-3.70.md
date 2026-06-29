@@ -1,5 +1,8 @@
 ### CC Antya 3.70
 
+> শুনিয়া জঙ্গমের হয় সংসার-ক্ষয়  ।
+> স্থাবরে সে শব্দ লাগে, প্রতিধ্বনি হয় ॥৭০॥
+
 > śuniyā jaṅgamera haya saṁsāra-kṣaya
 > sthāvare se śabda lāge, pratidhvani haya
 

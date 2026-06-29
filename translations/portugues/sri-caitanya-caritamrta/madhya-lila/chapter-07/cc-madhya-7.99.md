@@ -1,5 +1,8 @@
 ### CC Madhya 7.99
 
+> কতক্ষণে রহি’ প্রভু তারে আলিঙ্গিয়া ৷
+> বিদায় করিল তারে শক্তি সঞ্চারিয়া ৷৷ ৯৯ ৷৷ ॥৯৯॥
+
 kata-kṣaṇe rahi' prabhu tāre āliṅgiyā
 
 vidāya karila tāre śakti sañcāriyā

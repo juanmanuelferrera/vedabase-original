@@ -1,5 +1,8 @@
 ### CC Antya 1.133
 
+> সব ভক্তগণ কহে শ্লোক শুনিয়া ।
+> কৃতার্থ করিলা সবায় শ্লোক শুনাঞা ॥১৩৩॥
+
 saba bhakta-gaṇa kahe śloka śuniyā
 
 kṛtārtha karilā sabāya śloka śunāñā

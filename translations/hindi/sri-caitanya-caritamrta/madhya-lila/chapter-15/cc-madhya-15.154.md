@@ -1,5 +1,8 @@
 ### CC Madhya 15.154
 
+> এইমত সেবকের প্রীতি চাহি প্রভু-পায়  ।
+> প্রভু ছাড়াইলেহ, পদ ছাড়ান না যায় ॥১৫৪॥
+
 > ei-mata sevakera prīti cāhi prabhu-pāya
 > prabhu chāḍāileha, pada chāḍāna nā yāya
 

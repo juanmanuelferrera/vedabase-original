@@ -1,5 +1,8 @@
 ### CC Madhya 16.237
 
+> “স্থির হঞা ঘরে যাও, না হও বাতুল  ।
+> ক্রমে ক্রমে পায় লোক ভবসিন্ধুকূল ॥২৩৭॥
+
 "sthira hañā ghare yāo, nā hao vātula
 
 krame krame pāya loka bhava-sindhu-kūla

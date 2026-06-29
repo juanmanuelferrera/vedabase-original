@@ -1,5 +1,8 @@
 ### CC Antya 10.76
 
+> সব লোকের উথলিল আনন্দ-সাগর ।
+> সব লোক পাসরিল দেহ-আত্ম-ঘর ॥৭৬॥
+
 saba lokera uthalila ānanda-sāgara
 
 saba loka pāsarila deha-ātma-ghara

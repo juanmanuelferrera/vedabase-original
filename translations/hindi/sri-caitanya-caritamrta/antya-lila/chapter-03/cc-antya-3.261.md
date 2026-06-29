@@ -1,5 +1,8 @@
 ### CC Antya 3.261
 
+> প্রতীত করিতে কহি কারণ ইহার ।
+> যাহার শ্রবণে হয় বিশ্বাস সবার ॥২৬১॥
+
 > pratīta karite kahi kāraṇa ihāra
 > yāhāra śravaṇe haya viśvāsa sabāra
 

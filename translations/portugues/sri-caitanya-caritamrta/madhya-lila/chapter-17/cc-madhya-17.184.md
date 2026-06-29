@@ -1,5 +1,8 @@
 ### CC Madhya 17.184
 
+> প্রভু কহে, — শ্রুতি, স্মৃতি, যত ঋষিগণ ।
+> সবে ‘এক’-মত নহে, ভিন্ন ভিন্ন ধর্ম ॥১৮৪॥
+
 prabhu kahe,--śruti, smṛti, yata ṛṣi-gaṇa
 
 sabe 'eka'-mata nahe, bhinna bhinna dharma

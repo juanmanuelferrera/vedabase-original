@@ -1,5 +1,8 @@
 ### CC Madhya 3.78
 
+> এত বলি’ জল দিল দুই গোসাঞির হাতে ।
+> হাসিয়া লাগিলা দুঁহে ভোজন করিতে ॥৭৮॥
+
 > eta bali' jala dila dui gosāñira hāte
 > hāsiyā lāgilā duṅhe bhojana karite
 

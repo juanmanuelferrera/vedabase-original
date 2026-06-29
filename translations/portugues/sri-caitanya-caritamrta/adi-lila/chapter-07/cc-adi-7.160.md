@@ -1,5 +1,8 @@
 ### CC Adi 7.160
 
+> লোক নিস্তারিয়া প্রভুর চলিতে হৈল মন ।
+> বৃন্দাবনে পাঠাইলা শ্রীসনাতন ॥১৬০॥
+
 loka nistāriyā prabhura calite haila mana
 
 vṛndāvane pāṭhāilā śrī-sanātana

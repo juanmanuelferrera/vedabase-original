@@ -1,5 +1,8 @@
 ### CC Antya 3.237
 
+> মোরে অঙ্গীকার কর হঞা সদয়  ।
+> দীনে দয়া করে, — এই সাধু-স্বভাব হয় ।।” ২৩৭ ॥২৩৭॥
+
 > more aṅgīkāra kara hañā sadaya
 > dīne dayā kare,—ei sādhu-svabhāva haya"
 

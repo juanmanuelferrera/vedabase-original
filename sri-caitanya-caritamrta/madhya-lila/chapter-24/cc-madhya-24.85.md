@@ -1,5 +1,7 @@
 ### CC Madhya 24.85
 
+> রাগভক্ত্যে ব্রজে স্বয়ং-ভগবানে পায় ॥৮৫॥
+
 > rāga-bhaktye vraje svayaṁ-bhagavāne pāya
 
 *rāga-bhaktye*—by the discharge of spontaneous devotional service; *vraje*—in Vṛndāvana; *svayam*—Himself; *bhagavāne*—the Supreme Personality of Godhead; *pāya*—one gets.

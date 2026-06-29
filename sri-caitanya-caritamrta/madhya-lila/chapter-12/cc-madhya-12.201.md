@@ -1,5 +1,8 @@
 ### CC Madhya 12.201
 
+> প্রভুর অবশেষ গোবিন্দ রাখিল ধরিয়া ।
+> সেই অন্ন হরিদাসে কিছু দিল লঞা ॥২০১॥
+
 > prabhura avaśeṣa govinda rākhila dhariyā
 > sei anna haridāse kichu dila lañā
 

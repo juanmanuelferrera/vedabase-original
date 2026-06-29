@@ -1,5 +1,8 @@
 ### CC Adi 10.15
 
+> বড় শাখা, — গদাধর পণ্ডিত-গোসাঞি ।
+> তেঁহো লক্ষ্মীরূপা, তাঁর সম কেহ নাই ॥১৫॥
+
 baḍa śākhā,--gadādhara paṇḍita-gosāñi
 teṅho lakṣmī-rūpā, tāṅra sama keha nāi
 

@@ -1,5 +1,8 @@
 ### CC Madhya 12.38
 
+> বস্ত্র পাঞা রাজার হৈল আনন্দিত মন ।
+> প্রভুরূপ করি’ করে বস্ত্রের পূজন ॥৩৮॥
+
 > vastra pāñā rājāra haila ānandita mana
 > prabhu-rūpa kari' kare vastrera pūjana
 

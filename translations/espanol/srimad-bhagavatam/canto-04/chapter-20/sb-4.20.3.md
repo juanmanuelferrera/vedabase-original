@@ -1,5 +1,8 @@
 ### SB 4.20.3
 
+> सुधियः साधवो लोके नरदेव नरोत्तमाः ।
+> नाभिद्रुह्यन्ति भूतेभ्यो यर्हि नात्मा कलेवरम् ॥३॥
+
 > sudhiyaḥ sādhavo loke
 > naradeva narottamāḥ
 > nābhidruhyanti bhūtebhyo

@@ -1,5 +1,8 @@
 ### CC Madhya 10.54
 
+> রায় কহে, — আমি শূদ্র, বিষয়ী, অধম ৷
+> তবু তুমি স্পর্শ, — এই ঈশ্বর-লক্ষণ ৷৷ ৫৪ ৷৷ ॥৫৪॥
+
 rāya kahe,-āmi śūdra, viṣayī, adhama
 
 tabu tumi sparśa,-ei īśvara-lakṣaṇa

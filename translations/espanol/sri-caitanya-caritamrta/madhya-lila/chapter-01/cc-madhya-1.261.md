@@ -1,5 +1,8 @@
 ### CC Madhya 1.261
 
+> তুষ্ট হঞা প্রভু তাঁরে পাঠাইলা বৃন্দাবন ।
+> অদ্বৈতের হস্তে প্রভুর অদ্ভুত ভোজন ॥২৬১॥
+
 > tuṣṭa hañā prabhu tāṅre pāṭhāilā vṛndāvana
 > advaitera haste prabhura adbhuta bhojana
 

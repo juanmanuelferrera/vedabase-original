@@ -1,5 +1,8 @@
 ### CC Antya 4.220
 
+> সিদ্ধান্তসার গ্রন্থ কৈলা ‘দশম-টিপ্পনী’ ।
+> কৃষ্ণলীলারস-প্রেম যাহা হৈতে জানি ॥২২০॥
+
 > siddhānta-sāra grantha kailā 'daśama-ṭippanī'
 > kṛṣṇa-līlā-rasa-prema yāhā haite jāni
 

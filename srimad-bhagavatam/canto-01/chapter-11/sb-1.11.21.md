@@ -1,5 +1,8 @@
 ### SB 1.11.21
 
+> भगवांस्तत्र बन्धूनां पौराणामनुवर्तिनाम् ।
+> यथाविध्युपसङ्गम्य सर्वेषां मानमादधे ॥२१॥
+
 > bhagavāṁs tatra bandhūnāṁ
 > paurāṇām anuvartinām
 > yathā-vidhy upasaṅgamya

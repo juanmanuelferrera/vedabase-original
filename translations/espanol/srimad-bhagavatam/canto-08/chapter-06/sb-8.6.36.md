@@ -1,5 +1,8 @@
 ### SB 8.6.36
 
+> तांस्तथा भग्नमनसो भग्नबाहूरुकन्धरान
+> विज्ञआय भगवांस्तत्र बभूव गरुडध्वजः ॥३६॥
+
 > tāṁs tathā bhagna-manaso
 > bhagna-bāhūru-kandharān
 > vijñāya bhagavāṁs tatra

@@ -1,5 +1,8 @@
 ### CC Madhya 5.99
 
+> নূপুরের ধ্বনিমাত্র আমার শুনিবা ।
+> সেই শব্দে আমার গমন প্রতীতি করিবা ॥৯৯॥
+
 > nūpurera dhvani-mātra āmāra śunibā
 > sei śabde āmāra gamana pratīti karibā
 

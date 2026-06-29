@@ -1,5 +1,8 @@
 ### SB 3.21.25
 
+> प्रजापतिसुतः सम्राण्मनुर्विख्यातमङ्गलः ।
+> ब्रह्मावर्तं योऽधिवसन्शास्ति सप्तार्णवां महीम् ॥२५॥
+
 > prajāpati-sutaḥ samrāṇ
 > manur vikhyāta-maṅgalaḥ
 > brahmāvartaṁ yo 'dhivasan

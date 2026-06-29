@@ -1,5 +1,8 @@
 ### CC Antya 9.137
 
+> কিন্তু তোমার স্মরণের নহে এই ‘মুখ্যফল’ ।
+> ‘ফলাভাস’ এই, — যাতে ‘বিষয়’ চঞ্চল ॥১৩৭॥
+
 > kintu tomāra smaraṇera nahe ei 'mukhya-phala'
 > 'phalābhāsa' ei,--yāte 'viṣaya' cañcala
 

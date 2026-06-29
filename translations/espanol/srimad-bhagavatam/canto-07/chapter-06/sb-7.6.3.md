@@ -1,5 +1,8 @@
 ### SB 7.6.3
 
+> सुखमैन्द्रियकं दैत्या देहयोगेन देहिनाम
+> सर्वत्र लभ्यते दैवाद्यथा दुःखमयत्नतः ॥३॥
+
 > sukham aindriyakaṁ daityā
 > deha-yogena dehinām
 > sarvatra labhyate daivād

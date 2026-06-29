@@ -1,5 +1,8 @@
 ### CC Adi 7.56
 
+> প্রভু হাসি’ নিমন্ত্রণ কৈল অঙ্গীকার ।
+> সন্ন্যাসীরে কৃপা লাগি’ এ ভঙ্গী তাঁহার ॥৫৬॥
+
 prabhu hāsi' nimantraṇa kaila aṅgīkāra
 
 sannyāsīre kṛpā lāgi' e bhaṅgī tāṅhāra

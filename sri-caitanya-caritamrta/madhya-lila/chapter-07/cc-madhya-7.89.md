@@ -1,5 +1,8 @@
 ### CC Madhya 7.89
 
+> এইমত সন্ধ্যা পর্যন্ত লোক আসে, যায় ।
+> ‘বৈষ্ণব’ হইল লোক, সবে নাচে, গায় ॥৮৯॥
+
 > ei-mata sandhyā paryanta loka āse, yāya
 > 'vaiṣṇava' ha-ila loka, sabe nāce, gāya
 

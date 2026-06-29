@@ -1,5 +1,8 @@
 ### SB 1.8.39
 
+> नेयं शोभिष्यते तत्र यथेदानीं गदाधर ।
+> त्वत्पदैरङ्किता भाति स्वलक्षणविलक्षितैः ॥३९॥
+
 > neyaṁ śobhiṣyate tatra
 > yathedānīṁ gadādhara
 > tvat-padair aṅkitā bhāti

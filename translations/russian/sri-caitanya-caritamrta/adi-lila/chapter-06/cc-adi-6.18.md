@@ -1,5 +1,8 @@
 ### CC Adi 6.18
 
+> যদ্যপি সাংখ্য মানে, ‘প্রধান’ — কারণ ।
+> জড় হইতে কভু নহে জগৎ-সৃজন ॥১৮॥
+
 > yadyapi sāṅkhya māne, 'pradhāna'—kāraṇa
 > jaḍa ha-ite kabhu nahe jagat-sṛjana
 

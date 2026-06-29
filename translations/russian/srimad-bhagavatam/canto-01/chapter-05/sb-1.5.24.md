@@ -1,5 +1,8 @@
 ### SB 1.5.24
 
+> ते मय्यपेताखिलचापलेऽर्भके दान्तेऽधृतक्रीडनकेऽनुवर्तिनि ।
+> चक्रुः कृपां यद्यपि तुल्यदर्शनाः शुश्रूषमाणे मुनयोऽल्पभाषिणि ॥२४॥
+
 > te mayy apetākhila-cāpale 'rbhake
 > dānte 'dhṛta-krīḍanake 'nuvartini
 > cakruḥ kṛpāṁ yadyapi tulya-darśanāḥ

@@ -1,5 +1,8 @@
 ### SB 4.28.2
 
+> त एकदा तु रभसा पुरञ्जनपुरीं नृप ।
+> रुरुधुर्भौमभोगाढ्यां जरत्पन्नगपालिताम् ॥२॥
+
 > ta ekadā tu rabhasā
 > purañjana-purīṁ nṛpa
 > rurudhur bhauma-bhogāḍhyāṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 9.28
 
+> বাল্যকাল হৈতে মোর স্বভাব এক হয় ।
+> নামের মহিমা-শাস্ত্র করিয়ে সঞ্চয় ॥২৮॥
+
 > bālya-kāla haite mora svabhāva eka haya
 > nāmera mahimā-śāstra kariye sañcaya
 

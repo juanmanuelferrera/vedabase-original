@@ -1,5 +1,8 @@
 ### CC Antya 20.35
 
+> পুনঃ অতি-উৎকণ্ঠা, দৈন্য হইল উদ্গম ।
+> কৃষ্ণ-ঠাঞি মাগে প্রেম-নামসঙ্কীর্তন ॥৩৫॥
+
 > punaḥ ati-utkaṇṭhā, dainya ha-ila udgama
 > kṛṣṇa-ṭhāñi māge prema-nāma-saṅkīrtana
 

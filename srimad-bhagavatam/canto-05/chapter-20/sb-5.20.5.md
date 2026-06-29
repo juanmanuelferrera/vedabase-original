@@ -1,5 +1,8 @@
 ### SB 5.20.5
 
+> प्रत्नस्य विष्णो रूपं यत्सत्यस्यर्तस्य ब्रह्मणः
+> अमृतस्य च मृत्योश्च सूर्यमात्मानमीमहीति ॥५॥
+
 > pratnasya viṣṇo rūpaṁ yat
 > satyasyartasya brahmaṇaḥ
 > amṛtasya ca mṛtyoś ca

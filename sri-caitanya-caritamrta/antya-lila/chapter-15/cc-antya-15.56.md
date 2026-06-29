@@ -1,5 +1,8 @@
 ### CC Antya 15.56
 
+> কোটিমন্মথমোহন মুরলীবদন ।
+> অপার সৌন্দর্যে হরে জগন্নেত্র-মন ॥৫৬॥
+
 > koṭi-manmatha-mohana muralī-vadana
 > apāra saundarye hare jagan-netra-mana
 

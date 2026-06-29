@@ -1,5 +1,8 @@
 ### SB 6.12.9
 
+> ओजः सहो बलं प्राणममृतं मृत्युमेव च
+> तमज्ञआय जनो हेतुमात्मानं मन्यते जडम ॥९॥
+
 > ojaḥ saho balaṁ prāṇam
 > amṛtaṁ mṛtyum eva ca
 > tam ajñāya jano hetum

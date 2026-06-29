@@ -1,5 +1,8 @@
 ### SB 3.3.24
 
+> पुर्यां कदाचित्क्रीडद्भिर्यदुभोजकुमारकैः ।
+> कोपिता मुनयः शेपुर्भगवन्मतकोविदाः ॥२४॥
+
 > puryāṁ kadācit krīḍadbhir
 > yadu-bhoja-kumārakaiḥ
 > kopitā munayaḥ śepur

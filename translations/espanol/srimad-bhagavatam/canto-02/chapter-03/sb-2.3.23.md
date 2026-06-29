@@ -1,5 +1,8 @@
 ### SB 2.3.23
 
+> जीवञ्छवो भागवताङ्घ्रिरेणुं न जातु मर्त्योऽभिलभेत यस्तु ।
+> श्रीविष्णुपद्या मनुजस्तुलस्याः श्वसञ्छवो यस्तु न वेद गन्धम् ॥२३॥
+
 > jīvañ chavo bhāgavatāṅghri-reṇuṁ
 > na jātu martyo 'bhilabheta yas tu
 > śrī-viṣṇu-padyā manujas tulasyāḥ

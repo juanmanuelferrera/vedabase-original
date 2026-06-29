@@ -1,5 +1,8 @@
 ### CC Madhya 15.138
 
+> পূর্বে আমি ইঁহারে লোভাইল বার বার  ।
+> পরম মধুর, গুপ্ত, ব্রজেন্দ্রকুমার ॥১৩৮॥
+
 pūrve āmi iṅhāre lobhāila bāra bāra
 
 parama madhura, gupta, vrajendra-kumāra

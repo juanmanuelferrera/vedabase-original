@@ -1,5 +1,8 @@
 ### CC Madhya 22.128
 
+> সাধুসঙ্গ, নামকীর্তন, ভাগবতশ্রবণ  ।
+> মথুরাবাস, শ্রীমূর্তির শ্রদ্ধায় সেবন ॥১২৮॥
+
 sādhu-saṅga, nāma-kīrtana, bhāgavata-śravaṇa
 
 mathurā-vāsa, śrī-mūrtira śraddhāya sevana

@@ -1,5 +1,8 @@
 ### SB 3.11.2
 
+> सत एव पदार्थस्य स्वरूपावस्थितस्य यत् ।
+> कैवल्यं परममहानविशेषो निरन्तरः ॥२॥
+
 > sata eva padārthasya
 > svarūpāvasthitasya yat
 > kaivalyaṁ parama-mahān

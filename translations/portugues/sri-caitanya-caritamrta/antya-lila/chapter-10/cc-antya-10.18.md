@@ -1,5 +1,8 @@
 ### CC Antya 10.18
 
+> ভাবগ্রাহী মহাপ্রভু স্নেহমাত্র লয় ।
+> সুকুতা পাতা কাশন্দিতে মহাসুখ পায় ॥১৮॥
+
 bhāva-grāhī mahāprabhu sneha-mātra laya
 
 sukutā pātā kāśandite mahā-sukha pāya

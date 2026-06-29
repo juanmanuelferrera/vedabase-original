@@ -1,5 +1,8 @@
 ### SB 3.30.4
 
+> जन्तुर्वै भव एतस्मिन्यां यां योनिमनुव्रजेत् ।
+> तस्यां तस्यां स लभते निर्वृतिं न विरज्यते ॥४॥
+
 > jantur vai bhava etasmin
 > yāṁ yāṁ yonim anuvrajet
 > tasyāṁ tasyāṁ sa labhate

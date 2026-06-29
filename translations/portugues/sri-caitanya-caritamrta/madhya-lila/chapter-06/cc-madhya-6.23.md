@@ -1,5 +1,8 @@
 ### CC Madhya 6.23
 
+> মুকুন্দ কহে, — ‘মহাপ্রভু সন্ন্যাস করিয়া ।
+> নীলাচলে আইলা সঙ্গে আমা-সবা লঞা ॥২৩॥
+
 mukunda kahe,--'mahāprabhu sannyāsa kariyā
 nīlācale āilā saṅge āmā-sabā lañā
 

@@ -1,5 +1,10 @@
 ### SB 2.7.30
 
+> गृह्णीत यद्यदुपबन्धममुष्य माता
+> शुल्बं सुतस्य न तु तत्तदमुष्य माति ।
+> यज्जृम्भतोऽस्य वदने भुवनानि गोपी
+> संवीक्ष्य शङ्कितमनाः प्रतिबोधितासीत् ॥३०॥
+
 > gṛhṇīta yad yad upabandham amuṣya mātā
 > śulbaṁ sutasya na tu tat tad amuṣya māti
 > yaj jṛmbhato 'sya vadane bhuvanāni gopī

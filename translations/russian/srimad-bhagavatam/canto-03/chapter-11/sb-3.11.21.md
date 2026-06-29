@@ -1,5 +1,8 @@
 ### SB 3.11.21
 
+> धर्मश्चतुष्पान्मनुजान्कृते समनुवर्तते ।
+> स एवान्येष्वधर्मेण व्येति पादेन वर्धता ॥२१॥
+
 > dharmaś catuṣ-pān manujān
 > kṛte samanuvartate
 > sa evānyeṣv adharmeṇa

@@ -1,5 +1,8 @@
 ### CC Madhya 25.200
 
+> আর কৃষ্ণনাম লৈতে কৃষ্ণস্থানে স্থিতি ।
+> মহাপাতকের হয় এই প্রায়শ্চিত্তি ॥২০০॥
+
 āra kṛṣṇa-nāma laite kṛṣṇa-sthāne sthiti-
 
 mahā-pātakera haya ei prāyaścitti

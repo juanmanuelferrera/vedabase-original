@@ -1,5 +1,8 @@
 ### SB 7.15.42
 
+> अक्षं दशप्राणमधर्मधर्मौ चक्रेऽभिमानं रथिनं च जीवम
+> धनुर्हि तस्य प्रणवं पठन्ति शरं तु जीवं परमेव लक्ष्यम ॥४२॥
+
 > akṣaṁ daśa-prāṇam adharma-dharmau
 > cakre 'bhimānaṁ rathinaṁ ca jīvam
 > dhanur hi tasya praṇavaṁ paṭhanti

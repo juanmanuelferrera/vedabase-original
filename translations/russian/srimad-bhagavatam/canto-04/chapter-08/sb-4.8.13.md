@@ -1,5 +1,8 @@
 ### SB 4.8.13
 
+> तपसाराध्य पुरुषं तस्यैवानुग्रहेण मे ।
+> गर्भे त्वं साधयात्मानं यदीच्छसि नृपासनम् ॥१३॥
+
 > tapasārādhya puruṣaṁ
 > tasyaivānugraheṇa me
 > garbhe tvaṁ sādhayātmānaṁ

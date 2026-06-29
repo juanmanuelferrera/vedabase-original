@@ -1,5 +1,10 @@
 ### CC Adi 13.105
 
+> সাবিত্রী, গৌরী, সরস্বতী, শচী, রম্ভা, অরুন্ধতী,
+> আর যত দেব-নারীগণ ।
+> নানা-দ্রব্যে পাত্র ভরি’, ব্রাহ্মণীর বেশ ধরি’,
+> আসি’ সবে করে দরশন ॥১০৫॥
+
 sāvitrī, gaurī, sarasvatī, śacī, rambhā, arundhatī
 āra yata deva-nārīgaṇa
 nānā-dravye pātra bhari', brāhmaṇīra veśa dhari',

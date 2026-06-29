@@ -1,5 +1,8 @@
 ### CC Adi 17.116
 
+> নিত্যানন্দ-গোসাঞি প্রভুর আবেশ জানিল ।
+> গঙ্গাজল-পাত্র আনি’ সম্মুখে ধরিল ॥১১৬॥
+
 nityānanda-gosāñi prabhura āveśa jānila
 gaṅgā-jala-pātra āni' sammukhe dharila
 

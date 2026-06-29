@@ -1,5 +1,8 @@
 ### CC Madhya 13.12
 
+> প্ৰভু-পদাঘাতে তুলী হয় খণ্ড খণ্ড ।
+> তুলা সব উড়ি’ যায়, শব্দ হয় প্রচণ্ড ॥১২॥
+
 > prabhu-padāghāte tulī haya khaṇḍa khaṇḍa
 > tulā saba uḍi' yāya, śabda haya pracaṇḍa
 

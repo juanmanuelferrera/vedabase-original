@@ -1,5 +1,10 @@
 ### SB 3.16.25
 
+> यं वानयोर्दममधीश भवान्विधत्ते
+> वृत्तिं नु वा तदनुमन्महि निर्व्यलीकम् ।
+> अस्मासु वा य उचितो ध्रियतां स दण्डो
+> येऽनागसौ वयमयुङ्क्ष्महि किल्बिषेण ॥२५॥
+
 yaṁ vānayor damam adhīśa bhavān vidhatte
 vṛttiṁ nu vā tad anumanmahi nirvyalīkam
 asmāsu vā ya ucito dhriyatāṁ sa daṇḍo

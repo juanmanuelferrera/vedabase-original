@@ -1,5 +1,8 @@
 ### CC Antya 14.102
 
+> সানন্দে সকল বৈষ্ণব বলে ‘হরি’ ‘হরি’ ।
+> উঠিল মঙ্গলধ্বনি চতুর্দিক ভরি’ ॥১০২॥
+
 sānande sakala vaiṣṇava bale 'hari' 'hari'
 
 uṭhila maṅgala-dhvani catur-dik bhari'

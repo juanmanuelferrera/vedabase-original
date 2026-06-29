@@ -1,5 +1,8 @@
 ### CC Antya 20.9
 
+> সঙ্কীর্তনযজ্ঞে কলৌ কৃষ্ণ-আরাধন ।
+> সেই ত’ সুমেধা পায় কৃষ্ণের চরণ ॥৯॥
+
 > saṅkīrtana-yajñe kalau kṛṣṇa-ārādhana
 > sei ta' sumedhā pāya kṛṣṇera caraṇa
 

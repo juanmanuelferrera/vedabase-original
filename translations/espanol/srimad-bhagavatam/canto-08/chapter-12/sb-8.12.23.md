@@ -1,5 +1,8 @@
 ### SB 8.12.23
 
+> तस्याः कराग्रात्स तु कन्दुको यदा गतो विदूरं तमनुव्रजत्स्त्रियाः
+> वासः ससूत्रं लघु मारुतोऽहरद्भवस्य देवस्य किलानुपश्यतः ॥२३॥
+
 > tasyāḥ karāgrāt sa tu kanduko yadā
 > gato vidūraṁ tam anuvrajat-striyāḥ
 > vāsaḥ sasūtraṁ laghu māruto 'harad

@@ -1,5 +1,8 @@
 ### CC Madhya 25.154
 
+> নিরন্তর কর কৃষ্ণনাম-সংকীর্তন ৷
+> হেলায় মুক্তি পাবে, পাবে প্রেমধন ৷৷ ১৫৪ ৷৷ ॥১৫৪॥
+
 > nirantara kara kṛṣṇa-nāma-saṅkīrtana
 > helāya mukti pābe, pābe prema-dhana
 

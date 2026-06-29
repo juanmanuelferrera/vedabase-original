@@ -1,5 +1,8 @@
 ### CC Madhya 11.152
 
+> প্রথমে মুরারি-গুপ্ত প্রভুরে না মিলিয়া ।
+> বাহিরেতে পড়ি’ আছে দণ্ডবৎ হঞা ॥১৫২॥
+
 > prathame murāri-gupta prabhure nā miliyā
 > bāhirete paḍi' āche daṇḍavat hañā
 

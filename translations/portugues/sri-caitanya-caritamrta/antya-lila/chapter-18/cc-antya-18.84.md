@@ -1,5 +1,9 @@
 ### CC Antya 18.84
 
+> সখি হে, দেখ কৃষ্ণের জলকেলি-রঙ্গে ।
+> কৃষ্ণ মত্ত করিবর, চঞ্চল কর-পুষ্কর,
+> গোপীগণ করিণীর সঙ্গে ।। ৮৪ ।। ধ্রু ।। ॥৮৪॥
+
 sakhi he, dekha kṛṣṇera jala-keli-raṅge
 
 kṛṣṇa matta kari-vara, cañcala kara-puṣkara,

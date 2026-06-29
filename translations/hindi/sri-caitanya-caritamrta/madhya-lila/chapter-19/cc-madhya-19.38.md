@@ -1,5 +1,8 @@
 ### CC Madhya 19.38
 
+> প্রভু চলিয়াছেন বিন্দুমাধব-দরশনে ।
+> লক্ষ লক্ষ লোক আইসে প্রভুর মিলনে ॥৩৮॥
+
 > prabhu caliyāchena bindu-mādhava-daraśane
 > lakṣa lakṣa loka āise prabhura milane
 

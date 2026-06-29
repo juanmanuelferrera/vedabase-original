@@ -1,5 +1,7 @@
 ### SB 5.21.2
 
+> एतेन हि दिवो मण्डलमानं तद्विद उपदिशन्ति यथा द्विदलयोर्निष्पावादीनां तेअन्तरेणान्तरिक्षं तदुभयसन्धितम ॥२॥
+
 etena hi divo maṇḍala-mānaṁ tad-vida upadiśanti yathā dvi-dalayor niṣpāvādīnāṁ te antareṇāntarikṣaṁ tad-ubhaya-sandhitam.
 
 *etena*—por essa estimativa; *hi*—de fato; *divaḥ*—do sistema planetário superior; *maṇḍala-mānam*—a medida do globo; *tat-vidaḥ*—os peritos que sabem a respeito; *upadiśanti*—instruem; *yathā*—assim como; *dvi-dalayoḥ*—nas duas metades; *niṣpāva-ādīnām*—de grãos como o trigo; *te*—das duas divisões; *antareṇa*—no espaço intermediário; *antarikṣam*—o céu ou espaço exterior; *tat*—pelos dois; *ubhaya*—em ambos os lados; *sandhitam*—onde as duas partes se unem.

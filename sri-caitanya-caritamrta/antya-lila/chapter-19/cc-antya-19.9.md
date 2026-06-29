@@ -1,5 +1,8 @@
 ### CC Antya 19.9
 
+> তোমার সেবা ছাড়ি’ আমি করিলুঁ সন্ন্যাস ।
+> ‘বাউল’ হঞা আমি কৈলুঁ ধর্মনাশ ॥৯॥
+
 > tomāra sevā chāḍi' āmi kariluṅ sannyāsa
 > 'bāula' hañā āmi kailuṅ dharma-nāśa
 

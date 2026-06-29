@@ -1,5 +1,8 @@
 ### SB 8.7.45
 
+> तप्यन्ते लोकतापेन साधवः प्रायशो जनाः
+> परमाराधनं तद्धि पुरुषस्याखिलात्मनः ॥४५॥
+
 > niśamya karma tac chambhor
 > deva-devasya mīḍhuṣaḥ
 > prajā dākṣāyaṇī brahmā

@@ -1,5 +1,10 @@
 ### SB 2.7.12
 
+> मत्स्यो युगान्तसमये मनुनोपलब्धः
+> क्षोणीमयो निखिलजीवनिकायकेतः ।
+> विस्रंसितानुरुभये सलिले मुखान्मे
+> आदाय तत्र विजहार ह वेदमार्गान् ॥१२॥
+
 > matsyo yugānta-samaye manunopalabdhaḥ
 > kṣoṇīmayo nikhila-jīva-nikāya-ketaḥ
 > visraṁsitān uru-bhaye salile mukhān me

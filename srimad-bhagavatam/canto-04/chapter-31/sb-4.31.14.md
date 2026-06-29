@@ -1,5 +1,8 @@
 ### SB 4.31.14
 
+> यथा तरोर्मूलनिषेचनेन तृप्यन्ति तत्स्कन्धभुजोपशाखाः ।
+> प्राणोपहाराच्च यथेन्द्रियाणां तथैव सर्वार्हणमच्युतेज्या ॥१४॥
+
 > yathā taror mūla-niṣecanena
 > tṛpyanti tat-skandha-bhujopaśākhāḥ
 > prāṇopahārāc ca yathendriyāṇāṁ

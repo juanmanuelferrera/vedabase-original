@@ -1,5 +1,8 @@
 ### CC Adi 17.287
 
+> ‘ইহোঁ কৃষ্ণ নহে, ইহোঁ নারায়ণংমূর্তি ।’
+> এত বলি’ তাঁরে সভে করে নতি-স্তুতি ॥২৮৭॥
+
 'ihoṅ kṛṣṇa nahe, ihoṅ nārāyaṇa mūrti'
 
 eta bali' tāṅre sabhe kare nati-stuti

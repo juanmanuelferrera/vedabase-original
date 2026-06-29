@@ -1,5 +1,8 @@
 ### CC Antya 7.91
 
+> প্রভুর উপেক্ষায় সব নীলাচলের জন ।
+> ভট্টের ব্যাখ্যান কিছু না করে শ্রবণ ॥৯১॥
+
 > prabhura upekṣāya saba nīlācalera jana
 > bhaṭṭera vyākhyāna kichu nā kare śravaṇa
 

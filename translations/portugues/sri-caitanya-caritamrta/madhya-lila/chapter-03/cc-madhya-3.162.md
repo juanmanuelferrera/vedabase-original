@@ -1,5 +1,8 @@
 ### CC Madhya 3.162
 
+> কীর্তন করিতে প্রভুর সর্বভাবোদয় ৷
+> স্তম্ভ, কম্প, পুলকাশ্রু, গদ্গদ, প্রলয় ॥১৬২॥
+
 kīrtana karite prabhura sarva-bhāvodaya
 stambha, kampa, pulakāśru, gadgada, pralaya
 

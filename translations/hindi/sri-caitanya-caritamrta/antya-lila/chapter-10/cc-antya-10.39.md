@@ -1,5 +1,8 @@
 ### CC Antya 10.39
 
+> সংক্ষেপে কহিলুঁ এই ঝালির বিচার ।
+> ‘রাঘবের ঝালি’ বলি’ বিখ্যাতি যাহার ॥৩৯॥
+
 > saṅkṣepe kahiluṅ ei jhālira vicāra
 > 'rāghavera jhāli' bali' vikhyāti yāhāra
 

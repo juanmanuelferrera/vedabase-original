@@ -1,5 +1,8 @@
 ### CC Madhya 22.108
 
+> এই ত সাধনভক্তি — দুই ত’ প্রকার ।
+> এক ‘বৈধী ভক্তি’, ‘রাগানুগা-ভক্তি’ আর ॥১০৮॥
+
 ei ta sādhana-bhakti--dui ta' prakāra
 
 eka 'vaidhī bhakti', 'rāgānugā-bhakti' āra

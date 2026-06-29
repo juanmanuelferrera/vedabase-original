@@ -1,5 +1,8 @@
 ### CC Antya 11.27
 
+> হীন-জাতি জন্ম মোর নিন্দ্য-কলেবর ।
+> হীনকর্মে রত মুঞি অধম পামর ॥২৭॥
+
 > hīna-jāti janma mora nindya-kalevara
 > hīna-karme rata muñi adhama pāmara
 

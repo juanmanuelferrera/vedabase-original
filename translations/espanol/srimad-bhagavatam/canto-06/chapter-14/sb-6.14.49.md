@@ -1,5 +1,8 @@
 ### SB 6.14.49
 
+> ततो नृपान्तःपुरवर्तिनो जना नराश्च नार्यश्च निशम्य रोदनम
+> आगत्य तुल्यव्यसनाः सुदुःखितास्ताश्च व्यलीकं रुरुदुः कृतागसः ॥४९॥
+
 > tato nṛpāntaḥpura-vartino janā
 > narāś ca nāryaś ca niśamya rodanam
 > āgatya tulya-vyasanāḥ suduḥkhitās

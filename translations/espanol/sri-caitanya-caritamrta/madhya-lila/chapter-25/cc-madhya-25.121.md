@@ -1,5 +1,8 @@
 ### CC Madhya 25.121
 
+> ‘ধর্মাদি’ বিষয়ে যৈছে এ ‘চারি’ বিচার ।
+> সাধন-ভক্তি — এই চারি বিচারের পার ॥১২১॥
+
 > 'dharmādi' viṣaye yaiche e 'cāri, vicāra
 > sādhana-bhakti-ei cāri vicārera pāra
 

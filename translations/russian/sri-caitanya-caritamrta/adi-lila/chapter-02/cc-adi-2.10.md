@@ -1,5 +1,8 @@
 ### CC Adi 2.10
 
+> প্রকাশবিশেষে তেঁহ ধরে তিন নাম ।
+> ব্রহ্ম, পরমাত্মা আর স্বয়ং-ভগবান্ ॥১০॥
+
 > prakāśa-viśeṣe teṅha dhare tina nāma
 > brahma, paramātmā āra svayaṁ-bhagavān
 

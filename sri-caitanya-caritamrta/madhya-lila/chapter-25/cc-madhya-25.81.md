@@ -1,5 +1,8 @@
 ### CC Madhya 25.81
 
+> প্রকাশানন্দ কহে, — “তুমি সাক্ষাৎ ভগবান্ ।
+> তবু যদি কর তাঁর ‘দাস’-অভিমান ॥৮১॥
+
 > prakāśānanda kahe,-"tumi sākṣāt bhagavān
 > tabu yadi kara tāṅra 'dāsa'-abhimāna
 

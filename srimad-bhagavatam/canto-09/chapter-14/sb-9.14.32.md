@@ -1,5 +1,8 @@
 ### SB 9.14.32
 
+> ऐलोऽपि शयने जायामपश्यन्विमना इव
+> तच्चित्तो विह्वलः शोचन्बभ्रामोन्मत्तवन्महीम ॥३२॥
+
 > ailo 'pi śayane jāyām
 > apaśyan vimanā iva
 > tac-citto vihvalaḥ śocan

@@ -1,5 +1,8 @@
 ### SB 3.6.30
 
+> मुखतोऽवर्तत ब्रह्म पुरुषस्य कुरूद्वह ।
+> यस्तून्मुखत्वाद्वर्णानां मुख्योऽभूद्ब्राह्मणो गुरुः ॥३०॥
+
 > mukhato 'vartata brahma
 > puruṣasya kurūdvaha
 > yas tūnmukhatvād varṇānāṁ

@@ -1,5 +1,8 @@
 ### SB 7.3.34
 
+> अनन्ताव्यक्तरूपेण येनेदमखिलं ततम
+> चिदचिच्छक्तियुक्ताय तस्मै भगवते नमः ॥३४॥
+
 > anantāvyakta-rūpeṇa
 > yenedam akhilaṁ tatam
 > cid-acic-chakti-yuktāya

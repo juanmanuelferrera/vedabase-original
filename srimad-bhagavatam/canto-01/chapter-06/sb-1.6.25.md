@@ -1,5 +1,8 @@
 ### SB 1.6.25
 
+> एतावदुक्त्वोपरराम तन्महद्भूतं नभोलिङ्गमलिङ्गमीश्वरम् ।
+> अहं च तस्मै महतां महीयसे शीर्ष्णावनामं विदधेऽनुकम्पितः ॥२५॥
+
 > etāvad uktvopararāma tan mahad
 > bhūtaṁ nabho-liṅgam aliṅgam īśvaram
 > ahaṁ ca tasmai mahatāṁ mahīyase

@@ -1,5 +1,10 @@
 ### CC Madhya 2.81
 
+> আপনে করি’ আস্বাদনে, শিখাইল ভক্তগণে,
+> প্রেমচিন্তামণির প্রভু ধনী ।
+> নাহি জানে স্থানাস্থান, যারে তারে কৈল দান,
+> মহাপ্রভু — দাতা-শিরোমণি ॥৮১॥
+
 āpane kari' āsvādane, śikhāila bhakta-gaṇe,
 prema-cintāmaṇira prabhu dhanī
 nāhi jāne sthānāsthāna, yāre tāre kaila dāna,

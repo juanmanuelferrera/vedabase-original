@@ -1,5 +1,8 @@
 ### CC Antya 10.127
 
+> শত-জনের ভক্ষ্য প্রভু দণ্ডেকে খাইলা !
+> ‘আর কিছু আছে?’ বলি’ গোবিন্দে পুছিলা ॥১২৭॥
+
 > śata-janera bhakṣya prabhu daṇḍeke khāilā!
 > 'āra kichu āche?' bali' govinde puchilā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.240
 
+> দ্বারকাতে ষোল-সহস্র মহিষী-মন্দিরে  ।
+> অষ্টাদশ মাতা, আর যাদবের ঘরে ॥২৪০॥
+
 dvārakāte ṣola-sahasra mahiṣī-mandire
 
 aṣṭādaśa mātā, āra yādavera ghare

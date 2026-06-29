@@ -1,5 +1,8 @@
 ### SB 7.5.46
 
+> वर्तमानोऽविदूरे वै बालोऽप्यजडधीरयम
+> न विस्मरति मेऽनार्यं शुनः शेप इव प्रभुः ॥४६॥
+
 > vartamāno 'vidūre vai
 > bālo 'py ajaḍa-dhīr ayam
 > na vismarati me 'nāryaṁ

@@ -1,5 +1,8 @@
 ### CC Adi 13.68
 
+> লোকের নিস্তার-হেতু করেন চিন্তন ।
+> কেমতে এ সব লোকের হইবে তারণ ॥৬৮॥
+
 > lokera nistāra-hetu karena cintana
 > kemate e saba lokera ha-ibe tāraṇa
 

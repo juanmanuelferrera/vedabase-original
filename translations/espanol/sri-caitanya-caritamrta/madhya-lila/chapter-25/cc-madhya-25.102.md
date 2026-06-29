@@ -1,5 +1,8 @@
 ### CC Madhya 25.102
 
+> ভাগবতের সম্বন্ধ, অভিধেয়, প্রয়োজন ।
+> চতুঃশ্লোকীতে প্রকট তার করিয়াছে লক্ষণ ॥১০২॥
+
 > bhāgavatera sambandha, abhidheya, prayojana
 > catuḥ-ślokīte prakaṭa tāra kariyāche lakṣaṇa
 

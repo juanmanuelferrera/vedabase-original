@@ -1,5 +1,8 @@
 ### SB 3.14.24
 
+> एतस्यां साध्वि सन्ध्यायां भगवान्भूतभावनः ।
+> परीतो भूतपर्षद्भिर्वृषेणाटति भूतराट् ॥२४॥
+
 > etasyāṁ sādhvi sandhyāyāṁ
 > bhagavān bhūta-bhāvanaḥ
 > parīto bhūta-parṣadbhir

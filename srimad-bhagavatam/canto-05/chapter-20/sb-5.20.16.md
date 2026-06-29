@@ -1,5 +1,7 @@
 ### SB 5.20.16
 
+> यासां पयोभिः कुशद्वीपौकसः कुशलकोविदाभियुक्तकुलकसंज्ञआ भगवन्तं जातवेदसरूपिणं कर्मकौशलेन यजन्ते ॥१६॥
+
 > yāsāṁ payobhiḥ kuśadvīpaukasaḥ kuśala-kovidābhiyukta-kulaka-saṁjñā bhagavantaṁ jātaveda-sarūpiṇaṁ karma-kauśalena yajante.
 
 *yāsām*—of which; *payobhiḥ*—by the water; *kuśa-dvīpa-okasaḥ*—the inhabitants of the island known as Kuśadvīpa; *kuśala*—Kuśala; *kovida*—Kovida; *abhiyukta*—Abhiyukta; *kulaka*—Kulaka; *saṁjñāḥ*—named; *bhagavantam*—unto the Supreme Personality of Godhead; *jātaveda*—the demigod of fire; *sa-rūpiṇam*—manifesting the form; *karma-kauśalena*—by expertise in ritualistic ceremonies; *yajante*—they worship.

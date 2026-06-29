@@ -1,5 +1,8 @@
 ### CC Antya 18.73
 
+> আর্দ্র কৌপীন দূর করি’ শুষ্ক পরাঞা ।
+> বহির্বাসে শোয়াইলা বালুকা ছাড়াঞা ॥৭৩॥
+
 ārdra kaupīna dūra kari' śuṣka parāñā
 
 bahirvāse śoyāilā vālukā chāḍāñā

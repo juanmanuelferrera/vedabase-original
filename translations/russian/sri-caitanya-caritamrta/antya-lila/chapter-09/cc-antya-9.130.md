@@ -1,5 +1,8 @@
 ### CC Antya 9.130
 
+> “তোমার কিঙ্কর এই সব মোর কুল ।
+> এ বিপদে রাখি’ প্রভু, পুনঃ নিলা মূল ॥১৩০॥
+
 > "tomāra kiṅkara ei saba mora kula
 > e vipade rākhi' prabhu, punaḥ nilā mūla
 

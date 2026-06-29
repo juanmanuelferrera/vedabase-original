@@ -1,5 +1,8 @@
 ### CC Madhya 9.55
 
+> বৌদ্ধগণের উপরে অন্ন পড়ে অমেধ্য হৈয়া ৷
+> বৌদ্ধাচার্যের মাথায় থালি পড়িল বাজিয়া ৷৷ ৫৫ ৷৷ ॥৫৫॥
+
 > bauddha-gaṇera upare anna paḍe amedhya haiyā
 > bauddhācāryera māthāya thāli paḍila bājiyā
 

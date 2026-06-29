@@ -1,5 +1,8 @@
 ### CC Adi 17.28
 
+> কাটিলেহ তরু যেন কিছু না বোলয় ।
+> শুকাইয়া মরে, তবু জল না মাগয় ॥২৮॥
+
 > kāṭileha taru yena kichu nā bolaya
 > śukāiyā mare, tabu jala nā māgaya
 

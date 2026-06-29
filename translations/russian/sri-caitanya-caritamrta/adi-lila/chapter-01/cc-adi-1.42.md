@@ -1,5 +1,8 @@
 ### CC Adi 1.42
 
+> শ্রীকৃষ্ণচৈতন্য প্রভু স্বয়ংভগবান্ ।
+> তাঁহার পদারবিন্দে অনন্ত প্রণাম ॥৪২॥
+
 > śrī-kṛṣṇa-caitanya prabhu svayaṁ-bhagavān
 > tāṅhāra padāravinde ananta praṇāma
 

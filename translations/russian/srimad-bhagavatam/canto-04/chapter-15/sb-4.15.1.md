@@ -1,5 +1,9 @@
 ### SB 4.15.1
 
+> मैत्रेय उवाच
+> अथ तस्य पुनर्विप्रैरपुत्रस्य महीपतेः ।
+> बाहुभ्यां मथ्यमानाभ्यां मिथुनं समपद्यत ॥१॥
+
 > maitreya uvāca
 > atha tasya punar viprair
 > aputrasya mahīpateḥ

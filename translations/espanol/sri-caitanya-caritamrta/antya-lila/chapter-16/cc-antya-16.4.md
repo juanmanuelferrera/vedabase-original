@@ -1,5 +1,8 @@
 ### CC Antya 16.4
 
+> বর্ষান্তরে আইলা সব গৌড়ের ভক্তগণ ।
+> পূর্ববৎ আসি’ কৈল প্রভুর মিলন ॥৪॥
+
 > varṣāntare āilā saba gauḍera bhakta-gaṇa
 > pūrvavat āsi' kaila prabhura milana
 

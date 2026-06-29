@@ -1,5 +1,8 @@
 ### CC Antya 2.136
 
+> লোকহিত লাগি' তোমার সব ব্যবহার ।
+> আমি সব না জানি গম্ভীর হৃদয় তোমার" ॥১৩৬॥
+
 > loka-hita lāgi' tomāra saba vyavahāra
 > āmi saba nā jāni gambhīra hṛdaya tomāra"
 

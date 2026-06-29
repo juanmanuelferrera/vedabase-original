@@ -1,5 +1,8 @@
 ### CC Antya 7.173
 
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
+> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥১৭৩॥
+
 śrī-rūpa-raghunātha-pade yāra āśa
 
 caitanya-caritāmṛta kahe kṛṣṇadāsa

@@ -1,5 +1,7 @@
 ### SB 5.14.7
 
+> क्वचिच्चाशेषदोषनिषदनं पुरीषविशेषं तद्वर्णगुणनिर्मितमतिःसुवर्णमुपादित्सत्यग्निकामकातर इवोल्मुकपिशाचम ॥७॥
+
 *kvacic cāśeṣa*-doṣa-niṣadanaṁ purīṣa-viśeṣaṁ tad-varṇa-guṇa-nirmita-matiḥ suvarṇam upāditsaty agni-kāma-kātara ivolmuka-piśācam.
 
 *kvacit*—às vezes; *ca*—também; *aśeṣa*—ilimitados; *doṣa*—de defeitos; *niṣadanam*—a fonte de; *purīṣa*—de fezes; *viśeṣam*—um tipo particular; *tat-varṇa-guṇa*—cuja cor é a mesma que a do modo da paixão (avermelhada); *nirmita-matiḥ*—cuja mente está absorta nisso; *suvarṇam*—ouro; *upāditsati*—desejando obter; *agni-kāma*—pelo desejo de fogo; *kātaraḥ*—que está atormentada; *iva*—como; *ulmuka-piśācam*—uma luz fosforescente conhecida como fogo-fátuo, que às vezes é confundido com um fantasma.

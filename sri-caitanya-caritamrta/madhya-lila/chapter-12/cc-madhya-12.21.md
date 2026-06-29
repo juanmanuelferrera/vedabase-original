@@ -1,5 +1,8 @@
 ### CC Madhya 12.21
 
+> দেখিব সে মুখচন্দ্র নয়ন ভরিয়া ।
+> ধরিব সে পাদপদ্ম হৃদয়ে তুলিয়া ॥২১॥
+
 > dekhiba se mukha-candra nayana bhariyā
 > dhariba se pāda-padma hṛdaye tuliyā
 

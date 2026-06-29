@@ -1,5 +1,8 @@
 ### SB 5.5.9
 
+> यदा मनोहृदयग्रन्थिरस्य कर्मानुबद्धो दृढ आश्लथेत
+> तदा जनः सम्परिवर्ततेऽस्माद्मुक्तः परं यात्यतिहाय हेतुम ॥९॥
+
 > yadā mano-hṛdaya-granthir asya
 > karmānubaddho dṛḍha āślatheta
 > tadā janaḥ samparivartate 'smād

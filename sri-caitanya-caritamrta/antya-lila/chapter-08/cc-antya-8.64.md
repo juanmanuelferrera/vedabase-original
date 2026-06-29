@@ -1,5 +1,8 @@
 ### CC Antya 8.64
 
+> “সন্ন্যাসীর ধর্ম নহে ‘ইন্দ্রিয়-তর্পণ’ ।
+> যৈছে তৈছে করে মাত্র উদর ভরণ ॥৬৪॥
+
 > "sannyāsīra dharma nahe 'indriya-tarpaṇa'
 > yaiche taiche kare mātra udara bharaṇa
 

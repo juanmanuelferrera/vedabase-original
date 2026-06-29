@@ -1,5 +1,8 @@
 ### CC Antya 2.105
 
+> প্রভু লেখা করে যারে — রাধিকার ‘গণ’  ।
+> জগতের মধ্যে ‘পাত্র’ — সাড়ে তিন জন ॥১০৫॥
+
 > prabhu lekhā kare yāre--rādhikāra 'gaṇa'
 > jagatera madhye 'pātra'--sāḍe tina jana
 

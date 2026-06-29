@@ -1,5 +1,8 @@
 ### SB 3.2.17
 
+> दुनोति चेतः स्मरतो ममैतद्यदाह पादावभिवन्द्य पित्रोः ।
+> ताताम्ब कंसादुरुशङ्कितानां प्रसीदतं नोऽकृतनिष्कृतीनाम् ॥१७॥
+
 > dunoti cetaḥ smarato mamaitad
 > yad āha pādāv abhivandya pitroḥ
 > tātāmba kaṁsād uru-śaṅkitānāṁ

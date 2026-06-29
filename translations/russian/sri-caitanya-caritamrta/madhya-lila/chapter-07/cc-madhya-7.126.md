@@ -1,5 +1,8 @@
 ### CC Madhya 7.126
 
+> কৃপা কর, প্রভু, মোরে, যাঙ তোমা-সঙ্গে ।
+> সহিতে না পারি দুঃখ বিষয়-তরঙ্গে ।।’ ॥১২৬॥
+
 > kṛpā kara, prabhu, more, yāṅ tomā-saṅge
 > sahite nā pāri duḥkha viṣaya-taraṅge'
 

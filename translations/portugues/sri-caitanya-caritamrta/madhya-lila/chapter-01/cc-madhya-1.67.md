@@ -1,5 +1,8 @@
 ### CC Madhya 1.67
 
+> শ্লোক পড়ি’ আছে প্রভু আবিষ্ট হইয়া ।
+> রূপগোসাঞি আসি’ পড়ে দণ্ডবৎ হঞা ॥৬৭॥
+
 śloka paḍi' āche prabhu āviṣṭa ha-iyā
 rūpa-gosāñi āsi' paḍe daṇḍavat hañā
 

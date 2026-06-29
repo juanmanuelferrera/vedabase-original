@@ -1,5 +1,8 @@
 ### CC Madhya 12.63
 
+> প্রভুস্পর্শে রাজপুত্রের হৈল প্রেমাবেশ ।
+> স্বেদ, কম্প, অশ্রু, স্তম্ভ, পুলক বিশেষ ॥৬৩॥
+
 prabhu-sparśe rāja-putrera haila premāveśa
 
 sveda, kampa, aśru, stambha, pulaka viśeṣa

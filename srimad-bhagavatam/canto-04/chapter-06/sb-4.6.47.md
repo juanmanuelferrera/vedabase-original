@@ -1,5 +1,8 @@
 ### SB 4.6.47
 
+> पृथग्धियः कर्मदृशो दुराशयाः परोदयेनार्पितहृद्रुजोऽनिशम् ।
+> परान्दुरुक्तैर्वितुदन्त्यरुन्तुदास्तान्मावधीद्दैववधान्भवद्विधः ॥४७॥
+
 > pṛthag-dhiyaḥ karma-dṛśo durāśayāḥ
 > parodayenārpita-hṛd-rujo 'niśam
 > parān duruktair vitudanty aruntudās

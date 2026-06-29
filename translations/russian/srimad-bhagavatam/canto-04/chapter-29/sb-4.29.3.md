@@ -1,5 +1,8 @@
 ### SB 4.29.3
 
+> योऽविज्ञाताहृतस्तस्य पुरुषस्य सखेश्वरः ।
+> यन्न विज्ञायते पुम्भिर्नामभिर्वा क्रियागुणैः ॥३॥
+
 > yo 'vijñātāhṛtas tasya
 > puruṣasya sakheśvaraḥ
 > yan na vijñāyate pumbhir

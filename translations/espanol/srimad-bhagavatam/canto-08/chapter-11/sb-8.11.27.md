@@ -1,5 +1,8 @@
 ### SB 8.11.27
 
+> निरीक्ष्य पृतनां देवः परैरभ्यर्दितां रणे
+> उदयच्छद्रिपुं हन्तुं वज्रं वज्रधरो रुषा ॥२७॥
+
 > nirīkṣya pṛtanāṁ devaḥ
 > parair abhyarditāṁ raṇe
 > udayacchad ripuṁ hantuṁ

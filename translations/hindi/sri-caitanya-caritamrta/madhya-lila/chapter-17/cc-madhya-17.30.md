@@ -1,5 +1,8 @@
 ### CC Madhya 17.30
 
+> আর দিনে মহাপ্রভু করে নদী স্নান ।
+> মত্তহস্তিযূথ আইল করিতে জলপান ॥৩০॥
+
 > āra dine mahāprabhu kare nadī snāna
 > matta-hasti-yūtha āila karite jala-pāna
 

@@ -1,5 +1,8 @@
 ### CC Adi 17.249
 
+> কৃষ্ণনাম না লও কেনে, কৃষ্ণনাম — ধন্য ।
+> ‘গোপী’ ‘গোপী’ বলিলে বা কিবা হয় পুণ্য ॥২৪৯॥
+
 kṛṣṇa-nāma nā lao kene, kṛṣṇa-nāma--dhanya
 
 'gopī' 'gopī' balile vā kibā haya puṇya

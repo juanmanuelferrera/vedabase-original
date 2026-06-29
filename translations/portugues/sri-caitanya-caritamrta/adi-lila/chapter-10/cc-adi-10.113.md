@@ -1,5 +1,8 @@
 ### CC Adi 10.113
 
+> রামদাস, কবিচন্দ্র, শ্রীগোপালদাস ।
+> ভাগবতাচার্য, ঠাকুর সারঙ্গদাস ॥১১৩॥
+
 rāmadāsa, kavicandra, śrī-gopāladāsa
 
 bhāgavatācārya, ṭhākura sāraṅgadāsa

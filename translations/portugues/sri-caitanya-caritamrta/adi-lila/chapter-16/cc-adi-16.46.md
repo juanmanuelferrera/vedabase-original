@@ -1,5 +1,8 @@
 ### CC Adi 16.46
 
+> বিপ্র কহে, শ্লোকে নাহি দোষের আভাস ।
+> উপমালঙ্কার গুণ, কিছু অনুপ্রাস ॥৪৬॥
+
 vipra kahe śloke nāhi doṣera ābhāsa
 
 upamālaṅkāra guṇa, kichu anuprāsa

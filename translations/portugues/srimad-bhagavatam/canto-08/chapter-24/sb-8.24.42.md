@@ -1,5 +1,8 @@
 ### SB 8.24.42
 
+> ध्यायन्भगवदादेशं ददृशे नावमागताम
+> तामारुरोह विप्रेन्द्रैरादायौषधिवीरुधः ॥४२॥
+
 dhyāyan bhagavad-ādeśaṁ
 dadṛśe nāvam āgatām
 tām āruroha viprendrair

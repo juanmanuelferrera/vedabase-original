@@ -1,5 +1,8 @@
 ### CC Antya 4.182
 
+> আমা-সব অধমে যে করিয়াছ অঙ্গীকার ।
+> দীনদয়ালু-গুণ তোমার তাহাতে প্রচার ।।” ॥ ১৮২ ॥
+
 > āmā-saba adhame ye kariyācha aṅgīkāra
 > dīna-dayālu-guṇa tomāra tāhāte pracāra"
 

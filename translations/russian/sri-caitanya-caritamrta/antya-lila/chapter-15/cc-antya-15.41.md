@@ -1,5 +1,8 @@
 ### CC Antya 15.41
 
+> তুমি-সব — হও আমার সখীর সমান ।
+> কৃষ্ণোদ্দেশ কহি’ সবে রাখহ পরাণ ।।” ॥ ৪১ ॥
+
 > tumi-saba—hao āmāra sakhīra samāna
 > kṛṣṇoddeśa kahi' sabe rākhaha parāṇa"
 

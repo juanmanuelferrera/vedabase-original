@@ -1,5 +1,8 @@
 ### CC Madhya 19.227
 
+> সখ্যের গুণ — ‘অসঙ্কোচ’, ‘অগৌরব’ সার ।
+> মমতাধিক্যে তাড়ন-ভর্ত্সন-ব্যবহার ॥২২৭॥
+
 sakhyera guṇa--'asaṅkoca', 'agaurava' sāra
 
 mamatādhikye tāḍana-bhartsana-vyavahāra

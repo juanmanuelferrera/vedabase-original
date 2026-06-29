@@ -1,5 +1,8 @@
 ### CC Madhya 16.82
 
+> এইমত প্রত্যব্দ আইসে গৌড়ের ভক্তগণ ।
+> প্রভু-সঙ্গে রহি’ করে যাত্রা-দরশন ॥৮২॥
+
 ei-mata pratyabda āise gauḍera bhakta-gaṇa
 
 prabhu-saṅge rahi' kare yātrā-daraśana

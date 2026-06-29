@@ -1,5 +1,8 @@
 ### SB 6.18.40
 
+> कोऽतिक्रमोऽनुवर्तन्त्याः स्वभावमिह योषितः
+> धिङ्मां बताबुधं स्वार्थे यदहं त्वजितेन्द्रियः ॥४०॥
+
 > ko 'tikramo 'nuvartantyāḥ
 > svabhāvam iha yoṣitaḥ
 > dhiṅ māṁ batābudhaṁ svārthe

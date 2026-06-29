@@ -1,5 +1,8 @@
 ### CC Madhya 14.109
 
+> ঠাকুরের ভাণ্ডারে আর আমার ভাণ্ডারে  ।
+> চিত্রবস্ত্র-কিঙ্কিণী, আর ছত্র-চামরে ॥১০৯॥
+
 > ṭhākurera bhāṇḍāre āra āmāra bhāṇḍāre
 > citra-vastra-kiṅkiṇī, āra chatra-cāmare
 

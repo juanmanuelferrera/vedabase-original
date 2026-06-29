@@ -1,5 +1,8 @@
 ### CC Madhya 13.172
 
+> ভাবোদয়, ভাবশান্তি, সন্ধি, শাবল্য ।
+> সঞ্চারী, সাত্ত্বিক, স্থায়ী স্বভাব-প্রাবল্য ॥১৭২॥
+
 bhāvodaya, bhāva-śānti, sandhi, śābalya
 
 sañcārī, sāttvika, sthāyī svabhāva-prābalya

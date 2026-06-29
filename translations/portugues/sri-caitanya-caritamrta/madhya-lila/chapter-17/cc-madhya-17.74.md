@@ -1,5 +1,8 @@
 ### CC Madhya 17.74
 
+> সনাতন-মুখে কৃষ্ণ আমা শিখাইলা ।
+> তাহা বিঘ্ন করি’ বনপথে লঞা আইলা ॥৭৪॥
+
 sanātana-mukhe kṛṣṇa āmā śikhāilā
 
 tāhā vighna kari' vana-pathe lañā āilā

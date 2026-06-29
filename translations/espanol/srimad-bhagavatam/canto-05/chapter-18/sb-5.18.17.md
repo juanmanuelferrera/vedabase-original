@@ -1,5 +1,7 @@
 ### SB 5.18.17
 
+> तद्भगवतो मायामयं रूपं परमसमाधियोगेन रमा देवी संवत्सरस्य रात्रिषुप्रजापतेर्दुहितृभिरुपेताहःसु च तद्भर्तृभिरुपास्ते इदं चोदाहरति ॥१७॥
+
 > tad bhagavato māyāmayaṁ rūpaṁ parama-samādhi-yogena ramā devī saṁvatsarasya rātriṣu prajāpater duhitṛbhir upetāhaḥsu ca tad-bhartṛbhir upāste idaṁ codāharati.
 
 *tat*—esa; *bhagavataḥ*—de la Suprema Personalidad de Dios; *māyā-mayam*—lleno de afecto por los devotos; *rūpam*—forma; *parama*—suprema; *samādhi-yogena*—por absorción de la mente en el servicio del Señor; *ramā*—la diosa de la fortuna; *devī*—mujer divina; *saṁvatsarasya*—conocido con el nombre de Saṁvatsara; *rātriṣu*—durante las noches; *prajāpateḥ*—del *prajāpati*; *duhitṛbhiḥ*—con las hijas; *upeta*—en compañía; *ahaḥsu*—durante los días; *ca*—también; *tat-bhartṛbhiḥ*—con los esposos; *upāste*—adora; *idam*—esto; *ca*—también; *udāharati*—canta.

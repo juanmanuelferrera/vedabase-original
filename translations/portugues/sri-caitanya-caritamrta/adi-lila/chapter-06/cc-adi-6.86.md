@@ -1,5 +1,8 @@
 ### CC Adi 6.86
 
+> চৈতন্যের দাস মুঞি, চৈতন্যের দাস ।
+> চৈতন্যের দাস মুঞি, তাঁর দাসের দাস ॥৮৬॥
+
 caitanyera dāsa muñi, caitanyera dāsa
 caitanyera dāsa muñi, tāṅra dāsera dāsa
 

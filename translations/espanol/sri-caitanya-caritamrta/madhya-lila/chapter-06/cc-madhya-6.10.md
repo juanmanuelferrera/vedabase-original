@@ -1,5 +1,8 @@
 ### CC Madhya 6.10
 
+> সূক্ষ্ম তুলা আনি’ নাসা-অগ্রেতে ধরিল ।
+> ঈষৎ চলয়ে তুলা দেখি’ ধৈর্য হৈল ॥১০॥
+
 > sūkṣma tulā āni' nāsā-agrete dharila
 > īṣat calaye tulā dekhi' dhairya haila
 

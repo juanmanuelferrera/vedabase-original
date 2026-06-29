@@ -1,5 +1,8 @@
 ### CC Antya 12.24
 
+> এত বলি’ প্রভু-পাশে গেলা শিবানন্দ ।
+> উঠি’ তাঁরে লাথি মাইলা প্রভু নিত্যানন্দ ॥২৪॥
+
 eta bali' prabhu-pāśe gelā śivānanda
 
 uṭhi' tāṅre lāthi māilā prabhu nityānanda

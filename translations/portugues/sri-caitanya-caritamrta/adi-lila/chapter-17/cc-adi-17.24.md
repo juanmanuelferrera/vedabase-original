@@ -1,5 +1,8 @@
 ### CC Adi 17.24
 
+> ‘কেবল’ শব্দে পুনরপি নিশ্চয়-করণ ।
+> জ্ঞান-যোগ-তপ কর্ম-আদি নিবারণ ॥২৪॥
+
 'kevala'-śabde punarapi niścaya-karaṇa
 jñāna-yoga-tapa-karma-ādi nivāraṇa
 

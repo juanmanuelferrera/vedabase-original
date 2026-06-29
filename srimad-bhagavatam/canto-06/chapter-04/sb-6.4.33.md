@@ -1,5 +1,8 @@
 ### SB 6.4.33
 
+> योऽनुग्रहार्थं भजतां पादमूलमनामरूपो भगवाननन्तः
+> नामानि रूपाणि च जन्मकर्मभिर्भेजे स मह्यं परमः प्रसीदतु ॥३३॥
+
 > yo 'nugrahārthaṁ bhajatāṁ pāda-mūlam
 > anāma-rūpo bhagavān anantaḥ
 > nāmāni rūpāṇi ca janma-karmabhir

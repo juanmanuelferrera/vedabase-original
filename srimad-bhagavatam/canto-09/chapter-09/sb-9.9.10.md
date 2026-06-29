@@ -1,5 +1,8 @@
 ### SB 9.9.10
 
+> भगीरथः स राजर्षिर्निन्ये भुवनपावनीम
+> यत्र स्वपित्णां देहा भस्मीभूताः स्म शेरते ॥१०॥
+
 > bhagīrathaḥ sa rājarṣir
 > ninye bhuvana-pāvanīm
 > yatra sva-pitṝṇāṁ dehā

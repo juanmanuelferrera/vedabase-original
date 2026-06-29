@@ -1,5 +1,8 @@
 ### SB 3.8.25
 
+> आयामतो विस्तरतः स्वमान देहेन लोकत्रयसङ्ग्रहेण ।
+> विचित्रदिव्याभरणांशुकानां कृतश्रियापाश्रितवेषदेहम् ॥२५॥
+
 > āyāmato vistarataḥ sva-māna-
 > dehena loka-traya-saṅgraheṇa
 > vicitra-divyābharaṇāṁśukānāṁ

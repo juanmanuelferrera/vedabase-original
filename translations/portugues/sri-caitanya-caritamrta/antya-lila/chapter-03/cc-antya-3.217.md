@@ -1,5 +1,8 @@
 ### CC Antya 3.217
 
+> আচার্যের ঘরে নিত্য ভিক্ষা-নির্বাহণ ।
+> দুই জনা মিলি’ কৃষ্ণ-কথা-আস্বাদন ॥২১৭॥
+
 ācāryera ghare nitya bhikṣā-nirvāhaṇa
 
 dui janā mili' kṛṣṇa-kathā-āsvādana

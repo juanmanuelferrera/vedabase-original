@@ -1,5 +1,8 @@
 ### CC Antya 8.37
 
+> প্রস্তাবে কহিলুঁ পুরী-গোসাঞির নির্যাণ ।
+> যেই ইহা শুনে, সেই বড় ভাগ্যবান্ ॥৩৭॥
+
 > prastāve kahiluṅ purī-gosāñira niryāṇa
 > yei ihā śune, sei baḍa bhāgyavān
 

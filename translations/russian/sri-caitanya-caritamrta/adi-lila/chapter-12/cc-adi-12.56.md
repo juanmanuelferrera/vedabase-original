@@ -1,5 +1,8 @@
 ### CC Adi 12.56
 
+> শ্রীযদুনন্দনাচার্য — অদ্বৈতের শাখা ।
+> তাঁর শাখা-উপশাখার নাহি হয় লেখা ॥৫৬॥
+
 > śrī-yadunandanācārya—advaitera śākhā
 > tāṅra śākhā-upaśākhāra nāhi haya lekhā
 

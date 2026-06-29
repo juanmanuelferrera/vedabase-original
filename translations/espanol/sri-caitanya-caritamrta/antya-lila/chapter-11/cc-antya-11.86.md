@@ -1,5 +1,8 @@
 ### CC Antya 11.86
 
+> আপনে কাশীমিশ্র আইলা প্রসাদ লঞা ।
+> প্রভুরে ভিক্ষা করাইলা আগ্রহ করিয়া ॥৮৬॥
+
 > āpane kāśī-miśra āilā prasāda lañā
 > prabhure bhikṣā karāilā āgraha kariyā
 

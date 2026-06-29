@@ -1,5 +1,8 @@
 ### CC Madhya 24.117
 
+> হরের্গুণাক্ষিপ্তমতির্ভগবান্ বাদরায়ণিঃ ।
+> অধ্যগান্মহদাখ্যানং নিত্যং বিষ্ণুজনপ্রিয়ঃ ॥১১৭॥
+
 > harer guṇākṣipta-matir
 > bhagavān bādarāyaṇiḥ
 > adhyagān mahad-ākhyānaṁ

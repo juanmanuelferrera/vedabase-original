@@ -1,5 +1,8 @@
 ### CC Antya 16.9
 
+> গৌড়দেশে হয় যত বৈষ্ণবের গণ ।
+> সবার উচ্ছিষ্ট তেঁহো করিল ভোজন ॥৯॥
+
 gauḍa-deśe haya yata vaiṣṇavera gaṇa
 sabāra ucchiṣṭa teṅho karila bhojana
 

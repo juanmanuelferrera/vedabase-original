@@ -1,5 +1,8 @@
 ### CC Adi 3.96
 
+> প্রকটিয়া দেখে আচার্য সকল সংসার ।
+> কৃষ্ণভক্তিগন্ধহীন বিষয়-ব্যবহার ॥৯৬॥
+
 prakaṭiyā dekhe ācārya sakala saṁsāra
 kṛṣṇa-bhakti gandha-hīna viṣaya-vyavahāra
 

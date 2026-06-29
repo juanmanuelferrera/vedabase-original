@@ -1,5 +1,8 @@
 ### CC Madhya 15.89
 
+> এইমত পিঠা-পানা, ক্ষীর-ওদন  ।
+> পরম পবিত্র, আর করে সর্বোত্তম ॥৮৯॥
+
 ei-mata piṭhā-pānā, kṣīra-odana
 
 parama pavitra, āra kare sarvottama

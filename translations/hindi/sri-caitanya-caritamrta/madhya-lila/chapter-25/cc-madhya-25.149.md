@@ -1,5 +1,10 @@
 ### CC Madhya 25.149
 
+> ধর্মঃ প্রোজ্ঝিতকৈতবোঽত্র পরমো নির্মৎসরাণাং সতাং
+> বেদ্যং বাস্তবমত্র বস্তু শিবদং তাপত্রয়োন্মূলনম্ ।
+> শ্রীমদ্ভাগবতে মহামুনিকৃতে কিংবাপরৈরীশ্বরঃ
+> সদ্যো হৃদ্যবরুধ্যতেঽত্র কৃতিভিঃ শুশ্রূষুভিস্তৎক্ষণাৎ ॥১৪৯॥
+
 > dharmaḥ projjhita-kaitavo 'tra paramo nirmatsarāṇāṁ satāṁ
 > vedyaṁ vāstavam atra vastu śivadaṁ tāpa-trayonmūlanam
 > śrīmad-bhāgavate mahāmuni-kṛte kiṁ vā parair īśvaraḥ

@@ -1,5 +1,10 @@
 ### CC Adi 2.21
 
+> তমিমমহমজং শরীরভাজাং
+> হৃদি হৃদি ধিষ্ঠিতমাত্মকল্পিতানাম্ ।
+> প্রতিদৃশমিব নৈকধার্কমেকং
+> সমধিগতোঽস্মি বিধূতভেদমোহঃ ॥২১॥
+
 > tam imam aham ajaṁ śarīra-bhājāṁ
 > hṛḍi hṛdi dhiṣṭhitam ātma-kalpitānām
 > prati-dṛśam iva naikadhārkam ekaṁ

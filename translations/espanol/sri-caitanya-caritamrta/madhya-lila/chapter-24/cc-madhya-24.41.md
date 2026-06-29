@@ -1,5 +1,8 @@
 ### CC Madhya 24.41
 
+> ‘গুণ’ শব্দের অর্থ — কৃষ্ণের গুণ অনন্ত ।
+> সচ্চিদ্রূপ-গুণ সর্ব পূর্ণানন্দ ॥৪১॥
+
 > 'guṇa' śabdera artha--kṛṣṇera guṇa ananta
 > sac-cid-rūpa-guṇa sarva pūrṇānanda
 

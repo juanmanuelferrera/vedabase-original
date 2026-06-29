@@ -1,5 +1,8 @@
 ### CC Madhya 12.134
 
+> প্রণালিকা ছাড়ি’ যদি পানি বহাইল ।
+> নূতন নদী যেন সমুদ্রে মিলিল ॥১৩৪॥
+
 praṇālikā chāḍi' yadi pāni vahāila
 
 nūtana nadī yena samudre milila

@@ -1,5 +1,8 @@
 ### CC Adi 17.53
 
+> পাষণ্ডী সংহারিতে মোর এই অবতার ।
+> পাষণ্ডী সংহারি’ ভক্তি করিমু প্রচার ॥৫৩॥
+
 pāṣaṇḍī saṁhārite mora ei avatāra
 
 pāṣaṇḍī saṁhāri' bhakti karimu pracāra

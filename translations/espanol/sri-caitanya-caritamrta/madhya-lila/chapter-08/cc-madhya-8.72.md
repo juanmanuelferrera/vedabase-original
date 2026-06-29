@@ -1,5 +1,8 @@
 ### CC Madhya 8.72
 
+> যন্নামশ্রুতিমাত্রেণ পুমান্ ভবতি নির্মলঃ ৷
+> তস্য তীর্থপদঃ কিংবা দাসানামবশিষ্যতে ৷৷ ৭২ ৷৷ ॥৭২॥
+
 > yan-nāma-śruti-mātreṇa
 > pumān bhavati nirmalaḥ
 > tasya tīrtha-padaḥ kiṁ vā

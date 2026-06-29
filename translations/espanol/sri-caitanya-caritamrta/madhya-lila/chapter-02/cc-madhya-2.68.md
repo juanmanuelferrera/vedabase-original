@@ -1,5 +1,10 @@
 ### CC Madhya 2.68
 
+> ভুবনের নারীগণ, সবা’ কর আকর্ষণ,
+> তাহাঁ কর সব সমাধান ৷
+> তুমি কৃষ্ণ — চিত্তহর, ঐছে কোন পামর,
+> তোমারে বা কেবা করে মান ॥৬৮॥
+
 > bhuvanera nārī-gaṇa, sabā' kara ākarṣaṇa,
 > tāhāṅ kara saba samādhāna
 > tumi kṛṣṇa--citta-hara, aiche kona pāmara,

@@ -1,5 +1,8 @@
 ### CC Madhya 8.290
 
+> গুপ্তে রাখিহ, কাহাঁ না করিও প্রকাশ ৷
+> আমার বাতুল-চেষ্টা লোকে উপহাস ৷৷ ২৯০ ৷৷ ॥২৯০॥
+
 > gupte rākhiha, kāhāṅ nā kario prakāśa
 > āmāra bātula-ceṣṭā loke upahāsa
 

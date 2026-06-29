@@ -1,5 +1,8 @@
 ### CC Antya 2.74
 
+> তবে শিবানন্দ ভোগ-সামগ্রী আনিলা ।
+> পাক করি’ নৃসিংহের ভোগ লাগাইলা ॥৭৪॥
+
 tabe śivānanda bhoga-sāmagrī ānilā
 
 pāka kari' nṛsiṁhera bhoga lāgāilā

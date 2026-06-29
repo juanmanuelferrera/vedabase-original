@@ -1,5 +1,8 @@
 ### SB 7.2.49
 
+> अथ नित्यमनित्यं वा नेह शोचन्ति तद्विदः
+> नान्यथा शक्यते कर्तुं स्वभावः शोचतामिति ॥४९॥
+
 > atha nityam anityaṁ vā
 > neha śocanti tad-vidaḥ
 > nānyathā śakyate kartuṁ

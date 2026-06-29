@@ -1,5 +1,8 @@
 ### SB 3.31.5
 
+> मातुर्जग्धान्नपानाद्यैरेधद्धातुरसम्मते ।
+> शेते विण्मूत्रयोर्गर्ते स जन्तुर्जन्तुसम्भवे ॥५॥
+
 > mātur jagdhānna-pānādyair
 > edhad-dhātur asammate
 > śete viṇ-mūtrayor garte

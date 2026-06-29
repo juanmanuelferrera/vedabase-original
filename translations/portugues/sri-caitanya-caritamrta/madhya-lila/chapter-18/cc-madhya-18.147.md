@@ -1,5 +1,8 @@
 ### CC Madhya 18.147
 
+> গঙ্গাতীর-পথে সুখ জানাইহ তাঁরে ।
+> ভট্টাচার্য আসি’ তবে কহিল প্রভুরে ॥১৪৭॥
+
 gaṅgā-tīra-pathe sukha jānāiha tāṅre
 
 bhaṭṭācārya āsi' tabe kahila prabhure

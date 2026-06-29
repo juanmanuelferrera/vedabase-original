@@ -1,5 +1,8 @@
 ### CC Antya 6.72
 
+> নি-সক্ড়ি নানামত প্রসাদ আনিল ।
+> প্রভুরে আগে দিয়া ভক্তগণে বাঁটি দিল ॥৭২॥
+
 ni-sakḍi nānā-mata prasāda ānila
 
 prabhure āge diyā bhakta-gaṇe bāṅṭi dila

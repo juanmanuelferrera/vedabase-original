@@ -1,5 +1,8 @@
 ### Bg 7.14
 
+> दैवी ह्येषा गुणमयी मम माया दुरत्यया ।
+> मामेव ये प्रपद्यन्ते मायामेतां तरन्ति ते ॥१४॥
+
 > daivī hy eṣā guṇamayī
 > mama māyā duratyayā
 > mām eva ye prapadyante

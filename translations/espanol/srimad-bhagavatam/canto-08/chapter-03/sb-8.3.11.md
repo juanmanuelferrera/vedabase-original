@@ -1,5 +1,8 @@
 ### SB 8.3.11
 
+> सत्त्वेन प्रतिलभ्याय नैष्कर्म्येण विपश्चिता
+> नमः कैवल्यनाथाय निर्वाणसुखसंविदे ॥११॥
+
 > sattvena pratilabhyāya
 > naiṣkarmyeṇa vipaścitā
 > namaḥ kaivalya-nāthāya

@@ -1,5 +1,8 @@
 ### CC Madhya 6.75
 
+> নিরন্তর ইঁহাকে বেদান্ত শুনাইব ।
+> বৈরাগ্য-অদ্বৈত-মার্গে প্রবেশ করাইব ॥৭৫॥
+
 > nirantara iṅhāke vedānta śunāiba
 > vairāgya-advaita-mārge praveśa karāiba
 

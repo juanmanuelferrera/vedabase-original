@@ -3,6 +3,9 @@
 > sannyāsa karilā śikhā-sūtra-tyāga-rūpa
 > yoga-paṭṭa nā nila, nāma haila 'svarūpa'
 
+> sannyāsa karilā śikhā-sūtra-tyāga-rūpa
+> yoga-paṭṭa nā nila, nāma haila 'svarūpa'
+
 *sannyāsa karilā*—aceptó la orden de sannyāsa; *śikhā*—mechón de cabello; *sūtra*—cordón sagrado; *tyāga*—renunciando; *rūpa*—en la forma de; *yoga-paṭṭa*—vestidura de color azafrán; *nā nila*—no aceptó; *nāma*—nombre; *haila*—fue; *svarūpa*—Svarūpa.
 
 **Al aceptar el sannyāsa, Puruṣottama Ācārya siguió los principios regulativos abandonando su mechón de cabello y su cordón sagrado, pero no aceptó las ropas de color azafrán. Tampoco aceptó un título de sannyāsī, sino que permaneció como naiṣṭhika-brahmacārī.**

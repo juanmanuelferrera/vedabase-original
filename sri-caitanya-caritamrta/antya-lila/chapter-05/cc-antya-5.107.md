@@ -1,5 +1,8 @@
 ### CC Antya 5.107
 
+> গ্রাম্য-কবির কবিত্ব শুনিতে হয় ‘দুঃখ’ ।
+> বিদগ্ধ-আত্মীয়-বাক্য শুনিতে হয় ‘সুখ’ ॥১০৭॥
+
 > grāmya-kavira kavitva śunite haya 'duḥkha'
 > vidagdha-ātmīya-vākya śunite haya 'sukha'
 

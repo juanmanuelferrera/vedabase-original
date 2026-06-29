@@ -1,5 +1,8 @@
 ### CC Antya 17.11
 
+> তিনদ্বারে কপাট ঐছে আছে ত’ লাগিয়া ।
+> ভাবাবেশে প্রভু গেলা বাহির হঞা ॥১১॥
+
 > tina-dvāre kapāṭa aiche āche ta' lāgiyā
 > bhāvāveśe prabhu gelā bāhira hañā
 

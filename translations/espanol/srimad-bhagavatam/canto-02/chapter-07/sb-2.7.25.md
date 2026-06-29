@@ -1,5 +1,10 @@
 ### SB 2.7.25
 
+> वक्षःस्थलस्पर्शरुग्नमहेन्द्रवाह
+> दन्तैर्विडम्बितककुब्जुष ऊढहासम् ।
+> सद्योऽसुभिः सह विनेष्यति दारहर्तुर्
+> विस्फूर्जितैर्धनुष उच्चरतोऽधिसैन्ये ॥२५॥
+
 > vakṣaḥ-sthala-sparśa-rugna-mahendra-vāha-
 > dantair viḍambita-kakubjuṣa ūḍha-hāsam
 > sadyo 'subhiḥ saha vineṣyati dāra-hartur

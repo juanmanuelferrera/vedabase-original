@@ -1,5 +1,8 @@
 ### CC Madhya 13.126
 
+> অবশেষে রাধা কৃষ্ণে করে নিবেদন  ।
+> সেই তুমি, সেই আমি, সেই নব সঙ্গম ॥১২৬॥
+
 > aveśeṣe rādhā kṛṣṇe kare nivedana
 > sei tumi, sei āmi, sei nava saṅgama
 

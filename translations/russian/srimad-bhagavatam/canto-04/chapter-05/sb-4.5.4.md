@@ -1,5 +1,8 @@
 ### SB 4.5.4
 
+> तं किं करोमीति गृणन्तमाह बद्धाञ्जलिं भगवान्भूतनाथः ।
+> दक्षं सयज्ञं जहि मद्भटानां त्वमग्रणी रुद्र भटांशको मे ॥४॥
+
 > taṁ kiṁ karomīti gṛṇantam āha
 > baddhāñjaliṁ bhagavān bhūta-nāthaḥ
 > dakṣaṁ sa-yajñaṁ jahi mad-bhaṭānāṁ

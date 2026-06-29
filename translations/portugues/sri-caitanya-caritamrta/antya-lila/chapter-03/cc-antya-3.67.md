@@ -1,5 +1,8 @@
 ### CC Antya 3.67
 
+> “পৃথিবীতে বহুজীব — স্থাবর-জঙ্গম  ।
+> ইহা-সবার কি প্রকারে হইবে মোচন ?” ৬৭ ॥৬৭॥
+
 "pṛthivīte bahu-jīva--sthāvara-jaṅgama
 
 ihā-sabāra ki prakāre ha-ibe mocana?"

@@ -1,5 +1,8 @@
 ### CC Antya 16.104
 
+> সন্ধ্যা-কৃত্য করি’ পুনঃ নিজগণ-সঙ্গে ।
+> নিভৃতে বসিলা নানা-কৃষ্ণকথা-রঙ্গে ॥১০৪॥
+
 sandhyā-kṛtya kari' punaḥ nija-gaṇa-saṅge
 
 nibhṛte vasilā nānā-kṛṣṇa-kathā-raṅge

@@ -1,5 +1,8 @@
 ### CC Adi 9.51
 
+> এই মালাকার খায় এই প্রেমফল ।
+> নিরবধি মত্ত রহে, বিবশ-বিহ্বল ॥৫১॥
+
 > ei mālākāra khāya ei prema-phala
 > niravadhi matta rahe, vivaśa-vihvala
 

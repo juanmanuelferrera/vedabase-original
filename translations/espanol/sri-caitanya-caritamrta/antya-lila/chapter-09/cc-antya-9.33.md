@@ -1,5 +1,8 @@
 ### CC Antya 9.33
 
+> যেই চতুর, সেই করুক রাজ-বিষয় ।
+> রাজ-দ্রব্য শোধি’ পায়, তার করুক ব্যয় ।।” ॥ ৩৩ ॥
+
 > yei catura, sei kuruka rāja-viṣaya
 > rāja-dravya śodhi' pāya, tāra karuka vyaya"
 

@@ -1,5 +1,8 @@
 ### CC Madhya 7.87
 
+> শুনি’ শুনি’ লোক-সব আসি’ বহির্দ্বারে ।
+> ‘হরি’ ‘হরি’ বলি’ লোক কোলাহল করে ॥৮৭॥
+
 > śuni' śuni' loka-saba āsi' bahir-dvāre
 > 'hari' 'hari' bali' loka kolāhala kare
 

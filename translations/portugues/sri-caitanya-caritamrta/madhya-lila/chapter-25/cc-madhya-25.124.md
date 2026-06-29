@@ -1,5 +1,8 @@
 ### CC Madhya 25.124
 
+> আমাতে যে ‘প্রীতি’, সেই ‘প্রেম’ — ‘প্রয়োজন’ ।
+> কার্যদ্বারে কহি তার ‘স্বরূপ’-লক্ষণ ॥১২৪॥
+
 āmāte ye 'prīti', sei 'prema'-'prayojana'
 
 kārya-dvāre kahi tāra 'svarūpa'-lakṣaṇa

@@ -1,5 +1,8 @@
 ### CC Madhya 24.9
 
+> সহজে আমার কিছু অর্থ নাহি ভাসে ।
+> তোমা-সবার সঙ্গ-বলে যে কিছু প্রকাশে ॥৯॥
+
 > sahaje āmāra kichu artha nāhi bhāse
 > tomā-sabāra saṅga-bale ye kichu prakāśe
 

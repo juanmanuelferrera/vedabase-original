@@ -1,5 +1,8 @@
 ### CC Madhya 22.34
 
+> সকৃদেব প্রপন্নো যস্তবাস্মীতি চ যাচতে ।
+> অভয়ং সর্বদা তস্মৈ দদাম্যেতদ্ব্রতং মম ॥৩৪॥
+
 > sakṛd eva prapanno yas
 > tavāsmīti ca yācate
 > abhayaṁ sarvadā tasmai

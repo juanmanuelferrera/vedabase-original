@@ -1,5 +1,8 @@
 ### CC Madhya 1.55
 
+> “সেইত পরাণ-নাথ পাইনু ।
+> যাহা লাগি’ মদনদহনে ঝুরি গেনু ॥৫৫॥
+
 seita parāṇa-nātha pāinu
 
 yāhā lāgi' madana-dahane jhuri genu

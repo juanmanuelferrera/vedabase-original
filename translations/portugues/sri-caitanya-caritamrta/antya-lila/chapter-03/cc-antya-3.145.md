@@ -1,5 +1,8 @@
 ### CC Antya 3.145
 
+> মহদপরাধের ফল অদ্ভুত কথন ।
+> প্রস্তাব পাঞা কহি, শুন, ভক্তগণ ॥১৪৫॥
+
 mahad-aparādhera phala adbhuta kathana
 
 prastāva pāñā kahi, śuna, bhakta-gaṇa

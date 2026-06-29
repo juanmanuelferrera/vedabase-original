@@ -1,5 +1,8 @@
 ### CC Madhya 11.222
 
+> অশ্রু, পুলক, কম্প, স্বেদ, গম্ভীর হুঙ্কার ৷
+> প্রেমের বিকার দেখি’ লোকে চমত্কার ৷৷ ২২২ ৷৷ ॥২২২॥
+
 aśru, pulaka, kampa, sveda, gambhīra huṅkāra
 premera vikāra dekhi' loke camatkāra
 

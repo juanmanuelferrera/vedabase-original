@@ -1,5 +1,8 @@
 ### CC Madhya 7.55
 
+> প্রভুর আগ্রহে ভট্টাচার্য সম্মত হইলা ।
+> প্রভু তাঁরে লঞা জগন্নাথ-মন্দিরে গেলা ॥৫৫॥
+
 > prabhura āgrahe bhaṭṭācārya sammata ha-ilā
 > prabhu tāṅre lañā jagannātha-mandire gelā
 

@@ -1,5 +1,8 @@
 ### CC Adi 1.82
 
+> ভক্ত আদি ক্রমে কৈল সভার বন্দন ।
+> এ-সভার বন্দন সর্বশুভের কারণ ॥৮২॥
+
 > bhakta ādi krame kaila sabhāra vandana
 > e-sabhāra vandana sarva-śubhera kāraṇa
 

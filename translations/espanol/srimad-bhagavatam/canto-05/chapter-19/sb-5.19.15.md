@@ -1,5 +1,8 @@
 ### SB 5.19.15
 
+> तन्नः प्रभो त्वं कुकलेवरार्पितां त्वन्माययाहंममतामधोक्षज
+> भिन्द्याम येनाशु वयं सुदुर्भिदां विधेहि योगं त्वयि नः स्वभावमिति ॥१५॥
+
 > tan naḥ prabho tvaṁ kukalevarārpitāṁ
 > tvan-māyayāhaṁ-mamatām adhokṣaja
 > bhindyāma yenāśu vayaṁ sudurbhidāṁ

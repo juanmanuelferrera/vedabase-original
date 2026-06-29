@@ -1,5 +1,8 @@
 ### CC Adi 12.72
 
+> কি পণ্ডিত, কি তপস্বী, কিবা গৃহী, যতি ।
+> চৈতন্য-বিমুখ যেই, তার এই গতি ॥৭২॥
+
 > ki paṇḍita, ki tapasvī, kibā gṛhī, yati
 > caitanya-vimukha yei, tāra ei gati
 

@@ -1,5 +1,8 @@
 ### CC Madhya 18.3
 
+> এইমত মহাপ্রভু নাচিতে নাচিতে ।
+> ‘আরিট্’-গ্রামে আসি’ ‘বাহ্য’ হৈল আচম্বিতে ॥৩॥
+
 ei-mata mahāprabhu nācite nācite
 'āriṭ'-grāme āsi' 'bāhya' haila ācambite
 

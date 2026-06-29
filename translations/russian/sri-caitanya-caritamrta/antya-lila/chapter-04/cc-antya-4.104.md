@@ -1,5 +1,8 @@
 ### CC Antya 4.104
 
+> এইমত দুইজন নানা-কথা-রঙ্গে ।
+> কৃষ্ণকথা আস্বাদয় রহি’ একসঙ্গে ॥১০৪॥
+
 > ei-mata dui-jana nānā-kathā-raṅge
 > kṛṣṇa-kathā āsvādaya rahi' eka-saṅge
 

@@ -1,5 +1,8 @@
 ### CC Antya 11.52
 
+> হরিদাসের গুণে সবার বিস্মিত হয় মন ।
+> সর্বভক্ত বন্দে হরিদাসের চরণ ॥৫২॥
+
 haridāsera guṇe sabāra vismita haya mana
 
 sarva-bhakta vande haridāsera caraṇa

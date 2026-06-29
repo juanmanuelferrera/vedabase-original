@@ -1,5 +1,8 @@
 ### CC Madhya 11.82
 
+> রাজা কহে, — যাঁরে মালা দিল দুইজন ।
+> আশ্চর্য তেজ, বড় মহান্ত, — কহ কোন্ জন ? ৮২ ॥ ॥৮২॥
+
 > rājā kahe,-yāṅre mālā dila dui-jana
 > āścarya teja, baḍa mahānta,-kaha kon jana?
 

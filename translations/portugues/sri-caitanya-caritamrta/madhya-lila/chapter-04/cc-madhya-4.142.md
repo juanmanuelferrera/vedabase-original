@@ -1,5 +1,8 @@
 ### CC Madhya 4.142
 
+> সেই ভয়ে রাত্রি-শেষে চলিলা শ্রীপুরী ।
+> সেইখানে গোপীনাথে দণ্ডবত্ করি’ ॥১৪২॥
+
 sei bhaye rātri-śeṣe calilā śrī-purī
 
 sei-khāne gopīnāthe daṇḍavat kari'

@@ -1,5 +1,8 @@
 ### CC Madhya 9.147
 
+> ‘স্বয়ং ভগবান্ ‘কৃষ্ণ’ হরে লক্ষ্মীর মন ।
+> গোপিকার মন হরিতে নারে ‘নারায়ণ’ ॥১৪৭॥
+
 > svayaṁ bhagavān 'kṛṣṇa' hare lakṣmīra mana
 > gopikāra mana harite nāre 'nārāyaṇa'
 

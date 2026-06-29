@@ -1,5 +1,8 @@
 ### Bg 9.28
 
+> शुभाशुभफलैरेवं मोक्ष्यसे कर्मबन्धनैः ।
+> संन्यासयोगयुक्तात्मा विमुक्तो मामुपैष्यसि ॥२८॥
+
 > śubhāśubha-phalair evaṁ
 > mokṣyase karma-bandhanaiḥ
 > sannyāsa-yoga-yuktātmā

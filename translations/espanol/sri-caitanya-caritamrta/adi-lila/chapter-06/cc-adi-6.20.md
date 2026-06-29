@@ -1,5 +1,8 @@
 ### CC Adi 6.20
 
+> অদ্বৈতরূপে করে শক্তি-সঞ্চারণ ।
+> অতএব অদ্বৈত হয়েন মুখ্য কারণ ॥২০॥
+
 > advaita-rūpe kare śakti-sañcāraṇa
 > ataeva advaita hayena mukhya kāraṇa
 

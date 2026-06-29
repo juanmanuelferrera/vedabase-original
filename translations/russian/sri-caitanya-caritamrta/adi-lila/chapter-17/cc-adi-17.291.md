@@ -1,5 +1,8 @@
 ### CC Adi 17.291
 
+> লুকাইলা দুই ভুজ রাধার অগ্রেতে ।
+> বহু যত্ন কৈলা কৃষ্ণ, নারিল রাখিতে ॥২৯১॥
+
 > lukāilā dui bhuja rādhāra agrete
 > bahu yatna kailā kṛṣṇa, nārila rākhite
 

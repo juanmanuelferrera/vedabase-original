@@ -1,5 +1,8 @@
 ### CC Madhya 9.79
 
+> পাপনাশনে বিষ্ণু কৈল দরশন ৷
+> শ্রীরঙ্গক্ষেত্রে তবে করিলা গমন ৷৷ ৭৯ ৷৷ ॥৭৯॥
+
 pāpa-nāśane viṣṇu kaila daraśana
 
 śrī-raṅga-kṣetre tabe karilā gamana

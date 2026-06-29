@@ -1,5 +1,8 @@
 ### CC Madhya 20.89
 
+> প্রভু কহে, — ‘তোমার ভোটকম্বল কোথা গেল ?’
+> প্রভুপদে সব কথা গোসাঞি কহিল ॥৮৯॥
+
 > prabhu kahe,—'tomāra bhoṭa-kambala kothā gela?'
 > prabhu-pade saba kathā gosāñi kahila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 16.70
 
+> প্রভু কহে, — “বৈষ্ণব-সেবা, নাম-সংকীর্তন ।
+> দুই কর, শীঘ্র পাবে শ্রীকৃষ্ণ-চরণ ।।” ॥ ৭০ ॥
+
 prabhu kahe,--"vaiṣṇava-sevā, nāma-saṅkīrtana
 
 dui kara, śīghra pābe śrī-kṛṣṇa-caraṇa"

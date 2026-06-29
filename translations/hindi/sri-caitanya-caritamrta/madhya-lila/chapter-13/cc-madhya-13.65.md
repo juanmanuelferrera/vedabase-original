@@ -1,5 +1,8 @@
 ### CC Madhya 13.65
 
+> লীলাবেশে প্ৰভুর নাহি নিজানুসন্ধান ।
+> ইচ্ছা জানি ‘লীলা শক্তি’ করে সমাধান ॥৬৫॥
+
 > līlāveśe prabhura nāhi nijānusandhāna
 > icchā jāni 'līlā śakti' kare samādhāna
 

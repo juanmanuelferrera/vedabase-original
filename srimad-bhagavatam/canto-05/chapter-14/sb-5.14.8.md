@@ -1,5 +1,7 @@
 ### SB 5.14.8
 
+> अथ कदाचिन्निवासपानीयद्रविणाद्यनेकात्मोपजीवनाभिनिवेश एतस्यां संसाराटव्यामितस्ततःपरिधावति ॥८॥
+
 > atha kadācin nivāsa-pānīya-draviṇādy-anekātmopajīvanābhiniveśa etasyāṁ saṁsārāṭavyām itas tataḥ paridhāvati.
 
 *atha*—in this way; *kadācit*—sometimes; *nivāsa*—residence; *pānīya*—water; *draviṇa*—wealth; *ādi*—and so on; *aneka*—in various items; *ātma-upajīvana*—which are considered necessary to maintain body and soul together; *abhiniveśaḥ*—a person fully absorbed; *etasyām*—in this; *saṁsāra-aṭavyām*—the material world, which is like a great forest; *itaḥ tataḥ*—here and there; *paridhāvati*—runs around.

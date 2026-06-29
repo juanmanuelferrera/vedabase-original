@@ -1,5 +1,8 @@
 ### CC Madhya 24.160
 
+> যদা হি নেন্দ্রিয়ার্থেষু ন কর্মস্বনুষজ্জতে ।
+> সর্বসংকল্পসন্ন্যাসী যোগারূঢ়স্তদোচ্যতে ॥১৬০॥
+
 > yadā hi nendriyārtheṣu
 > na karmasv anuṣajjate
 > sarva-saṅkalpa-sannyāsī

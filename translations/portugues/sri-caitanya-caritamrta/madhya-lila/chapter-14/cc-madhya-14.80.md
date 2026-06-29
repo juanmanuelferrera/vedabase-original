@@ -1,5 +1,8 @@
 ### CC Madhya 14.80
 
+> বিদ্যানিধির জলকেলি স্বরূপের সনে ।
+> গুপ্ত-দত্তে জলকেলি করে দুইজনে ॥৮০॥
+
 vidyānidhira jala-keli svarūpera sane
 
 gupta-datte jala-keli kare dui jane

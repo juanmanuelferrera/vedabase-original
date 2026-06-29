@@ -1,5 +1,8 @@
 ### CC Antya 3.232
 
+> হেনকালে এক নারী অঙ্গনে আইল ।
+> তাঁর অঙ্গকান্ত্যে স্থান পীতবর্ণ হইল ॥২৩২॥
+
 > hena-kāle eka nārī aṅgane āila
 > tāṅra aṅga-kāntye sthāna pīta-varṇa ha-ila
 

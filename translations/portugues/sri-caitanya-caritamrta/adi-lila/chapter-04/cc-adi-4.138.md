@@ -1,5 +1,8 @@
 ### CC Adi 4.138
 
+> অদ্ভুত, অনন্ত, পূর্ণ মোর মধুরিমা ।
+> ত্রিজগতে ইহার কেহ নাহি পায় সীমা ॥১৩৮॥
+
 adbhuta, ananta, pūrṇa mora madhurimā
 tri-jagate ihāra keha nāhi pāya sīmā
 

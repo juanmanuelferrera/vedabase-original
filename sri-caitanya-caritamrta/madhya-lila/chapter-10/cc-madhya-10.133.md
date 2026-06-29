@@ -1,5 +1,8 @@
 ### CC Madhya 10.133
 
+> সিদ্ধিপ্রাপ্তিকালে গোসাঞি আজ্ঞা কৈল মোরে ।
+> কৃষ্ণচৈতন্য-নিকটে রহি সেবিহ তাঁহারে ॥১৩৩॥
+
 > siddha-prāpti-kāle gosāñi ājñā kaila more
 > kṛṣṇa-caitanya-nikaṭe rahi seviha tāṅhāre
 

@@ -1,5 +1,8 @@
 ### CC Antya 16.33
 
+> ঝড়ু-ঠাকুর ঘর যাই’ দেখি’ আম্রফল ।
+> মানসেই কৃষ্ণচন্দ্রে অর্পিলা সকল ॥৩৩॥
+
 > jhaḍu-ṭhākura ghara yāi' dekhi' āmra-phala
 > mānasei kṛṣṇa-candre arpilā sakala
 

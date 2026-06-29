@@ -1,5 +1,8 @@
 ### CC Adi 10.74
 
+> শ্রীচৈতন্যের অতি প্রিয় বুদ্ধিমন্ত খান্ ।
+> আজন্ম আজ্ঞাকারী তেঁহো সেবক-প্রধান ॥৭৪॥
+
 śrī-caitanyera ati priya buddhimanta khān
 ājanma ājñākārī teṅho sevaka-pradhāna
 

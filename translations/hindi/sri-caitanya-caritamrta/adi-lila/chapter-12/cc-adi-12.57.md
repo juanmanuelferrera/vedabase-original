@@ -1,5 +1,8 @@
 ### CC Adi 12.57
 
+> বাসুদেব দত্তের তেঁহো কৃপার ভাজন ।
+> সর্বভাবে আশ্রিয়াছে চৈতন্য-চরণ ॥৫৭॥
+
 > vāsudeva dattera teṅho kṛpāra bhājana
 > sarva-bhāve āśriyāche caitanya-caraṇa
 

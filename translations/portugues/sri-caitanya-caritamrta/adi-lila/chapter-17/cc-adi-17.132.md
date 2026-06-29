@@ -1,5 +1,8 @@
 ### CC Adi 17.132
 
+> তা-সভার অন্তরে ভয় প্রভু মনে জানি ।
+> কহিতে লাগিলা লোকে শীঘ্র ডাকি’ আনি’ ॥১৩২॥
+
 tā-sabhāra antare bhaya prabhu mane jāni
 
 kahite lāgilā loke śīghra ḍāki' āni'

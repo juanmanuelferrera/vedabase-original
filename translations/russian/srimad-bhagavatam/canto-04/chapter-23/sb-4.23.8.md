@@ -1,5 +1,8 @@
 ### SB 4.23.8
 
+> तेन क्रमानुसिद्धेन ध्वस्तकर्ममलाशयः ।
+> प्राणायामैः सन्निरुद्ध षड्वर्गश्छिन्नबन्धनः ॥८॥
+
 > tena kramānusiddhena
 > dhvasta-karma-malāśayaḥ
 > prāṇāyāmaiḥ sanniruddha-

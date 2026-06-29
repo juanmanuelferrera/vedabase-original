@@ -1,5 +1,7 @@
 ### SB 5.20.34
 
+> ततः परस्ताल्लोकालोकनामाचलो लोकालोकयोरन्तराले परित उपक्षिप्तः ॥३४॥
+
 > tataḥ parastāl lokāloka-nāmācalo lokālokayor antarāle parita upakṣiptaḥ.
 
 *tataḥ*—de ese océano de agua potable; *parastāt*—más allá; *lokāloka-nāma*—llamada Lokāloka; *acalaḥ*—una montaña; *loka-alokayoḥ antarāle*—entre los países llenos de luz solar y los que no la reciben; *paritaḥ*—alrededor; *upakṣiptaḥ*—existe.

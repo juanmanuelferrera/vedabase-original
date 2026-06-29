@@ -1,5 +1,8 @@
 ### CC Adi 4.178
 
+> যে যথা মাং প্রপদ্যন্তে তাংস্তথৈব ভজাম্যহম্ ।
+> মম বর্ত্মানুবর্তন্তে মনুষ্যাঃ পার্থ সর্বশঃ ॥১৭৮॥
+
 > ye yathā māṁ prapadyante
 > tāṁs tathaiva bhajāmy aham
 > mama vartmānuvartante

@@ -1,5 +1,8 @@
 ### SB 8.24.51
 
+> जनो जनस्यादिशतेऽसतीं गतिं यया प्रपद्येत दुरत्ययं तमः
+> त्वं त्वव्ययं ज्ञआनममोघमञ्जसा प्रपद्यते येन जनो निजं पदम ॥५१॥
+
 > jano janasyādiśate 'satīṁ gatiṁ
 > yayā prapadyeta duratyayaṁ tamaḥ
 > tvaṁ tv avyayaṁ jñānam amogham añjasā

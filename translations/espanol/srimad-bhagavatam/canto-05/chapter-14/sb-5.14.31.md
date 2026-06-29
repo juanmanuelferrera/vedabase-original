@@ -1,5 +1,7 @@
 ### SB 5.14.31
 
+> तत्रापि निरवरोधः स्वैरेण विहरन्नतिकृपणबुद्धिरन्योन्यमुखनिरीक्षणादिना ग्राम्यकर्मणैव विस्मृतकालावधिः ॥३१॥
+
 > tatrāpi niravarodhaḥ svaireṇa viharann ati-kṛpaṇa-buddhir anyonya-mukha-nirīkṣaṇādinā grāmya-karmaṇaiva vismṛta-kālāvadhiḥ.
 
 *tatra api*—en esa condición (en la sociedad de seres humanos descendientes de monos); *niravarodhaḥ*—sin dudar; *svaireṇa*—independientemente, sin tener en cuenta el objetivo de la vida; *viharan*—disfrutar como monos; *ati-kṛpaṇa-buddhiḥ*—cuya inteligencia es torpe debido a que no utilizan correctamente sus facultades; *anyonya*—unos a otros; *mukha-nirīkṣaṇa-ādinā*—por mirarse el rostro (cuando un hombre ve la hermosa cara de una mujer, y ella ve la fuerte constitución del cuerpo del hombre, siempre se desean); *grāmya-karmaṇā*—por actividades materiales de complacencia de los sentidos; *eva*—solamente; *vismṛta*—olvidada; *kāla-avadhiḥ*—la limitada duración de la vida (tras la cual la evolución puede degradarnos o elevarnos).

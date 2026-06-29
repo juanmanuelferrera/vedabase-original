@@ -1,5 +1,8 @@
 ### CC Madhya 19.235
 
+> এই ভক্তিরসের করিলাঙ, দিগ্দরশন ।
+> ইহার বিস্তার মনে করিহ ভাবন ॥২৩৫॥
+
 > ei bhakti-rasera karilāṅa, dig-daraśana
 > ihāra vistāra mane kariha bhāvana
 

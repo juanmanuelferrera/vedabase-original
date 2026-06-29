@@ -1,5 +1,10 @@
 ### CC Madhya 21.107
 
+> চড়ি’ গোপী-মনোরথে, মন্মথের মন মথে,
+> নাম ধরে ‘মদনমোহন’ ।
+> জিনি’ পঞ্চশর-দর্প, স্বয়ং নবকন্দর্প,
+> রাস করে লঞা গোপীগণ ॥১০৭॥
+
 caḍi' gopī-manorathe, manmathera mana mathe,
 
 nāma dhare 'madana-mohana'

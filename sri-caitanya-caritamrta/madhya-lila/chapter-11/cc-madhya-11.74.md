@@ -1,5 +1,8 @@
 ### CC Madhya 11.74
 
+> দামোদর-স্বরূপ, গোবিন্দ, — দুই জন ।
+> মালা-প্রসাদ লঞা যায়, যাহাঁ বৈষ্ণবগণ ॥৭৪॥
+
 > dāmodara-svarūpa, govinda,-dui jana
 > mālā-prasāda lañā yāya, yāhāṅ vaiṣṇava-gaṇa
 

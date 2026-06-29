@@ -1,5 +1,8 @@
 ### CC Madhya 9.331
 
+> রাজা মোরে আজ্ঞা দিল নীলাচলে যাইতে ।
+> চলিবার উদ্যোগ আমি লাগিয়াছি করিতে ॥৩৩১॥
+
 > rājā more ājñā dila nīlācale yāite
 > calibāra udyoga āmi lāgiyāchi karite
 

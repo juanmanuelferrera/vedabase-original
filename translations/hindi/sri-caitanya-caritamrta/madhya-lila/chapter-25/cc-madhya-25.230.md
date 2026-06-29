@@ -1,5 +1,8 @@
 ### CC Madhya 25.230
 
+> আর সব ভক্ত প্রভুর চরণে পড়িলা  ।
+> সবা আলিঙ্গিয়া প্রভু প্রেমাবিষ্ট হৈলা ॥২৩০॥
+
 > āra saba bhakta prabhura caraṇe paḍilā
 > sabā āliṅgiyā prabhu premāviṣṭa hailā
 

@@ -1,5 +1,8 @@
 ### SB 3.22.12
 
+> उद्यतस्य हि कामस्य प्रतिवादो न शस्यते ।
+> अपि निर्मुक्तसङ्गस्य कामरक्तस्य किं पुनः ॥१२॥
+
 > udyatasya hi kāmasya
 > prativādo na śasyate
 > api nirmukta-saṅgasya

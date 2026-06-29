@@ -1,5 +1,8 @@
 ### CC Madhya 11.81
 
+> প্রভুর সেবা করিতে পুরী আজ্ঞা দিল ।
+> অতএব প্রভু ইঁহাকে নিকটে রাখিল ॥৮১॥
+
 > prabhura sevā karite purī ājñā dila
 > ataeva prabhu iṅhāke nikaṭe rākhila
 

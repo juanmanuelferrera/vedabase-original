@@ -1,5 +1,7 @@
 ### SB 3.5.31
 
+> तैजसानीन्द्रियाण्येव ज्ञानकर्ममयानि च् ॥३१॥
+
 taijasānīndriyāṇy eva
 
 *jñāna*-karma-mayāni ca

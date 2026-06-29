@@ -1,5 +1,8 @@
 ### SB 9.9.47
 
+> अथेशमायारचितेषु सङ्गं गुणेषु गन्धर्वपुरोपमेषु
+> रूढं प्रकृत्यात्मनि विश्वकर्तुर्भावेन हित्वा तमहं प्रपद्ये ॥४७॥
+
 > atheśa-māyā-raciteṣu saṅgaṁ
 > guṇeṣu gandharva-puropameṣu
 > rūḍhaṁ prakṛtyātmani viśva-kartur

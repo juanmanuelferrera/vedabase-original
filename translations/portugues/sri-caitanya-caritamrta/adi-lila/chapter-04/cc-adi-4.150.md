@@ -1,5 +1,8 @@
 ### CC Adi 4.150
 
+> অতৃপ্ত হইয়া করে বিধির নিন্দন ।
+> অবিদগ্ধ বিধি ভাল না জানে সৃজন ॥১৫০॥
+
 atṛpta ha-iyā kare vidhira nindana
 avidagdha vidhi bhāla nā jāne sṛjana
 

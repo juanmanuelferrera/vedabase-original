@@ -1,5 +1,8 @@
 ### SB 4.10.29
 
+> ध्रुवे प्रयुक्तामसुरैस्तां मायामतिदुस्तराम् ।
+> निशम्य तस्य मुनयः शमाशंसन्समागताः ॥२९॥
+
 > dhruve prayuktām asurais
 > tāṁ māyām atidustarām
 > niśamya tasya munayaḥ

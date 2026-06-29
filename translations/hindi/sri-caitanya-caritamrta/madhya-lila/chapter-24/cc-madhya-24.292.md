@@ -1,5 +1,8 @@
 ### CC Madhya 24.292
 
+> রাগমার্গে ঐছে ভক্তে ষোড়শ বিভেদ ।
+> দুই মার্গে আত্মারামের বত্রিশ বিভেদ ॥২৯২॥
+
 > rāga-mārge aiche bhakte ṣoḍaśa vibheda
 > dui mārge ātmārāmera batriśa vibheda
 

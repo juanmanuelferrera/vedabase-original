@@ -1,5 +1,8 @@
 ### CC Antya 8.89
 
+> ভোজ্যান্ন বিপ্র যদি নিমন্ত্রণ করে ।
+> কিছু ‘প্রসাদ’ আনে, কিছু পাক করে ঘরে ॥৮৯॥
+
 bhojyānna vipra yadi nimantraṇa kare
 
 kichu 'prasāda' āne, kichu pāka kare ghare

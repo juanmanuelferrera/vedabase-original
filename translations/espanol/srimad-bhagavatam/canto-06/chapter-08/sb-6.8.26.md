@@ -1,5 +1,8 @@
 ### SB 6.8.26
 
+> त्वं तिग्मधारासिवरारिसैन्यमीशप्रयुक्तो मम छिन्धि छिन्धि
+> चक्षूंषि चर्मन्छतचन्द्र छादय द्विषामघोनां हर पापचक्षुषाम ॥२६॥
+
 > tvaṁ tigma-dhārāsi-varāri-sainyam
 > īśa-prayukto mama chindhi chindhi
 > cakṣūṁṣi carmañ chata-candra chādaya

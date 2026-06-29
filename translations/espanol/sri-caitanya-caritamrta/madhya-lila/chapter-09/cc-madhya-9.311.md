@@ -1,5 +1,8 @@
 ### CC Madhya 9.311
 
+> ধনুস্তীর্থ দেখি’ করিলা নির্বিন্ধ্যাতে স্নানে ৷
+> ঋষ্যমূক-গিরি আইলা দণ্ডকারণ্যে ৷৷ ৩১১ ৷৷ ॥৩১১॥
+
 > dhanus-tīrtha dekhi' karilā nirvindhyāte snāne
 > ṛṣyamūka-giri āilā daṇḍakāraṇye
 

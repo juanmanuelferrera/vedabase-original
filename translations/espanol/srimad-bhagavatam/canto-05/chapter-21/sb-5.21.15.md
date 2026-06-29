@@ -1,5 +1,7 @@
 ### SB 5.21.15
 
+> रथनीडस्तु षट्त्रिंशल्लक्षयोजनायतस्तत्तुरीयभागविशालस्तावान्रविरथयुगो यत्रहयाश्छन्दोनामानः सप्तारुणयोजिता वहन्ति देवमादित्यम ॥१५॥
+
 > ratha-nīḍas tu ṣaṭ-triṁśal-lakṣa-yojanāyatas tat-turīya-bhāga-viśālas tāvān ravi-ratha-yugo yatra hayāś chando-nāmānaḥ saptāruṇa-yojitā vahanti devam ādityam.
 
 *ratha-nīḍaḥ*—el interior de la cuadriga; *tu*—pero; *ṣaṭ-triṁśat-lakṣa-yojana-āyataḥ*—** 3 600 000 *yojanas* de longitud; *tat-turīya-bhāga*—la cuarta parte de esa medida (900 000 *yojanas*); *viśālaḥ*—con una anchura; *tāvān*—tanta; *ravi-ratha-yugaḥ*—el yugo para los caballos; *yatra*—donde; *hayāḥ*—caballos; *chandaḥ-nāmānaḥ*—con los nombres de los distintos metros de los himnos védicos; *sapta*—siete; *aruṇa-yojitāḥ*—uncidos por Aruṇadeva; *vahanti*—lleva; *devam*—al semidiós; *ādityam*—el dios del Sol.

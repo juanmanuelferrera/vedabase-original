@@ -1,5 +1,8 @@
 ### CC Antya 3.33
 
+> কৃষ্ণে ভোগ লাগাঞা যবে কৈলা ধ্যান  ।
+> আমার স্ফূর্তি হৈল, অশ্রু ভরিল নয়ন ॥৩৩॥
+
 kṛṣṇe bhoga lāgāñā yabe kailā dhyāna
 
 āmāra sphūrti haila, aśru bharila nayana

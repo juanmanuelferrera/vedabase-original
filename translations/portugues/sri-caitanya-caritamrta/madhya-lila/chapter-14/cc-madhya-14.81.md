@@ -1,5 +1,8 @@
 ### CC Madhya 14.81
 
+> শ্রীবাস সহিত জল খেলে গদাধর ।
+> রাঘব-পণ্ডিত সনে খেলে বক্রেশ্বর ॥৮১॥
+
 śrīvāsa-sahita jala khele gadādhara
 
 rāghava-paṇḍita sane khele vakreśvara

@@ -1,5 +1,8 @@
 ### CC Antya 5.102
 
+> ‘যদ্বা-তদ্বা’ কবির বাক্যে হয় ‘রসাভাস’ ।
+> সিদ্ধান্তবিরুদ্ধ শুনিতে না হয় উল্লাস ॥১০২॥
+
 > 'yadvā-tadvā' kavira vākye haya 'rasābhāsa'
 > siddhānta-viruddha śunite nā haya ullāsa
 

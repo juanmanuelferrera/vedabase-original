@@ -1,5 +1,8 @@
 ### CC Madhya 13.64
 
+> কভু এক মূর্তি, কভু হন বহু-মূর্তি ।
+> কার্য-অনুরূপ প্রভু প্রকাশয়ে শক্তি ॥৬৪॥
+
 kabhu eka mūrti, kabhu hana bahu-mūrti
 
 kārya-anurūpa prabhu prakāśaye śakti

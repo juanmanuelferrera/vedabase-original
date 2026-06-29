@@ -1,5 +1,7 @@
 ### SB 5.17.12
 
+> एषु पुरुषाणामयुतपुरुषायुर्वर्षाणां देवकल्पानां नागायुतप्राणानां वज्रसंहननबलवयोमोदप्रमुदितमहासौरतमिथुनव्यवायापवर्गवर्षधृतैकगर्भकलत्राणां तत्र तु त्रेतायुगसमः कालो वर्तते ॥१२॥
+
 > eṣu puruṣāṇām ayuta-puruṣāyur-varṣāṇāṁ deva-kalpānāṁ nāgāyuta-prāṇānāṁ vajra-saṁhanana-bala-vayo-moda-pramudita-mahā-saurata-mithuna-vyavāyāpavarga-varṣa-dhṛtaika-garbha-kalatrāṇāṁ tatra tu tretā-yuga-samaḥ kālo vartate.
 
 *eṣu*—in these (eight) *varṣas,* or tracts of land; *puruṣāṇām*—of all the men; *ayuta*—ten thousand; *puruṣa*—by the measure of men; *āyuḥ-varṣāṇām*—of those whose years of life; *deva-kalpānām*—who are like the demigods; *nāga-ayuta-prāṇānām*—having the strength of ten thousand elephants; *vajra-saṁhanana*—by bodies as solid as thunderbolts; *bala*—by bodily strength; *vayaḥ*—by youth; *moda*—by abundant sense enjoyment; *pramudita*—being excited; *mahā-saurata*—a great deal of sexual; *mithuna*—combinations of man and woman; *vyavāya-apavarga*—at the end of their period of sexual enjoyment; *varṣa*—in the last year; *dhṛta-eka-garbha*—who conceive one child; *kalatrāṇām*—of those who have wives; *tatra*—there; *tu*—but; *tretā-yuga-samaḥ*—exactly like the Tretā-yuga (when there is no tribulation); *kālaḥ*—time; *vartate*—exists.

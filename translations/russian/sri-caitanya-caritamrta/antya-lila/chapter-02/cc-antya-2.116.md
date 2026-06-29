@@ -1,5 +1,7 @@
 ### CC Antya 2.116
 
+> “কোন্ অপরাধ, প্রভু, কৈল হরিদাস ? কি লাগিয়া দ্বার-মানা, করে উপবাস ?” ১১৬ ॥১১৬॥
+
 > "kon aparādha, prabhu, kaila haridāsa?
 > ki lāgiyā dvāra-mānā, kare upavāsa?"
 

@@ -1,5 +1,8 @@
 ### SB 9.1.20
 
+> एतत्सङ्कल्पवैषम्यं होतुस्ते व्यभिचारतः
+> तथापि साधयिष्ये ते सुप्रजास्त्वं स्वतेजसा ॥२०॥
+
 > etat saṅkalpa-vaiṣamyaṁ
 > hotus te vyabhicārataḥ
 > tathāpi sādhayiṣye te

@@ -1,5 +1,8 @@
 ### CC Madhya 8.268
 
+> পহিলে দেখিলুঁ তোমার সন্ন্যাসি-স্বরূপ ।
+> এবে তোমা দেখি মুঞি শ্যাম-গোপরূপ ॥২৬৮॥
+
 > pahile dekhiluṅ tomāra sannyāsi-svarūpa
 > ebe tomā dekhi muñi śyāma-gopa-rūpa
 

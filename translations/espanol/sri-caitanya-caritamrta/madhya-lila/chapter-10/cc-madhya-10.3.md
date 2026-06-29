@@ -1,5 +1,8 @@
 ### CC Madhya 10.3
 
+> পূর্বে যবে মহাপ্রভু চলিলা দক্ষিণে ৷
+> প্রতাপরুদ্র রাজা তবে বোলাইল সার্বভৌমে ৷৷ ৩ ৷৷ ॥৩॥
+
 > pūrve yabe mahāprabhu calilā dakṣiṇe
 > pratāparudra rājā tabe bolāila sārvabhaume
 

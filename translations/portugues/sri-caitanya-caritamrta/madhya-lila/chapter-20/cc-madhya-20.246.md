@@ -1,5 +1,8 @@
 ### CC Madhya 20.246
 
+> গুণাবতার, আর মন্বন্তরাবতার  ।
+> যুগাবতার, আর শক্ত্যাবেশাবতার ॥২৪৬॥
+
 guṇāvatāra, āra manvantarāvatāra
 
 yugāvatāra, āra śaktyāveśāvatāra

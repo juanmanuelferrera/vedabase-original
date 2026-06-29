@@ -1,5 +1,10 @@
 ### CC Madhya 21.144
 
+> কাণের ভিতর বাসা করে, আপনে তাঁহা সদা স্ফুরে,
+> অন্য শব্দ না দেয় প্রবেশিতে ।
+> আন কথা না শুনে কাণ, আন বলিতে বোলয় আন,
+> এই কৃষ্ণের বংশীর চরিতে ॥১৪৪॥
+
 > kāṇera bhitara vāsā kare, āpane tāṅhā sadā sphure,
 > anya śabda nā deya praveśite
 > āna kathā nā śune kāṇa, āna balite bolaya āna,

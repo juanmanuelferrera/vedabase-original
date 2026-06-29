@@ -1,5 +1,8 @@
 ### CC Madhya 10.136
 
+> এত শুনি’ সার্বভৌম প্রভুরে পুছিল ।
+> পুরী-গোসাঞি শূদ্র-সেবক কাঁহে ত’ রাখিল ॥১৩৬॥
+
 > eta śuni' sārvabhauma prabhure puchila
 > purī-gosāñi śūdra-sevaka kāṅhe ta' rākhila
 

@@ -1,5 +1,8 @@
 ### CC Adi 17.329
 
+> পঞ্চপ্রবন্ধে পঞ্চরসের চরিত ।
+> সংক্ষেপে কহিলুঁ অতি, — না কৈলুঁ বিস্তৃত ॥৩২৯॥
+
 > pañca-prabandhe pañca-rasera carita
 > saṅkṣepe kahiluṅ ati,—nā kailuṅ vistṛta
 

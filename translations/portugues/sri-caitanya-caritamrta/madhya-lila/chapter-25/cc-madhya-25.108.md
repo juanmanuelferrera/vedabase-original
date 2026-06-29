@@ -1,5 +1,8 @@
 ### CC Madhya 25.108
 
+> আমার কৃপায় এই সব স্ফুরুক তোমারে ।”
+> এত বলি’ তিন তত্ত্ব কহিলা তাঁহারে ॥১০৮॥
+
 āmāra kṛpāya ei saba sphuruka tomāre"
 
 eta bali' tina tattva kahilā tāṅhāre

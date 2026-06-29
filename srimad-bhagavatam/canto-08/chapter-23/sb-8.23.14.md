@@ -1,5 +1,8 @@
 ### SB 8.23.14
 
+> ब्रह्मन्सन्तनु शिष्यस्य कर्मच्छिद्रं वितन्वतः
+> यत्तत्कर्मसु वैषम्यं ब्रह्मदृष्टं समं भवेत ॥१४॥
+
 > brahman santanu śiṣyasya
 > karma-cchidraṁ vitanvataḥ
 > yat tat karmasu vaiṣamyaṁ

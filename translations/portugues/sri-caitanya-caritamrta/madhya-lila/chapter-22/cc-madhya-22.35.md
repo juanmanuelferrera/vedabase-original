@@ -1,5 +1,8 @@
 ### CC Madhya 22.35
 
+> ভুক্তি-মুক্তি-সিদ্ধিকামী ‘সুবুদ্ধি’ যদি হয় ।
+> গাঢ়-ভক্তিযোগে তবে কৃষ্ণেরে ভজয় ॥৩৫॥
+
 bhukti-mukti-siddhi-kāmī 'subuddhi' yadi haya
 gāḍha-bhakti-yoge tabe kṛṣṇere bhajaya
 

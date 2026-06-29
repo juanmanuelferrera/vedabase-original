@@ -1,5 +1,8 @@
 ### SB 9.4.45
 
+> यो मामतिथिमायातमातिथ्येन निमन्त्र्य च
+> अदत्त्वा भुक्तवांस्तस्य सद्यस्ते दर्शये फलम ॥४५॥
+
 > yo mām atithim āyātam
 > ātithyena nimantrya ca
 > adattvā bhuktavāṁs tasya

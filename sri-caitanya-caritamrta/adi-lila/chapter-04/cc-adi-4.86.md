@@ -1,5 +1,8 @@
 ### CC Adi 4.86
 
+> কিম্বা, প্রেমরসময় কৃষ্ণের স্বরূপ ।
+> তাঁর শক্তি তাঁর সহ হয় একরূপ ॥৮৬॥
+
 > kimvā, prema-rasa-maya kṛṣṇera svarūpa
 > tāṅra śakti tāṅra saha haya eka-rūpa
 

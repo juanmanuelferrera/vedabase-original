@@ -1,5 +1,7 @@
 ### SB 5.26.10
 
+> यस्त्विह वा एतदहमिति ममेदमिति भूतद्रोहेण केवलं स्वकुटुम्बमेवानुदिनंप्रपुष्णाति स तदिह विहाय स्वयमेव तदशुभेन रौरवे निपतति ॥९॥
+
 > yas tv iha vā etad aham iti mamedam iti bhūta-droheṇa kevalaṁ sva-kuṭumbam evānudinaṁ prapuṣṇāti sa tad iha vihāya svayam eva tad-aśubhena raurave nipatati.
 
 *yaḥ*—one who; *tu*—but; *iha*—in this life; *vā*—or; *etat*—this body; *aham*—I; *iti*—thus; *mama*—mine; *idam*—this; *iti*—thus; *bhūta-droheṇa*—by envy of other living entities; *kevalam*—alone; *sva-kuṭumbam*—his family members; *eva*—only; *anudinam*—day to day; *prapuṣṇāti*—supports; *saḥ*—such a person; *tat*—that; *iha*—here; *vihāya*—giving up; *svayam*—personally; *eva*—certainly; *tat*—of that; *aśubhena*—by the sin; *raurave*—in Raurava; *nipatati*—he falls down.

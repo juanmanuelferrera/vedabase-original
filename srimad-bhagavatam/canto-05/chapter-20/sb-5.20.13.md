@@ -1,5 +1,7 @@
 ### SB 5.20.13
 
+> एवं सुरोदाद्बहिस्तद्द्विगुणः समानेनावृतो घृतोदेन यथापूर्वः कुशद्वीपो यस्मिन्कुशस्तम्बो देवकृतस्तद्द्वीपाख्याकरो ज्वलन इवापरः स्वशष्परोचिषा दिशो विराजयति ॥१३॥
+
 > evaṁ surodād bahis tad-dvi-guṇaḥ samānenāvṛto ghṛtodena yathā-pūrvaḥ kuśa-dvīpo yasmin kuśa-stambo deva-kṛtas tad-dvīpākhyākaro jvalana ivāparaḥ sva-śaṣpa-rociṣā diśo virājayati.
 
 *evam*—thus; *surodāt*—from the ocean of liquor; *bahiḥ*—outside; *tat-dvi-guṇaḥ*—twice that; *samānena*—equal in width; *āvṛtaḥ*—surrounded; *ghṛta-udena*—an ocean of clarified butter; *yathā-pūrvaḥ*—as previously with Sālmalīdvīpa; *kuśa-dvīpa*—the island called Kuśadvīpa; *yasmin*—in which; *kuśa-stambaḥ*—*kuśa* grass; *deva-kṛtaḥ*—created by the supreme will of the Supreme Personality of Godhead; *tat-dvīpa-ākhyā-karaḥ*—giving the island its name; *jvalanaḥ*—fire; *iva*—like; *aparaḥ*—another; *sva-śaṣpa-rociṣā*—by the effulgence of the young sprouting grass; *diśaḥ*—all directions; *virājayati*—illuminates.

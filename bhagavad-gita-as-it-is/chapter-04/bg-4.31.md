@@ -1,5 +1,7 @@
 ### Bg 4.31
 
+> नायं लोकोऽस्त्ययज्ञस्य कुतोऽन्यः कुरुसत्तम ॥३१॥
+
 > nāyaṁ loko 'sty ayajñasya
 > kuto 'nyaḥ kuru-sattama
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.208
 
+> পীত-সুগন্ধি-ঘৃতে অন্ন সিক্ত কৈল ৷
+> চারিদিকে পাতে ঘৃত বহিয়া চলিল ॥২০৮॥
+
 > pīta-sugandhi-ghṛte anna sikta kaila
 > cāri-dike pāte ghṛta vahiyā calila
 

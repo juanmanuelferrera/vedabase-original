@@ -1,5 +1,8 @@
 ### CC Antya 20.130
 
+> মহাপ্রসাদের তাহাঁ মহিমা বর্ণিলা ।
+> কৃষ্ণাধরামৃতের ফল-শ্লোক আস্বাদিলা ॥১৩০॥
+
 > mahā-prasādera tāhāṅ mahimā varṇilā
 > kṛṣṇādharāmṛtera phala-śloka āsvādilā
 

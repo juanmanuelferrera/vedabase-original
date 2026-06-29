@@ -1,5 +1,8 @@
 ### CC Antya 6.162
 
+> অদ্বৈত-আচার্যের তেঁহ ‘শিষ্য অন্তরঙ্গ’ ।
+> আচার্য-আজ্ঞাতে মানে — চৈতন্য ‘প্রাণধন’ ॥১৬২॥
+
 > advaita-ācāryera teṅha 'śiṣya antaraṅga'
 > ācārya-ājñāte māne--caitanya 'prāṇa-dhana'
 

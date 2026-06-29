@@ -1,5 +1,8 @@
 ### CC Madhya 24.40
 
+> শাস্ত্রযুক্তি নাহি ইহাঁ সিদ্ধান্ত-বিচার ।
+> এই স্বভাব-গুণে, যাতে মাধুর্যের সার ॥৪০॥
+
 > śāstra-yukti nāhi ihāṅ siddhānta-vicāra
 > ei svabhāva-guṇe, yāte mādhuryera sāra
 

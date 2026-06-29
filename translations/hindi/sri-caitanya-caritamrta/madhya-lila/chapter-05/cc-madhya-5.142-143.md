@@ -1,5 +1,10 @@
 ### CC Madhya 5.142-143
 
+> কপোতেশ্বর দেখিতে গেলা ভক্তগণ সঙ্গে ।
+> এথা নিত্যানন্দপ্রভু কৈল দণ্ড-ভঙ্গে ॥১৪২॥
+> তিন খণ্ড করি’ দণ্ড দিল ভাসাঞা ।
+> ভক্ত-সঙ্গে আইলা প্রভু মহেশ দেখিঞা ॥১৪৩॥
+
 > kapoteśvara dekhite gelā bhakta-gaṇa saṅge
 > ethā nityānanda-prabhu kaila daṇḍa-bhaṅge
 > tina khaṇḍa kari' daṇḍa dila bhāsāñā

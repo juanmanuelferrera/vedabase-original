@@ -1,5 +1,8 @@
 ### SB 3.29.35
 
+> भक्तियोगश्च योगश्च मया मानव्युदीरितः ।
+> ययोरेकतरेणैव पुरुषः पुरुषं व्रजेत् ॥३५॥
+
 > bhakti-yogaś ca yogaś ca
 > mayā mānavy udīritaḥ
 > yayor ekatareṇaiva

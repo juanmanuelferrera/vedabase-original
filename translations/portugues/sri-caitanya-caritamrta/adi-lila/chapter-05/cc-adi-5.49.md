@@ -1,5 +1,8 @@
 ### CC Adi 5.49
 
+> অষ্টম শ্লোকের কৈল সংক্ষেপে বিবরণ ।
+> নবম শ্লোকের অর্থ শুন দিয়া মন ॥৪৯॥
+
 aṣṭama ślokera kaila saṅkṣepe vivaraṇa
 
 navama ślokera artha śuna diyā mana

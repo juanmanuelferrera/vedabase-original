@@ -1,5 +1,8 @@
 ### CC Madhya 5.59
 
+> ‘তীর্থযাত্রায় পিতার সঙ্গে ছিল বহু ধন ।
+> ধন দেখি এই দুষ্টের লৈতে হৈল মন ॥৫৯॥
+
 'tīrtha-yātrāya pitāra saṅge chila bahu dhana
 
 dhana dekhi ei duṣṭera laite haila mana

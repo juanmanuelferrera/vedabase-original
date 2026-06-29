@@ -1,5 +1,8 @@
 ### CC Madhya 19.77
 
+> সগণে প্রভুরে ভট্ট নৌকাতে চড়াঞা ।
+> ভিক্ষা দিতে নিজ-ঘরে চলিলা লঞা ॥৭৭॥
+
 sagaṇe prabhure bhaṭṭa naukāte caḍāñā
 
 bhikṣā dite nija-ghare calilā lañā

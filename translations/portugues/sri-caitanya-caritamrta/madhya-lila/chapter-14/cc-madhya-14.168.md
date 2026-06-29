@@ -1,5 +1,8 @@
 ### CC Madhya 14.168
 
+> ‘কিলকিঞ্চিত’, ‘কুট্টমিত’,‘বিলাস’,‘ললিত’ ।
+> ‘বিব্বোক’, ‘মোট্টায়িত’, আর ‘মৌগ্ধ্য’, ‘চকিত’ ॥১৬৮॥
+
 'kila-kiñcita', 'kuṭṭamita', 'vilāsa', 'lalita'
 
 'vivvoka', 'moṭṭāyita', āra 'maugdhya', 'cakita'

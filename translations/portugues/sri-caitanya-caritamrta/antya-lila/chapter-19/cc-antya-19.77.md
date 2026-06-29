@@ -1,5 +1,8 @@
 ### CC Antya 19.77
 
+> এইমত মহাপ্রভু রাত্রি-দিবসে ।
+> প্রেমসিন্ধু-মগ্ন রহে, কভু ডুবে, ভাসে ॥৭৭॥
+
 ei-mata mahāprabhu rātri-divase
 
 prema-sindhu-magna rahe, kabhu ḍube, bhāse

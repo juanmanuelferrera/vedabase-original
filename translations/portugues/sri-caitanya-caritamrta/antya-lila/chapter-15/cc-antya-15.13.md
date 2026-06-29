@@ -1,5 +1,8 @@
 ### CC Antya 15.13
 
+> সেই শ্লোক পড়ি’ আপনে করে মনস্তাপ ।
+> শ্লোকের অর্থ শুনায় দুঁহারে করিয়া বিলাপ ॥১৩॥
+
 sei śloka paḍi' āpane kare manastāpa
 ślokera artha śunāya duṅhāre kariyā vilāpa
 

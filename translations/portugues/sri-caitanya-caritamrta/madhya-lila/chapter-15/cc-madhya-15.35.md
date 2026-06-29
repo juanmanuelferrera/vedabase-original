@@ -1,5 +1,8 @@
 ### CC Madhya 15.35
 
+> গোসাঞির আবেশ দেখি’ লোকে চমত্কার ।
+> সর্বলোক ‘জয়’ ‘জয়’ বলে বার বার ॥৩৫॥
+
 gosāñira āveśa dekhi' loke camatkāra
 
 sarva-loka jaya' jaya' bale bāra bāra

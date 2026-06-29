@@ -1,5 +1,8 @@
 ### SB 1.19.29
 
+> स विष्णुरातोऽतिथय आगताय तस्मै सपर्यां शिरसाजहार ।
+> ततो निवृत्ता ह्यबुधाः स्त्रियोऽर्भका महासने सोपविवेश पूजितः ॥२९॥
+
 > sa viṣṇu-rāto 'tithaya āgatāya
 > tasmai saparyāṁ śirasājahāra
 > tato nivṛttā hy abudhāḥ striyo 'rbhakā

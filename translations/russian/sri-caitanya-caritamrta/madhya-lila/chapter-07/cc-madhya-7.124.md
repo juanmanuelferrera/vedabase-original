@@ -1,5 +1,8 @@
 ### CC Madhya 7.124
 
+> ‘যেই পাদপদ্ম তোমার ব্রহ্মা ধ্যান করে ।
+> সেই পাদপদ্ম সাক্ষাৎ আইল মোর ঘরে ॥১২৪॥
+
 > 'yei pāda-padma tomāra brahmā dhyāna kare
 > sei pāda-padma sākṣāt āila mora ghare
 

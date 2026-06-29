@@ -1,5 +1,8 @@
 ### CC Madhya 9.204
 
+> সীতা লঞা রাখিলেন পার্বতীর স্থানে ।
+> ‘মায়াসীতা’ দিয়া অগ্নি বঞ্চিলা রাবণে ॥২০৪॥
+
 > sītā lañā rākhilena pārvatīra sthāne
 > 'māyā-sītā' diyā agni vañcilā rāvaṇe
 

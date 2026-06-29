@@ -1,5 +1,8 @@
 ### CC Madhya 20.36
 
+> তারে বিদায় দিয়া গোসাঞি চলিলা একলা ।
+> হাতে করোঁয়া, ছিঁড়া কান্থা, নির্ভয় হইলা ॥৩৬॥
+
 > tāre vidāya diyā gosāñi calilā ekalā
 > hāte karoṅyā, chiṅḍā kānthā, nirbhaya ha-ilā
 

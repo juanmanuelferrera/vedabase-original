@@ -1,5 +1,8 @@
 ### CC Madhya 20.193
 
+> তাঁহা হৈতে পুনঃ চতুর্ব্যূহ-পরকাশ ।
+> আবরণরূপে চারিদিকে যাঁর বাস ॥১৯৩॥
+
 tāṅhā haite punaḥ catur-vyūha-parakāśa
 
 āvaraṇa-rūpe cāri-dike yāṅra vāsa

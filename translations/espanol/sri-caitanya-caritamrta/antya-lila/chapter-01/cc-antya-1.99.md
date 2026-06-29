@@ -1,5 +1,10 @@
 ### CC Antya 1.99
 
+> তুণ্ডে তাণ্ডবিনী রতিং বিতনুতে তুণ্ডাবলীলব্ধয়ে
+> কর্ণক্রোড়কড়ম্বিনী ঘটয়তে কর্ণার্বুদেভ্যঃ স্পৃহাম্ ।
+> চেতঃপ্রাঙ্গণসঙ্গিনী বিজয়তে সর্বেন্দ্রিয়াণাং কৃতিং
+> নো জানে জনিতা কিয়দ্ভিরমৃতৈঃ কৃষ্ণেতি বর্ণদ্বয়ী ॥৯৯॥
+
 > tuṇḍe tāṇḍavinī ratiṁ vitanute tuṇḍāvalī-labdhaye
 > karṇa-kroḍa-kaḍambinī ghaṭayate karṇārbudebhyaḥ spṛhām
 > cetaḥ-prāṅgaṇa-saṅginī vijayate sarvendriyāṇāṁ kṛtiṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 4.31
 
+> গোদোহন করিতে চাহি, শীঘ্র আমি যাব ।
+> আরবার আসি আমি এই ভাণ্ড লইব ॥৩১॥
+
 > go-dohana karite cāhi, śīghra āmi yāba
 > āra-bāra āsi āmi ei bhāṇḍa la-iba
 

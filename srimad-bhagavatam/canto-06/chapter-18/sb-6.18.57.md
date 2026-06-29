@@ -1,5 +1,8 @@
 ### SB 6.18.57
 
+> नित्यं वनात्सुमनसः फलमूलसमित्कुशान
+> पत्राङ्कुरमृदोऽपश्च काले काल उपाहरत ॥५७॥
+
 > nityaṁ vanāt sumanasaḥ
 > phala-mūla-samit-kuśān
 > patrāṅkura-mṛdo 'paś ca

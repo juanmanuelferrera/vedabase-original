@@ -1,5 +1,8 @@
 ### CC Adi 17.302
 
+> তিহঁ শ্যাম, — বংশীমুখ, গোপবিলাসী ।
+> ইহঁ গৌর — কভু দ্বিজ, কভু ত’ সন্ন্যাসী ॥৩০২॥
+
 > tihaṅ śyāma,—vaṁśī-mukha, gopa-vilāsī
 > ihaṅ gaura—kabhu dvija, kabhu ta' sannyāsī
 

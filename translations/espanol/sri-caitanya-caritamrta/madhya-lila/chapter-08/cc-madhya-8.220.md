@@ -1,5 +1,8 @@
 ### CC Madhya 8.220
 
+> সেই গোপীভাবামৃতে যাঁর লোভ হয় ৷
+> বেদধর্মলোক ত্যজি’ সে কৃষ্ণে ভজয় ৷৷ ২২০ ৷৷ ॥২২০॥
+
 > sei gopī-bhāvāmṛte yāṅra lobha haya
 > veda-dharma-loka tyaji' se kṛṣṇe bhajaya
 

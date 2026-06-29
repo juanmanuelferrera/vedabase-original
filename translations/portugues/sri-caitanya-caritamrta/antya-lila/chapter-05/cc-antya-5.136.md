@@ -1,5 +1,8 @@
 ### CC Antya 5.136
 
+> যৈছে ইন্দ্র, দৈত্যাদি করে কৃষ্ণের ভর্ৎসন ।
+> সেইশব্দে সরস্বতী করেন স্তবন ॥১৩৬॥
+
 yaiche indra, daityādi kare kṛṣṇera bhartsana
 
 sei-śabde sarasvatī karena stavana

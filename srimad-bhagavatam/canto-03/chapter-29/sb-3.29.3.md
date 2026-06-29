@@ -1,5 +1,8 @@
 ### SB 3.29.3
 
+> विरागो येन पुरुषो भगवन्सर्वतो भवेत् ।
+> आचक्ष्व जीवलोकस्य विविधा मम संसृतीः ॥३॥
+
 > virāgo yena puruṣo
 > bhagavan sarvato bhavet
 > ācakṣva jīva-lokasya

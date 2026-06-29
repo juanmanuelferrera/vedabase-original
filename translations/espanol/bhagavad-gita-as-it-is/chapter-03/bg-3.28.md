@@ -1,5 +1,8 @@
 ### Bg 3.28
 
+> तत्त्ववित्तु महाबाहो गुणकर्मविभागयोः ।
+> गुणा गुणेषु वर्तन्त इति मत्वा न सज्जते ॥२८॥
+
 > tattvavit tu mahā-bāho
 > guṇa-karma-vibhāgayoḥ
 > guṇā guṇeṣu vartanta

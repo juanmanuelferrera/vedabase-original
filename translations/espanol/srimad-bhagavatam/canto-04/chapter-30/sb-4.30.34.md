@@ -1,5 +1,8 @@
 ### SB 4.30.34
 
+> तुलयाम लवेनापि न स्वर्गं नापुनर्भवम् ।
+> भगवत्सङ्गिसङ्गस्य मर्त्यानां किमुताशिषः ॥३४॥
+
 > tulayāma lavenāpi
 > na svargaṁ nāpunar-bhavam
 > bhagavat-saṅgi-saṅgasya

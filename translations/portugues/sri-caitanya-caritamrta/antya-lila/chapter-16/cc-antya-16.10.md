@@ -1,5 +1,8 @@
 ### CC Antya 16.10
 
+> ব্রাহ্মণ-বৈষ্ণব যত — ছোট, বড় হয় ।
+> উত্তম-বস্তু ভেট লঞা তাঁর ঠাঞি যায় ॥১০॥
+
 brāhmaṇa-vaiṣṇava yata--choṭa, baḍa haya
 uttama-vastu bheṭa lañā tāṅra ṭhāñi yāya
 

@@ -1,5 +1,8 @@
 ### CC Adi 17.50
 
+> এত শুনি’ মহাপ্রভুর হইল ক্রুদ্ধ মন ।
+> ক্রোধাবেশে বলে তারে তর্জন-বচন ॥৫০॥
+
 > eta śuni' mahāprabhura ha-ila kruddha mana
 > krodhāveśe bale tāre tarjana-vacana
 

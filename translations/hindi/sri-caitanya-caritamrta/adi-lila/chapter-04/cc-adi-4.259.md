@@ -1,5 +1,10 @@
 ### CC Adi 4.259
 
+> নির্ধূতামৃতমাধুরীপরিমলঃ কল্যাণি বিম্বাধরো
+> বক্ত্রং পঙ্কজসৌরভং কুহরিতশ্লাঘাভিদস্তে গিরঃ ।
+> অঙ্গং চন্দনশীতলং তনুরিয়ং সৌন্দর্যসর্বস্বভাক্
+> ত্বামাসাদ্য মমেদমিন্দ্রিয়কুলং রাধে মুহুর্মোদতে ॥২৫৯॥
+
 > nirdhūtāmṛta-mādhurī-parimalaḥ kalyāṇi bimbādharo
 > vaktraṁ paṅkaja-saurabhaṁ kuharita-ślāghā-bhidas te giraḥ
 > aṅgaṁ candana-śītalaṁ tanur iyaṁ saundarya-sarvasva-bhāk

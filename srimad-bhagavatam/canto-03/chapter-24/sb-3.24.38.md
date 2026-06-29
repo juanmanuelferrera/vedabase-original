@@ -1,5 +1,8 @@
 ### SB 3.24.38
 
+> गच्छ कामं मयापृष्टो मयि सन्न्यस्तकर्मणा ।
+> जित्वा सुदुर्जयं मृत्युममृतत्वाय मां भज ॥३८॥
+
 > gaccha kāmaṁ mayāpṛṣṭo
 > mayi sannyasta-karmaṇā
 > jitvā sudurjayaṁ mṛtyum

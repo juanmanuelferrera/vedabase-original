@@ -1,5 +1,8 @@
 ### CC Madhya 10.97
 
+> প্রভু কহে, — তোমা-সঙ্গে রহিতে বাঞ্ছা হয় ।
+> মোরে কৃপা করি’ কর নীলাদ্রি আশ্রয় ॥৯৭॥
+
 > prabhu kahe,-tomā-saṅge rahite vāñchā haya
 > more kṛpā kari' kara nīlādri āśraya
 

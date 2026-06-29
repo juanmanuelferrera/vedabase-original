@@ -1,5 +1,8 @@
 ### CC Madhya 17.196
 
+> সুস্থ হঞা প্রভু করে অঙ্গ-কণ্ডূয়ন ।
+> প্রভু-সঙ্গে চলে, নাহি ছাড়ে ধেনুগণ ॥১৯৬॥
+
 sustha hañā prabhu kare aṅga-kaṇḍūyana
 
 prabhu-saṅge cale, nāhi chāḍe dhenu-gaṇa

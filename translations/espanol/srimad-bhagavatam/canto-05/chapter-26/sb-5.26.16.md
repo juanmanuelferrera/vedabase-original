@@ -1,5 +1,7 @@
 ### SB 5.26.16
 
+> यस्त्विह वै राजा राजपुरुषो वा अदण्ड्ये दण्डं प्रणयति ब्राह्मणे वा शरीरदण्डं सपापीयान्नरकेऽमुत्र सूकरमुखे निपतति तत्रातिबलैर्विनिष्पिष्यमाणावयवो यथैवेहेक्षुखण्ड आर्तस्वरेण स्वनयन्क्वचिन्मूर्च्छितः कश्मलमुपगतो यथैवेहादृष्टदोषा उपरुद्धाः ॥१५॥
+
 > yas tv iha vai rājā rāja-puruṣo vā adaṇḍye daṇḍaṁ praṇayati brāhmaṇe vā śarīra-daṇḍaṁ sa pāpīyān narake 'mutra sūkaramukhe nipatati tatrātibalair viniṣpiṣyamāṇāvayavo yathaivehekṣukhaṇḍa ārta-svareṇa svanayan kvacin mūrcchitaḥ kaśmalam upagato yathaivehā-dṛṣṭa-doṣā uparuddhāḥ.
 
 *yaḥ*—todo el que; *tu*—pero; *iha*—en esta vida; *vai*—en verdad; *rājā*—un rey; *rāja-puruṣaḥ*—un representante del rey; *vā*—o; *adaṇḍye*—a quien no se debe castigar; *daṇḍam*—castigo; *praṇayati*—impone; *brāhmaṇe*—a un *brāhmaṇa*; *vā*—o; *śarīra-daṇḍam*—castigo corporal; *saḥ*—esa persona, rey o funcionario del gobierno; *pāpīyān*—la muy pecaminosa; *narake*—al infierno; *amutra*—en la siguiente vida; *sūkaramukhe*—llamado Sūkaramukha; *nipatati*—cae; *tatra*—allí; *ati-balaiḥ*—por los muy fuertes sirvientes de Yamarāja; *viniṣpiṣyamāṇa*—aplastadas; *avayavaḥ*—las diversas partes de cuyo cuerpo; *yathā*—como; *eva*—ciertamente; *iha*—aquí; *ikṣu-khaṇḍaḥ*—caña de azúcar; *ārta-svareṇa*—con un sonido lastimero; *svanayan*—llorar; *kvacit*—a veces; *mūrcchitaḥ*—desmayado; *kaśmalam upagataḥ*—confundido; *yathā*—tal como; *eva*—en verdad; *iha*—aquí; *adṛṣṭa-doṣāḥ*—que no tiene culpa; *uparuddhāḥ*—arrestado para recibir un castigo.

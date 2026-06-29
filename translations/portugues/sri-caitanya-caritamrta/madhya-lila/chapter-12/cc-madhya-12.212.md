@@ -1,5 +1,8 @@
 ### CC Madhya 12.212
 
+> প্রফুল্ল-কমল জিনি’নয়ন-যুগল ।
+> নীলমণি-দর্পণ-কান্তি গণ্ড ঝলমল ॥২১২॥
+
 praphulla-kamala jini' nayana-yugala
 
 nīlamaṇi-darpaṇa-kānti gaṇḍa jhalamala

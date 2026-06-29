@@ -1,5 +1,10 @@
 ### CC Adi 4.152
 
+> অটতি যদ্ভবানহ্নি কাননং,
+> ত্রুটির্যুগায়তে ত্বামপশ্যতাম্ ।
+> কুটিলকুন্তলং শ্রীমুখঞ্চ তে,
+> জড় উদীক্ষতাং পক্ষ্মকৃদ্দৃশাম্ ॥১৫২॥
+
 > aṭati yad bhavān ahni kānanaṁ
 > truṭir yugāyate tvām apaśyatām
 > kuṭila-kuntalaṁ śrī-mukhaṁ ca te

@@ -1,5 +1,8 @@
 ### CC Madhya 7.108
 
+> এইমত কৈলা যাবৎ গেলা সেতুবন্ধে ।
+> সর্বদেশ ‘বৈষ্ণব’ হৈল প্ৰভুর সম্বন্ধে ॥১০৮॥
+
 > ei-mata kailā yāvat gelā setubandhe
 > sarva-deśa 'vaiṣṇava' haila prabhura sambandhe
 

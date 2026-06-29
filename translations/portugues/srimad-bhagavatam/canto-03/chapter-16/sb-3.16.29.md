@@ -1,5 +1,8 @@
 ### SB 3.16.29
 
+> भगवाननुगावाह यातं मा भैष्टमस्तु शम् ।
+> ब्रह्मतेजः समर्थोऽपि हन्तुं नेच्छे मतं तु मे ॥२९॥
+
 bhagavān anugāv āha
 yātaṁ mā bhaiṣṭam astu śam
 *brahma*-tejaḥ samartho 'pi

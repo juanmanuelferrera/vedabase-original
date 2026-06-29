@@ -1,5 +1,8 @@
 ### CC Madhya 4.106
 
+> গোপাল কহে, পুরী আমার তাপ নাহি যায় ।
+> মলয়জ-চন্দন লেপ’, তবে সে জুড়ায় ॥১০৬॥
+
 gopāla kahe, purī āmāra tāpa nāhi yāya
 malayaja-candana lepa', tabe se juḍāya
 

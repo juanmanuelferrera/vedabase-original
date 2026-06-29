@@ -1,5 +1,8 @@
 ### CC Madhya 25.29
 
+> হরের্নাম-শ্লোকের যেই করিলা ব্যাখ্যান ।
+> সেই সত্য সুখদার্থ পরম প্রমাণ ॥২৯॥
+
 > harer nāma-ślokera yei karilā vyākhyāna
 > sei satya sukhadārtha parama pramāṇa
 > SYNONYMS

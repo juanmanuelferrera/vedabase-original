@@ -1,5 +1,7 @@
 ### SB 5.10.4
 
+> न वयं नरदेव प्रमत्ता भवन्नियमानुपथाः साध्वेव वहामः अयमधुनैव नियुक्तोऽपि न द्रुतं व्रजति नानेन सह वोढुमु ह वयं पारयाम इति ॥४॥
+
 > na vayaṁ nara-deva pramattā bhavan-niyamānupathāḥ sādhv eva vahāmaḥ. ayam adhunaiva niyukto 'pi na drutaṁ vrajati nānena saha voḍhum u ha vayaṁ pārayāma iti.
 
 *na*—not; *vayam*—we; *nara-deva*—O lord among human beings (the king is supposed to be the representative of *deva,* the Supreme Personality of Godhead); *pramattāḥ*—neglectful in our duties; *bhavat-niyama-anupathāḥ*—who are always obedient to your order; *sādhu*—properly; *eva*—certainly; *vahāmaḥ*—we are carrying; *ayam*—this man; *adhunā*—just recently; *eva*—indeed; *niyuktaḥ*—being engaged to work with us; *api*—although; *na*—not; *drutam*—very quickly; *vrajati*—works; *na*—not; *anena*—him; *saha*—with; *voḍhum*—to carry; *u ha*—oh; *vayam*—we; *pārayāmaḥ*—are able; *iti*—thus.

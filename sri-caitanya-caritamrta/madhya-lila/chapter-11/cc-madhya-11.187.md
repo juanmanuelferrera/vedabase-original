@@ -1,5 +1,8 @@
 ### CC Madhya 11.187
 
+> দুইজনে প্রেমাবেশে করেন ক্রন্দনে ।
+> প্রভু-গুণে ভৃত্য বিকল, প্রভু ভৃত্য-গুণে ॥১৮৭॥
+
 > dui-jane premāveśe karena krandane
 > prabhu-guṇe bhṛtya vikala, prabhu bhṛtya-guṇe
 

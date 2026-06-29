@@ -1,5 +1,8 @@
 ### CC Adi 13.64
 
+> গীতা-ভাগবত কহে আচার্য-গোসাঞি ।
+> জ্ঞান-কর্ম নিন্দি’ করে ভক্তির বড়াই ॥৬৪॥
+
 > gītā-bhāgavata kahe ācārya-gosāñi
 > jñāna-karma nindi' kare bhaktira baḍāi
 

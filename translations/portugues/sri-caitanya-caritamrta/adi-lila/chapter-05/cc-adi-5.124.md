@@ -1,5 +1,8 @@
 ### CC Adi 5.124
 
+> এত মূর্তিভেদ করি’ কৃষ্ণসেবা করে ।
+> কৃষ্ণের শেষতা পাঞা ‘শেষ’ নাম ধরে ॥১২৪॥
+
 eta mūrti-bheda kari' kṛṣṇa-sevā kare
 
 kṛṣṇera śeṣatā pāñā 'śeṣa' nāma dhare

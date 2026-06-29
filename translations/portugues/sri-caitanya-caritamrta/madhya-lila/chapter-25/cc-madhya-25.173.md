@@ -1,5 +1,8 @@
 ### CC Madhya 25.173
 
+> বারাণসী-গ্রামে যদি কোলাহল হৈল ৷
+> শুনি’ গ্রামী দেশী লোক আসিতে লাগিল ৷৷ ১৭৩ ৷৷ ॥১৭৩॥
+
 vārāṇasī-grāme yadi kolāhala haila
 
 śuni' grāmī deśī loka āsite lāgila

@@ -1,5 +1,8 @@
 ### CC Madhya 9.191
 
+> ঈশ্বর-প্রেয়সী সীতা — চিদানন্দমূর্তি ।
+> প্রাকৃত-ইন্দ্রিয়ের তাঁরে দেখিতে নাহি শক্তি ॥১৯১॥
+
 > īśvara-preyasī sītā—cid-ānanda-mūrti
 > prākṛta-indriyera tāṅre dekhite nāhi śakti
 

@@ -1,5 +1,8 @@
 ### SB 3.12.31
 
+> तेजीयसामपि ह्येतन्न सुश्लोक्यं जगद्गुरो ।
+> यद्वृत्तमनुतिष्ठन्वै लोकः क्षेमाय कल्पते ॥३१॥
+
 > tejīyasām api hy etan
 > na suślokyaṁ jagad-guro
 > yad-vṛttam anutiṣṭhan vai

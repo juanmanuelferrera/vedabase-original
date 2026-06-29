@@ -1,5 +1,8 @@
 ### CC Adi 17.88
 
+> এই মত বারমাস কীর্তন-অবসানে ।
+> আম্রমহোৎসব প্রভু করে দিনে দিনে ॥৮৮॥
+
 ei mata bāra-māsa kīrtana-avasāne
 
 āmra-mahotsava prabhu kare dine dine

@@ -1,5 +1,8 @@
 ### CC Adi 1.102
 
+> এই চন্দ্র সূর্য দুই পরম সদয় ।
+> জগতের ভাগ্যে গৌড়ে করিলা উদয় ॥১০২॥
+
 > ei candra sūrya dui parama sadaya
 > jagatera bhāgye gauḍe karilā udaya
 

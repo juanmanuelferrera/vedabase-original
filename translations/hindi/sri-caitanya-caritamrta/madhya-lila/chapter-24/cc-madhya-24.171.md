@@ -1,5 +1,8 @@
 ### CC Madhya 24.171
 
+> চ-শব্দ অপি-অর্থে, ‘অপি’ — অবধারণে ।
+> যত্নাগ্রহ বিনা ভক্তি না জন্মায় প্রেমে ॥১৭১॥
+
 > ca-śabda api-arthe, 'api'--avadhāraṇe
 > yatnāgraha vinā bhakti nā janmāya preme
 

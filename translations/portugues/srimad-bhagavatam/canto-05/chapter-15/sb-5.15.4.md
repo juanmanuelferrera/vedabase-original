@@ -1,5 +1,7 @@
 ### SB 5.15.4
 
+> य आत्मविद्यामाख्याय स्वयं संशुद्धो महापुरुषमनुसस्मार ॥४॥
+
 *ya ātma*-vidyām ākhyāya svayaṁ saṁśuddho mahā-puruṣam anusasmāra.
 
 *yaḥ*—quem (o rei Pratīha); *ātma-vidyām ākhyāya*—depois de instruir muitas pessoas sobre a autorrealização; *svayam*—pessoalmente; *saṁśuddhaḥ*—sendo muito avançado e purificado na autorrealização; *mahā-puruṣam*—a Suprema Personalidade de Deus, Viṣṇu; *anusasmāra*—compreendeu perfeitamente e sempre se lembrou.

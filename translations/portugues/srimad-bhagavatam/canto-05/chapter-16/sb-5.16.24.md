@@ -1,5 +1,7 @@
 ### SB 5.16.24
 
+> एवं कुमुदनिरूढो यः शतवल्शो नाम वटस्तस्य स्कन्धेभ्यो नीचीनाः पयोदधिमधुघृतगुडान्नाद्यम्बरशय्यासनाभरणादयः सर्व एव कामदुघा नदाःकुमुदाग्रात्पतन्तस्तमुत्तरेणेलावृतमुपयोजयन्ति ॥२४॥
+
 *evaṁ kumuda*-nirūḍho yaḥ śatavalśo nāma vaṭas tasya skandhebhyo nīcīnāḥ payo-dadhi-madhu-ghṛta-guḍānnādy-ambara-śayyāsanābharaṇādayaḥ sarva eva kāma-dughā nadāḥ kumudāgrāt patantas tam uttareṇelāvṛtam upayojayanti.
 
 *evam*—assim; *kumuda-nirūḍhaḥ*—tendo crescido na Montanha Kumuda; *yaḥ*—essa; *śata-valśaḥ nāma*—a árvore chamada Śatavalśa (por ter centenas de troncos); *vaṭaḥ*—uma figueira-de-bengala; *tasya*—dela; *skandhebhyaḥ*—dos ramos grossos; *nīcīnāḥ*—correndo para baixo; *payaḥ*—leite; *dadhi*—iogurte; *madhu*—mel; *ghṛta*—manteiga clarificada; *guḍa*—melaço; *anna*—grãos alimentícios; *ādi*—e assim por diante; *ambara*—vestuário; *śayyā*—roupa de cama; *āsana*—lugares para sentar; *ābharaṇa-ādayaḥ*—transportando ornamentos e assim por diante; *sarve*—tudo; *eva*—certamente; *kāma-dughāḥ*—satisfazendo todos os desejos; *nadāḥ*—grandes rios; *kumuda-agrāt*—do alto da Montanha Kumuda; *patantaḥ*—correndo; *tam*—a essa; *uttareṇa*—no lado norte; *ilāvṛtam*—a terra conhecida como Ilāvṛta-varṣa; *upayojayanti*—dão felicidade.

@@ -1,5 +1,8 @@
 ### CC Madhya 22.87
 
+> অসৎসঙ্গত্যাগ, — এই বৈষ্ণব-আচার ।
+> ‘স্ত্রীসঙ্গী’ — এক অসাধু, ‘কৃষ্ণাভক্ত’ আর ॥৮৭॥
+
 > asat-saṅga-tyāga,--ei vaiṣṇava-ācāra
 > 'strī-saṅgī'--eka asādhu, 'kṛṣṇābhakta' āra
 

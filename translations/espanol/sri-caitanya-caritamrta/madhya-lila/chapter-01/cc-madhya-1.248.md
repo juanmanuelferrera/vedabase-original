@@ -1,5 +1,8 @@
 ### CC Madhya 1.248
 
+> মধ্যলীলার কৈলুঁ এই সূত্র-বিবরণ ।
+> অন্ত্যলীলার সূত্র এবে শুন, ভক্তগণ ॥২৪৮॥
+
 > madhya-līlāra kailuṅ ei sūtra-vivaraṇa
 > antya-līlāra sūtra ebe śuna, bhakta-gaṇa
 

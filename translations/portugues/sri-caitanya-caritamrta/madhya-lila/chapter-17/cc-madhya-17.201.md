@@ -1,5 +1,8 @@
 ### CC Madhya 17.201
 
+> ফুল-ফল ভরি’ ডাল পড়ে প্রভু-পায় ।
+> বন্ধু দেখি’ বন্ধু যেন ‘ভেট’ লঞা যায় ॥২০১॥
+
 phula-phala bhari' ḍāla paḍe prabhu-pāya
 
 bandhu dekhi' bandhu yena 'bheṭa' lañā yāya

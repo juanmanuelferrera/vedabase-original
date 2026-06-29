@@ -1,5 +1,8 @@
 ### SB 3.1.33
 
+> कच्चिच्छिवं देवकभोजपुत्र्या विष्णुप्रजाया इव देवमातुः ।
+> या वै स्वगर्भेण दधार देवं त्रयी यथा यज्ञवितानमर्थम् ॥३३॥
+
 > kaccic chivaṁ devaka-bhoja-putryā
 > viṣṇu-prajāyā iva deva-mātuḥ
 > yā vai sva-garbheṇa dadhāra devaṁ

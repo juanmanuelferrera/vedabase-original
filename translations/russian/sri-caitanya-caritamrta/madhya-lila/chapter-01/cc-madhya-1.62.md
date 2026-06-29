@@ -1,5 +1,8 @@
 ### CC Madhya 1.62
 
+> শ্লোক রাখি’ গেলা সমুদ্রস্নান করিতে ।
+> হেনকালে আইলা প্রভু তাঁহারে মিলিতে ॥৬২॥
+
 > śloka rākhi' gelā samudra-snāna karite
 > hena-kāle āilā prabhu tāṅhāre milite
 

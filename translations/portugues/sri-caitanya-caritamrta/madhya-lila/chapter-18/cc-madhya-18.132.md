@@ -1,5 +1,8 @@
 ### CC Madhya 18.132
 
+> অবসর না পায় লোক নিমন্ত্রণ দিতে ।
+> সেই বিপ্রে সাধে লোক নিমন্ত্রণ নিতে ॥১৩২॥
+
 avasara nā pāya loka nimantraṇa dite
 
 sei vipre sādhe loka nimantraṇa nite

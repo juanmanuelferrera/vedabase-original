@@ -1,5 +1,10 @@
 ### SB 3.15.47
 
+> तं त्वां विदाम भगवन्परमात्मतत्त्वं
+> सत्त्वेन सम्प्रति रतिं रचयन्तमेषाम् ।
+> यत्तेऽनुतापविदितैर्दृढभक्तियोगैर्
+> उद्ग्रन्थयो हृदि विदुर्मुनयो विरागाः ॥४७॥
+
 > taṁ tvāṁ vidāma bhagavan param ātma-tattvaṁ
 > sattvena samprati ratiṁ racayantam eṣām
 > yat te 'nutāpa-viditair dṛḍha-bhakti-yogair

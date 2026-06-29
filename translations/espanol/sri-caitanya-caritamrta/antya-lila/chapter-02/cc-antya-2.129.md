@@ -1,5 +1,8 @@
 ### CC Antya 2.129
 
+> তবে পুরী-গোসাঞি একা প্রভুস্থানে আইলা ।
+> নমস্করি’ প্রভু তাঁরে সম্ভ্রমে বসাইলা ॥১২৯॥
+
 > tabe purī-gosāñi ekā prabhu-sthāne āilā
 > namaskari' prabhu tāṅre sambhrame vasāilā
 

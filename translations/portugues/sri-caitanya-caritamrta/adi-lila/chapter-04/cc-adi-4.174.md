@@ -1,5 +1,8 @@
 ### CC Adi 4.174
 
+> আত্ম-সুখ-দুঃখে গোপীর নাহিক বিচার ।
+> কৃষ্ণসুখহেতু চেষ্টা মনোব্যবহার ॥১৭৪॥
+
 ātma-sukha-duḥkhe gopīra nāhika vicāra
 
 kṛṣṇa-sukha-hetu ceṣṭā mano-vyavahāra

@@ -1,5 +1,8 @@
 ### CC Antya 16.83
 
+> ‘তুমি মোর সখা, দেখাহ, — কাহাঁ প্রাণনাথ ?’
+> এত বলি’ জগমোহন গেলা ধরি’ তার হাত ॥৮৩॥
+
 > 'tumi mora sakhā, dekhāha--kāhāṅ prāṇa-nātha?'
 > eta bali' jagamohana gelā dhari' tāra hāta
 

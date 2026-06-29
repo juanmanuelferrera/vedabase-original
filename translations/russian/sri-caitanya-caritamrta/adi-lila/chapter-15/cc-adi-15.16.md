@@ -1,5 +1,8 @@
 ### CC Adi 15.16
 
+> একদিন নৈবেদ্য-তাম্বূল খাইয়া ।
+> ভূমিতে পড়িলা প্রভু অচেতন হঞা ॥১৬॥
+
 > eka-dina naivedya-tāmbūla khāiyā
 > bhūmite paḍilā prabhu acetana hañā
 

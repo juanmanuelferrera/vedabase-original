@@ -1,5 +1,8 @@
 ### CC Madhya 18.150
 
+> তবে সুখ হয় যবে গঙ্গাপথে যাইয়ে ।
+> এবে যদি যাই, ‘মকরে’ গঙ্গাস্নান পাইয়ে ॥১৫০॥
+
 > tabe sukha haya yabe gaṅgā-pathe yāiye
 > ebe yadi yāi, 'makare' gaṅgā-snāna pāiye
 

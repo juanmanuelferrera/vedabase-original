@@ -1,5 +1,8 @@
 ### CC Madhya 13.17
 
+> উত্তম হঞা রাজা করে তুচ্ছ সেবন ৷
+> অতএব জগন্নাথের কৃপার ভাজন ॥১৭॥
+
 uttama hañā rājā kare tuccha sevana
 
 ataeva jagannāthera kṛpāra bhājana

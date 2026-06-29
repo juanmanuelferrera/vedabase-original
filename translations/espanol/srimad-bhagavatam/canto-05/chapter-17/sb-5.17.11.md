@@ -1,5 +1,7 @@
 ### SB 5.17.11
 
+> तत्रापि भारतमेव वर्षं कर्मक्षेत्रमन्यान्यष्ट वर्षाणि स्वर्गिणां पुण्यशेषोपभोगस्थानानि भौमानि स्वर्गपदानि व्यपदिशन्ति ॥११॥
+
 > tatrāpi bhāratam eva varṣaṁ karma-kṣetram anyāny aṣṭa varṣāṇi svargiṇāṁ puṇya-śeṣopabhoga-sthānāni bhaumāni svarga-padāni vyapadiśanti.
 
 *tatra api*—de todos ellos; *bhāratam*—conocida como Bhārata-varṣa; *eva*—ciertamente; *varṣam*—la región; *karma-kṣetram*—el campo de actividades; *anyāni*—las otras; *aṣṭa varṣāṇi*—ocho regiones; *svargiṇām*—de las entidades vivientes que se han elevado a los planetas celestiales como resultado de extraordinarias actividades piadosas; *puṇya*—de los resultados de las actividades piadosas; *śeṣa*—del resto; *upabhoga-sthānāni*—los lugares para el disfrute material; *bhaumāni svarga-padāni*—como los lugares celestiales en la Tierra; *vyapadiśanti*—designan.

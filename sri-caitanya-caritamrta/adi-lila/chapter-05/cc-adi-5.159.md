@@ -1,5 +1,8 @@
 ### CC Adi 5.159
 
+> বেদগুহ্য কথা এই অযোগ্য কহিতে ।
+> তথাপি কহিয়ে তাঁর কৃপা প্রকাশিতে ॥১৫৯॥
+
 > veda-guhya kathā ei ayogya kahite
 > tathāpi kahiye tāṅra kṛpā prakāśite
 

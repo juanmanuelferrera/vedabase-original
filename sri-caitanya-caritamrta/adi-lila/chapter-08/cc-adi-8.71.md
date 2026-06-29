@@ -1,5 +1,8 @@
 ### CC Adi 8.71
 
+> আর যত বৃন্দাবনে বৈসে ভক্তগণ ।
+> শেষ-লীলা শুনিতে সবার হৈল মন ॥৭১॥
+
 > āra yata vṛndāvane baise bhakta-gaṇa
 > śeṣa-līlā śunite sabāra haila mana
 

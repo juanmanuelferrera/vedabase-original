@@ -1,5 +1,7 @@
 ### SB 5.14.25
 
+> क्वचिच्च शीतवाताद्यनेकाधिदैविकभौतिकात्मीयानां दशानां प्रतिनिवारणेऽकल्पो दुरन्तचिन्तया विषण्ण आस्ते ॥२५॥
+
 *kvacic ca śīta*-vātādy-anekādhidaivika-bhautikātmīyānāṁ daśānāṁ pratinivāraṇe 'kalpo duranta-cintayā viṣaṇṇa āste.
 
 *kvacit*—às vezes; *ca*—também; *śīta-vāta-ādi*—tais como frio e vento forte; *aneka*—várias; *adhidaivika*—criadas pelos semideuses; *bhautika*—*adhibhautika*, criadas por outros seres vivos; *ātmīyānām*—*adhyātmika*, criadas pelo corpo e pela mente; *daśānām*—de condições de miséria; *pratinivāraṇe*—em contra-atacar; *akalpaḥ*—incapaz; *duranta*—muito severas; *cintayā*—pelas ansiedades; *viṣaṇṇaḥ*—melancólica; *āste*—permanece.

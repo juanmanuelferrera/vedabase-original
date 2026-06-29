@@ -1,5 +1,8 @@
 ### SB 8.21.28
 
+> तं बद्धं वारुणैः पाशैर्भगवानाह वामनः
+> नष्टश्रियं स्थिरप्रज्ञअमुदारयशसं नृप ॥२८॥
+
 > taṁ baddhaṁ vāruṇaiḥ pāśair
 > bhagavān āha vāmanaḥ
 > naṣṭa-śriyaṁ sthira-prajñam

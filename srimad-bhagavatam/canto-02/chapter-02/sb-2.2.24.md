@@ -1,5 +1,8 @@
 ### SB 2.2.24
 
+> वैश्वानरं याति विहायसा गतः सुषुम्णया ब्रह्मपथेन शोचिषा ।
+> विधूतकल्कोऽथ हरेरुदस्तात्प्रयाति चक्रं नृप शैशुमारम् ॥२४॥
+
 > vaiśvānaraṁ yāti vihāyasā gataḥ
 > suṣumṇayā brahma-pathena śociṣā
 > vidhūta-kalko 'tha harer udastāt

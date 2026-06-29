@@ -1,5 +1,8 @@
 ### SB 9.6.17
 
+> तैस्तस्य चाभूत्प्रधनं तुमुलं लोमहर्षणम
+> यमाय भल्लैरनयद्दैत्यानभिययुर्मृधे ॥१७॥
+
 > tais tasya cābhūt pradhanaṁ
 > tumulaṁ loma-harṣaṇam
 > yamāya bhallair anayad

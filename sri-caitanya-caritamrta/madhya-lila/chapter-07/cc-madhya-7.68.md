@@ -1,5 +1,8 @@
 ### CC Madhya 7.68
 
+> অঙ্গীকার করি’ প্রভু তাঁহার বচন ।
+> তাঁরে বিদায় দিতে তাঁরে কৈল আলিঙ্গন ॥৬৮॥
+
 > aṅgīkāra kari' prabhu tāṅhāra vacana
 > tāṅre vidāya dite tāṅre kaila āliṅgana
 

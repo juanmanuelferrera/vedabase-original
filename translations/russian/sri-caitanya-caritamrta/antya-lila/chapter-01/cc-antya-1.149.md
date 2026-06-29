@@ -1,5 +1,8 @@
 ### CC Antya 1.149
 
+> রায় কহে, — “কহ সহজ-প্রেমের লক্ষণ” ।
+> রূপ-গোসাঞি কহে, “সাহজিক প্রেমধর্ম” ॥১৪৯॥
+
 > rāya kahe,—"kaha sahaja-premera lakṣaṇa"
 > rūpa-gosāñi kahe,—"sāhajika prema-dharma"
 

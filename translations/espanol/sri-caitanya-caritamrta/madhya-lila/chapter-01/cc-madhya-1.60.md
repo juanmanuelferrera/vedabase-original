@@ -1,5 +1,8 @@
 ### CC Madhya 1.60
 
+> প্রভুমুখে শ্লোক শুনি’ শ্রীরূপগোসাঞি ।
+> সেই শ্লোকের অর্থ-শ্লোক করিলা তথাই ॥৬০॥
+
 > prabhu-mukhe loka śuni' śrī-rūpa-gosāñi
 > sei ślokera artha-śloka karilā tathāi
 

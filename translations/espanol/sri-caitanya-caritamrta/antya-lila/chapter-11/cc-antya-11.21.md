@@ -1,5 +1,8 @@
 ### CC Antya 11.21
 
+> আর দিন মহাপ্রভু তাঁর ঠাঞি আইলা ।
+> সুস্থ হও, হরিদাস — বলি’ তাঁরে পুছিলা ॥২১॥
+
 > āra dina mahāprabhu tāṅra ṭhāñi āilā
 > sustha hao, haridāsa--bali' tāṅre puchilā
 

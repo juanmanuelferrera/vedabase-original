@@ -1,5 +1,8 @@
 ### CC Madhya 6.74
 
+> ভট্টাচার্য কহে, — ‘ইঁহার প্রৌঢ় যৌবন ।
+> কেমতে সন্ন্যাস-ধর্ম হইবে রক্ষণ ॥৭৪॥
+
 > bhaṭṭācārya kahe,—'iṅhāra prauḍha yauvana
 > kemate sannyāsa-dharma ha-ibe rakṣaṇa
 

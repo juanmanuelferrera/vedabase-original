@@ -1,5 +1,8 @@
 ### CC Madhya 18.140
 
+> আজি আমি আছিলাঙ উঠাইলুঁ প্রভুরে ।
+> বৃন্দাবনে ডুবেন যদি, কে উঠাবে তাঁরে ? ॥ ১৪০ ॥
+
 > āji āmi āchilāṅa uṭhāiluṅ prabhure
 > vṛndāvane ḍubena yadi, ke uṭhābe tāṅre?
 

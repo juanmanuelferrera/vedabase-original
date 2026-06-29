@@ -1,5 +1,8 @@
 ### CC Madhya 6.89
 
+> আচার্য কহে, — “বস্তু-বিষয়ে হয় বস্তু-জ্ঞান ।
+> বস্তুতত্ত্ব-জ্ঞান হয় কৃপাতে প্রমাণ ॥৮৯॥
+
 > ācārya kahe,—"vastu-viṣaye haya vastu-jñāna
 > vastu-tattva-jñāna haya kṛpāte pramāṇa
 

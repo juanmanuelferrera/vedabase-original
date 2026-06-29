@@ -1,5 +1,10 @@
 ### CC Madhya 21.131
 
+> বিপুলায়তারুণ, মদন-মদ-ঘূর্ণন,
+> মন্ত্রী যার এ দুই নয়ন ।
+> লাবণ্যকেলি-সদন, জন-নেত্র-রসায়ন,
+> সুখময় গোবিন্দ-বদন ॥১৩১॥
+
 > vipulāyatāruṇa, madana-mada-ghūrṇana,
 > mantrī yāra e dui nayana
 > lāvaṇya-keli-sadana, jana-netra-rasāyana,

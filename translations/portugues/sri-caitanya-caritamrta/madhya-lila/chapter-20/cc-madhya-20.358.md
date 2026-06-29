@@ -1,5 +1,8 @@
 ### CC Madhya 20.358
 
+> ভাগবতারম্ভে ব্যাস মঙ্গলাচরণে ।
+> ‘পরমেশ্বর’ নিরূপিল এই দুই লক্ষণে ॥৩৫৮॥
+
 bhāgavatārambhe vyāsa maṅgalācaraṇe
 
 'parameśvara' nirūpila ei dui lakṣaṇe

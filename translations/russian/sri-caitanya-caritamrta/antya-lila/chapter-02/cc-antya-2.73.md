@@ -1,5 +1,8 @@
 ### CC Antya 2.73
 
+> তবে শিবানন্দে কিছু কহে ব্রহ্মচারী ।
+> ‘সামগ্রী আন নৃসিংহ লাগি পুনঃ পাক করি’ ॥৭৩॥
+
 > tabe śivānande kichu kahe brahmacārī
 > sāmagrī āna nṛsiṁha lāgi punaḥ pāka kari'
 

@@ -1,5 +1,8 @@
 ### SB 2.4.6
 
+> भूय एव विवित्सामि भगवानात्ममायया ।
+> यथेदं सृजते विश्वं दुर्विभाव्यमधीश्वरैः ॥६॥
+
 > bhūya eva vivitsāmi
 > bhagavān ātma-māyayā
 > yathedaṁ sṛjate viśvaṁ

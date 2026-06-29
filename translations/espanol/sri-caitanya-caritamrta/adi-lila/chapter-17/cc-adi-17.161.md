@@ -1,5 +1,8 @@
 ### CC Adi 17.161
 
+> অতএব জরদ্গব মারে মুনিগণ ।
+> বেদমন্ত্রে সিদ্ধ করে তাহার জীবন ॥১৬১॥
+
 > ataeva jarad-gava māre muni-gaṇa
 > veda-mantre siddha kare tāhāra jīvana
 

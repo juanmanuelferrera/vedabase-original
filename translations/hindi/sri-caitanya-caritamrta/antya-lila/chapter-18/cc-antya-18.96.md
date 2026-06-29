@@ -1,5 +1,10 @@
 ### CC Antya 18.96
 
+> উঠিল বহু রক্তোৎপল, পৃথক্ পৃথক্ যুগল,
+> পদ্মগণের কৈল নিবারণ ।
+> ‘পদ্ম’ চাহে লুটি’ নিতে, ‘উৎপল’ চাহে রাখিতে’,
+> ‘চক্রবাক’ লাগি’ দুঁহার রণ ॥৯৬॥
+
 > uṭhila bahu raktotpala, pṛthak pṛthak yugala,
 > padma-gaṇera kaila nivāraṇa
 > 'padma' cāhe luṭi' nite, 'utpala' cāhe rākhite',

@@ -1,5 +1,8 @@
 ### CC Antya 3.178
 
+> হরিদাস কহেন, — “নামের এই দুই ফল নয় ।
+> নামের ফলে কৃষ্ণপদে প্রেম উপজয় ॥১৭৮॥
+
 haridāsa kahena,--"nāmera ei dui phala naya
 
 nāmera phale kṛṣṇa-pade prema upajaya

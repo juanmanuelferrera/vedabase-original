@@ -1,5 +1,8 @@
 ### CC Madhya 16.137
 
+> পণ্ডিতের গৌরাঙ্গ-প্রেম বুঝন না যায় ।
+> ‘প্রতিজ্ঞা’, ‘শ্রীকৃষ্ণ-সেবা’ ছাড়িল তৃণপ্রায় ॥১৩৭॥
+
 paṇḍitera gaurāṅga-prema bujhana nā yāya
 
 'pratijñā', 'śrī-kṛṣṇa-sevā' chāḍila tṛṇa-prāya

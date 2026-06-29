@@ -1,5 +1,8 @@
 ### CC Madhya 6.236
 
+> এত কহি’ মহাপ্রভু আইলা নিজ-স্থানে ।
+> সেই হৈতে ভট্টাচার্যের খণ্ডিল অভিমানে ॥২৩৬॥
+
 > eta kahi' mahāprabhu āilā nija-sthāne
 > sei haite bhaṭṭācāryera khaṇḍila abhimāne
 

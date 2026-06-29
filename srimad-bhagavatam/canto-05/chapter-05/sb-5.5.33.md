@@ -1,5 +1,7 @@
 ### SB 5.5.33
 
+> तस्य ह यः पुरीषसुरभिसौगन्ध्यवायुस्तं देशं दशयोजनं समन्तात्सुरभिं चकार ॥३३॥
+
 > tasya ha yaḥ purīṣa-surabhi-saugandhya-vāyus taṁ deśaṁ daśa-yojanaṁ samantāt surabhiṁ cakāra.
 
 *tasya*—His; *ha*—indeed; *yaḥ*—which; *purīṣa*—of the stool; *surabhi*—by the aroma; *saugandhya*—possessing a good fragrance; *vāyuḥ*—the air; *tam*—that; *deśam*—country; *daśa*—up to ten; *yojanam*—*yojanas* (one *yojana* equals eight miles); *samantāt*—all around; *surabhim*—aromatic; *cakāra*—made.

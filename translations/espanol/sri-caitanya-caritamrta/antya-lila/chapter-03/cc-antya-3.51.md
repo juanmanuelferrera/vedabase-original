@@ -1,5 +1,8 @@
 ### CC Antya 3.51
 
+> ইহা-সবার কোন্ মতে হইবে নিস্তার ?
+> তাহার হেতু না দেখিয়ে, — এ দুঃখ অপার ।।” ॥ ৫১ ॥
+
 > ihā-sabāra kon mate ha-ibe nistāra?
 > tāhāra hetu nā dekhiye,--e duḥkha apāra"
 

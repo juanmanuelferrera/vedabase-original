@@ -1,5 +1,8 @@
 ### CC Adi 5.178
 
+> ক্রুদ্ধ হৈয়া বংশী ভাঙ্গি’ চলে রামদাস ।
+> তৎকালে আমার ভ্রাতার হৈল সর্বনাশ ॥১৭৮॥
+
 kruddha haiyā vaṁśī bhāṅgi' cale rāmadāsa
 
 tat-kāle āmāra bhrātāra haila sarva-nāśa

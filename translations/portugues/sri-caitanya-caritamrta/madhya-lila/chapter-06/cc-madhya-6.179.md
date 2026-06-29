@@ -1,5 +1,8 @@
 ### CC Madhya 6.179
 
+> আর যে যে-কিছু কহে, সকলই কল্পনা ।
+> স্বতঃপ্রমাণ বেদ-বাক্যে কল্পেন লক্ষণা ॥১৭৯॥
+
 āra ye ye-kichu kahe, sakala-i kalpanā
 
 svataḥ-pramāṇa veda-vākye kalpena lakṣaṇā

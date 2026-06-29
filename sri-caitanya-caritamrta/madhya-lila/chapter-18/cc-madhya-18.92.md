@@ -1,5 +1,8 @@
 ### CC Madhya 18.92
 
+> একদিন অক্রূরেতে লোক প্রাতঃকালে ।
+> বৃন্দাবন হৈতে আইসে করি’ কোলাহলে ॥৯২॥
+
 > eka-dina akrūrete loka prātaḥ-kāle
 > vṛndāvana haite āise kari' kolāhale
 

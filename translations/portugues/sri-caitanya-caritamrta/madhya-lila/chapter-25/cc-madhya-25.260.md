@@ -1,5 +1,8 @@
 ### CC Madhya 25.260
 
+> ত্রয়োবিংশে — প্রেমভক্তিরসের কথন ।
+> চতুর্বিংশে — ‘আত্মারামাঃ’-শ্লোকার্থ বর্ণন ॥২৬০॥
+
 trayoviṁśe-prema-bhakti-rasera kathana
 
 caturviṁśe-'ātmārāmāḥ'-ślokārtha varṇana

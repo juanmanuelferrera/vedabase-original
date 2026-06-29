@@ -1,5 +1,8 @@
 ### SB 8.11.39
 
+> तां दैवीं गिरमाकर्ण्य मघवान्सुसमाहितः
+> ध्यायन्फेनमथापश्यदुपायमुभयात्मकम ॥३९॥
+
 > tāṁ daivīṁ giram ākarṇya
 > maghavān susamāhitaḥ
 > dhyāyan phenam athāpaśyad

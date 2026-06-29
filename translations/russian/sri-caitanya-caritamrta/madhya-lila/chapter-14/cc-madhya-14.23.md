@@ -1,5 +1,8 @@
 ### CC Madhya 14.23
 
+> মধ্যাহ্ন করিলা প্রভু লঞা ভক্তগণ ।
+> বাণীনাথ প্রসাদ লঞা কৈল আগমন ॥২৩॥
+
 > madhyāhna karilā prabhu lañā bhakta-gaṇa
 > vāṇīnātha prasāda lañā kaila āgamana
 

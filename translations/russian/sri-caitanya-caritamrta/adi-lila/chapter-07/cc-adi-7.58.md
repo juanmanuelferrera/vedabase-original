@@ -1,5 +1,8 @@
 ### CC Adi 7.58
 
+> আর দিনে গেলা প্রভু সে বিপ্র-ভবনে ।
+> দেখিলেন, বসিয়াছেন সন্ন্যাসীর গণে ॥৫৮॥
+
 > āra dine gelā prabhu se vipra-bhavane
 > dekhilena, vasiyāchena sannyāsīra gaṇe
 

@@ -1,5 +1,8 @@
 ### CC Madhya 8.125
 
+> সার্বভৌম-সঙ্গে মোর মন নির্মল হইল ৷
+> ‘কৃষ্ণভক্তি-তত্ত্ব কহ’, তাঁহারে পুছিল ৷৷ ১২৫ ৷৷ ॥১২৫॥
+
 > sārvabhauma-saṅge mora mana nirmala ha-ila
 > 'kṛṣṇa-bhakti-tattva kaha,' tāṅhāre puchila
 

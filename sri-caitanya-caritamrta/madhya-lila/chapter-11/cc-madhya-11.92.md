@@ -1,5 +1,8 @@
 ### CC Madhya 11.92
 
+> মুকুন্দদাস, নরহরি, শ্রীরঘুনন্দন ।
+> খণ্ডবাসী চিরঞ্জীব, আর সুলোচন ॥৯২॥
+
 > mukunda-dāsa, narahari, śrī-raghunandana
 > khaṇḍa-vāsī cirañjīva, āra sulocana
 

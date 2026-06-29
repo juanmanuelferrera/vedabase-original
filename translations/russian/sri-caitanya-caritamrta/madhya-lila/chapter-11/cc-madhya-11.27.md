@@ -1,5 +1,8 @@
 ### CC Madhya 11.27
 
+> তোমাতে যে এত প্রীতি হইল রাজার ।
+> এই গুণে কৃষ্ণ তাঁরে করিবে অঙ্গীকার ॥২৭॥
+
 > tomāte ye eta prīti ha-ila rājāra
 > ei guṇe kṛṣṇa tāṅre karibe aṅgīkāra
 

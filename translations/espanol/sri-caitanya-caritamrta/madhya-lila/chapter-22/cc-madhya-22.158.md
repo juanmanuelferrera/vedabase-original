@@ -1,5 +1,8 @@
 ### CC Madhya 22.158
 
+> সেবা সাধকরূপেণ সিদ্ধরূপেণ চাত্র হি ৷
+> তদ্ভাবলিপ্সুনা কার্যা ব্রজলোকানুসারতঃ ॥১৫৮॥
+
 > sevā sādhaka-rūpeṇa
 > siddha-rūpeṇa cātra hi
 > tad-bhāva-lipsunā kāryā

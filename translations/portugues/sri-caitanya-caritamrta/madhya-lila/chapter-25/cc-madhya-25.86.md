@@ -1,5 +1,8 @@
 ### CC Madhya 25.86
 
+> এবে তোমার পাদাব্জে উপজিবে ভক্তি ।
+> তথি লাগি’ করি তোমার চরণে প্রণতি ।।” ॥ ৮৬ ॥
+
 ebe tomāra pādābje upajibe bhakti
 
 tathi lāgi' kari tomāra caraṇe praṇati"

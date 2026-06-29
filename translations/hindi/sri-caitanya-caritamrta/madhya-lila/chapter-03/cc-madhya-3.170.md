@@ -1,5 +1,8 @@
 ### CC Madhya 3.170
 
+> তোমা-সবা-সনে হবে অন্যত্র মিলন ।
+> মুঞি অভাগিনীর মাত্র এই দরশন ॥১৭০॥
+
 > tomā-sabā-sane habe anyatra milana
 > muñi abhāginīra mātra ei daraśana
 

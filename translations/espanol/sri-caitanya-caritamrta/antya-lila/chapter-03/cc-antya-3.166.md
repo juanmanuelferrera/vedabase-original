@@ -1,5 +1,8 @@
 ### CC Antya 3.166
 
+> হিরণ্য, গোবর্ধন — দুই মুলুকের মজুমদার ।
+> তার পুরোহিত — ‘বলরাম’ নাম তাঁর ॥১৬৬॥
+
 > hiraṇya, govardhana--dui mulukera majumadāra
 > tāra purohita--'balarāma' nāma tāṅra
 

@@ -1,5 +1,8 @@
 ### SB 6.14.12
 
+> रूपौदार्यवयोजन्म विद्यैश्वर्यश्रियादिभिः
+> सम्पन्नस्य गुणैः सर्वैश्चिन्ता बन्ध्यापतेरभूत ॥१२॥
+
 > rūpaudārya-vayo-janma-
 > vidyaiśvarya-śriyādibhiḥ
 > sampannasya guṇaiḥ sarvaiś

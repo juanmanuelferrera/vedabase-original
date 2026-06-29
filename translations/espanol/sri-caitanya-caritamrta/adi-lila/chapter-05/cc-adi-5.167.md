@@ -1,5 +1,8 @@
 ### CC Adi 5.167
 
+> নিত্যানন্দ বলি’ যবে করেন হুঙ্কার ।
+> তাহা দেখি’ লোকের হয় মহা-চমত্কার ॥১৬৭॥
+
 > nityānanda bali' yabe karena huṅkāra
 > tāhā dekhi' lokera haya mahā-camatkāra
 

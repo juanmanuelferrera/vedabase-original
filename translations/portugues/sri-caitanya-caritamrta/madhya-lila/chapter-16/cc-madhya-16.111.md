@@ -1,5 +1,8 @@
 ### CC Madhya 16.111
 
+> ‘গ্রামে-গ্রামে’ নূতন আবাস করিবা ।
+> পাঁচ-সাত নব্যগৃহে সামগ্র্যে ভরিবা ॥১১১॥
+
 'grāme-grāme' nūtana āvāsa karibā
 
 pāṅca-sāta navya-gṛhe sāmagrye bharibā

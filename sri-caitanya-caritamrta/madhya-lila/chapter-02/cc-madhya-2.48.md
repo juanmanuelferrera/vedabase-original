@@ -1,5 +1,10 @@
 ### CC Madhya 2.48
 
+> কৃষ্ণপ্রেমা সুনির্মল, যেন শুদ্ধগঙ্গাজল,
+> সেই প্রেমা — অমৃতের সিন্ধু ।
+> নির্মল সে অনুরাগে, না লুকায় অন্য দাগে,
+> শুক্লবস্ত্রে যৈছে মসীবিন্দু ॥৪৮॥
+
 > kṛṣṇa-premā sunirmala, yena śuddha-gaṅgā-jala,
 > sei premā—amṛtera sindhu
 > nirmala se anurāge, nā lukāya anya dāge,

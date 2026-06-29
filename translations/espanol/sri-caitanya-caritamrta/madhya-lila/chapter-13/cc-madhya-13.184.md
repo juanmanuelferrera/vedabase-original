@@ -1,5 +1,7 @@
 ### CC Madhya 13.184
 
+> যদ্যপি রাজার দেখি’ হাড়ির সেবন ৷ প্রসন্ন হঞাছে তাঁরে মিলিবারে মন ॥১৮৪॥
+
 > yadyapi rājāra dekhi' hāḍira sevana
 > prasanna hañāche tāṅre milibāre mana
 

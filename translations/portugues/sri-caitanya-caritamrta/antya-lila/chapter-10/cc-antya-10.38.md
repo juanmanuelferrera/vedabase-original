@@ -1,5 +1,8 @@
 ### CC Antya 10.38
 
+> ঝালি বান্ধি’ মোহর দিল আগ্রহ করিয়া  ।
+> তিন বোঝারি ঝালি বহে ক্রম করিয়া ॥৩৮॥
+
 jhāli bāndhi' mohara dila āgraha kariyā
 
 tina bojhāri jhāli vahe krama kariyā

@@ -1,5 +1,8 @@
 ### CC Antya 1.95
 
+> সম্ভ্রমে দুঁহে উঠি’ দণ্ডবৎ হৈলা ।
+> দুঁহে আলিঙ্গিয়া প্রভু আসনে বসিলা ॥৯৫॥
+
 > sambhrame duṅhe uṭhi' daṇḍavat hailā
 > duṅhe āliṅgiyā prabhu āsane vasilā
 

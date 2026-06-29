@@ -1,5 +1,8 @@
 ### CC Antya 15.27
 
+> কর্ণামৃত, বিদ্যাপতি, শ্রীগীতগোবিন্দ ।
+> ইহার শ্লোক-গীতে প্রভুর করায় আনন্দ ॥২৭॥
+
 karṇāmṛta, vidyāpati, śrī-gīta-govinda
 
 ihāra śloka-gīte prabhura karāya ānanda

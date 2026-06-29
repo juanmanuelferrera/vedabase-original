@@ -1,5 +1,8 @@
 ### CC Antya 14.94
 
+> দুই নেত্রে ভরি’ অশ্রু বহয়ে অপার ।
+> সমুদ্রে মিলিলা যেন গঙ্গা-যমুনা-ধার ॥৯৪॥
+
 > dui netre bhari' aśru vahaye apāra
 > samudre mililā yena gaṅgā-yamunā-dhāra
 

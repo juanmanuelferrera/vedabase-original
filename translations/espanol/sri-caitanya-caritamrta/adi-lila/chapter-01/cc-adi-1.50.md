@@ -1,5 +1,7 @@
 ### CC Adi 1.50
 
+> যথা ব্রহ্মণে ভগবান্ স্বয়মুপদিশ্যানুভাবিতবান্ ॥৫০॥
+
 > yathā brahmaṇe bhagavān
 > svayam upadiśyānubhāvitavān
 

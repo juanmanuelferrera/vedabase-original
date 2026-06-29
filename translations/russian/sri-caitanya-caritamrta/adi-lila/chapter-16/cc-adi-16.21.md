@@ -1,5 +1,8 @@
 ### CC Adi 16.21
 
+> প্রভুর বিরহ-সর্প লক্ষ্মীরে দংশিল ।
+> বিরহ-সর্প-বিষে তাঁর পরলোক হৈল ॥২১॥
+
 > prabhura viraha-sarpa lakṣmīre daṁśila
 > viraha-sarpa-viṣe tāṅra paraloka haila
 

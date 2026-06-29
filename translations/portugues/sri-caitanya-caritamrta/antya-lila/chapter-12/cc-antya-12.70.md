@@ -1,5 +1,8 @@
 ### CC Antya 12.70
 
+> আইলেন আচার্য-গোসাঞি মোরে কৃপা করি’ ।
+> প্রেম-ঋণে বদ্ধ আমি, শুধিতে না পারি ॥৭০॥
+
 āilena ācārya-gosāñi more kṛpā kari'
 
 prema-ṛṇe baddha āmi, śudhite nā pāri

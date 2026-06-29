@@ -1,5 +1,8 @@
 ### CC Madhya 5.21
 
+> ছোটবিপ্র কহে, — “শুন, বিপ্ৰ-মহাশয় ।
+> অসম্ভব কহ কেনে, যেই নাহি হয় ॥২১॥
+
 > choṭa-vipra kahe, "śuna, vipra-mahāśaya
 > asambhava kaha kene, yei nāhi haya
 

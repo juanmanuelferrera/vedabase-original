@@ -1,5 +1,10 @@
 ### CC Madhya 21.106
 
+> ব্রহ্মাণ্ডোপরি পরব্যোম, তাহাঁ যে স্বরূপগণ,
+> তাঁ-সবার বলে হরে মন ।
+> পতিব্রতা-শিরোমণি, যাঁরে কহে বেদবাণী,
+> আকর্ষয়ে সেই লক্ষ্মীগণ ॥১০৬॥
+
 > brahmāṇḍopari paravyoma, tāhāṅ ye svarūpa-gaṇa,
 > tāṅ-sabāra bale hare mana
 > pati-vratā-śiromaṇi, yāṅre kahe veda-vāṇī,

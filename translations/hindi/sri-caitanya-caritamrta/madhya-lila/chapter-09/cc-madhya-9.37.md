@@ -1,5 +1,8 @@
 ### CC Madhya 9.37
 
+> সেই কৃষ্ণ তুমি সাক্ষাৎ — ইহা নির্ধারিল ।
+> এত কহি’ বিপ্র প্রভুর চরণে পড়িল ॥৩৭॥
+
 > sei kṛṣṇa tumi sākṣāt--ihā nirdhārila
 > eta kahi' vipra prabhura caraṇe paḍila
 

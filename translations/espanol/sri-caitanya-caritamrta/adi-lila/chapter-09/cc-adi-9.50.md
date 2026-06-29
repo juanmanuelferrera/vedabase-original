@@ -1,5 +1,8 @@
 ### CC Adi 9.50
 
+> কেহ গড়াগড়ি যায়, কেহ ত’ হুঙ্কার ।
+> দেখি’ আনন্দিত হঞা হাসে মালাকার ॥৫০॥
+
 > keha gaḍāgaḍi yāya, keha ta' huṅkāra
 > dekhi' ānandita hañā hāse mālākāra
 

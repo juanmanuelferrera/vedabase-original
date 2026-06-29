@@ -1,5 +1,8 @@
 ### CC Antya 3.46
 
+> এইত কহিল দামোদরের বাক্যদণ্ড ।
+> যাহার শ্রবণে ভাগে ‘অজ্ঞান পাষণ্ড’ ॥৪৬॥
+
 ei-ta kahila dāmodarera vākya-daṇḍa
 
 yāhāra śravaṇe bhāge 'ajñāna pāṣaṇḍa'

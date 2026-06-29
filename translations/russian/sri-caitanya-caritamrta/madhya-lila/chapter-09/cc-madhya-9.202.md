@@ -1,5 +1,8 @@
 ### CC Madhya 9.202
 
+> রাবণ দেখিয়া সীতা লৈল অগ্নির শরণ ।
+> রাবণ হৈতে অগ্নি কৈল সীতাকে আবরণ ॥২০২॥
+
 > rāvaṇa dekhiyā sītā laila agnira śaraṇa
 > rāvaṇa haite agni kaila sītāke āvaraṇa
 

@@ -1,5 +1,8 @@
 ### SB 6.16.17
 
+> अथ तस्मै प्रपन्नाय भक्ताय प्रयतात्मने
+> भगवान्नारदः प्रीतो विद्यामेतामुवाच ह ॥१७॥
+
 > atha tasmai prapannāya
 > bhaktāya prayatātmane
 > bhagavān nāradaḥ prīto

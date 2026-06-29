@@ -1,5 +1,8 @@
 ### CC Antya 12.151
 
+> গোবিন্দ আসি’ দেখি’ কহিল পণ্ডিতের ভোজন ।
+> তবে মহাপ্রভু স্বস্ত্যে করিল শয়ন ॥১৫১॥
+
 govinda āsi' dekhi' kahila paṇḍitera bhojana
 
 tabe mahāprabhu svastye karila śayana

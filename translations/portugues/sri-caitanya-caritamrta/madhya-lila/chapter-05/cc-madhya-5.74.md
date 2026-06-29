@@ -1,5 +1,8 @@
 ### CC Madhya 5.74
 
+> তবে আমি গোপালেরে সাক্ষী করিঞা ।
+> কহিলাঙ তাঁর পদে মিনতি করিঞা ॥৭৪॥
+
 tabe āmi gopālere sākṣī kariñā
 
 kahilāṅ tāṅra pade minati kariñā

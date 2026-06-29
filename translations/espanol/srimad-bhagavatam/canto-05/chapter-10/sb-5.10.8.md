@@ -1,5 +1,7 @@
 ### SB 5.10.8
 
+> एवं बह्वबद्धमपि भाषमाणं नरदेवाभिमानं रजसा तमसानुविद्धेन मदेनतिरस्कृताशेषभगवत्प्रियनिकेतं पण्डितमानिनं स भगवान्ब्राह्मणो ब्रह्मभूतसर्वभूतसुहृदात्मा योगेश्वरचर्यायां नातिव्युत्पन्नमतिं स्मयमान इव विगतस्मय इदमाह ॥८॥
+
 > evaṁ bahv abaddham api bhāṣamāṇaṁ nara-devābhimānaṁ rajasā tamasānuviddhena madena tiraskṛtāśeṣa-bhagavat-priya-niketaṁ paṇḍita-māninaṁ sa bhagavān brāhmaṇo brahma-bhūta-sarva-bhūta-suhṛd-ātmā yogeśvara-caryāyāṁ nāti-vyutpanna-matiṁ smayamāna iva vigata-smaya idam āha.
 
 *evam*—de este modo; *bahu*—muy; *abaddham*—fuera de lugar; *api*—aunque; *bhāṣamāṇam*—hablando; *nara-deva-abhimānam*—el rey Rahūgaṇa, que se consideraba el gobernante; *rajasā*—por la modalidad material de la pasión; *tamasā*—y por la modalidad de la ignorancia; *anuviddhena*—aumentada; *madena*—por la locura; *tiraskṛta*—que reprendió; *aśeṣa*—incontables; *bhagavat-priya-niketam*—devotos del Señor; *paṇḍita-māninam*—considerándose un sabio muy culto; *saḥ*—ese; *bhagavān*—espiritualmente muy poderoso (Jaḍa Bharata); *brāhmaṇaḥ*—un *brāhmaṇa* perfectamente cualificado; *brahma-bhūta*—plenamente iluminado; *sarva-bhūta-suhṛt-ātmā*—que, de esta forma, era el amigo de todas las entidades vivientes; *yoga-īśvara*—de los *yogīs* místicos más avanzados; *caryāyām*—en el comportamiento; *na ati-vyutpanna-matim*—al rey Rahūgaṇa, que en realidad no era experimentado; *smayamānaḥ*—esbozando una sonrisa; *iva*—como; *vigata-smayaḥ*—que estaba liberado de todo orgullo material; *idam*—así; *āha*—habló.

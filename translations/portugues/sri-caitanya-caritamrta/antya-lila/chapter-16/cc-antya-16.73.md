@@ -1,5 +1,8 @@
 ### CC Antya 16.73
 
+> আর দিন কহেন প্রভু, — ‘পড়, পুরীদাস ।’
+> এই শ্লোক করি’ তেঁহো করিলা প্রকাশ ॥৭৩॥
+
 āra dina kahena prabhu,--'paḍa, purīdāsa'
 
 ei śloka kari' teṅho karilā prakāśa

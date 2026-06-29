@@ -1,5 +1,8 @@
 ### CC Madhya 25.34
 
+> শ্রুতি-পুরাণ কহে — কৃষ্ণের চিচ্ছক্তি-বিলাস ।
+> তাহা নাহি মানি, পণ্ডিত করে উপহাস ॥৩৪॥
+
 śruti-purāṇa kahe-kṛṣṇera cic-chakti-vilāsa
 
 tāhā nāhi māni, paṇḍita kare upahāsa

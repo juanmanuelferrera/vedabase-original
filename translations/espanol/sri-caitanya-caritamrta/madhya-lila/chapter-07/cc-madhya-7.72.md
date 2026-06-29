@@ -1,5 +1,8 @@
 ### CC Madhya 7.72
 
+> মহানুভাবের চিত্তের স্বভাব এই হয় ৷
+> পুষ্প-সম কোমল, কঠিন বজ্রময় ৷৷ ৭২ ৷৷ ॥৭২॥
+
 > mahānubhāvera cittera svabhāva ei haya
 > puṣpa-sama komala, kaṭhina vajra-maya
 

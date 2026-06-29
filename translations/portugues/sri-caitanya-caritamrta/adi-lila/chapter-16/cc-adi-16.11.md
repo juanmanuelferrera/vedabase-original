@@ -1,5 +1,8 @@
 ### CC Adi 16.11
 
+> বহুশাস্ত্রে বহুবাক্যে চিত্তে ভ্রম হয় ।
+> সাধ্য-সাধন শ্রেষ্ঠ না হয় নিশ্চয় ॥১১॥
+
 bahu-śāstre bahu-vākye citte bhrama haya
 sādhya-sādhana śreṣṭha nā haya niścaya
 

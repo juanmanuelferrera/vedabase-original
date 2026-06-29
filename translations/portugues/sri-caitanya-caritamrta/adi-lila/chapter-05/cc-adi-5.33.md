@@ -1,5 +1,8 @@
 ### CC Adi 5.33
 
+> ‘সিদ্ধলোক’ নাম তার প্রকৃতির পার ।
+> চিৎস্বরূপ, তাঁহা নাহি চিচ্ছক্তি-বিকার ॥৩৩॥
+
 'siddha-loka' nāma tāra prakṛtira pāra
 
 cit-svarūpa, tāṅhā nāhi cic-chakti vikāra

@@ -1,5 +1,8 @@
 ### CC Antya 6.36
 
+> রাত্রে উঠি’ একেলা চলিলা পলাঞা ।
+> দূর হৈতে পিতা তাঁরে আনিল ধরিয়া ॥৩৬॥
+
 rātre uṭhi' ekelā calilā palāñā
 
 dūra haite pitā tāṅre ānila dhariyā

@@ -1,5 +1,8 @@
 ### CC Madhya 9.288
 
+> দেখিয়া বিস্মিত হৈল শ্রীরঙ্গ-পুরীর মন ।
+> ‘উঠহ শ্রীপাদ’ বলি’ বলিলা বচন ॥২৮৮॥
+
 > dekhiyā vismita haila śrī-raṅga-purīra mana
 > 'uṭhaha śrīpāda' bali' balilā vacana
 

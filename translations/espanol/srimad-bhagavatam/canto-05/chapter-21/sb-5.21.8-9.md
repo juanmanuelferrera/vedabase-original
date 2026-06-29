@@ -1,5 +1,8 @@
 ### SB 5.21.8-9
 
+> तत्रत्यानां दिवसमध्यङ्गत एव सदादित्यस्तपति सव्येनाचलं दक्षिणेन करोति ॥८॥
+> यत्रोदेति तस्य ह समानसूत्रनिपाते निम्लोचति यत्र क्वचन स्यन्देनाभितपति तस्य हैष समानसूत्रनिपाते प्रस्वापयति तत्र गतं न पश्यन्ति ये तं समनुपश्येरन ॥९॥
+
 > tatratyānāṁ divasa-madhyaṅgata eva sadādityas tapati savyenācalaṁ dakṣiṇena karoti; yatrodeti tasya ha samāna-sūtra-nipāte nimlocati yatra kvacana syandenābhitapati tasya haiṣa samāna-sūtra-nipāte prasvāpayati tatra gataṁ na paśyanti ye taṁ samanupaśyeran.
 
 *tatratyānām*—para las entidades vivientes que habitan en el monte Meru; *divasa-madhyaṅgataḥ*—en la posición del mediodía; *eva*—en verdad; *sadā*—siempre; *ādityaḥ*—el Sol; *tapati*—calienta; *savyena*—hacia el lado izquierdo; *acalam*—la montaña Sumeru; *dakṣiṇena*—a la derecha (forzado por el viento que sopla hacia la derecha, el Sol se mueve en esa dirección); *karoti*—se mueve; *yatra*—el punto en que; *udeti*—se levanta; *tasya*—de esa posición; *ha*—ciertamente; *samāna-sūtra-nipāte*—en el punto diametralmente opuesto; *nimlocati*—el Sol se pone; *yatra*—donde; *kvacana*—en algún lugar; *syandena*—con sudor; *abhitapati*—calienta (al mediodía); *tasya*—de ese; *ha*—ciertamente; *eṣaḥ*—este (el Sol); *samāna-sūtra-nipāte*—en el punto diametralmente opuesto; *prasvāpayati*—el Sol hace dormir (como a medianoche); *tatra*—allí; *gatam*—ido; *na paśyanti*—no ve; *ye*—quien; *tam*—la puesta del Sol; *samanupaśyeran*—ver.

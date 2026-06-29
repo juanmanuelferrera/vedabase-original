@@ -1,5 +1,8 @@
 ### CC Antya 5.90
 
+> এইমত মহাপ্রভু ভক্তগণ লঞা ।
+> নীলাচলে বিহরয়ে ভক্তি প্রচারিয়া ॥৯০॥
+
 > ei-mata mahāprabhu bhakta-gaṇa lañā
 > nīlācale viharaye bhakti pracāriyā
 

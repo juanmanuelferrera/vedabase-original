@@ -1,5 +1,8 @@
 ### SB 5.20.1
 
+> श्रीशुक उवाच
+> अतः परं प्लक्षादीनां प्रमाणलक्षणसंस्थानतो वर्षविभाग उपवर्ण्यते ॥१॥
+
 śrī-śuka uvāca
 
 *ataḥ paraṁ plakṣādīnāṁ pramāṇa*-lakṣaṇa-saṁsthānato varṣa-vibhāga upavarṇyate.

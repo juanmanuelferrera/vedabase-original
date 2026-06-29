@@ -1,5 +1,8 @@
 ### CC Madhya 13.197
 
+> জগন্নাথের ছোট-বড় যত ভক্তগণ ।
+> নিজ নিজ উত্তম-ভোগ করে সমর্পণ ॥১৯৭॥
+
 jagannāthera choṭa-baḍa yata bhakta-gaṇa
 
 nija nija uttama-bhoga kare samarpaṇa

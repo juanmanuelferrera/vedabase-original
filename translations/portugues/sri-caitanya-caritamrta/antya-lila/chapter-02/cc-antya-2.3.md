@@ -1,5 +1,8 @@
 ### CC Antya 2.3
 
+> সর্ব-লোক উদ্ধারিতে গৌর-অবতার ।
+> নিস্তারের হেতু তার ত্রিবিধ প্রকার ॥৩॥
+
 sarva-loka uddhārite gaura-avatāra
 nistārera hetu tāra trividha prakāra
 

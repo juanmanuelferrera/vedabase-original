@@ -1,5 +1,8 @@
 ### CC Adi 13.36
 
+> সেতুবন্ধ, আর গৌড়-ব্যাপি বৃন্দাবন ।
+> প্রেম-নাম প্রচারিয়া করিলা ভ্রমণ ॥৩৬॥
+
 > setubandha, āra gauḍa-vyāpi vṛndāvana
 > prema-nāma pracāriyā karilā bhramaṇa
 

@@ -1,5 +1,8 @@
 ### SB 5.3.19
 
+> श्रीशुक उवाच
+> इति निशामयन्त्या मेरुदेव्याः पतिमभिधायान्तर्दधे भगवान ॥१८॥
+
 śrī-śuka uvāca
 
 iti niśāmayantyā merudevyāḥ patim abhidhāyāntardadhe bhagavān.

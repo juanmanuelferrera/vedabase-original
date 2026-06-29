@@ -1,5 +1,8 @@
 ### SB 3.26.56
 
+> निर्बिभेद विराजस्त्वग् रोमश्मश्र्वादयस्ततः ।
+> तत ओषधयश्चासन्शिश्नं निर्बिभिदे ततः ॥५६॥
+
 > nirbibheda virājas tvag-
 > roma-śmaśrv-ādayas tataḥ
 > tata oṣadhayaś cāsan

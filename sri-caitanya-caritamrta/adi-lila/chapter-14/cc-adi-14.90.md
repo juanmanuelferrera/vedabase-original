@@ -1,5 +1,8 @@
 ### CC Adi 14.90
 
+> এইমতে দুঁহে করেন ধর্মের বিচার ।
+> বিশুদ্ধবাৎসল্য মিশ্রের, নাহি জানে আর ॥৯০॥
+
 > ei-mate duṅhe karena dharmera vicāra
 > viśuddha-vātsalya miśrera, nāhi jāne āra
 

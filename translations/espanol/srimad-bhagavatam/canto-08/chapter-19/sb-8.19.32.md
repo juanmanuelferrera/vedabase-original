@@ -1,5 +1,8 @@
 ### SB 8.19.32
 
+> एष ते स्थानमैश्वर्यं श्रियं तेजो यशः श्रुतम
+> दास्यत्याच्छिद्य शक्राय मायामाणवको हरिः ॥३२॥
+
 > eṣa te sthānam aiśvaryaṁ
 > śriyaṁ tejo yaśaḥ śrutam
 > dāsyaty ācchidya śakrāya

@@ -1,5 +1,8 @@
 ### CC Antya 16.6
 
+> মহাভাগবত তেঁহো সরল উদার ।
+> কৃষ্ণনাম-‘সঙ্কেতে’ চালায় ব্যবহার ॥৬॥
+
 mahā-bhāgavata teṅho sarala udāra
 kṛṣṇa-nāma-'saṅkete' cālāya vyavahāra
 

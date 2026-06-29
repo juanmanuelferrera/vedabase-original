@@ -1,5 +1,7 @@
 ### SB 5.26.15
 
+> यस्त्विह वै निजवेदपथादनापद्यपगतः पाखण्डं चोपगतस्तमसिपत्रवनंप्रवेश्य कशया प्रहरन्ति तत्र हासावितस्ततो धावमान उभयतो धारैस्तालवनासिपत्रैश्छिद्यमानसर्वाङ्गो हा हतोऽस्मीति परमया वेदनया मूर्च्छितः पदे पदे निपतति स्वधर्महा पाखण्डानुगतंफलं भुङ्क्ते ॥१४॥
+
 > yas tv iha vai nija-veda-pathād anāpady apagataḥ pākhaṇḍaṁ copagatas tam asi-patravanaṁ praveśya kaśayā praharanti tatra hāsāv itas tato dhāvamāna ubhayato dhārais tāla-vanāsi-patraiś chidyamāna-sarvāṅgo hā hato 'smīti paramayā vedanayā mūrcchitaḥ pade pade nipatati sva-dharmahā pākhaṇḍānugataṁ phalaṁ bhuṅkte.
 
 *yaḥ*—anyone who; *tu*—but; *iha*—in this life; *vai*—indeed; *nija-veda-pathāt*—from his own path, recommended by the *Vedas*; *anāpadi*—even without an emergency; *apagataḥ*—deviated; *pākhaṇḍam*—a concocted, atheistic system; *ca*—and; *upagataḥ*—gone to; *tam*—him; *asi-patravanam*—the hell known as Asi-patravana; *praveśya*—making enter; *kaśayā*—with a whip; *praharanti*—they beat; *tatra*—there; *ha*—certainly; *asau*—that; *itaḥ tataḥ*—here and there; *dhāvamānaḥ*—running; *ubhayataḥ*—on both sides; *dhāraiḥ*—by the edges; *tāla-vana-asi-patraiḥ*—by the swordlike leaves of palm trees; *chidyamāna*—being cut; *sarva-aṅgaḥ*—whose entire body; *hā*—alas; *hataḥ*—killed; *asmi*—I am; *iti*—thus; *paramayā*—with severe; *vedanayā*—pain; *mūrcchitaḥ*—fainted; *pade pade*—at every step; *nipatati*—falls down; *sva-dharma-hā*—the killer of his own principles of religion; *pākhaṇḍa-anugatam phalam*—the result of accepting an atheistic path; *bhuṅkte*—he suffers.

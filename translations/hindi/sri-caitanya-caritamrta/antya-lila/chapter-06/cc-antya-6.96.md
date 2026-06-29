@@ -1,5 +1,8 @@
 ### CC Antya 6.96
 
+> পুষ্পমালা বিপ্র আনি’ প্রভু-গলে দিল ।
+> চন্দন আনি প্রভুর সর্বাঙ্গে লেপিল ॥৯৬॥
+
 > puṣpa-mālā vipra āni' prabhu-gale dila
 > candana āniyā prabhura sarvāṅge lepila
 

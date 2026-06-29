@@ -1,5 +1,8 @@
 ### CC Madhya 18.85
 
+> প্রভু কহে, — কে তুমি, কাহাঁ তোমার ঘর ?
+> কৃষ্ণদাস কহে, — মুঞি গৃহস্থ পামর ॥৮৫॥
+
 prabhu kahe,--ke tumi, kāhāṅ tomāra ghara?
 
 kṛṣṇadāsa kahe,--mui gṛhastha pāmara

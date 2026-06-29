@@ -1,5 +1,8 @@
 ### SB 2.3.18
 
+> तरवः किं न जीवन्ति भस्त्राः किं न श्वसन्त्युत ।
+> न खादन्ति न मेहन्ति किं ग्रामे पशवोऽपरे ॥१८॥
+
 > taravaḥ kiṁ na jīvanti
 > bhastrāḥ kiṁ na śvasanty uta
 > na khādanti na mehanti

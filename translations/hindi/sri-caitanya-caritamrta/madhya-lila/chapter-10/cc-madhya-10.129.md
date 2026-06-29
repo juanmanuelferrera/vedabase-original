@@ -1,5 +1,8 @@
 ### CC Madhya 10.129
 
+> মহাপ্রভু দিল তাঁরে নিভৃতে বাসাঘর ।
+> জলাদি-পরিচর্যা লাগি’ দিল এক কিঙ্কর ॥১২৯॥
+
 > mahāprabhu dila tāṅre nibhṛte vāsā-ghara
 > jalādi-paricaryā lāgi' dila eka kiṅkara
 

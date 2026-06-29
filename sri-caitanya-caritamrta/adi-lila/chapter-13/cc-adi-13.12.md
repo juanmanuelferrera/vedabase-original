@@ -1,5 +1,8 @@
 ### CC Adi 13.12
 
+> তার মধ্যে ছয় বৎসর — গমনাগমন ।
+> কভু দক্ষিণ, কভু গৌড়, কভু বৃন্দাবন ॥১২॥
+
 > tāra madhye chaya vatsara—gamanāgamana
 > kabhu dakṣiṇa, kabhu gauḍa, kabhu vṛndāvana
 

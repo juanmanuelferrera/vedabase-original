@@ -1,5 +1,8 @@
 ### CC Madhya 9.309
 
+> ‘ব্রহ্মসংহিতা’, ‘কর্ণামৃত’ দুই পুঁথি পাঞা ৷
+> মহারত্নপ্রায় পাই আইলা সঙ্গে লঞা ৷৷ ৩০৯ ৷৷ ॥৩০৯॥
+
 > 'brahma-saṁhitā', 'karṇāmṛta' dui puṅthi pāñā
 > mahā-ratna-prāya pāi āilā saṅge lañā
 

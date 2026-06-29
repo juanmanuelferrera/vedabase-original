@@ -1,5 +1,8 @@
 ### CC Madhya 3.59
 
+> আরতি করিয়া কৃষ্ণে করা’ল শয়ন ৷
+> আচার্য আসি’ প্ৰভুরে তবে কৈলা নিবেদন ॥৫৯॥
+
 ārati kariyā kṛṣṇe karā'la śayana
 ācārya āsi' prabhure tabe kailā nivedana
 

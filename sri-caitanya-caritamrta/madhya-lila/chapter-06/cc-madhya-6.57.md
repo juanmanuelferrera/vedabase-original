@@ -1,5 +1,8 @@
 ### CC Madhya 6.57
 
+> শুনি’ মহাপ্রভু কৈল শ্রীবিষ্ণু স্মরণ ।
+> ভট্টাচার্যে কহে কিছু বিনয় বচন ॥৫৭॥
+
 > śuni' mahāprabhu kaila śrī-viṣṇu smaraṇa
 > bhaṭṭācārye kahe kichu vinaya vacana
 

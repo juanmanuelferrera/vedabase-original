@@ -1,5 +1,8 @@
 ### CC Madhya 11.200
 
+> অল্প অন্ন নাহি আইসে দিতে প্রভুর হাতে ৷
+> দুই-তিনের অন্ন দেন এক এক পাতে ৷৷ ২০০ ৷৷ ॥২০০॥
+
 > alpa anna nāhi āise dite prabhura hāte
 > dui-tinera anna dena eka eka pāte
 

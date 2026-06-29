@@ -1,5 +1,8 @@
 ### SB 4.14.13
 
+> एवमध्यवसायैनं मुनयो गूढमन्यवः ।
+> उपव्रज्याब्रुवन्वेनं सान्त्वयित्वा च सामभिः ॥१३॥
+
 > evam adhyavasāyainaṁ
 > munayo gūḍha-manyavaḥ
 > upavrajyābruvan venaṁ

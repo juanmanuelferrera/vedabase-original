@@ -1,5 +1,8 @@
 ### CC Adi 16.5
 
+> শত শত শিষ্য সঙ্গে সদা অধ্যাপন ।
+> ব্যাখ্যা শুনি সর্বলোকের চমকিত মন ॥৫॥
+
 > śata śata śiṣya saṅge sadā adhyāpana
 > vyākhyā śuni sarva-lokera camakita mana
 

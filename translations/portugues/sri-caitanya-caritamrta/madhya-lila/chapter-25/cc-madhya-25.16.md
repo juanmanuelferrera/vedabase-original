@@ -1,5 +1,8 @@
 ### CC Madhya 25.16
 
+> তাহাঁ যৈছে কৈলা প্রভু সন্ন্যাসীর নিস্তার ।
+> পঞ্চতত্ত্বাখ্যানে তাহা করিয়াছি বিস্তার ॥১৬॥
+
 tāhāṅ yaiche kailā prabhu sannyāsīra nistāra
 
 pañca-tattvākhyāne tāhā kariyāchi vistāra

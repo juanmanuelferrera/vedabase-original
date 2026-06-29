@@ -1,5 +1,8 @@
 ### CC Madhya 19.141
 
+> বালাগ্রশতভাগস্য শতধা কল্পিতস্য চ ।
+> ভাগো জীবঃ স বিজ্ঞেয় ইতি চাহ পরা শ্রুতিঃ ॥১৪১॥
+
 > bālāgra-śata-bhāgasya
 > śatadhā kalpitasya ca
 > bhāgo jīvaḥ sa vijñeya

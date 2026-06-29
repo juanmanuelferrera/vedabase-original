@@ -1,5 +1,8 @@
 ### CC Antya 8.50
 
+> প্রভু পরম্পরায় নিন্দা কৈরাছেন শ্রবণ ।
+> এবে সাক্ষাৎ শুনিলেন ‘কল্পিত’ নিন্দন ॥৫০॥
+
 > prabhu paramparāya nindā kairāchena śravaṇa
 > ebe sākṣāt śunilena 'kalpita' nindana
 

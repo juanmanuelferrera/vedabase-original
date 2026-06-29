@@ -1,5 +1,8 @@
 ### CC Antya 16.24
 
+> তবে কালিদাস শ্লোক পড়ি’ শুনাইল ।
+> শুনি’ ঝড়ু-ঠাকুরের বড় সুখ হইল ॥২৪॥
+
 tabe kālidāsa śloka paḍi' śunāila
 
 śuni' jhaḍu-ṭhākurera baḍa sukha ha-ila

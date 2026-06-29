@@ -1,5 +1,8 @@
 ### CC Madhya 9.3
 
+> দক্ষিণগমন প্রভুর অতি বিলক্ষণ ।
+> সহস্র সহস্র তীর্থ কৈল দরশন ॥৩॥
+
 > dakṣiṇa-gamana prabhura ati vilakṣaṇa
 > sahasra sahasra tīrtha kaila daraśana
 

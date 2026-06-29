@@ -1,5 +1,8 @@
 ### CC Madhya 15.278
 
+> শুনি’ ‘কৃষ্ণ’ ‘কৃষ্ণ’ বলি’ অমোঘ উঠিলা ।
+> প্রেমোন্মাদে মত্ত হঞা নাচিতে লাগিলা ॥২৭৮॥
+
 śuni' 'kṛṣṇa' 'kṛṣṇa' bali' amogha uṭhilā
 
 premonmāde matta hañā nācite lāgilā

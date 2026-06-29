@@ -1,5 +1,8 @@
 ### CC Madhya 15.147
 
+> এই মত সর্ব-রাত্রি করেন ক্রন্দন ।
+> মনে সোয়াস্তি নাহি, রাত্রি কৈল জাগরণ ॥১৪৭॥
+
 > ei mata sarva-rātri karena krandana
 > mane soyāsti nāhi, rātri kaila jāgaraṇa
 

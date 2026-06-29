@@ -1,5 +1,8 @@
 ### SB 3.4.20
 
+> स एवमाराधितपादतीर्थादधीततत्त्वात्मविबोधमार्गः ।
+> प्रणम्य पादौ परिवृत्य देवमिहागतोऽहं विरहातुरात्मा ॥२०॥
+
 > sa evam ārādhita-pāda-tīrthād
 > adhīta-tattvātma-vibodha-mārgaḥ
 > praṇamya pādau parivṛtya devam

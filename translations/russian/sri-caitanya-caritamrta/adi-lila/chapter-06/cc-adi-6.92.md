@@ -1,5 +1,8 @@
 ### CC Adi 6.92
 
+> তাঁহার প্রকাশ-ভেদ, অদ্বৈত-আচার্য ।
+> কায়মনোবাক্যে তাঁর ভক্তি সদা কার্য ॥৯২॥
+
 > tāṅhāra prakāśa-bheda, advaita-ācārya
 > kāya-mano-vākye tāṅra bhakti sadā kārya
 

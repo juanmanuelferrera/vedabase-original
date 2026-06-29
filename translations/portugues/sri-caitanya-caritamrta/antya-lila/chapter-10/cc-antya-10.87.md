@@ -1,5 +1,8 @@
 ### CC Antya 10.87
 
+> বার বার গোবিন্দ কহে একদিক্ হইতে ।
+> প্রভু কহে, — ‘অঙ্গ আমি নারি চালাইতে ।।’ ॥ ৮৭ ॥
+
 bāra bāra govinda kahe eka-dik ha-ite
 
 prabhu kahe,--'aṅga āmi nāri cālāite'

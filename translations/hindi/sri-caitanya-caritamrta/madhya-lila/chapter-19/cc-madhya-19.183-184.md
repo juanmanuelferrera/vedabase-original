@@ -1,5 +1,10 @@
 ### CC Madhya 19.183-184
 
+> ভক্তভেদে রতি-ভেদ পঞ্চ পরকার ।
+> শান্তরতি, দাস্যরতি, সখ্যরতি আর ॥১৮৩॥
+> বাৎসল্যরতি, মধুররতি, — এ পঞ্চ বিভেদ ।
+> রতিভেদে কৃষ্ণভক্তিরসে পঞ্চ ভেদ ॥১৮৪॥
+
 > bhakta-bhede rati-bheda pañca parakāra
 > śānta-rati, dāsya-rati, sakhya-rati āra
 > vātsalya-rati, madhura-rati,--ei pañca vibheda

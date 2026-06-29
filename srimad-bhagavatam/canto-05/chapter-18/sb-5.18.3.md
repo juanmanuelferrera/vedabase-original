@@ -1,5 +1,8 @@
 ### SB 5.18.3
 
+> अहो विचित्रं भगवद्विचेष्टितं घ्नन्तं जनोऽयं हि मिषन्न पश्यति
+> ध्यायन्नसद्यर्हि विकर्म सेवितुं निर्हृत्य पुत्रं पितरं जिजीविषति ॥३॥
+
 > aho vicitraṁ bhagavad-viceṣṭitaṁ
 > ghnantaṁ jano 'yaṁ hi miṣan na paśyati
 > dhyāyann asad yarhi vikarma sevituṁ

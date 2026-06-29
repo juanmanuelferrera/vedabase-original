@@ -1,5 +1,8 @@
 ### CC Antya 6.166
 
+> এত কহি’ রঘুনাথে লঞা চলিলা ।
+> রক্ষক সব শেষরাত্রে নিদ্রায় পড়িলা ॥১৬৬॥
+
 eta kahi' raghunāthe lañā calilā
 
 rakṣaka saba śeṣa-rātre nidrāya padilā

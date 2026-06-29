@@ -1,5 +1,8 @@
 ### CC Madhya 16.249
 
+> মাতার চরণে ধরি’ বহু বিনয় করিল ।
+> বৃন্দাবন যাইতে তাঁর আজ্ঞা লইল ॥২৪৯॥
+
 > mātāra caraṇe dhari' bahu vinaya karila
 > vṛndāvana yāite tāṅra ājñā la-ila
 

@@ -1,5 +1,8 @@
 ### CC Adi 13.89
 
+> চৌদ্দশত সাতশকে মাস যে ফাল্গুন ।
+> পৌর্ণমাসীর সন্ধ্যাকালে হৈলে শুভক্ষণ ॥৮৯॥
+
 caudda-śata sāta-śake māsa ye phālguna
 
 paurṇamāsīra sandhyā-kāle haile śubha-kṣaṇa

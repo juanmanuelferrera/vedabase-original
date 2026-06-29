@@ -1,5 +1,8 @@
 ### CC Madhya 22.21
 
+> কেবল জ্ঞান ‘মুক্তি’ দিতে নারে ভক্তি বিনে ।
+> কৃষ্ণোন্মুখে সেই মুক্তি হয় বিনা জ্ঞানে ॥২১॥
+
 > kevala jñāna'mukti' dite nāre bhakti vine
 > kṛṣṇonmukhe sei mukti haya vinā jñāne
 

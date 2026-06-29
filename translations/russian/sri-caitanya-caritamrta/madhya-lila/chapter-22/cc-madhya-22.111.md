@@ -1,5 +1,8 @@
 ### CC Madhya 22.111
 
+> মুখবাহূরুপাদেভ্যঃ পুরুষস্যাশ্রমৈঃ সহ ।
+> চত্বারো জজ্ঞিরে বর্ণা গুণৈর্বিপ্রাদয়ঃ পৃথক্ ॥১১১॥
+
 > mukha-bāhūru-pādebhyaḥ
 > puruṣasyāśramaiḥ saha
 > catvāro jajñire varṇā

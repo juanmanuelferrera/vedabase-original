@@ -1,5 +1,8 @@
 ### CC Antya 6.167
 
+> আচার্যের ঘর ইহার পূর্বদিশাতে ।
+> কহিতে শুনিতে দুঁহে চলে সেই পথে ॥১৬৭॥
+
 ācāryera ghara ihāra pūrva-diśāte
 
 kahite śunite duṅhe cale sei pathe

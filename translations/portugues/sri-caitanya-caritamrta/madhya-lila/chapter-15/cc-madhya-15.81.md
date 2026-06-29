@@ -1,5 +1,8 @@
 ### CC Madhya 15.81
 
+> দ্বারের উপর ভিতে তেঁহো হাত দিল ৷
+> সেই হাতে ফল ছুঁইল, পণ্ডিত দেখিল ॥৮১॥
+
 dvārera upara bhite teṅho hāta dila
 
 sei hāte phala chuṅila, paṇḍita dekhila

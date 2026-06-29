@@ -1,5 +1,8 @@
 ### CC Madhya 8.193
 
+> এত বলি’ আপন-কৃত গীত এক গাহিল ।
+> প্রেমে প্রভু স্বহস্তে তাঁর মুখ আচ্ছাদিল ॥১৯৩॥
+
 > eta bali' āpana-kṛta gīta eka gāhila
 > preme prabhu sva-haste tāṅra mukha ācchādila
 

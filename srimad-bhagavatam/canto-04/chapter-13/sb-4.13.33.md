@@ -1,5 +1,8 @@
 ### SB 4.13.33
 
+> तथा स्वभागधेयानि ग्रहीष्यन्ति दिवौकसः ।
+> यद्यज्ञपुरुषः साक्षादपत्याय हरिर्वृतः ॥३३॥
+
 > tathā sva-bhāgadheyāni
 > grahīṣyanti divaukasaḥ
 > yad yajña-puruṣaḥ sākṣād

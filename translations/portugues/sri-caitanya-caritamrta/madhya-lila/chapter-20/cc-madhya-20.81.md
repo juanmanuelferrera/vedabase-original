@@ -1,5 +1,8 @@
 ### CC Madhya 20.81
 
+> সনাতন কহে, — “আমি মাধুকরী করিব ।
+> ব্রাহ্মণের ঘরে কেনে একত্র ভিক্ষা লব ?” ॥ ৮১ ॥
+
 sanātana kahe,--"āmi mādhukarī kariba
 
 brāhmaṇera ghare kene ekatra bhikṣā laba?"

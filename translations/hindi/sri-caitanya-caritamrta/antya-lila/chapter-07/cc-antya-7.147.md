@@ -1,5 +1,8 @@
 ### CC Antya 7.147
 
+> পূর্বে যেন কৃষ্ণ যদি পরিহাস কৈল ।
+> শুনি’ রুক্মিণীর মনে ত্রাস উপজিল ॥১৪৭॥
+
 > pūrve yena kṛṣṇa yadi parihāsa kaila
 > śuni' rukmiṇīra mane trāsa upajila
 

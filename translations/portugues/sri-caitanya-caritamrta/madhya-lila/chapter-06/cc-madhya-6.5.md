@@ -1,5 +1,8 @@
 ### CC Madhya 6.5
 
+> দৈবে সার্বভৌম তাঁহাকে করে দরশন ।
+> পড়িছা মারিতে তেঁহো কৈল নিবারণ ॥৫॥
+
 daive sārvabhauma tāṅhāke kare daraśana
 paḍichā mārite teṅho kaila nivāraṇa
 

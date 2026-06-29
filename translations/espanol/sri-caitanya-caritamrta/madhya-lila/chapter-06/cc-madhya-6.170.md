@@ -1,5 +1,8 @@
 ### CC Madhya 6.170
 
+> ‘পরিণাম-বাদ’ — ব্যাস-সূত্রের সম্মত ।
+> অচিন্ত্যশক্তি ঈশ্বর জগদ্রূপে পরিণত ॥১৭০॥
+
 > 'pariṇāma-vāda'--vyāsa-sūtrera sammata
 > acintya-śakti īśvara jagad-rūpe pariṇata
 

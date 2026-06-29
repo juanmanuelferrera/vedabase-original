@@ -1,5 +1,8 @@
 ### CC Madhya 24.282
 
+> এই ত’ কহিলুঁ তোমায় ব্যাধের আখ্যান ।
+> যা শুনিলে হয় সাধুসঙ্গ-প্রভাব-জ্ঞান ॥২৮২॥
+
 > ei ta' kahiluṅ tomāya vyādhera ākhyāna
 > yā śunile haya sādhu-saṅga-prabhāva-jñāna
 

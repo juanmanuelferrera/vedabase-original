@@ -1,5 +1,8 @@
 ### SB 7.15.29
 
+> यथा वार्तादयो ह्यर्था योगस्यार्थं न बिभ्रति
+> अनर्थाय भवेयुः स्म पूर्तमिष्टं तथासतः ॥२९॥
+
 > yathā vārtādayo hy arthā
 > yogasyārthaṁ na bibhrati
 > anarthāya bhaveyuḥ sma

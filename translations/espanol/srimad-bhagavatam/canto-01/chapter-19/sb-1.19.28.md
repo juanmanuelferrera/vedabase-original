@@ -1,5 +1,8 @@
 ### SB 1.19.28
 
+> श्यामं सदापीव्यवयोऽङ्गलक्ष्म्या स्त्रीणां मनोज्ञं रुचिरस्मितेन ।
+> प्रत्युत्थितास्ते मुनयः स्वासनेभ्यस्तल्लक्षणज्ञा अपि गूढवर्चसम् ॥२८॥
+
 > śyāmaṁ sadāpīvya-vayo-'ṅga-lakṣmyā
 > strīṇāṁ mano-jñaṁ rucira-smitena
 > pratyutthitās te munayaḥ svāsanebhyas

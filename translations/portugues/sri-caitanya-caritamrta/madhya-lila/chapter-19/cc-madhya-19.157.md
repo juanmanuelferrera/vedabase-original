@@ -1,5 +1,8 @@
 ### CC Madhya 19.157
 
+> তাতে মালী যত্ন করি’ করে আবরণ ।
+> অপরাধ-হস্তীর যৈছে না হয় উদ্গম ॥১৫৭॥
+
 tāte mālī yatna kari' kare āvaraṇa
 
 aparādha-hastīra yaiche nā haya udgama

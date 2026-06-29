@@ -1,5 +1,8 @@
 ### CC Madhya 20.133
 
+> ‘পশ্চিমে’ খুদিবে, তাহা ‘যক্ষ’ এক হয় ।
+> সে বিঘ্ন করিবে, — ধনে হাত না পড়য় ॥১৩৩॥
+
 > 'paścime' khudibe, tāhā 'yakṣa' eka haya
 > se vighna karibe,—dhane hāta nā paḍaya
 

@@ -1,5 +1,7 @@
 ### SB 5.18.24
 
+> रम्यके च भगवतः प्रियतमं मात्स्यमवताररूपं तद्वर्षपुरुषस्य मनोः प्राकप्रदर्शितं स इदानीमपि महता भक्तियोगेनाराधयतीदं चोदाहरति ॥२४॥
+
 > ramyake ca bhagavataḥ priyatamaṁ mātsyam avatāra-rūpaṁ tad-varṣa-puruṣasya manoḥ prāk-pradarśitaṁ sa idānīm api mahatā bhakti-yogenārādhayatīdaṁ codāharati.
 
 *ramyake ca*—also in Ramyaka-varṣa; *bhagavataḥ*—of the Supreme Personality of Godhead; *priya-tamam*—the foremost; *mātsyam*—fish; *avatāra-rūpam*—the form of the incarnation; *tat-varṣa-puruṣasya*—of the ruler of that land; *manoḥ*—Manu; *prāk*—previously (at the end of the Cākṣuṣa-manvantara); *pradarśitam*—exhibited; *saḥ*—that Manu; *idānīm api*—even until now; *mahatā bhakti-yogena*—by dint of advanced devotional service; *ārādhayati*—worships the Supreme Personality of Godhead; *idam*—this; *ca*—and; *udāharati*—chants.

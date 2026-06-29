@@ -1,5 +1,8 @@
 ### CC Adi 4.97
 
+> মৃগমদ, তার গন্ধ — যৈছে অবিচ্ছেদ ।
+> অগ্নি, জ্বালাতে — যৈছে কভু নাহি ভেদ ॥৯৭॥
+
 > mṛgamada, tāra gandha—yaiche aviccheda
 > agni, jvālāte—yaiche kabhu nāhi bheda
 

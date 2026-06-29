@@ -1,5 +1,8 @@
 ### CC Antya 18.82
 
+> তীরে রহি’ দেখি আমি সখীগণ-সঙ্গে ।
+> একসখী সখীগণে দেখায় সেই রঙ্গে ॥৮২॥
+
 tīre rahi' dekhi āmi sakhī-gaṇa-saṅge
 
 eka-sakhī sakhī-gaṇe dekhāya sei raṅge

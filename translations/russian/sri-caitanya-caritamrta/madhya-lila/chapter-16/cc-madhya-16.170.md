@@ -1,5 +1,8 @@
 ### CC Madhya 16.170
 
+> ‘বিশ্বাস’ আসিয়া প্রভুর চরণ বন্দিল ।
+> ‘কৃষ্ণ’ ‘কৃষ্ণ’ কহি’ প্রেমে বিহ্বল হইল ॥১৭০॥
+
 > 'viśvāsa' āsiyā prabhura caraṇa vandila
 > 'kṛṣṇa' 'kṛṣṇa' kahi' preme vihvala ha-ila
 

@@ -1,5 +1,8 @@
 ### CC Adi 17.167
 
+> তোমা-সবার শাস্ত্রকর্তাং — সেহ ভ্রান্ত হৈল ।
+> না জানি’ শাস্ত্রের মর্ম ঐছে আজ্ঞা দিল ॥১৬৭॥
+
 > tomā-sabāra śāstra-kartā—seha bhrānta haila
 > nā jāni' śāstrera marma aiche ājñā dila
 

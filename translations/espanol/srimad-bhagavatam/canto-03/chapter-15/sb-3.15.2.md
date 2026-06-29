@@ -1,5 +1,8 @@
 ### SB 3.15.2
 
+> लोके तेनाहतालोके लोकपाला हतौजसः ।
+> न्यवेदयन्विश्वसृजे ध्वान्तव्यतिकरं दिशाम् ॥२॥
+
 > loke tenāhatāloke
 > loka-pālā hataujasaḥ
 > nyavedayan viśva-sṛje

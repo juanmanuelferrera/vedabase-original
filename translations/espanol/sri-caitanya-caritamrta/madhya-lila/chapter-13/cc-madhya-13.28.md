@@ -1,5 +1,8 @@
 ### CC Madhya 13.28
 
+> ক্ষণে স্থির হঞা রহে, টানিলেহ না চলে ৷
+> ঈশ্বর-ইচ্ছায় চলে, না চলে কারো বলে ॥২৮॥
+
 > kṣaṇe sthira hañā rahe, ṭānileha nā cale
 > īśvara-icchāya cale, nā cale kāro bale
 

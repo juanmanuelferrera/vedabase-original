@@ -1,5 +1,8 @@
 ### SB 6.1.54
 
+> लब्ध्वा निमित्तमव्यक्तं व्यक्ताव्यक्तं भवत्युत
+> यथायोनि यथाबीजं स्वभावेन बलीयसा ॥५४॥
+
 > labdhvā nimittam avyaktaṁ
 > vyaktāvyaktaṁ bhavaty uta
 > yathā-yoni yathā-bījaṁ

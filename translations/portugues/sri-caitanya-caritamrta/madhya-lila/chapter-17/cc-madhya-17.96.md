@@ -1,5 +1,8 @@
 ### CC Madhya 17.96
 
+> ষড়্ দর্শন-ব্যাখ্যা বিনা কথা নাহি এথা ।
+> মিশ্র কৃপা করি’ মোরে শুনান কৃষ্ণকথা ॥৯৬॥
+
 ṣaḍ-darśana-vyākhyā vinā kathā nāhi ethā
 
 miśra kṛpā kari' more śunāna kṛṣṇa-kathā

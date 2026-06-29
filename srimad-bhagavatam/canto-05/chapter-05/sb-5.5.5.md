@@ -1,5 +1,8 @@
 ### SB 5.5.5
 
+> पराभवस्तावदबोधजातो यावन्न जिज्ञआसत आत्मतत्त्वम
+> यावत्क्रियास्तावदिदं मनो वै कर्मात्मकं येन शरीरबन्धः ॥५॥
+
 > parābhavas tāvad abodha-jāto
 > yāvan na jijñāsata ātma-tattvam
 > yāvat kriyās tāvad idaṁ mano vai

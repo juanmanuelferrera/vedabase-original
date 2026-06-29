@@ -1,5 +1,10 @@
 ### CC Madhya 2.77
 
+> চণ্ডীদাস, বিদ্যাপতি, রায়ের নাটক-গীতি,
+> কর্ণামৃত, শ্রীগীতগোবিন্দ ।
+> স্বরূপ-রামানন্দ-সনে, মহাপ্রভু রাত্রি-দিনে,
+> গায়, শুনে — পরম আনন্দ ॥৭৭॥
+
 caṇḍīdāsa, vidyāpati, rāyera nāṭaka-gīti,
 karṇāmṛta, śrī-gīta-govinda
 svarūpa-rāmānanda-sane, mahāprabhu rātri-dine,

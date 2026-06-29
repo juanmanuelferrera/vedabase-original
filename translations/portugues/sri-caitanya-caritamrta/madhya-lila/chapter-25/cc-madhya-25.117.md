@@ -1,5 +1,8 @@
 ### CC Madhya 25.117
 
+> যৈছে সূর্যের স্থানে ভাসয়ে ‘আভাস’ ।
+> সূর্য বিনা স্বতন্ত্র তার না হয় প্রকাশ ॥১১৭॥
+
 yaiche sūryera sthāne bhāsaye 'ābhāsa'
 
 sūrya vinā svatantra tāra nā haya prakāśa

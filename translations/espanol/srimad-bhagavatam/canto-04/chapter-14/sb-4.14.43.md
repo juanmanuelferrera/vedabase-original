@@ -1,5 +1,8 @@
 ### SB 4.14.43
 
+> विनिश्चित्यैवमृषयो विपन्नस्य महीपतेः ।
+> ममन्थुरूरुं तरसा तत्रासीद्बाहुको नरः ॥४३॥
+
 > viniścityaivam ṛṣayo
 > vipannasya mahīpateḥ
 > mamanthur ūruṁ tarasā

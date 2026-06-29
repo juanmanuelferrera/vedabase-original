@@ -1,5 +1,8 @@
 ### CC Madhya 14.152
 
+> কেহ ‘প্রখরা’, কেহ ‘মৃদু’, কেহ হয় ‘সমা’ ৷
+> স্ব-স্বভাবে কৃষ্ণের বাড়ায় প্রেম-সীমা ॥১৫২॥
+
 keha 'prakharā', keha 'mṛdu', keha haya 'samā'
 
 sva-svabhāve kṛṣṇera bāḍāya prema-sīmā

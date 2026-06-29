@@ -1,5 +1,8 @@
 ### SB 8.16.42
 
+> जपेदष्टोत्तरशतं स्तुवीत स्तुतिभिः प्रभुम
+> कृत्वा प्रदक्षिणं भूमौ प्रणमेद्दण्डवन्मुदा ॥४२॥
+
 > japed aṣṭottara-śataṁ
 > stuvīta stutibhiḥ prabhum
 > kṛtvā pradakṣiṇaṁ bhūmau

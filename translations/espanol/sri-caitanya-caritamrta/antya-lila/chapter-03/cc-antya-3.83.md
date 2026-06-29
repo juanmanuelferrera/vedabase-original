@@ -1,5 +1,8 @@
 ### CC Antya 3.83
 
+> পূর্বে যেন ব্রজে কৃষ্ণ করি’ অবতার ।
+> সকল ব্রহ্মাণ্ড-জীবের খণ্ডাইলা সংসার ॥৮৩॥
+
 > pūrve yena vraje kṛṣṇa kari' avatāra
 > sakala brahmāṇḍa-jīvera khaṇḍāilā saṁsāra
 

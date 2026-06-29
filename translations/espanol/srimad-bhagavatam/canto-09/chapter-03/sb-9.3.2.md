@@ -1,5 +1,8 @@
 ### SB 9.3.2
 
+> सुकन्या नाम तस्यासीत्कन्या कमललोचना
+> तया सार्धं वनगतो ह्यगमच्च्यवनाश्रमम ॥२॥
+
 > sukanyā nāma tasyāsīt
 > kanyā kamala-locanā
 > tayā sārdhaṁ vana-gato

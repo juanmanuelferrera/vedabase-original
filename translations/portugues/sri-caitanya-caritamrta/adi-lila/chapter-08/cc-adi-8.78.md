@@ -1,5 +1,8 @@
 ### CC Adi 8.78
 
+> এই গ্রন্থ লেখায় মোরে ‘মদনমোহন’ ।
+> আমার লিখন যেন শুকের পঠন ॥৭৮॥
+
 ei grantha lekhāya more 'madana-mohana'
 
 āmāra likhana yena śukera paṭhana

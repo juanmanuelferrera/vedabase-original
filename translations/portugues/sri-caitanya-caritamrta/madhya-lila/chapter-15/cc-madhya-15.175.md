@@ -1,5 +1,8 @@
 ### CC Madhya 15.175
 
+> অনন্ত ঐশ্বর্য কৃষ্ণের বৈকুণ্ঠাদি-ধাম ।
+> তার গড়খাই — কারণাব্ধি যার নাম ॥১৭৫॥
+
 ananta aiśvarya kṛṣṇera vaikuṇṭhādi-dhāma
 
 tāra gaḍa-khāi--kāraṇābdhi yāra nāma

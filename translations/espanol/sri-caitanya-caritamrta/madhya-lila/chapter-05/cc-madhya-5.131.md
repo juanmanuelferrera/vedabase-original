@@ -1,5 +1,8 @@
 ### CC Madhya 5.131
 
+> স্বপ্নে দেখি’ সেই রাণী রাজাকে কহিল ৷
+> রাজাসহ মুক্তা লঞা মন্দিরে আইল ॥১৩১॥
+
 > svapne dekhi' sei rāṇī rājāke kahila
 > rājā-saha muktā lañā mandire āila
 

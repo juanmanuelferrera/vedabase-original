@@ -1,5 +1,7 @@
 ### CC Antya 1.84
 
+> ‘গূঢ় মোর হৃদয় তুঞি জানিলা কেমনে ?’ এত কহি’ রূপে কৈলা দৃঢ় আলিঙ্গনে ॥৮৪॥
+
 > 'gūḍha mora hṛdaya tuñi jānilā kemane?'
 > eta kahi' rūpe kailā dṛḍha āliṅgane
 

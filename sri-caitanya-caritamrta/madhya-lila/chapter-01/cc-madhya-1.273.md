@@ -1,5 +1,8 @@
 ### CC Madhya 1.273
 
+> জয় জয় মহাপ্রভু — ব্রজেন্দ্রকুমার ।
+> জগৎ তারিতে প্রভু, তোমার অবতার ॥২৭৩॥
+
 > jaya jaya mahāprabhu—vrajendra-kumāra
 > jagat tārite prabhu, tomāra avatāra
 

@@ -1,5 +1,8 @@
 ### CC Antya 8.66
 
+> যথাযোগ্য উদর ভরে, না করে ‘বিষয়’ ভোগ ।
+> সন্ন্যাসীর তবে সিদ্ধ হয় জ্ঞানযোগ ॥৬৬॥
+
 > yathā-yogya udara bhare, nā kare 'viṣaya' bhoga
 > sannyāsīra tabe siddha haya jñāna-yoga
 

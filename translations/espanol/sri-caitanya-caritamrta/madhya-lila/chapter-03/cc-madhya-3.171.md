@@ -1,5 +1,8 @@
 ### CC Madhya 3.171
 
+> যাবৎ আচার্যগৃহে নিমাঞির অবস্থান ।
+> মুঞি ভিক্ষা দিমু, সবাকারে মাগোঁ দান ॥১৭১॥
+
 > yāvat ācārya-gṛhe nimāñira avasthāna
 > muñi bhikṣā dimu, sabākāre māgoṅ dāna
 

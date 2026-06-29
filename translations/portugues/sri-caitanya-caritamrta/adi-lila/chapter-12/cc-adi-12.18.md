@@ -1,5 +1,8 @@
 ### CC Adi 12.18
 
+> কৃষ্ণমিশ্র-নাম আর আচার্য তনয় ।
+> চৈতন্য-গোসাঞি বৈসে যাঁহার হৃদয় ॥১৮॥
+
 kṛṣṇa-miśra-nāma āra ācārya-tanaya
 
 caitanya-gosāñi baise yāṅhāra hṛdaya

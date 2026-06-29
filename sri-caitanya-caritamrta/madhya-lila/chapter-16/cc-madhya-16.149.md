@@ -1,5 +1,8 @@
 ### CC Madhya 16.149
 
+> ‘প্রেমের বিবর্ত’ ইহা শুনে যেই জন ।
+> অচিরে মিলিয়ে তাঁরে চৈতন্য-চরণ ॥১৪৯॥
+
 > 'premera vivarta' ihā śune yei jana
 > acire miliye tāṅre caitanya-caraṇa
 

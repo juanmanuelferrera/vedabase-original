@@ -1,5 +1,8 @@
 ### CC Madhya 19.40
 
+> গঙ্গা-যমুনা প্রয়াগ নারিল ডুবাইতে ।
+> প্রভু ডুবাইল কৃষ্ণপ্রেমের বন্যাতে ॥৪০॥
+
 > gaṅgā-yamunā prayāga nārila ḍubāite
 > prabhu ḍubāila kṛṣṇa-premera vanyāte
 

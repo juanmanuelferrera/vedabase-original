@@ -1,5 +1,8 @@
 ### CC Antya 17.23
 
+> বেণু-শব্দ শুনি’ আমি গেলাঙ বৃন্দাবন ।
+> দেখি, — গোষ্ঠে বেণু বাজায় ব্রজেন্দ্রনন্দন ॥২৩॥
+
 > veṇu-śabda śuni' āmi gelāṅa vṛndāvana
 > dekhi,—goṣṭhe veṇu bājāya vrajendra-nandana
 

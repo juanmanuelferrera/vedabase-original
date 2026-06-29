@@ -1,5 +1,8 @@
 ### CC Adi 12.78
 
+> শাখা-উপশাখা, তার নাহিক গণন ।
+> কিছুমাত্র কহি’ করি দিগ্দরশন ॥৭৮॥
+
 > śākhā-upaśākhā, tāra nāhika gaṇana
 > kichu-mātra kahi' kari dig-daraśana
 

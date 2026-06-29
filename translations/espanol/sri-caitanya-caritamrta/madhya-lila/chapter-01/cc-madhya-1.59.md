@@ -1,5 +1,8 @@
 ### CC Madhya 1.59
 
+> এই শ্লোকের অর্থ জানে একলে স্বরূপ ।
+> দৈবে সে বৎসর তাহাঁ গিয়াছেন রূপ ॥৫৯॥
+
 > ei ślokera artha jāne ekale svarūpa
 > daive se vatsara tāhāṅ giyāchena rūpa
 

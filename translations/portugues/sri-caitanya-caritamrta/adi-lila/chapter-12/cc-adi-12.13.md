@@ -1,5 +1,8 @@
 ### CC Adi 12.13
 
+> অচ্যুতানন্দ — বড় শাখা, আচার্য-নন্দন ।
+> আজন্ম সেবিলা তেঁহো চৈতন্য-চরণ ॥১৩॥
+
 acyutānanda--baḍa śākhā, ācārya-nandana
 ājanma sevilā teṅho caitanya-caraṇa
 

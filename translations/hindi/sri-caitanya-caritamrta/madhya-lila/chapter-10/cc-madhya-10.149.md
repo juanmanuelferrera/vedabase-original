@@ -1,5 +1,8 @@
 ### CC Madhya 10.149
 
+> ছোট-বড়-কীর্তনীয়া — দুই হরিদাস ।
+> রামাই, নন্দাই রহে গোবিন্দের পাশ ॥১৪৯॥
+
 > choṭa-baḍa-kīrtanīyā-dui haridāsa
 > rāmāi, nandāi rahe govindera pāśa
 

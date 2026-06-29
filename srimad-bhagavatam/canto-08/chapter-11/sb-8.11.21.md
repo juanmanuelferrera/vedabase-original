@@ -1,5 +1,8 @@
 ### SB 8.11.21
 
+> हरीन्दशशतान्याजौ हर्यश्वस्य बलः शरैः
+> तावद्भिरर्दयामास युगपल्लघुहस्तवान ॥२१॥
+
 > harīn daśa-śatāny ājau
 > haryaśvasya balaḥ śaraiḥ
 > tāvadbhir ardayām āsa

@@ -1,5 +1,8 @@
 ### CC Madhya 17.137
 
+> ব্রহ্মানন্দ হৈতে পূর্ণানন্দ লীলারস ।
+> ব্রহ্মজ্ঞানী আকর্ষিয়া করে আত্মবশ ॥১৩৭॥
+
 brahmānanda haite pūrṇānanda līlā-rasa
 
 brahma-jñānī ākarṣiyā kare ātma-vaśa

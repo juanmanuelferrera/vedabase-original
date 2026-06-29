@@ -1,5 +1,8 @@
 ### CC Madhya 22.116
 
+> কৃষ্ণপ্রীত্যে ভোগত্যাগ, কৃষ্ণতীর্থে বাস ।
+> যাবন্নিৰ্বাহ-প্রতিগ্রহ, একাদশ্যুপবাস ॥১১৬॥
+
 kṛṣṇa-prītye bhoga-tyāga, kṛṣṇa-tīrthe vāsa
 
 yāvan-nirvāha-pratigraha, ekādaśy-upavāsa

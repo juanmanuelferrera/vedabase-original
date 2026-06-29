@@ -1,5 +1,8 @@
 ### CC Madhya 9.160
 
+> কৃপা করি’ কহিলে মোরে কৃষ্ণের মহিমা ।
+> যাঁর রূপ-গুণৈশ্বর্যের কেহ না পায় সীমা ॥১৬০॥
+
 > kṛpā kari' kahile more kṛṣṇera mahimā
 > yāṅra rūpa-guṇaiśvaryera keha nā pāya sīmā
 

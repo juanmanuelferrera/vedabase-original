@@ -1,5 +1,8 @@
 ### SB 8.9.2
 
+> अहो रूपमहो धाम अहो अस्या नवं वयः
+> इति ते तामभिद्रुत्य पप्रच्छुर्जातहृच्छयाः ॥२॥
+
 > aho rūpam aho dhāma
 > aho asyā navaṁ vayaḥ
 > iti te tām abhidrutya

@@ -1,5 +1,7 @@
 ### SB 5.20.44
 
+> मृतेऽण्ड एष एतस्मिन्यदभूत्ततो मार्तण्ड इति व्यपदेशः हिरण्यगर्भ इति यद्धिरण्याण्डसमुद्भवः ॥४४॥
+
 mṛte 'ṇḍa eṣa etasmin yad abhūt tato mārtaṇḍa iti vyapadeśaḥ; *hiraṇyagarbha iti yad dhiraṇyāṇḍa*-samudbhavaḥ.
 
 *mṛte*—morto; *aṇḍe*—no globo; *eṣaḥ*—este; *etasmin*—neste; *yat*—que; *abhūt*—entrou pessoalmente no momento da criação; *tataḥ*—disso; *mārtaṇḍa*—Mārtaṇḍa; *iti*—assim; *vyapadeśaḥ*—a designação; *hiraṇya-garbhaḥ*—conhecido como Hiraṇyagarbha; *iti*—assim; *yat*—porque; *hiraṇya-aṇḍa-samudbhavaḥ*—seu corpo material foi criado a partir de Hiraṇyagarbha.

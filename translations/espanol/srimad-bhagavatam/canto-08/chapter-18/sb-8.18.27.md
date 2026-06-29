@@ -1,5 +1,8 @@
 ### SB 8.18.27
 
+> स्वागतेनाभिनन्द्याथ पादौ भगवतो बलिः
+> अवनिज्यार्चयामास मुक्तसङ्गमनोरमम ॥२७॥
+
 > svāgatenābhinandyātha
 > pādau bhagavato baliḥ
 > avanijyārcayām āsa

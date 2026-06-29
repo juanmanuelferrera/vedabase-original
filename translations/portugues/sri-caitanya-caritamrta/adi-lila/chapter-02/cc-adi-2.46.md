@@ -1,5 +1,8 @@
 ### CC Adi 2.46
 
+> নারের অয়ন যাতে কর দরশন ।
+> তাহাতেও হও তুমি মূল নারায়ণ ॥৪৬॥
+
 nārera ayana yāte kara daraśana
 
 tāhāteo hao tumi mūla nārāyaṇa

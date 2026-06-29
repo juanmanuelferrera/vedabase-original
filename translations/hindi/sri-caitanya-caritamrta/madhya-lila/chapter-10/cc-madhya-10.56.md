@@ -1,5 +1,8 @@
 ### CC Madhya 10.56
 
+> এই বাণীনাথ রহিবে তোমার চরণে ।
+> যবে যেই আজ্ঞা, তাহা করিবে সেবনে ॥৫৬॥
+
 > ei vāṇīnātha rahibe tomara caraṇe
 > yabe yei ājñā, tāhā karibe sevane
 

@@ -1,5 +1,10 @@
 ### CC Madhya 16.162-163
 
+> প্রভুর সেই অদভুত চরিত্র দেখিয়া ।
+> হিন্দু-চর কহে সেই যবন-পাশ গিয়া ॥১৬২॥
+> ‘এক সন্ন্যাসী আইল জগন্নাথ হইতে ।
+> অনেক সিদ্ধ-পুরুষ হয় তাঁহার সহিতে ॥১৬৩॥
+
 > prabhura sei adabhuta caritra dekhiyā
 > hindu-cara kahe sei yavana-pāśa giyā
 > 'eka sannyāsī āila jagannātha ha-ite

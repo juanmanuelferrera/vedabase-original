@@ -1,5 +1,10 @@
 ### CC Antya 15.24
 
+> এত কহি’ গৌরহরি, দুইজনার কণ্ঠ ধরি’,
+> কহে, — ‘শুন, স্বরূপ-রামরায় ।
+> কাহাঁ করোঁ, কাহাঁ যাঙ, কাহাঁ গেলে কৃষ্ণ পাঙ,
+> দুঁহে মোরে কহ সে উপায়’ ॥২৪॥
+
 > eta kahi' gaurahari, dui-janāra kaṇṭha dhari',
 > kahe,—'śuna, svarūpa-rāmarāya
 > kāhāṅ karoṅ, kāhāṅ yāṅa, kāhāṅ gele kṛṣṇa pāṅa,

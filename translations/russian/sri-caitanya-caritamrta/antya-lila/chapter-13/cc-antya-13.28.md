@@ -1,5 +1,8 @@
 ### CC Antya 13.28
 
+> প্রভু-আজ্ঞা বিনা তাহাঁ যাইতে না পারি  ।
+> এবে আজ্ঞা না দেন মোরে, ‘ক্রোধে যাহ’ বলি ॥২৮॥
+
 > prabhu-ājñā vinā tāhāṅ yāite nā pāri
 > ebe ājñā nā dena more, 'krodhe yāha' bali
 

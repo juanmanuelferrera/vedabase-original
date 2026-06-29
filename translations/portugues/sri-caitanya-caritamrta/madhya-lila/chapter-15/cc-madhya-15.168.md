@@ -1,5 +1,8 @@
 ### CC Madhya 15.168
 
+> অসমর্থ নহে কৃষ্ণ, ধরে সর্ব বল ।
+> তোমাকে বা কেনে ভুঞ্জাইবে পাপ-ফল? ॥১৬৮॥
+
 asamartha nahe kṛṣṇa, dhare sarva bala
 
 tomāke vā kene bhuñjāibe pāpa-phala?

@@ -1,5 +1,8 @@
 ### SB 6.11.27
 
+> ममोत्तमश्लोकजनेषु सख्यं संसारचक्रे भ्रमतः स्वकर्मभिः
+> त्वन्माययात्मात्मजदारगेहेष्वासक्तचित्तस्य न नाथ भूयात ॥२७॥
+
 > mamottamaśloka-janeṣu sakhyaṁ
 > saṁsāra-cakre bhramataḥ sva-karmabhiḥ
 > tvan-māyayātmātmaja-dāra-geheṣv

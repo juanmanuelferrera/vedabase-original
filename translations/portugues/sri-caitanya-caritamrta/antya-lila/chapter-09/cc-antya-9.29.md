@@ -1,5 +1,8 @@
 ### CC Antya 9.29
 
+> রাজা বলে, — “যেই ভাল, সেই কর যায় ।
+> যে উপায়ে কৌড়ি পাই, কর সে উপায় ।।” ॥ ২৯ ॥
+
 rājā bale,--"yei bhāla, sei kara yāya
 
 ye upāye kauḍi pāi, kara se upāya"

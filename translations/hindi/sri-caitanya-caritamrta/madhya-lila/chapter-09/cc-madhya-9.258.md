@@ -1,5 +1,8 @@
 ### CC Madhya 9.258
 
+> প্রভু কহে, — শাস্ত্রে কহে শ্রবণ-কীর্তন ।
+> কৃষ্ণপ্রেমসেবা-ফলের ‘পরম সাধন’ ॥২৫৮॥
+
 > prabhu kahe,--śāstre kahe śravaṇa-kīrtana
 > kṛṣṇa-prema-sevā-phalera 'parama-sādhana'
 

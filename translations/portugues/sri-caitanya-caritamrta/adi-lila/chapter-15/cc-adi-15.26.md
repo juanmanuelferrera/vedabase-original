@@ -1,5 +1,8 @@
 ### CC Adi 15.26
 
+> গৃহিণী বিনা গৃহধর্ম না হয় শোভন ।
+> এত চিন্তি’ বিবাহ করিতে হৈল মন ॥২৬॥
+
 gṛhiṇī vinā gṛha-dharma nā haya śobhana
 eta cinti' vivāha karite haila mana
 

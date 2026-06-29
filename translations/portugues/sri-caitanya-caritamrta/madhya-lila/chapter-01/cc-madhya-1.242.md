@@ -1,5 +1,8 @@
 ### CC Madhya 1.242
 
+> দণ্ডবৎ করি’ রূপ ভূমিতে পড়িলা ।
+> পরম আনন্দে প্রভু আলিঙ্গন দিলা ॥২৪২॥
+
 daṇḍavat kari' rūpa bhūmite paḍilā
 
 parama ānande prabhu āliṅgana dilā

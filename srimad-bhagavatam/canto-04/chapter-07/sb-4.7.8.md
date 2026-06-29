@@ -1,5 +1,8 @@
 ### SB 4.7.8
 
+> विधाय कार्त्स्न्येन च तद्यदाह भगवान्भवः ।
+> सन्दधुः कस्य कायेन सवनीयपशोः शिरः ॥८॥
+
 > vidhāya kārtsnyena ca tad
 > yad āha bhagavān bhavaḥ
 > sandadhuḥ kasya kāyena

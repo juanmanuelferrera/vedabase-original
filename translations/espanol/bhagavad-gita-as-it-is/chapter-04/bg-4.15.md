@@ -1,5 +1,8 @@
 ### Bg 4.15
 
+> एवं ज्ञात्वा कृतं कर्म पूर्वैरपि मुमुक्षुभिः ।
+> कुरु कर्मैव तस्मात्त्वं पूर्वैः पूर्वतरं कृतम् ॥१५॥
+
 > evaṁ jñātvā kṛtaṁ karma
 > pūrvair api mumukṣubhiḥ
 > kuru karmaiva tasmāt tvaṁ

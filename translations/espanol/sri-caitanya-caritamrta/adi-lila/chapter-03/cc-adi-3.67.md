@@ -1,5 +1,8 @@
 ### CC Adi 3.67
 
+> আঙ্গোপাঙ্গ অস্ত্র করে স্বকার্যসাধন ।
+> ‘অঙ্গ’-শব্দের অর্থ আর শুন দিয়া মন ॥৬৭॥
+
 > āṅgopāṅga astra kare sva-kārya-sādhana
 > 'aṅga'-śabdera artha āra śuna diyā mana
 

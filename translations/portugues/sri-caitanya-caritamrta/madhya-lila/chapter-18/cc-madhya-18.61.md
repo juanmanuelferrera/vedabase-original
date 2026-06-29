@@ -1,5 +1,8 @@
 ### CC Madhya 18.61
 
+> শুনি’ মহাপ্রভু মনে আনন্দ পাঞা ।
+> ‘তিন’ মূর্তি দেখিলা সেই গোফা উঘাড়িয়া ॥৬১॥
+
 śuni' mahāprabhu mane ānanda pāñā
 
 'tina' mūrti dekhilā sei gophā ughāḍiyā

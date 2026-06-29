@@ -1,5 +1,8 @@
 ### CC Antya 12.99
 
+> চৈতন্যের মর্মকথা শুনে তাঁর মুখে ।
+> আপনা পাসরে সবে চৈতন্য-কথা-সুখে ॥৯৯॥
+
 > caitanyera marma-kathā śune tāṅra mukhe
 > āpanā pāsare sabe caitanya-kathā-sukhe
 

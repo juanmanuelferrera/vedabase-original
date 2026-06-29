@@ -1,5 +1,8 @@
 ### CC Antya 1.85
 
+> সেই শ্লোক লঞা প্রভু স্বরূপে দেখাইলা  ।
+> স্বরূপের পরীক্ষা লাগি’ তাঁহারে পুছিলা ॥৮৫॥
+
 sei śloka lañā prabhu svarūpe dekhāilā
 
 svarūpera parīkṣā lāgi' tāṅhāre puchilā

@@ -1,5 +1,8 @@
 ### SB 5.26.1
 
+> राजोवाच
+> महर्ष एतद्वैचित्र्यं लोकस्य कथमिति ॥१॥
+
 rājovāca
 
 maharṣa etad vaicitryaṁ lokasya katham iti.

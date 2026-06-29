@@ -1,5 +1,8 @@
 ### CC Madhya 16.290
 
+> শ্রী রূপ-রঘুনাথ-পদে যার আশ ।
+> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥২৯০॥
+
 śrī-rūpa-raghunātha pade yāra āśa
 
 śrī-caitanya-caritāmṛta kahe kṛṣṇadāsa

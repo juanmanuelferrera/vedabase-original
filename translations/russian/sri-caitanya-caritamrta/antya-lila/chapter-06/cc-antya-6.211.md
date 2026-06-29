@@ -1,5 +1,8 @@
 ### CC Antya 6.211
 
+> রঘুনাথ সমুদ্রে যাঞা স্নান করিলা ।
+> জগন্নাথ দেখি’ পুনঃ গোবিন্দ-পাশ আইলা ॥২১১॥
+
 > raghunātha samudre yāñā snāna karilā
 > jagannātha dekhi' punaḥ govinda-pāśa āilā
 

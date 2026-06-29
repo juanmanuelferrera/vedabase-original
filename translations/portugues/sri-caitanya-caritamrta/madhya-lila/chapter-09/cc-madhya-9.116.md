@@ -1,5 +1,8 @@
 ### CC Madhya 9.116
 
+> তার স্পর্শে নাহি যায় পতিব্রতা-ধর্ম ৷
+> কৌতুকে লক্ষ্মী চাহেন কৃষ্ণের সঙ্গম ৷৷ ১১৬ ৷৷ ॥১১৬॥
+
 tāra sparśe nāhi yāya pativratā-dharma
 kautuke lakṣmī cāhena kṛṣṇera saṅgama
 

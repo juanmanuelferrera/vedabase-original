@@ -1,5 +1,8 @@
 ### CC Adi 10.66
 
+> ‘রত্নবাহু’ বলি’ প্রভু থুইল তাঁর নাম ।
+> অকিঞ্চন প্রভুর প্রিয় কৃষ্ণদাস-নাম ॥৬৬॥
+
 'ratnabāhu' bali' prabhu thuila tāṅra nāma
 
 akiñcana prabhura priya kṛṣṇadāsa-nāma

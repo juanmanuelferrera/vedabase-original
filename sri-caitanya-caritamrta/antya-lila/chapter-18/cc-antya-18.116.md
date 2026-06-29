@@ -1,5 +1,8 @@
 ### CC Antya 18.116
 
+> কৃষ্ণনাম লইতে তোমার ‘অর্ধবাহ্য’ হইল ।
+> তাতে যে প্রলাপ কৈলা, তাহা যে শুনিল ।।” ॥ ১১৬ ॥
+
 > kṛṣṇa-nāma la-ite tomāra 'ardha-bāhya' ha-ila
 > tāte ye pralāpa kailā, tāhā ye śunila"
 

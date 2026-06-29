@@ -1,5 +1,8 @@
 ### CC Madhya 15.277
 
+> উঠহ, অমোঘ, তুমি লও কৃষ্ণনাম ।
+> অচিরে তোমারে কৃপা করিবে ভগবান্ ॥২৭৭॥
+
 uṭhaha, amogha, tumi lao kṛṣṇa-nāma
 
 acire tomāre kṛpā karibe bhagavān

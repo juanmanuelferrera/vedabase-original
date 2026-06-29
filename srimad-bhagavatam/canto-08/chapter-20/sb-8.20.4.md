@@ -1,5 +1,8 @@
 ### SB 8.20.4
 
+> न ह्यसत्यात्परोऽधर्म इति होवाच भूरियम
+> सर्वं सोढुमलं मन्ये ऋतेऽलीकपरं नरम ॥४॥
+
 > na hy asatyāt paro 'dharma
 > iti hovāca bhūr iyam
 > sarvaṁ soḍhum alaṁ manye

@@ -1,5 +1,8 @@
 ### CC Madhya 6.219
 
+> অরুণোদয়-কালে হৈল প্রভুর আগমন ।
+> সেইকালে ভট্টাচার্যের হৈল জাগরণ ॥২১৯॥
+
 > aruṇodaya-kāle haila prabhura āgamana
 > sei-kāle bhaṭṭācāryera haila jāgaraṇa
 

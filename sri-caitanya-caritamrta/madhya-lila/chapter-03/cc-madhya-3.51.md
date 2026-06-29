@@ -1,5 +1,8 @@
 ### CC Madhya 3.51
 
+> বত্তিশা-আঠিয়া কলার ডোঙ্গা বড় বড় ।
+> চলে হালে নাহি, — ডোঙ্গা অতি বড় দড় ॥৫১॥
+
 > battiśā-āṭhiyā kalāra ḍoṅgā baḍa baḍa
 > cale hāle nāhi,—ḍoṅgā ati baḍa daḍa
 

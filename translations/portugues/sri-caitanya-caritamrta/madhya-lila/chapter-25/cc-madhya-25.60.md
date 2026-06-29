@@ -1,5 +1,8 @@
 ### CC Madhya 25.60
 
+> হেনকালে মহাপ্ৰভু পঞ্চনদে স্নান করি’ ।
+> দেখিতে চলিয়াছেন ‘বিন্দুমাধব হরি’ ॥৬০॥
+
 hena-kāle mahāprabhu pañca-nade snāna kari'
 
 dekhite caliyāchena 'bindu-mādhava hari'

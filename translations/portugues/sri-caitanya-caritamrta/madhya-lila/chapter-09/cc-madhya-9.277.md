@@ -1,5 +1,8 @@
 ### CC Madhya 9.277
 
+> সবে, এক গুণ দেখি তোমার সম্প্রদায়ে ৷
+> সত্যবিগ্রহ করি’ ঈশ্বরে করহ নিশ্চয়ে ৷৷ ২৭৭ ৷৷ ॥২৭৭॥
+
 sabe, eka guṇa dekhi tomāra sampradāye
 
 satya-vigraha kari' īśvare karaha niścaye

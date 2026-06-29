@@ -1,5 +1,8 @@
 ### CC Antya 3.11
 
+> অন্যোপদেশে পণ্ডিত — কহে গোসাঞির ঠাঞি ।
+> ‘গোসাঞি’ ‘গোসাঞি’ এবে জানিমু ‘গোসাঞি’ ॥১১॥
+
 > anyopadeśe paṇḍita--kahe gosāñira ṭhāñi
 > 'gosāñi"gosāñi' ebe jānimu 'gosāñi'
 

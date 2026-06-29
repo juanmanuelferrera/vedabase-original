@@ -1,5 +1,8 @@
 ### CC Adi 5.39
 
+> সিদ্ধলোকস্তু তমসঃ পারে যত্র বসন্তি হি ।
+> সিদ্ধা ব্রহ্মসুখে মগ্না দৈত্যাশ্চ হরিণা হতাঃ ॥৩৯॥
+
 > siddha-lokas tu tamasaḥ
 > pāre yatra vasanti hi
 > siddhā brahma-sukhe magnā

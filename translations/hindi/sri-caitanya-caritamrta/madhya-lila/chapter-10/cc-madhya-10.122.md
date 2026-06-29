@@ -1,5 +1,8 @@
 ### CC Madhya 10.122
 
+> তুমি যে আসিবে, আজি স্বপ্নেতে দেখিল ।
+> ভাল হৈল, অন্ধ যেন দুই নেত্র পাইল ॥১২২॥
+
 > tumi ye āsibe, āji svapnete dekhila
 > bhāla haila, andha yena dui netra pāila
 

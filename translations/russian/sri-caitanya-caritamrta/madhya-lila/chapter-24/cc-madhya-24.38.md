@@ -1,5 +1,8 @@
 ### CC Madhya 24.38
 
+> সর্বাকর্ষক, সর্বাহ্লাদক, মহারসায়ন ।
+> আপনার বলে করে সর্ব-বিস্মারণ ॥৩৮॥
+
 > sarvākarṣaka, sarvāhlādaka, mahā-rasāyana
 > āpanāra bale kare sarva-vismāraṇa
 

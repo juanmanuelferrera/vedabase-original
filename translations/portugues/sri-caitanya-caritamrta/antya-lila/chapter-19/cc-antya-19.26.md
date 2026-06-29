@@ -1,5 +1,8 @@
 ### CC Antya 19.26
 
+> উপাসনা লাগি’ দেবের করেন আবাহন ।
+> পূজা লাগি’ কত কাল করেন নিরোধন ॥২৬॥
+
 upāsanā lāgi' devera karena āvāhana
 
 pūjā lāgi' kata kāla karena nirodhana

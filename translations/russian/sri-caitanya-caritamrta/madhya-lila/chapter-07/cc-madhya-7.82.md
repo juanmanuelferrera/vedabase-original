@@ -1,5 +1,8 @@
 ### CC Madhya 7.82
 
+> দেখি’ নিত্যানন্দ প্রভু কহে ভক্তগণে ।
+> এইরূপে নৃত্য আগে হবে গ্রামে-গ্রামে ॥৮২॥
+
 > dekhi' nityānanda prabhu kahe bhakta-gaṇe
 > ei-rūpe nṛtya āge habe grāme-grāme
 

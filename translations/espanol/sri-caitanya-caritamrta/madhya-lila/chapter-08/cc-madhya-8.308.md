@@ -1,5 +1,8 @@
 ### CC Madhya 8.308
 
+> চৈতন্যের গূঢ়তত্ত্ব জানি ইহা হৈতে ৷
+> বিশ্বাস করি’ শুন, তর্ক না করিহ চিত্তে ৷৷ ৩০৮ ৷৷ ॥৩০৮॥
+
 > caitanyera gūḍha-tattva jāni ihā haite
 > viśvāsa kari' śuna, tarka nā kariha citte
 

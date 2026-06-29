@@ -1,5 +1,8 @@
 ### CC Madhya 18.17
 
+> প্রেমে মত্ত চলি’ আইলা গোবর্ধন-গ্রাম ।
+> ‘হরিদেব’ দেখি’ তাহাঁ হইলা প্রণাম ॥১৭॥
+
 > preme matta cali' āilā govardhana-grāma
 > 'harideva' dekhi' tāhāṅ ha-ilā praṇāma
 

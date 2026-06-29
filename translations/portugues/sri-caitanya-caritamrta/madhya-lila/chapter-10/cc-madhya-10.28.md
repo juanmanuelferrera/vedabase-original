@@ -1,5 +1,8 @@
 ### CC Madhya 10.28
 
+> ভট্টাচার্য কহে, — কালি কাশীমিশ্রের ঘরে ৷
+> প্রভু যাইবেন, তাহাঁ মিলাব সবারে ৷৷ ২৮ ৷৷ ॥২৮॥
+
 bhaṭṭācārya kahe,-kāli kāśī-miśrera ghare
 
 prabhu yāibena, tāhāṅ milāba sabāre

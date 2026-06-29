@@ -1,5 +1,8 @@
 ### CC Adi 3.59
 
+> প্রত্যক্ষ তাঁহার তপ্তকাঞ্চনের দ্যুতি ।
+> যাঁহার ছটায় নাশে অজ্ঞান-তমস্ততি ॥৫৯॥
+
 pratyakṣa tāṅhāra tapta-kāñcanera dyuti
 yāṅhāra chaṭāya nāśe ajñāna-tamastati
 

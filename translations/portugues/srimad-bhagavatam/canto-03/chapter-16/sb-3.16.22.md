@@ -1,5 +1,10 @@
 ### SB 3.16.22
 
+> धर्मस्य ते भगवतस्त्रियुग त्रिभिः स्वैः
+> पद्भिश्चराचरमिदं द्विजदेवतार्थम् ।
+> नूनं भृतं तदभिघाति रजस्तमश्च
+> सत्त्वेन नो वरदया तनुवा निरस्य ॥२२॥
+
 *dharmasya te bhagavatas tri*-yuga tribhiḥ svaiḥ
 *padbhiś carācaram idaṁ dvija*-devatārtham
 *nūnaṁ bhṛtaṁ tad*-abhighāti rajas tamaś ca

@@ -1,5 +1,8 @@
 ### SB 3.33.36
 
+> एतन्निगदितं तात यत्पृष्टोऽहं तवानघ ।
+> कपिलस्य च संवादो देवहूत्याश्च पावनः ॥३६॥
+
 > etan nigaditaṁ tāta
 > yat pṛṣṭo 'haṁ tavānagha
 > kapilasya ca saṁvādo

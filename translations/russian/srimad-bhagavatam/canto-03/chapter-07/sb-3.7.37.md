@@ -1,5 +1,8 @@
 ### SB 3.7.37
 
+> तत्त्वानां भगवंस्तेषां कतिधा प्रतिसङ्क्रमः ।
+> तत्रेमं क उपासीरन्क उ स्विदनुशेरते ॥३७॥
+
 > tattvānāṁ bhagavaṁs teṣāṁ
 > katidhā pratisaṅkramaḥ
 > tatremaṁ ka upāsīran

@@ -1,5 +1,8 @@
 ### CC Madhya 23.45
 
+> অধিকারি-ভেদে রতি — পঞ্চ পরকার ।
+> শান্ত, দাস্য, সখ্য, বাৎসল্য, মধুর আর ॥৪৫॥
+
 > adhikāri-bhede rati--pañca parakāra
 > śānta, dāsya, sakhya, vātsalya, madhura āra
 

@@ -1,5 +1,8 @@
 ### CC Madhya 14.110
 
+> ধ্বজাবৃন্দ-পতাকা-ঘণ্টায় করহ মণ্ডন  ।
+> নানাবাদ্য-নৃত্য-দোলায় করহ সাজন ॥১১০॥
+
 > dhvajāvṛnda-patākā-ghaṇṭāya karaha maṇḍana
 > nānā-vādya-nṛtya-dolāya karaha sājana
 

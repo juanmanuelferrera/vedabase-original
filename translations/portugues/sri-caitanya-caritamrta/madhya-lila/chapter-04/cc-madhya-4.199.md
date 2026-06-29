@@ -1,5 +1,8 @@
 ### CC Madhya 4.199
 
+> আস্তে-ব্যস্তে কোলে করি’ নিল নিত্যানন্দ ৷
+> ক্রন্দন করিয়া তবে উঠে গৌরচন্দ্র ॥১৯৯॥
+
 āste-vyaste kole kari' nila nityānanda
 krandana kariyā tabe uṭhe gauracandra
 

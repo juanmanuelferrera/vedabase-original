@@ -1,5 +1,8 @@
 ### CC Madhya 16.190
 
+> তবে মুকুন্দ দত্ত কহে, — ‘শুন, মহাশয়  ।
+> গঙ্গাতীর যাইতে মহাপ্ৰভুর মন হয় ॥১৯০॥
+
 tabe mukunda datta kahe,--'śuna, mahāśaya
 
 gaṅgā-tīra yāite mahāprabhura mana haya

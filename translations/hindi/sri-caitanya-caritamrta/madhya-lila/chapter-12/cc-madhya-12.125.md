@@ -1,5 +1,8 @@
 ### CC Madhya 12.125
 
+> শিক্ষা লাগি’ স্বরূপে ডাকি’ কহিল তাঁহারে  ।
+> এই দেখ তোমার ‘গৌড়ীয়া’র ব্যবহারে ॥১২৫॥
+
 > śikṣā lāgi' svarūpe ḍāki' kahila tāṅhāre
 > ei dekha tomāra 'gauḍīyā'ra vyavahāre
 

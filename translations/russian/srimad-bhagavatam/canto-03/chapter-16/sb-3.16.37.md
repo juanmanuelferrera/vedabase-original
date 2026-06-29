@@ -1,5 +1,10 @@
 ### SB 3.16.37
 
+> विश्वस्य यः स्थितिलयोद्भवहेतुराद्यो
+> योगेश्वरैरपि दुरत्यययोगमायः ।
+> क्षेमं विधास्यति स नो भगवांस्त्र्यधीशस्
+> तत्रास्मदीयविमृशेन कियानिहार्थः ॥३७॥
+
 > viśvasya yaḥ sthiti-layodbhava-hetur ādyo
 > yogeśvarair api duratyaya-yogamāyaḥ
 > kṣemaṁ vidhāsyati sa no bhagavāṁs tryadhīśas

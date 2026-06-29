@@ -1,5 +1,8 @@
 ### CC Madhya 8.37
 
+> তোমার কৃপায় তোমায় করায় নিন্দ্যকর্ম ৷
+> সাক্ষাৎ ঈশ্বর তুমি, কে জানে তোমার মর্ম ৷৷ ৩৭ ৷৷ ॥৩৭॥
+
 > tomāra kṛpāya tomāya karāya nindya-karma
 > sākṣāt īśvara tumi, ke jāne tomāra marma
 

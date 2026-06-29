@@ -1,5 +1,8 @@
 ### CC Antya 18.46
 
+> “কহ, জালিয়া, এই দিকে দেখিলা একজন ?
+> তোমার এই দশা কেনে, — কহত’ কারণ?” ॥৪৬॥
+
 "kaha, jāliyā, ei dike dekhilā eka-jana?
 
 tomāra ei daśā kene,--kahata' kāraṇa?"

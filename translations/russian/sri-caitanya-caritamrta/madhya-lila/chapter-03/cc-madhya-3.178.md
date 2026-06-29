@@ -1,5 +1,8 @@
 ### CC Madhya 3.178
 
+> কেহ যেন এই বলি’ না করে নিন্দন ।
+> সেই যুক্তি কহ, যাতে রহে দুই ধর্ম ॥১৭৮॥
+
 > keha yena ei bali' nā kare nindana
 > sei yukti kaha, yāte rahe dui dharma
 

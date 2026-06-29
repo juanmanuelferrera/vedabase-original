@@ -1,5 +1,8 @@
 ### CC Antya 7.83
 
+> বসি’ কৃষ্ণনাম মাত্র করিয়ে গ্রহণে ।
+> সংখ্যা-নাম পূর্ণ মোর নহে রাত্রি-দিনে ॥৮৩॥
+
 > vasi' kṛṣṇa-nāma mātra kariye grahaṇe
 > saṅkhyā-nāma pūrṇa mora nahe rātri-dine
 

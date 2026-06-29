@@ -1,5 +1,7 @@
 ### SB 5.21.18
 
+> तथान्ये च ऋषयो गन्धर्वाप्सरसो नागा ग्रामण्यो यातुधाना देवा इत्येकैकशो गणाः सप्तचतुर्दश मासि मासि भगवन्तं सूर्यमात्मानं नानानामानं पृथङ्नानानामानः पृथककर्मभिर्द्वन्द्वश उपासते ॥१८॥
+
 > tathānye ca ṛṣayo gandharvāpsaraso nāgā grāmaṇyo yātudhānā devā ity ekaikaśo gaṇāḥ sapta caturdaśa māsi māsi bhagavantaṁ sūryam ātmānaṁ nānā-nāmānaṁ pṛthaṅ-nānā-nāmānaḥ pṛthak-karmabhir dvandvaśa upāsate.
 
 *tathā*—similarly; *anye*—others; *ca*—also; *ṛṣayaḥ*—saintly persons; *gandharva-apsarasaḥ*—Gandharvas and Apsarās; *nāgāḥ*—Nāga snakes; *grāmaṇyaḥ*—Yakṣas; *yātudhānāḥ*—Rākṣasas; *devāḥ*—demigods; *iti*—thus; *eka-ekaśaḥ*—one by one; *gaṇāḥ*—groups; *sapta*—seven; *caturdaśa*—fourteen in number; *māsi māsi*—in every month; *bhagavantam*—unto the most powerful demigod; *sūryam*—the sun-god; *ātmānam*—the life of the universe; *nānā*—various; *nāmānam*—who possesses names; *pṛthak*—separate; *nānā-nāmānaḥ*—having various names; *pṛthak*—separate; *karmabhiḥ*—by ritualistic ceremonies; *dvandvaśaḥ*—in groups of two; *upāsate*—worship.

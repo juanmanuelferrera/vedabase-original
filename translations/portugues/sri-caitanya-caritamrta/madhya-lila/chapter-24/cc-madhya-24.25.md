@@ -1,5 +1,8 @@
 ### CC Madhya 24.25
 
+> ‘কুর্বন্তি’-পদ এই পরস্মৈপদ হয় ।
+> কৃষ্ণসুখনিমিত্ত ভজনে তাৎপর্য কহয় ॥২৫॥
+
 'kurvanti'-pada ei parasmaipada haya
 
 kṛṣṇa-sukha-nimitta bhajane tātparya kahaya

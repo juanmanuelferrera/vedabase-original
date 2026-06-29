@@ -1,5 +1,8 @@
 ### SB 6.16.52
 
+> लोके विततमात्मानं लोकं चात्मनि सन्ततम
+> उभयं च मया व्याप्तं मयि चैवोभयं कृतम ॥५२॥
+
 > loke vitatam ātmānaṁ
 > lokaṁ cātmani santatam
 > ubhayaṁ ca mayā vyāptaṁ

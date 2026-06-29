@@ -1,5 +1,8 @@
 ### CC Adi 10.1
 
+> শ্রীচৈতন্যপদাম্ভোজ-মধুপেভ্যো নমো নমঃ ।
+> কথঞ্চিদাশ্রয়াদ্ যেষাং শ্বাপি তদ্গন্ধভাগ্ভবেৎ ॥১॥
+
 śrī-caitanya-padāmbhoja-
 madhupebhyo namo namaḥ
 kathañcid āśrayād yeṣāṁ

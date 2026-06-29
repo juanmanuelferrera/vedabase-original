@@ -1,5 +1,8 @@
 ### SB 2.5.18
 
+> सत्त्वं रजस्तम इति निर्गुणस्य गुणास्त्रयः ।
+> स्थितिसर्गनिरोधेषु गृहीता मायया विभोः ॥१८॥
+
 > sattvaṁ rajas tama iti
 > nirguṇasya guṇās trayaḥ
 > sthiti-sarga-nirodheṣu

@@ -1,5 +1,8 @@
 ### CC Antya 3.200
 
+> শুনি’ সভাসদ্ উঠে করি’ হাহাকার ।
+> মজুমদার সেই বিপ্রে করিল ধিক্কার ॥২০০॥
+
 śuni' sabhā-sad uṭhe kari' hāhākāra
 
 majumadāra sei vipre karila dhikkāra

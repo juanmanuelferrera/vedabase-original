@@ -1,5 +1,8 @@
 ### CC Madhya 15.176
 
+> তাতে ভাসে মায়া লঞা অনন্ত ব্ৰহ্মাণ্ড ।
+> গড়খাইতে ভাসে যেন রাই-পূর্ণ ভাণ্ড ॥১৭৬॥
+
 tāte bhāse māyā lañā ananta brahmāṇḍa
 
 gaḍa-khāite bhāse yena rāi-pūrṇa bhāṇḍa

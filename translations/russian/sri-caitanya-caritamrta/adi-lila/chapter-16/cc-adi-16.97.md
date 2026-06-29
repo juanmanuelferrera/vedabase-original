@@ -1,5 +1,8 @@
 ### CC Adi 16.97
 
+> বস্তুতঃ সরস্বতী অশুদ্ধ শ্লোক করাইল ।
+> বিচার-সময় তাঁর বুদ্ধি আচ্ছাদিল ॥৯৭॥
+
 > vastutaḥ sarasvatī aśuddha śloka karāila
 > vicāra-samaya tāṅra buddhi ācchādila
 

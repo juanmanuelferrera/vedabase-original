@@ -1,5 +1,8 @@
 ### CC Antya 6.177
 
+> তেঁহ কহে, ‘আজ্ঞা মাগি’ গেলা নিজ-ঘর ।’
+> ‘পলাইল রঘুনাথ’ — উঠিল কোলাহল ॥১৭৭॥
+
 > teṅha kahe, 'ājñā māgi' gelā nija-ghara'
 > 'palāila raghunātha'—uṭhila kolāhala
 

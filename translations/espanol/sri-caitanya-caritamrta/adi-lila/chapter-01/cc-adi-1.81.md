@@ -1,5 +1,8 @@
 ### CC Adi 1.81
 
+> স্বয়ংরূপ কৃষ্ণের কায়ব্যূহ — তাঁর সম।
+> ভক্ত সহিতে হয় তাঁহার আবরণ ॥৮১॥
+
 > svayaṁ-rūpa kṛṣṇera kāya-vyūha--tāṅra sama
 > bhakta sahite haya tāṅhāra āvaraṇa
 

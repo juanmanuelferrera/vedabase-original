@@ -1,5 +1,8 @@
 ### CC Antya 7.120
 
+> ঘরে আসি’ রাত্র্যে ভট্ট চিন্তিতে লাগিল ।
+> “পূর্বে প্রয়াগে মোরে মহা-কৃপা কৈল ॥১২০॥
+
 ghare āsi' rātrye bhaṭṭa cintite lāgila
 
 "pūrve prayāge more mahā-kṛpā kaila

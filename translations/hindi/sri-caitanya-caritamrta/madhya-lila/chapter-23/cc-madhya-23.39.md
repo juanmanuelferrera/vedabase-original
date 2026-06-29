@@ -1,5 +1,8 @@
 ### CC Madhya 23.39
 
+> যাঁর চিত্তে কৃষ্ণপ্রেমা করয়ে উদয় ।
+> তাঁর বাক্য, ক্রিয়া, মুদ্রা বিজ্ঞেহ না বুঝয় ॥৩৯॥
+
 > yāṅra citte kṛṣṇa-premā karaye udaya
 > tāṅra vākya, kriyā, mudrā vijñeha nā bujhaya
 

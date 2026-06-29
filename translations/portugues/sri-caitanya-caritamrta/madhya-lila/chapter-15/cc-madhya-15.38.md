@@ -1,5 +1,8 @@
 ### CC Madhya 15.38
 
+> কিবা যুক্তি কৈল দুঁহে, কেহ নাহি জানে ।
+> ফলে অনুমান পাছে কৈল ভক্তগণে ॥৩৮॥
+
 kibā yukti kaila duṅhe, keha nāhi jāne
 
 phale anumāna pāche kaila bhakta-gaṇe

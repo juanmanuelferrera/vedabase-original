@@ -1,5 +1,8 @@
 ### CC Madhya 19.238
 
+> প্রভাতে উঠিয়া যবে করিলা গমন  ।
+> তবে তাঁর পদে রূপ করে নিবেদন ॥২৩৮॥
+
 > prabhāte uṭhiyā yabe karilā gamana
 > tabe tāṅra pade rūpa kare nivedana
 

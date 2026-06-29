@@ -1,5 +1,8 @@
 ### CC Madhya 1.239
 
+> দিন চার কাশীতে রহি’ গেলা বৃন্দাবন ।
+> মথুরা দেখিয়া দেখে দ্বাদশ কানন ॥২৩৯॥
+
 dina cāra kāśīte rahi' gelā vṛndāvana
 
 mathurā dekhiyā dekhe dvādaśa kānana

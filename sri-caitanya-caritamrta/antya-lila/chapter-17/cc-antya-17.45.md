@@ -1,5 +1,10 @@
 ### CC Antya 17.45
 
+> সে অমৃতের এক-কণ, কর্ণ-চকোর-জীবন,
+> কর্ণ-চকোর জীয়ে সেই আশে ।
+> ভাগ্যবশে কভু পায়, অভাগ্যে কভু না পায়,
+> না পাইলে মরয়ে পিয়াসে ॥৪৫॥
+
 > se amṛtera eka-kaṇa, karṇa-cakora-jīvana,
 > karṇa-cakora jīye sei āśe
 > bhāgya-vaśe kabhu pāya, abhāgye kabhu nā pāya,

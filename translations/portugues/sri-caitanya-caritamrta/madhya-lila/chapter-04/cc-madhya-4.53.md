@@ -1,5 +1,8 @@
 ### CC Madhya 4.53
 
+> মহা-মহা-বলিষ্ঠ লোক একত্র করিঞা ।
+> পর্বত-উপরি গেল পুরী ঠাকুর লঞা ॥৫৩॥
+
 mahā-mahā-baliṣṭha loka ekatra kariñā
 parvata-upari gela purī ṭhākura lañā
 

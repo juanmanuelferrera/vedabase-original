@@ -1,5 +1,8 @@
 ### CC Antya 13.29
 
+> সহজেই মোর তাহাঁ যাইতে মন হয় ।
+> প্রভু-আজ্ঞা লঞা দেহ’, করিয়ে বিনয় ।।” ॥ ২৯ ॥
+
 sahajei mora tāhāṅ yāite mana haya
 
 prabhu-ājñā lañā deha', kariye vinaya"

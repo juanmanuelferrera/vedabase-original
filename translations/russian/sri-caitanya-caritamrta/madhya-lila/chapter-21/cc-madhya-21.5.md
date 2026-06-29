@@ -1,5 +1,8 @@
 ### CC Madhya 21.5
 
+> সব বৈকুণ্ঠ — ব্যাপক, আনন্দ-চিন্ময় ।
+> পারিষদ-ষড়ৈশ্বর্য-পূর্ণ সব হয় ॥৫॥
+
 > saba vaikuṇṭha—vyāpaka, ānanda-cinmaya
 > pāriṣada-ṣaḍaiśvarya-pūrṇa saba haya
 

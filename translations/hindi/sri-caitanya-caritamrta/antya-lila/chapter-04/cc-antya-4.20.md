@@ -1,5 +1,8 @@
 ### CC Antya 4.20
 
+> “মোরে না ছুঁইহ, প্রভু, পড়োঁ তোমার পায়  ।
+> একে নীচজাতি অধম, আর কণ্ডুরসা গায় ।।” ২০ ॥২০॥
+
 > "more nā chuṅiha, prabhu, paḍoṅ tomāra pāya
 > eke nīca-jāti adhama, āra kaṇḍu-rasā gāya
 

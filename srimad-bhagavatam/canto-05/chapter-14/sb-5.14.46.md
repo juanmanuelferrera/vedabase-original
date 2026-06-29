@@ -1,5 +1,7 @@
 ### SB 5.14.46
 
+> य इदं भागवतसभाजितावदातगुणकर्मणो राजर्षेर्भरतस्यानुचरितं स्वस्त्यअयनमायुष्यं धन्यं यशस्यं स्वर्ग्यापवर्ग्यं वानुशृणोत्याख्यास्यत्यभिनन्दति च सर्वा एवाशिषआत्मन आशास्ते न काञ्चन परत इति ॥४६॥
+
 > ya idaṁ bhāgavata-sabhājitāvadāta-guṇa-karmaṇo rājarṣer bharatasyānucaritaṁ svasty-ayanam āyuṣyaṁ dhanyaṁ yaśasyaṁ svargyāpavargyaṁ vānuśṛṇoty ākhyāsyaty abhinandati ca sarvā evāśiṣa ātmana āśāste na kāñcana parata iti.
 
 *yaḥ*—anyone who; *idam*—this; *bhāgavata*—by exalted devotees; *sabhājita*—greatly worshiped; *avadāta*—pure; *guṇa*—whose qualities; *karmaṇaḥ*—and activities; *rāja-ṛṣeḥ*—of the great saintly King; *bharatasya*—of Bharata Mahārāja; *anucaritam*—the narration; *svasti-ayanam*—the abode of auspiciousness; *āyuṣyam*—which increases one's duration of life; *dhanyam*—increases one's fortune; *yaśasyam*—bestows reputation; *svargya*—gives promotion to the higher planetary systems (the goal of the *karmīs*); *apavargyam*—gives liberation from this material world and enables one to merge into the Supreme (the goal of the *jñānīs*); *vā*—or; *anuśṛṇoti*—always hears, following the path of devotional service; *ākhyāsyati*—describes for the benefit of others; *abhinandati*—glorifies the characteristics of devotees and the Supreme Lord; *ca*—and; *sarvāḥ*—all; *eva*—certainly; *āśiṣaḥ*—blessings; *ātmanaḥ*—for himself; *āśāste*—he achieves; *na*—not; *kāñcana*—anything; *parataḥ*—from anyone else; *iti*—thus.

@@ -1,5 +1,8 @@
 ### CC Antya 3.182
 
+> এই শ্লোকের অর্থ কর পণ্ডিতের গণ ।”
+> সবে কহে, — ‘তুমি কহ অর্থ-বিবরণ’ ॥১৮২॥
+
 ei ślokera artha kara paṇḍitera gaṇa"
 
 sabe kahe,--'tumi kaha artha-vivaraṇa'

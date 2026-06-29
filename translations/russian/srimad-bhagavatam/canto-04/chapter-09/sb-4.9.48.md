@@ -1,5 +1,8 @@
 ### SB 4.9.48
 
+> उत्तमश्च ध्रुवश्चोभावन्योन्यं प्रेमविह्वलौ ।
+> अङ्गसङ्गादुत्पुलकावस्रौघं मुहुरूहतुः ॥४८॥
+
 > uttamaś ca dhruvaś cobhāv
 > anyonyaṁ prema-vihvalau
 > aṅga-saṅgād utpulakāv

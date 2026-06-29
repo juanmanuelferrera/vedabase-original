@@ -1,5 +1,8 @@
 ### SB 4.25.28
 
+> त्वं ह्रीर्भवान्यस्यथ वाग्रमा पतिं विचिन्वती किं मुनिवद्रहो वने ।
+> त्वदङ्घ्रिकामाप्तसमस्तकामं क्व पद्मकोशः पतितः कराग्रात् ॥२८॥
+
 > tvaṁ hrīr bhavāny asy atha vāg ramā patiṁ
 > vicinvatī kiṁ munivad raho vane
 > tvad-aṅghri-kāmāpta-samasta-kāmaṁ

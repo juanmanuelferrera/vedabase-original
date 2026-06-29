@@ -1,5 +1,7 @@
 ### SB 5.5.29
 
+> जडान्धमूकबधिरपिशाचोन्मादकवदवधूतवेषोऽभिभाष्यमाणोऽपि जनानां गृहीतमौनव्रतस्तूष्णीं बभूव ॥२९॥
+
 *jaḍāndha*-mūka-badhira-piśāconmādakavad-avadhūta-veṣo 'bhibhāṣyamāṇo 'pi janānāṁ gṛhīta-mauna-vratas tūṣṇīṁ babhūva.
 
 *jaḍa*—parado; *andha*—cego; *mūka*—mudo; *badhira*—surdo; *piśāca*—fantasma; *unmādaka*—um louco; *vat*—como; *avadhūta-veṣaḥ*—aparentando ser um avadhūta (sem ter relação com o mundo material); *abhibhāṣyamāṇaḥ*—sendo assim apostrofado (como surdo, mudo e cego); *api*—embora; *janānām*—pelas pessoas; *gṛhīta*—fez; *mauna*—de silêncio; *vrataḥ*—o voto; *tūṣṇīm babhūva*—Ele permaneceu em silêncio.

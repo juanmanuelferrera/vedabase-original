@@ -1,5 +1,8 @@
 ### SB 4.2.10
 
+> अयं तु लोकपालानां यशोघ्नो निरपत्रपः ।
+> सद्भिराचरितः पन्था येन स्तब्धेन दूषितः ॥१०॥
+
 > ayaṁ tu loka-pālānāṁ
 > yaśo-ghno nirapatrapaḥ
 > sadbhir ācaritaḥ panthā

@@ -1,5 +1,8 @@
 ### CC Antya 5.121
 
+> আর এক করিয়াছ পরম ‘প্রমাদ’ !
+> দেহ-দেহি-ভেদ ঈশ্বরে কৈলে ‘অপরাধ’ ! ॥ ১২১ ॥
+
 > āra eka kariyācha parama 'pramāda'!
 > deha-dehi-bheda īśvare kaile 'aparādha'!
 

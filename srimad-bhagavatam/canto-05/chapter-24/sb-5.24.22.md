@@ -1,5 +1,7 @@
 ### SB 5.24.22
 
+> न वै भगवान्नूनममुष्यानुजग्राह यदुत पुनरात्मानुस्मृतिमोषणं मायामयभोगैश्वर्यमेवातनुतेति ॥२२॥
+
 > na vai bhagavān nūnam amuṣyānujagrāha yad uta punar ātmānusmṛti-moṣaṇaṁ māyāmaya-bhogaiśvaryam evātanuteti.
 
 *na*—not; *vai*—indeed; *bhagavān*—the Supreme Personality of Godhead; *nūnam*—certainly; *amuṣya*—unto Bali Mahārāja; *anujagrāha*—showed His favor; *yat*—because; *uta*—certainly; *punaḥ*—again; *ātma-anusmṛti*—of remembrance of the Supreme Personality of Godhead; *moṣaṇam*—which robs one; *māyā-maya*—an attribute of Māyā; *bhoga-aiśvaryam*—the material opulence; *eva*—certainly; *ātanuta*—extended; *iti*—thus.

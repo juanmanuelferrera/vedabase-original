@@ -1,5 +1,8 @@
 ### SB 6.2.23
 
+> तं विवक्षुमभिप्रेत्य महापुरुषकिङ्कराः
+> सहसा पश्यतस्तस्य तत्रान्तर्दधिरेऽनघ ॥२३॥
+
 > taṁ vivakṣum abhipretya
 > mahāpuruṣa-kiṅkarāḥ
 > sahasā paśyatas tasya

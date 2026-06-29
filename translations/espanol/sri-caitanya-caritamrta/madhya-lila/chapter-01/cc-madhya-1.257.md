@@ -1,5 +1,8 @@
 ### CC Madhya 1.257
 
+> হরিদাসের সিদ্ধিপ্রাপ্তি, — অদ্ভুত সে সব ।
+> আপনি মহাপ্রভু যাঁর কৈল মহোৎসব ॥২৫৭॥
+
 > haridāsera siddhi-prāpti,--adbhuta se saba
 > āpani mahāprabhu yāṅra kaila mahotsava
 

@@ -1,5 +1,8 @@
 ### CC Madhya 25.234
 
+> ‘মহাপ্রভু আইলা’ — গ্রামে কোলাহল হৈল ।
+> সার্বভৌম, রামানন্দ, বাণীনাথ মিলিল ॥২৩৪॥
+
 > 'mahāprabhu āilā'-grāme kolāhala haila
 > sārvabhauma, rāmānanda, vāṇīnātha milila
 

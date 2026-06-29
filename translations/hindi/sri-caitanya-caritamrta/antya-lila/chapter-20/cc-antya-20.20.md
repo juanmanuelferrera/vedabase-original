@@ -1,5 +1,8 @@
 ### CC Antya 20.20
 
+> যেরূপে লইলে নাম প্রেম উপজয় ।
+> তাহার লক্ষণ শুন, স্বরূপ-রামরায় ॥২০॥
+
 > ye-rūpe la-ile nāma prema upajaya
 > tāhāra lakṣaṇa śuna, svarūpa-rāma-rāya
 

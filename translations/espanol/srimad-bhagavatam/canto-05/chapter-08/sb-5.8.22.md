@@ -1,5 +1,7 @@
 ### SB 5.8.22
 
+> आसादितहविषि बर्हिषि दूषिते मयोपालब्धो भीतभीतः सपद्युपरतरास ऋषिकुमारवदवहितकरणकलाप आस्ते ॥२२॥
+
 > āsādita-haviṣi barhiṣi dūṣite mayopālabdho bhīta-bhītaḥ sapady uparata-rāsa ṛṣi-kumāravad avahita-karaṇa-kalāpa āste.
 
 *āsādita*—dispuesto; *haviṣi*—todo lo que se iba a ofrecer en el sacrificio; *barhiṣi*—sobre la hierba *kuśa*; *dūṣite*—cuando contaminaba; *mayā upālabdhaḥ*—reñido por mí; *bhīta-bhītaḥ*—con mucho temor; *sapadi*—de inmediato; *uparata-rāsaḥ*—dejaba de jugar; *ṛṣi-kumāravat*—como el hijo o discípulo de una persona santa; *avahita*—reprimidos por completo; *karaṇa-kalāpaḥ*—todos los sentidos; *āste*—se sienta.

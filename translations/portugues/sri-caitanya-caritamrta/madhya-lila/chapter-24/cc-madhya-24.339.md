@@ -1,5 +1,8 @@
 ### CC Madhya 24.339
 
+> সাধুলক্ষণ, সাধুসঙ্গ, সাধুসেবন ।
+> অসৎসঙ্গ-ত্যাগ, শ্রীভাগবত-শ্রবণ ॥৩৩৯॥
+
 sādhu-lakṣaṇa, sādhu-saṅga, sādhu-sevana
 
 asatsaṅga-tyāga, śrī-bhāgavata-śravaṇa

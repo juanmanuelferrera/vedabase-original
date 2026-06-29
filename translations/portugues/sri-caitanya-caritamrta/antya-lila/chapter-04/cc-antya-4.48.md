@@ -1,5 +1,8 @@
 ### CC Antya 4.48
 
+> ভাল হৈল, তোমার ইহাঁ হৈল আগমনে ।
+> এই ঘরে রহ ইহাঁ হরিদাস-সনে ॥৪৮॥
+
 bhāla haila, tomāra ihāṅ haila āgamane
 
 ei ghare raha ihāṅ haridāsa-sane

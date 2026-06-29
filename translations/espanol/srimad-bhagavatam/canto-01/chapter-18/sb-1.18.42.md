@@ -1,5 +1,8 @@
 ### SB 1.18.42
 
+> न वै नृभिर्नरदेवं पराख्यं सम्मातुमर्हस्यविपक्वबुद्धे ।
+> यत्तेजसा दुर्विषहेण गुप्ता विन्दन्ति भद्राण्यकुतोभयाः प्रजाः ॥४२॥
+
 > na vai nṛbhir nara-devaṁ parākhyaṁ
 > sammātum arhasy avipakva-buddhe
 > yat-tejasā durviṣaheṇa guptā

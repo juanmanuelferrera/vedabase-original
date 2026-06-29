@@ -1,5 +1,8 @@
 ### CC Adi 2.50
 
+> সেই তিন জলশায়ী সর্ব-অন্তর্যামী ।
+> ব্রহ্মাণ্ডবৃন্দের আত্মা যে পুরুষ-নামী ॥৫০॥
+
 > sei tina jala-śāyī sarva-antaryāmī
 > brahmāṇḍa-vṛndera ātmā ye puruṣa-nāmī
 

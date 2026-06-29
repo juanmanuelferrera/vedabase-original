@@ -1,5 +1,8 @@
 ### SB 3.31.29
 
+> सह देहेन मानेन वर्धमानेन मन्युना ।
+> करोति विग्रहं कामी कामिष्वन्ताय चात्मनः ॥२९॥
+
 > saha dehena mānena
 > vardhamānena manyunā
 > karoti vigrahaṁ kāmī

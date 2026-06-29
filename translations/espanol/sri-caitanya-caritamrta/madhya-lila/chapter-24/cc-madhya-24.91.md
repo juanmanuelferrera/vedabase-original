@@ -1,5 +1,8 @@
 ### CC Madhya 24.91
 
+> বুদ্ধিমান্-অর্থে — যদি ‘বিচারজ্ঞ’ হয় ।
+> নিজ-কাম লাগিহ তবে কৃষ্ণেরে ভজয় ॥৯১॥
+
 > buddhimān-arthe--yadi 'vicāra-jña' haya
 > nija-kāma lāgiha tabe kṛṣṇere bhajaya
 

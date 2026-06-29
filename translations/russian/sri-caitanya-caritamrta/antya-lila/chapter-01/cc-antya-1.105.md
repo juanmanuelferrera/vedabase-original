@@ -1,5 +1,8 @@
 ### CC Antya 1.105
 
+> দুই শ্লোক কহি’ প্রভুর হৈল মহাসুখ ।
+> নিজ-ভক্তের গুণ কহে হঞা পঞ্চমুখ ॥১০৫॥
+
 > dui śloka kahi' prabhura haila mahā-sukha
 > nija-bhaktera guna kahe hañā pañca-mukha
 

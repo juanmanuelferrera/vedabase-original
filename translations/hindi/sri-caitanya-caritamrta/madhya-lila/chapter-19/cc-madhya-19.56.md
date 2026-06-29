@@ -1,5 +1,8 @@
 ### CC Madhya 19.56
 
+> রূপ কহেন, — তেঁহো বন্দী হয় রাজ-ঘরে ।
+> তুমি যদি উদ্ধার’, তবে হইবে উদ্ধারে ॥৫৬॥
+
 > rūpa kahena,--teṅho bandī haya rāja-ghare
 > tumi yadi uddhāra', tabe ha-ibe uddhāre
 

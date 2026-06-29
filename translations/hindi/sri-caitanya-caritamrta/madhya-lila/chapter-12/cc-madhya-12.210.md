@@ -1,5 +1,8 @@
 ### CC Madhya 12.210
 
+> দর্শন-লোভেতে করি’ মর্যাদা লঙ্ঘন ।
+> ভোগ-মণ্ডপে যাঞা করে শ্রীমুখ দর্শন ॥২১০॥
+
 > darśana-lobhete kari' maryādā laṅghana
 > bhoga-maṇḍape yāñā kare śrī-mukha darśana
 

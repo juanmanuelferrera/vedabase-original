@@ -1,5 +1,8 @@
 ### SB 3.5.8
 
+> यैस्तत्त्वभेदैरधिलोकनाथो लोकानलोकान्सह लोकपालान् ।
+> अचीकॢपद्यत्र हि सर्वसत्त्व निकायभेदोऽधिकृतः प्रतीतः ॥८॥
+
 > yais tattva-bhedair adhiloka-nātho
 > lokān alokān saha lokapālān
 > acīkḷpad yatra hi sarva-sattva-

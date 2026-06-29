@@ -1,5 +1,8 @@
 ### SB 7.13.8
 
+> न शिष्याननुबध्नीत ग्रन्थान्नैवाभ्यसेद्बहून
+> न व्याख्यामुपयुञ्जीत नारम्भानारभेत्क्वचित ॥८॥
+
 > na śiṣyān anubadhnīta
 > granthān naivābhyased bahūn
 > na vyākhyām upayuñjīta

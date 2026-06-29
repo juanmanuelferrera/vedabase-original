@@ -1,5 +1,8 @@
 ### CC Madhya 4.92
 
+> প্রাতঃকালে পুনঃ তৈছে করিল সেবন ।
+> অন্ন লঞা একগ্রামের আইল লোকগণ ॥৯২॥
+
 prātaḥ-kāle punaḥ taiche karila sevana
 anna lañā eka-grāmera āila loka-gaṇa
 

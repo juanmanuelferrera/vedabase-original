@@ -1,5 +1,10 @@
 ### CC Madhya 24.140
 
+> শ্রেয়ঃসৃতিং ভক্তিমুদস্য তে বিভো
+> ক্লিশ্যন্তি যে কেবল-বোধলব্ধয়ে ৷
+> তেষামসৌ ক্লেশল এব শিষ্যতে
+> নান্যদ্যথা স্থূলতুষাবঘাতিনাম্ ॥১৪০॥
+
 > śreyaḥ-sṛtiṁ bhaktim udasya te vibho
 > kliśyanti ye kevala-bodha-labdhaye
 > teṣām asau kleśala eva śiṣyate

@@ -1,5 +1,8 @@
 ### SB 5.18.36
 
+> यस्य स्वरूपं कवयो विपश्चितो गुणेषु दारुष्विव जातवेदसम
+> मथ्नन्ति मथ्ना मनसा दिदृक्षवो गूढं क्रियार्थैर्नम ईरितात्मने ॥३६॥
+
 > yasya svarūpaṁ kavayo vipaścito
 > guṇeṣu dāruṣv iva jāta-vedasam
 > mathnanti mathnā manasā didṛkṣavo

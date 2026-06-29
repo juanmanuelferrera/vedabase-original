@@ -1,5 +1,8 @@
 ### CC Adi 6.89
 
+> তাঁর অবতার এক শ্রীসঙ্কর্ষণ ।
+> ভক্ত বলি’ অভিমান করে সর্বক্ষণ ॥৮৯॥
+
 > tāṅra avatāra eka śri-saṅkarṣaṇa
 > bhakta bali' abhimāna kare sarva-kṣaṇa
 

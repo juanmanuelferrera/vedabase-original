@@ -1,5 +1,8 @@
 ### CC Madhya 15.151
 
+> তাতে মোরে এই কৃপা কর, দয়াময়  ।
+> তোমার আগে মৃত্যু হউক, যাউক সংশয় ॥১৫১॥
+
 > tāte more ei kṛpā kara, dayāmaya
 > tomāra āge mṛtyu ha-uka, yāuka saṁśaya
 

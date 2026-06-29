@@ -1,5 +1,8 @@
 ### CC Madhya 22.125
 
+> ‘তদীয়’ — তুলসী, বৈষ্ণব, মথুরা, ভাগবত ।
+> এই চারির সেবা হয় কৃষ্ণের অভিমত ॥১২৫॥
+
 > 'tadīya'—tulasī, vaiṣṇava, mathurā, bhāgavata
 > ei cārira sevā haya kṛṣṇera abhimata
 

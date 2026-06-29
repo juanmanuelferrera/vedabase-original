@@ -1,5 +1,9 @@
 ### SB 5.19.29-30
 
+> श्रीशुक उवाच
+> जम्बूद्वीपस्य च राजन्नुपद्वीपानष्टौ हैक उपदिशन्ति सगरात्मजैरश्वान्वेषण इमां महींपरितो निखनद्भिरुपकल्पितान ॥२९॥
+> तद्यथा स्वर्णप्रस्थश्चन्द्रशुक्ल आवर्तनो रमणको मन्दरहरिणः पाञ्चजन्यः सिंहलोलङ्केति ॥३०॥
+
 > śrī-śuka uvāca
 > jambūdvīpasya ca rājann upadvīpān aṣṭau haika upadiśanti sagarātmajair aśvānveṣaṇa imāṁ mahīṁ parito nikhanadbhir upakalpitān; tad yathā svarṇaprasthaś candraśukla āvartano ramaṇako mandarahariṇaḥ pāñcajanyaḥ siṁhalo laṅketi.
 

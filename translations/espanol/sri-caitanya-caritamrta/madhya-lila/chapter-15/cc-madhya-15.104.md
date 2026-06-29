@@ -1,5 +1,8 @@
 ### CC Madhya 15.104
 
+> প্রভু কহেন, — ‘কৃষ্ণসেবা’, ‘বৈষ্ণব-সেবন’ ।
+> ‘নিরন্তর কর কৃষ্ণনাম-সংকীর্তন’ ॥১০৪॥
+
 > prabhu kahena,--'kṛṣṇa-sevā', 'vaiṣṇava-sevana'
 > 'nirantara kara kṛṣṇa-nāma-saṅkīrtana'
 

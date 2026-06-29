@@ -1,5 +1,8 @@
 ### CC Madhya 9.361
 
+> চৈতন্যচরিত শুন শ্রদ্ধা-ভক্তি করি’ ৷
+> মাৎসর্য ছাড়িয়া মুখে বল ‘হরি’ ‘হরি’ ৷৷ ৩৬১ ৷৷ ॥৩৬১॥
+
 caitanya-carita śuna śraddhā-bhakti kari'
 
 mātsarya chāḍiyā mukhe bala 'hari' 'hari'

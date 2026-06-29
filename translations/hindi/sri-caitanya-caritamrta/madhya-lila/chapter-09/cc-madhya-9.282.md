@@ -1,5 +1,8 @@
 ### CC Madhya 9.282
 
+> তথা হৈতে পাণ্ডরপুরে আইলা গৌরচন্দ্র ।
+> বিঠ্ঠল-ঠাকুর দেখি’ পাইলা আনন্দ ॥২৮২॥
+
 > tathā haite pāṇḍarapure āilā gauracandra
 > viṭhṭhala-ṭhākura dekhi' pāilā ānanda
 

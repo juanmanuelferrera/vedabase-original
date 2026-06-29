@@ -1,5 +1,8 @@
 ### CC Madhya 11.240
 
+> সবারে বিদায় দিল করিতে শয়ন ৷
+> এইমত লীলা করে শচীর নন্দন ৷৷ ২৪০ ৷৷ ॥২৪০॥
+
 sabāre vidāya dila karite śayana
 ei-mata līlā kare śacīra nandana
 

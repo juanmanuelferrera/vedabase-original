@@ -1,5 +1,8 @@
 ### CC Madhya 24.110
 
+> ভক্তির স্বভাব, — ব্রহ্ম হৈতে করে আকর্ষণ ।
+> দিব্য দেহ দিয়া করায় কৃষ্ণের ভজন ॥১১০॥
+
 > bhaktira svabhāva,—brahma haite kare ākarṣaṇa
 > divya deha diyā karāya kṛṣṇera bhajana
 

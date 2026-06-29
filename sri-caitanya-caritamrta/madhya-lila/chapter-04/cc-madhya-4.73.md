@@ -1,5 +1,8 @@
 ### CC Madhya 4.73
 
+> তার পাশে রুটি-রাশির পর্বত হইল ।
+> সূপ-আদি-ব্যঞ্জন-ভাণ্ড চৌদিকে ধরিল ॥৭৩॥
+
 > tāra pāśe ruṭi-rāśira parvata ha-ila
 > sūpa-ādi-vyañjana-bhāṇḍa caudike dharila
 

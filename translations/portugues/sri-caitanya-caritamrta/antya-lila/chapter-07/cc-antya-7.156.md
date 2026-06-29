@@ -1,5 +1,8 @@
 ### CC Antya 7.156
 
+> তুমি কেনে আসি’ তাঁরে না দিলা ওলাহন ?
+> ভীতপ্রায় হঞা কাঁহে করিলা সহন?” ॥১৫৬॥
+
 tumi kene āsi' tāṅre nā dilā olāhana?
 
 bhīta-prāya hañā kāṅhe karilā sahana?"

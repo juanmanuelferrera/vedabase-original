@@ -1,5 +1,8 @@
 ### CC Madhya 21.69
 
+> দেখি’ চতুর্মুখ ব্রহ্মা ফাঁপর হইলা ।
+> হস্তিগণ-মধ্যে যেন শশক রহিলা ॥৬৯॥
+
 > dekhi' caturmukha brahmā phāṅpara ha-ilā
 > hasti-gaṇa-madhye yena śaśaka rahilā
 

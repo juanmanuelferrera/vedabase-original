@@ -1,5 +1,7 @@
 ### CC Antya 3.13
 
+> শুনি’ প্রভু কহে, — ‘ক্যা কহ, দামোদর ?’ দামোদর কহে, — “তুমি স্বতন্ত্র ‘ঈশ্বর’ ॥১৩॥
+
 > śuni' prabhu kahe,—'kyā kaha, dāmodara?'
 > dāmodara kahe,—tumi svatantra 'īśvara'
 

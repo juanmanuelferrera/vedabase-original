@@ -1,5 +1,8 @@
 ### CC Madhya 24.252
 
+> নারদ-সঙ্গে ব্যাধের মন পরসন্ন হইল ।
+> তাঁর বাক্য শুনি’ মনে ভয় উপজিল ॥২৫২॥
+
 > nārada-saṅge vyādhera mana parasanna ha-ila
 > tāṅra vākya śuni' mane bhaya upajila
 

@@ -1,5 +1,7 @@
 ### SB 5.17.15
 
+> इलावृते तु भगवान्भव एक एव पुमान्न ह्यन्यस्तत्रापरो निर्विशति भवान्याः शापनिमित्तज्ञओयत्प्रवेक्ष्यतः स्त्रीभावस्तत्पश्चाद्वक्ष्यामि ॥१५॥
+
 > ilāvṛte tu bhagavān bhava eka eva pumān na hy anyas tatrāparo nirviśati bhavānyāḥ śāpa-nimitta-jño yat-pravekṣyataḥ strī-bhāvas tat paścād vakṣyāmi.
 
 *ilāvṛte*—en la región que recibe el nombre de Ilāvṛta-varṣa; *tu*—pero; *bhagavān*—el muy poderoso; *bhavaḥ*—el Señor Śiva; *eka*—único; *eva*—ciertamente; *pumān*—varón; *na*—no; *hi*—ciertamente; *anyaḥ*—ningún otro; *tatra*—allí; *aparaḥ*—además de; *nirviśati*—entra; *bhavānyāḥ śāpa-nimitta-jñaḥ*—que conoce la causa de la maldición de Bhavānī, la esposa del Señor Śiva; *yat-pravekṣyataḥ*—de quien entra en esa región por la fuerza; *strī-bhāvaḥ*—transformación en mujer; *tat*—eso; *paścāt*—más adelante; *vakṣyāmi*—te explicaré.

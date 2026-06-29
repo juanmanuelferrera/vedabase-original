@@ -1,5 +1,8 @@
 ### CC Madhya 14.237
 
+> নিত্যানন্দ বিনা প্রভুকে ধরে কোন্ জন ।
+> প্রভুর আবেশ না যায়, না রহে কীর্তন ॥২৩৭॥
+
 nityānanda vinā prabhuke dhare kon jana
 
 prabhura āveśa nā yāya, nā rahe kīrtana

@@ -1,5 +1,8 @@
 ### SB 4.24.60
 
+> यत्रेदं व्यज्यते विश्वं विश्वस्मिन्नवभाति यत् ।
+> तत्त्वं ब्रह्म परं ज्योतिराकाशमिव विस्तृतम् ॥६०॥
+
 > yatredaṁ vyajyate viśvaṁ
 > viśvasminn avabhāti yat
 > tat tvaṁ brahma paraṁ jyotir

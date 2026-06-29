@@ -1,5 +1,8 @@
 ### CC Madhya 9.14
 
+> এই শ্লোক পথে পড়ি’ করিলা প্রয়াণ ।
+> গৌতমী-গঙ্গায় যাই’ কৈল গঙ্গাস্নান ॥১৪॥
+
 > ei śloka pathe paḍi' karilā prayāṇa
 > gautamī-gaṅgāya yāi' kaila gaṅgā-snāna
 

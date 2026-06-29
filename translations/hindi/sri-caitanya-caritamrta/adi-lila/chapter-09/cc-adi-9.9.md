@@ -1,5 +1,8 @@
 ### CC Adi 9.9
 
+> শ্রীচৈতন্য মালাকার পৃথিবীতে আনি’ ।
+> ভক্তি-কল্পতরু রোপিলা সিঞ্চি’ ইচ্ছা-পানি ॥৯॥
+
 > śrī-caitanya mālākāra pṛthivīte āni'
 > bhakti-kalpataru ropilā siñci' icchā-pāni
 

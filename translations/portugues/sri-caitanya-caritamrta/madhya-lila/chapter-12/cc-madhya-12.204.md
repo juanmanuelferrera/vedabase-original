@@ -1,5 +1,8 @@
 ### CC Madhya 12.204
 
+> আর দিনে জগন্নাথের ‘নেত্রোৎসব’ নাম ।
+> মহোত্সব হৈল ভক্তের প্রাণ-সমান ॥২০৪॥
+
 āra dine jagannāthera 'netrotsava' nāma
 
 mahotsava haila bhaktera prāṇa-samāna

@@ -1,5 +1,8 @@
 ### CC Adi 7.65
 
+> আপনে প্রকাশানন্দ হাতেতে ধরিয়া ।
+> বসাইলা সভামধ্যে সম্মান করিয়া ॥৬৫॥
+
 āpane prakāśānanda hātete dhariyā
 
 vasāilā sabhā-madhye sammāna kariyā

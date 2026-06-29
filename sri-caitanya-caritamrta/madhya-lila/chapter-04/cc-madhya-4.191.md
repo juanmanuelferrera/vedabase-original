@@ -1,5 +1,8 @@
 ### CC Madhya 4.191
 
+> এত বলি’ পড়ে প্রভু তাঁর কৃত শ্লোক ।
+> যেই শ্লোক-চন্দ্রে জগৎ কর্যাছে আলোক ॥১৯১॥
+
 > eta bali' paḍe prabhu tāṅra kṛta śloka
 > yei śloka-candre jagat karyāche āloka
 

@@ -1,5 +1,8 @@
 ### CC Antya 16.81
 
+> তারে বলে, — ‘কোথা কৃষ্ণ, মোর প্রাণনাথ ?
+> মোরে কৃষ্ণ দেখাও’ বলি’ ধরে তার হাত ॥৮১॥
+
 > tāre bale,--'kothā kṛṣṇa, mora prāṇa-nātha?
 > more kṛṣṇa dekhāo' bali' dhare tāra hāta
 

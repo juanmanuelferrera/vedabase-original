@@ -1,5 +1,8 @@
 ### CC Antya 16.100
 
+> “সুকৃতি’-শব্দে কহে ‘কৃষ্ণকৃপা-হেতু পুণ্য’ ।
+> সেই যাঁর হয়, ‘ফেলা’ পায় সেই ধন্য ।।” ॥ ১০০ ॥
+
 > 'sukṛti'-śabde kahe 'kṛṣṇa-kṛpā-hetu puṇya'
 > sei yāṅra haya, 'phelā' pāya sei dhanya"
 

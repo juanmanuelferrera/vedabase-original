@@ -1,5 +1,8 @@
 ### CC Madhya 5.105
 
+> সাক্ষাতে না দেখিলে মনে প্রতীতি না হয় ।
+> ইহাঁ যদি রহেন, তবু নাহি কিছু ভয় ।।’ ॥ ১০৫ ॥
+
 > sākṣāte nā dekhile mane pratīti nā haya
 > ihāṅ yadi rahena, tabu nāhi kichu bhaya'
 

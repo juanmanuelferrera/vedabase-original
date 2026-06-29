@@ -1,5 +1,8 @@
 ### CC Adi 16.49
 
+> তাতে ভাল করি’ শ্লোক করহ বিচার ।
+> কবি কহে, — যে কহিলে সেই বেদসার ॥৪৯॥
+
 > tāte bhāla kari' śloka karaha vicāra
 > kavi kahe,—ye kahile sei veda-sāra
 

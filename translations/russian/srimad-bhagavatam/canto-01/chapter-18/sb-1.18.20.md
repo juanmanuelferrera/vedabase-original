@@ -1,5 +1,8 @@
 ### SB 1.18.20
 
+> एतावतालं ननु सूचितेन गुणैरसाम्यानतिशायनस्य ।
+> हित्वेतरान्प्रार्थयतो विभूतिर्यस्याङ्घ्रिरेणुं जुषतेऽनभीप्सोः ॥२०॥
+
 > etāvatālaṁ nanu sūcitena
 > guṇair asāmyānatiśāyanasya
 > hitvetarān prārthayato vibhūtir

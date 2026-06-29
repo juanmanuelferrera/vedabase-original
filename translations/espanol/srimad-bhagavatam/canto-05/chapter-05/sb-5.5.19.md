@@ -1,5 +1,8 @@
 ### SB 5.5.19
 
+> इदं शरीरं मम दुर्विभाव्यं सत्त्वं हि मे हृदयं यत्र धर्मः
+> पृष्ठे कृतो मे यदधर्म आरादतो हि मामृषभं प्राहुरार्याः ॥१९॥
+
 > idaṁ śarīraṁ mama durvibhāvyaṁ
 > sattvaṁ hi me hṛdayaṁ yatra dharmaḥ
 > pṛṣṭhe kṛto me yad adharma ārād

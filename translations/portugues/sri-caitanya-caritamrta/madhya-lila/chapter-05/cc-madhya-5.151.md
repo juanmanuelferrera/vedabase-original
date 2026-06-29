@@ -1,5 +1,8 @@
 ### CC Madhya 5.151
 
+> মোর অপরাধে তোমার দণ্ড হইল খণ্ড ।
+> যে উচিত হয়, মোর কর তার দণ্ড ।।” ॥ ১৫১ ॥
+
 mora aparādhe tomāra daṇḍa ha-ila khaṇḍa
 
 ye ucita haya, mora kara tāra daṇḍa"

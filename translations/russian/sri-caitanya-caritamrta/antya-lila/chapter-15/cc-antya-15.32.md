@@ -1,5 +1,10 @@
 ### CC Antya 15.32
 
+> চূতপ্রিয়াল-পনসাসনকোবিদার-
+> জম্ব্বর্কবিল্ববকুলাম্রকদম্বনীপাঃ ।
+> যেঽন্যে পরার্থভবকা যমুনোপকূলাঃ
+> শংসন্তু কৃষ্ণপদবীং রহিতাত্মনাং নঃ ॥৩২॥
+
 > cūta-priyāla-panasāsana-kovidāra-
 > jambv-arka-bilva-bakulāmra-kadamba-nīpāḥ
 > ye 'nye parārtha-bhavakā yamunopakūlāḥ

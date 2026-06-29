@@ -1,5 +1,8 @@
 ### CC Madhya 21.1
 
+> অগত্যেকগতিং নত্বা হীনার্থাধিকসাধকম্ ।
+> শ্রীচৈতন্যং লিখাম্যস্য মাধুর্যৈশ্বর্য-শীকরম্ ॥১॥
+
 agaty-eka-gatiṁ natvā
 hīnārthādhika-sādhakam
 śrī-caitanyaṁ likhāmy asya

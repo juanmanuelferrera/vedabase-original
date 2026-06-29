@@ -1,5 +1,8 @@
 ### CC Madhya 16.31
 
+> ক্ষীর বাঁটি’ সবারে দিল প্রভু-নিত্যানন্দ ।
+> ক্ষীর-প্রসাদ পাঞা সবার বাড়িল আনন্দ ॥৩১॥
+
 > kṣīra bāṅṭi' sabāre dila prabhu-nityānanda
 > kṣīra-prasāda pāñā sabāra bāḍila ānanda
 

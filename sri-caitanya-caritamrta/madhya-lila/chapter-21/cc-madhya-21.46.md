@@ -1,5 +1,8 @@
 ### CC Madhya 21.46
 
+> তার তলে পরব্যোম — ‘বিষ্ণুলোক’-নাম ।
+> নারায়ণ-আদি অনন্ত স্বরূপের ধাম ॥৪৬॥
+
 > tāra tale paravyoma—'viṣṇuloka'-nāma
 > nārāyaṇa-ādi ananta svarūpera dhāma
 

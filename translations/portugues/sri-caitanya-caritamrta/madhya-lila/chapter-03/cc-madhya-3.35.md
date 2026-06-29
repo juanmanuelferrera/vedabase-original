@@ -1,5 +1,8 @@
 ### CC Madhya 3.35
 
+> আচার্য কহে, মিথ্যা নহে শ্রীপাদ-বচন ।
+> যমুনাতে স্নান তুমি করিলা এখন ॥৩৫॥
+
 ācārya kahe, mithyā nahe śrīpāda-vacana
 yamunāte snāna tumi karilā ekhana
 

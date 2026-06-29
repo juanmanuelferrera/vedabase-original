@@ -1,5 +1,8 @@
 ### CC Madhya 6.38
 
+> হুঙ্কার করিয়া উঠে ‘হরি’ ‘হরি’ বলি’ ।
+> আনন্দে সার্বভৌম তাঁর লৈল পদধূলি ॥৩৮॥
+
 huṅkāra kariyā uṭhe 'hari' 'hari' bali'
 
 ānande sārvabhauma tāṅra laila pada-dhūli

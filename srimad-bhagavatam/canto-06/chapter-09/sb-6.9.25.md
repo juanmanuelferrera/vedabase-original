@@ -1,5 +1,8 @@
 ### SB 6.9.25
 
+> य एक ईशो निजमायया नः ससर्ज येनानुसृजाम विश्वम
+> वयं न यस्यापि पुरः समीहतः पश्याम लिङ्गं पृथगीशमानिनः ॥२५॥
+
 > ya eka īśo nija-māyayā naḥ
 > sasarja yenānusṛjāma viśvam
 > vayaṁ na yasyāpi puraḥ samīhataḥ

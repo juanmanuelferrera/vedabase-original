@@ -1,5 +1,8 @@
 ### CC Madhya 8.21
 
+> তথাপি পুছিল, — তুমি রায় রামানন্দ?
+> তেঁহো কহে, — সেই হঙ দাস শূদ্র মন্দ ॥২১॥
+
 > tathāpi puchila,—tumi rāya rāmānanda?
 > teṅho kahe,—sei haṅa dāsa śūdra manda
 

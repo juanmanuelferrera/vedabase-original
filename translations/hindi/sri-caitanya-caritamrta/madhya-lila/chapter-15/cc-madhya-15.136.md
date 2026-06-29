@@ -1,5 +1,8 @@
 ### CC Madhya 15.136
 
+> সার্বভৌম, কর ‘দারুব্রহ্ম’-আরাধন ।
+> বাচস্পতি, কর জলব্রহ্মের সেবন ॥১৩৬॥
+
 > sārvabhauma, kara 'dāru-brahma'-ārādhana
 > vācaspati, kara jala-brahmera sevana
 

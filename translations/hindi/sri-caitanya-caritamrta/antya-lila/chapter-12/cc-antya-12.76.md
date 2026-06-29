@@ -1,5 +1,8 @@
 ### CC Antya 12.76
 
+> প্রভু সবার গলা ধরি’ করেন রোদন ।
+> কান্দিতে কান্দিতে সবায় কৈলা আলিঙ্গন ॥৭৬॥
+
 > prabhu sabāra galā dhari' karena rodana
 > kāndite kāndite sabāya kailā āliṅgana
 

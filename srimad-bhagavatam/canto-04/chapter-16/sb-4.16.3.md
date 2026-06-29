@@ -1,5 +1,8 @@
 ### SB 4.16.3
 
+> अथाप्युदारश्रवसः पृथोर्हरेः कलावतारस्य कथामृतादृताः ।
+> यथोपदेशं मुनिभिः प्रचोदिताः श्लाघ्यानि कर्माणि वयं वितन्महि ॥३॥
+
 > athāpy udāra-śravasaḥ pṛthor hareḥ
 > kalāvatārasya kathāmṛtādṛtāḥ
 > yathopadeśaṁ munibhiḥ pracoditāḥ

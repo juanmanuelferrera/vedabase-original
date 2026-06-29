@@ -1,5 +1,8 @@
 ### CC Madhya 13.129
 
+> ইহাঁ রাজ-বেশ, সঙ্গে সব ক্ষত্রিয়গণ ।
+> তাহাঁ গোপবেশ, সঙ্গে মুরলী-বাদন ॥১২৯॥
+
 ihāṅ rāja-veśa, saṅge saba kṣatriya-gaṇa
 
 tāhāṅ gopa-veśa, saṅge muralī-vādana

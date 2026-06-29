@@ -1,5 +1,8 @@
 ### CC Antya 17.64
 
+> একদিনে যত হয় ভাবের বিকার ।
+> সহস্রমুখে বর্ণে যদি, নাহি পায় পার ॥৬৪॥
+
 > eka-dine yata haya bhāvera vikāra
 > sahasra-mukhe varṇe yadi, nāhi pāya pāra
 

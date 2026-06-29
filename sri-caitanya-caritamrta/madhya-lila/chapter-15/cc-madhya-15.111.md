@@ -1,5 +1,8 @@
 ### CC Madhya 15.111
 
+> “অতএব যাঁর মুখে এক কৃষ্ণনাম ।
+> সেই ত’ বৈষ্ণব, করিহ তাঁহার সম্মান ।।” ॥১১১॥
+
 > "ataeva yāṅra mukhe eka kṛṣṇa-nāma
 > sei ta' vaiṣṇava, kariha tāṅhāra sammāna"
 

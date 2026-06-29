@@ -1,5 +1,8 @@
 ### SB 7.15.70
 
+> रूपपेशलमाधुर्य सौगन्ध्यप्रियदर्शनः
+> स्त्रीणां प्रियतमो नित्यं मत्तः स्वपुरलम्पटः ॥७०॥
+
 > rūpa-peśala-mādhurya-
 > saugandhya-priya-darśanaḥ
 > strīṇāṁ priyatamo nityaṁ

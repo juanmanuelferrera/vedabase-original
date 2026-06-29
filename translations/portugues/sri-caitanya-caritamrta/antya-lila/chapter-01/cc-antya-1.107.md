@@ -1,5 +1,8 @@
 ### CC Antya 1.107
 
+> ‘ঈশ্বর-স্বভাব’ — ভক্তের না লয় অপরাধ ।
+> অল্পসেবা বহু মানে আত্মপর্যন্ত প্রসাদ ॥১০৭॥
+
 'īśvara-svabhāva'--bhaktera nā laya aparādha
 
 alpa-sevā bahu māne ātma-paryanta prasāda

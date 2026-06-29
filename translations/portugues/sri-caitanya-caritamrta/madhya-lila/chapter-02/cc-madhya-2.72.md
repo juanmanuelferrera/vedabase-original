@@ -1,5 +1,10 @@
 ### CC Madhya 2.72
 
+> স্তম্ভ, কম্প, প্রস্বেদ, বৈবর্ণ্য, অশ্রু, স্বরভেদ,
+> দেহ হৈল পুলকে ব্যাপিত ৷
+> হাসে, কান্দে, নাচে, গায়, উঠি’ ইতি উতি ধায়,
+> ক্ষণে ভূমে পড়িয়া মূর্চ্ছিত ৷৷ ৭২ ৷৷ ॥৭২॥
+
 stambha, kampa, prasveda, vaivarṇya, aśru, svara-bheda,
 deha haila pulake vyāpita
 hāse, kānde, nāce, gāya, uṭhi' iti uti dhāya,

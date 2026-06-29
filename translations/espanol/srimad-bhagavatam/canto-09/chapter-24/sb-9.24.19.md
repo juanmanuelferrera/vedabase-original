@@ -1,5 +1,8 @@
 ### SB 9.24.19
 
+> कुकुरो भजमानश्च शुचिः कम्बलबर्हिषः
+> कुकुरस्य सुतो वह्निर्विलोमा तनयस्ततः ॥१९॥
+
 > kukuro bhajamānaś ca
 > śuciḥ kambalabarhiṣaḥ
 > kukurasya suto vahnir

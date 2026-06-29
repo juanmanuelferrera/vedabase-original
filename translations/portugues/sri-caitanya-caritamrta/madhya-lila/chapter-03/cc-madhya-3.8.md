@@ -1,5 +1,8 @@
 ### CC Madhya 3.8
 
+> পরাত্মনিষ্ঠা-মাত্র বেষ-ধারণ ।
+> মুকুন্দ-সেবায় হয় সংসার-তারণ ॥৮॥
+
 parātma-niṣṭhā-mātra veṣa-dhāraṇa
 mukunda-sevāya haya saṁsāra-tāraṇa
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.65
 
+> ‘চ’ ‘অপি’, দুই শব্দ তাতে ‘অব্যয়’ হয় ।
+> যেই অর্থ লাগাইয়ে, সেই অর্থ হয় ॥৬৫॥
+
 > 'ca' 'api', dui śabda tāte 'avyaya' haya
 > yei artha lāgāiye, sei artha haya
 

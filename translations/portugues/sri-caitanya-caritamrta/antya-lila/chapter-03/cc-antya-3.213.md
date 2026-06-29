@@ -1,5 +1,8 @@
 ### CC Antya 3.213
 
+> ভক্ত-স্বভাব, — অজ্ঞ-দোষ ক্ষমা করে ।
+> কৃষ্ণ-স্বভাব, — ভক্ত-নিন্দা সহিতে না পারে ॥২১৩॥
+
 bhakta-svabhāva,--ajña-doṣa kṣamā kare
 
 kṛṣṇa-svabhāva,--bhakta-nindā sahite nā pāre

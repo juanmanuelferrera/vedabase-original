@@ -1,5 +1,8 @@
 ### CC Madhya 17.130
 
+> অতএব তার মুখে না আইসে কৃষ্ণনাম  ।
+> ‘কৃষ্ণনাম’, ‘কৃষ্ণস্বরূপ’ — দুইত ‘সমান’ ॥১৩০॥
+
 > ataeva tāra mukhe nā āise kṛṣṇa-nāma
 > 'kṛṣṇa-nāma', 'kṛṣṇa-svarūpa'—duita 'samāna'
 

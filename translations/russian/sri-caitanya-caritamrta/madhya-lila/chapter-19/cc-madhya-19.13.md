@@ -1,5 +1,8 @@
 ### CC Madhya 19.13
 
+> এথা সনাতন-গোসাঞি ভাবে মনে মন ।
+> রাজা মোরে প্রীতি করে, সে — মোর বন্ধন ॥১৩॥
+
 > ethā sanātana-gosāñi bhāve mane mana
 > rājā more prīti kare, se—mora bandhana
 

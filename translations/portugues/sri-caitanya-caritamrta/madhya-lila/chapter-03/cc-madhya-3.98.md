@@ -1,5 +1,8 @@
 ### CC Madhya 3.98
 
+> আপনার সম মোরে করিবার তরে ।
+> ঝুঠা দিলে, বিপ্র বলি’ ভয় না করিলে ॥৯৮॥
+
 āpanāra sama more karibāra tare
 
 jhuṭhā dile, vipra bali' bhaya nā karile

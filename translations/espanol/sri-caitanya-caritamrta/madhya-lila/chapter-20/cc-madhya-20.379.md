@@ -1,5 +1,8 @@
 ### CC Madhya 20.379
 
+> আদৌ প্রকট করায় মাতা-পিতা-ভক্তগণে  ।
+> পাছে প্রকট হয় জন্মাদিক-লীলাক্রমে ॥৩৭৯॥
+
 > ādau prakaṭa karāya mātā-pita--bhakta-gaṇe
 > pāche prakaṭa haya janmādika-līlā-krame
 

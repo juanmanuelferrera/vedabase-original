@@ -1,5 +1,10 @@
 ### SB 7.9.24
 
+> तस्मादमूस्तनुभृतामहमाशिषोऽज्ञअ
+> आयुः श्रियं विभवमैन्द्रियमाविरिञ्च्यात
+> नेच्छामि ते विलुलितानुरुविक्रमेण
+> कालात्मनोपनय मां निजभृत्यपार्श्वम ॥२४॥
+
 > tasmād amūs tanu-bhṛtām aham āśiṣo 'jña
 > āyuḥ śriyaṁ vibhavam aindriyam āviriñcyāt
 > necchāmi te vilulitān uruvikrameṇa

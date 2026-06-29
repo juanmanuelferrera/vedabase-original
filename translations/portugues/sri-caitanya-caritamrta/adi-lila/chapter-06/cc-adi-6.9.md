@@ -1,5 +1,8 @@
 ### CC Adi 6.9
 
+> ইচ্ছায় অনন্ত মূর্তি করেন প্রকাশ ।
+> এক এক মূর্তে করেন ব্রহ্মাণ্ডে প্রবেশ ॥৯॥
+
 icchāya ananta mūrti karena prakāśa
 eka eka mūrte karena brahmāṇḍe praveśa
 

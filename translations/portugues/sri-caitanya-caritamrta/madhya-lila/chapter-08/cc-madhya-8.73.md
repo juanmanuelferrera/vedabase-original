@@ -1,5 +1,10 @@
 ### CC Madhya 8.73
 
+> ভবন্তমেবানুচরন্নিরন্তরঃ
+> প্রসান্তনিঃশেষমনোরথান্তরঃ ৷
+> কদাঽমৈকান্তিকনিত্যকিঙ্করঃ
+> প্রহর্ষয়িষ্যামি স-নাথ-জীবিতম্ ৷৷ ৭৩ ৷৷ ॥৭৩॥
+
 bhavantam evānucaran nirantaraḥ
 praśānta-niḥśeṣa-mano-rathāntaraḥ
 kadāham aikāntika-nitya-kiṅkaraḥ

@@ -1,5 +1,8 @@
 ### SB 6.18.70
 
+> एकः सङ्कल्पितः पुत्रः सप्त सप्ताभवन्कथम
+> यदि ते विदितं पुत्र सत्यं कथय मा मृषा ॥७०॥
+
 > ekaḥ saṅkalpitaḥ putraḥ
 > sapta saptābhavan katham
 > yadi te viditaṁ putra

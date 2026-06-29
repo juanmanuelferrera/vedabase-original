@@ -1,5 +1,8 @@
 ### CC Madhya 14.48
 
+> টানিতে না পারে গৌড়, রথ ছাড়ি’ দিল ।
+> পাত্র-মিত্র লঞা রাজা ব্যগ্র হঞা আইল ॥৪৮॥
+
 ṭānite nā pāre gauḍa, ratha chāḍi' dila
 
 pātra-mitra lañā rājā vyagra hañā āila

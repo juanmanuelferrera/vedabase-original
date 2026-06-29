@@ -1,5 +1,8 @@
 ### CC Adi 14.34
 
+> এবে সে জানিলাঙ, আর মাটি না খাইব ।
+> ক্ষুধা লাগে যবে, তবে তোমার স্তন পিব ।।” ॥ ৩৪ ॥
+
 ebe se jānilāṅ, āra māṭi nā khāiba
 
 kṣudhā lāge yabe, tabe tomāra stana piba"

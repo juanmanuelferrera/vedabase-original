@@ -1,5 +1,8 @@
 ### SB 1.18.41
 
+> निशम्य शप्तमतदर्हं नरेन्द्रं स ब्राह्मणो नात्मजमभ्यनन्दत् ।
+> अहो बतांहो महदद्य ते कृतमल्पीयसि द्रोह उरुर्दमो धृतः ॥४१॥
+
 > niśamya śaptam atad-arhaṁ narendraṁ
 > sa brāhmaṇo nātmajam abhyanandat
 > aho batāṁho mahad adya te kṛtam

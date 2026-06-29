@@ -1,5 +1,8 @@
 ### CC Antya 2.151
 
+> সব কহে, — “হরিদাস বর্ষপূর্ণ দিনে ।
+> রাত্রে উঠি কাঁহা গেলা, কেহ নাহি জানে ।।” ॥ ১৫১ ॥
+
 sabe kahe,--'haridāsa varṣa-pūrṇa dine
 
 rātre uṭhi kāṅhā gelā, keha nāhi jāne"

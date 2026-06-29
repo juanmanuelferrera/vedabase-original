@@ -1,5 +1,8 @@
 ### SB 4.22.43
 
+> निष्पादितश्च कार्त्स्न्येन भगवद्भिर्घृणालुभिः ।
+> साधूच्छिष्टं हि मे सर्वमात्मना सह किं ददे ॥४३॥
+
 > niṣpāditaś ca kārtsnyena
 > bhagavadbhir ghṛṇālubhiḥ
 > sādhūcchiṣṭaṁ hi me sarvam

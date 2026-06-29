@@ -1,5 +1,8 @@
 ### CC Madhya 24.288
 
+> জাত-অজাত-রতিভেদে সাধক দুই ভেদ  ।
+> বিধি-রাগ-মার্গে চারি চারি — অষ্ট ভেদ ॥২৮৮॥
+
 > jāta-ajāta-rati-bhede sādhaka dui bheda
 > vidhi-rāga-mārge cāri cāri—aṣṭa bheda
 

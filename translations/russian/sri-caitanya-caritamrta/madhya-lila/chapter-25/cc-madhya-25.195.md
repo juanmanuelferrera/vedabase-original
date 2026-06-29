@@ -1,5 +1,8 @@
 ### CC Madhya 25.195
 
+> প্রায়শ্চিত্ত পুছিলা তিঁহো পণ্ডিতের গণে ।
+> তাঁরা কহে, — তপ্ত-ঘৃত খাঞা ছাড়’ প্রাণে ॥১৯৫॥
+
 > prāyaścitta puchilā tiṅho paṇḍitera gaṇe
 > tāṅrā kahe,-tapta-ghṛta khāñā chāḍa' prāṇe
 

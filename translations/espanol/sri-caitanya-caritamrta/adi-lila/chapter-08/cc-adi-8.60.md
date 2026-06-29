@@ -1,5 +1,8 @@
 ### CC Adi 8.60
 
+> তাঁহার অনন্ত গুণ কে করু প্রকাশ ।
+> তাঁর প্রিয় শিষ্য ইঁহ — পণ্ডিত হরিদাস ॥৬০॥
+
 > tāṅhāra ananta guṇa ke karu prakāśa
 > tāṅra priya śiṣya iṅha--paṇḍita haridāsa
 

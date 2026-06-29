@@ -1,5 +1,8 @@
 ### CC Madhya 1.233
 
+> শচীদেবী আনি’ তাঁরে কৈল নমস্কার ।
+> সাত দিন তাঁর ঠাঞি ভিক্ষা-ব্যবহার ॥২৩৩॥
+
 śacī-devī āni' tāṅre kaila namaskāra
 
 sāta dina tāṅra ṭhāñi bhikṣā-vyavahāra

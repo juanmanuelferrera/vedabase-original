@@ -1,5 +1,8 @@
 ### SB 3.1.37
 
+> किं वा कृताघेष्वघमत्यमर्षी भीमोऽहिवद्दीर्घतमं व्यमुञ्चत् ।
+> यस्याङ्घ्रिपातं रणभूर्न सेहे मार्गं गदायाश्चरतो विचित्रम् ॥३७॥
+
 > kiṁ vā kṛtāgheṣv agham atyamarṣī
 > bhīmo 'hivad dīrghatamaṁ vyamuñcat
 > yasyāṅghri-pātaṁ raṇa-bhūr na sehe

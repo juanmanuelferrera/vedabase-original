@@ -1,5 +1,8 @@
 ### CC Madhya 11.86
 
+> এই মুরারি গুপ্ত, ইঁহ পণ্ডিত নারায়ণ ।
+> হরিদাস ঠাকুর ইঁহ ভুবনপাবন ॥৮৬॥
+
 > ei murāri gupta, iṅha paṇḍita nārāyaṇa
 > haridāsa ṭhākura iṅha bhuvana-pāvana
 

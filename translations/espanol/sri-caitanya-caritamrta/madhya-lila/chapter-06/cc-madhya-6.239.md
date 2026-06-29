@@ -1,5 +1,8 @@
 ### CC Madhya 6.239
 
+> আর দিন ভট্টাচার্য আইলা দর্শনে ।
+> জগন্নাথ না দেখি’ আইলা প্রভুস্থানে ॥২৩৯॥
+
 > āra dina bhaṭṭācārya āilā darśane
 > jagannātha nā dekhi' āilā prabhu-sthāne
 

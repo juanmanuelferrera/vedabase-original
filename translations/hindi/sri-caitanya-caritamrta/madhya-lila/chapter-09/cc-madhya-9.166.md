@@ -1,5 +1,8 @@
 ### CC Madhya 9.166
 
+> ঋষভ-পর্বতে চলি’ আইলা গৌরহরি ।
+> নারায়ণ দেখিলা তাঁহা নতি-স্তুতি করি’ ॥১৬৬॥
+
 > ṛṣabha-parvate cali' āilā gaurahari
 > nārāyaṇa dekhilā tāṅhā nati-stuti kari'
 

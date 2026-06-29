@@ -1,5 +1,8 @@
 ### CC Madhya 5.27
 
+> তা’-সবার সম্মতি বিনা নহে কন্যাদান  ।
+> রুক্মিণীর পিতা ভীষ্মক তাহাতে প্রমাণ ॥২৭॥
+
 tā'-sabāra sammati vinā nahe kanyā-dāna
 
 rukmiṇīra pitā bhīṣmaka tāhāte pramāṇa

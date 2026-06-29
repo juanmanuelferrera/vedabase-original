@@ -1,5 +1,8 @@
 ### CC Madhya 11.119
 
+> তবে রাজা অট্টালিকা হৈতে তলেতে আইলা ।
+> কাশীমিশ্র, পড়িছা-পাত্র, দুঁহে আনাইলা ॥১১৯॥
+
 > tabe rājā aṭṭālikā haite talete āilā
 > kāśī-miśra, paḍichā-pātra, duṅhe ānāilā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 4.128
 
+> ধড়ার অঞ্চলে ঢাকা এক ক্ষীর হয় ।
+> তোমরা না জানিলা তাহা আমার মায়ায় ॥১২৮॥
+
 dhaḍāra añcale ḍhākā eka kṣīra haya
 tomarā nā jānilā tāhā āmāra māyāya
 

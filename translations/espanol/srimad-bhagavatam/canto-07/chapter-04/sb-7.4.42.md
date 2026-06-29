@@ -1,5 +1,8 @@
 ### SB 7.4.42
 
+> स उत्तमश्लोकपदारविन्दयोर्निषेवयाकिञ्चनसङ्गलब्धया
+> तन्वन्परां निर्वृतिमात्मनो मुहुर्दुःसङ्गदीनस्य मनः शमं व्यधात ॥४२॥
+
 > sa uttama-śloka-padāravindayor
 > niṣevayākiñcana-saṅga-labdhayā
 > tanvan parāṁ nirvṛtim ātmano muhur

@@ -1,5 +1,8 @@
 ### CC Antya 8.40
 
+> প্রভুর নিমন্ত্রণে লাগে কৌড়ি চারি পণ ।
+> কভু কাশীশ্বর, গোবিন্দ খান তিন জন ॥৪০॥
+
 > prabhura nimantraṇe lāge kauḍi cāri paṇa
 > kabhu kāśīśvara, govinda khāna tina jana
 

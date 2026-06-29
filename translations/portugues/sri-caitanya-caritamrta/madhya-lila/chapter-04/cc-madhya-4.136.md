@@ -1,5 +1,8 @@
 ### CC Madhya 4.136
 
+> ক্ষীরের বৃত্তান্ত তাঁরে কহিল পূজারী ।
+> শুনি’ প্রেমাবিষ্ট হৈল শ্রীমাধবপুরী ॥১৩৬॥
+
 kṣīrera vṛttānta tāṅre kahila pūjārī
 
 śuni' premāviṣṭa haila śrī-mādhava-purī

@@ -1,5 +1,8 @@
 ### CC Madhya 15.201
 
+> ঘরে আসি’ ভট্টাচার্য তাঁরে আজ্ঞা দিল ।
+> আনন্দে ষাঠীর মাতা পাক চড়াইল ॥২০১॥
+
 ghare āsi' bhaṭṭācārya tāṅre ājñā dila
 
 ānande ṣāṭhīra mātā pāka caḍāila

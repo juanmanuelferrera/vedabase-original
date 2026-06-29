@@ -1,5 +1,10 @@
 ### CC Madhya 11.192
 
+> অহো বত শ্বপচোঽতো গরীয়ান্
+> যজ্জিহ্বাগ্রে বর্ততে নাম তুভ্যম্ ৷
+> তেপুস্তপস্তে জুহুবুঃ সস্নুরার্যা
+> ব্রহ্মানূচুর্নাম গৃণন্তি যে তে ৷৷ ১৯২ ৷৷ ॥১৯২॥
+
 aho bata śva-paco 'to garīyān
 yaj-jihvāgre vartate nāma tubhyam
 tepus tapas te juhuvuḥ sasnur āryā

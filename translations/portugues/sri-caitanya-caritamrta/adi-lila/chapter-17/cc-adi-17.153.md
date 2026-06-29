@@ -1,5 +1,8 @@
 ### CC Adi 17.153
 
+> প্রভু কহে, — গোদুগ্ধ খাও, গাভী তোমার মাতা ।
+> বৃষ অন্ন উপজায়, তাতে তেঁহো পিতা ॥১৫৩॥
+
 prabhu kahe,--go-dugdha khāo, gābhī tomāra mātā
 
 vṛṣa anna upajāya, tāte teṅho pitā

@@ -1,5 +1,8 @@
 ### CC Antya 18.110
 
+> এতেক কহিতে প্রভুর কেবল ‘বাহ্য’ হৈল  ।
+> স্বরূপ-গোসাঞিরে দেখি’ তাঁহারে পুছিল ॥১১০॥
+
 eteka kahite prabhura kevala 'bāhya' haila
 
 svarūpa-gosāñire dekhi' tāṅhāre puchila

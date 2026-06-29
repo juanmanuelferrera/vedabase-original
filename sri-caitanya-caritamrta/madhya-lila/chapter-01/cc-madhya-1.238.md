@@ -1,5 +1,8 @@
 ### CC Madhya 1.238
 
+> বলভদ্র ভট্টাচার্য রহে মাত্র সঙ্গে ।
+> ঝারিখণ্ড-পথে কাশী আইলা মহারঙ্গে ॥২৩৮॥
+
 > balabhadra bhaṭṭācārya rahe mātra saṅge
 > jhārikhaṇḍa-pathe kāśī āilā mahā-raṅge
 

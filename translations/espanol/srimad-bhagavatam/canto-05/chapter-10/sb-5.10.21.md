@@ -1,5 +1,8 @@
 ### SB 5.10.21
 
+> दृष्टः श्रमः कर्मत आत्मनो वै भर्तुर्गन्तुर्भवतश्चानुमन्ये
+> यथासतोदानयनाद्यभावात्समूल इष्टो व्यवहारमार्गः ॥२१॥
+
 > dṛṣṭaḥ śramaḥ karmata ātmano vai
 > bhartur gantur bhavataś cānumanye
 > yathāsatodānayanādy-abhāvāt

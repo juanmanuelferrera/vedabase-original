@@ -1,5 +1,8 @@
 ### CC Madhya 23.44
 
+> ইহা যৈছে ক্রমে নির্মল, ক্রমে বাড়ে স্বাদ ।
+> রতি-প্রেমাদির তৈছে বাড়য়ে আস্বাদ ॥৪৪॥
+
 > ihā yaiche krame nirmala, krame bāḍe svāda
 > rati-premādira taiche bāḍaye āsvāda
 

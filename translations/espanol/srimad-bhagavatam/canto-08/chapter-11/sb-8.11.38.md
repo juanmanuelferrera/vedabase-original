@@ -1,5 +1,8 @@
 ### SB 8.11.38
 
+> मयास्मै यद्वरो दत्तो मृत्युर्नैवार्द्रशुष्कयोः
+> अतोऽन्यश्चिन्तनीयस्ते उपायो मघवन्रिपोः ॥३८॥
+
 > mayāsmai yad varo datto
 > mṛtyur naivārdra-śuṣkayoḥ
 > ato 'nyaś cintanīyas te

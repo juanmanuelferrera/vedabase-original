@@ -1,5 +1,8 @@
 ### CC Adi 6.42
 
+> চৈতন্যগোসাঞিকে আচার্য করে ‘প্রভু’-জ্ঞান ।
+> আপনাকে করেন তাঁর ‘দাস’-অভিমান ॥৪২॥
+
 > caitanya-gosāñike ācārya kare 'prabhu'-jñāna
 > āpanāke karena tāṅra 'dāsa'-abhimāna
 

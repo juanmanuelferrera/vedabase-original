@@ -1,5 +1,8 @@
 ### CC Madhya 14.206
 
+> এত সম্পত্তি ছাড়ি, কেনে গেলা বৃন্দাবন ।
+> তাঁরে হাস্য করিতে লক্ষ্মী করিলা সাজন ॥২০৬॥
+
 eta sampatti chāḍi' kene gelā vṛndāvana
 
 tāṅre hāsya karite lakṣmī karilā sājana

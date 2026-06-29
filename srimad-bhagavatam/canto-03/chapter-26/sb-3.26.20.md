@@ -1,5 +1,8 @@
 ### SB 3.26.20
 
+> विश्वमात्मगतं व्यञ्जन्कूटस्थो जगदङ्कुरः ।
+> स्वतेजसापिबत्तीव्रमात्मप्रस्वापनं तमः ॥२०॥
+
 > viśvam ātma-gataṁ vyañjan
 > kūṭa-stho jagad-aṅkuraḥ
 > sva-tejasāpibat tīvram

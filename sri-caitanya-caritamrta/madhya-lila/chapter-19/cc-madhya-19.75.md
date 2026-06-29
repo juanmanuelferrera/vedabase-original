@@ -1,5 +1,8 @@
 ### CC Madhya 19.75
 
+> ভগবদ্ভক্তিহীনস্য জাতিঃ শাস্ত্রং জপস্তপঃ ।
+> অপ্রাণস্যেব দেহস্য মণ্ডনং লোকরঞ্জনম্ ॥৭৫॥
+
 > bhagavad-bhakti-hīnasya
 > jātiḥ śāstraṁ japas tapaḥ
 > aprāṇasyeva dehasya

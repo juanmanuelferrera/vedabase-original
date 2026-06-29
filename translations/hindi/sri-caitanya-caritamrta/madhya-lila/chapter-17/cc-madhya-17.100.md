@@ -1,5 +1,8 @@
 ### CC Madhya 17.100
 
+> এইমত মহাপ্রভু দুই ভৃত্যের বশে ।
+> ইচ্ছা নাহি, তবু তথা রহিলা দিন-দশে ॥১০০॥
+
 > ei-mata mahāprabhu dui bhṛtyera vaśe
 > icchā nāhi, tabu tathā rahilā dina-daśe
 

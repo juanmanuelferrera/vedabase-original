@@ -1,5 +1,8 @@
 ### CC Madhya 12.174
 
+> এই মহাপ্রসাদ অল্প করহ আস্বাদন  ।
+> দেখ, জগন্নাথ কৈছে কর্যাছেন ভোজন ॥১৭৪॥
+
 > ei mahā-prasāda alpa karaha āsvādana
 > dekha, jagannātha kaiche karyāchena bhojana
 

@@ -1,5 +1,8 @@
 ### CC Adi 4.240
 
+> আমা হৈতে যার হয় শত শত গুণ ।
+> সেইজন আহ্লাদিতে পারে মোর মন ॥২৪০॥
+
 > āmā haite yāra haya śata śata guṇa
 > sei-jana āhlādite pāre mora mana
 

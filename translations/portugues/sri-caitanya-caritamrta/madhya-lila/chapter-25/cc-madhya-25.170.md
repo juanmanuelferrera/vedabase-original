@@ -1,5 +1,8 @@
 ### CC Madhya 25.170
 
+> আমি বোঝা বহিমু, তোমা-সবার দুঃখ হৈল ৷
+> তোমা-সবার ইচ্ছায় বিনামূল্যে বিলাইল ৷৷ ১৭০ ৷৷ ॥১৭০॥
+
 āmi bojhā vahimu, tomā-sabāra duḥkha haila
 
 tomā-sabāra icchāya vinā-mūlye bilāila

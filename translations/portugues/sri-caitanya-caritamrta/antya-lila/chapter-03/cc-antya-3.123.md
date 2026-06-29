@@ -1,5 +1,8 @@
 ### CC Antya 3.123
 
+> রাত্রি-শেষ হৈল, বেশ্যা উসিমিসি করে  ।
+> তার রীতি দেখি’ হরিদাস কহেন তাহারে ॥১২৩॥
+
 rātri-śeṣa haila, veśyā usimisi kare
 
 tāra rīti dekhi' haridāsa kahena tāhāre

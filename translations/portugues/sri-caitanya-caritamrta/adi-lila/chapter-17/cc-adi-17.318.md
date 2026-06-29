@@ -1,5 +1,8 @@
 ### CC Adi 17.318
 
+> পঞ্চমে ‘শ্রীনিত্যানন্দ’-তত্ত্ব নিরূপণ ।
+> নিত্যানন্দ হৈলা রাম রোহিণীনন্দন ॥৩১৮॥
+
 pañcame 'śrī-nityānanda'-tattva nirūpaṇa
 nityānanda hailā rāma rohiṇī-nandana
 

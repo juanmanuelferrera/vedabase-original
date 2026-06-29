@@ -1,5 +1,8 @@
 ### SB 4.27.9
 
+> पुत्राणां चाभवन्पुत्रा एकैकस्य शतं शतम् ।
+> यैर्वै पौरञ्जनो वंशः पञ्चालेषु समेधितः ॥९॥
+
 > putrāṇāṁ cābhavan putrā
 > ekaikasya śataṁ śatam
 > yair vai paurañjano vaṁśaḥ

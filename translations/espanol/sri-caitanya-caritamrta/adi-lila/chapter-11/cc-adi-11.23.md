@@ -1,5 +1,8 @@
 ### CC Adi 11.23
 
+> সুন্দরানন্দ — নিত্যানন্দের শাখা, ভৃত্য মর্ম ।
+> যাঁর সঙ্গে নিত্যানন্দ করে ব্রজনর্ম ॥২৩॥
+
 > sundarānanda--nityānandera śākhā, bhṛtya marma
 > yāṅra saṅge nityānanda kare vraja-narma
 

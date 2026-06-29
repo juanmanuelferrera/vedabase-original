@@ -1,5 +1,8 @@
 ### CC Adi 15.1
 
+> কুমনাঃ সুমনস্ত্বং হি যাতি যস্য পদাব্জয়োঃ ।
+> সুমনোঽর্পণমাত্রেণ তং চৈতন্যপ্রভুং ভজে ॥১॥
+
 ku-manāḥ su-manastvaṁ hi
 yāti yasya padābjayoḥ
 su-mano-'rpaṇa-mātreṇa

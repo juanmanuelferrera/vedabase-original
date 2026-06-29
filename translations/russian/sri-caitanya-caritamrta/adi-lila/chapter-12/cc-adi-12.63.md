@@ -1,5 +1,8 @@
 ### CC Adi 12.63
 
+> পুরুষোত্তম পণ্ডিত, আর রঘুনাথ ।
+> বনমালী কবিচন্দ্র, আর বৈদ্যনাথ ॥৬৩॥
+
 > puruṣottama paṇḍita, āra raghunātha
 > vanamālī kavicandra, āra vaidyanātha
 

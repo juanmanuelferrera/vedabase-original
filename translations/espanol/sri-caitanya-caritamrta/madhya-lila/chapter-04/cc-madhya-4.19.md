@@ -1,5 +1,8 @@
 ### CC Madhya 4.19
 
+> ‘ক্ষীরচোরা গোপীনাথ’ প্রসিদ্ধ তাঁর নাম ।
+> ভক্তগণে কহে প্রভু সেই ত’ আখ্যান ॥১৯॥
+
 > 'kṣīra-corā gopīnātha' prasiddha tāṅra nāma
 > bhakta-gaṇe kahe prabhu sei ta' ākhyāna
 

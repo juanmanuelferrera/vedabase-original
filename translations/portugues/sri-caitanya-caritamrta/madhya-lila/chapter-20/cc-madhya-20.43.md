@@ -1,5 +1,8 @@
 ### CC Madhya 20.43
 
+> গোসাঞি কহে, — “একক্ষণ ইহা না রহিব ।
+> গঙ্গা পার করি’ দেহ’, এক্ষণে চলিব ।।” ॥ ৪৩ ॥
+
 gosāñi kahe,--'eka-kṣaṇa ihā nā rahiba
 
 gaṅgā pāra kari' deha' e-kṣaṇe caliba"

@@ -1,5 +1,8 @@
 ### CC Antya 20.45
 
+> এত ভাবে রাধার মন অস্থির হইলা ।
+> সখীগণ-আগে প্রৌঢ়ি-শ্লোক যে পড়িলা ॥৪৫॥
+
 > eta bhāve rādhāra mana asthira ha-ilā
 > sakhī-gaṇa-āge prauḍhi-śloka ye paḍilā
 

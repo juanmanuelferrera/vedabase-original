@@ -1,5 +1,8 @@
 ### CC Antya 13.88
 
+> এত বলি’ লেউটি’ প্রভু গেলা নিজ-স্থানে ।
+> শুনি’ মহা-ভয় হইল স্বরূপাদি-মনে ॥৮৮॥
+
 > eta bali' leuṭi' prabhu gelā nija-sthāne
 > śuni' mahā-bhaya ha-ila svarūpādi-mane
 

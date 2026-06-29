@@ -1,5 +1,8 @@
 ### SB 5.19.8
 
+> सुरोऽसुरो वाप्यथ वानरो नरः सर्वात्मना यः सुकृतज्ञअमुत्तमम
+> भजेत रामं मनुजाकृतिं हरिं य उत्तराननयत्कोसलान्दिवमिति ॥८॥
+
 suro 'suro vāpy atha vānaro naraḥ
 sarvātmanā yaḥ sukṛtajñam uttamam
 bhajeta rāmaṁ manujākṛtiṁ hariṁ

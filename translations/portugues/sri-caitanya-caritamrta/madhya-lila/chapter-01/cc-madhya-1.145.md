@@ -1,5 +1,8 @@
 ### CC Madhya 1.145
 
+> গুণ্ডিচাতে নৃত্য-অন্তে কৈল জলকেলি ।
+> হেরা-পঞ্চমীতে দেখিল লক্ষ্মীদেবীর কেলী ॥১৪৫॥
+
 guṇḍicāte nṛtya-ante kaila jala-keli
 
 herā-pañcamīte dekhila lakṣmī-devīra kelī

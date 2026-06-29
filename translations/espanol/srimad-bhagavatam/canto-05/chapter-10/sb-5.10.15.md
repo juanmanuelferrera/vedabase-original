@@ -1,5 +1,7 @@
 ### SB 5.10.15
 
+> स चापि पाण्डवेय सिन्धुसौवीरपतिस्तत्त्वजिज्ञआसायां सम्यकश्रद्धयाधिकृताधिकारस्तद्धृदयग्रन्थिमोचनं द्विजवच आश्रुत्य बहुयोगग्रन्थसम्मतंत्वरयावरुह्य शिरसा पादमूलमुपसृतः क्षमापयन्विगतनृपदेवस्मय उवाच ॥१५॥
+
 > sa cāpi pāṇḍaveya sindhu-sauvīra-patis tattva-jijñāsāyāṁ samyak-śraddhayādhikṛtādhikāras tad dhṛdaya-granthi-mocanaṁ dvija-vaca āśrutya bahu-yoga-grantha-sammataṁ tvarayāvaruhya śirasā pāda-mūlam upasṛtaḥ kṣamāpayan vigata-nṛpa-deva-smaya uvāca.
 
 *saḥ*—él (Mahārāja Rahūgaṇa); *ca*—también; *api*—en verdad; *pāṇḍaveya*—¡oh, joya de la dinastía Pāṇḍu (Mahārāja Parīkṣit)!; *sindhu-sauvīra-patiḥ*—el rey de los estados de Sindhu y Sauvīra; *tattva-jijñāsāyām*—en lo relativo a preguntar acerca de la Verdad Absoluta; *samyak-śraddhayā*—mediante la fe que consiste en el pleno control de los sentidos y la mente; *adhikṛta-adhikāraḥ*—quien había llegado a poseer las cualidades necesarias; *tat*—ese; *hṛdaya-granthi*—el nudo de conceptos erróneos que está en el corazón; *mocanam*—que erradica; *dvija-vacaḥ*—las palabras del *brāhmaṇa* (Jaḍa Bharata); *āśrutya*—escuchar; *bahu-yoga-grantha-sammatam*—aprobado por todos los procesos de *yoga* y por sus Escrituras; *tvarayā*—muy rápido; *avaruhya*—descendiendo (del palanquín); *śirasā*—con la cabeza; *pāda-mūlam*—a los pies de loto; *upasṛtaḥ*—postrándose en el suelo para ofrecer reverencias; *kṣamāpayan*—obtener el perdón por su ofensa; *vigata-nṛpa-deva-smayaḥ*—abandonando el prestigio falso de ser rey, y, por consiguiente, digno de adoración; *uvāca*—dijo.

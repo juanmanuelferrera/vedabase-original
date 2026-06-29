@@ -1,5 +1,8 @@
 ### CC Madhya 16.255
 
+> গদাধর-পণ্ডিত আসি’ প্রভুরে মিলিলা ।
+> সবার অগ্রেতে প্রভু কহিতে লাগিলা ॥২৫৫॥
+
 gadādhara-paṇḍita āsi' prabhure mililā
 
 sabāra agrete prabhu kahite lāgilā

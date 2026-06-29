@@ -1,5 +1,8 @@
 ### CC Madhya 25.3
 
+> এই মত মহাপ্রভু দুই মাস পর্যন্ত ।
+> শিখাইলা তাঁরে ভক্তিসিদ্ধান্তের অন্ত ॥৩॥
+
 ei mata mahāprabhu dui māsa paryanta
 śikhāilā tāṅre bhakti-siddhāntera anta
 

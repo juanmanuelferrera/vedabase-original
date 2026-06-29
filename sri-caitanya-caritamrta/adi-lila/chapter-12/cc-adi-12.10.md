@@ -1,5 +1,8 @@
 ### CC Adi 12.10
 
+> আচার্যের মত যেই, সেই মত সার ।
+> তাঁর আজ্ঞা লঙ্ঘি’ চলে, সেই ত’ অসার ॥১০॥
+
 > ācāryera mata yei, sei mata sāra
 > tāṅra ājñā laṅghi' cale, sei ta' asāra
 

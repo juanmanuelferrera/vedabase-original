@@ -1,5 +1,8 @@
 ### CC Madhya 10.6
 
+> তোমারে বহু কৃপা কৈলা, কহে সর্বজন ।
+> কৃপা করি’ করাহ মোরে তাঁহার দর্শন ॥৬॥
+
 > tomāre bahu kṛpā kailā, kahe sarva-jana
 > kṛpā kari' karāha more tāṅhāra darśana
 

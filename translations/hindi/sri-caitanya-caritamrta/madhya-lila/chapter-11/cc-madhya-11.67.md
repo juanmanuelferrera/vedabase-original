@@ -1,5 +1,8 @@
 ### CC Madhya 11.67
 
+> গৌড় হৈতে বৈষ্ণব আসিতেছেন দুইশত ।
+> মহাপ্রভুর ভক্ত সব — মহাভাগবত ॥৬৭॥
+
 > gauḍa haite vaiṣṇava āsitechena dui-śata
 > mahāprabhura bhakta saba-mahā-bhāgavata
 

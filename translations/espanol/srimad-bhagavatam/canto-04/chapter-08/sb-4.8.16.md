@@ -1,5 +1,8 @@
 ### SB 4.8.16
 
+> सोत्सृज्य धैर्यं विललाप शोक दावाग्निना दावलतेव बाला ।
+> वाक्यं सपत्न्याः स्मरती सरोज श्रिया दृशा बाष्पकलामुवाह ॥१६॥
+
 > sotsṛjya dhairyaṁ vilalāpa śoka-
 > dāvāgninā dāva-lateva bālā
 > vākyaṁ sapatnyāḥ smaratī saroja-

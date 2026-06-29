@@ -1,5 +1,8 @@
 ### CC Madhya 15.163
 
+> জীবের পাপ লঞা মুঞি করোঁ নরক ভোগ  ।
+> সকল জীবের, প্রভু, ঘুচাহ ভবরোগ ॥১৬৩॥
+
 > jīvera pāpa lañā muñi karoṅ naraka bhoga
 > sakala jīvera, prabhu, ghucāha bhava-roga
 

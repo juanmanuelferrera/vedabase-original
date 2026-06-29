@@ -1,5 +1,8 @@
 ### CC Madhya 19.102
 
+> শ্যাম-রূপের বাসস্থান শ্রেষ্ঠ মান’ কায় ?
+> ‘পুরী মধুপুরী বরা’ — কহে উপাধ্যায় ॥১০২॥
+
 śyāma-rūpera vāsa-sthāna śreṣṭha māna' kāya?
 
 'purī madhu-purī varā'--kahe upādhyāya

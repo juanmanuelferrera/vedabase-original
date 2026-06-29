@@ -1,5 +1,8 @@
 ### SB 3.18.26
 
+> एषा घोरतमा सन्ध्या लोकच्छम्बट्करी प्रभो ।
+> उपसर्पति सर्वात्मन्सुराणां जयमावह ॥२६॥
+
 > eṣā ghoratamā sandhyā
 > loka-cchambaṭ-karī prabho
 > upasarpati sarvātman

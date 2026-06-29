@@ -1,5 +1,8 @@
 ### CC Madhya 19.249
 
+> ভিক্ষা করাঞা মিশ্র কহে প্রভু-পায় ধরি’ ।
+> এক ভিক্ষা মাগি, মোরে দেহ’ কৃপা করি’ ॥২৪৯॥
+
 > bhikṣā karāñā miśra kahe prabhu-pāya dhari'
 > eka bhikṣā māgi, more deha' kṛpā kari'
 

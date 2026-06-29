@@ -1,5 +1,8 @@
 ### CC Antya 4.136
 
+> দুইজন বসি’ কৃষ্ণকথা-গোষ্ঠী কৈলা ।
+> পণ্ডিতেরে সনাতন দুঃখ নিবেদিলা ॥১৩৬॥
+
 dui-jana vasi' kṛṣṇa-kathā-goṣṭhī kailā
 
 paṇḍitere sanātana duḥkha nivedilā

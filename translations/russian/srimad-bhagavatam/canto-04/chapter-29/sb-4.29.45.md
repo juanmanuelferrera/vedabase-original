@@ -1,5 +1,8 @@
 ### SB 4.29.45
 
+> शब्दब्रह्मणि दुष्पारे चरन्त उरुविस्तरे ।
+> मन्त्रलिङ्गैर्व्यवच्छिन्नं भजन्तो न विदुः परम् ॥४५॥
+
 > śabda-brahmaṇi duṣpāre
 > caranta uru-vistare
 > mantra-liṅgair vyavacchinnaṁ

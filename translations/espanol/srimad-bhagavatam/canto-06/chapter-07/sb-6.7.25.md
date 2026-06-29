@@ -1,5 +1,8 @@
 ### SB 6.7.25
 
+> तद्विश्वरूपं भजताशु विप्रं तपस्विनं त्वाष्ट्रमथात्मवन्तम
+> सभाजितोऽर्थान्स विधास्यते वो यदि क्षमिष्यध्वमुतास्य कर्म ॥२५॥
+
 > tad viśvarūpaṁ bhajatāśu vipraṁ
 > tapasvinaṁ tvāṣṭram athātmavantam
 > sabhājito 'rthān sa vidhāsyate vo

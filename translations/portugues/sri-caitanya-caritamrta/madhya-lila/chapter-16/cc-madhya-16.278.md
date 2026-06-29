@@ -1,5 +1,8 @@
 ### CC Madhya 16.278
 
+> গদাধরে ছাড়ি’ গেনু, ইঁহো দুঃখ পাইল ।
+> সেই হেতু বৃন্দাবন যাইতে নারিল ॥২৭৮॥
+
 gadādhare chāḍi' genu, iṅho duḥkha pāila
 
 sei hetu vṛndāvana yāite nārila

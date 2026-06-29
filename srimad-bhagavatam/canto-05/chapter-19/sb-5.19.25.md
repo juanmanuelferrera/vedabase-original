@@ -1,5 +1,8 @@
 ### SB 5.19.25
 
+> प्राप्ता नृजातिं त्विह ये च जन्तवो ज्ञआनक्रियाद्रव्यकलापसम्भृताम
+> न वै यतेरन्नपुनर्भवाय ते भूयो वनौका इव यान्ति बन्धनम ॥२५॥
+
 > prāptā nṛ-jātiṁ tv iha ye ca jantavo
 > jñāna-kriyā-dravya-kalāpa-sambhṛtām
 > na vai yaterann apunar-bhavāya te

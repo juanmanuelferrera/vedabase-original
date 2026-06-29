@@ -1,5 +1,8 @@
 ### CC Adi 4.145
 
+> বিচার করিয়ে যদি আস্বাদ-উপায় ।
+> রাধিকাস্বরূপ হইতে তবে মন ধায় ॥১৪৫॥
+
 vicāra kariye yadi āsvāda-upāya
 rādhikā-svarūpa ha-ite tabe mana dhāya
 

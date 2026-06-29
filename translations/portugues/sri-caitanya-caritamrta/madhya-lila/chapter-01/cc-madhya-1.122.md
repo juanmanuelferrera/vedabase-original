@@ -1,5 +1,8 @@
 ### CC Madhya 1.122
 
+> অনবসরে জগন্নাথের না পাঞা দরশন ।
+> বিরহে আলালনাথ করিলা গমন ॥১২২॥
+
 anavasare jagannāthera nā pāñā daraśana
 
 virahe ālālanātha karilā gamana

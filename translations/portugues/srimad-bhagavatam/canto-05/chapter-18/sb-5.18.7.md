@@ -1,5 +1,7 @@
 ### SB 5.18.7
 
+> हरिवर्षे चापि भगवान्नरहरिरूपेणास्ते तद्रूपग्रहणनिमित्तमुत्तरत्राभिधास्येतद्दयितं रूपं महापुरुषगुणभाजनो महाभागवतो दैत्यदानवकुलतीर्थीकरणशीलाचरितःप्रह्लादोऽव्यवधानानन्यभक्तियोगेन सह तद्वर्षपुरुषैरुपास्ते इदं चोदाहरति ॥७॥
+
 *hari*-varṣe cāpi bhagavān nara-hari-rūpeṇāste; *tad*-rūpa-grahaṇa-nimittam uttaratrābhidhāsye; *tad dayitaṁ rūpaṁ mahā*-puruṣa-guṇa-bhājano mahā-bhāgavato daitya-dānava-kula-tīrthīkaraṇa-śīlā-caritaḥ prahlādo 'vyavadhānānanya-bhakti-yogena saha tad-varṣa-puruṣair upāste idaṁ codāharati.
 
 *hari-varṣe*—na extensão de terra conhecida como Harivarṣa; *ca*—também; *api*—de fato; *bhagavān*—a Suprema Personalidade de Deus; *nara-hari-rūpeṇa*—em Sua forma de Nṛsiṁhadeva; *āste*—está situado; *tat-rūpa-grahaṇa-nimittam*—a razão pela qual o Senhor Kṛṣṇa (Keśava) assumiu a forma de Nṛsiṁha; *uttaratra*—em capítulos posteriores; *abhidhāsye*—descreverei; *tat*—essa; *dayitam*—mais agradável; *rūpam*—forma do Senhor; *mahā-puruṣa-guṇa-bhājanaḥ*—Prahlāda Mahārāja, que é a morada de todas as boas qualidades das grandes personalidades; *mahā-bhāgavataḥ*—o mais elevado devoto; *daitya-dānava-kula-tīrthī-karaṇa-śīlā-caritaḥ*—cujas atividades e caráter eram tão elevados que ele libertou todos os *daityas* (demônios) nascidos em sua família; *prahlādaḥ*—Mahārāja Prahlāda; *avyavadhāna-ananya-bhakti-yogena*—por meio de serviço devocional ininterrupto e inabalável; *saha*—com; *tat-varṣa-puruṣaiḥ*—os habitantes de Hari-varṣa; *upāste*—oferece reverências e adora; *idam*—isto; *ca*—e; *udāharati*—canta.

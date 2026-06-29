@@ -1,5 +1,8 @@
 ### CC Adi 10.133
 
+> রামানন্দ রায়, পট্টনায়ক গোপীনাথ ।
+> কলানিধি, সুধানিধি, নায়ক বাণীনাথ ॥১৩৩॥
+
 rāmānanda rāya, paṭṭanāyaka gopīnātha
 
 kalānidhi, sudhānidhi, nāyaka vāṇīnātha

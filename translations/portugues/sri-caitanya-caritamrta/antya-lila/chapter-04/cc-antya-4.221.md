@@ -1,5 +1,8 @@
 ### CC Antya 4.221
 
+> ‘হরিভক্তিবিলাস’-গ্রন্থ কৈলা বৈষ্ণব-আচার ।
+> বৈষ্ণবের কর্তব্য যাহাঁ পাইয়ে পার ॥২২১॥
+
 'hari-bhakti-vilāsa'-grantha kailā vaiṣṇava-ācāra
 
 vaiṣṇavera kartavya yāhāṅ pāiye pāra

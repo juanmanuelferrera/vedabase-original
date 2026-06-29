@@ -1,5 +1,8 @@
 ### SB 8.7.25
 
+> त्वं ब्रह्म परमं गुह्यं सदसद्भावभावनम
+> नानाशक्तिभिराभातस्त्वमात्मा जगदीश्वरः ॥२५॥
+
 > tvaṁ śabda-yonir jagad-ādir ātmā
 > prāṇendriya-dravya-guṇaḥ svabhāvaḥ
 > kālaḥ kratuḥ satyam ṛtaṁ ca dharmas

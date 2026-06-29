@@ -1,5 +1,10 @@
 ### CC Madhya 2.36
 
+> যদা যাতো দৈবান্মধুরিপুরসৌ লোচনপথং
+> তদাস্মাকং চেতো মদনহতকেনাহৃতমভূৎ ।
+> পুনর্যস্মিন্নেষ ক্ষণমপি দৃশোরেতি পদবীং
+> বিধাস্যামস্তস্মিন্নখিলঘটিকা রত্নখচিতাঃ ॥৩৬॥
+
 yadā yāto daivān madhu-ripur asau locana-pathaṁ
 tadāsmākaṁ ceto madana-hatakenāhṛtam abhūt
 punar yasminn eṣa kṣaṇam api dṛśor eti padavīṁ

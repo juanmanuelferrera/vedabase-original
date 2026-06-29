@@ -1,5 +1,8 @@
 ### CC Adi 12.46
 
+> এত শুনি’ মহাপ্রভু হাসিতে লাগিলা ।
+> বোলাইয়া কমলাকান্তে প্রসন্ন হইলা ॥৪৬॥
+
 > eta śuni' mahāprabhu hāsite lāgilā
 > bolāiyā kamalākānte prasanna ha-ilā
 

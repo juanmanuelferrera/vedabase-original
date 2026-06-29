@@ -1,5 +1,8 @@
 ### SB 7.10.37
 
+> शयानौ युधि निर्भिन्न हृदयौ रामशायकैः
+> तच्चित्तौ जहतुर्देहं यथा प्राक्तनजन्मनि ॥३७॥
+
 > śayānau yudhi nirbhinna-
 > hṛdayau rāma-śāyakaiḥ
 > tac-cittau jahatur dehaṁ

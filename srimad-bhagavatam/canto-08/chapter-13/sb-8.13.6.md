@@ -1,5 +1,8 @@
 ### SB 8.13.6
 
+> अत्रापि भगवज्जन्म कश्यपाददितेरभूत
+> आदित्यानामवरजो विष्णुर्वामनरूपधृक ॥६॥
+
 > atrāpi bhagavaj-janma
 > kaśyapād aditer abhūt
 > ādityānām avarajo

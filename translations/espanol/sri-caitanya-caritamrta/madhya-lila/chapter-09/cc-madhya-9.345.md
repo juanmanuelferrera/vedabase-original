@@ -1,5 +1,8 @@
 ### CC Madhya 9.345
 
+> প্রেমাবেশে সার্বভৌম করিলা রোদনে ৷
+> সবা-সঙ্গে আইলা প্রভু ঈশ্বর-দরশনে ৷৷ ৩৪৫ ৷৷ ॥৩৪৫॥
+
 > premāveśe sārvabhauma karilā rodane
 > sabā-saṅge āilā prabhu īśvara-daraśane
 

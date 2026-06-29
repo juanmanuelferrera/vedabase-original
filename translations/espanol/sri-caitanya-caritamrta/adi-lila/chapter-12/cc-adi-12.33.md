@@ -1,5 +1,8 @@
 ### CC Adi 12.33
 
+> পত্র পড়িয়া প্রভুর মনে হৈল দুঃখ ।
+> বাহিরে হাসিয়া কিছু বলে চন্দ্রমুখ ॥৩৩॥
+
 > patra paḍiyā prabhura mane haila duḥkha
 > bāhire hāsiyā kichu bale candra-mukha
 

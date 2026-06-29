@@ -1,5 +1,8 @@
 ### CC Madhya 7.117
 
+> কৃষ্ণনাম লোকমুখে শুনি’ অবিরাম ।
+> সেই লোক ‘বৈষ্ণব’ কৈল অন্য সব গ্রাম ॥১১৭॥
+
 > kṛṣṇa-nāma loka-mukhe śuni' avirāma
 > sei loka 'vaiṣṇava' kaila anya saba grāma
 

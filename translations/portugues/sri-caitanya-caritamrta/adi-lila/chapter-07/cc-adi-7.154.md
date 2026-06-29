@@ -1,5 +1,8 @@
 ### CC Adi 7.154
 
+> প্রভুকে দেখিতে আইসে সকল সন্ন্যাসী ।
+> প্রভুর প্রশংসা করে সব বারাণসী ॥১৫৪॥
+
 prabhuke dekhite āise sakala sannyāsī
 
 prabhura praśaṁsā kare saba vārāṇasī

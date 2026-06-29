@@ -1,5 +1,8 @@
 ### CC Antya 6.297
 
+> দুইদিকে দুইপত্র মধ্যে কোমল মঞ্জরী ।
+> এইমত অষ্টমঞ্জরী দিবে শ্রদ্ধা করি’ ।।” ॥ ২৯৭ ॥
+
 dui-dike dui-patra madhye komala mañjarī
 
 ei-mata aṣṭa-mañjarī dibe śraddhā kari" '

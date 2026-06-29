@@ -1,5 +1,7 @@
 ### SB 5.9.6
 
+> अथ यवीयसी द्विजसती स्वगर्भजातं मिथुनं सपत्न्या उपन्यस्य स्वयमनुसंस्थयापतिलोकमगात ॥६॥
+
 > evaṁ sva-tanuja ātmany anurāgāveśita-cittaḥ śaucādhyayana-vrata-niyama-gurv-anala-śuśrūṣaṇādy-aupakurvāṇaka-karmāṇy anabhiyuktāny api samanuśiṣṭena bhāvyam ity asad-āgrahaḥ putram anuśāsya svayaṁ tāvad anadhigata-manorathaḥ kālenāpramattena svayaṁ gṛha eva pramatta upasaṁhṛtaḥ.
 
 *evam*—thus; *sva*—own; *tanu-je*—in his son, Jaḍa Bharata; *ātmani*—whom he considered to be himself; *anurāga-āveśita-cittaḥ*—the *brāhmaṇa* who was absorbed in love for his son; *śauca*—cleanliness; *adhyayana*—study of Vedic literature; *vrata*—accepting all the vows; *niyama*—regulative principles; *guru*—of the spiritual master; *anala*—of the fire; *śuśrūṣaṇa-ādi*—the service, etc.; *aupakurvāṇaka*—of the *brahmacarya-āśrama*; *karmāṇi*—all the activities; *anabhiyuktāni api*—although not liked by his son; *samanuśiṣṭena*—fully instructed; *bhāvyam*—should be; *iti*—thus; *asat-āgrahaḥ*—having unsuitable obstinacy; *putram*—his son; *anuśāsya*—instructing; *svayam*—himself; *tāvat*—in that way; *anadhigata-manorathaḥ*—not having fulfilled his desires; *kālena*—by the influence of time; *apramattena*—which is not forgetful; *svayam*—he himself; *gṛhe*—to his home; *eva*—certainly; *pramattaḥ*—being madly attached; *upasaṁhṛtaḥ*—died.

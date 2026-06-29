@@ -1,5 +1,8 @@
 ### CC Adi 9.32
 
+> অলৌকিক বৃক্ষ করে, সর্বেন্দ্রিয়-কর্ম ।
+> স্থাবর হইয়া ধরে জঙ্গমের ধর্ম ॥৩২॥
+
 alaukika vṛkṣa kare sarvendriya-karma
 sthāvara ha-iyā dhare jaṅgamera dharma
 

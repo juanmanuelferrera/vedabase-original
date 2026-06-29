@@ -1,5 +1,8 @@
 ### CC Madhya 3.10
 
+> এত বলি’ চলে প্রভু, প্রেমোন্মাদের চিহ্ন ।
+> দিক্-বিদিক্-জ্ঞান নাহি, কিবা রাত্রি-দিন ॥১০॥
+
 > eta bali' cale prabhu, premonmādera cihna
 > dik-vidik-jñāna nāhi, kibā rātri-dina
 

@@ -1,5 +1,8 @@
 ### CC Adi 6.112
 
+> মূল ভক্ত-অবতার শ্রীসঙ্কর্ষণ ।
+> ভক্ত-অবতার তঁহি অদ্বৈতে গণন ॥১১২॥
+
 mūla bhakta-avatāra śrī-saṅkarṣaṇa
 
 bhakta-avatāra taṅhi advaite gaṇana

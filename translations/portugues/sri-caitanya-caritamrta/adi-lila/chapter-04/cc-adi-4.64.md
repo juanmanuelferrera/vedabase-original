@@ -1,5 +1,8 @@
 ### CC Adi 4.64
 
+> সন্ধিনীর সার অংশ — ‘শুদ্ধসত্ত্ব’ নাম ।
+> ভগবানের সত্তা হয় যাহাতে বিশ্রাম ॥৬৪॥
+
 sandhinīra sāra aṁśa--'śuddha-sattva' nāma
 bhagavānera sattā haya yāhāte viśrāma
 

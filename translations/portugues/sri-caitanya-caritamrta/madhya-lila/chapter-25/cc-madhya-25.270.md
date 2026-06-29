@@ -1,5 +1,8 @@
 ### CC Madhya 25.270
 
+> ইহার প্রসাদে পাইবা কৃষ্ণতত্ত্বসার ।
+> সর্বশাস্ত্র-সিদ্ধান্তের ইহাঁ পাইবা পার ॥২৭০॥
+
 ihāra prasāde pāibā kṛṣṇa-tattva-sāra
 
 sarva-śāstra-siddhāntera ihāṅ pāibā pāra

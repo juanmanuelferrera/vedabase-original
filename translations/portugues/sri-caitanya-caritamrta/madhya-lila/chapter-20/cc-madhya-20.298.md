@@ -1,5 +1,8 @@
 ### CC Madhya 20.298
 
+> মৎস্য, কূর্ম, রঘুনাথ, নৃসিংহ, বামন ।
+> বরাহাদি — লেখা যাঁর না যায় গণন ॥২৯৮॥
+
 matsya, kūrma, raghunātha, nṛsiṁha, vāmana
 
 varāhādi--lekhā yāṅra nā yāya gaṇana

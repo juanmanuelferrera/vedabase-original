@@ -1,5 +1,8 @@
 ### CC Madhya 10.91
 
+> সেকালে দক্ষিণ হৈতে পরমানন্দপুরী ৷
+> গঙ্গাতীরে-তীরে আইলা নদীয়া নগরী ৷৷ ৯১ ৷৷ ॥৯১॥
+
 > se-kāle dakṣiṇa haite paramānanda-purī
 > gaṅgā-tīre-tīre āilā nadīyā nagarī
 

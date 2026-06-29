@@ -1,5 +1,8 @@
 ### CC Adi 12.16
 
+> চৌদ্দ ভুবনের গুরু — চৈতন্য-গোসাঞি ।
+> তাঁর গুরু — অন্য, এই কোন শাস্ত্রে নাই ॥১৬॥
+
 caudda bhuvanera guru--caitanya-gosāñi
 
 tāṅra guru--anya, ei kona śāstre nāi

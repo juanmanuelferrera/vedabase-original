@@ -1,5 +1,8 @@
 ### SB 2.9.9
 
+> तस्मै स्वलोकं भगवान्सभाजितः सन्दर्शयामास परं न यत्परम् ।
+> व्यपेतसङ्क्लेशविमोहसाध्वसं स्वदृष्टवद्भिर्पुरुषैरभिष्टुतम् ॥९॥
+
 > tasmai sva-lokaṁ bhagavān sabhājitaḥ
 > sandarśayām āsa paraṁ na yat-param
 > vyapeta-saṅkleśa-vimoha-sādhvasaṁ

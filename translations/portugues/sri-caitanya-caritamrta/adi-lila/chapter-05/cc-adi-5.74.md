@@ -1,5 +1,8 @@
 ### CC Adi 5.74
 
+> তাঁর এক স্বরূপ — শ্রীমহাসঙ্কর্ষণ ।
+> তাঁর অংশ ‘পুরুষ’ হয় কলাতে গণন ॥৭৪॥
+
 tāṅra eka svarūpa--śrī-mahā-saṅkarṣaṇa
 tāṅra aṁśa 'puruṣa' haya kalāte gaṇana
 

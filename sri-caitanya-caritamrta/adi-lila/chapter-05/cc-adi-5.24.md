@@ -1,5 +1,8 @@
 ### CC Adi 5.24
 
+> বাসুদেব-সঙ্কর্ষণ-প্রদ্যুম্নানিরুদ্ধ ।
+> সর্বচতুর্ব্যূহ-অংশী, তুরীয়, বিশুদ্ধ ॥২৪॥
+
 > vāsudeva-saṅkarṣaṇa-pradyumnāniruddha
 > sarva-catur-vyūha-aṁśī, turīya, viśuddha
 

@@ -1,5 +1,8 @@
 ### CC Madhya 20.186
 
+> প্রাভববিলাস — বাসুদেব, সঙ্কর্ষণ ।
+> প্রদ্যুম্ন, অনিরুদ্ধ, — মুখ্য চারিজন ॥১৮৬॥
+
 prābhava-vilāsa--vāsudeva, saṅkarṣaṇa
 
 pradyumna, aniruddha,--mukhya cāri-jana

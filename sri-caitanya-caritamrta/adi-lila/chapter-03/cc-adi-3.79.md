@@ -1,5 +1,8 @@
 ### CC Adi 3.79
 
+> কোটি অশ্বমেধ এক কৃষ্ণ নাম সম ।
+> যেই কহে, সে পাষণ্ডী, দণ্ডে তারে যম ॥৭৯॥
+
 > koṭi aśvamedha eka kṛṣṇa nāma sama
 > yei kahe, se pāṣaṇḍī, daṇḍe tāre yama
 

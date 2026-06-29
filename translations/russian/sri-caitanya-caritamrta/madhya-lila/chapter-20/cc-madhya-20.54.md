@@ -1,5 +1,8 @@
 ### CC Madhya 20.54
 
+> তবে প্রভু তাঁর হাত ধরি’ লঞা গেলা ।
+> পিণ্ডার উপরে আপন-পাশে বসাইলা ॥৫৪॥
+
 > tabe prabhu tāṅra hāta dhari' lañā gelā
 > piṇḍāra upare āpana-pāśe vasāilā
 

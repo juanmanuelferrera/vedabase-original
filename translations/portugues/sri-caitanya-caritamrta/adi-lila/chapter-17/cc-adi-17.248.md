@@ -1,5 +1,8 @@
 ### CC Adi 17.248
 
+> এক পড়ুয়া আইল প্রভুকে দেখিতে ।
+> ‘গোপী’ ‘গোপী’ নাম শুনি’ লাগিল বলিতে ॥২৪৮॥
+
 eka paḍuyā āila prabhuke dekhite
 
 'gopī' 'gopī' nāma śuni' lāgila balite

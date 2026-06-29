@@ -1,5 +1,8 @@
 ### SB 7.5.42
 
+> प्रयासेऽपहते तस्मिन्दैत्येन्द्रः परिशङ्कितः
+> चकार तद्वधोपायान्निर्बन्धेन युधिष्ठिर ॥४२॥
+
 > prayāse 'pahate tasmin
 > daityendraḥ pariśaṅkitaḥ
 > cakāra tad-vadhopāyān

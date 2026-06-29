@@ -1,5 +1,8 @@
 ### CC Madhya 17.227
 
+> সহস্রগুণ প্রেম বাড়ে মথুরা দরশনে ।
+> লক্ষগুণ প্রেম বাড়ে, ভ্রমেন যবে বনে ॥২২৭॥
+
 > sahasra-guṇa prema bāḍe mathurā daraśane
 > lakṣa-guṇa prema bāḍe, bhramena yabe vane
 

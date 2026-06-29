@@ -1,5 +1,8 @@
 ### SB 3.26.16
 
+> प्रभावं पौरुषं प्राहुः कालमेके यतो भयम् ।
+> अहङ्कारविमूढस्य कर्तुः प्रकृतिमीयुषः ॥१६॥
+
 > prabhāvaṁ pauruṣaṁ prāhuḥ
 > kālam eke yato bhayam
 > ahaṅkāra-vimūḍhasya

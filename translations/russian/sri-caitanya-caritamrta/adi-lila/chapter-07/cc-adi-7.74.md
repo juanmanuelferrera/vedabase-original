@@ -1,5 +1,8 @@
 ### CC Adi 7.74
 
+> নাম বিনু কলিকালে নাহি আর ধর্ম ।
+> সর্বমন্ত্রসার নাম, এই শাস্ত্রমর্ম ॥৭৪॥
+
 > nāma vinu kali-kāle nāhi āra dharma
 > sarva-mantra-sāra nāma, ei śāstra-marma
 

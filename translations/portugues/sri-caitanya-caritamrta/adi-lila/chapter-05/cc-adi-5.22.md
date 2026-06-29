@@ -1,5 +1,10 @@
 ### CC Adi 5.22
 
+> চিন্তামণিপ্রকরসদ্মসু কল্পবৃক্ষ-
+> লক্ষাবৃতেষু সুরভীরভিপালয়ন্তম্ ।
+> লক্ষ্মীসহস্রশতসম্ভ্রমসেব্যমানং
+> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥২২॥
+
 cintāmaṇi-prakara-sadmasu kalpa-vṛkṣa-
 lakṣāvṛteṣu surabhīr abhipālayantam
 lakṣmī-sahasra-śata-sambhrama-sevyamānaṁ

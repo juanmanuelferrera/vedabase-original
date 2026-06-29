@@ -1,5 +1,8 @@
 ### SB 1.15.19
 
+> शय्यासनाटनविकत्थनभोजनादिष्वैक्याद्वयस्य ऋतवानिति विप्रलब्धः ।
+> सख्युः सखेव पितृवत्तनयस्य सर्वं सेहे महान्महितया कुमतेरघं मे ॥१९॥
+
 > śayyāsanāṭana-vikatthana-bhojanādiṣv
 > aikyād vayasya ṛtavān iti vipralabdhaḥ
 > sakhyuḥ sakheva pitṛvat tanayasya sarvaṁ

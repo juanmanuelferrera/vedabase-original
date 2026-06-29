@@ -1,5 +1,8 @@
 ### CC Madhya 12.86
 
+> ধূলি-ধূসর তনু দেখিতে শোভন ।
+> কাহাঁ কাহাঁ অশ্রুজলে করে সংমার্জন ॥৮৬॥
+
 > dhūli-dhūsara tanu dekhite śobhana
 > kāhāṅ kāhāṅ aśru-jale kare sammārjana
 

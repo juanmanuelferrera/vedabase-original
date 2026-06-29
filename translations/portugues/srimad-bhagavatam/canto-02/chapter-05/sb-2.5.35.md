@@ -1,5 +1,8 @@
 ### SB 2.5.35
 
+> स एव पुरुषस्तस्मादण्डं निर्भिद्य निर्गतः ।
+> सहस्रोर्वङ्घ्रिबाह्वक्षः सहस्राननशीर्षवान् ॥३५॥
+
 sa eva puruṣas tasmād
 aṇḍaṁ nirbhidya nirgataḥ
 *sahasrorv*-aṅghri-bāhv-akṣaḥ

@@ -1,5 +1,7 @@
 ### CC Antya 14.105
 
+> “গোবর্ধন হৈতে মোরে কে ইহাঁ আনিল ? পাঞা কৃষ্ণের লীলা দেখিতে না পাইল ॥১০৫॥
+
 "govardhana haite more ke ihāṅ ānila?
 
 pāñā kṛṣṇera līlā dekhite nā pāila

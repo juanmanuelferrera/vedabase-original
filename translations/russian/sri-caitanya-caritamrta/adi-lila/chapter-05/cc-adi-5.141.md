@@ -1,5 +1,10 @@
 ### CC Adi 5.141
 
+> যস্যাঙ্ঘ্রিপঙ্কজারজো ঽখিললোক-পালৈ-
+> র্মৌল্যুত্তমৈর্ধৃতমুপাসিত-তীর্থতীর্থম্ ।
+> ব্রহ্মা ভবোঽহমপি যস্য কলাঃ কলায়াঃ
+> শ্রীশ্চোদ্বহেম চিরমস্য নৃপাসনং ক্ব? ॥১৪১॥
+
 > yasyāṅghri-paṅkaja-rajo 'khila-loka-pālair
 > mauly-uttamair dhṛtam upāsita-tīrtha-tīrtham
 > brahmā bhavo 'ham api yasya kalāḥ kalāyāḥ

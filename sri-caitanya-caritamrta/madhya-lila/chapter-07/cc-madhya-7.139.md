@@ -1,5 +1,8 @@
 ### CC Madhya 7.139
 
+> প্রভুর গমন কূর্ম-মুখেতে শুনিঞা ।
+> ভূমিতে পড়িলা দুঃখে মূর্চ্ছিত হঞা ॥১৩৯॥
+
 > prabhura gamana kūrma-mukhete śuniñā
 > bhūmite paḍilā duḥkhe mūrcchita hañā
 

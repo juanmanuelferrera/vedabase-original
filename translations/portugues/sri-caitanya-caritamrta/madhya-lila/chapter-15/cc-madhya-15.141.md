@@ -1,5 +1,8 @@
 ### CC Madhya 15.141
 
+> মধুর-চরিত্র কৃষ্ণের মধুর-বিলাস  ।
+> চাতুর্য-বৈদগ্ধ্য করে যাঁর লীলারস ॥১৪১॥
+
 madhura-caritra kṛṣṇera madhura-vilāsa
 
 cāturya-vaidagdhya kare yāṅra līlā-rasa

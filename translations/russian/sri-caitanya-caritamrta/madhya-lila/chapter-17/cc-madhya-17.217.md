@@ -1,5 +1,8 @@
 ### CC Madhya 17.217
 
+> শুক-শারী উড়ি’ পুনঃ গেল বৃক্ষডালে ।
+> ময়ূরের নৃত্য প্রভু দেখে কুতূহলে ॥২১৭॥
+
 > śuka-śārī uḍi' punaḥ gela vṛkṣa-ḍāle
 > mayūrera nṛtya prabhu dekhe kutūhale
 

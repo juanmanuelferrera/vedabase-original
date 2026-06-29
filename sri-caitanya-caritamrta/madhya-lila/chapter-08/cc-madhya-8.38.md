@@ -1,5 +1,8 @@
 ### CC Madhya 8.38
 
+> আমা নিস্তারিতে তোমার ইহাঁ আগমন ।
+> পরম-দয়ালু তুমি পতিত-পাবন ॥৩৮॥
+
 > āmā nistārite tomāra ihāṅ āgamana
 > parama-dayālu tumi patita-pāvana
 

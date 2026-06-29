@@ -1,5 +1,8 @@
 ### SB 4.29.61
 
+> शयानमिममुत्सृज्य श्वसन्तं पुरुषो यथा ।
+> कर्मात्मन्याहितं भुङ्क्ते तादृशेनेतरेण वा ॥६१॥
+
 > śayānam imam utsṛjya
 > śvasantaṁ puruṣo yathā
 > karmātmany āhitaṁ bhuṅkte

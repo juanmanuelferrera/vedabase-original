@@ -1,5 +1,8 @@
 ### CC Madhya 24.328
 
+> প্রভু কহে, — “যে করিতে করিবা তুমি মন ।
+> কৃষ্ণ সেই সেই তোমা করাবে স্ফুরণ ॥৩২৮॥
+
 > prabhu kahe,—"ye karite karibā tumi mana
 > kṛṣṇa sei sei tomā karābe sphuraṇa
 

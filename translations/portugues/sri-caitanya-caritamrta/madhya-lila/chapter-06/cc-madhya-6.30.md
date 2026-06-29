@@ -1,5 +1,8 @@
 ### CC Madhya 6.30
 
+> সার্বভৌম-স্থানে গিয়া প্রভুকে দেখিল ।
+> প্রভু দেখি’ আচার্যের দুঃখ-হর্ষ হৈল ॥৩০॥
+
 sārvabhauma-sthāne giyā prabhuke dekhila
 prabhu dekhi' ācāryera duḥkha-harṣa haila
 

@@ -1,5 +1,8 @@
 ### CC Antya 7.144
 
+> গদাধর-পণ্ডিতের শুদ্ধ গাঢ় ভাব ।
+> রুক্মিণী-দেবীর যৈছে ‘দক্ষিণ-স্বভাব’ ॥১৪৪॥
+
 > gadādhara-paṇḍitera śuddha gāḍha bhāva
 > rukmiṇī-devīra yaiche 'dakṣiṇa-svabhāva'
 

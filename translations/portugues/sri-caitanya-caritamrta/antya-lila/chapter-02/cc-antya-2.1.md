@@ -1,5 +1,10 @@
 ### CC Antya 2.1
 
+> বন্দেঽহং শ্রীগুরোঃ শ্রীযুতপদকমলং শ্রীগুরূন্ বৈষ্ণবাংশ্চ
+> শ্রীরূপং সাগ্রজাতং সহগণরঘুনাথান্বিতং তং সজীবম্ ।
+> সাদ্বৈতং সাবধূতং পরিজনসহিতং কৃষ্ণচৈতন্যদেবং
+> শ্রীরাধাকৃষ্ণপাদান্ সহগণললিতা-শ্রীবিশাখান্বিতাংশ্চ ॥১॥
+
 vande 'haṁ śrī-guroḥ śrī-yuta-pada-kamalaṁ śrī-gurūn vaiṣṇavāṁś ca
 śrī-rūpaṁ sāgrajātaṁ saha-gaṇa-raghunāthānvitaṁ taṁ sa-jīvam
 sādvaitaṁ sāvadhūtaṁ parijana-sahitaṁ kṛṣṇa-caitanya-devaṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 12.9
 
+> তাঁ-সবার প্ৰসাদে মিলে শ্রীপ্ৰভুর পায়  ।
+> প্রভুকৃপা বিনা মোর রাজ্য নাহি ভায় ॥৯॥
+
 > tāṅ-sabāra prasāde mile śrī-prabhura pāya
 > prabhu-kṛpā vinā mora rājya nāhi bhāya
 

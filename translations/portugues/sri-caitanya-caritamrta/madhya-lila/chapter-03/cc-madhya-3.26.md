@@ -1,5 +1,8 @@
 ### CC Madhya 3.26
 
+> এত বলি’ আনিল তাঁরে গঙ্গা-সন্নিধানে ।
+> আবেশে প্রভুর হৈল গঙ্গারে যমুনা-জ্ঞানে ॥২৬॥
+
 eta bali' ānila tāṅre gaṅgā-sannidhāne
 
 āveśe prabhura haila gaṅgāre yamunā-jñāne

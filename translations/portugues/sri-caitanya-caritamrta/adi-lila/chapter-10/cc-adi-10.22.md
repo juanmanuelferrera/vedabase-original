@@ -1,5 +1,8 @@
 ### CC Adi 10.22
 
+> প্রীত্যে করিতে চাহে প্রভুর লালন-পালন ।
+> বৈরাগ্য-লোক-ভয়ে প্রভু না মানে কখন ॥২২॥
+
 prītye karite cāhe prabhura lālana-pālana
 vairāgya-loka-bhaye prabhu nā māne kakhana
 

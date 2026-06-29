@@ -1,5 +1,10 @@
 ### CC Antya 6.1
 
+> কৃপাগুণৈর্যঃ কুগৃহান্ধকূপা-
+> দুদ্ধৃত্য ভঙ্গ্যা রঘুনাথদাসম্ ।
+> ন্যস্য স্বরূপে বিদধেঽন্তরঙ্গং
+> শ্রীকৃষ্ণচৈতন্যমমুং প্রপদ্যে ॥১॥
+
 > kṛpā-guṇair yaḥ kugṛhāndha-kūpād
 > uddhṛtya bhaṅgyā raghunātha-dāsam
 > nyasya svarūpe vidadhe 'ntaraṅgaṁ-

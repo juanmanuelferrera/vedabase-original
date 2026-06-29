@@ -1,5 +1,10 @@
 ### SB 9.10.21
 
+> रक्षःपतिः स्वबलनष्टिमवेक्ष्य रुष्ट
+> आरुह्य यानकमथाभिससार रामम
+> स्वःस्यन्दने द्युमति मातलिनोपनीते
+> विभ्राजमानमहनन्निशितैः क्षुरप्रैः ॥२१॥
+
 > rakṣaḥ-patiḥ sva-bala-naṣṭim avekṣya ruṣṭa
 > āruhya yānakam athābhisasāra rāmam
 > svaḥ-syandane dyumati mātalinopanīte

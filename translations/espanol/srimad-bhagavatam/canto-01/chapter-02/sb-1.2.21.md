@@ -1,5 +1,8 @@
 ### SB 1.2.21
 
+> भिद्यते हृदयग्रन्थिश्छिद्यन्ते सर्वसंशयाः ।
+> क्षीयन्ते चास्य कर्माणि दृष्ट एवात्मनीश्वरे ॥२१॥
+
 > bhidyate hṛdaya-granthiś
 > chidyante sarva-saṁśayāḥ
 > kṣīyante cāsya karmāṇi

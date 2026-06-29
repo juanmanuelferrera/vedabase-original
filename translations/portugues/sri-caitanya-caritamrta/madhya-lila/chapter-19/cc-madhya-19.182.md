@@ -1,5 +1,8 @@
 ### CC Madhya 19.182
 
+> যৈছে দধি, সিতা, ঘৃত, মরীচ, কর্পূর  ।
+> মিলনে ‘রসালা’ হয় অমৃত মধুর ॥১৮২॥
+
 yaiche dadhi, sitā, ghṛta, marīca, karpūra
 
 milane,rasālā' haya amṛta madhura

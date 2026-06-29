@@ -1,5 +1,8 @@
 ### SB 2.6.12
 
+> धर्मस्य मम तुभ्यं च कुमाराणां भवस्य च ।
+> विज्ञानस्य च सत्त्वस्य परस्यात्मा परायणम् ॥१२॥
+
 > dharmasya mama tubhyaṁ ca
 > kumārāṇāṁ bhavasya ca
 > vijñānasya ca sattvasya

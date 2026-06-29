@@ -1,5 +1,8 @@
 ### SB 4.28.20
 
+> प्रबोधयति माविज्ञं व्युषिते शोककर्शिता ।
+> वर्त्मैतद्गृहमेधीयं वीरसूरपि नेष्यति ॥२०॥
+
 > prabodhayati māvijñaṁ
 > vyuṣite śoka-karśitā
 > vartmaitad gṛha-medhīyaṁ

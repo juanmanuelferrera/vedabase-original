@@ -1,5 +1,10 @@
 ### CC Madhya 11.104
 
+> অথাপি তে দেব পদাম্বুজদ্বয়-
+> প্ৰসাদলেশানুগৃহীত এব হি ।
+> জানাতি তত্ত্বং ভগবন্মহিম্নো
+> ন চান্য একোঽপি চিরং বিচিন্বন্ ॥১০৪॥
+
 > athāpi te deva padāmbuja-dvaya-
 > prasāda-leśānugṛhīta eva hi
 > jānāti tattvaṁ bhagavan-mahimno

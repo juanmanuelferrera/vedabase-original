@@ -1,5 +1,8 @@
 ### CC Adi 4.128
 
+> রাধা-প্রেমা বিভু — যার বাড়িতে নাহি ঠাঞি ।
+> তথাপি সে ক্ষণে ক্ষণে বাড়য়ে সদাই ॥১২৮॥
+
 > rādhā-premā vibhu--yāra bāḍite nāhi ṭhāñi
 > tathāpi se kṣaṇe kṣaṇe bāḍaye sadāi
 

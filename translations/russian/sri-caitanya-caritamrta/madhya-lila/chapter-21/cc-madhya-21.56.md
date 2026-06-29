@@ -1,5 +1,8 @@
 ### CC Madhya 21.56
 
+> ত্রিপাদ্বিভূতের্ধামত্বাৎ ত্রিপাদ্ভূতং হি তৎ পদম্ ।
+> বিভূতির্মায়িকী সর্বা প্রোক্তা পাদাত্মিকা যতঃ ॥৫৬॥
+
 > tripād-vibhūter dhāmatvāt
 > tripād-bhūtaṁ hi tat padam
 > vibhūtir māyikī sarvā

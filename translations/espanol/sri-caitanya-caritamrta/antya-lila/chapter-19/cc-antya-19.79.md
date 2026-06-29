@@ -1,5 +1,8 @@
 ### CC Antya 19.79
 
+> ‘জগন্নাথবল্লভ’ নাম উদ্যানপ্রধানে ।
+> প্রবেশ করিলা প্রভু লঞা ভক্তগণে ॥৭৯॥
+
 > 'jagannātha-vallabha' nāma udyāna-pradhāne
 > praveśa karilā prabhu lañā bhakta-gaṇe
 

@@ -1,5 +1,8 @@
 ### SB 4.13.7
 
+> स जन्मनोपशान्तात्मा निःसङ्गः समदर्शनः ।
+> ददर्श लोके विततमात्मानं लोकमात्मनि ॥७॥
+
 > sa janmanopaśāntātmā
 > niḥsaṅgaḥ sama-darśanaḥ
 > dadarśa loke vitatam

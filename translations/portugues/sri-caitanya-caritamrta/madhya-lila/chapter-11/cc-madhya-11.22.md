@@ -1,5 +1,8 @@
 ### CC Madhya 11.22
 
+> তোমার যে বর্তন, তুমি খাও সেই বর্তন ৷
+> নিশ্চিন্ত হঞা ভজ চৈতন্যের চরণ ৷৷ ২২ ৷৷ ॥২২॥
+
 tomāra ye vartana, tumi khāo sei vartana
 niścinta hañā bhaja caitanyera caraṇa
 

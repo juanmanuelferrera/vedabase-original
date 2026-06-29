@@ -1,5 +1,8 @@
 ### CC Madhya 20.65
 
+> ‘কেমনে ছুটিলা’ বলি প্রভু প্রশ্ন কৈলা ।
+> আদ্যোপান্ত সব কথা তেঁহো শুনাইলা ॥৬৫॥
+
 'kemane chuṭilā' bali prabhu praśna kailā
 
 ādyopānta saba kathā teṅho śunāilā

@@ -1,5 +1,8 @@
 ### CC Madhya 8.250
 
+> ‘গান-মধ্যে কোন্ গান — জীবের নিজ ধর্ম?’
+> ‘রাধাকৃষ্ণের প্রেমকেলি’ — যেই গীতের মর্ম’ ॥২৫০॥
+
 > 'gāna-madhye kona gāna--jīvera nija dharma?'
 > 'rādhā-kṛṣṇera prema-keli'--yei gītera marma'
 

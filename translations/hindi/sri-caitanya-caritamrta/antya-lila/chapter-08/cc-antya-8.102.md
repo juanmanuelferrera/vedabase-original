@@ -1,5 +1,8 @@
 ### CC Antya 8.102
 
+> চৈতন্যচরিত্র লিখি, শুন একমনে ।
+> অনায়াসে পাবে প্রেম শ্রীকৃষ্ণচরণে ॥১০২॥
+
 > caitanya-caritra likhi, śuna eka-mane
 > anāyāse pābe prema śrī-kṛṣṇa-caraṇe
 

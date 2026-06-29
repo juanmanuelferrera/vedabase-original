@@ -1,5 +1,8 @@
 ### CC Madhya 16.199
 
+> ‘মন্ত্রেশ্বর’-দুষ্টনদে পার করাইল ।
+> ‘পিছল্দা’ পর্যন্ত সেই যবন আইল ॥১৯৯॥
+
 > 'mantreśvara'-duṣṭa-nade pāra karāila
 > 'pichaldā' paryanta sei yavana āila
 

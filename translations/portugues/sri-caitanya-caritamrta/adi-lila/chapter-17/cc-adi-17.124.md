@@ -1,5 +1,8 @@
 ### CC Adi 17.124
 
+> শুনিয়া যে ক্রুদ্ধ হৈল সকল যবন ।
+> কাজী-পাশে আসি’ সবে কৈল নিবেদন ॥১২৪॥
+
 śuniyā ye kruddha haila sakala yavana
 
 kājī-pāśe āsi' sabe kaila nivedana

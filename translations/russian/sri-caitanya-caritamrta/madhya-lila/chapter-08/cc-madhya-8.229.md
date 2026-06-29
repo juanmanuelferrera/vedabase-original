@@ -1,5 +1,8 @@
 ### CC Madhya 8.229
 
+> সিদ্ধদেহে চিন্তি’ করে তাহাঁঞি সেবন ।
+> সখীভাবে পায় রাধাকৃষ্ণের চরণ ॥২২৯॥
+
 > siddha-dehe cinti' kare tāhāṅñi sevana
 > sakhī-bhāve pāya rādhā-kṛṣṇera caraṇa
 

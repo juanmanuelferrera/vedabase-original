@@ -1,5 +1,8 @@
 ### CC Madhya 5.56
 
+> তবে সেই বিপ্রেরে পুছিল সর্বজন ।
+> ‘কন্যা কেনে না দেহ, যদি দিয়াছ বচন ।।’ ॥ ৫৬ ॥
+
 > tabe sei viprere puchila sarva-jana
 > 'kanyā kene nā deha, yadi diyācha vacana'
 

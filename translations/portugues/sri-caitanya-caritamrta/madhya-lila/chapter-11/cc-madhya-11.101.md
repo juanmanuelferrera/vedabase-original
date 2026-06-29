@@ -1,5 +1,8 @@
 ### CC Madhya 11.101
 
+> রাজা কহে, — শাস্ত্রপ্রমাণে চৈতন্য হন কৃষ্ণ ৷
+> তবে কেনে পণ্ডিত সব তাঁহাতে বিতৃষ্ণ ? ১০১ ৷৷ ॥১০১॥
+
 rājā kahe,-śāstra-pramāṇe caitanya hana kṛṣṇa
 tabe kene paṇḍita saba tāṅhāte vitṛṣṇa?
 

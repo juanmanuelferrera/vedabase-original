@@ -1,5 +1,8 @@
 ### SB 3.2.20
 
+> तथैव चान्ये नरलोकवीरा य आहवे कृष्णमुखारविन्दम् ।
+> नेत्रैः पिबन्तो नयनाभिरामं पार्थास्त्रपूतः पदमापुरस्य ॥२०॥
+
 > tathaiva cānye nara-loka-vīrā
 > ya āhave kṛṣṇa-mukhāravindam
 > netraiḥ pibanto nayanābhirāmaṁ

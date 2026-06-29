@@ -1,5 +1,8 @@
 ### CC Antya 11.101
 
+> এই ত’ কহিলুঁ হরিদাসের বিজয় ।
+> যাহার শ্রবণে কৃষ্ণে দৃঢ়ভক্তি হয় ॥১০১॥
+
 ei ta' kahiluṅ haridāsera vijaya
 
 yāhāra śravaṇe kṛṣṇe dṛḍha-bhakti haya

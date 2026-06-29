@@ -1,5 +1,8 @@
 ### CC Madhya 1.250
 
+> প্রতিবর্ষ আইসেন তাহাঁ গৌড়ের ভক্তগণ ।
+> চারি মাস রহে প্রভুর সঙ্গে সম্মিলন ॥২৫০॥
+
 > prativarṣa āisena tāhāṅ gauḍera bhakta-gaṇa
 > cāri māsa rahe prabhura saṅge sammilana
 

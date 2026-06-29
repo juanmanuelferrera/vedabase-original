@@ -1,5 +1,8 @@
 ### SB 4.22.63
 
+> कीर्त्योर्ध्वगीतया पुम्भिस्त्रैलोक्ये तत्र तत्र ह ।
+> प्रविष्टः कर्णरन्ध्रेषु स्त्रीणां रामः सतामिव ॥६३॥
+
 > kīrtyordhva-gītayā pumbhis
 > trailokye tatra tatra ha
 > praviṣṭaḥ karṇa-randhreṣu

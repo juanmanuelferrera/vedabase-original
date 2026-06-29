@@ -1,5 +1,8 @@
 ### CC Madhya 12.133
 
+> এই মত সব পুরী করিল শোধন ।
+> শীতল, নির্মল কৈল — যেন নিজ-মন ॥১৩৩॥
+
 ei mata saba purī karila śodhana
 
 śītala, nirmala kaila-yena nija-mana

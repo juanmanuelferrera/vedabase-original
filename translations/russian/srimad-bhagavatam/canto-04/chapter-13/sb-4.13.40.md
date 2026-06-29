@@ -1,5 +1,8 @@
 ### SB 4.13.40
 
+> स शरासनमुद्यम्य मृगयुर्वनगोचरः ।
+> हन्त्यसाधुर्मृगान्दीनान्वेनोऽसावित्यरौज्जनः ॥४०॥
+
 > sa śarāsanam udyamya
 > mṛgayur vana-gocaraḥ
 > hanty asādhur mṛgān dīnān

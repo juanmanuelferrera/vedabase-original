@@ -1,5 +1,8 @@
 ### CC Madhya 6.130
 
+> প্রভু কহে, — “সূত্রের অর্থ বুঝিয়ে নির্মল ।
+> তোমার ব্যাখ্যা শুনি’ মন হয় ত’ বিকল ॥১৩০॥
+
 > prabhu kahe,—"sūtrera artha bujhiye nirmala
 > tomāra vyākhyā śuni' mana haya ta' vikala
 

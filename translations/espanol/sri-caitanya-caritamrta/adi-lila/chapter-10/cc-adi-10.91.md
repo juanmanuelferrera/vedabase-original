@@ -1,5 +1,8 @@
 ### CC Adi 10.91
 
+> মহাপ্রভুর প্রিয় ভৃত্য — রঘুনাথদাস  ।
+> ॥৯১॥
+
 > mahāprabhura priya bhṛtya--raghunātha-dāsa
 > sarva tyaji' kaila prabhura pada-tale vāsa
 

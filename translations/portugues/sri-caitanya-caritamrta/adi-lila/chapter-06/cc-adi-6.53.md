@@ -1,5 +1,8 @@
 ### CC Adi 6.53
 
+> কৃষ্ণপ্রেমের এই এক অপূর্ব প্রভাব ।
+> গুরু-সম-লঘুকে করায় দাস্যভাব ॥৫৩॥
+
 kṛṣṇa-premera ei eka apūrva prabhāva
 guru-sama-laghuke karāya dāsya-bhāva
 

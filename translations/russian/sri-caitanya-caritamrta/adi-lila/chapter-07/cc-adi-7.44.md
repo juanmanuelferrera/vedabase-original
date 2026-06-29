@@ -1,5 +1,8 @@
 ### CC Adi 7.44
 
+> উপেক্ষা করিয়া কৈল মথুরা গমন ।
+> মথুরা দেখিয়া পুনঃ কৈল আগমন ॥৪৪॥
+
 > upekṣā kariyā kaila mathurā gamana
 > mathurā dekhiyā punaḥ kaila āgamana
 

@@ -1,5 +1,8 @@
 ### CC Antya 13.51
 
+> সনাতন সেই বস্ত্র মস্তকে বান্ধিয়া ।
+> জগদানন্দের বাসা-দ্বারে বসিলা আসিয়া ॥৫১॥
+
 sanātana sei vastra mastake bāndhiyā
 
 jagadānandera vāsā-dvāre vasilā āsiyā

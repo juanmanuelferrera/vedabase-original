@@ -1,5 +1,8 @@
 ### SB 6.5.20
 
+> शास्त्रस्य पितुरादेशं यो न वेद निवर्तकम
+> कथं तदनुरूपाय गुणविस्रम्भ्युपक्रमेत ॥२०॥
+
 > śāstrasya pitur ādeśaṁ
 > yo na veda nivartakam
 > kathaṁ tad-anurūpāya

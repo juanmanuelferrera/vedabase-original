@@ -1,5 +1,8 @@
 ### CC Madhya 4.126
 
+> নিজ কৃত্য করি’ পূজারী করিল শয়ন ।
+> স্বপনে ঠাকুর আসি’ বলিলা বচন ॥১২৬॥
+
 > nija kṛtya kari' pūjārī karila śayana
 > svapane ṭhākura āsi' balilā vacana
 

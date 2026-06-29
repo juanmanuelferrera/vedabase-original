@@ -1,5 +1,8 @@
 ### CC Antya 4.166
 
+> “জগদানন্দ প্রিয় আমার নহে তোমা হৈতে ।
+> মর্যাদা-লঙ্ঘন আমি না পারোঁ সহিতে ॥১৬৬॥
+
 'jagadānanda priya āmāra nahe tomā haite
 
 maryādā-laṅghana āmi nā pāroṅ sahite

@@ -1,5 +1,8 @@
 ### CC Adi 4.236
 
+> যে লাগি কহিতে ভয়, সে যদি না জানে ।
+> ইহা বই কিবা সুখ আছে ত্রিভুবনে ॥২৩৬॥
+
 > ye lāgi kahite bhaya, se yadi nā jāne
 > ihā va-i kibā sukha āche tribhuvane
 

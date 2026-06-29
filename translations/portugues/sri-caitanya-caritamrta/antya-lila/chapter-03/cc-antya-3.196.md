@@ -1,5 +1,8 @@
 ### CC Antya 3.196
 
+> ভক্তিসুখ-আগে ‘মুক্তি’ অতি-তুচ্ছ হয় ।
+> অতএব ভক্তগণ ‘মুক্তি’ নাহি লয় ॥১৯৬॥
+
 bhakti-sukha-āge 'mukti' ati-tuccha haya
 
 ataeva bhakta-gaṇa 'mukti' nāhi laya

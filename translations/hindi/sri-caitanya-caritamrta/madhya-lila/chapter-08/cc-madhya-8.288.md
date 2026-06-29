@@ -1,5 +1,8 @@
 ### CC Madhya 8.288
 
+> তাঁর ভাবে ভাবিত করি’ আত্ম-মন ।
+> তবে নিজ-মাধুর্য করি আস্বাদন ॥২৮৮॥
+
 > tāṅra bhāve bhāvita kari' ātma-mana
 > tabe nija-mādhurya kari āsvādana
 

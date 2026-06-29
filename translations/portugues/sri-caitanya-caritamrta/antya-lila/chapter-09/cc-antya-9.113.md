@@ -1,5 +1,8 @@
 ### CC Antya 9.113
 
+> তথাপি তার সেবক আসি’ কৈল নিবেদন ।
+> তাতে ক্ষুব্ধ হৈল যবে মহাপ্রভুর মন ॥১১৩॥
+
 tathāpi tāra sevaka āsi' kaila nivedana
 
 tāte kṣubdha haila yabe mahāprabhura mana

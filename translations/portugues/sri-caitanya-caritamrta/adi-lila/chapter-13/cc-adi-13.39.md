@@ -1,5 +1,8 @@
 ### CC Adi 13.39
 
+> দ্বাদশ বৎসর শেষ রহিলা নীলাচলে ।
+> প্রেমাবস্থা শিখাইলা আস্বাদন-চ্ছলে ॥৩৯॥
+
 dvādaśa vatsara śeṣa rahilā nīlācale
 premāvasthā śikhāilā āsvādana-cchale
 

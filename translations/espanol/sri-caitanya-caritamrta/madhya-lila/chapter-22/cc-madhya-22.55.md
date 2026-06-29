@@ -1,5 +1,8 @@
 ### CC Madhya 22.55
 
+> তুলয়াম লবেনাপি ন স্বর্গং নাপুনর্ভবম্ ।
+> ভগবৎসঙ্গিসঙ্গস্য মর্ত্যানাং কিমুতাশিষঃ ॥৫৫॥
+
 > tulayāma lavenāpi
 > na svargaṁ nāpunar-bhavam
 > bhagavat-saṅgi-saṅgasya

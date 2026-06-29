@@ -1,5 +1,10 @@
 ### SB 8.22.23
 
+> यत्पादयोरशठधीः सलिलं प्रदाय
+> दूर्वाङ्कुरैरपि विधाय सतीं सपर्याम
+> अप्युत्तमां गतिमसौ भजते त्रिलोकीं
+> दाश्वानविक्लवमनाः कथमार्तिमृच्छेत ॥२३॥
+
 > yat-pādayor aśaṭha-dhīḥ salilaṁ pradāya
 > dūrvāṅkurair api vidhāya satīṁ saparyām
 > apy uttamāṁ gatim asau bhajate tri-lokīṁ

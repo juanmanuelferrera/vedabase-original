@@ -1,5 +1,8 @@
 ### CC Adi 3.83
 
+> অহমেব ক্বচিদ্ব্রহ্মন্ সন্ন্যাসাশ্রমমাশ্রিতঃ ।
+> হরিভক্তিং গ্রাহয়ামি কলৌ পাপহতান্নরান্ ॥৮৩॥
+
 aham eva kvacid brahman
 sannyāsāśramam āśritaḥ
 hari-bhaktiṁ grāhayāmi

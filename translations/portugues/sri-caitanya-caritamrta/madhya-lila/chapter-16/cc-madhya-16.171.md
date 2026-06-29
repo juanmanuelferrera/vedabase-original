@@ -1,5 +1,8 @@
 ### CC Madhya 16.171
 
+> ধৈর্য হঞা উড়িয়াকে কহে নমস্করি’ ।
+> ‘তোমা-স্থানে পাঠাইলা ম্লেচ্ছ অধিকারী ॥১৭১॥
+
 dhairya hañā uḍiyāke kahe namaskari'
 
 'tomā-sthāne pāṭhāilā mleccha adhikārī

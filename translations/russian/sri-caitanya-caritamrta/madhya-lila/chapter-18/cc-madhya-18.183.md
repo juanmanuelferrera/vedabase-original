@@ -1,5 +1,8 @@
 ### CC Madhya 18.183
 
+> প্রভু কহেন, — ঠক্ নহে, মোর ‘সঙ্গী’ জন ।
+> ভিক্ষুক সন্ন্যাসী, মোর নাহি কিছু ধন ॥১৮৩॥
+
 > prabhu kahena,—ṭhak nahe, mora 'saṅgī' jana
 > bhikṣuka sannyāsī, mora nāhi kichu dhana
 

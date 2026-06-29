@@ -1,5 +1,8 @@
 ### SB 7.4.45
 
+> पुत्रान्विप्रतिकूलान्स्वान्पितरः पुत्रवत्सलाः
+> उपालभन्ते शिक्षार्थं नैवाघमपरो यथा ॥४५॥
+
 > putrān vipratikūlān svān
 > pitaraḥ putra-vatsalāḥ
 > upālabhante śikṣārthaṁ

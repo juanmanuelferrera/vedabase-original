@@ -1,5 +1,8 @@
 ### SB 3.11.38
 
+> कालोऽयं द्विपरार्धाख्यो निमेष उपचर्यते ।
+> अव्याकृतस्यानन्तस्य ह्यनादेर्जगदात्मनः ॥३८॥
+
 > kālo 'yaṁ dvi-parārdhākhyo
 > nimeṣa upacaryate
 > avyākṛtasyānantasya

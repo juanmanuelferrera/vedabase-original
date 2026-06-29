@@ -1,5 +1,8 @@
 ### CC Antya 7.158
 
+> যেই কহে, সেই সহি নিজ-শিরে ধরি’ ।
+> আপনে করিবেন কৃপা গুণ-দোষ বিচারি’ ।।” ॥ ১৫৮ ॥
+
 yei kahe, sei sahi nija-śire dhari'
 
 āpane karibena kṛpā guṇa-doṣa vicāri' "

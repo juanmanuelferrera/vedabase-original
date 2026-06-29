@@ -1,5 +1,8 @@
 ### SB 7.13.11
 
+> अत्राप्युदाहरन्तीममितिहासं पुरातनम
+> प्रह्रादस्य च संवादं मुनेराजगरस्य च ॥११॥
+
 > atrāpy udāharantīmam
 > itihāsaṁ purātanam
 > prahrādasya ca saṁvādaṁ

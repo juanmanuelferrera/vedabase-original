@@ -1,5 +1,8 @@
 ### CC Antya 5.25
 
+> তবে সেই দুইজনে প্রসাদ খাওয়াইলা ।
+> নিভৃতে দুঁহারে নিজ-ঘরে পাঠাইলা ॥২৫॥
+
 tabe sei dui-jane prasāda khāoyāilā
 
 nibhṛte duṅhāre nija-ghare pāṭhāilā

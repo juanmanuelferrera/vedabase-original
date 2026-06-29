@@ -1,5 +1,7 @@
 ### SB 5.22.14
 
+> अत ऊर्ध्वमङ्गारकोऽपि योजनलक्षद्वितय उपलभ्यमानस्त्रिभिस्त्रिभिः पक्षैरेकैकशोराशीन्द्वादशानुभुङ्क्ते यदि न वक्रेणाभिवर्तते प्रायेणाशुभग्रहोऽघशंसः ॥१४॥
+
 *ata ūrdhvam aṅgārako 'pi yojana*-lakṣa-dvitaya upalabhyamānas tribhis tribhiḥ pakṣair ekaikaśo rāśīn dvādaśānubhuṅkte yadi na vakreṇābhivartate prāyeṇāśubha-graho 'gha-śaṁsaḥ.
 
 *ataḥ*—disso; *ūrdhvam*—acima; *aṅgārakaḥ*—Marte; *api*—também; *yojana-lakṣa-dvitaye*—a uma distância de 1.600.000 milhas; *upalabhyamānaḥ*—está situado; *tribhiḥ tribhiḥ*—com cada três e três; *pakṣaiḥ*—quinzenas; *eka-ekaśaḥ*—um após outro; *rāśīn*—os signos; *dvādaśa*—doze; *anubhuṅkte*—passa; *yadi*—se; *na*—não; *vakreṇa*—com uma curva; *abhivartate*—aproxima-se; *prāyeṇa*—quase sempre; *aśubha-grahaḥ*—um planeta desfavorável e inauspicioso; *agha-śaṁsaḥ*—criando dificuldades.

@@ -1,5 +1,8 @@
 ### SB 3.6.9
 
+> साध्यात्मः साधिदैवश्च साधिभूत इति त्रिधा ।
+> विराट्प्राणो दशविध एकधा हृदयेन च ॥९॥
+
 > sādhyātmaḥ sādhidaivaś ca
 > sādhibhūta iti tridhā
 > virāṭ prāṇo daśa-vidha

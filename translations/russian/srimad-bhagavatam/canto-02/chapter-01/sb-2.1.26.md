@@ -1,5 +1,8 @@
 ### SB 2.1.26
 
+> पातालमेतस्य हि पादमूलं पठन्ति पार्ष्णिप्रपदे रसातलम् ।
+> महातलं विश्वसृजोऽथ गुल्फौ तलातलं वै पुरुषस्य जङ्घे ॥२६॥
+
 > pātālam etasya hi pāda-mūlaṁ
 > paṭhanti pārṣṇi-prapade rasātalam
 > mahātalaṁ viśva-sṛjo 'tha gulphau

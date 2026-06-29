@@ -1,5 +1,8 @@
 ### SB 3.21.9
 
+> स तं विरजमर्काभं सितपद्मोत्पलस्रजम् ।
+> स्निग्धनीलालकव्रात वक्त्राब्जं विरजोऽम्बरम् ॥९॥
+
 > sa taṁ virajam arkābhaṁ
 > sita-padmotpala-srajam
 > snigdha-nīlālaka-vrāta-

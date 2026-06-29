@@ -1,5 +1,8 @@
 ### CC Madhya 1.194
 
+> সবে এক দোষ তার, হয় পাপাচার ।
+> পাপরাশি দহে নামাভাসেই তোমার ॥১৯৪॥
+
 sabe eka doṣa tāra, haya pāpācāra
 
 pāpa-rāśi dahe nāmābhāsei tomāra

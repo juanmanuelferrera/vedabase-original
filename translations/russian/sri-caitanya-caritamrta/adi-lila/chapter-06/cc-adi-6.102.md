@@ -1,5 +1,8 @@
 ### CC Adi 6.102
 
+> ন তথা মে প্রিয়তম আত্মযোনির্ন শঙ্করঃ ।
+> ন চ সঙ্কর্ষণো ন শ্রীর্নৈবাত্মা চ যথা ভবান্ ॥১০২॥
+
 > na tathā me priya-tama
 > ātma-yonir na śaṅkaraḥ
 > na ca saṅkarṣaṇo na śrīr

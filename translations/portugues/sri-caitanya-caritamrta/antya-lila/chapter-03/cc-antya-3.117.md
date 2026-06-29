@@ -1,5 +1,8 @@
 ### CC Antya 3.117
 
+> প্রাতঃকাল দেখি’ বেশ্যা উঠিয়া চলিলা ।
+> সব সমাচার যাই খাঁনেরে কহিলা ॥১১৭॥
+
 prātaḥ-kāla dekhi' veśyā uṭhiyā calilā
 
 saba samācāra yāi khāṅnere kahilā

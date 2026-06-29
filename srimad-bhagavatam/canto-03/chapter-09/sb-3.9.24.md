@@ -1,5 +1,10 @@
 ### SB 3.9.24
 
+> नाभिह्रदादिह सतोऽम्भसि यस्य पुंसो
+> विज्ञानशक्तिरहमासमनन्तशक्तेः ।
+> रूपं विचित्रमिदमस्य विवृण्वतो मे
+> मा रीरिषीष्ट निगमस्य गिरां विसर्गः ॥२४॥
+
 > nābhi-hradād iha sato 'mbhasi yasya puṁso
 > vijñāna-śaktir aham āsam ananta-śakteḥ
 > rūpaṁ vicitram idam asya vivṛṇvato me

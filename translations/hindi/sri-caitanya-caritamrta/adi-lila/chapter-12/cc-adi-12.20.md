@@ -1,5 +1,8 @@
 ### CC Adi 12.20
 
+> গুণ্ডিচা-মন্দিরে মহাপ্রভুর সম্মুখে ।
+> কীর্তনে নর্তন করে বড় প্রেম-সুখে ॥২০॥
+
 > guṇḍicā-mandire mahāprabhura sammukhe
 > kīrtane nartana kare baḍa prema-sukhe
 

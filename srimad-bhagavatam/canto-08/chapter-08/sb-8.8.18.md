@@ -1,5 +1,8 @@
 ### SB 8.8.18
 
+> ततः कृतस्वस्त्ययनोत्पलस्रजं नदद्द्विरेफां परिगृह्य पाणिना
+> चचाल वक्त्रं सुकपोलकुण्डलं सव्रीडहासं दधती सुशोभनम ॥१८॥
+
 > stana-dvayaṁ cātikṛśodarī samaṁ
 > nirantaraṁ candana-kuṅkumokṣitam
 > tatas tato nūpura-valgu śiñjitair

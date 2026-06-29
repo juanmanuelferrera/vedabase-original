@@ -1,5 +1,8 @@
 ### CC Antya 3.263
 
+> কৃষ্ণনাম লঞা নাচে, প্রেমবন্যায় ভাসে  ।
+> নারদ-প্রহ্লাদাদি আসে মনুষ্য-প্রকাশে ॥২৬৩॥
+
 kṛṣṇa-nāma lañā nāce, prema-vanyāya bhāse
 
 nārada-prahlādādi āse manuṣya-prakāśe

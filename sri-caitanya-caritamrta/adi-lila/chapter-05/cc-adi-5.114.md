@@ -1,5 +1,8 @@
 ### CC Adi 5.114
 
+> দেবগণে না পায় যাঁহার দরশন ।
+> ক্ষীরোদকতীরে যাই’ করেন স্তবন ॥১১৪॥
+
 > deva-gaṇe nā pāya yāṅhāra daraśana
 > kṣīrodaka-tīre yāi' karena stavana
 

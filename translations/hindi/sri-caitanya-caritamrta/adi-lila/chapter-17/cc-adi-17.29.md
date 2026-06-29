@@ -1,5 +1,8 @@
 ### CC Adi 17.29
 
+> এইমত বৈষ্ণব কারে কিছু না মাগিব ।
+> অযাচিত-বৃত্তি, কিম্বা শাক-ফল খাইব ॥২৯॥
+
 > ei-mata vaiṣṇava kāre kichu nā māgiba
 > ayācita-vṛtti, kiṁvā śāka-phala khāiba
 

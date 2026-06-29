@@ -1,5 +1,8 @@
 ### CC Madhya 15.181
 
+> এই মত সর্বভক্তের কহি’ সব গুণ ।
+> সবারে বিদায় দিল করি’ আলিঙ্গন ॥১৮১॥
+
 > ei mata sarva-bhaktera kahi' saba guṇa
 > sabāre vidāya dila kari' āliṅgana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 4.66
 
+> আরাত্রিক করি’ কৈল বহুত স্তবন ।
+> দণ্ডবৎ করি’ কৈল আত্ম-সমর্পণ ॥৬৬॥
+
 > ārātrika kari' kaila bahuta stavana
 > daṇḍavat kari' kaila ātma-samarpaṇa
 

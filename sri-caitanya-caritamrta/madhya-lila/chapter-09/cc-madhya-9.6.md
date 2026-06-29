@@ -1,5 +1,8 @@
 ### CC Madhya 9.6
 
+> অতএব নাম-মাত্র করিয়ে গণন ।
+> কহিতে না পারি তার যথা অনুক্রম ॥৬॥
+
 > ataeva nāma-mātra kariye gaṇana
 > kahite nā pāri tāra yathā anukrama
 

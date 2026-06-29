@@ -1,5 +1,8 @@
 ### CC Madhya 22.124
 
+> আরাত্রিক-মহোত্সব-শ্রীমূর্তি-দর্শন ।
+> নিজপ্রিয়-দান, ধ্যান, তদীয়-সেবন ॥১২৪॥
+
 > ārātrika-mahotsava-śrīmūrti-darśana
 > nija-priya-dāna, dhyāna, tadīya-sevana
 

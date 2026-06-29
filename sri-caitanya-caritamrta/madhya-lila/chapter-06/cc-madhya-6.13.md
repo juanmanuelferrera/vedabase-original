@@ -1,5 +1,8 @@
 ### CC Madhya 6.13
 
+> ‘অধিরূঢ় ভাব’ যাঁর, তাঁর এ বিকার ।
+> মনুষ্যের দেহে দেখি, — বড় চমৎকার ॥১৩॥
+
 > 'adhirūḍha bhāva' yāṅra, tāṅra e vikāra
 > manuṣyera dehe dekhi,—baḍa camatkāra
 

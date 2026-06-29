@@ -1,5 +1,8 @@
 ### CC Madhya 18.228
 
+> চৈতন্য-চরিত্র এই — ‘অমৃতের সিন্ধু’ ।
+> জগৎ আনন্দে ভাসায় যার একবিন্দু ॥২২৮॥
+
 > caitanya-caritra ei—'amṛtera sindhu'
 > jagat ānande bhāsāya yāra eka-bindu
 

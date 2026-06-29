@@ -1,5 +1,8 @@
 ### CC Madhya 25.79
 
+> জীবে ‘বিষ্ণু’ বুদ্ধি দূরে — যেই ব্রহ্ম-রুদ্র-সম ।
+> নারায়ণে মানে তারে ‘পাষণ্ডীতে’ গণন ॥৭৯॥
+
 jīve 'viṣṇu' buddhi dūre-yei brahma-rudra-sama
 
 nārāyaṇe māne tāre 'pāṣaṇḍīte' gaṇana

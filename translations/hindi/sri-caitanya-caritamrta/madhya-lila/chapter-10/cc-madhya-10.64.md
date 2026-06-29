@@ -1,5 +1,8 @@
 ### CC Madhya 10.64
 
+> ভট্টথারি-কাছে গেলা আমারে ছাড়িয়া ।
+> ভট্টথারি হৈতে ইঁহারে আনিলুঁ উদ্ধারিয়া ॥৬৪॥
+
 > bhaṭṭathāri-kāche gelā āmāre chāḍiyā
 > bhaṭṭathāri haite iṅhāre āniluṅ uddhāriyā
 

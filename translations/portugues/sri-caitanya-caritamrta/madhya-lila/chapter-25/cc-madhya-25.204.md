@@ -1,5 +1,8 @@
 ### CC Madhya 25.204
 
+> শুষ্ককাষ্ঠ আনি’ রায় বেচে মথুরাতে ।
+> পাঁচ ছয় পৈসা হয় এক এক বোঝাতে ॥২০৪॥
+
 śuṣka-kāṣṭha āni' rāya vece mathurāte
 
 pāṅca chaya paisā haya eka eka bojhāte

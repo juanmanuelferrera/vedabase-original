@@ -1,5 +1,8 @@
 ### CC Adi 6.111
 
+> অবতারগণের ভক্তভাবে অধিকার ।
+> ভক্তভাব হৈতে অধিক সুখ নাহি আর ॥১১১॥
+
 avatāra-gaṇera bhakta-bhāve adhikāra
 
 bhakta-bhāva haite adhika sukha nāhi āra

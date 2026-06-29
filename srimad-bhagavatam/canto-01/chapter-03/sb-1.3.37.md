@@ -1,5 +1,8 @@
 ### SB 1.3.37
 
+> न चास्य कश्चिन्निपुणेन धातुरवैति जन्तुः कुमनीष ऊतीः ।
+> नामानि रूपाणि मनोवचोभिः सन्तन्वतो नटचर्यामिवाज्ञः ॥३७॥
+
 > na cāsya kaścin nipuṇena dhātur
 > avaiti jantuḥ kumanīṣa ūtīḥ
 > nāmāni rūpāṇi mano-vacobhiḥ

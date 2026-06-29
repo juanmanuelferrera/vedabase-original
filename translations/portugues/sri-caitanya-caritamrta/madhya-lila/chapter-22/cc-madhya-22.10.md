@@ -1,5 +1,8 @@
 ### CC Madhya 22.10
 
+> সেই বিভিন্নাংশ জীব — দুই ত’ প্রকার ।
+> এক — ‘নিত্যমুক্ত’, এক — ‘নিত্য-সংসার’ ॥১০॥
+
 sei vibhinnāṁśa jīva--dui ta' prakāra
 eka--'nitya-mukta', eka--'nitya-saṁsāra'
 

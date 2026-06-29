@@ -1,5 +1,8 @@
 ### CC Madhya 7.129
 
+> কভু না বাধিবে তোমার বিষয়-তরঙ্গ ৷
+> পুনরপি এই ঠাঞি পাবে মোর সঙ্গ ৷৷” ১২৯ ৷৷ ॥১২৯॥
+
 kabhu nā bādhibe tomāra viṣaya-taraṅga
 punarapi ei ṭhāñi pābe mora saṅga"
 

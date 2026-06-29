@@ -1,5 +1,8 @@
 ### CC Madhya 7.45
 
+> আজ্ঞা দেহ, অবশ্য আমি দক্ষিণে চলিব ।
+> তোমার আজ্ঞাতে সুখে লেউটি’ আসিব’ ॥৪৫॥
+
 > ājñā deha, avaśya āmi dakṣiṇe caliba
 > tomāra ājñāte sukhe leuṭi' āsiba'
 

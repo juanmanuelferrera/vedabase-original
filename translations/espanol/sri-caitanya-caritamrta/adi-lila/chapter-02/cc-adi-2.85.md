@@ -1,5 +1,8 @@
 ### CC Adi 2.85
 
+> নারায়ণ অংশী যেই স্বয়ং-ভগবান্ ।
+> তেঁহ শ্রীকৃষ্ণ — ঐছে করিত ব্যাখান ॥৮৫॥
+
 > nārāyaṇa aṁśī yei svayaṁ-bhagavān
 > teṅha śrī-kṛṣṇa--aiche karita vyākhyāna
 

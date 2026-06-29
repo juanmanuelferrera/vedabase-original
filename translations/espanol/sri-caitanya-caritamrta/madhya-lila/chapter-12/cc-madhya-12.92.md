@@ -1,5 +1,8 @@
 ### CC Madhya 12.92
 
+> এইমত অভ্যন্তর করিল মার্জন ।
+> পুনঃ সবাকারে দিল করিয়া বণ্টন ॥৯২॥
+
 > ei-mata abhyantara karila mārjana
 > punaḥ sabākāre dila kariyā vaṇṭana
 

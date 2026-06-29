@@ -1,5 +1,8 @@
 ### SB 6.6.1
 
+> श्रीशुक उवाच
+> ततः प्राचेतसोऽसिक्न्यामनुनीतः स्वयम्भुवा ॥१॥
+
 > śrī-śuka uvāca
 > tataḥ prācetaso 'siknyām
 > anunītaḥ svayambhuvā

@@ -1,5 +1,8 @@
 ### CC Adi 13.30
 
+> যারে দেখে, তারে কহে, — কহ কৃষ্ণনাম ।
+> কৃষ্ণনামে ভাসাইল নবদ্বীপ-গ্রাম ॥৩০॥
+
 yāre dekhe, tāre kahe,--kaha kṛṣṇa-nāma
 
 kṛṣṇa-nāme bhāsāila navadvīpa-grāma

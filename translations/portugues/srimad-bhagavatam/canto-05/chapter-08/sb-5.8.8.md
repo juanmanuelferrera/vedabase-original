@@ -1,5 +1,7 @@
 ### SB 5.8.8
 
+> तस्य ह वा एणकुणक उच्चैरेतस्मिन्कृतनिजाभिमानस्याहरहस्तत्पोषणपालनलालनप्रीणनानुध्यानेनात्मनियमाः सहयमाः पुरुषपरिचर्यादय एकैकशः कतिपयेनाहर्गणेनवियुज्यमानाः किल सर्व एवोदवसन ॥८॥
+
 *tasya ha vā eṇa*-kuṇaka uccair etasmin kṛta-nijābhimānasyāhar-ahas tat-poṣaṇa-pālana-lālana-prīṇanānudhyānenātma-niyamāḥ saha-yamāḥ puruṣa-paricaryādaya ekaikaśaḥ katipayenāhar-gaṇena viyujyamānāḥ kila sarva evodavasan.
 
 *tasya*—desse rei; *ha vā*—de fato; *eṇa-kuṇake*—no filhote de cervo; *uccaiḥ*—grandemente; *etasmin*—neste; *kṛta-nija-abhimānasya*—que aceitou o filhote como se fosse seu próprio filho; *ahaḥ-ahaḥ*—todos os dias; *tat-poṣaṇa*—mantendo aquele filhote; *pālana*—protegendo de perigos; *lālana*—criando-o ou demonstrando amor a ele beijando-o e assim por diante; *prīṇana*—acariciando-o com amor; *anudhyānena*—por tal apego; *ātma-niyamāḥ*—suas atividades pessoais para cuidar de seu corpo; *saha-yamāḥ*—com seus deveres espirituais, tais como não violência, tolerância e simplicidade; *puruṣa-paricaryā-ādayaḥ*—adorar a Suprema Personalidade de Deus e cumprir outros deveres; *eka-ekaśaḥ*—todos os dias; *katipayena*—com apenas alguns; *ahaḥ-gaṇena*—dias de tempo; *viyujyamānāḥ*—sendo abandonados; *kila*—de fato; *sarve*—todos; *eva*—certamente; *udavasan*—foram destruídos.

@@ -1,5 +1,8 @@
 ### CC Adi 2.12
 
+> তাঁহার অঙ্গের শুদ্ধ কিরণ-মণ্ডল ।
+> উপনিষৎ কহে তাঁরে ব্রহ্ম সুনির্মল ॥১২॥
+
 > tāṅhāra aṅgera śuddha kiraṇa-maṇḍala
 > upaniṣat kahe tāṅre brahma sunirmala
 

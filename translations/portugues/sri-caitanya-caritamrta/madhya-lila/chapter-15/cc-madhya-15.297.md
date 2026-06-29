@@ -1,5 +1,8 @@
 ### CC Madhya 15.297
 
+> ঐছে চিত্র-লীলা করে শচীর নন্দন ।
+> যেই দেখে, শুনে, তাঁর বিস্ময় হয় মন ॥২৯৭॥
+
 aiche citra-līlā kare śacīra nandana
 
 yei dekhe, śune, tāṅra vismaya haya mana

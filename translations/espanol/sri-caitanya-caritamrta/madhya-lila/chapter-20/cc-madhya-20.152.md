@@ -1,5 +1,8 @@
 ### CC Madhya 20.152
 
+> কৃষ্ণের স্বরূপ-বিচার শুন, সনাতন ।
+> অদ্বয়জ্ঞান-তত্ত্ব, ব্রজে ব্রজেন্দ্রনন্দন ॥১৫২॥
+
 > kṛṣṇera svarūpa-vicāra śuna, sanātana
 > advaya-jñāna-tattva, vraje vrajendra-nandana
 

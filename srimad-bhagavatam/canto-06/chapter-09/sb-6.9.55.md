@@ -1,5 +1,8 @@
 ### SB 6.9.55
 
+> तस्मिन्विनिहते यूयं तेजोऽस्त्रायुधसम्पदः
+> भूयः प्राप्स्यथ भद्रं वो न हिंसन्ति च मत्परान ॥५५॥
+
 > tasmin vinihate yūyaṁ
 > tejo-'strāyudha-sampadaḥ
 > bhūyaḥ prāpsyatha bhadraṁ vo

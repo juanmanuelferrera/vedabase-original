@@ -1,5 +1,10 @@
 ### SB 7.9.14
 
+> तद्यच्छ मन्युमसुरश्च हतस्त्वयाद्य
+> मोदेत साधुरपि वृश्चिकसर्पहत्या
+> लोकाश्च निर्वृतिमिताः प्रतियन्ति सर्वे
+> रूपं नृसिंह विभयाय जनाः स्मरन्ति ॥१४॥
+
 > tad yaccha manyum asuraś ca hatas tvayādya
 > modeta sādhur api vṛścika-sarpa-hatyā
 > lokāś ca nirvṛtim itāḥ pratiyanti sarve

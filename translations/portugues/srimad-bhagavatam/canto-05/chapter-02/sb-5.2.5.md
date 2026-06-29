@@ -1,5 +1,7 @@
 ### SB 5.2.5
 
+> तस्याः सुललितगमनपदविन्यासगतिविलासायाश्चानुपदं खणखणायमानरुचिरचरणाभरणस्वनमुपाकर्ण्य नरदेवकुमारः समाधियोगेनामीलितनयननलिनमुकुलयुगलमीषद्विकचय्य व्यचष्ट ॥५॥
+
 *tasyāḥ sulalita*-gamana-pada-vinyāsa-gati-vilāsāyāś cānupadaṁ khaṇa-khaṇāyamāna-rucira-caraṇābharaṇa-svanam upākarṇya naradeva-kumāraḥ samādhi-yogenāmīlita-nayana-nalina-mukula-yugalam īṣad vikacayya vyacaṣṭa.
 
 *tasyāḥ*—dela (Pūrvacitti); *sulalita*—em movimentos muito belos; *gamana*—movimentos; *pada-vinyāsa*—com estilos de andar; *gati*—na progressão; *vilāsāyāḥ*—cujo passatempo; *ca*—também; *anupadam*—a cada passo; *khaṇa-khaṇāyamāna*—emitindo um som tilintante; *rucira*—muito agradável; *caraṇa-ābharaṇa*—dos ornamentos nos pés; *svanam*—o som; *upākarṇya*—ouvindo; *naradeva-kumāraḥ*—o príncipe; *samādhi*—em êxtase; *yogena*—controlando os sentidos; *āmīlita*—entreabertos; *nayana*—olhos; *nalina*—de lótus; *mukula*—botões; *yugalam*—como um par; *īṣat*—levemente; *vikacayya*—abrindo; *vyacaṣṭa*—viu.

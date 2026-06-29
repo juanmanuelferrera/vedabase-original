@@ -1,5 +1,8 @@
 ### SB 4.25.18
 
+> हिमनिर्झरविप्रुष्मत् कुसुमाकरवायुना ।
+> चलत्प्रवालविटप नलिनीतटसम्पदि ॥१८॥
+
 > hima-nirjhara-vipruṣmat-
 > kusumākara-vāyunā
 > calat-pravāla-viṭapa-

@@ -1,5 +1,8 @@
 ### SB 8.1.28
 
+> सत्यका हरयो वीरा देवास्त्रिशिख ईश्वरः
+> ज्योतिर्धामादयः सप्त ऋषयस्तामसेऽन्तरे ॥२८॥
+
 satyakā harayo vīrā
 devās triśikha īśvaraḥ
 jyotirdhāmādayaḥ sapta

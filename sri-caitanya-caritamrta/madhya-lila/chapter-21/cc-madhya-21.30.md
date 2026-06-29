@@ -1,5 +1,8 @@
 ### CC Madhya 21.30
 
+> অপার ঐশ্বর্য কৃষ্ণের — নাহিক গণন ।
+> শাখা-চন্দ্র-ন্যায়ে করি দিগ্দরশন ॥৩০॥
+
 > apāra aiśvarya kṛṣṇera—nāhika gaṇana
 > śākhā-candra-nyāye kari dig-daraśana
 

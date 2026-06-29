@@ -1,5 +1,8 @@
 ### SB 3.1.38
 
+> कच्चिद्यशोधा रथयूथपानां गाण्डीवधन्वोपरतारिरास्ते ।
+> अलक्षितो यच्छरकूटगूढो मायाकिरातो गिरिशस्तुतोष ॥३८॥
+
 > kaccid yaśodhā ratha-yūthapānāṁ
 > gāṇḍīva-dhanvoparatārir āste
 > alakṣito yac-chara-kūṭa-gūḍho

@@ -1,5 +1,8 @@
 ### CC Madhya 18.168
 
+> বিপ্র কহে, — পাঠান, তোমার পাৎসার দোহাই ।
+> চল তুমি আমি সিক্দার-পাশ যাই ॥১৬৮॥
+
 vipra kahe,--pāṭhāna, tomāra pātsāra dohāi
 
 cala tumi āmi sikdāra-pāśa yāi

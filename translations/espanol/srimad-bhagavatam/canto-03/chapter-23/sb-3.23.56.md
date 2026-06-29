@@ -1,5 +1,8 @@
 ### SB 3.23.56
 
+> नेह यत्कर्म धर्माय न विरागाय कल्पते ।
+> न तीर्थपदसेवायै जीवन्नपि मृतो हि सः ॥५६॥
+
 > neha yat karma dharmāya
 > na virāgāya kalpate
 > na tīrtha-pada-sevāyai

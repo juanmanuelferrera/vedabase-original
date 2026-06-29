@@ -1,5 +1,8 @@
 ### CC Madhya 11.11
 
+> আকারাদপি ভেতব্যং স্ত্রীণাং বিষয়িণামপি ৷
+> যথাহের্মনসঃ ক্ষোভস্তথা তস্যাকৃতেরপি ৷৷ ১১ ৷৷ ॥১১॥
+
 > ākārād api bhetavyaṁ
 > strīṇāṁ viṣayiṇām api
 > yathāher manasaḥ kṣobhas

@@ -1,5 +1,8 @@
 ### CC Madhya 18.100
 
+> তবে তাঁরে কহে প্রভু চাপড় মারিয়া ।
+> “মূর্খের বাক্যে ‘মূর্খ’ হৈলা পণ্ডিত হঞা ॥১০০॥
+
 > tabe tāṅre kahe prabhu cāpaḍa māriyā
 > "mūrkhera vākye 'mūrkha' hailā paṇḍita hañā
 

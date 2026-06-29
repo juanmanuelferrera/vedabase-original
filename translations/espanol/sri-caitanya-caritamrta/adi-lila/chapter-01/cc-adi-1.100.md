@@ -1,5 +1,8 @@
 ### CC Adi 1.100
 
+> দুই ভাগবত দ্বারা দিয়া ভক্তিরস ।
+> তাঁহার হৃদয়ে তাঁর প্রেমে হয় বশ ॥১০০॥
+
 > dui bhāgavata dvārā diyā bhakti-rasa
 > tāṅhāra hṛdaye tāṅra preme haya vaśa
 

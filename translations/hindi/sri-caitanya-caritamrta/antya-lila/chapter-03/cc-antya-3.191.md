@@ -1,5 +1,8 @@
 ### CC Antya 3.191
 
+> গৌড়ে রহি’ পাৎসাহা-আগে আরিন্দাগিরি করে ।
+> বার-লক্ষ মুদ্রা সেই পাৎসার ঠাঞি ভরে ॥১৯১॥
+
 > gauḍe rahi' pātsāhā-āge ārindā-giri kare
 > bāra-lakṣa mudrā sei pātsāra ṭhāñi bhare
 

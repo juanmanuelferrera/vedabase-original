@@ -1,5 +1,8 @@
 ### CC Adi 4.252
 
+> কৃষ্ণ-আলিঙ্গন পাইনু, জনম সফলে ।
+> কৃষ্ণসুখে মগ্ন রহে বৃক্ষ করি’ কোলে ॥২৫২॥
+
 kṛṣṇa-āliṅgana pāinu, janama saphale
 kṛṣṇa-sukhe magna rahe vṛkṣa kari' kole
 

@@ -1,5 +1,8 @@
 ### CC Antya 1.8
 
+> জয় জয় শ্রীচৈতন্য জয় নিত্যানন্দ ।
+> জয়াদ্বৈতচন্দ্র জয় গৌরভক্তবৃন্দ ॥৮॥
+
 > jaya jaya śrī-caitanya jaya nityānanda
 > jayādvaita-candra jaya gaura-bhakta-vṛnda
 

@@ -1,5 +1,8 @@
 ### CC Antya 11.80
 
+> বাণীনাথ পট্টনায়ক প্রসাদ আনিলা ।
+> কাশীমিশ্র অনেক প্রসাদ পাঠাইলা ॥৮০॥
+
 vāṇīnātha paṭṭanāyaka prasāda ānilā
 
 kāśī-miśra aneka prasāda pāṭhāilā

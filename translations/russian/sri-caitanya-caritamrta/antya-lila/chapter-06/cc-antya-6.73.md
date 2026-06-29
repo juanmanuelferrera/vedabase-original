@@ -1,5 +1,8 @@
 ### CC Antya 6.73
 
+> প্রভুরে কহে, — “তোমা লাগি’ ভোগ লাগাইল ।
+> তুমি ইহাঁ উৎসব কর, ঘরে প্রসাদ রহিল ।।” ॥ ৭৩ ॥
+
 > prabhure kahe,—"tomā lāgi' bhoga lāgāila
 > tumi ihāṅ utsava kara, ghare prasāda rahila"
 

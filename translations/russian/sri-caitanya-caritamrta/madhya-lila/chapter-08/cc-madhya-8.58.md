@@ -1,5 +1,8 @@
 ### CC Madhya 8.58
 
+> বর্ণাশ্রমাচারবতা পুরুষেণ পরঃ পুমান্ ।
+> বিষ্ণুরারাধ্যতে পন্থা নান্যত্তত্তোষকারণম্ ॥৫৮॥
+
 > varṇāśramācāra-vatā
 > puruṣena paraḥ pumān
 > visṇur ārādhyate panthā

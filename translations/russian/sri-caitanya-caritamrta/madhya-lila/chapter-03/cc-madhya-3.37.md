@@ -1,5 +1,8 @@
 ### CC Madhya 3.37
 
+> পশ্চিমধারে যমুনা বহে, তাহাঁ কৈলে স্নান ।
+> আর্দ্র কৌপীন ছাড়ি’ শুষ্ক কর পরিধান ॥৩৭॥
+
 > paścima-dhāre yamunā vahe, tāhāṅ kaile snāna
 > ārdra kaupīna chāḍi' śuṣka kara paridhāna
 

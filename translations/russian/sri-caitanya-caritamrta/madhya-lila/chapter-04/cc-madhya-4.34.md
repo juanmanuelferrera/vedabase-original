@@ -1,5 +1,8 @@
 ### CC Madhya 4.34
 
+> বসি’ নাম লয় পুরী, নিদ্রা নাহি হয় ।
+> শেষরাত্রে তন্দ্রা হৈল, — বাহ্যবৃত্তি-লয় ॥৩৪॥
+
 > vasi' nāma laya purī, nidrā nāhi haya
 > śeṣa-rātre tandrā haila,—bāhya-vṛtti-laya
 

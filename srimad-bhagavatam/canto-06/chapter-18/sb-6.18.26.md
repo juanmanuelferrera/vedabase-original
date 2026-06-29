@@ -1,5 +1,8 @@
 ### SB 6.18.26
 
+> आशासानस्य तस्येदं ध्रुवमुन्नद्धचेतसः
+> मदशोषक इन्द्रस्य भूयाद्येन सुतो हि मे ॥२६॥
+
 > āśāsānasya tasyedaṁ
 > dhruvam unnaddha-cetasaḥ
 > mada-śoṣaka indrasya

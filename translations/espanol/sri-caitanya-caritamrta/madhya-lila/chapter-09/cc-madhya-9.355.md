@@ -1,5 +1,8 @@
 ### CC Madhya 9.355
 
+> সার্বভৌম-সঙ্গে আর লঞা নিজগণ ৷
+> তীর্থযাত্রা-কথা কহি’ কৈল জাগরণ ৷৷ ৩৫৫ ৷৷ ॥৩৫৫॥
+
 > sārvabhauma-saṅge āra lañā nija-gaṇa
 > tīrtha-yātrā-kathā kahi' kaila jāgaraṇa
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.183
 
+> মৎসেবয়া প্রতীতং তে সালোক্যাদি-চতুষ্টয়ম্ ।
+> নেচ্ছন্তি সেবয়া পূর্ণাঃ কুতোঽন্যৎ কালবিপ্লুতম্ ॥১৮৩॥
+
 > mat-sevayā pratītaṁ te
 > sālokyādi-catuṣṭayam
 > necchanti sevayā pūrṇāḥ

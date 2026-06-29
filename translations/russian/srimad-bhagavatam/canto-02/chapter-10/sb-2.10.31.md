@@ -1,5 +1,8 @@
 ### SB 2.10.31
 
+> त्वक्चर्ममांसरुधिर मेदोमज्जास्थिधातवः ।
+> भूम्यप्तेजोमयाः सप्त प्राणो व्योमाम्बुवायुभिः ॥३१॥
+
 > tvak-carma-māṁsa-rudhira-
 > medo-majjāsthi-dhātavaḥ
 > bhūmy-ap-tejomayāḥ sapta

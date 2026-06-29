@@ -1,5 +1,8 @@
 ### CC Madhya 1.277
 
+> প্রভু দেখি’ প্রেমে লোক আনন্দিত মন ।
+> প্রভুকে ঈশ্বর বলি’ করয়ে স্তবন ॥২৭৭॥
+
 prabhu dekhi' preme loka ānandita mana
 
 prabhuke īśvara bali' karaye stavana

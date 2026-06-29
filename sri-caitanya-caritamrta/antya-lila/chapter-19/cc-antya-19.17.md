@@ -1,5 +1,8 @@
 ### CC Antya 19.17
 
+> আচার্যের ঠাঞি গিয়া আজ্ঞা মাগিলা ।
+> আচার্য-গোসাঞি প্রভুরে সন্দেশ কহিলা ॥১৭॥
+
 > ācāryera ṭhāñi giyā ājñā māgilā
 > ācārya-gosāñi prabhure sandeśa kahilā
 

@@ -1,5 +1,8 @@
 ### CC Antya 8.31
 
+> সেই হৈতে ঈশ্বরপুরী — ‘প্রেমের সাগর’ ।
+> রামচন্দ্রপুরী হৈল সর্বনিন্দাকর ॥৩১॥
+
 sei haite īśvara-purī--'premera sāgara'
 
 rāmacandra-purī haila sarva-nindākara

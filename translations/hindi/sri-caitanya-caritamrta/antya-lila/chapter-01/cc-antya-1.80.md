@@ -1,5 +1,8 @@
 ### CC Antya 1.80
 
+> তালপত্রে শ্লোক লিখি’ চালেতে রাখিলা ।
+> সমুদ্রস্নান করিবারে রূপ-গোসাঞি গেলা ॥৮০॥
+
 > tāla-patre śloka likhi' cālete rākhilā
 > samudra-snāna karibāre rūpa-gosāñi gelā
 

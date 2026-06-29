@@ -1,5 +1,8 @@
 ### SB 3.32.25
 
+> स तदैवात्मनात्मानं निःसङ्गं समदर्शनम् ।
+> हेयोपादेयरहितमारूढं पदमीक्षते ॥२५॥
+
 > sa tadaivātmanātmānaṁ
 > niḥsaṅgaṁ sama-darśanam
 > heyopādeya-rahitam

@@ -1,5 +1,8 @@
 ### CC Madhya 8.55
 
+> প্রভু স্নান-কৃত্য করি’ আছেন বসিয়া ৷
+> একভৃত্য-সঙ্গে রায় মিলিলা আসিয়া ৷৷ ৫৫ ৷৷ ॥৫৫॥
+
 > prabhu snāna-kṛtya kari' āchena vasiyā
 > eka-bhṛtya-saṅge rāya mililā āsiyā
 

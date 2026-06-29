@@ -1,5 +1,8 @@
 ### SB 3.33.15
 
+> प्रजापतेः कर्दमस्य तपोयोगविजृम्भितम् ।
+> स्वगार्हस्थ्यमनौपम्यं प्रार्थ्यं वैमानिकैरपि ॥१५॥
+
 > prajāpateḥ kardamasya
 > tapo-yoga-vijṛmbhitam
 > sva-gārhasthyam anaupamyaṁ

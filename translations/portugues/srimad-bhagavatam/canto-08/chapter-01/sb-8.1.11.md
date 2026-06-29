@@ -1,5 +1,8 @@
 ### SB 8.1.11
 
+> यं पश्यति न पश्यन्तं चक्षुर्यस्य न रिष्यति
+> तं भूतनिलयं देवं सुपर्णमुपधावत ॥११॥
+
 yaṁ paśyati na paśyantaṁ
 cakṣur yasya na riṣyati
 *taṁ bhūta*-nilayaṁ devaṁ

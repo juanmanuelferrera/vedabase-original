@@ -1,5 +1,8 @@
 ### CC Madhya 6.117
 
+> আমার সন্ন্যাস-ধর্ম চাহেন রাখিতে ।
+> বাৎসল্যে করুণা করেন, কি দোষ ইহাতে ॥১১৭॥
+
 āmāra sannyāsa-dharma cāhena rākhite
 vātsalye karuṇā karena, ki doṣa ihāte
 

@@ -1,5 +1,8 @@
 ### CC Antya 10.101
 
+> ভক্ত-গুণ প্রকাশিতে প্রভু বড় রঙ্গী ।
+> এই সব প্রকাশিতে কৈলা এত ভঙ্গী ॥১০১॥
+
 bhakta-guṇa prakāśite prabhu baḍa raṅgī
 
 ei saba prakāśite kailā eta bhaṅgī

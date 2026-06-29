@@ -1,5 +1,8 @@
 ### CC Madhya 18.115
 
+> যেই মূঢ় কহে, — জীব ঈশ্বর হয় ‘সম’ ।
+> সেইত ‘পাষণ্ডী’ হয়, দণ্ডে তারে যম ॥১১৫॥
+
 > yei mūḍha kahe,--jīva īśvara haya 'sama'
 > seita 'pāṣaṇḍī' haya, daṇḍe tāre yama
 

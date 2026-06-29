@@ -1,5 +1,8 @@
 ### CC Madhya 16.248
 
+> তাহাঁ হৈতে অবশ্য আমি ‘বৃন্দাবন’ যাব ।
+> সবে আজ্ঞা দেহ,’ তবে নির্বিঘ্নে আসিব ॥২৪৮॥
+
 > tāhāṅ haite avaśya āmi 'vṛndāvana' yāba
 > sabe ājñā deha', tabe nirvighne āsiba
 

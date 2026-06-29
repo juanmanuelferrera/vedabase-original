@@ -1,5 +1,8 @@
 ### SB 8.6.31
 
+> तत्त्वरोचत दैत्यस्य तत्रान्ये येऽसुराधिपाः
+> शम्बरोऽरिष्टनेमिश्च ये च त्रिपुरवासिनः ॥३१॥
+
 > tat tv arocata daityasya
 > tatrānye ye 'surādhipāḥ
 > śambaro 'riṣṭanemiś ca

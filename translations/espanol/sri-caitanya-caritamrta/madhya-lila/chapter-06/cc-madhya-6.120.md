@@ -1,5 +1,8 @@
 ### CC Madhya 6.120
 
+> বেদান্ত পড়াইতে তবে আরম্ভ করিলা ৷
+> স্নেহ-ভক্তি করি’ কিছু প্রভুরে কহিলা ॥১২০॥
+
 > vedānta paḍāite tabe ārambha karilā
 > sneha-bhakti kari' kichu prabhure kahilā
 

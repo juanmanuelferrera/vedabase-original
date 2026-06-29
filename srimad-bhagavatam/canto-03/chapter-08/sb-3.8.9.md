@@ -1,5 +1,8 @@
 ### SB 3.8.9
 
+> प्रोवाच मह्यं स दयालुरुक्तो मुनिः पुलस्त्येन पुराणमाद्यम् ।
+> सोऽहं तवैतत्कथयामि वत्स श्रद्धालवे नित्यमनुव्रताय ॥९॥
+
 > provāca mahyaṁ sa dayālur ukto
 > muniḥ pulastyena purāṇam ādyam
 > so 'haṁ tavaitat kathayāmi vatsa

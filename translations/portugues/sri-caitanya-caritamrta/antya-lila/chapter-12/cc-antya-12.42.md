@@ -1,5 +1,8 @@
 ### CC Antya 12.42
 
+> পূর্ববৎ প্রভু কৈলা সবার মিলন ।
+> স্ত্রী-সব দূর হইতে কৈলা প্রভুর দরশন ॥৪২॥
+
 pūrvavat prabhu kailā sabāra milana
 
 strī-saba dūra ha-ite kailā prabhura daraśana

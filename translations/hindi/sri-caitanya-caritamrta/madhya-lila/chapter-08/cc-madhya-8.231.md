@@ -1,5 +1,8 @@
 ### CC Madhya 8.231
 
+> তাহাতে দৃষ্টান্ত — লক্ষ্মী করিল ভজন ।
+> তথাপি না পাইল ব্রজে ব্রজেন্দ্রনন্দন ॥২৩১॥
+
 > tāhāte dṛṣṭānta--lakṣmī karila bhajana
 > tathāpi nā pāila vraje vrajendra-nandana
 

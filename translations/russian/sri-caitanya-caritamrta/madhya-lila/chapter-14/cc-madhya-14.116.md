@@ -1,5 +1,8 @@
 ### CC Madhya 14.116
 
+> রসবিশেষ প্রভুর শুনিতে মন হৈল ।
+> ঈষত্ হাসিয়া প্রভু স্বরূপে পুছিল ॥১১৬॥
+
 > rasa-viśeṣa prabhura śunite mana haila
 > īṣat hāsiyā prabhu svarūpe puchila
 

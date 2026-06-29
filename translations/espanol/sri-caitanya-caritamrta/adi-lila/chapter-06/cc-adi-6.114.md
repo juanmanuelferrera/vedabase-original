@@ -1,5 +1,8 @@
 ### CC Adi 6.114
 
+> সংকীর্তন প্রচারিয়া সব জগৎ তারিল ।
+> অদ্বৈত-প্রসাদে লোক প্রেমধন পাইল ॥১১৪॥
+
 > saṅkīrtana pracāriyā saba jagat tārila
 > advaita-prasāde loka prema-dhana pāila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 20.318
 
+> সৃজামি তন্নিযুক্তোঽহং হরো হরতি তদ্বশঃ ।
+> বিশ্বং পুরুষরূপেণ পরিপাতি ত্রিশক্তিধৃক্ ॥৩১৮॥
+
 > sṛjāmi tan-niyukto 'ham-
 > haro harati tad-vaśaḥ
 > viśvaṁ puruṣa-rūpeṇa

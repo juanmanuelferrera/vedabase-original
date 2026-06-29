@@ -1,5 +1,8 @@
 ### Bg 6.34
 
+> चञ्चलं हि मनः कृष्ण प्रमाथि बलवद् दृढम् ।
+> तस्याहं निग्रहं मन्ये वायोरिव सुदुष्करम् ॥३४॥
+
 > cañcalaṁ hi manaḥ kṛṣṇa
 > pramāthi balavad dṛḍham
 > tasyāhaṁ nigrahaṁ manye

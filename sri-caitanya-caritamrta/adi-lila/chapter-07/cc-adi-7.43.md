@@ -1,5 +1,8 @@
 ### CC Adi 7.43
 
+> এ সব শুনিয়া প্রভু হাসে মনে মনে ।
+> উপেক্ষা করিয়া কারো না কৈল সম্ভাষণে ॥৪৩॥
+
 > e saba śuniyā prabhu hāse mane mane
 > upekṣā kariyā kāro nā kaila sambhāṣaṇe
 

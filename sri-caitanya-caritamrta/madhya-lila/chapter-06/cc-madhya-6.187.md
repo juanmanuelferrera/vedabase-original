@@ -1,5 +1,8 @@
 ### CC Madhya 6.187
 
+> শুনি’ ভট্টাচার্য কহে, — ‘শুন, মহাশয় ।
+> এই শ্লোকের অর্থ শুনিতে বাঞ্ছা হয় ।।’ ॥১৮৭॥
+
 > śuni' bhaṭṭācārya kahe,—'śuna, mahāśaya
 > ei ślokera artha śunite vāñchā haya'
 

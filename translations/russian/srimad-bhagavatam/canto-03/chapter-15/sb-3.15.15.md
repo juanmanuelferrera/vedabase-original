@@ -1,5 +1,8 @@
 ### SB 3.15.15
 
+> यत्र चाद्यः पुमानास्ते भगवान्शब्दगोचरः ।
+> सत्त्वं विष्टभ्य विरजं स्वानां नो मृडयन्वृषः ॥१५॥
+
 > yatra cādyaḥ pumān āste
 > bhagavān śabda-gocaraḥ
 > sattvaṁ viṣṭabhya virajaṁ

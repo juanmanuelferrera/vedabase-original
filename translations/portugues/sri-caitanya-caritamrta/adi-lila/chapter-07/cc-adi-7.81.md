@@ -1,5 +1,8 @@
 ### CC Adi 7.81
 
+> কিবা মন্ত্র দিলা, গোসাঞি, কিবা তার বল ।
+> জপিতে জপিতে মন্ত্র করিল পাগল ॥৮১॥
+
 kibā mantra dilā, gosāñi, kibā tāra bala
 
 japite japite mantra karila pāgala

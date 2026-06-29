@@ -1,5 +1,7 @@
 ### SB 5.26.26
 
+> यस्त्विह वै सवर्णां भार्यां द्विजो रेतः पाययति काममोहितस्तं पापकृतममुत्र रेतःकुल्यायां पातयित्वा रेतः सम्पाययन्ति ॥२५॥
+
 > yas tv iha vai savarṇāṁ bhāryāṁ dvijo retaḥ pāyayati kāma-mohitas taṁ pāpa-kṛtam amutra retaḥ-kulyāyāṁ pātayitvā retaḥ sampāyayanti.
 
 *yaḥ*—toda persona que; *tu*—pero; *iha*—en esta vida; *vai*—en verdad; *savarṇām*—de la misma casta; *bhāryām*—a su esposa; *dvijaḥ*—una persona de una casta superior (*brāhmaṇa, kṣatriya* o *vaiśya*); *retaḥ*—el semen; *pāyayati*—hace beber; *kāma-mohitaḥ*—confundido por la influencia de los deseos lujuriosos; *tam*—a él; *pāpa-kṛtam*—que comete pecado; *amutra*—en la siguiente vida; *retaḥ-kulyāyām*—en un río de semen; *pātayitvā*—arrojando; *retaḥ*—semen; *sampāyayanti*—obligado a beber.

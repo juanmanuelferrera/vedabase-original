@@ -1,5 +1,8 @@
 ### CC Madhya 3.89
 
+> সেই ব্যঞ্জন আচার্য পুনঃ করেন পূরণ ৷
+> এই মত পুনঃ পুনঃ পরিবেশে ব্যঞ্জন ॥৮৯॥
+
 > sei vyañjana ācārya punaḥ karena pūraṇa
 > ei mata punaḥ punaḥ pariveśe vyañjana
 

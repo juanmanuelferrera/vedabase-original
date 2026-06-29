@@ -1,5 +1,8 @@
 ### CC Antya 6.140
 
+> কৃপা করি’ কৈলা চিড়া-দুগ্ধ ভোজন  ।
+> নৃত্য দেখি’ রাত্র্যে কৈলা প্রসাদ ভক্ষণ ॥১৪০॥
+
 > kṛpā kari' kailā ciḍā-dugdha bhojana
 > nṛtya dekhi' rātrye kailā prasāda bhakṣaṇa
 

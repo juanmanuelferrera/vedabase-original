@@ -1,5 +1,8 @@
 ### CC Madhya 13.4
 
+> আর দিন মহাপ্ৰভু হঞা সাবধান  ।
+> রাত্রে উঠি’ গণ-সঙ্গে কৈল প্রাতঃস্নান ॥৪॥
+
 āra dina mahāprabhu hañā sāvadhāna
 rātre uṭhi' gaṇa-saṅge kaila prātaḥ-snāna
 

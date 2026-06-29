@@ -1,5 +1,8 @@
 ### CC Adi 7.14
 
+> এক মহাপ্রভু, আর প্রভু দুইজন ।
+> দুই প্রভু সেবে মহাপ্রভুর চরণ ॥১৪॥
+
 > eka mahāprabhu, āra prabhu duijana
 > dui prabhu seve mahāprabhura caraṇa
 

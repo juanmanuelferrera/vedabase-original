@@ -1,5 +1,8 @@
 ### CC Madhya 11.107
 
+> আগে তাঁরে মিলি’ সবে তাঁরে সঙ্গে লঞা ।
+> তাঁর সঙ্গে জগন্নাথ দেখিবেন গিয়া ॥১০৭॥
+
 > āge tāṅre mili' sabe tāṅre saṅge lañā
 > tāṅra saṅge jagannātha dekhibena giyā
 

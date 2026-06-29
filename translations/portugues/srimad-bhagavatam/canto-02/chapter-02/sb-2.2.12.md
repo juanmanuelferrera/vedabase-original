@@ -1,5 +1,8 @@
 ### SB 2.2.12
 
+> अदीनलीलाहसितेक्षणोल्लसद्भ्रूभङ्गसंसूचितभूर्यनुग्रहम् ।
+> ईक्षेत चिन्तामयमेनमीश्वरं यावन्मनो धारणयावतिष्ठते ॥१२॥
+
 adīna-līlā-hasitekṣaṇollasad-
 bhrū-bhaṅga-saṁsūcita-bhūry-anugraham
 īkṣeta cintāmayam enam īśvaraṁ

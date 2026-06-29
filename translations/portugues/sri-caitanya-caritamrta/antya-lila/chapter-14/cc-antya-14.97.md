@@ -1,5 +1,8 @@
 ### CC Antya 14.97
 
+> করঙ্গের জলে করে সর্বাঙ্গ সিঞ্চন ।
+> বহির্বাস লঞা করে অঙ্গ সংবীজন ॥৯৭॥
+
 karaṅgera jale kare sarvāṅga siñcana
 
 bahirvāsa lañā kare aṅga saṁvījana

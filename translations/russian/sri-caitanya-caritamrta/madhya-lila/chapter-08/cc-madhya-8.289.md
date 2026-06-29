@@ -1,5 +1,8 @@
 ### CC Madhya 8.289
 
+> তোমার ঠাঞি আমার কিছু গুপ্ত নাহি কর্ম ।
+> লুকাইলে প্রেম-বলে জান সর্বমর্ম ॥২৮৯॥
+
 > tomāra ṭhāñi āmāra kichu gupta nāhi karma
 > lukāile prema-bale jāna sarva-marma
 

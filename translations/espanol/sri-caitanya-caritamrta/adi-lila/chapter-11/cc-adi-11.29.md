@@ -1,5 +1,8 @@
 ### CC Adi 11.29
 
+> পরমেশ্বরদাস — নিত্যানন্দৈক-শরণ ।
+> কৃষ্ণভক্তি পায়, তাঁরে যে করে স্মরণ ॥২৯॥
+
 > parameśvara-dāsa--nityānandaika-śaraṇa
 > kṛṣṇa-bhakti pāya, tāṅre ye kare smaraṇa
 

@@ -1,5 +1,8 @@
 ### CC Antya 12.54
 
+> নদীয়া-বাসী মোদক, তার নাম — ‘পরমেশ্বর’ ।
+> মোদক বেচে, প্রভুর বাটীর নিকট তার ঘর ॥৫৪॥
+
 > nadīyā-vāsī modaka, tāra nāma—'parameśvara'
 > modaka vece, prabhura vāṭīra nikaṭa tāra ghara
 

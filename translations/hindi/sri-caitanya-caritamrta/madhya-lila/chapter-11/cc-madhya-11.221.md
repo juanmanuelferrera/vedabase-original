@@ -1,5 +1,8 @@
 ### CC Madhya 11.221
 
+> আগে-পাছে গান করে চারি সম্প্রদায় ।
+> আছাড়ের কালে ধরে নিত্যানন্দ রায় ॥২২১॥
+
 > āge-pāche gāna kare cāri sampradāya
 > āchāḍera kāle dhare nityānanda rāya
 

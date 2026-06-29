@@ -1,5 +1,8 @@
 ### CC Antya 17.65
 
+> জীব দীন কি করিবে তাহার বর্ণন ?
+> শাখা-চন্দ্র-ন্যায় করি’ দিগ্দরশন ॥৬৫॥
+
 jīva dīna ki karibe tāhāra varṇana?
 
 śākhā-candra-nyāya kari' dig-daraśana

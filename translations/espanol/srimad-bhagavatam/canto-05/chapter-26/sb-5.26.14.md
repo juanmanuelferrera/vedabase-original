@@ -1,5 +1,7 @@
 ### SB 5.26.14
 
+> यस्त्विह ब्रह्मध्रुक्स कालसूत्रसंज्ञअके नरके अयुतयोजनपरिमण्डले ताम्रमये तप्तखले उपर्यधस्तादग्न्यर्काभ्यामतितप्यमानेऽभिनिवेशितः क्षुत्पिपासाभ्यां च दह्यमानान्तर्बहिःशरीर आस्ते शेते चेष्टतेऽवतिष्ठति परिधावति च यावन्ति पशुरोमाणि तावद्वर्षसहस्राणि ॥१३॥
+
 > yas tv iha brahma-dhruk sa kālasūtra-saṁjñake narake ayuta-yojana-parimaṇḍale tāmramaye tapta-khale upary-adhastād agny-arkābhyām ati-tapyamāne 'bhiniveśitaḥ kṣut-pipāsābhyāṁ ca dahyamānāntar-bahiḥ-śarīra āste śete ceṣṭate 'vatiṣṭhati paridhāvati ca yāvanti paśu-romāṇi tāvad varṣa-sahasrāṇi.
 
 *yaḥ*—cualquiera que; *tu*—pero; *iha*—en esta vida; *brahma-dhruk*—el asesino de un *brāhmaṇa*; *saḥ*—esa persona; *kālasūtra-saṁjñake*—llamado Kālasūtra; *narake*—en el infierno; *ayuta-yojana-parimaṇḍale*—con una circunferencia de ciento treinta mil kilómetros; *tāmra-maye*—hecho de cobre; *tapta*—calentado; *khale*—en un lugar plano; *upari-adhastāt*—por encima y por debajo; *agni*—por el fuego; *arkābhyām*—y por el Sol; *ati-tapyamāne*—que está siendo calentado; *abhiniveśitaḥ*—se le hace entrar; *kṣut-pipāsābhyām*—por el hambre y la sed; *ca*—y; *dahyamāna*—quemado; *antaḥ*—por dentro; *bahiḥ*—por fuera; *śarīraḥ*—cuyo cuerpo; *āste*—permanece; *śete*—a veces se tiende; *ceṣṭate*—a veces mueve sus miembros; *avatiṣṭhati*—a veces se pone en pie; *paridhāvati*—a veces corre de un lugar a otro; *ca*—también; *yāvanti*—tantos; *paśu-romāṇi*—pelos en el cuerpo de un animal; *tāvat*—el mismo tiempo; *varṣa-sahasrāṇi*—miles de años.

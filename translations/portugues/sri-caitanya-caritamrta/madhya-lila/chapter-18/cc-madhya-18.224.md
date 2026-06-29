@@ -1,5 +1,8 @@
 ### CC Madhya 18.224
 
+> তাহা কে কহিতে পারে ক্ষুদ্র জীব হঞা ।
+> দিগ্-দরশন কৈলুঁ মুঞি সূত্র করিয়া ॥২২৪॥
+
 tāhā ke kahite pāre kṣudra jīva hañā
 
 dig-daraśana kailuṅ muñi sūtra kariyā

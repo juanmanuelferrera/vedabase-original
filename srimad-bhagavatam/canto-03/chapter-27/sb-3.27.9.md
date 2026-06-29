@@ -1,5 +1,8 @@
 ### SB 3.27.9
 
+> सानुबन्धे च देहेऽस्मिन्नकुर्वन्नसदाग्रहम् ।
+> ज्ञानेन दृष्टतत्त्वेन प्रकृतेः पुरुषस्य च ॥९॥
+
 > sānubandhe ca dehe 'sminn
 > akurvann asad-āgraham
 > jñānena dṛṣṭa-tattvena

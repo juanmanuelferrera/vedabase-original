@@ -1,5 +1,8 @@
 ### CC Antya 6.37
 
+> এইমতে বারে বারে পলায়, ধরি’ আনে  ।
+> তবে তাঁর মাতা কহে তাঁর পিতা সনে ॥৩৭॥
+
 ei-mate bāre bāre palāya, dhari' āne
 
 tabe tāṅra mātā kahe tāṅra pitā sane

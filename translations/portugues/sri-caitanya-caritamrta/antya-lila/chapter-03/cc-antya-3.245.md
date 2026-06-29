@@ -1,5 +1,8 @@
 ### CC Antya 3.245
 
+> এইমত তিনদিন করে আগমন ।
+> নানা ভাব দেখায়, যাতে ব্রহ্মার হরে মন ॥২৪৫॥
+
 ei-mata tina-dina kare āgamana
 
 nānā bhāva dekhāya, yāte brahmāra hare mana

@@ -1,5 +1,8 @@
 ### SB 3.3.10
 
+> कालमागधशाल्वादीननीकै रुन्धतः पुरम् ।
+> अजीघनत्स्वयं दिव्यं स्वपुंसां तेज आदिशत् ॥१०॥
+
 > kāla-māgadha-śālvādīn
 > anīkai rundhataḥ puram
 > ajīghanat svayaṁ divyaṁ

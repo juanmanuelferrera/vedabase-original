@@ -1,5 +1,8 @@
 ### CC Madhya 25.183
 
+> কাঁথা-করঙ্গিয়া মোর কাঙ্গাল ভক্তগণ ।
+> বৃন্দাবনে আইলে তাঁদের করিহ পালন ॥১৮৩॥
+
 > kāṅthā-karaṅgiyā mora kāṅgāla bhakta-gaṇa
 > vṛndāvane āile tāṅdera kariha pālana
 

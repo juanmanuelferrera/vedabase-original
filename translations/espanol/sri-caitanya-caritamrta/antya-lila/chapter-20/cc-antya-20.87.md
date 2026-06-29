@@ -1,5 +1,8 @@
 ### CC Antya 20.87
 
+> চৈতন্যমঙ্গলে ইহা লিখিয়াছে স্থানে-স্থানে ।
+> সত্য কহেন, — ‘আগে ব্যাস করিব বর্ণনে’ ॥৮৭॥
+
 > caitanya-maṅgale ihā likhiyāche sthāne-sthāne
 > satya kahena,--'āge vyāsa kariba varṇane'
 

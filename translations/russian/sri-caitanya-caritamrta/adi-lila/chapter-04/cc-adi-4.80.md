@@ -1,5 +1,8 @@
 ### CC Adi 4.80
 
+> বহু কান্তা বিনা নহে রসের উল্লাস ।
+> লীলার সহায় লাগি’ বহুত প্রকাশ ॥৮০॥
+
 > bahu kāntā vinā nahe rasera ullāsa
 > līlāra sahāya lāgi' bahuta prakāśa
 

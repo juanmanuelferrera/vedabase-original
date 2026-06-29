@@ -1,5 +1,10 @@
 ### CC Madhya 23.65
 
+> কুররি বিলপসি ত্বং বীতনিদ্রা ন শেষে
+> স্বপিতি জগতি রাত্র্যামীশ্বরো গুপ্তবোধঃ ।
+> বয়মিব সখি কচ্চিদ্গাঢ়নির্বিদ্ধচেতা
+> নলিন-নয়ন-হাসোদার-লীলেক্ষিতেন ॥৬৫॥
+
 > kurari vilapasi tvaṁ vīta-nidrā na śeṣe
 > svapiti jagati rātryām īśvaro gupta-bodhaḥ
 > vayam iva sakhī kaccid gāḍha-nirviddha-cetā

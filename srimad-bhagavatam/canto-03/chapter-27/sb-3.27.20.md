@@ -1,5 +1,8 @@
 ### SB 3.27.20
 
+> क्वचित्तत्त्वावमर्शेन निवृत्तं भयमुल्बणम् ।
+> अनिवृत्तनिमित्तत्वात्पुनः प्रत्यवतिष्ठते ॥२०॥
+
 > kvacit tattvāvamarśena
 > nivṛttaṁ bhayam ulbaṇam
 > anivṛtta-nimittatvāt

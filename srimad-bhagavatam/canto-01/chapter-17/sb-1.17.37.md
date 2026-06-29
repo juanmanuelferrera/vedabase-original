@@ -1,5 +1,8 @@
 ### SB 1.17.37
 
+> तन्मे धर्मभृतां श्रेष्ठ स्थानं निर्देष्टुमर्हसि ।
+> यत्रैव नियतो वत्स्य आतिष्ठंस्तेऽनुशासनम् ॥३७॥
+
 > tan me dharma-bhṛtāṁ śreṣṭha
 > sthānaṁ nirdeṣṭum arhasi
 > yatraiva niyato vatsya

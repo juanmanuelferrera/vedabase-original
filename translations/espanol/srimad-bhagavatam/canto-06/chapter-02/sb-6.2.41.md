@@ -1,5 +1,8 @@
 ### SB 6.2.41
 
+> ततो गुणेभ्य आत्मानं वियुज्यात्मसमाधिना
+> युयुजे भगवद्धाम्नि ब्रह्मण्यनुभवात्मनि ॥४१॥
+
 > tato guṇebhya ātmānaṁ
 > viyujyātma-samādhinā
 > yuyuje bhagavad-dhāmni

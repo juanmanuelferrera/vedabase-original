@@ -1,5 +1,10 @@
 ### SB 3.15.37
 
+> एवं तदैव भगवानरविन्दनाभः
+> स्वानां विबुध्य सदतिक्रममार्यहृद्यः ।
+> तस्मिन्ययौ परमहंसमहामुनीनाम्
+> अन्वेषणीयचरणौ चलयन्सहश्रीः ॥३७॥
+
 > evaṁ tadaiva bhagavān aravinda-nābhaḥ
 > svānāṁ vibudhya sad-atikramam ārya-hṛdyaḥ
 > tasmin yayau paramahaṁsa-mahā-munīnām

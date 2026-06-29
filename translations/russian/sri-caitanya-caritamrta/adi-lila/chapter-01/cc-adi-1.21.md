@@ -1,5 +1,8 @@
 ### CC Adi 1.21
 
+> তিনের স্মরণে হয় বিঘ্নবিনাশন ।
+> অনায়াসে হয় নিজ বাঞ্ছিতপূরণ ॥২১॥
+
 > tinera smaraṇe haya vighna-vināśana
 > anāyāse haya nija vāñchita-pūraṇa
 

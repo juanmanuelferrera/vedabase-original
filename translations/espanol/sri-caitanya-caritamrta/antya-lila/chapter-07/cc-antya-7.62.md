@@ -1,5 +1,8 @@
 ### CC Antya 7.62
 
+> ‘বৈষ্ণবে’র তেজ দেখি’ ভট্টের চমৎকার ।
+> তাঁ-সবার আগে ভট্ট — খদ্যোত-আকার ॥৬২॥
+
 > 'vaiṣṇave'ra teja dekhi' bhaṭṭera camatkāra
 > tāṅ-sabāra āge bhaṭṭa--khadyota-ākāra
 

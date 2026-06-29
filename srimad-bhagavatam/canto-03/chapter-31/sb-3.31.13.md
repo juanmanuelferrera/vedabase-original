@@ -1,5 +1,10 @@
 ### SB 3.31.13
 
+> यस्त्वत्र बद्ध इव कर्मभिरावृतात्मा
+> भूतेन्द्रियाशयमयीमवलम्ब्य मायाम् ।
+> आस्ते विशुद्धमविकारमखण्डबोधम्
+> आतप्यमानहृदयेऽवसितं नमामि ॥१३॥
+
 > yas tv atra baddha iva karmabhir āvṛtātmā
 > bhūtendriyāśayamayīm avalambya māyām
 > āste viśuddham avikāram akhaṇḍa-bodham

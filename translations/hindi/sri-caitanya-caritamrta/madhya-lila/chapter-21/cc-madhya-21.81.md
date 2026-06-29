@@ -1,5 +1,8 @@
 ### CC Madhya 21.81
 
+> দেখি’ চতুর্মুখ ব্রহ্মার হৈল চমৎকার ।
+> কৃষ্ণের চরণে আসি’ কৈলা নমস্কার ॥৮১॥
+
 > dekhi' caturmukha brahmāra haila camatkāra
 > kṛṣṇera caraṇe āsi' kailā namaskāra
 

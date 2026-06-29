@@ -1,5 +1,8 @@
 ### CC Antya 4.40
 
+> ‘রঘুনাথের পাদপদ্মে বেচিয়াছোঁ মাথা  ।
+> কাড়িতে না পারোঁ মাথা, পাঙ বড় ব্যথা ॥৪০॥
+
 'raghunāthera pāda-padme veciyāchoṅ māthā
 
 kāḍite nā pāroṅ māthā, pāṅa baḍa vyathā

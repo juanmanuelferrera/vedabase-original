@@ -1,5 +1,8 @@
 ### CC Madhya 3.199
 
+> আচার্যের বাক্য প্রভু না করে লঙ্ঘন ।
+> রহিলা অদ্বৈত-গৃহে, না কৈল গমন ॥১৯৯॥
+
 ācāryera vākya prabhu nā kare laṅghana
 
 rahilā advaita-gṛhe, nā kaila gamana

@@ -1,5 +1,8 @@
 ### CC Madhya 9.238
 
+> পুঁথি পাঞা প্রভুর হৈল আনন্দ অপার ।
+> কম্পাশ্রু-স্বেদ-স্তম্ভ-পুলক বিকার ॥২৩৮॥
+
 > puṅthi pāñā prabhura haila ānanda apāra
 > kampāśru-sveda-stambha-pulaka vikāra
 

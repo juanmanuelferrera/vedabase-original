@@ -1,5 +1,10 @@
 ### SB 9.10.23
 
+> एवं क्षिपन्धनुषि सन्धितमुत्ससर्ज
+> बाणं स वज्रमिव तद्धृदयं बिभेद
+> सोऽसृग्वमन्दशमुखैर्न्यपतद्विमानाद
+> धाहेति जल्पति जने सुकृतीव रिक्तः ॥२३॥
+
 > evaṁ kṣipan dhanuṣi sandhitam utsasarja
 > bāṇaṁ sa vajram iva tad-dhṛdayaṁ bibheda
 > so 'sṛg vaman daśa-mukhair nyapatad vimānād

@@ -1,5 +1,8 @@
 ### SB 1.9.38
 
+> शितविशिखहतो विशीर्णदंशः क्षतजपरिप्लुत आततायिनो मे ।
+> प्रसभमभिससार मद्वधार्थं स भवतु मे भगवान्गतिर्मुकुन्दः ॥३८॥
+
 > śita-viśikha-hato viśīrṇa-daṁśaḥ
 > kṣataja-paripluta ātatāyino me
 > prasabham abhisasāra mad-vadhārthaṁ

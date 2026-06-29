@@ -1,5 +1,8 @@
 ### CC Adi 3.82
 
+> উপপুরাণেহ শুনি শ্রীকৃষ্ণবচন ।
+> কৃপা করি ব্যাস প্রতি করিয়াছেন কথন ॥৮২॥
+
 > upa-purāṇeha śuni śrī-kṛṣṇa-vacana
 > kṛpā kari vyāsa prati kariyāchena kathana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.331
 
+> মন্ত্র-অধিকারী, মন্ত্র-সিদ্ধ্যাদি-শোধন ।
+> দীক্ষা, প্রাতঃস্মৃতি-কৃত্য, শৌচ, আচমন ॥৩৩১॥
+
 > mantra-adhikārī, mantra-siddhy-ādi-śodhana
 > dīkṣā, prātaḥ-smṛti-kṛtya, śauca, ācamana
 

@@ -1,5 +1,8 @@
 ### CC Antya 16.22
 
+> এক বাঞ্ছা হয়, — যদি কৃপা করি’ কর ।
+> পাদরজ দেহ’, পাদ মোর মাথে ধর ।।” ॥ ২২ ॥
+
 eka vāñchā haya,--yadi kṛpā kari' kara
 
 pāda-raja deha', pāda mora māthe dhara"

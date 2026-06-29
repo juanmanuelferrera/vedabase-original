@@ -1,5 +1,8 @@
 ### SB 1.3.35
 
+> एवं च जन्मानि कर्माणि ह्यकर्तुरजनस्य च ।
+> वर्णयन्ति स्म कवयो वेदगुह्यानि हृत्पतेः ॥३५॥
+
 > evaṁ janmāni karmāṇi
 > hy akartur ajanasya ca
 > varṇayanti sma kavayo

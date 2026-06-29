@@ -1,5 +1,8 @@
 ### CC Antya 2.55
 
+> কালি মধ্যাহ্নে তেঁহো আসিবেন তোমার ঘরে  ।
+> পাক-সামগ্রী আনহ, আমি ভিক্ষা দিমু তাঁরে ॥৫৫॥
+
 > kāli madhyāhne teṅho āsibena tomāra ghare
 > pāka-sāmagrī ānaha, āmi bhikṣā dimu tāṅre
 

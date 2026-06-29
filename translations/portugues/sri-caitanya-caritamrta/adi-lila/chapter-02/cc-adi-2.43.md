@@ -1,5 +1,8 @@
 ### CC Adi 2.43
 
+> তৃতীয় কারণ শুন শ্রীভগবান্ ।
+> অনন্ত ব্রহ্মাণ্ড বহু বৈকুণ্ঠাদি ধাম ॥৪৩॥
+
 tṛtīya kāraṇa śuna śrī-bhagavān
 
 ananta brahmāṇḍa bahu vaikuṇṭhādi dhāma

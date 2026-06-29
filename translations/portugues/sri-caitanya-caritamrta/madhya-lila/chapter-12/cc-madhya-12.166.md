@@ -1,5 +1,8 @@
 ### CC Madhya 12.166
 
+> যদ্যপি প্রেমাবেশে প্রভু হৈলা অস্থির ।
+> সময় বুঝিয়া প্রভু হৈলা কিছু ধীর ॥১৬৬॥
+
 yadyapi premāveśe prabhu hailā asthira
 
 samaya bujhiyā prabhu hailā kichu dhīra

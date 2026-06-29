@@ -1,5 +1,8 @@
 ### CC Madhya 4.44
 
+> এত বলি’ সে-বালক অন্তর্ধান কৈল ।
+> জাগিয়া মাধবপুরী বিচার করিল ॥৪৪॥
+
 eta bali' se-bālaka antardhāna kaila
 jāgiyā mādhava-purī vicāra karila
 

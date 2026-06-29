@@ -1,5 +1,8 @@
 ### SB 7.8.2
 
+> अथाचार्यसुतस्तेषां बुद्धिमेकान्तसंस्थिताम
+> आलक्ष्य भीतस्त्वरितो राज्ञअ आवेदयद्यथा ॥२॥
+
 > athācārya-sutas teṣāṁ
 > buddhim ekānta-saṁsthitām
 > ālakṣya bhītas tvarito

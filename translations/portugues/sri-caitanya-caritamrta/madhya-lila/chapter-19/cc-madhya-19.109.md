@@ -1,5 +1,8 @@
 ### CC Madhya 19.109
 
+> প্রভু দেখিবারে গ্রামের সব-লোক আইল ।
+> প্রভু-দরশনে সবে ‘কৃষ্ণভক্ত’ হইল ॥১০৯॥
+
 prabhu dekhibāre grāmera saba-loka āila
 
 prabhu-daraśane sabe 'kṛṣṇa-bhakta' ha-ila

@@ -1,5 +1,8 @@
 ### SB 6.16.47
 
+> नमस्तुभ्यं भगवते सकलजगत्स्थितिलयोदयेशाय
+> दुरवसितात्मगतये कुयोगिनां भिदा परमहंसाय ॥४७॥
+
 namas tubhyaṁ bhagavate
 
 *sakala*-jagat-sthiti-layodayeśāya

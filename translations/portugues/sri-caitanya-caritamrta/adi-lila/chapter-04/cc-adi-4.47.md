@@ -1,5 +1,8 @@
 ### CC Adi 4.47
 
+> পরকীয়া-ভাবে অতি রসের উল্লাস ।
+> ব্রজ বিনা ইহার অন্যত্র নাহি বাস ॥৪৭॥
+
 parakīyā-bhāve ati rasera ullāsa
 vraja vinā ihāra anyatra nāhi vāsa
 

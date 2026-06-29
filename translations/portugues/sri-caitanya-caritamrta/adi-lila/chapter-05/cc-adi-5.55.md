@@ -1,5 +1,8 @@
 ### CC Adi 5.55
 
+> সেই ত’ কারণার্ণবে সেই সঙ্কর্ষণ ।
+> আপনার এক অংশে করেন শয়ন ॥৫৫॥
+
 sei ta' kāraṇārṇave sei saṅkarṣaṇa
 
 āpanāra eka aṁśe karena śayana

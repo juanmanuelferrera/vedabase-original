@@ -1,5 +1,8 @@
 ### CC Madhya 19.110
 
+> ব্রাহ্মণসকল করেন প্রভুর নিমন্ত্রণ ।
+> বল্লভ-ভট্ট তাঁ-সবারে করেন নিবারণ ॥১১০॥
+
 > brāhmaṇa-sakala karena prabhura nimantraṇa
 > vallabha-bhaṭṭa tāṅ-sabāre karena nivāraṇa
 

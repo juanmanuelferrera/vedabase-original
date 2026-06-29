@@ -1,5 +1,10 @@
 ### CC Antya 17.56
 
+> কহিতেই হইল স্মৃতি, চিত্তে হইল কৃষ্ণস্ফূর্তি,
+> সখীরে কহে হঞা বিস্মিতে ।
+> “যারে চাহি ছাড়িতে, সেই শুঞা আছে চিত্তে,
+> কোন রীতে না পারি ছাড়িতে ।।” ॥ ৫৬ ॥
+
 > kahitei ha-ila smṛti, citte haila kṛṣṇa-sphūrti,
 > sakhīre kahe hañā vismite
 > "yāre cāhi chāḍite, sei śuñā āche citte,

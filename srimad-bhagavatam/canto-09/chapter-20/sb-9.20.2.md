@@ -1,5 +1,8 @@
 ### SB 9.20.2
 
+> जनमेजयो ह्यभूत्पूरोः प्रचिन्वांस्तत्सुतस्ततः
+> प्रवीरोऽथ मनुस्युर्वै तस्माच्चारुपदोऽभवत ॥२॥
+
 > janamejayo hy abhūt pūroḥ
 > pracinvāṁs tat-sutas tataḥ
 > pravīro 'tha manusyur vai

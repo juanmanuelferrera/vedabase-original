@@ -1,5 +1,8 @@
 ### CC Madhya 20.364
 
+> সনাতন কহে, — “যাতে ঈশ্বর-লক্ষণ ।
+> পীতবর্ণ, কার্য — প্রেমদান-সঙ্কীর্তন ॥৩৬৪॥
+
 > sanātana kahe,—"yāte īśvara-lakṣaṇa
 > pīta-varṇa, kārya—prema-dāna-saṅkīrtana
 

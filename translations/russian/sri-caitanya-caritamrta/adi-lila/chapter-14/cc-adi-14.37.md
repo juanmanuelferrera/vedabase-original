@@ -1,5 +1,8 @@
 ### CC Adi 14.37
 
+> অতিথি-বিপ্রের অন্ন খাইল তিনবার ।
+> পাছে গুপ্তে সেই বিপ্রে করিল নিস্তার ॥৩৭॥
+
 > atithi-viprera anna khāila tina-bāra
 > pāche gupte sei vipre karila nistāra
 

@@ -1,5 +1,8 @@
 ### CC Antya 10.112
 
+> গোবিন্দেরে সবে পুছে করিয়া যতন ।
+> ‘আমা-দত্ত প্রসাদ প্রভুরে কি করাইলা ভক্ষণ ?’ ॥ ১১২ ॥
+
 govindere sabe puche kariyā yatana
 
 'āmā-datta prasāda prabhure ki karāilā bhakṣaṇa?

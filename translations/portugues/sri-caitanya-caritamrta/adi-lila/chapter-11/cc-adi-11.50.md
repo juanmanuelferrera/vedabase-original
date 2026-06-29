@@ -1,5 +1,8 @@
 ### CC Adi 11.50
 
+> বসন্ত, নবনী হোড়, গোপাল, সনাতন ।
+> বিষ্ণাই হাজরা, কৃষ্ণানন্দ, সুলোচন ॥৫০॥
+
 vasanta, navanī hoḍa, gopāla, sanātana
 
 viṣṇāi hājarā, kṛṣṇānanda, sulocana

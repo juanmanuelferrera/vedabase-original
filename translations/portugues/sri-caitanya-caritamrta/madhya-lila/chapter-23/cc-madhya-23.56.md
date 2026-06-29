@@ -1,5 +1,8 @@
 ### CC Madhya 23.56
 
+> শান্তাদি রসের ‘যোগ’, ‘বিয়োগ’ — দুই ভেদ ।
+> সখ্য-বাৎসল্যে যোগাদির অনেক বিভেদ ॥৫৬॥
+
 śānta-ādi rasera 'yoga', 'viyoga'--dui bheda
 
 sakhya-vātsalye yogādira aneka vibheda

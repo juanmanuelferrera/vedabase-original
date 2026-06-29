@@ -1,5 +1,8 @@
 ### SB 4.9.4
 
+> स तं विवक्षन्तमतद्विदं हरिर्ज्ञात्वास्य सर्वस्य च हृद्यवस्थितः ।
+> कृताञ्जलिं ब्रह्ममयेन कम्बुना पस्पर्श बालं कृपया कपोले ॥४॥
+
 > sa taṁ vivakṣantam atad-vidaṁ harir
 > jñātvāsya sarvasya ca hṛdy avasthitaḥ
 > kṛtāñjaliṁ brahmamayena kambunā

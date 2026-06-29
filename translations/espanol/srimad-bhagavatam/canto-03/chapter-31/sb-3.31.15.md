@@ -1,5 +1,10 @@
 ### SB 3.31.15
 
+> यन्माययोरुगुणकर्मनिबन्धनेऽस्मिन्
+> सांसारिके पथि चरंस्तदभिश्रमेण ।
+> नष्टस्मृतिः पुनरयं प्रवृणीत लोकं
+> युक्त्या कया महदनुग्रहमन्तरेण ॥१५॥
+
 > yan-māyayoru-guṇa-karma-nibandhane 'smin
 > sāṁsārike pathi caraṁs tad-abhiśrameṇa
 > naṣṭa-smṛtiḥ punar ayaṁ pravṛṇīta lokaṁ

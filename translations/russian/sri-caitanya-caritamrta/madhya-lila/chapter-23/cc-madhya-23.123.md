@@ -1,5 +1,8 @@
 ### CC Madhya 23.123
 
+> ‘মুঞি যে শিখালুঁ তোরে স্ফুরুক সকল’  ।
+> এই তোমার বর হৈতে হবে মোর বল ।।” ১২৩ ॥১২৩॥
+
 > 'muñi ye śikhāluṅ tore sphuruka sakala'
 > ei tomāra vara haite habe mora bala"
 

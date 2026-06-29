@@ -1,5 +1,8 @@
 ### CC Adi 1.105
 
+> বক্তব্য-বাহুল্য, গ্রন্থ-বিস্তারের ডরে ।
+> বিস্তারে না বর্ণি, সারার্থ কহি অল্পাক্ষরে ॥১০৫॥
+
 > vaktavya-bāhulya, grantha-vistārera ḍare
 > vistāre nā varṇi, sārārtha kahi alpākṣare
 

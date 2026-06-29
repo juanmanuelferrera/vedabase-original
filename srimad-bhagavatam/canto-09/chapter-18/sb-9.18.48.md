@@ -1,5 +1,8 @@
 ### SB 9.18.48
 
+> अयजद्यज्ञअपुरुषं क्रतुभिर्भूरिदक्षिणैः
+> सर्वदेवमयं देवं सर्ववेदमयं हरिम ॥४८॥
+
 > ayajad yajña-puruṣaṁ
 > kratubhir bhūri-dakṣiṇaiḥ
 > sarva-devamayaṁ devaṁ

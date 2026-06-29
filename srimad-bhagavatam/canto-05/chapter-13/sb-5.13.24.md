@@ -1,5 +1,8 @@
 ### SB 5.13.24
 
+> श्रीशुक उवाच
+> इत्येवमुत्तरामातः स वै ब्रह्मर्षिसुतः सिन्धुपतय आत्मसतत्त्वं विगणयतःपरानुभावः परमकारुणिकतयोपदिश्य रहूगणेन सकरुणमभिवन्दितचरण आपूर्णार्णव इवनिभृतकरणोर्म्याशयो धरणिमिमां विचचार ॥२४॥
+
 > śrī-śuka uvāca
 > ity evam uttarā-mātaḥ sa vai brahmarṣi-sutaḥ sindhu-pataya ātma-satattvaṁ vigaṇayataḥ parānubhāvaḥ parama-kāruṇikatayopadiśya rahūgaṇena sakaruṇam abhivandita-caraṇa āpūrṇārṇava iva nibhṛta-karaṇormy-āśayo dharaṇim imāṁ vicacāra.
 

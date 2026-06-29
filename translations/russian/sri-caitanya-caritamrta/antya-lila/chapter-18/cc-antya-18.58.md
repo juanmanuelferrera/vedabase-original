@@ -1,5 +1,8 @@
 ### CC Antya 18.58
 
+> এই ভূত নৃসিংহ-নামে চাপয়ে দ্বিগুণে ।
+> তাহার আকার দেখিতে ভয় লাগে মনে ॥৫৮॥
+
 > ei bhūta nṛsiṁha-nāme cāpaye dviguṇe
 > tāhāra ākāra dekhite bhaya lāge mane
 

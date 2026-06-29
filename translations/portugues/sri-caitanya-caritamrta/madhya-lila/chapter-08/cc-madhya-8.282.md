@@ -1,5 +1,8 @@
 ### CC Madhya 8.282
 
+> তবে হাসি’ তাঁরে প্রভু দেখাইল স্বরূপ ৷
+> ‘রসরাজ’, ‘মহাভাব’ — দুই এক রূপ ৷৷ ২৮২ ৷৷ ॥২৮২॥
+
 tabe hāsi' tāṅre prabhu dekhāila svarūpa
 
 'rasa-rāja' 'mahābhāva'--dui eka rūpa

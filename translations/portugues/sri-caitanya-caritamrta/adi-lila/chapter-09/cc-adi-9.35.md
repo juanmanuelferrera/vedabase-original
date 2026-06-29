@@ -1,5 +1,8 @@
 ### CC Adi 9.35
 
+> একলা উঠাঞা দিতে হয় পরিশ্রম ।
+> কেহ পায়, কেহ না পায়, রহে মনে ভ্রম ॥৩৫॥
+
 ekalā uṭhāñā dite haya pariśrama
 keha pāya, keha nā pāya, rahe mane bhrama
 

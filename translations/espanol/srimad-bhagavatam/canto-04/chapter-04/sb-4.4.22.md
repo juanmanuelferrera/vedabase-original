@@ -1,5 +1,8 @@
 ### SB 4.4.22
 
+> नैतेन देहेन हरे कृतागसो देहोद्भवेनालमलं कुजन्मना ।
+> व्रीडा ममाभूत्कुजनप्रसङ्गतस्तज्जन्म धिग्यो महतामवद्यकृत् ॥२२॥
+
 > naitena dehena hare kṛtāgaso
 > dehodbhavenālam alaṁ kujanmanā
 > vrīḍā mamābhūt kujana-prasaṅgatas

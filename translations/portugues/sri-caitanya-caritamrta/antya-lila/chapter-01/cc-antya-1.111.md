@@ -1,5 +1,8 @@
 ### CC Antya 1.111
 
+> রূপ হরিদাস দুঁহে বসিলা পিণ্ডাতলে ।
+> সবার আগ্রহে না উঠিলা পিঁড়ার উপরে ॥১১১॥
+
 rūpa haridāsa duṅhe vasilā piṇḍā-tale
 
 sabāra āgrahe nā uṭhilā piṅḍāra upare

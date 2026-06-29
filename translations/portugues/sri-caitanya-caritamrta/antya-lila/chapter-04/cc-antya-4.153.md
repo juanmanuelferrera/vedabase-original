@@ -1,5 +1,8 @@
 ### CC Antya 4.153
 
+> তাহাতে আমার অঙ্গে কণ্ডু-রসা-রক্ত চলে ।
+> তোমার অঙ্গে লাগে, তবু স্পর্শহ তুমি বলে ॥১৫৩॥
+
 tāhāte āmāra aṅge kaṇḍu-rasā-rakta cale
 
 tomāra aṅge lāge, tabu sparśaha tumi bale

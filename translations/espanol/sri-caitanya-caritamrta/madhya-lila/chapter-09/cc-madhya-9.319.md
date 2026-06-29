@@ -1,5 +1,8 @@
 ### CC Madhya 9.319
 
+> রামানন্দ রায় শুনি প্রভুর আগমন ৷
+> আনন্দে আসিয়া কৈল প্রভুসহ মিলন ৷৷ ৩১৯ ৷৷ ॥৩১৯॥
+
 > rāmānanda rāya śuni' prabhura āgamana
 > ānande āsiyā kaila prabhu-saha milana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 19.116
 
+> রামানন্দ-পাশে যত সিদ্ধান্ত শুনিলা ।
+> রূপে কৃপা করি’ তাহা সব সঞ্চারিলা ॥১১৬॥
+
 > rāmānanda-pāśe yata siddhānta śunilā
 > rūpe kṛpā kari' tāhā saba sañcārilā
 

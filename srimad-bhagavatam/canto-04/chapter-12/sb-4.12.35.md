@@ -1,5 +1,8 @@
 ### SB 4.12.35
 
+> त्रिलोकीं देवयानेन सोऽतिव्रज्य मुनीनपि ।
+> परस्ताद्यद्ध्रुवगतिर्विष्णोः पदमथाभ्यगात् ॥३५॥
+
 > tri-lokīṁ deva-yānena
 > so 'tivrajya munīn api
 > parastād yad dhruva-gatir

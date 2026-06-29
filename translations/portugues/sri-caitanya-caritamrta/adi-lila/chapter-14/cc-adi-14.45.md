@@ -1,5 +1,8 @@
 ### CC Adi 14.45
 
+> কভু মৃদুহস্তে কৈল মাতাকে তাড়ন ।
+> মাতাকে মূর্চ্ছিতা দেখি’ করয়ে ক্রন্দন ॥৪৫॥
+
 kabhu mṛdu-haste kaila mātāke tāḍana
 mātāke mūrcchitā dekhi' karaye krandana
 

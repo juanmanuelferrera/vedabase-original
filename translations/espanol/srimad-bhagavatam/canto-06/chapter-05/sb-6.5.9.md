@@ -1,5 +1,8 @@
 ### SB 6.5.9
 
+> कथं स्वपितुरादेशमविद्वांसो विपश्चितः
+> अनुरूपमविज्ञआय अहो सर्गं करिष्यथ ॥९॥
+
 > kathaṁ sva-pitur ādeśam
 > avidvāṁso vipaścitaḥ
 > anurūpam avijñāya

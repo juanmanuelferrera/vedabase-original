@@ -1,5 +1,8 @@
 ### CC Madhya 24.279
 
+> নারদ কহে, — ‘বৈষ্ণব, তোমার অন্ন কিছু আয় ?’
+> ব্যাধ কহে, “যারে পাঠাও, সেই দিয়া যায় ॥২৭৯॥
+
 nārada kahe,--'vaiṣṇava, tomāra anna kichu āya?'
 
 vyādha kahe, "yāre pāṭhāo, sei diyā yāya

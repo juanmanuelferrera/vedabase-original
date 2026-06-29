@@ -1,5 +1,8 @@
 ### CC Madhya 25.71
 
+> প্রকাশানন্দের প্রভু বন্দিলা চরণ ।
+> প্রকাশানন্দ আসি’ তাঁর ধরিল চরণ ॥৭১॥
+
 prakāśānandera prabhu vandilā caraṇa
 
 prakāśānanda āsi' tāṅra dharila caraṇa

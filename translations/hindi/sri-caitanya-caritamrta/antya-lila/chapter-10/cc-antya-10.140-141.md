@@ -1,5 +1,10 @@
 ### CC Antya 10.140-141
 
+> এইমত নিমন্ত্রণ করেন যত্ন করি ।
+> বাসুদেব, গদাধর-দাস, গুপ্ত-মুরারি ॥১৪০॥
+> কুলীনগ্রামী, খণ্ডবাসী, আর যত জন ।
+> জগন্নাথের প্রসাদ আনি’ করে নিমন্ত্রণ ॥১৪১॥
+
 > ei-mata nimantraṇa karena yatna kari
 > vāsudeva, gadādhara-dāsa, gupta-murāri
 > kulīna-grāmī, khaṇḍa-vāsī, āra yata jana

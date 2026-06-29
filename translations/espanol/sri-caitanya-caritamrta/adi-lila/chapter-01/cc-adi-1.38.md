@@ -1,5 +1,8 @@
 ### CC Adi 1.38
 
+> ভগবানের ভক্ত যত শ্রীবাস প্রধান ।
+> তাঁ’সভার পাদপদ্মে সহস্র প্রণাম ॥৩৮॥
+
 > bhagavānera bhakta yata śrīvāsa pradhāna
 > tāṅ'-sabhāra pāda-padme sahasra praṇāma
 

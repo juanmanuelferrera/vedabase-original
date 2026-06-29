@@ -1,5 +1,10 @@
 ### CC Madhya 13.136
 
+> আহুশ্চ তে নলিন-নাভ পদারবিন্দং
+> যোগেশ্বরৈর্হৃদি বিচিন্ত্যমগাধবোধৈঃ ।
+> সংসারকূপপতিতোত্তরণাবলম্বং
+> গেহং জুষামপি মনস্যুদিয়াৎ সদা নঃ ॥১৩৬॥
+
 > āhuś ca te nalina-nābha padāravindaṁ
 > yogeśvarair hṛdi vicintyam agādha-bodhaiḥ
 > saṁsāra-kūpa-patitottaraṇāvalambaṁ

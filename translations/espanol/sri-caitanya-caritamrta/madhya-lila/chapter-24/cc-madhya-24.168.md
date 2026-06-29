@@ -1,5 +1,8 @@
 ### CC Madhya 24.168
 
+> ‘আত্মা’-শব্দে ‘যত্ন’ কহে — যত্ন করিয়া ।
+> “মুনয়োঽপি” কৃষ্ণ ভজে গুণাকৃষ্ট হঞা ॥১৬৮॥
+
 > 'ātmā'-śabde 'yatna' kahe--yatna kariyā
 > "munayo 'pi" kṛṣṇa bhaje guṇākṛṣṭa hañā
 

@@ -1,5 +1,8 @@
 ### CC Antya 9.76
 
+> তোমার অনুকম্পা চাহে, ভজে অনুক্ষণ ।
+> অচিরাৎ মিলে তাঁরে তোমার চরণ ॥৭৬॥
+
 > tomāra anukampā cāhe, bhaje anukṣaṇa
 > acirāt mile tāṅre tomāra caraṇa
 

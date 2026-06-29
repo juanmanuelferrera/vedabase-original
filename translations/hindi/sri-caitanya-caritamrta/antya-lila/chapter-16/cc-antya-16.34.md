@@ -1,5 +1,8 @@
 ### CC Antya 16.34
 
+> কলার পাটুয়া-খোলা হৈতে আম্র নিকাশিয়া ।
+> তাঁর পত্নী তাঁরে দেন, খায়েন চূষিয়া ॥৩৪॥
+
 > kalāra pāṭuyā-kholā haite āmra nikāśiyā
 > tāṅra patnī tāṅre dena, khāyena cūṣiyā
 

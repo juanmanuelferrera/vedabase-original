@@ -1,5 +1,8 @@
 ### CC Antya 6.130
 
+> যতবার পলাই আমি গৃহাদি ছাড়িয়া  ।
+> পিতা, মাতা — দুই মোরে রাখয়ে বান্ধিয়া ॥১৩০॥
+
 > yata-bāra palāi āmi gṛhādi chādiyā
 > pitā, mātā--dui more rākhaye bāndhiyā
 

@@ -1,5 +1,10 @@
 ### CC Madhya 21.125
 
+> কামগায়ত্রী-মন্ত্ররূপ, হয় কৃষ্ণের স্বরূপ,
+> সার্ধ-চব্বিশ অক্ষর তার হয় ।
+> সে অক্ষর ‘চন্দ্র’ হয়, কৃষ্ণে করি’ উদয়,
+> ত্রিজগৎ কৈলা কামময় ॥১২৫॥
+
 > kāma-gāyatrī-mantra-rūpa, haya kṛṣṇera svarūpa,
 > sārdha-cabbiśa akṣara tāra haya
 > se akṣara 'candra' haya, kṛṣṇe kari' udaya,

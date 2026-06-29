@@ -1,5 +1,8 @@
 ### CC Madhya 24.324
 
+> পুনঃ সনাতন কহে যুড়ি’ দুই করে  ।
+> “প্রভু আজ্ঞা দিলা ‘বৈষ্ণবস্মৃতি’ করিবারে ॥৩২৪॥
+
 > punaḥ sanātana kahe yuḍi' dui kare
 > "prabhu ājñā dilā 'vaiṣṇava-smṛti' karibāre
 

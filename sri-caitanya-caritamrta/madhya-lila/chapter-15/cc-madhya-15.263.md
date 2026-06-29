@@ -1,5 +1,8 @@
 ### CC Madhya 15.263
 
+> পুনঃ সেই নিন্দকের মুখ না দেখিব ।
+> পরিত্যাগ কৈলুঁ, তার নাম না লইব ॥২৬৩॥
+
 > punaḥ sei nindakera mukha nā dekhiba
 > parityāga kailuṅ, tāra nāma nā la-iba
 

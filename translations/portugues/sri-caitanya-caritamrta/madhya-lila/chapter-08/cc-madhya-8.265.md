@@ -1,5 +1,8 @@
 ### CC Madhya 8.265
 
+> অন্তর্যামী ঈশ্বরের এই রীতি হয়ে ৷
+> বাহিরে না কহে, বস্তু প্রকাশে হৃদয়ে ৷৷ ২৬৫ ৷৷ ॥২৬৫॥
+
 antaryāmī īśvarera ei rīti haye
 
 bāhire nā kahe, vastu prakāśe hṛdaye

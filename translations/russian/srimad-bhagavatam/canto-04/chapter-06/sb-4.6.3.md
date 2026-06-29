@@ -1,5 +1,8 @@
 ### SB 4.6.3
 
+> उपलभ्य पुरैवैतद्भगवानब्जसम्भवः ।
+> नारायणश्च विश्वात्मा न कस्याध्वरमीयतुः ॥३॥
+
 > upalabhya puraivaitad
 > bhagavān abja-sambhavaḥ
 > nārāyaṇaś ca viśvātmā

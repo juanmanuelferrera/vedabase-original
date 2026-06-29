@@ -1,5 +1,8 @@
 ### CC Madhya 6.128
 
+> ভট্টাচার্য কহে, — না বুঝি’, হেন জ্ঞান যার  ।
+> বুঝিবার লাগি’ সেহ পুছে পুনর্বার ॥১২৮॥
+
 > bhaṭṭācārya kahe,--nā bujhi', hena jñāna yāra
 > bujhibāra lāgi' seha puche punarbāra
 

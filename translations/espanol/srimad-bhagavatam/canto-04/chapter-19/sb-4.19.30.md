@@ -1,5 +1,8 @@
 ### SB 4.19.30
 
+> न वध्यो भवतामिन्द्रो यद्यज्ञो भगवत्तनुः ।
+> यं जिघांसथ यज्ञेन यस्येष्टास्तनवः सुराः ॥३०॥
+
 > na vadhyo bhavatām indro
 > yad yajño bhagavat-tanuḥ
 > yaṁ jighāṁsatha yajñena

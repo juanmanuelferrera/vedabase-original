@@ -1,5 +1,7 @@
 ### SB 5.26.13
 
+> यस्त्विह वा उग्रः पशून्पक्षिणो वा प्राणत उपरन्धयति तमपकरुणं पुरुषादैरपिविगर्हितममुत्र यमानुचराः कुम्भीपाके तप्ततैले उपरन्धयन्ति ॥१२॥
+
 > yas tv iha vā ugraḥ paśūn pakṣiṇo vā prāṇata uparandhayati tam apakaruṇaṁ puruṣādair api vigarhitam amutra yamānucarāḥ kumbhīpāke tapta-taile uparandhayanti.
 
 *yaḥ*—a person who; *tu*—but; *iha*—in this life; *vā*—or; *ugraḥ*—very cruel; *paśūn*—animals; *pakṣiṇaḥ*—birds; *vā*—or; *prāṇataḥ*—in a live condition; *uparandhayati*—cooks; *tam*—him; *apakaruṇam*—very cruel-hearted; *puruṣa-ādaiḥ*—by those who eat human flesh; *api*—even; *vigarhitam*—condemned; *amutra*—in the next life; *yama-anucarāḥ*—the servants of Yamarāja; *kumbhīpāke*—in the hell known as Kumbhīpāka; *tapta-taile*—in boiling oil; *uparandhayanti*—cook.

@@ -1,5 +1,8 @@
 ### CC Adi 11.16
 
+> রামদাস — মুখ্যশাখা, সখ্য-প্রেমরাশি ।
+> ষোলসাঙ্গের কাষ্ঠ যেই তুলি’ কৈল বাঁশী ॥১৬॥
+
 > rāmadāsa—mukhya-śākhā, sakhya-prema-rāśi
 > ṣolasāṅgera kāṣṭha yei tuli' kaila vaṁśī
 

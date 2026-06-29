@@ -1,5 +1,8 @@
 ### CC Adi 4.249
 
+> এই মত অনুভব আমার প্রতীত ।
+> বিচারি’ দেখিয়ে যদি, সব বিপরীত ॥২৪৯॥
+
 > ei mata anubhava āmāra pratīta
 > vicāri' dekhiye yadi, saba viparīta
 

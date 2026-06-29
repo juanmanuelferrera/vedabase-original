@@ -1,5 +1,8 @@
 ### SB 3.27.3
 
+> तेन संसारपदवीमवशोऽभ्येत्यनिर्वृतः ।
+> प्रासङ्गिकैः कर्मदोषैः सदसन्मिश्रयोनिषु ॥३॥
+
 > tena saṁsāra-padavīm
 > avaśo 'bhyety anirvṛtaḥ
 > prāsaṅgikaiḥ karma-doṣaiḥ

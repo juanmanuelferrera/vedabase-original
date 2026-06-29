@@ -1,5 +1,8 @@
 ### CC Madhya 14.14
 
+> ‘ভূরিদা’ ‘ভূরিদা’ বলি’ করে আলিঙ্গন ।
+> ইঁহো নাহি জানে, ইহোঁ হয় কোন্ জন ॥১৪॥
+
 'bhūridā' 'bhūridā' bali' kare āliṅgana
 iṅho nāhi jāne,-ihoṅ haya kon jana
 

@@ -1,5 +1,8 @@
 ### CC Antya 11.103
 
+> শেষকালে দিলা তাঁরে দর্শন-স্পর্শন ।
+> তাঁরে কোলে করি’ কৈলা আপনে নর্তন ॥১০৩॥
+
 > śeṣa-kāle dilā tāṅre darśana-sparśana
 > tāṅre kole kari' kailā āpane nartana
 

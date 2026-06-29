@@ -1,5 +1,8 @@
 ### CC Antya 9.120
 
+> ভবানন্দের পুত্র সব — মোর প্রিয়তম ।
+> ইঁহা-সবাকারে আমি দেখি আত্মসম ॥১২০॥
+
 > bhavānandera putra saba—mora priyatama
 > iṅhā-sabākāre āmi dekhi ātma-sama
 

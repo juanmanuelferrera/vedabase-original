@@ -1,5 +1,8 @@
 ### SB 3.32.3
 
+> तच्छ्रद्धयाक्रान्तमतिः पितृदेवव्रतः पुमान् ।
+> गत्वा चान्द्रमसं लोकं सोमपाः पुनरेष्यति ॥३॥
+
 > tac-chraddhayākrānta-matiḥ
 > pitṛ-deva-vrataḥ pumān
 > gatvā cāndramasaṁ lokaṁ

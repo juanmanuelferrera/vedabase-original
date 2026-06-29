@@ -1,5 +1,8 @@
 ### CC Madhya 18.81
 
+> তৃতীয় প্রহরে লোক পায় দরশন ।
+> সবারে-উপদেশ করে ‘নামসংকীর্তন’ ॥৮১॥
+
 > tṛtīya-prahare loka pāya daraśana
 > sabāre upadeśa kare 'nāma-saṅkīrtana'
 

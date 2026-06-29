@@ -1,5 +1,10 @@
 ### CC Antya 18.89
 
+> কৃষ্ণ রাধা লঞা বলে, গেলা কণ্ঠদঘ্ন জলে,
+> ছাড়িলা তাঁহা, যাঁহা অগাধ পানী ।
+> তেঁহো কৃষ্ণকণ্ঠ ধরি’, ভাসে জলের উপরি,
+> গজোৎখাতে যৈছে কমলিনী ॥৮৯॥
+
 > kṛṣṇa rādhā lañā bale, gelā kaṇṭha-daghna jale,
 > chāḍilā tāhāṅ, yāhāṅ agādha pānī
 > teṅho kṛṣṇa-kaṇṭha dhari', bhāse jalera upari,

@@ -1,5 +1,8 @@
 ### CC Madhya 9.153
 
+> কৃষ্ণ-নারায়ণ, যৈছে একই স্বরূপ ৷
+> গোপী-লক্ষ্মী-ভেদ নাহি হয় একরূপ ৷৷ ১৫৩ ৷৷ ॥১৫৩॥
+
 kṛṣṇa-nārāyaṇa, yaiche eka-i svarūpa
 gopī-lakṣmī-bheda nāhi haya eka-rūpa
 

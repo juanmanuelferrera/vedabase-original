@@ -1,5 +1,8 @@
 ### CC Madhya 18.156
 
+> বাহ্য বিকার নাহি, প্রেমাবিষ্ট মন ।
+> ভট্টাচার্য কহে, — চল, যাই মহাবন ॥১৫৬॥
+
 > bāhya vikāra nāhi, premāviṣṭa mana
 > bhaṭṭācārya kahe,—cala, yāi mahāvana
 

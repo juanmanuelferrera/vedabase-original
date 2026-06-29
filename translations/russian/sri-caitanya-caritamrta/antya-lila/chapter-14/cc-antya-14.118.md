@@ -1,5 +1,8 @@
 ### CC Antya 14.118
 
+> এই ত’ কহিলুঁ প্রভুর দিব্যোন্মাদ-ভাব ।
+> ব্রহ্মাও কহিতে নারে যাহার প্রভাব ॥১১৮॥
+
 > ei ta' kahiluṅ prabhura divyonmāda-bhāva
 > brahmāo kahite nāre yāhāra prabhāva
 

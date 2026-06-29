@@ -1,5 +1,8 @@
 ### CC Madhya 17.105
 
+> এক বিপ্র দেখি’ আইলা প্রভুর ব্যবহার ।
+> প্রকাশানন্দ-আগে কহে চরিত্র তাঁহার ॥১০৫॥
+
 > eka vipra dekhi' āilā prabhura vyavahāra
 > prakāśānanda-āge kahe caritra tāṅhāra
 

@@ -1,5 +1,8 @@
 ### CC Antya 2.90
 
+> আচার্য তাহারে প্রভুপদে মিলাইলা ।
+> অন্তর্যামী প্রভু চিত্তে সুখ না পাইলা ॥৯০॥
+
 > ācārya tāhāre prabhu-pade milāilā
 > antaryāmī prabhu citte sukha nā pāilā
 

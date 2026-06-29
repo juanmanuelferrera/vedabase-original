@@ -1,5 +1,8 @@
 ### CC Adi 14.87
 
+> পুত্রের লালন-শিক্ষা — পিতার স্বধর্ম ।
+> আমি না শিখালে কৈছে জানিবে ধর্ম-মর্ম ।।” ॥ ৮৭ ॥
+
 > putrera lālana-śikṣā—pitāra sva-dharma
 > āmi nā śikhāle kaiche janibe dharma-marma
 

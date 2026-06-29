@@ -1,5 +1,8 @@
 ### CC Madhya 24.284
 
+> আর অর্থ শুন, যাহা — অর্থের ভাণ্ডার ।
+> স্থূলে ‘দুই’ অর্থ, সূক্ষ্মে ‘বত্রিশ’ প্রকার ॥২৮৪॥
+
 > āra artha śuna, yāhā—arthera bhāṇḍāra
 > sthūle 'dui' artha, sūkṣme 'batriśa' prakāra
 

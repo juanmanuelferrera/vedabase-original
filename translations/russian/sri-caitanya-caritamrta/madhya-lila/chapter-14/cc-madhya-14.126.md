@@ -1,5 +1,8 @@
 ### CC Madhya 14.126
 
+> অতএব কৃষ্ণের প্রাকট্যে নাহি কিছু দোষ  ।
+> তবে কেনে লক্ষ্মীদেবী করে এত রোষ ? ১২৬ ॥১২৬॥
+
 > ataeva kṛṣṇera prākaṭye nāhi kichu doṣa
 > tabe kene lakṣmīdevī kare eta roṣa?
 

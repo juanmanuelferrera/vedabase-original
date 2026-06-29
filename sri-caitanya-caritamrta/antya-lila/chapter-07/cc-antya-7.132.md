@@ -1,5 +1,8 @@
 ### CC Antya 7.132
 
+> শ্রীধরস্বামী নিন্দি’ নিজ-টীকা কর !
+> শ্রীধরস্বামী নাহি মান’, — এত ‘গর্ব’ ধর! ॥১৩২॥
+
 > śrīdhara-svāmī nindi' nija-ṭīkā kara!
 > śrīdhara-svāmī nāhi māna',—eta 'garva' dhara!
 

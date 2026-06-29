@@ -1,5 +1,8 @@
 ### SB 4.31.21
 
+> न भजति कुमनीषिणां स इज्यां हरिरधनात्मधनप्रियो रसज्ञः ।
+> श्रुतधनकुलकर्मणां मदैर्ये विदधति पापमकिञ्चनेषु सत्सु ॥२१॥
+
 > na bhajati kumanīṣiṇāṁ sa ijyāṁ
 > harir adhanātma-dhana-priyo rasa-jñaḥ
 > śruta-dhana-kula-karmaṇāṁ madair ye

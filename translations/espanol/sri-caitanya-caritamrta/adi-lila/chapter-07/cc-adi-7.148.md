@@ -1,5 +1,8 @@
 ### CC Adi 7.148
 
+> বেদময়-মূর্তি তুমি, — সাক্ষাৎ নারায়ণ ।
+> ক্ষম অপরাধ, — পূর্বে যে কৈলুঁ নিন্দন ॥১৪৮॥
+
 > vedamaya-mūrti tumi,--sākṣāt nārāyaṇa
 > kṣama aparādha,--pūrve ye kailuṅ nindana
 

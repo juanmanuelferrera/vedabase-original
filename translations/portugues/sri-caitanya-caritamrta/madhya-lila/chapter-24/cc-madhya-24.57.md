@@ -1,5 +1,8 @@
 ### CC Madhya 24.57
 
+> গুরুতুল্য স্ত্রীগণের বাৎসল্যে আকর্ষণ ।
+> দাস্য-সখ্যাদি-ভাবে পুরুষাদি গণ ॥৫৭॥
+
 guru-tulya strī-gaṇera vātsalye ākarṣaṇa
 
 dāsya-sakhyādi-bhāve puruṣādi gaṇa

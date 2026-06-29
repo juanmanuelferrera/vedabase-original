@@ -1,5 +1,8 @@
 ### CC Antya 1.42
 
+> “আমার নাটক পৃথক্ করহ রচন  ।
+> আমার কৃপাতে নাটক হৈবে বিলক্ষণ ।।” ৪২ ॥৪২॥
+
 āmāra nāṭaka pṛthak karaha racana
 
 "āmāra kṛpāte nāṭaka haibe vilakṣaṇa"

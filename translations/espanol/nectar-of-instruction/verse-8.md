@@ -1,5 +1,10 @@
 ### 8
 
+> तन्नामरूपचरितादिसुकीर्तनानु-
+> स्मृत्योः क्रमेण रसनामनसी नियोज्य ।
+> तिष्ठन् व्रजे तदनुरागिजनानुगामी
+> कालं नयेदखिलमित्युपदेशसारम ॥८॥
+
 > tan-nāma-rūpa-caritādi-sukīrtanānu-
 > smṛtyoḥ krameṇa rasanā-manasī niyojya
 > tiṣṭhan vraje tad-anurāgi janānugāmī

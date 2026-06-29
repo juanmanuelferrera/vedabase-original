@@ -1,5 +1,8 @@
 ### CC Madhya 24.251
 
+> কদর্থিয়া তুমি যত মারিলা জীবেরে ।
+> তারা তৈছে তোমা মারিবে জন্ম-জন্মান্তরে ।।” ॥ ২৫১ ॥
+
 > kadarthiyā tumi yata mārilā jīvere
 > tārā taiche tomā māribe janma-janmāntare"
 

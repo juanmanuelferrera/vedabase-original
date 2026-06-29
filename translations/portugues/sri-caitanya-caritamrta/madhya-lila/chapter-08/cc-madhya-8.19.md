@@ -1,5 +1,8 @@
 ### CC Madhya 8.19
 
+> দেখিয়া তাঁহার মনে হৈল চমৎকার ৷
+> আসিয়া করিল দণ্ডবৎ নমস্কার ৷৷ ১৯ ৷৷ ॥১৯॥
+
 dekhiyā tāṅhāra mane haila camatkāra
 
 āsiyā karila daṇḍavat namaskāra

@@ -1,5 +1,8 @@
 ### CC Madhya 12.91
 
+> সবার ঝ্যাঁটান বোঝা একত্র করিল ।
+> সবা হৈতে প্রভুর বোঝা অধিক হইল ॥৯১॥
+
 > sabāra jhyāṅṭāna bojhā ekatra karila
 > sabā haite prabhura bojhā adhika ha-ila
 

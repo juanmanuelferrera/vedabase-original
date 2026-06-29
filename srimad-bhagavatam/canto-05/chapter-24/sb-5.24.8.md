@@ -1,5 +1,7 @@
 ### SB 5.24.8
 
+> एतेषु हि बिलस्वर्गेषु स्वर्गादप्यधिककामभोगैश्वर्यानन्दभूतिविभूतिभिः सुसमृद्धभवनोद्यानाक्रीडविहारेषु दैत्यदानवकाद्रवेया नित्यप्रमुदितानुरक्तकलत्रापत्यबन्धुसुहृदअनुचरा गृहपतय ईश्वरादप्यप्रतिहतकामा मायाविनोदा निवसन्ति ॥८॥
+
 > eteṣu hi bila-svargeṣu svargād apy adhika-kāma-bhogaiśvaryānanda-bhūti-vibhūtibhiḥ susamṛddha-bhavanodyānākrīḍa-vihāreṣu daitya-dānava-kādraveyā nitya-pramuditānurakta-kalatrāpatya-bandhu-suhṛd-anucarā gṛha-pataya īśvarād apy apratihata-kāmā māyā-vinodā nivasanti.
 
 *eteṣu*—in these; *hi*—certainly; *bila-svargeṣu*—known as the heavenly subterranean worlds; *svargāt*—than the heavenly planets; *api*—even; *adhika*—a greater quantity; *kāma-bhoga*—enjoyment of sense gratification; *aiśvarya-ānanda*—bliss due to opulence; *bhūti*—influence; *vibhūtibhiḥ*—by those things and wealth; *su-samṛddha*—improved; *bhavana*—houses; *udyāna*—gardens; *ākrīḍa-vihāreṣu*—in places for different types of sense gratification; *daitya*—the demons; *dānava*—ghosts; *kādraveyāḥ*—snakes; *nitya*—who are always; *pramudita*—overjoyed; *anurakta*—because of attachment; *kalatra*—to wife; *apatya*—children; *bandhu*—family relations; *suhṛt*—friends; *anucarāḥ*—followers; *gṛha-patayaḥ*—the heads of the households; *īśvarāt*—than those more capable, like the demigods; *api*—even; *apratihata-kāmāḥ*—whose fulfillment of lusty desires is unimpeded; *māyā*—illusory; *vinodāḥ*—who feel happiness; *nivasanti*—live.

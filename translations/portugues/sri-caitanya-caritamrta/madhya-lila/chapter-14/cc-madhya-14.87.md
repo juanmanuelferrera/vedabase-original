@@ -1,5 +1,8 @@
 ### CC Madhya 14.87
 
+> শুষ্কতর্ক-খলি খাইতে জন্ম গেল যাঁর ।
+> তাঁরে লীলামৃত পিয়াও, — এ কৃপা তোমার ॥৮৭॥
+
 śuṣka-tarka-khali khāite janma gela yāṅra
 
 tāṅre līlāmṛta piyāo,-e kṛpā tomāra

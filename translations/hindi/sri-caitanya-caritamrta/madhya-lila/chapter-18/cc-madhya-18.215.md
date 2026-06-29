@@ -1,5 +1,8 @@
 ### CC Madhya 18.215
 
+> সেই বিপ্রে, কৃষ্ণদাসে, প্রভু বিদায় দিলা ।
+> যোড়-হাতে দুইজন কহিতে লাগিলা ॥২১৫॥
+
 > sei vipre, kṛṣṇadāse, prabhu vidāya dilā
 > yoḍa-hāte dui-jana kahite lāgilā
 

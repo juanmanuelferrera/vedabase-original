@@ -1,5 +1,8 @@
 ### CC Madhya 13.13
 
+> বিশ্বম্ভর জগন্নাথে কে চালাইতে পারে ?
+> আপন ইচ্ছায় চলে করিতে বিহারে ॥১৩॥
+
 viśvambhara jagannāthe ke cālāite pāre?
 āpana icchāya cale karite vihāre
 

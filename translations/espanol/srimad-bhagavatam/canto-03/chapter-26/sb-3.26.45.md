@@ -1,5 +1,8 @@
 ### SB 3.26.45
 
+> करम्भपूतिसौरभ्य शान्तोग्राम्लादिभिः पृथक् ।
+> द्रव्यावयववैषम्याद्गन्ध एको विभिद्यते ॥४५॥
+
 > karambha-pūti-saurabhya-
 > śāntogrāmlādibhiḥ pṛthak
 > dravyāvayava-vaiṣamyād

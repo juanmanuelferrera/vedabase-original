@@ -1,5 +1,8 @@
 ### SB 3.30.7
 
+> सन्दह्यमानसर्वाङ्ग एषामुद्वहनाधिना ।
+> करोत्यविरतं मूढो दुरितानि दुराशयः ॥७॥
+
 > sandahyamāna-sarvāṅga
 > eṣām udvahanādhinā
 > karoty avirataṁ mūḍho

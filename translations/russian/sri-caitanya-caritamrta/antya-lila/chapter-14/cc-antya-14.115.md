@@ -1,5 +1,8 @@
 ### CC Antya 14.115
 
+> প্রভু কহে, — ‘দুঁহে কেনে আইলা এত দূরে’ ?
+> পুরীগোসাঞি কহে, — ‘তোমার নৃত্য দেখিবারে’ ॥১১৫॥
+
 > prabhu kahe,—'duṅhe kene āilā eta dūre'?
 > purī-gosāñi kahe,—'tomāra nṛtya dekhibāre'
 

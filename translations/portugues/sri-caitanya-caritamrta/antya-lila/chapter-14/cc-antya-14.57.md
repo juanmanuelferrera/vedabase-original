@@ -1,5 +1,8 @@
 ### CC Antya 14.57
 
+> এইমত অর্ধরাত্রি কৈলা নির্যাপণ ।
+> ভিতর-প্রকোষ্ঠে প্রভুরে করাইলা শয়ন ॥৫৭॥
+
 ei-mata ardha-rātri kailā niryāpaṇa
 
 bhitara-prakoṣṭhe prabhure karāilā śayana

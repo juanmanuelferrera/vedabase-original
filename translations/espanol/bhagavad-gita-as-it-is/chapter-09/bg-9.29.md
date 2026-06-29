@@ -1,5 +1,8 @@
 ### Bg 9.29
 
+> समोऽहं सर्वभूतेषु न मे द्वेष्योऽस्ति न प्रियः ।
+> ये भजन्ति तु मां भक्त्या मयि ते तेषु चाप्यहम् ॥२९॥
+
 > samo'haṁ sarva-bhūteṣu
 > na me dveṣyo'sti na priyaḥ
 > ye bhajanti tu māṁ bhaktyā

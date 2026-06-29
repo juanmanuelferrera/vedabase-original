@@ -1,5 +1,8 @@
 ### SB 1.9.41
 
+> मुनिगणनृपवर्यसङ्कुलेऽन्तः सदसि युधिष्ठिरराजसूय एषाम् ।
+> अर्हणमुपपेद ईक्षणीयो मम दृशिगोचर एष आविरात्मा ॥४१॥
+
 > muni-gaṇa-nṛpa-varya-saṅkule 'ntaḥ-
 > sadasi yudhiṣṭhira-rājasūya eṣām
 > arhaṇam upapeda īkṣaṇīyo

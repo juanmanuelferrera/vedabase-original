@@ -1,5 +1,7 @@
 ### SB 5.22.6
 
+> अथ च यावतार्धेन नभोवीथ्यां प्रचरति तं कालमयनमाचक्षते ॥६॥
+
 *atha ca yāvatārdhena nabho*-vīthyāṁ pracarati taṁ kālam ayanam ācakṣate.
 
 *atha*—agora; *ca*—também; *yāvatā*—pelo tempo que; *ardhena*—metade; *nabhaḥ-vīthyām*—no espaço sideral; *pracarati*—o sol se move; *tam*—esse; *kālam*—tempo; *ayanam*—*ayana*; *ācakṣate*—diz-se.

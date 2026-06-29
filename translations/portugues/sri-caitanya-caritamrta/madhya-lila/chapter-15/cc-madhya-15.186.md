@@ -1,5 +1,8 @@
 ### CC Madhya 15.186
 
+> প্রভু-পাশ আসি’ সার্বভৌম এক দিন  ।
+> যোড়হাত করি’ কিছু কৈল নিবেদন ॥১৮৬॥
+
 prabhu-pāśa āsi' sārvabhauma eka dina
 
 yoḍa-hāta kari' kichu kaila nivedana

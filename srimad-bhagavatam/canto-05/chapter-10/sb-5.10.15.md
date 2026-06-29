@@ -1,5 +1,7 @@
 ### SB 5.10.15
 
+> स चापि पाण्डवेय सिन्धुसौवीरपतिस्तत्त्वजिज्ञआसायां सम्यकश्रद्धयाधिकृताधिकारस्तद्धृदयग्रन्थिमोचनं द्विजवच आश्रुत्य बहुयोगग्रन्थसम्मतंत्वरयावरुह्य शिरसा पादमूलमुपसृतः क्षमापयन्विगतनृपदेवस्मय उवाच ॥१५॥
+
 > sa cāpi pāṇḍaveya sindhu-sauvīra-patis tattva-jijñāsāyāṁ samyak-śraddhayādhikṛtādhikāras tad dhṛdaya-granthi-mocanaṁ dvija-vaca āśrutya bahu-yoga-grantha-sammataṁ tvarayāvaruhya śirasā pāda-mūlam upasṛtaḥ kṣamāpayan vigata-nṛpa-deva-smaya uvāca.
 
 *saḥ*—he (Mahārāja Rahūgaṇa); *ca*—also; *api*—indeed; *pāṇḍaveya*—O best of the Pāṇḍu dynasty (Mahārāja Parīkṣit); *sindhu-sauvīra-patiḥ*—the King of the states known as Sindhu and Sauvīra; *tattva-jijñāsāyām*—in the matter of inquiring about the Absolute Truth; *samyak-śraddhayā*—by faith consisting of complete control of the senses and the mind; *adhikṛta-adhikāraḥ*—who attained the proper qualification; *tat*—that; *hṛdaya-granthi*—the knot of false conceptions within the heart; *mocanam*—which eradicates; *dvija-vacaḥ*—the words of the *brāhmaṇa* (Jaḍa Bharata); *āśrutya*—hearing; *bahu-yoga-grantha-sammatam*—approved by all yogic processes and their scriptures; *tvarayā*—very hastily; *avaruhya*—getting down (from the palanquin); *śirasā*—by his head; *pāda-mūlam*—at the lotus feet; *upasṛtaḥ*—falling down flat to offer obeisances; *kṣamāpayan*—obtaining pardon for his offense; *vigata-nṛpa-deva-smayaḥ*—giving up the false pride of being the King and therefore being worshipable; *uvāca*—said.

@@ -1,5 +1,8 @@
 ### CC Madhya 3.158
 
+> সবাকারে বাসা দিল — ভক্ষ্য, অন্নপান  ।
+> বহুদিন আচার্য-গোসাঞি কৈল সমাধান ॥১৫৮॥
+
 > sabākāre vāsā dila--bhakṣya, anna-pāna
 > bahu-dina ācārya-gosāñi kaila samādhāna
 

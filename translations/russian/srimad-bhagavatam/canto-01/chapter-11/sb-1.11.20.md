@@ -1,5 +1,8 @@
 ### SB 1.11.20
 
+> नटनर्तकगन्धर्वाः सूतमागधवन्दिनः ।
+> गायन्ति चोत्तमश्लोकचरितान्यद्भुतानि च ॥२०॥
+
 > naṭa-nartaka-gandharvāḥ
 > sūta-māgadha-vandinaḥ
 > gāyanti cottamaśloka-

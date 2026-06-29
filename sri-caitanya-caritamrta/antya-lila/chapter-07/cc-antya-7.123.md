@@ -1,5 +1,8 @@
 ### CC Antya 7.123
 
+> আপনা জানাইতে আমি করি অভিমান ।
+> সে গর্ব খণ্ডাইতে মোর করেন অপমান ॥১২৩॥
+
 > āpanā jānāite āmi kari abhimāna
 > se garva khaṇḍāite mora karena apamāna
 

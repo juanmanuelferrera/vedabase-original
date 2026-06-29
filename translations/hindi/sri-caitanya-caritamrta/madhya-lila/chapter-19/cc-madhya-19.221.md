@@ -1,5 +1,8 @@
 ### CC Madhya 19.221
 
+> শান্তের গুণ দাস্যে আছে, অধিক — ‘সেবন’ ।
+> অতএব দাস্যরসের এই ‘দুই’ গুণ ॥২২১॥
+
 > śāntera guṇa dāsye āche, adhika--'sevana'
 > ataeva dāsya-rasera ei 'dui' guṇa
 

@@ -1,5 +1,7 @@
 ### SB 5.8.3
 
+> तया पेपीयमान उदके तावदेवाविदूरेण नदतो मृगपतेरुन्नादो लोकभयङ्कर उदपतत ॥३॥
+
 *tayā pepīyamāna udake tāvad evāvidūreṇa nadato mṛga*-pater unnādo loka-bhayaṅkara udapatat.
 
 *tayā*—pela cerva; *pepīyamāne*—sendo bebida com grande satisfação; *udake*—a água; *tāvat eva*—exatamente nesse momento; *avidūreṇa*—muito perto; *nadataḥ*—rugindo; *mṛga-pateḥ*—de um leão; *unnādaḥ*—o som estrondoso; *loka-bhayam-kara*—muito amedrontador para todas as entidades vivas; *udapatat*—surgiu.

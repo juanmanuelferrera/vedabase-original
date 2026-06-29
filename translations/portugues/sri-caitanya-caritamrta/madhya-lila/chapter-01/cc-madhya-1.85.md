@@ -1,5 +1,8 @@
 ### CC Madhya 1.85
 
+> এইমত মহাপ্রভু দেখি’ জগন্নাথে ।
+> সুভদ্রা-সহিত দেখে, বংশী নাহি হাতে ॥৮৫॥
+
 ei-mata mahāprabhu dekhi' jagannāthe
 subhadrā-sahita dekhe, vaṁśī nāhi hāte
 

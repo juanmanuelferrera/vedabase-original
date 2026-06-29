@@ -1,5 +1,8 @@
 ### CC Adi 16.66
 
+> ‘বিভবতি’ ক্রিয়ায় বাক্য — সাঙ্গ, পুনঃ বিশেষণ ।
+> ‘অদ্ভুতগুণা’ — এই পুনরাত্ত দূষণ ॥৬৬॥
+
 'vibhavati' kriyāya vākya--sāṅga, punaḥ viśeṣaṇa
 'adbhuta-guṇā'--ei punar-ātta dūṣaṇa
 

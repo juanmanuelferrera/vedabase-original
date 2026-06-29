@@ -1,5 +1,8 @@
 ### CC Madhya 7.46
 
+> শুনি’ সার্বভৌম হৈলা অত্যন্ত কাতর ।
+> চরণে ধরিয়া কহে বিষাদ-উত্তর ॥৪৬॥
+
 > śuni' sārvabhauma hailā atyanta kātara
 > caraṇe dhariyā kahe viṣāda-uttara
 

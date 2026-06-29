@@ -1,5 +1,8 @@
 ### SB 4.29.34
 
+> नैकान्ततः प्रतीकारः कर्मणां कर्म केवलम् ।
+> द्वयं ह्यविद्योपसृतं स्वप्ने स्वप्न इवानघ ॥३४॥
+
 > naikāntataḥ pratīkāraḥ
 > karmaṇāṁ karma kevalam
 > dvayaṁ hy avidyopasṛtaṁ

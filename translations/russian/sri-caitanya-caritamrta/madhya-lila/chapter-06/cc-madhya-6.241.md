@@ -1,5 +1,8 @@
 ### CC Madhya 6.241
 
+> ভক্তিসাধন-শ্রেষ্ঠ শুনিতে হৈল মন ।
+> প্রভু উপদেশ কৈল নাম-সংকীর্তন ॥২৪১॥
+
 > bhakti-sādhana-śreṣṭha śunite haila mana
 > prabhu upadeśa kaila nāma-saṅkīrtana
 

@@ -3,6 +3,9 @@
 > 'brahmānanda' nāma tumi-gaura-brahma 'cala'
 > śyama-varṇa jagannātha vasiyāchena 'acala'
 
+> 'brahmānanda' nāma tumi-gaura-brahma 'cala'
+> śyama-varṇa jagannātha vasiyāchena 'acala'
+
 *brahmānanda*—Brahmānanda; *nāma tumi*—tu nombre; *gaura-brahma*—el Brahman de nombre Gaura; *cala*—ambos se mueven; *śyāma-varṇa*—de color oscuro; *jagannātha*—el Señor Jagannātha; *vasiyāchena*—está sentado; *acala*—sin movimiento.
 
 **»Tanto Brahmānanda como Gaurahari se mueven, mientras que el oscuro Señor Jagannātha permanece sentado e inmóvil».**

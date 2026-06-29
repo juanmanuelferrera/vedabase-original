@@ -1,5 +1,8 @@
 ### SB 1.11.23
 
+> स्वयं च गुरुभिर्विप्रैः सदारैः स्थविरैरपि ।
+> आशीर्भिर्युज्यमानोऽन्यैर्वन्दिभिश्चाविशत्पुरम् ॥२३॥
+
 > svayaṁ ca gurubhir vipraiḥ
 > sadāraiḥ sthavirair api
 > āśīrbhir yujyamāno 'nyair

@@ -1,5 +1,8 @@
 ### CC Adi 16.80
 
+> ‘ইহাঁ বিষ্ণুপাদপদ্মে গঙ্গার উৎপত্তি’ ।
+> বিরোধালঙ্কার ইহা মহা-চমৎকৃতি ॥৮০॥
+
 'ihāṅ viṣṇu-pāda-padme gaṅgāra utpatti'
 
 virodhālaṅkāra ihā mahā-camatkṛti

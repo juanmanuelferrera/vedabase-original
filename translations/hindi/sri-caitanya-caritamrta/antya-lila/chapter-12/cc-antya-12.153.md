@@ -1,5 +1,8 @@
 ### CC Antya 12.153
 
+> জগদানন্দের সৌভাগ্যের কে কহিবে সীমা ?
+> জগদানন্দের সৌভাগ্যের তেঁহ সে উপমা ॥১৫৩॥
+
 > jagadānandera saubhāgyera ke kahibe sīmā?
 > jagadānandera saubhāgyera teṅha se upamā
 

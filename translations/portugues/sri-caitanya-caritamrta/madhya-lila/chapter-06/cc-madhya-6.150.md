@@ -1,5 +1,8 @@
 ### CC Madhya 6.150
 
+> ‘অপাণি-পাদ’-শ্রুতি বর্জে ‘প্রাকৃত’ পাণি-চরণ ।
+> পুনঃ কহে, শীঘ্র চলে, করে সর্ব গ্রহণ ॥১৫০॥
+
 'apāṇi-pāda'-śruti varje 'prākṛta' pāṇi-caraṇa
 
 punaḥ kahe, śīghra cale, kare sarva grahaṇa

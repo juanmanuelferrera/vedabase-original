@@ -1,5 +1,8 @@
 ### CC Madhya 25.203
 
+> মথুরা আসিয়া রায় প্রভুবার্তা পাইল ।
+> প্রভুর লাগ না পাঞা মনে বড় দুঃখ হৈল ॥২০৩॥
+
 mathurā āsiyā rāya prabhu-vārtā pāila
 
 prabhura lāga nā pāñā mane baḍa duḥkha haila

@@ -1,5 +1,8 @@
 ### Īśo 1
 
+> ॐ ईशावास्यमिदँ सर्वं यत्किञ्च जगत्यां जगत्।
+> तेन त्यक्तेन भुञ्जीथा मा गृधः कस्यस्विद्धनम्॥१॥
+
 > īśāvāsyam idam sarvaṁ
 > yat kiñca jagatyāṁ jagat
 > tena tyaktena bhuñjīthā

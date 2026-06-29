@@ -1,5 +1,8 @@
 ### CC Madhya 4.41
 
+> ‘শ্রীগোপাল’ নাম মোর, — গোবর্ধনধারী ৷
+> বজ্রের স্থাপিত, আমি ইহাঁ অধিকারী ॥৪১॥
+
 'śrī-gopāla' nāma mora,--govardhana-dhārī
 vajrera sthāpita, āmi ihāṅ adhikārī
 

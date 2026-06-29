@@ -1,5 +1,8 @@
 ### CC Madhya 15.287
 
+> প্রভু কহে, — অমোঘ শিশু, কিবা তার দোষ ।
+> কেনে উপবাস কর, কেনে কর রোষ ॥২৮৭॥
+
 prabhu kahe,--amogha śiśu, kibā tāra doṣa
 
 kene upavāsa kara, kene kara roṣa

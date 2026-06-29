@@ -1,5 +1,8 @@
 ### SB 4.21.32
 
+> विनिर्धुताशेषमनोमलः पुमानसङ्गविज्ञानविशेषवीर्यवान् ।
+> यदङ्घ्रिमूले कृतकेतनः पुनर्न संसृतिं क्लेशवहां प्रपद्यते ॥३२॥
+
 > vinirdhutāśeṣa-mano-malaḥ pumān
 > asaṅga-vijñāna-viśeṣa-vīryavān
 > yad-aṅghri-mūle kṛta-ketanaḥ punar

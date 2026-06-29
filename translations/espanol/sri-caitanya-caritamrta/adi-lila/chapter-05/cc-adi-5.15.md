@@ -1,5 +1,8 @@
 ### CC Adi 5.15
 
+> সর্বগ, অনন্ত, বিভু — বৈকুণ্ঠাদি ধাম ।
+> কৃষ্ণ, কৃষ্ণ-অবতারের তাহাঞি বিশ্রাম ॥১৫॥
+
 > sarvaga, ananta, vibhu--vaikuṇṭhādi dhāma
 > kṛṣṇa, kṛṣṇa-avatārera tāhāñi viśrāma
 

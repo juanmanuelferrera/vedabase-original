@@ -1,5 +1,8 @@
 ### CC Madhya 1.44
 
+> গোপালচম্পূ-নামে গ্রন্থমহাশূর ।
+> নিত্যলীলা স্থাপন যাহে ব্রজরস-পূর ॥৪৪॥
+
 gopāla-campū-nāme grantha-mahāśūra
 
 nitya-līlā sthāpana yāhe vraja-rasa-pūra

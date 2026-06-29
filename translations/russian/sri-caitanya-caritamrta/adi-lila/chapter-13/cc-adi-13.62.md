@@ -1,5 +1,8 @@
 ### CC Adi 13.62
 
+> অসংখ্য ভক্তের করাইলা অবতার ।
+> শেষে অবতীর্ণ হৈলা ব্রজেন্দ্রকুমার ॥৬২॥
+
 > asaṅkhya bhaktera karāilā avatāra
 > śeṣe avatīrṇa hailā vrajendra-kumāra
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.95
 
+> ‘গৃহস্থ’ হয়েন ইঁহো, চাহিয়ে সঞ্চয় ।
+> সঞ্চয় না কৈলে কুটুম্ব-ভরণ নাহি হয় ॥৯৫॥
+
 > 'gṛhastha' hayena iṅho, cāhiye sañcaya
 > sañcaya nā kaile kuṭumba-bharaṇa nāhi haya
 

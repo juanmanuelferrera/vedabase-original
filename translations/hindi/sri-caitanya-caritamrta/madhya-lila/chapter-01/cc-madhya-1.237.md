@@ -1,5 +1,8 @@
 ### CC Madhya 1.237
 
+> দিন কত তাহাঁ রহি’ চলিলা বৃন্দাবন ।
+> লুকাঞা চলিলা রাত্রে, না জানে কোন জন ॥২৩৭॥
+
 > dina kata tāhāṅ rahi' calilā vṛndāvana
 > lukāñā calilā rātre, nā jāne kona jana
 

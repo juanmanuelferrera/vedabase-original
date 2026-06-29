@@ -1,5 +1,8 @@
 ### SB 7.8.34
 
+> ततः सभायामुपविष्टमुत्तमे नृपासने सम्भृततेजसं विभुम
+> अलक्षितद्वैरथमत्यमर्षणं प्रचण्डवक्त्रं न बभाज कश्चन ॥३४॥
+
 > tataḥ sabhāyām upaviṣṭam uttame
 > nṛpāsane sambhṛta-tejasaṁ vibhum
 > alakṣita-dvairatham atyamarṣaṇaṁ

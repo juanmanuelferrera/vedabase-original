@@ -1,5 +1,8 @@
 ### CC Madhya 24.281
 
+> নারদ কহে, — ‘ঐছে রহ, তুমি ভাগ্যবান্’ ৷
+> এত বলি’ দুইজন হইলা অন্তর্ধান ॥২৮১॥
+
 > nārada kahe,--'aiche raha, tumi bhāgyavān'
 > eta bali' dui-jana ha-ilā antardhāna
 

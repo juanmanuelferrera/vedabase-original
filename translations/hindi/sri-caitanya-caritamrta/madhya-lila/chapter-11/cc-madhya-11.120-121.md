@@ -1,5 +1,10 @@
 ### CC Madhya 11.120-121
 
+> প্রতাপরুদ্র আজ্ঞা দিল সেই দুই জনে ।
+> প্রভু-স্থানে আসিয়াছেন যত প্রভুর গণে ॥১২০॥
+> সবারে স্বচ্ছন্দ বাসা, স্বচ্ছন্দ প্রসাদ ।
+> স্বচ্ছন্দ দর্শন করাইহ, নহে যেন বাধ ॥১২১॥
+
 > pratāparudra ājñā dila sei dui jane
 > prabhu-sthāne āsiyāchena yata prabhura gaṇe
 > sabāre svacchanda vāsā, svacchanda prasāda

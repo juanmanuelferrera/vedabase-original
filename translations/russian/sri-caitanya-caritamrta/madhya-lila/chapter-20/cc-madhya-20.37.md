@@ -1,5 +1,8 @@
 ### CC Madhya 20.37
 
+> চলি’ চলি’ গোসাঞি তবে আইলা হাজিপুরে ।
+> সন্ধ্যাকালে বসিলা এক উদ্যান-ভিতরে ॥৩৭॥
+
 > cali' cali' gosāñi tabe āilā hājipure
 > sandhyā-kāle vasilā eka udyāna-bhitare
 

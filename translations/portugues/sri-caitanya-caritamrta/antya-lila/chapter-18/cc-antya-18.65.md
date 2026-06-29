@@ -1,5 +1,8 @@
 ### CC Antya 18.65
 
+> প্রেমাবেশে পড়িলা তেঁহো সমুদ্রের জলে ।
+> তাঁরে তুমি উঠাইলা আপনার জালে ॥৬৫॥
+
 premāveśe paḍilā teṅho samudrera jale
 
 tāṅre tumi uṭhāilā āpanāra jāle

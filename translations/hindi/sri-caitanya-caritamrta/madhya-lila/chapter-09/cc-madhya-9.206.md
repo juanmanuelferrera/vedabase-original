@@ -1,5 +1,8 @@
 ### CC Madhya 9.206
 
+> তবে মায়াসীতা অগ্নি করি অন্তর্ধান ।
+> সত্য-সীতা আনি’ দিল রাম-বিদ্যমান ॥২০৬॥
+
 > tabe māyā-sītā agni kari antardhāna
 > satya-sītā āni' dila rāma-vidyamāna
 

@@ -1,5 +1,8 @@
 ### CC Madhya 1.268
 
+> মনুষ্যের বেশ ধরি’ যাত্রিকের ছলে  ।
+> প্রভুর দর্শন করে আসি’ নীলাচলে ॥২৬৮॥
+
 > manuṣyera veśa dhari' yātrikera chale
 > prabhura darśana kare āsi' nīlācale
 

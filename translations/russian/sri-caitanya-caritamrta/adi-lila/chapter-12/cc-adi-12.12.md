@@ -1,5 +1,8 @@
 ### CC Adi 12.12
 
+> ধান্যরাশি মাপে যৈছে পাত্না সহিতে ।
+> পশ্চাতে পাত্না উড়াঞা সংস্কার করিতে ॥১২॥
+
 > dhānya-rāśi māpe yaiche pātnā sahite
 > paścāte pātnā uḍāñā saṁskāra karite
 

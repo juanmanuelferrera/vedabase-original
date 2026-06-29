@@ -1,5 +1,8 @@
 ### SB 3.21.56
 
+> अथापि पृच्छे त्वां वीर यदर्थं त्वमिहागतः ।
+> तद्वयं निर्व्यलीकेन प्रतिपद्यामहे हृदा ॥५६॥
+
 > athāpi pṛcche tvāṁ vīra
 > yad-arthaṁ tvam ihāgataḥ
 > tad vayaṁ nirvyalīkena

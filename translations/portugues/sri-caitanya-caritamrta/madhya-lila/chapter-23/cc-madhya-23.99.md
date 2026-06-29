@@ -1,5 +1,8 @@
 ### CC Madhya 23.99
 
+> এই রস-আস্বাদ নাহি অভক্তের গণে ।
+> কৃষ্ণভক্তগণ করে রস আস্বাদনে ॥৯৯॥
+
 ei rasa-āsvāda nāhi abhaktera gaṇe
 
 kṛṣṇa-bhakta-gaṇa kare rasa āsvādane

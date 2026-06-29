@@ -1,5 +1,8 @@
 ### CC Antya 6.99
 
+> আনন্দিত রঘুনাথ প্রভুর ‘শেষ’ পাঞা ।
+> আপনার গণ-সহ খাইলা বাঁটিয়া ॥৯৯॥
+
 ānandita raghunātha prabhura 'śeṣa, pāñā
 
 āpanāra gaṇa-saha khāilā bāṅtiyā

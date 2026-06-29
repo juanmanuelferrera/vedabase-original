@@ -1,5 +1,8 @@
 ### CC Adi 4.112
 
+> পূর্বে ব্রজে কৃষ্ণের ত্রিবিধ বয়োধর্ম ।
+> কৌমার, পৌগণ্ড, আর কৈশোর অতিমর্ম ॥১১২॥
+
 > pūrve vraje kṛṣṇera tri-vidha vayo-dharma
 > kaumāra, paugaṇḍa, āra kaiśora atimarma
 

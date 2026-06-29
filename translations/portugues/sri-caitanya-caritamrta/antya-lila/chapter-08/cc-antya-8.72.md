@@ -1,5 +1,8 @@
 ### CC Antya 8.72
 
+> “রামচন্দ্রপুরী হয় নিন্দুক-স্বভাব  ।
+> তার বোলে অন্ন ছাড়ি’ কিবা হবে লাভ? ॥৭২॥
+
 "rāmacandra-purī haya ninduka-svabhāva
 
 tāra bole anna chāḍi' kibā habe lābha?

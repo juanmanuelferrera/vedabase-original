@@ -1,5 +1,8 @@
 ### CC Adi 1.64
 
+> সেই ভক্তগণ হয় দ্বিবিধ প্রকার ।
+> পারিষদ্গণ এক, সাধকগণ আর ॥৬৪॥
+
 > sei bhakta-gaṇa haya dvi-vidha prakāra
 > pāriṣad-gaṇa eka, sādhaka-gaṇa āra
 

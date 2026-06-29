@@ -1,5 +1,8 @@
 ### CC Adi 7.3
 
+> পূর্বে গুর্বাদি ছয় তত্ত্বে কৈল নমস্কার ।
+> গুরুতত্ত্ব কহিয়াছি, এবে পাঁচের বিচার ॥৩॥
+
 > pūrve gurv-ādi chaya tattve kaila namaskāra
 > guru-tattva kahiyāchi, ebe pāṅcera vicāra
 

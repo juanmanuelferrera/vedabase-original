@@ -1,5 +1,8 @@
 ### SB 3.14.15
 
+> अथ मे कुरु कल्याणं कामं कमललोचन ।
+> आर्तोपसर्पणं भूमन्नमोघं हि महीयसि ॥१५॥
+
 > atha me kuru kalyāṇaṁ
 > kāmaṁ kamala-locana
 > ārtopasarpaṇaṁ bhūmann

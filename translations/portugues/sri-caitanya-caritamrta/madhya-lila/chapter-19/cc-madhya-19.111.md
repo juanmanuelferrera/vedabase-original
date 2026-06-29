@@ -1,5 +1,8 @@
 ### CC Madhya 19.111
 
+> ‘প্রেমোন্মাদে পড়ে গোসাঞি মধ্য-যমুনাতে ।
+> প্ৰয়াগে চালাইব, ইহাঁ না দিব রহিতে ॥১১১॥
+
 'premonmāde paḍe gosāñi madhya-yamunāte
 
 prayāge cālāiba, ihāṅ nā diba rahite

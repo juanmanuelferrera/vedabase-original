@@ -1,5 +1,8 @@
 ### CC Madhya 17.208
 
+> বৃক্ষডালে শুক-শারী দিল দরশন ।
+> তাহা দেখি’ প্রভুর কিছু শুনিতে হৈল মন ॥২০৮॥
+
 vṛkṣa-ḍāle śuka-śārī dila daraśana
 
 tāhā dekhi' prabhura kichu śunite haila mana

@@ -1,5 +1,8 @@
 ### CC Madhya 9.141
 
+> প্রভু কহে, — ভট্ট, তুমি না করিহ সংশয় ৷
+> ‘স্বয়ং-ভগবান্’ কৃষ্ণ এই ত’ নিশ্চয় ৷৷ ১৪১ ৷৷ ॥১৪১॥
+
 > prabhu kahe,--bhaṭṭa, tumi nā kariha saṁśaya
 > 'svayaṁ-bhagavān' kṛṣṇa ei ta' niścaya
 

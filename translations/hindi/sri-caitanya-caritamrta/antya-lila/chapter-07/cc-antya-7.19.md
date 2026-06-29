@@ -1,5 +1,8 @@
 ### CC Antya 7.19
 
+> যাঁহার কৃপাতে ম্লেচ্ছের হয় কৃষ্ণভক্তি ।
+> কে কহিতে পারে তাঁর বৈষ্ণবতা-শক্তি ? ॥১৯॥
+
 > yāṅhāra kṛpāte mlecchera haya kṛṣṇa-bhakti
 > ke kahite pāre tāṅra vaiṣṇavatā-śakti?
 

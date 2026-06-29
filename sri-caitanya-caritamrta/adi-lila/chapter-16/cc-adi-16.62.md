@@ -1,5 +1,8 @@
 ### CC Adi 16.62
 
+> ‘ভবানীভর্তৃ’-শব্দ দিলে পাইয়া সন্তোষ ।
+> ‘বিরুদ্ধমতিকৃৎ’ নাম এই মহা দোষ ॥৬২॥
+
 > 'bhavānī-bhartṛ'-śabda dile pāiyā santoṣa
 > 'viruddha-mati-kṛt' nāma ei mahā doṣa
 

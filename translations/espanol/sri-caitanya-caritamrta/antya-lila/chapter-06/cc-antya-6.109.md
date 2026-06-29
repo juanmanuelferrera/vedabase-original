@@ -1,5 +1,8 @@
 ### CC Antya 6.109
 
+> দুইভাই-আগে প্রসাদ আনিয়া ধরিলা ।
+> সকল বৈষ্ণবে পিছে পরিবেশন কৈলা ॥১০৯॥
+
 > dui-bhāi-āge prasāda āniyā dharilā
 > sakala vaiṣṇave piche pariveśana kailā
 

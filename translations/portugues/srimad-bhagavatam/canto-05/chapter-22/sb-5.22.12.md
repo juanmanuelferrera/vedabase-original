@@ -1,5 +1,7 @@
 ### SB 5.22.12
 
+> तत उपरिष्टादुशना द्विलक्षयोजनत उपलभ्यते पुरतः पश्चात्सहैव वार्कस्य शैघ्र्यमान्द्यसाम्याभिर्गतिभिरर्कवच्चरति लोकानां नित्यदानुकूल एव प्रायेण वर्षयंश्चारेणानुमीयते सवृष्टिविष्टम्भग्रहोपशमनः ॥१२॥
+
 *tata upariṣṭād uśanā dvi*-lakṣa-yojanata upalabhyate purataḥ paścāt sahaiva vārkasya śaighrya-māndya-sāmyābhir gatibhir arkavac carati lokānāṁ nityadānukūla eva prāyeṇa varṣayaṁś cāreṇānumīyate sa vṛṣṭi-viṣṭambha-grahopaśamanaḥ.
 
 *tataḥ*—desse conjunto de estrelas; *upariṣṭāt*—acima; *uśanā*—Vênus; *dvi-lakṣa-yojanataḥ*—200.000 *yojanas* (1.600.000 milhas); *upalabhyate*—é experimentada; *purataḥ*—em frente; *paścāt*—atrás; *saha*—junto com; *eva*—de fato; *vā*—e; *arkasya*—do sol; *śaighrya*—rápidos; *māndya*—lentos; *sāmyābhiḥ*—iguais; *gatibhiḥ*—os movimentos; *arkavat*—exatamente como o sol; *carati*—gira; *lokānām*—de todos os planetas dentro do universo; *nityadā*—constantemente; *anukūlaḥ*—oferecendo condições favoráveis; *eva*—de fato; *prāyeṇa*—quase sempre; *varṣayan*—causando chuva; *cāreṇa*—infundindo as nuvens; *anumīyate*—é percebida; *saḥ*—ele (Vênus); *vṛṣṭi-viṣṭambha*—obstáculos à chuva; *graha-upaśamanaḥ*—planetas anuladores.

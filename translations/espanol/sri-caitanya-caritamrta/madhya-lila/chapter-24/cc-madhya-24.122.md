@@ -1,5 +1,8 @@
 ### CC Madhya 24.122
 
+> ‘মুমুক্ষু’ জগতে অনেক সংসারী জন ।
+> ‘মুক্তি’ লাগি’ ভক্ত্যে করে কৃষ্ণের ভজন ॥১২২॥
+
 > 'mumukṣu' jagate aneka saṁsārī jana
 > 'mukti' lāgi' bhaktye kare kṛṣṇera bhajana
 

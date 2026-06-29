@@ -1,5 +1,8 @@
 ### CC Adi 2.32
 
+> তোমার নাভিপদ্ম হৈতে আমার জন্মোদয় ।
+> তুমি পিতা-মাতা, আমি তোমার তনয় ॥৩২॥
+
 tomāra nābhi-padma haite āmāra janmodaya
 tumi pitā-mātā, āmi tomāra tanaya
 

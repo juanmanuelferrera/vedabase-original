@@ -1,5 +1,8 @@
 ### CC Adi 3.61
 
+> ভক্তির বিরোধী কর্ম-ধর্ম বা অধর্ম ।
+> তাহার ‘কল্মষ’ নাম, সেই মহাতমঃ ॥৬১॥
+
 bhaktira virodhī karma-dharma vā adharma
 tāhāra 'kalmaṣa' nāma, sei mahā-tamaḥ
 

@@ -1,5 +1,8 @@
 ### SB 1.3.24
 
+> ततः कलौ सम्प्रवृत्ते सम्मोहाय सुरद्विषाम् ।
+> बुद्धो नाम्नाञ्जनसुतः कीकटेषु भविष्यति ॥२४॥
+
 > tataḥ kalau sampravṛtte
 > sammohāya sura-dviṣām
 > buddho nāmnāñjana-sutaḥ

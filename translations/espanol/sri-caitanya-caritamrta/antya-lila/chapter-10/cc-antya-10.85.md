@@ -1,5 +1,8 @@
 ### CC Antya 10.85
 
+> সব দ্বার যুড়ি’ প্রভু করিয়াছেন শয়ন  ।
+> ভিতরে যাইতে নারে, গোবিন্দ করে নিবেদন ॥৮৫॥
+
 > saba dvāra yuḍi' prabhu kariyāchena śayana
 > bhitare yāite nāre, govinda kare nivedana
 

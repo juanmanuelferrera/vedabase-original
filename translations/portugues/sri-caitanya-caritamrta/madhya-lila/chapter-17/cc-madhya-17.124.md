@@ -1,5 +1,8 @@
 ### CC Madhya 17.124
 
+> শুনি’ মহাপ্রভু তবে ঈষৎ হাসিলা ।
+> পুনরপি সেই বিপ্র প্রভুরে পুছিলা ॥১২৪॥
+
 śuni' mahāprabhu tabe īṣat hāsilā
 
 punarapi sei vipra prabhure puchilā

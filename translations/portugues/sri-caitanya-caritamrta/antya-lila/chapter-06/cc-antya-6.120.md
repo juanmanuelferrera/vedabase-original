@@ -1,5 +1,8 @@
 ### CC Antya 6.120
 
+> ভোজন করি’ দুই ভাই কৈলা আচমন ।
+> রাঘব আনি’ পরাইলা মাল্য-চন্দন ॥১২০॥
+
 bhojana kari' dui bhāi kailā ācamana
 
 rāghava āni' parāilā mālya-candana

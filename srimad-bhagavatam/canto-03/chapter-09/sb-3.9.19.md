@@ -1,5 +1,10 @@
 ### SB 3.9.19
 
+> तिर्यङ्मनुष्यविबुधादिषु जीवयोनिष्व्
+> आत्मेच्छयात्मकृतसेतुपरीप्सया यः ।
+> रेमे निरस्तविषयोऽप्यवरुद्धदेहस्
+> तस्मै नमो भगवते पुरुषोत्तमाय ॥१९॥
+
 > tiryaṅ-manuṣya-vibudhādiṣu jīva-yoniṣv
 > ātmecchayātma-kṛta-setu-parīpsayā yaḥ
 > reme nirasta-viṣayo 'py avaruddha-dehas

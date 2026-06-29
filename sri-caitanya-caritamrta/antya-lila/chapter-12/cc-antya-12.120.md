@@ -1,5 +1,8 @@
 ### CC Antya 12.120
 
+> তৈল ভাঙ্গি’ সেই পথে নিজ-ঘর গিয়া ।
+> শুইয়া রহিলা ঘরে কপাট খিলিয়া ॥১২০॥
+
 > taila bhāṅgi' sei pathe nija-ghara giyā
 > śuiyā rahilā ghare kapāṭa khiliyā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 25.198
 
+> প্রভু কহে, — ইহাঁ হৈতে যাহ’ বৃন্দাবন ।
+> নিরন্তর কর কৃষ্ণনামসংকীর্তন ॥১৯৮॥
+
 > prabhu kahe,-ihāṅ haite yāha' vṛndāvana
 > nirantara kara kṛṣṇa-nāma-saṅkīrtana
 

@@ -1,5 +1,8 @@
 ### CC Antya 7.38
 
+> দামোদর-স্বরূপ — ‘প্রেমরস’ মূর্তিমান্ ।
+> যাঁর সঙ্গে হৈল ব্রজ-মধুর-রস-জ্ঞান ॥৩৮॥
+
 dāmodara-svarūpa--'prema-rasa' mūrtimān
 
 yāṅra saṅge haila vraja-madhura-rasa-jñāna

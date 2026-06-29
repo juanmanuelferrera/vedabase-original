@@ -1,5 +1,8 @@
 ### CC Antya 4.78
 
+> tomāra śarīra—mora pradhāna 'sādhana'
+> e śarīre sādhimu āmi bahu prayojana
+
 > tomāra śarīra--mora pradhāna 'sādhana'
 > e śarīre sādhimu āmi bahu prayojana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 14.40
 
+> প্রভু না খাইলে, কেহ না করে ভোজন ।
+> স্বরূপ-গোসাঞি তবে কৈল নিবেদন ॥৪০॥
+
 prabhu nā khāile, keha nā kare bhojana
 
 svarupa-gosāñi tabe kaila nivedana

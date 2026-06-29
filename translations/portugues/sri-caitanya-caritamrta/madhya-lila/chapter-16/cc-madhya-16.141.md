@@ -1,5 +1,8 @@
 ### CC Madhya 16.141
 
+> মোর সুখ চাহ যদি, নীলাচলে চল ।
+> আমার শপথ, যদি আর কিছু বল ॥১৪১॥
+
 mora sukha cāha yadi, nīlācale cala
 
 āmāra śapatha, yadi āra kichu bala

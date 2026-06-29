@@ -1,5 +1,8 @@
 ### CC Madhya 25.146
 
+> সর্ববেদান্তসারং হি শ্রীমদ্ভাগবতমিষ্যতে ।
+> তদ্রসামৃততৃপ্তস্য নান্যত্র স্যাদ্রতিঃ ক্বচিৎ ॥১৪৬॥
+
 > sarva-vedānta-sāraṁ hi
 > śrīmad-bhāgavatam iṣyate
 > tad-rasāmṛta-tṛptasya

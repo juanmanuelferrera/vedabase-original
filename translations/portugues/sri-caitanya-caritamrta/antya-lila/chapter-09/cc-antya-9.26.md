@@ -1,5 +1,8 @@
 ### CC Antya 9.26
 
+> ‘আমার ঘোড়া গ্রীবা না ফিরায় ঊর্ধ্বে নাহি চায়  ।
+> তাতে ঘোড়ার মূল্য ঘাটি করিতে না যুয়ায় ।।’ ২৬ ॥২৬॥
+
 'āmāra ghoḍā grīvā nā phirāya ūrdhve nāhi cāya
 
 tāte ghoḍāra mūlya ghāṭi karite nā yuyāya'

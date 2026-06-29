@@ -1,5 +1,8 @@
 ### CC Madhya 14.157
 
+> গোপিকার প্রেমে নাহি রসাভাস-দোষ ৷
+> অতএব কৃষ্ণের করে পরম সন্তোষ ॥১৫৭॥
+
 > gopikāra preme nāhi rasābhāsa-doṣa
 > ataeva kṛṣṇera kare parama santoṣa
 

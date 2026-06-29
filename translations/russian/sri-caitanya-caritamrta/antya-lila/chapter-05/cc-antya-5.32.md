@@ -1,5 +1,8 @@
 ### CC Antya 5.32
 
+> অতিকাল দেখি’ মিশ্র কিছু না কহিল ।
+> বিদায় হইয়া মিশ্র নিজঘর গেল ॥৩২॥
+
 > atikāla dekhi' miśra kichu nā kahila
 > vidāya ha-iyā miśra nija-ghara gela
 

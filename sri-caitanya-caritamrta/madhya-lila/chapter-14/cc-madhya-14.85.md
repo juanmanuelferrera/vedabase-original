@@ -1,5 +1,8 @@
 ### CC Madhya 14.85
 
+> গোপীনাথ কহে, — তোমার কৃপা-মহাসিন্ধু ।
+> উছলিত করে যবে তার এক বিন্দু ॥৮৫॥
+
 > gopīnātha kahe,-tomāra kṛpā-mahāsindhu
 > uchalita kare yabe tāra eka bindu
 

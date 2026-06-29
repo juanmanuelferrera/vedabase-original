@@ -1,5 +1,8 @@
 ### SB 1.15.16
 
+> यद्दोःषु मा प्रणिहितं गुरुभीष्मकर्ण नप्तृत्रिगर्तशल्यसैन्धवबाह्लिकाद्यैः ।
+> अस्त्राण्यमोघमहिमानि निरूपितानि नोपस्पृशुर्नृहरिदासमिवासुराणि ॥१६॥
+
 > yad-doḥṣu mā praṇihitaṁ guru-bhīṣma-karṇa-
 > naptṛ-trigarta-śalya-saindhava-bāhlikādyaiḥ
 > astrāṇy amogha-mahimāni nirūpitāni

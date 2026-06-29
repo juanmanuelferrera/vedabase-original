@@ -1,5 +1,8 @@
 ### CC Madhya 9.302
 
+> এইমত দুইজনে ইষ্টগোষ্ঠী করি’ ৷
+> দ্বারকা দেখিতে চলিলা শ্রীরঙ্গপুরী ৷৷ ৩০২ ৷৷ ॥৩০২॥
+
 > ei-mata dui-jane iṣṭa-goṣṭhī kari'
 > dvārakā dekhite calilā śrī-raṅga-purī
 

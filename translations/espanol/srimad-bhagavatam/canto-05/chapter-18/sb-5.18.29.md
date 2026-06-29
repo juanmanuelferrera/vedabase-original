@@ -1,5 +1,7 @@
 ### SB 5.18.29
 
+> हिरण्मयेऽपि भगवान्निवसति कूर्मतनुं बिभ्राणस्तस्य तत्प्रियतमां तनुमर्यमा सहवर्षपुरुषैः पितृगणाधिपतिरुपधावति मन्त्रमिमं चानुजपति ॥२९॥
+
 > hiraṇmaye 'pi bhagavān nivasati kūrma-tanuṁ bibhrāṇas tasya tat priyatamāṁ tanum aryamā saha varṣa-puruṣaiḥ pitṛ-gaṇādhipatir upadhāvati mantram imaṁ cānujapati.
 
 *hiraṇmaye*—en Hiraṇmaya-varṣa; *api*—en verdad; *bhagavān*—la Suprema Personalidad de Dios; *nivasati*—reside; *kūrma-tanum*—el cuerpo de una tortuga; *bibhrāṇaḥ*—manifestando; *tasya*—de la Suprema Personalidad de Dios; *tat*—ese; *priya-tamām*—sumamente querido; *tanum*—cuerpo; *aryamā*—Aryamā, el principal habitante de Hiraṇmaya-varṣa; *saha*—con; *varṣa-puruṣaiḥ*—los habitantes de esa región; *pitṛ-gaṇa-adhipatiḥ*—que es el príncipe de los *pitās*; *upadhāvati*—adora mediante el servicio devocional; *mantram*—himno; *imam*—este; *ca*—también; *anujapati*—canta.

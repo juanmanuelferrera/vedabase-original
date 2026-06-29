@@ -1,5 +1,8 @@
 ### CC Madhya 8.256
 
+> ‘উপাস্যের মধ্যে কোন্ উপাস্য প্রধান?’
+> ‘শ্রেষ্ঠ উপাস্য — যুগল ‘রাধাকৃষ্ণ’ নাম ।।’ ॥২৫৬॥
+
 > 'upāsyera madhye kon upāsya pradhāna?'
 > 'śreṣṭha upāsya--yugala 'rādhā-kṛṣṇa' nāma'
 

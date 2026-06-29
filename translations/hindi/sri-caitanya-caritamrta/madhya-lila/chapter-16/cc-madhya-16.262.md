@@ -1,5 +1,8 @@
 ### CC Madhya 16.262
 
+> বিদ্যা-ভক্তি-বুদ্ধি-বলে পরম প্রবীণ ।
+> তবু আপনাকে মানে তৃণ হৈতে হীন ॥২৬২॥
+
 > vidyā-bhakti-buddhi-bale parama pravīṇa
 > tabu āpanāke māne tṛṇa haite hīna
 

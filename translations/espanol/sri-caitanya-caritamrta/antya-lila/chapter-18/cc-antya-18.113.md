@@ -1,5 +1,8 @@
 ### CC Antya 18.113
 
+> এই জালিয়া জালে করি’ তোমা উঠাইল ।
+> তোমার পরশে এই প্রেমে মত্ত হইল ॥১১৩॥
+
 > ei jāliyā jāle kari' tomā uṭhāila
 > tomāra paraśe ei preme matta ha-ila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 19.139
 
+> কেশাগ্র-শতেক-ভাগ পুনঃ শতাংশ করি ।
+> তার সম সূক্ষ্ম জীবের ‘স্বরূপ’ বিচারি ॥১৩৯॥
+
 > keśāgra-śateka-bhāga punaḥ śatāṁśa kari
 > tāra sama sūkṣma jīvera 'svarūpa' vicāri
 

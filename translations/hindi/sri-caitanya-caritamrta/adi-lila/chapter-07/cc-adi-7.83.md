@@ -1,5 +1,8 @@
 ### CC Adi 7.83
 
+> কৃষ্ণনাম-মহামন্ত্রের এই ত’ স্বভাব ।
+> যেই জপে, তার কৃষ্ণে উপজয়ে ভাব ॥৮৩॥
+
 > kṛṣṇa-nāma-mahā-mantrera ei ta' svabhāva
 > yei jape, tāra kṛṣṇe upajaye bhāva
 

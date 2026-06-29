@@ -1,5 +1,8 @@
 ### CC Antya 4.149
 
+> সনাতন ভাগি’ পাছে করেন গমন ।
+> বলাৎকারে ধরি, প্রভু কৈলা আলিঙ্গন ॥১৪৯॥
+
 sanātana bhāgi' pāche karena gamana
 
 balātkāre dhari, prabhu kailā āliṅgana

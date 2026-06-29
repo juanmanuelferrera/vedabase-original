@@ -1,5 +1,8 @@
 ### CC Madhya 13.58
 
+> সার্বভৌম-সঙ্গে রাজা করে ঠারাঠারি ।
+> আর কেহ নাহি জানে চৈতন্যের চুরি ॥৫৮॥
+
 > sārvabhauma-saṅge rājā kare ṭhārāṭhāri
 > āra keha nāhi jāne caitanyera curi
 

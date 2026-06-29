@@ -1,5 +1,8 @@
 ### CC Madhya 5.62
 
+> তোমরা সকল লোক করহ বিচারে ।
+> ‘মোর পিতার কন্যা দিতে যোগ্য কি ইহারে ।।’ ॥ ৬২ ॥
+
 tomarā sakala loka karaha vicāre
 
 'mora pitāra kanyā dite yogya ki ihāre'

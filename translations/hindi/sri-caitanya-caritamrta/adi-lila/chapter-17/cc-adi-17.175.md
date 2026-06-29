@@ -1,5 +1,8 @@
 ### CC Adi 17.175
 
+> কাজী বলে, — সভে তোমায় বলে ‘গৌরহরি’ ।
+> সেই নামে আমি তোমায় সম্বোধন করি ॥১৭৫॥
+
 > kājī bale—sabhe tomāya bale 'gaurahari'
 > sei nāme āmi tomāya sambodhana kari
 

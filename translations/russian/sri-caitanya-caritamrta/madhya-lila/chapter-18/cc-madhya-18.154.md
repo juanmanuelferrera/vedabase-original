@@ -1,5 +1,8 @@
 ### CC Madhya 18.154
 
+> যে তোমার ইচ্ছা, আমি সেইত করিব ।
+> যাহাঁ লঞা যাহ তুমি, তাহাঁই যাইব ।।” ॥ ১৫৪ ॥
+
 > ye tomāra icchā, āmi seita kariba
 > yāhāṅ lañā yāha tumi, tāhāṅi yāiba"
 

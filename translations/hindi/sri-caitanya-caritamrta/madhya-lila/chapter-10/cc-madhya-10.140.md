@@ -1,5 +1,8 @@
 ### CC Madhya 10.140
 
+> মর্যাদা হৈতে কোটি সুখ স্নেহ-আচরণে ।
+> পরমানন্দ হয় যার নাম-শ্রবণে ॥১৪০॥
+
 > maryādā haite koṭi sukha sneha-ācaraṇe
 > paramānanda haya yāra nāma-śravaṇe
 

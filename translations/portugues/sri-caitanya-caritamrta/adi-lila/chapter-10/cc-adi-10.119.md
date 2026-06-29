@@ -1,5 +1,8 @@
 ### CC Adi 10.119
 
+> ভাগবতাচার্য, চিরঞ্জীব, শ্রীরঘুনন্দন ।
+> মাধবাচার্য কমলাকান্ত, শ্রীযদুনন্দন ॥১১৯॥
+
 bhāgavatācārya, cirañjīva śrī-raghunandana
 
 mādhavācārya, kamalākānta, śrī-yadunandana

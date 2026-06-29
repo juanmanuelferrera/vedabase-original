@@ -1,5 +1,8 @@
 ### CC Madhya 5.32
 
+> গোপালের আগে বিপ্র কহিতে লাগিল ।
+> “তুমি জান, নিজ-কন্যা ইহারে আমি দিল ।।” ॥৩২॥
+
 > gopālera āge vipra kahite lāgila
 > 'tumi jāna, nija-kanyā ihāre āmi dila'
 

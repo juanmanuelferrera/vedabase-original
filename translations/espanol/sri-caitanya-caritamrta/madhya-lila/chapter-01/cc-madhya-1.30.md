@@ -1,5 +1,8 @@
 ### CC Madhya 1.30
 
+> এই মত লোকে চৈতন্য-ভক্তি লওয়াইল ।
+> দীনহীন, নিন্দক, সবারে নিস্তারিল ॥৩০॥
+
 > ei mata loke caitanya-bhakti laoyāila
 > dīna-hīna, nindaka, sabāre nistārila
 

@@ -1,5 +1,8 @@
 ### SB 8.3.17
 
+> मादृक्प्रपन्नपशुपाशविमोक्षणाय मुक्ताय भूरिकरुणाय नमोऽलयाय
+> स्वांशेन सर्वतनुभृन्मनसि प्रतीत प्रत्यग्दृशे भगवते बृहते नमस्ते ॥१७॥
+
 mādṛk prapanna-paśu-pāśa-vimokṣaṇāya
 muktāya bhūri-karuṇāya namo 'layāya
 svāṁśena sarva-tanu-bhṛn-manasi pratīta-

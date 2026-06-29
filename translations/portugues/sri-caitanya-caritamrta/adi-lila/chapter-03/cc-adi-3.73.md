@@ -1,5 +1,8 @@
 ### CC Adi 3.73
 
+> অঙ্গোপাঙ্গ তীক্ষ্ণ অস্ত্র প্রভুর সহিতে ।
+> সেই সব অস্ত্র হয় পাষণ্ড দলিতে ॥৭৩॥
+
 aṅgopāṅga tīkṣṇa astra prabhura sahite
 sei saba astra haya pāṣaṇḍa dalite
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.53
 
+> নিত্য যাই’ দেখি মুঞি তাঁহার চরণে ।
+> স্ফূর্তি-জ্ঞানে তেঁহো তাহা সত্য নাহি মানে ॥৫৩॥
+
 > nitya yāi' dekhi muñi tāṅhāra caraṇe
 > sphūrti-jñāne teṅho tāhā satya nāhi māne
 

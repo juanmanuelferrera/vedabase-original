@@ -1,5 +1,8 @@
 ### CC Madhya 11.7
 
+> বিরক্ত সন্ন্যাসী আমার রাজ-দরশন ।
+> স্ত্রী-দরশন-সম বিষের ভক্ষণ ॥৭॥
+
 > virakta sannyāsī āmāra rāja-daraśana
 > strī-daraśana-sama viṣera bhakṣaṇa
 

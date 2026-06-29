@@ -1,5 +1,8 @@
 ### CC Madhya 23.4
 
+> কৃষ্ণে রতি গাঢ় হৈলে ‘প্রেম’-অভিধান ৷
+> কৃষ্ণভক্তি-রসের এই ‘স্থায়িভাব’-নাম ॥৪॥
+
 > kṛṣṇe rati gāḍha haile 'prema'-abhidhāna
 > kṛṣṇa-bhakti-rasera ei 'sthāyi-bhāva'-nāma
 

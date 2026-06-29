@@ -1,5 +1,8 @@
 ### CC Antya 5.157
 
+> তবে সব ভক্ত তারে অঙ্গীকার কৈলা ।
+> তার গুণ কহি’ মহাপ্রভুরে মিলাইলা ॥১৫৭॥
+
 tabe saba bhakta tāre aṅgīkāra kailā
 
 tāra guṇa kahi' mahāprabhure milāilā

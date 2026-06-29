@@ -1,5 +1,10 @@
 ### CC Adi 13.99
 
+> সেইকালে নিজালয়, উঠিয়া অদ্বৈত রায়,
+> নৃত্য করে আনন্দিত-মনে ।
+> হরিদাসে লঞা সঙ্গে, হুঙ্কার-কীর্তন-রঙ্গে,
+> কেনে নাচে, কেহ নাহি জানে ॥৯৯॥
+
 sei-kāle nijālaya, uṭhiyā advaita rāya,
 nṛtya kare ānandita-mane
 haridāse lañā saṅge, huṅkāra-kīrtana-raṅge

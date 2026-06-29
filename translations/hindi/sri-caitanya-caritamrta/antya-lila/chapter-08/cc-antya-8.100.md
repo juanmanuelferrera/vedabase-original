@@ -1,5 +1,8 @@
 ### CC Antya 8.100
 
+> যদ্যপি গুরুবুদ্ধ্যে প্রভু তার দোষ না লইল ।
+> তার ফলদ্বারা লোকে শিক্ষা করাইল ॥১০০॥
+
 > yadyapi guru-buddhye prabhu tāra doṣa nā la-ila
 > tāra phala-dvārā loke śikṣā karāila
 

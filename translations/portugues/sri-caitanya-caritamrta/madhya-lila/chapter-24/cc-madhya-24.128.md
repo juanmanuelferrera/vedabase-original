@@ -1,5 +1,8 @@
 ### CC Madhya 24.128
 
+> অস্মিন্ সুখঘনমূর্তৌ পরমাত্মনি বৃষ্ণিপত্তনে স্ফুরতি ।
+> আত্মারামতয়া মে বৃথা গতো বত চিরং কালঃ ॥১২৮॥
+
 asmin sukha-ghana-mūrtau param-
 
 ātmani vṛṣṇi-pattane sphurati

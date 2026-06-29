@@ -1,5 +1,8 @@
 ### CC Antya 11.62
 
+> হরিদাস-ঠাকুরে তবে বিমানে চড়াঞা ।
+> সমুদ্রে লঞা গেলা তবে কীর্তন করিয়া ॥৬২॥
+
 haridāsa-ṭhākure tabe vimāne caḍāñā
 
 samudre lañā gelā tabe kīrtana kariyā

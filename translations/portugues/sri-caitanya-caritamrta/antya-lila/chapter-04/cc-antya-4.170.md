@@ -1,5 +1,8 @@
 ### CC Antya 4.170
 
+> বহিরঙ্গ-জ্ঞানে তোমারে না করি স্তবন ।
+> তোমার গুণে স্তুতি করায় যৈছে তোমার গুণ ॥১৭০॥
+
 bahiraṅga-jñāne tomāre nā kari stavana
 
 tomāra guṇe stuti karāya yaiche tomāra guna

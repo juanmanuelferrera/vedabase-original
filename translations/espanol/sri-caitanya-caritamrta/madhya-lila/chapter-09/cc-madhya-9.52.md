@@ -1,5 +1,8 @@
 ### CC Madhya 9.52
 
+> প্রভুকে বৈষ্ণব জানি’ বৌদ্ধ ঘরে গেল ৷
+> সকল বৌদ্ধ মিলি’ তবে কুমন্ত্রণা কৈল ৷৷ ৫২ ৷৷ ॥৫২॥
+
 > prabhuke vaiṣṇava jāni' bauddha ghare gela
 > sakala bauddha mili' tabe kumantraṇā kaila
 

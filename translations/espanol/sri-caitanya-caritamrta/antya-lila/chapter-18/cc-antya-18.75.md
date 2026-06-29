@@ -1,5 +1,8 @@
 ### CC Antya 18.75
 
+> কতক্ষণে প্রভুর কাণে শব্দ পরশিল ।
+> হুঙ্কার করিয়া প্রভু তবহি উঠিল ॥৭৫॥
+
 > kata-kṣaṇe prabhura kāṇe śabda paraśila
 > huṅkāra kariyā prabhu tabahi uṭhila
 

@@ -1,5 +1,8 @@
 ### CC Adi 2.88
 
+> যাঁর ভগবত্তা হৈতে অন্যের ভগবত্তা ।
+> ‘স্বয়ং-ভগবান্’-শব্দের তাহাতেই সত্তা ॥৮৮॥
+
 > yāṅra bhagavattā haite anyera bhagavattā
 > 'svayaṁ-bhagavān'-śabdera tāhātei sattā
 

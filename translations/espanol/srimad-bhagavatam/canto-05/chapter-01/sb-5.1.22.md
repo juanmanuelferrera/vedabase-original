@@ -1,5 +1,7 @@
 ### SB 5.1.22
 
+> मनुरपि परेणैवं प्रतिसन्धितमनोरथः सुरर्षिवरानुमतेनात्मजमखिलधरामण्डलस्थितिगुप्तय आस्थाप्य स्वयमतिविषमविषयविषजलाशयाशाया उपरराम ॥२२॥
+
 > manur api pareṇaivaṁ pratisandhita-manorathaḥ surarṣi-varānumatenātmajam akhila-dharā-maṇḍala-sthiti-guptaya āsthāpya svayam ati-viṣama-viṣaya-viṣa-jalāśayāśāyā upararāma.
 
 *manuḥ*—Svāyambhuva Manu; *api*—también; *pareṇa*—por el Señor Brahmā; *evam*—de este modo; *pratisandhita*—cumplió; *manaḥ-rathaḥ*—la aspiración de su mente; *sura-ṛṣi-vara*—del gran sabio Nārada; *anumatena*—con el permiso; *ātma-jam*—a su hijo; *akhila*—del universo entero; *dharā-maṇḍala*—de planetas; *sthiti*—mantenimiento; *guptaye*—para la protección; *āsthāpya*—establecer; *svayam*—personalmente; *ati-viṣama*—muy peligroso; *viṣaya*—asuntos materiales; *viṣa*—de veneno; *jala-āśaya*—océano; *āśāyāḥ*—de deseos; *upararāma*—se liberó.

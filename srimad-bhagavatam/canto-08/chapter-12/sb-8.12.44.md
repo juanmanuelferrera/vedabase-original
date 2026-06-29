@@ -1,5 +1,8 @@
 ### SB 8.12.44
 
+> यं मामपृच्छस्त्वमुपेत्य योगात्समासहस्रान्त उपारतं वै
+> स एष साक्षात्पुरुषः पुराणो न यत्र कालो विशते न वेदः ॥४४॥
+
 > yaṁ mām apṛcchas tvam upetya yogāt
 > samā-sahasrānta upārataṁ vai
 > sa eṣa sākṣāt puruṣaḥ purāṇo

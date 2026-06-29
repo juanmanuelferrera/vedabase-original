@@ -1,5 +1,8 @@
 ### CC Adi 17.1
 
+> বন্দে স্বৈরাদ্ভুতেহং তং চৈতন্যং যত্প্রসাদতঃ ।
+> যবনাঃ সুমনায়ন্তে কৃষ্ণনামপ্রজল্পকাঃ ॥১॥
+
 > vande svairādbhutehaṁ taṁ
 > caitanyaṁ yat-prasādataḥ
 > yavanāḥ sumanāyante

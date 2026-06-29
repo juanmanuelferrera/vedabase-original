@@ -1,5 +1,8 @@
 ### CC Madhya 9.30
 
+> কৃষির্ভূবাচকঃ শব্দো ণশ্চ নির্বৃতিবাচকঃ ।
+> তয়োরৈক্যং পরং ব্রহ্ম কৃষ্ণ ইত্যভিধীয়তে ॥৩০॥
+
 > kṛṣir bhū-vācakaḥ śabdo
 > ṇaś ca nirvṛti-vācakaḥ
 > tayor aikyaṁ paraṁ brahma

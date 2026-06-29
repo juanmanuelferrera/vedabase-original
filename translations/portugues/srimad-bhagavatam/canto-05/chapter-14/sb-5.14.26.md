@@ -1,5 +1,7 @@
 ### SB 5.14.26
 
+> क्वचिन्मिथो व्यवहरन्यत्किञ्चिद्धनमन्येभ्यो वा काकिणिकामात्रमप्यपहरन्यत्किञ्चिद्वा विद्वेषमेति वित्तशाठ्यात ॥२६॥
+
 *kvacin mitho vyavaharan yat kiñcid dhanam anyebhyo vā kākiṇikā*-mātram apy apaharan yat kiñcid vā vidveṣam eti vitta-śāṭhyāt.
 
 *kvacit*—às vezes; *mithaḥ*—uns com os outros; *vyavaharan*—negociando; *yat kiñcit*—qualquer pouquinho; *dhanam*—dinheiro; *anyebhyaḥ*—de outros; *vā*—ou; *kākiṇikā-mātram*—uma quantia muito pequena (vinte búzios); *api*—certamente; *apaharan*—tomando à força pela trapaça; *yat kiñcit*—qualquer pequena quantia; *vā*—ou; *vidveṣam eti*—cria inimizade; *vitta-śāṭhyāt*—por causa da trapaça.

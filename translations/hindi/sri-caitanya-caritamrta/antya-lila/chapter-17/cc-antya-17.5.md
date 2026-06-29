@@ -1,5 +1,8 @@
 ### CC Antya 17.5
 
+> যবে যেই ভাব প্রভুর করয়ে উদয় ।
+> ভাবানুরূপ গীত গায় স্বরূপ-মহাশয় ॥৫॥
+
 > yabe yei bhāva prabhura karaye udaya
 > bhāvānurūpa gīta gāya svarūpa-mahāśaya
 

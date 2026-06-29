@@ -1,5 +1,8 @@
 ### CC Antya 16.76
 
+> চৈতন্যপ্রভুর এই কৃপার মহিমা ।
+> ব্রহ্মাদি দেব যার নাহি পায় সীমা ॥৭৬॥
+
 > caitanya-prabhura ei kṛpāra mahimā
 > brahmādi deva yāra nāhi pāya sīmā
 

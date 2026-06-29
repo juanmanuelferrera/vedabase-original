@@ -1,5 +1,8 @@
 ### CC Madhya 10.118
 
+> সেই দামোদর আসি’ দণ্ডবৎ হৈলা ।
+> চরণে পড়িয়া শ্লোক পড়িতে লাগিলা ॥১১৮॥
+
 > sei dāmodara āsi' daṇḍavat hailā
 > caraṇe paḍiyā śloka paḍite lāgilā
 

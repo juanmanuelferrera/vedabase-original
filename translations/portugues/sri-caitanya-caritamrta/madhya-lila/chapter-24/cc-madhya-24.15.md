@@ -1,5 +1,8 @@
 ### CC Madhya 24.15
 
+> ‘মুনি’-শব্দে মননশীল, আর কহে মৌনী ।
+> তপস্বী, ব্রতী, যতি, আর ঋষি, মুনি ॥১৫॥
+
 'muni'-śabde manana-śīla, āra kahe maunī
 tapasvī vratī, yati, āra ṛṣi, muni
 

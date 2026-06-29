@@ -1,5 +1,8 @@
 ### CC Madhya 4.153
 
+> ঘাটী-দানী ছাড়াইতে রাজপাত্র-দ্বারে ।
+> রাজলেখা করি’ দিল পুরী-গোসাঞির করে ॥১৫৩॥
+
 > ghāṭī-dānī chāḍāite rāja-pātra dvāre
 > rāja-lekhā kari' dila purī-gosāñira kare
 

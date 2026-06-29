@@ -1,5 +1,8 @@
 ### CC Adi 14.32
 
+> মাটির বিকার ঘটে পানি ভরি’ আনি ।
+> মাটি-পিণ্ডে ধরি যবে, শোষি’ যায় পানি ।।” ॥ ৩২ ॥
+
 māṭira vikāra ghaṭe pāni bhari' āni
 
 māṭi-piṇḍe dhari yabe, śoṣi' yāya pāni"

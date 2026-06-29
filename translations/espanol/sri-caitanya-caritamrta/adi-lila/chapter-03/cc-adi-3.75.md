@@ -1,5 +1,8 @@
 ### CC Adi 3.75
 
+> শ্রীবাসাদি পারিষদ সৈন্য সঙ্গে লঞা ।
+> দুই সেনাপতি বুলে কীর্তন করিয়া ॥৭৫॥
+
 > śrīvāsādi pāriṣada sainya saṅge lañā
 > dui senā-pati bule kīrtana kariyā
 

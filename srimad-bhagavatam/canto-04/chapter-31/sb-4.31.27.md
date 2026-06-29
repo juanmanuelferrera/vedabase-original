@@ -1,5 +1,8 @@
 ### SB 4.31.27
 
+> यो नारदादात्मविद्यामधिगम्य पुनर्महीम् ।
+> भुक्त्वा विभज्य पुत्रेभ्य ऐश्वरं समगात्पदम् ॥२७॥
+
 > yo nāradād ātma-vidyām
 > adhigamya punar mahīm
 > bhuktvā vibhajya putrebhya

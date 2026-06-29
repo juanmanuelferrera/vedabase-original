@@ -1,5 +1,8 @@
 ### CC Madhya 11.65
 
+> সার্বভৌম নীলাচলে আইলা প্রভু লঞা ।
+> প্রভু আইলা, — রাজা-ঠাঞি কহিলেন গিয়া ॥৬৫॥
+
 > sārvabhauma nīlācale āilā prabhu lañā
 > prabhu āilā,-rājā-ṭhāñi kahilena giyā
 

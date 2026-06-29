@@ -1,5 +1,10 @@
 ### SB 7.9.26
 
+> क्वाहं रजःप्रभव ईश तमोऽधिकेऽस्मिन
+> जातः सुरेतरकुले क्व तवानुकम्पा
+> न ब्रह्मणो न तु भवस्य न वै रमाया
+> यन्मेऽर्पितः शिरसि पद्मकरः प्रसादः ॥२६॥
+
 > kvāhaṁ rajaḥ-prabhava īśa tamo 'dhike 'smin
 > jātaḥ suretara-kule kva tavānukampā
 > na brahmaṇo na tu bhavasya na vai ramāyā

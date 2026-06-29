@@ -1,5 +1,8 @@
 ### SB 8.21.8
 
+> जाम्बवानृक्षराजस्तु भेरीशब्दैर्मनोजवः
+> विजयं दिक्षु सर्वासु महोत्सवमघोषयत ॥८॥
+
 > jāmbavān ṛkṣa-rājas tu
 > bherī-śabdair mano-javaḥ
 > vijayaṁ dikṣu sarvāsu

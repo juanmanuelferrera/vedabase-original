@@ -1,5 +1,8 @@
 ### CC Madhya 17.136
 
+> অতঃ শ্রীকৃষ্ণনামাদি ন ভবেদ্গ্রাহ্যমিন্দ্রিয়ৈঃ ।
+> সেবোন্মুখে হি জিহ্বাদৌ স্বয়মেব স্ফুরত্যদঃ ॥১৩৬॥
+
 > ataḥ śrī-kṛṣṇa-nāmādi
 > na bhaved grāhyam indriyaiḥ
 > sevonmukhe hi jihvādau

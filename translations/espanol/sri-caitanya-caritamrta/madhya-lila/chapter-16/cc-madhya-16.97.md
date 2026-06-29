@@ -1,5 +1,8 @@
 ### CC Madhya 16.97
 
+> উড়িয়া-ভক্তগণে প্রভু যত্নে নিবারিলা ।
+> নিজগণ-সঙ্গে প্রভু ‘ভবানীপুর’ আইলা ॥৯৭॥
+
 > uḍiyā-bhakta-gaṇe prabhu yatne nivārilā
 > nija-gaṇa-saṅge prabhu 'bhavānīpura' āilā
 

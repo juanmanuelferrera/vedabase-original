@@ -1,5 +1,8 @@
 ### CC Adi 5.211
 
+> শ্রীমদনগোপাল-শ্রীগোবিন্দ-দরশন ।
+> কহিবার যোগ্য নহে এসব কথন ॥২১১॥
+
 > śrī-madana-gopāla-śrī-govinda-daraśana
 > kahibāra yogya nahe e-saba kathana
 

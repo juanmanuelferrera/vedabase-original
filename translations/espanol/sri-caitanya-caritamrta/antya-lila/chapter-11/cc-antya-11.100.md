@@ -1,5 +1,8 @@
 ### CC Antya 11.100
 
+> তবে মহাপ্রভু সব ভক্তে বিদায় দিলা ।
+> হর্ষ-বিষাদে প্রভু বিশ্রাম করিলা ॥১০০॥
+
 > tabe mahāprabhu saba bhakte vidāya dilā
 > harṣa-viṣāde prabhu viśrāma karilā
 

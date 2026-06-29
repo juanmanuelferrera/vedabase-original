@@ -1,5 +1,8 @@
 ### SB 4.14.21
 
+> तं सर्वलोकामरयज्ञसङ्ग्रहं त्रयीमयं द्रव्यमयं तपोमयम् ।
+> यज्ञैर्विचित्रैर्यजतो भवाय ते राजन्स्वदेशाननुरोद्धुमर्हसि ॥२१॥
+
 > taṁ sarva-lokāmara-yajña-saṅgrahaṁ
 > trayīmayaṁ dravyamayaṁ tapomayam
 > yajñair vicitrair yajato bhavāya te

@@ -1,5 +1,8 @@
 ### CC Madhya 1.176
 
+> যে তোমারে রাজ্য দিল, যে তোমার গোসাঞা ।
+> তোমার দেশে তোমার ভাগ্যে জন্মিলা আসিঞা ॥১৭৬॥
+
 > ye tomāre rājya dila, ye tomāra gosāñā
 > tomāra deśe tomāra bhāgye janmilā āsiñā
 

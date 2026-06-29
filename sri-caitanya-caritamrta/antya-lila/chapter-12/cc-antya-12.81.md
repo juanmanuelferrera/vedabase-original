@@ -1,5 +1,8 @@
 ### CC Antya 12.81
 
+> নিত্যানন্দে কহিলা — “তুমি না আসিহ বারবার ।
+> তথাই আমার সঙ্গ হইবে তোমার ।।” ॥ ৮১ ॥
+
 > nityānande kahilā—"tumi nā āsiha bāra-bāra
 > tathāi āmāra saṅga ha-ibe tomāra"
 

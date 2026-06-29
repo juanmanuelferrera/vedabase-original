@@ -1,5 +1,8 @@
 ### CC Madhya 14.84
 
+> পণ্ডিত, গম্ভীর, দুঁহে — প্রামাণিক জন  ।
+> বাল-চাঞ্চল্য করে, করাহ বর্জন ॥৮৪॥
+
 paṇḍita, gambhīra, duṅhe-prāmāṇika jana
 
 bāla-cāñcalya kare, karāha varjana

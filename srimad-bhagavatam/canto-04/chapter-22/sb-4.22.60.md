@@ -1,5 +1,8 @@
 ### SB 4.22.60
 
+> मातरिश्वेव सर्वात्मा बलेन महसौजसा ।
+> अविषह्यतया देवो भगवान्भूतराडिव ॥६०॥
+
 > mātariśveva sarvātmā
 > balena mahasaujasā
 > aviṣahyatayā devo

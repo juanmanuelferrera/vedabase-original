@@ -1,5 +1,8 @@
 ### CC Adi 13.78
 
+> অতএব প্রভু তাঁরে বলে, ‘বড় ভাই’ ।
+> কৃষ্ণ, বলরাম দুই — চৈতন্য, নিতাই ॥৭৮॥
+
 ataeva prabhu tāṅre bale, 'baḍa bhāi'
 kṛṣṇa, balarāma dui--caitanya, nitāi
 

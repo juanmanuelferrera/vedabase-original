@@ -1,5 +1,8 @@
 ### CC Adi 8.7
 
+> এই সব না মানে যেবা করে কৃষ্ণভক্তি ।
+> কৃষ্ণ-কৃপা নাহি তারে, নাহি তার গতি ॥৭॥
+
 ei saba nā māne yebā kare kṛṣṇa-bhakti
 kṛṣṇa-kṛpā nāhi tāre, nāhi tāra gati
 

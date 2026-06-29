@@ -1,5 +1,8 @@
 ### CC Madhya 15.261
 
+> চৈতন্য-গোসাঞির নিন্দা শুনিল যাহা হৈতে  ।
+> তারে বধ কৈলে হয় পাপ-প্রায়শ্চিত্তে ॥২৬১॥
+
 caitanya-gosāñira nindā śunila yāhā haite
 
 tāre vadha kaile haya pāpa-prāyaścitte

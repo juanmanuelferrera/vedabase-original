@@ -1,5 +1,8 @@
 ### CC Madhya 1.18
 
+> শেষলীলার ‘মধ্য’ ‘অন্ত’, — দুই নাম হয় ।
+> লীলাভেদে বৈষ্ণব সব নাম-ভেদ কয় ॥১৮॥
+
 > śeṣa-līlāra 'madhya' 'antya',--dui nāma haya
 > līlā-bhede vaiṣṇava saba nāma-bheda kaya
 

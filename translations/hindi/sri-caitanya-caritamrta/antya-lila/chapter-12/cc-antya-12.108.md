@@ -1,5 +1,8 @@
 ### CC Antya 12.108
 
+> প্রভু কহে, — “সন্ন্যাসীর নাহি তৈলে অধিকার ।
+> তাহাতে সুগন্ধি তৈল, — পরম ধিক্কার ! ॥ ১০৮ ॥
+
 > prabhu kahe,--"sannyāsīra nāhi taile adhikāra
 > tāhāte sugandhi taila,--parama dhikkāra!
 

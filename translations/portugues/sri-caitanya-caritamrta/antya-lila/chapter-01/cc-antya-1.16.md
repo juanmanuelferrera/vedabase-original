@@ -1,5 +1,8 @@
 ### CC Antya 1.16
 
+> শিবানন্দ করে সবার ঘাটি সমাধান ।
+> সবারে পালন করে, দেয় বাসা-স্থান ॥১৬॥
+
 śivānanda kare sabāra ghāṭi samādhāna
 
 sabāre pālana kare, deya vāsā-sthāna

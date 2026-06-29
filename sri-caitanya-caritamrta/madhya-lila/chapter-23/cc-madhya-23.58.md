@@ -1,5 +1,8 @@
 ### CC Madhya 23.58
 
+> অধিরূঢ়-মহাভাব — দুই ত’ প্রকার ।
+> সম্ভোগে ‘মাদন’, বিরহে ‘মোহন’ নাম তার ॥৫৮॥
+
 > adhirūḍha-mahābhāva—dui ta' prakāra
 > sambhoge 'mādana', virahe 'mohana' nāma tāra
 

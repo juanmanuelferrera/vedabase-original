@@ -1,5 +1,8 @@
 ### SB 1.8.40
 
+> इमे जनपदाः स्वृद्धाः सुपक्वौषधिवीरुधः ।
+> वनाद्रिनद्युदन्वन्तो ह्येधन्ते तव वीक्षितैः ॥४०॥
+
 > ime jana-padāḥ svṛddhāḥ
 > supakvauṣadhi-vīrudhaḥ
 > vanādri-nady-udanvanto

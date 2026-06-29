@@ -1,5 +1,8 @@
 ### CC Madhya 10.120
 
+> উঠাঞা মহাপ্রভু কৈল আলিঙ্গন ।
+> দুইজনে প্রেমাবেশে হৈল অচেতন ॥১২০॥
+
 > uṭhāñā mahāprabhu kaila āliṅgana
 > dui-jane premāveśe haila acetana
 

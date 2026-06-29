@@ -1,5 +1,8 @@
 ### CC Antya 12.13
 
+> দত্ত, গুপ্ত, বিদ্যানিধি, আর যত জন ।
+> দুই-তিন শত ভক্ত করিলা গমন ॥১৩॥
+
 > datta, gupta, vidyānidhi, āra yata jana
 > dui-tina śata bhakta karilā gamana
 

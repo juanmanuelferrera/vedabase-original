@@ -1,5 +1,8 @@
 ### CC Antya 6.240
 
+> এত শুনি’ রঘুনাথ বন্দিলা চরণ ।
+> মহাপ্রভু কৈলা তাঁরে কৃপা-আলিঙ্গন ॥২৪০॥
+
 > eta śuni' raghunātha vandilā caraṇa
 > mahāprabhu kailā tāṅre kṛpā-āliṅgana
 

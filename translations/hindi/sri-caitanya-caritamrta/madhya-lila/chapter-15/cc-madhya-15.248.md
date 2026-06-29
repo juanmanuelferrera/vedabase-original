@@ -1,5 +1,8 @@
 ### CC Madhya 15.248
 
+> এই অন্নে তৃপ্ত হয় দশ বার জন ।
+> একেলা সন্ন্যাসী করে এতেক ভক্ষণ ! ॥ ২৪৮ ॥
+
 > ei anne tṛpta haya daśa bāra jana
 > ekelā sannyāsī kare eteka bhakṣaṇa!
 

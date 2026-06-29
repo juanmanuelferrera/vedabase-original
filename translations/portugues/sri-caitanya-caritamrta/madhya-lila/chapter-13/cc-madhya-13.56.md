@@ -1,5 +1,8 @@
 ### CC Madhya 13.56
 
+> প্রতাপরুদ্রের হৈল পরম বিস্ময় ।
+> দেখিতে বিবশ রাজা হৈল প্রেমময় ॥৫৬॥
+
 pratāparudrera haila parama vismaya
 
 dekhite vivaśa rājā haila premamaya

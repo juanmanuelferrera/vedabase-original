@@ -1,5 +1,8 @@
 ### SB 7.15.5
 
+> देशे काले च सम्प्राप्ते मुन्यन्नं हरिदैवतम
+> श्रद्धया विधिवत्पात्रे न्यस्तं कामधुगक्षयम ॥५॥
+
 > deśe kāle ca samprāpte
 > muny-annaṁ hari-daivatam
 > śraddhayā vidhivat pātre

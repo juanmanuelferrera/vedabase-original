@@ -1,5 +1,8 @@
 ### SB 4.6.9
 
+> जन्मौषधितपोमन्त्र योगसिद्धैर्नरेतरैः ।
+> जुष्टं किन्नरगन्धर्वैरप्सरोभिर्वृतं सदा ॥९॥
+
 > janmauṣadhi-tapo-mantra-
 > yoga-siddhair naretaraiḥ
 > juṣṭaṁ kinnara-gandharvair

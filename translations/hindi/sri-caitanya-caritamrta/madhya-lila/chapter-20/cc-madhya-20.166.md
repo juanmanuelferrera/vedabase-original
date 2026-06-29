@@ -1,5 +1,8 @@
 ### CC Madhya 20.166
 
+> ‘স্বয়ংরূপ’ ‘স্বয়ংপ্রকাশ,’ — দুই রূপে স্ফূর্তি ।
+> স্বয়ংরূপে — এক ‘কৃষ্ণ’ ব্রজে গোপমূর্তি ॥১৬৬॥
+
 > 'svayaṁ-rūpa' 's va yaṁ-prakāśa'--dui rūpe sphūrti
 > svayaṁ-rūpe--eka 'kṛṣṇa' vraje gopa-mūrti
 

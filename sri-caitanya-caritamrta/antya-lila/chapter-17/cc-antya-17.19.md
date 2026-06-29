@@ -1,5 +1,8 @@
 ### CC Antya 17.19
 
+> অনেক করিলা যত্ন, না হয় চেতন ।
+> প্রভুরে উঠাইয়া ঘরে আনিলা ভক্তগণ ॥১৯॥
+
 > aneka karilā yatna, nā haya cetana
 > prabhure uṭhāñā ghare ānilā bhakta-gaṇa
 

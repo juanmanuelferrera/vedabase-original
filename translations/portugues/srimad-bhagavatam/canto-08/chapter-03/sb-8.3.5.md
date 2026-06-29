@@ -1,5 +1,8 @@
 ### SB 8.3.5
 
+> कालेन पञ्चत्वमितेषु कृत्स्नशो लोकेषु पालेषु च सर्वहेतुषु
+> तमस्तदासीद्गहनं गभीरं यस्तस्य पारेऽभिविराजते विभुः ॥५॥
+
 kālena pañcatvam iteṣu kṛtsnaśo
 lokeṣu pāleṣu ca sarva-hetuṣu
 tamas tadāsīd gahanaṁ gabhīraṁ

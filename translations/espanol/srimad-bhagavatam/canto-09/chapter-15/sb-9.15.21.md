@@ -1,5 +1,8 @@
 ### SB 9.15.21
 
+> विप्लावितं स्वशिबिरं प्रतिस्रोतःसरिज्जलैः
+> नामृष्यत्तस्य तद्वीर्यं वीरमानी दशाननः ॥२१॥
+
 > viplāvitaṁ sva-śibiraṁ
 > pratisrotaḥ-sarij-jalaiḥ
 > nāmṛṣyat tasya tad vīryaṁ

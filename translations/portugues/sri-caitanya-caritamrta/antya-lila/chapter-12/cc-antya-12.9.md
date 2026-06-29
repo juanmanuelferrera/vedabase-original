@@ -1,5 +1,8 @@
 ### CC Antya 12.9
 
+> কুলীনগ্রামবাসী আর যত খণ্ডবাসী ।
+> একত্র মিলিলা সব নবদ্বীপে আসি’ ॥৯॥
+
 kulīna-grāma-vāsī āra yata khaṇḍa-vāsī
 ekatra mililā saba navadvīpe āsi'
 

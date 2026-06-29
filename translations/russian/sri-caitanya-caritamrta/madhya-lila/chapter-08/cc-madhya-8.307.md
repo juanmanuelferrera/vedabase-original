@@ -1,5 +1,8 @@
 ### CC Madhya 8.307
 
+> ‘রসতত্ত্ব-জ্ঞান’ হয় ইহার শ্রবণে ।
+> ‘প্রেমভক্তি’ হয় রাধাকৃষ্ণের চরণে ॥৩০৭॥
+
 > 'rasa-tattva-jñāna' haya ihāra śravaṇe
 > 'prema-bhakti' haya rādhā-kṛṣṇera caraṇe
 

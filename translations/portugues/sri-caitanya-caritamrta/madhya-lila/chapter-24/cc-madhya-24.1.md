@@ -1,5 +1,8 @@
 ### CC Madhya 24.1
 
+> আত্মারামেতি পদ্যার্কস্যার্থাংশূন্ যঃ প্রকাশয়ন্ ।
+> জগত্তমো জহারাব্যাত্ স চৈতন্যোদয়াচলঃ ॥১॥
+
 ātmārāmeti padyārkasy-
 ārthāṁśūn yaḥ prakāśayan
 jagat-tamo jahārāvyāt

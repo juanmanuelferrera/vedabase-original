@@ -1,5 +1,8 @@
 ### SB 1.19.8
 
+> तत्रोपजग्मुर्भुवनं पुनाना महानुभावा मुनयः सशिष्याः ।
+> प्रायेण तीर्थाभिगमापदेशैः स्वयं हि तीर्थानि पुनन्ति सन्तः ॥८॥
+
 > tatropajagmur bhuvanaṁ punānā
 > mahānubhāvā munayaḥ sa-śiṣyāḥ
 > prāyeṇa tīrthābhigamāpadeśaiḥ

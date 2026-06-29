@@ -1,5 +1,8 @@
 ### CC Madhya 18.16
 
+> গোবর্ধন দেখি’ প্রভু হইলা দণ্ডবৎ ৷
+> ‘এক শিলা’ আলিঙ্গিয়া হইলা উন্মত্ত ॥১৬॥
+
 > govardhana dekhi' prabhu ha-ilā daṇḍavat
 > 'eka śilā' āliṅgiyā ha-ilā unmatta
 

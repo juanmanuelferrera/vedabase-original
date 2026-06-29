@@ -1,5 +1,8 @@
 ### CC Madhya 3.69
 
+> আচার্য কহে — বৈস দোঁহে পিঁড়ির উপরে ।
+> এত বলি’ হাতে ধরি’ বসাইল দুঁহারে ॥৬৯॥
+
 > ācārya kahe—vaisa doṅhe piṅḍira upare
 > eta bali' hāte dhari' vasāila duṅhāre
 

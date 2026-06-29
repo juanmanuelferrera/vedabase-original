@@ -1,5 +1,8 @@
 ### CC Antya 11.12
 
+> দিনে নৃত্য-কীর্তন, ঈশ্বর-দরশন ।
+> রাত্র্যে রায়-স্বরূপ-সনে রস-আস্বাদন ॥১২॥
+
 > dine nṛtya-kīrtana, īśvara-daraśana
 > rātrye rāya-svarūpa-sane rasa-āsvādana
 

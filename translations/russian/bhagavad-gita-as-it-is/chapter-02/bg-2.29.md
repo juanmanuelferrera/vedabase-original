@@ -1,5 +1,10 @@
 ### Bg 2.29
 
+> आश्चर्यवत्पश्यति कश्चिदेन-
+> माश्चर्यवद्वदति तथैव चान्यः ।
+> आश्चर्यवच्चैनमन्यः शृणोति
+> श्रुत्वाप्येनं वेद न चैव कश्चित् ॥२९॥
+
 > āścarya-vat paśyati kaścid enam
 > āścarya-vad vadati tathaiva cānyaḥ
 > āścarya-vac cainam anyaḥ śṛṇoti

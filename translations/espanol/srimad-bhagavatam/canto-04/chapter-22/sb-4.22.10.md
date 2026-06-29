@@ -1,5 +1,8 @@
 ### SB 4.22.10
 
+> अधना अपि ते धन्याः साधवो गृहमेधिनः ।
+> यद्गृहा ह्यर्हवर्याम्बु तृणभूमीश्वरावराः ॥१०॥
+
 > adhanā api te dhanyāḥ
 > sādhavo gṛha-medhinaḥ
 > yad-gṛhā hy arha-varyāmbu-

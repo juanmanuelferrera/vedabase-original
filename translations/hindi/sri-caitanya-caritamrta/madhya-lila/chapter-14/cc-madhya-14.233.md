@@ -1,5 +1,8 @@
 ### CC Madhya 14.233
 
+> লক্ষ্মী-দেবী যথাকালে গেলা নিজ-ঘর ।
+> প্রভু নৃত্য করে, হৈল তৃতীয় প্ৰহর ॥২৩৩॥
+
 > lakṣmī-devī yathā-kāle gelā nija-ghara
 > prabhu nṛtya kare, haila tṛtīya prahara
 

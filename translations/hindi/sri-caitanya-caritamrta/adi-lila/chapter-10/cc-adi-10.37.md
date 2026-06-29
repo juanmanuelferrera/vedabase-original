@@ -1,5 +1,8 @@
 ### CC Adi 10.37
 
+> শ্রীমান্পণ্ডিত শাখা — প্রভুর নিজ ভৃত্য ।
+> দেউটি ধরেন, যবে প্রভু করেন নৃত্য ॥৩৭॥
+
 > śrīmān-paṇḍita śākhā—prabhura nija bhṛtya
 > deuṭi dharena, yabe prabhu karena nṛtya
 

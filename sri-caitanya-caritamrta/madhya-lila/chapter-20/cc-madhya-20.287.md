@@ -1,5 +1,8 @@
 ### CC Madhya 20.287
 
+> তাঁর নাভিপদ্ম হৈতে উঠিল এক পদ্ম ।
+> সেই পদ্মে হইল ব্রহ্মার জন্ম-সদ্ম ॥২৮৭॥
+
 > tāṅra nābhi-padma haite uṭhila eka padma
 > sei padme ha-ila brahmāra janma-sadma
 

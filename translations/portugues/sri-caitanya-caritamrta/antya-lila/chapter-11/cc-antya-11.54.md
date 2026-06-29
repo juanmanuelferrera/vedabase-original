@@ -1,5 +1,8 @@
 ### CC Antya 11.54
 
+> স্ব-হৃদয়ে আনি’ ধরিল প্রভুর চরণ ।
+> সর্বভক্ত-পদরেণু মস্তক-ভূষণ ॥৫৪॥
+
 sva-hṛdaye āni' dharila prabhura caraṇa
 
 sarva-bhakta-pada-reṇu mastaka-bhūṣaṇa

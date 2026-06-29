@@ -1,5 +1,8 @@
 ### CC Adi 2.8
 
+> স্বয়ং ভগবান্ কৃষ্ণ, বিষ্ণু-পরতত্ত্ব ।
+> পূর্ণজ্ঞান পূর্ণানন্দ পরম মহত্ত্ব ॥৮॥
+
 > svayaṁ bhagavān kṛṣṇa, viṣṇu-paratattva
 > pūrṇa-jñāna pūrṇānanda parama mahattva
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.246
 
+> নারদ কহে, — “ইহা আমি কিছু নাহি চাহি ।
+> আর একদান আমি মাগি তোমা-ঠাঞি ॥২৪৬॥
+
 nārada kahe,--"ihā āmi kichu nāhi cāhi
 
 āra eka-dāna āmi māgi tomā-ṭhāñi

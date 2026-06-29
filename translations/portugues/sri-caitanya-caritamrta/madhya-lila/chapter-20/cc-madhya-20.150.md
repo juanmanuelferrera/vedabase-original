@@ -1,5 +1,8 @@
 ### CC Madhya 20.150
 
+> বৈকুণ্ঠ, ব্রহ্মাণ্ডগণ — শক্তি-কার্য হয় ।
+> স্বরূপশক্তি শক্তি-কার্যের — কৃষ্ণ সমাশ্রয় ॥১৫০॥
+
 vaikuṇṭha, brahmāṇḍa-gaṇa--śakti-kārya haya
 
 svarūpa-śakti śakti-kāryera--kṛṣṇa samāśraya

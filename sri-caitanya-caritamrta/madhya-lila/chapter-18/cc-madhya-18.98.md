@@ -1,5 +1,8 @@
 ### CC Madhya 18.98
 
+> মহাপ্রভু দেখি’ ‘সত্য’ কৃষ্ণ-দরশন ।
+> নিজাজ্ঞানে সত্য ছাড়ি’ ‘অসত্যে সত্য-ভ্রম’ ॥৯৮॥
+
 > mahāprabhu dekhi' 'satya' kṛṣṇa-daraśana
 > nijājñāne satya chāḍi' 'asatye satya-bhrama'
 

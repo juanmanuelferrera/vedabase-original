@@ -1,5 +1,8 @@
 ### CC Antya 8.96
 
+> এইমত রামচন্দ্রপুরী নীলাচলে ।
+> দিন কত রহি’ গেলা ‘তীর্থ’ করিবারে ॥৯৬॥
+
 ei-mata rāmacandra-purī nīlācale
 
 dina kata rahi' gelā 'tīrtha' karibāre

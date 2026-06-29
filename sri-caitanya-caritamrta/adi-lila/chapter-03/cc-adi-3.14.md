@@ -1,5 +1,8 @@
 ### CC Adi 3.14
 
+> চিরকাল নাহি করি প্রেমভক্তি দান ।
+> ভক্তিবিনা জগতের নাহি অবস্থান ॥১৪॥
+
 > cira-kāla nāhi kari prema-bhakti dāna
 > bhakti vinā jagatera nāhi avasthāna
 

@@ -1,5 +1,8 @@
 ### CC Madhya 16.155
 
+> রায়ের বিদায়-ভাব না যায় সহন ।
+> কহিতে না পারি এই তাহার বর্ণন ॥১৫৫॥
+
 rāyera vidāya-bhāva nā yāya sahana
 
 kahite nā pāri ei tāhāra varṇana

@@ -1,5 +1,8 @@
 ### CC Madhya 5.153
 
+> নীলাচলে আনি’ মোর সবে হিত কৈলা ।
+> সবে দণ্ডধন ছিল, তাহা না রাখিলা ॥১৫৩॥
+
 nīlācale āni' mora sabe hita kailā
 sabe daṇḍa-dhana chila, tāhā nā rākhilā
 

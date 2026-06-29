@@ -1,5 +1,8 @@
 ### CC Antya 11.1
 
+> নমামি হরিদাসং তং চৈতন্যং তঞ্চ তৎপ্রভুম্ ।
+> সংস্থিতামপি যন্মূর্তিং স্বাঙ্কে কৃত্বা ননর্ত যঃ ॥১॥
+
 > namāmi haridāsaṁ taṁ
 > caitanyaṁ taṁ ca tat-prabhum
 > saṁsthitām api yan-mūrtiṁ

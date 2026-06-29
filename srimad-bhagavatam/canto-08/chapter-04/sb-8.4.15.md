@@ -1,5 +1,8 @@
 ### SB 8.4.15
 
+> यथानुकीर्तयन्त्येतच्छ्रेयस्कामा द्विजातयः
+> शुचयः प्रातरुत्थाय दुःस्वप्नाद्युपशान्तये ॥१५॥
+
 > yathānukīrtayanty etac
 > chreyas-kāmā dvijātayaḥ
 > śucayaḥ prātar utthāya

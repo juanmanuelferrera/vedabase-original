@@ -1,5 +1,8 @@
 ### CC Madhya 2.16
 
+> কাহারে কহিব, কেবা জানে মোর দুঃখ ।
+> ব্রজেন্দ্রনন্দন বিনু ফাটে মোর বুক ॥১৬॥
+
 kāhāre kahiba, kebā jāne mora duḥkha
 vrajendra-nandana vinu phāṭe mora buka
 

@@ -1,5 +1,8 @@
 ### CC Antya 16.21
 
+> পবিত্র হইনু মুই পাইনু দরশন ।
+> কৃতার্থ হইনু, মোর সফল জীবন ॥২১॥
+
 > pavitra ha-inu mui pāinu daraśana
 > kṛtārtha ha-inu, mora saphala jīvana
 

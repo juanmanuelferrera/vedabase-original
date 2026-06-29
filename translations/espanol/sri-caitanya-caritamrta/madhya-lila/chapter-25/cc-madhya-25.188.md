@@ -1,5 +1,8 @@
 ### CC Madhya 25.188
 
+> দীঘি খোদাইতে তারে ‘মুন্সীফ’ কৈলা ৷
+> ছিদ্র পাঞা রায় তারে চাবুক মারিলা ৷৷ ১৮৮ ৷৷ ॥১৮৮॥
+
 > dīghi khodāite tāre 'munsīpha' kailā
 > chidra pāñā rāya tāre cābuka mārilā
 

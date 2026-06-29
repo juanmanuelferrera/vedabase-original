@@ -1,5 +1,8 @@
 ### CC Madhya 3.208
 
+> কভু বা তোমরা করিবে নীলাদ্রি গমন ।
+> কভু বা আসিব আমি করিতে গঙ্গাস্নান ॥২০৮॥
+
 kabhu vā tomarā karibe nīlādri gamana
 kabhu vā āsiba āmi karite gaṅgā-snāna
 

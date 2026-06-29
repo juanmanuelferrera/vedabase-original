@@ -1,5 +1,8 @@
 ### SB 3.30.2
 
+> यं यमर्थमुपादत्ते दुःखेन सुखहेतवे ।
+> तं तं धुनोति भगवान्पुमान्छोचति यत्कृते ॥२॥
+
 > yaṁ yam artham upādatte
 > duḥkhena sukha-hetave
 > taṁ taṁ dhunoti bhagavān

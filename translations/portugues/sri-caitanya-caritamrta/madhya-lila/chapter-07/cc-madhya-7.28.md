@@ -1,5 +1,8 @@
 ### CC Madhya 7.28
 
+> অতএব তুমি সব রহ নীলাচলে ৷
+> দিন কত আমি তীর্থ ভ্রমিব একলে ৷৷” ২৮ ৷৷ ॥২৮॥
+
 ataeva tumi saba raha nīlācale
 
 dina kata āmi tīrtha bhramiba ekale"

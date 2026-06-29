@@ -1,5 +1,8 @@
 ### SB 9.17.4
 
+> काश्यस्य काशिस्तत्पुत्रो राष्ट्रो दीर्घतमःपिता
+> धन्वन्तरिर्दीर्घतमस आयुर्वेदप्रवर्तकः ॥४॥
+
 > kāśyasya kāśis tat-putro
 > rāṣṭro dīrghatamaḥ-pitā
 > dhanvantarir dīrghatamasa

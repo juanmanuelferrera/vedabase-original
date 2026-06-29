@@ -1,5 +1,8 @@
 ### CC Antya 6.24
 
+> তবে রঘুনাথ কিছু চিন্তিলা উপায়  ।
+> বিনতি করিয়া কহে সেই ম্লেচ্ছ-পায় ॥২৪॥
+
 tabe raghunātha kichu cintilā upāya
 
 vinati kariyā kahe sei mleccha-pāya

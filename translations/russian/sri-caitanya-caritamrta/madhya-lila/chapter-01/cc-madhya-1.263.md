@@ -1,5 +1,8 @@
 ### CC Madhya 1.263
 
+> তবে ত’ বল্লভ ভট্ট প্রভুরে মিলিলা ।
+> কৃষ্ণনামের অর্থ প্রভু তাঁহারে কহিলা ॥২৬৩॥
+
 > tabe ta' vallabha bhaṭṭa prabhure mililā
 > kṛṣṇa-nāmera artha prabhu tāṅhāre kahilā
 

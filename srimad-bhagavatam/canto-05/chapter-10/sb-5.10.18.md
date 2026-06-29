@@ -1,5 +1,8 @@
 ### SB 5.10.18
 
+> तद्ब्रूह्यसङ्गो जडवन्निगूढ विज्ञआनवीर्यो विचरस्यपारः
+> वचांसि योगग्रथितानि साधो न नः क्षमन्ते मनसापि भेत्तुम ॥१८॥
+
 > tad brūhy asaṅgo jaḍavan nigūḍha-
 > vijñāna-vīryo vicarasy apāraḥ
 > vacāṁsi yoga-grathitāni sādho

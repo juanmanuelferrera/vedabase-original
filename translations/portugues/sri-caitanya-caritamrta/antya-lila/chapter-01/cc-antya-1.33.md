@@ -1,5 +1,8 @@
 ### CC Antya 1.33
 
+> ঐছে দিব্যলীলা করে শচীর নন্দন ।
+> কুক্কুরকে কৃষ্ণ কহাঞা করিলা মোচন ॥৩৩॥
+
 aiche divya-līlā kare śacīra nandana
 
 kukkurake kṛṣṇa kahāñā karilā mocana

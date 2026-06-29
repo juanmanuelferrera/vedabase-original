@@ -1,5 +1,8 @@
 ### CC Madhya 5.127
 
+> ঠাকুরের নাসাতে যদি ছিদ্র থাকিত ।
+> তবে এই দাসী মুক্তা নাসায় পরাইত ॥১২৭॥
+
 ṭhākurera nāsāte yadi chidra thākita
 tabe ei dāsī muktā nāsāya parāita
 

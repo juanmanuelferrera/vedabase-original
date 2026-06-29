@@ -1,5 +1,8 @@
 ### CC Adi 17.330
 
+> বৃন্দাবনদাস ইহা ‘চৈতন্যমঙ্গলে’ ।
+> বিস্তারি’ বর্ণিলা নিত্যানন্দ-আজ্ঞা-বলে ॥৩৩০॥
+
 > vṛndāvana-dāsa ihā 'caitanya-maṅgale'
 > vistāri' varṇilā nityānanda-ājñā-bale
 

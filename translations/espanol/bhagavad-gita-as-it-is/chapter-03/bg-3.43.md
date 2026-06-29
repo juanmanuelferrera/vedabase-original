@@ -1,5 +1,8 @@
 ### Bg 3.43
 
+> एवं बुद्धेः परं बुद्ध्वा संस्तभ्यात्मानमात्मना ।
+> जहि शत्रुं महाबाहो कामरूपं दुरासदम् ॥४३॥
+
 > evaṁ buddheḥ paraṁ buddhvā
 > saṁstabhyātmānam ātmanā
 > jahi śatruṁ mahā-bāho

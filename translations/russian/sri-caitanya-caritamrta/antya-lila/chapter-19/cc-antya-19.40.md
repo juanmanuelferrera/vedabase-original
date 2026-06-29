@@ -1,5 +1,10 @@
 ### CC Antya 19.40
 
+> একবার যার নয়নে লাগে, সদা তার হৃদয়ে জাগে,
+> কৃষ্ণতনু — যেন আম্র-আঠা ।
+> নারী-মনে পৈশে হায়, যত্নে নাহি বাহিরায়,
+> তনু নহে, — সেয়াকুলের কাঁটা ॥৪০॥
+
 > eka-bāra yāra nayane lāge, sadā tāra hṛdaye jāge,
 > kṛṣṇa-tanu—yena āmra-āṭhā
 > nārī-mane paiśe hāya, yatne nāhi bāhirāya,

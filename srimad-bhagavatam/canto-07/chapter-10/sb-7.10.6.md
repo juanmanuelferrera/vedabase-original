@@ -1,5 +1,8 @@
 ### SB 7.10.6
 
+> अहं त्वकामस्त्वद्भक्तस्त्वं च स्वाम्यनपाश्रयः
+> नान्यथेहावयोरर्थो राजसेवकयोरिव ॥६॥
+
 > ahaṁ tv akāmas tvad-bhaktas
 > tvaṁ ca svāmy anapāśrayaḥ
 > nānyathehāvayor artho

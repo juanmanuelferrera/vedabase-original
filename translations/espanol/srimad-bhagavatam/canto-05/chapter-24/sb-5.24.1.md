@@ -1,5 +1,8 @@
 ### SB 5.24.1
 
+> श्रीशुक उवाच
+> अधस्तात्सवितुर्योजनायुते स्वर्भानुर्नक्षत्रवच्चरतीत्येके योऽसावमरत्वं ग्रहत्वंचालभत भगवदनुकम्पया स्वयमसुरापसदः सैंहिकेयो ह्यतदर्हस्तस्य तात जन्म कर्माणिचोपरिष्टाद्वक्ष्यामः ॥१॥
+
 > śrī-śuka uvāca
 > adhastāt savitur yojanāyute svarbhānur nakṣatravac caratīty eke yo 'sāv amaratvaṁ grahatvaṁ cālabhata bhagavad-anukampayā svayam asurāpasadaḥ saiṁhikeyo hy atad-arhas tasya tāta janma karmāṇi copariṣṭād vakṣyāmaḥ.
 

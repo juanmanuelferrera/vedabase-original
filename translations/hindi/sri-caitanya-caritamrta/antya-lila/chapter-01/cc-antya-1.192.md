@@ -1,5 +1,8 @@
 ### CC Antya 1.192
 
+> এত শুনি’ রায় কহে প্রভুর চরণে  ।
+> রূপের কবিত্ব প্রশংসি’ সহস্র-বদনে ॥১৯২॥
+
 > eta śuni' rāya kahe prabhura caraṇe
 > rūpera kavitva praśaṁsi' sahasra-vadane
 

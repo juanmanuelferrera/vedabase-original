@@ -1,5 +1,8 @@
 ### CC Madhya 17.59
 
+> কেহ অন্ন আনি’ দেয় ভট্টাচার্য-স্থানে ।
+> কেহ দুগ্ধ, দধি, কেহ ঘৃত, খণ্ড আনে ॥৫৯॥
+
 keha anna āni' deya bhaṭṭācārya-sthāne
 
 keha dugdha, dadhi, keha ghṛta, khaṇḍa āne

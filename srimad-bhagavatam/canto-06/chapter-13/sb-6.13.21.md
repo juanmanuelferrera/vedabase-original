@@ -1,5 +1,8 @@
 ### SB 6.13.21
 
+> स वाजिमेधेन यथोदितेन वितायमानेन मरीचिमिश्रैः
+> इष्ट्वाधियज्ञअं पुरुषं पुराणमिन्द्रो महानास विधूतपापः ॥२१॥
+
 > sa vājimedhena yathoditena
 > vitāyamānena marīci-miśraiḥ
 > iṣṭvādhiyajñaṁ puruṣaṁ purāṇam

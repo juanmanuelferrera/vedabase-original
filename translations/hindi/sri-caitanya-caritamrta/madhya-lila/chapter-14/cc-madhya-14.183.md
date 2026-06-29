@@ -1,5 +1,8 @@
 ### CC Madhya 14.183
 
+> ‘বিলাসাদি’-ভাব-ভূষার কহ ত’ লক্ষণ ।
+> যেই ভাবে রাধা হরে গোবিন্দের মন ? ॥ ১৮৩ ॥
+
 > 'vilāsādi'-bhāva-bhūṣāra kaha ta' lakṣaṇa
 > yei bhāve rādhā hare govindera mana?
 

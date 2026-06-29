@@ -1,5 +1,8 @@
 ### SB 7.2.24
 
+> एवं गुणैर्भ्राम्यमाणे मनस्यविकलः पुमान
+> याति तत्साम्यतां भद्रे ह्यलिङ्गो लिङ्गवानिव ॥२४॥
+
 > evaṁ guṇair bhrāmyamāṇe
 > manasy avikalaḥ pumān
 > yāti tat-sāmyatāṁ bhadre

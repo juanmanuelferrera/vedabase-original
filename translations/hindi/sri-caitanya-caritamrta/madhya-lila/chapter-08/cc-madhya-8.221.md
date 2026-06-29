@@ -1,5 +1,8 @@
 ### CC Madhya 8.221
 
+> রাগানুগ-মার্গে তাঁরে ভজে যেই জন ।
+> সেইজন পায় ব্রজে ব্রজেন্দ্রনন্দন ॥২২১॥
+
 > rāgānuga-mārge tāṅre bhaje yei jana
 > sei-jana pāya vraje vrajendra-nandana
 

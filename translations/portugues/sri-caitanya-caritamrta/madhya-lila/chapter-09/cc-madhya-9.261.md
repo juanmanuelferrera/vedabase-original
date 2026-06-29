@@ -1,5 +1,8 @@
 ### CC Madhya 9.261
 
+> শ্রবণ-কীর্তন হইতে কৃষ্ণে হয় ‘প্রেমা’ ৷
+> সেই পঞ্চম পুরুষার্থ — পুরুষার্থের সীমা ৷৷ ২৬১ ৷৷ ॥২৬১॥
+
 śravaṇa-kīrtana ha-ite kṛṣṇe haya 'premā'
 sei pañcama puruṣārtha--puruṣārthera sīmā
 

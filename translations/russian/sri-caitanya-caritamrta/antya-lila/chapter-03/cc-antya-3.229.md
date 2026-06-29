@@ -1,5 +1,8 @@
 ### CC Antya 3.229
 
+> একদিন হরিদাস গোঁফাতে বসিয়া ।
+> নাম-সঙ্কীর্তন করেন উচ্চ করিয়া ॥২২৯॥
+
 > eka-dina haridāsa goṅphāte vasiyā
 > nāma-saṅkīrtana karena ucca kariyā
 

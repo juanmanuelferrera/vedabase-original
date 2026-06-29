@@ -1,5 +1,8 @@
 ### CC Madhya 6.49
 
+> শুনি’ সার্বভৌম মনে বিচার করিল ।
+> বৈষ্ণব-সন্ন্যাসী ইঁহো, বচনে জানিল ॥৪৯॥
+
 śuni' sārvabhauma mane vicāra karila
 
 vaiṣṇava-sannyāsī iṅho, vacane jānila

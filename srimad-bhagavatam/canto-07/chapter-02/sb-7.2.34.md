@@ -1,5 +1,8 @@
 ### SB 7.2.34
 
+> त्वया कृतज्ञएन वयं महीपते कथं विना स्याम सुहृत्तमेन ते
+> तत्रानुयानं तव वीर पादयोः शुश्रूषतीनां दिश यत्र यास्यसि ॥३४॥
+
 > tvayā kṛtajñena vayaṁ mahī-pate
 > kathaṁ vinā syāma suhṛttamena te
 > tatrānuyānaṁ tava vīra pādayoḥ

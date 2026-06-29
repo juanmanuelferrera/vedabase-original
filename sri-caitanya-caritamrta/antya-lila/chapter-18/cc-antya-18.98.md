@@ -1,5 +1,10 @@
 ### CC Antya 18.98
 
+> মিত্রের মিত্র সহবাসী, চক্রবাকে লুটে আসি’,
+> কৃষ্ণের রাজ্যে ঐছে ব্যবহার ।
+> অপরিচিত শত্রুর মিত্র, রাখে উৎপল, — এ বড় চিত্র,
+> এই বড় ‘বিরোধ-অলঙ্কার’ ॥৯৮॥
+
 > mitrera mitra saha-vāsī, cakravāke luṭe āsi',
 > kṛṣṇera rājye aiche vyavahāra
 > aparicita śatrura mitra, rākhe utpala,—e baḍa citra,

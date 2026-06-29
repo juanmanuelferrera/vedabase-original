@@ -1,5 +1,10 @@
 ### CC Madhya 13.157
 
+> সেই শত্রুগণ হৈতে, ব্রজজন রাখিতে,
+> রহি রাজ্যে উদাসীন হঞা ।
+> যেবা স্ত্রী-পুত্র-ধনে, করি রাজ্য আবরণে,
+> যদুগণের সন্তোষ লাগিয়া ॥১৫৭॥
+
 > sei śatru-gaṇa haite, vraja-jana rākhite,
 > rahi rājye udāsīna hañā
 > yebā strī-putra-dhane, kari rājya āvaraṇe,

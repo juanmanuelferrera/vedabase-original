@@ -1,5 +1,8 @@
 ### CC Adi 1.98
 
+> দুই ভাই হৃদয়ের ক্ষালি’ অন্ধকার ।
+> দুই ভাগবত-সঙ্গে করান সাক্ষাৎকার ॥৯৮॥
+
 > dui bhāi hṛdayera kṣāli' andhakāra
 > dui bhāgavata-saṅge karāna sākṣātkāra
 

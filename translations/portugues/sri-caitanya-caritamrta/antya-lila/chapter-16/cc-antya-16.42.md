@@ -1,5 +1,8 @@
 ### CC Antya 16.42
 
+> সেই গাড়ে করেন প্রভু পাদ-প্রক্ষালনে ।
+> তবে করিবারে যায় ঈশ্বর-দরশনে ॥৪২॥
+
 sei gāḍe karena prabhu pāda-prakṣālane
 
 tabe karibāre yāya īśvara-daraśane

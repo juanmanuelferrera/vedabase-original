@@ -1,5 +1,8 @@
 ### CC Madhya 10.86
 
+> আচার্যের সবে কৈল চরণ বন্দন ৷
+> আচার্য-গোসাঁই সবারে কৈল আলিঙ্গন ৷৷ ৮৬ ৷৷ ॥৮৬॥
+
 > ācāryera sabe kaila caraṇa vandana
 > ācārya-gosāñi sabāre kaila āliṅgana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 25.192
 
+> স্ত্রী কহে, — জাতি লহ’, যদি প্রাণে না মারিবে ।
+> রাজা কহে, — জাতি নিলে ইঁহো নাহি জীবে ॥১৯২॥
+
 strī kahe,-jāti laha', yadi prāṇe nā māribe
 
 rājā kahe,-jāti nile iṅho nāhi jībe

@@ -1,5 +1,8 @@
 ### CC Madhya 11.10
 
+> প্রভু কহে, — তথাপি রাজা কালসর্পাকার ।
+> কাষ্ঠনারী-স্পর্শে যৈছে উপজে বিকার ॥১০॥
+
 > prabhu kahe,-tathāpi rājā kāla-sarpākāra
 > kāṣṭha-nārī-sparśe yaiche upaje vikāra
 

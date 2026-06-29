@@ -1,5 +1,8 @@
 ### CC Madhya 8.94
 
+> যদ্যপি কৃষ্ণ-সৌন্দর্য — মাধুর্যের ধুর্য ।
+> ব্রজদেবীর সঙ্গে তাঁর বাড়য়ে মাধুর্য ॥৯৪॥
+
 > yadyapi kṛṣṇa-saundarya—mādhuryera dhurya
 > vraja-devīra saṅge tāṅra bāḍaye mādhurya
 

@@ -1,5 +1,8 @@
 ### CC Antya 2.21
 
+> যারে দেখে তারে কহে, — ‘কহ কৃষ্ণনাম’ ।
+> তাঁহার দর্শনে লোক হয় প্রেমোদ্দাম ॥২১॥
+
 > yāre dekhe tāre kahe,—'kaha kṛṣṇa-nāma'
 > tāṅhāra darśane loka haya premoddāma
 

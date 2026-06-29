@@ -1,5 +1,8 @@
 ### CC Madhya 5.33
 
+> ছোটবিপ্র বলে, — “ঠাকুর, তুমি মোর সাক্ষী ৷
+> তোমা সাক্ষী বোলাইমু, যদি অন্যথা দেখি ।।” ॥ ৩৩ ॥
+
 > choṭa-vipra bale,--"ṭhākura, tumi mora sākṣī
 > tomā sākṣī bolāimu, yadi anyathā dekhi"
 

@@ -1,5 +1,8 @@
 ### CC Madhya 14.13
 
+> তব কথামৃতং তপ্তজীবনং, কবিভিরীড়িতং কল্মষাপহম্ ।
+> শ্রবণমঙ্গলং শ্রীমদাততং, ভুবি গৃণন্তি যে ভূরিদা জনাঃ ॥১৩॥
+
 > tava kathāmṛtaṁ tapta-jīvanaṁ
 > kavibhir īḍitaṁ kalmaṣāpaham
 > śravaṇa-maṅgalaṁ śrīmad-ātataṁ

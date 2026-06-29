@@ -1,5 +1,8 @@
 ### CC Madhya 6.169
 
+> জীবের নিস্তার লাগি’ সূত্র কৈল ব্যাস ।
+> মায়াবাদি-ভাষ্য শুনিলে হয় সর্বনাশ ॥১৬৯॥
+
 jīvera nistāra lāgi' sūtra kaila vyāsa
 
 māyāvādi-bhāṣya śunile haya sarva-nāśa

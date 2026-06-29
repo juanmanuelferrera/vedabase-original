@@ -1,5 +1,8 @@
 ### CC Antya 7.58
 
+> প্রভু কহে, — “কেহ গৌড়ে, কেহ দেশান্তরে ।
+> সব আসিয়াছে রথযাত্রা দেখিবারে ॥৫৮॥
+
 prabhu kahe,--"keha gauḍe, keha deśāntare
 
 saba āsiyāche ratha-yātrā dekhibāre

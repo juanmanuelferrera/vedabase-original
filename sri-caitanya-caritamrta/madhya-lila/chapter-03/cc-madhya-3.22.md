@@ -1,5 +1,8 @@
 ### CC Madhya 3.22
 
+> তবে নবদ্বীপে তুমি করিহ গমন ।
+> শচী-সহ লঞা আইস সব ভক্তগণ ॥২২॥
+
 > tabe navadvīpe tumi kariha gamana
 > śacī-saha lañā āisa saba bhakta-gaṇa
 

@@ -1,5 +1,8 @@
 ### SB 3.28.39
 
+> यथा पुत्राच्च वित्ताच्च पृथङ्मर्त्यः प्रतीयते ।
+> अप्यात्मत्वेनाभिमताद्देहादेः पुरुषस्तथा ॥३९॥
+
 > yathā putrāc ca vittāc ca
 > pṛthaṅ martyaḥ pratīyate
 > apy ātmatvenābhimatād

@@ -1,5 +1,8 @@
 ### CC Antya 1.183
 
+> রায় কহে, — “কোন্ অঙ্গে পাত্রের প্রবেশ ?”
+> তবে রূপ-গোসাঞি কহে তাহার বিশেষ ॥১৮৩॥
+
 > rāya kahe,—"kon aṅge pātrera praveśa?"
 > tabe rūpa-gosāñi kahe tāhāra viśeṣa
 

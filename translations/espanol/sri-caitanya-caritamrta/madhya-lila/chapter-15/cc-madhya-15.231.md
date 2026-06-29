@@ -1,5 +1,8 @@
 ### CC Madhya 15.231
 
+> কৃষ্ণের আসন-পীঠ রাখহ উঠাঞা ।
+> মোরে প্রসাদ দেহ’ ভিন্ন পাত্রেতে করিয়া ॥২৩১॥
+
 > kṛṣṇera āsana-pīṭha rākhaha uṭhāñā
 > more prasāda deha' bhinna pātrete kariyā
 

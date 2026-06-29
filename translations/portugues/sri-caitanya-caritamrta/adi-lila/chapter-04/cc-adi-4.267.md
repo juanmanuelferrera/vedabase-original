@@ -1,5 +1,8 @@
 ### CC Adi 4.267
 
+> রাধিকার ভাবকান্তি অঙ্গীকার বিনে ।
+> সেই তিন সুখ কভু নহে আস্বাদনে ॥২৬৭॥
+
 rādhikāra bhāva-kānti aṅgīkāra vine
 
 sei tina sukha kabhu nahe āsvādane

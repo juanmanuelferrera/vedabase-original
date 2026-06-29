@@ -1,5 +1,8 @@
 ### CC Adi 9.36
 
+> অতএব আমি আজ্ঞা দিলুঁ সবাকারে ।
+> যাহাঁ তাহাঁ প্রেমফল দেহ’ যারে তারে ॥৩৬॥
+
 > ataeva āmi ājñā diluṅ sabākāre
 > yāhāṅ tāhāṅ prema-phala deha' yāre tāre
 

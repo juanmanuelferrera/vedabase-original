@@ -1,5 +1,8 @@
 ### SB 5.13.12
 
+> क्वचित्क्वचित्क्षीणधनस्तु तस्मिन्शय्यासनस्थानविहारहीनः
+> याचन्परादप्रतिलब्धकामः पारक्यदृष्टिर्लभतेऽवमानम ॥१२॥
+
 > kvacit kvacit kṣīṇa-dhanas tu tasmin
 > śayyāsana-sthāna-vihāra-hīnaḥ
 > yācan parād apratilabdha-kāmaḥ

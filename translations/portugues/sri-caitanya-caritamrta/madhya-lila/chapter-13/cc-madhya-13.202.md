@@ -1,5 +1,8 @@
 ### CC Madhya 13.202
 
+> প্রেমাবেশে মহাপ্রভু উপবন পাঞা ।
+> পুষ্পোদ্যানে গৃহপিণ্ডায় রহিলা পড়িয়া ॥২০২॥
+
 premāveśe mahāprabhu upavana pāñā
 
 puṣpodyāne gṛha-piṇḍāya rahilā paḍiyā

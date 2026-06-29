@@ -1,5 +1,8 @@
 ### CC Antya 4.7
 
+> জগন্নাথে গেলে তাঁর দর্শন না পাইমু  ।
+> প্রভুর দর্শন সদা করিতে নারিমু ॥৭॥
+
 > jagannāthe gele tāṅra darśana nā pāimu
 > prabhura darśana sadā karite nārimu
 

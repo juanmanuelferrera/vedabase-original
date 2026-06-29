@@ -1,5 +1,8 @@
 ### CC Madhya 20.323
 
+> অনন্ত ব্রহ্মাণ্ডে ঐছে করহ গণন ।
+> মহাবিষ্ণু একশ্বাসে ব্রহ্মার জীবন ॥৩২৩॥
+
 ananta brahmāṇḍe aiche karaha gaṇana
 
 mahā-viṣṇu eka-śvāse brahmāra jīvana

@@ -1,5 +1,8 @@
 ### SB 3.26.35
 
+> नभसः शब्दतन्मात्रात्कालगत्या विकुर्वतः ।
+> स्पर्शोऽभवत्ततो वायुस्त्वक्स्पर्शस्य च सङ्ग्रहः ॥३५॥
+
 > nabhasaḥ śabda-tanmātrāt
 > kāla-gatyā vikurvataḥ
 > sparśo 'bhavat tato vāyus

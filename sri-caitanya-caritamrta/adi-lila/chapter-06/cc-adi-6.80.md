@@ -1,5 +1,8 @@
 ### CC Adi 6.80
 
+> তেঁহো করেন কৃষ্ণের দাস্য-প্রত্যাশ ।
+> নিরন্তর কহে শিব, ‘মুঞি কৃষ্ণদাস’ ॥৮০॥
+
 > teṅho karena kṛṣṇera dāsya-pratyāśa
 > nirantara kahe śiva, 'muñi kṛṣṇa-dāsa'
 

@@ -1,5 +1,8 @@
 ### CC Madhya 3.80
 
+> আজি উপবাস হৈল আচার্য-নিমন্ত্রণে ।
+> অর্ধপেট না ভরিবে এই গ্ৰাসেক অন্নে ॥৮০॥
+
 > āji upavāsa haila ācārya-nimantraṇe
 > ardha-peṭa nā bharibe ei grāseka anne
 

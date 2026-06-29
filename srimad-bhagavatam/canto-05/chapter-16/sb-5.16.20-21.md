@@ -1,5 +1,8 @@
 ### SB 5.16.20-21
 
+> तावदुभयोरपि रोधसोर्या मृत्तिका तद्रसेनानुविध्यमाना वाय्वर्कसंयोगविपाकेनसदामरलोकाभरणं जाम्बूनदं नाम सुवर्णं भवति ॥२०॥
+> यदु ह वाव विबुधादयः सह युवतिभिर्मुकुटकटककटिसूत्राद्याभरणरूपेण खलुधारयन्ति ॥२१॥
+
 > tāvad ubhayor api rodhasor yā mṛttikā tad-rasenānuvidhyamānā vāyv-arka-saṁyoga-vipākena sadāmara-lokābharaṇaṁ jāmbū-nadaṁ nāma suvarṇaṁ bhavati; yad u ha vāva vibudhādayaḥ saha yuvatibhir mukuṭa-kaṭaka-kaṭi-sūtrādy-ābharaṇa-rūpeṇa khalu dhārayanti.
 
 *tāvat*—entirely; *ubhayoḥ api*—of both; *rodhasoḥ*—of the banks; *yā*—which; *mṛttikā*—the mud; *tat-rasena*—with the juice of the *jambū* fruits that flows in the river; *anuvidhyamānā*—being saturated; *vāyu-arka-saṁyoga-vipākena*—because of a chemical reaction with the air and sunshine; *sadā*—always; *amara-loka-ābharaṇam*—which is used for the ornaments of the demigods, the denizens of the heavenly planets; *jāmbū-nadam nāma*—named Jāmbū-nada; *suvarṇam*—gold; *bhavati*—becomes; *yat*—which; *u ha vāva*—indeed; *vibudha-ādayaḥ*—the great demigods; *saha*—with; *yuvatibhiḥ*—their everlastingly youthful wives; *mukuṭa*—crowns; *kaṭaka*—bangles; *kaṭi-sūtra*—belts; *ādi*—and so on; *ābharaṇa*—of all kinds of ornaments; *rūpeṇa*—in the form; *khalu*—indeed; *dhārayanti*—they possess.

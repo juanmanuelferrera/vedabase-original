@@ -1,5 +1,10 @@
 ### SB 3.15.45
 
+> पुंसां गतिं मृगयतामिह योगमार्गैर्
+> ध्यानास्पदं बहुमतं नयनाभिरामम् ।
+> पौंस्नं वपुर्दर्शयानमनन्यसिद्धैर्
+> औत्पत्तिकैः समगृणन्युतमष्टभोगैः ॥४५॥
+
 puṁsāṁ gatiṁ mṛgayatām iha yoga-mārgair
 dhyānāspadaṁ bahu-mataṁ nayanābhirāmam
 pauṁsnaṁ vapur darśayānam ananya-siddhair

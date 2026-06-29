@@ -1,5 +1,8 @@
 ### CC Antya 1.90
 
+> স্বরূপ কহে — “যাতে এই শ্লোক দেখিলুঁ ।
+> তুমি করিয়াছ কৃপা, তবঁহি জানিলু ॥৯০॥
+
 svarūpa kahe--"yāte ei śloka dekhiluṅ
 
 tumi kariyācha kṛpā, tavaṅhi jānilu

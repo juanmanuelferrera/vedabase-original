@@ -1,5 +1,8 @@
 ### CC Madhya 12.197
 
+> তবে প্রভু সর্ব-বৈষ্ণবের নাম লঞা ।
+> মহাপ্রসাদ দেন মহা-অমৃত সিঞ্চিয়া ॥১৯৭॥
+
 tabe prabhu sarva-vaiṣṇavera nāma lañā
 
 mahā-prasāda dena mahā-amṛta siñciyā

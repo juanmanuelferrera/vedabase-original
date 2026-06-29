@@ -1,5 +1,8 @@
 ### CC Adi 5.180
 
+> ভাইকে ভর্ৎসিনু মুঞি, লঞা এই গুণ ।
+> সেই রাত্রে প্রভু মোরে দিলা দরশন ॥১৮০॥
+
 bhāike bhartsinu muñi, lañā ei guṇa
 
 sei rātre prabhu more dilā daraśana

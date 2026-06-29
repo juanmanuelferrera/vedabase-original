@@ -1,5 +1,8 @@
 ### CC Adi 4.159
 
+> এই ত’ দ্বিতীয় হেতুর কহিল বিবরণ ।
+> তৃতীয় হেতুর এবে শুনহ লক্ষণ ॥১৫৯॥
+
 ei ta' dvitīya hetura kahila vivaraṇa
 tṛtīya hetura ebe śunaha lakṣaṇa
 

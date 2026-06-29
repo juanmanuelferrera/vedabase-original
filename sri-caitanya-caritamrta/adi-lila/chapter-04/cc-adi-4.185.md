@@ -1,5 +1,8 @@
 ### CC Adi 4.185
 
+> আর এক অদ্ভুত গোপীভাবের স্বভাব ।
+> বুদ্ধির গোচর নহে যাহার প্রভাব ॥১৮৫॥
+
 > āra eka adbhuta gopī-bhāvera svabhāva
 > buddhira gocara nahe yāhāra prabhāva
 

@@ -1,5 +1,8 @@
 ### CC Madhya 22.127
 
+> সর্বথা শরণাপত্তি, কার্তিকাদি-ব্রত ।
+> ‘চতুঃষষ্টি অঙ্গ’ এই পরম-মহত্ত্ব ॥১২৭॥
+
 sarvathā śaraṇāpatti, kārtikādi-vrata
 
 'catuḥ-ṣaṣṭi aṅga' ei parama-mahattva

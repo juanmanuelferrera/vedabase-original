@@ -1,5 +1,8 @@
 ### CC Antya 8.7
 
+> হেনকালে রামচন্দ্রপুরী-গোসাঞি আইলা ।
+> পরমানন্দ-পুরীরে আর প্রভুরে মিলিলা ॥৭॥
+
 hena-kāle rāmacandra-purī-gosāñi āilā
 paramānanda-purīre āra prabhure mililā
 

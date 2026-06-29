@@ -1,5 +1,8 @@
 ### CC Adi 16.82
 
+> অম্বুজমম্বূনি জাতং ক্বচিদপি ন জাতমম্বুজাদম্বু ।
+> মুরভিদি তদ্বিপরীতং পাদাম্ভোজান্মহানদী জাতা ॥৮২॥
+
 ambujam ambuni jātaṁ kvacid api na jātam ambujād ambu
 
 mura-bhidi tad-viparītaṁ pādāmbhojān mahā-nadī jātā

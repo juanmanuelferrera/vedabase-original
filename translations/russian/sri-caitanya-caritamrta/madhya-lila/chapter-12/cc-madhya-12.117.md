@@ -1,5 +1,8 @@
 ### CC Madhya 12.117
 
+> তুমি ভাল করিয়াছ, শিখাহ অন্যেরে ।
+> এইমত ভাল কর্ম সেহো যেন করে ॥১১৭॥
+
 > tumi bhāla kariyācha, śikhāha anyere
 > ei-mata bhāla karma seho yena kare
 

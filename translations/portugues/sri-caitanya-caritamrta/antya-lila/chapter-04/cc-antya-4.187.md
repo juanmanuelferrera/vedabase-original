@@ -1,5 +1,8 @@
 ### CC Antya 4.187
 
+> ‘লাল্যামেধ্য’ লালকের চন্দন-সম ভায় ।
+> সনাতনের ক্লেদে আমার ঘৃণা না উপজায় ।।” ॥ ১৮৭ ॥
+
 'lālyāmedhya' lālakera candana-sama bhāya
 
 sanātanera klede āmāra ghṛṇā nā upajāya"

@@ -1,5 +1,8 @@
 ### SB 9.23.2
 
+> जनमेजयस्तस्य पुत्रो महाशालो महामनाः
+> उशीनरस्तितिक्षुश्च महामनस आत्मजौ ॥२॥
+
 > janamejayas tasya putro
 > mahāśālo mahāmanāḥ
 > uśīnaras titikṣuś ca

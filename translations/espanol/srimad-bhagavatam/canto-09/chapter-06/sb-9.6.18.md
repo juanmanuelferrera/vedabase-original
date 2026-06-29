@@ -1,5 +1,8 @@
 ### SB 9.6.18
 
+> तस्येषुपाताभिमुखं युगान्ताग्निमिवोल्बणम
+> विसृज्य दुद्रुवुर्दैत्या हन्यमानाः स्वमालयम ॥१८॥
+
 > tasyeṣu-pātābhimukhaṁ
 > yugāntāgnim ivolbaṇam
 > visṛjya dudruvur daityā

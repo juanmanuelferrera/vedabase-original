@@ -1,5 +1,8 @@
 ### CC Antya 14.103
 
+> উঠি’ মহাপ্রভু বিস্মিত, ইতি উতি চায় ।
+> যে দেখিতে চায়, তাহা দেখিতে না পায় ॥১০৩॥
+
 > uṭhi' mahāprabhu vismita, iti uti cāya
 > ye dekhite cāya, tāhā dekhite nā pāya
 

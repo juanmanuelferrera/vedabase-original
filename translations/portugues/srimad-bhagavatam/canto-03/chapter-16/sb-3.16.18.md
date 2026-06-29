@@ -1,5 +1,8 @@
 ### SB 3.16.18
 
+> त्वत्तः सनातनो धर्मो रक्ष्यते तनुभिस्तव ।
+> धर्मस्य परमो गुह्यो निर्विकारो भवान्मतः ॥१८॥
+
 tvattaḥ sanātano dharmo
 rakṣyate tanubhis tava
 dharmasya paramo guhyo

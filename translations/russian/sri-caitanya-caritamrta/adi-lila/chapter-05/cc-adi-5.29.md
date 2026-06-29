@@ -1,5 +1,8 @@
 ### CC Adi 5.29
 
+> যদ্যপি কেবল তাঁর ক্রীড়ামাত্র ধর্ম ।
+> তথাপি জীবেরে কৃপায় করে এক কর্ম ॥২৯॥
+
 > yadyapi kevala tāṅra krīḍā-mātra dharma
 > tathāpi jīvere kṛpāya kare eka karma
 

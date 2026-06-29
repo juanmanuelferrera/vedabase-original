@@ -1,5 +1,8 @@
 ### SB 7.15.31
 
+> देशे शुचौ समे राजन्संस्थाप्यासनमात्मनः
+> स्थिरं सुखं समं तस्मिन्नासीतर्ज्वङ्ग ओमिति ॥३१॥
+
 > deśe śucau same rājan
 > saṁsthāpyāsanam ātmanaḥ
 > sthiraṁ sukhaṁ samaṁ tasminn

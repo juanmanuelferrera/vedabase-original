@@ -1,5 +1,8 @@
 ### CC Madhya 12.185
 
+> প্রভু কহে, — পূর্বে সিদ্ধ কৃষ্ণে তোমার প্রীতি ।
+> তোমা-সঙ্গে আমা-সবার হৈল কৃষ্ণে মতি ॥১৮৫॥
+
 > prabhu kahe,-pūrve siddha kṛṣṇe tomāra prīti
 > tomā-saṅge āmā-sabāra haila kṛṣṇe mati
 

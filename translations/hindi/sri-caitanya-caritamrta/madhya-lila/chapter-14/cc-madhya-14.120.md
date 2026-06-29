@@ -1,5 +1,8 @@
 ### CC Madhya 14.120
 
+> বাহির হইতে করে রথযাত্রা-ছল ।
+> সুন্দরাচলে যায় প্রভু ছাড়ি’ নীলাচল ॥১২০॥
+
 > bāhira ha-ite kare ratha-yātrā-chala
 > sundarācale yāya prabhu chāḍi' nīlācala
 

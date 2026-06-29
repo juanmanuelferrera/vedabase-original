@@ -1,5 +1,8 @@
 ### SB 9.24.39
 
+> राजाधिदेव्यामावन्त्यौ जयसेनोऽजनिष्ट ह
+> दमघोषश्चेदिराजः श्रुतश्रवसमग्रहीत ॥३९॥
+
 > rājādhidevyām āvantyau
 > jayaseno 'janiṣṭa ha
 > damaghoṣaś cedi-rājaḥ

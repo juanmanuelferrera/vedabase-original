@@ -1,5 +1,8 @@
 ### CC Madhya 14.99
 
+> এক এক বৃক্ষতলে এক এক গান গায় ।
+> পরম-আবেশে একা নাচে গৌররায় ॥৯৯॥
+
 eka eka vṛkṣa-tale eka eka gāna gāya
 
 parama-āveśe ekā nāce gaurarāya

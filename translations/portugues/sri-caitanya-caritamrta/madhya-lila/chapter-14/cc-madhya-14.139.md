@@ -1,5 +1,8 @@
 ### CC Madhya 14.139
 
+> ইঁহো নিজ-সম্পত্তি সব প্রকট করিয়া ।
+> প্রিয়ের উপর যায় সৈন্য সাজাঞা ॥১৩৯॥
+
 iṅho nija-sampatti saba prakaṭa kariyā
 
 priyera upara yāya sainya sājāña

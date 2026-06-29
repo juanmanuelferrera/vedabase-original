@@ -1,5 +1,8 @@
 ### CC Adi 16.37
 
+> শুনিয়া করিল প্রভু বহুত সৎকার ।
+> তোমা সম পৃথিবীতে কবি নাহি আর ॥৩৭॥
+
 > śuniyā karila prabhu bahuta satkāra
 > tomā sama pṛthivīte kavi nāhi āra
 

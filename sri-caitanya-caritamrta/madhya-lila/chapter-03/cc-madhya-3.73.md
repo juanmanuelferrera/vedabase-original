@@ -1,5 +1,8 @@
 ### CC Madhya 3.73
 
+> আচার্য বলে — অকপটে করহ আহার ।
+> যদি খাইতে না পার পাতে রহিবেক আর ॥৭৩॥
+
 > ācārya bale—akapaṭe karaha āhāra
 > yadi khāite nā pāra pāte rahibeka āra
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.330
 
+> গুরুলক্ষণ, শিষ্যলক্ষণ, দোঁহার পরীক্ষণ ।
+> সেব্য — ভগবান্, সর্বমন্ত্র-বিচারণ ॥৩৩০॥
+
 guru-lakṣaṇa, śiṣya-lakṣaṇa, doṅhāra parīkṣaṇa
 
 sevya--bhagavān, sarva-mantra-vicāraṇa

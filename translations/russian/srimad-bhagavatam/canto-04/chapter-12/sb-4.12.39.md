@@ -1,5 +1,8 @@
 ### SB 4.12.39
 
+> गम्भीरवेगोऽनिमिषं ज्योतिषां चक्रमाहितम् ।
+> यस्मिन्भ्रमति कौरव्य मेढ्यामिव गवां गणः ॥३९॥
+
 > gambhīra-vego 'nimiṣaṁ
 > jyotiṣāṁ cakram āhitam
 > yasmin bhramati kauravya

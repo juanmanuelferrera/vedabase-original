@@ -1,5 +1,8 @@
 ### CC Adi 4.39
 
+> দুই হেতু অবতরি’ লঞা ভক্তগণ ।
+> আপনে আস্বাদে প্রেম-নামসংকীর্তন ॥৩৯॥
+
 dui hetu avatari' lañā bhakta-gaṇa
 
 āpane āsvāde prema-nāma-saṅkīrtana

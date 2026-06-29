@@ -1,5 +1,8 @@
 ### CC Antya 4.214
 
+> একবৎসর রূপ-গোসাঞির গৌড়ে বিলম্ব হৈল ।
+> কুটুম্বের ‘স্থিতি’-অর্থ বিভাগ করি’ দিল ॥২১৪॥
+
 eka-vatsara rūpa-gosāñira gauḍe vilamba haila
 
 kuṭumbera 'sthiti'-artha vibhāga kari' dila

@@ -1,5 +1,8 @@
 ### CC Madhya 20.296
 
+> পুরুষাবতারের এই কৈলুঁ নিরূপণ ।
+> লীলাবতার এবে শুন, সনাতন ॥২৯৬॥
+
 > puruṣāvatārera ei kailuṅ nirūpaṇa
 > līlāvatāra ebe śuna, sanātana
 

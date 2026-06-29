@@ -1,5 +1,8 @@
 ### CC Antya 3.95
 
+> হরিদাসের গুণগণ — অসংখ্য, অপার ।
+> কেহ কোন অংশে বর্ণে, নাহি পায় পার ॥৯৫॥
+
 > haridāsera guṇa-gaṇa—asaṅkhya, apāra
 > keha kona aṁśe varṇe, nāhi pāya pāra
 

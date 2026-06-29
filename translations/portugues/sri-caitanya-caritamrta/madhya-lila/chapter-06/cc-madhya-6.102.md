@@ -1,5 +1,8 @@
 ### CC Madhya 6.102
 
+> ইতি দ্বাপর উর্বীশ স্তুবন্তি জগদীশ্বরম্ ।
+> নানাতন্ত্রবিধানেন কলাবপি তথা শৃণু ॥১০২॥
+
 iti dvāpara urv-īśa
 stuvanti jagad-īśvaram
 nānā-tantra-vidhānena

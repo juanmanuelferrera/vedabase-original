@@ -1,5 +1,8 @@
 ### CC Madhya 16.224
 
+> প্রভুর চরণে পড়ে প্রেমাবিষ্ট হঞা ।
+> প্রভু পাদস্পর্শ কৈল করুণা করিয়া ॥২২৪॥
+
 prabhura caraṇe paḍe premāviṣṭa hañā
 
 prabhu pāda-sparśa kaila karuṇā kariyā

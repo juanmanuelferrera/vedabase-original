@@ -1,5 +1,8 @@
 ### SB 6.16.40
 
+> जितमजित तदा भवता यदाह भागवतं धर्ममनवद्यम
+> निष्किञ्चना ये मुनय आत्मारामा यमुपासतेऽपवर्गाय ॥४०॥
+
 jitam ajita tadā bhavatā
 
 yadāha bhāgavataṁ dharmam anavadyam

@@ -1,5 +1,8 @@
 ### CC Adi 17.296
 
+> বাৎসল্য, দাস্য, সখ্য — তিন ভাবময় ।
+> সেই নিত্যানন্দ — কৃষ্ণচৈতন্য-সহায় ॥২৯৬॥
+
 vātsalya, dāsya, sakhya--tina bhāvamaya
 
 sei nityānanda--kṛṣṇa-caitanya-sahāya

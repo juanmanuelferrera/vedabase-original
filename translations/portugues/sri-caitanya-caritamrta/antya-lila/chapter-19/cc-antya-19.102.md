@@ -1,5 +1,8 @@
 ### CC Antya 19.102
 
+> এইমত মহাপ্রভু পাঞা চেতন ।
+> স্নান করি’ কৈল জগন্নাথ-দরশন ॥১০২॥
+
 ei-mata mahāprabhu pāñā cetana
 
 snāna kari' kaila jagannātha-daraśana

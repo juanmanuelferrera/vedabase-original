@@ -1,5 +1,8 @@
 ### CC Antya 5.160
 
+> তার মধ্যে কহিলুঁ রামানন্দের মহিমা ।
+> আপনে শ্রীমুখে প্রভু বর্ণে যাঁর সীমা ॥১৬০॥
+
 > tāra madhye kahiluṅ rāmānandera mahimā
 > āpane śrī-mukhe prabhu varṇe yāṅra sīmā
 

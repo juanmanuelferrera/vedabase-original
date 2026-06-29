@@ -1,5 +1,8 @@
 ### CC Antya 16.98
 
+> কৃষ্ণের যে ভুক্ত-শেষ, তার ‘ফেলা’-নাম ।
+> তার এক ‘লব’ যে পায়, সেই ভাগ্যবান্ ॥৯৮॥
+
 kṛṣṇera ye bhukta-śeṣa, tāra 'phelā'-nāma
 
 tāra eka 'lava' ye pāya, sei bhāgyavān

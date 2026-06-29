@@ -1,5 +1,8 @@
 ### SB 8.23.5
 
+> लब्धप्रसादं निर्मुक्तं पौत्रं वंशधरं बलिम
+> निशाम्य भक्तिप्रवणः प्रह्राद इदमब्रवीत ॥५॥
+
 > labdha-prasādaṁ nirmuktaṁ
 > pautraṁ vaṁśa-dharaṁ balim
 > niśāmya bhakti-pravaṇaḥ

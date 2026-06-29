@@ -1,5 +1,8 @@
 ### CC Antya 9.103
 
+> ভবানন্দ-রায় — আমার পূজ্য-গর্বিত ।
+> তাঁর পুত্রগণে আমার সহজেই প্রীত ।।” ॥ ১০৩ ॥
+
 > bhavānanda-rāya—āmāra pūjya-garvita
 > tāṅra putra-gaṇe āmāra sahajei prīta"
 

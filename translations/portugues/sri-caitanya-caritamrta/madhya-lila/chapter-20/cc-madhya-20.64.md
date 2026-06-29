@@ -1,5 +1,8 @@
 ### CC Madhya 20.64
 
+> সনাতন কহে, — ‘কৃষ্ণ আমি নাহি জানি ।
+> আমার উদ্ধার-হেতু তোমার কৃপা মানি ।।’ ॥ ৬৪ ॥
+
 sanātana kahe,--'kṛṣṇa āmi nāhi jāni
 
 āmāra uddhāra-hetu tomāra kṛpā ma-ni'

@@ -1,5 +1,8 @@
 ### CC Madhya 24.58
 
+> পক্ষী, মৃগ, বৃক্ষ, লতা, চেতনাচেতন ।
+> প্রেমে মত্ত করি’ আকর্ষয়ে কৃষ্ণগুণ ॥৫৮॥
+
 > pakṣī, mṛga, vṛkṣa, latā, cetanācetana
 > preme matta kari' ākarṣaye kṛṣṇa-guṇa
 

@@ -1,5 +1,8 @@
 ### CC Madhya 8.118
 
+> এবে সে জানিলুঁ সাধ্য-সাধন-নির্ণয় ।
+> আগে আর আছে কিছু, শুনিতে মন হয় ॥১১৮॥
+
 > ebe se jāniluṅ sādhya-sādhana-nirṇaya
 > āge āra āche kichu, śunite mana haya
 

@@ -1,5 +1,8 @@
 ### CC Antya 5.7
 
+> প্রভু কহেন, — “কৃষ্ণকথা আমি নাহি জানি ।
+> সবে রামানন্দ জানে, তাঁর মুখে শুনি ॥৭॥
+
 prabhu kahena,--"kṛṣṇa-kathā āmi nāhi jāni
 sabe rāmānanda jāne, tāṅra mukhe śuni
 

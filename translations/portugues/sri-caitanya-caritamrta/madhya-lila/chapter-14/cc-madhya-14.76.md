@@ -1,5 +1,8 @@
 ### CC Madhya 14.76
 
+> আপনে সকল ভক্তে সিঞ্চে জল দিয়া ।
+> সব ভক্তগণ সিঞ্চে চৌদিকে বেড়িয়া ॥৭৬॥
+
 āpane sakala bhakte siñce jala diyā
 
 saba bhakta-gaṇa siñce caudike beḍiyā

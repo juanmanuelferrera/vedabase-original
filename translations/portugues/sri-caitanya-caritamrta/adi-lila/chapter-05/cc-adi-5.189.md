@@ -1,5 +1,8 @@
 ### CC Adi 5.189
 
+> প্রেমে মত্ত অঙ্গ ডাহিনে-বামে দোলে ।
+> ‘কৃষ্ণ’ ‘কৃষ্ণ’ বলিয়া গম্ভীর বোল বলে ॥১৮৯॥
+
 preme matta aṅga ḍāhine-vāme dole
 'kṛṣṇa' 'kṛṣṇa' baliyā gambhīra bola bale
 

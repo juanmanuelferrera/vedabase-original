@@ -1,5 +1,8 @@
 ### CC Madhya 19.170
 
+> সর্বোপাধিবিনির্মুক্তং তৎপরত্বেন নির্মলম্ ।
+> হৃষীকেণ হৃষীকেশ-সেবনং ভক্তিরুচ্যতে ॥১৭০॥
+
 > sarvopādhi-vinirmuktaṁ
 > tat-paratvena nirmalam
 > hṛṣīkeṇa hṛṣīkeśa-

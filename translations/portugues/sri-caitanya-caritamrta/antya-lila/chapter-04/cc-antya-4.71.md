@@ -1,5 +1,8 @@
 ### CC Antya 4.71
 
+> তার মধ্যে সর্বশ্রেষ্ঠ ন়াম-সঙ্কীর্তন ।
+> নিরপরাধে নাম লৈলে পায় প্রেমধন ॥৭১॥
+
 tāra madhye sarva-śreṣṭha nāma-saṅkīrtana
 
 niraparādhe nāma laile pāya prema-dhana

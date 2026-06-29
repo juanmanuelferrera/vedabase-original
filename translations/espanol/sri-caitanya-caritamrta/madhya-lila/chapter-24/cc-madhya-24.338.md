@@ -1,5 +1,8 @@
 ### CC Madhya 24.338
 
+> পুরশ্চরণ-বিধি, কৃষ্ণপ্রসাদ-ভোজন ।
+> অনিবেদিত-ত্যাগ, বৈষ্ণবনিন্দাদি-বর্জন ॥৩৩৮॥
+
 > puraścaraṇa-vidhi, kṛṣṇa-prasāda-bhojana
 > anivedita-tyāga, vaiṣṇava-nindādi-varjana
 

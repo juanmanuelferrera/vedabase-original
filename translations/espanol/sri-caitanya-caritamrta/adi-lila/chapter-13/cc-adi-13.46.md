@@ -1,5 +1,8 @@
 ### CC Adi 13.46
 
+> দামোদর-স্বরূপ, আর গুপ্ত মুরারি।
+> মুখ্যমুখ্যলীলা সূত্রে লিখিয়াছে বিচারি’ ॥৪৬॥
+
 > dāmodara-svarūpa, āra gupta murāri
 > mukhya-mukhya-līlā sūtre likhiyāche vicāri'
 

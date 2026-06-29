@@ -1,5 +1,8 @@
 ### CC Adi 17.325
 
+> ত্রয়োদশে মহাপ্রভুর ‘জন্ম-বিবরণ’ ।
+> কৃষ্ণনাম-সহ যৈছে প্রভুর জনম ॥৩২৫॥
+
 trayodaśe mahāprabhura 'janma-vivaraṇa'
 kṛṣṇa-nāma-saha yaiche prabhura janama
 

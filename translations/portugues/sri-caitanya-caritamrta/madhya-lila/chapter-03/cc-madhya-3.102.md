@@ -1,5 +1,8 @@
 ### CC Madhya 3.102
 
+> এত বলি’ দুই জনে করাইল আচমন ।
+> উত্তম শয্যাতে লইয়া করাইল শয়ন ॥১০২॥
+
 eta bali' dui jane karāila ācamana
 
 uttama śayyāte la-iyā karāila śayana

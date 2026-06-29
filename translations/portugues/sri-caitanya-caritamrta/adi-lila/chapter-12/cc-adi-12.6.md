@@ -1,5 +1,8 @@
 ### CC Adi 12.6
 
+> সেই স্কন্ধে যত প্রেমফল উপজিল ।
+> সেই কৃষ্ণপ্রেমফলে জগৎ ভরিল ॥৬॥
+
 sei skandhe yata prema-phala upajila
 sei kṛṣṇa-prema-phale jagat bharila
 

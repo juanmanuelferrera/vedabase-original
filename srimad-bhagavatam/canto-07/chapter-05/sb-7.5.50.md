@@ -1,5 +1,8 @@
 ### SB 7.5.50
 
+> इमं तु पाशैर्वरुणस्य बद्ध्वा निधेहि भीतो न पलायते यथा
+> बुद्धिश्च पुंसो वयसार्यसेवया यावद्गुरुर्भार्गव आगमिष्यति ॥५०॥
+
 > imaṁ tu pāśair varuṇasya baddhvā
 > nidhehi bhīto na palāyate yathā
 > buddhiś ca puṁso vayasārya-sevayā

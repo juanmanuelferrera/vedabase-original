@@ -1,5 +1,8 @@
 ### CC Antya 19.56
 
+> প্রভুরে শোয়াঞা রামানন্দ গেলা ঘরে ।
+> স্বরূপ, গোবিন্দ শুইলা গম্ভীরার দ্বারে ॥৫৬॥
+
 prabhure śoyāñā rāmānanda gelā ghare
 
 svarūpa, govinda śuilā gambhīrāra dvāre

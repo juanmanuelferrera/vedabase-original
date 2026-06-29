@@ -1,5 +1,8 @@
 ### CC Antya 8.69
 
+> প্রভু কহে, — “অজ্ঞ বালক মুই ‘শিষ্য’ তোমার ।
+> মোরে শিক্ষা দেহ’, — এই ভাগ্য আমার ।।” ॥ ৬৯ ॥
+
 > prabhu kahe,—"ajña bālaka mui 'śiṣya' tomāra
 > more śikṣā deha',—ei bhāgya āmāra"
 

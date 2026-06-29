@@ -1,5 +1,8 @@
 ### CC Madhya 10.78
 
+> শুনিয়া সবার হৈল পরম উল্লাস ।
+> অদ্বৈত-আচার্য-গৃহে গেলা কৃষ্ণদাস ॥৭৮॥
+
 > śuniyā sabāra haila parama ullāsa
 > advaita-ācārya-gṛhe gelā kṛṣṇadāsa
 

@@ -1,5 +1,8 @@
 ### CC Antya 13.1
 
+> কৃষ্ণবিচ্ছেদজাতার্ত্যা ক্ষীণে চাপি মনস্তনূ ।
+> দধাতে ফুল্লতাং ভাবৈর্যস্য তং গৌরমাশ্রয়ে ॥১॥
+
 kṛṣṇa-viccheda-jātārtyā
 kṣīṇe cāpi manas-tanū
 dadhāte phullatāṁ bhāvair

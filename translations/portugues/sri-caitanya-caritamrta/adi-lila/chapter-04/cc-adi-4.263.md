@@ -1,5 +1,8 @@
 ### CC Adi 4.263
 
+> নানা যত্ন করি আমি, নারি আস্বাদিতে ।
+> সেই সুখমাধুর্য-ঘ্রাণে লোভ বাঢ়ে চিত্তে ॥২৬৩॥
+
 nānā yatna kari āmi, nāri āsvādite
 
 sei sukha-mādhurya-ghrāṇe lobha bāḍhe citte

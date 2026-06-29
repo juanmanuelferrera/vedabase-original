@@ -1,5 +1,8 @@
 ### SB 8.18.20
 
+> श्रुत्वाश्वमेधैर्यजमानमूर्जितं बलिं भृगूणामुपकल्पितैस्ततः
+> जगाम तत्राखिलसारसम्भृतो भारेण गां सन्नमयन्पदे पदे ॥२०॥
+
 > śrutvāśvamedhair yajamānam ūrjitaṁ
 > baliṁ bhṛgūṇām upakalpitais tataḥ
 > jagāma tatrākhila-sāra-sambhṛto

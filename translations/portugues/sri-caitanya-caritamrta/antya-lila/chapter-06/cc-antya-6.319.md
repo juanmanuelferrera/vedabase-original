@@ -1,5 +1,8 @@
 ### CC Antya 6.319
 
+> একদিন স্বরূপ তাহা করিতে দেখিলা ।
+> হাসিয়া তাহার কিছু মাগিয়া খাইলা ॥৩১৯॥
+
 eka-dina svarūpa tāhā karite dekhilā
 
 hāsiyā tāhāra kichu māgiyā khāilā

@@ -1,5 +1,8 @@
 ### CC Antya 20.25
 
+> উত্তম হঞা বৈষ্ণব হবে নিরভিমান ।
+> জীবে সম্মান দিবে জানি’ ‘কৃষ্ণ’-অধিষ্ঠান ॥২৫॥
+
 uttama hañā vaiṣṇava habe nirabhimāna
 
 jīve sammāna dibe jāni' 'kṛṣṇa'-adhiṣṭhāna

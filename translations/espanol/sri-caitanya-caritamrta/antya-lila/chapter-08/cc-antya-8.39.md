@@ -1,5 +1,8 @@
 ### CC Antya 8.39
 
+> অনিমন্ত্রণ ভিক্ষা করে, নাহিক নির্ণয় ।
+> অন্যের ভিক্ষার স্থিতির লয়েন নিশ্চয় ॥৩৯॥
+
 > animantraṇa bhikṣā kare, nāhika nirṇaya
 > anyera bhikṣāra sthitira layena niścaya
 

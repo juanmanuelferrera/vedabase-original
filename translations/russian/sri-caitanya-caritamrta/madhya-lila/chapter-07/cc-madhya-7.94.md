@@ -1,5 +1,8 @@
 ### CC Madhya 7.94
 
+> ভক্তগণ উপবাসী তাহাঁই রহিলা ।
+> আর দিনে দুঃখী হঞা নীলাচলে আইলা ॥৯৪॥
+
 > bhakta-gaṇa upavāsī tāhāṅi rahilā
 > āra dine duḥkhī hañā nīlācale āilā
 

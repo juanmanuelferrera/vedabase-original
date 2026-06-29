@@ -1,5 +1,7 @@
 ### SB 5.8.27
 
+> तदानीमपि पार्श्ववर्तिनमात्मजमिवानुशोचन्तमभिवीक्षमाणो मृग एवाभिनिवेशितमनाविसृज्य लोकमिमं सह मृगेण कलेवरं मृतमनु न मृतजन्मानुस्मृतिरितरवन्मृगशरीरमवाप ॥२७॥
+
 > tadānīm api pārśva-vartinam ātmajam ivānuśocantam abhivīkṣamāṇo mṛga evābhiniveśita-manā visṛjya lokam imaṁ saha mṛgeṇa kalevaraṁ mṛtam anu na mṛta-janmānusmṛtir itaravan mṛga-śarīram avāpa.
 
 *tadānīm*—en ese momento; *api*—en verdad; *pārśva-vartinam*—al lado de su lecho de muerte; *ātma-jam*—su propio hijo; *iva*—como; *anuśocantam*—lamentar; *abhivīkṣamāṇaḥ*—ver; *mṛge*—en el ciervo; *eva*—ciertamente; *abhiniveśita-manāḥ*—su mente estaba absorta; *visṛjya*—abandonar; *lokam*—mundo; *imam*—este; *saha*—con; *mṛgeṇa*—el ciervo; *kalevaram*—su cuerpo; *mṛtam*—destruido; *anu*—a continuación; *na*—no; *mṛta*—destruido; *janma-anusmṛtiḥ*—recuerdo de lo ocurrido antes de la muerte; *itara-vat*—como otros; *mṛga-śarīram*—el cuerpo de un ciervo; *avāpa*—obtuvo.

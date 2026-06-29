@@ -1,5 +1,8 @@
 ### SB 3.8.30
 
+> चराचरौको भगवन्महीध्रमहीन्द्रबन्धुं सलिलोपगूढम् ।
+> किरीटसाहस्रहिरण्यशृङ्गमाविर्भवत्कौस्तुभरत्नगर्भम् ॥३०॥
+
 > carācarauko bhagavan-mahīdhram
 > ahīndra-bandhuṁ salilopagūḍham
 > kirīṭa-sāhasra-hiraṇya-śṛṅgam

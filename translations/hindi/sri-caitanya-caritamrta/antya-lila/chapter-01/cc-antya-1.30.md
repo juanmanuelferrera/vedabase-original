@@ -1,5 +1,8 @@
 ### CC Antya 1.30
 
+> শস্য খায় কুক্কুর, ‘কৃষ্ণ’ কহে বার বার ।
+> দেখিয়া লোকের মনে হৈল চমৎকার ॥৩০॥
+
 > śasya khāya kukkura, 'kṛṣṇa' kahe bāra bāra
 > dekhiyā lokera mane haila camatkāra
 

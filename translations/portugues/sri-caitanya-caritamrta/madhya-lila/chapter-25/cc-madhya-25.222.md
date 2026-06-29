@@ -1,5 +1,8 @@
 ### CC Madhya 25.222
 
+> এথা মহাপ্রভু যদি নীলাদ্রি চলিলা ।
+> নির্জন বনপথে যাইতে মহা সুখ পাইলা ॥২২২॥
+
 ethā mahāprabhu yadi nīlādri calilā
 
 nirjana vana-pathe yāite mahā sukha pāilā

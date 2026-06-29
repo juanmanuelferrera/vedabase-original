@@ -1,5 +1,8 @@
 ### SB 8.5.27
 
+> विपश्चितं प्राणमनोधियात्मनामर्थेन्द्रियाभासमनिद्रमव्रणम
+> छायातपौ यत्र न गृध्रपक्षौ तमक्षरं खं त्रियुगं व्रजामहे ॥२७॥
+
 > vipaścitaṁ prāṇa-mano-dhiyātmanām
 > arthendriyābhāsam anidram avraṇam
 > chāyātapau yatra na gṛdhra-pakṣau

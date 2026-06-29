@@ -1,5 +1,8 @@
 ### CC Antya 10.26
 
+> চিরস্থায়ী ক্ষীরসার, মণ্ডাদি-বিকার ।
+> অমৃত-কর্পূর আদি অনেক প্রকার ॥২৬॥
+
 > cira-sthāyī kṣīra-sāra, maṇḍādi-vikāra
 > amṛta-karpūra ādi aneka prakāra
 

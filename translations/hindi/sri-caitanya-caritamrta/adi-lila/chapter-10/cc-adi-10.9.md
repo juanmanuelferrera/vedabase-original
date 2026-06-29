@@ -1,5 +1,8 @@
 ### CC Adi 10.9
 
+> শ্রীপতি, শ্রীনিধি — তাঁর দুই সহোদর  ।
+> চারি ভাইর দাস-দাসী, গৃহ-পরিকর ॥৯॥
+
 > śrīpati, śrīnidhi—tāṅra dui sahodara
 > cāri bhāira dāsa-dāsī, gṛha-parikara
 

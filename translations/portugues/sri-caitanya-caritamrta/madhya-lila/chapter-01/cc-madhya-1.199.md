@@ -1,5 +1,8 @@
 ### CC Madhya 1.199
 
+> আমা উদ্ধারিতে বলী নাহি ত্রিভুবনে ।
+> পতিতপাবন তুমি — সবে তোমা বিনে ॥১৯৯॥
+
 āmā uddhārite balī nāhi tri-bhuvane
 
 patita-pāvana tumi--sabe tomā vine

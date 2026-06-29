@@ -1,5 +1,8 @@
 ### CC Madhya 24.244
 
+> নারদ কহে, — ‘একবস্তু মাগি তোমার স্থানে’ ।
+> ব্যাধ কহে, — “মৃগাদি লহ, যেই তোমার মনে ॥২৪৪॥
+
 nārada kahe,--'eka-vastu māgi tomāra sthāne'
 
 vyādha kahe,--"mṛgādi laha, yei tomāra mane

@@ -1,5 +1,8 @@
 ### CC Antya 8.43
 
+> প্রভুর যতেক গুণ স্পর্শিতে নারিল ।
+> ছিদ্র চাহি’ বুলে, কাঁহা ছিদ্র না পাইল ॥৪৩॥
+
 prabhura yateka guṇa sparśite nārila
 
 chidra cāhi' bule, kāṅhā chidra nā pāila

@@ -1,5 +1,8 @@
 ### CC Antya 4.216
 
+> সব মনঃকথা গোসাঞি করি’ নির্বাহণ ।
+> নিশ্চিন্ত হঞা শীঘ্র আইলা বৃন্দাবন ॥২১৬॥
+
 saba manaḥ-kathā gosāñi kari' nirvāhaṇa
 
 niścinta hañā śīghra āilā vṛndāvana

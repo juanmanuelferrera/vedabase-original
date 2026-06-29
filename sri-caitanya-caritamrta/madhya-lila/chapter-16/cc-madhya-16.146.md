@@ -1,5 +1,8 @@
 ### CC Madhya 16.146
 
+> এইমত প্রভু তোমার বিচ্ছেদ সহিয়া ।
+> তোমার প্রতিজ্ঞা রক্ষা কৈল যত্ন করিয়া ।।” ॥ ১৪৬ ॥
+
 > ei-mata prabhu tomāra viccheda sahiyā
 > tomāra pratijñā rakṣā kaila yatna kariyā"
 

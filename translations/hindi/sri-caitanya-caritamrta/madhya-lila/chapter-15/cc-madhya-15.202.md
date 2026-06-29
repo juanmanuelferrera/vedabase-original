@@ -1,5 +1,8 @@
 ### CC Madhya 15.202
 
+> ভট্টাচার্যের গৃহে সব দ্রব্য আছে ভরি’ ।
+> যেবা শাকফলাদিক, আনাইল আহরি’ ॥২০২॥
+
 > bhaṭṭācāryera gṛhe saba dravya āche bhari'
 > yebā śāka-phalādika, ānāila āhari'
 

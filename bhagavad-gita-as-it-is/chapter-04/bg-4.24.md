@@ -1,5 +1,8 @@
 ### Bg 4.24
 
+> ब्रह्मार्पणं ब्रह्म हविर्ब्रह्माग्नौ ब्रह्मणा हुतम् ।
+> ब्रह्मैव तेन गन्तव्यं ब्रह्मकर्मसमाधिना ॥२४॥
+
 > brahmārpaṇaṁ brahma havir
 > brahmāgnau brahmaṇā hutam
 > brahmaiva tena gantavyaṁ

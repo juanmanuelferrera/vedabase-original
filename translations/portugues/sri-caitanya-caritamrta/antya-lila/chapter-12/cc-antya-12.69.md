@@ -1,5 +1,8 @@
 ### CC Antya 12.69
 
+> নিত্যানন্দে আজ্ঞা দিলুঁ গৌড়েতে রহিতে ।
+> আজ্ঞা লঙ্ঘি’ আইলা, কি পারি বলিতে ? ॥ ৬৯ ॥
+
 nityānande ājñā diluṅ gauḍete rahite
 
 ājñā laṅghi' āilā, ki pāri balite?

@@ -1,5 +1,8 @@
 ### CC Adi 5.116
 
+> সেই বিষ্ণু হয় যাঁর অংশাংশের অংশ ।
+> সেই প্রভু নিত্যানন্দ — সর্ব-অবতংস ॥১১৬॥
+
 sei viṣṇu haya yāṅra aṁśāṁśera aṁśa
 sei prabhu nityānanda--sarva-avataṁsa
 

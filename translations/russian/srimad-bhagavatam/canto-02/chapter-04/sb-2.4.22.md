@@ -1,5 +1,8 @@
 ### SB 2.4.22
 
+> प्रचोदिता येन पुरा सरस्वती वितन्वताजस्य सतीं स्मृतिं हृदि ।
+> स्वलक्षणा प्रादुरभूत्किलास्यतः स मे ऋषीणामृषभः प्रसीदताम् ॥२२॥
+
 > pracoditā yena purā sarasvatī
 > vitanvatājasya satīṁ smṛtiṁ hṛdi
 > sva-lakṣaṇā prādurabhūt kilāsyataḥ

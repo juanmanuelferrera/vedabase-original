@@ -1,5 +1,8 @@
 ### CC Adi 1.41
 
+> গদাধরপণ্ডিতাদি — প্রভুর নিজশক্তি ।
+> তাঁ’সবার চরণে মোর সহস্র প্রণতি ॥৪১॥
+
 > gadādhara-paṇḍitādi—prabhura nija-śakti
 > tāṅ'-sabāra caraṇe mora sahasra praṇati
 

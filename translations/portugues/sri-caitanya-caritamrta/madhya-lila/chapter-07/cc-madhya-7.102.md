@@ -1,5 +1,8 @@
 ### CC Madhya 7.102
 
+> গ্রামান্তর হৈতে দেখিতে আইল যত জন ৷
+> তাঁর দর্শন-কৃপায় হয় তাঁর সম ৷৷ ১০২ ৷৷ ॥১০২॥
+
 grāmāntara haite dekhite āila yata jana
 
 tāṅra darśana-kṛpāya haya tāṅra sama

@@ -1,5 +1,8 @@
 ### CC Madhya 14.96
 
+> ভক্তগণ-সঙ্গে প্রভু উদ্যানে আসিয়া ।
+> বৃন্দাবন-বিহার করে ভক্তগণ লঞা ॥৯৬॥
+
 bhakta-gaṇa-saṅge prabhu udyāne āsiyā
 
 vṛndāvana-vihāra kare bhakta-gaṇa lañā

@@ -1,5 +1,8 @@
 ### CC Madhya 24.233
 
+> ঐছে এক শশক দেখে আর কতদূরে ।
+> জীবের দুঃখ দেখি’ নারদ ব্যাকুল-অন্তরে ॥২৩৩॥
+
 > aiche eka śaśaka dekhe āra kata-dūre
 > jīvera duḥkha dekhi' nārada vyākula-antare
 

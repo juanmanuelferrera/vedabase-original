@@ -1,5 +1,8 @@
 ### CC Adi 17.82
 
+> শত দুই ফল প্রভু শীঘ্র পাড়াইল ।
+> প্রক্ষালন করি’ কৃষ্ণে ভোগ লাগাইল ॥৮২॥
+
 > śata dui phala prabhu śīghra pāḍāila
 > prakṣālana kari' kṛṣṇe bhoga lāgāila
 

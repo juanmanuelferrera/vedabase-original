@@ -1,5 +1,8 @@
 ### CC Madhya 12.214
 
+> শ্ৰীমুখ-সুন্দরকান্তি বাঢ়ে ক্ষণে ক্ষণে ৷
+> কোটিভক্ত-নেত্র-ভৃঙ্গ করে মধুপানে ॥২১৪॥
+
 śrī-mukha-sundara-kānti bāḍhe kṣaṇe kṣaṇe
 
 koṭi-bhakta-netra-bhṛṅga kare madhu-pāne

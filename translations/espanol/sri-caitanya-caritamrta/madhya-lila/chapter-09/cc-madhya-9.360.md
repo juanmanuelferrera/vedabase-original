@@ -1,5 +1,8 @@
 ### CC Madhya 9.360
 
+> প্রভুর তীর্থযাত্রা-কথা শুনে যেই জন ৷
+> চৈতন্যচরণে পায় গাঢ় প্রেমধন ৷৷ ৩৬০ ৷৷ ॥৩৬০॥
+
 > prabhura tīrtha-yātrā-kathā śune yei jana
 > caitanya-caraṇe pāya gāḍha prema-dhana
 

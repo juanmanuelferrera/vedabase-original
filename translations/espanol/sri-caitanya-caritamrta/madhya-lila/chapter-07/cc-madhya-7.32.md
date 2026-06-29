@@ -1,5 +1,8 @@
 ### CC Madhya 7.32
 
+> গুণে দোষোদ্গার-চ্ছলে সবা নিষেধিয়া ৷
+> একাকী ভ্রমিবেন তীর্থ বৈরাগ্য করিয়া ৷৷ ৩২ ৷৷ ॥৩২॥
+
 > guṇe doṣodgāra-cchale sabā niṣedhiyā
 > ekākī bhramibena tīrtha vairāgya kariyā
 

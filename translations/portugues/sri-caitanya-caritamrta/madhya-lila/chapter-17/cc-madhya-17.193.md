@@ -1,5 +1,8 @@
 ### CC Madhya 17.193
 
+> মধুবন, তাল, কুমুদ, বহুলা-বন গেলা ।
+> তাহাঁ তাহাঁ স্নান করি’ প্রেমাবিষ্ট হৈলা ॥১৯৩॥
+
 madhu-vana, tāla, kumuda, bahulā-vana gelā
 
 tāhāṅ tāhāṅ snāna kari' premāviṣṭa hailā

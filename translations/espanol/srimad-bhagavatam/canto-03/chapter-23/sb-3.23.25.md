@@ -1,5 +1,8 @@
 ### SB 3.23.25
 
+> अङ्गं च मलपङ्केन सञ्छन्नं शबलस्तनम् ।
+> आविवेश सरस्वत्याः सरः शिवजलाशयम् ॥२५॥
+
 > aṅgaṁ ca mala-paṅkena
 > sañchannaṁ śabala-stanam
 > āviveśa sarasvatyāḥ

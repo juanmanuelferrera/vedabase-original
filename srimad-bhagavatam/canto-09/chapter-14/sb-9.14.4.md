@@ -1,5 +1,8 @@
 ### SB 9.14.4
 
+> सोऽयजद्राजसूयेन विजित्य भुवनत्रयम
+> पत्नीं बृहस्पतेर्दर्पात्तारां नामाहरद्बलात ॥४॥
+
 > so 'yajad rājasūyena
 > vijitya bhuvana-trayam
 > patnīṁ bṛhaspater darpāt

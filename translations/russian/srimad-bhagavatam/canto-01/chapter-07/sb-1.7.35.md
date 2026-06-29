@@ -1,5 +1,8 @@
 ### SB 1.7.35
 
+> मैनं पार्थार्हसि त्रातुं ब्रह्मबन्धुमिमं जहि ।
+> योऽसावनागसः सुप्तानवधीन्निशि बालकान् ॥३५॥
+
 > mainaṁ pārthārhasi trātuṁ
 > brahma-bandhum imaṁ jahi
 > yo 'sāv anāgasaḥ suptān

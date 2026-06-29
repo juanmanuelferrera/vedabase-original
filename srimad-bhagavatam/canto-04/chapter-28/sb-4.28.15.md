@@ -1,5 +1,8 @@
 ### SB 4.28.15
 
+> शिथिलावयवो यर्हि गन्धर्वैर्हृतपौरुषः ।
+> यवनैररिभी राजन्नुपरुद्धो रुरोद ह ॥१५॥
+
 > śithilāvayavo yarhi
 > gandharvair hṛta-pauruṣaḥ
 > yavanair aribhī rājann

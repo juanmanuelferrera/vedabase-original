@@ -1,5 +1,8 @@
 ### CC Adi 10.103
 
+> তাঁহার সাধনরীতি শুনিতে চমৎকার ।
+> সেই রূপ-রঘুনাথ প্রভু যে আমার ॥১০৩॥
+
 tāṅhāra sādhana-rīti śunite camatkāra
 
 sei rūpa-raghunātha prabhu ye āmāra

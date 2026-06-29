@@ -1,5 +1,8 @@
 ### CC Madhya 1.254
 
+> ক্ষেত্রবাসী রামানন্দ রায় প্রভৃতি ।
+> প্রভুসঙ্গে এই সব কৈল নিত্যস্থিতি ॥২৫৪॥
+
 > kṣetra-vāsī rāmānanda rāya prabhṛti
 > prabhu-saṅge ei saba kaila nitya-sthiti
 

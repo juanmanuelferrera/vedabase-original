@@ -1,5 +1,8 @@
 ### SB 8.24.38
 
+> मदीयं महिमानं च परं ब्रह्मेति शब्दितम
+> वेत्स्यस्यनुगृहीतं मे सम्प्रश्नैर्विवृतं हृदि ॥३८॥
+
 madīyaṁ mahimānaṁ ca
 paraṁ brahmeti śabditam
 vetsyasy anugṛhītaṁ me

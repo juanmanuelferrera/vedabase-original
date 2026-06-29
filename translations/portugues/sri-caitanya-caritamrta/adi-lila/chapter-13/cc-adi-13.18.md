@@ -1,5 +1,8 @@
 ### CC Adi 13.18
 
+> বাল্য, পৌগণ্ড, কৈশোর, যৌবন, — চারি ভেদ ।
+> অতএব আদিখণ্ডে লীলা চারি ভেদ ॥১৮॥
+
 bālya, paugaṇḍa, kaiśora, yauvana,--cāri bheda
 
 ataeva ādi-khaṇḍe līlā cāri bheda

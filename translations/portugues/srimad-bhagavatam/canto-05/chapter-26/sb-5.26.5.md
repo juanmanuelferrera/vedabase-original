@@ -1,5 +1,8 @@
 ### SB 5.26.5
 
+> ऋषिरुवाच
+> अन्तराल एव त्रिजगत्यास्तु दिशि दक्षिणस्यामधस्ताद्भूमेरुपरिष्टाच्चजलाद्यस्यामग्निष्वात्तादयः पितृगणा दिशि स्वानां गोत्राणां परमेण समाधिना सत्या एवाशिष आशासानानिवसन्ति ॥४॥
+
 ṛṣir uvāca
 
 *antarāla eva tri*-jagatyās tu diśi dakṣiṇasyām adhastād bhūmer upariṣṭāc ca jalād yasyām agniṣvāttādayaḥ pitṛ-gaṇā diśi svānāṁ gotrāṇāṁ parameṇa samādhinā satyā evāśiṣa āśāsānā nivasanti.

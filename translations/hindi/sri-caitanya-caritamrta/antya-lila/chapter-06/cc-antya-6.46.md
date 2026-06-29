@@ -1,5 +1,8 @@
 ### CC Antya 6.46
 
+> দণ্ডবৎ হঞা সেই পড়িলা কতদূরে ।
+> সেবক কহে, — ‘রঘুনাথ দণ্ডবৎ করে ।।’ ॥ ৪৬ ॥
+
 > daṇḍavat hañā sei paḍilā kata-dūre
 > sevaka kahe,--'raghunātha daṇḍavat kare'
 

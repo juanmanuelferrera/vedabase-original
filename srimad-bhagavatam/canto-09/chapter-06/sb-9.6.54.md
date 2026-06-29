@@ -1,5 +1,8 @@
 ### SB 9.6.54
 
+> तत्र तप्त्वा तपस्तीक्ष्णमात्मदर्शनमात्मवान
+> सहैवाग्निभिरात्मानं युयोज परमात्मनि ॥५४॥
+
 > tatra taptvā tapas tīkṣṇam
 > ātma-darśanam ātmavān
 > sahaivāgnibhir ātmānaṁ

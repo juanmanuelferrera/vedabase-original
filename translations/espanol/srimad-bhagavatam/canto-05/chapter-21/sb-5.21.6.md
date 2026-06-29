@@ -1,5 +1,7 @@
 ### SB 5.21.6
 
+> यावद्दक्षिणायनमहानि वर्धन्ते यावदुदगयनं रात्रयः ॥६॥
+
 > yāvad dakṣiṇāyanam ahāni vardhante yāvad udagayanaṁ rātrayaḥ.
 
 *yāvat*—hasta que; *dakṣiṇa-ayanam*—el Sol pasa por el lado sur; *ahāni*—los días; *vardhante*—aumentan; *yāvat*—hasta que; *udagayanam*—el Sol pasa por el lado norte; *rātrayaḥ*—las noches.

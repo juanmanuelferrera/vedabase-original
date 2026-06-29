@@ -1,5 +1,8 @@
 ### CC Madhya 5.37
 
+> একদিন নিজ-লোক একত্র করিল ।
+> তা-সবার আগে সব বৃত্তান্ত কহিল ॥৩৭॥
+
 eka-dina nija-loka ekatra karila
 
 tā-sabāra āge saba vṛttānta kahila

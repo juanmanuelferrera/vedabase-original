@@ -1,5 +1,8 @@
 ### CC Antya 13.75
 
+> যে কেহ জানে, আঁটি চুষিতে লাগিল ।
+> যে না জানে গৌড়িয়া পীলু চাবাঞা খাইল ॥৭৫॥
+
 ye keha jāne, āṅṭi cuṣite lāgila
 
 ye nā jāne gauḍiyā pīlu cāvāñā khāila

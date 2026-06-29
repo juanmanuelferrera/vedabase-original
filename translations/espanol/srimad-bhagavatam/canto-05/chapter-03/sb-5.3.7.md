@@ -1,5 +1,7 @@
 ### SB 5.3.7
 
+> अथानयापि न भवत इज्ययोरुभारभरया समुचितमर्थमिहोपलभामहे ॥६॥
+
 > athānayāpi na bhavata ijyayoru-bhāra-bharayā samucitam artham ihopalabhāmahe.
 
 *atha*—de otra manera; *anayā*—esto; *api*—incluso; *na*—no; *bhavataḥ*—de Tu excelsa personalidad; *ijyayā*—con celebración de sacrificios; *urubhāra-bharayā*—que exigen muchos artículos; *samucitam*—preciso; *artham*—empleo; *iha*—aquí; *upalabhāmahe*—podemos ver.

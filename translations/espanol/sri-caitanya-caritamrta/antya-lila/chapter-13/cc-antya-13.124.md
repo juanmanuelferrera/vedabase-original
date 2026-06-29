@@ -1,5 +1,8 @@
 ### CC Antya 13.124
 
+> সেই মালা, ছুটা পান প্রভু তাঁরে দিলা ।
+> ‘ইষ্টদেব’ করি’ মালা ধরিয়া রাখিলা ॥১২৪॥
+
 > sei mālā, chuṭā pāna prabhu tāṅre dilā
 > 'iṣṭa-deva' kari' mālā dhariyā rākhilā
 

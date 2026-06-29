@@ -1,5 +1,8 @@
 ### CC Madhya 1.69
 
+> মোর শ্লোকের অভিপ্রায় না জানে কোন জনে ।
+> মোর মনের কথা তুমি জানিলে কেমনে? ॥৬৯॥
+
 mora ślokera abhiprāya nā jāne kona jane
 mora manera kathā tumi jānile kemane?
 

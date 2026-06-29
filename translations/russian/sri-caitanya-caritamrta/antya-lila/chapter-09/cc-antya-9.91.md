@@ -1,5 +1,8 @@
 ### CC Antya 9.91
 
+> নিজ-কৌড়ি মাগে, রাজা নাহি করে দণ্ড ।
+> রাজা — মহাধার্মিক, এই হয় পাপী ভণ্ড ! ॥ ৯১ ॥
+
 > nija-kauḍi māge, rājā nāhi kare daṇḍa
 > rājā—mahā-dhārmika, ei haya pāpī bhaṇḍa!
 

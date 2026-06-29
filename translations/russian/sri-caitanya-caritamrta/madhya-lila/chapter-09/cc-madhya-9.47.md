@@ -1,5 +1,8 @@
 ### CC Madhya 9.47
 
+> বৌদ্ধাচার্য মহাপণ্ডিত নিজ নবমতে ।
+> প্রভুর আগে উদ্গ্রাহ করি’ লাগিলা বলিতে ॥৪৭॥
+
 > bauddhācārya mahā-paṇḍita nija nava-mate
 > prabhura āge udgrāha kari' lāgilā balite
 

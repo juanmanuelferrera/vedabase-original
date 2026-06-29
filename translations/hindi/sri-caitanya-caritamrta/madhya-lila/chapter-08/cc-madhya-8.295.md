@@ -1,5 +1,8 @@
 ### CC Madhya 8.295
 
+> ক্রমে উঠাইতে সেই উত্তম বস্তু পায় ।
+> ঐছে প্রশ্নোত্তর কৈল প্রভু-রামরায় ॥২৯৫॥
+
 > krame uṭhāite seha uttama vastu pāya
 > aiche praśnottara kaila prabhu-rāmarāya
 

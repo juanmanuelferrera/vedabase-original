@@ -1,5 +1,7 @@
 ### SB 5.21.4
 
+> यदा मेषतुलयोर्वर्तते तदाहोरात्राणि समानानि भवन्ति यदा वृषभादिषु पञ्चसु च राशिषुचरति तदाहान्येव वर्धन्ते ह्रसति च मासि मास्येकैका घटिका रात्रिषु ॥४॥
+
 > yadā meṣa-tulayor vartate tadāho-rātrāṇi samānāni bhavanti yadā vṛṣabhādiṣu pañcasu ca rāśiṣu carati tadāhāny eva vardhante hrasati ca māsi māsy ekaikā ghaṭikā rātriṣu.
 
 *yadā*—when; *meṣa-tulayoḥ*—in Meṣa (Aries) and Tulā (Libra); *vartate*—the sun exists; *tadā*—at that time; *ahaḥ-rātrāṇi*—the days and nights; *samānāni*—equal in duration; *bhavanti*—are; *yadā*—when; *vṛṣabha-ādiṣu*—headed by Vṛṣabha (Taurus) and Mithuna (Gemini); *pañcasu*—in the five; *ca*—also; *rāśiṣu*—signs; *carati*—moves; *tadā*—at that time; *ahāni*—the days; *eva*—certainly; *vardhante*—increase; *hrasati*—is diminished; *ca*—and; *māsi māsi*—in every month; *eka-ekā*—one; *ghaṭikā*—half hour; *rātriṣu*—in the nights.

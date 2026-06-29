@@ -1,5 +1,8 @@
 ### CC Adi 7.140
 
+> তাঁরে ‘নির্বিশেষ’ কহি, চিচ্ছক্তি না মানি ।
+> অর্ধ স্বরূপ না মানিলে পূর্ণতা হয় হানি ॥১৪০॥
+
 > tāṅre 'nirviśeṣa' kahi, cic-chakti nā māni
 > ardha-svarūpa nā mānile pūrṇatā haya hāni
 

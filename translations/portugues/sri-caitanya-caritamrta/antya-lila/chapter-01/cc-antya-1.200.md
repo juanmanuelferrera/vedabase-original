@@ -1,5 +1,8 @@
 ### CC Antya 1.200
 
+> ইঁহার যে জ্যেষ্ঠভ্রাতা, নাম — ‘সনাতন’ ।
+> পৃথিবীতে বিজ্ঞবর নাহি তাঁর সম ॥২০০॥
+
 iṅhāra ye jyeṣṭha-bhrātā, nāma--'sanātana'
 
 pṛthivīte vijña-vara nāhi tāṅra sama

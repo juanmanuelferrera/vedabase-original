@@ -1,5 +1,8 @@
 ### CC Madhya 20.321
 
+> চৌদ্দ এক দিনে, মাসে চারিশত বিশ ।
+> ব্রহ্মার বৎসরে পঞ্চসহস্র চল্লিশ ॥৩২১॥
+
 > caudda eka dine, māse cāri-śata biśa
 > brahmāra vatsare pañca-sahasra calliśa
 

@@ -1,5 +1,7 @@
 ### SB 5.24.7
 
+> उपवर्णितं भूमेर्यथासन्निवेशावस्थानमवनेरप्यधस्तात्सप्त भूविवरा एकैकशोयोजनायुतान्तरेणायामविस्तारेणोपकॢप्ता अतलं वितलं सुतलं तलातलं महातलं रसातलं पातालमिति ॥७॥
+
 > upavarṇitaṁ bhūmer yathā-sanniveśāvasthānam avaner apy adhastāt sapta bhū-vivarā ekaikaśo yojanāyutāntareṇāyāma-vistāreṇopakḷptā atalaṁ vitalaṁ sutalaṁ talātalaṁ mahātalaṁ rasātalaṁ pātālam iti.
 
 *upavarṇitam*—stated previously; *bhūmeḥ*—of the planet earth; *yathā-sanniveśa-avasthānam*—according to the arrangement of the different places; *avaneḥ*—the earth; *api*—certainly; *adhastāt*—beneath; *sapta*—seven; *bhū-vivarāḥ*—other planets; *eka-ekaśaḥ*—in succession, up to the outer limit of the universe; *yojana-ayuta-antareṇa*—with an interval of ten thousand *yojanas* (eighty thousand miles); *āyāma-vistāreṇa*—by width and length; *upakḷptāḥ*—situated; *atalam*—named Atala; *vitalam*—Vitala; *sutalam*—Sutala; *talātalam*—Talātala; *mahātalam*—Mahātala; *rasātalam*—Rasātala; *pātālam*—Pātāla; *iti*—thus.

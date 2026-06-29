@@ -1,5 +1,7 @@
 ### SB 5.21.5
 
+> यदा वृश्चिकादिषु पञ्चसु वर्तते तदाहोरात्राणि विपर्ययाणि भवन्ति ॥५॥
+
 > yadā vṛścikādiṣu pañcasu vartate tadāho-rātrāṇi viparyayāṇi bhavanti.
 
 *yadā*—cuando; *vṛścika-ādiṣu*—encabezados por Vṛścika (Escorpio); *pañcasu*—cinco; *vartate*—permanece; *tadā*—en ese momento; *ahaḥ-rātrāṇi*—los días y las noches; *viparyayāṇi*—lo contrario (la duración del día disminuye, y la de la noche aumenta); *bhavanti*—son.

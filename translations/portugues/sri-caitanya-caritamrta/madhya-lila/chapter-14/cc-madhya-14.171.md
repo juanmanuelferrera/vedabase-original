@@ -1,5 +1,8 @@
 ### CC Madhya 14.171
 
+> রাধা দেখি’ কৃষ্ণ যদি ছুঁইতে করে মন ।
+> দানঘাটি-পথে যবে বর্জেন গমন ॥১৭১॥
+
 rādhā dekhi' kṛṣṇa yadi chuṅite kare mana
 
 dāna-ghāṭi-pathe yabe varjena gamana

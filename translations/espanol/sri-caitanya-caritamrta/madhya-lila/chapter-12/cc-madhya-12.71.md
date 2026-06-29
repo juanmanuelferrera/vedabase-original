@@ -1,5 +1,8 @@
 ### CC Madhya 12.71
 
+> এইমত নানা রঙ্গে দিন কত গেল ।
+> জগন্নাথের রথযাত্রা নিকট হইল ॥৭১॥
+
 > ei-mata nānā raṅge dina kata gela
 > jagannāthera ratha-yātrā nikaṭa ha-ila
 

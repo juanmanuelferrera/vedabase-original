@@ -1,5 +1,8 @@
 ### CC Madhya 9.102
 
+> প্রভু কহে, — গীতা-পাঠে তোমারই অধিকার ৷
+> তুমি সে জানহ এই গীতার অর্থ-সার ৷৷ ১০২ ৷৷ ॥১০২॥
+
 prabhu kahe,--gītā-pāṭhe tomārā-i adhikāra
 tumi se jānaha ei gītāra artha-sāra
 

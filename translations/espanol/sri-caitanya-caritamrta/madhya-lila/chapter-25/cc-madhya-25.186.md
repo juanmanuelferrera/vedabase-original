@@ -1,5 +1,8 @@
 ### CC Madhya 25.186
 
+> এথা রূপ-গোসাঞি যবে মথুরা আইলা ৷
+> ধ্রুবঘাটে তাঁরে সুবুদ্ধিরায় মিলিলা ৷৷ ১৮৬ ৷৷ ॥১৮৬॥
+
 > ethā rūpa-gosāñi yabe mathurā āilā
 > dhruva-ghāṭe tāṅre subuddhi-rāya mililā
 

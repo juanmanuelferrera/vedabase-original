@@ -1,5 +1,8 @@
 ### CC Antya 18.67
 
+> এবে ভয় গেল, তোমার মন হৈল স্থিরে ।
+> কাহাঁ তাঁরে উঠাঞাছ, দেখাহ আমারে ।।” ॥ ৬৭ ॥
+
 ebe bhaya gela, tomāra mana haila sthire
 
 kāhāṅ tāṅre uṭhāñācha, dekhāha āmāre"

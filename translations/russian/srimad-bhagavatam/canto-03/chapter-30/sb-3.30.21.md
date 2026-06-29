@@ -1,5 +1,8 @@
 ### SB 3.30.21
 
+> तयोर्निर्भिन्नहृदयस्तर्जनैर्जातवेपथुः ।
+> पथि श्वभिर्भक्ष्यमाण आर्तोऽघं स्वमनुस्मरन् ॥२१॥
+
 > tayor nirbhinna-hṛdayas
 > tarjanair jāta-vepathuḥ
 > pathi śvabhir bhakṣyamāṇa

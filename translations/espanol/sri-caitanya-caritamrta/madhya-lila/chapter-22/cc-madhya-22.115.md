@@ -1,5 +1,8 @@
 ### CC Madhya 22.115
 
+> গুরুপাদাশ্রয়, দীক্ষা, গুরুর সেবন ।
+> সদ্ধর্মশিক্ষা-পৃচ্ছা সাধুমার্গানুগমন ॥১১৫॥
+
 > guru-pādāśraya, dīkṣā, gurura sevana
 > sad-dharma-śikṣā, pṛcchā, sādhu-mārgānugamana
 

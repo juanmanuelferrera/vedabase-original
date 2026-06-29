@@ -1,5 +1,8 @@
 ### SB 4.5.3
 
+> ततोऽतिकायस्तनुवा स्पृशन्दिवं सहस्रबाहुर्घनरुक्त्रिसूर्यदृक् ।
+> करालदंष्ट्रो ज्वलदग्निमूर्धजः कपालमाली विविधोद्यतायुधः ॥३॥
+
 > tato 'tikāyas tanuvā spṛśan divaṁ
 > sahasra-bāhur ghana-ruk tri-sūrya-dṛk
 > karāla-daṁṣṭro jvalad-agni-mūrdhajaḥ

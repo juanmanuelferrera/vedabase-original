@@ -1,5 +1,8 @@
 ### CC Madhya 6.79
 
+> তাহাতে বিখ্যাত ইঁহো পরম-ঈশ্বর ।
+> অজ্ঞ-স্থানে কিছু নহে বিজ্ঞের গোচর ।।’ ॥ ৭৯ ॥
+
 > tāhāte vikhyāta iṅho parama-īśvara
 > ajña-sthāne kichu nahe vijñera gocara'
 

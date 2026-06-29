@@ -1,5 +1,8 @@
 ### CC Madhya 19.19
 
+> পাৎসাহ দেখিয়া সবে সম্ভ্রমে উঠিলা ।
+> সম্ভ্রমে আসন দিয়া রাজারে বসাইলা ॥১৯॥
+
 > pātsāha dekhiyā sabe sambhrame uṭhilā
 > sambhrame āsana diyā rājāre vasāilā
 

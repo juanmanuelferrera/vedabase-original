@@ -1,5 +1,8 @@
 ### CC Adi 10.63
 
+> শ্রীবল্লভসেন, আর সেন শ্রীকান্ত ।
+> শিবানন্দ-সম্বন্ধে প্রভুর ভক্ত একান্ত ॥৬৩॥
+
 > śrī-vallabhasena, āra sena śrīkānta
 > śivānanda-sambandhe prabhura bhakta ekānta
 

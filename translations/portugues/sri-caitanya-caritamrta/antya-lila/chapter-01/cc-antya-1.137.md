@@ -1,5 +1,8 @@
 ### CC Antya 1.137
 
+> রায় কহে, — “প্ররোচনাদি কহ দেখি, শুনি ?”
+> রূপ কহে, — মহাপ্রভুর শ্রবণেচ্ছা জানি ॥১৩৭॥
+
 rāya kahe,--"prarocanādi kaha dekhi, śuni?"
 
 rūpa kahe,--"mahāprabhura śravaṇecchā jāni"

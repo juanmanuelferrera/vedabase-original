@@ -1,5 +1,8 @@
 ### CC Adi 17.157
 
+> প্রবৃত্তি-মার্গে গোবধ করিতে বিধি হয় ।
+> শাস্ত্র-আজ্ঞায় বধ কৈলে নাহি পাপ-ভয় ॥১৫৭॥
+
 pravṛtti-mārge go-vadha karite vidhi haya
 
 śāstra-ājñāya vadha kaile nāhi pāpa-bhaya

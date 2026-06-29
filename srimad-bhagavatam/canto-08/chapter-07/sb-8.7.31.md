@@ -1,5 +1,8 @@
 ### SB 8.7.31
 
+> छाया त्वधर्मोर्मिषु यैर्विसर्गो नेत्रत्रयं सत्त्वरजस्तमांसि
+> साङ्ख्यात्मनः शास्त्रकृतस्तवेक्षा छन्दोमयो देव ऋषिः पुराणः ॥३१॥
+
 > na te giri-trākhila-loka-pāla-
 > viriñca-vaikuṇṭha-surendra-gamyam
 > jyotiḥ paraṁ yatra rajas tamaś ca

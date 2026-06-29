@@ -1,5 +1,8 @@
 ### CC Madhya 10.7
 
+> ভট্ট কহে, — যে শুনিলা সব সত্য হয় ৷
+> তাঁর দর্শন তোমার ঘটন না হয় ৷৷ ৭ ৷৷ ॥৭॥
+
 bhaṭṭa kahe,-ye śunilā saba satya haya
 tāṅra darśana tomāra ghaṭana nā haya
 

@@ -1,5 +1,7 @@
 ### CC Madhya 15.265
 
+> পতিঞ্চ পতিতং ত্যজেৎ ॥২৬৫॥
+
 patiṁ ca patitaṁ tyajet
 
 *patim*—marido; *ca*—e; *patitam*—caído; *tyajet*—deve-se abandonar.

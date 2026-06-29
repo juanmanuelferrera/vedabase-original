@@ -1,5 +1,8 @@
 ### SB 8.12.37
 
+> तमविक्लवमव्रीडमालक्ष्य मधुसूदनः
+> उवाच परमप्रीतो बिभ्रत्स्वां पौरुषीं तनुम ॥३७॥
+
 > tam aviklavam avrīḍam
 > ālakṣya madhusūdanaḥ
 > uvāca parama-prīto

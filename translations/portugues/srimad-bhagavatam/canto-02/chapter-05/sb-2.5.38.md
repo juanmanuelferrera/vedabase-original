@@ -1,5 +1,8 @@
 ### SB 2.5.38
 
+> भूर्लोकः कल्पितः पद्भ्यां भुवर्लोकोऽस्य नाभितः ।
+> हृदा स्वर्लोक उरसा महर्लोको महात्मनः ॥३८॥
+
 bhūrlokaḥ kalpitaḥ padbhyāṁ
 bhuvarloko 'sya nābhitaḥ
 hṛdā svarloka urasā

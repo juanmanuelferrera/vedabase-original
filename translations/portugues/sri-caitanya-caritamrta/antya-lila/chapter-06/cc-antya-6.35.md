@@ -1,5 +1,8 @@
 ### CC Antya 6.35
 
+> এইমত রঘুনাথের বৎসরেক গেল ।
+> দ্বিতীয় বৎসরে পলাইতে মন কৈল ॥৩৫॥
+
 ei-mata raghunāthera vatsareka gela
 
 dvitīya vatsare palāite mana kaila

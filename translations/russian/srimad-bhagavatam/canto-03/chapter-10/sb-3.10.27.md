@@ -1,5 +1,8 @@
 ### SB 3.10.27
 
+> वैकृतास्त्रय एवैते देवसर्गश्च सत्तम ।
+> वैकारिकस्तु यः प्रोक्तः कौमारस्तूभयात्मकः ॥२७॥
+
 > vaikṛtās traya evaite
 > deva-sargaś ca sattama
 > vaikārikas tu yaḥ proktaḥ

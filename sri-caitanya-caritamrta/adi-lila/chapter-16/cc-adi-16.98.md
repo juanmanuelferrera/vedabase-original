@@ -1,5 +1,8 @@
 ### CC Adi 16.98
 
+> তবে শিষ্যগণ সব হাসিতে লাগিল ।
+> তা’-সবা নিষেধি’ প্রভু কবিরে কহিল ॥৯৮॥
+
 > tabe śiṣya-gaṇa saba hāsite lāgila
 > tā'-sabā niṣedhi' prabhu kavire kahila
 

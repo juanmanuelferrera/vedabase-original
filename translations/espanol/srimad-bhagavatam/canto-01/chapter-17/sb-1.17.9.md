@@ -1,5 +1,8 @@
 ### SB 1.17.9
 
+> मा सौरभेयात्र शुचो व्येतु ते वृषलाद्भयम् ।
+> मा रोदीरम्ब भद्रं ते खलानां मयि शास्तरि ॥९॥
+
 > mā saurabheyātra śuco
 > vyetu te vṛṣalād bhayam
 > mā rodīr amba bhadraṁ te

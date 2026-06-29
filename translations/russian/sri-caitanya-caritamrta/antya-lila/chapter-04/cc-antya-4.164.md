@@ -1,5 +1,8 @@
 ### CC Antya 4.164
 
+> আজিহ নহিল মোরে আত্মীয়তা-জ্ঞান !
+> মোর অভাগ্য, তুমি — স্বতন্ত্র ভগবান্ !” ॥ ১৬৪ ॥
+
 > ājiha nahila more ātmīyatā-jñāna!
 > mora abhāgya, tumi—svatantra bhagavān!"
 

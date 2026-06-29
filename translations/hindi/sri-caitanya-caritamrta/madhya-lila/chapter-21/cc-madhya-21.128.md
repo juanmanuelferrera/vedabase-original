@@ -1,5 +1,10 @@
 ### CC Madhya 21.128
 
+> করনখ-চান্দের হাট, বংশী-উপর করে নাট,
+> তার গীত মুরলীর তান ।
+> পদনখ-চন্দ্রগণ, তলে করে নর্তন,
+> নূপুরের ধ্বনি যার গান ॥১২৮॥
+
 > kara-nakha-cāndera hāṭa, vaṁśī-upara kare nāṭa,
 > tāra gīta muralīra tāna
 > pada-nakha-candra-gaṇa, tale kare nartana,

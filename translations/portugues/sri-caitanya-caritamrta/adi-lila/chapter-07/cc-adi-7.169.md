@@ -1,5 +1,8 @@
 ### CC Adi 7.169
 
+> শ্রীচৈতন্য, নিত্যানন্দ, অদ্বৈত, — তিন জন ।
+> শ্রীবাস-গদাধর-আদি যত ভক্তগণ ॥১৬৯॥
+
 śrī-caitanya, nityānanda, advaita,--tina jana
 
 śrīvāsa-gadādhara-ādi yata bhakta-gaṇa

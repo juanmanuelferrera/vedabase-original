@@ -1,5 +1,8 @@
 ### CC Antya 10.109
 
+> কেহ পৈড়, কেহ নাড়ু, কেহ পিঠাপানা ।
+> বহুমূল্য উত্তম-প্রসাদ-প্রকার যার নানা ॥১০৯॥
+
 keha paiḍa, keha nāḍu, keha piṭhā-pānā
 
 bahu-mūlya uttama-prasāda-prakāra yāra nānā

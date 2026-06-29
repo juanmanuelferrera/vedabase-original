@@ -1,5 +1,8 @@
 ### CC Madhya 11.239
 
+> পড়িছা আনিয়া দিল প্রসাদ বিস্তর ।
+> সবারে বাঁটিয়া তাহা দিলেন ঈশ্বর ॥২৩৯॥
+
 > paḍichā āniyā dila prasāda vistara
 > sabāre bāṅṭiyā tāhā dilena īśvara
 

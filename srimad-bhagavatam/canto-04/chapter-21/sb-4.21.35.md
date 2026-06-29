@@ -1,5 +1,8 @@
 ### SB 4.21.35
 
+> प्रधानकालाशयधर्मसङ्ग्रहे शरीर एष प्रतिपद्य चेतनाम् ।
+> क्रियाफलत्वेन विभुर्विभाव्यते यथानलो दारुषु तद्गुणात्मकः ॥३५॥
+
 > pradhāna-kālāśaya-dharma-saṅgrahe
 > śarīra eṣa pratipadya cetanām
 > kriyā-phalatvena vibhur vibhāvyate

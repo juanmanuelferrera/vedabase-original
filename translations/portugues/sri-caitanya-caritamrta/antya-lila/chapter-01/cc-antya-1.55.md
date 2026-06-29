@@ -1,5 +1,8 @@
 ### CC Antya 1.55
 
+> সবার চরণ রূপ করিলা বন্দন ।
+> কৃপা করি’ রূপে সবে কৈলা আলিঙ্গন ॥৫৫॥
+
 sabāra caraṇa rūpa karilā vandana
 
 kṛpā kari' rūpe sabe kailā āliṅgana

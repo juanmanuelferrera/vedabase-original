@@ -1,5 +1,8 @@
 ### SB 8.16.38
 
+> एतैर्मन्त्रैर्हृषीकेशमावाहनपुरस्कृतम
+> अर्चयेच्छ्रद्धया युक्तः पाद्योपस्पर्शनादिभिः ॥३८॥
+
 > etair mantrair hṛṣīkeśam
 > āvāhana-puraskṛtam
 > arcayec chraddhayā yuktaḥ

@@ -1,5 +1,8 @@
 ### CC Madhya 8.198
 
+> রায় কহে, — যেই কহাও, সেই কহি বাণী ৷
+> কি কহিয়ে ভাল-মন্দ, কিছুই না জানি ৷৷ ১৯৮ ৷৷ ॥১৯৮॥
+
 > rāya kahe,--yei kahāo, sei kahi vāṇī
 > ki kahiye bhāla-manda, kichui nā jāni
 

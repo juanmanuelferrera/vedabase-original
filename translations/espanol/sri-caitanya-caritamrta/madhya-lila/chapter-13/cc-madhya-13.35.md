@@ -1,5 +1,8 @@
 ### CC Madhya 13.35
 
+> নিত্যানন্দ, অদ্বৈত, হরিদাস, বক্রেশ্বরে ৷
+> চারি জনে আজ্ঞা দিল নৃত্য করিবারে ॥৩৫॥
+
 > nityānanda, advaita, haridāsa, vakreśvare
 > cāri jane ājñā dila nṛtya karibāre
 

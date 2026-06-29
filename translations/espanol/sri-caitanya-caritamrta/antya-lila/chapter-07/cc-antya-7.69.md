@@ -1,5 +1,8 @@
 ### CC Antya 7.69
 
+> মহাপ্রসাদ বল্লভ-ভট্ট বহু আনাইল ।
+> প্রভু-সহ সন্ন্যাসিগণ ভোজনে বসিল ॥৬৯॥
+
 > mahā-prasāda vallabha-bhaṭṭa bahu ānāila
 > prabhu-saha sannyāsi-gaṇa bhojane vasila
 

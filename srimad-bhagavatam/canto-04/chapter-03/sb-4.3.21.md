@@ -1,5 +1,8 @@
 ### SB 4.3.21
 
+> पापच्यमानेन हृदातुरेन्द्रियः समृद्धिभिः पूरुषबुद्धिसाक्षिणाम् ।
+> अकल्प एषामधिरोढुमञ्जसा परं पदं द्वेष्टि यथासुरा हरिम् ॥२१॥
+
 > pāpacyamānena hṛdāturendriyaḥ
 > samṛddhibhiḥ pūruṣa-buddhi-sākṣiṇām
 > akalpa eṣām adhiroḍhum añjasā

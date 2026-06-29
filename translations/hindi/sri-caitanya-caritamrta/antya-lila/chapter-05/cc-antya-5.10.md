@@ -1,5 +1,8 @@
 ### CC Antya 5.10
 
+> ধর্মঃ স্বনুষ্ঠিতঃ পুংসাং বিষ্বক্সেনকথাসু যঃ ।
+> নোৎপাদয়েদ্যদি রতিং শ্রম এব হি কেবলম্ ॥১০॥
+
 > dharmaḥ svanuṣṭhitaḥ puṁsāṁ
 > viṣvaksena-kathāsu yaḥ
 > notpādayed yadi ratiṁ

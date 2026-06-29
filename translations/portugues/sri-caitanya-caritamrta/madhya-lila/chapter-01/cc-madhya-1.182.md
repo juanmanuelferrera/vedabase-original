@@ -1,5 +1,8 @@
 ### CC Madhya 1.182
 
+> ঘরে আসি’ দুই ভাই যুকতি করিঞা ।
+> প্রভু দেখিবারে চলে বেশ লুকাঞা ॥১৮২॥
+
 ghare āsi' dui bhāi yukati kariñā
 
 prabhu dekhibāre cale veśa lukāñā

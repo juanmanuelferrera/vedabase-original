@@ -1,5 +1,8 @@
 ### Īśo 2
 
+> कुर्वन्नेवेह कर्माणि जिजीविषेच्छतँ समाः।
+> एवं त्वयि नान्यथेतोऽस्ति न कर्म लिप्यते नरे॥२॥
+
 > kurvann eveha karmāṇi
 > jijīviṣec chataṁ samāḥ
 > evaṁ tvayi nānyatheto 'sti

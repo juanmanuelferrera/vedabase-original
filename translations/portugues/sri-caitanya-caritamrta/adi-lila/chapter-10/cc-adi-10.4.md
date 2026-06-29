@@ -1,5 +1,8 @@
 ### CC Adi 10.4
 
+> চৈতন্য-গোসাঞির যত পারিষদচয় ।
+> গুরু-লঘু-ভাব তাঁর না হয় নিশ্চয় ॥৪॥
+
 caitanya-gosāñira yata pāriṣada-caya
 guru-laghu-bhāva tāṅra nā haya niścaya
 

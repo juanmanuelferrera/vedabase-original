@@ -1,5 +1,8 @@
 ### CC Antya 6.119
 
+> ভক্তগণ আকণ্ঠ ভরিয়া করিল ভোজন ।
+> ‘হরি’ ধ্বনি করি’ উঠি’ কৈলা আচমন ॥১১৯॥
+
 bhakta-gaṇa ākaṇṭha bhariyā karila bhojana
 
 'hari' dhvani kari' uṭhi' kailā ācamana

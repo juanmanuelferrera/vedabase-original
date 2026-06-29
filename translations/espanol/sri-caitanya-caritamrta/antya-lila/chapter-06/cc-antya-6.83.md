@@ -1,5 +1,8 @@
 ### CC Antya 6.83
 
+> তবে হাসি’ নিত্যানন্দ বসিলা আসনে ।
+> চারি কুণ্ডী আরোয়া চিড়া রাখিলা ডাহিনে ॥৮৩॥
+
 > tabe hāsi' nityānanda vasilā āsane
 > cāri kuṇḍī āroyā ciḍā rākhilā ḍāhine
 

@@ -1,5 +1,8 @@
 ### CC Antya 2.167
 
+> এইমত লীলা করে শচীর নন্দন ।
+> যাহা শুনি’ ভক্তগণের যুড়ায় কর্ণ-মন ॥১৬৭॥
+
 ei-mata līlā kare śacīra nandana
 
 yāhā śuni' bhakta-gaṇera yuḍāya karṇa-mana

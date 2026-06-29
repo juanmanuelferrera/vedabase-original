@@ -1,5 +1,8 @@
 ### CC Madhya 19.185
 
+> শান্ত, দাস্য, সখ্য, বাৎসল্য, মধুর-রস নাম ।
+> কৃষ্ণভক্তি-রস-মধ্যে এ পঞ্চ প্রধান ॥১৮৫॥
+
 śānta, dāsya, sakhya, vātsalya, madhura-rasa nāma
 
 kṛṣṇa-bhakti-rasa-madhye e pañca pradhāna

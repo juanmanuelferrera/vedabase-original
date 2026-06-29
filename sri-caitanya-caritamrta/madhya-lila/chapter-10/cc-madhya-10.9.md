@@ -1,5 +1,8 @@
 ### CC Madhya 10.9
 
+> তথাপি প্রকারে তোমা করাইতাম দরশন ।
+> সম্প্রতি করিলা তেঁহো দক্ষিণ গমন ॥৯॥
+
 > tathāpi prakāre tomā karāitāma daraśana
 > samprati karilā teṅho dakṣiṇa gamana
 

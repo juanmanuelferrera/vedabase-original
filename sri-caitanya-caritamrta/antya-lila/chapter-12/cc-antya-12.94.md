@@ -1,5 +1,8 @@
 ### CC Antya 12.94
 
+> নিমাঞি খাঞাছে, — ঐছে হয় মোর মন ।
+> পাছে জ্ঞান হয়, — মুঞি দেখিনু ‘স্বপন’ ।।” ॥ ৯৪ ॥
+
 > nimāñi khāñāche,—aiche haya mora mana
 > pāche jñāna haya,—muñi dekhinu 'svapana' "
 

@@ -1,5 +1,8 @@
 ### CC Adi 4.190
 
+> গোপিকা-দর্শনে কৃষ্ণের বাঢ়ে প্রফুল্লতা ।
+> সে মাধুর্য বাঢ়ে যার নাহিক সমতা ॥১৯০॥
+
 gopikā-darśane kṛṣṇera bāḍhe praphullatā
 se mādhurya bāḍhe yāra nāhika samatā
 

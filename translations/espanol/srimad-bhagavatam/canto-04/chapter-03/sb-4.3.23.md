@@ -1,5 +1,8 @@
 ### SB 4.3.23
 
+> सत्त्वं विशुद्धं वसुदेवशब्दितं यदीयते तत्र पुमानपावृतः ।
+> सत्त्वे च तस्मिन्भगवान्वासुदेवो ह्यधोक्षजो मे नमसा विधीयते ॥२३॥
+
 > sattvaṁ viśuddhaṁ vasudeva-śabditaṁ
 > yad īyate tatra pumān apāvṛtaḥ
 > sattve ca tasmin bhagavān vāsudevo

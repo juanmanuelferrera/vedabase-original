@@ -1,5 +1,8 @@
 ### CC Antya 3.30
 
+> ‘বারে বারে আসি’ আমি তোমার ভবনে  ।
+> মিষ্টান্ন ব্যঞ্জন সব করিয়ে ভোজনে ॥৩০॥
+
 'bāre bāre āsi' āmi tomāra bhavane
 
 miṣṭānna vyañjana saba kariye bhojane

@@ -1,5 +1,8 @@
 ### CC Adi 2.60
 
+> ব্রহ্ম, আত্মা, ভগবান্ — কৃষ্ণের বিহার ।
+> এ অর্থ না জানি’ মূর্খ অর্থ করে আর ॥৬০॥
+
 > brahma, ātmā, bhagavān—kṛṣṇera vihāra
 > e artha nā jāni' mūrkha artha kare āra
 

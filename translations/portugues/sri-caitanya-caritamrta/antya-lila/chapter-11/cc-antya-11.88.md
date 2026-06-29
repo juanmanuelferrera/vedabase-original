@@ -1,5 +1,8 @@
 ### CC Antya 11.88
 
+> আকণ্ঠ পূরাঞা সবায় করাইলা ভোজন ।
+> দেহ’ দেহ’ বলি’ প্রভু বলেন বচন ॥৮৮॥
+
 ākaṇṭha pūrāñā sabāya karāilā bhojana
 
 deha' deha' bali' prabhu balena vacana

@@ -1,5 +1,8 @@
 ### CC Adi 13.1
 
+> স প্রসীদতু চৈতন্যদেবো যস্য প্রসাদতঃ ।
+> তল্লীলাবর্ণনে যোগ্যঃ সদ্যঃ স্যাদধমোঽপ্যয়ম্ ॥১॥
+
 sa prasīdatu caitanya-
 devo yasya prasādataḥ
 tal-līlā-varṇane yogyaḥ

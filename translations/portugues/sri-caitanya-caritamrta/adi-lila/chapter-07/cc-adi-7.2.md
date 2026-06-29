@@ -1,5 +1,8 @@
 ### CC Adi 7.2
 
+> জয় জয় মহাপ্রভু শ্রীকৃষ্ণচৈতন্য ।
+> তাঁহার চরণাশ্রিত, সেই বড় ধন্য ॥২॥
+
 jaya jaya mahāprabhu śrī-kṛṣṇa-caitanya
 tāṅhāra caraṇāśrita, sei baḍa dhanya
 

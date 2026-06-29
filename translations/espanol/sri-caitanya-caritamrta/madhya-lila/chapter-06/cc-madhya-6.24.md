@@ -1,5 +1,8 @@
 ### CC Madhya 6.24
 
+> আমা-সবা ছাড়ি’ আগে গেলা দরশনে ।
+> আমি-সব পাছে আইলাঙ তাঁর অন্বেষণে ॥২৪॥
+
 > āmā-sabā chāḍi' āge gelā daraśane
 > āmi-saba pāche āilāṅ tāṅra anveṣaṇe
 

@@ -1,5 +1,8 @@
 ### CC Antya 9.149
 
+> গোপীনাথের নিন্দা, আর আপন-নির্বেদ ।
+> এইমাত্র কহিল — ইহার না বুঝিবে ভেদ ॥১৪৯॥
+
 > gopīnāthera nindā, āra āpana-nirveda
 > ei-mātra kahila--ihāra nā bujhibe bheda
 

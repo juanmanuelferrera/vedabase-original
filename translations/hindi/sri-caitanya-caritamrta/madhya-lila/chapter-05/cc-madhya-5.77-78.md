@@ -1,5 +1,9 @@
 ### CC Madhya 5.77-78
 
+> তবে বড়বিপ্র কহে, — “এই সত্য কথা ।
+> গোপাল যদি সাক্ষী দেন, আপনে আসি’ এথা ॥৭৭॥
+> তবে কন্যা দিব আমি, জানিহ নিশ্চয় ।” তাঁর পুত্র কহে, — ‘এই ভাল বাত হয় ।।’ ৭৮ ॥৭৮॥
+
 > tabe baḍa-vipra kahe, "ei satya kathā
 > gopāla yadi sākṣī dena, āpane āsi' ethā
 > tabe kanyā diba āmi, jāniha niścaya"

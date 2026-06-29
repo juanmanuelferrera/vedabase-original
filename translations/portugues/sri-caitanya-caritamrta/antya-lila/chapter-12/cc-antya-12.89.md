@@ -1,5 +1,8 @@
 ### CC Antya 12.89
 
+> জগদানন্দে পাঞা মাতা আনন্দিত মনে ।
+> তেঁহো প্রভুর কথা কহে, শুনে রাত্রি-দিনে ॥৮৯॥
+
 jagadānande pāñā mātā ānandita mane
 
 teṅho prabhura kathā kahe, śune rātri-dine

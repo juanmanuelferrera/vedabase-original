@@ -1,5 +1,8 @@
 ### CC Antya 3.81
 
+> পূর্বে যেন রঘুনাথ সব অযোধ্যা লঞা ।
+> বৈকুণ্ঠকে গেলা, অন্যজীবে অযোধ্যা ভরাঞা ॥৮১॥
+
 > pūrve yena raghunātha saba āyodhyā lañā
 > vaikuṇṭhake gelā, anya-jīve āyodhyā bharāñā
 

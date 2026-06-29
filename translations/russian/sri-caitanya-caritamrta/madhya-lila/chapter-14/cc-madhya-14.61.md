@@ -1,5 +1,8 @@
 ### CC Madhya 14.61
 
+> পাণ্ডুবিজয় তবে করে সেবকগণে ।
+> জগন্নাথ বসিলা গিয়া নিজ সিংহাসনে ॥৬১॥
+
 > pāṇḍu-vijaya tabe kare sevaka-gaṇe
 > jagannātha vasilā giyā nija-siṁhāsane
 

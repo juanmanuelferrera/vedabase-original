@@ -1,5 +1,8 @@
 ### CC Madhya 11.58
 
+> রামানন্দ রায়, আজি তোমার প্রেম-গুণ ৷
+> প্রভু-আগে কহিতে প্রভুর ফিরি’ গেল মন ৷৷ ৫৮ ৷৷ ॥৫৮॥
+
 > rāmānanda rāya, āji tomāra prema-guṇa
 > prabhu-āge kahite prabhura phiri' gela mana
 

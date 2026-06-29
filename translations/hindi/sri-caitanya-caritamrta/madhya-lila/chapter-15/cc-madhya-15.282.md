@@ -1,5 +1,8 @@
 ### CC Madhya 15.282
 
+> চড়াইতে চড়াইতে গাল ফুলাইল ।
+> হাতে ধরি’ গোপীনাথাচার্য নিষেধিল ॥২৮২॥
+
 > caḍāite caḍāite gāla phulāila
 > hāte dhari' gopīnāthācārya niṣedhila
 

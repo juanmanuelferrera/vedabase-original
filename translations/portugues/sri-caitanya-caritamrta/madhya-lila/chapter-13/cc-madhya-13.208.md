@@ -1,5 +1,8 @@
 ### CC Madhya 13.208
 
+> ইহা যেই শুনে সেই শ্রীচৈতন্য পায় ।
+> সুদৃঢ় বিশ্বাস-সহ প্রেমভক্তি হয় ॥২০৮॥
+
 ihā yei śune sei śrī-caitanya pāya
 
 sudṛḍha viśvāsa-saha prema-bhakti haya

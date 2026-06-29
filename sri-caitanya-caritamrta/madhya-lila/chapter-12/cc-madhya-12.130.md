@@ -1,5 +1,8 @@
 ### CC Madhya 12.130
 
+> তবে মহাপ্রভুর মনে সন্তোষ হইলা  ।
+> সারি করি’ দুই পাশে সবারে বসাইলা ॥১৩০॥
+
 > tabe mahāprabhura mane santoṣa ha-ilā
 > sāri kari' dui pāśe sabāre vasāilā
 

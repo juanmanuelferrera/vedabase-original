@@ -1,5 +1,8 @@
 ### CC Madhya 20.356
 
+> ‘স্বরূপ’-লক্ষণ, আর ‘তটস্থ-লক্ষণ’ ।
+> এই দুই লক্ষণে ‘বস্তু’ জানে মুনিগণ ॥৩৫৬॥
+
 > 'svarūpa'-lakṣaṇa, āra 'taṭastha-lakṣaṇa'
 > ei dui lakṣaṇe 'vastu' jāne muni-gaṇa
 

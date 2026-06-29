@@ -1,5 +1,8 @@
 ### CC Madhya 9.313
 
+> সপ্ততাল দেখি’ প্রভু আলিঙ্গন কৈল ৷
+> সশরীরে সপ্ততাল বৈকুণ্ঠে চলিল ৷৷ ৩১৩ ৷৷ ॥৩১৩॥
+
 saptatāla dekhi' prabhu āliṅgana kaila
 saśarīre saptatāla vaikuṇṭhe calila
 

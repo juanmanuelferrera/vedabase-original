@@ -1,5 +1,8 @@
 ### SB 4.20.19
 
+> भगवानथ विश्वात्मा पृथुनोपहृतार्हणः ।
+> समुज्जिहानया भक्त्या गृहीतचरणाम्बुजः ॥१९॥
+
 > bhagavān atha viśvātmā
 > pṛthunopahṛtārhaṇaḥ
 > samujjihānayā bhaktyā

@@ -1,5 +1,8 @@
 ### CC Antya 13.130
 
+> গোবিন্দ-চরণে কৈলা আত্মসমর্পণ ।
+> গোবিন্দ-চরণারবিন্দ — যাঁর প্রাণধন ॥১৩০॥
+
 govinda-caraṇe kailā ātma-samarpaṇa
 
 govinda-caraṇāravinda--yāṅra prāṇa-dhana

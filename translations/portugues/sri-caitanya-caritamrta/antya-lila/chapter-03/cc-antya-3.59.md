@@ -1,5 +1,8 @@
 ### CC Antya 3.59
 
+> নামের অক্ষর-সবের এই ত’ স্বভাব ।
+> ব্যবহিত হৈলে না ছাড়ে আপন-প্রভাব ॥৫৯॥
+
 nāmera akṣara-sabera ei ta' svabhāva
 
 vyavahita haile nā chāḍe āpana-prabhāva

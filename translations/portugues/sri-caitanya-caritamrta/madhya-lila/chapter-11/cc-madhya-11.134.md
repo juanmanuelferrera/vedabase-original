@@ -1,5 +1,8 @@
 ### CC Madhya 11.134
 
+> অদ্বৈতেরে কহেন প্রভু মধুর বচনে ৷
+> আজি আমি পূর্ণ হইলাঙ তোমার আগমনে ৷৷ ১৩৪ ৷৷ ॥১৩৪॥
+
 advaitere kahena prabhu madhura vacane
 āji āmi pūrṇa ha-ilāṅa tomāra āgamane
 

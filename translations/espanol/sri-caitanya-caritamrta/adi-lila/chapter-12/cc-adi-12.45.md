@@ -1,5 +1,8 @@
 ### CC Adi 12.45
 
+> আমারেহ কভু যেই না হয় প্রসাদ ।
+> তোমার চরণে আমি কি কৈনু অপরাধ ॥৪৫॥
+
 > āmāreha kabhu yei nā haya prasāda
 > tomāra caraṇe āmi ki kainu aparādha
 

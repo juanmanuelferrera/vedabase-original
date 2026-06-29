@@ -1,5 +1,8 @@
 ### CC Madhya 6.171
 
+> মণি যৈছে অবিকৃতে প্রসবে হেমভার ।
+> জগদ্রূপ হয় ঈশ্বর, তবু অবিকার ॥১৭১॥
+
 > maṇi yaiche avikṛte prasabe hema-bhāra
 > jagad-rūpa haya īśvara, tabu avikāra
 

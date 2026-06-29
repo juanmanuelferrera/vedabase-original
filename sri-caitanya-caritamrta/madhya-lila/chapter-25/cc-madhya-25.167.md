@@ -1,5 +1,8 @@
 ### CC Madhya 25.167
 
+> নিজ-লোক লঞা প্রভু আইলা বাসাঘর ।
+> বারাণসী হৈল দ্বিতীয় নদীয়া-নগর ॥১৬৭॥
+
 > nija-loka lañā prabhu āilā vāsāghara
 > vārāṇasī haila dvitīya nadīyā-nagara
 

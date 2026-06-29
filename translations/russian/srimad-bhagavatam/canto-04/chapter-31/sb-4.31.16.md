@@ -1,5 +1,8 @@
 ### SB 4.31.16
 
+> एतत्पदं तज्जगदात्मनः परं सकृद्विभातं सवितुर्यथा प्रभा ।
+> यथासवो जाग्रति सुप्तशक्तयो द्रव्यक्रियाज्ञानभिदाभ्रमात्ययः ॥१६॥
+
 > etat padaṁ taj jagad-ātmanaḥ paraṁ
 > sakṛd vibhātaṁ savitur yathā prabhā
 > yathāsavo jāgrati supta-śaktayo

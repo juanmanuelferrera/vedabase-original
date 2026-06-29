@@ -1,5 +1,8 @@
 ### CC Antya 4.135
 
+> এইমতে সেবক-প্রভু দুঁহে ঘর গেলা ।
+> আর দিন জগদানন্দ সনাতনেরে মিলিলা ॥১৩৫॥
+
 > ei-mate sevaka-prabhu duṅhe ghara gelā
 > āra dina jagadānanda sanātanere mililā
 

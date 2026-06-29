@@ -1,5 +1,8 @@
 ### CC Madhya 20.62
 
+> এত কহি কহে প্রভু, — “শুন, সনাতন ।
+> কৃষ্ণ — বড় দয়াময়, পতিত-পাবন ॥৬২॥
+
 > eta kahi kahe prabhu,--"śuna, sanātana
 > kṛṣṇa--baḍa dayāmaya, patita-pāvana
 

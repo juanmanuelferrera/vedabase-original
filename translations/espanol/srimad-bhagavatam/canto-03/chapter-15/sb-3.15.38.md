@@ -1,5 +1,10 @@
 ### SB 3.15.38
 
+> तं त्वागतं प्रतिहृतौपयिकं स्वपुम्भिस्
+> तेऽचक्षताक्षविषयं स्वसमाधिभाग्यम् ।
+> हंसश्रियोर्व्यजनयोः शिववायुलोलच्
+> छुभ्रातपत्रशशिकेसरशीकराम्बुम् ॥३८॥
+
 > taṁ tv āgataṁ pratihṛtaupayikaṁ sva-pumbhis
 > te 'cakṣatākṣa-viṣayaṁ sva-samādhi-bhāgyam
 > haṁsa-śriyor vyajanayoḥ śiva-vāyu-lolac-

@@ -1,5 +1,8 @@
 ### CC Madhya 20.362
 
+> এই সব কার্য — তাঁর তটস্থ-লক্ষণ ।
+> অন্য অবতার ঐছে জানে মুনিগণ ॥৩৬২॥
+
 ei saba kārya--tāṅra taṭastha-lakṣaṇa
 
 anya avatāra aiche jāne muni-gaṇa

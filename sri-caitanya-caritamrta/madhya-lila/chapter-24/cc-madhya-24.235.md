@@ -1,5 +1,8 @@
 ### CC Madhya 24.235
 
+> শ্যামবর্ণ রক্তনেত্র মহাভয়ঙ্কর ।
+> ধনুর্বাণ হস্তে, — যেন যম দণ্ডধর ॥২৩৫॥
+
 > śyāma-varṇa rakta-netra mahā-bhayaṅkara
 > dhanur-bāṇa haste,—yena yama daṇḍa-dhara
 

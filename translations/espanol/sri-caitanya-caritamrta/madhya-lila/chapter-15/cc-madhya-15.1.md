@@ -1,5 +1,8 @@
 ### CC Madhya 15.1
 
+> সার্বভৌমগৃহে ভুঞ্জন্ স্বনিন্দকমমোঘকম্ ৷
+> অঙ্গীকুর্বন্ স্ফুটাং চক্রে গৌরঃ স্বাং ভক্তবশ্যতাম্ ॥১॥
+
 > sārvabhauma-gṛhe bhuñjan
 > sva-nindakam amoghakam
 > aṅgīkurvan sphuṭāṁ cakre

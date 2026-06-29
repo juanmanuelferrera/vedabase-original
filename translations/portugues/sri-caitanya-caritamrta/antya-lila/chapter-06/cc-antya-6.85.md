@@ -1,5 +1,8 @@
 ### CC Antya 6.85
 
+> দেখি’ নিত্যানন্দপ্রভু আনন্দিত হৈলা ।
+> কত কত ভাবাবেশ প্রকাশ করিলা ॥৮৫॥
+
 dekhi' nityānanda-prabhu ānandita hailā
 
 kata kata bhāvāveśa prakāśa karilā

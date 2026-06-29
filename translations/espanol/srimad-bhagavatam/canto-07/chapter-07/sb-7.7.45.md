@@ -1,5 +1,8 @@
 ### SB 7.7.45
 
+> किमेतैरात्मनस्तुच्छैः सह देहेन नश्वरैः
+> अनर्थैरर्थसङ्काशैर्नित्यानन्दरसोदधेः ॥४५॥
+
 > kim etair ātmanas tucchaiḥ
 > saha dehena naśvaraiḥ
 > anarthair artha-saṅkāśair

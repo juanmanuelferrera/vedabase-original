@@ -1,5 +1,8 @@
 ### Bg 3.4
 
+> न कर्मणामनारम्भान्नैष्कर्म्यं पुरुषोऽश्नुते ।
+> न च संन्यसनादेव सिद्धिं समधिगच्छति ॥४॥
+
 > na karmaṇām anārambhān
 > naiṣkarmyaṁ puruṣo 'śnute
 > na ca sannyasanād eva

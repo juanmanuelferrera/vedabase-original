@@ -1,5 +1,8 @@
 ### CC Madhya 10.145
 
+> স শুশ্রুবান্মাতরি ভার্গবেণ পিতুর্নিয়োগাত্ প্রহৃতং দ্বিষদ্বত্ ৷
+> প্রত্যগৃহীদগ্রজশাসনং তদাজ্ঞা গুরূণাং হ্যবিচারণীয়া ৷৷ ১৪৫ ৷৷ ॥১৪৫॥
+
 > sa śuśruvān mātari bhārgaveṇa
 > pitur niyogāt prahṛtaṁ dviṣad-vat
 > pratyagṛhīd agraja-śāsanaṁ tad

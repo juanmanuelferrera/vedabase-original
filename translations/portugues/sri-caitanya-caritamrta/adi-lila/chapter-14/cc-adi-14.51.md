@@ -1,5 +1,8 @@
 ### CC Adi 14.51
 
+> আপনি চন্দন পরি’ পরেন ফুলমালা ।
+> নৈবেদ্য কাড়িয়া খা’ন — সন্দেশ, চাল, কলা ॥৫১॥
+
 āpani candana pari' parena phula-mālā
 naivedya kāḍiyā khā'na--sandeśa, cāla, kalā
 

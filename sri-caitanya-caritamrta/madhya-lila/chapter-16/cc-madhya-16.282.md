@@ -1,5 +1,8 @@
 ### CC Madhya 16.282
 
+> এই আগে আইলা, প্রভু, বর্ষার চারি মাস ।
+> এই চারি মাস কর নীলাচলে বাস ॥২৮২॥
+
 > ei āge āilā, prabhu, varṣāra cāri māsa
 > ei cāri māsa kara nīlācale vāsa
 

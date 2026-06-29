@@ -1,5 +1,8 @@
 ### CC Madhya 9.256
 
+> আচার্য কহে, — ‘বর্ণাশ্রম-ধর্ম, কৃষ্ণে সমর্পণ’ ।
+> এই হয় কৃষ্ণভক্তের শ্রেষ্ঠ ‘সাধন’ ॥২৫৬॥
+
 > ācārya kahe,--'varṇāśrama-dharma, kṛṣṇe samarpaṇa'
 > ei haya kṛṣṇa-bhaktera śreṣṭha 'sādhana'
 

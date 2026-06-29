@@ -1,5 +1,8 @@
 ### CC Antya 9.43
 
+> তাতে রক্ষা করিতে যদি হয় সবার মনে ।
+> সবে মেলি’ জানাহ জগন্নাথের চরণে ॥৪৩॥
+
 > tāte rakṣā karite yadi haya sabāra mane
 > sabe meli' jānāha jagannāthera caraṇe
 

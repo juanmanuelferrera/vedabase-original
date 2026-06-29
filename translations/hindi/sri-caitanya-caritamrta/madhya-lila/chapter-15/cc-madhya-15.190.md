@@ -1,5 +1,8 @@
 ### CC Madhya 15.190
 
+> সার্বভৌম কহে পুনঃ, — দিন ‘পঞ্চদশ’ ।
+> প্রভু কহে, — তোমার ভিক্ষা ‘এক’ দিবস ॥১৯০॥
+
 > sārvabhauma kahe punaḥ,--dina 'pañca-daśa'
 > prabhu kahe,--tomāra bhikṣā 'eka' divasa
 

@@ -1,5 +1,8 @@
 ### CC Madhya 10.135
 
+> গোসাঞি কহিল, ‘পুরীশ্বর’ বাৎসল্য করে মোরে ৷
+> কৃপা করি’ মোর ঠাঞি পাঠাইলা তোমারে ৷৷ ১৩৫ ৷৷ ॥১৩৫॥
+
 gosāñi kahila, 'purīśvara' vātsalya kare more
 
 kṛpā kari' mora ṭhāñi pāṭhāilā tomāre

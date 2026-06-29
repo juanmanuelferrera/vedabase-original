@@ -1,5 +1,8 @@
 ### SB 9.18.2
 
+> राज्यं नैच्छद्यतिः पित्रा दत्तं तत्परिणामवित
+> यत्र प्रविष्टः पुरुष आत्मानं नावबुध्यते ॥२॥
+
 > rājyaṁ naicchad yatiḥ pitrā
 > dattaṁ tat-pariṇāmavit
 > yatra praviṣṭaḥ puruṣa

@@ -1,5 +1,10 @@
 ### CC Adi 13.114
 
+> দুর্বা, ধান্য, গোরোচন, হরিদ্রা, কুঙ্কুম, চন্দন,
+> মঙ্গল-দ্রব্য পাত্র ভরিয়া ।
+> বস্ত্র-গুপ্ত দোলা চড়ি’ সঙ্গে লঞা দাসী চেড়ী,
+> বস্ত্রালঙ্কার পেটারি ভরিয়া ॥১১৪॥
+
 > durvā, dhānya, gorocana, haridrā, kuṅkuma, candana,
 > maṅgala-dravya pātra bhariyā
 > vastra-gupta dolā caḍi' saṅge lañā dāsī ceḍī,

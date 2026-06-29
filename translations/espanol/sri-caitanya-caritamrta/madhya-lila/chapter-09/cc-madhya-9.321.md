@@ -1,5 +1,8 @@
 ### CC Madhya 9.321
 
+> দুই জনে প্রেমাবেশে করেন ক্রন্দন ৷
+> প্রেমানন্দে শিথিল হৈল দুঁহাকার মন ৷৷ ৩২১ ৷৷ ॥৩২১॥
+
 > dui jane premāveśe karena krandana
 > premānande śithila haila duṅhākāra mana
 

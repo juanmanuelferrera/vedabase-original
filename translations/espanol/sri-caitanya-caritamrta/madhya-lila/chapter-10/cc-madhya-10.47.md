@@ -1,5 +1,8 @@
 ### CC Madhya 10.47
 
+> এ-সব বৈষ্ণব — এই ক্ষেত্রের ভূষণ ৷
+> একান্তভাবে চিন্তে সবে তোমার চরণ ৷৷ ৪৭ ৷৷ ॥৪৭॥
+
 > e-saba vaiṣṇava—ei kṣetrera bhūṣaṇa
 > ekānta-bhāve cinte sabe tomāra caraṇa
 

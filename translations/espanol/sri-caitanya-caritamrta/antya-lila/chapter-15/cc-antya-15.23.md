@@ -1,5 +1,10 @@
 ### CC Antya 15.23
 
+> কৃষ্ণের অধরামৃত, তাতে কর্পূর মন্দস্মিত,
+> স্ব-মাধুর্যে হরে নারীর মন ।
+> অন্যত্র ছাড়ায় লোভ, না পাইলে মনে ক্ষোভ,
+> ব্রজনারীগণের মূলধন ।।” ॥ ২৩ ॥
+
 > kṛṣṇera adharāmṛta, tāte karpūra manda-smita,
 > sva-mādhurye hare nārīra mana
 > anyatra chāḍāya lobha, nā pāile mane kṣobha,

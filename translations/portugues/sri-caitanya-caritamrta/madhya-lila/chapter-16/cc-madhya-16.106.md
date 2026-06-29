@@ -1,5 +1,8 @@
 ### CC Madhya 16.106
 
+> পুনঃ স্তুতি করি’ রাজা করয়ে প্রণাম ।
+> প্রভু-কৃপা-অশ্রুতে তাঁর দেহ হৈল স্নান ॥১০৬॥
+
 punaḥ stuti kari' rājā karaye praṇāma
 
 prabhu-kṛpā-aśrute tāṅra deha haila snāna

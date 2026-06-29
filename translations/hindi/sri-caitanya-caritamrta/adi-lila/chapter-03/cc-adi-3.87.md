@@ -1,5 +1,10 @@
 ### CC Adi 3.87
 
+> ত্বাং শীলরূপচরিতৈঃ পরমপ্রকৃষ্টৈঃ
+> সত্ত্বেন সাত্ত্বিকতয়া প্রবলৈশ্চ শাস্ত্রৈঃ ।
+> প্রখ্যাতদৈবপরমার্থবিদাং মতৈশ্চ
+> নৈবাসুরপ্রকৃতয়ঃ প্রভবন্তি বোদ্ধুম্ ॥৮৭॥
+
 > tvāṁ śīla-rūpa-caritaiḥ parama-prakṛṣṭaiḥ
 > sattvena sāttvikatayā prabalaiś ca śāstraiḥ
 > prakhyāta-daiva-paramārtha-vidāṁ mataiś ca

@@ -1,5 +1,8 @@
 ### CC Adi 4.130
 
+> যাহা হৈতে সুনির্মল দ্বিতীয় নাহি আর ।
+> তথাপি সর্বদা বাম্য-বক্র-ব্যবহার ॥১৩০॥
+
 > yāhā haite sunirmala dvitīya nāhi āra
 > tathāpi sarvadā vāmya-vakra-vyavahāra
 

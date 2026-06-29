@@ -1,5 +1,8 @@
 ### SB 6.7.11
 
+> अहो बत मयासाधु कृतं वै दभ्रबुद्धिना
+> यन्मयैश्वर्यमत्तेन गुरुः सदसि कात्कृतः ॥११॥
+
 > aho bata mayāsādhu
 > kṛtaṁ vai dabhra-buddhinā
 > yan mayaiśvarya-mattena

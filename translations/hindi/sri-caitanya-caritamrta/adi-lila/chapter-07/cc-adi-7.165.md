@@ -1,5 +1,8 @@
 ### CC Adi 7.165
 
+> নিত্যানন্দ-গোসাঞে পাঠাইলা গৌড়দেশে ।
+> তেঁহো ভক্তি প্রচারিলা অশেষ-বিশেষে ॥১৬৫॥
+
 > nityānanda-gosāñe pāṭhāilā gauḍa-deśe
 > teṅho bhakti pracārilā aśeṣa-viśeṣe
 

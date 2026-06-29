@@ -1,5 +1,8 @@
 ### CC Madhya 20.347
 
+> কলিং সভাজয়ন্ত্যার্যা গুণজ্ঞাঃ সারভাগিনঃ ।
+> যত্র সঙ্কীর্তনেনৈব সর্বস্বার্থোঽভিলভ্যতে ॥৩৪৭॥
+
 > kaliṁ sabhājayanty āryā
 > guṇa-jñāḥ sāra-bhāginaḥ
 > yatra saṅkīrtanenaiva

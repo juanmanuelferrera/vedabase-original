@@ -1,5 +1,8 @@
 ### CC Adi 7.93
 
+> এত বলি’ এক শ্লোক শিখাইল মোরে ।
+> ভাগবতের সার এই — বলে বারে বারে ॥৯৩॥
+
 > eta bali' eka śloka śikhāila more
 > bhāgavatera sāra ei—bale vāre vāre
 

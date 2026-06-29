@@ -1,5 +1,8 @@
 ### CC Adi 12.71
 
+> কেবল এ গণ-প্রতি নহে এই দণ্ড ।
+> চৈতন্য-বিমুখ যেই সেই ত’ পাষণ্ড ॥৭১॥
+
 > kevala e gaṇa-prati nahe ei daṇḍa
 > caitanya-vimukha yei sei ta' pāṣaṇḍa
 

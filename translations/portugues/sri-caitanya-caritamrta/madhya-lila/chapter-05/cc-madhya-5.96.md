@@ -1,5 +1,8 @@
 ### CC Madhya 5.96
 
+> প্রতিমা নহ তুমি, — সাক্ষাৎ ব্রজেন্দ্রনন্দন ।
+> বিপ্র লাগি’ কর তুমি অকার্য-করণ ।।” ॥ ৯৬ ॥
+
 pratimā naha tumi--sākṣāt vrajendra-nandana
 
 vipra lāgi' kara tumi akārya-karaṇa"

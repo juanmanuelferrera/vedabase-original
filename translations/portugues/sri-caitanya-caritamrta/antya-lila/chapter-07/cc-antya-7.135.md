@@ -1,5 +1,8 @@
 ### CC Antya 7.135
 
+> শ্রীধরের অনুগত যে করে লিখন ।
+> সব লোক মান্য করি’ করিবে গ্রহণ ॥১৩৫॥
+
 śrīdharera anugata ye kare likhana
 
 saba loka mānya kari' karibe grahaṇa

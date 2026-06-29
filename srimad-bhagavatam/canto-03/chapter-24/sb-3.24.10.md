@@ -1,5 +1,8 @@
 ### SB 3.24.10
 
+> भगवन्तं परं ब्रह्म सत्त्वेनांशेन शत्रुहन् ।
+> तत्त्वसङ्ख्यानविज्ञप्त्यै जातं विद्वानजः स्वराट् ॥१०॥
+
 > bhagavantaṁ paraṁ brahma
 > sattvenāṁśena śatru-han
 > tattva-saṅkhyāna-vijñaptyai

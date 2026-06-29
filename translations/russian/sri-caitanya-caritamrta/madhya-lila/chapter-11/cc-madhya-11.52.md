@@ -1,5 +1,8 @@
 ### CC Madhya 11.52
 
+> তেঁহ — প্রেমাধীন, তোমার প্রেম — গাঢ়তর ।
+> অবশ্য করিবেন কৃপা তোমার উপর ॥৫২॥
+
 > teṅha-premādhīna, tomāra prema-gāḍhatara
 > avaśya karibena kṛpā tomāra upara
 

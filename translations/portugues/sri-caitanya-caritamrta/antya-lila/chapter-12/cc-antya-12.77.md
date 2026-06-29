@@ -1,5 +1,8 @@
 ### CC Antya 12.77
 
+> সবাই রহিল, কেহ চলিতে নারিল ।
+> আর দিন পাঁচ-সাত এইমতে গেল ॥৭৭॥
+
 sabāi rahila, keha calite nārila
 
 āra dina pāṅca-sāta ei-mate gela

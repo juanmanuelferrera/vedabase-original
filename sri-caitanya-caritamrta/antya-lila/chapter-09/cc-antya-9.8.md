@@ -1,5 +1,8 @@
 ### CC Antya 9.8
 
+> মনুষ্যের বেশে দেব-গন্ধর্ব-কিন্নর ।
+> সপ্তপাতালের যত দৈত্য বিষধর ॥৮॥
+
 > manuṣyera veśe deva-gandharva-kinnara
 > sapta-pātālera yata daitya viṣadhara
 

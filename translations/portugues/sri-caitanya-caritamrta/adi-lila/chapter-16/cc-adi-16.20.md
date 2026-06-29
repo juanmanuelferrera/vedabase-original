@@ -1,5 +1,8 @@
 ### CC Adi 16.20
 
+> এই মত বঙ্গে প্রভু করে নানা লীলা ।
+> এথা নবদ্বীপে লক্ষ্মী বিরহে দুঃখী হৈলা ॥২০॥
+
 ei mata baṅge prabhu kare nānā līlā
 
 ethā navadvīpe lakṣmī virahe duḥkhī hailā

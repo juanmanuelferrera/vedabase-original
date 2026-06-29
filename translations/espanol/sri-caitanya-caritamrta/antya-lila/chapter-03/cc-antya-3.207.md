@@ -3,6 +3,9 @@
 > yāha ghara, kṛṣṇa karuna kuśala sabāra
 > āmāra sambandhe duḥkha nā ha-uka kāhāra"
 
+> yāha ghara, kṛṣṇa karuna kuśala sabāra
+> āmāra sambandhe duḥkha nā ha-uka kāhāra"
+
 *yāha ghara*—id a vuestros hogares; *kṛṣṇa karuna*—que el Señor Kṛṣṇa otorgue; *kuśala sabāra*—bendiciones a todos; *āmāra sambandhe*—por mi causa; *duḥkha*—infelicidad; *nā ha-uka*—que no haya; *kāhāra*—de nadie.
 
 **«Todos podéis ir ahora a vuestros hogares. Que el Señor Kṛṣṇa os conceda Sus bendiciones a todos. No os aflijáis por el insulto que he recibido».**

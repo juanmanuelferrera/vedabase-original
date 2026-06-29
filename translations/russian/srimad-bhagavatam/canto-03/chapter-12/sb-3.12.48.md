@@ -1,5 +1,8 @@
 ### SB 3.12.48
 
+> शब्दब्रह्मात्मनस्तस्य व्यक्ताव्यक्तात्मनः परः ।
+> ब्रह्मावभाति विततो नानाशक्त्युपबृंहितः ॥४८॥
+
 > śabda-brahmātmanas tasya
 > vyaktāvyaktātmanaḥ paraḥ
 > brahmāvabhāti vitato

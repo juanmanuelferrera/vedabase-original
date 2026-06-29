@@ -1,5 +1,8 @@
 ### CC Madhya 19.166
 
+> ‘শুদ্ধভক্তি’ হৈতে হয় ‘প্রেমা’ উৎপন্ন ।
+> অতএব শুদ্ধভক্তির কহিয়ে ‘লক্ষণ’ ॥১৬৬॥
+
 > 'śuddha-bhakti' haite haya 'premā' utpanna
 > ataeva śuddha-bhaktira kahiye 'lakṣaṇa'
 

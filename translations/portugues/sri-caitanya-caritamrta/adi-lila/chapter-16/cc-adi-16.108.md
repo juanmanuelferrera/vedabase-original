@@ -1,5 +1,8 @@
 ### CC Adi 16.108
 
+> ভাগ্যবন্ত দিগ্বিজয়ী সফল-জীবন ।
+> বিদ্যা-বলে পাইল মহাপ্রভুর চরণ ॥১০৮॥
+
 bhāgyavanta digvijayī saphala-jīvana
 
 vidyā-bale pāila mahāprabhura caraṇa

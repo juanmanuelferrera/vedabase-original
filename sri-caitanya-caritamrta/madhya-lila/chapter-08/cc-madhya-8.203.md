@@ -1,5 +1,8 @@
 ### CC Madhya 8.203
 
+> সখী বিনা এই লীলা পুষ্ট নাহি হয় ।
+> সখী লীলা বিস্তারিয়া, সখী আস্বাদয় ॥২০৩॥
+
 > sakhī vinā ei līlā puṣṭa nāhi haya
 > sakhī līlā vistāriyā, sakhī āsvādaya
 

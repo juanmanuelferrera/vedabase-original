@@ -1,5 +1,8 @@
 ### CC Madhya 8.3
 
+> পূর্ব-রীতে প্রভু আগে গমন করিলা ।
+> ‘জিয়ড়নৃসিংহ’-ক্ষেত্রে কতদিনে গেলা ॥৩॥
+
 > pūrva-rīte prabhu āge gamana karilā
 > 'jiyaḍa-nṛsiṁha'-kṣetre kata-dine gelā
 

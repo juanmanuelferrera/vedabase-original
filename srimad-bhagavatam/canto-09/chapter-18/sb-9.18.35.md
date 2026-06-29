@@ -1,5 +1,8 @@
 ### SB 9.18.35
 
+> प्रियामनुगतः कामी वचोभिरुपमन्त्रयन
+> न प्रसादयितुं शेके पादसंवाहनादिभिः ॥३५॥
+
 > priyām anugataḥ kāmī
 > vacobhir upamantrayan
 > na prasādayituṁ śeke

@@ -1,5 +1,8 @@
 ### CC Madhya 9.82
 
+> শ্রী-বৈষ্ণব এক, — ‘ব্যেঙ্কট ভট্ট’ নাম ।
+> প্রভুরে নিমন্ত্রণ কৈল করিয়া সম্মান ॥৮২॥
+
 > śrī-vaiṣṇava eka,—'vyeṅkaṭa bhaṭṭa' nāma
 > prabhure nimantraṇa kaila kariyā sammāna
 

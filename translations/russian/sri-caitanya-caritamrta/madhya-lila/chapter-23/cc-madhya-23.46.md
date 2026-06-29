@@ -1,5 +1,8 @@
 ### CC Madhya 23.46
 
+> এই পঞ্চ স্থায়ী ভাব হয় পঞ্চ ‘রস’ ।
+> যে-রসে ভক্ত ‘সুখী’, কৃষ্ণ হয় ‘বশ’ ॥৪৬॥
+
 > ei pañca sthāyī bhāva haya pañca 'rasa'
 > ye-rase bhakta 'sukhī', kṛṣṇa haya 'vaśa'
 

@@ -1,5 +1,8 @@
 ### SB 4.27.19
 
+> कालस्य दुहिता काचित्त्रिलोकीं वरमिच्छती ।
+> पर्यटन्ती न बर्हिष्मन्प्रत्यनन्दत कश्चन ॥१९॥
+
 > kālasya duhitā kācit
 > tri-lokīṁ varam icchatī
 > paryaṭantī na barhiṣman

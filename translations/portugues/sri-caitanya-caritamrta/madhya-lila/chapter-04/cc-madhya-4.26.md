@@ -1,5 +1,8 @@
 ### CC Madhya 4.26
 
+> বালকের সৌন্দর্যে পুরীর হইল সন্তোষ ।
+> তাহার মধুর-বাক্যে গেল ভোক-শোষ ॥২৬॥
+
 bālakera saundarye purīra ha-ila santoṣa
 
 tāhāra madhura-vākye gela bhoka-śoṣa

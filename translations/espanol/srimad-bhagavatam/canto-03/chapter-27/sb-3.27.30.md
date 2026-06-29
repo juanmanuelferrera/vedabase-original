@@ -1,5 +1,8 @@
 ### SB 3.27.30
 
+> यदा न योगोपचितासु चेतो मायासु सिद्धस्य विषज्जतेऽङ्ग ।
+> अनन्यहेतुष्वथ मे गतिः स्यादात्यन्तिकी यत्र न मृत्युहासः ॥३०॥
+
 > yadā na yogopacitāsu ceto
 > māyāsu siddhasya viṣajjate 'ṅga
 > ananya-hetuṣv atha me gatiḥ syād

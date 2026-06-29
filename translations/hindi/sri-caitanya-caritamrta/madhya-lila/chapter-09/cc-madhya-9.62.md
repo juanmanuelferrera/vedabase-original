@@ -1,5 +1,8 @@
 ### CC Madhya 9.62
 
+> কৃষ্ণ বলি’ আচার্য প্রভুরে করেন বিনয় ।
+> দেখিয়া সকল লোক হইল বিস্ময় ॥৬২॥
+
 > kṛṣṇa bali' ācārya prabhure karena vinaya
 > dekhiyā sakala loka ha-ila vismaya
 

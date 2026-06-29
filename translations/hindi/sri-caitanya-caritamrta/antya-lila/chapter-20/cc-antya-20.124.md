@@ -1,5 +1,8 @@
 ### CC Antya 20.124
 
+> তার মধ্যে প্রভুর সিংহদ্বারে পতন ।
+> অস্থি-সন্ধি-ত্যাগ, অনুভাবের উদ্গম ॥১২৪॥
+
 > tāra madhye prabhura siṁha-dvāre patana
 > asthi-sandhi-tyāga, anubhāvera udgama
 

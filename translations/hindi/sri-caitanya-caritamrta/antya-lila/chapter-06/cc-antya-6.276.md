@@ -1,5 +1,8 @@
 ### CC Antya 6.276
 
+> উপরোধে প্রভু মোর মানেন নিমন্ত্রণ ।
+> না মানিলে দুঃখী হইবেক মূর্খ জন ॥২৭৬॥
+
 > uparodhe prabhu mora mānena nimantraṇa
 > nā mānile duḥkhī ha-ibeka mūrkha jana
 

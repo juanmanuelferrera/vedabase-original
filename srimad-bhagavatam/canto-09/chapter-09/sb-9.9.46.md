@@ -1,5 +1,8 @@
 ### SB 9.9.46
 
+> ये विक्षिप्तेन्द्रियधियो देवास्ते स्वहृदि स्थितम
+> न विन्दन्ति प्रियं शश्वदात्मानं किमुतापरे ॥४६॥
+
 > ye vikṣiptendriya-dhiyo
 > devās te sva-hṛdi sthitam
 > na vindanti priyaṁ śaśvad

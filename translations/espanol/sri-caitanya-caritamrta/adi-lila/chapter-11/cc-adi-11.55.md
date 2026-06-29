@@ -1,5 +1,8 @@
 ### CC Adi 11.55
 
+> ভাগবতে কৃষ্ণলীলা বর্ণিলা বেদব্যাস ।
+> চৈতন্য-লীলাতে ব্যাস — বৃন্দাবন দাস ॥৫৫॥
+
 > bhāgavate kṛṣṇa-līlā varṇilā vedavyāsa
 > caitanya-līlāte vyāsa--vṛndāvana dāsa
 

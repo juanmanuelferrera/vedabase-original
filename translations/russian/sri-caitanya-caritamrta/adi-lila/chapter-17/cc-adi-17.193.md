@@ -1,5 +1,8 @@
 ### CC Adi 17.193
 
+> নগরে হিন্দুর ধর্ম বাড়িল অপার ।
+> ‘হরি’ ‘হরি’ ধ্বনি বই নাহি শুনি আর ॥১৯৩॥
+
 > nagare hindura dharma bāḍila apāra
 > 'hari' 'hari' dhvani ba-i nāhi śuni āra
 

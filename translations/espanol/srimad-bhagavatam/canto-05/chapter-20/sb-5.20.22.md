@@ -1,5 +1,7 @@
 ### SB 5.20.22
 
+> यासामम्भः पवित्रममलमुपयुञ्जानाः पुरुषऋषभद्रविणदेवकसंज्ञआ वर्षपुरुषाआपोमयं देवमपां पूर्णेनाञ्जलिना यजन्ते ॥२२॥
+
 > yāsām ambhaḥ pavitram amalam upayuñjānāḥ puruṣa-ṛṣabha-draviṇa-devaka-saṁjñā varṣa-puruṣā āpomayaṁ devam apāṁ pūrṇenāñjalinā yajante.
 
 *yāsām*—de todos los ríos; *ambhaḥ*—el agua; *pavitram*—muy santificada; *amalam*—muy limpia; *upayuñjānāḥ*—empleando; *puruṣa*—*puruṣa*; *ṛṣabha*—*ṛṣabha*; *draviṇa*—*draviṇa*; *devaka*—*devaka*; *saṁjñāḥ*—que reciben estos nombres; *varṣa-puruṣāḥ*—los habitantes de esos *varṣas*; *āpaḥ-mayam*—Varuṇa, el señor del agua; *devam*—como deidad adorable; *apām*—de agua; *pūrṇena*—llenas con; *añjalinā*—palmas unidas; *yajante*—adoran.

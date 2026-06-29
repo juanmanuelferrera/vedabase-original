@@ -1,5 +1,8 @@
 ### SB 4.4.21
 
+> मा वः पदव्यः पितरस्मदास्थिता या यज्ञशालासु न धूमवर्त्मभिः ।
+> तदन्नतृप्तैरसुभृद्भिरीडिता अव्यक्तलिङ्गा अवधूतसेविताः ॥२१॥
+
 > mā vaḥ padavyaḥ pitar asmad-āsthitā
 > yā yajña-śālāsu na dhūma-vartmabhiḥ
 > tad-anna-tṛptair asu-bhṛdbhir īḍitā

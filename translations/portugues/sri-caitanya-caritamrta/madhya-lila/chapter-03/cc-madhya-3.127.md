@@ -1,5 +1,8 @@
 ### CC Madhya 3.127
 
+> নির্বেদ, বিষাদ হর্ষ, চাপল্য, গর্ব, দৈন্য ।
+> প্রভুর সহিত যুদ্ধ করে ভাব-সৈন্য ॥১২৭॥
+
 nirveda, viṣāda, harṣa, cāpalya, garva, dainya
 
 prabhura sahita yuddha kare bhāva-sainya

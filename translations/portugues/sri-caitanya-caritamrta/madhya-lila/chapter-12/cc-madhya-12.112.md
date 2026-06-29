@@ -1,5 +1,8 @@
 ### CC Madhya 12.112
 
+> ‘কৃষ্ণ’ ‘কৃষ্ণ’ কহি’ করে ঘটের প্রার্থন ।
+> ‘কৃষ্ণ’ ‘কৃষ্ণ’ কহি’ করে ঘট সমর্পণ ॥১১২॥
+
 'kṛṣṇa' 'kṛṣṇa' kahi' kare ghaṭera prārthana
 
 'kṛṣṇa' 'kṛṣṇa' kahi' kare ghaṭa samarpaṇa

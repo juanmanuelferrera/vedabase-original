@@ -1,5 +1,8 @@
 ### SB 8.8.21
 
+> नूनं तपो यस्य न मन्युनिर्जयो ज्ञआनं क्वचित्तच्च न सङ्गवर्जितम
+> कश्चिन्महांस्तस्य न कामनिर्जयः स ईश्वरः किं परतो व्यपाश्रयः ॥२१॥
+
 > dharmaḥ kvacit tatra na bhūta-sauhṛdaṁ
 > tyāgaḥ kvacit tatra na mukti-kāraṇam
 > vīryaṁ na puṁso 'sty aja-vega-niṣkṛtaṁ

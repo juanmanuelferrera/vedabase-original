@@ -1,5 +1,8 @@
 ### CC Madhya 10.55
 
+> নিজ-গৃহ-বিত্ত-ভৃত্য-পঞ্চপুত্র-সনে ।
+> আত্মা সমর্পিলুঁ আমি তোমার চরণে ॥৫৫॥
+
 > nija-gṛha-vitta-bhṛtya-pañca-putra-sane
 > ātmā samarpiluṅ āmi tomāra caraṇe
 

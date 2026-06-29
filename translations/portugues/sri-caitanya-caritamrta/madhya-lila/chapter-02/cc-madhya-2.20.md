@@ -1,5 +1,9 @@
 ### CC Madhya 2.20
 
+> সখি হে, না বুঝিয়ে বিধির বিধান ।
+> সুখ লাগি’ কৈলুঁ প্রীত, হৈল দুঃখ বিপরীত,
+> এবে যায়, না রহে পরাণ ।। ২০ ।। ধ্রু ।। ॥২০॥
+
 sakhī he, nā bujhiye vidhira vidhāna
 
 sukha lāgi' kailuṅ prīta, haila duḥkha viparīta,

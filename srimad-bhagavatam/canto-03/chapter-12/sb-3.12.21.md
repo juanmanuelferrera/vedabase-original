@@ -1,5 +1,8 @@
 ### SB 3.12.21
 
+> अथाभिध्यायतः सर्गं दश पुत्राः प्रजज्ञिरे ।
+> भगवच्छक्तियुक्तस्य लोकसन्तानहेतवः ॥२१॥
+
 > athābhidhyāyataḥ sargaṁ
 > daśa putrāḥ prajajñire
 > bhagavac-chakti-yuktasya

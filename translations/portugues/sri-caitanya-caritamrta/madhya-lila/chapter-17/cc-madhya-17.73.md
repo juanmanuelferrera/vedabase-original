@@ -1,5 +1,8 @@
 ### CC Madhya 17.73
 
+> ভক্তগণে লঞা তবে চলিলাঙ রঙ্গে ।
+> লক্ষকোটি লোক তাহাঁ হৈল আমা-সঙ্গে ॥৭৩॥
+
 bhakta-gaṇe lañā tabe calilāṅa raṅge
 
 lakṣa-koṭi loka tāhāṅ haila āmā-saṅge

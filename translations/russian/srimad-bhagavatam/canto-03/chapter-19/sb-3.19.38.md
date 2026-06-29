@@ -1,5 +1,8 @@
 ### SB 3.19.38
 
+> एतन्महापुण्यमलं पवित्रं धन्यं यशस्यं पदमायुराशिषाम् ।
+> प्राणेन्द्रियाणां युधि शौर्यवर्धनं नारायणोऽन्ते गतिरङ्ग शृण्वताम् ॥३८॥
+
 > etan mahā-puṇyam alaṁ pavitraṁ
 > dhanyaṁ yaśasyaṁ padam āyur-āśiṣām
 > prāṇendriyāṇāṁ yudhi śaurya-vardhanaṁ

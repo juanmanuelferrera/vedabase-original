@@ -1,5 +1,8 @@
 ### CC Madhya 4.51
 
+> ঠাকুর দেখিল মাটী-তৃণে আচ্ছাদিত ।
+> দেখি’ সব লোক হৈল আনন্দে বিস্মিত ॥৫১॥
+
 > ṭhākura dekhila māṭī-tṛṇe ācchādita
 > dekhi' saba loka haila ānande vismita
 

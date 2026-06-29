@@ -1,5 +1,8 @@
 ### CC Antya 4.114
 
+> দোলযাত্রা-আদি প্রভুর সঙ্গেতে দেখিল ।
+> দিনে-দিনে প্রভু-সঙ্গে আনন্দ বাড়িল ॥১১৪॥
+
 dola-yātrā-ādi prabhura saṅgete dekhila
 
 dine-dine prabhu-saṅge ānanda bāḍila

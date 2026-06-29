@@ -1,5 +1,8 @@
 ### CC Adi 9.30
 
+> অঞ্জলি অঞ্জলি ভরি’ ফেলে চতুর্দিশে ।
+> দরিদ্র কুড়াঞা খায়, মালাকার হাসে ॥৩০॥
+
 > añjali añjali bhari' phele caturdiśe
 > daridra kuḍāñā khāya, mālākāra hāse
 

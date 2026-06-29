@@ -1,5 +1,8 @@
 ### CC Madhya 17.75
 
+> কৃপার সমুদ্র, দীন-হীনে দয়াময় ।
+> কৃষ্ণকৃপা বিনা কোন ‘সুখ’ নাহি হয় ।।” ॥ ৭৫ ॥
+
 kṛpāra samudra, dīna-hīne dayāmaya
 
 kṛṣṇa-kṛpā vinā kona 'sukha' nāhi haya"

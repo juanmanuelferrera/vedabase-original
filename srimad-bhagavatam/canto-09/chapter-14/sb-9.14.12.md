@@ -1,5 +1,8 @@
 ### SB 9.14.12
 
+> कुमारो मातरं प्राह कुपितोऽलीकलज्जया
+> किं न वचस्यसद्वृत्ते आत्मावद्यं वदाशु मे ॥१२॥
+
 > kumāro mātaraṁ prāha
 > kupito 'līka-lajjayā
 > kiṁ na vacasy asad-vṛtte

@@ -1,5 +1,8 @@
 ### CC Adi 6.40
 
+> মাধবেন্দ্রপুরীর ইঁহো শিষ্য, এই জ্ঞানে ।
+> আচার্য-গোসাঞিরে প্রভু গুরু করি’ মানে ॥৪০॥
+
 > mādhavendra-purīra iṅho śiṣya, ei jñāne
 > ācārya-gosāñire prabhu guru kari' māne
 

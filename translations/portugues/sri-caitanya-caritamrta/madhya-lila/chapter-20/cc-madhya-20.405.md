@@ -1,5 +1,8 @@
 ### CC Madhya 20.405
 
+> ইহা যেই শুনে, পড়ে, সেই ভাগ্যবান্ ।
+> কৃষ্ণের স্বরূপতত্ত্বের হয় কিছু জ্ঞান ॥৪০৫॥
+
 ihā yei śune, paḍe, sei bhāgyavān
 
 kṛṣṇera svarūpa-tattvera haya kichu jñāna

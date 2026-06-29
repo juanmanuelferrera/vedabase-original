@@ -1,5 +1,8 @@
 ### CC Antya 14.58
 
+> রামানন্দ-রায় তবে গেলা নিজ ঘরে ।
+> স্বরূপ-গোবিন্দ দুঁহে শুইলেন দ্বারে ॥৫৮॥
+
 rāmānanda-rāya tabe gelā nija ghare
 
 svarūpa-govinda duṅhe śuilena dvāre

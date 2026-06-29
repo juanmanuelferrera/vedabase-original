@@ -1,5 +1,8 @@
 ### CC Madhya 24.342
 
+> এই সবে বিদ্ধা-ত্যাগ, অবিদ্ধা-করণ ।
+> অকরণে দোষ, কৈলে ভক্তির লম্ভন ॥৩৪২॥
+
 ei sabe viddhā-tyāga, aviddhā-karaṇa
 
 akaraṇe doṣa, kaile bhaktira lambhana

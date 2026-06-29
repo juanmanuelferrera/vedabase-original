@@ -1,5 +1,8 @@
 ### CC Madhya 16.19
 
+> শিবানন্দ-সেন করে ঘাটি সমাধান ৷
+> সবারে পালন করি’ সুখে লঞা যান ॥১৯॥
+
 > śivānanda-sena kare ghāṭi samādhāna
 > sabāre pālana kari' sukhe lañā yāna
 

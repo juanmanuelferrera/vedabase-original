@@ -1,5 +1,8 @@
 ### CC Adi 1.71
 
+> চিত্রং বতৈতদেকেন বপুষা যুগপৎ পৃথক্ ।
+> গৃহেষু দ্ব্যষ্টসাহস্রং স্ত্রিয় এক উদাবহৎ ॥৭১॥
+
 > citraṁ bataitad ekena
 > vapuṣā yugapat pṛthak
 > gṛheṣu dvy-aṣṭa-sāhasraṁ

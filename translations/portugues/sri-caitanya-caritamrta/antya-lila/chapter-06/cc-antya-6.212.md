@@ -1,5 +1,8 @@
 ### CC Antya 6.212
 
+> প্রভুর অবশিষ্ট পাত্র গোবিন্দ তাঁরে দিলা ।
+> আনন্দিত হঞা রঘুনাথ প্রসাদ পাইলা ॥২১২॥
+
 prabhura avaśiṣṭa pātra govinda tāṅre dilā
 
 ānandita hañā raghunātha prasāda pāilā

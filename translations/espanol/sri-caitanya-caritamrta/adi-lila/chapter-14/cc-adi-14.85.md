@@ -1,5 +1,8 @@
 ### CC Adi 14.85
 
+> “মিশ্র, তুমি পুত্রের তত্ত্ব কিছুই না জান ।
+> ভর্ৎসন-তাড়ন কর, — পুত্র করি’ মান ।।” ॥ ৮৫ ॥
+
 > "miśra, tumi putrera tattva kichui nā jāna
 > bhartsana-tāḍana kara,--putra kari' māna"
 

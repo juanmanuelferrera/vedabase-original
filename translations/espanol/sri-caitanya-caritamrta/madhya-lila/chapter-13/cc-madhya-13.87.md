@@ -1,5 +1,8 @@
 ### CC Madhya 13.87
 
+> প্ৰভু-পাছে বুলে আচার্য করিয়া হুঙ্কার ।
+> ‘হরিবোল’ ‘হরিবোল’ বলে বার বার ॥৮৭॥
+
 > prabhu-pāche bule ācārya kariyā huṅkāra
 > 'hari-bola' 'hari-bola' bale bāra bāra
 

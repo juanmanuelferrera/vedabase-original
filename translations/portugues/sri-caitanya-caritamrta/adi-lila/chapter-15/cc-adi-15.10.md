@@ -1,5 +1,8 @@
 ### CC Adi 15.10
 
+> শচী কহে, — না খাইব, ভালই কহিলা ।
+> সেই হৈতে একাদশী করিতে লাগিলা ॥১০॥
+
 śacī kahe,--nā khāiba, bhāla-i kahilā
 sei haite ekādaśī karite lāgilā
 

@@ -1,5 +1,8 @@
 ### CC Adi 3.54
 
+> ‘কৃষ্ণ’ এই দুই বর্ণ সদা যাঁর মুখে ।
+> অথবা, কৃষ্ণকে তিহোঁ বর্ণে নিজ সুখে ॥৫৪॥
+
 'kṛṣṇa' ei dui varṇa sadā yāṅra mukhe
 athavā, kṛṣṇake tiṅho varṇe nija sukhe
 

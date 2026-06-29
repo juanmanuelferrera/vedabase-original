@@ -1,5 +1,8 @@
 ### CC Madhya 15.177
 
+> তার এক রাই-নাশে হানি নাহি মানি ।
+> ঐছে এক অণ্ড-নাশে কৃষ্ণের নাহি হানি ॥১৭৭॥
+
 > tāra eka rāi-nāśe hāni nāhi māni
 > aiche eka aṇḍa-nāśe kṛṣṇera nāhi hāni
 

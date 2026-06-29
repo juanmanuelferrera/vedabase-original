@@ -1,5 +1,8 @@
 ### CC Madhya 1.136
 
+> প্রত্যব্দ আসিবে রথযাত্রা-দরশনে ।
+> এই ছলে চাহে ভক্তগণের মিলনে ॥১৩৬॥
+
 > pratyabda āsibe ratha-yātrā-daraśane
 > ei chale cāhe bhakta-gaṇera milane
 

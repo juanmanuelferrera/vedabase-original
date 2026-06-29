@@ -1,5 +1,8 @@
 ### CC Madhya 14.103
 
+> জলক্রীড়া করি’ পুনঃ আইলা উদ্যানে ।
+> ভোজনলীলা কৈলা প্রভু লঞা ভক্তগণে ॥১০৩॥
+
 > jala-krīḍā kari' punaḥ āilā udyāne
 > bhojana-līlā kailā prabhu lañā bhakta-gaṇe
 

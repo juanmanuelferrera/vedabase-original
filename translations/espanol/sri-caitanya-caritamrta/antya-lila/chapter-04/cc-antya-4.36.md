@@ -1,5 +1,8 @@
 ### CC Antya 4.36
 
+> এইমত বারবার কহি দুইজন  ।
+> আমা-দুঁহার গৌরবে কিছু ফিরি’ গেল মন ॥৩৬॥
+
 > ei-mata bāra-bāra kahi dui-jana
 > āmā-duṅhāra gaurave kichu phiri' gela mana
 

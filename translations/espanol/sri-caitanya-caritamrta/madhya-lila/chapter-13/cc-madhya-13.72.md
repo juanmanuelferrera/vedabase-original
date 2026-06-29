@@ -1,5 +1,8 @@
 ### CC Madhya 13.72
 
+> আপনি নাচিতে যবে প্ৰভুর মন হৈল ।
+> সাত সম্প্রদায় তবে একত্র করিল ॥৭২॥
+
 > āpani nācite yabe prabhura mana haila
 > sāta sampradāya tabe ekatra karila
 

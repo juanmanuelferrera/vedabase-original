@@ -1,5 +1,8 @@
 ### SB 4.23.39
 
+> अनुदिनमिदमादरेण शृण्वन्पृथुचरितं प्रथयन्विमुक्तसङ्गः ।
+> भगवति भवसिन्धुपोतपादे स च निपुणां लभते रतिं मनुष्यः ॥३९॥
+
 > anudinam idam ādareṇa śṛṇvan
 > pṛthu-caritaṁ prathayan vimukta-saṅgaḥ
 > bhagavati bhava-sindhu-pota-pāde

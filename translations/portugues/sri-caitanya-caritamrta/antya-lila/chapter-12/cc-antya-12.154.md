@@ -1,5 +1,8 @@
 ### CC Antya 12.154
 
+> জগদানন্দের ‘প্রেমবিবর্ত’ শুনে যেই জন ।
+> প্রেমের ‘স্বরূপ’ জানে, পায় প্রেমধন ॥১৫৪॥
+
 jagadānandera 'prema-vivarta' śune yei jana
 
 premera 'svarūpa' jāne, pāya prema-dhana

@@ -1,5 +1,8 @@
 ### CC Antya 5.140
 
+> ‘বাচাল’ কহিয়ে — ‘বেদপ্রবর্তক’ ধন্য ।
+> ‘বালিশ’ — তথাপি ‘শিশু-প্রায়’ গর্বশূন্য ॥১৪০॥
+
 'vācāla kahiye--'veda-pravartaka' dhanya
 
 'bāliśa'--tathāpi 'śiśu-prāya' garva-śūnya

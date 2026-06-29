@@ -1,5 +1,8 @@
 ### SB 3.8.14
 
+> स पद्मकोशः सहसोदतिष्ठत्कालेन कर्मप्रतिबोधनेन ।
+> स्वरोचिषा तत्सलिलं विशालं विद्योतयन्नर्क इवात्मयोनिः ॥१४॥
+
 > sa padma-kośaḥ sahasodatiṣṭhat
 > kālena karma-pratibodhanena
 > sva-rociṣā tat salilaṁ viśālaṁ

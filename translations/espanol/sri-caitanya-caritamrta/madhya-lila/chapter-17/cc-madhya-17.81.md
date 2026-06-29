@@ -1,5 +1,8 @@
 ### CC Madhya 17.81
 
+> এইমত বলভদ্র করেন স্তবন ।
+> প্রেমসেবা করি’ তুষ্ট কৈল প্রভুর মন ॥৮১॥
+
 > ei-mata balabhadra karena stavana
 > prema-sevā kari' tuṣṭa kaila prabhura mana
 

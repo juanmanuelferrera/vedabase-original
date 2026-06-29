@@ -1,5 +1,8 @@
 ### CC Antya 6.309
 
+> অনন্ত গুণ রঘুনাথের কে করিবে লেখা ?
+> রঘুনাথের নিয়ম, — যেন পাষাণের রেখা ॥৩০৯॥
+
 > ananta guṇa raghunāthera ke karibe lekhā?
 > raghunāthera niyama,—yena pāṣāṇera rekhā
 

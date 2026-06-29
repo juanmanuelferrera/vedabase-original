@@ -1,5 +1,7 @@
 ### CC Madhya 14.112
 
+> সেইত’ করিহ, — প্রভু লঞা ভক্তগণ ৷ স্বচ্ছন্দে আসিয়া যৈছে করেন দরশন ॥১১২॥
+
 > seita' kariha,-prabhu lañā bhakta-gaṇa
 > svacchande āsiyā yaiche karena daraśana
 

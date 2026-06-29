@@ -1,5 +1,8 @@
 ### CC Antya 12.136
 
+> আগ্রহ করিয়া পণ্ডিত করাইলা ভোজন ।
+> আর দিন হৈতে ভোজন হৈল দশগুণ ॥১৩৬॥
+
 > āgraha kariyā paṇḍita karāilā bhojana
 > āra dina haite bhojana haila daśa-guṇa
 

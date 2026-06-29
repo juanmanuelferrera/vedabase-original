@@ -1,5 +1,8 @@
 ### SB 5.19.23
 
+> कल्पायुषां स्थानजयात्पुनर्भवात्क्षणायुषां भारतभूजयो वरम
+> क्षणेन मर्त्येन कृतं मनस्विनः सन्न्यस्य संयान्त्यभयं पदं हरेः ॥२३॥
+
 *kalpāyuṣāṁ sthānajayāt punar*-bhavāt
 *kṣaṇāyuṣāṁ bhārata*-bhūjayo varam
 kṣaṇena martyena kṛtaṁ manasvinaḥ

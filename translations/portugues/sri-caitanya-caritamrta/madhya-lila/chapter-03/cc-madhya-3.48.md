@@ -1,5 +1,8 @@
 ### CC Madhya 3.48
 
+> নারিকেল-শস্য, ছানা, শর্করা মধুর ।
+> মোচাঘণ্ট, দুগ্ধকুষ্মাণ্ড, সকল প্রচুর ॥৪৮॥
+
 nārikela-śasya, chānā, śarkarā madhura
 mochā-ghaṇṭa, dugdha-kuṣmāṇḍa, sakala pracura
 

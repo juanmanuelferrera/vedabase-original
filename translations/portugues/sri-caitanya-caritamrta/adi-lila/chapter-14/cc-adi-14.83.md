@@ -1,5 +1,8 @@
 ### CC Adi 14.83
 
+> একদিন মিশ্র পুত্রের চাপল্য দেখিয়া ।
+> ধর্ম-শিক্ষা দিল বহু ভর্ৎসনা করিয়া ॥৮৩॥
+
 eka-dina miśra putrera cāpalya dekhiyā
 
 dharma-śikṣā dila bahu bhartsanā kariyā

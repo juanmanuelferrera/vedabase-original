@@ -1,5 +1,8 @@
 ### CC Madhya 13.162
 
+> নৃত্যকালে সেই ভাবে আবিষ্ট হঞা ।
+> শ্লোক পড়ি’ নাচে জগন্নাথ-মুখ চাঞা ॥১৬২॥
+
 > nṛtya-kāle sei bhāve āviṣṭa hañā
 > śloka paḍi' nāce jagannātha-mukha cāñā
 

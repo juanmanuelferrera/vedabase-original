@@ -1,5 +1,8 @@
 ### CC Antya 2.79
 
+> এইমত শচীগৃহে সতত ভোজন ।
+> শ্রীবাসের গৃহে করেন কীর্তন-দর্শন ॥৭৯॥
+
 ei-mata śacī-gṛhe satata bhojana
 
 śrīvāsera gṛhe karena kīrtana-darśana

@@ -1,5 +1,8 @@
 ### CC Antya 11.90
 
+> প্রেমাবিষ্ট হঞা প্রভু করেন বর-দান ।
+> শুনি’ ভক্তগণের জুড়ায় মনস্কাম ॥৯০॥
+
 > premāviṣṭa hañā prabhu karena vara-dāna
 > śuni' bhakta-gaṇera juḍāya manaskāma
 

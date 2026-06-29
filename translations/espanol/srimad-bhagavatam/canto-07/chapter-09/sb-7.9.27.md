@@ -1,5 +1,10 @@
 ### SB 7.9.27
 
+> नैषा परावरमतिर्भवतो ननु स्याज
+> जन्तोर्यथात्मसुहृदो जगतस्तथापि
+> संसेवया सुरतरोरिव ते प्रसादः
+> सेवानुरूपमुदयो न परावरत्वम ॥२७॥
+
 > naiṣā parāvara-matir bhavato nanu syāj
 > jantor yathātma-suhṛdo jagatas tathāpi
 > saṁsevayā surataror iva te prasādaḥ

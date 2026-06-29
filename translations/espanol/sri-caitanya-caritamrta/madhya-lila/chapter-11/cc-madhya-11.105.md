@@ -1,5 +1,8 @@
 ### CC Madhya 11.105
 
+> রাজা কহে, — সবে জগন্নাথ না দেখিয়া ৷
+> চৈতন্যের বাসা-গৃহে চলিলা ধাঞা ৷৷ ১০৫ ৷৷ ॥১০৫॥
+
 > rājā kahe,-sabe jagannātha nā dekhiyā
 > caitanyera vāsā-gṛhe calilā dhāñā
 

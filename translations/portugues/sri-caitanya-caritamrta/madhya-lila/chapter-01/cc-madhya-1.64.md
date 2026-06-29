@@ -1,5 +1,8 @@
 ### CC Madhya 1.64
 
+> মহাপ্রভু জগন্নাথের উপল-ভোগ দেখিয়া ।
+> নিজগৃহে যা’ন এই তিনেরে মিলিয়া ॥৬৪॥
+
 mahāprabhu jagannāthera upala-bhoga dekhiyā
 nija-gṛhe yā'na ei tinere miliyā
 

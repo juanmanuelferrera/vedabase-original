@@ -1,5 +1,8 @@
 ### CC Madhya 25.263
 
+> সংক্ষেপে কহিলুঁ এই মধ্যলীলার সার ।
+> কোটিগ্রন্থে বর্ণন না যায় ইহার বিস্তার ॥২৬৩॥
+
 > saṅkṣepe kahiluṅ ei madhya-līlāra sāra
 > koṭi-granthe varṇana nā yāya ihāra vistāra
 

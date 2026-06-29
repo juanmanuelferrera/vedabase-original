@@ -1,5 +1,8 @@
 ### CC Antya 3.173
 
+> ঠাকুর দেখি’ দুই ভাই কৈলা অভ্যুত্থান ।
+> পায় পড়ি’ আসন দিলা করিয়া সম্মান ॥১৭৩॥
+
 ṭhākura dekhi' dui bhāi kailā abhyutthāna
 
 pāya paḍi' āsana dilā kariyā sammāna

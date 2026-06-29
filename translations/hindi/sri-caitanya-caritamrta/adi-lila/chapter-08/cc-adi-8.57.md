@@ -1,5 +1,8 @@
 ### CC Adi 8.57
 
+> কৃষ্ণের যে সাধারণ সদ্গুণ পঞ্চাশ ।
+> সে সব গুণের তাঁর শরীরে নিবাস ॥৫৭॥
+
 > kṛṣṇera ye sādhāraṇa sad-guṇa pañcāśa
 > se saba guṇera tāṅra śarīre nivāsa
 

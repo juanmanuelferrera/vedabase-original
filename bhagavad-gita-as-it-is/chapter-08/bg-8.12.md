@@ -1,5 +1,8 @@
 ### Bg 8.12
 
+> सर्वद्वाराणि संयम्य मनो हृदि निरुध्य च ।
+> मूध्न्या।र्धायात्मनः प्राणमास्थितो योगधारणाम् ॥१२॥
+
 > sarva-dvārāṇi saṁyamya
 > mano hṛdi nirudhya ca
 > mūrdhny ādhāyātmanaḥ prāṇam

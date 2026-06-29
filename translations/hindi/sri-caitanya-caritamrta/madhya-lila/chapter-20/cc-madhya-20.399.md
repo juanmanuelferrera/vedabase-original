@@ -1,5 +1,8 @@
 ### CC Madhya 20.399
 
+> হরিঃ পূর্ণতমঃ পূর্ণতরঃ পূর্ণ ইতি ত্রিধা ।
+> শ্রেষ্ঠমধ্যাদিভিঃ শব্দৈর্নাট্যে যঃ পরিপঠ্যতে ॥৩৯৯॥
+
 > hariḥ pūrṇatamaḥ pūrṇa-
 > taraḥ pūrṇa iti tridhā
 > śreṣṭha-madhyādibhiḥ śabdair

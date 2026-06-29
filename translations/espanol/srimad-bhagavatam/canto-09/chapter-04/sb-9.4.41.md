@@ -1,5 +1,8 @@
 ### SB 9.4.41
 
+> इत्यपः प्राश्य राजर्षिश्चिन्तयन्मनसाच्युतम
+> प्रत्यचष्ट कुरुश्रेष्ठ द्विजागमनमेव सः ॥४१॥
+
 > ity apaḥ prāśya rājarṣiś
 > cintayan manasācyutam
 > pratyacaṣṭa kuru-śreṣṭha

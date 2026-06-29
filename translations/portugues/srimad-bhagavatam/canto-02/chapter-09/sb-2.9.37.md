@@ -1,5 +1,8 @@
 ### SB 2.9.37
 
+> एतन्मतं समातिष्ठ परमेण समाधिना ।
+> भवान्कल्पविकल्पेषु न विमुह्यति कर्हिचित् ॥३७॥
+
 etan mataṁ samātiṣṭha
 parameṇa samādhinā
 bhavān kalpa-vikalpeṣu

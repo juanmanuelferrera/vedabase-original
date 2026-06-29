@@ -1,5 +1,8 @@
 ### CC Antya 18.48
 
+> বড় মৎস্য বলি’ আমি উঠাইলুঁ যতনে ।
+> মৃতক দেখিতে মোর ভয় হৈল মনে ॥৪৮॥
+
 > baḍa matsya bali' āmi uṭhāiluṅ yatane
 > mṛtaka dekhite mora bhaya haila mane
 

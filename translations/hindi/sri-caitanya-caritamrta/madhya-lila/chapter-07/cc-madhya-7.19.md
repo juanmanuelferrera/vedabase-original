@@ -1,5 +1,8 @@
 ### CC Madhya 7.19
 
+> সন্ন্যাস করিয়া আমি চলিলাঙ বৃন্দাবন ।
+> তুমি আমা লঞা আইলে অদ্বৈত-ভবন ॥১৯॥
+
 > sannyāsa kariyā āmi calilāṅ vṛndāvana
 > tumi āmā lañā āile advaita-bhavana
 

@@ -1,5 +1,8 @@
 ### SB 4.1.64
 
+> तेभ्यो दधार कन्ये द्वे वयुनां धारिणीं स्वधा ।
+> उभे ते ब्रह्मवादिन्यौ ज्ञानविज्ञानपारगे ॥६४॥
+
 > tebhyo dadhāra kanye dve
 > vayunāṁ dhāriṇīṁ svadhā
 > ubhe te brahma-vādinyau

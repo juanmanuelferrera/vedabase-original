@@ -1,5 +1,8 @@
 ### CC Antya 1.193
 
+> “কবিত্ব না হয় এই অমৃতের ধার  ।
+> নাটক লক্ষণ সব সিদ্ধান্তের সার ॥১৯৩॥
+
 > "kavitva nā haya ei amṛtera dhāra
 > nāṭaka-lakṣaṇa saba siddhāntera sāra
 

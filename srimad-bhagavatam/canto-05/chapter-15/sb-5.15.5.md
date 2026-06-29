@@ -1,5 +1,7 @@
 ### SB 5.15.5
 
+> प्रतीहात्सुवर्चलायां प्रतिहर्त्रादयस्त्रय आसन्निज्याकोविदाः सूनवः प्रतिहर्तुः स्तुत्यामजभूमानावजनिषाताम ॥५॥
+
 > pratīhāt suvarcalāyāṁ pratihartrādayas traya āsann ijyā-kovidāḥ sūnavaḥ pratihartuḥ stutyām aja-bhūmānāv ajaniṣātām.
 
 *pratīhāt*—from King Pratīha; *suvarcalāyām*—in the womb of his wife, named Suvarcalā; *pratihartṛ-ādayaḥ trayaḥ*—the three sons Pratihartā, Prastotā and Udgātā; *āsan*—came into being; *ijyā-kovidāḥ*—who were all very expert in the ritualistic ceremonies of the *Vedas*; *sūnavaḥ*—sons; *pratihartuḥ*—from Pratihartā; *stutyām*—in the womb of Stutī, his wife; *aja-bhūmānau*—the two sons Aja and Bhūmā; *ajaniṣātām*—were brought into existence.

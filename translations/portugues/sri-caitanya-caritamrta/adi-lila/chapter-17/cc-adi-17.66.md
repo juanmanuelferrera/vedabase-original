@@ -1,5 +1,8 @@
 ### CC Adi 17.66
 
+> আচার্য গোসাঞিরে প্রভু করে গুরুভক্তি ।
+> তাহাতে আচার্য বড় হয় দুঃখমতি ॥৬৬॥
+
 ācārya-gosāñire prabhu kare guru-bhakti
 
 tāhāte ācārya baḍa haya duḥkha-mati

@@ -1,5 +1,10 @@
 ### CC Adi 13.115
 
+> ভক্ষ্য, ভোজ্য, উপহার, সঙ্গে লইল বহু ভার,
+> শচীগৃহে হৈল উপনীত ।
+> দেখিয়া বালক-ঠাম, সাক্ষাৎ গোকুল-কান,
+> বর্ণমাত্র দেখি বিপরীত ॥১১৫॥
+
 > bhakṣya, bhojya, upahāra, saṅge la-ila bahu bhāra,
 > śacī-gṛhe haila upanīta
 > dekhiyā bālaka-ṭhāma, sākṣāt gokula-kāna,

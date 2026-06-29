@@ -1,5 +1,8 @@
 ### CC Madhya 19.62
 
+> তেঁহো দণ্ডবৎ কৈল, প্রভু কৈলা আলিঙ্গন ।
+> দুই জনে কৃষ্ণকথা হৈল কতক্ষণ ॥৬২॥
+
 teṅho daṇḍavat kaila, prabhu kailā āliṅgana
 
 dui jane kṛṣṇa-kathā haila kata-kṣaṇa

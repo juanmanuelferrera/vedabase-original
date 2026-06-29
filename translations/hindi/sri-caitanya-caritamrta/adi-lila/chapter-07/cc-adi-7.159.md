@@ -1,5 +1,8 @@
 ### CC Adi 7.159
 
+> বাহু তুলি’ প্রভু বলে, — বল হরি হরি ।
+> হরিধ্বনি করে লোক স্বর্গমর্ত্য ভরি’ ॥১৫৯॥
+
 > bāhu tuli' prabhu bale,—bala hari hari
 > hari-dhvani kare loka svarga-martya bhari'
 

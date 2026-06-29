@@ -1,5 +1,8 @@
 ### SB 3.14.22
 
+> अथापि काममेतं ते प्रजात्यै करवाण्यलम् ।
+> यथा मां नातिरोचन्ति मुहूर्तं प्रतिपालय ॥२२॥
+
 > athāpi kāmam etaṁ te
 > prajātyai karavāṇy alam
 > yathā māṁ nātirocanti

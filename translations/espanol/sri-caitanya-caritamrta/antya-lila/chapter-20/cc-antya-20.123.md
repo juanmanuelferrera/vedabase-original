@@ -1,5 +1,8 @@
 ### CC Antya 20.123
 
+> চতুর্দশে — দিব্যোন্মাদ-আরম্ভ বর্ণন ।
+> ‘শরীর’ এথা প্রভুর, ‘মন’ গেলা বৃন্দাবন ॥১২৩॥
+
 > caturdaśe--divyonmāda-ārambha varṇana
 > 'śarīra' ethā prabhura, 'mana' gelā vṛndāvana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 18.177
 
+> হুঙ্কার করিয়া উঠে, বলে ‘হরি’ ‘হরি’ ।
+> প্রেমাবেশে নৃত্য করে ঊর্ধ্ববাহু করি’ ॥১৭৭॥
+
 > huṅkāra kariyā uṭhe, bale 'hari' 'hari'
 > premāveśe nṛtya kare ūrdhva-bāhu kari'
 

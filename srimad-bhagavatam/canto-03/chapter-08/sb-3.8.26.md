@@ -1,5 +1,8 @@
 ### SB 3.8.26
 
+> पुंसां स्वकामाय विविक्तमार्गैरभ्यर्चतां कामदुघाङ्घ्रिपद्मम् ।
+> प्रदर्शयन्तं कृपया नखेन्दु मयूखभिन्नाङ्गुलिचारुपत्रम् ॥२६॥
+
 > puṁsāṁ sva-kāmāya vivikta-mārgair
 > abhyarcatāṁ kāma-dughāṅghri-padmam
 > pradarśayantaṁ kṛpayā nakhendu-

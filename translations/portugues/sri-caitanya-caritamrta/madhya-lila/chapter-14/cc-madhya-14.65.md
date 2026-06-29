@@ -1,5 +1,8 @@
 ### CC Madhya 14.65
 
+> নৃত্য করি’ সন্ধ্যাকালে আরতি দেখিল ।
+> আইটোটা আসি’ প্রভু বিশ্রাম করিল ॥৬৫॥
+
 nṛtya kari' sandhyā-kāle ārati dekhila
 
 āiṭoṭā āsi' prabhu viśrāma karila

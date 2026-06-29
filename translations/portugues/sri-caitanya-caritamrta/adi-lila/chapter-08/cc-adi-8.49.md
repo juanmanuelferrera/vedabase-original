@@ -1,5 +1,8 @@
 ### CC Adi 8.49
 
+> সেই সব লীলার শুনিতে বিবরণ ।
+> বৃন্দাবনবাসী ভক্তের উত্কণ্ঠিত মন ॥৪৯॥
+
 sei saba līlāra śunite vivaraṇa
 
 vṛndāvana-vāsī bhaktera utkaṇṭhita mana

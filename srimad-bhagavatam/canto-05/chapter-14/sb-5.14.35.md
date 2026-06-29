@@ -1,5 +1,7 @@
 ### SB 5.14.35
 
+> क्वचिन्मिथो व्यवहरन्यत्किञ्चिद्धनमुपयाति वित्तशाठ्येन ॥३५॥
+
 > kvacin mitho vyavaharan yat kiñcid dhanam upayāti vitta-śāṭhyena.
 
 *kvacit*—sometimes or somewhere; *mithaḥ vyavaharan*—transacting with each other; *yat*—whatever; *kiñcit*—little bit; *dhanam*—material benefit or wealth; *upayāti*—he obtains; *vitta-śāṭhyena*—by means of cheating someone of his wealth.

@@ -1,5 +1,8 @@
 ### SB 6.2.17
 
+> तैस्तान्यघानि पूयन्ते तपोदानव्रतादिभिः
+> नाधर्मजं तद्धृदयं तदपीशाङ्घ्रिसेवया ॥१७॥
+
 > tais tāny aghāni pūyante
 > tapo-dāna-vratādibhiḥ
 > nādharmajaṁ tad-dhṛdayaṁ

@@ -1,5 +1,8 @@
 ### CC Antya 2.97
 
+> আচার্য কহে, — ‘আমা সবার কৃষ্ণনিষ্ঠ-চিত্তে ।
+> আমা সবার মন ভাষ্য নারে ফিরাইতে ।।’ ॥ ৯৭ ॥
+
 > ācārya kahe,--'āmā sabāra kṛṣṇa-niṣṭha-citte
 > āmā sabāra mana bhāṣya nāre phirāite'
 

@@ -1,5 +1,8 @@
 ### CC Adi 17.187
 
+> এত বলি’ কাজী নিজ-বুক দেখাইল ।
+> শুনি’ দেখি’ সর্বলোক আশ্চর্য মানিল ॥১৮৭॥
+
 > eta bali' kājī nija-buka dekhāila
 > śuni' dekhi' sarva-loka āścarya mānila
 

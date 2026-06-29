@@ -1,5 +1,10 @@
 ### CC Madhya 25.138
 
+> ভয়ং দ্বিতীয়াভিনিবেশতঃ স্যা-
+> দীশাদপেতস্য বিপর্যয়োঽস্মৃতিঃ ।
+> তন্মায়য়াতো বুধ আভজেত্তং
+> ভক্ত্যৈকয়েশং গুরুদেবতাত্মা ॥১৩৮॥
+
 > bhayaṁ dvitīyābhiniveśataḥ syād
 > īśād apetasya viparyayo 'smṛtiḥ
 > tan-māyayāto budha ābhajet taṁ

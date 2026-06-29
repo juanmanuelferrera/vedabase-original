@@ -1,5 +1,8 @@
 ### Bg 9.8
 
+> प्रकृतिं स्वामवष्टभ्य विसृजामि पुनः पुनः ।
+> भूतग्राममिमं कृत्स्नमवशं प्रकृतेर्वशात् ॥८॥
+
 > prakṛtiṁ svām avaṣṭabhya
 > visṛjāmi punaḥ punaḥ
 > bhūta-grāmam imaṁ kṛtsnam

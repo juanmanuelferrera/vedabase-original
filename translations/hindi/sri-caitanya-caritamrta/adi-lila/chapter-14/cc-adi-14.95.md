@@ -1,5 +1,8 @@
 ### CC Adi 14.95
 
+> বাল্যলীলা-সূত্র এই কৈল অনুক্রম ।
+> ইহা বিস্তারিয়াছেন দাস-বৃন্দাবন ॥৯৫॥
+
 > bālyalīlā-sūtra ei kaila anukrama
 > ihā vistāriyāchena dāsa-vṛndāvana
 

@@ -1,5 +1,8 @@
 ### CC Adi 5.5
 
+> একই স্বরূপ দোঁহে, ভিন্নমাত্র কায় ।
+> আদ্য কায়ব্যূহ, কৃষ্ণলীলার সহায় ॥৫॥
+
 eka-i svarūpa doṅhe, bhinna-mātra kāya
 ādya kāya-vyūha, kṛṣṇa-līlāra sahāya
 

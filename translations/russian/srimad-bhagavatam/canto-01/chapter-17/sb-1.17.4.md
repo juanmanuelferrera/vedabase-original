@@ -1,5 +1,8 @@
 ### SB 1.17.4
 
+> पप्रच्छ रथमारूढः कार्तस्वरपरिच्छदम् ।
+> मेघगम्भीरया वाचा समारोपितकार्मुकः ॥४॥
+
 > papraccha ratham ārūḍhaḥ
 > kārtasvara-paricchadam
 > megha-gambhīrayā vācā

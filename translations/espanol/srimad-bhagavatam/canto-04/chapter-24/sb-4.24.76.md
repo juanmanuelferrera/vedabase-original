@@ -1,5 +1,8 @@
 ### SB 4.24.76
 
+> य इमं श्रद्धया युक्तो मद्गीतं भगवत्स्तवम् ।
+> अधीयानो दुराराध्यं हरिमाराधयत्यसौ ॥७६॥
+
 > ya imaṁ śraddhayā yukto
 > mad-gītaṁ bhagavat-stavam
 > adhīyāno durārādhyaṁ

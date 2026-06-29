@@ -1,5 +1,7 @@
 ### SB 5.19.20
 
+> योऽसौ भगवति सर्वभूतात्मन्यनात्म्येऽनिरुक्तेऽनिलयने परमात्मनि वासुदेवेऽनन्यनिमित्तभक्तियोगलक्षणो नानागतिनिमित्ताविद्याग्रन्थिरन्धनद्वारेण यदा हि महापुरुषपुरुषप्रसङ्गः ॥२०॥
+
 > yo 'sau bhagavati sarva-bhūtātmany anātmye 'nirukte 'nilayane paramātmani vāsudeve 'nanya-nimitta-bhakti-yoga-lakṣaṇo nānā-gati-nimittāvidyā-granthi-randhana-dvāreṇa yadā hi mahā-puruṣa-puruṣa-prasaṅgaḥ.
 
 *yaḥ*—todo el que; *asau*—esa; *bhagavati*—a la Suprema Personalidad de Dios; *sarva-bhūta-ātmani*—la Superalma de todas las entidades vivientes; *anātmye*—sin apego; *anirukte*—que está más allá de la mente y las palabras; *anilayane*—que no depende de nada; *parama-ātmani*—al Alma Suprema; *vāsudeve*—el Señor Vāsudeva, el hijo de Vasudeva; *ananya*—sin ninguna otra; *nimitta*—causa; *bhakti-yoga-lakṣaṇaḥ*—con señales de servicio devocional puro; *nānā-gati*—de diversidad de destinos; *nimitta*—la causa; *avidyā-granthi*—el cautiverio de la ignorancia; *randhana*—de cortar; *dvāreṇa*—mediante; *yadā*—cuando; *hi*—en verdad; *mahā-puruṣa*—de la Suprema Personalidad de Dios; *puruṣa*—con el devoto; *prasaṅgaḥ*—una relación íntima.

@@ -1,5 +1,8 @@
 ### SB 8.19.31
 
+> प्रतिश्रुतं त्वयैतस्मै यदनर्थमजानता
+> न साधु मन्ये दैत्यानां महानुपगतोऽनयः ॥३१॥
+
 > pratiśrutaṁ tvayaitasmai
 > yad anartham ajānatā
 > na sādhu manye daityānāṁ

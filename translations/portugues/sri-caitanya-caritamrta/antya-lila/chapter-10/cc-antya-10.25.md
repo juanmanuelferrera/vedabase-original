@@ -1,5 +1,8 @@
 ### CC Antya 10.25
 
+> নারিকেল-খণ্ড নাড়ু, আর নাড়ু গঙ্গাজল ।
+> চিরস্থায়ী খণ্ডবিকার করিলা সকল ॥২৫॥
+
 nārikela-khaṇḍa nāḍu, āra nāḍu gaṅgā-jala
 
 cira-sthāyī khaṇḍa-vikāra karilā sakala

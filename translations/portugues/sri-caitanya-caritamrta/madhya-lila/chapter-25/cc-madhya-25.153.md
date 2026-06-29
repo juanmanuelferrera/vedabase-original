@@ -1,5 +1,8 @@
 ### CC Madhya 25.153
 
+> অতএব ভাগবত করহ বিচার ৷
+> ইহা হৈতে পাবে সূত্র-শ্রুতির অর্থ-সার ৷৷ ১৫৩ ৷৷ ॥১৫৩॥
+
 ataeva bhāgavata karaha vicāra
 
 ihā haite pābe sūtra-śrutira artha-sāra

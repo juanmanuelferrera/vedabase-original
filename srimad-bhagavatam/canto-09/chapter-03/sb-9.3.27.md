@@ -1,5 +1,8 @@
 ### SB 9.3.27
 
+> उत्तानबर्हिरानर्तो भूरिषेण इति त्रयः
+> शर्यातेरभवन्पुत्रा आनर्ताद्रेवतोऽभवत ॥२७॥
+
 > uttānabarhir ānarto
 > bhūriṣeṇa iti trayaḥ
 > śaryāter abhavan putrā

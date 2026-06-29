@@ -1,5 +1,8 @@
 ### CC Madhya 19.232
 
+> কান্তভাবে নিজাঙ্গ দিয়া করেন সেবন  ।
+> অতএব মধুর-রসের হয় ‘পঞ্চ’ গুণ ॥২৩২॥
+
 kānta-bhāve nijāṅga diyā karena sevana
 
 ataeva madhura-rasera haya 'pañca' guṇa

@@ -1,5 +1,8 @@
 ### CC Madhya 9.328
 
+> রাত্রিকালে রায় পুনঃ কৈল আগমন ৷
+> দুই জনে কৃষ্ণকথায় কৈল জাগরণ ৷৷ ৩২৮ ৷৷ ॥৩২৮॥
+
 rātri-kāle rāya punaḥ kaila āgamana
 dui jane kṛṣṇa-kathāya kaila jāgaraṇa
 

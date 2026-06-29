@@ -3,6 +3,9 @@
 > tāṅhāre āpana-sevā karāite nā yuyāya
 > guru ājñā diyāchena, ki kari upāya
 
+> tāṅhāre āpana-sevā karāite nā yuyāya
+> guru ājñā diyāchena, ki kari upāya
+
 *tāṅhāre*—a él; *āpana-sevā*—servicio personal; *karāite*—hacer que realice; *nā yuyāya*—no es apropiado; *guru*—el maestro espiritual; *ājñā*—orden; *diyāchena*—ha dado; *ki*—qué; *kari*—puedo hacer; *upāya*—remedio.
 
 **«Por consiguiente, no es apropiado que el sirviente del guru se ocupe en Mi servicio personal. Sin embargo, Mi maestro espiritual ha dado esta orden. ¿Qué he de hacer?»**

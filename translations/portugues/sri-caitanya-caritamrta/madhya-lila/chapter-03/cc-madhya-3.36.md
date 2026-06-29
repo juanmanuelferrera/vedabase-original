@@ -1,5 +1,8 @@
 ### CC Madhya 3.36
 
+> গঙ্গায় যমুনা বহে হঞা একধার ।
+> পশ্চিমে যমুনা বহে, পূর্বে গঙ্গাধার ॥৩৬॥
+
 gaṅgāya yamunā vahe hañā eka-dhāra
 paścime yamunā vahe, pūrve gaṅgā-dhāra
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.126
 
+> কালি সমাপ্ত হবে, তবে হবে ব্রতভঙ্গ ।
+> স্বচ্ছন্দে তোমার সঙ্গে হইবেক সঙ্গ ।।” ॥ ১২৬ ॥
+
 kāli samāpta habe, tabe habe vrata-bhaṅga
 
 svacchande tomāra saṅge ha-ibeka saṅga"

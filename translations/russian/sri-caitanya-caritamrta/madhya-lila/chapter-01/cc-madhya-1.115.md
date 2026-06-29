@@ -1,5 +1,8 @@
 ### CC Madhya 1.115
 
+> অনন্ত, পুরুষোত্তম, শ্রীজনার্দন ।
+> পদ্মনাভ, বাসুদেব কৈল দরশন ॥১১৫॥
+
 > ananta, puruṣottama, śrī-janārdana
 > padmanābha, vāsudeva kaila daraśana
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.154
 
+> তাঁর পদধূলি লঞা স্বগৃহে আইলা ।
+> নিত্যানন্দ-কৃপা পাঞা কৃতার্থ মানিলা ॥১৫৪॥
+
 tāṅra pada-dhūli lañā svagṛhe āilā
 
 nityānanda-kṛpā pāñā kṛtārtha mānilā

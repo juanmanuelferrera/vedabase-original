@@ -1,5 +1,8 @@
 ### CC Adi 4.270
 
+> সেইকালে শ্রীঅদ্বৈত করেন আরাধন ।
+> তাঁহার হুঙ্কারে কৈল কৃষ্ণে আকর্ষণ ॥২৭০॥
+
 > sei-kāle śrī-advaita karena ārādhana
 > tāṅhāra huṅkāre kaila kṛṣṇe ākarṣaṇa
 

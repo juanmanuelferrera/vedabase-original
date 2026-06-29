@@ -1,5 +1,8 @@
 ### SB 3.3.15
 
+> मिथो यदैषां भविता विवादो मध्वामदाताम्रविलोचनानाम् ।
+> नैषां वधोपाय इयानतोऽन्यो मय्युद्यतेऽन्तर्दधते स्वयं स्म ॥१५॥
+
 > mitho yadaiṣāṁ bhavitā vivādo
 > madhv-āmadātāmra-vilocanānām
 > naiṣāṁ vadhopāya iyān ato 'nyo

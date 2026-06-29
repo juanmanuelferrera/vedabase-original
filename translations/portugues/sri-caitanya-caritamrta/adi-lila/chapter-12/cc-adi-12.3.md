@@ -1,5 +1,8 @@
 ### CC Adi 12.3
 
+> শ্রীচৈতন্যামরতরোর্দ্বিতীয়স্কন্ধরূপিণঃ ।
+> শ্রীমদদ্বৈতচন্দ্রস্য শাখারূপান্ গণান্নুমঃ ॥৩॥
+
 śrī-caitanyāmara-taror
 dvitīya-skandha-rūpiṇaḥ
 śrīmad-advaita-candrasya

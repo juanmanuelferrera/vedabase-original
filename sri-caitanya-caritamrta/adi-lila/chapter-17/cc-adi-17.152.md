@@ -1,5 +1,8 @@
 ### CC Adi 17.152
 
+> প্রভু কহে, — প্রশ্ন লাগি’ আইলাম তোমার স্থানে ।
+> কাজী কহে, — আজ্ঞা কর, যে তোমার মনে ॥১৫২॥
+
 > prabhu kahe,—praśna lāgi' āilāma tomāra sthāne
 > kājī kahe,—ājñā kara, ye tomāra mane
 

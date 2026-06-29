@@ -1,5 +1,8 @@
 ### SB 9.5.4
 
+> सुदर्शन नमस्तुभ्यं सहस्राराच्युतप्रिय
+> सर्वास्त्रघातिन्विप्राय स्वस्ति भूया इडस्पते ॥४॥
+
 > sudarśana namas tubhyaṁ
 > sahasrārācyuta-priya
 > sarvāstra-ghātin viprāya

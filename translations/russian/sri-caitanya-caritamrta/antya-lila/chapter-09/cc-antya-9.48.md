@@ -1,5 +1,8 @@
 ### CC Antya 9.48
 
+> যথার্থ মূল্যে ঘোড়া লহ, যেবা বাকী হয় ।
+> ক্রমে ক্রমে দিবে, ব্যর্থ প্রাণ কেনে লয় ।।” ॥ ৪৮ ॥
+
 > yathārtha mūlye ghoḍā laha, yebā bākī haya
 > krame krame dibe, vyartha prāṇa kene laya"
 

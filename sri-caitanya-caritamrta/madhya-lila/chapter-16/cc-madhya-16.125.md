@@ -1,5 +1,8 @@
 ### CC Madhya 16.125
 
+> স্বগণ-সহিতে প্রভু প্রসাদ অঙ্গীকরি’ ।
+> উঠিয়া চলিলা প্রভু বলি’ ‘হরি’ ‘হরি’ ॥১২৫॥
+
 > svagaṇa-sahite prabhu prasāda aṅgīkari'
 > uṭhiyā calilā prabhu bali' 'hari' 'hari'
 

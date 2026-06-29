@@ -1,5 +1,10 @@
 ### CC Madhya 21.135
 
+> কৃষ্ণাঙ্গ-মাধুর্য — সিন্ধু, সুমধুর মুখ — ইন্দু,
+> অতি-মধু স্মিত — সুকিরণে ।
+> এ-তিনে লাগিল মন, লোভে করে আস্বাদন,
+> শ্লোক পড়ে স্বহস্ত-চালনে ॥১৩৫॥
+
 > kṛṣṇāṅga-mādhurya—sindhu, sumadhura mukha—indu,
 > ati-madhu smita—sukiraṇe
 > e-tine lāgila mana, lobhe kare āsvādana,

@@ -1,5 +1,8 @@
 ### CC Madhya 24.346
 
+> এই ত’ কহিলু প্রভুর সনাতনে প্রসাদ ।
+> যাহার শ্রবণে চিত্তের খণ্ডে অবসাদ ॥৩৪৬॥
+
 > ei ta' kahilu prabhura sanātane prasāda
 > yāhāra śravaṇe cittera khaṇḍe avasāda
 

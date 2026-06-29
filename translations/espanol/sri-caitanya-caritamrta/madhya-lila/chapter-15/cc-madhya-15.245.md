@@ -1,5 +1,8 @@
 ### CC Madhya 15.245
 
+> হেনকালে ‘অমোঘ’ — ভট্টাচার্যের জামাতা  ।
+> কুলীন, নিন্দক তেঁহো ষাঠি-কন্যার ভর্তা ॥২৪৫॥
+
 > hena-kāle 'amogha,'--bhaṭṭācāryera jāmātā
 > kulīna, nindaka teṅho ṣāṭhī-kanyāra bhartā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 6.256
 
+> এই দুই শ্লোক — ভক্তকন্ঠে রত্নহার ।
+> সার্বভৌমের কীর্তি ঘোষে ঢক্কাবাদ্যাকার ॥২৫৬॥
+
 > ei dui śloka—bhakta-kaṇṭhe ratna-hāra
 > sārvabhaumera kīrti ghoṣe ḍhakkā-vādyākāra
 

@@ -1,5 +1,8 @@
 ### CC Adi 5.179
 
+> এই ত’ কহিল তাঁর সেবক-প্রভাব ।
+> আর এক কহি তাঁর দয়ার স্বভাব ॥১৭৯॥
+
 > ei ta' kahila tāṅra sevaka-prabhāva
 > āra eka kahi tāṅra dayāra svabhāva
 

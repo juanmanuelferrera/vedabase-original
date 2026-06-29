@@ -1,5 +1,8 @@
 ### SB 8.18.22
 
+> ते ऋत्विजो यजमानः सदस्या हतत्विषो वामनतेजसा नृप
+> सूर्यः किलायात्युत वा विभावसुः सनत्कुमारोऽथ दिदृक्षया क्रतोः ॥२२॥
+
 > te ṛtvijo yajamānaḥ sadasyā
 > hata-tviṣo vāmana-tejasā nṛpa
 > sūryaḥ kilāyāty uta vā vibhāvasuḥ

@@ -1,5 +1,8 @@
 ### CC Madhya 11.14
 
+> হেন কালে প্রতাপরুদ্র পুরুষোত্তমে আইলা ৷
+> পাত্র-মিত্র-সঙ্গে রাজা দরশনে চলিলা ৷৷ ১৪ ৷৷ ॥১৪॥
+
 hena kāle pratāparudra puruṣottame āilā
 pātra-mitra-saṅge rājā daraśane calilā
 

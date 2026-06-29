@@ -1,5 +1,8 @@
 ### CC Antya 8.63
 
+> প্রণাম করি’ প্রভু কৈলা চরণ বন্দন ।
+> প্রভুরে কহয়ে কিছু হাসিয়া বচন ॥৬৩॥
+
 > praṇāma kari' prabhu kailā caraṇa vandana
 > prabhure kahaye kichu hāsiyā vacana
 

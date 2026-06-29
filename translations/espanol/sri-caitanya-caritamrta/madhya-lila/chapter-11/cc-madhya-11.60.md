@@ -1,5 +1,8 @@
 ### CC Madhya 11.60
 
+> স্নানযাত্রা কবে হবে পুছিল ভট্টেরে ৷
+> ভট্ট কহে, — তিন দিন আছয়ে যাত্রারে ৷৷ ৬০ ৷৷ ॥৬০॥
+
 > snāna-yātrā kabe habe puchila bhaṭṭere
 > bhaṭṭa kahe,-tina dina āchaye yātrāre
 

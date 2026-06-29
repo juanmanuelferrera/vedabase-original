@@ -1,5 +1,8 @@
 ### SB 2.4.8
 
+> नूनं भगवतो ब्रह्मन्हरेरद्भुतकर्मणः ।
+> दुर्विभाव्यमिवाभाति कविभिश्चापि चेष्टितम् ॥८॥
+
 > nūnaṁ bhagavato brahman
 > harer adbhuta-karmaṇaḥ
 > durvibhāvyam ivābhāti

@@ -1,5 +1,8 @@
 ### CC Antya 6.235
 
+> তথাপি আমার আজ্ঞায় শ্রদ্ধা যদি হয় ।
+> আমার এই বাক্যে তবে করিহ নিশ্চয় ॥২৩৫॥
+
 > tathāpi āmāra ājñā ya śraddhā yadi haya
 > āmāra ei vākye tabe kariha niścaya
 

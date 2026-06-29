@@ -1,5 +1,8 @@
 ### CC Madhya 6.46
 
+> এত বলি’ পীঠা-পানা সব খাওয়াইলা ।
+> ভিক্ষা করাঞা আচমন করাইলা ॥৪৬॥
+
 eta bali' pīṭhā-pānā saba khāoyāilā
 
 bhikṣā karāñā ācamana karāilā

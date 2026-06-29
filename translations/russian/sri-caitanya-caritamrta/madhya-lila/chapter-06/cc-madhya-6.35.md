@@ -1,5 +1,8 @@
 ### CC Madhya 6.35
 
+> সবে মেলি’ ধরি তাঁরে সুস্থির করিল ।
+> ঈশ্বর-সেবক মালা-প্রসাদ আনি’ দিল ॥৩৫॥
+
 > sabe meli' dhari tāṅre susthira karila
 > īśvara-sevaka mālā-prasāda āni' dila
 

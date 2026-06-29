@@ -1,5 +1,8 @@
 ### CC Madhya 15.135
 
+> ‘দারুব্রহ্ম’-রূপে — সাক্ষাৎ শ্ৰীপুরুষোত্তম  ।
+> ভাগীরথী হন সাক্ষাৎ ‘জলব্রহ্ম’-সম ॥১৩৫॥
+
 > 'dāru-brahma'-rūpe—sākṣāt śrī-puruṣottama
 > bhāgīrathī hana sākṣāt 'jala-brahma'-sama
 

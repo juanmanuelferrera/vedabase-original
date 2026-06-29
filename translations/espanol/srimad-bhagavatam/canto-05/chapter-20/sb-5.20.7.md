@@ -1,5 +1,7 @@
 ### SB 5.20.7
 
+> प्लक्षः स्वसमानेनेक्षुरसोदेनावृतो यथा तथा द्वीपोऽपि शाल्मलो द्विगुणविशालः समानेनसुरोदेनावृतः परिवृङ्क्ते ॥७॥
+
 > plakṣaḥ sva-samānenekṣu-rasodenāvṛto yathā tathā dvīpo 'pi śālmalo dvi-guṇa-viśālaḥ samānena surodenāvṛtaḥ parivṛṅkte.
 
 *plakṣaḥ*—la región que recibe el nombre de Plakṣadvīpa; *sva-samānena*—igual en anchura; *ikṣu-rasa*—de jugo de caña de azúcar; *udena*—por un océano; *āvṛtaḥ*—rodeada; *yathā*—tal como; *tathā*—de manera similar; *dvīpaḥ*—otra isla; *api*—también; *śālmalaḥ*—que lleva el nombre de Śālmala; *dvi-guṇa-viśālaḥ*—el doble de grande; *samānena*—de la misma anchura; *surā-udena*—por un océano de licor; *āvṛtaḥ*—rodeada; *parivṛṅkte*—existe.

@@ -1,5 +1,8 @@
 ### SB 4.19.4
 
+> अन्वितो ब्रह्मशर्वाभ्यां लोकपालैः सहानुगैः ।
+> उपगीयमानो गन्धर्वैर्मुनिभिश्चाप्सरोगणैः ॥४॥
+
 > anvito brahma-śarvābhyāṁ
 > loka-pālaiḥ sahānugaiḥ
 > upagīyamāno gandharvair

@@ -1,5 +1,8 @@
 ### CC Antya 9.21
 
+> ঘোড়া দশ-বার হয়, লহ’ মূল্য করি’ ।
+> এত বলি’ ঘোড়া আনে রাজদ্বারে ধরি’ ॥২১॥
+
 ghoḍā daśa-bāra haya, laha' mūlya kari' "
 
 eta bali' ghoḍā āne rāja-dvāre dhari'

@@ -1,5 +1,8 @@
 ### CC Madhya 4.147
 
+> প্রতিষ্ঠার ভয়ে পুরী গেলা পলাঞা ।
+> কৃষ্ণ-প্রেমে প্রতিষ্ঠা চলে সঙ্গে গড়াঞা ॥১৪৭॥
+
 > pratiṣṭhāra bhaye purī gelā palāñā
 > kṛṣṇa-preme pratiṣṭhā cale saṅge gaḍāñā
 

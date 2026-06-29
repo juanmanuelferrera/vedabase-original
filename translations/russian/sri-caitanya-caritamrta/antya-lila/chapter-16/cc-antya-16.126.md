@@ -1,5 +1,10 @@
 ### CC Antya 16.126
 
+> তবে মোরে ক্রোধ করি’, লজ্জা, ভয়, ধর্ম, ছাড়ি’,
+> ছাড়ি’ দিমু, কর আসি’ পান ।
+> নহে পিমু নিরন্তর, তোমায় মোর নাহিক ডর,
+> অন্যে দেখোঁ তৃণের সমান ॥১২৬॥
+
 > tabe more krodha kari;, lajjā bhaya, dharma, chāḍi',
 > chāḍi' dimu, kara āsi' pāna
 > nahe pimu nirantara, tomāya mora nāhika ḍara,

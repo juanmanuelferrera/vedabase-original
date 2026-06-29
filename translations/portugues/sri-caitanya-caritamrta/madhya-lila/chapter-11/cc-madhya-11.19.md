@@ -1,5 +1,8 @@
 ### CC Madhya 11.19
 
+> আমি কহি, — আমা হৈতে না হয় ‘বিষয়’ ৷
+> চৈতন্যচরণে রহোঁ, যদি আজ্ঞা হয় ৷৷ ১৯ ৷৷ ॥১৯॥
+
 āmi kahi,–āmā haite nā haya 'viṣaya'
 caitanya-caraṇe rahoṅ, yadi ājñā haya
 

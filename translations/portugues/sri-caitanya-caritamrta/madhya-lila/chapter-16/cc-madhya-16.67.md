@@ -1,5 +1,8 @@
 ### CC Madhya 16.67
 
+> অচিন্ত্যশক্ত্যে কর তুমি তাহার ঘটন ।
+> যে করাহ, সেই করি, নাহিক নিয়ম ॥৬৭॥
+
 acintya-śaktye kara tumi tāhāra ghaṭana
 
 ye karāha, sei kari, nāhika niyama

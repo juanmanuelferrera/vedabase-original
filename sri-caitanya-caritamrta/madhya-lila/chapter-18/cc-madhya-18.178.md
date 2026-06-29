@@ -1,5 +1,8 @@
 ### CC Madhya 18.178
 
+> প্রেমাবেশে প্রভু যবে করেন চিৎকার ।
+> ম্লেচ্ছের হৃদয়ে যেন লাগে শেলধার ॥১৭৮॥
+
 > premāveśe prabhu yabe karena citkāra
 > mlecchera hṛdaye yena lāge śeladhāra
 

@@ -1,5 +1,8 @@
 ### CC Madhya 6.246
 
+> তুমি — মহাভাগবত, আমি — তর্ক-অন্ধে ।
+> প্রভু কৃপা কৈল মোরে তোমার সম্বন্ধে ॥২৪৬॥
+
 > tumi--mahābhāgavata, āmi--tarka-andhe
 > prabhu kṛpā kaila more tomāra sambandhe
 

@@ -1,5 +1,8 @@
 ### CC Madhya 10.34
 
+> তবে মহাপ্রভু তাহাঁ বসিলা আসনে ।
+> চৌদিকে বসিলা নিত্যানন্দাদি ভক্তগণে ॥৩৪॥
+
 > tabe mahāprabhu tāhāṅ vasilā āsane
 > caudike vasilā nityānandādi bhakta-gaṇe
 

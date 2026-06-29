@@ -1,5 +1,7 @@
 ### SB 5.14.40
 
+> यदपि दिगिभजयिनो यज्विनो ये वै राजर्षयः किं तु परं मृधे शयीरन्नस्यामेवममेयमिति कृतवैरानुबन्धायां विसृज्य स्वयमुपसंहृताः ॥४०॥
+
 > yad api dig-ibha-jayino yajvino ye vai rājarṣayaḥ kiṁ tu paraṁ mṛdhe śayīrann asyām eva mameyam iti kṛta-vairānubandhāyāṁ visṛjya svayam upasaṁhṛtāḥ.
 
 *yat api*—although; *dik-ibha-jayinaḥ*—who are victorious in all directions; *yajvinaḥ*—expert in performing great sacrifices; *ye*—all of whom; *vai*—indeed; *rāja-ṛṣayaḥ*—very great saintly kings; *kim tu*—but; *param*—only this earth; *mṛdhe*—in battle; *śayīran*—lying down; *asyām*—on this (earth); *eva*—indeed; *mama*—mine; *iyam*—this; *iti*—considering in that way; *kṛta*—on which is created; *vaira-anu-bandhāyām*—a relationship of enmity with others; *visṛjya*—giving up; *svayam*—his own life; *upasaṁhṛtāḥ*—being killed.

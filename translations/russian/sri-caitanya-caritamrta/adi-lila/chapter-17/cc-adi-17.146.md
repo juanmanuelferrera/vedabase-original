@@ -1,5 +1,8 @@
 ### CC Adi 17.146
 
+> কাজী কহে — তুমি আইস ক্রুদ্ধ হইয়া ।
+> তোমা শান্ত করাইতে রহিনু লুকাইয়া ॥১৪৬॥
+
 > kājī kahe—tumi āisa kruddha ha-iyā
 > tomā śānta karāite rahinu lukāiyā
 

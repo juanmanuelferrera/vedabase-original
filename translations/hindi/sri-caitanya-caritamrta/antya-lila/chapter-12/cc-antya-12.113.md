@@ -1,5 +1,8 @@
 ### CC Antya 12.113
 
+> এই সুখ লাগি’ আমি করিলুঁ সন্ন্যাস !
+> আমার ‘সর্বনাশ’ — তোমা-সবার ‘পরিহাস’ ॥১১৩॥
+
 > ei sukha lāgi' āmi kariluṅ sannyāsa!
 > āmāra 'sarva-nāśa'--tomā-sabāra 'parihāsa'
 

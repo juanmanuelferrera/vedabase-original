@@ -1,5 +1,8 @@
 ### CC Adi 9.53
 
+> যে যে পূর্বে নিন্দা কৈল, বলি’ মাতোয়াল ।
+> সেহো ফল খায়, নাচে, বলে — ভাল, ভাল ॥৫৩॥
+
 > ye ye pūrve nindā kaila, bali' mātoyāla
 > seho phala khāya, nāce, bale—bhāla bhāla
 

@@ -1,5 +1,8 @@
 ### CC Madhya 14.143
 
+> মানে কেহ হয় ‘ধীরা’, কেহ ত’ ‘অধীরা’ ।
+> এই তিন-ভেদে, কেহ হয় ‘ধীরাধীরা’ ॥১৪৩॥
+
 > māne keha haya 'dhīrā,' keha ta' 'adhīrā'
 > ei tina-bhede, keha haya 'dhīrādhīrā'
 

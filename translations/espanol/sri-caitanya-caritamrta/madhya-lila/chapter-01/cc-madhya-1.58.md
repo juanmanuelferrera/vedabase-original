@@ -1,5 +1,10 @@
 ### CC Madhya 1.58
 
+> যঃ কৌমারহরঃ স এব হি বরস্তা এব চৈত্রক্ষপা-
+> স্তে চোন্মীলিতমালতীসুরভয়ঃ প্রৌঢ়াঃ কদম্বানিলাঃ ।
+> সা চৈবাস্মি তথাপি তত্র সুরতব্যাপারলীলাবিধৌ
+> রেবারোধসি বেতসীতরুতলে চেতঃ সমুৎকণ্ঠতে ॥৫৮॥
+
 > yaḥ kaumāra-haraḥ sa eva hi varas tā eva caitra-kṣapās
 > te conmīlita-mālatī-surabhayaḥ prauḍhāḥ kadambānilāḥ
 > sā caivāsmi tathāpi tatra surata-vyāpāra-līlā-vidhau

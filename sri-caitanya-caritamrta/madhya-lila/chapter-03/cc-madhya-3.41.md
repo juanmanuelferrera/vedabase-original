@@ -1,5 +1,8 @@
 ### CC Madhya 3.41
 
+> প্রথমে পাক করিয়াছেন আচার্যাণী ।
+> বিষ্ণু-সমর্পণ কৈল আচার্য আপনি ॥৪১॥
+
 > prathame pāka kariyāchena ācāryāṇī
 > viṣṇu-samarpaṇa kaila ācārya āpani
 

@@ -1,5 +1,8 @@
 ### CC Adi 6.107
 
+> অন্যের আছুক্ কার্য, আপনে শ্রীকৃষ্ণ ।
+> আপন-মাধুর্য-পানে হইলা সতৃষ্ণ ॥১০৭॥
+
 anyera āchuk kārya, āpane śrī-kṛṣṇa
 āpana-mādhurya-pāne ha-ilā satṛṣṇa
 

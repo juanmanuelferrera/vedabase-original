@@ -1,5 +1,8 @@
 ### CC Madhya 12.200
 
+> তবে পরিবেশক স্বরূপাদি সাত জন ।
+> গৃহের ভিতরে কৈল প্রসাদ ভোজন ॥২০০॥
+
 > tabe pariveśaka svarūpādi sāta jana
 > gṛhera bhitare kaila prasāda bhojana
 

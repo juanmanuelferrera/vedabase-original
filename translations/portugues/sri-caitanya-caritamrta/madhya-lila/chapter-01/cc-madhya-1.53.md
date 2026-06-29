@@ -1,5 +1,8 @@
 ### CC Madhya 1.53
 
+> যে কালে করেন জগন্নাথ দরশন ।
+> মনে ভাবে, কুরুক্ষেত্রে পাঞাছি মিলন ॥৫৩॥
+
 ye kāle karena jagannātha daraśana
 
 mane bhāve, kurukṣetre pāñāchi milana

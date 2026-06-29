@@ -1,5 +1,8 @@
 ### CC Madhya 3.175
 
+> যদ্যপি সহসা আমি করিয়াছি সন্ন্যাস ।
+> তথাপি তোমা-সবা হৈতে নহিব উদাস ॥১৭৫॥
+
 > yadyapi sahasā āmi kariyāchi sannyāsa
 > tathāpi tomā-sabā haite nahiba udāsa
 

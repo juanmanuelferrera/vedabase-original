@@ -1,5 +1,8 @@
 ### CC Antya 5.22
 
+> তবে সেই দুইজনে নৃত্য শিখাইলা ।
+> গীতের গূঢ় অর্থ অভিনয় করাইলা ॥২২॥
+
 tabe sei dui-jane nṛtya śikhāilā
 
 gītera gūḍha artha abhinaya karāilā

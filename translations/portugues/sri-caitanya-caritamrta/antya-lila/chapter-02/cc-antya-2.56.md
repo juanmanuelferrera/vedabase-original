@@ -1,5 +1,8 @@
 ### CC Antya 2.56
 
+> তবে তাঁরে এথা আমি আনিব সত্বর ।
+> নিশ্চয় কহিলাঙ, কিছু সন্দেহ না কর ॥৫৬॥
+
 tabe tāṅre ethā āmi āniba satvara
 
 niścaya kahilāṅa, kichu sandeha nā kara

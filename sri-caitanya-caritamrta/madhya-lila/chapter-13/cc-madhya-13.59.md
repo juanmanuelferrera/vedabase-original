@@ -1,5 +1,8 @@
 ### CC Madhya 13.59
 
+> যারে তাঁর কৃপা, সেই জানিবারে পারে ।
+> কৃপা বিনা ব্রহ্মাদিক জানিবারে নারে ॥৫৯॥
+
 > yāre tāṅra kṛpā, sei jānibāre pāre
 > kṛpā vinā brahmādika jānibāre nāre
 

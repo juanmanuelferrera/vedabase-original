@@ -1,5 +1,8 @@
 ### CC Madhya 16.30
 
+> সেই রাত্রি সব মহান্ত তাহাঞি রহিলা ।
+> বার ক্ষীর আনি’ আগে সেবক ধরিলা ॥৩০॥
+
 > sei rātri saba mahānta tāhāñi rahilā
 > bāra kṣīra āni' āge sevaka dharilā
 

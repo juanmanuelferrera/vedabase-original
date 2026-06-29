@@ -1,5 +1,8 @@
 ### CC Adi 8.47
 
+> বিস্তার দেখিয়া কিছু সঙ্কোচ হৈল মন ।
+> সূত্রধৃত কোন লীলা না কৈল বর্ণন ॥৪৭॥
+
 > vistāra dekhiyā kichu saṅkoca haila mana
 > sūtra-dhṛta kona līlā nā kaila varṇana
 

@@ -1,5 +1,8 @@
 ### CC Adi 3.10
 
+> অষ্টাবিংশ চতুর্যুগে দ্বাপরের শেষে ।
+> ব্রজের সহিতে হয় কৃষ্ণের প্রকাশে ॥১০॥
+
 aṣṭāviṁśa catur-yuge dvāparera śeṣe
 vrajera sahite haya kṛṣṇera prakāśe
 

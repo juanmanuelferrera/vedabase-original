@@ -1,5 +1,7 @@
 ### CC Madhya 23.26
 
+> ‘সর্বোত্তম’ আপনাকে ‘হীন’ করি’ মানে ॥২৬॥
+
 'sarvottama' āpanāke 'hīna' kari māne
 
 *sarva-uttama*—embora esteja acima de todos; *āpanāke*—a si mesmo; *hīna kari*—como o mais baixo; *māne*—considera.

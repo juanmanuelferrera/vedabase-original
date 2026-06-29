@@ -1,5 +1,8 @@
 ### CC Antya 5.78
 
+> মহানুভবের এই সহজ ‘স্বভাব’ হয় ।
+> আপনার গুণ নাহি আপনে কহয় ।।” ॥ ৭৮ ॥
+
 > mahānubhavera ei sahaja 'svabhāva' haya
 > āpanāra guṇa nāhi āpane kahaya"
 

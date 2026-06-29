@@ -1,5 +1,8 @@
 ### CC Madhya 11.215
 
+> চারিদিকে চারি সম্প্রদায় করেন কীর্তন ।
+> মধ্যে নৃত্য করে প্রভু শচীর নন্দন ॥২১৫॥
+
 > cāri-dike cāri sampradāya karena kīrtana
 > madhye nṛtya kare prabhu śacīra nandana
 

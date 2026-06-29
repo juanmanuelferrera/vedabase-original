@@ -1,5 +1,8 @@
 ### CC Madhya 11.140
 
+> ছোট হঞা মুকুন্দ এবে হৈল আমার জ্যেষ্ঠ ।
+> তোমার কৃপাপাত্র তাতে সর্বগুণে শ্রেষ্ঠ ॥১৪০॥
+
 > choṭa hañā mukunda ebe haila āmāra jyeṣṭha
 > tomāra kṛpā-pātra tāte sarva-guṇe śreṣṭha
 

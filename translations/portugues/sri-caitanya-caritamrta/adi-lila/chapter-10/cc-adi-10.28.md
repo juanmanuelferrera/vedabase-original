@@ -1,5 +1,8 @@
 ### CC Adi 10.28
 
+> সে-সব সামগ্রী আগে করিব বিস্তার ।
+> যাহার শ্রবণে ভক্তের বহে অশ্রুধার ॥২৮॥
+
 se-saba sāmagrī āge kariba vistāra
 yāhāra śravaṇe bhaktera vahe aśrudhāra
 

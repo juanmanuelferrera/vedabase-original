@@ -1,5 +1,8 @@
 ### SB 5.18.9
 
+> स्वस्त्यस्तु विश्वस्य खलः प्रसीदतां ध्यायन्तु भूतानि शिवं मिथो धिया
+> मनश्च भद्रं भजतादधोक्षजे आवेश्यतां नो मतिरप्यहैतुकी ॥९॥
+
 > svasty astu viśvasya khalaḥ prasīdatāṁ
 > dhyāyantu bhūtāni śivaṁ mitho dhiyā
 > manaś ca bhadraṁ bhajatād adhokṣaje

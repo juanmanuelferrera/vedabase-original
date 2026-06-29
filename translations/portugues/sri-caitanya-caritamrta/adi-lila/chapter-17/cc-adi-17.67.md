@@ -1,5 +1,8 @@
 ### CC Adi 17.67
 
+> ভঙ্গী করি’ জ্ঞানমার্গ করিল ব্যাখ্যান ।
+> ক্রোধাবেশে প্রভু তারে কৈল অবজ্ঞান ॥৬৭॥
+
 bhaṅgī kari' jñāna-mārga karila vyākhyāna
 
 krodhāveśe prabhu tāre kaila avajñāna

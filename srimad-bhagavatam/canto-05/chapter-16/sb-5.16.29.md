@@ -1,5 +1,7 @@
 ### SB 5.16.29
 
+> तामनुपरितो लोकपालानामष्टानां यथादिशं यथारूपं तुरीयमानेन पुरोऽष्टावुपकॢप्ताः ॥२९॥
+
 > tām anuparito loka-pālānām aṣṭānāṁ yathā-diśaṁ yathā-rūpaṁ turīya-mānena puro 'ṣṭāv upakḷptāḥ.
 
 *tām*—that great township named Brahmapurī; *anuparitaḥ*—surrounding; *loka-pālānām*—of the governors of the planets; *aṣṭānām*—eight; *yathā-diśam*—according to the directions; *yathā-rūpam*—in exact conformity with the township of Brahmapurī; *turīya-mānena*—by measurement only one fourth; *puraḥ*—townships; *aṣṭau*—eight; *upakḷptāḥ*—situated.

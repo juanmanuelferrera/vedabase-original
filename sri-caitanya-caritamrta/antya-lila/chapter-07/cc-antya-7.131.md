@@ -1,5 +1,8 @@
 ### CC Antya 7.131
 
+> প্রভু কহে, — “তুমি ‘পণ্ডিত’ ‘মহাভাগবত’ ।
+> দুইগুণ যাহাঁ, তাহাঁ নাহি গর্ব-পর্বত ॥১৩১॥
+
 > prabhu kahe—"tumi 'paṇḍita' 'mahā-bhāgavata'
 > dui-guṇa yāhāṅ, tāhāṅ nāhi garva-parvata
 

@@ -1,5 +1,8 @@
 ### SB 1.13.25
 
+> तस्यापि तव देहोऽयं कृपणस्य जिजीविषोः ।
+> परैत्यनिच्छतो जीर्णो जरया वाससी इव ॥२५॥
+
 > tasyāpi tava deho 'yaṁ
 > kṛpaṇasya jijīviṣoḥ
 > paraity anicchato jīrṇo

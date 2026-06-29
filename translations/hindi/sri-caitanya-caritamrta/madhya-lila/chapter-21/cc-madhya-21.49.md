@@ -1,5 +1,10 @@
 ### CC Madhya 21.49
 
+> গোলোকনাম্নি নিজধাম্নি তলে চ তস্য
+> দেবী-মহেশ-হরিধামসু তেষু তেষু ।
+> তে তে প্রভাবনিচয়া বিহিতাশ্চ যেন
+> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥৪৯॥
+
 > goloka-nāmni nija-dhāmni tale ca tasya
 > devī-maheśa-hari-dhāmasu teṣu teṣu
 > te te prabhāva-nicayā vihitāś ca yena

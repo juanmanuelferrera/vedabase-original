@@ -1,5 +1,8 @@
 ### CC Madhya 3.111
 
+> আইসে যায় লোক হর্ষে, নাহি সমাধান ।
+> লোকের সঙ্ঘট্টে দিন হৈল অবসান ॥১১১॥
+
 > āise yāya loka harṣe, nāhi samādhāna
 > lokera saṅghaṭṭe dina haila avasāna
 

@@ -1,5 +1,8 @@
 ### SB 9.3.24
 
+> सोमेन याजयन्वीरं ग्रहं सोमस्य चाग्रहीत
+> असोमपोरप्यश्विनोश्च्यवनः स्वेन तेजसा ॥२४॥
+
 > somena yājayan vīraṁ
 > grahaṁ somasya cāgrahīt
 > asoma-por apy aśvinoś

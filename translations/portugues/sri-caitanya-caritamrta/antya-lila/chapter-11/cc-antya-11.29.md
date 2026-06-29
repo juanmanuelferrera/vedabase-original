@@ -1,5 +1,8 @@
 ### CC Antya 11.29
 
+> স্বতন্ত্র ঈশ্বর তুমি হও ইচ্ছাময় ।
+> জগৎ নাচাও, যারে যৈছে ইচ্ছা হয় ॥২৯॥
+
 svatantra īśvara tumi hao icchāmaya
 
 jagat nācāo, yāre yaiche icchā haya

@@ -1,5 +1,8 @@
 ### SB 3.32.37
 
+> प्रावोचं भक्तियोगस्य स्वरूपं ते चतुर्विधम् ।
+> कालस्य चाव्यक्तगतेर्योऽन्तर्धावति जन्तुषु ॥३७॥
+
 > prāvocaṁ bhakti-yogasya
 > svarūpaṁ te catur-vidham
 > kālasya cāvyakta-gater

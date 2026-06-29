@@ -1,5 +1,7 @@
 ### SB 5.14.22
 
+> कर्हि स्म चित्काममधुलवान्विचिन्वन्यदा परदारपरद्रव्याण्यवरुन्धानो राज्ञआस्वामिभिर्वा निहतः पतत्यपारे निरये ॥२२॥
+
 > karhi sma cit kāma-madhu-lavān vicinvan yadā para-dāra-para-drav-yāṇy avarundhāno rājñā svāmibhir vā nihataḥ pataty apāre niraye.
 
 *karhi sma cit*—sometimes; *kāma-madhu-lavān*—little drops of honeylike sense gratification; *vicinvan*—searching after; *yadā*—when; *para-dāra*—another's wife, or a woman other than his own wife; *para-dravyāṇi*—another's money and possessions; *avarundhānaḥ*—taking as his own property; *rājñā*—by the government; *svāmibhiḥ vā*—or by the husband or relatives of the woman; *nihataḥ*—severely beaten; *patati*—he falls down; *apāre*—into unlimitedly; *niraye*—hellish conditions of life (the government's prison for criminal activities like rape, kidnapping or theft of others' property).

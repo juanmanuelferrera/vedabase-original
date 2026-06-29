@@ -1,5 +1,8 @@
 ### CC Adi 7.128
 
+> ‘প্রণব’ সে মহাবাক্য — বেদের নিদান ।
+> ঈশ্বরস্বরূপ প্রণব সর্ববিশ্ব-ধাম ॥১২৮॥
+
 'praṇava' se mahāvākya--vedera nidāna
 
 īśvara-svarūpa praṇava sarva-viśva-dhāma

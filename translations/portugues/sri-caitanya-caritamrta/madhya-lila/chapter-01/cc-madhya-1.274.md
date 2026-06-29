@@ -1,5 +1,8 @@
 ### CC Madhya 1.274
 
+> বহুদূর হৈতে আইনু হঞা বড় আর্ত ।
+> দরশন দিয়া প্রভু করহ কৃতার্থ ॥২৭৪॥
+
 bahu-dūra haite āinu hañā baḍa ārta
 
 daraśana diyā prabhu karaha kṛtārtha

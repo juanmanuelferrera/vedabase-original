@@ -1,5 +1,8 @@
 ### SB 9.7.3
 
+> गन्धर्वानवधीत्तत्र वध्यान्वै विष्णुशक्तिधृक
+> नागाल्लब्धवरः सर्पादभयं स्मरतामिदम ॥३॥
+
 > gandharvān avadhīt tatra
 > vadhyān vai viṣṇu-śakti-dhṛk
 > nāgāl labdha-varaḥ sarpād

@@ -1,5 +1,8 @@
 ### CC Antya 6.123
 
+> কহিলা, — “চৈতন্য গোসাঞি করিয়াছেন ভোজন ।
+> তাঁর শেষ পাইলে, তোমার খণ্ডিল বন্ধন ।।” ॥ ১২৩ ॥
+
 kahilā,--"caitanya gosāñi kariyāchena bhojana
 
 tāṅra śeṣa pāile, tomāra khaṇḍila bandhana"

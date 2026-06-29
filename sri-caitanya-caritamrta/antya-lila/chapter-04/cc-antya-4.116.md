@@ -1,5 +1,8 @@
 ### CC Antya 4.116
 
+> জ্যৈষ্ঠমাসে প্রভু যমেশ্বর-টোটা আইলা ।
+> ভক্ত-অনুরোধে তাহাঁ ভিক্ষা যে করিলা ॥১১৬॥
+
 > jyaiṣṭha-māse prabhu yameśvara-ṭoṭā āilā
 > bhakta-anurodhe tāhāṅ bhikṣā ye karilā
 

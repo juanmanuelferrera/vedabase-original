@@ -1,5 +1,8 @@
 ### SB 3.13.37
 
+> दीक्षानुजन्मोपसदः शिरोधरं त्वं प्रायणीयोदयनीयदंष्ट्रः ।
+> जिह्वा प्रवर्ग्यस्तव शीर्षकं क्रतोः सत्यावसथ्यं चितयोऽसवो हि ते ॥३७॥
+
 > dīkṣānujanmopasadaḥ śirodharaṁ
 > tvaṁ prāyaṇīyodayanīya-daṁṣṭraḥ
 > jihvā pravargyas tava śīrṣakaṁ kratoḥ

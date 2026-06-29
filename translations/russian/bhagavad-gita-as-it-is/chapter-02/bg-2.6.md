@@ -1,5 +1,10 @@
 ### Bg 2.6
 
+> न चैतद्विद्मः कतरन्नो गरीयो
+> यद्वा जयेम यदि वा नो जयेयुः ।
+> यानेव हत्वा न जिजीविषामस्-
+> तेऽवस्थिताः प्रमुखे धार्तराष्ट्राः ॥६॥
+
 > na caitad vidmaḥ kataran no garīyo
 > yad vā jayema yadi vā no jayeyuḥ
 > yān eva hatvā na jijīviṣāmas

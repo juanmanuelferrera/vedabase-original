@@ -1,5 +1,8 @@
 ### CC Adi 15.20
 
+> গৃহস্থ হইয়া করিব পিতা-মাতার সেবন ।
+> ইহাতেই তুষ্ট হবেন লক্ষ্মী-নারায়ণ ॥২০॥
+
 gṛhastha ha-iyā kariba pitā-mātāra sevana
 ihāte-i tuṣṭa habena lakṣmī-nārāyaṇa
 

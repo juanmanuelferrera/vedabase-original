@@ -1,5 +1,8 @@
 ### CC Antya 9.131
 
+> ভক্তবাৎসল্য এবে প্রকট করিলা ।
+> পূর্বে যেন পঞ্চপাণ্ডবে বিপদে তারিলা ।।” ॥ ১৩১ ॥
+
 bhakta-vātsalya ebe prakaṭa karilā
 
 pūrve yena pañca-pāṇḍave vipade tārilā"

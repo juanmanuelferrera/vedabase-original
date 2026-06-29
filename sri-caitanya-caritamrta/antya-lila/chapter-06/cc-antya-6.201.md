@@ -1,5 +1,8 @@
 ### CC Antya 6.201
 
+> রঘুনাথের ক্ষীণতা-মালিন্য দেখিয়া  ।
+> স্বরূপেরে কহেন প্রভু কৃপার্দ্র-চিত্ত হঞা ॥২০১॥
+
 > raghunāthera kṣīṇatā-mālinya dekhiyā
 > svarūpere kahena prabhu kṛpārdra-citta hañā
 

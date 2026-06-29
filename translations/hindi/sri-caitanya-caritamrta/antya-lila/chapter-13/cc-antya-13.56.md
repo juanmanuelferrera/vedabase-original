@@ -1,5 +1,8 @@
 ### CC Antya 13.56
 
+> “তুমি মহাপ্রভুর হও পার্ষদ-প্রধান  ।
+> তোমা-সম মহাপ্রভুর প্রিয় নাহি আন ॥৫৬॥
+
 > "tumi mahāprabhura hao pārṣada-pradhāna
 > tomā-sama mahāprabhura priya nāhi āna
 

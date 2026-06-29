@@ -1,5 +1,8 @@
 ### CC Madhya 18.143
 
+> বিপ্র কহে, — প্রয়াগে প্রভু লঞা যাই ।
+> গঙ্গাতীর-পথে যাই, তবে সুখ পাই ॥১৪৩॥
+
 vipra kahe,--prayāge prabhu lañā yāi
 
 gaṅgā-tīra-pathe yāi, tabe sukha pāi

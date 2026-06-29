@@ -1,5 +1,8 @@
 ### CC Madhya 15.246
 
+> ভোজন দেখিতে চাহে, আসিতে না পারে  ।
+> লাঠি-হাতে ভট্টাচার্য আছেন দুয়ারে ॥২৪৬॥
+
 bhojana dekhite cāhe, āsite nā pāre
 
 lāṭhī-hāte bhaṭṭācārya āchena duyāre

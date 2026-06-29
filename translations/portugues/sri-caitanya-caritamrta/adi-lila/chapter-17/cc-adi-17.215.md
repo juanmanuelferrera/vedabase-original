@@ -1,5 +1,8 @@
 ### CC Adi 17.215
 
+> হিন্দুর ঈশ্বর বড় যেই নারায়ণ ।
+> সেই তুমি হও, — হেন লয় মোর মন ॥২১৫॥
+
 hindura īśvara baḍa yei nārāyaṇa
 sei tumi hao,--hena laya mora mana
 

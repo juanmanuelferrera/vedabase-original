@@ -1,5 +1,8 @@
 ### CC Madhya 11.157
 
+> প্রভু কহে, — মুরারি, কর দৈন্য সম্বরণ ৷
+> তোমার দৈন্য দেখি’ মোর বিদীর্ণ হয় মন ৷৷ ১৫৭ ৷৷ ॥১৫৭॥
+
 > prabhu kahe,-murāri, kara dainya saṁvaraṇa
 > tomāra dainya dekhi' mora vidīrṇa haya mana
 

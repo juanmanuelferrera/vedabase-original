@@ -1,5 +1,8 @@
 ### SB 1.7.24
 
+> स एव जीवलोकस्य मायामोहितचेतसः ।
+> विधत्से स्वेन वीर्येण श्रेयो धर्मादिलक्षणम् ॥२४॥
+
 > sa eva jīva-lokasya
 > māyā-mohita-cetasaḥ
 > vidhatse svena vīryeṇa

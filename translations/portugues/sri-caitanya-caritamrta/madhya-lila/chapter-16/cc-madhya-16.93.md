@@ -1,5 +1,8 @@
 ### CC Madhya 16.93
 
+> দুঁহে কহে, — এবে বর্ষা চলিতে নারিবা ।
+> বিজয়া-দশমী আইলে অবশ্য চলিবা ॥৯৩॥
+
 duṅhe kahe,--ebe varṣā, calite nāribā
 
 vijayā-daśamī āile avaśya calibā

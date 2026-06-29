@@ -1,5 +1,8 @@
 ### CC Antya 6.59
 
+> ধুতি পরি’ প্রভু যদি পিণ্ডাতে বসিলা ।
+> সাতকুণ্ডী বিপ্র তাঁর আগেতে ধরিলা ॥৫৯॥
+
 dhuti pari' prabhu yadi piṇḍāte vasilā
 
 sāta-kuṇḍī vipra tāṅra āgete dharilā

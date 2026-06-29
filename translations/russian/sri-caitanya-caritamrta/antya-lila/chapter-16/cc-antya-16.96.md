@@ -1,5 +1,8 @@
 ### CC Antya 16.96
 
+> ‘সুকৃতি-লভ্য ফেলা-লব’ — বলেন বারবার ।
+> ঈশ্বর-সেবক পুছে, — ‘কি অর্থ ইহার’ ? ॥ ৯৬ ॥
+
 > 'sukṛti-labhya phelā-lava'—balena bāra-bāra
 > īśvara-sevaka puche,—'ki artha ihāra'?
 

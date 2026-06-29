@@ -1,5 +1,8 @@
 ### CC Madhya 16.21
 
+> সে বৎসর প্রভু দেখিতে সব ঠাকুরাণী ৷
+> চলিলা আচার্য-সঙ্গে অচ্যুত-জননী ॥২১॥
+
 > se vatsara prabhu dekhite saba ṭhākurāṇī
 > calilā ācārya-saṅge acyuta-jananī
 

@@ -1,5 +1,8 @@
 ### CC Adi 3.71
 
+> ‘অঙ্গ’-শব্দে অংশ কহে, সেহো সত্য হয় ।
+> মায়াকার্য নহে — সব চিদানন্দময় ॥৭১॥
+
 > 'aṅga'-śabde aṁśa kahe, seho satya haya
 > māyā-kārya nahe—saba cid-ānanda-maya
 

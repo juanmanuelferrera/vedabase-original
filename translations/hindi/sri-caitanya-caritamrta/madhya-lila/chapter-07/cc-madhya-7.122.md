@@ -1,5 +1,8 @@
 ### CC Madhya 7.122
 
+> ঘরে আনি’ প্রভুর কৈল পাদ প্রক্ষালন ।
+> সেই জল বংশ-সহিত করিল ভক্ষণ ॥১২২॥
+
 > ghare āni' prabhura kaila pāda prakṣālana
 > sei jala vaṁśa-sahita karila bhakṣaṇa
 

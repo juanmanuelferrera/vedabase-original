@@ -1,5 +1,8 @@
 ### CC Madhya 8.281
 
+> আপনে আইলে মোরে করিতে উদ্ধার ।
+> এবে কপট কর, — তোমার কোন ব্যবহার ॥২৮১॥
+
 > āpane āile more karite uddhāra
 > ebe kapaṭa kara,—tomāra kona vyavahāra
 

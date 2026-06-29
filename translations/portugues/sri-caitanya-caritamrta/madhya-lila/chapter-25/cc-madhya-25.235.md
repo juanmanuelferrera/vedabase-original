@@ -1,5 +1,8 @@
 ### CC Madhya 25.235
 
+> সবা সঙ্গে লঞা প্রভু মিশ্র-বাসা আইলা ।
+> সার্বভৌম, পণ্ডিত-গোসাঞি নিমন্ত্রণ কৈলা ॥২৩৫॥
+
 sabā saṅge lañā prabhu miśra-vāsā āilā
 
 sārvabhauma, paṇḍita-gosāñi nimantraṇa kailā

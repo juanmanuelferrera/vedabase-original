@@ -1,5 +1,8 @@
 ### CC Antya 1.222
 
+> এই ত’ কহিলাঙ পুনঃ রূপের মিলন ।
+> ইহা যেই শুনে, পায় চৈতন্যচরণ ॥২২২॥
+
 ei ta' kahilāṅa punaḥ rūpera milana
 
 ihā yei śune, pāya caitanya-caraṇa

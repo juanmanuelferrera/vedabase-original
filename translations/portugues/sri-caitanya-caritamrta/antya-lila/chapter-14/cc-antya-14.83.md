@@ -1,5 +1,8 @@
 ### CC Antya 14.83
 
+> রঘুনাথ-দাসের সদা প্রভুসঙ্গে স্থিতি ।
+> তাঁর মুখে শুনি’ লিখি করিয়া প্রতীতি ॥৮৩॥
+
 raghunātha-dāsera sadā prabhu-saṅge sthiti
 
 tāṅra mukhe śuni' likhi kariyā pratīti

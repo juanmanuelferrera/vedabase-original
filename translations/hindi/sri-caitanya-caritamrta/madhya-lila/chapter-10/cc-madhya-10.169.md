@@ -1,5 +1,8 @@
 ### CC Madhya 10.169
 
+> চর্ম ঘুচাঞা কৈল আমারে শোধন ।
+> দোঁহার ব্যাপ্য-ব্যাপকত্বে এই ত’ কারণ ॥১৬৯॥
+
 > carma ghucāñā kaila āmāre śodhana
 > doṅhāra vyāpya-vyāpakatve ei ta' kāraṇa
 

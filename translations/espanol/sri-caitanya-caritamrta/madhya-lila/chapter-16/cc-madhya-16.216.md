@@ -1,5 +1,8 @@
 ### CC Madhya 16.216
 
+> পুনরপি প্রভু যদি ‘শান্তিপুর’ আইলা ।
+> রঘুনাথ-দাস আসি’ প্রভুরে মিলিলা ॥২১৬॥
+
 > punarapi prabhu yadi 'śāntipura' āilā
 > raghunātha-dāsa āsi' prabhure mililā
 

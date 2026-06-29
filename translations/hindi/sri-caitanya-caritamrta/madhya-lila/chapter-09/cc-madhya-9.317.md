@@ -1,5 +1,8 @@
 ### CC Madhya 9.317
 
+> নাসিকে ত্র্যম্বক দেখি’ গেলা ব্রহ্মগিরি ।
+> কুশাবর্তে আইলা যাহাঁ জন্মিলা গোদাবরী ॥৩১৭॥
+
 > nāsike tryambaka dekhi' gelā brahmagiri
 > kuśāvarte āilā yāhāṅ janmilā godāvarī
 

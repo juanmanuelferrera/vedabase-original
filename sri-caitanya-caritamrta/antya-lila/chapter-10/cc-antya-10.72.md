@@ -1,5 +1,8 @@
 ### CC Antya 10.72
 
+> সঘন পুলক, — যেন শিমুলের তরু ।
+> কভু প্রফুল্লিত অঙ্গ, কভু হয় সরু ॥৭২॥
+
 > saghana pulaka,—yena śimulera taru
 > kabhu praphullita aṅga, kabhu haya saru
 

@@ -1,5 +1,8 @@
 ### CC Madhya 1.22
 
+> অষ্টাদশবর্ষ কেবল নীলাচলে স্থিতি ।
+> আপনি আচরি’ জীবে শিখাইলা ভক্তি ॥২২॥
+
 > aṣṭādaśa-varṣa kevala nīlācale sthiti
 > āpani ācari' jīve śikhāilā bhakti
 

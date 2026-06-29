@@ -1,5 +1,8 @@
 ### CC Adi 17.186
 
+> এত কহি’ সিংহ গেল, আমার হৈল ভয় ।
+> এই দেখ, নখচিহ্ন আমার হৃদয় ॥১৮৬॥
+
 eta kahi' siṁha gela, āmāra haila bhaya
 ei dekha, nakha-cihna amora hṛdaya
 

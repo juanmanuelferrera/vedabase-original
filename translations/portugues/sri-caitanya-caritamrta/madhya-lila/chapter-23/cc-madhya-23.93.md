@@ -1,5 +1,8 @@
 ### CC Madhya 23.93
 
+> এইমত দাস্যে দাস, সখ্যে সখাগণ ।
+> বাৎসল্যে মাতা পিতা আশ্রয়ালম্বন ॥৯৩॥
+
 ei-mata dāsye dāsa, sakhye sakhā-gaṇa
 
 vātsalye mātā pitā āśrayālambana

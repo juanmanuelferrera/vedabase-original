@@ -1,5 +1,8 @@
 ### CC Adi 7.142
 
+> সেই সর্ববেদের ‘অভিধেয়’ নাম ।
+> সাধনভক্তি হৈতে হয় প্রেমের উদ্গম ॥১৪২॥
+
 sei sarva-vedera 'abhidheya' nāma
 
 sādhana-bhakti haite haya premera udgama

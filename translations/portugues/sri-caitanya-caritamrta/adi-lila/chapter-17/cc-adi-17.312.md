@@ -1,5 +1,8 @@
 ### CC Adi 17.312
 
+> দেখি গ্রন্থে ভাগবতে ব্যাসের আচার ।
+> কথা কহি’ অনুবাদ করে বার বার ॥৩১২॥
+
 dekhi granthe bhāgavate vyāsera ācāra
 kathā kahi' anuvāda kare vāra vāra
 

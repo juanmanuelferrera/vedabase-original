@@ -1,5 +1,8 @@
 ### CC Antya 5.68
 
+> ঘরে গিয়া মিশ্র কৈল স্নান, ভোজন ।
+> সন্ধ্যাকালে দেখিতে আইল প্রভুর চরণ ॥৬৮॥
+
 > ghare giyā miśra kaila snāna, bhojana
 > sandhyā-kāle dekhite āila prabhura caraṇa
 

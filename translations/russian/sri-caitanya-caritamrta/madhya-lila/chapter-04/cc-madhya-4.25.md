@@ -1,5 +1,8 @@
 ### CC Madhya 4.25
 
+> পুরী, এই দুগ্ধ লঞা কর তুমি পান ।
+> মাগি’ কেনে নাহি খাও, কিবা কর ধ্যান ॥২৫॥
+
 > purī, ei dugdha lañā kara tumi pāna
 > māgi' kene nāhi khāo, kibā kara dhyāna
 

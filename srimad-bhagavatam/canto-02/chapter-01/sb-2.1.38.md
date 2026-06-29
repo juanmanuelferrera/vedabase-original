@@ -1,5 +1,8 @@
 ### SB 2.1.38
 
+> इयानसावीश्वरविग्रहस्य यः सन्निवेशः कथितो मया ते ।
+> सन्धार्यतेऽस्मिन्वपुषि स्थविष्ठे मनः स्वबुद्ध्या न यतोऽस्ति किञ्चित् ॥३८॥
+
 > iyān asāv īśvara-vigrahasya
 > yaḥ sanniveśaḥ kathito mayā te
 > sandhāryate 'smin vapuṣi sthaviṣṭhe

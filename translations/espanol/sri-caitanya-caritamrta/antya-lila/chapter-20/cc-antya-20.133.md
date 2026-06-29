@@ -1,5 +1,8 @@
 ### CC Antya 20.133
 
+> ভাব-শাবল্যে পুনঃ কৈলা প্রলপন ।
+> কর্ণামৃত-শ্লোকের অর্থ কৈলা বিবরণ ॥১৩৩॥
+
 > bhāva-śābalye punaḥ kailā pralapana
 > karṇāmṛta-ślokera artha kailā vivaraṇa
 

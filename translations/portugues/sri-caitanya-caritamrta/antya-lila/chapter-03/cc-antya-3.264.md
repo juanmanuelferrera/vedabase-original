@@ -1,5 +1,8 @@
 ### CC Antya 3.264
 
+> লক্ষ্মী-আদি করি’ কৃষ্ণপ্রেমে লুব্ধ হঞা ।
+> নাম-প্রেম আস্বাদিলা মনুষ্যে জন্মিয়া ॥২৬৪॥
+
 lakṣmī-ādi kari' kṛṣṇa-preme lubdha hañā
 
 nāma-prema āsvādilā manuṣye janmiyā

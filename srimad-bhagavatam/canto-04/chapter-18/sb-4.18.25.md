@@ -1,5 +1,8 @@
 ### SB 4.18.25
 
+> वटवत्सा वनस्पतयः पृथग्रसमयं पयः ।
+> गिरयो हिमवद्वत्सा नानाधातून्स्वसानुषु ॥२५॥
+
 > vaṭa-vatsā vanaspatayaḥ
 > pṛthag rasamayaṁ payaḥ
 > girayo himavad-vatsā

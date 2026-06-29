@@ -1,5 +1,8 @@
 ### CC Madhya 4.61
 
+> পঞ্চগব্য, পঞ্চামৃতে স্নান করাঞা ।
+> মহাস্নান করাইল শত ঘট দিঞা ॥৬১॥
+
 > pañca-gavya, pañcāmṛte snāna karāñā
 > mahā-snāna karāila śata ghaṭa diñā
 

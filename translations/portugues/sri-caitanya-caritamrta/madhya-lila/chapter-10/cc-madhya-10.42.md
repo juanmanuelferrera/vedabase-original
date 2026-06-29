@@ -1,5 +1,8 @@
 ### CC Madhya 10.42
 
+> কৃষ্ণদাস-নাম এই সুবর্ণ-বেত্রধারী ৷
+> শিখি মাহাতি-নাম এই লিখনাধিকারী ৷৷ ৪২ ৷৷ ॥৪২॥
+
 kṛṣṇadāsa-nāma ei suvarṇa-vetra-dhārī
 śikhi māhāti-nāma ei likhanādhikārī
 

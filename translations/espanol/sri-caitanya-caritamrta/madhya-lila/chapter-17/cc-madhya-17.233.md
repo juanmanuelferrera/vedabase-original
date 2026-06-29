@@ -1,5 +1,8 @@
 ### CC Madhya 17.233
 
+> জগৎ ভাসিল চৈতন্যলীলার পাথারে ।
+> যাঁর যত শক্তি তত পাথারে সাঁতারে ॥২৩৩॥
+
 > jagat bhāsila caitanya-līlāra pāthāre
 > yāṅra yata śakti tata pāthāre sāṅtāre
 

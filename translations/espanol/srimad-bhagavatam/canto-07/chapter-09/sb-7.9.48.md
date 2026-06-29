@@ -1,5 +1,10 @@
 ### SB 7.9.48
 
+> त्वं वायुरग्निरवनिर्वियदम्बु मात्राः
+> प्राणेन्द्रियाणि हृदयं चिदनुग्रहश्च
+> सर्वं त्वमेव सगुणो विगुणश्च भूमन
+> नान्यत्त्वदस्त्यपि मनोवचसा निरुक्तम ॥४८॥
+
 > tvaṁ vāyur agnir avanir viyad ambu mātrāḥ
 > prāṇendriyāṇi hṛdayaṁ cid anugrahaś ca
 > sarvaṁ tvam eva saguṇo viguṇaś ca bhūman

@@ -1,5 +1,8 @@
 ### CC Madhya 9.175
 
+> শিব-দুর্গা রহে তাহাঁ ব্রাহ্মণের বেশে ৷
+> মহাপ্রভু দেখি’ দোঁহার হইল উল্লাসে ৷৷ ১৭৫ ৷৷ ॥১৭৫॥
+
 śiva-durgā rahe tāhāṅ brāhmaṇera veśe
 mahāprabhu dekhi' doṅhāra ha-ila ullāse
 

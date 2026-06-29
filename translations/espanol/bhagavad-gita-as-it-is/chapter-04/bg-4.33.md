@@ -1,5 +1,8 @@
 ### Bg 4.33
 
+> श्रेयान्द्रव्यमयाद्यज्ञाज्ज्ञानयज्ञः परन्तप ।
+> सर्वं कर्माखिलं पार्थ ज्ञाने परिसमाप्यते ॥३३॥
+
 > śreyān dravyamayād yajñāj
 > jñāna-yajñaḥ parantapa
 > sarvaṁ karmākhilaṁ pārtha

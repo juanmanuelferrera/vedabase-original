@@ -1,5 +1,7 @@
 ### SB 5.24.20
 
+> यस्य ह वाव क्षुतपतनप्रस्खलनादिषु विवशः सकृन्नामाभिगृणन्पुरुषः कर्मबन्धनमञ्जसा विधुनोति यस्य हैव प्रतिबाधनं मुमुक्षवोऽन्यथैवोपलभन्ते ॥२०॥
+
 > yasya ha vāva kṣuta-patana-praskhalanādiṣu vivaśaḥ sakṛn nāmābhigṛṇan puruṣaḥ karma-bandhanam añjasā vidhunoti yasya haiva pratibādhanaṁ mumukṣavo 'nyathaivopalabhante.
 
 *yasya*—de quien; *ha vāva*—en verdad; *kṣuta*—cuando está hambrienta; *patana*—cayendo; *praskhalana-ādiṣu*—tropezando, etc.; *vivaśaḥ*—desamparada; *sakṛt*—una vez; *nāma abhigṛṇan*—cantar el santo nombre del Señor; *puruṣaḥ*—una persona; *karma-bandhanam*—el cautiverio de la actividad fruitiva; *añjasā*—por completo; *vidhunoti*—elimina; *yasya*—del cual; *ha*—ciertamente; *eva*—de este modo; *pratibādhanam*—la repulsión; *mumukṣavaḥ*—personas que desean la liberación; *anyathā*—de otro modo; *eva*—ciertamente; *upalabhante*—tratan de comprender.

@@ -1,5 +1,8 @@
 ### CC Madhya 16.86
 
+> পঞ্চম বৎসরে গৌড়ের ভক্তগণ আইলা ।
+> রথ দেখি’ না রহিলা, গৌড়েরে চলিলা ॥৮৬॥
+
 > pañcama vatsare gauḍera bhakta-gaṇa āilā
 > ratha dekhi' nā rahilā, gauḍere calilā
 

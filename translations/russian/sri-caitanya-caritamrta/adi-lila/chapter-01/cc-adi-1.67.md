@@ -1,5 +1,8 @@
 ### CC Adi 1.67
 
+> ব্রহ্মা, বিষ্ণু, শিব — তিন গুণাবতারে গণি ।
+> শক্ত্যাবেশ — সনকাদি, পৃথু, ব্যাসমুনি ॥৬৭॥
+
 > brahmā viṣṇu śiva—tina guṇāvatāre gaṇi
 > śakty-āveśa—sanakādi, pṛthu, vyāsa-muni
 

@@ -1,5 +1,8 @@
 ### SB 9.11.15
 
+> मुनौ निक्षिप्य तनयौ सीता भर्त्रा विवासिता
+> ध्यायन्ती रामचरणौ विवरं प्रविवेश ह ॥१५॥
+
 > munau nikṣipya tanayau
 > sītā bhartrā vivāsitā
 > dhyāyantī rāma-caraṇau

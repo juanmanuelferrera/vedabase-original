@@ -1,5 +1,8 @@
 ### CC Adi 12.52
 
+> লোকলজ্জা হয়, ধর্ম-কীর্তি হয় হানি ।
+> ঐছে কর্ম না করিহ কভু ইহা জানি’ ॥৫২॥
+
 loka-lajjā haya, dharma-kīrti haya hāni
 aiche karma nā kariha kabhu ihā jāni'
 

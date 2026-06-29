@@ -1,5 +1,10 @@
 ### CC Madhya 23.16
 
+> সতাং প্রসঙ্গান্মম বীর্যসংবিদো
+> ভবন্তি হৃৎকর্ণরসায়নাঃ কথাঃ ।
+> তজ্জোষণাদাশ্বপবর্গবর্ত্মনি
+> শ্রদ্ধা রতির্ভক্তিরনুক্রমিষ্যতি ॥১৬॥
+
 > satāṁ prasaṅgān mama vīrya-saṁvido
 > bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ
 > taj-joṣaṇād āśv apavarga-vartmani

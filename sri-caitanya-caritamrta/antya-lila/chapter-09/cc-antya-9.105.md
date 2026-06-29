@@ -1,5 +1,8 @@
 ### CC Antya 9.105
 
+> রাজা কহে, — “সব কৌড়ি তোমারে ছাড়িলুঁ ।
+> সেই মালজাঠ্যা দণ্ড পাট তোমারে ত’ দিলুঁ ॥১০৫॥
+
 > rājā kahe,—"saba kauḍi tomāre chāḍiluṅ
 > sei mālajāṭhyā daṇḍa pāṭa tomāre ta' diluṅ
 

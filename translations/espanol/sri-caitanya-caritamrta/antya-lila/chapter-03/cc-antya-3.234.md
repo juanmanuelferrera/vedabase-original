@@ -1,5 +1,8 @@
 ### CC Antya 3.234
 
+> আসিয়া তুলসীরে সেই কৈলা নমস্কার ।
+> তুলসী পরিক্রমা করি’ গেলা গোঁফা-দ্বার ॥২৩৪॥
+
 > āsiyā tulasīre sei kailā namaskāra
 > tulasī parikramā kari' gelā goṅphā-dvāra
 

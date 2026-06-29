@@ -1,5 +1,8 @@
 ### CC Antya 7.95
 
+> সঙ্কটে পড়িল পণ্ডিত, করয়ে সংশয় ।
+> কি করিবেন, — একো, করিতে না পারে নিশ্চয় ॥৯৫॥
+
 saṅkaṭe paḍila paṇḍita, karaye saṁśaya
 
 ki karibena,--eko, karite nā pāre niścaya

@@ -1,5 +1,10 @@
 ### SB 3.9.13
 
+> पुंसामतो विविधकर्मभिरध्वराद्यैर्
+> दानेन चोग्रतपसा परिचर्यया च ।
+> आराधनं भगवतस्तव सत्क्रियार्थो
+> धर्मोऽर्पितः कर्हिचिद्म्रियते न यत्र ॥१३॥
+
 > puṁsām ato vividha-karmabhir adhvarādyair
 > dānena cogra-tapasā paricaryayā ca
 > ārādhanaṁ bhagavatas tava sat-kriyārtho

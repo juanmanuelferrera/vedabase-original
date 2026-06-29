@@ -1,5 +1,8 @@
 ### SB 7.15.63
 
+> कार्यकारणवस्त्वैक्य दर्शनं पटतन्तुवत
+> अवस्तुत्वाद्विकल्पस्य भावाद्वैतं तदुच्यते ॥६३॥
+
 > kārya-kāraṇa-vastv-aikya-
 > darśanaṁ paṭa-tantuvat
 > avastutvād vikalpasya

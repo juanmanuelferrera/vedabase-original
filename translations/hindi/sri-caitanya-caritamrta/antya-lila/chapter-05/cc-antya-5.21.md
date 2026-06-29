@@ -1,5 +1,8 @@
 ### CC Antya 5.21
 
+> মহাপ্রভুর ভক্তগণের দুর্গম মহিমা ।
+> তাহে রামানন্দের ভাবভক্তি-প্রেম-সীমা ॥২১॥
+
 > mahāprabhura bhakta-gaṇera durgama mahimā
 > tāhe rāmānandera bhāva-bhakti-prema-sīmā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 4.157
 
+> সেই রাত্রে দেবালয়ে করিল শয়ন ।
+> শেষরাত্রি হৈলে পুরী দেখিল স্বপন ॥১৫৭॥
+
 sei rātre devālaye karila śayana
 śeṣa-rātri haile purī dekhila svapana
 

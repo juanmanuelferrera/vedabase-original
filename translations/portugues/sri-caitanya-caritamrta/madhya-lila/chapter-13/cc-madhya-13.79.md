@@ -1,5 +1,10 @@
 ### CC Madhya 13.79
 
+> জয়তি জননিবাসো দেবকীজন্মবাদো
+> যদুবরপরিষৎ স্বৈর্দোর্ভিরস্যন্নধর্মম্ ।
+> স্থিরচরবৃজিনঘ্নঃ সুস্মিত-শ্রীমুখেন
+> ব্রজপুরবনিতানাং বর্ধয়ন্ কামদেবম্ ॥৭৯॥
+
 jayati jana-nivāso devakī-janma-vādo
 
 yadu-vara-pariṣat svair dorbhir asyann adharmam

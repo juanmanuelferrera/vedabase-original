@@ -1,5 +1,8 @@
 ### CC Adi 7.38
 
+> সবা নিস্তারিতে প্রভু কৃপা-অবতার ।
+> সবা নিস্তারিতে করে চাতুরী অপার ॥৩৮॥
+
 > sabā nistārite prabhu kṛpā-avatāra
 > sabā nistārite kare cāturī apāra
 

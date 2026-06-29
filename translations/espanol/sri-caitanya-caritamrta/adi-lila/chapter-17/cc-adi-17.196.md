@@ -1,5 +1,8 @@
 ### CC Adi 17.196
 
+> তবে সেই যবনেরে আমি ত’ পুছিল ।
+> হিন্দু ‘হরি’ বলে, তার স্বভাব জানিল ॥১৯৬॥
+
 > tabe sei yavanere āmi ta' puchila
 > hindu 'hari' bale, tāra svabhāva jānila
 

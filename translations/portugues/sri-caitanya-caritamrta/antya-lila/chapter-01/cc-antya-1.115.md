@@ -1,5 +1,8 @@
 ### CC Antya 1.115
 
+> রায়, ভট্টাচার্য বলে, — “তোমার প্রসাদ বিনে ।
+> তোমার হৃদয় এই জানিল কেমনে ॥১১৫॥
+
 rāya, bhaṭṭācārya bale,--"tomāra prasāda vine
 
 tomāra hṛdaya ei jānila kemane

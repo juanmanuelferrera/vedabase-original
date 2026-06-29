@@ -1,5 +1,8 @@
 ### CC Madhya 6.181
 
+> স্বাগমৈঃ কল্পিতৈস্ত্বঞ্চ জনান্ মদ্বিমুখান্ কুরু ।
+> মাঞ্চ গোপয় যেন স্যাত্ সৃষ্টিরেষোত্তরোত্তরা ॥১৮১॥
+
 svāgamaiḥ kalpitais tvaṁ ca
 janān mad-vimukhān kuru
 māṁ ca gopaya yena syāt

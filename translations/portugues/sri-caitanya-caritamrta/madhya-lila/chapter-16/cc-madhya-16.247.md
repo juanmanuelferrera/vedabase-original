@@ -1,5 +1,8 @@
 ### CC Madhya 16.247
 
+> সবার সহিত ইহাঁ আমার হইল মিলন ।
+> এ বর্ষ ‘নীলাদ্রি’ কেহ না করিহ গমন ॥২৪৭॥
+
 sabāra sahita ihāṅ āmāra ha-ila milana
 
 e varṣa 'nīlādri' keha nā kariha gamana

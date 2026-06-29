@@ -1,5 +1,8 @@
 ### CC Antya 17.10
 
+> আচম্বিতে শুনেন প্রভু কৃষ্ণবেণু-গান ।
+> ভাবাবেশে প্রভু তাহাঁ করিলা প্রয়াণ ॥১০॥
+
 > ācambite śunena prabhu kṛṣṇa-veṇu-gāna
 > bhāvāveśe prabhu tāhāṅ karilā prayāṇa
 

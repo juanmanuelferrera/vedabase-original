@@ -1,5 +1,8 @@
 ### CC Madhya 9.4
 
+> সেই সব তীর্থ স্পর্শি’ মহাতীর্থ কৈল ৷
+> সেই ছলে সেই দেশের লোক নিস্তারিল ৷৷ ৪ ৷৷ ॥৪॥
+
 > sei saba tīrtha sparśi' mahā-tīrtha kaila
 > sei chale sei deśera loka nistārila
 

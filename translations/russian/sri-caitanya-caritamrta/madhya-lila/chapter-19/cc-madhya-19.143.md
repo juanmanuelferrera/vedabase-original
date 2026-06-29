@@ -1,5 +1,10 @@
 ### CC Madhya 19.143
 
+> অপরিমিতা ধ্রুবাস্তনুভৃতো যদি সর্বগতা-
+> স্তর্হি ন শাস্যতেতি নিয়মো ধ্রুব নেতরথা ।
+> অজনি চ যন্ময়ং তদবিমুচ্য নিয়ন্তৃ ভবেত্
+> সমমনুজানতাং যদমতং মতদুষ্টতয়া ॥১৪৩॥
+
 > aparimitā dhruvās tanu-bhṛto yadi sarva-gatās
 > tarhi na śāsyateti niyamo dhruva netarathā
 > ajani ca yan-mayaṁ tad avimucya niyantṛ bhavet

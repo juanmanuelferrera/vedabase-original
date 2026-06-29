@@ -1,5 +1,8 @@
 ### SB 4.3.3
 
+> इष्ट्वा स वाजपेयेन ब्रह्मिष्ठानभिभूय च ।
+> बृहस्पतिसवं नाम समारेभे क्रतूत्तमम् ॥३॥
+
 > iṣṭvā sa vājapeyena
 > brahmiṣṭhān abhibhūya ca
 > bṛhaspati-savaṁ nāma

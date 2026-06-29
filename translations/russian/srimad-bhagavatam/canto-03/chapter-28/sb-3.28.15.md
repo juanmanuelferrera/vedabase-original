@@ -1,5 +1,8 @@
 ### SB 3.28.15
 
+> मत्तद्विरेफकलया परीतं वनमालया ।
+> परार्ध्यहारवलय किरीटाङ्गदनूपुरम् ॥१५॥
+
 > matta-dvirepha-kalayā
 > parītaṁ vana-mālayā
 > parārdhya-hāra-valaya-

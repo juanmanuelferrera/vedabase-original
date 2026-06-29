@@ -1,5 +1,8 @@
 ### CC Adi 1.61
 
+> ঈশ্বরস্বরূপ ভক্ত তাঁর অধিষ্ঠান ।
+> ভক্তের হৃদয়ে কৃষ্ণের সতত বিশ্রাম ॥৬১॥
+
 > īśvara-svarūpa bhakta tāṅra adhiṣṭhāna
 > bhaktera hṛdaye kṛṣṇera satata viśrāma
 

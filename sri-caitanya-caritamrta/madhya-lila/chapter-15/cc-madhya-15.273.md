@@ -1,5 +1,8 @@
 ### CC Madhya 15.273
 
+> শুনি’ কৃপাময় প্রভু আইলা ধাঞা  ।
+> অমোঘেরে কহে তার বুকে হস্ত দিয়া ॥২৭৩॥
+
 > śuni' kṛpāmaya prabhu āilā dhāñā
 > amoghere kahe tāra buke hasta diyā
 

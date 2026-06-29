@@ -1,5 +1,8 @@
 ### SB 1.8.42
 
+> त्वयि मेऽनन्यविषया मतिर्मधुपतेऽसकृत् ।
+> रतिमुद्वहतादद्धा गङ्गेवौघमुदन्वति ॥४२॥
+
 > tvayi me 'nanya-viṣayā
 > matir madhu-pate 'sakṛt
 > ratim udvahatād addhā

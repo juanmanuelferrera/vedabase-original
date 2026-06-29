@@ -1,5 +1,8 @@
 ### CC Madhya 4.162
 
+> এত বলি’ গোপাল গেল, গোসাঞি জাগিলা ।
+> গোপীনাথের সেবকগণে ডাকিয়া আনিলা ॥১৬২॥
+
 eta bali' gopāla gela, gosāñi jāgilā
 gopīnāthera sevaka-gaṇe ḍākiyā ānilā
 

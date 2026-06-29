@@ -1,5 +1,8 @@
 ### CC Madhya 14.202
 
+> অনন্ত কৃষ্ণের লীলা না যায় বর্ণন ।
+> আপনে বর্ণেন যদি ‘সহস্রবদন’ ॥২০২॥
+
 > ananta kṛṣṇera līlā nā yāya varṇana
 > āpane varṇena yadi 'sahasra-vadana'
 

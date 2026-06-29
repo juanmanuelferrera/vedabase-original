@@ -1,5 +1,8 @@
 ### CC Madhya 10.59
 
+> দিন-পাঁচ-সাত ভিতরে আসিবে রামানন্দ ।
+> তাঁর সঙ্গে পূর্ণ হবে আমার আনন্দ ॥৫৯॥
+
 > dina-pāṅca-sāta bhitare āsibe rāmānanda
 > tāṅra saṅge pūrṇa habe āmāra ānanda
 

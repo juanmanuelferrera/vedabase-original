@@ -1,5 +1,8 @@
 ### CC Adi 3.100
 
+> নাম বিনু কলিকালে ধর্ম নাহি আর ।
+> কলিকালে কৈছে হবে কৃষ্ণ অবতার ॥১০০॥
+
 > nāma vinu kali-kāle dharma nāhi āra
 > kali-kāle kaiche habe kṛṣṇa avatāra
 

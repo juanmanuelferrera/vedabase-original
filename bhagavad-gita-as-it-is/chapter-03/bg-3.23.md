@@ -1,5 +1,8 @@
 ### Bg 3.23
 
+> यदि ह्यहं न वर्तेयं जातु कर्मण्यतन्द्रितः ।
+> मम वर्त्मानुवर्तन्ते मनुष्याः पार्थ सर्वशः ॥२३॥
+
 > yadi hy ahaṁ na varteyaṁ
 > jātu karmaṇy atandritaḥ
 > mama vartmānuvartante

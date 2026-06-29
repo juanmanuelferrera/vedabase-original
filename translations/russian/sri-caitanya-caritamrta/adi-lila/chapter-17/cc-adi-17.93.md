@@ -1,5 +1,8 @@
 ### CC Adi 17.93
 
+> নৃসিংহ-আবেশ দেখি’ মহাতেজোময় ।
+> পথ ছাড়ি’ ভাগে লোক পাঞা বড় ভয় ॥৯৩॥
+
 > nṛsīṁha-āveśa dekhi' mahā-tejomaya
 > patha chāḍi' bhāge loka pāñā baḍa bhaya
 

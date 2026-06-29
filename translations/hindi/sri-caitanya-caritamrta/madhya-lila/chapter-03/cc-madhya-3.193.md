@@ -1,5 +1,8 @@
 ### CC Madhya 3.193
 
+> সবা বিদায় দিয়া প্রভু চলিতে কৈল মন ।
+> হরিদাস কান্দি’ কহে করুণ বচন ॥১৯৩॥
+
 > sabā vidāya diyā prabhu calite kaila mana
 > haridāsa kāndi' kahe karuṇa vacana
 

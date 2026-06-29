@@ -1,5 +1,8 @@
 ### CC Madhya 13.15
 
+> তবে প্ৰতাপরুদ্র করে আপনে সেবন ।
+> সুবর্ণ-মার্জনী লঞা করে পথ সম্মার্জন ॥১৫॥
+
 tabe pratāparudra kare āpane sevana
 suvarṇa-mārjanī lañā kare patha sammārjana
 

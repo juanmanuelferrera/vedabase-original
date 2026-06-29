@@ -1,5 +1,8 @@
 ### SB 8.7.8
 
+> ते सुनिर्विण्णमनसः परिम्लानमुखश्रियः
+> आसन्स्वपौरुषे नष्टे दैवेनातिबलीयसा ॥८॥
+
 *vilokya vighneśa*-vidhiṁ tadeśvaro
 
 *duranta*-vīryo 'vitathābhisandhiḥ

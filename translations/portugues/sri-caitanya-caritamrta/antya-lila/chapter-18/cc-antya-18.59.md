@@ -1,5 +1,8 @@
 ### CC Antya 18.59
 
+> ওথা না যাইহ, আমি নিষেধি তোমারে ।
+> তাহাঁ গেলে সেই ভূত লাগিবে সবারে ।।” ॥ ৫৯ ॥
+
 othā nā yāiha, āmi niṣedhi tomāre
 
 tāhāṅ gele sei bhūta lāgibe sabāre"

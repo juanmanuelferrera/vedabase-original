@@ -1,5 +1,8 @@
 ### CC Madhya 9.318
 
+> সপ্ত গোদাবরী আইলা করি’ তীর্থ বহুতর ৷
+> পুনরপি আইলা প্রভু বিদ্যানগর ৷৷ ৩১৮ ৷৷ ॥৩১৮॥
+
 sapta godāvarī āilā kari' tīrtha bahutara
 punarapi āilā prabhu vidyānagara
 

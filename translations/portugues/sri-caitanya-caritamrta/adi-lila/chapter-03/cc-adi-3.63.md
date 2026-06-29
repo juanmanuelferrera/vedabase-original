@@ -1,5 +1,10 @@
 ### CC Adi 3.63
 
+> স্মিতালোকঃ শোকং হরতি জগতাং যস্য পরিতো
+> গিরান্তু প্রারম্ভঃ কুশলপটলীং পল্লবয়তি ।
+> পদালম্ভঃ কং বা প্রণয়তি ন হি প্রেমনিবহং
+> স দেবশ্চৈতন্যাকৃতিরতিতরাং নঃ কৃপয়তু ॥৬৩॥
+
 smitālokaḥ śokaṁ harati jagatāṁ yasya parito
 girāṁ tu prārambhaḥ kuśala-paṭalīṁ pallavayati
 padālambhaḥ kaṁ vā praṇayati na hi prema-nivahaṁ

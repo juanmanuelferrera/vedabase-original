@@ -1,5 +1,8 @@
 ### CC Madhya 9.176
 
+> তিন দিন ভিক্ষা দিল করি’ নিমন্ত্রণ ।
+> নিভৃতে বসি’ গুপ্তবার্তা কহে দুই জন ॥১৭৬॥
+
 > tina dina bhikṣā dila kari' nimantraṇa
 > nibhṛte vasi' gupta-vārtā kahe dui jana
 

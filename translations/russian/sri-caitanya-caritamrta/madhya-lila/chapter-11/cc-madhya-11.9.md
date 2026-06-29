@@ -1,5 +1,8 @@
 ### CC Madhya 11.9
 
+> সার্বভৌম কহে, — সত্য তোমার বচন ।
+> জগন্নাথ-সেবক রাজা কিন্তু ভক্তোত্তম ॥৯॥
+
 > sārvabhauma kahe,-satya tomāra vacana
 > jagannātha-sevaka rājā kintu bhaktottama
 

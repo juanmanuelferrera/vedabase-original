@@ -1,5 +1,10 @@
 ### CC Madhya 8.144
 
+> বিশ্বেষামনুরঞ্জনেন জনয়ন্নানন্দমিন্দীবর-
+> শ্রেণীশ্যামলকোমলৈরুপনয়ন্নঙ্গৈরনঙ্গোৎসবম্ ৷
+> স্বচ্ছন্দং ব্রজসুন্দরীভিরভিতঃ প্রত্যঙ্গমালিঙ্গিতঃ
+> শৃঙ্গারঃ সখি মূর্তিমানিব মধৌ মুগ্ধো হরিঃ ক্রীড়তি ৷৷ ১৪৪ ৷৷ ॥১৪৪॥
+
 viśveṣām anurañjanena janayann ānandam indīvara-
 śreṇī-śyāmala-komalair upanayann aṅgair anaṅgotsavam
 svacchandaṁ vraja-sundarībhir abhitaḥ praty-aṅgam āliṅgitaḥ

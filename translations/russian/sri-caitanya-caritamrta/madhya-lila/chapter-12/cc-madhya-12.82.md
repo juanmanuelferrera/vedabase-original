@@ -1,5 +1,8 @@
 ### CC Madhya 12.82
 
+> ভিতর মন্দির উপর, — সকল মাজিল ।
+> সিংহাসন মাজি’ পুনঃ স্থাপন করিল ॥৮২॥
+
 > bhitara mandira upara,-sakala mājila
 > siṁhāsana māji' punaḥ sthāpana karila
 

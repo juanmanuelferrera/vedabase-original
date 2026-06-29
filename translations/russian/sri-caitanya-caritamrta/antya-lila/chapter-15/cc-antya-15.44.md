@@ -1,5 +1,10 @@
 ### CC Antya 15.44
 
+> অপ্যেণ-পত্ন্যুপগতঃ প্রিয়য়েহ গাত্রৈ-
+> স্তন্বন্ দৃশাং সখি সুনির্বৃতিমচ্যুতো বঃ ।
+> কান্তাঙ্গসঙ্গকুচকুঙ্কুম-রঞ্জিতায়াঃ
+> কুন্দস্রজঃ কুলপতেরিহ বাতি গন্ধঃ ॥৪৪॥
+
 > apy eṇa-patny upagataḥ priyayeha gātrais
 > tanvan dṛśāṁ sakhi sunirvṛtim acyuto vaḥ
 > kāntāṅga-saṅga-kuca-kuṅkuma-rañjitāyāḥ

@@ -1,5 +1,8 @@
 ### CC Madhya 7.80
 
+> দেখিয়া লোকের মনে হৈল চমৎকার ৷
+> যত লোক আইসে, কেহ নাহি যায় ঘর ৷৷ ৮০ ৷৷ ॥৮০॥
+
 dekhiyā lokera mane haila camatkāra
 
 yata loka āise, keha nāhi yāya ghara

@@ -1,5 +1,8 @@
 ### CC Madhya 11.31
 
+> আরাধনানাং সর্বেষাং বিষ্ণোরারাধনং পরম্ ।
+> তস্মাৎ পরতরং দেবি তদীয়ানাং সমর্চনম্ ॥৩১॥
+
 > ārādhanānāṁ sarveṣāṁ
 > viṣṇor ārādhanaṁ param
 > tasmāt parataraṁ devi

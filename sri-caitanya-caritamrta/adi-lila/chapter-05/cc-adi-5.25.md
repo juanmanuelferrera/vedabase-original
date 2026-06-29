@@ -1,5 +1,8 @@
 ### CC Adi 5.25
 
+> এই তিন লোকে কৃষ্ণ কেবল-লীলাময় ।
+> নিজগণ লঞা খেলে অনন্ত সময় ॥২৫॥
+
 > ei tina loke kṛṣṇa kevala-līlā-maya
 > nija-gaṇa lañā khele ananta samaya
 

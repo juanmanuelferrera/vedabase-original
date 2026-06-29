@@ -1,5 +1,8 @@
 ### SB 3.25.3
 
+> यद्यद्विधत्ते भगवान्स्वच्छन्दात्मात्ममायया ।
+> तानि मे श्रद्दधानस्य कीर्तन्यान्यनुकीर्तय ॥३॥
+
 > yad yad vidhatte bhagavān
 > svacchandātmātma-māyayā
 > tāni me śraddadhānasya

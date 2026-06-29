@@ -1,5 +1,8 @@
 ### CC Madhya 20.195
 
+> চক্রাদি-ধারণ-ভেদে নাম-ভেদ সব ।
+> বাসুদেবের মূর্তি — কেশব, নারায়ণ, মাধব ॥১৯৫॥
+
 cakrādi-dhāraṇa-bhede nāma-bheda saba
 
 vāsudevera mūrti--keśava, nārāyaṇa, mādhava

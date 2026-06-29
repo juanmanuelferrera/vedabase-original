@@ -1,5 +1,8 @@
 ### CC Adi 17.190
 
+> পুড়িল সকল দাড়ি, মুখে হৈল ব্রণ ।
+> যেই পেয়াদা যায়, তার এই বিবরণ ॥১৯০॥
+
 puḍila sakala dāḍi, mukhe haila vraṇa
 yei peyādā yāya, tāra ei vivaraṇa
 

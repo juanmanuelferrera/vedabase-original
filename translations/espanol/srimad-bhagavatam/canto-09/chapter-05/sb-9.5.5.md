@@ -1,5 +1,8 @@
 ### SB 9.5.5
 
+> त्वं धर्मस्त्वमृतं सत्यं त्वं यज्ञओऽखिलयज्ञअभुक
+> त्वं लोकपालः सर्वात्मा त्वं तेजः पौरुषं परम ॥५॥
+
 > tvaṁ dharmas tvam ṛtaṁ satyaṁ
 > tvaṁ yajño 'khila-yajña-bhuk
 > tvaṁ loka-pālaḥ sarvātmā

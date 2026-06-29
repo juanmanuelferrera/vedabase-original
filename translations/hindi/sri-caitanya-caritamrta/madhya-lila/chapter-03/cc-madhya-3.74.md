@@ -1,5 +1,8 @@
 ### CC Madhya 3.74
 
+> প্রভু বলে — এত অন্ন নারিব খাইতে ।
+> সন্ন্যাসীর ধর্ম নহে উচ্ছিষ্ট রাখিতে ॥৭৪॥
+
 > prabhu bale--eta anna nāriba khāite
 > sannyāsīra dharma nahe ucchiṣṭa rākhite
 

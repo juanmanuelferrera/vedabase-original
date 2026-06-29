@@ -1,5 +1,10 @@
 ### SB 3.15.43
 
+> तस्यारविन्दनयनस्य पदारविन्द
+> किञ्जल्कमिश्रतुलसीमकरन्दवायुः ।
+> अन्तर्गतः स्वविवरेण चकार तेषां
+> सङ्क्षोभमक्षरजुषामपि चित्ततन्वोः ॥४३॥
+
 > tasyāravinda-nayanasya padāravinda-
 > kiñjalka-miśra-tulasī-makaranda-vāyuḥ
 > antar-gataḥ sva-vivareṇa cakāra teṣāṁ

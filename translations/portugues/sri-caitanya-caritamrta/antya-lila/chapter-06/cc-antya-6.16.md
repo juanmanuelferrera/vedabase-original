@@ -1,5 +1,8 @@
 ### CC Antya 6.16
 
+> ‘মথুরা হৈতে প্রভু আইলা’, — বার্তা যবে পাইলা ।
+> প্রভু-পাশ চলিবারে উদ্যোগ করিলা ॥১৬॥
+
 'mathurā haite prabhu āilā',--vārtā yabe pāilā
 
 prabhu-pāśa calibāre udyoga karilā

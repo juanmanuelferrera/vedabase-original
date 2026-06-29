@@ -1,5 +1,8 @@
 ### CC Adi 1.26
 
+> সেই শ্লোকে কহি বাহ্যাবতার-কারণ ।
+> পঞ্চ ষষ্ঠ শ্লোকে কহি মূল-প্রয়োজন ॥২৬॥
+
 > sei śloke kahi bāhyāvatāra-kāraṇa
 > pañca ṣaṣṭha śloke kahi mūla-prayojana
 

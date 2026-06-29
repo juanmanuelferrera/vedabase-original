@@ -1,5 +1,8 @@
 ### CC Antya 1.181
 
+> প্রভু কহে, — “রায়, তোমার ইহাতে উল্লাস ।
+> শুনিতেই লজ্জা, লোকে করে উপহাস ।।” ॥ ১৮১ ॥
+
 > prabhu kahe,—"rāya, tomāra ihāte ullāsa
 > śunitei lajjā, loke kare upahāsa"
 

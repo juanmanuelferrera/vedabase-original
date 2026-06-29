@@ -1,5 +1,8 @@
 ### CC Madhya 21.39
 
+> মহাবিষ্ণু, পদ্মনাভ, ক্ষীরোদকস্বামী ।
+> এই তিন — স্থূল-সূক্ষ্ম-সর্ব-অন্তর্যামী ॥৩৯॥
+
 > mahā-viṣṇu, padmanābha, kṣīrodaka-svāmī
 > ei tina—sthūla-sūkṣma-sarva-antaryāmī
 

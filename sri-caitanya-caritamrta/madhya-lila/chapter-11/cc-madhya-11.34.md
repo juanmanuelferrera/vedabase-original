@@ -1,5 +1,8 @@
 ### CC Madhya 11.34
 
+> চারি গোসাঞির কৈল রায় চরণ বন্দন ।
+> যথাযোগ্য সব ভক্তের করিল মিলন ॥৩৪॥
+
 > cāri gosāñira kaila rāya caraṇa vandana
 > yathā-yogya saba bhaktera karila milana
 

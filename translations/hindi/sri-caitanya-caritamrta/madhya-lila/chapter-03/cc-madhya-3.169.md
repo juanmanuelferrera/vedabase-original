@@ -1,5 +1,8 @@
 ### CC Madhya 3.169
 
+> শুনি’ শচী সবাকারে করিল মিনতি ।
+> নিমাঞির দরশন আর মুঞি পাব কতি ॥১৬৯॥
+
 > śuni' śacī sabākāre karila minati
 > nimāñira daraśana āra muñi pāba kati
 

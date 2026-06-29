@@ -1,5 +1,8 @@
 ### SB 3.13.42
 
+> संस्थापयैनां जगतां सतस्थुषां लोकाय पत्नीमसि मातरं पिता ।
+> विधेम चास्यै नमसा सह त्वया यस्यां स्वतेजोऽग्निमिवारणावधाः ॥४२॥
+
 > saṁsthāpayaināṁ jagatāṁ sa-tasthuṣāṁ
 > lokāya patnīm asi mātaraṁ pitā
 > vidhema cāsyai namasā saha tvayā

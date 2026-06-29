@@ -1,5 +1,8 @@
 ### CC Antya 14.89
 
+> স্বরূপ, জগদানন্দ, পণ্ডিত-গদাধর ।
+> রামাই, নন্দাই, আর পণ্ডিত-শঙ্কর ॥৮৯॥
+
 > svarūpa, jagadānanda, paṇḍita-gadādhara
 > rāmāi, nandāi, āra paṇḍita śaṅkara
 

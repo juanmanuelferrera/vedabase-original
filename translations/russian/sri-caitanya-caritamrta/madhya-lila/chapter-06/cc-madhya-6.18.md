@@ -1,5 +1,8 @@
 ### CC Madhya 6.18
 
+> নদীয়া-নিবাসী, বিশারদের জামাতা ।
+> মহাপ্রভুর ভক্ত তেঁহো প্রভুতত্ত্বজ্ঞাতা ॥১৮॥
+
 > nadīyā-nivāsī, viśāradera jāmātā
 > mahāprabhura bhakta teṅho prabhu-tattva-jñātā
 

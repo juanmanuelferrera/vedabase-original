@@ -1,5 +1,8 @@
 ### CC Madhya 25.11
 
+> এত চিন্তি’ নিমন্ত্রিল সন্ন্যাসীর গণে ।
+> তবে সেই বিপ্র আইল মহাপ্রভুর স্থানে ॥১১॥
+
 eta cinti' nimantrila sannyāsīra gaṇe
 tabe sei vipra āila mahāprabhura sthāne
 

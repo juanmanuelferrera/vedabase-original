@@ -1,5 +1,8 @@
 ### SB 8.17.16
 
+> प्रायोऽधुना तेऽसुरयूथनाथा अपारणीया इति देवि मे मतिः
+> यत्तेऽनुकूलेश्वरविप्रगुप्ता न विक्रमस्तत्र सुखं ददाति ॥१६॥
+
 > prāyo 'dhunā te 'sura-yūtha-nāthā
 > apāraṇīyā iti devi me matiḥ
 > yat te 'nukūleśvara-vipra-guptā

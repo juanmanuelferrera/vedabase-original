@@ -1,5 +1,8 @@
 ### CC Madhya 24.304
 
+> ‘অপি’-শব্দ — অবধারণে, সেহ চারি বার ।
+> চারিশব্দ-সঙ্গে এবের করিবে উচ্চার ॥৩০৪॥
+
 > 'api'-śabda--avadhāraṇe, seha cāri bāra
 > cāri-śabda-saṅge evera karibe uccāra
 

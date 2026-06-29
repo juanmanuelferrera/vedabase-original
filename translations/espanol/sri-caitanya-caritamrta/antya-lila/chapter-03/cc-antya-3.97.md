@@ -1,5 +1,8 @@
 ### CC Antya 3.97
 
+> সব কহা না যায় হরিদাসের চরিত্র ।
+> কেহ কিছু কহে করিতে আপনা পবিত্র ॥৯৭॥
+
 > saba kahā nā yāya haridāsera caritra
 > keha kichu kahe karite āpanā pavitra
 

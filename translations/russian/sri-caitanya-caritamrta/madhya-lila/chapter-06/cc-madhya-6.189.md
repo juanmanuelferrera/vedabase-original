@@ -1,5 +1,8 @@
 ### CC Madhya 6.189
 
+> শুনি’ ভট্টাচার্য শ্লোক করিল ব্যাখ্যান ।
+> তর্কশাস্ত্র-মত উঠায় বিবিধ বিধান ॥১৮৯॥
+
 > śuni' bhaṭṭācārya śloka karila vyākhyāna
 > tarka-śāstra-mata uṭhāya vividha vidhāna
 

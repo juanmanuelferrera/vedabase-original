@@ -1,5 +1,8 @@
 ### CC Madhya 13.27
 
+> ‘গৌড়’ সব রথ টানে করিয়া আনন্দ ।
+> ক্ষণে শীঘ্র চলে রথ, ক্ষণে চলে মন্দ ॥২৭॥
+
 > 'gauḍa' saba ratha ṭāne kariyā ānanda
 > kṣaṇe śīghra cale ratha, kṣaṇe cale manda
 

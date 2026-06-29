@@ -1,5 +1,8 @@
 ### CC Madhya 21.21
 
+> বেত্র, বেণু, দল, শৃঙ্গ, বস্ত্র, অলঙ্কার ।
+> গোপগণের যত, তার নাহি লেখা-পার ॥২১॥
+
 vetra, veṇu, dala, śṛṅga, vastra, alaṅkāra
 
 gopa-gaṇera yata, tāra nāhi lekhā-pāra

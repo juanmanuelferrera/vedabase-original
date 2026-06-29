@@ -1,5 +1,8 @@
 ### CC Madhya 1.140
 
+> শিবানন্দের সঙ্গে আইলা কুক্কুর ভাগ্যবান্ ।
+> প্রভুর চরণ দেখি’ কৈল অন্তর্ধান ॥১৪০॥
+
 > śivānandera saṅge āilā kukkura bhāgyavān
 > prabhura caraṇa dekhi' kaila antardhāna
 

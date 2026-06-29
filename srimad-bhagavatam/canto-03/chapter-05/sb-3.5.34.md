@@ -1,5 +1,8 @@
 ### SB 3.5.34
 
+> अनिलोऽपि विकुर्वाणो नभसोरुबलान्वितः ।
+> ससर्ज रूपतन्मात्रं ज्योतिर्लोकस्य लोचनम् ॥३४॥
+
 > anilo 'pi vikurvāṇo
 > nabhasoru-balānvitaḥ
 > sasarja rūpa-tanmātraṁ

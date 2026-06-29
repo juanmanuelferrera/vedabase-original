@@ -1,5 +1,8 @@
 ### CC Madhya 6.14
 
+> এত চিন্তি’ ভট্টাচার্য আছেন বসিয়া ।
+> নিত্যানন্দাদি সিংহদ্বারে মিলিল আসিয়া ॥১৪॥
+
 > eta cinti' bhaṭṭācārya āchena vasiyā
 > nityānandādi siṁha-dvāre milila āsiyā
 

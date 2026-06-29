@@ -1,5 +1,8 @@
 ### CC Madhya 16.256
 
+> ‘বৃন্দাবন যাব আমি গৌড়দেশ দিয়া ।
+> নিজ-মাতার, গঙ্গার চরণ দেখিয়া ॥২৫৬॥
+
 'vṛndāvana yāba āmi gauḍa-deśa diyā
 
 nija-mātāra, gaṅgāra caraṇa dekhiyā

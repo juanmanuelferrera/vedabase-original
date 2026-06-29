@@ -1,5 +1,8 @@
 ### CC Antya 3.163
 
+> জাতি-ধন-জন খানের সকল লইল ।
+> বহুদিন পর্যন্ত গ্রাম উজাড় রহিল ॥১৬৩॥
+
 jāti-dhana-jana khānera sakala la-ila
 
 bahu-dina paryanta grāma ujāḍa rahila

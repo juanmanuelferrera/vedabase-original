@@ -1,5 +1,8 @@
 ### CC Adi 3.36
 
+> আসন্ বর্ণাস্ত্রয়ো হ্যস্য গৃহ্ণতোঽনুযুগং তনূঃ ।
+> শুক্লো রক্তস্তথা পীত ইদানীং কৃষ্ণতাং গতঃ ॥৩৬॥
+
 āsan varṇās trayo hy asya
 gṛhṇato 'nu-yugaṁ tanūḥ
 śuklo raktas tathā pīta

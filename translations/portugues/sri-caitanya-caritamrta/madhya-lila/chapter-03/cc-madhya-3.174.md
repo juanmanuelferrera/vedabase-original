@@ -1,5 +1,8 @@
 ### CC Madhya 3.174
 
+> তোমা-সবার আজ্ঞা বিনা চলিলাম বৃন্দাবন ৷
+> যাইতে নারিল, বিঘ্ন কৈল নিবর্তন ॥১৭৪॥
+
 tomā-sabāra ājñā vinā calilāma vṛndāvana
 yāite nārila, vighna kaila nivartana
 

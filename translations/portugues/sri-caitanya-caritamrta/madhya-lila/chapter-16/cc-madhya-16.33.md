@@ -1,5 +1,8 @@
 ### CC Madhya 16.33
 
+> তাঁর লাগি’ গোপীনাথ ক্ষীর চুরি কৈল  ।
+> মহাপ্ৰভুর মুখে আগে এ কথা শুনিল ॥৩৩॥
+
 tāṅra lāgi' gopīnātha kṣīra curi kaila
 
 mahāprabhura mukhe āge e kathā śunila

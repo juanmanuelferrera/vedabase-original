@@ -1,5 +1,8 @@
 ### CC Antya 8.87
 
+> দুইপণ কৌড়ি লাগে প্রভুর নিমন্ত্রণে ।
+> কভু দুইজন ভোক্তা, কভু তিনজনে ॥৮৭॥
+
 > dui-paṇa kauḍi lāge prabhura nimantraṇe
 > kabhu dui-jana bhoktā, kabhu tina-jane
 

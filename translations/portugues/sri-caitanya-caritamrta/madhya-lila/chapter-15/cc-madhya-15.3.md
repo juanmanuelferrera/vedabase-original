@@ -1,5 +1,8 @@
 ### CC Madhya 15.3
 
+> জয় শ্রীচৈতন্যচরিতামৃত-শ্রোতাগণ ।
+> চৈতন্যচরিতামৃত — যাঁর প্রাণধন ॥৩॥
+
 jaya śrī-caitanya-caritāmṛta-śrotā-gaṇa
 caitanya-caritāmṛta--yāṅra prāṇa-dhana
 

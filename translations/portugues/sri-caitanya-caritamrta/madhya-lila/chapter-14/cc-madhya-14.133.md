@@ -1,5 +1,8 @@
 ### CC Madhya 14.133
 
+> বান্ধিয়া আনিয়া পাড়ে লক্ষ্মীর চরণে ।
+> চোরে যেন দণ্ড করি’ লয় নানা-ধনে ॥১৩৩॥
+
 bāndhiyā āniyā pāḍe lakṣmīra caraṇe
 
 core yena daṇḍa kari' laya nānā-dhane

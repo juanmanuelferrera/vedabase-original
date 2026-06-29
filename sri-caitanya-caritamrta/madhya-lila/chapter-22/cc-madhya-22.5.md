@@ -1,5 +1,8 @@
 ### CC Madhya 22.5
 
+> কৃষ্ণভক্তি — অভিধেয়, সর্বশাস্ত্রে কয় ।
+> অতএব মুনিগণ করিয়াছে নিশ্চয় ॥৫॥
+
 > kṛṣṇa-bhakti—abhidheya, sarva-śāstre kaya
 > ataeva muni-gaṇa kariyāche niścaya
 

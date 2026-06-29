@@ -1,5 +1,8 @@
 ### SB 8.10.55
 
+> तस्मिन्प्रविष्टेऽसुरकूटकर्मजा माया विनेशुर्महिना महीयसः
+> स्वप्नो यथा हि प्रतिबोध आगते हरिस्मृतिः सर्वविपद्विमोक्षणम ॥५५॥
+
 > tasmin praviṣṭe 'sura-kūṭa-karmajā
 > māyā vineśur mahinā mahīyasaḥ
 > svapno yathā hi pratibodha āgate

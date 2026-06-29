@@ -1,5 +1,8 @@
 ### SB 8.13.17
 
+> देवगुह्यात्सरस्वत्यां सार्वभौम इति प्रभुः
+> स्थानं पुरन्दराद्धृत्वा बलये दास्यतीश्वरः ॥१७॥
+
 > devaguhyāt sarasvatyāṁ
 > sārvabhauma iti prabhuḥ
 > sthānaṁ purandarād dhṛtvā

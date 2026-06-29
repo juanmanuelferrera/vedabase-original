@@ -1,5 +1,8 @@
 ### CC Madhya 10.155
 
+> দেখিয়া ত’ ছদ্ম কৈল যেন দেখে নাঞি ৷
+> মুকুন্দেরে পুছে, — কাহাঁ ভারতী-গোসাঞি ৷৷ ১৫৫ ৷৷ ॥১৫৫॥
+
 dekhiyā ta' chadma kaila yena dekhe nāñi
 
 mukundere puche,-kāhāṅ bhāratī-gosāñi

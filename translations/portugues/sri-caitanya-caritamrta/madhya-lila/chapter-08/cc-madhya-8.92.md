@@ -1,5 +1,8 @@
 ### CC Madhya 8.92
 
+> এই ‘প্রেমে’র অনুরূপ না পারে ভজিতে ৷
+> অতএব ‘ঋণী’ হয় — কহে ভাগবতে ৷৷ ৯২ ৷৷ ॥৯২॥
+
 ei 'preme'ra anurūpa nā pāre bhajite
 ataeva 'ṛṇī' haya--kahe bhāgavate
 

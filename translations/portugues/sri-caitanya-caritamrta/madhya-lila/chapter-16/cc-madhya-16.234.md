@@ -1,5 +1,8 @@
 ### CC Madhya 16.234
 
+> সাত দিন শান্তিপুরে প্রভু-সঙ্গে রহে  ।
+> রাত্রি-দিবসে এই মনঃকথা কহে ॥২৩৪॥
+
 sāta dina śāntipure prabhu-saṅge rahe
 
 rātri-divase ei manaḥ-kathā kahe

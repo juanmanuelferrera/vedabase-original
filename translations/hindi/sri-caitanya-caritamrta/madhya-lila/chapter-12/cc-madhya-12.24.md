@@ -1,5 +1,8 @@
 ### CC Madhya 12.24
 
+> পরমার্থ থাকুক — লোকে করিবে নিন্দন  ।
+> লোকে রহু — দামোদর করিবে ভর্ত্সন ॥২৪॥
+
 > paramārtha thākuka-loke karibe nindana
 > loke rahu-dāmodara karibe bhartsana
 

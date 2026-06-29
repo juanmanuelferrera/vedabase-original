@@ -1,5 +1,8 @@
 ### CC Madhya 5.115
 
+> “যদি বর দিবে, তবে রহ এই স্থানে ।
+> কিঙ্করেরে দয়া তব সর্বলোকে জানে ।।” ॥ ১১৫ ॥
+
 > "yadi vara dibe, tabe raha ei sthāne
 > kiṅkarere dayā tava sarva-loke jāne"
 

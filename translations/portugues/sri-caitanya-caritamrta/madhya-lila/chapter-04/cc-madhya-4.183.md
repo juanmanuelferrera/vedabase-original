@@ -1,5 +1,8 @@
 ### CC Madhya 4.183
 
+> উৎকলের দানী রাখে চন্দন দেখিঞা ।
+> তাহাঁ এড়াইল রাজপত্র দেখাঞা ॥১৮৩॥
+
 utkalera dānī rākhe candana dekhiñā
 tāhāṅ eḍāila rāja-patra dekhāñā
 

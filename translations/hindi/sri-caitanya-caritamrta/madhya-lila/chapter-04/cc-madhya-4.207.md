@@ -1,5 +1,8 @@
 ### CC Madhya 4.207
 
+> সাত ক্ষীর পূজারীকে বাহুড়িয়া দিল ।
+> পঞ্চক্ষীর পঞ্চজনে বাঁটিয়া খাইল ॥২০৭॥
+
 > sāta kṣīra pūjārīke bāhuḍiyā dila
 > pañca-kṣīra pañca-jane vāṅṭiyā khāila
 

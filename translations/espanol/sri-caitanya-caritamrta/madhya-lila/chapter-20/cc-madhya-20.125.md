@@ -1,5 +1,8 @@
 ### CC Madhya 20.125
 
+> অভিধেয়-নাম ‘ভক্তি,’ ‘প্রেম’ — প্রয়োজন ৷
+> পুরুষার্থ-শিরোমণি প্রেম মহাধন ৷৷ ১২৫ ৷৷ ॥১২৫॥
+
 > abhidheya-nāma 'bhakti' 'prema'--prayojana
 > puruṣārtha-śiromaṇi prema mahā-dhana
 

@@ -1,5 +1,8 @@
 ### CC Antya 15.4
 
+> এইমত মহাপ্রভু রাত্রি-দিবসে ।
+> আত্মস্ফূর্তি নাহি কৃষ্ণভাবাবেশে ॥৪॥
+
 > ei-mata mahāprabhu rātri-divase
 > ātma-sphūrti nāhi kṛṣṇa-bhāvāveśe
 

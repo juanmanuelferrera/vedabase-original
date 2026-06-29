@@ -1,5 +1,8 @@
 ### CC Adi 7.139
 
+> স্বরূপ-ঐশ্বর্যে তাঁর নাহি মায়াগন্ধ ।
+> সকল বেদের হয় ভগবান্ সে ‘সম্বন্ধ’ ॥১৩৯॥
+
 > svarūpa-aiśvarye tāṅra nāhi māyā-gandha
 > sakala vedera haya bhagavān se 'sambandha'
 

@@ -1,5 +1,8 @@
 ### CC Madhya 8.287
 
+> গৌর অঙ্গ নহে মোর — রাধাঙ্গ-স্পর্শন ।
+> গোপেন্দ্রসুত বিনা তেঁহো না স্পর্শে অন্যজন ॥২৮৭॥
+
 > gaura aṅga nahe mora—rādhāṅga-sparśana
 > gopendra-suta vinā teṅho nā sparśe anya-jana
 

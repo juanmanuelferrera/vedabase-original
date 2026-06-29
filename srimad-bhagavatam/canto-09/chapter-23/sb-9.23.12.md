@@ -1,5 +1,8 @@
 ### SB 9.23.12
 
+> विजयस्तस्य सम्भूत्यां ततो धृतिरजायत
+> ततो धृतव्रतस्तस्य सत्कर्माधिरथस्ततः ॥१२॥
+
 > vijayas tasya sambhūtyāṁ
 > tato dhṛtir ajāyata
 > tato dhṛtavratas tasya

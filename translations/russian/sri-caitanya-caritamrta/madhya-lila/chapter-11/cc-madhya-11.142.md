@@ -1,5 +1,8 @@
 ### CC Madhya 11.142
 
+> স্বরূপের ঠাঁই আছে, লহ তা লিখিয়া ।
+> বাসুদেব আনন্দিত পুস্তক পাঞা ॥১৪২॥
+
 > svarūpera ṭhāṅi āche, laha tā likhiyā
 > vāsudeva ānandita pustaka pāñā
 

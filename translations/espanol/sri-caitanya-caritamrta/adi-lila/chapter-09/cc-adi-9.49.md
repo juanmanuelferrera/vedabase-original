@@ -1,5 +1,8 @@
 ### CC Adi 9.49
 
+> মহা-মাদক প্রেমফল পেট ভরি’ খায় ।
+> মাতিল সকল লোক — হাসে, নাচে, গায় ॥৪৯॥
+
 > mahā-mādaka prema-phala peṭa bhari' khāya
 > mātila sakala loka--hāse, nāce, gāya
 

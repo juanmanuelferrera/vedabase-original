@@ -1,5 +1,8 @@
 ### CC Antya 10.61
 
+> সাত-সম্প্রদায়ে প্রভু করেন ভ্রমণ ।
+> ‘মোর সম্প্রদায়ে প্রভু’ — ঐছে সবার মন ॥৬১॥
+
 sāta-sampradāye prabhu karena bhramaṇa
 
 'mora sampradāye prabhu'--aiche sabāra mana

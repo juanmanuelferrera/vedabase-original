@@ -1,5 +1,8 @@
 ### CC Antya 6.254
 
+> পরম বৈরাগ্য তার, নাহি ভক্ষ্য-পরিধান ।
+> যৈছে তৈছে আহার করি’ রাখয়ে পরাণ ॥২৫৪॥
+
 parama vairāgya tāra, nāhi bhakṣya-paridhāna
 
 yaiche taiche āhāra kari' rākhaye parāṇa

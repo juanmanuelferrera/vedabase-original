@@ -1,5 +1,8 @@
 ### SB 4.5.9
 
+> प्रसूतिमिश्राः स्त्रिय उद्विग्नचित्ता ऊचुर्विपाको वृजिनस्यैव तस्य ।
+> यत्पश्यन्तीनां दुहितॄणां प्रजेशः सुतां सतीमवदध्यावनागाम् ॥९॥
+
 > prasūti-miśrāḥ striya udvigna-cittā
 > ūcur vipāko vṛjinasyaiva tasya
 > yat paśyantīnāṁ duhitṝṇāṁ prajeśaḥ

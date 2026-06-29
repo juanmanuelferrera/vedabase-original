@@ -1,5 +1,8 @@
 ### CC Madhya 4.35
 
+> স্বপ্নে দেখে, সেই বালক সম্মুখে আসিঞা ।
+> এক কুঞ্জে লঞা গেল হাতেতে ধরিঞা ॥৩৫॥
+
 svapne dekhe, sei bālaka sammukhe āsiñā
 
 eka kuñje lañā gela hātete dhariñā

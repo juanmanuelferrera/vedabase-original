@@ -1,5 +1,8 @@
 ### CC Adi 6.47
 
+> দাস্য-ভাবে আনন্দিত পারিষদগণ ।
+> বিধি, ভব, নারদ আর শুক, সনাতন ॥৪৭॥
+
 dāsya-bhāve ānandita pāriṣada-gaṇa
 vidhi, bhava, nārada āra śuka, sanātana
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.77
 
+> প্রভু কহে, — “সব জীব মুক্তি যবে পাবে ।
+> এই ত’ ব্রহ্মাণ্ড তবে জীবশূন্য হবে !” ॥ ৭৭ ॥
+
 > prabhu kahe,—"saba jīva mukti yabe pābe
 > ei ta' brahmāṇḍa tabe jīva-śūnya habe!"
 

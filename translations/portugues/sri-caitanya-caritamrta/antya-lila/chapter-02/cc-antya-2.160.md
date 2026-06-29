@@ -1,5 +1,8 @@
 ### CC Antya 2.160
 
+> প্রয়াগ হইতে এক বৈষ্ণব নবদ্বীপে আইল ।
+> হরিদাসের বার্তা তেঁহো সবারে কহিল ॥১৬০॥
+
 prayāga ha-ite eka vaiṣṇava navadvīpa āila
 
 haridāsera vārtā teṅho sabāre kahila

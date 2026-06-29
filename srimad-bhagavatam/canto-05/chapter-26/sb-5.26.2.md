@@ -1,5 +1,8 @@
 ### SB 5.26.2
 
+> ऋषिरुवाच
+> त्रिगुणत्वात्कर्तुः श्रद्धया कर्मगतयः पृथग्विधाः सर्वा एव सर्वस्य तारतम्येन भवन्ति ॥२॥
+
 > ṛṣir uvāca
 > tri-guṇatvāt kartuḥ śraddhayā karma-gatayaḥ pṛthag-vidhāḥ sarvā eva sarvasya tāratamyena bhavanti.
 

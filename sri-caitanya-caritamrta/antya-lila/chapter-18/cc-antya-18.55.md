@@ -1,5 +1,8 @@
 ### CC Antya 18.55
 
+> সাক্ষাৎ দেখেছোঁ, — মোরে পাইল সেই ভূত ।
+> মুই মৈলে মোর কৈছে জীবে স্ত্রী-পুত ্ ॥৫৫॥
+
 > sākṣāt dekhechoṅ,—more pāila sei bhūta
 > mui maile mora kaiche jīve strī-put
 

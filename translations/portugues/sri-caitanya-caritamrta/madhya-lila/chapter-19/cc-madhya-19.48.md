@@ -1,5 +1,8 @@
 ### CC Madhya 19.48
 
+> শ্রীরূপে দেখিয়া প্রভুর প্রসন্ন হৈল মন ।
+> ‘উঠ, উঠ, রূপ, আইস’, বলিলা বচন ॥৪৮॥
+
 śrī-rūpe dekhiyā prabhura prasanna haila mana
 
 'uṭha, uṭha, rūpa, āisa', balilā vacana

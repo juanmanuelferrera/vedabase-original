@@ -1,5 +1,8 @@
 ### SB 4.21.14
 
+> तस्मिन्नर्हत्सु सर्वेषु स्वर्चितेषु यथार्हतः ।
+> उत्थितः सदसो मध्ये ताराणामुडुराडिव ॥१४॥
+
 > tasminn arhatsu sarveṣu
 > sv-arciteṣu yathārhataḥ
 > utthitaḥ sadaso madhye

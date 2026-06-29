@@ -1,5 +1,8 @@
 ### CC Madhya 16.250
 
+> তবে নবদ্বীপে তাঁরে দিল পাঠাঞা ।
+> নীলাদ্রি চলিলা সঙ্গে ভক্তগণ লঞা ॥২৫০॥
+
 > tabe navadvīpe tāṅre dila pāṭhāñā
 > nīlādri calilā saṅge bhakta-gaṇa lañā
 

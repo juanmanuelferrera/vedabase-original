@@ -1,5 +1,8 @@
 ### CC Adi 16.13
 
+> তেঁহো তোমার সাধ্য-সাধন করিবে নিশ্চয় ।
+> সাক্ষাৎ ঈশ্বর তেঁহো, — নাহিক সংশয় ॥১৩॥
+
 teṅho tomāra sādhya-sādhana karibe niścaya
 sākṣāt īśvara teṅho,--nāhika saṁśaya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 4.122
 
+> আরতি দেখিয়া পুরী কৈল নমস্কার ।
+> বাহিরে আইলা, কারে কিছু না কহিল আর ॥১২২॥
+
 > ārati dekhiyā purī kaila namaskāra
 > bāhire āilā, kāre kichu nā kahila āra
 

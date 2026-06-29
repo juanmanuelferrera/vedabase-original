@@ -1,5 +1,8 @@
 ### CC Madhya 6.173
 
+> জীবের দেহে আত্মবুদ্ধি — সেই মিথ্যা হয় ।
+> জগৎ যে মিথ্যা নহে, নশ্বরমাত্র হয় ॥১৭৩॥
+
 jīvera dehe ātma-buddhi--sei mithyā haya
 
 jagat ye mithyā nahe, naśvara-mātra haya

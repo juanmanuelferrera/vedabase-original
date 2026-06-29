@@ -1,5 +1,8 @@
 ### CC Madhya 12.94
 
+> সব বৈষ্ণব লঞা যবে দুইবার শোধিল ।
+> দেখি’ মহাপ্রভুর মনে সন্তোষ হইল ॥৯৪॥
+
 > saba vaiṣṇava lañā yabe dui-bāra śodhila
 > dekhi' mahāprabhura mane santoṣa ha-ila
 

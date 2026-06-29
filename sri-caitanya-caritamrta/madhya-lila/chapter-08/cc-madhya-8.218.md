@@ -1,5 +1,8 @@
 ### CC Madhya 8.218
 
+> নিজেন্দ্রিয়সুখবাঞ্ছা নাহি গোপিকার ।
+> কৃষ্ণে সুখ দিতে করে সঙ্গম-বিহার ॥২১৮॥
+
 > nijendriya-sukha-vāñchā nāhi gopikāra
 > kṛṣṇe sukha dite kare saṅgama-vihāra
 

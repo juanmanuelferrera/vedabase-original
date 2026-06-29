@@ -1,5 +1,8 @@
 ### SB 7.13.3
 
+> एक एव चरेद्भिक्षुरात्मारामोऽनपाश्रयः
+> सर्वभूतसुहृच्छान्तो नारायणपरायणः ॥३॥
+
 > eka eva cared bhikṣur
 > ātmārāmo 'napāśrayaḥ
 > sarva-bhūta-suhṛc-chānto

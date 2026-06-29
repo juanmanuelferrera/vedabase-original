@@ -1,5 +1,8 @@
 ### CC Antya 14.74
 
+> সিংহদ্বারে দেখি’ প্রভুর বিস্ময় হইলা ।
+> ‘কাঁহা কর কি’ — এই স্বরূপে পুছিলা ॥৭৪॥
+
 > siṁha-dvāre dekhi' prabhura vismaya ha-ilā
 > 'kāṅhā kara ki'—ei svarūpe puchilā
 

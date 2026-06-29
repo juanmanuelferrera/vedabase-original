@@ -1,5 +1,7 @@
 ### SB 5.15.2
 
+> तस्माद्वृद्धसेनायां देवताजिन्नाम पुत्रोऽभवत ॥२॥
+
 > tasmād vṛddhasenāyāṁ devatājin-nāma putro 'bhavat.
 
 *tasmāt*—de Sumati; *vṛddha-senāyām*—en el vientre de su esposa, Vṛddhasenā; *devatājit-nāma*—llamado Devatājit; *putraḥ*—un hijo; *abhavat*—nació.

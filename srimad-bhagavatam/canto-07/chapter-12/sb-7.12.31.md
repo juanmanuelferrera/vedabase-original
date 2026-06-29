@@ -1,5 +1,8 @@
 ### SB 7.12.31
 
+> इत्यक्षरतयात्मानं चिन्मात्रमवशेषितम
+> ज्ञआत्वाद्वयोऽथ विरमेद्दग्धयोनिरिवानलः ॥३१॥
+
 > ity akṣaratayātmānaṁ
 > cin-mātram avaśeṣitam
 > jñātvādvayo 'tha viramed

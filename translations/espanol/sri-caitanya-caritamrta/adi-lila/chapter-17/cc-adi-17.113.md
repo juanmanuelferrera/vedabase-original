@@ -1,5 +1,8 @@
 ### CC Adi 17.113
 
+> সেইরূপে এইরূপে দেখি একাকার ।
+> কভু ভেদ দেখি, এই মায়ায় তোমার ॥১১৩॥
+
 > sei-rūpe ei-rūpe dekhi ekākāra
 > kabhu bheda dekhi, ei māyāya tomāra
 

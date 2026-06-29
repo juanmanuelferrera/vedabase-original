@@ -1,5 +1,8 @@
 ### SB 9.2.27
 
+> मरुत्तस्य यथा यज्ञओ न तथान्योऽस्ति कश्चन
+> सर्वं हिरण्मयं त्वासीद्यत्किञ्चिच्चास्य शोभनम ॥२७॥
+
 > maruttasya yathā yajño
 > na tathānyo 'sti kaścana
 > sarvaṁ hiraṇmayaṁ tv āsīd

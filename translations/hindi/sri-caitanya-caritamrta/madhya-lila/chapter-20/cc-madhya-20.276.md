@@ -1,5 +1,8 @@
 ### CC Madhya 20.276
 
+> তবে মহত্তত্ত্ব হৈতে ত্রিবিধ অহঙ্কার ।
+> যাহা হৈতে দেবতেন্দ্রিয়ভূতের প্রচার ॥২৭৬॥
+
 > tabe mahat-tattva haite trividha ahaṅkāra
 > yāhā haite devatendriya-bhūtera pracāra
 

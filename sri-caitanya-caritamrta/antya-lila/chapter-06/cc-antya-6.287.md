@@ -1,5 +1,8 @@
 ### CC Antya 6.287
 
+> এত বলি’ তাঁরে পুনঃ প্রসাদ করিলা ।
+> ‘গোবর্ধনের শিলা’, ‘গুঞ্জা-মালা’ তাঁরে দিলা ॥২৮৭॥
+
 > eta bali' tāṅre punaḥ prasāda karilā
 > 'govardhanera śilā', 'guñjā-mālā' tāṅre dilā
 

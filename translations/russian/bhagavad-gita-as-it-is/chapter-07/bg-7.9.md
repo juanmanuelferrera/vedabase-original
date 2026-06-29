@@ -1,5 +1,8 @@
 ### Bg 7.9
 
+> पुण्यो गन्धः पृथिव्यां च तेजश्चास्मि विभावसौ ।
+> जीवनं सर्वभूतेषु तपश्चास्मि तपस्विषु ॥९॥
+
 > puṇyo gandhaḥ pṛthivyāṁ ca
 > tejaś cāsmi vibhāvasau
 > jīvanaṁ sarva-bhūteṣu

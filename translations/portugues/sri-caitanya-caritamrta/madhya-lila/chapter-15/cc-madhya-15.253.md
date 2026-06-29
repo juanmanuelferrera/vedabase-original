@@ -1,5 +1,8 @@
 ### CC Madhya 15.253
 
+> দুঁহার দুঃখ দেখি’ প্রভু দুঁহা প্রবোধিয়া ।
+> দুঁহার ইচ্ছাতে ভোজন কৈল তুষ্ট হঞা ॥২৫৩॥
+
 duṅhāra duḥkha dekhi' prabhu duṅhā prabodhiyā
 
 duṅhāra icchāte bhojana kaila tuṣṭa hañā

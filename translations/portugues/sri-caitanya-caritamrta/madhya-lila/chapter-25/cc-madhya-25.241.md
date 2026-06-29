@@ -1,5 +1,8 @@
 ### CC Madhya 25.241
 
+> শেষ অষ্টাদশ বৎসর নীলাচলে বাস ।
+> ভক্তগণ-সঙ্গে করে কীর্তন-বিলাস ॥২৪১॥
+
 śeṣa aṣṭādaśa vatsara nīlācale vāsa
 
 bhakta-gaṇa-saṅge kare kīrtana-vilāsa

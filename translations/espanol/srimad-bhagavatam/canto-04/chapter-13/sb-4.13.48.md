@@ -1,5 +1,8 @@
 ### SB 4.13.48
 
+> विज्ञाय निर्विद्य गतं पतिं प्रजाः पुरोहितामात्यसुहृद्गणादयः ।
+> विचिक्युरुर्व्यामतिशोककातरा यथा निगूढं पुरुषं कुयोगिनः ॥४८॥
+
 > vijñāya nirvidya gataṁ patiṁ prajāḥ
 > purohitāmātya-suhṛd-gaṇādayaḥ
 > vicikyur urvyām atiśoka-kātarā

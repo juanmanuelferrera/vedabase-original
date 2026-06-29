@@ -1,5 +1,8 @@
 ### CC Madhya 16.47
 
+> এইমত ভক্তগণ রহিলা চারি মাস ।
+> প্ৰভুর সহিত করে কীর্তন-বিলাস ॥৪৭॥
+
 ei-mata bhakta-gaṇa rahilā cāri māsa
 
 prabhura sahita kare kīrtana-vilāsa

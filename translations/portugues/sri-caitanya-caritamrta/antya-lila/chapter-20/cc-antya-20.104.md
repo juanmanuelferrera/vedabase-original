@@ -1,5 +1,8 @@
 ### CC Antya 20.104
 
+> তার মধ্যে শিবানন্দ-সঙ্গে কুক্কুর আইলা ।
+> প্রভু তারে কৃষ্ণ কহাঞা মুক্ত করিলা ॥১০৪॥
+
 tāra madhye śivānanda-saṅge kukkura āilā
 
 prabhu tāre kṛṣṇa kahāñā mukta karilā

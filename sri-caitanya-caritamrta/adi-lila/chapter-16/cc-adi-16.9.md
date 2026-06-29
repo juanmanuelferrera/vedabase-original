@@ -1,5 +1,8 @@
 ### CC Adi 16.9
 
+> বিদ্যার প্রভাব দেখি চমৎকার চিতে ।
+> শত শত পড়ুয়া আসি লাগিলা পড়িতে ॥৯॥
+
 > vidyāra prabhāva dekhi camatkāra cite
 > śata śata paḍuyā āsi lāgilā paḍite
 

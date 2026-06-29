@@ -1,5 +1,8 @@
 ### CC Antya 4.127
 
+> সেবক গতাগতি করে, নাহি অবসর ।
+> তার স্পর্শ হৈলে, সর্বনাশ হবে মোর ।।” ॥ ১২৭ ॥
+
 sevaka gatāgati kare, nāhi avasara
 
 tāra sparśa haile, sarva-nāśa habe mora"

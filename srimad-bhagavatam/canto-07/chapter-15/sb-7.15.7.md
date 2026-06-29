@@ -1,5 +1,8 @@
 ### SB 7.15.7
 
+> न दद्यादामिषं श्राद्धे न चाद्याद्धर्मतत्त्ववित
+> मुन्यन्नैः स्यात्परा प्रीतिर्यथा न पशुहिंसया ॥७॥
+
 > na dadyād āmiṣaṁ śrāddhe
 > na cādyād dharma-tattvavit
 > muny-annaiḥ syāt parā prītir

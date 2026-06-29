@@ -1,5 +1,8 @@
 ### CC Madhya 24.275
 
+> জল আনি’ ভক্ত্যে দোঁহার পাদ প্রক্ষালিল ।
+> সেই জল স্ত্রী-পুরুষে পিয়া শিরে লইল ॥২৭৫॥
+
 > jala āni' bhaktye doṅhāra pāda prakṣālila
 > sei jala strī-puruṣe piyā śire la-ila
 

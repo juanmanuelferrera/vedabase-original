@@ -1,5 +1,8 @@
 ### CC Antya 1.53
 
+> রূপে তাহাঁ বাসা দিয়া গোসাঞি চলিলা ।
+> গোসাঞির সঙ্গী ভক্ত রূপেরে মিলিলা ॥৫৩॥
+
 rūpe tāhāṅ vāsā diyā gosāñi calilā
 
 gosāñira saṅgī bhakta rūpere mililā

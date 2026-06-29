@@ -1,5 +1,8 @@
 ### CC Madhya 23.64
 
+> রাধিকাদ্যে ‘পূর্বরাগ’ প্রসিদ্ধ ‘প্রবাস’, ‘মানে’ ।
+> ‘প্রেমবৈচিত্ত্য’ শ্রীদশমে মহিষীগণে ॥৬৪॥
+
 > rādhikādye 'pūrva-rāga' prasiddha 'pravāsa', 'māne'
 > 'prema-vaicittya' śrī-daśame mahiṣī-gaṇe
 

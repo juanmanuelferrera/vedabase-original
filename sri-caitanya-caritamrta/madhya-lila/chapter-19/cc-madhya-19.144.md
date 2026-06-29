@@ -1,5 +1,8 @@
 ### CC Madhya 19.144
 
+> তার মধ্যে ‘স্থাবর’, ‘জঙ্গম’ — দুই ভেদ ।
+> জঙ্গমে তির্যক্-জল-স্থলচর-বিভেদ ॥১৪৪॥
+
 > tāra madhye 'sthāvara', jaṅgama'—dui bheda
 > jaṅgame tiryak-jala-sthalacara-vibheda
 

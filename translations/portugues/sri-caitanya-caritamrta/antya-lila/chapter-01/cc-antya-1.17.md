@@ -1,5 +1,8 @@
 ### CC Antya 1.17
 
+> এক কুক্কুর চলে শিবানন্দ-সনে ।
+> ভক্ষ্য দিয়া লঞা চলে করিয়া পালনে ॥১৭॥
+
 eka kukkura cale śivānanda-sane
 
 bhakṣya diyā lañā cale kariyā pālane

@@ -1,5 +1,10 @@
 ### CC Madhya 21.110
 
+> মাধুর্য ভগবত্তা-সার, ব্রজে কৈল পরচার,
+> তাহা শুক — ব্যাসের নন্দন ।
+> স্থানে স্থানে ভাগবতে, বর্ণিয়াছে জানাইতে,
+> তাহা শুনি’ মাতে ভক্তগণ ॥১১০॥
+
 > mādhurya bhagavattā-sāra, vraje kaila paracāra,
 > tāhā śuka—vyāsera nandana
 > sthāne sthāne bhāgavate, varṇiyāche jānāite,

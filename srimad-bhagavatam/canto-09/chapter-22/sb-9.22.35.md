@@ -1,5 +1,8 @@
 ### SB 9.22.35
 
+> तवेमे तनयास्तात जनमेजयपूर्वकाः
+> श्रुतसेनो भीमसेन उग्रसेनश्च वीर्यवान ॥३५॥
+
 > taveme tanayās tāta
 > janamejaya-pūrvakāḥ
 > śrutaseno bhīmasena

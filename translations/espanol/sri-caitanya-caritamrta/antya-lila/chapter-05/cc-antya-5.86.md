@@ -1,5 +1,8 @@
 ### CC Antya 5.86
 
+> হরিদাস-দ্বারা নাম-মাহাত্ম্য-প্রকাশ ।
+> সনাতন-দ্বারা ভক্তিসিদ্ধান্তবিলাস ॥৮৬॥
+
 > haridāsa-dvārā nāma-māhātmya-prakāśa
 > sanātana-dvārā bhakti-siddhānta-vilāsa
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.118
 
+> ‘আজি আমা অঙ্গীকার করিয়াছে বচনে ।
+> কালি অবশ্য তাহার সঙ্গে হইবে সঙ্গমে ।।” ॥ ১১৮ ॥
+
 > 'āji āmā aṅgīkāra kariyāche vacane
 > kāli avaśya tāhāra saṅge ha-ibe saṅgame'
 

@@ -1,5 +1,8 @@
 ### SB 3.2.32
 
+> अयाजयद्गोसवेन गोपराजं द्विजोत्तमैः ।
+> वित्तस्य चोरुभारस्य चिकीर्षन्सद्व्ययं विभुः ॥३२॥
+
 > ayājayad go-savena
 > gopa-rājaṁ dvijottamaiḥ
 > vittasya coru-bhārasya

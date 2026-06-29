@@ -1,5 +1,8 @@
 ### CC Madhya 1.266
 
+> রামচন্দ্রপুরী-ভয়ে ভিক্ষা ঘাটাইলা ।
+> বৈষ্ণবের দুঃখ দেখি’ অর্ধেক রাখিলা ॥২৬৬॥
+
 rāmacandra-purī-bhaye bhikṣā ghāṭāilā
 
 vaiṣṇavera duḥkha dekhi' ardheka rākhilā

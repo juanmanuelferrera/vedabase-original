@@ -1,5 +1,8 @@
 ### CC Madhya 7.5
 
+> ফাল্গুনের শেষে দোলযাত্রা সে দেখিল ৷
+> প্রেমাবেশে তাঁহা বহু নৃত্যগীত কৈল ৷৷ ৫ ৷৷ ॥৫॥
+
 phālgunera śeṣe dola-yātrā se dekhila
 premāveśe tāṅhā bahu nṛtya-gīta kaila
 

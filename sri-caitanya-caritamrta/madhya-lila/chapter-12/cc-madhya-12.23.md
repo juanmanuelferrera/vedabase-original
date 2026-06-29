@@ -1,5 +1,8 @@
 ### CC Madhya 12.23
 
+> তোমা-সবার ইচ্ছা, — এই আমারে লঞা  ।
+> রাজাকে মিলহ ইহঁ কটকেতে গিয়া ॥২৩॥
+
 > tomā-sabāra icchā,-ei āmāre lañā
 > rājāke milaha ihaṅ kaṭakete giyā
 

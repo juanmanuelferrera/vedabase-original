@@ -1,5 +1,8 @@
 ### CC Madhya 8.103
 
+> রাধা লাগি’ গোপীরে যদি সাক্ষাৎ করে ত্যাগ ।
+> তবে জানি, — রাধায় কৃষ্ণের গাঢ়-অনুরাগ ॥১০৩॥
+
 > rādhā lāgi' gopīre yadi sākṣāt kare tyāga
 > tabe jāni,--rādhāya kṛṣṇera gāḍha-anurāga
 

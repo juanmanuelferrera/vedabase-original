@@ -1,5 +1,8 @@
 ### CC Madhya 23.42
 
+> প্রেমা ক্রমে বাড়ি’ হয় — স্নেহ, মান, প্রণয় ।
+> রাগ, অনুরাগ, ভাব, মহাভাব হয় ॥৪২॥
+
 premā krame bāḍi' haya--sneha, māna, praṇaya
 
 rāga, anurāga, bhāva, mahābhāva haya

@@ -1,5 +1,8 @@
 ### SB 3.20.32
 
+> अहो रूपमहो धैर्यमहो अस्या नवं वयः ।
+> मध्ये कामयमानानामकामेव विसर्पति ॥३२॥
+
 > aho rūpam aho dhairyam
 > aho asyā navaṁ vayaḥ
 > madhye kāmayamānānām

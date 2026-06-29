@@ -1,5 +1,8 @@
 ### CC Madhya 4.158
 
+> গোপাল আসিয়া কহে, — শুন হে মাধব ।
+> কর্পূর-চন্দন আমি পাইলাম সব ॥১৫৮॥
+
 > gopāla āsiyā kahe,--śuna he mādhava
 > karpūra-candana āmi pāilāma saba
 

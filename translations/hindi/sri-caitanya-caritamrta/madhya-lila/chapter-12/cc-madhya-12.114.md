@@ -1,5 +1,8 @@
 ### CC Madhya 12.114
 
+> প্রেমাবেশে প্রভু কহে ‘কৃষ্ণ’ ‘কৃষ্ণ’-নাম ।
+> একলে প্রেমাবেশে করে শতজনের কাম ॥১১৪॥
+
 > premāveśe prabhu kahe 'kṛṣṇa' 'kṛṣṇa'-nāma
 > ekale premāveśe kare śata-janera kāma
 

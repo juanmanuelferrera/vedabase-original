@@ -1,5 +1,8 @@
 ### CC Antya 2.96
 
+> মহাভাগবত যেই, কৃষ্ণ প্রাণধন যার ।
+> মায়াবাদ-শ্রবণে চিত্ত অবশ্য ফিরে তাঁর ।।” ॥ ৯৬ ॥
+
 > mahā-bhāgavata yei, kṛṣṇa prāṇa-dhana yāra
 > māyāvāda-śravaṇe citta avaśya phire tāṅra"
 

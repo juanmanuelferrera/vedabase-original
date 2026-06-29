@@ -1,5 +1,8 @@
 ### CC Adi 16.88
 
+> কহিতে চাহয়ে কিছু, না আইসে উত্তর ।
+> তবে বিচারয়ে মনে হইয়া ফাঁফর ॥৮৮॥
+
 > kahite cāhaye kichu, nā āise uttara
 > tabe vicāraye mane ha-iyā phāṅphara
 

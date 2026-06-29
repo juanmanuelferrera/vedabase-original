@@ -1,5 +1,8 @@
 ### CC Adi 17.147
 
+> এবে তুমি শান্ত হৈলে, আসি’ মিলিলাঙ ।
+> ভাগ্য মোর, — তোমা হেন অতিথি পাইলাঙ ॥১৪৭॥
+
 > ebe tumi śāntā haile, āsi, mililāṅ
 > bhāgya mora,—tomā hena atithi pāilāṅ
 

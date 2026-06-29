@@ -1,5 +1,8 @@
 ### SB 5.11.4
 
+> यावन्मनो रजसा पूरुषस्य सत्त्वेन वा तमसा वानुरुद्धम
+> चेतोभिराकूतिभिरातनोति निरङ्कुशं कुशलं चेतरं वा ॥४॥
+
 > yāvan mano rajasā pūruṣasya
 > sattvena vā tamasā vānuruddham
 > cetobhir ākūtibhir ātanoti

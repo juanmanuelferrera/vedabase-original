@@ -1,5 +1,8 @@
 ### SB 4.28.45
 
+> अजानती प्रियतमं यदोपरतमङ्गना ।
+> सुस्थिरासनमासाद्य यथापूर्वमुपाचरत् ॥४५॥
+
 > ajānatī priyatamaṁ
 > yadoparatam aṅganā
 > susthirāsanam āsādya

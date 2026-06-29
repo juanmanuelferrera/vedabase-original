@@ -1,5 +1,8 @@
 ### CC Madhya 16.88
 
+> বহুত উৎকণ্ঠা মোর যাইতে বৃন্দাবন ।
+> তোমার হঠে দুই বৎসর না কৈলুঁ গমন ॥৮৮॥
+
 > bahuta utkaṇṭhā mora yāite vṛndāvana
 > tomāra haṭhe dui vatsara nā kailuṅ gamana
 

@@ -1,5 +1,8 @@
 ### CC Antya 13.103
 
+> “ভাল হইল আইলা, দেখ ‘কমললোচন’ ।
+> আজি আমার এথা করিবা প্রসাদ ভোজন ।।” ॥ ১০৩ ॥
+
 > "bhāla ha-ila āilā, dekha 'kamala-locana'
 > āji āmāra ethā karibā prasāda bhojana"
 

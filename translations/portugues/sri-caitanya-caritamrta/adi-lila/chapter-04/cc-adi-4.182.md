@@ -1,5 +1,8 @@
 ### CC Adi 4.182
 
+> ‘এই দেহ কৈলুঁ আমি কৃষ্ণে সমর্পণ ।
+> তাঁর ধন তাঁর ইহা সম্ভোগ-সাধন ॥১৮২॥
+
 'ei deha kailuṅ āmi kṛṣṇe samarpaṇa
 tāṅra dhana tāṅra ihā sambhoga-sādhana
 

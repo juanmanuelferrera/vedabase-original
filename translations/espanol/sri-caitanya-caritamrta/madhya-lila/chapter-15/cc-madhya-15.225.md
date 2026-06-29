@@ -1,5 +1,7 @@
 ### CC Madhya 15.225
 
+> অলৌকিক এই সব অন্ন-ব্যঞ্জন ৷ দুই প্রহর ভিতরে কৈছে হইল রন্ধন ? ২২৫ ॥২২৫॥
+
 > alaukika ei saba anna-vyañjana
 > dui prahara bhitare kaiche ha-ila randhana?
 

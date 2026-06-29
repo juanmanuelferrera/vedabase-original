@@ -1,5 +1,8 @@
 ### CC Madhya 15.290
 
+> প্রভু-পদ ধরি’ ভট্ট কহিতে লাগিলা ।
+> মরিত’ অমোঘ, তারে কেনে জীয়াইলা ॥২৯০॥
+
 > prabhu-pada dhari' bhaṭṭa kahite lāgilā
 > marita' amogha, tāre kene jīyāilā
 

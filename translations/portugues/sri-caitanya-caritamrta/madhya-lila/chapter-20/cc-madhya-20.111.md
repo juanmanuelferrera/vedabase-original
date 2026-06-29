@@ -1,5 +1,8 @@
 ### CC Madhya 20.111
 
+> কৃষ্ণের স্বাভাবিক তিনশক্তি-পরিণতি ।
+> চিচ্ছক্তি, জীবশক্তি, আর মায়াশক্তি ॥১১১॥
+
 kṛṣṇera svābhāvika tina-śakti-pariṇati
 
 cic-chakti, jīva-śakti, āra māyā-śakti

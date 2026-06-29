@@ -1,5 +1,8 @@
 ### SB 1.10.21
 
+> स वै किलायं पुरुषः पुरातनो य एक आसीदविशेष आत्मनि ।
+> अग्रे गुणेभ्यो जगदात्मनीश्वरे निमीलितात्मन्निशि सुप्तशक्तिषु ॥२१॥
+
 > sa vai kilāyaṁ puruṣaḥ purātano
 > ya eka āsīd aviśeṣa ātmani
 > agre guṇebhyo jagad-ātmanīśvare

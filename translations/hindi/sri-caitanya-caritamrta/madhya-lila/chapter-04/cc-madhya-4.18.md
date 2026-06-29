@@ -1,5 +1,8 @@
 ### CC Madhya 4.18
 
+> মহাপ্রসাদ-ক্ষীর-লোভে রহিলা প্রভু তথা ।
+> পূর্বে ঈশ্বরপুরী তাঁরে কহিয়াছেন কথা ॥১৮॥
+
 > mahāprasāda-kṣīra-lobhe rahilā prabhu tathā
 > pūrve īśvara-purī tāṅre kahiyāchena kathā
 

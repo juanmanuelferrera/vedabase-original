@@ -1,5 +1,7 @@
 ### SB 5.6.12
 
+> अयमवतारो रजसोपप्लुतकैवल्योपशिक्षणार्थः ॥१२॥
+
 *ayam avatāro rajasopapluta*-kaivalyopaśikṣaṇārthaḥ.
 
 *ayam avatāraḥ*—esta encarnação (o Senhor Ṛṣabhadeva); *rajasā*—pelo modo da paixão; *upapluta*—subjugados; *kaivalya-upaśikṣaṇa-arthaḥ*—para ensinar às pessoas o caminho da liberação.

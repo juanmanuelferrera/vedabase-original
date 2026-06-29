@@ -1,5 +1,8 @@
 ### CC Madhya 16.268
 
+> রাত্রিকালে মনে আমি বিচার করিল ।
+> সনাতন মোরে কিবা ‘প্রহেলী’ কহিল ॥২৬৮॥
+
 > rātri-kāle mane āmi vicāra karila
 > sanātana more kibā 'prahelī' kahila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 25.131
 
+> অতএব ভাগবতে এই ‘তিন’ কয় ৷
+> সম্বন্ধ-অভিধেয়-প্রয়োজন-ময় ৷৷ ১৩১ ৷৷ ॥১৩১॥
+
 > ataeva bhāgavate ei 'tina' kaya
 > sambandha-abhidheya-prayojana-maya
 

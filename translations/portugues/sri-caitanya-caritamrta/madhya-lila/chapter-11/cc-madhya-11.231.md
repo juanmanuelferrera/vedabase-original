@@ -1,5 +1,8 @@
 ### CC Madhya 11.231
 
+> চারি জনের নৃত্য দেখিতে প্রভুর অভিলাষ ৷
+> সেই অভিলাষে করে ঐশ্বর্য প্রকাশ ৷৷ ২৩১ ৷৷ ॥২৩১॥
+
 cāri janera nṛtya dekhite prabhura abhilāṣa
 sei abhilāṣe kare aiśvarya prakāśa
 

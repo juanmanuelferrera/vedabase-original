@@ -1,5 +1,8 @@
 ### CC Madhya 20.375
 
+> যদ্যদ্বিভূতিমৎ সত্ত্বং শ্রীমদূর্জিতমেব বা ।
+> তত্তদেবাবগচ্ছ ত্বং মম তেজোহংশসম্ভবম্ ॥৩৭৫॥
+
 > yad yad vibhūtimat sattvaṁ
 > śrīmad ūrjitam eva vā
 > tat tad evāvagaccha tvaṁ

@@ -1,5 +1,8 @@
 ### CC Adi 7.164
 
+> মথুরাতে পাঠাইল রূপ-সনাতন ।
+> দুই সেনাপতি কৈল ভক্তি প্রচারণ ॥১৬৪॥
+
 > mathurāte pāṭhāila rūpa-sanātana
 > dui senā-pati kaila bhakti pracāraṇa
 

@@ -1,5 +1,8 @@
 ### SB 8.7.15
 
+> अहीन्द्रसाहस्रकठोरदृङ्मुख श्वासाग्निधूमाहतवर्चसोऽसुराः
+> पौलोमकालेयबलील्वलादयो दवाग्निदग्धाः सरला इवाभवन ॥१५॥
+
 > devāṁś ca tac-chvāsa-śikhā-hata-prabhān
 > dhūmrāmbara-srag-vara-kañcukānanān
 > samabhyavarṣan bhagavad-vaśā ghanā

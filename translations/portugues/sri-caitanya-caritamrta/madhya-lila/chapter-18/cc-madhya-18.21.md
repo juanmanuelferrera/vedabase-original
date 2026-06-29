@@ -1,5 +1,8 @@
 ### CC Madhya 18.21
 
+> ভট্টাচার্য ‘ব্রহ্মকুণ্ডে’ পাক যাঞা কৈল ।
+> ব্রহ্মকুণ্ডে স্নান করি’ প্রভু ভিক্ষা কৈল ॥২১॥
+
 bhaṭṭācārya 'brahma-kuṇḍe' pāka yāñā kaila
 
 brahma-kuṇḍe snāna kari' prabhu bhikṣā kaila

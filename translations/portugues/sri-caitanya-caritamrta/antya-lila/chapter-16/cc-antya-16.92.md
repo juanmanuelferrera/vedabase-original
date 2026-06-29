@@ -1,5 +1,8 @@
 ### CC Antya 16.92
 
+> তার অল্প লঞা প্রভু জিহ্বাতে যদি দিলা ।
+> আর সব গোবিন্দের আঁচলে বান্ধিলা ॥৯২॥
+
 tāra alpa lañā prabhu jihvāte yadi dilā
 
 āra saba govindera āṅcale bāndhilā

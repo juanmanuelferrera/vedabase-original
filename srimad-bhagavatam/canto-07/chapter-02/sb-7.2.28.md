@@ -1,5 +1,8 @@
 ### SB 7.2.28
 
+> उशीनरेष्वभूद्राजा सुयज्ञअ इति विश्रुतः
+> सपत्नैर्निहतो युद्धे ज्ञआतयस्तमुपासत ॥२८॥
+
 > uśīnareṣv abhūd rājā
 > suyajña iti viśrutaḥ
 > sapatnair nihato yuddhe

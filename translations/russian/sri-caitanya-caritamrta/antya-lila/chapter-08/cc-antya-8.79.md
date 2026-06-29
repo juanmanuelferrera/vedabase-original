@@ -1,5 +1,8 @@
 ### CC Antya 8.79
 
+> তার মধ্যে পূর্ববিধি ‘প্রশংসা’ ছাড়িয়া ।
+> পরবিধি ‘নিন্দা’ করে ‘বলিষ্ঠ’ জানিয়া ॥৭৯॥
+
 > tāra madhye pūrva-vidhi 'praśaṁsā' chāḍiyā
 > para-vidhi 'nindā' kare 'baliṣṭha' jāniyā
 

@@ -1,5 +1,8 @@
 ### CC Antya 11.37
 
+> প্রভু কহে, — “হরিদাস, যে তুমি মাগিবে ।
+> কৃষ্ণ কৃপাময় তাহা অবশ্য করিবে ॥৩৭॥
+
 prabhu kahe,--"haridāsa, ye tumi māgibe
 
 kṛṣṇa kṛpāmaya tāhā avaśya karibe

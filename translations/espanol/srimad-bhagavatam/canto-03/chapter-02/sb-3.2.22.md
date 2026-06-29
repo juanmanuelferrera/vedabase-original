@@ -1,5 +1,8 @@
 ### SB 3.2.22
 
+> तत्तस्य कैङ्कर्यमलं भृतान्नो विग्लापयत्यङ्ग यदुग्रसेनम् ।
+> तिष्ठन्निषण्णं परमेष्ठिधिष्ण्ये न्यबोधयद्देव निधारयेति ॥२२॥
+
 > tat tasya kaiṅkaryam alaṁ bhṛtān no
 > viglāpayaty aṅga yad ugrasenam
 > tiṣṭhan niṣaṇṇaṁ parameṣṭhi-dhiṣṇye

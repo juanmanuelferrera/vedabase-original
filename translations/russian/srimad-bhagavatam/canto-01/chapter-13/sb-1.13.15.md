@@ -1,5 +1,8 @@
 ### SB 1.13.15
 
+> अबिभ्रदर्यमा दण्डं यथावदघकारिषु ।
+> यावद्दधार शूद्रत्वं शापाद्वर्षशतं यमः ॥१५॥
+
 > abibhrad aryamā daṇḍaṁ
 > yathāvad agha-kāriṣu
 > yāvad dadhāra śūdratvaṁ

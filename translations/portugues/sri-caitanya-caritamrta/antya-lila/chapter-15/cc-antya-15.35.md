@@ -1,5 +1,8 @@
 ### CC Antya 15.35
 
+> আম্র, পনস, পিয়াল, জম্বু, কোবিদার ।
+> তীর্থবাসী সবে, কর পর-উপকার ॥৩৫॥
+
 āmra, panasa, piyāla, jambu, kovidāra
 
 tīrtha-vāsī sabe, kara para-upakāra

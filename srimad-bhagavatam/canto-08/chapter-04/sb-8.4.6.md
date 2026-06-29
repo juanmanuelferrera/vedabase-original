@@ -1,5 +1,8 @@
 ### SB 8.4.6
 
+> गजेन्द्रो भगवत्स्पर्शाद्विमुक्तोऽज्ञआनबन्धनात
+> प्राप्तो भगवतो रूपं पीतवासाश्चतुर्भुजः ॥६॥
+
 > gajendro bhagavat-sparśād
 > vimukto 'jñāna-bandhanāt
 > prāpto bhagavato rūpaṁ

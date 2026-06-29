@@ -1,5 +1,8 @@
 ### CC Madhya 1.106
 
+> তবে ত’ পাষণ্ডিগণে করিল দলন ।
+> অহোবল-নৃসিংহাদি কৈল দরশন ॥১০৬॥
+
 tabe ta' pāṣaṇḍī-gaṇe karila dalana
 
 ahovala-nṛsiṁhādi kaila daraśana

@@ -1,5 +1,8 @@
 ### CC Madhya 1.212
 
+> গৌড়-নিকট আসিতে নাহি মোর প্রয়োজন ।
+> তোমা-দুঁহা দেখিতে মোর ইহাঁ আগমন ॥২১২॥
+
 gauḍa-nikaṭa āsite nāhi mora prayojana
 
 tomā-duṅhā dekhite mora ihāṅ āgamana

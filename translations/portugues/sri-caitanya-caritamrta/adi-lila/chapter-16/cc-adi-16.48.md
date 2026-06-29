@@ -1,5 +1,8 @@
 ### CC Adi 16.48
 
+> প্রতিভার কাব্য তোমার দেবতা সন্তোষে ।
+> ভালমতে বিচারিলে জানি গুণদোষে ॥৪৮॥
+
 pratibhāra kāvya tomāra devatā santoṣe
 
 bhāla-mate vicārile jāni guṇa-doṣe

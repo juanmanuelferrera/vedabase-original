@@ -1,5 +1,8 @@
 ### CC Madhya 3.103
 
+> লবঙ্গ এলাচী-বীজ — উত্তম রসবাস ।
+> তুলসী-মঞ্জরী সহ দিল মুখবাস ॥১০৩॥
+
 lavaṅga elācī-bīja--uttama rasa-vāsa
 
 tulasī-mañjarī saha dila mukha-vāsa

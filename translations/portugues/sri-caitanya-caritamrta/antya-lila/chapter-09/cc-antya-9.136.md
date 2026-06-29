@@ -1,5 +1,8 @@
 ### CC Antya 9.136
 
+> লোকে চমৎকার মোর এ সব দেখিয়া ।
+> প্রশংসে তোমার কৃপা-মহিমা গাঞা ॥১৩৬॥
+
 loke camatkāra mora e saba dekhiyā
 
 praśaṁse tomāra kṛpā-mahimā gāñā

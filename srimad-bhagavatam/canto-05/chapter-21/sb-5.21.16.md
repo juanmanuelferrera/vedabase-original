@@ -1,5 +1,7 @@
 ### SB 5.21.16
 
+> पुरस्तात्सवितुररुणः पश्चाच्च नियुक्तः सौत्ये कर्मणि किलास्ते ॥१६॥
+
 > purastāt savitur aruṇaḥ paścāc ca niyuktaḥ sautye karmaṇi kilāste.
 
 *purastāt*—in front; *savituḥ*—of the sun-god; *aruṇaḥ*—the demigod named Aruṇa; *paścāt*—looking backward; *ca*—and; *niyuktaḥ*—engaged; *sautye*—of a charioteer; *karmaṇi*—in the work; *kila*—certainly; *āste*—remains.

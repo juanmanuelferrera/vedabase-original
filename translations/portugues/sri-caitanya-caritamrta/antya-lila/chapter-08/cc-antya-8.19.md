@@ -1,5 +1,8 @@
 ### CC Antya 8.19
 
+> পুরী-গোসাঞি করে কৃষ্ণনাম-সঙ্কীর্তন ।
+> ‘মথুরা না পাইনু’ বলি’ করেন ক্রন্দন ॥১৯॥
+
 purī-gosāñi kare kṛṣṇa-nāma-saṅkīrtana
 
 'mathurā nā pāinu' bali' karena krandana

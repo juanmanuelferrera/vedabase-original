@@ -1,5 +1,8 @@
 ### CC Antya 16.49
 
+> সেইগুণ লঞা প্রভু তাঁরে তুষ্ট হইলা ।
+> অন্যের দুর্লভ প্রসাদ তাঁহারে করিলা ॥৪৯॥
+
 > sei-guṇa lañā prabhu tāṅre tuṣṭa ha-ilā
 > anyera durlabha prasāda tāṅhāre karilā
 

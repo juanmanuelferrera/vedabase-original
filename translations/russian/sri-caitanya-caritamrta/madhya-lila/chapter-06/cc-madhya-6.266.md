@@ -1,5 +1,8 @@
 ### CC Madhya 6.266
 
+> যদ্যপি সে মুক্তি হয় পঞ্চ-পরকার ।
+> সালোক্য-সামীপ্য-সারূপ্য-সার্ষ্টি-সাযুজ্য আর ॥২৬৬॥
+
 > yadyapi se mukti haya pañca-parakāra
 > sālokya-sāmīpya-sārūpya-sārṣṭi-sāyujya āra
 

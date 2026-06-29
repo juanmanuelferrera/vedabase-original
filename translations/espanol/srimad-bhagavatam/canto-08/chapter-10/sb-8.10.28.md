@@ -1,5 +1,8 @@
 ### SB 8.10.28
 
+> युयोध बलिरिन्द्रेण तारकेण गुहोऽस्यत
+> वरुणो हेतिनायुध्यन्मित्रो राजन्प्रहेतिना ॥२८॥
+
 > yuyodha balir indreṇa
 > tārakeṇa guho 'syata
 > varuṇo hetināyudhyan

@@ -1,5 +1,8 @@
 ### SB 1.14.44
 
+> कच्चित्प्रेष्ठतमेनाथ हृदयेनात्मबन्धुना ।
+> शून्योऽस्मि रहितो नित्यं मन्यसे तेऽन्यथा न रुक् ॥४४॥
+
 > kaccit preṣṭhatamenātha
 > hṛdayenātma-bandhunā
 > śūnyo 'smi rahito nityaṁ

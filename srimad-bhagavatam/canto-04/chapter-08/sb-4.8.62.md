@@ -1,5 +1,8 @@
 ### SB 4.8.62
 
+> इत्युक्तस्तं परिक्रम्य प्रणम्य च नृपार्भकः ।
+> ययौ मधुवनं पुण्यं हरेश्चरणचर्चितम् ॥६२॥
+
 > ity uktas taṁ parikramya
 > praṇamya ca nṛpārbhakaḥ
 > yayau madhuvanaṁ puṇyaṁ

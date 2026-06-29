@@ -1,5 +1,8 @@
 ### SB 3.17.11
 
+> खराश्च कर्कशैः क्षत्तः खुरैर्घ्नन्तो धरातलम् ।
+> खार्काररभसा मत्ताः पर्यधावन्वरूथशः ॥११॥
+
 > kharāś ca karkaśaiḥ kṣattaḥ
 > khurair ghnanto dharā-talam
 > khārkāra-rabhasā mattāḥ

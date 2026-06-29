@@ -1,5 +1,8 @@
 ### CC Antya 3.22
 
+> তোমা বিনা তাঁহার রক্ষক নাহি দেখি আন ।
+> আমাকেহ যাতে তুমি কৈলা সাবধান ॥২২॥
+
 tomā vinā tāṅhāra rakṣaka nāhi dekhi āna
 
 āmāke-ha yāte tumi kailā sāvadhāna

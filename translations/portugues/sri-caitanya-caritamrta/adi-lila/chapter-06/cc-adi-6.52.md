@@ -1,5 +1,8 @@
 ### CC Adi 6.52
 
+> চৈতন্যগোসাঞি মোরে করে গুরু-জ্ঞান ।
+> তথাপিহ মোর হয় দাস-অভিমান ॥৫২॥
+
 caitanya-gosāñi more kare guru jñāna
 tathāpiha mora haya dāsa-abhimāna
 

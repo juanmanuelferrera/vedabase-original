@@ -1,5 +1,8 @@
 ### SB 2.2.13
 
+> एकैकशोऽङ्गानि धियानुभावयेत्पादादि यावद्धसितं गदाभृतः ।
+> जितं जितं स्थानमपोह्य धारयेत्परं परं शुद्ध्यति धीर्यथा यथा ॥१३॥
+
 ekaikaśo 'ṅgāni dhiyānubhāvayet
 pādādi yāvad dhasitaṁ gadābhṛtaḥ
 jitaṁ jitaṁ sthānam apohya dhārayet

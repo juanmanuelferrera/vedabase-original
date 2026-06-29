@@ -1,5 +1,8 @@
 ### CC Antya 10.69
 
+> এই পদে নৃত্য করেন পরম-আবেশে ।
+> সবলোক চৌদিকে প্রভুর প্রেম-জলে ভাসে ॥৬৯॥
+
 > ei pade nṛtya karena parama-āveśe
 > saba-loka caudike prabhura prema-jale bhāse
 

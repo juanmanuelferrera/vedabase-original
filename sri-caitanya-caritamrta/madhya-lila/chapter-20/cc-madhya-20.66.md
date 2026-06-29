@@ -1,5 +1,8 @@
 ### CC Madhya 20.66
 
+> প্রভু কহে, — “তোমার দুইভাই প্রয়াগে মিলিলা ।
+> রূপ, অনুপম — দুঁহে বৃন্দাবন গেলা” ॥৬৬॥
+
 > prabhu kahe,—"tomāra dui-bhāi prayāge mililā
 > rūpa, anupama—duṅhe vṛndāvana gelā"
 

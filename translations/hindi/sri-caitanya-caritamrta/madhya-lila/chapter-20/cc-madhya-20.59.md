@@ -1,5 +1,10 @@
 ### CC Madhya 20.59
 
+> বিপ্রাদ্দ্বিষড়্ গুণযুতাদরবিন্দনাভ-
+> পাদারবিন্দবিমুখাৎ শ্বপচং বরিষ্ঠম্ ।
+> মন্যে তদর্পিত-মনোবচনেহিতার্থ-
+> প্রাণং পুনাতি স কুলং ন তু ভূরিমানঃ ॥৫৯॥
+
 > viprād dviṣaḍ-guṇa-yutād aravinda-nābha-
 > pādāravinda-vimukhāt śva-pacaṁ variṣṭham
 > manye tad-arpita-mano-vacanehitārtha-

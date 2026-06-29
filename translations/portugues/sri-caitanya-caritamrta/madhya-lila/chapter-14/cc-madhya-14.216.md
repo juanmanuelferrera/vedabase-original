@@ -1,5 +1,8 @@
 ### CC Madhya 14.216
 
+> প্রভু কহে, — শ্রীবাস, তোমাতে নারদ-স্বভাব ।
+> ঐশ্বর্যভাবে তোমাতে, ঈশ্বর-প্রভাব ॥২১৬॥
+
 prabhu kahe,-śrīvāsa, tomāte nārada-svabhāva
 
 aiśvarya-bhāve tomāte, īśvara-prabhāva

@@ -1,5 +1,7 @@
 ### CC Antya 6.51
 
+> দধি, চিড়া ভক্ষণ করাহ মোর গণে ।” শুনি’ আনন্দিত হৈল রঘুনাথ মনে ॥৫১॥
+
 dadhi, ciḍā bhakṣaṇa karāha mora gaṇe"
 
 śuni' ānandita haila raghunātha mane

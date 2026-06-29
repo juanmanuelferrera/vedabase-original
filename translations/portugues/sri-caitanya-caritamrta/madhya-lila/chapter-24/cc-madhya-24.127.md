@@ -1,5 +1,8 @@
 ### CC Madhya 24.127
 
+> কৃষ্ণের দর্শনে, কারো কৃষ্ণের কৃপায় ।
+> মুমুক্ষা ছাড়িয়া গুণে ভজে তাঁর পা’য় ॥১২৭॥
+
 kṛṣṇera darśane, kāro kṛṣṇera kṛpāya
 
 mumukṣā chāḍiyā guṇe bhaje tāṅra pā'ya

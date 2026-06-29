@@ -1,5 +1,8 @@
 ### CC Madhya 13.22
 
+> লীলায় চড়িল ঈশ্বর রথের উপর ।
+> আর দুই রথে চড়ে সুভদ্রা, হলধর ॥২২॥
+
 > līlāya caḍila īśvara rathera upara
 > āra dui rathe caḍe subhadrā, haladhara
 

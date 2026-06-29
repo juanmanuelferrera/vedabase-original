@@ -1,5 +1,8 @@
 ### CC Madhya 22.1
 
+> বন্দে শ্রীকৃষ্ণচৈতন্যদেবং তং করুণার্ণবম্ ।
+> কলাবপ্যতিগূঢ়েয়ং ভক্তির্যেন প্রকাশিতা ॥১॥
+
 > vande śrī-kṛṣṇa-caitanya-
 > devaṁ taṁ karuṇārṇavam
 > kalāv apy ati-gūḍheyaṁ

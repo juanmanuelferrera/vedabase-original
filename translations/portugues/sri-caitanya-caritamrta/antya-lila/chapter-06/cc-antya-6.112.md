@@ -1,5 +1,8 @@
 ### CC Antya 6.112
 
+> পাক করি’ রাঘব যবে ভোগ লাগায়  ।
+> মহাপ্রভুর লাগি’ ভোগ পৃথক্ বাড়য় ॥১১২॥
+
 pāka kari' rāghava yabe bhoga lāgāya
 
 mahāprabhura lāgi' bhoga pṛthak bāḍaya

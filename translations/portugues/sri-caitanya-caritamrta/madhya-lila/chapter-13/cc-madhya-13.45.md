@@ -1,5 +1,8 @@
 ### CC Madhya 13.45
 
+> শান্তিপুরের আচার্যের এক সম্প্রদায় ।
+> অচ্যুতানন্দ নাচে তথা, আর সব গায় ॥৪৫॥
+
 śāntipurera ācāryera eka sampradāya
 
 acyutānanda nāce tathā, āra saba gāya

@@ -1,5 +1,8 @@
 ### CC Antya 8.62
 
+> এইরূপ মহাদুঃখে দিন কত গেল ।
+> শুনি’ রামচন্দ্রপুরী প্রভু-পাশ আইল ॥৬২॥
+
 > ei-rūpa mahā-duḥkhe dina kata gela
 > śuni, rāmacandra-purī prabhu-pāśa āila
 

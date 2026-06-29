@@ -1,5 +1,8 @@
 ### CC Madhya 6.161
 
+> ষড়্বিধ ঐশ্বর্য — প্রভুর চিচ্ছক্তি-বিলাস ৷
+> হেন শক্তি নাহি মান, — পরম সাহস ॥১৬১॥
+
 ṣaḍ-vidha aiśvarya--prabhura cic-chakti-vilāsa
 
 hena śakti nāhi māna,--parama sāhasa

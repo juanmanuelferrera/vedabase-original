@@ -1,5 +1,7 @@
 ### SB 5.22.6
 
+> अथ च यावतार्धेन नभोवीथ्यां प्रचरति तं कालमयनमाचक्षते ॥६॥
+
 > atha ca yāvatārdhena nabho-vīthyāṁ pracarati taṁ kālam ayanam ācakṣate.
 
 *atha*—now; *ca*—also; *yāvatā*—by as long as; *ardhena*—half; *nabhaḥ-vīthyām*—in outer space; *pracarati*—the sun moves; *tam*—that; *kālam*—time; *ayanam*—*ayana*; *ācakṣate*—is said.

@@ -1,5 +1,8 @@
 ### CC Madhya 19.240
 
+> প্রভু কহে, — তোমার কর্তব্য, আমার বচন ।
+> নিকটে আসিয়াছ তুমি, যাহ বৃন্দাবন ॥২৪০॥
+
 prabhu kahe,--tomāra kartavya, āmāra vacana
 
 nikaṭe āsiyācha tumi, yāha vṛndāvana

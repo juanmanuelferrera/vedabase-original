@@ -1,5 +1,8 @@
 ### CC Madhya 8.232
 
+> নায়ং শ্রিয়োঽঙ্গ উ নিতান্তরতেঃ প্রসাদঃ
+> লব্ধাশিষাং য উদগাদ্ব্রজসুন্দরীণাম্ ৷৷ ২৩২ ৷৷ ॥২৩২॥
+
 nāyaṁ śriyo 'ṅga u nitānta-rateḥ prasādaḥ
 
 svar-yoṣitāṁ nalina-gandha-rucāṁ kuto 'nyāḥ

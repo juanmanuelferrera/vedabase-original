@@ -1,5 +1,8 @@
 ### CC Madhya 8.254
 
+> ‘সর্ব ত্যজি’ জীবের কর্তব্য কাহাঁ বাস?’
+> ‘ব্রজভূমি বৃন্দাবন যাহাঁ লীলারাস ৷৷’ ২৫৪ ৷৷ ॥২৫৪॥
+
 'sarva tyaji' jīvera kartavya kāhāṅ vāsa?'
 
 'vraja-bhūmi vṛndāvana yāhāṅ līlā-rāsa'

@@ -1,5 +1,8 @@
 ### CC Madhya 25.129
 
+> সর্বভূতেষু যঃ পশ্যেদ্ভগবদ্ভাবমাত্মনঃ ।
+> ভূতানি ভগবত্যাত্মন্যেষ ভাগবতোত্তমঃ ॥১২৯॥
+
 > sarva-bhūteṣu yaḥ paśyed
 > bhagavad-bhāvam ātmanaḥ
 > bhūtāni bhagavaty ātmany

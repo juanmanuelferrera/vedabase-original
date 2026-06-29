@@ -1,5 +1,8 @@
 ### CC Antya 8.99
 
+> গুরু উপেক্ষা কৈলে, ঐছে ফল হয় ।
+> ক্রমে ঈশ্বরপর্যন্ত অপরাধে ঠেকয় ॥৯৯॥
+
 guru upekṣā kaile, aiche phala haya
 
 krame īśvara-paryanta aparādhe ṭhekaya

@@ -1,5 +1,8 @@
 ### CC Madhya 20.219
 
+> সর্বত্র প্রকাশ তাঁর — ভক্তে সুখ দিতে ।
+> জগতের অধর্ম নাশি’ ধর্ম স্থাপিতে ॥২১৯॥
+
 sarvatra prakāśa tāṅra--bhakte sukha dite
 
 jagatera adharma nāśi' dharma sthāpite

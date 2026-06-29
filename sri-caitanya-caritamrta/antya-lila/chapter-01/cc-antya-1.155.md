@@ -1,5 +1,10 @@
 ### CC Antya 1.155
 
+> হিত্বা দূরে পথি ধবতরোরন্তিকং ধর্মসেতো-
+> র্ভঙ্গোদগ্রা গুরুশিখরিণং রংহসা লঙ্ঘয়ন্তী ।
+> লেভে কৃষ্ণার্ণব নবরসা রাধিকা-বাহিনী ত্বাং
+> বাগ্বীচীভিঃ কিমিব বিমুখীভাবমস্যাস্তনোষি ॥১৫৫॥
+
 > hitvā dūre pathi dhava-taror antikaṁ dharā-setor
 > bhaṅgodagrā guru-śikhariṇaṁ raṁhasā laṅghayantī
 > lebhe kṛṣṇārṇava nava-rasā rādhikā-vāhinī tvāṁ

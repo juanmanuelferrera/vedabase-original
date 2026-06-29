@@ -1,5 +1,8 @@
 ### CC Madhya 25.196
 
+> কেহ কহে, — এই নহে, ‘অল্প’ দোষ হয় ।
+> শুনিয়া রহিলা রায় করিয়া সংশয় ॥১৯৬॥
+
 > keha kahe,-ei nahe, 'alpa' doṣa haya
 > śuniyā rahilā rāya kariyā saṁśaya
 

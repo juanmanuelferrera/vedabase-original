@@ -1,5 +1,8 @@
 ### CC Madhya 24.326
 
+> সূত্র করি’ দিশা যদি করহ উপদেশ ।
+> আপনে করহ যদি হৃদয়ে প্রবেশ ॥৩২৬॥
+
 > sūtra kari' diśā yadi karaha upadeśa
 > āpane karaha yadi hṛdaye praveśa
 

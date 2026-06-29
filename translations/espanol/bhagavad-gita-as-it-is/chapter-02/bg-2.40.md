@@ -1,5 +1,8 @@
 ### Bg 2.40
 
+> नेहाभिक्रमनाशोऽस्ति प्रत्यवायो न विद्यते ।
+> स्वल्पमप्यस्य धर्मस्य त्रायते महतो भयात् ॥४०॥
+
 > nehābhikrama-nāśo'sti
 > pratyavāyo na vidyate
 > svalpam apy asya dharmasya

@@ -1,5 +1,8 @@
 ### SB 9.24.66
 
+> जातो गतः पितृगृहाद्व्रजमेधितार्थो हत्वा रिपून्सुतशतानि कृतोरुदारः
+> उत्पाद्य तेषु पुरुषः क्रतुभिः समीजे आत्मानमात्मनिगमं प्रथयन्जनेषु ॥६६॥
+
 > jāto gataḥ pitṛ-gṛhād vrajam edhitārtho
 > hatvā ripūn suta-śatāni kṛtorudāraḥ
 > utpādya teṣu puruṣaḥ kratubhiḥ samīje

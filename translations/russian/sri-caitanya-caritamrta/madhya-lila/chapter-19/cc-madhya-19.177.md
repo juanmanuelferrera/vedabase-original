@@ -1,5 +1,8 @@
 ### CC Madhya 19.177
 
+> সাধনভক্তি হৈতে হয় ‘রতি’র উদয় ।
+> রতি গাঢ় হৈলে তার ‘প্রেম’ নাম কয় ॥১৭৭॥
+
 > sādhana-bhakti haite haya 'rati'ra udaya
 > rati gāḍha haile tāra 'prema' nāma kaya
 

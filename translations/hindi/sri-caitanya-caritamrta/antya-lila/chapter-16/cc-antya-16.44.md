@@ -1,5 +1,8 @@
 ### CC Antya 16.44
 
+> প্রাণিমাত্র লইতে না পায় সেই জল ।
+> অন্তরঙ্গ ভক্ত লয় করি’ কোন ছল ॥৪৪॥
+
 > prāṇi-mātra la-ite nā pāya sei jala
 > antaraṅga bhakta laya kari' kona chala
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.203
 
+> তিন ‘রঘুনাথ’-নাম হয় আমার গণে  ।
+> ‘স্বরূপের রঘু’ — আজি হৈতে ইহার নামে ।।” ২০৩ ॥২০৩॥
+
 tina 'raghunātha'-nāma haya āmāra gaṇe
 
 'svarūpera raghu'--āji haite ihāra nāme"

@@ -1,5 +1,8 @@
 ### CC Antya 13.43
 
+> তপনমিশ্র, চন্দ্রশেখর, — দোঁহারে মিলিলা ।
+> তাঁর ঠাঞি প্রভুর কথা সকলই শুনিলা ॥৪৩॥
+
 > tapana-miśra, candraśekhara,—doṅhāre mililā
 > tāṅra ṭhāñi prabhura kathā sakala-i śunilā
 

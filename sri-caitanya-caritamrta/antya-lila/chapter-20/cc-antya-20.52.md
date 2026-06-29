@@ -1,5 +1,10 @@
 ### CC Antya 20.52
 
+> না গণি আপন-দুঃখ, সবে বাঞ্ছি তাঁর সুখ,
+> তাঁর সুখ — আমার তাৎপর্য ।
+> মোরে যদি দিয়া দুঃখ, তাঁর হৈল মহাসুখ,
+> সেই দুঃখ — মোর সুখবর্য ॥৫২॥
+
 > nā gaṇi āpana-duḥkha, sabe vāñchi tāṅra sukha,
 > tāṅra sukha—āmāra tātparya
 > more yadi diyā duḥkha, tāṅra haila mahā-sukha,

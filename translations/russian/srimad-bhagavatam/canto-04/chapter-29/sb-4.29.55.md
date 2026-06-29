@@ -1,5 +1,10 @@
 ### SB 4.29.55
 
+> स त्वं विचक्ष्य मृगचेष्टितमात्मनोऽन्तश्
+> चित्तं नियच्छ हृदि कर्णधुनीं च चित्ते ।
+> जह्यङ्गनाश्रममसत्तमयूथगाथं
+> प्रीणीहि हंसशरणं विरम क्रमेण ॥५५॥
+
 > sa tvaṁ vicakṣya mṛga-ceṣṭitam ātmano 'ntaś
 > cittaṁ niyaccha hṛdi karṇa-dhunīṁ ca citte
 > jahy aṅganāśramam asattama-yūtha-gāthaṁ

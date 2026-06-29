@@ -1,5 +1,8 @@
 ### CC Madhya 3.34
 
+> প্রভু কহে, — নিত্যানন্দ আমারে বঞ্চিলা ।
+> গঙ্গাকে আনিয়া মোরে যমুনা কহিলা ॥৩৪॥
+
 > prabhu kahe,--nityānanda āmāre vañcilā
 > gaṅgāke āniyā more yamunā kahilā
 

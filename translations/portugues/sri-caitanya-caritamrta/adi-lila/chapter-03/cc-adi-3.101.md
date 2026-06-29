@@ -1,5 +1,8 @@
 ### CC Adi 3.101
 
+> শুদ্ধভাবে করিব কৃষ্ণের আরাধন ।
+> নিরন্তর সদৈন্যে করিব নিবেদন ॥১০১॥
+
 śuddha-bhāve kariba kṛṣṇera ārādhana
 nirantara sadainye kariba nivedana
 

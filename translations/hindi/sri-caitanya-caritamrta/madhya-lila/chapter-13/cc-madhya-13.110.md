@@ -1,5 +1,8 @@
 ### CC Madhya 13.110
 
+> সেই ফেন লঞা শুভানন্দ কৈল পান ।
+> কৃষ্ণপ্রেমরসিক তেঁহো মহাভাগ্যবান্ ॥১১০॥
+
 > sei phena lañā śubhānanda kaila pāna
 > kṛṣṇa-prema-rasika teṅho mahā-bhāgyavān
 

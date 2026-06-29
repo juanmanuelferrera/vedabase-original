@@ -1,5 +1,8 @@
 ### CC Antya 10.3
 
+> বর্ষান্তরে সব ভক্ত প্রভুরে দেখিতে ।
+> পরম-আনন্দে সবে নীলাচল যাইতে ॥৩॥
+
 varṣāntare saba bhakta prabhure dekhite
 parama-ānande sabe nīlācala yāite
 

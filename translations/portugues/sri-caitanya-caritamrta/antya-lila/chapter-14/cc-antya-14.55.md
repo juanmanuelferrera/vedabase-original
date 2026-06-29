@@ -1,5 +1,8 @@
 ### CC Antya 14.55
 
+> এত কহি’ মহাপ্রভু মৌন করিলা ।
+> রামানন্দ-রায় শ্লোক পড়িতে লাগিলা ॥৫৫॥
+
 eta kahi' mahāprabhu mauna karilā
 
 rāmānanda-rāya śloka paḍite lāgilā

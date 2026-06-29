@@ -1,5 +1,8 @@
 ### CC Antya 20.17
 
+> অনেক-লোকের বাঞ্ছা — অনেক-প্রকার ।
+> কৃপাতে করিল অনেক-নামের প্রচার ॥১৭॥
+
 > aneka-lokera vāñchā—aneka-prakāra
 > kṛpāte karila aneka-nāmera pracāra
 

@@ -1,5 +1,8 @@
 ### SB 5.18.12
 
+> यस्यास्ति भक्तिर्भगवत्यकिञ्चना सर्वैर्गुणैस्तत्र समासते सुराः
+> हरावभक्तस्य कुतो महद्गुणा मनोरथेनासति धावतो बहिः ॥१२॥
+
 > yasyāsti bhaktir bhagavaty akiñcanā
 > sarvair guṇais tatra samāsate surāḥ
 > harāv abhaktasya kuto mahad-guṇā

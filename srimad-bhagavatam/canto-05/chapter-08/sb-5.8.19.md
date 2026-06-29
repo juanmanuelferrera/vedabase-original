@@ -1,5 +1,7 @@
 ### SB 5.8.19
 
+> निम्लोचति ह भगवान्सकलजगत्क्षेमोदयस्त्रय्यात्माद्यापि मम न मृगवधून्यासआगच्छति ॥१९॥
+
 > nimlocati ha bhagavān sakala-jagat-kṣemodayas trayy-ātmādyāpi mama na mṛga-vadhū-nyāsa āgacchati.
 
 *nimlocati*—sets; *ha*—alas; *bhagavān*—the Supreme Personality of Godhead, represented as the sun; *sakala-jagat*—of all the universe; *kṣema-udayaḥ*—who increases the auspiciousness; *trayī-ātmā*—who consists of the three *Vedas*; *adya api*—until now; *mama*—my; *na*—not; *mṛga-vadhū-nyāsaḥ*—this baby deer entrusted to me by its mother; *āgacchati*—has come back.

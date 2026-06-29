@@ -1,5 +1,8 @@
 ### CC Madhya 24.11
 
+> ‘আত্মা’-শব্দে ব্রহ্ম, দেহ, মন, যত্ন, ধৃতি ।
+> বুদ্ধি, স্বভাব, — এই সাত অর্থ-প্রাপ্তি ॥১১॥
+
 'ātmā'-śabde brahma, deha, mana, yatna, dhṛti
 buddhi, svabhāva,--ei sāta artha-prāpti
 

@@ -1,5 +1,7 @@
 ### CC Antya 6.322
 
+> ‘কাঁহা বস্তু খাও সবে, মোরে না দেহ’ কেনে ?’ এত বলি’ এক গ্রাস করিলা ভক্ষণে ॥৩২২॥
+
 kāṅhā vastu khāo sabe, more nā deha' kene?'
 
 eta bali' eka grāsa karilā bhakṣaṇe

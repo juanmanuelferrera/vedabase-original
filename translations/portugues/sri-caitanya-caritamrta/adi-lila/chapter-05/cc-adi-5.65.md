@@ -1,5 +1,8 @@
 ### CC Adi 5.65
 
+> দূর হৈতে পুরুষ করে মায়াতে অবধান ।
+> জীবরূপ বীর্য তাতে করেন আধান ॥৬৫॥
+
 dūra haite puruṣa kare māyāte avadhāna
 jīva-rūpa vīrya tāte karena ādhāna
 

@@ -1,5 +1,10 @@
 ### CC Antya 1.128
 
+> সুধানাং চান্দ্রীণামপি মধুরিমোন্মাদ-দমনী
+> দধানা রাধাদিপ্রণয়ঘনসারৈঃ সুরভিতাম্ ।
+> সমন্তাৎ সন্তাপোদ্গম-বিষমসংসার-সরণী-
+> প্রণীতাং তে তৃষ্ণাং হরতু হরিলীলা-শিখরিণী ॥১২৮॥
+
 > sudhānāṁ cāndrīṇām api madhurimonmāda-damanī
 > dadhānā rādhādi-praṇaya-ghana-sāraiḥ surabhitām
 > samantāt santāpodgama-viṣama-saṁsāra-saraṇī-

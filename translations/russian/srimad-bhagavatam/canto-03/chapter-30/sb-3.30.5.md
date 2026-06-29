@@ -1,5 +1,8 @@
 ### SB 3.30.5
 
+> नरकस्थोऽपि देहं वै न पुमांस्त्यक्तुमिच्छति ।
+> नारक्यां निर्वृतौ सत्यां देवमायाविमोहितः ॥५॥
+
 > naraka-stho 'pi dehaṁ vai
 > na pumāṁs tyaktum icchati
 > nārakyāṁ nirvṛtau satyāṁ

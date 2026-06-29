@@ -1,5 +1,8 @@
 ### SB 2.9.16
 
+> भृत्यप्रसादाभिमुखं दृगासवं प्रसन्नहासारुणलोचनाननम् ।
+> किरीटिनं कुण्डलिनं चतुर्भुजं पीतांशुकं वक्षसि लक्षितं श्रिया ॥१६॥
+
 > bhṛtya-prasādābhimukhaṁ dṛg-āsavaṁ
 > prasanna-hāsāruṇa-locanānanam
 > kirīṭinaṁ kuṇḍalinaṁ catur-bhujaṁ

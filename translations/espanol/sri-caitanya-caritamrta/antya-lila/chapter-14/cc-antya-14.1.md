@@ -1,5 +1,8 @@
 ### CC Antya 14.1
 
+> কৃষ্ণবিচ্ছেদবিভ্রান্ত্যা মনসা বপুষা ধিয়া ।
+> যদ্যদ্ব্যধত্ত গৌরাঙ্গস্তল্লেশঃ কথ্যতেঽধুনা ॥১॥
+
 > kṛṣṇa-viccheda-vibhrāntyā
 > manasā vapuṣā dhiyā
 > yad yad vyadhatta gaurāṅgas

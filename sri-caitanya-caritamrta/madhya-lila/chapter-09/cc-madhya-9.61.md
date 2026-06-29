@@ -1,5 +1,8 @@
 ### CC Madhya 9.61
 
+> গুরু-কর্ণে কহে সবে ‘কৃষ্ণ’ ‘রাম’ ‘হরি’ ।
+> চেতন পাঞা আচার্য বলে ‘হরি’ ‘হরি’ ॥৬১॥
+
 > guru-karṇe kahe sabe 'kṛṣṇa' 'rāma' 'hari'
 > cetana pāñā ācārya bale 'hari' 'hari'
 

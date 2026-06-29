@@ -1,5 +1,8 @@
 ### CC Madhya 13.196
 
+> সেই স্থলে ভোগ লাগে, — আছয়ে নিয়ম ।
+> কোটি ভোগ জগন্নাথ করে আস্বাদন ॥১৯৬॥
+
 > sei sthale bhoga lāge,-āchaye niyama
 > koṭi bhoga jagannātha kare āsvādana
 

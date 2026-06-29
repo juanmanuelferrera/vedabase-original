@@ -1,5 +1,8 @@
 ### CC Madhya 6.197
 
+> অন্য যত সাধ্য-সাধন করি’ আচ্ছাদন ।
+> এই তিনে হরে সিদ্ধ-সাধকের মন ॥১৯৭॥
+
 anya yata sādhya-sādhana kari' ācchādana
 ei tine hare siddha-sādhakera mana
 

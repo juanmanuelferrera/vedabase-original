@@ -1,5 +1,8 @@
 ### CC Adi 8.14
 
+> যদি বা তার্কিক কহে, — তর্ক সে প্রমাণ ।
+> তর্কশাস্ত্রে সিদ্ধ যেই, সেই সেব্যমান ॥১৪॥
+
 > yadi vā tārkika kahe,—tarka se pramāṇa
 > tarka-śāstre siddha yei, sei sevyamāna
 

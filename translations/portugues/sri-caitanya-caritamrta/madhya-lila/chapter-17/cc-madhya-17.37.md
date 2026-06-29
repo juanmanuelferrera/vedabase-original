@@ -1,5 +1,8 @@
 ### CC Madhya 17.37
 
+> হেনকালে ব্যাঘ্র তথা আইল পাঁচ-সাত ।
+> ব্যাঘ্র-মৃগী মিলি’ চলে মহাপ্রভুর সাথ ॥৩৭॥
+
 hena-kāle vyāghra tathā āila pāṅca-sāta
 
 vyāghra-mṛgī mili' cale mahāprabhura sātha

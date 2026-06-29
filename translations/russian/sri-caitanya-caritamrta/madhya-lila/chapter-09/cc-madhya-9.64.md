@@ -1,5 +1,8 @@
 ### CC Madhya 9.64
 
+> মহাপ্রভু চলি’ আইলা ত্রিপতি-ত্রিমল্লে ।
+> চতুর্ভুজ মূর্তি দেখি’ ব্যেঙ্কটাদ্র্যে চলে ॥৬৪॥
+
 > mahāprabhu cali' āilā tripati-trimalle
 > catur-bhuja mūrti dekhi' vyeṅkaṭādrye cale
 

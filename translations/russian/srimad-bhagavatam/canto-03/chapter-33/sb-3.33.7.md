@@ -1,5 +1,8 @@
 ### SB 3.33.7
 
+> अहो बत श्वपचोऽतो गरीयान्यज्जिह्वाग्रे वर्तते नाम तुभ्यम् ।
+> तेपुस्तपस्ते जुहुवुः सस्नुरार्या ब्रह्मानूचुर्नाम गृणन्ति ये ते ॥७॥
+
 > aho bata śva-paco 'to garīyān
 > yaj-jihvāgre vartate nāma tubhyam
 > tepus tapas te juhuvuḥ sasnur āryā

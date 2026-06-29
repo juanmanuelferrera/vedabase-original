@@ -1,5 +1,7 @@
 ### SB 5.1.21
 
+> भगवानपि मनुना यथावदुपकल्पितापचितिः प्रियव्रतनारदयोरविषममभिसमीक्षमाणयोरात्मसमवस्थानमवाङ्मनसं क्षयमव्यवहृतंप्रवर्तयन्नगमत ॥२१॥
+
 *bhagavān api manunā yathāvad upakalpitāpacitiḥ priyavrata*-nāradayor aviṣamam abhisamīkṣamāṇayor ātmasam avasthānam avāṅ-manasaṁ kṣayam avyavahṛtaṁ pravartayann agamat.
 
 *bhagavān*—o poderosíssimo Senhor Brahmā; *api*—também; *manunā*—por Manu; *yathāvat*—como merecia; *upakalpita-apacitiḥ*—sendo adorado; *priyavrata-nāradayoḥ*—na presença de Priyavrata e Nārada; *aviṣamam*—sem aversão; *abhisamīkṣamāṇayoḥ*—observando; *ātmasam*—justamente adequada à sua posição; *avasthānam*—à sua morada; *avāk-manasam*—além da descrição da mente e das palavras; *kṣayam*—o planeta; *avyavahṛtam*—situado de modo extraordinário; *pravartayan*—partindo; *agamat*—retornou.

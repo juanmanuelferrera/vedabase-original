@@ -1,5 +1,8 @@
 ### CC Antya 12.58
 
+> ‘পরমেশ্বর কুশল হও, ভাল হৈল, আইলা’  ।
+> ‘মুকুন্দার মাতা আসিয়াছে’, সেহ প্রভুরে কহিলা ॥৫৮॥
+
 > 'parameśvara kuśala hao, bhāla haila, āilā'
 > 'mukundāra mātā āsiyāche, seha prabhure kahilā
 

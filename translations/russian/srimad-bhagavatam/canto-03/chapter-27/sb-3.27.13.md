@@ -1,5 +1,8 @@
 ### SB 3.27.13
 
+> एवं त्रिवृदहङ्कारो भूतेन्द्रियमनोमयैः ।
+> स्वाभासैर्लक्षितोऽनेन सदाभासेन सत्यदृक् ॥१३॥
+
 > evaṁ trivṛd-ahaṅkāro
 > bhūtendriya-manomayaiḥ
 > svābhāsair lakṣito 'nena

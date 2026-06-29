@@ -1,5 +1,8 @@
 ### CC Madhya 10.132
 
+> ঈশ্বর-পুরীর ভৃত্য, — ‘গোবিন্দ’ মোর নাম ।
+> পুরী-গোসাঞির আজ্ঞায় আইনু তোমার স্থান ॥১৩২॥
+
 > īśvara-purīra bhṛtya,-'govinda' mora nāma
 > purī-gosāñira ājñāya āinu tomāra sthāna
 

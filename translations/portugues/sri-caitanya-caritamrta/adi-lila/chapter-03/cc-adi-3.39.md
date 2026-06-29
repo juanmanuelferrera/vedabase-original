@@ -1,5 +1,8 @@
 ### CC Adi 3.39
 
+> দ্বাপরে ভগবান্ শ্যামঃ পীতবাসা নিজায়ুধঃ ।
+> শ্রীবৎসাদিভিরঙ্কৈশ্চ লক্ষণৈরুপলক্ষিতঃ ॥৩৯॥
+
 dvāpare bhagavān śyāmaḥ
 pīta-vāsā nijāyudhaḥ
 śrī-vatsādibhir aṅkaiś ca

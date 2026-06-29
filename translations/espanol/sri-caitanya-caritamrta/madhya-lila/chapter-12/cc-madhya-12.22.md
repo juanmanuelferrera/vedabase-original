@@ -1,5 +1,8 @@
 ### CC Madhya 12.22
 
+> যদ্যপি শুনিয়া প্ৰভুর কোমল হয় মন  ।
+> তথাপি বাহিরে কহে নিষ্ঠুর বচন ॥২২॥
+
 > yadyapi śuniyā prabhura komala haya mana
 > tathāpi bāhire kahe niṣṭhura vacana
 

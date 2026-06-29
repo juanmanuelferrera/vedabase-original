@@ -1,5 +1,8 @@
 ### CC Madhya 11.198
 
+> আসি’ জগন্নাথের কৈল চূড়া দরশন ৷
+> প্রভুর আবাসে আইলা করিতে ভোজন ৷৷ ১৯৮ ৷৷ ॥১৯৮॥
+
 āsi' jagannāthera kaila cūḍā daraśana
 prabhura āvāse āilā karite bhojana
 

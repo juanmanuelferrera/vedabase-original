@@ -1,5 +1,8 @@
 ### CC Madhya 8.165
 
+> ‘মহাভাব-চিন্তামণি’ রাধার স্বরূপ ।
+> ললিতাদি সখী — তাঁর কায়ব্যূহরূপ ॥১৬৫॥
+
 > 'mahābhāva-cintāmaṇi' rādhāra svarūpa
 > lalitādi sakhī--tāṅra kāya-vyūha-rūpa
 

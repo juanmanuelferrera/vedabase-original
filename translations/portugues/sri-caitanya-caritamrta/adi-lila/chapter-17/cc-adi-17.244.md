@@ -1,5 +1,8 @@
 ### CC Adi 17.244
 
+> চরণের ধূলি সেই লয় বার বার ।
+> দেখিয়া প্রভুর দুঃখ হইল অপার ॥২৪৪॥
+
 caraṇera dhūli sei laya vāra vāra
 
 dekhiyā prabhura duḥkha ha-ila apāra

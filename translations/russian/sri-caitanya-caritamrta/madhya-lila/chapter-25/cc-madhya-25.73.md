@@ -1,5 +1,8 @@
 ### CC Madhya 25.73
 
+> শ্রেষ্ঠ হঞা কেনে কর হীনের বন্দন ।
+> আমার সর্বনাশ হয়, তুমি ব্ৰহ্ম-সম ॥৭৩॥
+
 > śreṣṭha hañā kene kara hīnera vandana
 > āmāra sarva-nāśa haya, tumi brahma-sama
 

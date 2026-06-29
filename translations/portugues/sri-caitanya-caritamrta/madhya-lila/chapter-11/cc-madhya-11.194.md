@@ -1,5 +1,8 @@
 ### CC Madhya 11.194
 
+> এইস্থানে রহি’ কর নাম-সংকীর্তন ৷
+> প্রতিদিন আসি’ আমি করিব মিলন ৷৷ ১৯৪ ৷৷ ॥১৯৪॥
+
 ei-sthāne rahi' kara nāma saṅkīrtana
 prati-dina āsi' āmi kariba milana
 

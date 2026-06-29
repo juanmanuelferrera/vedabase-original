@@ -1,5 +1,8 @@
 ### CC Adi 17.169
 
+> তুমি যে কহিলে, পণ্ডিত, সেই সত্য হয় ।
+> আধুনিক আমার শাস্ত্র, বিচার-সহ নয় ॥১৬৯॥
+
 > tumi ye kahile, paṇḍita, sei satya haya
 > ādhunika āmāra śāstra, vicāra-saha naya
 

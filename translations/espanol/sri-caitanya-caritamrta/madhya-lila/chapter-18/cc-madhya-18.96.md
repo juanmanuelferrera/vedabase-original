@@ -1,5 +1,8 @@
 ### CC Madhya 18.96
 
+> এইমত তিন-রাত্রি লোকের গমন ।
+> সবে আসি’ কহে, — কৃষ্ণ পাইলুঁ দরশন ॥৯৬॥
+
 > ei-mata tina-rātri lokera gamana
 > sabe āsi' kahe,--kṛṣṇa pāiluṅ daraśana
 

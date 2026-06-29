@@ -1,5 +1,8 @@
 ### CC Adi 5.47
 
+> সর্বাশ্রয়, সর্বাদ্ভুত, ঐশ্বর্য অপার ।
+> ‘অনন্ত’ কহিতে নারে মহিমা যাঁহার ॥৪৭॥
+
 sarvāśraya, sarvādbhuta, aiśvarya apāra
 
 'ananta' kahite nāre mahimā yāṅhāra

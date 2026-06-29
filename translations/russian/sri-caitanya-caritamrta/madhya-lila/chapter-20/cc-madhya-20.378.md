@@ -1,5 +1,8 @@
 ### CC Madhya 20.378
 
+> কিশোরশেখর-ধর্মী ব্রজেন্দ্রনন্দন  ।
+> প্রকটলীলা করিবারে যবে করে মন ॥৩৭৮॥
+
 > kiśora-śekhara-dharmī vrajendra-nandana
 > prakaṭa-līlā karibāre yabe kare mana
 

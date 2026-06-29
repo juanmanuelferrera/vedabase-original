@@ -1,5 +1,8 @@
 ### CC Madhya 3.88
 
+> এই মত হাস্যরসে করেন ভোজন ।
+> অর্ধ-অর্ধ খাঞা প্রভু ছাড়েন ব্যঞ্জন ॥৮৮॥
+
 > ei mata hāsya-rase karena bhojana
 > ardha-ardha khāñā prabhu chāḍena vyañjana
 

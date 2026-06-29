@@ -1,5 +1,8 @@
 ### SB 4.1.41
 
+> चित्रकेतुः सुरोचिश्च विरजा मित्र एव च ।
+> उल्बणो वसुभृद्यानो द्युमान्शक्त्यादयोऽपरे ॥४१॥
+
 > citraketuḥ surociś ca
 > virajā mitra eva ca
 > ulbaṇo vasubhṛdyāno

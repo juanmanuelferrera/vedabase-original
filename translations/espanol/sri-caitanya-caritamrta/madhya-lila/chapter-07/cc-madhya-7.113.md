@@ -1,5 +1,8 @@
 ### CC Madhya 7.113
 
+> এইমত যাইতে যাইতে গেলা কূর্মস্থানে ৷
+> কূর্ম দেখি’ কৈল তাঁরে স্তবন-প্ৰণামে ৷৷ ১১৩ ৷৷ ॥১১৩॥
+
 > ei-mata yāite yāite gelā kūrma-sthāne
 > kūrma dekhi' kaila tāṅre stavana-praṇāme
 

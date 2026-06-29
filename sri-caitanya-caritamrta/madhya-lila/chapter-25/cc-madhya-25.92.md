@@ -1,5 +1,8 @@
 ### CC Madhya 25.92
 
+> তাঁর সূত্রের অর্থ কোন জীব নাহি জানে ।
+> অতএব আপনে সূত্রার্থ করিয়াছে ব্যাখ্যানে ॥৯২॥
+
 > tāṅra sūtrera artha kona jīva nāhi jāne
 > ataeva āpane sūtrārtha kariyāche vyākhyāne
 

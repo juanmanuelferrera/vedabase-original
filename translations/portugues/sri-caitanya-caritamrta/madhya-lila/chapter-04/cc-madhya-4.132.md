@@ -1,5 +1,8 @@
 ### CC Madhya 4.132
 
+> দ্বার দিয়া গ্রামে গেলা সেই ক্ষীর লঞা ।
+> হাটে হাটে বুলে মাধবপুরীকে চাহিঞা ॥১৩২॥
+
 dvāra diyā grāme gelā sei kṣīra lañā
 
 hāṭe hāṭe bule mādhava-purīke cāhiñā

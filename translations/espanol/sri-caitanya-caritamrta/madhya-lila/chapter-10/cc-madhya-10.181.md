@@ -3,6 +3,9 @@
 > prema vinā kabhu nahe tāṅra sākṣātkāra
 > iṅhāra kṛpāte haya daraśana iṅhāra
 
+> prema vinā kabhu nahe tāṅra sākṣātkāra
+> iṅhāra kṛpāte haya daraśana iṅhāra
+
 *prema vinā*—sin amor extático; *kabhu nahe*—jamás hay; *tāṅra*—Su; *sākṣātkāra*—encuentro directo; *iṅhāra kṛpāte*—por la misericordia de Śrī Caitanya Mahāprabhu; *haya*—se hace posible; *daraśana*—visión; *iṅhāra*—de Brahmānanda Bhāratī.
 
 **«Sin tener amor extático por Kṛṣṇa, uno no puede verlo directamente. De ahí que, por la misericordia de Śrī Caitanya Mahāprabhu, Brahmānanda Bhāratī haya adquirido la visión directa del Señor.»**

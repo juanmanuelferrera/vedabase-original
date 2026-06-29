@@ -1,5 +1,7 @@
 ### SB 5.14.33
 
+> एवमध्वन्यवरुन्धानो मृत्युगजभयात्तमसि गिरिकन्दरप्राये ॥३३॥
+
 *evam adhvany avarundhāno mṛtyu*-gaja-bhayāt tamasi giri-kandara-prāye.
 
 *evam*—dessa maneira; *adhvani*—no caminho da gratificação dos sentidos; *avarundhānaḥ*—estando confinado, esquece-se do verdadeiro propósito da vida; *mṛtyu-gaja-bhayāt*—por medo do elefante da morte; *tamasi*—na escuridão; *giri-kandara-prāye*—semelhante às cavernas escuras nas montanhas.

@@ -1,5 +1,8 @@
 ### CC Antya 3.18
 
+> এত বলি’ দামোদর মৌন হইলা  ।
+> অন্তরে সন্তোষ প্রভু হাসি’ বিচারিলা ॥১৮॥
+
 eta bali' dāmodara mauna ha-ilā
 
 antare santoṣa prabhu hāsi' vicārilā

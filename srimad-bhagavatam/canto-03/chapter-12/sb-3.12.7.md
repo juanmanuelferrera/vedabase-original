@@ -1,5 +1,8 @@
 ### SB 3.12.7
 
+> धिया निगृह्यमाणोऽपि भ्रुवोर्मध्यात्प्रजापतेः ।
+> सद्योऽजायत तन्मन्युः कुमारो नीललोहितः ॥७॥
+
 > dhiyā nigṛhyamāṇo 'pi
 > bhruvor madhyāt prajāpateḥ
 > sadyo 'jāyata tan-manyuḥ

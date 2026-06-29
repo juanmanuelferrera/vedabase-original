@@ -1,5 +1,8 @@
 ### SB 2.2.19
 
+> इत्थं मुनिस्तूपरमेद्व्यवस्थितो विज्ञानदृग्वीर्यसुरन्धिताशयः ।
+> स्वपार्ष्णिनापीड्य गुदं ततोऽनिलं स्थानेषु षट्सून्नमयेज्जितक्लमः ॥१९॥
+
 itthaṁ munis tūparamed vyavasthito
 vijñāna-dṛg-vīrya-surandhitāśayaḥ
 sva-pārṣṇināpīḍya gudaṁ tato 'nilaṁ

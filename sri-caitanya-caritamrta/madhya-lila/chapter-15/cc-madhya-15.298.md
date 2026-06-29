@@ -1,5 +1,8 @@
 ### CC Madhya 15.298
 
+> ঐছে ভট্ট-গৃহে করে ভোজন-বিলাস ।
+> তার মধ্যে নানা চিত্র-চরিত্র-প্রকাশ ॥২৯৮॥
+
 > aiche bhaṭṭa-gṛhe kare bhojana-vilāsa
 > tāra madhye nānā citra-caritra-prakāśa
 

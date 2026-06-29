@@ -1,5 +1,8 @@
 ### CC Madhya 22.129
 
+> সকলসাধন-শ্রেষ্ঠ এই পঞ্চ অঙ্গ  ।
+> কৃষ্ণপ্রেম জন্মায় এই পাঁচের অল্প সঙ্গ ॥১২৯॥
+
 sakala-sādhana-śreṣṭha ei pañca aṅga
 
 kṛṣṇa-prema janmāya ei pāṅcera alpa saṅga

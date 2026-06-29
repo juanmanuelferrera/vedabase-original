@@ -1,5 +1,7 @@
 ### SB 5.14.3
 
+> अथ च यत्र कौटुम्बिका दारापत्यादयो नाम्ना कर्मणा वृकसृगाला एवानिच्छतोऽपि कदर्यस्यकुटुम्बिन उरणकवत्संरक्ष्यमाणं मिषतोऽपि हरन्ति ॥३॥
+
 > atha ca yatra kauṭumbikā dārāpatyādayo nāmnā karmaṇā vṛka-sṛgālā evānicchato 'pi kadaryasya kuṭumbina uraṇakavat saṁrakṣyamāṇaṁ miṣato 'pi haranti.
 
 *atha*—in this way; *ca*—also; *yatra*—in which; *kauṭumbikāḥ*—the family members; *dāra-apatya-ādayaḥ*—beginning with the wife and children; *nāmnā*—by name only; *karmaṇā*—by their behavior; *vṛka-sṛgālāḥ*—tigers and jackals; *eva*—certainly; *anicchataḥ*—of one who does not desire to spend his wealth; *api*—certainly; *kadaryasya*—being too miserly; *kuṭumbinaḥ*—who is surrounded by family members; *uraṇaka-vat*—like a lamb; *saṁrakṣyamāṇam*—although protected; *miṣataḥ*—of one who is observing; *api*—even; *haranti*—they forcibly take away.

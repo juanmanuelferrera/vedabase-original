@@ -1,5 +1,8 @@
 ### CC Madhya 20.233
 
+> পুরুষোত্তম — চক্রপদ্মশঙ্খগদাধর ।
+> শ্রীঅচ্যুত — গদাপদ্মচক্রশঙ্খধর ॥২৩৩॥
+
 > puruṣottama—cakra-padma-śaṅkha-gadā-dhara
 > śrī-acyuta—gadā-padma-cakra-śaṅkha-dhara
 

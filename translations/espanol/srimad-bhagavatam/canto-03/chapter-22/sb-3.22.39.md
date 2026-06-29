@@ -1,5 +1,8 @@
 ### SB 3.22.39
 
+> एतत्त आदिराजस्य मनोश्चरितमद्भुतम् ।
+> वर्णितं वर्णनीयस्य तदपत्योदयं शृणु ॥३९॥
+
 > etat ta ādi-rājasya
 > manoś caritam adbhutam
 > varṇitaṁ varṇanīyasya

@@ -1,5 +1,8 @@
 ### CC Adi 4.170
 
+> ইহাকে কহিয়ে কৃষ্ণে দৃঢ় অনুরাগ ।
+> স্বচ্ছ ধৌতবস্ত্রে যৈছে নাহি কোন দাগ ॥১৭০॥
+
 > ihāke kahiye kṛṣṇe dṛḍha anurāga
 > svaccha dhauta-vastre yaiche nāhi kona dāga
 

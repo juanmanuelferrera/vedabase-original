@@ -1,5 +1,10 @@
 ### SB 4.7.14
 
+> विद्यातपोव्रतधरान्मुखतः स्म विप्रान्
+> ब्रह्मात्मतत्त्वमवितुं प्रथमं त्वमस्राक् ।
+> तद्ब्राह्मणान्परम सर्वविपत्सु पासि
+> पालः पशूनिव विभो प्रगृहीतदण्डः ॥१४॥
+
 > vidyā-tapo-vrata-dharān mukhataḥ sma viprān
 > brahmātma-tattvam avituṁ prathamaṁ tvam asrāk
 > tad brāhmaṇān parama sarva-vipatsu pāsi

@@ -1,5 +1,8 @@
 ### CC Adi 5.214
 
+> তাসামাবিরভূচ্ছৌরিঃ স্ময়মানমুখাম্বুজঃ ।
+> পীতাম্বরধরঃ স্রগ্বী সাক্ষান্মন্মথমন্মথঃ ॥২১৪॥
+
 > tāsām āvirabhūc chauriḥ
 > smayamāna-mukhāmbujaḥ
 > pītāmbara-dharaḥ sragvī

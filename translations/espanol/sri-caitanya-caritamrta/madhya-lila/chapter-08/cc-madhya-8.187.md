@@ -1,5 +1,8 @@
 ### CC Madhya 8.187
 
+> রায় কহে, — কৃষ্ণ হয় ‘ধীর-ললিত’ ৷
+> নিরন্তর কামক্রীড়া — যাঁহার চরিত ৷৷ ১৮৭ ৷৷ ॥১৮৭॥
+
 > rāya kahe,--kṛṣṇa haya 'dhīra-lalita'
 > nirantara kāma-krīḍā--yāṅhāra carita
 

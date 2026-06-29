@@ -1,5 +1,8 @@
 ### CC Madhya 20.198
 
+> দ্বাদশ-মাসের দেবতা — এইবার জন ।
+> মার্গশীর্ষে — কেশব, পৌষে — নারায়ণ ॥১৯৮॥
+
 > dvādaśa-māsera devatā—ei-bāra jana
 > mārga-śīrṣe—keśava, pauṣe—nārāyaṇa
 

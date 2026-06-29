@@ -1,5 +1,8 @@
 ### CC Antya 16.106
 
+> রামানন্দ-সার্বভৌম-স্বরূপাদি-গণে ।
+> সবারে প্রসাদ দিল করিয়া বণ্টনে ॥১০৬॥
+
 > rāmānanda-sārvabhauma-svarūpādi-gaṇe
 > sabāre prasāda dila kariyā baṇṭane
 

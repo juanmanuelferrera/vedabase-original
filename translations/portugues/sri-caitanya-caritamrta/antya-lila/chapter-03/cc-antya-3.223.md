@@ -1,5 +1,8 @@
 ### CC Antya 3.223
 
+> জগৎ-নিস্তার লাগি’ করেন চিন্তন ।
+> অবৈষ্ণব-জগৎ কেমনে হইবে মোচন ? ॥ ২২৩ ॥
+
 jagat-nistāra lāgi' karena cintana
 
 avaiṣṇava-jagat kemane ha-ibe mocana?

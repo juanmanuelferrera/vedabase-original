@@ -1,5 +1,8 @@
 ### CC Madhya 11.199
 
+> সবারে বসাইলা প্রভু যোগ্য ক্রম করি’ ।
+> শ্রীহস্তে পরিবেশন কৈল গৌরহরি ॥১৯৯॥
+
 > sabāre vasāilā prabhu yogya krama kari'
 > śrī-haste pariveśana kaila gaurahari
 

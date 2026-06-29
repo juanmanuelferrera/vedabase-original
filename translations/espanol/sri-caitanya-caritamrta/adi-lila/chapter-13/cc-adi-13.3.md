@@ -1,5 +1,8 @@
 ### CC Adi 13.3
 
+> জয় জয় গদাধর জয় শ্রীনিবাস ।
+> জয় মুকুন্দ বাসুদেব জয় হরিদাস ॥৩॥
+
 > jaya jaya gadādhara jaya śrīnivāsa
 > jaya mukunda vāsudeva jaya haridāsa
 

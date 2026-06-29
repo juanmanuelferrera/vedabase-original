@@ -1,5 +1,8 @@
 ### CC Adi 7.60
 
+> বসিয়া করিলা কিছু ঐশ্বর্য প্রকাশ ।
+> মহাতেজোময় বপু কোটিসূর্যাভাস ॥৬০॥
+
 > vasiyā karilā kichu aiśvarya prakāśa
 > mahātejomaya vapu koṭi-sūryābhāsa
 

@@ -1,5 +1,8 @@
 ### CC Madhya 19.211
 
+> শান্তরসে — ‘স্বরূপবুদ্ধ্যে কৃষ্ণৈকনিষ্ঠতা’ ৷
+> “শমো মন্নিষ্ঠতা বুদ্ধেঃ” ইতি শ্ৰীমুখ-গাথা ॥২১১॥
+
 śānta-rase--'svarūpa-buddhye kṛṣṇaika-niṣṭhatā'
 
 "śamo man-niṣṭhatā buddheḥ" iti śrī-mukha-gāthā

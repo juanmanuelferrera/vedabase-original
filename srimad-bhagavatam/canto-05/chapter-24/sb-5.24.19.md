@@ -1,5 +1,7 @@
 ### SB 5.24.19
 
+> नो एवैतत्साक्षात्कारो भूमिदानस्य यत्तद्भगवत्यशेषजीवनिकायानां जीवभूतात्मभूतेपरमात्मनि वासुदेवे तीर्थतमे पात्र उपपन्ने परया श्रद्धया परमादरसमाहितमनसासम्प्रतिपादितस्य साक्षादपवर्गद्वारस्य यद्बिलनिलयैश्वर्यम ॥१९॥
+
 > no evaitat sākṣātkāro bhūmi-dānasya yat tad bhagavaty aśeṣa-jīva-nikāyānāṁ jīva-bhūtātma-bhūte paramātmani vāsudeve tīrthatame pātra upapanne parayā śraddhayā paramādara-samāhita-manasā sampratipāditasya sākṣād apavarga-dvārasya yad bila-nilayaiśvaryam.
 
 *no*—not; *eva*—indeed; *etat*—this; *sākṣātkāraḥ*—the direct result; *bhūmi-dānasya*—of contribution of land; *yat*—which; *tat*—that; *bhagavati*—unto the Supreme Personality of Godhead; *aśeṣa-jīva-nikāyānām*—of unlimited numbers of living entities; *jīva-bhūta-ātma-bhūte*—who is the life and the Supersoul; *parama-ātmani*—the supreme regulator; *vāsudeve*—Lord Vāsudeva (Kṛṣṇa); *tīrtha-tame*—who is the best of all places of pilgrimage; *pātre*—the most worthy recipient; *upapanne*—having approached; *parayā*—by the topmost; *śraddhayā*—faith; *parama-ādara*—with great respect; *samāhita-manasā*—with an attentive mind; *sampratipāditasya*—which was given; *sākṣāt*—directly; *apavarga-dvārasya*—the gate of liberation; *yat*—which; *bila-nilaya*—of *bila-svarga,* the imitation heavenly planets; *aiśvaryam*—the opulence.

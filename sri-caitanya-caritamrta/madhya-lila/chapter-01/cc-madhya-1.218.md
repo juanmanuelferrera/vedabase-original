@@ -1,5 +1,8 @@
 ### CC Madhya 1.218
 
+> দুই জনে প্ৰভুর কৃপা দেখি’ ভক্তগণে ।
+> ‘হরি’ ‘হরি’ বলে সবে আনন্দিত-মনে ॥২১৮॥
+
 > dui jane prabhura kṛpā dekhi' bhakta-gaṇe
 > 'hari' 'hari' bale sabe ānandita-mane
 

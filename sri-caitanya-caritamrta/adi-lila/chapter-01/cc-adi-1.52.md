@@ -1,5 +1,8 @@
 ### CC Adi 1.52
 
+> যাবানহং যথাভাবো যদ্রূপগুণকর্মকঃ ।
+> তথৈব তত্ত্ববিজ্ঞানমস্তু তে মদনুগ্রহাৎ ॥৫২॥
+
 > yāvān ahaṁ yathā-bhāvo
 > yad-rūpa-guṇa-karmakaḥ
 > tathaiva tattva-vijñānam

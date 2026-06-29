@@ -1,5 +1,8 @@
 ### CC Madhya 24.107
 
+> জ্ঞানমার্গে উপাসক — দুইত’ প্রকার ।
+> কেবল ব্রহ্মোপাসক, মোক্ষাকাঙ্ক্ষী আর ॥১০৭॥
+
 > jñāna-mārge upāsaka--duita' prakāra
 > kevala brahmopāsaka, mokṣākāṅkṣī āra
 

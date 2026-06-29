@@ -1,5 +1,8 @@
 ### SB 1.7.30
 
+> संहत्यान्योन्यमुभयोस्तेजसी शरसंवृते ।
+> आवृत्य रोदसी खं च ववृधातेऽर्कवह्निवत् ॥३०॥
+
 > saṁhatyānyonyam ubhayos
 > tejasī śara-saṁvṛte
 > āvṛtya rodasī khaṁ ca

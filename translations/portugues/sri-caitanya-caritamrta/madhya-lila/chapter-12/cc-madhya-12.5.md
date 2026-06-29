@@ -1,5 +1,8 @@
 ### CC Madhya 12.5
 
+> কটক হৈতে পত্রী দিল সার্বভৌম-ঠাঞি ।
+> প্রভুর আজ্ঞা হয় যদি, দেখিবারে যাই ॥৫॥
+
 kaṭaka haite patrī dila sārvabhauma-ṭhāñi
 prabhura ājñā haya yadi, dekhibāre yāi
 

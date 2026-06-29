@@ -1,5 +1,8 @@
 ### CC Madhya 12.158
 
+> প্রভু-আজ্ঞা পাঞা বৈসে আপনে সার্বভৌম ।
+> পিণ্ডার উপরে প্রভু বৈসে লঞা ভক্তগণ ॥১৫৮॥
+
 prabhu-ājñā pāñā vaise āpane sārvabhauma
 
 piṇḍāra upare prabhu vaise lañā bhakta-gaṇa

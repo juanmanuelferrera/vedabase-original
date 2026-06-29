@@ -1,5 +1,8 @@
 ### SB 4.22.61
 
+> कन्दर्प इव सौन्दर्ये मनस्वी मृगराडिव ।
+> वात्सल्ये मनुवन्नृणां प्रभुत्वे भगवानजः ॥६१॥
+
 > kandarpa iva saundarye
 > manasvī mṛga-rāḍ iva
 > vātsalye manuvan nṛṇāṁ

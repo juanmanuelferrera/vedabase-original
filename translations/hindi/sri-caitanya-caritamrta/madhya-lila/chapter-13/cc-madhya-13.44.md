@@ -1,5 +1,8 @@
 ### CC Madhya 13.44
 
+> কুলীন-গ্রামের এক কীর্তনীয়া-সমাজ ।
+> তাহাঁ নৃত্য করেন রামানন্দ, সত্যরাজ ॥৪৪॥
+
 > kulīna-grāmera eka kīrtanīyā-samāja
 > tāhāṅ nṛtya karena rāmānanda, satyarāja
 

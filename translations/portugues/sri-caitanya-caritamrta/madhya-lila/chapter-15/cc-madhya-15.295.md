@@ -1,5 +1,8 @@
 ### CC Madhya 15.295
 
+> এত বলি’ প্রভু গেলা ঈশ্বর-দরশনে ৷
+> ভট্ট স্নান দর্শন করি’ করিলা ভোজনে ॥২৯৫॥
+
 eta bali' prabhu gelā īśvara-daraśane
 
 bhaṭṭa snāna darśana kari' karilā bhojane

@@ -1,5 +1,8 @@
 ### CC Madhya 16.166
 
+> সেই সব লোক হয় বাউলের প্রায় ।
+> ‘কৃষ্ণ’ কহি’ নাচে, কান্দে, গড়াগড়ি যায় ॥১৬৬॥
+
 > sei saba loka haya bāulera prāya
 > 'kṛṣṇa' kahi' nāce, kānde, gaḍāgaḍi yāya
 

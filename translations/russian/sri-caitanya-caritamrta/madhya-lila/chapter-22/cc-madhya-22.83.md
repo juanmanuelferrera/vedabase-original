@@ -1,5 +1,8 @@
 ### CC Madhya 22.83
 
+> কৃষ্ণভক্তি-জন্মমূল হয় ‘সাধুসঙ্গ’ ।
+> কৃষ্ণপ্রেম জন্মে, তেঁহো পুনঃ মুখ্য অঙ্গ ॥৮৩॥
+
 > kṛṣṇa-bhakti-janma-mūla haya 'sādhu-saṅga'
 > kṛṣṇa-prema janme, teṅho punaḥ mukhya aṅga
 

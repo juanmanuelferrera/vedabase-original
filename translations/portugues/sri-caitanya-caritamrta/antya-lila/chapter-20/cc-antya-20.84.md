@@ -1,5 +1,8 @@
 ### CC Antya 20.84
 
+> যে কিছু বর্ণিলুঁ, সেহ সংক্ষেপ করিয়া ।
+> লিখিতে না পারেন, তবু রাখিয়াছেন লিখিয়া ॥৮৪॥
+
 ye kichu varṇiluṅ, seha saṅkṣepa kariyā
 
 likhite nā pārena, tabu rākhiyāchena likhiyā

@@ -1,5 +1,8 @@
 ### CC Antya 20.63
 
+> এইমত মহাপ্রভু ভাবাবিষ্ট হঞা ।
+> প্রলাপ করিলা তত্তৎ শ্লোক পড়িয়া ॥৬৩॥
+
 ei-mata mahāprabhu bhāvāviṣṭa hañā
 
 pralāpa karilā tat-tat śloka paḍiyā

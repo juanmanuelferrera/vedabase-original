@@ -1,5 +1,10 @@
 ### CC Madhya 11.135-136
 
+> অদ্বৈত কহে, — ঈশ্বরের এই স্বভাব হয় ।
+> যদ্যপি আপনে পূর্ণ, সর্বৈশ্বর্যময় ॥১৩৫॥
+> তথাপি ভক্তসঙ্গে হয় সুখোল্লাস ।
+> ভক্ত-সঙ্গে করে নিত্য বিবিধ বিলাস ॥১৩৬॥
+
 > advaita kahe,-īśvarera ei svabhāva haya
 > yadyapi āpane pūrṇa, sarvaiśvarya-maya
 > tathāpi bhakta-saṅge haya sukhollāsa

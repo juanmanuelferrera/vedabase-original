@@ -1,5 +1,8 @@
 ### CC Madhya 6.6
 
+> প্রভুর সৌন্দর্য আর প্রেমের বিকার ।
+> দেখি’ সার্বভৌম হৈলা বিস্মিত অপার ॥৬॥
+
 > prabhura saundarya āra premera vikāra
 > dekhi' sārvabhauma hailā vismita apāra
 

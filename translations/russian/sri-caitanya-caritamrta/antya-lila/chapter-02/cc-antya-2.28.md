@@ -1,5 +1,8 @@
 ### CC Antya 2.28
 
+> চারিদিকে ধায় লোকে ‘শিবানন্দ’ বলি ।
+> শিবানন্দ কোন্, তোমায় বোলায় ব্রহ্মচারী ॥২৮॥
+
 > cāri-dike dhāya loke 'śivānanda' bali
 > śivānanda kon, tomāya bolāya brahmacārī
 

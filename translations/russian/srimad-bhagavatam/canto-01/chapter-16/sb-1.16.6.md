@@ -1,5 +1,8 @@
 ### SB 1.16.6
 
+> अथवास्य पदाम्भोज मकरन्दलिहां सताम् ।
+> किमन्यैरसदालापैरायुषो यदसद्व्ययः ॥६॥
+
 > athavāsya padāmbhoja-
 > makaranda-lihāṁ satām
 > kim anyair asad-ālāpair

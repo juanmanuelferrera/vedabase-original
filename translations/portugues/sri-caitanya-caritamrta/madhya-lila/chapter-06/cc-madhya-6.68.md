@@ -1,5 +1,8 @@
 ### CC Madhya 6.68
 
+> মুকুন্দদত্ত লঞা আইলা সার্বভৌম স্থানে ।
+> সার্বভৌম কিছু তাঁরে বলিলা বচনে ॥৬৮॥
+
 mukunda-datta lañā āilā sārvabhauma sthāne
 sārvabhauma kichu tāṅre balilā vacane
 

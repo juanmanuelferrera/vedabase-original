@@ -1,5 +1,8 @@
 ### CC Madhya 24.145
 
+> এই ছয় আত্মারাম কৃষ্ণেরে ভজয় ।
+> পৃথক্ পৃথক্ চ-কারে ইহা ‘অপি’র অর্থ কয় ॥১৪৫॥
+
 ei chaya ātmārāma kṛṣṇere bhajaya
 
 pṛthak pṛthak ca-kāre ihā 'api'ra artha kaya

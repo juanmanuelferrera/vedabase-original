@@ -1,5 +1,10 @@
 ### SB 1.16.35
 
+> का वा सहेत विरहं पुरुषोत्तमस्य
+> प्रेमावलोकरुचिरस्मितवल्गुजल्पैः ।
+> स्थैर्यं समानमहरन्मधुमानिनीनां
+> रोमोत्सवो मम यदङ्घ्रिविटङ्कितायाः ॥३५॥
+
 > kā vā saheta virahaṁ puruṣottamasya
 > premāvaloka-rucira-smita-valgu-jalpaiḥ
 > sthairyaṁ samānam aharan madhu-māninīnāṁ

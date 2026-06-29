@@ -1,5 +1,8 @@
 ### CC Adi 6.115
 
+> অদ্বৈত-মহিমা অনন্ত কে পারে কহিতে ।
+> সেই লিখি, যেই শুনি মহাজন হৈতে ॥১১৫॥
+
 advaita-mahimā ananta ke pāre kahite
 
 sei likhi, yei śuni mahājana haite

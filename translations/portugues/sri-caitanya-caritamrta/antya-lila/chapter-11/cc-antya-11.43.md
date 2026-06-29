@@ -1,5 +1,8 @@
 ### CC Antya 11.43
 
+> মধ্যাহ্ন করিতে প্রভু চলিলা আপনে ।
+> ঈশ্বর দেখিয়া কালি দিবেন দরশনে ॥৪৩॥
+
 madhyāhna karite prabhu calilā āpane
 
 īśvara dekhiyā kāli dibena daraśane

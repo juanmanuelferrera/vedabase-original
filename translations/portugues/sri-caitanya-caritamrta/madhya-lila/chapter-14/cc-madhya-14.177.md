@@ -1,5 +1,8 @@
 ### CC Madhya 14.177
 
+> নানা-স্বাদু অষ্টভাব একত্র মিলন ৷
+> যাহার আস্বাদে তৃপ্ত হয় কৃষ্ণ-মন ॥১৭৭॥
+
 nānā-svādu aṣṭa-bhāva ekatra milana
 
 yāhāra āsvāde tṛpta haya kṛṣṇa-mana

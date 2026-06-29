@@ -1,5 +1,8 @@
 ### CC Madhya 9.45
 
+> হারি’ হারি’ প্রভুমতে করেন প্রবেশ ।
+> এইমতে ‘বৈষ্ণব’ প্রভু কৈল দক্ষিণ দেশ ॥৪৫॥
+
 > hāri' hāri' prabhu-mate karena praveśa
 > ei-mate 'vaiṣṇava' prabhu kaila dakṣiṇa deśa
 

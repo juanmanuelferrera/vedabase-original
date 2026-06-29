@@ -1,5 +1,8 @@
 ### CC Antya 17.16
 
+> পেটের ভিতর হস্ত-পদ — কূর্মের আকার ।
+> মুখে ফেন, পুলকাঙ্গ, নেত্রে অশ্রুধার ॥১৬॥
+
 > peṭera bhitara hasta-pada—kūrmera ākāra
 > mukhe phena, pulakāṅga, netre aśru-dhāra
 

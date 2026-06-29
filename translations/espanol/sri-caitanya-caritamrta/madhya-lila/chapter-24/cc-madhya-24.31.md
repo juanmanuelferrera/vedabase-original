@@ -1,5 +1,8 @@
 ### CC Madhya 24.31
 
+> ‘রতি’-লক্ষণা, ‘প্রেম’-লক্ষণা, ইত্যাদি প্রচার ।
+> ভাবরূপা, মহাভাব-লক্ষণরূপা আর ॥৩১॥
+
 > 'rati'-lakṣaṇā, 'prema'-lakṣaṇā, ityādi pracāra
 > bhāva-rūpā, mahābhāva-lakṣaṇa-rūpā āra
 

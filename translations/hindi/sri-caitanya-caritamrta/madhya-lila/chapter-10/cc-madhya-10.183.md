@@ -1,5 +1,8 @@
 ### CC Madhya 10.183
 
+> এত বলি’ ভারতীরে লঞা নিজ-বাসা আইলা ।
+> ভারতী-গোসাঞি প্রভুর নিকটে রহিলা ॥১৮৩॥
+
 > eta bali' bhāratīre lañā nija-vāsā āilā
 > bhāratī-gosāñi prabhura nikaṭe rahilā
 

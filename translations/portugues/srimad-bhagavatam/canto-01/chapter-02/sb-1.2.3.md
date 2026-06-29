@@ -1,5 +1,8 @@
 ### SB 1.2.3
 
+> यः स्वानुभावमखिलश्रुतिसारमेकमध्यात्मदीपमतितितीर्षतां तमोऽन्धम् ।
+> संसारिणां करुणयाह पुराणगुह्यं तं व्याससूनुमुपयामि गुरुं मुनीनाम् ॥३॥
+
 *yaḥ svānubhāvam akhila-śruti*-sāram ekam
 *adhyātma*-dīpam atititīrṣatāṁ tamo 'ndham
 *saṁsāriṇāṁ karuṇayāha purāṇa*-guhyaṁ

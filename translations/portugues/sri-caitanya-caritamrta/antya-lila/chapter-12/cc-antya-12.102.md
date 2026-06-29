@@ -1,5 +1,8 @@
 ### CC Antya 12.102
 
+> শিবানন্দসেন-গৃহে যাঞা রহিলা ।
+> ‘চন্দনাদি’ তৈল তাহাঁ একমাত্রা কৈলা ॥১০২॥
+
 śivānanda-sena-gṛhe yāñā rahilā
 
 'candanādi' taila tāhāṅ eka-mātrā kailā

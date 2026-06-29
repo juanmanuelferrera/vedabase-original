@@ -1,5 +1,7 @@
 ### SB 5.16.22
 
+> यस्तु महाकदम्बः सुपार्श्वनिरूढो यास्तस्य कोटरेभ्यो विनिःसृताः पञ्चायामपरिणाहाःपञ्च मधुधाराः सुपार्श्वशिखरात्पतन्त्योऽपरेणात्मानमिलावृतमनुमोदयन्ति ॥२२॥
+
 *yas tu mahā*-kadambaḥ supārśva-nirūḍho yās tasya koṭarebhyo viniḥsṛtāḥ pañcāyāma-pariṇāhāḥ pañca madhu-dhārāḥ supārśva-śikharāt patantyo 'pareṇātmānam ilāvṛtam anumodayanti.
 
 *yaḥ*—que; *tu*—mas; *mahā-kadambaḥ*—a árvore chamada Mahākadamba; *supārśva-nirūḍhaḥ*—que se ergue do lado da montanha conhecida como Supārśva; *yāḥ*—que; *tasya*—dela; *koṭarebhyaḥ*—dos ocos; *viniḥsṛtāḥ*—correndo; *pañca*—cinco; *āyāma*—*vyāma*, uma unidade de medida de cerca de oito pés; *pariṇāhāḥ*—cuja medida; *pañca*—cinco; *madhu-dhārāḥ*—fluxos de mel; *supārśva-śikharāt*—do alto da Montanha Supārśva; *patantyaḥ*—caindo; *apareṇa*—no lado ocidental da Montanha Sumeru; *ātmānam*—toda a; *ilāvṛtam*—Ilāvṛta-varṣa; *anumodayanti*—tornam fragrante.

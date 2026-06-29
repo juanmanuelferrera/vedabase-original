@@ -1,5 +1,8 @@
 ### CC Antya 9.135
 
+> চাঙ্গের উপরে তোমার চরণ ধ্যান কৈলুঁ ।
+> চরণ-স্মরণ-প্রভাবে এই ফল পাইলুঁ ॥১৩৫॥
+
 cāṅgera upare tomāra caraṇa dhyāna kailuṅ
 
 caraṇa-smaraṇa-prabhāve ei phala pāiluṅ

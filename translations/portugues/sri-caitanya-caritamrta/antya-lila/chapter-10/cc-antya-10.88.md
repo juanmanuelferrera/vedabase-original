@@ -1,5 +1,8 @@
 ### CC Antya 10.88
 
+> গোবিন্দ কহে, — ‘করিতে চাহি পাদ-সম্বাহন’ ।
+> প্রভু কহে, — ‘কর বা না কর, যেই লয় তোমার মন’ ॥৮৮॥
+
 govinda kahe,--'karite cāhi pāda-samvāhana'
 
 prabhu kahe,--'kara vā nā kara, yei laya tomāra mana'

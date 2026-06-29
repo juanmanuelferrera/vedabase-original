@@ -1,5 +1,8 @@
 ### CC Antya 3.269
 
+> স্বরূপ-গোসাঞি কড়চায় যে-লীলা লিখিল  ।
+> রঘুনাথদাস-মুখে যে সব শুনিল ॥২৬৯॥
+
 > svarūpa-gosāñi kaḍacāya ye-līlā likhila
 > raghunātha-dāsa-mukhe ye saba śunila
 

@@ -1,5 +1,8 @@
 ### SB 3.2.23
 
+> अहो बकी यं स्तनकालकूटं जिघांसयापाययदप्यसाध्वी ।
+> लेभे गतिं धात्र्युचितां ततोऽन्यं कं वा दयालुं शरणं व्रजेम ॥२३॥
+
 > aho bakī yaṁ stana-kāla-kūṭaṁ
 > jighāṁsayāpāyayad apy asādhvī
 > lebhe gatiṁ dhātry-ucitāṁ tato 'nyaṁ

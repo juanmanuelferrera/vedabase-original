@@ -1,5 +1,8 @@
 ### SB 3.24.43
 
+> मनो ब्रह्मणि युञ्जानो यत्तत्सदसतः परम् ।
+> गुणावभासे विगुण एकभक्त्यानुभाविते ॥४३॥
+
 *mano brahmaṇi yuñjāno
 yat tat sad-asataḥ param
 guṇāvabhāse viguṇa

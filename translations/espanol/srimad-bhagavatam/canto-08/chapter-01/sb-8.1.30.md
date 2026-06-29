@@ -1,5 +1,8 @@
 ### SB 8.1.30
 
+> तत्रापि जज्ञए भगवान्हरिण्यां हरिमेधसः
+> हरिरित्याहृतो येन गजेन्द्रो मोचितो ग्रहात ॥३०॥
+
 > tatrāpi jajñe bhagavān
 > hariṇyāṁ harimedhasaḥ
 > harir ity āhṛto yena

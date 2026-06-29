@@ -1,5 +1,8 @@
 ### CC Antya 13.128
 
+> পিকস্বর-কণ্ঠ, তাতে রাগের বিভাগ ।
+> একশ্লোক পড়িতে ফিরায় তিন-চারি রাগ ॥১২৮॥
+
 > pika-svara-kaṇṭha, tāte rāgera vibhāga
 > eka-śloka paḍite phirāya tina-cāri rāga
 

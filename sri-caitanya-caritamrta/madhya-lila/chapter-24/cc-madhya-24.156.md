@@ -1,5 +1,8 @@
 ### CC Madhya 24.156
 
+> কেচিৎ স্বদেহান্তর্হৃদয়াবকাশে প্রাদেশমাত্রং পুরুষং বসন্তম্ ।
+> চতুর্ভুজং কঞ্জরথাঙ্গশঙ্খগদাধরং ধারণয়া স্মরন্তি ॥১৫৬॥
+
 > kecit svadehāntar hṛdayāvakāśe
 > prādeśa-mātraṁ puruṣaṁ vasantam
 > catur-bhujaṁ kañja-rathāṅga-śaṅkha-

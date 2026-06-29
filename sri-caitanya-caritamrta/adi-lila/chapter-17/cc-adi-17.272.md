@@ -1,5 +1,8 @@
 ### CC Adi 17.272
 
+> এত বলি’ ভারতী গোসাঞি কাটোয়াতে গেলা ।
+> মহাপ্রভু তাহা যাই’ সন্ন্যাস করিলা ॥২৭২॥
+
 > eta bali' bhāratī gosāñi kāṭoyāte gelā
 > mahāprabhu tāhā yāi' sannyāsa karilā
 

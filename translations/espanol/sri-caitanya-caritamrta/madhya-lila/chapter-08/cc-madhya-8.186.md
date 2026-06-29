@@ -1,5 +1,8 @@
 ### CC Madhya 8.186
 
+> প্রভু কহে, — জানিলুঁ কৃষ্ণ-রাধা-প্রেম-তত্ত্ব ৷
+> শুনিতে চাহিয়ে দুঁহার বিলাস-মহত্ত্ব ৷৷ ১৮৬ ৷৷ ॥১৮৬॥
+
 > prabhu kahe,--jāniluṅ kṛṣṇa-rādhā-prema-tattva
 > śunite cāhiye duṅhāra vilāsa-mahattva
 

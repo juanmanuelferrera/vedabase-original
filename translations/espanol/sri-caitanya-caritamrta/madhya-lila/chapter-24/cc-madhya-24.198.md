@@ -1,5 +1,8 @@
 ### CC Madhya 24.198
 
+> ভক্তি-প্রভাব, — সেই কাম ছাড়াঞা ।
+> কৃষ্ণপদে ভক্তি করায় গুণে আকর্ষিয়া ॥১৯৮॥
+
 > bhakti-prabhāva,--sei kāma chāḍāñā
 > kṛṣṇa-pade bhakti karāya guṇe ākarṣiyā
 

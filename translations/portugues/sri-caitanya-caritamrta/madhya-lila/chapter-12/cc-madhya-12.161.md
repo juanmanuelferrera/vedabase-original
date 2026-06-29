@@ -1,5 +1,8 @@
 ### CC Madhya 12.161
 
+> ভক্ত-সঙ্গে প্রভু করুন প্রসাদ অঙ্গীকার  ।
+> এ-সঙ্গে বসিতে যোগ্য নহি মুঞি ছার ॥১৬১॥
+
 bhakta-saṅge prabhu karuna prasāda aṅgīkāra
 
 e-saṅge vasite yogya nahi muñi chāra

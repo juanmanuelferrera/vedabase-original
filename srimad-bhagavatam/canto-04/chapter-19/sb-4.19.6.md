@@ -1,5 +1,8 @@
 ### SB 4.19.6
 
+> कपिलो नारदो दत्तो योगेशाः सनकादयः ।
+> तमन्वीयुर्भागवता ये च तत्सेवनोत्सुकाः ॥६॥
+
 > kapilo nārado datto
 > yogeśāḥ sanakādayaḥ
 > tam anvīyur bhāgavatā

@@ -1,5 +1,8 @@
 ### SB 8.1.6
 
+> कृतं पुरा भगवतः कपिलस्यानुवर्णितम
+> आख्यास्ये भगवान्यज्ञओ यच्चकार कुरूद्वह ॥६॥
+
 > kṛtaṁ purā bhagavataḥ
 > kapilasyānuvarṇitam
 > ākhyāsye bhagavān yajño

@@ -1,5 +1,8 @@
 ### SB 3.1.8
 
+> द्यूते त्वधर्मेण जितस्य साधोः सत्यावलम्बस्य वनं गतस्य ।
+> न याचतोऽदात्समयेन दायं तमोजुषाणो यदजातशत्रोः ॥८॥
+
 > dyūte tv adharmeṇa jitasya sādhoḥ
 > satyāvalambasya vanaṁ gatasya
 > na yācato 'dāt samayena dāyaṁ

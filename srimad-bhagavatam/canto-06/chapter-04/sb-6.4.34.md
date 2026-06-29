@@ -1,5 +1,8 @@
 ### SB 6.4.34
 
+> यः प्राकृतैरज्ञआनपथैर्जनानां यथाशयं देहगतो विभाति
+> यथानिलः पार्थिवमाश्रितो गुणं स ईश्वरो मे कुरुतां मनोरथम ॥३४॥
+
 > yaḥ prākṛtair jñāna-pathair janānāṁ
 > yathāśayaṁ deha-gato vibhāti
 > yathānilaḥ pārthivam āśrito guṇaṁ

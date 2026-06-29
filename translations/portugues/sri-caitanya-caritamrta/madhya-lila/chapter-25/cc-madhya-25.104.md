@@ -1,5 +1,8 @@
 ### CC Madhya 25.104
 
+> সাধনের ফল — ‘প্রেম’ মূল-প্রয়োজন ।
+> সেই প্রেমে পায় জীব আমার ‘সেবন’ ॥১০৪॥
+
 sādhanera phala-'prema' mūla-prayojana
 
 sei preme pāya jīva āmāra 'sevana'

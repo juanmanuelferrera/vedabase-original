@@ -1,5 +1,8 @@
 ### CC Madhya 23.60
 
+> চিত্রজল্পের দশ অঙ্গ — প্রজল্পাদি-নাম ।
+> ‘ভ্রমর-গীতা’র দশ শ্লোক তাহাতে প্রমাণ ॥৬০॥
+
 citra-jalpera daśa aṅga--prajalpādi-nāma
 
 'bhramara-gītā'ra daśa śloka tāhāte pramāṇa

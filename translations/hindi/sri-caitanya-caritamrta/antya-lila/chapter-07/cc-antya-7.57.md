@@ -1,5 +1,8 @@
 ### CC Antya 7.57
 
+> ভট্ট কহে, — “এ সব বৈষ্ণব রহে কোন্ স্থানে ?
+> কোন্ প্রকারে পাইমু ইহাঁ-সবার দর্শনে ? ॥৫৭॥
+
 > bhaṭṭa kahe,--"e saba vaiṣṇava rahe kon sthāne?
 > kon prakāre pāimu ihāṅ-sabāra darśane?
 

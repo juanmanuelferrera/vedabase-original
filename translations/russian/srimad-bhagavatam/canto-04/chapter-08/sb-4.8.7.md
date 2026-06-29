@@ -1,5 +1,8 @@
 ### SB 4.8.7
 
+> प्रियव्रतोत्तानपादौ शतरूपापतेः सुतौ ।
+> वासुदेवस्य कलया रक्षायां जगतः स्थितौ ॥७॥
+
 > priyavratottānapādau
 > śatarūpā-pateḥ sutau
 > vāsudevasya kalayā

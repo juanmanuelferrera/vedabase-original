@@ -1,5 +1,8 @@
 ### SB 5.25.1
 
+> श्रीशुक उवाच
+> तस्य मूलदेशे त्रिंशद्योजनसहस्रान्तर आस्ते या वै कला भगवतस्तामसी समाख्यातानन्त इतिसात्वतीया द्रष्टृदृश्ययोः सङ्कर्षणमहमित्यभिमानलक्षणं यं सङ्कर्षणमित्याचक्षते ॥१॥
+
 > śrī-śuka uvāca
 > tasya mūla-deśe triṁśad-yojana-sahasrāntara āste yā vai kalā bhagavatas tāmasī samākhyātānanta iti sātvatīyā draṣṭṛ-dṛśyayoḥ saṅkarṣaṇam aham ity abhimāna-lakṣaṇaṁ yaṁ saṅkarṣaṇam ity ācakṣate.
 

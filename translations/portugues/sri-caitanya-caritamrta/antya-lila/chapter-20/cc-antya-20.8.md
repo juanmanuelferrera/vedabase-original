@@ -1,5 +1,8 @@
 ### CC Antya 20.8
 
+> হর্ষে প্রভু কহেন, — “শুন স্বরূপ-রামরায় ।
+> নামসঙ্কীর্তন — কলৌ পরম উপায় ॥৮॥
+
 harṣe prabhu kahena,--"śuna svarūpa-rāma-rāya
 nāma-saṅkīrtana--kalau parama upāya
 

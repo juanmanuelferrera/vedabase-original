@@ -1,5 +1,8 @@
 ### CC Madhya 8.136
 
+> সচ্চিদানন্দ-তনু, ব্রজেন্দ্রনন্দন ৷
+> সর্বৈশ্বর্য-সর্বশক্তি-সর্বরস-পূর্ণ ৷৷ ১৩৬ ৷৷ ॥১৩৬॥
+
 sac-cid-ānanda-tanu, vrajendra-nandana
 
 sarvaiśvarya-sarvaśakti-sarvarasa-pūrṇa

@@ -1,5 +1,8 @@
 ### SB 8.8.34
 
+> पीतवासा महोरस्कः सुमृष्टमणिकुण्डलः
+> स्निग्धकुञ्चितकेशान्त सुभगः सिंहविक्रमः ॥३४॥
+
 > sa vai bhagavataḥ sākṣād
 > viṣṇor aṁśāṁśa-sambhavaḥ
 > dhanvantarir iti khyāta

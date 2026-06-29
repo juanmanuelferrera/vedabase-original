@@ -1,5 +1,8 @@
 ### SB 8.10.53
 
+> न तत्प्रतिविधिं यत्र विदुरिन्द्रादयो नृप
+> ध्यातः प्रादुरभूत्तत्र भगवान्विश्वभावनः ॥५३॥
+
 > na tat-pratividhiṁ yatra
 > vidur indrādayo nṛpa
 > dhyātaḥ prādurabhūt tatra

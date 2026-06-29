@@ -1,5 +1,8 @@
 ### CC Madhya 16.193
 
+> মহাপাত্র তাঁর সনে কৈল কোলাকুলি ।
+> অনেক সামগ্রী দিয়া করিল মিতালি ॥১৯৩॥
+
 > mahā-pātra tāṅra sane kaila kolākuli
 > aneka sāmagrī diyā karila mitāli
 

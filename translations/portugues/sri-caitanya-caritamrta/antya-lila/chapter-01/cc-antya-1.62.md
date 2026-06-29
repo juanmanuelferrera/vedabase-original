@@ -1,5 +1,8 @@
 ### CC Antya 1.62
 
+> ভক্তগণ লঞা কৈলা গুণ্ডিচা মার্জন ।
+> আইটোটা আসি’ কৈলা বন্য-ভোজন ॥৬২॥
+
 bhakta-gaṇa lañā kailā guṇḍicā mārjana
 
 āiṭoṭā āsi' kailā vanya-bhojana

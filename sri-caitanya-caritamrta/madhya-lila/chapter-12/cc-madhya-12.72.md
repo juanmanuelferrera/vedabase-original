@@ -1,5 +1,8 @@
 ### CC Madhya 12.72
 
+> প্রথমেই কাশীমিশ্রে প্রভু বোলাইল ।
+> পড়িছা-পাত্র, সার্বভৌমে বোলাঞা আনিল ॥৭২॥
+
 > prathamei kāśī-miśre prabhu bolāila
 > paḍichā-pātra, sārvabhaume bolāñā ānila
 

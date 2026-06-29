@@ -1,5 +1,8 @@
 ### CC Madhya 17.119
 
+> সার্বভৌম ভট্টাচার্য — পণ্ডিত প্রবল ।
+> শুনি’ চৈতন্যের সঙ্গে হইল পাগল ॥১১৯॥
+
 sārvabhauma bhaṭṭācārya--paṇḍita prabala
 
 śuni' caitanyera saṅge ha-ila pāgala

@@ -1,5 +1,8 @@
 ### CC Madhya 6.29
 
+> এত শুনি’ গোপীনাথ সবারে লঞা ।
+> সার্বভৌম-ঘরে গেলা হরষিত হঞা ॥২৯॥
+
 eta śuni' gopīnātha sabāre lañā
 sārvabhauma-ghare gelā haraṣita hañā
 

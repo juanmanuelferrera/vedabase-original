@@ -1,5 +1,8 @@
 ### CC Adi 7.53
 
+> আসি’ নিবেদন করে চরণে ধরিয়া ।
+> এক বস্তু মাগোঁ, দেহ প্রসন্ন হইয়া ॥৫৩॥
+
 āsi' nivedana kare caraṇe dhariyā
 
 eka vastu māgoṅ, deha prasanna ha-iyā

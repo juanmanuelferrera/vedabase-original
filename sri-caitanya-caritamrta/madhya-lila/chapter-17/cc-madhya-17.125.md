@@ -1,5 +1,8 @@
 ### CC Madhya 17.125
 
+> “তার আগে যবে আমি তোমার নাম লইল ।
+> সেহ তোমার নাম জানে, — আপনে কহিল ॥১২৫॥
+
 > "tāra āge yabe āmi tomāra nāma la-ila
 > seha tomāra nāma jāne,—āpane kahila
 

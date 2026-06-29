@@ -1,5 +1,8 @@
 ### CC Adi 17.214
 
+> তবে আমি প্রীতিবাক্য কহিল সবারে ।
+> সবে ঘরে যাহ, আমি নিষেধিব তারে ॥২১৪॥
+
 > tabe āmi prīti-vākya kahila sabāre
 > sabe ghare yāha, āmi niṣedhiba tāre
 

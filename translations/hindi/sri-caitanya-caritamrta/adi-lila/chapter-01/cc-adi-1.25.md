@@ -1,5 +1,8 @@
 ### CC Adi 1.25
 
+> চতুর্থ শ্লোকেতে করি জগতে আশীর্বাদ ।
+> সর্বত্র মাগিয়ে কৃষ্ণচৈতন্য-প্রসাদ ॥২৫॥
+
 > caturtha ślokete kari jagate āśīrvāda
 > sarvatra māgiye kṛṣṇa-caitanya-prasāda
 

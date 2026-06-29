@@ -1,5 +1,8 @@
 ### CC Madhya 20.394
 
+> জন্ম, বাল্য, পৌগণ্ড, কৈশোর প্রকাশ ।
+> পূতনা-বধাদি করি’ মৌষলান্ত বিলাস ॥৩৯৪॥
+
 janma, bālya, paugaṇḍa, kaiśora prakāśa
 
 pūtanā-vadhādi kari' mauṣalānta vilāsa

@@ -1,5 +1,8 @@
 ### CC Madhya 19.218
 
+> শান্তের স্বভাব — কৃষ্ণে মমতা-গন্ধহীন ।
+> ‘পরংব্রহ্ম’-‘পরমাত্মা’-জ্ঞান-প্রবীণ ॥২১৮॥
+
 > śāntera svabhāva--kṛṣṇe mamatā-gandha-hīna
 > 'paraṁ-brahma'-'paramātmā'-jñāna pravīṇa
 

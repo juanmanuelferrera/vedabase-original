@@ -1,5 +1,8 @@
 ### CC Adi 15.25
 
+> কত দিনে প্রভু চিত্তে করিলা চিন্তন ।
+> গৃহস্থ হইলাম, এবে চাহি গৃহধর্ম ॥২৫॥
+
 > kata dine prabhu citte karilā cintana
 > gṛhastha ha-ilāma, ebe cāhi gṛha-dharma
 

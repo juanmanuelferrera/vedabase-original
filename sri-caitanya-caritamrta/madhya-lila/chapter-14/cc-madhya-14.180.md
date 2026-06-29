@@ -1,5 +1,10 @@
 ### CC Madhya 14.180
 
+> অন্তঃস্মেরতয়োজ্জ্বলা জলকণব্যাকীর্ণপক্ষ্মাঙ্কুরা
+> কিঞ্চিৎপাটলিতাঞ্চলা রসিকতোৎসিক্তা পুরঃ কুঞ্চতী ।
+> রুদ্ধায়াঃ পথি মাধবেন মধুরব্যাভুগ্নতোরোত্তরা
+> রাধায়াঃ কিলকিঞ্চিতস্তবকিনী দৃষ্টিঃ শ্রিয়ং বঃ ক্রিয়াৎ ॥১৮০॥
+
 > antaḥ smeratayojjvalā jala-kaṇa-vyākīrṇa-pakṣmāṅkurā
 > kiñcit pāṭalitāñcalā rasikatotsiktā puraḥ kuñcatī
 > ruddhāyāḥ pathi mādhavena madhura-vyābhugna-torottarā

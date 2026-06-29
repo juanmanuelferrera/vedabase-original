@@ -1,5 +1,8 @@
 ### CC Madhya 15.72
 
+> এক এক ফলের মূল্য দিয়া চারিচারি পণ  ।
+> দশক্রোশ হৈতে আনায় করিয়া যতন ॥৭২॥
+
 > eka eka phalera mūlya diyā cāri-cāri paṇa
 > daśa-krośa haite ānāya kariyā yatana
 

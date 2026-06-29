@@ -1,5 +1,8 @@
 ### CC Madhya 7.111
 
+> অলৌকিক-লীলায় যার না হয় বিশ্বাস ।
+> ইহলোক, পরলোক তার হয় নাশ ॥১১১॥
+
 > alaukika-līlāya yāra nā haya viśvāsa
 > iha-loka, para-loka tāra haya nāśa
 

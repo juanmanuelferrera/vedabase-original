@@ -1,5 +1,10 @@
 ### SB 1.4.12
 
+> शिवाय लोकस्य भवाय भूतये
+> य उत्तमश्लोकपरायणा जनाः ।
+> जीवन्ति नात्मार्थमसौ पराश्रयं
+> मुमोच निर्विद्य कुतः कलेवरम् ॥१२॥
+
 > śivāya lokasya bhavāya bhūtaye
 > ya uttama-śloka-parāyaṇā janāḥ
 > jīvanti nātmārtham asau parāśrayaṁ

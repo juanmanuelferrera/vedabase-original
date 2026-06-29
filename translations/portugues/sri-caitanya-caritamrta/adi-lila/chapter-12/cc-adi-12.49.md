@@ -1,5 +1,8 @@
 ### CC Adi 12.49
 
+> প্রভু কহে, — বাউলিয়া, ঐছে কাহে কর ।
+> আচার্যের লজ্জা-ধর্ম-হানি যে আচর ॥৪৯॥
+
 prabhu kahe--bāuliyā, aiche kāhe kara
 ācāryera lajjā-dharma-hāni se ācara
 

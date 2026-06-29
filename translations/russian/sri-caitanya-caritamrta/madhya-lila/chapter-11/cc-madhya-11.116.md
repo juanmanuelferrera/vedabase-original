@@ -1,5 +1,8 @@
 ### CC Madhya 11.116
 
+> পূর্বে প্রভু মোরে প্রসাদ-অন্ন আনি’ দিল ।
+> প্রাতে শয্যায় বসি’ আমি সে অন্ন খাইল ॥১১৬॥
+
 > pūrve prabhu more prasāda-anna āni' dila
 > prāte śayyāya vasi' āmi se anna khāila
 

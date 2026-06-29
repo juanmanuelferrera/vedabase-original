@@ -1,5 +1,8 @@
 ### CC Adi 17.6
 
+> বিদ্যার ঔদ্ধত্যে কাহোঁ না করে গণন ।
+> সকল পণ্ডিত জিনি’ করে অধ্যাপন ॥৬॥
+
 > vidyāra auddhatye kāhoṅ nā kare gaṇana
 > sakala paṇḍita jini' kare adhyāpana
 

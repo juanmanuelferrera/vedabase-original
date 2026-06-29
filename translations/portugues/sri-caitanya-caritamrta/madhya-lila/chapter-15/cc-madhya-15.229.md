@@ -1,5 +1,8 @@
 ### CC Madhya 15.229
 
+> অন্নের সৌরভ্য, বর্ণ — অতি মনোরম ৷
+> রাধাকৃষ্ণ সাক্ষাৎ ইহাঁ করিয়াছেন ভোজন ॥২২৯॥
+
 annera saurabhya, varṇa--ati manorama
 
 rādhā-kṛṣṇa sākṣāt ihāṅ kariyāchena bhojana

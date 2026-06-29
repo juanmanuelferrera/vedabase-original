@@ -1,5 +1,8 @@
 ### SB 9.7.20
 
+> षष्ठं संवत्सरं तत्र चरित्वा रोहितः पुरीम
+> उपव्रजन्नजीगर्तादक्रीणान्मध्यमं सुतम ॥२०॥
+
 > ṣaṣṭhaṁ saṁvatsaraṁ tatra
 > caritvā rohitaḥ purīm
 > upavrajann ajīgartād

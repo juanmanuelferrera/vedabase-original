@@ -1,5 +1,8 @@
 ### CC Antya 12.11
 
+> শ্রীবাসাদি চারি ভাই, সঙ্গেতে মালিনী ।
+> আচার্যরত্নের সঙ্গে তাঁহার গৃহিণী ॥১১॥
+
 śrīvāsādi cāri bhāi, saṅgete mālinī
 ācāryaratnera saṅge tāṅhāra gṛhiṇī
 

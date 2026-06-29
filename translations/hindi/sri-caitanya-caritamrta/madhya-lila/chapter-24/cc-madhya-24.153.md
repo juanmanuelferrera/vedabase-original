@@ -1,5 +1,8 @@
 ### CC Madhya 24.153
 
+> “নির্গ্রন্থা অপি”র এই ‘অপি’ — সম্ভাবনে ।
+> এই সাত অর্থ প্রথমে করিলুঁ ব্যাখ্যানে ॥১৫৩॥
+
 > "nirgranthā api"ra ei 'api'--sambhāvane
 > ei sāta artha prathame kariluṅ vyākhyāne
 

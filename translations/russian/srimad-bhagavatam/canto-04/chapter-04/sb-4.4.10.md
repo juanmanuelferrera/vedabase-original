@@ -1,5 +1,8 @@
 ### SB 4.4.10
 
+> जगर्ह सामर्षविपन्नया गिरा शिवद्विषं धूमपथश्रमस्मयम् ।
+> स्वतेजसा भूतगणान्समुत्थितान्निगृह्य देवी जगतोऽभिशृण्वतः ॥१०॥
+
 > jagarha sāmarṣa-vipannayā girā
 > śiva-dviṣaṁ dhūma-patha-śrama-smayam
 > sva-tejasā bhūta-gaṇān samutthitān

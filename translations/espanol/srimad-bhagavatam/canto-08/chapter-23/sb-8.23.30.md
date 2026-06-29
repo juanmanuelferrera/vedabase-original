@@ -1,5 +1,8 @@
 ### SB 8.23.30
 
+> य इदं देवदेवस्य हरेरद्भुतकर्मणः
+> अवतारानुचरितं शृण्वन्याति परां गतिम ॥३०॥
+
 > ya idaṁ deva-devasya
 > harer adbhuta-karmaṇaḥ
 > avatārānucaritaṁ

@@ -1,5 +1,8 @@
 ### CC Adi 17.3
 
+> কৈশোর-লীলার সূত্র করিল গণন ।
+> যৌবনলীলার সূত্র করি অনুক্রম ॥৩॥
+
 > kaiśora-līlāra sūtra karila gaṇana
 > yauvana-līlāra sūtra kari anukrama
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.321
 
+> গোবিন্দের মুখে প্রভু সে বার্তা শুনিলা  ।
+> আর দিন আসি’ প্রভু কহিতে লাগিলা ॥৩২১॥
+
 > govindera mukhe prabhu se vārtā śunilā
 > āra dina āsi' prabhu kahite lāgilā
 

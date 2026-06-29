@@ -1,5 +1,8 @@
 ### CC Madhya 9.167
 
+> পরমানন্দপুরী তাহাঁ রহে চতুর্মাস ৷
+> শুনি’ মহাপ্রভু গেলা পুরী-গোসাঞির পাশ ৷৷ ১৬৭ ৷৷ ॥১৬৭॥
+
 > paramānanda-purī tāhāṅ rahe catur-māsa
 > śuni' mahāprabhu gelā purī-gosāñira pāśa
 

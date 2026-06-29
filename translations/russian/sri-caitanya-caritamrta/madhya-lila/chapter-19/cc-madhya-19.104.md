@@ -1,5 +1,8 @@
 ### CC Madhya 19.104
 
+> রসগণ-মধ্যে তুমি শ্রেষ্ঠ মান’ কায় ?
+> ‘আদ্য এব পরো রসঃ’ — কহে উপাধ্যায় ॥১০৪॥
+
 > rasa-gaṇa-madhye tumi śreṣṭha māna' kāya?
 > 'ādya eva paro rasaḥ'—kahe upādhyāya
 

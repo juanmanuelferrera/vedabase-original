@@ -1,5 +1,10 @@
 ### SB 7.6.25
 
+> तुष्टे च तत्र किमलभ्यमनन्त आद्ये
+> किं तैर्गुणव्यतिकरादिह ये स्वसिद्धाः
+> धर्मादयः किमगुणेन च काङ्क्षितेन
+> सारं जुषां चरणयोरुपगायतां नः ॥२५॥
+
 > tuṣṭe ca tatra kim alabhyam ananta ādye
 > kiṁ tair guṇa-vyatikarād iha ye sva-siddhāḥ
 > dharmādayaḥ kim aguṇena ca kāṅkṣitena

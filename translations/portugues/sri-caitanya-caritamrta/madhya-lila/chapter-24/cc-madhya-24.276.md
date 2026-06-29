@@ -1,5 +1,8 @@
 ### CC Madhya 24.276
 
+> কম্প-পুলকাশ্রু হৈল কৃষ্ণনাম গাঞা ।
+> ঊর্ধ্ববাহু নৃত্য করে বস্ত্র উড়াঞা ॥২৭৬॥
+
 kampa-pulakāśru haila kṛṣṇa-nāma gāñā
 
 ūrdhva bāhu nṛtya kare vastra uḍāñā

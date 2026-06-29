@@ -1,5 +1,8 @@
 ### CC Madhya 3.33
 
+> আচার্য কহে, — তুমি যাহাঁ, সেই বৃন্দাবন ।
+> মোর ভাগ্যে গঙ্গাতীরে তোমার আগমন ॥৩৩॥
+
 > ācārya kahe—tumi yāhāṅ, sei vṛndāvana
 > mora bhāgye gaṅgā-tīre tomāra āgamana
 

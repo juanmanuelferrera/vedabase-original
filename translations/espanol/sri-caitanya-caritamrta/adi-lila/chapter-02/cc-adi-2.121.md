@@ -1,5 +1,8 @@
 ### CC Adi 2.121
 
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
+> চৈতন্য-চরিতামৃত কহে কৃষ্ণদাস ॥১২১॥
+
 > śrī-rūpa-raghunātha-pade yāra āśa
 > caitanya-caritāmṛta kahe kṛṣṇadāsa
 

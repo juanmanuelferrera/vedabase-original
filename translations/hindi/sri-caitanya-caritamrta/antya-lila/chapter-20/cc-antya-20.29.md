@@ -1,5 +1,10 @@
 ### CC Antya 20.29
 
+> ন ধনং ন জনং ন সুন্দরীং
+> কবিতাং বা জগদীশ কাময়ে ।
+> মম জন্মনি জন্মনীশ্বরে
+> ভবতাদ্ভক্তিরহৈতুকী ত্বয়ি ॥২৯॥
+
 > na dhanaṁ na janaṁ na sundarīṁ
 > kavitāṁ vā jagadīśa kāmaye
 > mama janmani jamanīśvare

@@ -1,5 +1,8 @@
 ### CC Madhya 16.64
 
+> প্ৰতিবর্ষ নীলাচলে তুমি না আসিবা ।
+> গৌড়ে রহি’ মোর ইচ্ছা সফল করিবা ॥৬৪॥
+
 > prati-varṣa nīlācale tumi nā āsibā
 > gauḍe rahi' mora icchā saphala karibā
 

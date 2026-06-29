@@ -1,5 +1,8 @@
 ### CC Adi 8.34
 
+> কৃষ্ণলীলা ভাগবতে কহে বেদব্যাস ।
+> চৈতন্য-লীলার ব্যাস — বৃন্দাবন-দাস ॥৩৪॥
+
 kṛṣṇa-līlā bhāgavate kahe veda-vyāsa
 
 caitanya-līlāra vyāsa--vṛndāvana-dāsa

@@ -1,5 +1,8 @@
 ### CC Madhya 20.391
 
+> ঐছে কৃষ্ণের লীলা-মণ্ডল চৌদ্দমন্বন্তরে ।
+> ব্রহ্মাণ্ডমণ্ডল ব্যাপি’ ক্রমে ক্রমে ফিরে ॥৩৯১॥
+
 aiche kṛṣṇera līlā-maṇḍala caudda-manvantare
 
 brahmāṇḍa-maṇḍala vyāpi' krame krame phire

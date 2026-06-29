@@ -1,5 +1,8 @@
 ### CC Madhya 14.29
 
+> অমৃতমণ্ডা, সরবতী, আর কুম্ড়া-কুরী ।
+> সরামৃত, সরভাজা, আর সরপুরী ॥২৯॥
+
 amṛta-maṇḍā, saravatī, āra kumḍā-kurī
 
 sarāmṛta, sarabhājā, āra sarapurī

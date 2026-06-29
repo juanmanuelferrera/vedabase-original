@@ -1,5 +1,8 @@
 ### CC Madhya 19.69
 
+> ‘ইঁহো না স্পর্শিহ, ইঁহো জাতি অতি-হীন !
+> বৈদিক, যাজ্ঞিক তুমি কুলীন প্রবীণ !’ ॥ ৬৯ ॥
+
 'iṅho nā sparśiha, iṅho jāti ati-hīna!
 
 vaidika, yājñika tumi kulīna pravīṇa!'

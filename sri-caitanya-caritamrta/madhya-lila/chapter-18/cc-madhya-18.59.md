@@ -1,5 +1,8 @@
 ### CC Madhya 18.59
 
+> কিছু দেবমূর্তি হয় পর্বত-উপরে ?
+> লোক কহে, — মূর্তি হয় গোফার ভিতরে ॥৫৯॥
+
 > kichu deva-mūrti haya parvata-upare?
 > loka kahe,—mūrti haya gophāra bhitare
 

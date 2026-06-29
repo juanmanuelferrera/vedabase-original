@@ -1,5 +1,8 @@
 ### CC Madhya 25.218
 
+> শেখরের ঘরে বাসা, মিশ্র-ঘরে ভিক্ষা ।
+> মিশ্রমুখে শুনে — সনাতনে প্রভুর ‘শিক্ষা’ ॥২১৮॥
+
 śekharera ghare vāsā, miśra-ghare bhikṣā
 
 miśra-mukhe śune sanātane prabhura 'śikṣā'

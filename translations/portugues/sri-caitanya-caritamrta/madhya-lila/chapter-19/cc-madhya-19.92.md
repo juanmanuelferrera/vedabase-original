@@ -1,5 +1,8 @@
 ### CC Madhya 19.92
 
+> হেনকালে আইলা রঘুপতি উপাধ্যায় ।
+> তিরুহিতা পণ্ডিত, বড় বৈষ্ণব, মহাশয় ॥৯২॥
+
 hena-kāle āilā raghupati upādhyāya
 
 tiruhitā paṇḍita, baḍa vaiṣṇava, mahāśaya

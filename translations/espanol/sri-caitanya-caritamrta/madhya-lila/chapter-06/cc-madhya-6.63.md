@@ -1,5 +1,8 @@
 ### CC Madhya 6.63
 
+> প্রভু কহে, — ‘মন্দির ভিতরে না যাইব ।
+> গরুড়ের পাশে রহি’ দর্শন করিব ।।’ ॥ ৬৩ ॥
+
 > prabhu kahe,--'mandira bhitare nā yāiba
 > garuḍera pāśe rahi' darśana kariba'
 

@@ -1,5 +1,8 @@
 ### CC Madhya 12.12
 
+> সবারে মিলিয়া কহিল রাজ-বিবরণ ।
+> পিছে সেই পত্রী সবারে করাইল দরশন ॥১২॥
+
 > sabāre miliyā kahila rāja-vivaraṇa
 > piche sei patrī sabāre karāila daraśana
 

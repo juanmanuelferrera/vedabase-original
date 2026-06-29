@@ -1,5 +1,8 @@
 ### CC Madhya 20.196
 
+> সঙ্কর্ষণের মূর্তি — গোবিন্দ, বিষ্ণু, মধুসূদন ।
+> এ অন্য গোবিন্দ — নহে ব্রজেন্দ্রনন্দন ॥১৯৬॥
+
 > saṅkarṣaṇera mūrti--govinda, viṣṇu, madhusūdana
 > e anya govinda--nahe vrajendra-nandana
 

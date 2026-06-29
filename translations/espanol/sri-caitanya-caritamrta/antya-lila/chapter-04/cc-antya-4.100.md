@@ -1,5 +1,8 @@
 ### CC Antya 4.100
 
+> avatāra-kārya prabhura—nāma-pracāre
+> sei nija-kārya prabhu karena tomāra dvāre
+
 > avatāra-kārya prabhura--nāma-pracāre
 > sei nija-kārya prabhu karena tomāra dvāre
 

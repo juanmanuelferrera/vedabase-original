@@ -1,5 +1,8 @@
 ### CC Adi 4.237
 
+> অতএব ভক্তগণে করি নমস্কার ।
+> নিঃশঙ্কে কহিয়ে, তার হউক্ চমৎকার ॥২৩৭॥
+
 ataeva bhakta-gaṇe kari namaskāra
 
 nihśaṅke kahiye, tāra hauk camatkāra

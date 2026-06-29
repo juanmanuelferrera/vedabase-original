@@ -1,5 +1,8 @@
 ### CC Madhya 9.173
 
+> এত বলি’ তাঁর ঠাঞি এই আজ্ঞা লঞা ।
+> দক্ষিণে চলিলা প্রভু হরষিত হঞা ॥১৭৩॥
+
 > eta bali' tāṅra ṭhāñi ei ājñā lañā
 > dakṣiṇe calilā prabhu haraṣita hañā
 

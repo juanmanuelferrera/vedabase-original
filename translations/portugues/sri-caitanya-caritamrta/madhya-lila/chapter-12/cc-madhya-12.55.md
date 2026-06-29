@@ -1,5 +1,8 @@
 ### CC Madhya 12.55
 
+> তথাপি তোমার যদি মহাগ্রহ হয় ।
+> তবে আনি’ মিলাহ তুমি তাঁহার তনয় ॥৫৫॥
+
 tathāpi tomāra yadi mahāgraha haya
 
 tabe āni' milāha tumi tāṅhāra tanaya

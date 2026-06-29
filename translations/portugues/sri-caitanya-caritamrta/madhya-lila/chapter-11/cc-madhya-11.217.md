@@ -1,5 +1,8 @@
 ### CC Madhya 11.217
 
+> কীর্তনের ধ্বনি মহামঙ্গল উঠিল ৷
+> চতুর্দশ লোক ভরি’ ব্রহ্মাণ্ড ভেদিল ৷৷ ২১৭ ৷৷ ॥২১৭॥
+
 kīrtanera dhvani mahā-maṅgala uṭhila
 
 caturdaśa loka bhari' brahmāṇḍa bhedila

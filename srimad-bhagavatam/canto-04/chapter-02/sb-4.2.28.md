@@ -1,5 +1,8 @@
 ### SB 4.2.28
 
+> भवव्रतधरा ये च ये च तान्समनुव्रताः ।
+> पाषण्डिनस्ते भवन्तु सच्छास्त्रपरिपन्थिनः ॥२८॥
+
 > bhava-vrata-dharā ye ca
 > ye ca tān samanuvratāḥ
 > pāṣaṇḍinas te bhavantu

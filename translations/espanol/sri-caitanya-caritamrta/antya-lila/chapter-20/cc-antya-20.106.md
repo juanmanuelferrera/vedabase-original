@@ -1,5 +1,8 @@
 ### CC Antya 20.106
 
+> তৃতীয়ে — হরিদাসের মহিমা প্রচণ্ড ।
+> দামোদর-পণ্ডিত কৈলা প্রভুরে বাক্যদণ্ড ॥১০৬॥
+
 > tṛtīye--haridāsera mahimā pracaṇḍa
 > dāmodara-paṇḍita kailā prabhure vākya-danda
 

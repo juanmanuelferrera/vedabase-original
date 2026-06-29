@@ -1,5 +1,8 @@
 ### CC Madhya 4.195
 
+> কিবা গৌরচন্দ্র ইহা করে আস্বাদন ।
+> ইহা আস্বাদিতে আর নাহি চৌঠজন ॥১৯৫॥
+
 > kibā gauracandra ihā kare āsvādana
 > ihā āsvādite āra nāḥi cauṭha-jana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 12.74
 
+> পড়িছা কহে, — আমি-সব সেবক তোমার ।
+> যে তোমার ইচ্ছা সেই কর্তব্য আমার ॥৭৪॥
+
 > paḍichā kahe,-āmi-saba sevaka tomāra
 > ye tomāra icchā sei kartavya āmāra
 

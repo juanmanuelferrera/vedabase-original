@@ -1,5 +1,8 @@
 ### CC Antya 20.119
 
+> একাদশে — হরিদাস-ঠাকুরের নির্যাণ ।
+> ভক্ত-বাৎসল্য যাহাঁ দেখাইলা গৌর ভগবান্ ॥১১৯॥
+
 > ekādaśe—haridāsa-ṭhākurera niryāṇa
 > bhakta-vātsalya yāhāṅ dekhāilā gaura bhagavān
 

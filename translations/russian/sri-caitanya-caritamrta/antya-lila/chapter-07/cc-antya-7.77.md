@@ -1,5 +1,8 @@
 ### CC Antya 7.77
 
+> তবে মহাপ্রভু সবার নৃত্য রাখিলা ।
+> পূর্ববৎ আপনে নৃত্য করিতে লাগিলা ॥৭৭॥
+
 > tabe mahāprabhu sabāra nṛtya rākhilā
 > pūrvavat āpane nṛtya karite lāgilā
 

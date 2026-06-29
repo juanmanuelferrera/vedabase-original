@@ -1,5 +1,8 @@
 ### CC Madhya 1.278
 
+> স্তব শুনি’ প্রভুকে কহেন শ্রীনিবাস ।
+> ঘরে গুপ্ত হও, কেনে বাহিরে প্রকাশ ॥২৭৮॥
+
 stava śuni' prabhuke kahena śrīnivāsa
 
 ghare gupta hao, kene bāhire prakāśa

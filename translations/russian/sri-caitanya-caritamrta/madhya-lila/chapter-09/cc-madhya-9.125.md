@@ -1,5 +1,8 @@
 ### CC Madhya 9.125
 
+> আমি জীব, — ক্ষুদ্রবুদ্ধি, সহজে অস্থির ।
+> ঈশ্বরের লীলা — কোটিসমুদ্র-গম্ভীর ॥১২৫॥
+
 > āmi jīva,—kṣudra-buddhi, sahaje asthira
 > īśvarera līlā—koṭi-samudra-gambhīra
 

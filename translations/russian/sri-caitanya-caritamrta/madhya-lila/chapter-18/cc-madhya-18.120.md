@@ -1,5 +1,8 @@
 ### CC Madhya 18.120
 
+> অলৌকিক ‘প্রকৃতি’ তোমার — বুদ্ধি-অগোচর ।
+> তোমা দেখি’ কৃষ্ণপ্রেমে জগৎ পাগল ॥১২০॥
+
 > alaukika 'prakṛti' tomāra—buddhi-agocara
 > tomā dekhi' kṛṣṇa-preme jagat pāgala
 

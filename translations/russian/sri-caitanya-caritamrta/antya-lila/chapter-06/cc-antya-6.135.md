@@ -1,5 +1,8 @@
 ### CC Antya 6.135
 
+> চৈতন্য-কৃপাতে সেহ নাহি ভায় মনে  ।
+> সবে আশীর্বাদ কর — পাউক চৈতন্য-চরণে ॥১৩৫॥
+
 > caitanya-kṛpāte seha nāhi bhāya mane
 > sabe āśīrvāda kara—pāuka caitanya-caraṇe
 

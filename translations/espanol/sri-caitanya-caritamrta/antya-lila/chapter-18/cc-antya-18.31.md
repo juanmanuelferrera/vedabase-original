@@ -1,5 +1,8 @@
 ### CC Antya 18.31
 
+> কোণার্কের দিকে প্রভুরে তরঙ্গে লঞা যায় ।
+> কভু ডুবাঞা রাখে, কভু ভাসাঞা লঞা যায় ॥৩১॥
+
 > koṇārkera dike prabhure taraṅge lañā yāya
 > kabhu ḍubāñā rākhe, kabhu bhāsāñā lañā yāya
 

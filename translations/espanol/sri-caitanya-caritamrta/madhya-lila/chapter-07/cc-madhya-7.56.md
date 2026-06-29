@@ -1,5 +1,8 @@
 ### CC Madhya 7.56
 
+> দর্শন করি’ ঠাকুর-পাশ আজ্ঞা মাগিলা ৷
+> পূজারী প্রভুরে মালা-প্রসাদ আনি’ দিলা ৷৷ ৫৬ ৷৷ ॥৫৬॥
+
 > darśana kari' ṭhākura-pāśa ājñā māgilā
 > pūjārī prabhure mālā-prasāda āni' dilā
 

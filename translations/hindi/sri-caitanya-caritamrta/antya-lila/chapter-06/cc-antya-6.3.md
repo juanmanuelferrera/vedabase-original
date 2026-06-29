@@ -1,5 +1,8 @@
 ### CC Antya 6.3
 
+> এইমত গৌরচন্দ্র ভক্তগণ-সঙ্গে ।
+> নীলাচলে নানা লীলা করে নানা-রঙ্গে ॥৩॥
+
 > ei-mata gauracandra bhakta-gaṇa-saṅge
 > nīlācale nānā līlā kare nānā-raṅge
 

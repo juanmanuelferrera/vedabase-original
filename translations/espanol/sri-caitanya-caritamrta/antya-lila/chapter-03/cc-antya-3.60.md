@@ -1,5 +1,10 @@
 ### CC Antya 3.60
 
+> নামৈকং যস্য বাচি স্মরণ পথগতং শ্রোত্রমূলং গতং বা
+> শুদ্ধং বাশুদ্ধবর্ণং ব্যবহিত-রহিতং তারয়ত্যেব সত্যম্ ।
+> তচ্চেদ্দেহ-দ্রবিণ-জনতা-লোভ-পাষণ্ড-মধ্যে
+> নিক্ষিপ্তং স্যান্ন ফলজনকং শীঘ্রমেবাত্র বিপ্র ॥৬০॥
+
 > nāmaikaṁ yasya vāci smaraṇa-patha-gataṁ śrotra-mūlaṁ gataṁ vā
 > śuddhaṁ vāśuddha-varṇaṁ vyavahita-rahitaṁ tārayaty eva satyam
 > tac ced deha-draviṇa-janatā-lobha-pāṣaṇḍa-madhye

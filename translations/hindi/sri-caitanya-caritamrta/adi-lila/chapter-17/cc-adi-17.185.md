@@ -1,5 +1,8 @@
 ### CC Adi 17.185
 
+> ঐছে যদি পুনঃ কর, তবে না সহিমু ।
+> সবংশে তোমারে মারি যবন নাশিমু ॥১৮৫॥
+
 > aiche yadi punaḥ kara, tabe nā sahimu
 > savaṁśe tomāre māri yavana nāśimu
 

@@ -1,5 +1,8 @@
 ### CC Madhya 18.91
 
+> বৃন্দাবনে পুনঃ ‘কৃষ্ণ’ প্রকট হইল ।
+> যাহাঁ তাহাঁ লোক সব কহিতে লাগিল ॥৯১॥
+
 > vṛndāvane punaḥ 'kṛṣṇa' prakaṭa ha-ila
 > yāhāṅ tāhāṅ loka saba kahite lāgila
 

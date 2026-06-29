@@ -1,5 +1,8 @@
 ### CC Adi 6.75
 
+> আত্মারামস্য তস্যেমা বয়ং বৈ গৃহদাসিকাঃ ।
+> সর্বসঙ্গনিবৃত্ত্যাদ্ধা তপসা চ বভূবিম ॥৭৫॥
+
 ātmārāmasya tasyemā
 vayaṁ vai gṛha-dāsikāḥ
 sarva-saṅga-nivṛttyāddhā

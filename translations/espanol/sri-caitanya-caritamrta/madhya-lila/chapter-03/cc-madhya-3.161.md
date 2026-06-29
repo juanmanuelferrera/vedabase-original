@@ -1,5 +1,8 @@
 ### CC Madhya 3.161
 
+> দিনে আচার্যের প্রীতি — প্রভুর দর্শন ।
+> রাত্রে লোক দেখে প্রভুর নর্তন-কীর্তন ॥১৬১॥
+
 > dine ācāryera prīti--prabhura darśana
 > rātre loka dekhe prabhura nartana-kīrtana
 

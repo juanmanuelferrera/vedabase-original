@@ -1,5 +1,8 @@
 ### CC Madhya 3.24
 
+> প্রভু কহে, — শ্রীপাদ, তোমার কোথাকে গমন ।
+> শ্রীপাদ কহে, তোমার সঙ্গে যাব বৃন্দাবন ॥২৪॥
+
 prabhu kahe,--śrīpāda, tomāra kothāke gamana
 
 śrīpāda kahe, tomāra saṅge yāba vṛndāvana

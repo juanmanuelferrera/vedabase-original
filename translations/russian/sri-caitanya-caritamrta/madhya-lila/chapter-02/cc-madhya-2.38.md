@@ -1,5 +1,10 @@
 ### CC Madhya 2.38
 
+> পুনঃ যদি কোন ক্ষণ, করায় কৃষ্ণ দরশন,
+> তবে সেই ঘটী-ক্ষণ-পল ।
+> দিয়া মাল্যচন্দন, নানা রত্ন-আভরণ,
+> অলঙ্কৃত করিমু সকল ॥৩৮॥
+
 > punaḥ yadi kona kṣaṇa, kayāya kṛṣṇa daraśana
 > tabe sei ghaṭī-kṣaṇa-pala
 > diyā mālya-candana, nānā ratna-ābharaṇa,

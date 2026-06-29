@@ -1,5 +1,8 @@
 ### CC Antya 4.57
 
+> দেহত্যাগাদি যত, সব — তমো-ধর্ম ।
+> তমো-রজো-ধর্মে কৃষ্ণের না পাইয়ে মর্ম ॥৫৭॥
+
 deha-tyāgādi yata, saba--tamo-dharma
 
 tamo-rajo-dharme kṛṣṇera nā pāiye marma

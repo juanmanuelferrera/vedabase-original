@@ -1,5 +1,8 @@
 ### CC Madhya 14.113
 
+> প্রাতঃকালে মহাপ্রভু নিজগণ লঞা ৷
+> জগন্নাথ দর্শন কৈল সুন্দরাচলে যাঞা ॥১১৩॥
+
 prātaḥ-kāle mahāprabhu nija-gaṇa lañā
 
 jagannātha darśana kaila sundarācale yāñā

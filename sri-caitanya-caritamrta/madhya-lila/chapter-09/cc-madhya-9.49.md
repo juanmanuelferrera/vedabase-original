@@ -1,5 +1,8 @@
 ### CC Madhya 9.49
 
+> তর্কং-প্রধান বৌদ্ধশাস্ত্র ‘নব মতে’ ।
+> তর্কেই খণ্ডিল প্রভু, না পারে স্থাপিতে ॥৪৯॥
+
 > tarka-pradhāna bauddha-śāstra 'nava mate'
 > tarkei khaṇḍila prabhu, nā pāre sthāpite
 

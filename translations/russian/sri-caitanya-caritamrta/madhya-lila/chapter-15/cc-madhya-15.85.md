@@ -1,5 +1,8 @@
 ### CC Madhya 15.85
 
+> তবে আর নারিকেল সংস্কার করাইল ।
+> পরম পবিত্র করি’ ভোগ লাগাইল ॥৮৫॥
+
 > tabe āra nārikela saṁskāra karāila
 > parama pavitra kari' bhoga lāgāila
 

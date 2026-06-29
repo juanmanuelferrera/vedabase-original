@@ -1,5 +1,8 @@
 ### CC Antya 12.127
 
+> প্রভু কহে, — “দ্বিতীয়-পাতে বাড়’ অন্ন-ব্যঞ্জন ।
+> তোমায় আমার আজি একত্র করিব ভোজন ॥১২৭॥
+
 > prabhu kahe,--"dvitīya-pāte bāḍa' anna-vyañjana
 > tomāya āmāya āji ekatra kariba bhojana
 

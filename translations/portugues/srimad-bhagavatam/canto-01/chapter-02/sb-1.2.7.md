@@ -1,5 +1,8 @@
 ### SB 1.2.7
 
+> वासुदेवे भगवति भक्तियोगः प्रयोजितः ।
+> जनयत्याशु वैराग्यं ज्ञानं च यदहैतुकम् ॥७॥
+
 vāsudeve bhagavati
 *bhakti*-yogaḥ prayojitaḥ
 janayaty āśu vairāgyaṁ

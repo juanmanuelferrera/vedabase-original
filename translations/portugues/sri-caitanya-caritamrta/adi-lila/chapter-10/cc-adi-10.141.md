@@ -1,5 +1,8 @@
 ### CC Adi 10.141
 
+> অঙ্গসেবা গোবিন্দেরে দিলেন ঈশ্বর ।
+> জগন্নাথ দেখিতে চলেন আগে কাশীশ্বর ॥১৪১॥
+
 aṅga-sevā govindere dilena īśvara
 
 jagannātha dekhite calena āge kāśīśvara

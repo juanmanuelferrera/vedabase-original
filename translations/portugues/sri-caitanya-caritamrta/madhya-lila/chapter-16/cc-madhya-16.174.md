@@ -1,5 +1,8 @@
 ### CC Madhya 16.174
 
+> শুনি’ মহাপাত্র কহে হঞা বিস্ময় ।
+> ‘মদ্যপ যবনের চিত্ত ঐছে কে করয় ! ॥ ১৭৪ ॥
+
 śuni' mahā-pātra kahe hañā vismaya
 
 'madyapa yavanera citta aiche ke karaya!

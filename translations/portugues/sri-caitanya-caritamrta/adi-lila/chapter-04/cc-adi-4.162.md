@@ -1,5 +1,8 @@
 ### CC Adi 4.162
 
+> গোপীগণের প্রেমের ‘রূঢ়ভাব’ নাম ।
+> বিশুদ্ধ নির্মল প্রেম, কভু নহে কাম ॥১৬২॥
+
 gopī-gaṇera premera 'rūḍha-bhāva' nāma
 viśuddha nirmala prema, kabhu nahe kāma
 

@@ -1,5 +1,8 @@
 ### SB 8.16.8
 
+> अप्यग्नयस्तु वेलायां न हुता हविषा सति
+> त्वयोद्विग्नधिया भद्रे प्रोषिते मयि कर्हिचित ॥८॥
+
 > apy agnayas tu velāyāṁ
 > na hutā haviṣā sati
 > tvayodvigna-dhiyā bhadre

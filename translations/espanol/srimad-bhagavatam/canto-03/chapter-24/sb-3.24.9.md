@@ -1,5 +1,8 @@
 ### SB 3.24.9
 
+> तत्कर्दमाश्रमपदं सरस्वत्या परिश्रितम् ।
+> स्वयम्भूः साकमृषिभिर्मरीच्यादिभिरभ्ययात् ॥९॥
+
 > tat kardamāśrama-padaṁ
 > sarasvatyā pariśritam
 > svayambhūḥ sākam ṛṣibhir

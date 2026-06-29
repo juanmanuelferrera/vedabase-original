@@ -1,5 +1,7 @@
 ### SB 5.25.15
 
+> एतावतीर्हि राजन्पुंसः प्रवृत्तिलक्षणस्य धर्मस्य विपाकगतय उच्चावचा विसदृशा यथाप्रश्नं व्याचख्ये किमन्यत्कथयाम इति ॥१५॥
+
 > etāvatīr hi rājan puṁsaḥ pravṛtti-lakṣaṇasya dharmasya vipāka-gataya uccāvacā visadṛśā yathā-praśnaṁ vyācakhye kim anyat kathayāma iti.
 
 *etāvatīḥ*—of such a kind; *hi*—certainly; *rājan*—O King; *puṁsaḥ*—of the human being; *pravṛtti-lakṣaṇasya*—symptomized by inclinations; *dharmasya*—of the execution of duties; *vipāka-gatayaḥ*—the resultant destinations; *ucca-avacāḥ*—high and low; *visadṛśāḥ*—different; *yathā-praśnam*—as you inquired; *vyācakhye*—I have described; *kim anyat*—what else; *kathayāma*—shall I speak; *iti*—thus.

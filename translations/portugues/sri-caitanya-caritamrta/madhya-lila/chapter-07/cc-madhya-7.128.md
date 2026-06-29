@@ -1,5 +1,8 @@
 ### CC Madhya 7.128
 
+> যারে দেখ, তারে কহ ‘কৃষ্ণ’ উপদেশ ৷
+> আমার আজ্ঞায় গুরু হঞা তার’ এই দেশ ৷৷ ১২৮ ৷৷ ॥১২৮॥
+
 yāre dekha, tāre kaha 'kṛṣṇa'-upadeśa
 āmāra ājñāya guru hañā tāra' ei deśa
 

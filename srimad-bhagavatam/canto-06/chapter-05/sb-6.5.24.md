@@ -1,5 +1,8 @@
 ### SB 6.5.24
 
+> स भूयः पाञ्चजन्यायामजेन परिसान्त्वितः
+> पुत्रानजनयद्दक्षः सवलाश्वान्सहस्रिणः ॥२४॥
+
 > sa bhūyaḥ pāñcajanyāyām
 > ajena parisāntvitaḥ
 > putrān ajanayad dakṣaḥ

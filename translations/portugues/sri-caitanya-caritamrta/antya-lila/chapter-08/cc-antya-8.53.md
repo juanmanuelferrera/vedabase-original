@@ -1,5 +1,8 @@
 ### CC Antya 8.53
 
+> “আজি হৈতে ভিক্ষা আমার এই ত’ নিয়ম  ।
+> পিণ্ডাভোগের এক চৌঠি, পাঁচগণ্ডার ব্যঞ্জন ॥৫৩॥
+
 "āji haite bhikṣā āmāra ei ta' niyama
 
 piṇḍā-bhogera eka cauṭhi, pāṅca-gaṇḍāra vyañjana

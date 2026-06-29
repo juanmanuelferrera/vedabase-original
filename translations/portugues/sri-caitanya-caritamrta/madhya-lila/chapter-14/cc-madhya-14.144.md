@@ -1,5 +1,8 @@
 ### CC Madhya 14.144
 
+> ‘ধীরা’ কান্তে দূরে দেখি’ করে প্রত্যুত্থান ।
+> নিকটে আসিলে, করে আসন প্রদান ॥১৪৪॥
+
 'dhīrā' kānte dūre dekhi' kare pratyutthāna
 
 nikaṭe āsile, kare āsana pradāna

@@ -1,5 +1,8 @@
 ### CC Antya 14.10
 
+> স্বরূপ — ‘সূত্রকর্তা’, রঘুনাথ — ‘বৃত্তিকার’ ।
+> তার বাহুল্য বর্ণি — পাঁজি-টীকা-ব্যবহার ॥১০॥
+
 > svarūpa—'sūtra-kartā', raghunātha—'vṛttikāra'
 > tāra bāhulya varṇi—pāṅji-ṭīkā-vyavahāra
 

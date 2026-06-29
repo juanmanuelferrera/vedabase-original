@@ -1,5 +1,8 @@
 ### CC Adi 4.110
 
+> যবে যেই ভাব উঠে প্রভুর অন্তর ।
+> সেই গীতি-শ্লোকে সুখ দেন দামোদর ॥১১০॥
+
 yabe yei bhāva uṭhe prabhura antara
 sei gīti-śloke sukha dena dāmodara
 

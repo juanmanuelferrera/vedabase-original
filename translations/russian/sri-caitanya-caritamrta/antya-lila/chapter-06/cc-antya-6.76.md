@@ -1,5 +1,8 @@
 ### CC Antya 6.76
 
+> রাঘবে বসাঞা দুই কুণ্ডী দেওয়াইলা ।
+> রাঘব দ্বিবিধ চিড়া তাতে ভিজাইলা ॥৭৬॥
+
 > rāghave vasāñā dui kuṇḍī deoyāilā
 > rāghava dvividha ciḍā tāte bhijāilā
 

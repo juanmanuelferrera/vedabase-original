@@ -1,5 +1,8 @@
 ### SB 6.1.67
 
+> यदसौ शास्त्रमुल्लङ्घ्य स्वैरचार्यतिगर्हितः
+> अवर्तत चिरं कालमघायुरशुचिर्मलात ॥६७॥
+
 > yad asau śāstram ullaṅghya
 > svaira-cāry ati-garhitaḥ
 > avartata ciraṁ kālam

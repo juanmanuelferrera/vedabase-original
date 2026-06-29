@@ -1,5 +1,8 @@
 ### CC Madhya 8.207
 
+> সখীর স্বভাব এক অকথ্য-কথন ৷
+> কৃষ্ণ-সহ নিজলীলায় নাহি সখীর মন ৷৷ ২০৭ ৷৷ ॥২০৭॥
+
 sakhīra svabhāva eka akathya-kathana
 
 kṛṣṇa-saha nija-līlāya nāhi sakhīra mana

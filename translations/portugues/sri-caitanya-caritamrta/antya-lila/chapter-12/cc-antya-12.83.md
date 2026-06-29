@@ -1,5 +1,8 @@
 ### CC Antya 12.83
 
+> নিজ-কৃপাগুণে প্রভু বান্ধিলা সবারে ।
+> মহাপ্রভুর কৃপা-ঋণ কে শোধিতে পারে ? ॥ ৮৩ ॥
+
 nija-kṛpā-guṇe prabhu bāndhilā sabāre
 
 mahāprabhura kṛpā-ṛṇa ke śodhite pāre?

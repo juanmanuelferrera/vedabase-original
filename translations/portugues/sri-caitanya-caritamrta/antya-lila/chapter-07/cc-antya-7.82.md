@@ -1,5 +1,8 @@
 ### CC Antya 7.82
 
+> প্রভু কহে, — “ভাগবতার্থ বুঝিতে না পারি ।
+> ভাগবতার্থ শুনিতে আমি নহি অধিকারী ॥৮২॥
+
 prabhu kahe,--"bhāgavatārtha bujhite nā pāri
 
 bhāgavatārtha śunite āmi nahi adhikārī

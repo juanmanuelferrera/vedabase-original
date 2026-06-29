@@ -1,5 +1,7 @@
 ### SB 5.20.35
 
+> यावन्मानसोत्तरमेर्वोरन्तरं तावती भूमिः काञ्चन्यन्यादर्शतलोपमा यस्यां प्रहितःपदार्थो न कथञ्चित्पुनः प्रत्युपलभ्यते तस्मात्सर्वसत्त्वपरिहृतासीत ॥३५॥
+
 *yāvan mānasottara*-mervor antaraṁ tāvatī bhūmiḥ kāñcany anyādarśa-talopamā yasyāṁ prahitaḥ padārtho na kathañcit punaḥ pratyupalabhyate tasmāt sarva-sattva-parihṛtāsīt.
 
 *yāvat*—tanto quanto; *mānasottara-mervoḥ antaram*—a terra entre Mānasottara e Meru (começando do meio do monte Sumeru); *tāvatī*—outro tanto; *bhūmiḥ*—terra; *kāñcanī*—feita de ouro; *anyā*—outra; *ādarśa-tala-upamā*—cuja superfície é como a superfície de um espelho; *yasyām*—na qual; *prahitaḥ*—deixado cair; *padārthaḥ*—um objeto; *na*—não; *kathañcit*—de modo algum; *punaḥ*—novamente; *pratyupalabhyate*—é encontrado; *tasmāt*—portanto; *sarva-sattva*—por todas as entidades vivas; *parihṛtā*—abandonada; *āsīt*—era.

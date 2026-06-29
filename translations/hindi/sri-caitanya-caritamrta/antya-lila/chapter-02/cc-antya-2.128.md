@@ -1,5 +1,8 @@
 ### CC Antya 2.128
 
+> আর দিন সবে পরমানন্দপুরী-স্থানে ।
+> ‘প্রভুকে প্রসন্ন কর’ — কৈলা নিবেদনে ॥১২৮॥
+
 > āra dina sabe paramānanda-purī-sthāne
 > 'prabhuke prasanna kara'--kailā nivedane
 

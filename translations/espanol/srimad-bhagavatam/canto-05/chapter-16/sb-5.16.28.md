@@ -1,5 +1,7 @@
 ### SB 5.16.28
 
+> मेरोर्मूर्धनि भगवत आत्मयोनेर्मध्यत उपकॢप्तां पुरीमयुतयोजनसाहस्रीं समचतुरस्रां शातकौम्भीं वदन्ति ॥२८॥
+
 > meror mūrdhani bhagavata ātma-yoner madhyata upakḷptāṁ purīm ayuta-yojana-sāhasrīṁ sama-caturasrāṁ śātakaumbhīṁ vadanti.
 
 *meroḥ*—de la montaña Sumeru; *mūrdhani*—sobre la cumbre; *bhagavataḥ*—del ser más poderoso; *ātma-yoneḥ*—del Señor Brahmā; *madhyataḥ*—en el centro; *upakḷptām*—situada; *purīm*—la gran ciudad; *ayuta-yojana*—diez mil *yojanas*; *sāhasrīm*—mil; *sama-caturasrām*—con todos sus lados de la misma longitud; *śāta-kaumbhīm*—hecha por entero de oro; *vadanti*—los grandes sabios eruditos dicen.

@@ -1,5 +1,8 @@
 ### SB 1.5.19
 
+> न वै जनो जातु कथञ्चनाव्रजेन्मुकुन्दसेव्यन्यवदङ्ग संसृतिम् ।
+> स्मरन्मुकुन्दाङ्घ्र्युपगूहनं पुनर्विहातुमिच्छेन्न रसग्रहो जनः ॥१९॥
+
 > na vai jano jātu kathañcanāvrajen
 > mukunda-sevy anyavad aṅga saṁsṛtim
 > smaran mukundāṅghry-upagūhanaṁ punar

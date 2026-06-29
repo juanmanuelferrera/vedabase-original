@@ -1,5 +1,8 @@
 ### CC Adi 14.61
 
+> এই মত চাপল্য সব লোকেরে দেখায় ।
+> দুঃখ কারো মনে নহে, সবে সুখ পায় ॥৬১॥
+
 > ei mata cāpalya saba lokere dekhāya
 > duḥkha kāro mane nahe, sabe sukha pāya
 

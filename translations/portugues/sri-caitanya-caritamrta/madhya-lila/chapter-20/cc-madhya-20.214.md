@@ -1,5 +1,8 @@
 ### CC Madhya 20.214
 
+> এক ‘কৃষ্ণলোক’ হয় ত্রিবিধপ্রকার ।
+> গোকুলাখ্য, মথুরাখ্য, দ্বারকাখ্য আর ॥২১৪॥
+
 eka 'kṛṣṇaloka' haya trividha-prakāra
 
 gokulākhya, mathurākhya, dvārakākhya āra

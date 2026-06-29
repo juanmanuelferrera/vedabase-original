@@ -1,5 +1,8 @@
 ### SB 1.18.38
 
+> ततोऽभ्येत्याश्रमं बालो गले सर्पकलेवरम् ।
+> पितरं वीक्ष्य दुःखार्तो मुक्तकण्ठो रुरोद ह ॥३८॥
+
 > tato 'bhyetyāśramaṁ bālo
 > gale sarpa-kalevaram
 > pitaraṁ vīkṣya duḥkhārto

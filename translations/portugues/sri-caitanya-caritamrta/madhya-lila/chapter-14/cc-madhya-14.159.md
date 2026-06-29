@@ -1,5 +1,8 @@
 ### CC Madhya 14.159
 
+> ‘বামা’ এক গোপীগণ, ‘দক্ষিণা’ এক গণ ৷
+> নানা-ভাবে করায় কৃষ্ণে রস আস্বাদন ॥১৫৯॥
+
 'vāmā' eka gopī-gaṇa, 'dakṣiṇā' eka gaṇa
 
 nānā-bhāve karāya kṛṣṇe rasa āsvādana

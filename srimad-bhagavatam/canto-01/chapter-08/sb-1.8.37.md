@@ -1,5 +1,8 @@
 ### SB 1.8.37
 
+> अप्यद्य नस्त्वं स्वकृतेहित प्रभो जिहाससि स्वित्सुहृदोऽनुजीविनः ।
+> येषां न चान्यद्भवतः पदाम्बुजात्परायणं राजसु योजितांहसाम् ॥३७॥
+
 > apy adya nas tvaṁ sva-kṛtehita prabho
 > jihāsasi svit suhṛdo 'nujīvinaḥ
 > yeṣāṁ na cānyad bhavataḥ padāmbujāt

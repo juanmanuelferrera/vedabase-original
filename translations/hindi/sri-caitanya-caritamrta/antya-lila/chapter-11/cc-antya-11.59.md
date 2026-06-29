@@ -1,5 +1,8 @@
 ### CC Antya 11.59
 
+> হরিদাসের তনু প্রভু কোলে লৈলা উঠাঞা ।
+> অঙ্গনে নাচেন প্রভু প্রেমাবিষ্ট হঞা ॥৫৯॥
+
 > haridāsera tanu prabhu kole laila uṭhāñā
 > aṅgane nācena prabhu premāviṣṭa hañā
 

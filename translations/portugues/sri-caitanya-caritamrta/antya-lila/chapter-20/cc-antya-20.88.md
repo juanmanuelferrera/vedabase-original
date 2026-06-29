@@ -1,5 +1,8 @@
 ### CC Antya 20.88
 
+> চৈতন্য-লীলামৃত-সিন্ধু — দুগ্ধাব্ধি-সমান ।
+> তৃষ্ণানুরূপ ঝারী ভরি’ তেঁহো কৈলা পান ॥৮৮॥
+
 caitanya-līlāmṛta-sindhu--dugdhābdhi-samāna
 
 tṛṣṇānurūpa jhārī bhari' teṅho kailā pāna

@@ -1,5 +1,8 @@
 ### CC Madhya 15.42
 
+> নিত্যানন্দে আজ্ঞা দিল, — ‘যাহ গৌড়দেশে ৷
+> অনর্গল প্রেমভক্তি করিহ প্রকাশে ॥৪২॥
+
 nityānande ājñā dila,--'yāha gauḍa-deśe
 
 anargala prema-bhakti kariha prakāśe

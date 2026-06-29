@@ -1,5 +1,8 @@
 ### CC Madhya 8.223
 
+> তাহাতে দৃষ্টান্ত — উপনিষদ্ শ্রুতিগণ ।
+> রাগমার্গে ভজি’ পাইল ব্রজেন্দ্রনন্দন ॥২২৩॥
+
 > tāhāte dṛṣṭānta—upaniṣad śruti-gaṇa
 > rāga-mārge bhaji' pāila vrajendra-nandana
 

@@ -1,5 +1,8 @@
 ### CC Antya 9.148
 
+> তারা সবে যদি কৃপা করিতে সাধিল ।
+> ‘আমা’ হৈতে কিছু নহে — প্রভু তবে কহিল ॥১৪৮॥
+
 > tārā sabe yadi kṛpā karite sādhila
 > 'āmā' haite kichu nahe—prabhu tabe kahila
 

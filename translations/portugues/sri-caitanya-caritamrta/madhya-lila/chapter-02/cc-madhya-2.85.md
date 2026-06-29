@@ -1,5 +1,10 @@
 ### CC Madhya 2.85
 
+> যদি কেহ হেন কয়, গ্রন্থ কৈল শ্লোকময়,
+> ইতর জনে নারিবে বুঝিতে ৷
+> প্ৰভুর যেই আচরণ, সেই করি বর্ণন,
+> সর্ব-চিত্ত নারি আরাধিতে ॥৮৫॥
+
 yadi keha hena kaya, grantha kaila śloka-maya,
 itara jane nāribe bujhite
 prabhura yei ācaraṇa, sei kari varṇana,

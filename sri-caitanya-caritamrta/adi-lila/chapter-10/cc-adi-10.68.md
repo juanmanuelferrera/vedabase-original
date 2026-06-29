@@ -1,5 +1,8 @@
 ### CC Adi 10.68
 
+> প্রভু যাঁর নিত্য লয় থোড়-মোচা-ফল ।
+> যাঁর ফুটা-লৌহপাত্রে প্রভু পিলা জল ॥৬৮॥
+
 > prabhu yāṅra nitya laya thoḍa-mocā-phala
 > yāṅra phuṭā-lauhapātre prabhu pilā jala
 

@@ -1,5 +1,8 @@
 ### CC Madhya 10.172
 
+> ভট্টাচার্য কহে, — ভারতী, দেখি তোমার জয় ।
+> প্রভু কহে, — যেই কহ, সেই সত্য হয় ॥১৭২॥
+
 > bhaṭṭācārya kahe,-bhāratī, dekhi tomāra jaya
 > prabhu kahe,-yei kaha, sei satya haya
 

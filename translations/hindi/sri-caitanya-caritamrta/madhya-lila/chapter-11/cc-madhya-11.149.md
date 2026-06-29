@@ -1,5 +1,8 @@
 ### CC Madhya 11.149
 
+> শিবানন্দে কহে প্রভু, — তোমার আমাতে ।
+> গাঢ় অনুরাগ হয়, জানি আগে হৈতে ॥১৪৯॥
+
 > śivānande kahe prabhu,-tomāra āmāte
 > gāḍha anurāga haya, jāni āge haite
 

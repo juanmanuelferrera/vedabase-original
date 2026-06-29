@@ -1,5 +1,7 @@
 ### SB 5.24.8
 
+> एतेषु हि बिलस्वर्गेषु स्वर्गादप्यधिककामभोगैश्वर्यानन्दभूतिविभूतिभिः सुसमृद्धभवनोद्यानाक्रीडविहारेषु दैत्यदानवकाद्रवेया नित्यप्रमुदितानुरक्तकलत्रापत्यबन्धुसुहृदअनुचरा गृहपतय ईश्वरादप्यप्रतिहतकामा मायाविनोदा निवसन्ति ॥८॥
+
 > eteṣu hi bila-svargeṣu svargād apy adhika-kāma-bhogaiśvaryānanda-bhūti-vibhūtibhiḥ susamṛddha-bhavanodyānākrīḍa-vihāreṣu daitya-dānava-kādraveyā nitya-pramuditānurakta-kalatrāpatya-bandhu-suhṛd-anucarā gṛha-pataya īśvarād apy apratihata-kāmā māyā-vinodā nivasanti.
 
 *eteṣu*—en esos; *hi*—ciertamente; *bila-svargeṣu*—conocidos con el nombre de mundos celestiales subterráneos; *svargāt*—que los planetas celestiales; *api*—incluso; *adhika*—una cantidad mayor; *kāma-bhoga*—disfrute de la complacencia sensorial; *aiśvarya-ānanda*—felicidad debida a la opulencia; *bhūti*—influencia; *vibhūtibhiḥ*—por esas cosas y riquezas; *su-samṛddha*—aumentada; *bhavana*—casas; *udyāna*—jardines; *ākrīḍa-vihāreṣu*—en lugares adecuados para distintos tipos de complacencia de los sentidos; *daitya*—los demonios; *dānava*—fantasmas; *kādraveyāḥ*—serpientes; *nitya*—que siempre están; *pramudita*—llenos de júbilo; *anurakta*—debido al apego; *kalatra*—a la esposa; *apatya*—hijos; *bandhu*—relaciones familiares; *suhṛt*—amigos; *anucarāḥ*—seguidores; *gṛha-patayaḥ*—los cabezas de familia; *īśvarāt*—que aquellos más capaces, como los semidioses; *api*—incluso; *apratihata-kāmāḥ*—la satisfacción de cuyos deseos de disfrute no encuentra obstáculos; *māyā*—ilusoria; *vinodāḥ*—que sienten felicidad; *nivasanti*—viven.

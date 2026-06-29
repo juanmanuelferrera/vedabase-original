@@ -1,5 +1,7 @@
 ### SB 5.20.31
 
+> तद्द्वीपस्याप्यधिपतिः प्रैयव्रतो वीतिहोत्रो नामैतस्यात्मजौ रमणकधातकिनामानौ वर्षपती नियुज्य स स्वयं पूर्वजवद्भगवत्कर्मशील एवास्ते ॥३१॥
+
 *tad*-dvīpasyāpy adhipatiḥ praiyavrato vītihotro nāmaitasyātmajau ramaṇaka-dhātaki-nāmānau varṣa-patī niyujya sa svayaṁ pūrvajavad-bhagavat-karma-śīla evāste.
 
 *tat-dvīpasya*—dessa ilha; *api*—também; *adhipatiḥ*—o governante; *praiyavrataḥ*—um filho de Mahārāja Priyavrata; *vītihotraḥ nāma*—chamado Vītihotra; *etasya*—dele; *ātma-jau*—aos dois filhos; *ramaṇaka*—Ramaṇaka; *dhātaki*—e Dhātaki; *nāmānau*—com os nomes; *varṣa-patī*—os governantes das duas extensões de terra; *niyujya*—nomeando; *saḥ svayam*—ele próprio; *pūrvaja-vat*—como seus outros irmãos; *bhagavat-karma-śīlaḥ*—estando absorto em atividades para satisfazer a Suprema Personalidade de Deus; *eva*—de fato; *āste*—permanece.

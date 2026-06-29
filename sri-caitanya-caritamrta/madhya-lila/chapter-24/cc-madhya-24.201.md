@@ -1,5 +1,8 @@
 ### CC Madhya 24.201
 
+> জীবের স্বভাব — কৃষ্ণ-‘দাস’-অভিমান ।
+> দেহে আত্ম-জ্ঞানে আচ্ছাদিত সেই ‘জ্ঞান’ ॥২০১॥
+
 > jīvera svabhāva—kṛṣṇa-'dāsa'-abhimāna
 > dehe ātma-jñāne ācchādita sei 'jñāna'
 

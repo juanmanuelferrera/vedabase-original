@@ -1,5 +1,8 @@
 ### Bg 8.17
 
+> सहस्रयुगपर्यन्तमहर्यद् ब्रह्मणो विदुः ।
+> रात्रिं युगसहस्रान्तां तेऽहोरात्रविदो जनाः ॥१७॥
+
 > sahasra-yuga-paryantam
 > ahar yad brahmaṇo viduḥ
 > rātriṁ yuga-sahasrāntāṁ

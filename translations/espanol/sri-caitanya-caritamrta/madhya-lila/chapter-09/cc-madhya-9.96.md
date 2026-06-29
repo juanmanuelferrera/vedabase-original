@@ -1,5 +1,8 @@
 ### CC Madhya 9.96
 
+> পুলকাশ্রু, কম্প, স্বেদ, — যাবৎ পঠন ৷
+> দেখি’ আনন্দিত হৈল মহাপ্রভুর মন ৷৷ ৯৬ ৷৷ ॥৯৬॥
+
 > pulakāśru, kampa, sveda,--yāvat paṭhana
 > dekhi' ānandita haila mahāprabhura mana
 

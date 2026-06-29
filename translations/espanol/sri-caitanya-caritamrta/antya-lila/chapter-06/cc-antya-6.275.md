@@ -1,5 +1,8 @@
 ### CC Antya 6.275
 
+> মোর চিত্ত দ্রব্য লইতে না হয় নির্মল ।
+> এই নিমন্ত্রণে দেখি, — ‘প্রতিষ্ঠা’-মাত্র ফল ॥২৭৫॥
+
 > mora citta dravya la-ite nā haya nirmala
 > ei nimantraṇe dekhi,--'pratiṣṭhā'-mātra phala
 

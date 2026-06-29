@@ -1,5 +1,8 @@
 ### CC Madhya 16.272
 
+> বাদিয়ার বাজি পাতি’ চলিলাঙ তথারে ।
+> বহু-সঙ্গে বৃন্দাবন গমন না করে ॥২৭২॥
+
 > bādiyāra bāji pāti' calilāṅa tathāre
 > bahu-saṅge vṛndāvana gamana nā kare
 

@@ -1,5 +1,8 @@
 ### CC Adi 12.14
 
+> চৈতন্য গোসাঞির গুরু — কেশব ভারতী ।
+> এই পিতার বাক্য শুনি’ দুঃখ পাইল অতি ॥১৪॥
+
 caitanya-gosāñira guru--keśava bhāratī
 ei pitāra vākya śuni' duḥkha pāila ati
 

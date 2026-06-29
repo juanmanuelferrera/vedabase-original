@@ -1,5 +1,8 @@
 ### SB 5.11.3
 
+> न तस्य तत्त्वग्रहणाय साक्षाद्वरीयसीरपि वाचः समासन
+> स्वप्ने निरुक्त्या गृहमेधिसौख्यं न यस्य हेयानुमितं स्वयं स्यात ॥३॥
+
 > na tasya tattva-grahaṇāya sākṣād
 > varīyasīr api vācaḥ samāsan
 > svapne niruktyā gṛhamedhi-saukhyaṁ

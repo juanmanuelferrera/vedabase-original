@@ -1,5 +1,8 @@
 ### SB 5.20.45
 
+> सूर्येण हि विभज्यन्ते दिशः खं द्यौर्मही भिदा
+> स्वर्गापवर्गौ नरका रसौकांसि च सर्वशः ॥४५॥
+
 > sūryeṇa hi vibhajyante
 > diśaḥ khaṁ dyaur mahī bhidā
 > svargāpavargau narakā

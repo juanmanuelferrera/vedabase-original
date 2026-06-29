@@ -1,5 +1,8 @@
 ### CC Madhya 14.151
 
+> ‘মধ্যা’ ‘প্ৰগল্ভা’ ধরে ধীরাদি-বিভেদ ।
+> তার মধ্যে সবার স্বভাবে তিন ভেদ ॥১৫১॥
+
 'madhyā' 'pragalbhā' dhare dhīrādi-vibheda
 
 tāra madhye sabāra svabhāve tina bheda

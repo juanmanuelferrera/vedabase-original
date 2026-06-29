@@ -1,5 +1,8 @@
 ### CC Madhya 15.152
 
+> এত শুনি’ আমি বড় মনে সুখ পাইলুঁ ।
+> ইঁহারে উঠাঞা তবে আলিঙ্গন কৈলুঁ ॥১৫২॥
+
 > eta śuni' āmi baḍa mane sukha pāiluṅ
 > iṅhāre uṭhāñā tabe āliṅgana kailuṅ-
 

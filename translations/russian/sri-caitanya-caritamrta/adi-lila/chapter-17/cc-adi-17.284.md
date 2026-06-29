@@ -1,5 +1,8 @@
 ### CC Adi 17.284
 
+> দূর হৈতে কৃষ্ণে দেখি’ বলে গোপীগণ ।
+> “এই দেখ কুঞ্জের ভিতর ব্রজেন্দ্রনন্দন ।।” ॥ ২৮৪ ॥
+
 > dūra haite kṛṣṇe dekhi' bale gopī-gaṇa
 > "ei dekha kuñjera bhitara vrajendra-nandana"
 

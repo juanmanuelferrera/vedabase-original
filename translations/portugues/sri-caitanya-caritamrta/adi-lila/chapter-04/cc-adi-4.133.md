@@ -1,5 +1,8 @@
 ### CC Adi 4.133
 
+> বিষয়জাতীয় সুখ আমার আস্বাদ ।
+> আমা হৈতে কোটিগুণ আশ্রয়ের আহ্লাদ ॥১৩৩॥
+
 viṣaya-jātīya sukha āmāra āsvāda
 āmā haite koṭi-guṇa āśrayera āhlāda
 

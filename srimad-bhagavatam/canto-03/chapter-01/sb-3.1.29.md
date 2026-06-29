@@ -1,5 +1,8 @@
 ### SB 3.1.29
 
+> कच्चित्सुखं सात्वतवृष्णिभोज दाशार्हकाणामधिपः स आस्ते ।
+> यमभ्यषिञ्चच्छतपत्रनेत्रो नृपासनाशां परिहृत्य दूरात् ॥२९॥
+
 > kaccit sukhaṁ sātvata-vṛṣṇi-bhoja-
 > dāśārhakāṇām adhipaḥ sa āste
 > yam abhyaṣiñcac chata-patra-netro

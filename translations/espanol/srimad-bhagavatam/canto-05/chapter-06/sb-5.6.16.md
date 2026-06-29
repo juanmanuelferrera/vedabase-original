@@ -1,5 +1,7 @@
 ### SB 5.6.16
 
+> इति ह स्म सकलवेदलोकदेवब्राह्मणगवां परमगुरोर्भगवत ऋषभाख्यस्यविशुद्धाचरितमीरितं पुंसां समस्तदुश्चरिताभिहरणं परममहामङ्गलायनमिदमनुश्रद्धयोपचितयानुशृणोत्याश्रावयति वावहितो भगवति तस्मिन्वासुदेव एकान्ततोभक्तिरनयोरपि समनुवर्तते ॥१६॥
+
 > iti ha sma sakala-veda-loka-deva-brāhmaṇa-gavāṁ parama-guror bhagavata ṛṣabhākhyasya viśuddhācaritam īritaṁ puṁsāṁ samasta-duścaritābhiharaṇaṁ parama-mahā-maṅgalāyanam idam anuśraddhayopacitayānuśṛṇoty āśrāvayati vāvahito bhagavati tasmin vāsudeva ekāntato bhaktir anayor api samanuvartate.
 
 *iti*—así; *ha sma*—en verdad; *sakala*—todo; *veda*—del conocimiento; *loka*—de la gente en general; *deva*—de los semidioses; *brāhmaṇa*—de los *brāhmaṇas*; *gavām*—de las vacas; *parama*—el supremo; *guroḥ*—amo; *bhagavataḥ*—de la Suprema Personalidad de Dios; *ṛṣabha-ākhyasya*—cuyo nombre era Ṛṣabhadeva; *viśuddha*—puras; *ācaritam*—actividades; *īritam*—ahora explicadas; *puṁsām*—de toda entidad viviente; *samasta*—todas; *duścarita*—actividades pecaminosas; *abhiharaṇam*—destruir; *parama*—principal; *mahā*—grande; *maṅgala*—de cosas auspiciosas; *ayanam*—el refugio; *idam*—esto; *anuśraddhayā*—con fe; *upacitayā*—en aumento; *anuśṛṇoti*—escucha de la autoridad; *āśrāvayati*—habla a otros; *vā*—o; *avahitaḥ*—con atención; *bhagavati*—la Suprema Personalidad de Dios; *tasmin*—a Él; *vāsudeve*—al Señor Vāsudeva, el Señor Kṛṣṇa; *eka-antataḥ*—inquebrantable; *bhaktiḥ*—devoción; *anayoḥ*—de ambos grupos, los que escuchan y los que hablan; *api*—ciertamente; *samanuvartate*—comienza de hecho.

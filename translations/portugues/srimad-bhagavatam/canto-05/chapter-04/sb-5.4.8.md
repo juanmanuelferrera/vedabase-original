@@ -1,5 +1,7 @@
 ### SB 5.4.8
 
+> अथ ह भगवानृषभदेवः स्ववर्षं कर्मक्षेत्रमनुमन्यमानः प्रदर्शितगुरुकुलवासोलब्धवरैर्गुरुभिरनुज्ञआतो गृहमेधिनां धर्माननुशिक्षमाणो जयन्त्यामिन्द्रदत्तायामुभयलक्षणं कर्म समाम्नायाम्नातमभियुञ्जन्नात्मजानामात्मसमानानां शतं जनयामास ॥८॥
+
 *atha ha bhagavān ṛṣabhadevaḥ sva*-varṣaṁ karma-kṣetram anumanyamānaḥ pradarśita-gurukula-vāso labdha-varair gurubhir anujñāto gṛhamedhināṁ dharmān anuśikṣamāṇo jayantyām indra-dattāyām ubhaya-lakṣaṇaṁ karma samāmnāyāmnātam abhiyuñjann ātmajānām ātma-samānānāṁ śataṁ janayām āsa.
 
 *atha*—em seguida (após a partida de seu pai); *ha*—de fato; *bhagavān*—a Suprema Personalidade de Deus; *ṛṣabha-devaḥ*—Ṛṣabhadeva; *sva*—Seu próprio; *varṣam*—reino; *karma-kṣetram*—o campo de atividades; *anumanyamānaḥ*—aceitando como; *pradarśita*—mostrado como exemplo; *guru-kula-vāsaḥ*—viveu no gurukula; *labdha*—tendo recebido; *varaiḥ*—presentes; *gurubhiḥ*—pelos mestres espirituais; *anujñātaḥ*—sendo ordenado; *gṛha-medhinām*—dos chefes de família; *dharmān*—deveres; *anuśikṣamāṇaḥ*—ensinando pelo exemplo; *jayantyām*—em Sua esposa, Jayantī; *indra-dattāyām*—oferecida pelo Senhor Indra; *ubhaya-lakṣaṇam*—de ambos os tipos; *karma*—atividades; *samāmnāyāmnātam*—mencionadas nas escrituras; *abhiyuñjan*—executando; *ātmajānām*—filhos; *ātma-samānānām*—exatamente iguais a Ele mesmo; *śatam*—cem; *janayām āsa*—gerou.

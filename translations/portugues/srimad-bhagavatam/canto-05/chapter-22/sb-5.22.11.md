@@ -1,5 +1,7 @@
 ### SB 5.22.11
 
+> तत उपरिष्टाद्द्विलक्षयोजनतो नक्षत्राणि मेरुं दक्षिणेनैव कालायन ईश्वरयोजितानिसहाभिजिताष्टाविंशतिः ॥११॥
+
 *tata upariṣṭād dvi*-lakṣa-yojanato nakṣatrāṇi meruṁ dakṣiṇenaiva kālāyana īśvara-yojitāni sahābhijitāṣṭā-viṁśatiḥ.
 
 *tataḥ*—dessa região da lua; *upariṣṭāt*—acima; *dvi-lakṣa-yojanataḥ*—200.000 *yojanas*; *nakṣatrāṇi*—muitas estrelas; *merum*—a montanha Sumeru; *dakṣiṇena eva*—ao lado direito; *kāla-ayane*—na roda do tempo; *īśvara-yojitāni*—fixadas pela Suprema Personalidade de Deus; *saha*—com; *abhijitā*—a estrela conhecida como Abhijit; *aṣṭā-viṁśatiḥ*—vinte e oito.

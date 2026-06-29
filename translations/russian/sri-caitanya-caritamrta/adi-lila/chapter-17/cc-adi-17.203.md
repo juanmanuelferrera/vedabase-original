@@ -1,5 +1,8 @@
 ### CC Adi 17.203
 
+> এত শুনি’ তা’-সভারে ঘরে পাঠাইল ।
+> হেনকালে পাষণ্ডী হিন্দু পাঁচ-সাত আইল ॥২০৩॥
+
 > eta śuni' tā'-sabhāre ghare pāṭhāila
 > hena-kāle pāṣaṇḍī hindu pāṅca-sāta āila
 

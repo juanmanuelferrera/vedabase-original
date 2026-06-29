@@ -1,5 +1,8 @@
 ### CC Madhya 17.157
 
+> প্রেমানন্দে নাচে, গায়, সঘন হুঙ্কার ।
+> প্রভুর প্রেমাবেশ দেখি’ লোকে চমৎকার ॥১৫৭॥
+
 > premānande nāce, gāya, saghana huṅkāra
 > prabhura premāveśa dekhi' loke camatkāra
 

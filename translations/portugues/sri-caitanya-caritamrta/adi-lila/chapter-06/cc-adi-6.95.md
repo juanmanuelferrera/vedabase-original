@@ -1,5 +1,8 @@
 ### CC Adi 6.95
 
+> পৃথিবী ধরেন যেই শেষ-সঙ্কর্ষণ ।
+> কায়ব্যূহ করি’ করেন কৃষ্ণের সেবন ॥৯৫॥
+
 pṛthivī dharena yei śeṣa-saṅkarṣaṇa
 kāya-vyūha kari' karena kṛṣṇera sevana
 

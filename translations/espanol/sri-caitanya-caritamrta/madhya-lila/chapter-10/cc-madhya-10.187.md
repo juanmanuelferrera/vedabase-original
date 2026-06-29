@@ -1,5 +1,8 @@
 ### CC Madhya 10.187
 
+> যত নদ নদী যৈছে সমুদ্রে মিলয় ৷
+> ঐছে মহাপ্রভুর ভক্ত যাহাঁ তাহাঁ হয় ৷৷ ১৮৭ ৷৷ ॥১৮৭॥
+
 > yata nada nadī yaiche samudre milaya
 > aiche mahāprabhura bhakta yāhāṅ tāhāṅ haya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 21.99
 
+> ঐশ্বর্য কহিতে প্রভুর কৃষ্ণস্ফূর্তি হৈল ।
+> মাধুর্যে মজিল মন, এক শ্লোক পড়িল ॥৯৯॥
+
 > aiśvarya kahite prabhura kṛṣṇa-sphūrti haila
 > mādhurye majila mana, eka śloka paḍila
 

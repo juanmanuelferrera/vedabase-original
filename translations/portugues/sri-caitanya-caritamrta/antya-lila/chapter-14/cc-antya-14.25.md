@@ -1,5 +1,8 @@
 ### CC Antya 14.25
 
+> দেখিয়া গোবিন্দ আস্তে-ব্যস্তে স্ত্রীকে বর্জিলা ।
+> তারে নামাইতে প্রভু গোবিন্দে নিষেধিলা ॥২৫॥
+
 dekhiyā govinda āste-vyaste strīke varjilā
 
 tāre nāmāite prabhu govinde niṣedhilā

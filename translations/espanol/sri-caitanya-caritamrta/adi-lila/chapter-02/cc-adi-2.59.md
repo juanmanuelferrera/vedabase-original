@@ -1,5 +1,8 @@
 ### CC Adi 2.59
 
+> এই শ্লোক তত্ত্ব-লক্ষণ ভাগবত-সার ।
+> পরিভাষা-রূপে ইহার সর্বত্রাধিকার ॥৫৯॥
+
 > ei śloka tattva-lakṣaṇa bhāgavata-sāra
 > paribhāṣā-rūpe ihāra sarvatrādhikāra
 

@@ -3,6 +3,9 @@
 > ācāryaratna, vidyānidhi, paṇḍita gadādhara
 > gaṅgādāsa, hari-bhaṭṭa, ācārya purandara
 
+> ācāryaratna, vidyānidhi, paṇḍita gadādhara
+> gaṅgādāsa, hari-bhaṭṭa, ācārya purandara
+
 > pratyeke sabāra prabhu kari' guṇa gāna
 > punaḥ punaḥ āliṅgiyā karila sammāna
 

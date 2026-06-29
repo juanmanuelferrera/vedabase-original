@@ -1,5 +1,8 @@
 ### CC Adi 17.307
 
+> তর্কে ইহা নাহি মানে যেই দুরাচার ।
+> কুম্ভীপাকে পচে, তার নাহিক নিস্তার ॥৩০৭॥
+
 > tarke ihā nāhi māne yei durācāra
 > kumbhīpāke pace, tāra nāhika nistāra
 

@@ -1,5 +1,8 @@
 ### CC Madhya 20.19
 
+> ‘ইহার ঠাঞি সুবর্ণের অষ্ট মোহর হয়’  ।
+> শুনি’ আনন্দিত ভূঞা সনাতনে কয় ॥১৯॥
+
 > 'iṅhāra ṭhāñi suvarṇera aṣṭa mohara haya'
 > śuni' ānandita bhūñā sanātane kaya
 

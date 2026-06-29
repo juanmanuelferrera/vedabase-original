@@ -1,5 +1,8 @@
 ### CC Madhya 11.45
 
+> পাপী নীচ উদ্ধারিতে তাঁর অবতার ।
+> জগাই মাধাই তেঁহ করিলা উদ্ধার ॥৪৫॥
+
 > pāpī nīca uddhārite tāṅra avatāra
 > jagāi mādhāi teṅha karilā uddhāra
 

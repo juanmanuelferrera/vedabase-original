@@ -1,5 +1,8 @@
 ### Bg 5.24
 
+> योऽन्तःसुखोऽन्तरारामस्तथान्तर्ज्योतिरेव यः ।
+> स योगी ब्रह्मनिर्वाणं ब्रह्मभूतोऽधिगच्छति ॥२४॥
+
 > yo 'ntaḥ-sukho 'ntar-ārāmas
 > tathāntar-jyotir eva yaḥ
 > sa yogī brahma-nirvāṇaṁ

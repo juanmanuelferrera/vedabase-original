@@ -1,5 +1,8 @@
 ### CC Madhya 9.76
 
+> অমৃতলিঙ্গ-শিব দেখি’ বন্দন করিল ।
+> সব শিবালয়ে শৈব ‘বৈষ্ণব’ হইল ॥৭৬॥
+
 > amṛtaliṅga-śiva dekhi' vandana karila
 > saba śivālaye śaiva 'vaiṣṇava' ha-ila
 

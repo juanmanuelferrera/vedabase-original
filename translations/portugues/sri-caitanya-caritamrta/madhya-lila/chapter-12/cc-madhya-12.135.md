@@ -1,5 +1,8 @@
 ### CC Madhya 12.135
 
+> এইমত পুরদ্বার-আগে পথ যত ।
+> সকল শোধিল, তাহা কে বর্ণিবে কত ॥১৩৫॥
+
 ei-mata puradvāra-āge patha yata
 
 sakala śodhila, tāhā ke varṇibe kata

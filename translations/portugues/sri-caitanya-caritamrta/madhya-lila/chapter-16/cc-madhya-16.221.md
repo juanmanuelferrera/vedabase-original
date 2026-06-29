@@ -1,5 +1,8 @@
 ### CC Madhya 16.221
 
+> মিশ্র-পুরন্দরের পূর্বে কর্যাছেন সেবনে ।
+> অতএব প্রভু ভাল জানে দুইজনে ॥২২১॥
+
 miśra-purandarera pūrve karyāchena sevane
 
 ataeva prabhu bhāla jāne dui-jane

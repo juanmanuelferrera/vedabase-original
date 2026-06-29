@@ -1,5 +1,8 @@
 ### CC Madhya 7.44
 
+> সন্ন্যাস করি’ বিশ্বরূপ গিয়াছে দক্ষিণে ।
+> অবশ্য করিব আমি তাঁর অন্বেষণে ॥৪৪॥
+
 > sannyāsa kari' viśvarūpa giyāche dakṣiṇe
 > avaśya kariba āmi tāṅra anveṣaṇe
 

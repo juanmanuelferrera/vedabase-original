@@ -1,5 +1,8 @@
 ### CC Madhya 25.5
 
+> সন্ন্যাসীর গণ প্রভুরে যদি উপেক্ষিল ।
+> ভক্ত-দুঃখ খণ্ডাইতে তারে কৃপা কৈল ॥৫॥
+
 sannyāsīra gaṇa prabhure yadi upekṣila
 bhakta-duḥkha khaṇḍāite tāre kṛpā kaila
 

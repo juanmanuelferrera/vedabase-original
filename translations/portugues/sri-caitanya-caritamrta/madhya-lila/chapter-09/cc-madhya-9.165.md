@@ -1,5 +1,8 @@
 ### CC Madhya 9.165
 
+> প্রভুর বিয়োগে ভট্ট হৈল অচেতন ৷
+> এই রঙ্গলীলা করে শচীর নন্দন ৷৷ ১৬৫ ৷৷ ॥১৬৫॥
+
 prabhura viyoge bhaṭṭa haila acetana
 ei raṅga-līlā kare śacīra nandana
 

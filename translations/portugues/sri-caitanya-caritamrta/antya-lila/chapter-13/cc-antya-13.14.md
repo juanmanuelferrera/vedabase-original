@@ -1,5 +1,8 @@
 ### CC Antya 13.14
 
+> প্রভু কহেন, — “খাট এক আনহ পাড়িতে ।
+> জগদানন্দ চাহে আমায় বিষয় ভুঞ্জাইতে ॥১৪॥
+
 prabhu kahena,--"khāṭa eka ānaha pāḍite
 jagadānanda cāhe āmāya viṣaya bhuñjāite
 

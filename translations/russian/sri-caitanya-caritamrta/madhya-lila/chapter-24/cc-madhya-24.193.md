@@ -1,5 +1,8 @@
 ### CC Madhya 24.193
 
+> সৎসঙ্গ, কৃষ্ণসেবা, ভাগবত, নাম ।
+> ব্রজে বাস, — এই পঞ্চ সাধন প্রধান ॥১৯৩॥
+
 > sat-saṅga, kṛṣṇa-sevā, bhāgavata, nāma
 > vraje vāsa,—ei pañca sādhana pradhāna
 

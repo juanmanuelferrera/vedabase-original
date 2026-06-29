@@ -1,5 +1,8 @@
 ### CC Madhya 17.94
 
+> চন্দ্রশেখর কহে, — “প্রভু, বড় কৃপা কৈলা ।
+> আপনে আসিয়া ভৃত্যে দরশন দিলা ॥৯৪॥
+
 > candraśekhara kahe,—"prabhu, baḍa kṛpā kailā
 > āpane āsiyā bhṛtye daraśana dilā
 

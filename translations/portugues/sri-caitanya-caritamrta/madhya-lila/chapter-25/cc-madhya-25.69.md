@@ -1,5 +1,8 @@
 ### CC Madhya 25.69
 
+> হর্ষ, দৈন্য, চাপল্যাদি ‘সঞ্চারী’ বিকার ।
+> দেখি’ কাশীবাসী লোকের হৈল চমৎকার ॥৬৯॥
+
 harṣa, dainya, cāpalyādi 'sañcārī' vikāra
 
 dekhi' kāśī-vāsī lokera haila camatkāra

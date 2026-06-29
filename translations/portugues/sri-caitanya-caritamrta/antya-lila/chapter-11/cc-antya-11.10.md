@@ -1,5 +1,8 @@
 ### CC Antya 11.10
 
+> এ-সব প্রসাদে লিখি চৈতন্য-লীলা-গুণ ।
+> যৈছে তৈছে লিখি, করি আপন পাবন ॥১০॥
+
 e-saba prasāde likhi caitanya-līlā-guṇa
 yaiche taiche likhi, kari āpana pāvana
 

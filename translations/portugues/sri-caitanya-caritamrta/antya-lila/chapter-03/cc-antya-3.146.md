@@ -1,5 +1,8 @@
 ### CC Antya 3.146
 
+> সহজেই অবৈষ্ণব রামচন্দ্র-খাঁন ।
+> হরিদাসের অপরাধে হৈল অসুর-সমান ॥১৪৬॥
+
 sahajei avaiṣṇava rāmacandra-khāṅna
 
 haridāsera aparādhe haila asura-samāna

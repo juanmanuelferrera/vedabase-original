@@ -1,5 +1,8 @@
 ### CC Adi 11.54
 
+> বৃন্দাবনদাস — নারায়ণীর নন্দন ।
+> ‘চৈতন্য-মঙ্গল’ যেঁহো করিল রচন ॥৫৪॥
+
 > vṛndāvana-dāsa—nārāyaṇīra nandana
 > 'caitanya-maṅgala' yeṅho karila racana
 

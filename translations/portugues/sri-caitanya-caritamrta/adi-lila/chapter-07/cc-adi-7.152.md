@@ -1,5 +1,8 @@
 ### CC Adi 7.152
 
+> ভিক্ষা করি’ মহাপ্রভু আইলা বাসাঘর ।
+> হেন চিত্র-লীলা করে গৌরাঙ্গ-সুন্দর ॥১৫২॥
+
 bhikṣā kari' mahāprabhu āilā vāsāghara
 
 hena citra-līlā kare gaurāṅga-sundara

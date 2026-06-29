@@ -1,5 +1,8 @@
 ### CC Adi 7.87
 
+> প্রেমার স্বভাবে করে চিত্ত-তনু ক্ষোভ ।
+> কৃষ্ণের চরণ-প্রাপ্ত্যে উপজায় লোভ ॥৮৭॥
+
 > premāra svabhāve kare citta-tanu kṣobha
 > kṛṣṇera caraṇa-prāptye upajāya lobha
 

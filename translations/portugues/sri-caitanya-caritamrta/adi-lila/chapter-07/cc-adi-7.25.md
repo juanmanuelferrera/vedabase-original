@@ -1,5 +1,8 @@
 ### CC Adi 7.25
 
+> উছলিল প্রেমবন্যা চৌদিকে বেড়ায় ।
+> স্ত্রী, বৃদ্ধ, বালক, যুবা, সবারে ডুবায় ॥২৫॥
+
 uchalila prema-vanyā caudike veḍāya
 
 strī, vṛddha, bālaka, yuvā, sabāre ḍubāya

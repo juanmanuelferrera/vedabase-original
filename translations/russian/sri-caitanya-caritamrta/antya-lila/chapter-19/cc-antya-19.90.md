@@ -1,5 +1,8 @@
 ### CC Antya 19.90
 
+> কৃষ্ণগন্ধ-লুব্ধা রাধা সখীরে যে কহিলা ।
+> সেই শ্লোক পড়ি’ প্রভু অর্থ করিলা ॥৯০॥
+
 > kṛṣṇa-gandha-lubdhā rādhā sakhīre ye kahilā
 > sei śloka paḍi' prabhu artha karilā
 

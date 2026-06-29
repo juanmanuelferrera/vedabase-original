@@ -1,5 +1,8 @@
 ### CC Madhya 19.61
 
+> সে-কালে বল্লভ-ভট্ট রহে আড়াইল-গ্রামে ।
+> মহাপ্রভু আইলা শুনি’ আইল তাঁর স্থানে ॥৬১॥
+
 > se-kāle vallabha-bhaṭṭa rahe āḍāila-grāme
 > mahāprabhu āilā śuni' āila tāṅra sthāne
 

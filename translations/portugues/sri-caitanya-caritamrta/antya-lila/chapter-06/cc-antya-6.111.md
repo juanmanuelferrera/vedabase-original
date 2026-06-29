@@ -1,5 +1,8 @@
 ### CC Antya 6.111
 
+> রাঘব-ঠাকুরের প্রসাদ অমৃতের সার  ।
+> মহাপ্রভু যাহা খাইতে আইসে বার বার ॥১১১॥
+
 rāghava-ṭhākurera prasāda amṛtera sāra
 
 mahāprabhu yāhā khāite āise bāra bāra

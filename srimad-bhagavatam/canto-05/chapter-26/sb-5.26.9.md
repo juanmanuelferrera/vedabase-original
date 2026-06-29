@@ -1,5 +1,7 @@
 ### SB 5.26.9
 
+> एवमेवान्धतामिस्रे यस्तु वञ्चयित्वा पुरुषं दारादीनुपयुङ्क्ते यत्र शरीरी निपात्यमानो यातनास्थो वेदनया नष्टमतिर्नष्टदृष्टिश्च भवति यथा वनस्पतिर्वृश्च्यमानमूलस्तस्मादन्धतामिस्रंतमुपदिशन्ति ॥८॥
+
 > evam evāndhatāmisre yas tu vañcayitvā puruṣaṁ dārādīn upayuṅkte yatra śarīrī nipātyamāno yātanā-stho vedanayā naṣṭa-matir naṣṭa-dṛṣṭiś ca bhavati yathā vanaspatir vṛścyamāna-mūlas tasmād andhatāmisraṁ tam upadiśanti.
 
 *evam*—in this way; *eva*—certainly; *andhatāmisre*—in the hellish planet known as Andhatāmisra; *yaḥ*—the person who; *tu*—but; *vañcayitvā*—cheating; *puruṣam*—another person; *dāra-ādīn*—the wife and children; *upayuṅkte*—enjoys; *yatra*—where; *śarīrī*—the embodied person; *nipātyamānaḥ*—being forcibly thrown; *yātanā-sthaḥ*—always situated in extremely miserable conditions; *vedanayā*—by such suffering; *naṣṭa*—lost; *matiḥ*—whose consciousness; *naṣṭa*—lost; *dṛṣṭiḥ*—whose sight; *ca*—also; *bhavati*—becomes; *yathā*—as much as; *vanaspatiḥ*—the trees; *vṛścyamāna*—being cut; *mūlaḥ*—whose root; *tasmāt*—because of this; *andhatāmisram*—Andhatāmisra; *tam*—that; *upadiśanti*—they call.

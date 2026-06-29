@@ -1,5 +1,8 @@
 ### SB 9.13.17
 
+> कृतिरातस्ततस्तस्मान्महारोमा च तत्सुतः
+> स्वर्णरोमा सुतस्तस्य ह्रस्वरोमा व्यजायत ॥१७॥
+
 > kṛtirātas tatas tasmān
 > mahāromā ca tat-sutaḥ
 > svarṇaromā sutas tasya

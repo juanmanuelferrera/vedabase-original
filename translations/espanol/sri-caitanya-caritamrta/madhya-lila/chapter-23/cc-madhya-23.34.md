@@ -1,5 +1,7 @@
 ### CC Madhya 23.34
 
+> কৃষ্ণগুণাখ্যানে হয় সর্বদা আসক্তি ॥৩৪॥
+
 > kṛṣṇa-guṇākhyāne haya sarvadā āsakti
 
 *kṛṣṇa-guṇa-ākhyāne*—al describir las cualidades trascendentales de Kṛṣṇa; *haya*—hay; *sarvadā*—siempre; *āsakti*—apego.

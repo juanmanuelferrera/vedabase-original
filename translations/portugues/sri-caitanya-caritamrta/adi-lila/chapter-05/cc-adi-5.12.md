@@ -1,5 +1,8 @@
 ### CC Adi 5.12
 
+> সপ্তম শ্লোকের অর্থ করি চারিশ্লোকে ।
+> যাতে নিত্যানন্দতত্ত্ব জানে সর্বলোকে ॥১২॥
+
 saptama ślokera artha kari cāri-śloke
 yāte nityānanda-tattva jāne sarva-loke
 

@@ -1,5 +1,8 @@
 ### CC Antya 17.25
 
+> তাঁর পাছে পাছে আমি করিনু গমন ।
+> তাঁর ভূষা-ধ্বনিতে আমার হরিল শ্রবণ ॥২৫॥
+
 > tāṅra pāche pāche āmi karinu gamana
 > tāṅra bhūṣā-dhvanite āmāra harila śravaṇa
 

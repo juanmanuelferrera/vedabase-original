@@ -6,6 +6,12 @@
 > akarod aty-alaṁ kīrtyā
 > viṣṇuḥ sura-gaṇaṁ yathā
 
+> tatrāyaṁ ślokaḥ—
+> praiyavrataṁ vaṁśam imaṁ
+> virajaś caramodbhavaḥ
+> akarod aty-alaṁ kīrtyā
+> viṣṇuḥ sura-gaṇaṁ yathā
+
 *tatra*—en relación con él; *ayam ślokaḥ*—es famoso este verso; *praiyavratam*—que viene del rey Priyavrata; *vaṁśam*—la dinastía; *imam*—este; *virajaḥ*—el rey Viraja; *carama-udbhavaḥ*—la fuente de cien hijos (encabezados por Śatajit); *akarot*—adornada; *ati-alam*—mucho; *kīrtyā*—por su fama; *viṣṇuḥ*—el Señor Viṣṇu, la Suprema Personalidad de Dios; *sura-gaṇam*—a los semidioses; *yathā*—como.
 
 **Acerca del rey Viraja hay un verso famoso: «Por sus excelsas cualidades y su amplia fama, el rey Viraja fue la joya de la corona del rey Priyavrata, del mismo modo que Viṣṇu, por Su potencia trascendental, es el adorno y la bendición de los semidioses».**

@@ -1,5 +1,8 @@
 ### CC Adi 17.327
 
+> ষোড়শ পরিচ্ছেদে ‘কৈশোরলীলা’র উদ্দেশ ।
+> সপ্তদশে ‘যৌবনলীলা’ কহিলুঁ বিশেষ ॥৩২৭॥
+
 > ṣoḍaśa paricchede 'kaiśora-līlā' ra uddeśa
 > saptadaśe 'yauvana-līlā' kahiluṅ viśeṣa
 

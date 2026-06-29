@@ -1,5 +1,8 @@
 ### CC Antya 3.165
 
+> হরিদাস-ঠাকুর চলি’ আইলা চান্দপুরে ।
+> আসিয়া রহিলা বলরাম-আচার্যের ঘরে ॥১৬৫॥
+
 > haridāsa-ṭhākura cali' āilā cāndapure
 > āsiyā rahilā balarāma-ācāryera ghare
 

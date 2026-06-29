@@ -1,5 +1,8 @@
 ### CC Madhya 3.46
 
+> চই-মরিচ-সুখ্ত দিয়া সব ফল-মূলে ।
+> অমৃতনিন্দক পঞ্চবিধ তিক্ত-ঝালে ॥৪৬॥
+
 ca-i-marica-sukhta diyā saba phala-mūle
 amṛta-nindaka pañca-vidha tikta-jhāle
 

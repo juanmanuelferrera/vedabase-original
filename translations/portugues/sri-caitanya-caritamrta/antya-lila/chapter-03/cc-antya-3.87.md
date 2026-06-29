@@ -1,5 +1,8 @@
 ### CC Antya 3.87
 
+> যে কহে, — ‘চৈতন্য-মহিমা মোর গোচর হয়’  ।
+> সে জানুক, মোর পুনঃ এই ত’ নিশ্চয় ॥৮৭॥
+
 ye kahe,--caitanya-mahimā mora gocara haya'
 
 se jānuka, mora punaḥ ei ta' niścaya

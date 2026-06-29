@@ -1,5 +1,10 @@
 ### CC Madhya 23.1
 
+> চিরাদদত্তং নিজ-গুপ্তবিত্তং
+> স্বপ্রেম-নামামৃতমত্যুদারঃ ।
+> আপামরং যো বিততার গৌরঃ
+> কৃষ্ণো জনেভ্যস্তমহং প্ৰপদ্যে ॥১॥
+
 > cirād adattaṁ nija-gupta-vittaṁ
 > svaprema-nāmāmṛtam atyudāraḥ
 > āpāmaraṁ yo vitatāra gauraḥ

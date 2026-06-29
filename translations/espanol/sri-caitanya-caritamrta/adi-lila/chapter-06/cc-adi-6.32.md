@@ -1,5 +1,8 @@
 ### CC Adi 6.32
 
+> ঈশ্বরসারূপ্য পায় পারিষদগণ ।
+> চতুর্ভুজ, পীতবাস, যৈছে নারায়ণ ॥৩২॥
+
 > īśvara-sārūpya pāya pāriṣada-gaṇa
 > catur-bhuja, pīta-vāsa, yaiche nārāyaṇa
 

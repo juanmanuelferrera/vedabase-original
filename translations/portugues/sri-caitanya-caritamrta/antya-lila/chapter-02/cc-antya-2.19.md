@@ -1,5 +1,8 @@
 ### CC Antya 2.19
 
+> অশ্রু, কম্প, স্তম্ভ, স্বেদ, সাত্ত্বিক বিকার ।
+> নিরন্তর প্রেমে নৃত্য, সঘন হুঙ্কার ॥১৯॥
+
 aśru, kampa, stambha, sveda, sāttvika vikāra
 
 nirantara preme nṛtya, saghana huṅkāra

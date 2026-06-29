@@ -1,5 +1,8 @@
 ### CC Madhya 20.99
 
+> “নীচ জাতি, নীচ-সঙ্গী, পতিত অধম ৷
+> কুবিষয়-কূপে পড়ি’ গোঙাইনু জনম ! ॥ ৯৯ ॥
+
 > "nīca jāti, nīca-saṅgī, patita adhama
 > kuviṣaya-kūpe paḍi' goṅāinu janama!
 

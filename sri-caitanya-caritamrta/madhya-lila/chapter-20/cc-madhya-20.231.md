@@ -1,5 +1,8 @@
 ### CC Madhya 20.231
 
+> শ্রীধর — পদ্মচক্রগদাশঙ্খকর ।
+> হৃষীকেশ — গদাচক্রপদ্মশঙ্খধর ॥২৩১॥
+
 > śrīdhara—padma-cakra-gadā-śaṅkha-kara
 > hṛṣīkeśa—gadā-cakra-padma-śaṅkha-dhara
 

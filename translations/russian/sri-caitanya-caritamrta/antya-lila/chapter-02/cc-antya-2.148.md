@@ -1,5 +1,8 @@
 ### CC Antya 2.148
 
+> সেইক্ষণে দিব্যদেহে প্রভুস্থানে আইলা ।
+> প্রভুকৃপা পাঞা অন্তর্ধানেই রহিলা ॥১৪৮॥
+
 > sei-kṣaṇe divya-dehe prabhu-sthāne āilā
 > prabhu-kṛpā pāñā antardhānei rahilā
 

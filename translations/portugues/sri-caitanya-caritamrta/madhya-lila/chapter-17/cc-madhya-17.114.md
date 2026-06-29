@@ -1,5 +1,8 @@
 ### CC Madhya 17.114
 
+> দেখিলে সে জানি তাঁর ‘ঈশ্বরের রীতি’ ।
+> অলৌকিক কথা শুনি’ কে করে প্রতীতি ?” ॥ ১১৪ ॥
+
 dekhile se jāni tāṅra 'īśvarera rīti'
 
 alaukika kathā śuni' ke kare pratīti?"

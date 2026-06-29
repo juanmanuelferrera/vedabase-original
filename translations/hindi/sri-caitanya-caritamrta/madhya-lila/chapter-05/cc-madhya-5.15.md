@@ -1,5 +1,8 @@
 ### CC Madhya 5.15
 
+> গোপাল-সৌন্দর্য দুঁহার মন নিল হরি’ ।
+> সুখ পাঞা রহে তাহাঁ দিন দুই-চারি ॥১৫॥
+
 > gopāla-saundarya duṅhāra mana nila hari'
 > sukha pāñā rahe tāhāṅ dina dui-cāri
 

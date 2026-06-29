@@ -1,5 +1,8 @@
 ### CC Adi 4.177
 
+> কৃষ্ণের প্রতিজ্ঞা এক আছে পূর্ব হৈতে  ।
+> যে যৈছে ভজে, কৃষ্ণ তারে ভজে তৈছে ॥১৭৭॥
+
 kṛṣṇera pratijñā eka āche pūrva haite
 
 ye yaiche bhaje, kṛṣṇa tāre bhaje taiche

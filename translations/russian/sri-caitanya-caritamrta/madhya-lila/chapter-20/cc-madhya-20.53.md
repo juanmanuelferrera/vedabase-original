@@ -1,5 +1,8 @@
 ### CC Madhya 20.53
 
+> দুইজনে গলাগলি রোদন অপার ।
+> দেখি’ চন্দ্রশেখরের হইল চমৎকার ॥৫৩॥
+
 > dui-jane galāgali rodana apāra
 > dekhi' candraśekharera ha-ila camatkāra
 

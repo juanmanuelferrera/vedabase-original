@@ -1,5 +1,8 @@
 ### CC Madhya 9.304
 
+> তবে মহাপ্রভু আইলা কৃষ্ণবেণ্বা-তীরে ৷
+> নানা তীর্থ দেখি’ তাহাঁ দেবতা-মন্দিরে ৷৷ ৩০৪ ৷৷ ॥৩০৪॥
+
 > tabe mahāprabhu āilā kṛṣṇa-veṇvā-tīre
 > nānā tīrtha dekhi' tāhāṅ devatā-mandire
 

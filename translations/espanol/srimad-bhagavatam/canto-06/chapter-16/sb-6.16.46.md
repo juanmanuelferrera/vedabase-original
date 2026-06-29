@@ -1,5 +1,8 @@
 ### SB 6.16.46
 
+> विदितमनन्त समस्तं तव जगदात्मनो जनैरिहाचरितम
+> विज्ञआप्यं परमगुरोः कियदिव सवितुरिव खद्योतैः ॥४६॥
+
 > viditam ananta samastaṁ
 > tava jagad-ātmano janair ihācaritam
 > vijñāpyaṁ parama-guroḥ

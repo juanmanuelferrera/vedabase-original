@@ -1,5 +1,8 @@
 ### CC Madhya 16.124
 
+> রাজার আজ্ঞায় পড়িছা পাঠায় দিনে-দিনে ।
+> বহুত প্রসাদ পাঠায় দিয়া বহু-জনে ॥১২৪॥
+
 > rājāra ājñāya paḍichā pāṭhāya dine-dine
 > bahuta prasāda pāṭhāya diyā bahu-jane
 

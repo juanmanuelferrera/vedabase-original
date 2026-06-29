@@ -1,5 +1,7 @@
 ### SB 5.19.3
 
+> ओं नमो भगवते उत्तमश्लोकाय नम आर्यलक्षणशीलव्रताय नम उपशिक्षितात्मन उपासितलोकाय नमः साधुवादनिकषणाय नमो ब्रह्मण्यदेवाय महापुरुषाय महाराजाय नम इति ॥३॥
+
 *oṁ namo bhagavate uttamaślokāya nama ārya*-lakṣaṇa-śīla-vratāya nama upaśikṣitātmana upāsita-lokāya namaḥ sādhu-vāda-nikaṣaṇāya namo brahmaṇya-devāya mahā-puruṣāya mahā-rājāya nama iti.
 
 *om*—ó meu Senhor; *namaḥ*—minhas respeitosas reverências; *bhagavate*—à Suprema Personalidade de Deus; *uttama-ślokāya*—que é sempre adorado com versos seletos; *namaḥ*—minhas respeitosas reverências; *ārya-lakṣaṇa-śīla-vratāya*—que possui todas as boas qualidades das personalidades avançadas; *namaḥ*—minhas respeitosas reverências; *upaśikṣita-ātmane*—a Vós, cujos sentidos estão sob controle; *upāsita-lokāya*—que é sempre lembrado e adorado por todas as diferentes classes de entidades vivas; *namaḥ*—minhas respeitosas reverências; *sādhu-vāda-nikaṣaṇāya*—ao Senhor, que é como uma pedra para examinar todas as boas qualidades de um *sādhu*; *namaḥ*—minhas respeitosas reverências; *brahmaṇya-devāya*—que é adorado pelos *brāhmaṇas* mais qualificados; *mahā-puruṣāya*—ao Senhor Supremo, que é adorado pelo *puruṣa-sūkta* por ser a causa desta criação material; *mahā-rājāya*—ao rei supremo, ou rei de todos os reis; *namaḥ*—minhas respeitosas reverências; *iti*—assim.

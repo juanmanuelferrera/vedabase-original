@@ -1,5 +1,8 @@
 ### CC Adi 8.33
 
+> ওরে মূঢ় লোক, শুন চৈতন্যমঙ্গল ।
+> চৈতন্য-মহিমা যাতে জানিবে সকল ॥৩৩॥
+
 > ore mūḍha loka, śuna caitanya-maṅgala
 > caitanya-mahimā yāte jānibe sakala
 

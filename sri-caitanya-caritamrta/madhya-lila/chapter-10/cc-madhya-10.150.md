@@ -1,5 +1,8 @@
 ### CC Madhya 10.150
 
+> গোবিন্দের সঙ্গে করে প্রভুর সেবন ।
+> গোবিন্দের ভাগ্যসীমা না যায় বর্ণন ॥১৫০॥
+
 > govindera saṅge kare prabhura sevana
 > govindera bhāgya-sīmā nā yāya varṇana
 

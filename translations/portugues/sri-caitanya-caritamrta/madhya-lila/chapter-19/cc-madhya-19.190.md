@@ -1,5 +1,8 @@
 ### CC Madhya 19.190
 
+> সখ্য-ভক্ত — শ্রীদামাদি, পুরে ভীমার্জুন ।
+> বাৎসল্য-ভক্ত — মাতা পিতা, যত গুরুজন ॥১৯০॥
+
 sakhya-bhakta--śrīdāmādi, pure bhīmārjuna
 
 vātsalya-bhakta--mātā pitā, yata guru-jana

@@ -1,5 +1,8 @@
 ### CC Madhya 9.298
 
+> রন্ধনে নিপুণা তাঁ-সম নাহি ত্রিভুবনে ৷
+> পুত্রসম স্নেহ করেন সন্ন্যাসি-ভোজনে ৷৷ ২৯৮ ৷৷ ॥২৯৮॥
+
 > randhane nipuṇā tāṅ-sama nāhi tribhuvane
 > putra-sama sneha karena sannyāsi-bhojane
 

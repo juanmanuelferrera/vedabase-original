@@ -1,5 +1,8 @@
 ### CC Madhya 24.243
 
+> অর্ধ-মারা জীব যদি ধড়্ফড় করে ।
+> তবে ত’ আনন্দ মোর বাড়য়ে অন্তরে ।।” ॥ ২৪৩ ॥
+
 ardha-mārā jīva yadi dhaḍ-phaḍa kare
 
 tabe ta' ānanda mora bāḍaye antare"

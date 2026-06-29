@@ -1,5 +1,8 @@
 ### SB 3.3.7
 
+> तत्राहृतास्ता नरदेवकन्याः कुजेन दृष्ट्वा हरिमार्तबन्धुम् ।
+> उत्थाय सद्यो जगृहुः प्रहर्ष व्रीडानुरागप्रहितावलोकैः ॥७॥
+
 > tatrāhṛtās tā nara-deva-kanyāḥ
 > kujena dṛṣṭvā harim ārta-bandhum
 > utthāya sadyo jagṛhuḥ praharṣa-

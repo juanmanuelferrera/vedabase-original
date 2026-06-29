@@ -1,5 +1,8 @@
 ### SB 3.18.8
 
+> स गामुदस्तात्सलिलस्य गोचरे विन्यस्य तस्यामदधात्स्वसत्त्वम् ।
+> अभिष्टुतो विश्वसृजा प्रसूनैरापूर्यमाणो विबुधैः पश्यतोऽरेः ॥८॥
+
 > sa gām udastāt salilasya gocare
 > vinyasya tasyām adadhāt sva-sattvam
 > abhiṣṭuto viśva-sṛjā prasūnair

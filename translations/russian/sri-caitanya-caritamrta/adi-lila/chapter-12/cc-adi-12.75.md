@@ -1,5 +1,8 @@
 ### CC Adi 12.75
 
+> অচ্যুতের যেই মত, সেই মত সার ।
+> আর যত মত সব হৈল ছারখার ॥৭৫॥
+
 > acyutera yei mata, sei mata sāra
 > āra yata mata saba haila chārakhāra
 

@@ -1,5 +1,8 @@
 ### CC Adi 5.163
 
+> মহাপ্রেমময় তিঁহো বসিলা অঙ্গনে ।
+> সকল বৈষ্ণব তাঁর বন্দিলা চরণে ॥১৬৩॥
+
 > mahā-prema-maya tiṅho vasilā aṅgane
 > sakala vaiṣṇava tāṅra vandilā caraṇe
 

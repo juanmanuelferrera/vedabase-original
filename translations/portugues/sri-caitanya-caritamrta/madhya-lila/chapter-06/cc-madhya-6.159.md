@@ -1,5 +1,8 @@
 ### CC Madhya 6.159
 
+> আনন্দাংশে ‘হ্লাদিনী’, সদংশে ‘সন্ধিনী’ ।
+> চিদংশে ‘সম্বিৎ’, যারে জ্ঞান করি মানি ॥১৫৯॥
+
 ānandāṁśe 'hlādinī,' sad-aṁśe 'sandhinī'
 
 cid-aṁśe 'samvit', yāre jñāna kari māni

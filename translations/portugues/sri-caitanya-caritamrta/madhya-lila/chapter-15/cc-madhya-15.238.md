@@ -1,5 +1,8 @@
 ### CC Madhya 15.238
 
+> তথাপি এতেক অন্ন খাওন না যায় ।
+> ভট্ট কহে, — জানি, খাও যতেক যুয়ায় ॥২৩৮॥
+
 tathāpi eteka anna khāona nā yāya
 
 bhaṭṭa kahe,--jāni, khāo yateka yuyāya

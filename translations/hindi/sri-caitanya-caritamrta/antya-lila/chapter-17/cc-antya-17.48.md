@@ -1,5 +1,10 @@
 ### CC Antya 17.48
 
+> এই শব্দামৃত চারি, যার হয় ভাগ্য ভারি,
+> সেই কর্ণে ইহা করে পান ।
+> ইহা যেই নাহি শুনে, সে কাণ জন্মিল কেনে,
+> কাণাকড়ি-সম সেই কাণ ।।” ॥ ৪৮ ॥
+
 > ei śabdāmṛta cāri, yāra haya bhāgya bhāri,
 > sei karṇe ihā kare pāna
 > ihā yei nāhi śune, se kāṇa janmila kene,

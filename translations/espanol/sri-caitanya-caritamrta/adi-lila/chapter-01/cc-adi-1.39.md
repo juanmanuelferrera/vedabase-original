@@ -1,5 +1,8 @@
 ### CC Adi 1.39
 
+> অদ্বৈত আচার্য — প্রভুর অংশ-অবতার ।
+> তাঁর পাদপদ্মে কোটি প্রণতি আমার ॥৩৯॥
+
 > advaita ācārya--prabhura aṁśa-avatāra
 > tāṅra pāda-padme koṭi praṇati āmāra
 

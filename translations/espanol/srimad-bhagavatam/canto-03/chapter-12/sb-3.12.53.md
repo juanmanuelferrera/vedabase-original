@@ -1,5 +1,7 @@
 ### SB 3.12.53
 
+> ताभ्यां रूपविभागाभ्यां मिथुनं समपद्यत् ॥५३॥
+
 > tābhyāṁ rūpa-vibhāgābhyāṁ
 > mithunaṁ samapadyata
 

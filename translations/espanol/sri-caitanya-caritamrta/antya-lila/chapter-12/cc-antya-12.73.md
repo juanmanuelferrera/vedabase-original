@@ -1,5 +1,8 @@
 ### CC Antya 12.73
 
+> সন্ন্যাসী মানুষ মোর, নাহি কোন ধন ।
+> কি দিয়া তোমার ঋণ করিমু শোধন ? ॥ ৭৩ ॥
+
 > sannyāsī mānuṣa mora, nāhi kona dhana
 > ki diyā tomāra ṛṇa karimu śodhana?
 

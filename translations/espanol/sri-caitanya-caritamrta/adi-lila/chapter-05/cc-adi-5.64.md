@@ -1,5 +1,8 @@
 ### CC Adi 5.64
 
+> কৃষ্ণ — কর্তা, মায়া তাঁর করেন সহায় ।
+> ঘটের কারণ — চক্র-দণ্ডাদি উপায় ॥৬৪॥
+
 > kṛṣṇa--kartā, māyā tāṅra karena sahāya
 > ghaṭera kāraṇa--cakra-daṇḍādi upāya
 

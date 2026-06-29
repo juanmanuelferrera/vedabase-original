@@ -1,5 +1,8 @@
 ### CC Madhya 8.196
 
+> প্রভু কহে, — ‘সাধ্যবস্তুর অবধি’ এই হয় ৷
+> তোমার প্রসাদে ইহা জানিলুঁ নিশ্চয় ৷৷ ১৯৬ ৷৷ ॥১৯৬॥
+
 > prabhu kahe,--'sādhya-vastura avadhi' ei haya
 > tomāra prasāde ihā jāniluṅ niścaya
 

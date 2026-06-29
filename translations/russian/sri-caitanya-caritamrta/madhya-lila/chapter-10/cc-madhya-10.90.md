@@ -1,5 +1,8 @@
 ### CC Madhya 10.90
 
+> মুকুন্দ, নরহরি, রঘুনন্দন খণ্ড হৈতে ।
+> আচার্যের ঠাঞি আইলা নীলাচল যাইতে ॥৯০॥
+
 > mukunda, narahari, raghunandana khaṇḍa haite
 > ācāryera ṭhāñi āilā nīlācala yāite
 

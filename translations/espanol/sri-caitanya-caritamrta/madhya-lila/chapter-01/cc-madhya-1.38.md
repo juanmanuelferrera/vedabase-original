@@ -1,5 +1,8 @@
 ### CC Madhya 1.38
 
+> রসামৃতসিন্ধু, আর বিদগ্ধমাধব ।
+> উজ্জ্বলনীলমণি, আর ললিতমাধব ॥৩৮॥
+
 > rasāmṛta-sindhu, āra vidagdha-mādhava
 > ujjvala-nīlamaṇi, āra lalita-mādhava
 

@@ -1,5 +1,8 @@
 ### CC Antya 2.171
 
+> বিশ্বাস করিয়া শুন চৈতন্যচরিত ।
+> তর্ক না করিহ, তর্কে হবে বিপরীত ॥১৭১॥
+
 > viśvāsa kariyā śuna caitanya-carita
 > tarka nā kariha, tarke habe viparīta
 

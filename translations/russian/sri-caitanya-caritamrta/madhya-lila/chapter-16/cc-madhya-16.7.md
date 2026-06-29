@@ -1,5 +1,8 @@
 ### CC Madhya 16.7
 
+> রামানন্দ, সার্বভৌম, দুইজনা-স্থানে ।
+> তবে যুক্তি করে প্রভু — ‘যাব বৃন্দাবনে’ ॥৭॥
+
 > rāmānanda, sārvabhauma, dui-janā-sthāne
 > tabe yukti kare prabhu—'yāba vṛndāvane'
 

@@ -1,5 +1,8 @@
 ### CC Adi 17.155
 
+> কাজী কহে, — তোমার যৈছে বেদ-পুরাণ ।
+> তৈছে আমার শাস্ত্র — কেতাব ‘কোরাণ’ ॥১৫৫॥
+
 kājī kahe,--tomāra yaiche veda-purāṇa
 
 taiche āmāra śāstra--ketāva 'korāṇa'

@@ -1,5 +1,8 @@
 ### SB 9.1.33
 
+> तत ऊर्ध्वं वनं तद्वै पुरुषा वर्जयन्ति हि
+> सा चानुचरसंयुक्ता विचचार वनाद्वनम ॥३३॥
+
 > tata ūrdhvaṁ vanaṁ tad vai
 > puruṣā varjayanti hi
 > sā cānucara-saṁyuktā

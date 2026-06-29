@@ -1,5 +1,8 @@
 ### SB 6.3.18
 
+> भूतानि विष्णोः सुरपूजितानि दुर्दर्शलिङ्गानि महाद्भुतानि
+> रक्षन्ति तद्भक्तिमतः परेभ्यो मत्तश्च मर्त्यानथ सर्वतश्च ॥१८॥
+
 > bhūtāni viṣṇoḥ sura-pūjitāni
 > durdarśa-liṅgāni mahādbhutāni
 > rakṣanti tad-bhaktimataḥ parebhyo

@@ -1,5 +1,8 @@
 ### CC Antya 4.31
 
+> রাত্রি-দিনে রঘুনাথের ‘নাম’ আর ‘ধ্যান’  ।
+> রামায়ণ নিরবধি শুনে, করে গান ॥৩১॥
+
 rātri-dine raghunāthera 'nāma' āra 'dhyāna'
 
 rāmāyaṇa niravadhi śune, kare gāna

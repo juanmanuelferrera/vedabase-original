@@ -1,5 +1,8 @@
 ### CC Madhya 18.207
 
+> ‘রামদাস’ বলি’ প্রভু তাঁর কৈল নাম ।
+> আর এক পাঠান, তাঁর নাম — ‘বিজুলী-খাঁন’ ॥২০৭॥
+
 > 'rāmadāsa' bali' prabhu tāṅra kaila nāma
 > āra eka pāṭhāna, tāṅra nāma--'vijulī-khāṅna'
 

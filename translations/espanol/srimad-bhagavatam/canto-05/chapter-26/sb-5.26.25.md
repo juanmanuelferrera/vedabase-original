@@ -1,5 +1,7 @@
 ### SB 5.26.25
 
+> ये त्विह वै दाम्भिका दम्भयज्ञएषु पशून्विशसन्ति तानमुष्मिन्लोके वैशसे नरकेपतितान्निरयपतयो यातयित्वा विशसन्ति ॥२४॥
+
 > ye tv iha vai dāmbhikā dambha-yajñeṣu paśūn viśasanti tān amuṣmiḹ loke vaiśase narake patitān niraya-patayo yātayitvā viśasanti.
 
 *ye*—personas que; *tu*—pero; *iha*—en esta vida; *vai*—en verdad; *dāmbhikāḥ*—muy orgullosas de su riqueza y de su posición prestigiosa; *dambha-yajñeṣu*—en un sacrificio celebrado para aumentar el prestigio; *paśūn*—animales; *viśasanti*—matan; *tān*—a ellos; *amuṣmin loke*—en el siguiente mundo; *vaiśase*—Vaiśasa o Viśasana; *narake*—al infierno; *patitān*—caídas; *niraya-patayaḥ*—sirvientes de Yamarāja; *yātayitvā*—causando suficiente dolor; *viśasanti*—matan.

@@ -1,5 +1,8 @@
 ### CC Madhya 3.140
 
+> শচী-আগে পড়িলা প্রভু দণ্ডবৎ হঞা ।
+> কান্দিতে লাগিলা শচী কোলে উঠাইঞা ॥১৪০॥
+
 > śacī-āge paḍilā prabhu daṇḍavat hañā
 > kāndite lāgilā śacī kole uṭhāiñā
 

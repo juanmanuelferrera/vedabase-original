@@ -1,5 +1,8 @@
 ### CC Madhya 18.10
 
+> সেই কুণ্ডে যেই একবার করে স্নান ।
+> তাঁরে রাধা-সম ‘প্রেম’ কৃষ্ণ করে দান ॥১০॥
+
 > sei kuṇḍe yei eka-bāra kare snāna
 > tāṅre rādhā-sama 'prema' kṛṣṇa kare dāna
 

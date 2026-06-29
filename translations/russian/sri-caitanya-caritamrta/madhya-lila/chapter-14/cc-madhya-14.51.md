@@ -1,5 +1,8 @@
 ### CC Madhya 14.51
 
+> মত্ত-হস্তিগণ টানে যার যত বল ।
+> এক পদ না চলে রথ, হইল অচল ॥৫১॥
+
 > matta-hasti-gaṇa ṭāne yāra yata bala
 > eka pada nā cale ratha, ha-ila acala
 

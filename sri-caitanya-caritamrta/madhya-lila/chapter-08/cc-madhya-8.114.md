@@ -1,5 +1,8 @@
 ### CC Madhya 8.114
 
+> তাঁহা বিনু রাসলীলা নাহি ভায় চিত্তে ।
+> মণ্ডলী ছাড়িয়া গেলা রাধা অন্বেষিতে ॥১১৪॥
+
 > tāṅhā vinu rāsa-līlā nāhi bhāya citte
 > maṇḍalī chāḍiyā gelā rādhā anveṣite
 

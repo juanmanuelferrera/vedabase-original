@@ -1,5 +1,8 @@
 ### CC Madhya 7.40
 
+> জলপাত্র-বস্ত্র বহি’ তোমা-সঙ্গে যাবে ।
+> যে তোমার ইচ্ছা, কর, কিছু না বলিবে ॥৪০॥
+
 > jala-pātra-vastra vahi' tomā-saṅge yābe
 > ye tomāra icchā, kara, kichu nā balibe
 

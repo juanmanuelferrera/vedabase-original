@@ -1,5 +1,8 @@
 ### SB 3.5.27
 
+> ततोऽभवन्महत्तत्त्वमव्यक्तात्कालचोदितात् ।
+> विज्ञानात्मात्मदेहस्थं विश्वं व्यञ्जंस्तमोनुदः ॥२७॥
+
 > tato 'bhavan mahat-tattvam
 > avyaktāt kāla-coditāt
 > vijñānātmātma-deha-sthaṁ

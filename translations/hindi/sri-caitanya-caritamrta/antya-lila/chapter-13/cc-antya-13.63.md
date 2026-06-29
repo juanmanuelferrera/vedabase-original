@@ -1,5 +1,8 @@
 ### CC Antya 13.63
 
+> প্রসাদ পাই অন্যোন্যে কৈলা আলিঙ্গন ।
+> চৈতন্যবিরহে দুঁহে করিলা ক্রন্দন ॥৬৩॥
+
 > prasāda pāi anyonye kailā āliṅgana
 > caitanya-virahe duṅhe karilā krandana
 

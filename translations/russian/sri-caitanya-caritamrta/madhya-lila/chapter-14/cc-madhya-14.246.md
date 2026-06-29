@@ -1,5 +1,8 @@
 ### CC Madhya 14.246
 
+> জগন্নাথের পুনঃ পাণ্ডু-বিজয় হইল ।
+> এক গুটি পট্টডোরী তাঁহা টুটি’ গেল ॥২৪৬॥
+
 > jagannāthera punaḥ pāṇḍu-vijaya ha-ila
 > eka guṭi paṭṭa-ḍorī tāṅhā ṭuṭi' gela
 

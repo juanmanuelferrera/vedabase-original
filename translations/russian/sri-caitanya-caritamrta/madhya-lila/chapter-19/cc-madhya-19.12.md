@@ -1,5 +1,8 @@
 ### CC Madhya 19.12
 
+> শীঘ্র আসি’ মোরে তাঁর দিবা সমাচার ।
+> শুনিয়া তদনুরূপ করিব ব্যবহার ॥১২॥
+
 > śīghra āsi' more tāṅra dibā samācāra
 > śuniyā tad-anurūpa kariba vyavahāra
 

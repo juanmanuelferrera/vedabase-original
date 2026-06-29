@@ -1,5 +1,8 @@
 ### CC Antya 3.228
 
+> তর্ক না করিহ, তর্কাগোচর তাঁর রীতি ।
+> বিশ্বাস করিয়া শুন করিয়া প্রতীতি ॥২২৮॥
+
 > tarka nā kariha, tarkāgocara tāṅra rīti
 > viśvāsa kariyā śuna kariyā pratīti
 

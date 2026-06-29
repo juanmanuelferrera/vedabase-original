@@ -1,5 +1,8 @@
 ### CC Madhya 20.105
 
+> কৃষ্ণশক্তি ধর তুমি, জান তত্ত্বভাব ।
+> জানি’ দার্ঢ্য লাগি’ পুছে, — সাধুর স্বভাব ॥১০৫॥
+
 > kṛṣṇa-śakti dhara tumi, jāna tattva-bhāva
 > jāni' dārḍhya lāgi' puche,--sādhura svabhāva
 

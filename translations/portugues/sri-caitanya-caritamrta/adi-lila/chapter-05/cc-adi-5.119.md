@@ -1,5 +1,8 @@
 ### CC Adi 5.119
 
+> পঞ্চাশৎকোটি-যোজন পৃথিবী-বিস্তার ।
+> যাঁর একফণে রহে সর্ষপ-আকার ॥১১৯॥
+
 pañcāśat-koṭi-yojana pṛthivī-vistāra
 
 yāṅra eka-phaṇe rahe sarṣapa-ākāra

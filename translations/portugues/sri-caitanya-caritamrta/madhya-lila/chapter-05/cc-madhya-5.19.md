@@ -1,5 +1,8 @@
 ### CC Madhya 5.19
 
+> পুত্রেও পিতার ঐছে না করে সেবন ৷
+> তোমার প্ৰসাদে আমি না পাইলাম শ্রম ॥১৯॥
+
 putreo pitāra aiche nā kare sevana
 
 tomāra prasāde āmi nā pāilāma śrama

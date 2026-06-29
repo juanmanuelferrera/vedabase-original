@@ -1,5 +1,8 @@
 ### CC Adi 7.84
 
+> কৃষ্ণবিষয়ক প্রেমা — পরম পুরুষার্থ ।
+> যার আগে তৃণতুল্য চারি পুরুষার্থ ॥৮৪॥
+
 kṛṣṇa-viṣayaka premā--parama puruṣārtha
 
 yāra āge tṛṇa-tulya cāri puruṣārtha

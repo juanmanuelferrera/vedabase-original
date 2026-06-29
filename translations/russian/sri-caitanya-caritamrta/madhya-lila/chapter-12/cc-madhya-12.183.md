@@ -1,5 +1,8 @@
 ### CC Madhya 12.183
 
+> তার্কিক-শৃগাল-সঙ্গে ভেউ-ভেউ করি ।
+> সেই মুখে এবে সদা কহি ‘কৃষ্ণ’ ‘হরি’ ॥১৮৩॥
+
 > tārkika-śṛgāla-saṅge bheu-bheu kari
 > sei mukhe ebe sadā kahi 'kṛṣṇa' 'hari'
 

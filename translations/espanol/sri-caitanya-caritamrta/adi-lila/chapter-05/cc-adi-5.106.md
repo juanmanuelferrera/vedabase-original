@@ -1,5 +1,8 @@
 ### CC Adi 5.106
 
+> হিরণ্যগর্ভ, অন্তর্যামী, জগৎ-কারণ ।
+> ঙ্মযাঁর অংশ করি’ করে বিরাট-কল্পন ॥১০৬॥
+
 > hiraṇya-garbha, antaryāmī, jagat-kāraṇa
 > yāṅra aṁśa kari' kare virāṭa-kalpana
 

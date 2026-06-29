@@ -1,5 +1,8 @@
 ### CC Madhya 3.194
 
+> নীলাচলে যাবে তুমি, মোর কোন্ গতি ।
+> নীলাচলে যাইতে মোর নাহিক শকতি ॥১৯৪॥
+
 nīlācale yābe tumi, mora kon gati
 
 nīlācale yāite mora nāhika śakati

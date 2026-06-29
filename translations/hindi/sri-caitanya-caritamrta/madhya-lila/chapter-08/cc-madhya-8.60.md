@@ -1,5 +1,8 @@
 ### CC Madhya 8.60
 
+> যত্ করোষি যদশ্নাসি যজ্জুহোষি দদাসি যত্ ।
+> যত্তপস্যসি কৌন্তেয় তত্ কুরুষ্ব মদর্পণম্ ॥৬০॥
+
 > yat karoṣi yad aśnāsi
 > yaj juhoṣi dadāsi yat
 > yat tapasyasi kaunteya

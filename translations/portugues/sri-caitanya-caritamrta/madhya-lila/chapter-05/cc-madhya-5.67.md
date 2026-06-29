@@ -1,5 +1,8 @@
 ### CC Madhya 5.67
 
+> কাহাঁ তুমি পণ্ডিত, ধনী, পরম কুলীন ।
+> কাহাঁ মুঞি দরিদ্র, মূর্খ, নীচ, কুলহীন ॥৬৭॥
+
 kāhāṅ tumi paṇḍita, dhanī, parama kulīna
 
 kāhāṅ muñi daridra, mūrkha, nīca, kula-hīna

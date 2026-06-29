@@ -1,5 +1,8 @@
 ### CC Adi 16.14
 
+> স্বপ্ন দেখি’ মিশ্র আসি’ প্রভুর চরণে ।
+> স্বপ্নের বৃত্তান্ত সব কৈল নিবেদনে ॥১৪॥
+
 svapna dekhi' miśra āsi' prabhura caraṇe
 svapnera vṛttānta saba kaila nivedane
 

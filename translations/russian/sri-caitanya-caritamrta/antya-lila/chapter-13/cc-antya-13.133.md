@@ -1,5 +1,8 @@
 ### CC Antya 13.133
 
+> বৈষ্ণবের নিন্দ্য-কর্ম নাহি পাড়ে কাণে ।
+> সবে কৃষ্ণ ভজন করে, — এইমাত্র জানে ॥১৩৩॥
+
 > vaiṣṇavera nindya-karma nāhi pāḍe kāṇe
 > sabe kṛṣṇa bhajana kare,—ei-mātra jāne
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.251
 
+> শিবানন্দ কহে, — “তেঁহো হয় প্রভুর স্থানে ।
+> পরম বিখ্যাত তেঁহো, কেবা নাহি জানে ॥২৫১॥
+
 > śivānanda kahe,—"teṅho haya prabhura sthāne
 > parama vikhyāta teṅho, kebā nāhi jāne
 

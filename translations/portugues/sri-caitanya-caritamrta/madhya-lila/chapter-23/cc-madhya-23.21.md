@@ -1,5 +1,10 @@
 ### CC Madhya 23.21
 
+> তং মোপযাতং প্রতিযন্তু বিপ্রা
+> গঙ্গা চ দেবী ধৃতচিত্তমীশে ।
+> দ্বিজোপসৃষ্টঃ কুহকস্তক্ষকো বা
+> দশত্বলং গায়ত বিষ্ণুগাথাঃ ॥২১॥
+
 taṁ mopayātaṁ pratiyantu viprā
 gaṅgā ca devī dhṛta-cittam īśe
 dvijopasṛṣṭaḥ kuhakas takṣako vā

@@ -1,5 +1,8 @@
 ### SB 4.21.31
 
+> यत्पादसेवाभिरुचिस्तपस्विनामशेषजन्मोपचितं मलं धियः ।
+> सद्यः क्षिणोत्यन्वहमेधती सती यथा पदाङ्गुष्ठविनिःसृता सरित् ॥३१॥
+
 > yat-pāda-sevābhirucis tapasvinām
 > aśeṣa-janmopacitaṁ malaṁ dhiyaḥ
 > sadyaḥ kṣiṇoty anvaham edhatī satī

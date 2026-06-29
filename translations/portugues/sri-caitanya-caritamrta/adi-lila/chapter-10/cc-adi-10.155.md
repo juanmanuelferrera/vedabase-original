@@ -1,5 +1,8 @@
 ### CC Adi 10.155
 
+> রঘুনাথ বাল্যে কৈল প্রভুর সেবন ।
+> উচ্ছিষ্ট-মার্জন আর পাদ-সম্বাহন ॥১৫৫॥
+
 raghunātha bālye kaila prabhura sevana
 
 ucchiṣṭa-mārjana āra pāda-saṁvāhana

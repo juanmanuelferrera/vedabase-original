@@ -1,5 +1,8 @@
 ### SB 8.16.2
 
+> एकदा कश्यपस्तस्या आश्रमं भगवानगात
+> निरुत्सवं निरानन्दं समाधेर्विरतश्चिरात ॥२॥
+
 > ekadā kaśyapas tasyā
 > āśramaṁ bhagavān agāt
 > nirutsavaṁ nirānandaṁ

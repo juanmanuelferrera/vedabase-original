@@ -1,5 +1,8 @@
 ### CC Antya 19.12
 
+> গোপ-লীলায় পাইলা যেই প্রসাদ-বসনে ।
+> মাতারে পাঠান তাহা পুরীর বচনে ॥১২॥
+
 > gopa-līlāya pāilā yei prasāda-vasane
 > mātāre pāṭhāna tāhā purīra vacane
 

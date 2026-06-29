@@ -1,5 +1,8 @@
 ### CC Antya 16.77
 
+> ভক্তগণ প্রভু-সঙ্গে রহে চারিমাসে ।
+> প্রভু আজ্ঞা দিলা সবে গেলা গৌড়দেশে ॥৭৭॥
+
 bhakta-gaṇa prabhu-saṅge rahe cāri-māse
 
 prabhu ājñā dilā sabe gelā gauḍa-deśe

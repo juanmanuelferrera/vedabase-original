@@ -1,5 +1,8 @@
 ### CC Madhya 14.58
 
+> নিমেষে ত’ গেল রথ গুণ্ডিচার দ্বার ।
+> চৈতন্য-প্রতাপ দেখি’ লোকে চমৎকার ॥৫৮॥
+
 > nimeṣe ta' gela ratha guṇḍicāra dvāra
 > caitanya-pratāpa dekhi' loke camatkāra
 

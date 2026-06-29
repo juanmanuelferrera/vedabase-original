@@ -1,5 +1,8 @@
 ### CC Adi 12.88
 
+> চক্রবর্তী শিবানন্দ সদা ব্রজবাসী ।
+> মহাশাখা-মধ্যে তেঁহো সুদৃঢ় বিশ্বাসী ॥৮৮॥
+
 cakravartī śivānanda sadā vrajavāsī
 
 mahāśākhā-madhye teṅho sudṛḍha viśvāsī

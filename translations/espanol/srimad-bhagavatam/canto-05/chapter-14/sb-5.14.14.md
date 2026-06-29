@@ -1,5 +1,7 @@
 ### SB 5.14.14
 
+> यदा तु परबाधयान्ध आत्मने नोपनमति तदा हि पितृपुत्रबर्हिष्मतः पितृपुत्रान्वा स खलुभक्षयति ॥१४॥
+
 > yadā tu para-bādhayāndha ātmane nopanamati tadā hi pitṛ-putra-barhiṣmataḥ pitṛ-putrān vā sa khalu bhakṣayati.
 
 *yadā*—cuando; *tu*—pero (debido a la mala fortuna); *para-bādhayā*—a pesar de explotar a todos los demás; *andhaḥ*—ciego; *ātmane*—para sí mismo; *na upanamati*—que no le corresponde; *tadā*—en ese momento; *hi*—ciertamente; *pitṛ-putra*—del padre o los hijos; *barhiṣmataḥ*—tan insignificante como una brizna de hierba; *pitṛ-putrān*—padre o hijos; *vā*—o; *saḥ*—él (el alma condicionada); *khalu*—en verdad; *bhakṣayati*—causa dificultades.

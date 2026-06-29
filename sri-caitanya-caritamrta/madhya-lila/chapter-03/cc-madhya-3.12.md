@@ -1,5 +1,8 @@
 ### CC Madhya 3.12
 
+> যেই যেই প্রভু দেখে, সেই সেই লোক ।
+> প্রেমাবেশে ‘হরি’ বলে, খণ্ডে দুঃখ-শোক ॥১২॥
+
 > yei yei prabhu dekhe, sei sei loka
 > premāveśe 'hari' bale, khaṇḍe duḥkha-śoka
 

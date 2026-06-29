@@ -1,5 +1,8 @@
 ### CC Madhya 9.195
 
+> বিশ্বাস করহ তুমি আমার বচনে ।
+> পুনরপি কু-ভাবনা না করিহ মনে ॥১৯৫॥
+
 > viśvāsa karaha tumi āmāra vacane
 > punarapi ku-bhāvanā nā kariha mane
 

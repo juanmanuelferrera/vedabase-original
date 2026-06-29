@@ -1,5 +1,8 @@
 ### CC Madhya 9.93
 
+> সেই ক্ষেত্রে রহে এক বৈষ্ণব-ব্রাহ্মণ ৷
+> দেবালয়ে আসি’ করে গীতা আবর্তন ৷৷ ৯৩ ৷৷ ॥৯৩॥
+
 sei kṣetre rahe eka vaiṣṇava-brāhmaṇa
 devālaye āsi' kare gītā āvartana
 

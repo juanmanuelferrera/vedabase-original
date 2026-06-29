@@ -1,5 +1,8 @@
 ### CC Madhya 7.92
 
+> মূর্চ্ছিত হঞা সবে ভূমিতে পড়িলা ।
+> তাঁহা-সবা পানে প্রভু ফিরি’ না চাহিলা ॥৯২॥
+
 > mūrcchita hañā sabe bhūmite paḍilā
 > tāṅhā-sabā pāne prabhu phiri' nā cāhilā
 

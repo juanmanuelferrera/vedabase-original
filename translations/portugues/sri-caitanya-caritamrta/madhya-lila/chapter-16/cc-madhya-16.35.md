@@ -1,5 +1,8 @@
 ### CC Madhya 16.35
 
+> এইমত চলি’ চলি’ কটক আইলা ।
+> সাক্ষিগোপাল দেখি’ সবে সে দিন রহিলা ॥৩৫॥
+
 ei-mata cali' cali' kaṭaka āilā
 
 sākṣi-gopāla dekhi' sabe se dina rahilā

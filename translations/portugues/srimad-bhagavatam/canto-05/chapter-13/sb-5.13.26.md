@@ -1,5 +1,8 @@
 ### SB 5.13.26
 
+> राजोवाच
+> यो ह वा इह बहुविदा महाभागवत त्वयाभिहितः परोक्षेण वचसा जीवलोकभवाध्वा सह्यार्यमनीषया कल्पितविषयोनाञ्जसाव्युत्पन्नलोकसमधिगमः अथ तदेवैतद्दुरवगमंसमवेतानुकल्पेन निर्दिश्यतामिति ॥२६॥
+
 rājovāca
 
 *yo ha vā iha bahu*-vidā mahā-bhāgavata tvayābhihitaḥ parokṣeṇa vacasā jīva-loka-bhavādhvā sa hy ārya-manīṣayā kalpita-viṣayo nāñjasāvyutpanna-loka-samadhigamaḥ; atha tad evaitad duravagamaṁ samavetānukalpena nirdiśyatām iti.

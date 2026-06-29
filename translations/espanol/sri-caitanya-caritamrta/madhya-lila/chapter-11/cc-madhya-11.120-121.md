@@ -3,6 +3,9 @@
 > pratāparudra ājñā dila sei dui jane
 > prabhu-sthāne āsiyāchena yata prabhura gaṇe
 
+> pratāparudra ājñā dila sei dui jane
+> prabhu-sthāne āsiyāchena yata prabhura gaṇe
+
 > sabāre svacchanda vāsā, svacchanda prasāda
 > svacchanda darśana karāiha, nahe yena bādha
 

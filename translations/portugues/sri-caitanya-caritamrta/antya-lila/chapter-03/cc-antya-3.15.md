@@ -1,5 +1,8 @@
 ### CC Antya 3.15
 
+> পণ্ডিত হঞা মনে কেনে বিচার না কর ?
+> রাণ্ডী ব্রাহ্মণীর বালকে প্রীতি কেনে কর ? ॥ ১৫ ॥
+
 paṇḍita hañā mane kene vicāra nā kara?
 rāṇḍī brāhmaṇīra bālake prīti kene kara?
 

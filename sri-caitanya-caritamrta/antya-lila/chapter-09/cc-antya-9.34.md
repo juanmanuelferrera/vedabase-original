@@ -1,5 +1,8 @@
 ### CC Antya 9.34
 
+> হেন-কালে আর লোক আইল ধাঞা ।
+> ‘বাণীনাথাদি সবংশে লঞা গেল বান্ধিয়া’ ॥৩৪॥
+
 > hena-kāle āra loka āila dhāñā
 > 'vāṇīnāthādi savaṁśe lañā gela bāndhiyā'
 

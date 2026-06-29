@@ -1,5 +1,8 @@
 ### CC Antya 5.149
 
+> তাঁহা-সহ আত্মতা একরূপ হঞা ।
+> কৃষ্ণ একতত্ত্বরূপ — দুই রূপ হঞা ॥১৪৯॥
+
 > tāṅhā-saha ātmatā eka-rūpa hañā
 > kṛṣṇa eka-tattva-rūpa--dui rūpa hañā
 

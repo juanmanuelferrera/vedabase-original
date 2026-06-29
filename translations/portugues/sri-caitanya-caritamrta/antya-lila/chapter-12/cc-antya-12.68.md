@@ -1,5 +1,8 @@
 ### CC Antya 12.68
 
+> তোমা-সবার দুঃখ জানি’ চাহি নিষেধিতে  ।
+> তোমা-সবার সঙ্গসুখে লোভ বাড়ে চিত্তে ॥৬৮॥
+
 tomā-sabāra duḥkha jāni' cāhi niṣedhite
 
 tomā-sabāra saṅga-sukhe lobha bāḍe citte

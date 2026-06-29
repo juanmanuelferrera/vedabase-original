@@ -1,5 +1,8 @@
 ### CC Adi 16.83
 
+> গঙ্গার মহত্ত্ব — সাধ্য, সাধন তাহার ।
+> বিষ্ণুপাদোৎপত্তি — ‘অনুমান’ অলঙ্কার ॥৮৩॥
+
 > gaṅgāra mahattva—sādhya, sādhana tāhāra
 > viṣṇu-pādotpatti—'anumāna' alaṅkāra
 

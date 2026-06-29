@@ -1,5 +1,8 @@
 ### CC Adi 3.70
 
+> জলশায়ী অন্তর্যামী যেই নারায়ণ ।
+> সেহো তোমার অংশ, তুমি মূল নারায়ণ ॥৭০॥
+
 > jala-śāyī antar-yāmī yei nārāyaṇa
 > seho tomāra aṁśa, tumi mūla nārāyaṇa
 

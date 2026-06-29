@@ -1,5 +1,7 @@
 ### CC Madhya 24.144
 
+> “মুক্তা অপি লীলয়া বিগ্রহং কৃত্বা ভগবন্তং ভজন্তে ।।” ॥ ১৪৪ ॥
+
 "muktā api līlayā vigrahaṁ
 
 kṛtvā bhagavantaṁ bhajante"

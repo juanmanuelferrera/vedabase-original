@@ -1,5 +1,8 @@
 ### CC Madhya 16.1
 
+> গৌড়োদ্যানং গৌরমেঘঃ সিঞ্চন্ স্বালোকনামৃতৈঃ ।
+> ভবাগ্নিদগ্ধজনতা-বীরুধঃ সমজীবয়ৎ ॥১॥
+
 > gauḍodyānaṁ gaura-meghaḥ
 > siñcan svālokanāmṛtaiḥ
 > bhavāgni-dagdha-janatā-

@@ -1,5 +1,8 @@
 ### CC Madhya 6.48
 
+> ‘নমো নারায়ণায়’ বলি’ নমস্কার কৈল ।
+> ‘কৃষ্ণে মতিরস্তু’ বলি’ গোসাঞি কহিল ॥৪৮॥
+
 > 'namo nārāyaṇāya' bali' namaskāra kaila
 > 'kṛṣṇe matir astu' bali' gosāñi kahila
 

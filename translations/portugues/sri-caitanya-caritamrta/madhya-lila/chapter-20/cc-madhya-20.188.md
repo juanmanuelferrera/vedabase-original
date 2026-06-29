@@ -1,5 +1,8 @@
 ### CC Madhya 20.188
 
+> বৈভবপ্রকাশে আর প্রাভববিলাসে ।
+> একই মূর্ত্যে বলদেব ভাব-ভেদে ভাসে ॥১৮৮॥
+
 vaibhava-prakāśe āra prābhava-vilāse
 
 eka-i mūrtye baladeva bhāva-bhede bhāse

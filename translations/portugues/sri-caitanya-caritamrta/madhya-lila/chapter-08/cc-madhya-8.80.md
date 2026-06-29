@@ -1,5 +1,10 @@
 ### CC Madhya 8.80
 
+> নায়ং শ্রিয়োঽঙ্গ উ নিতান্তরতেঃ প্রসাদঃ
+> স্বর্যোষিতাং নলিনগন্ধরুচাং কুতোঽন্যাঃ ৷
+> রাসোত্সবেঽস্য ভুজদণ্ডগৃহীতকণ্ঠ-
+> লব্ধাশিষাং য উদগাদ্ব্রজসুন্দরীণাম্ ৷৷ ৮০ ৷৷ ॥৮০॥
+
 nāyaṁ śriyo 'ṅga u nitānta-rateḥ prasādaḥ
 svar-yoṣitāṁ nalina-gandha-rucāṁ kuto 'nyāḥ
 rāsotsave 'sya bhuja-daṇḍa-gṛhīta-kaṇṭha-

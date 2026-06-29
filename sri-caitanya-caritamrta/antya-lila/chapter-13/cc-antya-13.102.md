@@ -1,5 +1,8 @@
 ### CC Antya 13.102
 
+> মিশ্র আর শেখরের দণ্ডবৎ জানাইলা ।
+> মহাপ্রভু তাঁ-সবার বার্তা পুছিলা ॥১০২॥
+
 > miśra āra śekharera daṇḍavat jānāilā
 > mahāprabhu tāṅ-sabāra vārtā puchilā
 

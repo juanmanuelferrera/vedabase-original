@@ -1,5 +1,8 @@
 ### CC Adi 10.87
 
+> আ-সিন্ধুনদী-তীর আর হিমালয় ।
+> বৃন্দাবন-মথুরাদি যত তীর্থ হয় ॥৮৭॥
+
 > ā-sindhunadī-tīra āra himālaya
 > vṛndāvana-mathurādi yata tīrtha haya
 

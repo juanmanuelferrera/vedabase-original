@@ -1,5 +1,8 @@
 ### CC Madhya 18.152
 
+> যদ্যপি বৃন্দাবন-ত্যাগে নাহি প্রভুর মন ।
+> ভক্ত-ইচ্ছা পূরিতে কহে মধুর বচন ॥১৫২॥
+
 > yadyapi vṛndāvana-tyāge nāhi prabhura mana
 > bhakta-icchā pūrite kahe madhura vacana
 

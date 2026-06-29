@@ -1,5 +1,8 @@
 ### CC Madhya 1.267
 
+> ব্রহ্মাণ্ড-ভিতরে হয় চৌদ্দ ভুবন  ।
+> চৌদ্দভুবনে বৈসে যত জীবগণ ॥২৬৭॥
+
 > brahmāṇḍa-bhitare haya caudda bhuvana
 > caudda-bhuvane vaise yata jīva-gaṇa
 

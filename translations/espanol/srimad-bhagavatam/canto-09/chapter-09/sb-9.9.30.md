@@ -1,5 +1,8 @@
 ### SB 9.9.30
 
+> सोऽयं ब्रह्मर्षिवर्यस्ते राजर्षिप्रवराद्विभो
+> कथमर्हति धर्मज्ञअ वधं पितुरिवात्मजः ॥३०॥
+
 > so 'yaṁ brahmarṣi-varyas te
 > rājarṣi-pravarād vibho
 > katham arhati dharma-jña

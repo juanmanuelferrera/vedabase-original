@@ -1,5 +1,8 @@
 ### CC Antya 4.8
 
+> মন্দির-নিকটে শুনি তাঁর বাসা-স্থিতি  ।
+> মন্দির-নিকটে যাইতে মোর নাহি শক্তি ॥৮॥
+
 > mandira-nikaṭe śuni tāṅra vāsā-sthiti
 > mandira-nikaṭe yāite mora nāhi śakti
 

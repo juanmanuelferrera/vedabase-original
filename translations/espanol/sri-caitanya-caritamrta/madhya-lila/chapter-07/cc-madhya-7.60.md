@@ -1,5 +1,8 @@
 ### CC Madhya 7.60
 
+> চারি কৌপীন-বহির্বাস রাখিয়াছি ঘরে ৷
+> তাহা, প্রসাদান্ন, লঞা আইস বিপ্রদ্বারে ৷৷ ৬০ ৷৷ ॥৬০॥
+
 > cāri kopīna-bahirvāsa rākhiyāchi ghare
 > tāhā, prasādānna, lañā āisa vipra-dvāre
 

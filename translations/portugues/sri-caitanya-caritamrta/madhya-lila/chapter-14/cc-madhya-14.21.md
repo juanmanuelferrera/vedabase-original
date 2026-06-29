@@ -1,5 +1,8 @@
 ### CC Madhya 14.21
 
+> প্রতাপরুদ্রের ভাগ্য দেখি’ ভক্তগণে ।
+> রাজারে প্রশংসে সবে আনন্দিত-মনে ॥২১॥
+
 pratāparudrera bhāgya dekhi' bhakta-gaṇe
 
 rājāre praśaṁse sabe ānandita-mane

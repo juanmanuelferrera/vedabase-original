@@ -1,5 +1,8 @@
 ### SB 2.1.7
 
+> प्रायेण मुनयो राजन्निवृत्ता विधिषेधतः ।
+> नैर्गुण्यस्था रमन्ते स्म गुणानुकथने हरेः ॥७॥
+
 > prāyeṇa munayo rājan
 > nivṛttā vidhi-ṣedhataḥ
 > nairguṇya-sthā ramante sma

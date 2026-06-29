@@ -1,5 +1,8 @@
 ### CC Adi 4.195
 
+> অতএব সেই সুখ কৃষ্ণ-সুখ পোষে ।
+> এই হেতু গোপী-প্রেমে নাহি কাম-দোষে ॥১৯৫॥
+
 > ataeva sei sukha kṛṣṇa-sukha poṣe
 > ei hetu gopī-preme nāhi kāma-doṣe
 

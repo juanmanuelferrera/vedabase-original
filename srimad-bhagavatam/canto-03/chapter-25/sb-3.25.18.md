@@ -1,5 +1,8 @@
 ### SB 3.25.18
 
+> ज्ञानवैराग्ययुक्तेन भक्तियुक्तेन चात्मना ।
+> परिपश्यत्युदासीनं प्रकृतिं च हतौजसम् ॥१८॥
+
 > jñāna-vairāgya-yuktena
 > bhakti-yuktena cātmanā
 > paripaśyaty udāsīnaṁ

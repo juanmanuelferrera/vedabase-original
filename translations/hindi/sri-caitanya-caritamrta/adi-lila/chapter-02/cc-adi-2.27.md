@@ -1,5 +1,8 @@
 ### CC Adi 2.27
 
+> উপাসনা-ভেদে জানি ঈশ্বর-মহিমা ।
+> অতএব সূর্য তাঁর দিয়েত উপমা ॥২৭॥
+
 > upāsanā-bhede jāni īśvara-mahimā
 > ataeva sūrya tāṅra diyeta upamā
 

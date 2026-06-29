@@ -1,5 +1,8 @@
 ### CC Adi 11.10
 
+> অন্তরে ঈশ্বর-চেষ্টা, বাহিরে নির্দম্ভ ।
+> চৈতন্যভক্তিমণ্ডপে তেঁহো মূলস্তম্ভ ॥১০॥
+
 antare īśvara-ceṣṭā, bāhire nirdambha
 caitanya-bhakti-maṇḍape teṅho mūla-stambha
 

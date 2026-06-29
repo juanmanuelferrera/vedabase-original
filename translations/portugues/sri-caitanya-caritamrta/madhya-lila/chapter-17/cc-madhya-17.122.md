@@ -1,5 +1,8 @@
 ### CC Madhya 17.122
 
+> এত শুনি’ সেই বিপ্র মহাদুঃখ পাইলা ।
+> ‘কৃষ্ণ’ ‘কৃষ্ণ’ কহি’ তথা হৈতে উঠি’ গেলা ॥১২২॥
+
 eta śuni' sei vipra mahā-duḥkha pāilā
 
 'kṛṣṇa' 'kṛṣṇa' kahi' tathā haite uṭhi' gelā

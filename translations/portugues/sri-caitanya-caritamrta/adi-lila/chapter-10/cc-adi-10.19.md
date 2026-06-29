@@ -1,5 +1,8 @@
 ### CC Adi 10.19
 
+> “দশসহস্র গন্ধর্ব মোরে দেহ’ চন্দ্রমুখ ।
+> তারা গায়, মুঞি নাচোঁ — তবে মোর সুখ ।।” ॥ ১৯ ॥
+
 "daśa-sahasra gandharva more deha' candramukha
 tārā gāya, muñi nācoṅ--tabe mora sukha"
 

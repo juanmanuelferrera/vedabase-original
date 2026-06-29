@@ -1,5 +1,8 @@
 ### SB 7.9.7
 
+> अस्तौषीद्धरिमेकाग्र मनसा सुसमाहितः
+> प्रेमगद्गदया वाचा तन्न्यस्तहृदयेक्षणः ॥७॥
+
 > astauṣīd dharim ekāgra-
 > manasā susamāhitaḥ
 > prema-gadgadayā vācā

@@ -1,5 +1,8 @@
 ### CC Madhya 16.39
 
+> দুই মালা গোবিন্দ দুইজনে পরাইল ।
+> অদ্বৈত, অবধূত-গোসাঞি বড় সুখ পাইল ॥৩৯॥
+
 dui mālā govinda dui-jane parāila
 
 advaita, avadhūta-gosāñi baḍa sukha pāila

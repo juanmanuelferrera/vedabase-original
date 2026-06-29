@@ -1,5 +1,8 @@
 ### CC Adi 1.43
 
+> সাবরণে প্রভুরে করিয়া নমস্কার ।
+> এই ছয় তেঁহো যৈছে — করিয়ে বিচার ॥৪৩॥
+
 > sāvaraṇe prabhure kariyā namaskāra
 > ei chaya teṅho yaiche--kariye vicāra
 

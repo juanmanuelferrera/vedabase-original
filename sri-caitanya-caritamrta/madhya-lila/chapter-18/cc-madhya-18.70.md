@@ -1,5 +1,8 @@
 ### CC Madhya 18.70
 
+> লোকের সংঘট্ট দেখি মথুরা ছাড়িয়া ।
+> একান্তে ‘অক্রূর তীর্থে’ রহিলা আসিয়া ॥৭০॥
+
 > lokera saṅghaṭṭa dekhi mathurā chāḍiyā
 > ekānte 'akrūra-tīrthe' rahilā āsiyā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 5.88
 
+> “ব্রহ্মণ্যদেব তুমি বড় দয়াময় ।
+> দুই বিপ্রের ধর্ম রাখ হঞা সদয় ॥৮৮॥
+
 > "brahmaṇya-deva tumi baḍa dayā-maya
 > dui viprera dharma rākha hañā sadaya
 

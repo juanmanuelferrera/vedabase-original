@@ -1,5 +1,8 @@
 ### CC Madhya 12.148
 
+> তবে মহাপ্রভু তাঁর বুকে হস্ত দিল ।
+> ‘উঠহ গোপাল’ বলি’ উচ্চৈঃস্বরে কহিল ॥১৪৮॥
+
 > tabe mahāprabhu tāṅra buke hasta dila
 > 'uṭhaha gopāla' bali' uccaiḥsvare kahila
 

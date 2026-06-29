@@ -1,5 +1,8 @@
 ### SB 1.7.43
 
+> उवाच चासहन्त्यस्य बन्धनानयनं सती ।
+> मुच्यतां मुच्यतामेष ब्राह्मणो नितरां गुरुः ॥४३॥
+
 > uvāca cāsahanty asya
 > bandhanānayanaṁ satī
 > mucyatāṁ mucyatām eṣa

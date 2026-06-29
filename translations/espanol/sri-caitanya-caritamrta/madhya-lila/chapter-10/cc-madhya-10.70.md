@@ -3,6 +3,9 @@
 > ei kṛṣṇadāse diba gauḍe pāṭhāñā
 > eta kahi' tāre rākhilena āśvāsiyā
 
+> ei kṛṣṇadāse diba gauḍe pāṭhāñā
+> eta kahi' tāre rākhilena āśvāsiyā
+
 *ei*—a este; *kṛṣṇadāse*—Kālā Kṛṣṇadāsa; *diba*—enviemos; *gauḍe*—a Bengala; *pāṭhāñā*—mandándolo; *eta kahi'*—diciendo esto; *tāre*—a él; *rākhilena*—lo retuvieron; *āśvāsiyā*—dándole seguridad.
 
 **»Enviemos, pues, a Kṛṣṇadāsa a Bengala». Diciendo esto, mantuvieron a Kṛṣṇadāsa ocupado en el servicio del Señor y le dieron seguridad.**

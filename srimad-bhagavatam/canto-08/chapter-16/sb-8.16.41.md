@@ -1,5 +1,8 @@
 ### SB 8.16.41
 
+> निवेदितं तद्भक्ताय दद्याद्भुञ्जीत वा स्वयम
+> दत्त्वाचमनमर्चित्वा ताम्बूलं च निवेदयेत ॥४१॥
+
 > niveditaṁ tad-bhaktāya
 > dadyād bhuñjīta vā svayam
 > dattvācamanam arcitvā

@@ -1,5 +1,10 @@
 ### SB 2.7.40
 
+> विष्णोर्नु वीर्यगणनां कतमोऽर्हतीह
+> यः पार्थिवान्यपि कविर्विममे रजांसि ।
+> चस्कम्भ यः स्वरहसास्खलता त्रिपृष्ठं
+> यस्मात्त्रिसाम्यसदनादुरुकम्पयानम् ॥४०॥
+
 > viṣṇor nu vīrya-gaṇanāṁ katamo 'rhatīha
 > yaḥ pārthivāny api kavir vimame rajāṁsi
 > caskambha yaḥ sva-rahasāskhalatā tri-pṛṣṭhaṁ

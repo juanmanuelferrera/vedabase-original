@@ -1,5 +1,7 @@
 ### SB 5.17.16
 
+> भवानीनाथैः स्त्रीगणार्बुदसहस्रैरवरुध्यमानो भगवतश्चतुर्मूर्तेर्महापुरुषस्यतुरीयां तामसीं मूर्तिं प्रकृतिमात्मनः सङ्कर्षणसंज्ञआमात्मसमाधिरूपेणसन्निधाप्यैतदभिगृणन्भव उपधावति ॥१६॥
+
 *bhavānī*-nāthaiḥ strī-gaṇārbuda-sahasrair avarudhyamāno bhagavataś catur-mūrter mahā-puruṣasya turīyāṁ tāmasīṁ mūrtiṁ prakṛtim ātmanaḥ saṅkarṣaṇa-saṁjñām ātma-samādhi-rūpeṇa sannidhāpyaitad abhigṛṇan bhava upadhāvati.
 
 *bhavānī-nāthaiḥ*—pela companhia de Bhavānī; *strī-gaṇa*—de mulheres; *arbuda-sahasraiḥ*—por dez bilhões; *avarudhyamānaḥ*—sempre sendo servido; *bhagavataḥ catuḥ-mūrteḥ*—da Suprema Personalidade de Deus, que se expande em quatro; *mahā-puruṣasya*—da Pessoa Suprema; *turīyām*—a quarta expansão; *tāmasīm*—relacionada ao modo da ignorância; *mūrtim*—a forma; *prakṛtim*—como a fonte; *ātmanaḥ*—dele próprio (do Senhor Śiva); *saṅkarṣaṇa-saṁjñām*—conhecido como Saṅkarṣaṇa; *ātma-samādhi-rūpeṇa*—meditando nEle em transe; *sannidhāpya*—trazendo-O para perto; *etat*—isto; *abhigṛṇan*—cantando claramente; *bhavaḥ*—o Senhor Śiva; *upadhāvati*—adora.

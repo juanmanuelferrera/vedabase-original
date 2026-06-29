@@ -1,5 +1,8 @@
 ### CC Madhya 18.18
 
+> ‘মথুরা’-পদ্মের পশ্চিমদলে যাঁর বাস ।
+> ‘হরিদেব’ নারায়ণ — আদি পরকাশ ॥১৮॥
+
 > 'mathurā'-padmera paścima-dale yāṅra vāsa
 > 'harideva' nārāyaṇa--ādi parakāśa
 

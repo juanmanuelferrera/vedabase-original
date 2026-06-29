@@ -1,5 +1,8 @@
 ### SB 7.14.34
 
+> पात्रं त्वत्र निरुक्तं वै कविभिः पात्रवित्तमैः
+> हरिरेवैक उर्वीश यन्मयं वै चराचरम ॥३४॥
+
 > pātraṁ tv atra niruktaṁ vai
 > kavibhiḥ pātra-vittamaiḥ
 > harir evaika urvīśa

@@ -1,5 +1,8 @@
 ### CC Antya 6.193
 
+> প্রভু কহে, — “কৃষ্ণকৃপা বলিষ্ঠ সবা হৈতে ।
+> তোমারে কাড়িল বিষয়-বিষ্ঠা-গর্ত হৈতে ।।” ॥ ১৯৩ ॥
+
 prabhu kahe,--"kṛṣṇa-kṛpā baliṣṭha sabā haite
 
 tomāre kāḍila viṣaya-viṣṭhā-garta haite"

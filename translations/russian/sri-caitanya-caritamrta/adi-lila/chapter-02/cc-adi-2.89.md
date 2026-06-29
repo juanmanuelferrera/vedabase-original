@@ -1,5 +1,8 @@
 ### CC Adi 2.89
 
+> দীপ হৈতে যৈছে বহু দীপের জ্বলন ।
+> মূল এক দীপ তাহা করিয়ে গণন ॥৮৯॥
+
 > dīpa haite yaiche bahu dīpera jvalana
 > mūla eka dīpa tāhā kariye gaṇana
 

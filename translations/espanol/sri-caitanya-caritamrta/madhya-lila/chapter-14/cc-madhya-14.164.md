@@ -1,5 +1,8 @@
 ### CC Madhya 14.164
 
+> এত শুনি’ বাড়ে প্রভুর আনন্দ-সাগর ।
+> ‘কহ, কহ’ কহে প্রভু, বলে দামোদর ॥১৬৪॥
+
 > eta śuni' bāḍe prabhura ānanda-sāgara
 > 'kaha, kaha' kahe prabhu, bale dāmodara
 

@@ -1,5 +1,8 @@
 ### CC Madhya 1.202
 
+> মোরে দয়া করি’ কর স্বদয়া সফল ।
+> অখিল ব্রহ্মাণ্ড দেখুক তোমার দয়া-বল ॥২০২॥
+
 > more dayā kari' kara sva-dayā saphala
 > akhila brahmāṇḍa dekhuka tomāra dayā-bala
 

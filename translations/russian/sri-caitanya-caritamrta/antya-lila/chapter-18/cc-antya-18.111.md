@@ -1,5 +1,7 @@
 ### CC Antya 18.111
 
+> ‘ইহাঁ কেনে তোমরা আমারে লঞা আইলা ?’ স্বরূপ-গোসাঞি তবে কহিতে লাগিলা ॥১১১॥
+
 > 'ihāṅ kene tomarā āmāre lañā āilā?'
 > svarūpa-gosāñi tabe kahite lāgilā
 

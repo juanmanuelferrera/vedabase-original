@@ -1,5 +1,8 @@
 ### SB 4.9.47
 
+> यस्य प्रसन्नो भगवान्गुणैर्मैत्र्यादिभिर्हरिः ।
+> तस्मै नमन्ति भूतानि निम्नमाप इव स्वयम् ॥४७॥
+
 > yasya prasanno bhagavān
 > guṇair maitry-ādibhir hariḥ
 > tasmai namanti bhūtāni

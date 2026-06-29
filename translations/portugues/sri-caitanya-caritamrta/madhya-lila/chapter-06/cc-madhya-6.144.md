@@ -1,5 +1,8 @@
 ### CC Madhya 6.144
 
+> ‘অপাদান’, ‘করণ’ এবং ‘অধিকরণ’-কারক তিন ৷
+> ভগবানের সবিশেষে এই তিন চিহ্ন ॥১৪৪॥
+
 'apādāna,' 'karaṇa,' 'adhikaraṇa'-kāraka tina
 
 bhagavānera saviśeṣe ei tina cihna

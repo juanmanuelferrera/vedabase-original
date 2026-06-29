@@ -1,5 +1,8 @@
 ### CC Madhya 7.17
 
+> দক্ষিণের তীর্থপথ আমি সব জানি ।
+> আমি সঙ্গে যাই, প্রভু, আজ্ঞা দেহ তুমি ।।” ॥১৭॥
+
 > dakṣiṇera tīrtha-patha āmi saba jāni
 > āmi saṅge yāi, prabhu, ājñā deha tumi"
 

@@ -1,5 +1,8 @@
 ### CC Madhya 25.268
 
+> শ্রীচৈতন্য-সম আর কৃপালু বদান্য ৷
+> ভক্তবৎসল না দেখি ত্রিজগতে অন্য ॥২৬৮॥
+
 śrī-caitanya-sama āra kṛpālu vadānya
 
 bhakta-vatsala nā dekhi trijagate anya

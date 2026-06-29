@@ -1,5 +1,8 @@
 ### SB 3.7.24
 
+> यत्र पुत्रैश्च पौत्रैश्च नप्तृभिः सह गोत्रजैः ।
+> प्रजा विचित्राकृतय आसन्याभिरिदं ततम् ॥२४॥
+
 > yatra putraiś ca pautraiś ca
 > naptṛbhiḥ saha gotrajaiḥ
 > prajā vicitrākṛtaya

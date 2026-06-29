@@ -1,5 +1,8 @@
 ### CC Madhya 6.125
 
+> ভালমন্দ নাহি কহ, রহ মৌন ধরি’  ।
+> বুঝ, কি না বুঝ, — ইহা বুঝিতে না পারি ॥১২৫॥
+
 > bhāla-manda nāhi kaha, raha mauna dhari'
 > bujha, ki nā bujha,—ihā bujhite nā pāri
 

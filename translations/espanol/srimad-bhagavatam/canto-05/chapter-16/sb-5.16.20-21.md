@@ -1,5 +1,8 @@
 ### SB 5.16.20-21
 
+> तावदुभयोरपि रोधसोर्या मृत्तिका तद्रसेनानुविध्यमाना वाय्वर्कसंयोगविपाकेनसदामरलोकाभरणं जाम्बूनदं नाम सुवर्णं भवति ॥२०॥
+> यदु ह वाव विबुधादयः सह युवतिभिर्मुकुटकटककटिसूत्राद्याभरणरूपेण खलुधारयन्ति ॥२१॥
+
 > tāvad ubhayor api rodhasor yā mṛttikā tad-rasenānuvidhyamānā vāyv-arka-saṁyoga-vipākena sadāmara-lokābharaṇaṁ jāmbū-nadaṁ nāma suvarṇaṁ bhavati; yad u ha vāva vibudhādayaḥ saha yuvatibhir mukuṭa-kaṭaka-kaṭi-sūtrādy-ābharaṇa-rūpeṇa khalu dhārayanti.
 
 *tāvat*—por entero; *ubhayoḥ api*—de ambas; *rodhasoḥ*—de las orillas; *yā*—que; *mṛttikā*—el barro; *tat-rasena*—con el jugo de las frutas *jambū* que forma el río; *anuvidhyamānā*—saturado; *vāyu-arka-saṁyoga-vipākena*—por una reacción química con el aire y los rayos del Sol; *sadā*—siempre; *amara-loka-ābharaṇam*—que se utiliza para las alhajas de los semidioses, habitantes de los planetas celestiales; *jāmbū-nadam nāma*—llamado *jāmbū-nada*; *suvarṇam*—oro; *bhavati*—se vuelve; *yat*—que; *u ha vāva*—en verdad; *vibudha-ādayaḥ*—los grandes semidioses; *saha*—con; *yuvatibhiḥ*—sus esposas, eternamente jóvenes; *mukuṭa*—coronas; *kaṭaka*—ajorcas; *kaṭi-sūtra*—cinturones; *ādi*—y otros adornos; *ābharaṇa*—de todo tipo de alhajas; *rūpeṇa*—en la forma; *khalu*—en verdad; *dhārayanti*—poseen.

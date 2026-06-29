@@ -1,5 +1,8 @@
 ### CC Madhya 19.33
 
+> আমি-দুইভাই চলিলাঙ তাঁহারে মিলিতে ।
+> তুমি যৈছে তৈছে ছুটি’ আইস তাহাঁ হৈতে ॥৩৩॥
+
 āmi-dui-bhāi calilāṅa tāṅhāre milite
 
 tumi yaiche taiche chuṭi' āisa tāhāṅ haite

@@ -1,5 +1,8 @@
 ### CC Madhya 8.138
 
+> বৃন্দাবনে ‘অপ্রাকৃত নবীন মদন’ ।
+> কামগায়ত্রী কামবীজে যাঁর উপাসন ॥১৩৮॥
+
 > vṛndāvane 'aprākṛta navīna madana'
 > kāma-gāyatrī kāma-bīje yāṅra upāsana
 

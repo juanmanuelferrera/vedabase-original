@@ -1,5 +1,8 @@
 ### CC Adi 5.16
 
+> তাহার উপরিভাগে ‘কৃষ্ণলোক’-খ্যাতি ।
+> দ্বারকা-মথুরা-গোকুল — ত্রিবিধত্বে স্থিতি ॥১৬॥
+
 tāhāra upari-bhāge 'kṛṣṇa-loka'-khyāti
 dvārakā-mathurā-gokula--tri-vidhatve sthiti
 

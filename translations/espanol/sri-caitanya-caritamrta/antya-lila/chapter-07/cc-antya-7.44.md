@@ -1,5 +1,10 @@
 ### CC Antya 7.44
 
+> ন পারয়েঽহং নিরবদ্যসংযুজাং
+> স্বসাধুকৃত্যং বিবুধায়ুষাপি বঃ ।
+> যা মাঽভজন্ দুর্জরগেহশৃঙ্খলাঃ
+> সংবৃশ্চ্য তদ্বঃ প্রতিযাতু সাধুনা ॥৪৪॥
+
 > na pāraye 'haṁ niravadya-saṁyujāṁ
 > sva-sādhu-kṛtyaṁ vibudhāyuṣāpi vaḥ
 > yā mābhajan durjaya-geha-śṛṅkhalāḥ

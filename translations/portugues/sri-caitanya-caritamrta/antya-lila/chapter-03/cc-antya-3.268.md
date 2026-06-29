@@ -1,5 +1,8 @@
 ### CC Antya 3.268
 
+> কৃষ্ণ-আদি, আর যত স্থাবর-জঙ্গমে ।
+> কৃষ্ণপ্রেমে মত্ত করে কৃষ্ণ-সঙ্কীর্তনে ॥২৬৮॥
+
 kṛṣṇa-ādi, āra yata sthāvara-jaṅgame
 
 kṛṣṇa-preme matta kare kṛṣṇa-saṅkīrtane

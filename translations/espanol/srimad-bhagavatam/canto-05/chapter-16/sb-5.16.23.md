@@ -1,5 +1,7 @@
 ### SB 5.16.23
 
+> या ह्युपयुञ्जानानां मुखनिर्वासितो वायुः समन्ताच्छतयोजनमनुवासयति ॥२३॥
+
 > yā hy upayuñjānānāṁ mukha-nirvāsito vāyuḥ samantāc chata-yojanam anuvāsayati.
 
 *yāḥ*—que (esos ríos de miel); *hi*—en verdad; *upayuñjānānām*—de aquellos que beben; *mukha-nirvāsitaḥ vāyuḥ*—el aire que emana de las bocas; *samantāt*—alrededor; *śata-yojanam*—hasta cien *yojanas* (mil trescientos kilómetros); *anuvāsayati*—inunda de un dulce aroma.

@@ -1,5 +1,8 @@
 ### CC Madhya 9.36
 
+> তোমার দর্শনে যবে কৃষ্ণনাম আইল ।
+> তাহার মহিমা তবে হৃদয়ে লাগিল ॥৩৬॥
+
 > tomāra darśane yabe kṛṣṇa-nāma āila
 > tāhāra mahimā tabe hṛdaye lāgila
 

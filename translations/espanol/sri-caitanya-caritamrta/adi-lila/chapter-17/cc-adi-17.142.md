@@ -1,5 +1,8 @@
 ### CC Adi 17.142
 
+> উদ্ধত লোক ভাঙ্গে কাজীর ঘর-পুষ্পবন ।
+> বিস্তারি’ বর্ণিলা ইহা দাস-বৃন্দাবন ॥১৪২॥
+
 > uddhata loka bhāṅge kājīra ghara-puṣpavana
 > vistāri' varṇilā ihā dāsa-vṛndāvana
 

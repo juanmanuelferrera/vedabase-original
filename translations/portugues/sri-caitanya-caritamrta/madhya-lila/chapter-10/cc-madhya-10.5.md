@@ -1,5 +1,8 @@
 ### CC Madhya 10.5
 
+> শুনিলাঙ তোমার ঘরে এক মহাশয় ৷
+> গৌড় হইতে আইলা, তেঁহো মহা-কৃপাময় ৷৷ ৫ ৷৷ ॥৫॥
+
 śunilāṅa tomāra ghare eka mahāśaya
 gauḍa ha-ite āilā, teṅho mahā-kṛpāmaya
 

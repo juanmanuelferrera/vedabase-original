@@ -1,5 +1,8 @@
 ### CC Adi 6.97
 
+> এ-সবাকে শাস্ত্রে কহে ‘ভক্ত-অবতার’ ।
+> ‘ভক্ত-অবতার’-পদ উপরি সবার ॥৯৭॥
+
 e-sabāke śāstre kahe 'bhakta-avatāra'
 'bhakta-avatāra'-pada upari sabāra
 

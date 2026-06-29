@@ -1,5 +1,8 @@
 ### CC Antya 9.119
 
+> ‘প্রভু যেন নাহি জানেন, — রাজা আমার লাগিয়া  ।
+> দুইলক্ষ কাহন কৌড়ি দিলেক ছাড়িয়া ॥১১৯॥
+
 > 'prabhu yena nāhi jānena,—rājā āmāra lāgiyā
 > dui-lakṣa kāhana kauḍi dileka chāḍiyā
 

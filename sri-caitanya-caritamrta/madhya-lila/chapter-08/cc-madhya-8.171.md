@@ -1,5 +1,8 @@
 ### CC Madhya 8.171
 
+> কৃষ্ণের-উজ্জ্বল রস — মৃগমদ-ভর ।
+> সেই মৃগমদে বিচিত্রিত কলেবর ॥১৭১॥
+
 > kṛṣṇera ujjvala-rasa—mṛgamada-bhara
 > sei mṛgamade vicitrita kalevara
 

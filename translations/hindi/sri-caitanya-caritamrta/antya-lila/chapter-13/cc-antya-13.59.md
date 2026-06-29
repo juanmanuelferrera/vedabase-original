@@ -1,5 +1,8 @@
 ### CC Antya 13.59
 
+> ঐছে চৈতন্যনিষ্ঠা যোগ্য তোমাতে ।
+> তুমি না দেখাইলে ইহা শিখিব কেমতে ? ॥ ৫৯ ॥
+
 > aiche caitanya-niṣṭhā yogya tomāte
 > tumi nā dekhāile ihā śikhiba ke-mate?
 

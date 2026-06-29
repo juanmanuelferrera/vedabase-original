@@ -1,5 +1,8 @@
 ### SB 7.10.70
 
+> एवं दग्ध्वा पुरस्तिस्रो भगवान्पुरहा नृप
+> ब्रह्मादिभिः स्तूयमानः स्वं धाम प्रत्यपद्यत ॥७०॥
+
 > evaṁ vidhāny asya hareḥ sva-māyayā
 > viḍambamānasya nṛ-lokam ātmanaḥ
 > vīryāṇi gītāny ṛṣibhir jagad-guror

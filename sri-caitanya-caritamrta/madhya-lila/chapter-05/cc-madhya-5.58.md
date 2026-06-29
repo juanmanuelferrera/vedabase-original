@@ -1,5 +1,8 @@
 ### CC Madhya 5.58
 
+> এত শুনি’ তাঁর পুত্র বাক্য-চ্ছল পাঞা ।
+> প্রগল্ভ হইয়া কহে সম্মুখে আসিঞা ॥৫৮॥
+
 > eta śuni' tāṅra putra vākya-cchala pāñā
 > pragalbha ha-iyā kahe sammukhe āsiñā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 6.228
 
+> দুইজনে ধরি’ দুঁহে করেন নর্তন ।
+> প্ৰভু-ভৃত্য দুঁহা স্পর্শে, দোঁহার ফুলে মন ॥২২৮॥
+
 dui-jane dhari' duṅhe karena nartana
 prabhu-bhṛtya duṅhā sparśe, doṅhāra phule mana
 

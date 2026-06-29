@@ -1,5 +1,8 @@
 ### CC Madhya 22.49
 
+> সাধুসঙ্গে কৃষ্ণভক্ত্যে শ্রদ্ধা যদি হয় ।
+> ভক্তিফল ‘প্রেম’ হয়, সংসার যায় ক্ষয় ॥৪৯॥
+
 > sādhu-saṅge kṛṣṇa-bhaktye śraddhā yadi haya
 > bhakti-phala 'prema' haya, saṁsāra yāya kṣaya
 

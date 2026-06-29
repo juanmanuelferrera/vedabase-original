@@ -1,5 +1,8 @@
 ### CC Antya 14.18
 
+> ত্রিভঙ্গ-সুন্দর-দেহ, মুরলীবদন ।
+> পীতাম্বর, বনমালা, মদনমোহন ॥১৮॥
+
 > tribhaṅga-sundara-deha, muralī-vadana
 > pītāmbara, vana-mālā, madana-mohana
 

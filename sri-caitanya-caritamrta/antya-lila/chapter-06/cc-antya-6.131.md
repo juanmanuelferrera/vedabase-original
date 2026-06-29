@@ -1,5 +1,8 @@
 ### CC Antya 6.131
 
+> তোমার কৃপা বিনা কেহ ‘চৈতন্য’ না পায়  ।
+> তুমি কৃপা কৈলে তাঁরে অধমেহ পায় ॥১৩১॥
+
 > tomāra kṛpā vinā keha 'caitanya' nā pāya
 > tumi kṛpā kaile tāṅre adhameha pāya
 

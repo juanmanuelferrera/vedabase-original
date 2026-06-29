@@ -1,5 +1,8 @@
 ### CC Madhya 4.63
 
+> শ্রীঅঙ্গ মার্জন করি’ বস্ত্র পরাইল ।
+> চন্দন, তুলসী, পুষ্প-মালা অঙ্গে দিল ॥৬৩॥
+
 > śrī-aṅga mārjana kari' vastra parāila
 > candana, tulasī, puṣpa-mālā aṅge dila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 5.161
 
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
+> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥১৬১॥
+
 śrī-rūpa-raghunātha-pade yāra āśa
 caitanya-caritāmṛta kahe kṛṣṇadāsa
 

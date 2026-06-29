@@ -1,5 +1,8 @@
 ### CC Madhya 25.224
 
+> আঠারনালাতে আসি’ ভট্টাচার্য ব্রাহ্মণে ।
+> পাঠাঞা বোলাইলা নিজ-ভক্তগণে ॥২২৪॥
+
 > āṭhāranālāte āsi' bhaṭṭācārya brāhmaṇe
 > pāṭhāñā bolāilā nija-bhakta-gaṇe
 

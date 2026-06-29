@@ -1,5 +1,8 @@
 ### CC Madhya 17.13
 
+> প্রভু কহে, — নিজ-সঙ্গী কাঁহো না লইব ।
+> একজনে নিলে, আনের মনে দুঃখ হইব ॥১৩॥
+
 > prabhu kahe,--nija-saṅgī kāṅho nā la-iba
 > eka-jane nile, ānera mane duḥkha ha-iba
 

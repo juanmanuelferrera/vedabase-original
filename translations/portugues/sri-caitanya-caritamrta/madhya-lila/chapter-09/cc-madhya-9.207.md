@@ -1,5 +1,8 @@
 ### CC Madhya 9.207
 
+> শুনিঞা প্রভুর আনন্দিত হৈল মন ৷
+> রামদাস-বিপ্রের কথা হইল স্মরণ ৷৷ ২০৭ ৷৷ ॥২০৭॥
+
 śuniñā prabhura ānandita haila mana
 rāmadāsa-viprera kathā ha-ila smaraṇa
 

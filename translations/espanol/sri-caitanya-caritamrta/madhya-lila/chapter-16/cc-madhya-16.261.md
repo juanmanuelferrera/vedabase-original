@@ -1,5 +1,8 @@
 ### CC Madhya 16.261
 
+> দুই ভাই — ভক্তরাজ, কৃষ্ণকৃপা-পাত্র ।
+> ব্যবহারে — রাজমন্ত্রী হয় রাজপাত্র ॥২৬১॥
+
 > dui bhāi--bhakta-rāja, kṛṣṇa-kṛpā-pātra
 > vyavahāre--rāja-mantrī haya rāja-pātra
 

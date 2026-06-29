@@ -1,5 +1,8 @@
 ### CC Adi 7.71
 
+> প্রভু কহে — শুন, শ্রীপাদ, ইহার কারণ ।
+> গুরু মোরে মূর্খ দেখি’ করিল শাসন ॥৭১॥
+
 > prabhu kahe--śuna, śrīpāda, ihāra kāraṇa
 > guru more mūrkha dekhi' karila śāsana
 

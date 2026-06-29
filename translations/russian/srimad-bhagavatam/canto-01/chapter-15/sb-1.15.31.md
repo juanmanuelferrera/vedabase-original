@@ -1,5 +1,8 @@
 ### SB 1.15.31
 
+> विशोको ब्रह्मसम्पत्त्या सञ्छिन्नद्वैतसंशयः ।
+> लीनप्रकृतिनैर्गुण्यादलिङ्गत्वादसम्भवः ॥३१॥
+
 > viśoko brahma-sampattyā
 > sañchinna-dvaita-saṁśayaḥ
 > līna-prakṛti-nairguṇyād

@@ -1,5 +1,8 @@
 ### CC Adi 14.47
 
+> বাহিরে যাঞা আনিলেন দুই নারিকেল ।
+> দেখিয়া অপূর্ব হৈল বিস্মিত সকল ॥৪৭॥
+
 > bāhire yāñā ānilena dui nārikela
 > dekhiyā apūrva haila vismita sakala
 

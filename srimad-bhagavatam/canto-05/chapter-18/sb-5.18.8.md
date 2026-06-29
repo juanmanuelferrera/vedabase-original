@@ -1,5 +1,7 @@
 ### SB 5.18.8
 
+> ओं नमो भगवते नरसिंहाय नमस्तेजस्तेजसे आविराविर्भव वज्रनख वज्रदंष्ट्रकर्माशयान्रन्धय रन्धय तमो ग्रस ग्रस ओं स्वाहा अभयमभयमात्मनि भूयिष्ठा ओं क्ष्रौम ॥८॥
+
 > oṁ namo bhagavate narasiṁhāya namas tejas-tejase āvir-āvirbhava vajra-nakha vajra-daṁṣṭra karmāśayān randhaya randhaya tamo grasa grasa oṁ svāhā; abhayam abhayam ātmani bhūyiṣṭhā oṁ kṣraum.
 
 *om*—O Lord; *namaḥ*—my respectful obeisances; *bhagavate*—unto the Supreme Personality of Godhead; *nara-siṁhāya*—known as Lord Nṛsiṁha; *namaḥ*—obeisances; *tejaḥ-tejase*—the power of all power; *āviḥ-āvirbhava*—please be fully manifest; *vajra-nakha*—O You who possess nails like thunderbolts; *vajra-daṁṣṭra*—O You who possess teeth like thunderbolts; *karma-āśayān*—demoniac desires to be happy by material activities; *randhaya randhaya*—kindly vanquish; *tamaḥ*—ignorance in the material world; *grasa*—kindly drive away; *grasa*—kindly drive away; *om*—O my Lord; *svāhā*—respectful oblations; *abhayam*—fearlessness; *abhayam*—fearlessness; *ātmani*—in my mind; *bhūyiṣṭhāḥ*—may You appear; *om*—O Lord; *kṣraum*—the *bīja,* or seed, of *mantras* offering prayers to Lord Nṛsiṁha.

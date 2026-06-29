@@ -1,5 +1,8 @@
 ### CC Antya 18.14
 
+> কোটিযুগ পর্যন্ত যদি লিখয়ে গণেশ ।
+> একদিনের লীলার তবু নাহি পায় শেষ ॥১৪॥
+
 > koṭi-yuga paryanta yadi likhaye gaṇeśa
 > eka-dinera līlāra tabu nāhi pāya śeṣa
 

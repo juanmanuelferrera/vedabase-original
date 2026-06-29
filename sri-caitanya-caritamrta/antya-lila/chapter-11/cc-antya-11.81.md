@@ -1,5 +1,8 @@
 ### CC Antya 11.81
 
+> সব বৈষ্ণবে প্রভু বসাইলা সারি সারি ।
+> আপনে পরিবেশে প্রভু লঞা জনা চারি ॥৮১॥
+
 > saba vaiṣṇave prabhu vasāilā sāri sāri
 > āpane pariveśe prabhu lañā janā cāri
 

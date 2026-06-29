@@ -1,5 +1,8 @@
 ### CC Madhya 8.18
 
+> সূর্যশত-সম কান্তি, অরুণ বসন ৷
+> সুবলিত প্রকাণ্ড দেহ, কমল-লোচন ৷৷ ১৮ ৷৷ ॥১৮॥
+
 sūrya-śata-sama kānti, aruṇa vasana
 
 subalita prakāṇḍa deha, kamala-locana

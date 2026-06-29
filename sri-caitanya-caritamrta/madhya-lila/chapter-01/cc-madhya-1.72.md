@@ -1,5 +1,8 @@
 ### CC Madhya 1.72
 
+> স্বরূপ কহে, — যাতে জানিল তোমার মন ।
+> তাতে জানি, — হয় তোমার কৃপার ভাজন ॥৭২॥
+
 > svarūpa kahe,—yāte jānila tomāra mana
 > tāte jāni,—haya tomāra kṛpāra bhājana
 

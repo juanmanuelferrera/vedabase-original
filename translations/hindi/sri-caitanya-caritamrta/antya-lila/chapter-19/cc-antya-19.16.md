@@ -1,5 +1,8 @@
 ### CC Antya 19.16
 
+> আচার্যাদি ভক্তগণে মিলিলা প্রসাদ দিয়া ।
+> মাতা-ঠাঞি আজ্ঞা লইলা মাসেক রহিয়া ॥১৬॥
+
 > ācāryādi bhakta-gaṇe mililā prasāda diyā
 > mātā-ṭhāñi ājñā la-ilā māseka rahiyā
 

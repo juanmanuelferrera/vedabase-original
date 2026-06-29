@@ -1,5 +1,8 @@
 ### CC Madhya 17.179
 
+> যদ্যপি ‘সনোড়িয়া’ হয় সেইত ব্রাহ্মণ ।
+> সনোড়িয়া-ঘরে সন্ন্যাসী না করে ভোজন ॥১৭৯॥
+
 yadyapi 'sanoḍiyā' haya seita brāhmaṇa
 
 sanoḍiyā-ghare sannyāsī nā kare bhojana

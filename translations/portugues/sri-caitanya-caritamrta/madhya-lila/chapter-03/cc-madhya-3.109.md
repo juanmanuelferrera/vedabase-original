@@ -1,5 +1,8 @@
 ### CC Madhya 3.109
 
+> হরি’ ‘হরি’ বলে লোক আনন্দিত হঞা ।
+> চমত্কার পাইল প্রভুর সৌন্দর্য দেখিঞা ॥১০৯॥
+
 'hari' 'hari' bale loka ānandita hañā
 
 camatkāra pāila prabhura saundarya dekhiñā

@@ -1,5 +1,8 @@
 ### CC Antya 16.85
 
+> গরুড়ের পাছে রহি’ করেন দরশন ।
+> দেখেন, — জগন্নাথ হয় মুরলীবদন ॥৮৫॥
+
 > garuḍera pāche rahi' karena daraśana
 > dekhena,--jagannātha haya muralī-vadana
 

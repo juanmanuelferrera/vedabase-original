@@ -1,5 +1,8 @@
 ### CC Madhya 15.301
 
+> শ্রদ্ধা করি’ এই লীলা শুনে যেই জন ।
+> অচিরাৎ পায় সেই চৈতন্য-চরণ ॥৩০১॥
+
 śraddhā kari' ei līlā śune yei jana
 
 acirāt pāya sei caitanya-caraṇa

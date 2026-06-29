@@ -1,5 +1,8 @@
 ### CC Madhya 11.77
 
+> দ্বিতীয়, গোবিন্দ — ভৃত্য, ইহাঁ দোঁহা দিয়া ।
+> মালা পাঠাঞাছেন প্রভু গৌরব করিয়া ॥৭৭॥
+
 > dvitīya, govinda-bhṛtya, ihāṅ doṅhā diyā
 > mālā pāṭhāñāchena prabhu gaurava kariyā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 4.46
 
+> ক্ষণেক রোদন করি, মন কৈল ধীর ।
+> আজ্ঞা-পালন লাগি’ হইলা সুস্থির ॥৪৬॥
+
 kṣaṇeka rodana kari, mana kaila dhīra
 ājñā-pālana lāgi' ha-ilā susthira
 

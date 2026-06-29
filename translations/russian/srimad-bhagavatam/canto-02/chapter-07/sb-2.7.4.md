@@ -1,5 +1,10 @@
 ### SB 2.7.4
 
+> अत्रेरपत्यमभिकाङ्क्षत आह तुष्टो
+> दत्तो मयाहमिति यद्भगवान्स दत्तः ।
+> यत्पादपङ्कजपरागपवित्रदेहा
+> योगर्द्धिमापुरुभयीं यदुहैहयाद्याः ॥४॥
+
 > atrer apatyam abhikāṅkṣata āha tuṣṭo
 > datto mayāham iti yad bhagavān sa dattaḥ
 > yat-pāda-paṅkaja-parāga-pavitra-dehā

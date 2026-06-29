@@ -1,5 +1,8 @@
 ### CC Antya 6.49
 
+> কৌতুকী নিত্যানন্দ সহজে দয়াময়  ।
+> রঘুনাথে কহে কিছু হঞা সদয় ॥৪৯॥
+
 > kautukī nityānanda sahaje dayāmaya
 > raghunāthe kahe kichu hañā sadaya
 

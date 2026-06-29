@@ -1,5 +1,8 @@
 ### CC Madhya 15.11
 
+> “যোঽসি সোঽসি নমোঽস্তু তে” এই মন্ত্র পড়ে ।
+> মুখবাদ্য করি’ প্রভু হাসায় আচার্যেরে ॥১১॥
+
 "yo 'si so 'si namo 'stu te" ei mantra paḍe
 mukha-vādya kari' prabhu hāsāya ācāryere
 

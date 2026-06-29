@@ -1,5 +1,8 @@
 ### CC Antya 4.224
 
+> ‘উজ্জ্বলনীলমণি’-নাম গ্রন্থ কৈল আর  ।
+> রাধাকৃষ্ণ-লীলারস তাহাঁ পাইয়ে পার ॥২২৪॥
+
 > 'ujjvala-nīlamaṇi'-nāma grantha kaila āra
 > rādhā-kṛṣṇa-līlā-rasa tāhāṅ pāiye pāra
 

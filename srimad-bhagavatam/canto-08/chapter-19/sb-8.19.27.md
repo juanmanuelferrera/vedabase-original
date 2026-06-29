@@ -1,5 +1,8 @@
 ### SB 8.19.27
 
+> तस्मात्त्रीणि पदान्येव वृणे त्वद्वरदर्षभात
+> एतावतैव सिद्धोऽहं वित्तं यावत्प्रयोजनम ॥२७॥
+
 > tasmāt trīṇi padāny eva
 > vṛṇe tvad varadarṣabhāt
 > etāvataiva siddho 'haṁ

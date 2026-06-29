@@ -1,5 +1,8 @@
 ### CC Antya 6.278
 
+> “বিষয়ীর অন্ন খাইলে মলিন হয় মন  ।
+> মলিন মন হৈলে নহে কৃষ্ণের স্মরণ ॥২৭৮॥
+
 > "viṣayīra anna khāile malina haya mana
 > malina mana haile nahe kṛṣṇera smaraṇa
 

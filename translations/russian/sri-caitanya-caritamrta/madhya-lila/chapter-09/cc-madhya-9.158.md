@@ -1,5 +1,8 @@
 ### CC Madhya 9.158
 
+> অগাধ ঈশ্বর-লীলা কিছুই না জানি ।
+> তুমি যেই কহ, সেই সত্য করি’ মানি ॥১৫৮॥
+
 > agādha īśvara-līlā kichui nā jāni
 > tumi yei kaha, sei satya kari' māni
 

@@ -1,5 +1,8 @@
 ### CC Adi 16.4
 
+> এই ত’ কৈশোর-লীলার সূত্র-অনুবন্ধ ।
+> শিষ্যগণ পড়াইতে করিলা আরম্ভ ॥৪॥
+
 ei ta' kaiśora-līlāra sūtra-anubandha
 śiṣya-gaṇa paḍāite karilā ārambha
 

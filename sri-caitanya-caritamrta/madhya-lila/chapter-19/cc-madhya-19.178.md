@@ -1,5 +1,8 @@
 ### CC Madhya 19.178
 
+> প্রেম বৃদ্ধিক্রমে নাম — স্নেহ, মান, প্রণয় ।
+> রাগ, অনুরাগ, ভাব, মহাভাব হয় ॥১৭৮॥
+
 > prema vṛddhi-krame nāma—sneha, māna, praṇaya
 > rāga, anurāga, bhāva, mahābhāva haya
 

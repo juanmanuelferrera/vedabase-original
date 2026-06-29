@@ -1,5 +1,8 @@
 ### CC Madhya 8.216
 
+> প্রেমৈব গোপরামাণাং কাম ইত্যগমৎ প্ৰথাম্ ৷
+> ইত্যুদ্ধবাদয়োঽপ্যেতং বাঞ্ছন্তি ভগবৎপ্রিয়াঃ ৷৷ ২১৬ ৷৷ ॥২১৬॥
+
 premaiva gopa-rāmāṇāṁ
 kāma ity agamat prathām
 ity uddhavādayo 'py etaṁ

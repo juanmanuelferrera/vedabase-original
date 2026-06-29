@@ -1,5 +1,8 @@
 ### SB 8.5.48
 
+> नावमः कर्मकल्पोऽपि विफलायेश्वरार्पितः
+> कल्पते पुरुषस्यैव स ह्यात्मा दयितो हितः ॥४८॥
+
 > nāvamaḥ karma-kalpo 'pi
 > viphalāyeśvarārpitaḥ
 > kalpate puruṣasyaiva

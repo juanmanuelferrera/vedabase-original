@@ -1,5 +1,8 @@
 ### SB 3.12.12
 
+> मन्युर्मनुर्महिनसो महाञ्छिव ऋतध्वजः ।
+> उग्ररेता भवः कालो वामदेवो धृतव्रतः ॥१२॥
+
 > manyur manur mahinaso
 > mahāñ chiva ṛtadhvajaḥ
 > ugraretā bhavaḥ kālo

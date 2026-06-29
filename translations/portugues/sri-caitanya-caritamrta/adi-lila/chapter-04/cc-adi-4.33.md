@@ -1,5 +1,8 @@
 ### CC Adi 4.33
 
+> ব্রজের নির্মল রাগ শুনি’ ভক্তগণ ।
+> রাগমার্গে ভজে যেন ছাড়ি’ ধর্ম-কর্ম ॥৩৩॥
+
 vrajera nirmala rāga śuni' bhakta-gaṇa
 
 rāga-mārge bhaje yena chāḍi' dharma-karma

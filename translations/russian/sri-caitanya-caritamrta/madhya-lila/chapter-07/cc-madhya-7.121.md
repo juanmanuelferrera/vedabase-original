@@ -1,5 +1,8 @@
 ### CC Madhya 7.121
 
+> ‘কূর্ম’-নামে সেই গ্রামে বৈদিক ব্রাহ্মণ ।
+> বহু শ্রদ্ধা-ভক্ত্যে কৈল প্রভুর নিমন্ত্রণ ॥১২১॥
+
 > 'kūrma'-nāme sei grāme vaidika brāhmaṇa
 > bahu śraddhā-bhaktye kaila prabhura nimantraṇa
 

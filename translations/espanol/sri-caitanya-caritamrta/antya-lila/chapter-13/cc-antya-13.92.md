@@ -1,5 +1,8 @@
 ### CC Antya 13.92
 
+> সর্বশাস্ত্রে প্রবীণ, কাব্যপ্রকাশ-অধ্যাপক ।
+> পরমবৈষ্ণব, রঘুনাথ-উপাসক ॥৯২॥
+
 > sarva-śāstre pravīṇa, kāvya-prakāśa-adhyāpaka
 > parama-vaiṣṇava, raghunātha-upāsaka
 

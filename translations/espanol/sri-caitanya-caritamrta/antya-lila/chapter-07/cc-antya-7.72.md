@@ -1,5 +1,8 @@
 ### CC Antya 7.72
 
+> রথযাত্রা-দিনে প্রভু কীর্তন আরম্ভিলা ।
+> পূর্ববৎ সাত সম্প্রদায় পৃথক্ করিলা ॥৭২॥
+
 > ratha-yātrā-dine prabhu kīrtana ārambhilā
 > pūrvavat sāta sampradāya pṛthak karilā
 

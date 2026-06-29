@@ -1,5 +1,8 @@
 ### SB 4.11.32
 
+> येनोपसृष्टात्पुरुषाल्लोक उद्विजते भृशम् ।
+> न बुधस्तद्वशं गच्छेदिच्छन्नभयमात्मनः ॥३२॥
+
 > yenopasṛṣṭāt puruṣāl
 > loka udvijate bhṛśam
 > na budhas tad-vaśaṁ gacched

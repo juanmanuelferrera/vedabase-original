@@ -1,5 +1,8 @@
 ### CC Madhya 11.235
 
+> মহানৃত্য, মহাপ্রেম, মহাসংকীর্তন ।
+> দেখি’ প্রেমাবেশে ভাসে নীলাচল-জন ॥২৩৫॥
+
 > mahā-nṛtya, mahā-prema, mahā-saṅkīrtana
 > dekhi' premāveśe bhāse nīlācala-jana
 

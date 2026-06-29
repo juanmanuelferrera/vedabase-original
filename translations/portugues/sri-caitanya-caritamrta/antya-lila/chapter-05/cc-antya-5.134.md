@@ -1,5 +1,8 @@
 ### CC Antya 5.134
 
+> এই শ্লোক করিয়াছ পাঞা সন্তোষ ।
+> তোমার হৃদয়ের অর্থে দুঁহায় লাগে ‘দোষ’ ॥১৩৪॥
+
 ei śloka kariyācha pāñā santoṣa
 
 tomāra hṛdayera arthe duṅhāya lāge 'doṣa'

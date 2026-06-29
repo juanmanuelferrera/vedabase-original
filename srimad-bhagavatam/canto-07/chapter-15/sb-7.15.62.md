@@ -1,5 +1,8 @@
 ### SB 7.15.62
 
+> भावाद्वैतं क्रियाद्वैतं द्रव्याद्वैतं तथात्मनः
+> वर्तयन्स्वानुभूत्येह त्रीन्स्वप्नान्धुनुते मुनिः ॥६२॥
+
 > bhāvādvaitaṁ kriyādvaitaṁ
 > dravyādvaitaṁ tathātmanaḥ
 > vartayan svānubhūtyeha

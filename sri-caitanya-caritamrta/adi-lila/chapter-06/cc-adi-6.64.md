@@ -1,5 +1,8 @@
 ### CC Adi 6.64
 
+> পাদসংবাহনং চক্রুঃ কেচিত্তস্য মহাত্মনঃ ।
+> অপরে হতপাপ্মানো ব্যজনৈঃ সমবীজয়ন্ ॥৬৪॥
+
 > pāda-saṁvāhanaṁ cakruḥ
 > kecit tasya mahātmanaḥ
 > apare hata-pāpmāno

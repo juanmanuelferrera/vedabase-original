@@ -1,5 +1,8 @@
 ### SB 7.5.47
 
+> अप्रमेयानुभावोऽयमकुतश्चिद्भयोऽमरः
+> नूनमेतद्विरोधेन मृत्युर्मे भविता न वा ॥४७॥
+
 > aprameyānubhāvo 'yam
 > akutaścid-bhayo 'maraḥ
 > nūnam etad-virodhena

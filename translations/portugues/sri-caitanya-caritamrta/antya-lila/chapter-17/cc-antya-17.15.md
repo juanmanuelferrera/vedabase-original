@@ -1,5 +1,8 @@
 ### CC Antya 17.15
 
+> ইতি-উতি অন্বেষিয়া সিংহদ্বারে গেলা ।
+> গাভীগণ মধ্যে যাই’ প্রভুরে পাইলা ॥১৫॥
+
 iti-uti anveṣiyā siṁha-dvāre gelā
 gābhī-gaṇa-madhye yāi' prabhure pāilā
 

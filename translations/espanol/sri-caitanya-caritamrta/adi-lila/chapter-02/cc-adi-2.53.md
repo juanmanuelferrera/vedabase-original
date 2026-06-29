@@ -1,5 +1,8 @@
 ### CC Adi 2.53
 
+> বিরাড়্ হিরণ্যগর্ভশ্চ কারণং চেত্যুপাধয়ঃ ।
+> ঈশস্য যত্রিভির্হীনং তুরীয়ং তৎ প্রচক্ষতে ॥৫৩॥
+
 > virāḍ hiraṇya-garbhaś ca
 > kāraṇaṁ cety upādhayaḥ
 > īśasya yat tribhir hīnaṁ

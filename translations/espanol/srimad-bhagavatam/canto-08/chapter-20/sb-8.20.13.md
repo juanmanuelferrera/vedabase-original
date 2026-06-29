@@ -1,5 +1,8 @@
 ### SB 8.20.13
 
+> एष वा उत्तमश्लोको न जिहासति यद्यशः
+> हत्वा मैनां हरेद्युद्धे शयीत निहतो मया ॥१३॥
+
 > eṣa vā uttamaśloko
 > na jihāsati yad yaśaḥ
 > hatvā maināṁ hared yuddhe

@@ -1,5 +1,7 @@
 ### SB 5.20.38
 
+> एतावान्लोकविन्यासो मानलक्षणसंस्थाभिर्विचिन्तितः कविभिः स तु पञ्चाशत्कोटिगणितस्य भूगोलस्य तुरीयभागोऽयं लोकालोकाचलः ॥३८॥
+
 *etāvāḹ loka*-vinyāso māna-lakṣaṇa-saṁsthābhir vicintitaḥ kavibhiḥ sa tu pañcāśat-koṭi-gaṇitasya bhū-golasya turīya-bhāgo 'yaṁ lokālokācalaḥ.
 
 *etāvān*—outro tanto; *loka-vinyāsaḥ*—a disposição dos diferentes planetas; *māna*—com medidas; *lakṣaṇa*—características; *saṁsthābhiḥ*—assim como com suas diferentes situações; *vicintitaḥ*—estabelecido por cálculos científicos; *kavibhiḥ*—por eruditos sábios; *saḥ*—essa; *tu*—mas; *pañcāśat-koṭi*—500.000.000 de yojanas; *gaṇitasya*—medido em; *bhū-golasya*—do sistema planetário conhecido como Bhūgolaka; *turīya-bhāgaḥ*—um quarto; *ayam*—esta; *lokāloka-acalaḥ*—a montanha conhecida como Lokāloka.

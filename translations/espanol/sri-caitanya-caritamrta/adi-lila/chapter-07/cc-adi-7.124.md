@@ -1,5 +1,8 @@
 ### CC Adi 7.124
 
+> অবিচিন্ত্য-শক্তিযুক্ত শ্রীভগবান্ ।
+> ইচ্ছায় জগদ্রূপে পায় পরিণাম ॥১২৪॥
+
 > avicintya-śakti-yukta śrī-bhagavān
 > icchāya jagad-rūpe pāya pariṇāma
 

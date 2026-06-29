@@ -1,5 +1,10 @@
 ### CC Adi 4.131
 
+> বিভুরপি কলয়ন্ সদাভিবৃদ্ধিং
+> গুরুরপি গৌরবচর্যয়া বিহীনঃ ।
+> মুহুরুপচিতবক্রিমাপি শুদ্ধো
+> জয়তি মুরদ্বিষি রাধিকানুরাগঃ ॥১৩১॥
+
 > vibhur api kalayan sadābhivṛddhiṁ
 > gurur api gaurava-caryayā vihīnaḥ
 > muhur upacita-vakrimāpi śuddho

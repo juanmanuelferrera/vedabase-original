@@ -1,5 +1,8 @@
 ### SB 9.8.23
 
+> ये देहभाजस्त्रिगुणप्रधाना गुणान्विपश्यन्त्युत वा तमश्च
+> यन्मायया मोहितचेतसस्त्वां विदुः स्वसंस्थं न बहिःप्रकाशाः ॥२३॥
+
 > taṁ tvāṁ ahaṁ jñāna-ghanaṁ svabhāva-
 > pradhvasta-māyā-guṇa-bheda-mohaiḥ
 > sanandanādyair munibhir vibhāvyaṁ

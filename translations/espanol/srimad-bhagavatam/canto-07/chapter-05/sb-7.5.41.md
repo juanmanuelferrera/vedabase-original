@@ -1,5 +1,8 @@
 ### SB 7.5.41
 
+> परे ब्रह्मण्यनिर्देश्ये भगवत्यखिलात्मनि
+> युक्तात्मन्यफला आसन्नपुण्यस्येव सत्क्रियाः ॥४१॥
+
 > pare brahmaṇy anirdeśye
 > bhagavaty akhilātmani
 > yuktātmany aphalā āsann

@@ -1,5 +1,8 @@
 ### CC Madhya 4.137
 
+> প্রেম দেখি’ সেবক কহে হইয়া বিস্মিত ।
+> কৃষ্ণ যে ইঁহার বশ, — হয় যথোচিত ॥১৩৭॥
+
 > prema dekhi' sevaka kahe ha-iyā vismita
 > kṛṣṇa ye iṅhāra vaśa,--haya yathocita
 

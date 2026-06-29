@@ -1,5 +1,8 @@
 ### CC Madhya 17.146
 
+> এত বলি’ সেই বিপ্রে আত্মসাথ করি’ ।
+> প্রাতে উঠি’ মথুরা চলিলা গৌরহরি ॥১৪৬॥
+
 eta bali' sei vipre ātmasātha kari'
 
 prāte uṭhi mathurā calilā gaurahari

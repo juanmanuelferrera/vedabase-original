@@ -1,5 +1,8 @@
 ### CC Adi 17.34
 
+> তবে প্রভু শ্রীবাসের গৃহে নিরন্তর ।
+> রাত্রে সংকীর্তন কৈল এক সম্বৎসর ॥৩৪॥
+
 > tabe prabhu śrīvāsera gṛhe nirantara
 > rātre saṅkīrtana kaila eka saṁvatsara
 

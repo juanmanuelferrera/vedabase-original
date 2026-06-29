@@ -1,5 +1,8 @@
 ### CC Madhya 6.199
 
+> শুনি’ ভট্টাচার্যের মনে হৈল চমৎকার ।
+> প্রভুকে কৃষ্ণ জানি’ করে আপনা ধিক্কার ॥১৯৯॥
+
 śuni' bhaṭṭācāryera mane haila camatkāra
 prabhuke kṛṣṇa jāni' kare āpanā dhikkāra
 

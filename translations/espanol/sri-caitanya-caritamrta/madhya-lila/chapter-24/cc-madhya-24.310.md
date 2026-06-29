@@ -1,5 +1,8 @@
 ### CC Madhya 24.310
 
+> ভ্রমিতে ভ্রমিতে যদি সাধুসঙ্গ পায় ।
+> সব ত্যজি’ তবে তিঁহো কৃষ্ণেরে ভজয় ॥৩১০॥
+
 > bhramite bhramite yadi sādhu-saṅga pāya
 > saba tyaji' tabe tiṅho kṛṣṇere bhajaya
 

@@ -1,5 +1,10 @@
 ### CC Antya 15.17
 
+> এক অশ্ব একক্ষণে, পাঁচ পাঁচ দিকে টানে,
+> এক মন কোন্ দিকে ধায় ?
+> এককালে সবে টানে, গেল ঘোড়ার পরাণে,
+> এই দুঃখ সহন না যায় ॥১৭॥
+
 > eka aśva eka-kṣaṇe, pāṅca pāṅca dike ṭāne,
 > eka mana kon dike yāya?
 > eka-kāle sabe ṭāne, gela ghoḍāra parāṇe,

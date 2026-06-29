@@ -1,5 +1,8 @@
 ### CC Madhya 15.257
 
+> প্রভু কহে, — নিন্দা নহে, ‘সহজ’ কহিল ৷
+> ইহাতে তোমার কিবা অপরাধ হৈল ? ॥ ২৫৭ ॥
+
 > prabhu kahe,--nindā nahe, 'sahaja' kahila
 > ihāte tomāra kibā aparādha haila?
 

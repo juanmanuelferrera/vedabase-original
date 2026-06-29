@@ -1,5 +1,8 @@
 ### CC Antya 18.120
 
+> এই ত’ কহিলুঁ প্রভুর সমুদ্র-পতন ।
+> ইহা যেই শুনে, পায় চৈতন্য-চরণ ॥১২০॥
+
 ei ta' kahiluṅ prabhura samudra-patana
 
 ihā yei śune, pāya caitanya-caraṇa

@@ -1,5 +1,8 @@
 ### CC Antya 6.31
 
+> উজিরে কহিয়া রঘুনাথে ছাড়াইল  ।
+> প্রীতি করি’ রঘুনাথে কহিতে লাগিল ॥৩১॥
+
 > ujire kahiyā raghunāthe chāḍāila
 > prīti kari' raghunāthe kahite lāgila
 

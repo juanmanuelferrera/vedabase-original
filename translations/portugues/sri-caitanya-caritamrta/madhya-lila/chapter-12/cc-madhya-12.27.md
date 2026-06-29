@@ -1,5 +1,8 @@
 ### CC Madhya 12.27
 
+> আমি কোন্ ক্ষুদ্রজীব, তোমাকে বিধি দিব ?
+> আপনি মিলিবে তাঁরে, তাহাও দেখিব ॥২৭॥
+
 āmi kon kṣudra-jīva, tomāke vidhi diba?
 āpani milibe tāṅre, tāhāo dekhiba
 

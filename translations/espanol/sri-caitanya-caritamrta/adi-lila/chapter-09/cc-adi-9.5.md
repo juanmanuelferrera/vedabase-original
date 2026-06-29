@@ -1,5 +1,8 @@
 ### CC Adi 9.5
 
+> এসব-প্রসাদে লিখি চৈতন্য-লীলাগুণ ।
+> জানি বা না জানি, করি আপন-শোধন ॥৫॥
+
 > esaba-prasāde likhi caitanya-līlā-guṇa
 > jāni vā nā jāni, kari āpana-śodhana
 

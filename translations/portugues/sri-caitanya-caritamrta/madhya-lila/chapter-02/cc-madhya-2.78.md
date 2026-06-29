@@ -1,5 +1,10 @@
 ### CC Madhya 2.78
 
+> পুরীর বাৎসল্য মুখ্য, রামানন্দের শুদ্ধসখ্য,
+> গোবিন্দাদ্যের শুদ্ধদাস্যরস ।
+> গদাধর, জগদানন্দ, স্বরূপের মুখ্য রসানন্দ,
+> এই চারি ভাবে প্রভু বশ ॥৭৮॥
+
 purīra vātsalya mukhya, rāmānandera śuddha-sakhya,
 govindādyera śuddha-dāsya-rasa
 gadādhara, jagadānanda, svarūpera mukhya rasānanda,

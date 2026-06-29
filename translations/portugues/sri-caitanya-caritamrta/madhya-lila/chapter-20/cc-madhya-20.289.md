@@ -1,5 +1,8 @@
 ### CC Madhya 20.289
 
+> ‘বিষ্ণু’-রূপ হঞা করে জগৎ পালনে ।
+> গুণাতীত বিষ্ণু — স্পর্শ নাহি মায়া-সনে ॥২৮৯॥
+
 'viṣṇu'-rūpa hañā kare jagat pālane
 
 guṇātīta viṣṇu--sparśa nāhi māyā-sane

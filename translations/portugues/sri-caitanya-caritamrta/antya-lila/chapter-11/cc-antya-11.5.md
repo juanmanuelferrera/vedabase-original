@@ -1,5 +1,8 @@
 ### CC Antya 11.5
 
+> জয় গৌরদেহ কৃষ্ণ স্বয়ং ভগবান্ ।
+> কৃপা করি’ দেহ’ প্রভু, নিজ-পদ-দান ॥৫॥
+
 jaya gaura-deha kṛṣṇa svayaṁ bhagavān
 kṛpā kari' deha' prabhu, nija-pada-dāna
 

@@ -1,5 +1,8 @@
 ### CC Adi 5.201
 
+> জয় জয় নিত্যানন্দ, জয় কৃপাময় ।
+> যাঁহা হৈতে পাইনু রূপ-সনাতনাশ্রয় ॥২০১॥
+
 jaya jaya nityānanda, jaya kṛpā-maya
 
 yāṅhā haite pāinu rūpa-sanātanāśraya

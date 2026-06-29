@@ -1,5 +1,8 @@
 ### CC Madhya 24.238
 
+> “গোসাঞি, প্রয়াণ-পথ ছাড়ি’ কেনে আইলা ।
+> তোমা দেখি’ মোর লক্ষ্য মৃগ পলাইলা ।।” ॥ ২৩৮ ॥
+
 > "gosāñi, prayāṇa-patha chāḍi' kene āilā
 > tomā dekhi' mora lakṣya mṛga palāilā"
 

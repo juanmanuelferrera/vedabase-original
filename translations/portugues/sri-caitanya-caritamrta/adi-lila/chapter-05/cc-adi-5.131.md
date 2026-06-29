@@ -1,5 +1,8 @@
 ### CC Adi 5.131
 
+> কৃষ্ণ যবে অবতরে সর্বাংশ-আশ্রয় ।
+> সর্বাংশ আসি’ তবে কৃষ্ণেতে মিলয় ॥১৩১॥
+
 kṛṣṇa yabe avatare sarvāṁśa-āśraya
 
 sarvāṁśa āsi' tabe kṛṣṇete milaya

@@ -1,5 +1,8 @@
 ### CC Madhya 14.39
 
+> পাঁতি পাঁতি করি’ ভক্তগণে বসাইলা ।
+> পরিবেশন করিবারে আপনে লাগিলা ॥৩৯॥
+
 > pāṅti pāṅti kari' bhakta-gaṇe vasāilā
 > pariveśana karibāre āpane lāgilā
 

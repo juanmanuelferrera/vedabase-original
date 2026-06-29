@@ -1,5 +1,8 @@
 ### CC Adi 4.91
 
+> কিম্বা, ‘সর্বলক্ষ্মী’ — কৃষ্ণের ষড়্বিধ ঐশ্বর্য ।
+> তাঁর অধিষ্ঠাত্রী শক্তি — সর্বশক্তিবর্য ॥৯১॥
+
 kimvā, 'sarva-lakṣmī'--kṛṣṇera ṣaḍ-vidha aiśvarya
 tāṅra adhiṣṭhātrī śakti--sarva-śakti-varya
 

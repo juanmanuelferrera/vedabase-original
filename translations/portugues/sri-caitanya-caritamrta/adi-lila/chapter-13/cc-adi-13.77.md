@@ -1,5 +1,8 @@
 ### CC Adi 13.77
 
+> নৈতচ্চিত্রং ভগবতি হ্যনন্তে জগদীশ্বরে ।
+> ওতং প্রোতমিদং যস্মিন্ তন্তুষ্বঙ্গ যথা পটঃ ॥৭৭॥
+
 naitac citraṁ bhagavati
 hy anante jagad-īśvare
 otaṁ protam idaṁ yasmin

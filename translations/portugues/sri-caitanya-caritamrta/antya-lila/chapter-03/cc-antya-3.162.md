@@ -1,5 +1,8 @@
 ### CC Antya 3.162
 
+> সেই ঘরে তিন দিন করে অমেধ্য রন্ধন ।
+> আর দিন সবা লঞা করিলা গমন ॥১৬২॥
+
 sei ghare tina dina kare amedhya randhana
 
 āra dina sabā lañā karilā gamana

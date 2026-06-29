@@ -1,5 +1,8 @@
 ### CC Madhya 6.149
 
+> অহো ভাগ্যমহো ভাগ্যং নন্দগোপব্রজৌকসাম্ ।
+> যন্মিত্রং পরমানন্দং পূর্ণং ব্রহ্ম সনাতনম্ ॥১৪৯॥
+
 aho bhāgyam aho bhāgyaṁ
 nanda-gopa-vrajaukasām
 yan-mitraṁ paramānandaṁ

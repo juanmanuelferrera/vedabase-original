@@ -1,5 +1,8 @@
 ### CC Madhya 12.195
 
+> হেন তোমার সঙ্গে মোর একত্রে ভোজন ।
+> না জানি, তোমার সঙ্গে কৈছে হয় মন ॥১৯৫॥
+
 > hena tomāra saṅge mora ekatre bhojana
 > nā jāni, tomāra saṅge kaiche haya mana
 

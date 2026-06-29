@@ -1,5 +1,8 @@
 ### SB 3.5.51
 
+> ततो वयं मत्प्रमुखा यदर्थे बभूविमात्मन्करवाम किं ते ।
+> त्वं नः स्वचक्षुः परिदेहि शक्त्या देव क्रियार्थे यदनुग्रहाणाम् ॥५१॥
+
 > tato vayaṁ mat-pramukhā yad-arthe
 > babhūvimātman karavāma kiṁ te
 > tvaṁ naḥ sva-cakṣuḥ paridehi śaktyā

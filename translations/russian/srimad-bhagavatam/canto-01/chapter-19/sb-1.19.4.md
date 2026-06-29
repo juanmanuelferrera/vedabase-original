@@ -1,5 +1,8 @@
 ### SB 1.19.4
 
+> स चिन्तयन्नित्थमथाशृणोद्यथा मुनेः सुतोक्तो निरृतिस्तक्षकाख्यः ।
+> स साधु मेने न चिरेण तक्षका नलं प्रसक्तस्य विरक्तिकारणम् ॥४॥
+
 > sa cintayann ittham athāśṛṇod yathā
 > muneḥ sutokto nirṛtis takṣakākhyaḥ
 > sa sādhu mene na cireṇa takṣakā-

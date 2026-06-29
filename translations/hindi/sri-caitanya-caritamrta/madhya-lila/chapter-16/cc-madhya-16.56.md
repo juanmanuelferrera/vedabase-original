@@ -1,5 +1,8 @@
 ### CC Madhya 16.56
 
+> বিস্তারি’ বর্ণিয়াছেন দাস-বৃন্দাবন ।
+> শ্রীবাস প্রভুরে তবে কৈল নিমন্ত্রণ ॥৫৬॥
+
 > vistāri' varṇiyāchena dāsa-vṛndāvana
 > śrīvāsa prabhure tabe kaila nimantraṇa
 

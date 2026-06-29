@@ -1,5 +1,8 @@
 ### CC Antya 14.112
 
+> এত বলি’ মহাপ্রভু করেন ক্রন্দন ।
+> তাঁর দশা দেখি’ বৈষ্ণব করেন রোদন ॥১১২॥
+
 eta bali' mahāprabhu karena krandana
 
 tāṅra daśā dekhi' vaiṣṇava karena rodana

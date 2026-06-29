@@ -1,5 +1,10 @@
 ### CC Madhya 16.145
 
+> স্বনিগমমপহায় মৎপ্রতিজ্ঞা-
+> মৃতমধিকর্তুমবপ্লুতো রথস্থঃ ।
+> ধৃতরথচরণোঽভ্যয়াচ্চলদ্গু-
+> র্হরিরিব হন্তুমিভং গতোত্তরীয়ঃ ॥১৪৫॥
+
 > svanigamam apahāya mat-pratijñām
 > ṛtam adhikartum avapluto ratha-sthaḥ
 > dhṛta-ratha-caraṇo 'bhyayāc caladgur

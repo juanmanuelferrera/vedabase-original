@@ -1,5 +1,8 @@
 ### CC Antya 12.35
 
+> “চৈতন্যের পারিষদ মোর মাতুলের খ্যাতি  ।
+> ‘ঠাকুরালী’ করেন গোসাঞি, তাঁরে মারে লাথি” ॥৩৫॥
+
 "caitanyera pāriṣada mora mātulera khyāti
 
 'ṭhākurālī' karena gosāñi, tāṅre māre lāthi"

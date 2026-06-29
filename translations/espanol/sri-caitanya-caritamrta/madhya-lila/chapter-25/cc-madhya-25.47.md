@@ -1,5 +1,8 @@
 ### CC Madhya 25.47
 
+> “আচার্যের আগ্রহ — ‘অদ্বৈতবাদ’ স্থাপিতে ।
+> তাতে সূত্রার্থ ব্যাখ্যা করে অন্য রীতে ॥৪৭॥
+
 > ācāryera āgraha-'advaita-vāda' sthāpite
 > tāte sūtrārtha vyākhyā kare anya rīte
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.48
 
+> প্রভু বোলায়, তেঁহো নিকটে না করে গমন ।
+> আকর্ষিয়া তাঁর মাথে প্রভু ধরিলা চরণ ॥৪৮॥
+
 prabhu bolāya, teṅho nikaṭe nā kare gamana
 
 ākarṣiyā tāṅra māthe prabhu dharilā caraṇa

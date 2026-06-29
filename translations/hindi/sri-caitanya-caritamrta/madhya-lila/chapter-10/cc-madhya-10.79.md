@@ -1,5 +1,8 @@
 ### CC Madhya 10.79
 
+> আচার্যেরে প্রসাদ দিয়া করি’ নমস্কার ।
+> সম্যক্ কহিল মহাপ্রভুর সমাচার ॥৭৯॥
+
 > ācāryere prasāda diyā kari' namaskāra
 > samyak kahila mahāprabhura samācāra
 

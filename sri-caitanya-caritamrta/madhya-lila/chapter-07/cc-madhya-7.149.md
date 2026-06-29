@@ -1,5 +1,8 @@
 ### CC Madhya 7.149
 
+> এতেক কহিয়া প্রভু কৈল অন্তর্ধানে ।
+> দুই বিপ্র গলাগলি কান্দে প্রভুর গুণে ॥১৪৯॥
+
 > eteka kahiyā prabhu kaila antardhāne
 > dui vipra galāgali kānde prabhura guṇe
 

@@ -1,5 +1,8 @@
 ### CC Adi 10.158
 
+> তাঁর স্থানে রূপ-গোসাঞি শুনেন ভাগবত ।
+> প্রভুর কৃপায় তেঁহো কৃষ্ণপ্রেমে মত্ত ॥১৫৮॥
+
 > tāṅra sthāne rūpa-gosāñi śunena bhāgavata
 > prabhura kṛpāya teṅho kṛṣṇa-preme matta
 

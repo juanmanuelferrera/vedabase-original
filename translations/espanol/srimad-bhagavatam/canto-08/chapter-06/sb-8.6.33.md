@@ -1,5 +1,8 @@
 ### SB 8.6.33
 
+> ततस्ते मन्दरगिरिमोजसोत्पाट्य दुर्मदाः
+> नदन्त उदधिं निन्युः शक्ताः परिघबाहवः ॥३३॥
+
 > tatas te mandara-girim
 > ojasotpāṭya durmadāḥ
 > nadanta udadhiṁ ninyuḥ

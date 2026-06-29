@@ -1,5 +1,8 @@
 ### CC Adi 10.129
 
+> নীলাচলে প্রভুসহ প্রথম মিলন ।
+> সেই ভক্তগণের এবে করিয়ে গণন ॥১২৯॥
+
 nīlācale prabhu-saha prathama milana
 
 sei bhakta-gaṇera ebe kariye gaṇana

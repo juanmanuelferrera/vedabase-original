@@ -1,5 +1,8 @@
 ### CC Madhya 8.177
 
+> মধ্য-বয়স, সখী-স্কন্ধে কর-ন্যাস ।
+> কৃষ্ণলীলা-মনোবৃত্তি-সখী আশপাশ ॥১৭৭॥
+
 > madhya-vayasa, sakhī-skandhe kara-nyāsa
 > kṛṣṇalīlā-manovṛtti-sakhī āśa-pāśa
 

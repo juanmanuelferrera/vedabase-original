@@ -1,5 +1,8 @@
 ### SB 3.1.25
 
+> स वासुदेवानुचरं प्रशान्तं बृहस्पतेः प्राक्तनयं प्रतीतम् ।
+> आलिङ्ग्य गाढं प्रणयेन भद्रं स्वानामपृच्छद्भगवत्प्रजानाम् ॥२५॥
+
 > sa vāsudevānucaraṁ praśāntaṁ
 > bṛhaspateḥ prāk tanayaṁ pratītam
 > āliṅgya gāḍhaṁ praṇayena bhadraṁ

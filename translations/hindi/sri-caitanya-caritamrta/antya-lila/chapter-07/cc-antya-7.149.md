@@ -1,5 +1,8 @@
 ### CC Antya 7.149
 
+> পণ্ডিতের সনে তার মন ফিরি’ গেল  ।
+> কিশোরগোপাল-উপাসনায় মন দিল ॥১৪৯॥
+
 > paṇḍitera sane tāra mana phiri' gela
 > kiśora-gopāla-upāsanāya mana dila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.264
 
+> দেখিয়া ব্যাধের মনে হৈল চমৎকার ।
+> ঘরে গেল ব্যাধ, গুরুকে করি’ নমস্কার ॥২৬৪॥
+
 > dekhiyā vyādhera mane haila camatkāra
 > ghare gela vyādha, guruke kari' namaskāra
 

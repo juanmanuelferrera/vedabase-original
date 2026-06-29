@@ -1,5 +1,8 @@
 ### CC Antya 11.6
 
+> জয় নিত্যানন্দচন্দ্র জয় চৈতন্যের প্রাণ ।
+> তোমার চরণারবিন্দে ভক্তি দেহ’ দান ॥৬॥
+
 > jaya nityānanda-candra jaya caitanyera prāṇa
 > tomāra caraṇāravinde bhakti deha' dāna
 

@@ -1,5 +1,8 @@
 ### CC Madhya 20.57
 
+> ভবদ্বিধা ভাগবতাস্তীর্থভূতাঃ স্বয়ং প্রভো ।
+> তীর্থীকুর্বন্তি তীর্থানি স্বান্তঃস্থেন গদাভৃতা ॥৫৭॥
+
 > bhavad-vidhā bhāgavatās
 > tīrtha-bhūtāḥ svayaṁ prabho
 > tīrthī-kurvanti tīrthāni

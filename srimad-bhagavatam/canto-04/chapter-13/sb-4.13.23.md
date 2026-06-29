@@ -1,5 +1,8 @@
 ### SB 4.13.23
 
+> नावध्येयः प्रजापालः प्रजाभिरघवानपि ।
+> यदसौ लोकपालानां बिभर्त्योजः स्वतेजसा ॥२३॥
+
 > nāvadhyeyaḥ prajā-pālaḥ
 > prajābhir aghavān api
 > yad asau loka-pālānāṁ

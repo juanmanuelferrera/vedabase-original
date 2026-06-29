@@ -1,5 +1,8 @@
 ### CC Antya 18.29
 
+> পড়িতেই হৈল মূর্চ্ছা, কিছুই না জানে ।
+> কভু ডুবায়, কভু ভাসায় তরঙ্গের গণে ॥২৯॥
+
 > paḍitei haila mūrcchā, kichui nā jāne
 > kabhu ḍubāya, kabhu bhāsāya taraṅgera gaṇe
 

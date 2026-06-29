@@ -1,5 +1,8 @@
 ### CC Antya 6.5
 
+> উৎকট বিরহ-দুঃখ যবে বাহিরায় ।
+> তবে যে বৈকল্য প্রভুর বর্ণন না যায় ॥৫॥
+
 > utkaṭa viraha-duḥkha yabe bāhirāya
 > tabe ye vaikalya prabhura varṇana nā yāya
 

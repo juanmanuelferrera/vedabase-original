@@ -1,5 +1,8 @@
 ### CC Madhya 9.265
 
+> সর্বধর্মান্ পরিত্যজ্য মামেকং শরণং ব্রজ ৷
+> অহং ত্বাং সর্বপাপেভ্যো মোক্ষয়িষ্যামি মা শুচঃ ৷৷ ২৬৫ ৷৷ ॥২৬৫॥
+
 > sarva-dharmān parityajya
 > mām ekaṁ śaraṇaṁ vraja
 > ahaṁ tvāṁ sarva-pāpebhyo

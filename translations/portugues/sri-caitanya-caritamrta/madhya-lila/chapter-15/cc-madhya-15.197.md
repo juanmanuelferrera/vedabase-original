@@ -1,5 +1,8 @@
 ### CC Madhya 15.197
 
+> বহুত সন্ন্যাসী যদি আইসে এক ঠাঞি ।
+> সম্মান করিতে নারি, অপরাধ পাই ॥১৯৭॥
+
 bahuta sannyāsī yadi āise eka ṭhāñi
 
 sammāna karite nāri, aparādha pāi

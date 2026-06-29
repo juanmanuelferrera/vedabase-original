@@ -1,5 +1,8 @@
 ### CC Antya 16.56
 
+> মহাপ্রভুর ইঙ্গিত গোবিন্দ সব জানে ।
+> কালিদাসেরে দিল প্রভুর শেষপাত্র-দানে ॥৫৬॥
+
 mahāprabhura iṅgita govinda saba jāne
 
 kālidāsere dila prabhura śeṣa-pātra-dāne

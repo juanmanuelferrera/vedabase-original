@@ -1,5 +1,10 @@
 ### CC Madhya 21.9
 
+> কো বেত্তি ভূমন্ ভগবন্ পরাত্মন্
+> যোগেশ্বরোতীর্ভবতস্ত্রিলোক্যাম্ ।
+> ক্ব বা কথং বা কতি বা কদেতি
+> বিস্তারয়ন্ ক্রীড়সি যোগমায়াম্ ॥৯॥
+
 ko vetti bhūman bhagavan parātman
 yogeśvarotīr bhavatas trilokyām
 kva vā kathaṁ vā kati vā kadeti

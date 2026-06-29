@@ -1,5 +1,8 @@
 ### CC Antya 12.39
 
+> বৈষ্ণবের সমাচার গোসাঞি পুছিলা ।
+> একে একে সবার নাম শ্রীকান্ত জানাইলা ॥৩৯॥
+
 > vaiṣṇavera samācāra gosāñi puchilā
 > eke eke sabāra nāma śrīkānta jānāilā
 

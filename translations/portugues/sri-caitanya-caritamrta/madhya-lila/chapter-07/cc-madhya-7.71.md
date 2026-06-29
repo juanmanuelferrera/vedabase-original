@@ -1,5 +1,8 @@
 ### CC Madhya 7.71
 
+> তাঁরে উপেক্ষিয়া কৈল শীঘ্র গমন ৷
+> কে বুঝিতে পারে মহাপ্রভুর চিত্ত-মন ৷৷ ৭১ ৷৷ ॥৭১॥
+
 tāṅre upekṣiyā kaila śīghra gamana
 
 ke bujhite pāre mahāprabhura citta-mana

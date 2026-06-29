@@ -1,5 +1,8 @@
 ### CC Adi 6.48
 
+> নিত্যানন্দ অবধূত সবাতে আগল ।
+> চৈতন্যের দাস্য-প্রেমে হইলা পাগল ॥৪৮॥
+
 > nityānanda avadhūta sabāte āgala
 > caitanyera dāsya-preme ha-ilā pāgala
 

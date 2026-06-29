@@ -1,5 +1,7 @@
 ### SB 5.2.3
 
+> तदुपलभ्य भगवानादिपुरुषः सदसि गायन्तीं पूर्वचित्तिं नामाप्सरसमभियापयामास ॥३॥
+
 > tad upalabhya bhagavān ādi-puruṣaḥ sadasi gāyantīṁ pūrvacittiṁ nāmāpsarasam abhiyāpayām āsa.
 
 *tat*—eso; *upalabhya*—comprendiendo; *bhagavān*—el muy poderoso; *ādi-puruṣaḥ*—el primer ser creado del universo; *sadasi*—en su corte; *gāyantīm*—a la bailarina; *pūrvacittim*—a Pūrvacitti; *nāma*—llamada; *apsarasam*—a la bailarina celestial; *abhiyāpayām āsa*—envió.

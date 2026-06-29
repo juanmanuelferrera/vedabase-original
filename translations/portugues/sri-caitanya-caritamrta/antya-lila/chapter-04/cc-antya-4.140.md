@@ -1,5 +1,8 @@
 ### CC Antya 4.140
 
+> হিত-নিমিত্ত আইলাঙ আমি, হৈল বিপরীতে ।
+> কি করিলে হিত হয় নারি নির্ধারিতে ।।” ॥ ১৪০ ॥
+
 hita-nimitta āilāṅa āmi, haila viparīte
 
 ki karile hita haya nāri nirdhārite"

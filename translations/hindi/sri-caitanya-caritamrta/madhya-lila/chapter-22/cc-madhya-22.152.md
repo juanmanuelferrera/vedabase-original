@@ -1,5 +1,8 @@
 ### CC Madhya 22.152
 
+> রাগময়ী-ভক্তির হয় ‘রাগাত্মিকা’ নাম ।
+> তাহা শুনি’ লুব্ধ হয় কোন ভাগ্যবান্ ॥১৫২॥
+
 > rāgamayī-bhaktira haya 'rāgātmikā' nāma
 > ta-hā śuni' lubdha haya kona bhāgyavān
 

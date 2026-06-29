@@ -1,5 +1,8 @@
 ### SB 8.11.12
 
+> प्राहरत्कुलिशं तस्मा अमोघं परमर्दनः
+> सयानो न्यपतद्भूमौ छिन्नपक्ष इवाचलः ॥१२॥
+
 > prāharat kuliśaṁ tasmā
 > amoghaṁ para-mardanaḥ
 > sayāno nyapatad bhūmau

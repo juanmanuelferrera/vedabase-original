@@ -1,5 +1,10 @@
 ### SB 7.9.21
 
+> माया मनः सृजति कर्ममयं बलीयः
+> कालेन चोदितगुणानुमतेन पुंसः
+> छन्दोमयं यदजयार्पितषोडशारं
+> संसारचक्रमज कोऽतितरेत्त्वदन्यः ॥२१॥
+
 > māyā manaḥ sṛjati karmamayaṁ balīyaḥ
 > kālena codita-guṇānumatena puṁsaḥ
 > chandomayaṁ yad ajayārpita-ṣoḍaśāraṁ

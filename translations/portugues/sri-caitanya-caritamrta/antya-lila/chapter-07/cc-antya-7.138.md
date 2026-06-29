@@ -1,5 +1,8 @@
 ### CC Antya 7.138
 
+> ভট্ট কহে, — “যদি মোরে হইলা প্রসন্ন ।
+> একদিন পুনঃ মোর মান’ নিমন্ত্রণ ।।” ॥ ১৩৮ ॥
+
 bhaṭṭa kahe,--"yadi more ha-ilā prasanna
 
 eka-dina punaḥ mora māna' nimantraṇa"

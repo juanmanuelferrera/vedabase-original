@@ -1,5 +1,8 @@
 ### CC Madhya 10.84
 
+> রাঘবপণ্ডিত, আর আচার্য নন্দন ।
+> কতেক কহিব আর যত প্রভুর গণ ॥৮৪॥
+
 > rāghava-paṇḍita, āra ācārya nandana
 > kateka kahiba āra yata prabhura gaṇa
 

@@ -1,5 +1,8 @@
 ### CC Antya 1.221
 
+> প্রভুর ভক্তগণ-পাশে বিদায় লইলা ।।
+> পুনরপি গৌড়-পথে বৃন্দাবনে আইলা ॥২২১॥
+
 > prabhura bhakta-gaṇa-pāśe vidāya la-ilā
 > punarapi gauḍa-pathe vṛndāvane āilā
 

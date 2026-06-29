@@ -1,5 +1,8 @@
 ### CC Antya 6.97
 
+> সেবক তাম্বূল লঞা করে সমর্পণ ।
+> হাসিয়া হাসিয়া প্রভু করয়ে চর্বণ ॥৯৭॥
+
 > sevaka tāmbūla lañā kare samarpaṇa
 > hāsiyā hāsiyā prabhu karaye carvaṇa
 

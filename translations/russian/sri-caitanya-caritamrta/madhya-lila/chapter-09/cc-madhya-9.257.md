@@ -1,5 +1,8 @@
 ### CC Madhya 9.257
 
+> ‘পঞ্চবিধ মুক্তি’ পাঞা বৈকুণ্ঠে গমন ।
+> ‘সাধ্য-শ্রেষ্ঠ’ হয়, — এই শাস্ত্র-নিরূপণ ॥২৫৭॥
+
 > 'pañca-vidha mukti' pāñā vaikuṇṭhe gamana
 > 'sādhya-śreṣṭha' haya,—ei śāstra-nirūpaṇa
 

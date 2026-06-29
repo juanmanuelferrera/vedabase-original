@@ -1,5 +1,7 @@
 ### SB 5.4.2
 
+> तस्य ह वा इत्थं वर्ष्मणा वरीयसा बृहच्छ्लोकेन चौजसा बलेन श्रिया यशसा वीर्यशौर्याभ्यांच पिता ऋषभ इतीदं नाम चकार ॥२॥
+
 > tasya ha vā itthaṁ varṣmaṇā varīyasā bṛhac-chlokena caujasā balena śriyā yaśasā vīrya-śauryābhyāṁ ca pitā ṛṣabha itīdaṁ nāma cakāra.
 
 *tasya*—de Él; *ha vā*—ciertamente; *ittham*—así; *varṣmaṇā*—por los rasgos corporales; *varīyasā*—muy excelso; *bṛhat-ślokena*—adornado con todas las cualidades elevadas que describen los poetas; *ca*—también; *ojasā*—con poder; *balena*—con fuerza; *śriyā*—con belleza; *yaśasā*—con fama; *vīrya-śauryābhyām*—con influencia y heroísmo; *ca*—y; *pitā*—el padre (Mahārāja Nābhi); *ṛṣabhaḥ*—el mejor; *iti*—así; *idam*—ese; *nāma*—nombre; *cakāra*—dio.

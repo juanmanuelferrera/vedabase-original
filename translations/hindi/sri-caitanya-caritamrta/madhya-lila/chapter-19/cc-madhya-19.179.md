@@ -1,5 +1,8 @@
 ### CC Madhya 19.179
 
+> যৈছে বীজ, ইক্ষু, রস, গুড়, খণ্ড-সার ।
+> শর্করা, সিতা, মিছরি, উত্তম-মিছরি আর ॥১৭৯॥
+
 > yaiche bīja, ikṣu, rasa, guḍa, khaṇḍa-sāra
 > śarkarā, sitā, michari, uttama-michari āra
 

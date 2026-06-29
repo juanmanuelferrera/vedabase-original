@@ -1,5 +1,8 @@
 ### CC Antya 7.117
 
+> জগতের হিত লাগি’ গৌর-অবতার ।
+> অন্তরের অভিমান জানেন তাহার ॥১১৭॥
+
 jagatera hita lāgi' gaura-avatāra
 
 antarera abhimāna jānena tāhāra

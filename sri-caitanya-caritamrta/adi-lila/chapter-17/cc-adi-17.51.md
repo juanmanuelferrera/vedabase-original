@@ -1,5 +1,8 @@
 ### CC Adi 17.51
 
+> আরে পাপি, ভক্তদ্বেষি, তোরে না উদ্ধারিমু ।
+> কোটিজন্ম এই মতে কীড়ায় খাওয়াইমু ॥৫১॥
+
 > āre pāpi, bhakta-dveṣi, tore na uddhārimu
 > koṭi-janma ei mate kīḍāya khāoyāimu
 

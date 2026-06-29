@@ -1,5 +1,8 @@
 ### CC Madhya 8.39
 
+> মহান্ত-স্বভাব এই তারিতে পামর ।
+> নিজ কার্য নাহি তবু যান তার ঘর ॥৩৯॥
+
 > mahānta-svabhāva ei tārite pāmara
 > nija kārya nāhi tabu yāna tāra ghara
 

@@ -1,5 +1,8 @@
 ### SB 6.5.32
 
+> एतावदुक्त्वा प्रययौ नारदोऽमोघदर्शनः
+> तेऽपि चान्वगमन्मार्गं भ्रातॄणामेव मारिष ॥३२॥
+
 > etāvad uktvā prayayau
 > nārado 'mogha-darśanaḥ
 > te 'pi cānvagaman mārgaṁ

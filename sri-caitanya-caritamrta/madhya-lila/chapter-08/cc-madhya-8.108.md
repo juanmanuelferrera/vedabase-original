@@ -1,5 +1,8 @@
 ### CC Madhya 8.108
 
+> এই দুই-শ্লোকের অর্থ বিচারিলে জানি ।
+> বিচারিতে উঠে যেন অমৃতের খনি ॥১০৮॥
+
 > ei dui-ślokera artha vicārile jāni
 > vicārite uṭhe yena amṛtera khani
 

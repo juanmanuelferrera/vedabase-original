@@ -1,5 +1,8 @@
 ### CC Adi 4.274
 
+> এই দুই শ্লোকের আমি যে করিল অর্থ ।
+> শ্রীরূপ-গোসাঞির শ্লোক প্রমাণ সমর্থ ॥২৭৪॥
+
 ei dui ślokera āmi ye karila artha
 
 śrī-rūpa-gosāñira śloka pramāṇa samartha

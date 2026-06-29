@@ -1,5 +1,8 @@
 ### CC Madhya 4.211
 
+> এই ত’ আখ্যানে কহিলা দোঁহার মহিমা ।
+> প্রভুর ভক্তবাৎসল্য, আর ভক্তপ্রেম-সীমা ॥২১১॥
+
 ei ta' ākhyāne kahilā doṅhāra mahimā
 prabhura bhakta-vātsalya, āra bhakta-prema-sīmā
 

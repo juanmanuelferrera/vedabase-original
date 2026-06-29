@@ -1,5 +1,8 @@
 ### SB 2.2.17
 
+> न यत्र कालोऽनिमिषां परः प्रभुः कुतो नु देवा जगतां य ईशिरे ।
+> न यत्र सत्त्वं न रजस्तमश्च न वै विकारो न महान्प्रधानम् ॥१७॥
+
 > na yatra kālo 'nimiṣāṁ paraḥ prabhuḥ
 > kuto nu devā jagatāṁ ya īśire
 > na yatra sattvaṁ na rajas tamaś ca

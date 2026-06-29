@@ -1,5 +1,8 @@
 ### CC Madhya 18.180
 
+> ভট্টাচার্য আসি’ প্রভুরে ধরি’ বসাইল ।
+> ম্লেচ্ছগণ দেখি’ মহাপ্রভুর ‘বাহ্য’ হৈল ॥১৮০॥
+
 bhaṭṭācārya āsi' prabhure dhari' vasāila
 
 mleccha-gaṇa dekhi' mahāprabhura 'bāhya' haila

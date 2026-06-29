@@ -1,5 +1,7 @@
 ### SB 5.1.31
 
+> ये वा उ ह तद्रथचरणनेमिकृतपरिखातास्ते सप्त सिन्धव आसन्यत एव कृताः सप्त भुवोद्वीपाः ॥३१॥
+
 > ye vā u ha tad-ratha-caraṇa-nemi-kṛta-parikhātās te sapta sindhava āsan yata eva kṛtāḥ sapta bhuvo dvīpāḥ.
 
 *ye*—that; *vā u ha*—certainly; *tat-ratha*—of his chariot; *caraṇa*—of the wheels; *nemi*—by the rims; *kṛta*—made; *parikhātāḥ*—trenches; *te*—those; *sapta*—seven; *sindhavaḥ*—oceans; *āsan*—became; *yataḥ*—because of which; *eva*—certainly; *kṛtāḥ*—were made; *sapta*—seven; *bhuvaḥ*—of the Bhū-maṇḍala; *dvīpāḥ*—islands.

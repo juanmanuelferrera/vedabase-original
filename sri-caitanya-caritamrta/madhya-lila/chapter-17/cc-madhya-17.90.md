@@ -1,5 +1,8 @@
 ### CC Madhya 17.90
 
+> ভিক্ষা করি’ মহাপ্রভু করিলা শয়ন ।
+> মিশ্রপুত্র রঘু করে পাদ-সম্বাহন ॥৯০॥
+
 > bhikṣā kari' mahāprabhu karilā śayana
 > miśra-putra raghu kare pāda-samvāhana
 

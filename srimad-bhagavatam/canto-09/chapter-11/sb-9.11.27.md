@@ -1,5 +1,8 @@
 ### SB 9.11.27
 
+> प्रासादगोपुरसभा चैत्यदेवगृहादिषु
+> विन्यस्तहेमकलशैः पताकाभिश्च मण्डिताम ॥२७॥
+
 > prāsāda-gopura-sabhā-
 > caitya-deva-gṛhādiṣu
 > vinyasta-hema-kalaśaiḥ

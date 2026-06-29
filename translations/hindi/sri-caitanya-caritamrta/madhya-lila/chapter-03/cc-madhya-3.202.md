@@ -1,5 +1,8 @@
 ### CC Madhya 3.202
 
+> আনন্দিত হঞা শচী করেন রন্ধন ।
+> সুখে ভোজন করে প্রভু লঞা ভক্তগণ ॥২০২॥
+
 > ānandita hañā śacī karena randhana
 > sukhe bhojana kare prabhu lañā bhakta-gaṇa
 

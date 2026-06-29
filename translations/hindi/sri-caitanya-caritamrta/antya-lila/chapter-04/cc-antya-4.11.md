@@ -1,5 +1,8 @@
 ### CC Antya 4.11
 
+> জগন্নাথ রথযাত্রায় হইবেন বাহির ।
+> তাঁর রথ-চাকায় ছাড়িমু এই শরীর ॥১১॥
+
 > jagannātha ratha-yātrāya ha-ibena bāhira
 > tāṅra ratha-cākāya chāḍimu ei śarīra
 

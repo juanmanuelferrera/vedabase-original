@@ -1,5 +1,8 @@
 ### CC Antya 11.9
 
+> জয় রূপ, সনাতন, জীব, রঘুনাথ ।
+> রঘুনাথ, গোপাল, — ছয় মোর নাথ ॥৯॥
+
 > jaya rūpa, sanātana, jīva, raghunātha
 > raghunātha, gopāla,--chaya mora nātha
 

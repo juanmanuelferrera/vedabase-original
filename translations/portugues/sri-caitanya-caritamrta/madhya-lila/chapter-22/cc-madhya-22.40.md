@@ -1,5 +1,10 @@
 ### CC Madhya 22.40
 
+> সত্যং দিশত্যর্থিতমর্থিতো নৃণাং
+> নৈবার্থদো যৎ পুনরর্থিতা যতঃ ।
+> স্বয়ং বিধত্তে ভজতামনিচ্ছতা-
+> মিচ্ছাপিধানং নিজপাদপল্লবম্ ॥৪০॥
+
 satyaṁ diśaty arthitam arthito nṛṇāṁ
 naivārthado yat punar arthitā yataḥ
 svayaṁ vidhatte bhajatām anicchatām

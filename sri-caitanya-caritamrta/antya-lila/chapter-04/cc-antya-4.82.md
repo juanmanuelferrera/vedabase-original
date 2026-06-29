@@ -1,5 +1,8 @@
 ### CC Antya 4.82
 
+> মাতার আজ্ঞায় আমি বসি নীলাচলে ।
+> তাহাঁ ‘ধর্ম’ শিখাইতে নাহি নিজ-বলে ॥৮২॥
+
 > mātāra ājñāya āmi vasi nīlācale
 > tāhāṅ 'dharma' śikhāite nāhi nija-bale
 

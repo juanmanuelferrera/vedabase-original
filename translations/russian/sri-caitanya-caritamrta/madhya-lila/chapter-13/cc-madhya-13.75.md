@@ -1,5 +1,8 @@
 ### CC Madhya 13.75
 
+> এই দশ জন প্ৰভুর সঙ্গে গায়, ধায় ।
+> আর সব সম্প্রদায় চারি দিকে গায় ॥৭৫॥
+
 > ei daśa jana prabhura saṅge gāya, dhāya
 > āra saba sampradāya cāri dike gāya
 

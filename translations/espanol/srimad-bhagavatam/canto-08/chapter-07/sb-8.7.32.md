@@ -1,5 +1,8 @@
 ### SB 8.7.32
 
+> न ते गिरित्राखिललोकपाल विरिञ्चवैकुण्ठसुरेन्द्रगम्यम
+> ज्योतिः परं यत्र रजस्तमश्च सत्त्वं न यद्ब्रह्म निरस्तभेदम ॥३२॥
+
 > kāmādhvara-tripura-kālagarādy-aneka-
 > bhūta-druhaḥ kṣapayataḥ stutaye na tat te
 > yas tv anta-kāla idam ātma-kṛtaṁ sva-netra-

@@ -1,5 +1,8 @@
 ### CC Antya 14.116
 
+> লজ্জিত হইলা প্রভু পুরীর বচনে ।
+> সমুদ্রঘাট আইলা সব বৈষ্ণব-সনে ॥১১৬॥
+
 > lajjita ha-ilā prabhu purīra vacane
 > samudra-ghāṭa āilā saba vaiṣṇava-sane
 

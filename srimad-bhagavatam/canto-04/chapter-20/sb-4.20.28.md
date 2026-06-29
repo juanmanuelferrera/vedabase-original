@@ -1,5 +1,8 @@
 ### SB 4.20.28
 
+> जगज्जनन्यां जगदीश वैशसं स्यादेव यत्कर्मणि नः समीहितम् ।
+> करोषि फल्ग्वप्युरु दीनवत्सलः स्व एव धिष्ण्येऽभिरतस्य किं तया ॥२८॥
+
 > jagaj-jananyāṁ jagad-īśa vaiśasaṁ
 > syād eva yat-karmaṇi naḥ samīhitam
 > karoṣi phalgv apy uru dīna-vatsalaḥ

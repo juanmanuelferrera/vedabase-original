@@ -1,5 +1,8 @@
 ### SB 9.18.16
 
+> आत्मवृत्तमविज्ञआय कत्थसे बहु भिक्षुकि
+> किं न प्रतीक्षसेऽस्माकं गृहान्बलिभुजो यथा ॥१६॥
+
 > ātma-vṛttam avijñāya
 > katthase bahu bhikṣuki
 > kiṁ na pratīkṣase 'smākaṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 4.22
 
+> প্রেমে মত্ত, — নাহি তাঁর রাত্রিদিন-জ্ঞান ।
+> ক্ষণে উঠে, ক্ষণে পড়ে, নাহি স্থানাস্থান ॥২২॥
+
 > preme matta,--nāhi tāṅra rātri-dina-jñāna
 > kṣaṇe uṭhe, kṣaṇe paḍe, nāhi sthānāsthāna
 

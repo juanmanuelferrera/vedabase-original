@@ -1,5 +1,8 @@
 ### CC Adi 14.23
 
+> তবে কত দিনে কৈল পদ-চংক্রমণ ।
+> শিশুগণে মিলি’ কৈল বিবিধ খেলন ॥২৩॥
+
 > tabe kata dine kaila pada-caṅkramaṇa
 > śiśu-gaṇe mili' kaila vividha khelana
 

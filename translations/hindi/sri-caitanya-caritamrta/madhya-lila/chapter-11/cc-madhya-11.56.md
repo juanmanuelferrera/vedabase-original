@@ -1,5 +1,8 @@
 ### CC Madhya 11.56
 
+> ‘কৃষ্ণ-রাসপঞ্চাধ্যায়’ করিতে পঠন ।
+> একলে যাই’ মহাপ্রভুর ধরিবে চরণ ॥৫৬॥
+
 > 'kṛṣṇa-rāsa-pañcādhyāya' karite paṭhana
 > ekale yāi' mahāprabhura dharibe caraṇa
 

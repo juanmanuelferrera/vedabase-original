@@ -1,5 +1,8 @@
 ### CC Antya 2.168
 
+> আপন কারুণ্য, লোকে বৈরাগ্য-শিক্ষণ ।
+> স্বভক্তের গাঢ়-অনুরাগ-প্রকটীকরণ ॥১৬৮॥
+
 āpana kāruṇya, loke vairāgya-śikṣaṇa
 
 sva-bhaktera gāḍha-anurāga-prakaṭī-karaṇa

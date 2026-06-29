@@ -1,5 +1,8 @@
 ### SB 5.6.1
 
+> राजोवाच
+> न नूनं भगव आत्मारामाणां योगसमीरितज्ञआनावभर्जितकर्मबीजानामैश्वर्याणि पुनःक्लेशदानि भवितुमर्हन्ति यदृच्छयोपगतानि ॥१॥
+
 > rājovāca
 > na nūnaṁ bhagava ātmārāmāṇāṁ yoga-samīrita-jñānāvabharjita-karma-bījānām aiśvaryāṇi punaḥ kleśadāni bhavitum arhanti yadṛc-chayopagatāni.
 

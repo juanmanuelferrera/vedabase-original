@@ -1,5 +1,8 @@
 ### SB 1.19.7
 
+> इति व्यवच्छिद्य स पाण्डवेयः प्रायोपवेशं प्रति विष्णुपद्याम् ।
+> दधौ मुकुन्दाङ्घ्रिमनन्यभावो मुनिव्रतो मुक्तसमस्तसङ्गः ॥७॥
+
 > iti vyavacchidya sa pāṇḍaveyaḥ
 > prāyopaveśaṁ prati viṣṇu-padyām
 > dadhau mukundāṅghrim ananya-bhāvo

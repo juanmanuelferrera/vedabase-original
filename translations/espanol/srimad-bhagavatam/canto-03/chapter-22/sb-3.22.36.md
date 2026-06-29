@@ -1,5 +1,8 @@
 ### SB 3.22.36
 
+> स एवं स्वान्तरं निन्ये युगानामेकसप्ततिम् ।
+> वासुदेवप्रसङ्गेन परिभूतगतित्रयः ॥३६॥
+
 > sa evaṁ svāntaraṁ ninye
 > yugānām eka-saptatim
 > vāsudeva-prasaṅgena

@@ -1,5 +1,8 @@
 ### CC Madhya 4.24
 
+> গোপাল-বালক এক দুগ্ধ-ভাণ্ড লঞা ।
+> আসি’ আগে ধরি’ কিছু বলিল হাসিয়া ॥২৪॥
+
 > gopāla-bālaka eka dugdha-bhāṇḍa lañā
 > āsi' āge dhari' kichu balila hāsiyā
 

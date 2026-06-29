@@ -1,5 +1,8 @@
 ### CC Antya 3.89
 
+> এত শুনি’ প্রভুর মনে চমৎকার হৈল ।
+> ‘মোর গূঢ়লীলা হরিদাস কেমনে জানিল ?’ ॥ ৮৯ ॥
+
 > eta śuni' prabhura mane camatkāra haila
 > 'mora gūḍha-līlā haridāsa kemane jānila?'
 

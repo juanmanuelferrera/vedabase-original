@@ -1,5 +1,8 @@
 ### CC Adi 4.53
 
+> ভাবগ্রহণের হেতু কৈল ধর্ম স্থাপন ।
+> তার মুখ্য হেতু কহি, শুন সর্বজন ॥৫৩॥
+
 bhāva-grahaṇera hetu kaila dharma-sthāpana
 tāra mukhya hetu kahi, śuna sarva-jana
 

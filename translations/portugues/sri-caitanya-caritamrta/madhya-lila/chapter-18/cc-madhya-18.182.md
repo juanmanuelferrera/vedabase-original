@@ -1,5 +1,8 @@
 ### CC Madhya 18.182
 
+> এই চারি মিলি’ তোমায় ধুতুরা খাওয়াঞা ।
+> তোমার ধন লৈল তোমায় পাগল করিয়া ॥১৮২॥
+
 ei cāri mili' tomāya dhuturā khāoyāñā
 
 tomāra dhana laila tomāya pāgala kariyā

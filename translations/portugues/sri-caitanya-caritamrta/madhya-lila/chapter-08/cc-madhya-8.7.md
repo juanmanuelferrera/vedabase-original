@@ -1,5 +1,8 @@
 ### CC Madhya 8.7
 
+> এইমত নানা শ্লোক পড়ি’ স্তুতি কৈল ৷
+> নৃসিংহ-সেবক মালা-প্রসাদ আনি’ দিল ৷৷ ৭ ৷৷ ॥৭॥
+
 ei-mata nānā śloka paḍi' stuti kaila
 nṛsiṁha-sevaka mālā-prasāda āni' dila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 17.98
 
+> শুনি, — ‘মহাপ্রভু’ যাবেন শ্রীবৃন্দাবনে ।
+> দিন কত রহি’ তার’ ভৃত্য দুইজনে” ॥ ৯৮ ॥
+
 śuni,--'mahāprabhu' yābena śrī-vṛndāvane
 
 dina kata rahi' tāra' bhṛtya dui-jane"

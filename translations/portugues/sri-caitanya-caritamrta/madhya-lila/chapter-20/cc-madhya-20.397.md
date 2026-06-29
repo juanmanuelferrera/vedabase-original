@@ -1,5 +1,8 @@
 ### CC Madhya 20.397
 
+> অতএব গোলোকস্থানে নিত্য বিহার ।
+> ব্রহ্মাণ্ডগণে ক্রমে প্রাকট্য তাহার ॥৩৯৭॥
+
 ataeva goloka-sthāne nitya vihāra
 
 brahmāṇḍa-gaṇe krame prākaṭya tāhāra

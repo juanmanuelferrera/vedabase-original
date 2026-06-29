@@ -1,5 +1,8 @@
 ### CC Madhya 4.107
 
+> মলয়জ আন, যাঞা নীলাচল হৈতে ।
+> অন্যে হৈতে নহে, তুমি চলহ ত্বরিতে ॥১০৭॥
+
 > malayaja āna, yāñā nīlācala haite
 > anye haite nahe, tumi calaha tvarite
 

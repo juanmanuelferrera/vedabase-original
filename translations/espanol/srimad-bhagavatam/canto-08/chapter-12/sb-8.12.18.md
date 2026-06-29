@@ -1,5 +1,8 @@
 ### SB 8.12.18
 
+> ततो ददर्शोपवने वरस्त्रियं विचित्रपुष्पारुणपल्लवद्रुमे
+> विक्रीडतीं कन्दुकलीलया लसद्दुकूलपर्यस्तनितम्बमेखलाम ॥१८॥
+
 > tato dadarśopavane vara-striyaṁ
 > vicitra-puṣpāruṇa-pallava-drume
 > vikrīḍatīṁ kanduka-līlayā lasad-

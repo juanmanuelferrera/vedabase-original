@@ -1,5 +1,8 @@
 ### CC Adi 11.58
 
+> এই সর্বশাখা পূর্ণ — পক্ব প্রেমফলে ।
+> যারে দেখে, তারে দিয়া ভাসাইল সকলে ॥৫৮॥
+
 > ei sarva-śākhā pūrṇa—pakva prema-phale
 > yāre dekhe, tāre diyā bhāsāila sakale
 

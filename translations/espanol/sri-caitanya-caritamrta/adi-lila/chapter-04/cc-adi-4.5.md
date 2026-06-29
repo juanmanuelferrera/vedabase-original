@@ -1,5 +1,8 @@
 ### CC Adi 4.5
 
+> চতুর্থ শ্লোকের অর্থ এই কৈল সার ।
+> প্রেম-নাম প্রচারিতে এই অবতার ॥৫॥
+
 > caturtha ślokera artha ei kaila sāra
 > prema-nāma pracārite ei avatāra
 

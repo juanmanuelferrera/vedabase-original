@@ -1,5 +1,8 @@
 ### CC Madhya 3.200
 
+> আনন্দিত হৈল আচার্য, শচী, ভক্ত, সব ।
+> প্রতিদিন করে আচার্য মহা-মহোৎসব ॥২০০॥
+
 ānandita haila ācārya, śacī, bhakta, saba
 prati-dina kare ācārya mahā-mahotsava
 

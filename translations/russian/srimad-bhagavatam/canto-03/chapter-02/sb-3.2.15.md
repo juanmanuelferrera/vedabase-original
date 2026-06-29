@@ -1,5 +1,8 @@
 ### SB 3.2.15
 
+> स्वशान्तरूपेष्वितरैः स्वरूपैरभ्यर्द्यमानेष्वनुकम्पितात्मा ।
+> परावरेशो महदंशयुक्तो ह्यजोऽपि जातो भगवान्यथाग्निः ॥१५॥
+
 > sva-śānta-rūpeṣv itaraiḥ sva-rūpair
 > abhyardyamāneṣv anukampitātmā
 > parāvareśo mahad-aṁśa-yukto

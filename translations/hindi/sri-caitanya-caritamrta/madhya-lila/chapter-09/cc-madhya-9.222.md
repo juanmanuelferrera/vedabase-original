@@ -1,5 +1,8 @@
 ### CC Madhya 9.222
 
+> চাম্তাপুরে আসি’ দেখি’ শ্রীরাম-লক্ষ্মণ ।
+> শ্রীবৈকুণ্ঠে আসি’ কৈল বিষ্ণু দরশন ॥২২২॥
+
 > cāmtāpure āsi' dekhi' śrī-rāma-lakṣmaṇa
 > śrī-vaikuṇṭhe āsi' kaila viṣṇu daraśana
 

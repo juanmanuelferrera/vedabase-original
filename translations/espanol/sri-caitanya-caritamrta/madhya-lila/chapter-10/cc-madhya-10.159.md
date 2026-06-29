@@ -1,5 +1,8 @@
 ### CC Madhya 10.159
 
+> ভাল কহেন, — চর্মাম্বর দম্ভ লাগি’ পরি ৷
+> চর্মাম্বর-পরিধানে সংসার না তরি ৷৷ ১৫৯ ৷৷ ॥১৫৯॥
+
 > bhāla kahena,--carmāmbara dambha lāgi' pari
 > carmāmbara-paridhāne saṁsāra nā tari
 

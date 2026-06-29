@@ -1,5 +1,8 @@
 ### CC Antya 9.69
 
+> তোমার ভজন-ফলে তোমাতে ‘প্রেমধন’ ।
+> বিষয় লাগি’ তোমায় ভজে, সেই মূর্খ জন ॥৬৯॥
+
 tomāra bhajana-phale tomāte 'prema-dhana'
 
 viṣaya lāgi' tomāya bhaje, sei mūrkha jana

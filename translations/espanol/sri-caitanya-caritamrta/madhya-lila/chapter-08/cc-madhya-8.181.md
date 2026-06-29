@@ -1,5 +1,8 @@
 ### CC Madhya 8.181
 
+> কৃষ্ণের বিশুদ্ধপ্রেম-রত্নের আকর ৷
+> অনুপম-গুণগণ-পূর্ণ কলেবর ৷৷ ১৮১ ৷৷ ॥১৮১॥
+
 > kṛṣṇera viśuddha-prema-ratnera ākara
 > anupama-guṇagaṇa-pūrṇa kalevara
 

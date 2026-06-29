@@ -1,5 +1,8 @@
 ### CC Antya 7.49
 
+> নামের মহিমা আমি তাঁর ঠাঞি শিখিলুঁ ।
+> তাঁর প্রসাদে নামের মহিমা জানিলুঁ ॥৪৯॥
+
 > nāmera mahimā āmi tāṅra ṭhāñi śikhiluṅ
 > tāṅra prasāde nāmera mahimā jāniluṅ
 

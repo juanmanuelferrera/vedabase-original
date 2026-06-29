@@ -1,5 +1,8 @@
 ### CC Antya 9.146
 
+> সবায় আলিঙ্গিয়া প্রভু বিদায় যবে দিলা ।
+> হরিধ্বনি করি’ সব ভক্ত উঠি’ গেলা ॥১৪৬॥
+
 sabāya āliṅgiyā prabhu vidāya yabe dilā
 
 hari-dhvani kari' saba bhakta uṭhi' gelā

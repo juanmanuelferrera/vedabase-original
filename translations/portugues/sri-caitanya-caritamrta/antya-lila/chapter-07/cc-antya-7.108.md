@@ -1,5 +1,8 @@
 ### CC Antya 7.108
 
+> অতএব নাম লয়, নামের ‘ফল’ পায় ।
+> নামের ফলে কৃষ্ণপদে ‘প্রেম’ উপজায় ।।” ॥ ১০৮ ॥
+
 ataeva nāma laya, nāmera 'phala' pāya
 
 nāmera phale kṛṣṇa-pade 'prema' upajāya"

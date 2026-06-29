@@ -1,5 +1,8 @@
 ### CC Madhya 9.308
 
+> সৌন্দর্য-মাধুর্য-কৃষ্ণলীলার অবধি ।
+> সেই জানে, যে ‘কর্ণামৃত’ পড়ে নিরবধি ॥৩০৮॥
+
 > saundarya-mādhurya-kṛṣṇa-līlāra avadhi
 > sei jāne, ye 'karṇāmṛta' paḍe niravadhi
 

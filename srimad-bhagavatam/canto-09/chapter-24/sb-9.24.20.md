@@ -1,5 +1,8 @@
 ### SB 9.24.20
 
+> कपोतरोमा तस्यानुः सखा यस्य च तुम्बुरुः
+> अन्धकाद्दुन्दुभिस्तस्मादविद्योतः पुनर्वसुः ॥२०॥
+
 > kapotaromā tasyānuḥ
 > sakhā yasya ca tumburuḥ
 > andhakād dundubhis tasmād

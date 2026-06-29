@@ -1,5 +1,8 @@
 ### SB 3.13.32
 
+> जघान रुन्धानमसह्यविक्रमं स लीलयेभं मृगराडिवाम्भसि ।
+> तद्रक्तपङ्काङ्कितगण्डतुण्डो यथा गजेन्द्रो जगतीं विभिन्दन् ॥३२॥
+
 > jaghāna rundhānam asahya-vikramaṁ
 > sa līlayebhaṁ mṛgarāḍ ivāmbhasi
 > tad-rakta-paṅkāṅkita-gaṇḍa-tuṇḍo

@@ -1,5 +1,8 @@
 ### SB 1.11.30
 
+> अथाविशत्स्वभवनं सर्वकाममनुत्तमम् ।
+> प्रासादा यत्र पत्नीनां सहस्राणि च षोडश ॥३०॥
+
 > athāviśat sva-bhavanaṁ
 > sarva-kāmam anuttamam
 > prāsādā yatra patnīnāṁ

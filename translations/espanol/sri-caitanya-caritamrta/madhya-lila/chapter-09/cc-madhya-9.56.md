@@ -1,5 +1,8 @@
 ### CC Madhya 9.56
 
+> তেরছে পড়িল থালি, — মাথা কাটি’ গেল ৷
+> মূর্চ্ছিত হঞা আচার্য ভূমিতে পড়িল ৷৷ ৫৬ ৷৷ ॥৫৬॥
+
 > terache paḍila thāli,--māthā kāṭi' gela
 > mūrcchita hañā ācārya bhūmite paḍila
 

@@ -1,5 +1,8 @@
 ### SB 2.2.20
 
+> नाभ्यां स्थितं हृद्यधिरोप्य तस्मादुदानगत्योरसि तं नयेन्मुनिः ।
+> ततोऽनुसन्धाय धिया मनस्वी स्वतालुमूलं शनकैर्नयेत ॥२०॥
+
 nābhyāṁ sthitaṁ hṛdy adhiropya tasmād
 udāna-gatyorasi taṁ nayen muniḥ
 tato 'nusandhāya dhiyā manasvī

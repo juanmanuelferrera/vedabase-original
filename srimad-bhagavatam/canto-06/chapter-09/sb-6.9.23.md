@@ -1,5 +1,8 @@
 ### SB 6.9.23
 
+> यस्योरुशृङ्गे जगतीं स्वनावं मनुर्यथाबध्य ततार दुर्गम
+> स एव नस्त्वाष्ट्रभयाद्दुरन्तात्त्राताश्रितान्वारिचरोऽपि नूनम ॥२३॥
+
 > yasyoru-śṛṅge jagatīṁ sva-nāvaṁ
 > manur yathābadhya tatāra durgam
 > sa eva nas tvāṣṭra-bhayād durantāt

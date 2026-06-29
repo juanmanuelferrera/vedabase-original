@@ -1,3 +1,13 @@
+> kaumāra ācaret prājño
+> dharmān bhāgavatān iha
+> durlabhaṁ mānuṣaṁ janma
+> tad apy adhruvam arthadam
+> [[sb/7/6/1|(SB 7.6.1)]]
+> tad-vāg-visargo janatāgha-viplavo
+> yasmin prati-ślokam abaddhavaty api
+> nāmāny anantasya yaśo 'ṅkitāni yac
+> chṛṇvanti gāyanti gṛṇanti sādhavaḥ
+
 Prefacio
 
 Debemos conocer la necesidad actual de la sociedad humana. ¿Y cuál es esa necesidad? La sociedad humana ya no está limitada por fronteras geográficas a determinados países o comunidades. La sociedad humana es más amplia que en la Edad Media, y la tendencia mundial se orienta hacia un solo Estado o una sola sociedad humana. Los ideales del comunismo espiritual, según el *Śrīmad-Bhāgavatam*, se basan más o menos en la unidad de toda la sociedad humana, más aún, de toda la energía de los seres vivos. Los grandes pensadores sienten la necesidad de convertir esto en una ideología fructífera. El *Śrīmad-Bhāgavatam* satisfará esta necesidad de la sociedad humana. Por eso comienza con el aforismo de la filosofía Vedānta *janmādy asya yataḥ* [[sb/1/1/1|[SB 1.1.1] ]], a fin de establecer el ideal de una causa común.

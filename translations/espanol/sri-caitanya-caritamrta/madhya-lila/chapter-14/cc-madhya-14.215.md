@@ -1,5 +1,8 @@
 ### CC Madhya 14.215
 
+> নারদ-প্রকৃতি শ্রীবাস করে পরিহাস ।
+> শুনি’ হাসে মহাপ্রভুর যত নিজ-দাস ॥২১৫॥
+
 > nārada-prakṛti śrīvāsa kare parihāsa
 > śuni' hāse mahāprabhura yata nija-dāsa
 

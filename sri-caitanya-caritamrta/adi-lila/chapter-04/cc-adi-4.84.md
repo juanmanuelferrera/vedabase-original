@@ -1,5 +1,8 @@
 ### CC Adi 4.84
 
+> ‘দেবী’ কহি দ্যোতমানা, পরমা সুন্দরী ।
+> কিম্বা, কৃষ্ণপূজা-ক্রীড়ার বসতি নগরী ॥৮৪॥
+
 > 'devī' kahi dyotamānā, paramā sundarī
 > kimvā, kṛṣṇa-pūjā-krīḍāra vasati nagarī
 

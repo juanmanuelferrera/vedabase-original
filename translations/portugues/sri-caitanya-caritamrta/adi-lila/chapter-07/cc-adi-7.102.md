@@ -1,5 +1,8 @@
 ### CC Adi 7.102
 
+> এত শুনি’ হাসি’ প্রভু বলিলা বচন ।
+> দুঃখ না মানহ যদি, করি নিবেদন ॥১০২॥
+
 eta śuni' hāsi' prabhu balilā vacana
 
 duḥkha nā mānaha yadi, kari nivedana

@@ -1,5 +1,8 @@
 ### CC Madhya 12.143
 
+> আচার্য-গোসাঞির পুত্র শ্রীগোপাল-নাম ।
+> নৃত্য করিতে তাঁরে আজ্ঞা দিল গৌরধাম ॥১৪৩॥
+
 > ācārya-gosāñira putra śrī-gopāla-nāma
 > nṛtya karite tāṅre ājñā dila gauradhāma
 

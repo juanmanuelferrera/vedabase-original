@@ -1,5 +1,8 @@
 ### CC Madhya 9.252
 
+> ‘বৈষ্ণবতা’ সবার অন্তরে গর্ব জানি’ ।
+> ঈষত্ হাসিয়া কিছু কহে গৌরমণি ॥২৫২॥
+
 > 'vaiṣṇavatā' sabāra antare garva jāni'
 > īṣat hāsiyā kichu kahe gauramaṇi
 

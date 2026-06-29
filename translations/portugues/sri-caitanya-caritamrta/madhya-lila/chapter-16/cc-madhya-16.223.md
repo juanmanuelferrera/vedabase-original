@@ -1,5 +1,8 @@
 ### CC Madhya 16.223
 
+> সন্ন্যাস করি’ প্রভু যবে শান্তিপুর আইলা ।
+> তবে আসি’ রঘুনাথ প্রভুরে মিলিলা ॥২২৩॥
+
 sannyāsa kari' prabhu yabe śāntipura āilā
 
 tabe āsi' raghunātha prabhure mililā

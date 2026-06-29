@@ -1,5 +1,8 @@
 ### CC Adi 2.47
 
+> কৃষ্ণ কহেন — ব্রহ্মা, তোমার না বুঝি বচন ।
+> জীব-হৃদি, জলে বৈসে সেই নারায়ণ ॥৪৭॥
+
 > kṛṣṇa kahena—brahmā, tomāra nā bujhi vacana
 > jīva-hṛdi, jale vaise sei nārāyaṇa
 

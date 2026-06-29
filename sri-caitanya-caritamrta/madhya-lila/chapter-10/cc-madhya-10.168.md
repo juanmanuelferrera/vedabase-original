@@ -1,5 +1,8 @@
 ### CC Madhya 10.168
 
+> ‘ব্যাপ্য’ ‘ব্যাপক’-ভাবে ‘জীব’-‘ব্রহ্মে’ জানি ।
+> জীব — ব্যাপ্য, ব্রহ্ম — ব্যাপক, শাস্ত্রেতে বাখানি ॥১৬৮॥
+
 > 'vyāpya' 'vyāpaka'-bhāve 'jīva'-'brahme' jāni
 > jīva-vyāpya, brahma-vyāpaka, śāstrete vākhāni
 

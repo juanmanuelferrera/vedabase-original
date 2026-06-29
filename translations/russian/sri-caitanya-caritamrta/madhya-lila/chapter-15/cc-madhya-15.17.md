@@ -1,5 +1,8 @@
 ### CC Madhya 15.17
 
+> কৃষ্ণজন্মযাত্রা-দিনে নন্দ-মহোত্সব  ।
+> গোপবেশ হৈলা প্রভু লঞা ভক্ত সব ॥১৭॥
+
 > kṛṣṇa-janma-yātrā-dine nanda-mahotsava
 > gopa-veśa hailā prabhu lañā bhakta saba
 

@@ -1,5 +1,8 @@
 ### CC Antya 4.39
 
+> সব রাত্রি ক্রন্দন করি’ কৈল জাগরণ  ।
+> প্রাতঃকালে আমা-দুঁহায় কৈল নিবেদন ॥৩৯॥
+
 saba rātri krandana kari' kaila jāgaraṇa
 
 prātaḥ-kāle āmā-duṅhāya kaila nivedana

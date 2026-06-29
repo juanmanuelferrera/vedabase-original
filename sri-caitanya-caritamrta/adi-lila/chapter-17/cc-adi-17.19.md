@@ -1,5 +1,8 @@
 ### CC Adi 17.19
 
+> বরাহ-আবেশ হৈলা মুরারি-ভবনে ।
+> তাঁর স্কন্ধে চড়ি’ প্রভু নাচিলা অঙ্গনে ॥১৯॥
+
 > varāha-āveśa hailā murāri-bhavane
 > tāṅra skandhe caḍi' prabhu nācilā aṅgane
 

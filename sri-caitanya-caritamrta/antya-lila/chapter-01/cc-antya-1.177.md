@@ -1,5 +1,10 @@
 ### CC Antya 1.177
 
+> নিজপ্রণয়িতাং সুধামুদয়মাপ্নুবন্ যঃ ক্ষিতৌ
+> কিরত্যলমুরীকৃতদ্বিজকুলাধিরাজস্থিতিঃ ।
+> স লুঞ্চিত-তমস্ততির্মম শচীসুতাখ্যঃ শশী
+> বশীকৃতজগন্মনাঃ কিমপি শর্ম বিন্যস্যতু ॥১৭৭॥
+
 > nija-praṇayitāṁ sudhām udayam āpnuvan yaḥ kṣitau
 > kiraty alam urīkṛta-dvija-kulādhirāja-sthitiḥ
 > sa luñcita-tamas-tatir mama śacī-sutākhyaḥ śaśī

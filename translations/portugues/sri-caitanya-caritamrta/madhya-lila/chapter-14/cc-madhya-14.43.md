@@ -1,5 +1,8 @@
 ### CC Madhya 14.43
 
+> ভোজন করি’ বসিলা প্রভু করি’ আচমন ।
+> প্রসাদ উবরিল, খায় সহস্রেক জন ॥৪৩॥
+
 bhojana kari' vasilā prabhu kari' ācamana
 
 prasāda ubarila, khāya sahasreka jana

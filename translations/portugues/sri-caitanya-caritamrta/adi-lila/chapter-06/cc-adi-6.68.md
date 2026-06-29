@@ -1,5 +1,10 @@
 ### CC Adi 6.68
 
+> অপি বত মধুপুর্যামার্যপুত্রোঽধুনাস্তে
+> স্মরতি স পিতৃগেহান্ সৌম্য বন্ধূংশ্চ গোপান্ ।
+> ক্বচিদপি স কথাং নঃ কিঙ্করীণাং গৃণীতে
+> ভুজমগুরুসুগন্ধং মূর্ধ্ন্যধাস্যৎ কদা নু ॥৬৮॥
+
 api bata madhu-puryām ārya-putro 'dhunāste
 smarati sa pitṛ-gehān saumya bandhūṁś ca gopān
 kvacid api sa kathāṁ naḥ kiṅkariṇāṁ gṛṇīte

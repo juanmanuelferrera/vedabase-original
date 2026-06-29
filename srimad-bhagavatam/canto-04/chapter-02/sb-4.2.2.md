@@ -1,5 +1,8 @@
 ### SB 4.2.2
 
+> कस्तं चराचरगुरुं निर्वैरं शान्तविग्रहम् ।
+> आत्मारामं कथं द्वेष्टि जगतो दैवतं महत् ॥२॥
+
 > kas taṁ carācara-guruṁ
 > nirvairaṁ śānta-vigraham
 > ātmārāmaṁ kathaṁ dveṣṭi

@@ -1,5 +1,8 @@
 ### SB 6.15.16
 
+> तस्माद्युवां ग्राम्यपशोर्मम मूढधियः प्रभू
+> अन्धे तमसि मग्नस्य ज्ञआनदीप उदीर्यताम ॥१६॥
+
 > tasmād yuvāṁ grāmya-paśor
 > mama mūḍha-dhiyaḥ prabhū
 > andhe tamasi magnasya

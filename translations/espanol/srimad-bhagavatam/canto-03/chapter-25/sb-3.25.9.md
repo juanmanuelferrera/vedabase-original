@@ -1,5 +1,8 @@
 ### SB 3.25.9
 
+> य आद्यो भगवान्पुंसामीश्वरो वै भवान्किल ।
+> लोकस्य तमसान्धस्य चक्षुः सूर्य इवोदितः ॥९॥
+
 > ya ādyo bhagavān puṁsām
 > īśvaro vai bhavān kila
 > lokasya tamasāndhasya

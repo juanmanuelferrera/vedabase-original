@@ -1,5 +1,8 @@
 ### SB 9.9.22
 
+> परिवेक्ष्यमाणं भगवान्विलोक्याभक्ष्यमञ्जसा
+> राजानमशपत्क्रुद्धो रक्षो ह्येवं भविष्यसि ॥२२॥
+
 > parivekṣyamāṇaṁ bhagavān
 > vilokyābhakṣyam añjasā
 > rājānam aśapat kruddho

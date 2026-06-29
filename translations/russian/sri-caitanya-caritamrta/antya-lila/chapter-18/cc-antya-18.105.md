@@ -1,5 +1,10 @@
 ### CC Antya 18.105
 
+> খরমুজা, ক্ষীরিকা, তাল, কেশুর, পানীফল, মৃণাল,
+> ব্বিল, পীলু, দাড়িম্বাদি যত ।
+> কোন দেশে কার খ্যাতি, বৃন্দাবনে সব-প্রাপ্তি,
+> সহস্রজাতি, লেখা যায় কত? ॥১০৫॥
+
 > kharamujā, kṣīrikā, tāla, keśura, pānī-phala, mṛṇāla,
 > bilva, pīlu, dāḍimbādi yata
 > kona deśe kāra khyāti, vṛndāvane saba-prāpti,

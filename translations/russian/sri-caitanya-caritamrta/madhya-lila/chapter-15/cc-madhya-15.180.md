@@ -1,5 +1,10 @@
 ### CC Madhya 15.180
 
+> জয় জয় জহ্যজামজিত দোষগৃভীতগুণাং
+> ত্বমসি যদাত্মনা সমবরুদ্ধসমস্তভগঃ ।
+> অগজগদোকসামখিলশক্ত্যববোধক তে
+> ক্বচিদজয়াত্মনা চ চরতোঽনুচরেন্নিগমঃ ।।” ॥১৮০॥
+
 > jaya jaya jahy ajām ajita doṣa-gṛbhīta-guṇāṁ
 > tvam asi yad ātmanā samavaruddha-samasta-bhagaḥ
 > aga-jagad-okasām akhila-śakty-avabodhaka te

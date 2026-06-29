@@ -1,5 +1,8 @@
 ### CC Adi 16.65
 
+> ‘ব্রাহ্মণ-পত্নীর ভর্তার হস্তে দেহ দান’ ।
+> শব্দ শুনিতেই হয় দ্বিতীয়ভর্তা জ্ঞান ॥৬৫॥
+
 > 'brāhmaṇa-patnīra bhartāra haste deha dāna'
 > śabda śunitei haya dvitīya-bhartā jñāna
 

@@ -1,5 +1,7 @@
 ### CC Antya 6.273
 
+> ‘রঘু কেনে আমায় নিম়ন্ত্রণ ছাড়ি’ দিল ?’ স্বরূপ কহে, — “মনে কিছু বিচার করিল ॥২৭৩॥
+
 'raghu kene āmāya nimantraṇa chāḍi' dila?'
 
 svarūpa kahe,--"mane kichu vicāra karila

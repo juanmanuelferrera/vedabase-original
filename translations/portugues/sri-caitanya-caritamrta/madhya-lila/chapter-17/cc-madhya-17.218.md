@@ -1,5 +1,8 @@
 ### CC Madhya 17.218
 
+> ময়ূরের কণ্ঠ দেখি’ প্রভুর কৃষ্ণস্মৃতি হৈল ।
+> প্রেমাবেশে মহাপ্ৰভু ভূমিতে পড়িল ॥২১৮॥
+
 mayūrera kaṇṭha dekhi' prabhura kṛṣṇa-smṛti haila
 
 premāveśe mahāprabhu bhūmite paḍila

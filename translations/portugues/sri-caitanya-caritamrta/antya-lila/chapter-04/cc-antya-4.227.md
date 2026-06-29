@@ -1,5 +1,8 @@
 ### CC Antya 4.227
 
+> তাঁর লঘুভ্রাতা — শ্রীবল্লভ-অনুপম ।
+> তাঁর পুত্র মহাপণ্ডিত — জীবগোসাঞি নাম ॥২২৭॥
+
 tāṅra laghu-bhrātā--śrī-vallabha-anupama
 
 tāṅra putra mahā-paṇḍita--jīva-gosāñi nāma

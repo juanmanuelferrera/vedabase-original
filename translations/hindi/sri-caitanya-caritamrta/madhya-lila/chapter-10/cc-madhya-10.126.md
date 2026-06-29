@@ -1,5 +1,8 @@
 ### CC Madhya 10.126
 
+> তবে স্বরূপ কৈল নিতাইর চরণ বন্দন ।
+> নিত্যানন্দপ্রভু কৈল প্রেম-আলিঙ্গন ॥১২৬॥
+
 > tabe svarūpa kaila nitāira caraṇa vandana
 > nityānanda-prabhu kaila prema-āliṅgana
 

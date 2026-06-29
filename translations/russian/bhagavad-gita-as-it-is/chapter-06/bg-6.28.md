@@ -1,5 +1,8 @@
 ### Bg 6.28
 
+> युञ्जन्नेवं सदात्मानं योगी विगतकल्मषः ।
+> सुखेन ब्रह्मसंस्पर्शमत्यन्तं सुखमश्नुते ॥२८॥
+
 > yuñjann evaṁ sadātmānaṁ
 > yogī vigata-kalmaṣaḥ
 > sukhena brahma-saṁsparśam

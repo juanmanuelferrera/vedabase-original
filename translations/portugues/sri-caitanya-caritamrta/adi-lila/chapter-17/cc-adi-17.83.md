@@ -1,5 +1,8 @@
 ### CC Adi 17.83
 
+> রক্ত-পীতবর্ণ, — নাহি অষ্ঠি-বল্কল ।
+> এক জনের পেট ভরে খাইলে এক ফল ॥৮৩॥
+
 rakta-pīta-varṇa,--nāhi aṣṭhi-valkala
 
 eka janera peṭa bhare khāile eka phala

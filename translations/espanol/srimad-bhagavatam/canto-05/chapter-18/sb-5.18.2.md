@@ -1,5 +1,8 @@
 ### SB 5.18.2
 
+> भद्रश्रवस ऊचुः
+> ओं नमो भगवते धर्मायात्मविशोधनाय नम इति ॥२॥
+
 > bhadraśravasa ūcuḥ
 > oṁ namo bhagavate dharmāyātma-viśodhanāya nama iti.
 

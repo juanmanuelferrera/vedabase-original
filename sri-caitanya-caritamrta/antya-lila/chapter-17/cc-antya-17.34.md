@@ -1,5 +1,9 @@
 ### CC Antya 17.34
 
+> “নাগর, কহ, তুমি করিয়া নিশ্চয় ।
+> এই ত্রিজগৎ ভরি’, আছে যত যোগ্যা নারী,
+> তোমার বেণু কাহাঁ না আকর্ষয়? ।। ৩৪ ।। ধ্রু ।। ॥৩৪॥
+
 > "nāgara, kaha, tumi kariyā niścaya
 > ei trijagat bhari', āche yata yogyā nāri,
 > tomāra veṇu kāhāṅ nā ākarṣaya?

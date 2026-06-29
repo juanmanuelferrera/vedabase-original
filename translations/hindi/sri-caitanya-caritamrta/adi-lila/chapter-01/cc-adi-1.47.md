@@ -1,5 +1,8 @@
 ### CC Adi 1.47
 
+> শিক্ষাগুরুকে ত’ জানি কৃষ্ণের স্বরূপ ।
+> অন্তর্যামী, ভক্তশ্রেষ্ঠ, — এই দুই রূপ ॥৪৭॥
+
 > śikṣā-guruke ta' jāni kṛṣṇera svarūpa
 > antaryāmī, bhakta-śreṣṭha,—ei dui rūpa
 

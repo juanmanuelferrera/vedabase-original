@@ -1,5 +1,8 @@
 ### CC Madhya 25.132
 
+> বদন্তি তত্তত্ত্ববিদস্তত্ত্বং যজ্জ্ঞানমদ্বয়ম্ ৷
+> ব্রহ্মেতি পরমাত্মেতি ভগবানিতি শব্দ্যতে ৷৷ ১৩২ ৷৷ ॥১৩২॥
+
 > vadanti tat tattva-vidas
 > tattvaṁ yaj jñānam advayam
 > brahmeti paramātmeti

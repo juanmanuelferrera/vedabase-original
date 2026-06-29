@@ -1,5 +1,8 @@
 ### CC Adi 17.265
 
+> অতএব অবশ্য আমি সন্ন্যাস করিব ।
+> সন্ন্যাসি-বুদ্ধ্যে মোরে প্রণত হইব ॥২৬৫॥
+
 ataeva avaśya āmi sannyāsa kariba
 sannyāsi-buddhye more praṇata ha-iba
 

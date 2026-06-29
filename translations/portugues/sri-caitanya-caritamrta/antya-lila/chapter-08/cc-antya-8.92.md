@@ -1,5 +1,8 @@
 ### CC Antya 8.92
 
+> ভক্তগণে সুখ দিতে প্রভুর ‘অবতার’ ।
+> যাহাঁ যৈছে যোগ্য, তাহাঁ করেন ব্যবহার ॥৯২॥
+
 bhakta-gaṇe sukha dite prabhura 'avatāra'
 
 yāhāṅ yaiche yogya, tāhāṅ karena vyavahāra

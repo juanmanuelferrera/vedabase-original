@@ -1,5 +1,8 @@
 ### CC Madhya 16.6
 
+> তাঁহা বিনা এই রাজ্য মোরে নাহি ভায় ।
+> গোসাঞি রাখিতে করহ নানা উপায় ॥৬॥
+
 > tāṅhā vinā ei rājya more nāhi bhāya
 > gosāñi rākhite karaha nānā upāya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 20.313
 
+> হরির্হি নির্গুণঃ সাক্ষাৎ পুরুষঃ প্ৰকৃতেঃ পরঃ ।
+> স সর্বদৃগুপদ্রষ্টা তং ভজন্নির্গুণো ভবেৎ ॥৩১৩॥
+
 > harir hi nirguṇaḥ sākṣāt
 > puruṣaḥ prakṛteḥ paraḥ
 > sa sarva-dṛg upadraṣṭā

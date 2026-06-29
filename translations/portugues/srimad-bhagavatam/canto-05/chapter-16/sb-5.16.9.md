@@ -1,5 +1,7 @@
 ### SB 5.16.9
 
+> एवं दक्षिणेनेलावृतं निषधो हेमकूटो हिमालय इति प्रागायता यथा नीलादयोऽयुतयोजनोत्सेधाहरिवर्षकिम्पुरुषभारतानां यथासङ्ख्यम ॥९॥
+
 *evaṁ dakṣiṇenelāvṛtaṁ niṣadho hemakūṭo himālaya iti prāg-āyatā yathā nīlādayo 'yuta*-yojanotsedhā hari-varṣa-kimpuruṣa-bhāratānāṁ yathā-saṅkhyam.
 
 *evam*—assim; *dakṣiṇena*—gradualmente para o lado sul; *ilāvṛtam*—de Ilāvṛta-varṣa; *niṣadhaḥ hema-kūṭaḥ himālayaḥ*—três montanhas chamadas Niṣadha, Hemakūṭa e Himālaya; *iti*—assim; *prāk-āyatāḥ*—estendidas para o leste; *yathā*—assim como; *nīla-ādayaḥ*—as montanhas encabeçadas por Nīla; *ayuta-yojana-utsedhāḥ*—dez mil yojanas de altura; *hari-varṣa*—a divisão chamada Hari-varṣa; *kimpuruṣa*—a divisão chamada Kimpuruṣa; *bhāratānām*—a divisão chamada Bhārata-varṣa; *yathā-saṅkhyam*—de acordo com o número.

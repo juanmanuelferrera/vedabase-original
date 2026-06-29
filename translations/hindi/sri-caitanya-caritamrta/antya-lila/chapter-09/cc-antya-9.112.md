@@ -1,5 +1,8 @@
 ### CC Antya 9.112
 
+> প্রভুর ইচ্ছা নাহি, তারে কৌড়ি ছাড়াইবে ।
+> দ্বিগুণ বর্তন করি’ পুনঃ ‘বিষয়’ দিবে ॥১১২॥
+
 > prabhura icchā nāhi, tāre kauḍi chāḍāibe
 > dviguṇa vartana kari' punaḥ 'viṣaya' dibe
 

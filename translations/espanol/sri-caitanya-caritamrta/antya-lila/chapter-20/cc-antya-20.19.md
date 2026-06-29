@@ -1,5 +1,8 @@
 ### CC Antya 20.19
 
+> “সর্বশক্তি নামে দিলা করিয়া বিভাগ ।
+> আমার দুর্দৈব, — নামে নাহি অনুরাগ !!” ॥ ১৯ ॥
+
 > "sarva-śakti nāme dilā kariyā vibhāga
 > āmāra durdaiva,--nāme nāhi anurāga!!"
 

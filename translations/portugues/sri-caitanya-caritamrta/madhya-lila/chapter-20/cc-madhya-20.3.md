@@ -1,5 +1,8 @@
 ### CC Madhya 20.3
 
+> এথা গৌড়ে সনাতন আছে বন্দিশালে ।
+> শ্রীরূপ-গোসাঞির পত্রী আইল হেনকালে ॥৩॥
+
 ethā gauḍe sanātana āche bandi-śāle
 śrī-rūpa-gosāñīra patrī āila hena-kāle
 

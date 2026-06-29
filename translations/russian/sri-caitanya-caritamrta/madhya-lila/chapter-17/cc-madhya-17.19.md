@@ -1,5 +1,8 @@
 ### CC Madhya 17.19
 
+> সেই বিপ্র বহি’ নিবে বস্ত্রাম্বুভাজন ।
+> ভট্টাচার্য ভিক্ষা দিবে করি’ ভিক্ষাটন ॥১৯॥
+
 > sei vipra vahi' nibe vastrāmbu-bhājana
 > bhaṭṭācārya bhikṣā dibe kari' bhikṣāṭana
 

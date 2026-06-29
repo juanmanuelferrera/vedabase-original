@@ -1,5 +1,8 @@
 ### CC Adi 17.92
 
+> নৃসিংহ-আবেশে প্রভু হাতে গদা লঞা ।
+> পাষণ্ডী মারিতে যায় নগরে ধাইয়া ॥৯২॥
+
 nṛsiṁha-āveśe prabhu hāte gadā lañā
 
 pāṣaṇḍī mārite yāya nagare dhāiyā

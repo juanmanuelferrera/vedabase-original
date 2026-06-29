@@ -1,5 +1,8 @@
 ### CC Adi 2.20
 
+> অথবা বহুনৈতেন কিং জ্ঞাতেন তবার্জুন ।
+> বিষ্টভ্যাহমিদং কৃৎস্নমেকাংশেন স্থিতো জগৎ ॥২০॥
+
 > atha vā bahunaitena
 > kiṁ jñātena tavārjuna
 > viṣṭabhyāham idaṁ kṛtsnam

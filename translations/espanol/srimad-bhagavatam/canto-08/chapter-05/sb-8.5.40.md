@@ -1,5 +1,8 @@
 ### SB 8.5.40
 
+> श्रीर्वक्षसः पितरश्छाययासन्धर्मः स्तनादितरः पृष्ठतोऽभूत
+> द्यौर्यस्य शीर्ष्णोऽप्सरसो विहारात्प्रसीदतां नः स महाविभूतिः ॥४०॥
+
 > śrīr vakṣasaḥ pitaraś chāyayāsan
 > dharmaḥ stanād itaraḥ pṛṣṭhato 'bhūt
 > dyaur yasya śīrṣṇo 'psaraso vihārāt

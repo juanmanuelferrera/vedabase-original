@@ -1,5 +1,8 @@
 ### SB 3.19.15
 
+> वृक्णे स्वशूले बहुधारिणा हरेः प्रत्येत्य विस्तीर्णमुरो विभूतिमत् ।
+> प्रवृद्धरोषः स कठोरमुष्टिना नदन्प्रहृत्यान्तरधीयतासुरः ॥१५॥
+
 > vṛkṇe sva-śūle bahudhāriṇā hareḥ
 > pratyetya vistīrṇam uro vibhūtimat
 > pravṛddha-roṣaḥ sa kaṭhora-muṣṭinā

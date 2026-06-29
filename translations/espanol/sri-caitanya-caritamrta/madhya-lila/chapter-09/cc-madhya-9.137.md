@@ -1,5 +1,8 @@
 ### CC Madhya 9.137
 
+> অন্য দেহে না পাইয়ে রাসবিলাস ৷
+> অতএব ‘নায়ং’ শ্লোক কহে বেদব্যাস ৷৷ ১৩৭ ৷৷ ॥১৩৭॥
+
 > anya dehe nā pāiye rāsa-vilāsa
 > ataeva 'nāyaṁ' śloka kahe veda-vyāsa
 

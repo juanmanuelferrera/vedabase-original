@@ -1,5 +1,8 @@
 ### SB 9.18.32
 
+> राजपुत्र्यार्थितोऽपत्ये धर्मं चावेक्ष्य धर्मवित
+> स्मरन्छुक्रवचः काले दिष्टमेवाभ्यपद्यत ॥३२॥
+
 > rāja-putryārthito 'patye
 > dharmaṁ cāvekṣya dharmavit
 > smarañ chukra-vacaḥ kāle

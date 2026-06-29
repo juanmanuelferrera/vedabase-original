@@ -1,5 +1,8 @@
 ### CC Madhya 24.250
 
+> ব্যাধ তুমি, জীব মার — ‘অল্প’ অপরাধ তোমার ।
+> কদর্থনা দিয়া মার’ — এ পাপ ‘অপার’ ॥২৫০॥
+
 > vyādha tumi, jīva māra—'alpa' aparādha tomāra
 > kadarthanā diyā māra'—e pāpa 'apāra'
 

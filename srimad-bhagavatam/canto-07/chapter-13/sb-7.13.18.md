@@ -1,5 +1,8 @@
 ### SB 7.13.18
 
+> कविः कल्पो निपुणदृक्चित्रप्रियकथः समः
+> लोकस्य कुर्वतः कर्म शेषे तद्वीक्षितापि वा ॥१८॥
+
 > na te śayānasya nirudyamasya
 > brahman nu hārtho yata eva bhogaḥ
 > abhogino 'yaṁ tava vipra dehaḥ

@@ -1,5 +1,8 @@
 ### CC Madhya 14.69
 
+> এক দিন নিমন্ত্রণ করে দুই-তিনে মিলি’ ।
+> এইমত মহাপ্রভুর নিমন্ত্রণ-কেলি ॥৬৯॥
+
 > eka dina nimantraṇa kare dui-tine mili'
 > ei-mata mahāprabhura nimantraṇa-keli
 

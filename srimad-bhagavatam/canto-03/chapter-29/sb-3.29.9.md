@@ -1,5 +1,8 @@
 ### SB 3.29.9
 
+> विषयानभिसन्धाय यश ऐश्वर्यमेव वा ।
+> अर्चादावर्चयेद्यो मां पृथग्भावः स राजसः ॥९॥
+
 > viṣayān abhisandhāya
 > yaśa aiśvaryam eva vā
 > arcādāv arcayed yo māṁ

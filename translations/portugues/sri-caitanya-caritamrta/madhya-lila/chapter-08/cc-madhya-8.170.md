@@ -1,5 +1,8 @@
 ### CC Madhya 8.170
 
+> সৌন্দর্য — কুঙ্কুম, সখী-প্রণয় চন্দন ৷
+> স্মিতকান্তি — কর্পূর, তিনে — অঙ্গে বিলেপন ৷৷ ১৭০ ৷৷ ॥১৭০॥
+
 saundarya--kuṅkuma, sakhī-praṇaya--candana
 smita-kānti--karpūra, tine--aṅge vilepana
 

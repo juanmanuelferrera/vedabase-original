@@ -1,5 +1,8 @@
 ### CC Antya 4.19
 
+> সনাতনে আলিঙ্গিতে প্রভু আগু হৈলা  ।
+> পাছে ভাগে সনাতন কহিতে লাগিলা ॥১৯॥
+
 sanātane āliṅgite prabhu āgu hailā
 
 pāche bhāge sanātana kahite lāgilā

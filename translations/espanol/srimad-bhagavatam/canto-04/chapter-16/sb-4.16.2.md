@@ -1,5 +1,8 @@
 ### SB 4.16.2
 
+> नालं वयं ते महिमानुवर्णने यो देववर्योऽवततार मायया ।
+> वेनाङ्गजातस्य च पौरुषाणि ते वाचस्पतीनामपि बभ्रमुर्धियः ॥२॥
+
 > nālaṁ vayaṁ te mahimānuvarṇane
 > yo deva-varyo 'vatatāra māyayā
 > venāṅga-jātasya ca pauruṣāṇi te

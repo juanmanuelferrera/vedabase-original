@@ -1,5 +1,8 @@
 ### CC Madhya 9.255
 
+> সাধ্য-সাধন আমি না জানি ভালমতে ।
+> সাধ্য-সাধন-শ্রেষ্ঠ জানাহ আমাতে ॥২৫৫॥
+
 > sādhya-sādhana āmi nā jāni bhāla-mate
 > sādhya-sādhana-śreṣṭha jānāha āmāte
 

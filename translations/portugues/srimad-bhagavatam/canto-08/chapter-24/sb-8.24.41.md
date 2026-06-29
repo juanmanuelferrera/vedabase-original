@@ -1,5 +1,8 @@
 ### SB 8.24.41
 
+> ततः समुद्र उद्वेलः सर्वतः प्लावयन्महीम
+> वर्धमानो महामेघैर्वर्षद्भिः समदृश्यत ॥४१॥
+
 tataḥ samudra udvelaḥ
 sarvataḥ plāvayan mahīm
 vardhamāno mahā-meghair

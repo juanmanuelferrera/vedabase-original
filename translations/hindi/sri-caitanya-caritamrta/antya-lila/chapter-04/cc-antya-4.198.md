@@ -1,5 +1,8 @@
 ### CC Antya 4.198
 
+> বস্তুতঃ প্রভু যবে কৈলা আলিঙ্গন ।
+> তাঁর স্পর্শে গন্ধ হৈল চন্দনের সম ॥১৯৮॥
+
 > vastutaḥ prabhu yabe kailā āliṅgana
 > tāṅra sparśe gandha haila candanera sama
 

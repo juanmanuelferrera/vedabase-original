@@ -1,5 +1,8 @@
 ### CC Madhya 16.131
 
+> পণ্ডিত কহে, — “যাহাঁ তুমি, সেই নীলাচল ।
+> ক্ষেত্রসন্ন্যাস মোর যাউক রসাতল ।।” ॥ ১৩১ ॥
+
 > paṇḍita kahe,--"yāhāṅ tumi, sei nīlācala
 > kṣetra-sannyāsa mora yāuka rasātala"
 

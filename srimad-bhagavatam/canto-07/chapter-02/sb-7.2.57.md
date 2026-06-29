@@ -1,5 +1,8 @@
 ### SB 7.2.57
 
+> एवं यूयमपश्यन्त्य आत्मापायमबुद्धयः
+> नैनं प्राप्स्यथ शोचन्त्यः पतिं वर्षशतैरपि ॥५७॥
+
 > evaṁ yūyam apaśyantya
 > ātmāpāyam abuddhayaḥ
 > nainaṁ prāpsyatha śocantyaḥ

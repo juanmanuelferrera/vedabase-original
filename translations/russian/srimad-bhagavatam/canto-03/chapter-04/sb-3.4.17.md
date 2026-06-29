@@ -1,5 +1,8 @@
 ### SB 3.4.17
 
+> मन्त्रेषु मां वा उपहूय यत्त्वमकुण्ठिताखण्डसदात्मबोधः ।
+> पृच्छेः प्रभो मुग्ध इवाप्रमत्तस्तन्नो मनो मोहयतीव देव ॥१७॥
+
 > mantreṣu māṁ vā upahūya yat tvam
 > akuṇṭhitākhaṇḍa-sadātma-bodhaḥ
 > pṛccheḥ prabho mugdha ivāpramattas

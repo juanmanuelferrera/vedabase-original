@@ -1,5 +1,8 @@
 ### CC Adi 2.93
 
+> আশ্রয় জানিতে কহি এ নব পদার্থ ।
+> এ নবের উৎপত্তি-হেতু সেই আশ্রয়ার্থ ॥৯৩॥
+
 āśraya jānite kahi e nava padārtha
 
 e navera utpatti-hetu sei āśrayārtha

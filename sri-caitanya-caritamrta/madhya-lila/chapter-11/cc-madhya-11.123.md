@@ -1,5 +1,8 @@
 ### CC Madhya 11.123
 
+> এত বলি’ বিদায় দিল সেই দুই-জনে ।
+> সার্বভৌম দেখিতে আইল বৈষ্ণব-মিলনে ॥১২৩॥
+
 > eta bali' vidāya dila sei dui-jane
 > sārvabhauma dekhite āila vaiṣṇava-milane
 

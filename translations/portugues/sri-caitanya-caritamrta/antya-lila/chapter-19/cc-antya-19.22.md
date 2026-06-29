@@ -1,5 +1,8 @@
 ### CC Antya 19.22
 
+> এত শুনি’ জগদানন্দ হাসিতে লাগিলা ।
+> নীলাচলে আসি’ তবে প্রভুরে কহিলা ॥২২॥
+
 eta śuni' jagadānanda hāsite lāgilā
 
 nīlācale āsi' tabe prabhure kahilā

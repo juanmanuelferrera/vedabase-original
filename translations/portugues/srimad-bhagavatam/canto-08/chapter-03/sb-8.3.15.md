@@ -1,5 +1,8 @@
 ### SB 8.3.15
 
+> नमो नमस्तेऽखिलकारणाय निष्कारणायाद्भुतकारणाय
+> सर्वागमाम्नायमहार्णवाय नमोऽपवर्गाय परायणाय ॥१५॥
+
 namo namas te 'khila-kāraṇāya
 niṣkāraṇāyādbhuta-kāraṇāya
 sarvāgamāmnāya-mahārṇavāya

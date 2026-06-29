@@ -1,5 +1,8 @@
 ### CC Antya 13.45
 
+> সনাতন করাইলা তাঁরে দ্বাদশ বন দরশন ।
+> গোকুলে রহিলা দুঁহে দেখি’ মহাবন ॥৪৫॥
+
 sanātana karāilā tāṅre dvādaśa vana daraśana
 
 gokule rahilā duṅhe dekhi' mahāvana

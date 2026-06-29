@@ -1,5 +1,8 @@
 ### CC Antya 6.293
 
+> এইমত তিনবৎসর শিলা-মালা ধরিলা ।
+> তুষ্ট হঞা শিলা-মালা রঘুনাথে দিলা ॥২৯৩॥
+
 ei-mata tina-vatsara śilā-mālā dharilā
 
 tuṣṭa hañā śilā-mālā raghunāthe dilā

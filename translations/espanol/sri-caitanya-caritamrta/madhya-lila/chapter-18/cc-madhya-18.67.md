@@ -1,5 +1,8 @@
 ### CC Madhya 18.67
 
+> ‘শ্রীবন’ দেখি’ পুনঃ গেলা ‘লোহ-বন’ ।
+> ‘মহাবন’ গিয়া কৈলা জন্মস্থান-দরশন ॥৬৭॥
+
 > 'śrīvana' dekhi' punaḥ gelā 'loha-vana'
 > 'mahāvana' giyā kailā janma-sthāna-daraśana
 

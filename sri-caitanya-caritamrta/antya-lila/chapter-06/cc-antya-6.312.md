@@ -1,5 +1,8 @@
 ### CC Antya 6.312
 
+> ছিণ্ডা কানি কাঁথা বিনা না পরে বসন ।
+> সাবধানে প্রভুর কৈলা আজ্ঞার পালন ॥৩১২॥
+
 > chiṇḍā kāni kāṅthā vinā nā pare vasana
 > sāvadhāne prabhura kailā ājñāra pālana
 

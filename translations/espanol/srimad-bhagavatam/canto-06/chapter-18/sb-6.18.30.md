@@ -1,5 +1,8 @@
 ### SB 6.18.30
 
+> विलोक्यैकान्तभूतानि भूतान्यादौ प्रजापतिः
+> स्त्रियं चक्रे स्वदेहार्धं यया पुंसां मतिर्हृता ॥३०॥
+
 > vilokyaikānta-bhūtāni
 > bhūtāny ādau prajāpatiḥ
 > striyaṁ cakre sva-dehārdhaṁ

@@ -1,5 +1,8 @@
 ### SB 2.5.2
 
+> यद्रूपं यदधिष्ठानं यतः सृष्टमिदं प्रभो ।
+> यत्संस्थं यत्परं यच्च तत्तत्त्वं वद तत्त्वतः ॥२॥
+
 > yad rūpaṁ yad adhiṣṭhānaṁ
 > yataḥ sṛṣṭam idaṁ prabho
 > yat saṁsthaṁ yat paraṁ yac ca

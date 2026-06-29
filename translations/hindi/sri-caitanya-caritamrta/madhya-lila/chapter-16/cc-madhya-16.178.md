@@ -1,5 +1,8 @@
 ### CC Madhya 16.178
 
+> ‘বিশ্বাস’ যাঞা তাঁহারে সকল কহিল ।
+> হিন্দুবেশ ধরি’ সেই যবন আইল ॥১৭৮॥
+
 > 'viśvāsa' yāñā tāṅhāre sakala kahila
 > hindu-veśa dhari' sei yavana āila
 

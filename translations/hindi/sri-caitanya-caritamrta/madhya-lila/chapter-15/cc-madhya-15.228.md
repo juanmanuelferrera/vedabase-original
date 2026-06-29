@@ -1,5 +1,8 @@
 ### CC Madhya 15.228
 
+> ভাগ্যবান্ তুমি, সফল তোমার উদ্যোগ ।
+> রাধাকৃষ্ণে লাগাঞাছ এতাদৃশ ভোগ ॥২২৮॥
+
 > bhāgyavān tumi, saphala tomāra udyoga
 > rādhā-kṛṣṇe lāgāñācha etādṛśa bhoga
 

@@ -1,5 +1,8 @@
 ### CC Adi 9.39
 
+> অতএব সব ফল দেহ’ যারে তারে ।
+> খাইয়া হউক্ লোক অজর অমরে ॥৩৯॥
+
 > ataeva saba phala deha' yāre tāre
 > khāiyā ha-uk loka ajara amare
 

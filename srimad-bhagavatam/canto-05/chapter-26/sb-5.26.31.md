@@ -1,5 +1,7 @@
 ### SB 5.26.31
 
+> ये त्विह वै पुरुषाः पुरुषमेधेन यजन्ते याश्च स्त्रियो नृपशून्खादन्ति तांश्च ते पशव इवनिहता यमसदने यातयन्तो रक्षोगणाः सौनिका इव स्वधितिनावदायासृक्पिबन्ति नृत्यन्ति च गायन्ति चहृष्यमाणा यथेह पुरुषादाः ॥३०॥
+
 > ye tv iha vai puruṣāḥ puruṣa-medhena yajante yāś ca striyo nṛ-paśūn khādanti tāṁś ca te paśava iva nihatā yama-sadane yātayanto rakṣo-gaṇāḥ saunikā iva svadhitināvadāyāsṛk pibanti nṛtyanti ca gāyanti ca hṛṣyamāṇā yatheha puruṣādāḥ.
 
 *ye*—persons who; *tu*—but; *iha*—in this life; *vai*—indeed; *puruṣāḥ*—men; *puruṣa-medhena*—by sacrifice of a man; *yajante*—worship (the goddess Kālī or Bhadra Kālī); *yāḥ*—those who; *ca*—and; *striyaḥ*—women; *nṛ-paśūn*—the men used as sacrifice; *khādanti*—eat; *tān*—them; *ca*—and; *te*—they; *paśavaḥ iva*—like the animals; *nihatāḥ*—being slain; *yama-sadane*—in the abode of Yamarāja; *yātayantaḥ*—punishing; *rakṣaḥ-gaṇāḥ*—being Rākṣasas; *saunikāḥ*—the killers; *iva*—like; *svadhitinā*—by a sword; *avadāya*—cutting to pieces; *asṛk*—the blood; *pibanti*—drink; *nṛtyanti*—dance; *ca*—and; *gāyanti*—sing; *ca*—also; *hṛṣyamāṇāḥ*—being delighted; *yathā*—just like; *iha*—in this world; *puruṣa-adāḥ*—the man-eaters.

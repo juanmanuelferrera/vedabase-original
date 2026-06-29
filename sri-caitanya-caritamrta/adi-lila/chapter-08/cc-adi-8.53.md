@@ -1,5 +1,8 @@
 ### CC Adi 8.53
 
+> সহস্র সেবক সেবা করে অনুক্ষণ ।
+> সহস্র-বদনে সেবা না যায় বর্ণন ॥৫৩॥
+
 > sahasra sevaka sevā kare anukṣaṇa
 > sahasra-vadane sevā nā yāya varṇana
 

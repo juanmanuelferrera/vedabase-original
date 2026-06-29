@@ -1,5 +1,8 @@
 ### CC Madhya 20.254
 
+> ইচ্ছা-জ্ঞান-ক্রিয়া বিনা না হয় সৃজন ।
+> তিনের তিনশক্তি মেলি’ প্রপঞ্চ-রচন ॥২৫৪॥
+
 icchā-jñāna-kriyā vinā nā haya sṛjana
 
 tinera tina-śakti meli' prapañca-racana

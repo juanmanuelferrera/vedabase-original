@@ -1,5 +1,8 @@
 ### CC Madhya 11.13
 
+> ভয় পাঞা সার্বভৌম নিজ ঘরে গেলা ।
+> বাসায় গিয়া ভট্টাচার্য চিন্তিত হইলা ॥১৩॥
+
 > bhaya pāñā sārvabhauma nija ghare gelā
 > vāsāya giyā bhaṭṭācārya cintita ha-ilā
 

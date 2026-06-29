@@ -1,5 +1,8 @@
 ### CC Madhya 15.221
 
+> অমৃত-গুটিকা, পিঠা-পানা আনাইল ৷
+> জগন্নাথ-প্রসাদ সব পৃথক্ ধরিল ॥২২১॥
+
 amṛta-guṭikā, piṭhā-pānā ānāila
 
 jagannātha-prasāda saba pṛthak dharila

@@ -1,5 +1,8 @@
 ### SB 4.1.11
 
+> दक्षाय ब्रह्मपुत्राय प्रसूतिं भगवान्मनुः ।
+> प्रायच्छद्यत्कृतः सर्गस्त्रिलोक्यां विततो महान् ॥११॥
+
 > dakṣāya brahma-putrāya
 > prasūtiṁ bhagavān manuḥ
 > prāyacchad yat-kṛtaḥ sargas

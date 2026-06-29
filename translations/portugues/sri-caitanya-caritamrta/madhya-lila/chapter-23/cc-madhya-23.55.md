@@ -1,5 +1,8 @@
 ### CC Madhya 23.55
 
+> সখ্য-বাৎসল্য-রতি পায় ‘অনুরাগ’-সীমা ।
+> সুবলাদ্যের ‘ভাব’ পর্যন্ত প্রেমের মহিমা ॥৫৫॥
+
 sakhya-vātsalya-rati pāya 'anurāga'-sīmā
 
 subalādyera 'bhāva' paryanta premera mahimā

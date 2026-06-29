@@ -1,5 +1,8 @@
 ### CC Madhya 6.44
 
+> পীঠা-পানা দেহ তুমি ইঁহা-সবাকারে ।
+> তবে ভট্টাচার্য কহে যুড়ি’ দুই করে ॥৪৪॥
+
 pīṭhā-pānā deha tumi iṅhā-sabākāre
 
 tabe bhaṭṭācārya kahe yuḍi' dui kare

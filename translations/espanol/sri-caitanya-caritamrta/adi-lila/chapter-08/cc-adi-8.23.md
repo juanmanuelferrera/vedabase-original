@@ -1,5 +1,8 @@
 ### CC Adi 8.23
 
+> ‘নিত্যানন্দ’ বলিতে হয় কৃষ্ণ-প্রেমোদয় ।
+> আউলায় সকল অঙ্গ, অশ্রু-গঙ্গা বয় ॥২৩॥
+
 > 'nityānanda' balite haya kṛṣṇa-premodaya
 > āulāya sakala aṅga, aśru-gaṅgā vaya
 

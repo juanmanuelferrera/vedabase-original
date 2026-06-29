@@ -1,5 +1,8 @@
 ### CC Madhya 20.200
 
+> জ্যৈষ্ঠে — ত্রিবিক্রম, আষাঢ়ে — বামন দেবেশ ।
+> শ্রাবণে — শ্রীধর, ভাদ্রে — দেব হৃষীকেশ ॥২০০॥
+
 > jyaiṣṭhe--trivikrama, āṣāḍhe--vāmana deveśa
 > śrāvaṇe--śrīdhara, bhādre--deva hṛṣīkeśa
 

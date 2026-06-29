@@ -1,5 +1,8 @@
 ### CC Madhya 19.18
 
+> আর দিন গৌড়েশ্বর, সঙ্গে একজন ।
+> আচম্বিতে গোসাঞি-সভাতে কৈল আগমন ॥১৮॥
+
 > āra dina gauḍeśvara, saṅge eka-jana
 > ācambite gosāñi-sabhāte kaila āgamana
 

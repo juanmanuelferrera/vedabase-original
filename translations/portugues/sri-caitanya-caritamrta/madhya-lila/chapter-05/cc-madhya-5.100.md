@@ -1,5 +1,8 @@
 ### CC Madhya 5.100
 
+> একসের অন্ন রান্ধি’ করিহ সমর্পণ ।
+> তাহা খাঞা তোমার সঙ্গে করিব গমন ।।” ॥ ১০০ ॥
+
 eka-sera anna rāndhi' kariha samarpaṇa
 
 tāhā khāñā tomāra saṅge kariba gamana

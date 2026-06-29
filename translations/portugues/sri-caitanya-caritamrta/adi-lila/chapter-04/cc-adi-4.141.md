@@ -1,5 +1,8 @@
 ### CC Adi 4.141
 
+> আমার মাধুর্য নাহি বাঢ়িতে অবকাশে ।
+> এ-দর্পণের আগে নব নব রূপে ভাসে ॥১৪১॥
+
 āmāra mādhurya nāhi bāḍhite avakāśe
 e-darpaṇera āge nava nava rūpe bhāse
 

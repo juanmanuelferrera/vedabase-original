@@ -1,5 +1,8 @@
 ### CC Adi 1.15
 
+> জয়তাং সুরতৌ পঙ্গোর্মম মন্দমতের্গতী ।
+> মৎসর্বস্বপদাম্ভোজৌ রাধামদনমোহনৌ ॥১৫॥
+
 > jayatāṁ suratau paṅgor
 > mama manda-mater gatī
 > mat-sarvasva-padāmbhojau

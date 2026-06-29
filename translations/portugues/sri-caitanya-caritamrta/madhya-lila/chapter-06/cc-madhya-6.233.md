@@ -1,5 +1,8 @@
 ### CC Madhya 6.233
 
+> আজি সে খণ্ডিল তোমার দেহাদি-বন্ধন ।
+> আজি তুমি ছিন্ন কৈলে মায়ার বন্ধন ॥২৩৩॥
+
 āji se khaṇḍila tomāra dehādi-bandhana
 āji tumi chinna kaile māyāra bandhana
 

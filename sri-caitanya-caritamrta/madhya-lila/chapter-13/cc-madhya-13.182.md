@@ -1,5 +1,8 @@
 ### CC Madhya 13.182
 
+> রাজা দেখি’ মহাপ্রভু করেন ধিক্কার  ।
+> ছি, ছি, বিষয়ীর স্পর্শ হইল আমার ॥১৮২॥
+
 > rājā dekhi' mahāprabhu karena dhikkāra
 > chi, chi, viṣayīra sparśa ha-ila āmāra
 

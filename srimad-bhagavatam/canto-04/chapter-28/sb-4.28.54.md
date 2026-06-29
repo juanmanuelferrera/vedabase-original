@@ -1,5 +1,8 @@
 ### SB 4.28.54
 
+> हंसावहं च त्वं चार्य सखायौ मानसायनौ ।
+> अभूतामन्तरा वौकः सहस्रपरिवत्सरान् ॥५४॥
+
 > haṁsāv ahaṁ ca tvaṁ cārya
 > sakhāyau mānasāyanau
 > abhūtām antarā vaukaḥ

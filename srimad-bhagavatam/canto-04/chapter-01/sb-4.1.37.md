@@ -1,5 +1,8 @@
 ### SB 4.1.37
 
+> तस्य यक्षपतिर्देवः कुबेरस्त्विडविडासुतः ।
+> रावणः कुम्भकर्णश्च तथान्यस्यां विभीषणः ॥३७॥
+
 > tasya yakṣa-patir devaḥ
 > kuberas tv iḍaviḍā-sutaḥ
 > rāvaṇaḥ kumbhakarṇaś ca

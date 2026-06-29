@@ -1,5 +1,8 @@
 ### CC Madhya 17.89
 
+> প্রভুরে নিমন্ত্রণ করি’ ঘরে ভিক্ষা দিল ।
+> বলভদ্র-ভট্টাচার্যে পাক করাইল ॥৮৯॥
+
 > prabhure nimantraṇa kari' ghare bhikṣā dila
 > balabhadra-bhaṭṭācārye pāka karāila
 

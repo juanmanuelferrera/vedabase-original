@@ -1,5 +1,7 @@
 ### SB 5.20.29
 
+> एवमेव दधिमण्डोदात्परतः पुष्करद्वीपस्ततो द्विगुणायामः समन्तत उपकल्पितःसमानेन स्वादूदकेन समुद्रेण बहिरावृतो यस्मिन्बृहत्पुष्करं ज्वलनशिखामलकनकपत्रायुतायुतं भगवतः कमलासनस्याध्यासनं परिकल्पितम ॥२९॥
+
 > evam eva dadhi-maṇḍodāt parataḥ puṣkaradvīpas tato dvi-guṇāyāmaḥ samantata upakalpitaḥ samānena svādūdakena samudreṇa bahir āvṛto yasmin bṛhat-puṣkaraṁ jvalana-śikhāmala-kanaka-patrāyutāyutaṁ bhagavataḥ kamalāsanasyādhyāsanaṁ parikalpitam.
 
 *evam eva*—thus; *dadhi-maṇḍa-udāt*—the ocean of yogurt; *parataḥ*—beyond; *puṣkara-dvīpaḥ*—another island, named Puṣkaradvīpa; *tataḥ*—than that (Śākadvīpa); *dvi-guṇa-āyāmaḥ*—whose measurement is twice as great; *samantataḥ*—on all sides; *upakalpitaḥ*—surrounded; *samānena*—equal in width; *svādu-udakena*—possessing sweet water; *samudreṇa*—by an ocean; *bahiḥ*—outside; *āvṛtaḥ*—surrounded; *yasmin*—in which; *bṛhat*—very big; *puṣkaram*—lotus flower; *jvalana-śikhā*—like the flames of a blazing fire; *amala*—pure; *kanaka*—gold; *patra*—leaves; *ayuta-ayutam*—possessing 100,000,000; *bhagavataḥ*—greatly powerful; *kamala āsanasya*—of Lord Brahmā, whose sitting place is on the lotus flower; *adhyāsanam*—sitting place; *parikalpitam*—considered.

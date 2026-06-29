@@ -1,5 +1,8 @@
 ### CC Madhya 16.55
 
+> আচার্য-গোসাঞি প্ৰভুর কৈল নিমন্ত্রণ ।
+> তার মধ্যে কৈল যৈছে ঝড়-বরিষণ ॥৫৫॥
+
 > ācārya-gosāñi prabhura kaila nimantraṇa
 > tāra madhye kaila yaiche jhaḍa-variṣaṇa
 

@@ -1,5 +1,8 @@
 ### CC Adi 14.3
 
+> প্রভুর কহিল এই জন্মলীলা-সূত্র ।
+> যশোদা-নন্দন যৈছে হৈল শচীপুত্র ॥৩॥
+
 prabhura kahila ei janmalīlā-sūtra
 yaśodā-nandana yaiche haila śacī-putra
 

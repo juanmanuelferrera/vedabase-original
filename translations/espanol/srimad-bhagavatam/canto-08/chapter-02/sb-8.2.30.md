@@ -1,5 +1,8 @@
 ### SB 8.2.30
 
+> ततो गजेन्द्रस्य मनोबलौजसां कालेन दीर्घेण महानभूद्व्ययः
+> विकृष्यमाणस्य जलेऽवसीदतो विपर्ययोऽभूत्सकलं जलौकसः ॥३०॥
+
 > tato gajendrasya mano-balaujasāṁ
 > kālena dīrgheṇa mahān abhūd vyayaḥ
 > vikṛṣyamāṇasya jale 'vasīdato

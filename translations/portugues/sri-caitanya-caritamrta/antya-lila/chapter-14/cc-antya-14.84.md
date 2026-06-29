@@ -1,5 +1,8 @@
 ### CC Antya 14.84
 
+> একদিন মহাপ্রভু সমুদ্রে যাইতে ।
+> ‘চটক’-পর্বত দেখিলেন আচম্বিতে ॥৮৪॥
+
 eka-dina mahāprabhu samudre yāite
 
 'caṭaka'-parvata dekhilena ācambite

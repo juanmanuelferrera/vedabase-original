@@ -1,5 +1,8 @@
 ### CC Madhya 15.86
 
+> এইমত কলা, আম্র, নারঙ্গ, কাঁঠাল  ।
+> যাহা যাহা দূর-গ্রামে শুনিয়াছে ভাল ॥৮৬॥
+
 > ei-mata kalā, āmra, nāraṅga, kāṅṭhāla
 > yāhā yāhā dūra-grāme śuniyāche bhāla
 

@@ -1,5 +1,8 @@
 ### CC Madhya 5.50
 
+> ‘তুমি মোরে কন্যা দিতে কর্যাছ অঙ্গীকার ।
+> এবে কিছু নাহি কহ, কি তোমার বিচার ।।’ ॥ ৫০ ॥
+
 'tumi more kanyā dite karyācha aṅgīkāra
 
 ebe kichu nāhi kaha, ki tomāra vicāra'

@@ -1,5 +1,8 @@
 ### CC Antya 12.98
 
+> বাসুদেব, মুরারি-গুপ্ত জগদানন্দে পাঞা ।
+> আনন্দে রাখিলা ঘরে, না দেন ছাড়িয়া ॥৯৮॥
+
 vāsudeva, murāri-gupta jagadānande pāñā
 
 ānande rākhilā ghare, nā dena chāḍiyā

@@ -1,5 +1,8 @@
 ### CC Madhya 4.152
 
+> এক বিপ্র, এক সেবক, চন্দন বহিতে ।
+> পুরী-গোসাঞির সঙ্গে দিল সম্বল-সহিতে ॥১৫২॥
+
 > eka vipra, eka sevaka, candana vahite
 > purī-gosāñira saṅge dila sambala-sahite
 

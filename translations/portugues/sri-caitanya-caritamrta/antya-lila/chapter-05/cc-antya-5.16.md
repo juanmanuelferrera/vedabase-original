@@ -1,5 +1,8 @@
 ### CC Antya 5.16
 
+> তবে প্রদ্যুম্ন-মিশ্র তাহাঁ রহিল বসিয়া  ।
+> রামানন্দ নিভৃতে সেই দুই-জন লঞা ॥১৬॥
+
 tabe pradyumna-miśra tāhāṅ rahila vasiyā
 
 rāmānanda nibhṛte sei dui-jana lañā

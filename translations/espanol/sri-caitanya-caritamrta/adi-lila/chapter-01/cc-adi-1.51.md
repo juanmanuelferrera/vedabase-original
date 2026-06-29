@@ -1,5 +1,8 @@
 ### CC Adi 1.51
 
+> জ্ঞানং পরমগুহ্যং মে যদ্বিজ্ঞান-সমন্বিতম্ ।
+> সরহস্যং তদঙ্গঞ্চ গৃহাণ গদিতং ময়া ॥৫১॥
+
 > jñānaṁ parama-guhyaṁ me
 > yad vijñāna-samanvitam
 > sa-rahasyaṁ tad-aṅgaṁ ca

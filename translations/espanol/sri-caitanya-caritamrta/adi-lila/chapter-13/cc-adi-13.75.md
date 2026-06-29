@@ -1,5 +1,8 @@
 ### CC Adi 13.75
 
+> বলদেব-প্রকাশ — পরমব্যোমে ‘সঙ্কর্ষণ’ ।
+> তেঁহ — বিশ্বের উপাদান-নিমিত্ত-কারণ ॥৭৫॥
+
 > baladeva-prakāśa--parama-vyome 'saṅkarṣaṇa'
 > teṅha--viśvera upādāna-nimitta-kāraṇa
 

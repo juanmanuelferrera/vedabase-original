@@ -1,5 +1,8 @@
 ### CC Madhya 9.346
 
+> জগন্নাথ-দরশন প্রেমাবেশে কৈল ৷
+> কম্প-স্বেদ-পুলকাশ্রুতে শরীর ভাসিল ৷৷ ৩৪৬ ৷৷ ॥৩৪৬॥
+
 > jagannātha-daraśana premāveśe kaila
 > kampa-sveda-pulakāśrute śarīra bhāsila
 

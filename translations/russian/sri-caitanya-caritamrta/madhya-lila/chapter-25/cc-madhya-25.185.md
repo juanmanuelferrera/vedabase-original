@@ -1,5 +1,8 @@
 ### CC Madhya 25.185
 
+> কতক্ষণে উঠি’ সবে দুঃখে ঘরে আইলা ।
+> সনাতন-গোসাঞি বৃন্দাবনেরে চলিলা ॥১৮৫॥
+
 > kata-kṣaṇe uṭhi' sabe duḥkhe ghare āilā
 > sanātana-gosāñi vṛndāvanere calilā
 

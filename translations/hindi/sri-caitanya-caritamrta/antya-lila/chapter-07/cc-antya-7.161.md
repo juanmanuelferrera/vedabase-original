@@ -1,5 +1,8 @@
 ### CC Antya 7.161
 
+> “আমি চালাইলুঁ তোমা, তুমি না চলিলা  ।
+> ক্রোধে কিছু না কহিলা, সকল সহিলা ॥১৬১॥
+
 > "āmi cālāiluṅ tomā, tumi nā calilā
 > krodhe kichu nā kahilā, sakala sahilā
 

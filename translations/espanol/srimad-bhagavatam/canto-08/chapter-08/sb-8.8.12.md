@@ -1,5 +1,8 @@
 ### SB 8.8.12
 
+> आभिषेचनिका भूमिराहरत्सकलौषधीः
+> गावः पञ्च पवित्राणि वसन्तो मधुमाधवौ ॥१२॥
+
 > ṛṣayaḥ kalpayāṁ cakrur
 > ābhiṣekaṁ yathā-vidhi
 > jagur bhadrāṇi gandharvā

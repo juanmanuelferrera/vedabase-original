@@ -1,5 +1,8 @@
 ### CC Madhya 6.127
 
+> সন্ন্যাসীর ধর্ম লাগি’ শ্রবণ মাত্র করি  ।
+> তুমি যেই অর্থ কর, বুঝিতে না পারি ।।” ১২৭ ॥১২৭॥
+
 sannyāsīra dharma lāgi' śravaṇa mātra kari
 tumi yei artha kara, bujhite nā pāri"
 

@@ -1,5 +1,8 @@
 ### CC Adi 5.85
 
+> যদ্যপি সর্বাশ্রয় তিঁহো, তাঁহাতে সংসার ।
+> অন্তরাত্মা-রূপে তিঁহো জগত্-আধার ॥৮৫॥
+
 > yadyapi sarvāśraya tiṅho, tāṅhāte saṁsāra
 > antarātmā-rūpe tiṅho jagat-ādhāra
 

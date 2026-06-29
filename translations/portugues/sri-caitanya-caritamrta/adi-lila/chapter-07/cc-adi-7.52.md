@@ -1,5 +1,8 @@
 ### CC Adi 7.52
 
+> ইহা শুনি রহে প্রভু ঈষত্ হাসিয়া ।
+> সেই কালে এক বিপ্র মিলিল আসিয়া ॥৫২॥
+
 ihā śuni rahe prabhu īṣat hāsiyā
 sei kāle eka vipra milila āsiyā
 

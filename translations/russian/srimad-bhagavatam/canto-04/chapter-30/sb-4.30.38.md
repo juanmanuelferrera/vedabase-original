@@ -1,5 +1,8 @@
 ### SB 4.30.38
 
+> वयं तु साक्षाद्भगवन्भवस्य प्रियस्य सख्युः क्षणसङ्गमेन ।
+> सुदुश्चिकित्स्यस्य भवस्य मृत्योर्भिषक्तमं त्वाद्य गतिं गताः स्म ॥३८॥
+
 > vayaṁ tu sākṣād bhagavan bhavasya
 > priyasya sakhyuḥ kṣaṇa-saṅgamena
 > suduścikitsyasya bhavasya mṛtyor

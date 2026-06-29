@@ -1,5 +1,8 @@
 ### CC Madhya 17.103
 
+> এইমত প্রতিদিন করেন বঞ্চন ।
+> সন্ন্যাসীর সঙ্গ-ভয়ে না মানেন নিমন্ত্রণ ॥১০৩॥
+
 > ei-mata prati-dina karena vañcana
 > sannyāsīra saṅga-bhaye nā mānena nimantraṇa
 

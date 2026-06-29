@@ -1,5 +1,8 @@
 ### CC Madhya 21.78
 
+> দ্বারকাদি — বিভু, তার এই ত প্রমাণ ।
+> ‘আমারই ব্রহ্মাণ্ডে কৃষ্ণ’ সবার হৈল জ্ঞান ॥৭৮॥
+
 > dvārakādi--vibhu, tāra ei ta pramāṇa
 > 'āmāra-i brahmāṇḍe kṛṣṇa' sabāra haila jñāna
 

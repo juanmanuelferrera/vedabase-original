@@ -1,5 +1,8 @@
 ### CC Madhya 24.182
 
+> কৃষ্ণভক্ত — দুঃখহীন, বাঞ্ছান্তর-হীন ।
+> কৃষ্ণপ্রেম-সেবা-পূর্ণানন্দ-প্রবীণ ॥১৮২॥
+
 kṛṣṇa-bhakta--duḥkha-hīna, vāñchāntara-hīna
 
 kṛṣṇa-prema-sevā-pūrṇānanda-pravīṇa

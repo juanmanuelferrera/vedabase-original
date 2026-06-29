@@ -1,5 +1,7 @@
 ### CC Madhya 15.281
 
+> এই ছার মুখে তোমার করিনু নিন্দনে ।। এত বলি’ আপন গালে চড়ায় আপনে ॥২৮১॥
+
 > ei chāra mukhe tomāra karinu nindane
 > eta bali' āpana gāle caḍāya āpane
 

@@ -1,5 +1,8 @@
 ### CC Madhya 25.10
 
+> বারাণসী-বাস আমার হয় সর্বকালে ।
+> সর্বকাল দুঃখ পাব, ইহা না করিলে ।।” ॥ ১০ ॥
+
 > vārāṇasī-vāsa āmāra haya sarva-kāle
 > sarva-kāla duḥkha pāba, ihā nā karile"
 

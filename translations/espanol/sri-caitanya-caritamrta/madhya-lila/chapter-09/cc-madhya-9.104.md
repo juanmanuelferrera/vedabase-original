@@ -1,5 +1,8 @@
 ### CC Madhya 9.104
 
+> তোমা দেখি’ তাহা হৈতে দ্বিগুণ সুখ হয় ৷
+> সেই কৃষ্ণ তুমি, — হেন মোর মনে লয় ৷৷ ১০৪ ৷৷ ॥১০৪॥
+
 > tomā dekhi' tāhā haite dvi-guṇa sukha haya
 > sei kṛṣṇa tumi,--hena mora mane laya
 

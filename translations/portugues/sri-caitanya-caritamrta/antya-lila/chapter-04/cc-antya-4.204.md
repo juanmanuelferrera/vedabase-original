@@ -1,5 +1,8 @@
 ### CC Antya 4.204
 
+> কণ্ডু করি’ পরীক্ষা করিলে সনাতনে  ।
+> এই লীলা-ভঙ্গী তোমার কেহ নাহি জানে ।।” ২০৪ ॥২০৪॥
+
 kaṇḍu kari' parīkṣā karile sanātane
 
 ei līlā-bhaṅgī tomāra keha nāhi jāne"

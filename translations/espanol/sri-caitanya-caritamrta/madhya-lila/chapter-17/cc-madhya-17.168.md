@@ -1,5 +1,8 @@
 ### CC Madhya 17.168
 
+> গোপাল প্রকট করি’ সেবা কৈল ‘মহাশয়’ ।
+> অদ্যাপিহ তাঁহার সেবা ‘গোবর্ধনে’ হয় ॥১৬৮॥
+
 > gopāla prakaṭa kari' sevā kaila 'mahāśaya'
 > adyāpiha tāṅhāra sevā 'govardhane' haya
 

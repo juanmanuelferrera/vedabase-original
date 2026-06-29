@@ -1,5 +1,8 @@
 ### CC Madhya 1.41
 
+> লঘুভাগবতামৃতাদি কে করু গণন ।
+> সর্বত্র করিল ব্রজবিলাস বর্ণন ॥৪১॥
+
 laghu-bhāgavatāmṛtādi ke karu gaṇana
 
 sarvatra karila vraja-vilāsa varṇana

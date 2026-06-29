@@ -1,5 +1,8 @@
 ### CC Madhya 19.71
 
+> ‘দুঁহার মুখে কৃষ্ণনাম করিছে নর্তন ।
+> এই-দুই ‘অধম’ নহে, হয় ‘সর্বোত্তম’ ॥৭১॥
+
 > 'duṅhāra mukhe kṛṣṇa-nāma kariche nartana
 > ei-dui 'adhama' nahe, haya 'sarvottama'
 

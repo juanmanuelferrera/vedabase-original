@@ -1,5 +1,8 @@
 ### CC Adi 9.26
 
+> মূলস্কন্ধের শাখা আর উপশাখাগণে ।
+> লাগিলা যে প্রেমফল, — অমৃতকে জিনে ॥২৬॥
+
 mūla-skandhera śākhā āra upaśākhā-gaṇe
 lāgilā ye prema-phala,--amṛtake jine
 

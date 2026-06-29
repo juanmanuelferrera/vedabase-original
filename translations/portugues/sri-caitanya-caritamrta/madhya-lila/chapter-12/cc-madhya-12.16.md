@@ -1,5 +1,8 @@
 ### CC Madhya 12.16
 
+> এত বলি’ সবে গেলা মহাপ্ৰভুর স্থানে ।
+> কহিতে উন্মুখ সবে, না কহে বচনে ॥১৬॥
+
 eta bali' sabe gelā mahāprabhura sthāne
 kahite unmukha sabe, nā kahe vacane
 

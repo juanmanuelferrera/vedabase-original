@@ -1,5 +1,8 @@
 ### CC Adi 4.183
 
+> এদেহ-দর্শন-স্পর্শে কৃষ্ণ-সন্তোষণ’ ।
+> এই লাগি’ করে দেহের মার্জন-ভূষণ ॥১৮৩॥
+
 e-deha-darśana-sparśe kṛṣṇa-santoṣaṇa'
 ei lāgi' kare dehera mārjana-bhūṣaṇa
 

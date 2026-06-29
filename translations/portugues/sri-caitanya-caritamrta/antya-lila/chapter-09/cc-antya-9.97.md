@@ -1,5 +1,8 @@
 ### CC Antya 9.97
 
+> মিশ্র কহে, “কৌড়ি ছাড়িবা, — নহে প্রভুর মন ।
+> তারা দুঃখ পায়, — এই না যায় সহন ।।” ॥ ৯৭ ॥
+
 miśra kahe, "kauḍi chāḍibā,--nahe prabhura mana
 
 tārā duḥkha pāya,--ei nā yāya sahana"

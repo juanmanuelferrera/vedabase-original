@@ -1,5 +1,8 @@
 ### CC Antya 5.139
 
+> ইন্দ্র বলে, — “মুঞি কৃষ্ণের করিয়াছি নিন্দন ।”
+> তারই মুখে সরস্বতী করেন স্তবন ॥১৩৯॥
+
 > indra bale,—"muñi kṛṣṇera kariyāchi nindana"
 > tāra-i mukhe sarasvatī karena stavana
 

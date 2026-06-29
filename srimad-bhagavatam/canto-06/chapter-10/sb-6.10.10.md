@@ -1,5 +1,8 @@
 ### SB 6.10.10
 
+> अहो दैन्यमहो कष्टं पारक्यैः क्षणभङ्गुरैः
+> यन्नोपकुर्यादस्वार्थैर्मर्त्यः स्वज्ञआतिविग्रहैः ॥१०॥
+
 > aho dainyam aho kaṣṭaṁ
 > pārakyaiḥ kṣaṇa-bhaṅguraiḥ
 > yan nopakuryād asvārthair

@@ -1,5 +1,8 @@
 ### CC Adi 17.135
 
+> এত কহি’ সন্ধ্যাকালে চলে গৌররায় ।
+> কীর্তনের কৈল প্রভু তিন সম্প্রদায় ॥১৩৫॥
+
 eta kahi' sandhyā-kale cāle gaurarāya
 kīrtanera kaila prabhu tina sampradāya
 

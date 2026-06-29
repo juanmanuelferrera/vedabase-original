@@ -1,5 +1,8 @@
 ### SB 9.3.23
 
+> शशंस पित्रे तत्सर्वं वयोरूपाभिलम्भनम
+> विस्मितः परमप्रीतस्तनयां परिषस्वजे ॥२३॥
+
 > śaśaṁsa pitre tat sarvaṁ
 > vayo-rūpābhilambhanam
 > vismitaḥ parama-prītas

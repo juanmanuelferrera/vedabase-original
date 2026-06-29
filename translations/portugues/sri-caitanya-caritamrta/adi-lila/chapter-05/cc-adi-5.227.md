@@ -1,5 +1,8 @@
 ### CC Adi 5.227
 
+> হেন যে গোবিন্দ প্রভু, পাইনু যাঁহা হৈতে ।
+> তাঁহার চরণ-কৃপা কে পারে বর্ণিতে ॥২২৭॥
+
 hena ye govinda prabhu, pāinu yāṅhā haite
 
 tāṅhāra caraṇa-kṛpā ke pāre varṇite

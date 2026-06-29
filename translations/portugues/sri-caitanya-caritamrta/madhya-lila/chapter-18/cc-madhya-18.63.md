@@ -1,5 +1,8 @@
 ### CC Madhya 18.63
 
+> সব দিন প্রেমাবেশে নৃত্য-গীত কৈলা ।
+> তাহাঁ হৈতে মহাপ্রভু ‘খদির-বন’ আইলা ॥৬৩॥
+
 saba dina premāveśe nṛtya-gīta kailā
 
 tāhāṅ haite mahāprabhu 'khadira-vana, āilā

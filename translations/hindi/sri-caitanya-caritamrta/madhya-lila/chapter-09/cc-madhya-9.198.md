@@ -1,5 +1,8 @@
 ### CC Madhya 9.198
 
+> দুর্বশনে রঘুনাথে কৈল দরশন ।
+> মহেন্দ্র-শৈলে পরশুরামের কৈল বন্দন ॥১৯৮॥
+
 > durvaśane raghunāthe kaila daraśana
 > mahendra-śaile paraśurāmera kaila vandana
 

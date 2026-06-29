@@ -1,5 +1,8 @@
 ### SB 6.8.12
 
+> ओं हरिर्विदध्यान्मम सर्वरक्षां न्यस्ताङ्घ्रिपद्मः पतगेन्द्रपृष्ठे
+> दरारिचर्मासिगदेषुचाप पाशान्दधानोऽष्टगुणोऽष्टबाहुः ॥१२॥
+
 > oṁ harir vidadhyān mama sarva-rakṣāṁ
 > nyastāṅghri-padmaḥ patagendra-pṛṣṭhe
 > darāri-carmāsi-gadeṣu-cāpa-

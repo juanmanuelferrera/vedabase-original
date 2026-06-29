@@ -1,5 +1,8 @@
 ### CC Antya 10.71
 
+> প্রভু পড়ি’ মূর্ছা যায়, শ্বাস নাহি আর ।
+> আচম্বিতে উঠে প্রভু করিয়া হুঙ্কার ॥৭১॥
+
 > prabhu paḍi' mūrchā yāya, śvāsa nāhi āra
 > ācambite uṭhe prabhu kariyā huṅkāra
 

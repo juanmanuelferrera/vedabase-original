@@ -1,5 +1,8 @@
 ### CC Madhya 25.209
 
+> গঙ্গাতীর-পথে প্রভু প্রয়াগেরে আইলা ।
+> তাহা শুনি’ দুইভাই সে পথে চলিলা ॥২০৯॥
+
 gaṅgā-tīra-pathe prabhu prayāgere āilā
 
 tāhā śuni' dui-bhāi se pathe calilā

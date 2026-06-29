@@ -1,5 +1,8 @@
 ### CC Madhya 9.179
 
+> সেই বিপ্র মহাপ্রভুকে কৈল নিমন্ত্রণ ।
+> রামভক্ত সেই বিপ্র — বিরক্ত মহাজন ॥১৭৯॥
+
 > sei vipra mahāprabhuke kaila nimantraṇa
 > rāma-bhakta sei vipra—virakta mahājana
 

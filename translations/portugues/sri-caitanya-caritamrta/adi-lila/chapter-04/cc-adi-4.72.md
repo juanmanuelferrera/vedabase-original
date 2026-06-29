@@ -1,5 +1,10 @@
 ### CC Adi 4.72
 
+> আনন্দচিন্ময়রসপ্রতিভাবিতাভি-
+> স্তাভির্য এব নিজরূপতয়া কলাভিঃ ।
+> গোলোক এব নিবসত্যখিলাত্মভূতো
+> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥৭২॥
+
 ānanda-cinmaya-rasa-pratibhāvitābhis
 tābhir ya eva nija-rūpatayā kalābhiḥ
 goloka eva nivasaty akhilātma-bhūto

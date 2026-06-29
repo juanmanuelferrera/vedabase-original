@@ -1,5 +1,8 @@
 ### SB 8.13.26
 
+> आर्यकस्य सुतस्तत्र धर्मसेतुरिति स्मृतः
+> वैधृतायां हरेरंशस्त्रिलोकीं धारयिष्यति ॥२६॥
+
 > āryakasya sutas tatra
 > dharmasetur iti smṛtaḥ
 > vaidhṛtāyāṁ harer aṁśas

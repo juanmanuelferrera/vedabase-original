@@ -1,5 +1,8 @@
 ### CC Madhya 13.161
 
+> এই সব অর্থ প্রভু স্বরূপের সনে ।
+> রাত্রি-দিনে ঘরে বসি’ করে আস্বাদনে ॥১৬১॥
+
 > ei saba artha prabhu svarūpera sane
 > rātri-dine ghare vasi' kare āsvādane
 

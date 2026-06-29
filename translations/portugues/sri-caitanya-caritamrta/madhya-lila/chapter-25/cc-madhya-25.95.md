@@ -1,5 +1,8 @@
 ### CC Madhya 25.95
 
+> ব্রহ্মারে ঈশ্বর চতুঃশ্লোকী যে কহিলা ।
+> ব্রহ্মা নারদে সেই উপদেশ কৈলা ॥৯৫॥
+
 brahmāre īśvara catuḥ-ślokī ye kahilā
 
 brahmā nārade sei upadeśa kailā

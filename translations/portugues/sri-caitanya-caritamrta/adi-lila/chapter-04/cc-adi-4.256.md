@@ -1,5 +1,8 @@
 ### CC Adi 4.256
 
+> লীলা-অন্তে সুখে ইঁহার অঙ্গের মাধুরী ।
+> তাহা দেখি’ সুখে আমি আপনা পাশরি ॥২৫৬॥
+
 līlā-ante sukhe iṅhāra aṅgera mādhurī
 tāhā dekhi' sukhe āmi āpanā pāśari
 

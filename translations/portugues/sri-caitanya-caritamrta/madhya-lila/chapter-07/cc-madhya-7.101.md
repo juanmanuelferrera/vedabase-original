@@ -1,5 +1,8 @@
 ### CC Madhya 7.101
 
+> যারে দেখে, তারে কহে, — কহ কৃষ্ণনাম ৷
+> এইমত ‘বৈষ্ণব’ কৈল সব নিজ-গ্রাম ৷৷ ১০১ ৷৷ ॥১০১॥
+
 yāre dekhe, tāre kahe,--kaha kṛṣṇa-nāma
 
 ei-mata 'vaiṣṇava' kaila saba nija-grāma

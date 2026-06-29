@@ -1,5 +1,8 @@
 ### CC Madhya 15.283
 
+> প্রভু আশ্বাসন করে স্পর্শি’ তার গাত্র ।
+> সার্বভৌম-সম্বন্ধে তুমি মোর স্নেহপাত্র ॥২৮৩॥
+
 > prabhu āśvāsana kare sparśi' tāra gātra
 > sārvabhauma-sambandhe tumi mora sneha-pātra
 

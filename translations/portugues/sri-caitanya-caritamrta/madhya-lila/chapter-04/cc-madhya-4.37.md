@@ -1,5 +1,8 @@
 ### CC Madhya 4.37
 
+> গ্রামের লোক আনি’ আমা কাঢ়’ কুঞ্জ হৈতে ৷
+> পর্বত-উপরি লঞা রাখ ভালমতে ॥৩৭॥
+
 grāmera loka āni' āmā kāḍha' kuñja haite
 parvata-upari lañā rākha bhāla-mate
 

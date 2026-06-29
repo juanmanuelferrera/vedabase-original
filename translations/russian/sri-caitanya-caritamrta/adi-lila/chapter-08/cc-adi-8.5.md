@@ -1,5 +1,8 @@
 ### CC Adi 8.5
 
+> মূক কবিত্ব করে যাঁ-সবার স্মরণে ।
+> পঙ্গু গিরি লঙ্ঘে, অন্ধ দেখে তারাগণে ॥৫॥
+
 > mūka kavitva kare yāṅ-sabāra smaraṇe
 > paṅgu giri laṅghe, andha dekhe tārā-gaṇe
 

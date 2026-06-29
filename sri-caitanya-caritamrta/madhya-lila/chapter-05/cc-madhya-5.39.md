@@ -1,5 +1,8 @@
 ### CC Madhya 5.39
 
+> নীচে কন্যা দিলে কুল যাইবেক নাশ ।
+> শুনিঞা সকল লোক করিবে উপহাস ।।’ ॥ ৩৯ ॥
+
 > nīce kanyā dile kula yāibeka nāśa
 > śuniñā sakala loka karibe upahāsa'
 

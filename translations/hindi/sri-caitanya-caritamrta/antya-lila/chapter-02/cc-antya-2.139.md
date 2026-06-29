@@ -1,5 +1,8 @@
 ### CC Antya 2.139
 
+> প্রভু হঠে পড়িয়াছে স্বতন্ত্র ঈশ্বর  ।
+> কভু কৃপা করিবেন যাতে দয়ালু অন্তর ॥১৩৯॥
+
 > prabhu haṭhe paḍiyāche svatantra īśvara
 > kabhu kṛpā karibena yāte dayālu antara
 

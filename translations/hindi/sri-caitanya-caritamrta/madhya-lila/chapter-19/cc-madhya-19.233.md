@@ -1,5 +1,8 @@
 ### CC Madhya 19.233
 
+> আকাশাদি গুণ যেন পর পর ভূতে  ।
+> এক-দুই-তিন-চারি ক্রমে পঞ্চ পৃথিবীতে ॥২৩৩॥
+
 > ākāśādi guṇa yena para para bhūte
 > eka-dui-tina-cāri krame pañca pṛthivīte
 

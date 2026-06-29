@@ -1,5 +1,10 @@
 ### SB 7.9.29
 
+> मत्प्राणरक्षणमनन्त पितुर्वधश्च
+> मन्ये स्वभृत्यऋषिवाक्यमृतं विधातुम
+> खड्गं प्रगृह्य यदवोचदसद्विधित्सुस
+> त्वामीश्वरो मदपरोऽवतु कं हरामि ॥२९॥
+
 > mat-prāṇa-rakṣaṇam ananta pitur vadhaś ca
 > manye sva-bhṛtya-ṛṣi-vākyam ṛtaṁ vidhātum
 > khaḍgaṁ pragṛhya yad avocad asad-vidhitsus

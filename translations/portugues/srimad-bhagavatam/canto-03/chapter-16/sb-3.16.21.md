@@ -1,5 +1,10 @@
 ### SB 3.16.21
 
+> यस्तां विविक्तचरितैरनुवर्तमानां
+> नात्याद्रियत्परमभागवतप्रसङ्गः ।
+> स त्वं द्विजानुपथपुण्यरजःपुनीतः
+> श्रीवत्सलक्ष्म किमगा भगभाजनस्त्वम् ॥२१॥
+
 *yas tāṁ vivikta*-caritair anuvartamānāṁ
 *nātyādriyat parama*-bhāgavata-prasaṅgaḥ
 *sa tvaṁ dvijānupatha*-puṇya-rajaḥ-punītaḥ

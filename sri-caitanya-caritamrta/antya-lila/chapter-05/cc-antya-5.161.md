@@ -1,5 +1,8 @@
 ### CC Antya 5.161
 
+> প্রস্তাবে কহিলুঁ কবির নাটক-বিবরণ ।
+> অজ্ঞ হঞা শ্রদ্ধায় পাইল প্রভুর চরণ ॥১৬১॥
+
 > prastāve kahiluṅ kavira nāṭaka-vivaraṇa
 > ajña hañā śraddhāya pāila prabhura caraṇa
 

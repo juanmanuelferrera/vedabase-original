@@ -1,5 +1,8 @@
 ### CC Madhya 9.276
 
+> প্রভু কহে, — কর্মী, জ্ঞানী, — দুই ভক্তিহীন ।
+> তোমার সম্প্রদায়ে দেখি সেই দুই চিহ্ন ॥২৭৬॥
+
 > prabhu kahe,--karmī, jñānī,--dui bhakti-hīna
 > tomāra sampradāye dekhi sei dui cihna
 

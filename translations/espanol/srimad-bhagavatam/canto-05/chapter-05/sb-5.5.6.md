@@ -1,5 +1,8 @@
 ### SB 5.5.6
 
+> एवं मनः कर्मवशं प्रयुङ्क्ते अविद्ययात्मन्युपधीयमाने
+> प्रीतिर्न यावन्मयि वासुदेवे न मुच्यते देहयोगेन तावत ॥६॥
+
 > evaṁ manaḥ karma-vaśaṁ prayuṅkte
 > avidyayātmany upadhīyamāne
 > prītir na yāvan mayi vāsudeve

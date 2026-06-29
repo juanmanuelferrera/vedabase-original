@@ -1,5 +1,8 @@
 ### CC Madhya 13.122
 
+> এই শ্লোক মহাপ্রভু পড়ে বার বার ।
+> স্বরূপ বিনা অর্থ কেহ না জানে ইহার ॥১২২॥
+
 > ei śloka mahāprabhu paḍe bāra bāra
 > svarūpa vinā artha keha nā jāne ihāra
 

@@ -1,5 +1,8 @@
 ### CC Madhya 9.131
 
+> ব্রজলোকের ভাবে যেই করয়ে ভজন ৷
+> সেই জন পায় ব্রজে ব্রজেন্দ্রনন্দন ৷৷ ১৩১ ৷৷ ॥১৩১॥
+
 > vraja-lokera bhāve yei karaye bhajana
 > sei jana pāya vraje vrajendra-nandana
 

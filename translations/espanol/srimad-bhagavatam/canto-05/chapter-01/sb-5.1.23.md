@@ -1,5 +1,7 @@
 ### SB 5.1.23
 
+> इति ह वाव स जगतीपतिरीश्वरेच्छयाधिनिवेशितकर्माधिकारोऽखिलजगद्बन्धध्वंसनपरानुभावस्य भगवत आदिपुरुषस्याङ्घ्रियुगलानवरतध्यानानुभावेन परिरन्धितकषायाशयोऽवदातोऽपि मानवर्धनो महतां महीतलमनुशशास ॥२३॥
+
 > iti ha vāva sa jagatī-patir īśvarecchayādhiniveśita-karmādhikāro 'khila-jagad-bandha-dhvaṁsana-parānubhāvasya bhagavata ādi-puruṣasyāṅghri-yugalānavarata-dhyānānubhāvena parirandhita-kaṣāyāśayo 'vadāto 'pi māna-vardhano mahatāṁ mahītalam anuśaśāsa.
 
 *iti*—así; *ha vāva*—en verdad; *saḥ*—él; *jagatī-patiḥ*—el emperador de todo el universo; *īśvara-icchayā*—por la orden de la Suprema Personalidad de Dios; *adhiniveśita*—completamente ocupado; *karma-adhikāraḥ*—en asuntos materiales; *akhila-jagat*—del universo entero; *bandha*—cautiverio; *dhvaṁsana*—destruir; *para*—trascendental; *anubhāvasya*—cuya influencia; *bhagavataḥ*—de la Suprema Personalidad de Dios; *ādi-puruṣasya*—la persona original; *aṅghri*—en los pies de loto; *yugala*—dos; *anavarata*—constante; *dhyāna-anubhāvena*—por meditación; *parirandhita*—destruidas; *kaṣāya*—todas las cosas sucias; *āśayaḥ*—en su corazón; *avadātaḥ*—completamente puro; *api*—aunque; *māna-vardhanaḥ*—solo para honrar; *mahatām*—a superiores; *mahītalam*—el mundo material; *anuśaśāsa*—gobernó.

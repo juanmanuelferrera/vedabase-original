@@ -1,5 +1,8 @@
 ### CC Madhya 16.219
 
+> নদীয়া-বাসী ব্রাহ্মণের উপজীব্য-প্রায় ।
+> অর্থ, ভূমি, গ্রাম দিয়া করেন সহায় ॥২১৯॥
+
 nadīyā-vāsī, brāhmaṇera upajīvya-prāya
 
 artha, bhūmi, grāma diyā karena sahāya

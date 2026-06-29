@@ -1,5 +1,8 @@
 ### CC Antya 8.13
 
+> আগ্রহ করিয়া তাঁরে বসি’ খাওয়াইল ।
+> আপনে আগ্রহ করি’ পরিবেশন কৈল ॥১৩॥
+
 > āgraha kariyā tāṅre vasi' khāoyāila
 > āpane āgraha kari' pariveśana kaila
 

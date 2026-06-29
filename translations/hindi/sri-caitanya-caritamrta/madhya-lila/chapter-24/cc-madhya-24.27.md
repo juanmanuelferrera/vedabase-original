@@ -1,5 +1,8 @@
 ### CC Madhya 24.27
 
+> ‘হেতু’-শব্দে কহে — ভুক্তি-আদি বাঞ্ছান্তরে ।
+> ভুক্তি, সিদ্ধি, মুক্তি — মুখ্য এই তিন প্রকারে ॥২৭॥
+
 > 'hetu'-śabde kahe--bhukti-ādi vāñchāntare
 > bhukti, siddhi, mukti--mukhya ei tina prakāre
 

@@ -1,5 +1,8 @@
 ### SB 6.3.13
 
+> यो नामभिर्वाचि जनं निजायां बध्नाति तन्त्र्यामिव दामभिर्गाः
+> यस्मै बलिं त इमे नामकर्म निबन्धबद्धाश्चकिता वहन्ति ॥१३॥
+
 > yo nāmabhir vāci janaṁ nijāyāṁ
 > badhnāti tantryām iva dāmabhir gāḥ
 > yasmai baliṁ ta ime nāma-karma-

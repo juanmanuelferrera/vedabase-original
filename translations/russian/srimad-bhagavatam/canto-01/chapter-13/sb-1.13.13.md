@@ -1,5 +1,8 @@
 ### SB 1.13.13
 
+> नन्वप्रियं दुर्विषहं नृणां स्वयमुपस्थितम् ।
+> नावेदयत्सकरुणो दुःखितान्द्रष्टुमक्षमः ॥१३॥
+
 > nanv apriyaṁ durviṣahaṁ
 > nṛṇāṁ svayam upasthitam
 > nāvedayat sakaruṇo

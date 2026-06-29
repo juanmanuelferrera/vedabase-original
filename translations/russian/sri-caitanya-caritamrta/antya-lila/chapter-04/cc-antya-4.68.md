@@ -1,5 +1,8 @@
 ### CC Antya 4.68
 
+> দীনেরে অধিক দয়া করেন ভগবান্ ।
+> কুলীন, পণ্ডিত, ধনীর বড় অভিমান ॥৬৮॥
+
 > dīnere adhika dayā kare bhagavān
 > kulīna, paṇḍita, dhanīra baḍa abhimāna
 

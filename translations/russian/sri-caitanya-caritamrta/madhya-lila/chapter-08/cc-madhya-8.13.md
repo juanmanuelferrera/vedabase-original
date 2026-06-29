@@ -1,5 +1,8 @@
 ### CC Madhya 8.13
 
+> ঘাট ছাড়ি’ কতদূরে জল-সন্নিধানে ।
+> বসি’ প্রভু করে কৃষ্ণনাম-সংকীর্তনে ॥১৩॥
+
 > ghāṭa chāḍi' kata-dūre jala-sannidhāne
 > vasi' prabhu kare kṛṣṇa-nāma-saṅkīrtane
 

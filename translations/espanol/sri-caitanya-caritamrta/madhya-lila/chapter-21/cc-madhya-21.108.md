@@ -1,5 +1,10 @@
 ### CC Madhya 21.108
 
+> নিজ-সম সখা-সঙ্গে, গোগণ-চারণ রঙ্গে,
+> বৃন্দাবনে স্বচ্ছন্দ বিহার ।
+> যাঁর বেণু-ধ্বনি শুনি,’ স্থাবর-জঙ্গম প্রাণী,
+> পুলক, কম্প, অশ্রু বহে ধার ॥১০৮॥
+
 > nija-sama sakhā-saṅge, go-gaṇa-cāraṇa raṅge,
 > vṛndāvane svacchanda vihāra
 > yāṅra veṇu-dhvani śuni' sthāvara-jaṅgama prāṇī,

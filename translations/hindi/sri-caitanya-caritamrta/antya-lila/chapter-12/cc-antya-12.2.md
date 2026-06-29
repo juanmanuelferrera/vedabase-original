@@ -1,5 +1,8 @@
 ### CC Antya 12.2
 
+> জয় জয় শ্রীচৈতন্য জয় দয়াময় ।
+> জয় জয় নিত্যানন্দ কৃপাসিন্ধু জয় ॥২॥
+
 > jaya jaya śrī-caitanya jaya dayāmaya
 > jaya jaya nityānanda kṛpā-sindhu jaya
 

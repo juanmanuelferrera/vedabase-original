@@ -1,5 +1,8 @@
 ### CC Antya 12.104
 
+> গোবিন্দের ঠাঞি তৈল ধরিয়া রাখিলা ।
+> “প্রভু-অঙ্গে দিহ’ তৈল” গোবিন্দে কহিলা ॥১০৪॥
+
 govindera ṭhāñi taila dhariyā rākhilā
 
 "prabhu-aṅge diha' taila" govinde kahilā

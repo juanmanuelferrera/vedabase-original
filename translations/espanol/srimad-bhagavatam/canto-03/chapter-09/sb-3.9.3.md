@@ -1,5 +1,10 @@
 ### SB 3.9.3
 
+> नातः परं परम यद्भवतः स्वरूपम्
+> आनन्दमात्रमविकल्पमविद्धवर्चः ।
+> पश्यामि विश्वसृजमेकमविश्वमात्मन्
+> भूतेन्द्रियात्मकमदस्त उपाश्रितोऽस्मि ॥३॥
+
 > nātaḥ paraṁ parama yad bhavataḥ svarūpam
 > ānanda-mātram avikalpam aviddha-varcaḥ
 > paśyāmi viśva-sṛjam ekam aviśvam ātman

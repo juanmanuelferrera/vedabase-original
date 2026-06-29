@@ -1,5 +1,8 @@
 ### CC Adi 16.94
 
+> শাস্ত্রের বিচার ভাল-মন্দ নাহি জানি ।
+> সরস্বতী যে বলায়, সেই বলি বাণী ॥৯৪॥
+
 śāstrera vicāra bhāla-manda nāhi jāni
 
 sarasvatī ye balāya, sei bali vāṇī

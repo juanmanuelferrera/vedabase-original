@@ -1,5 +1,8 @@
 ### CC Madhya 23.71
 
+> বিবিধাদ্ভুতভাষাবিৎ সত্যবাক্যঃ প্রিয়ংবদঃ ।
+> বাবদূকঃ সুপাণ্ডিত্যো বুদ্ধিমান্ প্রতিভান্বিতঃ ॥৭১॥
+
 > vividhādbhuta-bhāṣā-vit
 > satya-vākyaḥ priyaṁ vadaḥ
 > vāvadūkaḥ supāṇḍityo

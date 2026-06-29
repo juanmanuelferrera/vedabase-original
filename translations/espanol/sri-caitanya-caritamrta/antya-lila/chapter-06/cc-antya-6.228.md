@@ -1,5 +1,8 @@
 ### CC Antya 6.228
 
+> আর দিন রঘুনাথ স্বরূপ-চরণে ।
+> আপনার কৃত্য লাগি’ কৈলা নিবেদনে ॥২২৮॥
+
 > āra dina raghunātha svarūpa-caraṇe
 > āpanāra kṛtya lāgi' kailā nivedane
 

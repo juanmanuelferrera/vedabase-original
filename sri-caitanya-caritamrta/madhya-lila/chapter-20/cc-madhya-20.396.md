@@ -1,5 +1,8 @@
 ### CC Madhya 20.396
 
+> গোলোক, গোকুল-ধাম — ‘বিভু’ কৃষ্ণসম ।
+> কৃষ্ণেচ্ছায় ব্রহ্মাণ্ডগণে তাহার সংক্রম ॥৩৯৬॥
+
 > goloka, gokula-dhāma—'vibhu' kṛṣṇa-sama
 > kṛṣṇecchāya brahmāṇḍa-gaṇe tāhāra saṅkrama
 

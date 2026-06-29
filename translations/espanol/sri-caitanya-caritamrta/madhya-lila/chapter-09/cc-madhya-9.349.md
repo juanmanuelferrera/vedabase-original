@@ -1,5 +1,8 @@
 ### CC Madhya 9.349
 
+> কাশীমিশ্র আসি’ প্রভুর পড়িলা চরণে ৷
+> মান্য করি’ প্রভু তাঁরে কৈল আলিঙ্গনে ৷৷ ৩৪৯ ৷৷ ॥৩৪৯॥
+
 > kāśī-miśra āsi' prabhura paḍilā caraṇe
 > mānya kari' prabhu tāṅre kaila āliṅgane
 

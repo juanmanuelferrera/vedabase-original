@@ -1,5 +1,8 @@
 ### CC Madhya 13.26
 
+> রথে চড়ি’ জগন্নাথ করিলা গমন ।
+> দুইপার্শ্বে দেখি’ চলে আনন্দিত-মন ॥২৬॥
+
 rathe caḍi' jagannātha karilā gamana
 
 dui-pārśve dekhi' cale ānandita-mana

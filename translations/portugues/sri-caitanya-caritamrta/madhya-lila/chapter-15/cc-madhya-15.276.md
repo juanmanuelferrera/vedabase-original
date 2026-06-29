@@ -1,5 +1,8 @@
 ### CC Madhya 15.276
 
+> সার্বভৌম-সঙ্গে তোমার ‘কলুষ’ হৈল ক্ষয় ।
+> ‘কল্মষ’ ঘুচিলে জীব ‘কৃষ্ণনাম’ লয় ॥২৭৬॥
+
 sārvabhauma-saṅge tomāra 'kaluṣa' haila kṣaya
 
 'kalmaṣa' ghucile jīva 'kṛṣṇa-nāma' laya

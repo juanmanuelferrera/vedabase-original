@@ -1,5 +1,8 @@
 ### CC Adi 5.84
 
+> জগৃহে পৌরুষং রূপং ভগবান্মহদাদিভিঃ ।
+> সম্ভূতং ষোড়শকলমাদৌ লোকসিসৃক্ষয়া ॥৮৪॥
+
 > jagṛhe pauruṣaṁ rūpaṁ
 > bhagavān mahad-ādibhiḥ
 > sambhūtaṁ ṣoḍaśa-kalam

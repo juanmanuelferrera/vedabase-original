@@ -1,5 +1,8 @@
 ### SB 1.18.43
 
+> अलक्ष्यमाणे नरदेवनाम्नि रथाङ्गपाणावयमङ्ग लोकः ।
+> तदा हि चौरप्रचुरो विनङ्क्ष्यत्यरक्ष्यमाणोऽविवरूथवत्क्षणात् ॥४३॥
+
 > alakṣyamāṇe nara-deva-nāmni
 > rathāṅga-pāṇāv ayam aṅga lokaḥ
 > tadā hi caura-pracuro vinaṅkṣyaty

@@ -1,5 +1,8 @@
 ### CC Madhya 8.74
 
+> প্রভু কহে, — “এহো হয়, কিছু আগে আর ।”
+> রায় কহে, — “সখ্য-প্রেম — সর্বসাধ্যসার ।।” ॥৭৪॥
+
 > prabhu kahe, "eho haya, kichu āge āra"
 > rāya kahe, "sakhya-prema—sarva-sādhya-sāra"
 

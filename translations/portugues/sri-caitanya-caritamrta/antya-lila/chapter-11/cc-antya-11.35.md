@@ -1,5 +1,8 @@
 ### CC Antya 11.35
 
+> মোর এই ইচ্ছা যদি তোমার প্রসাদে হয় ।
+> এই নিবেদন মোর কর, দয়াময় ॥৩৫॥
+
 mora ei icchā yadi tomāra prasāde haya
 
 ei nivedana mora kara, dayāmaya

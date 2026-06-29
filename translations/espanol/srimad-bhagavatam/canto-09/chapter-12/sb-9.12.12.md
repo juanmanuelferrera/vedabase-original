@@ -1,5 +1,8 @@
 ### SB 9.12.12
 
+> भविता मरुदेवोऽथ सुनक्षत्रोऽथ पुष्करः
+> तस्यान्तरिक्षस्तत्पुत्रः सुतपास्तदमित्रजित ॥१२॥
+
 > bhavitā marudevo 'tha
 > sunakṣatro 'tha puṣkaraḥ
 > tasyāntarikṣas tat-putraḥ

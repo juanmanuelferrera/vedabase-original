@@ -1,5 +1,8 @@
 ### CC Adi 2.81
 
+> তৈছে কৃষ্ণ অবতার-ভিতরে হৈল জ্ঞাত ।
+> তাঁহার বিশেষ-জ্ঞান সেই অবিজ্ঞাত ॥৮১॥
+
 > taiche kṛṣṇa avatāra-bhitare haila jñāta
 > tāṅhāra viśeṣa-jñāna sei avijñāta
 

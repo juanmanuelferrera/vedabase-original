@@ -3,6 +3,9 @@
 > pūrva-dike tāte māṭī alpa khudite
 > dhanera jhāri paḍibeka tomāra hātete
 
+> pūrva-dike tāte māṭī alpa khudite
+> dhanera jhāri paḍibeka tomāra hātete
+
 *pūrva-dike*—en el lado oriental; *tāte*—allí; *māṭī*—la tierra; *alpa*—una pequeña cantidad; *khudite*—al cavar; *dhanera*—del tesoro; *jhāri*—la vasija; *paḍibeka*—obtendrás; *tomāra*—en tus; *hātete*—manos.
 
 **«"Sin embargo, si cavas una pequeña cantidad de tierra en el lado oriental, tus manos tocarán de inmediato la vasija del tesoro".**

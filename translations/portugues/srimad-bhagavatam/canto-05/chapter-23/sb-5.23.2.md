@@ -1,5 +1,7 @@
 ### SB 5.23.2
 
+> स हि सर्वेषां ज्योतिर्गणानां ग्रहनक्षत्रादीनामनिमिषेणाव्यक्तरंहसा भगवता कालेनभ्राम्यमाणानां स्थाणुरिवावष्टम्भ ईश्वरेण विहितः शश्वदवभासते ॥२॥
+
 *sa hi sarveṣāṁ jyotir*-gaṇānāṁ graha-nakṣatrādīnām animiṣeṇāvyakta-raṁhasā bhagavatā kālena bhrāmyamāṇānāṁ sthāṇur ivāvaṣṭambha īśvareṇa vihitaḥ śaśvad avabhāsate.
 
 *saḥ*—esse planeta de Dhruva Mahārāja; *hi*—de fato; *sarveṣām*—de todas; *jyotiḥ-gaṇānām*—as luminárias; *graha-nakṣatra-ādīnām*—tais como os planetas e estrelas; *animiṣeṇa*—que não descansa; *avyakta*—inconcebível; *raṁhasā*—cuja força; *bhagavatā*—o mais poderoso; *kālena*—pelo fator tempo; *bhrāmyamāṇānām*—sendo levados a girar; *sthāṇuḥ iva*—como um poste; *avaṣṭambhaḥ*—o pivô; *īśvareṇa*—pela vontade da Suprema Personalidade de Deus; *vihitaḥ*—estabelecido; *śaśvat*—constantemente; *avabhāsate*—brilha.

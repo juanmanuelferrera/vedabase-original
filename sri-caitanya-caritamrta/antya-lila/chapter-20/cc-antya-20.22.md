@@ -1,5 +1,8 @@
 ### CC Antya 20.22
 
+> উত্তম হঞা আপনাকে মানে তৃণাধম ।
+> দুইপ্রকারে সহিষ্ণুতা করে বৃক্ষসম ॥২২॥
+
 > uttama hañā āpanāke māne tṛṇādhama
 > dui-prakāre sahiṣṇutā kare vṛkṣa-sama
 

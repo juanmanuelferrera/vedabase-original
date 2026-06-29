@@ -1,5 +1,8 @@
 ### SB 9.7.16
 
+> रोहितस्तदभिज्ञआय पितुः कर्म चिकीर्षितम
+> प्राणप्रेप्सुर्धनुष्पाणिररण्यं प्रत्यपद्यत ॥१६॥
+
 > rohitas tad abhijñāya
 > pituḥ karma cikīrṣitam
 > prāṇa-prepsur dhanuṣ-pāṇir

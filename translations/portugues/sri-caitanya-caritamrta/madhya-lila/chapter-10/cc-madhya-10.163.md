@@ -1,5 +1,8 @@
 ### CC Madhya 10.163
 
+> সাম্প্রতিক ‘দুই ব্রহ্ম’ ইহাঁ ‘চলাচল’ ৷
+> জগন্নাথ — অচল ব্রহ্ম, তুমি ত’ সচল ৷৷ ১৬৩ ৷৷ ॥১৬৩॥
+
 sāmpratika 'dui brahma' ihāṅ 'calācala'
 
 jagannātha-acala brahma, tumi ta' sacala

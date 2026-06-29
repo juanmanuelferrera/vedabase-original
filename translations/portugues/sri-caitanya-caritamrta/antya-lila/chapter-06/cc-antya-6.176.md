@@ -1,5 +1,8 @@
 ### CC Antya 6.176
 
+> এথা তাঁর সেবক রক্ষক তাঁরে না দেখিয়া ।
+> তাঁর গুরুপাশে বার্তা পুছিলেন গিয়া ॥১৭৬॥
+
 ethā tāṅra sevaka rakṣaka tāṅre nā dekhiyā
 
 tāṅra guru-pāśe vārtā puchilena giyā

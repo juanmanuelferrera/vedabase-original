@@ -1,5 +1,8 @@
 ### SB 8.15.23
 
+> तां देवधानीं स वरूथिनीपतिर्बहिः समन्ताद्रुरुधे पृतन्यया
+> आचार्यदत्तं जलजं महास्वनं दध्मौ प्रयुञ्जन्भयमिन्द्रयोषिताम ॥२३॥
+
 > tāṁ deva-dhānīṁ sa varūthinī-patir
 > bahiḥ samantād rurudhe pṛtanyayā
 > ācārya-dattaṁ jalajaṁ mahā-svanaṁ

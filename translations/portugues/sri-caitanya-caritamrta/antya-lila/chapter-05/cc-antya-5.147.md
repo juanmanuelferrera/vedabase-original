@@ -1,5 +1,8 @@
 ### CC Antya 5.147
 
+> তৈছে এই শ্লোকে তোমার অর্থে ‘নিন্দা’ আইসে ।
+> সরস্বতীর অর্থ শুন, যাতে ‘স্তুতি’ ভাসে ॥১৪৭॥
+
 taiche ei śloke tomāra arthe 'nindā' āise
 
 sarasvatīra artha śuna, yāte 'stuti' bhāse

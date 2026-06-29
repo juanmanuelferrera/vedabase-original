@@ -1,5 +1,8 @@
 ### SB 5.12.14
 
+> अहं पुरा भरतो नाम राजा विमुक्तदृष्टश्रुतसङ्गबन्धः
+> आराधनं भगवत ईहमानो मृगोऽभवं मृगसङ्गाद्धतार्थः ॥१४॥
+
 > ahaṁ purā bharato nāma rājā
 > vimukta-dṛṣṭa-śruta-saṅga-bandhaḥ
 > ārādhanaṁ bhagavata īhamāno

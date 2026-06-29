@@ -1,5 +1,10 @@
 ### CC Madhya 13.80
 
+> নাহং বিপ্রো ন চ নরপতির্নাপি বৈশ্যো ন শূদ্রো
+> নাহং বর্ণী ন চ গৃহপতির্নো বনস্থো যতির্বা ।
+> কিন্তু প্রোদ্যন্নিখিলপরমানন্দপূর্ণামৃতাব্ধে-
+> র্গোপীভর্তুঃ পদকমলয়োর্দাসদাসানুদাসঃ ॥৮০॥
+
 > nāhaṁ vipro na ca nara-patir nāpi vaiśyo na śūdro
 > nāhaṁ varṇī na ca gṛha-patir no vanastho yatir vā
 > kintu prodyan-nikhila-paramānanda-pūrnāmṛtābdher

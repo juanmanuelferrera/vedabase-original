@@ -1,5 +1,8 @@
 ### CC Madhya 23.8
 
+> অনন্যমমতা বিষ্ণৌ মমতা প্রেমসঙ্গতা ।
+> ভক্তিরিত্যুচ্যতে ভীষ্মপ্রহ্লাদোদ্ধব-নারদৈঃ ॥৮॥
+
 ananya-mamatā viṣṇau
 mamatā prema-saṅgatā
 bhaktir ity ucyate bhīṣma-

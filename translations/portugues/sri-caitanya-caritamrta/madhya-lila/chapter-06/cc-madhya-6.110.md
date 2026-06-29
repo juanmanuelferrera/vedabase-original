@@ -1,5 +1,8 @@
 ### CC Madhya 6.110
 
+> তবে ভট্টাচার্য কহে, যাহ গোসাঞির স্থানে ।
+> আমার নামে গণ-সহিত কর নিমন্ত্রণে ॥১১০॥
+
 tabe bhaṭṭācārya kahe, yāha gosāñira sthane
 āmāra nāme gaṇa-sahita kara nimantraṇe
 

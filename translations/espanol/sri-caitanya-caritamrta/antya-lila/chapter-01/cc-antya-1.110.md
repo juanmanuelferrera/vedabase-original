@@ -1,5 +1,8 @@
 ### CC Antya 1.110
 
+> ভক্তসঙ্গে কৈলা প্রভু দুঁহারে মিলন ।
+> পিণ্ডাতে বসিলা প্রভু লঞা ভক্তগণ ॥১১০॥
+
 > bhakta-saṅge kailā prabhu duṅhāre milana
 > piṇḍāte vasilā prabhu lañā bhakta-gaṇa
 

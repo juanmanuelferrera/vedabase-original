@@ -3,6 +3,9 @@
 > yadyapi rāya—premī, mahā-bhāgavate
 > tāṅra mana kṛṣṇa-māyā nāre ācchādite
 
+> yadyapi rāya—premī, mahā-bhāgavate
+> tāṅra mana kṛṣṇa-māyā nāre ācchādite
+
 > tathāpi prabhura icchā—parama prabala
 > jānileha rāyera mana haila ṭalamala
 

@@ -1,5 +1,8 @@
 ### SB 8.3.7
 
+> दिदृक्षवो यस्य पदं सुमङ्गलं विमुक्तसङ्गा मुनयः सुसाधवः
+> चरन्त्यलोकव्रतमव्रणं वने भूतात्मभूताः सुहृदः स मे गतिः ॥७॥
+
 didṛkṣavo yasya padaṁ sumaṅgalaṁ
 vimukta-saṅgā munayaḥ susādhavaḥ
 caranty aloka-vratam avraṇaṁ vane

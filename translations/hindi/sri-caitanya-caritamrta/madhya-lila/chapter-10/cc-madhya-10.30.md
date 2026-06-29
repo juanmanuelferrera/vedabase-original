@@ -1,5 +1,8 @@
 ### CC Madhya 10.30
 
+> মহাপ্রসাদ দিয়া তাহাঁ মিলিলা সেবকগণ ।
+> মহাপ্রভু সবাকারে কৈল আলিঙ্গন ॥৩০॥
+
 > mahā-prasāda diyā tāhāṅ mililā sevaka-gaṇa
 > mahāprabhu sabākāre kaila āliṅgana
 

@@ -1,5 +1,8 @@
 ### SB 4.24.62
 
+> क्रियाकलापैरिदमेव योगिनः श्रद्धान्विताः साधु यजन्ति सिद्धये ।
+> भूतेन्द्रियान्तःकरणोपलक्षितं वेदे च तन्त्रे च त एव कोविदाः ॥६२॥
+
 > kriyā-kalāpair idam eva yoginaḥ
 > śraddhānvitāḥ sādhu yajanti siddhaye
 > bhūtendriyāntaḥ-karaṇopalakṣitaṁ

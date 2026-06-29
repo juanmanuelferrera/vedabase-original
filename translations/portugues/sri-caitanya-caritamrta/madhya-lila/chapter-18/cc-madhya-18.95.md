@@ -1,5 +1,8 @@
 ### CC Madhya 18.95
 
+> সাক্ষাৎ দেখিল লোক — নাহিক সংশয় ।
+> শুনি’ হাসি’ কহে প্রভু, — সব ‘সত্য’ হয় ॥৯৫॥
+
 sākṣāt dekhila loka--nāhika saṁśaya
 
 śuni' hāsi' kahe prabhu,--saba 'satya' haya

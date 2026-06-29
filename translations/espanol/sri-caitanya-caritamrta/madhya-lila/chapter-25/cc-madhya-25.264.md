@@ -1,5 +1,8 @@
 ### CC Madhya 25.264
 
+> জীব নিস্তারিতে প্রভু ভ্রমিলা দেশে-দেশে ।
+> আপনে আস্বাদি’ ভক্তি করিলা প্রকাশে ॥২৬৪॥
+
 > jīva nistārite prabhu bhramilā deśe-deśe
 > āpane āsvādi' bhakti karilā prakāśe
 

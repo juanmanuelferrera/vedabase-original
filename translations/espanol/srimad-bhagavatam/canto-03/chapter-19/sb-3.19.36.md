@@ -1,5 +1,8 @@
 ### SB 3.19.36
 
+> तं सुखाराध्यमृजुभिरनन्यशरणैर्नृभिः ।
+> कृतज्ञः को न सेवेत दुराराध्यमसाधुभिः ॥३६॥
+
 > taṁ sukhārādhyam ṛjubhir
 > ananya-śaraṇair nṛbhiḥ
 > kṛtajñaḥ ko na seveta

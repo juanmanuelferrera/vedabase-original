@@ -1,5 +1,8 @@
 ### SB 6.7.36
 
+> अकिञ्चनानां हि धनं शिलोञ्छनं तेनेह निर्वर्तितसाधुसत्क्रियः
+> कथं विगर्ह्यं नु करोम्यधीश्वराः पौरोधसं हृष्यति येन दुर्मतिः ॥३६॥
+
 > akiñcanānāṁ hi dhanaṁ śiloñchanaṁ
 > teneha nirvartita-sādhu-satkriyaḥ
 > kathaṁ vigarhyaṁ nu karomy adhīśvarāḥ

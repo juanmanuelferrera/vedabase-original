@@ -1,5 +1,8 @@
 ### CC Madhya 15.162
 
+> জীবের দুঃখ দেখি’ মোর হৃদয় বিদরে  ।
+> সর্বজীবের পাপ প্রভু দেহ’ মোর শিরে ॥১৬২॥
+
 jīvera duḥkha dekhi' mora hṛdaya bidare
 
 sarva-jīvera pāpa prabhu deha' mora śire

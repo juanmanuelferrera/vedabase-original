@@ -1,5 +1,8 @@
 ### CC Antya 8.38
 
+> রামচন্দ্রপুরী ঐছে রহিলা নীলাচলে ।
+> বিরক্ত স্বভাব, কভু রহে কোন স্থলে ॥৩৮॥
+
 rāmacandra-purī aiche rahilā nīlācale
 
 virakta svabhāva, kabhu rahe kona sthale

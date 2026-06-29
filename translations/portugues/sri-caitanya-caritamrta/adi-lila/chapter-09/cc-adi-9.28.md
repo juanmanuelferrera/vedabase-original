@@ -1,5 +1,8 @@
 ### CC Adi 9.28
 
+> ত্রিজগতে যত আছে ধন-রত্নমণি ।
+> একফলের মূল্য করি’ তাহা নাহি গণি ॥২৮॥
+
 tri-jagate yata āche dhana-ratnamaṇi
 eka-phalera mūlya kari' tāhā nāhi gaṇi
 

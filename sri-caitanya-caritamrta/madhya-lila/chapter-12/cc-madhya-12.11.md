@@ -1,5 +1,8 @@
 ### CC Madhya 12.11
 
+> ভট্টাচার্য পত্রী দেখি’ চিন্তিত হঞা ।
+> ভক্তগণ-পাশ গেলা সেই পত্রী লঞা ॥১১॥
+
 > bhaṭṭācārya patrī dekhi' cintita hañā
 > bhakta-gaṇa-pāśa gelā sei patrī lañā
 

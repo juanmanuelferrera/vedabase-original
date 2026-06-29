@@ -1,5 +1,8 @@
 ### CC Madhya 25.242
 
+> মধ্যলীলার ক্রম এবে করি অনুবাদ ।
+> অনুবাদ কৈলে হয় কথার আস্বাদ ॥২৪২॥
+
 > madhya-līlāra krama ebe kari anuvāda
 > anuvāda kaile haya kathāra āsvāda
 

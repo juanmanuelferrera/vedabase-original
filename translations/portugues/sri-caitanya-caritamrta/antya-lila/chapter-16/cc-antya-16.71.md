@@ -1,5 +1,8 @@
 ### CC Antya 16.71
 
+> “তুমি কৃষ্ণনাম-মন্ত্র কৈলা উপদেশে  ।
+> মন্ত্র পাঞা কা’র আগে না করে প্রকাশে ॥৭১॥
+
 "tumi kṛṣṇa-nāma-mantra kailā upadeśe
 
 mantra pāñā kā'ra āge nā kare prakāśe

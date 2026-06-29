@@ -1,5 +1,8 @@
 ### CC Madhya 10.61
 
+> তবে মহাপ্রভু তাঁরে ঘরে পাঠাইল ৷
+> বাণীনাথ-পট্টনায়কে নিকটে রাখিল ৷৷ ৬১ ৷৷ ॥৬১॥
+
 tabe mahāprabhu tāṅre ghare pāṭhāila
 
 vāṇīnātha-paṭṭanāyake nikaṭe rākhila

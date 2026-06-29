@@ -1,5 +1,8 @@
 ### CC Antya 6.98
 
+> মালা-চন্দন-তাম্বূল শেষ যে আছিল ।
+> শ্রীহস্তে প্রভু তাহা সবাকারে বাঁটি’ দিল ॥৯৮॥
+
 > mālā-candana-tāmbūla śeṣa ye āchila
 > śrī-haste prabhu tāhā sabākāre bāṅṭi' dila
 

@@ -1,5 +1,10 @@
 ### SB 3.31.17
 
+> देह्यन्यदेहविवरे जठराग्निनासृग्
+> विण्मूत्रकूपपतितो भृशतप्तदेहः ।
+> इच्छन्नितो विवसितुं गणयन्स्वमासान्
+> निर्वास्यते कृपणधीर्भगवन्कदा नु ॥१७॥
+
 > dehy anya-deha-vivare jaṭharāgnināsṛg-
 > viṇ-mūtra-kūpa-patito bhṛśa-tapta-dehaḥ
 > icchann ito vivasituṁ gaṇayan sva-māsān

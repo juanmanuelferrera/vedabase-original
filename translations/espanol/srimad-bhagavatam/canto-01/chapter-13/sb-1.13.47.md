@@ -1,5 +1,8 @@
 ### SB 1.13.47
 
+> अहस्तानि सहस्तानामपदानि चतुष्पदाम् ।
+> फल्गूनि तत्र महतां जीवो जीवस्य जीवनम् ॥४७॥
+
 > ahastāni sahastānām
 > apadāni catuṣ-padām
 > phalgūni tatra mahatāṁ

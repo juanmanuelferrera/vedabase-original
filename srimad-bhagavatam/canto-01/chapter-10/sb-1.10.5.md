@@ -1,5 +1,8 @@
 ### SB 1.10.5
 
+> नद्यः समुद्रा गिरयः सवनस्पतिवीरुधः ।
+> फलन्त्योषधयः सर्वाः काममन्वृतु तस्य वै ॥५॥
+
 > nadyaḥ samudrā girayaḥ
 > savanaspati-vīrudhaḥ
 > phalanty oṣadhayaḥ sarvāḥ

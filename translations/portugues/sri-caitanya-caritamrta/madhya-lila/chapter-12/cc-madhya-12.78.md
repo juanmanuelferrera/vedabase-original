@@ -1,5 +1,8 @@
 ### CC Madhya 12.78
 
+> নূতন একশত ঘট, শত সংমার্জনী ।
+> পড়িছা আনিয়া দিল প্রভুর ইচ্ছা জানি’ ॥৭৮॥
+
 nūtana eka-śata ghaṭa, śata sammārjanī
 
 paḍichā āniyā dila prabhura icchā jāni'

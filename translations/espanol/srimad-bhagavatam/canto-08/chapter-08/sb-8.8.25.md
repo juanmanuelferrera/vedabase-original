@@ -1,5 +1,10 @@
 ### SB 8.8.25
 
+> तस्यांसदेश उशतीं नवकञ्जमालां
+> माद्यन्मधुव्रतवरूथगिरोपघुष्टाम
+> तस्थौ निधाय निकटे तदुरः स्वधाम
+> सव्रीडहासविकसन्नयनेन याता ॥२५॥
+
 > tasyāḥ śriyas tri-jagato janako jananyā
 > vakṣo nivāsam akarot paramaṁ vibhūteḥ
 > śrīḥ svāḥ prajāḥ sakaruṇena nirīkṣaṇena

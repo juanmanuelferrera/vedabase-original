@@ -1,5 +1,10 @@
 ### CC Antya 20.56
 
+> যে গোপী মোর করে দ্বেষে, কৃষ্ণের করে সন্তোষে,
+> কৃষ্ণ যারে করে অভিলাষ ।
+> মুই তার ঘরে যাঞা, তারে সেবোঁ দাসী হঞা,
+> তবে মোর সুখের উল্লাস ॥৫৬॥
+
 > ye gopī mora kare dveṣe, kṛṣṇera kare santoṣe,
 > kṛṣṇa yāre kare abhilāṣa
 > mui tāra ghare yāñā, tāre sevoṅ dāsī hañā,

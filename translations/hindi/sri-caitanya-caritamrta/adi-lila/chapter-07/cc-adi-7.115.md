@@ -1,5 +1,8 @@
 ### CC Adi 7.115
 
+> প্রাকৃত করিয়া মানে বিষ্ণু-কলেবর ।
+> বিষ্ণুনিন্দা আর নাহি ইহার উপর ॥১১৫॥
+
 > prākṛta kariyā māne viṣṇu-kalevara
 > viṣṇu-nindā āra nāhi ihāra upara
 

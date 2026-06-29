@@ -1,5 +1,8 @@
 ### SB 1.19.39
 
+> नूनं भगवतो ब्रह्मन्गृहेषु गृहमेधिनाम् ।
+> न लक्ष्यते ह्यवस्थानमपि गोदोहनं क्वचित् ॥३९॥
+
 > nūnaṁ bhagavato brahman
 > gṛheṣu gṛha-medhinām
 > na lakṣyate hy avasthānam

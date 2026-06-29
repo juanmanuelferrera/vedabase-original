@@ -1,5 +1,8 @@
 ### CC Antya 1.182
 
+> রায় কহে, — “লোকের সুখ ইহার শ্রবণে ।
+> অভীষ্ট-দেবের স্মৃতি মঙ্গলাচরণে ।।” ॥ ১৮২ ॥
+
 > rāya kahe,—"lokera sukha ihāra śravaṇe
 > abhīṣṭa-devera smṛti maṅgalācaraṇe"
 

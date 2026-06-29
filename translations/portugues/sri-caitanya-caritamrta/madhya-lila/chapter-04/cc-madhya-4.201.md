@@ -1,5 +1,8 @@
 ### CC Madhya 4.201
 
+> ‘অয়ি দীন’, ‘অয়ি দীন’ বলে বারবার ।
+> কণ্ঠে না নিঃসরে বাণী, নেত্রে অশ্রুধার ॥২০১॥
+
 'ayi dīna, 'ayi dīna' bale bāra-bāra
 kaṇṭhe nā niḥsare vāṇī, netre aśru-dhāra
 

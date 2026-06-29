@@ -1,5 +1,8 @@
 ### SB 3.11.35
 
+> पूर्वस्यादौ परार्धस्य ब्राह्मो नाम महानभूत् ।
+> कल्पो यत्राभवद्ब्रह्मा शब्दब्रह्मेति यं विदुः ॥३५॥
+
 > pūrvasyādau parārdhasya
 > brāhmo nāma mahān abhūt
 > kalpo yatrābhavad brahmā

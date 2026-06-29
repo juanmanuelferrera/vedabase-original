@@ -1,5 +1,7 @@
 ### SB 5.1.38
 
+> परदेवताप्रसादाधिगतात्मप्रत्यवमर्शेनानुप्रवृत्तेभ्यः पुत्रेभ्य इमां यथादायंविभज्य भुक्तभोगां च महिषीं मृतकमिव सह महाविभूतिमपहाय स्वयं निहितनिर्वेदो हृदिगृहीतहरिविहारानुभावो भगवतो नारदस्य पदवीं पुनरेवानुससार ॥३७॥
+
 > para-devatā-prasādādhigatātma-pratyavamarśenānupravṛttebhyaḥ putrebhya imāṁ yathā-dāyaṁ vibhajya bhukta-bhogāṁ ca mahiṣīṁ mṛtakam iva saha mahā-vibhūtim apahāya svayaṁ nihita-nirvedo hṛdi gṛhīta-hari-vihārānubhāvo bhagavato nāradasya padavīṁ punar evānusasāra.
 
 *para-devatā*—of the Supreme Personality of Godhead; *prasāda*—by the mercy; *adhigata*—obtained; *ātma-pratyavamarśena*—by self-realization; *anupravṛttebhyaḥ*—who exactly follow his path; *putrebhyaḥ*—unto his sons; *imām*—this earth; *yathā-dāyam*—exactly according to the inheritance; *vibhajya*—dividing; *bhukta-bhogām*—whom he enjoyed in so many ways; *ca*—also; *mahiṣīm*—the Queen; *mṛtakam iva*—exactly like a dead body; *saha*—with; *mahā-vibhūtim*—great opulence; *apahāya*—giving up; *svayam*—himself; *nihita*—perfectly taken to; *nirvedaḥ*—renunciation; *hṛdi*—in the heart; *gṛhīta*—accepted; *hari*—of the Supreme Personality of Godhead; *vihāra*—pastimes; *anubhāvaḥ*—in such an attitude; *bhagavataḥ*—of the great saintly person; *nāradasya*—of Saint Nārada; *padavīm*—position; *punaḥ*—again; *eva*—certainly; *anusasāra*—began to follow.

@@ -1,5 +1,8 @@
 ### CC Madhya 13.186
 
+> প্রভুর বচনে রাজার মনে হৈল ভয় ।
+> সার্বভৌম কহে, — তুমি না কর সংশয় ॥১৮৬॥
+
 > prabhura vacane rājāra mane haila bhaya
 > sārvabhauma kahe,-tumi nā kaya saṁśaya
 

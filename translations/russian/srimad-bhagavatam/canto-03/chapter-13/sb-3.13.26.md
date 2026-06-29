@@ -1,5 +1,8 @@
 ### SB 3.13.26
 
+> तेषां सतां वेदवितानमूर्तिर्ब्रह्मावधार्यात्मगुणानुवादम् ।
+> विनद्य भूयो विबुधोदयाय गजेन्द्रलीलो जलमाविवेश ॥२६॥
+
 > teṣāṁ satāṁ veda-vitāna-mūrtir
 > brahmāvadhāryātma-guṇānuvādam
 > vinadya bhūyo vibudhodayāya

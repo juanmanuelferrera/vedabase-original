@@ -1,5 +1,8 @@
 ### CC Madhya 9.193
 
+> রাবণ আসিতেই সীতা অন্তর্ধান কৈল ।
+> রাবণের আগে মায়া-সীতা পাঠাইল ॥১৯৩॥
+
 > rāvaṇa āsitei sītā antardhāna kaila
 > rāvaṇera āge māyā-sītā pāṭhāila
 

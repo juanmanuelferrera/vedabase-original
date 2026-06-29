@@ -1,5 +1,10 @@
 ### CC Antya 19.36
 
+> “ব্রজেন্দ্রকুল — দুগ্ধসিন্ধু, কৃষ্ণ তাহে পূর্ণ ইন্দু,
+> জন্মি’ কৈলা জগৎ উজোর ।
+> কান্ত্যমৃত যেবা পিয়ে, নিরন্তর পিয় জিয়ে,
+> ব্রজ-জনের নয়ন-চকোর ॥৩৬॥
+
 > "vrajendra-kula--dugdha-sindhu, kṛṣṇa tāhe pūrṇa indu,
 > janmi' kailā jagat ujora
 > kānty-amṛta yebā piye, nirantara piyā jiye,

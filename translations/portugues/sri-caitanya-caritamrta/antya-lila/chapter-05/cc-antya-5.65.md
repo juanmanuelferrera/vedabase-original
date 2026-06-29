@@ -1,5 +1,8 @@
 ### CC Antya 5.65
 
+> বক্তা শ্রোতা কহে শুনে দুঁহে প্রেমাবেশে ।
+> আত্মস্মৃতি নাহি, কাহাঁ জানিব দিন-শেষে ॥৬৫॥
+
 vaktā śrotā kahe śune duṅhe premāveśe
 
 ātma-smṛti nāhi, kāhāṅ jāniba dina-śeṣe

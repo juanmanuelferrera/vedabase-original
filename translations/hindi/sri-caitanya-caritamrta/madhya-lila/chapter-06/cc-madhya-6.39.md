@@ -1,5 +1,8 @@
 ### CC Madhya 6.39
 
+> সার্বভৌম কহে, — শীঘ্র করহ মধ্যাহ্ন ।
+> মুঞি ভিক্ষা দিমু আজি মহা-প্রসাদান্ন ॥৩৯॥
+
 > sārvabhauma kahe,--śīghra karaha madhyāhna
 > muñi bhikṣā dimu āji mahā-prasādānna
 

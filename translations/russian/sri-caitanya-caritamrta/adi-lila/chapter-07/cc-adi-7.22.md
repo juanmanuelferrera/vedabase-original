@@ -1,5 +1,8 @@
 ### CC Adi 7.22
 
+> পুনঃ পুনঃ পিয়াইয়া হয় মহামত্ত ।
+> নাচে, কান্দে, হাসে, গায়, যৈছে মদমত্ত ॥২২॥
+
 > punaḥ punaḥ piyāiyā haya mahāmatta
 > nāce, kānde, hāse, gāya, yaiche mada-matta
 

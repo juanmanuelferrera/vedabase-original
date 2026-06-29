@@ -1,5 +1,8 @@
 ### CC Madhya 13.167
 
+> প্ৰভুর ভাবানুরূপ স্বরূপের গান ।
+> যবে যেই রস তাহা করে মূর্তিমান্ ॥১৬৭॥
+
 > prabhura bhāvānurūpa svarūpera gāna
 > yabe yei rasa tāhā kare mūrtimān
 

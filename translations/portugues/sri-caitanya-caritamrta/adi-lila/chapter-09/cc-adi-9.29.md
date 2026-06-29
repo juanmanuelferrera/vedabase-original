@@ -1,5 +1,8 @@
 ### CC Adi 9.29
 
+> মাগে বা না মাগে কেহ, পাত্র বা অপাত্র ।
+> ইহার বিচার নাহি জানে, দেয় মাত্র ॥২৯॥
+
 māge vā nā māge keha, pātra vā apātra
 ihāra vicāra nāhi jāne, deya mātra
 

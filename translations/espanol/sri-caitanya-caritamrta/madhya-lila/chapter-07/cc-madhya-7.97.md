@@ -1,5 +1,8 @@
 ### CC Madhya 7.97
 
+> এই শ্লোক পড়ি’ পথে চলিলা গৌরহরি ৷
+> লোক দেখি’ পথে কহে, — বল ‘হরি’ ‘হরি’ ৷৷ ৯৭ ৷৷ ॥৯৭॥
+
 > ei śloka paḍi' pathe calilā gaurahari
 > loka dekhi' pathe kahe,--bala 'hari' 'hari'
 

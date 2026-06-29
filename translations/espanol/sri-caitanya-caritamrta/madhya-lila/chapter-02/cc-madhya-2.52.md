@@ -1,5 +1,10 @@
 ### CC Madhya 2.52
 
+> পীড়াভির্নবকালকূট-কটুতাগর্বস্য নির্বাসনো
+> নিস্যন্দেন মুদাং সুধা-মধুরিমাহঙ্কারসঙ্কোচনঃ ।
+> প্রেমা সুন্দরি নন্দনন্দনপরো জাগর্তি যস্যান্তরে
+> জ্ঞায়ন্তে স্ফুটমস্য বক্রমধুরাস্তেনৈব বিক্রান্তয়ঃ ॥৫২॥
+
 > pīḍābhir nava-kāla-kūṭa-kaṭutā-garvasya nirvāsano
 > nisyandena mudāṁ sudhā-madhurimāhaṅkāra-saṅkocanaḥ
 > premā sundari nanda-nandana-paro jāgarti yasyāntare

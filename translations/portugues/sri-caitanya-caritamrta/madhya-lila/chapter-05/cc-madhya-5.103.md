@@ -1,5 +1,8 @@
 ### CC Madhya 5.103
 
+> এইমতে চলি’ বিপ্র নিজে-দেশে আইলা ।
+> গ্রামের নিকট আসি’ মনেতে চিন্তিলা ॥১০৩॥
+
 ei-mate cali' vipra nija-deśe āilā
 grāmera nikaṭa āsi' manete cintilā
 

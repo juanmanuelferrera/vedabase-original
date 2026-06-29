@@ -1,5 +1,8 @@
 ### Īśo 7
 
+> यस्मिन्सर्वाणि भूतान्यात्मैवाभूद्विजानतः।
+> तत्र को मोहः कः शोक एकत्वमनुपश्यतः॥७॥
+
 > yasmin sarvāṇi bhūtāny
 > ātmaivābhūd vijānataḥ
 > tatra ko mohaḥ kaḥ śoka

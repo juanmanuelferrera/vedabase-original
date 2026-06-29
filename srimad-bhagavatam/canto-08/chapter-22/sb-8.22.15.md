@@ -1,5 +1,8 @@
 ### SB 8.22.15
 
+> स तत्र हासीनमुदीक्ष्य सत्पतिं हरिं सुनन्दाद्यनुगैरुपासितम
+> उपेत्य भूमौ शिरसा महामना ननाम मूर्ध्ना पुलकाश्रुविक्लवः ॥१५॥
+
 > sa tatra hāsīnam udīkṣya sat-patiṁ
 > hariṁ sunandādy-anugair upāsitam
 > upetya bhūmau śirasā mahā-manā

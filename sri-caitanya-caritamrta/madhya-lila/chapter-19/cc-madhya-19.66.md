@@ -1,5 +1,8 @@
 ### CC Madhya 19.66
 
+> দুইভাই দূর হৈতে ভূমিতে পড়িয়া ।
+> ভট্টে দণ্ডবৎ কৈলা অতি দীন হঞা ॥৬৬॥
+
 > dui-bhāi dūra haite bhūmite paḍiyā
 > bhaṭṭe daṇḍavat kailā ati dīna hañā
 

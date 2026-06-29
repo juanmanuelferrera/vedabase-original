@@ -1,5 +1,8 @@
 ### CC Adi 7.51
 
+> তোমারে নিন্দয়ে যত সন্ন্যাসীর গণ ।
+> শুনিতে না পারি, ফাটে হৃদয়-শ্রবণ ॥৫১॥
+
 tomāre nindaye yata sannyāsīra gaṇa
 śunite nā pāri, phāṭe hṛdaya-śravaṇa
 

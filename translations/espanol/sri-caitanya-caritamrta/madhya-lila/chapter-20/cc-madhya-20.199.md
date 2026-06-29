@@ -1,5 +1,8 @@
 ### CC Madhya 20.199
 
+> মাঘের দেবতা — মাধব, গোবিন্দ — ফাল্গুনে ।
+> চৈত্রে — বিষ্ণু, বৈশাখে — শ্রীমধুসূদন ॥১৯৯॥
+
 > māghera devatā--mādhava, govinda--phālgune
 > caitre--viṣṇu, vaiśākhe--śrī-madhusūdana
 

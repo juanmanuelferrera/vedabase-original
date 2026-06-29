@@ -1,5 +1,8 @@
 ### CC Antya 16.141
 
+> এই শ্লোক শুনি’ প্রভু ভাবাবিষ্ট হঞা ।
+> উৎকণ্ঠাতে অর্থ করে প্রলাপ করিয়া ॥১৪১॥
+
 ei śloka śuni' prabhu bhāvāviṣṭa hañā
 
 utkaṇṭhāte artha kare pralāpa kariyā

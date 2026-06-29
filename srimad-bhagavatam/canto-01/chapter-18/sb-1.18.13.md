@@ -1,5 +1,8 @@
 ### SB 1.18.13
 
+> तुलयाम लवेनापि न स्वर्गं नापुनर्भवम् ।
+> भगवत्सङ्गिसङ्गस्य मर्त्यानां किमुताशिषः ॥१३॥
+
 > tulayāma lavenāpi
 > na svargaṁ nāpunar-bhavam
 > bhagavat-saṅgi-saṅgasya

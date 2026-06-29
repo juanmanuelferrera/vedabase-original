@@ -1,5 +1,8 @@
 ### SB 1.2.15
 
+> यदनुध्यासिना युक्ताः कर्मग्रन्थिनिबन्धनम् ।
+> छिन्दन्ति कोविदास्तस्य को न कुर्यात्कथारतिम् ॥१५॥
+
 *yad*-anudhyāsinā yuktāḥ
 *karma*-granthi-nibandhanam
 chindanti kovidās tasya

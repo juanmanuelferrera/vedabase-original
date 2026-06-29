@@ -1,5 +1,8 @@
 ### CC Madhya 9.286
 
+> শুনিয়া চলিলা প্রভু তাঁরে দেখিবারে ৷
+> বিপ্রগৃহে বসি’ আছেন, দেখিলা তাঁহারে ৷৷ ২৮৬ ৷৷ ॥২৮৬॥
+
 > śuniyā calilā prabhu tāṅre dekhibāre
 > vipra-gṛhe vasi' āchena, dekhilā tāṅhāre
 

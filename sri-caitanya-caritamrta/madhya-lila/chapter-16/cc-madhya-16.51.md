@@ -1,5 +1,8 @@
 ### CC Madhya 16.51
 
+> রাঢ়ী এক বিপ্র, তেঁহো — নিত্যানন্দ দাস  ।
+> মহা-ভাগ্যবান্ তেঁহো, নাম — কৃষ্ণদাস ॥৫১॥
+
 > rāḍhī eka vipra, teṅho—nityānanda dāsa
 > mahā-bhāgyavān teṅho, nāma—kṛṣṇadāsa
 

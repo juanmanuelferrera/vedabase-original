@@ -1,5 +1,8 @@
 ### CC Antya 18.7
 
+> কভু ভাবোন্মাদে প্রভু ইতি-উতি ধায় ।
+> ভূমে পড়ি’ কভু মূর্চ্ছা, কভু গড়ি’ যায় ॥৭॥
+
 > kabhu bhāvonmāde prabhu iti-uti dhāya
 > bhūme paḍi' kabhu mūrcchā, kabhu gaḍi' yāya
 

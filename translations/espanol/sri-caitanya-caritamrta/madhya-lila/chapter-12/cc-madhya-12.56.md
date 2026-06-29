@@ -1,5 +1,8 @@
 ### CC Madhya 12.56
 
+> “আত্মা বৈ জায়তে পুত্রঃ” — এই শাস্ত্রবাণী ।
+> পুত্রের মিলনে যেন মিলিবে আপনি ॥৫৬॥
+
 > ''ātmā vai jāyate putraḥ''-ei śāstra-vāṇī
 > putrera milane yena milibe āpani
 

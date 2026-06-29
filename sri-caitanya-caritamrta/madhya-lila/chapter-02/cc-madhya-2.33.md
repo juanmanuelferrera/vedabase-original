@@ -1,5 +1,10 @@
 ### CC Madhya 2.33
 
+> মৃগমদ নীলোৎপল, মিলনে যে পরিমল,
+> যেই হরে তার গর্ব-মান ।
+> হেন কৃষ্ণ-অঙ্গ-গন্ধ, যার নাহি সে সম্বন্ধ,
+> সেই নাসা ভস্ত্রার সমান ॥৩৩॥
+
 > mṛga-mada nīlotpala, milane ye parimala,
 > yei hare tāra garva-māna
 > hena kṛṣṇa-aṅga-gandha, yāra nāhi se sambandha,

@@ -1,5 +1,8 @@
 ### CC Madhya 7.18
 
+> প্রভু কহে, “আমি — নর্তক, তুমি — সূত্রধার ৷
+> তুমি যৈছে নাচাও, তৈছে নর্তন আমার ৷৷ ১৮ ৷৷ ॥১৮॥
+
 prabhu kahe, "āmi--nartaka, tumi--sūtra-dhāra
 
 tumi yaiche nācāo, taiche nartana āmāra

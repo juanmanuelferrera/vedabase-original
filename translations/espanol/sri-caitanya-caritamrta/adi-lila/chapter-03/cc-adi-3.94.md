@@ -1,5 +1,8 @@
 ### CC Adi 3.94
 
+> পিতা মাতা গুরু আদি যত মান্যগণ ।
+> প্রথমে করেন সবার পৃথিবীতে জনম ॥৯৪॥
+
 > pitā mātā guru ādi yata mānya-gaṇa
 > prathame karena sabāra pṛthivīte janama
 

@@ -1,5 +1,8 @@
 ### CC Madhya 19.59
 
+> ভট্টাচার্য দুই ভাইয়ে নিমন্ত্রণ কৈল ।
+> প্রভুর শেষ প্রসাদ-পাত্র দুইভাই পাইল ॥৫৯॥
+
 bhaṭṭācārya dui bhāiye nimantraṇa kaila
 
 prabhura śeṣa prasāda-pātra dui-bhāi pāila

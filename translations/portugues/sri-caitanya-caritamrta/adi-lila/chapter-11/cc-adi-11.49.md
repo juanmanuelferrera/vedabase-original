@@ -1,5 +1,8 @@
 ### CC Adi 11.49
 
+> শ্রীমন্ত, গোকুলদাস, হরিহরানন্দ ।
+> শিবাই, নন্দাই, অবধূত পরমানন্দ ॥৪৯॥
+
 śrīmanta, gokula-dāsa hariharānanda
 
 śivāi, nandāi, avadhūta paramānanda

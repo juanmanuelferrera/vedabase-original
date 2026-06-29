@@ -1,5 +1,8 @@
 ### CC Madhya 4.64
 
+> ধূপ, দীপ, করি’ নানা ভোগ লাগাইল ।
+> দধি-দুগ্ধ-সন্দেশাদি যত কিছু আইল ॥৬৪॥
+
 dhūpa, dīpa, kari' nānā bhoga lāgāila
 
 dadhi-dugdha-sandeśādi yata kichu āila

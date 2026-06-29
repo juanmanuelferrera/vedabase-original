@@ -1,5 +1,8 @@
 ### SB 5.10.20
 
+> स वै भवा लोकनिरीक्षणार्थमव्यक्तलिङ्गो विचरत्यपि स्वित
+> योगेश्वराणां गतिमन्धबुद्धिः कथं विचक्षीत गृहानुबन्धः ॥२०॥
+
 > sa vai bhavāḹ loka-nirīkṣaṇārtham
 > avyakta-liṅgo vicaraty api svit
 > yogeśvarāṇāṁ gatim andha-buddhiḥ

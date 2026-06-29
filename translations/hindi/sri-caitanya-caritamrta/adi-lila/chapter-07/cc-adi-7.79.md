@@ -1,5 +1,8 @@
 ### CC Adi 7.79
 
+> তবে ধৈর্য ধরি’ মনে করিলুঁ বিচার ।
+> কৃষ্ণনামে জ্ঞানাচ্ছন্ন হইল আমার ॥৭৯॥
+
 > tabe dhairya dhari' mane kariluṅ vicāra
 > kṛṣṇa-nāme jñānācchanna ha-ila āmāra
 

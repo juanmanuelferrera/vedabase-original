@@ -1,5 +1,8 @@
 ### CC Adi 17.32
 
+> ঊর্ধ্ববাহু করি’ কহোঁ, শুন, সর্বলোক ।
+> নাম-সূত্রে গাঁথি’ পর কণ্ঠে এই শ্লোক ॥৩২॥
+
 > ūrdhva-bāhu kari' kahoṅ, śuna, sarva-loka
 > nāma-sūtre gāṅthi' para kaṇṭhe ei śloka
 

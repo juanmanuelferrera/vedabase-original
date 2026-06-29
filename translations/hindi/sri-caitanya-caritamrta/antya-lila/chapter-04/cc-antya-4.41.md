@@ -1,5 +1,8 @@
 ### CC Antya 4.41
 
+> কৃপা করি’ মোরে আজ্ঞা দেহ’ দুইজন  ।
+> জন্মে-জন্মে সেবোঁ রঘুনাথের চরণ ॥৪১॥
+
 > kṛpā kari' more ājñā deha' dui-jana
 > janme-janme sevoṅ raghunāthera caraṇa
 

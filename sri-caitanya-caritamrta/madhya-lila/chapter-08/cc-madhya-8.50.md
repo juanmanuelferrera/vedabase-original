@@ -1,5 +1,8 @@
 ### CC Madhya 8.50
 
+> তোমার মুখে কৃষ্ণকথা শুনিতে হয় মন ।
+> পুনরপি পাই যেন তোমার দরশন ॥৫০॥
+
 > tomāra mukhe kṛṣṇa-kathā śunite haya mana
 > punarapi pāi yena tomāra daraśana
 

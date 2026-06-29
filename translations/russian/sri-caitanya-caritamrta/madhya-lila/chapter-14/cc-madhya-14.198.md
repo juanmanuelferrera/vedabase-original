@@ -1,5 +1,8 @@
 ### CC Madhya 14.198
 
+> কৃষ্ণ-বাঞ্ছা পূর্ণ হয়, করে পাণি-রোধ ।
+> অন্তরে আনন্দ রাধা, বাহিরে বাম্য-ক্রোধ ॥১৯৮॥
+
 > kṛṣṇa-vāñchā pūrṇa haya, kare pāṇi-rodha
 > antare ānanda rādhā, bāhire vāmya-krodha
 

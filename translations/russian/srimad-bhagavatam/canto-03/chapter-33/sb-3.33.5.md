@@ -1,5 +1,8 @@
 ### SB 3.33.5
 
+> त्वं देहतन्त्रः प्रशमाय पाप्मनां निदेशभाजां च विभो विभूतये ।
+> यथावतारास्तव सूकरादयस्तथायमप्यात्मपथोपलब्धये ॥५॥
+
 > tvaṁ deha-tantraḥ praśamāya pāpmanāṁ
 > nideśa-bhājāṁ ca vibho vibhūtaye
 > yathāvatārās tava sūkarādayas

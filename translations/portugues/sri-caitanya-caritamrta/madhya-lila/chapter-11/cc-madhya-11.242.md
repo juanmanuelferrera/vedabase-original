@@ -1,5 +1,8 @@
 ### CC Madhya 11.242
 
+> এই ত’ কহিলুঁ প্রভুর কীর্তন-বিলাস ৷
+> যেবা ইহা শুনে, হয় চৈতন্যের দাস ৷৷ ২৪২ ৷৷ ॥২৪২॥
+
 ei ta' kahiluṅ prabhura kīrtana-vilāsa
 yebā ihā śune, haya caitanyera dāsa
 

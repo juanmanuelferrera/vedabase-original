@@ -1,5 +1,8 @@
 ### CC Antya 12.52
 
+> তবে সব ভক্ত লঞা করিলা ভোজন  ।
+> গোবিন্দেরে আজ্ঞা দিলা করি’ আচমন ॥৫২॥
+
 tabe saba bhakta lañā karilā bhojana
 
 govindere ājñā dilā kari' ācamana

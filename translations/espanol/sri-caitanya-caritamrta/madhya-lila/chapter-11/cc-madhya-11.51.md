@@ -1,5 +1,8 @@
 ### CC Madhya 11.51
 
+> ভট্টাচার্য কহে — দেব না কর বিষাদ ৷
+> তোমারে প্রভুর অবশ্য হইবে প্রসাদ ৷৷ ৫১ ৷৷ ॥৫১॥
+
 > bhaṭṭācārya kahe-deva nā kara viṣāda
 > tomāre prabhura avaśya ha-ibe prasāda
 

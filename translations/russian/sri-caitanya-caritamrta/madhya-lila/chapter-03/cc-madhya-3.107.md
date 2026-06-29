@@ -1,5 +1,8 @@
 ### CC Madhya 3.107
 
+> তবে ত’ আচার্য সঙ্গে লঞা দুই জনে ।
+> করিল ইচ্ছায় ভোজন, যে আছিল মনে ॥১০৭॥
+
 > tabe ta' ācārya saṅge lañā dui jane
 > karila icchāya bhojana, ye āchila mane
 

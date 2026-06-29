@@ -1,5 +1,8 @@
 ### SB 3.29.41
 
+> यद्वनस्पतयो भीता लताश्चौषधिभिः सह ।
+> स्वे स्वे कालेऽभिगृह्णन्ति पुष्पाणि च फलानि च ॥४१॥
+
 > yad vanaspatayo bhītā
 > latāś cauṣadhibhiḥ saha
 > sve sve kāle 'bhigṛhṇanti

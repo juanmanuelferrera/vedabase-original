@@ -1,5 +1,8 @@
 ### CC Madhya 5.158
 
+> দণ্ডভঙ্গ-লীলা — এই পরম গম্ভীর ।
+> সেই বুঝে, দুঁহার পদে যাঁর ভক্তি ধীর ॥১৫৮॥
+
 daṇḍa-bhaṅga-līlā ei--parama gambhīra
 sei bujhe, duṅhāra pade yāṅra bhakti dhīra
 

@@ -1,5 +1,8 @@
 ### CC Antya 4.156
 
+> জগদানন্দ-পণ্ডিতে আমি যুক্তি পুছিল ।
+> বৃন্দাবন যাইতে তেঁহ উপদেশ দিল ।।” ॥ ১৫৬ ॥
+
 jagadānanda-paṇḍite āmi yukti puchila
 
 vṛndāvana yāite teṅha upadeśa dila"

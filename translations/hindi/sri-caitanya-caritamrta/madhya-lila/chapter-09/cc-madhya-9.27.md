@@ -1,5 +1,8 @@
 ### CC Madhya 9.27
 
+> সেই হৈতে কৃষ্ণনাম জিহ্বাতে বসিলা ।
+> কৃষ্ণনাম স্ফুরে, রামনাম দূরে গেলা ॥২৭॥
+
 > sei haite kṛṣṇa-nāma jihvāte vasilā
 > kṛṣṇa-nāma sphure, rāma-nāma dūre gelā
 

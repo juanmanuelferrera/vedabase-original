@@ -1,5 +1,8 @@
 ### CC Madhya 4.166
 
+> পুরী কহে, — এই দুই ঘষিবে চন্দন ।
+> আর জনা-দুই দেহ, দিব যে বেতন ॥১৬৬॥
+
 > purī kahe,—ei dui ghaṣibe candana
 > āra janā-dui deha, diba ye vetana
 

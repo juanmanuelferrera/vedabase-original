@@ -1,5 +1,7 @@
 ### SB 5.26.24
 
+> ये त्विह वै श्वगर्दभपतयो ब्राह्मणादयो मृगया विहारा अतीर्थे च मृगान्निघ्नन्ति तानपिसम्परेतान्लक्ष्यभूतान्यमपुरुषा इषुभिर्विध्यन्ति ॥२३॥
+
 > ye tv iha vai śva-gardabha-patayo brāhmaṇādayo mṛgayā vihārā atīrthe ca mṛgān nighnanti tān api samparetāḹ lakṣya-bhūtān yama-puruṣā iṣubhir vidhyanti.
 
 *ye*—those who; *tu*—but; *iha*—in this life; *vai*—or; *śva*—of dogs; *gardabha*—and asses; *patayaḥ*—maintainers; *brāhmaṇa-ādayaḥ*—*brāhmaṇas, kṣatriyas* and *vaiśyas*; *mṛgayā vihārāḥ*—taking pleasure in hunting animals in the forest; *atīrthe*—other than prescribed; *ca*—also; *mṛgān*—animals; *nighnanti*—kill; *tān*—them; *api*—indeed; *samparetān*—having died; *lakṣya-bhūtān*—becoming the targets; *yama-puruṣāḥ*—the assistants of Yamarāja; *iṣubhiḥ*—by arrows; *vidhyanti*—pierce.

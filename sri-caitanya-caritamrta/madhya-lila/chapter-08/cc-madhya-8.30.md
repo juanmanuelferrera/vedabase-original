@@ -1,5 +1,8 @@
 ### CC Madhya 8.30
 
+> ‘সার্বভৌম ভট্টাচার্য কহিল তোমার গুণে ।
+> তোমারে মিলিতে মোরে করিল যতনে ॥৩০॥
+
 > 'sarvabhauma bhaṭṭācārya kahila tomāra guṇe
 > tomāre milite more karila yatane
 

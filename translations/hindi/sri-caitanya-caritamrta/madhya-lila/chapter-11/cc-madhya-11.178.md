@@ -1,5 +1,8 @@
 ### CC Madhya 11.178
 
+> আমি-দুই হই তোমার দাস আজ্ঞাকারী ।
+> যে চাহ, সেই আজ্ঞা দেহ’ কৃপা করি’ ॥১৭৮॥
+
 > āmi-dui ha-i tomāra dāsa ājñākārī
 > ye cāha, sei ājñā deha' kṛpā kari'
 

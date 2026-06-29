@@ -1,5 +1,7 @@
 ### SB 5.21.13
 
+> यस्यैकं चक्रं द्वादशारं षण्नेमि त्रिणाभि संवत्सरात्मकं समामनन्ति तस्याक्षोमेरोर्मूर्धनि कृतो मानसोत्तरे कृतेतरभागो यत्र प्रोतं रविरथचक्रं तैलयन्त्रचक्रवद्भ्रमन्मानसोत्तरगिरौ परिभ्रमति ॥१३॥
+
 > yasyaikaṁ cakraṁ dvādaśāraṁ ṣaṇ-nemi tri-ṇābhi saṁvatsarātmakaṁ samāmananti tasyākṣo meror mūrdhani kṛto mānasottare kṛtetara-bhāgo yatra protaṁ ravi-ratha-cakraṁ taila-yantra-cakravad bhraman mānasottara-girau paribhramati.
 
 *yasya*—of which; *ekam*—one; *cakram*—wheel; *dvādaśa*—twelve; *aram*—spokes; *ṣaṭ*—six; *nemi*—the segments of the rim; *tri-ṇābhi*—the three pieces of the hub; *saṁvatsara-ātmakam*—whose nature is a *saṁvatsara*; *samāmananti*—they fully describe; *tasya*—the chariot of the sun-god; *akṣaḥ*—the axle; *meroḥ*—of Sumeru Mountain; *mūrdhani*—on the top; *kṛtaḥ*—fixed; *mānasottare*—on the mountain known as Mānasottara; *kṛta*—fixed; *itara-bhāgaḥ*—the other end; *yatra*—where; *protam*—fixed on; *ravi-ratha-cakram*—the wheel of the chariot of the sun-god; *taila-yantra-cakra-vat*—like the wheel of an oil-pressing machine; *bhramat*—moving; *mānasottara-girau*—on Mānasottara Mountain; *paribhramati*—turns.

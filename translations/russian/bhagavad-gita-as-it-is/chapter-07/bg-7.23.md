@@ -1,5 +1,8 @@
 ### Bg 7.23
 
+> अन्तवत्तु फलं तेषां तद्भवत्यल्पमेधसाम् ।
+> देवान्देवयजो यान्ति मद्भक्ता यान्ति मामपि ॥२३॥
+
 > antavat tu phalaṁ teṣāṁ
 > tad bhavaty alpa-medhasām
 > devān deva-yajo yānti

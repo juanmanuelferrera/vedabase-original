@@ -1,5 +1,8 @@
 ### CC Madhya 17.91
 
+> প্রভুর ‘শেষান্ন’ মিশ্র সবংশে খাইল ।
+> ‘প্রভু আইলা’ শুনি’ চন্দ্রশেখর আইল ॥৯১॥
+
 > prabhura 'śeṣānna' miśra savaṁśe khāila
 > 'prabhu āilā' śuni' candraśekhara āila
 

@@ -1,5 +1,10 @@
 ### CC Madhya 25.281
 
+> শ্রীরূপ-সনাতন- রঘুনাথ-জীব-চরণ,
+> শিরে ধরি, — যার করোঁ আশ ।
+> কৃষ্ণলীলামৃতান্বিত, চৈতন্যচরিতামৃত,
+> কহে কিছু দীন কৃষ্ণদাস ॥২৮১॥
+
 > śrī-rūpa-sanātana-raghunātha-jīva-caraṇa,
 > śire dhari,-yāra karoṅ āśa
 > kṛṣṇa, līlāmṛtānvita, caitanya-caritāmṛta,

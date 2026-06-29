@@ -1,5 +1,8 @@
 ### CC Madhya 15.132
 
+> নরহরি রহু আমার ভক্তগণ-সনে  ।
+> এই তিন কার্য সদা করহ তিন জনে ।।’ ১৩২ ॥১৩২॥
+
 > narahari rahu āmāra bhakta-gaṇa-sane
 > ei tina kārya sadā karaha tina jane,
 

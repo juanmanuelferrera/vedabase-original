@@ -1,5 +1,8 @@
 ### CC Madhya 10.184
 
+> রামভদ্রাচার্য, আর ভগবান্ আচার্য ।
+> প্রভু-পদে রহিলা দুঁহে ছাড়ি’ সর্ব কার্য ॥১৮৪॥
+
 > rāmabhadrācārya, āra bhagavān ācārya
 > prabhu-pade rahilā duṅhe chāḍi' sarva kārya
 

@@ -1,5 +1,8 @@
 ### CC Antya 4.193
 
+> সেই দেহ করে তার চিদানন্দময় ।
+> অপ্রাকৃত-দেহে তাঁর চরণ ভজয় ॥১৯৩॥
+
 > sei deha kare tāra cid-ānanda-maya
 > aprākṛta-dehe tāṅra caraṇa bhajaya
 

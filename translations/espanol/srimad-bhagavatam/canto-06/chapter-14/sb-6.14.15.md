@@ -1,5 +1,8 @@
 ### SB 6.14.15
 
+> तं पूजयित्वा विधिवत्प्रत्युत्थानार्हणादिभिः
+> कृतातिथ्यमुपासीदत्सुखासीनं समाहितः ॥१५॥
+
 > taṁ pūjayitvā vidhivat
 > pratyutthānārhaṇādibhiḥ
 > kṛtātithyam upāsīdat

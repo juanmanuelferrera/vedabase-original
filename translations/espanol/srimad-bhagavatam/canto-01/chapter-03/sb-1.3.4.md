@@ -1,5 +1,8 @@
 ### SB 1.3.4
 
+> पश्यन्त्यदो रूपमदभ्रचक्षुषा सहस्रपादोरुभुजाननाद्भुतम् ।
+> सहस्रमूर्धश्रवणाक्षिनासिकं सहस्रमौल्यम्बरकुण्डलोल्लसत् ॥४॥
+
 > paśyanty ado rūpam adabhra-cakṣuṣā
 > sahasra-pādoru-bhujānanādbhutam
 > sahasra-mūrdha-śravaṇākṣi-nāsikaṁ

@@ -1,5 +1,10 @@
 ### CC Antya 10.83-84
 
+> সর্বকাল আছে এই সুদৃঢ় ‘নিয়ম’ ।
+> ‘প্রভু যদি প্রসাদ পাঞা করেন শয়ন ॥৮৩॥
+> গোবিন্দ আসিয়া করে পাদসম্বাহন ।
+> তবে যাই’ প্রভুর ‘শেষ’ করেন ভোজন ।।” ৮৪ ॥৮৪॥
+
 > sarva-kāla āche ei sudṛḍha 'niyama'
 > 'prabhu yadi prasāda pāñā karena śayana
 > govinda āsiyā kare pāda-samvāhana

@@ -1,5 +1,8 @@
 ### CC Madhya 15.60
 
+> কিবা মোর কথায় মনে ভ্রম হঞা গেল !
+> কিবা কোন জন্তু আসি’ সকল খাইল ? ৬০ ॥
+
 > kibā mora kathāya mane bhrama hañā gela!
 > kibā kona jantu āsi' sakala khāila?
 

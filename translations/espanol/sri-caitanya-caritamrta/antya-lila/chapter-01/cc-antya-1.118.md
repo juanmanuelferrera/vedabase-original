@@ -1,5 +1,8 @@
 ### CC Antya 1.118
 
+> প্রভু কহে, — “কহ রূপ, নাটকের শ্লোক ।
+> যে শ্লোক শুনিলে লোকের যায় দুঃখ-শোক ।।” ॥ ১১৮ ॥
+
 > prabhu kahe,--"kaha rūpa, nāṭakera śloka
 > ye śloka śunile lokera yāya duḥkha-śoka
 

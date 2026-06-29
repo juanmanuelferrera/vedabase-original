@@ -1,5 +1,8 @@
 ### CC Antya 20.135
 
+> তাহাঁই দেখিলা কৃষ্ণের বন্য-ভোজন ।
+> জালিয়া উঠাইল, প্রভু আইলা স্ব-ভবন ॥১৩৫॥
+
 > tāhāṅi dekhilā kṛṣṇera vanya-bhojana
 > jāliyā uṭhāila, prabhu āilā sva-bhavana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 17.189
 
+> বাহু তুলি’ বলে প্রভু ‘হরিবোল’-ধ্বনি ।
+> প্রেমে মত্ত নাচে লোক করি’ হরিধ্বনি ॥১৮৯॥
+
 bāhu tuli' bale prabhu 'hari-bola'-dhvani
 
 preme matta nāce loka kari' hari-dhvani

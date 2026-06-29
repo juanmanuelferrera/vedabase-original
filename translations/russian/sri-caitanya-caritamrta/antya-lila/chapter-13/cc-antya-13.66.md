@@ -1,5 +1,8 @@
 ### CC Antya 13.66
 
+> জগদানন্দ-পণ্ডিত তবে আজ্ঞা মাগিলা ।
+> সনাতন প্রভুরে কিছু ভেটবস্তু দিলা ॥৬৬॥
+
 > jagadānanda-paṇḍita tabe ājñā māgilā
 > sanātana prabhure kichu bheṭa-vastu dilā
 

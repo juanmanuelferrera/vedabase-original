@@ -1,5 +1,8 @@
 ### CC Madhya 15.113
 
+> মুকুন্দ দাসেরে পুছে শচীর নন্দন ।
+> ‘তুমি — পিতা, পুত্র তোমার — শ্রীরঘুনন্দন ? ॥ ১১৩ ॥
+
 > mukunda dāsere puche śacīra nandana
 > 'tumi—pitā, putra tomāra—śrī-raghunandana?
 

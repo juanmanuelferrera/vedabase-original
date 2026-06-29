@@ -1,5 +1,8 @@
 ### CC Antya 6.44
 
+> গঙ্গাতীরে বৃক্ষ-মূলে পিণ্ডার উপরে ।
+> বসিয়াছেন — যেন কোটী সূর্যোদয় করে ॥৪৪॥
+
 gaṅgā-tīre vṛkṣa-mūle piṇḍāra upare
 
 vasiyāchena--yena koṭī sūryodaya kare

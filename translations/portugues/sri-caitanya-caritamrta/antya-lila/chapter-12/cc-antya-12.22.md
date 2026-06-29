@@ -1,5 +1,8 @@
 ### CC Antya 12.22
 
+> শিবানন্দের পত্নী তাঁরে কহেন কান্দিয়া ।
+> ‘পুত্রে শাপ দিছেন গোসাঞি বাসা না পাঞা’ ॥২২॥
+
 śivānandera patnī tāṅre kahena kāndiyā
 
 'putre śāpa dichena gosāñi vāsā nā pāñā'

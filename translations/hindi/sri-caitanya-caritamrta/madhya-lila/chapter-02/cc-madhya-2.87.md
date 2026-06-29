@@ -1,5 +1,10 @@
 ### CC Madhya 2.87
 
+> যেবা নাহি বুঝে কেহ, শুনিতে শুনিতে সেহ,
+> কি অদ্ভুত চৈতন্যচরিত ।
+> কৃষ্ণে উপজিবে প্রীতি, জানিবে রসের রীতি,
+> শুনিলেই বড় হয় হিত ॥৮৭॥
+
 > yebā nāhi bujhe keha, śunite śunite seha,
 > ki adbhuta caitanya-carita
 > kṛṣṇe upajibe prīti, jānibe rasera rīti,

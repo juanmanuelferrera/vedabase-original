@@ -1,5 +1,8 @@
 ### SB 4.7.59
 
+> तमेव दयितं भूय आवृङ्क्ते पतिमम्बिका ।
+> अनन्यभावैकगतिं शक्तिः सुप्तेव पूरुषम् ॥५९॥
+
 > tam eva dayitaṁ bhūya
 > āvṛṅkte patim ambikā
 > ananya-bhāvaika-gatiṁ

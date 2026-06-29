@@ -1,5 +1,8 @@
 ### CC Antya 12.110
 
+> এই কথা গোবিন্দ জগদানন্দেরে কহিল ।
+> মৌন করি’ রহিল পণ্ডিত, কিছু না কহিল ॥১১০॥
+
 ei kathā govinda jagadānandere kahila
 
 mauna kari' rahila paṇḍita, kichu nā kahila

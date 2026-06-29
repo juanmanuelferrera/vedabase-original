@@ -1,5 +1,10 @@
 ### SB 4.9.10
 
+> या निर्वृतिस्तनुभृतां तव पादपद्म
+> ध्यानाद्भवज्जनकथाश्रवणेन वा स्यात् ।
+> सा ब्रह्मणि स्वमहिमन्यपि नाथ मा भूत्
+> किं त्वन्तकासिलुलितात्पततां विमानात् ॥१०॥
+
 > yā nirvṛtis tanu-bhṛtāṁ tava pāda-padma-
 > dhyānād bhavaj-jana-kathā-śravaṇena vā syāt
 > sā brahmaṇi sva-mahimany api nātha mā bhūt

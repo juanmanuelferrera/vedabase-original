@@ -1,5 +1,8 @@
 ### CC Madhya 6.53
 
+> সার্বভৌম কহে, — নীলাম্বর চক্রবর্তী ।
+> বিশারদের সমাধ্যায়ী, — এই তাঁর খ্যাতি ॥৫৩॥
+
 > sārvabhauma kahe,—nīlāmbara cakravartī
 > viśāradera samādhyāyī,—ei tāṅra khyāti
 

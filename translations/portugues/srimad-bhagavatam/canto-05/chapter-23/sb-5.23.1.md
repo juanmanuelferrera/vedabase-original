@@ -1,5 +1,8 @@
 ### SB 5.23.1
 
+> श्रीशुक उवाच
+> अथ तस्मात्परतस्त्रयोदशलक्षयोजनान्तरतो यत्तद्विष्णोः परमं पदमभिवदन्ति यत्रह महाभागवतो ध्रुव औत्तानपादिरग्निनेन्द्रेण प्रजापतिना कश्यपेन धर्मेण च समकालयुग्भिःसबहुमानं दक्षिणतः क्रियमाण इदानीमपि कल्पजीविनामाजीव्य उपास्ते तस्येहानुभाव उपवर्णितः ॥१॥
+
 śrī-śuka uvāca
 
 *atha tasmāt paratas trayodaśa*-lakṣa-yojanāntarato yat tad viṣṇoḥ paramaṁ padam abhivadanti yatra ha mahā-bhāgavato dhruva auttānapādir agninendreṇa prajāpatinā kaśyapena dharmeṇa ca samakāla-yugbhiḥ sabahu-mānaṁ dakṣiṇataḥ kriyamāṇa idānīm api kalpa-jīvinām ājīvya upāste tasyehānubhāva upavarṇitaḥ.

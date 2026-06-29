@@ -1,5 +1,8 @@
 ### SB 4.17.32
 
+> नूनं बतेशस्य समीहितं जनैस्तन्मायया दुर्जययाकृतात्मभिः ।
+> न लक्ष्यते यस्त्वकरोदकारयद्योऽनेक एकः परतश्च ईश्वरः ॥३२॥
+
 > nūnaṁ bateśasya samīhitaṁ janais
 > tan-māyayā durjayayākṛtātmabhiḥ
 > na lakṣyate yas tv akarod akārayad

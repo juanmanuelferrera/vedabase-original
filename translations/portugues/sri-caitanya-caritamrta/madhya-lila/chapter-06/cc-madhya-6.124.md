@@ -1,5 +1,8 @@
 ### CC Madhya 6.124
 
+> অষ্টম-দিবসে তাঁরে পুছে সার্বভৌম  ।
+> সাতদিন কর তুমি বেদান্ত শ্রবণ ॥১২৪॥
+
 aṣṭama-divase tāṅre puche sārvabhauma
 sāta dina kara tumi vedānta śravaṇa
 

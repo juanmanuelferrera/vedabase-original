@@ -1,5 +1,8 @@
 ### CC Adi 7.8
 
+> রাসাদি-বিলাসী, ব্রজললনা-নাগর ।
+> আর যত সব দেখ, — তাঁর পরিকর ॥৮॥
+
 > rāsādi-vilāsī, vrajalalanā-nāgara
 > āra yata saba dekha,—tāṅra parikara
 

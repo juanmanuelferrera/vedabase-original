@@ -1,5 +1,8 @@
 ### CC Madhya 25.239
 
+> ইহা যেই শ্রদ্ধা করি’ করয়ে শ্রবণ ।
+> অচিরাৎ পায় সেই চৈতন্য-চরণ ॥২৩৯॥
+
 > ihā yei śraddhā kari' karaye śravaṇa
 > acirāt pāya sei caitanya-caraṇa
 

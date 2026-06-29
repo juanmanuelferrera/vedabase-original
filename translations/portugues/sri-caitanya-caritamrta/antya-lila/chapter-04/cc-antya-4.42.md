@@ -1,5 +1,8 @@
 ### CC Antya 4.42
 
+> রঘুনাথের পাদপদ্ম ছাড়ান না যায়  ।
+> ছাড়িবার মন হৈলে প্রাণ ফাটি’ যায় ।।’ ৪২ ॥৪২॥
+
 raghunāthera pāda-padma chāḍāna nā yāya
 
 chāḍibāra mana haile prāṇa phāṭi' yāya'

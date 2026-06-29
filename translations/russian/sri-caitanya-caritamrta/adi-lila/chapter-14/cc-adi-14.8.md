@@ -1,5 +1,8 @@
 ### CC Adi 14.8
 
+> দেখিয়া দোঁহার চিত্তে জন্মিল বিস্ময় ।
+> কার পদচিহ্ন ঘরে, না পায় নিশ্চয় ॥৮॥
+
 > dekhiyā doṅhāra citte janmila vismaya
 > kāra pada-cihna ghare, nā pāya niścaya
 

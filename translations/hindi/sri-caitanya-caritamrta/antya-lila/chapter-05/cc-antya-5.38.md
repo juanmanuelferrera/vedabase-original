@@ -1,5 +1,8 @@
 ### CC Antya 5.38
 
+> একে দেবদাসী, আর সুন্দরী তরুণী  ।
+> তার সব অঙ্গ-সেবা করেন আপনি ॥৩৮॥
+
 > eke deva-dāsī, āra sundarī taruṇī
 > tāra saba aṅga-sevā karena āpani
 

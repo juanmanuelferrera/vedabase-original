@@ -1,5 +1,8 @@
 ### CC Madhya 16.226
 
+> আচার্য-প্রসাদে পাইল প্রভুর উচ্ছিষ্ট-পাত ।
+> প্রভুর চরণ দেখে দিন পাঁচ-সাত ॥২২৬॥
+
 ācārya-prasāde pāila prabhura ucchiṣṭa-pāta
 
 prabhura caraṇa dekhe dina pāṅca-sāta

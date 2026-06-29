@@ -1,5 +1,7 @@
 ### SB 5.16.24
 
+> एवं कुमुदनिरूढो यः शतवल्शो नाम वटस्तस्य स्कन्धेभ्यो नीचीनाः पयोदधिमधुघृतगुडान्नाद्यम्बरशय्यासनाभरणादयः सर्व एव कामदुघा नदाःकुमुदाग्रात्पतन्तस्तमुत्तरेणेलावृतमुपयोजयन्ति ॥२४॥
+
 > evaṁ kumuda-nirūḍho yaḥ śatavalśo nāma vaṭas tasya skandhebhyo nīcīnāḥ payo-dadhi-madhu-ghṛta-guḍānnādy-ambara-śayyāsanābharaṇādayaḥ sarva eva kāma-dughā nadāḥ kumudāgrāt patantas tam uttareṇelāvṛtam upayojayanti.
 
 *evam*—thus; *kumuda-nirūḍhaḥ*—having grown on Kumuda Mountain; *yaḥ*—that; *śata-valśaḥ nāma*—the tree named Śatavalśa (because of having hundreds of trunks); *vaṭaḥ*—a banyan tree; *tasya*—of it; *skandhebhyaḥ*—from the thick branches; *nīcīnāḥ*—flowing down; *payaḥ*—milk; *dadhi*—yogurt; *madhu*—honey; *ghṛta*—clarified butter; *guḍa*—molasses; *anna*—food grains; *ādi*—and so on; *ambara*—clothing; *śayyā*—bedding; *āsana*—sitting places; *ābharaṇa-ādayaḥ*—carrying ornaments and so on; *sarve*—everything; *eva*—certainly; *kāma-dughāḥ*—fulfilling all desires; *nadāḥ*—big rivers; *kumuda-agrāt*—from the top of Kumuda Mountain; *patantaḥ*—flowing; *tam*—to that; *uttareṇa*—on the northern side; *ilāvṛtam*—the land known as Ilāvṛta-varṣa; *upayojayanti*—give happiness.

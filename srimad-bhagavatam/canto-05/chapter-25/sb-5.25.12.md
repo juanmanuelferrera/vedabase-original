@@ -1,5 +1,10 @@
 ### SB 5.25.12
 
+> मूर्धन्यर्पितमणुवत्सहस्रमूर्ध्नो
+> भूगोलं सगिरिसरित्समुद्रसत्त्वम
+> आनन्त्यादनिमितविक्रमस्य भूम्नः
+> को वीर्याण्यधि गणयेत्सहस्रजिह्वः ॥१२॥
+
 > mūrdhany arpitam aṇuvat sahasra-mūrdhno
 > bhū-golaṁ sagiri-sarit-samudra-sattvam
 > ānantyād animita-vikramasya bhūmnaḥ

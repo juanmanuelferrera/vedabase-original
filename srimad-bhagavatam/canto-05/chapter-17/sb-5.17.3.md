@@ -1,5 +1,7 @@
 ### SB 5.17.3
 
+> ततः सप्त ऋषयस्तत्प्रभावाभिज्ञआ यां ननु तपस आत्यन्तिकी सिद्धिरेतावती भगवतिसर्वात्मनि वासुदेवेऽनुपरतभक्तियोगलाभेनैवोपेक्षितान्यार्थात्मगतयो मुक्तिमिवागतां मुमुक्षवइव सबहुमानमद्यापि जटाजूटैरुद्वहन्ति ॥३॥
+
 > tataḥ sapta ṛṣayas tat prabhāvābhijñā yāṁ nanu tapasa ātyantikī siddhir etāvatī bhagavati sarvātmani vāsudeve 'nuparata-bhakti-yoga-lābhenaivopekṣitānyārthātma-gatayo muktim ivāgatāṁ mumukṣava iva sabahu-mānam adyāpi jaṭā-jūṭair udvahanti.
 
 *tataḥ*—thereafter; *sapta ṛṣayaḥ*—the seven great sages (beginning with Marīci); *tat prabhāva-abhijñāḥ*—who knew very well the influence of the Ganges River; *yām*—this Ganges water; *nanu*—indeed; *tapasaḥ*—of our austerities; *ātyantikī*—the ultimate; *siddhiḥ*—perfection; *etāvatī*—this much; *bhagavati*—the Supreme Personality of Godhead; *sarva-ātmani*—in the all-pervading; *vāsudeve*—Kṛṣṇa; *anuparata*—continuous; *bhakti-yoga*—of the mystic process of devotional service; *lābhena*—simply by achieving this platform; *eva*—certainly; *upekṣita*—neglected; *anya*—other; *artha-ātma-gatayaḥ*—all other means of perfection (namely religion, economic development, sense gratification and liberation); *muktim*—liberation from material bondage; *iva*—like; *āgatām*—obtained; *mumukṣavaḥ*—persons desiring liberation; *iva*—like; *sa-bahu-mānam*—with great honor; *adya api*—even now; *jaṭā-jūṭaiḥ*—with matted locks of hair; *udvahanti*—they carry.

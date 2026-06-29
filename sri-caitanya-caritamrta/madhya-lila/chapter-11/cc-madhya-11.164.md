@@ -1,5 +1,8 @@
 ### CC Madhya 11.164
 
+> ভক্ত সব ধাঞা আইল হরিদাসে নিতে ।
+> প্রভু তোমায় মিলিতে চাহে, চলহ ত্বরিতে ॥১৬৪॥
+
 > bhakta saba dhāñā āila haridāse nite
 > prabhu tomāya milite cāhe, calaha tvarite
 

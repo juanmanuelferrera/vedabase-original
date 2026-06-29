@@ -1,5 +1,8 @@
 ### CC Adi 6.29
 
+> ভক্তি-উপদেশ বিনু তাঁর নাহি কার্য ।
+> অতএব নাম হৈল ‘অদ্বৈত আচার্য’ ॥২৯॥
+
 bhakti-upadeśa vinu tāṅra nāhi kārya
 ataeva nāma haila 'advaita ācārya'
 

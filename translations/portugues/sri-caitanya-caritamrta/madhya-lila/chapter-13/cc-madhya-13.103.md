@@ -1,5 +1,8 @@
 ### CC Madhya 13.103
 
+> এক এক দন্তের কম্প দেখিতে লাগে ভয় ।
+> লোকে জানে, দন্ত সব খসিয়া পড়য় ॥১০৩॥
+
 eka eka dantera kampa dekhite lāge bhaya
 
 loke jāne, danta saba khasiyā paḍaya

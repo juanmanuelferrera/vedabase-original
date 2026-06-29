@@ -1,5 +1,8 @@
 ### CC Madhya 15.101
 
+> তোমার কি কথা, তোমার গ্রামের কুক্কুর ।
+> সেহ মোর প্রিয়, অন্যজন রহু দূর ॥১০১॥
+
 tomāra ki kathā, tomāra grāmera kukkura
 
 sei mora priya, anya-jana rahu dūra

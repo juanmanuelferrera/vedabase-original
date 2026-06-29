@@ -1,5 +1,8 @@
 ### CC Antya 13.69
 
+> প্রভুর নিমিত্ত একস্থান মনে বিচারিল ।
+> দ্বাদশাদিত্য-টিলায় এক ‘মঠ’ পাইল ॥৬৯॥
+
 > prabhura nimitta eka-sthāna mane vicārila
 > dvādaśāditya-ṭilāya eka 'maṭha' pāila
 

@@ -1,5 +1,8 @@
 ### SB 2.2.29
 
+> घ्राणेन गन्धं रसनेन वै रसं रूपं च दृष्ट्या श्वसनं त्वचैव ।
+> श्रोत्रेण चोपेत्य नभोगुणत्वं प्राणेन चाकूतिमुपैति योगी ॥२९॥
+
 ghrāṇena gandhaṁ rasanena vai rasaṁ
 rūpaṁ ca dṛṣṭyā śvasanaṁ tvacaiva
 śrotreṇa copetya nabho-guṇatvaṁ

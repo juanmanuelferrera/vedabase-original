@@ -1,5 +1,8 @@
 ### CC Madhya 1.187
 
+> উঠি’ দুই ভাই তবে দন্তে তৃণ ধরি’ ।
+> দৈন্য করি’ স্তুতি করে করযোড় করি ॥১৮৭॥
+
 > uṭhi' dui bhāi tabe dante tṛṇa dhari'
 > dainya kari' stuti kare karayoḍa kari
 

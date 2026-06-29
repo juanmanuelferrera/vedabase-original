@@ -1,5 +1,8 @@
 ### CC Adi 13.48
 
+> চৈতন্য-লীলার ব্যাস, — দাস বৃন্দাবন ।
+> মধুর করিয়া লীলা করিলা রচন ॥৪৮॥
+
 > caitanya-līlāra vyāsa,—dāsa vṛndāvana
 > madhura kariyā līlā karilā racana
 

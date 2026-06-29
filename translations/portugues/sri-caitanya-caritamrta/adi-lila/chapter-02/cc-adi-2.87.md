@@ -1,5 +1,8 @@
 ### CC Adi 2.87
 
+> বিরুদ্ধার্থ কহ তুমি, কহিতে কর রোষ ।
+> তোমার অর্থে অবিমৃষ্টবিধেয়াংশ-দোষ ॥৮৭॥
+
 viruddhārtha kaha tumi, kahite kara roṣa
 
 tomāra arthe avimṛṣṭa-vidheyāṁśa-doṣa

@@ -1,5 +1,8 @@
 ### SB 7.1.43
 
+> ततस्तौ राक्षसौ जातौ केशिन्यां विश्रवःसुतौ
+> रावणः कुम्भकर्णश्च सर्वलोकोपतापनौ ॥४३॥
+
 > taṁ sarva-bhūtātma-bhūtaṁ
 > praśāntaṁ sama-darśanam
 > bhagavat-tejasā spṛṣṭaṁ

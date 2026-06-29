@@ -1,5 +1,8 @@
 ### CC Adi 10.65
 
+> শ্রীবিজয়দাস-নাম প্রভুর আখরিয়া ।
+> প্রভুরে অনেক পুঁথি দিয়াছে লিখিয়া ॥৬৫॥
+
 śrī-vijaya-dāsa-nāma prabhura ākhariyā
 
 prabhure aneka puṅthi diyāche likhiyā

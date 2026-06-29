@@ -1,5 +1,8 @@
 ### SB 4.6.8
 
+> स इत्थमादिश्य सुरानजस्तु तैः समन्वितः पितृभिः सप्रजेशैः ।
+> ययौ स्वधिष्ण्यान्निलयं पुरद्विषः कैलासमद्रिप्रवरं प्रियं प्रभोः ॥८॥
+
 > sa ittham ādiśya surān ajas tu taiḥ
 > samanvitaḥ pitṛbhiḥ sa-prajeśaiḥ
 > yayau sva-dhiṣṇyān nilayaṁ pura-dviṣaḥ

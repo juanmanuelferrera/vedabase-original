@@ -1,5 +1,8 @@
 ### CC Antya 11.33
 
+> হৃদয়ে ধরিমু তোমার কমল চরণ  ।
+> নয়নে দেখিমু তোমার চাঁদ বদন ॥৩৩॥
+
 hṛdaye dharimu tomāra kamala caraṇa
 
 nayane dekhimu tomāra cāṅda vadana

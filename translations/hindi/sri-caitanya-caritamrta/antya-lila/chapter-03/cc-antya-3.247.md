@@ -1,5 +1,8 @@
 ### CC Antya 3.247
 
+> তৃতীয় দিবসের রাত্রি-শেষ যবে হৈল  ।
+> ঠাকুরের স্থানে নারী কহিতে লাগিল ॥২৪৭॥
+
 > tṛtīya divasera rātri-śeṣa yabe haila
 > ṭhākurera sthāne nārī kahite lāgila
 

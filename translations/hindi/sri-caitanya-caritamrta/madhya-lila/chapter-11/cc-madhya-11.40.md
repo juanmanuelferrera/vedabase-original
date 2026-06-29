@@ -1,5 +1,8 @@
 ### CC Madhya 11.40
 
+> প্রভু আজ্ঞা পাঞা রায় চলিলা দরশনে ।
+> রায়ের প্রেমভক্তি-রীতি বুঝে কোন্ জনে ॥৪০॥
+
 > prabhu ājñā pāñā rāya calilā daraśane
 > rāyera prema-bhakti-rīti bujhe kon jane
 

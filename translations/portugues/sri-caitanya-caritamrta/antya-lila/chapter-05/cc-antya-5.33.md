@@ -1,5 +1,8 @@
 ### CC Antya 5.33
 
+> আর দিন মিশ্র আইল প্রভু-বিদ্যমানে ।
+> প্রভু কহে, — ‘কৃষ্ণকথা শুনিলা রায়স্থানে ?’ ॥ ৩৩ ॥
+
 āra dina miśra āila prabhu-vidyamāne
 
 prabhu kahe,--'kṛṣṇa-kathā śunilā rāya-sthāne'?

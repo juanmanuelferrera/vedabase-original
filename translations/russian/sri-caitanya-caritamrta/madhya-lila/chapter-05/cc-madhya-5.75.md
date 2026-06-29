@@ -1,5 +1,8 @@
 ### CC Madhya 5.75
 
+> যদি এই বিপ্র মোরে না দিবে কন্যাদান ।
+> সাক্ষী বোলাইমু তোমায়, হইও সাবধান ॥৭৫॥
+
 > yadi ei vipra more nā dibe kanyā-dāna
 > sākṣī bolāimu tomāya, ha-io sāvadhāna
 

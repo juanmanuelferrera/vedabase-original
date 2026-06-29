@@ -1,5 +1,8 @@
 ### CC Adi 14.48
 
+> কভু শিশু-সঙ্গে স্নান করিল গঙ্গাতে ।
+> কন্যাগণ আইলা তাহাঁ দেবতা পূজিতে ॥৪৮॥
+
 kabhu śiśu-saṅge snāna karila gaṅgāte
 kanyāgaṇa āilā tāhāṅ devatā pūjite
 

@@ -1,5 +1,10 @@
 ### CC Antya 1.166
 
+> জঙ্ঘাধস্তটসঙ্গিদক্ষিণপদং কিঞ্চিদ্বিভুগ্নত্রিকং
+> সাচিস্তম্ভিতকন্ধরং সখি তিরঃসঞ্চারিনেত্রাঞ্চলম্ ।
+> বংশীং কুট্মলিতে দধানমধরে লোলাঙ্গুলীসঙ্গতাং
+> রিঙ্গদ্ভ্রূভ্রমরং বরাঙ্গি পরমানন্দং পুরঃ স্বীকুরু ॥১৬৬॥
+
 > jaṅghādhas-taṭa-saṅgi-dakṣiṇa-padaṁ kiñcid vibhugna-trikam-
 > sāci-stambhita-kandharaṁ sakhi tiraḥ-sañcāri-netrāñcalam
 > vaṁśīṁ kuṭmalite dadhānam adhare lolāṅgulī-saṅgatāṁ

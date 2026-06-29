@@ -1,5 +1,10 @@
 ### SB 3.15.27
 
+> तस्मिन्नतीत्य मुनयः षडसज्जमानाः
+> कक्षाः समानवयसावथ सप्तमायाम् ।
+> देवावचक्षत गृहीतगदौ परार्ध्य
+> केयूरकुण्डलकिरीटविटङ्कवेषौ ॥२७॥
+
 tasminn atītya munayaḥ ṣaḍ asajjamānāḥ
 kakṣāḥ samāna-vayasāv atha saptamāyām
 devāv acakṣata gṛhīta-gadau parārdhya-

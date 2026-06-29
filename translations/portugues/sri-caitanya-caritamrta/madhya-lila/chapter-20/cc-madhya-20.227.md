@@ -1,5 +1,8 @@
 ### CC Madhya 20.227
 
+> শ্রীকেশব — পদ্মশঙ্খচক্রগদাধর ।
+> নারায়ণ — শঙ্খপদ্মগদাচক্রধর ॥২২৭॥
+
 śrī-keśava--padma-śaṅkha-cakra-gadā-dhara
 
 nārāyaṇa--śaṅkha-padma-gadā-cakra-dhara

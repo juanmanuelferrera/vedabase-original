@@ -1,5 +1,10 @@
 ### SB 2.3.12
 
+> ज्ञानं यदाप्रतिनिवृत्तगुणोर्मिचक्रम्
+> आत्मप्रसाद उत यत्र गुणेष्वसङ्गः ।
+> कैवल्यसम्मतपथस्त्वथ भक्तियोगः
+> को निर्वृतो हरिकथासु रतिं न कुर्यात् ॥१२॥
+
 > jñānaṁ yad āpratinivṛtta-guṇormi-cakram
 > ātma-prasāda uta yatra guṇeṣv asaṅgaḥ
 > kaivalya-sammata-pathas tv atha bhakti-yogaḥ

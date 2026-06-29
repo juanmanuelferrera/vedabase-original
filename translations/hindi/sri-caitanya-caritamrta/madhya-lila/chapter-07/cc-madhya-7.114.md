@@ -1,5 +1,8 @@
 ### CC Madhya 7.114
 
+> প্রেমাবেশে হাসি’ কান্দি’ নৃত্য-গীত কৈল ।
+> দেখি’ সর্ব লোকের চিত্তে চমৎকার হৈল ॥১১৪॥
+
 > premāveśe hāsi' kāndi' nṛtya-gīta kaila
 > dekhi' sarva lokera citte camatkāra haila
 

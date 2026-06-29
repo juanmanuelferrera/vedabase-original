@@ -1,5 +1,8 @@
 ### SB 3.2.12
 
+> यन्मर्त्यलीलौपयिकं स्वयोग मायाबलं दर्शयता गृहीतम् ।
+> विस्मापनं स्वस्य च सौभगर्द्धेः परं पदं भूषणभूषणाङ्गम् ॥१२॥
+
 > yan martya-līlaupayikaṁ sva-yoga-
 > māyā-balaṁ darśayatā gṛhītam
 > vismāpanaṁ svasya ca saubhagarddheḥ

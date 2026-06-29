@@ -1,5 +1,8 @@
 ### CC Madhya 15.284
 
+> সার্বভৌম-গৃহে দাস-দাসী, যে কুক্কুর ।
+> সেহ মোর প্রিয়, অন্য জন রহু দূর ॥২৮৪॥
+
 sārvabhauma-gṛhe dāsa-dāsī, ye kukkura
 
 seha mora priya, anya jana rahu dūra

@@ -1,5 +1,8 @@
 ### CC Madhya 6.33
 
+> সার্বভৌম পাঠাইল সবা দর্শন করিতে ।
+> ‘চন্দনেশ্বর’ নিজপুত্র দিল সবার সাথে ॥৩৩॥
+
 > sārvabhauma pāṭhāila sabā darśana karite
 > 'candaneśvara' nija-putra dila sabāra sāthe
 

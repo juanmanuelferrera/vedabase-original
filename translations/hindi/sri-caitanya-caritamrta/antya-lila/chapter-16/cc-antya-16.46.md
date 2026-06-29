@@ -1,5 +1,8 @@
 ### CC Antya 16.46
 
+> এক অঞ্জলি, দুই অঞ্জলি, তিন অঞ্জলি পিলা  ।
+> তবে মহাপ্রভু তাঁরে নিষেধ করিলা ॥৪৬॥
+
 > eka añjali, dui añjali, tina añjali pilā
 > tabe mahāprabhu tāṅre niṣedha karilā
 

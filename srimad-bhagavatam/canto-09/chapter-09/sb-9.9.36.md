@@ -1,5 +1,8 @@
 ### SB 9.9.36
 
+> एवं मित्रसहं शप्त्वा पतिलोकपरायणा
+> तदस्थीनि समिद्धेऽग्नौ प्रास्य भर्तुर्गतिं गता ॥३६॥
+
 > evaṁ mitrasahaṁ śaptvā
 > pati-loka-parāyaṇā
 > tad-asthīni samiddhe 'gnau

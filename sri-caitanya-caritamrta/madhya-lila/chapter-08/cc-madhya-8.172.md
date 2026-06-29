@@ -1,5 +1,8 @@
 ### CC Madhya 8.172
 
+> প্রচ্ছন্ন-মান বাম্য — ধম্মিল্ল-বিন্যাস ।
+> ‘ধীরাধীরাত্মক’ গুণ — অঙ্গে পটবাস ॥১৭২॥
+
 > pracchanna-māna vāmya—dhammilla-vinyāsa
 > 'dhīrādhīrātmaka' guṇa—aṅge paṭa-vāsa
 

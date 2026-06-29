@@ -1,5 +1,10 @@
 ### CC Adi 3.89
 
+> উল্লংঘিতত্রিবিধসীমসমাতিশায়ি-
+> সম্ভাবনং তব পরিব্রঢ়িম-স্বভাবম্ ।
+> মায়াবলেন ভবতাপি নিগুহ্যমানং
+> পশ্যন্তি কেচিদনিশং ত্বদনন্যভাবাঃ ॥৮৯॥
+
 ullaṅghita-trividha-sīma-samātiśāyi-
 sambhāvanaṁ tava parivraḍhima-svabhāvam
 māyā-balena bhavatāpi niguhyamānaṁ

@@ -1,5 +1,8 @@
 ### SB 4.11.6
 
+> तान्हन्यमानानभिवीक्ष्य गुह्यकाननागसश्चित्ररथेन भूरिशः ।
+> औत्तानपादिं कृपया पितामहो मनुर्जगादोपगतः सहर्षिभिः ॥६॥
+
 > tān hanyamānān abhivīkṣya guhyakān
 > anāgasaś citra-rathena bhūriśaḥ
 > auttānapādiṁ kṛpayā pitāmaho

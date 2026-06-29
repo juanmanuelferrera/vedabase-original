@@ -1,5 +1,8 @@
 ### CC Adi 14.6
 
+> বাল্যলীলায় আগে প্রভুর উত্তান শয়ন ।
+> পিতা-মাতায় দেখাইল চিহ্ন চরণ ॥৬॥
+
 bālya-līlāya āge prabhura uttāna śayana
 pitā-mātāya dekhāila cihna caraṇa
 

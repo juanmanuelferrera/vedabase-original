@@ -1,5 +1,8 @@
 ### SB 5.26.4
 
+> राजोवाच
+> नरका नाम भगवन्किं देशविशेषा अथवा बहिस्त्रिलोक्या आहोस्विदन्तराल इति ॥३॥
+
 rājovāca
 
 *narakā nāma bhagavan kiṁ deśa*-viśeṣā athavā bahis tri-lokyā āhosvid antarāla iti.

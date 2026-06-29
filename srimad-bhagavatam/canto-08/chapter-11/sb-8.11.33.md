@@ -1,5 +1,8 @@
 ### SB 8.11.33
 
+> तस्मादिन्द्रोऽबिभेच्छत्रोर्वज्रः प्रतिहतो यतः
+> किमिदं दैवयोगेन भूतं लोकविमोहनम ॥३३॥
+
 > tasmād indro 'bibhec chatror
 > vajraḥ pratihato yataḥ
 > kim idaṁ daiva-yogena

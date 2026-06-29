@@ -1,5 +1,8 @@
 ### CC Adi 11.46
 
+> নারায়ণ, কৃষ্ণদাস আর মনোহর ।
+> দেবানন্দ — চারি ভাই নিতাই-কিঙ্কর ॥৪৬॥
+
 nārāyaṇa, kṛṣṇadāsa āra manohara
 
 devānanda--cāri bhāi nitāi-kiṅkara

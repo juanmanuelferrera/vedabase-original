@@ -1,5 +1,8 @@
 ### CC Antya 1.130
 
+> প্রভু কহে, — “কহ, কেনে কর সঙ্কোচ-লাজে ?
+> গ্রন্থের ফল শুনাইবা বৈষ্ণব-সমাজে ?” ॥ ১৩০ ॥
+
 > prabhu kahe,—"kaha, kene kara saṅkoca-lāje?
 > granthera phala śunāibā vaiṣṇava samāje?"
 

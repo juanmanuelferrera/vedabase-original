@@ -1,5 +1,8 @@
 ### CC Adi 4.14
 
+> আনুসঙ্গ-কর্ম এই অসুর-মারণ ।
+> যে লাগি’ অবতার, কহি সে মূল কারণ ॥১৪॥
+
 > ānuṣaṅga-karma ei asura-māraṇa
 > ye lāgi' avatāra, kahi se mūla kāraṇa
 

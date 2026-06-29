@@ -1,5 +1,8 @@
 ### CC Antya 7.172
 
+> এই ত’ কহিলুঁ বল্লভ-ভট্টের মিলন ।
+> যাহার শ্রবণে পায় গৌরপ্রেমধন ॥১৭২॥
+
 ei ta' kahiluṅ vallabha-bhaṭṭera milana
 
 yāhāra śravaṇe pāya gaura-prema-dhana

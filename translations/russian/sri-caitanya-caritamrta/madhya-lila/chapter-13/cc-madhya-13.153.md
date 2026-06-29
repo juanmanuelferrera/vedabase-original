@@ -1,5 +1,10 @@
 ### CC Madhya 13.153
 
+> সেই সতী প্রেমবতী, প্রেমবান্ সেই পতি,
+> বিয়োগে যে বাঞ্ছে প্রিয়-হিতে ।
+> না গণে আপন-দুঃখ, বাঞ্ছে প্রিয়জন-সুখ,
+> সেই দুই মিলে অচিরাতে ॥১৫৩॥
+
 > sei satī premavatī, premavān sei pati,
 > viyoge ye vāñche priya-hite
 > nā gaṇe āpana-duḥkha, vāñche priyajana-sukha,

@@ -1,5 +1,8 @@
 ### SB 8.24.30
 
+> न तेऽरविन्दाक्ष पदोपसर्पणं मृषा भवेत्सर्वसुहृत्प्रियात्मनः
+> यथेतरेषां पृथगात्मनां सतामदीदृशो यद्वपुरद्भुतं हि नः ॥३०॥
+
 na te 'ravindākṣa padopasarpaṇaṁ
 mṛṣā bhavet sarva-suhṛt-priyātmanaḥ
 yathetareṣāṁ pṛthag-ātmanāṁ satām

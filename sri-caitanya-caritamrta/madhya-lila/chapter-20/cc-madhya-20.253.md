@@ -1,5 +1,8 @@
 ### CC Madhya 20.253
 
+> ইচ্ছাশক্তিপ্রধান কৃষ্ণ — ইচ্ছায় সর্বকর্তা ।
+> জ্ঞানশক্তিপ্রধান বাসুদেব অধিষ্ঠাতা ॥২৫৩॥
+
 > icchā-śakti-pradhāna kṛṣṇa—icchāya sarva-kartā
 > jñāna-śakti-pradhāna vāsudeva adhiṣṭhātā
 

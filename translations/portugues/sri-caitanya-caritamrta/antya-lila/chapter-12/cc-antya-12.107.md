@@ -1,5 +1,8 @@
 ### CC Antya 12.107
 
+> এক-কলস সুগন্ধি তৈল গৌড়েতে করিয়া ।
+> ইঁহা আনিয়াছে বহু যতন করিয়া ।।” ॥ ১০৭ ॥
+
 eka-kalasa sugandhi taila gauḍete kariyā
 
 ihāṅ āniyāche bahu yatana kariyā"

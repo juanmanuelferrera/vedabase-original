@@ -1,5 +1,8 @@
 ### CC Antya 1.126
 
+> বিদগ্ধমাধব আর ললিতমাধব ।
+> দুই নাটকে প্রেমরস অদভুত সব ।।” ॥ ১২৬ ॥
+
 > vidagdha-mādhava āra lalita-mādhava
 > dui nāṭake prema-rasa adabhuta saba"
 

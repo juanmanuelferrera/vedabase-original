@@ -1,5 +1,8 @@
 ### Bg 4.41
 
+> योगसंन्यस्तकर्माणं ज्ञानसञ्छिन्नसंशयम् ।
+> आत्मवन्तं न कर्माणि निबध्नन्ति धनञ्जय ॥४१॥
+
 > yoga-sannyasta-karmāṇaṁ
 > jñāna-sañchinna-saṁśayam
 > ātma-vantaṁ na karmāṇi

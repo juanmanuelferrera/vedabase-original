@@ -1,5 +1,8 @@
 ### CC Adi 15.3
 
+> পৌগণ্ড-লীলার সূত্র করিয়ে গণন ।
+> পৌগণ্ড-বয়সে প্রভুর মুখ্য অধ্যয়ন ॥৩॥
+
 paugaṇḍa-līlāra sūtra kariye gaṇana
 paugaṇḍa-vayase prabhura mukhya adhyayana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 6.222
 
+> বসিতে আসন দিয়া দুঁহেত বসিলা ।
+> প্রসাদান্ন খুলি’ প্রভু তাঁর হাতে দিলা ॥২২২॥
+
 > vasite āsana diyā duṅheta vasilā
 > prasādānna khuli' prabhu tāṅra hāte dilā
 

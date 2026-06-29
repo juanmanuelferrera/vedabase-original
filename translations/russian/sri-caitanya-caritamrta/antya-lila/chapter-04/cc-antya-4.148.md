@@ -1,5 +1,8 @@
 ### CC Antya 4.148
 
+> অপরাধ-ভয়ে তেঁহ মিলিতে না আইল ।
+> মহাপ্রভু মিলিবারে সেই ঠাঞি গেল ॥১৪৮॥
+
 > aparādha-bhaye teṅha milite nā āila
 > mahāprabhu milibāre sei ṭhāñi gela
 

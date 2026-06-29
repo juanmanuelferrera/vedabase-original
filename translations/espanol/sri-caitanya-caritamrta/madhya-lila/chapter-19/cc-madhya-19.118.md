@@ -1,5 +1,8 @@
 ### CC Madhya 19.118
 
+> শিবানন্দ-সেনের পুত্র ‘কবিকর্ণপূর’ ।
+> ‘রূপের মিলন’ স্ব-গ্রন্থে লিখিয়াছেন প্রচুর ॥১১৮॥
+
 > śivānanda-senera putra 'kavi-karṇapūra'
 > 'rūpera milana' sva-granthe likhiyāchena pracura
 

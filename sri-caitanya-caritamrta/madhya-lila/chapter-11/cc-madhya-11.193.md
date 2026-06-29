@@ -1,5 +1,8 @@
 ### CC Madhya 11.193
 
+> এত বলি তাঁরে লঞা গেলা পুষ্পোদ্যানে ।
+> অতি নিভৃতে তাঁরে দিলা বাসা-স্থানে ॥১৯৩॥
+
 > eta bali tāṅre lañā gelā puṣpodyāne
 > ati nibhṛte tāṅre dilā vāsā-sthāne
 

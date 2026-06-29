@@ -1,5 +1,8 @@
 ### SB 3.33.34
 
+> सिद्धचारणगन्धर्वैर्मुनिभिश्चाप्सरोगणैः ।
+> स्तूयमानः समुद्रेण दत्तार्हणनिकेतनः ॥३४॥
+
 > siddha-cāraṇa-gandharvair
 > munibhiś cāpsaro-gaṇaiḥ
 > stūyamānaḥ samudreṇa

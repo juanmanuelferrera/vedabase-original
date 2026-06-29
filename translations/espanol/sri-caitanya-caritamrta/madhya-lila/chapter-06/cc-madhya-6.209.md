@@ -1,5 +1,8 @@
 ### CC Madhya 6.209
 
+> দেখি’ গোপীনাথাচার্য হরষিত-মন ৷
+> ভট্টাচার্যের নৃত্য দেখি’ হাসে প্রভুর গণ ॥২০৯॥
+
 > dekhi' gopīnāthācārya haraṣita-mana
 > bhaṭṭācāryera nṛtya dekhi' hāse prabhura gaṇa
 

@@ -1,5 +1,8 @@
 ### CC Madhya 16.173
 
+> বহুত উৎকণ্ঠা তাঁর, কর্যাছে বিনয় ।
+> তোমা-সনে এই সন্ধি, নাহি যুদ্ধ-ভয় ।।’ ॥ ১৭৩ ॥
+
 bahuta utkaṇṭhā tāṅra, karyāche vinaya
 
 tomā-sane ei sandhi, nāhi yuddha-bhaya'

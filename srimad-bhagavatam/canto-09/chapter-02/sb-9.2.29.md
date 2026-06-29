@@ -1,5 +1,8 @@
 ### SB 9.2.29
 
+> मरुत्तस्य दमः पुत्रस्तस्यासीद्राज्यवर्धनः
+> सुधृतिस्तत्सुतो जज्ञए सौधृतेयो नरः सुतः ॥२९॥
+
 > maruttasya damaḥ putras
 > tasyāsīd rājyavardhanaḥ
 > sudhṛtis tat-suto jajñe

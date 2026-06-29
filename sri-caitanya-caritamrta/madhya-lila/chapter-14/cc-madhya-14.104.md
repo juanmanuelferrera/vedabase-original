@@ -1,5 +1,8 @@
 ### CC Madhya 14.104
 
+> নব দিন গুণ্ডিচাতে রহে জগন্নাথ ।
+> মহাপ্রভু ঐছে লীলা করে ভক্ত-সাথ ॥১০৪॥
+
 > nava dina guṇḍicāte rahe jagannātha
 > mahāprabhu aiche līlā kare bhakta-sātha
 

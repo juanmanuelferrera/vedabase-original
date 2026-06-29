@@ -1,5 +1,8 @@
 ### CC Madhya 20.325
 
+> স্বায়ংভুবে ‘যজ্ঞ’, স্বারোচিষে ‘বিভু’ নাম ।
+> ঔত্তমে ‘সত্যসেন’, তামসে ‘হরি’ অভিধান ॥৩২৫॥
+
 > svāyaṁbhuve 'yajña', svārociṣe 'vibhu' nāma
 > auttame 'satyasena', tāmase 'hari' abhidhāna
 

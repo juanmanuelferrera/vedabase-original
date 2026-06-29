@@ -1,5 +1,8 @@
 ### CC Madhya 14.222
 
+> কল্পবৃক্ষ-লতার — যাহাঁ সাহজিক-বন ।
+> পুষ্প-ফল বিনা কেহ না মাগে অন্য ধন ॥২২২॥
+
 > kalpavṛkṣa-latāra-yāhāṅ sāhajika-vana
 > puṣpa-phala vinā keha nā māge anya dhana
 

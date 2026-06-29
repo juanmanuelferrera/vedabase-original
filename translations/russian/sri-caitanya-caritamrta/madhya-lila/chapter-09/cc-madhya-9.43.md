@@ -1,5 +1,8 @@
 ### CC Madhya 9.43
 
+> নিজ-নিজ-শাস্ত্রোদ্গ্রাহে সবাই প্রচণ্ড ।
+> সর্ব মত দুষি’ প্রভু করে খণ্ড খণ্ড ॥৪৩॥
+
 > nija-nija-śāstrodgrāhe sabāi pracaṇḍa
 > sarva mata duṣi' prabhu kare khaṇḍa khaṇḍa
 

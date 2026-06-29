@@ -1,5 +1,8 @@
 ### CC Madhya 14.138
 
+> পূর্বে সত্যভামার শুনি এবম্বিধ মান ৷
+> ব্রজে গোপীগণের মান — রসের নিধান ॥১৩৮॥
+
 > pūrve satyabhāmāra śuni evaṁ-vidha māna
 > vraje gopī-gaṇera māna-rasera nidhāna
 

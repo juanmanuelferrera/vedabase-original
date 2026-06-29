@@ -1,5 +1,8 @@
 ### CC Antya 6.292
 
+> নেত্রজলে সেই শিলা ভিজে নিরন্তর ।
+> শিলারে কহেন প্রভু — ‘কৃষ্ণ-কলেবর’ ॥২৯২॥
+
 > netra-jale sei śilā bhije nirantara
 > śilāre kahena prabhu—'kṛṣṇa-kalevara'
 

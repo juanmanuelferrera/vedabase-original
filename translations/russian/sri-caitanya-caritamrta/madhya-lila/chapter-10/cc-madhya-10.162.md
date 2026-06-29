@@ -1,5 +1,8 @@
 ### CC Madhya 10.162
 
+> ভারতী কহে, — তোমার আচার লোক শিখাইতে ।
+> পুনঃ না করিবে নতি, ভয় পাঙ চিত্তে ॥১৬২॥
+
 > bhāratī kahe,-tomāra ācāra loka śikhāite
 > punaḥ nā karibe nati, bhaya pāṅa citte
 

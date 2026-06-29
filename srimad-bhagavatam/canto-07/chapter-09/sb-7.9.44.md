@@ -1,5 +1,10 @@
 ### SB 7.9.44
 
+> प्रायेण देव मुनयः स्वविमुक्तिकामा
+> मौनं चरन्ति विजने न परार्थनिष्ठाः
+> नैतान्विहाय कृपणान्विमुमुक्ष एको
+> नान्यं त्वदस्य शरणं भ्रमतोऽनुपश्ये ॥४४॥
+
 > prāyeṇa deva munayaḥ sva-vimukti-kāmā
 > maunaṁ caranti vijane na parārtha-niṣṭhāḥ
 > naitān vihāya kṛpaṇān vimumukṣa eko

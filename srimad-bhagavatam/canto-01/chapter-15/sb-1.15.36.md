@@ -1,5 +1,8 @@
 ### SB 1.15.36
 
+> यदा मुकुन्दो भगवानिमां महीं जहौ स्वतन्वा श्रवणीयसत्कथः ।
+> तदाहरेवाप्रतिबुद्धचेतसामभद्रहेतुः कलिरन्ववर्तत ॥३६॥
+
 > yadā mukundo bhagavān imāṁ mahīṁ
 > jahau sva-tanvā śravaṇīya-sat-kathaḥ
 > tadāhar evāpratibuddha-cetasām

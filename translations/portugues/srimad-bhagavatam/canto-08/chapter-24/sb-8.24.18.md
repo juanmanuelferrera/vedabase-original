@@ -1,5 +1,8 @@
 ### SB 8.24.18
 
+> नाहं कमण्डलावस्मिन्कृच्छ्रं वस्तुमिहोत्सहे
+> कल्पयौकः सुविपुलं यत्राहं निवसे सुखम ॥१८॥
+
 nāhaṁ kamaṇḍalāv asmin
 kṛcchraṁ vastum ihotsahe
 kalpayaukaḥ suvipulaṁ

@@ -1,5 +1,8 @@
 ### CC Adi 5.11
 
+> সর্বরূপে আস্বাদয়ে কৃষ্ণ-সেবানন্দ ।
+> সেই বলরাম — গৌরসঙ্গে নিত্যানন্দ ॥১১॥
+
 sarva-rūpe āsvādaye kṛṣṇa-sevānanda
 sei balarāma--gaura-saṅge nityānanda
 

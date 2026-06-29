@@ -1,5 +1,8 @@
 ### CC Adi 14.65
 
+> দুঁহা দেখি’ দুঁহার চিত্তে হইল উল্লাস ।
+> দেবপূজা ছলে কৈল দুঁহে পরকাশ ॥৬৫॥
+
 duṅhā dekhi' duṅhāra citte ha-ila ullāsa
 
 deva-pūjā chale kaila duṅhe parakāśa

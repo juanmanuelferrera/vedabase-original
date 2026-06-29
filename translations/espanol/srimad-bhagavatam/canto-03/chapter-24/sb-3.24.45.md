@@ -1,5 +1,8 @@
 ### SB 3.24.45
 
+> वासुदेवे भगवति सर्वज्ञे प्रत्यगात्मनि ।
+> परेण भक्तिभावेन लब्धात्मा मुक्तबन्धनः ॥४५॥
+
 > vāsudeve bhagavati
 > sarva-jñe pratyag-ātmani
 > pareṇa bhakti-bhāvena

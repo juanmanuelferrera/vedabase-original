@@ -1,5 +1,8 @@
 ### CC Antya 1.219
 
+> কৃষ্ণসেবা, রসভক্তি করিহ প্রচার ।
+> আমিহ দেখিতে তাহাঁ যাইমু একবার ।।” ॥ ২১৯ ॥
+
 kṛṣṇa-sevā, rasa-bhakti kariha pracāra
 
 āmiha dekhite tāhāṅ yāimu ekabāra"

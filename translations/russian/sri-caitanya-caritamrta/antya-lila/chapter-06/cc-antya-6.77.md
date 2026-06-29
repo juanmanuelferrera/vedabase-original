@@ -1,5 +1,8 @@
 ### CC Antya 6.77
 
+> সকল-লোকের চিড়া পূর্ণ যবে হইল ।
+> ধ্যানে তবে প্রভু মহাপ্রভুরে আনিল ॥৭৭॥
+
 > sakala-lokera ciḍā pūrṇa yabe ha-ila
 > dhyāne tabe prabhu mahāprabhure ānila
 

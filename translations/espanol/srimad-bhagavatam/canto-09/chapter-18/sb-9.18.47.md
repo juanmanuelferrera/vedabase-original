@@ -1,5 +1,8 @@
 ### SB 9.18.47
 
+> देवयान्यप्यनुदिनं मनोवाग्देहवस्तुभिः
+> प्रेयसः परमां प्रीतिमुवाह प्रेयसी रहः ॥४७॥
+
 > devayāny apy anudinaṁ
 > mano-vāg-deha-vastubhiḥ
 > preyasaḥ paramāṁ prītim

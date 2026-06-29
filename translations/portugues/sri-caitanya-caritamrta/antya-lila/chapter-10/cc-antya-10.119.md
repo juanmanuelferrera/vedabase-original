@@ -1,5 +1,8 @@
 ### CC Antya 10.119
 
+> শ্রীবাস-পণ্ডিতের এই অনেক প্রকার ।
+> পিঠা, পানা, অমৃতমণ্ডা, পদ্ম-চিনি আর ॥১১৯॥
+
 śrīvāsa-paṇḍitera ei aneka prakāra
 
 piṭhā, pānā, amṛta-maṇḍā padma-cini āra

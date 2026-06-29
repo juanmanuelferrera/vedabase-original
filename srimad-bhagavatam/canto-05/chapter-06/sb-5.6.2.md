@@ -1,5 +1,8 @@
 ### SB 5.6.2
 
+> ऋषिरुवाच
+> सत्यमुक्तं किन्त्विह वा एके न मनसोऽद्धा विश्रम्भमनवस्थानस्य शठकिरात इवसङ्गच्छन्ते ॥२॥
+
 > ṛṣir uvāca
 > satyam uktaṁ kintv iha vā eke na manaso 'ddhā viśrambham anavasthānasya śaṭha-kirāta iva saṅgacchante.
 

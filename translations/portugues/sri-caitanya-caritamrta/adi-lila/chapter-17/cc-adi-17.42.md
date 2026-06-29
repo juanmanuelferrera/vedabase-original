@@ -1,5 +1,8 @@
 ### CC Adi 17.42
 
+> নিত্য রাত্রে করি আমি ভবানী-পূজন ।
+> আমার মহিমা দেখ, ব্রাহ্মণ-সজ্জন ॥৪২॥
+
 nitya rātre kari āmi bhavānī-pūjana
 āmāra mahimā dekha, brāhmaṇa-sajjana
 

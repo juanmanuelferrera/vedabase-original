@@ -1,5 +1,8 @@
 ### CC Madhya 19.192
 
+> পুনঃ কৃষ্ণরতি হয় দুইত প্রকার ।
+> ঐশ্বর্যজ্ঞানমিশ্রা, কেবলা-ভেদ আর ॥১৯২॥
+
 punaḥ kṛṣṇa-rati haya duita prakāra
 
 aiśvarya-jñāna-miśrā, kevalā-bheda āra

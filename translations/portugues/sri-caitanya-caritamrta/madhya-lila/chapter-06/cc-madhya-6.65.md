@@ -1,5 +1,8 @@
 ### CC Madhya 6.65
 
+> আমার মাতৃষসা-গৃহ — নির্জন স্থান ।
+> তাহাঁ বাসা দেহ, কর সর্ব সমাধান ।।’ ॥ ৬৫ ॥
+
 āmāra mātṛ-svasā-gṛha--nirjana sthāna
 tāhāṅ vāsā deha, kara sarva samādhāna'
 

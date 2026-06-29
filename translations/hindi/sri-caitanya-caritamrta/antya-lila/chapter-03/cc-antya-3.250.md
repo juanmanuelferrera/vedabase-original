@@ -1,5 +1,8 @@
 ### CC Antya 3.250
 
+> তবে নারী কহে তাঁরে করি’ নমস্কার ।
+> ‘আমি — মায়া’ করিতে আইলাঙ পরীক্ষা তোমার ॥২৫০॥
+
 > tabe nārī kahe tāṅre kari' namaskāra
 > 'āmi--māyā' karite āilāṅa parīkṣā tomāra
 

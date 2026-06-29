@@ -1,5 +1,8 @@
 ### CC Adi 5.202
 
+> যাঁহা হৈতে পাইনু রঘুনাথ-মহাশয় ।
+> যাঁহা হৈতে পাইনু শ্রীস্বরূপ-আশ্রয় ॥২০২॥
+
 > yāṅhā haite pāinu raghunātha-mahāśaya
 > yāṅhā haite pāinu śrī-svarūpa-āśraya
 

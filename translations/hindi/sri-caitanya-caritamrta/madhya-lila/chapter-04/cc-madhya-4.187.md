@@ -1,5 +1,8 @@
 ### CC Madhya 4.187
 
+> এই তার গাঢ় প্রেমা লোকে দেখাইতে ।
+> গোপাল তাঁরে আজ্ঞা দিল চন্দন আনিতে ॥১৮৭॥
+
 > ei tāra gāḍha premā loke dekhāite
 > gopāla tāṅre ājñā dila candana ānite
 

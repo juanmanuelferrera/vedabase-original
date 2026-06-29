@@ -1,5 +1,8 @@
 ### CC Antya 3.135
 
+> বেশ্যা কহে, — “কৃপা করি’ করহ উপদেশ ।
+> কি মোর কর্তব্য, যাতে যায় ভব-ক্লেশ ।।” ॥ ১৩৫ ॥
+
 > veśyā kahe,--"kṛpā kari' karaha upadeśa
 > ki mora kartavya, yāte yāya bhava-kleśa"
 

@@ -1,5 +1,8 @@
 ### CC Madhya 8.11
 
+> গোদাবরী দেখি’ হইল ‘যমুনা’-স্মরণ ৷
+> তীরে বন দেখি’ স্মৃতি হৈল বৃন্দাবন ৷৷ ১১ ৷৷ ॥১১॥
+
 > godāvarī dekhi' ha-ila 'yamunā'-smaraṇa
 > tīre vana dekhi' smṛti haila vṛndāvana
 

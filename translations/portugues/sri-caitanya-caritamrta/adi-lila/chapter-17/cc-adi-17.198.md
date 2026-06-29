@@ -1,5 +1,8 @@
 ### CC Adi 17.198
 
+> ম্লেচ্ছ কহে, — হিন্দুরে আমি করি পরিহাস ।
+> কেহ কেহ — কৃষ্ণদাস, কেহ — রামদাস ॥১৯৮॥
+
 mleccha kahe,--hindure āmi kari parihāsa
 keha keha--kṛṣṇadāsa, keha--rāmadāsa
 

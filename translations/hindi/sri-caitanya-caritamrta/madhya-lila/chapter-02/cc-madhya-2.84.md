@@ -1,5 +1,10 @@
 ### CC Madhya 2.84
 
+> চৈতন্যলীলা-রত্ন-সার, স্বরূপের ভাণ্ডার,
+> তেঁহো থুইলা রঘুনাথের কণ্ঠে ।
+> তাহাঁ কিছু যে শুনিলুঁ, তাহা ইহাঁ বিস্তারিলুঁ,
+> ভক্তগণে দিলুঁ এই ভেটে ॥৮৪॥
+
 > caitanya-līlā-ratna-sāra, svarūpera bhāṇḍāra,
 > teṅho thuilā raghunāthera kaṇṭhe
 > tāhāṅ kichu ye śuniluṅ, tāhā ihāṅ vistāriluṅ,

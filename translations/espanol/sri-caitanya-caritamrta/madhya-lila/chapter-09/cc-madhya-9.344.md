@@ -1,5 +1,8 @@
 ### CC Madhya 9.344
 
+> সার্বভৌম মহাপ্রভুর পড়িলা চরণে ৷
+> প্রভু তাঁরে উঠাঞা কৈল আলিঙ্গনে ৷৷ ৩৪৪ ৷৷ ॥৩৪৪॥
+
 > sārvabhauma mahāprabhura paḍilā caraṇe
 > prabhu tāṅre uṭhāñā kaila āliṅgane
 

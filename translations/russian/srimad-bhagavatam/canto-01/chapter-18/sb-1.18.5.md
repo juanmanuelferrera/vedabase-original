@@ -1,5 +1,8 @@
 ### SB 1.18.5
 
+> तावत्कलिर्न प्रभवेत्प्रविष्टोऽपीह सर्वतः ।
+> यावदीशो महानुर्व्यामाभिमन्यव एकराट् ॥५॥
+
 > tāvat kalir na prabhavet
 > praviṣṭo 'pīha sarvataḥ
 > yāvad īśo mahān urvyām

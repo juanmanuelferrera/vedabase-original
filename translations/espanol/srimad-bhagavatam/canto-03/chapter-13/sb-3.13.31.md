@@ -1,5 +1,8 @@
 ### SB 3.13.31
 
+> स्वदंष्ट्रयोद्धृत्य महीं निमग्नां स उत्थितः संरुरुचे रसायाः ।
+> तत्रापि दैत्यं गदयापतन्तं सुनाभसन्दीपिततीव्रमन्युः ॥३१॥
+
 > sva-daṁṣṭrayoddhṛtya mahīṁ nimagnāṁ
 > sa utthitaḥ saṁruruce rasāyāḥ
 > tatrāpi daityaṁ gadayāpatantaṁ

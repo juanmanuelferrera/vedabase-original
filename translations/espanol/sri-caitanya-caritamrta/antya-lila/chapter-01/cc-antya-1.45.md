@@ -1,5 +1,8 @@
 ### CC Antya 1.45
 
+> ভাবিতে ভাবিতে শীঘ্র আইলা নীলাচলে ।
+> আসি’ উত্তরিলা হরিদাস-বাসাস্থলে ॥৪৫॥
+
 > bhāvite bhāvite śīghra āilā nīlācale
 > āsi' uttarilā haridāsa-vāsā-sthale
 

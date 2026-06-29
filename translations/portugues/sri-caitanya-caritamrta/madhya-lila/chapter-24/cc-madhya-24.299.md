@@ -1,5 +1,7 @@
 ### CC Madhya 24.299
 
+> অশ্বত্থবৃক্ষাশ্চ বটবৃক্ষাশ্চ কপিত্থবৃক্ষাশ্চ আম্রবৃক্ষাশ্চ বৃক্ষাঃ ॥২৯৯॥
+
 aśvattha-vṛkṣāś ca baṭa-vṛkṣāś ca kapittha-vṛkṣāś ca āmra-vṛkṣāś ca vṛkṣāḥ
 
 *aśvattha-vṛkṣāḥ*—figueiras-de-bengala; *ca*—e; *baṭa-vṛkṣāḥ*—figueiras; *ca*—e; *kapittha-vṛkṣāḥ*—um tipo de árvore chamado kapittha; *ca*—e; *āmra-vṛkṣāḥ*—mangueiras; *ca*—e; *vṛkṣāḥ*—todas indicadas pela palavra "árvores".

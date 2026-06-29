@@ -1,5 +1,8 @@
 ### CC Madhya 9.291
 
+> ক্ষণেকে আবেশ ছাড়ি’ দুঁহার ধৈর্য হৈল ।
+> ঈশ্বর-পুরীর সম্বন্ধ গোসাঞি জানাইল ॥২৯১॥
+
 > kṣaṇeke āveśa chāḍi' duṅhāra dhairya haila
 > īśvara-purīra sambandha gosāñi jānāila
 

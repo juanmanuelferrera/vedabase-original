@@ -1,5 +1,10 @@
 ### SB 3.15.17
 
+> वैमानिकाः सललनाश्चरितानि शश्वद्
+> गायन्ति यत्र शमलक्षपणानि भर्तुः ।
+> अन्तर्जलेऽनुविकसन्मधुमाधवीनां
+> गन्धेन खण्डितधियोऽप्यनिलं क्षिपन्तः ॥१७॥
+
 > vaimānikāḥ sa-lalanāś caritāni śaśvad
 > gāyanti yatra śamala-kṣapaṇāni bhartuḥ
 > antar-jale 'nuvikasan-madhu-mādhavīnāṁ

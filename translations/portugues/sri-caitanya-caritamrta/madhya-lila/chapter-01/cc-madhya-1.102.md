@@ -1,5 +1,8 @@
 ### CC Madhya 1.102
 
+> তবে ত’ করিলা প্রভু দক্ষিণ গমন ।
+> কূর্মক্ষেত্রে কৈল বাসুদেব বিমোচন ॥১০২॥
+
 tabe ta' karilā prabhu dakṣiṇa gamana
 
 kūrma-kṣetre kaila vāsudeva vimocana

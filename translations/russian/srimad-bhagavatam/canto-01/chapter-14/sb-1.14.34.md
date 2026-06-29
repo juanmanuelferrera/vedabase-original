@@ -1,5 +1,8 @@
 ### SB 1.14.34
 
+> भगवानपि गोविन्दो ब्रह्मण्यो भक्तवत्सलः ।
+> कच्चित्पुरे सुधर्मायां सुखमास्ते सुहृद्वृतः ॥३४॥
+
 > bhagavān api govindo
 > brahmaṇyo bhakta-vatsalaḥ
 > kaccit pure sudharmāyāṁ

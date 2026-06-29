@@ -1,5 +1,8 @@
 ### CC Antya 4.17
 
+> প্রভু দেখি’ দুঁহে পড়ে দণ্ডবৎ হঞা ।
+> প্রভু আলিঙ্গিলা হরিদাসেরে উঠাঞা ॥১৭॥
+
 > prabhu dekhi' duṅhe paḍe daṇḍavat hañā
 > prabhu āliṅgilā haridāsere uṭhāñā
 

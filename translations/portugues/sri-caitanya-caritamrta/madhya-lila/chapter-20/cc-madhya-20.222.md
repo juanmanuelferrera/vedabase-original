@@ -1,5 +1,8 @@
 ### CC Madhya 20.222
 
+> দক্ষিণাধো হস্ত হৈতে বামাধঃ পর্যন্ত ।
+> চক্রাদি অস্ত্রধারণ-গণনার অন্ত ॥২২২॥
+
 dakṣiṇādho hasta haite vāmādhaḥ paryanta
 
 cakrādi astra-dhāraṇa-gaṇanāra anta

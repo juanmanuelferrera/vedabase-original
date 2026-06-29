@@ -1,5 +1,8 @@
 ### CC Madhya 12.165
 
+> পুলিন-ভোজন কৃষ্ণ পূর্বে যৈছে কৈল ।
+> সেই লীলা মহাপ্রভুর মনে স্মৃতি হৈল ॥১৬৫॥
+
 pulina-bhojana kṛṣṇa pūrve yaiche kaila
 
 sei līlā mahāprabhura mane smṛti haila

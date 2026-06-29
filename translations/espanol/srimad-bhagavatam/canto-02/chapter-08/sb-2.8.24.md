@@ -1,5 +1,8 @@
 ### SB 2.8.24
 
+> सर्वमेतच्च भगवन्पृच्छतो मेऽनुपूर्वशः ।
+> तत्त्वतोऽर्हस्युदाहर्तुं प्रपन्नाय महामुने ॥२४॥
+
 > sarvam etac ca bhagavan
 > pṛcchato me 'nupūrvaśaḥ
 > tattvato 'rhasy udāhartuṁ

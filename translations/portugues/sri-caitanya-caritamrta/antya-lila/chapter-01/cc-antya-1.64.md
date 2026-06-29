@@ -1,5 +1,8 @@
 ### CC Antya 1.64
 
+> গোবিন্দদ্বারা প্রভুর শেষ-প্রসাদ পাইলা ।
+> প্রেমে মত্ত দুইজন নাচিতে লাগিলা ॥৬৪॥
+
 govinda-dvārā prabhura śeṣa-prasāda pāilā
 
 preme matta dui-jana nācite lāgilā

@@ -1,5 +1,8 @@
 ### CC Adi 17.114
 
+> যে হও, সে হও তুমি, তোমাকে নমস্কার ।।
+> প্রভু তারে প্রেম দিয়া কৈল পুরস্কার ॥১১৪॥
+
 > ye hao, se hao tumi, tomāke namaskāra
 > prabhu tāre prema diyā kaila puraskāra
 

@@ -1,5 +1,10 @@
 ### SB 4.22.40
 
+> कृच्छ्रो महानिह भवार्णवमप्लवेशां
+> षड्वर्गनक्रमसुखेन तितीर्षन्ति ।
+> तत्त्वं हरेर्भगवतो भजनीयमङ्घ्रिं
+> कृत्वोडुपं व्यसनमुत्तर दुस्तरार्णम् ॥४०॥
+
 > kṛcchro mahān iha bhavārṇavam aplaveśāṁ
 > ṣaḍ-varga-nakram asukhena titīrṣanti
 > tat tvaṁ harer bhagavato bhajanīyam aṅghriṁ

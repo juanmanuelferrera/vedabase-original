@@ -1,5 +1,10 @@
 ### CC Madhya 17.36
 
+> ধন্যাঃ স্ম মূঢ়মতয়োঽপি হরিণ্য এতা
+> যা নন্দনন্দনমুপাত্ত-বিচিত্রবেশম্ ।
+> আকর্ণ্য বেণুরণিতং সহকৃষ্ণসারাঃ
+> পূজাং দধুর্বিরচিতাং প্রণয়াবলোকৈঃ ॥৩৬॥
+
 > dhanyāḥ sma mūḍha-matayo 'pi hariṇya etā
 > yā nanda-nandanam upātta-vicitra-veśam
 > ākarṇya veṇu-raṇitaṁ saha-kṛṣṇa-sārāḥ

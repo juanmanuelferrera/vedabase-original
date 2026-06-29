@@ -1,5 +1,8 @@
 ### CC Madhya 5.112
 
+> সকল লোকের আগে গোপাল সাক্ষী দিল ।
+> বড়বিপ্র ছোটবিপ্রে কন্যাদান কৈল ॥১১২॥
+
 > sakala lokera āge gopāla sākṣī dila
 > baḍa-vipra choṭa-vipre kanyā-dāna kaila
 

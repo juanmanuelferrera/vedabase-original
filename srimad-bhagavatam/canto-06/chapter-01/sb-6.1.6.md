@@ -1,5 +1,8 @@
 ### SB 6.1.6
 
+> अधुनेह महाभाग यथैव नरकान्नरः
+> नानोग्रयातनान्नेयात्तन्मे व्याख्यातुमर्हसि ॥६॥
+
 > adhuneha mahā-bhāga
 > yathaiva narakān naraḥ
 > nānogra-yātanān neyāt

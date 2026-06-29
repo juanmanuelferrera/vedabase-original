@@ -1,5 +1,8 @@
 ### CC Adi 17.12
 
+> তবে নিত্যানন্দ-স্বরূপের আগমন ।
+> প্রভুকে মিলিয়া পাইল ষড়্ভুজ-দর্শন ॥১২॥
+
 > tabe nityānanda-svarūpera āgamana
 > prabhuke miliyā pāila ṣaḍ-bhuja-darśana
 

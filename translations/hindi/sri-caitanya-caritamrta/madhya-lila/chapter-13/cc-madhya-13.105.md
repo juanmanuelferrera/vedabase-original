@@ -1,5 +1,8 @@
 ### CC Madhya 13.105
 
+> জলযন্ত্র-ধারা যৈছে বহে অশ্রুজল ।
+> আশ-পাশে লোক যত ভিজিল সকল ॥১০৫॥
+
 > jalayantra-dhārā yaiche vahe aśru-jala
 > āśa-pāśe loka yata bhijila sakala
 

@@ -1,5 +1,8 @@
 ### CC Madhya 16.207
 
+> ‘বাচস্পতি-গৃহে’ প্রভু যেমতে রহিলা ।
+> লোক-ভিড় ভয়ে যৈছে ‘কুলিয়া’ আইলা ॥২০৭॥
+
 'vācaspati-gṛhe' prabhu yemate rahilā
 
 loka-bhiḍa bhaye yaiche 'kuliyā' āilā

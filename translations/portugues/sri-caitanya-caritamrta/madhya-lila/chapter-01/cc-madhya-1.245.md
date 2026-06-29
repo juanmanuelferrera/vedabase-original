@@ -1,5 +1,8 @@
 ### CC Madhya 1.245
 
+> মথুরা পাঠাইলা তাঁরে দিয়া ভক্তিবল ।
+> সন্ন্যাসীরে কৃপা করি’ গেলা নীলাচল ॥২৪৫॥
+
 mathurā pāṭhāilā tāṅre diyā bhakti-bala
 
 sannyāsīre kṛpā kari' gelā nīlācala

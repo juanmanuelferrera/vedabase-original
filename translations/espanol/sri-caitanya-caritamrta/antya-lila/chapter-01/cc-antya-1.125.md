@@ -1,5 +1,8 @@
 ### CC Antya 1.125
 
+> আরম্ভিয়াছিলা, এবে প্রভু-আজ্ঞা পাঞা  ।
+> দুই নাটক করিতেছে বিভাগ করিয়া ॥১২৫॥
+
 > ārambhiyāchilā, ebe prabhu-ājñā pāñā
 > dui nāṭaka kariteche vibhāga kariyā
 

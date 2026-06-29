@@ -1,5 +1,10 @@
 ### CC Madhya 3.18-19
 
+> তবে প্রভু পুছিলেন, — ‘শুন, শিশুগণ ।
+> কহ দেখি, কোন্ পথে যাব বৃন্দাবন ॥’ ১৮ ॥
+> শিশু সব গঙ্গাতীরপথ দেখাইল ।
+> সেই পথে আবেশে প্রভু গমন করিল ॥১৯॥
+
 > tabe prabhu puchilena,--'śuna, śiśu-gaṇa
 > kaha dekhi, kon pathe yāba vṛndāvana'
 > śiśu saba gaṅgā-tīra-patha dekhāila

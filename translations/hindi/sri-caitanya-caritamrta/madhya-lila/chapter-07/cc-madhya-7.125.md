@@ -1,5 +1,8 @@
 ### CC Madhya 7.125
 
+> মোর ভাগ্যের সীমা না যায় কহন ।
+> আজি মোর শ্লাঘ্য হৈল জন্ম-কুল-ধন ॥১২৫॥
+
 > mora bhāgyera sīmā nā yāya kahana
 > āji mora ślāghya haila janma-kula-dhana
 

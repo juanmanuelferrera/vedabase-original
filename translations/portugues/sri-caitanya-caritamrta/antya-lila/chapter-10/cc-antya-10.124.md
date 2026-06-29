@@ -1,5 +1,8 @@
 ### CC Antya 10.124
 
+> ঐছে সবার নাম লঞা প্রভুর আগে ধরে ।
+> সন্তুষ্ট হঞা প্রভু সব ভোজন করে ॥১২৪॥
+
 aiche sabāra nāma lañā prabhura āge dhare
 
 santuṣṭa hañā prabhu saba bhojana kare

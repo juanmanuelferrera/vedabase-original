@@ -1,5 +1,8 @@
 ### CC Madhya 9.186
 
+> প্রভু কহে, — বিপ্র কাঁহে কর উপবাস ।
+> কেনে এত দুঃখ, কেনে করহ হুতাশ ॥১৮৬॥
+
 > prabhu kahe,—vipra kāṅhe kara upavāsa
 > kene eta duḥkha, kene karaha hutāśa
 

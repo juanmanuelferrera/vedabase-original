@@ -1,5 +1,8 @@
 ### SB 3.3.22
 
+> तस्यैवं रममाणस्य संवत्सरगणान्बहून् ।
+> गृहमेधेषु योगेषु विरागः समजायत ॥२२॥
+
 > tasyaivaṁ ramamāṇasya
 > saṁvatsara-gaṇān bahūn
 > gṛhamedheṣu yogeṣu

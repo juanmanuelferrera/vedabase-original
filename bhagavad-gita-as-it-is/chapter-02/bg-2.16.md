@@ -1,5 +1,8 @@
 ### Bg 2.16
 
+> नासतो विद्यते भावो नाभावो विद्यते सतः ।
+> उभयोरपि दृष्टोऽन्तस्त्वनयोस्तत्त्वदर्शिभिः ॥१६॥
+
 > nāsato vidyate bhāvo
 > nābhāvo vidyate sataḥ
 > ubhayor api dṛṣṭo 'ntas

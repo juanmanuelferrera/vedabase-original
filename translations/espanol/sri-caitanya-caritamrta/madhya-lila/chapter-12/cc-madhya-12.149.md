@@ -1,5 +1,8 @@
 ### CC Madhya 12.149
 
+> শুনিতেই গোপালের হইল চেতন ।
+> ‘হরি’ বলি’ নৃত্য করে সর্বভক্তগণ ॥১৪৯॥
+
 > śunitei gopālera ha-ila cetana
 > 'hari' bali' nṛtya kare sarva-bhakta-gaṇa
 

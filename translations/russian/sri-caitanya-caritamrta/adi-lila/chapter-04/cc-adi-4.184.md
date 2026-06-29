@@ -1,5 +1,8 @@
 ### CC Adi 4.184
 
+> নিজাঙ্গমপি যা গোপ্যো মমেতি সমুপাসতে ।
+> তাভ্যঃ পরং ন মে পার্থ নিগূঢ়প্রেমভাজনম্ ॥১৮৪॥
+
 > nijāṅgam api yā gopyo
 > mameti samupāsate
 > tābhyaḥ paraṁ na me pārtha

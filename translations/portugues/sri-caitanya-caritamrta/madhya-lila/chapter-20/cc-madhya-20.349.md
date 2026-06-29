@@ -1,5 +1,8 @@
 ### CC Madhya 20.349
 
+> চারিযুগাবতারে এই ত’ গণন ।
+> শুনি’ ভঙ্গি করি’ তাঁরে পুছে সনাতন ॥৩৪৯॥
+
 cāri-yugāvatāre ei ta' gaṇana
 
 śuni' bhaṅgi kari' tāṅre puche sanātana

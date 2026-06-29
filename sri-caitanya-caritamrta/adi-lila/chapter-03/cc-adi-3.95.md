@@ -1,5 +1,8 @@
 ### CC Adi 3.95
 
+> মাধব-ঈশ্বর-পুরী, শচী, জগন্নাথ ।
+> অদ্বৈত আচার্য প্রকট হৈলা সেই সাথ ॥৯৫॥
+
 > mādhava-īśvara-purī, śacī, jagannātha
 > advaita ācārya prakaṭa hailā sei sātha
 

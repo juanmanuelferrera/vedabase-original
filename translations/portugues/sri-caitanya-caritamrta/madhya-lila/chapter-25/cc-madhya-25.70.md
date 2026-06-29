@@ -1,5 +1,8 @@
 ### CC Madhya 25.70
 
+> লোকসংঘট্ট দেখি’ প্রভুর ‘বাহ্য’ যবে হৈল ।
+> সন্ন্যাসীর গণ দেখি’ নৃত্য সম্বরিল ॥৭০॥
+
 loka-saṅghaṭṭa dekhi' prabhura 'bāhya' yabe haila
 
 sannyāsīra gaṇa dekhi' nṛtya saṁvarila

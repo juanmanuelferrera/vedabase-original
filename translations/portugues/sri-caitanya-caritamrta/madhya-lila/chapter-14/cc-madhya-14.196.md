@@ -1,5 +1,8 @@
 ### CC Madhya 14.196
 
+> বাহিরে বামতা-ক্রোধ, ভিতরে সুখ মনে ।
+> ‘কুট্টমিত’-নাম এই ভাব-বিভূষণে ॥১৯৬॥
+
 bāhire vāmatā-krodha, bhitare sukha mane
 
 'kuṭṭamita'-nāma ei bhāva-vibhūṣaṇe

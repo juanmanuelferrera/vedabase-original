@@ -1,5 +1,8 @@
 ### CC Madhya 16.120
 
+> প্রভুর দরশনে সবে হৈল প্রেমময় ।
+> ‘কৃষ্ণ’ ‘কৃষ্ণ’ কহে, নেত্র অশ্রু বরিষয় ॥১২০॥
+
 prabhura daraśane sabe haila premamaya
 
 'kṛṣṇa' 'kṛṣṇa' kahe, netra aśru variṣaya

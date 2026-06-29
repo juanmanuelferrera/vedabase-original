@@ -1,5 +1,8 @@
 ### CC Antya 18.11
 
+> দ্বাদশ বৎসরে যে যে লীলা ক্ষণে-ক্ষণে ।
+> অতিবাহুল্য-ভয়ে গ্রন্থ না কৈলুঁ লিখনে ॥১১॥
+
 dvādaśa vatsare ye ye līlā kṣaṇe-kṣaṇe
 ati-bāhulya-bhaye grantha nā kailuṅ likhane
 

@@ -1,5 +1,8 @@
 ### CC Adi 5.221
 
+> যাঁর ধ্যান নিজ-লোকে করে পদ্মাসন ।
+> অষ্টাদশাক্ষর-মন্ত্রে করে উপাসন ॥২২১॥
+
 yāṅra dhyāna nija-loke kare padmāsana
 
 aṣṭādaśākṣara-mantre kare upāsana

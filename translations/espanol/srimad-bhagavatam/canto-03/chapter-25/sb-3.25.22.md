@@ -1,5 +1,8 @@
 ### SB 3.25.22
 
+> मय्यनन्येन भावेन भक्तिं कुर्वन्ति ये दृढाम् ।
+> मत्कृते त्यक्तकर्माणस्त्यक्तस्वजनबान्धवाः ॥२२॥
+
 > mayy ananyena bhāvena
 > bhaktiṁ kurvanti ye dṛḍhām
 > mat-kṛte tyakta-karmāṇas

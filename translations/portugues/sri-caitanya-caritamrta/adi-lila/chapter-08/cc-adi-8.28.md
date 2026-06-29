@@ -1,5 +1,8 @@
 ### CC Adi 8.28
 
+> অনায়াসে ভবক্ষয়, কৃষ্ণের সেবন ।
+> এক কৃষ্ণনামের ফলে পাই এত ধন ॥২৮॥
+
 anāyāse bhava-kṣaya, kṛṣṇera sevana
 
 eka kṛṣṇa-nāmera phale pāi eta dhana

@@ -1,5 +1,8 @@
 ### CC Madhya 13.173
 
+> প্রভুর শরীর যেন শুদ্ধ-হেমাচল ।
+> ভাব-পুষ্পদ্রুম তাহে পুষ্পিত সকল ॥১৭৩॥
+
 prabhura śarīra yena śuddha-hemācala
 
 bhāva-puṣpa-druma tāhe puṣpita sakala

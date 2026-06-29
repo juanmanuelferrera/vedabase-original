@@ -1,5 +1,8 @@
 ### SB 4.5.10
 
+> यस्त्वन्तकाले व्युप्तजटाकलापः स्वशूलसूच्यर्पितदिग्गजेन्द्रः ।
+> वितत्य नृत्यत्युदितास्त्रदोर्ध्वजानुच्चाट्टहासस्तनयित्नुभिन्नदिक् ॥१०॥
+
 > yas tv anta-kāle vyupta-jaṭā-kalāpaḥ
 > sva-śūla-sūcy-arpita-dig-gajendraḥ
 > vitatya nṛtyaty uditāstra-dor-dhvajān

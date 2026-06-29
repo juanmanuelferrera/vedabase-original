@@ -1,5 +1,10 @@
 ### CC Antya 1.168
 
+> মহেন্দ্রমণিমণ্ডলীমদবিড়ম্বিদেহদ্যুতি-
+> র্ব্রজেন্দ্রকুলচন্দ্রমাঃ স্ফুরতি কোঽপি নব্যো যুবা ।
+> সখি স্থিরকুলাঙ্গনা-নিকর-নীবি-বন্ধার্গল-
+> চ্ছিদাকরণ-কৌতুকী জয়তি যস্য বংশীধ্বনিঃ ॥১৬৮॥
+
 > mahendra-maṇi-maṇḍalī-mada-viḍambi-deha-dyutir
 > vrajendra-kula-candramāḥ sphurati ko 'pi navyo yuvā
 > sakhi sthira-kulāṅganā-nikara-nīvi-bandhārgala-

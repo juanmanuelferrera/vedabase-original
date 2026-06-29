@@ -1,5 +1,7 @@
 ### SB 5.8.17
 
+> अपि क्षेमेणास्मिन्नाश्रमोपवने शष्पाणि चरन्तं देवगुप्तं द्रक्ष्यामि ॥१७॥
+
 *api kṣemeṇāsminn āśramopavane śaṣpāṇi carantaṁ deva*-guptaṁ drak-ṣyāmi.
 
 *api*—pode ser; *kṣemeṇa*—com destemor por causa da ausência de tigres e outros animais; *asmin*—neste; *āśrama-upavane*—jardim da ermida; *śaṣpāṇi carantam*—caminhando e comendo as ervas tenras; *deva-guptam*—sendo protegido pelos semideuses; *drakṣyāmi*—verei.

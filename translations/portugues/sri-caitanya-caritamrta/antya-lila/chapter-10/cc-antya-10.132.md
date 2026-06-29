@@ -1,5 +1,8 @@
 ### CC Antya 10.132
 
+> কভু রাত্রিকালে কিছু করেন উপযোগ ।
+> ভক্তের শ্রদ্ধার দ্রব্য অবশ্য করেন উপভোগ ॥১৩২॥
+
 kabhu rātri-kāle kichu karena upayoga
 
 bhaktera śraddhāra dravya avaśya karena upabhoga

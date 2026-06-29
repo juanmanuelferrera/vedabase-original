@@ -1,5 +1,8 @@
 ### CC Adi 5.183
 
+> ‘উঠ’, ‘উঠ’ বলি’ মোরে বলে বার বার ।
+> উঠি’ তাঁর রূপ দেখি’ হৈনু চমৎকার ॥১৮৩॥
+
 'uṭha', 'uṭha' bali' more bale bāra bāra
 uṭhi' tāṅra rūpa dekhi' hainu camatkāra
 

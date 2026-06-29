@@ -1,5 +1,8 @@
 ### CC Madhya 19.5
 
+> কৃষ্ণমন্ত্রে করাইল দুই পুরশ্চরণ ।
+> অচিরাৎ পাইবারে চৈতন্য-চরণ ॥৫॥
+
 > kṛṣṇa-mantre karāila dui puraścaraṇa
 > acirāt pāibāre caitanya-caraṇa
 

@@ -1,5 +1,7 @@
 ### SB 5.20.30
 
+> तद्द्वीपमध्ये मानसोत्तरनामैक एवार्वाचीनपराचीनवर्षयोर्मर्यादाचलोऽयुतयोजनोच्छ्रायायामो यत्र तु चतसृषु दिक्षु चत्वारि पुराणि लोकपालानामिन्द्रादीनां यदुपरिष्टात्सूर्यरथस्य मेरुं परिभ्रमतः संवत्सरात्मकं चक्रं देवानामहोरात्राभ्यां परिभ्रमति ॥३०॥
+
 > tad-dvīpa-madhye mānasottara-nāmaika evārvācīna-parācīna-varṣayor maryādācalo 'yuta-yojanocchrāyāyāmo yatra tu catasṛṣu dikṣu catvāri purāṇi loka-pālānām indrādīnāṁ yad-upariṣṭāt sūrya-rathasya meruṁ paribhramataḥ saṁvatsarātmakaṁ cakraṁ devānām aho-rātrābhyāṁ paribhramati.
 
 *tat-dvīpa-madhye*—within that island; *mānasottara*—Mānasottara; *nāma*—named; *ekaḥ*—one; *eva*—indeed; *arvācīna*—on this side; *parācīna*—and beyond, or outside; *varṣayoḥ*—of tracts of land; *maryādā*—indicating the boundary; *acalaḥ*—a great mountain; *ayuta*—ten thousand; *yojana*—eight miles; *ucchrāya-āyāmaḥ*—whose height and width; *yatra*—where; *tu*—but; *catasṛṣu*—in the four; *dikṣu*—directions; *catvāri*—four; *purāṇi*—cities; *loka-pālānām*—of the directors of planetary systems; *indra-ādīnām*—headed by Indra; *yat*—of which; *upariṣṭāt*—on the top; *sūrya-rathasya*—of the chariot of the sun-god; *merum*—Meru Mountain; *paribhramataḥ*—while circumambulating; *saṁvatsara-ātmakam*—consisting of one *saṁvatsara*; *cakram*—wheel or orbit; *devānām*—of the demigods; *ahaḥ-rātrābhyām*—by the day and night; *paribhramati*—moves around.

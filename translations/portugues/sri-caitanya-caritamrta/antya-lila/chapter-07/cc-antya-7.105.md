@@ -1,5 +1,8 @@
 ### CC Antya 7.105
 
+> আচার্য কহে, — “আগে তোমার ‘ধর্ম’ মূর্তিমান্ ।
+> ইঁহারে পুছহ, ইঁহ করিবেন ইহার সমাধান ॥১০৫॥
+
 ācārya kahe,--"āge tomāra 'dharma' mūrtimān
 
 iṅhāre puchaha, iṅha karibena ihāra samādhāna

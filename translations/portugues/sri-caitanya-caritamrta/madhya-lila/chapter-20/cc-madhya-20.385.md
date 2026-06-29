@@ -1,5 +1,8 @@
 ### CC Madhya 20.385
 
+> ‘নিত্যলীলা’ কৃষ্ণের সর্বশাস্ত্রে কয় ।
+> বুঝিতে না পারে লীলা কেমনে ‘নিত্য’ হয় ॥৩৮৫॥
+
 'nitya-līlā' kṛṣṇera sarva-śāstre kaya
 
 bujhite nā pāre līlā kemane 'nitya' haya

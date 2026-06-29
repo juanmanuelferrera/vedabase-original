@@ -1,5 +1,8 @@
 ### CC Adi 4.31
 
+> ধর্ম ছাড়ি’ রাগে দুঁহে করয়ে মিলন ।
+> কভু মিলে, কভু না মিলে, — দৈবের ঘটন ॥৩১॥
+
 > dharma chāḍi' rāge duṅhe karaye milana
 > kabhu mile, kabhu nā mile,--daivera ghaṭana
 

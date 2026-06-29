@@ -1,5 +1,8 @@
 ### CC Madhya 11.211
 
+> বিশ্রাম করিতে সবে নিজ বাসা গেলা ৷
+> সন্ধ্যাকালে আসি’ পুনঃ প্রভুকে মিলিলা ৷৷ ২১১ ৷৷ ॥২১১॥
+
 > viśrāma karite sabe nija vāsā gelā
 > sandhyā-kāle āsi' punaḥ prabhuke mililā
 

@@ -1,5 +1,8 @@
 ### CC Antya 5.56
 
+> মিশ্র কহে, — ‘মহাপ্রভু পাঠাইলা মোরে ।
+> তোমার স্থানে কৃষ্ণকথা শুনিবার তরে’ ॥৫৬॥
+
 > miśra kahe,--'mahāprabhu pāṭhāilā more
 > tomāra sthāne kṛṣṇa-kathā śunibāra tare'
 

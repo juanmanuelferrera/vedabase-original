@@ -1,5 +1,8 @@
 ### SB 7.13.25
 
+> तत्रापि दम्पतीनां च सुखायान्यापनुत्तये
+> कर्माणि कुर्वतां दृष्ट्वा निवृत्तोऽस्मि विपर्ययम ॥२५॥
+
 > yadṛcchayā lokam imaṁ
 > prāpitaḥ karmabhir bhraman
 > svargāpavargayor dvāraṁ

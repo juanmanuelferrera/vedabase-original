@@ -1,5 +1,8 @@
 ### CC Antya 18.64
 
+> স্বরূপ কহে, — “যারে তুমি কর ‘ভূত’-জ্ঞান ।
+> ভূত নহে — তেঁহো কৃষ্ণচৈতন্য ভগবান্ ॥৬৪॥
+
 svarūpa kahe,--"yāṅre tumi kara 'bhūta'-jñāna
 
 bhūta nahe--teṅho kṛṣṇa-caitanya bhagavān

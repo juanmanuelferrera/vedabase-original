@@ -1,5 +1,10 @@
 ### CC Madhya 8.107
 
+> ইতস্ততস্তামনুসৃত্য রাধিকা-
+> মনঙ্গবাণব্রণখিন্নমানসঃ ৷
+> কৃতানুতাপঃ স কলিন্দনন্দিনী
+> তটান্তকুঞ্জে বিষসাদ মাধবঃ ৷৷ ১০৭ ৷৷ ॥১০৭॥
+
 itas tatas tām anusṛtya rādhikām
 anaṅga-bāṇa-vraṇa-khinna-mānasaḥ
 kṛtānutāpaḥ sa kalinda-nandinī

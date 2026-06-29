@@ -1,5 +1,8 @@
 ### SB 7.8.31
 
+> नखाङ्कुरोत्पाटितहृत्सरोरुहं विसृज्य तस्यानुचरानुदायुधान
+> अहन्समस्तान्नखशस्त्रपाणिभिर्दोर्दण्डयूथोऽनुपथान्सहस्रशः ॥३१॥
+
 > nakhāṅkurotpāṭita-hṛt-saroruhaṁ
 > visṛjya tasyānucarān udāyudhān
 > ahan samastān nakha-śastra-pāṇibhir

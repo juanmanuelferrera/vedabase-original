@@ -1,5 +1,8 @@
 ### CC Madhya 12.179
 
+> গোপীনাথাচার্য উত্তম মহাপ্রসাদ আনি’  ।
+> সার্বভৌমে দিয়া কহে সুমধুর বাণী ॥১৭৯॥
+
 > gopīnāthācārya uttama mahā-prasāda āni'
 > sārvabhaume diyā kahe sumadhura vāṇī
 

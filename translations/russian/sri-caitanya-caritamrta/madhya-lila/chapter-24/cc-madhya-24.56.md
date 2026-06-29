@@ -1,5 +1,10 @@
 ### CC Madhya 24.56
 
+> কাস্ত্র্যঙ্গ তে কলপদামৃতবেণুগীত-
+> সম্মোহিতার্যচরিতান্ন চলেত্রিলোক্যাম্ ।
+> ত্রৈলোক্যসৌভগমিদঞ্চ নিরীক্ষ্য রূপং
+> যদ্গোদ্বিজদ্রুমমৃগাঃ পুলকান্যবিভ্রন্ ॥৫৬॥
+
 > kā stry aṅga te kala-padāmṛta-veṇu-gīta-
 > sammohitārya-caritān na calet trilokyām
 > trailokya-saubhagam idaṁ ca nirīkṣya rūpaṁ

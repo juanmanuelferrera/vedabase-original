@@ -1,5 +1,8 @@
 ### CC Madhya 8.68
 
+> প্রভু কহে, — “এহো হয়, আগে কহ আর ৷”
+> রায় কহে, — “প্রেমভক্তি — সর্বসাধ্যসার ৷৷” ৬৮ ৷৷ ॥৬৮॥
+
 prabhu kahe,--"eho haya, āge kaha āra"
 rāya kahe, "prema-bhakti--sarva-sādhya-sāra"
 

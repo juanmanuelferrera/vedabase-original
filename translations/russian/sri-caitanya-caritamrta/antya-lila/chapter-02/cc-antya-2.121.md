@@ -1,5 +1,8 @@
 ### CC Antya 2.121
 
+> এত কহি’ মহাপ্রভু অভ্যন্তরে গেলা ।
+> গোসাঞির আবেশ দেখি’ সবে মৌন হৈলা ॥১২১॥
+
 > eta kahi' mahāprabhu abhyantare gelā
 > gosāñira āveśa dekhi' sabe mauna hailā
 

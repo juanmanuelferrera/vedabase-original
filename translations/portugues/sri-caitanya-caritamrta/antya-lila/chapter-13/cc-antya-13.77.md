@@ -1,5 +1,8 @@
 ### CC Antya 13.77
 
+> জগদানন্দের আগমনে সবার উল্লাস ।
+> এইমতে নীলাচলে প্রভুর বিলাস ॥৭৭॥
+
 jagadānandera āgamane sabāra ullāsa
 
 ei-mate nīlācale prabhura vilāsa

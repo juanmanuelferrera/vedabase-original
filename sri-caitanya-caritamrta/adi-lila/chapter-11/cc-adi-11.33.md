@@ -1,5 +1,8 @@
 ### CC Adi 11.33
 
+> নবদ্বীপে পুরুষোত্তম পণ্ডিত মহাশয় ।
+> নিত্যানন্দ-নামে যাঁর মহোন্মাদ হয় ॥৩৩॥
+
 > navadvīpe puruṣottama paṇḍita mahāśaya
 > nityānanda-nāme yāṅra mahonmāda haya
 

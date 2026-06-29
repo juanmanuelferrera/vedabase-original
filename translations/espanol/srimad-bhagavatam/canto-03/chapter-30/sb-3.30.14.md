@@ -1,5 +1,8 @@
 ### SB 3.30.14
 
+> तत्राप्यजातनिर्वेदो भ्रियमाणः स्वयम्भृतैः ।
+> जरयोपात्तवैरूप्यो मरणाभिमुखो गृहे ॥१४॥
+
 > tatrāpy ajāta-nirvedo
 > bhriyamāṇaḥ svayam bhṛtaiḥ
 > jarayopātta-vairūpyo

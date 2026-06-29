@@ -1,5 +1,8 @@
 ### CC Madhya 8.310
 
+> শ্রীচৈতন্য-নিত্যানন্দ-অদ্বৈত-চরণ ।
+> যাঁহার সর্বস্ব, তাঁরে মিলে এই ধন ॥৩১০॥
+
 > śrī-caitanya-nityānanda-advaita-caraṇa
 > yāṅhāra sarvasva, tāṅre mile ei dhana
 

@@ -1,5 +1,8 @@
 ### SB 3.33.37
 
+> य इदमनुशृणोति योऽभिधत्ते कपिलमुनेर्मतमात्मयोगगुह्यम् ।
+> भगवति कृतधीः सुपर्णकेतावुपलभते भगवत्पदारविन्दम् ॥३७॥
+
 > ya idam anuśṛṇoti yo 'bhidhatte
 > kapila-muner matam ātma-yoga-guhyam
 > bhagavati kṛta-dhīḥ suparṇa-ketāv

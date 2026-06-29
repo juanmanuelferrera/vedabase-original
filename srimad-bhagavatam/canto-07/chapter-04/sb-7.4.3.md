@@ -1,5 +1,8 @@
 ### SB 7.4.3
 
+> ततो जगाम भगवानमोघानुग्रहो विभुः
+> पूजितोऽसुरवर्येण स्तूयमानः प्रजेश्वरैः ॥३॥
+
 > tato jagāma bhagavān
 > amoghānugraho vibhuḥ
 > pūjito 'sura-varyeṇa

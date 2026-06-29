@@ -1,5 +1,8 @@
 ### SB 5.17.21
 
+> यस्याद्य आसीद्गुणविग्रहो महान्विज्ञआनधिष्ण्यो भगवानजः किल
+> यत्सम्भवोऽहं त्रिवृता स्वतेजसा वैकारिकं तामसमैन्द्रियं सृजे ॥२१॥
+
 > yam āhur asya sthiti-janma-saṁyamaṁ
 > tribhir vihīnaṁ yam anantam ṝṣayaḥ
 > na veda siddhārtham iva kvacit sthitaṁ

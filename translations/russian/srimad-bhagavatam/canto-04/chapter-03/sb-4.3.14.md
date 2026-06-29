@@ -1,5 +1,8 @@
 ### SB 4.3.14
 
+> तन्मे प्रसीदेदममर्त्य वाञ्छितं कर्तुं भवान्कारुणिको बतार्हति ।
+> त्वयात्मनोऽर्धेऽहमदभ्रचक्षुषा निरूपिता मानुगृहाण याचितः ॥१४॥
+
 > tan me prasīdedam amartya vāñchitaṁ
 > kartuṁ bhavān kāruṇiko batārhati
 > tvayātmano 'rdhe 'ham adabhra-cakṣuṣā

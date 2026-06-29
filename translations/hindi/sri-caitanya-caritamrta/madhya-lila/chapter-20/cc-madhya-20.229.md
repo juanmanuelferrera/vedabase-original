@@ -1,5 +1,8 @@
 ### CC Madhya 20.229
 
+> বিষ্ণুমূর্তি — গদাপদ্মশঙ্খচক্রকর ।
+> মধুসূদন — চক্রশঙ্খপদ্মগদাধর ॥২২৯॥
+
 > viṣṇu-mūrti--gadā-padma-śaṅkha-cakra-kara
 > madhusūdana--cakra-śaṅkha-padma-gadā-dhara
 

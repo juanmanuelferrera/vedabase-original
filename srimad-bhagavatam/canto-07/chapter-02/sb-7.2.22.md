@@ -1,5 +1,8 @@
 ### SB 7.2.22
 
+> नित्य आत्माव्ययः शुद्धः सर्वगः सर्ववित्परः
+> धत्तेऽसावात्मनो लिङ्गं मायया विसृजन्गुणान ॥२२॥
+
 > nitya ātmāvyayaḥ śuddhaḥ
 > sarvagaḥ sarva-vit paraḥ
 > dhatte 'sāv ātmano liṅgaṁ

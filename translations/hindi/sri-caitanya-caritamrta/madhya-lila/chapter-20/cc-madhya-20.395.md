@@ -1,5 +1,8 @@
 ### CC Madhya 20.395
 
+> কোন ব্ৰহ্মাণ্ডে কোন লীলার হয় অবস্থান ।
+> তাতে লীলা ‘নিত্য’ কহে আগম-পুরাণ ॥৩৯৫॥
+
 > kona brahmāṇḍe kona līlāra haya avasthāna
 > tāte līlā 'nitya' kahe āgama-purāṇa
 

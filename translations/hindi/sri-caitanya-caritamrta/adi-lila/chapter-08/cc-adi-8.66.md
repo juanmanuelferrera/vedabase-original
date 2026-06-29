@@ -1,5 +1,8 @@
 ### CC Adi 8.66
 
+> কাশীশ্বর গোসাঞির শিষ্য — গোবিন্দ গোসাঞি ।
+> গোবিন্দের প্রিয়সেবক তাঁর সম নাঞি ॥৬৬॥
+
 > kāśīśvara gosāñira śiṣya—govinda gosāñi
 > govindera priya-sevaka tāṅra sama nāñi
 

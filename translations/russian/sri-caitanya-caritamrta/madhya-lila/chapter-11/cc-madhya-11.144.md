@@ -1,5 +1,8 @@
 ### CC Madhya 11.144
 
+> শ্রীবাসাদ্যে কহে প্রভু করি’ মহাপ্রীত ।
+> তোমার চারি-ভাইর আমি হইনু বিক্রীত ॥১৪৪॥
+
 > śrīvāsādye kahe prabhu kari' mahā-prīta
 > tomāra cāri-bhāira āmi ha-inu vikrīta
 

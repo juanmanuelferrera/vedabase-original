@@ -1,5 +1,8 @@
 ### CC Madhya 25.250
 
+> নবমে — কহিলুঁ দক্ষিণ-তীর্থ-ভ্রমণ ।
+> দশমে — কহিলুঁ সর্ব বৈষ্ণব-মিলন ॥২৫০॥
+
 navame-kahiluṅ dakṣiṇa-tīrtha-bhramaṇa
 
 daśame-kahiluṅ sarva-vaiṣṇava-milana

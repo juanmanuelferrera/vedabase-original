@@ -1,5 +1,8 @@
 ### CC Madhya 1.210
 
+> তোমার হৃদয় আমি জানি পত্রীদ্বারে ।
+> তোমা শিখাইতে শ্লোক পাঠাইল তোমারে ॥২১০॥
+
 tomāra hṛdaya āmi jāni patrī-dvāre
 
 tomā śikhāite śloka pāṭhāila tomāre

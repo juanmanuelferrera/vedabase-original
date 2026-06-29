@@ -1,5 +1,8 @@
 ### CC Madhya 9.359
 
+> অনন্ত চৈতন্যলীলা কহিতে না জানি ।
+> লোভে লজ্জা খাঞা তার করি টানাটানি ॥৩৫৯॥
+
 > ananta caitanya-līlā kahite nā jāni
 > lobhe lajjā khāñā tāra kari ṭānāṭāni
 

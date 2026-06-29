@@ -1,5 +1,8 @@
 ### CC Madhya 10.70
 
+> এই কৃষ্ণদাসে দিব গৌড়ে পাঠাঞা ।
+> এত কহি’ তারে রাখিলেন আশ্বাসিয়া ॥৭০॥
+
 > ei kṛṣṇadāse diba gauḍe pāṭhāñā
 > eta kahi' tāre rākhilena āśvāsiyā
 

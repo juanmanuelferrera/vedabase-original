@@ -1,5 +1,8 @@
 ### CC Madhya 1.154
 
+> পাষণ্ডী নিন্দক আসি’ পড়িলা চরণে ।
+> অপরাধ ক্ষমি’ তারে দিল কৃষ্ণপ্রেমে ॥১৫৪॥
+
 > pāṣaṇḍī nindaka āsi' paḍilā caraṇe
 > aparādha kṣami' tāre dila kṛṣṇa-preme
 

@@ -1,5 +1,8 @@
 ### CC Madhya 7.69
 
+> “ঘরে কৃষ্ণ ভজি’ মোরে করিহ আশীর্বাদে ।
+> নীলাচলে আসি’ যেন তোমার প্রসাদে ।।” ॥৬৯॥
+
 > "ghare kṛṣṇa bhaji' more kariha āśīrvāde
 > nīlācale āsi' yena tomāra prasāde"
 

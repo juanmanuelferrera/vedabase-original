@@ -1,5 +1,8 @@
 ### CC Adi 14.22
 
+> ক্রন্দনের ছলে বলাইল হরিনাম ।
+> নারী সব ‘হরি’ বলে, — হাসে গৌরধাম ॥২২॥
+
 > krandanera chale balāila hari-nāma
 > nārī saba 'hari' bale,—hāse gaura-dhāma
 

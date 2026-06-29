@@ -1,5 +1,9 @@
 ### SB 5.26.3
 
+> ऋषिरुवाच
+> त्रिगुणत्वात्कर्तुः श्रद्धया कर्मगतयः पृथग्विधाः सर्वा एव सर्वस्य तारतम्येन भवन्ति
+> अथेदानीं प्रतिषिद्धलक्षणस्याधर्मस्य तथैव कर्तुः श्रद्धाया वैसादृश्यात्कर्मफलंविसदृशं भवति या ह्यनाद्यविद्यया कृतकामानां तत्परिणामलक्षणाः सृतयः सहस्रशःप्रवृत्तास्तासां प्राचुर्येणानुवर्णयिष्यामः ॥२॥
+
 > athedānīṁ pratiṣiddha-lakṣaṇasyādharmasya tathaiva kartuḥ śraddhāyā vaisādṛśyāt karma-phalaṁ visadṛśaṁ bhavati yā hy anādy-avidyayā kṛta-kāmānāṁ tat-pariṇāma-lakṣaṇāḥ sṛtayaḥ sahasraśaḥ pravṛttās tāsāṁ prācuryeṇānuvarṇayiṣyāmaḥ.
 
 *atha*—thus; *idānīm*—now; *pratiṣiddha*—by what is forbidden; *lakṣaṇasya*—symptomized; *adharmasya*—of impious activities; *tathā*—so also; *eva*—certainly; *kartuḥ*—of the performer; *śraddhāyāḥ*—of faith; *vaisādṛśyāt*—by the difference; *karma-phalam*—the reaction of fruitive activities; *visadṛśam*—different; *bhavati*—is; *yā*—which; *hi*—indeed; *anādi*—from time immemorial; *avidyayā*—by ignorance; *kṛta*—performed; *kāmānām*—of persons possessing many lusty desires; *tat-pariṇāma-lakṣaṇāḥ*—the symptoms of the results of such impious desires; *sṛtayaḥ*—hellish conditions of life; *sahasraśaḥ*—by thousands upon thousands; *pravṛttāḥ*—resulted; *tāsām*—them; *prācuryeṇa*—very widely; *anuvarṇayiṣyāmaḥ*—I shall explain.

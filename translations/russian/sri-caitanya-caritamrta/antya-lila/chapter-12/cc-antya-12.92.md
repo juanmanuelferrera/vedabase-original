@@ -1,5 +1,8 @@
 ### CC Antya 12.92
 
+> আমি যাই’ ভোজন করি — মাতা নাহি জানে ।
+> সাক্ষাতে খাই আমি’ তেঁহো ‘স্বপ্ন’ হেন মানে ।।” ॥ ৯২ ॥
+
 > āmi yāi' bhojana kari—mātā nāhi jāne
 > sākṣāte khāi āmi' teṅho 'svapna' hena māne"
 

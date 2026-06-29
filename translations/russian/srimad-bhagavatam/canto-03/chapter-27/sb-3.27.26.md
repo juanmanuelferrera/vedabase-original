@@ -1,5 +1,8 @@
 ### SB 3.27.26
 
+> एवं विदिततत्त्वस्य प्रकृतिर्मयि मानसम् ।
+> युञ्जतो नापकुरुत आत्मारामस्य कर्हिचित् ॥२६॥
+
 > evaṁ vidita-tattvasya
 > prakṛtir mayi mānasam
 > yuñjato nāpakuruta

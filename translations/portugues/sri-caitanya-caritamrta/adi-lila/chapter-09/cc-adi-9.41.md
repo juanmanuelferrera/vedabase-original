@@ -1,5 +1,8 @@
 ### CC Adi 9.41
 
+> ভারত-ভূমিতে হৈল মনুষ্য-জন্ম যার ।
+> জন্ম সার্থক করি’ কর পর-উপকার ॥৪১॥
+
 bhārata-bhūmite haila manuṣya janma yāra
 janma sārthaka kari' kara para-upakāra
 

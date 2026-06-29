@@ -1,5 +1,10 @@
 ### SB 3.15.49
 
+> कामं भवः स्ववृजिनैर्निरयेषु नः स्ताच्
+> चेतोऽलिवद्यदि नु ते पदयो रमेत ।
+> वाचश्च नस्तुलसिवद्यदि तेऽङ्घ्रिशोभाः
+> पूर्येत ते गुणगणैर्यदि कर्णरन्ध्रः ॥४९॥
+
 kāmaṁ bhavaḥ sva-vṛjinair nirayeṣu naḥ stāc
 ceto 'livad yadi nu te padayo rameta
 vācaś ca nas tulasivad yadi te 'ṅghri-śobhāḥ

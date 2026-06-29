@@ -1,5 +1,8 @@
 ### CC Antya 4.161
 
+> শুনি’ সনাতন পায়ে ধরি’ প্রভুরে কহিল  ।
+> “জগদানন্দের সৌভাগ্য আজি সে জানিল ॥১৬১॥
+
 śuni' sanātana pāye dhari' prabhure kahila
 
 'jagadānandera saubhāgya āji se jānila

@@ -1,5 +1,8 @@
 ### SB 5.21.8-9
 
+> तत्रत्यानां दिवसमध्यङ्गत एव सदादित्यस्तपति सव्येनाचलं दक्षिणेन करोति ॥८॥
+> यत्रोदेति तस्य ह समानसूत्रनिपाते निम्लोचति यत्र क्वचन स्यन्देनाभितपति तस्य हैष समानसूत्रनिपाते प्रस्वापयति तत्र गतं न पश्यन्ति ये तं समनुपश्येरन ॥९॥
+
 > tatratyānāṁ divasa-madhyaṅgata eva sadādityas tapati savyenācalaṁ dakṣiṇena karoti; yatrodeti tasya ha samāna-sūtra-nipāte nimlocati yatra kvacana syandenābhitapati tasya haiṣa samāna-sūtra-nipāte prasvāpayati tatra gataṁ na paśyanti ye taṁ samanupaśyeran.
 
 *tatratyānām*—for the living entities residing on Mount Meru; *divasa-madhyaṅgataḥ*—being positioned as at midday; *eva*—indeed; *sadā*—always; *ādityaḥ*—the sun; *tapati*—heats; *savyena*—to the left side; *acalam*—Sumeru Mountain; *dakṣiṇena*—to the right (being forced by wind blowing to the right, the sun moves to the right); *karoti*—moves; *yatra*—the point where; *udeti*—it rises; *tasya*—of that position; *ha*—certainly; *samāna-sūtra-nipāte*—at the diametrically opposite point; *nimlocati*—the sun sets; *yatra*—where; *kvacana*—somewhere; *syandena*—with perspiration; *abhitapati*—heats (at midday); *tasya*—of that; *ha*—certainly; *eṣaḥ*—this (the sun); *samāna-sūtra-nipāte*—at the diametrically opposite point; *prasvāpayati*—the sun causes to sleep (as at midnight); *tatra*—there; *gatam*—gone; *na paśyanti*—do not see; *ye*—who; *tam*—the sunset; *samanupaśyeran*—seeing.

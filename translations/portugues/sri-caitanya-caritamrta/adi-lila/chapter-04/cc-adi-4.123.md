@@ -1,5 +1,8 @@
 ### CC Adi 4.123
 
+> না জানি রাধার প্রেমে আছে কত বল ।
+> যে বলে আমারে করে সর্বদা বিহ্বল ॥১২৩॥
+
 nā jāni rādhāra preme āche kata bala
 ye bale āmāre kare sarvadā vihvala
 

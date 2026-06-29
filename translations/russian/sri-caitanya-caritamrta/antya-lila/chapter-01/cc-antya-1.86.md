@@ -1,5 +1,7 @@
 ### CC Antya 1.86
 
+> ‘মোর অন্তর-বার্তা রূপ জানিল কেমনে ?’ স্বরূপ কহে — “জানি, কৃপা করিয়াছ আপনে ॥৮৬॥
+
 > 'mora antara-vārtā rūpa jānila kemane?'
 > svarūpa kahe—'jāni, kṛpā kariyācha āpane
 

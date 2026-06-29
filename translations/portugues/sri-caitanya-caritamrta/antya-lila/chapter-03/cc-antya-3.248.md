@@ -1,5 +1,8 @@
 ### CC Antya 3.248
 
+> “তিন দিন বঞ্চিলা আমা করি’ আশ্বাসন  ।
+> রাত্রি-দিনে নহে তোমার নাম-সমাপন ।।” ২৪৮ ॥২৪৮॥
+
 "tina dina vañcilā āmā kari' āśvāsana
 
 rātri-dine nahe tomāra nāma-samāpana"

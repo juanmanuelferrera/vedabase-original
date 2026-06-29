@@ -1,5 +1,8 @@
 ### CC Madhya 11.25
 
+> যে তাঁহার প্রেম-আর্তি দেখিলুঁ তোমাতে ৷
+> তার এক প্রেম-লেশ নাহিক আমাতে ৷৷ ২৫ ৷৷ ॥২৫॥
+
 ye tāṅhāra prema-ārti dekhiluṅ tomāte
 tāra eka prema-leśa nāhika āmāte
 

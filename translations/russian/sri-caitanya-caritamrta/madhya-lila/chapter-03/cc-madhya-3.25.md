@@ -1,5 +1,8 @@
 ### CC Madhya 3.25
 
+> প্রভু কহে, — কত দূরে আছে বৃন্দাবন ।
+> তেঁহো কহেন, — কর এই যমুনা দরশন ॥২৫॥
+
 > prabhu kahe,—kata dūre āche vṛndāvana
 > teṅho kahena,—kara ei yamunā daraśana
 

@@ -1,5 +1,8 @@
 ### SB 7.9.4
 
+> तथेति शनकै राजन्महाभागवतोऽर्भकः
+> उपेत्य भुवि कायेन ननाम विधृताञ्जलिः ॥४॥
+
 > tatheti śanakai rājan
 > mahā-bhāgavato 'rbhakaḥ
 > upetya bhuvi kāyena

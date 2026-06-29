@@ -1,5 +1,8 @@
 ### SB 7.3.18
 
+> अद्राक्षमहमेतं ते हृत्सारं महदद्भुतम
+> दंशभक्षितदेहस्य प्राणा ह्यस्थिषु शेरते ॥१८॥
+
 > adrākṣam aham etaṁ te
 > hṛt-sāraṁ mahad-adbhutam
 > daṁśa-bhakṣita-dehasya

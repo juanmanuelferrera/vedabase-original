@@ -1,5 +1,8 @@
 ### CC Adi 17.243
 
+> একদিন মহাপ্রভুর নৃত্য-অবসানে ।
+> এক ব্রাহ্মণী আসি’ ধরিল চরণে ॥২৪৩॥
+
 > eka-dina mahāprabhura nṛtya-avasāne
 > eka brāhmaṇī āsi' dharila caraṇe
 

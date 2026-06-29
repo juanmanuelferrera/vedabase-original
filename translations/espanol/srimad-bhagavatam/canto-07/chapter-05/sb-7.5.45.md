@@ -1,5 +1,8 @@
 ### SB 7.5.45
 
+> एष मे बह्वसाधूक्तो वधोपायाश्च निर्मिताः
+> तैस्तैर्द्रोहैरसद्धर्मैर्मुक्तः स्वेनैव तेजसा ॥४५॥
+
 > eṣa me bahv-asādhūkto
 > vadhopāyāś ca nirmitāḥ
 > tais tair drohair asad-dharmair

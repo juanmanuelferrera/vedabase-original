@@ -1,5 +1,8 @@
 ### SB 6.16.43
 
+> न व्यभिचरति तवेक्षा यया ह्यभिहितो भागवतो धर्मः
+> स्थिरचरसत्त्वकदम्बेष्वपृथग्धियो यमुपासते त्वार्याः ॥४३॥
+
 > na vyabhicarati tavekṣā
 > yayā hy abhihito bhāgavato dharmaḥ
 > sthira-cara-sattva-kadambeṣv

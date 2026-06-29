@@ -1,5 +1,8 @@
 ### CC Antya 13.62
 
+> পাক করি’ জগদানন্দ চৈতন্যে সমর্পিলা ।
+> দুইজন বসি’ তবে প্রসাদ পাইলা ॥৬২॥
+
 pāka kari' jagadānanda caitanya samarpilā
 
 dui-jana vasi' tabe prasāda pāilā

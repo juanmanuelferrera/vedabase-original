@@ -1,5 +1,8 @@
 ### CC Adi 10.34
 
+> সদাশিবপণ্ডিত যাঁর প্রভুপদে আশ ।
+> প্রথমেই নিত্যানন্দের যাঁর ঘরে বাস ॥৩৪॥
+
 sadāśiva-paṇḍita yāṅra prabhu-pade āśa
 
 prathamei nityānandera yāṅra ghare vāsa

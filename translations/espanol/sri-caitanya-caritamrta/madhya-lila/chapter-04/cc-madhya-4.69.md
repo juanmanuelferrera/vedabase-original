@@ -1,5 +1,8 @@
 ### CC Madhya 4.69
 
+> দশবিপ্ৰ অন্ন রান্ধি’ করে এক স্তূপ ।
+> জনা-পাঁচ রান্ধে ব্যঞ্জনাদি নানা সূপ ॥৬৯॥
+
 > daśa-vipra anna rāndhi' kare eka stūpa
 > janā-pāṅca rāndhe vyañjanādi nānā sūpa
 

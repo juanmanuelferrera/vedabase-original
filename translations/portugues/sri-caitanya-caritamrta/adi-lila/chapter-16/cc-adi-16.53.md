@@ -1,5 +1,8 @@
 ### CC Adi 16.53
 
+> কবি কহে, — কহ দেখি, কোন্ গুণ-দোষ ।
+> প্রভু কহেন, — কহি, শুন, না করিহ রোষ ॥৫৩॥
+
 kavi kahe,--kaha dekhi, kon guṇa-doṣa
 
 prabhu kahena,--kahi, śuna, nā kariha roṣa

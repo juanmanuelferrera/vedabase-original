@@ -1,5 +1,8 @@
 ### CC Madhya 25.178
 
+> রাত্রে উঠি’ প্রভু যদি করিলা গমন ।
+> পাছে লাগ্ লইলা তবে ভক্ত পঞ্চ জন ॥১৭৮॥
+
 > rātre uṭhi' prabhu yadi karilā gamana
 > pāche lāg la-ilā tabe bhakta pañca jana
 

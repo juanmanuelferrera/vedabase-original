@@ -1,5 +1,8 @@
 ### CC Madhya 12.77
 
+> কিন্তু ঘট, সংমার্জনী বহুত চাহিয়ে ।
+> আজ্ঞা দেহ — আজি সব ইহাঁ আনি দিয়ে ॥৭৭॥
+
 kintu ghaṭa, sammārjanī bahuta cāhiye
 
 ājñā deha-āji saba ihāṅ āni diye

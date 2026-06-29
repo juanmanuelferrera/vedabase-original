@@ -1,5 +1,8 @@
 ### CC Adi 10.94
 
+> বৃন্দাবনে দুই ভাইর চরণ দেখিয়া ।
+> গোবর্ধনে ত্যজিব দেহ ভৃগুপাত করিয়া ॥৯৪॥
+
 vṛndāvane dui bhāira caraṇa dekhiyā
 
 govardhane tyajiba deha bhṛgupāta kariyā

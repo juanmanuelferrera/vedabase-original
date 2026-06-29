@@ -1,5 +1,8 @@
 ### CC Madhya 16.53
 
+> বলগণ্ডি-ভোগের বহু প্রসাদ আইল ।
+> সবা সঙ্গে মহাপ্ৰভু প্রসাদ খাইল ॥৫৩॥
+
 > balagaṇḍi-bhogera bahu prasāda āila
 > sabā saṅge mahāprabhu prasāda khāila
 

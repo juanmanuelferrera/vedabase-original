@@ -1,5 +1,8 @@
 ### CC Madhya 19.213
 
+> শমো মন্নিষ্ঠতা বুদ্ধের্দম ইন্দ্রিয়সংযমঃ ।
+> তিতিক্ষা দুঃখসংমর্ষো জিহ্বোপস্থজয়ো ধৃতিঃ ॥২১৩॥
+
 > śamo man-niṣṭhatā buddher
 > dama indriya-saṁyamaḥ
 > titikṣā duḥkha-sammarṣo

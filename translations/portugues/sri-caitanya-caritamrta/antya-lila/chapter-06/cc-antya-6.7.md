@@ -1,5 +1,8 @@
 ### CC Antya 6.7
 
+> দিনে প্রভু নানা-সঙ্গে হয় অন্য মন ।
+> রাত্রিকালে বাড়ে প্রভুর বিরহ-বেদন ॥৭॥
+
 dine prabhu nānā-saṅge haya anya mana
 rātri-kāle bāḍe prabhura viraha-vedana
 

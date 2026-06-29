@@ -1,5 +1,8 @@
 ### CC Madhya 17.129
 
+> প্রভু কহে, — “মায়াবাদী কৃষ্ণে অপরাধী  ।
+> ‘ব্রহ্ম’, ‘আত্মা’ ‘চৈতন্য’ কহে নিরবধি ॥১২৯॥
+
 > prabhu kahe,--"māyāvādī kṛṣṇe aparādhī
 > 'brahma', 'ātmā' 'caitanya' kahe niravadhi
 

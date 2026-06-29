@@ -1,5 +1,8 @@
 ### CC Adi 17.247
 
+> একদিন গোপীভাবে গৃহেতে বসিয়া ।
+> ‘গোপী’ ‘গোপী’ নাম লয় বিষণ্ণ হঞা ॥২৪৭॥
+
 eka-dina gopī-bhāve gṛhete vasiyā
 
 'gopī' 'gopī' nāma laya viṣaṇṇa hañā

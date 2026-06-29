@@ -1,5 +1,8 @@
 ### CC Antya 6.207
 
+> “পথে ইঁহ করিয়াছে বহুত লবঙ্ঘন  ।
+> কতদিন কর ইহার ভাল সন্তর্পণ ।।” ২০৭ ॥২০৭॥
+
 "pathe iṅha kariyāche bahuta laṅghana
 
 kata-dina kara ihāra bhāla santarpaṇa"

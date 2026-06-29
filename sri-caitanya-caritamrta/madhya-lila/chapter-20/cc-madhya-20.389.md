@@ -1,5 +1,8 @@
 ### CC Madhya 20.389
 
+> সূর্যোদয় হৈতে ষষ্টিপল-ক্রমোদয় ।
+> সেই এক দণ্ড, অষ্ট দণ্ডে ‘প্রহর’ হয় ॥৩৮৯॥
+
 > sūryodaya haite ṣaṣṭi-pala-kramodaya
 > sei eka daṇḍa, aṣṭa daṇḍe 'prahara' haya
 

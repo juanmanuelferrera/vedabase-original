@@ -1,5 +1,8 @@
 ### CC Antya 5.29
 
+> “বহুক্ষণ আইলা, মোরে কেহ না কহিল  ।
+> তোমার চরণে মোর অপরাধ হইল ॥২৯॥
+
 "bahu-kṣaṇa āilā, more keha nā kahila
 
 tomāra caraṇe mora aparādha ha-ila

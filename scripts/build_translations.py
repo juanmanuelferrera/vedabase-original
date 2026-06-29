@@ -139,12 +139,10 @@ def derive_target(ref):
 def field(v): return (v or '').strip()
 
 def render_row(row, heading, mode):
-    """Render one row to Markdown. devanagari intentionally omitted (English convention)."""
+    """Render one row to Markdown: heading, then Devanāgarī/Bengali śloka, IAST
+    transliteration, synonyms, translation, purport (each verbatim, empty ones skipped)."""
     parts = [heading] if heading else []
-    if mode == 'verse':
-        order = ('verse_text','synonyms','translation','purport')
-    else:                       # prose / lob: translation holds the title/bold line
-        order = ('verse_text','synonyms','translation','purport')
+    order = ('devanagari', 'verse_text', 'synonyms', 'translation', 'purport')
     body = [field(row.get(k)) for k in order]
     body = [b for b in body if b]
     return ('\n\n'.join(parts + body)).rstrip() + '\n'

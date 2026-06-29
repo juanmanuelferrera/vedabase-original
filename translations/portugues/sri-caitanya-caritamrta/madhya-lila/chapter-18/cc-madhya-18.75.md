@@ -1,5 +1,8 @@
 ### CC Madhya 18.75
 
+> প্রাতে বৃন্দাবনে কৈলা ‘চীরঘাটে’ স্নান ।
+> তেঁতুলী-তলাতে আসি’ করিলা বিশ্রাম ॥৭৫॥
+
 prāte vṛndāvane kailā 'cīra-ghāṭe' snāna
 
 teṅtulī-talāte āsi' karilā viśrāma

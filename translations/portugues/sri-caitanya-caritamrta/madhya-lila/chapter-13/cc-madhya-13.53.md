@@ -1,5 +1,8 @@
 ### CC Madhya 13.53
 
+> সবে কহে, — প্ৰভু আছেন মোর সম্প্রদায় ।
+> অন্য ঠাঞি নাহি যা’ন আমারে দয়ায় ॥৫৩॥
+
 sabe kahe,-prabhu āchena mora sampradāya
 
 anya ṭhāñi nāhi yā'na āmāre dayāya

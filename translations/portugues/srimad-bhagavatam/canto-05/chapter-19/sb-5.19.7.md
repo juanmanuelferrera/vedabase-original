@@ -1,5 +1,8 @@
 ### SB 5.19.7
 
+> न जन्म नूनं महतो न सौभगं न वाङ्न बुद्धिर्नाकृतिस्तोषहेतुः
+> तैर्यद्विसृष्टानपि नो वनौकसश्चकार सख्ये बत लक्ष्मणाग्रजः ॥७॥
+
 na janma nūnaṁ mahato na saubhagaṁ
 *na vāṅ na buddhir nākṛtis toṣa*-hetuḥ
 tair yad visṛṣṭān api no vanaukasaś

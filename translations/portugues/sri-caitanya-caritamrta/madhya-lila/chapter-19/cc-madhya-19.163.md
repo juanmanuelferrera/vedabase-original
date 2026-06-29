@@ -1,5 +1,8 @@
 ### CC Madhya 19.163
 
+> তাহাঁ সেই কল্পবৃক্ষের করয়ে সেবন ।
+> সুখে প্রেমফল-রস করে আস্বাদন ॥১৬৩॥
+
 tāhāṅ sei kalpa-vṛkṣera karaye sevana
 
 sukhe prema-phala-rasa kare āsvādana

@@ -1,5 +1,8 @@
 ### CC Antya 1.215
 
+> শ্রীরূপ প্রভুপদে নীলাচলে রহিলা ।
+> দোলযাত্রা প্রভুসঙ্গে আনন্দে দেখিলা ॥২১৫॥
+
 > śrī-rūpa prabhu-pade nīlācale rahilā
 > dola-yātrā prabhu-saṅge ānande dekhilā
 

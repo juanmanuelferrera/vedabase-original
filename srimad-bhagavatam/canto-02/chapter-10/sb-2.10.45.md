@@ -1,5 +1,8 @@
 ### SB 2.10.45
 
+> नास्य कर्मणि जन्मादौ परस्यानुविधीयते ।
+> कर्तृत्वप्रतिषेधार्थं माययारोपितं हि तत् ॥४५॥
+
 > nāsya karmaṇi janmādau
 > parasyānuvidhīyate
 > kartṛtva-pratiṣedhārthaṁ

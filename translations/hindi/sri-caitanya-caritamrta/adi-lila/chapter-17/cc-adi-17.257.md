@@ -1,5 +1,8 @@
 ### CC Adi 17.257
 
+> প্রভুর নিন্দায় সবার বুদ্ধি হৈল নাশ ।
+> সুপঠিত বিদ্যা কারও না হয় প্রকাশ ॥২৫৭॥
+
 > prabhura nindāya sabāra buddhi haila nāśa
 > supaṭhita vidyā kārao nā haya prakāśa
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.83
 
+> সেই ভিতে হাত দিয়া ফল পরশিলা ৷
+> কৃষ্ণ-যোগ্য নহে, ফল অপবিত্র হৈলা ॥৮৩॥
+
 sei bhite hāta diyā phala paraśilā
 
 kṛṣṇa-yogya nahe, phala apavitra hailā

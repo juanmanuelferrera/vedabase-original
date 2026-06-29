@@ -1,5 +1,8 @@
 ### SB 9.7.12
 
+> दन्ता जाता यजस्वेति स प्रत्याहाथ सोऽब्रवीत
+> यदा पतन्त्यस्य दन्ता अथ मेध्यो भवेदिति ॥१२॥
+
 > dantā jātā yajasveti
 > sa pratyāhātha so 'bravīt
 > yadā patanty asya dantā

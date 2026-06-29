@@ -1,5 +1,8 @@
 ### CC Madhya 1.129
 
+> কাশীমিশ্রে কৃপা, প্রদ্যুম্ন মিশ্রাদি-মিলন ।
+> পরমানন্দপুরী-গোবিন্দ-কাশীশ্বরাগমন ॥১২৯॥
+
 > kāśī-miśre kṛpā, pradyumna miśrādi-milana
 > paramānanda-purī-govinda-kāśīśvarāgamana
 

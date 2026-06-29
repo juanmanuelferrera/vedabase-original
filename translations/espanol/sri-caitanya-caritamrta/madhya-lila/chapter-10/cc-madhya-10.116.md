@@ -1,5 +1,8 @@
 ### CC Madhya 10.116
 
+> সঙ্গীতে — গন্ধর্ব-সম, শাস্ত্রে বৃহস্পতি ৷
+> দামোদর-সম আর নাহি মহামতি ৷৷ ১১৬ ৷৷ ॥১১৬॥
+
 > saṅgīte-gandharva-sama, śāstre bṛhaspati
 > dāmodara-sama āra nāhi mahā-mati
 

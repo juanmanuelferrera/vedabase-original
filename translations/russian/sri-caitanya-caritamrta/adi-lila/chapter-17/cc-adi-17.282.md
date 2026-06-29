@@ -1,5 +1,8 @@
 ### CC Adi 17.282
 
+> বসন্তকালে রাসলীলা করে গোবর্ধনে ।
+> অন্তর্ধান কৈলা সঙ্কেত করি’ রাধা-সনে ॥২৮২॥
+
 > vasanta-kāle rāsa-līlā kare govardhane
 > antardhāna kailā saṅketa kari' rādhā-sane
 

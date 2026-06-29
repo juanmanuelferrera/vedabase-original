@@ -1,5 +1,8 @@
 ### CC Madhya 19.14
 
+> কোন মতে রাজা যদি মোরে ক্রুদ্ধ হয় ।
+> তবে অব্যাহতি হয়, করিলুঁ নিশ্চয় ॥১৪॥
+
 > kona mate rājā yadi more kruddha haya
 > tabe avyāhati haya, kariluṅ niścaya
 

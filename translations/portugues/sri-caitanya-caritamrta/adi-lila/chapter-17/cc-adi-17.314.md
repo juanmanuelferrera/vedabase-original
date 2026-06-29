@@ -1,5 +1,8 @@
 ### CC Adi 17.314
 
+> দ্বিতীয় পরিচ্ছেদে ‘চৈতন্যতত্ত্ব-নিরূপণ’ ।
+> স্বয়ং ভগবান্ যেই ব্রজেন্দ্র নন্দন ॥৩১৪॥
+
 dvitīya paricchede 'caitanya-tattva-nirūpaṇa'
 svayaṁ bhagavān yei vrajendra-nandana
 

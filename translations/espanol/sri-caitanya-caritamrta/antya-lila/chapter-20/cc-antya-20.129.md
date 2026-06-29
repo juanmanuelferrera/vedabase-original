@@ -1,5 +1,8 @@
 ### CC Antya 20.129
 
+> শিবানন্দের বালকে শ্লোক করাইলা ।
+> সিংহদ্বারে দ্বারী প্রভুরে কৃষ্ণ দেখাইলা ॥১২৯॥
+
 > śivānandera bālake śloka karāilā
 > siṁha-dvāre dvārī prabhure kṛṣṇa dekhāilā
 

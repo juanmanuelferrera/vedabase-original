@@ -1,5 +1,8 @@
 ### CC Madhya 5.159
 
+> ব্ৰহ্মণ্যদেব-গোপালের মহিমা এই ধন্য ।
+> নিত্যানন্দ — বক্তা যার, শ্রোতা — শ্রীচৈতন্য ॥১৫৯॥
+
 brahmaṇya-deva-gopālera mahimā ei dhanya
 nityānanda--vaktā yāra, śrotā--śrī-caitanya
 

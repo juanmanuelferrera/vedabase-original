@@ -1,5 +1,8 @@
 ### CC Adi 12.40
 
+> মুক্তি — শ্রেষ্ঠ করি’ কৈনু বাশিষ্ঠ ব্যাখ্যান ।
+> ক্রুদ্ধ হঞা প্রভু মোরে কৈল অপমান ॥৪০॥
+
 > mukti—śreṣṭha kari' kainu vāśiṣṭha vyākhyāna
 > kruddha hañā prabhu more kaila apamāna
 

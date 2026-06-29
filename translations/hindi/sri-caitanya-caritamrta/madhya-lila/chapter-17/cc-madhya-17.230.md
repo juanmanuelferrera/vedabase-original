@@ -1,5 +1,8 @@
 ### CC Madhya 17.230
 
+> এইমত প্রেম — যাবৎ ভ্রমিল ‘বার’ বন ।
+> একত্র লিখিলুঁ, সর্বত্র না যায় বর্ণন ॥২৩০॥
+
 > ei-mata prema--yāvat bhramila 'bāra' vana
 > ekatra likhiluṅ, sarvatra nā yāya varṇana
 

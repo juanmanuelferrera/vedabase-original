@@ -1,5 +1,8 @@
 ### CC Adi 2.86
 
+> ভ্রম, প্রমাদ, বিপ্রলিপ্সা, করণাপাটব ।
+> আর্ষ-বিজ্ঞবাক্যে নাহি দোষ এই সব ॥৮৬॥
+
 bhrama, pramāda, vipralipsā, karaṇāpāṭava
 
 ārṣa-vijña-vākye nāhi doṣa ei saba

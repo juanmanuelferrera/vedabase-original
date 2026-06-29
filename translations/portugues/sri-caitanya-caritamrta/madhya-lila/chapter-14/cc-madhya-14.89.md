@@ -1,5 +1,8 @@
 ### CC Madhya 14.89
 
+> আপনে তাঁহার উপর করিল শয়ন ।
+> ‘শেষশায়ী-লীলা’ প্রভু কৈল প্রকটন ॥৮৯॥
+
 āpane tāṅhāra upara karila śayana
 
 'śeṣa-śāyī-līlā' prabhu kaila prakaṭana

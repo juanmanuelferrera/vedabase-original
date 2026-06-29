@@ -1,5 +1,8 @@
 ### CC Madhya 10.38
 
+> তবে সার্বভৌম প্রভুর দক্ষিণ-পার্শ্বে বসি’ ।
+> মিলাইতে লাগিলা সব পুরুষোত্তমবাসী ॥৩৮॥
+
 > tabe sārvabhauma prabhura dakṣiṇa-pārśve vasi'
 > milāite lāgilā saba puruṣottama-vāsī
 

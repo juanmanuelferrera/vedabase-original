@@ -1,5 +1,8 @@
 ### CC Madhya 8.71
 
+> প্রভু কহে, — “এহো হয়, আগে কহ আর ।”
+> রায় কহে, “দাস্য-প্রেম — সর্বসাধ্যসার ।।” ॥৭১॥
+
 > prabhu kahe, "eho haya, āge kaha āra"
 > rāya kahe, "dāsya-prema—sarva-sādhya-sāra"
 

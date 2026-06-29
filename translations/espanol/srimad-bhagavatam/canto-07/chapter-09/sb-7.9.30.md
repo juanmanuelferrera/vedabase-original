@@ -1,5 +1,10 @@
 ### SB 7.9.30
 
+> एकस्त्वमेव जगदेतममुष्य यत्त्वम
+> आद्यन्तयोः पृथगवस्यसि मध्यतश्च
+> सृष्ट्वा गुणव्यतिकरं निजमाययेदं
+> नानेव तैरवसितस्तदनुप्रविष्टः ॥३०॥
+
 > ekas tvam eva jagad etam amuṣya yat tvam
 > ādy-antayoḥ pṛthag avasyasi madhyataś ca
 > sṛṣṭvā guṇa-vyatikaraṁ nija-māyayedaṁ

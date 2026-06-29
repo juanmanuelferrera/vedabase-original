@@ -1,5 +1,8 @@
 ### CC Antya 16.57
 
+> বৈষ্ণবের শেষ-ভক্ষণের এতেক মহিমা ।
+> কালিদাসে পাওয়াইল প্রভুর কৃপা-সীমা ॥৫৭॥
+
 vaiṣṇavera śeṣa-bhakṣaṇera eteka mahimā
 
 kālidāse pāoyāila prabhura kṛpā-sīmā

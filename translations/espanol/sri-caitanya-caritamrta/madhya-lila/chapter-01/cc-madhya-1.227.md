@@ -1,5 +1,8 @@
 ### CC Madhya 1.227
 
+> প্রাতে চলি’ আইলা প্রভু ‘কানাইর নাটশালা’ ।
+> দেখিল সকল তাহাঁ কৃষ্ণচরিত্র-লীলা ॥২২৭॥
+
 > prāte cali' āilā prabhu 'kānāira nāṭaśālā'
 > dekhila sakala tāhāṅ kṛṣṇa-caritra-līlā
 

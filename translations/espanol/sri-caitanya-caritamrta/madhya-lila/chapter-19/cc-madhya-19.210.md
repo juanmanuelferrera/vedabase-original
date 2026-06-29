@@ -1,5 +1,10 @@
 ### CC Madhya 19.210
 
+> পতিসুতান্বয়ভ্রাতৃবান্ধবা-
+> নতিবিলঙ্ঘ্য তেঽন্ত্যচ্যুতাগতাঃ ৷
+> গতিবিদস্তবোদ্গীতমোহিতাঃ
+> কিতব যোষিতঃ কস্ত্যজেন্নিশি ॥২১০॥
+
 > pati-sutānvaya-bhrātṛ-bāndhavān
 > ativilaṅghya te 'nty acyutāgatāḥ
 > gatividas tavodgīta-mohitāḥ

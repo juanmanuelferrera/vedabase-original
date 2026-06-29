@@ -1,5 +1,8 @@
 ### CC Antya 16.97
 
+> প্রভু কহে, — “এই যে দিলা কৃষ্ণাধরামৃত ।
+> ব্রহ্মাদি-দুর্লভ এই নিন্দয়ে ‘অমৃত’ ॥৯৭॥
+
 > prabhu kahe,—"ei ye dilā kṛṣṇādharāmṛta
 > brahmādi-durlabha ei nindaye 'amṛta'
 

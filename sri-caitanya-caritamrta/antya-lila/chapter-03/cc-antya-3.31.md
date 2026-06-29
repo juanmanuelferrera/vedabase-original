@@ -1,5 +1,8 @@
 ### CC Antya 3.31
 
+> ভোজন করিয়ে আমি, তুমি তাহা জান ।
+> বাহ্য বিরহে তাহা স্বপ্ন করি মান ॥৩১॥
+
 > bhojana kariye āmi, tumi tāhā jāna
 > bāhya virahe tāhā svapna kari māna
 

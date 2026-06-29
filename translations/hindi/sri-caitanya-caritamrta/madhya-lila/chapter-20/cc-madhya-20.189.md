@@ -1,5 +1,8 @@
 ### CC Madhya 20.189
 
+> আদি-চতুর্ব্যূহ — ইঁহার কেহ নাহি সম ।
+> অনন্ত চতুর্ব্যূহগণের প্রাকট্য-কারণ ॥১৮৯॥
+
 > ādi-catur-vyūha--iṅhāra keha nāhi sama
 > ananta caturvyūha-gaṇera prākaṭya-kāraṇa
 

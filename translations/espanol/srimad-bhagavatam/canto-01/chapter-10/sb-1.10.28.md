@@ -1,5 +1,8 @@
 ### SB 1.10.28
 
+> नूनं व्रतस्नानहुतादिनेश्वरः समर्चितो ह्यस्य गृहीतपाणिभिः ।
+> पिबन्ति याः सख्यधरामृतं मुहुर्व्रजस्त्रियः सम्मुमुहुर्यदाशयाः ॥२८॥
+
 > nūnaṁ vrata-snāna-hutādineśvaraḥ
 > samarcito hy asya gṛhīta-pāṇibhiḥ
 > pibanti yāḥ sakhy adharāmṛtaṁ muhur

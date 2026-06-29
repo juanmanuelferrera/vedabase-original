@@ -1,5 +1,8 @@
 ### CC Adi 16.50
 
+> ব্যাকরণিয়া তুমি নাহি পড় অলঙ্কার ।
+> তুমি কি জানিবে এই কবিত্বের সার ॥৫০॥
+
 vyākaraṇiyā tumi nāhi paḍa alaṅkāra
 
 tumi ki jānibe ei kavitvera sāra

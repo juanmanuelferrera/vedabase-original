@@ -1,5 +1,8 @@
 ### CC Antya 6.4
 
+> যদ্যপি অন্তরে কৃষ্ণ-বিয়োগ বাধয়ে ।
+> বাহিরে না প্রকাশয় ভক্ত-দুঃখ-ভয়ে ॥৪॥
+
 yadyapi antare kṛṣṇa-viyoga bādha ye
 bāhire nā prakāśaya bhakta-duḥkha-bhaye
 

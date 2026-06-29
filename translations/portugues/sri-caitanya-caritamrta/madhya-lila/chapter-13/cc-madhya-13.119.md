@@ -1,5 +1,8 @@
 ### CC Madhya 13.119
 
+> এইমত গৌর-শ্যামে, দোঁহে ঠেলাঠেলি ।
+> স্বরথে শ্যামেরে রাখে গৌর মহাবলী ॥১১৯॥
+
 ei-mata gaura-śyāme, doṅhe ṭhelāṭheli
 
 svarathe śyāmere rākhe gaura mahā-balī

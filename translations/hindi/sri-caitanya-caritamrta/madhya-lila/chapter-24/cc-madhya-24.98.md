@@ -1,5 +1,8 @@
 ### CC Madhya 24.98
 
+> সত্সঙ্গান্মুক্ত-দুঃসঙ্গো হাতুং নোত্সহতে বুধঃ ।
+> কীর্ত্যমানং যশো যস্য সকৃদাকর্ণ্য রোচনম্ ॥৯৮॥
+
 > sat-saṅgān mukta-duḥsaṅgo
 > hātuṁ notsahate budhaḥ
 > kīrtyamānaṁ yaśo yasya

@@ -1,5 +1,8 @@
 ### CC Antya 13.117
 
+> চারিবৎসর ঘরে পিতা-মাতার সেবা কৈলা ।
+> বৈষ্ণব-পণ্ডিত-ঠাঞি ভাগবত পড়িলা ॥১১৭॥
+
 cāri-vatsara ghare pitā-mātāra sevā kailā
 
 vaiṣṇava-paṇḍita-ṭhāñi bhāgavata paḍilā

@@ -1,5 +1,8 @@
 ### SB 8.21.32
 
+> प्रतिश्रुतमदातुस्ते निरये वास इष्यते
+> विश त्वं निरयं तस्माद्गुरुणा चानुमोदितः ॥३२॥
+
 > pratiśrutam adātus te
 > niraye vāsa iṣyate
 > viśa tvaṁ nirayaṁ tasmād

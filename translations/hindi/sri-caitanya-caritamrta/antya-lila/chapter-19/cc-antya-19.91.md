@@ -1,5 +1,10 @@
 ### CC Antya 19.91
 
+> কুরঙ্গমদজিদ্বপুঃপরিমলোর্মিকৃষ্টাঙ্গনঃ
+> স্বকাঙ্গ-নলিনাষ্টকে শশিযুতাব্জগন্ধপ্রথঃ ।
+> মদেন্দুবরচন্দনাগুরুসুগন্ধিচর্চার্চিতঃ
+> স মে মদনমোহনঃ সখি তনোতি নাসাস্পৃহাম্ ॥৯১॥
+
 > kuraṅga-mada-jid-vapuḥ-parimalormi-kṛṣṭāṅganaḥ
 > svakāṅga-nalināṣṭake śaśi-yutābja-gandha-prathaḥ
 > madenduvara-candanāguru-sugandhi-carcārcitaḥ

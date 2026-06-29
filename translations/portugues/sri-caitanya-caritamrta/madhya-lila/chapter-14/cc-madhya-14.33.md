@@ -1,5 +1,8 @@
 ### CC Madhya 14.33
 
+> দধি, দুগ্ধ, ননী, তক্র, রসালা, শিখরিণী ।
+> স-লবণ মুদগাঙ্কুর, আদা খানি খানি ॥৩৩॥
+
 dadhi, dugdha, nanī, takra, rasālā, śikhariṇī
 
 sa-lavaṇa mudgāṅkura, ādā khāni khāni

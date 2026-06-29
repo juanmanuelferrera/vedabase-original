@@ -1,5 +1,7 @@
 ### SB 5.6.11
 
+> ते च ह्यर्वाक्तनया निजलोकयात्रयान्धपरम्परयाश्वस्तास्तमस्यन्धे स्वयमेवप्रपतिष्यन्ति ॥११॥
+
 > te ca hy arvāktanayā nija-loka-yātrayāndha-paramparayāśvastās tamasy andhe svayam eva prapatiṣyanti.
 
 *te*—those people not following the Vedic principles; *ca*—and; *hi*—certainly; *arvāktanayā*—deviating from the eternal principles of Vedic religion; *nija-loka-yātrayā*—by a practice arrived at by their own mental concoction; *andha-paramparayā*—by a disciplic succession of blind. ignorant people; *āśvastāḥ*—being encouraged; *tamasi*—into the darkness of ignorance; *andhe*—blindness; *svayam eva*—themselves; *prapatiṣyanti*—will fall down.

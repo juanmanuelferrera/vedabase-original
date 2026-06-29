@@ -1,5 +1,7 @@
 ### SB 5.25.2
 
+> यस्येदं क्षितिमण्डलं भगवतोऽनन्तमूर्तेः सहस्रशिरस एकस्मिन्नेव शीर्षणि ध्रियमाणंसिद्धार्थ इव लक्ष्यते ॥२॥
+
 *yasyedaṁ kṣiti*-maṇḍalaṁ bhagavato 'nanta-mūrteḥ sahasra-śirasa ekasminn eva śīrṣaṇi dhriyamāṇaṁ siddhārtha iva lakṣyate.
 
 *yasya*—de quem; *idam*—este; *kṣiti-maṇḍalam*—universo; *bhagavataḥ*—da Suprema Personalidade de Deus; *ananta-mūrteḥ*—sob a forma de Anantadeva; *sahasra-śirasaḥ*—que tem milhares de capelos; *ekasmin*—em um; *eva*—apenas; *śīrṣaṇi*—capelo; *dhriyamāṇam*—está sendo sustentado; *siddhārthaḥ iva*—e como uma semente branca de mostarda; *lakṣyate*—é visto.

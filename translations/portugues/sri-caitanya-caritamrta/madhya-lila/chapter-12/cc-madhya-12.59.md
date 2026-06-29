@@ -1,5 +1,8 @@
 ### CC Madhya 12.59
 
+> পীতাম্বর, ধরে অঙ্গে রত্ন-আভরণ  ।
+> শ্রীকৃষ্ণ-স্মরণে তেঁহ হৈলা ‘উদ্দীপন’ ॥৫৯॥
+
 pītāmbara, dhare aṅge ratna-ābharaṇa
 
 śrī-kṛṣṇa-smaraṇe teṅha hailā 'uddīpana'

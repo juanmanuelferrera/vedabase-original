@@ -1,5 +1,8 @@
 ### CC Madhya 9.332
 
+> প্রভু কহে, — এথা মোর এ-নিমিত্তে আগমন ৷
+> তোমা লঞা নীলাচলে করিব গমন ৷৷ ৩৩২ ৷৷ ॥৩৩২॥
+
 prabhu kahe,--ethā mora e-nimitte āgamana
 tomā lañā nīlācale kariba gamana
 

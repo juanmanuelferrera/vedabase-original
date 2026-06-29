@@ -1,5 +1,8 @@
 ### SB 1.18.15
 
+> तन्नो भवान्वै भगवत्प्रधानो महत्तमैकान्तपरायणस्य ।
+> हरेरुदारं चरितं विशुद्धं शुश्रूषतां नो वितनोतु विद्वन् ॥१५॥
+
 > tan no bhavān vai bhagavat-pradhāno
 > mahattamaikānta-parāyaṇasya
 > harer udāraṁ caritaṁ viśuddhaṁ

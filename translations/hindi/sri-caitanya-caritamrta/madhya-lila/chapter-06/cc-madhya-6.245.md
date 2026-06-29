@@ -1,5 +1,8 @@
 ### CC Madhya 6.245
 
+> ভট্টাচার্য কহে তাঁরে করি’ নমস্কারে ।
+> তোমার সম্বন্ধে প্রভু কৃপা কৈল মোরে ॥২৪৫॥
+
 > bhaṭṭācārya kahe tāṅre kari' namaskāre
 > tomāra sambandhe prabhu kṛpā kaila more
 

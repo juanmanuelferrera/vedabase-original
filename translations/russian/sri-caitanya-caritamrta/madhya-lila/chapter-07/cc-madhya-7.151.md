@@ -1,5 +1,8 @@
 ### CC Madhya 7.151
 
+> এত ত’ কহিল প্রভুর প্রথম গমন ।
+> কূর্ম-দরশন, বাসুদেব-বিমোচন ॥১৫১॥
+
 > ei ta' kahila prabhura prathama gamana
 > kūrma-daraśana, vāsudeva-vimocana
 

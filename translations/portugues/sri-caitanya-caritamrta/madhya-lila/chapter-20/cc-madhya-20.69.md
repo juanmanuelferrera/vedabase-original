@@ -1,5 +1,8 @@
 ### CC Madhya 20.69
 
+> চন্দ্রশেখরেরে প্রভু কহে বোলাঞা ।
+> ‘এই বেষ দূর কর, যাহ ইঁহারে লঞা’ ॥৬৯॥
+
 candraśekharere prabhu kahe bolāñā
 
 'ei veṣa dūra kara, yāha iṅhāre lañā'

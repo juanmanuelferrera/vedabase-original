@@ -1,5 +1,8 @@
 ### CC Adi 5.127
 
+> অথবা ভক্তের বাক্য মানি সত্য করি’ ।
+> সকল সম্ভবে তাঁতে, যাতে অবতারী ॥১২৭॥
+
 athavā bhaktera vākya māni satya kari'
 
 sakala sambhave tāṅte, yāte avatārī

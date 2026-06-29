@@ -1,5 +1,8 @@
 ### CC Madhya 11.98
 
+> অবতরি’ চৈতন্য কৈল ধর্মপ্রচারণ ৷
+> কলিকালে ধর্ম — কৃষ্ণনাম-সংকীর্তন ৷৷ ৯৮ ৷৷ ॥৯৮॥
+
 > avatari' caitanya kaila dharma-pracāraṇa
 > kali-kāle dharma-kṛṣṇa-nāma-saṅkīrtana
 

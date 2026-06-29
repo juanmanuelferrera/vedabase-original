@@ -1,5 +1,8 @@
 ### CC Antya 10.17
 
+> ‘সুকুতা’ বলি’ অবজ্ঞা না করিহ চিত্তে ।
+> সুকুতায় যে সুখ প্রভুর, তাহা নহে পঞ্চামৃতে ॥১৭॥
+
 'sukutā' bali' avajñā nā kariha citte
 sukutāya ye sukha prabhura, tāhā nahe pañcāmṛte
 

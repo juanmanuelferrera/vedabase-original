@@ -1,5 +1,8 @@
 ### SB 6.15.7
 
+> देहेन देहिनो राजन्देहाद्देहोऽभिजायते
+> बीजादेव यथा बीजं देह्यर्थ इव शाश्वतः ॥७॥
+
 > dehena dehino rājan
 > dehād deho 'bhijāyate
 > bījād eva yathā bījaṁ

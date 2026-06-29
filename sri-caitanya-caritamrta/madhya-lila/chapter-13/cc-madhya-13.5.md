@@ -1,5 +1,8 @@
 ### CC Madhya 13.5
 
+> পাণ্ডুবিজয় দেখিবারে করিল গমন  ।
+> জগন্নাথ যাত্রা কৈল ছাড়ি’ সিংহাসন ॥৫॥
+
 > pāṇḍu-vijaya dekhibāre karila gamana
 > jagannātha yātrā kaila chāḍi' siṁhāsana
 

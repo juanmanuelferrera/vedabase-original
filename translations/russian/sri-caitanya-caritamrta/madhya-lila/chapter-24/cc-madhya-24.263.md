@@ -1,5 +1,8 @@
 ### CC Madhya 24.263
 
+> তবে সেই মৃগাদি তিনে নারদ সুস্থ কৈল ।
+> সুস্থ হঞা মৃগাদি তিনে ধাঞা পলাইল ॥২৬৩॥
+
 > tabe sei mṛgādi tine nārada sustha kaila
 > sustha hañā mṛgādi tine dhāñā palāila
 

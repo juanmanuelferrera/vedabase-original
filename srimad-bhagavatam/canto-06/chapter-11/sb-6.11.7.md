@@ -1,5 +1,8 @@
 ### SB 6.11.7
 
+> तेन देवगणाः सर्वे वृत्रविस्फोटनेन वै
+> निपेतुर्मूर्च्छिता भूमौ यथैवाशनिना हताः ॥७॥
+
 > tena deva-gaṇāḥ sarve
 > vṛtra-visphoṭanena vai
 > nipetur mūrcchitā bhūmau

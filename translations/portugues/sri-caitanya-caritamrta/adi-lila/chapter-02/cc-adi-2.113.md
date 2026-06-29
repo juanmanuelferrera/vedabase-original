@@ -1,5 +1,8 @@
 ### CC Adi 2.113
 
+> কৃষ্ণকে কহয়ে কেহ — নর-নারায়ণ ।
+> কেহো কহে, কৃষ্ণ হয় সাক্ষাৎ বামন ॥১১৩॥
+
 kṛṣṇake kahaye keha—nara-nārāyaṇa
 
 keho kahe, kṛṣṇa haya sākṣāṭ vāmana

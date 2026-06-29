@@ -1,5 +1,10 @@
 ### SB 3.15.50
 
+> प्रादुश्चकर्थ यदिदं पुरुहूत रूपं
+> तेनेश निर्वृतिमवापुरलं दृशो नः ।
+> तस्मा इदं भगवते नम इद्विधेम
+> योऽनात्मनां दुरुदयो भगवान्प्रतीतः ॥५०॥
+
 prāduścakartha yad idaṁ puruhūta rūpaṁ
 teneśa nirvṛtim avāpur alam dṛśo naḥ
 tasmā idaṁ bhagavate nama id vidhema

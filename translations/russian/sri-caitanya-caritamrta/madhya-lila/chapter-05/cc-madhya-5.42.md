@@ -1,5 +1,8 @@
 ### CC Madhya 5.42
 
+> বিপ্র বলে, — “সাক্ষী বোলাঞা করিবেক ন্যায় ।
+> জিতি’ কন্যা লবে, মোর ব্যর্থ ধর্ম হয় ।।” ॥৪২॥
+
 > vipra bale,—"sākṣī bolāñā karibeka nyāya
 > jiti' kanyā labe, mora vyartha dharma haya"
 

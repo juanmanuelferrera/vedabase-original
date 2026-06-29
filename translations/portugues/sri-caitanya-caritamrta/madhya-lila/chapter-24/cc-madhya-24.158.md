@@ -1,5 +1,8 @@
 ### CC Madhya 24.158
 
+> ‘যোগারুরুক্ষু’, ‘যোগারূঢ়’ ‘প্রাপ্তসিদ্ধি’ আর ।
+> এই তিন ভেদে হয় ছয় প্রকার ॥১৫৮॥
+
 'yogārurukṣu', 'yogārūḍha' 'prāpta-siddhi' āra
 
 ei tina bhede haya chaya prakāra

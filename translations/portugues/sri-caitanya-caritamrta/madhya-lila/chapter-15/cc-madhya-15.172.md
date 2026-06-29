@@ -1,5 +1,8 @@
 ### CC Madhya 15.172
 
+> এক উড়ুম্বর বৃক্ষে লাগে কোটি-ফলে ।
+> কোটি যে ব্রহ্মাণ্ড ভাসে বিরজার জলে ॥১৭২॥
+
 eka uḍumbara vṛkṣe lāge koṭi-phale
 
 koṭi ye brahmāṇḍa bhāse virajāra jale

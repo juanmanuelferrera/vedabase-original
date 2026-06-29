@@ -1,5 +1,8 @@
 ### SB 9.15.30
 
+> अचोदयद्धस्तिरथाश्वपत्तिभिर्गदासिबाणर्ष्टिशतघ्निशक्तिभिः
+> अक्षौहिणीः सप्तदशातिभीषणास्ता राम एको भगवानसूदयत ॥३०॥
+
 > acodayad dhasti-rathāśva-pattibhir
 > gadāsi-bāṇarṣṭi-śataghni-śaktibhiḥ
 > akṣauhiṇīḥ sapta-daśātibhīṣaṇās

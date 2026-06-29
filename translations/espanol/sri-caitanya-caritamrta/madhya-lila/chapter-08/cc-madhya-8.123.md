@@ -1,5 +1,8 @@
 ### CC Madhya 8.123
 
+> হৃদয়ে প্রেরণ কর, জিহ্বায় কহাও বাণী ৷
+> কি কহিয়ে ভাল-মন্দ, কিছুই না জানি ৷৷ ১২৩ ৷৷ ॥১২৩॥
+
 > hṛdaye preraṇa kara, jihvāya kahāo vāṇī
 > ki kahiye bhāla-manda, kichui nā jāni
 

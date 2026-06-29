@@ -1,5 +1,8 @@
 ### CC Madhya 15.57
 
+> নিমাঞি নাহিক এথা, কে করে ভোজন ৷
+> মোর ধ্যানে অশ্রুজলে ভরিল নয়ন ॥৫৭॥
+
 > nimāñi nāhika ethā, ke kare bhojana
 > mora dhyāne aśru-jale bharila nayana
 

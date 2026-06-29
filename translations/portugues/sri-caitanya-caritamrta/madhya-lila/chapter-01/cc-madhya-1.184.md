@@ -1,5 +1,8 @@
 ### CC Madhya 1.184
 
+> তাঁরা দুইজন জানাইলা প্রভুর গোচরে ।
+> রূপ, সাকরমল্লিক আইলা তোমা’ দেখিবারে ॥১৮৪॥
+
 tāṅrā dui-jana jānāilā prabhura gocare
 
 rūpa, sākara-mallika āilā tomā' dekhibāre

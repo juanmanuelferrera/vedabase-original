@@ -1,5 +1,8 @@
 ### CC Antya 13.40
 
+> আমিহ আসিতেছি, — কহিহ সনাতনে ।
+> আমার তরে একস্থান যেন করে বৃন্দাবনে ।।” ॥ ৪০ ॥
+
 > āmiha āsitechi,—kahiha sanātane
 > āmāra tare eka-sthāna yena kare vṛndāvane"
 

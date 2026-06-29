@@ -1,5 +1,8 @@
 ### SB 5.10.11
 
+> जीवन्मृतत्वं नियमेन राजनाद्यन्तवद्यद्विकृतस्य दृष्टम
+> स्वस्वाम्यभावो ध्रुव ईड्य यत्र तर्ह्युच्यतेऽसौ विधिकृत्ययोगः ॥११॥
+
 > jīvan-mṛtatvaṁ niyamena rājan
 > ādyantavad yad vikṛtasya dṛṣṭam
 > sva-svāmya-bhāvo dhruva īḍya yatra

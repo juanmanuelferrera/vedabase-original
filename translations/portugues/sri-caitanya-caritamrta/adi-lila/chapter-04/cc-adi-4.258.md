@@ -1,5 +1,8 @@
 ### CC Adi 4.258
 
+> অন্যের সঙ্গমে আমি যত সুখ পাই ।
+> তাহা হৈতে রাধা-সুখ শত অধিকাই ॥২৫৮॥
+
 anyera saṅgame āmi yata sukha pāi
 tāhā haite rādhā-sukha śata adhikāi
 

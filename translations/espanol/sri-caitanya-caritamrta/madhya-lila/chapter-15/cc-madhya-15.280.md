@@ -1,5 +1,8 @@
 ### CC Madhya 15.280
 
+> প্রভুর চরণে ধরি’ করয়ে বিনয়  ।
+> অপরাধ ক্ষম মোরে, প্রভু, দয়াময় ॥২৮০॥
+
 > prabhura caraṇe dhari' karaye vinaya
 > aparādha kṣama more, prabhu, dayāmaya
 

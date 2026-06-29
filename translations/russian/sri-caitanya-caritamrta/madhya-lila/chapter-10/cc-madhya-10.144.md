@@ -1,5 +1,8 @@
 ### CC Madhya 10.144
 
+> ভট্ট কহে, — গুরুর আজ্ঞা হয় বলবান্ ।
+> গুরু-আজ্ঞা না লঙ্ঘিয়ে, শাস্ত্র — প্রমাণ ॥১৪৪॥
+
 > bhaṭṭa kahe,-gurura ājñā haya balavān
 > guru-ājñā nā laṅghiye, śāstra-pramāṇa
 

@@ -1,5 +1,8 @@
 ### SB 8.21.13
 
+> तस्मादस्य वधो धर्मो भर्तुः शुश्रूषणं च नः
+> इत्यायुधानि जगृहुर्बलेरनुचरासुराः ॥१३॥
+
 > tasmād asya vadho dharmo
 > bhartuḥ śuśrūṣaṇaṁ ca naḥ
 > ity āyudhāni jagṛhur

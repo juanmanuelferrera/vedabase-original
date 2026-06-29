@@ -1,5 +1,8 @@
 ### SB 8.22.14
 
+> तस्मै बलिर्वारुणपाशयन्त्रितः समर्हणं नोपजहार पूर्ववत
+> ननाम मूर्ध्नाश्रुविलोललोचनः सव्रीडनीचीनमुखो बभूव ह ॥१४॥
+
 > tasmai balir vāruṇa-pāśa-yantritaḥ
 > samarhaṇaṁ nopajahāra pūrvavat
 > nanāma mūrdhnāśru-vilola-locanaḥ

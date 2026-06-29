@@ -1,5 +1,8 @@
 ### CC Adi 4.140
 
+> যদ্যপি নির্মল রাধার সৎপ্রেমদর্পণ ।
+> তথাপি স্বচ্ছতা তার বাঢ়ে ক্ষণে ক্ষণ ॥১৪০॥
+
 yadyapi nirmala rādhāra sat-prema-darpaṇa
 tathāpi svacchatā tāra bāḍhe kṣaṇe kṣaṇa
 

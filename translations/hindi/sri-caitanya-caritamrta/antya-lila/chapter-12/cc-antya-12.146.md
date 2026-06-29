@@ -1,5 +1,8 @@
 ### CC Antya 12.146
 
+> “তুমি শীঘ্র যাহ করিতে পাদসম্বাহনে  ।
+> কহিহ, — ‘পণ্ডিত এবে বসিল ভোজনে’ ॥১৪৬॥
+
 > "tumi śīghra yāha karite pāda-samvāhane
 > kahiha,--'paṇḍita ebe vasila bhojane'
 

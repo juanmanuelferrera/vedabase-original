@@ -1,5 +1,7 @@
 ### SB 5.8.12
 
+> कुशकुसुमसमित्पलाशफलमूलोदकान्याहरिष्यमाणो वृकसालावृकादिभ्योभयमाशंसमानो यदा सह हरिणकुणकेन वनं समाविशति ॥१२॥
+
 *kuśa*-kusuma-samit-palāśa-phala-mūlodakāny āhariṣyamāṇo vṛkasālā-vṛkādibhyo bhayam āśaṁsamāno yadā saha hariṇa-kuṇakena vanaṁ samāviśati.
 
 *kuśa*—um tipo de capim requerido para cerimônias ritualísticas; *kusuma*—flores; *samit*—lenha; *palāśa*—folhas; *phala-mūla*—frutas e raízes; *udakāni*—e água; *āhariṣyamāṇaḥ*—desejando recolher; *vṛkasālā-vṛka*—de lobos e cães; *ādibhyaḥ*—e outros animais, tais como tigres; *bhayam*—medo; *āśaṁsamānaḥ*—temendo; *yadā*—quando; *saha*—com; *hariṇa-kuṇakena*—o filhote de cervo; *vanam*—a floresta; *samāviśati*—entra.

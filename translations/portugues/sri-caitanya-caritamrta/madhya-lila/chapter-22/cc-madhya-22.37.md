@@ -1,5 +1,8 @@
 ### CC Madhya 22.37
 
+> অন্যকামী যদি করে কৃষ্ণের ভজন ।
+> না মাগিতেহ কৃষ্ণ তারে দেন স্ব-চরণ ॥৩৭॥
+
 anya-kāmī yadi kare kṛṣṇera bhajana
 nā māgiteha kṛṣṇa tāre dena sva-caraṇa
 

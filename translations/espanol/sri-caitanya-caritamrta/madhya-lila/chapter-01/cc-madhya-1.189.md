@@ -1,5 +1,8 @@
 ### CC Madhya 1.189
 
+> নীচ-জাতি, নীচ-সঙ্গী, করি নীচ কাজ ।
+> তোমার অগ্রেতে প্রভু কহিতে বাসি লাজ ॥১৮৯॥
+
 > nīca-jāti, nīca-saṅgī, kari nīca kāja
 > tomāra agrete prabhu kahite vāsi lāja
 

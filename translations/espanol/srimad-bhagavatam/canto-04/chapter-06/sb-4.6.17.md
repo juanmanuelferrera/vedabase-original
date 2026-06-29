@@ -1,5 +1,8 @@
 ### SB 4.6.17
 
+> पनसोदुम्बराश्वत्थ प्लक्षन्यग्रोधहिङ्गुभिः ।
+> भूर्जैरोषधिभिः पूगै राजपूगैश्च जम्बुभिः ॥१७॥
+
 > panasodumbarāśvattha-
 > plakṣa-nyagrodha-hiṅgubhiḥ
 > bhūrjair oṣadhibhiḥ pūgai

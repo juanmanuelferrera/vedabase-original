@@ -1,5 +1,8 @@
 ### CC Madhya 14.91
 
+> এইমত জলক্রীড়া করি’ কতক্ষণ ।
+> আইটোটা আইলা প্রভু লঞা ভক্তগণ ॥৯১॥
+
 > ei-mata jala-krīḍā kari' kata-kṣaṇa
 > āiṭoṭā āilā prabhu lañā bhakta-gaṇa
 

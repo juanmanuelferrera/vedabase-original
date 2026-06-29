@@ -1,5 +1,8 @@
 ### CC Madhya 11.16
 
+> রায় প্রণতি কৈল, প্রভু কৈল আলিঙ্গন ৷
+> দুই জনে প্রেমাবেশে করেন ক্রন্দন ৷৷ ১৬ ৷৷ ॥১৬॥
+
 rāya praṇati kaila, prabhu kaila āliṅgana
 dui jane premāveśe karena krandana
 

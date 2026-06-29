@@ -1,5 +1,8 @@
 ### CC Antya 6.150
 
+> “প্রভুর সঙ্গে যত মহান্ত, ভৃত্য, আশ্রিত জন  ।
+> পূজিতে চাহিয়ে আমি সবার চরণ ॥১৫০॥
+
 "prabhura saṅge yata mahānta, bhṛtya āśrita jana
 
 pūjite cāhiye āmi sabāra caraṇa

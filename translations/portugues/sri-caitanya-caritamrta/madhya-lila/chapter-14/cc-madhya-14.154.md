@@ -1,5 +1,8 @@
 ### CC Madhya 14.154
 
+> একথা শুনিয়া প্রভুর আনন্দ অপার ।
+> ‘কহ, কহ, দামোদর’, — বলে বার বার ॥১৫৪॥
+
 e-kathā śuniyā prabhura ānanda apāra
 
 'kaha, kaha, dāmodara',-bale bāra bāra

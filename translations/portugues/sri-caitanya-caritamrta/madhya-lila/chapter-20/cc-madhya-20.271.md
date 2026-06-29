@@ -1,5 +1,8 @@
 ### CC Madhya 20.271
 
+> মায়ার যে দুই বৃত্তি — ‘মায়া’ আর ‘প্রধান’ ।
+> ‘মায়া’ নিমিত্তহেতু, বিশ্বের উপাদান ‘প্রধান’ ॥২৭১॥
+
 māyāra ye dui vṛtti--'māyā' āra 'pradhāna'
 
 'māyā' nimitta-hetu, viśvera upādāna 'pradhāna'

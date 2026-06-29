@@ -1,5 +1,8 @@
 ### CC Antya 5.73
 
+> মোর মুখে কথা কহেন আপনে গৌরচন্দ্র  ।
+> যৈছে কহায়, তৈছে কহি, — যেন বীণাযন্ত্র ॥৭৩॥
+
 mora mukhe kathā kahena āpane gauracandra
 
 yaiche kahāya, taiche kahi,--yena vīṇā-yantra

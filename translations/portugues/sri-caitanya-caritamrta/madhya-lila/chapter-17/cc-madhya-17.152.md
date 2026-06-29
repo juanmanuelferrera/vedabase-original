@@ -1,5 +1,8 @@
 ### CC Madhya 17.152
 
+> ‘মথুরা’ চলিতে পথে যথা রহি’ যায় ।
+> কৃষ্ণ-নাম-প্রেম দিয়া লোকেরে নাচায় ॥১৫২॥
+
 'mathurā' calite pathe yathā rahi' yāya
 
 kṛṣṇa-nāma-prema diyā lokere nācāya

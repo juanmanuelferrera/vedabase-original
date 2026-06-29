@@ -1,5 +1,8 @@
 ### SB 8.24.9
 
+> ज्ञआत्वा तद्दानवेन्द्रस्य हयग्रीवस्य चेष्टितम
+> दधार शफरीरूपं भगवान्हरिरीश्वरः ॥९॥
+
 jñātvā tad dānavendrasya
 hayagrīvasya ceṣṭitam
 dadhāra śapharī-rūpaṁ

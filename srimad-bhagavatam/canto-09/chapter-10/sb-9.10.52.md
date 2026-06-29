@@ -1,5 +1,8 @@
 ### SB 9.10.52
 
+> त्रेतायां वर्तमानायां कालः कृतसमोऽभवत
+> रामे राजनि धर्मज्ञए सर्वभूतसुखावहे ॥५२॥
+
 > vanāni nadyo girayo
 > varṣāṇi dvīpa-sindhavaḥ
 > sarve kāma-dughā āsan

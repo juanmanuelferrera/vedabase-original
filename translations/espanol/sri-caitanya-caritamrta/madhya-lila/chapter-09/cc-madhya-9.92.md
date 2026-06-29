@@ -1,5 +1,8 @@
 ### CC Madhya 9.92
 
+> এক এক দিনে চাতুর্মাস্য পূর্ণ হৈল ৷
+> কতক ব্রাহ্মণ ভিক্ষা দিতে না পাইল ৷৷ ৯২ ৷৷ ॥৯২॥
+
 > eka eka dine cāturmāsya pūrṇa haila
 > kataka brāhmaṇa bhikṣā dite nā pāila
 

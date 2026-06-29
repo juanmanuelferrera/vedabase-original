@@ -1,5 +1,8 @@
 ### CC Adi 14.17
 
+> এই ত’ করিবে বৈষ্ণব-ধর্মের প্রচার ।
+> ইহা হৈতে হবে দুই কুলের নিস্তার ॥১৭॥
+
 > ei ta' karibe vaiṣṇava-dharmera pracāra
 > ihā haite habe dui kulera nistāra
 

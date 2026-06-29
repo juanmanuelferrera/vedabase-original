@@ -1,5 +1,8 @@
 ### SB 8.1.12
 
+> न यस्याद्यन्तौ मध्यं च स्वः परो नान्तरं बहिः
+> विश्वस्यामूनि यद्यस्माद्विश्वं च तदृतं महत ॥१२॥
+
 *na yasyādy*-antau madhyaṁ ca
 svaḥ paro nāntaraṁ bahiḥ
 viśvasyāmūni yad yasmād

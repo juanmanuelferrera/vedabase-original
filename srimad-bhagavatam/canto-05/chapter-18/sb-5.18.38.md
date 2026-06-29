@@ -1,5 +1,8 @@
 ### SB 5.18.38
 
+> करोति विश्वस्थितिसंयमोदयं यस्येप्सितं नेप्सितमीक्षितुर्गुणैः
+> माया यथायो भ्रमते तदाश्रयं ग्राव्णो नमस्ते गुणकर्मसाक्षिणे ॥३८॥
+
 > karoti viśva-sthiti-saṁyamodayaṁ
 > yasyepsitaṁ nepsitam īkṣitur guṇaiḥ
 > māyā yathāyo bhramate tad-āśrayaṁ

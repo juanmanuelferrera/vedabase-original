@@ -1,5 +1,8 @@
 ### CC Madhya 17.12
 
+> বনপথে যাইতে নাহি ‘ভোজ্যান্ন’-ব্রাহ্মণ ।
+> আজ্ঞা কর, — সঙ্গে চলুক বিপ্র একজন ।।’ ॥ ১২ ॥
+
 > ana-pathe yāite nāhi 'bhojyānna'-brāhmaṇa
 > ājñā kara,--saṅge caluka vipra eka-jana'
 

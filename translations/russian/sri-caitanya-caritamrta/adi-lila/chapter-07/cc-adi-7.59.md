@@ -1,5 +1,8 @@
 ### CC Adi 7.59
 
+> সবা নমস্করি’ গেলা পাদ-প্রক্ষালনে ।
+> পাদ প্রক্ষালন করি বসিলা সেই স্থানে ॥৫৯॥
+
 > sabā namaskari' gelā pāda-prakṣālane
 > pāda prakṣālana kari vasilā sei sthāne
 

@@ -1,5 +1,10 @@
 ### SB 7.9.12
 
+> तस्मादहं विगतविक्लव ईश्वरस्य
+> सर्वात्मना महि गृणामि यथा मनीषम
+> नीचोऽजया गुणविसर्गमनुप्रविष्टः
+> पूयेत येन हि पुमाननुवर्णितेन ॥१२॥
+
 > tasmād ahaṁ vigata-viklava īśvarasya
 > sarvātmanā mahi gṛṇāmi yathā manīṣam
 > nīco 'jayā guṇa-visargam anupraviṣṭaḥ

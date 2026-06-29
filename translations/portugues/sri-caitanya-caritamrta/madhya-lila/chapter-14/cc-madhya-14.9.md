@@ -1,5 +1,8 @@
 ### CC Madhya 14.9
 
+> শুনিতে শুনিতে প্রভুর সন্তোষ অপার ।
+> ‘বল, বল’ বলি’ প্রভু বলে বার বার ॥৯॥
+
 śunite śunite prabhura santoṣa apāra
 'bala, bala' bali' prabhu bale bāra bāra
 

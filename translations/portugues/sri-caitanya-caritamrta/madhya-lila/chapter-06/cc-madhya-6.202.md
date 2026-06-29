@@ -1,5 +1,8 @@
 ### CC Madhya 6.202
 
+> নিজ-রূপ প্রভু তাঁরে করাইল দর্শন ।
+> চতুর্ভুজ-রূপ প্রভু হইলা তখন ॥২০২॥
+
 nija-rūpa prabhu tāṅre karāila darśana
 catur-bhuja-rūpa prabhu hā-ilā takhana
 

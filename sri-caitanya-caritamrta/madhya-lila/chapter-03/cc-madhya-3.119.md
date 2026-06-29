@@ -1,5 +1,8 @@
 ### CC Madhya 3.119
 
+> প্রেমের উৎকণ্ঠা — প্রভুর নাহি কৃষ্ণ-সঙ্গ ।
+> বিরহে বাড়িল প্রেমজ্বালার তরঙ্গ ॥১১৯॥
+
 > premera utkaṇṭhā,—prabhura nāhi kṛṣṇa-saṅga
 > virahe bāḍila prema-jvālāra taraṅga
 

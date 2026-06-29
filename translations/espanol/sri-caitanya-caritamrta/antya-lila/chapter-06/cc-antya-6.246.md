@@ -1,5 +1,8 @@
 ### CC Antya 6.246
 
+> শিবানন্দ-সেন তাঁরে কহেন বিবরণ  ।
+> তোমা লৈতে তোমার পিতা পাঠাইল দশ জন ॥২৪৬॥
+
 > śivānanda-sena tāṅre kahena vivaraṇa
 > tomā laite tomāra pitā pāṭhāila daśa jana
 

@@ -1,5 +1,8 @@
 ### CC Adi 14.88
 
+> বিপ্র কহে, — পুত্র যদি দৈব-সিদ্ধ হয় ।
+> স্বতঃসিদ্ধজ্ঞান, তবে শিক্ষা ব্যর্থ হয় ॥৮৮॥
+
 > vipra kahe,--putra yadi daiva-siddha haya
 > svataḥ-siddha-jñāna, tabe śikṣā vyartha haya
 

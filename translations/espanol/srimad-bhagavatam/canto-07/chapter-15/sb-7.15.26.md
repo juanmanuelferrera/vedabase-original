@@ -1,5 +1,8 @@
 ### SB 7.15.26
 
+> यस्य साक्षाद्भगवति ज्ञआनदीपप्रदे गुरौ
+> मर्त्यासद्धीः श्रुतं तस्य सर्वं कुञ्जरशौचवत ॥२६॥
+
 > yasya sākṣād bhagavati
 > jñāna-dīpa-prade gurau
 > martyāsad-dhīḥ śrutaṁ tasya

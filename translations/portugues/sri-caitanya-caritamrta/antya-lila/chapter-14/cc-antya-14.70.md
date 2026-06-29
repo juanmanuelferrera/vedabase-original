@@ -1,5 +1,8 @@
 ### CC Antya 14.70
 
+> বহুক্ষণে কৃষ্ণনাম হৃদয়ে পশিলা ।
+> ‘হরিবোল’ বলি’ প্রভু গর্জিয়া উঠিলা ॥৭০॥
+
 bahu-kṣaṇe kṛṣṇa-nāma hṛdaye paśilā
 
 'hari-bola' bali' prabhu garjiyā uṭhilā

@@ -1,5 +1,8 @@
 ### CC Madhya 15.268
 
+> ঈশ্বরে ত’ অপরাধ ফলে ততক্ষণ ।
+> এত বলি’ পড়ে দুই শাস্ত্রের বচন ॥২৬৮॥
+
 īśvare ta' aparādha phale tata-kṣaṇa
 
 eta bali' paḍe dui śāstrera vacana

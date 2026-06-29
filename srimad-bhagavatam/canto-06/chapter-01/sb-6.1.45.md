@@ -1,5 +1,8 @@
 ### SB 6.1.45
 
+> येन यावान्यथाधर्मो धर्मो वेह समीहितः
+> स एव तत्फलं भुङ्क्ते तथा तावदमुत्र वै ॥४५॥
+
 > yena yāvān yathādharmo
 > dharmo veha samīhitaḥ
 > sa eva tat-phalaṁ bhuṅkte

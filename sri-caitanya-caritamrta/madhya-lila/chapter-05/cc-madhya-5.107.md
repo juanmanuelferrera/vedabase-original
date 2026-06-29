@@ -1,5 +1,8 @@
 ### CC Madhya 5.107
 
+> ব্রাহ্মণেরে কহে, — “তুমি যাহ নিজ-ঘর ।
+> এথায় রহিব আমি, না যাব অতঃপর ।।” ॥ ১০৭ ॥
+
 > brāhmaṇere kahe,—"tumi yāha nija-ghara
 > ethāya rahiba āmi, nā yāba ataḥpara"
 

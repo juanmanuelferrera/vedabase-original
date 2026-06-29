@@ -1,5 +1,7 @@
 ### SB 5.20.20
 
+> तस्मिन्नपि प्रैयव्रतो घृतपृष्ठो नामाधिपतिः स्वे द्वीपे वर्षाणि सप्त विभज्य तेषु पुत्रनामसुसप्त रिक्थादान्वर्षपान्निवेश्य स्वयं भगवान्भगवतः परमकल्याणयशस आत्मभूतस्यहरेश्चरणारविन्दमुपजगाम ॥२०॥
+
 > tasminn api praiyavrato ghṛtapṛṣṭho nāmādhipatiḥ sve dvīpe varṣāṇi sapta vibhajya teṣu putra-nāmasu sapta rikthādān varṣapān niveśya svayaṁ bhagavān bhagavataḥ parama-kalyāṇa-yaśasa ātma-bhūtasya hareś caraṇāravindam upajagāma.
 
 *tasmin*—in that island; *api*—also; *praiyavrataḥ*—the son of Mahārāja Priyavrata; *ghṛta-pṛṣṭhaḥ*—Ghṛtapṛṣṭha; *nāma*—named; *adhipatiḥ*—the king of that island; *sve*—his own; *dvīpe*—in the island; *varṣāṇi*—tracts of land; *sapta*—seven; *vibhajya*—dividing; *teṣu*—in each of them; *putra-nāmasu*—possessing the names of his sons; *sapta*—seven; *rikthā-dān*—sons; *varṣa-pān*—the masters of the *varṣas*; *niveśya*—appointing; *svayam*—himself; *bhagavān*—very powerful; *bhagavataḥ*—of the Supreme Personality of Godhead; *parama-kalyāṇa-yaśasaḥ*—whose glories are so auspicious; *ātma-bhūtasya*—the soul of all souls; *hareḥ caraṇa-aravindam*—the lotus feet of the Lord; *upajagāma*—took shelter at.

@@ -1,5 +1,7 @@
 ### SB 5.22.8
 
+> एवं चन्द्रमा अर्कगभस्तिभ्य उपरिष्टाल्लक्षयोजनत उपलभ्यमानोऽर्कस्य संवत्सरभुक्तिं पक्षाभ्यां मासभुक्तिं सपादर्क्षाभ्यां दिनेनैव पक्षभुक्तिमग्रचारी द्रुततरगमनोभुङ्क्ते ॥८॥
+
 > evaṁ candramā arka-gabhastibhya upariṣṭāl lakṣa-yojanata upalabhyamāno 'rkasya saṁvatsara-bhuktiṁ pakṣābhyāṁ māsa-bhuktiṁ sapādarkṣābhyāṁ dinenaiva pakṣa-bhuktim agracārī drutatara-gamano bhuṅkte.
 
 *evam*—thus; *candramā*—the moon; *arka-gabhastibhyaḥ*—from the rays of the sunshine; *upariṣṭāt*—above; *lakṣa-yojanataḥ*—by a measurement of 100,000 *yojanas*; *upalabhyamānaḥ*—being situated; *arkasya*—of the sun globe; *saṁvatsara-bhuktim*—the passage of one year of enjoyment; *pakṣābhyām*—by two fortnights; *māsa-bhuktim*—the passage of one month; *sapāda-ṛkṣābhyām*—by two and a quarter days; *dinena*—by a day; *eva*—only; *pakṣa-bhuktim*—the passage of a fortnight; *agracārī*—moving impetuously; *druta-tara-gamanaḥ*—passing more speedily; *bhuṅkte*—passes through.

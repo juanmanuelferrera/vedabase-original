@@ -1,5 +1,8 @@
 ### CC Madhya 8.275
 
+> সর্বভূতেষু যঃ পশ্যেদ্ভগবদ্ভাবমাত্মনঃ ।
+> ভূতানি ভগবত্যাত্মন্যেষ ভাগবতোত্তমঃ ॥২৭৫॥
+
 > sarva-bhūteṣu yaḥ paśyed
 > bhagavad-bhāvam ātmanaḥ
 > bhūtāni bhagavaty ātmany

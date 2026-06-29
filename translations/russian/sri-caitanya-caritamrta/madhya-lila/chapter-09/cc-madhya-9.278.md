@@ -1,5 +1,8 @@
 ### CC Madhya 9.278
 
+> এইমত তাঁর ঘরে গর্ব চূর্ণ করি’ ।
+> ফল্গুতীর্থে তবে চলি আইলা গৌরহরি ॥২৭৮॥
+
 > ei-mata tāṅra ghare garva cūrṇa kari'
 > phalgu-tīrthe tabe cali āilā gaurahari
 

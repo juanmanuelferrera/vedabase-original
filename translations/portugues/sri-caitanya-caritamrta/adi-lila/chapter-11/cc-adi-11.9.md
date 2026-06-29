@@ -1,5 +1,8 @@
 ### CC Adi 11.9
 
+> ঈশ্বর হইয়া কহায় মহা-ভাগবত ।
+> বেদধর্মাতীত হঞা বেদধর্মে রত ॥৯॥
+
 īśvara ha-iyā kahāya mahā-bhāgavata
 veda-dharmātīta hañā veda-dharme rata
 

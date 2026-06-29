@@ -1,5 +1,7 @@
 ### SB 5.4.18
 
+> भगवतर्षभेण परिरक्ष्यमाण एतस्मिन्वर्षे न कश्चन पुरुषोवाञ्छत्यविद्यमानमिवात्मनोऽन्यस्मात्कथञ्चन किमपि कर्हिचिदवेक्षते भर्तर्यनुसवनंविजृम्भितस्नेहातिशयमन्तरेण ॥१८॥
+
 > bhagavatarṣabheṇa parirakṣyamāṇa etasmin varṣe na kaścana puruṣo vāñchaty avidyamānam ivātmano 'nyasmāt kathañcana kimapi karhicid avekṣate bhartary anusavanaṁ vijṛmbhita-snehātiśayam antareṇa.
 
 *bhagavatā*—by the Supreme Personality of Godhead; *ṛṣabheṇa*—King Ṛṣabha; *parirakṣyamāṇe*—being protected; *etasmin*—on this; *varṣe*—planet; *na*—not; *kaścana*—anyone; *puruṣaḥ*—even a common man; *vāñchati*—desires; *avidyamānam*—not existing in reality; *iva*—as if; *ātmanaḥ*—for himself; *anyasmāt*—from anyone else; *kathañcana*—by any means; *kimapi*—anything; *karhicit*—at any time; *avekṣate*—does care to see; *bhartari*—toward the master; *anusavanam*—always; *vijṛmbhita*—expanding; *sneha-atiśayam*—very great affection; *antareṇa*—within one's self.

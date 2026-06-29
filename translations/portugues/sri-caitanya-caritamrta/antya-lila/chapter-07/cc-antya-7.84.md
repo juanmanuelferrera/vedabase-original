@@ -1,5 +1,8 @@
 ### CC Antya 7.84
 
+> ভট্ট কহে, — “কৃষ্ণনামের অর্থ-ব্যাখ্যানে ।
+> বিস্তার কৈরাছি, তাহা করহ শ্রবণে ।।” ॥ ৮৪ ॥
+
 bhaṭṭa kahe, "kṛṣṇa-nāmera artha-vyākhyāne
 
 vistāra kairāchi, tāhā karaha śravaṇe"

@@ -1,5 +1,8 @@
 ### CC Madhya 11.12
 
+> ঐছে বাত পুনরপি মুখে না আনিবে ৷
+> কহ যদি, তবে আমায় এথা না দেখিবে ৷৷ ১২ ৷৷ ॥১২॥
+
 > aiche bāta punarapi mukhe nā ānibe
 > kaha yadi, tabe āmāya ethā nā dekhibe
 

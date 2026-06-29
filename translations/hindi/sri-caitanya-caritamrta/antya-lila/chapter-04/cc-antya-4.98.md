@@ -1,5 +1,8 @@
 ### CC Antya 4.98
 
+> আমার এই দেহ প্রভুর কার্যে না লাগিল ।
+> ভারত-ভূমিতে জন্মি’ এই দেহ ব্যর্থ হৈল ।।” ॥ ৯৮ ॥
+
 > āmāra ei deha prabhura kārye nā lāgila
 > bhārata-bhūmite janmi' ei deha vyartha haila
 

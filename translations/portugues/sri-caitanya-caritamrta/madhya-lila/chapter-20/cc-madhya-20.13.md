@@ -1,5 +1,8 @@
 ### CC Madhya 20.13
 
+> কিছু ভয় নাহি, আমি এ-দেশে না রব ।
+> দরবেশ হঞা আমি মক্কাকে যাইব ।।” ॥ ১৩ ॥
+
 kichu bhaya nāhi, āmi e-deśe nā raba
 daraveśa hañā āmi makkāke yāiba"
 

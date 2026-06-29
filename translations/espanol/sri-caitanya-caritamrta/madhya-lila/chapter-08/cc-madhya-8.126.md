@@ -1,5 +1,8 @@
 ### CC Madhya 8.126
 
+> তেঁহো কহে — আমি নাহি জানি কৃষ্ণকথা ৷
+> সবে রামানন্দ জানে, তেঁহো নাহি এথা ৷৷ ১২৬ ৷৷ ॥১২৬॥
+
 > teṅho kahe--āmi nāhi jāni kṛṣṇa-kathā
 > sabe rāmānanda jāne, teṅho nāhi ethā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 18.181
 
+> ম্লেচ্ছগণ আসি’ প্রভুর বন্দিল চরণ ।
+> প্রভু-আগে কহে, — এই ঠক্ চারিজন ॥১৮১॥
+
 mleccha-gaṇa āsi' prabhura vandila caraṇa
 
 prabhu-āge kahe,--ei ṭhak cāri-jana

@@ -1,5 +1,8 @@
 ### SB 9.8.13
 
+> न साधुवादो मुनिकोपभर्जिता नृपेन्द्रपुत्रा इति सत्त्वधामनि
+> कथं तमो रोषमयं विभाव्यते जगत्पवित्रात्मनि खे रजो भुवः ॥१३॥
+
 > yasyeritā sāṅkhyamayī dṛḍheha naur
 > yayā mumukṣus tarate duratyayam
 > bhavārṇavaṁ mṛtyu-pathaṁ vipaścitaḥ

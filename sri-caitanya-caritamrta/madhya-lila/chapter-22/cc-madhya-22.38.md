@@ -1,5 +1,8 @@
 ### CC Madhya 22.38
 
+> কৃষ্ণ কহে, — ‘আমা ভজে, মাগে বিষয়-সুখ ।
+> অমৃত ছাড়ি’ বিষ মাগে, — এই বড় মূর্খ ॥৩৮॥
+
 > kṛṣṇa kahe,—'āmā bhaje, māge viṣaya-sukha
 > amṛta chāḍi' viṣa māge,—ei baḍa mūrkha
 

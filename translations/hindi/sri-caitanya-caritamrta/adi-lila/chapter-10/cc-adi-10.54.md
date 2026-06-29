@@ -1,5 +1,8 @@
 ### CC Adi 10.54
 
+> শিবানন্দ সেন — প্রভুর ভৃত্য অন্তরঙ্গ ।
+> প্রভুস্থানে যাইতে সবে লয়েন যাঁর সঙ্গ ॥৫৪॥
+
 > śivānanda sena—prabhura bhṛtya antaraṅga
 > prabhu-sthāne yāite sabe layena yāṅra saṅga
 

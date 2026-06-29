@@ -1,5 +1,8 @@
 ### CC Madhya 8.152
 
+> ‘অন্তরঙ্গা’, ‘বহিরঙ্গা’, ‘তটস্থা’ কহি যারে ৷
+> অন্তরঙ্গা ‘স্বরূপ-শক্তি’ — সবার উপরে ৷৷ ১৫২ ৷৷ ॥১৫২॥
+
 > 'antaraṅgā', 'bahiraṅgā', 'taṭasthā' kahi yāre
 > antaraṅgā 'svarūpa-śakti'--sabāra upare
 

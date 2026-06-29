@@ -1,5 +1,8 @@
 ### CC Madhya 1.226
 
+> এত বলি’ চরণ বন্দি’ গেলা দুইজন ।
+> প্রভুর সেই গ্রাম হৈতে চলিতে হৈল মন ॥২২৬॥
+
 eta bali' caraṇa vandi' gelā dui-jana
 
 prabhura sei grāma haite calite haila mana

@@ -1,5 +1,8 @@
 ### SB 3.16.35
 
+> तावेव ह्यधुना प्राप्तौ पार्षदप्रवरौ हरेः ।
+> दितेर्जठरनिर्विष्टं काश्यपं तेज उल्बणम् ॥३५॥
+
 tāv eva hy adhunā prāptau
 *pārṣada*-pravarau hareḥ
 *diter jaṭhara*-nirviṣṭaṁ

@@ -1,5 +1,8 @@
 ### CC Adi 16.76
 
+> ‘শ্রী’-শব্দে, ‘লক্ষ্মী’-শব্দে — এক বস্তু উক্ত ।
+> পুনরুক্তপ্রায় ভাসে, নহে পুনরুক্ত ॥৭৬॥
+
 > 'śrī'-śabde, 'lakṣmī'-śabde--eka vastu ukta
 > punar-ukta-prāya bhāse, nahe punar-ukta
 

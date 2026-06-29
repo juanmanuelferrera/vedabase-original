@@ -1,5 +1,8 @@
 ### CC Antya 6.208
 
+> রঘুনাথে কহে — “যাঞা, কর সিন্ধুস্নান ।
+> জগন্নাথ দেখি’ আসি’ করহ ভোজন ।।” ॥ ২০৮ ॥
+
 > raghunāthe kahe—"yāñā, kara sindhu-snāna
 > jagannātha dekhi' āsi' karaha bhojana"
 

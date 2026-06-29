@@ -1,5 +1,8 @@
 ### CC Antya 13.95
 
+> নানা সেবা করি’ করে পাদ-সম্বাহন ।
+> তাতে রঘুনাথের হয় সঙ্কুচিত মন ॥৯৫॥
+
 nānā sevā kari' kare pāda-samvāhana
 
 tāte raghunāthera haya saṅkucita mana

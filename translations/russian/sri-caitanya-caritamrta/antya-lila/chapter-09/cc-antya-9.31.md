@@ -1,5 +1,8 @@
 ### CC Antya 9.31
 
+> শুনি’ প্রভু কহে কিছু করি’ প্রণয়-রোষ ।
+> “রাজ-কৌড়ি দিতে নারে, রাজার কিবা দোষ ? ॥ ৩১ ॥
+
 > śuni' prabhu kahe kichu kari' praṇaya-roṣa
 > "rāja-kauḍi dite nāre, rājāra kibā doṣa?
 

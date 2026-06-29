@@ -1,5 +1,8 @@
 ### CC Madhya 15.122
 
+> হেনকালে এক ময়ূর-পুচ্ছের আড়ানী  ।
+> রাজ-শিরোপরি ধরে এক সেবক আনি’ ॥১২২॥
+
 > hena-kāle eka mayūra-pucchera āḍānī
 > rāja-śiropari dhare eka sevaka āni'
 

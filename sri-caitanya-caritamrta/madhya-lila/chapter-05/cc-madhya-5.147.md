@@ -1,5 +1,8 @@
 ### CC Madhya 5.147
 
+> চলিতে চলিতে প্রভু আইলা ‘আঠারনালা’ ।
+> তাহাঁ আসি’ প্রভু কিছু বাহ্য প্রকাশিলা ॥১৪৭॥
+
 > calite calite prabhu āilā 'āṭhāranālā'
 > tāhāṅ āsi' prabhu kichu bāhya prakāśilā
 

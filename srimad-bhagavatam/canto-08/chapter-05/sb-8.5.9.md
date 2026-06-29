@@ -1,5 +1,8 @@
 ### SB 8.5.9
 
+> तत्रापि देवसम्भूत्यां वैराजस्याभवत्सुतः
+> अजितो नाम भगवानंशेन जगतः पतिः ॥९॥
+
 > tatrāpi devasambhūtyāṁ
 > vairājasyābhavat sutaḥ
 > ajito nāma bhagavān

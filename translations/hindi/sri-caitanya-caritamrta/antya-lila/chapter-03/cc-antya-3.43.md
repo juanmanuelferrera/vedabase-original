@@ -1,5 +1,8 @@
 ### CC Antya 3.43
 
+> আচার্যাদি বৈষ্ণবেরে মহাপ্রসাদ দিলা ।
+> প্রভুর যৈছে আজ্ঞা, পণ্ডিত তাহা আচরিলা ॥৪৩॥
+
 > ācāryādi vaiṣṇavere mahā-prasāda dilā
 > prabhura yaiche ājñā, paṇḍita tāhā ācarilā
 

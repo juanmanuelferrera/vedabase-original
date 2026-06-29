@@ -1,5 +1,8 @@
 ### CC Madhya 19.194
 
+> ঐশ্বর্যজ্ঞানপ্রাধান্যে সঙ্কুচিত প্রীতি ।
+> দেখিয়া না মানে ঐশ্বর্য — কেবলার রীতি ॥১৯৪॥
+
 aiśvarya-jñāna-prādhānye saṅkucita prīti
 
 dekhiyā nā māne aiśvarya--kevalāra rīti

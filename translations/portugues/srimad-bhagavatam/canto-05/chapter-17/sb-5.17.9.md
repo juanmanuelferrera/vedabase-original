@@ -1,5 +1,7 @@
 ### SB 5.17.9
 
+> तथैवालकनन्दा दक्षिणेन ब्रह्मसदनाद्बहूनि गिरिकूटान्यतिक्रम्यहेमकूटाद्धैमकूटान्यतिरभसतररंहसा लुठयन्ती भारतमभिवर्षं दक्षिणस्यां दिशिजलधिमभिप्रविशति यस्यां स्नानार्थं चागच्छतः पुंसः पदे पदेऽश्वमेधराजसूयादीनां फलंन दुर्लभमिति ॥९॥
+
 *tathaivālakanandā dakṣiṇena brahma*-sadanād bahūni giri-kūṭāny atikramya hemakūṭād dhaimakūṭāny ati-rabhasatara-raṁhasā luṭhayantī bhāratam abhivarṣaṁ dakṣiṇasyāṁ diśi jaladhim abhipraviśati yasyāṁ snānārthaṁ cāgacchataḥ puṁsaḥ pade pade 'śvamedha-rājasūyādīnāṁ phalaṁ na durlabham iti.
 
 *tathā eva*—de modo semelhante; *alakanandā*—o ramo conhecido como Alakanandā; *dakṣiṇena*—pelo lado sul; *brahma-sadanāt*—da cidade conhecida como Brahmapurī; *bahūni*—muitos; *giri-kūṭāni*—os topos das montanhas; *atikramya*—atravessando; *hemakūṭāt*—da montanha Hemakūṭa; *haimakūṭāni*—e Himakūṭa; *ati-rabhasatara*—mais ferozmente; *raṁhasā*—com grande força; *luṭhayantī*—saqueando; *bhāratam abhivarṣam*—por todos os lados de Bhārata-varṣa; *dakṣiṇasyām*—na meridional; *diśi*—direção; *jaladhim*—o oceano de água salgada; *abhipraviśati*—entra; *yasyām*—no qual; *snāna-artham*—para o banho; *ca*—e; *āgacchataḥ*—de quem está vindo; *puṁsaḥ*—uma pessoa; *pade pade*—a cada passo; *aśvamedha-rājasūya-ādīnām*—de grandes sacrifícios como o Aśvamedha-yajña e o Rājasūya-yajña; *phalam*—o resultado; *na*—não; *durlabham*—muito difícil de obter; *iti*—assim.

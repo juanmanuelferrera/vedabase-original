@@ -1,5 +1,8 @@
 ### CC Madhya 8.77
 
+> নন্দঃ কিমকরোদ্ব্রহ্মন্ শ্রেয় এবং মহোদয়ম্ ।
+> যশোদা বা মহাভাগা পপৌ যস্যাঃ স্তনং হরিঃ ॥৭৭॥
+
 > nandaḥ kim akarod brahman
 > śreya evaṁ mahodayam
 > yaśodā vā mahā-bhāgā

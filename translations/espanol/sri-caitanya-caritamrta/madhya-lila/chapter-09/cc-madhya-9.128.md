@@ -1,5 +1,8 @@
 ### CC Madhya 9.128
 
+> ব্রজলোকের ভাবে পাইয়ে তাঁহার চরণ ৷
+> তাঁরে ঈশ্বর করি’ নাহি জানে ব্রজজন ৷৷ ১২৮ ৷৷ ॥১২৮॥
+
 > vraja-lokera bhāve pāiye tāṅhāra caraṇa
 > tāṅre īśvara kari' nāhi jāne vraja-jana
 

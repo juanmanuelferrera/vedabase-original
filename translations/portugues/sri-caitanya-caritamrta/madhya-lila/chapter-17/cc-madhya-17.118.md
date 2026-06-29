@@ -1,5 +1,8 @@
 ### CC Madhya 17.118
 
+> যেই তাঁরে দেখে, সেই ঈশ্বর করি’ কহে ।
+> ঐছে মোহন-বিদ্যা — যে দেখে সে মোহে ॥১১৮॥
+
 yei tāṅre dekhe, sei īśvara kari' kahe
 
 aiche mohana-vidyā--ye dekhe se mohe

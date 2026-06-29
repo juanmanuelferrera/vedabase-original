@@ -1,5 +1,8 @@
 ### CC Madhya 7.1
 
+> ধন্যং তং নৌমি চৈতন্যং বাসুদেবং দয়ার্দ্রধী ৷
+> নষ্টকুষ্ঠং রূপপুষ্টং ভক্তিতুষ্টং চকার যঃ ৷৷ ১ ৷৷ ॥১॥
+
 > dhanyaṁ taṁ naumi caitanyaṁ
 > vāsudevaṁ dayārdraḥ-dhī
 > naṣṭa-kuṣṭhaṁ rūpa-puṣṭaṁ

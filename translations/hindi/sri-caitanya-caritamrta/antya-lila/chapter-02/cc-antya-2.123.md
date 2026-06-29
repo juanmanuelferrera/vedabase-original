@@ -1,5 +1,8 @@
 ### CC Antya 2.123
 
+> “অল্প অপরাধ, প্রভু করহ প্রসাদ  ।
+> এবে শিক্ষা হইল না করিবে অপরাধ” ॥১২৩॥
+
 > "alpa aparādha, prabhu karaha prasāda
 > ebe śikṣā ha-ila nā karibe aparādha"
 

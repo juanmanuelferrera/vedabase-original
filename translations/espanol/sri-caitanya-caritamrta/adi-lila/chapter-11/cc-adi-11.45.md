@@ -1,5 +1,8 @@
 ### CC Adi 11.45
 
+> পরমানন্দ গুপ্ত — কৃষ্ণভক্ত মহামতি ।
+> পূর্বে যাঁর ঘরে নিত্যানন্দের বসতি ॥৪৫॥
+
 > paramānanda gupta--kṛṣṇa-bhakta mahāmatī
 > pūrve yāṅra ghare nityānandera vasati
 

@@ -1,5 +1,7 @@
 ### SB 5.20.19
 
+> योऽसौ गुहप्रहरणोन्मथितनितम्बकुञ्जोऽपि क्षीरोदेनासिच्यमानो भगवता वरुणेनाभिगुप्तोविभयो बभूव ॥१९॥
+
 > yo 'sau guha-praharaṇonmathita-nitamba-kuñjo 'pi kṣīrodenā-sicyamāno bhagavatā varuṇenābhigupto vibhayo babhūva.
 
 *yaḥ*—which; *asau*—that (mountain); *guha-praharaṇa*—by the weapons of Kārttikeya, the son of Lord Śiva; *unmathita*—shaken; *nitamba-kuñjaḥ*—whose trees and vegetables along the slopes; *api*—although; *kṣīra-udena*—by the ocean of milk; *āsicyamānaḥ*—being always bathed; *bhagavatā*—by the greatly powerful; *varuṇena*—the demigod known as Varuṇa; *abhiguptaḥ*—protected; *vibhayaḥ babhūva*—has become fearless.

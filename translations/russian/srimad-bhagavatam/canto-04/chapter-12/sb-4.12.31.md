@@ -1,5 +1,8 @@
 ### SB 4.12.31
 
+> तदा दुन्दुभयो नेदुर्मृदङ्गपणवादयः ।
+> गन्धर्वमुख्याः प्रजगुः पेतुः कुसुमवृष्टयः ॥३१॥
+
 > tadā dundubhayo nedur
 > mṛdaṅga-paṇavādayaḥ
 > gandharva-mukhyāḥ prajaguḥ

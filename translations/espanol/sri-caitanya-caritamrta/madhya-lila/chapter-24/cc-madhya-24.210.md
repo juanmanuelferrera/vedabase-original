@@ -1,5 +1,8 @@
 ### CC Madhya 24.210
 
+> আগে ‘তের’ অর্থ করিলুঁ, আর ‘ছয়’ এই ।
+> ঊনবিংশতি অর্থ হইল মিলি’ এই দুই ॥২১০॥
+
 > āge 'tera' artha kariluṅ, āra 'chaya' ei
 > ūnaviṁśati artha ha-ila mili' ei dui
 

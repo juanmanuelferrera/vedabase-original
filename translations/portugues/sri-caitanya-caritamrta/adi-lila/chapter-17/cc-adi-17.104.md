@@ -1,5 +1,8 @@
 ### CC Adi 17.104
 
+> কে আছিলুঁ আমি পূর্বজন্মে কহ গণি’ ।
+> গণিতে লাগিলা সর্বজ্ঞ প্রভুবাক্য শুনি’ ॥১০৪॥
+
 ke āchiluṅ āmi pūrva janme kaha gaṇi'
 
 gaṇite lāgilā sarva-jña prabhu-vākya śuni'

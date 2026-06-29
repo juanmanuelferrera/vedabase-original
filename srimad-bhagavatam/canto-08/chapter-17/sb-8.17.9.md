@@ -1,5 +1,10 @@
 ### SB 8.17.9
 
+> विश्वाय विश्वभवनस्थितिसंयमाय
+> स्वैरं गृहीतपुरुशक्तिगुणाय भूम्ने
+> स्वस्थाय शश्वदुपबृंहितपूर्णबोध
+> व्यापादितात्मतमसे हरये नमस्ते ॥९॥
+
 > viśvāya viśva-bhavana-sthiti-saṁyamāya
 > svairaṁ gṛhīta-puru-śakti-guṇāya bhūmne
 > sva-sthāya śaśvad-upabṛṁhita-pūrṇa-bodha-

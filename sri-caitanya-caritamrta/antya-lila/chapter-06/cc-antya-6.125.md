@@ -1,5 +1,8 @@
 ### CC Antya 6.125
 
+> সর্বত্র ‘ব্যাপক’ প্রভুর সদা সর্বত্র বাস ।
+> ইহাতে সংশয় যার, সেই যায় নাশ ॥১২৫॥
+
 > sarvatra 'vyāpaka' prabhura sadā sarvatra vāsa
 > ihāte saṁśaya yāra, sei yāya nāśa
 

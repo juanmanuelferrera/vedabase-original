@@ -1,5 +1,8 @@
 ### CC Antya 1.57
 
+> তোমা-দুঁহার কৃপাতে ইহাঁর হউ তৈছে শক্তি  ।
+> যাতে বিবরিতে পারেন কৃষ্ণরসভক্তি ॥৫৭॥
+
 > tomā-duṅhāra kṛpāte iṅhāra ha-u taiche śakti
 > yāte vivarite pārena kṛṣṇa-rasa-bhakti
 

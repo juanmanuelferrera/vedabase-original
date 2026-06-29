@@ -1,5 +1,8 @@
 ### SB 5.5.17
 
+> कस्तं स्वयं तदभिज्ञओ विपश्चिदविद्यायामन्तरे वर्तमानम
+> दृष्ट्वा पुनस्तं सघृणः कुबुद्धिं प्रयोजयेदुत्पथगं यथान्धम ॥१७॥
+
 > kas taṁ svayaṁ tad-abhijño vipaścid
 > avidyāyām antare vartamānam
 > dṛṣṭvā punas taṁ saghṛṇaḥ kubuddhiṁ

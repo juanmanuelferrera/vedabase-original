@@ -1,5 +1,8 @@
 ### CC Antya 4.213
 
+> এইমতে সনাতন বৃন্দাবনে আইলা ।
+> পাছে আসি’ রূপ-গোসাঞি তাঁহারে মিলিলা ॥২১৩॥
+
 ei-mate sanātana vṛndāvane āilā
 
 pāche āsi' rūpa-gosāñi tāṅhāre mililā

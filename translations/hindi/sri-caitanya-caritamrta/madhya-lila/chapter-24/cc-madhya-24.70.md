@@ -1,5 +1,8 @@
 ### CC Madhya 24.70
 
+> এই ত’ একাদশ পদের অর্থ-নির্ণয় ।
+> এবে শ্লোকার্থ করি, যথা যে লাগয় ॥৭০॥
+
 > ei ta' ekādaśa padera artha-nirṇaya
 > ebe ślokārtha kari, yathā ye lāgaya
 

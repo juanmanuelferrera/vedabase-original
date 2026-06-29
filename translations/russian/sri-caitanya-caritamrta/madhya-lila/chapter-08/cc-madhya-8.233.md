@@ -1,5 +1,8 @@
 ### CC Madhya 8.233
 
+> এত শুনি’ প্রভু তাঁরে কৈল আলিঙ্গন ।
+> দুই জনে গলাগলি করেন ক্রন্দন ॥২৩৩॥
+
 > eta śuni' prabhu tāṅre kaila āliṅgana
 > dui jane galāgali karena krandana
 

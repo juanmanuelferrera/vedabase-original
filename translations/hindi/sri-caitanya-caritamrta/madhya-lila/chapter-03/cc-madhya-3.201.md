@@ -1,5 +1,8 @@
 ### CC Madhya 3.201
 
+> দিনে কৃষ্ণ-কথা-রস ভক্তগণ-সঙ্গে ।
+> রাত্রে মহা-মহোৎসব সংকীর্তন-রঙ্গে ॥২০১॥
+
 > dine kṛṣṇa-kathā-rasa bhakta-gaṇa-saṅge
 > rātre mahā-mahotsava saṅkīrtana-raṅge
 

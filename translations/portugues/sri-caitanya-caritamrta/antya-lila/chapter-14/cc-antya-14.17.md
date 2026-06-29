@@ -1,5 +1,8 @@
 ### CC Antya 14.17
 
+> একদিন মহাপ্রভু করিয়াছেন শয়ন ।
+> কৃষ্ণ রাসলীলা করে, — দেখিলা স্বপন ॥১৭॥
+
 eka-dina mahāprabhu kariyāchena śayana
 
 kṛṣṇa rāsa-līlā kare,--dekhilā svapana

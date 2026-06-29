@@ -1,5 +1,8 @@
 ### CC Antya 3.24
 
+> আমা হৈতে যে না হয়, সে তোমা হৈতে হয় ।
+> আমারে করিলা দণ্ড, আন কেবা হয় ॥২৪॥
+
 > āmā haite ye nā haya, se tomā haite haya
 > āmāre karilā daṇḍa, āna kebā haya
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.132
 
+> অযোগ্য মুই নিবেদন করিতে করি ভয়  ।
+> মোরে ‘চৈতন্য’ দেহ’ গোসাঞি হঞা সদয় ॥১৩২॥
+
 > ayogya mui nivedana karite kari bhaya
 > more 'caitanya' deha' gosāñi hañā sadaya
 

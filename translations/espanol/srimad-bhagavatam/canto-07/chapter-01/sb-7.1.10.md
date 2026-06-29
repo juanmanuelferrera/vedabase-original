@@ -1,5 +1,8 @@
 ### SB 7.1.10
 
+> यदा सिसृक्षुः पुर आत्मनः परो रजः सृजत्येष पृथक्स्वमायया
+> सत्त्वं विचित्रासु रिरंसुरीश्वरः शयिष्यमाणस्तम ईरयत्यसौ ॥१०॥
+
 > yadā sisṛkṣuḥ pura ātmanaḥ paro
 > rajaḥ sṛjaty eṣa pṛthak sva-māyayā
 > sattvaṁ vicitrāsu riraṁsur īśvaraḥ

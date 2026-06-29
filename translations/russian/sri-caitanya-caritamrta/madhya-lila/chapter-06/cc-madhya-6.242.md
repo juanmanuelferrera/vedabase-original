@@ -1,5 +1,8 @@
 ### CC Madhya 6.242
 
+> হরের্নাম হরের্নাম হরের্নামৈব কেবলম্ ।
+> কলৌ নাস্ত্যেব নাস্ত্যেব নাস্ত্যেব গতিরন্যথা ॥২৪২॥
+
 > harer nāma harer nāma
 > harer nāmaiva kevalam
 > kalau nāsty eva nāsty eva

@@ -1,5 +1,8 @@
 ### CC Madhya 13.118
 
+> গৌর যদি পাছে চলে, শ্যাম হয় স্থিরে ।
+> গৌর আগে চলে, শ্যাম চলে ধীরে-ধীরে ॥১১৮॥
+
 > gaura yadi pāche cale, śyāma haya sthire
 > gaura āge cale, śyāma cale dhīre-dhīre
 

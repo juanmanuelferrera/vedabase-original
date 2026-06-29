@@ -1,5 +1,8 @@
 ### CC Adi 10.23
 
+> দুইজনে খট্মটি লাগায় কোন্দল ।
+> তাঁর প্রীত্যের কথা আগে কহিব সকল ॥২৩॥
+
 > dui-jane khaṭmaṭi lāgāya kondala
 > tāṅra prītyera kathā āge kahiba sakala
 

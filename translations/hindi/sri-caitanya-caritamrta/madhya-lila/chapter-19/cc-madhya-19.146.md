@@ -1,5 +1,8 @@
 ### CC Madhya 19.146
 
+> বেদনিষ্ঠ-মধ্যে অর্ধেক বেদ ‘মুখে’ মানে ।
+> বেদনিষিদ্ধ পাপ করে, ধর্ম নাহি গণে ॥১৪৬॥
+
 > veda-niṣṭha-madhye ardheka veda 'mukhe' māne
 > veda-niṣiddha pāpa kare, dharma nāhi gaṇe
 

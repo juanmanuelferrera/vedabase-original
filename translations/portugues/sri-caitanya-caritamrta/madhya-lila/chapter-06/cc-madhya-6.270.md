@@ -1,5 +1,8 @@
 ### CC Madhya 6.270
 
+> সালোক্য-সার্ষ্টি-সামীপ্য সারূপ্যৈকত্বমপ্যুত ৷
+> দীয়মানং ন গৃহ্ণন্তি বিনা মৎ-সেবনং জনাঃ ॥২৭০॥
+
 sālokya-sārṣṭi-sāmīpya-
 sārūpyaikatvam apy uta
 dīyamānaṁ na gṛhṇanti

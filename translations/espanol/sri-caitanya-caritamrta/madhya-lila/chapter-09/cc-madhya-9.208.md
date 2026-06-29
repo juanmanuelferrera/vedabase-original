@@ -1,5 +1,8 @@
 ### CC Madhya 9.208
 
+> এ-সব সিদ্ধান্ত শুনি’ প্রভুর আনন্দ হৈল ৷
+> ব্রাহ্মণের স্থানে মাগি’ সেই পত্র নিল ৷৷ ২০৮ ৷৷ ॥২০৮॥
+
 > e-saba siddhānta śuni' prabhura ānanda haila
 > brāhmaṇera sthāne māgi' sei patra nila
 

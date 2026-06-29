@@ -1,5 +1,8 @@
 ### CC Antya 1.43
 
+> স্বপ্ন দেখি’ রূপ-গোসাঞি করিলা বিচার ।
+> সত্যভামার আজ্ঞা — পৃথক্ নাটক করিবার ॥৪৩॥
+
 > svapna dekhi' rūpa-gosāñi karilā vicāra
 > satya-bhāmāra ājñā--pṛthak nāṭaka karibāra
 

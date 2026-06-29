@@ -1,5 +1,8 @@
 ### CC Antya 19.87
 
+> আগে পাইলা কৃষ্ণে, তাঁরে পুনঃ হারাঞা ।
+> ভূমেতে পড়িলা প্রভু মূর্চ্ছিত হঞা ॥৮৭॥
+
 āge pāilā kṛṣṇe, tāṅre punaḥ hārāñā
 
 bhūmete paḍilā prabhu mūrcchita hañā

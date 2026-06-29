@@ -1,5 +1,8 @@
 ### CC Madhya 8.258
 
+> অরসজ্ঞ কাক চূষে জ্ঞান-নিম্বফলে ৷
+> রসজ্ঞ কোকিল খায় প্রেমাম্র-মুকুলে ৷৷ ২৫৮ ৷৷ ॥২৫৮॥
+
 arasa-jña kāka cūṣe jñāna-nimba-phale
 
 rasa-jña kokila khāya premāmra-mukule

@@ -1,5 +1,8 @@
 ### SB 3.32.27
 
+> एतावानेव योगेन समग्रेणेह योगिनः ।
+> युज्यतेऽभिमतो ह्यर्थो यदसङ्गस्तु कृत्स्नशः ॥२७॥
+
 > etāvān eva yogena
 > samagreṇeha yoginaḥ
 > yujyate 'bhimato hy artho

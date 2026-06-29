@@ -1,5 +1,8 @@
 ### CC Madhya 12.170
 
+> যদ্যপি দিলে প্রভু তাঁরে করেন রোষ ।
+> বলে-ছলে তবু দেন, দিলে সে সন্তোষ ॥১৭০॥
+
 yadyapi dile prabhu tāṅre karena roṣa
 
 bale-chale tabu dena, dile se santoṣa

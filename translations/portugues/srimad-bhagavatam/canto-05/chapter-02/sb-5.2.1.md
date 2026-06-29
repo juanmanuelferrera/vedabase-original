@@ -1,5 +1,8 @@
 ### SB 5.2.1
 
+> श्रीशुक उवाच
+> एवं पितरि सम्प्रवृत्ते तदनुशासने वर्तमान आग्नीध्रो जम्बूद्वीपौकसः प्रजाऔरसवद्धर्मावेक्षमाणः पर्यगोपायत ॥१॥
+
 śrī-śuka uvāca
 
 *evaṁ pitari sampravṛtte tad*-anuśāsane vartamāna āgnīdhro jambūdvīpaukasaḥ prajā aurasavad dharmāvekṣamāṇaḥ paryagopāyat.

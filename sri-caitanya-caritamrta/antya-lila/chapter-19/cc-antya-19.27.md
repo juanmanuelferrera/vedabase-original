@@ -1,5 +1,8 @@
 ### CC Antya 19.27
 
+> পূজা-নির্বাহণ হৈলে পাছে করেন বিসর্জন ।
+> তরজার না জানি অর্থ, কিবা তাঁর মন ॥২৭॥
+
 > pūjā-nirvāhaṇa haile pāche karena visarjana
 > tarajāra nā jāni artha, kibā tāṅra mana
 

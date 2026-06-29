@@ -1,5 +1,8 @@
 ### CC Antya 4.102
 
+> আপনে আচরে কেহ, না করে প্রচার  ।
+> প্রচার করেন কেহ, না করেন আচার ॥১০২॥
+
 > āpane ācare keha, nā kare pracāra
 > pracāra karena keha, nā karena ācāra
 

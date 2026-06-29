@@ -1,5 +1,8 @@
 ### SB 1.15.11
 
+> यो नो जुगोप वन एत्य दुरन्तकृच्छ्राद्दुर्वाससोऽरिरचितादयुताग्रभुग्यः ।
+> शाकान्नशिष्टमुपयुज्य यतस्त्रिलोकीं तृप्ताममंस्त सलिले विनिमग्नसङ्घः ॥११॥
+
 > yo no jugopa vana etya duranta-kṛcchrād
 > durvāsaso 'ri-racitād ayutāgra-bhug yaḥ
 > śākānna-śiṣṭam upayujya yatas tri-lokīṁ

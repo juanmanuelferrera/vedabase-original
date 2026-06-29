@@ -1,5 +1,8 @@
 ### CC Madhya 18.97
 
+> প্রভু-আগে কহে লোক, — শ্রীকৃষ্ণ দেখিল ।
+> ‘সরস্বতী’ এই বাক্যে ‘সত্য’ কহাইল ॥৯৭॥
+
 > prabhu-āge kahe loka,—śrī-kṛṣṇa dekhila
 > 'sarasvatī' ei vākye 'satya' kahāila
 

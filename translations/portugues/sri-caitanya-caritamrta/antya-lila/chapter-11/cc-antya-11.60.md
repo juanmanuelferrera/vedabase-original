@@ -1,5 +1,8 @@
 ### CC Antya 11.60
 
+> প্রভুর আবেশে অবশ সর্বভক্তগণ ।
+> প্রেমাবেশে সবে নাচে, করেন কীর্তন ॥৬০॥
+
 prabhura āveśe avaśa sarva-bhakta-gaṇa
 
 premāveśe sabe nāce, karena kīrtana

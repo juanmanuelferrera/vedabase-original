@@ -1,5 +1,8 @@
 ### CC Madhya 11.32
 
+> দুরাপা হ্যল্পতপসঃ সেবা বৈকুণ্ঠবর্ত্মসু ।
+> যত্রোপগীয়তে নিত্যং দেবদেবো জনার্দনঃ ॥৩২॥
+
 > durāpā hy alpa-tapasaḥ
 > sevā vaikuṇṭha-vartmasu
 > yatropagīyate nityaṁ

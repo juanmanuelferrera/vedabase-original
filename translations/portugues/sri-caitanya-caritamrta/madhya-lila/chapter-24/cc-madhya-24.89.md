@@ -1,5 +1,8 @@
 ### CC Madhya 24.89
 
+> সেই উপাসক হয় ত্রিবিধ প্রকার ।
+> অকাম, মোক্ষকাম, সর্বকাম আর ॥৮৯॥
+
 sei upāsaka haya trividha prakāra
 
 akāma, mokṣa-kāma, sarva-kāma āra

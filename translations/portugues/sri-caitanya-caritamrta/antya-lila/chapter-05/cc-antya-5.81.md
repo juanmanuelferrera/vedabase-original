@@ -1,5 +1,8 @@
 ### CC Antya 5.81
 
+> এইসব গুণ তাঁর প্রকাশ করিতে ।
+> মিশ্রেরে পাঠাইলা তাহাঁ শ্রবণ করিতে ॥৮১॥
+
 ei-saba guṇa tāṅra prakāśa karite
 
 miśrere pāṭhāilā tāhāṅ śravaṇa karite

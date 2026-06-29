@@ -1,5 +1,8 @@
 ### CC Madhya 8.215
 
+> সহজ গোপীর প্রেম, — নহে প্রাকৃত কাম ।
+> কামক্রীড়া-সাম্যে তার কহি ‘কাম’-নাম ॥২১৫॥
+
 > sahaja gopīra prema,—nahe prākṛta kāma
 > kāma-krīḍā-sāmye tāra kahi 'kāma'-nāma
 

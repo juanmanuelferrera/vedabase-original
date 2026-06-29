@@ -1,5 +1,8 @@
 ### CC Antya 1.44
 
+> ব্রজ-পুর-লীলা একত্র করিয়াছি ঘটনা ।
+> দুই ভাগ করি’ এবে করিমু রচনা ॥৪৪॥
+
 vraja-pura-līlā ekatra kariyāchi ghaṭanā
 
 dui bhāga kari' ebe karimu racanā

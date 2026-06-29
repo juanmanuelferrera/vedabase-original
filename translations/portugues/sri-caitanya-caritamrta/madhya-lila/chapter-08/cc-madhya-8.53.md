@@ -1,5 +1,8 @@
 ### CC Madhya 8.53
 
+> যদ্যপি বিচ্ছেদ দোঁহার সহন না যায় ৷
+> তথাপি দণ্ডবৎ করি’ চলিলা রামরায় ৷৷ ৫৩ ৷৷ ॥৫৩॥
+
 yadyapi viccheda doṅhāra sahana nā yāya
 
 tathāpi daṇḍavat kari' calilā rāma-rāya

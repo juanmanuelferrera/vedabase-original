@@ -1,5 +1,8 @@
 ### CC Adi 12.93
 
+> অতএব তাঁ-সবার বন্দিয়ে চরণ ।
+> চৈতন্য-মালীর কহি লীলা-অনুক্রম ॥৯৩॥
+
 > ataeva tāṅ-sabāra vandiye caraṇa
 > caitanya-mālīra kahi līlā-anukrama
 

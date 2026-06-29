@@ -1,5 +1,8 @@
 ### CC Madhya 25.42
 
+> এই ত’ কল্পিত অর্থ মনে নাহি ভায় ।
+> শাস্ত্র ছাড়ি’ কুকল্পনা পাষণ্ডে বুঝায় ॥৪২॥
+
 > ei ta' kalpita artha mane nāhi bhāya
 > śāstra chāḍi' kukalpanā pāṣaṇḍe bujhāya
 

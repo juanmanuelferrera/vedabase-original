@@ -1,5 +1,8 @@
 ### CC Antya 12.25
 
+> আনন্দিত হৈলা শিবাই পাদপ্রহার পাঞা ।
+> শীঘ্র বাসা-ঘর কৈলা গৌড়-ঘরে গিয়া ॥২৫॥
+
 > ānandita hailā śivāi pāda-prahāra pāñā
 > śīghra vāsā-ghara kailā gauḍa-ghare giyā
 

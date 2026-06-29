@@ -1,5 +1,8 @@
 ### CC Madhya 8.251
 
+> ‘শ্রেয়ো-মধ্যে কোন্ শ্রেয়ঃ জীবের হয় সার?’
+> ‘কৃষ্ণভক্ত-সঙ্গ বিনা শ্রেয়ঃ নাহি আর ৷৷’ ২৫১ ৷৷ ॥২৫১॥
+
 > 'śreyo-madhye kona śreyaḥ jīvera haya sāra?'
 > 'kṛṣṇa-bhakta-saṅga vinā śreyaḥ nāhi āra'
 

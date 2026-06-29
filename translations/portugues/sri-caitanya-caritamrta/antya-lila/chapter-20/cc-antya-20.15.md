@@ -1,5 +1,8 @@
 ### CC Antya 20.15
 
+> উঠিল বিষাদ, দৈন্য, — পড়ে আপন-শ্লোক ।
+> যাহার অর্থ শুনি’ সব যায় দুঃখ-শোক ॥১৫॥
+
 uṭhila viṣāda, dainya,--paḍe āpana-śloka
 
 yāhāra artha śuni' saba yāya duḥkha-śoka

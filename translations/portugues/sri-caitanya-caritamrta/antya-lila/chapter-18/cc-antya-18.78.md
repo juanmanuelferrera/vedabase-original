@@ -1,5 +1,8 @@
 ### CC Antya 18.78
 
+> অন্তর্দশার কিছু ঘোর, কিছু বাহ্য-জ্ঞান ।
+> সেই দশা কহে ভক্ত ‘অর্ধবাহ্য’-নাম ॥৭৮॥
+
 antar-daśāra kichu ghora, kichu bāhya-jñāna
 
 sei daśā kahe bhakta 'ardha-bāhya'-nāma

@@ -1,5 +1,10 @@
 ### CC Antya 19.96
 
+> হরে নারীর তনুমন, নাসা করে ঘূর্ণন,
+> খসায় নীবি, ছুটায় কেশবন্ধ ।
+> করিয়া আগে বাউরী, নাচায় জগৎ-নারী,
+> হেন ডাকাতিয়া কৃষ্ণাঙ্গগন্ধ ॥৯৬॥
+
 > hare nārīra tanu-mana, nāsā kare ghūrṇana,
 > khasāya nīvi, chuṭāya keśa-bandha
 > kariyā āge bāurī, nācāya jagat-nāri,

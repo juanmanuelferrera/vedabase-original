@@ -1,5 +1,8 @@
 ### CC Antya 11.30
 
+> অনেক নাচাইলা মোরে প্রসাদ করিয়া ।
+> বিপ্রের শ্রাদ্ধপাত্র খাইনু ‘ম্লেচ্ছ’ হঞা ॥৩০॥
+
 > aneka nācāilā more prasāda kariyā
 > viprera śrāddha-pātra khāinu 'mleccha' hañā
 

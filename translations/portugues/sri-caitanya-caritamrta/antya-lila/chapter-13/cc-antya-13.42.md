@@ -1,5 +1,8 @@
 ### CC Antya 13.42
 
+> সব ভক্তগণ-ঠাঞি আজ্ঞা মাগিলা ।
+> বনপথে চলি’ চলি’ বারাণসী আইলা ॥৪২॥
+
 saba bhakta-gaṇa-ṭhāñi ājñā māgilā
 
 vana-pathe cali' cali' vārāṇasī āilā

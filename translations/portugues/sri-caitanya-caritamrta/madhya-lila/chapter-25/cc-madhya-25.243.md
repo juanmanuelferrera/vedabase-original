@@ -1,5 +1,8 @@
 ### CC Madhya 25.243
 
+> প্রথম পরিচ্ছেদে — শেষলীলার সূত্রগণ ।
+> তথি-মধ্যে কোন ভাগের বিস্তার বর্ণন ॥২৪৩॥
+
 prathama paricchede-śeṣa-līlāra sūtra-gaṇa
 
 tathi-madhye kona bhāgera vistāra varṇana

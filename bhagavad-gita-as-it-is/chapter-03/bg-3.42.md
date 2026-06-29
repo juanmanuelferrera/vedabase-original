@@ -1,5 +1,8 @@
 ### Bg 3.42
 
+> इन्द्रियाणि पराण्याहुरिन्द्रियेभ्यः परं मनः ।
+> मनसस्तु परा बुद्धिर्यो बुद्धेः परतस्तु सः ॥४२॥
+
 > indriyāṇi parāṇy āhur
 > indriyebhyaḥ paraṁ manaḥ
 > manasas tu parā buddhir

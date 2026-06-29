@@ -1,5 +1,8 @@
 ### CC Madhya 8.293
 
+> নিগূঢ় ব্রজের রস-লীলার বিচার ৷
+> অনেক কহিল, তার না পাইল পার ৷৷ ২৯৩ ৷৷ ॥২৯৩॥
+
 nigūḍha vrajera rasa-līlāra vicāra
 
 aneka kahila, tāra nā pāila pāra

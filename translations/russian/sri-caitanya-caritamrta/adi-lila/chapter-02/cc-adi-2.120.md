@@ -1,5 +1,8 @@
 ### CC Adi 2.120
 
+> চৈতন্য-গোসাঞির এই তত্ত্ব-নিরূপণ ।
+> স্বয়ং-ভগবান্ কৃষ্ণ ব্রজেন্দ্রনন্দন ॥১২০॥
+
 > caitanya-gosāñira ei tattva-nirūpaṇa
 > svayaṁ-bhagavān kṛṣṇa vrajendra-nandana
 

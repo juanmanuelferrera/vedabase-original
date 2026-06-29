@@ -1,5 +1,8 @@
 ### CC Antya 16.30
 
+> তারে নমস্করি’ কালিদাস বিদায় মাগিলা ।
+> ঝড়ু-ঠাকুর তবে তাঁর অনুব্রজি’ আইলা ॥৩০॥
+
 > tāre namaskari' kālidāsa vidāya māgilā
 > jhaḍu-ṭhākura tabe tāṅra anuvraji, āilā
 

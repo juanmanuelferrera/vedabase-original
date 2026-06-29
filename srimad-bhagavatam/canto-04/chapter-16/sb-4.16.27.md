@@ -1,5 +1,8 @@
 ### SB 4.16.27
 
+> दिशो विजित्याप्रतिरुद्धचक्रः स्वतेजसोत्पाटितलोकशल्यः ।
+> सुरासुरेन्द्रैरुपगीयमान महानुभावो भविता पतिर्भुवः ॥२७॥
+
 > diśo vijityāpratiruddha-cakraḥ
 > sva-tejasotpāṭita-loka-śalyaḥ
 > surāsurendrair upagīyamāna-

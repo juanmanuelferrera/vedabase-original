@@ -1,5 +1,8 @@
 ### CC Antya 11.73
 
+> সিংহদ্বারে আসি’ প্রভু পসারির ঠাঁই ।
+> আঁচল পাতিয়া প্রসাদ মাগিলা তথাই ॥৭৩॥
+
 siṁha-dvāre āsi' prabhu pasārira ṭhāṅi
 
 āṅcala pātiyā prasāda māgilā tathāi

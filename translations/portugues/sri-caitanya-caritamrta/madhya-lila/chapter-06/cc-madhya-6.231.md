@@ -1,5 +1,8 @@
 ### CC Madhya 6.231
 
+> আজি মোর পূর্ণ হৈল সর্ব অভিলাষ ।
+> সার্বভৌমের হৈল মহাপ্রসাদে বিশ্বাস ॥২৩১॥
+
 āji mora pūrṇa haila sarva abhilāṣa
 sārvabhaumera haila mahā-prasāde viśvāsa
 

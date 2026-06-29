@@ -1,5 +1,10 @@
 ### CC Madhya 25.275
 
+> সেই সরোবরে গিয়া, হংস-চক্রবাক হঞা,
+> সদা তাহাঁ করহ বিলাস ।
+> খণ্ডিবে সকল দুঃখ, পাইবা পরম সুখ,
+> অনায়াসে হবে প্রেমোল্লাস ॥২৭৫॥
+
 > sei sarovare giyā, haṁsa-cakravāka hañā,
 > sadā tāhāṅ karaha vilāsa
 > khaṇḍibe sakala duḥkha, pāibā parama sukha,

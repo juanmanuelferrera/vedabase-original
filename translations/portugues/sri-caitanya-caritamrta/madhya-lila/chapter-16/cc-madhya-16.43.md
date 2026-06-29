@@ -1,5 +1,8 @@
 ### CC Madhya 16.43
 
+> সিংহদ্বার-নিকটে আইলা শুনি’ গৌররায় ।
+> আপনে আসিয়া প্রভু মিলিলা সবায় ॥৪৩॥
+
 siṁha-dvāra-nikaṭe āilā śuni' gaurarāya
 
 āpane āsiyā prabhu mililā sabāya

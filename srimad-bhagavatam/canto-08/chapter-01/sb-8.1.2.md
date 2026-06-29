@@ -1,5 +1,8 @@
 ### SB 8.1.2
 
+> मन्वन्तरे हरेर्जन्म कर्माणि च महीयसः
+> गृणन्ति कवयो ब्रह्मंस्तानि नो वद शृण्वताम ॥२॥
+
 > manvantare harer janma
 > karmāṇi ca mahīyasaḥ
 > gṛṇanti kavayo brahmaṁs

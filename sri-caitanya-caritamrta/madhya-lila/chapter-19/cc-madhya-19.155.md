@@ -1,5 +1,8 @@
 ### CC Madhya 19.155
 
+> তাহাঁ বিস্তারিত হঞা ফলে প্রেম-ফল ।
+> ইহাঁ মালী সেচে নিত্য শ্রবণাদি জল ॥১৫৫॥
+
 > tāhāṅ vistārita hañā phale prema-phala
 > ihāṅ mālī sece nitya śravaṇādi jala
 

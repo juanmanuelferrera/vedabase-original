@@ -1,5 +1,8 @@
 ### SB 9.23.23
 
+> दुर्मदो भद्रसेनस्य धनकः कृतवीर्यसूः
+> कृताग्निः कृतवर्मा च कृतौजा धनकात्मजाः ॥२३॥
+
 > durmado bhadrasenasya
 > dhanakaḥ kṛtavīryasūḥ
 > kṛtāgniḥ kṛtavarmā ca

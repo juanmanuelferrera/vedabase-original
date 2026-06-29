@@ -1,5 +1,8 @@
 ### CC Madhya 14.57
 
+> আনন্দে করয়ে লোক ‘জয়’ ‘জয়’-ধ্বনি ।
+> ‘জয় জগন্নাথ’ বই আর নাহি শুনি ॥৫৭॥
+
 > ānande karaye loka 'jaya' 'jaya'-dhvani
 > 'jaya jagannātha' ba-i āra nāhi śuni
 

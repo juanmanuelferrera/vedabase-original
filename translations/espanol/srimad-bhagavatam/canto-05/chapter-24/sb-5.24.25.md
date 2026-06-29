@@ -1,5 +1,7 @@
 ### SB 5.24.25
 
+> यस्यानुदास्यमेवास्मत्पितामहः किल वव्रे न तु स्वपित्र्यं यदुताकुतोभयं पदंदीयमानं भगवतः परमिति भगवतोपरते खलु स्वपितरि ॥२५॥
+
 > yasyānudāsyam evāsmat-pitāmahaḥ kila vavre na tu sva-pitryaṁ yad utākutobhayaṁ padaṁ dīyamānaṁ bhagavataḥ param iti bhagavatoparate khalu sva-pitari.
 
 *yasya*—de quien (la Suprema Personalidad de Dios); *anudāsyam*—el servicio; *eva*—ciertamente; *asmat*—nuestro; *pitā-mahaḥ*—abuelo; *kila*—en verdad; *vavre*—aceptó; *na*—no; *tu*—pero; *sva*—propia; *pitryam*—propiedades paternas; *yat*—que; *uta*—ciertamente; *akutaḥ-bhayam*—ausencia de temor; *padam*—posición; *dīyamānam*—siendo ofrecida; *bhagavataḥ*—que la Suprema Personalidad de Dios; *param*—otra; *iti*—así; *bhagavatā*—por la Suprema Personalidad de Dios; *uparate*—cuando mató; *khalu*—en verdad; *sva-pitari*—a su propio padre.

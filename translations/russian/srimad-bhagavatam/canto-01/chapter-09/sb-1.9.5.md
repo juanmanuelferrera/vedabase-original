@@ -1,5 +1,8 @@
 ### SB 1.9.5
 
+> तत्र ब्रह्मर्षयः सर्वे देवर्षयश्च सत्तम ।
+> राजर्षयश्च तत्रासन्द्रष्टुं भरतपुङ्गवम् ॥५॥
+
 > tatra brahmarṣayaḥ sarve
 > devarṣayaś ca sattama
 > rājarṣayaś ca tatrāsan

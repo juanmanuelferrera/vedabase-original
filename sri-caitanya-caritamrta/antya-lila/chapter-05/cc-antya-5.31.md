@@ -1,5 +1,8 @@
 ### CC Antya 5.31
 
+> মিশ্র কহে, — “তোমা দেখিতে হৈল আগমনে ।
+> আপনা পবিত্র কৈলুঁ তোমার দরশনে ।।” ॥ ৩১ ॥
+
 > miśra kahe,—"tomā dekhite haila āgamane
 > āpanā pavitra kailuṅ tomāra daraśane"
 

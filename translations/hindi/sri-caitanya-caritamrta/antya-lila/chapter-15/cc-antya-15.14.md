@@ -1,5 +1,10 @@
 ### CC Antya 15.14
 
+> সৌন্দর্যামৃতসিন্ধুভঙ্গললনা-চিত্তাদ্রিসংপ্লাবকঃ
+> কর্ণানন্দি-সনর্মরম্যবচনঃ কোটীন্দুশীতাঙ্গকঃ ।
+> সৌরভ্যামৃতসংপ্লবাবৃতজগৎ পীযূষরম্যাধরঃ
+> শ্রীগোপেন্দ্রসুতঃ স কর্ষতি বলাৎ পঞ্চেন্দ্রিয়াণ্যালি মে ॥১৪॥
+
 > saundaryāmṛta-sindhu-bhaṅga-lalanā-cittādri-saṁplāvakaḥ
 > karṇānandi-sanarma-ramya-vacanaḥ koṭīndu-śītāṅgakaḥ
 > saurabhyāmṛta-samplavāvṛta-jagat pīyūṣa-ramyādharaḥ

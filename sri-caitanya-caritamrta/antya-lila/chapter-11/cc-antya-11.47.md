@@ -1,5 +1,8 @@
 ### CC Antya 11.47
 
+> প্রভু কহে, — ‘হরিদাস, কহ সমাচার’ ।
+> হরিদাস কহে, — ‘প্রভু, যে কৃপা তোমার’ ॥৪৭॥
+
 > prabhu kahe,—'haridāsa, kaha samācāra'
 > haridāsa kahe,—'prabhu, ye kṛpā tomāra'
 

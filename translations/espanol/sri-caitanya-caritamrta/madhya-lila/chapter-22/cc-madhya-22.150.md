@@ -1,5 +1,8 @@
 ### CC Madhya 22.150
 
+> ইষ্টে স্বারসিকী রাগঃ পরমাবিষ্টতা ভবেত্ ।
+> তন্ময়ী যা ভবেদ্ভক্তিঃ সাত্র রাগাত্মিকোদিতা ॥১৫০॥
+
 > iṣṭe svārasikī rāgaḥ
 > paramāviṣṭatā bhavet
 > tanmayī yā bhaved bhaktiḥ

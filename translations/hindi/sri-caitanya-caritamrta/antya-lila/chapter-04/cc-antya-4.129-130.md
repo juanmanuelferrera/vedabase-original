@@ -1,5 +1,10 @@
 ### CC Antya 4.129-130
 
+> “যদ্যপিও তুমি হও জগৎপাবন ।
+> তোমা-স্পর্শে পবিত্র হয় দেব-মুনিগণ ॥১২৯॥
+> তথাপি ভক্ত-স্বভাব — মর্যাদা-রক্ষণ ।
+> মর্যাদা-পালন হয় সাধুর ভূষণ ॥১৩০॥
+
 > "yadyapio tumi hao jagat-pāvana
 > tomā-sparśe pavitra haya deva-muni-gaṇa
 > tathāpi bhakta-svabhāva--maryādā-rakṣaṇa

@@ -1,5 +1,8 @@
 ### CC Antya 4.210
 
+> যে-পথে, যে-গ্রাম-নদী-শৈল, যাহাঁ যেই লীলা ।
+> বলভদ্রভট্ট-স্থানে সব লিখি’ নিলা ॥২১০॥
+
 > ye-pathe, ye-grāma-nadī-śaila, yāhāṅ yei līlā
 > balabhadra-bhaṭṭa-sthāne saba likhi' nilā
 

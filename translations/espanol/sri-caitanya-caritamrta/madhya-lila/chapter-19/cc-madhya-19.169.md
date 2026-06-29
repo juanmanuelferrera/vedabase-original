@@ -1,5 +1,8 @@
 ### CC Madhya 19.169
 
+> এই ‘শুদ্ধভক্তি’ — ইহা হৈতে ‘প্রেমা’ হয় ।
+> পঞ্চরাত্রে, ভাগবতে এই লক্ষণ কয় ॥১৬৯॥
+
 > ei 'śuddha-bhakti'--ihā haite 'premā' haya
 > pañcarātre, bhāgavate ei lakṣaṇa kaya
 

@@ -1,5 +1,7 @@
 ### SB 5.24.3
 
+> तन्निशम्योभयत्रापि भगवता रक्षणाय प्रयुक्तं सुदर्शनं नाम भागवतंदयितमस्त्रं तत्तेजसा दुर्विषहं मुहुः परिवर्तमानमभ्यवस्थितो मुहूर्तमुद्विजमानश्चकितहृदय आरादेव निवर्तते तदुपरागमिति वदन्ति लोकाः ॥३॥
+
 > tan niśamyobhayatrāpi bhagavatā rakṣaṇāya prayuktaṁ sudarśanaṁ nāma bhāgavataṁ dayitam astraṁ tat tejasā durviṣahaṁ muhuḥ parivartamānam abhyavasthito muhūrtam udvijamānaś cakita-hṛdaya ārād eva nivartate tad uparāgam iti vadanti lokāḥ.
 
 *tat*—esa situación; *niśamya*—escuchar; *ubhayatra*—alrededor del Sol y de la Luna; *api*—en verdad; *bhagavatā*—por la Suprema Personalidad de Dios; *rakṣaṇāya*—para su protección; *prayuktam*—ocupada; *sudarśanam*—la rueda de Kṛṣṇa; *nāma*—llamada; *bhāgavatam*—el devoto más íntimo; *dayitam*—la favorita; *astram*—arma; *tat*—esa; *tejasā*—por su refulgencia; *durviṣaham*—calor insoportable; *muhuḥ*—repetidamente; *parivartamānam*—girando alrededor del Sol y de la Luna; *abhyavasthitaḥ*—situado; *muhūrtam*—durante un *muhūrta* (cuarenta y ocho minutos); *udvijamānaḥ*—cuya mente estaba llena de ansiedades; *cakita*—aterrorizado; *hṛdayaḥ*—lo más hondo de cuyo corazón; *ārāt*—a un lugar distante; *eva*—ciertamente; *nivartate*—huye; *tat*—esa situación; *uparāgam*—un eclipse; *iti*—así; *vadanti*—ellos dicen; *lokāḥ*—la gente.

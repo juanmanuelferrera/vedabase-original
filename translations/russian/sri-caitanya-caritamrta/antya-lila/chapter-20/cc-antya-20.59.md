@@ -1,5 +1,10 @@
 ### CC Antya 20.59
 
+> মোর সুখ — সেবনে, কৃষ্ণের সুখ — সঙ্গমে,
+> অতএব দেহ দেঙ দান ।
+> কৃষ্ণ মোরে ‘কান্তা’ করি’, কহে মোরে ‘প্রাণেশ্বরি’,
+> মোর হয় ‘দাসী’-অভিমান ॥৫৯॥
+
 > mora sukha—sevane, kṛṣṇera sukha—saṅgame,
 > ataeva deha deṅa dāna
 > kṛṣṇa more 'kāntā' kari', kahe more 'prāṇeśvari',

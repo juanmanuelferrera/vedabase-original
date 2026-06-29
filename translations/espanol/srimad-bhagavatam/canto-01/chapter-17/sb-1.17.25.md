@@ -1,5 +1,8 @@
 ### SB 1.17.25
 
+> इदानीं धर्म पादस्ते सत्यं निर्वर्तयेद्यतः ।
+> तं जिघृक्षत्यधर्मोऽयमनृतेनैधितः कलिः ॥२५॥
+
 > idānīṁ dharma pādas te
 > satyaṁ nirvartayed yataḥ
 > taṁ jighṛkṣaty adharmo 'yam

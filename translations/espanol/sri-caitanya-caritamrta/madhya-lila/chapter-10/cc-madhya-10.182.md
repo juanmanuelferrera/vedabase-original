@@ -1,5 +1,8 @@
 ### CC Madhya 10.182
 
+> প্রভু কহে, — ‘বিষ্ণু’ ‘বিষ্ণু’, কি কহ সার্বভৌম ৷
+> ‘অতিস্তুতি’ হয় এই নিন্দার লক্ষণ ৷৷ ১৮২ ৷৷ ॥১৮২॥
+
 > prabhu kahe,-'viṣṇu' 'viṣṇu', ki kaha sārvabhauma
 > 'ati-stuti' haya ei nindāra lakṣaṇa
 

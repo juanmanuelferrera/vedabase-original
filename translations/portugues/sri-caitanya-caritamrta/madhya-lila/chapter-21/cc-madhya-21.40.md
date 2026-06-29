@@ -1,5 +1,8 @@
 ### CC Madhya 21.40
 
+> এই তিন — সর্বাশ্রয়, জগৎ-ঈশ্বর ।
+> এহো সব কলা-অংশ, কৃষ্ণ — অধীশ্বর ॥৪০॥
+
 ei tina--sarvāśraya, jagat-īśvara
 
 eho saba kalā-aṁśa, kṛṣṇa--adhīśvara

@@ -1,5 +1,8 @@
 ### CC Antya 6.305
 
+> তবে অষ্ট-কৌড়ির খাজা করে সমর্পণ ।
+> স্বরূপ-আজ্ঞায় গোবিন্দ তাহা করে সমাধান ॥৩০৫॥
+
 tabe aṣṭa-kauḍira khājā kare samarpaṇa
 
 svarūpa-ājñāya govinda tāhā kare samādhāna

@@ -1,5 +1,8 @@
 ### CC Adi 14.44
 
+> তবে শচী কোলে করি’ করাইল সন্তোষ ।
+> লজ্জিত হইলা প্রভু জানি’ নিজ-দোষ ॥৪৪॥
+
 tabe śacī kole kari' karāila santoṣa
 
 lajjita ha-ilā prabhu jāni' nija-doṣa

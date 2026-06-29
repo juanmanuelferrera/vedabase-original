@@ -1,5 +1,8 @@
 ### SB 9.24.2
 
+> रोमपादसुतो बभ्रुर्बभ्रोः कृतिरजायत
+> उशिकस्तत्सुतस्तस्माच्चेदिश्चैद्यादयो नृपाः ॥२॥
+
 > romapāda-suto babhrur
 > babhroḥ kṛtir ajāyata
 > uśikas tat-sutas tasmāc

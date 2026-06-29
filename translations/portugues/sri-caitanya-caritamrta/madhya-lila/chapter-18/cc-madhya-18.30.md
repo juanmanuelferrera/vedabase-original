@@ -1,5 +1,8 @@
 ### CC Madhya 18.30
 
+> বিপ্রগৃহে গোপালের নিভৃতে সেবন ।
+> গ্রাম উজাড় হৈল, পলাইল সর্বজন ॥৩০॥
+
 vipra-gṛhe gopālera nibhṛte sevana
 
 grāma ujāḍa haila, palāila sarva-jana

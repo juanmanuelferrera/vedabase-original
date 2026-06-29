@@ -1,5 +1,8 @@
 ### CC Madhya 5.22
 
+> মহাকুলীন তুমি — বিদ্যা-ধনাদি-প্রবীণ ।
+> আমি অকুলীন, আর ধন-বিদ্যা-হীন ॥২২॥
+
 mahā-kulīna tumi--vidyā-dhanādi-pravīṇa
 
 āmi akulīna, āra dhana-vidyā-hīna

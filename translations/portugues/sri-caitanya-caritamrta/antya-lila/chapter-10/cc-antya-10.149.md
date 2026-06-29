@@ -1,5 +1,8 @@
 ### CC Antya 10.149
 
+> দধি, লেম্বু, আদা, আর ফুলবড়া, লবণ ।
+> সামগ্রী দেখিয়া প্রভুর প্রসন্ন হৈল মন ॥১৪৯॥
+
 dadhi, lembu, ādā, āra phula-baḍā, lavaṇa
 
 sāmagrī dekhiyā prabhura prasanna haila mana

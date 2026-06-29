@@ -1,5 +1,8 @@
 ### CC Madhya 20.207
 
+> এই চব্বিশ মূর্তি — প্রাভব-বিলাস প্রধান ।
+> অস্ত্রধারণ-ভেদে ধরে ভিন্ন ভিন্ন নাম ॥২০৭॥
+
 > ei cabbiśa mūrti—prābhava-vilāsa pradhāna
 > astra-dhāraṇa-bhede dhare bhinna bhinna nāma
 

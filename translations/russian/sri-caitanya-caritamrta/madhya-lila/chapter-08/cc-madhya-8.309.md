@@ -1,5 +1,8 @@
 ### CC Madhya 8.309
 
+> অলৌকিক লীলা এই পরম নিগূঢ় ।
+> বিশ্বাসে পাইয়ে, তর্কে হয় বহুদূর ॥৩০৯॥
+
 > alaukika līlā ei parama nigūḍha
 > viśvāse pāiye, tarke haya bahu-dūra
 

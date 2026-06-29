@@ -1,5 +1,8 @@
 ### CC Adi 16.8
 
+> কত দিনে কৈল প্রভু বঙ্গেতে গমন ।
+> যাহাঁ যায়, তাহাঁ লওয়ায় নাম-সংকীর্তন ॥৮॥
+
 > kata dine kaila prabhu baṅgete gamana
 > yāhāṅ yāya, tāhāṅ laoyāya nāma-saṅkīrtana
 

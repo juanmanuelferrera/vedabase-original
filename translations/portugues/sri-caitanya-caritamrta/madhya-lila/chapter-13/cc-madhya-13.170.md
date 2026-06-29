@@ -1,5 +1,8 @@
 ### CC Madhya 13.170
 
+> প্রভুর হৃদয়ে আনন্দসিন্ধু উথলিল ।
+> উন্মাদ, ঝঞ্ঝা-বাত তত্ক্ষণে উঠিল ॥১৭০॥
+
 prabhura hṛdaye ānanda-sindhu uthalila
 
 unmāda, jhañjhā-vāta tat-kṣaṇe uṭhila

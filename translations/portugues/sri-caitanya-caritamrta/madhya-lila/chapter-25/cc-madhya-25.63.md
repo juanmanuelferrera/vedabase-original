@@ -1,5 +1,8 @@
 ### CC Madhya 25.63
 
+> শেখর, পরমানন্দ, তপন, সনাতন ।
+> চারিজন মিলি’ করে নাম-সংকীর্তন ॥৬৩॥
+
 śekhara, paramānanda, tapana, sanātana
 
 cāri-jana mili' kare nāma-saṅkīrtana

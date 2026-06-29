@@ -1,5 +1,8 @@
 ### CC Adi 10.43
 
+> হরিদাসঠাকুর শাখার অদ্ভুত চরিত ।
+> তিন লক্ষ নাম তেঁহো লয়েন অপতিত ॥৪৩॥
+
 haridāsa-ṭhākura śākhāra adbhuta carita
 
 tina lakṣa nāma teṅho layena apatita

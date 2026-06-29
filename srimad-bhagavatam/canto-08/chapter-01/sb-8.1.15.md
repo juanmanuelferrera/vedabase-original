@@ -1,5 +1,8 @@
 ### SB 8.1.15
 
+> ईहते भगवानीशो न हि तत्र विसज्जते
+> आत्मलाभेन पूर्णार्थो नावसीदन्ति येऽनु तम ॥१५॥
+
 > īhate bhagavān īśo
 > na hi tatra visajjate
 > ātma-lābhena pūrṇārtho

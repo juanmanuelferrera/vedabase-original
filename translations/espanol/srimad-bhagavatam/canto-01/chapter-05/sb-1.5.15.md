@@ -1,5 +1,8 @@
 ### SB 1.5.15
 
+> जुगुप्सितं धर्मकृतेऽनुशासतः स्वभावरक्तस्य महान्व्यतिक्रमः ।
+> यद्वाक्यतो धर्म इतीतरः स्थितो न मन्यते तस्य निवारणं जनः ॥१५॥
+
 > jugupsitaṁ dharma-kṛte 'nuśāsataḥ
 > svabhāva-raktasya mahān vyatikramaḥ
 > yad-vākyato dharma itītaraḥ sthito

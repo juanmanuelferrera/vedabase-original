@@ -1,5 +1,8 @@
 ### CC Madhya 9.177
 
+> তাঁর সঙ্গে মহাপ্রভু করি ইষ্টগোষ্ঠী ।
+> তাঁর আজ্ঞা লঞা আইলা পুরী কামকোষ্ঠী ॥১৭৭॥
+
 > tāṅra saṅge mahāprabhu kari iṣṭagoṣṭhī
 > tāṅra ājñā lañā āilā purī kāmakoṣṭhī
 

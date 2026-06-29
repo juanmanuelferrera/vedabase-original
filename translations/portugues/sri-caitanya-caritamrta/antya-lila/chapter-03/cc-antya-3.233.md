@@ -1,5 +1,8 @@
 ### CC Antya 3.233
 
+> তাঁর অঙ্গ-গন্ধে দশ দিক্ আমোদিত ।
+> ভূষণ-ধ্বনিতে কর্ণ হয় চমকিত ॥২৩৩॥
+
 tāṅra aṅga-gandhe daśa dik āmodita
 
 bhūṣaṇa-dhvanite karṇa haya camakita

@@ -1,5 +1,8 @@
 ### CC Antya 6.229
 
+> “কি লাগি’ ছাড়াইলা ঘর, না জানি উদ্দেশ ।
+> কি মোর কর্তব্য, প্রভু কর উপদেশ ।।” ॥ ২২৯ ॥
+
 "ki lāgi' chāḍāilā ghara, nā jāni uddeśa
 
 ki mora kartavya, prabhu kara upadeśa"

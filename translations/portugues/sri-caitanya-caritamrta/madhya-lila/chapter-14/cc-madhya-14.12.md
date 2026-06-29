@@ -1,5 +1,8 @@
 ### CC Madhya 14.12
 
+> এত বলি’ সেই শ্লোক পড়ে বার বার ।
+> দুইজনার অঙ্গে কম্প, নেত্রে জলধার ॥১২॥
+
 eta bali' sei śloka paḍe bāra bāra
 dui-janāra aṅge kampa, netre jala-dhāra
 

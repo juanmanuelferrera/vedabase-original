@@ -1,5 +1,8 @@
 ### CC Antya 5.66
 
+> সেবক কহিল, — ‘দিন হৈল অবসান’ ।
+> তবে রায় কৃষ্ণকথার করিলা বিশ্রাম ॥৬৬॥
+
 > sevaka kahila,--'dina haila avasāna'
 > tabe rāya kṛṣṇa-kathāra karilā viśrāma
 

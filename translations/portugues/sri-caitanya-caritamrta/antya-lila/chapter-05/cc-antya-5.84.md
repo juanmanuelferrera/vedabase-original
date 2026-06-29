@@ -1,5 +1,8 @@
 ### CC Antya 5.84
 
+> সন্ন্যাসী পণ্ডিতগণের করিতে গর্বনাশ ।
+> নীচ-শূদ্র-দ্বারা করেন ধর্মের প্রকাশ ॥৮৪॥
+
 sannyāsī paṇḍita-gaṇera karite garva nāśa
 
 nīca-śūdra-dvārā karena dharmera prakāśa

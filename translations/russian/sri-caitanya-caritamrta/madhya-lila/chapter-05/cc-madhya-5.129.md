@@ -1,5 +1,8 @@
 ### CC Madhya 5.129
 
+> “বাল্যকালে মাতা মোর নাসা ছিদ্র করি’ ।
+> মুক্তা পরাঞাছিল বহু যত্ন করি’ ॥১২৯॥
+
 > "bālya-kāle mātā mora nāsā chidra kari'
 > muktā parāñāchila bahu yatna kari'
 

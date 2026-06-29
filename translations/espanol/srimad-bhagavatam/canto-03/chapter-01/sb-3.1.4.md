@@ -1,5 +1,8 @@
 ### SB 3.1.4
 
+> न ह्यल्पार्थोदयस्तस्य विदुरस्यामलात्मनः ।
+> तस्मिन्वरीयसि प्रश्नः साधुवादोपबृंहितः ॥४॥
+
 > na hy alpārthodayas tasya
 > vidurasyāmalātmanaḥ
 > tasmin varīyasi praśnaḥ

@@ -1,5 +1,8 @@
 ### SB 2.7.52
 
+> यथा हरौ भगवति नृणां भक्तिर्भविष्यति ।
+> सर्वात्मन्यखिलाधारे इति सङ्कल्प्य वर्णय ॥५२॥
+
 > yathā harau bhagavati
 > nṛṇāṁ bhaktir bhaviṣyati
 > sarvātmany akhilādhāre

@@ -1,5 +1,10 @@
 ### SB 3.31.20
 
+> सोऽहं वसन्नपि विभो बहुदुःखवासं
+> गर्भान्न निर्जिगमिषे बहिरन्धकूपे ।
+> यत्रोपयातमुपसर्पति देवमाया
+> मिथ्या मतिर्यदनु संसृतिचक्रमेतत् ॥२०॥
+
 > so 'haṁ vasann api vibho bahu-duḥkha-vāsaṁ
 > garbhān na nirjigamiṣe bahir andha-kūpe
 > yatropayātam upasarpati deva-māyā

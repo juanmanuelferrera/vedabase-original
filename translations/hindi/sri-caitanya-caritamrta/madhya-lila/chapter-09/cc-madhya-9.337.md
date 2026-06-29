@@ -1,5 +1,8 @@
 ### CC Madhya 9.337
 
+> যাহাঁ যায়, লোক উঠে হরিধ্বনি করি’ ।
+> দেখি’ আনন্দিত-মন হৈলা গৌরহরি ॥৩৩৭॥
+
 > yāhāṅ yāya, loka uṭhe hari-dhvani kari'
 > dekhi' ānandita-mana hailā gaurahari
 

@@ -1,5 +1,8 @@
 ### CC Madhya 3.130
 
+> ‘বল্’ ‘বল্’ বলে, নাচে, আনন্দে বিহ্বল ।
+> বুঝন না যায় ভাব-তরঙ্গ প্রবল ॥১৩০॥
+
 > 'bal' 'bal' bale, nāce, ānande vihvala
 > bujhana nā yāya bhāva-taraṅga prabala
 

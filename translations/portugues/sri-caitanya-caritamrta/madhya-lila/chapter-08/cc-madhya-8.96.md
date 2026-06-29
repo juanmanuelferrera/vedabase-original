@@ -1,5 +1,8 @@
 ### CC Madhya 8.96
 
+> প্রভু কহে, এই — ‘সাধ্যাবধি’ সুনিশ্চয় ৷
+> কৃপা করি’ কহ, যদি আগে কিছু হয় ৷৷ ৯৬ ৷৷ ॥৯৬॥
+
 prabhu kahe,--ei 'sādhyāvadhi' suniścaya
 kṛpā kari' kaha, yadi āge kichu haya
 

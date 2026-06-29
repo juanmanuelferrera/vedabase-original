@@ -1,5 +1,8 @@
 ### CC Madhya 15.174
 
+> তৈছে এক ব্রহ্মাণ্ড যদি মুক্ত হয় ৷
+> তবু অল্প-হানি কৃষ্ণের মনে নাহি লয় ॥১৭৪॥
+
 taiche eka brahmāṇḍa yadi mukta haya
 
 tabu alpa-hāni kṛṣṇera mane nāhi laya

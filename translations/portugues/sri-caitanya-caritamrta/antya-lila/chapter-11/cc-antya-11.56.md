@@ -1,5 +1,8 @@
 ### CC Antya 11.56
 
+> ‘শ্রীকৃষ্ণচৈতন্য’-শব্দ করিতে উচ্চারণ ।
+> নামের সহিত প্রাণ কৈল উৎক্রামণ ॥৫৬॥
+
 'śrī-kṛṣṇa-caitanya' śabda karite uccāraṇa
 
 nāmera sahita prāṇa kaila utkrāmaṇa

@@ -1,5 +1,8 @@
 ### CC Madhya 19.164
 
+> এইত পরম-ফল ‘পরম-পুরুষার্থ’ ।
+> যাঁর আগে তৃণ-তুল্য চারি পুরুষার্থ ॥১৬৪॥
+
 eita parama-phala 'parama-puruṣārtha'
 
 yāṅra āge tṛṇa-tulya cāri puruṣārtha

@@ -1,5 +1,8 @@
 ### CC Antya 6.9
 
+> সুবল যৈছে পূর্বে কৃষ্ণসুখের সহায় ।
+> গৌরসুখদান-হেতু তৈছে রাম-রায় ॥৯॥
+
 > subala yaiche pūrve kṛṣṇa-sukhera sahāya
 > gaura-sukha-dāna-hetu taiche rāma-rāya
 

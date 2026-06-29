@@ -1,5 +1,8 @@
 ### CC Madhya 25.206
 
+> দুঃখী বৈষ্ণব দেখি’ তাঁরে করান ভোজন ।
+> গৌড়ীয়া আইলে দধি, ভাত, তৈল-মর্দন ॥২০৬॥
+
 duḥkhī vaiṣṇava dekhi' tāṅre karāna bhojana
 
 gauḍīyā āile dadhi, bhāta, taila-mardana

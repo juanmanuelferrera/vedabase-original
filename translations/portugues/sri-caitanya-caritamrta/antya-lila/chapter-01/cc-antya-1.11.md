@@ -1,5 +1,8 @@
 ### CC Antya 1.11
 
+> আমি জরাগ্রস্ত, নিকটে জানিয়া মরণ ।
+> অন্ত্য কোনো কোনো লীলা করিয়াছি বর্ণন ॥১১॥
+
 āmi jarā-grasta, nikaṭe jāniyā maraṇa
 antya kono kono līlā kariyāchi varṇana
 

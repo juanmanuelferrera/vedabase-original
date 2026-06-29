@@ -1,5 +1,8 @@
 ### CC Adi 11.6
 
+> মালাকারের ইচ্ছা-জলে বাড়ে শাখাগণ ।
+> প্রেম-ফুল-ফলে ভরি’ ছাইল ভুবন ॥৬॥
+
 > mālākarera icchā jale bāḍe śākhā-gaṇa
 > prema-phula-phale bhari' chāila bhuvana
 

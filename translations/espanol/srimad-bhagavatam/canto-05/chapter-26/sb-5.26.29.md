@@ -1,5 +1,7 @@
 ### SB 5.26.29
 
+> यस्त्विह वै विप्रो राजन्यो वैश्यो वा सोमपीथस्तत्कलत्रं वा सुरां व्रतस्थोऽपि वा पिबतिप्रमादतस्तेषां निरयं नीतानामुरसि पदाक्रम्यास्ये वह्निना द्रवमाणं कार्ष्णायसं निषिञ्चन्ति ॥२८॥
+
 > yas tv iha vai vipro rājanyo vaiśyo vā soma-pīthas tat-kalatraṁ vā surāṁ vrata-stho 'pi vā pibati pramādatas teṣāṁ nirayaṁ nītānām urasi padākramyāsye vahninā dravamāṇaṁ kārṣṇāyasaṁ niṣiñcanti.
 
 *yaḥ*—todo el que; *tu*—pero; *iha*—en esta vida; *vai*—en verdad; *vipraḥ*—un *brāhmaṇa* erudito; *rājanyaḥ*—un *kṣatriya*; *vaiśyaḥ*—un *vaiśya*; *vā*—o; *soma-pīthaḥ*—beber *soma-rasa*; *tat*—su; *kalatram*—esposa; *vā*—o; *surām*—alcohol; *vrata-sthaḥ*—que está sometido a un voto; *api*—ciertamente; *vā*—o; *pibati*—bebe; *pramādataḥ*—debido a la ilusión; *teṣām*—de todos ellos; *nirayam*—al infierno; *nītānām*—llevados; *urasi*—sobre el pecho; *padā*—con el pie; *ākramya*—pisando; *asye*—en la boca; *vahninā*—con fuego; *dravamāṇam*—fundido; *kārṣṇāyasam*—hierro; *niṣiñcanti*—vierten en.

@@ -1,5 +1,8 @@
 ### CC Antya 5.85
 
+> ‘ভক্তি’, ‘প্রেম’, ‘তত্ত্ব’ কহে রায়ে করি’ ‘বক্তা’ ।
+> আপনি প্রদ্যুম্নমিশ্র-সহ হয় ‘শ্রোতা’ ॥৮৫॥
+
 > 'bhakti', 'prema', 'tattva' kahe rāye kari' 'vaktā'
 > āpani pradyumna-miśra-saha haya 'śrotā'
 

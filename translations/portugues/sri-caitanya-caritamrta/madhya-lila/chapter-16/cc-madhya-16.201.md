@@ -1,5 +1,8 @@
 ### CC Madhya 16.201
 
+> অলৌকিক লীলা করে শ্রীকৃষ্ণচৈতন্য ।
+> যেই ইহা শুনে তাঁর জন্ম, দেহ ধন্য ॥২০১॥
+
 alaukika līlā kare śrī-kṛṣṇa-caitanya
 
 yei ihā śune tāṅra janma, deha dhanya

@@ -1,5 +1,8 @@
 ### CC Madhya 7.141
 
+> প্রভু-স্পর্শে দুঃখ-সঙ্গে কুষ্ঠ দূরে গেল ।
+> আনন্দ সহিতে অঙ্গ সুন্দর হইল ॥১৪১॥
+
 > prabhu-sparśe duḥkha-saṅge kuṣṭha dūre gela
 > ānanda sahite aṅga sundara ha-ila
 

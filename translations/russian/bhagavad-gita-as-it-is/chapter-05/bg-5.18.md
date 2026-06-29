@@ -1,5 +1,8 @@
 ### Bg 5.18
 
+> विद्याविनयसम्पन्ने ब्राह्मणे गवि हस्तिनि ।
+> शुनि चैव श्वपाके च पण्डिताः समदर्शिनः ॥१८॥
+
 > vidyā-vinaya-sampanne
 > brāhmaṇe gavi hastini
 > śuni caiva śva-pāke ca

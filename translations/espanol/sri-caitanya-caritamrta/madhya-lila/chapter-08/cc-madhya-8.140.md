@@ -1,5 +1,8 @@
 ### CC Madhya 8.140
 
+> তাসামাবিরভূচ্ছৌরিঃ স্ময়মানমুখাম্বুজঃ ৷
+> পীতাম্বরধরঃ স্রগ্বী সাক্ষান্মন্মথ-মন্মথঃ ৷৷ ১৪০ ৷৷ ॥১৪০॥
+
 > tāsām āvirabhūc chauriḥ
 > smayamāna-mukhāmbujaḥ
 > pītāmbara-dharaḥ sragvī

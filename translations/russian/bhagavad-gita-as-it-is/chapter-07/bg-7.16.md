@@ -1,5 +1,8 @@
 ### Bg 7.16
 
+> चतुर्विधा भजन्ते मां जनाः सुकृतिनोऽर्जुन ।
+> आर्तो जिज्ञासुरर्थार्थी ज्ञानी च भरतर्षभ ॥१६॥
+
 > catur-vidhā bhajante māṁ
 > janāḥ sukṛtino 'rjuna
 > ārto jijñāsur arthārthī

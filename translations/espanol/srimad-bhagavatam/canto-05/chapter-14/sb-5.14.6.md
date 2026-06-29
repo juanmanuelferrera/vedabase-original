@@ -1,5 +1,7 @@
 ### SB 5.14.6
 
+> तत्र च क्वचिदातपोदकनिभान्विषयानुपधावति पानभोजनव्यवायादिव्यसनलोलुपः ॥६॥
+
 > tatra ca kvacid ātapodaka-nibhān viṣayān upadhāvati pāna-bhojana-vyavāyādi-vyasana-lolupaḥ.
 
 *tatra*—allí (en ese lugar ilusorio); *ca*—también; *kvacit*—a veces; *ātapa-udaka-nibhān*—como el agua de un espejismo en el desierto; *viṣayān*—los objetos del disfrute de los sentidos; *upadhāvati*—corre tras; *pāna*—para beber; *bhojana*—para comer; *vyavāya*—para tener relaciones sexuales; *ādi*—etc.; *vyasana*—con adicción; *lolupaḥ*—un libertino.

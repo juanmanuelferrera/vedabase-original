@@ -1,5 +1,8 @@
 ### SB 9.1.18
 
+> यूयं ब्रह्मविदो युक्तास्तपसा दग्धकिल्बिषाः
+> कुतः सङ्कल्पवैषम्यमनृतं विबुधेष्विव ॥१८॥
+
 > yūyaṁ brahma-vido yuktās
 > tapasā dagdha-kilbiṣāḥ
 > kutaḥ saṅkalpa-vaiṣamyam

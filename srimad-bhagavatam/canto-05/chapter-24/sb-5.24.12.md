@@ -1,5 +1,7 @@
 ### SB 5.24.12
 
+> यत्र हि महाहिप्रवरशिरोमणयः सर्वं तमः प्रबाधन्ते ॥१२॥
+
 > yatra hi mahāhi-pravara-śiro-maṇayaḥ sarvaṁ tamaḥ prabādhante.
 
 *yatra*—where; *hi*—indeed; *mahā-ahi*—of great serpents; *pravara*—of the best; *śiraḥ-maṇayaḥ*—the gems on the hoods; *sarvam*—all; *tamaḥ*—darkness; *prabādhante*—drive away.

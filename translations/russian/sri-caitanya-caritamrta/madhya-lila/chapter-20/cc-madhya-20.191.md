@@ -1,5 +1,8 @@
 ### CC Madhya 20.191
 
+> এই চারি হৈতে চব্বিশ মূর্তি পরকাশ ।
+> অস্ত্রভেদে নাম-ভেদ — বৈভববিলাস ॥১৯১॥
+
 > ei cāri haite cabbiśa mūrti parakāśa
 > astra-bhede nāma-bheda—vaibhava-vilāsa
 

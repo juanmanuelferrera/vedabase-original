@@ -1,5 +1,8 @@
 ### CC Adi 4.186
 
+> গোপীগণ করে যবে কৃষ্ণ-দরশন ।
+> সুখবাঞ্ছা নাহি, সুখ হয় কোটিগুণ ॥১৮৬॥
+
 gopī-gaṇa kare yabe kṛṣṇa-daraśana
 sukha-vāñchā nāhi, sukha haya koṭi-guṇa
 

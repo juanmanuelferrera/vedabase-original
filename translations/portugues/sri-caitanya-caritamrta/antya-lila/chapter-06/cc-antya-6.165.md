@@ -1,5 +1,8 @@
 ### CC Antya 6.165
 
+> রঘুনাথে কহে, — “তারে করহ সাধন ।
+> সেবা যেন করে, আর নাহিক ব্রাহ্মণ ।।” ॥ ১৬৫ ॥
+
 raghunāthe kahe,--"tāre karaha sādhana
 
 sevā yena kare, āra nāhika brāhmaṇa"

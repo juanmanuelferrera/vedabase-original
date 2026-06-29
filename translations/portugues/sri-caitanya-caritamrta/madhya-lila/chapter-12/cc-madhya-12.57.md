@@ -1,5 +1,8 @@
 ### CC Madhya 12.57
 
+> তবে রায় যাই’ সব রাজারে কহিলা ।
+> প্রভুর আজ্ঞায় তাঁর পুত্র লঞা আইলা ॥৫৭॥
+
 tabe rāya yāi' saba rājāre kahilā
 
 prabhura ājñāya tāṅra putra lañā āilā

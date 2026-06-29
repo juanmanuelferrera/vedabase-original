@@ -1,5 +1,8 @@
 ### CC Antya 14.61
 
+> চিন্তিত হইল সবে প্রভুরে না দেখিয়া ।
+> প্রভু চাহি’ বুলে সবে দেউটী জ্বালিয়া ॥৬১॥
+
 cintita ha-ila sabe prabhure nā dekhiyā
 
 prabhu cāhi' bule sabe deuṭī jvāliyā

@@ -1,5 +1,8 @@
 ### CC Madhya 17.26
 
+> পালে-পালে ব্যাঘ্র, হস্তী, গণ্ডার, শূকরগণ ।
+> তার মধ্যে আবেশে প্রভু করিলা গমন ॥২৬॥
+
 > pāle-pāle vyāghra, hastī, gaṇḍāra, śūkara-gaṇa
 > tāra madhye āveśe prabhu karilā gamana
 

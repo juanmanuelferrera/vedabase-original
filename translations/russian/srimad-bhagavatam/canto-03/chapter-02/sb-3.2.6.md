@@ -1,5 +1,8 @@
 ### SB 3.2.6
 
+> शनकैर्भगवल्लोकान्नृलोकं पुनरागतः ।
+> विमृज्य नेत्रे विदुरं प्रीत्याहोद्धव उत्स्मयन् ॥६॥
+
 > śanakair bhagaval-lokān
 > nṛlokaṁ punar āgataḥ
 > vimṛjya netre viduraṁ

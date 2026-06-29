@@ -1,5 +1,8 @@
 ### CC Madhya 8.121
 
+> রায় কহে, — ইহা আমি কিছুই না জানি ৷
+> তুমি যেই কহাও, সেই কহি আমি বাণী ৷৷ ১২১ ৷৷ ॥১২১॥
+
 rāya kahe,--ihā āmi kichui nā jāni
 tumi yei kahāo, sei kahi āmi vāṇī
 

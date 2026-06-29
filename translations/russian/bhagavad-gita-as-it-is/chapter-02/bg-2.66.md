@@ -1,5 +1,8 @@
 ### Bg 2.66
 
+> नास्ति बुद्धिरयुक्तस्य न चायुक्तस्य भावना ।
+> न चाभावयतः शान्तिरशान्तस्य कुतः सुखम् ॥६६॥
+
 > nāsti buddhir ayuktasya
 > na cāyuktasya bhāvanā
 > na cābhāvayataḥ śāntir

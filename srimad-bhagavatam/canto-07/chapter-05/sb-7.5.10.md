@@ -1,5 +1,8 @@
 ### SB 7.5.10
 
+> बुद्धिभेदः परकृत उताहो ते स्वतोऽभवत
+> भण्यतां श्रोतुकामानां गुरूणां कुलनन्दन ॥१०॥
+
 > buddhi-bhedaḥ para-kṛta
 > utāho te svato 'bhavat
 > bhaṇyatāṁ śrotu-kāmānāṁ

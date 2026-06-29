@@ -1,5 +1,8 @@
 ### CC Madhya 11.227
 
+> এক সম্প্রদায়ে নাচে নিত্যানন্দ-রায়ে ।
+> অদ্বৈত-আচার্য নাচে আর সম্প্রদায়ে ॥২২৭॥
+
 > eka sampradāye nāce nityānanda-rāye
 > advaita-ācārya nāce āra sampradāye
 

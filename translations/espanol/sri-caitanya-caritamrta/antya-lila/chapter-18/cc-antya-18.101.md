@@ -1,5 +1,10 @@
 ### CC Antya 18.101
 
+> পুনরপি কৈল স্নান, শুষ্কবস্ত্র পরিধান,
+> রত্ন-মন্দিরে কৈলা আগমন ।
+> বৃন্দা-কৃত সম্ভার, গন্ধপুষ্প-অলঙ্কার,
+> বন্যবেশ করিল রচন ॥১০১॥
+
 > punarapi kaila snāna, śuṣka-vastra paridhāna,
 > ratna-mandire kailā āgamana
 > vṛndā-kṛta sambhāra, gandha-puṣpa-alaṅkāra,

@@ -1,5 +1,8 @@
 ### SB 8.16.17
 
+> यथा तानि पुनः साधो प्रपद्येरन्ममात्मजाः
+> तथा विधेहि कल्याणं धिया कल्याणकृत्तम ॥१७॥
+
 > yathā tāni punaḥ sādho
 > prapadyeran mamātmajāḥ
 > tathā vidhehi kalyāṇaṁ

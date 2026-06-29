@@ -1,5 +1,8 @@
 ### CC Madhya 14.52
 
+> শুনি’ মহাপ্ৰভু আইলা নিজগণ লঞা ।
+> মত্তহস্তী রথ টানে, — দেখে দাণ্ডাঞা ॥৫২॥
+
 > śuni' mahāprabhu āilā nija-gaṇa lañā
 > matta-hastī ratha ṭāne,-dekhe dāṇḍāñā
 

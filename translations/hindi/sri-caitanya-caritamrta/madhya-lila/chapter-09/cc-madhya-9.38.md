@@ -1,5 +1,8 @@
 ### CC Madhya 9.38
 
+> তাঁরে কৃপা করি’ প্রভু চলিলা আর দিনে ।
+> বৃদ্ধকাশী আসি’ কৈল শিব-দরশনে ॥৩৮॥
+
 > tāṅre kṛpā kari' prabhu calilā āra dine
 > vṛddhakāśī āsi' kaila śiva-daraśane
 

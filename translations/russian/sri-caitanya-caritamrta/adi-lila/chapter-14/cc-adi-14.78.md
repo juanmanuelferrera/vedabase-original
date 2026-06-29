@@ -1,5 +1,8 @@
 ### CC Adi 14.78
 
+> চলিতে চরণে নূপুর বাজে ঝন্ঝন্ ।
+> শুনি’ চমকিত হৈল পিতা-মাতার মন ॥৭৮॥
+
 > calite caraṇe nūpura bāje jhanjhan
 > śuni' camakita haila pitā-mātāra mana
 

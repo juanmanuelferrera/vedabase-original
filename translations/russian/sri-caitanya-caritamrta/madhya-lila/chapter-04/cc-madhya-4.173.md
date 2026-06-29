@@ -1,5 +1,8 @@
 ### CC Madhya 4.173
 
+> যাঁর প্রেমে বশ হঞা প্রকট হইলা ।
+> সেবা অঙ্গীকার করি’ জগত তারিলা ॥১৭৩॥
+
 > yāṅra preme vaśa hañā prakaṭa ha-ilā
 > sevā aṅgīkāra kari' jagata tārilā
 

@@ -1,5 +1,8 @@
 ### SB 3.1.15
 
+> क एनमत्रोपजुहाव जिह्मं दास्याः सुतं यद्बलिनैव पुष्टः ।
+> तस्मिन्प्रतीपः परकृत्य आस्ते निर्वास्यतामाशु पुराच्छ्वसानः ॥१५॥
+
 > ka enam atropajuhāva jihmaṁ
 > dāsyāḥ sutaṁ yad-balinaiva puṣṭaḥ
 > tasmin pratīpaḥ parakṛtya āste

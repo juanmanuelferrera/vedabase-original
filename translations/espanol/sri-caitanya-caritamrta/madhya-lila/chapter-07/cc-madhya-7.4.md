@@ -1,5 +1,8 @@
 ### CC Madhya 7.4
 
+> মাঘ-শুক্লপক্ষে প্রভু করিল সন্ন্যাস ৷
+> ফাল্গুনে আসিয়া কৈল নীলাচলে বাস ৷৷ ৪ ৷৷ ॥৪॥
+
 > māgha-śukla-pakṣe prabhu karila sannyāsa
 > phālgune āsiyā kaila nīlācale vāsa
 

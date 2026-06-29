@@ -1,5 +1,8 @@
 ### SB 3.25.25
 
+> सतां प्रसङ्गान्मम वीर्यसंविदो भवन्ति हृत्कर्णरसायनाः कथाः ।
+> तज्जोषणादाश्वपवर्गवर्त्मनि श्रद्धा रतिर्भक्तिरनुक्रमिष्यति ॥२५॥
+
 > satāṁ prasaṅgān mama vīrya-saṁvido
 > bhavanti hṛt-karṇa-rasāyanāḥ kathāḥ
 > taj-joṣaṇād āśv apavarga-vartmani

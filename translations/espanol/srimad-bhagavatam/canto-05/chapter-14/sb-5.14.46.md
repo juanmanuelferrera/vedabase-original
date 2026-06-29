@@ -1,5 +1,7 @@
 ### SB 5.14.46
 
+> य इदं भागवतसभाजितावदातगुणकर्मणो राजर्षेर्भरतस्यानुचरितं स्वस्त्यअयनमायुष्यं धन्यं यशस्यं स्वर्ग्यापवर्ग्यं वानुशृणोत्याख्यास्यत्यभिनन्दति च सर्वा एवाशिषआत्मन आशास्ते न काञ्चन परत इति ॥४६॥
+
 > ya idaṁ bhāgavata-sabhājitāvadāta-guṇa-karmaṇo rājarṣer bharatasyānucaritaṁ svasty-ayanam āyuṣyaṁ dhanyaṁ yaśasyaṁ svargyāpavargyaṁ vānuśṛṇoty ākhyāsyaty abhinandati ca sarvā evāśiṣa ātmana āśāste na kāñcana parata iti.
 
 *yaḥ*—todo el que; *idam*—esta; *bhāgavata*—por devotos excelsos; *sabhājita*—muy adorada; *avadāta*—puras; *guṇa*—cuyas cualidades; *karmaṇaḥ*—y actividades; *rāja-ṛṣeḥ*—del gran rey santo; *bharatasya*—de Bharata Mahārāja; *anucaritam*—la narración; *svasti-ayanam*—la morada de lo auspicioso; *āyuṣyam*—que aumenta la duración de la vida; *dhanyam*—aumenta la fortuna; *yaśasyam*—otorga fama; *svargya*—da la elevación a los sistemas planetarios superiores (el objetivo de los *karmīs*); *apavargyam*—da la liberación del mundo material y nos capacita para fundirnos en el Supremo (el objetivo de los *jñānīs*); *vā*—o; *anuśṛṇoti*—que escucha siempre, siguiendo la senda del servicio devocional; *ākhyāsyati*—explica para beneficio de otros; *abhinandati*—glorifica las características de los devotos y del Señor Supremo; *ca*—y; *sarvāḥ*—todos; *eva*—ciertamente; *āśiṣaḥ*—bendiciones; *ātmanaḥ*—para sí mismo; *āśāste*—obtiene; *na*—no; *kāñcana*—nada; *parataḥ*—de nadie más; *iti*—así.

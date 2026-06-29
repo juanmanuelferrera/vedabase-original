@@ -1,5 +1,8 @@
 ### CC Antya 16.99
 
+> সামান্য ভাগ্য হৈতে তার প্রাপ্তি নাহি হয় ।
+> কৃষ্ণের যাঁতে পূর্ণকৃপা, সেই তাহা পায় ॥৯৯॥
+
 sāmānya bhāgya haite tāra prāpti nāhi haya
 
 kṛṣṇera yāṅte pūrṇa-kṛpā, sei tāhā pāya

@@ -1,5 +1,8 @@
 ### CC Antya 10.131
 
+> বৎসরেক তরে আর রাখিলা ধরিয়া ।
+> ভোজন-কালে স্বরূপ পরিবেশে খসাঞা ॥১৩১॥
+
 > vatsareka tare āra rākhilā dhariyā
 > bhojana-kāle svarūpa pariveśe khasāñā
 

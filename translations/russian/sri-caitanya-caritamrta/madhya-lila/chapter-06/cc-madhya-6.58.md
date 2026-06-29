@@ -1,5 +1,8 @@
 ### CC Madhya 6.58
 
+> “তুমি জগদ্গুরু — সর্বলোক-হিতকর্তা ।
+> বেদান্ত পড়াও, সন্ন্যাসীর উপকর্তা ॥৫৮॥
+
 > "tumi jagad-guru—sarvaloka-hita-kartā
 > vedānta paḍāo, sannyāsīra upakartā
 

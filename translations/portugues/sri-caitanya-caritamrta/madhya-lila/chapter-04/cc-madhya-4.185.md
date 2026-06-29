@@ -1,5 +1,8 @@
 ### CC Madhya 4.185
 
+> সঙ্গে এক বট নাহি ঘাটীদান দিতে ।
+> তথাপি উৎসাহ বড় চন্দন লঞা যাইতে ॥১৮৫॥
+
 saṅge eka vaṭa nāhi ghāṭī-dāna dite
 tathāpi utsāha baḍa candana lañā yāite
 

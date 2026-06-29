@@ -1,5 +1,8 @@
 ### CC Madhya 4.175
 
+> কর্পূর-চন্দন যাঁর অঙ্গে চড়াইল ।
+> আনন্দে পুরী-গোসাঞির প্রেম উথলিল ॥১৭৫॥
+
 > karpūra-candana yāṅra aṅge caḍāila
 > ānande purī-gosāñira prema uthalila
 

@@ -1,5 +1,8 @@
 ### CC Adi 4.63
 
+> হ্লাদিনী সন্ধিনী সম্বিত্ত্বয্যেকা সর্বসংস্থিতৌ ।
+> হ্লাদতাপকরী মিশ্রা ত্বয়ি নো গুণবর্জিতে ॥৬৩॥
+
 hlādinī sandhinī samvit
 tvayy ekā sarva-saṁsthitau
 hlāda-tāpa-karī miśrā

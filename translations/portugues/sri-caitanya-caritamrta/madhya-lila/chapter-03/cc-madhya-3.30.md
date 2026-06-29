@@ -1,5 +1,8 @@
 ### CC Madhya 3.30
 
+> হেন কালে আচার্য-গোসাঞি নৌকাতে চড়িঞা ।
+> আইল নূতন কৌপীন-বহির্বাস লঞা ॥৩০॥
+
 hena kāle ācārya-gosāñi naukāte caḍiñā
 
 āila nūtana kaupīna-bahirvāsa lañā

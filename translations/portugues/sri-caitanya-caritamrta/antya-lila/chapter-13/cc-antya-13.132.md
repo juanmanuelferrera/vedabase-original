@@ -1,5 +1,8 @@
 ### CC Antya 13.132
 
+> গ্রাম্যবার্তা না শুনে, না কহে জিহ্বায় ।
+> কৃষ্ণকথা-পূজাদিতে অষ্টপ্রহর যায় ॥১৩২॥
+
 grāmya-vārtā nā śune, nā kahe jihvāya
 
 kṛṣṇa-kathā-pūjādite aṣṭa-prahara yāya

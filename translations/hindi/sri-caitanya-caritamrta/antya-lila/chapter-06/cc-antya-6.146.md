@@ -1,5 +1,8 @@
 ### CC Antya 6.146
 
+> যুক্তি করি’ শত মুদ্রা, সোণা তোলা-সাতে ।
+> নিভৃতে দিলা প্রভুর ভাণ্ডারীর হাতে ॥১৪৬॥
+
 > yukti kari' śata mudrā, soṇā tolā-sāte
 > nibhṛte dilā prabhura bhāṇḍārīra hāte
 

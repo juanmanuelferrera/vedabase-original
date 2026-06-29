@@ -1,5 +1,8 @@
 ### CC Antya 13.20
 
+> তাতে শয়ন করেন প্রভু, — দেখি’ সবে সুখী ।
+> জগদানন্দ — ভিতরে ক্রোধ বাহিরে মহাদুঃখী ॥২০॥
+
 tāte śayana karena prabhu,--dekhi' sabe sukhī
 
 jagadānanda--bhitare krodha bāhire mahā-duḥkhī

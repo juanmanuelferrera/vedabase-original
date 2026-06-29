@@ -1,5 +1,8 @@
 ### CC Madhya 18.38
 
+> বামস্তামরসাক্ষস্য ভুজদণ্ডঃ স পাতু বঃ ।
+> ক্রীড়াকন্দুকতাং যেন নীতো গোবর্ধনো গিরিঃ ॥৩৮॥
+
 > vāmas tāmarasākṣasya
 > bhuja-daṇḍaḥ sa pātu vaḥ
 > krīḍā-kandukatāṁ yena

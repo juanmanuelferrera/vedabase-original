@@ -1,5 +1,8 @@
 ### CC Antya 15.91
 
+> ‘বল্’ ‘বল্’ প্রভু বলেন, ভক্তগণ শুনি’ ।
+> চৌদিকেতে সবে মেলি’ করে হরিধ্বনি ॥৯১॥
+
 > 'bal' 'bal' prabhu balena, bhakta-gaṇa śuni'
 > caudikete sabe meli' kare hari-dhvani
 

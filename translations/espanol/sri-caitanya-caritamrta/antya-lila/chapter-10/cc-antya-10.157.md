@@ -1,5 +1,8 @@
 ### CC Antya 10.157
 
+> চারিমাস রহি’ গৌড়ের ভক্তে বিদায় দিলা ।
+> নীলাচলের সঙ্গী ভক্ত সঙ্গেই রহিলা ॥১৫৭॥
+
 > cāri-māsa rahi' gauḍera bhakte vidāya dilā
 > nīlācalera saṅgī bhakta saṅgei rahilā
 

@@ -1,5 +1,8 @@
 ### CC Antya 7.126
 
+> “আমি অজ্ঞ জীব, — অজ্ঞোচিত কর্ম কৈলুঁ ।
+> তোমার আগে মূর্খ আমি পাণ্ডিত্য প্রকাশিলুঁ ॥১২৬॥
+
 > "āmi ajña jīva,--ajñocita karma kailuṅ
 > tomāra āge mūrkha āmi pāṇḍitya prakāśiluṅ
 

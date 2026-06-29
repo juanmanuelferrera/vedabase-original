@@ -1,5 +1,8 @@
 ### CC Antya 5.148
 
+> জগন্নাথ হন কৃষ্ণের ‘আত্মস্বরূপ’ ।
+> কিন্তু ইহাঁ দারুব্রহ্ম — স্থাবর-স্বরূপ ॥১৪৮॥
+
 > jagannātha hana kṛṣṇera 'ātma-svarupa'
 > kintu ihāṅ dāru-brahma--sthāvara-svarūpa
 

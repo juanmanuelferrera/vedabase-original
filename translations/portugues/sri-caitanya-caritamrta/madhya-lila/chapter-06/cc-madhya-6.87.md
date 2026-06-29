@@ -1,5 +1,8 @@
 ### CC Madhya 6.87
 
+> তোমার নাহিক দোষ, শাস্ত্রে এই কহে ।
+> পাণ্ডিত্যাদ্যে ঈশ্বরতত্ত্ব-জ্ঞান কভু নহে ।।’ ॥ ৮৭ ॥
+
 tomāra nāhika doṣa, śāstre ei kahe
 
 pāṇḍityādye īśvara-tattva-jñāna kabhu nahe'

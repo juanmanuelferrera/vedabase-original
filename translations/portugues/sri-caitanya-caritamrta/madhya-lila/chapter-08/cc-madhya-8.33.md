@@ -1,5 +1,8 @@
 ### CC Madhya 8.33
 
+> তাঁর কৃপায় পাইনু তোমার দরশন ৷
+> আজি সফল হৈল মোর মনুষ্যজনম ৷৷ ৩৩ ৷৷ ॥৩৩॥
+
 tāṅra kṛpāya pāinu tomāra daraśana
 
 āji saphala haila mora manuṣya-janama

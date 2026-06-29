@@ -1,5 +1,8 @@
 ### CC Antya 13.79
 
+> গুজ্জরীরাগিণী লঞা সুমধুর-স্বরে ।
+> ‘গীতগোবিন্দ’-পদ গায় জগমন হরে ॥৭৯॥
+
 > gujjarī-rāgiṇī lañā sumadhura-svare
 > 'gīta-govinda'-pada gāya jaga-mana hare
 

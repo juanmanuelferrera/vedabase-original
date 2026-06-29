@@ -1,5 +1,8 @@
 ### CC Antya 6.50
 
+> “নিকটে না আইস, চোরা, ভাগ’ দূরে দূরে  ।
+> আজি লাগ্ পাঞাছি, দণ্ডিমু তোমারে ॥৫০॥
+
 > "nikaṭe nā āisa, corā, bhāga' dūre dūre
 > āji lāg pāñāchi, daṇḍimu tomāre
 

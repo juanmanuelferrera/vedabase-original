@@ -1,5 +1,8 @@
 ### CC Madhya 9.152
 
+> দুঃখ না ভাবিহ, ভট্ট, কৈলুঁ পরিহাস ।
+> শাস্ত্রসিদ্ধান্ত শুন, যাতে বৈষ্ণব-বিশ্বাস ॥১৫২॥
+
 > duḥkha nā bhāviha, bhaṭṭa, kailuṅ parihāsa
 > śāstra-siddhānta śuna, yāte vaiṣṇava-viśvāsa
 

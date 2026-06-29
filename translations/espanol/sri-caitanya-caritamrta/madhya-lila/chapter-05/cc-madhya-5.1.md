@@ -1,5 +1,10 @@
 ### CC Madhya 5.1
 
+> পদ্ভ্যাং চলন্ যঃ প্রতিমা-স্বরূপো
+> ব্রহ্মণ্যদেবো হি শতাহগম্যম্ ৷
+> দেশং যযৌ বিপ্রকৃতেঽদ্ভুতেহং
+> তং সাক্ষিগোপালমহং নতোঽস্মি ॥১॥
+
 > padbhyāṁ calan yaḥ pratimā-svarūpo
 > brahmaṇya-devo hi śatāha-gamyam
 > deśaṁ yayau vipra-kṛte 'dbhutehaṁ

@@ -1,5 +1,8 @@
 ### CC Antya 5.116
 
+> শুনিয়া সবার হৈল আনন্দিত-মন  ।
+> দুঃখ পাঞা স্বরূপ কহে সক্রোধ বচন ॥১১৬॥
+
 > śuniyā sabāra haila ānandita-mana
 > duḥkha pāñā svarūpa kahe sakrodha vacana
 

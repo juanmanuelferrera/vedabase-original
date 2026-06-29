@@ -1,5 +1,8 @@
 ### CC Antya 2.140
 
+> তুমি হঠ কৈলে তাঁর হঠ সে বাড়িবে  ।
+> স্নান ভোজন কর, আপনে ক্রোধ যাবে ।।” ১৪০ ॥১৪০॥
+
 > tumi haṭha kaile tāṅra haṭha se bāḍibe
 > snāna bhojana kara, āpane krodha yābe"
 

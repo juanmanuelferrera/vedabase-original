@@ -1,5 +1,8 @@
 ### CC Madhya 25.100
 
+> অতএব ব্রহ্মসূত্রের ভাষ্য — শ্রীভাগবত ।
+> ভাগবত-শ্লোক, উপনিষৎ কহে ‘এক’মত ॥১০০॥
+
 > ataeva brahma-sūtrera bhāṣya-śrī-bhāgavata
 > bhāgavata-śloka, upaniṣat kahe 'eka' mata
 

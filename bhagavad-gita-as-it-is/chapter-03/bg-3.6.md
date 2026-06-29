@@ -1,5 +1,8 @@
 ### Bg 3.6
 
+> कर्मेन्द्रियाणि संयम्य य आस्ते मनसा स्मरन् ।
+> इन्द्रियार्थान्विमूढात्मा मिथ्याचारः स उच्यते ॥६॥
+
 > karmendriyāṇi saṁyamya
 > ya āste manasā smaran
 > indriyārthān vimūḍhātmā

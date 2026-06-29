@@ -3,6 +3,9 @@
 > ājanma karinu muñi 'nirākāra'-dhyāna
 > tomā dekhi' 'kṛṣṇa' haila mora vidyamāna
 
+> ājanma karinu muñi 'nirākāra'-dhyāna
+> tomā dekhi' 'kṛṣṇa' haila mora vidyamāna
+
 *ā-janma*—desde mi nacimiento; *karinu*—he realizado; *muñi*—yo; *nirākāra-dhyāna*—meditación en el Brahman impersonal; *tomā dekhi'*—al verte; *kṛṣṇa*—el Señor Kṛṣṇa; *haila*—se convirtió; *mora*—mi; *vidyamāna*—experiencia.
 
 **«He estado meditando en el Brahman impersonal desde mi nacimiento, pero desde que te vi, he experimentado plenamente a Kṛṣṇa.»**

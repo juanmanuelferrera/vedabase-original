@@ -1,5 +1,8 @@
 ### SB 3.26.14
 
+> मनो बुद्धिरहङ्कारश्चित्तमित्यन्तरात्मकम् ।
+> चतुर्धा लक्ष्यते भेदो वृत्त्या लक्षणरूपया ॥१४॥
+
 > mano buddhir ahaṅkāraś
 > cittam ity antar-ātmakam
 > caturdhā lakṣyate bhedo

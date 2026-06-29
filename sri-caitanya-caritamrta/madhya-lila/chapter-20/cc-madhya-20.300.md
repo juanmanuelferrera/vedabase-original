@@ -1,5 +1,8 @@
 ### CC Madhya 20.300
 
+> লীলাবতারের কৈলুঁ দিগ্দরশন ।
+> গুণাবতারের এবে শুন বিবরণ ॥৩০০॥
+
 > līlāvatārera kailuṅ dig-daraśana
 > guṇāvatārera ebe śuna vivarana
 

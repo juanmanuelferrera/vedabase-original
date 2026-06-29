@@ -1,5 +1,8 @@
 ### CC Madhya 9.115
 
+> ভট্ট কহে, কৃষ্ণ-নারায়ণ — একই স্বরূপ ।
+> কৃষ্ণেতে অধিক লীলা-বৈদগ্ধ্যাদিরূপ ॥১১৫॥
+
 > bhaṭṭa kahe, kṛṣṇa-nārāyaṇa—eka-i svarūpa
 > kṛṣṇete adhika līlā-vaidagdhyādi-rūpa
 

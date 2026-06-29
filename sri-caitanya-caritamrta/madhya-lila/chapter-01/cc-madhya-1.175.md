@@ -1,5 +1,8 @@
 ### CC Madhya 1.175
 
+> দবির খাসেরে রাজা পুছিল নিভৃতে ।
+> গোসাঞির মহিমা তেঁহো লাগিল কহিতে ॥১৭৫॥
+
 > dabira khāsere rājā puchila nibhṛte
 > gosāñira mahimā teṅho lāgila kahite
 

@@ -1,5 +1,8 @@
 ### CC Adi 2.118
 
+> চৈতন্য-মহিমা জানি এ সব সিদ্ধান্তে ।
+> চিত্ত দৃঢ় হঞা লাগে মহিমা-জ্ঞান হৈতে ॥১১৮॥
+
 > caitanya-mahimā jāni e saba siddhānte
 > citta dṛḍha hañā lāge mahimā-jñāna haite
 

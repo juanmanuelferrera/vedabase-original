@@ -1,5 +1,8 @@
 ### CC Antya 3.198
 
+> বিপ্র কহে, — “নামাভাসে যদি ‘মুক্তি’ নয় ।
+> তবে তোমার নাক কাটি’ করহ নিশ্চয় ।।” ॥ ১৯৮ ॥
+
 > vipra kahe,—"nāmābhāse yadi 'mukti' naya
 > tabe tomāra nāka kāṭi' karaha niścaya"
 

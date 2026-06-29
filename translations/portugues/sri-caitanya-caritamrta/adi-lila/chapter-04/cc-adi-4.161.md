@@ -1,5 +1,8 @@
 ### CC Adi 4.161
 
+> যেবা কেহ অন্য জানে, সেহো তাঁহা হৈতে ।
+> চৈতন্যগোসাঞির তেঁহ অত্যন্ত মর্ম যাতে ॥১৬১॥
+
 yebā keha anya jāne, seho tāṅhā haite
 caitanya-gosāñira teṅha atyanta marma yāte
 

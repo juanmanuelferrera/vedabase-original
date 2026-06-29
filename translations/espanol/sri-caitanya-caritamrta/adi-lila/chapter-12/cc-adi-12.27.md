@@ -1,5 +1,8 @@
 ### CC Adi 12.27
 
+> আচার্যের আর পুত্র — শ্রীবলরাম ।
+> আর পুত্র — ‘স্বরূপ’-শাখা, ‘জগদীশ’ নাম ॥২৭॥
+
 > ācāryera āra putra--śrī-balarāma
 > āra putra--'svarūpa'-śākhā, 'jagadīśa' nāma
 

@@ -1,5 +1,8 @@
 ### CC Madhya 18.103
 
+> প্রাতঃকালে ভব্য-লোক প্রভু-স্থানে আইলা ।
+> ‘কৃষ্ণ দেখি’ আইলা?’ — প্ৰভু তাঁহারে পুছিলা ॥১০৩॥
+
 > prātaḥ-kāle bhavya-loka prabhu-sthāne āilā
 > 'kṛṣṇa dekhi' āilā?'—prabhu tāṅhāre puchilā
 

@@ -1,5 +1,8 @@
 ### SB 2.2.30
 
+> स भूतसूक्ष्मेन्द्रियसन्निकर्षं मनोमयं देवमयं विकार्यम् ।
+> संसाद्य गत्या सह तेन याति विज्ञानतत्त्वं गुणसन्निरोधम् ॥३०॥
+
 sa bhūta-sūkṣmendriya-sannikarṣaṁ
 manomayaṁ devamayaṁ vikāryam
 saṁsādya gatyā saha tena yāti

@@ -1,5 +1,8 @@
 ### SB 5.18.39
 
+> प्रमथ्य दैत्यं प्रतिवारणं मृधे यो मां रसाया जगदादिसूकरः
+> कृत्वाग्रदंष्ट्रे निरगादुदन्वतः क्रीडन्निवेभः प्रणतास्मि तं विभुमिति ॥३९॥
+
 > pramathya daityaṁ prativāraṇaṁ mṛdhe
 > yo māṁ rasāyā jagad-ādi-sūkaraḥ
 > kṛtvāgra-daṁṣṭre niragād udanvataḥ

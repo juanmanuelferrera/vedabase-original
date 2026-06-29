@@ -1,5 +1,7 @@
 ### SB 5.14.28
 
+> क्वापि देवमायया स्त्रिया भुजलतोपगूढः प्रस्कन्नविवेकविज्ञआनो यद्विहारगृहारम्भाकुलहृदयस्तदाश्रयावसक्तसुतदुहितृकलत्रभाषितावलोकविचेष्टितापहृतहृदय आत्मानमजितात्मापारेऽन्धे तमसि प्रहिणोति ॥२८॥
+
 *kvāpi deva*-māyayā striyā bhuja-latopagūḍhaḥ praskanna-viveka-vijñāno yad-vihāra-gṛhārambhākula-hṛdayas tad-āśrayāvasakta-suta-duhitṛ-kalatra-bhāṣitāvaloka-viceṣṭitāpahṛta-hṛdaya ātmānam ajitātmāpāre 'ndhe tamasi prahiṇoti.
 
 *kvāpi*—em algum lugar; *deva-māyayā*—pela influência da energia ilusória; *striyā*—sob a forma de sua namorada ou esposa; *bhuja-latā*—pelos belos braços, que se comparam a tenras trepadeiras na floresta; *upagūḍhaḥ*—estando profundamente abraçado; *praskanna*—perdida; *viveka*—toda a inteligência; *vijñānaḥ*—o conhecimento científico; *yat-vihāra*—para o desfrute da esposa; *gṛha-ārambha*—em encontrar uma casa ou apartamento; *ākula-hṛdayaḥ*—cujo coração se absorve; *tat*—dessa casa; *āśraya-avasakta*—que estão sob o abrigo; *suta*—dos filhos; *duhitṛ*—das filhas; *kalatra*—da esposa; *bhāṣita-avaloka*—pelas conversas e pelos belos olhares; *viceṣṭita*—pelas atividades; *apahṛta-hṛdayaḥ*—cuja consciência é arrebatada; *ātmānam*—a si mesmo; *ajita*—incontrolado; *ātmā*—cujo eu; *apāre*—na ilimitada; *andhe*—cega escuridão; *tamasi*—na vida infernal; *prahiṇoti*—ele lança.

@@ -1,5 +1,8 @@
 ### CC Madhya 4.118
 
+> ‘গোপীনাথের ক্ষীর’ বলি’ প্রসিদ্ধ নাম যার ।
+> পৃথিবীতে ঐছে ভোগ কাহাঁ নাহি আর ॥১১৮॥
+
 > 'gopīnāthera kṣīra' bali' prasiddha nāma yāra
 > pṛthivīte aiche bhoga kāhāṅ nāhi āra
 

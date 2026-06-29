@@ -1,5 +1,10 @@
 ### SB 9.11.20
 
+> नेदं यशो रघुपतेः सुरयाचञ्अयात्त
+> लीलातनोरधिकसाम्यविमुक्तधाम्नः
+> रक्षोवधो जलधिबन्धनमस्त्रपूगैः
+> किं तस्य शत्रुहनने कपयः सहायाः ॥२०॥
+
 > nedaṁ yaśo raghupateḥ sura-yācñayātta-
 > līlā-tanor adhika-sāmya-vimukta-dhāmnaḥ
 > rakṣo-vadho jaladhi-bandhanam astra-pūgaiḥ

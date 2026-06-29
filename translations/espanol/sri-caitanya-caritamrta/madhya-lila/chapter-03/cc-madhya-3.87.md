@@ -1,5 +1,8 @@
 ### CC Madhya 3.87
 
+> যে পাঞাছ মুষ্ট্যেক অন্ন, তাহা খাঞা উঠ ।
+> পাগলামি না করিহ, না ছড়াইও ঝুঠ ।।” ॥ ৮৭ ॥
+
 > ye pāñācha muṣṭy-eka anna, tāhā khāñā uṭha
 > pāgalāmi nā kariha, nā chaḍāio jhuṭha
 

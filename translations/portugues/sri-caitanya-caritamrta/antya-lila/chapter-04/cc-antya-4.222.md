@@ -1,5 +1,8 @@
 ### CC Antya 4.222
 
+> আর যত গ্রন্থ কৈলা, তাহা কে করে গণন ।
+> ‘মদনগোপাল-গোবিন্দের সেবা’-প্রকাশন ॥২২২॥
+
 āra yata grantha kailā, tāhā ke kare gaṇana
 
 'madana-gopāla-govindera sevā'-prakāśana

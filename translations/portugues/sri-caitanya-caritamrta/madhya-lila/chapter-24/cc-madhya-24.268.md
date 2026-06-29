@@ -1,5 +1,8 @@
 ### CC Madhya 24.268
 
+> একদিন নারদ কহে, — “শুনহ, পর্বতে ।
+> আমার এক শিষ্য আছে, চলহ দেখিতে ।।” ॥২৬৮॥
+
 eka-dina nārada kahe,--"śunaha, parvate
 
 āmāra eka śiṣya āche, calaha dekhite"

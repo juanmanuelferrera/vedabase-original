@@ -1,5 +1,8 @@
 ### CC Madhya 7.63
 
+> শূদ্র বিষয়ি-জ্ঞানে উপেক্ষা না করিবে ।
+> আমার বচনে তাঁরে অবশ্য মিলিবে ॥৬৩॥
+
 > śūdra viṣayi-jñāne upekṣā nā karibe
 > āmāra vacane tāṅre avaśya milibe
 

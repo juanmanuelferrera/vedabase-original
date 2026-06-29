@@ -1,5 +1,8 @@
 ### CC Madhya 8.259
 
+> অভাগিয়া জ্ঞানী আস্বাদয়ে শুষ্ক জ্ঞান ।
+> কৃষ্ণ-প্রেমামৃত পান করে ভাগ্যবান্ ॥২৫৯॥
+
 > abhāgiyā jñānī āsvādaye śuṣka jñāna
 > kṛṣṇa-premāmṛta pāna kare bhāgyavān
 

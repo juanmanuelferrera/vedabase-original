@@ -1,5 +1,8 @@
 ### CC Adi 6.10
 
+> সে পুরুষের অংশ — অদ্বৈত, নাহি কিছু ভেদ ।
+> শরীর-বিশেষ তাঁর, — নাহিক বিচ্ছেদ ॥১০॥
+
 se puruṣera aṁśa--advaita, nāhi kichu bheda
 śarīra-viśeṣa tāṅra--nāhika viccheda
 

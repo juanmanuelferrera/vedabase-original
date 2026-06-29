@@ -1,5 +1,8 @@
 ### CC Madhya 14.94
 
+> অপরাহ্ণে আসি’ কৈল দর্শন, নর্তন ।
+> নিশাতে উদ্যানে আসি’ করিলা শয়ন ॥৯৪॥
+
 aparāhne āsi' kaila darśana, nartana
 
 niśāte udyāne āsi' karilā śayana

@@ -1,5 +1,8 @@
 ### CC Antya 14.80
 
+> এই ত’ কহিলুঁ প্রভুর অদ্ভুত বিকার ।
+> যাহার শ্রবণে লোকে লাগে চমৎকার ॥৮০॥
+
 ei ta' kahiluṅ prabhura adbhuta vikāra
 
 yāhāra śravaṇe loke lāge camatkāra

@@ -1,5 +1,8 @@
 ### CC Madhya 8.112
 
+> ক্রোধ করি’ রাস ছাড়ি’ গেলা মান করি’ ৷
+> তাঁরে না দেখিয়া ব্যাকুল হৈল শ্রীহরি ৷৷ ১১২ ৷৷ ॥১১২॥
+
 krodha kari' rāsa chāḍi' gelā māna kari'
 tāṅre nā dekhiyā vyākula haila śrī-hari
 

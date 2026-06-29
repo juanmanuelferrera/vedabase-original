@@ -1,5 +1,8 @@
 ### CC Madhya 6.283
 
+> যৈছে পরিপাটী করে ভিক্ষা-নিৰ্বাহন ।
+> বিস্তারিয়া আগে তাহা করিব বর্ণন ॥২৮৩॥
+
 > yaiche paripāṭī kare bhikṣā-nirvāhana
 > vistāriyā āge tāhā kariba varṇana
 

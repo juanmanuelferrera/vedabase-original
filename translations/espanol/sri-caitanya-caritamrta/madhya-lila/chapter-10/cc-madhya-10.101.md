@@ -1,5 +1,8 @@
 ### CC Madhya 10.101
 
+> কাশীমিশ্রের আবাসে নিভৃতে এক ঘর ৷
+> প্রভু তাঁরে দিল, আর সেবার কিঙ্কর ৷৷ ১০১ ৷৷ ॥১০১॥
+
 > kāśī-miśrera āvāse nibhṛte eka ghara
 > prabhu tāṅre dila, āra sevāra kiṅkara
 

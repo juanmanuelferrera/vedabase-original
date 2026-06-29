@@ -1,5 +1,8 @@
 ### SB 3.1.45
 
+> तस्य प्रपन्नाखिललोकपानामवस्थितानामनुशासने स्वे ।
+> अर्थाय जातस्य यदुष्वजस्य वार्तां सखे कीर्तय तीर्थकीर्तेः ॥४५॥
+
 > tasya prapannākhila-lokapānām
 > avasthitānām anuśāsane sve
 > arthāya jātasya yaduṣv ajasya

@@ -1,5 +1,8 @@
 ### CC Adi 10.144
 
+> বাইশ ঘড়া জল দিনে ভরেন রামাই ।
+> গোবিন্দ-আজ্ঞায় সেবা করেন নন্দাই ॥১৪৪॥
+
 > bāiśa ghaḍā jala dine bharena rāmāi
 > govinda-ājñāya sevā karena nandāi
 

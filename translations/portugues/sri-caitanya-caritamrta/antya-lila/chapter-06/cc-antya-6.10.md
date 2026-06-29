@@ -1,5 +1,8 @@
 ### CC Antya 6.10
 
+> পূর্বে যৈছে রাধার ললিতা সহায়-প্রধান ।
+> তৈছে স্বরূপ-গোসাঞি রাখে মহাপ্রভুর প্রাণ ॥১০॥
+
 pūrve yaiche rādhāra lalitā sahāya-pradhāna
 taiche svarūpa-gosāñi rākhe mahāprabhura prāṇa
 

@@ -1,5 +1,8 @@
 ### CC Madhya 8.9
 
+> প্রভাতে উঠিয়া প্রভু চলিলা প্রেমাবেশে ।
+> দিগ্বিদিক্ নাহি জ্ঞান রাত্রি-দিবসে ॥৯॥
+
 > prabhāte uṭhiyā prabhu calilā premāveśe
 > dig-vidik nāhi jñāna rātri-divase
 

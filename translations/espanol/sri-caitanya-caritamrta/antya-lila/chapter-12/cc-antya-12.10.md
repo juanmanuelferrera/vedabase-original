@@ -1,5 +1,8 @@
 ### CC Antya 12.10
 
+> নিত্যানন্দ-প্রভুরে যদ্যপি আজ্ঞা নাই ।
+> তথাপি দেখিতে চলেন চৈতন্য-গোসাঞি ॥১০॥
+
 > nityānanda-prabhure yadyapi ājñā nāi
 > tathāpi dekhite calena caitanya-gosāñi
 

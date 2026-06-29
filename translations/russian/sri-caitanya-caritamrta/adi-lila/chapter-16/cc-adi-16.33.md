@@ -1,5 +1,8 @@
 ### CC Adi 16.33
 
+> প্রভু কহে, ব্যাকরণ পড়াই — অভিমান করি ।
+> শিষ্যেতে না বুঝে, আমি বুঝাইতে নারি ॥৩৩॥
+
 > prabhu kahe, vyākaraṇa paḍāi—abhimāna kari
 > śiṣyete nā bujhe, āmi bujhāite nāri
 

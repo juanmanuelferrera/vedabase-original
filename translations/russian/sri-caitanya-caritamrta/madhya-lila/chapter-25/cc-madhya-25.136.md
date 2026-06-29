@@ -1,5 +1,8 @@
 ### CC Madhya 25.136
 
+> ভক্ত্যাহমেকয়া গ্রাহ্যঃ শ্রদ্ধয়াত্মা প্রিয়ঃ সতাম্ ।
+> ভক্তিঃ পুনাতি মন্নিষ্ঠা শ্বপাকানপি সম্ভবাৎ ॥১৩৬॥
+
 > bhaktyāham ekayā grāhyaḥ
 > śraddhayātmā priyaḥ satām
 > bhaktiḥ punāti man-niṣṭhā

@@ -1,5 +1,8 @@
 ### CC Antya 20.24
 
+> যেই যে মাগয়ে, তারে দেয় আপন-ধন ।
+> ঘর্ম-বৃষ্টি সহে, আনের করয়ে রক্ষণ ॥২৪॥
+
 > yei ye māgaye, tāre deya āpana-dhana
 > gharma-vṛṣṭi sahe, ānera karaye rakṣaṇa
 

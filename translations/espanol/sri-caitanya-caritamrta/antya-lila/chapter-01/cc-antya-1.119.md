@@ -1,5 +1,8 @@
 ### CC Antya 1.119
 
+> বার বার প্রভু যদি তারে আজ্ঞা দিল ।
+> তবে সেই শ্লোক রূপগোসাঞি কহিল ॥১১৯॥
+
 > bāra bāra prabhu yadi tāre ājñā dila
 > tabe sei śloka rūpa-gosāñi kahila
 

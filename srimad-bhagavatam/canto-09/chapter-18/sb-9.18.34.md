@@ -1,5 +1,8 @@
 ### SB 9.18.34
 
+> गर्भसम्भवमासुर्या भर्तुर्विज्ञआय मानिनी
+> देवयानी पितुर्गेहं ययौ क्रोधविमूर्छिता ॥३४॥
+
 > garbha-sambhavam āsuryā
 > bhartur vijñāya māninī
 > devayānī pitur gehaṁ

@@ -1,5 +1,10 @@
 ### CC Madhya 2.37
 
+> যে কালে বা স্বপনে, দেখিনু বংশীবদনে,
+> সেই কালে আইলা দুই বৈরি ।
+> ‘আনন্দ’ আর ‘মদন’, হরি’ নিল মোর মন,
+> দেখিতে না পাইনু নেত্র ভরি’ ॥৩৭॥
+
 > ye kāle vā svapane, dekhinu vaṁśī-vadane,
 > sei kāle āilā dui vairi
 > 'ānanda' āra 'madana', hari' nila mora mana,

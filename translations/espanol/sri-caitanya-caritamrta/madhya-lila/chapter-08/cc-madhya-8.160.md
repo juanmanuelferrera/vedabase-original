@@ -1,5 +1,8 @@
 ### CC Madhya 8.160
 
+> প্রেমের পরম-সার ‘মহাভাব’ জানি ৷
+> সেই মহাভাবরূপা রাধা-ঠাকুরাণী ৷৷ ১৬০ ৷৷ ॥১৬০॥
+
 > premera parama-sāra 'mahābhāva' jāni
 > sei mahābhāva-rūpā rādhā-ṭhākurāṇī
 

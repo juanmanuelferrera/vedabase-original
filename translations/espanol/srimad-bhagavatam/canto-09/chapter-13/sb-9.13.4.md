@@ -1,5 +1,8 @@
 ### SB 9.13.4
 
+> शिष्यव्यतिक्रमं वीक्ष्य तं निर्वर्त्यागतो गुरुः
+> अशपत्पतताद्देहो निमेः पण्डितमानिनः ॥४॥
+
 > śiṣya-vyatikramaṁ vīkṣya
 > taṁ nirvartyāgato guruḥ
 > aśapat patatād deho

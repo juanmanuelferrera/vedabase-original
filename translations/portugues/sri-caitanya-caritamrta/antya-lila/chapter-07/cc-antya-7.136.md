@@ -1,5 +1,8 @@
 ### CC Antya 7.136
 
+> শ্রীধরানুগত কর ভাগবত-ব্যাখ্যান ।
+> অভিমান ছাড়ি’ ভজ কৃষ্ণ ভগবান্ ॥১৩৬॥
+
 śrīdharānugata kara bhāgavata-vyākhyāna
 
 abhimāna chāḍi' bhaja kṛṣṇa bhagavān

@@ -1,5 +1,8 @@
 ### CC Madhya 5.43
 
+> পুত্র বলে, — “প্রতিমা সাক্ষী, সেহ দূর দেশে ।
+> কে তোমার সাক্ষী দিবে, চিন্তা কর কিসে ॥৪৩॥
+
 > putra bale,—"pratimā sākṣī, seha dūra deśe
 > ke tomāra sākṣī dibe, cintā kara kise
 

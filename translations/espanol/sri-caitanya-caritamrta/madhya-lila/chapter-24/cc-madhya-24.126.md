@@ -1,5 +1,8 @@
 ### CC Madhya 24.126
 
+> নারদের সঙ্গে শৌনকাদি মুনিগণ ।
+> মুমুক্ষা ছাড়িয়া কৈলা কৃষ্ণের ভজন ॥১২৬॥
+
 > nāradera saṅge śaunakādi muni-gaṇa
 > mumukṣā chāḍiyā kailā kṛṣṇera bhajana
 

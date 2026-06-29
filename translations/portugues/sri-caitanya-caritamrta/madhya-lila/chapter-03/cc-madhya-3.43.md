@@ -1,5 +1,8 @@
 ### CC Madhya 3.43
 
+> বত্তিশা-আঠিয়া-কলার আঙ্গটিয়া পাতে ।
+> দুই ঠাঞি ভোগ বাড়াইল ভাল মতে ॥৪৩॥
+
 battiśā-āṭhiyā-kalāra āṅgaṭiyā pāte
 dui ṭhāñi bhoga bāḍāila bhāla mate
 

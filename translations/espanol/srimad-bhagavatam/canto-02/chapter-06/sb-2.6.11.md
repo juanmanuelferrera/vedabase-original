@@ -1,5 +1,8 @@
 ### SB 2.6.11
 
+> अव्यक्तरससिन्धूनां भूतानां निधनस्य च ।
+> उदरं विदितं पुंसो हृदयं मनसः पदम् ॥११॥
+
 > avyakta-rasa-sindhūnāṁ
 > bhūtānāṁ nidhanasya ca
 > udaraṁ viditaṁ puṁso

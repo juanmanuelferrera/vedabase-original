@@ -1,5 +1,10 @@
 ### CC Adi 4.156
 
+> গোপ্যস্তপঃ কিমচরন্ যদমুষ্য রূপং
+> লাবণ্যসারমসমোর্ধ্বমনন্যসিদ্ধম্ ।
+> দৃগ্ভিঃ পিবন্ত্যনুসবাভিনবং দুরাপ-
+> মেকান্তধাম যশসঃ শ্রিয় ঐশ্বরস্য ॥১৫৬॥
+
 gopyas tapaḥ kim acaran yad amuṣya rūpaṁ
 lāvaṇya-sāram asamordhvam ananya-siddham
 dṛgbhiḥ pibanty anusavābhinavaṁ durāpam

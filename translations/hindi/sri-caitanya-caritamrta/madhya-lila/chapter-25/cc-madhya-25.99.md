@@ -1,5 +1,8 @@
 ### CC Madhya 25.99
 
+> যেই সূত্রে যেই ঋক্ — বিষয়-বচন ।
+> ভাগবতে সেই ঋক্ শ্লোকে নিবন্ধন ॥৯৯॥
+
 > yei sūtre yei ṛk-viṣaya-vacana
 > bhāgavate sei ṛk śloke nibandhana
 

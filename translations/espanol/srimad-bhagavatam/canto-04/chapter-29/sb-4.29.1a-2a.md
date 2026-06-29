@@ -5,6 +5,11 @@
 > asti prajñā samāyattā
 > ko viśeṣas tadā nṛṇām
 
+> sarveṣām eva jantūnāṁ
+> satataṁ deha-poṣaṇe
+> asti prajñā samāyattā
+> ko viśeṣas tadā nṛṇām
+
 > labdhvehānte manuṣyatvaṁ
 > hitvā dehādy-asad-graham
 > ātma-sṛtyā vihāyedaṁ

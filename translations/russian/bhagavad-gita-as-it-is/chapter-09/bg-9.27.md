@@ -1,5 +1,8 @@
 ### Bg 9.27
 
+> यत्करोषि यदश्नासि यज्जुहोषि ददासि यत् ।
+> यत्तपस्यसि कौन्तेय तत्कुरुष्व मदर्पणम् ॥२७॥
+
 > yat karoṣi yad aśnāsi
 > yaj juhoṣi dadāsi yat
 > yat tapasyasi kaunteya

@@ -1,5 +1,8 @@
 ### CC Madhya 25.225
 
+> শুনিয়া ভক্তের গণ যেন পুনরপি জীলা ।
+> দেহে প্রাণ আইলে, যেন ইন্দ্রিয় উঠিলা ॥২২৫॥
+
 > śuniyā bhaktera gaṇa yena punarapi jīlā
 > dehe prāṇa āile, yena indriya uṭhilā
 

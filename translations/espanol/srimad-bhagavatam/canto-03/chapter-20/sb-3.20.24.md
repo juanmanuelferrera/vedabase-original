@@ -1,5 +1,8 @@
 ### SB 3.20.24
 
+> ततो हसन्स भगवानसुरैर्निरपत्रपैः ।
+> अन्वीयमानस्तरसा क्रुद्धो भीतः परापतत् ॥२४॥
+
 > tato hasan sa bhagavān
 > asurair nirapatrapaiḥ
 > anvīyamānas tarasā

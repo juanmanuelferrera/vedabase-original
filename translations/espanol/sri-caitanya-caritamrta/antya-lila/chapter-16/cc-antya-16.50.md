@@ -1,5 +1,8 @@
 ### CC Antya 16.50
 
+> বাইশ ‘পাহাচ’-পাছে উপর দক্ষিণ-দিকে ।
+> এক নৃসিংহ-মূর্তি আছেন উঠিতে বামভাগে ॥৫০॥
+
 > bāiśa 'pāhāca'-pāche upara dakṣiṇa-dike
 > eka nṛsiṁha-mūrti āchena uṭhite vāma-bhāge
 

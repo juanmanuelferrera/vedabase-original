@@ -1,5 +1,10 @@
 ### CC Adi 16.41
 
+> মহত্ত্বং গঙ্গায়াঃ সততমিদমাভাতি নিতরাং
+> যদেষা শ্রীবিষ্ণোশ্চরণকমলোৎপত্তিসুভগা ।
+> দ্বিতীয়-শ্রীলক্ষ্মীরিব সুরনরৈরর্চ্যচরণা
+> ভবানীভর্তুর্যা শিরসি বিভবত্যদ্ভুতগুণা ॥৪১॥
+
 > mahattvaṁ gaṅgāyāḥ satatam idam ābhāti nitarāṁ
 > yad eṣā śrī-viṣṇoś caraṇa-kamalotpatti-subhagā
 > dvitīya-śrī-lakṣmīr iva sura-narair arcya-caraṇā

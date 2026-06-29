@@ -1,5 +1,7 @@
 ### CC Antya 8.80
 
+> পূর্বপরয়োর্মধ্যে পববিধির্বলবান্ ॥৮০॥
+
 > pūrva-parayor madhye para-vidhir balavān
 
 *pūrva-parayoḥ*—the former and the latter; *madhye*—between; *para-vidhiḥ*—the latter rule; *balavān*—more prominent.

@@ -1,5 +1,8 @@
 ### CC Adi 17.317
 
+> চতুর্থে কহিলুঁ জন্মের ‘মূল’ প্রয়োজন ।
+> স্বমাধুর্য-প্রেমানন্দরস-আস্বাদন ॥৩১৭॥
+
 caturthe kahiluṅ janmera 'mūla' prayojana
 sva-mādhurya-premānanda-rasa-āsvādana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 5.51
 
+> এত শুনি’ সেই বিপ্র রহে মৌন ধরি’ ।
+> তাঁর পুত্র মারিতে আইল হাতে ঠেঙ্গা করি’ ॥৫১॥
+
 > eta śuni' sei vipra rahe mauna dhari'
 > tāṅra putra mārite āila hāte ṭheṅgā kari'
 

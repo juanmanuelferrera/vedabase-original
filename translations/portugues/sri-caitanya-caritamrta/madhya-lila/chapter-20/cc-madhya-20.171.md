@@ -1,5 +1,8 @@
 ### CC Madhya 20.171
 
+> সেই বপু, সেই আকৃতি পৃথক্ যদি ভাসে ।
+> ভাবাবেশ-ভেদে নাম ‘বৈভবপ্রকাশে’ ॥১৭১॥
+
 sei vapu, sei ākṛti pṛthak yadi bhāse
 
 bhāvāveśa-bhede nāma 'vaibhava-prakāśe'

@@ -1,5 +1,10 @@
 ### CC Antya 14.51
 
+> মন কৃষ্ণবিয়োগী, দুঃখে মন হৈল যোগী,
+> সে বিয়োগে দশ দশা হয় ।
+> সে দশায় ব্যাকুল হঞা, মন গেল পলাঞা,
+> শূন্য মোর শরীর আলয় ।।” ॥ ৫১ ॥
+
 > mana kṛṣṇa-viyogī, duḥkhe mana haila yogī,
 > se viyoge daśa daśā haya
 > se daśāya vyākula hañā, mana gela palāñā,

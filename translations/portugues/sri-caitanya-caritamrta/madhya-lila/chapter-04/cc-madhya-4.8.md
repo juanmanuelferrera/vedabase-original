@@ -1,5 +1,8 @@
 ### CC Madhya 4.8
 
+> তাঁর সূত্রে আছে, তেঁহ না কৈল বর্ণন ।
+> যথাকথঞ্চিত্ করি’ যে লীলা কথন ॥৮॥
+
 tāṅra sūtre āche, teṅha nā kaila varṇana
 yathā-kathañcit kari' se līlā kathana
 

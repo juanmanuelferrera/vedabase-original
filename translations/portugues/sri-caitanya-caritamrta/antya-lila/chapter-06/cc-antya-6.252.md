@@ -1,5 +1,8 @@
 ### CC Antya 6.252
 
+> স্বরূপের স্থানে তারে করিয়াছেন সমর্পণ ।
+> প্রভুর ভক্তগণের তেঁহো হয় প্রাণসম ॥২৫২॥
+
 svarūpera sthāne tāre kariyāchena samarpaṇa
 
 prabhura bhakta-gaṇera teṅho haya prāṇa-sama

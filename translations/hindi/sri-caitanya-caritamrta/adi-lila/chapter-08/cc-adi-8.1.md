@@ -1,5 +1,8 @@
 ### CC Adi 8.1
 
+> বন্দে চৈতন্যদেবং তং ভগবন্তং যদিচ্ছয়া ।
+> প্রসভং নর্ত্যতে চিত্রং লেখরঙ্গে জড়োঽপ্যয়ম্ ॥১॥
+
 > vande caitanya-devaṁ taṁ
 > bhagavantaṁ yad-icchayā
 > prasabhaṁ nartyate citraṁ

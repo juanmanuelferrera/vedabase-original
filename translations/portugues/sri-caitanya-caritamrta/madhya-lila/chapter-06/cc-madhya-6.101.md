@@ -1,5 +1,8 @@
 ### CC Madhya 6.101
 
+> আসন্ বর্ণাস্ত্রয়ো হ্যস্য গৃহ্ণতোঽনুযুগং তনূঃ ।
+> শুক্লো রক্তস্তথা পীত ইদানীং কৃষ্ণতাং গতঃ ॥১০১॥
+
 āsan varṇās trayo hy asya
 gṛhṇato 'nu-yugaṁ tanūḥ
 śuklo raktas tathā pīta

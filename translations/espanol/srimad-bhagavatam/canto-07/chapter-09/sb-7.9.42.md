@@ -1,5 +1,10 @@
 ### SB 7.9.42
 
+> को न्वत्र तेऽखिलगुरो भगवन्प्रयास
+> उत्तारणेऽस्य भवसम्भवलोपहेतोः
+> मूढेषु वै महदनुग्रह आर्तबन्धो
+> किं तेन ते प्रियजनाननुसेवतां नः ॥४२॥
+
 > ko nv atra te 'khila-guro bhagavan prayāsa
 > uttāraṇe 'sya bhava-sambhava-lopa-hetoḥ
 > mūḍheṣu vai mahad-anugraha ārta-bandho

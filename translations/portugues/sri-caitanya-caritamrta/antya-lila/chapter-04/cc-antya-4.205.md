@@ -1,5 +1,8 @@
 ### CC Antya 4.205
 
+> দুঁহে আলিঙ্গিয়া প্রভু গেলা নিজালয় ।
+> প্রভুর গুণ কহে দুঁহে হঞা প্রেমময় ॥২০৫॥
+
 duṅhe āliṅgiyā prabhu gelā nijālaya
 
 prabhura guṇa kahe duṅhe hañā prema-maya

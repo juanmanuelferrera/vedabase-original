@@ -1,5 +1,8 @@
 ### CC Madhya 5.53
 
+> ঠেঞা দেখি’ সেই বিপ্র পলাঞা গেল ।
+> আর দিন গ্রামের লোক একত্র করিল ॥৫৩॥
+
 > ṭheñā dekhi' sei vipra palāñā gela
 > āra dina grāmera loka ekatra karila
 

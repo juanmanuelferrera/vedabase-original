@@ -1,5 +1,8 @@
 ### CC Madhya 16.107
 
+> সুস্থ করি, রামানন্দ রাজারে বসাইলা ।
+> কায়মনোবাক্যে প্রভু তাঁরে কৃপা কৈলা ॥১০৭॥
+
 sustha kari, rāmānanda rājāre vasāilā
 
 kāya-mano-vākye prabhu tāṅre kṛpā kailā

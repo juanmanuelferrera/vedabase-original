@@ -1,5 +1,8 @@
 ### CC Antya 3.39
 
+> তোমার আজ্ঞাতে আমি আছি নীলাচলে  ।
+> নিকটে লঞা যাও আমা তোমার প্রেমবলে’ ॥৩৯॥
+
 tomāra ājñāte āmi āchi nīlācale
 
 nikaṭe lañā yāo āmā tomāra prema-bale'

@@ -1,5 +1,8 @@
 ### CC Madhya 24.221
 
+> চ-শব্দে ‘সমুচ্চয়ে,’ আর অর্থ কয় ।
+> ‘আত্মারামাশ্চ মুনয়শ্চ’ কৃষ্ণেরে ভজয় ॥২২১॥
+
 > ca-śabde 'samuccaye', āra artha kaya
 > 'ātmārāmāś ca munayaś ca' kṛṣṇere bhajaya
 

@@ -1,5 +1,8 @@
 ### SB 1.7.18
 
+> तमापतन्तं स विलक्ष्य दूरात्कुमारहोद्विग्नमना रथेन ।
+> पराद्रवत्प्राणपरीप्सुरुर्व्यां यावद्गमं रुद्रभयाद्यथा कः ॥१८॥
+
 > tam āpatantaṁ sa vilakṣya dūrāt
 > kumāra-hodvigna-manā rathena
 > parādravat prāṇa-parīpsur urvyāṁ

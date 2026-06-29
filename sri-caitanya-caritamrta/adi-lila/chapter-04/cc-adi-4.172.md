@@ -1,5 +1,8 @@
 ### CC Adi 4.172
 
+> অতএব গোপীগণের নাহি কামগন্ধ ।
+> কৃষ্ণসুখ লাগি মাত্র, কৃষ্ণ সে সম্বন্ধ ॥১৭২॥
+
 > ataeva gopī-gaṇera nāhi kāma-gandha
 > kṛṣṇa-sukha lāgi mātra, kṛṣṇa se sambandha
 

@@ -1,5 +1,8 @@
 ### CC Antya 20.4
 
+> স্বরূপ, রামানন্দ, — এই দুইজন-সনে ।
+> রাত্রি-দিনে রস-গীত-শ্লোক আস্বাদনে ॥৪॥
+
 > svarūpa, rāmānanda,—ei duijana-sane
 > rātri-dine rasa-gīta-śloka āsvādane
 

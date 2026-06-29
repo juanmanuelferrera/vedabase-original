@@ -1,5 +1,8 @@
 ### CC Antya 10.95
 
+> গোবিন্দ কহে মনে — “আমার ‘সেবা’ সে ‘নিয়ম’  ।
+> অপরাধ হউক, কিবা নরকে গমন ॥৯৫॥
+
 > govinda kahe mane—"āmāra 'sevā' se 'niyama'
 > aparādha ha-uka, kibā narake gamana
 

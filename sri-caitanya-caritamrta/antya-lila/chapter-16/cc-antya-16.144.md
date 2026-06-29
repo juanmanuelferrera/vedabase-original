@@ -1,5 +1,10 @@
 ### CC Antya 16.144
 
+> হেন কৃষ্ণাধর-সুধা, যে কৈল অমৃত মুধা,
+> যার আশায় গোপী ধরে প্রাণ ।
+> এই বেণু অযোগ্য অতি, স্থাবর ‘পুরুষজাতি’,
+> সেই সুধা সদা করে পান ॥১৪৪॥
+
 > hena kṛṣṇādhara-sudhā, ye kaila amṛta mudhā,
 > yāra āśāya gopī dhare prāṇa
 > ei veṇu ayogya ati, sthāvara 'puruṣa-jāti',

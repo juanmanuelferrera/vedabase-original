@@ -1,5 +1,8 @@
 ### CC Antya 3.192
 
+> পরম-সুন্দর, পণ্ডিত, নূতন-যৌবন ।
+> নামাভাসে ‘মুক্তি’ শুনি’ না হইল সহন ॥১৯২॥
+
 parama-sundara, paṇḍita, nūtana-yauvana
 
 nāmābhāse 'mukti' śuni' nā ha-ila sahana

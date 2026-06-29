@@ -1,5 +1,8 @@
 ### SB 2.1.3
 
+> निद्रया ह्रियते नक्तं व्यवायेन च वा वयः ।
+> दिवा चार्थेहया राजन्कुटुम्बभरणेन वा ॥३॥
+
 > nidrayā hriyate naktaṁ
 > vyavāyena ca vā vayaḥ
 > divā cārthehayā rājan

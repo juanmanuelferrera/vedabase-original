@@ -1,5 +1,8 @@
 ### CC Madhya 21.75
 
+> কৃষ্ণ কহে, — তোমা-সবা দেখিতে চিত্ত হৈল ।
+> তাহা লাগি’ এক ঠাঞি সবা বোলাইল ॥৭৫॥
+
 > kṛṣṇa kahe,--tomā-sabā dekhite citta haila
 > tāhā lāgi' eka ṭhāñi sabā bolāila
 

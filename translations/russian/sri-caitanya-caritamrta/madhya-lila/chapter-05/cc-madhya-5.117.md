@@ -1,5 +1,8 @@
 ### CC Madhya 5.117
 
+> সে দেশের রাজা আইল আশ্চর্য শুনিঞা ।
+> পরম সন্তোষ পাইল গোপালে দেখিঞা ॥১১৭॥
+
 > se deśera rājā āila āścarya śuniñā
 > parama santoṣa pāila gopāle dekhiñā
 

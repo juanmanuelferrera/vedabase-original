@@ -1,5 +1,8 @@
 ### CC Adi 5.216
 
+> নিত্যানন্দ-দয়া মোরে তাঁরে দেখাইল ।
+> শ্রীরাধা-মদনমোহনে প্রভু করি’ দিল ॥২১৬॥
+
 nityānanda-dayā more tāṅre dekhāila
 
 śrī-rādhā-madana-mohane prabhu kari' dila

@@ -1,5 +1,8 @@
 ### CC Madhya 20.293
 
+> এই ত’ দ্বিতীয়-পুরুষ — ব্রহ্মাণ্ডের ঈশ্বর ।
+> মায়ার ‘আশ্রয়’ হয়, তবু মায়া-পার ॥২৯৩॥
+
 > ei ta' dvitīya-puruṣa—brahmāṇḍera īśvara
 > māyāra 'āśraya' haya, tabu māyā-pāra
 

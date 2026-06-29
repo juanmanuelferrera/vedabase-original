@@ -1,5 +1,8 @@
 ### CC Madhya 24.262
 
+> আমি তোমায় বহু অন্ন পাঠাইমু দিনে ।
+> সেই অন্ন লবে, যত খাও দুইজনে ।।” ॥ ২৬২ ॥
+
 > āmi tomāya bahu anna pāṭhāimu dine
 > sei anna labe, yata khāo dui-jane"
 

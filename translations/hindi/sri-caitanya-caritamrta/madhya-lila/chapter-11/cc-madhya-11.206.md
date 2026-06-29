@@ -1,5 +1,8 @@
 ### CC Madhya 11.206
 
+> তবে প্রভু প্রসাদান্ন গোবিন্দ-হাতে দিলা ।
+> যত্ন করি’ হরিদাস-ঠাকুরে পাঠাইলা ॥২০৬॥
+
 > tabe prabhu prasādānna govinda-hāte dilā
 > yatna kari' haridāsa-ṭhākure pāṭhāilā
 

@@ -1,5 +1,8 @@
 ### SB 4.12.34
 
+> तत्र तत्र प्रशंसद्भिः पथि वैमानिकैः सुरैः ।
+> अवकीर्यमाणो ददृशे कुसुमैः क्रमशो ग्रहान् ॥३४॥
+
 > tatra tatra praśaṁsadbhiḥ
 > pathi vaimānikaiḥ suraiḥ
 > avakīryamāṇo dadṛśe

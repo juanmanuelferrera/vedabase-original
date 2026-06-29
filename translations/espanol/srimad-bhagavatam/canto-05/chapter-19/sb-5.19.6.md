@@ -1,5 +1,8 @@
 ### SB 5.19.6
 
+> न वै स आत्मात्मवतां सुहृत्तमः सक्तस्त्रिलोक्यां भगवान्वासुदेवः
+> न स्त्रीकृतं कश्मलमश्नुवीत न लक्ष्मणं चापि विहातुमर्हति ॥६॥
+
 > na vai sa ātmātmavatāṁ suhṛttamaḥ
 > saktas tri-lokyāṁ bhagavān vāsudevaḥ
 > na strī-kṛtaṁ kaśmalam aśnuvīta

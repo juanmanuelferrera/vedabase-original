@@ -1,5 +1,8 @@
 ### CC Madhya 19.58
 
+> মধ্যাহ্ন করিতে বিপ্র প্রভুরে কহিলা ।
+> রূপ-গোসাঞি সে-দিবস তথাঞি রহিলা ॥৫৮॥
+
 > madhyāhna karite vipra prabhure kahilā
 > rūpa-gosāñi se-divasa tathāñi rahilā
 

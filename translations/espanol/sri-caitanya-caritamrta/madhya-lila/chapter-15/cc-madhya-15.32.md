@@ -1,5 +1,8 @@
 ### CC Madhya 15.32
 
+> বিজয়া-দশমী — লঙ্কা-বিজয়ের দিনে  ।
+> বানর-সৈন্য কৈলা প্রভু লঞা ভক্তগণে ॥৩২॥
+
 > vijayā-daśamī--laṅkā-vijayera dine
 > vānara-sainya kailā prabhu lañā bhakta-gaṇe
 

@@ -1,5 +1,8 @@
 ### SB 3.21.2
 
+> प्रियव्रतोत्तानपादौ सुतौ स्वायम्भुवस्य वै ।
+> यथाधर्मं जुगुपतुः सप्तद्वीपवतीं महीम् ॥२॥
+
 > priyavratottānapādau
 > sutau svāyambhuvasya vai
 > yathā-dharmaṁ jugupatuḥ

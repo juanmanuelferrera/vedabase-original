@@ -1,5 +1,8 @@
 ### CC Madhya 8.59
 
+> প্রভু কহে, — “এহো বাহ্য, আগে কহ আর ।”
+> রায় কহে, “কৃষ্ণে কর্মার্পণ — সর্বসাধ্য-সার ।।” ॥৫৯॥
+
 > prabhu kahe, "eho bāhya, āge kaha āra"
 > rāya kahe, "kṛṣṇe karmārpaṇa—sarva-sādhya-sāra"
 

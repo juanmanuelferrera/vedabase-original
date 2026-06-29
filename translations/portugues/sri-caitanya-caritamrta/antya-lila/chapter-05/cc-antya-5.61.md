@@ -1,5 +1,8 @@
 ### CC Antya 5.61
 
+> আনের কি কথা, তুমি — প্রভুর উপদেষ্টা !
+> আমি ত’ ভিক্ষুক বিপ্র, তুমি — মোর পোষ্টা ॥৬১॥
+
 ānera ki kathā, tumi--prabhura upadeṣṭā!
 
 āmi ta' bhikṣuka vipra, tumi--mora poṣṭā

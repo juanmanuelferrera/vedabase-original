@@ -1,5 +1,8 @@
 ### SB 4.9.32
 
+> मतिर्विदूषिता देवैः पतद्भिरसहिष्णुभिः ।
+> यो नारदवचस्तथ्यं नाग्राहिषमसत्तमः ॥३२॥
+
 > matir vidūṣitā devaiḥ
 > patadbhir asahiṣṇubhiḥ
 > yo nārada-vacas tathyaṁ

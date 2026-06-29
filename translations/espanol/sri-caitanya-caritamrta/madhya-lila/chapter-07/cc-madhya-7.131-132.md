@@ -3,6 +3,9 @@
 > pathe yāite devālaye rahe yei grāme
 > yāṅra ghare bhikṣā kare, sei mahā-jane
 
+> pathe yāite devālaye rahe yei grāme
+> yāṅra ghare bhikṣā kare, sei mahā-jane
+
 > kūrme yaiche rīti, taiche kaila sarva-ṭhāñi
 > nīlācale punaḥ yāvat nā āilā gosāñi
 

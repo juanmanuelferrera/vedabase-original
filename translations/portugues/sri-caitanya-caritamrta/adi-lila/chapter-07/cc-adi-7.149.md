@@ -1,5 +1,8 @@
 ### CC Adi 7.149
 
+> সেই হৈতে সন্ন্যাসীর ফিরি গেল মন ।
+> ‘কৃষ্ণ’ ‘কৃষ্ণ’ নাম সদা করয়ে গ্রহণ ॥১৪৯॥
+
 sei haite sannyāsīra phiri gela mana
 
 'kṛṣṇa' 'kṛṣṇa' nāma sadā karaye grahaṇa

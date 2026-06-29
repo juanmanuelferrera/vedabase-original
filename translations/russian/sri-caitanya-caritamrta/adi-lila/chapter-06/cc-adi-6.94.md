@@ -1,5 +1,8 @@
 ### CC Adi 6.94
 
+> জল-তুলসী দিয়া করে কায়াতে সেবন ।
+> ভক্তি প্রচারিয়া সব তারিলা ভুবন ॥৯৪॥
+
 > jala-tulasī diyā kare kāyāte sevana
 > bhakti pracāriyā saba tārilā bhuvana
 

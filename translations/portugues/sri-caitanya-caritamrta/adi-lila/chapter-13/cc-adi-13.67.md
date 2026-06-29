@@ -1,5 +1,8 @@
 ### CC Adi 13.67
 
+> কিন্তু সর্বলোক দেখি’ কৃষ্ণবহির্মুখ ।
+> বিষয়ে নিমগ্ন লোক দেখি’ পায় দুঃখ ॥৬৭॥
+
 kintu sarva-loka dekhi' kṛṣṇa-bahirmukha
 viṣaye nimagna loka dekhi' pāya duḥkha
 

@@ -1,5 +1,8 @@
 ### CC Madhya 3.60
 
+> গৃহের ভিতরে প্রভু করুন গমন ৷
+> দুই ভাই আইলা তবে করিতে ভোজন ॥৬০॥
+
 gṛhera bhitare prabhu karuna gamana
 dui bhāi āilā tabe karite bhojana
 

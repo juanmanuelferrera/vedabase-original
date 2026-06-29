@@ -1,5 +1,8 @@
 ### CC Antya 11.89
 
+> ভোজন করিয়া সবে কৈলা আচমন ।
+> সবারে পরাইলা প্রভু মাল্য-চন্দন ॥৮৯॥
+
 > bhojana kariyā sabe kailā ācamana
 > sabāre parāilā prabhu mālya-candana
 

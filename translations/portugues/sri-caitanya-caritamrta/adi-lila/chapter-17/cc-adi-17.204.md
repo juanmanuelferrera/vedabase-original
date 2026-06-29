@@ -1,5 +1,8 @@
 ### CC Adi 17.204
 
+> আসি’ কহে, — হিন্দুর ধর্ম ভাঙ্গিল নিমাই ।
+> যে কীর্তন প্রবর্তাইল, কভু শুনি নাই ॥২০৪॥
+
 āsi' kahe,--hindura dharma bhāṅgila nimāi
 
 ye kīrtana pravartāila, kabhu śuni nāi

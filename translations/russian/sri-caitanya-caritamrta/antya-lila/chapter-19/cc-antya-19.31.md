@@ -1,5 +1,8 @@
 ### CC Antya 19.31
 
+> উন্মাদ-প্রলাপ-চেষ্টা করে রাত্রি-দিনে ।
+> রাধা-ভাবাবেশে বিরহ বাড়ে অনুক্ষণে ॥৩১॥
+
 > unmāda-pralāpa-ceṣṭā kare rātri-dine
 > rādhā-bhāvāveśe viraha bāḍe anukṣaṇe
 

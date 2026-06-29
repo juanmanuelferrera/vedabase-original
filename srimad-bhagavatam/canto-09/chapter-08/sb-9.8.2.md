@@ -1,5 +1,8 @@
 ### SB 9.8.2
 
+> भरुकस्तत्सुतस्तस्माद्वृकस्तस्यापि बाहुकः
+> सोऽरिभिर्हृतभू राजा सभार्यो वनमाविशत ॥२॥
+
 > bharukas tat-sutas tasmād
 > vṛkas tasyāpi bāhukaḥ
 > so 'ribhir hṛta-bhū rājā

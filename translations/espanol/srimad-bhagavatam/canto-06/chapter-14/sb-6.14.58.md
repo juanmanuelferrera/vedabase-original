@@ -1,5 +1,10 @@
 ### SB 6.14.58
 
+> नाहं तनूज ददृशे हतमङ्गला ते
+> मुग्धस्मितं मुदितवीक्षणमाननाब्जम
+> किं वा गतोऽस्यपुनरन्वयमन्यलोकं
+> नीतोऽघृणेन न शृणोमि कला गिरस्ते ॥५८॥
+
 > nāhaṁ tanūja dadṛśe hata-maṅgalā te
 > mugdha-smitaṁ mudita-vīkṣaṇam ānanābjam
 > kiṁ vā gato 'sy apunar-anvayam anya-lokaṁ

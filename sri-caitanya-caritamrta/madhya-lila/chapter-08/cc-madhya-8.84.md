@@ -1,5 +1,8 @@
 ### CC Madhya 8.84
 
+> যথোত্তরমসৌ স্বাদবিশেষোল্লাসময্যপি ।
+> রতির্বাসনয়া স্বাদ্বী ভাসতে কাপি কস্যচিত্ ॥৮৪॥
+
 > yathottaram asau svāda-
 > viśeṣollāsa-mayy api
 > ratir vāsanayā svādvī

@@ -1,5 +1,8 @@
 ### CC Antya 20.36
 
+> নয়নং গলদশ্রুধারয়া, বদনং গদ্গদ-রুদ্ধয়া গিরা ।
+> পুলকৈর্নিচিতং বপুঃ কদা তব নাম-গ্রহণে ভবিষ্যতি ॥৩৬॥
+
 > nayanaṁ galad-aśru-dhārayā
 > vadanaṁ gadgada-ruddhayā girā
 > pulakair nicitaṁ vapuḥ kadā,

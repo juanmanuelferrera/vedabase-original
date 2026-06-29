@@ -1,5 +1,8 @@
 ### CC Madhya 8.297
 
+> বিষয় ছাড়িয়া তুমি যাহ নীলাচলে ।
+> আমি তীর্থ করি’ তাঁহা আসিব অল্পকালে ॥২৯৭॥
+
 > viṣaya chāḍiyā tumi yāha nīlācale
 > āmi tīrtha kari' tāṅhā āsiba alpa-kāle
 

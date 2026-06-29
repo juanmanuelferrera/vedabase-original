@@ -1,5 +1,8 @@
 ### CC Madhya 12.162
 
+> পাছে মোরে প্রসাদ গোবিন্দ দিবে বহির্দ্বারে  ।
+> মন জানি’ প্রভু পুনঃ না বলিল তাঁরে ॥১৬২॥
+
 pāche more prasāda govinda dibe bahirdvāre
 
 mana jāni' prabhu punaḥ nā balila tāṅre

@@ -1,5 +1,8 @@
 ### CC Madhya 4.105
 
+> এইমত বৎসর দুই করিল সেবন ।
+> একদিন পুরী-গোসাঞি দেখিল স্বপন ॥১০৫॥
+
 > ei-mata vatsara dui karila sevana
 > eka-dina purī-gosāñi dekhila svapana
 

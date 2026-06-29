@@ -1,5 +1,10 @@
 ### CC Madhya 20.145
 
+> ব্যামোহায় চরাচরস্য জগতস্তে তে পুরাণাগমা-
+> স্তাং তামেব হি দেবতাং পরমিকাং জল্পন্তু কল্পাবধি ।
+> সিদ্ধান্তে পুনরেক এব ভগবান্ বিষ্ণুঃ সমস্তাগম-
+> ব্যাপারেষু বিবেচনব্যতিকরং নীতেষু নিশ্চীয়তে ॥১৪৫॥
+
 > vyāmohāya carācarasya jagatas te te purāṇāgamās
 > tāṁ tām eva hi devatāṁ paramikāṁ jalpantu kalpāvadhi
 > siddhānte punar eka eva bhagavān viṣṇuḥ samastāgama-

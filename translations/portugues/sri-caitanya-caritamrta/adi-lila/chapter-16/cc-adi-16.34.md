@@ -1,5 +1,8 @@
 ### CC Adi 16.34
 
+> কাহাঁ তুমি সর্বশাস্ত্রে কবিত্বে প্রবীণ ।
+> কাহাঁ আমি সবে শিশু — পড়ুয়া নবীন ॥৩৪॥
+
 kāhāṅ tumi sarva-śāstre kavitve pravīṇa
 kāhāṅ āmi sabe śiśu--paḍuyā navīna
 

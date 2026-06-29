@@ -1,5 +1,8 @@
 ### CC Madhya 25.77
 
+> স বৈ ভগবতঃ শ্রীমৎপাদস্পর্শহতাশুভঃ ।
+> ভেজে সর্পবপুর্হিত্বা রূপং বিদ্যাধরার্চিতম্ ।।” ॥ ৭৭ ॥
+
 > sa vai bhagavataḥ śrīmat-
 > pāda-sparśa-hatāśubhaḥ
 > bheje sarpa-vapur hitvā

@@ -1,5 +1,8 @@
 ### SB 5.3.17
 
+> श्रीभगवानुवाच
+> अहो बताहमृषयो भवद्भिरवितथगीर्भिर्वरमसुलभमभियाचितो यदमुष्यात्मजो मयासदृशो भूयादिति ममाहमेवाभिरूपः कैवल्यादथापि ब्रह्मवादो न मृषा भवितुमर्हति ममैव हिमुखं यद्द्विजदेवकुलम ॥१६॥
+
 > śrī-bhagavān uvāca
 > aho batāham ṛṣayo bhavadbhir avitatha-gīrbhir varam asulabham abhiyācito yad amuṣyātmajo mayā sadṛśo bhūyād iti mamāham evābhirūpaḥ kaivalyād athāpi brahma-vādo na mṛṣā bhavitum arhati mamaiva hi mukhaṁ yad dvija-deva-kulam.
 

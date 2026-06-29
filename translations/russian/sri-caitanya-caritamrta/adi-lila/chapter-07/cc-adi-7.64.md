@@ -1,5 +1,8 @@
 ### CC Adi 7.64
 
+> প্রভু কহে, — আমি হই হীন-সম্প্রদায় ।
+> তোমা-সবার সভায় বসিতে না যুয়ায় ॥৬৪॥
+
 > prabhu kahe,—āmi ha-i hīna-sampradāya
 > tomā-sabāra sabhāya vasite nā yuyāya
 

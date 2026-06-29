@@ -1,5 +1,8 @@
 ### CC Madhya 16.18
 
+> খণ্ডবাসী নরহরি, শ্রীরঘুনন্দন ।
+> সর্ব-ভক্ত চলে, তার কে করে গণন ॥১৮॥
+
 > khaṇḍa-vāsī narahari, śrī-raghunandana
 > sarva-bhakta cale, tāra ke kare gaṇana
 

@@ -1,5 +1,8 @@
 ### CC Adi 7.61
 
+> প্রভাবে আকর্ষিল সব সন্ন্যাসীর মন ।
+> উঠিল সন্ন্যাসী সব ছাড়িয়া আসন ॥৬১॥
+
 prabhāve ākarṣila saba sannyāsīra mana
 
 uṭhila sannyāsī saba chāḍiyā āsana

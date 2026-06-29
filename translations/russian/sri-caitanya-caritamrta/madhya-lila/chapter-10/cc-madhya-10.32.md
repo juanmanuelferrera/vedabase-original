@@ -1,5 +1,8 @@
 ### CC Madhya 10.32
 
+> কাশীমিশ্র আসি’ পড়িল প্রভুর চরণে ।
+> গৃহ-সহিত আত্মা তাঁরে কৈল নিবেদনে ॥৩২॥
+
 > kāśī-miśra āsi' paḍila prabhura caraṇe
 > gṛha-sahita ātmā tāṅre kaila nivedane
 

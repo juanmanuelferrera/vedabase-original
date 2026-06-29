@@ -1,5 +1,8 @@
 ### CC Antya 12.71
 
+> মোর লাগি’ স্ত্রী-পুত্র-গৃহাদি ছাড়িয়া ।
+> নানা দুর্গম পথ লঙ্ঘি’ আইসেন ধাঞা ॥৭১॥
+
 > mora lāgi' strī-putra-gṛhādi chāḍiyā
 > nānā durgama patha laṅghi' āisena dhāñā
 

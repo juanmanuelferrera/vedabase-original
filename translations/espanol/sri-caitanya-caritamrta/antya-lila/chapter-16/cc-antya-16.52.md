@@ -1,5 +1,8 @@
 ### CC Antya 16.52
 
+> নমস্তে নরসিংহায় প্রহ্লাদাহ্লাদদায়িনে ।
+> হিরণ্যকশিপোর্বক্ষঃশিলাটঙ্ক-নখালয়ে ॥৫২॥
+
 > namas te nara-siṁhāya
 > prahlādāhlāda-dāyine
 > hiraṇyakaśipor vakṣaḥ-

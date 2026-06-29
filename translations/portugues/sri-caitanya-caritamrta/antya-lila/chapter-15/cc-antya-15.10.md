@@ -1,5 +1,8 @@
 ### CC Antya 15.10
 
+> হেনকালে ঈশ্বরের উপলভোগ সরিল ।
+> ভক্তগণ মহাপ্রভুরে ঘরে লঞা আইল ॥১০॥
+
 hena-kāle īśvarera upala-bhoga sarila
 bhakta-gaṇa mahāprabhure ghare lañā āila
 

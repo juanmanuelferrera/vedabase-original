@@ -1,5 +1,8 @@
 ### CC Antya 19.15
 
+> জগদানন্দ নদীয়া গিয়া মাতারে মিলিলা ।
+> প্রভুর যত নিবেদন, সকল কহিলা ॥১৫॥
+
 > jagadānanda nadīyā giyā mātāre mililā
 > prabhura yata nivedana, sakala kahilā
 

@@ -1,5 +1,8 @@
 ### SB 1.2.11
 
+> वदन्ति तत्तत्त्वविदस्तत्त्वं यज्ज्ञानमद्वयम् ।
+> ब्रह्मेति परमात्मेति भगवानिति शब्द्यते ॥११॥
+
 *vadanti tat tattva*-vidas
 tattvaṁ yaj jñānam advayam
 brahmeti paramātmeti

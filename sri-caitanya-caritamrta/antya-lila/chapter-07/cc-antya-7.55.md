@@ -1,5 +1,8 @@
 ### CC Antya 7.55
 
+> ভট্টের মনেতে এই ছিল দীর্ঘ গর্ব ।
+> প্রভুর বচন শুনি' সে হইল খর্ব ॥৫৫॥
+
 > bhaṭṭera manete ei chila dīrgha garva
 > prabhura vacana śuni' se ha-ila kharva
 

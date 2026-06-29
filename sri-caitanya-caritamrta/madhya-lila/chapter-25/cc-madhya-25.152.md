@@ -1,5 +1,8 @@
 ### CC Madhya 25.152
 
+> বয়ন্তু ন বিতৃপ্যাম উত্তমঃশ্লোক বিক্রমে ।
+> যচ্ছৃণ্বতাং রসজ্ঞানাং স্বাদু স্বাদু পদে পদে ॥১৫২॥
+
 > vayaṁ tu na vitṛpyāma
 > uttamaḥśloka-vikrame
 > yac chṛṇvatāṁ rasa-jñānāṁ

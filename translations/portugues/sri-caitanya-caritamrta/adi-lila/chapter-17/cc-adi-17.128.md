@@ -1,5 +1,8 @@
 ### CC Adi 17.128
 
+> আর যদি কীর্তন করিতে লাগ পাইমু ।
+> সর্বস্ব দণ্ডিয়া তার জাতি যে লইমু ॥১২৮॥
+
 āra yadi kīrtana karite lāga pāimu
 
 sarvasva daṇḍiyā tāra jāti ye la-imu

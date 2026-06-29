@@ -1,5 +1,8 @@
 ### CC Antya 10.128
 
+> গোবিন্দ বলে, — ‘রাঘবের ঝালি মাত্র আছে’ ।
+> প্রভু কহে, — ‘আজি রহু, তাহা দেখিমু পাছে’ ॥১২৮॥
+
 > govinda bale,—'rāghavera jhāli mātra āche'
 > prabhu kahe,—'āji rahu, tāhā dekhimu pāche'
 

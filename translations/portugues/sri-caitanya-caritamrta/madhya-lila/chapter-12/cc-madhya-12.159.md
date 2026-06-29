@@ -1,5 +1,8 @@
 ### CC Madhya 12.159
 
+> তার তলে, তার তলে করি’ অনুক্রম ।
+> উদ্যান ভরি’ বৈসে ভক্ত করিতে ভোজন ॥১৫৯॥
+
 tāra tale, tāra tale kari' anukrama
 
 udyāna bhari' vaise bhakta karite bhojana

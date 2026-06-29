@@ -1,5 +1,8 @@
 ### CC Madhya 15.291
 
+> প্রভু কহে, — অমোঘ শিশু, তোমার বালক ।
+> বালক-দোষ না লয় পিতা, তাহাতে পালক ॥২৯১॥
+
 prabhu kahe,--amogha śiśu, tomāra bālaka
 
 bālaka-doṣa nā laya pitā, tāhāte pālaka

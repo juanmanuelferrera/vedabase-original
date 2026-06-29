@@ -1,5 +1,8 @@
 ### CC Adi 17.103
 
+> আর দিনে জ্যোতিষ সর্বজ্ঞ এক আইল ।
+> তাহারে সম্মান করি’ প্রভু প্রশ্ন কৈল ॥১০৩॥
+
 āra dine jyotiṣa sarva-jña eka āila
 
 tāhāre sammāna kari' prabhu praśna kaila

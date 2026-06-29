@@ -1,5 +1,8 @@
 ### CC Madhya 21.31
 
+> ঐশ্বর্য কহিতে স্ফুরিল ঐশ্বর্য-সাগর ।
+> মনেন্দ্রিয় ডুবিলা, প্রভু হইলা ফাঁপর ॥৩১॥
+
 > aiśvarya kahite sphurila aiśvarya-sāgara
 > manendriya ḍubilā, prabhu ha-ilā phāṅpara
 

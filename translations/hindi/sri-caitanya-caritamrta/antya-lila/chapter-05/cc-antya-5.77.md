@@ -1,5 +1,8 @@
 ### CC Antya 5.77
 
+> প্রভু কহে, — “রামানন্দ বিনয়ের খনি ।
+> আপনার কথা পরমুণ্ডে দেন আনি’ ॥৭৭॥
+
 > prabhu kahe,--"rāmānanda vinayera khani
 > āpanāra kathā para-muṇḍe dena āni'
 

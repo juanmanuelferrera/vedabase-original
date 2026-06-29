@@ -1,5 +1,8 @@
 ### SB 3.2.25
 
+> वसुदेवस्य देवक्यां जातो भोजेन्द्रबन्धने ।
+> चिकीर्षुर्भगवानस्याः शमजेनाभियाचितः ॥२५॥
+
 > vasudevasya devakyāṁ
 > jāto bhojendra-bandhane
 > cikīrṣur bhagavān asyāḥ

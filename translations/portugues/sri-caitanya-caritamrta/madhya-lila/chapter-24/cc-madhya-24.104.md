@@ -1,5 +1,8 @@
 ### CC Madhya 24.104
 
+> সাধুসঙ্গ, কৃষ্ণকৃপা, ভক্তির স্বভাব ।
+> এ তিনে সব ছাড়ায়, করে কৃষ্ণে ‘ভাব’ ॥১০৪॥
+
 sādhu-saṅga, kṛṣṇa-kṛpā, bhaktira svabhāva
 
 e tine saba chāḍāya, kare kṛṣṇe 'bhāva'

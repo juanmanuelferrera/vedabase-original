@@ -1,5 +1,10 @@
 ### CC Antya 18.106
 
+> গঙ্গাজল, অমৃতকেলি, পীযূষগ্রন্থি, কর্পূরকেলি,
+> সরপূরী, অমৃতি, পদ্মচিনি ।
+> খণ্ডক্ষীরিসার-বৃক্ষ, ঘরে করি’ নানা ভক্ষ্য,
+> রাধা যাহা কৃষ্ণ লাগি’ আনি ॥১০৬॥
+
 > gaṅgājala, amṛtakeli, pīyūṣagranthi, karpūrakeli,
 > sarapūrī, amṛti, padmacini
 > khaṇḍa-kṣīrisāra-vṛkṣa, ghare kari' nānā bhakṣya,

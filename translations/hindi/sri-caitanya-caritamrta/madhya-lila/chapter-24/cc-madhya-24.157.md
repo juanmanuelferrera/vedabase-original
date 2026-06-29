@@ -1,5 +1,10 @@
 ### CC Madhya 24.157
 
+> এবং হরৌ ভগবতি প্রতিলব্ধভাবো
+> ভক্ত্যা দ্রবদ্ধৃদয় উৎপুলকঃ প্রমোদাত্ ।
+> ঔৎকণ্ঠ্যবাষ্পকলয়া মুহুরর্দ্যমান-
+> স্তচ্চাপি চিত্তবড়িশং শনকৈর্বিযুঙ্ক্তে ॥১৫৭॥
+
 > evaṁ harau bhagavati pratilabdha-bhāvo
 > bhaktyā dravad-dhṛdaya utpulakaḥ pramodāt
 > autkaṇṭhya-bāṣpa-kalayā muhur ardyamānas

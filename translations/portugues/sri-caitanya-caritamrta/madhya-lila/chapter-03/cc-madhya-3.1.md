@@ -1,5 +1,10 @@
 ### CC Madhya 3.1
 
+> ন্যাসং বিধায়োৎপ্রণয়োঽথ গৌরো
+> বৃন্দাবনং গন্তুমনা ভ্রমাদ্ যঃ ।
+> রাঢ়ে ভ্রমন্ শান্তিপুরীময়িত্বা
+> ললাস ভক্তৈরিহ তং নতোঽস্মি ॥১॥
+
 nyāsaṁ vidhāyotpraṇayo 'tha gauro
 vṛndāvanaṁ gantu-manā bhramād yaḥ
 rāḍhe bhraman śānti-purīm ayitvā

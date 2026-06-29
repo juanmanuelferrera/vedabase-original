@@ -1,5 +1,8 @@
 ### CC Madhya 16.227
 
+> প্রভু তাঁরে বিদায় দিয়া গেলা নীলাচল ।
+> তেঁহো ঘরে আসি’ হৈলা প্রেমেতে পাগল ॥২২৭॥
+
 > prabhu tāṅre vidāya diyā gelā nīlācala
 > teṅho ghare āsi' hailā premete pāgala
 

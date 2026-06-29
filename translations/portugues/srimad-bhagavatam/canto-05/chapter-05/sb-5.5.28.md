@@ -1,5 +1,8 @@
 ### SB 5.5.28
 
+> श्रीशुक उवाच
+> एवमनुशास्यात्मजान्स्वयमनुशिष्टानपि लोकानुशासनार्थं महानुभावः परमसुहृद्भगवानृषभापदेश उपशमशीलानामुपरतकर्मणां महामुनीनां भक्तिज्ञआनवैराग्यलक्षणं पारमहंस्यधर्ममुपशिक्षमाणः स्वतनयशतज्येष्ठं परमभागवतं भगवजजनपरायणं भरतं धरणिपालनायाभिषिच्य स्वयं भवन एवोर्वरितशरीरमात्रपरिग्रह उन्मत्तइव गगनपरिधानः प्रकीर्णकेश आत्मन्यारोपिताहवनीयो ब्रह्मावर्तात्प्रवव्राज ॥२८॥
+
 śrī-śuka uvāca
 
 *evam anuśāsyātmajān svayam anuśiṣṭān api lokānuśāsanārthaṁ mahānubhāvaḥ parama*-suhṛd bhagavān ṛṣabhāpadeśa upaśama-śīlānām uparata-karmaṇāṁ mahā-munīnāṁ bhakti-jñāna-vairāgya-lakṣaṇaṁ pāramahaṁsya-dharmam upaśikṣamāṇaḥ sva-tanaya-śata-jyeṣṭhaṁ parama-bhāgavataṁ bhagavaj-jana-parāyaṇaṁ bharataṁ dharaṇi-pālanāyābhiṣicya svayaṁ bhavana evorvarita-śarīra-mātra-parigraha unmatta iva gagana-paridhānaḥ prakīrṇa-keśa ātmany āropitāhavanīyo brahmāvartāt pravavrāja.

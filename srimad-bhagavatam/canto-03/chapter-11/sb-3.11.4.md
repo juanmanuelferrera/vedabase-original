@@ -1,5 +1,8 @@
 ### SB 3.11.4
 
+> स कालः परमाणुर्वै यो भुङ्क्ते परमाणुताम् ।
+> सतोऽविशेषभुग्यस्तु स कालः परमो महान् ॥४॥
+
 > sa kālaḥ paramāṇur vai
 > yo bhuṅkte paramāṇutām
 > sato 'viśeṣa-bhug yas tu

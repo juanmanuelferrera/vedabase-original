@@ -1,5 +1,8 @@
 ### CC Antya 3.57
 
+> অজামিল পুত্রে বোলায় বলি ‘নারায়ণ’ ।
+> বিষ্ণুদূত আসি’ ছাড়ায় তাহার বন্ধন ॥৫৭॥
+
 ajāmila putre bolāya bali 'nārāyaṇa'
 
 viṣṇu-dūta āsi' chāḍāya tāhāra bandhana

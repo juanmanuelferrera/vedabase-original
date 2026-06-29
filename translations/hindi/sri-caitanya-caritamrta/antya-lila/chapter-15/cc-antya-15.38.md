@@ -1,5 +1,7 @@
 ### CC Antya 15.38
 
+> এ কেনে কহিবে কৃষ্ণের উদ্দেশ আমায় ? এ — স্ত্রীজাতি লতা, আমার সখীপ্রায় ॥৩৮॥
+
 > e kene kahibe kṛṣṇera uddeśa āmāya?
 > e--strī-jāti latā, āmāra sakhī-prāya
 

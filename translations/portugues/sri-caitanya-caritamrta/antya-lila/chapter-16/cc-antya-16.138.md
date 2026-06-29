@@ -1,5 +1,8 @@
 ### CC Antya 16.138
 
+> তাতে জানি, — কোন তপস্যার আছে বল ।
+> অযোগ্যেরে দেওয়ায় কৃষ্ণাধরামৃত-ফল ॥১৩৮॥
+
 tāte jāni,--kona tapasyāra āche bala
 
 ayogyere deoyāya kṛṣṇādharāmṛta-phala

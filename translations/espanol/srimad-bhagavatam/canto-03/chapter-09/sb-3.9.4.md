@@ -1,5 +1,10 @@
 ### SB 3.9.4
 
+> तद्वा इदं भुवनमङ्गल मङ्गलाय
+> ध्याने स्म नो दर्शितं त उपासकानाम् ।
+> तस्मै नमो भगवतेऽनुविधेम तुभ्यं
+> योऽनादृतो नरकभाग्भिरसत्प्रसङ्गैः ॥४॥
+
 > tad vā idaṁ bhuvana-maṅgala maṅgalāya
 > dhyāne sma no darśitaṁ ta upāsakānām
 > tasmai namo bhagavate 'nuvidhema tubhyaṁ

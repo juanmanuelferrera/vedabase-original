@@ -1,5 +1,8 @@
 ### CC Antya 4.83
 
+> এত সব কর্ম আমি যে-দেহে করিমু ।
+> তাহা ছাড়িতে চাহ তুমি, কেমনে সহিমু ?” ॥ ৮৩ ॥
+
 > eta saba karma āmi ye-dehe karimu
 > tāhā chāḍite cāha tumi, kemane sahimu?"
 

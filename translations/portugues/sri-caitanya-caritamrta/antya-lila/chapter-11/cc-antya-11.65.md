@@ -1,5 +1,8 @@
 ### CC Antya 11.65
 
+> হরিদাসের পাদোদক পিয়ে ভক্তগণ ।
+> হরিদাসের অঙ্গে দিলা প্রসাদ-চন্দন ॥৬৫॥
+
 haridāsera pādodaka piye bhakta-gaṇa
 
 haridāsera aṅge dilā prasāda-candana

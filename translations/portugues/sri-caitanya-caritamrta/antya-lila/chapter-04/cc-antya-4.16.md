@@ -1,5 +1,8 @@
 ### CC Antya 4.16
 
+> হেনকালে প্রভু ‘উপলভোগ’ দেখিয়া ।
+> হরিদাসে মিলিতে আইলা ভক্তগণ লঞা ॥১৬॥
+
 hena-kāle prabhu 'upala-bhoga' dekhiyā
 
 haridāse milite āilā bhakta-gaṇa lañā

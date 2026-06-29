@@ -1,5 +1,8 @@
 ### SB 1.8.19
 
+> मायाजवनिकाच्छन्नमज्ञाधोक्षजमव्ययम् ।
+> न लक्ष्यसे मूढदृशा नटो नाट्यधरो यथा ॥१९॥
+
 *māyā*-javanikācchannam
 ajñādhokṣajam avyayam
 *na lakṣyase mūḍha*-dṛśā

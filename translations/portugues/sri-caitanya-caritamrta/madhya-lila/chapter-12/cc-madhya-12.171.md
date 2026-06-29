@@ -1,5 +1,8 @@
 ### CC Madhya 12.171
 
+> পুনরপি সেই দ্রব্য করে নিরীক্ষণ ।
+> তাঁর ভয়ে প্রভু কিছু করেন ভক্ষণ ॥১৭১॥
+
 punarapi sei dravya kare nirīkṣaṇa
 
 tāṅra bhaye prabhu kichu karena bhakṣaṇa

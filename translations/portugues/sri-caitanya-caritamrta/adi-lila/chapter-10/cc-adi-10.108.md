@@ -1,5 +1,8 @@
 ### CC Adi 10.108
 
+> জগন্নাথ আচার্য প্রভুর প্রিয় দাস ।
+> প্রভুর আজ্ঞাতে তেঁহো কৈল গঙ্গাবাস ॥১০৮॥
+
 jagannātha ācārya prabhura priya dāsa
 
 prabhura ājñāte teṅho kaila gaṅgā-vāsa

@@ -1,5 +1,8 @@
 ### SB 6.8.19
 
+> द्वैपायनो भगवानप्रबोधाद्बुद्धस्तु पाषण्डगणप्रमादात
+> कल्किः कलेः कालमलात्प्रपातु धर्मावनायोरुकृतावतारः ॥१९॥
+
 > dvaipāyano bhagavān aprabodhād
 > buddhas tu pāṣaṇḍa-gaṇa-pramādāt
 > kalkiḥ kaleḥ kāla-malāt prapātu

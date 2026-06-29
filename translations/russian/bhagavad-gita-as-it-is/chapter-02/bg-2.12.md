@@ -1,5 +1,8 @@
 ### Bg 2.12
 
+> न त्वेवाहं जातु नासं न त्वं नेमे जनाधिपाः ।
+> न चैव न भविष्यामः सर्वे वयमतः परम् ॥१२॥
+
 > na tv evāhaṁ jātu nāsaṁ
 > na tvaṁ neme janādhipāḥ
 > na caiva na bhaviṣyāmaḥ

@@ -1,5 +1,8 @@
 ### CC Madhya 8.29
 
+> সুস্থ হঞা দুঁহে সেই স্থানেতে বসিলা ৷
+> তবে হাসি’ মহাপ্রভু কহিতে লাগিলা ৷৷ ২৯ ৷৷ ॥২৯॥
+
 sustha hañā duṅhe sei sthānete vasilā
 
 tabe hāsi' mahāprabhu kahite lāgilā

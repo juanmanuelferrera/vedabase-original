@@ -1,5 +1,8 @@
 ### CC Antya 6.23
 
+> বিশেষে কায়স্থ-বুদ্ধ্যে অন্তরে করে ডর ।
+> মুখে তর্জে গর্জে, মারিতে সভয় অন্তর ॥২৩॥
+
 viśeṣe kāyastha-buddhye antare kare ḍara
 
 mukhe tarje garje, mārite sabhaya antara

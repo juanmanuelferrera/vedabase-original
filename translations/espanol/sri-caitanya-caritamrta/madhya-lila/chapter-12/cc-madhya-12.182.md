@@ -1,5 +1,8 @@
 ### CC Madhya 12.182
 
+> মহাপ্রভু বিনা কেহ নাহি দয়াময় ।
+> কাকেরে গরুড় করে, — ঐছে কোন্ হয় ॥১৮২॥
+
 > mahāprabhu vinā keha nāhi dayāmaya
 > kākere garuḍa kare,-aiche kon haya
 

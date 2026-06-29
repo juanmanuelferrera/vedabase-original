@@ -1,5 +1,8 @@
 ### CC Antya 9.1
 
+> অগণ্যধন্যচৈতন্যগণানাং প্রেমবন্যয়া ।
+> নিন্যেঽধন্যজনস্বান্তমরুঃ শশ্বদনূপতাম্ ॥১॥
+
 agaṇya-dhanya-caitanya-
 gaṇānāṁ prema-vanyayā
 ninye 'dhanya-jana-svānta-

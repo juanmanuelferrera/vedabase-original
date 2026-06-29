@@ -1,5 +1,8 @@
 ### CC Antya 16.23
 
+> ঠাকুর কহে, — “ঐছে বাত্ কহিতে না যুয়ায় ।
+> আমি — নীচজাতি, তুমি — সুসজ্জন রায় ।।” ॥ ২৩ ॥
+
 > ṭhākura kahe,—"aiche vāt kahite nā yuyāya
 > āmi—nīca-jāti, tumi—susajjana rāya"
 

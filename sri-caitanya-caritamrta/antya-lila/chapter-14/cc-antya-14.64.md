@@ -1,5 +1,8 @@
 ### CC Antya 14.64
 
+> প্রভু পড়ি’ আছেন দীর্ঘ হাত পাঁচ-ছয় ।
+> অচেতন দেহ, নাসায় শ্বাস নাহি বয় ॥৬৪॥
+
 > prabhu paḍi' āchena dīrgha hāta pāṅca-chaya
 > acetana deha, nāsāya śvāsa nāhi vaya
 

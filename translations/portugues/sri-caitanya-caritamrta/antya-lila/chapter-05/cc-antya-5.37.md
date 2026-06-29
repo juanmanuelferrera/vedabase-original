@@ -1,5 +1,8 @@
 ### CC Antya 5.37
 
+> রামানন্দ রায়ের কথা শুন, সর্বজন ।
+> কহিবার কথা নহে, যাহা আশ্চর্য-কথন ॥৩৭॥
+
 rāmānanda rāyera kathā śuna, sarva-jana
 
 kahibāra kathā nahe, yāhā āścarya-kathana

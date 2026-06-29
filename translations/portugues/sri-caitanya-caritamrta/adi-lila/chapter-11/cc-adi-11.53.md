@@ -1,5 +1,8 @@
 ### CC Adi 11.53
 
+> নর্তক গোপাল, রামভদ্র, গৌরাঙ্গদাস ।
+> নৃসিংহচৈতন্য, মীনকেতন রামদাস ॥৫৩॥
+
 nartaka gopāla, rāmabhadra, gaurāṅga-dāsa
 
 nṛsiṁha-caitanya, mīnaketana rāmadāsa

@@ -1,5 +1,8 @@
 ### SB 9.4.49
 
+> तदभिद्रवदुद्वीक्ष्य स्वप्रयासं च निष्फलम
+> दुर्वासा दुद्रुवे भीतो दिक्षु प्राणपरीप्सया ॥४९॥
+
 > tad-abhidravad udvīkṣya
 > sva-prayāsaṁ ca niṣphalam
 > durvāsā dudruve bhīto

@@ -1,5 +1,8 @@
 ### CC Madhya 20.226
 
+> পরব্যোমে বাসুদেবাদি — নিজ নিজ অস্ত্রধর ।
+> তাঁর মত কহি, যে-সব অস্ত্রকর ॥২২৬॥
+
 > paravyome vāsudevādi—nija nija astra-dhara
 > tāṅra mata kahi, ye-saba astra-kara
 

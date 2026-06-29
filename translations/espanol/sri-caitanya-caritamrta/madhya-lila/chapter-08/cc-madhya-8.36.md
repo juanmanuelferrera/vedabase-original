@@ -1,5 +1,8 @@
 ### CC Madhya 8.36
 
+> মোর স্পর্শে না করিলে ঘৃণা, বেদভয় ৷
+> মোর দর্শন তোমা বেদে নিষেধয় ৷৷ ৩৬ ৷৷ ॥৩৬॥
+
 > mora sparśe nā karile ghṛṇā, veda-bhaya
 > mora darśana tomā vede niṣedhaya
 

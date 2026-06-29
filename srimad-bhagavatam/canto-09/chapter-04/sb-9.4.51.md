@@ -1,5 +1,8 @@
 ### SB 9.4.51
 
+> दिशो नभः क्ष्मां विवरान्समुद्रान्लोकान्सपालांस्त्रिदिवं गतः सः
+> यतो यतो धावति तत्र तत्र सुदर्शनं दुष्प्रसहं ददर्श ॥५१॥
+
 > diśo nabhaḥ kṣmāṁ vivarān samudrān
 > lokān sapālāṁs tridivaṁ gataḥ saḥ
 > yato yato dhāvati tatra tatra

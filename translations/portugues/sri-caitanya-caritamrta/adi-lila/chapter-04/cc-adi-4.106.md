@@ -1,5 +1,8 @@
 ### CC Adi 4.106
 
+> রাধিকার ভাব-মূর্তি প্রভুর অন্তর ।
+> সেই ভাবে সুখ-দুঃখ উঠে নিরন্তর ॥১০৬॥
+
 rādhikāra bhāva-mūrti prabhura antara
 sei bhāve sukha-duḥkha uṭhe nirantara
 

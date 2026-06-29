@@ -1,5 +1,8 @@
 ### CC Madhya 7.119
 
+> কতক্ষণে প্রভু যদি বাহ্য প্রকাশিলা ৷
+> কূর্মের সেবক বহু সম্মান করিলা ৷৷ ১১৯ ৷৷ ॥১১৯॥
+
 > kata-kṣaṇe prabhu yadi bāhya prakāśilā
 > kūrmera sevaka bahu sammāna karilā
 

@@ -1,5 +1,8 @@
 ### CC Antya 19.89
 
+> নিরন্তর নাসায় পশে কৃষ্ণ-পরিমল ।
+> গন্ধ আস্বাদিতে প্রভু হইলা পাগল ॥৮৯॥
+
 nirantara nāsāya paśe kṛṣṇa-parimala
 
 gandha āsvādite prabhu ha-ilā pāgala

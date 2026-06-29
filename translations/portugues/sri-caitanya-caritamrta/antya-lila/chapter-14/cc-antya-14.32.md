@@ -1,5 +1,8 @@
 ### CC Antya 14.32
 
+> স্বপ্নের দর্শনাবেশে তদ্রূপ হৈল মন ।
+> যাহাঁ তাহাঁ দেখে সর্বত্র মুরলী-বদন ॥৩২॥
+
 svapnera darśanāveśe tad-rūpa haila mana
 
 yāhāṅ tāhāṅ dekhe sarvatra muralī-vadana

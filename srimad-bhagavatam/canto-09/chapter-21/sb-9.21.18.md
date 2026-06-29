@@ -1,5 +1,8 @@
 ### SB 9.21.18
 
+> तत्प्रसङ्गानुभावेन रन्तिदेवानुवर्तिनः
+> अभवन्योगिनः सर्वे नारायणपरायणाः ॥१८॥
+
 > tat-prasaṅgānubhāvena
 > rantidevānuvartinaḥ
 > abhavan yoginaḥ sarve

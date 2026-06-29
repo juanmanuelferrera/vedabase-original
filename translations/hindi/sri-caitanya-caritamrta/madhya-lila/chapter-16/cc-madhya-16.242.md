@@ -1,5 +1,8 @@
 ### CC Madhya 16.242
 
+> এত কহি’ মহাপ্রভু তাঁরে বিদায় দিল ।
+> ঘরে আসি’ মহাপ্ৰভুর শিক্ষা আচরিল ॥২৪২॥
+
 > eta kahi' mahāprabhu tāṅre vidāya dila
 > ghare āsi' mahāprabhura śikṣā ācarila
 

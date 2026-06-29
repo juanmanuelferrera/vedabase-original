@@ -1,5 +1,8 @@
 ### CC Adi 5.174
 
+> ইহা জানি’ রামদাসের দুঃখ হইল মনে ।
+> তবে ত’ ভ্রাতারে আমি করিনু ভর্ৎসনে ॥১৭৪॥
+
 ihā jāni' rāmadāsera duḥkha ha-ila mane
 
 tabe ta' bhrātāre āmi karinu bhartsane

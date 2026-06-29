@@ -1,5 +1,8 @@
 ### CC Madhya 22.121
 
+> শ্রবণ, কীর্তন স্মরণ, পূজন, বন্দন ।
+> পরিচর্যা, দাস্য, সখ্য, আত্মনিবেদন ॥১২১॥
+
 śravaṇa, kīrtana, smaraṇa, pūjana, vandana
 
 paricaryā, dāsya, sakhya, ātma-nivedana

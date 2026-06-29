@@ -1,5 +1,8 @@
 ### CC Madhya 15.24
 
+> শিরের উপরে, পৃষ্ঠে, সম্মুখে, দুই-পাশে ।
+> পাদমধ্যে ফিরায় লগুড়, — দেখি’ লোক হাসে ॥২৪॥
+
 > śirera upare, pṛṣṭhe, sammukhe, dui-pāśe
 > pāda-madhye phirāya laguḍa,—dekhi' loka hāse
 

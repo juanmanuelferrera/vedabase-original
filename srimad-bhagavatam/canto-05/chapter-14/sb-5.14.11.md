@@ -1,5 +1,7 @@
 ### SB 5.14.11
 
+> क्वचिदुलूकझिल्लीस्वनवदतिपरुषरभसाटोपं प्रत्यक्षं परोक्षं वा रिपुराजकुलनिर्भर्त्सितेनातिव्यथितकर्णमूलहृदयः ॥११॥
+
 > kvacid ulūka-jhillī-svanavad ati-paruṣa-rabhasāṭopaṁ pratyakṣaṁ parokṣaṁ vā ripu-rāja-kula-nirbhartsitenāti-vyathita-karṇa-mūla-hṛdayaḥ.
 
 *kvacit*—sometimes; *ulūka*—of the owl; *jhillī*—and the cricket; *svana-vat*—exactly like intolerable sounds; *ati-paruṣa*—extremely piercing; *rabhasa*—by perseverance; *āṭopam*—agitation; *pratyakṣam*—directly; *parokṣam*—indirectly; *vā*—or; *ripu*—of enemies; *rāja-kula*—and of government officers; *nirbhartsitena*—by chastisement; *ati-vyathita*—very aggrieved; *karṇa-mūla-hṛdayaḥ*—whose ear and heart.

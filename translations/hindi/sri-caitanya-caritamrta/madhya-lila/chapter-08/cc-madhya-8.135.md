@@ -1,5 +1,8 @@
 ### CC Madhya 8.135
 
+> অনন্ত বৈকুণ্ঠ, আর অনন্ত অবতার ।
+> অনন্ত ব্রহ্মাণ্ড ইহাঁ, — সবার আধার ॥১৩৫॥
+
 > ananta vaikuṇṭha, āra ananta avatāra
 > ananta brahmāṇḍa ihāṅ,--sabāra ādhāra
 

@@ -1,5 +1,8 @@
 ### CC Madhya 2.6
 
+> রোমকূপে রক্তোদগম, দন্ত সব হালে ।
+> ক্ষণে অঙ্গ ক্ষীণ হয়, ক্ষণে অঙ্গ ফুলে ॥৬॥
+
 > roma-kūpe raktodgama, danta saba hāle
 > kṣaṇe aṅga kṣīṇa haya, kṣaṇe aṅga phule
 

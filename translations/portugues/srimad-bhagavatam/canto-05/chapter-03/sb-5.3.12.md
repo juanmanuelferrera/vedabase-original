@@ -1,5 +1,7 @@
 ### SB 5.3.12
 
+> अथ कथञ्चित्स्खलनक्षुत्पतनजृम्भणदुरवस्थानादिषु विवशानां नः स्मरणाय ज्वरमरणदशायामपि सकलकश्मलनिरसनानि तव गुणकृतनामधेयानि वचनगोचराणि भवन्तु ॥११॥
+
 *atha kathañcit skhalana*-kṣut-patana-jṛmbhaṇa-duravasthānādiṣu vivaśānāṁ naḥ smaraṇāya jvara-maraṇa-daśāyām api sakala-kaśmala-nirasanāni tava guṇa-kṛta-nāmadheyāni vacana-gocarāṇi bhavantu.
 
 *atha*—ainda assim; *kathañcit*—de algum modo; *skhalana*—tropeçando; *kṣut*—fome; *patana*—caindo; *jṛmbhaṇa*—bocejando; *duravasthāna*—por estarmos em uma posição indesejável; *ādiṣu*—e assim por diante; *vivaśānām*—incapazes; *naḥ*—de nós mesmos; *smaraṇāya*—de lembrar; *jvara-maraṇa-daśāyām*—no caso de termos febre alta na hora da morte; *api*—também; *sakala*—todos; *kaśmala*—pecados; *nirasanāni*—que podem dissipar; *tava*—Teus; *guṇa*—atributos; *kṛta*—atividades; *nāmadheyāni*—nomes; *vacana-gocarāṇi*—possíveis de serem proferidos; *bhavantu*—que se tornem.

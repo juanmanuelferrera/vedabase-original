@@ -1,5 +1,8 @@
 ### CC Madhya 9.348
 
+> মালা-প্রসাদ পাঞা প্রভু সুস্থির হইলা ৷
+> জগন্নাথের সেবক সব আনন্দে মিলিলা ৷৷ ৩৪৮ ৷৷ ॥৩৪৮॥
+
 mālā-prasāda pāñā prabhu susthira ha-ilā
 jagannāthera sevaka saba ānande mililā
 

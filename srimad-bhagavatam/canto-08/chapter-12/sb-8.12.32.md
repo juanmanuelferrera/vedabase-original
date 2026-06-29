@@ -1,5 +1,8 @@
 ### SB 8.12.32
 
+> तस्यानुधावतो रेतश्चस्कन्दामोघरेतसः
+> शुष्मिणो यूथपस्येव वासितामनुधावतः ॥३२॥
+
 > tasyānudhāvato retaś
 > caskandāmogha-retasaḥ
 > śuṣmiṇo yūthapasyeva

@@ -1,5 +1,8 @@
 ### CC Madhya 4.110
 
+> শান্তিপুর আইলা অদ্বৈতাচার্যের ঘরে ।
+> পুরীর প্রেম দেখি’ আচার্য আনন্দ অন্তরে ॥১১০॥
+
 śāntipura āilā advaitācāryera ghare
 purīra prema dekhi' ācārya ānanda antare
 

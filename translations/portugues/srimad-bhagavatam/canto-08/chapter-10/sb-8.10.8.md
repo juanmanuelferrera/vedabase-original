@@ -1,5 +1,8 @@
 ### SB 8.10.8
 
+> रथिनो रथिभिस्तत्र पत्तिभिः सह पत्तयः
+> हया हयैरिभाश्चेभैः समसज्जन्त संयुगे ॥८॥
+
 rathino rathibhis tatra
 
 pattibhiḥ saha pattayaḥ

@@ -1,5 +1,8 @@
 ### CC Madhya 6.229
 
+> স্বেদ-কম্প-অশ্রু দুঁহে আনন্দে ভাসিলা ।
+> প্রেমাবিষ্ট হঞা প্রভু কহিতে লাগিলা ॥২২৯॥
+
 sveda-kampa-aśru duṅhe ānande bhāsilā
 premāviṣṭa hañā prabhu kahite lāgilā
 

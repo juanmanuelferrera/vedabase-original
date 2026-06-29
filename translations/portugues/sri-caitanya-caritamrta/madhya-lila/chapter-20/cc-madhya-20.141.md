@@ -1,5 +1,8 @@
 ### CC Madhya 20.141
 
+> তৈছে ভক্তি-ফলে কৃষ্ণে প্রেম উপজয়  ।
+> প্রেমে কৃষ্ণাস্বাদ হৈলে ভব নাশ পায় ॥১৪১॥
+
 taiche bhakti-phale kṛṣṇe prema upajaya
 
 preme kṛṣṇāsvāda haile bhava nāśa pāya

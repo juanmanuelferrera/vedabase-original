@@ -1,5 +1,10 @@
 ### CC Antya 1.160
 
+> ক্বচিদ্ভৃঙ্গীগীতং ক্বচিদনিলভঙ্গী-শিশিরতা
+> ক্বচিদ্বল্লীলাস্যং ক্বচিদমলমল্লীপরিমলঃ ।
+> ক্বচিদ্ধারাশালী করকফলপালী-রসভরো
+> হৃষীকাণাং বৃন্দং প্রমদয়তি বৃন্দাবনমিদম্ ॥১৬০॥
+
 > kvacid bhṛṅgī-gītaṁ kvacid anila-bhaṅgī-śiśiratā
 > kvacid vallī-lāsyaṁ kvacid amala-mallī-parimalaḥ
 > kvacid dhārā-śālī karaka-phala-pālī-rasa-bharo

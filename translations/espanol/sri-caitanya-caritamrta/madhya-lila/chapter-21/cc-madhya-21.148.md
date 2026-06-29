@@ -1,5 +1,8 @@
 ### CC Madhya 21.148
 
+> কৃষ্ণের মাধুরী আর মহাপ্রভুর মুখে ।
+> ইহা যেই শুনে, সেই ভাসে প্রেমসুখে ॥১৪৮॥
+
 > kṛṣṇera mādhurī āra mahāprabhura mukhe
 > ihā yei śune, sei bhāse prema-sukhe
 

@@ -1,5 +1,8 @@
 ### CC Antya 18.20
 
+> বায়ু যৈছে সিন্ধু-জলের হরে এক ‘কণ’ ।
+> কৃষ্ণপ্রেম-কণ তৈছে জীবের স্পর্শন ॥২০॥
+
 vāyu yaiche sindhu-jalera hare eka 'kaṇa'
 
 kṛṣṇa-prema-kaṇa taiche jīvera sparśana

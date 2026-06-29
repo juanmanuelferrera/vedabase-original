@@ -1,5 +1,8 @@
 ### CC Adi 7.147
 
+> এইমত সর্বসূত্রের ব্যাখ্যান শুনিয়া ।
+> সকল সন্ন্যাসী কহে বিনয় করিয়া ॥১৪৭॥
+
 > ei-mata sarva-sūtrera vyākhyāna śuniyā
 > sakala sannyāsī kahe vinaya kariyā
 

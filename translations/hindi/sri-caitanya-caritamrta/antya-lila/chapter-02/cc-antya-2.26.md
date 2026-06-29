@@ -1,5 +1,8 @@
 ### CC Antya 2.26
 
+> অসংখ্য লোকের ঘটা, — কেহ আইসে যায় ।
+> লোকের সংঘট্টে কেহ দর্শন না পায় ॥২৬॥
+
 > asaṅkhya lokera ghaṭā,--keha āise yāya
 > lokera saṅghaṭṭe keha darśana nā pāya
 

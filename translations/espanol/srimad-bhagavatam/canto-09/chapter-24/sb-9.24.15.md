@@ -1,5 +1,8 @@
 ### SB 9.24.15
 
+> श्वफल्कश्चित्ररथश्च गान्दिन्यां च श्वफल्कतः
+> अक्रूरप्रमुखा आसन्पुत्रा द्वादश विश्रुताः ॥१५॥
+
 > śvaphalkaś citrarathaś ca
 > gāndinyāṁ ca śvaphalkataḥ
 > akrūra-pramukhā āsan

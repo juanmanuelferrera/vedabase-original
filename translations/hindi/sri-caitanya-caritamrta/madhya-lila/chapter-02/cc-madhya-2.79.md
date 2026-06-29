@@ -1,5 +1,10 @@
 ### CC Madhya 2.79
 
+> লীলাশুক মর্ত্যজন, তাঁর হয় ভাবোদ্গম,
+> ঈশ্বরে সে — কি ইহা বিস্ময় ।
+> তাহে মুখ্য-রসাশ্রয়, হইয়াছেন মহাশয়,
+> তাতে হয় সর্বভাবোদয় ॥৭৯॥
+
 > līlāśuka--martya-jana, tāṅra haya bhāvodgama,
 > īśvare se--ki ihā vismaya
 > tāhe mukhya-rasāśraya, ha-iyāchena mahāśaya,

@@ -1,5 +1,8 @@
 ### CC Adi 17.218
 
+> ‘হরি’ ‘কৃষ্ণ’ ‘নারায়ণ’ — লৈলে তিন নাম ।
+> বড় ভাগ্যবান্ তুমি, বড় পুণ্যবান ॥২১৮॥
+
 > 'hari' 'kṛṣṇa' 'nārāyaṇa'--laile tina nāma
 > baḍa bhāgyavān tumi, baḍa puṇyavān
 

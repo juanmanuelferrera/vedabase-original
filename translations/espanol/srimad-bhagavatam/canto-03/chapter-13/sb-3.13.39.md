@@ -1,5 +1,8 @@
 ### SB 3.13.39
 
+> नमो नमस्तेऽखिलमन्त्रदेवता द्रव्याय सर्वक्रतवे क्रियात्मने ।
+> वैराग्यभक्त्यात्मजयानुभावित ज्ञानाय विद्यागुरवे नमो नमः ॥३९॥
+
 > namo namas te 'khila-mantra-devatā-
 > dravyāya sarva-kratave kriyātmane
 > vairāgya-bhaktyātmajayānubhāvita-

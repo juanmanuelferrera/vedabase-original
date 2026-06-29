@@ -1,5 +1,8 @@
 ### CC Antya 1.75
 
+> সামান্য এক শ্লোক প্রভু পড়েন কীর্তনে ।
+> কেনে শ্লোক পড়ে — ইহা কেহ নাহি জানে ॥৭৫॥
+
 > sāmānya eka śloka prabhu paḍena kīrtane
 > kene śloka paḍe—ihā keha nāhi jāne
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.317
 
+> সেই ভাত রঘুনাথ রাত্রে ঘরে আনি’  ।
+> ভাত পাখালিয়া ফেলে ঘরে দিয়া বহু পানি ॥৩১৭॥
+
 sei bhāta raghunātha rātre ghare āni'
 
 bhāta pākhāliyā phele ghare diyā bahu pāni

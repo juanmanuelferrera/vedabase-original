@@ -1,5 +1,8 @@
 ### CC Madhya 22.33
 
+> ‘কৃষ্ণ, তোমার হঙ’ যদি বলে একবার ।
+> মায়াবন্ধ হৈতে কৃষ্ণ তারে করে পার ॥৩৩॥
+
 'kṛṣṇa, tomāra haṅa' yadi bale eka-bāra
 māyā-bandha haite kṛṣṇa tāre kare pāra
 

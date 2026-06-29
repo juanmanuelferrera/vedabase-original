@@ -1,5 +1,8 @@
 ### CC Madhya 11.176
 
+> সেই ঘর আমাকে দেহ’ — আছে প্রয়োজন ।
+> নিভৃতে বসিয়া তাহাঁ করিব স্মরণ ॥১৭৬॥
+
 > sei ghara āmāke deha'-āche prayojana
 > nibhṛte vasiyā tāhāṅ kariba smaraṇa
 

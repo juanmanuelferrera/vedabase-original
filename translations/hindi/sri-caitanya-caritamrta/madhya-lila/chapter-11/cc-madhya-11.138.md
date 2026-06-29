@@ -1,5 +1,8 @@
 ### CC Madhya 11.138
 
+> যদ্যপি মুকুন্দ — আমা-সঙ্গে শিশু হৈতে ।
+> তাঁহা হৈতে অধিক সুখ তোমারে দেখিতে ॥১৩৮॥
+
 > yadyapi mukunda-āmā-saṅge śiśu haite
 > tāṅhā haite adhika sukha tomāre dekhite
 

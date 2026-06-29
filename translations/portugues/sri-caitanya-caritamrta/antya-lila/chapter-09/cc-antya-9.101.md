@@ -1,5 +1,8 @@
 ### CC Antya 9.101
 
+> মিশ্র কহে, “কৌড়ি ছাড়িবা, — নহে প্রভুর মনে ।
+> কৌড়ি ছাড়িলে প্রভু কদাচিৎ দুঃখ মানে ।।” ॥ ১০১ ॥
+
 miśra kahe, "kauḍi chāḍibā,--nahe prabhura mane
 
 kauḍi chāḍile prabhu kadācit duḥkha māne"

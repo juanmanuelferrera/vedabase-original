@@ -3,6 +3,9 @@
 > ei śloka pathe paḍi' karilā prayāṇa
 > gautamī-gaṅgāya yāi' kaila gaṅgā-snāna
 
+> ei śloka pathe paḍi' karilā prayāṇa
+> gautamī-gaṅgāya yāi' kaila gaṅgā-snāna
+
 *ei śloka*—este verso sánscrito; *pathe*—en el camino; *paḍi'*—recitando; *karilā*—hizo; *prayāṇa*—viaje; *gautamī-gaṅgāya*—a la orilla del Gautamī-gaṅgā; *yāi'*—yendo; *kaila*—hizo; *gaṅgā-snāna*—baño en el Ganges.
 
 **Mientras caminaba por el sendero, Śrī Caitanya Mahāprabhu solía cantar este mantra Rāma Rāghava. Cantando de esta manera, llegó a las riberas del Gautamī-gaṅgā y allí Se bañó.**

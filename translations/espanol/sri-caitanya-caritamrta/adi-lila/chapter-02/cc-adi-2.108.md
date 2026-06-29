@@ -1,5 +1,8 @@
 ### CC Adi 2.108
 
+> এ সব সিদ্ধান্ত তুমি জান ভালমতে ।
+> তবু পূর্বপক্ষ কর আমা চালাইতে ॥১০৮॥
+
 > e saba siddhānta tumi jāna bhāla-mate
 > tabu pūrva-pakṣa kara āmā cālāite
 

@@ -1,5 +1,8 @@
 ### CC Madhya 7.105
 
+> এইমত পথে যাইতে শত শত জন ।
+> ‘বৈষ্ণব’ করেন তাঁরে করি’ আলিঙ্গন ॥১০৫॥
+
 > ei-mata pathe yāite śata śata jana
 > 'vaiṣṇava' karena tāṅre kari' āliṅgana
 

@@ -1,5 +1,8 @@
 ### SB 2.5.6
 
+> नाहं वेद परं ह्यस्मिन्नापरं न समं विभो ।
+> नामरूपगुणैर्भाव्यं सदसत्किञ्चिदन्यतः ॥६॥
+
 > nāhaṁ veda paraṁ hy asmin
 > nāparaṁ na samaṁ vibho
 > nāma-rūpa-guṇair bhāvyaṁ

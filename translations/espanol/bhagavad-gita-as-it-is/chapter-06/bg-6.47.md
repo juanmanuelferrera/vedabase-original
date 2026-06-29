@@ -1,5 +1,8 @@
 ### Bg 6.47
 
+> योगिनामपि सर्वेषां मद्गतेनान्तरात्मना ।
+> श्रद्धावान्भजते यो मां स मे युक्ततमो मतः ॥४७॥
+
 > yoginām api sarveṣām
 > mad-gatenāntarātmanā
 > śraddhāvān bhajate yo māṁ

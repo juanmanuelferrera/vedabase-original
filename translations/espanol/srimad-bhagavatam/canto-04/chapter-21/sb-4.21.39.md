@@ -1,5 +1,8 @@
 ### SB 4.21.39
 
+> यत्सेवयाशेषगुहाशयः स्वराड्विप्रप्रियस्तुष्यति काममीश्वरः ।
+> तदेव तद्धर्मपरैर्विनीतैः सर्वात्मना ब्रह्मकुलं निषेव्यताम् ॥३९॥
+
 > yat-sevayāśeṣa-guhāśayaḥ sva-rāḍ
 > vipra-priyas tuṣyati kāmam īśvaraḥ
 > tad eva tad-dharma-parair vinītaiḥ

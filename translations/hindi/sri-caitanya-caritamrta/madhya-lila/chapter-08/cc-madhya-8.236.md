@@ -1,5 +1,8 @@
 ### CC Madhya 8.236
 
+> ‘মোরে কৃপা করিতে তোমার ইহাঁ আগমন ।
+> দিন দশ রহি’ শোধ মোর দুষ্ট মন ॥২৩৬॥
+
 > 'more kṛpā karite tomāra ihāṅ āgamana
 > dina daśa rahi' śodha mora duṣṭa mana
 

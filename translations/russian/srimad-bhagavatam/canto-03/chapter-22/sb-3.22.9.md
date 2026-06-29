@@ -1,5 +1,8 @@
 ### SB 3.22.9
 
+> प्रियव्रतोत्तानपदोः स्वसेयं दुहिता मम ।
+> अन्विच्छति पतिं युक्तं वयःशीलगुणादिभिः ॥९॥
+
 > priyavratottānapadoḥ
 > svaseyaṁ duhitā mama
 > anvicchati patiṁ yuktaṁ

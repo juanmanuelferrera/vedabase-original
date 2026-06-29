@@ -1,5 +1,8 @@
 ### CC Madhya 11.115
 
+> বিশেষে শ্রীহস্তে প্রভু করে পরিবেশন ।
+> এত লাভ ছাড়ি’ কোন্ করে উপোষণ ॥১১৫॥
+
 > viśeṣe śrī-haste prabhu kare pariveśana
 > eta lābha chāḍi' kon kare upoṣaṇa
 

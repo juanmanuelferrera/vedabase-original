@@ -1,5 +1,8 @@
 ### CC Antya 16.15
 
+> আম্র ভেট দিয়া তাঁর চরণ বন্দিলা ।
+> তাঁর পত্নীরে তবে নমস্কার কৈলা ॥১৫॥
+
 > āmra bheṭa diyā tāṅra caraṇa vandilā
 > tāṅra patnīre tabe namaskāra kailā
 

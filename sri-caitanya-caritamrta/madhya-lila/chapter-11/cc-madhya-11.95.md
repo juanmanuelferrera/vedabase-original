@@ -1,5 +1,8 @@
 ### CC Madhya 11.95
 
+> কোটিসূর্য-সম সব — উজ্জ্বল-বরণ ।
+> কভু নাহি শুনি এই মধুর কীর্তন ॥৯৫॥
+
 > koṭi-sūrya-sama saba-ujjvala-varaṇa
 > kabhu nāhi śuni ei madhura kīrtana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 1.177
 
+> তোমার মঙ্গল বাঞ্ছে, কার্যসিদ্ধি হয় ।
+> ইহার আশীর্বাদে তোমার সর্বত্রই জয় ॥১৭৭॥
+
 tomāra maṅgala vāñche, kārya-siddhi haya
 
 ihāra āśīrvāde tomāra sarvatra-i jaya

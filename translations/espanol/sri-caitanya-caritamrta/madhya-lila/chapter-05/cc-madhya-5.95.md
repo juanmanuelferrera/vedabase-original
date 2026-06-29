@@ -1,5 +1,8 @@
 ### CC Madhya 5.95
 
+> কৃষ্ণ কহে, — “প্রতিমা চলে, কোথাহ না শুনি ।”
+> বিপ্র বলে, — “প্রতিমা হঞা কহ কেনে বাণী ॥৯৫॥
+
 > kṛṣṇa kahe,--"pratimā cale, kothāha nā śuni"
 > vipra bale,--"pratimā hañā kaha kene vāṇī
 

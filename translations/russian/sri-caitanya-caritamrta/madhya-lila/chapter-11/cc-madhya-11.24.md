@@ -1,5 +1,8 @@
 ### CC Madhya 11.24
 
+> পরম কৃপালু তেঁহ ব্রজেন্দ্রনন্দন ।
+> কোন-জন্মে মোরে অবশ্য দিবেন দরশন ॥২৪॥
+
 > parama kṛpālu teṅha vrajendra-nandana
 > kona-janme more avaśya dibena daraśana
 

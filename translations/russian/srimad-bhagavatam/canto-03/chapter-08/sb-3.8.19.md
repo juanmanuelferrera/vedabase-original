@@ -1,5 +1,8 @@
 ### SB 3.8.19
 
+> स इत्थमुद्वीक्ष्य तदब्जनाल नाडीभिरन्तर्जलमाविवेश ।
+> नार्वाग्गतस्तत्खरनालनाल नाभिं विचिन्वंस्तदविन्दताजः ॥१९॥
+
 > sa ittham udvīkṣya tad-abja-nāla-
 > nāḍībhir antar-jalam āviveśa
 > nārvāg-gatas tat-khara-nāla-nāla-

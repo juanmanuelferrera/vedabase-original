@@ -1,5 +1,8 @@
 ### SB 4.31.22
 
+> श्रियमनुचरतीं तदर्थिनश्च द्विपदपतीन्विबुधांश्च यत्स्वपूर्णः ।
+> न भजति निजभृत्यवर्गतन्त्रः कथममुमुद्विसृजेत्पुमान्कृतज्ञः ॥२२॥
+
 > śriyam anucaratīṁ tad-arthinaś ca
 > dvipada-patīn vibudhāṁś ca yat sva-pūrṇaḥ
 > na bhajati nija-bhṛtya-varga-tantraḥ

@@ -1,5 +1,8 @@
 ### SB 3.33.28
 
+> तद्देहः परतः पोषोऽप्यकृशश्चाध्यसम्भवात् ।
+> बभौ मलैरवच्छन्नः सधूम इव पावकः ॥२८॥
+
 > tad-dehaḥ parataḥ poṣo
 > 'py akṛśaś cādhy-asambhavāt
 > babhau malair avacchannaḥ

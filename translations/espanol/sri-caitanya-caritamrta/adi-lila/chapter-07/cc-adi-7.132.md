@@ -1,5 +1,8 @@
 ### CC Adi 7.132
 
+> স্বতঃপ্রমাণ বেদ প্রমাণ-শিরোমণি ।
+> লক্ষণা করিলে স্বতঃপ্রমাণতা-হানি ॥১৩২॥
+
 > svataḥ-pramāṇa veda--pramāṇa-śiromaṇi
 > lakṣaṇā karile svataḥ-pramāṇatā-hāni
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.198
 
+> যদ্যপি ব্রহ্মণ্য করে ব্রাহ্মণের সহায় ।
+> ‘শুদ্ধবৈষ্ণব’ নহে, হয়ে ‘বৈষ্ণবের প্রায়’ ॥১৯৮॥
+
 > yadyadi brahmaṇya kare brāhmaṇera sahāya
 > 'śuddha-vaiṣṇava' nahe, haye 'vaiṣṇavera prāya'
 

@@ -1,5 +1,8 @@
 ### CC Antya 20.122
 
+> রঘুনাথ-ভট্টাচার্যের তাহাঁই মিলন ।
+> প্রভু তাঁরে কৃপা করি’ পাঠাইলা বৃন্দাবন ॥১২২॥
+
 raghunātha-bhaṭṭācāryera tāhāṅi milana
 
 prabhu tāṅre kṛpā kari' pāṭhāilā vṛndāvana

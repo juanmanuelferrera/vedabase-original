@@ -1,5 +1,8 @@
 ### SB 4.12.33
 
+> इति व्यवसितं तस्य व्यवसाय सुरोत्तमौ ।
+> दर्शयामासतुर्देवीं पुरो यानेन गच्छतीम् ॥३३॥
+
 > iti vyavasitaṁ tasya
 > vyavasāya surottamau
 > darśayām āsatur devīṁ

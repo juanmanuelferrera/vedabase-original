@@ -1,5 +1,8 @@
 ### CC Madhya 10.96
 
+> প্রেমাবেশে কৈল তাঁর চরণ বন্দন ।
+> তেঁহ প্রেমাবেশে কৈল প্রভুরে আলিঙ্গন ॥৯৬॥
+
 > premāveśe kaila tāṅra caraṇa vandana
 > teṅha premāveśe kaila prabhure āliṅgana
 

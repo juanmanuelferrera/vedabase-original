@@ -1,5 +1,8 @@
 ### CC Adi 5.78
 
+> যদ্যপি কহিয়ে তাঁরে কৃষ্ণের ‘কলা’ করি ।
+> মৎস্য-কূর্মাদ্যবতারের তিঁহো অবতারী ॥৭৮॥
+
 > yadyapi kahiye tāṅre kṛṣṇera 'kalā' kari
 > matsya-kūrmādy-avatārera tiṅho avatārī
 

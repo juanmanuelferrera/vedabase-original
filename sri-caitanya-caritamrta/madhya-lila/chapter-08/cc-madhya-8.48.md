@@ -1,5 +1,8 @@
 ### CC Madhya 8.48
 
+> হেনকালে বৈদিক এক বৈষ্ণব ব্রাহ্মণ ।
+> দণ্ডবৎ করি’ কৈল প্ৰভুরে নিমন্ত্রণ ॥৪৮॥
+
 > hena-kāle vaidika eka vaiṣṇava brāhmaṇa
 > daṇḍavat kari' kaila prabhure nimantraṇa
 

@@ -3,6 +3,9 @@
 > govinda, mādhava ghoṣa, ei vāsu-ghoṣa
 > tina bhāira kīrtane prabhu pāyena santoṣa
 
+> govinda, mādhava ghoṣa, ei vāsu-ghoṣa
+> tina bhāira kīrtane prabhu pāyena santoṣa
+
 *govinda*—Govinda Ghoṣa; *mādhava ghoṣa*—Mādhava Ghoṣa; *ei*—este; *vāsu-ghoṣa*—Vāsudeva Ghoṣa; *tina bhāira*—de los tres hermanos; *kīrtane*—en el saṅkīrtana; *prabhu*—el Señor; *pāyena santoṣa*—siente gran placer.
 
 **«Aquí están también Govinda Ghoṣa, Mādhava Ghoṣa y Vāsudeva Ghoṣa. Son tres hermanos, y su saṅkīrtana, canto congregacional, complace enormemente al Señor.**

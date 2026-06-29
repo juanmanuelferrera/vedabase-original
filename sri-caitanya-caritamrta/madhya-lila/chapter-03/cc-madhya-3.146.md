@@ -1,5 +1,8 @@
 ### CC Madhya 3.146
 
+> তোমার পালিত দেহ, জন্ম তোমা হৈতে ।
+> কোটি জন্মে তোমার ঋণ না পারি শোধিতে ॥১৪৬॥
+
 > tomāra pālita deha, janma tomā haite
 > koṭi janme tomāra ṛṇa nā pāri śodhite
 

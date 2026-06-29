@@ -1,5 +1,8 @@
 ### CC Antya 10.90
 
+> পাদ-সম্বাহন কৈল, কটি-পৃষ্ঠ চাপিল ।
+> মধুর-মর্দনে প্রভুর পরিশ্রম গেল ॥৯০॥
+
 pāda-samvāhana kaila, kaṭi-pṛṣṭha cāpila
 
 madhūra-mardane prabhura pariśrama gela

@@ -1,5 +1,8 @@
 ### CC Adi 6.79
 
+> অনন্ত ব্রহ্মাণ্ডে রুদ্র — সদাশিবের অংশ ।
+> গুণাবতার তেঁহো, সর্বদেব-অবতংস ॥৭৯॥
+
 ananta brahmāṇḍe rudra--sadāśivera aṁśa
 guṇāvatāra teṅho, sarva-deva-avataṁsa
 

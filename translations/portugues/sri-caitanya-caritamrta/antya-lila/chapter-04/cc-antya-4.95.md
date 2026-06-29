@@ -1,5 +1,8 @@
 ### CC Antya 4.95
 
+> নিজ-দেহে যে কার্য না পারেন করিতে  ।
+> সে কার্য করাইবে তোমা, সেহ মথুরাতে ॥৯৫॥
+
 nija-dehe ye kārya nā pārena karite
 
 se kārya karāibe tomā, seha mathurāte

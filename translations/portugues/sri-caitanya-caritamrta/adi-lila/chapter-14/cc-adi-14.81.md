@@ -1,5 +1,8 @@
 ### CC Adi 14.81
 
+> কিবা কোলাহল করে, বুঝিতে না পারি ।
+> কাহাকে বা স্তুতি করে — অনুমান করি ॥৮১॥
+
 kibā kelāhala kare, bujhite nā pāri
 
 kāhāke vā stuti kare--anumāna kari

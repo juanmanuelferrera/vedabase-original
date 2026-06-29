@@ -1,5 +1,8 @@
 ### CC Madhya 13.1
 
+> স জীয়াৎ কৃষ্ণচৈতন্যঃ শ্রীরথাগ্রে ননর্ত যঃ ।
+> যেনাসীজ্জগতাং চিত্রং জগন্নাথোঽপি বিস্মিতঃ ॥১॥
+
 sa jīyāt kṛṣṇa-caitanyaḥ
 śrī-rathāgre nanarta yaḥ
 yenāsīj jagatāṁ citraṁ

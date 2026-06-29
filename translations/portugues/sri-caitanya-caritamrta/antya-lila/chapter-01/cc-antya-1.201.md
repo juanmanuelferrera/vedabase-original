@@ -1,5 +1,8 @@
 ### CC Antya 1.201
 
+> তোমার যৈছে বিষয়ত্যাগ, তৈছে তাঁর রীতি ।
+> দৈন্য-বৈরাগ্য-পাণ্ডিত্যের তাঁহাতেই স্থিতি ॥২০১॥
+
 tomāra yaiche viṣaya-tyāga, taiche tāṅra rīti
 
 dainya-vairāgya-pāṇḍityera tāṅhātei sthiti

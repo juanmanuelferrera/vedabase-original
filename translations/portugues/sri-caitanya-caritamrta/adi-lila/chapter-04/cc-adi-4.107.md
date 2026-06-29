@@ -1,5 +1,8 @@
 ### CC Adi 4.107
 
+> শেষলীলায় প্রভুর কৃষ্ণবিরহ-উন্মাদ ।
+> ভ্রমময় চেষ্টা, আর প্রলাপময় বাদ ॥১০৭॥
+
 śeṣa-līlāya prabhura kṛṣṇa-viraha-unmāda
 bhrama-maya ceṣṭā, āra pralāpa-maya vāda
 

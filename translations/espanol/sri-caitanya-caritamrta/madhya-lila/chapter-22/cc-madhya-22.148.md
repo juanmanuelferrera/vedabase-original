@@ -1,5 +1,8 @@
 ### CC Madhya 22.148
 
+> বৈধীভক্তি-সাধনের কহিলুঁ বিবরণ ৷
+> রাগানুগা-ভক্তির লক্ষণ শুন, সনাতন ॥১৪৮॥
+
 > vaidhī-bhakti-sādhanera kahiluṅ vivaraṇa
 > rāgānugā-bhaktira lakṣaṇa śuna, sanātana
 

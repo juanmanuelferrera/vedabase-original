@@ -1,5 +1,8 @@
 ### CC Madhya 8.8
 
+> পূর্ববৎ কোন বিপ্রে কৈল নিমন্ত্রণ ৷
+> সেই রাত্রি তাহাঁ রহি’ করিলা গমন ৷৷ ৮ ৷৷ ॥৮॥
+
 pūrvavat kona vipre kaila nimantraṇa
 sei rātri tāhāṅ rahi' karilā gamana
 

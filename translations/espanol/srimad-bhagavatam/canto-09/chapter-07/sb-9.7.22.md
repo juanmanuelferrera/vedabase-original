@@ -1,5 +1,8 @@
 ### SB 9.7.22
 
+> मुक्तोदरोऽयजद्देवान्वरुणादीन्महत्कथः
+> विश्वामित्रोऽभवत्तस्मिन्होता चाध्वर्युरात्मवान ॥२२॥
+
 > viśvāmitro 'bhavat tasmin
 > hotā cādhvaryur ātmavān
 > jamadagnir abhūd brahmā

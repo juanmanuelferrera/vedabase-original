@@ -1,5 +1,8 @@
 ### CC Madhya 24.261
 
+> তুলসী-পরিক্রমা কর, তুলসী-সেবন  ।
+> নিরন্তর কৃষ্ণনাম করিহ কীর্তন ॥২৬১॥
+
 > tulasī-parikramā kara, tulasī-sevana
 > nirantara kṛṣṇa-nāma kariha kīrtana
 

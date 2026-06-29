@@ -1,5 +1,10 @@
 ### CC Madhya 20.299
 
+> মৎস্যাশ্বকচ্ছপনৃসিংহ-বরাহ-হংস-
+> রাজন্যবিপ্রবিবুধেষু কৃতাবতারঃ ।
+> ত্বং পাসি নস্ত্রিভুবনঞ্চ তথাধুনেশ
+> ভারং ভুবো হর যদূত্তম বন্দনং তে ॥২৯৯॥
+
 > matsyāśva-kacchapa-nṛsiṁha-varāha-haṁsa-
 > rājanya-vipra-vibudheṣu kṛtāvatāraḥ
 > tvaṁ pāsi nas tribhuvanaṁ ca tathādhuneśa

@@ -1,5 +1,8 @@
 ### CC Madhya 20.292
 
+> হিরণ্যগর্ভ-অন্তর্যামী — গর্ভোদকশায়ী ।
+> ‘সহস্রশীর্ষাদি’ করি’ বেদে যাঁরে গাই ॥২৯২॥
+
 hiraṇyagarbha-antaryāmī--garbhodakaśāyī
 
 'sahasra-śīrṣādi' kari' vede yāṅre gāi

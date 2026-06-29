@@ -1,5 +1,8 @@
 ### CC Antya 11.69
 
+> তাঁরে বালু দিয়া উপরে পিণ্ডা বাঁধাইলা ।
+> চৌদিকে পিণ্ডের মহা আবরণ কৈলা ॥৬৯॥
+
 tāṅre vālu diyā upare piṇḍā bāṅdhāilā
 
 caudike piṇḍera mahā āvaraṇa kailā

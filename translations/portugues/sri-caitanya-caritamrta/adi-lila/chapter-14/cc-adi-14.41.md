@@ -1,5 +1,8 @@
 ### CC Adi 14.41
 
+> শিশু সব শচী-স্থানে কৈল নিবেদন ।
+> শুনি’ শচী পুত্রে কিছু দিলা ওলাহন ॥৪১॥
+
 śiśu saba śacī-sthāne kaila nivedana
 
 śuni' śacī putre kichu dilā olāhana

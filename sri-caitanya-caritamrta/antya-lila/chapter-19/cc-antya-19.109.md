@@ -1,5 +1,8 @@
 ### CC Antya 19.109
 
+> মহাপ্রভু-নিত্যানন্দ, দোঁহার দাসের দাস ।
+> যারে কৃপা করেন, তার হয় ইথে বিশ্বাস ॥১০৯॥
+
 > mahāprabhu-nityānanda, doṅhāra dāsera dāsa
 > yāre kṛpā karena, tāra haya ithe viśvāsa
 

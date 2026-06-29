@@ -1,5 +1,8 @@
 ### CC Adi 3.13
 
+> যথেষ্ট বিহরি’ কৃষ্ণ করে অন্তর্ধান ।
+> অন্তর্ধান করি’ মনে করে অনুমান ॥১৩॥
+
 yatheṣṭa vihari' kṛṣṇa kare antardhāna
 antardhāna kari' mane kare anumāna
 

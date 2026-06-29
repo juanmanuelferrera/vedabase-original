@@ -1,5 +1,8 @@
 ### SB 2.3.24
 
+> तदश्मसारं हृदयं बतेदं यद्गृह्यमाणैर्हरिनामधेयैः ।
+> न विक्रियेताथ यदा विकारो नेत्रे जलं गात्ररुहेषु हर्षः ॥२४॥
+
 > tad aśma-sāraṁ hṛdayaṁ batedaṁ
 > yad gṛhyamāṇair hari-nāma-dheyaiḥ
 > na vikriyetātha yadā vikāro

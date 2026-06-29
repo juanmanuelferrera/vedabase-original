@@ -1,5 +1,8 @@
 ### CC Antya 7.48
 
+> হরিদাস-ঠাকুর — মহাভাগবত-প্রধান ।
+> প্রতি দিন লয় তেঁহ তিনলক্ষ নাম ॥৪৮॥
+
 > haridāsa-ṭhākura—mahā-bhāgavata-pradhāna
 > prati dina laya teṅha tina-lakṣa nāma
 

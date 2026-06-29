@@ -1,5 +1,8 @@
 ### CC Madhya 5.152
 
+> শুনি’ কিছু মহাপ্রভু দুঃখ প্রকাশিলা ।
+> ঈষৎ ক্রোধ করি’ কিছু কহিতে লাগিলা ॥১৫২॥
+
 > śuni' kichu mahāprabhu duḥkha prakāśilā
 > īṣat krodha kari' kichu kahite lāgilā
 

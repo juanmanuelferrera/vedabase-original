@@ -1,5 +1,10 @@
 ### SB 4.30.6
 
+> काशिष्णुना कनकवर्णविभूषणेन
+> भ्राजत्कपोलवदनो विलसत्किरीटः ।
+> अष्टायुधैरनुचरैर्मुनिभिः सुरेन्द्रैर्
+> आसेवितो गरुडकिन्नरगीतकीर्तिः ॥६॥
+
 > kāśiṣṇunā kanaka-varṇa-vibhūṣaṇena
 > bhrājat-kapola-vadano vilasat-kirīṭaḥ
 > aṣṭāyudhair anucarair munibhiḥ surendrair

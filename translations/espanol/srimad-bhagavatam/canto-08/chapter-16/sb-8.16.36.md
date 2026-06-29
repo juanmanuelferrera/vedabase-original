@@ -1,5 +1,8 @@
 ### SB 8.16.36
 
+> त्वं सर्ववरदः पुंसां वरेण्य वरदर्षभ
+> अतस्ते श्रेयसे धीराः पादरेणुमुपासते ॥३६॥
+
 > tvaṁ sarva-varadaḥ puṁsāṁ
 > vareṇya varadarṣabha
 > atas te śreyase dhīrāḥ

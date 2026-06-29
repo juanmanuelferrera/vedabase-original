@@ -1,5 +1,8 @@
 ### SB 3.33.32
 
+> तस्यास्तद्योगविधुत मार्त्यं मर्त्यमभूत्सरित् ।
+> स्रोतसां प्रवरा सौम्य सिद्धिदा सिद्धसेविता ॥३२॥
+
 > tasyās tad yoga-vidhuta-
 > mārtyaṁ martyam abhūt sarit
 > srotasāṁ pravarā saumya

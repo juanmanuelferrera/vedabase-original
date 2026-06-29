@@ -1,5 +1,8 @@
 ### CC Madhya 9.209
 
+> নূতন পত্র লেখাঞা পুস্তকে দেওয়াইল ।
+> প্রতীতি লাগি’ পুরাতন পত্র মাগি’ নিল ॥২০৯॥
+
 > nūtana patra lekhāñā pustake deoyāila
 > pratīti lāgi' purātana patra māgi' nila
 

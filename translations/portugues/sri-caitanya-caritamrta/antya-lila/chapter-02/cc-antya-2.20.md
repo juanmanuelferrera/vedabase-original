@@ -1,5 +1,8 @@
 ### CC Antya 2.20
 
+> তৈছে গৌরকান্তি, তৈছে সদা প্রেমাবেশ ।
+> তাহা দেখিবারে আইসে সর্ব গৌড়দেশ ॥২০॥
+
 taiche gaura-kānti, taiche sadā premāveśa
 
 tāhā dekhibāre āise sarva gauḍa-deśa

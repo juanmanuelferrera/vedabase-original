@@ -1,5 +1,8 @@
 ### CC Adi 17.216
 
+> এত শুনি’ মহাপ্রভু হাসিয়া হাসিয়া ।
+> কহিতে লাগিলা কিছু কাজিরে ছুঁইয়া ॥২১৬॥
+
 eta śuni' mahāprabhu hāsiyā hāsiyā
 kahite lāgilā kichu kājire chuṅiyā
 

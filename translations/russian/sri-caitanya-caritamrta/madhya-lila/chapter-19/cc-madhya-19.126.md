@@ -1,5 +1,8 @@
 ### CC Madhya 19.126
 
+> কৈছে অষ্টপ্রহর করেন শ্রীকৃষ্ণ-ভজন ?”
+> তবে প্ৰশংসিয়া কহে সেই ভক্তগণ ॥১২৬॥
+
 > kaiche aṣṭa-prahara karena śrī-kṛṣṇa-bhajana?"
 > tabe praśaṁsiyā kahe sei bhakta-gaṇa
 

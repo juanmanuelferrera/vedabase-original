@@ -1,5 +1,8 @@
 ### CC Adi 10.12
 
+> ‘আচার্যরত্ন’ নাম ধরে বড় এক শাখা ।
+> তাঁর পরিকর, তাঁর শাখা-উপশাখা ॥১২॥
+
 > 'ācāryaratna' nāma dhare baḍa eka śākhā
 > tāṅra parikara, tāṅra śākhā-upaśākhā
 

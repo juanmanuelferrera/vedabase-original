@@ -1,5 +1,8 @@
 ### CC Madhya 14.240
 
+> জগন্নাথের প্রসাদ আইল বহু উপহার ।
+> লক্ষ্মীর প্রসাদ আইল বিবিধ প্রকার ॥২৪০॥
+
 > jagannāthera prasāda āila bahu upahāra
 > lakṣmīra prasāda āila vividha prakāra
 

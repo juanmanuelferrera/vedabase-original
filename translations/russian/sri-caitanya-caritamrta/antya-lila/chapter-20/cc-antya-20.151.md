@@ -1,5 +1,8 @@
 ### CC Antya 20.151
 
+> চৈতন্যচরিতামৃত যেই জন শুনে ।
+> তাঁর চরণ ধুঞা করোঁ মুঞি পানে ॥১৫১॥
+
 > caitanya-caritāmṛta yei jana śune
 > tāṅra caraṇa dhuñā karoṅ muñi pāne
 

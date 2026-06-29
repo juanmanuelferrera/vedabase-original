@@ -1,5 +1,8 @@
 ### CC Madhya 8.175
 
+> ‘কিলকিঞ্চিতাদি’-ভাব-বিংশতি-ভূষিত ।
+> গুণশ্রেণী-পুষ্পমালা সর্বাঙ্গে পূরিত ॥১৭৫॥
+
 > 'kila-kiñcitādi'-bhāva-viṁśati-bhūṣita
 > guṇa-śreṇī-puṣpamālā sarvāṅge pūrita
 

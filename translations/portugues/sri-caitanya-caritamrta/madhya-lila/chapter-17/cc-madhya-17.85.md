@@ -1,5 +1,8 @@
 ### CC Madhya 17.85
 
+> প্রভুর চরণ ধরি করেন রোদন ।
+> প্রভু তারে উঠাঞা কৈল আলিঙ্গন ॥৮৫॥
+
 prabhura caraṇa dhari' karena rodana
 
 prabhu tāre uṭhāñā kaila āliṅgana

@@ -1,5 +1,8 @@
 ### CC Madhya 21.86
 
+> ব্রহ্মাণ্ডানুরূপ ব্রহ্মার শরীর-বদন ।
+> এইরূপে পালি আমি ব্রহ্মাণ্ডের গণ ॥৮৬॥
+
 brahmāṇḍānurūpa brahmāra śarīra-vadana
 
 ei-rūpe pāli āmi brahmāṇḍera gaṇa

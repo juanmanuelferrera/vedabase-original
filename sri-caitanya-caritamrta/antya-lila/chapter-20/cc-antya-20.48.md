@@ -1,5 +1,10 @@
 ### CC Antya 20.48
 
+> “আমি — কৃষ্ণপদ-দাসী, তেঁহো — রসসুখরাশি,
+> আলিঙ্গিয়া করে আত্মসাথ ।
+> কিবা না দেয় দরশন, জারেন মোর তনুমন,
+> তবু তেঁহো — মোর প্রাণনাথ ॥৪৮॥
+
 > "āmi—kṛṣṇa-pada-dāsī, teṅho—rasa-sukha-rāśi,
 > āliṅgiyā kare ātma-sātha
 > kibā nā deya daraśana, jārena mora tanu-mana,

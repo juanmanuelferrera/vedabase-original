@@ -1,5 +1,7 @@
 ### SB 5.19.10
 
+> तं भगवान्नारदो वर्णाश्रमवतीभिर्भारतीभिः प्रजाभिर्भगवत्प्रोक्ताभ्यां साङ्ख्ययोगाभ्यां भगवदनुभावोपवर्णनं सावर्णेरुपदेक्ष्यमाणः परमभक्तिभावेनोपसरति इदंचाभिगृणाति ॥१०॥
+
 > taṁ bhagavān nārado varṇāśramavatībhir bhāratībhiḥ prajābhir bhagavat-proktābhyāṁ sāṅkhya-yogābhyāṁ bhagavad-anubhāvopavarṇanaṁ sāvarṇer upadekṣyamāṇaḥ parama-bhakti-bhāvenopasarati idaṁ cābhigṛṇāti.
 
 *tam*—Him (Nara-Nārāyaṇa); *bhagavān*—the most powerful saintly person; *nāradaḥ*—the great sage Nārada; *varṇa-āśrama-vatībhiḥ*—by followers of the institution of the four *varṇas* and four *āśramas*; *bhāratībhiḥ*—of the land known as Bhārata-varṣa (India); *prajābhiḥ*—who are the inhabitants; *bhagavat-proktābhyām*—which was stated by the Supreme Personality of Godhead; *sāṅkhya*—by the *sāṅkhya-yoga* system (the analytical study of material conditions); *yogābhyām*—by practice of the *yoga* system; *bhagavat-anubhāva-upavarṇanam*—which describes the process of God realization; *sāvarṇeḥ*—unto Sāvarṇi Manu; *upadekṣyamāṇaḥ*—instructing; *parama-bhakti-bhāvena*—in greatly ecstatic loving service to the Lord; *upasarati*—serves the Lord; *idam*—this; *ca*—and; *abhigṛṇāti*—chants.

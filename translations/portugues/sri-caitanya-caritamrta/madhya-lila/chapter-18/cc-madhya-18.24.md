@@ -1,5 +1,8 @@
 ### CC Madhya 18.24
 
+> এত মনে করি’ প্রভু মৌন করি’ রহিলা ।
+> জানিয়া গোপাল কিছু ভঙ্গী উঠাইলা ॥২৪॥
+
 eta mane kari' prabhu mauna kari' rahilā
 
 jāniyā gopāla kichu bhaṅgī uṭhāilā

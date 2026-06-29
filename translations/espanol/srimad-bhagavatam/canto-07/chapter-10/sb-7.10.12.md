@@ -1,5 +1,8 @@
 ### SB 7.10.12
 
+> कथा मदीया जुषमाणः प्रियास्त्वमावेश्य मामात्मनि सन्तमेकम
+> सर्वेषु भूतेष्वधियज्ञअमीशं यजस्व योगेन च कर्म हिन्वन ॥१२॥
+
 > kathā madīyā juṣamāṇaḥ priyās tvam
 > āveśya mām ātmani santam ekam
 > sarveṣu bhūteṣv adhiyajñam īśaṁ

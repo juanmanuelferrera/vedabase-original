@@ -1,5 +1,8 @@
 ### CC Adi 7.99
 
+> প্রভুর মিষ্টবাক্য শুনি’ সন্ন্যাসীর গণ ।
+> চিত্ত ফিরি’ গেল, কহে মধুর বচন ॥৯৯॥
+
 > prabhura miṣṭa-vākya śuni' sannyāsīra gaṇa
 > citta phiri' gela, kahe madhura vacana
 

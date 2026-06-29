@@ -1,5 +1,8 @@
 ### CC Madhya 10.19
 
+> ভট্টাচার্য কহে, — তেঁহো আসিবে অল্পকালে ।
+> রহিতে তাঁরে এক স্থান চাহিয়ে বিরলে ॥১৯॥
+
 > bhaṭṭācārya kahe,-teṅho āsibe alpa-kāle
 > rahite tāṅre eka sthāna cāhiye virale
 

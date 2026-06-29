@@ -1,5 +1,8 @@
 ### CC Madhya 7.76
 
+> সবা-সঙ্গে প্রভু তবে আলালনাথ আইলা ৷
+> নমস্কার করি’ তারে বহুস্তুতি কৈলা ৷৷ ৭৬ ৷৷ ॥৭৬॥
+
 > sabā-saṅge prabhu tabe ālālanātha āilā
 > namaskāra kari' tāre bahu-stuti kailā
 

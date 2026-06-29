@@ -1,5 +1,8 @@
 ### CC Antya 8.1
 
+> তং বন্দে কৃষ্ণচৈতন্যং রামচন্দ্রপুরীভয়াৎ ।
+> লৌকিকাহারতঃ স্বং যো ভিক্ষান্নং সমকোচয়ৎ ॥১॥
+
 taṁ vande kṛṣṇa-caitanyaṁ
 rāmacandra-purī-bhayāt
 laukikāhārataḥ svaṁ yo

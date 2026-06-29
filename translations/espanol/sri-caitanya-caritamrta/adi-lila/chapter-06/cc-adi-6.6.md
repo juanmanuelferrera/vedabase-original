@@ -1,5 +1,8 @@
 ### CC Adi 6.6
 
+> অদ্বৈত-আচার্য গোসাঞি সাক্ষাৎ ঈশ্বর ।
+> যাঁহার মহিমা নহে জীবের গোচর ॥৬॥
+
 > advaita-ācārya gosāñi sākṣāt īśvara
 > yāṅhāra mahimā nahe jīvera gocara
 

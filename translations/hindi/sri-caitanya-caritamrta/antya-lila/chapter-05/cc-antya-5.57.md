@@ -1,5 +1,8 @@
 ### CC Antya 5.57
 
+> শুনি’ রামানন্দ রায় হৈলা প্রেমাবেশে  ।
+> কহিতে লাগিলা কিছু মনের হরিষে ॥৫৭॥
+
 > śuni' rāmānanda rāya hailā premāveśe
 > kahite lāgilā kichu manera hariṣe
 

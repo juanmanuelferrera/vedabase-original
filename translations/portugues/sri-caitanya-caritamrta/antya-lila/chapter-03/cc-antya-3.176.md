@@ -1,5 +1,8 @@
 ### CC Antya 3.176
 
+> তিন-লক্ষ নাম ঠাকুর করেন কীর্তন ।
+> নামের মহিমা উঠাইল পণ্ডিতগণ ॥১৭৬॥
+
 tina-lakṣa nāma ṭhākura karena kīrtana
 
 nāmera mahimā uṭhāila paṇḍita-gaṇa

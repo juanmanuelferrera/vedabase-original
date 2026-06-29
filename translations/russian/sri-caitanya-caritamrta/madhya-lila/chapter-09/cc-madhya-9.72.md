@@ -1,5 +1,8 @@
 ### CC Madhya 9.72
 
+> পক্ষিতীর্থ দেখি’ কৈল শিব দরশন ।
+> বৃদ্ধকোল-তীর্থে তবে করিলা গমন ॥৭২॥
+
 > pakṣi-tīrtha dekhi' kaila śiva daraśana
 > vṛddhakola-tīrthe tabe karilā gamana
 

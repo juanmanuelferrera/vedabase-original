@@ -1,5 +1,8 @@
 ### CC Adi 8.74
 
+> দরশন করি কৈলুঁ চরণ বন্দন ।
+> গোসাঞিদাস পূজারী করে চরণ-সেবন ॥৭৪॥
+
 > daraśana kari kailuṅ caraṇa vandana
 > gosāñi-dāsa pūjārī kare caraṇa-sevana
 

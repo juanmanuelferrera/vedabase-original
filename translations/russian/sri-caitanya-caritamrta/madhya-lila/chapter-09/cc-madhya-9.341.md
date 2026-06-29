@@ -1,5 +1,8 @@
 ### CC Madhya 9.341
 
+> গোপীনাথাচার্য চলিলা আনন্দিত হঞা ।
+> প্রভুরে মিলিলা সবে পথে লাগ্ পাঞা ॥৩৪১॥
+
 > gopīnāthācārya calilā ānandita hañā
 > prabhure mililā sabe pathe lāg pāñā
 

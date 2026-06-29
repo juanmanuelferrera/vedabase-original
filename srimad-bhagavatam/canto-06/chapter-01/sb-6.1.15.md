@@ -1,5 +1,8 @@
 ### SB 6.1.15
 
+> केचित्केवलया भक्त्या वासुदेवपरायणाः
+> अघं धुन्वन्ति कार्त्स्न्येन नीहारमिव भास्करः ॥१५॥
+
 > kecit kevalayā bhaktyā
 > vāsudeva-parāyaṇāḥ
 > aghaṁ dhunvanti kārtsnyena

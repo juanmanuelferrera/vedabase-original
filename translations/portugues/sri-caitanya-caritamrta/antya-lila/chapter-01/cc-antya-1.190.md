@@ -1,5 +1,10 @@
 ### CC Antya 1.190
 
+> সহচরি নিরাতঙ্কঃ কোঽয়ং যুবা মুদিরদ্যুতি-
+> র্ব্রজভুবি কুতঃ প্রাপ্তো মাদ্যন্মতঙ্গজবিভ্রমঃ ।
+> অহহ চটুলৈরুৎসর্পদ্ভির্দৃগঞ্চলতস্করৈ-
+> র্মম ধৃতিধনং চেতঃকোষাদ্বিলুণ্ঠয়তীহ যঃ ॥১৯০॥
+
 sahacari nirātaṅkaḥ ko 'yaṁ yuvā mudira-dyutir
 vraja-bhuvi kutaḥ prāpto mādyan mataṅgaja-vibhramaḥ
 ahaha caṭulair utsarpadbhir dṛg-añcala-taskarair

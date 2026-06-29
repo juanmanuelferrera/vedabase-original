@@ -1,5 +1,8 @@
 ### CC Madhya 11.219
 
+> কীর্তন দেখি’ সবার মনে হৈল চমৎকার ৷
+> কভু নাহি দেখি ঐছে প্রেমের বিকার ৷৷ ২১৯ ৷৷ ॥২১৯॥
+
 kīrtana dekhi' sabāra mane haila camatkāra
 
 kabhu nāhi dekhi aiche premera vikāra

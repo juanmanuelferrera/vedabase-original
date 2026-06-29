@@ -1,5 +1,8 @@
 ### CC Adi 13.14
 
+> গার্হস্থ্যে প্রভুর লীলা — ‘আদি’-লীলাখ্যান ।
+> ‘মধ্য’-‘অন্ত্য’-লীলা — শেষলীলার দুই নাম ॥১৪॥
+
 > gārhasthye prabhura līlā--'ādi'-līlākhyāna
 > 'madhya'- 'antya'-līlā--śeṣa-līlāra dui nāma
 

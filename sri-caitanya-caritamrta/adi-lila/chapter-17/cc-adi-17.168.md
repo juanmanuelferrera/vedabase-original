@@ -1,5 +1,8 @@
 ### CC Adi 17.168
 
+> শুনি’ স্তব্ধ হৈল কাজী, নাহি স্ফুরে বাণী ।
+> বিচারিয়া কহে কাজী পরাভব মানি’ ॥১৬৮॥
+
 > śuni' stabdha haila kājī, nāhi sphure vāṇī
 > vicāriyā kahe kājī parābhava māni'
 

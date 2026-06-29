@@ -1,5 +1,8 @@
 ### CC Antya 4.51
 
+> এইমত সনাতন রহে প্রভু-স্থানে ।
+> জগন্নাথের চক্র দেখি’ করেন প্রণামে ॥৫১॥
+
 > ei-mata sanātana rahe prabhu-sthāne
 > jagannāthera cakra dekhi' karena praṇāme
 

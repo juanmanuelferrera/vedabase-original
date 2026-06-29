@@ -1,5 +1,8 @@
 ### CC Antya 3.76
 
+> উচ্চ সঙ্কীর্তন তাতে করিলা প্রচার ।
+> স্থিরচর জীবের সব খণ্ডাইলা সংসার ।।” ॥ ৭৬ ॥
+
 > ucca saṅkīrtana tāte karilā pracāra
 > sthira-cara jīvera saba khaṇḍāilā saṁsāra"
 

@@ -1,5 +1,8 @@
 ### SB 5.5.23
 
+> न ब्राह्मणैस्तुलये भूतमन्यत्पश्यामि विप्राः किमतः परं तु
+> यस्मिन्नृभिः प्रहुतं श्रद्धयाहमश्नामि कामं न तथाग्निहोत्रे ॥२३॥
+
 > na brāhmaṇais tulaye bhūtam anyat
 > paśyāmi viprāḥ kim ataḥ paraṁ tu
 > yasmin nṛbhiḥ prahutaṁ śraddhayāham

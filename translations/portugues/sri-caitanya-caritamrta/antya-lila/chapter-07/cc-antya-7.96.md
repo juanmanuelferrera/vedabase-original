@@ -1,5 +1,8 @@
 ### CC Antya 7.96
 
+> যদ্যপি পণ্ডিত আর না কৈলা অঙ্গীকার ।
+> ভট্ট যাই’ তবু পড়ে করি’ বলাৎকার ॥৯৬॥
+
 yadyapi paṇḍita āra nā kailā aṅgīkāra
 
 bhaṭṭa yāi' tabu paḍe kari' balātkāra

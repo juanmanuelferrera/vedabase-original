@@ -1,5 +1,10 @@
 ### SB 5.25.13
 
+> एवम्प्रभावो भगवाननन्तो
+> दुरन्तवीर्योरुगुणानुभावः
+> मूले रसायाः स्थित आत्मतन्त्रो
+> यो लीलया क्ष्मां स्थितये बिभर्ति ॥१३॥
+
 > evam-prabhāvo bhagavān ananto
 > duranta-vīryoru-guṇānubhāvaḥ
 > mūle rasāyāḥ sthita ātma-tantro

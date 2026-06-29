@@ -1,5 +1,8 @@
 ### CC Madhya 22.26
 
+> চারি বর্ণাশ্রমী যদি কৃষ্ণ নাহি ভজে ।
+> স্বকর্ম করিতে সে রৌরবে পড়ি’ মজে ॥২৬॥
+
 cāri varṇāśramī yadi kṛṣṇa nāhi bhaje
 
 svakarma karite se raurave paḍi' maje

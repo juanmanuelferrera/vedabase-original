@@ -1,5 +1,8 @@
 ### CC Madhya 18.82
 
+> হেনকালে আইলা বৈষ্ণব ‘কৃষ্ণদাস’ নাম ।
+> রাজপুত-জাতি, গৃহস্থ, যমুনা-পারে গ্রাম ॥৮২॥
+
 > hena-kāle āila vaiṣṇava 'kṛṣṇadāsa' nāma
 > rājaputa-jāti,—gṛhastha, yamunā-pāre grāma
 

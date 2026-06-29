@@ -1,5 +1,8 @@
 ### CC Adi 5.51
 
+> বৈকুণ্ঠ-বাহিরে যেই জ্যোতির্ময় ধাম ।
+> তাহার বাহিরে ‘কারণার্ণব’ নাম ॥৫১॥
+
 > vaikuṇṭha-bāhire yei jyotir-maya dhāma
 > tāhāra bāhire 'kāraṇārṇava' nāma
 

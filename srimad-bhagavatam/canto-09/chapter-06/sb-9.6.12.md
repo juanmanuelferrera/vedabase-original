@@ -1,5 +1,8 @@
 ### SB 9.6.12
 
+> पुरञ्जयस्तस्य सुत इन्द्रवाह इतीरितः
+> ककुत्स्थ इति चाप्युक्तः शृणु नामानि कर्मभिः ॥१२॥
+
 > purañjayas tasya suta
 > indravāha itīritaḥ
 > kakutstha iti cāpy uktaḥ

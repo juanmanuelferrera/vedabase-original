@@ -1,5 +1,8 @@
 ### SB 8.1.16
 
+> तमीहमानं निरहङ्कृतं बुधं निराशिषं पूर्णमनन्यचोदितम
+> नॄन्शिक्षयन्तं निजवर्त्मसंस्थितं प्रभुं प्रपद्येऽखिलधर्मभावनम ॥१६॥
+
 tam īhamānaṁ nirahaṅkṛtaṁ budhaṁ
 *nirāśiṣaṁ pūrṇam ananya*-coditam
 *nṝñ śikṣayantaṁ nija*-vartma-saṁsthitaṁ

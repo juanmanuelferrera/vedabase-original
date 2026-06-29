@@ -1,5 +1,8 @@
 ### CC Madhya 9.280
 
+> গোকর্ণে শিব দেখি’ আইলা দ্বৈপায়নি ।
+> সূর্পারক-তীর্থে আইলা ন্যাসিশিরোমণি ॥২৮০॥
+
 > gokarṇe śiva dekhi' āilā dvaipāyani
 > sūrpāraka-tīrthe āilā nyāsi-śiromaṇi
 

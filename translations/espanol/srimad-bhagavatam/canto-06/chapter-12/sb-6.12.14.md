@@ -1,5 +1,8 @@
 ### SB 6.12.14
 
+> तस्मादकीर्तियशसोर्जयापजययोरपि
+> समः स्यात्सुखदुःखाभ्यां मृत्युजीवितयोस्तथा ॥१४॥
+
 > tasmād akīrti-yaśasor
 > jayāpajayayor api
 > samaḥ syāt sukha-duḥkhābhyāṁ

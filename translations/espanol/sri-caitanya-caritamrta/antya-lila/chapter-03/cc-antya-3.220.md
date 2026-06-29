@@ -1,5 +1,8 @@
 ### CC Antya 3.220
 
+> অলৌকিক আচার তোমার কহিতে পাই ভয় ।
+> সেই কৃপা করিবা, — যাতে মোর রক্ষা হয় ।।” ॥ ২২০ ॥
+
 > alaukika ācāra tomāra kahite pāi bhaya
 > sei kṛpā karibā,--yāte mora rakṣā haya"
 

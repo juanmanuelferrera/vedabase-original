@@ -1,5 +1,8 @@
 ### CC Madhya 9.24
 
+> পূর্বে তুমি নিরন্তর লৈতে রামনাম ।
+> এবে কেনে নিরন্তর লও কৃষ্ণনাম ॥” ২৪ ॥
+
 > pūrve tumi nirantara laite rāma-nāma
 > ebe kene nirantara lao kṛṣṇa-nāma''
 

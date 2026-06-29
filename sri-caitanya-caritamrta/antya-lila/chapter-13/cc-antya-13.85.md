@@ -1,5 +1,8 @@
 ### CC Antya 13.85
 
+> প্রভু কহে, — “গোবিন্দ, আজি রাখিলা জীবন ।
+> স্ত্রী-পরশ হৈলে আমার হইত মরণ ॥৮৫॥
+
 > prabhu kahe,—"govinda, āji rākhilā jīvana
 > strī-paraśa haile āmāra ha-ita maraṇa
 

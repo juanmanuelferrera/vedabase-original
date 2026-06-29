@@ -1,5 +1,8 @@
 ### CC Madhya 25.172
 
+> ‘এক’ বারাণসী ছিল তোমাতে বিমুখ ।
+> তাহা নিস্তারিয়া কৈলা আমা-সবার সুখ ॥” ১৭২ ॥
+
 > 'eka' vārāṇasī chila tomāte vimukha
 > tāhā nistāriyā kailā āmā-sabāra sukha
 

@@ -1,5 +1,8 @@
 ### CC Adi 6.99
 
+> জ্যেষ্ঠ-ভাবে অংশীতে হয় প্রভু-জ্ঞান ।
+> কনিষ্ঠ-ভাবে আপনাতে ভক্ত-অভিমান ॥৯৯॥
+
 > jyeṣṭha-bhāve aṁśīte haya prabhu-jñāna
 > kaniṣṭha-bhāve āpanāte bhakta-abhimāna
 

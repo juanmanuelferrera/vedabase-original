@@ -1,5 +1,8 @@
 ### CC Madhya 7.115
 
+> আশ্চর্য শুনিয়া লোক আইল দেখিবারে ৷
+> প্ৰভুর রূপ-প্রেম দেখি’ হৈলা চমত্কারে ৷৷ ১১৫ ৷৷ ॥১১৫॥
+
 āścarya śuniyā loka āila dekhibāre
 prabhura rūpa-prema dekhi' hailā camatkāre
 

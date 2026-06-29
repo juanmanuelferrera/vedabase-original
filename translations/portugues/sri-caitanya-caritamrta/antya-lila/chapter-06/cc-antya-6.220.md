@@ -1,5 +1,8 @@
 ### CC Antya 6.220
 
+> মহাপ্রভুর ভক্তগণের বৈরাগ্য প্রধান ।
+> যাহা দেখি’ প্রীত হন গৌর-ভগবান্ ॥২২০॥
+
 mahāprabhura bhakta-gaṇera vairāgya pradhāna
 
 yāhā dekhi' prīta hana gaura-bhagavān

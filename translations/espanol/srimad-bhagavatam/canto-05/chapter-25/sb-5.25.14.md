@@ -1,5 +1,7 @@
 ### SB 5.25.14
 
+> एता ह्येवेह नृभिरुपगन्तव्या गतयो यथाकर्मविनिर्मिता यथोपदेशमनुवर्णिताःकामान्कामयमानैः ॥१४॥
+
 > etā hy eveha nṛbhir upagantavyā gatayo yathā-karma-vinirmitā yathopadeśam anuvarṇitāḥ kāmān kāmayamānaiḥ.
 
 *etāḥ*—todas esas; *hi*—en verdad; *eva*—ciertamente; *iha*—en este universo; *nṛbhiḥ*—por todas las entidades vivientes; *upagantavyāḥ*—que se pueden obtener; *gatayaḥ*—destinos; *yathā-karma*—conforme a las actividades pasadas; *vinirmitāḥ*—creadas; *yathā-upadeśam*—como fue enseñado; *anuvarṇitāḥ*—descrito conforme a; *kāmān*—disfrute material; *kāmayamānaiḥ*—por aquellos que están deseando.

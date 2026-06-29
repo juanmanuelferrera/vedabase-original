@@ -1,5 +1,8 @@
 ### CC Antya 19.110
 
+> শ্রদ্ধা করি, শুন ইহা, শুনিতে মহাসুখ ।
+> খণ্ডিবে আধ্যাত্মিকাদি কুতর্কাদি-দুঃখ ॥১১০॥
+
 > śraddhā kari, śuna ihā, śunite mahā-sukha
 > khaṇḍibe ādhyātmikādi kutarkādi-duḥkha
 

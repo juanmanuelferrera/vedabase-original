@@ -1,5 +1,8 @@
 ### CC Madhya 24.218
 
+> দেহারামী, সর্বকাম — সব আত্মারাম ।
+> কৃষ্ণকৃপায় কৃষ্ণ ভজে ছাড়ি’ সব কাম ॥২১৮॥
+
 dehārāmī, sarva-kāma--saba ātmārāma
 
 kṛṣṇa-kṛpāya kṛṣṇa bhaje chāḍi' saba kāma

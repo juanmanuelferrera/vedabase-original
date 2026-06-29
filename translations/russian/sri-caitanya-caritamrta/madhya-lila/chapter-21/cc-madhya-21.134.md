@@ -1,5 +1,10 @@
 ### CC Madhya 21.134
 
+> যে দেখিবে কৃষ্ণানন, তার করে দ্বি-নয়ন,
+> বিধি হঞা হেন অবিচার ।
+> মোর যদি বোল ধরে, কোটি আঁখি তার করে,
+> তবে জানি যোগ্য সৃষ্টি তার ॥১৩৪॥
+
 > ye dekhibe kṛṣṇānana, tāra kare dvi-nayana,
 > vidhi hañā hena avicāra
 > mora yadi bola dhare, koṭi āṅkhi tāra kare,

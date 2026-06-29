@@ -1,5 +1,8 @@
 ### CC Adi 15.21
 
+> তবে বিশ্বরূপ ইহাঁ পাঠাইল মোরে ।
+> মাতাকে কহিও কোটি কোটি নমস্কারে ॥২১॥
+
 > tabe viśvarūpa ihāṅ pāṭhāila more
 > mātāke kahio koṭi koṭi namaskāre
 

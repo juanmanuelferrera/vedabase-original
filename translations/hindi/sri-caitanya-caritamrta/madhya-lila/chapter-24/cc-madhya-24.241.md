@@ -1,5 +1,8 @@
 ### CC Madhya 24.241
 
+> নারদ কহে, — “যদি জীবে মার’ তুমি বাণ ।
+> অর্ধ-মারা কর কেনে, না লও পরাণ ?” ॥ ২৪১ ॥
+
 > nārada kahe,--"yadi jīve māra' tumi bāṇa
 > ardha-mārā kara kene, nā lao parāṇa?"
 

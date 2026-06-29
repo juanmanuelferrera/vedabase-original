@@ -1,5 +1,10 @@
 ### CC Antya 3.252-253
 
+> মহাভাগবত তুমি, — তোমার দর্শনে ।
+> তোমার কৃষ্ণনাম-কীর্তন-শ্রবণে ॥২৫২॥
+> চিত্ত শুদ্ধ হৈল, চাহে কৃষ্ণনাম লৈতে ।
+> কৃষ্ণনাম উপদেশি’ কৃপা কর মোতে ॥২৫৩॥
+
 > mahā-bhāgavata tumi,--tomāra darśane
 > tomāra kṛṣṇa-nāma-kīrtana-śravaṇe
 > citta śuddha haila, cāhe kṛṣṇa-nāma laite

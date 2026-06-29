@@ -1,5 +1,8 @@
 ### CC Madhya 15.164
 
+> এত শুনি’ মহাপ্রভুর চিত্ত দ্রবিলা  ।
+> অশ্রু-কম্প-স্বরভঙ্গে কহিতে লাগিলা ॥১৬৪॥
+
 > eta śuni' mahāprabhura citta dravilā
 > aśru-kampa-svarabhaṅge kahite lāgilā
 

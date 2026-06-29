@@ -1,5 +1,8 @@
 ### CC Adi 16.103
 
+> শৈশব-চাপল্য কিছু না লবে আমার ।
+> শিষ্যের সমান মুঞি না হঙ তোমার ॥১০৩॥
+
 śaiśava-cāpalya kichu nā labe āmāra
 
 śiṣyera samāna muñi nā haṅ tomāra

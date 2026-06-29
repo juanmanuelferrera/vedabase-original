@@ -1,5 +1,8 @@
 ### CC Madhya 8.27
 
+> এই মহারাজ — মহাপণ্ডিত, গম্ভীর ।
+> সন্ন্যাসীর স্পর্শে মত্ত হইলা অস্থির ॥২৭॥
+
 > ei mahārāja--mahā-paṇḍita, gambhīra
 > sannyāsīra sparśe matta ha-ilā asthira
 

@@ -1,5 +1,8 @@
 ### CC Antya 13.104
 
+> গোবিন্দেরে কহি’ এক বাসা দেওয়াইলা ।
+> স্বরূপাদি ভক্তগণ-সনে মিলাইলা ॥১০৪॥
+
 > govindere kahi' eka vāsā deoyāilā
 > svarūpādi bhakta-gaṇa-sane milāilā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 17.155
 
+> মথুরা-নিকটে আইলা — মথুরা দেখিয়া ।
+> দণ্ডবৎ হঞা পড়ে প্রেমাবিষ্ট হঞা ॥১৫৫॥
+
 mathurā-nikaṭe āilā--mathurā dekhiyā
 
 daṇḍavat hañā paḍe premāviṣṭa hañā

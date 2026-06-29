@@ -1,5 +1,8 @@
 ### CC Madhya 9.54
 
+> হেন কালে মহাকায় এক পক্ষী আইল ৷
+> ঠোঁটে করি’ অন্নসহ থালি লঞা গেল ৷৷ ৫৪ ৷৷ ॥৫৪॥
+
 > hena-kāle mahā-kāya eka pakṣī āila
 > ṭhoṅṭe kari' anna-saha thāli lañā gela
 

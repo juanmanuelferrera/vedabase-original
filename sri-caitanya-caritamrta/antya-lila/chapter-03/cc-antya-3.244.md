@@ -1,5 +1,8 @@
 ### CC Antya 3.244
 
+> কীর্তন করিতে আসি’ প্রাতঃকাল হৈল ।
+> প্রাতঃকাল দেখি’ নারী উঠিয়া চলিল ॥২৪৪॥
+
 > kīrtana karite āsi' prātaḥ-kāla haila
 > prātaḥ-kāla dekhi' nārī uṭhiyā calila
 

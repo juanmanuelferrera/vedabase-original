@@ -1,5 +1,8 @@
 ### CC Madhya 20.339
 
+> এই মন্ত্রে দ্বাপরে করে কৃষ্ণার্চন ।
+> ‘কৃষ্ণনাম-সংকীর্তন’ — কলিযুগের ধর্ম ॥৩৩৯॥
+
 ei mantre dvāpare kare kṛṣṇārcana
 
 'kṛṣṇa-nāma-saṅkīrtana'--kali-yugera dharma

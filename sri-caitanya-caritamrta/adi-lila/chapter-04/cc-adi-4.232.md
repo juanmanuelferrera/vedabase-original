@@ -1,5 +1,8 @@
 ### CC Adi 4.232
 
+> অতএব কহি কিছু করিঞা নিগূঢ় ।
+> বুঝিবে রসিক ভক্ত, না বুঝিবে মূঢ় ॥২৩২॥
+
 > ataeva kahi kichu kariñā nigūḍha
 > bujhibe rasika bhakta, nā bujhibe mūḍha
 

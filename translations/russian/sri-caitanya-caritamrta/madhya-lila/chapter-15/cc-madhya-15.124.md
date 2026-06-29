@@ -1,5 +1,8 @@
 ### CC Madhya 15.124
 
+> রাজার জ্ঞান, — রাজ-বৈদ্যের হইল মরণ ।
+> আপনে নামিয়া তবে করাইল চেতন ॥১২৪॥
+
 > rājāra jñāna,—rāja-vaidyera ha-ila maraṇa
 > āpane nāmiyā tabe karāila cetana
 

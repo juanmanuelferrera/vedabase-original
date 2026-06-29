@@ -1,5 +1,8 @@
 ### SB 3.6.38
 
+> आत्मनोऽवसितो वत्स महिमा कविनादिना ।
+> संवत्सरसहस्रान्ते धिया योगविपक्कया ॥३८॥
+
 > ātmano 'vasito vatsa
 > mahimā kavinādinā
 > saṁvatsara-sahasrānte

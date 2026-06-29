@@ -1,5 +1,8 @@
 ### CC Madhya 1.232
 
+> এই মত চলি’ চলি’ আইলা শান্তিপুরে ।
+> দিন পাঁচ-সাত রহিলা আচার্যের ঘরে ॥২৩২॥
+
 > ei mata cali' cali' āilā śāntipure
 > dina pāṅca-sāta rahilā ācāryera ghare
 

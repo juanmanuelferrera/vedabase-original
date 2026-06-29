@@ -1,5 +1,8 @@
 ### SB 6.6.43
 
+> पूषानपत्यः पिष्टादो भग्नदन्तोऽभवत्पुरा
+> योऽसौ दक्षाय कुपितं जहास विवृतद्विजः ॥४३॥
+
 > pūṣānapatyaḥ piṣṭādo
 > bhagna-danto 'bhavat purā
 > yo 'sau dakṣāya kupitaṁ

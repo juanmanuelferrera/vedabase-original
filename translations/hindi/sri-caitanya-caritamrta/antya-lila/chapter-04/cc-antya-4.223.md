@@ -1,5 +1,8 @@
 ### CC Antya 4.223
 
+> রূপ-গোসাঞি কৈলা ‘রসামৃতসিন্ধু’ সার  ।
+> কৃষ্ণভক্তি-রসের যাহাঁ পাইয়ে বিস্তার ॥২২৩॥
+
 > rūpa-gosāñi kailā 'rasāmṛta-sindhu' sāra
 > kṛṣṇa-bhakti-rasera yāhāṅ pāiye vistāra
 

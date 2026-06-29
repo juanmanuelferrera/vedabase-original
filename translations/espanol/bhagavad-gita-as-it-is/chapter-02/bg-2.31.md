@@ -1,5 +1,8 @@
 ### Bg 2.31
 
+> स्वधर्ममपि चावेक्ष्य न विकम्पितुमर्हसि ।
+> धर्म्याद्धि युद्धाच्छ्रेयोऽन्यत्क्षत्रियस्य न विद्यते ॥३१॥
+
 > svadharmam api cāvekṣya
 > na vikampitum arhasi
 > dharmyādhi yuddhāc chreyo'nyat

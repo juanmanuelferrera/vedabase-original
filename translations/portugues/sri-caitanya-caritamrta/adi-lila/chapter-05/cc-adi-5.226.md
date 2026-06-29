@@ -1,5 +1,8 @@
 ### CC Adi 5.226
 
+> সেই অপরাধে তার নাহিক নিস্তার ।
+> ঘোর নরকেতে পড়ে, কি বলিব আর ॥২২৬॥
+
 sei aparādhe tāra nāhika nistāra
 
 ghora narakete paḍe, ki baliba āra

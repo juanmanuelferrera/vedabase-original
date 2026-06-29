@@ -1,5 +1,8 @@
 ### CC Adi 5.94
 
+> সেই ত’ পুরুষ অনন্তব্রহ্মাণ্ড সৃজিয়া ।
+> সব অণ্ডে প্রবেশিলা বহু-মূর্তি হঞা ॥৯৪॥
+
 > sei ta' puruṣa ananta-brahmāṇḍa sṛjiyā
 > saba aṇḍe praveśilā bahu-mūrti hañā
 

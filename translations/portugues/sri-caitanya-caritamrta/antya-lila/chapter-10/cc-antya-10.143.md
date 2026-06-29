@@ -1,5 +1,8 @@
 ### CC Antya 10.143
 
+> প্রভুরে মিলাইতে তাঁরে সঙ্গেই আনিলা ।
+> মিলাইলে, প্রভু তাঁর নাম ত’ পুছিলা ॥১৪৩॥
+
 prabhure milāite tāṅre saṅgei ānilā
 
 milāile, prabhu tāṅra nāma ta' puchilā

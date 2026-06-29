@@ -1,5 +1,8 @@
 ### SB 5.12.10
 
+> एवं कृशं स्थूलमणुर्बृहद्यदसच्च सज्जीवमजीवमन्यत
+> द्रव्यस्वभावाशयकालकर्म नाम्नाजयावेहि कृतं द्वितीयम ॥१०॥
+
 > evaṁ kṛśaṁ sthūlam aṇur bṛhad yad
 > asac ca saj jīvam ajīvam anyat
 > dravya-svabhāvāśaya-kāla-karma-

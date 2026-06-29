@@ -1,5 +1,8 @@
 ### CC Madhya 21.146
 
+> আমি ত’ বাউল, আন কহিতে আন কহি ।
+> কৃষ্ণের মাধুর্যামৃতস্রোতে যাই বহি’ ॥১৪৬॥
+
 āmi ta' bāula, āna kahite āna kahi
 
 kṛṣṇera mādhuryāmṛta-srote yāi vahi'

@@ -1,5 +1,8 @@
 ### SB 6.1.2
 
+> प्रवृत्तिलक्षणश्चैव त्रैगुण्यविषयो मुने
+> योऽसावलीनप्रकृतेर्गुणसर्गः पुनः पुनः ॥२॥
+
 > pravṛtti-lakṣaṇaś caiva
 > traiguṇya-viṣayo mune
 > yo 'sāv alīna-prakṛter

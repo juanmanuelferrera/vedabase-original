@@ -1,5 +1,8 @@
 ### CC Madhya 25.175
 
+> প্রভু যবে স্নানে যান বিশ্বেশ্বর-দরশনে ৷
+> দুইদিকে লোক করে প্রভু-বিলোকনে ৷৷ ১৭৫ ৷৷ ॥১৭৫॥
+
 > prabhu yabe snāne yāna viśveśvara-daraśane
 > dui-dike loka kare prabhu-vilokane
 

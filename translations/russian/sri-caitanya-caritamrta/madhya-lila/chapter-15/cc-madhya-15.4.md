@@ -1,5 +1,8 @@
 ### CC Madhya 15.4
 
+> এইমত মহাপ্ৰভু ভক্তগণ-সঙ্গে ।
+> নীলাচলে রহি’ করে নৃত্যগীত-রঙ্গে ॥৪॥
+
 > ei-mata mahāprabhu bhakta-gaṇa-saṅge
 > nīlācale rahi' kare nṛtya-gīta-raṅge
 

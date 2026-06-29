@@ -1,5 +1,8 @@
 ### CC Adi 5.97
 
+> ব্রহ্মাণ্ড-প্রমাণ পঞ্চাশৎকোটি-যোজন ।
+> আয়াম, বিস্তার, দুই হয় এক সম ॥৯৭॥
+
 > brahmāṇḍa-pramāṇa pañcāśat-koṭi-yojana
 > āyāma, vistāra, dui haya eka sama
 

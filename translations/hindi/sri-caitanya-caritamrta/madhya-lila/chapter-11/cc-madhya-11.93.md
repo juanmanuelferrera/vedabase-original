@@ -1,5 +1,8 @@
 ### CC Madhya 11.93
 
+> কতেক কহিব, এই দেখ যত জন ।
+> চৈতন্যের গণ, সব — চৈতন্যজীবন ॥৯৩॥
+
 > kateka kahiba, ei dekha yata jana
 > caitanyera gaṇa, saba-caitanya-jīvana
 

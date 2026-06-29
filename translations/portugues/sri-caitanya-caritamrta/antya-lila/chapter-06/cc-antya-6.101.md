@@ -1,5 +1,8 @@
 ### CC Antya 6.101
 
+> প্রভু বিশ্রাম কৈলা, যদি দিন-শেষ হৈল ।
+> রাঘব-মন্দিরে তবে কীর্তন আরম্ভিল ॥১০১॥
+
 prabhu viśrāma kailā, yadi dina-śeṣa haila
 
 rāghava-mandire tabe kīrtana ārambhila

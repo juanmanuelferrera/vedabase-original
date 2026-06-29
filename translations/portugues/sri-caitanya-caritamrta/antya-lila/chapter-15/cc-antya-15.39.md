@@ -1,5 +1,8 @@
 ### CC Antya 15.39
 
+> অবশ্য কহিবে, — পাঞাছে কৃষ্ণের দর্শনে ।
+> এত অনুমানি’ পুছে তুলস্যাদি-গণে ॥৩৯॥
+
 avaśya kahibe,--pāñāche kṛṣṇera darśane
 
 eta anumāni' puche tulasy-ādi-gaṇe

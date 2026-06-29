@@ -1,5 +1,8 @@
 ### CC Antya 10.77
 
+> তবে নিত্যানন্দ প্রভু সৃজিলা উপায় ।
+> ক্রমে-ক্রমে কীর্তনীয়া রাখিল সবায় ॥৭৭॥
+
 tabe nityānanda prabhu sṛjilā upāya
 
 krame-krame kīrtanīyā rākhila sabāya

@@ -1,5 +1,8 @@
 ### CC Madhya 15.259
 
+> প্রভু-পদে পড়ি’ বহু আত্মনিন্দা কৈল ।
+> তাঁরে শান্ত করি’ প্রভু ঘরে পাঠাইল ॥২৫৯॥
+
 prabhu-pade paḍi' bahu ātma-nindā kaila
 
 tāṅre śānta kari' prabhu ghare pāṭhāila

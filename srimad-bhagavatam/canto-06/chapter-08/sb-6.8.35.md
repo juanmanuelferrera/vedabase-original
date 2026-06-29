@@ -1,5 +1,8 @@
 ### SB 6.8.35
 
+> मघवन्निदमाख्यातं वर्म नारायणात्मकम
+> विजेष्यसेऽञ्जसा येन दंशितोऽसुरयूथपान ॥३५॥
+
 > maghavann idam ākhyātaṁ
 > varma nārāyaṇātmakam
 > vijeṣyase 'ñjasā yena

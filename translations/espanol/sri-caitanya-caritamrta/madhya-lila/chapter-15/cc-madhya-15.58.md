@@ -1,5 +1,8 @@
 ### CC Madhya 15.58
 
+> শীঘ্র যাই’ মুঞি সব করিনু ভক্ষণ  ।
+> শূন্যপাত্র দেখি’ অশ্রু করিয়া মার্জন ॥৫৮॥
+
 > śīghra yāi' muñi saba karinu bhakṣaṇa
 > śūnya-pātra dekhi' aśru kariyā mārjana
 

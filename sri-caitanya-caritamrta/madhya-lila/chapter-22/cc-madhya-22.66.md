@@ -1,5 +1,8 @@
 ### CC Madhya 22.66
 
+> শাস্ত্রে যুক্তৌ চ নিপুণঃ সর্বথা দৃঢ়নিশ্চয়ঃ ।
+> প্রৌঢ়শ্রদ্ধোঽধিকারী যঃ স ভক্তাবুত্তমো মতঃ ॥৬৬॥
+
 > śāstre yuktau ca nipuṇaḥ
 > sarvathā dṛḍha-niścayaḥ
 > prauḍha-śraddho 'dhikārī yaḥ

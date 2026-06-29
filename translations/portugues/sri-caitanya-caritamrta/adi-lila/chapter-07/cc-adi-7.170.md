@@ -1,5 +1,8 @@
 ### CC Adi 7.170
 
+> সবাকার পাদপদ্মে কোটি নমস্কার ।
+> যৈছে তৈছে কহি কিছু চৈতন্য-বিহার ॥১৭০॥
+
 sabākāra pādapadme koṭi namaskāra
 
 yaiche taiche kahi kichu caitanya-vihāra

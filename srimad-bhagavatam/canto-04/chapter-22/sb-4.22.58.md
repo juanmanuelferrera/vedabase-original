@@ -1,5 +1,8 @@
 ### SB 4.22.58
 
+> वर्षति स्म यथाकामं पर्जन्य इव तर्पयन् ।
+> समुद्र इव दुर्बोधः सत्त्वेनाचलराडिव ॥५८॥
+
 > varṣati sma yathā-kāmaṁ
 > parjanya iva tarpayan
 > samudra iva durbodhaḥ

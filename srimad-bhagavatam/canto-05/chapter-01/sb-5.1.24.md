@@ -1,5 +1,7 @@
 ### SB 5.1.24
 
+> अथ च दुहितरं प्रजापतेर्विश्वकर्मण उपयेमे बर्हिष्मतीं नाम तस्यामु ह वावआत्मजानात्मसमानशीलगुणकर्मरूपवीर्योदारान्दश भावयाम्बभूव कन्यां चयवीयसीमूर्जस्वतीं नाम ॥२४॥
+
 > atha ca duhitaraṁ prajāpater viśvakarmaṇa upayeme barhiṣmatīṁ nāma tasyām u ha vāva ātmajān ātma-samāna-śīla-guṇa-karma-rūpa-vīryodārān daśa bhāvayām babhūva kanyāṁ ca yavīyasīm ūrjasvatīṁ nāma.
 
 *atha*—thereafter; *ca*—also; *duhitaram*—the daughter; *prajāpateḥ*—of one of the *prajāpatis* entrusted with increasing population; *viśvakarmaṇaḥ*—named Viśvakarmā; *upayeme*—married; *barhiṣmatīm*—Barhiṣmatī; *nāma*—named; *tasyām*—in her; *u ha*—as it is celebrated; *vāva*—wonderful; *ātma-jān*—sons; *ātma-samāna*—exactly equal to him; *śīla*—character; *guṇa*—quality; *karma*—activities; *rūpa*—beauty; *vīrya*—prowess; *udārān*—whose magnanimity; *daśa*—ten; *bhāvayām babhūva*—he begot; *kanyām*—daughter; *ca*—also; *yavīyasīm*—the youngest of all; *ūrjasvatīm*—Ūrjasvatī; *nāma*—named.

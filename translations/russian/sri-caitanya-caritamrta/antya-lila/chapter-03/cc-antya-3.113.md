@@ -1,5 +1,8 @@
 ### CC Antya 3.113
 
+> তোমার সঙ্গম লাগি' লুব্ধ মোর মন ।
+> তোমা না পাইলে প্রাণ না যায় ধারণ" ॥১১৩॥
+
 > tomāra saṅgama lāgi' lubdha mora mana
 > tomā nā pāile prāṇa nā yāya dhāraṇa"
 

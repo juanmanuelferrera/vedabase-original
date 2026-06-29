@@ -1,5 +1,8 @@
 ### SB 7.2.32
 
+> रुदत्य उच्चैर्दयिताङ्घ्रिपङ्कजं सिञ्चन्त्य अस्रैः कुचकुङ्कुमारुणैः
+> विस्रस्तकेशाभरणाः शुचं नृणां सृजन्त्य आक्रन्दनया विलेपिरे ॥३२॥
+
 > rudatya uccair dayitāṅghri-paṅkajaṁ
 > siñcantya asraiḥ kuca-kuṅkumāruṇaiḥ
 > visrasta-keśābharaṇāḥ śucaṁ nṛṇāṁ

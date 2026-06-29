@@ -1,5 +1,8 @@
 ### SB 2.2.3
 
+> अतः कविर्नामसु यावदर्थः स्यादप्रमत्तो व्यवसायबुद्धिः ।
+> सिद्धेऽन्यथार्थे न यतेत तत्र परिश्रमं तत्र समीक्षमाणः ॥३॥
+
 ataḥ kavir nāmasu yāvad arthaḥ
 syād apramatto vyavasāya-buddhiḥ
 siddhe 'nyathārthe na yateta tatra

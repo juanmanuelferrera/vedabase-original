@@ -1,5 +1,8 @@
 ### CC Madhya 19.234
 
+> এইমত মধুরে সব ভাব-সমাহার  ।
+> অতএব আস্বাদাধিক্যে করে চমৎকার ॥২৩৪॥
+
 ei-mata madhure saba bhāva-samāhāra
 
 ataeva āsvādādhikye kare camatkāra

@@ -1,5 +1,8 @@
 ### CC Antya 8.49
 
+> “রাত্রাবত্র ঐক্ষবমাসীৎ, তেন পিপীলিকাঃ সঞ্চরন্তি ।
+> অহো! বিরক্তানাং সন্ন্যাসিনামিয়মিন্দ্রিয়লালসেতি ব্রুবন্নুত্থায় গতঃ ।।” ॥ ৪৯ ॥
+
 >    "rātrāv atra aikṣavam āsīt, tena
 > pipīlikāḥ sañcaranti aho! viraktānāṁ
 > sannyāsinām iyam indriya-lālaseti

@@ -1,5 +1,8 @@
 ### CC Antya 6.115
 
+> কত উপহার আনে, হেন নাহি জানি ।
+> রাঘবের ঘরে রান্ধে রাধা-ঠাকুরাণী ॥১১৫॥
+
 kata upahāra āne, hena nāhi jāni
 
 rāghavera ghare rāndhe rādhā-ṭhākurāṇī

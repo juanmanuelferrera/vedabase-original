@@ -1,5 +1,8 @@
 ### CC Madhya 13.124
 
+> পূর্বে যৈছে কুরুক্ষেত্রে সব গোপীগণ  ।
+> কৃষ্ণের দর্শন পাঞা আনন্দিত মন ॥১২৪॥
+
 pūrve yaiche kurukṣetre saba gopī-gaṇa
 
 kṛṣṇera darśana pāñā ānandita mana

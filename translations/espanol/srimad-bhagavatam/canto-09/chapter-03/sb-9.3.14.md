@@ -1,5 +1,8 @@
 ### SB 9.3.14
 
+> इत्युक्तो जरया ग्रस्त देहो धमनिसन्ततः
+> ह्रदं प्रवेशितोऽश्विभ्यां वलीपलितविग्रहः ॥१४॥
+
 > ity ukto jarayā grasta-
 > deho dhamani-santataḥ
 > hradaṁ praveśito 'śvibhyāṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 10.20
 
+> ঠাকুরের নিকট, আর হইবে নির্জনে ৷
+> এমত নির্ণয় করি’ দেহ এক স্থানে ৷৷ ২০ ৷৷ ॥২০॥
+
 > ṭhākurera nikaṭa, āra ha-ibe nirjane
 > e-mata nirṇaya kari' deha' eka sthāne
 

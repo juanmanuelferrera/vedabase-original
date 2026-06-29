@@ -1,5 +1,8 @@
 ### CC Adi 3.97
 
+> কেহ পাপে, কেহ পুণ্যে করে বিষয়-ভোগ ।
+> ভক্তিগন্ধ নাহি, যাতে যায় ভবরোগ ॥৯৭॥
+
 > keha pāpe, keha puṇye kare viṣaya-bhoga
 > bhakti-gandha nāhi, yāte yāya bhava-roga
 

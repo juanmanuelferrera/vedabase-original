@@ -1,5 +1,8 @@
 ### SB 1.17.32
 
+> त्वां वर्तमानं नरदेवदेहेष्वनुप्रवृत्तोऽयमधर्मपूगः ।
+> लोभोऽनृतं चौर्यमनार्यमंहो ज्येष्ठा च माया कलहश्च दम्भः ॥३२॥
+
 > tvāṁ vartamānaṁ nara-deva-deheṣv
 > anupravṛtto 'yam adharma-pūgaḥ
 > lobho 'nṛtaṁ cauryam anāryam aṁho

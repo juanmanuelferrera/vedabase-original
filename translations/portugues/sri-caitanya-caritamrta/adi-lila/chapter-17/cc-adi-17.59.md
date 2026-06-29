@@ -1,5 +1,8 @@
 ### CC Adi 17.59
 
+> তবে বিপ্র লইল আসি শ্রীবাস শরণ ।
+> তাঁহার কৃপায় হৈল পাপ-বিমোচন ॥৫৯॥
+
 tabe vipra la-ila āsi śrīvāsa śaraṇa
 
 tāṅhāra kṛpāya haila pāpa-vimocana

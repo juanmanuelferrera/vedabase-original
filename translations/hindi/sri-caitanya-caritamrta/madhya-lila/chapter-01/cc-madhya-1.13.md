@@ -1,5 +1,8 @@
 ### CC Madhya 1.13
 
+> চৈতন্যলীলার ব্যাস — দাস বৃন্দাবন ।
+> তাঁর আজ্ঞায় করোঁ তাঁর উচ্ছিষ্ট চর্বণ ॥১৩॥
+
 > caitanya-līlāra vyāsa--dāsa vṛndāvana
 > tāṅra ājñāya karoṅ tāṅra ucchiṣṭa carvaṇa
 

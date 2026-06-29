@@ -1,5 +1,8 @@
 ### SB 6.4.42
 
+> तं तथावनतं भक्तं प्रजाकामं प्रजापतिम
+> चित्तज्ञअः सर्वभूतानामिदमाह जनार्दनः ॥४२॥
+
 > taṁ tathāvanataṁ bhaktaṁ
 > prajā-kāmaṁ prajāpatim
 > citta-jñaḥ sarva-bhūtānām

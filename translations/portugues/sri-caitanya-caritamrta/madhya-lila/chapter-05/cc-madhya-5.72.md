@@ -1,5 +1,8 @@
 ### CC Madhya 5.72
 
+> তবে আমি কহিলাঙ দৃঢ় করি’ মন ।
+> গোপালের আগে কহ এ-সত্য বচন ॥৭২॥
+
 tabe āmi kahilāṅ dṛḍha kari' mana
 
 gopālera āge kaha e-satya vacana

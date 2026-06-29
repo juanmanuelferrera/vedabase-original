@@ -1,5 +1,8 @@
 ### SB 8.8.6
 
+> कौस्तुभाख्यमभूद्रत्नं पद्मरागो महोदधेः
+> तस्मिन्मणौ स्पृहां चक्रे वक्षोऽलङ्करणे हरिः ॥६॥
+
 > kaustubhākhyam abhūd ratnaṁ
 > padmarāgo mahodadheḥ
 > tasmin maṇau spṛhāṁ cakre

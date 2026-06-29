@@ -1,5 +1,8 @@
 ### CC Madhya 24.253
 
+> ব্যাধ কহে, — “বাল্য হৈতে এই আমার কর্ম ।
+> কেমনে তরিমু মুঞি পামর অধম ? ॥ ২৫৩ ॥
+
 > vyādha kahe,—"bālya haite ei āmāra karma
 > kemane tarimu muñi pāmara adhama?
 

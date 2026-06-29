@@ -1,5 +1,8 @@
 ### CC Madhya 8.249
 
+> ‘মুক্ত-মধ্যে কোন্ জীব মুক্ত করি’ মানি?’
+> ‘কৃষ্ণপ্রেম যাঁর, সেই মুক্ত-শিরোমণি ৷৷’ ২৪৯ ৷৷ ॥২৪৯॥
+
 > 'mukta-madhye kon jīva mukta kari' māni?'
 > 'kṛṣṇa-prema yāṅra, sei mukta-śiromaṇi'
 

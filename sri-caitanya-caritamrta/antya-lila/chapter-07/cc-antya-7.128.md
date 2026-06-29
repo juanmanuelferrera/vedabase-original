@@ -1,5 +1,8 @@
 ### CC Antya 7.128
 
+> আমি — অজ্ঞ, ‘হিত’-স্থানে মানি ‘অপমানে’ ।
+> ইন্দ্র যেন কৃষ্ণের নিন্দা করিল অজ্ঞানে ॥১২৮॥
+
 > āmi—ajña, 'hita'-sthāne māni 'apamāne'
 > indra yena kṛṣṇera nindā karila ajñāne
 

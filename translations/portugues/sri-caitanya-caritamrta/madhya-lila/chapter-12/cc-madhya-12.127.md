@@ -1,5 +1,8 @@
 ### CC Madhya 12.127
 
+> এই অপরাধে মোর কাহাঁ হবে গতি ।
+> তোমার ‘গৌড়ীয়া’ করে এতেক ফৈজতি ! ॥ ১২৭ ॥
+
 ei aparādhe mora kāhāṅ habe gati
 
 tomāra 'gauḍīyā' kare eteka phaijati!

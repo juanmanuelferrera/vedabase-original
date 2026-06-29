@@ -1,5 +1,8 @@
 ### CC Madhya 20.221
 
+> অস্ত্রধৃতি-ভেদ — নাম-ভেদের কারণ ।
+> চক্রাদি-ধারণ-ভেদ শুন, সনাতন ॥২২১॥
+
 > astra-dhṛti-bheda—nāma-bhedera kāraṇa
 > cakrādi-dhāraṇa-bheda śuna, sanātana
 

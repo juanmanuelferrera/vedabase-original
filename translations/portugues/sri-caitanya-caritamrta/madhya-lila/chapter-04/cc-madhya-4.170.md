@@ -1,5 +1,8 @@
 ### CC Madhya 4.170
 
+> শ্রীমুখে মাধব-পুরীর অমৃত-চরিত ।
+> ভক্তগণে শুনাঞা প্রভু করে আস্বাদিত ॥১৭০॥
+
 śrī-mukhe mādhava-purīra amṛta-carita
 bhakta-gaṇe śunāñā prabhu kare āsvādita
 

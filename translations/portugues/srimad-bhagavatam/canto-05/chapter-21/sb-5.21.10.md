@@ -1,5 +1,7 @@
 ### SB 5.21.10
 
+> यदा चैन्द्र्याः पुर्याः प्रचलते पञ्चदशघटिकाभिर्याम्यां सपादकोटिद्वयं योजनानांसार्धद्वादशलक्षाणि साधिकानि चोपयाति ॥१०॥
+
 yadā caindryāḥ puryāḥ pracalate pañcadaśa-ghaṭikābhir yāmyāṁ sapāda-koṭi-dvayaṁ yojanānāṁ sārdha-dvādaśa-lakṣāṇi sādhikāni copayāti.
 
 *yadā*—quando; *ca*—e; *aindryāḥ*—de Indra; *puryāḥ*—da residência; *pracalate*—move-se; *pañcadaśa*—em quinze; *ghaṭikābhiḥ*—meias-horas (na verdade, vinte e quatro minutos); *yāmyām*—para a residência de Yamarāja; *sapāda-koṭi-dvayam*—dois crores e um quarto (22.500.000); *yojanānām*—de yojanas; *sārdha*—e meio; *dvādaśa-lakṣāṇi*—doze cem mil; *sādhikāni*—vinte e cinco mil a mais; *ca*—e; *upayāti*—ele atravessa.

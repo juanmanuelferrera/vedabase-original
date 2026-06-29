@@ -1,5 +1,8 @@
 ### CC Antya 13.18
 
+> নখে চিরি’ চিরি’ তাহা অতি সূক্ষ্ম কৈলা  ।
+> প্রভুর বহির্বাস দুইতে সে সব ভরিলা ॥১৮॥
+
 nakhe ciri' ciri' tāhā ati sūkṣma kailā
 
 prabhura bahirvāsa duite se saba bharilā

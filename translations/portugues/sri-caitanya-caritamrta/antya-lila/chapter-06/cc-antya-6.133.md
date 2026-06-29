@@ -1,5 +1,8 @@
 ### CC Antya 6.133
 
+> মোর মাথে পদ ধরি’ করহ প্রসাদ  ।
+> নির্বিঘ্নে চৈতন্য পাঙ — কর আশীর্বাদ ।।” ১৩৩ ॥১৩৩॥
+
 mora māthe pada dhari' karaha prasāda
 
 nirvighne caitanya pāṅa--kara āśīrvāda"

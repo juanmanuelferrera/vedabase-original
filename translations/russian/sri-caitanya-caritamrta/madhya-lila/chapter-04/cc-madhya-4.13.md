@@ -1,5 +1,8 @@
 ### CC Madhya 4.13
 
+> রেমুণাতে গোপীনাথ পরম-মোহন ।
+> ভক্তি করি’ কৈল প্রভু তাঁর দরশন ॥১৩॥
+
 > remuṇāte gopīnātha parama-mohana
 > bhakti kari' kaila prabhu tāṅra daraśana
 

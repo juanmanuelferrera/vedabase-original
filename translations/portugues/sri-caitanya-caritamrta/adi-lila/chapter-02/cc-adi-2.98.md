@@ -1,5 +1,8 @@
 ### CC Adi 2.98
 
+> অংশ-শক্ত্যাবেশরূপে দ্বিবিধাবতার ।
+> বাল্য পৌগণ্ড ধর্ম দুই ত’ প্রকার ॥৯৮॥
+
 aṁśa-śaktyāveśa-rūpe dvi-vidhāvatāra
 bālya paugaṇḍa dharma dui ta' prakāra
 

@@ -1,5 +1,8 @@
 ### CC Madhya 8.146
 
+> দ্বিজাত্মজা মে যুবয়োর্দিদৃক্ষুণা, ময়োপনীতা ভুবি ধর্মগুপ্তয়ে ।
+> কলাবতীর্ণাববনের্ভরাসুরান্, হত্বেহ ভূয়স্ত্বরয়েতমন্তি মে ॥১৪৬॥
+
 > dvijātmajā me yuvayor didṛkṣuṇā
 > mayopanītā bhuvi dharma-guptaye
 > kalāvatīrṇāv avaner bharāsurān

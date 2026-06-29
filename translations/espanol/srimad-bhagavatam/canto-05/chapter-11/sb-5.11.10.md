@@ -1,5 +1,8 @@
 ### SB 5.11.10
 
+> गन्धाकृतिस्पर्शरसश्रवांसि विसर्गरत्यर्त्यभिजल्पशिल्पाः
+> एकादशं स्वीकरणं ममेति शय्यामहं द्वादशमेक आहुः ॥१०॥
+
 > gandhākṛti-sparśa-rasa-śravāṁsi
 > visarga-raty-arty-abhijalpa-śilpāḥ
 > ekādaśaṁ svīkaraṇaṁ mameti

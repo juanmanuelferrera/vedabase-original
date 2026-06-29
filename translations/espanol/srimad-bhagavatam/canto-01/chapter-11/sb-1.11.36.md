@@ -1,5 +1,10 @@
 ### SB 1.11.36
 
+> उद्दामभावपिशुनामलवल्गुहास
+> व्रीडावलोकनिहतो मदनोऽपि यासाम् ।
+> सम्मुह्य चापमजहात्प्रमदोत्तमास्ता
+> यस्येन्द्रियं विमथितुं कुहकैर्न शेकुः ॥३६॥
+
 > uddāma-bhāva-piśunāmala-valgu-hāsa-
 > vrīḍāvaloka-nihato madano 'pi yāsām
 > sammuhya cāpam ajahāt pramadottamās tā

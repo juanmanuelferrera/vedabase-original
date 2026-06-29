@@ -1,5 +1,8 @@
 ### CC Madhya 24.42
 
+> ঐশ্বর্য-মাধুর্য-কারুণ্যে স্বরূপ-পূর্ণতা ।
+> ভক্তবাৎসল্য, আত্মপর্যন্ত বদান্যতা ॥৪২॥
+
 > aiśvarya-mādhurya-kāruṇye svarūpa-pūrṇatā
 > bhakta-vātsalya, ātma-paryanta vadānyatā
 

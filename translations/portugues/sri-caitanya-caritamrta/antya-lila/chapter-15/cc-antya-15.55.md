@@ -1,5 +1,8 @@
 ### CC Antya 15.55
 
+> এত বলি’ আগে চলে যমুনার কূলে ।
+> দেখে, — তাহাঁ কৃষ্ণ হয় কদম্বের তলে ॥৫৫॥
+
 eta bali' āge cale yamunāra kūle
 
 dekhe,--tāhāṅ kṛṣṇa haya kadambera tale

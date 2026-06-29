@@ -1,5 +1,10 @@
 ### CC Antya 15.63
 
+> নবাম্বুদ-লসদ্দ্যুতির্নবতড়িন্মনোজ্ঞাম্বরঃ
+> সুচিত্রমুরলীস্ফুরচ্ছরদমন্দচন্দ্রাননঃ ।
+> ময়ূরদলভূষিতঃ সুভগতারহারপ্রভঃ
+> স মে মদনমোহনঃ সখি তনোতি নেত্রস্পৃহাম্ ॥৬৩॥
+
 navāmbuda-lasad-dyutir nava-taḍin-manojñāmbaraḥ
 
 sucitra-muralī-sphurac-charad-amanda-candrānanaḥ

@@ -1,5 +1,8 @@
 ### CC Antya 13.107
 
+> রঘুনাথ-ভট্ট — পাকে অতি সুনিপুণ ।
+> যেই রান্ধে, সেই হয় অমৃতের সম ॥১০৭॥
+
 raghunātha-bhaṭṭa--pāke ati sunipuṇa
 
 yei rāndhe, sei haya amṛtera sama

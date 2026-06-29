@@ -1,5 +1,8 @@
 ### SB 8.18.23
 
+> इत्थं सशिष्येषु भृगुष्वनेकधा वितर्क्यमाणो भगवान्स वामनः
+> छत्रं सदण्डं सजलं कमण्डलुं विवेश बिभ्रद्धयमेधवाटम ॥२३॥
+
 > itthaṁ saśiṣyeṣu bhṛguṣv anekadhā
 > vitarkyamāṇo bhagavān sa vāmanaḥ
 > chatraṁ sadaṇḍaṁ sajalaṁ kamaṇḍaluṁ

@@ -1,5 +1,8 @@
 ### CC Antya 3.224
 
+> কৃষ্ণে অবতারিতে অদ্বৈত প্রতিজ্ঞা করিলা ।
+> জল-তুলসী দিয়া পূজা করিতে লাগিলা ॥২২৪॥
+
 > kṛṣṇe avatārite advaita pratijñā karilā
 > jala-tulasī diyā pūjā karite lāgilā
 

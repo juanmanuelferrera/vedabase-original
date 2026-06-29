@@ -1,5 +1,8 @@
 ### CC Adi 13.96
 
+> ‘হরি’ বলি’ নারীগণ দেই হুলাহুলি ।
+> স্বর্গে বাদ্য-নৃত্য করে দেব কুতূহলী ॥৯৬॥
+
 > 'hari' bali' nārīgaṇa dei hulāhuli
 > svarge vādya-nṛtya kare deva kutūhalī
 

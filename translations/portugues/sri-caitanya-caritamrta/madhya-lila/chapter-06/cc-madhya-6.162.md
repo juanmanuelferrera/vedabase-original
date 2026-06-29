@@ -1,5 +1,8 @@
 ### CC Madhya 6.162
 
+> ‘মায়াধীশ’ ‘মায়াবশ’ — ঈশ্বরে-জীবে ভেদ ৷
+> হেন-জীবে ঈশ্বর-সহ কহ ত’ অভেদ ॥১৬২॥
+
 'māyādhīśa' 'māyā-vaśa'--īśvare-jīve bheda
 
 hena-jīve īśvara-saha kaha ta' abheda

@@ -1,5 +1,8 @@
 ### CC Madhya 6.178
 
+> ভগবান্ — ‘সম্বন্ধ’, ভক্তি — ‘অভিধেয়’ হয় ।
+> প্রেমা — ‘প্রয়োজন’, বেদে তিনবস্তু কয় ॥১৭৮॥
+
 > bhagavān—'sambandha', bhakti—'abhidheya' haya
 > premā—'prayojana', vede tina-vastu kaya
 

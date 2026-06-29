@@ -1,5 +1,8 @@
 ### CC Madhya 6.240
 
+> দণ্ডবৎ করি’ কৈল বহুবিধ স্তুতি ।
+> দৈন্য করি’ কহে নিজ পূর্বদুর্মতি ॥২৪০॥
+
 daṇḍavat kari' kaila bahu-vidha stuti
 dainya kari' kahe nija pūrva-durmati
 

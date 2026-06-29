@@ -1,5 +1,8 @@
 ### CC Madhya 12.105
 
+> শত ঘট জলে হৈল মন্দির মার্জন  ।
+> মন্দির শোধিয়া কৈল — যেন নিজ মন ॥১০৫॥
+
 > śata ghaṭa jale haila mandira mārjana
 > mandira śodhiyā kaila-yena nija mana
 

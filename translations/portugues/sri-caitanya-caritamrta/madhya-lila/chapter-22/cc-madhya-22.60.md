@@ -1,5 +1,8 @@
 ### CC Madhya 22.60
 
+> এই আজ্ঞাবলে ভক্তের ‘শ্রদ্ধা’ যদি হয় ।
+> সর্বকর্ম ত্যাগ করি’ সে কৃষ্ণ ভজয় ॥৬০॥
+
 ei ājñā-bale bhaktera 'śraddhā' yadi haya
 
 sarva-karma tyāga kari' se kṛṣṇa bhajaya

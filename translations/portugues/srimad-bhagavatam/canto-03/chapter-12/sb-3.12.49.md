@@ -1,5 +1,7 @@
 ### SB 3.12.49
 
+> ततोऽपरामुपादाय स सर्गाय मनो दध् ॥४९॥
+
 tato 'parām upādāya
 
 sa sargāya mano dadhe

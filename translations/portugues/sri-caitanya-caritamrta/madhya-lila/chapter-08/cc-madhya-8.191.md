@@ -1,5 +1,8 @@
 ### CC Madhya 8.191
 
+> প্রভু কহে, — এহো হয়, আগে কহ আর ৷
+> রায় কহে, — ইহা বই বুদ্ধি-গতি নাহি আর ৷৷ ১৯১ ৷৷ ॥১৯১॥
+
 prabhu kahe,--"eho haya, āge kaha āra"
 
 rāya kahe,--"īhā va-i buddhi-gati nāhi āra"

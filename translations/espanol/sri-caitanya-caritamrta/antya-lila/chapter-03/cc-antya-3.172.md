@@ -1,5 +1,8 @@
 ### CC Antya 3.172
 
+> একদিন বলরাম মিনতি করিয়া ।
+> মজুমদারের সভায় আইলা ঠাকুরে লঞা ॥১৭২॥
+
 > eka-dina balarāma minati kariyā
 > majumadārera sabhāya āilā ṭhākure lañā
 

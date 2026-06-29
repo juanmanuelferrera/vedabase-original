@@ -1,5 +1,8 @@
 ### CC Madhya 16.209
 
+> সাত দিন রহি’ তথা লোক নিস্তারিলা ।
+> সব অপরাধিগণে প্রকারে তারিলা ॥২০৯॥
+
 > sāta dina rahi' tathā loka nistārilā
 > saba aparādhi-gaṇe prakāre tārilā
 

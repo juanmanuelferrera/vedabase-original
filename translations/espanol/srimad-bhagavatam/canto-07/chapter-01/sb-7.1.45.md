@@ -1,5 +1,8 @@
 ### SB 7.1.45
 
+> तावत्र क्षत्रियौ जातौ मातृष्वस्रात्मजौ तव
+> अधुना शापनिर्मुक्तौ कृष्णचक्रहतांहसौ ॥४५॥
+
 > tatrāpi rāghavo bhūtvā
 > nyahanac chāpa-muktaye
 > rāma-vīryaṁ śroṣyasi tvaṁ

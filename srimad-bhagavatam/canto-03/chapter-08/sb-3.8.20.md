@@ -1,5 +1,8 @@
 ### SB 3.8.20
 
+> तमस्यपारे विदुरात्मसर्गं विचिन्वतोऽभूत्सुमहांस्त्रिणेमिः ।
+> यो देहभाजां भयमीरयाणः परिक्षिणोत्यायुरजस्य हेतिः ॥२०॥
+
 > tamasy apāre vidurātma-sargaṁ
 > vicinvato 'bhūt sumahāṁs tri-ṇemiḥ
 > yo deha-bhājāṁ bhayam īrayāṇaḥ

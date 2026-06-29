@@ -1,5 +1,8 @@
 ### CC Antya 14.92
 
+> প্রতি-রোমকূপে মাংস — ব্রণের আকার ।
+> তার উপরে রোমোদ্গম — কদম্বপ্রকার ॥৯২॥
+
 prati-roma-kūpe māṁsa--vraṇera ākāra
 
 tāra upare romodgama--kadamba-prakāra

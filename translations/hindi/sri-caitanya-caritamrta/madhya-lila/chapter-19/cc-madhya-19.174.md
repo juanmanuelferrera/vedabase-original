@@ -1,5 +1,8 @@
 ### CC Madhya 19.174
 
+> স এব ভক্তিযোগাখ্য আত্যন্তিক উদাহৃতঃ ।
+> যেনাতিব্রজ্য ত্রিগুণং মদ্ভাবায়োপপদ্যতে ॥১৭৪॥
+
 > sa eva bhakti-yogākhya
 > ātyantika udāhṛtaḥ
 > yenātivrajya triguṇaṁ

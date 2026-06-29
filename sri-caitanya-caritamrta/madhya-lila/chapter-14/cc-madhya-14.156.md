@@ -1,5 +1,8 @@
 ### CC Madhya 14.156
 
+> প্রেমময়-বপু কৃষ্ণ ভক্ত-প্রেমাধীন ।
+> শুদ্ধপ্রেমে, রসগুণে, গোপিকা — প্ৰবীণ ॥১৫৬॥
+
 > premamaya-vapu kṛṣṇa bhakta-premādhīna
 > śuddha-preme, rasa-guṇe, gopikā-pravīṇa
 

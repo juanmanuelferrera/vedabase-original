@@ -1,5 +1,8 @@
 ### SB 8.16.19
 
+> क्व देहो भौतिकोऽनात्मा क्व चात्मा प्रकृतेः परः
+> कस्य के पतिपुत्राद्या मोह एव हि कारणम ॥१९॥
+
 > kva deho bhautiko 'nātmā
 > kva cātmā prakṛteḥ paraḥ
 > kasya ke pati-putrādyā

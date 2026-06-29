@@ -1,5 +1,8 @@
 ### CC Antya 4.29
 
+> হেন বংশ ঘৃণা ছাড়ি’ কৈলা অঙ্গীকার  ।
+> তোমার কৃপায় বংশে মঙ্গল আমার ॥২৯॥
+
 hena vaṁśa ghṛṇā chāḍi' kailā aṅgīkāra
 
 tomāra kṛpāya vaṁśe maṅgala āmāra

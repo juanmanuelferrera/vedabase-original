@@ -1,5 +1,8 @@
 ### CC Madhya 18.172
 
+> পাঠান কহে, — তুমি পশ্চিমা মাথুর দুইজন ।
+> ‘গৌড়িয়া’ ঠক্ এই কাঁপে দুইজন ॥১৭২॥
+
 > pāṭhāna kahe,—tumi paścimā māthura dui-jana
 > 'gauḍiyā' ṭhak ei kāṅpe dui-jana
 

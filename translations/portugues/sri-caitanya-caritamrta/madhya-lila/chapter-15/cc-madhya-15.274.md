@@ -1,5 +1,8 @@
 ### CC Madhya 15.274
 
+> সহজে নির্মল এই ‘ব্রাহ্মণ’-হৃদয়  ।
+> কৃষ্ণের বসিতে এই যোগ্যস্থান হয় ॥২৭৪॥
+
 sahaje nirmala ei 'brāhmaṇa'-hṛdaya
 
 kṛṣṇera vasite ei yogya-sthāna haya

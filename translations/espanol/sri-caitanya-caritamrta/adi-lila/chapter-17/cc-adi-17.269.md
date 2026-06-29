@@ -1,5 +1,8 @@
 ### CC Adi 17.269
 
+> প্রভু তাঁরে নমস্করি’ কৈল নিমন্ত্রণ ।
+> ভিক্ষা করাইয়া তাঁরে কৈল নিবেদন ॥২৬৯॥
+
 > prabhu tāṅre namaskari' kaila nimantraṇa
 > bhikṣā karāiyā tāṅre kaila nivedana
 

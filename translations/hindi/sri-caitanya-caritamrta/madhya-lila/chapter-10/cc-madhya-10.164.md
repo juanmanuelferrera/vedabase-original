@@ -1,5 +1,8 @@
 ### CC Madhya 10.164
 
+> তুমি — গৌরবর্ণ, তেঁহ — শ্যামলবরণ ।
+> দুই ব্রহ্মে কৈল সব জগৎ-তারণ ॥১৬৪॥
+
 > tumi-gaura-varṇa, teṅha-śyāmala-varṇa
 > dui brahme kaila saba jagat-tāraṇa
 

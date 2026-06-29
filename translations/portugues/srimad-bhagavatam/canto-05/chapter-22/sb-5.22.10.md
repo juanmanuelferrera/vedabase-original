@@ -1,5 +1,7 @@
 ### SB 5.22.10
 
+> य एष षोडशकलः पुरुषो भगवान्मनोमयोऽन्नमयोऽमृतमयो देवपितृमनुष्यभूतपशुपक्षिसरीसृपवीरुधां प्राणाप्यायनशीलत्वात्सर्वमय इति वर्णयन्ति ॥१०॥
+
 *ya eṣa ṣoḍaśa*-kalaḥ puruṣo bhagavān manomayo 'nnamayo 'mṛtamayo deva-pitṛ-manuṣya-bhūta-paśu-pakṣi-sarīsṛpa-vīrudhāṁ prāṇāpy āyana-śīlatvāt sarvamaya iti varṇayanti.
 
 *yaḥ*—aquele; *eṣaḥ*—este; *ṣoḍaśa-kalaḥ*—tendo todas as dezesseis partes (a lua cheia); *puruṣaḥ*—a pessoa; *bhagavān*—possuidor de grande poder recebido da Suprema Personalidade de Deus; *manaḥ-mayaḥ*—a deidade predominante da mente; *anna-mayaḥ*—a fonte da potência dos grãos alimentícios; *amṛta-mayaḥ*—a fonte da substância da vida; *deva*—de todos os semideuses; *pitṛ*—de todos os habitantes de Pitṛloka; *manuṣya*—todos os seres humanos; *bhūta*—todas as entidades vivas; *paśu*—dos animais; *pakṣi*—das aves; *sarīsṛpa*—dos répteis; *vīrudhām*—de todas as espécies de ervas e plantas; *prāṇa*—o ar vital; *api*—certamente; *āyana-śīlatvāt*—por revigorar; *sarva-mayaḥ*—onipenetrante; *iti*—assim; *varṇayanti*—os eruditos descrevem.

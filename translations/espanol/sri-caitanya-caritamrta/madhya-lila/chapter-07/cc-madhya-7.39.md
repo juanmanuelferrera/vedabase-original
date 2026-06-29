@@ -1,5 +1,8 @@
 ### CC Madhya 7.39
 
+> ‘কৃষ্ণদাস’-নামে এই সরল ব্রাহ্মণ ৷
+> ইঁহো সঙ্গে করি’ লহ, ধর নিবেদন ৷৷ ৩৯ ৷৷ ॥৩৯॥
+
 > 'kṛṣṇadāsa'-nāme ei sarala brāhmaṇa
 > iṅho saṅge kari' laha, dhara nivedana
 

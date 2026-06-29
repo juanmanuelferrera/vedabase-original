@@ -1,5 +1,8 @@
 ### CC Madhya 9.142
 
+> কৃষ্ণের বিলাস-মূর্তি — শ্রীনারায়ণ ৷
+> অতএব লক্ষ্মী-আদ্যের হরে তেঁহ মন ৷৷ ১৪২ ৷৷ ॥১৪২॥
+
 kṛṣṇera vilāsa-mūrti--śrī-nārāyaṇa
 
 ataeva lakṣmī-ādyera hare teṅha mana

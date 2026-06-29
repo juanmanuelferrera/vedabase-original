@@ -1,5 +1,8 @@
 ### CC Madhya 7.123
 
+> অনেকপ্রকার স্নেহে ভিক্ষা করাইল ।
+> গোসাঞির শেষান্ন সবংশে খাইল ॥১২৩॥
+
 > aneka-prakāra snehe bhikṣā karāila
 > gosāñira śeṣānna sa-vaṁśe khāila
 

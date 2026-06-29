@@ -1,5 +1,10 @@
 ### CC Adi 4.51
 
+> সুরেশানাং দুর্গং গতিরতিশয়েনোপনিষদাং
+> মুনীনাং সর্বস্বং প্রণতপটলীনাং মধুরিমা ।
+> বিনির্যাসঃ প্রেম্ণো নিখিলপশুপালাম্বুজদৃশাং
+> স চৈতন্যঃ কিং মে পুনরপি দৃশোর্যাস্যতি পদম্ ॥৫১॥
+
 > sureśānāṁ durgaṁ gatir atiśayenopaniṣadāṁ
 > munīnāṁ sarva-svaṁ praṇata-paṭalīnāṁ madhurimā
 > viniryāsaḥ premṇo nikhila-paśu-pālāmbuja-dṛśāṁ

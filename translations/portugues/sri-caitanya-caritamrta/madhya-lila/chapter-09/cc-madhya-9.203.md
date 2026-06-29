@@ -1,5 +1,8 @@
 ### CC Madhya 9.203
 
+> ‘মায়াসীতা’রাবণ নিল, শুনিলা আখ্যানে ৷
+> শুনি’ মহাপ্রভু হইল আনন্দিত মনে ৷৷ ২০৩ ৷৷ ॥২০৩॥
+
 'māyā-sītā' rāvaṇa nila, śunilā ākhyāne
 śuni' mahāprabhu haila ānandita mane
 

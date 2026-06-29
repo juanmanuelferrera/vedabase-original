@@ -1,5 +1,8 @@
 ### SB 8.19.20
 
+> न पुमान्मामुपव्रज्य भूयो याचितुमर्हति
+> तस्माद्वृत्तिकरीं भूमिं वटो कामं प्रतीच्छ मे ॥२०॥
+
 > na pumān mām upavrajya
 > bhūyo yācitum arhati
 > tasmād vṛttikarīṁ bhūmiṁ

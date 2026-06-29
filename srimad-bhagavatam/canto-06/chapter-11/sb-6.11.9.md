@@ -1,5 +1,8 @@
 ### SB 6.11.9
 
+> विलोक्य तं वज्रधरोऽत्यमर्षितः स्वशत्रवेऽभिद्रवते महागदाम
+> चिक्षेप तामापततीं सुदुःसहां जग्राह वामेन करेण लीलया ॥९॥
+
 > vilokya taṁ vajra-dharo 'tyamarṣitaḥ
 > sva-śatrave 'bhidravate mahā-gadām
 > cikṣepa tām āpatatīṁ suduḥsahāṁ

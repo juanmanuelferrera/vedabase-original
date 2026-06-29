@@ -1,5 +1,8 @@
 ### CC Adi 17.288
 
+> “নমো নারায়ণ, দেব করহ প্রসাদ ।
+> কৃষ্ণসঙ্গ দেহ’ মোর ঘুচাহ বিষাদ ।।” ॥ ২৮৮ ॥
+
 "namo nārāyaṇa, deva karaha prasāda
 
 kṛṣṇa-saṅga deha' mora ghucāha viṣāda"

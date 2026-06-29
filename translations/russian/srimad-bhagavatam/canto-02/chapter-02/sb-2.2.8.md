@@ -1,5 +1,8 @@
 ### SB 2.2.8
 
+> केचित्स्वदेहान्तर्हृदयावकाशे प्रादेशमात्रं पुरुषं वसन्तम् ।
+> चतुर्भुजं कञ्जरथाङ्गशङ्ख गदाधरं धारणया स्मरन्ति ॥८॥
+
 > kecit sva-dehāntar-hṛdayāvakāśe
 > prādeśa-mātraṁ puruṣaṁ vasantam
 > catur-bhujaṁ kañja-rathāṅga-śaṅkha-

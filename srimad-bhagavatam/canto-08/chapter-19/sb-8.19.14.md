@@ -1,5 +1,8 @@
 ### SB 8.19.14
 
+> पिता प्रह्रादपुत्रस्ते तद्विद्वान्द्विजवत्सलः
+> स्वमायुर्द्विजलिङ्गेभ्यो देवेभ्योऽदात्स याचितः ॥१४॥
+
 > pitā prahrāda-putras te
 > tad-vidvān dvija-vatsalaḥ
 > svam āyur dvija-liṅgebhyo

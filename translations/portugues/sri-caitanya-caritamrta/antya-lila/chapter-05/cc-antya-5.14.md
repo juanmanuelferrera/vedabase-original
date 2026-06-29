@@ -1,5 +1,8 @@
 ### CC Antya 5.14
 
+> সেই দুঁহে লঞা রায় নিভৃত উদ্যানে  ।
+> নিজ-নাটক-গীতের শিখায় নর্তনে ॥১৪॥
+
 sei duṅhe lañā rāya nibhṛta udyāne
 nija-nāṭaka-gītera śikhāya nartane
 

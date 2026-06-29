@@ -1,5 +1,8 @@
 ### CC Madhya 22.45
 
+> কোন ভাগ্যে কারো সংসার ক্ষয়োন্মুখ হয় ।
+> সাধুসঙ্গে তবে কৃষ্ণে রতি উপজয় ॥৪৫॥
+
 > kona bhāgye kāro saṁsāra kṣayonmukha haya
 > sādhu-saṅge tabe kṛṣṇe rati upajaya
 

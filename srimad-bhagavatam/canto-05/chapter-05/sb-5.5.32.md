@@ -1,5 +1,7 @@
 ### SB 5.5.32
 
+> यर्हि वाव स भगवान्लोकमिमं योगस्याद्धा प्रतीपमिवाचक्षाणस्तत्प्रतिक्रियाकर्मबीभत्सितमिति व्रतमाजगरमास्थितः शयान एवाश्नाति पिबति खादत्यवमेहति हदति स्म चेष्टमानउच्चरित आदिग्धोद्देशः ॥३२॥
+
 > yarhi vāva sa bhagavān lokam imaṁ yogasyāddhā pratīpam ivācakṣāṇas tat-pratikriyā-karma bībhatsitam iti vratam ājagaram-āsthitaḥ śayāna evāśnāti pibati khādaty avamehati hadati sma ceṣṭamāna uccarita ādigdhoddeśaḥ.
 
 *yarhi vāva*—when; *saḥ*—He; *bhagavān*—the Personality of Godhead; *lokam*—the people in general; *imam*—this; *yogasya*—to the performance of *yoga*; *addhā*—directly; *pratīpam*—antagonistic; *iva*—like; *ācakṣāṇaḥ*—observed; *tat*—of that; *pratikriyā*—for counteraction; *karma*—activity; *bībhatsitam*—abominable; *iti*—thus; *vratam*—the behavior; *ājagaram*—of a python (to stay in one place); *āsthitaḥ*—accepting; *śayānaḥ*—lying down; *eva*—indeed; *aśnāti*—eats; *pibati*—drinks; *khādati*—chews; *avamehati*—passes urine; *hadati*—passes stool; *sma*—thus; *ceṣṭamānaḥ*—rolling; *uccarite*—i n the stool and urine; *ādigdha-uddeśaḥ*—His body thus smeared.

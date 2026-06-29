@@ -1,5 +1,8 @@
 ### SB 8.11.32
 
+> न तस्य हि त्वचमपि वज्र ऊर्जितो बिभेद यः सुरपतिनौजसेरितः
+> तदद्भुतं परमतिवीर्यवृत्रभित्तिरस्कृतो नमुचिशिरोधरत्वचा ॥३२॥
+
 > na tasya hi tvacam api vajra ūrjito
 > bibheda yaḥ sura-patinaujaseritaḥ
 > tad adbhutaṁ param ativīrya-vṛtra-bhit

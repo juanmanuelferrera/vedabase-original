@@ -1,5 +1,8 @@
 ### SB 5.5.18
 
+> गुरुर्न स स्यात्स्वजनो न स स्यात्पिता न स स्याज्जननी न सा स्यात
+> दैवं न तत्स्यान्न पतिश्च स स्यान्न मोचयेद्यः समुपेतमृत्युम ॥१८॥
+
 > gurur na sa syāt sva-jano na sa syāt
 > pitā na sa syāj jananī na sā syāt
 > daivaṁ na tat syān na patiś ca sa syān

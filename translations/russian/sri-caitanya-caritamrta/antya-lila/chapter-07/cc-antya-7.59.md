@@ -1,5 +1,8 @@
 ### CC Antya 7.59
 
+> ইহাঁই রহেন সবে, বাসা — নানা-স্থানে ।
+> ইহাঁই পাইবা তুমি সবার দর্শনে ।।” ॥ ৫৯ ॥
+
 > ihāṅi rahena sabe, vāsā—nānā-sthāne
 > ihāṅi pāibā tumi sabāra darśane"
 

@@ -1,5 +1,8 @@
 ### CC Madhya 3.212
 
+> নিরপেক্ষ হঞা প্রভু শীঘ্র চলিলা ।
+> কান্দিতে কান্দিতে আচার্য পশ্চাৎ চলিলা ॥২১২॥
+
 nirapekṣa hañā prabhu śīghra calilā
 kāndite kāndite ācārya paścāt calilā
 

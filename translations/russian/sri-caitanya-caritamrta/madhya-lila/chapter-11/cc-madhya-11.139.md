@@ -1,5 +1,8 @@
 ### CC Madhya 11.139
 
+> বাসু কহে, — মুকুন্দ আদৌ পাইল তোমার সঙ্গ ।
+> তোমার চরণ পাইল সেই পুনর্জন্ম ॥১৩৯॥
+
 > vāsu kahe,-mukunda ādau pāila tomāra saṅga
 > tomāra caraṇa pāila sei punar-janma
 

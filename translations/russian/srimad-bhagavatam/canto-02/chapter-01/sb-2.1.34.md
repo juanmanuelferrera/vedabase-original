@@ -1,5 +1,8 @@
 ### SB 2.1.34
 
+> ईशस्य केशान्विदुरम्बुवाहान्वासस्तु सन्ध्यां कुरुवर्य भूम्नः ।
+> अव्यक्तमाहुर्हृदयं मनश्चस चन्द्रमाः सर्वविकारकोशः ॥३४॥
+
 > īśasya keśān vidur ambuvāhān
 > vāsas tu sandhyāṁ kuru-varya bhūmnaḥ
 > avyaktam āhur hṛdayaṁ manaś ca

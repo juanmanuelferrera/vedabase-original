@@ -1,5 +1,8 @@
 ### CC Antya 9.144
 
+> অসদ্ব্যয় না করিহ, — যাতে দুইলোক যায় ।”
+> এত বলি’ সবাকারে দিলেন বিদায় ॥১৪৪॥
+
 > asad-vyaya nā kariha,—yāte dui-loka yāya"
 > eta bali' sabākāre dilena vidāya
 

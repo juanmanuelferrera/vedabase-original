@@ -1,5 +1,10 @@
 ### CC Madhya 4.3-4
 
+> নীলাদ্রিগমন, জগন্নাথ-দরশন ।
+> সার্বভৌম ভট্টাচার্য-প্ৰভুর মিলন ॥৩॥
+> এসব লীলা প্ৰভুর দাস বৃন্দাবন ।
+> বিস্তারি’ করিয়াছেন উত্তম বর্ণন ॥৪॥
+
 nīlādri-gamana, jagannātha-daraśana
 sārvabhauma bhaṭṭācārya-prabhura milana
 e saba līlā prabhura dāsa vṛndāvana

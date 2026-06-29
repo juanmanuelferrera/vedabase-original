@@ -1,5 +1,8 @@
 ### CC Madhya 15.26
 
+> এইমত নিত্যানন্দ ফিরায় লগুড় ।
+> কে বুঝিবে তাঁহা দুঁহার গোপভাব গূঢ় ॥২৬॥
+
 ei-mata nityānanda phirāya laguḍa
 
 ke bujhibe tāṅhā duṅhāra gopa-bhāva gūḍha

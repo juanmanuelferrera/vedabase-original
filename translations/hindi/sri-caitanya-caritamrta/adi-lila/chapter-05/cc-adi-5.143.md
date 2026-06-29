@@ -1,5 +1,8 @@
 ### CC Adi 5.143
 
+> এই মত চৈতন্যগোসাঞি একলে ঈশ্বর ।
+> আর সব পারিষদ, কেহ বা কিঙ্কর ॥১৪৩॥
+
 > ei mata caitanya-gosāñi ekale īśvara
 > āra saba pāriṣada, keha vā kiṅkara
 

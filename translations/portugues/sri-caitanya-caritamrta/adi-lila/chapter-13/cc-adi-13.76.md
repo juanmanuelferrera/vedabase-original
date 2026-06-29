@@ -1,5 +1,8 @@
 ### CC Adi 13.76
 
+> তাঁহা বই বিশ্বে কিছু নাহি দেখি আর ।
+> অতএব ‘বিশ্বরূপ’ নাম যে তাঁহার ॥৭৬॥
+
 tāṅhā ba-i viśve kichu nāhi dekhi āra
 ataeva 'viśvarūpa' nāma ye tāṅhāra
 

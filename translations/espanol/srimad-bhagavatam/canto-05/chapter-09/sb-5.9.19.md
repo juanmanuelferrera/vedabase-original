@@ -1,5 +1,7 @@
 ### SB 5.9.19
 
+> एवमेव खलु महदभिचारातिक्रमः कार्त्स्न्येनात्मने फलति ॥१९॥
+
 > evam eva khalu mahad-abhicārāti-kramaḥ kārtsnyenātmane phalati.
 
 *evam eva*—de este modo; *khalu*—en verdad; *mahat*—a grandes personalidades; *abhicāra*—en forma de envidia; *ati-kramaḥ*—el límite de la ofensa; *kārtsnyena*—siempre; *ātmane*—a sí mismo; *phalati*—da el resultado.

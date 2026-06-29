@@ -1,5 +1,10 @@
 ### CC Antya 7.42
 
+> পতিসুতান্বয়ভ্রাতৃবান্ধবা-
+> নতিবিলঙ্ঘ্য তেঽন্ত্যচ্যুতাগতাঃ ।
+> গতিবিদস্তবোদ্গীতমোহিতাঃ
+> কিতব যোষিতঃ কস্ত্যজেন্নিশি ॥৪২॥
+
 > pati-sutānvaya-bhrātṛ-bāndhavān
 > ativilaṅghya te 'nty acyutāgatāḥ
 > gati-vidas tavodgīta-mohitāḥ

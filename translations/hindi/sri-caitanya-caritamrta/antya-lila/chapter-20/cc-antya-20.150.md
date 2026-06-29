@@ -1,5 +1,8 @@
 ### CC Antya 20.150
 
+> সব শ্রোতাগণের করি চরণ বন্দন ।
+> যাঁ-সবার চরণ-কৃপা — শুভের কারণ ॥১৫০॥
+
 > saba śrotā-gaṇera kari caraṇa vandana
 > yāṅ-sabāra caraṇa-kṛpā--śubhera kāraṇa
 

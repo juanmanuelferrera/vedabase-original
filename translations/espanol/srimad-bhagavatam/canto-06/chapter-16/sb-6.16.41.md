@@ -1,5 +1,8 @@
 ### SB 6.16.41
 
+> विषममतिर्न यत्र नृणां त्वमहमिति मम तवेति च यदन्यत्र
+> विषमधिया रचितो यः स ह्यविशुद्धः क्षयिष्णुरधर्मबहुलः ॥४१॥
+
 > viṣama-matir na yatra nṛṇāṁ
 > tvam aham iti mama taveti ca yad anyatra
 > viṣama-dhiyā racito yaḥ

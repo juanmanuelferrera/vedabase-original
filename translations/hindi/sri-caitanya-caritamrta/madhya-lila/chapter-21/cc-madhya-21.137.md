@@ -1,5 +1,9 @@
 ### CC Madhya 21.137
 
+> সনাতন, কৃষ্ণমাধুর্য — অমৃতের সিন্ধু ।
+> মোর মন — সন্নিপাতি, সব পিতে করে মতি,
+> দুর্দৈব-বৈদ্য না দেয় এক বিন্দু ।। ১৩৭ ।। ধ্রু ।। ॥১৩৭॥
+
 > sanātana, kṛṣṇa-mādhurya--amṛtera sindhu
 > mora mana--sannipāti, saba pite kare mati,
 > durdaiva-vaidya nā deya eka bindu

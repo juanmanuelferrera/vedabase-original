@@ -1,5 +1,7 @@
 ### SB 5.4.17
 
+> द्रव्यदेशकालवयःश्रद्धर्त्विग्विविधोद्देशोपचितैः सर्वैरपि क्रतुभिर्यथोपदेशं शतकृत्व इयाज ॥१७॥
+
 *dravya*-deśa-kāla-vayaḥ-śraddhartvig-vividhoddeśopacitaiḥ sarvair api kratubhir yathopadeśaṁ śata-kṛtva iyāja.
 
 *dravya*—os ingredientes para realizar yajña; *deśa*—o lugar específico, um lugar sagrado ou um templo; *kāla*—o tempo adequado, como a primavera; *vayaḥ*—a idade, especialmente a juventude; *śraddhā*—fé na bondade, não na paixão e na ignorância; *ṛtvik*—os sacerdotes; *vividha-uddeśa*—adorando diferentes semideuses para diferentes propósitos; *upacitaiḥ*—enriquecidos por; *sarvaiḥ*—todos os tipos de; *api*—certamente; *kratubhiḥ*—pelas cerimônias sacrificatórias; *yathā-upadeśam*—segundo a instrução; *śata-kṛtvaḥ*—cem vezes; *iyāja*—Ele adorou.

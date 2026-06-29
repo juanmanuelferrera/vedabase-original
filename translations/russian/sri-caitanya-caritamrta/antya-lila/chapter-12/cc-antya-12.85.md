@@ -1,5 +1,8 @@
 ### CC Antya 12.85
 
+> কাষ্ঠের পুতলী যেন কুহকে নাচায় ।
+> ঈশ্বর-চরিত্র কিছু বুঝন না যায় ॥৮৫॥
+
 > kāṣṭhera putalī yena kuhake nācāya
 > īśvara-caritra kichu bujhana nā yāya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 16.236
 
+> সর্বজ্ঞ গৌরাঙ্গপ্রভু জানি’ তাঁর মন  ।
+> শিক্ষা-রূপে কহে তাঁরে আশ্বাস-বচন ॥২৩৬॥
+
 sarvajña gaurāṅga-prabhu jāni' tāṅra mana
 
 śikṣā-rūpe kahe tāṅre āśvāsa-vacana

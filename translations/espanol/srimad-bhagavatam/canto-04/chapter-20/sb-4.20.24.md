@@ -1,5 +1,8 @@
 ### SB 4.20.24
 
+> न कामये नाथ तदप्यहं क्वचिन्न यत्र युष्मच्चरणाम्बुजासवः ।
+> महत्तमान्तर्हृदयान्मुखच्युतो विधत्स्व कर्णायुतमेष मे वरः ॥२४॥
+
 > na kāmaye nātha tad apy ahaṁ kvacin
 > na yatra yuṣmac-caraṇāmbujāsavaḥ
 > mahattamāntar-hṛdayān mukha-cyuto

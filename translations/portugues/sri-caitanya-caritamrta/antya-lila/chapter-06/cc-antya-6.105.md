@@ -1,5 +1,8 @@
 ### CC Antya 6.105
 
+> নৃত্যের মাধুরী কেবা বর্ণিবারে পারে ।
+> মহাপ্রভু আইসে যেই নৃত্য দেখিবারে ॥১০৫॥
+
 nṛtyera mādhurī kebā varṇibāre pāre
 
 mahāprabhu āise yei nṛtya dekhibāre

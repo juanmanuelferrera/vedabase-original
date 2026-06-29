@@ -1,5 +1,8 @@
 ### CC Antya 13.127
 
+> অশ্রু, কম্প, গদ্গদ প্রভুর কৃপাতে ।
+> নেত্র কণ্ঠ রোধে বাষ্প, না পারে পড়িতে ॥১২৭॥
+
 aśru, kampa, gadgada prabhura kṛpāte
 
 netra kaṇṭha rodhe bāṣpa, nā pāre paḍite

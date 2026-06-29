@@ -1,5 +1,8 @@
 ### CC Madhya 8.179
 
+> কৃষ্ণ-নাম-গুণ-যশ — অবতংস কাণে ।
+> কৃষ্ণ-নাম-গুণ-যশ-প্রবাহ-বচনে ॥১৭৯॥
+
 > kṛṣṇa-nāma-guṇa-yaśa—avataṁsa kāṇe
 > kṛṣṇa-nāma-guṇa-yaśa-pravāha-vacane
 

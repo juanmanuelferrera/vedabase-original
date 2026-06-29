@@ -1,5 +1,8 @@
 ### CC Madhya 11.207
 
+> আপনে বসিলা সব সন্ন্যাসীরে লঞা ।
+> পরিবেশন করে আচার্য হরষিত হঞা ॥২০৭॥
+
 > āpane vasilā saba sannyāsīre lañā
 > pariveśana kare ācārya haraṣita hañā
 

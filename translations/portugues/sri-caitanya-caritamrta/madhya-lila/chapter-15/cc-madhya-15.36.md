@@ -1,5 +1,8 @@
 ### CC Madhya 15.36
 
+> এইমত রাসযাত্রা, আর দীপাবলী ।
+> উত্থান-দ্বাদশীযাত্রা দেখিলা সকলি ॥৩৬॥
+
 ei-mata rāsa-yātrā, āra dīpāvalī
 
 utthāna-dvādaśī-yātrā dekhilā sakali

@@ -1,5 +1,7 @@
 ### SB 6.9.37
 
+> समविषममतीनां मतमनुसरसि यथा रज्जुखण्डः सर्पादिधियाम ॥३७॥
+
 > sama-viṣama-matīnāṁ matam anusarasi yathā rajju-khaṇḍaḥ sarpādi-dhiyām.
 
 *sama*—equal or proper; *viṣama*—and unequal or mistaken; *matīnām*—of those having intelligence; *matam*—conclusion; *anusarasi*—You follow; *yathā*—just as; *rajju-khaṇḍaḥ*—a piece of rope; *sarpa-ādi*—a snake, etc.; *dhiyām*—of those who perceive.

@@ -1,5 +1,8 @@
 ### SB 4.22.35
 
+> तत्रापि मोक्ष एवार्थ आत्यन्तिकतयेष्यते ।
+> त्रैवर्ग्योऽर्थो यतो नित्यं कृतान्तभयसंयुतः ॥३५॥
+
 > tatrāpi mokṣa evārtha
 > ātyantikatayeṣyate
 > traivargyo 'rtho yato nityaṁ

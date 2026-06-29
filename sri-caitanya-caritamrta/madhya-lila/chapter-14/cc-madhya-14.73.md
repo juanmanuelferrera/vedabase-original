@@ -1,5 +1,8 @@
 ### CC Madhya 14.73
 
+> বৃন্দাবনে আইলা কৃষ্ণ — এই প্রভুর জ্ঞান ।
+> কৃষ্ণের বিরহ-স্ফূর্তি হৈল অবসান ॥৭৩॥
+
 > vṛndāvane āilā kṛṣṇa-ei prabhura jñāna
 > kṛṣṇera viraha-sphūrti haila avasāna
 

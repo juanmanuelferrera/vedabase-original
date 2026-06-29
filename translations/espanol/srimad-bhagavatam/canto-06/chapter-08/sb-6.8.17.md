@@ -1,5 +1,8 @@
 ### SB 6.8.17
 
+> सनत्कुमारोऽवतु कामदेवाद्धयशीर्षा मां पथि देवहेलनात
+> देवर्षिवर्यः पुरुषार्चनान्तरात्कूर्मो हरिर्मां निरयादशेषात ॥१७॥
+
 > sanat-kumāro 'vatu kāmadevād
 > dhayaśīrṣā māṁ pathi deva-helanāt
 > devarṣi-varyaḥ puruṣārcanāntarāt

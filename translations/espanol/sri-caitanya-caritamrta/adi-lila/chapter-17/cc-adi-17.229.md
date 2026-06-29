@@ -1,5 +1,8 @@
 ### CC Adi 17.229
 
+> মৃতপুত্র-মুখে কৈল জ্ঞানের কথন ।
+> আপনে দুই ভাই হৈলা শ্রীবাস-নন্দন ॥২২৯॥
+
 > mṛta-putra-mukhe kaila jñānera kathana
 > āpane dui bhāi hailā śrīvāsa-nandana
 

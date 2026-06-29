@@ -1,5 +1,8 @@
 ### CC Antya 4.33
 
+> আমা-সবা-সঙ্গে কৃষ্ণকথা, ভাগবত শুনে ।
+> তাহার পরীক্ষা কৈলুঁ আমি-দুইজনে ॥৩৩॥
+
 āmā-sabā-saṅge kṛṣṇa-kathā, bhāgavata śune
 
 tāhāra parīkṣā kailuṅ āmi-dui-jane

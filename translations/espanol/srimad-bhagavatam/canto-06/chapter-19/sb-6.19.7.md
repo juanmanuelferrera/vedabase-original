@@ -1,5 +1,7 @@
 ### SB 6.19.7
 
+> ओं नमो भगवते महापुरुषाय महानुभावाय महाविभूतिपतये सहमहाविभूतिभिर्बलिमुपहरामीति अनेनाहरहर्मन्त्रेणविष्णोरावाहनार्घ्यपाद्योपस्पर्शनस्नानवासौपवीतविभूषणगन्धपुष्पधूपदीपोपहाराद्युपचारान्सुसअमाहितोपाहरेत ॥७॥
+
 > oṁ namo bhagavate mahā-puruṣāya mahānubhāvāya mahāvibhūti-pataye saha mahā-vibhūtibhir balim upaharāmīti; anenāhar-ahar mantreṇa viṣṇor āvāhanārghya-pādyopasparśana-snāna-vāsa-upavīta-vibhūṣaṇa-gandha-puṣpa-dhūpa-dīpopahārādy-upacārān susamā-hitopāharet.
 
 *oṁ*—¡oh, mi Señor!; *namaḥ*—reverencias; *bhagavate*—a la Suprema Personalidad de Dios, que goza de plenitud en las seis opulencias; *mahā-puruṣāya*—el mejor de los disfrutadores; *mahā-anubhāvāya*—el más poderoso; *mahā-vibhūti*—de la diosa de la fortuna; *pataye*—el esposo; *saha*—con; *mahā-vibhūtibhiḥ*—acompañantes; *balim*—presentes; *upaharāmi*—estoy ofreciendo; *iti*—así; *anena*—con este; *ahaḥ-ahaḥ*—cada día; *mantreṇa*—*mantra*; *viṣṇoḥ*—del Señor Viṣṇu; *āvāhana*—invocación; *arghya-pādya-upasparśana*—agua para lavar las manos, los pies y la boca; *snāna*—agua para bañar; *vāsa*—ropas; *upavīta*—un cordón sagrado; *vibhūṣaṇa*—alhajas; *gandha*—perfumes; *puṣpa*—flores; *dhūpa*—incienso; *dīpa*—lámparas; *upahāra*—regalos; *ādi*—y demás; *upacārān*—presentes; *su-samāhitā*—con gran atención; *upāharet*—ella debe ofrecer.

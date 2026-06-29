@@ -1,5 +1,8 @@
 ### CC Adi 3.78
 
+> সেই ত’ সুমেধা, আর কুবুদ্ধি সংসার ।
+> সর্ব-যজ্ঞ হৈতে কৃষ্ণনামযজ্ঞ সার ॥৭৮॥
+
 > sei ta' sumedhā, āra kubuddhi saṁsāra
 > sarva-yajña haite kṛṣṇa-nāma-yajña sāra
 

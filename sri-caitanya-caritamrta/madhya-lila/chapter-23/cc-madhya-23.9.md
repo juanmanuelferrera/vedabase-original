@@ -1,5 +1,8 @@
 ### CC Madhya 23.9
 
+> কোন ভাগ্যে কোন জীবের ‘শ্রদ্ধা’ যদি হয় ।
+> তবে সেই জীব ‘সাধুসঙ্গ’ যে করয় ॥৯॥
+
 > kona bhāgye kona jīvera 'śraddhā' yadi haya
 > tabe sei jīva 'sādhu-saṅga' ye karaya
 

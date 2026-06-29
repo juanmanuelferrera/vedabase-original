@@ -1,5 +1,8 @@
 ### CC Adi 2.40
 
+> জীবের ঈশ্বর — পুরুষাদি অবতার ।
+> তাঁহা সবা হৈতে তোমার ঐশ্বর্য অপার ॥৪০॥
+
 > jīvera īśvara—puruṣādi avatāra
 > tāṅhā sabā haite tomāra aiśvarya apāra
 

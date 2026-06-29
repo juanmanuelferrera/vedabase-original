@@ -1,5 +1,10 @@
 ### SB 3.9.17
 
+> लोको विकर्मनिरतः कुशले प्रमत्तः
+> कर्मण्ययं त्वदुदिते भवदर्चने स्वे ।
+> यस्तावदस्य बलवानिह जीविताशां
+> सद्यश्छिनत्त्यनिमिषाय नमोऽस्तु तस्मै ॥१७॥
+
 > loko vikarma-nirataḥ kuśale pramattaḥ
 > karmaṇy ayaṁ tvad-udite bhavad-arcane sve
 > yas tāvad asya balavān iha jīvitāśāṁ

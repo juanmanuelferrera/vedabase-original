@@ -1,5 +1,10 @@
 ### SB 3.28.28
 
+> कौमोदकीं भगवतो दयितां स्मरेत
+> दिग्धामरातिभटशोणितकर्दमेन ।
+> मालां मधुव्रतवरूथगिरोपघुष्टां
+> चैत्यस्य तत्त्वममलं मणिमस्य कण्ठे ॥२८॥
+
 > kaumodakīṁ bhagavato dayitāṁ smareta
 > digdhām arāti-bhaṭa-śoṇita-kardamena
 > mālāṁ madhuvrata-varūtha-giropaghuṣṭāṁ

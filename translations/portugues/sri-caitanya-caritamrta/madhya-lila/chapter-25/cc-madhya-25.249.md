@@ -1,5 +1,8 @@
 ### CC Madhya 25.249
 
+> অষ্টমে — রামানন্দ-সংবাদ বিস্তার ।
+> আপনে শুনিলা ‘সর্ব-সিদ্ধান্তের সার’ ॥২৪৯॥
+
 aṣṭame-rāmānanda-saṁvāda vistāra
 
 āpane śunilā 'sarva-siddhāntera sāra'

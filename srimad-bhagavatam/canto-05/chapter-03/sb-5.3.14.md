@@ -1,5 +1,7 @@
 ### SB 5.3.14
 
+> को वा इह तेऽपराजितोऽपराजितया माययानवसितपदव्यानावृतमतिर्विषयविषरयानावृतप्रकृतिरनुपासितमहच्चरणः ॥१३॥
+
 > ko vā iha te 'parājito 'parājitayā māyayānavasita-padavyānāvṛta-matir viṣaya-viṣa-rayānāvṛta-prakṛtir anupāsita-mahac-caraṇaḥ.
 
 *kaḥ vā*—who is that person; *iha*—within this material world; *te*—of Your Lordship; *aparājitaḥ*—not conquered; *aparājitayā*—by the unconquerable; *māyayā*—illusory energy; *anavasita-padavya*—whose path cannot be ascertained; *anāvṛta-matiḥ*—whose intelligence is not bewildered; *viṣaya-viṣa*—of material enjoyment, which is like poison; *raya*—by the course; *anāvṛta*—not covered; *prakṛtiḥ*—whose nature; *anupāsita*—without worshiping; *mahat-caraṇaḥ*—the lotus feet of great devotees.

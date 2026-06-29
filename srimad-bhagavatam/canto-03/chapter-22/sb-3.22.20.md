@@ -1,5 +1,8 @@
 ### SB 3.22.20
 
+> यतोऽभवद्विश्वमिदं विचित्रं संस्थास्यते यत्र च वावतिष्ठते ।
+> प्रजापतीनां पतिरेष मह्यं परं प्रमाणं भगवाननन्तः ॥२०॥
+
 > yato 'bhavad viśvam idaṁ vicitraṁ
 > saṁsthāsyate yatra ca vāvatiṣṭhate
 > prajāpatīnāṁ patir eṣa mahyaṁ

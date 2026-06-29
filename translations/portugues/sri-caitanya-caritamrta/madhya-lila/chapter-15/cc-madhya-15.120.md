@@ -1,5 +1,8 @@
 ### CC Madhya 15.120
 
+> বাহ্যে রাজবৈদ্য ইঁহো করে রাজ-সেবা ।
+> অন্তরে কৃষ্ণ-প্রেম ইঁহার জানিবেক কেবা ॥১২০॥
+
 bāhye rāja-vaidya iṅho kare rāja-sevā
 
 antare kṛṣṇa-prema iṅhāra jānibeka kebā

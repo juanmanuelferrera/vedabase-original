@@ -1,5 +1,8 @@
 ### CC Madhya 18.138
 
+> দেখি’ কৃষ্ণদাস কান্দি’ ফুকার করিল ।
+> ভট্টাচার্য শীঘ্র আসি’ প্রভুরে উঠাইল ॥১৩৮॥
+
 > dekhi' kṛṣṇadāsa kāndi' phukāra karila
 > bhaṭṭācārya śīghra āsi' prabhure uṭhāila
 

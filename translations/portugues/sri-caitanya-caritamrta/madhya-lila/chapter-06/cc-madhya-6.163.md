@@ -1,5 +1,8 @@
 ### CC Madhya 6.163
 
+> গীতাশাস্ত্রে জীবরূপ ‘শক্তি’ করি’ মানে ।
+> হেন জীবে ‘ভেদ’ কর ঈশ্বরের সনে ॥১৬৩॥
+
 gītā-śāstre jīva-rūpa 'śakti' kari' māne
 
 hena jīve 'bheda' kara īśvarera sane

@@ -1,5 +1,8 @@
 ### SB 8.5.43
 
+> द्रव्यं वयः कर्म गुणान्विशेषं यद्योगमायाविहितान्वदन्ति
+> यद्दुर्विभाव्यं प्रबुधापबाधं प्रसीदतां नः स महाविभूतिः ॥४३॥
+
 > dravyaṁ vayaḥ karma guṇān viśeṣaṁ
 > yad-yogamāyā-vihitān vadanti
 > yad durvibhāvyaṁ prabudhāpabādhaṁ

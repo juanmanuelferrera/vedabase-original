@@ -1,5 +1,10 @@
 ### SB 3.16.20
 
+> यं वै विभूतिरुपयात्यनुवेलमन्यैर्
+> अर्थार्थिभिः स्वशिरसा धृतपादरेणुः ।
+> धन्यार्पिताङ्घ्रितुलसीनवदामधाम्नो
+> लोकं मधुव्रतपतेरिव कामयाना ॥२०॥
+
 yaṁ vai vibhūtir upayāty anuvelam anyair
 *arthārthibhiḥ sva-śirasā dhṛta*-pāda-reṇuḥ
 *dhanyārpitāṅghri*-tulasī-nava-dāma-dhāmno

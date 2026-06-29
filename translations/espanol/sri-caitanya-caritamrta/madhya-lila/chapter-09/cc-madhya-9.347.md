@@ -1,5 +1,8 @@
 ### CC Madhya 9.347
 
+> বহু নৃত্যগীত কৈল প্রেমাবিষ্ট হঞা ৷
+> পাণ্ডাপাল আইল সবে মালা-প্রসাদ লঞা ৷৷ ৩৪৭ ৷৷ ॥৩৪৭॥
+
 > bahu nṛtya-gīta kaila premāviṣṭa hañā
 > pāṇḍā-pāla āila sabe mālā-prasāda lañā
 

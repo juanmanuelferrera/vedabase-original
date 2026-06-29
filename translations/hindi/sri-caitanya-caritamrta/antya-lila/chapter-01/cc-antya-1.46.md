@@ -1,5 +1,8 @@
 ### CC Antya 1.46
 
+> হরিদাস-ঠাকুর তাঁরে বহুকৃপা কৈলা ।
+> ‘তুমি আসিবে, — মোরে প্রভু যে কহিলা’ ॥৪৬॥
+
 > haridāsa-ṭhākura tāṅre bahu-kṛpā kailā
 > 'tumi āsibe,--more prabhu ye kahilā'
 

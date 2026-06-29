@@ -1,5 +1,8 @@
 ### CC Madhya 9.248
 
+> মধ্বাচার্য আনি’ তাঁরে করিলা স্থাপন ৷
+> অদ্যাবধি সেবা করে তত্ত্ববাদিগণ ৷৷ ২৪৮ ৷৷ ॥২৪৮॥
+
 > madhvācārya āni' tāṅre karilā sthāpana
 > adyāvadhi sevā kare tattvavādi-gaṇa
 

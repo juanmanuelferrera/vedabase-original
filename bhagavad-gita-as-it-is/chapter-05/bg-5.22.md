@@ -1,5 +1,8 @@
 ### Bg 5.22
 
+> ये हि संस्पर्शजा भोगा दुःखयोनय एव ते ।
+> आद्यन्तवन्तः कौन्तेय न तेषु रमते बुधः ॥२२॥
+
 > ye hi saṁsparśa-jā bhogā
 > duḥkha-yonaya eva te
 > ādy-antavantaḥ kaunteya

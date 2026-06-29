@@ -1,5 +1,8 @@
 ### CC Madhya 6.8
 
+> শিষ্য পড়িছা-দ্বারা প্রভু নিল বহাঞা ।
+> ঘরে আনি’ পবিত্র স্থানে রাখিল শোয়াঞা ॥৮॥
+
 > śiṣya paḍichā-dvārā prabhu nila vahāñā
 > ghare āni' pavitra sthāne rākhila śoyāñā
 

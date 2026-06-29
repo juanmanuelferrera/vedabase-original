@@ -1,5 +1,8 @@
 ### CC Madhya 6.156
 
+> তয়া তিরোহিতত্বাচ্চ শক্তিঃ ক্ষেত্রজ্ঞসংজ্ঞিতা ।
+> সর্বভূতেষু ভূপাল তারতম্যেন বর্ততে ॥১৫৬॥
+
 tayā tirohitatvāc ca
 śaktiḥ kṣetra-jña-saṁjñitā
 sarva-bhūteṣu bhū-pāla

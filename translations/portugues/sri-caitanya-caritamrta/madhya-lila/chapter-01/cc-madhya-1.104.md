@@ -1,5 +1,8 @@
 ### CC Madhya 1.104
 
+> গোদাবরীতীর-বনে বৃন্দাবন-ভ্রম ।
+> রামানন্দ রায় সহ তাহাঞি মিলন ॥১০৪॥
+
 godāvarī-tīra-vane vṛndāvana-bhrama
 
 rāmānanda rāya saha tāhāñi milana

@@ -1,5 +1,8 @@
 ### SB 9.15.33
 
+> अथार्जुनः पञ्चशतेषु बाहुभिर्धनुःषु बाणान्युगपत्स सन्दधे
+> रामाय रामोऽस्त्रभृतां समग्रणीस्तान्येकधन्वेषुभिराच्छिनत्समम ॥३३॥
+
 > athārjunaḥ pañca-śateṣu bāhubhir
 > dhanuḥṣu bāṇān yugapat sa sandadhe
 > rāmāya rāmo 'stra-bhṛtāṁ samagraṇīs

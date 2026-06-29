@@ -1,5 +1,8 @@
 ### CC Adi 10.101
 
+> তিন সন্ধ্যা রাধাকুণ্ডে অপতিত স্নান ।
+> ব্রজবাসী বৈষ্ণবে করে আলিঙ্গন মান ॥১০১॥
+
 > tina sandhyā rādhā-kuṇḍe apatita snāna
 > vraja-vāsī vaiṣṇave kare āliṅgana māna
 

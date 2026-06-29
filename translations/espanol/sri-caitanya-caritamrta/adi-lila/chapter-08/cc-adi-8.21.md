@@ -1,5 +1,8 @@
 ### CC Adi 8.21
 
+> স্বতন্ত্র ঈশ্বর প্রেম-নিগূঢ়ভাণ্ডার ।
+> বিলাইল যারে তারে, না কৈল বিচার ॥২১॥
+
 > svatantra īśvara prema-nigūḍha-bhāṇḍāra
 > bilāila yāre tāre, nā kaila vicāra
 

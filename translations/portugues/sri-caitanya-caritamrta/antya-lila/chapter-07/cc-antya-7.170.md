@@ -1,5 +1,8 @@
 ### CC Antya 7.170
 
+> দিনান্তরে পণ্ডিত কৈল প্রভুর নিমন্ত্রণ ।
+> প্রভু তাহাঁ ভিক্ষা কৈল লঞা নিজগণ ॥১৭০॥
+
 dināntare paṇḍita kaila prabhura nimantraṇa
 
 prabhu tāhāṅ bhikṣā kaila lañā nija-gaṇa

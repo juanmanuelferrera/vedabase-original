@@ -1,5 +1,8 @@
 ### CC Madhya 10.128
 
+> পরমানন্দ পুরীর কৈল চরণ বন্দন ।
+> পুরী-গোসাঞি তাঁরে কৈল প্রেম-আলিঙ্গন ॥১২৮॥
+
 > paramānanda purīra kaila caraṇa vandana
 > purī-gosāñi tāṅre kaila prema-āliṅgana
 

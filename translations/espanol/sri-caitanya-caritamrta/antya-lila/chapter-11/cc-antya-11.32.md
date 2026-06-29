@@ -1,5 +1,8 @@
 ### CC Antya 11.32
 
+> সেই লীলা প্রভু মোরে কভু না দেখাইবা ।
+> আপনার আগে মোর শরীর পাড়িবা ॥৩২॥
+
 > sei līlā prabhu more kabhu nā dekhāibā
 > āpanāra āge mora śarīra pāḍibā
 

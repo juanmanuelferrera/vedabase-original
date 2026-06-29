@@ -1,5 +1,8 @@
 ### CC Madhya 24.77
 
+> ‘আত্ম’-শব্দে কহে কৃষ্ণ বৃহত্ত্বস্বরূপ ।
+> সর্বব্যাপক, সর্বসাক্ষী, পরমস্বরূপ ॥৭৭॥
+
 'ātma'-śabde kahe kṛṣṇa bṛhattva-svarūpa
 
 sarva-vyāpaka, sarva-sākṣī, parama-svarūpa

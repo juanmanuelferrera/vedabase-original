@@ -1,5 +1,8 @@
 ### SB 5.11.16
 
+> न यावदेतन्मन आत्मलिङ्गं संसारतापावपनं जनस्य
+> यच्छोकमोहामयरागलोभ वैरानुबन्धं ममतां विधत्ते ॥१६॥
+
 > na yāvad etan mana ātma-liṅgaṁ
 > saṁsāra-tāpāvapanaṁ janasya
 > yac choka-mohāmaya-rāga-lobha-

@@ -1,5 +1,10 @@
 ### CC Madhya 8.51-52
 
+> রায় কহে, — আইলা যদি পামর শোধিতে ।
+> দর্শনমাত্রে শুদ্ধ নহে মোর দুষ্ট চিত্তে ॥৫১॥
+> দিন পাঁচ-সাত রহি’ করহ মার্জন ।
+> তবে শুদ্ধ হয় মোর এই দুষ্ট মন ॥৫২॥
+
 > rāya kahe, āilā yadi pāmara śodhite
 > darśana-mātre śuddha nahe mora duṣṭa citte
 > dina pāṅca-sāta rahi' karaha mārjana

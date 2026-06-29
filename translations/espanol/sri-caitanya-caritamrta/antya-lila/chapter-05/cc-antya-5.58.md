@@ -1,5 +1,8 @@
 ### CC Antya 5.58
 
+> “প্রভুর আজ্ঞায় কৃষ্ণকথা শুনিতে আইলা এথা  ।
+> ইহা বই মহাভাগ্য আমি পাব কোথা ?” ৫৮ ॥৫৮॥
+
 > "prabhura ājñāya kṛṣṇa-kathā śunite āilā ethā
 > ihā va-i mahā-bhāgya āmi pāba kothā?"
 

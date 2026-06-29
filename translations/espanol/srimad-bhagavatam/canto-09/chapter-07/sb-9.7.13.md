@@ -1,5 +1,8 @@
 ### SB 9.7.13
 
+> पशोर्निपतिता दन्ता यजस्वेत्याह सोऽब्रवीत
+> यदा पशोः पुनर्दन्ता जायन्तेऽथ पशुः शुचिः ॥१३॥
+
 > paśor nipatitā dantā
 > yajasvety āha so 'bravīt
 > yadā paśoḥ punar dantā

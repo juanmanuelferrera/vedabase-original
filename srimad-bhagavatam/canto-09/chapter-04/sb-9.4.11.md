@@ -1,5 +1,8 @@
 ### SB 9.4.11
 
+> गृहाण द्रविणं दत्तं मत्सत्रपरिशेषितम
+> इत्युक्त्वान्तर्हितो रुद्रो भगवान्धर्मवत्सलः ॥११॥
+
 > gṛhāṇa draviṇaṁ dattaṁ
 > mat-satra-pariśeṣitam
 > ity uktvāntarhito rudro

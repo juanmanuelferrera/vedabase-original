@@ -1,5 +1,8 @@
 ### CC Madhya 3.39
 
+> একমুষ্টি অন্ন মুঞি করিয়াছোঁ পাক ।
+> শুখারুখা ব্যঞ্জন কৈলুঁ, সূপ আর শাক ॥৩৯॥
+
 eka-muṣṭi anna muñi kariyāchoṅ pāka
 śukhārukhā vyañjana kailuṅ, sūpa āra śāka
 

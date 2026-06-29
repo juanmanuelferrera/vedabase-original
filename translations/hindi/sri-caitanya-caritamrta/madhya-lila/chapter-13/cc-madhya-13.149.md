@@ -1,5 +1,9 @@
 ### CC Madhya 13.149
 
+> প্রাণপ্রিয়ে, শুন, মোর এ-সত্য-বচন ।
+> তোমা-সবার স্মরণে, ঝুরোঁ মুঞি রাত্রিদিনে,
+> মোর দুঃখ না জানে কোন জন ।। ১৪৯ ।। ধ্রু ।। ॥১৪৯॥
+
 > prāṇa-priye, śuna, mora e-satya-vacana
 > tomā-sabāra smaraṇe, jhuroṅ muñi rātri-dine,
 > mora duḥkha nā jāne kona jana

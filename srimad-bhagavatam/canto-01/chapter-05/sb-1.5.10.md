@@ -1,5 +1,8 @@
 ### SB 1.5.10
 
+> न यद्वचश्चित्रपदं हरेर्यशो जगत्पवित्रं प्रगृणीत कर्हिचित् ।
+> तद्वायसं तीर्थमुशन्ति मानसा न यत्र हंसा निरमन्त्युशिक्क्षयाः ॥१०॥
+
 > na yad vacaś citra-padaṁ harer yaśo
 > jagat-pavitraṁ pragṛṇīta karhicit
 > tad vāyasaṁ tīrtham uśanti mānasā

@@ -1,5 +1,8 @@
 ### CC Madhya 14.92
 
+> পুরী, ভারতী আদি যত মুখ্য ভক্তগণ ।
+> আচার্যের নিমন্ত্রণে করিলা ভোজন ॥৯২॥
+
 > purī, bhāratī ādi yata mukhya bhakta-gaṇa
 > ācāryera nimantraṇe karilā bhojana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 4.159
 
+> কর্পূর-সহিত ঘষি’ এসব চন্দন ।
+> গোপীনাথের অঙ্গে নিত্য করহ লেপন ॥১৫৯॥
+
 karpūra-sahita ghaṣi' e-saba candana
 gopīnāthera aṅge nitya karaha lepana
 

@@ -1,5 +1,8 @@
 ### CC Adi 5.149
 
+> নিত্যানন্দ-স্বরূপ পূর্বে হইয়া লক্ষ্মণ ।
+> লঘুভ্রাতা হৈয়া করে রামের সেবন ॥১৪৯॥
+
 > nityānanda-svarūpa pūrve ha-iyā lakṣmaṇa
 > laghu-bhrātā haiyā kare rāmera sevana
 

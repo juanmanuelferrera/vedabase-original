@@ -1,5 +1,8 @@
 ### CC Adi 12.67
 
+> ইহার মধ্যে মালী পাছে কোন শাখাগণ ।
+> না মানে চৈতন্য-মালী দুর্দৈব কারণ ॥৬৭॥
+
 > ihāra madhye mālī pāche kona śākhā-gaṇa
 > nā māne caitanya-mālī durdaiva kāraṇa
 

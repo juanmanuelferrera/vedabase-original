@@ -1,5 +1,8 @@
 ### CC Madhya 8.97
 
+> রায় কহে, — ইহার আগে পুছে হেন জনে ৷
+> এতদিন নাহি জানি, আছয়ে ভুবনে ৷৷ ৯৭ ৷৷ ॥৯৭॥
+
 > rāya kahe,--īhāra āge puche hena jane
 > eta-dina nāhi jāni, āchaye bhuvane
 

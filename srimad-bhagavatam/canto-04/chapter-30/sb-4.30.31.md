@@ -1,5 +1,8 @@
 ### SB 4.30.31
 
+> वरं वृणीमहेऽथापि नाथ त्वत्परतः परात् ।
+> न ह्यन्तस्त्वद्विभूतीनां सोऽनन्त इति गीयसे ॥३१॥
+
 > varaṁ vṛṇīmahe 'thāpi
 > nātha tvat parataḥ parāt
 > na hy antas tvad-vibhūtīnāṁ

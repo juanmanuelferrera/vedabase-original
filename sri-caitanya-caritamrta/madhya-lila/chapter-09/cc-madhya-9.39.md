@@ -1,5 +1,8 @@
 ### CC Madhya 9.39
 
+> তাহাঁ হৈতে চলি’ আগে গেলা এক গ্রামে ।
+> ব্রাহ্মণ-সমাজ তাহাঁ, করিল বিশ্রামে ॥৩৯॥
+
 > tāhāṅ haite cali' āge gelā eka grāme
 > brāhmaṇa-samāja tāhāṅ, karila viśrāme
 

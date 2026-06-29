@@ -1,5 +1,8 @@
 ### CC Adi 14.72
 
+> একদিন শচী-দেবী পুত্রেরে ভর্ৎসিয়া ।
+> ধরিবারে গেলা, পুত্র গেলা পলাইয়া ॥৭২॥
+
 ekadina śacī-devī putrere bhartsiyā
 
 dharibāre gelā, putra gelā palāiyā

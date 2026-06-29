@@ -1,5 +1,8 @@
 ### CC Madhya 24.245
 
+> মৃগছাল চাহ যদি, আইস মোর ঘরে ।
+> যেই চাহ তাহা দিব মৃগব্যাঘ্রাম্বরে ।।” ॥ ২৪৫ ॥
+
 > mṛga-chāla cāha yadi, āisa mora ghare
 > yei cāha tāhā diba mṛga-vyāghrāmbare"
 

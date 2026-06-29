@@ -1,5 +1,8 @@
 ### CC Antya 5.113
 
+> শ্লোক শুনি’ সর্বলোক তাহারে বাখানে ।
+> স্বরূপ কহে, — ‘এই শ্লোক করহ ব্যাখ্যানে’ ॥১১৩॥
+
 > śloka śuni' sarva-loka tāhāre vākhāne
 > svarūpa kahe,--'ei śloka karaha vyākhyāne'
 

@@ -1,5 +1,8 @@
 ### SB 3.28.8
 
+> शुचौ देशे प्रतिष्ठाप्य विजितासन आसनम् ।
+> तस्मिन्स्वस्ति समासीन ऋजुकायः समभ्यसेत् ॥८॥
+
 > śucau deśe pratiṣṭhāpya
 > vijitāsana āsanam
 > tasmin svasti samāsīna

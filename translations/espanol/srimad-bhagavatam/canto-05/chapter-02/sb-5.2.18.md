@@ -1,5 +1,7 @@
 ### SB 5.2.18
 
+> सा च ततस्तस्य वीरयूथपतेर्बुद्धिशीलरूपवयःश्रियौदार्येण पराक्षिप्तमनास्तेनसहायुतायुतपरिवत्सरोपलक्षणं कालं जम्बूद्वीपपतिना भौमस्वर्गभोगान्बुभुजे ॥१८॥
+
 > sā ca tatas tasya vīra-yūtha-pater buddhi-śīla-rūpa-vayaḥ-śriyaudāryeṇa parākṣipta-manās tena sahāyutāyuta-parivatsaropalakṣaṇaṁ kālaṁ jambūdvīpa-patinā bhauma-svarga-bhogān bubhuje.
 
 *sā*—ella; *ca*—también; *tataḥ*—a continuación; *tasya*—de él; *vīra-yūtha-pateḥ*—el señor de héroes; *buddhi*—por la inteligencia; *śīla*—el comportamiento; *rūpa*—la belleza; *vayaḥ*—la juventud; *śriyā*—la opulencia; *audāryeṇa*—y por la magnanimidad; *parākṣipta*—atraída; *manāḥ*—su mente; *tena saha*—con él; *ayuta*—diez mil; *ayuta*—diez mil; *parivatsara*—años; *upalakṣaṇam*—extendido; *kālam*—tiempo; *jambūdvīpa-patinā*—con el rey de Jambūdvīpa; *bhauma*—terrenales; *svarga*—celestiales; *bhogān*—placeres; *bubhuje*—disfrutó.

@@ -1,5 +1,7 @@
 ### SB 5.3.15
 
+> यदु ह वाव तव पुनरदभ्रकर्तरिह समाहूतस्तत्रार्थधियां मन्दानांनस्तद्यद्देवहेलनं देवदेवार्हसि साम्येन सर्वान्प्रतिवोढुमविदुषाम ॥१४॥
+
 *yad u ha vāva tava punar adabhra*-kartar iha samāhūtas tatrārtha-dhiyāṁ mandānāṁ nas tad yad deva-helanaṁ deva-devārhasi sāmyena sarvān prativoḍhum aviduṣām.
 
 *yat*—porque; *u ha vāva*—de fato; *tava*—Vossa; *punaḥ*—novamente; *adabhra-kartaḥ*—ó Senhor, que realizais muitas atividades; *iha*—aqui, nesta arena de sacrifício; *samāhūtaḥ*—convidado; *tatra*—portanto; *artha-dhiyām*—que aspiram realizar desejos materiais; *mandānām*—pouco inteligentes; *naḥ*—de nós; *tat*—isso; *yat*—o que; *deva-helanam*—desrespeito à Suprema Personalidade de Deus; *deva-deva*—Senhor dos senhores; *arhasi*—por favor; *sāmyena*—devido à Vossa posição equânime; *sarvān*—tudo; *prativoḍhum*—tolerar; *aviduṣām*—de nós, que somos todos ignorantes.

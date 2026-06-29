@@ -1,5 +1,8 @@
 ### CC Madhya 4.154
 
+> চলিল মাধবপুরী চন্দন লঞা ।
+> কতদিনে রেমুণাতে উত্তরিল গিয়া ॥১৫৪॥
+
 > calila mādhava-purī candana lañā
 > kata-dine remuṇāte uttarila giyā
 

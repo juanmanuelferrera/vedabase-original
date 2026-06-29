@@ -1,5 +1,8 @@
 ### CC Madhya 16.108
 
+> ঐছে তাঁহারে কৃপা কৈল গৌররায় ।
+> “প্রতাপরুদ্র-সংত্রাতা” নাম হৈল যায় ॥১০৮॥
+
 > aiche tāṅhāre kṛpā kaila gaurarāya
 > "pratāparudra-santrātā" nāma haila yāya
 

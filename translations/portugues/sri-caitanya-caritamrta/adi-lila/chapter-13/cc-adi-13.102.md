@@ -1,5 +1,10 @@
 ### CC Adi 13.102
 
+> আচার্যরত্ন, শ্রীবাস, হৈল মনে সুখোল্লাস,
+> যাই’ স্নান কৈল গঙ্গাজলে ।
+> আনন্দে বিহ্বল মন, করে হরিসংকীর্তন,
+> নানা দান কৈল মনোবলে ॥১০২॥
+
 ācāryaratna, śrīvāsa, haila mane sukhollāsa
 yāi' snāna kaila gaṅgā-jale
 ānande vihvala mana, kare hari-saṅkīrtana

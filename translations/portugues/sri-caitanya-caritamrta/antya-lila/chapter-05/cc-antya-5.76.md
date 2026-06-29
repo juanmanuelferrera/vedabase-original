@@ -1,5 +1,8 @@
 ### CC Antya 5.76
 
+> হেন ‘রস’ পান মোরে করাইলা তুমি ।
+> জন্মে জন্মে তোমার পায় বিকাইলাঙ আমি ।।” ॥ ৭৬ ॥
+
 hena 'rasa' pāna more karāilā tumi
 
 janme janme tomāra pāya vikāilāṅa āmi

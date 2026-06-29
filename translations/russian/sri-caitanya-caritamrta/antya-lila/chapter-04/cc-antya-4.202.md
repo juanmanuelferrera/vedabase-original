@@ -1,5 +1,8 @@
 ### CC Antya 4.202
 
+> দেখি’ হরিদাস মনে হৈলা চমৎকার  ।
+> প্রভুরে কহেন, — “এই ভঙ্গী যে তোমার ॥২০২॥
+
 > dekhi' haridāsa mane hailā camatkāra
 > prabhure kahena,—"ei bhaṅgī ye tomāra
 

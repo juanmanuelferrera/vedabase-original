@@ -1,5 +1,8 @@
 ### CC Madhya 8.46
 
+> এই জানি’ কঠিন মোর হৃদয় শোধিতে ।
+> সার্বভৌম কহিলেন তোমারে মিলিতে ॥৪৬॥
+
 > ei jāni' kaṭhina mora hṛdaya śodhite
 > sārvabhauma kahilena tomāre milite
 

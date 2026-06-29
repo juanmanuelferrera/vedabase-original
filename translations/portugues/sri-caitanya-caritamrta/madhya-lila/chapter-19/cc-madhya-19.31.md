@@ -1,5 +1,8 @@
 ### CC Madhya 19.31
 
+> তবে সেই দুই চর রূপ-ঠাঞি আইল ।
+> ‘বৃন্দাবন চলিলা প্রভু’ — আসিয়া কহিল ॥৩১॥
+
 tabe sei dui cara rūpa-ṭhāñi āila
 
 'vṛndāvana calilā prabhu'--āsiyā kahila

@@ -1,5 +1,8 @@
 ### SB 4.10.15
 
+> नदत्सु यातुधानेषु जयकाशिष्वथो मृधे ।
+> उदतिष्ठद्रथस्तस्य नीहारादिव भास्करः ॥१५॥
+
 > nadatsu yātudhāneṣu
 > jaya-kāśiṣv atho mṛdhe
 > udatiṣṭhad rathas tasya

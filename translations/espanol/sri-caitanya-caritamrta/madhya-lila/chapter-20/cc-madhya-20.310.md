@@ -1,5 +1,10 @@
 ### CC Madhya 20.310
 
+> ক্ষীরং যথা দধি বিকারবিশেষযোগাৎ
+> সংজায়তে ন তু ততঃ পৃথগস্তি হেতোঃ ৷
+> যঃ শম্ভুতামপি তথা সমুপৈতি কার্যাদ্
+> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥৩১০॥
+
 > kṣīraṁ yathā dadhi vikāra-viśeṣa-yogāt
 > sañjāyate na tu tataḥ pṛthag asti hetoḥ
 > yaḥ śambhutām api tathā samupaiti kāryād

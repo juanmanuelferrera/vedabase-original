@@ -1,5 +1,8 @@
 ### Bg 2.53
 
+> श्रुतिविप्रतिपन्ना ते यदा स्थास्यति निश्चला ।
+> समाधावचला बुद्धिस्तदा योगमवाप्स्यसि ॥५३॥
+
 > śruti-vipratipannā te
 > yadā sthāsyati niścalā
 > samādhāv acalā buddhis

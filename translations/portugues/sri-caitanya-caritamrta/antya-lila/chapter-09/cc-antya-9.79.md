@@ -1,5 +1,8 @@
 ### CC Antya 9.79
 
+> যদি বা তোমার তারে রাখিতে হয় মন ।
+> আজি যে রাখিল, সেই করিবে রক্ষণ ।।” ॥ ৭৯ ॥
+
 yadi vā tomāra tāre rākhite haya mana
 
 āji ye rākhila, sei karibe rakṣaṇa"

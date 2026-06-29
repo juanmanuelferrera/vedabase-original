@@ -1,5 +1,8 @@
 ### CC Madhya 4.58
 
+> ভোগ-সামগ্রী আইল সন্দেশাদি যত ।
+> নানা উপহার, তাহা কহিতে পারি কত ॥৫৮॥
+
 > bhoga-sāmagrī āila sandeśādi yata
 > nānā upahāra, tāhā kahite pāri kata
 

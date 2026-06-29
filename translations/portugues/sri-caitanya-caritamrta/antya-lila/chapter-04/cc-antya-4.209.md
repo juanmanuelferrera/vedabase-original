@@ -1,5 +1,8 @@
 ### CC Antya 4.209
 
+> যেই বন-পথে প্রভু গেলা বৃন্দাবন ।
+> সেইপথে যাইতে মন কৈলা সনাতন ॥২০৯॥
+
 yei vana-pathe prabhu gelā vṛndāvana
 
 sei-pathe yāite mana kailā sanātana

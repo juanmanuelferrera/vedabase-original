@@ -1,5 +1,10 @@
 ### CC Adi 13.124
 
+> শ্রীচৈতন্য-নিত্যানন্দ, আচার্য অদ্বৈতচন্দ্র,
+> স্বরূপ-রূপ-রঘুনাথদাস ।
+> ইঁহা-সবার শ্রীচরণ, শিরে বন্দি নিজধন,
+> জন্মলীলা গাইল কৃষ্ণদাস ॥১২৪॥
+
 > śrī-caitanya-nityānanda, ācārya advaitacandra,
 > svarūpa-rūpa-raghunāthadāsa
 > iṅhā-sabāra śrī-caraṇa, śire vandi nija-dhana,

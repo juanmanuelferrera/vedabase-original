@@ -1,5 +1,8 @@
 ### CC Madhya 12.128
 
+> তবে স্বরূপ গোসাঞি তার ঘাড়ে হাত দিয়া ।
+> ঢেকা মারি’ পুরীর বাহির রাখিলেন লঞা ॥১২৮॥
+
 tabe svarūpa gosāñi tāra ghāḍe hāta diyā
 
 ḍhekā māri' purīra bāhira rākhilena lañā

@@ -1,5 +1,8 @@
 ### CC Antya 12.105
 
+> তবে প্রভু-ঠাঞি গোবিন্দ কৈল নিবেদন  ।
+> “জগদানন্দ চন্দনাদি-তৈল আনিয়াছেন ॥১০৫॥
+
 tabe prabhu-ṭhāñi govinda kaila nivedana
 
 'jagadānanda candanādi-taila āniyāchena

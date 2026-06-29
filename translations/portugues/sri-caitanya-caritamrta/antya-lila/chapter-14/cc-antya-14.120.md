@@ -1,5 +1,9 @@
 ### CC Antya 14.120
 
+> সমীপে নীলাদ্রেবর্ধনগিরিপতিং লোকিতুমিতঃ ।
+> ব্রজন্নস্মীত্যুক্ত্বা প্রমদ ইব ধাবন্নবধৃতো
+> গণৈঃ স্বৈর্গৌরাঙ্গো হৃদয় উদয়ন্মাং মদয়তি ॥১২০॥
+
 samīpe nīlādreś caṭaka-giri-rājasya kalanād
 
 aye goṣṭhe govardhana-giri-patiṁ lokitum itaḥ

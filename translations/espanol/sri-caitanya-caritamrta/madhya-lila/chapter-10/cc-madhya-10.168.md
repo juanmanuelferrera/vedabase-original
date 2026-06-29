@@ -3,6 +3,9 @@
 > 'vyāpya' 'vyāpaka'-bhāve 'jīva'-'brahme' jāni
 > jīva-vyāpya, brahma-vyāpaka, śāstrete vākhāni
 
+> 'vyāpya' 'vyāpaka'-bhāve 'jīva'-'brahme' jāni
+> jīva-vyāpya, brahma-vyāpaka, śāstrete vākhāni
+
 *vyāpya*—localizado; *vyāpaka*—omnipresente; *bhāve*—de este modo; *jīva*—entidad viviente; *brahme*—el Señor Supremo; *jāni*—conozco; *jīva*—la entidad viviente; *vyāpya*—localizada; *brahma*—el Señor Supremo; *vyāpaka*—omnipresente; *śāstrete*—en las escrituras reveladas; *vākhāni*—descripción.
 
 **Brahmānanda Bhāratī continuó: «La entidad viviente es localizada, mientras que el Brahman Supremo es omnipresente. Ese es el veredicto de las escrituras reveladas.**

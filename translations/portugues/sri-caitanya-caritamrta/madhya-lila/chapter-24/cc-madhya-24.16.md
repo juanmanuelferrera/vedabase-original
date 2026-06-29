@@ -1,5 +1,8 @@
 ### CC Madhya 24.16
 
+> ‘নির্গ্রন্থ’-শব্দে কহে, অবিদ্যা-গ্রন্থি-হীন ।
+> বিধি-নিষেধ-বেদশাস্ত্র-জ্ঞানাদি-বিহীন ॥১৬॥
+
 'nirgrantha'-śabde kahe, avidyā-granthi-hīna
 vidhi-niṣedha-veda-śāstra-jñānādi-vihīna
 

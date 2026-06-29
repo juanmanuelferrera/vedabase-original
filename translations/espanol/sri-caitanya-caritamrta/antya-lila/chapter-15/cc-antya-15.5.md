@@ -1,5 +1,8 @@
 ### CC Antya 15.5
 
+> কভু ভাবে মগ্ন, কভু অর্ধ-বাহ্যস্ফূর্তি ।
+> কভু বাহ্যস্ফূর্তি, — তিন রীতে প্রভুস্থিতি ॥৫॥
+
 > kabhu bhāve magna, kabhu ardha-bāhya-sphūrti
 > kabhu bāhya-sphūrti,--tina rīte prabhu-sthiti
 

@@ -1,5 +1,8 @@
 ### CC Antya 11.25
 
+> লোক নিস্তারিতে এই তোমার ‘অবতার’ ।
+> নামের মহিমা লোকে করিলা প্রচার ॥২৫॥
+
 > loka nistārite ei tomāra 'avatāra'
 > nāmera mahimā loke karilā pracāra
 

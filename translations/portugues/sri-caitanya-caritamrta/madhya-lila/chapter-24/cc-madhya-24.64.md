@@ -1,5 +1,8 @@
 ### CC Madhya 24.64
 
+> চারি পুরুষার্থ ছাড়ায়, গুণে হরে সবার মন ।
+> ‘হরি’-শব্দের এই মুখ্য কহিলুঁ লক্ষণ ॥৬৪॥
+
 cāri puruṣārtha chāḍāya, guṇe hare sabāra mana
 
 'hari'-śabdera ei mukhya kahiluṅ lakṣaṇa

@@ -1,5 +1,8 @@
 ### CC Antya 5.74
 
+> মোর মুখে কহায় কথা, করে পরচার  ।
+> পৃথিবীতে কে জানিবে এ-লীলা তাঁহার ?’ ৭৪ ॥৭৪॥
+
 > mora mukhe kahāya kathā, kare paracāra
 > pṛthivīte ke jānibe e-līlā tāṅhāra?'
 

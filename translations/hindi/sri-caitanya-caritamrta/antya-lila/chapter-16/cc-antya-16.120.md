@@ -1,5 +1,8 @@
 ### CC Antya 16.120
 
+> এত কহি’ গৌরপ্রভু ভাবাবিষ্ট হঞা ।
+> দুই শ্লোকের অর্থ করে প্রলাপ করিয়া ॥১২০॥
+
 > eta kahi' gaura-prabhu bhāvāviṣṭa hañā
 > dui ślokera artha kare pralāpa kariyā
 

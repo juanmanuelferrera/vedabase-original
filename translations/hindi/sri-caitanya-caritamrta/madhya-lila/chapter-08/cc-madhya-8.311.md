@@ -1,5 +1,8 @@
 ### CC Madhya 8.311
 
+> রামানন্দ রায়ে মোর কোটী নমস্কার ।
+> যাঁর মুখে কৈল প্রভু রসের বিস্তার ॥৩১১॥
+
 > rāmānanda rāye mora koṭī namaskāra
 > yāṅra mukhe kaila prabhu rasera vistāra
 

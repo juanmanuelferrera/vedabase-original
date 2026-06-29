@@ -1,5 +1,8 @@
 ### CC Madhya 17.116
 
+> “শুনিয়াছি গৌড়দেশের সন্ন্যাসী — ‘ভাবুক’ ।
+> কেশব-ভারতী-শিষ্য, লোকপ্রতারক ॥১১৬॥
+
 > "śuniyāchi gauḍa-deśera sannyāsī—'bhāvuka'
 > keśava-bhāratī-śiṣya, loka-pratāraka
 

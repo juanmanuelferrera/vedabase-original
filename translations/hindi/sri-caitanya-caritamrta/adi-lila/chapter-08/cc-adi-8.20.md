@@ -1,5 +1,8 @@
 ### CC Adi 8.20
 
+> হেন প্রেম শ্রীচৈতন্য দিলা যথা তথা ।
+> জগাই মাধাই পর্যন্ত — অন্যের কা কথা ॥২০॥
+
 > hena prema śrī-caitanya dilā yathā tathā
 > jagāi mādhāi paryanta—anyera kā kathā
 

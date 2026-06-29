@@ -1,5 +1,8 @@
 ### CC Madhya 10.141
 
+> এত বলি’ গোবিন্দেরে কৈল আলিঙ্গন ৷
+> গোবিন্দ করিল প্রভুর চরণ বন্দন ৷৷ ১৪১ ৷৷ ॥১৪১॥
+
 eta bali' govindere kaila āliṅgana
 
 govinda karila prabhura caraṇa vandana

@@ -1,5 +1,8 @@
 ### CC Madhya 24.155
 
+> সগর্ভ, নিগর্ভ, — এই হয় দুই ভেদ ।
+> এক এক তিন ভেদে ছয় বিভেদ ॥১৫৫॥
+
 > sagarbha, nigarbha,--ei haya dui bheda
 > eka eka tina bhede chaya vibheda
 

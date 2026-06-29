@@ -1,5 +1,8 @@
 ### SB 8.7.13
 
+> उपर्यगेन्द्रं गिरिराडिवान्य आक्रम्य हस्तेन सहस्रबाहुः
+> तस्थौ दिवि ब्रह्मभवेन्द्रमुख्यैरभिष्टुवद्भिः सुमनोऽभिवृष्टः ॥१३॥
+
 > upary adhaś cātmani gotra-netrayoḥ
 > pareṇa te prāviśatā samedhitāḥ
 > mamanthur abdhiṁ tarasā madotkaṭā

@@ -1,5 +1,8 @@
 ### CC Antya 5.75
 
+> যে-সব শুনিলুঁ, কৃষ্ণ-রসের সাগর ।
+> ব্রহ্মাদি-দেবের এ সব না হয় গোচর ॥৭৫॥
+
 > ye-saba śuniluṅ, kṛṣṇa-rasera sāgara
 > brahmādi-devera e saba nā haya gocara
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.76
 
+> জলশূন্য ফল দেখি’ পণ্ডিত — হরষিত ।
+> ফল ভাঙ্গি’ শস্যে করে সৎপাত্র পূরিত ॥৭৬॥
+
 > jala-śūnya phala dekhi' paṇḍita--haraṣita
 > phala bhāṅgi' śasye kare sat-pātra pūrita
 

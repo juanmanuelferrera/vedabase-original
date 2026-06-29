@@ -1,5 +1,8 @@
 ### SB 4.26.22
 
+> परमोऽनुग्रहो दण्डो भृत्येषु प्रभुणार्पितः ।
+> बालो न वेद तत्तन्वि बन्धुकृत्यममर्षणः ॥२२॥
+
 > paramo 'nugraho daṇḍo
 > bhṛtyeṣu prabhuṇārpitaḥ
 > bālo na veda tat tanvi

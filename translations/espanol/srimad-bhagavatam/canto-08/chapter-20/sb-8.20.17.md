@@ -1,5 +1,8 @@
 ### SB 8.20.17
 
+> विन्ध्यावलिस्तदागत्य पत्नी जालकमालिनी
+> आनिन्ये कलशं हैममवनेजन्यपां भृतम ॥१७॥
+
 > vindhyāvalis tadāgatya
 > patnī jālaka-mālinī
 > āninye kalaśaṁ haimam

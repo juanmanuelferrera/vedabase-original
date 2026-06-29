@@ -1,5 +1,8 @@
 ### CC Madhya 11.70
 
+> মহাপ্রভুর গণ যত আইলা গৌড় হৈতে ।
+> ভট্টাচার্য, একে একে দেখাহ আমাতে ॥৭০॥
+
 > mahāprabhura gaṇa yata āila gauḍa haite
 > bhaṭṭācārya, eke eke dekhāha āmāte
 

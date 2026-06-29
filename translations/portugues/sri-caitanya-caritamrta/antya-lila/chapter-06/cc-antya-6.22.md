@@ -1,5 +1,8 @@
 ### CC Antya 6.22
 
+> মারিতে আনয়ে যদি দেখে রঘুনাথে ।
+> মন ফিরি’ যায়, তবে না পারে মারিতে ॥২২॥
+
 mārite ānaye yadi dekhe raghunāthe
 
 mana phiri' yāya, tabe nā pāre mārite

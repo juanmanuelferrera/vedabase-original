@@ -1,5 +1,8 @@
 ### CC Madhya 13.178
 
+> অন্যের কি কায, জগন্নাথ-হলধর ।
+> প্রভুর নৃত্য দেখি’ সুখে চলিলা মন্থর ॥১৭৮॥
+
 > anyera ki kāya, jagannātha-haladhara
 > prabhura nṛtya dekhi' sukhe calilā manthara
 

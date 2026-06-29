@@ -1,5 +1,8 @@
 ### CC Antya 13.4
 
+> কৃষ্ণবিচ্ছেদে দুঃখে ক্ষীণ মন-কায় ।
+> ভাবাবেশে প্রভু কভু প্রফুল্লিত হয় ॥৪॥
+
 kṛṣṇa-vicchede duḥkhe kṣīṇa mana-kāya
 bhāvāveśe prabhu kabhu praphullita haya
 

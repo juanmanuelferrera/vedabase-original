@@ -1,5 +1,8 @@
 ### CC Antya 5.27
 
+> মিশ্রের আগমন রায়ে সেবক কহিলা ।
+> শীঘ্র রামানন্দ তবে সভাতে আইলা ॥২৭॥
+
 miśrera āgamana rāye sevaka kahilā
 
 śīghra rāmānanda tabe sabhāte āilā

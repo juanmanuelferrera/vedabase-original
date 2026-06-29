@@ -1,5 +1,8 @@
 ### CC Adi 1.54
 
+> ঋতেঽর্থং যৎ প্রতীয়েত ন প্রতীয়েত চাত্মনি ।
+> তদ্বিদ্যাদাত্মনো মায়াং যথাভাসো যথা তমঃ ॥৫৪॥
+
 > ṛte 'rthaṁ yat pratīyeta
 > na pratīyeta cātmani
 > tad vidyād ātmano māyāṁ

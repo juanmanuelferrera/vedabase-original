@@ -1,5 +1,8 @@
 ### CC Adi 10.56
 
+> ভক্তে কৃপা করেন প্রভু এ-তিন স্বরূপে ।
+> ‘সাক্ষাৎ’, ‘আবেশ’ আর ‘আবির্ভাব’-রূপে ॥৫৬॥
+
 bhakte kṛpā karena prabhu e-tina svarūpe
 
 'sākṣāt,' 'āveśa' āra 'āvirbhāva'-rūpe

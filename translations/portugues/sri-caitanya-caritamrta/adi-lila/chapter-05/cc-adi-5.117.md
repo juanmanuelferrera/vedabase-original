@@ -1,5 +1,8 @@
 ### CC Adi 5.117
 
+> সেই বিষ্ণু ‘শেষ’-রূপে ধরেন ধরণী ।
+> কাঁহা আছে মহী, শিরে, হেন নাহি জানি ॥১১৭॥
+
 sei viṣṇu 'śeṣa'-rūpe dharena dharaṇī
 
 kāṅhā āche mahī, śire, hena nāhi jāni

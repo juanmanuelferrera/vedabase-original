@@ -1,5 +1,7 @@
 ### CC Madhya 4.176
 
+> ম্লেচ্ছদেশে কর্পূর-চন্দন আনিতে জঞ্জাল ৷ পুরী দুঃখ পাবে ইহা জানিয়া গোপাল ॥১৭৬॥
+
 > mleccha-deśe karpūra-candana ānite jañjāla
 > purī duḥkha pābe ihā jāniyā gopāla
 

@@ -1,5 +1,8 @@
 ### SB 2.9.29
 
+> भगवच्छिक्षितमहं करवाणि ह्यतन्द्रितः ।
+> नेहमानः प्रजासर्गं बध्येयं यदनुग्रहात् ॥२९॥
+
 > bhagavac-chikṣitam ahaṁ
 > karavāṇi hy atandritaḥ
 > nehamānaḥ prajā-sargaṁ

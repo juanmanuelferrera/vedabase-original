@@ -1,5 +1,8 @@
 ### CC Madhya 18.69
 
+> ‘গোকুল’ দেখিয়া আইলা ‘মথুরা’-নগরে ।
+> ‘জন্মস্থান’ দেখি’ রহে সেই বিপ্র-ঘরে ॥৬৯॥
+
 > 'gokula' dekhiyā āilā 'mathurā'-nagare
 > janma-sthāna' dekhi' rahe sei vipra-ghare
 

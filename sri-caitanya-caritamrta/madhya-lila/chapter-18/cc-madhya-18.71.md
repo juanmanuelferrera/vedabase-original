@@ -1,5 +1,8 @@
 ### CC Madhya 18.71
 
+> আর দিন আইলা প্রভু দেখিতে ‘বৃন্দাবন’ ।
+> ‘কালীয়-হ্রদে’ স্নান কৈলা আর প্রস্কন্দন ॥৭১॥
+
 > āra dina āilā prabhu dekhite 'vṛndāvana'
 > 'kālīya-hrade' snāna kailā āra praskandana
 

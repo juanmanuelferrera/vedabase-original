@@ -1,5 +1,8 @@
 ### CC Adi 10.109
 
+> কৃষ্ণদাস বৈদ্য, আর পণ্ডিত-শেখর ।
+> কবিচন্দ্র, আর কীর্তনীয়া ষষ্ঠীবর ॥১০৯॥
+
 kṛṣṇadāsa vaidya, āra paṇḍita-śekhara
 
 kavicandra, āra kīrtanīyā ṣaṣṭhīvara

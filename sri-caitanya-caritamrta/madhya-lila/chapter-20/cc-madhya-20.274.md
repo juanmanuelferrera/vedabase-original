@@ -1,5 +1,8 @@
 ### CC Madhya 20.274
 
+> দৈবাৎ ক্ষুভিতধর্মিণ্যাং স্বস্যাং যোনৌ পরঃ পুমান্ ।
+> আধত্ত বীর্যং সাহসূত মঽত্তত্ত্বং হিরণ্ময়ম্ ॥২৭৪॥
+
 > daivāt kṣubhita-dharmiṇyāṁ
 > svasyāṁ yonau paraḥ pumān
 > ādhatta vīryaṁ sā 'sūta

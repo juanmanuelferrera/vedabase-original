@@ -1,5 +1,8 @@
 ### CC Antya 11.46
 
+> হরিদাসের আগে আসি’ দিলা দরশন ।
+> হরিদাস বন্দিলা প্রভুর আর বৈষ্ণব-চরণ ॥৪৬॥
+
 > haridāsera āge āsi' dilā daraśana
 > haridāsa vandilā prabhura āra vaiṣṇava-caraṇa
 

@@ -1,5 +1,8 @@
 ### CC Adi 14.70
 
+> এইমত লীলা করি’ দুঁহে গেলা ঘরে ।
+> গম্ভীর চৈতন্য-লীলা কে বুঝিতে পারে ॥৭০॥
+
 ei-mata līlā kari' duṅhe gelā ghare
 
 gambhīra caitanya-līlā ke bujhite pāre

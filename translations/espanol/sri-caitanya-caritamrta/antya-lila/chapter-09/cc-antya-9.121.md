@@ -1,5 +1,8 @@
 ### CC Antya 9.121
 
+> অতএব যাহাঁ যাহাঁ দেই অধিকার ।
+> খায়, পিয়ে, লুটে, বিলায়, না করোঁ বিচার ॥১২১॥
+
 > ataeva yāhāṅ yāhāṅ dei adhikāra
 > khāya, piye, luṭe, vilāya, nā karoṅ vicāra
 

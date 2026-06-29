@@ -1,5 +1,8 @@
 ### CC Antya 2.156
 
+> ‘বিষাদি খাঞা হরিদাস আত্মঘাত কৈল  ।
+> সেই পাপে জানি ‘ব্রহ্মরাক্ষস’ হৈল ॥১৫৬॥
+
 > 'viṣādi khāñā haridāsa ātma-ghāta kaila
 > sei pāpe jāni 'brahma-rākṣasa' haila
 

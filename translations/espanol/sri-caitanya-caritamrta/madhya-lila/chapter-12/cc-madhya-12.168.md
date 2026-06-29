@@ -1,5 +1,8 @@
 ### CC Madhya 12.168
 
+> সর্বজ্ঞ প্রভু জানেন যাঁরে যেই ভায় ।
+> তাঁরে তাঁরে সেই দেওয়ায় স্বরূপ-দ্বারায় ॥১৬৮॥
+
 > sarvajña prabhu jānena yāṅre yei bhāya
 > tāṅre tāṅre sei deoyāya svarūpa-dvārāya
 

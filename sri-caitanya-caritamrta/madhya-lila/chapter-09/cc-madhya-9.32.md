@@ -1,5 +1,8 @@
 ### CC Madhya 9.32
 
+> রাম রামেতি রামেতি রমে রামে মনোরমে ।
+> সহস্রনামভিস্তুল্যং রামনাম বরাননে ॥৩২॥
+
 > rāma rāmeti rāmeti
 > rame rāme manorame
 > sahasra-nāmabhis tulyaṁ

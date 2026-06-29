@@ -1,5 +1,8 @@
 ### CC Antya 1.39
 
+> অনুপমের লাগি’ তাঁর কিছু বিলম্ব হইল ।
+> ভক্তগণ-পাশ আইলা, লাগ্ না পাইল ॥৩৯॥
+
 anupamera lāgi' tāṅra kichu vilamba ha-ila
 
 bhakta-gaṇa-pāśa āilā, lāg nā pāila

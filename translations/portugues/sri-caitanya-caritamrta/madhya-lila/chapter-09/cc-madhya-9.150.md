@@ -1,5 +1,10 @@
 ### CC Madhya 9.150
 
+> গোপীনাং পশুপেন্দ্রনন্দনজুষো ভাবস্য কস্তাং কৃতী
+> বিজ্ঞাতুং ক্ষমতে দুরূহপদবীসঞ্চারিণঃ প্রক্রিয়াম্ ৷
+> আবিষ্কুর্বতি বৈষ্ণবীমপি তনুং তস্মিন্ ভুজৈর্জিষ্ণুভি-
+> র্যাসাং হন্ত চতুর্ভিরদ্ভুতরুচিং রাগোদয়ঃ কুঞ্চতি ৷৷ ১৫০ ৷৷ ॥১৫০॥
+
 gopīnāṁ paśupendra-nandana-juṣo bhāvasya kas tāṁ kṛtī
 vijñātuṁ kṣamate durūha-padavī-sañcāriṇaḥ prakriyām
 āviṣkurvati vaiṣṇavīm api tanuṁ tasmin bhujair jiṣṇubhir

@@ -1,5 +1,8 @@
 ### CC Adi 4.248
 
+> এই মত জগতের সুখে আমি হেতু ।
+> রাধিকার রূপগুণ আমার জীবাতু ॥২৪৮॥
+
 > ei mata jagatera sukhe āmi hetu
 > rādhikāra rūpa-guṇa āmāra jīvātu
 

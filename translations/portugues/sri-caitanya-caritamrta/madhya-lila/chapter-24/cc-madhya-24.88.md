@@ -1,5 +1,7 @@
 ### CC Madhya 24.88
 
+> বৈক্লব্যবাষ্পকলয়া পুলকীকৃতাঙ্গাঃ ॥৮৮॥
+
 yac ca vrajanty animiṣām ṛṣabhānuvṛttyā
 
 dūre-yamā hy upari naḥ spṛhaṇīya-śīlāḥ

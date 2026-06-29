@@ -1,5 +1,8 @@
 ### CC Adi 6.96
 
+> এই সব হয় শ্রীকৃষ্ণের অবতার ।
+> নিরন্তর দেখি সবার ভক্তির আচার ॥৯৬॥
+
 ei saba haya śrī-kṛṣṇera avatāra
 nirantara dekhi sabāra bhaktira ācāra
 

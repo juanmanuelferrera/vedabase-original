@@ -1,5 +1,8 @@
 ### CC Madhya 20.217
 
+> বিষ্ণুকাঞ্চীতে বিষ্ণু, হরি রহে, মায়াপুরে ।
+> ঐছে আর নানা মূর্তি ব্রহ্মাণ্ড-ভিতরে ॥২১৭॥
+
 > viṣṇu-kāñcīte viṣṇu, hari rahe, māyāpure
 > aiche āra nānā mūrti brahmāṇḍa-bhitare
 

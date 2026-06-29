@@ -1,5 +1,8 @@
 ### CC Madhya 20.354
 
+> অবতার নাহি কহে — ‘আমি অবতার’ ।
+> মুনি সব জানি’ করে লক্ষণ-বিচার ॥৩৫৪॥
+
 > avatāra nāhi kahe—'āmi avatāra'
 > muni saba jāni' kare lakṣaṇa-vicāra
 

@@ -1,5 +1,8 @@
 ### CC Adi 15.7
 
+> অধ্যয়ন-লীলা প্রভুর দাস-বৃন্দাবন ।
+> ‘চৈতন্যমঙ্গলে’ কৈল বিস্তারি বর্ণন ॥৭॥
+
 > adhyayana-līlā prabhura dāsa-vṛndāvana
 > 'caitanya-maṅgale' kaila vistāri varṇana
 

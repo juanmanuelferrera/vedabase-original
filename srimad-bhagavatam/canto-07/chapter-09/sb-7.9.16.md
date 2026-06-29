@@ -1,5 +1,10 @@
 ### SB 7.9.16
 
+> त्रस्तोऽस्म्यहं कृपणवत्सल दुःसहोग्र
+> संसारचक्रकदनाद्ग्रसतां प्रणीतः
+> बद्धः स्वकर्मभिरुशत्तम तेऽङ्घ्रिमूलं
+> प्रीतोऽपवर्गशरणं ह्वयसे कदा नु ॥१६॥
+
 > trasto 'smy ahaṁ kṛpaṇa-vatsala duḥsahogra-
 > saṁsāra-cakra-kadanād grasatāṁ praṇītaḥ
 > baddhaḥ sva-karmabhir uśattama te 'ṅghri-mūlaṁ

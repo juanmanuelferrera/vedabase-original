@@ -1,5 +1,8 @@
 ### CC Madhya 9.87
 
+> কাবেরীতে স্নান করি’ শ্রীরঙ্গ দর্শন ।
+> প্রতিদিন প্রেমাবেশে করেন নর্তন ॥৮৭॥
+
 > kāverīte snāna kari' śrī-raṅga darśana
 > pratidina premāveśe karena nartana
 

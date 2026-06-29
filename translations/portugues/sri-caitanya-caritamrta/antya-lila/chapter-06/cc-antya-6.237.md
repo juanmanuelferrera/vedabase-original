@@ -1,5 +1,8 @@
 ### CC Antya 6.237
 
+> অমানী মানদ হঞা কৃষ্ণনাম সদা ল’বে  ।
+> ব্রজে রাধাকৃষ্ণ-সেবা মানসে করিবে ॥২৩৭॥
+
 amānī mānada hañā kṛṣṇa-nāma sadā la'be
 
 vraje rādhā-kṛṣṇa-sevā mānase karibe

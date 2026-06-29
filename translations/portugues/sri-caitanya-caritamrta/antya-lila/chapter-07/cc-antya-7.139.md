@@ -1,5 +1,8 @@
 ### CC Antya 7.139
 
+> প্রভু অবতীর্ণ হৈলা জগৎ তারিতে ।
+> মানিলেন নিমন্ত্রণ, তারে সুখ দিতে ॥১৩৯॥
+
 prabhu avatīrṇa hailā jagat tārite
 
 mānilena nimantraṇa, tāre sukha dite

@@ -1,5 +1,8 @@
 ### CC Adi 5.95
 
+> ভিতরে প্রবেশি’ দেখে সব অন্ধকার ।
+> রহিতে নাহিক স্থান করিল বিচার ॥৯৫॥
+
 bhitare praveśi' dekhe saba andhakāra
 rahite nāhika sthāna karila vicāra
 

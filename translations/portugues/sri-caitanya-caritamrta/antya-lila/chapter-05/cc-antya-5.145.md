@@ -1,5 +1,8 @@
 ### CC Antya 5.145
 
+> ‘বান্ধে সবারে’ — তাতে অবিদ্যা ‘বন্ধু’ হয় ।
+> ‘অবিদ্যা-নাশক’ — ‘বন্ধুহন্’-শব্দে কয় ॥১৪৫॥
+
 'bāndhe sabāre'--tāte avidyā 'bandhu' haya
 
 'avidyā-nāśaka'--'bandhu-han'-śabde kaya

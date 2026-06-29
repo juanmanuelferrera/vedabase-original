@@ -1,5 +1,8 @@
 ### CC Madhya 4.203
 
+> এই শ্লোকে উঘাড়িলা প্রেমের কপাট ।
+> গোপীনাথ-সেবক দেখে প্ৰভুর প্রেমনাট ॥২০৩॥
+
 > ei śloke ughāḍilā premera kapāṭa
 > gopīnātha-sevaka dekhe prabhura prema-nāṭa
 

@@ -1,5 +1,8 @@
 ### CC Adi 3.27
 
+> সন্ত্ববতারা বহবঃ পঙ্কজনাভস্য সর্বতোভদ্রাঃ ।
+> কৃষ্ণাদন্যঃ কো বা লতাস্বপি প্রেমদো ভবতি ॥২৭॥
+
 > santv avatārā bahavaḥ
 > paṅkaja-nābhasya sarvato-bhadrāḥ
 > kṛṣṇād anyaḥ ko vā latāsv

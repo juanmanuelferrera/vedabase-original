@@ -1,5 +1,8 @@
 ### CC Antya 1.20
 
+> একদিন শিবানন্দে ঘাটিয়ালে রাখিলা ।
+> কুক্কুরকে ভাত দিতে সেবক পাসরিলা ॥২০॥
+
 eka-dina śivānande ghāṭiyāle rākhila
 
 kukkurake bhāta dite sevaka pāsarilā

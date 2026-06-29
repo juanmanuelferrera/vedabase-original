@@ -1,5 +1,8 @@
 ### SB 9.16.20
 
+> पितुः कायेन सन्धाय शिर आदाय बर्हिषि
+> सर्वदेवमयं देवमात्मानमयजन्मखैः ॥२०॥
+
 > pituḥ kāyena sandhāya
 > śira ādāya barhiṣi
 > sarva-deva-mayaṁ devam

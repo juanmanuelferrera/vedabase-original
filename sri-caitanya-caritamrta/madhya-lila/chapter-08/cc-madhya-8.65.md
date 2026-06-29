@@ -1,5 +1,8 @@
 ### CC Madhya 8.65
 
+> ব্রহ্মভূতঃ প্রসন্নাত্মা ন শোচতি ন কাঙ্ক্ষতি ।
+> সমঃ সর্বেষু ভূতেষু মদ্ভক্তিং লভতে পরাম্ ॥৬৫॥
+
 > brahma-bhūtaḥ prasannātmā
 > na śocati na kāṅkṣati
 > samaḥ sarveṣu bhūteṣu

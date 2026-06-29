@@ -1,5 +1,8 @@
 ### CC Antya 4.211
 
+> মহাপ্রভুর ভক্তগণে সবারে মিলিয়া ।
+> সেইপথে চলি’ যায় সে-স্থান দেখিয়া ॥২১১॥
+
 mahāprabhura bhakta-gaṇe sabāre miliyā
 
 sei-pathe cali' yāya se-sthāna dekhiyā

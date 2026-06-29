@@ -1,5 +1,8 @@
 ### CC Antya 13.112
 
+> অষ্টমাস রহি’ প্রভু ভট্টে বিদায় দিলা ।
+> ‘বিবাহ না করিহ’ বলি’ নিষেধ করিলা ॥১১২॥
+
 aṣṭa-māsa rahi' prabhu bhaṭṭe vidāya dilā
 
 'vivāha nā kariha' bali' niṣedha karilā

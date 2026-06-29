@@ -1,5 +1,8 @@
 ### CC Madhya 22.17
 
+> কৃষ্ণভক্তি হয় অভিধেয়-প্রধান ।
+> ভক্তিমুখ-নিরীক্ষক কর্ম-যোগ-জ্ঞান ॥১৭॥
+
 > kṛṣṇa-bhakti haya abhidheya-pradhāna
 > bhakti-mukha-nirīkṣaka karma-yoga-jñāna
 

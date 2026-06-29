@@ -1,5 +1,8 @@
 ### CC Madhya 17.40
 
+> ‘কৃষ্ণ কৃষ্ণ কহ’ করি’ প্রভু যবে বলিল ।
+> ‘কৃষ্ণ’ কহি’ ব্যাঘ্র-মৃগ নাচিতে লাগিল ॥৪০॥
+
 'kṛṣṇa kṛṣṇa kaha' kari' prabhu yabe balila
 
 'kṛṣṇa' kahi' vyāghra-mṛga nācite lāgila

@@ -1,5 +1,8 @@
 ### CC Antya 4.54
 
+> একদিন আসি’ প্রভু দুঁহারে মিলিলা  ।
+> সনাতনে আচম্বিতে কহিতে লাগিলা ॥৫৪॥
+
 > eka-dina āsi' prabhu duṅhāre mililā
 > sanātane ācambite kahite lāgilā
 

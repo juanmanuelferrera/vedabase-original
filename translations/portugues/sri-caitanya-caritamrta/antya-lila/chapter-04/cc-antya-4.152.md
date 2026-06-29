@@ -1,5 +1,8 @@
 ### CC Antya 4.152
 
+> সহজে নীচ-জাতি মুঞি, দুষ্ট, ‘পাপাশয়’ ।
+> মোরে তুমি ছুঁইলে মোর অপরাধ হয় ॥১৫২॥
+
 sahaje nīca-jāti muñi, duṣṭa, 'pāpāśaya'
 
 more tumi chuṅile mora aparādha haya

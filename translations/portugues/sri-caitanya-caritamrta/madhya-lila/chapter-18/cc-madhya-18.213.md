@@ -1,5 +1,8 @@
 ### CC Madhya 18.213
 
+> ঐছে লীলা করে প্রভু শ্রীকৃষ্ণচৈতন্য ।
+> ‘পশ্চিমে’ আসিয়া কৈল যবনাদি ধন্য ॥২১৩॥
+
 aiche līlā kare prabhu śrī-kṛṣṇa-caitanya
 
 'paścime' āsiyā kaila yavanādi dhanya

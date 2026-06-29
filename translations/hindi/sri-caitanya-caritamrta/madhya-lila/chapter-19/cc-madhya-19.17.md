@@ -1,5 +1,8 @@
 ### CC Madhya 19.17
 
+> ভট্টাচার্য পণ্ডিত বিশ ত্রিশ লঞা ।
+> ভাগবত বিচার করেন সভাতে বসিয়া ॥১৭॥
+
 > bhaṭṭācārya paṇḍita biśa triśa lañā
 > bhāgavata vicāra karena sabhāte vasiyā
 

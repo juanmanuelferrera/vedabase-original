@@ -1,5 +1,8 @@
 ### CC Antya 6.268
 
+> রঘুনাথ-দাস অঙ্গীকার না করিল ।
+> দ্রব্য লঞা দুইজন তাহাঁই রহিল ॥২৬৮॥
+
 raghunātha-dāsa aṅgīkāra nā karila
 
 dravya lañā dui-jana tāhāṅi rahila

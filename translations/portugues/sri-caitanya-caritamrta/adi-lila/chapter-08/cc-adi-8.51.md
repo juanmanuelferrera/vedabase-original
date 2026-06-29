@@ -1,5 +1,8 @@
 ### CC Adi 8.51
 
+> তাতে বসি’ আছে সদা ব্রজেন্দ্রনন্দন ।
+> ‘শ্রীগোবিন্দ-দেব’ নাম সাক্ষাৎ মদন ॥৫১॥
+
 tāte vasi' āche sadā vrajendra-nandana
 
 'śrī-govinda-deva' nāma sākṣāt madana

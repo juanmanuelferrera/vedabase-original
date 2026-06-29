@@ -1,5 +1,7 @@
 ### CC Madhya 23.22
 
+> কৃষ্ণ-সম্বন্ধ বিনা কাল ব্যর্থ নাহি যায় ॥২২॥
+
 > kṛṣṇa-sambandha vinā kāla vyartha nāhi yāya
 
 *kṛṣṇa-sambandha vinā*—without a connection with Kṛṣṇa; *kāla*—time; *vyartha*—useless; *nāhi yāya*—does not become.

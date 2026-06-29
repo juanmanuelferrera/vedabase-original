@@ -1,5 +1,8 @@
 ### CC Antya 12.128
 
+> হস্ত তুলি’ রহেন প্রভু, না করেন ভোজন  ।
+> তবে পণ্ডিত কহেন কিছু সপ্রেম বচন ॥১২৮॥
+
 hasta tuli' rahena prabhu, nā karena bhojana
 
 tabe paṇḍita kahena kichu saprema vacana

@@ -1,5 +1,8 @@
 ### CC Madhya 20.277
 
+> সর্ব তত্ত্ব মিলি’ সৃজিল ব্রহ্মাণ্ডের গণ ।
+> অনন্ত ব্রহ্মাণ্ড, তার নাহিক গণন ॥২৭৭॥
+
 sarva tattva mili' sṛjila brahmāṇḍera gaṇa
 
 ananta brahmāṇḍa, tāra nāhika gaṇana

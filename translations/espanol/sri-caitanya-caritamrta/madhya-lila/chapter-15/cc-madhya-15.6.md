@@ -1,5 +1,8 @@
 ### CC Madhya 15.6
 
+> ‘উপলভোগ’ লাগিলে করে বাহিরে বিজয় ৷
+> হরিদাস মিলি’ আইসে আপন নিলয় ॥৬॥
+
 > 'upala-bhoga' lāgile kare bāhire vijaya
 > haridāsa mili' āise āpana nilaya
 

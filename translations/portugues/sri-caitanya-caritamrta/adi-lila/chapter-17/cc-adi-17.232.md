@@ -1,5 +1,8 @@
 ### CC Adi 17.232
 
+> ‘দেখিনু’ ‘দেখিনু’ বলি’ হইল পাগল ।
+> প্রেমে নৃত্য করে, হৈল বৈষ্ণব আগল ॥২৩২॥
+
 'dekhinu' 'dekhinu' bali' ha-ila pāgala
 
 preme nṛtya kare, haila vaiṣṇava āgala

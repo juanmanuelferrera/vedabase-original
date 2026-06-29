@@ -1,5 +1,8 @@
 ### CC Madhya 9.83
 
+> নিজ-ঘরে লঞা কৈল পাদপ্রক্ষালন ৷
+> সেই জল লঞা কৈল সবংশে ভক্ষণ ৷৷ ৮৩ ৷৷ ॥৮৩॥
+
 > nija-ghare lañā kaila pāda-prakṣālana
 > sei jala lañā kaila sa-vaṁśe bhakṣaṇa
 

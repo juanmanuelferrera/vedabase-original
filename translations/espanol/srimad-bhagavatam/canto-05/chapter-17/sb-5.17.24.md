@@ -5,6 +5,11 @@
 > na veda nistāraṇa-yogam añjasā
 > tasmai namas te vilayodayātmane
 
+> yan-nirmitāṁ karhy api karma-parvaṇīṁ
+> māyāṁ jano 'yaṁ guṇa-sarga-mohitaḥ
+> na veda nistāraṇa-yogam añjasā
+> tasmai namas te vilayodayātmane
+
 *yat*—por quien; *nirmitām*—creadas; *karhi api*—en cualquier momento; *karma-parvaṇīm*—que ata los nudos de la actividad fruitiva; *māyām*—la energía ilusoria; *janaḥ*—una persona; *ayam*—esta; *guṇa-sarga-mohitaḥ*—confundida por las tres modalidades de la naturaleza material; *na*—no; *veda*—conoce; *nistāraṇa-yogam*—el proceso para liberarse del enredo material; *añjasā*—pronto; *tasmai*—a Él (el Supremo); *namaḥ*—reverencias respetuosas; *te*—a Ti; *vilaya-udaya-ātmane*—en quien todo se aniquila y de quien todo vuelve a manifestarse.
 
 **Nosotros, las almas condicionadas, estamos atadas al mundo material por la energía ilusoria de la Suprema Personalidad de Dios. Por consiguiente, si no recibimos Su favor, no podemos entender el modo de liberarnos de esa energía ilusoria. Ofrezco respetuosas reverencias al Señor, que es la causa de la creación y de la aniquilación.**

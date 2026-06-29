@@ -1,5 +1,10 @@
 ### CC Antya 20.47
 
+> আশ্লিষ্য বা পাদরতাং পিনষ্টু মা-
+> মদর্শনান্মর্মহতাং করোতু বা ।
+> যথা তথা বা বিদধাতু লম্পটো
+> মত্প্রাণনাথস্তু স এব নাপরঃ ॥৪৭॥
+
 > āśliṣya vā pāda-ratāṁ pinaṣṭu mām
 > adarśanān marma-hatāṁ karotu vā
 > yathā tathā vā vidadhātu lampaṭo

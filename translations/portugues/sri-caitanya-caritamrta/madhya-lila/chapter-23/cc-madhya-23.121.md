@@ -1,5 +1,8 @@
 ### CC Madhya 23.121
 
+> তুমি যে কহিলা, এই সিদ্ধান্তামৃত-সিন্ধু ।
+> মোর মন ছুঁইতে নারে ইহার একবিন্দু ॥১২১॥
+
 tumi ye kahilā, ei siddhāntāmṛta-sindhu
 
 mora mana chuṅite nāre ihāra eka-bindu

@@ -1,5 +1,8 @@
 ### CC Madhya 1.193
 
+> ব্রাহ্মণজাতি তারা, নবদ্বীপে ঘর ।
+> নীচ-সেবা নাহি করে, নহে নীচের কূর্পর ॥১৯৩॥
+
 brāhmaṇa-jāti tārā, navadvīpe ghara
 
 nīca-sevā nāhi kare, nahe nīcera kūrpara

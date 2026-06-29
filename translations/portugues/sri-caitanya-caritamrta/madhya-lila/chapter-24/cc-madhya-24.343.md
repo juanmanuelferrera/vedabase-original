@@ -1,5 +1,8 @@
 ### CC Madhya 24.343
 
+> সর্বত্র প্রমাণ দিবে পুরাণ-বচন ।
+> শ্রীমূর্তি-বিষ্ণুমন্দিরকরণ-লক্ষণ ॥৩৪৩॥
+
 sarvatra pramāṇa dibe purāṇa-vacana
 
 śrī-mūrti-viṣṇu-mandira karaṇa-lakṣaṇa

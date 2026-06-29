@@ -1,5 +1,8 @@
 ### CC Madhya 24.293
 
+> ‘মুনি’, ‘নির্গ্রন্থ’, ‘চ’ ‘অপি’, — চারি শব্দের অর্থ ।
+> যাহাঁ যেই লাগে, তাহা করিয়ে সমর্থ ॥২৯৩॥
+
 > 'muni', 'nirgrantha', 'ca' 'api',--cāri śabdera artha
 > yāhāṅ yei lāge, tāhā kariye samartha
 

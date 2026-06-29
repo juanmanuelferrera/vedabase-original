@@ -1,5 +1,10 @@
 ### CC Antya 18.1
 
+> শরজ্জ্যোৎস্না-সিন্ধোরবকলনয়া জাতযমুনা-
+> ভ্রমাদ্ধাবন্ যোঽস্মিন্ হরিবিরহতাপার্ণব ইব ।
+> নিমগ্নো মূর্চ্ছালঃ পয়সি নিবসন্ রাত্রিমখিলাং
+> প্রভাতে প্রাপ্তঃ স্বৈরবতু স শচীসূনুরিহ নঃ ॥১॥
+
 > śaraj-jyotsnā-sindhor avakalanayā jāta-yamunā-
 > bhramād dhāvan yo 'smin hari-viraha-tāpārṇava iva
 > nimagno mūrcchālaḥ payasi nivasan rātrim akhilāṁ

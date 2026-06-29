@@ -1,5 +1,8 @@
 ### CC Madhya 1.219
 
+> নিত্যানন্দ, হরিদাস, শ্রীবাস, গদাধর ।
+> মুকুন্দ, জগদানন্দ, মুরারি, বক্রেশ্বর ॥২১৯॥
+
 > nityānanda, haridāsa, śrīvāsa, gadādhara
 > mukunda, jagadānanda, murāri, vakreśvara
 

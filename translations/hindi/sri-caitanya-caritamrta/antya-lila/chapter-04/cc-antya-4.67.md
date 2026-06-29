@@ -1,5 +1,8 @@
 ### CC Antya 4.67
 
+> যেই ভজে সেই বড়, অভক্ত — হীন, ছার ।
+> কৃষ্ণভজনে নাহি জাতি-কুলাদি-বিচার ॥৬৭॥
+
 > yei bhaje sei baḍa, abhakta--hīna, chāra
 > kṛṣṇa-bhajane nāhi jāti-kulādi-vicāra
 

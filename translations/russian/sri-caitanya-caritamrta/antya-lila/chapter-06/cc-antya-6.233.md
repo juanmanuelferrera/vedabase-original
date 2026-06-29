@@ -1,5 +1,8 @@
 ### CC Antya 6.233
 
+> হাসি’ মহাপ্রভু রঘুনাথেরে কহিল  ।
+> “তোমার উপদেষ্টা করি’ স্বরূপেরে দিল ॥২৩৩॥
+
 > hāsi' mahāprabhu raghunāthere kahila
 > "tomāra upadeṣṭā kari' svarūpere dila
 

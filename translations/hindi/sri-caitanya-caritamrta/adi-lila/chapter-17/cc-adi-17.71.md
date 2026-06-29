@@ -1,5 +1,8 @@
 ### CC Adi 17.71
 
+> হরিদাস ঠাকুরেরে করিল প্রসাদ ।
+> আচার্য-স্থানে মাতার খণ্ডাইল অপরাধ ॥৭১॥
+
 > haridāsa ṭhākurere karila prasāda
 > ācārya-sthāne mātāra khaṇḍāila aparādha
 

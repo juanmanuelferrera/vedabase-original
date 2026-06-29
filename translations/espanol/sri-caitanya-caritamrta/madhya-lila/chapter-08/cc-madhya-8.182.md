@@ -1,5 +1,10 @@
 ### CC Madhya 8.182
 
+> কা কৃষ্ণস্য প্রণয়জনিভূঃ শ্রীমতী রাধিকৈকা
+> কাস্য প্রেয়স্যনুপমগুণা রাধিকৈকা ন চান্যা ৷
+> জৈহ্ম্যং কেশে দৃশি তরলতা নিষ্ঠুরত্বং কুচেঽস্যা
+> বাঞ্ছাপূর্ত্যৈ প্রভবতি হরে রাধিকৈকা ন চান্যা ৷৷ ১৮২ ৷৷ ॥১৮২॥
+
 > kā kṛṣṇasya praṇaya-jani-bhūḥ śrīmatī rādhikaikā
 > kāsya preyasy anupama-guṇā rādhikaikā na cānyā
 > jaihmyaṁ keśe dṛśi taralatā niṣṭhuratvaṁ kuce 'syā

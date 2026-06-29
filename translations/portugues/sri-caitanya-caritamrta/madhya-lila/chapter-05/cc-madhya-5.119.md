@@ -1,5 +1,8 @@
 ### CC Madhya 5.119
 
+> এই মত বিদ্যানগরে সাক্ষিগোপাল ।
+> সেবা অঙ্গীকার করি’ আছেন চিরকাল ॥১১৯॥
+
 ei mata vidyānagare sākṣi-gopāla
 sevā aṅgīkāra kari' āchena cira-kāla
 

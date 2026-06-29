@@ -1,5 +1,8 @@
 ### CC Madhya 17.34
 
+> পথে যাইতে করে প্রভু উচ্চ সংকীর্তন ।
+> মধুর কণ্ঠধ্বনি শুনি’ আইসে মৃগীগণ ॥৩৪॥
+
 pathe yāite kare prabhu ucca saṅkīrtana
 
 madhura kaṇṭha-dhvani śuni' āise mṛgī-gaṇa

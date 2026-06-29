@@ -1,5 +1,8 @@
 ### CC Madhya 8.176
 
+> সৌভাগ্য-তিলক চারু-ললাটে উজ্জ্বল ।
+> প্রেম-বৈচিত্ত্য — রত্ন, হৃদয় — তরল ॥১৭৬॥
+
 > saubhāgya-tilaka cāru-lalāṭe ujjvala
 > prema-vaicittya--ratna, hṛdaya--tarala
 

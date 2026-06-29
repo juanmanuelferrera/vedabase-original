@@ -1,5 +1,8 @@
 ### CC Madhya 11.181
 
+> বাণীনাথ আইলা বহু প্রসাদ পিঠা লঞা ।
+> গোপীনাথ আইলা বাসা সংস্কার করিয়া ॥১৮১॥
+
 > vāṇīnātha āilā bahu prasāda piṭhā lañā
 > gopīnātha āilā vāsā saṁskāra kariyā
 

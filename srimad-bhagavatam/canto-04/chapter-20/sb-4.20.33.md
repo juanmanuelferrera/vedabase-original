@@ -1,5 +1,8 @@
 ### SB 4.20.33
 
+> तत्त्वं कुरु मयादिष्टमप्रमत्तः प्रजापते ।
+> मदादेशकरो लोकः सर्वत्राप्नोति शोभनम् ॥३३॥
+
 > tat tvaṁ kuru mayādiṣṭam
 > apramattaḥ prajāpate
 > mad-ādeśa-karo lokaḥ

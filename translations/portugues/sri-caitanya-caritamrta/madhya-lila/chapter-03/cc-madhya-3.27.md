@@ -1,5 +1,8 @@
 ### CC Madhya 3.27
 
+> অহো ভাগ্য, যমুনারে পাইলুঁ দরশন ।
+> এত বলি’ যমুনার করেন স্তবন ॥২৭॥
+
 aho bhāgya, yamunāre pāiluṅ daraśana
 
 eta bali' yamunāra karena stavana

@@ -1,5 +1,8 @@
 ### CC Antya 10.66
 
+> সাত-দিকে সাত-সম্প্রদায় গায়, বাজায় ।
+> মধ্যে মহাপ্রেমাবেশে নাচে গৌর-রায় ॥৬৬॥
+
 sāta-dike sāta-sampradāya gāya, bājāya
 
 madhye mahā-premāveśe nāce gaura-rāya

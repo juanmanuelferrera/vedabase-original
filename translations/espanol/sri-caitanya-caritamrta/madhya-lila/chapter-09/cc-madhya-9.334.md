@@ -1,5 +1,8 @@
 ### CC Madhya 9.334
 
+> দিন-দশে ইহা-সবার করি’ সমাধান ৷
+> তোমার পাছে পাছে আমি করিব প্রয়াণ ৷৷ ৩৩৪ ৷৷ ॥৩৩৪॥
+
 > dina-daśe ihā-sabāra kari' samādhāna
 > tomāra pāche pāche āmi kariba prayāṇa
 

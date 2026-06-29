@@ -1,5 +1,8 @@
 ### CC Madhya 17.56
 
+> যাহাঁ নদী দেখে তাহাঁ মানয়ে — ‘কালিন্দী’ ।
+> মহাপ্রেমাবেশে নাচে প্রভু পড়ে কান্দি’ ॥৫৬॥
+
 > yāhāṅ nadī dekhe tāhāṅ mānaye—'kālindī'
 > mahā-premāveśe nāce prabhu paḍe kāndi'
 

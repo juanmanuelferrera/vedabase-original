@@ -1,5 +1,8 @@
 ### CC Madhya 16.168
 
+> এত কহি’ সেই চর ‘হরি’ ‘কৃষ্ণ’ গায় ।
+> হাসে, কান্দে, নাচে, গায় বাউলের প্রায় ॥১৬৮॥
+
 eta kahi' sei cara 'hari' 'kṛṣṇa' gāya
 
 hāse, kānde, nāce, gāya bāulera prāya

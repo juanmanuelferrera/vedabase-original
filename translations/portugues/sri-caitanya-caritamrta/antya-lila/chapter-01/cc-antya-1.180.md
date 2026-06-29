@@ -1,5 +1,8 @@
 ### CC Antya 1.180
 
+> রায় কহে, — “রূপের কাব্য অমৃতের পূর ।
+> তার মধ্যে এক বিন্দু দিয়াছে কর্পূর ।।” ॥ ১৮০ ॥
+
 rāya kahe,--"rūpera kāvya amṛtera pūra
 
 tāra madhye eka bindu diyāche karpūra"

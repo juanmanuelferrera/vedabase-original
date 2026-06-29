@@ -1,5 +1,8 @@
 ### CC Madhya 20.47
 
+> ‘দ্বারে এক ‘বৈষ্ণব’ হয়, বোলাহ তাঁহারে’  ।
+> চন্দ্রশেখর দেখে — ‘বৈষ্ণব’ নাহিক দ্বারে ॥৪৭॥
+
 > 'dvāre eka 'vaiṣṇava haya, bolāha tāṅhāre'
 > candraśekhara dekhe—'vaiṣṇava' nāhika dvāre
 

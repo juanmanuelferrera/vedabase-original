@@ -1,5 +1,8 @@
 ### CC Adi 17.117
 
+> জল পান করিয়া নাচে হঞা বিহ্বল ।
+> যমুনাকর্ষণ-লীলা দেখয়ে সকল ॥১১৭॥
+
 > jala pāna kariyā nāce hañā vihvala
 > yamunākarṣaṇa-līlā dekhaye sakala
 

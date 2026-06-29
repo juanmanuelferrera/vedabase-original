@@ -1,5 +1,8 @@
 ### CC Madhya 24.274
 
+> তবে সেই ব্যাধ দোঁহারে অঙ্গনে আনিল ।
+> কুশাসন আনি’ দোঁহারে ভক্ত্যে বসাইল ॥২৭৪॥
+
 > tabe sei vyādha doṅhāre aṅgane ānila
 > kuśāsana āni' doṅhāre bhaktye vasāila
 

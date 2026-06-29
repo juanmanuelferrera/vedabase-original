@@ -1,5 +1,8 @@
 ### CC Antya 1.96
 
+> ‘ক্যা পুঁথি লিখ?’ বলি’ একপত্র নিলা ।
+> অক্ষর দেখিয়া প্রভু মনে সুখী হৈলা ॥৯৬॥
+
 > 'kyā puṅthi likha?' bali' eka-patra nilā
 > akṣara dekhiyā prabhu mane sukhī hailā
 

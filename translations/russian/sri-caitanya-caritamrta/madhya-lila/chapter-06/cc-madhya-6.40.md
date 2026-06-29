@@ -1,5 +1,8 @@
 ### CC Madhya 6.40
 
+> সমুদ্রস্নান করি’ মহাপ্রভু শীঘ্র আইলা ।
+> চরণ পাখালি’ প্রভু আসনে বসিলা ॥৪০॥
+
 > samudra-snāna kari' mahāprabhu śīghra āilā
 > caraṇa pākhāli' prabhu āsane vasilā
 

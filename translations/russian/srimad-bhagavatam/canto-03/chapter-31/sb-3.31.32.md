@@ -1,5 +1,8 @@
 ### SB 3.31.32
 
+> यद्यसद्भिः पथि पुनः शिश्नोदरकृतोद्यमैः ।
+> आस्थितो रमते जन्तुस्तमो विशति पूर्ववत् ॥३२॥
+
 > yady asadbhiḥ pathi punaḥ
 > śiśnodara-kṛtodyamaiḥ
 > āsthito ramate jantus

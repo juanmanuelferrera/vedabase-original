@@ -1,5 +1,8 @@
 ### CC Antya 3.134
 
+> সেইদিন যাইতাম এস্থান ছাড়িয়া ।
+> তিন দিন রহিলাঙ তোমা নিস্তার লাগিয়া ॥১৩৪॥
+
 > sei-dina yāitāma e-sthāna chāḍiyā
 > tina dina rahilāṅa tomā nistāra lāgiyā
 

@@ -1,5 +1,8 @@
 ### SB 4.24.22
 
+> मत्तभ्रमरसौस्वर्य हृष्टरोमलताङ्घ्रिपम् ।
+> पद्मकोशरजो दिक्षु विक्षिपत्पवनोत्सवम् ॥२२॥
+
 > matta-bhramara-sausvarya-
 > hṛṣṭa-roma-latāṅghripam
 > padma-kośa-rajo dikṣu

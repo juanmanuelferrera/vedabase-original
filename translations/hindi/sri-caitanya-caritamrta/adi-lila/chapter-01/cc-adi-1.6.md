@@ -1,5 +1,10 @@
 ### CC Adi 1.6
 
+> শ্রীরাধায়াঃ প্রণয়মহিমা কীদৃশো বানয়ৈবা-
+> স্বাদ্যো যেনাদ্ভুতমধুরিমা কীদৃশো বা মদীয়ঃ ।
+> সৌখ্যঞ্চাস্যা মদনুভবতঃ কীদৃশং বেতি লোভা-
+> ত্তদ্ভাবাঢ্যঃ সমজনি শচীগর্ভসিন্ধৌ হরীন্দুঃ ॥৬॥
+
 > śrī-rādhāyāḥ praṇaya-mahimā kīdṛśo vānayaivā-
 > svādyo yenādbhuta-madhurimā kīdṛśo vā madīyaḥ
 > saukhyaṁ cāsyā mad-anubhavataḥ kīdṛśaṁ veti lobhāt

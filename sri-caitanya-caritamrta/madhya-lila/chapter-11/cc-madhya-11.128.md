@@ -1,5 +1,8 @@
 ### CC Madhya 11.128
 
+> প্রেমানন্দে হৈলা দুঁহে পরম অস্থির ।
+> সময় দেখিয়া প্রভু হৈলা কিছু ধীর ॥১২৮॥
+
 > premānande hailā duṅhe parama asthira
 > samaya dekhiyā prabhu hailā kichu dhīra
 

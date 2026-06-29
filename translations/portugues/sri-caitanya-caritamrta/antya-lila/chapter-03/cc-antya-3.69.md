@@ -1,5 +1,8 @@
 ### CC Antya 3.69
 
+> তুমি যে করিয়াছ এই উচ্চ সঙ্কীর্তন ।
+> স্থাবর-জঙ্গমের সেই হয়ত’ শ্রবণ ॥৬৯॥
+
 tumi ye kariyācha ei ucca saṅkīrtana
 
 sthāvara-jaṅgamera sei hayata' śravaṇa

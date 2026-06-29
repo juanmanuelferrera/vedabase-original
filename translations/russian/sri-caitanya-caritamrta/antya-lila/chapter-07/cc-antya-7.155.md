@@ -1,5 +1,8 @@
 ### CC Antya 7.155
 
+> পথে পণ্ডিতেরে স্বরূপ কহেন বচন ।
+> “পরীক্ষিতে প্রভু তোমারে কৈলা উপেক্ষণ ॥১৫৫॥
+
 > pathe paṇḍitere svarūpa kahena vacana
 > "parīkṣite prabhu tomāre kailā upekṣaṇa
 

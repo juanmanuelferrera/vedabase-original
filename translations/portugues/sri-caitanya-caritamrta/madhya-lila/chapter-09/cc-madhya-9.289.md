@@ -1,5 +1,8 @@
 ### CC Madhya 9.289
 
+> শ্রীপাদ, ধর মোর গোসাঞির সম্বন্ধ ৷
+> তাহা বিনা অন্যত্র নাহি এই প্রেমার গন্ধ ৷৷ ২৮৯ ৷৷ ॥২৮৯॥
+
 śrīpāda, dhara mora gosāñira sambandha
 tāhā vinā anyatra nāhi ek premāra gandha
 

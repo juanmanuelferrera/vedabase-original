@@ -1,5 +1,8 @@
 ### CC Madhya 21.63
 
+> কৃষ্ণ মান্য-পূজা করি’ তাঁরে প্রশ্ন কৈল ।
+> ‘কি লাগি’ তোমার ইহাঁ আগমন হৈল ?’ ॥ ৬৩ ॥
+
 > kṛṣṇa mānya-pūjā kari' tāṅre praśna kaila
 > 'ki lāgi' tomāra ihāṅ āgamana haila?'
 

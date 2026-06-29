@@ -1,5 +1,8 @@
 ### CC Adi 5.34
 
+> সূর্যমণ্ডল যেন বাহিরে নির্বিশেষ ।
+> ভিতরে সূর্যের রথ-আদি সবিশেষ ॥৩৪॥
+
 > sūrya-maṇḍala yena bāhire nirviśeṣa
 > bhitare sūryera ratha-ādi saviśeṣa
 

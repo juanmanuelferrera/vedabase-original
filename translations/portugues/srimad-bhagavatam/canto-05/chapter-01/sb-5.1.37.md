@@ -1,5 +1,7 @@
 ### SB 5.1.37
 
+> अहो असाध्वनुष्ठितं यदभिनिवेशितोऽहमिन्द्रियैरविद्यारचितविषमविषयान्धकूपेतदलमलममुष्या वनिताया विनोदमृगं मां धिग्धिगिति गर्हयां चकार ॥३६॥
+
 *aho asādhv anuṣṭhitaṁ yad abhiniveśito 'ham indriyair avidyā*-racita-viṣama-viṣayāndha-kūpe tad alam alam amuṣyā vanitāyā vinoda-mṛgaṁ māṁ dhig dhig iti garhayāṁ cakāra.
 
 *aho*—ai de mim; *asādhu*—não bom; *anuṣṭhitam*—executado; *yat*—porque; *abhiniveśitaḥ*—estando completamente absorto; *aham*—eu; *indriyaiḥ*—pela gratificação dos sentidos; *avidyā*—pela ignorância; *racita*—feito; *viṣama*—causando aflição; *viṣaya*—gratificação dos sentidos; *andha-kūpe*—no poço escuro; *tat*—isso; *alam*—insignificante; *alam*—sem importância; *amuṣyāḥ*—daquela; *vanitāyāḥ*—esposa; *vinoda-mṛgam*—como um macaco dançarino; *mām*—a mim; *dhik*—toda condenação; *dhik*—toda condenação; *iti*—assim; *garhayām*—crítica; *cakāra*—ele fez.

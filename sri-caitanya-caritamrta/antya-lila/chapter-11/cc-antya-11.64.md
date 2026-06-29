@@ -1,5 +1,8 @@
 ### CC Antya 11.64
 
+> হরিদাসে সমুদ্র-জলে স্নান করাইলা ।
+> প্রভু কহে, — “সমুদ্র এই ‘মহাতীর্থ’ হইলা” ॥৬৪॥
+
 > haridāse samudra-jale snāna karāilā
 > prabhu kahe,—"samudra ei 'mahā-tīrtha' ha-ilā"
 

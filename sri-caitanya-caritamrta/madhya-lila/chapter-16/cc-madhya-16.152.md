@@ -1,5 +1,8 @@
 ### CC Madhya 16.152
 
+> প্রতিগ্রামে রাজ-আজ্ঞায় রাজভৃত্যগণ ।
+> নব্য গৃহে নানা-দ্রব্যে করয়ে সেবন ॥১৫২॥
+
 > prati-grāme rāja-ājñāya rāja-bhṛtya-gaṇa
 > navya gṛhe nānā-dravye karaye sevana
 

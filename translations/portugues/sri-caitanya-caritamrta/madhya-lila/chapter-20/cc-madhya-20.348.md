@@ -1,5 +1,8 @@
 ### CC Madhya 20.348
 
+> পূর্ববৎ লিখি যবে গুণাবতারগণ ।
+> অসংখ্য সংখ্যা তাঁর, না হয় গণন ॥৩৪৮॥
+
 pūrvavat likhi yabe guṇāvatāra-gaṇa
 
 asaṅkhya saṅkhyā tāṅra, nā haya gaṇana

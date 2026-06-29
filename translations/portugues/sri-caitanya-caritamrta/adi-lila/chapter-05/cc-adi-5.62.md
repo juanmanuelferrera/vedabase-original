@@ -1,5 +1,8 @@
 ### CC Adi 5.62
 
+> মায়া-অংশে কহি তারে নিমিত্ত-কারণ ।
+> সেহ নহে, যাতে কর্তা-হেতু — নারায়ণ ॥৬২॥
+
 māyā-aṁśe kahi tāre nimitta-kāraṇa
 seha nahe, yāte kartā-hetu--nārāyaṇa
 

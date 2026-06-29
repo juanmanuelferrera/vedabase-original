@@ -1,5 +1,10 @@
 ### SB 9.10.16
 
+> बद्ध्वोदधौ रघुपतिर्विविधाद्रिकूटैः
+> सेतुं कपीन्द्रकरकम्पितभूरुहाङ्गैः
+> सुग्रीवनीलहनुमत्प्रमुखैरनीकैर
+> लङ्कां विभीषणदृशाविशदग्रदग्धाम ॥१६॥
+
 > baddhvodadhau raghu-patir vividhādri-kūṭaiḥ
 > setuṁ kapīndra-kara-kampita-bhūruhāṅgaiḥ
 > sugrīva-nīla-hanumat-pramukhair anīkair

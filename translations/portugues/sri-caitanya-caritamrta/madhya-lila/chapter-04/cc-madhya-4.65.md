@@ -1,5 +1,8 @@
 ### CC Madhya 4.65
 
+> সুবাসিত জল নবপাত্রে সমর্পিল ।
+> আচমন দিয়া সে তাম্বূল নিবেদিল ॥৬৫॥
+
 suvāsita jala nava-pātre samarpila
 
 ācamana diyā se tāmbūla nivedila

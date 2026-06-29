@@ -1,5 +1,8 @@
 ### CC Madhya 11.102
 
+> ভট্ট কহে, — তাঁর কৃপা-লেশ হয় যাঁরে ৷
+> সেই সে তাঁহারে ‘কৃষ্ণ’ করি’ লইতে পারে ৷৷ ১০২ ৷৷ ॥১০২॥
+
 bhaṭṭa kahe,-tāṅra kṛpā-leśa haya yāṅre
 sei se tāṅhāre 'kṛṣṇa' kari' la-ite pāre
 

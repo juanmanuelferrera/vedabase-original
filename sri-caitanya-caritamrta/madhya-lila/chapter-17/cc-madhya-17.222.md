@@ -1,5 +1,8 @@
 ### CC Madhya 17.222
 
+> কণ্টক-দুর্গম বনে অঙ্গ ক্ষত হৈল ।
+> ভট্টাচার্য কোলে করি’ প্রভুরে সুস্থ কৈল ॥২২২॥
+
 > kaṇṭaka-durgama vane aṅga kṣata haila
 > bhaṭṭācārya kole kari' prabhure sustha kaila
 

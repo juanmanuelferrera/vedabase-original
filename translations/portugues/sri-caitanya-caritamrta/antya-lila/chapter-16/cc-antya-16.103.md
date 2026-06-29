@@ -1,5 +1,8 @@
 ### CC Antya 16.103
 
+> বাহ্য-কৃত্য করেন, প্রেমে গরগর মন ।
+> কষ্টে সম্বরণ করেন, আবেশ সঘন ॥১০৩॥
+
 bāhya-kṛtya karena, preme garagara mana
 
 kaṣṭe samvaraṇa karena, āveśa saghana

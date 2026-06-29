@@ -1,5 +1,8 @@
 ### CC Antya 6.210
 
+> রঘুনাথে প্রভুর কৃপা দেখি, ভক্তগণ ।
+> বিস্মিত হঞা করে তাঁর ভাগ্য-প্রশংসন ॥২১০॥
+
 > raghunāthe prabhura kṛpā dekhi, bhakta-gaṇa
 > vismita hañā kare tāṅra bhāgya-praśaṁsana
 

@@ -1,5 +1,8 @@
 ### SB 4.6.35
 
+> विद्यातपोयोगपथमास्थितं तमधीश्वरम् ।
+> चरन्तं विश्वसुहृदं वात्सल्याल्लोकमङ्गलम् ॥३५॥
+
 > vidyā-tapo-yoga-patham
 > āsthitaṁ tam adhīśvaram
 > carantaṁ viśva-suhṛdaṁ

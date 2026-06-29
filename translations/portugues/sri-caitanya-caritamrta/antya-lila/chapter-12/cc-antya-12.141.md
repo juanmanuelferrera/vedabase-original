@@ -1,5 +1,8 @@
 ### CC Antya 12.141
 
+> চন্দনাদি লঞা প্রভু বসিলা সেই স্থানে ।
+> ‘আমার আগে আজি তুমি করহ ভোজনে’ ॥১৪১॥
+
 candanādi lañā prabhu vasilā sei sthāne
 
 'āmāra āge āji tumi karaha bhojane'

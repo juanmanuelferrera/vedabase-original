@@ -1,5 +1,8 @@
 ### CC Adi 13.91
 
+> অ-কলঙ্ক গৌরচন্দ্র দিলা দরশন ।
+> স-কলঙ্ক চন্দ্রে আর কোন্ প্রয়োজন ॥৯১॥
+
 a-kalaṅka gauracandra dilā daraśana
 
 sa-kalaṅka candre āra kon prayojana

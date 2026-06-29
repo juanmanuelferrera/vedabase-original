@@ -1,5 +1,8 @@
 ### SB 7.15.16
 
+> सन्तुष्टस्य निरीहस्य स्वात्मारामस्य यत्सुखम
+> कुतस्तत्कामलोभेन धावतोऽर्थेहया दिशः ॥१६॥
+
 > santuṣṭasya nirīhasya
 > svātmārāmasya yat sukham
 > kutas tat kāma-lobhena

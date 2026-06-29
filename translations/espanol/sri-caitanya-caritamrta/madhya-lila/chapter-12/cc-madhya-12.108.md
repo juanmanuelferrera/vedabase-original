@@ -1,5 +1,8 @@
 ### CC Madhya 12.108
 
+> পূর্ণ কুম্ভ লঞা আইসে শত ভক্তগণ ।
+> শূন্য ঘট লঞা যায় আর শত জন ॥১০৮॥
+
 > pūrṇa kumbha lañā āise śata bhakta-gaṇa
 > śūnya ghaṭa lañā yāya āra śata jana
 

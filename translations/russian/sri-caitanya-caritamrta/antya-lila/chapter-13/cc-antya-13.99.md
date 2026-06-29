@@ -1,5 +1,8 @@
 ### CC Antya 13.99
 
+> এত বলি’ ঝালি বহেন, করেন সেবনে ।
+> রঘুনাথের তারকমন্ত্র জপেন রাত্রি-দিনে ॥৯৯॥
+
 > eta bali' jhāli vahena, karena sevane
 > raghunāthera tāraka-mantra japena rātri-dine
 

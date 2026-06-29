@@ -1,5 +1,8 @@
 ### CC Antya 11.98
 
+> ‘জয় জয় হরিদাস’ বলি’ কর হরিধ্বনি” ।
+> এত বলি’ মহাপ্রভু নাচেন আপনি ॥৯৮॥
+
 > 'jaya jaya haridāsa' bali' kara hari-dhvani"
 > eta bali' mahāprabhu nācena āpani
 

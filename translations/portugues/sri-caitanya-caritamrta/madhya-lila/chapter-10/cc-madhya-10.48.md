@@ -1,5 +1,8 @@
 ### CC Madhya 10.48
 
+> তবে সবে ভূমে পড়ে দণ্ডবৎ হঞা ৷
+> সবা আলিঙ্গিলা প্রভু প্রসাদ করিয়া ৷৷ ৪৮ ৷৷ ॥৪৮॥
+
 tabe sabe bhūme paḍe daṇḍavat hañā
 sabā āliṅgilā prabhu prasāda kariyā
 

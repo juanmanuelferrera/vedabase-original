@@ -1,5 +1,8 @@
 ### CC Madhya 8.192
 
+> যেবা ‘প্রেমবিলাস-বিবর্ত’ এক হয় ৷
+> তাহা শুনি’ তোমার সুখ হয়, কি না হয় ৷৷ ১৯২ ৷৷ ॥১৯২॥
+
 > yebā 'prema-vilāsa-vivarta' eka haya
 > tāhā śuni' tomāra sukha haya, ki nā haya
 

@@ -1,5 +1,8 @@
 ### SB 3.16.3
 
+> यस्त्वेतयोर्धृतो दण्डो भवद्भिर्मामनुव्रतैः ।
+> स एवानुमतोऽस्माभिर्मुनयो देवहेलनात् ॥३॥
+
 yas tv etayor dhṛto daṇḍo
 bhavadbhir mām anuvrataiḥ
 sa evānumato 'smābhir

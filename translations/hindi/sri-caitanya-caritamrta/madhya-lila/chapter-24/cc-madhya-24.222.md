@@ -1,5 +1,8 @@
 ### CC Madhya 24.222
 
+> ‘নির্গ্রন্থাঃ’ হঞা ইহাঁ ‘অপি’ — নির্ধারণে ।
+> ‘রামশ্চ কৃষ্ণশ্চ’ যথা বিহরয়ে বনে ॥২২২॥
+
 > 'nirgranthāḥ' hañā ihāṅ 'api'--nirdhāraṇe
 > 'rāmaś ca kṛṣṇaś ca' yathā viharaye vane
 

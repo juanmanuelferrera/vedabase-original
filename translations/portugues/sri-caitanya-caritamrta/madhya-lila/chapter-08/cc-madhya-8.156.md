@@ -1,5 +1,8 @@
 ### CC Madhya 8.156
 
+> হ্লাদিনী সন্ধিনী সম্বিৎ ত্বয্যেকা সর্বসংশ্রয়ে ৷
+> হ্লাদতাপকরী মিশ্রা ত্বয়ি নো গুণবর্জিতে ৷৷ ১৫৬ ৷৷ ॥১৫৬॥
+
 hlādinī sandhinī samvit
 tvayy ekā sarva-saṁśraye
 hlāda-tāpa-karī miśrā

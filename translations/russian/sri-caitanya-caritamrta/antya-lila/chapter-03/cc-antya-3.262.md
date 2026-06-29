@@ -1,5 +1,8 @@
 ### CC Antya 3.262
 
+> চৈতন্যাবতারে কৃষ্ণপ্রেমে লুব্ধ হঞা  ।
+> ব্রহ্মা-শিব-সনকাদি পৃথিবীতে জন্মিয়া ॥২৬২॥
+
 > caitanyāvatāre kṛṣṇa-preme lubdha hañā
 > brahma-śiva-sanakādi pṛthivīte janmiyā
 

@@ -1,5 +1,8 @@
 ### CC Antya 10.7
 
+> রাসে যৈছে ঘর যাইতে গোপীরে আজ্ঞা দিলা ।
+> তাঁর আজ্ঞা ভাঙ্গি তাঁর সঙ্গে সে রহিলা ॥৭॥
+
 > rāse yaiche ghara yāite gopīre ājñā dilā
 > tāṅra ājñā bhāṅgi' tāṅra saṅge se rahilā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 9.312
 
+> ‘সপ্ততাল-বৃক্ষ’দেখে কানন-ভিতর ৷
+> অতি বৃদ্ধ, অতি স্থূল, অতি উচ্চতর ৷৷ ৩১২ ৷৷ ॥৩১২॥
+
 > 'saptatāla-vṛkṣa' dekhe kānana-bhitara
 > ati vṛddha, ati sthūla, ati uccatara
 

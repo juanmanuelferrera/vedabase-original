@@ -1,5 +1,8 @@
 ### CC Madhya 6.203
 
+> দেখাইল তাঁরে আগে চতুর্ভুজ-রূপ ।
+> পাছে শ্যাম-বংশীমুখ স্বকীয় স্বরূপ ॥২০৩॥
+
 dekhāila tāṅre āge catur-bhuja-rūpa
 pāche śyāma-vaṁśī-mukha svakīya svarūpa
 

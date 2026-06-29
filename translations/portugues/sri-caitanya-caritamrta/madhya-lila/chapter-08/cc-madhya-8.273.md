@@ -1,5 +1,8 @@
 ### CC Madhya 8.273
 
+> মহাভাগবত দেখে স্থাবর-জঙ্গম ৷
+> তাহাঁ তাহাঁ হয় তাঁর শ্রীকৃষ্ণ-স্ফুরণ ৷৷ ২৭৩ ৷৷ ॥২৭৩॥
+
 mahā-bhāgavata dekhe sthāvara-jaṅgama
 
 tāhāṅ tāhāṅ haya tāṅra śrī-kṛṣṇa-sphuraṇa

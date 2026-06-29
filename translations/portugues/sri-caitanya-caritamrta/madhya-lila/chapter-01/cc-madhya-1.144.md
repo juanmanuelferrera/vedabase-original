@@ -1,5 +1,8 @@
 ### CC Madhya 1.144
 
+> উপবনে কৈল প্রভু বিবিধ বিলাস ।
+> প্ৰভুর অভিষেক কৈল বিপ্র কৃষ্ণদাস ॥১৪৪॥
+
 upavane kaila prabhu vividha vilāsa
 
 prabhura abhiṣeka kaila vipra kṛṣṇadāsa

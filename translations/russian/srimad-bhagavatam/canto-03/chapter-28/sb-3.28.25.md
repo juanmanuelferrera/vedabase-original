@@ -1,5 +1,10 @@
 ### SB 3.28.25
 
+> नाभिह्रदं भुवनकोशगुहोदरस्थं
+> यत्रात्मयोनिधिषणाखिललोकपद्मम् ।
+> व्यूढं हरिन्मणिवृषस्तनयोरमुष्य
+> ध्यायेद्द्वयं विशदहारमयूखगौरम् ॥२५॥
+
 > nābhi-hradaṁ bhuvana-kośa-guhodara-sthaṁ
 > yatrātma-yoni-dhiṣaṇākhila-loka-padmam
 > vyūḍhaṁ harin-maṇi-vṛṣa-stanayor amuṣya

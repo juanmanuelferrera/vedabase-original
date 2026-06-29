@@ -1,5 +1,8 @@
 ### CC Madhya 11.186
 
+> প্রভু দেখি’ পড়ে আগে দণ্ডবৎ হঞা ৷
+> প্রভু আলিঙ্গন কৈল তাঁরে উঠাঞা ৷৷ ১৮৬ ৷৷ ॥১৮৬॥
+
 prabhu dekhi' paḍe āge daṇḍavat hañā
 prabhu āliṅgana kaila tāṅre uṭhāñā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 12.45
 
+> উত্কণ্ঠাতে প্ৰতাপরুদ্র নারে রহিবারে ।
+> রামানন্দ সাধিলেন প্ৰভুরে মিলিবারে ॥৪৫॥
+
 > utkaṇṭhāte pratāparudra nāre rahibāre
 > rāmānanda sādhilena prabhure milibāre
 

@@ -1,5 +1,8 @@
 ### CC Madhya 4.17
 
+> নানারূপে প্রীত্যে কৈল প্রভুর সেবন ।
+> সেই রাত্রি তাহাঁ প্রভু করিলা বঞ্চন ॥১৭॥
+
 > nānā-rūpe prītye kaila prabhura sevana
 > sei rātri tāhāṅ prabhu karilā vañcana
 

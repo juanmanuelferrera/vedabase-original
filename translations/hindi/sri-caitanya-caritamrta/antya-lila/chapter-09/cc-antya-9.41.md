@@ -1,5 +1,8 @@
 ### CC Antya 9.41
 
+> হেনকালে আর লোক আইল ধাঞা ।
+> খড়্গের উপরে গোপীনাথে দিতেছে ডারিয়া ॥৪১॥
+
 > hena-kāle āra loka āila dhāñā
 > khaḍegara upare gopīnāthe diteche ḍāriyā
 

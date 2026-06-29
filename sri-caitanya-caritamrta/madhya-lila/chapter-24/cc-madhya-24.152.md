@@ -1,5 +1,8 @@
 ### CC Madhya 24.152
 
+> তবে যে চ-কার, সেই ‘সমুচ্চয়’ কয় ।
+> “আত্মারামাশ্চ মুনয়শ্চ” কৃষ্ণেরে ভজয় ॥১৫২॥
+
 > tabe ye ca-kāra, sei 'samuccaya' kaya
 > "ātmārāmāś ca munayaś ca" kṛṣṇere bhajaya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 5.124
 
+> জগন্নাথে আনি’ দিল মাণিক্য-সিংহাসন ।
+> কটকে গোপাল-সেবা করিল স্থাপন ॥১২৪॥
+
 jagannāthe āni' dila māṇikya-siṁhāsana
 kaṭake gopāla-sevā karila sthāpana
 

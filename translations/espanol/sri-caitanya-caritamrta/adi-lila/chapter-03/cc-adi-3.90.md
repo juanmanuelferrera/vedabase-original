@@ -1,5 +1,8 @@
 ### CC Adi 3.90
 
+> অসুরস্বভাবে কৃষ্ণে কভু নাহি জানে ।
+> লুকাইতে নারে কৃষ্ণ ভক্তজন-স্থানে ॥৯০॥
+
 > asura-svabhāve kṛṣṇe kabhu nāhi jāne
 > lukāite nāre kṛṣṇa bhakta-jana-sthāne
 

@@ -1,5 +1,8 @@
 ### CC Madhya 8.272
 
+> প্রভু কহে, — কৃষ্ণে তোমার গাঢ়প্রেম হয় ৷
+> প্রেমার স্বভাব এই জানিহ নিশ্চয় ৷৷ ২৭২ ৷৷ ॥২৭২॥
+
 prabhu kahe,--kṛṣṇe tomāra gāḍha-prema haya
 
 premāra svabhāva ei jāniha niścaya

@@ -1,5 +1,8 @@
 ### CC Madhya 9.316
 
+> প্রভু আসি’ কৈল পম্পা-সরোবরে স্নান ৷
+> পঞ্চবটী আসি, তাহাঁ করিল বিশ্রাম ৷৷ ৩১৬ ৷৷ ॥৩১৬॥
+
 prabhu āsi' kaila pampā-sarovare snāna
 pañcavaṭī āsi, tāhāṅ karila viśrāma
 

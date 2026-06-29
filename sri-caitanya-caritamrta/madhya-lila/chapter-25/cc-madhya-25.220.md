@@ -1,5 +1,8 @@
 ### CC Madhya 25.220
 
+> মহাপ্রভুর উপর লোকের প্রণতি দেখিয়া ।
+> সুখী হৈলা লোকমুখে কীর্তন শুনিয়া ॥২২০॥
+
 > mahāprabhura upara lokera praṇati dekhiyā
 > sukhī hailā loka-mukhe kīrtana śuniyā
 

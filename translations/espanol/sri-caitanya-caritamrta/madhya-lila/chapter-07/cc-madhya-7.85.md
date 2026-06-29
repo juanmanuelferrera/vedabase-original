@@ -1,5 +1,8 @@
 ### CC Madhya 7.85
 
+> মধ্যাহ্ন করিয়া আইলা দেবতা-মন্দিরে ৷
+> নিজগণ প্ৰবেশি’ কপাট দিল বহির্দ্বারে ৷৷ ৮৫ ৷৷ ॥৮৫॥
+
 > madhyāhna kariyā āilā devatā-mandire
 > nija-gaṇa praveśi' kapāṭa dila bahir-dvāre
 

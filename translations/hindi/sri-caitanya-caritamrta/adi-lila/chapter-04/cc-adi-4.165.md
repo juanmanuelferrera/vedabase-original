@@ -1,5 +1,8 @@
 ### CC Adi 4.165
 
+> আত্মেন্দ্রিয়প্রীতি-বাঞ্ছা — তারে বলি, ‘কাম’ ।
+> কৃষ্ণেন্দ্রিয়প্রীতি-ইচ্ছা ধরে ‘প্রেম’ নাম ॥১৬৫॥
+
 > ātmendriya-prīti-vāñchā—tāre bali 'kāma'
 > kṛṣṇendriya-prīti-icchā dhare 'prema' nāma
 

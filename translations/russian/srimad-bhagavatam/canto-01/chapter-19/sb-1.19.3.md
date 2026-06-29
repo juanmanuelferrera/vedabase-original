@@ -1,5 +1,8 @@
 ### SB 1.19.3
 
+> अद्यैव राज्यं बलमृद्धकोशं प्रकोपितब्रह्मकुलानलो मे ।
+> दहत्वभद्रस्य पुनर्न मेऽभूत्पापीयसी धीर्द्विजदेवगोभ्यः ॥३॥
+
 > adyaiva rājyaṁ balam ṛddha-kośaṁ
 > prakopita-brahma-kulānalo me
 > dahatv abhadrasya punar na me 'bhūt

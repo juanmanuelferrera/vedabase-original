@@ -1,5 +1,8 @@
 ### CC Madhya 7.118
 
+> এইমত পরম্পরায় দেশ ‘বৈষ্ণব’ হৈল ৷
+> কৃষ্ণনামামৃত-বন্যায় দেশ ভাসাইল ৷৷ ১১৮ ৷৷ ॥১১৮॥
+
 ei-mata paramparāya deśa 'vaiṣṇava' haila
 kṛṣṇa-nāmāmṛta-vanyāya deśa bhāsāila
 

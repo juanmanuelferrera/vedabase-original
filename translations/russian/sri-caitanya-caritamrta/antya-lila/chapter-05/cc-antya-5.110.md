@@ -1,5 +1,8 @@
 ### CC Antya 5.110
 
+> দুই তিন দিন আচার্য আগ্রহ করিল ।
+> তাঁর আগ্রহে স্বরূপের শুনিতে ইচ্ছা হইল ॥১১০॥
+
 > dui tina dina ācārya āgraha karila
 > tāṅra āgrahe svarūpera śunite icchā ha-ila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.119
 
+> ভক্তগণে কহে, — শুন মুকুন্দের প্রেম ।
+> নিগূঢ় নির্মল প্রেম, যেন দগ্ধ হেম ॥১১৯॥
+
 > bhakta-gaṇe kahe,—śuna mukundera prema
 > nigūḍha nirmala prema, yena dagdha hema
 

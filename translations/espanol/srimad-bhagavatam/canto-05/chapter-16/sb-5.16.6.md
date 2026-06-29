@@ -1,5 +1,7 @@
 ### SB 5.16.6
 
+> यस्मिन्नव वर्षाणि नवयोजनसहस्रायामान्यष्टभिर्मर्यादागिरिभिः सुविभक्तानि भवन्ति ॥६॥
+
 > yasmin nava varṣāṇi nava-yojana-sahasrāyāmāny aṣṭabhir maryādā-giribhiḥ suvibhaktāni bhavanti.
 
 *yasmin*—en Jambūdvīpa; *nava*—nueve; *varṣāṇi*—divisiones de tierra; *nava-yojana-sahasra*—116 000 kilómetros de longitud; *āyāmāni*—midiendo; *aṣṭabhiḥ*—por ocho; *maryādā*—que indican los límites; *giribhiḥ*—por montañas; *suvibhaktāni*—claramente separadas unas de otras; *bhavanti*—están.

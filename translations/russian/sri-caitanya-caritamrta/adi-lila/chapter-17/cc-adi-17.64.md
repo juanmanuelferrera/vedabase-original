@@ -1,5 +1,8 @@
 ### CC Adi 17.64
 
+> প্রভুর শাপ-বার্তা যেই শুনে শ্রদ্ধাবান্ ।
+> ব্রহ্মশাপ হৈতে তার হয় পরিত্রাণ ॥৬৪॥
+
 > prabhura śāpa-vārtā yei śune śraddhāvān
 > brahma-śāpa haite tāra haya paritrāṇa
 

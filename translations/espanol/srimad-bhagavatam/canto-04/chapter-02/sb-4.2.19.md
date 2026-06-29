@@ -1,5 +1,8 @@
 ### SB 4.2.19
 
+> निषिध्यमानः स सदस्यमुख्यैर्दक्षो गिरित्राय विसृज्य शापम् ।
+> तस्माद्विनिष्क्रम्य विवृद्धमन्युर्जगाम कौरव्य निजं निकेतनम् ॥१९॥
+
 > niṣidhyamānaḥ sa sadasya-mukhyair
 > dakṣo giritrāya visṛjya śāpam
 > tasmād viniṣkramya vivṛddha-manyur

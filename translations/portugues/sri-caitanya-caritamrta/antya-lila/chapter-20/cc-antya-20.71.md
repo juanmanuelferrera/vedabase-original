@@ -1,5 +1,7 @@
 ### CC Antya 20.71
 
+> জীব ক্ষুদ্রবুদ্ধি কোন্ তাহা পারে বর্ণিতে ? তার এক কণা স্পর্শি আপনা শোধিতে ॥৭১॥
+
 jīva kṣudra-buddhi kon tāhā pāre varṇite?
 
 tāra eka kaṇā sparśi āpanā śodhite

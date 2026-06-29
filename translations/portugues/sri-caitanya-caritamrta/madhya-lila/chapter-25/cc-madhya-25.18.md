@@ -1,5 +1,8 @@
 ### CC Madhya 25.18
 
+> যে দিবস প্রভু সন্ন্যাসীরে কৃপা কৈল ।
+> সে দিবস হৈতে গ্রামে কোলাহল হৈল ॥১৮॥
+
 ye divasa prabhu sannyāsīre kṛpā kaila
 
 se divasa haite grāme kolāhala haila

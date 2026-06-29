@@ -1,5 +1,8 @@
 ### SB 3.26.60
 
+> क्षुत्पिपासे ततः स्यातां समुद्रस्त्वेतयोरभूत् ।
+> अथास्य हृदयं भिन्नं हृदयान्मन उत्थितम् ॥६०॥
+
 > kṣut-pipāse tataḥ syātāṁ
 > samudras tv etayor abhūt
 > athāsya hṛdayaṁ bhinnaṁ

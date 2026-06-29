@@ -1,5 +1,8 @@
 ### CC Madhya 17.60
 
+> যাহাঁ বিপ্র নাহি তাহাঁ ‘শূদ্রমহাজন’ ।
+> আসি’ সবে ভট্টাচার্যে করে নিমন্ত্রণ ॥৬০॥
+
 yāhāṅ vipra nāhi tāhāṅ 'śūdra-mahājana'
 
 āsi' sabe bhaṭṭācārye kare nimantraṇa

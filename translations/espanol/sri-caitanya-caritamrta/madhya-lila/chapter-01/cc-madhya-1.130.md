@@ -1,5 +1,8 @@
 ### CC Madhya 1.130
 
+> দামোদরস্বরূপ-মিলনে পরম আনন্দ ।
+> শিখিমাহিতি-মিলন, রায় ভবানন্দ ॥১৩০॥
+
 > dāmodara-svarūpa-milane parama ānanda
 > śikhi-māhiti-milana, rāya bhavānanda
 

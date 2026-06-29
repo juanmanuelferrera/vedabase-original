@@ -1,5 +1,8 @@
 ### CC Antya 16.136
 
+> যোগ্য হঞা কেহ করিতে না পায় পান ।
+> তথাপি সে নির্লজ্জ, বৃথা ধরে প্রাণ ॥১৩৬॥
+
 yogya hañā keha karite nā pāya pāna
 
 tathāpi se nirlajja, vṛthā dhare prāṇa

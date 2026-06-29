@@ -1,5 +1,8 @@
 ### CC Madhya 16.54
 
+> পূর্ববত্ রথযাত্রা কৈল দরশন ।
+> হেরাপঞ্চমী-যাত্রা দেখে লঞা ভক্তগণ ॥৫৪॥
+
 > pūrvavat ratha-yātrā kaila daraśana
 > herā-pañcamī-yātrā dekhe lañā bhakta-gaṇa
 

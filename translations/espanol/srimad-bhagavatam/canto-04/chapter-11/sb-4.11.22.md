@@ -1,5 +1,8 @@
 ### SB 4.11.22
 
+> केचित्कर्म वदन्त्येनं स्वभावमपरे नृप ।
+> एके कालं परे दैवं पुंसः काममुतापरे ॥२२॥
+
 > kecit karma vadanty enaṁ
 > svabhāvam apare nṛpa
 > eke kālaṁ pare daivaṁ

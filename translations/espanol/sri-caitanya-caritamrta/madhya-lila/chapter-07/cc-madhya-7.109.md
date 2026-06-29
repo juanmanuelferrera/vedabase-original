@@ -1,5 +1,8 @@
 ### CC Madhya 7.109
 
+> নবদ্বীপে যেই শক্তি না কৈলা প্রকাশে ৷
+> সে শক্তি প্ৰকাশি’ নিস্তারিল দক্ষিণদেশে ৷৷ ১০৯ ৷৷ ॥১০৯॥
+
 > navadvīpe yei śakti nā kailā prakāśe
 > se śakti prakāśi' nistārila dakṣiṇa-deśe
 

@@ -1,5 +1,8 @@
 ### CC Madhya 12.160
 
+> ‘হরিদাস’ বলি’ প্রভু ডাকে ঘনে ঘন  ।
+> দূরে রহি’ হরিদাস করে নিবেদন ॥১৬০॥
+
 > 'haridāsa' bali' prabhu ḍāke ghane ghana
 > dūre rahi' haridāsa kare nivedana
 

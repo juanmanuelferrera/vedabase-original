@@ -1,5 +1,8 @@
 ### CC Antya 13.84
 
+> স্ত্রী-নাম শুনি’ প্রভুর বাহ্য হইলা ।
+> পুনরপি সেই পথে বাহুড়ি’ চলিলা ॥৮৪॥
+
 strī-nāma śuni' prabhura bāhya ha-ilā
 
 punarapi sei pathe bāhuḍi' calilā

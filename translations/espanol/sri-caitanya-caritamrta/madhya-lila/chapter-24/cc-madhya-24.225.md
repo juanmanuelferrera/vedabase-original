@@ -1,5 +1,8 @@
 ### CC Madhya 24.225
 
+> ‘চ’ এবার্থে — ‘মুনয়ঃ এব’ কৃষ্ণেরে ভজয় ।
+> “আত্মারামা অপি” — ‘অপি’ ‘গর্হা’-অর্থ কয় ॥২২৫॥
+
 > 'ca' evārthe--'munayaḥ eva' kṛṣṇere bhajaya
 > "ātmārāmā api"--'api' 'garhā'-artha kaya
 

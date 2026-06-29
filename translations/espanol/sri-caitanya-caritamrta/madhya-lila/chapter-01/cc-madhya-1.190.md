@@ -1,5 +1,8 @@
 ### CC Madhya 1.190
 
+> মত্তুল্যো নাস্তি পাপাত্মা নাপরাধী চ কশ্চন ।
+> পরিহারেঽপি লজ্জা মে কিং ব্রুবে পুরুষোত্তম ॥১৯০॥
+
 > mat-tulyo nāsti pāpātmā
 > nāparādhī ca kaścana
 > parihāre 'pi lajjā me

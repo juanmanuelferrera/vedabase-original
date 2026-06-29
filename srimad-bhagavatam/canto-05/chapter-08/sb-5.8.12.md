@@ -1,5 +1,7 @@
 ### SB 5.8.12
 
+> कुशकुसुमसमित्पलाशफलमूलोदकान्याहरिष्यमाणो वृकसालावृकादिभ्योभयमाशंसमानो यदा सह हरिणकुणकेन वनं समाविशति ॥१२॥
+
 > kuśa-kusuma-samit-palāśa-phala-mūlodakāny āhariṣyamāṇo vṛkasālā-vṛkādibhyo bhayam āśaṁsamāno yadā saha hariṇa-kuṇakena vanaṁ samāviśati.
 
 *kuśa*—a kind of grass required for ritualistic ceremonies; *kusuma*—flowers; *samit*—firewood; *palāśa*—leaves; *phala-mūla*—fruits and roots; *udakāni*—and water; *āhariṣyamāṇaḥ*—desiring to collect; *vṛkasālā-vṛka*—from wolves and dogs; *ādibhyaḥ*—and other animals, such as tigers; *bhayam*—fear; *āśaṁsamānaḥ*—doubting; *yadā*—when; *saha*—with; *hariṇa-kuṇakena*—the deer calf; *vanam*—the forest; *samāviśati*—enters.

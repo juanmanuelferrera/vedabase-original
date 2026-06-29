@@ -1,5 +1,8 @@
 ### SB 9.18.24
 
+> गते राजनि सा धीरे तत्र स्म रुदती पितुः
+> न्यवेदयत्ततः सर्वमुक्तं शर्मिष्ठया कृतम ॥२४॥
+
 > gate rājani sā dhīre
 > tatra sma rudatī pituḥ
 > nyavedayat tataḥ sarvam

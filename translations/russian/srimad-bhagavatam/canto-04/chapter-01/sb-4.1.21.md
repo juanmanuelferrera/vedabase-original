@@ -1,5 +1,8 @@
 ### SB 4.1.21
 
+> तप्यमानं त्रिभुवनं प्राणायामैधसाग्निना ।
+> निर्गतेन मुनेर्मूर्ध्नः समीक्ष्य प्रभवस्त्रयः ॥२१॥
+
 > tapyamānaṁ tri-bhuvanaṁ
 > prāṇāyāmaidhasāgninā
 > nirgatena muner mūrdhnaḥ

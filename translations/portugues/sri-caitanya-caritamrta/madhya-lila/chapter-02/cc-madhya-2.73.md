@@ -1,5 +1,10 @@
 ### CC Madhya 2.73
 
+> মূর্চ্ছায় হৈল সাক্ষাৎকার, উঠি’ করে হুহুঙ্কার,
+> কহে — এই আইলা মহাশয় ।
+> কৃষ্ণের মাধুরী-গুণে, নানা ভ্রম হয় মনে,
+> শ্লোক পড়ি’ করয়ে নিশ্চয় ॥৭৩॥
+
 mūrcchāya haila sākṣātkāra, uṭhi' kare huhuṅkāra,
 kahe--ei āilā mahāśaya
 kṛṣṇera mādhurī-guṇe, nānā bhrama haya mane,

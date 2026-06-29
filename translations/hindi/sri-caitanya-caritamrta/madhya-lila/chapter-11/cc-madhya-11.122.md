@@ -1,5 +1,8 @@
 ### CC Madhya 11.122
 
+> প্রভুর আজ্ঞা পালিহ দুঁহে সাবধান হঞা ।
+> আজ্ঞা নহে, তবু করিহ, ইঙ্গিত বুঝিয়া ॥১২২॥
+
 > prabhura ājñā pāliha duṅhe sāvadhāna hañā
 > ājñā nahe, tabu kariha, iṅgita bujhiyā
 

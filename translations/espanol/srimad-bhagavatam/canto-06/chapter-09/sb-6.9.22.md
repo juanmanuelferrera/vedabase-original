@@ -1,5 +1,8 @@
 ### SB 6.9.22
 
+> अविस्मितं तं परिपूर्णकामं स्वेनैव लाभेन समं प्रशान्तम
+> विनोपसर्पत्यपरं हि बालिशः श्वलाङ्गुलेनातितितर्ति सिन्धुम ॥२२॥
+
 > avismitaṁ taṁ paripūrṇa-kāmaṁ
 > svenaiva lābhena samaṁ praśāntam
 > vinopasarpaty aparaṁ hi bāliśaḥ

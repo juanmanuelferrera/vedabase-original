@@ -1,5 +1,8 @@
 ### SB 1.11.34
 
+> एवं नृपाणां क्षितिभारजन्मनामक्षौहिणीभिः परिवृत्ततेजसाम् ।
+> विधाय वैरं श्वसनो यथानलं मिथो वधेनोपरतो निरायुधः ॥३४॥
+
 > evaṁ nṛpāṇāṁ kṣiti-bhāra-janmanām
 > akṣauhiṇībhiḥ parivṛtta-tejasām
 > vidhāya vairaṁ śvasano yathānalaṁ

@@ -1,5 +1,8 @@
 ### CC Antya 1.205
 
+> ভক্তে কৃপা-হেতু প্রকাশিতে চাহ ব্রজ-রস ।
+> যারে করাও, সেই করিবে জগৎ তোমার বশ ॥২০৫॥
+
 > bhakte kṛpā-hetu prakāśite cāha vraja-rasa
 > yāre karāo, sei karibe jagat tomāra vaśa
 

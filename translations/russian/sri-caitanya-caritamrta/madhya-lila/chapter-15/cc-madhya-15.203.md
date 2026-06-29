@@ -1,5 +1,8 @@
 ### CC Madhya 15.203
 
+> আপনি ভট্টাচার্য করে পাকের সব কর্ম ।
+> ষাঠীর মাতা — বিচক্ষণা, জানে পাক-মর্ম ॥২০৩॥
+
 > āpani bhaṭṭācārya kare pākera saba karma
 > ṣāṭhīra mātā—vicakṣaṇā, jāne pāka-marma
 

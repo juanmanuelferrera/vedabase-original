@@ -1,5 +1,8 @@
 ### CC Madhya 21.88
 
+> তস্যাঃ পারে পরব্যোম ত্রিপাদ্ভূতং সনাতনম্ ।
+> অমৃতং শাশ্বতং নিত্যমনন্তং পরমং পদম্ ॥৮৮॥
+
 > tasyāḥ pāre paravyoma
 > tripād-bhūtaṁ sanātanam
 > amṛtaṁ śāśvataṁ nityam

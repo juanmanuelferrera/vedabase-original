@@ -1,5 +1,8 @@
 ### CC Madhya 19.73
 
+> শুনি’ মহাপ্রভু তাঁরে বহু প্রশংসিলা ।
+> প্রেমাবিষ্ট হঞা শ্লোক পড়িতে লাগিলা ॥৭৩॥
+
 śuni' mahāprabhu tāṅre bahu praśaṁśilā
 
 premāviṣṭa hañā śloka paḍite lāgilā

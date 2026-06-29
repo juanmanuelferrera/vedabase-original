@@ -1,5 +1,8 @@
 ### SB 3.16.19
 
+> तरन्ति ह्यञ्जसा मृत्युं निवृत्ता यदनुग्रहात् ।
+> योगिनः स भवान्किं स्विदनुगृह्येत यत्परैः ॥१९॥
+
 > taranti hy añjasā mṛtyuṁ
 > nivṛttā yad-anugrahāt
 > yoginaḥ sa bhavān kiṁ svid

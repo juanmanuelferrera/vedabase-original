@@ -1,5 +1,8 @@
 ### CC Madhya 11.109
 
+> মহাপ্রভুর আলয়ে করিল গমন ।
+> এত মহাপ্রসাদ চাহি’ — কহ কি কারণ ॥১০৯॥
+
 > mahāprabhura ālaye karila gamana
 > eta mahā-prasāda cāhi'-kaha ki kāraṇa
 

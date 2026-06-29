@@ -1,5 +1,9 @@
 ### CC Madhya 21.126
 
+> সখি হে, কৃষ্ণমুখ — দ্বিজরাজ-রাজ ।
+> কৃষ্ণবপু-সিংহাসনে, বসি’ রাজ্য-শাসনে,
+> করে সঙ্গে চন্দ্রের সমাজ ।। ১২৬ ।। ধ্রু ।। ॥১২৬॥
+
 > sakhī he, kṛṣṇa-mukha--dvija-rāja-rāja
 > kṛṣṇa-vapu-siṁhāsane, vasi' rājya-śāsane,
 > kare saṅge candrera samāja

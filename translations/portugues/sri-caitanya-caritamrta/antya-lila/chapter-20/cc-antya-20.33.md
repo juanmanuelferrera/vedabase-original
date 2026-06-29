@@ -1,5 +1,8 @@
 ### CC Antya 20.33
 
+> “তোমার নিত্যদাস মুই, তোমা পাসরিয়া ।
+> পড়িয়াছোঁ ভবার্ণবে মায়াবদ্ধ হঞা ॥৩৩॥
+
 "tomāra nitya-dāsa mui, tomā pāsariyā
 
 paḍiyāchoṅ bhavārṇave māyā-baddha hañā

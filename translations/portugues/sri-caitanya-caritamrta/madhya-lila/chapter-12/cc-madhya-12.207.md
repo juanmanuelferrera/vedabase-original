@@ -1,5 +1,8 @@
 ### CC Madhya 12.207
 
+> আগে কাশীশ্বর যায় লোক নিবারিয়া ।
+> পাছে গোবিন্দ যায় জল-করঙ্গ লঞা ॥২০৭॥
+
 āge kāśīśvara yāya loka nivāriyā
 
 pāche govinda yāya jala-karaṅga lañā

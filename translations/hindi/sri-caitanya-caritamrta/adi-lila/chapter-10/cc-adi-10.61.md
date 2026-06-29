@@ -1,5 +1,8 @@
 ### CC Adi 10.61
 
+> শিবানন্দের উপশাখা, তাঁর পরিকর ।
+> পুত্র-ভৃত্য-আদি করি’ চৈতন্য-কিঙ্কর ॥৬১॥
+
 > śivānandera upaśākhā, tāṅra parikara
 > putra-bhṛty-ādi kari' caitanya-kiṅkara
 

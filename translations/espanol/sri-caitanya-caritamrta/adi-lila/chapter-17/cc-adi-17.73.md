@@ -1,5 +1,8 @@
 ### CC Adi 17.73
 
+> নামে স্তুতিবাদ শুনি’ প্রভুর হৈল দুঃখ ।
+> সবারে নিষেধিল, — ইহার না দেখিহ মুখ ॥৭৩॥
+
 > nāme stuti-vāda śuni' prabhura haila duḥkha
 > sabāre niṣedhila,--ihāra nā dekhiha mukha
 

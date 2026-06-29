@@ -1,5 +1,8 @@
 ### SB 6.3.17
 
+> तस्यात्मतन्त्रस्य हरेरधीशितुः परस्य मायाधिपतेर्महात्मनः
+> प्रायेण दूता इह वै मनोहराश्चरन्ति तद्रूपगुणस्वभावाः ॥१७॥
+
 > tasyātma-tantrasya harer adhīśituḥ
 > parasya māyādhipater mahātmanaḥ
 > prāyeṇa dūtā iha vai manoharāś

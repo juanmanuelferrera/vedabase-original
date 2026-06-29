@@ -1,5 +1,8 @@
 ### CC Madhya 6.45
 
+> জগন্নাথ কৈছে করিয়াছেন ভোজন ।
+> আজি সব মহাপ্রসাদ কর আস্বাদন ॥৪৫॥
+
 jagannātha kaiche kariyāchena bhojana
 
 āji saba mahāprasāda kara āsvādana

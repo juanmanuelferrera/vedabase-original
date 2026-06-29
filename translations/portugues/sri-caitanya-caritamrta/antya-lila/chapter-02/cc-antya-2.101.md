@@ -1,5 +1,8 @@
 ### CC Antya 2.101
 
+> একদিন আচার্য প্রভুরে কৈলা নিমন্ত্রণ ।
+> ঘরে ভাত করি’ করে বিবিধ ব্যঞ্জন ॥১০১॥
+
 eka-dina ācārya prabhure kailā nimantraṇa
 
 ghare bhāta kari' kare vividha vyañjana

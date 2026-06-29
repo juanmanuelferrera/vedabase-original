@@ -1,5 +1,8 @@
 ### CC Madhya 6.81
 
+> শিষ্য কহে, — ‘ঈশ্বর-তত্ত্ব সাধি অনুমানে ।’
+> আচার্য কহে, — ‘অনুমানে নহে ঈশ্বরজ্ঞানে ॥৮১॥
+
 > śiṣya kahe,--'īśvara-tattva sādhi anumāne'
 > ācārya kahe,--'anumāne nahe īśvara-jñāne
 

@@ -1,5 +1,8 @@
 ### CC Antya 1.176
 
+> ‘দ্বিতীয় নান্দী কহ দেখি?’ — রায় পুছিলা ।
+> সঙ্কোচ পাঞা রূপ পড়িতে লাগিলা ॥১৭৬॥
+
 > 'dvitīya nāndī kaha dekhi?'—rāya puchilā
 > saṅkoca pāñā rūpa paḍite lāgilā
 

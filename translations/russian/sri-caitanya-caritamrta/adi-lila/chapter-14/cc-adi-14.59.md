@@ -1,5 +1,8 @@
 ### CC Adi 14.59
 
+> ইহা শুনি’ তা-সবার মনে হইল ভয় ।
+> কোন কিছু জানে, কিবা দেবাবিষ্ট হয় ॥৫৯॥
+
 > ihā śuni' tā-sabāra mane ha-ila bhaya
 > kona kichu jāne, kibā devāviṣṭa haya
 

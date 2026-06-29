@@ -1,5 +1,8 @@
 ### CC Antya 3.143
 
+> বেশ্যার চরিত্র দেখি’ লোকে চমৎকার ।
+> হরিদাসের মহিমা কহে করি’ নমস্কার ॥১৪৩॥
+
 > veśyāra caritra dekhi' loke camatkāra
 > haridāsera mahimā kahe kari' namaskāra
 

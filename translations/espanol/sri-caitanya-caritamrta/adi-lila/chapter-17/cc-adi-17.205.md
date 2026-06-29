@@ -1,5 +1,8 @@
 ### CC Adi 17.205
 
+> মঙ্গলচণ্ডী, বিষহরি করি’ জাগরণ ।
+> তা’তে বাদ্য, নৃত্য, গীত, — যোগ্য আচরণ ॥২০৫॥
+
 > maṅgalacaṇḍī viṣahari kari' jāgaraṇa
 > tā'te vādya, nṛtya, gīta,--yogya ācaraṇa
 

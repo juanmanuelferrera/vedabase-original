@@ -1,5 +1,10 @@
 ### CC Madhya 13.154
 
+> রাখিতে তোমার জীবন, সেবি আমি নারায়ণ,
+> তাঁর শক্ত্যে আসি নিতি-নিতি ।
+> তোমা-সনে ক্রীড়া করি’, নিতি যাই যদুপুরী,
+> তাহা তুমি মানহ মোর স্ফূর্তি ॥১৫৪॥
+
 > rākhite tomāra jīvana, sevi āmi nārāyaṇa,
 > tāṅra śaktye āsi niti-niti
 > tomā-sane krīḍā kari', niti yāi yadu-purī,

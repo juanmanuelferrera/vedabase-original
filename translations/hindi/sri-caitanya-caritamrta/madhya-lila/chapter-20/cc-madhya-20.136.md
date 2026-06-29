@@ -1,5 +1,7 @@
 ### CC Madhya 20.136
 
+> ঐছে শাস্ত্র কহে, — কর্ম, জ্ঞান, যোগ ত্যজি’ । ‘ভক্ত্যে’ কৃষ্ণ বশ হয়, ভক্ত্যে তাঁরে ভজি ॥১৩৬॥
+
 > aiche śāstra kahe,--karma, jñāna, yoga tyaji'
 > 'bhaktye' kṛṣṇa vaśa haya, bhaktye tāṅre bhaji
 

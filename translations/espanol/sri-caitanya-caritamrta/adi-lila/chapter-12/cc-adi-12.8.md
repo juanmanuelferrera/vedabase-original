@@ -1,5 +1,8 @@
 ### CC Adi 12.8
 
+> প্রথমে ত’ একমত আচার্যের গণ ।
+> পাছে দুইমত হৈল দৈবের কারণ ॥৮॥
+
 > prathame ta' eka-mata ācāryera gaṇa
 > pāche dui-mata haila daivera kāraṇa
 

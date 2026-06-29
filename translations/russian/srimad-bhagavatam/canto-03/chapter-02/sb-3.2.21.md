@@ -1,5 +1,8 @@
 ### SB 3.2.21
 
+> स्वयं त्वसाम्यातिशयस्त्र्यधीशः स्वाराज्यलक्ष्म्याप्तसमस्तकामः ।
+> बलिं हरद्भिश्चिरलोकपालैः किरीटकोट्येडितपादपीठः ॥२१॥
+
 > svayaṁ tv asāmyātiśayas tryadhīśaḥ
 > svārājya-lakṣmy-āpta-samasta-kāmaḥ
 > baliṁ haradbhiś cira-loka-pālaiḥ

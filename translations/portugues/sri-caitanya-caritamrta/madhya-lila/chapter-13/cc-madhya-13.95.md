@@ -1,5 +1,8 @@
 ### CC Madhya 13.95
 
+> চাপড় মারিয়া তারে কৈল নিবারণ  ।
+> চাপড় খাঞা ক্রুদ্ধ হৈলা হরিচন্দন ॥৯৫॥
+
 cāpaḍa māriyā tāre kaila nivāraṇa
 
 cāpaḍa khāñā kruddha hailā haricandana

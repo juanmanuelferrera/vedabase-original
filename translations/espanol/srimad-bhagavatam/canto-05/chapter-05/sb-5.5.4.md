@@ -1,5 +1,8 @@
 ### SB 5.5.4
 
+> नूनं प्रमत्तः कुरुते विकर्म यदिन्द्रियप्रीतय आपृणोति
+> न साधु मन्ये यत आत्मनोऽयमसन्नपि क्लेशद आस देहः ॥४॥
+
 > nūnaṁ pramattaḥ kurute vikarma
 > yad indriya-prītaya āpṛṇoti
 > na sādhu manye yata ātmano 'yam

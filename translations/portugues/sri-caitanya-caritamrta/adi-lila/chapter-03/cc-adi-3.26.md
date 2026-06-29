@@ -1,5 +1,8 @@
 ### CC Adi 3.26
 
+> যুগধর্ম-প্রবর্তন হয় অংশ হৈতে ।
+> আমা বিনা অন্যে নারে ব্রজপ্রেম দিতে ॥২৬॥
+
 yuga-dharma-pravartana haya aṁśa haite
 āmā vinā anye nāre vraja-prema dite
 

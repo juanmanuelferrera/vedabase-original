@@ -1,5 +1,8 @@
 ### CC Adi 13.45
 
+> সূত্র করি’ গণে যদি আপনে অনন্ত ।
+> সহস্র-বদনে তেঁহো নাহি পায় অন্ত ॥৪৫॥
+
 > sūtra kari' gaṇe yadi āpane ananta
 > sahasra-vadane teṅho nāhi pāya anta
 

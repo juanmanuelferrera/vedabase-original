@@ -1,5 +1,8 @@
 ### SB 4.28.39
 
+> आस्ते स्थाणुरिवैकत्र दिव्यं वर्षशतं स्थिरः ।
+> वासुदेवे भगवति नान्यद्वेदोद्वहन्रतिम् ॥३९॥
+
 > āste sthāṇur ivaikatra
 > divyaṁ varṣa-śataṁ sthiraḥ
 > vāsudeve bhagavati

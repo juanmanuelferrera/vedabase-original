@@ -1,5 +1,10 @@
 ### CC Madhya 8.1
 
+> সঞ্চার্য রামাভিধ-ভক্তমেঘে
+> স্বভক্তিসিদ্ধান্তচয়ামৃতানি ৷
+> গৌরাব্ধিরেতৈরমুনা বিতীর্ণৈ-
+> স্তজ্জ্ঞত্ব-রত্নালয়তাং প্রযাতি ৷৷ ১ ৷৷ ॥১॥
+
 sañcārya rāmābhidha-bhakta-meghe
 sva-bhakti-siddhānta-cayāmṛtāni
 gaurābdhir etair amunā vitīrṇais

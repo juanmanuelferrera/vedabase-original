@@ -1,5 +1,10 @@
 ### CC Antya 16.151
 
+> স্বরূপ, রূপ, সনাতন, রঘুনাথের শ্রীচরণ,
+> শিরে ধরি’ করি যার আশ ।
+> চৈতন্যচরিতামৃত, অমৃত হৈতে পরামৃত,
+> গায় দীনহীন কৃষ্ণদাস ॥১৫১॥
+
 > svarūpa, rūpa, sanātana, raghunāthera śrī-caraṇa,
 > śire dhari' kari yāra āśa
 > caitanya-caritāmṛta, amṛta haite parāmṛta,

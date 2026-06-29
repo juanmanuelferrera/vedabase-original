@@ -1,5 +1,8 @@
 ### CC Antya 13.60
 
+> যাহা দেখিবারে বস্ত্র মস্তকে বান্ধিল ।
+> সেই অপূর্ব প্রেম এই প্রত্যক্ষ দেখিল ॥৬০॥
+
 yāhā dekhibāre vastra mastake bāndhila
 
 sei apūrva prema ei pratyakṣa dekhila

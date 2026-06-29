@@ -1,5 +1,10 @@
 ### CC Madhya 22.162
 
+> ন কর্হিচিন্মৎপরাঃ শান্তরূপে
+> নঙ্ক্ষ্যন্তি নো মেঽনিমিষো লেঢ়ি হেতিঃ ।
+> যেষামহং প্রিয় আত্মা সুতশ্চ
+> সখা গুরুঃ সুহৃদো দৈবমিষ্টম্ ॥১৬২॥
+
 > na karhicin mat-parāḥ śānta-rūpe
 > naṅkṣyanti no me 'nimiṣo leḍhi hetiḥ
 > yeṣām ahaṁ priya ātmā sutaś ca

@@ -1,5 +1,8 @@
 ### SB 7.7.36
 
+> तदा पुमान्मुक्तसमस्तबन्धनस्तद्भावभावानुकृताशयाकृतिः
+> निर्दग्धबीजानुशयो महीयसा भक्तिप्रयोगेण समेत्यधोक्षजम ॥३६॥
+
 > tadā pumān mukta-samasta-bandhanas
 > tad-bhāva-bhāvānukṛtāśayākṛtiḥ
 > nirdagdha-bījānuśayo mahīyasā

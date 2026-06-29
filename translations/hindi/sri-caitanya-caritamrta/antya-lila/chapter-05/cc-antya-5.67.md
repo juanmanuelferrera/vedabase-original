@@ -1,5 +1,8 @@
 ### CC Antya 5.67
 
+> বহুসম্মান করি’ মিশ্রে বিদায় দিলা ।
+> ‘কৃতার্থ হইলাঙ’ বলি’ মিশ্র নাচিতে লাগিলা ॥৬৭॥
+
 > bahu-sammāna kari' miśre vidāya dilā
 > 'kṛtārtha ha-ilāṅa' bali' miśra nācite lāgilā
 

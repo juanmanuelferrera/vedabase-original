@@ -1,5 +1,8 @@
 ### CC Madhya 4.209
 
+> নাম-সংকীর্তনে সেই রাত্রি গোঙাইলা ।
+> মঙ্গল-আরতি দেখি’ প্রভাতে চলিলা ॥২০৯॥
+
 > nāma-saṅkīrtane sei rātri goṅāilā
 > maṅgala-ārati dekhi' prabhāte calilā
 

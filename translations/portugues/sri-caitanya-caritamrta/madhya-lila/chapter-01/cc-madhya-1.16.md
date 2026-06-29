@@ -1,5 +1,8 @@
 ### CC Madhya 1.16
 
+> চব্বিশ বৎসর শেষে যেই মাঘমাস ।
+> তার শুক্লপক্ষে প্রভু করিলা সন্ন্যাস ॥১৬॥
+
 cabbiśa vatsara śeṣe yei māgha-māsa
 tāra śukla-pakṣe prabhu karilā sannyāsa
 

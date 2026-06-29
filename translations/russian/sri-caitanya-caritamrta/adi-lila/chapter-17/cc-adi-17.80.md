@@ -1,5 +1,8 @@
 ### CC Adi 17.80
 
+> এক আম্রবীজ প্রভু অঙ্গনে রোপিল ।
+> তৎক্ষণে জন্মিল বৃক্ষ বাড়িতে লাগিল ॥৮০॥
+
 > eka āmra-bīja prabhu aṅgane ropila
 > tat-kṣaṇe janmila vṛkṣa bāḍite lāgila
 

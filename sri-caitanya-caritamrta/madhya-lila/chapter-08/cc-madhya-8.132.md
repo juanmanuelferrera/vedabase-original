@@ -1,5 +1,8 @@
 ### CC Madhya 8.132
 
+> রায় কহে, — “আমি — নট, তুমি — সূত্রধার ।
+> যেই মত নাচাও, তৈছে চাহি নাচিবার ॥১৩২॥
+
 > rāya kahe,—"āmi—naṭa, tumi—sūtra-dhāra
 > yei mata nācāo, taiche cāhi nācibāra
 

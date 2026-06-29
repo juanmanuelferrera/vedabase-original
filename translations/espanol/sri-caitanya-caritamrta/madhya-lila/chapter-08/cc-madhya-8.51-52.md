@@ -3,6 +3,9 @@
 > rāya kahe, āilā yadi pāmara śodhite
 > darśana-mātre śuddha nahe mora duṣṭa citte
 
+> rāya kahe, āilā yadi pāmara śodhite
+> darśana-mātre śuddha nahe mora duṣṭa citte
+
 > dina pāṅca-sāta rahi' karaha mārjana
 > tabe śuddha haya mora ei duṣṭa mana
 

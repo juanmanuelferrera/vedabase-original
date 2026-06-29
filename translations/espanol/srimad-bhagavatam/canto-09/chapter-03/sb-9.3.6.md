@@ -1,5 +1,8 @@
 ### SB 9.3.6
 
+> अप्यभद्रं न युष्माभिर्भार्गवस्य विचेष्टितम
+> व्यक्तं केनापि नस्तस्य कृतमाश्रमदूषणम ॥६॥
+
 > apy abhadraṁ na yuṣmābhir
 > bhārgavasya viceṣṭitam
 > vyaktaṁ kenāpi nas tasya

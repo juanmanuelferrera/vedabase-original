@@ -1,5 +1,8 @@
 ### CC Antya 20.115
 
+> অষ্টমে — রামচন্দ্র-পুরীর আগমন ।
+> তাঁর ভয়ে কৈলা প্রভু ভিক্ষা সঙ্কোচন ॥১১৫॥
+
 > aṣṭame--rāmacandra-purīra āgamana
 > tāṅra bhaye kailā prabhu bhikṣā saṅkocana
 

@@ -1,5 +1,10 @@
 ### CC Adi 4.55
 
+> রাধা কৃষ্ণ প্রণয়বিকৃতির্হ্লাদিনীশক্তিরস্মা-
+> দেকাত্মানাবপি ভুবি পুরা দেহভেদং গতৌ তৌ ।
+> চৈতন্যাখ্যং প্রকটমধুনা তদ্দ্বয়ঞ্চৈক্যমাপ্তং
+> রাধাভাবদ্যুতিসুবলিতং নৌমি কৃষ্ণস্বরূপম্ ॥৫৫॥
+
 rādhā kṛṣṇa-praṇaya-vikṛtir hlādinī śaktir asmād
 ekātmānāv api bhuvi purā deha-bhedaṁ gatau tau
 caitanyākhyaṁ prakaṭam adhunā tad-dvayaṁ caikyam āptaṁ

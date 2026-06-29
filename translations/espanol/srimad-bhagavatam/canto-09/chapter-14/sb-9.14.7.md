@@ -1,5 +1,8 @@
 ### SB 9.14.7
 
+> सर्वदेवगणोपेतो महेन्द्रो गुरुमन्वयात
+> सुरासुरविनाशोऽभूत्समरस्तारकामयः ॥७॥
+
 > sarva-deva-gaṇopeto
 > mahendro gurum anvayāt
 > surāsura-vināśo 'bhūt

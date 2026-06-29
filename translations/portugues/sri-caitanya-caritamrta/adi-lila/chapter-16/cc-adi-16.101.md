@@ -1,5 +1,8 @@
 ### CC Adi 16.101
 
+> ভবভূতি, জয়দেব, আর কালিদাস ।
+> তাঁ-সবার কবিত্বে আছে দোষের প্রকাশ ॥১০১॥
+
 bhavabhūti, jayadeva, āra kālidāsa
 
 tāṅ-sabāra kavitve āche doṣera prakāśa

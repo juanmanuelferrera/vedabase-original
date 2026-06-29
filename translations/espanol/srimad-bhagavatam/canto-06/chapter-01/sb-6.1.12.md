@@ -1,5 +1,8 @@
 ### SB 6.1.12
 
+> नाश्नतः पथ्यमेवान्नं व्याधयोऽभिभवन्ति हि
+> एवं नियमकृद्राजन्शनैः क्षेमाय कल्पते ॥१२॥
+
 > nāśnataḥ pathyam evānnaṁ
 > vyādhayo 'bhibhavanti hi
 > evaṁ niyamakṛd rājan

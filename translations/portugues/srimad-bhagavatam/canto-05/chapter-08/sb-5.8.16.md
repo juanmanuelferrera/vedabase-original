@@ -1,5 +1,7 @@
 ### SB 5.8.16
 
+> अपि बत स वै कृपण एणबालको मृतहरिणीसुतोऽहो ममानार्यस्य शठकिरातमतेरकृतसुकृतस्य कृतविस्रम्भ आत्मप्रत्ययेन तदविगणयन्सुजन इवागमिष्यति ॥१६॥
+
 *api bata sa vai kṛpaṇa eṇa*-bālako mṛta-hariṇī-suto 'ho mamānāryasya śaṭha-kirāta-mater akṛta-sukṛtasya kṛta-visrambha ātma-pratyayena tad avigaṇayan sujana ivāgamiṣyati.
 
 *api*—de fato; *bata*—ai de mim; *saḥ*—esse filhote; *vai*—certamente; *kṛpaṇaḥ*—aflito; *eṇa-bālakaḥ*—o filho do cervo; *mṛta-hariṇī-sutaḥ*—o filhote da cerva morta; *aho*—oh; *mama*—de mim; *anāryasya*—o de pior conduta; *śaṭha*—de um trapaceiro; *kirāta*—ou de um aborígine incivilizado; *mateḥ*—cuja mente é assim; *akṛta-sukṛtasya*—que não tem atividades piedosas; *kṛta-visrambhaḥ*—depositando toda fé; *ātma-pratyayena*—assumindo que eu sou como ele; *tat avigaṇayan*—sem pensar em tudo isso; *su-janaḥ iva*—como uma pessoa perfeitamente gentil; *agamiṣyati*—retornará novamente.

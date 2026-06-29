@@ -1,5 +1,8 @@
 ### CC Madhya 24.228
 
+> ‘কৃষ্ণারামাশ্চ’ এব — হয় কৃষ্ণ-মনন ।
+> ব্যাধ হঞা হয় পূজ্য ভাগবতোত্তম ॥২২৮॥
+
 'kṛṣṇārāmāś ca' eva--haya kṛṣṇa-manana
 
 vyādha hañā haya pūjya bhāgavatottama

@@ -1,5 +1,8 @@
 ### CC Madhya 11.75
 
+> প্রথমেতে মহাপ্রভু পাঠাইলা দুঁহারে ।
+> রাজা কহে, এই দুই কোন্ চিনাহ আমারে ॥৭৫॥
+
 > prathamete mahāprabhu pāṭhāilā duṅhāre
 > rājā kahe, ei dui kon cināha āmāre
 

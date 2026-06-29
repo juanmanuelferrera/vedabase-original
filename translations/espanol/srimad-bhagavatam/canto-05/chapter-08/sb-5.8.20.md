@@ -1,5 +1,7 @@
 ### SB 5.8.20
 
+> अपि स्विदकृतसुकृतमागत्य मां सुखयिष्यति हरिणराजकुमारो विविधरुचिरदर्शनीयनिजमृगदारकविनोदैरसन्तोषं स्वानामपनुदन ॥२०॥
+
 > api svid akṛta-sukṛtam āgatya māṁ sukhayiṣyati hariṇa-rāja-kumāro vividha-rucira-darśanīya-nija-mṛga-dāraka-vinodair asantoṣaṁ svānām apanudan.
 
 *api svit*—si él algún día; *akṛta-sukṛtam*—que nunca ha realizado actividades piadosas; *āgatya*—regresar; *mām*—a mí; *sukhayiṣyati*—da placer; *hariṇa-rāja-kumāraḥ*—el ciervo, que era como un príncipe debido a que yo le cuidaba como a un hijo; *vividha*—diversas; *rucira*—muy agradables; *darśanīya*—para ver; *nija*—propias; *mṛga-dāraka*—propias de la cría del ciervo; *vinodaiḥ*—con actividades agradables; *asantoṣam*—la infelicidad; *svānām*—de su propia clase; *apanudan*—alejar.

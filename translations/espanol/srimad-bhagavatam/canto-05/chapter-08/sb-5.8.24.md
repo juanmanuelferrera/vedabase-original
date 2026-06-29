@@ -1,5 +1,7 @@
 ### SB 5.8.24
 
+> अपि स्विदसौ भगवानुडुपतिरेनं मृगपतिभयान्मृतमातरं मृगबालकं स्वाश्रमपरिभ्रष्टमनुकम्पया कृपणजनवत्सलः परिपाति ॥२४॥
+
 > api svid asau bhagavān uḍu-patir enaṁ mṛga-pati-bhayān mṛta-mātaraṁ mṛga-bālakaṁ svāśrama-paribhraṣṭam anukampayā kṛpaṇa-jana-vatsalaḥ paripāti.
 
 *api svit*—¿acaso?; *asau*—esa; *bhagavān*—muy poderosa; *uḍu-patiḥ*—la Luna; *enam*—a este; *mṛga-pati-bhayāt*—por miedo al león; *mṛta-mātaram*—que perdió a su madre; *mṛga-bālakam*—hijo de un ciervo; *sva-āśrama-paribhraṣṭam*—que se extravió y está lejos de su *āśrama*; *anukampayā*—por compasión; *kṛpaṇa-jana-vatsalaḥ*—(la Luna) que es muy bondadosa con los hombres desdichados; *paripāti*—ahora lo está protegiendo.

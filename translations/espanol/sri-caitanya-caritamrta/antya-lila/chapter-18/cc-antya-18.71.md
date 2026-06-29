@@ -1,5 +1,8 @@
 ### CC Antya 18.71
 
+> ভূমিতে পড়ি’ আছে প্রভু দীর্ঘ সব কায় ।
+> জলে শ্বেত-তনু, বালু লাগিয়াছে গায় ॥৭১॥
+
 > bhūmite paḍi' āche prabhu dīrgha saba kāya
 > jale śveta-tanu, vālu lāgiyāche gāya
 

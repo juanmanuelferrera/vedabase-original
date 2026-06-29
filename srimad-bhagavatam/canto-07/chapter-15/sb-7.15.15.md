@@ -1,5 +1,8 @@
 ### SB 7.15.15
 
+> धर्मार्थमपि नेहेत यात्रार्थं वाधनो धनम
+> अनीहानीहमानस्य महाहेरिव वृत्तिदा ॥१५॥
+
 > dharmārtham api neheta
 > yātrārthaṁ vādhano dhanam
 > anīhānīhamānasya

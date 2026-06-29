@@ -1,5 +1,8 @@
 ### CC Adi 2.18
 
+> আত্মান্তর্যামী যাঁরে যোগশাস্ত্রে কয় ।
+> সেহ গোবিন্দের অংশ বিভূতি যে হয় ॥১৮॥
+
 > ātmāntaryāmī yāṅre yoga-śāstre kaya
 > seha govindera aṁśa vibhūti ye haya
 

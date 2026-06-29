@@ -1,5 +1,8 @@
 ### SB 9.20.23
 
+> पितर्युपरते सोऽपि चक्रवर्ती महायशाः
+> महिमा गीयते तस्य हरेरंशभुवो भुवि ॥२३॥
+
 > pitary uparate so 'pi
 > cakravartī mahā-yaśāḥ
 > mahimā gīyate tasya

@@ -3,6 +3,9 @@
 > kāṅthā-karaṅgiyā mora kāṅgāla bhakta-gaṇa
 > vṛndāvane āile tāṅdera kariha pālana
 
+> kāṅthā-karaṅgiyā mora kāṅgāla bhakta-gaṇa
+> vṛndāvane āile tāṅdera kariha pālana
+
 *kāṅthā*—colcha raída; *karaṅgiyā*—una pequeña vasija de agua; *mora*—Mis; *kāṅgāla*—pobres; *bhakta-gaṇa*—devotos; *vṛndāvane āile*—cuando lleguen a Vṛndāvana; *tāṅdera*—de todos ellos; *kariha pālana*—encárgate del cuidado.
 
 **Śrī Caitanya Mahāprabhu le dijo a Sanātana Gosvāmī: «Todos Mis devotos que van a Vṛndāvana son generalmente muy pobres. No llevan más que una colcha raída y una pequeña vasija de agua. Así que, Sanātana, debes darles refugio y mantenerlos.»**

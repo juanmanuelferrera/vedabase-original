@@ -1,5 +1,7 @@
 ### SB 5.24.24
 
+> नूनं बतायं भगवानर्थेषु न निष्णातो योऽसाविन्द्रो यस्य सचिवो मन्त्राय वृत एकान्ततोबृहस्पतिस्तमतिहाय स्वयमुपेन्द्रेणात्मानमयाचतात्मनश्चाशिषो नो एव तद्दास्यमतिगम्भीरवयसः कालस्य मन्वन्तरपरिवृत्तं कियल्लोकत्रयमिदम ॥२४॥
+
 *nūnaṁ batāyaṁ bhagavān artheṣu na niṣṇāto yo 'sāv indro yasya sacivo mantrāya vṛta ekāntato bṛhaspatis tam atihāya svayam upendreṇātmānam ayācatātmanaś cāśiṣo no eva tad*-dāsyam ati-gambhīra-vayasaḥ kālasya manvantara-parivṛttaṁ kiyal loka-trayam idam.
 
 *nūnam*—certamente; *bata*—ai; *ayam*—este; *bhagavān*—muito erudito; *artheṣu*—em interesse próprio; *na*—não; *niṣṇātaḥ*—muito experiente; *yaḥ*—que; *asau*—o rei dos céus; *indraḥ*—Indra; *yasya*—de quem; *sacivaḥ*—o primeiro-ministro; *mantrāya*—para dar instruções; *vṛtaḥ*—escolhido; *ekāntataḥ*—sozinho; *bṛhaspatiḥ*—chamado Bṛhaspati; *tam*—a ele; *atihāya*—ignorando; *svayam*—pessoalmente; *upendreṇa*—por meio de Upendra (o Senhor Vāmanadeva); *ātmānam*—a mim mesmo; *ayācata*—pediu; *ātmanaḥ*—para si mesmo; *ca*—e; *āśiṣaḥ*—bênçãos (os três mundos); *no*—não; *eva*—certamente; *tat-dāsyam*—o serviço amoroso ao Senhor; *ati*—muito; *gambhīra-vayasaḥ*—tendo uma duração insuperável; *kālasya*—do tempo; *manvantara-parivṛttam*—mudado pelo fim da vida de um Manu; *kiyat*—qual é o valor de; *loka-trayam*—três mundos; *idam*—estes.

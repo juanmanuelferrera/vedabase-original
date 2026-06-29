@@ -1,5 +1,8 @@
 ### CC Madhya 12.19
 
+> যোগ্যাযোগ্য তোমায় সব চাহি নিবেদিতে ।
+> তোমা না মিলিলে রাজা চাহে যোগী হৈতে ॥১৯॥
+
 > yogyāyogya tomāya saba cāhi nivedite
 > tomā nā milile rājā cāhe yogī haite
 

@@ -1,5 +1,7 @@
 ### SB 5.24.21
 
+> तद्भक्तानामात्मवतां सर्वेषामात्मन्यात्मद आत्मतयैव ॥२१॥
+
 > tad bhaktānām ātmavatāṁ sarveṣām ātmany ātmada ātmatayaiva.
 
 *tat*—ese; *bhaktānām*—de grandes devotos; *ātma-vatām*—de personas autorrealizadas como Sanaka y Sanātana; *sarveṣām*—de todos; *ātmani*—a la Suprema Personalidad de Dios, que es el alma; *ātma-de*—quien Se da a Sí mismo sin titubear; *ātmatayā*—que es el Alma Suprema, Paramātmā; *eva*—en verdad.

@@ -1,5 +1,8 @@
 ### CC Madhya 20.70
 
+> ভদ্র করাঞা তাঁরে গঙ্গাস্নান করাইল ।
+> শেখর আনিয়া তাঁরে নূতন বস্ত্র দিল ॥৭০॥
+
 > bhadra karāñā tāṅre gaṅgā-snāna karāila
 > śekhara āniyā tāṅre nūtana vastra dila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 14.127
 
+> স্বরূপ কহে, — প্রেমবতীর এই ত’ স্বভাব ।
+> কান্তের ঔদাস্য-লেশে হয় ক্রোধভাব ॥১২৭॥
+
 > svarūpa kahe,-premavatīra ei ta' svabhāva
 > kāntera audāsya-leśe haya krodha-bhāva
 

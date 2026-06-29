@@ -1,5 +1,8 @@
 ### CC Antya 12.82
 
+> চলে সব ভক্তগণ রোদন করিয়া ।
+> মহাপ্রভু রহিলা ঘরে বিষণ্ণ হঞা ॥৮২॥
+
 > cale saba bhakta-gaṇa rodana kariyā
 > mahāprabhu rahilā ghare viṣaṇṇa hañā
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.95
 
+> আর তিন কুণ্ডিকায় অবশেষ ছিল ।
+> গ্রাসে-গ্রাসে করি’ বিপ্র সব ভক্তে দিল ॥৯৫॥
+
 > āra tina kuṇḍikāya avaśeṣa chila
 > grāse-grāse kari' vipra saba bhakte dila
 

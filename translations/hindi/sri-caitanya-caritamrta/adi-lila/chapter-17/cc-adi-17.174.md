@@ -1,5 +1,8 @@
 ### CC Adi 17.174
 
+> তুমি কাজী, — হিন্দু-ধর্ম-বিরোধে অধিকারী ।
+> এবে যে না কর মানা বুঝিতে না পারি ॥১৭৪॥
+
 > tumi kājī—hindu-dharma-virodhe adhikārī
 > ebe ye nā kara mānā bujhite nā pāri
 

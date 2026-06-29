@@ -1,5 +1,8 @@
 ### CC Madhya 25.177
 
+> এইমত দিন পঞ্চ লোক নিস্তারিয়া ।
+> আর দিন চলিলা প্রভু উদ্বিগ্ন হঞা ॥১৭৭॥
+
 > ei-mata dina pañca loka nistāriyā
 > āra dina calilā prabhu udvigna hañā
 

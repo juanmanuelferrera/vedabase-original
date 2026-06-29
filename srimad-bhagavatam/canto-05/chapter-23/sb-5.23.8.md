@@ -1,5 +1,7 @@
 ### SB 5.23.8
 
+> एतदु हैव भगवतो विष्णोः सर्वदेवतामयं रूपमहरहः सन्ध्यायां प्रयतो वाग्यतोनिरीक्षमाण उपतिष्ठेत नमो ज्योतिर्लोकाय कालायनायानिमिषां पतये महापुरुषायाभिधीमहीति ॥८॥
+
 > etad u haiva bhagavato viṣṇoḥ sarva-devatāmayaṁ rūpam aharahaḥ sandhyāyāṁ prayato vāgyato nirīkṣamāṇa upatiṣṭheta namo jyotir-lokāya kālāyanāyānimiṣāṁ pataye mahā-puruṣāyābhidhīmahīti.
 
 *etat*—this; *u ha*—indeed; *eva*—certainly; *bhagavataḥ*—of the Supreme Personality of Godhead; *viṣṇoḥ*—of Lord Viṣṇu; *sarva-devatā-mayam*—consisting of all the demigods; *rūpam*—form; *ahaḥ-ahaḥ*—always; *sandhyāyām*—in the morning, noon and evening; *prayataḥ*—meditating upon; *vāgyataḥ*—controlling the words; *nirīkṣamāṇaḥ*—observing; *upatiṣṭheta*—one should worship; *namaḥ*—respectful obeisances; *jyotiḥ-lokāya*—unto the resting place of all the planetary systems; *kālāyanāya*—in the form of supreme time; *animiṣām*—of the demigods; *pataye*—unto the master; *mahā-puruṣāya*—unto the Supreme person; *abhidhīmahi*—let us meditate; *iti*—thus.

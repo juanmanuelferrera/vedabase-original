@@ -1,5 +1,8 @@
 ### CC Madhya 9.242
 
+> দিন-দুই পদ্মনাভের কৈল দরশন ।
+> আনন্দে দেখিতে আইলা শ্রীজনার্দন ॥২৪২॥
+
 > dina-dui padmanābhera kaila daraśana
 > ānande dekhite āilā śrī-janārdana
 

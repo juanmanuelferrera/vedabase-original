@@ -1,5 +1,8 @@
 ### CC Antya 5.163
 
+> শ্রদ্ধা করি’ এই লীলা যেই পড়ে শুনে ।
+> গৌরলীলা, ভক্তি-ভক্ত-রস-তত্ত্ব জানে ॥১৬৩॥
+
 śraddhā kari' ei līlā yei paḍe, śune
 
 gaura-līlā, bhakti-bhakta-rasa-tattva jāne

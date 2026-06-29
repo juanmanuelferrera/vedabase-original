@@ -1,5 +1,8 @@
 ### SB 8.24.48
 
+> यत्सेवयाग्नेरिव रुद्ररोदनं पुमान्विजह्यान्मलमात्मनस्तमः
+> भजेत वर्णं निजमेष सोऽव्ययो भूयात्स ईशः परमो गुरोर्गुरुः ॥४८॥
+
 > yat-sevayāgner iva rudra-rodanaṁ
 > pumān vijahyān malam ātmanas tamaḥ
 > bhajeta varṇaṁ nijam eṣa so 'vyayo

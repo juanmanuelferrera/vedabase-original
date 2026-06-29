@@ -1,5 +1,8 @@
 ### CC Madhya 12.173
 
+> স্বরূপ-গোসাঞি ভাল মিষ্টপ্রসাদ লঞা  ।
+> প্রভুকে নিবেদন করে আগে দাণ্ডাঞা ॥১৭৩॥
+
 > svarūpa-gosāñi bhāla miṣṭa-prasāda lañā
 > prabhuke nivedana kare āge dāṇḍāñā
 

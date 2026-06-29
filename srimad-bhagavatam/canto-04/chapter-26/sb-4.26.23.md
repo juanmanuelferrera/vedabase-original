@@ -1,5 +1,8 @@
 ### SB 4.26.23
 
+> सा त्वं मुखं सुदति सुभ्र्वनुरागभार व्रीडाविलम्बविलसद्धसितावलोकम् ।
+> नीलालकालिभिरुपस्कृतमुन्नसं नः स्वानां प्रदर्शय मनस्विनि वल्गुवाक्यम् ॥२३॥
+
 > sā tvaṁ mukhaṁ sudati subhrv anurāga-bhāra-
 > vrīḍā-vilamba-vilasad-dhasitāvalokam
 > nīlālakālibhir upaskṛtam unnasaṁ naḥ

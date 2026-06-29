@@ -1,5 +1,10 @@
 ### CC Antya 18.94
 
+> যত হেমাব্জ জলে ভাসে, তত নীলাব্জ তার পাশে,
+> আসি’ আসি’ করয়ে মিলন ।
+> নীলাব্জে হেমাব্জে ঠেকে, যুদ্ধ হয় প্রত্যেকে,
+> কৌতুকে দেখে তীরে সখীগণ ॥৯৪॥
+
 > yata hemābja jale bhāse, tata nīlābja tāra pāśe,
 > āsi' āsi' karaye milana
 > nīlābje hemābje ṭheke, yuddha haya pratyeke,

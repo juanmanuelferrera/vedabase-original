@@ -1,5 +1,8 @@
 ### SB 3.8.2
 
+> सोऽहं नृणां क्षुल्लसुखाय दुःखं महद्गतानां विरमाय तस्य ।
+> प्रवर्तये भागवतं पुराणं यदाह साक्षाद्भगवानृषिभ्यः ॥२॥
+
 > so 'haṁ nṛṇāṁ kṣulla-sukhāya duḥkhaṁ
 > mahad gatānāṁ viramāya tasya
 > pravartaye bhāgavataṁ purāṇaṁ

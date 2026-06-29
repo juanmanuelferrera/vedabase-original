@@ -1,5 +1,8 @@
 ### CC Madhya 16.12
 
+> তৃতীয় বত্সরে সব গৌড়ের ভক্তগণ ।
+> নীলাচলে চলিতে সবার হৈল মন ॥১২॥
+
 tṛtīya vatsare saba gauḍera bhakta-gaṇa
 nīlācale calite sabāra haila mana
 

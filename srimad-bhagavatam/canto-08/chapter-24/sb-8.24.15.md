@@ -1,5 +1,8 @@
 ### SB 8.24.15
 
+> तमात्मनोऽनुग्रहार्थं प्रीत्या मत्स्यवपुर्धरम
+> अजानन्रक्षणार्थाय शफर्याः स मनो दधे ॥१५॥
+
 > tam ātmano 'nugrahārthaṁ
 > prītyā matsya-vapur-dharam
 > ajānan rakṣaṇārthāya

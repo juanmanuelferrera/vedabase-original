@@ -1,5 +1,8 @@
 ### CC Madhya 1.228
 
+> সেই রাত্রে প্রভু তাহাঁ চিন্তে মনে মন ।
+> সঙ্গে সংঘট্ট ভাল নহে, কৈল সনাতন ॥২২৮॥
+
 sei rātre prabhu tāhāṅ cinte mane mana
 
 saṅge saṅghaṭṭa bhāla nahe, kaila sanātana

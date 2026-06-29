@@ -1,5 +1,8 @@
 ### CC Madhya 8.139
 
+> পুরুষ, যোষিৎ, কিবা স্থাবর-জঙ্গম ৷
+> সর্ব-চিত্তাকর্ষক, সাক্ষাৎ মন্মথ-মদন ৷৷ ১৩৯ ৷৷ ॥১৩৯॥
+
 puruṣa, yoṣit, kibā sthāvara-jaṅgama
 sarva-cittākarṣaka, sākṣāt manmatha-madana
 

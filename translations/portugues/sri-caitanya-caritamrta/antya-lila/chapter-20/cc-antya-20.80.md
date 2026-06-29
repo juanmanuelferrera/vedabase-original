@@ -1,5 +1,8 @@
 ### CC Antya 20.80
 
+> ঐছে মহাপ্রভুর লীলা — নাহি ওর-পার  ।
+> ‘জীব’ হঞা কেবা সম্যক্ পারে বর্ণিবার ? ৮০ ॥৮০॥
+
 aiche mahāprabhura līlā--nāhi ora-pāra
 
 'jīva' hañā kebā samyak pāre varṇibāra?

@@ -1,5 +1,8 @@
 ### SB 3.29.16
 
+> मद्धिष्ण्यदर्शनस्पर्श पूजास्तुत्यभिवन्दनैः ।
+> भूतेषु मद्भावनया सत्त्वेनासङ्गमेन च ॥१६॥
+
 > mad-dhiṣṇya-darśana-sparśa-
 > pūjā-stuty-abhivandanaiḥ
 > bhūteṣu mad-bhāvanayā

@@ -1,5 +1,8 @@
 ### CC Adi 7.157
 
+> প্রভু যবে যা’ন বিশ্বেশ্বর-দরশনে ।
+> লক্ষ লক্ষ লোক আসি’ মিলে সেই স্থানে ॥১৫৭॥
+
 > prabhu yabe yā'na viśveśvara-daraśane
 > lakṣa lakṣa loka āsi' mile sei sthāne
 

@@ -1,5 +1,10 @@
 ### SB 6.3.27
 
+> ते देवसिद्धपरिगीतपवित्रगाथा
+> ये साधवः समदृशो भगवत्प्रपन्नाः
+> तान्नोपसीदत हरेर्गदयाभिगुप्तान
+> नैषां वयं न च वयः प्रभवाम दण्डे ॥२७॥
+
 > te deva-siddha-parigīta-pavitra-gāthā
 > ye sādhavaḥ samadṛśo bhagavat-prapannāḥ
 > tān nopasīdata harer gadayābhiguptān

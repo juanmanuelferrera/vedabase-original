@@ -1,5 +1,8 @@
 ### CC Madhya 18.1
 
+> বৃন্দাবনে স্থিরচরান্নন্দয়ন্ স্বাবলোকনৈঃ ।
+> আত্মানঞ্চ তদালোকাদ্গৌরাঙ্গঃ পরিতোঽভ্রমৎ ॥১॥
+
 > vṛndāvane sthira-carān
 > nandayan svāvalokanaiḥ
 > ātmānaṁ ca tad-ālokād

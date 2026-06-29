@@ -1,5 +1,8 @@
 ### CC Antya 16.84
 
+> সেহ বলে, — ‘এই দেখ শ্রীপুরুষোত্তম ।
+> নেত্র ভরিয়া তুমি করহ দরশন ।।’ ॥ ৮৪ ॥
+
 seha bale,--'ei dekha śrī-puruṣottama
 
 netra bhariyā tumi karaha daraśana'

@@ -1,5 +1,8 @@
 ### CC Madhya 8.111
 
+> অহেরিব গতিঃ প্রেম্ণঃ স্বভাবকুটিলা ভবেৎ ৷
+> অতো হেতোরহেতোশ্চ যূনোর্মান উদঞ্চতি ৷৷ ১১১ ৷৷ ॥১১১॥
+
 > aher iva gatiḥ premṇaḥ
 > svabhāva-kuṭilā bhavet
 > ato hetor ahetoś ca

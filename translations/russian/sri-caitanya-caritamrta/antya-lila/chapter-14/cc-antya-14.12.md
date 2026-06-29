@@ -1,5 +1,8 @@
 ### CC Antya 14.12
 
+> কৃষ্ণ মথুরায় গেলে, গোপীর যে দশা হৈল ।
+> কৃষ্ণবিচ্ছেদে প্রভুর সে দশা উপজিল ॥১২॥
+
 > kṛṣṇa mathurāya gele, gopīra ye daśā haila
 > kṛṣṇa-vicchede prabhura se daśā upajila
 

@@ -1,5 +1,11 @@
 ### SB 3.16.26
 
+> श्रीभगवानुवाच
+> एतौ सुरेतरगतिं प्रतिपद्य सद्यः
+> संरम्भसम्भृतसमाध्यनुबद्धयोगौ ।
+> भूयः सकाशमुपयास्यत आशु यो वः
+> शापो मयैव निमितस्तदवेत विप्राः ॥२६॥
+
 > śrī-bhagavān uvāca
 > etau suretara-gatiṁ pratipadya sadyaḥ
 > saṁrambha-sambhṛta-samādhy-anubaddha-yogau

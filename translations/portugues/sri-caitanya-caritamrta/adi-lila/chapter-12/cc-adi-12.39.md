@@ -1,5 +1,8 @@
 ### CC Adi 12.39
 
+> পূর্বে মহাপ্রভু মোরে করেন সম্মান ।
+> দুঃখ পাই’ মনে আমি কৈলুঁ অনুমান ॥৩৯॥
+
 pūrve mahāprabhu more karena sammāna
 duḥkha pāi' mane āmi kailuṅ anumāna
 

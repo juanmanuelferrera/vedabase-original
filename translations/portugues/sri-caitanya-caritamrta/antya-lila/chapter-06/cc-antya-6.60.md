@@ -1,5 +1,8 @@
 ### CC Antya 6.60
 
+> চবুতরা-উপরে যত প্রভুর নিজগণে ।
+> বড় বড় লোক বসিলা মণ্ডলী-রচনে ॥৬০॥
+
 cabutarā-upare yata prabhura nija-gaṇe
 
 baḍa baḍa loka vasilā maṇḍalī-racane

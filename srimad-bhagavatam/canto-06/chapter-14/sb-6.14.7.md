@@ -1,5 +1,8 @@
 ### SB 6.14.7
 
+> अत्र नः संशयो भूयाञ्छ्रोतुं कौतूहलं प्रभो
+> यः पौरुषेण समरे सहस्राक्षमतोषयत ॥७॥
+
 > atra naḥ saṁśayo bhūyāñ
 > chrotuṁ kautūhalaṁ prabho
 > yaḥ pauruṣeṇa samare

@@ -1,3 +1,7 @@
+> harer nāma harer nāma harer nāmaiva kevalam
+> kalau nāsty eva nāsty eva nāsty eva gatir anyathā.
+> [[cc/adi/17/21|[Cc. Adi 17.21] ]]
+
 Introducción
 
 La concepción de Dios y la concepción de la Verdad Absoluta no se encuentran en el mismo nivel. El *Śrīmad-Bhāgavatam* da en el blanco de la Verdad Absoluta. La concepción de Dios señala al controlador, mientras que la concepción de la Verdad Absoluta señala el *summum bonum*, o la fuente última de todas las energías. No hay diferencia de opinión acerca del aspecto personal de Dios como controlador, pues un controlador no puede ser impersonal. Por supuesto, el gobierno moderno, en especial el gobierno democrático, es impersonal hasta cierto punto, pero en última instancia el jefe del ejecutivo es una persona, y el aspecto impersonal del gobierno está subordinado al aspecto personal. De modo que, sin duda, siempre que nos referimos al control sobre los demás debemos admitir la existencia de un aspecto personal. Como hay diferentes controladores para distintos cargos administrativos, puede haber muchos dioses menores. Según el *Bhagavad-gītā*, a todo controlador que posee algún poder extraordinario específico se le llama *vibhūtimat sattva*, o controlador apoderado por el Señor. Hay muchos *vibhūtimat sattvas*, controladores o dioses con diversos poderes específicos, pero la Verdad Absoluta es una sin par. Este *Śrīmad-Bhāgavatam* designa la Verdad Absoluta, o el *summum bonum*, como el *paraṁ satyam*.

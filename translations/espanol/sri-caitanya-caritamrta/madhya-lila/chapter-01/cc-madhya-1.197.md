@@ -1,5 +1,8 @@
 ### CC Madhya 1.197
 
+> ম্লেচ্ছজাতি, ম্লেচ্ছসেবী, করি ম্লেচ্ছকর্ম ।
+> গো-ব্রাহ্মণ-দ্রোহি-সঙ্গে আমার সঙ্গম ॥১৯৭॥
+
 > mleccha-jāti, mleccha-sevī, kari mleccha-karma
 > go-brāhmaṇa-drohi-saṅge āmāra saṅgama
 

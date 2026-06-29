@@ -1,5 +1,8 @@
 ### CC Madhya 3.188
 
+> নবদ্বীপ-বাসী আদি যত ভক্তগণ ।
+> সবারে সম্মান করি’ বলিলা বচন ॥১৮৮॥
+
 navadvīpa-vāsī ādi yata bhakta-gaṇa
 
 sabāre sammāna kari' balilā vacana

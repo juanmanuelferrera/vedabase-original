@@ -1,5 +1,8 @@
 ### CC Madhya 9.122
 
+> লক্ষ্মী কেনে না পাইল, ইহার কি কারণ ।
+> তপ করি’ কৈছে কৃষ্ণ পাইল শ্রুতিগণ ॥১২২॥
+
 > lakṣmī kene nā pāila, ihāra ki kāraṇa
 > tapa kari' kaiche kṛṣṇa pāila śruti-gaṇa
 

@@ -1,5 +1,8 @@
 ### SB 7.14.7
 
+> दिव्यं भौमं चान्तरीक्षं वित्तमच्युतनिर्मितम
+> तत्सर्वमुपयुञ्जान एतत्कुर्यात्स्वतो बुधः ॥७॥
+
 > divyaṁ bhaumaṁ cāntarīkṣaṁ
 > vittam acyuta-nirmitam
 > tat sarvam upayuñjāna

@@ -1,5 +1,8 @@
 ### CC Adi 7.6
 
+> পঞ্চতত্ত্বাত্মকং কৃষ্ণং ভক্তরূপ-স্বরূপকম্ ।
+> ভক্তাবতারং ভক্তাখ্যং নমামি ভক্তশক্তিকম্ ॥৬॥
+
 > pañca-tattvātmakaṁ kṛṣṇaṁ
 > bhakta-rūpa-svarūpakam
 > bhaktāvatāraṁ bhaktākhyaṁ

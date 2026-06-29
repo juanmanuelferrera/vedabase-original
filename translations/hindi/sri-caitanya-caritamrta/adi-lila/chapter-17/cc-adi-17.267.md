@@ -1,5 +1,8 @@
 ### CC Adi 17.267
 
+> এসব পাষণ্ডীর তবে হইবে নিস্তার ।
+> আর কোন উপায় নাহি, এই যুক্তি সার ॥২৬৭॥
+
 > e-saba pāṣaṇḍīra tabe ha-ibe nistāra
 > āra kona upāya nāhi, ei yukti sāra
 

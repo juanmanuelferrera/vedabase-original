@@ -1,5 +1,8 @@
 ### CC Madhya 15.31
 
+> পরম-আবেশে প্রভু আইলা নিজ-ঘর ।
+> এইমত লীলা করে গৌরাঙ্গসুন্দর ॥৩১॥
+
 > parama-āveśe prabhu āilā nija-ghara
 > ei-mata līlā kare gaurāṅga-sundara
 

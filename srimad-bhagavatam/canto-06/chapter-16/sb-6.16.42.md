@@ -1,5 +1,8 @@
 ### SB 6.16.42
 
+> कः क्षेमो निजपरयोः कियान्वार्थः स्वपरद्रुहा धर्मेण
+> स्वद्रोहात्तव कोपः परसम्पीडया च तथाधर्मः ॥४२॥
+
 > kaḥ kṣemo nija-parayoḥ
 > kiyān vārthaḥ sva-para-druhā dharmeṇa
 > sva-drohāt tava kopaḥ

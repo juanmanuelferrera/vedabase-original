@@ -1,5 +1,8 @@
 ### CC Madhya 23.125
 
+> সংক্ষেপে কহিলুঁ — ‘প্রেম’-প্রয়োজন-সংবাদ ।
+> বিস্তারি’ কহন না যায় প্রভুর প্রসাদ ॥১২৫॥
+
 saṅkṣepe kahiluṅ--'prema'-prayojana-saṁvāda
 
 vistāri' kahana nā yāya prabhura prasāda

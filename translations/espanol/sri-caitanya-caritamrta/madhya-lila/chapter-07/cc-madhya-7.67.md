@@ -1,5 +1,8 @@
 ### CC Madhya 7.67
 
+> তোমার প্রসাদে এবে জানিনু তাঁর তত্ত্ব ৷
+> সম্ভাষিলে জানিবে তাঁর যেমন মহত্ত্ব ৷৷ ৬৭ ৷৷ ॥৬৭॥
+
 > tomāra prasāde ebe jāninu tāṅra tattva
 > sambhāṣile jānibe tāṅra yemana mahattva
 

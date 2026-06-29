@@ -1,5 +1,8 @@
 ### CC Antya 20.6
 
+> সেই সেই ভাবে নিজ-েই সেই সেই ভাবে নিজ শ্লোক পড়িয়া ।
+> শ্লোকের অর্থ আস্বাদয়ে দুইবন্ধু লঞা ॥৬॥
+
 > sei sei bhāve nija-śloka paḍiyā
 > ślokera artha āsvādaye dui-bandhu lañā
 

@@ -1,5 +1,8 @@
 ### SB 3.29.8
 
+> अभिसन्धाय यो हिंसां दम्भं मात्सर्यमेव वा ।
+> संरम्भी भिन्नदृग्भावं मयि कुर्यात्स तामसः ॥८॥
+
 > abhisandhāya yo hiṁsāṁ
 > dambhaṁ mātsaryam eva vā
 > saṁrambhī bhinna-dṛg bhāvaṁ

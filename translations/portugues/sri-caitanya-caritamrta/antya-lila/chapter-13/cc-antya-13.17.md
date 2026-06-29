@@ -1,5 +1,8 @@
 ### CC Antya 13.17
 
+> স্বরূপ-গোসাঞি তবে সৃজিলা প্রকার  ।
+> কদলীর শুষ্কপত্র আনিলা অপার ॥১৭॥
+
 svarūpa-gosāñi tabe sṛjilā prakāra
 
 kadalīra śuṣka-patra ānilā apāra

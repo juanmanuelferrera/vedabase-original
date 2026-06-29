@@ -1,5 +1,7 @@
 ### SB 5.6.9
 
+> यस्य किलानुचरितमुपाकर्ण्य कोङ्कवेङ्ककुटकानां राजार्हन्नामोपशिक्ष्य कलावधर्मउत्कृष्यमाणे भवितव्येन विमोहितः स्वधर्मपथमकुतोभयमपहाय कुपथपाखण्डमसमञ्जसं निजमनीषया मन्दः सम्प्रवर्तयिष्यते ॥९॥
+
 > yasya kilānucaritam upākarṇya koṅka-veṅka-kuṭakānāṁ rājārhan-nāmopaśikṣya kalāv adharma utkṛṣyamāṇe bhavitavyena vimohitaḥ sva-dharma-patham akuto-bhayam apahāya kupatha-pākhaṇḍam asamañjasaṁ nija-manīṣayā mandaḥ sampravartayiṣyate.
 
 *yasya*—of whom (Lord Ṛṣabhadeva); *kila anucaritam*—pastimes as a *paramahaṁsa,* above all regulative *varṇāśrama* principles; *upākarṇya*—hearing; *koṅka-veṅka-kuṭakānām*—of Koṅka, Veṅka and Kuṭaka; *rājā*—the King; *arhat-nāma*—whose name was Arhat (now known as the Jain); *upaśikṣya*—imitating the activities of Lord Ṛṣabhadeva in His *paramahaṁsa* feature; *kalau*—in this age of Kali; *adharme utkṛṣyamāṇe*—because of increasing irreligious life; *bhavitavyena*—by that which was about to happen; *vimohitaḥ*—bewildered; *sva-dharma-patham*—the path of religion; *akutaḥ-bhayam*—which is free from all kinds of fearful danger; *apahāya*—giving up (such practices as cleanliness, truthfulness, control of the senses and mind, simplicity, the principles of religion, and practical application of knowledge); *ku-patha-pākhaṇḍam*—the wrong path of atheism; *asamañjasam*—improper or against the Vedic literature; *nija-manīṣayā*—by his own fertile brain; *mandaḥ*—most foolish; *sampravartayiṣyate*—will introduce.

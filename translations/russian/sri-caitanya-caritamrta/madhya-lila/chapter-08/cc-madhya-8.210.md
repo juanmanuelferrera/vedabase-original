@@ -1,5 +1,8 @@
 ### CC Madhya 8.210
 
+> কৃষ্ণলীলামৃত যদি লতাকে সিঞ্চয় ।
+> নিজ-সুখ হৈতে পল্লবাদ্যের কোটি-সুখ হয় ॥২১০॥
+
 > kṛṣṇa-līlāmṛta yadi latāke siñcaya
 > nija-sukha haite pallavādyera koṭi-sukha haya
 

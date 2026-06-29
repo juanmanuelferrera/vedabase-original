@@ -1,5 +1,7 @@
 ### CC Madhya 23.32
 
+> নাম-গানে সদা রুচি, লয় কৃষ্ণনাম ॥৩২॥
+
 > nāma-gāne sadā ruci, laya kṛṣṇa-nāma
 
 *nāma-gāne*—al cantar los santos nombres; *sadā*—constantemente; *ruci*—gusto, disfrute; *laya*—toma; *kṛṣṇa-nāma*—el mahā-mantra Hare Kṛṣṇa.

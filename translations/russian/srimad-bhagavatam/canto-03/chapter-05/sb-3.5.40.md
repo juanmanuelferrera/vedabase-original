@@ -1,5 +1,8 @@
 ### SB 3.5.40
 
+> धातर्यदस्मिन्भव ईश जीवास्तापत्रयेणाभिहता न शर्म ।
+> आत्मन्लभन्ते भगवंस्तवाङ्घ्रि च्छायां सविद्यामत आश्रयेम ॥४०॥
+
 > dhātar yad asmin bhava īśa jīvās
 > tāpa-trayeṇābhihatā na śarma
 > ātman labhante bhagavaṁs tavāṅghri-

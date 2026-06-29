@@ -1,5 +1,8 @@
 ### SB 8.24.53
 
+> तं त्वामहं देववरं वरेण्यं प्रपद्य ईशं प्रतिबोधनाय
+> छिन्ध्यर्थदीपैर्भगवन्वचोभिर्ग्रन्थीन्हृदय्यान्विवृणु स्वमोकः ॥५३॥
+
 tvaṁ tvām ahaṁ deva-varaṁ vareṇyaṁ
 prapadya īśaṁ pratibodhanāya
 chindhy artha-dīpair bhagavan vacobhir

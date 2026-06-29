@@ -1,5 +1,8 @@
 ### CC Madhya 8.239
 
+> যৈছে শুনিলুঁ, তৈছে দেখিলুঁ তোমার মহিমা ।
+> রাধাকৃষ্ণ-প্রেমরস-জ্ঞানের তুমি সীমা ॥২৩৯॥
+
 > yaiche śuniluṅ, taiche dekhiluṅ tomāra mahimā
 > rādhā-kṛṣṇa-premarasa-jñānera tumi sīmā
 

@@ -1,5 +1,8 @@
 ### SB 3.4.10
 
+> तस्यानुरक्तस्य मुनेर्मुकुन्दः प्रमोदभावानतकन्धरस्य ।
+> आशृण्वतो मामनुरागहास समीक्षया विश्रमयन्नुवाच ॥१०॥
+
 > tasyānuraktasya muner mukundaḥ
 > pramoda-bhāvānata-kandharasya
 > āśṛṇvato mām anurāga-hāsa-

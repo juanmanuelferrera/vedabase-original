@@ -1,5 +1,8 @@
 ### CC Madhya 17.16
 
+> প্রথমেই তোমা-সঙ্গে আইলা গৌড় হৈতে ।
+> ইঁহার ইচ্ছা আছে ‘সর্বতীর্থ’ করিতে ॥১৬॥
+
 prathamei tomā-saṅge āilā gauḍa haite
 iṅhāra icchā āche 'sarva-tīrtha' karite
 

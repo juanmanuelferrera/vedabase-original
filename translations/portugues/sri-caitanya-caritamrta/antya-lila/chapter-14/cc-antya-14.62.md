@@ -1,5 +1,8 @@
 ### CC Antya 14.62
 
+> সিংহদ্বারের উত্তর-দিশায় আছে এক ঠাঞি ।
+> তার মধ্যে পড়ি’ আছেন চৈতন্য-গোসাঞি ॥৬২॥
+
 siṁha-dvārera uttara-diśāya āche eka ṭhāñi
 
 tāra madhye paḍi' āchena caitanya-gosāñi

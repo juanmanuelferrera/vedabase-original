@@ -1,5 +1,8 @@
 ### Bg 2.56
 
+> दुःखेष्वनुद्विग्नमनाः सुखेषु विगतस्पृहः ।
+> वीतरागभयक्रोधः स्थितधीर्मुनिरुच्यते ॥५६॥
+
 > duḥkheṣv anudvigna-manāḥ
 > sukheṣu vigata-spṛhaḥ
 > vīta-rāga-bhaya-krodhaḥ

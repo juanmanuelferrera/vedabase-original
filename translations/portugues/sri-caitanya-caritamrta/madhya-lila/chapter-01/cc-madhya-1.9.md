@@ -1,5 +1,8 @@
 ### CC Madhya 1.9
 
+> অতএব তার আমি সূত্রমাত্র কৈলুঁ ।
+> যে কিছু বিশেষ, সূত্রমধ্যেই কহিলুঁ ॥৯॥
+
 ataeva tāra āmi sūtra-mātra kailuṅ
 ye kichu viśeṣa, sūtra-madhyei kahiluṅ
 

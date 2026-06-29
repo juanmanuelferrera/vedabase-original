@@ -1,5 +1,8 @@
 ### CC Madhya 13.94
 
+> নৃত্যাবেশে শ্রীনিবাস কিছুই না জানে  ।
+> বার বার ঠেলে, তেঁহো ক্রোধ হৈল মনে ॥৯৪॥
+
 > nṛtyāveśe śrīnivāsa kichui nā jāne
 > bāra bāra ṭhele, teṅho krodha haila mane
 

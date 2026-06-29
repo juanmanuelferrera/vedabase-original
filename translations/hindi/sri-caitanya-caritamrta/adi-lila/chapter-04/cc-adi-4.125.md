@@ -1,5 +1,10 @@
 ### CC Adi 4.125
 
+> কস্মাদ্বৃন্দে প্রিয়সখি হরেঃ পাদমূলাৎ কুতোঽসৌ
+> কুণ্ডারণ্যে কিমিহ কুরুতে নৃত্যশিক্ষাং গুরুঃ কঃ ।
+> তং ত্বন্মূর্তিঃ প্রতিতরুলতং দিগ্বিদিক্ষু স্ফুরন্তী
+> শৈলূষীব ভ্রমতি পরিতো নর্তয়ন্তী স্ব-পশ্চাৎ ॥১২৫॥
+
 > kasmād vṛnde priya-sakhi hareḥ pāda-mūlāt kuto 'sau
 > kuṇḍāraṇye kim iha kurute nṛtya-śikṣāṁ guruḥ kaḥ
 > taṁ tvan-mūrtiḥ prati-taru-lataṁ dig-vidikṣu sphurantī

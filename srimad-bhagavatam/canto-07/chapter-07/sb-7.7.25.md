@@ -1,5 +1,8 @@
 ### SB 7.7.25
 
+> बुद्धेर्जागरणं स्वप्नः सुषुप्तिरिति वृत्तयः
+> ता येनैवानुभूयन्ते सोऽध्यक्षः पुरुषः परः ॥२५॥
+
 > buddher jāgaraṇaṁ svapnaḥ
 > suṣuptir iti vṛttayaḥ
 > tā yenaivānubhūyante

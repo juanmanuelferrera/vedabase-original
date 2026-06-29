@@ -1,5 +1,8 @@
 ### CC Madhya 15.149
 
+> রঘুনাথের পায় মুঞি বেচিয়াছোঁ মাথা  ।
+> কাঢ়িতে না পারি মাথা, মনে পাই ব্যথা ॥১৪৯॥
+
 > raghunāthera pāya muñi veciyāchoṅ māthā
 > kāḍhite nā pāri māthā, mane pāi vyathā
 

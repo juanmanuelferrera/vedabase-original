@@ -1,5 +1,8 @@
 ### CC Madhya 23.57
 
+> ‘রূঢ়’, ‘অধিরূঢ়’ ভাব — কেবল ‘মধুরে’ ।
+> মহিষীগণের ‘রূঢ়’, ‘অধিরূঢ়’ গোপিকা-নিকরে ॥৫৭॥
+
 > 'rūḍha', 'adhirūḍha' bhāva—kevala 'madhure'
 > mahiṣī-gaṇera 'rūḍha', 'adhirūḍha' gopikā-nikare
 

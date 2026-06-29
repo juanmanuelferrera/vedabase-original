@@ -1,5 +1,8 @@
 ### CC Madhya 19.132
 
+> এইকথা শুনি’ মহান্তের মহাসুখ হয় ।
+> চৈতন্যের কৃপা যাঁহে, তাঁহে কি বিস্ময় ? ॥ ১৩২ ॥
+
 ei-kathā śuni' mahāntera mahā-sukha haya
 
 caitanyera kṛpā yāṅhe, tāṅhe ki vismaya?

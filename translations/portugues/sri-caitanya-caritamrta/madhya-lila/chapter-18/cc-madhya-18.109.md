@@ -1,5 +1,8 @@
 ### CC Madhya 18.109
 
+> প্রভু কহে, — ‘কাহাঁ পাইলা কৃষ্ণ দরশন ?’
+> লোক কহে, — ‘সন্ন্যাসী তুমি জঙ্গম-নারায়ণ ॥১০৯॥
+
 prabhu kahe,--'kāhāṅ pāilā 'kṛṣṇa daraśana?'
 
 loka kahe,--'sannyāsī tumi jaṅgama-nārāyaṇa

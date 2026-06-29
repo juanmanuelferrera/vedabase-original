@@ -1,5 +1,8 @@
 ### CC Antya 4.21
 
+> বলাৎকারে প্রভু তাঁরে আলিঙ্গন কৈল ।
+> কণ্ডুক্লেদ মহাপ্রভুর শ্রীঅঙ্গে লাগিল ॥২১॥
+
 > balātkāre prabhu tāṅre āliṅgana kaila
 > kaṇḍu-kleda mahāprabhura śrī-aṅge lāgila
 

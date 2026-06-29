@@ -1,5 +1,8 @@
 ### CC Adi 1.99
 
+> এক ভাগবত বড় — ভাগবত-শাস্ত্র ।
+> আর ভাগবত — ভক্ত ভক্তি-রস-পাত্র ॥৯৯॥
+
 > eka bhāgavata baḍa—bhāgavata-śāstra
 > āra bhāgavata—bhakta bhakti-rasa-pātra
 

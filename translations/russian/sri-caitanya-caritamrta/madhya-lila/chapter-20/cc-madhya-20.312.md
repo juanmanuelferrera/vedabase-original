@@ -1,5 +1,8 @@
 ### CC Madhya 20.312
 
+> শিবঃ শক্তিযুক্তঃ শশ্বৎ ত্রিলিঙ্গো গুণসংবৃতঃ ।
+> বৈকারিকস্তৈজসশ্চ তামসশ্চেত্যহং ত্রিধা ॥৩১২॥
+
 > śivaḥ śakti-yuktaḥ śaśvat
 > triliṅgo guṇa-saṁvṛtaḥ
 > vaikārikas taijasaś ca

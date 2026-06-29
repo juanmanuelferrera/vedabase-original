@@ -1,5 +1,8 @@
 ### CC Madhya 16.286
 
+> সেই দিন গদাধর কৈল নিমন্ত্রণ ।
+> তাহাঁ ভিক্ষা কৈল প্রভু লঞা ভক্তগণ ॥২৮৬॥
+
 > sei dina gadādhara kaila nimantraṇa
 > tāhāṅ bhikṣā kaila prabhu lañā bhakta-gaṇa
 

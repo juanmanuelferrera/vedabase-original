@@ -1,5 +1,8 @@
 ### CC Madhya 4.188
 
+> বহু পরিশ্রমে চন্দন রেমুণা আনিল ।
+> আনন্দ বাড়িল মনে, দুঃখ না গণিল ॥১৮৮॥
+
 > bahu pariśrame candana remuṇā ānila
 > ānanda bāḍila mane, duḥkha nā gaṇila
 

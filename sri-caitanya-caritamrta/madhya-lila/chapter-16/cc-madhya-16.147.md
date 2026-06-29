@@ -1,5 +1,8 @@
 ### CC Madhya 16.147
 
+> এইমত কহি’ তাঁরে প্রবোধ করিলা ।
+> দুইজনে শোকাকুল নীলাচলে আইলা ॥১৪৭॥
+
 > ei-mata kahi' tāṅre prabodha karilā
 > dui-jane śokākula nīlācale āilā
 

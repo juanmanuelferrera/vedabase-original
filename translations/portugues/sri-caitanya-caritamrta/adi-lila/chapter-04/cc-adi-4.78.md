@@ -1,5 +1,8 @@
 ### CC Adi 4.78
 
+> লক্ষ্মীগণ তাঁর বৈভব-বিলাসাংশরূপ ।
+> মহিষীগণ বৈভব-প্রকাশস্বরূপ ॥৭৮॥
+
 laksmī-gaṇa tāṅra vaibhava-vilāsāṁśa-rūpa
 mahiṣī-gaṇa vaibhava-prakāśa-svarūpa
 

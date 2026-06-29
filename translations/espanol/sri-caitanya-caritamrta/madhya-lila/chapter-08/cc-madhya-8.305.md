@@ -1,5 +1,8 @@
 ### CC Madhya 8.305
 
+> rādhā-kṛṣṇa-līlā—tāte karpūra-milana
+> bhāgyavān yei, sei kare āsvādana
+
 > rādhā-kṛṣṇa-līlā--tāte karpūra-milana
 > bhāgyavān yei, sei kare āsvādana
 

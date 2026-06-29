@@ -1,5 +1,8 @@
 ### CC Antya 1.70
 
+> পূর্বে দুই নাটক ছিল একত্র রচনা ।
+> দুইভাগ করি এবে করিমু ঘটনা ॥৭০॥
+
 > pūrve dui nāṭaka chila ekatra racanā
 > dui-bhāga kari ebe karimu ghaṭanā
 

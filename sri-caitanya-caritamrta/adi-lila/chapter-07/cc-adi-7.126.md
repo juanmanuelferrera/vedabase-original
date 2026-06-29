@@ -1,5 +1,8 @@
 ### CC Adi 7.126
 
+> নানা রত্নরাশি হয় চিন্তামণি হৈতে ।
+> তথাপিহ মণি রহে স্বরূপে অবিকৃতে ॥১২৬॥
+
 > nānā ratna-rāśi haya cintāmaṇi haite
 > tathāpiha maṇi rahe svarūpe avikṛte
 

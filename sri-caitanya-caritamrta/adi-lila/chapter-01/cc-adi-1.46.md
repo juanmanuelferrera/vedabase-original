@@ -1,5 +1,8 @@
 ### CC Adi 1.46
 
+> আচার্যং মাং বিজানীয়ান্নাবমন্যেত কর্হিচিৎ ।
+> ন মর্ত্যবুদ্ধ্যাসূয়েত সর্বদেবময়ো গুরুঃ ॥৪৬॥
+
 > ācāryaṁ māṁ vijānīyān
 > nāvamanyeta karhicit
 > na martya-buddhyāsūyeta

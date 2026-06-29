@@ -1,5 +1,8 @@
 ### CC Antya 5.156
 
+> তবে সেই কবি সবার চরণে পড়িয়া ।
+> সবার শরণ লৈল দন্তে তৃণ লঞা ॥১৫৬॥
+
 tabe sei kavi sabāra caraṇe paḍiyā
 
 sabāra śaraṇa laila dante tṛṇa lañā

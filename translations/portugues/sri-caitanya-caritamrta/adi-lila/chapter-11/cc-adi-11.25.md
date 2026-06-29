@@ -1,5 +1,8 @@
 ### CC Adi 11.25
 
+> সূর্যদাস সরখেল, তাঁর ভাই কৃষ্ণদাস ।
+> নিত্যানন্দে দৃঢ় বিশ্বাস, প্রেমের নিবাস ॥২৫॥
+
 sūryadāsa sarakhela, tāṅra bhāi kṛṣṇadāsa
 nityānande dṛḍha viśvāsa, premera nivāsa
 

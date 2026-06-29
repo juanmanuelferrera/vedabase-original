@@ -1,5 +1,8 @@
 ### CC Adi 10.55
 
+> প্রতিবর্ষে প্রভুগণ সঙ্গেতে লইয়া ।
+> নীলাচলে চলেন পথে পালন করিয়া ॥৫৫॥
+
 > prativarṣe prabhu-gaṇa saṅgete lā-iyā
 > nīlācale calena pathe pālana kariyā
 

@@ -1,5 +1,8 @@
 ### CC Adi 16.25
 
+> তবে বিষ্ণুপ্রিয়া-ঠাকুরাণীর পরিণয় ।
+> তবে ত’ করিল প্রভু দিগ্বিজয়ী জয় ॥২৫॥
+
 > tabe viṣṇupriyā-ṭhākurāṇīra pariṇaya
 > tabe ta' karila prabhu digvijayī jaya
 

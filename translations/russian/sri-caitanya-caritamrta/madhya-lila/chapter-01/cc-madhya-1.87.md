@@ -1,5 +1,8 @@
 ### CC Madhya 1.87
 
+> রাধিকা-উন্মাদ যৈছে উদ্ধব-দর্শনে ।
+> উদ্ঘূর্ণা-প্রলাপ তৈছে প্রভুর রাত্রি-দিনে ॥৮৭॥
+
 > rādhikā-unmāda yaiche uddhava-darśane
 > udghūrṇā-pralāpa taiche prabhura rātri-dine
 

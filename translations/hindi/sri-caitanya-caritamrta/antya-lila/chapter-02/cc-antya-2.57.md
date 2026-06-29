@@ -1,5 +1,8 @@
 ### CC Antya 2.57
 
+> যে চাহিয়ে, তাহা কর হঞা তৎপর ।
+> অতি ত্বরায় করিব পাক, শুন অতঃপর ॥৫৭॥
+
 > ye cāhiye, tāhā kara hañā tat-para
 > ati tvarāya kariba pāka, śuna ataḥpara
 

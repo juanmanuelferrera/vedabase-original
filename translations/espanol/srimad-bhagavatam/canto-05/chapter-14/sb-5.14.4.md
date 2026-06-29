@@ -1,5 +1,7 @@
 ### SB 5.14.4
 
+> यथा ह्यनुवत्सरं कृष्यमाणमप्यदग्धबीजं क्षेत्रं पुनरेवावपनकाले गुल्मतृणवीरुद्भिर्गह्वरमिव भवत्येवमेव गृहाश्रमः कर्मक्षेत्रं यस्मिन्न हि कर्माण्युत्सीदन्तियदयं कामकरण्ड एष आवसथः ॥४॥
+
 > yathā hy anuvatsaraṁ kṛṣyamāṇam apy adagdha-bījaṁ kṣetraṁ punar evāvapana-kāle gulma-tṛṇa-vīrudbhir gahvaram iva bhavaty evam eva gṛhāśramaḥ karma-kṣetraṁ yasmin na hi karmāṇy utsīdanti yad ayaṁ kāma-karaṇḍa eṣa āvasathaḥ.
 
 *yathā*—tal como; *hi*—ciertamente; *anuvatsaram*—cada año; *kṛṣyamāṇam*—arado; *api*—aunque; *adagdha-bījam*—en el cual no han sido quemadas las semillas; *kṣetram*—el campo; *punaḥ*—de nuevo; *eva*—ciertamente; *āvapana-kāle*—en la época de la siembra; *gulma*—con malezas; *tṛṇa*—con hierbas; *vīrudbhiḥ*—con las enredaderas; *gahvaram iva*—como una enramada; *bhavati*—se vuelve; *evam*—así; *eva*—ciertamente; *gṛha-āśramaḥ*—la vida familiar; *karma-kṣetram*—el campo de actividades; *yasmin*—en el cual; *na*—no; *hi*—ciertamente; *karmāṇi utsīdanti*—las actividades fruitivas desaparecen; *yat*—por lo tanto; *ayam*—este; *kāma-karaṇḍaḥ*—el almacén de los deseos fruitivos; *eṣaḥ*—esa; *āvasathaḥ*—morada.

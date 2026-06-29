@@ -1,5 +1,8 @@
 ### CC Madhya 8.278
 
+> রায় কহে, — প্ৰভু তুমি ছাড় ভারিভূরি ।
+> মোর আগে নিজরূপ না করিহ চুরি ॥২৭৮॥
+
 > rāya kahe,—prabhu tumi chāḍa bhāri-bhūri
 > mora āge nija-rūpa nā kariha curi
 

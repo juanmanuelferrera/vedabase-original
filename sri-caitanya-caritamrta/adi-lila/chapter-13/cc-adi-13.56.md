@@ -1,5 +1,8 @@
 ### CC Adi 13.56
 
+> শ্রীহট্ট-নিবাসী শ্রীউপেন্দ্রমিশ্র-নাম ।
+> বৈষ্ণব, পণ্ডিত, ধনী, সদ্গুণ-প্রধান ॥৫৬॥
+
 > śrīhaṭṭa-nivāsī śrī-upendra-miśra-nāma
 > vaiṣṇava, paṇḍita, dhanī, sad-guṇa-pradhāna
 

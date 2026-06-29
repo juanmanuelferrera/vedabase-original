@@ -1,5 +1,8 @@
 ### SB 8.5.35
 
+> अग्निर्मुखं यस्य तु जातवेदा जातः क्रियाकाण्डनिमित्तजन्मा
+> अन्तःसमुद्रेऽनुपचन्स्वधातून्प्रसीदतां नः स महाविभूतिः ॥३५॥
+
 > agnir mukhaṁ yasya tu jāta-vedā
 > jātaḥ kriyā-kāṇḍa-nimitta-janmā
 > antaḥ-samudre 'nupacan sva-dhātūn

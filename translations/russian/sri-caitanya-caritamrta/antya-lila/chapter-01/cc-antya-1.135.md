@@ -1,5 +1,7 @@
 ### CC Antya 1.135
 
+> আক্ষিপ্তঃ কালসাম্যেন প্রবেশঃ স্যাৎ প্রবর্তকঃ ॥১৩৫॥
+
 > ākṣiptaḥ kāla-sāmyena
 > praveśaḥ syāt pravartakaḥ
 

@@ -1,5 +1,8 @@
 ### CC Madhya 12.121
 
+> মন্দিরের চতুর্দিক্ প্রক্ষালন কৈল ।
+> সব অন্তঃপুর ভালমতে ধোয়াইল ॥১২১॥
+
 > mandirera catur-dik prakṣālana kaila
 > saba antaḥpura bhāla-mate dhoyāila
 

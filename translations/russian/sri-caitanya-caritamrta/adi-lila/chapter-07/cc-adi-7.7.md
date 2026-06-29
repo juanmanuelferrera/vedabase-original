@@ -1,5 +1,8 @@
 ### CC Adi 7.7
 
+> স্বয়ং ভগবান্ কৃষ্ণ একলে ঈশ্বর ।
+> অদ্বিতীয়, নন্দাত্মজ, রসিক-শেখর ॥৭॥
+
 > svayaṁ bhagavān kṛṣṇa ekale īśvara
 > advitīya, nandātmaja, rasika-śekhara
 

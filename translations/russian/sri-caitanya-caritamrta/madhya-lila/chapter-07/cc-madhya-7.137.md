@@ -1,5 +1,8 @@
 ### CC Madhya 7.137
 
+> অঙ্গ হৈতে যেই কীড়া খসিয়া পড়য় ।
+> উঠাঞা সেই কীড়া রাখে সেই ঠাঞ ॥১৩৭॥
+
 > aṅga haite yei kīḍā khasiyā paḍaya
 > uṭhāñā sei kīḍā rākhe sei ṭhāña
 

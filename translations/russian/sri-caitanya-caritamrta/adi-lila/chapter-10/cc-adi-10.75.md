@@ -1,5 +1,8 @@
 ### CC Adi 10.75
 
+> গরুড় পণ্ডিত লয় শ্রীনাম-মঙ্গল ।
+> নাম-বলে বিষ যাঁরে না করিল বল ॥৭৫॥
+
 > garuḍa paṇḍita laya śrīnāma-maṅgala
 > nāma-bale viṣa yāṅre nā karila bala
 

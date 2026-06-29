@@ -1,5 +1,8 @@
 ### CC Madhya 20.366
 
+> প্রভু কহে, — চতুরালি ছাড়, সনাতন ।
+> শক্ত্যাবেশাবতারের শুন বিবরণ ॥৩৬৬॥
+
 > prabhu kahe,—caturāli chāḍa, sanātana
 > śaktyāveśāvatārera śuna vivarana
 

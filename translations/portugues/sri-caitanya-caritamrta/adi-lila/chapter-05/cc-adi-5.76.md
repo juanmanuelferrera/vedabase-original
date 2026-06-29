@@ -1,5 +1,8 @@
 ### CC Adi 5.76
 
+> গর্ভোদ-ক্ষীরোদশায়ী দোঁহে ‘পুরুষ’ নাম ।
+> সেই দুই, যাঁর অংশ, — বিষ্ণু, বিশ্বধাম ॥৭৬॥
+
 garbhoda-kṣīroda-śāyī doṅhe 'puruṣa' nāma
 sei dui, yāṅra aṁśa,--viṣṇu, viśva-dhāma
 

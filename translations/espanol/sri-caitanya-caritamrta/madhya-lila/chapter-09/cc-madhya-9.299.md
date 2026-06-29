@@ -1,5 +1,8 @@
 ### CC Madhya 9.299
 
+> তাঁর এক যোগ্য পুত্র করিয়াছে সন্ন্যাস ৷
+> ‘শঙ্করারণ্য’ নাম তাঁর অল্প বয়স ৷৷ ২৯৯ ৷৷ ॥২৯৯॥
+
 > tāṅra eka yogya putra kariyāche sannyāsa
 > 'śaṅkarāraṇya' nāma tāṅra alpa vayasa
 

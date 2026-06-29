@@ -1,5 +1,8 @@
 ### CC Madhya 11.229
 
+> মধ্যে রহি’ মহাপ্রভু করেন দরশন ৷
+> তাহাঁ এক ঐশ্বর্য তাঁর হইল প্রকটন ৷৷ ২২৯ ৷৷ ॥২২৯॥
+
 > madhye rahi' mahāprabhu karena daraśana
 > tāhāṅ eka aiśvarya tāṅra ha-ila prakaṭana
 

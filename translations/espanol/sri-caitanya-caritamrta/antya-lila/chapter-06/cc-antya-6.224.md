@@ -1,5 +1,8 @@
 ### CC Antya 6.224
 
+> বৈরাগী হঞা যেবা করে পরাপেক্ষা ।
+> কার্যসিদ্ধি নহে, কৃষ্ণ করেন উপেক্ষা ॥২২৪॥
+
 > vairāgī hañā yebā kare parāpeksā
 > kārya-siddhi nahe, kṛṣṇa karena upekṣā
 

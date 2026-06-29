@@ -1,5 +1,8 @@
 ### CC Adi 1.63
 
+> ভবদ্বিধা ভাগবতাস্তীর্থভূতাঃ স্বয়ং বিভো ।
+> তীর্থীকূর্বন্তি তীর্থানি স্বান্তঃস্থেন গদাভৃতা ॥৬৩॥
+
 > bhavad-vidhā bhāgavatās
 > tīrtha-bhūtāḥ svayaṁ vibho
 > tīrthī-kurvanti tīrthāni

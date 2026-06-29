@@ -1,5 +1,8 @@
 ### SB 9.22.7
 
+> जज्ञए सत्यहितोऽपत्यं पुष्पवांस्तत्सुतो जहुः
+> अन्यस्यामपि भार्यायां शकले द्वे बृहद्रथात ॥७॥
+
 > bṛhadrathāt kuśāgro 'bhūd
 > ṛṣabhas tasya tat-sutaḥ
 > jajñe satyahito 'patyaṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 14.250
 
+> এত বলি’ দিল তাঁরে ছিণ্ডা পট্টডোরী ।
+> ইহা দেখি’ করিবে ডোরী অতি দৃঢ় করি’ ॥২৫০॥
+
 eta bali' dila tāṅre chiṇḍā paṭṭa-ḍorī
 
 ihā dekhi' karibe ḍorī ati dṛḍha kari'

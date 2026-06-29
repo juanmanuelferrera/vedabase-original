@@ -1,5 +1,8 @@
 ### CC Adi 3.17
 
+> ঐশ্বর্যজ্ঞানে বিধি-ভজন করিয়া ।
+> বৈকুণ্ঠকে যায় চতুর্বিধ মুক্তি পাঞা ॥১৭॥
+
 aiśvarya-jñāne vidhi-bhajana kariyā
 vaikuṇṭhake yāya catur-vidha mukti pāñā
 

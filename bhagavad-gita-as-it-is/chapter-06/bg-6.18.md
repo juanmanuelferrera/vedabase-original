@@ -1,5 +1,8 @@
 ### Bg 6.18
 
+> यदा विनियतं चित्तमात्मन्येवावतिष्ठते ।
+> निःस्पृहः सर्वकामेभ्यो युक्त इत्युच्यते तदा ॥१८॥
+
 > yadā viniyataṁ cittam
 > ātmany evāvatiṣṭhate
 > nispṛhaḥ sarva-kāmebhyo

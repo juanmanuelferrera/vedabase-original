@@ -1,5 +1,8 @@
 ### CC Antya 13.36
 
+> মথুরা গেলে সনাতন-সঙ্গেই রহিবা ।
+> মথুরার স্বামী সবের চরণ বন্দিবা ॥৩৬॥
+
 > mathurā gele sanātana-saṅgei rahibā
 > mathurāra svāmī sabera caraṇa vandibā
 

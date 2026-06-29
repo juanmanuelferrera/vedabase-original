@@ -1,5 +1,8 @@
 ### SB 5.10.23
 
+> शास्ताभिगोप्ता नृपतिः प्रजानां यः किङ्करो वै न पिनष्टि पिष्टम
+> स्वधर्ममाराधनमच्युतस्य यदीहमानो विजहात्यघौघम ॥२३॥
+
 > śāstābhigoptā nṛpatiḥ prajānāṁ
 > yaḥ kiṅkaro vai na pinaṣṭi piṣṭam
 > sva-dharmam ārādhanam acyutasya

@@ -1,5 +1,8 @@
 ### CC Madhya 4.164
 
+> ইঁহাকে চন্দন দিলে, গোপাল হইবে শীতল ।
+> স্বতন্ত্র ঈশ্বর — তাঁর আজ্ঞা সে প্রবল ॥১৬৪॥
+
 > iṅhāke candana dile, gopāla ha-ibe śītala
 > svatantra īśvara--tāṅra ājñā se prabala
 

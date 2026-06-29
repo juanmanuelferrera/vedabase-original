@@ -1,5 +1,8 @@
 ### CC Madhya 5.80
 
+> পুত্রের মনে, — ‘প্রতিমা না আসিবে সাক্ষী দিতে ।’
+> এই বুদ্ধ্যে দুইজন হইলা সম্মতে ॥৮০॥
+
 > putrera mane,—'pratimā nā āsibe sākṣī dite'
 > ei buddhye dui-jana ha-ilā sammate
 

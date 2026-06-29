@@ -1,5 +1,8 @@
 ### CC Madhya 24.33
 
+> সখাগণের রতি হয় ‘অনুরাগ’ পর্যন্ত ।
+> পিতৃ-মাতৃ-স্নেহ আদি ‘অনুরাগ’-অন্ত ॥৩৩॥
+
 sakhā-gaṇera rati haya 'anurāga' paryanta
 
 pitṛ-mātṛ-sneha ādi 'anurāga'-anta

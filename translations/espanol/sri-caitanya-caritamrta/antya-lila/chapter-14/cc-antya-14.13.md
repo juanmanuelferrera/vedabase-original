@@ -1,5 +1,8 @@
 ### CC Antya 14.13
 
+> উদ্ধব-দর্শনে যৈছে রাধার বিলাপ ।
+> ক্রমে ক্রমে হৈল প্রভুর সে উন্মাদ-বিলাপ ॥১৩॥
+
 > uddhava-darśane yaiche rādhāra vilāpa
 > krame krame haila prabhura se unmāda-vilāpa
 

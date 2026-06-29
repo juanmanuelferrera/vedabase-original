@@ -1,5 +1,8 @@
 ### CC Adi 5.9
 
+> আপনে করেন কৃষ্ণলীলার সহায় ।
+> সৃষ্টিলীলা-কার্য করে ধরি’ চারি কায় ॥৯॥
+
 > āpane karena kṛṣṇa-līlāra sahāya
 > sṛṣṭi-līlā-kārya kare dhari' cāri kāya
 

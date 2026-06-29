@@ -1,5 +1,8 @@
 ### CC Madhya 14.34
 
+> লেম্বু-কুল-আদি নানা-প্রকার আচার ।
+> লিখিতে না পারি প্রসাদ কতেক প্রকার ॥৩৪॥
+
 > lembu-kula-ādi nānā-prakāra ācāra
 > likhite nā pāri prasāda kateka prakāra
 

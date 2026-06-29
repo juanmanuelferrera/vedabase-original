@@ -1,5 +1,8 @@
 ### SB 4.15.11
 
+> तस्याभिषेक आरब्धो ब्राह्मणैर्ब्रह्मवादिभिः ।
+> आभिषेचनिकान्यस्मै आजह्रुः सर्वतो जनाः ॥११॥
+
 > tasyābhiṣeka ārabdho
 > brāhmaṇair brahma-vādibhiḥ
 > ābhiṣecanikāny asmai

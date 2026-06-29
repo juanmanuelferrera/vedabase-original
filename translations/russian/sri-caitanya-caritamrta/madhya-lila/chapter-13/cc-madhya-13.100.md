@@ -1,5 +1,8 @@
 ### CC Madhya 13.100
 
+> সুভদ্রা-বলরামের হৃদয়ে উল্লাস ।
+> নৃত্য দেখি’ দুই জনার শ্রীমুখেতে হাস ॥১০০॥
+
 > subhadrā-balarāmera hṛdaye ullāsa
 > nṛtya dekhi' dui janāra śrī-mukhete hāsa
 

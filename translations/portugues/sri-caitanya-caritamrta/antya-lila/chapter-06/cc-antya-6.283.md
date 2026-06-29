@@ -1,5 +1,8 @@
 ### CC Antya 6.283
 
+> স্বরূপ কহে, — “সিংহদ্বারে দুঃখ অনুভবিয়া ।
+> ছত্রে মাগি’ খায় মধ্যাহ্নকালে গিয়া ।।” ॥ ২৮৩ ॥
+
 svarūpa kahe,--"siṁha-dvāre duḥkha anubhaviyā
 
 chatre māgi' khāya madhyāhna-kāle giyā"

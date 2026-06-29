@@ -1,5 +1,8 @@
 ### CC Madhya 16.75
 
+> ক্রম করি’ কহে প্রভু ‘বৈষ্ণব’-লক্ষণ ।
+> ‘বৈষ্ণব’, ‘বৈষ্ণবতর’, আর ‘বৈষ্ণবতম’ ॥৭৫॥
+
 > krama kari' kahe prabhu 'vaiṣṇava'-lakṣaṇa
 > 'vaiṣṇava', 'vaiṣṇavatara', āra 'vaiṣṇavatama'
 

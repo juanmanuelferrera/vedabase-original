@@ -1,5 +1,8 @@
 ### SB 1.19.15
 
+> तं मोपयातं प्रतियन्तु विप्रा गङ्गा च देवी धृतचित्तमीशे ।
+> द्विजोपसृष्टः कुहकस्तक्षको वा दशत्वलं गायत विष्णुगाथाः ॥१५॥
+
 > taṁ mopayātaṁ pratiyantu viprā
 > gaṅgā ca devī dhṛta-cittam īśe
 > dvijopasṛṣṭaḥ kuhakas takṣako vā

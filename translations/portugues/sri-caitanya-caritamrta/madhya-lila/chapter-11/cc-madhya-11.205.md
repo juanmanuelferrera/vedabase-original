@@ -1,5 +1,8 @@
 ### CC Madhya 11.205
 
+> নিত্যানন্দ লঞা ভিক্ষা করিতে বৈস তুমি ৷
+> বৈষ্ণবের পরিবেশন করিতেছি আমি ৷৷ ২০৫ ৷৷ ॥২০৫॥
+
 nityānanda lañā bhikṣā karite vaisa tumi
 
 vaiṣṇavera pariveśana karitechi āmi

@@ -1,5 +1,8 @@
 ### CC Adi 4.98
 
+> রাধাকৃষ্ণ ঐছে সদা একই স্বরূপ ।
+> লীলারস আস্বাদিতে ধরে দুইরূপ ॥৯৮॥
+
 rādhā-kṛṣṇa aiche sadā eka-i svarūpa
 līlā-rasa āsvādite dhare dui-rūpa
 

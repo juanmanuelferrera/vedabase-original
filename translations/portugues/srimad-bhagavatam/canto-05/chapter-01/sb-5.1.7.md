@@ -1,5 +1,7 @@
 ### SB 5.1.7
 
+> अथ ह भगवानादिदेव एतस्य गुणविसर्गस्य परिबृंहणानुध्यानव्यवसितसकलजगदअभिप्राय आत्मयोनिरखिलनिगमनिजगणपरिवेष्टितः स्वभवनादवततार ॥७॥
+
 *atha ha bhagavān ādi*-deva etasya guṇa-visargasya paribṛṁhaṇānudhyāna-vyavasita-sakala-jagad-abhiprāya ātma-yonir akhila-nigama-nija-gaṇa-pariveṣṭitaḥ sva-bhavanād avatatāra.
 
 *atha*—assim; *ha*—de fato; *bhagavān*—o mais poderoso; *ādi-devaḥ*—o primeiro semideus; *etasya*—deste universo; *guṇa-visargasya*—a criação dos três modos da natureza material; *paribṛṁhaṇa*—o bem-estar; *anudhyāna*—sempre pensando em; *vyavasita*—conhecido; *sakala*—todo; *jagat*—do universo; *abhiprāyaḥ*—por quem o propósito último; *ātma*—o Eu Supremo; *yoniḥ*—cuja origem de nascimento; *akhila*—todos; *nigama*—pelos Vedas; *nija-gaṇa*—pelos companheiros pessoais; *pariveṣṭitaḥ*—rodeado; *sva-bhavanāt*—de sua própria morada; *avatatāra*—desceu.

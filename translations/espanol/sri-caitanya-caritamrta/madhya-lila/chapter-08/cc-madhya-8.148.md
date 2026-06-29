@@ -1,5 +1,8 @@
 ### CC Madhya 8.148
 
+> আপন-মাধুর্যে হরে আপনার মন ৷
+> আপনা আপনি চাহে করিতে আলিঙ্গন ৷৷ ১৪৮ ৷৷ ॥১৪৮॥
+
 > āpana-mādhurye hare āpanāra mana
 > āpanā āpani cāhe karite āliṅgana
 

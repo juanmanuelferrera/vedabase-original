@@ -1,5 +1,10 @@
 ### CC Adi 13.106
 
+> অন্তরীক্ষে দেবগণ, গন্ধর্ব, সিদ্ধ, চারণ,
+> স্তুতি-নৃত্য করে বাদ্য-গীত ।
+> নর্তক, বাদক, ভাট, নবদ্বীপে যার নাট,
+> সবে আসি’ নাচে পাঞা প্রীত ॥১০৬॥
+
 > antarīkṣe deva-gaṇa, gandharva, siddha, cāraṇa,
 > stuti-nṛtya kare vādya-gīta
 > nartaka, vādaka, bhāṭa, navadvīpe yāra nāṭa,

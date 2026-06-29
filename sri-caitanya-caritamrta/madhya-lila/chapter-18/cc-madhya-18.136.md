@@ -1,5 +1,8 @@
 ### CC Madhya 18.136
 
+> এই ঘাটে অক্রূর বৈকুণ্ঠ দেখিল ।
+> ব্রজবাসী লোক ‘গোলোক’ দর্শন কৈল ॥১৩৬॥
+
 > ei ghāṭe akrūra vaikuṇṭha dekhila
 > vrajavāsī loka 'goloka' darśana kaila
 

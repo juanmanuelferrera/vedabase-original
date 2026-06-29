@@ -1,5 +1,8 @@
 ### CC Adi 10.140
 
+> গুরুর সম্বন্ধে মান্য কৈল দুঁহাকারে ।
+> তাঁর আজ্ঞা মানি’ সেবা দিলেন দোঁহারে ॥১৪০॥
+
 > gurura sambandhe mānya kaila duṅhākāre
 > tāṅra ājñā māni' sevā dilena doṅhāre
 

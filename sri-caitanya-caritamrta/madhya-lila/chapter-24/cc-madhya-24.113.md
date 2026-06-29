@@ -1,5 +1,8 @@
 ### CC Madhya 24.113
 
+> জন্ম হৈতে শুক-সনকাদি ‘ব্রহ্মময়’ ।
+> কৃষ্ণগুণাকৃষ্ট হঞা কৃষ্ণেরে ভজয় ॥১১৩॥
+
 > janma haite śuka-sanakādi 'brahmamaya'
 > kṛṣṇa-guṇākṛṣṭa hañā kṛṣṇere bhajaya
 

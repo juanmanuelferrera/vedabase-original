@@ -1,5 +1,8 @@
 ### CC Antya 12.96
 
+> নদীয়ার ভক্তগণে সবারে মিলিলা ।
+> জগদানন্দে পাঞা সবে আনন্দিত হৈলা ॥৯৬॥
+
 nadīyāra bhakta-gaṇe sabāre mililā
 
 jagadānande pāñā sabe ānandita hailā

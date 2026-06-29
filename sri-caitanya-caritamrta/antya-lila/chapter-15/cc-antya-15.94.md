@@ -1,5 +1,8 @@
 ### CC Antya 15.94
 
+> ভোজন করাঞা প্রভুরে করাইলা শয়ন ।
+> রামানন্দ-আদি সবে গেলা নিজ-স্থান ॥৯৪॥
+
 > bhojana karāñā prabhure karāilā śayana
 > rāmānanda-ādi sabe gelā nija-sthāna
 

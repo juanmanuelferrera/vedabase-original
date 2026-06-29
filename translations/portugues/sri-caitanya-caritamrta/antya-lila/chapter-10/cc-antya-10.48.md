@@ -1,5 +1,8 @@
 ### CC Antya 10.48
 
+> গৌড়ীয়া-সঙ্কীর্তনে আর রোদন মিলিয়া ।
+> মহাকোলাহল হৈল ব্রহ্মাণ্ড ভরিয়া ॥৪৮॥
+
 gauḍīyā-saṅkīrtane āra rodana miliyā
 
 mahā-kolāhala haila brahmāṇḍa bhariyā

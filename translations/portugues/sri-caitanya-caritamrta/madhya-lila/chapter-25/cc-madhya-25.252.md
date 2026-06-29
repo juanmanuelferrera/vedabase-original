@@ -1,5 +1,8 @@
 ### CC Madhya 25.252
 
+> ত্রয়োদশে — রথ-আগে প্রভুর নর্তন ।
+> চতুর্দশে — ‘হেরাপঞ্চমী’-যাত্রা-দরশন ॥২৫২॥
+
 trayodaśe-ratha-āge prabhura nartana
 
 caturdaśe-'herā-pañcamī'-yātrā-daraśana

@@ -1,5 +1,10 @@
 ### CC Madhya 21.113
 
+> তারুণ্যামৃত — পারাবার, তরঙ্গ — লাবণ্যসার,
+> তাতে সে আবর্ত ভাবোদ্গম ।
+> বংশীধ্বনি — চক্রবাত, নারীর মন — তৃণপাত,
+> তাহা ডুবায়, না হয় উদ্গম ॥১১৩॥
+
 > tāruṇyāmṛta—pārāvāra, taraṅga—lāvaṇya-sāra,
 > tāte se āvarta bhāvodgama
 > vaṁśī-dhvani—cakravāta, nārīra mana—tṛṇa-pāta,

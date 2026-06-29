@@ -1,5 +1,8 @@
 ### SB 2.2.16
 
+> मनः स्वबुद्ध्यामलया नियम्य क्षेत्रज्ञ एतां निनयेत्तमात्मनि ।
+> आत्मानमात्मन्यवरुध्य धीरो लब्धोपशान्तिर्विरमेत कृत्यात् ॥१६॥
+
 manaḥ sva-buddhyāmalayā niyamya
 kṣetra-jña etāṁ ninayet tam ātmani
 ātmānam ātmany avarudhya dhīro

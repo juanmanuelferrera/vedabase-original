@@ -1,5 +1,7 @@
 ### SB 5.26.8
 
+> तत्र यस्तु परवित्तापत्यकलत्राण्यपहरति स हि कालपाशबद्धो यमपुरुषैरतिभयानकैस्तामिस्रे नरके बलान्निपात्यते अनशनानुदपानदण्डताडनसन्तर्जनादिभिर्यातनाभिर्यात्यमानो जन्तुर्यत्र कश्मलमासादित एकदैव मूर्च्छामुपयाति तामिस्रप्राये ॥७॥
+
 > tatra yas tu para-vittāpatya-kalatrāṇy apaharati sa hi kāla-pāśa-baddho yama-puruṣair ati-bhayānakais tāmisre narake balān nipātyate anaśanānudapāna-daṇḍa-tāḍana-santarjanādibhir yātanābhir yātyamāno jantur yatra kaśmalam āsādita ekadaiva mūrcchām upayāti tāmisra-prāye.
 
 *tatra*—in those hellish planets; *yaḥ*—a person who; *tu*—but; *para-vitta-apatya-kalatrāṇi*—the money, wife and children of another; *apaharati*—takes away; *saḥ*—that person; *hi*—certainly; *kāla-pāśa-baddhaḥ*—being bound by the ropes of time or Yamarāja; *yama-puruṣaiḥ*—by the assistants of Yamarāja; *ati-bhayānakaiḥ*—who are very fearful; *tāmisre narake*—into the hell known as Tāmisra; *balāt*—by force; *nipātyate*—is thrown; *anaśana*—starvation; *anudapāna*—without water; *daṇḍa-tāḍana*—beaten with rods; *santarjana-ādibhiḥ*—by scolding and so on; *yātanābhiḥ*—by severe punishments; *yātyamānaḥ*—being punished; *jantuḥ*—the living entity; *yatra*—where; *kaśmalam*—misery; *āsāditaḥ*—obtained; *ekadā*—sometimes; *eva*—certainly; *mūrcchām*—fainting; *upayāti*—obtains; *tāmisra-prāye*—in that condition, which is almost entirely dark.

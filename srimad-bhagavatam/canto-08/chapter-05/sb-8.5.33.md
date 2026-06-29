@@ -1,5 +1,8 @@
 ### SB 8.5.33
 
+> अम्भस्तु यद्रेत उदारवीर्यं सिध्यन्ति जीवन्त्युत वर्धमानाः
+> लोका यतोऽथाखिललोकपालाः प्रसीदतां नः स महाविभूतिः ॥३३॥
+
 > ambhas tu yad-reta udāra-vīryaṁ
 > sidhyanti jīvanty uta vardhamānāḥ
 > lokā yato 'thākhila-loka-pālāḥ

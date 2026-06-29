@@ -1,5 +1,7 @@
 ### SB 5.14.19
 
+> क्वचिच्च दुःसहेन कायाभ्यन्तरवह्निना गृहीतसारः स्वकुटुम्बाय क्रुध्यति ॥१९॥
+
 > kvacic ca duḥsahena kāyābhyantara-vahninā gṛhīta-sāraḥ sva-kuṭumbāya krudhyati.
 
 *kvacit ca*—and sometimes; *duḥsahena*—unbearable; *kāya-abhyantara-vahninā*—because of the fire of hunger and thirst within the body; *gṛhīta-sāraḥ*—whose patience is exhausted; *sva-kuṭumbāya*—unto his own family members; *krudhyati*—he becomes angry.

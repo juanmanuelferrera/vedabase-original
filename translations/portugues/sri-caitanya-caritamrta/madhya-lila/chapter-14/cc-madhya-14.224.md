@@ -1,5 +1,8 @@
 ### CC Madhya 14.224
 
+> সহজ লোকের কথা — যাহাঁ দিব্য-গীত ।
+> সহজ গমন করে, — যৈছে নৃত্য-প্ৰতীত ॥২২৪॥
+
 sahaja lokera kathā-yāhāṅ divya-gīta
 
 sahaja gamana kare,-yaiche nṛtya-pratīta

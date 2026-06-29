@@ -1,5 +1,10 @@
 ### CC Adi 13.118
 
+> পুত্রমাতা-স্নানদিনে, দিল বস্ত্র বিভূষণে,
+> পুত্র-সহ মিশ্রেরে সম্মানি’ ।
+> শচী-মিশ্রের পূজা লঞা, মনেতে হরিষ হঞা,
+> ঘরে আইলা সীতা ঠাকুরাণী ॥১১৮॥
+
 > putramātā-snānadine, dila vastra vibhūṣaṇe,
 > putra-saha miśrere sammāni'
 > śacī-miśrera pūjā lañā, manete hariṣa hañā,

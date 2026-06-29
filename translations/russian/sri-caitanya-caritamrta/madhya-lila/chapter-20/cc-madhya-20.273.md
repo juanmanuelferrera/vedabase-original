@@ -1,5 +1,8 @@
 ### CC Madhya 20.273
 
+> স্বাঙ্গ-বিশেষাভাসরূপে প্রকৃতি-স্পর্শন ।
+> জীব-রূপ ‘বীজ’ তাতে কৈলা সমর্পণ ॥২৭৩॥
+
 > svāṅga-viśeṣābhāsa-rūpe prakṛti-sparśana
 > jīva-rūpa 'bīja' tāte kailā samarpaṇa
 

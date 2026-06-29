@@ -1,5 +1,8 @@
 ### CC Antya 2.107
 
+> তাঁর ঠাঞি তণ্ডুল মাগি’ আনিল হরিদাস ।
+> তণ্ডুল দেখি’ আচার্যের অধিক উল্লাস ॥১০৭॥
+
 > tāṅra ṭhāñi taṇḍula māgi' ānila haridāsa
 > taṇḍula dekhi' ācāryera adhika ullāsa
 

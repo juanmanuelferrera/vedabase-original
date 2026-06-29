@@ -1,5 +1,8 @@
 ### CC Madhya 1.119
 
+> সেই পুরাতন পত্র আগ্রহ করি’ নিল ।
+> রামদাসে দেখাইয়া দুঃখ খণ্ডাইল ॥১১৯॥
+
 > sei purātana patra āgraha kari' nila
 > rāmadāse dekhāiyā duḥkha khaṇḍāila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 5.94
 
+> এই মূর্তি গিয়া যদি এই শ্রীবদনে ।
+> সাক্ষী দেহ যদি — তবে সর্বলোক শুনে ।।” ॥ ৯৪ ॥
+
 > ei mūrti giyā yadi ei śrī-vadane
 > sākṣī deha yadi--tabe sarva-loka śune"
 

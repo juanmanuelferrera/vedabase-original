@@ -1,5 +1,8 @@
 ### CC Madhya 11.168
 
+> এই কথা লোক গিয়া প্রভুরে কহিল ।
+> শুনিয়া প্রভুর মনে বড় সুখ হইল ॥১৬৮॥
+
 > ei kathā loka giyā prabhure kahila
 > śuniyā prabhura mane baḍa sukha ha-ila
 

@@ -1,5 +1,8 @@
 ### SB 3.20.23
 
+> देवोऽदेवाञ्जघनतः सृजति स्मातिलोलुपान् ।
+> त एनं लोलुपतया मैथुनायाभिपेदिरे ॥२३॥
+
 > devo 'devāñ jaghanataḥ
 > sṛjati smātilolupān
 > ta enaṁ lolupatayā

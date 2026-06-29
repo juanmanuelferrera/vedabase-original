@@ -1,5 +1,8 @@
 ### CC Adi 17.294
 
+> সেই ব্রজেশ্বর — ইহঁ জগন্নাথ পিতা ।
+> সেই ব্রজেশ্বরী — ইহঁ শচীদেবী মাতা ॥২৯৪॥
+
 > sei vrajeśvara--ihaṅ jagannātha pitā
 > sei vrajeśvarī--ihaṅ śacīdevī mātā
 

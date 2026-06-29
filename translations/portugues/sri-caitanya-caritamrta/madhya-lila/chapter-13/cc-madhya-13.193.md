@@ -1,5 +1,8 @@
 ### CC Madhya 13.193
 
+> চলিয়া আইল রথ ‘বলগণ্ডি’-স্থানে ।
+> জগন্নাথ রথ রাখি’ দেখে ডাহিনে বামে ॥১৯৩॥
+
 caliyā āila ratha 'balagaṇḍi'-sthāne
 
 jagannātha ratha rākhi' dekhe ḍāhine vāme

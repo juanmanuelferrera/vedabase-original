@@ -1,5 +1,8 @@
 ### CC Madhya 7.15
 
+> নিত্যানন্দপ্ৰভু কহে, — “ঐছে কৈছে হয় ৷
+> একাকী যাইবে তুমি, কে ইহা সহয় ৷৷ ১৫ ৷৷ ॥১৫॥
+
 > nityānanda-prabhu kahe,--"aiche kaiche haya
 > ekākī yāibe tumi, ke ihā sahaya
 

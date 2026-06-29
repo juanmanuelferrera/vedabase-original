@@ -1,5 +1,8 @@
 ### CC Antya 2.127
 
+> মহাপ্রভু মধ্যাহ্ন করিতে চলি’ গেলা ।
+> বুঝন না যায় এই মহাপ্রভুর লীলা ॥১২৭॥
+
 > mahāprabhu madhyāhna karite cali, gelā
 > bujhana nā yāya ei mahāprabhura līlā
 

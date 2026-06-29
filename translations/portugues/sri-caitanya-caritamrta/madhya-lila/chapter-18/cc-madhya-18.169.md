@@ -1,5 +1,8 @@
 ### CC Madhya 18.169
 
+> এই যতি — আমার গুরু, আমি — মাথুর ব্রাহ্মণ ।
+> পাৎসার আগে আছে মোর ‘শত জন’ ॥১৬৯॥
+
 ei yati--āmāra guru, āmi--māthura brāhmaṇa
 
 pātsāra āge āche mora 'śata jana'

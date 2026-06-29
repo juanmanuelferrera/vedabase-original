@@ -1,5 +1,8 @@
 ### CC Adi 7.47
 
+> সনাতন গোসাঞি আসি’ তাঁহাই মিলিলা ।
+> তাঁর শিক্ষা লাগি’ প্রভু দু-মাস রহিলা ॥৪৭॥
+
 > sanātana gosāñi āsi' tāṅhāi mililā
 > tāṅra śikṣā lāgi' prabhu du-māsa rahilā
 

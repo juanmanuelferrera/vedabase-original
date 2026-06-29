@@ -1,5 +1,8 @@
 ### CC Madhya 17.223
 
+> কৃষ্ণাবেশে প্ৰভুর প্রেমে গরগর মন ।
+> ‘বোল্’ ‘বোল্’ করি’ উঠি’ করেন নর্তন ॥২২৩॥
+
 kṛṣṇāveśe prabhura preme garagara mana
 
 'bol' 'bol' kari' uṭhi' karena nartana

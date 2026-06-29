@@ -1,5 +1,8 @@
 ### CC Adi 5.61
 
+> অতএব কৃষ্ণ মূল-জগত্কারণ ।
+> প্রকৃতি — কারণ যৈছে অজাগলস্তন ॥৬১॥
+
 ataeva kṛṣṇa mūla-jagat-kāraṇa
 prakṛti--kāraṇa yaiche ajā-gala-stana
 

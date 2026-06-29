@@ -1,5 +1,8 @@
 ### SB 3.21.41
 
+> मत्तद्विजगणैर्घुष्टं मत्तभ्रमरविभ्रमम् ।
+> मत्तबर्हिनटाटोपमाह्वयन्मत्तकोकिलम् ॥४१॥
+
 > matta-dvija-gaṇair ghuṣṭaṁ
 > matta-bhramara-vibhramam
 > matta-barhi-naṭāṭopam

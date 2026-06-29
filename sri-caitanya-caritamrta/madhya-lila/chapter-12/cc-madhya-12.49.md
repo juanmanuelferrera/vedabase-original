@@ -1,5 +1,8 @@
 ### CC Madhya 12.49
 
+> রামানন্দ কহে, — তুমি ঈশ্বর স্বতন্ত্র ।
+> কারে তোমার ভয়, তুমি নহ পরতন্ত্র ॥৪৯॥
+
 > rāmānanda kahe,-tumi īśvara svatantra
 > kāre tomāra bhaya, tumi naha paratantra
 

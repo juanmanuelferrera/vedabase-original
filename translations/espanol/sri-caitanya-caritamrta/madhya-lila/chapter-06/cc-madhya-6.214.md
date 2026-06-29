@@ -1,5 +1,8 @@
 ### CC Madhya 6.214
 
+> তর্ক-শাস্ত্রে জড় আমি, যৈছে লৌহপিণ্ড ।
+> আমা দ্রবাইলে তুমি, প্রতাপ প্রচণ্ড ।।’ ॥ ২১৪ ॥
+
 > tarka-śāstre jaḍa āmi, yaiche lauha-piṇḍa
 > āmā dravāile tumi, pratāpa pracaṇḍa'
 

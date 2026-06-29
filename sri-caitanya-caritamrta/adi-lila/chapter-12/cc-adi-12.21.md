@@ -1,5 +1,8 @@
 ### CC Adi 12.21
 
+> নানা-ভাবোদ্গম দেহে অদ্ভুত নর্তন ।
+> দুই গোসাঞি ‘হরি’ বলে, আনন্দিত মন ॥২১॥
+
 > nānā-bhāvodgama dehe adbhuta nartana
 > dui gosāñi 'hari' bale, ānandita mana
 

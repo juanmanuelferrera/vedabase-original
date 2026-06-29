@@ -1,5 +1,8 @@
 ### CC Antya 3.119
 
+> আর দিন রাত্রি হৈলে বেশ্যা আইল ।
+> হরিদাস তারে বহু আশ্বাস করিল ॥১১৯॥
+
 > āra dina rātri haile veśyā āila
 > haridāsa tāre bahu āśvāsa karila
 

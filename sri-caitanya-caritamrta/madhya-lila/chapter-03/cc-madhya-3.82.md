@@ -1,5 +1,8 @@
 ### CC Madhya 3.82
 
+> দরিদ্ৰ-ব্রাহ্মণ-ঘরে যে পাইলা মুষ্ট্যেক অন্ন ।
+> ইহাতে সন্তুষ্ট হও, ছাড় লোভ-মন ॥৮২॥
+
 > daridra-brāhmaṇa-ghare ye pāilā muṣṭy-eka anna
 > ihāte santuṣṭa hao, chāḍa lobha-mana
 

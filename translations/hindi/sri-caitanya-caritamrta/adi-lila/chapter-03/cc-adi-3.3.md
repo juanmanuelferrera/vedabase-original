@@ -1,5 +1,8 @@
 ### CC Adi 3.3
 
+> তৃতীয় শ্লোকের অর্থ কৈল বিবরণ ।
+> চতুর্থ শ্লোকের অর্থ শুন ভক্তগণ ॥৩॥
+
 > tṛtīya ślokera artha kaila vivaraṇa
 > caturtha ślokera artha śuna bhakta-gaṇa
 

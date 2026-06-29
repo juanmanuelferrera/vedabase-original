@@ -1,5 +1,8 @@
 ### SB 4.8.80
 
+> तस्मिन्नभिध्यायति विश्वमात्मनो द्वारं निरुध्यासुमनन्यया धिया ।
+> लोका निरुच्छ्वासनिपीडिता भृशं सलोकपालाः शरणं ययुर्हरिम् ॥८०॥
+
 > tasminn abhidhyāyati viśvam ātmano
 > dvāraṁ nirudhyāsum ananyayā dhiyā
 > lokā nirucchvāsa-nipīḍitā bhṛśaṁ

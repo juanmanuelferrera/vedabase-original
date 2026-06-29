@@ -1,5 +1,10 @@
 ### SB 3.23.7
 
+> ये मे स्वधर्मनिरतस्य तपःसमाधि
+> विद्यात्मयोगविजिता भगवत्प्रसादाः ।
+> तानेव ते मदनुसेवनयावरुद्धान्
+> दृष्टिं प्रपश्य वितराम्यभयानशोकान् ॥७॥
+
 > ye me sva-dharma-niratasya tapaḥ-samādhi-
 > vidyātma-yoga-vijitā bhagavat-prasādāḥ
 > tān eva te mad-anusevanayāvaruddhān

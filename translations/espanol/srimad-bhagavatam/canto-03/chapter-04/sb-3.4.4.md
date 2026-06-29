@@ -1,5 +1,8 @@
 ### SB 3.4.4
 
+> अहं चोक्तो भगवता प्रपन्नार्तिहरेण ह ।
+> बदरीं त्वं प्रयाहीति स्वकुलं सञ्जिहीर्षुणा ॥४॥
+
 > ahaṁ cokto bhagavatā
 > prapannārti-hareṇa ha
 > badarīṁ tvaṁ prayāhīti

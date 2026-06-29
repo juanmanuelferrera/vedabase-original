@@ -1,5 +1,10 @@
 ### CC Madhya 8.211
 
+> সখ্যঃ শ্ৰীরাধিকায়া ব্রজকুমুদবিধোর্হ্লাদিনী-নামশক্তেঃ
+> সারাংশ-প্রেমবল্ল্যাঃ কিসলয়দলপুষ্পাদিতুল্যাঃ স্বতুল্যাঃ ।
+> সিক্তায়াং কৃষ্ণলীলামৃতরসনিচয়ৈরুল্লসন্ত্যামমুষ্যাং
+> জাতোল্লাসাঃ স্বসেকাচ্ছতগুণমধিকং সন্তি যত্তন্ন চিত্রম্ ॥২১১॥
+
 > sakhyaḥ śrī-rādhikāyā vraja-kumuda-vidhor hlādinī-nāma-śakteḥ
 > sārāṁśa-prema-vallyāḥ kisalaya-dala-puṣpādi-tulyāḥ sva-tulyāḥ
 > siktāyāṁ kṛṣṇa-līlāmṛta-rasa-nicayair ullasantyām amuṣyāṁ

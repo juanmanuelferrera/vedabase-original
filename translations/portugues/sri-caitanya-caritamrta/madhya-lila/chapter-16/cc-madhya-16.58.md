@@ -1,5 +1,8 @@
 ### CC Madhya 16.58
 
+> আচার্যরত্ন-আদি যত মুখ্য ভক্তগণ ।
+> মধ্যে মধ্যে প্ৰভুরে করেন নিমন্ত্রণ ॥৫৮॥
+
 ācāryaratna-ādi yata mukhya bhakta-gaṇa
 
 madhye madhye prabhure karena nimantraṇa

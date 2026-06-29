@@ -1,5 +1,8 @@
 ### CC Madhya 1.52
 
+> নিরন্তর রাত্রি-দিন বিরহ-উন্মাদে ।
+> হাসে, কান্দে, নাচে, গায় পরম বিষাদে ॥৫২॥
+
 > nirantara rātri-dina viraha unmāde
 > hāse, kānde, nāce, gāya parama viṣāde
 

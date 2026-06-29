@@ -1,5 +1,8 @@
 ### CC Adi 8.76
 
+> সব বৈষ্ণবগণ হরিধ্বনি দিল ।
+> গোসাঞিদাস আনি’ মালা মোর গলে দিল ॥৭৬॥
+
 > saba vaiṣṇava-gaṇa hari-dhvani dila
 > gosāñi-dāsa āni' mālā mora gale dila
 

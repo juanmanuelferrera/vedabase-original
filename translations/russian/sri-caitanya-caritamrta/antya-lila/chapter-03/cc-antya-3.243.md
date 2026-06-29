@@ -1,5 +1,8 @@
 ### CC Antya 3.243
 
+> এত বলি’ করেন তেঁহো নাম-সঙ্কীর্তন ।
+> সেই নারী বসি’ করে শ্রীনাম-শ্রবণ ॥২৪৩॥
+
 > eta bali' karena teṅho nāma-saṅkīrtana
 > sei nārī vasi' kare śrī-nāma-śravaṇa
 

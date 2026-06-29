@@ -1,5 +1,8 @@
 ### SB 3.27.12
 
+> यथा जलस्थ आभासः स्थलस्थेनावदृश्यते ।
+> स्वाभासेन तथा सूर्यो जलस्थेन दिवि स्थितः ॥१२॥
+
 > yathā jala-stha ābhāsaḥ
 > sthala-sthenāvadṛśyate
 > svābhāsena tathā sūryo

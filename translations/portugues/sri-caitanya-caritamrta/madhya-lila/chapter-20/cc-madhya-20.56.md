@@ -1,5 +1,8 @@
 ### CC Madhya 20.56
 
+> প্রভু কহে, — “তোমা স্পর্শি আত্ম পবিত্রিতে ।
+> ভক্তি-বলে পার তুমি ব্রহ্মাণ্ড শোধিতে ॥৫৬॥
+
 prabhu kahe,--"tomā sparśi ātma pavitrite
 
 bhakti-bale pāra tumi brahmāṇḍa śodhite

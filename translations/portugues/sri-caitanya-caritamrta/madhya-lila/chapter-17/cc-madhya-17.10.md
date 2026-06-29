@@ -1,5 +1,8 @@
 ### CC Madhya 17.10
 
+> আমা-দুঁহার মনে তবে বড় ‘সুখ’ হয়  ।
+> এক নিবেদন যদি ধর, দয়াময় ॥১০॥
+
 āmā-duṅhāra mane tabe baḍa 'sukha' haya
 eka nivedana yadi dhara, dayāmaya
 

@@ -1,5 +1,7 @@
 ### CC Madhya 17.67
 
+> নিরন্তর প্রেমাবেশে নির্জনে গমন । সুখ অনুভবি’ প্রভু কহেন বচন ॥৬৭॥
+
 > nirantara premāveśe nirjane gamana
 > sukha anubhavi' prabhu kahena vacana
 

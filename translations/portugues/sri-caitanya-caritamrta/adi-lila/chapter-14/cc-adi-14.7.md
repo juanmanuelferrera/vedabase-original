@@ -1,5 +1,8 @@
 ### CC Adi 14.7
 
+> গৃহে দুই জন দেখি লঘুপদ-চিহ্ন ।
+> তাহে শোভে ধ্বজ, বজ্র, শঙ্খ, চক্র, মীন ॥৭॥
+
 gṛhe dui jana dekhi laghupada-cihna
 tāhe śobhe dhvaja, vajra, śaṅkha, cakra, mīna
 

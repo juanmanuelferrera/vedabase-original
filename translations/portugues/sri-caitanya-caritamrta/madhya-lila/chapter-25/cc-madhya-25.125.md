@@ -1,5 +1,8 @@
 ### CC Madhya 25.125
 
+> পঞ্চভূত যৈছে ভূতের ভিতরে-বাহিরে ।
+> ভক্তগণে স্ফুরি আমি বাহিরে-অন্তরে ॥১২৫॥
+
 pañca-bhūta yaiche bhūtera bhitare-bāhire
 
 bhakta-gaṇe sphuri āmi bāhire-antare

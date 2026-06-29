@@ -1,5 +1,8 @@
 ### CC Madhya 8.174
 
+> ‘সূদ্দীপ্ত-সাত্ত্বিক’ ভাব, হর্ষাদি ‘সঞ্চারী’ ৷
+> এই সব ভাব-ভূষণ সব-অঙ্গে ভরি’ ৷৷ ১৭৪ ৷৷ ॥১৭৪॥
+
 > 'sūddīpta-sāttvika' bhāva, harṣādi 'sañcārī'
 > ei saba bhāva-bhūṣaṇa saba-aṅge bhari'
 

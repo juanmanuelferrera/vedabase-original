@@ -1,5 +1,7 @@
 ### SB 5.26.11
 
+> ये त्विह यथैवामुना विहिंसिता जन्तवः परत्र यमयातनामुपगतं त एव रुरवो भूत्वातथा तमेव विहिंसन्ति तस्माद्रौरवमित्याहू रुरुरिति सर्पादतिक्रूरसत्त्वस्यापदेशः ॥१०॥
+
 > ye tv iha yathaivāmunā vihiṁsitā jantavaḥ paratra yama-yātanām upagataṁ ta eva ruravo bhūtvā tathā tam eva vihiṁsanti tasmād rauravam ity āhū rurur iti sarpād ati-krūra-sattvasyāpadeśaḥ.
 
 *ye*—those who; *tu*—but; *iha*—in this life; *yathā*—as much as; *eva*—certainly; *amunā*—by him; *vihiṁsitāḥ*—who were hurt; *jantavaḥ*—the living entities; *paratra*—in the next life; *yama-yātanām upagatam*—being subjected to miserable conditions by Yamarāja; *te*—those living entities; *eva*—indeed; *ruravaḥ*—*rurus* (a kind of envious animal); *bhūtvā*—becoming; *tathā*—that much; *tam*—him; *eva*—certainly; *vihiṁsanti*—they hurt; *tasmāt*—because of this; *rauravam*—Raurava; *iti*—thus; *āhuḥ*—learned scholars say; *ruruḥ*—the animal known as *ruru*; *iti*—thus; *sarpāt*—than the snake; *ati-krūra*—much more cruel and envious; *sattvasya*—of the entity; *apadeśaḥ*—the name.

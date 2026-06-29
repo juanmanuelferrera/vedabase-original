@@ -1,5 +1,7 @@
 ### SB 5.19.9
 
+> भारतेऽपि वर्षे भगवान्नरनारायणाख्य आकल्पान्तमुपचितधर्मज्ञआनवैराग्यैश्वर्योपशमोपरमात्मोपलम्भनमनुग्रहायात्मवतामनुकम्पया तपोऽव्यक्तगतिश्चरति ॥९॥
+
 *bhārate 'pi varṣe bhagavān nara*-nārāyaṇākhya ākalpāntam upacita-dharma-jñāna-vairāgyaiśvaryopaśamoparamātmopalambhanam anugrahāyātmavatām anukampayā tapo 'vyakta-gatiś carati.
 
 *bhārate*—em Bhārata; *api*—também; *varṣe*—a faixa de terra; *bhagavān*—a Suprema Personalidade de Deus; *nara-nārāyaṇa-ākhyaḥ*—conhecido como Nara-Nārāyaṇa; *ā-kalpa-antam*—até o fim do milênio; *upacita*—aumentando; *dharma*—religião; *jñāna*—conhecimento; *vairāgya*—renúncia ou desapego; *aiśvarya*—opulências místicas; *upaśama*—controle dos sentidos; *uparama*—liberdade do ego falso; *ātma-upalambhanam*—autorrealização; *anugrahāya*—para mostrar favor; *ātma-vatām*—às pessoas interessadas em autorrealização; *anukampayā*—por misericórdia imotivada; *tapaḥ*—austeridades; *avyakta-gatiḥ*—cujas glórias são inconcebíveis; *carati*—executa.

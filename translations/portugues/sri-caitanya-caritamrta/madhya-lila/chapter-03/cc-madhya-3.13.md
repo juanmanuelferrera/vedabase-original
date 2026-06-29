@@ -1,5 +1,8 @@
 ### CC Madhya 3.13
 
+> গোপ-বালক সব প্রভুকে দেখিয়া ।
+> ‘হরি’ ‘হরি’ বলি’ ডাকে উচ্চ করিয়া ॥১৩॥
+
 gopa-bālaka saba prabhuke dekhiyā
 'hari' 'hari' bali' ḍāke ucca kariyā
 

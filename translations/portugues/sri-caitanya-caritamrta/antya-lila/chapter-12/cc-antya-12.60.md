@@ -1,5 +1,8 @@
 ### CC Antya 12.60
 
+> প্রশ্রয়-পাগল শুদ্ধ-বৈদগ্ধী না জানে ।
+> অন্তরে সুখী হৈলা প্রভু তার সেই গুণে ॥৬০॥
+
 praśraya-pāgala śuddha-vaidagdhī nā jāne
 
 antare sukhī hailā prabhu tāra sei guṇe

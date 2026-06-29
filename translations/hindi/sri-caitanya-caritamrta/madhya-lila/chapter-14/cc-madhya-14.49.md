@@ -1,5 +1,8 @@
 ### CC Madhya 14.49
 
+> মহামল্লগণে দিল রথ চালাইতে ।
+> আপনে লাগিলা রথ, না পারে টানিতে ॥৪৯॥
+
 > mahā-malla-gaṇe dila ratha cālāite
 > āpane lāgilā ratha, nā pāre ṭānite
 

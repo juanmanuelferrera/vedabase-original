@@ -1,5 +1,8 @@
 ### CC Madhya 11.3
 
+> আর দিন সার্বভৌম কহে প্রভুস্থানে ।
+> অভয়-দান দেহ’ যদি, করি নিবেদনে ॥৩॥
+
 > āra dina sārvabhauma kahe prabhu-sthāne
 > abhaya-dāna deha' yadi, kari nivedane
 

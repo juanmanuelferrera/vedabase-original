@@ -1,5 +1,8 @@
 ### CC Madhya 20.129
 
+> সর্বজ্ঞের বাক্যে করে ধনের উদ্দেশে ।
+> ঐছে বেদ-পুরাণ জীবে ‘কৃষ্ণ’ উপদেশে ॥১২৯॥
+
 > sarvajñera vākye kare dhanera uddeśe
 > aiche veda-purāṇa jīve 'kṛṣṇa' upadeśe
 

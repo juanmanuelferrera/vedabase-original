@@ -1,5 +1,8 @@
 ### SB 8.24.45
 
+> निबध्य नावं तच्छृङ्गे यथोक्तो हरिणा पुरा
+> वरत्रेणाहिना तुष्टस्तुष्टाव मधुसूदनम ॥४५॥
+
 nibadhya nāvaṁ tac-chṛṅge
 yathokto hariṇā purā
 varatreṇāhinā tuṣṭas

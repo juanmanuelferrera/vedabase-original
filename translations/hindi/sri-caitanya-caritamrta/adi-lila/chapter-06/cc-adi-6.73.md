@@ -1,5 +1,10 @@
 ### CC Adi 6.73
 
+> চৈদ্যায় মার্পয়িতুমুদ্যত-কার্মুকেষু
+> রাজস্বজেয়-ভটশেখরিতাঙ্ঘ্রিরেণুঃ ।
+> নিন্যে মৃগেন্দ্র ইব ভাগমজাবিযূথা-
+> ত্তচ্ছ্রীনিকেত-চরণোঽস্তু মমার্চনায় ॥৭৩॥
+
 > caidyāya mārpayitum udyata-kārmukeṣu
 > rājasv ajeya-bhaṭa-śekharitāṅghri-reṇuḥ
 > ninye mṛgendra iva bhāgam ajāvi-yūthāt

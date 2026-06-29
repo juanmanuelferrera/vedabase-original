@@ -1,5 +1,8 @@
 ### CC Madhya 4.75
 
+> হেনমতে অন্নকূট করিল সাজন ৷
+> পুরী-গোসাঞি গোপালেরে কৈল সমর্পণ ॥৭৫॥
+
 > hena-mate anna-kūṭa karila sājana
 > purī-gosāñi gopālere kaila samarpaṇa
 

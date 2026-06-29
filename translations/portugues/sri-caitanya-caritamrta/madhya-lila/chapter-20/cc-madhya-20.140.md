@@ -1,5 +1,8 @@
 ### CC Madhya 20.140
 
+> ধন পাইলে যৈছে সুখভোগ ফল পায়  ।
+> সুখভোগ হৈতে দুঃখ আপনি পলায় ॥১৪০॥
+
 dhana pāile yaiche sukha-bhoga phala pāya
 
 sukha-bhoga haite duḥkha āpani palāya

@@ -1,5 +1,8 @@
 ### CC Madhya 20.201
 
+> আশ্বিনে — পদ্মনাভ, কার্তিকে — দামোদর ।
+> ‘রাধা-দামোদর’ অন্য ব্রজেন্দ্র-কোঙর ॥২০১॥
+
 āśvine--padmanābha, kārtike dāmodara
 
 'rādhā-dāmodara' anya vrajendra-koṅara

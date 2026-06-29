@@ -1,5 +1,8 @@
 ### SB 8.8.17
 
+> भूषणानि विचित्राणि विश्वकर्मा प्रजापतिः
+> हारं सरस्वती पद्ममजो नागाश्च कुण्डले ॥१७॥
+
 *tataḥ kṛta*-svastyayanotpala-srajaṁ
 
 *nadad*-dvirephāṁ parigṛhya pāṇinā

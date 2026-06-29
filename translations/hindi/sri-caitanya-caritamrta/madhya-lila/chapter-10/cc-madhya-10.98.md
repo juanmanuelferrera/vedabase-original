@@ -1,5 +1,8 @@
 ### CC Madhya 10.98
 
+> পুরী কহে, — তোমা-সঙ্গে রহিতে বাঞ্ছা করি’ ।
+> গৌড় হৈতে চলি’ আইলাঙ নীলাচল-পুরী ॥৯৮॥
+
 > purī kahe,-tomā-saṅge rahite vāñchā kari'
 > gauḍa haite cali' āilāṅa nīlācala-purī
 

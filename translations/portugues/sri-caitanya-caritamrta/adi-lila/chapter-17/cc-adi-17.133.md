@@ -1,5 +1,8 @@
 ### CC Adi 17.133
 
+> নগরে নগরে আজি করিমু কীর্তন ।
+> সন্ধ্যাকালে কর সভে নগর-মণ্ডন ॥১৩৩॥
+
 nagare nagare āji karimu kīrtana
 
 sandhyā-kāle kara sabhe nagara-maṇḍana

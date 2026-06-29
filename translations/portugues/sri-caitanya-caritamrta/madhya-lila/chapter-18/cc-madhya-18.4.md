@@ -1,5 +1,8 @@
 ### CC Madhya 18.4
 
+> আরিটে রাধাকুণ্ড-বার্তা পুছে লোক-স্থানে ।
+> কেহ নাহি কহে, সঙ্গের ব্রাহ্মণ না জানে ॥৪॥
+
 āriṭe rādhā-kuṇḍa-vārtā puche loka-sthāne
 keha nāhi kahe, saṅgera brāhmaṇa nā jāne
 

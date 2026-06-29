@@ -1,5 +1,8 @@
 ### CC Antya 3.181
 
+> অংহঃ সংহরদখিলং সকৃদুদয়াদেব সকল-লোকস্য ।
+> তরণিরিব তিমিরজলধিং জয়তি জগন্মঙ্গলং হরের্নাম ॥১৮১॥
+
 > aṁhaḥ saṁharad akhilaṁ sakṛd
 > udayād eva sakala-lokasya
 > taraṇir iva timira-jaladhiṁ

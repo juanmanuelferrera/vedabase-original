@@ -1,5 +1,7 @@
 ### SB 5.26.37
 
+> एवंविधा नरका यमालये सन्ति शतशः सहस्रशस्तेषु सर्वेषु च सर्व एवाधर्मवर्तिनो येकेचिदिहोदिता अनुदिताश्चावनिपते पर्यायेण विशन्ति तथैव धर्मानुवर्तिन इतरत्र इह तु पुनर्भवे तउभयशेषाभ्यां निविशन्ति ॥३६॥
+
 > evaṁ-vidhā narakā yamālaye santi śataśaḥ sahasraśas teṣu sarveṣu ca sarva evādharma-vartino ye kecid ihoditā anuditāś cāvani-pate paryāyeṇa viśanti tathaiva dharmānuvartina itaratra iha tu punar-bhave ta ubhaya-śeṣābhyāṁ niviśanti.
 
 *evam-vidhāḥ*—de esta clase; *narakāḥ*—los muchos infiernos; *yama-ālaye*—en la provincia de Yamarāja; *santi*—hay; *śataśaḥ*—cientos; *sahasraśaḥ*—miles; *teṣu*—en esos planetas infernales; *sarveṣu*—todos; *ca*—también; *sarve*—todos; *eva*—en verdad; *adharma-vartinaḥ*—personas que no siguen los principios védicos o los principios regulativos; *ye kecit*—quienquiera que; *iha*—aquí; *uditāḥ*—mencionados; *anuditāḥ*—no mencionados; *ca*—y; *avani-pate*—¡oh, rey!; *paryāyeṇa*—en proporción al grado de los diversos tipos de actividades pecaminosas; *viśanti*—entran; *tathā eva*—de manera similar; *dharma-anuvartinaḥ*—los que son piadosos y actúan conforme a los principios regulativos y a los mandamientos védicos; *itaratra*—en otro lugar; *iha*—en este planeta; *tu*—pero; *punaḥ-bhave*—en otra vida; *te*—todos ellos; *ubhaya-śeṣābhyām*—por los restantes resultados de sus obras piadosas o viciosas; *niviśanti*—entran.

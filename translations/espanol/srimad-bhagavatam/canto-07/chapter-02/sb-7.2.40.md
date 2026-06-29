@@ -1,5 +1,8 @@
 ### SB 7.2.40
 
+> पथि च्युतं तिष्ठति दिष्टरक्षितं गृहे स्थितं तद्विहतं विनश्यति
+> जीवत्यनाथोऽपि तदीक्षितो वने गृहेऽभिगुप्तोऽस्य हतो न जीवति ॥४०॥
+
 > pathi cyutaṁ tiṣṭhati diṣṭa-rakṣitaṁ
 > gṛhe sthitaṁ tad-vihataṁ vinaśyati
 > jīvaty anātho 'pi tad-īkṣito vane

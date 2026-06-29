@@ -1,5 +1,8 @@
 ### CC Madhya 13.23
 
+> পঞ্চদশ দিন ঈশ্বর মহালক্ষ্মী লঞা ।
+> তাঁর সঙ্গে ক্রীড়া কৈল নিভৃতে বসিয়া ॥২৩॥
+
 pañca-daśa dina īśvara mahā-lakṣmī lañā
 
 tāṅra saṅge krīḍā kaila nibhṛte vasiyā

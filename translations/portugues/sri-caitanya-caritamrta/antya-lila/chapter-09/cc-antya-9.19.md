@@ -1,5 +1,8 @@
 ### CC Antya 9.19
 
+> দুইলক্ষ কাহন তার ঠাঞি বাকী হইল ।
+> দুইলক্ষ কাহন কৌড়ি রাজা ত’ মাগিল ॥১৯॥
+
 dui-lakṣa kāhana tāra ṭhāñi bākī ha-ila
 
 dui-lakṣa kāhana kauḍi rājā ta' māgila

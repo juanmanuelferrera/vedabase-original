@@ -1,5 +1,8 @@
 ### CC Antya 13.48
 
+> সনাতন পণ্ডিতের করে সমাধান ।
+> মহাবনে দেন আনি’ মাগি’ অন্ন-পান ॥৪৮॥
+
 sanātana paṇḍitera kare samādhāna
 
 mahāvane dena āni' māgi' anna-pāna

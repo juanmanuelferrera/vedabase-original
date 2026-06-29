@@ -1,5 +1,8 @@
 ### CC Adi 17.86
 
+> এইমত প্রতিদিন ফলে বার মাস ।
+> বৈষ্ণব খায়েন ফল, — প্রভুর উল্লাস ॥৮৬॥
+
 > ei-mata pratidina phale bāra māsa
 > vaiṣṇava khāyena phala,—prabhura ullāsa
 

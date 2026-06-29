@@ -1,5 +1,8 @@
 ### CC Madhya 6.201
 
+> আত্মনিন্দা করি’ লৈল প্ৰভুর শরণ ।
+> কৃপা করিবারে তবে প্রভুর হৈল মন ॥২০১॥
+
 > ātma-nindā kari' laila prabhura śaraṇa
 > kṛpā karibāre tabe prabhura haila mana
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.38
 
+> “পুত্র ‘বাতুল’ হইল, ইহায় রাখহ বান্ধিয়া”  ।
+> তাঁর পিতা কহে তারে নির্বিণ্ণ হঞা ॥৩৮॥
+
 > "putra bātula' ha-ila, ihāya rākhaha bāndhiyā"
 > tāṅra pitā kahe tāre nirviṇṇa hañā
 

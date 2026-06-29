@@ -1,5 +1,8 @@
 ### CC Adi 2.44
 
+> ইথে যত জীব, তার ত্রৈকালিক কর্ম ।
+> তাহা দেখ, সাক্ষী তুমি, জান সব মর্ম ॥৪৪॥
+
 > ithe yata jīva, tāra trai-kālika karma
 > tāhā dekha, sākṣī tumi, jāna saba marma
 

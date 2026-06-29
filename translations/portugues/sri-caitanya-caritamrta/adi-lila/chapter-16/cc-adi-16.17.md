@@ -1,5 +1,8 @@
 ### CC Adi 16.17
 
+> তাহাঁ আমা-সঙ্গে তোমার হবে দরশন ।
+> আজ্ঞা পাঞা মিশ্র কৈল কাশীতে গমন ॥১৭॥
+
 tāhāṅ āmā-saṅge tomāra habe daraśana
 
 ājñā pāñā miśra kaila kāśīte gamana

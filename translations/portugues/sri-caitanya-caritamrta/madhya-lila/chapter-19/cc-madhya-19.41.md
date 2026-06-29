@@ -1,5 +1,8 @@
 ### CC Madhya 19.41
 
+> ভিড় দেখি’ দুই ভাই রহিলা নির্জনে ।
+> প্রভুর আবেশ হৈল মাধব-দরশনে ॥৪১॥
+
 bhiḍa dekhi' dui bhāi rahilā nirjane
 
 prabhura āveśa haila mādhava-daraśane

@@ -1,5 +1,10 @@
 ### CC Madhya 2.83
 
+> কহিবার কথা নহে, কহিলে কেহ না বুঝয়ে,
+> ঐছে চিত্র চৈতন্যের রঙ্গ ।
+> সেই সে বুঝিতে পারে, চৈতন্যের কৃপা যাঁরে,
+> হয় তাঁর দাসানুদাস-সঙ্গ ॥৮৩॥
+
 kahibāra kathā nahe, kahile keha nā bujhaye,
 aiche citra caitanyera raṅga
 sei se bujhite pāre, caitanyera kṛpā yāṅre,

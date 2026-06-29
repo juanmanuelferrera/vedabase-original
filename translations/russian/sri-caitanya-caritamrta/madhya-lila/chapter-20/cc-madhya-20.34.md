@@ -1,5 +1,8 @@
 ### CC Madhya 20.34
 
+> তবে পার হঞা গোসাঞি পুছিলা ঈশানে ।
+> “জানি, — শেষ দ্রব্য কিছু আছে তোমা স্থানে” ॥৩৪॥
+
 > tabe pāra hañā gosāñi puchilā īśāne
 > 'jāni,—śeṣa dravya kichu āche tomā sthāne"
 

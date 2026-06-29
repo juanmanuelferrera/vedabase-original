@@ -1,5 +1,8 @@
 ### CC Antya 9.152
 
+> যেই ইহাঁ শুনে প্রভুর বাৎসল্য-প্রকাশ ।
+> প্রেমভক্তি পায়, তাঁর বিপদ যায় নাশ ॥১৫২॥
+
 yei ihāṅ śune prabhura vātsalya-prakāśa
 
 prema-bhakti pāya, tāṅra vipada yāya nāśa

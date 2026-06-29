@@ -1,5 +1,8 @@
 ### CC Madhya 24.62
 
+> তবে করে ভক্তিবাধক কর্ম, অবিদ্যা নাশ ।
+> শ্রবণাদ্যের ফল ‘প্রেমা’ করয়ে প্রকাশ ॥৬২॥
+
 > tabe kare bhakti-bādhaka karma, avidyā nāśa
 > śravaṇādyera phala 'premā' karaye prakāśa
 

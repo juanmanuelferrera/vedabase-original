@@ -1,5 +1,8 @@
 ### CC Madhya 11.238
 
+> কীর্তন-সমাপ্ত্যে প্রভু দেখি’ পুষ্পাঞ্জলি ৷
+> সর্ব বৈষ্ণব লঞা প্রভু আইলা বাসা চলি’ ৷৷ ২৩৮ ৷৷ ॥২৩৮॥
+
 > kīrtana-samāptye prabhu dekhi' puṣpāñjali
 > sarva vaiṣṇava lañā prabhu āilā vāsā cali'
 

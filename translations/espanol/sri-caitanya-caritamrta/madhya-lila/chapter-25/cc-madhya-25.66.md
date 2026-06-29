@@ -1,5 +1,8 @@
 ### CC Madhya 25.66
 
+> নিকটে হরিধ্বনি শুনি’ প্রকাশানন্দ ।
+> দেখিতে কৌতুকে আইলা লঞা শিষ্যবৃন্দ ॥৬৬॥
+
 > nikaṭe hari-dhvani śuni' parakāśānanda
 > dekhite kautuke āilā lañā śiṣya-vṛnda
 

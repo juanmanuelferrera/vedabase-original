@@ -1,5 +1,10 @@
 ### CC Antya 1.138
 
+> ভক্তানামুদগাদনর্গলধিয়াং বর্গো নিসর্গোজ্জ্বলঃ
+> শীলৈঃ পল্লবিতঃ স বল্লববধূবন্ধোঃ প্রবন্ধোঽপ্যসৌ ।
+> লেভে চত্বরতাঞ্চ তাণ্ডববিধের্বৃন্দাটবীগর্ভভূ-
+> র্মন্যে মদ্বিধপুণ্যমণ্ডলপরীপাকোঽয়মুন্মীলতি ॥১৩৮॥
+
 > bhaktānām udagād anargala-dhiyāṁ vargo nisargojjvalaḥ
 > śīlaiḥ pallavitaḥ sa ballava-vadhū-bandho prabandho 'py asau
 > lebhe catvaratāṁ ca tāṇḍava-vidher vṛndāṭavī-garbha-bhūr

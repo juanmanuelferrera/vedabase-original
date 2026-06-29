@@ -1,5 +1,7 @@
 ### SB 5.21.12
 
+> एवं मुहूर्तेन चतुस्त्रिंशल्लक्षयोजनान्यष्टशताधिकानि सौरो रथस्त्रयीमयोऽसौ चतसृषुपरिवर्तते पुरीषु ॥१२॥
+
 evaṁ muhūrtena catus-triṁśal-lakṣa-yojanāny aṣṭa-śatādhikāni sauro rathas trayīmayo 'sau catasṛṣu parivartate purīṣu.
 
 *evam*—assim; *muhūrtena*—em um muhūrta (quarenta e oito minutos); *catuḥ-triṁśat*—trinta e quatro; *lakṣa*—cem mil; *yojanāni*—yojanas; *aṣṭa-śatādhikāni*—acrescidos de oitocentos; *sauraḥ rathaḥ*—a quadriga do deus do sol; *trayī-mayaḥ*—que é adorada pelo mantra Gāyatrī (oṁ bhūr bhuvaḥ svaḥ tat savitur, etc.); *asau*—aquela; *catasṛṣu*—pelas quatro; *parivartate*—ele se move; *purīṣu*—pelas diferentes regiões residenciais.

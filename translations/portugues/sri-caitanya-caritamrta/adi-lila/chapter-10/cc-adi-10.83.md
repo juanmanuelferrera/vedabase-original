@@ -1,5 +1,8 @@
 ### CC Adi 10.83
 
+> কুলীনগ্রামীর ভাগ্য কহনে না যায় ।
+> শূকর চরায় ডোম, সেহ কৃষ্ণ গায় ॥৮৩॥
+
 kulīnagrāmīra bhāgya kahane nā yāya
 śūkara carāya ḍoma, seha kṛṣṇa gāya
 

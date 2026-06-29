@@ -1,5 +1,8 @@
 ### CC Adi 2.100
 
+> এই ছয়-রূপে হয় অনন্ত বিভেদ ।
+> অনন্তরূপে একরূপ, নাহি কিছু ভেদ ॥১০০॥
+
 ei chaya-rūpe haya ananta vibheda
 ananta-rūpe eka-rūpa, nāhi kichu bheda
 

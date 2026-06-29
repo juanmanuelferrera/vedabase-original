@@ -1,5 +1,7 @@
 ### SB 5.25.8
 
+> य एष एवमनुश्रुतो ध्यायमानो मुमुक्षूणामनादिकालकर्मवासनाग्रथितमविद्यामयंहृदयग्रन्थिं सत्त्वरजस्तमोमयमन्तर्हृदयं गत आशु निर्भिनत्तितस्यानुभावान्भगवान्स्वायम्भुवो नारदः सह तुम्बुरुणा सभायां ब्रह्मणः संश्लोकयामास ॥८॥
+
 *ya eṣa evam anuśruto dhyāyamāno mumukṣūṇām anādi*-kāla-karma-vāsanā-grathitam avidyāmayaṁ hṛdaya-granthiṁ sattva-rajas-tamomayam antar-hṛdayaṁ gata āśu nirbhinatti tasyānubhāvān bhagavān svāyambhuvo nāradaḥ saha tumburuṇā sabhāyāṁ brahmaṇaḥ saṁślokayām āsa.
 
 *yaḥ*—quem; *eṣaḥ*—este; *evam*—assim; *anuśrutaḥ*—sendo ouvido de um mestre espiritual genuíno; *dhyāyamānaḥ*—sendo meditado; *mumukṣūṇām*—das pessoas que desejam a liberação da vida condicionada; *anādi*—desde tempos imemoriais; *kāla*—tempo; *karma-vāsanā*—pelo desejo de atividades fruitivas; *grathitam*—firmemente atado; *avidyā-mayam*—consistindo na energia ilusória; *hṛdaya-granthim*—o nó dentro do coração; *sattva-rajaḥ-tamaḥ-mayam*—feito dos três modos da natureza material; *antaḥ-hṛdayam*—no âmago do coração; *gataḥ*—situado; *āśu*—muito depressa; *nirbhinatti*—corta; *tasya*—de Saṅkarṣaṇa; *anubhāvān*—as glórias; *bhagavān*—o grandemente poderoso; *svāyambhuvaḥ*—o filho do Senhor Brahmā; *nāradaḥ*—o sábio Nārada; *saha*—junto com; *tumburuṇā*—o instrumento de cordas chamado tumburu; *sabhāyām*—na assembleia; *brahmaṇaḥ*—do Senhor Brahmā; *saṁślokayām āsa*—descreveu em versos.

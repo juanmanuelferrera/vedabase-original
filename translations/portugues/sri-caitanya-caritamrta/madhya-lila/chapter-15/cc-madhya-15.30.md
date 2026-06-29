@@ -1,5 +1,8 @@
 ### CC Madhya 15.30
 
+> দেখি’ মহাপ্ৰভু বড় সন্তোষ পাইলা ।
+> মাতাপিতা-জ্ঞানে দুঁহে নমস্কার কৈলা ॥৩০॥
+
 dekhi' mahāprabhu baḍa santoṣa pāilā
 
 mātā-pitā-jñāne duṅhe namaskāra kailā

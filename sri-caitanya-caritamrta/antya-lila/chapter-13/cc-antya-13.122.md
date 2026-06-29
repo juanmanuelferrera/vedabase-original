@@ -1,5 +1,8 @@
 ### CC Antya 13.122
 
+> এত বলি’ প্রভু তাঁরে আলিঙ্গন কৈলা ।
+> প্রভুর কৃপাতে কৃষ্ণপ্রেমে মত্ত হৈলা ॥১২২॥
+
 > eta bali' prabhu tāṅre āliṅgana kailā
 > prabhura kṛpāte kṛṣṇa-preme matta hailā
 

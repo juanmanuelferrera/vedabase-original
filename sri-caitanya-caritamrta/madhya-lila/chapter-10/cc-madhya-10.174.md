@@ -1,5 +1,8 @@
 ### CC Madhya 10.174
 
+> ভক্ত ঠাঞি হার’ তুমি, — এ তোমার স্বভাব ।
+> আর এক শুন তুমি আপন প্রভাব ॥১৭৪॥
+
 > bhakta ṭhāñi hāra' tumi,-e tomāra svabhāva
 > āra eka śuna tumi āpana prabhāva
 

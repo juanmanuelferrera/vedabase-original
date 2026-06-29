@@ -1,5 +1,8 @@
 ### SB 8.1.27
 
+> चतुर्थ उत्तमभ्राता मनुर्नाम्ना च तामसः
+> पृथुः ख्यातिर्नरः केतुरित्याद्या दश तत्सुताः ॥२७॥
+
 *caturtha uttama*-bhrātā
 manur nāmnā ca tāmasaḥ
 pṛthuḥ khyātir naraḥ ketur

@@ -1,5 +1,8 @@
 ### CC Madhya 19.244
 
+> মহাপ্রভু চলি’ চলি’ আইলা বারাণসী ।
+> চন্দ্রশেখর মিলিলা গ্রামের বাহিরে আসি’ ॥২৪৪॥
+
 mahāprabhu cali' cali' āilā vārāṇasī
 
 candraśekhara mililā grāmera bāhire āsi'

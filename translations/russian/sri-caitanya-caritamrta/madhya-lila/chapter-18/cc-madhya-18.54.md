@@ -1,5 +1,8 @@
 ### CC Madhya 18.54
 
+> একমাস রহি’ গোপাল গেলা নিজ-স্থানে ।
+> শ্রীরূপ-গোসাঞি আইলা শ্ৰীবৃন্দাবনে ॥৫৪॥
+
 > eka-māsa rahi' gopāla gelā nija-sthāne
 > śrī-rūpa-gosāñi āilā śrī-vṛndāvane
 

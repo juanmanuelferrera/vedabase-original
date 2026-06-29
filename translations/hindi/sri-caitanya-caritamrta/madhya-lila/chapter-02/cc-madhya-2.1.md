@@ -1,5 +1,8 @@
 ### CC Madhya 2.1
 
+> বিচ্ছেদেঽস্মিন্ প্ৰভোরন্ত্যলীলা-সূত্রানুবর্ণনে ।
+> গৌরস্য কৃষ্ণবিচ্ছেদপ্ৰলাপাদ্যনুবর্ণ্যতে ॥১॥
+
 > vicchede 'smin prabhor antya-
 > līlā-sūtrānuvarṇane
 > gaurasya kṛṣṇa-viccheda-

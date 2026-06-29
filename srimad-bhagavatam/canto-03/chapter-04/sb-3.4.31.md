@@ -1,5 +1,8 @@
 ### SB 3.4.31
 
+> नोद्धवोऽण्वपि मन्न्यूनो यद्गुणैर्नार्दितः प्रभुः ।
+> अतो मद्वयुनं लोकं ग्राहयन्निह तिष्ठतु ॥३१॥
+
 > noddhavo 'ṇv api man-nyūno
 > yad guṇair nārditaḥ prabhuḥ
 > ato mad-vayunaṁ lokaṁ

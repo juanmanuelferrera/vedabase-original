@@ -1,5 +1,8 @@
 ### CC Antya 9.145
 
+> রায়ের ঘরে প্রভুর ‘কৃপা-বিবর্ত’ কহিল ।
+> ভক্তবাৎসল্য-গুণ যাতে ব্যক্ত হৈল ॥১৪৫॥
+
 > rāyera ghare prabhura 'kṛpā-vivarta' kahila
 > bhakta-vātsalya-guṇa yāte vyakta haila
 

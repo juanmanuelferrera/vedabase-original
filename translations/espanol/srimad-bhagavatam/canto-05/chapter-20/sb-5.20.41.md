@@ -1,5 +1,7 @@
 ### SB 5.20.41
 
+> आकल्पमेवं वेषं गत एष भगवानात्मयोगमायया विरचितविविधलोकयात्रागोपीयायेत्यर्थः ॥४१॥
+
 > ākalpam evaṁ veṣaṁ gata eṣa bhagavān ātma-yogamāyayā viracita-vividha-loka-yātrā-gopīyāyety arthaḥ.
 
 *ā-kalpam*—para el tiempo que dura la creación; *evam*—así; *veṣam*—aparición; *gataḥ*—ha aceptado; *eṣaḥ*—esta; *bhagavān*—la Suprema Personalidad de Dios; *ātma-yoga-māyayā*—por Su propia potencia espiritual; *viracita*—perfeccionado; *vividha-loka-yātrā*—el sustento de los distintos sistemas planetarios; *gopīyāya*—simplemente para mantener; *iti*—así; *arthaḥ*—el objetivo.

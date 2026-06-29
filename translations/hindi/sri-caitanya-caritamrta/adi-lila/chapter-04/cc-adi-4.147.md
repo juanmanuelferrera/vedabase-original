@@ -1,5 +1,8 @@
 ### CC Adi 4.147
 
+> কৃষ্ণমাধুর্যের এক স্বাভাবিক বল ।
+> কৃষ্ণআদি নরনারী করয়ে চঞ্চল ॥১৪৭॥
+
 > kṛṣṇa-mādhuryera eka svābhāvika bala
 > kṛṣṇa-ādi nara-nārī karaye cañcala
 

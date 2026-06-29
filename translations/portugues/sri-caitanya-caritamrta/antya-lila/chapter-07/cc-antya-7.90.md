@@ -1,5 +1,8 @@
 ### CC Antya 7.90
 
+> তবে ভট্ট গেলা পণ্ডিত-গোসাঞির ঠাঞি ।
+> নানা মতে প্রীতি করি’ করে আসা-যাই ॥৯০॥
+
 tabe bhaṭṭa gelā paṇḍita-gosāñira ṭhāñi
 
 nānā mate prīti kari' kare āsā-yāi

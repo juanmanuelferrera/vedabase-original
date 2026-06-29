@@ -1,5 +1,8 @@
 ### CC Adi 11.36
 
+> রাঢ়ে যাঁর জন্ম কৃষ্ণদাস দ্বিজবর ।
+> শ্রীনিত্যানন্দের তেঁহো পরম কিঙ্কর ॥৩৬॥
+
 > rāḍhe yāṅra janma kṛṣṇadāsa dvijavara
 > śrī-nityānandera teṅho parama kiṅkara
 

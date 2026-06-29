@@ -1,5 +1,8 @@
 ### SB 7.7.17
 
+> भवतामपि भूयान्मे यदि श्रद्दधते वचः
+> वैशारदी धीः श्रद्धातः स्त्रीबालानां च मे यथा ॥१७॥
+
 > bhavatām api bhūyān me
 > yadi śraddadhate vacaḥ
 > vaiśāradī dhīḥ śraddhātaḥ

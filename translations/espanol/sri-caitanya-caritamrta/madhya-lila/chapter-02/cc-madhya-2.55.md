@@ -1,5 +1,10 @@
 ### CC Madhya 2.55
 
+> তাহাঁ হৈতে ঘরে আসি’ মাটীর উপরে বসি’,
+> নখে করে পৃথিবী লিখন ৷
+> হা-হা কাহাঁ বৃন্দাবন, কাহাঁ গোপেন্দ্রনন্দন,
+> কাহাঁ সেই বংশীবদন ৷৷ ৫৫ ৷৷ ॥৫৫॥
+
 > tāhāṅ haite ghare āsi', māṭīra upare vasi',
 > nakhe kare pṛthivī likhana
 > hā-hā kāhāṅ vṛndāvana, kāhāṅ gopendra-nandana,

@@ -1,5 +1,8 @@
 ### SB 3.19.14
 
+> तदोजसा दैत्यमहाभटार्पितं चकासदन्तःख उदीर्णदीधिति ।
+> चक्रेण चिच्छेद निशातनेमिना हरिर्यथा तार्क्ष्यपतत्रमुज्झितम् ॥१४॥
+
 > tad ojasā daitya-mahā-bhaṭārpitaṁ
 > cakāsad antaḥ-kha udīrṇa-dīdhiti
 > cakreṇa ciccheda niśāta-neminā

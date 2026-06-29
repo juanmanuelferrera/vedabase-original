@@ -1,5 +1,8 @@
 ### CC Madhya 9.233
 
+> ভট্টথারি-ঘরে মহা উঠিল ক্রন্দন ৷
+> কেশে ধরি’ বিপ্রে লঞা করিল গমন ৷৷ ২৩৩ ৷৷ ॥২৩৩॥
+
 bhaṭṭathāri-ghare mahā uṭhila krandana
 
 keśe dhari' vipre lañā karila gamana

@@ -1,5 +1,8 @@
 ### CC Antya 1.208
 
+> প্রভু-কৃপা রূপে, আর রূপের সদ্গুণ ।
+> দেখি’ চমৎকার হৈল সবাকার মন ॥২০৮॥
+
 > prabhu-kṛpā rūpe, āra rūpera sad-guṇa
 > dekhi' camatkāra haila sabākāra mana
 

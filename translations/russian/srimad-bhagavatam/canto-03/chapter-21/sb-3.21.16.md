@@ -1,5 +1,8 @@
 ### SB 3.21.16
 
+> प्रजापतेस्ते वचसाधीश तन्त्या लोकः किलायं कामहतोऽनुबद्धः ।
+> अहं च लोकानुगतो वहामि बलिं च शुक्लानिमिषाय तुभ्यम् ॥१६॥
+
 > prajāpates te vacasādhīśa tantyā
 > lokaḥ kilāyaṁ kāma-hato 'nubaddhaḥ
 > ahaṁ ca lokānugato vahāmi

@@ -1,5 +1,8 @@
 ### SB 4.17.36
 
+> नूनं जनैरीहितमीश्वराणामस्मद्विधैस्तद्गुणसर्गमायया ।
+> न ज्ञायते मोहितचित्तवर्त्मभिस्तेभ्यो नमो वीरयशस्करेभ्यः ॥३६॥
+
 > nūnaṁ janair īhitam īśvarāṇām
 > asmad-vidhais tad-guṇa-sarga-māyayā
 > na jñāyate mohita-citta-vartmabhis

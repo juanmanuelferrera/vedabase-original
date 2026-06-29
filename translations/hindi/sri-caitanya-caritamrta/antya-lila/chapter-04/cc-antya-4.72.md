@@ -1,5 +1,8 @@
 ### CC Antya 4.72
 
+> এত শুনি’ সনাতনের হৈল চমৎকার ।
+> প্রভুরে না ভায় মোর মরণ-বিচার ॥৭২॥
+
 > eta śuni' sanātanera haila camatkāra
 > prabhure nā bhāya mora maraṇa-vicāra
 

@@ -1,5 +1,8 @@
 ### CC Antya 17.70
 
+> এই ত’ কহিলুঁ ‘কূর্মাকৃতি’-অনুভাব ।
+> উন্মাদ-চেষ্টিত তাতে উন্মাদ-প্রলাপ ॥৭০॥
+
 ei ta' kahiluṅ 'kūrmākṛti'-anubhāva
 
 unmāda-ceṣṭita tāte unmāda-pralāpa

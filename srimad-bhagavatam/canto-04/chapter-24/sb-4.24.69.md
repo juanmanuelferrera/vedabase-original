@@ -1,5 +1,8 @@
 ### SB 4.24.69
 
+> इदं जपत भद्रं वो विशुद्धा नृपनन्दनाः ।
+> स्वधर्ममनुतिष्ठन्तो भगवत्यर्पिताशयाः ॥६९॥
+
 > idaṁ japata bhadraṁ vo
 > viśuddhā nṛpa-nandanāḥ
 > sva-dharmam anutiṣṭhanto

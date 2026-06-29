@@ -1,5 +1,8 @@
 ### CC Antya 1.60
 
+> ইষ্টগোষ্ঠী দুঁহা সনে করি’ কতক্ষণ ।
+> মধ্যাহ্ন করিতে প্রভু করিলা গমন ॥৬০॥
+
 iṣṭa-goṣṭhī duṅhā sane kari' kata-kṣaṇa
 
 madhyāhna karite prabhu karilā gamana

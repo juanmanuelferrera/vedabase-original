@@ -1,5 +1,8 @@
 ### CC Madhya 18.48
 
+> তবে রূপ গোসাঞি সব নিজগণ লঞা ।
+> একমাস দরশন কৈলা মথুরায় রহিয়া ॥৪৮॥
+
 > tabe rūpa gosāñi saba nija-gaṇa lañā
 > eka-māsa daraśana kailā mathurāya rahiyā
 

@@ -1,5 +1,8 @@
 ### CC Adi 14.57
 
+> কোন কন্যা পলাইল নৈবেদ্য লইয়া ।
+> তারে ডাকি’ কহে প্রভু সক্রোধ হইয়া ॥৫৭॥
+
 > kona kanyā palāila naivedya la-iyā
 > tāre ḍāki' kahe prabhu sakrodha ha-iyā
 

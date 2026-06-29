@@ -1,5 +1,8 @@
 ### CC Madhya 18.58
 
+> ‘পাবনাদি’ সব কুণ্ডে স্নান করিয়া ।
+> লোকেরে পুছিল, পর্বত-উপরে যাঞা ॥৫৮॥
+
 'pāvanādi' saba kuṇḍe snāna kariyā
 
 lokere puchila, parvata-upare yāñā

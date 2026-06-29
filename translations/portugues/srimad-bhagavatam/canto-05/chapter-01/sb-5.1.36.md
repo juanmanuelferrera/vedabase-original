@@ -1,5 +1,7 @@
 ### SB 5.1.36
 
+> स एवमपरिमितबलपराक्रम एकदा तु देवर्षिचरणानुशयनानुपतितगुणविसर्गसंसर्गेणानिर्वृतमिवात्मानं मन्यमान आत्मनिर्वेद इदमाह ॥३५॥
+
 *sa evam aparimita*-bala-parākrama ekadā tu devarṣi-caraṇānuśayanānu-patita-guṇa-visarga-saṁsargeṇānirvṛtam ivātmānaṁ manyamāna ātma-nirveda idam āha.
 
 *saḥ*—ele (Mahārāja Priyavrata); *evam*—assim; *aparimita*—inigualável; *bala*—força; *parākramaḥ*—cuja influência; *ekadā*—certa vez; *tu*—então; *deva-ṛṣi*—do grande santo Nārada; *caraṇa-anuśayana*—rendendo-se aos pés de lótus; *anu*—depois disso; *patita*—caído; *guṇa-visarga*—em meio aos afazeres materiais (criados pelos três modos materiais da natureza); *saṁsargeṇa*—pela associação; *anirvṛtam*—não satisfeito; *iva*—como; *ātmānam*—a si próprio; *manyamānaḥ*—pensando assim; *ātma*—próprio; *nirvedaḥ*—possuindo renúncia; *idam*—isto; *āha*—disse.

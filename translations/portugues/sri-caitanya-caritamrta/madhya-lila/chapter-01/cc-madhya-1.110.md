@@ -1,5 +1,8 @@
 ### CC Madhya 1.110
 
+> চাতুর্মাস্য তাঁহা প্রভু শ্রীবৈষ্ণবের সনে ।
+> গোঙাইল নৃত্য-গীত-কৃষ্ণসংকীর্তনে ॥১১০॥
+
 cāturmāsya tāṅhā prabhu śrī-vaiṣṇavera sane
 
 goṅāila nṛtya-gīta-kṛṣṇa-saṅkīrtane

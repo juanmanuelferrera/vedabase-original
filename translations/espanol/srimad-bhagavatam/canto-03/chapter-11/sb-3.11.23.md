@@ -1,5 +1,8 @@
 ### SB 3.11.23
 
+> निशावसान आरब्धो लोककल्पोऽनुवर्तते ।
+> यावद्दिनं भगवतो मनून्भुञ्जंश्चतुर्दश ॥२३॥
+
 > niśāvasāna ārabdho
 > loka-kalpo 'nuvartate
 > yāvad dinaṁ bhagavato

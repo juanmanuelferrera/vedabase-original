@@ -1,5 +1,8 @@
 ### CC Antya 12.43
 
+> বাসাঘর পূর্ববৎ সবারে দেওয়াইলা ।
+> মহাপ্রসাদ-ভোজনে সবারে বোলাইলা ॥৪৩॥
+
 vāsā-ghara pūrvavat sabāre deoyāilā
 
 mahāprasāda-bhojane sabāre bolāilā

@@ -1,5 +1,8 @@
 ### CC Adi 17.286
 
+> চতুর্ভুজ মূর্তি ধরি’ আছেন বসিয়া ।
+> কৃষ্ণ দেখি’ গোপী কহে নিকটে আসিয়া ॥২৮৬॥
+
 catur-bhuja mūrti dhari' āchena vasiyā
 
 kṛṣṇa dekhi' gopī kahe nikaṭe āsiyā

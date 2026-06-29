@@ -1,5 +1,8 @@
 ### CC Antya 4.154
 
+> বীভৎস স্পর্শিতে না কর ঘৃণা-লেশে ।
+> এই অপরাধে মোর হবে সর্বনাশে ॥১৫৪॥
+
 > bībhatsa sparśite nā kara ghṛṇā-leśe
 > ei aparādhe mora habe sarva-nāśe
 

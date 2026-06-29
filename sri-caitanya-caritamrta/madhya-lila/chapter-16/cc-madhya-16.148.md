@@ -1,5 +1,8 @@
 ### CC Madhya 16.148
 
+> প্রভু লাগি’ ধর্ম-কর্ম ছাড়ে ভক্তগণ ।
+> ভক্ত-ধর্ম-হানি প্রভুর না হয় সহন ॥১৪৮॥
+
 > prabhu lāgi' dharma-karma chāḍe bhakta-gaṇa
 > bhakta-dharma-hāni prabhura nā haya sahana
 

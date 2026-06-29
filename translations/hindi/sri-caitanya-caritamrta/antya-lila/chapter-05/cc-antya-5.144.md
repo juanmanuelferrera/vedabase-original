@@ -1,5 +1,8 @@
 ### CC Antya 5.144
 
+> যাহা হৈতে অন্য পুরুষসকল — ‘অধম’ ।
+> সেই হয় ‘পুরুষাধম’ — সরস্বতীর মন ॥১৪৪॥
+
 > yāhā haite anya puruṣa-sakala--'adhama'
 > sei haya 'puruṣādhama'--sarasvatīra mana
 

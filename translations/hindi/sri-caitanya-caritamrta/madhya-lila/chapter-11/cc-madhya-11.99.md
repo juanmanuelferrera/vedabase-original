@@ -1,5 +1,8 @@
 ### CC Madhya 11.99
 
+> সংকীর্তন-যজ্ঞে তাঁরে করে আরাধন ।
+> সেই ত’ সুমেধা, আর — কলিহতজন ॥৯৯॥
+
 > saṅkīrtana-yajñe tāṅre kare ārādhana
 > sei ta' sumedhā, āra-kali-hata-jana
 

@@ -1,5 +1,8 @@
 ### SB 4.30.42
 
+> नमः समाय शुद्धाय पुरुषाय पराय च ।
+> वासुदेवाय सत्त्वाय तुभ्यं भगवते नमः ॥४२॥
+
 > namaḥ samāya śuddhāya
 > puruṣāya parāya ca
 > vāsudevāya sattvāya

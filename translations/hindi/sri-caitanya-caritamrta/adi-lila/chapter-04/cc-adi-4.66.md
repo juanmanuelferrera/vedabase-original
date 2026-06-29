@@ -1,5 +1,10 @@
 ### CC Adi 4.66
 
+> সত্ত্বং বিশুদ্ধং বসুদেবশব্দিতং
+> যদীয়তে তত্র পুমানপাবৃতঃ ।
+> সত্ত্বে চ তস্মিন্ ভগবান্ বাসুদেবো
+> হ্যধোক্ষজো মে মনসা বিধীয়তে ॥৬৬॥
+
 > sattvaṁ viśuddhaṁ vasudeva-śabditaṁ
 > yad īyate tatra pumān apāvṛtaḥ
 > sattve ca tasmin bhagavān vāsudevo

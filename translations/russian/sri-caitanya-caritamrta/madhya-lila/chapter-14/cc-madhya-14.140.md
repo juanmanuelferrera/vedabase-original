@@ -1,5 +1,8 @@
 ### CC Madhya 14.140
 
+> প্রভু কহে, — কহ ব্রজের মানের প্রকার ।
+> স্বরূপ কহে, — গোপীমান-নদী শতধার ॥১৪০॥
+
 > prabhu kahe,-kaha vrajera mānera prakāra
 > svarūpa kahe,-gopī-māna-nadī śata-dhāra
 

@@ -1,5 +1,8 @@
 ### CC Madhya 20.172
 
+> অনন্ত প্রকাশে কৃষ্ণের নাহি মূর্তিভেদ ।
+> আকার-বর্ণ-অস্ত্র-ভেদে নাম-বিভেদ ॥১৭২॥
+
 > ananta prakāśe kṛṣṇera nāhi mūrti-bheda
 > ākāra-varṇa-astra-bhede nāma-vibheda
 

@@ -1,5 +1,8 @@
 ### CC Madhya 21.26
 
+> এই যে তোমার অনন্ত বৈভবামৃতসিন্ধু  ।
+> মোর বাঙ্মনোগম্য নহে এক বিন্দু ॥২৬॥
+
 ei ye tomāra ananta vaibhavāmṛta-sindhu
 
 mora vāṅ-mano-gamya nahe eka bindu

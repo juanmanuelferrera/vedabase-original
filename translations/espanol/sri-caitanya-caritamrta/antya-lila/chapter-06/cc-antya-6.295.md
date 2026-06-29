@@ -1,5 +1,8 @@
 ### CC Antya 6.295
 
+> এই শিলার কর তুমি সাত্ত্বিক পূজন ।
+> অচিরাৎ পাবে তুমি কৃষ্ণপ্রেমধন ॥২৯৫॥
+
 > ei śilāre kara tumi sāttvika pūjana
 > acirāt pābe tumi kṛṣṇa-prema-dhana
 

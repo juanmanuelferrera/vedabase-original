@@ -1,5 +1,7 @@
 ### SB 5.8.31
 
+> तस्मिन्नपि कालं प्रतीक्षमाणः सङ्गाच्च भृशमुद्विग्न आत्मसहचरः शुष्कपर्णतृणवीरुधा वर्तमानो मृगत्वनिमित्तावसानमेव गणयन्मृगशरीरं तीर्थोदकक्लिन्नमुत्ससर्ज ॥३१॥
+
 > tasminn api kālaṁ pratīkṣamāṇaḥ saṅgāc ca bhṛśam udvigna ātma-sahacaraḥ śuṣka-parṇa-tṛṇa-vīrudhā vartamāno mṛgatva-nimittāvasānam eva gaṇayan mṛga-śarīraṁ tīrthodaka-klinnam ut-sasarja.
 
 *tasmin api*—en aquel *āśrama* (Pulaha-āśrama); *kālam*—el final de su tiempo de vida en el cuerpo de ciervo; *pratīkṣamāṇaḥ*—siempre esperando; *saṅgāt*—de la relación; *ca*—y; *bhṛśam*—constantemente; *udvignaḥ*—lleno de ansiedad; *ātma-sahacaraḥ*—con la Superalma como único compañero constante (nadie debe pensar que está solo); *śuṣka-parṇa-tṛṇa-vīrudhā*—comiendo solo las hierbas y hojas secas; *vartamānaḥ*—existir; *mṛgatva-nimitta*—de la causa de un cuerpo de ciervo; *avasānam*—el final; *eva*—solamente; *gaṇayan*—considerar; *mṛga-śarīram*—el cuerpo de ciervo; *tīrtha-udaka-klinnam*—bañándose en las aguas de aquel lugar sagrado; *utsasarja*—abandonó.

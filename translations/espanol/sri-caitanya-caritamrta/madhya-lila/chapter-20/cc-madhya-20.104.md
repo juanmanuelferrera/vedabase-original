@@ -1,5 +1,8 @@
 ### CC Madhya 20.104
 
+> প্রভু কহে, — “কৃষ্ণ-কৃপা তোমাতে পূর্ণ হয় ।
+> সব তত্ত্ব জান, তোমার নাহি তাপত্রয় ॥১০৪॥
+
 > prabhu kahe,--"kṛṣṇa-kṛpā tomāte pūrṇa haya
 > saba tattva jāna, tomāra nāhi tāpa-traya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 17.224
 
+> ভট্টাচার্য, সেই বিপ্র ‘কৃষ্ণনাম’ গায় ।
+> নাচিতে নাচিতে পথে প্রভু চলি’ যায় ॥২২৪॥
+
 bhaṭṭācārya, sei vipra 'kṛṣṇa-nāma' gāya
 
 nācite nācite pathe prabhu cali' yāya

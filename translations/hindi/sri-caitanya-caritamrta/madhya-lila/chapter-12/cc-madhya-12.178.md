@@ -1,5 +1,8 @@
 ### CC Madhya 12.178
 
+> সার্বভৌমে দেয়ান প্রভু প্রসাদ উত্তম ।
+> স্নেহ করি’ বারবার করান ভোজন ॥১৭৮॥
+
 > sārvabhaume deyāna prabhu prasāda uttama
 > sneha kari' bāra-bāra karāna bhojana
 

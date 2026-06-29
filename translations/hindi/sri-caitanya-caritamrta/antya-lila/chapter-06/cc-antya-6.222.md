@@ -1,5 +1,8 @@
 ### CC Antya 6.222
 
+> শুনি’ তুষ্ট হঞা প্রভু কহিতে লাগিল  ।
+> “ভাল কৈল, বৈরাগীর ধর্ম আচরিল ॥২২২॥
+
 > śuni' tuṣṭa hañā prabhu kahite lāgila
 > "bhāla kaila, vairāgīra dharma ācarila
 

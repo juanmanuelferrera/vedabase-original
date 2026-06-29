@@ -1,5 +1,8 @@
 ### CC Adi 5.206
 
+> মোর নাম শুনে যেই তার পুণ্য ক্ষয় ।
+> মোর নাম লয় যেই তার পাপ হয় ॥২০৬॥
+
 > mora nāma śune yei tāra puṇya kṣaya
 > mora nāma laya yei tāra pāpa haya
 

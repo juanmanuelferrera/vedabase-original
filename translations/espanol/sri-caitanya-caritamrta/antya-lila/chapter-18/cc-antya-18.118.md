@@ -1,5 +1,8 @@
 ### CC Antya 18.118
 
+> জলক্রীড়া করি’ কৈলা বন্য-ভোজনে ।
+> দেখি’ আমি প্রলাপ কৈলুঁ — হেন লয় মনে ।।” ॥ ১১৮ ॥
+
 > jala-krīḍā kari' kailā vanya-bhojane
 > dekhi' āmi pralāpa kailuṅ--hena laya mane"
 

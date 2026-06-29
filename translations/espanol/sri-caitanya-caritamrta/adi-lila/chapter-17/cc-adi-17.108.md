@@ -1,5 +1,8 @@
 ### CC Adi 17.108
 
+> পূর্বজন্মে ছিলা তুমি জগৎ-আশ্রয় ।
+> পরিপূর্ণ ভগবান্ — সর্বৈশ্বর্যময় ॥১০৮॥
+
 > pūrva janme chilā tumi jagat-āśraya
 > paripūrṇa bhagavān--sarvaiśvaryamaya
 

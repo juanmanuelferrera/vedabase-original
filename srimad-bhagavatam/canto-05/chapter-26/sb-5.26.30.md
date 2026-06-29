@@ -1,5 +1,7 @@
 ### SB 5.26.30
 
+> अथ च यस्त्विह वा आत्मसम्भावनेन स्वयमधमो जन्मतपोविद्याचारवर्णाश्रमवतोवरीयसो न बहु मन्येत स मृतक एव मृत्वा क्षारकर्दमे निरयेऽवाक्षिरा निपातितो दुरन्ता यातना ह्यश्नुते ॥२९॥
+
 > atha ca yas tv iha vā ātma-sambhāvanena svayam adhamo janma-tapo-vidyācāra-varṇāśramavato varīyaso na bahu manyeta sa mṛtaka eva mṛtvā kṣārakardame niraye 'vāk-śirā nipātito durantā yātanā hy aśnute.
 
 *atha*—furthermore; *ca*—also; *yaḥ*—anyone who; *tu*—but; *iha*—in this life; *vā*—or; *ātma-sambhāvanena*—by false prestige; *svayam*—himself; *adhamaḥ*—very degraded; *janma*—good birth; *tapaḥ*—austerities; *vidyā*—knowledge; *ācāra*—good behavior; *varṇa-āśrama-vataḥ*—in terms of strictly following the principles of *varṇāśrama*; *varīyasaḥ*—of one who is more honorable; *na*—not; *bahu*—much; *manyeta*—respects; *saḥ*—he; *mṛtakaḥ*—a dead body; *eva*—only; *mṛtvā*—after dying; *kṣārakardame*—named Kṣārakardama; *niraye*—in the hell; *avāk-śirā*—with his head downward; *nipātitaḥ*—thrown; *durantāḥ yātanāḥ*—severe painful conditions; *hi*—indeed; *aśnute*—suffers.

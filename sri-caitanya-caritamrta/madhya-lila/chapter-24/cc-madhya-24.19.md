@@ -1,5 +1,8 @@
 ### CC Madhya 24.19
 
+> ‘উরুক্রম’-শব্দে কহে, বড় যাঁর ক্রম ।
+> ‘ক্রম’-শব্দে কহে এই পাদবিক্ষেপণ ॥১৯॥
+
 > 'urukrama'-śabde kahe, baḍa yāṅra krama
 > 'krama'-śabde kahe ei pāda-vikṣepaṇa
 

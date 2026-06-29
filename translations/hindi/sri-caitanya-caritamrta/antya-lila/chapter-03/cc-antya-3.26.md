@@ -1,5 +1,8 @@
 ### CC Antya 3.26
 
+> মধ্যে মধ্যে আসিবা কভু আমার দরশনে ।
+> শীঘ্র করি’ পুনঃ তাহাঁ করহ গমনে ॥২৬॥
+
 > madhye madhye āsibā kabhu āmāra daraśane
 > śīghra kari' punaḥ tāhāṅ karaha gamane
 

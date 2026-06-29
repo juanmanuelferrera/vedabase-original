@@ -1,5 +1,8 @@
 ### CC Antya 8.2
 
+> জয় জয় শ্রীচৈতন্য করুণাসিন্ধু-অবতার ।
+> ব্রহ্মা-শিবাদিক ভজে চরণ যাঁহার ॥২॥
+
 jaya jaya śrī-caitanya karuṇā-sindhu-avatāra
 brahmā-śivādika bhaje caraṇa yāṅhāra
 

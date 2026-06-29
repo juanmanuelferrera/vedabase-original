@@ -1,5 +1,7 @@
 ### SB 5.15.8
 
+> तस्येमां गाथां पाण्डवेय पुराविद उपगायन्ति ॥८॥
+
 > tasyemāṁ gāthāṁ pāṇḍaveya purāvida upagāyanti.
 
 *tasya*—del rey Gaya; *imām*—estas; *gāthām*—composiciones poéticas de glorificación; *pāṇḍaveya*—¡oh, Mahārāja Parīkṣit!; *purā-vidaḥ*—los que están versados en los hechos históricos de los *Purāṇas*; *upagāyanti*—cantan.

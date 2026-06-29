@@ -1,5 +1,8 @@
 ### CC Madhya 20.224
 
+> বাসুদেব — গদাশঙ্খচক্রপদ্মধর ।
+> সঙ্কর্ষণ — গদাশঙ্খপদ্মচক্রকর ॥২২৪॥
+
 > vāsudeva--gadā-śaṅkha-cakra-padma-dhara
 > saṅkarṣaṇa--gadā-śaṅkha-padma-cakra-kara
 

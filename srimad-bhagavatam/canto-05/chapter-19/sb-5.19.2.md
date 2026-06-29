@@ -1,5 +1,7 @@
 ### SB 5.19.2
 
+> आर्ष्टिषेणेन सह गन्धर्वैरनुगीयमानां परमकल्याणीं भर्तृभगवत्कथां समुपशृणोतिस्वयं चेदं गायति ॥२॥
+
 > ārṣṭiṣeṇena saha gandharvair anugīyamānāṁ parama-kalyāṇīṁ bhartṛ-bhagavat-kathāṁ samupaśṛṇoti svayaṁ cedaṁ gāyati.
 
 *ārṣṭi-ṣeṇena*—Ārṣṭiṣeṇa, the chief personality of Kimpuruṣa-varṣa; *saha*—with; *gandharvaiḥ*—by a company of Gandharvas; *anugīyamānām*—being chanted; *parama-kalyāṇīm*—most auspicious; *bhartṛ-bhagavat-kathām*—the glories of his master, who is also the Supreme Personality of Godhead; *samupaśṛṇoti*—he hears with great attention; *svayam ca*—and personally; *idam*—this; *gāyati*—chants.

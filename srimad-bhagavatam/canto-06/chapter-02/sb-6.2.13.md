@@ -1,5 +1,8 @@
 ### SB 6.2.13
 
+> अथैनं मापनयत कृताशेषाघनिष्कृतम
+> यदसौ भगवन्नाम म्रियमाणः समग्रहीत ॥१३॥
+
 > athainaṁ māpanayata
 > kṛtāśeṣāgha-niṣkṛtam
 > yad asau bhagavan-nāma

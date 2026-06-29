@@ -1,5 +1,8 @@
 ### SB 6.15.25
 
+> अयं हि देहिनो देहो द्रव्यज्ञआनक्रियात्मकः
+> देहिनो विविधक्लेश सन्तापकृदुदाहृतः ॥२५॥
+
 > ayaṁ hi dehino deho
 > dravya-jñāna-kriyātmakaḥ
 > dehino vividha-kleśa-

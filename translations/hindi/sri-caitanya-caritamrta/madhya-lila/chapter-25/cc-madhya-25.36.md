@@ -1,5 +1,10 @@
 ### CC Madhya 25.36
 
+> নাতঃ পরং পরম যদ্ভবতঃ স্বরূপ-
+> মানন্দমাত্রমবিকল্পমবিদ্ধবর্চঃ ।
+> পশ্যামি বিশ্বসৃজমেকমবিশ্বমাত্মন্
+> ভূতেন্দ্রিয়াত্মকমদস্ত উপাশ্রিতোঽস্মি ॥৩৬॥
+
 > nātaḥ paraṁ parama yad bhavataḥ svarūpam
 > ānanda-mātram avikalpam aviddha-varcaḥ
 > paśyāmi viśva-sṛjam ekam aviśvam ātman

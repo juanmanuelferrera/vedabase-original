@@ -1,5 +1,8 @@
 ### CC Adi 6.43
 
+> সেই অভিমান-সুখে আপনা পাসরে ।
+> ‘কৃষ্ণদাস’ হও — জীবে উপদেশ করে ॥৪৩॥
+
 > sei abhimāna-sukhe āpanā pāsare
 > 'kṛṣṇa-dāsa' hao—jīve upadeśa kare
 

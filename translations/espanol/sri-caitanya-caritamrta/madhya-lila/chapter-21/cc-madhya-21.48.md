@@ -1,5 +1,8 @@
 ### CC Madhya 21.48
 
+> অনন্ত বৈকুণ্ঠ যাহাঁ ভাণ্ডার-কোঠরি ।
+> পারিষদগণে ষড়ৈশ্বর্যে আছে ভরি’ ॥৪৮॥
+
 > ananta vaikuṇṭha yāhāṅ bhāṇḍāra-koṭhari
 > pāriṣada-gaṇe ṣaḍ-aiśvarye āche bhari'
 > SYNONYMS

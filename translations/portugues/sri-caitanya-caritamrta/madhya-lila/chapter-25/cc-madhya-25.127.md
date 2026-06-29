@@ -1,5 +1,8 @@
 ### CC Madhya 25.127
 
+> ভক্ত আমা প্রেমে বান্ধিয়াছে হৃদয়-ভিতরে ।
+> যাহাঁ নেত্র পড়ে তাহাঁ দেখয়ে আমারে ॥১২৭॥
+
 bhakta āmā preme bāndhiyāche hṛdaya-bhitare
 
 yāhāṅ netra paḍe tāhāṅ dekhaye āmāre

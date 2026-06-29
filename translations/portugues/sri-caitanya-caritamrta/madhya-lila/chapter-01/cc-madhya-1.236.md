@@ -1,5 +1,8 @@
 ### CC Madhya 1.236
 
+> বলভদ্র ভট্টাচার্য, আর পণ্ডিত দামোদর ।
+> দুইজন-সঙ্গে প্রভু আইলা নীলাচল ॥২৩৬॥
+
 balabhadra bhaṭṭācārya, āra paṇḍita dāmodara
 
 dui-jana-saṅge prabhu āilā nīlācala

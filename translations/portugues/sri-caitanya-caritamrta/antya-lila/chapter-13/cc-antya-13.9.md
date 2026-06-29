@@ -1,5 +1,8 @@
 ### CC Antya 13.9
 
+> স্বরূপ-গোসাঞিকে কহে জগদানন্দ ।
+> ‘আজি আপনে যাঞা প্রভুরে করাইহ শয়ন’ ॥৯॥
+
 svarūpa-gosāñike kahe jagadānanda
 'āji āpane yāñā prabhure karāiha śayana'
 

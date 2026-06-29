@@ -1,5 +1,8 @@
 ### SB 1.12.33
 
+> तदभिप्रेतमालक्ष्य भ्रातरो ञ्च्युतचोदिताः ।
+> धनं प्रहीणमाजह्रुरुदीच्यां दिशि भूरिशः ॥३३॥
+
 > tad abhipretam ālakṣya
 > bhrātaro 'cyuta-coditāḥ
 > dhanaṁ prahīṇam ājahrur

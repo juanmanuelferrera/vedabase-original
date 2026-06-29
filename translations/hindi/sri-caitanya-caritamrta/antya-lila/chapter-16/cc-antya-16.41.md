@@ -1,5 +1,8 @@
 ### CC Antya 16.41
 
+> সিংহদ্বারের উত্তরদিকে কপাটের আড়ে ।
+> বাইশ ‘পাহাচ’-তলে আছে এক নিম্ন গাড়ে ॥৪১॥
+
 > siṁha-dvārera uttara-dike kapāṭera āḍe
 > bāiśa 'pāhāca'-tale āche eka nimna gāḍe
 

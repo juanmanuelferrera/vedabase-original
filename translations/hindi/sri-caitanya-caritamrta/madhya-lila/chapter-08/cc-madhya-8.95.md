@@ -1,5 +1,8 @@
 ### CC Madhya 8.95
 
+> তত্রাতিশুশুভে তাভির্ভগবান্ দেবকীসুতঃ ।
+> মধ্যে মণীনাং হৈমানাং মহামরকতো যথা ॥৯৫॥
+
 > tatrātiśuśubhe tābhir
 > bhagavān devakī-sutaḥ
 > madhye maṇīnāṁ haimānāṁ

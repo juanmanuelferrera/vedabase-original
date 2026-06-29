@@ -1,5 +1,8 @@
 ### SB 1.18.27
 
+> विप्रकीर्णजटाच्छन्नं रौरवेणाजिनेन च ।
+> विशुष्यत्तालुरुदकं तथाभूतमयाचत ॥२७॥
+
 > viprakīrṇa-jaṭācchannaṁ
 > rauraveṇājinena ca
 > viśuṣyat-tālur udakaṁ

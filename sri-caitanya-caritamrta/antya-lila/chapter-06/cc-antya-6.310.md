@@ -1,5 +1,8 @@
 ### CC Antya 6.310
 
+> সাড়ে সাত প্রহর যায় কীর্তন-স্মরণে ।
+> আহার-নিদ্রা চারি দণ্ড সেহ নহে কোন দিনে ॥৩১০॥
+
 > sāḍe sāta prahara yāya kīrtana-smaraṇe
 > āhāra-nidrā cāri daṇḍa seha nahe kona dine
 

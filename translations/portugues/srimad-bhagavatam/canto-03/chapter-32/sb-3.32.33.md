@@ -1,5 +1,8 @@
 ### SB 3.32.33
 
+> यथेन्द्रियैः पृथग्द्वारैरर्थो बहुगुणाश्रयः ।
+> एको नानेयते तद्वद्भगवान्शास्त्रवर्त्मभिः ॥३३॥
+
 yathendriyaiḥ pṛthag-dvārair
 artho bahu-guṇāśrayaḥ
 eko nāneyate tadvad

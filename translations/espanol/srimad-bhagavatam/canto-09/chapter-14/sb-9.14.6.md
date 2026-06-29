@@ -1,5 +1,8 @@
 ### SB 9.14.6
 
+> शुक्रो बृहस्पतेर्द्वेषादग्रहीत्सासुरोडुपम
+> हरो गुरुसुतं स्नेहात्सर्वभूतगणावृतः ॥६॥
+
 > śukro bṛhaspater dveṣād
 > agrahīt sāsuroḍupam
 > haro guru-sutaṁ snehāt

@@ -1,5 +1,8 @@
 ### CC Adi 13.83
 
+> শচী কহে, — মুঞি দেখোঁ আকাশ-উপরে ।
+> দিব্যমূর্তি লোক সব যেন স্তুতি করে ॥৮৩॥
+
 > śacī kahe,--muñi dekhoṅ ākāśa-upare
 > divya-mūrti loka saba yena stuti kare
 

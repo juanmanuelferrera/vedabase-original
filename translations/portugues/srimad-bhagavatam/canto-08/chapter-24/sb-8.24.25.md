@@ -1,5 +1,8 @@
 ### SB 8.24.25
 
+> एवं विमोहितस्तेन वदता वल्गुभारतीम
+> तमाह को भवानस्मान्मत्स्यरूपेण मोहयन ॥२५॥
+
 evaṁ vimohitas tena
 vadatā valgu-bhāratīm
 tam āha ko bhavān asmān

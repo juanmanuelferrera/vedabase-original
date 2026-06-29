@@ -1,5 +1,8 @@
 ### SB 8.21.20
 
+> यः प्रभुः सर्वभूतानां सुखदुःखोपपत्तये
+> तं नातिवर्तितुं दैत्याः पौरुषैरीश्वरः पुमान ॥२०॥
+
 > yaḥ prabhuḥ sarva-bhūtānāṁ
 > sukha-duḥkhopapattaye
 > taṁ nātivartituṁ daityāḥ

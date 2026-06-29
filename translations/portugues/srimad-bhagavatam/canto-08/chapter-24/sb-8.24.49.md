@@ -1,5 +1,8 @@
 ### SB 8.24.49
 
+> न यत्प्रसादायुतभागलेशमन्ये च देवा गुरवो जनाः स्वयम
+> कर्तुं समेताः प्रभवन्ति पुंसस्तमीश्वरं त्वां शरणं प्रपद्ये ॥४९॥
+
 na yat-prasādāyuta-bhāga-leśam
 anye ca devā guravo janāḥ svayam
 kartuṁ sametāḥ prabhavanti puṁsas

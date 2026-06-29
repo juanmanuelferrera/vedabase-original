@@ -1,5 +1,10 @@
 ### CC Madhya 2.94
 
+> শ্রীচৈতন্য, নিত্যানন্দ, অদ্বৈতাদি ভক্তবৃন্দ,
+> শিরে ধরি সবার চরণ ।
+> স্বরূপ, রূপ, সনাতন, রঘুনাথের শ্রীচরণ,
+> ধূলি করোঁ মস্তকে ভূষণ ॥৯৪॥
+
 śrī-caitanya, nityānanda, advaitādi bhakta-vṛnda,
 śire dhari sabāra caraṇa
 svarūpa, rūpa, sanātana, raghunāthera śrī-caraṇa,

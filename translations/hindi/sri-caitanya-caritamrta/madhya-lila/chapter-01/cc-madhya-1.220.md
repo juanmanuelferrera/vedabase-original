@@ -1,5 +1,8 @@
 ### CC Madhya 1.220
 
+> সবার চরণে ধরি, পড়ে দুই ভাই ।
+> সবে বলে, — ধন্য তুমি, পাইলে গোসাঞি ॥২২০॥
+
 > sabāra caraṇe dhari, paḍe dui bhāi
 > sabe bale,--dhanya tumi, pāile gosāñi
 

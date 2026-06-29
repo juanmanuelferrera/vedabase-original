@@ -1,5 +1,8 @@
 ### CC Adi 14.75
 
+> ইহা শুনি’ মাতাকে কহিল ব্রহ্মজ্ঞান ।
+> বিস্মিতা হইয়া মাতা করাইল স্নান ॥৭৫॥
+
 ihā śuni' mātāke kahila brahma-jñāna
 
 vismitā ha-iyā mātā karāila snāna

@@ -1,5 +1,7 @@
 ### SB 5.18.15
 
+> केतुमालेऽपि भगवान्कामदेवस्वरूपेण लक्ष्म्याः प्रियचिकीर्षया प्रजापतेर्दुहित्णां पुत्राणांतद्वर्षपतीनां पुरुषायुषाहोरात्रपरिसङ्ख्यानानां यासां गर्भा महापुरुषमहास्त्रतेजसोद्वेजितमनसां विध्वस्ता व्यसवः संवत्सरान्ते विनिपतन्ति ॥१५॥
+
 > ketumāle 'pi bhagavān kāmadeva-svarūpeṇa lakṣmyāḥ priya-cikīrṣayā prajāpater duhitṝṇāṁ putrāṇāṁ tad-varṣa-patīnāṁ puruṣāyuṣāho-rātra-parisaṅkhyānānāṁ yāsāṁ garbhā mahā-puruṣa-mahāstra-tejasodvejita-manasāṁ vidhvastā vyasavaḥ saṁvatsarānte vinipatanti.
 
 *ketumāle*—in the tract of land known as Ketumāla-varṣa; *api*—also; *bhagavān*—the Supreme Personality of Godhead, Lord Viṣṇu; *kāmadeva-svarūpeṇa*—in the form of Kāmadeva (Cupid or Pradyumna); *lakṣmyāḥ*—of the goddess of fortune; *priya-cikīrṣayā*—with a desire to bring about the satisfaction; *prajāpateḥ*—of Prajāpati; *duhitṝṇām*—of the daughters; *putrāṇām*—of the sons; *tat-varṣa-patīnām*—the ruler of that land; *puruṣa-āyuṣā*—in a human lifetime (about one hundred years); *ahaḥ-rātra*—the days and nights; *parisaṅkhyānānām*—which equal in number; *yāsām*—of whom (the daughters); *garbhāḥ*—fetuses; *mahā-puruṣa*—of the Supreme Personality of Godhead; *mahā-astra*—of the great weapon (the disc); *tejasā*—by the effulgence; *udvejita-manasām*—whose minds are agitated; *vidhvastāḥ*—ruined; *vyasavaḥ*—dead; *saṁvatsara-ante*—at the end of the year; *vinipatanti*—fall down.

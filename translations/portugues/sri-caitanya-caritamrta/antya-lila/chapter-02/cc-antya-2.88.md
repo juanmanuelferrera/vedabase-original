@@ -1,5 +1,8 @@
 ### CC Antya 2.88
 
+> তাঁর পিতা ‘বিষয়ী’ বড় শতানন্দ-খাঁন ।
+> ‘বিষয়বিমুখ’ আচার্য — ‘বৈরাগ্যপ্রধান’ ॥৮৮॥
+
 tāṅra pitā 'viṣayī' baḍa śatānanda-khāṅna
 
 'viṣaya-vimukha' ācārya--'vairāgya-pradhāna'

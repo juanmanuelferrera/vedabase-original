@@ -1,5 +1,8 @@
 ### CC Madhya 16.142
 
+> এত বলি’ মহাপ্রভু নৌকাতে চড়িলা ।
+> মূর্চ্ছিত হঞা পণ্ডিত তথাই পড়িলা ॥১৪২॥
+
 > eta bali' mahāprabhu naukāte caḍilā
 > mūrcchita hañā paṇḍita tathāi paḍilā
 

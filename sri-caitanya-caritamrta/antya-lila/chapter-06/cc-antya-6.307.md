@@ -1,5 +1,8 @@
 ### CC Antya 6.307
 
+> “শিলা দিয়া গোসাঞি সমর্পিলা ‘গোবর্ধনে’  ।
+> গুঞ্জামালা দিয়া দিলা ‘রাধিকা-চরণে’ ।।” ৩০৭ ॥৩০৭॥
+
 > "śilā diyā gosāñi samarpilā 'govardhane'
 > guñjā-mālā diyā dilā 'rādhikā-caraṇe'
 

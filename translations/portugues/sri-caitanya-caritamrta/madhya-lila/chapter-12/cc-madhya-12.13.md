@@ -1,5 +1,8 @@
 ### CC Madhya 12.13
 
+> পত্রী দেখি’ সবার মনে হইল বিস্ময় ।
+> প্রভুপদে গজপতির এত ভক্তি হয়! ॥ ১৩ ॥
+
 patrī dekhi' sabāra mane ha-ila vismaya
 prabhu-pade gajapatira eta bhakti haya!!
 

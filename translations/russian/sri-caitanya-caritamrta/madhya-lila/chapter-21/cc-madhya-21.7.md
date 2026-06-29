@@ -1,5 +1,8 @@
 ### CC Madhya 21.7
 
+> অনন্ত বৈকুণ্ঠ-পরব্যোম যার দলশ্রেণী ।
+> সর্বোপরি কৃষ্ণলোক ‘কর্ণিকার’ গণি ॥৭॥
+
 > ananta vaikuṇṭha-paravyoma yāra dala-śreṇī
 > sarvopari kṛṣṇaloka 'karṇikāra' gaṇi
 

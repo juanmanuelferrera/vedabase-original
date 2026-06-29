@@ -1,5 +1,8 @@
 ### CC Madhya 12.33
 
+> এক যুক্তি আছে, যদি কর অবধান  ।
+> তুমি না মিলিলেহ তাঁরে, রহে তাঁর প্রাণ ॥৩৩॥
+
 > eka yukti āche, yadi kara avadhāna
 > tumi nā milileha tāṅre, rahe tāṅra prāṇa
 

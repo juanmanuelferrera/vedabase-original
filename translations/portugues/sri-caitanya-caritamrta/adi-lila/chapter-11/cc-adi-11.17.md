@@ -1,5 +1,8 @@
 ### CC Adi 11.17
 
+> গদাধর দাস গোপীভাবে পূর্ণানন্দ ।
+> যাঁর ঘরে দানকেলি কৈল নিত্যানন্দ ॥১৭॥
+
 gadādhara dāsa gopībhāve pūrṇānanda
 yāṅra ghare dānakeli kaila nityānanda
 

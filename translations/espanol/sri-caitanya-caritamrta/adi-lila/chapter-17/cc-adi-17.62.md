@@ -1,5 +1,8 @@
 ### CC Adi 17.62
 
+> শাপিব তোমারে মুঞি, পাঞাছি মনোদুঃখ ।
+> পৈতা ছিণ্ডিয়া শাপে প্রচণ্ড দুর্মুখ ॥৬২॥
+
 > śāpiba tomāre muñi, pāñāchi mano-duḥkha
 > paitā chiṇḍiyā śāpe pracaṇḍa durmukha
 

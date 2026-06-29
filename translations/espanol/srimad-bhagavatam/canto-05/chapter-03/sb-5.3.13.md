@@ -1,5 +1,7 @@
 ### SB 5.3.13
 
+> किञ्चायं राजर्षिरपत्यकामः प्रजां भवादृशीमाशासान ईश्वरमाशिषां स्वर्गापवर्गयोरपिभवन्तमुपधावति प्रजायामर्थप्रत्ययो धनदमिवाधनः फलीकरणम ॥१२॥
+
 > kiñcāyaṁ rājarṣir apatya-kāmaḥ prajāṁ bhavādṛśīm āśāsāna īśvaram āśiṣāṁ svargāpavargayor api bhavantam upadhāvati prajāyām artha-pratyayo dhanadam ivādhanaḥ phalīkaraṇam.
 
 *kiñca*—además; *ayam*—este; *rāja-ṛṣiḥ*—rey piadoso (Nābhi); *apatya-kāmaḥ*—deseoso de descendencia; *prajām*—un hijo; *bhavādṛśīm*—exactamente como Tú; *āśāsānaḥ*—con la esperanza de; *īśvaram*—al controlador supremo; *āśiṣām*—de bendiciones; *svarga-apavargayoḥ*—de los planetas celestiales y de la liberación; *api*—aunque; *bhavantam*—Tú; *upadhāvati*—adora; *prajāyām*—hijos; *artha-pratyayaḥ*—considerando el objetivo supremo de la vida; *dhana-dam*—a una persona que puede dar en caridad una riqueza inmensa; *iva*—como; *adhanaḥ*—un pobre; *phalīkaraṇam*—unas cáscaras de arroz.

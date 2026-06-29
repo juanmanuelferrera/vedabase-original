@@ -1,5 +1,8 @@
 ### CC Madhya 1.95
 
+> মাতা ভক্তগণের তাহাঁ করিল মিলন ।
+> সর্ব সমাধান করি’ কৈল নীলাদ্রিগমন ॥৯৫॥
+
 > mātā bhakta-gaṇera tāhāṅ karila milana
 > sarva samādhāna kari' kaila nīlādri-gamana
 

@@ -1,5 +1,8 @@
 ### CC Adi 4.29
 
+> মো-বিষয়ে গোপীগণের উপপতি-ভাবে ।
+> যোগমায়া করিবেক আপনপ্রভাবে ॥২৯॥
+
 > mo-viṣaye gopī-gaṇera upapati-bhāve
 > yoga-māyā karibeka āpana-prabhāve
 

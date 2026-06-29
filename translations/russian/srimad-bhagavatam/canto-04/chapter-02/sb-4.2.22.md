@@ -1,5 +1,8 @@
 ### SB 4.2.22
 
+> गृहेषु कूटधर्मेषु सक्तो ग्राम्यसुखेच्छया ।
+> कर्मतन्त्रं वितनुते वेदवादविपन्नधीः ॥२२॥
+
 > gṛheṣu kūṭa-dharmeṣu
 > sakto grāmya-sukhecchayā
 > karma-tantraṁ vitanute

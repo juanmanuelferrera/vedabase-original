@@ -1,5 +1,8 @@
 ### CC Antya 4.124
 
+> তপ্ত-বালুকায় তোমার পায় হৈল ব্রণ ।
+> চলিতে না পার, কেমনে করিলা সহন ?” ॥ ১২৪ ॥
+
 tapta-vālukāya tomāra pāya haila vraṇa
 
 calite nā pāra, kemane karilā sahana?"

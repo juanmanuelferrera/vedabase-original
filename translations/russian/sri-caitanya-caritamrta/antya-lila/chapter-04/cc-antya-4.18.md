@@ -1,5 +1,8 @@
 ### CC Antya 4.18
 
+> হরিদাস কহে, — ‘সনাতন করে নমস্কার’ ।
+> সনাতনে দেখি’ প্রভু হৈলা চমৎকার ॥১৮॥
+
 > haridāsa kahe,—'sanātana kare namaskāra'
 > sanātane dekhi' prabhu hailā camatkāra
 

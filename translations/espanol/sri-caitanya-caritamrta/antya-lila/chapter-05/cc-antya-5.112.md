@@ -1,5 +1,10 @@
 ### CC Antya 5.112
 
+> বিকচকমলনেত্রে শ্রীজগন্নাথসংজ্ঞে
+> কনকরুচিরিহাত্মন্যাত্মতাং যঃ প্রপন্নঃ ।
+> প্রকৃতিজড়মশেষং চেতয়ন্নাবিরাসীৎ
+> স দিশতু তব ভব্যং কৃষ্ণচৈতন্যদেবঃ ॥১১২॥
+
 > vikaca-kamala-netre śrī-jagannātha-saṁjñe
 > kanaka-rucir ihātmany ātmatāṁ yaḥ prapannaḥ
 > prakṛti-jaḍam aśeṣaṁ cetayann āvirāsīt

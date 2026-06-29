@@ -1,5 +1,8 @@
 ### CC Antya 2.63
 
+> আনন্দে বিহ্বল প্রদ্যুম্ন, পড়ে অশ্রুধার ।
+> “হাহা কিবা কর” বলি’ করয়ে ফুৎকার ॥৬৩॥
+
 > ānande vihvala pradyumna, paḍe aśru-dhāra
 > "hāhā kibā kara" bali' karaye phutkāra
 

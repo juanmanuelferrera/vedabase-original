@@ -1,5 +1,8 @@
 ### CC Antya 1.59
 
+> প্রতিদিন আসি’ রূপে করেন মিলনে ।
+> মন্দিরে যে প্রসাদ পান, দেন দুই জনে ॥৫৯॥
+
 pratidina āsi' rūpe karena milane
 
 mandire ye prasāda pāna, dena dui jane

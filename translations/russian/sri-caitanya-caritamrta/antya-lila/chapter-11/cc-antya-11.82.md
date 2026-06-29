@@ -1,5 +1,8 @@
 ### CC Antya 11.82
 
+> মহাপ্রভুর শ্রীহস্তে অল্প না আইসে ।
+> একএক পাতে পঞ্চজনার ভক্ষ্য পরিবেশে ॥৮২॥
+
 > mahāprabhura śrī-haste alpa nā āise
 > eka eka pāte pañca-janāra bhakṣya pariveśe
 

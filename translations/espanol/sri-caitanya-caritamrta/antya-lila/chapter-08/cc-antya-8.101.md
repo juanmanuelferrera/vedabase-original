@@ -1,5 +1,8 @@
 ### CC Antya 8.101
 
+> চৈতন্যচরিত্র — যেন অমৃতের পূর ।
+> শুনিতে শ্রবণে মনে লাগয়ে মধুর ॥১০১॥
+
 > caitanya-caritra--yena amṛtera pūra
 > śunite śravaṇe mane lāgaye madhura
 

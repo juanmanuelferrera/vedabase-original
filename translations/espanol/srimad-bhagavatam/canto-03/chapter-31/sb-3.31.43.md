@@ -1,5 +1,8 @@
 ### SB 3.31.43
 
+> देहेन जीवभूतेन लोकाल्लोकमनुव्रजन् ।
+> भुञ्जान एव कर्माणि करोत्यविरतं पुमान् ॥४३॥
+
 > dehena jīva-bhūtena
 > lokāl lokam anuvrajan
 > bhuñjāna eva karmāṇi

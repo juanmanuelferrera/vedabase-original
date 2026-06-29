@@ -1,5 +1,8 @@
 ### CC Madhya 24.214
 
+> দেহারামী কর্মনিষ্ঠ — যাজ্ঞিকাদি জন ।
+> সৎসঙ্গে ‘কর্ম’ ত্যজি’ করয় ভজন ॥২১৪॥
+
 dehārāmī karma-niṣṭha--yājñikādi jana
 
 sat-saṅge 'karma' tyaji' karaya bhajana

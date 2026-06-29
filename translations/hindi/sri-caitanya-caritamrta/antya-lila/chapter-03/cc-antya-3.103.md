@@ -1,5 +1,8 @@
 ### CC Antya 3.103
 
+> হরিদাসে লোকে পূজে, সহিতে না পারে ।
+> তাঁর অপমান করিতে নানা উপায় করে ॥১০৩॥
+
 > haridāse loke pūje, sahite nā pāre
 > tāṅra apamāna karite nānā upāya kare
 

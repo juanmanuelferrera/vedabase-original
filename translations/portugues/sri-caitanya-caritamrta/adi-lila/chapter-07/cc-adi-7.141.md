@@ -1,5 +1,8 @@
 ### CC Adi 7.141
 
+> ভগবান্-প্রাপ্তিহেতু যে করি উপায় ।
+> শ্রবণাদি ভক্তি — কৃষ্ণ-প্রাপ্তির সহায় ॥১৪১॥
+
 bhagavān-prāpti-hetu ye kari upāya
 
 śravaṇādi bhakti--kṛṣṇa-prāptira sahāya

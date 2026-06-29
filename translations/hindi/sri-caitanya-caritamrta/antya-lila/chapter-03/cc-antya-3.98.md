@@ -1,5 +1,8 @@
 ### CC Antya 3.98
 
+> বৃন্দাবন-দাস যাহা না কৈল বর্ণন ।
+> হরিদাসের গুণ কিছু শুন, ভক্তগণ ॥৯৮॥
+
 > vṛndāvana-dāsa yāhā nā kaila varṇana
 > haridāsera guṇa kichu śuna, bhakta-gaṇa
 

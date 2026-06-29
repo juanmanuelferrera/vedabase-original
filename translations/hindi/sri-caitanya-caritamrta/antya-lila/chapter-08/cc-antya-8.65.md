@@ -1,5 +1,8 @@
 ### CC Antya 8.65
 
+> তোমারে ক্ষীণ দেখি, শুনি, — কর অর্ধাশন ।
+> এই ‘শুষ্ক-বৈরাগ্য’ নহে সন্ন্যাসীর ‘ধর্ম’ ॥৬৫॥
+
 > tomāre kṣīṇa dekhi, śuni,--kara ardhāśana
 > ei 'śuṣka-vairāgya' nahe sannyāsīra 'dharma'
 

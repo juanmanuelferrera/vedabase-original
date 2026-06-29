@@ -1,5 +1,8 @@
 ### CC Adi 2.36
 
+> প্রাকৃতাপ্রাকৃত-সৃষ্ট্যে যত জীবরূপ ।
+> তাহার যে আত্মা তুমি মূল-স্বরূপ ॥৩৬॥
+
 > prākṛtāprākṛta-sṛṣṭye yata jīva-rūpa
 > tāhāra ye ātmā tumi mūla-svarūpa
 

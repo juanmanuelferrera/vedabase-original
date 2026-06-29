@@ -1,5 +1,8 @@
 ### CC Adi 17.25
 
+> অন্যথা যে মানে, তার নাহিক নিস্তার ।
+> নাহি, নাহি, নাহি — এ তিন ‘এব’-কার ॥২৫॥
+
 anyathā ye māne, tāra nāhika nistāra
 nāhi, nāhi, nāhi--e tina 'eva'-kāra
 

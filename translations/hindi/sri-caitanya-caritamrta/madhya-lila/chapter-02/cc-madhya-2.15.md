@@ -1,5 +1,8 @@
 ### CC Madhya 2.15
 
+> কাহাঁ মোর প্রাণনাথ মুরলীবদন ।
+> কাহাঁ করোঁ কাহাঁ পাঙ ব্রজেন্দ্রনন্দন ॥১৫॥
+
 > kāhāṅ mora prāṇa-nātha muralī-vadana
 > kāhāṅ karoṅ kāhāṅ pāṅ vrajendra-nandana
 

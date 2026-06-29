@@ -1,5 +1,8 @@
 ### CC Antya 9.66
 
+> বিষয়ীর বার্তা শুনি’ ক্ষুব্ধ হয় মন ।
+> তাতে ইঁহা রহি’ মোর নাহি প্রয়োজন ।।” ॥ ৬৬ ॥
+
 > viṣayīra vārtā śuni' kṣubdha haya mana
 > tāte ihāṅ rahi' mora nāhi prayojana"
 

@@ -1,5 +1,8 @@
 ### SB 4.12.7
 
+> वृणीहि कामं नृप यन्मनोगतं मत्तस्त्वमौत्तानपदेऽविशङ्कितः ।
+> वरं वरार्होऽम्बुजनाभपादयोरनन्तरं त्वां वयमङ्ग शुश्रुम ॥७॥
+
 > vṛṇīhi kāmaṁ nṛpa yan mano-gataṁ
 > mattas tvam auttānapade 'viśaṅkitaḥ
 > varaṁ varārho 'mbuja-nābha-pādayor

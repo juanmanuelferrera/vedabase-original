@@ -1,5 +1,8 @@
 ### CC Madhya 19.60
 
+> ত্রিবেণী-উপর প্রভুর বাসা-ঘর স্থান ।
+> দুই ভাই বাসা কৈল প্রভু-সন্নিধান ॥৬০॥
+
 triveṇī-upara prabhura vāsā-ghara sthāna
 
 dui bhāi vāsā kaila prabhu-sannidhāna

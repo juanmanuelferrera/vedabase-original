@@ -1,5 +1,8 @@
 ### CC Adi 17.301
 
+> পণ্ডিত-গোসাঞি আদি যাঁর যেই রস ।
+> সেই সেই রসে প্রভু হন তাঁর বশ ॥৩০১॥
+
 paṇḍita-gosāñi ādi yāṅra yei rasa
 
 sei sei rase prabhu hana tāṅra vaśa

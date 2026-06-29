@@ -1,5 +1,8 @@
 ### CC Madhya 15.293
 
+> ভট্ট কহে, — চল, প্রভু, ঈশ্বর-দরশনে ।
+> স্নান করি’ তাঁহা মুঞি আসিছোঁ এখনে ॥২৯৩॥
+
 > bhaṭṭa kahe,—cala, prabhu, īśvara-daraśane
 > snāna kari' tāṅhā muñi āsichoṅ ekhane
 

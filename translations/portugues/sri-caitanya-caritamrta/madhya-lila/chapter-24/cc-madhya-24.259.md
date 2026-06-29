@@ -1,5 +1,8 @@
 ### CC Madhya 24.259
 
+> “ঘরে গিয়া ব্রাহ্মণে দেহ’ যত আছে ধন ।
+> এক এক বস্ত্র পরি’ বাহির হও দুইজন ॥২৫৯॥
+
 "ghare giyā brāhmaṇe deha' yata āche dhana
 
 eka eka vastra pari' bāhira hao dui-jana

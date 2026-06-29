@@ -1,5 +1,10 @@
 ### CC Adi 13.108
 
+> আচার্যরত্ন, শ্রীবাস, জগন্নাথমিশ্র-পাশ,
+> আসি’ তাঁরে করে সাবধান ।
+> করাইল জাতকর্ম, যে আছিল বিধি-ধর্ম,
+> তবে মিশ্র করে নানা দান ॥১০৮॥
+
 > ācāryaratna, śrīvāsa, jagannātha-miśra-pāśa,
 > āsi' tāṅre kare sāvadhāna
 > karāila jātakarma, ye āchila vidhi-dharma,

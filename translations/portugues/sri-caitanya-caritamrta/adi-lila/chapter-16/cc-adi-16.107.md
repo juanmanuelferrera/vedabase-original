@@ -1,5 +1,8 @@
 ### CC Adi 16.107
 
+> প্রাতে আসি’ প্রভুপদে লইল শরণ ।
+> প্রভু কৃপা কৈল, তাঁর খণ্ডিল বন্ধন ॥১০৭॥
+
 prāte āsi' prabhu-pade la-ila śaraṇa
 
 prabhu kṛpā kaila, tāṅra khaṇḍila bandhana

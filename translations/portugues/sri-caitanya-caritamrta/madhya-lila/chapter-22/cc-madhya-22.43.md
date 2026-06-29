@@ -1,5 +1,8 @@
 ### CC Madhya 22.43
 
+> সংসার ভ্রমিতে কোন ভাগ্যে কেহ তরে ।
+> নদীর প্রবাহে যেন কাষ্ঠ লাগে তীরে ॥৪৩॥
+
 saṁsāra bhramite kona bhāgye keha tare
 
 nadīra pravāhe yena kāṣṭha lāge tīre

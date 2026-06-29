@@ -1,5 +1,8 @@
 ### CC Adi 1.59
 
+> ততো দুঃসঙ্গমুৎসৃজ্য সৎসু সজ্জেত বুদ্ধিমান্ ।
+> সন্ত এবাস্য ছিন্দন্তি মনোব্যাসঙ্গমুক্তিভিঃ ॥৫৯॥
+
 > tato duḥsaṅgam utsṛjya
 > satsu sajjeta buddhi-mān
 > santa evāsya chindanti

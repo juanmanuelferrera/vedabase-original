@@ -1,5 +1,8 @@
 ### SB 6.9.49
 
+> न वेद कृपणः श्रेय आत्मनो गुणवस्तुदृक
+> तस्य तानिच्छतो यच्छेद्यदि सोऽपि तथाविधः ॥४९॥
+
 > na veda kṛpaṇaḥ śreya
 > ātmano guṇa-vastu-dṛk
 > tasya tān icchato yacched

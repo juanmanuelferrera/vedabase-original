@@ -1,5 +1,8 @@
 ### CC Madhya 13.120
 
+> নাচিতে নাচিতে প্রভুর হৈলা ভাবান্তর ।
+> হস্ত তুলি’ শ্লোক পড়ে করি’ উচ্চৈঃস্বর ॥১২০॥
+
 > nācite nācite prabhura hailā bhāvāntara
 > hasta tuli' śloka paḍe kari' uccaiḥ-svara
 

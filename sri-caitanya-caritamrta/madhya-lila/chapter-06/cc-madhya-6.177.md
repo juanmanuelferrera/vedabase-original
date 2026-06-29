@@ -1,5 +1,8 @@
 ### CC Madhya 6.177
 
+> বিতণ্ডা, ছল, নিগ্রহাদি অনেক উঠাইল ।
+> সব খণ্ডি’ প্রভু নিজ-মত সে স্থাপিল ॥১৭৭॥
+
 > vitaṇḍā, chala, nigrahādi aneka uṭhāila
 > saba khaṇḍi' prabhu nija-mata se sthāpila
 

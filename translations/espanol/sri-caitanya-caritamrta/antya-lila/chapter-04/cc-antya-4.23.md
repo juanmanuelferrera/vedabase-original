@@ -1,5 +1,8 @@
 ### CC Antya 4.23
 
+> প্রভু লঞা বসিলা পিণ্ডার উপরে ভক্তগণ ।
+> পিণ্ডার তলে বসিলা হরিদাস সনাতন ॥২৩॥
+
 > prabhu lañā vasilā piṇḍāra upare bhakta-gaṇa
 > piṇḍāra tale vasilā haridāsa sanātana
 

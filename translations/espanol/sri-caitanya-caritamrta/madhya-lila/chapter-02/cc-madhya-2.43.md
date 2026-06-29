@@ -1,5 +1,10 @@
 ### CC Madhya 2.43
 
+> অকৈতব কৃষ্ণপ্রেম, যেন জাম্বুনদ-হেম,
+> সেই প্রেমা নৃলোকে না হয় ৷
+> যদি হয় তার যোগ, না হয় তবে বিয়োগ,
+> বিয়োগ হৈলে কেহ না জীয়য় ৷৷ ৪৩ ৷৷ ॥৪৩॥
+
 > akaitava kṛṣṇa-prema, yena jāmbūnada-hema,
 > sei premā nṛloke nā haya
 > yadi haya tāra yoga, nā haya tabe viyoga,

@@ -1,5 +1,10 @@
 ### CC Madhya 16.245-246
 
+> ইহাঁ প্রভু একত্র করি’ সব ভক্তগণ ।
+> অদ্বৈত-নিত্যানন্দাদি যত ভক্তজন ॥২৪৫॥
+> সবা আলিঙ্গন করি’ কহেন গোসাঞি ।
+> সবে আজ্ঞা দেহ’ — আমি নীলাচলে যাই ॥২৪৬॥
+
 > ihāṅ prabhu ekatra kari' saba bhakta-gaṇa
 > advaita-nityānandādi yata bhakta-jana
 

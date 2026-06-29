@@ -1,5 +1,8 @@
 ### CC Madhya 1.249
 
+> বৃন্দাবন হৈতে যদি নীলাচলে আইলা ।
+> আঠার বর্ষ তাহাঁ বাস, কাহাঁ নাহি গেলা ॥২৪৯॥
+
 vṛndāvana haite yadi nīlācale āilā
 
 āṭhāra varṣa tāhāṅ vāsa, kāhāṅ nāhi gelā

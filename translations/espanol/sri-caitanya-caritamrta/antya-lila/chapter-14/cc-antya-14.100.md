@@ -1,5 +1,8 @@
 ### CC Antya 14.100
 
+> উচ্চ সঙ্কীর্তন করে প্রভুর শ্রবণে ।
+> শীতল জলে করে প্রভুর অঙ্গ সম্মার্জনে ॥১০০॥
+
 > ucca saṅkīrtana kare prabhura śravaṇe
 > śītala jale kare prabhura aṅga sammārjane
 

@@ -1,5 +1,8 @@
 ### CC Antya 7.78
 
+> প্রভুর সৌন্দর্য দেখি আর প্রেমোদয় ।
+> ‘এই ত’ সাক্ষাৎ কৃষ্ণ’ ভট্টের হইল নিশ্চয় ॥৭৮॥
+
 > prabhura saundarya dekhi āra premodaya
 > 'ei ta' sākṣāt kṛṣṇa' bhaṭṭera ha-ila niścaya
 

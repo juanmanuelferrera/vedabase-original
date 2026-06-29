@@ -1,5 +1,7 @@
 ### CC Adi 1.106
 
+> “মিতঞ্চ সারঞ্চ বচো হি বাগ্মিতা” ইতি ॥১০৬॥
+
 > "mitaṁ ca sāraṁ ca vaco hi vāgmitā" iti
 
 *mitam*—concise; *ca*—and; *sāram*—essential; *ca*—and; *vacaḥ*—speech; *hi*—certainly; *vāgmitā*—eloquence; *iti*—thus.

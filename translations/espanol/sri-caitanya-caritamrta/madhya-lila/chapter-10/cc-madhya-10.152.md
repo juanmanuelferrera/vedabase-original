@@ -1,5 +1,8 @@
 ### CC Madhya 10.152
 
+> আজ্ঞা দেহ’ যদি তাঁরে আনিয়ে এথাই ৷
+> প্রভু কহে, — গুরু তেঁহ, যাব তাঁর ঠাঞি ৷৷ ১৫২ ৷৷ ॥১৫২॥
+
 > ājñā deha' yadi tāṅre āniye ethāi
 > prabhu kahe,-guru teṅha, yāba tāṅra ṭhāñi
 

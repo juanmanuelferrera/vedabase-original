@@ -1,5 +1,8 @@
 ### CC Antya 14.76
 
+> এত বলি’ প্রভুরে ধরি’ ঘরে লঞা গেলা ।
+> তাঁহার অবস্থা সব কহিতে লাগিলা ॥৭৬॥
+
 eta bali' prabhure dhari' ghare lañā gelā
 
 tāṅhāra avasthā saba kahite lāgilā

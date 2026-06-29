@@ -1,5 +1,8 @@
 ### CC Madhya 18.160
 
+> সেই বৃক্ষ-নিকটে চরে বহু গাভীগণ ৷
+> তাহা দেখি’ মহাপ্রভুর উল্লসিত মন ॥১৬০॥
+
 sei vṛkṣa-nikaṭe care bahu gābhī-gaṇa
 
 tāhā dekhi' mahāprabhura ullasita mana

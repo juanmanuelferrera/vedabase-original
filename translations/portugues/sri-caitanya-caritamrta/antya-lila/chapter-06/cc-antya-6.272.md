@@ -1,5 +1,8 @@
 ### CC Antya 6.272
 
+> মাস-দুই যবে রঘুনাথ না করে নিমন্ত্রণ  ।
+> স্বরূপে পুছিলা তবে শচীর নন্দন ॥২৭২॥
+
 māsa-dui yabe raghunātha nā kare nimantraṇa
 
 svarūpe puchilā tabe śacīra nandana

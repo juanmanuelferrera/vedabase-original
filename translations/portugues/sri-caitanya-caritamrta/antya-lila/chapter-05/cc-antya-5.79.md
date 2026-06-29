@@ -1,5 +1,8 @@
 ### CC Antya 5.79
 
+> রামানন্দরায়ের এই কহিলু গুণ-লেশ ।
+> প্রদ্যুম্ন মিশ্রেরে যৈছে কৈলা উপদেশ ॥৭৯॥
+
 rāmānanda-rāyera ei kahilu guṇa-leśa
 
 pradyumna miśrere yaiche kailā upadeśa

@@ -1,5 +1,8 @@
 ### CC Antya 4.62
 
+> গাঢ়ানুরাগের বিয়োগ না যায় সহন ।
+> তাতে অনুরাগী বাঞ্ছে আপন মরণ ॥৬২॥
+
 > gāḍhānurāgera viyoga nā yāya sahana
 > tāte anurāgī vāñche āpana maraṇa
 

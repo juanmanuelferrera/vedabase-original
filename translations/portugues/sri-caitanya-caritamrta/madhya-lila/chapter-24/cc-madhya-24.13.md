@@ -1,5 +1,8 @@
 ### CC Madhya 24.13
 
+> এই সাতে রমে যেই, সেই আত্মারামগণ ।
+> আত্মারামগণের আগে করিব গণন ॥১৩॥
+
 ei sāte rame yei, sei ātmārāma-gaṇa
 ātmārāma-gaṇera āge kariba gaṇana
 

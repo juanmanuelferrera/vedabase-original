@@ -1,5 +1,8 @@
 ### CC Madhya 12.141
 
+> স্বরূপের উচ্চ-গান প্রভুরে সদা ভায় ।
+> আনন্দে উদ্দণ্ড নৃত্য করে গৌররায় ॥১৪১॥
+
 svarūpera ucca-gāna prabhure sadā bhāya
 
 ānande uddaṇḍa nṛtya kare gaurarāya

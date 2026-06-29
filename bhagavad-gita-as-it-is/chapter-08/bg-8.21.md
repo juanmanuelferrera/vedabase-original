@@ -1,5 +1,8 @@
 ### Bg 8.21
 
+> अव्यक्तोऽक्षर इत्युक्तस्तमाहुः परमां गतिम् ।
+> यं प्राप्य न निवर्तन्ते तद्धाम परमं मम ॥२१॥
+
 > avyakto 'kṣara ity uktas
 > tam āhuḥ paramāṁ gatim
 > yaṁ prāpya na nivartante

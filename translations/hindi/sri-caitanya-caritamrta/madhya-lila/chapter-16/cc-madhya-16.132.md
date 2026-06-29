@@ -1,5 +1,8 @@
 ### CC Madhya 16.132
 
+> প্রভু কহে, — “ইঁহা কর গোপীনাথ সেবন” ।
+> পণ্ডিত কহে, — “কোটি-সেবা ত্বৎপাদ-দর্শন ।।” ॥ ১৩২ ॥
+
 > prabhu kahe,--"iṅhā kara gopīnātha sevana"
 > paṇḍita kahe,--"koṭi-sevā tvat-pāda-darśana"
 

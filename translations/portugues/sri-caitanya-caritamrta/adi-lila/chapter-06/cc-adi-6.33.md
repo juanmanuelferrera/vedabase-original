@@ -1,5 +1,8 @@
 ### CC Adi 6.33
 
+> অদ্বৈত-আচার্য — ঈশ্বরের অংশবর্য ।
+> তাঁর তত্ত্ব-নাম-গুণ, সকলি আশ্চর্য ॥৩৩॥
+
 advaita-ācārya--īśvarera aṁśa-varya
 tāṅra tattva-nāma-guṇa, sakali āścarya
 

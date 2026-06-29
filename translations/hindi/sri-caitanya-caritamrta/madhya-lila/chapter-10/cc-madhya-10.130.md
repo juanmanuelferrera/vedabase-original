@@ -1,5 +1,8 @@
 ### CC Madhya 10.130
 
+> আর দিন সার্বভৌম-আদি ভক্ত-সঙ্গে ।
+> বসিয়া আছেন মহাপ্রভু কৃষ্ণকথা-রঙ্গে ॥১৩০॥
+
 > āra dina sārvabhauma-ādi bhakta-saṅge
 > vasiyā āchena mahāprabhu kṛṣṇa-kathā-raṅge
 

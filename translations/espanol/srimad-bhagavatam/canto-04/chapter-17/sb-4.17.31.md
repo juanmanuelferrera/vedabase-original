@@ -1,5 +1,8 @@
 ### SB 4.17.31
 
+> य एतदादावसृजच्चराचरं स्वमाययात्माश्रययावितर्क्यया ।
+> तयैव सोऽयं किल गोप्तुमुद्यतः कथं नु मां धर्मपरो जिघांसति ॥३१॥
+
 > ya etad ādāv asṛjac carācaraṁ
 > sva-māyayātmāśrayayāvitarkyayā
 > tayaiva so 'yaṁ kila goptum udyataḥ

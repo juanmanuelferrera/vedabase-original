@@ -1,5 +1,10 @@
 ### CC Madhya 23.31
 
+> ত্বচ্ছৈশবং ত্রিভুবনাদ্ভুতমিত্যবেহি
+> মচ্চাপলঞ্চ তব বা মম বাধিগম্যম্ ।
+> তৎ কিং করোমি বিরলং মুরলীবিলাসি
+> মুগ্ধং মুখাম্বুজমুদীক্ষিতুমীক্ষণাভ্যাম্ ॥৩১॥
+
 > tvac-chaiśavaṁ tri-bhuvanādbhutam ity avehi
 > mac-cāpalaṁ ca tava vā mama vādhigamyam
 > tat kiṁ karomi viralaṁ muralī-vilāsi

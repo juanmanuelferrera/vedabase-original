@@ -1,5 +1,8 @@
 ### CC Madhya 13.29
 
+> তবে মহাপ্রভু সব লঞা ভক্তগণ ।
+> স্বহস্তে পরাইল সবে মাল্য-চন্দন ॥২৯॥
+
 tabe mahāprabhu saba lañā bhakta-gaṇa
 
 svahaste parāila sabe mālya-candana

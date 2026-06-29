@@ -1,5 +1,8 @@
 ### CC Adi 12.64
 
+> লোকনাথ পণ্ডিত, আর মুরারি পণ্ডিত ।
+> শ্রীহরিচরণ, আর মাধব পণ্ডিত ॥৬৪॥
+
 lokanātha paṇḍita, āra murāri paṇḍita
 
 śrī-haricaraṇa, āra mādhava paṇḍita

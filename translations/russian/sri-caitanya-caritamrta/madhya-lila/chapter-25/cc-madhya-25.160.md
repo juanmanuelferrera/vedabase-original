@@ -1,5 +1,8 @@
 ### CC Madhya 25.160
 
+> হেনকালে সেই মহারাষ্ট্রীয় ব্রাহ্মণ ।
+> সভাতে কহিল সেই শ্লোক-বিবরণ ॥১৬০॥
+
 > hena-kāle sei mahārāṣṭrīya brāhmaṇa
 > sabhāte kahila sei śloka-vivaraṇa
 

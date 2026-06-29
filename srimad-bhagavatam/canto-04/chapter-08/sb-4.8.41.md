@@ -1,5 +1,8 @@
 ### SB 4.8.41
 
+> धर्मार्थकाममोक्षाख्यं य इच्छेच्छ्रेय आत्मनः ।
+> एकं ह्येव हरेस्तत्र कारणं पादसेवनम् ॥४१॥
+
 > dharmārtha-kāma-mokṣākhyaṁ
 > ya icchec chreya ātmanaḥ
 > ekaṁ hy eva hares tatra

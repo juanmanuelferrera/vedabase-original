@@ -1,5 +1,8 @@
 ### CC Madhya 11.173
 
+> প্রভু কহে, — গোপীনাথ, যাহ’ বৈষ্ণব লঞা ।
+> যাহাঁ যাহাঁ কহে বাসা, তাহাঁ দেহ’ লঞা ॥১৭৩॥
+
 > prabhu kahe,-gopīnātha, yāha' vaiṣṇava lañā
 > yāhāṅ yāhāṅ kahe vāsā, tāhāṅ deha' lañā
 

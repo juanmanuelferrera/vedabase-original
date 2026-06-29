@@ -1,5 +1,8 @@
 ### CC Madhya 14.71
 
+> কভু অদ্বৈতে নাচায়, কভু নিত্যানন্দে ।
+> কভু হরিদাসে নাচায়, কভু অচ্যুতানন্দে ॥৭১॥
+
 kabhu advaite nācāya, kabhu nityānande
 
 kabhu haridāse nācāya, kabhu acyutānande

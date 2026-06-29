@@ -1,5 +1,10 @@
 ### SB 7.9.28
 
+> एवं जनं निपतितं प्रभवाहिकूपे
+> कामाभिकाममनु यः प्रपतन्प्रसङ्गात
+> कृत्वात्मसात्सुरर्षिणा भगवन्गृहीतः
+> सोऽहं कथं नु विसृजे तव भृत्यसेवाम ॥२८॥
+
 > evaṁ janaṁ nipatitaṁ prabhavāhi-kūpe
 > kāmābhikāmam anu yaḥ prapatan prasaṅgāt
 > kṛtvātmasāt surarṣiṇā bhagavan gṛhītaḥ

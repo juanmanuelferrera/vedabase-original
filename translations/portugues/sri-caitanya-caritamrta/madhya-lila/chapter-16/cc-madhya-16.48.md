@@ -1,5 +1,8 @@
 ### CC Madhya 16.48
 
+> পূর্ববৎ রথযাত্রা-কাল যবে আইল ।
+> সবা লঞা গুণ্ডিচা-মন্দির প্ৰক্ষালিল ॥৪৮॥
+
 pūrvavat ratha-yātrā-kāla yābe āila
 
 sabā lañā guṇḍicā-mandira prakṣālila

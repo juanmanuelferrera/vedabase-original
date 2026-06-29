@@ -1,5 +1,7 @@
 ### CC Madhya 14.208
 
+> এই কর্ম করে কাহাঁ বিদগ্ধ-শিরোমণি ? লক্ষ্মীর অগ্রেতে নিজ প্রভুরে দেহ’ আনি’ ।।” ২০৮ ॥২০৮॥
+
 > ei karma kare kāhāṅ vidagdha-śiromaṇi?
 > lakṣmīra agrete nija prabhure deha' āni' "
 

@@ -1,5 +1,10 @@
 ### CC Antya 3.62
 
+> তং নির্ব্যাজং ভজ গুণনিধে পাবনং পাবনানাং
+> শ্রদ্ধা-রজ্যন্মতিরতিতরামুত্তমঃশ্লোকমৌলিম্ ।
+> প্রোদ্যন্নন্তঃকরণকুহরে হন্ত যন্নামভানো-
+> রাভাসোঽপি ক্ষপয়তি মহাপাতকধ্বান্তরাশিম্ ॥৬২॥
+
 > taṁ nirvyājaṁ bhaja guṇa-nidhe pāvanaṁ pāvanānāṁ
 > śraddhā-rajyan-matir atitarām uttamaḥ-śloka-maulim
 > prodyann antaḥ-karaṇa-kuhare hanta yan-nāma-bhānor

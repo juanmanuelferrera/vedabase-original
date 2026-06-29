@@ -1,5 +1,8 @@
 ### CC Antya 1.199
 
+> সবে কৃপা করি’ ইঁহারে দেহ’ এই বর  ।
+> ব্রজলীলা-প্রেমরস যেন বর্ণে নিরন্তর ॥১৯৯॥
+
 > sabe kṛpā kari' iṅhāre deha' ei vara
 > vraja-līlā-prema-rasa yena varṇe nirantara
 

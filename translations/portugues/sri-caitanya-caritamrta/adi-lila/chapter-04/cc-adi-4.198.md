@@ -1,5 +1,8 @@
 ### CC Adi 4.198
 
+> গোপীপ্রেমে করে কৃষ্ণমাধুর্যের পুষ্টি ।
+> মাধুর্যে বাঢ়ায় প্রেম হঞা মহাতুষ্টি ॥১৯৮॥
+
 gopī-preme kare kṛṣṇa-mādhuryera puṣṭi
 
 mādhurye bāḍhāya prema hañā mahā-tuṣṭi

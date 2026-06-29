@@ -1,5 +1,8 @@
 ### SB 6.1.19
 
+> सकृन्मनः कृष्णपदारविन्दयोर्निवेशितं तद्गुणरागि यैरिह
+> न ते यमं पाशभृतश्च तद्भटान्स्वप्नेऽपि पश्यन्ति हि चीर्णनिष्कृताः ॥१९॥
+
 > sakṛn manaḥ kṛṣṇa-padāravindayor
 > niveśitaṁ tad-guṇa-rāgi yair iha
 > na te yamaṁ pāśa-bhṛtaś ca tad-bhaṭān

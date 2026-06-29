@@ -1,5 +1,8 @@
 ### CC Adi 10.59
 
+> তাঁহাতে হইল চৈতন্যের ‘আবির্ভাব’ ।
+> অলৌকিক ঐছে প্রভুর অনেক স্বভাব ॥৫৯॥
+
 > tāṅhāte ha-ila caitanyera 'āvirbhāva'
 > alaukika aiche prabhura aneka svabhāva
 

@@ -1,5 +1,8 @@
 ### CC Madhya 22.32
 
+> বিলজ্জমানয়া যস্য স্থাতুমীক্ষাপথেঽমুয়া ।
+> বিমোহিতা বিকত্থন্তে মমাহমিতি দুর্ধিয়ঃ ॥৩২॥
+
 > vilajjamānayā yasya
 > sthātum īkṣā-pathe 'muyā
 > vimohitā vikatthante

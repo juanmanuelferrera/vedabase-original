@@ -1,5 +1,8 @@
 ### SB 4.24.3
 
+> अन्तर्धानगतिं शक्राल्लब्ध्वान्तर्धानसंज्ञितः ।
+> अपत्यत्रयमाधत्त शिखण्डिन्यां सुसम्मतम् ॥३॥
+
 > antardhāna-gatiṁ śakrāl
 > labdhvāntardhāna-saṁjñitaḥ
 > apatya-trayam ādhatta

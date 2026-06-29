@@ -1,5 +1,8 @@
 ### SB 2.1.30
 
+> द्यौरक्षिणी चक्षुरभूत्पतङ्गः पक्ष्माणि विष्णोरहनी उभे च ।
+> तद्भ्रूविजृम्भः परमेष्ठिधिष्ण्यमापोऽस्य तालू रस एव जिह्वा ॥३०॥
+
 > dyaur akṣiṇī cakṣur abhūt pataṅgaḥ
 > pakṣmāṇi viṣṇor ahanī ubhe ca
 > tad-bhrū-vijṛmbhaḥ parameṣṭhi-dhiṣṇyam

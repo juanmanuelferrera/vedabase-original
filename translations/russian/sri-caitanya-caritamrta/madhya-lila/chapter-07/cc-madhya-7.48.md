@@ -1,5 +1,8 @@
 ### CC Madhya 7.48
 
+> শিরে বজ্র পড়ে যদি, পুত্র মরি’ যায় ।
+> তাহা সহি, তোমার বিচ্ছেদ সহন না যায় ॥৪৮॥
+
 > śire vajra paḍe yadi, putra mari' yāya
 > tāhā sahi, tomāra viccheda sahana nā yāya
 

@@ -1,5 +1,10 @@
 ### CC Adi 3.66
 
+> সদোপাস্যঃ শ্রীমান্ ধৃতমনুজকায়ৈঃ প্রণয়িতাং
+> বহদ্ভির্গীর্বাণৈর্গিরিশ-পরমেষ্ঠি-প্রভৃতিভিঃ ।
+> স্বভক্তেভ্যঃ শুদ্ধাং নিজভজনমুদ্রামুপদিশন্
+> স চৈতন্যঃ কিং মে পুনরপি দৃশোর্যাস্যতি পদম্ ॥৬৬॥
+
 > sadopāsyaḥ śrīmān dhṛta-manuja-kāyaiḥ praṇayitāṁ
 > vahadbhir gīr-vāṇair giriśa-parameṣṭhi-prabhṛtibhiḥ
 > sva-bhaktebhyaḥ śuddhāṁ nija-bhajana-mudrām upadiśan

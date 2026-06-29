@@ -1,5 +1,8 @@
 ### CC Antya 15.61
 
+> পুনঃ কেনে না দেখিয়ে মুরলী-বদন!
+> তাঁহার দর্শন-লোভে ভ্রময় নয়ন ।।” ॥ ৬১ ॥
+
 > punaḥ kene nā dekhiye muralī-vadana!
 > tāṅhāra darśana-lobhe bhramaya nayana"
 

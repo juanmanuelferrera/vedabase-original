@@ -1,5 +1,8 @@
 ### SB 1.13.22
 
+> अन्धः पुरैव वधिरो मन्दप्रज्ञाश्च साम्प्रतम् ।
+> विशीर्णदन्तो मन्दाग्निः सरागः कफमुद्वहन् ॥२२॥
+
 > andhaḥ puraiva vadhiro
 > manda-prajñāś ca sāmpratam
 > viśīrṇa-danto mandāgniḥ

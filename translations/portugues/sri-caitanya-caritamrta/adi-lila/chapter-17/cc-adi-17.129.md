@@ -1,5 +1,8 @@
 ### CC Adi 17.129
 
+> এত বলি’ কাজী গেল, — নগরিয়া লোক ।
+> প্রভু-স্থানে নিবেদিল পাঞা বড় শোক ॥১২৯॥
+
 eta bali' kājī gela,--nagariyā loka
 
 prabhu-sthāne nivedila pāñā baḍa śoka

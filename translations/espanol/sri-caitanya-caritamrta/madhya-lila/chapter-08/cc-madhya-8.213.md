@@ -1,5 +1,8 @@
 ### CC Madhya 8.213
 
+> নানা-চ্ছলে কৃষ্ণে প্রেরি’ সঙ্গম করায় ৷
+> আত্মকৃষ্ণ-সঙ্গ হৈতে কোটি-সুখ পায় ৷৷ ২১৩ ৷৷ ॥২১৩॥
+
 > nānā-cchale kṛṣṇe preri' saṅgama karāya
 > ātma-kṛṣṇa-saṅga haite koṭi-sukha pāya
 

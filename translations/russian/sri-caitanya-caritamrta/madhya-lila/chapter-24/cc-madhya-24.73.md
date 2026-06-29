@@ -1,5 +1,8 @@
 ### CC Madhya 24.73
 
+> সেই ব্রহ্ম-শব্দে কহে স্বয়ং-ভগবান্ ।
+> অদ্বিতীয়-জ্ঞান, যাঁহা বিনা নাহি আন ॥৭৩॥
+
 > sei brahma-śabde kahe svayaṁ-bhagavān
 > advitīya-jñāna, yāṅhā vinā nāhi āna
 

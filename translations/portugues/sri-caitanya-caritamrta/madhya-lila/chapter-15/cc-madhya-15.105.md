@@ -1,5 +1,8 @@
 ### CC Madhya 15.105
 
+> সত্যরাজ বলে, — বৈষ্ণব চিনিব কেমনে ?
+> কে বৈষ্ণব, কহ তাঁর সামান্য লক্ষণে ॥১০৫॥
+
 satyarāja bale,--vaiṣṇava ciniba kemane?
 
 ke vaiṣṇava, kaha tāṅra sāmānya lakṣaṇe

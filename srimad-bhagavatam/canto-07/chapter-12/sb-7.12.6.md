@@ -1,5 +1,8 @@
 ### SB 7.12.6
 
+> सुशीलो मितभुग्दक्षः श्रद्दधानो जितेन्द्रियः
+> यावदर्थं व्यवहरेत्स्त्रीषु स्त्रीनिर्जितेषु च ॥६॥
+
 > suśīlo mita-bhug dakṣaḥ
 > śraddadhāno jitendriyaḥ
 > yāvad-arthaṁ vyavaharet

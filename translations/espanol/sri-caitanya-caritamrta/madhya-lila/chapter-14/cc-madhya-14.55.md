@@ -1,5 +1,8 @@
 ### CC Madhya 14.55
 
+> আপনে রথের পাছে ঠেলে মাথা দিয়া  ।
+> হড়্ হড়্ করি, রথ চলিল ধাইয়া ॥৫৫॥
+
 > āpane rathera pāche ṭhele māthā diyā
 > haḍ haḍ kari, ratha calila dhāiyā
 

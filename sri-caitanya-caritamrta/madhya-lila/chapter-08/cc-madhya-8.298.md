@@ -1,5 +1,8 @@
 ### CC Madhya 8.298
 
+> দুইজনে নীলাচলে রহিব একসঙ্গে ।
+> সুখে গোঙাইব কাল কৃষ্ণকথা-রঙ্গে ॥২৯৮॥
+
 > dui-jane nīlācale rahiba eka-saṅge
 > sukhe goṅāiba kāla kṛṣṇa-kathā-raṅge
 

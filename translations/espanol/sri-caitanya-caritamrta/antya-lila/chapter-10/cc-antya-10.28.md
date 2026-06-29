@@ -1,5 +1,8 @@
 ### CC Antya 10.28
 
+> কতেক চিড়া হুড়ুম্ করি’ ঘৃতেতে ভাজিয়া ।
+> চিনি-পাকে নাড়ু কৈলা কর্পূরাদি দিয়া ॥২৮॥
+
 > kateka ciḍā huḍum kari' ghṛtete bhājiyā
 > cini-pāke nāḍu kailā karpūrādi diyā
 

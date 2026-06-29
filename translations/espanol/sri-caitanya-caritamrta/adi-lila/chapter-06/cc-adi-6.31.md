@@ -1,5 +1,8 @@
 ### CC Adi 6.31
 
+> কমল-নয়নের তেঁহো, যাতে ‘অঙ্গ’, ‘অংশ’ ।
+> ‘কমলাক্ষ’ করি ধরে নাম অবতংস ॥৩১॥
+
 > kamala-nayanera teṅho, yāte 'aṅga' 'aṁśa'
 > 'kamalākṣa' kari dhare nāma avataṁsa
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.212
 
+> যদ্যপি হরিদাস বিপ্রের দোষ না লইলা ।
+> তথাপি ঈশ্বর তারে ফল ভুঞ্জাইলা ॥২১২॥
+
 yadyapi haridāsa viprera doṣa nā la-ilā
 
 tathāpi īśvara tāre phala bhuñjāilā

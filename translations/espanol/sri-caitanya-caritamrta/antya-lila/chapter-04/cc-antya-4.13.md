@@ -1,5 +1,8 @@
 ### CC Antya 4.13
 
+> এই ত’ নিশ্চয় করি’ নীলাচলে আইলা ।
+> লোকে পুছি’ হরিদাস-স্থানে উত্তরিলা ॥১৩॥
+
 > ei ta' niścaya kari' nīlācale āilā
 > loke puchi' haridāsa-sthāne uttarilā
 

@@ -1,5 +1,8 @@
 ### CC Adi 5.63
 
+> ঘটের নিমিত্ত-হেতু যৈছে কুম্ভকার ।
+> তৈছে জগতের কর্তা — পুরুষাবতার ॥৬৩॥
+
 ghaṭera nimitta-hetu yaiche kumbhakāra
 taiche jagatera kartā--puruṣāvatāra
 

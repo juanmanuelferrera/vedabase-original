@@ -1,5 +1,8 @@
 ### CC Madhya 3.7
 
+> প্রভু কহে, — সাধু এই ভিক্ষুর বচন ।
+> মুকুন্দ সেবন-ব্রত কৈল নির্ধারণ ॥৭॥
+
 > prabhu kahe—sādhu ei bhikṣura vacana
 > mukunda sevana-vrata kaila nirdhāraṇa
 

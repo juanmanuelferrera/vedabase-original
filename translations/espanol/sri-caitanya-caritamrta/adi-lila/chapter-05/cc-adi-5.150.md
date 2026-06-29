@@ -1,5 +1,8 @@
 ### CC Adi 5.150
 
+> রামের চরিত্র সব, — দুঃখের কারণ ।
+> স্বতন্ত্র লীলায় দুঃখ সহেন লক্ষ্মণ ॥১৫০॥
+
 > rāmera caritra saba,--duḥkhera kāraṇa
 > svatantra līlāya duḥkha sahena lakṣmaṇa
 

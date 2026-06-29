@@ -1,5 +1,8 @@
 ### CC Antya 6.324
 
+> প্রভু বলে, — “নিতি-নিতি নানা প্রসাদ খাই ।
+> ঐছে স্বাদ আর কোন প্রসাদে না পাই ।।” ॥ ৩২৪ ॥
+
 > prabhu bale,--"niti-niti nānā prasāda khāi
 > aiche svāda āra kona prasāde nā pāi"
 

@@ -1,5 +1,8 @@
 ### CC Antya 7.17
 
+> অদ্বৈতাচার্য-গোসাঞি — ‘সাক্ষাৎ ঈশ্বর’ ।
+> তাঁর সঙ্গে আমার মন হইল নির্মল ॥১৭॥
+
 advaitācārya-gosāñi--'sākṣāt īśvara'
 
 tāṅra saṅge āmāra mana ha-ila nirmala

@@ -1,5 +1,7 @@
 ### SB 5.19.31
 
+> एवं तव भारतोत्तम जम्बूद्वीपवर्षविभागो यथोपदेशमुपवर्णित इति ॥३१॥
+
 > evaṁ tava bhāratottama jambūdvīpa-varṣa-vibhāgo yathopadeśam upavarṇita iti.
 
 *evam*—así; *tava*—a ti; *bhārata-uttama*—¡oh, tú, el mejor entre los descendientes de Bharata!; *jambūdvīpa-varṣa-vibhāgaḥ*—las divisiones de la isla de Jambūdvīpa; *yathā-upadeśam*—tal como me fue enseñado por las autoridades; *upavarṇitaḥ*—explicado; *iti*—así.

@@ -1,5 +1,8 @@
 ### CC Antya 6.108
 
+> মহাপ্রভু আসি’ সেই আসনে বসিল ।
+> দেখি’ রাঘবের মনে আনন্দ বাড়িল ॥১০৮॥
+
 mahāprabhu āsi' sei āsane vasila
 
 dekhi' rāghavera mane ānanda bāḍila

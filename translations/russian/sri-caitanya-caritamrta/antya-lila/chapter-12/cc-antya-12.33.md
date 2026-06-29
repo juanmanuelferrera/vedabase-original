@@ -1,5 +1,8 @@
 ### CC Antya 12.33
 
+> নিত্যানন্দপ্রভুর সব চরিত্র — ‘বিপরীত’ ।
+> ক্রুদ্ধ হঞা লাথি মারি’ করে তার হিত ॥৩৩॥
+
 > nityānanda-prabhura saba caritra—'viparīta'
 > kruddha hañā lāthi māri' kare tāra hita
 

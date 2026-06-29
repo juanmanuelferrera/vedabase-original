@@ -1,5 +1,8 @@
 ### CC Antya 10.110
 
+> ‘অমুক্ এই দিয়াছে’ গোবিন্দ করে নিবেদন ।
+> ‘ধরি’ রাখ’ বলি’ প্রভু না করেন ভক্ষণ ॥১১০॥
+
 > 'amuk ei diyāche' govinda kare nivedana
 > 'dhari' rākha' bali' prabhu nā karena bhakṣaṇa
 

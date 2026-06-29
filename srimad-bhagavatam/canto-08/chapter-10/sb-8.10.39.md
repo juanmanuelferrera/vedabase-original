@@ -1,5 +1,8 @@
 ### SB 8.10.39
 
+> शिरोभिरुद्धूतकिरीटकुण्डलैः संरम्भदृग्भिः परिदष्टदच्छदैः
+> महाभुजैः साभरणैः सहायुधैः सा प्रास्तृता भूः करभोरुभिर्बभौ ॥३९॥
+
 > śirobhir uddhūta-kirīṭa-kuṇḍalaiḥ
 > saṁrambha-dṛgbhiḥ paridaṣṭa-dacchadaiḥ
 > mahā-bhujaiḥ sābharaṇaiḥ sahāyudhaiḥ

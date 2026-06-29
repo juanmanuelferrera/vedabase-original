@@ -1,5 +1,8 @@
 ### CC Antya 10.80
 
+> ভক্তশ্রম জানি’ কৈলা কীর্তন সমাপন ।
+> সবা লঞা আসি’ কৈলা সমুদ্রে স্নপন ॥৮০॥
+
 > bhakta-śrama jāni' kailā kīrtana samāpana
 > sabā lañā āsi' kailā samudre snapana
 

@@ -1,5 +1,8 @@
 ### SB 7.15.19
 
+> असन्तुष्टस्य विप्रस्य तेजो विद्या तपो यशः
+> स्रवन्तीन्द्रियलौल्येन ज्ञआनं चैवावकीर्यते ॥१९॥
+
 > asantuṣṭasya viprasya
 > tejo vidyā tapo yaśaḥ
 > sravantīndriya-laulyena

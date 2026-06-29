@@ -1,5 +1,8 @@
 ### SB 4.6.29
 
+> रक्तकण्ठखगानीक स्वरमण्डितषट्पदम् ।
+> कलहंसकुलप्रेष्ठं खरदण्डजलाशयम् ॥२९॥
+
 > rakta-kaṇṭha-khagānīka-
 > svara-maṇḍita-ṣaṭpadam
 > kalahaṁsa-kula-preṣṭhaṁ

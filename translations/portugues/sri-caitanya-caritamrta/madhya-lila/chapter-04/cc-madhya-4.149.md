@@ -1,5 +1,8 @@
 ### CC Madhya 4.149
 
+> জগন্নাথের সেবক যত, যতেক মহান্ত ।
+> সবাকে কহিল পুরী গোপাল বৃত্তান্ত ॥১৪৯॥
+
 jagannāthera sevaka yata, yateka mahānta
 sabāke kahila purī gopāla-vṛttānta
 

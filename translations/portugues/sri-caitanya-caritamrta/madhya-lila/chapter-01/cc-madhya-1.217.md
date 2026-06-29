@@ -1,5 +1,8 @@
 ### CC Madhya 1.217
 
+> দোঁহা আলিঙ্গিয়া প্রভু বলিল ভক্তগণে ।
+> সবে কৃপা করি’ উদ্ধারহ দুই জনে ॥২১৭॥
+
 doṅhā āliṅgiyā prabhu balila bhakta-gaṇe
 
 sabe kṛpā kari' uddhāraha dui jane

@@ -1,5 +1,8 @@
 ### SB 3.11.37
 
+> अयं तु कथितः कल्पो द्वितीयस्यापि भारत ।
+> वाराह इति विख्यातो यत्रासीच्छूकरो हरिः ॥३७॥
+
 > ayaṁ tu kathitaḥ kalpo
 > dvitīyasyāpi bhārata
 > vārāha iti vikhyāto

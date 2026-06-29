@@ -1,5 +1,8 @@
 ### CC Adi 13.88
 
+> নীলাম্বর চক্রবর্তী কহিল গণিয়া ।
+> এই মাসে পুত্র হবে শুভক্ষণ পাঞা ॥৮৮॥
+
 nīlāmbara cakravartī kahila gaṇiyā
 
 ei māse putra habe śubha-kṣaṇa pāñā

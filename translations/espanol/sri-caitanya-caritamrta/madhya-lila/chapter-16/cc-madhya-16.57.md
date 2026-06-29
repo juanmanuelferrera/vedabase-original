@@ -1,5 +1,8 @@
 ### CC Madhya 16.57
 
+> প্রভুর প্রিয়-ব্যঞ্জন সব রান্ধেন মালিনী ।
+> ‘ভক্ত্যে দাসী’-অভিমান, ‘স্নেহেতে জননী’ ॥৫৭॥
+
 > prabhura priya-vyañjana saba rāndhena mālinī
 > 'bhaktye dāsī'-abhimāna, 'snehete jananī'
 

@@ -1,5 +1,8 @@
 ### CC Madhya 20.83
 
+> সনাতন জানিল এই প্রভুরে না ভায় ।
+> ভোট ত্যাগ করিবারে চিন্তিলা উপায় ॥৮৩॥
+
 > sanātana jānila ei prabhure nā bhāya
 > bhoṭa tyāga karibāre cintilā upāya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 9.267
 
+> পঞ্চবিধ মুক্তি ত্যাগ করে ভক্তগণ ।
+> ফল্গু করি’ ‘মুক্তি’ দেখে নরকের সম ॥২৬৭॥
+
 > pañca-vidha mukti tyāga kare bhakta-gaṇa
 > phalgu kari' 'mukti' dekhe narakera sama
 

@@ -1,5 +1,8 @@
 ### CC Madhya 4.138
 
+> এত বলি’ নমস্করি’ করিলা গমন ।
+> আবেশে করিলা পুরী সে ক্ষীর ভক্ষণ ॥১৩৮॥
+
 eta bali' namaskari' karilā gamana
 
 āveśe karilā purī se kṣīra bhakṣaṇa

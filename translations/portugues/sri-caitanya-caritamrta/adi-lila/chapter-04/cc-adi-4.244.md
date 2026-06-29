@@ -1,5 +1,8 @@
 ### CC Adi 4.244
 
+> মোর বংশী-গীতে আকর্ষয়ে ত্রিভুবন ।
+> রাধার বচনে হরে আমার শ্রবণ ॥২৪৪॥
+
 mora vaṁśī-gīte ākarṣaye tri-bhuvana
 rādhāra vacane hare āmāra śravaṇa
 

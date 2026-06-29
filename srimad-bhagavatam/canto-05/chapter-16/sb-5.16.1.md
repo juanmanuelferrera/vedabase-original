@@ -1,5 +1,8 @@
 ### SB 5.16.1
 
+> राजोवाच
+> उक्तस्त्वया भूमण्डलायामविशेषो यावदादित्यस्तपति यत्र चासौ ज्योतिषां गणैश्चन्द्रमा वासह दृश्यते ॥१॥
+
 > rājovāca
 > uktas tvayā bhū-maṇḍalāyāma-viśeṣo yāvad ādityas tapati yatra cāsau jyotiṣāṁ gaṇaiś candramā vā saha dṛśyate.
 

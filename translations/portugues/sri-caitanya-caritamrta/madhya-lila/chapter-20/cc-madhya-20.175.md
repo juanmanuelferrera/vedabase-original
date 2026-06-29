@@ -1,5 +1,8 @@
 ### CC Madhya 20.175
 
+> বৈভবপ্রকাশ যৈছে দেবকী-তনুজ ।
+> দ্বিভুজ-স্বরূপ কভু, কভু হয় চতুর্ভুজ ॥১৭৫॥
+
 vaibhava-prakāśa yaiche devakī-tanuja
 
 dvibhuja-svarūpa kabhu, kabhu haya caturbhuja

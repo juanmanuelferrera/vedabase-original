@@ -1,5 +1,8 @@
 ### CC Madhya 6.196
 
+> ভগবান্, তাঁর শক্তি, তাঁর গুণগণ ।
+> অচিন্ত্য প্রভাব তিনের না যায় কথন ॥১৯৬॥
+
 > bhagavān, tāṅra śakti, tāṅra guṇa-gaṇa
 > acintya prabhāva tinera nā yāya kathana
 

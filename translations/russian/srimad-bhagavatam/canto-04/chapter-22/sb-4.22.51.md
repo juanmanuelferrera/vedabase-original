@@ -1,5 +1,8 @@
 ### SB 4.22.51
 
+> फलं ब्रह्मणि सन्न्यस्य निर्विषङ्गः समाहितः ।
+> कर्माध्यक्षं च मन्वान आत्मानं प्रकृतेः परम् ॥५१॥
+
 > phalaṁ brahmaṇi sannyasya
 > nirviṣaṅgaḥ samāhitaḥ
 > karmādhyakṣaṁ ca manvāna

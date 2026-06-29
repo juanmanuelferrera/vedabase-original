@@ -1,5 +1,8 @@
 ### CC Madhya 16.123
 
+> রাত্র্যে তথা রহি’ প্রাতে স্নানকৃত্য কৈল ।
+> হেনকালে জগন্নাথের মহাপ্রসাদ আইল ॥১২৩॥
+
 > rātrye tathā rahi' prāte snāna-kṛtya kaila
 > hena-kāle jagannāthera mahā-prasāda āila
 

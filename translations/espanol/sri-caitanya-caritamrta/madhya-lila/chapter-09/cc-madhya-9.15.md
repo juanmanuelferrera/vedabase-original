@@ -1,5 +1,8 @@
 ### CC Madhya 9.15
 
+> মল্লিকার্জুন-তীর্থে যাই’ মহেশ দেখিল ৷
+> তাহাঁ সব লোকে কৃষ্ণনাম লওয়াইল ॥১৫॥
+
 > mallikārjuna-tīrthe yāi' maheśa dekhila
 > tāhāṅ saba loke kṛṣṇa-nāma laoyāila
 

@@ -1,5 +1,8 @@
 ### CC Adi 7.35
 
+> সন্ন্যাস করিয়া প্রভু কৈলা আকর্ষণ ।
+> যতেক পালাঞাছিল তার্কিকাদিগণ ॥৩৫॥
+
 > sannyāsa kariyā prabhu kailā ākarṣaṇa
 > yateka pālāñāchila tārkikādigaṇa
 

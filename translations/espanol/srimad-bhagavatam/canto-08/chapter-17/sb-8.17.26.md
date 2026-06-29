@@ -1,5 +1,8 @@
 ### SB 8.17.26
 
+> नमस्ते पृश्निगर्भाय वेदगर्भाय वेधसे
+> त्रिनाभाय त्रिपृष्ठाय शिपिविष्टाय विष्णवे ॥२६॥
+
 > namas te pṛśni-garbhāya
 > veda-garbhāya vedhase
 > tri-nābhāya tri-pṛṣṭhāya

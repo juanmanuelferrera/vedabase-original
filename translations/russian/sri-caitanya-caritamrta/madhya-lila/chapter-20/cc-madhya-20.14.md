@@ -1,5 +1,8 @@
 ### CC Madhya 20.14
 
+> তথাপি যবন-মন প্রসন্ন না দেখিলা ।
+> সাত-হাজার মুদ্রা তার আগে রাশি কৈলা ॥১৪॥
+
 > tathāpi yavana-mana prasanna nā dekhilā
 > sāta-hājāra mudrā tāra āge rāśi kailā
 

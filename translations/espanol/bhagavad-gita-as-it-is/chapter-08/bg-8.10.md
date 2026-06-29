@@ -1,5 +1,10 @@
 ### Bg 8.10
 
+> प्रयाणकाले मनसाऽचलेन
+> भक्त्या युक्तो योगबलेन चैव ।
+> भ्रुवोर्मध्ये प्राणमावेश्य सम्यक्
+> स तं परं पुरुषमुपैति दिव्यम् ॥१०॥
+
 > prayāṇa-kāle manasā'calena
 > bhaktyā yukto yoga-balena caiva
 > bhruvor madhye prāṇam āveśya samyak

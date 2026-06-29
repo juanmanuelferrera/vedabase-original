@@ -1,5 +1,8 @@
 ### SB 4.2.24
 
+> विद्याबुद्धिरविद्यायां कर्ममय्यामसौ जडः ।
+> संसरन्त्विह ये चामुमनु शर्वावमानिनम् ॥२४॥
+
 > vidyā-buddhir avidyāyāṁ
 > karmamayyām asau jaḍaḥ
 > saṁsarantv iha ye cāmum

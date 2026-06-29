@@ -1,5 +1,8 @@
 ### SB 1.5.9
 
+> यथा धर्मादयश्चार्था मुनिवर्यानुकीर्तिताः ।
+> न तथा वासुदेवस्य महिमा ह्यनुवर्णितः ॥९॥
+
 > yathā dharmādayaś cārthā
 > muni-varyānukīrtitāḥ
 > na tathā vāsudevasya

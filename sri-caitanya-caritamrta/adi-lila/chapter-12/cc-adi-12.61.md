@@ -1,5 +1,8 @@
 ### CC Adi 12.61
 
+> যাদবদাস, বিজয়দাস, দাস জনার্দন ।
+> অনন্তদাস, কানুপণ্ডিত, দাস নারায়ণ ॥৬১॥
+
 > yādava-dāsa, vijaya-dāsa, dāsa janārdana
 > ananta-dāsa, kānu-paṇḍita, dāsa nārāyaṇa
 

@@ -1,5 +1,8 @@
 ### SB 9.10.48
 
+> पुत्रान्स्वमातरस्तास्तु प्राणांस्तन्व इवोत्थिताः
+> आरोप्याङ्केऽभिषिञ्चन्त्यो बाष्पौघैर्विजहुः शुचः ॥४८॥
+
 > jaṭā nirmucya vidhivat
 > kula-vṛddhaiḥ samaṁ guruḥ
 > abhyaṣiñcad yathaivendraṁ

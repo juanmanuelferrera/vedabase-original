@@ -1,5 +1,8 @@
 ### SB 4.1.59
 
+> ताविमौ वै भगवतो हरेरंशाविहागतौ ।
+> भारव्ययाय च भुवः कृष्णौ यदुकुरूद्वहौ ॥५९॥
+
 > tāv imau vai bhagavato
 > harer aṁśāv ihāgatau
 > bhāra-vyayāya ca bhuvaḥ

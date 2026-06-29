@@ -1,5 +1,8 @@
 ### CC Madhya 6.224
 
+> চৈতন্য-প্রসাদে মনের সব জাড্য গেল ।
+> এই শ্লোক পড়ি’ অন্ন ভক্ষণ করিল ॥২২৪॥
+
 caitanya-prasāde manera saba jāḍya gela
 ei śloka paḍi' anna bhakṣaṇa karila
 

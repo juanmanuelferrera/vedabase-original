@@ -1,5 +1,8 @@
 ### CC Madhya 20.403
 
+> সংক্ষেপে কহিলুঁ কৃষ্ণের স্বরূপ-বিচার ।
+> ‘অনন্ত’ কহিতে নারে ইহার বিস্তার ॥৪০৩॥
+
 > saṅkṣepe kahiluṅ kṛṣṇera svarūpa-vicāra
 > 'ananta' kahite nāre ihāra vistāra
 

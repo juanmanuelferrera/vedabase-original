@@ -1,5 +1,8 @@
 ### CC Madhya 17.154
 
+> পথে যাহাঁ যাহাঁ হয় যমুনা-দর্শন ।
+> তাহাঁ ঝাঁপ দিয়া পড়ে প্রেমে অচেতন ॥১৫৪॥
+
 pathe yāhāṅ yāhāṅ haya yamunā-darśana
 
 tāhāṅ jhāṅpa diyā paḍe preme acetana

@@ -1,5 +1,7 @@
 ### CC Madhya 24.24
 
+> “ক্রমঃ শক্তৌ পরিপাট্যাং ক্রমশ্চালনকম্পয়োঃ ।।” ॥ ২৪ ॥
+
 > "kramaḥ śaktau paripāṭyāṁ kramaś cālana-kampayoḥ"
 
 *kramaḥ*—the word *krama*; *śaktau*—in the meaning of potency; *paripāṭyām*—in the meaning of systematic arrangement; *kramaḥ*—the word *krama*; *cālana*—in moving; *kampayoḥ*—or in trembling.

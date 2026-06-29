@@ -1,5 +1,8 @@
 ### SB 8.8.31
 
+> अथासीद्वारुणी देवी कन्या कमललोचना
+> असुरा जगृहुस्तां वै हरेरनुमतेन ते ॥३१॥
+
 > athodadher mathyamānāt
 > kāśyapair amṛtārthibhiḥ
 > udatiṣṭhan mahārāja

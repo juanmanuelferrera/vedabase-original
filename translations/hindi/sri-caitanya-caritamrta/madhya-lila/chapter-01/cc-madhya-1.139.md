@@ -1,5 +1,8 @@
 ### CC Madhya 1.139
 
+> আনন্দে সবারে নিয়া দেন বাসস্থান ।
+> শিবানন্দ সেন করে সবার পালন ॥১৩৯॥
+
 > ānande sabāre niyā dena vāsa-sthāna
 > śivānanda sena kare sabāra pālana
 

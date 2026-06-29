@@ -1,5 +1,8 @@
 ### CC Antya 18.18
 
+> কৃষ্ণেরে নাচায় প্রেমা, ভক্তেরে নাচায় ।
+> আপনে নাচয়ে, — তিনে নাচে একঠাঞি ॥১৮॥
+
 > kṛṣṇere nācāya premā, bhaktere nācāya
 > āpane nācaye,—tine nāce eka-ṭhāñi
 

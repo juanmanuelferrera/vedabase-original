@@ -1,5 +1,8 @@
 ### CC Madhya 17.93
 
+> আসি’ প্রভু-পদে পড়ি’ করেন রোদন ।
+> প্রভু উঠি’ তাঁরে কৃপায় কৈল আলিঙ্গন ॥৯৩॥
+
 āsi' prabhu-pade paḍi' karena rodana
 
 prabhu uṭhi' tāṅre kṛpāya kaila āliṅgana

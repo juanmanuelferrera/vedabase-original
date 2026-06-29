@@ -1,5 +1,8 @@
 ### CC Antya 16.25
 
+> ন মেঽভক্তশ্চতুর্বেদী মদ্ভক্তঃ শ্বপচঃ প্রিয়ঃ ।
+> তস্মৈ দেয়ং ততো গ্রাহ্যং স চ পূজ্যো যথা হ্যহম্ ॥২৫॥
+
 > na me 'bhaktaś catur-vedī
 > mad-bhaktaḥ śva-pacaḥ priyaḥ
 > tasmai deyaṁ tato grāhyaṁ

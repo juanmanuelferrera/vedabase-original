@@ -1,5 +1,8 @@
 ### CC Adi 4.40
 
+> সেই দ্বারে আচণ্ডালে কীর্তন সঞ্চারে ।
+> নাম-প্রেমমালা গাঁথি’ পরাইল সংসারে ॥৪০॥
+
 > sei dvāre ācaṇḍāle kīrtana sañcāre
 > nāma-prema-mālā gāṅthi' parāila saṁsāre
 

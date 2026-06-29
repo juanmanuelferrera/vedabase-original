@@ -1,5 +1,10 @@
 ### 5
 
+> कृष्णेति यस्य गिरि तं मनसाद्रियेत
+> दीक्षास्ति चेत प्रणतिभिश्च भजन्तमीशम् ।
+> शुश्रूषया भजनविज्ञमनन्यमन्य-
+> निन्दादिशून्यहृदमीप्सितसङ्गलब्ध्या ॥५॥
+
 > kṛṣṇeti yasya giri taṁ manasādriyeta
 > dīkṣāsti cet praṇatibhiś ca bhajantam īśam
 > śuśrūṣayā bhajana-vijñam ananyam anya-

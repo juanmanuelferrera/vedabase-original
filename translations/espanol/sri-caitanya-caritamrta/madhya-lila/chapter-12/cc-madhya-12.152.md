@@ -1,5 +1,8 @@
 ### CC Madhya 12.152
 
+> তীরে উঠি’ পরেন প্রভু শুষ্ক বসন ।
+> নৃসিংহ-দেবে নমস্করি’ গেলা উপবন ॥১৫২॥
+
 > tīre uṭhi' parena prabhu śuṣka vasana
 > nṛsiṁha-deve namaskari' gelā upavana
 

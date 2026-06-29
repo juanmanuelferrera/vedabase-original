@@ -1,5 +1,7 @@
 ### SB 6.9.38
 
+> स एव हि पुनः सर्ववस्तुनि वस्तुस्वरूपः सर्वेश्वरः सकलजगत्कारणकारणभूतःसर्वप्रत्यगात्मत्वात्सर्वगुणाभासोपलक्षित एक एव पर्यवशेषितः ॥३८॥
+
 *sa eva hi punaḥ sarva*-vastuni vastu-svarūpaḥ sarveśvaraḥ sakala-jagat-kāraṇa-kāraṇa-bhūtaḥ sarva-pratyag-ātmatvāt sarva-guṇābhāsopalakṣita eka eva paryavaśeṣitaḥ.
 
 *saḥ*—Ele (a Suprema Personalidade de Deus); *eva*—de fato; *hi*—certamente; *punaḥ*—novamente; *sarva-vastuni*—em tudo, material e espiritual; *vastu-svarūpaḥ*—a substância; *sarva-īśvaraḥ*—o controlador de tudo; *sakala-jagat*—de todo o universo; *kāraṇa*—das causas; *kāraṇa-bhūtaḥ*—existindo como a causa; *sarva-pratyak-ātmatvāt*—por ser a Superalma de cada ser vivo, ou por estar presente em tudo, mesmo no átomo; *sarva-guṇa*—de todos os efeitos dos modos materiais da natureza (como a inteligência e os sentidos); *ābhāsa*—pelas manifestações; *upalakṣitaḥ*—percebido; *ekaḥ*—sozinho; *eva*—de fato; *paryavaśeṣitaḥ*—remanescente.

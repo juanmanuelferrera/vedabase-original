@@ -1,5 +1,8 @@
 ### SB 5.5.8
 
+> पुंसः स्त्रिया मिथुनीभावमेतं तयोर्मिथो हृदयग्रन्थिमाहुः
+> अतो गृहक्षेत्रसुताप्तवित्तैर्जनस्य मोहोऽयमहं ममेति ॥८॥
+
 > puṁsaḥ striyā mithunī-bhāvam etaṁ
 > tayor mitho hṛdaya-granthim āhuḥ
 > ato gṛha-kṣetra-sutāpta-vittair

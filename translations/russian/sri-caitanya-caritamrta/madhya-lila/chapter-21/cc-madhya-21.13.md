@@ -1,5 +1,10 @@
 ### CC Madhya 21.13
 
+> নান্তং বিদাম্যহমমী মুনয়োঽগ্রজাস্তে
+> মায়াবলস্য পুরুষস্য কুতোঽবরা যে ।
+> গায়ন্ গুণান্ দশশতানন আদিদেবঃ
+> শেষোঽধুনাপি সমবস্যতি নাস্য পারম্ ॥১৩॥
+
 > nāntaṁ vidāmy aham amī munayo 'grajās te
 > māyā-balasya puruṣasya kuto 'varā ye
 > gāyan guṇān daśa-śatānana ādi-devaḥ

@@ -1,5 +1,8 @@
 ### SB 8.1.7
 
+> विरक्तः कामभोगेषु शतरूपापतिः प्रभुः
+> विसृज्य राज्यं तपसे सभार्यो वनमाविशत ॥७॥
+
 *viraktaḥ kāma*-bhogeṣu
 *śatarūpā*-patiḥ prabhuḥ
 visṛjya rājyaṁ tapase

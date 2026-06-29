@@ -1,5 +1,8 @@
 ### CC Adi 5.103
 
+> সেই পদ্মনালে হৈল চৌদ্দভুবন ।
+> তেঁহো ব্রহ্মা হঞা সৃষ্টি করিল সৃজন ॥১০৩॥
+
 sei padma-nāle haila caudda-bhuvana
 teṅho brahmā hañā sṛṣṭi karila sṛjana
 

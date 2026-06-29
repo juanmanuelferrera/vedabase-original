@@ -1,5 +1,8 @@
 ### CC Adi 9.12
 
+> নিজাচিন্ত্যশক্ত্যে মালী হঞা স্কন্ধ হয় ।
+> সকল শাখার সেই স্কন্ধ মূলাশ্রয় ॥১২॥
+
 nijācintya-śaktye mālī hañā skandha haya
 
 sakala śākhāra sei skandha mūlāśraya

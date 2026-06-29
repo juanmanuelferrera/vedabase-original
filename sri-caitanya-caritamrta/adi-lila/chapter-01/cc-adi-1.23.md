@@ -1,5 +1,8 @@
 ### CC Adi 1.23
 
+> প্রথম দুই শ্লোকে ইষ্টদেব-নমস্কার ।
+> সামান্য-বিশেষ-রূপে দুই ত’ প্রকার ॥২৩॥
+
 > prathama dui śloke iṣṭa-deva-namaskāra
 > sāmānya-viśeṣa-rūpe dui ta' prakāra
 

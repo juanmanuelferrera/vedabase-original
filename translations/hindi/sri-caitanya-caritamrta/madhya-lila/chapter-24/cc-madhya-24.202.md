@@ -1,5 +1,8 @@
 ### CC Madhya 24.202
 
+> চ-শব্দে ‘এব’, ‘অপি’-শব্দ সমুচ্চয়ে ।
+> ‘আত্মারামা এব’ হঞা শ্রীকৃষ্ণ ভজয়ে ॥২০২॥
+
 > ca-śabde 'eva', 'api'-śabda samuccaye
 > 'ātmārāmā eva' hañā śrī-kṛṣṇa bhajaye
 

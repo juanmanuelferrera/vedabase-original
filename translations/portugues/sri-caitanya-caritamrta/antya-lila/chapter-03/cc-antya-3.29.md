@@ -1,5 +1,8 @@
 ### CC Antya 3.29
 
+> এত কহি’ মাতার মনে সন্তোষ জন্মাইহ  ।
+> আর গুহ্যকথা তাঁরে স্মরণ করাইহ ॥২৯॥
+
 eta kahi' mātāra mane santoṣa janmāiha
 
 āra guhya-kathā tāṅre smaraṇa karāiha

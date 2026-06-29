@@ -1,5 +1,8 @@
 ### CC Madhya 5.87
 
+> তবে সেই ছোটবিপ্র গেলা বৃন্দাবন ।
+> দণ্ডবৎ করি’ কহে সব বিবরণ ॥৮৭॥
+
 > tabe sei choṭa-vipra gelā vṛndāvana
 > daṇḍavat kari' kahe saba vivaraṇa
 

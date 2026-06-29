@@ -1,5 +1,8 @@
 ### CC Madhya 4.174
 
+> যাঁর লাগি’ গোপীনাথ ক্ষীর কৈল চুরি ।
+> অতএব নাম হৈল ‘ক্ষীরচোরা’ করি’ ॥১৭৪॥
+
 yāṅra lāgi' gopīnātha kṣīra kaila curi
 ataeva nāma haila 'kṣīra-corā' kari'
 

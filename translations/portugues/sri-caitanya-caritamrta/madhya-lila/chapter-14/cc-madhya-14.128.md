@@ -1,5 +1,8 @@
 ### CC Madhya 14.128
 
+> হেনকালে, খচিত যাহে বিবিধ রতন  ।
+> সুবর্ণের চৌদোলা করি’ আরোহণ ॥১২৮॥
+
 hena-kāle, khacita yāhe vividha ratana
 
 suvarṇera caudolā kari' ārohaṇa

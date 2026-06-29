@@ -1,5 +1,7 @@
 ### SB 5.1.30
 
+> यावदवभासयति सुरगिरिमनुपरिक्रामन्भगवानादित्यो वसुधातलमर्धेनैवप्रतपत्यर्धेनावच्छादयति तदा हि भगवदुपासनोपचितातिपुरुषप्रभावस्तदनभिनन्दन्समजवेन रथेन ज्योतिर्मयेन रजनीमपि दिनं करिष्यामीति सप्तकृत्वस्तरणिमनुपर्यक्रामद्द्वितीय इव पतङ्गः ॥३०॥
+
 *yāvad avabhāsayati sura*-girim anuparikrāman bhagavān ādityo vasudhā-talam ardhenaiva pratapaty ardhenāvacchādayati tadā hi bhagavad-upāsanopacitāti-puruṣa-prabhāvas tad anabhinandan samajavena rathena jyotirmayena rajanīm api dinaṁ kariṣyāmīti sapta-kṛt vastaraṇim anuparyakrāmad dvitīya iva pataṅgaḥ.
 
 *yāvat*—enquanto; *avabhāsayati*—ilumina; *sura-girim*—o monte Sumeru; *anuparikrāman*—circundando; *bhagavān*—o poderosíssimo; *ādityaḥ*—deus do Sol; *vasudhā-talam*—o sistema planetário inferior; *ardhena*—pela metade; *eva*—certamente; *pratapati*—faz brilhar; *ardhena*—pela metade; *avacchādayati*—cobre com escuridão; *tadā*—nessa ocasião; *hi*—certamente; *bhagavat-upāsanā*—por adorar a Suprema Personalidade de Deus; *upacita*—por satisfazê-Lo perfeitamente; *ati-puruṣa*—sobre-humana; *prabhāvaḥ*—influência; *tat*—isso; *anabhinandan*—sem apreciar; *samajavena*—por igualmente poderosa; *rathena*—numa quadriga; *jyotiḥ-mayena*—brilhante; *rajanīm*—noite; *api*—também; *dinam*—dia; *kariṣyāmi*—farei; *iti*—assim; *sapta-kṛt*—sete vezes; *vastaraṇim*—seguindo exatamente a órbita do Sol; *anuparyakrāmat*—circundou; *dvitīyaḥ*—segundo; *iva*—como; *pataṅgaḥ*—Sol.

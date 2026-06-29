@@ -1,5 +1,8 @@
 ### CC Madhya 20.264
 
+> মায়াতীত পরব্যোমে সবার অবস্থান ।
+> বিশ্বে অবতরি’ ধরে ‘অবতার’ নাম ॥২৬৪॥
+
 > māyātīta paravyome sabāra avasthāna
 > viśve avatari' dhare 'avatāra' nāma
 

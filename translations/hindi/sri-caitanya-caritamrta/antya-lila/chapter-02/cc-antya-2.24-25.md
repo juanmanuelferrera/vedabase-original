@@ -1,5 +1,9 @@
 ### CC Antya 2.24-25
 
+> “আপনে বোলান মোরে, ইহা যদি জানি ।
+> আমার ইষ্ট-মন্ত্র জানি’ কহেন আপনি ॥২৪॥
+> তবে জানি, ইঁহাতে হয় চৈতন্য-আবেশে ।” এত চিন্তি’ শিবানন্দ রহিলা দূরদেশে ॥২৫॥
+
 > "āpane bolāna more, ihā yadi jāni
 > āmāra iṣṭa-mantra jāni' kahena āpani
 > tabe jāni, iṅhāte haya caitanya-āveśe"

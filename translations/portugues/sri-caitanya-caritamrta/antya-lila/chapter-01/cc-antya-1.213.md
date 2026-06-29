@@ -1,5 +1,8 @@
 ### CC Antya 1.213
 
+> এইমত দুইজন কৃষ্ণকথারঙ্গে ।
+> সুখে কাল গোঙায় রূপ হরিদাস-সঙ্গে ॥২১৩॥
+
 ei-mata dui-jana kṛṣṇa-kathā-raṅge
 
 sukhe kāla goṅāya rūpa haridāsa-saṅge

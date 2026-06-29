@@ -1,5 +1,8 @@
 ### CC Madhya 9.353
 
+> ভিক্ষা করাঞা তাঁরে করাইল শয়ন ৷
+> আপনে সার্বভৌম করে পাদসম্বাহন ৷৷ ৩৫৩ ৷৷ ॥৩৫৩॥
+
 > bhikṣā karāñā tāṅre karāila śayana
 > āpane sārvabhauma kare pāda-saṁvāhana
 

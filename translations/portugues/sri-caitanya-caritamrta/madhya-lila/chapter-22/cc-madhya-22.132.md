@@ -1,5 +1,7 @@
 ### CC Madhya 22.132
 
+> নামসংকীর্তনং শ্রীমন্মথুরামণ্ডলে স্থিতিঃ ॥১৩২॥
+
 nāma-saṅkīrtanaṁ śrīman-
 
 mathurā-maṇḍale sthitiḥ

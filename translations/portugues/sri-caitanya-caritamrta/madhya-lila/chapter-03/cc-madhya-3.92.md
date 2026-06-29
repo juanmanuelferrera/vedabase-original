@@ -1,5 +1,8 @@
 ### CC Madhya 3.92
 
+> নানা যত্ন-দৈন্যে প্রভুরে করাইল ভোজন ।
+> আচার্যের ইচ্ছা প্রভু করিল পূরণ ॥৯২॥
+
 nānā yatna-dainye prabhure karāila bhojana
 
 ācāryera icchā prabhu karila pūraṇa

@@ -1,5 +1,8 @@
 ### CC Antya 5.122
 
+> ঈশ্বরের নাহি কভু দেহ-দেহি-ভেদ ।
+> স্বরূপ, দেহ, — চিদানন্দ, নাহিক বিভেদ ॥১২২॥
+
 > īśvarera nāhi kabhu deha-dehi-bheda
 > svarūpa, deha,—cid-ānanda, nāhika vibheda
 

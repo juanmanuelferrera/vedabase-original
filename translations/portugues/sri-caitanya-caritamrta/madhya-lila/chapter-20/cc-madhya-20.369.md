@@ -1,5 +1,8 @@
 ### CC Madhya 20.369
 
+> ‘সনকাদি’, ‘নারদ’, ‘পৃথু’, ‘পরশুরাম’ ।
+> জীবরূপ ‘ব্রহ্মার’ আবেশাবতার-নাম ॥৩৬৯॥
+
 'sanakādi', 'nārada', 'pṛthu' 'paraśurāma'
 
 jīva-rūpa 'brahmāra' āveśāvatāra-nāma

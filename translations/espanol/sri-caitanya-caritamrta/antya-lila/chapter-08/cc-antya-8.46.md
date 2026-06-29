@@ -1,5 +1,8 @@
 ### CC Antya 8.46
 
+> প্রভু গুরুবুদ্ধ্যে করেন সম্ভ্রম, সম্মান ।
+> তেঁহো ছিদ্র চাহি’ বুলে, — এই তার কাম ॥৪৬॥
+
 > prabhu guru-buddhye karena sambhrama, sammāna
 > teṅho chidra cāhi' bule,--ei tāra kāma
 

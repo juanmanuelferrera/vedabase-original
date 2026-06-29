@@ -1,5 +1,8 @@
 ### CC Madhya 1.137
 
+> সার্বভৌম-ঘরে প্রভুর ভিক্ষা-পরিপাটী ।
+> ষাঠীর মাতা কহে, যাতে রাণ্ডী হউক্ ষাঠী ॥১৩৭॥
+
 > sārvabhauma-ghare prabhura bhikṣā-paripāṭī
 > ṣāṭhīra mātā kahe, yāte rāṇḍī ha-uk ṣāṭhī
 

@@ -1,5 +1,7 @@
 ### CC Madhya 16.235
 
+> ‘রক্ষকের হাতে মুঞি কেমনে ছুটিব ! কেমনে প্রভুর সঙ্গে নীলাচলে যাব ?’ ২৩৫ ॥২৩৫॥
+
 > 'rakṣakera hāte muñi kemane chuṭiba!
 > kemane prabhura saṅge nīlācale yāba?'
 

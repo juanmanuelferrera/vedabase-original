@@ -1,5 +1,8 @@
 ### CC Antya 5.55
 
+> রায় পাশ গেল, রায় প্রণতি করিল ।
+> ‘আজ্ঞা কর, যে লাগি’ আগমন হৈল’ ॥৫৫॥
+
 rāya-pāśa gela, rāya praṇati karila
 
 'ājñā kara, ye lāgi' āgamana haila'

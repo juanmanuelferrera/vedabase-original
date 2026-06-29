@@ -1,5 +1,8 @@
 ### SB 8.21.22
 
+> बलेन सचिवैर्बुद्ध्या दुर्गैर्मन्त्रौषधादिभिः
+> सामादिभिरुपायैश्च कालं नात्येति वै जनः ॥२२॥
+
 > balena sacivair buddhyā
 > durgair mantrauṣadhādibhiḥ
 > sāmādibhir upāyaiś ca

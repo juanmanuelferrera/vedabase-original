@@ -1,5 +1,8 @@
 ### CC Madhya 18.32
 
+> প্রাতঃকালে প্রভু ‘মানসগঙ্গা’য় করি’ স্নান ।
+> গোবর্ধন-পরিক্রমায় করিলা প্ৰয়াণ ॥৩২॥
+
 > prātaḥ-kāle prabhu 'mānasa-gaṅgā'ya kari' snāna
 > govardhana-parikramāya karilā prayāṇa
 

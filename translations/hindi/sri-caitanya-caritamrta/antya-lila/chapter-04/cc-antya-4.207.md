@@ -1,5 +1,8 @@
 ### CC Antya 4.207
 
+> দোলযাত্রা দেখি’ প্রভু তাঁরে বিদায় দিলা ।
+> বৃন্দাবনে যে করিবেন, সব শিখাইলা ॥২০৭॥
+
 > dola-yātrā dekhi' prabhu tāṅre vidāya dilā
 > vṛndāvane ye karibena, saba śikhāilā
 

@@ -1,5 +1,8 @@
 ### CC Adi 5.220
 
+> বাম-পার্শ্বে শ্রীরাধিকা সখীগণ-সঙ্গে ।
+> রাসাদিক-লীলা প্রভু করে কত রঙ্গে ॥২২০॥
+
 > vāma-pārśve śrī-rādhikā sakhī-gaṇa-saṅge
 > rāsādika-līlā prabhu kare kata raṅge
 

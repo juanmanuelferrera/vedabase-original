@@ -1,5 +1,8 @@
 ### CC Adi 17.151
 
+> এই মত দুঁহার কথা হয় ঠারে-ঠোরে ।
+> ভিতরের অর্থ কেহ বুঝিতে না পারে ॥১৫১॥
+
 > ei mata duṅhāra kathā haya ṭhāre-ṭhore
 > bhitarera artha keha bujhite nā pāre
 

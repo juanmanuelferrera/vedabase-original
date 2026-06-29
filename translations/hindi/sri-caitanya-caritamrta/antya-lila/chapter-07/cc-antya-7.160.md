@@ -1,5 +1,8 @@
 ### CC Antya 7.160
 
+> ঈষৎ হাসিয়া প্রভু কৈলা আলিঙ্গন  ।
+> সবারে শুনাঞা কহেন মধুর বচন ॥১৬০॥
+
 > īṣat hāsiyā prabhu kailā āliṅgana
 > sabāre śunāñā kahena madhura vacana
 

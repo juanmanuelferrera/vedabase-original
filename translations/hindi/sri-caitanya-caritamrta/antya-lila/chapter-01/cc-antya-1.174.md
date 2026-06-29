@@ -1,5 +1,7 @@
 ### CC Antya 1.174
 
+> তোমার আগে ধার্ষ্ট্য এই মুখ-ব্যাদান ।” এত বলি’ নান্দী-শ্লোক করিলা ব্যাখ্যান ॥১৭৪॥
+
 > tomāra āge dhārṣṭya ei mukha-vyādāna"
 > eta bali' nāndī-śloka karilā vyākhyāna
 

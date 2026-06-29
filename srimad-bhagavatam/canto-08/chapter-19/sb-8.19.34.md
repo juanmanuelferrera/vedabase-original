@@ -1,5 +1,8 @@
 ### SB 8.19.34
 
+> क्रमतो गां पदैकेन द्वितीयेन दिवं विभोः
+> खं च कायेन महता तार्तीयस्य कुतो गतिः ॥३४॥
+
 > kramato gāṁ padaikena
 > dvitīyena divaṁ vibhoḥ
 > khaṁ ca kāyena mahatā

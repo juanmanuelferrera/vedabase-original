@@ -1,5 +1,8 @@
 ### CC Adi 5.73
 
+> অংশের অংশ যেই, ‘কলা’ তার নাম ।
+> গোবিন্দের প্রতিমূর্তি শ্রীবলরাম ॥৭৩॥
+
 aṁśera aṁśa yei, 'kalā' tāra nāma
 govindera pratimūrti śrī-balarāma
 

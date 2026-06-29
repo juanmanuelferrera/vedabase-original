@@ -1,5 +1,9 @@
 ### CC Antya 19.93
 
+> সখি হে, কৃষ্ণগন্ধ জগৎ মাতায় ।
+> নারীর নাসাতে পশে, সর্বকাল তাহাঁ বৈসে,
+> কৃষ্ণপাশ ধরি’ লঞা যায় ।। ৯৩ ।। ধ্রু ।। ॥৯৩॥
+
 > sakhi he, kṛṣṇa-gandha jagat mātāya
 > nārīra nāsāte paśe, sarva-kāla tāhāṅ vaise,
 > kṛṣṇa-pāśa dhari' lañā yāya

@@ -1,5 +1,8 @@
 ### CC Madhya 17.113
 
+> জগৎমঙ্গল তাঁর ‘কৃষ্ণচৈতন্য’-নাম ।
+> নাম, রূপ, গুণ তাঁর, সব — অনুপম ॥১১৩॥
+
 > jagat-maṅgala tāṅra 'kṛṣṇa-caitanya'-nāma
 > nāma, rūpa, guṇa tāṅra, saba--anupama
 

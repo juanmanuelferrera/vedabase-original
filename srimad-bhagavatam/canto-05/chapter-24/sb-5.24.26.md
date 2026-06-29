@@ -1,5 +1,7 @@
 ### SB 5.24.26
 
+> तस्य महानुभावस्यानुपथममृजितकषायः को वास्मद्विधः परिहीणभगवदनुग्रहउपजिगमिषतीति ॥२६॥
+
 > tasya mahānubhāvasyānupatham amṛjita-kaṣāyaḥ ko vāsmad-vidhaḥ parihīṇa-bhagavad-anugraha upajigamiṣatīti.
 
 *tasya*—of Prahlāda Mahārāja; *mahā-anubhāvasya*—who was an exalted devotee; *anupatham*—the path; *amṛjita-kaṣāyaḥ*—a person who is materially contaminated; *kaḥ*—what; *vā*—or; *asmat-vidhaḥ*—like us; *parihīṇa-bhagavat-anugrahaḥ*—being without the favor of the Supreme Personality of Godhead; *upajigamiṣati*—desires to follow; *iti*—thus.

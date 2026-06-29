@@ -1,5 +1,8 @@
 ### CC Antya 9.128
 
+> পঞ্চপুত্র-সহিতে আসি’ পড়িলা চরণে ।
+> উঠাঞা প্রভু তাঁরে কৈলা আলিঙ্গনে ॥১২৮॥
+
 pañca-putra-sahite āsi' paḍilā caraṇe
 
 uṭhāñā prabhu tāṅre kailā āliṅgane

@@ -1,5 +1,8 @@
 ### CC Antya 14.9
 
+> ক্ষণে ক্ষণে অনুভবি’ এই দুইজন ।
+> সংক্ষেপে বাহুল্যে করেন কড়চা-গ্রন্থন ॥৯॥
+
 kṣaṇe kṣaṇe anubhavi' ei dui-jana
 saṅkṣepe bāhulye karena kaḍacā-granthana
 

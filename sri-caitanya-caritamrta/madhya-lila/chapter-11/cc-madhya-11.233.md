@@ -1,5 +1,8 @@
 ### CC Madhya 11.233
 
+> পুলিন-ভোজনে যেন কৃষ্ণ মধ্য-স্থানে ।
+> চৌদিকের সখা কহে, — আমারে নেহানে ॥২৩৩॥
+
 > pulina-bhojane yena kṛṣṇa madhya-sthāne
 > caudikera sakhā kahe,-āmāre nehāne
 

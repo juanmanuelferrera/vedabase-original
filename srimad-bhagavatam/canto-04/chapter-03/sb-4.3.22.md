@@ -1,5 +1,8 @@
 ### SB 4.3.22
 
+> प्रत्युद्गमप्रश्रयणाभिवादनं विधीयते साधु मिथः सुमध्यमे ।
+> प्राज्ञैः परस्मै पुरुषाय चेतसा गुहाशयायैव न देहमानिने ॥२२॥
+
 > pratyudgama-praśrayaṇābhivādanaṁ
 > vidhīyate sādhu mithaḥ sumadhyame
 > prājñaiḥ parasmai puruṣāya cetasā

@@ -1,5 +1,8 @@
 ### CC Madhya 12.58
 
+> সুন্দর, রাজার পুত্র — শ্যামল-বরণ ।
+> কিশোর বয়স, দীর্ঘ কমলনয়ন ॥৫৮॥
+
 sundara, rājāra putra-śyāmala-varaṇa
 
 kiśora vayasa, dīrgha kamala-nayana

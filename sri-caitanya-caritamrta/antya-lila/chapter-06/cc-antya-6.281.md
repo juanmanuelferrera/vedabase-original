@@ -1,5 +1,8 @@
 ### CC Antya 6.281
 
+> কত দিনে রঘুনাথ সিংহদ্বার ছাড়িলা ।
+> ছত্রে যাই’ মাগিয়া খাইতে আরম্ভ করিলা ॥২৮১॥
+
 > kata dine raghunātha siṁha-dvāra chāḍilā
 > chatre yāi' māgiyā khāite ārambha karilā
 

@@ -1,5 +1,8 @@
 ### CC Antya 14.35
 
+> প্রাপ্তরত্ন হারাঞা ঐছে ব্যগ্র হইলা ।
+> বিষণ্ণ হঞা প্রভু নিজ-বাসা আইলা ॥৩৫॥
+
 > prāpta-ratna hārāñā aiche vyagra ha-ilā
 > viṣaṇṇa hañā prabhu nija-vāsā āilā
 

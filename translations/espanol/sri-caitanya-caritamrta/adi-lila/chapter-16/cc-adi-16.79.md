@@ -1,5 +1,8 @@
 ### CC Adi 16.79
 
+> ‘গঙ্গাতে কমল জন্মে’ — সবার সুবোধ ।
+> ‘কমলে গঙ্গার জন্ম’ — অত্যন্ত বিরোধ ॥৭৯॥
+
 > 'gaṅgāte kamala janme'--sabāra subodha
 > 'kamale gaṅgāra janma'--atyanta virodha
 

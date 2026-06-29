@@ -1,5 +1,8 @@
 ### CC Madhya 11.132
 
+> আপন-নিকটে প্রভু সবা বসাইলা ।
+> আপনি শ্রীহস্তে সবারে মাল্য-গন্ধ দিলা ॥১৩২॥
+
 > āpana-nikaṭe prabhu sabā vasāilā
 > āpani śrī-haste sabāre mālya-gandha dilā
 

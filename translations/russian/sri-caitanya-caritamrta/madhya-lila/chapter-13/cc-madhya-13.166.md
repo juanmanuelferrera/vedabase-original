@@ -1,5 +1,8 @@
 ### CC Madhya 13.166
 
+> অঙ্গুলিতে ক্ষত হবে জানি’ দামোদর ।
+> ভয়ে নিজ-করে নিবারয়ে প্রভু-কর ॥১৬৬॥
+
 > aṅgulite kṣata habe jāni' dāmodara
 > bhaye nija-kare nivāraye prabhu-kara
 

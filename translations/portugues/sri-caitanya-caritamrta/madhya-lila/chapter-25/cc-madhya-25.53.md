@@ -1,5 +1,8 @@
 ### CC Madhya 25.53
 
+> ছয়ের ছয় মত ব্যাস কৈলা আবর্তন ।
+> সেই সব সূত্র লঞা ‘বেদান্ত’-বর্ণন ॥৫৩॥
+
 chayera chaya mata vyāsa kailā āvartana
 
 sei saba sūtra lañā 'vedānta'-varṇana

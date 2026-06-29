@@ -1,5 +1,8 @@
 ### CC Madhya 9.91
 
+> শ্রীরঙ্গক্ষেত্রে বৈসে যত বৈষ্ণব-ব্রাহ্মণ ।
+> এক এক দিন সবে কৈল নিমন্ত্রণ ॥৯১॥
+
 > śrī-raṅga-kṣetre vaise yata vaiṣṇava-brāhmaṇa
 > eka eka dina sabe kaila nimantraṇa
 

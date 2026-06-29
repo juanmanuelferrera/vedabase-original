@@ -1,5 +1,8 @@
 ### CC Adi 9.42
 
+> এতাবজ্জন্মসাফল্যং দেহিনামিহ দেহিষু ।
+> প্রাণৈরর্থৈর্ধিয়া বাচা শ্রেয় আচরণং সদা ॥৪২॥
+
 > etāvaj janma-sāphalyaṁ
 > dehinām iha dehiṣu
 > prāṇair arthair dhiyā vācā

@@ -1,5 +1,8 @@
 ### CC Madhya 13.52
 
+> আর এক শক্তি প্রভু করিল প্রকাশ ।
+> এককালে সাত ঠাঞি করিল বিলাস ॥৫২॥
+
 > āra eka śakti prabhu karila prakāśa
 > eka-kāle sāta ṭhāñi karila vilāsa
 

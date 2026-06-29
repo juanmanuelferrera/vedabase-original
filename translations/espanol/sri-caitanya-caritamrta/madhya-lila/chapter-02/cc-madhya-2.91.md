@@ -1,5 +1,10 @@
 ### CC Madhya 2.91
 
+> এই অন্ত্যলীলা-সার, সূত্রমধ্যে বিস্তার,
+> করি’ কিছু করিলুঁ বর্ণন ৷
+> ইহা-মধ্যে মরি যবে, বর্ণিতে না পারি তবে,
+> এই লীলা ভক্তগণ-ধন ॥৯১॥
+
 > ei antya-līlā-sāra, sūtra-madhye vistāra,
 > kari' kichu kariluṅ varṇana
 > ihā-madhye mari yabe, varṇite nā pāri tabe,

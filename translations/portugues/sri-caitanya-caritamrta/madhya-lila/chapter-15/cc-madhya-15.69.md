@@ -1,5 +1,8 @@
 ### CC Madhya 15.69
 
+> ইঁহার কৃষ্ণসেবার কথা শুন, সর্বজন  ।
+> পরম পবিত্র সেবা অতি সর্বোত্তম ॥৬৯॥
+
 iṅhāra kṛṣṇa-sevāra kathā śuna, sarva-jana
 
 parama-pavitra sevā ati sarvottama

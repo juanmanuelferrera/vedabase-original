@@ -1,5 +1,8 @@
 ### CC Antya 10.32
 
+> ফুট্কলাই চূর্ণ করি’ ঘৃতে ভাজাইল ।
+> চিনি-পাকে কর্পূরাদি দিয়া নাড়ু কৈল ॥৩২॥
+
 > phuṭkalāi cūrṇa kari' ghṛte bhājāila
 > cini-pāke karpūrādi diyā nāḍu kaila
 

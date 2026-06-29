@@ -1,5 +1,8 @@
 ### SB 6.8.22
 
+> श्रीवत्सधामापररात्र ईशः प्रत्यूष ईशोऽसिधरो जनार्दनः
+> दामोदरोऽव्यादनुसन्ध्यं प्रभाते विश्वेश्वरो भगवान्कालमूर्तिः ॥२२॥
+
 > śrīvatsa-dhāmāpara-rātra īśaḥ
 > pratyūṣa īśo 'si-dharo janārdanaḥ
 > dāmodaro 'vyād anusandhyaṁ prabhāte

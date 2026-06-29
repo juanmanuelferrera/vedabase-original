@@ -1,5 +1,8 @@
 ### CC Adi 10.97
 
+> মহাপ্রভুর লীলা যত বাহির-অন্তর ।
+> দুই ভাই তাঁর মুখে শুনে নিরন্তর ॥৯৭॥
+
 > mahāprabhura līlā yata bāhira-antara
 > dui bhāi tāṅra mukhe śune nirantara
 

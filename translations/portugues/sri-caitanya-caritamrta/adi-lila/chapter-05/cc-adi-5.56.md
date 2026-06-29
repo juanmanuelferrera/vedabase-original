@@ -1,5 +1,8 @@
 ### CC Adi 5.56
 
+> মহৎস্রষ্টা পুরুষ, তিঁহো জগৎ-কারণ ।
+> আদ্য-অবতার করে মায়ায় ঈক্ষণ ॥৫৬॥
+
 mahat-sraṣṭā puruṣa, tiṅho jagat-kāraṇa
 
 ādya-avatāra kare māyāya īkṣaṇa

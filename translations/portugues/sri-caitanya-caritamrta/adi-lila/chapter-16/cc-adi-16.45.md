@@ -1,5 +1,8 @@
 ### CC Adi 16.45
 
+> শ্লোকের অর্থ কৈল বিপ্র পাইয়া সন্তোষ ।
+> প্রভু কহে — কহ শ্লোকের কিবা গুণ-দোষ ॥৪৫॥
+
 ślokera artha kaila vipra pāiyā santoṣa
 prabhu kahe--kaha ślokera kibā guṇa-doṣa
 

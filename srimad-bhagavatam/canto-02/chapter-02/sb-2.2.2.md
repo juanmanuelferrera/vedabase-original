@@ -1,5 +1,8 @@
 ### SB 2.2.2
 
+> शाब्दस्य हि ब्रह्मण एष पन्था यन्नामभिर्ध्यायति धीरपार्थैः ।
+> परिभ्रमंस्तत्र न विन्दतेऽर्थान्मायामये वासनया शयानः ॥२॥
+
 > śābdasya hi brahmaṇa eṣa panthā
 > yan nāmabhir dhyāyati dhīr apārthaiḥ
 > paribhramaṁs tatra na vindate 'rthān

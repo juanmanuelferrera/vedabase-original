@@ -1,5 +1,8 @@
 ### SB 3.32.8
 
+> द्विपरार्धावसाने यः प्रलयो ब्रह्मणस्तु ते ।
+> तावदध्यासते लोकं परस्य परचिन्तकाः ॥८॥
+
 > dvi-parārdhāvasāne yaḥ
 > pralayo brahmaṇas tu te
 > tāvad adhyāsate lokaṁ

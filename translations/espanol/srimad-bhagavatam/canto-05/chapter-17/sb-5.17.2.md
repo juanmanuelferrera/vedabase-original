@@ -1,5 +1,7 @@
 ### SB 5.17.2
 
+> यत्र ह वाव वीरव्रत औत्तानपादिः परमभागवतोऽस्मत्कुलदेवताचरणारविन्दोदकमितियामनुसवनमुत्कृष्यमाणभगवद्भक्तियोगेन दृढं क्लिद्यमानान्तर्हृदय औत्कण्ठ्यविवशामीलितलोचनयुगलकुड्मलविगलितामलबाष्पकलयाभिव्यज्यमानरोमपुलककुलकोऽधुनापिपरमादरेण शिरसा बिभर्ति ॥२॥
+
 > yatra ha vāva vīra-vrata auttānapādiḥ parama-bhāgavato 'smat-kula-devatā-caraṇāravindodakam iti yām anusavanam utkṛṣyamāṇa-bhagavad-bhakti-yogena dṛḍhaṁ klidyamānāntar-hṛdaya autkaṇṭhya-vivaśāmīlita-locana-yugala-kuḍmala-vigalitāmala-bāṣpa-kalayābhivyajyamāna-roma-pulaka-kulako 'dhunāpi paramādareṇa śirasā bibharti.
 
 *yatra ha vāva*—en Dhruvaloka; *vīra-vrataḥ*—con determinación firme; *auttānapādiḥ*—el famoso hijo de Mahārāja Uttānapāda; *parama-bhāgavataḥ*—el muy excelso devoto; *asmat*—nuestro; *kula-devatā*—de la Deidad familiar; *caraṇa-aravinda*—de los pies de loto; *udakam*—en el agua; *iti*—así; *yām*—que; *anusavanam*—constantemente; *utkṛṣyamāṇa*—aumentado; *bhagavat-bhakti-yogena*—mediante el servicio devocional del Señor; *dṛḍham*—en gran medida; *klidyamāna-antaḥ-hṛdayaḥ*—suavizado en lo profundo del corazón; *autkaṇṭhya*—con gran ansiedad; *vivaśa*—espontáneamente; *amīlita*—ligeramente abiertos; *locana*—de ojos; *yugala*—par; *kuḍmala*—de los que son como flores; *vigalita*—emanando; *amala*—libre de contaminación; *bāṣpa-kalayā*—con lágrimas; *abhivyajyamāna*—manifestado; *roma-pulaka-kulakaḥ*—cuyos signos de éxtasis en el cuerpo; *adhunā api*—incluso ahora; *parama-ādareṇa*—con gran reverencia; *śirasā*—en la cabeza; *bibharti*—lleva.

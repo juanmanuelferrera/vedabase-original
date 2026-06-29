@@ -1,5 +1,8 @@
 ### CC Madhya 14.67
 
+> আর ভক্তগণ চাতুর্মাস্যে যত দিন ।
+> এক এক দিন করি’ করিল বণ্টন ॥৬৭॥
+
 āra bhakta-gaṇa cāturmāsye yata dina
 
 eka eka dina kari' karila baṇṭana

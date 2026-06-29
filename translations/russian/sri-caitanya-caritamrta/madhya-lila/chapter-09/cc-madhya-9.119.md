@@ -1,5 +1,8 @@
 ### CC Madhya 9.119
 
+> বিনোদিনী লক্ষ্মীর হয় কৃষ্ণে অভিলাষ ।
+> ইহাতে কি দোষ, কেনে কর পরিহাস ॥১১৯॥
+
 > vinodinī lakṣmīra haya kṛṣṇe abhilāṣa
 > ihāte ki doṣa, kene kara parihāsa
 

@@ -1,5 +1,7 @@
 ### SB 5.3.8
 
+> आत्मन एवानुसवनमञ्जसाव्यतिरेकेण बोभूयमानाशेषपुरुषार्थस्वरूपस्य किन्तु नाथाशिषआशासानानामेतदभिसंराधनमात्रं भवितुमर्हति ॥७॥
+
 > ātmana evānusavanam añjasāvyatirekeṇa bobhūyamānāśeṣa-puruṣārtha-svarūpasya kintu nāthāśiṣa āśāsānānām etad abhisaṁrādhana-mātraṁ bhavitum arhati.
 
 *ātmanaḥ*—de modo autosuficiente; *eva*—ciertamente; *anusavanam*—en todo momento; *añjasā*—directamente; *avyatirekeṇa*—sin detener; *bobhūyamāna*—aumentar; *aśeṣa*—ilimitadamente; *puruṣa-artha*—los objetivos de la vida; *sva-rūpasya*—Tu verdadera identidad; *kintu*—pero; *nātha*—¡oh, Señor!; *āśiṣaḥ*—bendiciones para el disfrute material; *āśāsānānām*—de nosotros, que siempre estamos deseando; *etat*—esto; *abhisaṁrādhana*—para recibir Tu misericordia; *mātram*—solamente; *bhavitum arhati*—puede ser.

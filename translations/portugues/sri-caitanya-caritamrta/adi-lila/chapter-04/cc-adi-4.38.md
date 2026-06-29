@@ -1,5 +1,8 @@
 ### CC Adi 4.38
 
+> কোন কারণে যবে হৈল অবতারে মন ।
+> যুগধর্ম-কাল হৈল সে কালে মিলন ॥৩৮॥
+
 kona kāraṇe yabe haila avatāre mana
 
 yuga-dharma-kāla haila se kāle milana

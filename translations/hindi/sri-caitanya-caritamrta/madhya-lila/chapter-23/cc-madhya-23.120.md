@@ -1,5 +1,8 @@
 ### CC Madhya 23.120
 
+> “নীচজাতি, নীচসেবী, মুঞি — সুপামর ।
+> সিদ্ধান্ত শিখাইলা, — যেই ব্রহ্মার অগোচর ॥১২০॥
+
 > "nīca-jāti, nīca-sevī, muñi--supāmara
 > siddhānta śikhāilā,--yei brahmāra agocara
 

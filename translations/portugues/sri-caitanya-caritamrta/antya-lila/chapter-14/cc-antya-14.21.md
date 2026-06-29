@@ -1,5 +1,8 @@
 ### CC Antya 14.21
 
+> প্রভুর বিলম্ব দেখি’ গোবিন্দ জাগাইলা ।
+> জাগিলে ‘স্বপ্ন’-জ্ঞান হৈল, প্রভু দুঃখী হৈলা ॥২১॥
+
 prabhura vilamba dekhi' govinda jāgāilā
 
 jāgile 'svapna'-jñāna haila, prabhu duḥkhī hailā

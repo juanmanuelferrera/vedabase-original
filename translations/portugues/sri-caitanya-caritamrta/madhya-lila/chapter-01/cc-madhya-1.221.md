@@ -1,5 +1,8 @@
 ### CC Madhya 1.221
 
+> সবা-পাশ আজ্ঞা মাগি’ চলন-সময় ।
+> প্রভু-পদে কহে কিছু করিয়া বিনয় ॥২২১॥
+
 sabā-pāśa ājñā māgi' calana-samaya
 
 prabhu-pade kahe kichu kariyā vinaya

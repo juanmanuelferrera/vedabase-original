@@ -1,5 +1,8 @@
 ### CC Madhya 9.97
 
+> মহাপ্রভু পুছিল তাঁরে, শুন, মহাশয় ।
+> কোন্ অর্থ জানি’ তোমার এত সুখ হয় ॥৯৭॥
+
 > mahāprabhu puchila tāṅre, śuna, mahāśaya
 > kon artha jāni' tomāra eta sukha haya
 

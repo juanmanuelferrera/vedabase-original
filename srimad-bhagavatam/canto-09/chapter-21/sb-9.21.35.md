@@ -1,5 +1,8 @@
 ### SB 9.21.35
 
+> तस्य सत्यधृतिः पुत्रो धनुर्वेदविशारदः
+> शरद्वांस्तत्सुतो यस्मादुर्वशीदर्शनात्किल ॥३५॥
+
 > tasya satyadhṛtiḥ putro
 > dhanur-veda-viśāradaḥ
 > śaradvāṁs tat-suto yasmād

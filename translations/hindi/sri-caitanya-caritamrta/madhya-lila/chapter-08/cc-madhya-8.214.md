@@ -1,5 +1,8 @@
 ### CC Madhya 8.214
 
+> অন্যোন্যে বিশুদ্ধ প্রেমে করে রস পুষ্ট ।
+> তাঁ-সবার প্রেম দেখি’ কৃষ্ণ হয় তুষ্ট ॥২১৪॥
+
 > anyonye viśuddha preme kare rasa puṣṭa
 > tāṅ-sabāra prema dekhi' kṛṣṇa haya tuṣṭa
 

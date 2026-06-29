@@ -1,5 +1,8 @@
 ### CC Madhya 12.87
 
+> ভোগমন্দির শোধন করি’ শোধিল প্রাঙ্গন ।
+> সকল আবাস ক্রমে করিল শোধন ॥৮৭॥
+
 > bhoga-mandira śodhana kari' śodhila prāṅgaṇa
 > sakala āvāsa krame karila śodhana
 

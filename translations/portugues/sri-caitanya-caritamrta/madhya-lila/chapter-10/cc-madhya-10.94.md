@@ -1,5 +1,8 @@
 ### CC Madhya 10.94
 
+> প্রভুর এক ভক্ত — ‘দ্বিজ কমলাকান্ত’ নাম ৷
+> তাঁরে লঞা নীলাচলে করিলা প্রয়াণ ৷৷ ৯৪ ৷৷ ॥৯৪॥
+
 prabhura eka bhakta-'dvija kamalākānta' nāma
 
 tāṅre lañā nīlācale karilā prayāṇa

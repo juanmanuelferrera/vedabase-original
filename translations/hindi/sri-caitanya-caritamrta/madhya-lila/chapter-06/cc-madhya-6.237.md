@@ -1,5 +1,8 @@
 ### CC Madhya 6.237
 
+> চৈতন্য-চরণ বিনে নাহি জানে আন ।
+> ভক্তি বিনু শাস্ত্রের আর না করে ব্যাখ্যান ॥২৩৭॥
+
 > caitanya-caraṇa vine nāhi jāne āna
 > bhakti vinu śāstrera āra nā kare vyākhyāna
 

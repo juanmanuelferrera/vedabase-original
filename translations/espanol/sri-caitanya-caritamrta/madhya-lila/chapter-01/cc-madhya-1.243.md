@@ -1,5 +1,8 @@
 ### CC Madhya 1.243
 
+> শ্রীরূপে শিক্ষা করাই’ পাঠাইলা বৃন্দাবন ।
+> আপনে করিলা বারাণসী আগমন ॥২৪৩॥
+
 > śrī-rūpe śikṣā karāi' pāṭhāilā vṛndāvana
 > āpane karilā vārāṇasī āgamana
 

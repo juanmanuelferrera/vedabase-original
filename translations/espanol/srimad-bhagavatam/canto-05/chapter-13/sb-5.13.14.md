@@ -1,5 +1,8 @@
 ### SB 5.13.14
 
+> तांस्तान्विपन्नान्स हि तत्र तत्र विहाय जातं परिगृह्य सार्थः
+> आवर्ततेऽद्यापि न कश्चिदत्र वीराध्वनः पारमुपैति योगम ॥१४॥
+
 > tāṁs tān vipannān sa hi tatra tatra
 > vihāya jātaṁ parigṛhya sārthaḥ
 > āvartate 'dyāpi na kaścid atra

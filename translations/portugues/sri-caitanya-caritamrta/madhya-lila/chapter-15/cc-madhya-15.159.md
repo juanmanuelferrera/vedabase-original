@@ -1,5 +1,7 @@
 ### CC Madhya 15.159
 
+> নিজ-গুণ শুনি’ দত্ত মনে লজ্জা পাঞা ৷ নিবেদন করে প্রভুর চরণে ধরিয়া ॥১৫৯॥
+
 nija-guṇa śuni' datta mane lajjā pāñā
 
 nivedana kare prabhura caraṇe dhariyā

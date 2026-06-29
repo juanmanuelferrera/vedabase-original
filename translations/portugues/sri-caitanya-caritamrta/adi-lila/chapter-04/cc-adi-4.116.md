@@ -1,5 +1,8 @@
 ### CC Adi 4.116
 
+> সোঽপি কৈশোরক-বয়ো মানয়ন্মধুসূদনঃ ।
+> রেমে স্ত্রীরত্নকূটস্থঃ ক্ষপাসু ক্ষপিতাহিতঃ ॥১১৬॥
+
 so 'pi kaiśoraka-vayo
 mānayan madhusūdanaḥ
 reme strī-ratna-kūṭa-sthaḥ

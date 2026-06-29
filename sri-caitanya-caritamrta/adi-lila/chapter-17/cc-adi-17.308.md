@@ -1,5 +1,8 @@
 ### CC Adi 17.308
 
+> অচিন্ত্যাঃ খলু যে ভাবা ন তাংস্তর্কেণ যোজয়েৎ ।
+> প্রকৃতিভ্যঃ পরং যচ্চ তদচিন্ত্যস্য লক্ষণম ॥৩০৮॥
+
 > acintyāḥ khalu ye bhāvā
 > na tāṁs tarkeṇa yojayet
 > prakṛtibhyaḥ paraṁ yac ca

@@ -1,5 +1,8 @@
 ### CC Madhya 25.72
 
+> প্রভু কহে, — ‘তুমি জগদ্গুরু পূজ্যতম ।
+> আমি তোমার না হই ‘শিষ্যের শিষ্য’ সম ॥৭২॥
+
 > prabhu kahe,-'tumi jagad-guru pūjyatama
 > āmi tomāra nā ha-i 'śiṣyera śiṣya' sama
 

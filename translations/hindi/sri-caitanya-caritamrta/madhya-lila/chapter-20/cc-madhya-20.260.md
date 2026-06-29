@@ -1,5 +1,8 @@
 ### CC Madhya 20.260
 
+> জড় হৈতে সৃষ্টি নহে ঈশ্বরশক্তি বিনে ।
+> তাহাতেই সঙ্কর্ষণ করে শক্তির আধানে ॥২৬০॥
+
 > jaḍa haite sṛṣṭi nahe īśvara-śakti vine
 > tāhātei saṅkarṣaṇa kare śaktira ādhāne
 

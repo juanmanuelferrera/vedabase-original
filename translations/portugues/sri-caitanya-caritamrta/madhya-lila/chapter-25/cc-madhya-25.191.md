@@ -1,5 +1,8 @@
 ### CC Madhya 25.191
 
+> রাজা কহে, — আমার পোষ্টা রায় হয় ‘পিতা’ ৷
+> তাহারে মারিমু আমি, — ভাল নহে কথা ৷৷ ১৯১ ৷৷ ॥১৯১॥
+
 rājā kahe,-āmāra poṣṭā rāya haya 'pitā'
 
 tāhāre mārimu āmi,-bhāla nahe kathā

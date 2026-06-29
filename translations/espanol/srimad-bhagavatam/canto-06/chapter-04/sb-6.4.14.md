@@ -1,5 +1,8 @@
 ### SB 6.4.14
 
+> यः समुत्पतितं देह आकाशान्मन्युमुल्बणम
+> आत्मजिज्ञआसया यच्छेत्स गुणानतिवर्तते ॥१४॥
+
 > yaḥ samutpatitaṁ deha
 > ākāśān manyum ulbaṇam
 > ātma-jijñāsayā yacchet

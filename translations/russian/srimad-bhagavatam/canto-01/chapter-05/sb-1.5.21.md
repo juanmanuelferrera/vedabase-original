@@ -1,5 +1,8 @@
 ### SB 1.5.21
 
+> त्वमात्मनात्मानमवेह्यमोघदृक्परस्य पुंसः परमात्मनः कलाम् ।
+> अजं प्रजातं जगतः शिवाय तन्महानुभावाभ्युदयोऽधिगण्यताम् ॥२१॥
+
 > tvam ātmanātmānam avehy amogha-dṛk
 > parasya puṁsaḥ paramātmanaḥ kalām
 > ajaṁ prajātaṁ jagataḥ śivāya tan

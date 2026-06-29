@@ -1,5 +1,8 @@
 ### CC Madhya 10.177
 
+> বিল্বমঙ্গল কৈল যৈছে দশা আপনার ৷
+> ইহাঁ দেখি’ সেই দশা হইল আমার ৷৷ ১৭৭ ৷৷ ॥১৭৭॥
+
 bilvamaṅgala kaila yaiche daśā āpanāra
 ihāṅ dekhi' sei daśā ha-ila āmāra
 

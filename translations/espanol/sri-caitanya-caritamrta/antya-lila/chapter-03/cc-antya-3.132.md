@@ -1,5 +1,8 @@
 ### CC Antya 3.132
 
+> “বেশ্যা হঞা মুঞি পাপ করিয়াছোঁ অপার ।
+> কৃপা করি’ কর মো-অধমে নিস্তার ।।” ॥ ১৩২ ॥
+
 > "veśyā hañā muñi pāpa kariyāchoṅ apāra
 > kṛpā kari' kara mo-adhame nistāra"
 

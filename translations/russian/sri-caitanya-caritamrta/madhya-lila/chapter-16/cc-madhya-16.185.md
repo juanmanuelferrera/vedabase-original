@@ -1,5 +1,8 @@
 ### CC Madhya 16.185
 
+> ইঁহার যে এই গতি, ইথে কি বিস্ময় ?
+> তোমার দর্শন-প্ৰভাব এইমত হয় ।।’ ॥ ১৮৫ ॥
+
 > iṅhāra ye ei gati, ithe ki vismaya?
 > tomāra darśana-prabhāva ei-mata haya'
 

@@ -1,5 +1,7 @@
 ### SB 5.6.7
 
+> तस्य ह वा एवं मुक्तलिङ्गस्य भगवत ऋषभस्य योगमायावासनया देह इमांजगतीमभिमानाभासेन सङ्क्रममाणः कोङ्कवेङ्ककुटकान्दक्षिणकर्णाटकान्देशान्यदृच्छयोपगतः कुटकाचलोपवन आस्य कृताश्मकवल उन्माद इव मुक्तमूर्धजोऽसंवीत एव विचचार ॥७॥
+
 > tasya ha vā evaṁ mukta-liṅgasya bhagavata ṛṣabhasya yogamāyā-vāsanayā deha imāṁ jagatīm abhimānābhāsena saṅkramamāṇaḥ koṅka-veṅka-kuṭakān dakṣiṇa-karṇāṭakān deśān yadṛcchayopagataḥ kuṭakācalopavana āsya kṛtāśma-kavala unmāda iva mukta-mūrdhajo 'saṁvīta eva vicacāra.
 
 *tasya*—de Él (el Señor Ṛṣabhadeva); *ha vā*—como si fuese; *evam*—así; *mukta-liṅgasya*—que no se identifica con los cuerpos denso y sutil; *bhagavataḥ*—de la Suprema Personalidad de Dios; *ṛṣabhasya*—del Señor Ṛṣabhadeva; *yoga-māyā-vāsanayā*—por obra de *yoga-māyā* en aras de los pasatiempos del Señor; *dehaḥ*—cuerpo; *imām*—esta; *jagatīm*—Tierra; *abhimāna-ābhāsena*—con el concepto aparente de tener un cuerpo de elementos materiales; *saṅkramamāṇaḥ*—viajar; *koṅka-veṅka-kuṭakān*—Koṅka, Veṅka y Kuṭaka; *dakṣiṇa*—en el sur de la India; *karṇāṭakān*—en la provincia de Karṇāṭa; *deśān*—todos los países; *yadṛcchayā*—por su propia voluntad; *upagataḥ*—llegó; *kuṭakācala-upavane*—a un bosque cercano a Kuṭakācala; *āsya*—en la boca; *kṛta-aśma-kavalaḥ*—llenar la boca de piedras; *unmādaḥ iva*—como un loco; *mukta-mūrdhajaḥ*—con el cabello despeinado; *asaṁvītaḥ*—desnudo; *eva*—así; *vicacāra*—viajó.

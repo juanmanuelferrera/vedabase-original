@@ -1,5 +1,8 @@
 ### CC Antya 1.88
 
+> প্রভু কহে, — “ইঁহো আমায় প্রয়াগে মিলিল ।
+> যোগ্যপাত্র জানি ইঁহায় মোর কৃপা ত’ হইল ॥৮৮॥
+
 > prabhu kahe,--"iṅho āmāya prayāge milila
 > yogya-pātra jāni iṅhāya mora kṛpā ta' ha-ila
 

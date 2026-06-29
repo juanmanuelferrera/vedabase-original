@@ -1,5 +1,8 @@
 ### CC Madhya 10.104
 
+> প্রভুর সন্ন্যাস দেখি’ উন্মত্ত হঞা ।
+> সন্ন্যাস গ্রহণ কৈল বারাণসী গিয়া ॥১০৪॥
+
 > prabhura sannyāsa dekhi' unmatta hañā
 > sannyāsa grahaṇa kaila vārāṇasī giyā
 

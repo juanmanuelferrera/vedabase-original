@@ -1,5 +1,8 @@
 ### CC Madhya 6.133
 
+> উপনিষদ্-শব্দে যেই মুখ্য অর্থ হয় ।
+> সেই অর্থ মুখ্য, — ব্যাসসূত্রে সব কয় ॥১৩৩॥
+
 > upaniṣad-śabde yei mukhya artha haya
 > sei artha mukhya,—vyāsa-sūtre saba kaya
 

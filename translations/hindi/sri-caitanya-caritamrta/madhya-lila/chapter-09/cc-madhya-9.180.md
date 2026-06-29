@@ -1,5 +1,8 @@
 ### CC Madhya 9.180
 
+> কৃতমালায় স্নান করি’ আইলা তাঁর ঘরে ।
+> ভিক্ষা কি দিবেন বিপ্র, — পাক নাহি করে ॥১৮০॥
+
 > kṛtamālāya snāna kari' āilā tāṅra ghare
 > bhikṣā ki dibena vipra,--pāka nāhi kare
 

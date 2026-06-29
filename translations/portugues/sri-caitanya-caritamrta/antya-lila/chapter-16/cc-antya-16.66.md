@@ -1,5 +1,8 @@
 ### CC Antya 16.66
 
+> পুত্র সঙ্গে লঞা তেঁহো আইলা প্রভু-স্থানে ।
+> পুত্রেরে করাইলা প্রভুর চরণ বন্দনে ॥৬৬॥
+
 putra saṅge lañā teṅho āilā prabhu-sthāne
 
 putrere karāilā prabhura caraṇa vandane

@@ -1,5 +1,8 @@
 ### CC Adi 4.46
 
+> অতএব মধুর রস কহি তার নাম ।
+> স্বকীয়া-পরকীয়া-ভাবে দ্বিবিধ সংস্থান ॥৪৬॥
+
 ataeva madhura rasa kahi tara nāma
 svakīyā-parakīyā-bhāve dvi-vidha saṁsthāna
 

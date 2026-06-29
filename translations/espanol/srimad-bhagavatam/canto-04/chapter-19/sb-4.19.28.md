@@ -1,5 +1,8 @@
 ### SB 4.19.28
 
+> वयं मरुत्वन्तमिहार्थनाशनं ह्वयामहे त्वच्छ्रवसा हतत्विषम् ।
+> अयातयामोपहवैरनन्तरं प्रसह्य राजन्जुहवाम तेऽहितम् ॥२८॥
+
 > vayaṁ marutvantam ihārtha-nāśanaṁ
 > hvayāmahe tvac-chravasā hata-tviṣam
 > ayātayāmopahavair anantaraṁ

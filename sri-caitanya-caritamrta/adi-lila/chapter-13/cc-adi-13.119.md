@@ -1,5 +1,10 @@
 ### CC Adi 13.119
 
+> ঐছে শচী-জগন্নাথ, পুত্র পাঞা লক্ষ্মীনাথ,
+> পূর্ণ হইল সকল বাঞ্ছিত ।
+> ধন-ধান্যে ভরে ঘর, লোকমান্য কলেবর,
+> দিনে দিনে হয় আনন্দিত ॥১১৯॥
+
 > aiche śacī-jagannātha, putra pāñā lakṣmīnātha,
 > pūrṇa ha-ila sakala vāñchita
 > dhana-dhānye bhare ghara, lokamānya kalevara,

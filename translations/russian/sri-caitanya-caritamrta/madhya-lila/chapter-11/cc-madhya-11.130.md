@@ -1,5 +1,8 @@
 ### CC Madhya 11.130
 
+> একে একে সর্বভক্তে কৈল সম্ভাষণ ।
+> সবা লঞা অভ্যন্তরে করিলা গমন ॥১৩০॥
+
 > eke eke sarva-bhakte kaila sambhāṣaṇa
 > sabā lañā abhyantare karilā gamana
 

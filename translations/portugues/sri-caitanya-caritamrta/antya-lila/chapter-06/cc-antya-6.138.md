@@ -1,5 +1,8 @@
 ### CC Antya 6.138
 
+> তবে রঘুনাথে প্রভু নিকটে বোলাইলা  ।
+> তাঁর মাথে পদ ধরি’ কহিতে লাগিলা ॥১৩৮॥
+
 tabe raghunāthe prabhu nikaṭe bolāila
 
 tāṅra māthe pada dhari' kahite lāgilā

@@ -1,5 +1,8 @@
 ### CC Madhya 5.14
 
+> কেশীতীর্থ, কালীয়-হ্রদাদিকে কৈল স্নান ।
+> শ্রীগোপাল দেখি’ তাহাঁ করিলা বিশ্রাম ॥১৪॥
+
 keśī-tīrtha, kālīya-hradādike kaila snāna
 śrī-gopāla dekhi' tāhāṅ karilā viśrāma
 

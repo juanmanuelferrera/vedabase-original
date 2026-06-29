@@ -1,5 +1,8 @@
 ### CC Madhya 5.86
 
+> এত শুনি’ নাস্তিক লোক উপহাস করে ।
+> কেহ বলে, ঈশ্বর — দয়ালু, আসিতেই পারে ॥৮৬॥
+
 eta śuni' nāstika loka upahāsa kare
 
 keha bale, īśvara--dayālu, āsiteha pāre

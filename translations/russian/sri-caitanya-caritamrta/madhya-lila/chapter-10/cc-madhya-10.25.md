@@ -1,5 +1,8 @@
 ### CC Madhya 10.25
 
+> সর্বলোকের উৎকণ্ঠা যবে অত্যন্ত বাড়িল ।
+> মহাপ্রভু দক্ষিণ হৈতে তবহি আইল ॥২৫॥
+
 > sarva-lokera utkaṇṭhā yabe atyanta bāḍila
 > mahāprabhu dakṣiṇa haite tabahi āila
 

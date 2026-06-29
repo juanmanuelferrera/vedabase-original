@@ -1,5 +1,8 @@
 ### CC Antya 20.13
 
+> সঙ্কীর্তন হৈতে পাপ-সংসার-নাশন ।
+> চিত্তশুদ্ধি, সর্বভক্তিসাধন-উদ্গম ॥১৩॥
+
 saṅkīrtana haite pāpa-saṁsāra-nāśana
 citta-śuddhi, sarva-bhakti-sādhana-udgama
 

@@ -1,5 +1,8 @@
 ### CC Madhya 11.126
 
+> হেনকালে মহাপ্রভু নিজগণ-সঙ্গে ।
+> বৈষ্ণবে মিলিলা আসি’ পথে বহুরঙ্গে ॥১২৬॥
+
 > hena-kāle mahāprabhu nija-gaṇa-saṅge
 > vaiṣṇave mililā āsi' pathe bahu-raṅge
 

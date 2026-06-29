@@ -1,5 +1,8 @@
 ### CC Adi 12.28
 
+> ‘কমলাকান্ত বিশ্বাস’ — নাম আচার্যকিঙ্কর ।
+> আচার্য-ব্যবহার সব — তাঁহার গোচর ॥২৮॥
+
 'kamalākānta viśvāsa'-nāma ācārya-kiṅkara
 
 ācārya-vyavahāra saba--tāṅhāra gocara

@@ -1,5 +1,8 @@
 ### SB 3.14.28
 
+> हसन्ति यस्याचरितं हि दुर्भगाः स्वात्मन्रतस्याविदुषः समीहितम् ।
+> यैर्वस्त्रमाल्याभरणानुलेपनैः श्वभोजनं स्वात्मतयोपलालितम् ॥२८॥
+
 > hasanti yasyācaritaṁ hi durbhagāḥ
 > svātman-ratasyāviduṣaḥ samīhitam
 > yair vastra-mālyābharaṇānulepanaiḥ

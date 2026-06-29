@@ -1,5 +1,8 @@
 ### CC Madhya 25.103
 
+> “আমি — ‘সম্বন্ধ’-তত্ত্ব, আমার জ্ঞানংবিজ্ঞান ।
+> আমা পাইতে সাধন-ভক্তি ‘অভিধেয়’-নাম ॥১০৩॥
+
 > "āmi-'sambandha'-tattva, āmāra jñāna-vijñāna
 > āmā pāite sādhana-bhakti 'abhidheya'-nāma
 

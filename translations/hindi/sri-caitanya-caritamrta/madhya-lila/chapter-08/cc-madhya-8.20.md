@@ -1,5 +1,8 @@
 ### CC Madhya 8.20
 
+> উঠি’ প্রভু কহে, — উঠ, কহ ‘কৃষ্ণ’ ‘কৃষ্ণ’ ।
+> তারে আলিঙ্গিতে প্রভুর হৃদয় সতৃষ্ণ ॥২০॥
+
 > uṭhi' prabhu kahe,--ūṭha, kaha 'kṛṣṇa' 'kṛṣṇa'
 > tāre āliṅgite prabhura hṛdaya satṛṣṇa
 

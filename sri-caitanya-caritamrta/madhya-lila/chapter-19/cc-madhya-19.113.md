@@ -1,5 +1,8 @@
 ### CC Madhya 19.113
 
+> গঙ্গা-পথে মহাপ্ৰভুরে নৌকাতে বসাঞা ।
+> প্রয়াগে আইলা ভট্ট গোসাঞিরে লইয়া ॥১১৩॥
+
 > gaṅgā-pathe mahāprabhure naukāte vasāñā
 > prayāge āilā bhaṭṭa gosāñire lañā
 

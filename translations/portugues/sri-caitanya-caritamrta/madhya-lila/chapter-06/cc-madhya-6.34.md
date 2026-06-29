@@ -1,5 +1,8 @@
 ### CC Madhya 6.34
 
+> জগন্নাথ দেখি’ সবার হইল আনন্দ ।
+> ভাবেতে আবিষ্ট হৈলা প্রভু নিত্যানন্দ ॥৩৪॥
+
 jagannātha dekhi' sabāra ha-ila ānanda
 
 bhāvete āviṣṭa hailā prabhu nityānanda

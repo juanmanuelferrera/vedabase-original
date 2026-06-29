@@ -1,5 +1,8 @@
 ### CC Antya 10.103
 
+> এইমত মহাপ্রভু লঞা নিজগণ ।
+> গুণ্ডিচা-গৃহের কৈলা ক্ষালন, মার্জন ॥১০৩॥
+
 ei-mata mahāprabhu lañā nija-gaṇa
 
 guṇḍicā-gṛhera kailā kṣālana, mārjana

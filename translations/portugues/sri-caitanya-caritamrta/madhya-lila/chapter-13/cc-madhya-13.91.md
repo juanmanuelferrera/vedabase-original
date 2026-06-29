@@ -1,5 +1,8 @@
 ### CC Madhya 13.91
 
+> হরিচন্দনের স্কন্ধে হস্ত আলম্বিয়া ।
+> প্ৰভুর নৃত্য দেখে রাজা আবিষ্ট হঞা ॥৯১॥
+
 haricandanera skandhe hasta ālambiyā
 
 prabhura nṛtya dekhe rājā āviṣṭa hañā

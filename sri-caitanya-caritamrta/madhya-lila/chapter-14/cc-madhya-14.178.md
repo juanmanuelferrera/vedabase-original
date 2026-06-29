@@ -1,5 +1,8 @@
 ### CC Madhya 14.178
 
+> দধি, খণ্ড, ঘৃত, মধু, মরীচ, কর্পূর ।
+> এলাচি-মিলনে যৈছে রসালা মধুর ॥১৭৮॥
+
 > dadhi, khaṇḍa, ghṛta, madhu, marīca, karpūra
 > elāci-milane yaiche rasālā madhura
 

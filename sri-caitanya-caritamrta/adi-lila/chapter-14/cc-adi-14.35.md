@@ -1,5 +1,8 @@
 ### CC Adi 14.35
 
+> এত বলি’ জননীর কোলেতে চড়িয়া ।
+> স্তন পান করে প্রভু ঈষৎ হাসিয়া ॥৩৫॥
+
 > eta bali' jananīra kolete caḍiyā
 > stana pāna kare prabhu īṣat hāsiyā
 

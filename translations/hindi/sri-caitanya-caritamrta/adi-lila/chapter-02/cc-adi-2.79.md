@@ -1,5 +1,8 @@
 ### CC Adi 2.79
 
+> তৈছে ইঁহ অবতার সব হৈল জ্ঞাত ।
+> কার অবতার? — এই বস্তু অবিজ্ঞাত ॥৭৯॥
+
 > taiche iṅha avatāra saba haila jñāta
 > kāra avatāra?—ei vastu avijñāta
 

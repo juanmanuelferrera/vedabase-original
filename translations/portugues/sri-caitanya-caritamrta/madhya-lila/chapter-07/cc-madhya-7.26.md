@@ -1,5 +1,8 @@
 ### CC Madhya 7.26
 
+> ইঁহার আগে আমি না জানি ব্যবহার ৷
+> ইঁহারে না ভায় স্বতন্ত্র চরিত্র আমার ৷৷ ২৬ ৷৷ ॥২৬॥
+
 iṅhāra āge āmi nā jāni vyavahāra
 
 iṅhāre nā bhāya svatantra caritra āmāra

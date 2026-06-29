@@ -1,5 +1,8 @@
 ### CC Adi 14.66
 
+> প্রভু কহে, — ‘আমা’ পূজ, আমি মহেশ্বর ।
+> আমারে পূজিলে পাবে অভীপ্সিত বর ।।’ ॥ ৬৬ ॥
+
 > prabhu kahe, 'āmā' pūja, āmi maheśvara
 > āmāre pūjile pābe abhīpsita vara'
 

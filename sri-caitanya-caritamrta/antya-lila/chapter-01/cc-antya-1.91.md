@@ -1,5 +1,7 @@
 ### CC Antya 1.91
 
+> “ফলেন ফলকারণমনুমীয়তে ॥৯১॥
+
 > phalena phala-kāraṇam anumīyate
 
 *phalena*—by the result; *phala-kāraṇam*—the origin of the result; *anumīyate*—one can guess.

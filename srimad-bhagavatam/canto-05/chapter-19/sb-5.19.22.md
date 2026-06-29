@@ -1,5 +1,8 @@
 ### SB 5.19.22
 
+> किं दुष्करैर्नः क्रतुभिस्तपोव्रतैर्दानादिभिर्वा द्युजयेन फल्गुना
+> न यत्र नारायणपादपङ्कज स्मृतिः प्रमुष्टातिशयेन्द्रियोत्सवात ॥२२॥
+
 > kiṁ duṣkarair naḥ kratubhis tapo-vratair
 > dānādibhir vā dyujayena phalgunā
 > na yatra nārāyaṇa-pāda-paṅkaja-

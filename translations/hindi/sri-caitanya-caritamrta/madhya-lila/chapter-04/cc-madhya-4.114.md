@@ -1,5 +1,8 @@
 ### CC Madhya 4.114
 
+> সেবার সৌষ্ঠব দেখি’ আনন্দিত মনে ।
+> উত্তম ভোগ লাগে — এথা বুঝি অনুমানে ॥১১৪॥
+
 > sevāra sauṣṭhava dekhi' ānandita mane
 > uttama bhoga lāge--ethā bujhi anumāne
 

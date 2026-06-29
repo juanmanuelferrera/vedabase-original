@@ -1,5 +1,8 @@
 ### SB 3.29.43
 
+> नभो ददाति श्वसतां पदं यन्नियमाददः ।
+> लोकं स्वदेहं तनुते महान्सप्तभिरावृतम् ॥४३॥
+
 > nabho dadāti śvasatāṁ
 > padaṁ yan-niyamād adaḥ
 > lokaṁ sva-dehaṁ tanute

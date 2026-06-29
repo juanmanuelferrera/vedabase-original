@@ -1,5 +1,8 @@
 ### CC Antya 6.47
 
+> শুনি’ প্রভু কহে, — “চোরা দিলি দরশন ।
+> আয়, আয়, আজি তোর করিমু দণ্ডন ।।” ॥ ৪৭ ॥
+
 > śuni' prabhu kahe,--"corā dili daraśana
 > āya, āya, āji tora karimu daṇḍana"
 

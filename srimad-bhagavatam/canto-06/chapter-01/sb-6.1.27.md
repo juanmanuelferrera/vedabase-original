@@ -1,5 +1,8 @@
 ### SB 6.1.27
 
+> स एवं वर्तमानोऽज्ञओ मृत्युकाल उपस्थिते
+> मतिं चकार तनये बाले नारायणाह्वये ॥२७॥
+
 > sa evaṁ vartamāno 'jño
 > mṛtyu-kāla upasthite
 > matiṁ cakāra tanaye

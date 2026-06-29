@@ -1,5 +1,8 @@
 ### CC Madhya 10.18
 
+> পুনরপি ইহাঁ তাঁর হৈলে আগমন ৷
+> একবার দেখি’ করি সফল নয়ন ৷৷ ১৮ ৷৷ ॥১৮॥
+
 punarapi ihāṅ tāṅra haile āgamana
 
 eka-bāra dekhi' kari saphala nayana

@@ -1,5 +1,8 @@
 ### CC Madhya 25.27
 
+> আচার্য-কল্পিত অর্থ যে পণ্ডিত শুনে ।
+> মুখে ‘হয়’ ‘হয়’ করে, হৃদয় না মানে ॥২৭॥
+
 > ācārya-kalpita artha ye paṇḍita śune
 > mukhe 'haya' 'haya' kare, hṛdaya nā māne
 

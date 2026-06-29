@@ -1,5 +1,8 @@
 ### CC Madhya 4.60
 
+> অমঙ্গলা দূর করি’ করাইল স্নান ।
+> বহু তৈল দিয়া কৈল শ্রীঅঙ্গ চিক্কণ ॥৬০॥
+
 > amaṅgalā dūra kari' karāila snāna
 > bahu taila diyā kaila śrī-aṅga cikkaṇa
 

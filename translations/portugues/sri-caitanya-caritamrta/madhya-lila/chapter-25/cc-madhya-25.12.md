@@ -1,5 +1,8 @@
 ### CC Madhya 25.12
 
+> হেনকালে নিন্দা শুনি’ শেখর, তপন ।
+> দুঃখ পাঞা প্রভু-পদে কৈলা নিবেদন ॥১২॥
+
 hena-kāle nindā śuni' śekhara, tapana
 duḥkha pāñā prabhu-pade kailā nivedana
 

@@ -1,5 +1,8 @@
 ### CC Adi 16.77
 
+> ‘শ্রীযুক্ত লক্ষ্মী’ অর্থে অর্থের বিভেদ ।
+> পুনরুক্তবদাভাস, শব্দালঙ্কার ভেদ ॥৭৭॥
+
 > 'śrī-yukta lakṣmī' arthe arthera vibheda
 > punar-uktavad-ābhāsa, śabdālaṅkāra-bheda
 

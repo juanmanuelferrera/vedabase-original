@@ -1,5 +1,8 @@
 ### CC Madhya 12.3
 
+> জয় জয় শ্রীবাসাদি গৌরভক্তগণ ।
+> শক্তি দেহ, — করি যেন চৈতন্য বর্ণন ॥৩॥
+
 > jaya jaya śrīvāsādi gaura-bhakta-gaṇa
 > śakti deha,-kari yena caitanya varṇana
 

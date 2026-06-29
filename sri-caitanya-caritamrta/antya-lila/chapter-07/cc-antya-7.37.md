@@ -1,5 +1,8 @@
 ### CC Antya 7.37
 
+> কহন না যায় রামানন্দের প্রভাব ।
+> রায়-প্রসাদে জানিলুঁ ব্রজের ‘শুদ্ধ’ ভাব ॥৩৭॥
+
 > kahana nā yāya rāmānandera prabhāva
 > rāya-prasāde jāniluṅ vrajera 'śuddha' bhāva
 

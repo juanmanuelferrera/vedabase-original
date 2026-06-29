@@ -1,5 +1,8 @@
 ### CC Antya 18.81
 
+> রাধিকাদি গোপীগণ-সঙ্গে একত্র মেলি’ ।
+> যমুনার জলে মহারঙ্গে করেন কেলি ॥৮১॥
+
 rādhikādi gopī-gaṇa-saṅge ekatra meli'
 
 yamunāra jale mahā-raṅge karena keli

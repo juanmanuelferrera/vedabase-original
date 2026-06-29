@@ -1,5 +1,8 @@
 ### SB 9.1.14
 
+> तत्र श्रद्धा मनोः पत्नी होतारं समयाचत
+> दुहित्रर्थमुपागम्य प्रणिपत्य पयोव्रता ॥१४॥
+
 > tatra śraddhā manoḥ patnī
 > hotāraṁ samayācata
 > duhitrartham upāgamya

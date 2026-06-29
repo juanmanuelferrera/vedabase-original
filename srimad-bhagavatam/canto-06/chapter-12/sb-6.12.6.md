@@ -1,5 +1,8 @@
 ### SB 6.12.6
 
+> इन्द्रो न वज्रं जगृहे विलज्जितश्च्युतं स्वहस्तादरिसन्निधौ पुनः
+> तमाह वृत्रो हर आत्तवज्रो जहि स्वशत्रुं न विषादकालः ॥६॥
+
 > indro na vajraṁ jagṛhe vilajjitaś
 > cyutaṁ sva-hastād ari-sannidhau punaḥ
 > tam āha vṛtro hara ātta-vajro

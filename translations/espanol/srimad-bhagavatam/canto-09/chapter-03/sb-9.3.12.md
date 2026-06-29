@@ -1,5 +1,8 @@
 ### SB 9.3.12
 
+> ग्रहं ग्रहीष्ये सोमस्य यज्ञए वामप्यसोमपोः
+> क्रियतां मे वयोरूपं प्रमदानां यदीप्सितम ॥१२॥
+
 > grahaṁ grahīṣye somasya
 > yajñe vām apy asoma-poḥ
 > kriyatāṁ me vayo-rūpaṁ

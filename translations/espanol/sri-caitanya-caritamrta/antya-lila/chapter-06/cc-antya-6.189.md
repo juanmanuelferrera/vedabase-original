@@ -1,5 +1,8 @@
 ### CC Antya 6.189
 
+> স্বরূপাদি-সহ গোসাঞি আছেন বসিয়া ।
+> হেনকালে রঘুনাথ মিলিল আসিয়া ॥১৮৯॥
+
 > svarūpādi-saha gosāñi āchena vasiyā
 > hena-kāle raghunātha milila āsiyā
 

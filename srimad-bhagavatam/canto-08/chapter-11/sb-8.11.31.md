@@ -1,5 +1,8 @@
 ### SB 8.11.31
 
+> तदापतद्गगनतले महाजवं विचिच्छिदे हरिरिषुभिः सहस्रधा
+> तमाहनन्नृप कुलिशेन कन्धरे रुषान्वितस्त्रिदशपतिः शिरो हरन ॥३१॥
+
 > tadāpatad gagana-tale mahā-javaṁ
 > vicicchide harir iṣubhiḥ sahasradhā
 > tam āhanan nṛpa kuliśena kandhare

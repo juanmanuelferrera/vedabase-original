@@ -1,5 +1,8 @@
 ### CC Antya 3.20
 
+> এতেক বিচারি’ প্রভু মধ্যাহ্নে চলিলা  ।
+> আর দিনে দামোদরে নিভৃতে বোলাইলা ॥২০॥
+
 eteka vicāri' prabhu madhyāhne calilā
 
 āra dine dāmodare nibhṛte bolāilā

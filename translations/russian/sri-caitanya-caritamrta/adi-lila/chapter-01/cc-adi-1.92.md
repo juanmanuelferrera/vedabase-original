@@ -1,5 +1,8 @@
 ### CC Adi 1.92
 
+> তার মধ্যে মোক্ষবাঞ্ছা কৈতবপ্রধান ।
+> যাহা হৈতে কৃষ্ণভক্তি হয় অন্তর্ধান ॥৯২॥
+
 > tāra madhye mokṣa-vāñchā kaitava-pradhāna
 > yāhā haite kṛṣṇa-bhakti haya antardhāna
 

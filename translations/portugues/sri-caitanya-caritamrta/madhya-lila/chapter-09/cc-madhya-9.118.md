@@ -1,5 +1,8 @@
 ### CC Madhya 9.118
 
+> কৃষ্ণসঙ্গে পতিব্রতা-ধর্ম নহে নাশ ৷
+> অধিক লাভ পাইয়ে, আর রাসবিলাস ৷৷ ১১৮ ৷৷ ॥১১৮॥
+
 kṛṣṇa-saṅge pativratā-dharma nahe nāśa
 adhika lābha pāiye, āra rāsa-vilāsa
 

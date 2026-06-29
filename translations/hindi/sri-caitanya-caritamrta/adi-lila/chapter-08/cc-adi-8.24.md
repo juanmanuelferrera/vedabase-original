@@ -1,5 +1,8 @@
 ### CC Adi 8.24
 
+> ‘কৃষ্ণনাম’ করে অপরাধের বিচার ।
+> কৃষ্ণ বলিলে অপরাধীর না হয় বিকার ॥২৪॥
+
 > 'kṛṣṇa-nāma' kare aparādhera vicāra
 > kṛṣṇa balile aparādhīra nā haya vikāra
 

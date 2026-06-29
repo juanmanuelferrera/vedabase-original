@@ -1,5 +1,8 @@
 ### CC Madhya 4.179
 
+> পরম বিরক্ত, মৌনী, সর্বত্র উদাসীন ৷
+> গ্রাম্যবার্তা-ভয়ে দ্বিতীয়-সঙ্গ-হীন ॥১৭৯॥
+
 > parama virakta, maunī, sarvatra udāsīna
 > grāmya-vārtā-bhaye dvitīya-saṅga-hīna
 

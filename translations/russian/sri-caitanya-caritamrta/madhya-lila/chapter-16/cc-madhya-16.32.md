@@ -1,5 +1,8 @@
 ### CC Madhya 16.32
 
+> মাধবপুরীর কথা, গোপাল-স্থাপন  ।
+> তাঁহারে গোপাল যৈছে মাগিল চন্দন ॥৩২॥
+
 > mādhava-purīra kathā, gopāla-sthāpana
 > tāṅhāre gopāla yaiche māgila candana
 

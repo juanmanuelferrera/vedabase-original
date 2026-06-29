@@ -1,5 +1,7 @@
 ### SB 5.1.26
 
+> एतेषां कविर्महावीरः सवन इति त्रय आसन्नूर्ध्वरेतसस्त आत्मविद्यायामर्भभावादारभ्य कृतपरिचयाः पारमहंस्यमेवाश्रममभजन ॥२६॥
+
 > eteṣāṁ kavir mahāvīraḥ savana iti traya āsann ūrdhva-retasas ta ātma-vidyāyām arbha-bhāvād ārabhya kṛta-paricayāḥ pāramahaṁsyam evāśramam abhajan.
 
 *eteṣām*—of these; *kaviḥ*—Kavi; *mahāvīraḥ*—Mahāvīra; *savanaḥ*—Savana; *iti*—thus; *trayaḥ*—three; *āsan*—were; *ūrdhva-retasaḥ*—completely celibate; *te*—they; *ātma-vidyāyām*—in transcendental knowledge; *arbha-bhāvāt*—from childhood; *ārabhya*—beginning; *kṛta-paricayāḥ*—very well versed; *pāramahaṁsyam*—of the highest spiritual perfection of human life; *eva*—certainly; *āśramam*—the order; *abhajan*—executed.

@@ -1,5 +1,7 @@
 ### SB 5.17.7
 
+> एवं माल्यवच्छिखरान्निष्पतन्ती ततोऽनुपरतवेगा केतुमालमभि चक्षुः प्रतीच्यां दिशि सरितपतिं प्रविशति ॥७॥
+
 > evaṁ mālyavac-chikharān niṣpatantī tato 'nuparata-vegā ketumālam abhi cakṣuḥ pratīcyāṁ diśi sarit-patiṁ praviśati.
 
 *evam*—de este modo; *mālyavat-śikharāt*—de la cumbre de la montaña Mālyavān; *niṣpatantī*—caer; *tataḥ*—a continuación; *anuparata-vegā*—cuya fuerza no se ve interrumpida; *ketumālam abhi*—a la región denominada Ketumāla-varṣa; *cakṣuḥ*—la rama que recibe el nombre de Cakṣu; *pratīcyām*—en el oeste; *diśi*—dirección; *sarit-patim*—el océano; *praviśati*—entra en.

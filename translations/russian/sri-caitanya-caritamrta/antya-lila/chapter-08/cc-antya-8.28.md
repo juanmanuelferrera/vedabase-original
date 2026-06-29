@@ -1,5 +1,8 @@
 ### CC Antya 8.28
 
+> ঈশ্বরপুরী গোসাঞি করে শ্রীপাদ-সেবন ।
+> স্বহস্তে করেন মলমূত্রাদি মার্জন ॥২৮॥
+
 > īśvara-purī gosāñi kare śrī-pāda-sevana
 > svahaste karena mala-mūtrādi mārjana
 

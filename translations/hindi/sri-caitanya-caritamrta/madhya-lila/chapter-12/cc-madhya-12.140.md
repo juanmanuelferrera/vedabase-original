@@ -1,5 +1,8 @@
 ### CC Madhya 12.140
 
+> মহা-উচ্চসংকীর্তনে আকাশ ভরিল ।
+> প্রভুর উদ্দণ্ড-নৃত্যে ভূমিকম্প হৈল ॥১৪০॥
+
 > mahā-ucca-saṅkīrtane ākāśa bharila
 > prabhura uddaṇḍa-nṛtye bhūmi-kampa haila
 

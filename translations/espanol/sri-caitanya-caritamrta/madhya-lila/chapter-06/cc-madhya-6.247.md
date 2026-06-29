@@ -1,5 +1,8 @@
 ### CC Madhya 6.247
 
+> বিনয় শুনি’ তুষ্ট্যে প্রভু কৈল আলিঙ্গন ।
+> কহিল, — যাঞা করহ ঈশ্বর দরশন ॥২৪৭॥
+
 > vinaya śuni' tuṣṭye prabhu kaila āliṅgana
 > kahila,--yāñā karaha īśvara daraśana
 

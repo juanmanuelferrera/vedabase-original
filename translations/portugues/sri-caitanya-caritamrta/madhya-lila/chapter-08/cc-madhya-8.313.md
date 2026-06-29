@@ -1,5 +1,8 @@
 ### CC Madhya 8.313
 
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ৷
+> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ৷৷ ৩১৩ ৷৷ ॥৩১৩॥
+
 śrī-rūpa-raghunātha-pade yāra āśa
 caitanya-caritāmṛta kahe kṛṣṇadāsa
 

@@ -1,5 +1,8 @@
 ### CC Antya 1.100
 
+> শ্লোক শুনি’ হরিদাস হইলা উল্লাসী ।
+> নাচিতে লাগিলা শ্লোকের অর্থ প্রশংসি’ ॥১০০॥
+
 > śloka śuni haridāsa ha-ila ullāsī
 > nācite lāgilā ślokera artha praśaṁsi'
 

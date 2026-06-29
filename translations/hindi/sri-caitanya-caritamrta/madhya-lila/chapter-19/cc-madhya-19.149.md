@@ -1,5 +1,8 @@
 ### CC Madhya 19.149
 
+> কৃষ্ণভক্ত — নিষ্কাম, অতএব ‘শান্ত’ ।
+> ভুক্তি-মুক্তি-সিদ্ধি — কামী সকলি ‘অশান্ত’ ॥১৪৯॥
+
 > kṛṣṇa-bhakta--niṣkāma, ataeva 'śānta'
 > bhukti-mukti-siddhi-kāmī--sakali 'aśānta'
 

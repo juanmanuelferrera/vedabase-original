@@ -1,5 +1,8 @@
 ### CC Madhya 24.325
 
+> মুঞি — নীচ-জাতি, কিছু না জানোঁ আচার  ।
+> মো-হৈতে কৈছে হয় স্মৃতি-পরচার ॥৩২৫॥
+
 muñi--nīca-jāti, kichu nā jānoṅ ācāra
 
 mo-haite kaiche haya smṛti-paracāra

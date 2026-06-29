@@ -1,5 +1,8 @@
 ### CC Madhya 21.136
 
+> মধুরং মধুরং বপুরস্য বিভোর্মধুরং মধুরং বদনং মধুরম্ ।
+> মধুগন্ধি মৃদুস্মিতমেতদহো মধুরং মধুরং মধুরং মধুরম্ ॥১৩৬॥
+
 madhuraṁ madhuraṁ vapur asya vibhor
 
 madhuraṁ madhuraṁ vadanaṁ madhuram

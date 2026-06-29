@@ -1,5 +1,8 @@
 ### CC Madhya 18.35
 
+> ‘গোবিন্দকুণ্ডাদি’ তীর্থে প্রভু কৈলা স্নান ।
+> তাহাঁ শুনিলা — গোপাল গেল গাঁঠুলি গ্রাম ॥৩৫॥
+
 > 'govinda-kuṇḍādi' tīrthe prabhu kailā snāna
 > tāhāṅ śunilā—gopāla gela gāṅṭhuli grāma
 

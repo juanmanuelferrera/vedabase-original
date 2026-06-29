@@ -1,5 +1,8 @@
 ### CC Madhya 17.221
 
+> প্রভু-কর্ণে কৃষ্ণনাম কহে উচ্চ করি’ ।
+> চেতন পাঞা প্রভু যা’ন গড়াগড়ি ॥২২১॥
+
 > prabhu-karṇe kṛṣṇa-nāma kahe ucca kari'
 > cetana pāñā prabhu yā'na gaḍāgaḍi
 

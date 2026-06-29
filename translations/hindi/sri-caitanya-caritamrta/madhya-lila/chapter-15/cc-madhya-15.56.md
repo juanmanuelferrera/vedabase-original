@@ -1,5 +1,8 @@
 ### CC Madhya 15.56
 
+> প্রসাদ লঞা কোলে করেন ক্রন্দন ।
+> নিমাইর প্রিয় মোর — এসব ব্যঞ্জন ॥৫৬॥
+
 > prasāda lañā kole karena krandana
 > nimāira priya mora--e-saba vyañjana
 

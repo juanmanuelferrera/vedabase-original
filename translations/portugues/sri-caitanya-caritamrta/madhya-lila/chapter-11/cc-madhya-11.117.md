@@ -1,5 +1,8 @@
 ### CC Madhya 11.117
 
+> যাঁরে কৃপা করি’ করেন হৃদয়ে প্রেরণ ৷
+> কৃষ্ণাশ্রয় হয়, ছাড়ে বেদ-লোক-ধর্ম ৷৷ ১১৭ ৷৷ ॥১১৭॥
+
 yāṅre kṛpā kari' karena hṛdaye preraṇa
 kṛṣṇāśraya haya, chāḍe veda-loka-dharma
 

@@ -1,5 +1,8 @@
 ### CC Madhya 1.204
 
+> আপনে অযোগ্য দেখি’ মনে পাঙ ক্ষোভ ।
+> তথাপি তোমার গুণে উপজয় লোভ ॥২০৪॥
+
 > āpane ayogya dekhi' mane pāṅ kṣobha
 > tathāpi tomāra guṇe upajaya lobha
 

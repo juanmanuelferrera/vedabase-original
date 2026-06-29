@@ -1,5 +1,8 @@
 ### CC Adi 6.44
 
+> কৃষ্ণদাস-অভিমানে যে আনন্দসিন্ধু ।
+> কোটী-ব্রহ্মসুখ নহে তার এক বিন্দু ॥৪৪॥
+
 kṛṣṇa-dāsa-abhimāne ye ānanda-sindhu
 koṭī-brahma-sukha nahe tāra eka bindu
 

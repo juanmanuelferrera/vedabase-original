@@ -1,5 +1,8 @@
 ### CC Adi 6.13
 
+> কোটি অংশ, কোটি শক্তি, কোটি অবতার ।
+> এত লঞা সৃজে পুরুষ সকল সংসার ॥১৩॥
+
 > koṭi aṁśa, koṭi śakti, koṭi avatāra
 > eta lañā sṛje puruṣa sakala saṁsāra
 

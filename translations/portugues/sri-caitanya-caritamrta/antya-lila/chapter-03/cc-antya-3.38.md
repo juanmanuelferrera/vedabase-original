@@ -1,5 +1,8 @@
 ### CC Antya 3.38
 
+> এইমত বার বার করিয়ে ভোজন  ।
+> তোমার শুদ্ধপ্রেমে মোরে করে আকর্ষণ ॥৩৮॥
+
 ei-mata bāra bāra kariye bhojana
 
 tomāra śuddha-preme more kare ākarṣaṇa

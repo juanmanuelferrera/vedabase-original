@@ -1,5 +1,7 @@
 ### SB 5.16.10
 
+> तथैवेलावृतमपरेण पूर्वेण च माल्यवद्गन्धमादनावानीलनिषधायतौ द्विसहस्रंपप्रथतुः केतुमालभद्राश्वयोः सीमानं विदधाते ॥१०॥
+
 *tathaivelāvṛtam apareṇa pūrveṇa ca mālyavad*-gandhamādanāv ānīla-niṣadhāyatau dvi-sahasraṁ paprathatuḥ ketumāla-bhadrāśvayoḥ sīmānaṁ vidadhāte.
 
 *tathā eva*—exatamente assim; *ilāvṛtam apareṇa*—no lado ocidental de Ilāvṛta-varṣa; *pūrveṇa ca*—e no lado oriental; *mālyavad-gandha-mādanau*—as montanhas demarcadoras de Mālyavān a oeste e Gandhamādana a leste; *ā-nīla-niṣadha-āyatau*—no lado norte até a montanha conhecida como Nīla e no lado sul até a montanha conhecida como Niṣadha; *dvi-sahasram*—dois mil yojanas; *paprathatuḥ*—elas se estendem; *ketumāla-bhadrāśvayoḥ*—dos dois *varṣas* chamados Ketumāla e Bhadrāśva; *sīmānam*—a fronteira; *vidadhāte*—estabelecem.

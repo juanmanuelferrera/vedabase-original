@@ -1,5 +1,8 @@
 ### CC Madhya 4.83
 
+> পুরী-গোসাঞি আজ্ঞা দিল সকল ব্রাহ্মণে ।
+> আ-বাল-বৃদ্ধ গ্রামের লোক করাহ ভোজনে ॥৮৩॥
+
 > purī-gosāñi ājñā dila sakala brāhmaṇe
 > ā-bāla-vṛddha grāmera loka karāha bhojane
 

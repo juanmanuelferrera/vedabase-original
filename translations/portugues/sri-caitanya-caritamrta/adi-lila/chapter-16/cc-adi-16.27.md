@@ -1,5 +1,8 @@
 ### CC Adi 16.27
 
+> সেই অংশ কহি, তাঁরে করি’ নমস্কার ।
+> যা’ শুনি’ দিগ্বিজয়ী কৈল আপনা ধিক্কার ॥২৭॥
+
 sei aṁśa kahi, tāṅre kari' namaskāra
 
 yā' śuni' digvijayī kaila āpanā dhik-kāra

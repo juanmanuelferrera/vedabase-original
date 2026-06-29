@@ -1,5 +1,8 @@
 ### CC Adi 4.8
 
+> স্বয়ং-ভগবানের কর্ম নহে ভারহরণ ।
+> স্থিতিকর্তা বিষ্ণু করেন জগৎপালন ॥৮॥
+
 svayaṁ-bhagavānera karma nahe bhāra-haraṇa
 sthiti-kartā viṣṇu karena jagat-pālana
 

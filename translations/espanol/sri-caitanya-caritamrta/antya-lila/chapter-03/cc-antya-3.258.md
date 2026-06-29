@@ -1,5 +1,8 @@
 ### CC Antya 3.258
 
+> কৃষ্ণনাম দেহ’ তুমি মোরে কর ধন্যা ।
+> আমারে ভাসায় যৈছে এই প্রেমবন্যা ॥২৫৮॥
+
 > kṛṣṇa-nāma deha' tumi more kara dhanyā
 > āmāre bhāsāya yaiche ei prema-vanyā
 

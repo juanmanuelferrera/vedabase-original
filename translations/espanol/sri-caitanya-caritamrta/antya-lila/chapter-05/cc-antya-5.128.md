@@ -1,5 +1,8 @@
 ### CC Antya 5.128
 
+> শুনি’ সভাসদের চিত্তে হৈল চমৎকার ।
+> ‘সত্য কহে গোসাঞি, দুঁহার করিয়াছে তিরস্কার’ ॥১২৮॥
+
 > śuni' sabhā-sadera citte haila camatkāra
 > 'satya kahe gosāñi, duṅhāra kariyāche tiraskāra'
 

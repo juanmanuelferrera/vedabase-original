@@ -1,5 +1,8 @@
 ### CC Adi 7.68
 
+> সন্ন্যাসী হইয়া কর নর্তন-গায়ন ।
+> ভাবুক সব সঙ্গে লঞা কর সংকীর্তন ॥৬৮॥
+
 sannyāsī ha-iyā kara nartana-gāyana
 
 bhāvuka saba saṅge lañā kara saṅkīrtana

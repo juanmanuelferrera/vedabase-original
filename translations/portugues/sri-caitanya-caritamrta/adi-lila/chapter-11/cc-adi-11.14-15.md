@@ -1,5 +1,10 @@
 ### CC Adi 11.14-15
 
+> নিত্যানন্দে আজ্ঞা দিল যবে গৌড়ে যাইতে ।
+> মহাপ্রভু এই দুই দিলা তাঁর সাথে ॥১৪॥
+> অতএব দুইগণে দুঁহার গণন ।
+> মাধব-বাসুদেব ঘোষেরও এই বিবরণ ॥১৫॥
+
 nityānande ājñā dila yabe gauḍe yāite
 mahāprabhu ei dui dilā tāṅra sāthe
 ataeva dui-gaṇe duṅhāra gaṇana

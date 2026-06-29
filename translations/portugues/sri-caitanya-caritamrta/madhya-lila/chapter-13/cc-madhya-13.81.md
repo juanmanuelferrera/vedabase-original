@@ -1,5 +1,8 @@
 ### CC Madhya 13.81
 
+> এত পড়ি’ পুনরপি করিল প্ৰণাম ।
+> যোড়হাতে ভক্তগণ বন্দে ভগবান্ ॥৮১॥
+
 eta paḍi' punarapi karila praṇāma
 
 yoḍa-hāte bhakta-gaṇa vande bhagavān

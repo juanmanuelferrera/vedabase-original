@@ -1,5 +1,8 @@
 ### CC Antya 9.25
 
+> তারে নিন্দা করি’ কহে সগর্ব বচনে  ।
+> রাজা কৃপা করে তাতে ভয় নাহি মানে ॥২৫॥
+
 > tāre nindā kari' kahe sagarva vacane
 > rājā kṛpā kare tāte bhaya nāhi māne
 

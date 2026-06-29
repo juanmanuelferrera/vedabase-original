@@ -1,5 +1,8 @@
 ### SB 7.13.15
 
+> तं नत्वाभ्यर्च्य विधिवत्पादयोः शिरसा स्पृशन
+> विवित्सुरिदमप्राक्षीन्महाभागवतोऽसुरः ॥१५॥
+
 > taṁ natvābhyarcya vidhivat
 > pādayoḥ śirasā spṛśan
 > vivitsur idam aprākṣīn

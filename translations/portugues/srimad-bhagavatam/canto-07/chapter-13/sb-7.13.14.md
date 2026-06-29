@@ -1,5 +1,8 @@
 ### SB 7.13.14
 
+> कर्मणाकृतिभिर्वाचा लिङ्गैर्वर्णाश्रमादिभिः
+> न विदन्ति जना यं वै सोऽसाविति न वेति च ॥१४॥
+
 karmaṇākṛtibhir vācā
 liṅgair varṇāśramādibhiḥ
 na vidanti janā yaṁ vai

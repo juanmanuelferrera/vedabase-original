@@ -1,5 +1,8 @@
 ### CC Madhya 4.54
 
+> পাথরের সিংহাসনে ঠাকুর বসাইল ৷
+> বড় এক পাথর পৃষ্ঠে অবলম্ব দিল ॥৫৪॥
+
 > pātharera siṁhāsane ṭhākura vasāila
 > baḍa eka pāthara pṛṣṭhe avalamba dila
 

@@ -1,5 +1,8 @@
 ### SB 1.19.2
 
+> ध्रुवं ततो मे कृतदेवहेलनाद्दुरत्ययं व्यसनं नातिदीर्घात् ।
+> तदस्तु कामं ह्यघनिष्कृताय मे यथा न कुर्यां पुनरेवमद्धा ॥२॥
+
 > dhruvaṁ tato me kṛta-deva-helanād
 > duratyayaṁ vyasanaṁ nāti-dīrghāt
 > tad astu kāmaṁ hy agha-niṣkṛtāya me

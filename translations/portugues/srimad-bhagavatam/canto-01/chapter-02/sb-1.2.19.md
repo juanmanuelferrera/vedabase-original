@@ -1,5 +1,8 @@
 ### SB 1.2.19
 
+> तदा रजस्तमोभावाः कामलोभादयश्च ये ।
+> चेत एतैरनाविद्धं स्थितं सत्त्वे प्रसीदति ॥१९॥
+
 *tadā rajas*-tamo-bhāvāḥ
 *kāma*-lobhādayaś ca ye
 ceta etair anāviddhaṁ

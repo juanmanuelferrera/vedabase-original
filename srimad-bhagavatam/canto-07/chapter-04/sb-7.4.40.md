@@ -1,5 +1,8 @@
 ### SB 7.4.40
 
+> नदति क्वचिदुत्कण्ठो विलज्जो नृत्यति क्वचित
+> क्वचित्तद्भावनायुक्तस्तन्मयोऽनुचकार ह ॥४०॥
+
 > nadati kvacid utkaṇṭho
 > vilajjo nṛtyati kvacit
 > kvacit tad-bhāvanā-yuktas

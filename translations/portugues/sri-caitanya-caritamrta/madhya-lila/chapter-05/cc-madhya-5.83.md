@@ -1,5 +1,8 @@
 ### CC Madhya 5.83
 
+> তবে ছোটবিপ্র কহে, — শুন, সর্বজন ।
+> এই বিপ্র — সত্য-বাক্য, ধর্মপরায়ণ ॥৮৩॥
+
 tabe choṭa-vipra kahe,--śuna, sarva-jana
 
 ei vipra--satya-vākya, dharma-parāyaṇa

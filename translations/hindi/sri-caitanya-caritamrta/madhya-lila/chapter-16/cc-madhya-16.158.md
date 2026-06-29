@@ -1,5 +1,8 @@
 ### CC Madhya 16.158
 
+> মদ্যপ যবন — রাজার আগে অধিকার ।
+> তাঁর ভয়ে পথে কেহ নারে চলিবার ॥১৫৮॥
+
 > madyapa yavana-rājāra āge adhikāra
 > tāṅra bhaye pathe keha nāre calibāra
 

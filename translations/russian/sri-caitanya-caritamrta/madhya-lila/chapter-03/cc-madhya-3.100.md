@@ -1,5 +1,8 @@
 ### CC Madhya 3.100
 
+> শতেক সন্ন্যাসী যদি করাহ ভোজন ।
+> তবে এই অপরাধ হইবে খণ্ডন ॥১০০॥
+
 > śateka sannyāsī yadi karāha bhojana
 > tabe ei aparādha ha-ibe khaṇḍana
 

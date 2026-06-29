@@ -1,5 +1,8 @@
 ### CC Madhya 7.33
 
+> তবে চারিজন বহু মিনতি করিল ।
+> স্বতন্ত্র ঈশ্বর প্রভু কভু না মানিল ॥৩৩॥
+
 > tabe cāri-jana bahu minati karila
 > svatantra īśvara prabhu kabhu nā mānila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 17.209
 
+> শুক-শারিকা প্রভুর হাতে উড়ি’ পড়ে ।
+> প্রভুকে শুনাঞা কৃষ্ণের গুণ-শ্লোক পড়ে ॥২০৯॥
+
 > śuka-śārikā prabhura hāte uḍi' paḍe
 > prabhuke śunāñā kṛṣṇera guṇa-śloka paḍe
 

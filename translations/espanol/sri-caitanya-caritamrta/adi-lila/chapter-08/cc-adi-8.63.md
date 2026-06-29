@@ -1,5 +1,8 @@
 ### CC Adi 8.63
 
+> নিরন্তর শুনে তেঁহো ‘চৈতন্যমঙ্গল’ ।
+> তাঁহার প্রসাদে শুনেন বৈষ্ণবসকল ॥৬৩॥
+
 > nirantara śune teṅho 'caitanya-maṅgala'
 > tāṅhāra prasāde śunena vaiṣṇava-sakala
 

@@ -1,5 +1,8 @@
 ### CC Madhya 11.172
 
+> সবার করিয়াছি বাসা-গৃহ-স্থান ।
+> মহাপ্রসাদ সবাকারে করি সমাধান ॥১৭২॥
+
 > sabāra kariyāchi vāsā-gṛha-sthāna
 > mahā-prasāda sabākāre kari samādhāna
 

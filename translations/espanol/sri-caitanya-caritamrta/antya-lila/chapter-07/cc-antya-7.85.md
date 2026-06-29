@@ -1,5 +1,8 @@
 ### CC Antya 7.85
 
+> প্রভু কহে, — “কৃষ্ণনামের বহু অর্থ না মানি ।
+> ‘শ্যামসুন্দর’ ‘যশোদানন্দন’, — এইমাত্র জানি ॥৮৫॥
+
 > prabhu kahe,--"kṛṣṇa-nāmera bahu artha nā māni
 > "śyāma-sundara' 'yaśodā-nandana,'--ei-mātra jāni
 

@@ -1,5 +1,8 @@
 ### CC Madhya 6.96
 
+> শুনিয়া আচার্য কহে দুঃখী হঞা মনে  ।
+> শাস্ত্রজ্ঞ করিঞা তুমি কর অভিমানে ॥৯৬॥
+
 śuniyā ācārya kahe duḥkhī hañā mane
 śāstra-jña kariñā tumi kara abhimāne
 

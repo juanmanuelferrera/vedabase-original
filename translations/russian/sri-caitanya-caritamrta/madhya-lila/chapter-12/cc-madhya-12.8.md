@@ -1,5 +1,8 @@
 ### CC Madhya 12.8
 
+> সেই সব দয়ালু মোরে হঞা সদয়  ।
+> মোর লাগি’ প্রভুপদে করিবে বিনয় ॥৮॥
+
 > sei saba dayālu more hañā sadaya
 > mora lāgi' prabhu-pade karibe vinaya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.234
 
+> কতদূরে দেখে ব্যাধ বৃক্ষে ওঁত হঞা ।
+> মৃগ মারিবারে আছে বাণ যুড়িয়া ॥২৩৪॥
+
 > kata-dūre dekhe vyādha vṛkṣe oṅta hañā
 > mṛga māribāre āche bāṇa yuḍiyā
 

@@ -1,5 +1,8 @@
 ### CC Antya 16.14
 
+> ভূঁইমালি-জাতি, ‘বৈষ্ণব’ — ‘ঝড়ু’ তাঁর নাম ।
+> আম্রফল লঞা তেঁহো গেলা তাঁর স্থান ॥১৪॥
+
 > bhūṅimāli-jāti, 'vaiṣṇava'—'jhaḍu' tāṅra nāma
 > āmra-phala lañā teṅho gelā tāṅra sthāna
 

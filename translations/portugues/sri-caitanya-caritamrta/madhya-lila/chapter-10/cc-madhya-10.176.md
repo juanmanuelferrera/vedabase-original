@@ -1,5 +1,8 @@
 ### CC Madhya 10.176
 
+> কৃষ্ণনাম স্ফুরে মুখে, মনে নেত্রে কৃষ্ণ ৷
+> তোমাকে তদ্রূপ দেখি’ হৃদয় — সতৃষ্ণ ৷৷ ১৭৬ ৷৷ ॥১৭৬॥
+
 kṛṣṇa-nāma sphure mukhe, mane netre kṛṣṇa
 tomāke tad-rūpa dekhi' hṛdaya-satṛṣṇa
 

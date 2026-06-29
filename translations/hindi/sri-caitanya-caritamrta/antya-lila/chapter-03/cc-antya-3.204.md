@@ -1,5 +1,8 @@
 ### CC Antya 3.204
 
+> সভা-সহিতে হরিদাসের পড়িলা চরণে  ।
+> হরিদাস হাসি’ কহে মধুর-বচনে ॥২০৪॥
+
 > sabhā-sahite haridāsera paḍilā caraṇe
 > haridāsa hāsi' kahe madhura-vacane
 

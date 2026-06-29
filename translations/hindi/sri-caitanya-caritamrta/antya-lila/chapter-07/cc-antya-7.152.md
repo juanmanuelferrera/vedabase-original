@@ -1,5 +1,8 @@
 ### CC Antya 7.152
 
+> তুমি যে আমার ঠাঞি কর আগমন ।
+> তাহাতেই প্রভু মোরে দেহ ওলাহন ।।” ॥ ১৫২ ॥
+
 > tumi ye āmāra ṭhāñi kara āgamana
 > tāhātei prabhu more dena olāhana"
 

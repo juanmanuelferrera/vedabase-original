@@ -1,5 +1,8 @@
 ### CC Adi 8.79
 
+> সেই লিখি, মদনগোপাল যে লিখায় ।
+> কাষ্ঠের পুত্তলী যেন কুহকে নাচায় ॥৭৯॥
+
 sei likhi, madana-gopāla ye likhāya
 
 kāṣṭhera puttalī yena kuhake nācāya

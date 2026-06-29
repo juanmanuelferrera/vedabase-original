@@ -1,5 +1,8 @@
 ### SB 9.11.6
 
+> अप्रत्तं नस्त्वया किं नु भगवन्भुवनेश्वर
+> यन्नोऽन्तर्हृदयं विश्य तमो हंसि स्वरोचिषा ॥६॥
+
 > aprattaṁ nas tvayā kiṁ nu
 > bhagavan bhuvaneśvara
 > yan no 'ntar-hṛdayaṁ viśya

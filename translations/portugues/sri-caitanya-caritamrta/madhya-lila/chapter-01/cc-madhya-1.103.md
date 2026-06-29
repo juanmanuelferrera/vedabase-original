@@ -1,5 +1,8 @@
 ### CC Madhya 1.103
 
+> জিয়ড়-নৃসিংহে কৈল নৃসিংহ-স্তবন ।
+> পথে-পথে গ্রামে-গ্রামে নামপ্রবর্তন ॥১০৩॥
+
 jiyaḍa-nṛsiṁhe kaila nṛsiṁha-stavana
 
 pathe-pathe grāme-grāme nāma-pravartana

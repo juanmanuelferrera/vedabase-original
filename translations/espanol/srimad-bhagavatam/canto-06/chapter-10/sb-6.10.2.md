@@ -1,5 +1,8 @@
 ### SB 6.10.2
 
+> तथाभियाचितो देवैरृषिराथर्वणो महान
+> मोदमान उवाचेदं प्रहसन्निव भारत ॥२॥
+
 > tathābhiyācito devair
 > ṛṣir ātharvaṇo mahān
 > modamāna uvācedaṁ

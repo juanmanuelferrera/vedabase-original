@@ -1,5 +1,8 @@
 ### CC Antya 5.41
 
+> নির্বিকার দেহ-মন — কাষ্ঠ-পাষাণ-সম !
+> আশ্চর্য, — তরুণী-স্পর্শে নির্বিকার মন ॥৪১॥
+
 > nirvikāra deha-mana--kāṣṭha-pāṣāṇa-sama!
 > āścarya,--taruṇī-sparśe nirvikāra mana
 

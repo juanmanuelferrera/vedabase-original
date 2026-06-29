@@ -1,5 +1,8 @@
 ### CC Adi 4.43
 
+> নিজ নিজ ভাব সবে শ্রেষ্ঠ করি’ মানে ।
+> নিজভাবে করে কৃষ্ণসুখ আস্বাদনে ॥৪৩॥
+
 > nija nija bhāva sabe śreṣṭha kari' māne
 > nija-bhāve kare kṛṣṇa-sukha āsvādane
 

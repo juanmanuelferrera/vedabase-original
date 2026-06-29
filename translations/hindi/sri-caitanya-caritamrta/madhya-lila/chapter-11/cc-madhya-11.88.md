@@ -1,5 +1,8 @@
 ### CC Madhya 11.88
 
+> গোবিন্দ, মাধব ঘোষ, এই বাসুঘোষ ।
+> তিন ভাইর কীর্তনে প্রভু পায়েন সন্তোষ ॥৮৮॥
+
 > govinda, mādhava ghoṣa, ei vāsu-ghoṣa
 > tina bhāira kīrtane prabhu pāyena santoṣa
 

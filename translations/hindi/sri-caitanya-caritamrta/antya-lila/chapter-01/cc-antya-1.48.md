@@ -1,5 +1,8 @@
 ### CC Antya 1.48
 
+> ‘রূপ দণ্ডবৎ করে’, — হরিদাস কহিলা ।
+> হরিদাসে মিলি’ প্রভু রূপে আলিঙ্গিলা ॥৪৮॥
+
 > 'rūpa daṇḍavat kare',--haridāsa kahilā
 > haridāse mili' prabhu rūpe āliṅgilā
 

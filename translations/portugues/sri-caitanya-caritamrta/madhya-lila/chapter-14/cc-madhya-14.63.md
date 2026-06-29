@@ -1,5 +1,8 @@
 ### CC Madhya 14.63
 
+> আঙ্গিনাতে মহাপ্ৰভু লঞা ভক্তগণ ।
+> আনন্দে আরম্ভ কৈল নর্তন-কীর্তন ॥৬৩॥
+
 āṅgināte mahāprabhu lañā bhakta-gaṇa
 
 ānande ārambha kaila nartana-kīrtana

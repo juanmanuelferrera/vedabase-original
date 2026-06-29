@@ -1,5 +1,8 @@
 ### CC Madhya 25.219
 
+> কাশীতে প্রভুর চরিত্র শুনি’ তিনের মুখে ।
+> সন্ন্যাসীরে কৃপা শুনি’ পাইলা বড় সুখে ॥২১৯॥
+
 > kāśīte prabhura caritra śuni' tinera mukhe
 > sannyāsīre kṛpā śuni' pāilā baḍa sukhe
 

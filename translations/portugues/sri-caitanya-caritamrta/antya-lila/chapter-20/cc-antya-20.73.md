@@ -1,5 +1,8 @@
 ### CC Antya 20.73
 
+> বৃন্দাবন-দাস প্রথম যে লীলা বর্ণিল ।
+> সেইসব লীলার আমি সূত্রমাত্র কৈল ॥৭৩॥
+
 vṛndāvana-dāsa prathama ye līlā varṇila
 
 sei-saba līlāra āmi sūtra-mātra kaila

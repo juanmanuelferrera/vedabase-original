@@ -1,5 +1,8 @@
 ### CC Antya 11.19
 
+> সংখ্যা-কীর্তন পূরে নাহি, কেমতে খাইব ?
+> মহাপ্রসাদ আনিয়াছ, কেমতে উপেক্ষিব ?” ॥ ১৯ ॥
+
 > saṅkhyā-kīrtana pūre nāhi, ke-mate khāiba?
 > mahā-prasāda āniyācha, ke-mate upekṣiba?
 

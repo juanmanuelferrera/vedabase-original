@@ -1,5 +1,8 @@
 ### CC Madhya 9.40
 
+> প্রভুর প্রভাবে লোক আইল দরশনে ।
+> লক্ষার্বুদ লোক আইসে না যায় গণনে ॥৪০॥
+
 > prabhura prabhāve loka āila daraśane
 > lakṣārbuda loka āise nā yāya gaṇane
 

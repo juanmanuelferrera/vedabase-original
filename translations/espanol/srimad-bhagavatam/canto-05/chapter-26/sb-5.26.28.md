@@ -1,5 +1,7 @@
 ### SB 5.26.28
 
+> यस्त्विह वा अनृतं वदति साक्ष्ये द्रव्यविनिमये दाने वा कथञ्चित्स वै प्रेत्य नरकेऽवीचिमत्यधःशिरा निरवकाशे योजनशतोच्छ्रायाद्गिरिमूर्ध्नः सम्पात्यते यत्र जलमिव स्थलमश्मपृष्ठमवभासते तदवीचिमत्तिलशो विशीर्यमाणशरीरो न म्रियमाणः पुनरारोपितो निपतति ॥२७॥
+
 > yas tv iha vā anṛtaṁ vadati sākṣye dravya-vinimaye dāne vā kathañcit sa vai pretya narake 'vīcimaty adhaḥ-śirā niravakāśe yojana-śatocchrāyād giri-mūrdhnaḥ sampātyate yatra jalam iva sthalam aśma-pṛṣṭham avabhāsate tad avīcimat tilaśo viśīryamāṇa-śarīro na mriyamāṇaḥ punar āropito nipatati.
 
 *yaḥ*—todo el que; *tu*—pero; *iha*—en esta vida; *vā*—o; *anṛtam*—una mentira; *vadati*—habla; *sākṣye*—prestando testimonio; *dravya-vinimaye*—a cambio de bienes; *dāne*—al dar caridad; *vā*—o; *kathañcit*—de algún modo; *saḥ*—esa persona; *vai*—en verdad; *pretya*—después de morir; *narake*—en el infierno; *avīcimati*—llamado Avīcimat (que no tiene agua); *adhaḥ-śirāḥ*—con la cabeza hacia abajo; *niravakāśe*—sin sostén; *yojana-śata*—de mil trescientos kilómetros; *ucchrāyāt*—con una altura de; *giri*—de una montaña; *mūrdhnaḥ*—de la cima; *sampātyate*—es arrojado; *yatra*—donde; *jalam iva*—como agua; *sthalam*—tierra; *aśma-pṛṣṭham*—con una superficie de piedra; *avabhāsate*—parece; *tat*—ese; *avīcimat*—sin agua ni olas; *tilaśaḥ*—en trozos tan pequeños como semillas; *viśīryamāṇa*—roto; *śarīraḥ*—el cuerpo; *na mriyamāṇaḥ*—sin morir; *punaḥ*—de nuevo; *āropitaḥ*—subido a la cima; *nipatati*—cae.

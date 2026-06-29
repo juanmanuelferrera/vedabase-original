@@ -1,5 +1,8 @@
 ### CC Madhya 20.22
 
+> দুই উপবাসে কৈলা রন্ধন-ভোজনে  ।
+> রাজমন্ত্রী সনাতন বিচারিলা মনে ॥২২॥
+
 > dui upavāse kailā randhana-bhojane
 > rāja-mantrī sanātana vicārilā mane
 

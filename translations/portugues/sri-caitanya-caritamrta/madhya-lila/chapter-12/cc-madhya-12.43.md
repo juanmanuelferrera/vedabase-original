@@ -1,5 +1,8 @@
 ### CC Madhya 12.43
 
+> প্রভুপদে প্রেমভক্তি জানাইল রাজার ।
+> প্রসঙ্গ পাঞা ঐছে কহে বারবার ॥৪৩॥
+
 prabhu-pade prema-bhakti jānāila rājāra
 prasaṅga pāñā aiche kahe bāra-bāra
 

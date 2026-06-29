@@ -1,5 +1,8 @@
 ### CC Adi 2.84
 
+> কৃষ্ণ যদি অংশ হৈত, অংশী নারায়ণ ।
+> তবে বিপরীত হৈত সূতের বচন ॥৮৪॥
+
 kṛṣṇa yadi aṁśa haita, aṁśī nārāyaṇa
 
 tabe viparīta haita sūtera vacana

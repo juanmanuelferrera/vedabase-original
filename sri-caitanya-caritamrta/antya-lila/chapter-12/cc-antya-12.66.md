@@ -1,5 +1,8 @@
 ### CC Antya 12.66
 
+> সব ভক্ত করেন মহাপ্রভুর নিমন্ত্রণ  ।
+> সর্বভক্তে কহেন প্রভু মধুর বচন ॥৬৬॥
+
 > saba bhakta karena mahāprabhura nimantraṇa
 > sarva-bhakte kahena prabhu madhura vacana
 

@@ -1,5 +1,8 @@
 ### SB 3.25.24
 
+> त एते साधवः साध्वि सर्वसङ्गविवर्जिताः ।
+> सङ्गस्तेष्वथ ते प्रार्थ्यः सङ्गदोषहरा हि ते ॥२४॥
+
 > ta ete sādhavaḥ sādhvi
 > sarva-saṅga-vivarjitāḥ
 > saṅgas teṣv atha te prārthyaḥ

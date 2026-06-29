@@ -1,5 +1,8 @@
 ### CC Madhya 24.287
 
+> দুইবিধ ভক্ত হয় চারি চারি প্রকার  ।
+> পারিষদ, সাধনসিদ্ধ, সাধকগণ আর ॥২৮৭॥
+
 dui-vidha bhakta haya cāri cāri prakāra
 
 pāriṣada, sādhana-siddha, sādhaka-gaṇa āra

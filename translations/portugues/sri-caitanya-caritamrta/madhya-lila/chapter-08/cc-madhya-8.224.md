@@ -1,5 +1,10 @@
 ### CC Madhya 8.224
 
+> নিভৃতমরুন্মনোঽক্ষদৃঢ়যোগযুজো হৃদি য-
+> ন্মুনয় উপাসতে তদরয়োঽপি যযুঃ স্মরণাৎ ৷
+> স্ত্রিয় উরগেন্দ্রভোগভুজদণ্ডবিষক্ত-ধিয়ো
+> বয়মপি তে সমাঃ সমদৃশোঽঙ্ঘ্রিসরোজসুধাঃ ৷৷ ২২৪ ৷৷ ॥২২৪॥
+
 nibhṛta-marun-mano 'kṣa-dṛḍha-yoga-yujo hṛdi yan
 munaya upāsate tad arayo 'pi yayuḥ smaraṇāt
 striya uragendra-bhoga-bhuja-daṇḍa-viṣakta-dhiyo

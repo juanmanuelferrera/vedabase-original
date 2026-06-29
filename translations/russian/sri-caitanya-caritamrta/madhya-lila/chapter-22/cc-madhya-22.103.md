@@ -1,5 +1,10 @@
 ### CC Madhya 22.103
 
+> মর্ত্যো যদা ত্যক্তসমস্তকর্মা
+> নিবেদিতাত্মা বিচিকীর্ষিতো মে ।
+> তদামৃতত্বং প্রতিপদ্যমানো
+> ময়াত্মভূয়ায় চ কল্পতে বৈ ॥১০৩॥
+
 > martyo yadā tyakta-samasta-karmā
 > niveditātmā vicikīrṣito me
 > tadāmṛtatvaṁ pratipadyamāno

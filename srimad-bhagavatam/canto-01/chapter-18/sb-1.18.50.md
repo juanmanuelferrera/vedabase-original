@@ -1,5 +1,8 @@
 ### SB 1.18.50
 
+> प्रायशः साधवो लोके परैर्द्वन्द्वेषु योजिताः ।
+> न व्यथन्ति न हृष्यन्ति यत आत्मागुणाश्रयः ॥५०॥
+
 > prāyaśaḥ sādhavo loke
 > parair dvandveṣu yojitāḥ
 > na vyathanti na hṛṣyanti

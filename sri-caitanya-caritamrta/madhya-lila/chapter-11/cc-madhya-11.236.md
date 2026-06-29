@@ -1,5 +1,8 @@
 ### CC Madhya 11.236
 
+> গজপতি রাজা শুনি’ কীর্তন-মহত্ত্ব ।
+> অট্টালিকা চড়ি’ দেখে স্বগণ-সহিত ॥২৩৬॥
+
 > gajapati rājā śuni' kīrtana-mahattva
 > aṭṭālikā caḍi' dekhe svagaṇa-sahita
 

@@ -1,5 +1,7 @@
 ### SB 5.14.24
 
+> मुक्तस्ततो यदि बन्धाद्देवदत्त उपाच्छिनत्ति तस्मादपि विष्णुमित्र इत्यनवस्थितिः ॥२४॥
+
 > muktas tato yadi bandhād devadatta upācchinatti tasmād api viṣṇumitra ity anavasthitiḥ.
 
 *muktaḥ*—liberada; *tataḥ*—de eso; *yadi*—si; *bandhāt*—de ser encerrada en la prisión del gobierno o de ser golpeado por el protector de la mujer; *deva-dattaḥ*—persona llamada Devadatta; *upācchinatti*—le quita el dinero; *tasmāt*—de la persona llamada Devadatta; *api*—de nuevo; *viṣṇu-mitraḥ*—una persona llamada Viṣṇumitra; *iti*—así; *anavasthitiḥ*—las riquezas no permanecen en un lugar fijo, sino que van de mano en mano.

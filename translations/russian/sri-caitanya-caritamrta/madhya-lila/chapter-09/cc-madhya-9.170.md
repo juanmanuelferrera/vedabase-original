@@ -1,5 +1,8 @@
 ### CC Madhya 9.170
 
+> পুরী-গোসাঞি বলে, — আমি যাব পুরুষোত্তমে ।
+> পুরুষোত্তম দেখি’ গৌড়ে যাব গঙ্গাস্নানে ॥১৭০॥
+
 > purī-gosāñi bale,—āmi yāba puruṣottame
 > puruṣottama dekhi' gauḍe yāba gaṅgā-snāne
 

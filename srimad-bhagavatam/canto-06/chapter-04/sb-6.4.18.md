@@ -1,5 +1,8 @@
 ### SB 6.4.18
 
+> यथा ससर्ज भूतानि दक्षो दुहितृवत्सलः
+> रेतसा मनसा चैव तन्ममावहितः शृणु ॥१८॥
+
 > yathā sasarja bhūtāni
 > dakṣo duhitṛ-vatsalaḥ
 > retasā manasā caiva

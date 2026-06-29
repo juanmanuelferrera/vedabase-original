@@ -1,5 +1,10 @@
 ### CC Madhya 16.265-266
 
+> এত কহি’ আমি যবে বিদায় তাঁরে দিল ।
+> গমনকালে সনাতন ‘প্রহেলী’ কহিল ॥২৬৫॥
+> যাঁর সঙ্গে হয় এই লোক লক্ষ কোটি ।
+> বৃন্দাবন যাইবার এই নহে পরিপাটী ॥২৬৬॥
+
 > eta kahi' āmi yabe vidāya tāṅre dila
 > gamana-kāle sanātana 'prahelī' kahila
 > yāṅra saṅge haya ei loka lakṣa koṭi

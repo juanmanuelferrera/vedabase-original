@@ -1,5 +1,8 @@
 ### CC Adi 4.226
 
+> সেই দ্বারে প্রবর্তাইল কলিযুগ-ধর্ম ।
+> চৈতন্যের দাসে জানে এই সব মর্ম ॥২২৬॥
+
 > sei dvāre pravartāila kali-yuga-dharma
 > caitanyera dāse jāne ei saba marma
 

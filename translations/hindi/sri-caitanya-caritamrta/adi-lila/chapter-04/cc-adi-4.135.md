@@ -1,5 +1,8 @@
 ### CC Adi 4.135
 
+> কভু যদি এই প্রেমার হইয়ে আশ্রয় ।
+> তবে এই প্রেমানন্দের অনুভব হয় ॥১৩৫॥
+
 > kabhu yadi ei premāra ha-iye āśraya
 > tabe ei premānandera anubhava haya
 

@@ -1,5 +1,8 @@
 ### CC Antya 4.212
 
+> যে-যে-লীলা প্রভু পথে কৈলা যে-যে-স্থানে ।
+> তাহা দেখি’ প্রেমাবেশ হয় সনাতনে ॥২১২॥
+
 ye-ye-līlā prabhu pathe kailā ye-ye-sthāne
 
 tāhā dekhi' premāveśa haya sanātane

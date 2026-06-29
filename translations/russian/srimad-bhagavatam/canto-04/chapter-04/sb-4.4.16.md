@@ -1,5 +1,8 @@
 ### SB 4.4.16
 
+> किं वा शिवाख्यमशिवं न विदुस्त्वदन्ये ब्रह्मादयस्तमवकीर्य जटाः श्मशाने ।
+> तन्माल्यभस्मनृकपाल्यवसत्पिशाचैर्ये मूर्धभिर्दधति तच्चरणावसृष्टम् ॥१६॥
+
 > kiṁ vā śivākhyam aśivaṁ na vidus tvad anye
 > brahmādayas tam avakīrya jaṭāḥ śmaśāne
 > tan-mālya-bhasma-nṛkapāly avasat piśācair

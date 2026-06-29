@@ -1,5 +1,8 @@
 ### CC Antya 1.101
 
+> কৃষ্ণনামের মহিমা শাস্ত্র-সাধু-মুখে জানি ।
+> নামের মাধুরী ঐছে কাহাঁ নাহি শুনি ॥১০১॥
+
 > kṛṣṇa-nāmera mahimā śāstra-sādhu-mukhe jāni
 > nāmera mādhurī aiche kāhāṅ nāhi śuni
 

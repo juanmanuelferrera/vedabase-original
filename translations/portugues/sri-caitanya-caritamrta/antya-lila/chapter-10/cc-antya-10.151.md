@@ -1,5 +1,8 @@
 ### CC Antya 10.151
 
+> এত বলি’ দধি-ভাত করিলা ভোজন ।
+> চৈতন্যদাসেরে দিলা উচ্ছিষ্ট-ভাজন ॥১৫১॥
+
 eta bali' dadhi-bhāta karilā bhojana
 
 caitanya-dāsere dilā ucchiṣṭa-bhājana

@@ -1,5 +1,8 @@
 ### CC Madhya 12.192
 
+> জন্মকুলশীলাচার না জানি যাহার ।
+> তার সঙ্গে এক পংক্তি — বড় অনাচার ॥১৯২॥
+
 > janma-kula-śīlācāra nā jāni yāhāra
 > tāra saṅge eka paṅkti-baḍa anācāra
 

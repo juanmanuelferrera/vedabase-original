@@ -1,5 +1,8 @@
 ### CC Antya 7.28
 
+> ‘আত্মভূত’-শব্দে কহে ‘পারিষদগণ’ ।
+> ঐশ্বর্য-জ্ঞানে লক্ষ্মী না পাইলা ব্রজেন্দ্রনন্দন ॥২৮॥
+
 > 'ātma-bhūta'-śabde kahe 'pāriṣada-gaṇa'
 > aiśvarya-jñāne lakṣmī nā pāilā vrajendra-nandana
 

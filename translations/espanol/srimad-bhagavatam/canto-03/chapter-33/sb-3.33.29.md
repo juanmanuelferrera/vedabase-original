@@ -1,5 +1,8 @@
 ### SB 3.33.29
 
+> स्वाङ्गं तपोयोगमयं मुक्तकेशं गताम्बरम् ।
+> दैवगुप्तं न बुबुधे वासुदेवप्रविष्टधीः ॥२९॥
+
 > svāṅgaṁ tapo-yogamayaṁ
 > mukta-keśaṁ gatāmbaram
 > daiva-guptaṁ na bubudhe

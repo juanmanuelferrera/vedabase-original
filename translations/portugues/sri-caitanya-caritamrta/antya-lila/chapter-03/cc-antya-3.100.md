@@ -1,5 +1,8 @@
 ### CC Antya 3.100
 
+> নির্জন-বনে কুটির করি’ তুলসী সেবন ।
+> রাত্রি-দিনে তিন লক্ষ নাম-সঙ্কীর্তন ॥১০০॥
+
 nirjana-vane kuṭira kari' tulasī sevana
 
 rātri-dine tina lakṣa nāma-saṅkīrtana

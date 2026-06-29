@@ -1,5 +1,8 @@
 ### SB 1.8.15
 
+> यद्यप्यस्त्रं ब्रह्मशिरस्त्वमोघं चाप्रतिक्रियम् ।
+> वैष्णवं तेज आसाद्य समशाम्यद्भृगूद्वह ॥१५॥
+
 yadyapy astraṁ brahma-śiras
 tv amoghaṁ cāpratikriyam
 vaiṣṇavaṁ teja āsādya

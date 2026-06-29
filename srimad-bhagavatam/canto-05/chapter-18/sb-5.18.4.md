@@ -1,5 +1,8 @@
 ### SB 5.18.4
 
+> वदन्ति विश्वं कवयः स्म नश्वरं पश्यन्ति चाध्यात्मविदो विपश्चितः
+> तथापि मुह्यन्ति तवाज मायया सुविस्मितं कृत्यमजं नतोऽस्मि तम ॥४॥
+
 > vadanti viśvaṁ kavayaḥ sma naśvaraṁ
 > paśyanti cādhyātmavido vipaścitaḥ
 > tathāpi muhyanti tavāja māyayā

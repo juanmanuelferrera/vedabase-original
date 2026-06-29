@@ -1,5 +1,8 @@
 ### CC Antya 17.8
 
+> এইমতে নানাভাবে অর্ধরাত্রি হৈল ।
+> গোসাঞিরে শয়ন করাই’ দুঁহে ঘরে গেল ॥৮॥
+
 > ei-mate nānā-bhāve ardha-rātri haila
 > gosāñire śayana karāi' duṅhe ghare gela
 

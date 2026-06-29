@@ -1,5 +1,8 @@
 ### CC Madhya 7.110
 
+> প্রভুকে যে ভজে, তারে তাঁর কৃপা হয় ।
+> সেই সে এ-সব লীলা সত্য করি’ লয় ॥১১০॥
+
 > prabhuke ye bhaje, tāre tāṅra kṛpā haya
 > sei se e-saba līlā satya kari' laya
 

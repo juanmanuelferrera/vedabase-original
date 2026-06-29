@@ -1,5 +1,8 @@
 ### CC Madhya 4.6
 
+> অতএব তাহা বর্ণিলে হয় পুনরুক্তি ।
+> দম্ভ করি’ বর্ণি যদি তৈছে নাহি শক্তি ॥৬॥
+
 ataeva tāhā varṇile haya punarukti
 dambha kari' varṇi yadi taiche nāhi śakti
 

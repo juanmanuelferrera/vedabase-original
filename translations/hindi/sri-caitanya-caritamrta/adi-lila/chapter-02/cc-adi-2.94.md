@@ -1,5 +1,8 @@
 ### CC Adi 2.94
 
+> কৃষ্ণ এক সর্বাশ্রয়, কৃষ্ণ সর্বধাম ।
+> কৃষ্ণের শরীরে সর্ব-বিশ্বের বিশ্রাম ॥৯৪॥
+
 > kṛṣṇa eka sarvāśraya, kṛṣṇa sarva-dhāma
 > kṛṣṇera śarīre sarva-viśvera viśrāma
 

@@ -1,5 +1,8 @@
 ### CC Antya 4.169
 
+> তোমারে উপদেশ করে, না যায় সহন ।
+> অতএব তারে আমি করিয়ে ভর্ৎসন ॥১৬৯॥
+
 > tomāre upadeśa kare, nā yāya sahana
 > ataeva tāre āmi kariye bhartsana
 

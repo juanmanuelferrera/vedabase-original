@@ -1,5 +1,8 @@
 ### CC Madhya 9.5
 
+> সেই সব তীর্থের ক্রম কহিতে না পারি ৷
+> দক্ষিণ-বামে তীর্থ-গমন হয় ফেরাফেরি ৷৷ ৫ ৷৷ ॥৫॥
+
 > sei saba tīrthera krama kahite nā pāri
 > dakṣiṇa-vāme tīrtha-gamana haya pherāpheri
 

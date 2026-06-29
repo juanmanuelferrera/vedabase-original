@@ -1,5 +1,8 @@
 ### CC Madhya 14.251
 
+> এই পট্টডোরীতে হয় ‘শেষ’-অধিষ্ঠান ।
+> দশ-মূর্তি হঞা যেঁহো সেবে ভগবান্ ॥২৫১॥
+
 > ei paṭṭa-ḍorīte haya 'śeṣa'-adhiṣṭhāna
 > daśa-mūrti hañā yeṅho seve bhagavān
 

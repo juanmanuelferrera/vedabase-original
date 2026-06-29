@@ -1,5 +1,8 @@
 ### CC Antya 3.16
 
+> যদ্যপি ব্রাহ্মণী সেই তপস্বিনী সতী ।
+> তথাপি তাহার দোষ — সুন্দরী যুবতী ॥১৬॥
+
 > yadyapi brāhmaṇī sei tapasvinī satī
 > tathāpi tāhāra doṣa--sundarī yuvatī
 

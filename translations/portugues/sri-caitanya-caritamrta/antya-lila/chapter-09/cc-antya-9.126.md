@@ -1,5 +1,8 @@
 ### CC Antya 9.126
 
+> তাঁহা লাগি’ দ্রব্য ছাড়ি, — ইহা মাৎ জানে ।
+> ‘সহজেই মোর প্রীতি হয় তাহা-সনে’ ।।” ॥ ১২৬ ॥
+
 tāṅhā lāgi' dravya chāḍi'--ihā māt jāne
 
 'sahajei mora prīti haya tāhā-sane' "

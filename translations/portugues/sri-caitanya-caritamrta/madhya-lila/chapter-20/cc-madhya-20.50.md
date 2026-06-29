@@ -1,5 +1,8 @@
 ### CC Madhya 20.50
 
+> ‘প্রভু তোমায় বোলায়, আইস, দরবেশ !’
+> শুনি’ আনন্দে সনাতন করিলা প্রবেশ ॥৫০॥
+
 'prabhu tomāya bolāya, āisa, daraveśa!'
 
 śuni' ānande sanātana karilā praveśa

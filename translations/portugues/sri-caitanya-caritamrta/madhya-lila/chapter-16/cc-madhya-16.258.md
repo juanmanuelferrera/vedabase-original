@@ -1,5 +1,8 @@
 ### CC Madhya 16.258
 
+> লক্ষ লক্ষ লোক আইসে কৌতুক দেখিতে ।
+> লোকের সংঘট্টে পথ না পারি চলিতে ॥২৫৮॥
+
 lakṣa lakṣa loka āise kauṭuka dekhite
 
 lokera saṅghaṭṭe patha nā pāri calite

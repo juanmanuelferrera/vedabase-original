@@ -1,5 +1,8 @@
 ### CC Adi 7.108
 
+> উপনিষৎ-সহিত সূত্র কহে যেই তত্ত্ব ।
+> মুখ্যবৃত্ত্যে সেই অর্থ পরম মহত্ত্ব ॥১০৮॥
+
 upaniṣat-sahita sūtra kahe yei tattva
 
 mukhya-vṛttye sei artha parama mahattva

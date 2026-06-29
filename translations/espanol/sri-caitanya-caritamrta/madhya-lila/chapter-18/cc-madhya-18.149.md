@@ -1,5 +1,8 @@
 ### CC Madhya 18.149
 
+> প্রাতঃকালে আইসে লোক, তোমারে না পায় ।
+> তোমারে না পাঞা লোক মোর মাথা খায় ॥১৪৯॥
+
 > prātaḥ-kāle āise loka, tomāre nā pāya
 > tomāre nā pāñā loka mora māthā khāya
 

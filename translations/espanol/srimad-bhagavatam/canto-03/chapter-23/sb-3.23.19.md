@@ -1,5 +1,8 @@
 ### SB 3.23.19
 
+> चक्षुष्मत्पद्मरागाग्र्यैर्वज्रभित्तिषु निर्मितैः ।
+> जुष्टं विचित्रवैतानैर्महार्हैर्हेमतोरणैः ॥१९॥
+
 > cakṣuṣmat padmarāgāgryair
 > vajra-bhittiṣu nirmitaiḥ
 > juṣṭaṁ vicitra-vaitānair

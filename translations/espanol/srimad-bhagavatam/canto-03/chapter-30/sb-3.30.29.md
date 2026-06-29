@@ -1,5 +1,8 @@
 ### SB 3.30.29
 
+> अत्रैव नरकः स्वर्ग इति मातः प्रचक्षते ।
+> या यातना वै नारक्यस्ता इहाप्युपलक्षिताः ॥२९॥
+
 > atraiva narakaḥ svarga
 > iti mātaḥ pracakṣate
 > yā yātanā vai nārakyas

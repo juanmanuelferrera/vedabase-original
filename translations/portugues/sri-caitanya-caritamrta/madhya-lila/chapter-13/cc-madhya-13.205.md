@@ -1,5 +1,8 @@
 ### CC Madhya 13.205
 
+> এই ত’ কহিল প্রভুর মহাসংকীর্তন ।
+> জগন্নাথের আগে যৈছে করিল নর্তন ॥২০৫॥
+
 ei ta' kahila prabhura mahā-saṅkīrtana
 
 jagannāthera āge yaiche karila nartana

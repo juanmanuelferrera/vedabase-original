@@ -1,5 +1,8 @@
 ### CC Antya 11.104
 
+> আপনে শ্রীহস্তে কৃপায় তাঁরে বালু দিলা ।
+> আপনে প্রসাদ মাগি’ মহোৎসব কৈলা ॥১০৪॥
+
 > āpane śrī-haste kṛpāya tāṅre vālu dilā
 > āpane prasāda māgi' mahotsava kailā
 

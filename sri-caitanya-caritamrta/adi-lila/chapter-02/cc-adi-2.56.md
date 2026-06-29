@@ -1,5 +1,8 @@
 ### CC Adi 2.56
 
+> সেই তিন জনের তুমি পরম আশ্রয় ।
+> তুমি মূল নারায়ণ — ইথে কি সংশয় ॥৫৬॥
+
 > sei tina janera tumi parama āśraya
 > tumi mūla nārāyaṇa—ithe ki saṁśaya
 

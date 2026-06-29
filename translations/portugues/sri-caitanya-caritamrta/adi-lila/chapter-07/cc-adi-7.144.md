@@ -1,5 +1,8 @@
 ### CC Adi 7.144
 
+> পঞ্চম পুরুষার্থ সেই প্রেম-মহাধন ।
+> কৃষ্ণের মাধুর্য-রস করায় আস্বাদন ॥১৪৪॥
+
 pañcama puruṣārtha sei prema-mahādhana
 
 kṛṣṇera mādhurya-rasa karāya āsvādana

@@ -1,5 +1,8 @@
 ### CC Adi 7.161
 
+> রাত্রি-দিবসে লোকের শুনি’ কোলাহল ।
+> বারাণসী ছাড়ি’ প্রভু আইলা নীলাচল ॥১৬১॥
+
 rātri-divase lokera śuni' kolāhala
 
 vārāṇasī chāḍi' prabhu āilā nīlācala

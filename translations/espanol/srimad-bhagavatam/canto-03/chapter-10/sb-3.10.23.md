@@ -1,5 +1,8 @@
 ### SB 3.10.23
 
+> खरोऽश्वोऽश्वतरो गौरः शरभश्चमरी तथा ।
+> एते चैकशफाः क्षत्तः शृणु पञ्चनखान्पशून् ॥२३॥
+
 > kharo 'śvo 'śvataro gauraḥ
 > śarabhaś camarī tathā
 > ete caika-śaphāḥ kṣattaḥ

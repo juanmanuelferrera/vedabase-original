@@ -1,5 +1,8 @@
 ### CC Antya 8.14
 
+> আগ্রহ করিয়া পুনঃ পুনঃ খাওয়াইল ।
+> আচমন কৈলে নিন্দা করিতে লাগিল ॥১৪॥
+
 āgraha kariyā punaḥ punaḥ khāoyāila
 ācamana kaile nindā karite lāgila
 

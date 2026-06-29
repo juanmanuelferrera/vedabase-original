@@ -1,5 +1,8 @@
 ### CC Adi 17.22
 
+> কলিকালে নামরূপে কৃষ্ণ-অবতার ।
+> নাম হৈতে হয় সর্বজগৎ-নিস্তার ॥২২॥
+
 kali-kāle nāma-rūpe kṛṣṇa-avatāra
 nāma haite haya sarva-jagat-nistāra
 

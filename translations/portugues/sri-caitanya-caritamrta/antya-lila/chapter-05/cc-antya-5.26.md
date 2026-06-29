@@ -1,5 +1,8 @@
 ### CC Antya 5.26
 
+> প্রতিদিন রায় ঐছে করায় সাধন ।
+> কোন্ জানে ক্ষুদ্র জীব কাঁহা তাঁর মন ? ॥ ২৬ ॥
+
 prati-dina rāya aiche karāya sādhana
 
 kon jāne kṣudra jīva kāṅhā tāṅra mana?

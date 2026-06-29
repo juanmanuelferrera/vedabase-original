@@ -1,5 +1,8 @@
 ### CC Adi 5.207
 
+> এমন নির্ঘৃণ মোরে কেবা কৃপা করে ।
+> এক নিত্যানন্দ বিনু জগৎ ভিতরে ॥২০৭॥
+
 emana nirghṛṇa more kebā kṛpā kare
 
 eka nityānanda vinu jagat bhitare

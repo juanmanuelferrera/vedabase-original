@@ -1,5 +1,7 @@
 ### CC Madhya 24.78
 
+> আততত্বাচ্চ মাতৃত্বাদাত্মা হি পরমো হরিঃ ॥৭৮॥
+
 ātatatvāc ca mātṛtvād
 
 ātmā hi paramo hariḥ

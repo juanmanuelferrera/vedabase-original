@@ -1,5 +1,8 @@
 ### CC Antya 15.12
 
+> কৃষ্ণের বিয়োগে রাধার উৎকণ্ঠিত মন ।
+> বিশাখারে কহে আপন উৎকণ্ঠা-কারণ ॥১২॥
+
 > kṛṣṇera viyoge rādhāra utkaṇṭhita mana
 > viśākhāre kahe āpana utkaṇṭhā-kāraṇa
 

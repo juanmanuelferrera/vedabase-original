@@ -1,5 +1,8 @@
 ### CC Madhya 14.7
 
+> আঁখি মুদি’ প্রভু প্রেমে ভূমিতে শয়ান ।
+> নৃপতি নৈপুণ্যে করে পাদ-সম্বাহন ॥৭॥
+
 āṅkhi mudi' prabhu preme bhūmite śayāna
 nṛpati naipuṇye kare pāda-saṁvāhana
 

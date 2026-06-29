@@ -1,5 +1,8 @@
 ### CC Antya 10.82
 
+> গম্ভীরার দ্বারে করেন আপনে শয়ন ।
+> গোবিন্দ আসিয়া করে পাদ-সম্বাহন ॥৮২॥
+
 > gambhīrāra dvāre karena āpane śayana
 > govinda āsiyā kare pāda-samvāhana
 

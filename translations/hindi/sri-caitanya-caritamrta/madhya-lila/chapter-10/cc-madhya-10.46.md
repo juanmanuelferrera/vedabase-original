@@ -1,5 +1,8 @@
 ### CC Madhya 10.46
 
+> প্রহররাজ মহাপাত্র ইঁহ মহামতি ।
+> পরমানন্দ মহাপাত্র ইঁহার সংহতি ॥৪৬॥
+
 > prahararāja mahāpātra iṅha mahā-mati
 > paramānanda mahāpātra iṅhāra saṁhati
 

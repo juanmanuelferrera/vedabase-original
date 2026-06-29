@@ -1,5 +1,8 @@
 ### CC Madhya 16.25
 
+> সব ঠাকুরাণী মহাপ্রভুকে ভিক্ষা দিতে ।
+> প্রভুর নানা প্রিয় দ্রব্য নিল ঘর হৈতে ॥২৫॥
+
 saba ṭhākurāṇī mahāprabhuke bhikṣā dite
 
 prabhura nānā priya dravya nila ghara haite

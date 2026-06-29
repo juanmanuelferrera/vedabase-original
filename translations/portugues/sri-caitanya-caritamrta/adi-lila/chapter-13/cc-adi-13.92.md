@@ -1,5 +1,8 @@
 ### CC Adi 13.92
 
+> এত জানি’ রাহু কৈল চন্দ্রের গ্রহণ ।
+> ‘কৃষ্ণ’ ‘কৃষ্ণ’ ‘হরি’ নামে ভাসে ত্রিভুবন ॥৯২॥
+
 eta jāni' rāhu kaila candrera grahaṇa
 
 'kṛṣṇa' 'kṛṣṇa' 'hari' nāme bhāse tri-bhuvana

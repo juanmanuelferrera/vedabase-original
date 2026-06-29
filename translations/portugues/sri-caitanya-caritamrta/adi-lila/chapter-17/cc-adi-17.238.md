@@ -1,5 +1,8 @@
 ### CC Adi 17.238
 
+> তাহি মধ্যে ছয়ঋতু লীলার বর্ণন ।
+> মধুপান, রাসোৎসব, জলকেলি কথন ॥২৩৮॥
+
 tāhi madhye chaya-ṛtu līlāra varṇana
 
 madhu-pāna, rāsotsava, jala-keli kathana

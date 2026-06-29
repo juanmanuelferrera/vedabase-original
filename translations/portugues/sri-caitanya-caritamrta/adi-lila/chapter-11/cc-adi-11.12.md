@@ -1,5 +1,8 @@
 ### CC Adi 11.12
 
+> সেই বীরভদ্র-গোসাঞির লইনু শরণ ।
+> যাঁহার প্রসাদে হয় অভীষ্ট-পূরণ ॥১২॥
+
 sei vīrabhadra-gosāñira la-inu śaraṇa
 yāṅhāra prasāde haya abhīṣṭa-pūraṇa
 

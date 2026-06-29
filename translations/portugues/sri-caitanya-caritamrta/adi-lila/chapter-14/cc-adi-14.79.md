@@ -1,5 +1,8 @@
 ### CC Adi 14.79
 
+> মিশ্র কহে, — এই বড় অদ্ভুত কাহিনী ।
+> শিশুর শূন্যপদে কেনে নূপুরের ধ্বনি ॥৭৯॥
+
 miśra kahe,--ei baḍa adbhuta kāhinī
 
 śiśura śūnya-pade kene nūpurera dhvani

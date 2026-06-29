@@ -1,5 +1,8 @@
 ### CC Madhya 11.55
 
+> প্রেমাবেশে পুষ্পোদ্যানে করিবেন প্রবেশ ।
+> সেইকালে একলে তুমি ছাড়ি’ রাজবেশ ॥৫৫॥
+
 > premāveśe puṣpodyāne karibena praveśa
 > sei-kāle ekale tumi chāḍi' rāja-veśa
 

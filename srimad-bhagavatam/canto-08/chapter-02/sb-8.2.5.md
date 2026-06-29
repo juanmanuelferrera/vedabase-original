@@ -1,5 +1,8 @@
 ### SB 8.2.5
 
+> सिद्धचारणगन्धर्वैर्विद्याधरमहोरगैः
+> किन्नरैरप्सरोभिश्च क्रीडद्भिर्जुष्टकन्दरः ॥५॥
+
 > siddha-cāraṇa-gandharvair
 > vidyādhara-mahoragaiḥ
 > kinnarair apsarobhiś ca

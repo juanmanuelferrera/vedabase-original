@@ -1,5 +1,8 @@
 ### CC Antya 2.4
 
+> সাক্ষাৎ-দর্শন, আর যোগ্যভক্ত-জীবে ।
+> ‘আবেশ’ করয়ে কাহাঁ, কাহাঁ ‘আবির্ভাবে’ ॥৪॥
+
 sākṣāt-darśana, āra yogya-bhakta-jīve
 'āveśa' karaye kāhāṅ, kāhāṅ 'āvirbhāve'
 

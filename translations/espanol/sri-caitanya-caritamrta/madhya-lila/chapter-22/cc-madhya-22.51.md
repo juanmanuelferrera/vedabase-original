@@ -1,5 +1,8 @@
 ### CC Madhya 22.51
 
+> মহৎ-কৃপা বিনা কোন কর্মে ‘ভক্তি’ নয় ।
+> কৃষ্ণভক্তি দূরে রহু, সংসার নহে ক্ষয় ॥৫১॥
+
 > jāta-śraddhas tu yaḥ pumān
 > na nirviṇṇo nātisakto
 > bhakti-yogo 'sya siddhidaḥ

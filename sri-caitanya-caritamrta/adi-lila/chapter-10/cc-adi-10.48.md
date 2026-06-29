@@ -1,5 +1,8 @@
 ### CC Adi 10.48
 
+> তাঁর উপশাখা, — যত কুলীনগ্রামী জন ।
+> সত্যরাজ-আদি — তাঁর কৃপার ভাজন ॥৪৮॥
+
 > tāṅra upaśākhā—yata kulīna-grāmī jana
 > satyarāja-ādi—tāṅra kṛpāra bhājana
 

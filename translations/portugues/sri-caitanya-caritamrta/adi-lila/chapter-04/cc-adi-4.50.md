@@ -1,5 +1,8 @@
 ### CC Adi 4.50
 
+> অতএব সেই ভাব অঙ্গীকার করি’ ।
+> সাধিলেন নিজ বাঞ্ছা গৌরাঙ্গ-শ্রীহরি ॥৫০॥
+
 ataeva sei bhāva aṅgīkāra kari'
 sādhilena nija vāñchā gaurāṅga-śrī-hari
 

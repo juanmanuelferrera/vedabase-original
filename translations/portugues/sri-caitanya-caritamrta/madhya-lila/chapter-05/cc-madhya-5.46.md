@@ -1,5 +1,8 @@
 ### CC Madhya 5.46
 
+> এত শুনি’ বিপ্রের চিন্তিত হৈল মন ।
+> একান্ত-ভাবে চিন্তে বিপ্র গোপাল-চরণ ॥৪৬॥
+
 eta śuni' viprera cintita haila mana
 
 ekānta-bhāve cinte vipra gopāla-caraṇa

@@ -1,5 +1,8 @@
 ### CC Madhya 8.100
 
+> অনয়ারাধিতো নূনং ভগবান্ হরিরীশ্বরঃ ।
+> যন্নো বিহায় গোবিন্দঃ প্রীতো যামনয়দ্রহঃ ॥১০০॥
+
 > anayārādhito nūnaṁ
 > bhagavān harir īśvaraḥ
 > yan no vihāya govindaḥ

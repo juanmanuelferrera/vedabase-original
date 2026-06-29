@@ -1,5 +1,8 @@
 ### CC Adi 17.110
 
+> প্রভু হাসি’ কৈলা, — তুমি কিছু না জানিলা ।
+> পূর্বে আমি আছিলাঙ জাতিতে গোয়ালা ॥১১০॥
+
 > prabhu hāsi' kailā,—tumi kichu nā jānilā
 > pūrve āmi āchilāṅ jātite goyālā
 

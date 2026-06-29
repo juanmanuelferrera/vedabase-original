@@ -1,5 +1,8 @@
 ### CC Antya 4.238
 
+> চৈতন্যচরিত্র এই — ইক্ষুদণ্ড-সম ।
+> চর্বণ করিতে হয় রস-আস্বাদন ॥২৩৮॥
+
 caitanya-caritra ei--ikṣu-daṇḍa-sama
 
 carvaṇa karite haya rasa-āsvādana

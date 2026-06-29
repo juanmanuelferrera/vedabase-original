@@ -1,5 +1,8 @@
 ### CC Madhya 22.106
 
+> শ্রবণাদি-ক্রিয়া — তার ‘স্বরূপ’-লক্ষণ ।
+> ‘তটস্থ’-লক্ষণে উপজায় প্রেমধন ॥১০৬॥
+
 > śravaṇādi-kriyā--tāra 'svarūpa'-lakṣaṇa
 > 'taṭastha'-lakṣaṇe upajāya prema-dhana
 

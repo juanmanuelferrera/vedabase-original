@@ -1,5 +1,8 @@
 ### CC Adi 12.47
 
+> আচার্য কহে, ইহাকে কেনে দিলে দরশন ।
+> দুই প্রকারেতে করে মোরে বিড়ম্বন ॥৪৭॥
+
 ācārya kahe, ihāke kene dile daraśana
 dui prakārete kare more viḍambana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 25.169
 
+> কাশীতে গ্রাহক নাহি, বস্তু না বিকায় ।
+> পুনরপি দেশে বহি’ লওয়া নাহি যায় ॥১৬৯॥
+
 > kāśīte grāhaka nāhi, vastu nā vikāya
 > punarapi deśe vahi' laoyā nāhi yāya
 

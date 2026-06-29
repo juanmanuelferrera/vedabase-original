@@ -1,5 +1,8 @@
 ### CC Madhya 23.119
 
+> তবে সনাতন প্রভুর চরণে ধরিয়া ।
+> নিবেদন করে দন্তে তৃণ-গুচ্ছ লঞা ॥১১৯॥
+
 tabe sanātana prabhura caraṇe dhariyā
 
 nivedana kare dante tṛṇa-guccha lañā

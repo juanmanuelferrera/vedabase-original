@@ -1,5 +1,8 @@
 ### CC Madhya 15.218
 
+> রসালা-মথিত দধি, সন্দেশ অপার  ।
+> গৌড়ে উৎকলে যত ভক্ষ্যের প্রকার ॥২১৮॥
+
 rasālā-mathita dadhi, sandeśa apāra
 
 gauḍe utkale yata bhakṣyera prakāra

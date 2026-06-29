@@ -1,5 +1,7 @@
 ### SB 5.14.27
 
+> अध्वन्यमुष्मिन्निम उपसर्गास्तथा सुखदुःखरागद्वेषभयाभिमानप्रमादोन्मादशोकमोहलोभमात्सर्येर्ष्यावमानक्षुत्पिपासाधिव्याधिजन्मजरामरणादयः ॥२७॥
+
 > adhvany amuṣminn ima upasargās tathā sukha-duḥkha-rāga-dveṣa-bhayābhimāna-pramādonmāda-śoka-moha-lobha-mātsaryerṣyāva-māna-kṣut-pipāsādhi-vyādhi-janma-jarā-maraṇādayaḥ.
 
 *adhvani*—en la senda de la existencia material; *amuṣmin*—además de eso; *ime*—todas estas; *upasargāḥ*—dificultades eternas; *tathā*—y también estas; *sukha*—lo que se llama felicidad; *duḥkha*—infelicidad; *rāga*—apego; *dveṣa*—odio; *bhaya*—temor; *abhimāna*—prestigio falso; *pramāda*—ilusión; *unmāda*—locura; *śoka*—lamentación; *moha*—confusión; *lobha*—codicia; *mātsarya*—envidia; *īrṣya*—enemistad; *avamāna*—insulto; *kṣut*—hambre; *pipāsā*—sed; *ādhi*—tribulaciones; *vyādhi*—enfermedad; *janma*—nacimiento; *jarā*—vejez; *maraṇa*—muerte; *ādayaḥ*—etc.

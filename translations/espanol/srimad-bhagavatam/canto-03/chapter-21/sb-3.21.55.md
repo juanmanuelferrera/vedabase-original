@@ -1,5 +1,8 @@
 ### SB 3.21.55
 
+> अधर्मश्च समेधेत लोलुपैर्व्यङ्कुशैर्नृभिः ।
+> शयाने त्वयि लोकोऽयं दस्युग्रस्तो विनङ्क्ष्यति ॥५५॥
+
 > adharmaś ca samedheta
 > lolupair vyaṅkuśair nṛbhiḥ
 > śayāne tvayi loko 'yaṁ

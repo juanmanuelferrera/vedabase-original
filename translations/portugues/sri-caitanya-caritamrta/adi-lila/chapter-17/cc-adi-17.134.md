@@ -1,5 +1,8 @@
 ### CC Adi 17.134
 
+> সন্ধ্যাতে দেউটি সবে জ্বাল ঘরে ঘরে ।
+> দেখ, কোন কাজী আসি’ মোরে মানা করে ॥১৩৪॥
+
 sandhyāte deuṭi sabe jvāla ghare ghare
 dekha, kona kājī āsi' more mānā kare
 

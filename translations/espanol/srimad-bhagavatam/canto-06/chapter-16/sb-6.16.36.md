@@ -1,5 +1,8 @@
 ### SB 6.16.36
 
+> परमाणुपरममहतोस्त्वमाद्यन्तान्तरवर्ती त्रयविधुरः
+> आदावन्तेऽपि च सत्त्वानां यद्ध्रुवं तदेवान्तरालेऽपि ॥३६॥
+
 > paramāṇu-parama-mahatos
 > tvam ādy-antāntara-vartī traya-vidhuraḥ
 > ādāv ante 'pi ca sattvānāṁ

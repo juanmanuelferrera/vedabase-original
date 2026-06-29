@@ -1,5 +1,8 @@
 ### CC Antya 20.41
 
+> গোবিন্দ-বিরহে শূন্য হইল ত্রিভুবন ।
+> তুষানলে পোড়ে, — যেন না যায় জীবন ॥৪১॥
+
 govinda-virahe śūnya ha-ila tribhuvana
 
 tuṣānale poḍe,--yena nā yāya jīvana

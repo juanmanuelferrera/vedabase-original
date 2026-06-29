@@ -1,5 +1,8 @@
 ### CC Madhya 16.159
 
+> পিছলদা পর্যন্ত সব তাঁর অধিকার ।
+> তাঁর ভয়ে নদী কেহ হৈতে নারে পার ॥১৫৯॥
+
 > pichaladā paryanta saba tāṅra adhikāra
 > tāṅra bhaye nadī keha haite nāre pāra
 

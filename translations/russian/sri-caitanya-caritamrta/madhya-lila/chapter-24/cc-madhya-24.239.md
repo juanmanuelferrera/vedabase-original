@@ -1,5 +1,8 @@
 ### CC Madhya 24.239
 
+> নারদ কহে, — “পথ ভুলি’ আইলাঙ পুছিতে ।
+> মনে এক সংশয় হয়, তাহা খণ্ডাইতে ॥২৩৯॥
+
 > nārada kahe,—"patha bhuli' āilāṅa puchite
 > mane eka saṁśaya haya, tāhā khaṇḍāite
 

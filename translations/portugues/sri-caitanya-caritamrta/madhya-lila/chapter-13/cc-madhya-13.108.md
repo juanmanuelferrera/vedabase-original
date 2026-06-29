@@ -1,5 +1,8 @@
 ### CC Madhya 13.108
 
+> কভু ভূমে পড়ে, কভু শ্বাস হয় হীন ।
+> যাহা দেখি’ ভক্তগণের প্রাণ হয় ক্ষীণ ॥১০৮॥
+
 kabhu bhūme paḍe, kabhu śvāsa haya hīna
 
 yāhā dekhi' bhakta-gaṇera prāṇa haya kṣīṇa

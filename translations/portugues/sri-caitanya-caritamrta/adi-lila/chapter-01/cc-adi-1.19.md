@@ -1,5 +1,8 @@
 ### CC Adi 1.19
 
+> এই তিন ঠাকুর গৌড়ীয়াকে করিয়াছেন আত্মসাৎ ।
+> এ তিনের চরণ বন্দোঁ, তিনে মোর নাথ ॥১৯॥
+
 ei tina ṭhākura gauḍīyāke kariyāchena ātmasāt
 e tinera caraṇa vandoṅ, tine mora nātha
 

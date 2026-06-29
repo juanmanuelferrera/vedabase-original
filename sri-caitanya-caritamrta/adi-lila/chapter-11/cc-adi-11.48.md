@@ -1,5 +1,8 @@
 ### CC Adi 11.48
 
+> নকড়ি, মুকুন্দ, সূর্য, মাধব, শ্রীধর ।
+> রামানন্দ বসু, জগন্নাথ, মহীধর ॥৪৮॥
+
 > nakaḍi, mukunda, sūrya, mādhava, śrīdhara
 > rāmānanda vasu, jagannātha, mahīdhara
 

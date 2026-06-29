@@ -1,5 +1,8 @@
 ### CC Antya 15.54
 
+> কৃষ্ণের বিয়োগে এই সেবক দুঃখিত ।
+> কিবা উত্তর দিবে? ইহার নাহিক সম্বিৎ ।।” ॥ ৫৪ ॥
+
 kṛṣṇera viyoge ei sevaka duḥkhita
 
 kibā uttara dibe? ihāra nāhika samvit"

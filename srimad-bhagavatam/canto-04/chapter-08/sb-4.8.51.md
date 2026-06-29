@@ -1,5 +1,8 @@
 ### SB 4.8.51
 
+> स्मयमानमभिध्यायेत्सानुरागावलोकनम् ।
+> नियतेनैकभूतेन मनसा वरदर्षभम् ॥५१॥
+
 > smayamānam abhidhyāyet
 > sānurāgāvalokanam
 > niyatenaika-bhūtena

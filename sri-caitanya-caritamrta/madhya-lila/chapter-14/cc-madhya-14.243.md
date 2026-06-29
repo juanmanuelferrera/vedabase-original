@@ -1,5 +1,8 @@
 ### CC Madhya 14.243
 
+> উদ্যানে আসিয়া কৈল বন-ভোজন ।
+> এইমত ক্রীড়া কৈল প্রভু অষ্টদিন ॥২৪৩॥
+
 > udyāne āsiyā kaila vana-bhojana
 > ei-mata krīḍā kaila prabhu aṣṭa-dina
 

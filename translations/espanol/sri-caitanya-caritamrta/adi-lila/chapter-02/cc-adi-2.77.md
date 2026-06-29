@@ -1,5 +1,8 @@
 ### CC Adi 2.77
 
+> যৈছে কহি, — এই বিপ্র পরম পণ্ডিত ।
+> বিপ্র — অনুবাদ, ইহার বিধেয় — পাণ্ডিত্য ॥৭৭॥
+
 > yaiche kahi,--ei vipra parama paṇḍita
 > vipra--anuvāda, ihāra vidheya--pāṇḍitya
 

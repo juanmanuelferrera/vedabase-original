@@ -1,5 +1,8 @@
 ### CC Antya 8.56
 
+> রামচন্দ্রপুরীকে সবায় দেয় তিরস্কার ।
+> ‘এই পাপিষ্ঠ আসি’ প্রাণ লইল সবার’ ॥৫৬॥
+
 rāmacandra-purīke sabāya deya tiraskāra
 
 'ei pāpiṣṭha āsi' prāṇa la-ila sabāra'

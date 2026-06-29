@@ -1,5 +1,8 @@
 ### SB 7.8.14
 
+> सोऽहं विकत्थमानस्य शिरः कायाद्धरामि ते
+> गोपायेत हरिस्त्वाद्य यस्ते शरणमीप्सितम ॥१४॥
+
 evaṁ duruktair muhur ardayan ruṣā
 
 *sutaṁ mahā*-bhāgavataṁ mahāsuraḥ

@@ -1,5 +1,8 @@
 ### CC Antya 8.88
 
+> অভোজ্যান্ন বিপ্র যদি করেন নিমন্ত্রণ ।
+> প্রসাদ-মূল্য লইতে লাগে কৌড়ি দুইপণ ॥৮৮॥
+
 abhojyānna vipra yadi karena nimantraṇa
 
 prasāda-mūlya la-ite lāge kauḍi dui-paṇa

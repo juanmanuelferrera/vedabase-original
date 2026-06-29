@@ -1,5 +1,8 @@
 ### CC Madhya 24.220
 
+> এই চারি অর্থ সহ হইল ‘তেইশ’ অর্থ ।
+> আর তিন অর্থ শুন পরম সমর্থ ॥২২০॥
+
 ei cāri artha saha ha-ila 'teiśa' artha
 
 āra tina artha śuna parama samartha

@@ -1,5 +1,8 @@
 ### CC Madhya 17.24
 
+> প্রসিদ্ধ পথ ছাড়ি’ প্রভু উপপথে চলিলা ।
+> ‘কটক’ ডাহিনে করি’ বনে প্রবেশিলা ॥২৪॥
+
 > prasiddha patha chāḍi' prabhu upapathe calilā
 > 'kaṭaka' ḍāhine kari' vane praveśilā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 20.121
 
+> দৈবী হ্যেষা গুণময়ী মম মায়া দুরত্যয়া ।
+> মামেব যে প্রপদ্যন্তে মায়ামেতাং তরন্তি তে ॥১২১॥
+
 > daivī hy eṣā guṇa-mayī
 > mama māyā duratyayā
 > mām eva ye prapadyante

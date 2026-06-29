@@ -1,5 +1,8 @@
 ### CC Antya 5.130
 
+> তার দুঃখ দেখি’ স্বরূপ সদয়-হৃদয়  ।
+> উপদেশ কৈলা তারে যৈছে ‘হিত’ হয় ॥১৩০॥
+
 tāra duḥkha dekhi, svarūpa sadaya-hṛdaya
 
 upadeśa kailā tāre yaiche 'hita' haya

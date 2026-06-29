@@ -1,5 +1,8 @@
 ### CC Antya 13.87
 
+> প্রভু কহে, — “গোবিন্দ, মোর সঙ্গে রহিবা ।
+> যাহাঁ তাহাঁ মোর রক্ষায় সাবধান হইবা ।।” ॥ ৮৭ ॥
+
 prabhu kahe,--"govinda, mora saṅge rahibā
 
 yāhāṅ tāhāṅ mora rakṣāya sāvadhāna ha-ibā"

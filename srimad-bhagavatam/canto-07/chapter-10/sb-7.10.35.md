@@ -1,5 +1,8 @@
 ### SB 7.10.35
 
+> एवं च पार्षदौ विष्णोः पुत्रत्वं प्रापितौ दितेः
+> हृदि स्थितेन हरिणा वैरभावेन तौ हतौ ॥३५॥
+
 > evaṁ ca pārṣadau viṣṇoḥ
 > putratvaṁ prāpitau diteḥ
 > hṛdi sthitena hariṇā

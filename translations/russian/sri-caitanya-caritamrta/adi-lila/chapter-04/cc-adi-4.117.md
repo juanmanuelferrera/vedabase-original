@@ -1,5 +1,10 @@
 ### CC Adi 4.117
 
+> বাচা সূচিতশর্বরীরতিকলাপ্রাগল্ভ্যয়া রাধিকাং
+> ব্রীড়াকুঞ্চিতলোচনাং বিরচয়ন্নগ্রে সখীনামসৌ ।
+> তদ্বক্ষোরুহচিত্রকেলিমকরীপাণ্ডিত্যপারং গতঃ
+> কৈশোরং সফলীকরোতি কলয়ন্ কুঞ্জে বিহারং হরিঃ ॥১১৭॥
+
 > vācā sūcita-śarvarī-rati-kalā-prāgalbhyayā rādhikāṁ
 > vrīḍā-kuñcita-locanāṁ viracayann agre sakhīnām asau
 > tad-vakṣo-ruha-citra-keli-makarī-pāṇḍitya-pāraṁ gataḥ

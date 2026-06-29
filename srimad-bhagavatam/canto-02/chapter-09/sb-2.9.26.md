@@ -1,5 +1,8 @@
 ### SB 2.9.26
 
+> तथापि नाथमानस्य नाथ नाथय नाथितम् ।
+> परावरे यथा रूपेजानीयां ते त्वरूपिणः ॥२६॥
+
 > tathāpi nāthamānasya
 > nātha nāthaya nāthitam
 > parāvare yathā rūpe

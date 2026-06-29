@@ -1,5 +1,8 @@
 ### CC Madhya 4.160
 
+> গোপীনাথ আমার সে একই অঙ্গ হয় ।
+> ইঁহাকে চন্দন দিলে হবে মোর তাপ-ক্ষয় ॥১৬০॥
+
 gopīnātha āmāra se eka-i aṅga haya
 iṅhāke candana dile habe mora tāpa-kṣaya
 

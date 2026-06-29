@@ -1,5 +1,8 @@
 ### CC Antya 12.149
 
+> আপনে প্রভুর ‘শেষ’ করিলা ভোজন ।
+> তবে গোবিন্দেরে প্রভু পাঠাইলা পুনঃ ॥১৪৯॥
+
 > āpane prabhura 'śeṣa' karilā bhojana
 > tabe govindere prabhu pāṭhāilā punaḥ
 

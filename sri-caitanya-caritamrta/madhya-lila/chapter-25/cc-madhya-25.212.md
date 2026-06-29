@@ -1,5 +1,8 @@
 ### CC Madhya 25.212
 
+> গঙ্গাপথে দুইভাই রাজপথে সনাতন ।
+> অতএব তাঁহা সনে না হৈল মিলন ॥২১২॥
+
 > gaṅgā-pathe dui-bhāi rāja-pathe sanātana
 > ataeva tāṅhā sane nā haila milana
 

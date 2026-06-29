@@ -1,5 +1,8 @@
 ### CC Antya 13.52
 
+> রাতুল বস্ত্র দেখি’ পণ্ডিত প্রেমাবিষ্ট হইলা  ।
+> ‘মহাপ্রভুর প্রসাদ’ জানি’ তাঁহারে পুছিলা ॥৫২॥
+
 > rātula vastra dekhi' paṇḍita premāviṣṭa ha-ilā
 > 'mahāprabhura prasāda' jāni' tāṅhāre puchilā
 

@@ -1,5 +1,8 @@
 ### SB 3.22.8
 
+> स भवान्दुहितृस्नेह परिक्लिष्टात्मनो मम ।
+> श्रोतुमर्हसि दीनस्य श्रावितं कृपया मुने ॥८॥
+
 > sa bhavān duhitṛ-sneha-
 > parikliṣṭātmano mama
 > śrotum arhasi dīnasya

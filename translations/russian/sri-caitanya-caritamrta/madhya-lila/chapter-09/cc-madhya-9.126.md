@@ -1,5 +1,8 @@
 ### CC Madhya 9.126
 
+> তুমি সাক্ষাৎ সেই কৃষ্ণ, জান নিজকর্ম ।
+> যারে জানাহ, সেই জানে তোমার লীলামর্ম ॥১২৬॥
+
 > tumi sākṣāt sei kṛṣṇa, jāna nija-karma
 > yāre jānāha, sei jāne tomāra līlā-marma
 

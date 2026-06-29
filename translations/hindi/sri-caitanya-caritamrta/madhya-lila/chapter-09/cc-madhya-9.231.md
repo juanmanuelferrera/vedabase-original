@@ -1,5 +1,8 @@
 ### CC Madhya 9.231
 
+> শুনি’ সব ভট্টথারি উঠে অস্ত্র লঞা ।
+> মারিবারে আইল সবে চারিদিকে ধাঞা ॥২৩১॥
+
 > suna' saba bhaṭṭathāri uṭhe astra lañā
 > māribāre āila sabe cāri-dike dhāñā
 

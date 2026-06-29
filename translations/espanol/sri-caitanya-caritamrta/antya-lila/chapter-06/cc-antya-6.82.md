@@ -1,5 +1,8 @@
 ### CC Antya 6.82
 
+> কি করিয়া বেড়ায়, — ইহা কেহ নাহি জানে ।
+> মহাপ্রভুর দর্শন পায় কোন ভাগ্যবানে ॥৮২॥
+
 > ki kariyā beḍāya,--ihā keha nāhi jāne
 > mahāprabhura darśana pā ya kona bhāgyavāne
 

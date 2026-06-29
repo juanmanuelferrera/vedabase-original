@@ -1,5 +1,8 @@
 ### CC Madhya 10.1
 
+> তং বন্দে গৌরজলদং স্বস্য যো দর্শনামৃতৈঃ ।
+> বিচ্ছেদাবগ্রহম্লান-ভক্তশস্যান্যজীবয়ৎ ॥১॥
+
 > taṁ vande gaura-jaladaṁ
 > svasya yo darśanāmṛtaiḥ
 > vicchedāvagraha-mlāna-

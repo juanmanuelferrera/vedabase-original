@@ -1,5 +1,8 @@
 ### CC Antya 9.117
 
+> প্রভু কহে, — “কাশীমিশ্র, কি তুমি করিলা ?
+> রাজ-প্রতিগ্রহ তুমি আমা’ করাইলা ?” ॥ ১১৭ ॥
+
 prabhu kahe,--"kāśī-miśra, ki tumi karilā?
 
 rāja-pratigraha tumi āmā' karāilā?"

@@ -1,5 +1,8 @@
 ### CC Adi 16.110
 
+> চৈতন্য-গোসাঞির লীলা — অমৃতের ধার ।
+> সর্বেন্দ্রিয় তৃপ্ত হয় শ্রবণে যাহার ॥১১০॥
+
 caitanya-gosāñira līlā--amṛtera dhāra
 
 sarvendriya tṛpta haya śravaṇe yāhāra

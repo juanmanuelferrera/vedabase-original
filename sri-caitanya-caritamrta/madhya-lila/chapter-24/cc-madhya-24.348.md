@@ -1,5 +1,10 @@
 ### CC Madhya 24.348
 
+> গৌড়েন্দ্রস্য সভা-বিভূষণমণিস্ত্যক্ত্বা য ঋদ্ধাং শ্রিয়ং
+> রূপস্যাগ্রজ এষ এব তরুণীং বৈরাগ্যলক্ষ্মীং দধে ।
+> অন্তর্ভক্তিরসেন পূর্ণহৃদয়ো বাহ্যেহ্বধূতাকৃতিঃ
+> শৈবালৈঃ পিহিতং মহা-সর ইব প্রীতিপ্রদস্তদ্বিদাম্ ॥৩৪৮॥
+
 > gauḍendrasya sabhā-vibhūṣaṇa-maṇis tyaktvā ya ṛddhāṁ śriyaṁ
 > rūpasyāgraja eṣa eva taruṇīṁ vairāgya-lakṣmīṁ dadhe
 > antar-bhakti-rasena pūrṇa-hṛdayo bāhye 'vadhūtākṛtiḥ

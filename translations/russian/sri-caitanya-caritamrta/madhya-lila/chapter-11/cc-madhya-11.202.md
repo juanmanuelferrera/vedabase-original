@@ -1,5 +1,8 @@
 ### CC Madhya 11.202
 
+> স্বরূপ-গোসাঞি প্রভুকে কৈল নিবেদন ।
+> তুমি না বসিলে কেহ না করে ভোজন ॥২০২॥
+
 > svarūpa-gosāñi prabhuke kaila nivedana
 > tumi nā vasile keha nā kare bhojana
 

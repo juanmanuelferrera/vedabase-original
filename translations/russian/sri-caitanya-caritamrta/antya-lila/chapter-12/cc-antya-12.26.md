@@ -1,5 +1,8 @@
 ### CC Antya 12.26
 
+> চরণে ধরিয়া প্রভুরে বাসায় লঞা গেলা ।
+> বাসা দিয়া হৃষ্ট হঞা কহিতে লাগিলা ॥২৬॥
+
 > caraṇe dhariyā prabhure vāsāya lañā gelā
 > vāsā diyā hṛṣṭa hañā kahite lāgilā
 

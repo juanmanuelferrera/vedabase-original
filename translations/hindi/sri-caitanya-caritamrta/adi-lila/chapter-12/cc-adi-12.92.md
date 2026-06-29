@@ -1,5 +1,8 @@
 ### CC Adi 12.92
 
+> যাঁ-সবা-স্মরণে পাই চৈতন্যচরণ ।
+> যাঁ-সবা-স্মরণে হয় বাঞ্ছিত পূরণ ॥৯২॥
+
 > yāṅ-sabā-smaraṇe pāi caitanya-caraṇa
 > yāṅ-sabā-smaraṇe haya vāñchita pūraṇa
 

@@ -1,5 +1,8 @@
 ### CC Antya 6.290
 
+> দুই অপূর্ব-বস্তু পাঞা প্রভু তুষ্ট হৈলা ।
+> স্মরণের কালে গলে পরে গুঞ্জামালা ॥২৯০॥
+
 dui apūrva-vastu pāñā prabhu tuṣṭa hailā
 
 smaraṇera kāle gale pare guñjā-mālā

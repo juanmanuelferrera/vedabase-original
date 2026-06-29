@@ -1,5 +1,7 @@
 ### SB 5.14.20
 
+> स एव पुनर्निद्राजगरगृहीतोऽन्धे तमसि मग्नः शून्यारण्य इव शेते नान्यत्किञ्चन वेद शवइवापविद्धः ॥२०॥
+
 *sa eva punar nidrājagara*-gṛhīto 'ndhe tamasi magnaḥ śūnyāraṇya iva śete nānyat-kiñcana veda śava ivāpaviddhaḥ.
 
 *saḥ*—essa alma condicionada; *eva*—certamente; *punaḥ*—novamente; *nidrā-ajagara*—pela jiboia do sono profundo; *gṛhītaḥ*—sendo devorada; *andhe*—na escuridão profunda; *tamasi*—em ignorância; *magnaḥ*—sendo absorvida; *śūnya-araṇye*—na floresta isolada; *iva*—como; *śete*—jaz; *na*—não; *anyat*—outra coisa; *kiñcana*—qualquer coisa; *veda*—sabe; *śavaḥ*—um cadáver; *iva*—como; *apaviddhaḥ*—jogado fora.

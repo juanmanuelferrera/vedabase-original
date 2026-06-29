@@ -1,5 +1,8 @@
 ### CC Madhya 25.118
 
+> মায়াতীত হৈলে হয় আমার ‘অনুভব’ ।
+> এই ‘সম্বন্ধ’-তত্ত্ব কহিলুঁ, শুন আর সব ॥১১৮॥
+
 māyātīta haile haya āmāra 'anubhava'
 
 ei 'sambandha'-tattva kahiluṅ, śuna āra saba

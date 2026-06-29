@@ -1,5 +1,8 @@
 ### CC Adi 14.36
 
+> এইমতে নানা-ছলে ঐশ্বর্য দেখায় ।
+> বাল্যভাব প্রকটিয়া পশ্চাৎ লুকায় ॥৩৬॥
+
 eimate nānā-chale aiśvarya dekhāya
 
 bālya-bhāva prakaṭiyā paścāt lukāya

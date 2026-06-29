@@ -1,5 +1,8 @@
 ### SB 8.5.41
 
+> विप्रो मुखाद्ब्रह्म च यस्य गुह्यं राजन्य आसीद्भुजयोर्बलं च
+> ऊर्वोर्विडोजोऽङ्घ्रिरवेदशूद्रौ प्रसीदतां नः स महाविभूतिः ॥४१॥
+
 > vipro mukhād brahma ca yasya guhyaṁ
 > rājanya āsīd bhujayor balaṁ ca
 > ūrvor viḍ ojo 'ṅghrir aveda-śūdrau

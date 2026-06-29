@@ -1,5 +1,9 @@
 ### CC Madhya 2.40
 
+> শুন মোর প্রাণের বান্ধব ।
+> নাহি কৃষ্ণ-প্রেমধন, দরিদ্র মোর জীবন,
+> দেহেন্দ্রিয় বৃথা মোর সব ॥৪০॥
+
 > śuna mora prāṇera bāndhava
 > nāhi kṛṣṇa-prema-dhana, daridra mora jīvana,
 > dehendriya vṛthā mora saba

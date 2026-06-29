@@ -1,5 +1,8 @@
 ### CC Madhya 6.97
 
+> ভাগবত-ভারত দুই শাস্ত্রের প্রধান  ।
+> সেই দুইগ্রন্থ-বাক্যে নাহি অবধান ॥৯৭॥
+
 bhāgavata-bhārata dui śāstrera pradhāna
 sei dui-grantha-vākye nāhi avadhāna
 

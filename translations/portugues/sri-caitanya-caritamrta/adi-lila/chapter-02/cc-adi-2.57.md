@@ -1,5 +1,8 @@
 ### CC Adi 2.57
 
+> সেই তিনের অংশী পরব্যোম-নারায়ণ ।
+> তেঁহ তোমার বিলাস, তুমি মূল-নারায়ণ ॥৫৭॥
+
 sei tinera aṁśī paravyoma-nārāyaṇa
 teṅha tomāra vilāsa, tumi mūla-nārāyaṇa
 

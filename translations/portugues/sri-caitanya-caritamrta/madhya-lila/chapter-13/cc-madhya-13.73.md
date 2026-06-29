@@ -1,5 +1,8 @@
 ### CC Madhya 13.73
 
+> শ্ৰীবাস, রামাই, রঘু, গোবিন্দ, মুকুন্দ ।
+> হরিদাস, গোবিন্দানন্দ, মাধব, গোবিন্দ ॥৭৩॥
+
 śrīvāsa, rāmāi, raghu, govinda, mukunda
 
 haridāsa, govindānanda, mādhava, govinda

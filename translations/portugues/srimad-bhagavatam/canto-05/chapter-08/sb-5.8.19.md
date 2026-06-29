@@ -1,5 +1,7 @@
 ### SB 5.8.19
 
+> निम्लोचति ह भगवान्सकलजगत्क्षेमोदयस्त्रय्यात्माद्यापि मम न मृगवधून्यासआगच्छति ॥१९॥
+
 *nimlocati ha bhagavān sakala*-jagat-kṣemodayas trayy-ātmādyāpi mama na mṛga-vadhū-nyāsa āgacchati.
 
 *nimlocati*—se põe; *ha*—ai de mim; *bhagavān*—a Suprema Personalidade de Deus, representada como o sol; *sakala-jagat*—de todo o universo; *kṣema-udayaḥ*—que aumenta a boa fortuna; *trayī-ātmā*—que consiste nos três *Vedas*; *adya api*—até agora; *mama*—meu; *na*—não; *mṛga-vadhū-nyāsaḥ*—este filhote de cervo confiado a mim por sua mãe; *āgacchati*—voltou.

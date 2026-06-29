@@ -1,5 +1,8 @@
 ### CC Madhya 17.42
 
+> ব্যাঘ্র-মৃগ অন্যোন্যে করে আলিঙ্গন ।
+> মুখে মুখ দিয়া করে অন্যোন্যে চুম্বন ॥৪২॥
+
 > vyāghra-mṛga anyonye kare āliṅgana
 > mukhe mukha diyā kare anyonye cumbana
 

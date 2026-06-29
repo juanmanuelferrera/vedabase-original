@@ -1,5 +1,8 @@
 ### CC Antya 19.57
 
+> প্রেমাবেশে মহাপ্রভুর গর-গর মন ।
+> নামসঙ্কীর্তন করি’ করেন জাগরণ ॥৫৭॥
+
 premāveśe mahāprabhura gara-gara mana
 
 nāma-saṅkīrtana kari' karena jāgaraṇa

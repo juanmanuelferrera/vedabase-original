@@ -1,5 +1,8 @@
 ### CC Adi 3.91
 
+> দ্বৌ ভূতসর্গৌ লোকেঽস্মিন্ দৈব আসুর এব চ ।
+> বিষ্ণুভক্তঃ স্মৃতো দৈব আসুরস্তদ্বিপর্যয়ঃ ॥৯১॥
+
 dvau bhūta-sargau loke 'smin
 daiva āsura eva ca
 viṣṇu-bhaktaḥ smṛto daiva

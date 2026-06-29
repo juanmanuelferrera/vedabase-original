@@ -1,5 +1,8 @@
 ### SB 2.5.37
 
+> पुरुषस्य मुखं ब्रह्म क्षत्रमेतस्य बाहवः ।
+> ऊर्वोर्वैश्यो भगवतः पद्भ्यां शूद्रो व्यजायत ॥३७॥
+
 > puruṣasya mukhaṁ brahma
 > kṣatram etasya bāhavaḥ
 > ūrvor vaiśyo bhagavataḥ

@@ -1,5 +1,8 @@
 ### Bg 3.38
 
+> धूमेनाव्रियते वह्निर्यथादर्शो मलेन च ।
+> यथोल्बेनावृतो गर्भस्तथा तेनेदमावृतम् ॥३८॥
+
 > dhūmenāvriyate vahnir
 > yathādarśo malena ca
 > yatholbenāvṛto garbhas

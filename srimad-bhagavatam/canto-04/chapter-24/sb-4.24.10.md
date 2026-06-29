@@ -1,5 +1,8 @@
 ### SB 4.24.10
 
+> यस्येदं देवयजनमनुयज्ञं वितन्वतः ।
+> प्राचीनाग्रैः कुशैरासीदास्तृतं वसुधातलम् ॥१०॥
+
 > yasyedaṁ deva-yajanam
 > anuyajñaṁ vitanvataḥ
 > prācīnāgraiḥ kuśair āsīd

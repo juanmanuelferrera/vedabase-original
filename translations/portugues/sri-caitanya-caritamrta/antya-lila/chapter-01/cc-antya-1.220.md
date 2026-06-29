@@ -1,5 +1,8 @@
 ### CC Antya 1.220
 
+> এত বলি’ প্রভু তাঁরে কৈলা আলিঙ্গন ।
+> রূপ গোসাঞি শিরে ধরে প্রভুর চরণ ॥২২০॥
+
 eta bali' prabhu tāṅre kailā āliṅgana
 
 rūpa gosāñi śire dhare prabhura caraṇa

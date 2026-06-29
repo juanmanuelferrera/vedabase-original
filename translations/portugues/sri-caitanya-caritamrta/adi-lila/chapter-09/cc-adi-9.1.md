@@ -1,5 +1,8 @@
 ### CC Adi 9.1
 
+> তং শ্রীমৎকৃষ্ণচৈতন্যদেবং বন্দে জগদ্গুরুম্ ।
+> যস্যানুকম্পয়া শ্বাপি মহাব্ধিং সন্তরেৎ সুখম্ ॥১॥
+
 taṁ śrīmat-kṛṣṇa-caitanya-
 devaṁ vande jagad-gurum
 yasyānukampayā śvāpi

@@ -1,5 +1,8 @@
 ### CC Madhya 19.74
 
+> শুচিঃ সদ্ভক্তিদীপ্তাগ্নিদগ্ধদুর্জাতিকল্মষঃ ।
+> শ্বপাকোঽপি বুধৈঃ শ্লাঘ্যো ন বেদজ্ঞোহপি নাস্তিকঃ ॥৭৪॥
+
 > śuciḥ sad-bhakti-dīptāgni-
 > dagdha-durjāti-kalmaṣaḥ
 > śvapāko 'pi budhaiḥ ślāgyo

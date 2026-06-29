@@ -1,5 +1,8 @@
 ### CC Adi 17.313
 
+> তাতে আদি-লীলার করি পরিচ্ছেদ গণন ।
+> প্রথম পরিচ্ছেদে কৈলুঁ ‘মঙ্গলাচরণ’ ॥৩১৩॥
+
 > tāte ādi-līlāra kari pariccheda gaṇana
 > prathama paricchede kailuṅ 'maṅgalācaraṇa'
 

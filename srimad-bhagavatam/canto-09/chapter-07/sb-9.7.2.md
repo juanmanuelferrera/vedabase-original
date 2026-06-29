@@ -1,5 +1,8 @@
 ### SB 9.7.2
 
+> नर्मदा भ्रातृभिर्दत्ता पुरुकुत्साय योरगैः
+> तया रसातलं नीतो भुजगेन्द्रप्रयुक्तया ॥२॥
+
 > narmadā bhrātṛbhir dattā
 > purukutsāya yoragaiḥ
 > tayā rasātalaṁ nīto

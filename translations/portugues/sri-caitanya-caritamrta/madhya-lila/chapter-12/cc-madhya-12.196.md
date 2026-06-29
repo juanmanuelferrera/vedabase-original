@@ -1,5 +1,8 @@
 ### CC Madhya 12.196
 
+> এইমত দুইজনে করে বলাবলি ।
+> ব্যাজ-স্তুতি করে দুঁহে, যেন গালাগালি ॥১৯৬॥
+
 ei-mata dui-jane kare balābali
 
 vyāja-stuti kare duṅhe, yena gālāgāli

@@ -1,5 +1,7 @@
 ### SB 5.2.21
 
+> आग्नीध्रसुतास्ते मातुरनुग्रहादौत्पत्तिकेनैव संहननबलोपेताः पित्रा विभक्ता आत्मतुल्यनामानि यथाभागं जम्बूद्वीपवर्षाणि बुभुजुः ॥२१॥
+
 *āgnīdhra*-sutās te mātur anugrahād autpattikenaiva saṁhanana-balopetāḥ pitrā vibhaktā ātma-tulya-nāmāni yathā-bhāgaṁ jambūdvīpa-varṣāṇi bubhujuḥ.
 
 *āgnīdhra-sutāḥ*—os filhos de Mahārāja Āgnīdhra; *te*—eles; *mātuḥ*—da mãe; *anugrahāt*—pela misericórdia ou por beber o leite materno; *autpattikena*—naturalmente; *eva*—certamente; *saṁhanana*—corpo bem constituído; *bala*—força; *upetāḥ*—obtiveram; *pitrā*—pelo pai; *vibhaktāḥ*—divididos; *ātma-tulya*—conforme os seus próprios; *nāmāni*—tendo nomes; *yathā-bhāgam*—devidamente divididas; *jambūdvīpa-varṣāṇi*—diferentes partes de Jambūdvīpa (provavelmente a Ásia e a Europa juntas); *bubhujuḥ*—governaram.

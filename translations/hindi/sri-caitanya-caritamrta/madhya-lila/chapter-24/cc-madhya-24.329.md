@@ -1,5 +1,8 @@
 ### CC Madhya 24.329
 
+> তথাপি এই সূত্রের শুন দিগ্দরশন ।
+> সকারণ লিখি আদৌ গুরু-আশ্রয়ণ ॥৩২৯॥
+
 > tathāpi ei sūtrera śuna dig-daraśana
 > sakāraṇa likhi ādau guru-āśrayaṇa
 

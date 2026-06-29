@@ -1,5 +1,8 @@
 ### CC Madhya 4.155
 
+> গোপীনাথ-চরণে কৈল বহু নমস্কার ।
+> প্রেমাবেশে নৃত্য-গীত করিলা অপার ॥১৫৫॥
+
 gopīnātha-caraṇe kaila bahu namaskāra
 premāveśe nṛtya-gīta karilā apāra
 

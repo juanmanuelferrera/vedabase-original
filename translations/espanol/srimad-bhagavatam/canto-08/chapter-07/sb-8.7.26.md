@@ -1,5 +1,8 @@
 ### SB 8.7.26
 
+> त्वं शब्दयोनिर्जगदादिरात्मा प्राणेन्द्रियद्रव्यगुणः स्वभावः
+> कालः क्रतुः सत्यमृतं च धर्मस्त्वय्यक्षरं यत्त्रिवृदामनन्ति ॥२६॥
+
 > agnir mukhaṁ te 'khila-devatātmā
 > kṣitiṁ vidur loka-bhavāṅghri-paṅkajam
 > kālaṁ gatiṁ te 'khila-devatātmano

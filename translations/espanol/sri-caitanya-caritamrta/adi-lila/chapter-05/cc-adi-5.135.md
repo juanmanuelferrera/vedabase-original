@@ -1,5 +1,8 @@
 ### CC Adi 5.135
 
+> কভু গুরু, কভু সখা, কভু ভৃত্য-লীলা ।
+> পূর্বে যেন তিনভাবে ব্রজে কৈল খেলা ॥১৩৫॥
+
 > kabhu guru, kabhu sakhā, kabhu bhṛtya-līlā
 > pūrve yena tina-bhāve vraje kaila khelā
 

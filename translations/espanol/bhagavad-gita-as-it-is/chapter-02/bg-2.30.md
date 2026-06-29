@@ -1,5 +1,8 @@
 ### Bg 2.30
 
+> देही नित्यमवध्योऽयं देहे सर्वस्य भारत ।
+> तस्मात्सर्वाणि भूतानि न त्वं शोचितुमर्हसि ॥३०॥
+
 > dehī nityam avadhyo'yaṁ
 > dehe sarvasya bhārata
 > tasmāt sarvāṇi bhūtāni

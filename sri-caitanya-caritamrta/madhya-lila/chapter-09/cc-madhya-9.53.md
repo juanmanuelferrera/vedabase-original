@@ -1,5 +1,8 @@
 ### CC Madhya 9.53
 
+> অপবিত্র অন্ন এক থালিতে ভরিয়া ।
+> প্রভু-আগে নিল ‘মহাপ্রসাদ’ বলিয়া ॥৫৩॥
+
 > apavitra anna eka thālite bhariyā
 > prabhu-āge nila 'mahā-prasāda' baliyā
 

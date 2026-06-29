@@ -1,5 +1,8 @@
 ### CC Adi 3.29
 
+> এত ভাবি’ কলিকালে প্রথম সন্ধ্যায় ।
+> অবতীর্ণ হৈলা কৃষ্ণ আপনি নদীয়ায় ॥২৯॥
+
 eta bhāvi' kali-kāle prathama sandhyāya
 avatīrṇa hailā kṛṣṇa āpani nadīyāya
 

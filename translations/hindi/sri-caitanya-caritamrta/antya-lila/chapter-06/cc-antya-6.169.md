@@ -1,5 +1,7 @@
 ### CC Antya 6.169
 
+> তুমি সুখে ঘরে যাহ — মোরে আজ্ঞা হয় ।” এই ছলে আজ্ঞা মাগি’ করিলা নিশ্চয় ॥১৬৯॥
+
 > tumi sukhe ghare yāha--more ājñā haya"
 > ei chale ājñā māgi' karilā niścaya
 

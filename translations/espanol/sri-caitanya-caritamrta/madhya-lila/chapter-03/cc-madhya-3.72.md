@@ -1,5 +1,8 @@
 ### CC Madhya 3.72
 
+> ভোজন করহ, ছাড় বচন-চাতুরী ।
+> প্রভু কহে — এত অন্ন খাইতে না পারি ॥৭২॥
+
 > bhojana karaha, chāḍa vacana-cāturī
 > prabhu kahe--eta anna khāite nā pāri
 

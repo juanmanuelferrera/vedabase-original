@@ -1,5 +1,8 @@
 ### CC Antya 1.121
 
+> যত ভক্তবৃন্দ আর রামানন্দ রায় ।
+> শ্লোক শুনি’ সবার হইল আনন্দ-বিস্ময় ॥১২১॥
+
 > yata bhakta-vṛnda āra rāmānanda rāya
 > śloka śuni' sabāra ha-ila ānanda-vismaya
 

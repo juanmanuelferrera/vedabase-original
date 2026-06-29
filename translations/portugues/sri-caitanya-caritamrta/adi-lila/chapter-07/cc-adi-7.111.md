@@ -1,5 +1,8 @@
 ### CC Adi 7.111
 
+> ‘ব্রহ্ম’-শব্দে মুখ্য অর্থে কহে — ‘ভগবান্’ ।
+> চিদৈশ্বর্য-পরিপূর্ণ, অনূর্ধ্ব-সমান ॥১১১॥
+
 'brahma'-śabde mukhya arthe kahe--'bhagavān'
 
 cid-aiśvarya-paripūrṇa, anūrdhva-samāna

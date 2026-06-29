@@ -1,5 +1,8 @@
 ### CC Antya 1.87
 
+> অন্যথা এ অর্থ কার নাহি হয় জ্ঞান  ।
+> তুমি পূর্বে কৃপা কৈলা, করি অনুমান ।।” ৮৭ ॥৮৭॥
+
 > anyathā e artha kāra nāhi haya jñāna
 > tumi pūrve kṛpā kailā, kari anumāna"
 

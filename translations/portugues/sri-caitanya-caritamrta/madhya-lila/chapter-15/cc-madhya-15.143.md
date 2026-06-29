@@ -1,5 +1,8 @@
 ### CC Madhya 15.143
 
+> এইমত বার বার শুনিয়া বচন  ।
+> আমার গৌরবে কিছু ফিরি’ গেল মন ॥১৪৩॥
+
 ei-mata bāra bāra śuniyā vacana
 
 āmāra gaurave kichu phiri' gela mana

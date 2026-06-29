@@ -1,5 +1,8 @@
 ### CC Antya 6.27
 
+> আমি যৈছে পিতার, তৈছে তোমার বালক  ।
+> আমি তোমার পাল্য, তুমি আমার পালক ॥২৭॥
+
 āmi yaiche pitāra, taiche tomāra bālaka
 
 āmi tomāra pālya, tumi āmāra pālaka

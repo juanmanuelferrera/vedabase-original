@@ -1,5 +1,8 @@
 ### CC Antya 13.111
 
+> রামদাস কৈলা তবে নীলাচলে বাস ।
+> পট্টনায়ক-গোষ্ঠীকে পড়ায় ‘কাব্যপ্রকাশ’ ॥১১১॥
+
 rāmadāsa kailā tabe nīlācale vāsa
 
 paṭṭanāyaka-goṣṭhīke paḍāya 'kāvya-prakāśa

@@ -1,5 +1,8 @@
 ### SB 3.2.29
 
+> स एव गोधनं लक्ष्म्या निकेतं सितगोवृषम् ।
+> चारयन्ननुगान्गोपान्रणद्वेणुररीरमत् ॥२९॥
+
 > sa eva go-dhanaṁ lakṣmyā
 > niketaṁ sita-go-vṛṣam
 > cārayann anugān gopān

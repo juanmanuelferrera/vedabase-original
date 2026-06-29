@@ -1,5 +1,8 @@
 ### CC Madhya 24.249
 
+> নারদ কহে, — “অর্ধ মারিলে জীব পায় ব্যথা ।
+> জীবে দুঃখ দিতেছ, তোমার হইবে ঐছে অবস্থা ॥২৪৯॥
+
 > nārada kahe,--"ardha mārile jīva pāya vyathā
 > jīve duḥkha ditecha, tomāra ha-ibe aiche avasthā
 

@@ -1,5 +1,10 @@
 ### CC Adi 4.196
 
+> উপেত্য পথি সুন্দরীততিভিরাভিরভ্যর্চিতং
+> স্মিতাঙ্কুরকরম্বিতৈর্নটদপাঙ্গভঙ্গীশতৈঃ ।
+> স্তন-স্তবকসঞ্চরন্নয়নচঞ্চরীকাঞ্চলং
+> ব্রজে বিজয়িনং ভজে বিপিনদেশতঃ কেশবম্ ॥১৯৬॥
+
 upetya pathi sundarī-tatibhir ābhir abhyarcitaṁ
 smitāṅkura-karambitair naṭad-apāṅga-bhaṅgī-śataiḥ
 stana-stavaka-sañcaran-nayana-cañcarīkāñcalaṁ

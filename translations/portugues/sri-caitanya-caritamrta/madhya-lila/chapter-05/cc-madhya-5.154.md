@@ -1,5 +1,8 @@
 ### CC Madhya 5.154
 
+> তুমি-সব আগে যাহ ঈশ্বর দেখিতে ।
+> কিবা আমি আগে যাই, না যাব সহিতে ॥১৫৪॥
+
 tumi-saba āge yāha īśvara dekhite
 kibā āmi āge yāi, nā yāba sahite
 

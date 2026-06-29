@@ -1,5 +1,8 @@
 ### CC Madhya 15.84
 
+> এত বলি’ ফল ফেলে প্রাচীর লঙ্ঘিয়া ৷
+> ঐছে পবিত্র প্রেম-সেবা জগৎ জিনিয়া ॥৮৪॥
+
 eta bali' phala phele prācīra laṅghiyā
 
 aiche pavitra prema-sevā jagat jiniyā

@@ -3,6 +3,9 @@
 > yadyapi mukunda-āmā-saṅge śiśu haite
 > tāṅhā haite adhika sukha tomāre dekhite
 
+> yadyapi mukunda-āmā-saṅge śiśu haite
+> tāṅhā haite adhika sukha tomāre dekhite
+
 *yadyapi*—aunque; *mukunda*—Mukunda; *āmā-saṅge*—conmigo; *śiśu haite*—desde la infancia; *tāṅhā haite*—más que él; *adhika*—aún más; *sukha*—felicidad; *tomāre dekhite*—al verte.
 
 **Śrī Caitanya Mahāprabhu dijo: «Aunque Mukunda es Mi amigo desde la infancia, siento, no obstante, mayor placer al verte a ti que al verlo a él».**

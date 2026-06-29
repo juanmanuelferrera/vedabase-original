@@ -1,5 +1,8 @@
 ### CC Madhya 4.131
 
+> ধড়ার আঁচলতলে পাইল সেই ক্ষীর ।
+> স্থান লেপি’ ক্ষীর লঞা হইল বাহির ॥১৩১॥
+
 > dhaḍāra āṅcala-tale pāila sei kṣīra
 > sthāna lepi' kṣīra lañā ha-ila bāhira
 

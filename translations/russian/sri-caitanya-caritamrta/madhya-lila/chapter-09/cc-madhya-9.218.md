@@ -1,5 +1,8 @@
 ### CC Madhya 9.218
 
+> সেই রাত্রি তাহাঁ রহি’ তাঁরে কৃপা করি’ ।
+> পাণ্ড্যদেশে তাম্রপর্ণী গেলা গৌরহরি ॥২১৮॥
+
 > sei rātri tāhāṅ rahi' tāṅre kṛpā kari'
 > pāṇḍya-deśe tāmraparṇī gelā gaurahari
 

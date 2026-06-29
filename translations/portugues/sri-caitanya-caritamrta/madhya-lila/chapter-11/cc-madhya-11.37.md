@@ -1,5 +1,8 @@
 ### CC Madhya 11.37
 
+> রায় কহে, চরণ — রথ, হৃদয় — সারথি ৷
+> যাহাঁ লঞা যায়, তাহাঁ যায় জীব-রথী ৷৷ ৩৭ ৷৷ ॥৩৭॥
+
 rāya kahe, caraṇa-ratha, hṛdaya-sārathi
 yāhāṅ lañā yāya, tāhāṅ yāya jīva-rathī
 

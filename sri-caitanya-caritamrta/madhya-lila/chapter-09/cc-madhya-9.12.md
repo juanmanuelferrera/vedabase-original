@@ -1,5 +1,8 @@
 ### CC Madhya 9.12
 
+> সেই সব বৈষ্ণব মহাপ্রভুর দর্শনে ।
+> কৃষ্ণ-উপাসক হৈল, লয় কৃষ্ণনামে ॥১২॥
+
 > sei saba vaiṣṇava mahāprabhura darśane
 > kṛṣṇa-upāsaka haila, laya kṛṣṇa-nāme
 

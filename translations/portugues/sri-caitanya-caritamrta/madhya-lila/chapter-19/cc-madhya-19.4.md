@@ -1,5 +1,8 @@
 ### CC Madhya 19.4
 
+> দুইভাই বিষয়-ত্যাগের উপায় সৃজিল ।
+> বহুধন দিয়া দুই ব্রাহ্মণে বরিল ॥৪॥
+
 dui-bhāi viṣaya-tyāgera upāya sṛjila
 bahu-dhana diyā dui brāhmaṇe varila
 

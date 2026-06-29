@@ -1,5 +1,8 @@
 ### CC Madhya 14.256
 
+> চৈতন্য-গোসাঞির লীলা — অনন্ত, অপার ।
+> ‘সহস্র-বদন’ যার নাহি পায় পার ॥২৫৬॥
+
 > caitanya-gosāñira līlā-ananta, apāra
 > 'sahasra-vadana' yāra nāhi pāya pāra
 

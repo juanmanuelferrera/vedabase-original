@@ -1,5 +1,7 @@
 ### SB 5.14.13
 
+> एकदासत्प्रसङ्गान्निकृतमतिर्व्युदकस्रोतःस्खलनवदुभयतोऽपि दुःखदंपाखण्डमभियाति ॥१३॥
+
 > ekadāsat-prasaṅgān nikṛta-matir vyudaka-srotaḥ-skhalanavad ubhayato 'pi duḥkhadaṁ pākhaṇḍam abhiyāti.
 
 *ekadā*—a veces; *asat-prasaṅgāt*—por la relación con no devotos que son contrarios a los principios védicos y que se inventan diversas sendas religiosas; *nikṛta-matiḥ*—cuya inteligencia ha descendido hasta el abominable nivel de negar la autoridad de la Suprema Personalidad de Dios; *vyudaka-srotaḥ*—a ríos sin suficiente agua; *skhalana-vat*—como lanzarse; *ubhayataḥ*—de ambos lados; *api*—aunque; *duḥkha-dam*—dar sufrimiento; *pākhaṇḍam*—al sendero ateo; *abhiyāti*—se dirige.

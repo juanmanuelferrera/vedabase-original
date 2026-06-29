@@ -1,5 +1,10 @@
 ### CC Antya 15.67
 
+> মুরলীর কলধ্বনি, মধুর গর্জন শুনি’,
+> বৃন্দাবনে নাচে ময়ূরচয় ।
+> অকলঙ্ক পূর্ণকল, লাবণ্য-জ্যোৎস্না ঝলমল,
+> চিত্রচন্দ্রের তাহাতে উদয় ॥৬৭॥
+
 > muralīra kala-dhvani, madhura garjana śuni',
 > vṛndāvane nāce mayūra-caya
 > akalaṅka pūrṇa-kala, lāvaṇya-jyotsnā jhalamala,

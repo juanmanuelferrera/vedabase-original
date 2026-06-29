@@ -1,5 +1,8 @@
 ### CC Antya 15.49
 
+> আগে বৃক্ষগণ দেখে পুষ্প ফলভরে ।
+> শাখা সব পড়িয়াছে পৃথিবী-উপরে ॥৪৯॥
+
 > āge vṛkṣa-gaṇa dekhe puṣpa-phala-bhare
 > śākhā saba paḍiyāche pṛthivī-upare
 

@@ -1,5 +1,8 @@
 ### CC Antya 4.47
 
+> দুর্দৈবে সেবক যদি যায় অন্য স্থানে ।
+> সেই ঠাকুর ধন্য তারে চুলে ধরি’ আনে ॥৪৭॥
+
 > durdaive sevaka yadi yāya anya sthāne
 > sei ṭhākura dhanya tāre cule dhari' āne
 

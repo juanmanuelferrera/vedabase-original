@@ -1,5 +1,8 @@
 ### SB 7.2.23
 
+> यथाम्भसा प्रचलता तरवोऽपि चला इव
+> चक्षुषा भ्राम्यमाणेन दृश्यते चलतीव भूः ॥२३॥
+
 > yathāmbhasā pracalatā
 > taravo 'pi calā iva
 > cakṣuṣā bhrāmyamāṇena

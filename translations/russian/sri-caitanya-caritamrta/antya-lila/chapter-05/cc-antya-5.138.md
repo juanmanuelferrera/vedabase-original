@@ -1,5 +1,8 @@
 ### CC Antya 5.138
 
+> ঐশ্বর্য-মদে মত্ত ইন্দ্র, — যেন মাতোয়াল ।
+> বুদ্ধিনাশ হৈল, কেবল নাহিক সাম্ভাল ॥১৩৮॥
+
 > aiśvarya-made matta indra,—yena mātoyāla
 > buddhi-nāśa haila, kevala nāhika sāmbhāla
 

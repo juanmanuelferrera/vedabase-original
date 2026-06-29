@@ -1,5 +1,8 @@
 ### CC Antya 9.53
 
+> ‘ক্রমে ক্রমে দিমু, আর যত কিছু পারি  ।
+> অবিচারে প্রাণ লহ, — কি বলিতে পারি ?’ ৫৩ ॥৫৩॥
+
 > 'krame krame dimu, āra yata kichu pāri
 > avicāre prāṇa laha,—ki balite pāri?'
 

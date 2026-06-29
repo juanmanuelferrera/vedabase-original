@@ -1,5 +1,8 @@
 ### CC Madhya 22.8
 
+> স্বাংশ-বিভিন্নাংশ-রূপে হঞা বিস্তার ।
+> অনন্ত বৈকুণ্ঠ-ব্রহ্মাণ্ডে করেন বিহার ॥৮॥
+
 svāṁśa-vibhinnāṁśa-rūpe hañā vistāra
 ananta vaikuṇṭha-brahmāṇḍe karena vihāra
 

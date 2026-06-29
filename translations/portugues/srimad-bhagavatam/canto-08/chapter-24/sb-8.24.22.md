@@ -1,5 +1,8 @@
 ### SB 8.24.22
 
+> नैतन्मे स्वस्तये राजन्नुदकं सलिलौकसः
+> निधेहि रक्षायोगेन ह्रदे मामविदासिनि ॥२२॥
+
 naitan me svastaye rājann
 udakaṁ salilaukasaḥ
 nidhehi rakṣā-yogena

@@ -1,5 +1,8 @@
 ### CC Antya 4.177
 
+> বিদ্যাবিনয়সম্পন্নে ব্রাহ্মণে গবি হস্তিনি ।
+> শুনি চৈব শ্বপাকে চ পণ্ডিতাঃ সমদর্শিনঃ ॥১৭৭॥
+
 > vidyā-vinaya-sampanne
 > brāhmaṇe gavi hastini
 > śuni caiva śvapāke ca

@@ -1,5 +1,8 @@
 ### CC Madhya 5.110
 
+> গোপাল-সৌন্দর্য দেখি’ লোকে আনন্দিত ।
+> প্রতিমা চলিঞা আইলা, — শুনিঞা বিস্মিত ॥১১০॥
+
 > gopāla-saundarya dekhi' loke ānandita
 > pratimā caliñā āilā,--śuniñā vismita
 

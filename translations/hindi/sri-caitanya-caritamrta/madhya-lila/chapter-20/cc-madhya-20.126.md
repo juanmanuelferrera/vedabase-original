@@ -1,5 +1,8 @@
 ### CC Madhya 20.126
 
+> কৃষ্ণমাধুর্য-সেবানন্দ-প্রাপ্তির কারণ ।
+> কৃষ্ণ-সেবা করে, আর কৃষ্ণরস-আস্বাদন ॥১২৬॥
+
 > kṛṣṇa-mādhurya-sevānanda-prāptira kāraṇa
 > kṛṣṇa-sevā kare, āra kṛṣṇa-rasa-āsvādana
 

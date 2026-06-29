@@ -1,5 +1,8 @@
 ### SB 4.6.44
 
+> त्वमेव धर्मार्थदुघाभिपत्तये दक्षेण सूत्रेण ससर्जिथाध्वरम् ।
+> त्वयैव लोकेऽवसिताश्च सेतवो यान्ब्राह्मणाः श्रद्दधते धृतव्रताः ॥४४॥
+
 > tvam eva dharmārtha-dughābhipattaye
 > dakṣeṇa sūtreṇa sasarjithādhvaram
 > tvayaiva loke 'vasitāś ca setavo

@@ -1,5 +1,8 @@
 ### CC Adi 17.105
 
+> গণি’ ধ্যানে দেখে সর্বজ্ঞ, — মহাজ্যোতির্ময় ।
+> অনন্ত বৈকুণ্ঠ-ব্রহ্মাণ্ড — সবার আশ্রয় ॥১০৫॥
+
 > gaṇi' dhyāne dekhe sarva-jña,—mahā-jyotirmaya
 > ananta vaikuṇṭha-brahmāṇḍa—sabāra āśraya
 

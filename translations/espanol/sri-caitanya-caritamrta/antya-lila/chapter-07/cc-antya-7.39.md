@@ -1,5 +1,8 @@
 ### CC Antya 7.39
 
+> “শুদ্ধপ্রেম’ ব্রজদেবীর — কামগন্ধহীন ।
+> ‘কৃষ্ণসুখতাৎপর্য’, — এই তার চিহ্ন ॥৩৯॥
+
 > 'śuddha-prema' vraja-devīra--kāma-gandha-hīna
 > 'kṛṣṇa-sukha-tātparya',--ei tāra cihna
 

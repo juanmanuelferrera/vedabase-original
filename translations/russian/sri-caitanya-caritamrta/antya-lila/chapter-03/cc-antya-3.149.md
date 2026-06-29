@@ -1,5 +1,8 @@
 ### CC Antya 3.149
 
+> প্রেম-প্রচারণ আর পাষণ্ডদলন ।
+> দুইকার্যে অবধূত করেন ভ্রমণ ॥১৪৯॥
+
 > prema-pracāraṇa āra pāṣaṇḍa-dalana
 > dui-kārye avadhūta karena bhramaṇa
 

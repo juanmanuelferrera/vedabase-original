@@ -1,5 +1,8 @@
 ### SB 9.8.4
 
+> आज्ञआयास्यै सपत्नीभिर्गरो दत्तोऽन्धसा सह
+> सह तेनैव सञ्जातः सगराख्यो महायशाः ॥४॥
+
 > ājñāyāsyai sapatnībhir
 > garo datto 'ndhasā saha
 > saha tenaiva sañjātaḥ

@@ -1,5 +1,10 @@
 ### CC Adi 13.104
 
+> ব্রাহ্মণ-সজ্জন-নারী, নানা-দ্রব্যে থালী ভরি’
+> আইলা সবে যৌতুক লইয়া ।
+> যেন কাঁচা-সোণা-দ্যুতি, দেখি’ বালকের মূর্তি,
+> আশীর্বাদ করে সুখ পাঞা ॥১০৪॥
+
 > brāhmaṇa-sajjana-nārī, nānā-dravye thālī bhari'
 > āilā sabe yautuka la-iyā
 > yena kāṅcā-soṇā-dyuti, dekhi' bālakera mūrti,

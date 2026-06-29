@@ -1,5 +1,8 @@
 ### SB 3.2.33
 
+> वर्षतीन्द्रे व्रजः कोपाद्भग्नमानेऽतिविह्वलः ।
+> गोत्रलीलातपत्रेण त्रातो भद्रानुगृह्णता ॥३३॥
+
 > varṣatīndre vrajaḥ kopād
 > bhagnamāne 'tivihvalaḥ
 > gotra-līlātapatreṇa

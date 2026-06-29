@@ -1,5 +1,8 @@
 ### CC Madhya 18.164
 
+> প্রভুরে দেখিয়া ম্লেচ্ছ করয়ে বিচার ।
+> এই যতি-পাশ ছিল সুবর্ণ অপার ॥১৬৪॥
+
 > prabhure dekhiyā mleccha karaye vicāra
 > ei yati-pāśa chila suvarṇa apāra
 

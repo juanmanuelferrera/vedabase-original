@@ -1,5 +1,8 @@
 ### CC Antya 10.34
 
+> রাঘবের আজ্ঞা, আর করেন দময়ন্তী ।
+> দুঁহার প্রভুতে স্নেহ পরম-ভকতি ॥৩৪॥
+
 rāghavera ājñā, āra karena damayantī
 
 duṅhāra prabhute sneha parama-bhakati

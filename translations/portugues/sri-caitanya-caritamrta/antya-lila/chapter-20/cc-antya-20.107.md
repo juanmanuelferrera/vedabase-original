@@ -1,5 +1,8 @@
 ### CC Antya 20.107
 
+> প্রভু ‘নাম’ দিয়া কৈলা ব্রহ্মাণ্ড-মোচন ।
+> হরিদাস করিলা নামের মহিমা-স্থাপন ॥১০৭॥
+
 prabhu 'nāma' diyā kailā brahmāṇḍa-mocana
 
 haridāsa karilā nāmera mahimā-sthāpana

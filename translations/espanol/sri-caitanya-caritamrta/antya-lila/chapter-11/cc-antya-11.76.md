@@ -1,5 +1,8 @@
 ### CC Antya 11.76
 
+> স্বরূপ-গোসাঞি পসারিকে নিষেধিল ।
+> চাঙ্গড়া লঞা পসারি পসারে বসিল ॥৭৬॥
+
 > svarūpa-gosāñi pasārike niṣedhila
 > cāṅgaḍā lañā pasāri pasāre vasila
 

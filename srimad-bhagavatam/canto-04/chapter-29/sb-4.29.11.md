@@ -1,5 +1,8 @@
 ### SB 4.29.11
 
+> नलिनी नालिनी नासे गन्धः सौरभ उच्यते ।
+> घ्राणोऽवधूतो मुख्यास्यं विपणो वाग्रसविद्रसः ॥११॥
+
 > nalinī nālinī nāse
 > gandhaḥ saurabha ucyate
 > ghrāṇo 'vadhūto mukhyāsyaṁ

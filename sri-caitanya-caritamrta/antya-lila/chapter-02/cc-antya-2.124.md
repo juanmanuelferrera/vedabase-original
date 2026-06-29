@@ -1,5 +1,8 @@
 ### CC Antya 2.124
 
+> প্রভু কহে, — “মোর বশ নহে মোর মন ।
+> প্রকৃতিসম্ভাষী বৈরাগী না করে দর্শন ॥১২৪॥
+
 > prabhu kahe,—"mora vaśa nahe mora mana
 > prakṛti-sambhāṣī vairāgī nā kare darśana
 

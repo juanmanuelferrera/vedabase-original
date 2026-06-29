@@ -1,5 +1,8 @@
 ### SB 6.10.24
 
+> न तेऽदृश्यन्त सञ्छन्नाः शरजालैः समन्ततः
+> पुङ्खानुपुङ्खपतितैर्ज्योतींषीव नभोघनैः ॥२४॥
+
 > na te 'dṛśyanta sañchannāḥ
 > śara-jālaiḥ samantataḥ
 > puṅkhānupuṅkha-patitair

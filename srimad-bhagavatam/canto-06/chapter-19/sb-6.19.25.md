@@ -1,5 +1,8 @@
 ### SB 6.19.25
 
+> एतच्चरित्वा विधिवद्व्रतं विभोरभीप्सितार्थं लभते पुमानिह
+> स्त्री चैतदास्थाय लभेत सौभगं श्रियं प्रजां जीवपतिं यशो गृहम ॥२५॥
+
 > etac caritvā vidhivad vrataṁ vibhor
 > abhīpsitārthaṁ labhate pumān iha
 > strī caitad āsthāya labheta saubhagaṁ

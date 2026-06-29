@@ -1,5 +1,8 @@
 ### SB 7.14.18
 
+> तस्माद्ब्राह्मणदेवेषु मर्त्यादिषु यथार्हतः
+> तैस्तैः कामैर्यजस्वैनं क्षेत्रज्ञअं ब्राह्मणाननु ॥१८॥
+
 > tasmād brāhmaṇa-deveṣu
 > martyādiṣu yathārhataḥ
 > tais taiḥ kāmair yajasvainaṁ

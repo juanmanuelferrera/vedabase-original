@@ -1,5 +1,8 @@
 ### CC Madhya 8.151
 
+> কৃষ্ণের অনন্ত-শক্তি, তাতে তিন — প্রধান ।
+> ‘চিচ্ছক্তি’, ‘মায়াশক্তি’, ‘জীবশক্তি’-নাম ॥১৫১॥
+
 > kṛṣṇera ananta-śakti, tāte tina—pradhāna
 > 'cic-chakti', 'māyā-śakti', 'jīva-śakti'-nāma
 

@@ -1,5 +1,8 @@
 ### CC Adi 14.11
 
+> স্তন পিয়াইতে পুত্রের চরণ দেখিল ।
+> সেই চিহ্ন পায়ে দেখি’ মিশ্রে বোলাইল ॥১১॥
+
 > stana piyāite putrera caraṇa dekhila
 > sei cihna pāye dekhi' miśre bolāila
 

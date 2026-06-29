@@ -1,5 +1,8 @@
 ### SB 1.16.2
 
+> स उत्तरस्य तनयामुपयेम इरावतीम् ।
+> जनमेजयादींश्चतुरस्तस्यामुत्पादयत्सुतान् ॥२॥
+
 > sa uttarasya tanayām
 > upayema irāvatīm
 > janamejayādīṁś caturas

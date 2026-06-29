@@ -1,5 +1,7 @@
 ### SB 5.9.3
 
+> तस्यापि ह वा आत्मजस्य विप्रः पुत्रस्नेहानुबद्धमना आसमावर्तनात्संस्कारान्यथोपदेशंविदधान उपनीतस्य च पुनः शौचाचमनादीन्कर्मनियमाननभिप्रेतानपि समशिक्षयदनुशिष्टेन हिभाव्यं पितुः पुत्रेणेति ॥३॥
+
 *tatrāpi svajana*-saṅgāc ca bhṛśam udvijamāno bhagavataḥ karma-bandha-vidhvaṁsana-śravaṇa-smaraṇa-guṇa-vivaraṇa-caraṇāravinda-yugalaṁ manasā vidadhad ātmanaḥ pratighātam āśaṅkamāno bhagavad-anugraheṇānusmṛta-sva-pūrva-janmāvalir ātmānam unmatta-jaḍāndha-badhira-svarūpeṇa darśayām āsa lokasya.
 
 *tatra api*—também naquele nascimento como brāhmaṇa; *sva-jana-saṅgāt*—da associação com parentes e amigos; *ca*—e; *bhṛśam*—grandemente; *udvijamānaḥ*—sempre temeroso de que cairia novamente; *bhagavataḥ*—da Suprema Personalidade de Deus; *karma-bandha*—o cativeiro das reações das atividades fruitivas; *vidhvaṁsana*—que destrói; *śravaṇa*—ouvir; *smaraṇa*—lembrar; *guṇa-vivaraṇa*—ouvir descrições das qualidades do Senhor; *caraṇa-aravinda*—pés de lótus; *yugalam*—os dois; *manasā*—com a mente; *vidadhat*—sempre pensando em; *ātmanaḥ*—de sua alma; *pratighātam*—obstrução na senda do serviço devocional; *āśaṅkamānaḥ*—sempre temendo; *bhagavat-anugraheṇa*—pela misericórdia especial da Suprema Personalidade de Deus; *anusmṛta*—lembrava-se; *sva-pūrva*—seus próprios anteriores; *janma-āvaliḥ*—série de nascimentos; *ātmānam*—a si mesmo; *unmatta*—louco; *jaḍa*—obtuso; *andha*—cego; *badhira*—e surdo; *svarūpeṇa*—com estas características; *darśayām āsa*—exibia; *lokasya*—às pessoas em geral.

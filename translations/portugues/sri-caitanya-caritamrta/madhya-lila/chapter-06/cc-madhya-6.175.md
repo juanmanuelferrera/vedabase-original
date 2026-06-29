@@ -1,5 +1,8 @@
 ### CC Madhya 6.175
 
+> ‘তত্ত্বমসি’ — জীব-হেতু প্রাদেশিক বাক্য ।
+> প্রণব না মানি’ তারে কহে মহাবাক্য ॥১৭৫॥
+
 'tat tvam asi'--jīva-hetu prādeśika vākya
 
 praṇava nā māni' tāre kahe mahā-vākya

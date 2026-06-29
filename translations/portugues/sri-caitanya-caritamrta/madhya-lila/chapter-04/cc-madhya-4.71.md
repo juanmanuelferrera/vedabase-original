@@ -1,5 +1,8 @@
 ### CC Madhya 4.71
 
+> জনা পাঁচ-সাত রুটি করে রাশি-রাশি ।
+> অন্ন-ব্যঞ্জন সব রহে ঘৃতে ভাসি’ ॥৭১॥
+
 janā pāṅca-sāta ruṭi kare rāśi-rāśi
 
 anna-vyañjana saba rahe ghṛte bhāsi'

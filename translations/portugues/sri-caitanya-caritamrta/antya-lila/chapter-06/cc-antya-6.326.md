@@ -1,5 +1,8 @@
 ### CC Antya 6.326
 
+> আপন-উদ্ধার এই রঘুনাথদাস ।
+> ‘গৌরাঙ্গস্তবকল্পবৃক্ষে’ করিয়াছেন প্রকাশ ॥৩২৬॥
+
 āpana-uddhāra ei raghunātha-dāsa
 
 'gaurāṅga-stava-kalpa-vṛkṣe' kariyāchena prakāśa

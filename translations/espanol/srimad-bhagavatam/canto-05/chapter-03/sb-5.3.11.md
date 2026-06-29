@@ -1,5 +1,7 @@
 ### SB 5.3.11
 
+> असङ्गनिशितज्ञआनानलविधूताशेषमलानां भवत्स्वभावानामात्मारामाणांमुनीनामनवरतपरिगुणितगुणगण परममङ्गलायनगुणगणकथनोऽसि ॥१०॥
+
 > asaṅga-niśita-jñānānala-vidhūtāśeṣa-malānāṁ bhavat-svabhāvānām ātmārāmāṇāṁ munīnām anavarata-pariguṇita-guṇa-gaṇa parama-maṅgalāyana-guṇa-gaṇa-kathano 'si.
 
 *asaṅga*—con desapego; *niśita*—fortalecidos; *jñāna*—del conocimiento; *anala*—con el fuego; *vidhūta*—eliminadas; *aśeṣa*—ilimitadas; *malānām*—cuyas impurezas; *bhavat-svabhāvānām*—que han obtenido Tus cualidades; *ātma-ārāmāṇām*—que están satisfechos en sí mismos; *munīnām*—de grandes sabios; *anavarata*—sin cesar; *pariguṇita*—descritas; *guṇa-gaṇa*—¡oh, Señor, cuyas cualidades espirituales!; *parama-maṅgala*—felicidad suprema; *āyana*—produce; *guṇa-gaṇa-kathanaḥ*—Él, el canto de cuyos atributos; *asi*—Tú eres.

@@ -1,5 +1,8 @@
 ### CC Antya 19.63
 
+> প্রভু কহেন, — “উদ্বেগে ঘরে না পারি রহিতে ।
+> দ্বার চাহি’ বুলি’ শীঘ্র বাহির হইতে ॥৬৩॥
+
 > prabhu kahena,—"udvege ghare nā pāri rahite
 > dvāra cāhi' buli' śīghra bāhira ha-ite
 

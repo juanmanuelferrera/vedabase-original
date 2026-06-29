@@ -1,5 +1,8 @@
 ### CC Antya 7.79
 
+> এই মত রথযাত্রা সকলে দেখিল ।
+> প্রভুর চরিত্রে ভট্টের চমৎকার হৈল ॥৭৯॥
+
 > eta mata ratha-yātrā sakale dekhila
 > prabhura caritre bhaṭṭera camatkāra haila
 

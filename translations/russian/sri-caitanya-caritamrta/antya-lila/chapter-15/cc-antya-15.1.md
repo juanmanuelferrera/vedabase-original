@@ -1,5 +1,8 @@
 ### CC Antya 15.1
 
+> দুর্গমে কৃষ্ণভাবাব্ধৌ নিমগ্নোন্মগ্নচেতসা ।
+> গৌরেণ হরিণা প্রেমমর্যাদা ভূরি দর্শিতা ॥১॥
+
 > durgame kṛṣṇa-bhāvābdhau
 > nimagnonmagna-cetasā
 > gaureṇa hariṇā prema-

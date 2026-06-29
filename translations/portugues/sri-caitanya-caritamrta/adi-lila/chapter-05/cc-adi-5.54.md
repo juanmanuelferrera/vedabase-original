@@ -1,5 +1,8 @@
 ### CC Adi 5.54
 
+> চিন্ময়-জল সেই পরম কারণ ।
+> যার এক কণা গঙ্গা পতিতপাবন ॥৫৪॥
+
 cinmaya-jala sei parama kāraṇa
 
 yāra eka kaṇā gaṅgā patita-pāvana

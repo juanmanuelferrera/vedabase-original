@@ -1,5 +1,8 @@
 ### CC Madhya 14.35
 
+> প্রসাদে পূরিত হইল অর্ধ উপবন ।
+> দেখিয়া সন্তোষ হৈল মহাপ্রভুর মন ॥৩৫॥
+
 prasāde pūrita ha-ila ardha upavana
 
 dekhiyā santoṣa haila mahāprabhura mana

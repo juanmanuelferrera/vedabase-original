@@ -1,5 +1,8 @@
 ### CC Madhya 5.4
 
+> নৃত্যগীত কৈল প্রেমে বহুত স্তবন ।
+> যাজপুরে সে রাত্রি করিলা যাপন ॥৪॥
+
 > nṛtya-gīta kaila preme bahuta stavana
 > yājapure se rātri karilā yāpana
 

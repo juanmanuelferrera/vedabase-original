@@ -1,5 +1,8 @@
 ### CC Madhya 13.199
 
+> নানা-দেশের দেশী যত যাত্রিক জন ।
+> নিজ-নিজ-ভোগ তাহাঁ করে সমর্পণ ॥১৯৯॥
+
 nānā-deśera deśī yata yātrika jana
 
 nija-nija-bhoga tāhāṅ kare samarpaṇa

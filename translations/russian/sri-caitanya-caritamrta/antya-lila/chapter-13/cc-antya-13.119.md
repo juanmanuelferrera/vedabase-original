@@ -1,5 +1,8 @@
 ### CC Antya 13.119
 
+> পূর্ববৎ অষ্টমাস প্রভু-পাশ ছিলা  ।
+> অষ্টমাস রহি’ পুনঃ প্রভু আজ্ঞা দিলা ॥১১৯॥
+
 > pūrvavat aṣṭa-māsa prabhu-pāśa chilā
 > aṣṭa-māsa rahi' punaḥ prabhu ājñā dilā
 

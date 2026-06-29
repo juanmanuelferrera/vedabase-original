@@ -1,5 +1,8 @@
 ### CC Antya 8.8
 
+> পরমানন্দ-পুরী কৈল চরণ বন্দন ।
+> পুরী-গোসাঞি কৈল তাঁরে দৃঢ় আলিঙ্গন ॥৮॥
+
 > paramānanda-purī kaila caraṇa vandana
 > purī-gosāñi kaila tāṅre dṛḍha āliṅgana
 

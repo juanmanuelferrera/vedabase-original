@@ -1,5 +1,8 @@
 ### CC Madhya 13.127
 
+> তথাপি আমার মন হরে বৃন্দাবন  ।
+> বৃন্দাবনে উদয় করাও আপন-চরণ ॥১২৭॥
+
 tathāpi āmāra mana hare vṛndāvana
 
 vṛndāvane udaya karāo āpana-caraṇa

@@ -1,5 +1,8 @@
 ### SB 1.4.30
 
+> तथापि बत मे दैह्यो ह्यात्मा चैवात्मना विभुः ।
+> असम्पन्न इवाभाति ब्रह्मवर्चस्य सत्तमः ॥३०॥
+
 > tathāpi bata me daihyo
 > hy ātmā caivātmanā vibhuḥ
 > asampanna ivābhāti

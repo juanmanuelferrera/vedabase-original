@@ -1,5 +1,8 @@
 ### CC Madhya 3.85
 
+> “ভ্রষ্ট অবধূত তুমি, উদর ভরিতে ।
+> সন্ন্যাস লইয়াছ, বুঝি, ব্রাহ্মণ দণ্ডিতে ॥৮৫॥
+
 > bhraṣṭa avadhūta tumi, udara bharite
 > sannyāsa la-iyācha, bujhi, brāhmaṇa daṇḍite
 

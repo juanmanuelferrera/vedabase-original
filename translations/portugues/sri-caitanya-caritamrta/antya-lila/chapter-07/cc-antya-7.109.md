@@ -1,5 +1,8 @@
 ### CC Antya 7.109
 
+> শুনিয়া বল্লভ-ভট্ট হৈল নির্বচন  ।
+> ঘরে যাই’ মনে দুঃখে করেন চিন্তন ॥১০৯॥
+
 śuniyā vallabha-bhaṭṭa haila nirvacana
 
 ghare yāi' mane duḥkhe karena cintana

@@ -1,5 +1,8 @@
 ### CC Adi 11.22
 
+> রঘুনাথ বৈদ্য উপাধ্যায় মহাশয় ।
+> যাঁহার দর্শনে কৃষ্ণপ্রেমভক্তি হয় ॥২২॥
+
 raghunātha vaidya upādhyāya mahāśaya
 yāṅhāra darśane kṛṣṇa-prema-bhakti haya
 

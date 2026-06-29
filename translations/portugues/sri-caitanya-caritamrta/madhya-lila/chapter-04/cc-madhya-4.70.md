@@ -1,5 +1,8 @@
 ### CC Madhya 4.70
 
+> বন্য শাক-ফল-মূলে বিবিধ ব্যঞ্জন ।
+> কেহ বড়া-বড়ি-কড়ি করে বিপ্ৰগণ ॥৭০॥
+
 vanya śāka-phala-mūle vividha vyañjana
 
 keha baḍā-baḍi-kaḍi kare vipra-gaṇa

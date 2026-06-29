@@ -1,5 +1,10 @@
 ### CC Madhya 2.89
 
+> শেষ-লীলার সূত্রগণ, কৈলুঁ কিছু বিবরণ,
+> ইহাঁ বিস্তারিতে চিত্ত হয় ।
+> থাকে যদি আয়ুঃ-শেষ, বিস্তারিব লীলা-শেষ,
+> যদি মহাপ্রভুর কৃপা হয় ॥৮৯॥
+
 śeṣa-līlāra sūtra-gaṇa, kailuṅ kichu vivaraṇa,
 ihāṅ vistārite citta haya
 thāke yadi āyuḥ-śeṣa, vistāriba līlā-śeṣa,

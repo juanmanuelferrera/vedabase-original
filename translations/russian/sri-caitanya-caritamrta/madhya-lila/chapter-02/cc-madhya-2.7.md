@@ -1,5 +1,8 @@
 ### CC Madhya 2.7
 
+> গম্ভীরা-ভিতরে রাত্রে নাহি নিদ্রা-লব ।
+> ভিত্তে মুখ-শির ঘষে, ক্ষত হয় সব ॥৭॥
+
 > gambhīrā-bhitare rātre nāhi nidrā-lava
 > bhitte mukha-śira ghaṣe, kṣata haya saba
 

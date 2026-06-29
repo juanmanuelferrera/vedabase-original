@@ -1,5 +1,8 @@
 ### CC Adi 16.89
 
+> পড়ুয়া বালক কৈল মোর বুদ্ধি লোপ ।
+> জানি — সরস্বতী মোরে করিয়াছেন কোপ ॥৮৯॥
+
 > paḍuyā bālaka kaila mora buddhi lopa
 > jāni--sarasvatī more kariyāchena kopa
 

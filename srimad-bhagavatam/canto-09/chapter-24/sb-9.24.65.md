@@ -1,5 +1,8 @@
 ### SB 9.24.65
 
+> यस्याननं मकरकुण्डलचारुकर्ण भ्राजत्कपोलसुभगं सविलासहासम
+> नित्योत्सवं न ततृपुर्दृशिभिः पिबन्त्यो नार्यो नराश्च मुदिताः कुपिता निमेश्च ॥६५॥
+
 > yasyānanaṁ makara-kuṇḍala-cāru-karṇa-
 > bhrājat-kapola-subhagaṁ savilāsa-hāsam
 > nityotsavaṁ na tatṛpur dṛśibhiḥ pibantyo

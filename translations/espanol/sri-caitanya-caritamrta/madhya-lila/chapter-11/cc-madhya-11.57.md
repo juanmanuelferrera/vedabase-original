@@ -3,6 +3,9 @@
 > bāhya-jñāna nāhi, se-kāle kṛṣṇa-nāma śuni,
 > āliṅgana karibena tomāya 'vaiṣṇava' jāni'
 
+> bāhya-jñāna nāhi, se-kāle kṛṣṇa-nāma śuni,
+> āliṅgana karibena tomāya 'vaiṣṇava' jāni'
+
 *bāhya-jñāna nāhi*—sin conciencia externa; *se-kāle*—en ese momento; *kṛṣṇa-nāma śuni'*—al oír el santo nombre del Señor Kṛṣṇa; *āliṅgana karibena*—Él te abrazará; *tomāya*—a ti; *vaiṣṇava jāni'*—considerándote un vaiṣṇava.
 
 **«El Señor Śrī Caitanya Mahāprabhu estará en un estado de amor extático, sin conciencia externa. En ese momento, si recitáis aquellos capítulos del *Śrīmad-Bhāgavatam*, Él os abrazará, al reconoceros como vaiṣṇavas puros.**

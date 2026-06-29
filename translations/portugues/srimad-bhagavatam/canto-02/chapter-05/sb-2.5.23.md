@@ -1,5 +1,8 @@
 ### SB 2.5.23
 
+> महतस्तु विकुर्वाणाद्रजःसत्त्वोपबृंहितात् ।
+> तमःप्रधानस्त्वभवद्द्रव्यज्ञानक्रियात्मकः ॥२३॥
+
 mahatas tu vikurvāṇād
 *rajaḥ*-sattvopabṛṁhitāt
 *tamaḥ*-pradhānas tv abhavad

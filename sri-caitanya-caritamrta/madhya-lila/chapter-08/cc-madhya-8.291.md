@@ -1,5 +1,8 @@
 ### CC Madhya 8.291
 
+> আমি — এক বাতুল, তুমি দ্বিতীয় — বাতুল ।
+> অতএব তোমায় আমায় হই সমতুল ॥২৯১॥
+
 > āmi—eka bātula, tumi—dvitīya bātula
 > ataeva tomāya āmāya ha-i sama-tula
 

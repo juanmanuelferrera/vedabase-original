@@ -1,5 +1,8 @@
 ### CC Madhya 15.158
 
+> তবে বাসুদেবে প্রভু করি’ আলিঙ্গন ।
+> তাঁর গুণ কহে হঞা সহস্র-বদন ॥১৫৮॥
+
 tabe vāsudeve prabhu kari' āliṅgana
 
 tāṅra guṇa kahe hañā sahasra-vadana

@@ -1,5 +1,8 @@
 ### CC Madhya 3.141
 
+> দোঁহার দর্শনে দুঁহে হইলা বিহ্বল ।
+> কেশ না দেখিয়া শচী হইলা বিকল ॥১৪১॥
+
 > doṅhāra darśane duṅhe ha-ilā vihvala
 > keśa nā dekhiyā śacī ha-ilā vikala
 

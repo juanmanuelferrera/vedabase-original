@@ -1,5 +1,8 @@
 ### CC Adi 2.52
 
+> এ সভার দর্শনেতে আছে মায়াগন্ধ ।
+> তুরীয় কৃষ্ণের নাহি মায়ার সম্বন্ধ ॥৫২॥
+
 > e sabhāra darśanete āche māyā-gandha
 > turīya kṛṣṇera nāhi māyāra sambandha
 

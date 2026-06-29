@@ -1,5 +1,8 @@
 ### CC Madhya 15.52
 
+> নীলাচলে আছোঁ মুঞি তাঁহার আজ্ঞাতে  ।
+> মধ্যে মধ্যে আসিমু তাঁর চরণ দেখিতে ॥৫২॥
+
 > nīlācale āchoṅ muñi tāṅhāra ājñāte
 > madhye madhye āsimu tāṅra caraṇa dekhite
 

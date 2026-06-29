@@ -1,5 +1,8 @@
 ### CC Antya 14.56
 
+> স্বরূপ-গোসাঞি করে কৃষ্ণলীলা গান ।
+> দুই জনে কিছু কৈলা প্রভুর বাহ্য জ্ঞান ॥৫৬॥
+
 > svarūpa-gosāñi kare kṛṣṇa-līlā gāna
 > dui jane kichu kailā prabhura bāhya jñāna
 

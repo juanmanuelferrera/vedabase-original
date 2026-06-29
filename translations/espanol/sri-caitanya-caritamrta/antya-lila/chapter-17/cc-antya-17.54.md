@@ -1,5 +1,10 @@
 ### CC Antya 17.54
 
+> ক্ষণে মন স্থির হয়, তবে মনে বিচারয়,
+> বলিতে হইল ভাবোদ্গম ।
+> পিঙ্গলার বচন-স্মৃতি, করাইল ভাব-মতি,
+> তাতে করে অর্থ-নির্ধারণ ॥৫৪॥
+
 > kṣaṇe mana sthira haya, tabe mane vicāraya,
 > balite ha-ila bhāvodgama
 > piṅgalāra vacana-smṛti, karāila bhāva-mati,

@@ -1,5 +1,8 @@
 ### CC Madhya 9.285
 
+> মাধব-পুরীর শিষ্য ‘শ্রীরঙ্গ-পুরী’ নাম ।
+> সেই গ্রামে বিপ্রগৃহে করেন বিশ্রাম ॥২৮৫॥
+
 > mādhava-purīra śiṣya 'śrī-raṅga-purī' nāma
 > sei grāme vipra-gṛhe karena viśrāma
 

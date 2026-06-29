@@ -1,5 +1,8 @@
 ### CC Adi 17.118
 
+> মদমত্ত-গতি বলদেব-অনুকার ।
+> আচার্য শেখর তাঁরে দেখে রামাকার ॥১১৮॥
+
 mada-matta-gati baladeva-anukāra
 ācārya śekhara tāṅre dekhe rāmākāra
 

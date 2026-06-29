@@ -1,5 +1,8 @@
 ### CC Antya 4.192
 
+> দীক্ষাকালে ভক্ত করে আত্মসমর্পণ ।
+> সেইকালে কৃষ্ণ তারে করে আত্মসম ॥১৯২॥
+
 dīkṣā-kāle bhakta kare ātma-samarpaṇa
 
 sei-kāle kṛṣṇa tāre kare ātma-sama

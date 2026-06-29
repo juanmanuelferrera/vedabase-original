@@ -1,5 +1,8 @@
 ### CC Madhya 1.200
 
+> আমা উদ্ধারিয়া যদি দেখাও নিজ-বল ।
+> ‘পতিতপাবন’ নাম তবে সে সফল ॥২০০॥
+
 āmā uddhāriyā yadi dekhāo nija-bala
 
 'patita-pāvana' nāma tabe se saphala

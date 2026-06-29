@@ -1,5 +1,8 @@
 ### CC Antya 5.133
 
+> তবেত পাণ্ডিত্য তোমার হইবে সফল ।
+> কৃষ্ণের স্বরূপ-লীলা বর্ণিবা নির্মল ॥১৩৩॥
+
 tabeta pāṇḍitya tomāra ha-ibe saphala
 
 kṛṣṇera svarūpa-līlā varṇibā nirmala

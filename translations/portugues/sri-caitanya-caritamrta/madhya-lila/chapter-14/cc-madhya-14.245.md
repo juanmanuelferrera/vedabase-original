@@ -1,5 +1,8 @@
 ### CC Madhya 14.245
 
+> পূর্ববৎ কৈল প্রভু লঞা ভক্তগণ ।
+> পরম আনন্দে করেন নর্তন-কীর্তন ॥২৪৫॥
+
 pūrvavat kaila prabhu lañā bhakta-gaṇa
 
 parama ānande karena nartana-kīrtana

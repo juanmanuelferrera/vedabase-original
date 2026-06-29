@@ -1,5 +1,8 @@
 ### CC Madhya 16.37
 
+> প্ৰভুকে মিলিতে সবার উৎকণ্ঠা অন্তরে ।
+> শীঘ্র করি’ আইলা সবে শ্রীনীলাচলে ॥৩৭॥
+
 > prabhuke milite sabāra utkaṇṭhā antare
 > śīghra kari' āilā sabe śrī-nīlācale
 

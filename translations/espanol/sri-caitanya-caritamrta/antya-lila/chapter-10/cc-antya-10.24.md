@@ -1,5 +1,8 @@
 ### CC Antya 10.24
 
+> কোলিশুণ্ঠি, কোলিচূর্ণ, কোলিখণ্ড আর ।
+> কত নাম লইব, শতপ্রকার ‘আচার’ ॥২৪॥
+
 > koli-śuṇṭhi, koli-cūrṇa, koli-khaṇḍa āra
 > kata nāma la-iba, śata-prakāra 'ācāra'
 

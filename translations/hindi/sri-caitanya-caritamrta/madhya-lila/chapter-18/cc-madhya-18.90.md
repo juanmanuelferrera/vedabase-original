@@ -1,5 +1,8 @@
 ### CC Madhya 18.90
 
+> প্রাতে প্ৰভু-সঙ্গে আইলা জলপাত্র লঞা ।
+> প্ৰভু-সঙ্গে রহে গৃহ-স্ত্রী-পুত্র ছাড়িয়া ॥৯০॥
+
 > prāte prabhu-saṅge āilā jala-pātra lañā
 > prabhu-saṅge rahe gṛha-strī-putra chāḍiyā
 

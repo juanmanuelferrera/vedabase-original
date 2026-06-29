@@ -1,5 +1,8 @@
 ### CC Antya 9.84
 
+> “দেব, শুন আর এক অপরূপ বাত্ !
+> মহাপ্রভু ক্ষেত্র ছাড়ি’ যাবেন আলালনাথ !” ॥ ৮৪ ॥
+
 "deva, śuna āra eka aparūpa vāt!
 
 mahāprabhu kṣetra chāḍi' yābena ālālanātha!"

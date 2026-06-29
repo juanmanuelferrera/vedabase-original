@@ -1,5 +1,8 @@
 ### CC Madhya 9.98
 
+> বিপ্র কহে, — মূর্খ আমি, শব্দার্থ না জানি ।
+> শুদ্ধাশুদ্ধ গীতা পড়ি, গুরু-আজ্ঞা মানি’ ॥৯৮॥
+
 > vipra kahe,—mūrkha āmi, śabdārtha nā jāni
 > śuddhāśuddha gītā paḍi, guru-ājñā māni'
 

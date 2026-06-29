@@ -1,5 +1,8 @@
 ### CC Adi 7.15
 
+> এই তিন তত্ত্ব, — ‘সর্বারাধ্য’ করি মানি ।
+> চতুর্থ যে ভক্ততত্ত্ব, — ‘আরাধক’ জানি ॥১৫॥
+
 ei tina tattva,--'sarvārādhya' kari māni
 
 caturtha ye bhakta-tattva,--'ārādhaka' jāni

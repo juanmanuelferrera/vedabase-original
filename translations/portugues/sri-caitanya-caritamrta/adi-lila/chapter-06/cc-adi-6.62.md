@@ -1,5 +1,8 @@
 ### CC Adi 6.62
 
+> শ্রীদামাদি ব্রজে যত সখার নিচয় ।
+> ঐশ্বর্য-জ্ঞান-হীন, কেবল-সখ্যময় ॥৬২॥
+
 śrīdāmādi vraje yata sakhāra nicaya
 aiśvarya-jñāna-hīna, kevala-sakhya-maya
 

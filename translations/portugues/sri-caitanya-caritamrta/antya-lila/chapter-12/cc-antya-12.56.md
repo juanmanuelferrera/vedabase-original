@@ -1,5 +1,8 @@
 ### CC Antya 12.56
 
+> প্রভু-বিষয়ে স্নেহ তার বালক-কাল হৈতে ।
+> সে বৎসর সেহ আইল প্রভুরে দেখিতে ॥৫৬॥
+
 prabhu-viṣaye sneha tāra bālaka-kāla haite
 
 se vatsara seha āila prabhure dekhite

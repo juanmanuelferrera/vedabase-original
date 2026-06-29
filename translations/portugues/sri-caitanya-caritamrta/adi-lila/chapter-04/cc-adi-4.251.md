@@ -1,5 +1,8 @@
 ### CC Adi 4.251
 
+> পরস্পর বেণুগীতে হরয়ে চেতন ।
+> মোর ভ্রমে তমালেরে করে আলিঙ্গন ॥২৫১॥
+
 paraspara veṇu-gīte haraye cetana
 mora bhrame tamālere kare āliṅgana
 

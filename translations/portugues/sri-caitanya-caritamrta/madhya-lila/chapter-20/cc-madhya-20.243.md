@@ -1,5 +1,8 @@
 ### CC Madhya 20.243
 
+> প্রকাশ-বিলাসের এই কৈলুঁ বিবরণ ।
+> স্বাংশের ভেদ এবে শুন, সনাতন ॥২৪৩॥
+
 prakāśa-vilāsera ei kailuṅ vivaraṇa
 
 svāṁśera bheda ebe śuna, sanātana

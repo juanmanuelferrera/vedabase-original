@@ -1,5 +1,8 @@
 ### CC Madhya 6.153
 
+> স্বাভাবিক তিন শক্তি যেই ব্রহ্মে হয় ।
+> ‘নিঃশক্তিক’ করি’ তাঁরে করহ নিশ্চয়? ॥১৫৩॥
+
 > svābhāvika tina śakti yei brahme haya
 > 'niḥśaktika' kari' tāṅre karaha niścaya?
 

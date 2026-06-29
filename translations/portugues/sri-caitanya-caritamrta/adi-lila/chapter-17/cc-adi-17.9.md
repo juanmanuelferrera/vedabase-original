@@ -1,5 +1,8 @@
 ### CC Adi 17.9
 
+> দীক্ষা-অনন্তরে হৈল, প্রেমের প্রকাশ ।
+> দেশে আগমন পুনঃ প্রেমের বিলাস ॥৯॥
+
 dīkṣā-anantare haila, premera prakāśa
 deśe āgamana punaḥ premera vilāsa
 

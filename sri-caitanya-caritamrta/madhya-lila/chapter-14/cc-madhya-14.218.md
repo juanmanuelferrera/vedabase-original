@@ -1,5 +1,8 @@
 ### CC Madhya 14.218
 
+> স্বরূপ কহে, — শ্রীবাস, শুন সাবধানে ।
+> বৃন্দাবনসম্পদ্ তোমার নাহি পড়ে মনে ? ॥ ২১৮ ॥
+
 > svarūpa kahe,-śrīvāsa, śuna sāvadhāne
 > vṛndāvana-sampad tomāra nāhi paḍe mane?
 

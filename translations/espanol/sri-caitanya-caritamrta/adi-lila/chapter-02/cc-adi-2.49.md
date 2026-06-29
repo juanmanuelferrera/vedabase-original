@@ -1,5 +1,8 @@
 ### CC Adi 2.49
 
+> কারণাব্ধি-গর্ভোদক-ক্ষীরোদকশায়ী ।
+> মায়াদ্বারে সৃষ্টি করে, তাতে সব মায়ী ॥৪৯॥
+
 > kāraṇābdhi-garbhodaka-kṣīrodaka-śāyī
 > māyā-dvāre sṛṣṭi kare, tāte saba māyī
 

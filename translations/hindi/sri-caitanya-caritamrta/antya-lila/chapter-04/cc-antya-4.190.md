@@ -1,5 +1,8 @@
 ### CC Antya 4.190
 
+> আলিঙ্গিয়া কৈলা তার কন্দর্প-সম অঙ্গ ।
+> বুঝিতে না পারি তোমার কৃপার তরঙ্গ ।।” ॥ ১৯০ ॥
+
 > āliṅgiyā kailā tāra kandarpa-sama aṅga
 > bujhite nā pāri tomāra kṛpāra taraṅga"
 

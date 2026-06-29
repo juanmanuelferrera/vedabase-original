@@ -1,5 +1,8 @@
 ### CC Adi 15.13
 
+> শুনি’ শচী-মিশ্রের দুঃখী হৈল মন ।
+> তবে প্রভু মাতা-পিতার কৈল আশ্বাসন ॥১৩॥
+
 > śuni, śacī-miśrera duḥkhī haila mana
 > tabe prabhu mātā-pitāra kaila āśvāsana
 

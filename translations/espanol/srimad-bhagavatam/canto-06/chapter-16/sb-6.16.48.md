@@ -1,5 +1,10 @@
 ### SB 6.16.48
 
+> यं वै श्वसन्तमनु विश्वसृजः श्वसन्ति
+> यं चेकितानमनु चित्तय उच्चकन्ति
+> भूमण्डलं सर्षपायति यस्य मूर्ध्नि
+> तस्मै नमो भगवतेऽस्तु सहस्रमूर्ध्ने ॥४८॥
+
 > yaṁ vai śvasantam anu viśva-sṛjaḥ śvasanti
 > yaṁ cekitānam anu cittaya uccakanti
 > bhū-maṇḍalaṁ sarṣapāyati yasya mūrdhni

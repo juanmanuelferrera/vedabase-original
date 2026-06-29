@@ -1,5 +1,8 @@
 ### CC Antya 3.239
 
+> নির্বিকার হরিদাস গম্ভীর-আশয়  ।
+> বলিতে লাগিলা তাঁরে হঞা সদয় ॥২৩৯॥
+
 > nirvikāra haridāsa gambhīra-āśaya
 > balite lāgilā tāṅre hañā sadaya
 

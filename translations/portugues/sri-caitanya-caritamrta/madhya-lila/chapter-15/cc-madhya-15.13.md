@@ -1,5 +1,8 @@
 ### CC Madhya 15.13
 
+> আচার্যের নিমন্ত্রণ — আশ্চর্য-কথন ।
+> বিস্তারি’ বর্ণিয়াছেন দাস-বৃন্দাবন ॥১৩॥
+
 ācāryera nimantraṇa--āścarya-kathana
 vistāri' varṇiyāchena dāsa-vṛndāvana
 

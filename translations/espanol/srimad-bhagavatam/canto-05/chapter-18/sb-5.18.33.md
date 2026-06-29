@@ -1,5 +1,8 @@
 ### SB 5.18.33
 
+> यस्मिन्नसङ्ख्येयविशेषनाम रूपाकृतौ कविभिः कल्पितेयम
+> सङ्ख्या यया तत्त्वदृशापनीयते तस्मै नमः साङ्ख्यनिदर्शनाय ते इति ॥३३॥
+
 > yasminn asaṅkhyeya-viśeṣa-nāma-
 > rūpākṛtau kavibhiḥ kalpiteyam
 > saṅkhyā yayā tattva-dṛśāpanīyate

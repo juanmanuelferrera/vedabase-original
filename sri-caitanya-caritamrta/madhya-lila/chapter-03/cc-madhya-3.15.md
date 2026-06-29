@@ -1,5 +1,8 @@
 ### CC Madhya 3.15
 
+> তা’-সবার স্তুতি করে, — তোমরা ভাগ্যবান্ ।
+> কৃতার্থ করিলে মোরে শুনাঞা হরিনাম ॥১৫॥
+
 > tā'-sabāra stuti kare,—tomarā bhāgyavān
 > kṛtārtha karile more śunāñā hari-nāma
 

@@ -1,5 +1,8 @@
 ### SB 4.11.14
 
+> सम्प्रसन्ने भगवति पुरुषः प्राकृतैर्गुणैः ।
+> विमुक्तो जीवनिर्मुक्तो ब्रह्म निर्वाणमृच्छति ॥१४॥
+
 > samprasanne bhagavati
 > puruṣaḥ prākṛtair guṇaiḥ
 > vimukto jīva-nirmukto

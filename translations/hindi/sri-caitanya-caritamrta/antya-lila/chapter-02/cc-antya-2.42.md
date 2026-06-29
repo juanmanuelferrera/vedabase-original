@@ -1,5 +1,8 @@
 ### CC Antya 2.42
 
+> শিবানন্দে কহিহ, — আমি এই পৌষ-মাসে ।
+> আচম্বিতে অবশ্য আমি যাইব তাঁর পাশে ॥৪২॥
+
 > śivānande kahiha,--āmi ei pauṣa-māse
 > ācambite avaśya āmi yāiba tāṅra pāśe
 

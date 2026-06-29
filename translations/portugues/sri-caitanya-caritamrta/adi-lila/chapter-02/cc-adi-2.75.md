@@ -1,5 +1,8 @@
 ### CC Adi 2.75
 
+> অনুবাদ না কহিয়া না কহি বিধেয় ।
+> আগে অনুবাদ কহি, পশ্চাদ্বিধেয় ॥৭৫॥
+
 anuvāda nā kahiyā nā kahi vidheya
 āge anuvāda kahi, paścād vidheya
 

@@ -1,5 +1,8 @@
 ### Bg 9.9
 
+> न च मां तानि कर्माणि निबध्नन्ति धनञ्जय ।
+> उदासीनवदासीनमसक्तं तेषु कर्मसु ॥९॥
+
 > na ca māṁ tāni karmāṇi
 > nibadhnanti dhanañjaya
 > udāsīna-vad āsīnam

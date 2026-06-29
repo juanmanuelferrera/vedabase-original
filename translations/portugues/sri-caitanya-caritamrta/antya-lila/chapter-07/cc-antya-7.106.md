@@ -1,5 +1,8 @@
 ### CC Antya 7.106
 
+> শুনি’ প্রভু কহেন, — “তুমি না জান ধর্মমর্ম ।
+> স্বামি-আজ্ঞা পালে, — এই পতিব্রতা-ধর্ম ॥১০৬॥
+
 śuni' prabhu kahena,--"tumi nā jāna dharma-marma
 
 svāmi-ājñā pāle,--ei pati-vratā-dharma

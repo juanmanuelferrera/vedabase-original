@@ -1,5 +1,8 @@
 ### CC Madhya 25.210
 
+> এথা সনাতন গোসাঞি প্রয়াগে আসিয়া ।
+> মথুরা আইলা সরান রাজপথ দিয়া ॥২১০॥
+
 ethā sanātana gosāñi prayāge āsiyā
 
 mathurā āilā sarāna rāja-patha diyā

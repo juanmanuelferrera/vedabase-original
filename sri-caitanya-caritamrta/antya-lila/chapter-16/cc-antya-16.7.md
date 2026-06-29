@@ -1,5 +1,8 @@
 ### CC Antya 16.7
 
+> কৌতুকেতে তেঁহো যদি পাশক খেলায় ।
+> ‘হরে কৃষ্ণ’ ‘কৃষ্ণ’ করি’ পাশক চালায় ॥৭॥
+
 > kautukete teṅho yadi pāśaka khelāya
 > 'hare kṛṣṇa' 'kṛṣṇa' kari' pāśaka cālāya
 

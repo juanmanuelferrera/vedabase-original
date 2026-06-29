@@ -1,5 +1,8 @@
 ### CC Madhya 15.237
 
+> ত্বয়োপযুক্তস্রগ্ গন্ধবাসোঽলঙ্কারচর্চিতাঃ ৷
+> উচ্ছিষ্টভোজিনো দাসাস্তব মায়াং জয়েম হি ॥২৩৭॥
+
 > tvayopayukta-srag-gandha-
 > vāso 'laṅkāra-carcitāḥ
 > ucchiṣṭa-bhojino dāsās

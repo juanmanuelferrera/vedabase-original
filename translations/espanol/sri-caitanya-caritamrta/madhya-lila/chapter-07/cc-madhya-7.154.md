@@ -1,5 +1,8 @@
 ### CC Madhya 7.154
 
+> ইথে অপরাধ মোর না লইও, ভক্তগণ ৷
+> তোমা-সবার চরণ — মোর একান্ত শরণ ৷৷ ১৫৪ ৷৷ ॥১৫৪॥
+
 > ithe aparādha mora nā la-io, bhakta-gaṇa
 > tomā-sabāra caraṇa--mora ekānta śaraṇa
 

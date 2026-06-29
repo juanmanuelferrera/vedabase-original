@@ -1,5 +1,8 @@
 ### CC Madhya 24.94
 
+> চতুর্বিধা ভজন্তে মাং জনাঃ সুকৃতিনোঽর্জুন ।
+> আর্তো জিজ্ঞাসুরর্থার্থী জ্ঞানী চ ভরতর্ষভ ॥৯৪॥
+
 > catur-vidhā bhajante māṁ
 > janāḥ sukṛtino 'rjuna
 > ārto jijñāsur arthārthī

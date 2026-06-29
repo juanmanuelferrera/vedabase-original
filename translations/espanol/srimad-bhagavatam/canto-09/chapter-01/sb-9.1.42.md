@@ -1,5 +1,8 @@
 ### SB 9.1.42
 
+> ततः परिणते काले प्रतिष्ठानपतिः प्रभुः
+> पुरूरवस उत्सृज्य गां पुत्राय गतो वनम ॥४२॥
+
 > tataḥ pariṇate kāle
 > pratiṣṭhāna-patiḥ prabhuḥ
 > purūravasa utsṛjya

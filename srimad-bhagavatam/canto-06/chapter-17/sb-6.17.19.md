@@ -1,5 +1,8 @@
 ### SB 6.17.19
 
+> नैवात्मा न परश्चापि कर्ता स्यात्सुखदुःखयोः
+> कर्तारं मन्यतेऽत्राज्ञअ आत्मानं परमेव च ॥१९॥
+
 > naivātmā na paraś cāpi
 > kartā syāt sukha-duḥkhayoḥ
 > kartāraṁ manyate 'trājña

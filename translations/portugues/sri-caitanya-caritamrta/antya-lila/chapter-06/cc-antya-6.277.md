@@ -1,5 +1,8 @@
 ### CC Antya 6.277
 
+> এত বিচারিয়া নিমন্ত্রণ ছাড়ি’ দিল”  ।
+> শুনি’ মহাপ্রভু হাসি’ বলিতে লাগিল ॥২৭৭॥
+
 eta vicāriyā nimantraṇa chāḍi' dila"
 
 śuni' mahāprabhu hāsi' balite lāgila

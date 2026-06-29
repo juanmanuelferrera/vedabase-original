@@ -1,5 +1,7 @@
 ### SB 5.17.5
 
+> तत्र चतुर्धा भिद्यमाना चतुर्भिर्नामभिश्चतुर्दिशमभिस्पन्दन्ती नदनदीपतिमेवाभिनिविशति सीतालकनन्दा चक्षुर्भद्रेति ॥५॥
+
 > tatra caturdhā bhidyamānā caturbhir nāmabhiś catur-diśam abhispandantī nada-nadī-patim evābhiniviśati sītālakanandā cakṣur bhadreti.
 
 *tatra*—there (on top of Mount Meru); *caturdhā*—into four branches; *bhidyamānā*—being divided; *caturbhiḥ*—with four; *nāmabhiḥ*—names; *catuḥ-diśam*—the four directions (east, west, north and south); *abhispandantī*—profusely flowing; *nada-nadī-patim*—the reservoir of all great rivers (the ocean); *eva*—certainly; *abhiniviśati*—enters; *sītā-alakanandā*—Sītā and Alakanandā; *cakṣuḥ*—Cakṣu; *bhadrā*—Bhadrā; *iti*—known by these names.

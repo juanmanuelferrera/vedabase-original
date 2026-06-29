@@ -1,5 +1,8 @@
 ### CC Madhya 25.255
 
+> ষোড়শে — বৃন্দাবনযাত্রা গৌড়দেশ-পথে ।
+> পুনঃ নীলাচলে আইলা, নাটশালা হৈতে ॥২৫৫॥
+
 > ṣoḍaśe-vṛndāvana-yātrā gauḍa-deśa-pathe
 > punaḥ nīlācale āilā, nāṭaśālā haite
 

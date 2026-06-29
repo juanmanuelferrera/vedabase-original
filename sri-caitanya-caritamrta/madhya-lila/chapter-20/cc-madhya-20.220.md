@@ -1,5 +1,8 @@
 ### CC Madhya 20.220
 
+> ইঁহার মধ্যে কারো হয় ‘অবতারে’ গণন ।
+> যৈছে বিষ্ণু, ত্রিবিক্রম, নৃসিংহ, বামন ॥২২০॥
+
 > iṅhāra madhye kāro haya 'avatāre' gaṇana
 > yaiche viṣṇu, trivikrama, nṛsiṁha, vāmana
 

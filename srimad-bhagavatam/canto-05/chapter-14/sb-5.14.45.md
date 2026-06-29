@@ -1,5 +1,10 @@
 ### SB 5.14.45
 
+> यज्ञआय धर्मपतये विधिनैपुणाय
+> योगाय साङ्ख्यशिरसे प्रकृतीश्वराय
+> नारायणाय हरये नम इत्युदारं
+> हास्यन्मृगत्वमपि यः समुदाजहार ॥४५॥
+
 > yajñāya dharma-pataye vidhi-naipuṇāya
 > yogāya sāṅkhya-śirase prakṛtīśvarāya
 > nārāyaṇāya haraye nama ity udāraṁ

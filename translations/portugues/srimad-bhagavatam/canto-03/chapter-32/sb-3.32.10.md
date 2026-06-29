@@ -1,5 +1,10 @@
 ### SB 3.32.10
 
+> एवं परेत्य भगवन्तमनुप्रविष्टाये
+> योगिनो जितमरुन्मनसो विरागाः ।
+> तेनैव साकममृतं पुरुषं पुराणं
+> ब्रह्म प्रधानमुपयान्त्यगताभिमानाः ॥१०॥
+
 evaṁ paretya bhagavantam anupraviṣṭā
 *ye yogino jita*-marun-manaso virāgāḥ
 tenaiva sākam amṛtaṁ puruṣaṁ purāṇaṁ

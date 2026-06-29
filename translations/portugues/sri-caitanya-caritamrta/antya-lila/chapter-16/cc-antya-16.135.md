@@ -1,5 +1,8 @@
 ### CC Antya 16.135
 
+> পরম দুর্লভ এই কৃষ্ণাধরামৃত ।
+> তাহা যেই পায়, তার সফল জীবিত ॥১৩৫॥
+
 parama durlabha ei kṛṣṇādharāmṛta
 
 tāhā yei pāya, tāra saphala jīvita

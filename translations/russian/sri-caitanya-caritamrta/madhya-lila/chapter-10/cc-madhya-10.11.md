@@ -1,5 +1,8 @@
 ### CC Madhya 10.11
 
+> তীর্থ পবিত্র করিতে করে তীর্থ ভ্রমণ ।
+> সেই ছলে নিস্তারয়ে সাংসারিক জন ॥১১॥
+
 > tīrtha pavitra karite kare tīrtha-bhramaṇa
 > sei chale nistāraye sāṁsārika jana
 

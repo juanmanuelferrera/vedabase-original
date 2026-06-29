@@ -1,5 +1,8 @@
 ### CC Adi 16.10
 
+> সেই দেশে বিপ্র, নাম — মিশ্র তপন ।
+> নিশ্চয় করিতে নারে সাধ্য-সাধন ॥১০॥
+
 > sei deśe vipra, nāma--miśra tapana
 > niścaya karite nāre sādhya-sādhana
 

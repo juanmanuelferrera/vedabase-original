@@ -1,5 +1,8 @@
 ### CC Adi 16.60
 
+> ‘দ্বিতীয়’ শব্দ — বিধেয়, তাহা পড়িল সমাসে ।
+> ‘লক্ষ্মীর সমতা’ অর্থ করিল বিনাশে ॥৬০॥
+
 'dvitīya' śabda--vidheya tāhā paḍila samāse
 
 'lakṣmīra samatā' artha karila vināśe

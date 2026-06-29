@@ -1,5 +1,8 @@
 ### CC Madhya 13.84
 
+> স্তম্ভ, স্বেদ, পুলক, অশ্রু, কম্প, বৈবর্ণ্য ।
+> নানা-ভাবে বিবশতা, গর্ব, হর্ষ, দৈন্য ॥৮৪॥
+
 stambha, sveda, pulaka, aśru, kampa, vaivarṇya
 
 nānā-bhāve vivaśatā, garva, harṣa, dainya

@@ -1,5 +1,8 @@
 ### CC Madhya 11.241
 
+> যাবৎ আছিলা সবে মহাপ্রভু-সঙ্গে ৷
+> প্রতিদিন এইমত করে কীর্তন-রঙ্গে ৷৷ ২৪১ ৷৷ ॥২৪১॥
+
 > yāvat āchilā sabe mahāprabhu-saṅge
 > prati-dina ei-mata kare kīrtana-raṅge
 

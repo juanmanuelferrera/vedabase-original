@@ -1,5 +1,8 @@
 ### SB 9.8.12
 
+> स्वशरीराग्निना तावन्महेन्द्रहृतचेतसः
+> महद्व्यतिक्रमहता भस्मसादभवन्क्षणात ॥१२॥
+
 *na sādhu*-vādo muni-kopa-bharjitā
 
 *nṛpendra*-putrā iti sattva-dhāmani

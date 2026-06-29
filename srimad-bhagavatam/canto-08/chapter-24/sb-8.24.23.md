@@ -1,5 +1,8 @@
 ### SB 8.24.23
 
+> इत्युक्तः सोऽनयन्मत्स्यं तत्र तत्राविदासिनि
+> जलाशयेऽसम्मितं तं समुद्रे प्राक्षिपज्झषम ॥२३॥
+
 > ity uktaḥ so 'nayan matsyaṁ
 > tatra tatrāvidāsini
 > jalāśaye 'sammitaṁ taṁ

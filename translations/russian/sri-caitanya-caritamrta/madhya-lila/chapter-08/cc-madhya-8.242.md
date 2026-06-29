@@ -1,5 +1,8 @@
 ### CC Madhya 8.242
 
+> এত বলি’ দুঁহে নিজ-নিজ কার্যে গেলা ।
+> সন্ধ্যাকালে রায় পুনঃ আসিয়া মিলিলা ॥২৪২॥
+
 > eta bali' duṅhe nija-nija kārye gelā
 > sandhyā-kāle rāya punaḥ āsiyā mililā
 

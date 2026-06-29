@@ -1,5 +1,8 @@
 ### CC Madhya 9.253
 
+> তাঁ-সবার অন্তরে গর্ব জানি গৌরচন্দ্র ।
+> তাঁ-সবা-সঙ্গে গোষ্ঠী করিলা আরম্ভ ॥২৫৩॥
+
 > tāṅ-sabāra antare garva jāni gauracandra
 > tāṅ-sabā-saṅge goṣṭhī karilā ārambha
 

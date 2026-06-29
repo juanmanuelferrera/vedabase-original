@@ -1,5 +1,8 @@
 ### CC Antya 10.79
 
+> কোলাহল নাহি, প্রভুর কিছু বাহ্য হৈল ।
+> তবে নিত্যানন্দ সবার শ্রম জানাইল ॥৭৯॥
+
 kolāhala nāhi, prabhura kichu bāhya haila
 
 tabe nityānanda sabāra śrama jānāila

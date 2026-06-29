@@ -1,5 +1,8 @@
 ### CC Antya 19.11
 
+> নীলাচলে আছি আমি তোমার আজ্ঞাতে ।
+> যাবৎ জীব, তাবৎ আমি নারিব ছাড়িতে ।।” ॥ ১১ ॥
+
 > nīlācale āchi āmi tomāra ājñāte
 > yāvat jība, tāvat āmi nāriba chāḍite'
 

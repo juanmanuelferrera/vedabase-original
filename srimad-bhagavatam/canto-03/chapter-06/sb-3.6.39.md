@@ -1,5 +1,8 @@
 ### SB 3.6.39
 
+> अतो भगवतो माया मायिनामपि मोहिनी ।
+> यत्स्वयं चात्मवर्त्मात्मा न वेद किमुतापरे ॥३९॥
+
 > ato bhagavato māyā
 > māyinām api mohinī
 > yat svayaṁ cātma-vartmātmā

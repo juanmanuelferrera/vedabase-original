@@ -1,5 +1,8 @@
 ### CC Antya 7.68
 
+> স্বরূপ, জগদানন্দ, কাশীশ্বর, শঙ্কর ।
+> পরিবেশন করে, আর রাঘব, দামোদর ॥৬৮॥
+
 > svarūpa, jagadānanda, kāśīśvara, śaṅkara
 > pariveśana kare, āra rāghava, dāmodara
 

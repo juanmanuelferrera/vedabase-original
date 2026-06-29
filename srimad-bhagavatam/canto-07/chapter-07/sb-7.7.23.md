@@ -1,5 +1,8 @@
 ### SB 7.7.23
 
+> देहस्तु सर्वसङ्घातो जगत्तस्थुरिति द्विधा
+> अत्रैव मृग्यः पुरुषो नेति नेतीत्यतत्त्यजन ॥२३॥
+
 > dehas tu sarva-saṅghāto
 > jagat tasthur iti dvidhā
 > atraiva mṛgyaḥ puruṣo

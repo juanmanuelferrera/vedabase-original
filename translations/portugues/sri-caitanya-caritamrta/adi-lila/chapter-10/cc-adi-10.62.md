@@ -1,5 +1,8 @@
 ### CC Adi 10.62
 
+> চৈতন্যদাস, রামদাস, আর কর্ণপূর ।
+> তিন পুত্র শিবানন্দের প্রভুর ভক্তশূর ॥৬২॥
+
 caitanya-dāsa, rāmadāsa, āra karṇapūra
 
 tina putra śivānandera prabhura bhakta-śūra

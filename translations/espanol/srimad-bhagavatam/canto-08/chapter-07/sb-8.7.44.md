@@ -1,5 +1,8 @@
 ### SB 8.7.44
 
+> तस्यापि दर्शयामास स्ववीर्यं जलकल्मषः
+> यच्चकार गले नीलं तच्च साधोर्विभूषणम ॥४४॥
+
 > tapyante loka-tāpena
 > sādhavaḥ prāyaśo janāḥ
 > paramārādhanaṁ tad dhi

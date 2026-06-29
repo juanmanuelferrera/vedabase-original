@@ -1,5 +1,8 @@
 ### CC Madhya 24.194
 
+> এই-পঞ্চ-মধ্যে এক ‘স্বল্প’ যদি হয় ।
+> সুবুদ্ধি জনের হয় কৃষ্ণপ্রেমোদয় ॥১৯৪॥
+
 > ei-pañca-madhye eka 'svalpa' yadi haya
 > subuddhi janera haya kṛṣṇa-premodaya
 

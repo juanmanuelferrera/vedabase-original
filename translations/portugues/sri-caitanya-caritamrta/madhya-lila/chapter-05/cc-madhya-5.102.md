@@ -1,5 +1,8 @@
 ### CC Madhya 5.102
 
+> নূপুরের ধ্বনি শুনি’ আনন্দিত মন ।
+> উত্তমান্ন পাক করি’ করায় ভোজন ॥১০২॥
+
 nūpurera dhvani śuni' ānandita mana
 
 uttamānna pāka kari' karāya bhojana

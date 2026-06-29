@@ -1,5 +1,8 @@
 ### SB 9.17.5
 
+> यज्ञअभुग्वासुदेवांशः स्मृतमात्रार्तिनाशनः
+> तत्पुत्रः केतुमानस्य जज्ञए भीमरथस्ततः ॥५॥
+
 > tat-putraḥ ketumān asya
 > jajñe bhīmarathas tataḥ
 > divodāso dyumāṁs tasmāt

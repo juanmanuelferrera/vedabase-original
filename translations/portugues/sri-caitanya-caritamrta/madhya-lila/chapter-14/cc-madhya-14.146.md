@@ -1,5 +1,8 @@
 ### CC Madhya 14.146
 
+> সরল ব্যবহার, করে মানের পোষণ ।
+> কিম্বা সোল্লুণ্ঠ-বাক্যে করে প্রিয়-নিরসন ॥১৪৬॥
+
 sarala vyavahāra, kare mānera poṣaṇa
 
 kimvā solluṇṭha-vākye kare priya-nirasana

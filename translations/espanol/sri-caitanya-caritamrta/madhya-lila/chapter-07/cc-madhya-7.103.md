@@ -1,5 +1,8 @@
 ### CC Madhya 7.103
 
+> সেই যাই’ গ্রামের লোক বৈষ্ণব করয় ৷
+> অন্যগ্ৰামী আসি’ তাঁরে দেখি’ বৈষ্ণব হয় ৷৷ ১০৩ ৷৷ ॥১০৩॥
+
 > sei yāi' grāmera loka vaiṣṇava karaya
 > anya-grāmī āsi' tāṅre dekhi' vaiṣṇava haya
 

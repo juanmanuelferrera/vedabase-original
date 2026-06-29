@@ -1,5 +1,8 @@
 ### SB 9.12.2
 
+> देवानीकस्ततोऽनीहः पारियात्रोऽथ तत्सुतः
+> ततो बलस्थलस्तस्माद्वज्रनाभोऽर्कसम्भवः ॥२॥
+
 > devānīkas tato 'nīhaḥ
 > pāriyātro 'tha tat-sutaḥ
 > tato balasthalas tasmād

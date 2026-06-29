@@ -1,5 +1,8 @@
 ### CC Madhya 25.232
 
+> জগন্নাথ দেখি’ প্রভু প্রেমাবিষ্ট হৈলা ।
+> ভক্ত-সঙ্গে বহুক্ষণ নৃত্য-গীত কৈলা ॥২৩২॥
+
 > jagannātha dekhi' prabhu premāviṣṭa hailā
 > bhakta-saṅge bahu-kṣaṇa nṛtya-gīta kailā
 

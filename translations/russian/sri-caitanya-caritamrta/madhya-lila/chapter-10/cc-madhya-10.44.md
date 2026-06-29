@@ -1,5 +1,8 @@
 ### CC Madhya 10.44
 
+> মুরারি মাহাতি ইঁহ — শিখিমাহাতির ভাই ।
+> তোমার চরণ বিনু আর গতি নাই ॥৪৪॥
+
 > murāri māhāti iṅha-śikhi-māhātira bhāi
 > tomāra caraṇa vinu āra gati nāi
 

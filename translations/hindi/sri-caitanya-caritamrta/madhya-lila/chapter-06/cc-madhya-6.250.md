@@ -1,5 +1,8 @@
 ### CC Madhya 6.250
 
+> নিজ কৃত দুই শ্লোক লিখিয়া তালপাতে ।
+> ‘প্ৰভুকে দিহ’ বলি’ দিল জগদানন্দ হাতে ॥২৫০॥
+
 > nija kṛta dui śloka likhiyā tāla-pāte
 > 'prabhuke diha' bali' dila jagadānanda-hāte
 

@@ -1,5 +1,8 @@
 ### CC Antya 10.102
 
+> সঙ্ক্ষেপে কহিলুঁ এই পরিমুণ্ডা-নৃত্য ।
+> অদ্যাপিহ গায় যাহা চৈতন্যের ভৃত্য ॥১০২॥
+
 saṅkṣepe kahiluṅ ei pari-muṇḍā-nṛtya
 
 adyāpiha gāya yāhā caitanyera bhṛtya

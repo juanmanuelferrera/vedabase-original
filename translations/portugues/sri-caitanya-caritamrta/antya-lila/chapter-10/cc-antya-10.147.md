@@ -1,5 +1,8 @@
 ### CC Antya 10.147
 
+> শিবানন্দের গৌরবে প্রভু করিলা ভোজন ।
+> অতি গুরু-ভোজনে প্রভুর প্রসন্ন নহে মন ॥১৪৭॥
+
 śivānandera gaurave prabhu karilā bhojana
 
 ati-guru-bhojane prabhura prasanna nahe mana

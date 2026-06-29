@@ -1,5 +1,8 @@
 ### CC Madhya 4.115
 
+> যৈছে ইহা ভোগ লাগে, সকলই পুছিব ।
+> তৈছে ভিয়ানে ভোগ গোপালে লাগাইব ॥১১৫॥
+
 yaiche ihā bhoga lāge, sakala-i puchiba
 taiche bhiyāne bhoga gopāle lāgāiba
 

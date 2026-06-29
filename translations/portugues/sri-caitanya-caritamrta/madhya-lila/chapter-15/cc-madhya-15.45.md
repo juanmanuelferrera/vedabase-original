@@ -1,5 +1,7 @@
 ### CC Madhya 15.45
 
+> শ্রীবাস-পণ্ডিতে প্রভু করি’ আলিঙ্গন ৷ কণ্ঠে ধরি’ কহে তাঁরে মধুর বচন ॥৪৫॥
+
 śrīvāsa-paṇḍite prabhu kari' āliṅgana
 
 kaṇṭhe dhari' kahe tāṅre madhura vacana

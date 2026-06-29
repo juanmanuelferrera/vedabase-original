@@ -1,5 +1,8 @@
 ### CC Antya 6.191
 
+> প্রভু কহেন, — ‘আইস’, তেঁহো ধরিলা চরণ ।
+> উঠি’ প্রভু কৃপায় তাঁরে কৈলা আলিঙ্গন ॥১৯১॥
+
 > prabhu kahena,--'āisa;, teṅho dharilā caraṇa
 > uṭhi' prabhu kṛpāya tāṅre kailā āliṅgana
 

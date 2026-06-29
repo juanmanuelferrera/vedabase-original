@@ -1,5 +1,8 @@
 ### CC Adi 10.117
 
+> প্রভুর আজ্ঞায় নিত্যানন্দ গৌড়ে চলিলা ।
+> তাঁর সঙ্গে তিনজন প্রভু-আজ্ঞায় আইলা ॥১১৭॥
+
 > prabhura ājñāya nityānanda gauḍe calilā
 > tāṅra saṅge tina-jana prabhu-ājñāya āilā
 

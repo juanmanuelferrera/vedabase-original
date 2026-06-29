@@ -1,5 +1,8 @@
 ### SB 3.20.33
 
+> वितर्कयन्तो बहुधा तां सन्ध्यां प्रमदाकृतिम् ।
+> अभिसम्भाव्य विश्रम्भात्पर्यपृच्छन्कुमेधसः ॥३३॥
+
 > vitarkayanto bahudhā
 > tāṁ sandhyāṁ pramadākṛtim
 > abhisambhāvya viśrambhāt

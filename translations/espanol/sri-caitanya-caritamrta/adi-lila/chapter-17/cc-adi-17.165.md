@@ -1,5 +1,8 @@
 ### CC Adi 17.165
 
+> তোমরা জীয়াইতে নার, — বধমাত্র সার ।
+> নরক হইতে তোমার নাহিক নিস্তার ॥১৬৫॥
+
 > tomarā jīyāite nāra,--vadha-mātra sāra
 > naraka ha-ite tomāra nāhika nistāra
 

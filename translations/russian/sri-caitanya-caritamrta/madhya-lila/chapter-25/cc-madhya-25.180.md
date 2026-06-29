@@ -1,5 +1,8 @@
 ### CC Madhya 25.180
 
+> সবে চাহে প্রভু-সঙ্গে নীলাচল যাইতে ।
+> সবারে বিদায় দিলা প্রভু যত্ন-সহিতে ॥১৮০॥
+
 > sabe cāhe prabhu-saṅge nīlācala yāite
 > sabāre vidāya dilā prabhu yatna-sahite
 

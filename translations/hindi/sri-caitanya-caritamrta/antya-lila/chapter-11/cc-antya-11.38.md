@@ -1,5 +1,8 @@
 ### CC Antya 11.38
 
+> কিন্তু আমার যে কিছু সুখ, সব তোমা লঞা ।
+> তোমার যোগ্য নহে, — যাবে আমারে ছাড়িয়া ।।” ॥ ৩৮ ॥
+
 > kintu āmāra ye kichu sukha, saba tomā lañā
 > tomāra yogya nahe,--yābe āmāre chāḍiyā"
 

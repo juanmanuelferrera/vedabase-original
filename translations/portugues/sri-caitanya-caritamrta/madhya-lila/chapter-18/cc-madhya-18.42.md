@@ -1,5 +1,8 @@
 ### CC Madhya 18.42
 
+> এইমত গোপালের করুণ স্বভাব ।
+> যেই ভক্ত জনের দেখিতে হয় ‘ভাব’ ॥৪২॥
+
 ei-mata gopālera karuṇa svabhāva
 
 yei bhakta janera dekhite haya 'bhāva'

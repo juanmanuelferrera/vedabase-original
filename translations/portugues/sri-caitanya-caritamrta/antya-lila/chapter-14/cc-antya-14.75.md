@@ -1,5 +1,8 @@
 ### CC Antya 14.75
 
+> স্বরূপ কহে, — ‘উঠ, প্রভু চল নিজ-ঘরে ।
+> তথাই তোমারে সব করিমু গোচরে ।।’ ॥ ৭৫ ॥
+
 svarūpa kahe,--'uṭha, prabhu, cala nija-ghare
 
 tathāi tomāre saba karimu gocare'

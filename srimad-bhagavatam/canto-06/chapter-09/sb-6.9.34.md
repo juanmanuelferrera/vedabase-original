@@ -1,5 +1,7 @@
 ### SB 6.9.34
 
+> दुरवबोध इव तवायं विहारयोगो यदशरणोऽशरीर इदमनवेक्षितास्मत्समवायआत्मनैवाविक्रियमाणेन सगुणमगुणः सृजसि पासि हरसि ॥३४॥
+
 > duravabodha iva tavāyaṁ vihāra-yogo yad aśaraṇo 'śarīra idam anavekṣitāsmat-samavāya ātmanaivāvikriyamāṇena saguṇam aguṇaḥ sṛjasi pāsi harasi.
 
 *duravabodhaḥ*—difficult to understand; *iva*—quite; *tava*—Your; *ayam*—this; *vihāra-yogaḥ*—engagement in the pastimes of material creation, maintenance and annihilation; *yat*—which; *aśaraṇaḥ*—not dependent on any other support; *aśarīraḥ*—without having a material body; *idam*—this; *anavekṣita*—without waiting for; *asmat*—of us; *samavāyaḥ*—the cooperation; *ātmanā*—by Your own self; *eva*—indeed; *avikriyamāṇena*—without being transformed; *sa-guṇam*—the material modes of nature; *aguṇaḥ*—although transcendental to such material qualities; *sṛjasi*—You create; *pāsi*—maintain; *harasi*—annihilate.

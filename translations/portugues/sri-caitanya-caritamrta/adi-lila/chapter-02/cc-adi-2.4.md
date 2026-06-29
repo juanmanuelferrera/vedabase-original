@@ -1,5 +1,8 @@
 ### CC Adi 2.4
 
+> তৃতীয় শ্লোকের অর্থ করি বিবরণ ।
+> বস্তু-নির্দেশরূপ মঙ্গলাচরণ ॥৪॥
+
 tṛtīya ślokera artha kari vivaraṇa
 vastu-nirdeśa-rūpa maṅgalācaraṇa
 

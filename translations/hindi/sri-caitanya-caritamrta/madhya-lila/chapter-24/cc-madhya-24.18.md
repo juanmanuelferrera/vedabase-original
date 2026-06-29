@@ -1,5 +1,8 @@
 ### CC Madhya 24.18
 
+> নির্নিশ্চয়ে নিষ্ক্রমার্থে নির্নির্মাণ-নিষেধয়োঃ ।
+> গ্রন্থো ধনেঽথ সন্দর্ভে বর্ণসংগ্রথনেঽপি চ ॥১৮॥
+
 > nir niścaye niṣ kramārthe
 > nir nirmāṇa-niṣedhayoḥ
 > grantho dhane 'tha sandarbhe

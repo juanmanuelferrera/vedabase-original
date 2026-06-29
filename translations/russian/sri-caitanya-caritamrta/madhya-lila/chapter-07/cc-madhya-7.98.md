@@ -1,5 +1,8 @@
 ### CC Madhya 7.98
 
+> সেই লোক প্রেমমত্ত হঞা বলে ‘হরি’ ‘কৃষ্ণ’ ।
+> প্রভুর পাছে সঙ্গে যায় দর্শন-সতৃষ্ণ ॥৯৮॥
+
 > sei loka prema-matta hañā bale 'hari' 'kṛṣṇa'
 > prabhura pāche saṅge yāya darśana-satṛṣṇa
 

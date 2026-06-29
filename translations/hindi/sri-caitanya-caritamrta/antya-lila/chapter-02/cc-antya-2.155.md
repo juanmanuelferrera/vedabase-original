@@ -1,5 +1,8 @@
 ### CC Antya 2.155
 
+> মনুষ্য না দেখে — মধুর গীতমাত্র শুনে  ।
+> গোবিন্দাদি সবে মেলি’ কৈল অনুমানে ॥১৫৫॥
+
 > manuṣya nā dekhe--madhura gīta-mātra śune
 > govindādi sabe meli' kaila anumāne
 

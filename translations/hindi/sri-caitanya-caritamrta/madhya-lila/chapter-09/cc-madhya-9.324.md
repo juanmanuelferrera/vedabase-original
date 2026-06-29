@@ -1,5 +1,8 @@
 ### CC Madhya 9.324
 
+> প্রভু কহে, — তুমি যেই সিদ্ধান্ত কহিলে ।
+> এই দুই পুঁথি সেই সব সাক্ষী দিলে ॥৩২৪॥
+
 > prabhu kahe,--tumi yei siddhānta kahile
 > ei dui puṅthi sei saba sākṣī dile
 

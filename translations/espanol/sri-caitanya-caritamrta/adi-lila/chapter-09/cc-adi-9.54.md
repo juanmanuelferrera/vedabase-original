@@ -1,5 +1,8 @@
 ### CC Adi 9.54
 
+> এই ত’ কহিলুঁ প্রেমফল-বিতরণ ।
+> এবে শুন, ফলদাতা যে যে শাখাগণ ॥৫৪॥
+
 > ei ta' kahiluṅ prema-phala-vitaraṇa
 > ebe śuna, phala-dātā ye ye śākhā-gaṇa
 

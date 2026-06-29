@@ -1,5 +1,8 @@
 ### CC Madhya 5.60
 
+> আর কেহ সঙ্গে নাহি, এই সঙ্গে একল ।
+> ধুতুরা খাওয়াঞা বাপে করিল পাগল ॥৬০॥
+
 āra keha saṅge nāhi, ei saṅge ekala
 
 dhuturā khāoyāñā bāpe karila pāgala

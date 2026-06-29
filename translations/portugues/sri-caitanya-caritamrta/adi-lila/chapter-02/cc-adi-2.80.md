@@ -1,5 +1,8 @@
 ### CC Adi 2.80
 
+> ‘এতে’-শব্দে অবতারের আগে অনুবাদ ।
+> ‘পুরুষের অংশ’ পাছে বিধেয়-সংবাদ ॥৮০॥
+
 'ete'-śabde avatārera āge anuvāda
 'puruṣera aṁśa' pāche vidheya-saṁvāda
 

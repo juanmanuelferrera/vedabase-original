@@ -1,5 +1,8 @@
 ### CC Adi 13.73
 
+> অপত্য-বিরহে মিশ্রের দুঃখী হৈল মন ।
+> পুত্র লাগি’ আরাধিল বিষ্ণুর চরণ ॥৭৩॥
+
 apatya-virahe miśrera duḥkhī haila mana
 putra lāgi' ārādhila viṣṇura caraṇa
 

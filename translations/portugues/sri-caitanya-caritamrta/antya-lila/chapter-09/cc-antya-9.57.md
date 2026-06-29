@@ -1,5 +1,8 @@
 ### CC Antya 9.57
 
+> সংখ্যা লাগি’ দুই-হাতে অঙ্গুলীতে লেখা ।
+> সহস্রাদি পূর্ণ হৈলে, অঙ্গে কাটে রেখা ।।” ॥ ৫৭ ॥
+
 saṅkhyā lāgi' dui-hāte aṅgulīte lekhā
 
 sahasrādi pūrṇa haile, aṅge kāṭe rekhā"

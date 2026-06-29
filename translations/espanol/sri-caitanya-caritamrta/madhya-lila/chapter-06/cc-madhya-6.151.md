@@ -1,5 +1,8 @@
 ### CC Madhya 6.151
 
+> অতএব শ্রুতি কহে, ব্রহ্ম — সবিশেষ ।
+> ‘মুখ্য’ ছাড়ি’ ‘লক্ষণা’তে মানে নির্বিশেষ ॥১৫১॥
+
 > ataeva śruti kahe, brahma--saviśeṣa
 > 'mukhya' chāḍi' 'lakṣaṇā'te māne nirviśeṣa
 

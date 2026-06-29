@@ -1,5 +1,8 @@
 ### SB 8.5.50
 
+> नमस्तुभ्यमनन्ताय दुर्वितर्क्यात्मकर्मणे
+> निर्गुणाय गुणेशाय सत्त्वस्थाय च साम्प्रतम ॥५०॥
+
 > namas tubhyam anantāya
 > durvitarkyātma-karmaṇe
 > nirguṇāya guṇeśāya

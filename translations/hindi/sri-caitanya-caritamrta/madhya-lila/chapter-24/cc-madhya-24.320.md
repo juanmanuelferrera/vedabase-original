@@ -1,5 +1,8 @@
 ### CC Madhya 24.320
 
+> ব্রূহি যোগেশ্বরে কৃষ্ণে ব্রহ্মণ্যে ধর্মবর্মণি ।
+> স্বাং কাষ্ঠামধুনোপেতে ধর্মঃ কং শরণং গতঃ ॥৩২০॥
+
 > brūhi yogeśvare kṛṣṇe
 > brahmaṇye dharma-varmaṇi
 > svāṁ kāṣṭhām adhunopete

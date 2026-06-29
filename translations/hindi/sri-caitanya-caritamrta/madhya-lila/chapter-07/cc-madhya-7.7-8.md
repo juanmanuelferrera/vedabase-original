@@ -1,5 +1,10 @@
 ### CC Madhya 7.7-8
 
+> নিজগণ আনি’ কহে বিনয় করিয়া ।
+> আলিঙ্গন করি’ সবায় শ্রীহস্তে ধরিয়া ॥৭॥
+> তোমা-সবা জানি আমি প্রাণাধিক করি’ ।
+> প্রাণ ছাড়া যায়, তোমা-সবা ছাড়িতে না পারি ॥৮॥
+
 > nija-gaṇa āni' kahe vinaya kariyā
 > āliṅgana kari' sabāya śrī-haste dhariyā
 > tomā-sabā jāni āmi prāṇādhika kari'

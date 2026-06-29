@@ -1,5 +1,8 @@
 ### CC Madhya 16.126
 
+> রামানন্দ, মর্দরাজ, শ্রীহরিচন্দন ।
+> সঙ্গে সেবা করি’ চলে এই তিন জন ॥১২৬॥
+
 > rāmānanda, mardarāja, śrī-haricandana
 > saṅge sevā kari' cale ei tina jana
 

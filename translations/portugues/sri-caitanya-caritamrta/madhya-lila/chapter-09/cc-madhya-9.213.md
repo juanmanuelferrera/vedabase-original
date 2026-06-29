@@ -1,5 +1,8 @@
 ### CC Madhya 9.213
 
+> পত্র পাঞা বিপ্রের হৈল আনন্দিত মন ৷
+> প্রভুর চরণে ধরি’ করয়ে ক্রন্দন ৷৷ ২১৩ ৷৷ ॥২১৩॥
+
 patra pāñā viprera haila ānandita mana
 prabhura caraṇe dhari' karaye krandana
 

@@ -1,5 +1,8 @@
 ### CC Adi 12.25
 
+> তবে মহাপ্রভু, তাঁর হৃদে হস্ত ধরি’ ।
+> ‘উঠহ, গোপাল,’ কৈল বল ‘হরি’ ‘হরি’ ॥২৫॥
+
 > tabe mahāprabhu, tāṅra hṛde hasta dhari'
 > 'uṭhaha, gopāla,' kaila bala 'hari' 'hari'
 

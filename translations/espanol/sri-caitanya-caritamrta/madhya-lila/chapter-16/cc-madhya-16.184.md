@@ -1,5 +1,8 @@
 ### CC Madhya 16.184
 
+> ‘চণ্ডাল — পবিত্র যাঁর শ্রীনাম-শ্রবণে ।
+> হেন-তোমার এই জীব পাইল দরশনে ॥১৮৪॥
+
 > 'caṇḍāla--pavitra yāṅra śrī-nāma-śravaṇe
 > hena-tomāra ei jīva pāila daraśane
 

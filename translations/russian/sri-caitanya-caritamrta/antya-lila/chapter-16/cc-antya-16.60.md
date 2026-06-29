@@ -1,5 +1,8 @@
 ### CC Antya 16.60
 
+> ভক্তপদধূলি আর ভক্তপদ-জল ।
+> ভক্তভুক্ত-অবশেষ, — তিন মহাবল ॥৬০॥
+
 > bhakta-pada-dhūli āra bhakta-pada-jala
 > bhakta-bhukta-avaśeṣa,—tina mahā-bala
 

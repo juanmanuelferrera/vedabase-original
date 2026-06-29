@@ -1,5 +1,7 @@
 ### SB 5.20.25
 
+> तस्यापि प्रैयव्रत एवाधिपतिर्नाम्ना मेधातिथिः सोऽपि विभज्य सप्त वर्षाणि पुत्रनामानि तेषुस्वात्मजान्पुरोजवमनोजवपवमानधूम्रानीकचित्ररेफबहुरूपविश्वधारसंज्ञआन्निधाप्याधिपतीन्स्वयं भगवत्यनन्त आवेशितमतिस्तपोवनं प्रविवेश ॥२५॥
+
 > tasyāpi praiyavrata evādhipatir nāmnā medhātithiḥ so 'pi vibhajya sapta varṣāṇi putra-nāmāni teṣu svātmajān purojava-manojava-pavamāna-dhūmrānīka-citrarepha-bahurūpa-viśvadhāra-saṁjñān nidhāpyādhipatīn svayaṁ bhagavaty ananta ā-veśita-matis tapovanaṁ praviveśa.
 
 *tasya api*—también en esa isla; *praiyavrataḥ*—un hijo de Mahārāja Priyavrata; *eva*—ciertamente; *adhipatiḥ*—el gobernador; *nāmnā*—de nombre; *medhā-tithiḥ*—Medhātithi; *saḥ api*—también él; *vibhajya*—dividir; *sapta varṣāṇi*—siete divisiones de la isla; *putra-nāmāni*—con los nombres de sus hijos; *teṣu*—en ellas; *sva-ātmajān*—sus propios hijos; *purojava*—Purojava; *manojava*—Manojava; *pavamāna*—Pavamāna; *dhūmrānīka*—Dhūmrānīka; *citra-repha*—Citrarepha; *bahu-rūpa*—Bahurūpa; *viśvadhāra*—Viśvadhāra; *saṁjñān*—tener por nombre; *nidhāpya*—establecer como; *adhipatīn*—los gobernadores; *svayam*—él mismo; *bhagavati*—en la Suprema Personalidad de Dios; *anante*—en el ilimitado; *āveśita-matiḥ*—cuya mente estaba plenamente absorta; *tapaḥ-vanam*—en el bosque al que se va a meditar; *praviveśa*—entró.

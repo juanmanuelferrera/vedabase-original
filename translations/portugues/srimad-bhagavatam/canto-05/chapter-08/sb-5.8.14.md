@@ -1,5 +1,7 @@
 ### SB 5.8.14
 
+> क्रियायां निर्वर्त्यमानायामन्तरालेऽप्युत्थायोत्थाय यदैनमभिचक्षीत तर्हि वाव स वर्षपतिः प्रकृतिस्थेन मनसा तस्मा आशिष आशास्ते स्वस्ति स्ताद्वत्स ते सर्वत इति ॥१४॥
+
 *kriyāyāṁ nirvartyamānāyām antarāle 'py utthāyotthāya yadainam abhicakṣīta tarhi vāva sa varṣa*-patiḥ prakṛti-sthena manasā tasmā āśiṣa āśāste svasti stād vatsa te sarvata iti.
 
 *kriyāyām*—as atividades de adoração ao Senhor ou de realização de cerimônias ritualísticas; *nirvartyamānāyām*—mesmo sem terminar; *antarāle*—em intervalos no meio; *api*—embora; *utthāya utthāya*—levantando-se repetidamente; *yadā*—quando; *enam*—o filhote de cervo; *abhicakṣīta*—via; *tarhi vāva*—nesse momento; *saḥ*—ele; *varṣa-patiḥ*—Mahārāja Bharata; *prakṛti-sthena*—feliz; *manasā*—em sua mente; *tasmai*—a ele; *āśiṣaḥ āśāste*—concede bênçãos; *svasti*—toda boa fortuna; *stāt*—haja; *vatsa*—ó meu querido filhote; *te*—a ti; *sarvataḥ*—em todos os sentidos; *iti*—assim.

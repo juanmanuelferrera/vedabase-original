@@ -1,5 +1,8 @@
 ### SB 1.6.17
 
+> प्रेमातिभरनिर्भिन्न पुलकाङ्गोऽतिनिर्वृतः ।
+> आनन्दसम्प्लवे लीनो नापश्यमुभयं मुने ॥१७॥
+
 > premātibhara-nirbhinna-
 > pulakāṅgo 'tinirvṛtaḥ
 > ānanda-samplave līno

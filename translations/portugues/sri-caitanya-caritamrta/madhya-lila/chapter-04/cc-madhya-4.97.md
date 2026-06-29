@@ -1,5 +1,8 @@
 ### CC Madhya 4.97
 
+> আশ-পাশ ব্রজভূমের যত গ্রাম সব ।
+> এক এক দিন সবে করে মহোৎসব ॥৯৭॥
+
 āśa-pāśa vraja-bhūmera yata grāma saba
 eka eka dina sabe kare mahotsava
 

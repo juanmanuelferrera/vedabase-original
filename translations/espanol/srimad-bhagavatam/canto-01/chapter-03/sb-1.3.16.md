@@ -1,5 +1,8 @@
 ### SB 1.3.16
 
+> सुरासुराणामुदधिं मथ्नतां मन्दराचलम् ।
+> दध्रे कमठरूपेण पृष्ठ एकादशे विभुः ॥१६॥
+
 > surāsurāṇām udadhiṁ
 > mathnatāṁ mandarācalam
 > dadhre kamaṭha-rūpeṇa

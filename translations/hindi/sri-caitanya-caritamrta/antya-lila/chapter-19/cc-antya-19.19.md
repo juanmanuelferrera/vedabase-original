@@ -1,5 +1,8 @@
 ### CC Antya 19.19
 
+> “প্রভুরে কহিহ আমার কোটি নমস্কার  ।
+> এই নিবেদন তাঁর চরণে আমার ॥১৯॥
+
 > "prabhure kahiha āmāra koṭi namaskāra
 > ei nivedana tāṅra caraṇe āmāra
 

@@ -1,5 +1,8 @@
 ### CC Adi 17.322
 
+> নবমেতে ‘ভক্তিকল্পবৃক্ষের বর্ণন’ ।
+> শ্রীচৈতন্য-মালী কৈলা বৃক্ষ আরোপণ ॥৩২২॥
+
 > navamete 'bhakti-kalpa-vṛkṣera varṇana'
 > śrī-caitanya-mālī kailā vṛkṣa āropaṇa
 

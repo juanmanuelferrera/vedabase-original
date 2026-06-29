@@ -1,5 +1,8 @@
 ### CC Adi 2.9
 
+> ‘নন্দসুত’ বলি, যাঁরে ভাগবতে গাই ।
+> সেই কৃষ্ণ অবতীর্ণ চৈতন্যগোসাঞি ॥৯॥
+
 > 'nanda-suta' bali' yāṅre bhāgavate gāi
 > sei kṛṣṇa avatīrṇa caitanya-gosāñi
 

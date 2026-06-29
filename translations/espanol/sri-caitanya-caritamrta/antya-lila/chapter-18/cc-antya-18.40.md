@@ -1,5 +1,7 @@
 ### CC Antya 18.40
 
+> “অনিষ্টাশঙ্কীনি বন্ধুহৃদয়ানি ভবন্তি হি ।।” ॥ ৪০ ॥
+
 > "aniṣṭa-śaṅkīni bandhu-hṛdayāni bhavanti hi"
 
 *aniṣṭa*—de alguna desgracia; *śaṅkīni*—que albergan temores; *bandhu*—de los amigos o allegados; *hṛdayāni*—los corazones; *bhavanti*—se vuelven; *hi*—ciertamente.

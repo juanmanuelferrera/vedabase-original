@@ -1,5 +1,8 @@
 ### CC Adi 17.40
 
+> মদ্যভাণ্ড-পাশে ধরি’ নিজ-ঘরে গেল ।
+> প্রাতঃকালে শ্রীবাস তাহা ত’ দেখিল ॥৪০॥
+
 > madya-bhāṇḍa-pāśe dhari' nija-ghare gela
 > prātaḥ-kāle śrīvāsa tāhā ta' dekhila
 

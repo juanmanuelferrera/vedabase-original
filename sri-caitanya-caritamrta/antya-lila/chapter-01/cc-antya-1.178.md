@@ -1,5 +1,8 @@
 ### CC Antya 1.178
 
+> শুনিয়া প্রভুর যদি অন্তরে উল্লাস  ।
+> বাহিরে কহেন কিছু করি’ রোষাভাস ॥১৭৮॥
+
 > śuniyā prabhura yadi antare ullāsa
 > bāhire kahena kichu kari' roṣābhāsa
 

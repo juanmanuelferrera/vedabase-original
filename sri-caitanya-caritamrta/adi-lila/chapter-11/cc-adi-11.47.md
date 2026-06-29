@@ -1,5 +1,8 @@
 ### CC Adi 11.47
 
+> হোড় কৃষ্ণদাস — নিত্যানন্দপ্রভু-প্রাণ ।
+> নিত্যানন্দ-পদ বিনু নাহি জানে আন ॥৪৭॥
+
 > hoḍa kṛṣṇadāsa—nityānanda-prabhu-prāṇa
 > nityānanda-pada vinu nāhi jāne āna
 

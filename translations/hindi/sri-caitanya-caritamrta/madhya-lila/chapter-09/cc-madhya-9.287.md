@@ -1,5 +1,8 @@
 ### CC Madhya 9.287
 
+> প্রেমাবেশে করে তাঁরে দণ্ড-পরণাম ।
+> অশ্রু, পুলক, কম্প, সর্বাঙ্গে পড়ে ঘাম ॥২৮৭॥
+
 > premāveśe kare tāṅre danda-paraṇāma
 > aśru, pulaka, kampa, sarvāṅge paḍe ghāma
 

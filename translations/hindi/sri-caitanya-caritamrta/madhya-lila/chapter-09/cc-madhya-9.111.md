@@ -1,5 +1,8 @@
 ### CC Madhya 9.111
 
+> প্রভু কহে, — ভট্ট, তোমার লক্ষ্মী-ঠাকুরাণী ।
+> কান্ত-বক্ষঃস্থিতা, পতিব্রতা-শিরোমণি ॥১১১॥
+
 > prabhu kahe,--bhaṭṭa, tomāra lakṣmī-ṭhākurāṇī
 > kānta-vakṣaḥ-sthitā, pativratā-śiromaṇi
 

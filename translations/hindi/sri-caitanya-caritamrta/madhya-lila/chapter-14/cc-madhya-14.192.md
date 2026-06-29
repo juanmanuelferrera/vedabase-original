@@ -1,5 +1,8 @@
 ### CC Madhya 14.192
 
+> বিন্যাস-ভঙ্গিরঙ্গানাং ভ্রূবিলাস-মনোহরা ।
+> সুকুমারা ভবেদ্যত্র ললিতং তদুদাহৃতম্ ॥১৯২॥
+
 > vinyāsa-bhaṅgir aṅgānāṁ
 > bhrū-vilāsa-manoharā
 > sukumārā bhaved yatra

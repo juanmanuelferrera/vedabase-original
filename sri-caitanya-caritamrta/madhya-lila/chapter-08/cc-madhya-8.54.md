@@ -1,5 +1,8 @@
 ### CC Madhya 8.54
 
+> প্রভু যাই’ সেই বিপ্ৰঘরে ভিক্ষা কৈল ।
+> দুই জনার উৎকণ্ঠায় আসি’ সন্ধ্যা হৈল ॥৫৪॥
+
 > prabhu yāi' sei vipra-ghare bhikṣā kaila
 > dui janāra utkaṇṭḥāya āsi' sandhyā haila
 

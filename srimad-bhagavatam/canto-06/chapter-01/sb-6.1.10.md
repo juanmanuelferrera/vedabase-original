@@ -1,5 +1,8 @@
 ### SB 6.1.10
 
+> क्वचिन्निवर्ततेऽभद्रात्क्वचिच्चरति तत्पुनः
+> प्रायश्चित्तमथोऽपार्थं मन्ये कुञ्जरशौचवत ॥१०॥
+
 > kvacin nivartate 'bhadrāt
 > kvacic carati tat punaḥ
 > prāyaścittam atho 'pārthaṁ

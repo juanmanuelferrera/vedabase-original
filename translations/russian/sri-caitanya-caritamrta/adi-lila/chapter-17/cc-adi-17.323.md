@@ -1,5 +1,8 @@
 ### CC Adi 17.323
 
+> দশমেতে মূল-স্কন্ধের ‘শাখাদি-গণন’ ।
+> সর্বশাখাগণের যৈছে ফল-বিতরণ ॥৩২৩॥
+
 > daśamete mūla-skandhera 'śākhādi-gaṇana'
 > sarva-śākhā-gaṇera yaiche phala-vitaraṇa
 

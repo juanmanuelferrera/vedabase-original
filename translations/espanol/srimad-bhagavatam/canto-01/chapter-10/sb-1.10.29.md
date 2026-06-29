@@ -1,5 +1,8 @@
 ### SB 1.10.29
 
+> या वीर्यशुल्केन हृताः स्वयंवरे प्रमथ्य चैद्यप्रमुखान्हि शुष्मिणः ।
+> प्रद्युम्नसाम्बाम्बसुतादयोऽपरा याश्चाहृता भौमवधे सहस्रशः ॥२९॥
+
 > yā vīrya-śulkena hṛtāḥ svayaṁvare
 > pramathya caidya-pramukhān hi śuṣmiṇaḥ
 > pradyumna-sāmbāmba-sutādayo 'parā

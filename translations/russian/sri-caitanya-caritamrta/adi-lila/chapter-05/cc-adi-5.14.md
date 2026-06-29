@@ -1,5 +1,8 @@
 ### CC Adi 5.14
 
+> প্রকৃতির পার ‘পরব্যোম’-নামে ধাম ।
+> কৃষ্ণবিগ্রহ যৈছে বিভূত্যাদি-গুণবান্ ॥১৪॥
+
 > prakṛtira pāra 'paravyoma'-nāme dhāma
 > kṛṣṇa-vigraha yaiche vibhūty-ādi-guṇavān
 

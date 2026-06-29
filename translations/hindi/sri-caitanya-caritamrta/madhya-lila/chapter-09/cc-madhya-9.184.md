@@ -1,5 +1,8 @@
 ### CC Madhya 9.184
 
+> তাঁর উপাসনা শুনি’ প্রভু তুষ্ট হৈলা ।
+> আস্তে-ব্যস্তে সেই বিপ্র রন্ধন করিলা ॥১৮৪॥
+
 > tāṅra upāsanā śuni' prabhu tuṣṭa hailā
 > āste-vyaste sei vipra randhana karilā
 

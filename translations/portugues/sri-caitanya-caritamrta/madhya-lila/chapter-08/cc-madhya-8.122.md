@@ -1,5 +1,8 @@
 ### CC Madhya 8.122
 
+> তোমার শিক্ষায় পড়ি যেন শুক-পাঠ ৷
+> সাক্ষাৎ ঈশ্বর তুমি, কে বুঝে তোমার নাট ৷৷ ১২২ ৷৷ ॥১২২॥
+
 tomāra śikṣāya paḍi yena śuka-pāṭha
 
 sākṣāt īśvara tumi, ke bujhe tomāra nāṭa

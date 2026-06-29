@@ -1,5 +1,8 @@
 ### CC Madhya 16.74
 
+> যাঁহার দর্শনে মুখে আইসে কৃষ্ণনাম ।
+> তাঁহারে জানিহ তুমি ‘বৈষ্ণব-প্রধান’ ॥৭৪॥
+
 > yāṅhāra darśane mukhe āise kṛṣṇa-nāma
 > tāṅhāre jāniha tumi 'vaiṣṇava-pradhāna'
 

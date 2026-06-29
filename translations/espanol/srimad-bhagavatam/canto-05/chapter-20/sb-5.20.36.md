@@ -1,5 +1,7 @@
 ### SB 5.20.36
 
+> लोकालोक इति समाख्या यदनेनाचलेन लोकालोकस्यान्तर्वर्तिनावस्थाप्यते ॥३६॥
+
 > lokāloka iti samākhyā yad anenācalena lokālokasyāntarvar-tināvasthāpyate.
 
 *loka*—con luz (o con habitantes); *alokaḥ*—sin luz (o sin habitantes); *iti*—de ese modo; *samākhyā*—designación; *yat*—que; *anena*—por esa; *acalena*—montaña; *loka*—de la región habitada por entidades vivientes; *alokasya*—y de la región no habitada por entidades vivientes; *antarvartinā*—que está en medio; *avasthāpyate*—se establece.

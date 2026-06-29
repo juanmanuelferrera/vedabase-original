@@ -1,5 +1,8 @@
 ### CC Madhya 8.83
 
+> কিন্তু যাঁর যেই রস, সেই সর্বোত্তম ।
+> তটস্থ হঞা বিচারিলে, আছে তর-তম ॥৮৩॥
+
 > kintu yāṅra yei rasa, sei sarvottama
 > taṭa-stha hañā vicārile, āche tara-tama
 

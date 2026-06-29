@@ -1,5 +1,8 @@
 ### CC Madhya 17.156
 
+> মথুরা আসিয়া কৈলা ‘বিশ্রান্তি-তীর্থে’ স্নান ।
+> ‘জন্মস্থানে’ ‘কেশব’ দেখি’ করিলা প্রণাম ॥১৫৬॥
+
 > mathurā āsiyā kailā 'viśrānti-tīrthe' snāna
 > 'janma-sthāne' 'keśava' dekhi' karilā praṇāma
 

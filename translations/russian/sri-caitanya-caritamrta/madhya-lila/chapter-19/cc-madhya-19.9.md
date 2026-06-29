@@ -1,5 +1,8 @@
 ### CC Madhya 19.9
 
+> গৌড়ে রাখিল মুদ্রা দশ-হাজারে ।
+> সনাতন ব্যয় করে, রাখে মুদি-ঘরে ॥৯॥
+
 > gauḍe rākhila mudrā daśa-hājāre
 > sanātana vyaya kare, rākhe mudi-ghare
 

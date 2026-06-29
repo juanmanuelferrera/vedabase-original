@@ -1,5 +1,8 @@
 ### CC Antya 7.146
 
+> এই লক্ষ্য পাঞা প্রভু কৈলা রোষাভাস ।
+> শুনি’ পণ্ডিতের চিত্তে উপজিল ত্রাস ॥১৪৬॥
+
 ei lakṣya pāñā prabhu kailā roṣābhāsa
 
 śuni' paṇḍitera citte upajila trāsa

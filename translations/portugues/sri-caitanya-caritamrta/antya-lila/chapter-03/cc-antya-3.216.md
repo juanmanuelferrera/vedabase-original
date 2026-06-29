@@ -1,5 +1,8 @@
 ### CC Antya 3.216
 
+> গঙ্গা তীরে গোঁফা করি’ নির্জনে তাঁরে দিলা ।
+> ভাগবত-গীতার ভক্তি-অর্থ শুনাইলা ॥২১৬॥
+
 gaṅgā-tīre goṅphā kari' nirjane tāṅre dilā
 
 bhāgavata-gītāra bhakti-artha śunāilā

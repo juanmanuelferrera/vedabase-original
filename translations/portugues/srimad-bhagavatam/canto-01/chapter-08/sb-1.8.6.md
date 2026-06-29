@@ -1,5 +1,8 @@
 ### SB 1.8.6
 
+> याजयित्वाश्वमेधैस्तं त्रिभिरुत्तमकल्पकैः ।
+> तद्यशः पावनं दिक्षु शतमन्योरिवातनोत् ॥६॥
+
 yājayitvāśvamedhais taṁ
 *tribhir uttama*-kalpakaiḥ
 *tad*-yaśaḥ pāvanaṁ dikṣu

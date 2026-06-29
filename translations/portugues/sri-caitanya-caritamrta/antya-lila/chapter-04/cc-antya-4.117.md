@@ -1,5 +1,8 @@
 ### CC Antya 4.117
 
+> মধ্যাহ্ন-ভিক্ষাকালে সনাতনে বোলাইল ।
+> প্রভু বোলাইলা, তাঁর আনন্দ বাড়িল ॥১১৭॥
+
 madhyāhna-bhikṣā-kāle sanātane bolāila
 
 prabhu bolāilā, tāṅra ānanda bāḍila

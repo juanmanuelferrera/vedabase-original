@@ -1,5 +1,8 @@
 ### CC Madhya 23.104
 
+> বৃন্দাবনে কৃষ্ণসেবা, বৈষ্ণব-আচার ।
+> ভক্তিস্মৃতিশাস্ত্র করি’ করিহ প্রচার ॥১০৪॥
+
 vṛndāvane kṛṣṇa-sevā, vaiṣṇava-ācāra
 
 bhakti-smṛti-śāstra kari' kariha pracāra

@@ -1,5 +1,8 @@
 ### CC Madhya 13.8
 
+> বলিষ্ঠ দয়িতা’গণ — যেন মত্ত হাতী ।
+> জগন্নাথ বিজয় করায় করি’ হাতাহাতি ॥৮॥
+
 baliṣṭha dayitā' gaṇa-yena matta hātī
 jagannātha vijaya karāya kari' hātāhāti
 

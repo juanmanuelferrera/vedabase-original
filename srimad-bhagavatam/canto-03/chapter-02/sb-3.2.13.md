@@ -1,5 +1,8 @@
 ### SB 3.2.13
 
+> यद्धर्मसूनोर्बत राजसूये निरीक्ष्य दृक्स्वस्त्ययनं त्रिलोकः ।
+> कार्त्स्न्येन चाद्येह गतं विधातुरर्वाक्सृतौ कौशलमित्यमन्यत ॥१३॥
+
 > yad dharma-sūnor bata rājasūye
 > nirīkṣya dṛk-svastyayanaṁ tri-lokaḥ
 > kārtsnyena cādyeha gataṁ vidhātur

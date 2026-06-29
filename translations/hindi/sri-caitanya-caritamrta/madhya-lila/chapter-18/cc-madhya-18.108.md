@@ -1,5 +1,8 @@
 ### CC Madhya 18.108
 
+> কিন্তু কাহোঁ ‘কৃষ্ণ’ দেখে, কাহোঁ ‘ভ্রম’ মানে ।
+> স্থাণু-পুরুষে যৈছে বিপরীত-জ্ঞানে ॥১০৮॥
+
 > kintu kāhoṅ 'kṛṣṇa' dekhe, kāhoṅ 'bhrama' māne
 > sthāṇu-puruṣe yaiche viparīta-jñāne
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.72
 
+> বৃহত্ত্বাদ্বৃংহণত্বাচ্চ তদ্ব্রহ্ম পরমং বিদুঃ ।
+> তস্মৈ নমস্তে সর্বাত্মন্ যোগিচিন্ত্যাবিকারবত্ ॥৭২॥
+
 > bṛhattvād bṛṁhaṇatvāc ca
 > tad brahma paramaṁ viduḥ
 > tasmai namas te sarvātman

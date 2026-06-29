@@ -1,5 +1,8 @@
 ### CC Madhya 20.176
 
+> যে-কালে দ্বিভুজ, নাম — বৈভবপ্রকাশ ।
+> চতুর্ভুজ হৈলে, নাম — প্রাভবপ্রকাশ ॥১৭৬॥
+
 > ye-kāle dvibhuja, nāma—vaibhava-prakāśa
 > caturbhuja haile, nāma—prābhava-prakāśa
 

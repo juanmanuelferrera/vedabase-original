@@ -1,5 +1,8 @@
 ### CC Madhya 24.30
 
+> ‘ভক্তি’-শব্দের অর্থ হয় দশবিধাকার ।
+> এক — ‘সাধন’, ‘প্রেমভক্তি’ — নব প্রকার ॥৩০॥
+
 > 'bhakti'-śabdera artha haya daśa-vidhākāra
 > eka—'sādhana', 'prema-bhakti'—nava prakāra
 

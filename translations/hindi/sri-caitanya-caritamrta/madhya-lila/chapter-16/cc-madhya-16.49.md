@@ -1,5 +1,8 @@
 ### CC Madhya 16.49
 
+> কুলীনগ্রামী পট্টডোরী জগন্নাথে দিল  ।
+> পূর্ববৎ রথ-অগ্রে নর্তন করিল ॥৪৯॥
+
 > kulīna-grāmī paṭṭa-ḍorī jagannāthe dila
 > pūrvavat ratha-agre nartana karila
 

@@ -1,5 +1,10 @@
 ### SB 8.23.7
 
+> यत्पादपद्ममकरन्दनिषेवणेन
+> ब्रह्मादयः शरणदाश्नुवते विभूतीः
+> कस्माद्वयं कुसृतयः खलयोनयस्ते
+> दाक्षिण्यदृष्टिपदवीं भवतः प्रणीताः ॥७॥
+
 > yat-pāda-padma-makaranda-niṣevaṇena
 > brahmādayaḥ śaraṇadāśnuvate vibhūtīḥ
 > kasmād vayaṁ kusṛtayaḥ khala-yonayas te

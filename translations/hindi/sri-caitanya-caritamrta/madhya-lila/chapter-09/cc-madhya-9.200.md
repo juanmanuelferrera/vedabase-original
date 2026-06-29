@@ -1,5 +1,8 @@
 ### CC Madhya 9.200
 
+> বিপ্র-সভায় শুনে তাঁহা কূর্ম-পুরাণ ।
+> তার মধ্যে আইলা পতিব্রতা-উপাখ্যান ॥২০০॥
+
 > vipra-sabhāya śune tāṅhā kūrma-purāṇa
 > tāra madhye āilā pativratā-upākhyāna
 

@@ -1,5 +1,10 @@
 ### CC Madhya 1.81
 
+> আহুশ্চ তে নলিননাভ পদারবিন্দং
+> যোগেশ্বরৈর্হৃদি বিচিন্ত্যমগাধবোধৈঃ ।
+> সংসারকূপপতিতোত্তরণাবলম্বং
+> গেহং জুষামপি মনস্যুদিয়াৎ সদা নঃ ॥৮১॥
+
 āhuś ca te nalina-nābha padāravindaṁ
 yogeśvarair hṛdi vicintyam agādha-bodhaiḥ
 saṁsāra-kūpa-patitottaraṇāvalambaṁ

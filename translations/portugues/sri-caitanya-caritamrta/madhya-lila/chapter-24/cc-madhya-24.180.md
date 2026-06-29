@@ -1,5 +1,8 @@
 ### CC Madhya 24.180
 
+> কিংবা ‘ধৃতি’-শব্দে নিজপূর্ণতাদি-জ্ঞান কয় ।
+> দুঃখাভাবে উত্তমপ্রাপ্ত্যে মহাপূর্ণ হয় ॥১৮০॥
+
 kiṁvā'dhṛti'-śabde nija-pūrṇatādi-jñāna kaya
 
 duḥkhābhāve uttama-prāptye mahā-pūrṇa haya

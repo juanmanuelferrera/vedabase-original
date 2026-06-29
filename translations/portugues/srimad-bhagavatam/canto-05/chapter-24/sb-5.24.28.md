@@ -1,5 +1,7 @@
 ### SB 5.24.28
 
+> ततोऽधस्तात्तलातले मयो नाम दानवेन्द्रस्त्रिपुराधिपतिर्भगवता पुरारिणा त्रिलोकीशंचिकीर्षुणा निर्दग्धस्वपुरत्रयस्तत्प्रसादाल्लब्धपदो मायाविनामाचार्यो महादेवेन परिरक्षितोविगतसुदर्शनभयो महीयते ॥२८॥
+
 *tato 'dhastāt talātale mayo nāma dānavendras tri*-purādhipatir bhagavatā purāriṇā tri-lokī-śaṁ cikīrṣuṇā nirdagdha-sva-pura-trayas tat-prasādāl labdha-pado māyāvinām ācāryo mahādevena parirakṣito vigata-sudarśana-bhayo mahīyate.
 
 *tataḥ*—o planeta conhecido como Sutala; *adhastāt*—abaixo; *talātale*—no planeta conhecido como Talātala; *mayaḥ*—Maya; *nāma*—chamado; *dānava-indraḥ*—o rei dos demônios Dānavas; *tri-pura-adhipatiḥ*—o senhor das três cidades; *bhagavatā*—pelo mais poderoso; *purāriṇā*—o Senhor Śiva, que é conhecido como Tripurāri; *tri-lokī*—dos três mundos; *śam*—a boa fortuna; *cikīrṣuṇā*—que desejava; *nirdagdha*—queimadas; *sva-pura-trayaḥ*—cujas três cidades; *tat-prasādāt*—pela misericórdia do Senhor Śiva; *labdha*—obtido; *padaḥ*—um reino; *māyā-vinām ācāryaḥ*—que é o *ācārya*, ou mestre, de todos os mágicos; *mahā-devena*—pelo Senhor Śiva; *parirakṣitaḥ*—protegido; *vigata-sudarśana-bhayaḥ*—que não tem medo da Suprema Personalidade de Deus nem de Seu Sudarśana cakra; *mahīyate*—é adorado.

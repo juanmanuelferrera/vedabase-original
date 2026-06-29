@@ -1,5 +1,7 @@
 ### SB 5.14.41
 
+> कर्मवल्लीमवलम्ब्य तत आपदः कथञ्चिन्नरकाद्विमुक्तः पुनरप्येवं संसाराध्वनिवर्तमानो नरलोकसार्थमुपयाति एवमुपरि गतोऽपि ॥४१॥
+
 > karma-vallīm avalambya tata āpadaḥ kathañcin narakād vimuktaḥ punar apy evaṁ saṁsārādhvani vartamāno nara-loka-sārtham upayāti evam upari gato 'pi.
 
 *karma-vallīm*—la enredadera de las actividades fruitivas; *avalambya*—cobijarse en; *tataḥ*—de esa; *āpadaḥ*—condición peligrosa o miserable; *kathañcit*—de una forma u otra; *narakāt*—de las condiciones de vida infernales; *vimuktaḥ*—liberada; *punaḥ api*—de nuevo; *evam*—de ese modo; *saṁsāra-adhvani*—en la senda de la existencia material; *vartamānaḥ*—existir; *nara-loka-sa-artham*—el campo de las actividades materiales centradas en uno mismo; *upayāti*—entra; *evam*—así; *upari*—arriba (en los sistemas planetarios superiores); *gataḥ api*—aunque elevada.

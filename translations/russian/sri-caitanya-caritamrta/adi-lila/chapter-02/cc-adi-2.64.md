@@ -1,5 +1,8 @@
 ### CC Adi 2.64
 
+> শুন ভাই এই শ্লোক করহ বিচার ।
+> এক মুখ্যতত্ত্ব, তিন তাহার প্রচার ॥৬৪॥
+
 > śuna bhāi ei śloka karaha vicāra
 > eka mukhya-tattva, tina tāhāra pracāra
 

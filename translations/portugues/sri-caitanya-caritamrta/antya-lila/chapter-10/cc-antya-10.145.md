@@ -1,5 +1,8 @@
 ### CC Antya 10.145
 
+> সেন কহে, — ‘যে জানিলুঁ, সেই নাম ধরিল’ ।
+> এত বলি’ মহাপ্রভুরে নিমন্ত্রণ কৈল ॥১৪৫॥
+
 sena kahe,--'ye jāniluṅ, sei nāma dharila'
 
 eta bali' mahāprabhure nimantraṇa kaila

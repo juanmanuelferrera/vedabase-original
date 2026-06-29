@@ -1,5 +1,8 @@
 ### SB 4.8.48
 
+> किरीटिनं कुण्डलिनं केयूरवलयान्वितम् ।
+> कौस्तुभाभरणग्रीवं पीतकौशेयवाससम् ॥४८॥
+
 > kirīṭinaṁ kuṇḍalinaṁ
 > keyūra-valayānvitam
 > kaustubhābharaṇa-grīvaṁ

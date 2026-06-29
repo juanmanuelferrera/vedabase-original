@@ -1,5 +1,7 @@
 ### SB 5.13.25
 
+> सौवीरपतिरपि सुजनसमवगतपरमात्मसतत्त्व आत्मन्यविद्याध्यारोपितां च देहात्ममतिं विससर्ज एवं हि नृप भगवदाश्रिताश्रितानुभावः ॥२५॥
+
 *sauvīra*-patir api sujana-samavagata-paramātma-satattva ātmany avidyādhyāropitāṁ ca dehātma-matiṁ visasarja; evaṁ hi nṛpa bhagavad-āśritāśritānubhāvaḥ.
 
 *sauvīra-patiḥ*—o Rei do estado de Sauvīra; *api*—certamente; *su-janāt*—de uma pessoa elevada; *samavagata*—tendo compreendido completamente; *paramātma-sa-tattvaḥ*—a verdade da posição constitucional da alma espiritual e da Superalma; *ātmani*—em si mesmo; *avidyā*—pela ignorância; *adhyāropitām*—erroneamente atribuída; *ca*—e; *deha*—no corpo; *ātma-matim*—o conceito do eu; *visasarja*—abandonou completamente; *evam*—assim; *hi*—certamente; *nṛpa*—ó Rei; *bhagavat-āśrita-āśrita-anubhāvaḥ*—a consequência de refugiar-se em um devoto que igualmente se refugiou em um mestre espiritual no sistema paramparā (está-se certo de sair da grande ignorância do conceito corporal da vida).

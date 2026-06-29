@@ -1,5 +1,8 @@
 ### CC Madhya 11.180
 
+> গোপীনাথে দেখাইল সব বাসা-ঘর ৷
+> বাণীনাথ-ঠাঞি দিল প্রসাদ বিস্তর ৷৷ ১৮০ ৷৷ ॥১৮০॥
+
 gopīnāthe dekhāila saba vāsā-ghara
 vāṇīnātha-ṭhāñi dila prasāda vistara
 

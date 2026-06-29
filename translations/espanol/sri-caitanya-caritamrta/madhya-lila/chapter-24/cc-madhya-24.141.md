@@ -1,5 +1,10 @@
 ### CC Madhya 24.141
 
+> যেঽন্যেঽরবিন্দাক্ষ বিমুক্তমানিন-
+> স্ত্বয্যস্তভাবাদবিশুদ্ধবুদ্ধয়ঃ ।
+> আরুহ্য কৃচ্ছ্রেণ পরং পদং ততঃ
+> পতন্ত্যধোঽনাদৃতযুষ্মদঙ্ঘ্রয়ঃ ॥১৪১॥
+
 > ye 'nye 'ravindākṣa vimukta-māninas
 > tvayy asta-bhāvād aviśuddha-buddhayaḥ
 > āruhya kṛcchreṇa paraṁ padaṁ tataḥ

@@ -1,5 +1,8 @@
 ### CC Madhya 16.238
 
+> মর্কট-বৈরাগ্য না কর লোক দেখাঞা ।
+> যথাযোগ্য বিষয় ভুঞ্জ’ অনাসক্ত হঞা ॥২৩৮॥
+
 > markaṭa-vairāgya nā kara loka dekhāñā
 > yathā-yogya viṣaya bhuñja' anāsakta hañā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 19.20
 
+> রাজা কহে, — তোমার স্থানে বৈদ্য পাঠাইলুঁ ।
+> বৈদ্য কহে, — ব্যাধি নাহি, সুস্থ যে দেখিলুঁ ॥২০॥
+
 > rājā kahe,—tomāra sthāne vaidya pāṭhāiluṅ
 > vaidya kahe,—vyādhi nāhi, sustha ye dekhiluṅ
 

@@ -1,5 +1,8 @@
 ### CC Antya 7.163
 
+> পণ্ডিতের ভাব-মুদ্রা কহন না যায় ।
+> ‘গদাধর-প্রাণনাথ’ নাম হৈল যায় ॥১৬৩॥
+
 > paṇḍitera bhāva-mudrā kahana nā yāya
 > 'gadādhara-prāṇa-nātha' nāma haila yāya
 

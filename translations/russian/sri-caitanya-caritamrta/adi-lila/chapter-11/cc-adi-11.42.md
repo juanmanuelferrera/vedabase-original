@@ -1,5 +1,8 @@
 ### CC Adi 11.42
 
+> আচার্য বৈষ্ণবানন্দ ভক্তি-অধিকারী ।
+> পূর্বে নাম ছিল যাঁর ‘রঘুনাথ পুরী’ ॥৪২॥
+
 > ācārya vaiṣṇavānanda bhakti-adhikārī
 > pūrve nāma chila yāṅra 'raghunātha purī'
 

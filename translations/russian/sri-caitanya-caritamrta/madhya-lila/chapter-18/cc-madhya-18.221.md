@@ -1,5 +1,8 @@
 ### CC Madhya 18.221
 
+> দক্ষিণ যাইতে যৈছে শক্তি প্রকাশিলা ।
+> সেইমত পশ্চিম দেশ, প্রেমে ভাসাইলা ॥২২১॥
+
 > dakṣiṇa yāite yaiche śakti prakāśilā
 > sei-mata paścima deśa, preme bhāsāilā
 

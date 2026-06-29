@@ -1,5 +1,8 @@
 ### CC Antya 20.79
 
+> আকাশ — অনন্ত, তাতে যৈছে পক্ষিগণ  ।
+> যার যত শক্তি, তত করে আরোহণ ॥৭৯॥
+
 > ākāśa--ananta, tāte yaiche pakṣi-gaṇa
 > yāra yata śakti, tata kare ārohaṇa
 

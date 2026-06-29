@@ -1,5 +1,8 @@
 ### CC Madhya 13.66
 
+> পূর্বে যৈছে রাসাদি লীলা কৈল বৃন্দাবনে ।
+> অলৌকিক লীলা গৌর কৈল ক্ষণে ক্ষণে ॥৬৬॥
+
 pūrve yaiche rāsādi līlā kaila vṛndāvane
 
 alaukika līlā gaura kaila kṣaṇe kṣaṇe

@@ -1,5 +1,8 @@
 ### CC Madhya 10.157
 
+> অন্যেরে অন্য কহ, নাহি তোমার জ্ঞান ।
+> ভারতী-গোসাঞি কেনে পরিবেন চাম ॥১৫৭॥
+
 > anyere anya kaha, nāhi tomāra jñāna
 > bhāratī-gosāñi kene paribena cāma
 

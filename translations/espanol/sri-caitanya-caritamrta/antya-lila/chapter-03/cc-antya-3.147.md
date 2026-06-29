@@ -1,5 +1,8 @@
 ### CC Antya 3.147
 
+> বৈষ্ণবধর্ম নিন্দা করে, বৈষ্ণব-অপমান ।
+> বহুদিনের অপরাধে পাইল পরিণাম ॥১৪৭॥
+
 > vaiṣṇava-dharma nindā kare, vaiṣṇava-apamāna
 > bahu-dinera aparādhe pāila pariṇāma
 

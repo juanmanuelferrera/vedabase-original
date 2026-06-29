@@ -1,5 +1,10 @@
 ### CC Antya 1.148
 
+> পীড়াভির্নবকালকূটকটুতা-গর্বস্য নির্বাসনো
+> নিঃস্যন্দেন মুদাং সুধা-মধুরিমাহঙ্কর-সঙ্কোচনঃ ।
+> প্রেমা সুন্দরি নন্দনন্দনপরো জাগর্তি যস্যান্তরে
+> জ্ঞায়ন্তে স্ফুটমস্য বক্রমধুরাস্তেনৈব বিক্রান্তয়ঃ ॥১৪৮॥
+
 > pīḍābhir nava-kāla-kūṭa-kaṭutā-garvasya nirvāsano
 > nisyandena mudāṁ sudhā-madhurimāhaṅkāra-saṅkocanaḥ
 > premā sundari nanda-nandana-paro jāgarti yasyāntare

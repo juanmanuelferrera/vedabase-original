@@ -1,5 +1,8 @@
 ### CC Madhya 12.124
 
+> যদ্যপি গোসাঞি তারে হঞাছে সন্তোষ ।
+> ধর্মসংস্থাপন লাগি’ বাহিরে মহারোষ ॥১২৪॥
+
 yadyapi gosāñi tāre hañāche santoṣa
 
 dharma-saṁsthāpana lāgi' bāhire mahā-roṣa

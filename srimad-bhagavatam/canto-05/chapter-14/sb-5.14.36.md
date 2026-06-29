@@ -1,5 +1,7 @@
 ### SB 5.14.36
 
+> क्वचित्क्षीणधनः शय्यासनाशनाद्युपभोगविहीनो यावदप्रतिलब्धमनोरथोपगतादानेऽवसितमतिस्ततस्ततोऽवमानादीनि जनादभिलभते ॥३६॥
+
 > kvacit kṣīṇa-dhanaḥ śayyāsanāśanādy-upabhoga-vihīno yāvad apratilabdha-manorathopagatādāne 'vasita-matis tatas tato 'vamānādīni janād abhilabhate.
 
 *kvacit*—sometimes; *kṣīṇa-dhanaḥ*—not having sufficient money; *śayyā-āsana-aśana-ādi*—accommodations for sleeping, sitting or eating; *upabhoga*—of material enjoyment; *vihīnaḥ*—being bereft; *yāvat*—as long as; *apratilabdha*—not achieved; *manoratha*—by his desire; *upagata*—obtained; *ādāne*—in seizing by unfair means; *avasita-matiḥ*—whose mind is determined; *tataḥ*—because of that; *tataḥ*—from that; *avamāna-ādīni*—insults and punishment; *janāt*—from the people in general; *abhilabhate*—he gets.

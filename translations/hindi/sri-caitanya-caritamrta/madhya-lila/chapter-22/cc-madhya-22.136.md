@@ -1,5 +1,10 @@
 ### CC Madhya 22.136
 
+> শ্রীবিষ্ণোঃ শ্রবণে পরীক্ষিদভবদ্বৈয়াসকিঃ কীর্তনে
+> প্রহ্লাদঃ স্মরণে তদঙ্ঘ্রিভজনে লক্ষ্মীঃ পৃথুঃ পূজনে ।
+> অক্রূরস্ত্বভিবন্দনে কপিপতির্দাস্যেঽথ সখ্যেঽর্জুনঃ
+> সর্বস্বাত্মনিবেদনে বলিরভূৎ কৃষ্ণাপ্তিরেষাং পরা ॥১৩৬॥
+
 > śrī-viṣṇoḥ śravaṇe parīkṣid abhavad vaiyāsakiḥ kīrtane
 > prahlādaḥ smaraṇe tad-aṅghri-bhajane lakṣmīḥ pṛthuḥ pūjane
 > akrūras tv abhivandane kapi-patir dāsye 'tha sakhye 'rjunaḥ

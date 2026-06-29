@@ -1,5 +1,8 @@
 ### CC Madhya 15.244
 
+> এত শুনি’ হাসি’ প্রভু বসিলা ভোজনে ।
+> জগন্নাথের প্রসাদ ভট্ট দেন হর্ষ-মনে ॥২৪৪॥
+
 > eta śuni' hāsi' prabhu vasilā bhojane
 > jagannāthera prasāda bhaṭṭa dena harṣa-mane
 

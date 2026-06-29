@@ -1,5 +1,8 @@
 ### CC Antya 10.52
 
+> জললীলা করি’ গোবিন্দ চলিলা আলয় ।
+> নিজগণ লঞা প্রভু গেলা দেবালয় ॥৫২॥
+
 jala-līlā kari' govinda calilā ālaya
 
 nija-gaṇa lañā prabhu gelā devālaya

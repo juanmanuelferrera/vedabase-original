@@ -1,5 +1,8 @@
 ### CC Madhya 18.133
 
+> কান্যকুব্জ-দাক্ষিণাত্যের বৈদিক ব্রাহ্মণ ।
+> দৈন্য করি, করে মহাপ্রভুর নিমন্ত্রণ ॥১৩৩॥
+
 > kānyakubja-dākṣiṇātyera vaidika brāhmaṇa
 > dainya kari, kare mahāprabhura nimantraṇa
 

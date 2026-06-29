@@ -1,5 +1,8 @@
 ### CC Antya 15.9
 
+> একমন পঞ্চদিকে পঞ্চগুণ টানে ।
+> টানাটানি প্রভুর মন হৈল অগেয়ানে ॥৯॥
+
 eka-mana pañca-dike pañca-guṇa ṭāne
 ṭānāṭāni prabhura mana haila ageyāne
 

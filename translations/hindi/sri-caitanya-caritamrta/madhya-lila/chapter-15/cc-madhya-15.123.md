@@ -1,5 +1,8 @@
 ### CC Madhya 15.123
 
+> শিখিপিচ্ছ দেখি’ মুকুন্দ প্রেমাবিষ্ট হৈলা ।
+> অতি-উচ্চ টুঙ্গি হৈতে ভূমিতে পড়িলা ॥১২৩॥
+
 > śikhi-piccha dekhi' mukunda premāviṣṭa hailā
 > ati-ucca ṭuṅgi haite bhūmite paḍilā
 

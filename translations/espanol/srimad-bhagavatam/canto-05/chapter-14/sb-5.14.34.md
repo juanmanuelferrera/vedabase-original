@@ -1,5 +1,7 @@
 ### SB 5.14.34
 
+> क्वचिच्छीतवाताद्यनेकदैविकभौतिकात्मीयानां दुःखानां प्रतिनिवारणेऽकल्पो दुरन्तविषयविषण्ण आस्ते ॥३४॥
+
 > kvacic chīta-vātādy-aneka-daivika-bhautikātmīyānāṁ duḥkhānāṁ pratinivāraṇe 'kalpo duranta-viṣaya-viṣaṇṇa āste.
 
 *kvacit*—a veces; *śīta-vāta-ādi*—como calores y fríos extremados; *aneka*—muchas; *daivika*—que vienen de los semidioses o de poderes fuera de nuestro control; *bhautika*—que vienen de otras entidades vivientes; *ātmīyānām*—que vienen del condicionamiento material del cuerpo y de la mente; *duḥkhānām*—las muchas miserias; *pratiniv āraṇe*—en hacer frente; *akalpaḥ*—siendo incapaz; *duranta*—insuperables; *viṣaya*—del contacto con la complacencia de los sentidos; *viṣaṇṇaḥ*—triste; *āste*—se queda.

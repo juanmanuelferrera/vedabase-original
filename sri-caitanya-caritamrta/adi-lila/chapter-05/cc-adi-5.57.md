@@ -1,5 +1,8 @@
 ### CC Adi 5.57
 
+> মায়াশক্তি রহে কারণাব্ধির বাহিরে ।
+> কারণ-সমুদ্র মায়া পরশিতে নারে ॥৫৭॥
+
 > māyā-śakti rahe kāraṇābdhira bāhire
 > kāraṇa-samudra māyā paraśite nāre
 

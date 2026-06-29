@@ -1,5 +1,8 @@
 ### SB 4.12.27
 
+> एतद्विमानप्रवरमुत्तमश्लोकमौलिना ।
+> उपस्थापितमायुष्मन्नधिरोढुं त्वमर्हसि ॥२७॥
+
 > etad vimāna-pravaram
 > uttamaśloka-maulinā
 > upasthāpitam āyuṣmann

@@ -1,5 +1,8 @@
 ### CC Antya 9.102
 
+> রাজা কহে, “কৌড়ি ছাড়িমু, — ইহা না কহিবা ।
+> সহজে মোর প্রিয় তা’রা, — ইহা জানাইবা ॥১০২॥
+
 > rājā kahe, "kauḍi chāḍimu,--ihā nā kahibā
 > sahaje mora priya tā'rā,--ihā jānāibā
 

@@ -1,5 +1,8 @@
 ### CC Madhya 12.84
 
+> চারিদিকে শত ভক্ত সংমার্জনী করে ।
+> আপনি শোধেন প্রভু, শিখা’ন সবারে ॥৮৪॥
+
 cāri-dike śata bhakta sammārjanī-kare
 
 āpani śodhena prabhu, śikhā'na sabāre

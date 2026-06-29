@@ -1,5 +1,8 @@
 ### CC Adi 2.22
 
+> সেইত গোবিন্দ সাক্ষাচ্চৈতন্য গোসাঞি ।
+> জীব নিস্তারিতে ঐছে দয়ালু আর নাই ॥২২॥
+
 seita govinda sākṣāc caitanya gosāñi
 jīva nistārite aiche dayālu āra nāi
 

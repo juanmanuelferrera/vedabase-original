@@ -1,5 +1,8 @@
 ### CC Antya 16.90
 
+> মালা পরাঞা প্রসাদ দিল প্রভুর হাতে ।
+> আস্বাদ দূরে রহু, যার গন্ধে মন মাতে ॥৯০॥
+
 mālā parāñā prasāda dila prabhura hāte
 
 āsvāda dūre rahu, yāra gandhe mana māte

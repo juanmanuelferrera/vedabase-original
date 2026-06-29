@@ -1,5 +1,8 @@
 ### CC Adi 10.73
 
+> বনমালী পণ্ডিত শাখা বিখ্যাত জগতে ।
+> সোণার মুষল হল দেখিল প্রভুর হাতে ॥৭৩॥
+
 > vanamālī paṇḍita śākhā vikhyāta jagate
 > soṇāra muṣala hala dekhila prabhura hāte
 

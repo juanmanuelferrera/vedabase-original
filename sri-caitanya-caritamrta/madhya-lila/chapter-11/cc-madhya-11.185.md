@@ -1,5 +1,8 @@
 ### CC Madhya 11.185
 
+> মহাপ্রভু আইলা তবে হরিদাস-মিলনে ।
+> হরিদাস করে প্রেমে নাম-সংকীর্তনে ॥১৮৫॥
+
 > mahāprabhu āilā tabe haridāsa-milane
 > haridāsa kare preme nāma-saṅkīrtane
 

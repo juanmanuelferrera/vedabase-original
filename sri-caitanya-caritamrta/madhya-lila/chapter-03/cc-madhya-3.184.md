@@ -1,5 +1,8 @@
 ### CC Madhya 3.184
 
+> তুমি সব করিতে পার গমনাগমন ।
+> গঙ্গাস্নানে কভু হবে তাঁর আগমন ॥১৮৪॥
+
 > tumi saba karite pāra gamanāgamana
 > gaṅgā-snāne kabhu habe tāṅra āgamana
 

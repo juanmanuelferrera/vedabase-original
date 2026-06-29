@@ -1,5 +1,8 @@
 ### CC Madhya 22.118
 
+> অবৈষ্ণব-সঙ্গ-ত্যাগ, বহুশিষ্য না করিব ।
+> বহুগ্রন্থ-কলাভ্যাস-ব্যাখ্যান বর্জিব ॥১১৮॥
+
 > avaiṣṇava-saṅga-tyāga, bahu-śiṣya nā kariba
 > bahu-grantha-kalābhyāsa-vyākhyāna varjiba
 

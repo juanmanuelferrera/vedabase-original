@@ -1,5 +1,8 @@
 ### CC Antya 13.21
 
+> পূর্বে জগদানন্দের ইচ্ছা বৃন্দাবন যাইতে ।
+> প্রভু আজ্ঞা না দেন তাঁরে, না পারে চলিতে ॥২১॥
+
 > pūrve jagadānandera icchā vṛndāvana yāite
 > prabhu ājñā nā dena tāṅre, nā pāre calite
 

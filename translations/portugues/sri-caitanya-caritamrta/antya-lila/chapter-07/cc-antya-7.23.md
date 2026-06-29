@@ -1,5 +1,8 @@
 ### CC Antya 7.23
 
+> রামানন্দ-রায় কৃষ্ণ-রসের ‘নিধান’ ।
+> তেঁহ জানাইলা — কৃষ্ণ — স্বয়ং ভগবান্ ॥২৩॥
+
 rāmānanda-rāya kṛṣṇa-rasera 'nidhāna'
 
 teṅha jānāilā--kṛṣṇa--svayaṁ bhagavān

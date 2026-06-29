@@ -1,5 +1,10 @@
 ### CC Madhya 8.206
 
+> বিভুরপি সুখরূপঃ স্বপ্ৰকাশোঽপি ভাবঃ
+> ক্ষণমপি ন হি রাধাকৃষ্ণয়োর্যা ঋতে স্বাঃ ।
+> প্ৰবহতি রসপুষ্টিং চিদ্বিভূতীরিবেশঃ
+> শ্রয়তি ন পদমাসাং কঃ সখীনাং রসজ্ঞঃ ॥২০৬॥
+
 > vibhur api sukha-rūpaḥ sva-prakāśo 'pi bhāvaḥ
 > kṣaṇam api na hi rādhā-kṛṣṇayor yā ṛte svāḥ
 > pravahati rasa-puṣṭiṁ cid-vibhūtīr iveśaḥ

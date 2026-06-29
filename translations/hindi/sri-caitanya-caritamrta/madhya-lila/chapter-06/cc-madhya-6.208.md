@@ -1,5 +1,8 @@
 ### CC Madhya 6.208
 
+> অশ্রু, স্তম্ভ, পুলক, স্বেদ, কম্প থরহরি ।
+> নাচে, গায়, কান্দে, পড়ে প্রভু-পদ ধরি’ ॥২০৮॥
+
 > aśru, stambha, pulaka, sveda, kampa tharahari
 > nāce, gāya, kānde, paḍe prabhu-pada dhari'
 

@@ -1,5 +1,7 @@
 ### CC Madhya 23.24
 
+> ভুক্তি, সিদ্ধি, ইন্দ্রিয়ার্থ তারে নাহি ভায় ॥২৪॥
+
 > bhukti, siddhi, indriyārtha tāre nāhi bhāya
 
 *bhukti*—disfrute material; *siddhi*—poder místico; *indriya-artha*—los objetos de los sentidos; *tāre*—a él; *nāhi bhāya*—no le atraen.

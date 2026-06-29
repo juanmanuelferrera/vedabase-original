@@ -1,5 +1,7 @@
 ### CC Madhya 24.26
 
+> “স্বরিতঞিতঃ কর্ত্রভিপ্রায়ে ক্রিয়াফলে ।।” ॥ ২৬ ॥
+
 > "svaritañitaḥ kartrabhiprāye kriyā-phale"
 
 *svarita-ñitaḥ*—of verbs having an indicatory *ñ* or a *svarita* accent; *kartṛ-abhiprāye*—is meant for the agent; *kriyā-phale*—when the fruit of the action.

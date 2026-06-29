@@ -1,5 +1,8 @@
 ### CC Antya 8.94
 
+> কভু রামচন্দ্রপুরীর হয় ভৃত্যপ্রায় ।
+> কভু তারে নাহি মানে, দেখে তৃণ-প্রায় ॥৯৪॥
+
 kabhu rāmacandra-purīra haya bhṛtya-prāya
 
 kabhu tāre nāhi māne, dekhe tṛṇa-prāya

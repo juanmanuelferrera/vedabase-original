@@ -1,5 +1,8 @@
 ### CC Madhya 24.301
 
+> ‘আত্মারামাশ্চ’ সমুচ্চয়ে কহিয়ে চ-কার ।
+> ‘মুনয়শ্চ’ ভক্তি করে, — এই অর্থ তার ॥৩০১॥
+
 > 'ātmārāmāś ca' samuccaye kahiye ca-kāra
 > 'munayaś ca' bhakti kare,--ei artha tāra
 > SYNONYMS

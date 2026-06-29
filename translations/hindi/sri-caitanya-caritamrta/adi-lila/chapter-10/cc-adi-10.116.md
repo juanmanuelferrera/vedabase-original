@@ -1,5 +1,8 @@
 ### CC Adi 10.116
 
+> রামদাস অভিরাম — সখ্য-প্রেমরাশি ।
+> ষোলসাঙ্গের কাষ্ঠ তুলি’ যে করিল বাঁশী ॥১১৬॥
+
 > rāmadāsa abhirāma—sakhya-premarāśi
 > ṣolasāṅgera kāṣṭha tuli' ye karila vāṅśī
 

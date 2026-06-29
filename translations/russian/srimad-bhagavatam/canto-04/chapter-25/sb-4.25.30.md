@@ -1,5 +1,8 @@
 ### SB 4.25.30
 
+> यदेष मापाङ्गविखण्डितेन्द्रियं सव्रीडभावस्मितविभ्रमद्भ्रुवा ।
+> त्वयोपसृष्टो भगवान्मनोभवः प्रबाधतेऽथानुगृहाण शोभने ॥३०॥
+
 > yad eṣa māpāṅga-vikhaṇḍitendriyaṁ
 > savrīḍa-bhāva-smita-vibhramad-bhruvā
 > tvayopasṛṣṭo bhagavān mano-bhavaḥ

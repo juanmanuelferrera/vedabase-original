@@ -1,5 +1,10 @@
 ### CC Adi 4.173
 
+> যত্তে সুজাতচরণাম্বুরুহং স্তনেষু
+> ভীতাঃ শনৈঃ প্রিয় দধীমহি কর্কশেষু ।
+> তেনাটবীমটসি তদ্ব্যথতে ন কিং স্বিৎ
+> কূর্পাদিভির্ভ্রমতি ধীর্ভবদায়ুষাং নঃ ॥১৭৩॥
+
 > yat te sujāta-caraṇāmburuhaṁ staneṣu
 > bhītāḥ śanaiḥ priya dadhīmahi karkaśeṣu
 > tenāṭavīm aṭasi tad vyathate na kiṁ svit

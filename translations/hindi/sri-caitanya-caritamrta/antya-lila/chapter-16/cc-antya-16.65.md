@@ -1,5 +1,8 @@
 ### CC Antya 16.65
 
+> সে বৎসর শিবানন্দ পত্নী লঞা আইলা ।
+> ‘পুরীদাস’-ছোটপুত্রে সঙ্গেতে আনিলা ॥৬৫॥
+
 > se vatsara śivānanda patnī lañā āilā
 > 'purīdāsa'-choṭa-putre saṅgete ānilā
 

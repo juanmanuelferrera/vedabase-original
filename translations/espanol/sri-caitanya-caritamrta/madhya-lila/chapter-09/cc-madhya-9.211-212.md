@@ -5,6 +5,11 @@
 > tāṁ jahāra daśa-grīvaḥ
 > sītā vahni-puraṁ gatā
 
+> sītayārādhito vahniś
+> chāyā-sītām ajījanat
+> tāṁ jahāra daśa-grīvaḥ
+> sītā vahni-puraṁ gatā
+
 > parīkṣā-samaye vahniṁ
 > chāyā-sītā viveśa sā
 > vahniḥ sītāṁ samānīya

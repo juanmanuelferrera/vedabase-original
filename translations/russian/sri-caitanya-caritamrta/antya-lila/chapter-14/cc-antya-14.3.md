@@ -1,5 +1,8 @@
 ### CC Antya 14.3
 
+> জয় জয় নিত্যানন্দ চৈতন্য-জীবন ।
+> জয়াদ্বৈতাচার্য জয় গৌরপ্রিয়তম ॥৩॥
+
 > jaya jaya nityānanda caitanya-jīvana
 > jayādvaitācārya jaya gaura-priyatama
 

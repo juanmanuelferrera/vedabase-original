@@ -1,5 +1,8 @@
 ### CC Madhya 10.73
 
+> একজন যাই’ কহুক্ শুভ সমাচার ।
+> প্রভু কহে, — সেই কর, যে ইচ্ছা তোমার ॥৭৩॥
+
 > eka-jana yāi' kahuk śubha samācāra
 > prabhu kahe,—sei kara, ye icchā tomāra
 

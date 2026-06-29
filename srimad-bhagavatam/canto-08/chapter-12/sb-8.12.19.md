@@ -1,5 +1,8 @@
 ### SB 8.12.19
 
+> आवर्तनोद्वर्तनकम्पितस्तन प्रकृष्टहारोरुभरैः पदे पदे
+> प्रभज्यमानामिव मध्यतश्चलत्पदप्रवालं नयतीं ततस्ततः ॥१९॥
+
 > āvartanodvartana-kampita-stana-
 > prakṛṣṭa-hāroru-bharaiḥ pade pade
 > prabhajyamānām iva madhyataś calat-

@@ -1,5 +1,8 @@
 ### CC Adi 10.114
 
+> জগন্নাথ তীর্থ, বিপ্র শ্রীজানকীনাথ ।
+> গোপাল আচার্য, আর বিপ্র বাণীনাথ ॥১১৪॥
+
 > jagannātha tīrtha, vipra śrī-jānakīnātha
 > gopāla ācārya, āra vipra vāṇīnātha
 

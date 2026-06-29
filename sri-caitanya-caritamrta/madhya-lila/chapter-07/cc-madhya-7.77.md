@@ -1,5 +1,8 @@
 ### CC Madhya 7.77
 
+> প্রেমাবেশে নৃত্যগীত কৈল কতক্ষণ ।
+> দেখিতে আইলা তাহাঁ বৈসে যত জন ॥৭৭॥
+
 > premāveśe nṛtya-gīta kaila kata-kṣaṇa
 > dekhite āilā tāhāṅ vaise yata jana
 

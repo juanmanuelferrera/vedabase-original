@@ -1,5 +1,8 @@
 ### CC Antya 12.48
 
+> তবে মায়ের গর্ভে হয় সেই ত’ কুমার ।
+> শিবানন্দ ঘরে গেলে, জন্ম হৈল তার ॥৪৮॥
+
 > tabe māyera garbhe haya sei ta' kumāra
 > śivānanda ghare gele, janma haila tāra
 

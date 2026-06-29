@@ -1,5 +1,8 @@
 ### Bg 4.23
 
+> गतसङ्गस्य मुक्तस्य ज्ञानावस्थितचेतसः ।
+> यज्ञायाचरतः कर्म समग्रं प्रविलीयते ॥२३॥
+
 > gata-saṅgasya muktasya
 > jñānāvasthita-cetasaḥ
 > yajñāyācarataḥ karma

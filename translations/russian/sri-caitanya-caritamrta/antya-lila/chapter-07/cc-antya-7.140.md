@@ -1,5 +1,8 @@
 ### CC Antya 7.140
 
+> জগতের ‘হিত’ হউক, — এই প্রভুর মন ।
+> দণ্ড করি’ করে তার হৃদয় শোধন ॥১৪০॥
+
 > jagatera 'hita' ha-uka—ei prabhura mana
 > daṇḍa kari' kare tāra hṛdaya śodhana
 

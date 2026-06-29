@@ -1,5 +1,8 @@
 ### CC Madhya 11.91
 
+> কুলীন-গ্রামবাসী এই সত্যরাজ-খান ।
+> রামানন্দ-আদি সবে দেখ বিদ্যমান ॥৯১॥
+
 > kulīna-grāma-vāsī ei satyarāja-khāna
 > rāmānanda-ādi sabe dekha vidyamāna
 

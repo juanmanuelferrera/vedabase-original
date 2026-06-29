@@ -1,5 +1,8 @@
 ### CC Madhya 20.223
 
+> সিদ্ধার্থ-সংহিতা করে চব্বিশ মূর্তি গণন ।
+> তার মতে কহি আগে চক্রাদি-ধারণ ॥২২৩॥
+
 > siddhārtha-saṁhitā kare cabbiśa mūrti gaṇana
 > tāra mate kahi āge cakrādi-dhāraṇa
 

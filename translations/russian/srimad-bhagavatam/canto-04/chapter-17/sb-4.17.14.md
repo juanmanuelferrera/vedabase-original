@@ -1,5 +1,8 @@
 ### SB 4.17.14
 
+> प्रवेपमाना धरणी निशाम्योदायुधं च तम् ।
+> गौः सत्यपाद्रवद्भीता मृगीव मृगयुद्रुता ॥१४॥
+
 > pravepamānā dharaṇī
 > niśāmyodāyudhaṁ ca tam
 > gauḥ saty apādravad bhītā

@@ -1,5 +1,8 @@
 ### CC Madhya 10.88
 
+> সবে মেলি’ নবদ্বীপে একত্র হঞা ৷
+> নীলাদ্রি চলিল শচীমাতার আজ্ঞা লঞা ৷৷ ৮৮ ৷৷ ॥৮৮॥
+
 > sabe meli' navadvīpe ekatra hañā
 > nīlādri calila śacīmātāra ājñā lañā
 

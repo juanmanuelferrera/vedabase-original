@@ -1,5 +1,8 @@
 ### CC Madhya 12.96
 
+> ‘জল আন’ বলি’ যবে মহাপ্রভু কহিল ।
+> তবে শত ঘট আনি’ প্রভু-আগে দিল ॥৯৬॥
+
 'jala āna' bali' yabe mahāprabhu kahila
 
 tabe śata ghaṭa āni' prabhu-āge dila

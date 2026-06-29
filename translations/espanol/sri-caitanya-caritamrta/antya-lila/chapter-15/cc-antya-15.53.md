@@ -1,5 +1,8 @@
 ### CC Antya 15.53
 
+> তোমার প্রণামে কি কৈরাছেন অবধান ?
+> কিবা নাহি করেন, কহ বচনপ্রমাণ ॥৫৩॥
+
 > tomāra praṇāme ki kairāchena avadhāna?
 > kibā nāhi karena, kaha vacana-pramāṇa
 

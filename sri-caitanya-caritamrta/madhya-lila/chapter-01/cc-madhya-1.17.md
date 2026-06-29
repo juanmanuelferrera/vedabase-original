@@ -1,5 +1,8 @@
 ### CC Madhya 1.17
 
+> সন্ন্যাস করিয়া চব্বিশ বৎসর অবস্থান ।
+> তাহাঁ যেই লীলা, তার ‘শেষলীলা’ নাম ॥১৭॥
+
 > sannyāsa kariyā cabbiśa vatsara avasthāna
 > tāhāṅ yei līlā, tāra 'śeṣa-līlā' nāma
 

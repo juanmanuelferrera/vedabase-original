@@ -1,5 +1,8 @@
 ### CC Adi 3.9
 
+> ‘বৈবস্বত’-নাম এই সপ্তম মন্বন্তর ।
+> সাতাইশ চতুর্যুগ তাহার অন্তর ॥৯॥
+
 'vaivasvata'-nāma ei saptama manv-antara
 sātāiśa catur-yuga tāhāra antara
 

@@ -1,5 +1,8 @@
 ### CC Antya 2.98
 
+> স্বরূপ কহে, — “তথাপি মায়াবাদ-শ্রবণে ।
+> “চিৎ, ব্রহ্ম, মায়া, মিথ্যা’ — এইমাত্র শুনে ॥৯৮॥
+
 svarūpa kahe, "tathāpi māyāvāda-śravaṇe
 
 'cit, brahma, māyā, mithyā'--ei-mātra śune

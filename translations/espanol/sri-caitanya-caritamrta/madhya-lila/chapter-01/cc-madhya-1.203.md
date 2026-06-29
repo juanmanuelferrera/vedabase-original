@@ -1,5 +1,8 @@
 ### CC Madhya 1.203
 
+> ন মৃষা পরমার্থমেব মে, শৃণু বিজ্ঞাপনমেকমগ্রতঃ ৷
+> যদি মে ন দয়িষ্যসে তদা, দয়নীয়স্তব নাথ দুর্লভঃ ॥২০৩॥
+
 > na mṛṣā paramārtham eva me
 > śṛṇu vijñāpanam ekam agrataḥ
 > yadi me na dayiṣyase tadā

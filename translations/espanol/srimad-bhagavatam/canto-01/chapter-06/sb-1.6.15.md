@@ -1,5 +1,8 @@
 ### SB 1.6.15
 
+> तस्मिन्निर्मनुजेऽरण्ये पिप्पलोपस्थ आश्रितः ।
+> आत्मनात्मानमात्मस्थं यथाश्रुतमचिन्तयम् ॥१५॥
+
 > tasmin nirmanuje 'raṇye
 > pippalopastha āśritaḥ
 > ātmanātmānam ātmasthaṁ

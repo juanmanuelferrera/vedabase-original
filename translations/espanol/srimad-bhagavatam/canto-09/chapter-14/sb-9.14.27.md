@@ -1,5 +1,8 @@
 ### SB 9.14.27
 
+> ते उपेत्य महारात्रे तमसि प्रत्युपस्थिते
+> उर्वश्या उरणौ जह्रुर्न्यस्तौ राजनि जायया ॥२७॥
+
 > te upetya mahā-rātre
 > tamasi pratyupasthite
 > urvaśyā uraṇau jahrur

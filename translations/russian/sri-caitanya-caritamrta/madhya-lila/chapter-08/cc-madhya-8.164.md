@@ -1,5 +1,8 @@
 ### CC Madhya 8.164
 
+> সেই মহাভাব হয় ‘চিন্তামণি-সার’ ।
+> কৃষ্ণ-বাঞ্ছা পূর্ণ করে এই কার্য তাঁর ॥১৬৪॥
+
 > sei mahābhāva haya 'cintāmaṇi-sāra'
 > kṛṣṇa-vāñchā pūrṇa kare ei kārya tāṅra
 

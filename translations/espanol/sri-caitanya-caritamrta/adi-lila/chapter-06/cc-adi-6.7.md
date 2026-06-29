@@ -1,5 +1,8 @@
 ### CC Adi 6.7
 
+> মহাবিষ্ণু সৃষ্টি করেন জগদাদি কার্য ।
+> তাঁর অবতার সাক্ষাৎ অদ্বৈত আচার্য ॥৭॥
+
 > mahā-viṣṇu sṛṣṭi karena jagad-ādi kārya
 > tāṅra avatāra sākṣāt advaita ācārya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 3.173
 
+> মাতার ব্যগ্রতা দেখি’ প্রভুর ব্যগ্র মন ।
+> ভক্তগণ একত্র করি’ বলিলা বচন ॥১৭৩॥
+
 > mātāra vyagratā dekhi' prabhura vyagra mana
 > bhakta-gaṇa ekatra kari' balilā vacana
 

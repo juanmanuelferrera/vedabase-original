@@ -1,5 +1,8 @@
 ### CC Madhya 9.63
 
+> এইরূপে কৌতুক করি’ শচীর নন্দন ৷
+> অন্তর্ধান কৈল, কেহ না পায় দর্শন ৷৷ ৬৩ ৷৷ ॥৬৩॥
+
 > ei-rūpe kautuka kari' śacīra nandana
 > antardhāna kaila, keha nā pāya darśana
 

@@ -1,5 +1,8 @@
 ### CC Antya 11.95
 
+> হরিদাসের ইচ্ছা যবে হইল চলিতে ।
+> আমার শকতি তাঁরে নারিল রাখিতে ॥৯৫॥
+
 > haridāsera icchā yabe ha-ila calite
 > āmāra śakati tāṅre nārila rākhite
 

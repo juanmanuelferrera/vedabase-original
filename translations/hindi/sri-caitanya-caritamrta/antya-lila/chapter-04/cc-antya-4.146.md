@@ -1,5 +1,8 @@
 ### CC Antya 4.146
 
+> হরিদাস কৈলা প্রভুর চরণ বন্দন ।
+> হরিদাসে কৈলা প্রভু প্রেম-আলিঙ্গন ॥১৪৬॥
+
 > haridāsa kailā prabhura caraṇa vandana
 > haridāse kailā prabhu prema-āliṅgana
 

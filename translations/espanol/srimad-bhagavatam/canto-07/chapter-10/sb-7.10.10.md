@@ -1,5 +1,8 @@
 ### SB 7.10.10
 
+> ओं नमो भगवते तुभ्यं पुरुषाय महात्मने
+> हरयेऽद्भुतसिंहाय ब्रह्मणे परमात्मने ॥१०॥
+
 > oṁ namo bhagavate tubhyaṁ
 > puruṣāya mahātmane
 > haraye 'dbhuta-siṁhāya

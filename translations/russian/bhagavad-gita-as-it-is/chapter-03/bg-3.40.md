@@ -1,5 +1,8 @@
 ### Bg 3.40
 
+> इन्द्रियाणि मनो बुद्धिरस्याधिष्ठानमुच्यते ।
+> एतैर्विमोहयत्येष ज्ञानमावृत्य देहिनम् ॥४०॥
+
 > indriyāṇi mano buddhir
 > asyādhiṣṭhānam ucyate
 > etair vimohayaty eṣa

@@ -1,5 +1,8 @@
 ### SB 4.29.66
 
+> मन एव मनुष्यस्य पूर्वरूपाणि शंसति ।
+> भविष्यतश्च भद्रं ते तथैव न भविष्यतः ॥६६॥
+
 > mana eva manuṣyasya
 > pūrva-rūpāṇi śaṁsati
 > bhaviṣyataś ca bhadraṁ te

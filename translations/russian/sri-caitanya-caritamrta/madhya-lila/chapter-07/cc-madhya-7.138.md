@@ -1,5 +1,8 @@
 ### CC Madhya 7.138
 
+> রাত্রিতে শুনিলা তেঁহো গোসাঞির আগমন ।
+> দেখিবারে আইলা প্রভাতে কূর্মের ভবন ॥১৩৮॥
+
 > rātrite śunilā teṅho gosāñira āgamana
 > dekhibāre āilā prabhāte kūrmera bhavana
 

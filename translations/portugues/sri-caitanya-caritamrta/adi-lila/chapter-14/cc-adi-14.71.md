@@ -1,5 +1,8 @@
 ### CC Adi 14.71
 
+> চৈতন্য-চাপল্য দেখি’ প্রেমে সর্বজন ।
+> শচী-জগন্নাথে দেখি’ দেন ওলাহন ॥৭১॥
+
 caitanya-cāpalya dekhi' preme sarva jana
 
 śacī-jagannāthe dekhi' dena olāhana

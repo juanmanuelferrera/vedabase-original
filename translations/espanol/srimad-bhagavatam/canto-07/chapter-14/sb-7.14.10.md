@@ -1,5 +1,8 @@
 ### SB 7.14.10
 
+> त्रिवर्गं नातिकृच्छ्रेण भजेत गृहमेध्यपि
+> यथादेशं यथाकालं यावद्दैवोपपादितम ॥१०॥
+
 > tri-vargaṁ nātikṛcchreṇa
 > bhajeta gṛha-medhy api
 > yathā-deśaṁ yathā-kālaṁ

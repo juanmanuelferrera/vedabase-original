@@ -1,5 +1,8 @@
 ### SB 3.22.4
 
+> अतो ह्यन्योन्यमात्मानं ब्रह्म क्षत्रं च रक्षतः ।
+> रक्षति स्माव्ययो देवः स यः सदसदात्मकः ॥४॥
+
 > ato hy anyonyam ātmānaṁ
 > brahma kṣatraṁ ca rakṣataḥ
 > rakṣati smāvyayo devaḥ

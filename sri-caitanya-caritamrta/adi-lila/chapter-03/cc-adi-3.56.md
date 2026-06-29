@@ -1,5 +1,8 @@
 ### CC Adi 3.56
 
+> কেহ তাঁরে বলে যদি কৃষ্ণ-বরণ ।
+> আর বিশেষণে তার করে নিবারণ ॥৫৬॥
+
 > keha tāṅre bale yadi kṛṣṇa-varaṇa
 > āra viśeṣaṇe tāra kare nivāraṇa
 

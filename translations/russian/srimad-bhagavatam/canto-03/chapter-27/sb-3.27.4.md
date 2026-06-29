@@ -1,5 +1,8 @@
 ### SB 3.27.4
 
+> अर्थे ह्यविद्यमानेऽपि संसृतिर्न निवर्तते ।
+> ध्यायतो विषयानस्य स्वप्नेऽनर्थागमो यथा ॥४॥
+
 > arthe hy avidyamāne 'pi
 > saṁsṛtir na nivartate
 > dhyāyato viṣayān asya

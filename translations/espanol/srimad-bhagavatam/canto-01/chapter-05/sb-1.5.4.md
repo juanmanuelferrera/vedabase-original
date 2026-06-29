@@ -1,5 +1,8 @@
 ### SB 1.5.4
 
+> जिज्ञासितमधीतं च ब्रह्म यत्तत्सनातनम् ।
+> तथापि शोचस्यात्मानमकृतार्थ इव प्रभो ॥४॥
+
 > jijñāsitam adhītaṁ ca
 > brahma yat tat sanātanam
 > tathāpi śocasy ātmānam

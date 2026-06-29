@@ -1,5 +1,8 @@
 ### CC Madhya 15.216
 
+> কাঁজিবড়া, দুগ্ধ-চিড়া, দুগ্ধ-লক্লকী ।
+> আর যত পিঠা কৈল, কহিতে না শকি ॥২১৬॥
+
 kāṅji-baḍā, dugdha-ciḍā, dugdha-laklakī
 
 āra yata piṭhā kaila, kahite nā śaki

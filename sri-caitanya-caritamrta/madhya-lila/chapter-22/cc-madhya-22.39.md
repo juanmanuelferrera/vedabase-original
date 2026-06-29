@@ -1,5 +1,8 @@
 ### CC Madhya 22.39
 
+> আমি — বিজ্ঞ, এই মূর্খে ‘বিষয়’ কেনে দিব ?
+> স্ব-চরণামৃত দিয়া ‘বিষয়’ ভুলাইব ॥৩৯॥
+
 > āmi—vijña, ei mūrkhe 'viṣaya' kene diba?
 > sva-caraṇāmṛta diyā 'viṣaya' bhulāiba
 

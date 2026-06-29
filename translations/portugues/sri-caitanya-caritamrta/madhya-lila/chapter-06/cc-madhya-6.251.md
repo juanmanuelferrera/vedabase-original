@@ -1,5 +1,8 @@
 ### CC Madhya 6.251
 
+> প্ৰভু-স্থানে আইলা দুঁহে প্রসাদ-পত্রী লঞা ।
+> মুকুন্দ দত্ত পত্রী নিল তার হাতে পাঞা ॥২৫১॥
+
 prabhu-sthāne āilā duṅhe prasāda-patrī lañā
 
 mukunda datta patrī nila tāra hāte pāñā

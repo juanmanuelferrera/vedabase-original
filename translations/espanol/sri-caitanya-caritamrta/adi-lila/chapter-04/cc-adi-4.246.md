@@ -1,5 +1,8 @@
 ### CC Adi 4.246
 
+> যদ্যপি আমার রসে জগৎ সরস ।
+> রাধার অধর-রস আমা করে বশ ॥২৪৬॥
+
 > yadyapi āmāra rase jagat sarasa
 > rādhāra adhara-rasa āmā kare vaśa
 

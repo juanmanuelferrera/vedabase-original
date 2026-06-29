@@ -1,5 +1,8 @@
 ### CC Madhya 13.83
 
+> নৃত্যে প্রভুর যাঁহা যাঁহা পড়ে পদতল ।
+> সসাগর-শৈল মহী করে টলমল ॥৮৩॥
+
 nṛtye prabhura yāhāṅ yāṅhā paḍe pada-tala
 
 sasāgara-śaila mahī kare ṭalamala

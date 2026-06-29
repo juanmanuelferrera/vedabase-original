@@ -1,5 +1,8 @@
 ### SB 3.24.47
 
+> इच्छाद्वेषविहीनेन सर्वत्र समचेतसा ।
+> भगवद्भक्तियुक्तेन प्राप्ता भागवती गतिः ॥४७॥
+
 > icchā-dveṣa-vihīnena
 > sarvatra sama-cetasā
 > bhagavad-bhakti-yuktena

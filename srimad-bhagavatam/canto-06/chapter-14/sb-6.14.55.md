@@ -1,5 +1,8 @@
 ### SB 6.14.55
 
+> न हि क्रमश्चेदिह मृत्युजन्मनोः शरीरिणामस्तु तदात्मकर्मभिः
+> यः स्नेहपाशो निजसर्गवृद्धये स्वयं कृतस्ते तमिमं विवृश्चसि ॥५५॥
+
 > na hi kramaś ced iha mṛtyu-janmanoḥ
 > śarīriṇām astu tad ātma-karmabhiḥ
 > yaḥ sneha-pāśo nija-sarga-vṛddhaye

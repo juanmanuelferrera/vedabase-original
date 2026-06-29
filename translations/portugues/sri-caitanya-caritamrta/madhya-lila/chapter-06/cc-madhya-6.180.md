@@ -1,5 +1,8 @@
 ### CC Madhya 6.180
 
+> আচার্যের দোষ নাহি, ঈশ্বর-আজ্ঞা হৈল ।
+> অতএব কল্পনা করি’ নাস্তিক-শাস্ত্র কৈল ॥১৮০॥
+
 ācāryera doṣa nāhi, īśvara-ājñā haila
 
 ataeva kalpanā kari' nāstika-śāstra kaila

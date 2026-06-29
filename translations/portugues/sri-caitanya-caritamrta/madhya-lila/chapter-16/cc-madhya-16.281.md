@@ -1,5 +1,8 @@
 ### CC Madhya 16.281
 
+> তবু বৃন্দাবন যাহ’ লোক শিখাইতে  ।
+> সেইত করিবে, তোমার যেই লয় চিত্তে ॥২৮১॥
+
 tabu vṛndāvana yāha' loka śikhāite
 
 seita karibe, tomāra yei laya citte

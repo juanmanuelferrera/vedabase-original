@@ -1,5 +1,8 @@
 ### CC Antya 7.98
 
+> অন্তর্যামী প্রভু জানিবেন মোর মন ।
+> তাঁরে ভয় নাহি কিছু, ‘বিষম’ তাঁর গণ ।।” ॥ ৯৮ ॥
+
 > antaryāmī prabhu jānibena mora mana
 > tāṅre bhaya nāhi kichu, 'viṣama' tāṅra gaṇa"
 

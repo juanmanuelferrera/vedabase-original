@@ -1,5 +1,8 @@
 ### CC Madhya 18.145
 
+> মাঘ-মাস লাগিল, এবে যদি যাইয়ে ।
+> মকরে প্রয়াগ-স্নান কত দিন পাইয়ে ॥১৪৫॥
+
 māgha-māsa lāgila, ebe yadi yāiye
 
 makare prayāga-snāna kata dina pāiye

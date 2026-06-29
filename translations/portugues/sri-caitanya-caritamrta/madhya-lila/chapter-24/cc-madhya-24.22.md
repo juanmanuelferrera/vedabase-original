@@ -1,5 +1,8 @@
 ### CC Madhya 24.22
 
+> বিভুরূপে ব্যাপে, শক্ত্যে ধারণ-পোষণ ।
+> মাধুর্যশক্ত্যে গোলোক, ঐশ্বর্যে পরব্যোম ॥২২॥
+
 vibhu-rūpe vyāpe, śaktye dhāraṇa-poṣaṇa
 
 mādhurya-śaktye goloka, aiśvarye paravyoma

@@ -1,5 +1,8 @@
 ### CC Madhya 21.16
 
+> সেহ রহু — ব্রজে যবে কৃষ্ণ অবতার ।
+> তাঁর চরিত্র বিচারিতে মন না পায় পার ॥১৬॥
+
 seha rahu--vraje yabe kṛṣṇa avatāra
 
 tāṅra caritra vicārite mana nā pāya pāra

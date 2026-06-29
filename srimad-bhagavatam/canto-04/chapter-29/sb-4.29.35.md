@@ -1,5 +1,8 @@
 ### SB 4.29.35
 
+> अर्थे ह्यविद्यमानेऽपि संसृतिर्न निवर्तते ।
+> मनसा लिङ्गरूपेण स्वप्ने विचरतो यथा ॥३५॥
+
 > arthe hy avidyamāne 'pi
 > saṁsṛtir na nivartate
 > manasā liṅga-rūpeṇa

@@ -1,5 +1,8 @@
 ### CC Antya 9.96
 
+> কোন্ ছার পদার্থ এই দুইলক্ষ কাহন ?
+> প্রাণ-রাজ্য করোঁ প্রভুপদে নির্মঞ্ছন ।।” ॥ ৯৬ ॥
+
 > kon chāra padārtha ei dui-lakṣa kāhana?
 > prāṇa-rājya karoṅ prabhu-pade nirmañchana"
 

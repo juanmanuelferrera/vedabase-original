@@ -1,5 +1,8 @@
 ### CC Adi 17.68
 
+> তবে আচার্য-গোসাঞির আনন্দ হইল ।
+> লজ্জিত হইয়া প্রভু প্রসাদ করিল ॥৬৮॥
+
 > tabe ācārya-gosāñira ānanda ha-ila
 > lajjita ha-iyā prabhu prasāda karila
 

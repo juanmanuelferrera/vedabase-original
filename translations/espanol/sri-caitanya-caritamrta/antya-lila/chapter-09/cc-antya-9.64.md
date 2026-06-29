@@ -1,5 +1,8 @@
 ### CC Antya 9.64
 
+> ভিক্ষুক সন্ন্যাসী আমি নির্জনবাসী ।
+> আমায় দুঃখ দেয়, নিজ-দুঃখ কহি’ আসি’ ॥৬৪॥
+
 > bhikṣuka sannyāsī āmi nirjana-vāsī
 > āmāya duḥkha deya, nija-duḥkha kahi' āsi'
 

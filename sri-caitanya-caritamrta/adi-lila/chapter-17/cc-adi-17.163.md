@@ -1,5 +1,8 @@
 ### CC Adi 17.163
 
+> কলিকালে তৈছে শক্তি নাহিক ব্রাহ্মণে ।
+> অতএব গোবধ কেহ না করে এখনে ॥১৬৩॥
+
 > kali-kāle taiche śakti nāhika brāhmaṇe
 > ataeva go-vadha keha nā kare ekhane
 

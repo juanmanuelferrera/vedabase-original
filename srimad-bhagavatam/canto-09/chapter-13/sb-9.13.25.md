@@ -1,5 +1,8 @@
 ### SB 9.13.25
 
+> वस्वनन्तोऽथ तत्पुत्रो युयुधो यत्सुभाषणः
+> श्रुतस्ततो जयस्तस्माद्विजयोऽस्मादृतः सुतः ॥२५॥
+
 > vasvananto 'tha tat-putro
 > yuyudho yat subhāṣaṇaḥ
 > śrutas tato jayas tasmād

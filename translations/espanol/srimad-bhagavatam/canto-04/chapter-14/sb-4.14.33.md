@@ -1,5 +1,8 @@
 ### SB 4.14.33
 
+> को वैनं परिचक्षीत वेनमेकमृतेऽशुभम् ।
+> प्राप्त ईदृशमैश्वर्यं यदनुग्रहभाजनः ॥३३॥
+
 > ko vainaṁ paricakṣīta
 > venam ekam ṛte 'śubham
 > prāpta īdṛśam aiśvaryaṁ

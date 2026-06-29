@@ -1,5 +1,8 @@
 ### CC Antya 20.66
 
+> যদ্যপিহ প্রভু — কোটীসমুদ্র-গম্ভীর ।
+> নানা-ভাব-চন্দ্রোদয়ে হয়েন অস্থির ॥৬৬॥
+
 > yadyapiha prabhu—koṭī-samudra-gambhīra
 > nānā-bhāva-candrodaye hayena asthira
 

@@ -1,5 +1,8 @@
 ### CC Madhya 24.316
 
+> তুমি — বক্তা ভাগবতের, তুমি জান অর্থ ।
+> তোমা বিনা অন্য জানিতে নাহিক সমর্থ ।।” ॥ ৩১৬ ॥
+
 > tumi—vaktā bhāgavatera, tumi jāna artha
 > tomā vinā anya jānite nāhika samartha"
 

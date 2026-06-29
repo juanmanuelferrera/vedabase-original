@@ -1,5 +1,8 @@
 ### CC Antya 2.9
 
+> আর নানা-দেশের লোক আসি’ জগন্নাথ ।
+> চৈতন্য-চরণ দেখি’ হইল কৃতার্থ ॥৯॥
+
 āra nānā-deśera loka āsi' jagannātha
 caitanya-caraṇa dekhi' ha-ila kṛtārtha
 

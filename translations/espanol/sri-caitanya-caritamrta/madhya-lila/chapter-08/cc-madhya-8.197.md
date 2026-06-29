@@ -1,5 +1,8 @@
 ### CC Madhya 8.197
 
+> ‘সাধ্যবস্তু’ ‘সাধন’ বিনু কেহ নাহি পায় ৷
+> কৃপা করি’ কহ, রায়, পাবার উপায় ৷৷ ১৯৭ ৷৷ ॥১৯৭॥
+
 > 'sādhya-vastu' 'sādhana' vinu keha nāhi pāya
 > kṛpā kari' kaha, rāya, pābāra upāya
 

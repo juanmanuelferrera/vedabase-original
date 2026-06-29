@@ -1,5 +1,8 @@
 ### CC Madhya 3.71
 
+> আচার্য কহে — ছাড় তুমি আপনার চুরি ।
+> আমি সব জানি তোমার সন্ন্যাসের ভারিভুরি ॥৭১॥
+
 ācārya kahe--chāḍa tumi āpanāra curi
 
 āmi saba jāni tomāra sannyāsera bhāri-bhuri

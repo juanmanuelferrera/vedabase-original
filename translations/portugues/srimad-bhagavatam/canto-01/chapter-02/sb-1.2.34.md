@@ -1,5 +1,8 @@
 ### SB 1.2.34
 
+> भावयत्येष सत्त्वेन लोकान्वै लोकभावनः ।
+> लीलावतारानुरतो देवतिर्यङ्नरादिषु ॥३४॥
+
 bhāvayaty eṣa sattvena
 *lokān vai loka*-bhāvanaḥ
 līlāvatārānurato

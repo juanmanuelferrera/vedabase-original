@@ -1,5 +1,8 @@
 ### CC Madhya 3.144
 
+> সন্ন্যাসী হইয়া পুনঃ না দিল দরশন ।
+> তুমি তৈছে কৈলে মোর হইবে মরণ ॥১৪৪॥
+
 > sannyāsī ha-iyā punaḥ nā dila daraśana
 > tumi taiche kaile mora ha-ibe maraṇa
 

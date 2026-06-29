@@ -1,5 +1,10 @@
 ### CC Madhya 24.177
 
+> এতেঽলিনস্তব যশোঽখিল-লোকতীর্থং
+> গায়ন্ত আদিপুরুষানুপথং ভজন্তে ।
+> প্রায়ো অমী মুনিগণা ভবদীয়মুখ্যা
+> গূঢ়ং বনেঽপি ন জহত্যনঘাত্মদৈবম্ ॥১৭৭॥
+
 > ete 'linas tava yaśo 'khila-loka-tīrthaṁ
 > gāyanta ādi-puruṣānupathaṁ bhajante
 > prāyo amī muni-gaṇā bhavadīya-mukhyā

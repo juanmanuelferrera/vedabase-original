@@ -1,5 +1,8 @@
 ### CC Adi 1.94
 
+> কৃষ্ণভক্তির বাধক — যত শুভাশুভ কর্ম ।
+> সেহ এক জীবের অজ্ঞানতমো-ধর্ম ॥৯৪॥
+
 > kṛṣṇa-bhaktira bādhaka--yata śubhāśubha karma
 > seha eka jīvera ajñāna-tamo-dharma
 

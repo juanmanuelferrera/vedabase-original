@@ -1,5 +1,8 @@
 ### CC Madhya 15.14
 
+> পুনরুক্তি হয়, তাহা না কৈলুঁ বর্ণন ।
+> আর ভক্তগণ করে প্রভুরে নিমন্ত্রণ ॥১৪॥
+
 > punarukti haya, tāhā nā kailuṅ varṇana
 > āra bhakta-gaṇa kare prabhure nimantraṇa
 

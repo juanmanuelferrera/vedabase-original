@@ -1,5 +1,8 @@
 ### CC Madhya 12.62
 
+> কৃতার্থ হইলাঙ আমি ইঁহার দরশনে ।
+> এত বলি’ পুনঃ তারে কৈল আলিঙ্গনে ॥৬২॥
+
 kṛtārtha ha-ilāṅa āmi iṅhāra daraśane
 
 eta bali' punaḥ tāre kaila āliṅgane

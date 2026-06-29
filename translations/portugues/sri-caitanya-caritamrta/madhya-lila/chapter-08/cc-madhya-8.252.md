@@ -1,5 +1,8 @@
 ### CC Madhya 8.252
 
+> ‘কাঁহার স্মরণ জীব করিবে অনুক্ষণ?’
+> ‘কৃষ্ণ’-নাম-গুণ-লীলা — প্ৰধান স্মরণ ৷৷’ ২৫২ ৷৷ ॥২৫২॥
+
 'kāṅhāra smaraṇa jīva karibe anukṣaṇa?'
 
 'kṛṣṇa-nāma-guṇa-līlā--pradhāna smaraṇa'

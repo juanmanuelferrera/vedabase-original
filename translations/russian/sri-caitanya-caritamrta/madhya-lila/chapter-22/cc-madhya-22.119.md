@@ -1,5 +1,8 @@
 ### CC Madhya 22.119
 
+> হানি-লাভে সম, শোকাদির বশ না হইব ।
+> অন্যদেব, অন্যশাস্ত্র নিন্দা না করিব ॥১১৯॥
+
 > hāni-lābhe sama, śokādira vaśa nā ha-iba
 > anya-deva, anya-śāstra nindā nā kariba
 

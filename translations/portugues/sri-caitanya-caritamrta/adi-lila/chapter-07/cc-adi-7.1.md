@@ -1,5 +1,8 @@
 ### CC Adi 7.1
 
+> অগত্যেকগতিং নত্বা হীনার্থাধিকসাধকম্ ।
+> শ্রীচৈতন্যং লিখ্যতেঽস্য প্রেমভক্তিবদান্যতা ॥১॥
+
 agaty-eka-gatiṁ natvā
 hīnārthādhika-sādhakam
 śrī-caitanyaṁ likhyate 'sya

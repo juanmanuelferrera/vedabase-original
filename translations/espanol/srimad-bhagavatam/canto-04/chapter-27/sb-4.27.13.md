@@ -1,5 +1,8 @@
 ### SB 4.27.13
 
+> चण्डवेग इति ख्यातो गन्धर्वाधिपतिर्नृप ।
+> गन्धर्वास्तस्य बलिनः षष्ट्युत्तरशतत्रयम् ॥१३॥
+
 > caṇḍavega iti khyāto
 > gandharvādhipatir nṛpa
 > gandharvās tasya balinaḥ

@@ -1,5 +1,8 @@
 ### SB 4.25.47
 
+> खद्योताविर्मुखी च प्राग्द्वारावेकत्र निर्मिते ।
+> विभ्राजितं जनपदं याति ताभ्यां द्युमत्सखः ॥४७॥
+
 > khadyotāvirmukhī ca prāg
 > dvārāv ekatra nirmite
 > vibhrājitaṁ janapadaṁ

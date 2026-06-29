@@ -1,5 +1,8 @@
 ### CC Madhya 17.51
 
+> তথাপি তাঁর দর্শন-শ্রবণ-প্রভাবে  ।
+> সকল দেশের লোক হইল ‘বৈষ্ণবে’ ॥৫১॥
+
 > tathāpi tāṅra darśana-śravaṇa-prabhāve
 > sakala deśera loka ha-ila 'vaiṣṇave'
 

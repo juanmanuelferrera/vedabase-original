@@ -1,5 +1,8 @@
 ### CC Madhya 4.117
 
+> সন্ধ্যায় ভোগ লাগে ক্ষীর — ‘অমৃতকেলি’-নাম ।
+> দ্বাদশ মৃৎপাত্রে ভরি’ অমৃত-সমান ॥১১৭॥
+
 > sandhyāya bhoga lāge kṣīra--'amṛta-keli'-nāma
 > dvādaśa mṛt-pātre bhari' amṛta-samāna
 

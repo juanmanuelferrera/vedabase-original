@@ -1,5 +1,7 @@
 ### SB 5.24.29
 
+> ततोऽधस्तान्महातले काद्रवेयाणां सर्पाणां नैकशिरसां क्रोधवशो नाम गणः कुहकतक्षककालियसुषेणादिप्रधाना महाभोगवन्तः पतत्त्रिराजाधिपतेः पुरुषवाहादनवरतमुद्विजमानाः स्वकलत्रापत्यसुहृत्कुटुम्बसङ्गेन क्वचित्प्रमत्ता विहरन्ति ॥२९॥
+
 > tato 'dhastān mahātale kādraveyāṇāṁ sarpāṇāṁ naika-śirasāṁ krodhavaśo nāma gaṇaḥ kuhaka-takṣaka-kāliya-suṣeṇādi-pradhānā mahā-bhogavantaḥ patattri-rājādhipateḥ puruṣa-vāhād anavaratam udvijamānāḥ sva-kalatrāpatya-suhṛt-kuṭumba-saṅgena kvacit pramattā viharanti.
 
 *tataḥ*—the planet Talātala; *adhastāt*—beneath; *mahātale*—in the planet known as Mahātala; *kādraveyāṇām*—of the descendants of Kadrū; *sarpāṇām*—who are big snakes; *na eka-śirasām*—who have many hoods; *krodha-vaśaḥ*—always subject to anger; *nāma*—named; *gaṇaḥ*—the group; *kuhaka*—Kuhaka; *takṣaka*—Takṣaka; *kāliya*—Kāliya; *suṣeṇa*—Suṣeṇa; *ādi*—and so on; *pradhānāḥ*—who are the prominent ones; *mahā-bhogavantaḥ*—addicted to all kinds of material enjoyment; *patattri-rāja-adhipateḥ*—from the king of all birds, Garuḍa; *puruṣa-vāhāt*—who carries the Supreme Personality of Godhead; *anavaratam*—constantly; *udvijamānāḥ*—afraid; *sva*—of their own; *kalatra-apatya*—wives and children; *suhṛt*—friends; *kuṭumba*—relatives; *saṅgena*—in the association; *kvacit*—sometimes; *pramattāḥ*—infuriated; *viharanti*—they sport.

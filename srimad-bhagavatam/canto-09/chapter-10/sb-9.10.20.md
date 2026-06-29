@@ -1,5 +1,10 @@
 ### SB 9.10.20
 
+> तेऽनीकपा रघुपतेरभिपत्य सर्वे
+> द्वन्द्वं वरूथमिभपत्तिरथाश्वयोधैः
+> जघ्नुर्द्रुमैर्गिरिगदेषुभिरङ्गदाद्याः
+> सीताभिमर्षहतमङ्गलरावणेशान ॥२०॥
+
 > te 'nīkapā raghupater abhipatya sarve
 > dvandvaṁ varūtham ibha-patti-rathāśva-yodhaiḥ
 > jaghnur drumair giri-gadeṣubhir aṅgadādyāḥ

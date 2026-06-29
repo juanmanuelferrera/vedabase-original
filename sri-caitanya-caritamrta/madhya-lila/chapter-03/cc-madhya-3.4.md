@@ -1,5 +1,8 @@
 ### CC Madhya 3.4
 
+> সন্ন্যাস করি’ প্রেমাবেশে চলিলা বৃন্দাবন ।
+> রাঢ়-দেশে তিন দিন করিলা ভ্রমণ ॥৪॥
+
 > sannyāsa kari' premāveśe calilā vṛndāvana
 > rāḍha-deśe tina dina karilā bhramaṇa
 

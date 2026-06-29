@@ -1,5 +1,8 @@
 ### CC Adi 9.34
 
+> একলা মালাকার আমি কাহাঁ কাহাঁ যাব ।
+> একলা বা কত ফল পাড়িয়া বিলাব ॥৩৪॥
+
 > ekalā mālākāra āmi kāhāṅ kāhāṅ yāba
 > ekalā vā kata phala pāḍiyā vilāba
 

@@ -1,5 +1,8 @@
 ### SB 3.22.5
 
+> तव सन्दर्शनादेव च्छिन्ना मे सर्वसंशयाः ।
+> यत्स्वयं भगवान्प्रीत्या धर्ममाह रिरक्षिषोः ॥५॥
+
 > tava sandarśanād eva
 > cchinnā me sarva-saṁśayāḥ
 > yat svayaṁ bhagavān prītyā

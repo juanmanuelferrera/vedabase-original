@@ -1,5 +1,8 @@
 ### SB 7.8.30
 
+> संरम्भदुष्प्रेक्ष्यकराललोचनो व्यात्ताननान्तं विलिहन्स्वजिह्वया
+> असृग्लवाक्तारुणकेशराननो यथान्त्रमाली द्विपहत्यया हरिः ॥३०॥
+
 > saṁrambha-duṣprekṣya-karāla-locano
 > vyāttānanāntaṁ vilihan sva-jihvayā
 > asṛg-lavāktāruṇa-keśarānano

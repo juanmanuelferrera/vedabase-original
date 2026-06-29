@@ -1,5 +1,8 @@
 ### SB 8.24.52
 
+> त्वं सर्वलोकस्य सुहृत्प्रियेश्वरो ह्यात्मा गुरुरज्ञआनमभीष्टसिद्धिः
+> तथापि लोको न भवन्तमन्धधीर्जानाति सन्तं हृदि बद्धकामः ॥५२॥
+
 tvaṁ sarva-lokasya suhṛt priyeśvaro
 hy ātmā gurur jñānam abhīṣṭa-siddhiḥ
 tathāpi loko na bhavantam andha-dhīr

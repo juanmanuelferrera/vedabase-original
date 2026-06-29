@@ -1,5 +1,8 @@
 ### SB 6.16.39
 
+> कामधियस्त्वयि रचिता न परम रोहन्ति यथा करम्भबीजानि
+> ज्ञआनात्मन्यगुणमये गुणगणतोऽस्य द्वन्द्वजालानि ॥३९॥
+
 > kāma-dhiyas tvayi racitā
 > na parama rohanti yathā karambha-bījāni
 > jñānātmany aguṇamaye

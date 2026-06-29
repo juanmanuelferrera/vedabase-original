@@ -1,5 +1,8 @@
 ### CC Madhya 7.42
 
+> নমস্করি’ সার্বভৌম আসন নিবেদিল ।
+> সবাকারে মিলি’ তবে আসনে বসিল ॥৪২॥
+
 > namaskari' sārvabhauma āsana nivedila
 > sabākāre mili' tabe āsane vasila
 

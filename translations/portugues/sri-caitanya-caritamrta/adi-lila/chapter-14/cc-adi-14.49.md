@@ -1,5 +1,8 @@
 ### CC Adi 14.49
 
+> গঙ্গাস্নান করি’ পূজা করিতে লাগিলা ।
+> কন্যাগণ-মধ্যে প্রভু আসিয়া বসিলা ॥৪৯॥
+
 gaṅgā-snāna kari' pūjā karite lāgilā
 kanyāgaṇa-madhye prabhu āsiyā basilā
 

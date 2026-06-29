@@ -1,5 +1,8 @@
 ### CC Madhya 21.59
 
+> একদিন দ্বারকাতে কৃষ্ণ দেখিবারে ।
+> ব্রহ্মা আইলা, — দ্বারপাল জানাইল কৃষ্ণেরে ॥৫৯॥
+
 > eka-dina dvārakāte kṛṣṇa dekhibāre
 > brahmā āilā,--dvāra-pāla jānāila kṛṣṇere
 

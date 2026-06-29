@@ -1,5 +1,8 @@
 ### CC Madhya 13.47
 
+> জগন্নাথের আগে চারি সম্প্রদায় গায় ।
+> দুই পাশে দুই, পাছে এক সম্প্রদায় ॥৪৭॥
+
 jagannāthera āge cāri sampradāya gāya
 
 dui pāśe dui, pāche eka sampradāya

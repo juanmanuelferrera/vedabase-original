@@ -1,5 +1,8 @@
 ### CC Madhya 8.43
 
+> আকৃত্যে-প্রকৃত্যে তোমার ঈশ্বর-লক্ষণ ।
+> জীবে না সম্ভবে এই অপ্রাকৃত গুণ ॥৪৩॥
+
 > ākṛtye-prakṛtye tomāra īśvara-lakṣaṇa
 > jīve nā sambhave ei aprākṛta guṇa
 

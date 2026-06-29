@@ -1,5 +1,8 @@
 ### CC Antya 7.12
 
+> তাহা প্রবর্তাইলা তুমি, — এই ত ‘প্রমাণ’ ।
+> কৃষ্ণশক্তি ধর তুমি, — ইথে নাহি আন ॥১২॥
+
 > tāhā pravartāilā tumi,—ei ta 'pramāṇa'
 > kṛṣṇa-śakti dhara tumi,—ithe nāhi āna
 

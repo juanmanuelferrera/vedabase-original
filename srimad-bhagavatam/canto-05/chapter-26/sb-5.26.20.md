@@ -1,5 +1,7 @@
 ### SB 5.26.20
 
+> यस्त्विह वा अगम्यां स्त्रियमगम्यं वा पुरुषं योषिदभिगच्छति तावमुत्र कशयाताडयन्तस्तिग्मया सूर्म्या लोहमय्या पुरुषमालिङ्गयन्ति स्त्रियं च पुरुषरूपया सूर्म्या ॥१९॥
+
 > yas tv iha vā agamyāṁ striyam agamyaṁ vā puruṣaṁ yoṣid abhigacchati tāv amutra kaśayā tāḍayantas tigmayā sūrmyā lohamayyā puruṣam āliṅgayanti striyaṁ ca puruṣa-rūpayā sūrmyā.
 
 *yaḥ*—any person who; *tu*—but; *iha*—in this life; *vā*—or; *agamyām*—unsuitable; *striyam*—a woman; *agamyam*—unsuitable; *vā*—or; *puruṣam*—a man; *yoṣit*—a woman; *abhigacchati*—approaches for sexual intercourse; *tau*—both of them; *amutra*—in the next life; *kaśayā*—by whips; *tāḍayantaḥ*—beating; *tigmayā*—very hot; *sūrmyā*—by an image; *loha-mayyā*—made of iron; *puruṣam*—the man; *āliṅgayanti*—they embrace; *striyam*—the woman; *ca*—also; *puruṣa-rūpayā*—in the form of a man; *sūrmyā*—by an image.

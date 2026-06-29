@@ -1,5 +1,8 @@
 ### CC Madhya 1.79
 
+> রাজবেশ, হাতী, ঘোড়া, মনুষ্য গহন ।
+> কাহাঁ গোপ-বেশ, কাহাঁ নির্জন বৃন্দাবন ॥৭৯॥
+
 rāja-veśa, hātī, ghoḍā, manuṣya gahana
 kāhāṅ gopa-veśa, kāhāṅ nirjana vṛndāvana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 3.64
 
+> দুই প্রভু লঞা আচার্য গেলা ভিতর ঘরে ।
+> প্রসাদ দেখিয়া প্রভুর আনন্দ অন্তরে ॥৬৪॥
+
 > dui prabhu lañā ācārya gelā bhitara ghare
 > prasāda dekhiyā prabhura ānanda antare
 

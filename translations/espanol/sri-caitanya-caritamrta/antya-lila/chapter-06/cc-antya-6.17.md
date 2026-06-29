@@ -1,5 +1,8 @@
 ### CC Antya 6.17
 
+> হেন-কালে মুলুকের এক ম্লেচ্ছ অধিকারী ।
+> সপ্তগ্রাম-মুলুকের সে হয় ‘চৌধুরী’ ॥১৭॥
+
 > hena-kāle mulukera eka mleccha adhikārī
 > saptagrāma-mulukera se haya 'caudhurī'
 

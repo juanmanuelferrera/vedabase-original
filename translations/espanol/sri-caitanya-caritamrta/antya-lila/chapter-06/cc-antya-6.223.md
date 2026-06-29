@@ -1,5 +1,8 @@
 ### CC Antya 6.223
 
+> বৈরাগী করিবে সদা নাম-সঙ্কীর্তন  ।
+> মাগিয়া খাঞা করে জীবন রক্ষণ ॥২২৩॥
+
 > vairāgī karibe sadā nāma-saṅkīrtana
 > māgiyā khāñā kare jīvana rakṣaṇa
 

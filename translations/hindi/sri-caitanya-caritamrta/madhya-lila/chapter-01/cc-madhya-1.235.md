@@ -1,5 +1,8 @@
 ### CC Madhya 1.235
 
+> জনা দুই সঙ্গে আমি যাব নীলাচলে ।
+> আমারে মিলিবা আসি’ রথযাত্রা-কালে ॥২৩৫॥
+
 > janā dui saṅge āmi yāba nīlācale
 > āmāre milibā āsi' ratha-yātrā-kāle
 

@@ -1,5 +1,8 @@
 ### CC Antya 1.113
 
+> স্বরূপ-গোসাঞি তবে সেই শ্লোক পড়িল ।
+> শুনি’ সবাকার চিত্তে চমৎকার হৈল ॥১১৩॥
+
 svarūpa-gosāñi tabe sei śloka paḍila
 
 śuni' sabākāra citte camatkāra haila

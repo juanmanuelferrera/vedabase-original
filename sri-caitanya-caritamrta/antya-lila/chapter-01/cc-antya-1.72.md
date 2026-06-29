@@ -1,5 +1,8 @@
 ### CC Antya 1.72
 
+> রথযাত্রায় জগন্নাথ দর্শন করিলা ।
+> রথ-অগ্রে প্রভুর নৃত্য-কীর্তন দেখিলা ॥৭২॥
+
 > ratha-yātrāya jagannātha darśana karilā
 > ratha-agre prabhura nṛtya-kīrtana dekhilā
 

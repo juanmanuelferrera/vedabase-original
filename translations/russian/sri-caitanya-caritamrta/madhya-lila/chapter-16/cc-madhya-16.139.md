@@ -1,5 +1,8 @@
 ### CC Madhya 16.139
 
+> ‘প্রতিজ্ঞা’, ‘সেবা’ ছাড়িবে, — এ তোমার ‘উদ্দেশ’ ।
+> সে সিদ্ধ হইল — ছাড়ি’ আইলা দূর দেশ ॥১৩৯॥
+
 > 'pratijñā', 'sevā' chāḍibe,—e tomāra 'uddeśa'
 > se siddha ha-ila—chāḍi' āilā dūra deśa
 

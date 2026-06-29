@@ -1,5 +1,8 @@
 ### SB 5.15.11
 
+> छन्दांस्यकामस्य च यस्य कामान्दुदूहुराजह्रुरथो बलिं नृपाः
+> प्रत्यञ्चिता युधि धर्मेण विप्रा यदाशिषां षष्ठमंशं परेत्य ॥११॥
+
 > chandāṁsy akāmasya ca yasya kāmān
 > dudūhur ājahrur atho baliṁ nṛpāḥ
 > pratyañcitā yudhi dharmeṇa viprā

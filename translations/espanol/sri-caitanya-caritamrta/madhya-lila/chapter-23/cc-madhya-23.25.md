@@ -1,5 +1,8 @@
 ### CC Madhya 23.25
 
+> যো দুস্ত্যজান্ দারসুতান্ সুহৃদ্রাজ্যং হৃদিস্পৃশঃ ।
+> জহৌ যুবৈব মলবদুত্তমঃশ্লোকলালসঃ ॥২৫॥
+
 > yo dustyajān dāra-sutān
 > suḥrd-rājyaṁ hṛdi spṛśaḥ
 > jahau yuvaiva malavad

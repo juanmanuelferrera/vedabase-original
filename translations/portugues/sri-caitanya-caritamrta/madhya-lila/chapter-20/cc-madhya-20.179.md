@@ -1,5 +1,8 @@
 ### CC Madhya 20.179
 
+> গোবিন্দের মাধুরী দেখি’ বাসুদেবের ক্ষোভ ।
+> সে মাধুরী আস্বাদিতে উপজয় লোভ ॥১৭৯॥
+
 govindera mādhurī dekhi' vāsudevera kṣobha
 
 se mādhurī āsvādite upajaya lobha

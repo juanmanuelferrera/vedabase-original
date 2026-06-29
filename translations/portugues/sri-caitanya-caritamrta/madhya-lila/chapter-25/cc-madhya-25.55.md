@@ -1,5 +1,8 @@
 ### CC Madhya 25.55
 
+> পরম কারণ ঈশ্বর কেহ নাহি মানে ।
+> স্ব-স্ব-মত স্থাপে পরমতের খণ্ডনে ॥৫৫॥
+
 parama kāraṇa īśvara keha nāhi māne
 
 sva-sva-mata sthāpe para-matera khaṇḍane

@@ -1,5 +1,8 @@
 ### SB 4.7.10
 
+> तदा वृषध्वजद्वेष कलिलात्मा प्रजापतिः ।
+> शिवावलोकादभवच्छरद्ध्रद इवामलः ॥१०॥
+
 > tadā vṛṣadhvaja-dveṣa-
 > kalilātmā prajāpatiḥ
 > śivāvalokād abhavac

@@ -1,5 +1,8 @@
 ### CC Madhya 6.249
 
+> উত্তম উত্তম প্রসাদ বহুত আনিলা ।
+> নিজবিপ্ৰ-হাতে দুই জনা সঙ্গে দিলা ॥২৪৯॥
+
 uttama uttama prasāda bahuta ānilā
 
 nija-vipra-hāte dui janā saṅge dilā

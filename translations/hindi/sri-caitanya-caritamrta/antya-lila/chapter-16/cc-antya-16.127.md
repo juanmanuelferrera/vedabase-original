@@ -1,5 +1,10 @@
 ### CC Antya 16.127
 
+> অধরামৃত নিজ-স্বরে, সঞ্চারিয়া সেই বলে,
+> আকর্ষয় ত্রিজগৎ-জন ।
+> আমরা ধর্ম-ভয় করি’, রহি’ যদি ধৈর্য ধরি’,
+> তবে আমায় করে বিড়ম্বন ॥১২৭॥
+
 > adharāmṛta nija-svare, sañcāriyā sei bale,
 > ākarṣaya trijagat-jana
 > āmarā dharma-bhaya kari', rahi' yadi dhairya dhari',

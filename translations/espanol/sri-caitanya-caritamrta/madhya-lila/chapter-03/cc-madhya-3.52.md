@@ -1,5 +1,8 @@
 ### CC Madhya 3.52
 
+> পঞ্চাশ পঞ্চাশ ডোঙ্গা ব্যঞ্জনে পূরিঞা ৷
+> তিন ভোগের আশে পাশে রাখিল ধরিঞা ॥৫২॥
+
 > pañcāśa pañcāśa ḍoṅgā vyañjane pūriñā
 > tina bhogera āśe pāśe rākhila dhariñā
 

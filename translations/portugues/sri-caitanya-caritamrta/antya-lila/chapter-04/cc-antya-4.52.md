@@ -1,5 +1,8 @@
 ### CC Antya 4.52
 
+> প্রভু আসি’ প্রতিদিন মিলেন দুইজনে ।
+> ইষ্টগোষ্ঠী, কৃষ্ণকথা কহে কতক্ষণে ॥৫২॥
+
 prabhu āsi' prati-dina milena dui-jane
 
 iṣṭa-goṣṭhī, kṛṣṇa-kathā kahe kata-kṣaṇe

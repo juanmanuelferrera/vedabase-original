@@ -1,5 +1,8 @@
 ### SB 9.1.16
 
+> होतुस्तद्व्यभिचारेण कन्येला नाम साभवत
+> तां विलोक्य मनुः प्राह नातितुष्टमना गुरुम ॥१६॥
+
 > hotus tad-vyabhicāreṇa
 > kanyelā nāma sābhavat
 > tāṁ vilokya manuḥ prāha

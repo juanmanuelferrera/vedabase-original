@@ -1,5 +1,8 @@
 ### CC Adi 16.56
 
+> ‘গঙ্গার মহত্ত্ব’ — শ্লোকে মূল ‘বিধেয়’ ।
+> ইদং শব্দে ‘অনুবাদ’ — পাছে অবিধেয় ॥৫৬॥
+
 > 'gaṅgāra mahattva'--śloke mūla 'vidheya'
 > idaṁ śabde 'anuvāda'--pāche avidheya
 

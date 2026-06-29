@@ -1,5 +1,8 @@
 ### CC Madhya 11.87
 
+> এই হরি-ভট্ট, এই শ্রীনৃসিংহানন্দ ।
+> এই বাসুদেব দত্ত, এই শিবানন্দ ॥৮৭॥
+
 > ei hari-bhaṭṭa, ei śrī-nṛsiṁhānanda
 > ei vāsudeva datta, ei śivānanda
 

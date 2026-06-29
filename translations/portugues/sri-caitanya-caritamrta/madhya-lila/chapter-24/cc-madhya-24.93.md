@@ -1,5 +1,8 @@
 ### CC Madhya 24.93
 
+> অজাগলস্তন-ন্যায় অন্য সাধন ।
+> অতএব হরি ভজে বুদ্ধিমান্ জন ॥৯৩॥
+
 ajā-gala-stana-nyāya anya sādhana
 
 ataeva hari bhaje buddhimān jana

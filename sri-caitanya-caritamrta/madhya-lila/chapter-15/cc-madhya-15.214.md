@@ -1,5 +1,8 @@
 ### CC Madhya 15.214
 
+> ভৃষ্ট-মাষ-মুদ্গ-সূপ অমৃত নিন্দয় ।
+> মধুরাম্ল, বড়াম্লাদি অম্ল পাঁচ ছয় ॥২১৪॥
+
 > bhṛṣṭa-māṣa-mudga-sūpa amṛta nindaya
 > madhurāmla, baḍāmlādi amla pāṅca chaya
 

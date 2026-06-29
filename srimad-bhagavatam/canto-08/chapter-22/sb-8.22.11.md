@@ -1,5 +1,8 @@
 ### SB 8.22.11
 
+> अथाहमप्यात्मरिपोस्तवान्तिकं दैवेन नीतः प्रसभं त्याजितश्रीः
+> इदं कृतान्तान्तिकवर्ति जीवितं ययाध्रुवं स्तब्धमतिर्न बुध्यते ॥११॥
+
 > athāham apy ātma-ripos tavāntikaṁ
 > daivena nītaḥ prasabhaṁ tyājita-śrīḥ
 > idaṁ kṛtāntāntika-varti jīvitaṁ

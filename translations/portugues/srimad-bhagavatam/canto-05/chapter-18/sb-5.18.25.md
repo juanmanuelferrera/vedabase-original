@@ -1,5 +1,7 @@
 ### SB 5.18.25
 
+> ओं नमो भगवते मुख्यतमाय नमः सत्त्वाय प्राणायौजसे सहसे बलाय महामत्स्यायनम इति ॥२५॥
+
 *oṁ namo bhagavate mukhyatamāya namaḥ sattvāya prāṇāyaujase sahase balāya mahā*-matsyāya nama iti.
 
 *om*—ó meu Senhor; *namaḥ*—respeitosas reverências; *bhagavate*—à Suprema Personalidade de Deus; *mukhya-tamāya*—a primeira encarnação a aparecer; *namaḥ*—minhas respeitosas reverências; *sattvāya*—à pura transcendência; *prāṇāya*—a origem da vida; *ojase*—a fonte da potência dos sentidos; *sahase*—a origem de todo o poder mental; *balāya*—a origem da força corpórea; *mahā-matsyāya*—à gigantesca encarnação peixe; *namaḥ*—respeitosas reverências; *iti*—assim.

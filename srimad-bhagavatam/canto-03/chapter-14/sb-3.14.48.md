@@ -1,5 +1,8 @@
 ### SB 3.14.48
 
+> स वै महाभागवतो महात्मा महानुभावो महतां महिष्ठः ।
+> प्रवृद्धभक्त्या ह्यनुभाविताशये निवेश्य वैकुण्ठमिमं विहास्यति ॥४८॥
+
 > sa vai mahā-bhāgavato mahātmā
 > mahānubhāvo mahatāṁ mahiṣṭhaḥ
 > pravṛddha-bhaktyā hy anubhāvitāśaye

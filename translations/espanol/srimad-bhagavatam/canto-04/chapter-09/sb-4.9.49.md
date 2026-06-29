@@ -1,5 +1,8 @@
 ### SB 4.9.49
 
+> सुनीतिरस्य जननी प्राणेभ्योऽपि प्रियं सुतम् ।
+> उपगुह्य जहावाधिं तदङ्गस्पर्शनिर्वृता ॥४९॥
+
 > sunītir asya jananī
 > prāṇebhyo 'pi priyaṁ sutam
 > upaguhya jahāv ādhiṁ

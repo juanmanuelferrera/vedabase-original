@@ -1,5 +1,8 @@
 ### CC Madhya 20.258
 
+> সহস্রপত্রং কমলং গোকুলাখ্যং মহৎপদম্ ।
+> তৎকর্ণিকারং তদ্ধাম তদনন্তাংশসম্ভবম্ ॥২৫৮॥
+
 sahasra-patraṁ kamalaṁ
 
 gokulākhyaṁ mahat-padam

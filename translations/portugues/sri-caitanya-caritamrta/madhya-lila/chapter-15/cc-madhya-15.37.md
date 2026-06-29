@@ -1,5 +1,8 @@
 ### CC Madhya 15.37
 
+> একদিন মহাপ্রভু নিত্যানন্দে লঞা ।
+> দুই ভাই যুক্তি কৈল নিভৃতে বসিয়া ॥৩৭॥
+
 eka-dina mahāprabhu nityānande lañā
 
 dui bhāi yukti kaila nibhṛte vasiyā

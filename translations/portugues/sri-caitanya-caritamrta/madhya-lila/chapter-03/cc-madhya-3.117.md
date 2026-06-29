@@ -1,5 +1,8 @@
 ### CC Madhya 3.117
 
+> অনেক দিন তুমি মোরে বেড়াইলে ভাণ্ডিয়া ।
+> ঘরেতে পাঞাছি, এবে রাখিব বান্ধিয়া ॥১১৭॥
+
 aneka dina tumi more beḍāile bhāṇḍiyā
 
 gharete pāñāchi, ebe rākhiba bāndhiyā

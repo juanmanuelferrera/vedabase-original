@@ -1,5 +1,8 @@
 ### CC Antya 12.101
 
+> চৈতন্যের প্রেমপাত্র জগদানন্দ ধন্য ।
+> যারে মিলে সেই মানে, — ‘পাইলুঁ চৈতন্য’ ॥১০১॥
+
 caitanyera prema-pātra jagadānanda dhanya
 
 yāre mile sei māne,--'pāiluṅ caitanya'

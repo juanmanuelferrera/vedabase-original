@@ -1,5 +1,8 @@
 ### CC Madhya 4.129
 
+> মাধব-পুরী সন্ন্যাসী আছে হাটেতে বসিঞা ।
+> তাহাকে ত’ এই ক্ষীর শীঘ্র দেহ লঞা ॥১২৯॥
+
 > mādhava-purī sannyāsī āche hāṭete vasiñā
 > tāhāke ta' ei kṣīra śīghra deha lañā
 

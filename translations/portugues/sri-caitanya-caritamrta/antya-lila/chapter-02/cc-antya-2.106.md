@@ -1,5 +1,8 @@
 ### CC Antya 2.106
 
+> স্বরূপ গোসাঞি, আর রায় রামানন্দ  ।
+> শিখি-মাহিতি — তিন, তাঁর ভগিনী — অর্ধজন ॥১০৬॥
+
 svarūpa gosāñi, āra rāya rāmānanda
 
 śikhi-māhiti--tina, tāṅra bhaginī--ardha-jana

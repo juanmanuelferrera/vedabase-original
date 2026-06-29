@@ -1,5 +1,8 @@
 ### CC Madhya 15.254
 
+> আচমন করাঞা ভট্ট দিল মুখবাস ৷
+> তুলসী-মঞ্জরী, লবঙ্গ, এলাচি রসবাস ॥২৫৪॥
+
 ācamana karāñā bhaṭṭa dila mukha-vāsa
 
 tulasī-mañjarī, lavaṅga, elāci rasa-vāsa

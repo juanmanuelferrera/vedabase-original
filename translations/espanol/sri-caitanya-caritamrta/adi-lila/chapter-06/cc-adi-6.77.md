@@ -1,5 +1,8 @@
 ### CC Adi 6.77
 
+> তেঁহো আপনাকে করেন দাস-ভাবনা  ।
+> কৃষ্ণদাস-ভাব বিনু আছে কোন জনা ॥৭৭॥
+
 > teṅho āpanāke karena dāsa-bhāvanā
 > kṛṣṇa-dāsa-bhāva vinu āche kona janā
 

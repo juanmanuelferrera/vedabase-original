@@ -1,5 +1,8 @@
 ### CC Antya 16.117
 
+> সুরতবর্ধনং শোকনাশনং, স্বরিতবেণুনা সুষ্ঠুচুম্বিতম্ ।
+> ইতররাগবিস্মারণং নৃণাং, বিতর বীর নস্তেঽধরামৃতম্ ॥১১৭॥
+
 > surata-vardhanaṁ śoka-nāśanaṁ
 > svarita-veṇunā suṣṭhu-cumbitam
 > itara-rāga-vismāraṇaṁ nṛṇāṁ

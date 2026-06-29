@@ -1,5 +1,8 @@
 ### SB 2.5.5
 
+> आत्मन्भावयसे तानि न पराभावयन्स्वयम् ।
+> आत्मशक्तिमवष्टभ्य ऊर्णनाभिरिवाक्लमः ॥५॥
+
 > ātman bhāvayase tāni
 > na parābhāvayan svayam
 > ātma-śaktim avaṣṭabhya

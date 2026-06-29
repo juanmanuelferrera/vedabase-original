@@ -1,5 +1,7 @@
 ### SB 5.20.18
 
+> तथा घृतोदाद्बहिः क्रौञ्चद्वीपो द्विगुणः स्वमानेन क्षीरोदेन परित उपकॢप्तो वृतो यथाकुशद्वीपो घृतोदेन यस्मिन्क्रौञ्चो नाम पर्वतराजो द्वीपनामनिर्वर्तक आस्ते ॥१८॥
+
 > tathā ghṛtodād bahiḥ krauñcadvīpo dvi-guṇaḥ sva-mānena kṣīrodena parita upakḷpto vṛto yathā kuśadvīpo ghṛtodena yasmin krauñco nāma parvata-rājo dvīpa-nāma-nirvartaka āste.
 
 *tathā*—so also; *ghṛta-udāt*—from the ocean of clarified butter; *bahiḥ*—outside; *krauñca-dvīpaḥ*—another island, known as Krauñcadvīpa; *dvi-guṇaḥ*—twice as big; *sva-mānena*—as the same measurement; *kṣīra-udena*—by an ocean of milk; *paritaḥ*—all around; *upakḷptaḥ*—surrounded; *vṛtaḥ*—surrounded; *yathā*—like; *kuśa-dvīpaḥ*—the island known as Kuśadvīpa; *ghṛta-udena*—by an ocean of clarified butter; *yasmin*—in which; *krauñcaḥ nāma*—named Krauñca; *parvata-rājaḥ*—a king of mountains; *dvīpa-nāma*—the name of the island; *nirvartakaḥ*—bringing about; *āste*—exists.

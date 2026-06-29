@@ -1,5 +1,8 @@
 ### CC Adi 5.110
 
+> নারায়ণের নাভিনাল-মধ্যেতে ধরণী ।
+> ধরণীর মধ্যে সপ্ত সমুদ্র যে গণি ॥১১০॥
+
 nārāyaṇera nābhi-nāla-madhyete dharaṇī
 dharaṇīra madhye sapta samudra ye gaṇi
 

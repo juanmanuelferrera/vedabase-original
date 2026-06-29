@@ -1,5 +1,8 @@
 ### CC Madhya 9.199
 
+> সেতুবন্ধে আসি’ কৈল ধনুস্তীর্থে স্নান ৷
+> রামেশ্বর দেখি’ তাহাঁ করিল বিশ্রাম ৷৷ ১৯৯ ৷৷ ॥১৯৯॥
+
 > setubandhe āsi' kaila dhanustīrthe snāna
 > rāmeśvara dekhi' tāhāṅ karila viśrāma
 

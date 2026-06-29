@@ -1,5 +1,8 @@
 ### CC Madhya 9.51
 
+> দার্শনিক পণ্ডিত সবাই পাইল পরাজয় ৷
+> লোকে হাস্য করে, বৌদ্ধ পাইল লজ্জা-ভয় ৷৷ ৫১ ৷৷ ॥৫১॥
+
 dārśanika paṇḍita sabāi pāila parājaya
 loke hāsya kare, bauddha pāila lajjā-bhaya
 

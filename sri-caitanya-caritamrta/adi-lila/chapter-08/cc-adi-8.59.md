@@ -1,5 +1,8 @@
 ### CC Adi 8.59
 
+> পণ্ডিত-গোসাঞির শিষ্য — অনন্ত আচার্য ।
+> কৃষ্ণপ্রেমময়-তনু, উদার, সর্ব-আর্য ॥৫৯॥
+
 > paṇḍita-gosāñira śiṣya—ananta ācārya
 > kṛṣṇa-premamaya-tanu, udāra, sarva-ārya
 

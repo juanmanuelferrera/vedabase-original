@@ -1,5 +1,8 @@
 ### CC Antya 19.28
 
+> মহাযোগেশ্বর আচার্য — তরজাতে সমর্থ ।
+> আমিহ বুঝিতে নারি তরজার অর্থ ।।’ ॥ ২৮ ॥
+
 mahā-yogeśvara ācārya--tarajāte samartha
 
 āmiha bujhite nāri tarajāra artha'

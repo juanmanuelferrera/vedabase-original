@@ -1,5 +1,8 @@
 ### CC Madhya 1.195
 
+> তোমার নাম লঞা তোমার করিল নিন্দন ।
+> সেই নাম হইল তার মুক্তির কারণ ॥১৯৫॥
+
 tomāra nāma lañā tomāra karila nindana
 
 sei nāma ha-ila tāra muktira kāraṇa

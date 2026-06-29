@@ -1,5 +1,8 @@
 ### CC Adi 13.51
 
+> আদিলীলা-সূত্র লিখি, শুন, ভক্তগণ ।
+> সংক্ষেপে লিখিয়ে সম্যক্ না যায় লিখন ॥৫১॥
+
 > ādi-līlā-sūtra likhi, śuna, bhakta-gaṇa
 > saṅkṣepe likhiye samyak nā yāya likhana
 

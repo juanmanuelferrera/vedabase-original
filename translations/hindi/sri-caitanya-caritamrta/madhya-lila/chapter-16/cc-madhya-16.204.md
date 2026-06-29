@@ -1,5 +1,8 @@
 ### CC Madhya 16.204
 
+> রাঘব-পণ্ডিত আসি’ প্রভু লঞা গেলা ।
+> পথে যাইতে লোকভিড়ে কষ্টে-সৃষ্ট্যে আইলা ॥২০৪॥
+
 > rāghava-paṇḍita āsi' prabhu lañā gelā
 > pathe yāite loka-bhiḍe kaṣṭe-sṛṣṭye āilā
 

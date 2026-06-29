@@ -1,5 +1,8 @@
 ### SB 8.24.50
 
+> अचक्षुरन्धस्य यथाग्रणीः कृतस्तथा जनस्याविदुषोऽबुधो गुरुः
+> त्वमर्कदृक्सर्वदृशां समीक्षणो वृतो गुरुर्नः स्वगतिं बुभुत्सताम ॥५०॥
+
 > acakṣur andhasya yathāgraṇīḥ kṛtas
 > tathā janasyāviduṣo 'budho guruḥ
 > tvam arka-dṛk sarva-dṛśāṁ samīkṣaṇo

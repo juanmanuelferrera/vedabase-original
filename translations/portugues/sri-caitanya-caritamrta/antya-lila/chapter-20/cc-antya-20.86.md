@@ -1,5 +1,8 @@
 ### CC Antya 20.86
 
+> সংক্ষেপে কহিলুঁ, বিস্তার না যায় কথনে ।
+> বিস্তারিয়া বেদব্যাস করিব বর্ণনে ॥৮৬॥
+
 saṅkṣepe kahiluṅ, vistāra nā yāya kathane
 
 vistāriyā veda-vyāsa kariba varṇane

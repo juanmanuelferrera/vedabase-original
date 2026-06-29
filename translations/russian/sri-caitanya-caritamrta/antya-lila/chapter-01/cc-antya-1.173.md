@@ -1,5 +1,8 @@
 ### CC Antya 1.173
 
+> রূপ কহে, — “কাহাঁ তুমি সূর্যোপম ভাস  ।
+> মুঞি কোন্ ক্ষুদ্র, — যেন খদ্যোত-প্রকাশ ॥১৭৩॥
+
 > rūpa kahe,—"kāhāṅ tumi sūryopama bhāsa
 > muñi kon kṣudra,—yena khadyota-prakāśa
 

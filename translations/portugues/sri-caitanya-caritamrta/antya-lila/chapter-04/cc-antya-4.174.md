@@ -1,5 +1,8 @@
 ### CC Antya 4.174
 
+> ‘প্রাকৃত’ হৈলেহ তোমার বপু নারি উপেক্ষিতে ।
+> ভদ্রাভদ্র-বস্তুজ্ঞান নাহিক ‘প্রাকৃতে’ ॥১৭৪॥
+
 'prākṛta' haile ha tomāra vapu nāri upekṣite
 
 bhadrābhadra-vastu-jñāna nāhika 'prākṛte'

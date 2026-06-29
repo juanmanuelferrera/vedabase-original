@@ -1,5 +1,8 @@
 ### CC Madhya 12.109
 
+> নিত্যানন্দ, অদ্বৈত, স্বরূপ, ভারতী, পুরী ।
+> ইঁহা বিনু আর সব আনে জল ভরি’ ॥১০৯॥
+
 > nityānanda, advaita, svarūpa, bhāratī, purī
 > iṅhā vinu āra saba āne jala bhari'
 

@@ -1,5 +1,8 @@
 ### CC Madhya 6.230
 
+> “আজি মুঞি অনায়াসে জিনিনু ত্রিভুবন ।
+> আজি মুঞি করিনু বৈকুন্ঠ আরোহণ ॥২৩০॥
+
 > "āji muñi anāyāse jininu tribhuvana
 > āji muñi karinu vaikuṇṭha ārohaṇa
 

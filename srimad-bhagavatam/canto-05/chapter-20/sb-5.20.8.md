@@ -1,5 +1,7 @@
 ### SB 5.20.8
 
+> यत्र ह वै शाल्मली प्लक्षायामा यस्यां वाव किल निलयमाहुर्भगवतश्छन्दःस्तुतः पतत्त्रिराजस्य सा द्वीपहूतये उपलक्ष्यते ॥८॥
+
 > yatra ha vai śālmalī plakṣāyāmā yasyāṁ vāva kila nilayam āhur bhagavataś chandaḥ-stutaḥ patattri-rājasya sā dvīpa-hūtaye upalakṣyate.
 
 *yatra*—where; *ha vai*—certainly; *śālmalī*—a *śālmalī* tree; *plakṣa-āyāmā*—as big as the *plakṣa* tree (one hundred *yojanas* broad and eleven hundred *yojanas* high); *yasyām*—in which; *vāva kila*—indeed; *nilayam*—rest or living place; *āhuḥ*—they say; *bhagavataḥ*—of the most powerful; *chandaḥ-stutaḥ*—who worships the Lord by Vedic prayers; *patattri-rājasya*—of Garuḍa, the carrier of Lord Viṣṇu; *sā*—that tree; *dvīpa-hūtaye*—for the name of the island; *upalakṣyate*—is distinguished.

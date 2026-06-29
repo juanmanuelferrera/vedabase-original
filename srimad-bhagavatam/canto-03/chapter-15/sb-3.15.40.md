@@ -1,5 +1,10 @@
 ### SB 3.15.40
 
+> पीतांशुके पृथुनितम्बिनि विस्फुरन्त्या
+> काञ्च्यालिभिर्विरुतया वनमालया च ।
+> वल्गुप्रकोष्ठवलयं विनतासुतांसे
+> विन्यस्तहस्तमितरेण धुनानमब्जम् ॥४०॥
+
 > pītāṁśuke pṛthu-nitambini visphurantyā
 > kāñcyālibhir virutayā vana-mālayā ca
 > valgu-prakoṣṭha-valayaṁ vinatā-sutāṁse

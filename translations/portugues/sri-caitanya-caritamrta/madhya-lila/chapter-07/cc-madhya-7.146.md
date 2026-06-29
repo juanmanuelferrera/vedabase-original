@@ -1,5 +1,8 @@
 ### CC Madhya 7.146
 
+> কিন্তু আছিলাঙ ভাল অধম হঞা ৷
+> এবে অহঙ্কার মোর জন্মিবে আসিয়া ৷৷ ১৪৬ ৷৷ ॥১৪৬॥
+
 kintu āchilāṅ bhāla adhama hañā
 
 ebe ahaṅkāra mora janmibe āsiyā

@@ -1,5 +1,8 @@
 ### SB 3.32.31
 
+> इत्येतत्कथितं गुर्वि ज्ञानं तद्ब्रह्मदर्शनम् ।
+> येनानुबुद्ध्यते तत्त्वं प्रकृतेः पुरुषस्य च ॥३१॥
+
 > ity etat kathitaṁ gurvi
 > jñānaṁ tad brahma-darśanam
 > yenānubuddhyate tattvaṁ

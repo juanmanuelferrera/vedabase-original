@@ -1,5 +1,8 @@
 ### CC Antya 5.82
 
+> ভক্তগুণ প্রকাশিতে প্রভু ভাল জানে ।
+> নানা-ভঙ্গীতে গুণ প্রকাশি’ নিজ-লাভ মানে ॥৮২॥
+
 > bhakta-guṇa prakāśite prabhu bhāla jāne
 > nānā-bhaṅgīte guṇa prakāśi' nija-lābha māne
 

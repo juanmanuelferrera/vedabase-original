@@ -1,5 +1,8 @@
 ### Bg 2.32
 
+> यदृच्छया चोपपन्नं स्वर्गद्वारमपावृतम् ।
+> सुखिनः क्षत्रियाः पार्थ लभन्ते युद्धमीदृशम् ॥३२॥
+
 > yadṛcchayā copapannaṁ
 > svarga-dvāram apāvṛtam
 > sukhinaḥ kṣatriyāḥ pārtha

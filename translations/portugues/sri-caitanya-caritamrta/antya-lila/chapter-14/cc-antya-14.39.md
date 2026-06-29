@@ -1,5 +1,8 @@
 ### CC Antya 14.39
 
+> উন্মত্তের প্রায় প্রভু করেন গান-নৃত্য ।
+> দেহের স্বভাবে করেন স্নান-ভোজন-কৃত্য ॥৩৯॥
+
 unmattera prāya prabhu karena gāna-nṛtya
 
 dehera svabhāve karena snāna-bhojana-kṛtya

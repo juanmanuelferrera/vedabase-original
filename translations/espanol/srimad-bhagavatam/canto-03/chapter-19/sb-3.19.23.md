@@ -1,5 +1,8 @@
 ### SB 3.19.23
 
+> तदा दितेः समभवत्सहसा हृदि वेपथुः ।
+> स्मरन्त्या भर्तुरादेशं स्तनाच्चासृक्प्रसुस्रुवे ॥२३॥
+
 > tadā diteḥ samabhavat
 > sahasā hṛdi vepathuḥ
 > smarantyā bhartur ādeśaṁ

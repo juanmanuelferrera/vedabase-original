@@ -1,5 +1,8 @@
 ### CC Madhya 7.16
 
+> দুই-এক সঙ্গে চলুক, না পড় হঠ-রঙ্গে ।
+> যারে কহ সেই দুই চলুক্ তোমার সঙ্গে ॥১৬॥
+
 > dui-eka saṅge caluka, nā paḍa haṭha-raṅge
 > yāre kaha sei dui caluk tomāra saṅge
 

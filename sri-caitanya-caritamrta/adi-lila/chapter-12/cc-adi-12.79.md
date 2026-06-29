@@ -1,5 +1,8 @@
 ### CC Adi 12.79
 
+> শ্রীগদাধর পণ্ডিত শাখাতে মহোত্তম ।
+> তাঁর উপশাখা কিছু করি যে গণন ॥৭৯॥
+
 > śrī-gadādhara paṇḍita śākhāte mahottama
 > tāṅra upaśākhā kichu kari ye gaṇana
 

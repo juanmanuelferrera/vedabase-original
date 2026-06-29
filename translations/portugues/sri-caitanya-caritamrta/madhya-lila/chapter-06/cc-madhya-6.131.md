@@ -1,5 +1,8 @@
 ### CC Madhya 6.131
 
+> সূত্রের অর্থ ভাষ্য কহে প্রকাশিয়া ৷
+> তুমি, ভাষ্য কহ — সূত্রের অর্থ আচ্ছাদিয়া ॥১৩১॥
+
 sūtrera artha bhāṣya kahe prakāśiyā
 tumi, bhāṣya kaha--sūtrera artha ācchādiyā
 

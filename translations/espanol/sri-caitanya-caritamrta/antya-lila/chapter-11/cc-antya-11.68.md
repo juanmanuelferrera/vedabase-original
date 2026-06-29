@@ -1,5 +1,8 @@
 ### CC Antya 11.68
 
+> ‘হরিবোল’ ‘হরিবোল’ বলে গৌররায় ।
+> আপনি শ্রীহস্তে বালু দিলা তাঁর গায় ॥৬৮॥
+
 > 'hari-bola' 'hari-bola' bale gaurarāya
 > āpani sri-haste vālu dilā tāṅra gāya
 

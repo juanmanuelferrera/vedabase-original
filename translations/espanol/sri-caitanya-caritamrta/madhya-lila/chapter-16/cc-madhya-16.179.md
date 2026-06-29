@@ -1,5 +1,8 @@
 ### CC Madhya 16.179
 
+> দূর হৈতে প্রভু দেখি’ ভূমেতে পড়িয়া ।
+> দণ্ডবৎ করে অশ্রু-পুলকিত হঞা ॥১৭৯॥
+
 > dūra haite prabhu dekhi' bhūmete paḍiyā
 > daṇḍavat kare aśru-pulakita hañā
 

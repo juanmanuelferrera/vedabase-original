@@ -1,5 +1,8 @@
 ### CC Adi 15.30
 
+> শচীর ইঙ্গিতে সম্বন্ধ করিল ঘটন ।
+> লক্ষ্মীকে বিবাহ কৈল শচীর নন্দন ॥৩০॥
+
 > śacīra iṅgite sambandha karila ghaṭana
 > lakṣmīke vivāha kaila śacīra nandana
 

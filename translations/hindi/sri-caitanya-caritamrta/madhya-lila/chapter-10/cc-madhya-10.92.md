@@ -1,5 +1,8 @@
 ### CC Madhya 10.92
 
+> আইর মন্দিরে সুখে করিলা বিশ্রাম ।
+> আই তাঁরে ভিক্ষা দিলা করিয়া সম্মান ॥৯২॥
+
 > āira mandire sukhe karilā viśrāma
 > āi tāṅre bhikṣā dilā kariyā sammāna
 

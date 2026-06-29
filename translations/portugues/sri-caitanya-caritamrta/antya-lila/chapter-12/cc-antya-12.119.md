@@ -1,5 +1,8 @@
 ### CC Antya 12.119
 
+> এত বলি’ ঘর হৈতে তৈল-কলস লঞা ।
+> প্রভুর আগে আঙ্গিনাতে ফেলিলা ভাঙ্গিয়া ॥১১৯॥
+
 eta bali' ghara haite taila-kalasa lañā
 
 prabhura āge āṅgināte phelilā bhāṅgiyā

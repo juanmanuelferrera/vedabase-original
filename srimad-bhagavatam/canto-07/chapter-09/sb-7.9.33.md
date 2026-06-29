@@ -1,5 +1,10 @@
 ### SB 7.9.33
 
+> तस्यैव ते वपुरिदं निजकालशक्त्या
+> सञ्चोदितप्रकृतिधर्मण आत्मगूढम
+> अम्भस्यनन्तशयनाद्विरमत्समाधेर
+> नाभेरभूत्स्वकणिकावटवन्महाब्जम ॥३३॥
+
 > tasyaiva te vapur idaṁ nija-kāla-śaktyā
 > sañcodita-prakṛti-dharmaṇa ātma-gūḍham
 > ambhasy ananta-śayanād viramat-samādher

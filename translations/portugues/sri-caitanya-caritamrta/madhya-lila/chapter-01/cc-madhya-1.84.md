@@ -1,5 +1,10 @@
 ### CC Madhya 1.84
 
+> যা তে লীলারসপরিমলোদ্গারিবন্যাপরীতা
+> ধন্যা ক্ষৌণী বিলসতি বৃতা মাধুরী মাধুরীভিঃ ।
+> তত্রাস্মাভিশ্চটুলপশুপীভাবমুগ্ধান্তরাভিঃ
+> সম্বীতস্ত্বং কলয় বদনোল্লাসি-বেণুর্বিহারম্ ॥৮৪॥
+
 yā te līlā-rasa-parimalodgāri-vanyāparītā
 dhanyā kṣauṇī vilasati vṛtā māthurī mādhurībhiḥ
 tatrāsmābhiś caṭula-paśupī-bhāva-mugdhāntarābhiḥ

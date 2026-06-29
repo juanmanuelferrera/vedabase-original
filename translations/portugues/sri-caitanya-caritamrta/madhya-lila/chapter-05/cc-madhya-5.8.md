@@ -1,5 +1,8 @@
 ### CC Madhya 5.8
 
+> নিত্যানন্দ-গোসাঞি যবে তীর্থ ভ্রমিলা ।
+> সাক্ষিগোপাল দেখিবারে কটক আইলা ॥৮॥
+
 nityānanda-gosāñi yabe tīrtha bhramilā
 sākṣi-gopāla dekhibāre kaṭaka āilā
 

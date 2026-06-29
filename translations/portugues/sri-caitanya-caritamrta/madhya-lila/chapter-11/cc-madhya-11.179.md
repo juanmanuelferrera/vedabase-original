@@ -1,5 +1,8 @@
 ### CC Madhya 11.179
 
+> এত কহি’ দুই জনে বিদায় লইল ৷
+> গোপীনাথ, বাণীনাথ — দুঁহে সঙ্গে নিল ৷৷ ১৭৯ ৷৷ ॥১৭৯॥
+
 eta kahi' dui jane vidāya la-ila
 gopīnātha, vāṇīnātha-duṅhe saṅge nila
 

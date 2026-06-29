@@ -1,5 +1,8 @@
 ### SB 7.4.28
 
+> निर्वैराय प्रशान्ताय स्वसुताय महात्मने
+> प्रह्रादाय यदा द्रुह्येद्धनिष्येऽपि वरोर्जितम ॥२८॥
+
 > nirvairāya praśāntāya
 > sva-sutāya mahātmane
 > prahrādāya yadā druhyed

@@ -1,5 +1,8 @@
 ### CC Antya 3.106
 
+> বেশ্যাগণ-মধ্যে এক সুন্দরী যুবতী ।
+> সে কহে, — “তিনদিনে হরিব তাঁর মতি” ॥১০৬॥
+
 > veśyā-gaṇa-madhye eka sundarī yuvatī
 > se kahe,--"tina-dine hariba tāṅra mati"
 

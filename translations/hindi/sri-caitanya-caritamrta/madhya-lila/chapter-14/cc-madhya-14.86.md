@@ -1,5 +1,8 @@
 ### CC Madhya 14.86
 
+> মেরু-মন্দর-পর্বত ডুবায় যথা তথা ।
+> এই দুই — গণ্ড-শৈল, ইহার কা কথা ॥৮৬॥
+
 > meru-mandara-parvata ḍubāya yathā tathā
 > ei dui-gaṇḍa-śaila, ihāra kā kathā
 

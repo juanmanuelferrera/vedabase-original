@@ -1,5 +1,8 @@
 ### SB 3.27.25
 
+> यथा ह्यप्रतिबुद्धस्य प्रस्वापो बह्वनर्थभृत् ।
+> स एव प्रतिबुद्धस्य न वै मोहाय कल्पते ॥२५॥
+
 > yathā hy apratibuddhasya
 > prasvāpo bahv-anartha-bhṛt
 > sa eva pratibuddhasya

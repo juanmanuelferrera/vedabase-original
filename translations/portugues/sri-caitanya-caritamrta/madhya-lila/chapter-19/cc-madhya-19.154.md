@@ -1,5 +1,8 @@
 ### CC Madhya 19.154
 
+> তবে যায় তদুপরি ‘গোলোক-বৃন্দাবন’ ।
+> ‘কৃষ্ণচরণ’-কল্পবৃক্ষে করে আরোহণ ॥১৫৪॥
+
 tabe yāya tad-upari 'goloka-vṛndāvana'
 
 'kṛṣṇa-caraṇa'-kalpa-vṛkṣe kare ārohaṇa

@@ -1,5 +1,8 @@
 ### CC Antya 6.71
 
+> হেনকালে আইলা তথা রাঘব পণ্ডিত ।
+> হাসিতে লাগিলা দেখি’ হঞা বিস্মিত ॥৭১॥
+
 hena-kāle āilā tathā rāghava paṇḍita
 
 hāsite lāgilā dekhi' hañā vismita

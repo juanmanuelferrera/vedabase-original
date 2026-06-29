@@ -1,5 +1,8 @@
 ### CC Adi 4.171
 
+> অতএব কাম-প্রেমে বহুত অন্তর ।
+> কাম — অন্ধতমঃ, প্রেম — নির্মল ভাস্কর ॥১৭১॥
+
 > ataeva kāma-preme bahuta antara
 > kāma—andha-tamaḥ, prema—nirmala bhāskara
 

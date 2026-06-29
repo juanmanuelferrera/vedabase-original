@@ -1,5 +1,8 @@
 ### CC Madhya 21.89
 
+> তবে কৃষ্ণ ব্রহ্মারে দিলেন বিদায় ।
+> কৃষ্ণের বিভূতি-স্বরূপ জানান না যায় ॥৮৯॥
+
 tabe kṛṣṇa brahmāre dilena vidāya
 
 kṛṣṇera vibhūti-svarūpa jānāna nā yāya

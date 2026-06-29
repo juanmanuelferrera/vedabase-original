@@ -1,5 +1,8 @@
 ### CC Antya 1.76
 
+> সবে একা স্বরূপ গোসাঞি শ্লোকের অর্থ জানে ।
+> শ্লোকানুরূপ পদ প্রভুকে করান আস্বাদনে ॥৭৬॥
+
 > sabe ekā svarūpa gosāñi ślokera artha jāne
 > ślokānurūpa pada prabhuke karāna āsvādane
 

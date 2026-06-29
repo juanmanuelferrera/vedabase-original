@@ -1,5 +1,8 @@
 ### CC Antya 3.210
 
+> চম্পক-কলি-সম হস্ত-পদাঙ্গুলি ।
+> কোঁকড় হইল সব, কুষ্ঠে গেল গলি’ ॥২১০॥
+
 > campaka-kali-sama hasta-padāṅguli
 > koṅkaḍa ha-ila saba, kuṣṭhe gela gali'
 

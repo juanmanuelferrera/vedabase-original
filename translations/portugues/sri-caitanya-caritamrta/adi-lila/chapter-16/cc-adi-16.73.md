@@ -1,5 +1,8 @@
 ### CC Adi 16.73
 
+> শব্দালঙ্কার — তিনপাদে আছে অনুপ্রাস ।
+> ‘শ্রীলক্ষ্মী’ শব্দে ‘পুনরুক্তবদাভাস’ ॥৭৩॥
+
 śabdālaṅkāra--tina-pāde āche anuprāsa
 'śrī-lakṣmī' śabde 'punar-uktavad-ābhāsa'
 

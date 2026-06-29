@@ -1,5 +1,8 @@
 ### CC Antya 11.75
 
+> শুনিয়া পসারি সব চাঙ্গড়া উঠাঞা ।
+> প্রসাদ দিতে আসে তারা আনন্দিত হঞা ॥৭৫॥
+
 > śuniyā pasāri saba cāṅgaḍā uṭhāñā
 > prasāda dite āse tārā ānandita hañā
 

@@ -1,5 +1,8 @@
 ### CC Antya 1.210
 
+> হরিদাস কহে, — “তোমার ভাগ্যের নাহি সীমা ।
+> যে সব বর্ণিলা, ইহার কে জানে মহিমা ?” ॥ ২১০ ॥
+
 > haridāsa kahe,—"tomāra bhāgyera nāhi sīmā
 > ye saba varṇilā, ihāra ke jāne mahimā?"
 

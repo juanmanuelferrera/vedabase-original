@@ -1,5 +1,8 @@
 ### CC Adi 6.85
 
+> কেহ মানে, কেহ না মানে, সব তাঁর দাস ।
+> যে না মানে, তার হয় সেই পাপে নাশ ॥৮৫॥
+
 > keha māne, keha nā māne, saba tāṅra dāsa
 > ye nā māne, tāra haya sei pāpe nāśa
 

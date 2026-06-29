@@ -1,5 +1,8 @@
 ### CC Adi 14.52
 
+> ক্রোধে কন্যাগণ কহে — শুন, হে নিমাঞি ।
+> গ্রাম-সম্বন্ধে হও তুমি আমা সবার ভাই ॥৫২॥
+
 krodhe kanyāgaṇa kahe--śuna, he nimāñi
 grāma-sambandhe hao tumi āmā sabāra bhāi
 

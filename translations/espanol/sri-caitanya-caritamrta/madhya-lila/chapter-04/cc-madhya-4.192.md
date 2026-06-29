@@ -1,5 +1,8 @@
 ### CC Madhya 4.192
 
+> ঘষিতে ঘষিতে যৈছে মলয়জ-সার ।
+> গন্ধ বাড়ে, তৈছে এই শ্লোকের বিচার ॥১৯২॥
+
 > ghaṣite ghaṣite yaiche malayaja-sāra
 > gandha bāḍe, taiche ei ślokera vicāra
 

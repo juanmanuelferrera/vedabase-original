@@ -1,5 +1,8 @@
 ### CC Antya 8.74
 
+> খাওয়াঞা পুনঃ তারে করয়ে নিন্দন ।
+> ‘এত অন্ন খাও, — তোমার কত আছে ধন? ॥৭৪॥
+
 > khāoyāñā punaḥ tāre karaye nindana
 > 'eta anna khāo,--tomāra kata āche dhana?
 

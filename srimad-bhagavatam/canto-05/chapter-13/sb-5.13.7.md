@@ -1,5 +1,8 @@
 ### SB 5.13.7
 
+> शूरैर्हृतस्वः क्व च निर्विण्णचेताः शोचन्विमुह्यन्नुपयाति कश्मलम
+> क्वचिच्च गन्धर्वपुरं प्रविष्टः प्रमोदते निर्वृतवन्मुहूर्तम ॥७॥
+
 > śūrair hṛta-svaḥ kva ca nirviṇṇa-cetāḥ
 > śocan vimuhyann upayāti kaśmalam
 > kvacic ca gandharva-puraṁ praviṣṭaḥ

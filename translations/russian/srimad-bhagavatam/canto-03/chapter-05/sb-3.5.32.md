@@ -1,5 +1,7 @@
 ### SB 3.5.32
 
+> तामसो भूतसूक्ष्मादिर्यतः खं लिङ्गमात्मन ॥३२॥
+
 > tāmaso bhūta-sūkṣmādir
 > yataḥ khaṁ liṅgam ātmanaḥ
 

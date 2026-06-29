@@ -1,5 +1,8 @@
 ### CC Madhya 13.123
 
+> এই শ্লোকার্থ পূর্বে করিয়াছি ব্যাখান ।
+> শ্লোকের ভাবার্থ করি সংক্ষেপে আখ্যান ॥১২৩॥
+
 ei ślokārtha pūrve kariyāchi vyākhyāna
 
 ślokera bhāvārtha kari saṅkṣepe ākhyāna

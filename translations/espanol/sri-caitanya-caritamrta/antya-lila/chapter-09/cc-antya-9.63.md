@@ -1,5 +1,8 @@
 ### CC Antya 9.63
 
+> রাজা গোপীনাথে যদি চাঙ্গে চড়াইল ।
+> চারিবারে লোকে আসি’ মোরে জানাইল ॥৬৩॥
+
 > rājā gopīnāthe yadi cāṅge caḍāila
 > cāri-bāre loke āsi' more jānāila
 

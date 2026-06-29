@@ -1,5 +1,8 @@
 ### CC Antya 7.22
 
+> তেঁহ দেখাইলা মোরে ভক্তিযোগ-পার ।
+> তাঁর প্রসাদে জানিলুঁ ‘কৃষ্ণভক্তিযোগ’ সার ॥২২॥
+
 teṅha dekhāilā more bhakti-yoga-pāra
 
 tāṅra prasāde jāniluṅ 'kṛṣṇa-bhakti-yoga' sāra

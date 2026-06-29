@@ -1,5 +1,8 @@
 ### CC Madhya 9.190
 
+> প্রভু কহে, — এ ভাবনা না করিহ আর ৷
+> পণ্ডিত হঞা কেনে না করহ বিচার ৷৷ ১৯০ ৷৷ ॥১৯০॥
+
 > prabhu kahe,--e bhāvanā nā kariha āra
 > paṇḍita hañā kene nā karaha vicāra
 

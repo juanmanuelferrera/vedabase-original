@@ -1,5 +1,8 @@
 ### CC Adi 16.74
 
+> প্রথম-চরণে পঞ্চ ‘ত’-কারের পাঁতি ।
+> তৃতীয়া-চরণে হয় পঞ্চ ‘রেফ’-স্থিতি ॥৭৪॥
+
 prathama-caraṇe pañca 'ta'-kārera pāṅti
 tṛtīya-caraṇe haya pañca 'repha'-sthiti
 

@@ -1,5 +1,8 @@
 ### CC Madhya 8.143
 
+> শৃঙ্গার-রসরাজময়-মূর্তিধর ।
+> অতএব আত্মপর্যন্ত-সর্ব-চিত্ত-হর ॥১৪৩॥
+
 > śṛṅgāra-rasarāja-maya-mūrti-dhara
 > ataeva ātma-paryanta-sarva-citta-hara
 

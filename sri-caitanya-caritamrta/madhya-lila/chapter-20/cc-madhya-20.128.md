@@ -1,5 +1,8 @@
 ### CC Madhya 20.128
 
+> ‘তুমি কেনে দুঃখী, তোমার আছে পিতৃধন ।
+> তোমারে না কহিল, অন্যত্র ছাড়িল জীবন ।।” ॥১২৮॥
+
 > 'tumi kene duḥkhī, tomāra āche pitṛ-dhana
 > tomāre nā kahila, anyatra chāḍila jīvana"
 

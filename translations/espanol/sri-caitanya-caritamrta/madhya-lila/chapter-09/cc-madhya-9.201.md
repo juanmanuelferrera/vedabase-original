@@ -1,5 +1,8 @@
 ### CC Madhya 9.201
 
+> পতিব্রতা-শিরোমণি জনক-নন্দিনী ৷
+> জগতের মাতা সীতা — রামের গৃহিণী ৷৷ ২০১ ৷৷ ॥২০১॥
+
 > pativratā-śiromaṇi janaka-nandinī
 > jagatera mātā sītā--rāmera gṛhiṇī
 

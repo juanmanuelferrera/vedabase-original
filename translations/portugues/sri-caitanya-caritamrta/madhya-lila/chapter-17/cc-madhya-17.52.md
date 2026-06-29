@@ -1,5 +1,8 @@
 ### CC Madhya 17.52
 
+> গৌড়, বঙ্গ, উৎকল, দক্ষিণ-দেশে গিয়া ।
+> লোকের নিস্তার কৈল আপনে ভ্রমিয়া ॥৫২॥
+
 gauḍa, baṅga, utkala, dakṣiṇa-deśe giyā
 
 lokera nistāra kaila āpane bhramiyā

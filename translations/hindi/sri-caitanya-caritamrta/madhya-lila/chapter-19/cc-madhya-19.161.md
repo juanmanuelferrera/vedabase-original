@@ -1,5 +1,8 @@
 ### CC Madhya 19.161
 
+> প্রথমেই উপশাখার করয়ে ছেদন ।
+> তবে মূলশাখা বাড়ি’ যায় বৃন্দাবন ॥১৬১॥
+
 > prathamei upaśākhāra karaye chedana
 > tabe mūla-śākhā bāḍi' yāya vṛndāvana
 

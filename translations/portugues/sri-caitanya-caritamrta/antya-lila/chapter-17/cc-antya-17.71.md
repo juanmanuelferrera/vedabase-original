@@ -1,5 +1,8 @@
 ### CC Antya 17.71
 
+> এই লীলা স্বগ্রন্থে রঘুনাথ-দাস ।
+> গৌরাঙ্গস্তবকল্পবৃক্ষে কৈরাছেন প্রকাশ ॥৭১॥
+
 ei līlā sva-granthe raghunātha-dāsa
 
 gaurāṅga-stava-kalpavṛkṣe kairāchena prakāśa

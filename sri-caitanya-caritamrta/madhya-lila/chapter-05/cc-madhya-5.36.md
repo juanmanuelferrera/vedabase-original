@@ -1,5 +1,8 @@
 ### CC Madhya 5.36
 
+> তীর্থে বিপ্রে বাক্য দিলুঁ, — কেমতে সত্য হয় ।
+> স্ত্রী, পুত্র, জ্ঞাতি, বন্ধু জানিবে নিশ্চয় ॥৩৬॥
+
 > tīrthe vipre vākya diluṅ,—kemate satya haya
 > strī, putra, jñāti, bandhu jānibe niścaya
 

@@ -1,5 +1,8 @@
 ### CC Antya 19.33
 
+> রামানন্দের গলা ধরি’ করেন প্রলাপন ।
+> স্বরূপে পুছেন মানি’ নিজ-সখীগণ ॥৩৩॥
+
 rāmānandera galā dhari' karena pralāpana
 
 svarūpe puchena māni' nija-sakhī-gaṇa

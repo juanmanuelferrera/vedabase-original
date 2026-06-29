@@ -1,5 +1,8 @@
 ### Bg 5.13
 
+> सर्वकर्माणि मनसा संन्यस्यास्ते सुखं वशी ।
+> नवद्वारे पुरे देही नैव कुर्वन्न कारयन् ॥१३॥
+
 > sarva-karmāṇi manasā
 > sannyasyāste sukhaṁ vaśī
 > nava-dvāre pure dehī

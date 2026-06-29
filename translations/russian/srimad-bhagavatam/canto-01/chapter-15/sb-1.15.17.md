@@ -1,5 +1,8 @@
 ### SB 1.15.17
 
+> सौत्ये वृतः कुमतिनात्मद ईश्वरो मे यत्पादपद्ममभवाय भजन्ति भव्याः ।
+> मां श्रान्तवाहमरयो रथिनो भुविष्ठं न प्राहरन्यदनुभावनिरस्तचित्ताः ॥१७॥
+
 > sautye vṛtaḥ kumatinātmada īśvaro me
 > yat-pāda-padmam abhavāya bhajanti bhavyāḥ
 > māṁ śrānta-vāham arayo rathino bhuvi-ṣṭhaṁ

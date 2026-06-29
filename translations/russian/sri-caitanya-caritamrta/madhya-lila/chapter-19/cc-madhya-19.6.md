@@ -1,5 +1,8 @@
 ### CC Madhya 19.6
 
+> শ্রীরূপ-গোসাঞি তবে নৌকাতে ভরিয়া ।
+> আপনার ঘরে আইলা বহুধন লঞা ॥৬॥
+
 > śrī-rūpa-gosāñi tabe naukāte bhariyā
 > śrī-rūpa-gosāñi āpanāra ghare āilā bahu-dhana lañā
 

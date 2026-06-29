@@ -1,5 +1,8 @@
 ### CC Madhya 4.119
 
+> হেনকালে সেই ভোগ ঠাকুরে লাগিল ।
+> শুনি’ পুরী-গোসাঞি কিছু মনে বিচারিল ॥১১৯॥
+
 hena-kāle sei bhoga ṭhākure lāgila
 śuni' purī-gosāñi kichu mane vicārila
 

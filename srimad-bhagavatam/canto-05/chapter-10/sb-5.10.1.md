@@ -1,5 +1,8 @@
 ### SB 5.10.1
 
+> श्रीशुक उवाच
+> अथ सिन्धुसौवीरपते रहूगणस्य व्रजत इक्षुमत्यास्तटे तत्कुलपतिना शिबिकावाहपुरुषान्वेषणसमये दैवेनोपसादितः स द्विजवर उपलब्ध एष पीवा युवा संहननाङ्गो गोखरवद्धुरं वोढुमलमिति पूर्वविष्टिगृहीतैः सह गृहीतः प्रसभमतदर्ह उवाह शिबिकां समहानुभावः ॥१॥
+
 > śrī-śuka uvāca
 > atha sindhu-sauvīra-pate rahūgaṇasya vrajata ikṣumatyās taṭe tat-kula-patinā śibikā-vāha-puruṣānveṣaṇa-samaye daivenopasāditaḥ sa dvija-vara upalabdha eṣa pīvā yuvā saṁhananāṅgo go-kharavad dhuraṁ voḍhum alam iti pūrva-viṣṭi-gṛhītaiḥ saha gṛhītaḥ prasabham atad-arha uvāha śibikāṁ sa mahānubhāvaḥ.
 

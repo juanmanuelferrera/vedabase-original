@@ -1,5 +1,8 @@
 ### Bg 6.38
 
+> कच्चिन्नोभयविभ्रष्टश्छिन्नाभ्रमिव नश्यति ।
+> अप्रतिष्ठो महाबाहो विमूढो ब्रह्मणः पथि ॥३८॥
+
 > kaccin nobhaya-vibhraṣṭaś
 > chinnābhram iva naśyati
 > apratiṣṭho mahā-bāho

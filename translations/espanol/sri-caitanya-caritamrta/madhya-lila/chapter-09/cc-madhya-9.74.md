@@ -1,5 +1,8 @@
 ### CC Madhya 9.74
 
+> শিয়ালী ভৈরবী দেবী করি’ দরশন ৷
+> কাবেরীর তীরে আইলা শচীর নন্দন ৷৷ ৭৪ ৷৷ ॥৭৪॥
+
 > śiyālī bhairavī devī kari' daraśana
 > kāverīra tīre āilā śacīra nandana
 

@@ -1,5 +1,8 @@
 ### CC Adi 17.36
 
+> কীর্তন শুনি’ বাহিরে তারা জ্বলি’ পুড়ি’ মরে ।
+> শ্রীবাসেরে দুঃখ দিতে নানা যুক্তি করে ॥৩৬॥
+
 kīrtana śuni' bāhire tārā jvali' puḍi' mare
 śrīvāsere duḥkha dite nānā yukti kare
 

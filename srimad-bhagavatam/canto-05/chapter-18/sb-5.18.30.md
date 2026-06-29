@@ -1,5 +1,7 @@
 ### SB 5.18.30
 
+> ओं नमो भगवते अकूपाराय सर्वसत्त्वगुणविशेषणायानुपलक्षितस्थानाय नमो वर्ष्मणेनमो भूम्ने नमो नमोऽवस्थानाय नमस्ते ॥३०॥
+
 > oṁ namo bhagavate akūpārāya sarva-sattva-guṇa-viśeṣaṇāyānu-palakṣita-sthānāya namo varṣmaṇe namo bhūmne namo namo 'vasthānāya namas te.
 
 *om*—O my Lord; *namaḥ*—respectful obeisances; *bhagavate*—unto You, the Supreme Personality of Godhead; *akūpārāya*—in the form of a tortoise; *sarva-sattva-guṇa-viśeṣaṇāya*—whose form consists of *śuddha-sattva,* transcendental goodness; *anupalakṣita-sthānāya*—unto You, whose position is not discernible; *namaḥ*—my respectful obeisances; *varṣmaṇe*—unto You who, although the oldest, are unaffected by time; *namaḥ*—my respectful obeisances; *bhūmne*—to the great one who can go everywhere; *namaḥ namaḥ*—repeated obeisances; *avasthānāya*—the shelter of everything; *namaḥ*—respectful obeisances; *te*—unto You.

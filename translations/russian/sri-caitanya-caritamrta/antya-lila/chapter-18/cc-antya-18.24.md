@@ -1,5 +1,8 @@
 ### CC Antya 18.24
 
+> এইমত রাসের শ্লোক-সকলই পড়িলা ।
+> শেষে জলকেলির শ্লোক পড়িতে লাগিলা ॥২৪॥
+
 > ei-mata rāsera śloka-sakala-i paḍilā
 > śeṣe jala-kelira śloka paḍite lāgilā
 

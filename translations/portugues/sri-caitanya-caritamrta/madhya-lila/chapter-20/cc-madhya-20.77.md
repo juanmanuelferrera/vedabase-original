@@ -1,5 +1,8 @@
 ### CC Madhya 20.77
 
+> “মোরে বস্ত্র দিতে যদি তোমার হয় মন ।
+> নিজ পরিধান এক দেহ’ পুরাতন ।।” ॥ ৭৭ ॥
+
 "more vastra dite yadi tomāra haya mana
 
 nija paridhāna eka deha' purātana"

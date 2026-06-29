@@ -1,5 +1,8 @@
 ### CC Adi 15.32
 
+> পৌগণ্ড বয়সে লীলা বহুত প্রকার ।
+> বৃন্দাবন-দাস ইহা করিয়াছেন বিস্তার ॥৩২॥
+
 paugaṇḍa vayase līlā bahuta prakāra
 vṛndāvana-dāsa ihā kariyāchena vistāra
 

@@ -1,5 +1,8 @@
 ### CC Madhya 22.164
 
+> এই মত করে যেবা রাগানুগা-ভক্তি ।
+> কৃষ্ণের চরণে তাঁর উপজয় ‘প্রীতি’ ॥১৬৪॥
+
 ei mata kare yebā rāgānugā-bhakti
 
 kṛṣṇera caraṇe tāṅra upajaya 'prīti'

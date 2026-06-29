@@ -1,5 +1,8 @@
 ### CC Adi 12.58
 
+> ভাগবতাচার্য, আর বিষ্ণুদাসাচার্য ।
+> চক্রপাণি আচার্য, আর অনন্ত আচার্য ॥৫৮॥
+
 bhāgavatācārya, āra viṣṇudāsācārya
 cakrapāṇi ācārya, āra ananta ācārya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 9.210
 
+> পত্র লঞা পুনঃ দক্ষিণ-মথুরা আইলা ।
+> রামদাস বিপ্রে সেই পত্র আনি দিলা ॥২১০॥
+
 > patra lañā punaḥ dakṣiṇa-mathurā āilā
 > rāmadāsa vipre sei patra āni dilā
 

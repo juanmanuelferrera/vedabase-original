@@ -1,5 +1,8 @@
 ### CC Madhya 15.275
 
+> ‘মাৎসর্য’-চণ্ডাল কেনে ইহাঁ বসাইলে  ।
+> পরম পবিত্র স্থান অপবিত্র কৈলে ॥২৭৫॥
+
 > 'mātsarya'-caṇḍāla kene ihāṅ vasāile
 > parama pavitra sthāna apavitra kaile
 

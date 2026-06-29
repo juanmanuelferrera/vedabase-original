@@ -1,5 +1,7 @@
 ### SB 5.4.15
 
+> यद्यच्छीर्षण्याचरितं तत्तदनुवर्तते लोकः ॥१५॥
+
 yad yac chīrṣaṇyācaritaṁ tat tad anuvartate lokaḥ.
 
 *yat yat*—tudo o que; *śīrṣaṇya*—pelas personalidades principais; *ācaritam*—executado; *tat tat*—isso; *anuvartate*—seguem; *lokaḥ*—as pessoas em geral.

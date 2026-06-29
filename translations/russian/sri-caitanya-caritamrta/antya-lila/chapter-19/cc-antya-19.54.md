@@ -1,5 +1,10 @@
 ### CC Antya 19.54
 
+> তবে স্বরূপ-রামরায়, করি’ নানা উপায়,
+> মহাপ্রভুর করে আশ্বাসন ।
+> গায়েন সঙ্গম-গীত, প্রভুর ফিরাইলা চিত,
+> প্রভুর কিছু স্থির হৈল মন ॥৫৪॥
+
 > tabe svarūpa-rāma-rāya, kari' nānā upāya,
 > mahāprabhura kare āśvāsana
 > gāyena saṅgama-gīta, prabhura phirāilā cita,

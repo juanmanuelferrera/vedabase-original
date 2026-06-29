@@ -1,5 +1,8 @@
 ### CC Antya 2.113
 
+> ‘আজি হৈতে এই মোর আজ্ঞা পালিবা  ।
+> ছোট হরিদাসে ইহাঁ আসিতে না দিবা ।।’ ১১৩ ॥১১৩॥
+
 > 'āji haite ei mora ājñā pālibā
 > choṭa haridāse ihāṅ āsite nā dibā'
 

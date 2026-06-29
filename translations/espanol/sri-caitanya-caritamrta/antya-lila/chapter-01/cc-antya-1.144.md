@@ -1,5 +1,10 @@
 ### CC Antya 1.144
 
+> ধরিঅ পরিচ্ছন্দগুণং
+> সুন্দর মহ মন্দিরে তুমং বসসি ।
+> তহ তহ রুন্ধসি বলিঅং
+> জহ জহ চইদা পলাএম্হি ? ॥ ১৪৪ ॥
+
 > dhari-a paḍicchanda-guṇaṁ
 > sundara maha mandire tumaṁ vasasi
 > taha taha rundhasi bali-aṁ

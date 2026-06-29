@@ -1,5 +1,8 @@
 ### CC Adi 17.183
 
+> ভীত দেখি’ সিংহ বলে হইয়া সদয় ।
+> তোরে শিক্ষা দিতে কৈলু তোর পরাজয় ॥১৮৩॥
+
 bhīta dekhi' siṁha bale ha-iyā sadaya
 tore śikṣā dite kailu tora parājaya
 

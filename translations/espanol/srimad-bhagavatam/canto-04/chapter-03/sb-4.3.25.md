@@ -1,5 +1,8 @@
 ### SB 4.3.25
 
+> यदि व्रजिष्यस्यतिहाय मद्वचो भद्रं भवत्या न ततो भविष्यति ।
+> सम्भावितस्य स्वजनात्पराभवो यदा स सद्यो मरणाय कल्पते ॥२५॥
+
 > yadi vrajiṣyasy atihāya mad-vaco
 > bhadraṁ bhavatyā na tato bhaviṣyati
 > sambhāvitasya sva-janāt parābhavo

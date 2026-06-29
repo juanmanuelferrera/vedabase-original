@@ -1,5 +1,8 @@
 ### CC Antya 1.19
 
+> কুক্কুর রহিলা, — শিবানন্দ দুঃখী হৈলা  ।
+> দশ পণ কড়ি দিয়া কুক্কুরে পার কৈলা ॥১৯॥
+
 > kukkura rahilā,—śivānanda duḥkhī hailā
 > daśa paṇa kaḍi diyā kukkure pāra kailā
 

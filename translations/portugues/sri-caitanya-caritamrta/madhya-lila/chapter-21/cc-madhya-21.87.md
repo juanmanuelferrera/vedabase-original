@@ -1,5 +1,8 @@
 ### CC Madhya 21.87
 
+> ‘একপাদ বিভূতি’ ইহার নাহি পরিমাণ ।
+> ‘ত্রিপাদ বিভূতি’র কেবা করে পরিমাণ ।।” ॥ ৮৭ ॥
+
 'eka-pāda vibhūti' ihāra nāhi parimāṇa
 
 'tripāda vibhūti'ra kebā kare parimāṇa"

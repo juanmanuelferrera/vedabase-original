@@ -1,5 +1,8 @@
 ### CC Madhya 18.11
 
+> কুণ্ডের ‘মাধুরী’ — যেন রাধার ‘মধুরিমা’ ।
+> কুণ্ডের ‘মহিমা’ — যেন রাধার ‘মহিমা’ ॥১১॥
+
 > kuṇḍera 'mādhurī'—yena rādhāra 'madhurimā'
 > kuṇḍera 'mahimā'—yena rādhāra 'mahimā'
 

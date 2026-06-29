@@ -1,5 +1,10 @@
 ### CC Adi 13.109
 
+> যৌতুক পাইল যত, ঘরে বা আছিল কত,
+> সব ধন বিপ্রে দিল দান ।
+> যত নর্তক, গায়ন, ভাট, অকিঞ্চন জন,
+> ধন দিয়া কৈল সবার মান ॥১০৯॥
+
 > yautuka pāila yata, ghare vā āchila kata,
 > saba dhana vipre dila dāna
 > yata nartaka, gāyana, bhāṭa, akiñcana jana,

@@ -1,5 +1,8 @@
 ### CC Madhya 10.76
 
+> মহাপ্রসাদ দিয়া তাঁরে কৈল নমস্কার ।
+> দক্ষিণ হৈতে আইলা প্রভু, — কহে সমাচার ॥৭৬॥
+
 > mahā-prasāda diyā tāṅre kaila namaskāra
 > dakṣiṇa haite āilā prabhu,-kahe samācāra
 

@@ -1,5 +1,8 @@
 ### CC Madhya 16.44
 
+> সবা লঞা কৈল জগন্নাথ-দরশন ।
+> সবা লঞা আইলা পুনঃ আপন-ভবন ॥৪৪॥
+
 > sabā lañā kaila jagannātha-daraśana
 > sabā lañā āilā punaḥ āpana-bhavana
 

@@ -1,5 +1,8 @@
 ### SB 5.14.1
 
+> स होवाच
+> स एष देहात्ममानिनां सत्त्वादिगुणविशेषविकल्पितकुशलाकुशलसमवहारविनिर्मितविविधदेहावलिभिर्वियोगसंयोगाद्यनादिसंसारानुभवस्य द्वारभूतेन षडिन्द्रियवर्गेणतस्मिन्दुर्गाध्ववदसुगमेऽध्वन्यापतित ईश्वरस्य भगवतो विष्णोर्वशवर्तिन्या मायया जीवलोकोऽयं यथा वणिक्सार्थोऽर्थपरः स्वदेहनिष्पादितकर्मानुभवः श्मशानवदशिवतमायांसंसाराटव्यां गतो नाद्यापि विफलबहुप्रतियोगेहस्तत्तापोपशमनीं हरिगुरुचरणारविन्दमधुकरानुपदवीमवरुन्धे ॥१॥
+
 sa hovāca
 
 *sa eṣa dehātma*-mānināṁ sattvādi-guṇa-viśeṣa-vikalpita-kuśalāku-śala-samavahāra-vinirmita-vividha-dehāvalibhir viyoga-saṁyogādy-anādi-saṁsārānubhavasya dvāra-bhūtena ṣaḍ-indriya-vargeṇa tasmin durgādhvavad asugame 'dhvany āpatita īśvarasya bhagavato viṣṇor vaśa-vartinyā māyayā jīva-loko 'yaṁ yathā vaṇik-sārtho 'rtha-paraḥ sva-deha-niṣpādita-karmānubhavaḥ śmaśānavad aśivatamāyāṁ saṁsārāṭavyāṁ gato nādyāpi viphala-bahu-pratiyogehas tat-tāpopaśamanīṁ hari-guru-caraṇāravinda-madhukarānupadavīm avarundhe.

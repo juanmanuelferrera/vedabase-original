@@ -1,5 +1,8 @@
 ### CC Madhya 13.14
 
+> মহাপ্ৰভু ‘মণিমা’ ‘মণিমা’ করে ধ্বনি ।
+> নানা-বাদ্য-কোলাহলে কিছুই না শুনি ॥১৪॥
+
 mahāprabhu 'maṇimā' 'maṇimā' kare dhvani
 nānā-vādya-kolāhale kichui nā śuni
 

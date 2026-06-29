@@ -1,5 +1,8 @@
 ### CC Adi 7.67
 
+> সাম্প্রদায়িক সন্ন্যাসী তুমি, রহ এই গ্রামে ।
+> কি কারণে আমা-সবার না কর দর্শনে ॥৬৭॥
+
 sāmpradāyika sannyāsī tumi, raha ei grāme
 
 ki kāraṇe āmā-sabāra nā kara darśane

@@ -1,5 +1,8 @@
 ### CC Madhya 25.50
 
+> ‘মীমাংসক’ কহে, — ‘ঈশ্বর হয় কর্মের অঙ্গ’ ।
+> ‘সাংখ্য’ কহে, — ‘জগতের প্রকৃতি কারণ-প্ৰসঙ্গ’ ॥৫০॥
+
 > 'mīmāṁsaka' kahe,-'īśvara haya karmera aṅga'
 > 'sāṅkhya' kahe,-jagatera prakṛti kāraṇa-prasaṅga'
 

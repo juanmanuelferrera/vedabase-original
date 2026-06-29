@@ -1,5 +1,8 @@
 ### CC Antya 20.34
 
+> কৃপা করি’ কর মোরে পদধূলি-সম ।
+> তোমার সেবক করোঁ তোমার সেবন ।।” ॥ ৩৪ ॥
+
 kṛpā kari' kara more pada-dhūli-sama
 
 tomāra sevaka karoṅ tomāra sevana"

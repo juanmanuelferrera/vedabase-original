@@ -1,5 +1,8 @@
 ### CC Madhya 24.224
 
+> কৃষ্ণমননে মুনি কৃষ্ণে সর্বদা ভজয় ।
+> ‘আত্মারামা অপি’ ভজে, — গৌণ অর্থ কয় ॥২২৪॥
+
 > kṛṣṇa-manane muni kṛṣṇe sarvadā bhajaya
 > 'ātmārāmā api' bhaje,—gauṇa artha kaya
 

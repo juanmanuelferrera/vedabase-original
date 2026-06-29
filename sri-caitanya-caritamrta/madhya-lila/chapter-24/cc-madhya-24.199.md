@@ -1,5 +1,10 @@
 ### CC Madhya 24.199
 
+> সত্যং দিশত্যর্থিতমর্থিতো নৃণাং
+> নৈবার্থদো যৎ পুনরর্থিতা যতঃ ।
+> স্বয়ং বিধত্তে ভজতামনিচ্ছতা-
+> মিচ্ছা-পিধানং নিজপাদপল্লবম্ ॥১৯৯॥
+
 > satyaṁ diśaty arthitam arthito nṛṇāṁ
 > naivārthado yat punar arthitā yataḥ
 > svayaṁ vidhatte bhajatām anicchatām

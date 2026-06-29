@@ -1,5 +1,8 @@
 ### SB 8.19.38
 
+> अत्रापि बह्वृचैर्गीतं शृणु मेऽसुरसत्तम
+> सत्यमोमिति यत्प्रोक्तं यन्नेत्याहानृतं हि तत ॥३८॥
+
 > atrāpi bahvṛcair gītaṁ
 > śṛṇu me 'sura-sattama
 > satyam om iti yat proktaṁ

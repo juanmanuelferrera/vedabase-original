@@ -1,5 +1,8 @@
 ### CC Antya 2.65
 
+> নৃসিংহের হৈল জানি আজি উপবাস ।
+> ঠাকুর উপবাসী রহে, জিয়ে কৈছে দাস ?’ ॥ ৬৫ ॥
+
 > nṛsiṁhera haila jāni āji upavāsa
 > ṭhākura upavāsī rahe, jiye kaiche dāsa?'
 

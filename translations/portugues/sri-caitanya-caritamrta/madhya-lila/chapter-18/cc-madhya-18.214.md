@@ -1,5 +1,8 @@
 ### CC Madhya 18.214
 
+> সোরোক্ষেত্রে আসি’ প্রভু কৈলা গঙ্গাস্নান ।
+> গঙ্গাতীর-পথে কৈলা প্রয়াগে প্রয়াণ ॥২১৪॥
+
 soro-kṣetre āsi' prabhu kailā gaṅgā-snāna
 
 gaṅgā-tīra-pathe kailā prayāge prayāṇa

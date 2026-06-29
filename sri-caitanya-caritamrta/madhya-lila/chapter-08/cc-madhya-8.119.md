@@ -1,5 +1,8 @@
 ### CC Madhya 8.119
 
+> ‘কৃষ্ণের স্বরূপ’ কহ ‘রাধার স্বরূপ’ ।
+> ‘রস’ কোন্ তত্ত্ব, ‘প্রেম’ — কোন্ তত্ত্বরূপ ॥১১৯॥
+
 > 'kṛṣṇera svarūpa' kaha 'rādhāra svarūpa'
 > 'rasa' kon tattva, 'prema'—kon tattva-rūpa
 

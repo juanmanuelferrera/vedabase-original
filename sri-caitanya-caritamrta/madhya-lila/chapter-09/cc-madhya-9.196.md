@@ -1,5 +1,8 @@
 ### CC Madhya 9.196
 
+> প্রভুর বচনে বিপ্রের হইল বিশ্বাস ।
+> ভোজন করিল, হৈল জীবনের আশ ॥১৯৬॥
+
 > prabhura vacane viprera ha-ila viśvāsa
 > bhojana karila, haila jīvanera āśa
 

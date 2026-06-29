@@ -1,5 +1,8 @@
 ### SB 4.30.23
 
+> शुद्धाय शान्ताय नमः स्वनिष्ठया मनस्यपार्थं विलसद्द्वयाय ।
+> नमो जगत्स्थानलयोदयेषु गृहीतमायागुणविग्रहाय ॥२३॥
+
 > śuddhāya śāntāya namaḥ sva-niṣṭhayā
 > manasy apārthaṁ vilasad-dvayāya
 > namo jagat-sthāna-layodayeṣu

@@ -1,5 +1,7 @@
 ### SB 2.1.0
 
+> ॥ ॐ नमो भगवते वासुदेवाय ॥
+
 > oṁ namo bhagavate vāsudevāya
 
 *oṁ*—O my Lord; *namaḥ*—my respectful obeisances unto You; *bhagavate*—unto the Personality of Godhead; *vāsudevāya*—unto Lord Kṛṣṇa, the son of Vasudeva.

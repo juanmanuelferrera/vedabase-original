@@ -1,5 +1,10 @@
 ### SB 4.23.12
 
+> छिन्नान्यधीरधिगतात्मगतिर्निरीहस्
+> तत्तत्यजेऽच्छिनदिदं वयुनेन येन ।
+> तावन्न योगगतिभिर्यतिरप्रमत्तो
+> यावद्गदाग्रजकथासु रतिं न कुर्यात् ॥१२॥
+
 > chinnānya-dhīr adhigatātma-gatir nirīhas
 > tat tatyaje 'cchinad idaṁ vayunena yena
 > tāvan na yoga-gatibhir yatir apramatto

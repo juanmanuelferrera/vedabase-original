@@ -1,5 +1,8 @@
 ### CC Antya 7.63
 
+> তবে ভট্ট বহু মহাপ্রসাদ আনাইল ।
+> গণ-সহ মহাপ্রভুরে ভোজন করাইল ॥৬৩॥
+
 > tabe bhaṭṭa bahu mahā-prasāda ānāila
 > gaṇa-saha mahāprabhure bhojana karāila
 

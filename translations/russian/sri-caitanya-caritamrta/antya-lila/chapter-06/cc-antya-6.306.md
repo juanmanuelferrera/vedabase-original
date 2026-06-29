@@ -1,5 +1,8 @@
 ### CC Antya 6.306
 
+> রঘুনাথ সেই শিলা-মালা যবে পাইলা  ।
+> গোসাঞির অভিপ্রায় এই ভাবনা করিলা ॥৩০৬॥
+
 > raghunātha sei śilā-mālā yabe pāilā
 > gosāñira abhiprāya ei bhāvanā karilā
 

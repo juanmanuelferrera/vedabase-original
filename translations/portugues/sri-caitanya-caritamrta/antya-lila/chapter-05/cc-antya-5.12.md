@@ -1,5 +1,8 @@
 ### CC Antya 5.12
 
+> দর্শন না পাঞা মিশ্র সেবকে পুছিল  ।
+> রায়ের বৃত্তান্ত সেবক কহিতে লাগিল ॥১২॥
+
 darśana nā pāñā miśra sevake puchila
 rāyera vṛttānta sevaka kahite lāgila
 

@@ -1,5 +1,8 @@
 ### CC Antya 20.3
 
+> এইমত মহাপ্রভু বৈসে নীলাচলে ।
+> রজনী-দিবসে কৃষ্ণবিরহে বিহ্বলে ॥৩॥
+
 > ei-mata mahāprabhu vaise nīlācale
 > rajanī-divase kṛṣṇa-virahe vihvale
 

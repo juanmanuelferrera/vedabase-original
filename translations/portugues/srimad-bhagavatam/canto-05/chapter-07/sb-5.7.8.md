@@ -1,5 +1,7 @@
 ### SB 5.7.8
 
+> एवं वर्षायुतसहस्रपर्यन्तावसितकर्मनिर्वाणावसरोऽधिभुज्यमानं स्वतनयेभ्योरिक्थं पितृपैतामहं यथादायं विभज्य स्वयं सकलसम्पन्निकेतात्स्वनिकेतात्पुलहाश्रमंप्रवव्राज ॥८॥
+
 *evaṁ varṣāyuta*-sahasra-paryantāvasita-karma-nirvāṇāvasaro 'dhibhujyamānaṁ sva-tanayebhyo rikthaṁ pitṛ-paitāmahaṁ yathā-dāyaṁ vibhajya svayaṁ sakala-sampan-niketāt sva-niketāt pulahāśramaṁ pravavrāja.
 
 *evam*—assim sempre ocupado; *varṣa-ayuta-sahasra*—mil vezes dez mil anos; *paryanta*—até então; *avasita-karma-nirvāṇa-avasaraḥ*—Mahārāja Bharata, que determinou o momento do fim de sua opulência real; *adhibhujyamānam*—sendo desfrutado dessa forma durante esse tempo; *sva-tanayebhyaḥ*—a seus próprios filhos; *riktham*—a riqueza; *pitṛ-paitāmaham*—que recebera de seu pai e antepassados; *yathā-dāyam*—de acordo com as leis dāya-bhāk de Manu; *vibhajya*—dividindo; *svayam*—pessoalmente; *sakala-sampat*—de todos os tipos de opulência; *niketāt*—a morada; *sva-niketāt*—de seu lar paterno; *pulaha-āśramam pravavrāja*—partiu para o āśrama de Pulaha em Hardwar (onde se encontram os śālagrāma-śilās).

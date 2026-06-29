@@ -1,5 +1,8 @@
 ### CC Antya 9.116
 
+> এথা কাশীমিশ্র আসি’ প্রভুর চরণে ।
+> রাজার চরিত্র সব কৈলা নিবেদনে ॥১১৬॥
+
 > ethā kāśī-miśra āsi' prabhura caraṇe
 > rājāra caritra saba kailā nivedane
 

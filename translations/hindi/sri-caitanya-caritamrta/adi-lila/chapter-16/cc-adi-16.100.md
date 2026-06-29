@@ -1,5 +1,8 @@
 ### CC Adi 16.100
 
+> তোমার কবিত্ব যেন গঙ্গাজল-ধার ।
+> তোমা-সম কবি কোথা নাহি দেখি আর ॥১০০॥
+
 > tomāra kavitva yena gaṅgā-jala-dhāra
 > tomā-sama kavi kothā nāhi dekhi āra
 

@@ -1,5 +1,8 @@
 ### CC Antya 4.150
 
+> দুই জন লঞা প্রভু বসিলা পিণ্ডাতে  ।
+> নির্বিণ্ণ সনাতন লাগিলা কহিতে ॥১৫০॥
+
 > dui jana lañā prabhu vasilā piṇḍāte
 > nirviṇṇa sanātana lāgilā kahite
 

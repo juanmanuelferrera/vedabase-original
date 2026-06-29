@@ -1,5 +1,8 @@
 ### CC Madhya 22.18
 
+> এই সব সাধনের অতি তুচ্ছ বল ।
+> কৃষ্ণভক্তি বিনা তাহা দিতে নারে ফল ॥১৮॥
+
 > ei saba sādhanera ati tuccha bala
 > kṛṣṇa-bhakti vinā tāhā dite nāre phala
 

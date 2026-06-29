@@ -1,5 +1,8 @@
 ### CC Madhya 4.48
 
+> গ্রামের ঈশ্বর তোমার — গোবর্ধনধারী ।
+> কুঞ্জে আছে, চল, তাঁরে বাহির যে করি ॥৪৮॥
+
 > grāmera īśvara tomāra--govardhana-dhārī
 > kuñje āche, cala, tāṅre bāhira ye kari
 

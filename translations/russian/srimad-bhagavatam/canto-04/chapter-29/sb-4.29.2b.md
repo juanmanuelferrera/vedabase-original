@@ -1,5 +1,10 @@
 ### SB 4.29.2b
 
+> अदृष्टं दृष्टवन्नङ्क्षेद्
+> भूतं स्वप्नवदन्यथा
+> भूतं भवद्भविष्यच्च
+> सुप्तं सर्वरहोरहः ॥२॥
+
 > adṛṣṭaṁ dṛṣṭavan naṅkṣed
 > bhūtaṁ svapnavad anyathā
 > bhūtaṁ bhavad bhaviṣyac ca

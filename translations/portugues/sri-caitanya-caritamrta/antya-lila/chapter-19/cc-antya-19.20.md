@@ -1,5 +1,8 @@
 ### CC Antya 19.20
 
+> বাউলকে কহিহ, — লোক হইল বাউল  ।
+> বাউলকে কহিহ, — হাটে না বিকায় চাউল ॥২০॥
+
 bāulake kahiha,--loka ha-ila bāula
 
 bāulake kahiha,--hāṭe nā vikāya cāula

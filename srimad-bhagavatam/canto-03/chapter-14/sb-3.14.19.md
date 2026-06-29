@@ -1,5 +1,8 @@
 ### SB 3.14.19
 
+> यामाहुरात्मनो ह्यर्धं श्रेयस्कामस्य मानिनि ।
+> यस्यां स्वधुरमध्यस्य पुमांश्चरति विज्वरः ॥१९॥
+
 > yām āhur ātmano hy ardhaṁ
 > śreyas-kāmasya mānini
 > yasyāṁ sva-dhuram adhyasya

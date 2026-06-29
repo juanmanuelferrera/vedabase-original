@@ -1,5 +1,8 @@
 ### CC Madhya 15.178
 
+> সব ব্ৰহ্মাণ্ড সহ যদি ‘মায়া’র হয় ক্ষয় ।
+> তথাপি না মানে কৃষ্ণ কিছু অপচয় ॥১৭৮॥
+
 > saba brahmāṇḍa saha yadi 'māyā'ra haya kṣaya
 > tathāpi nā māne kṛṣṇa kichu apacaya
 

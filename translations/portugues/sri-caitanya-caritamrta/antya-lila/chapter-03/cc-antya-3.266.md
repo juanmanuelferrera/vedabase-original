@@ -1,5 +1,8 @@
 ### CC Antya 3.266
 
+> মায়া-দাসী ‘প্রেম’ মাগে, — ইথে কি বিস্ময় ?
+> ‘সাধুকৃপা’-‘নাম’ বিনা ‘প্রেম’ না জন্মায় ॥২৬৬॥
+
 māyā-dāsī 'prema' māge,--ithe ki vismaya?
 
 'sādhu-kṛpā-'nāma' vinā 'prema' nā janmaya

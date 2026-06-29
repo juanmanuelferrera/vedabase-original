@@ -1,5 +1,8 @@
 ### CC Antya 13.61
 
+> রক্তবস্ত্র ‘বৈষ্ণবের’ পরিতে না যুয়ায় ।
+> কোন প্রবাসীরে দিমু, কি কায উহায় ? ॥ ৬১ ॥
+
 > rakta-vastra 'vaiṣṇavera' parite nā yuyāya
 > kona pravāsīre dimu, ki kāya uhāya?
 

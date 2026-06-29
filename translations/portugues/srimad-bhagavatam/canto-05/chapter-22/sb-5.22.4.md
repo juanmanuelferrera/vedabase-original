@@ -1,5 +1,7 @@
 ### SB 5.22.4
 
+> तमेतमिह पुरुषास्त्रय्या विद्यया वर्णाश्रमाचारानुपथा उच्चावचैः कर्मभिराम्नातैर्योगवितानैश्च श्रद्धया यजन्तोऽञ्जसा श्रेयः समधिगच्छन्ति ॥४॥
+
 *tam etam iha puruṣās trayyā vidyayā varṇāśramācārānupathā uccāvacaiḥ karmabhir āmnātair yoga*-vitānaiś ca śraddhayā yajanto 'ñjasā śreyaḥ samadhigacchanti.
 
 *tam*—a Ele (a Suprema Personalidade de Deus); *etam*—este; *iha*—neste mundo de mortalidade; *puruṣāḥ*—todas as pessoas; *trayyā*—tendo três divisões; *vidyayā*—pelo conhecimento Védico; *varṇa-āśrama-ācāra*—as práticas do sistema *varṇāśrama*; *anupathāḥ*—seguindo; *ucca-avacaiḥ*—superiores ou inferiores conforme as diferentes posições no *varṇāśrama-dharma* (*brāhmaṇa*, *kṣatriya*, *vaiśya* e *śūdra*); *karmabhiḥ*—por suas respectivas atividades; *āmnātaiḥ*—transmitidos; *yoga-vitānaiḥ*—pela meditação e outros processos iogues; *ca*—e; *śraddhayā*—com grande fé; *yajantaḥ*—adorando; *añjasā*—sem dificuldade; *śreyaḥ*—o benefício último da vida; *samadhigacchanti*—alcançam.

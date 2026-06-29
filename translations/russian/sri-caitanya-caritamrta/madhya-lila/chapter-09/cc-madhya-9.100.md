@@ -1,5 +1,8 @@
 ### CC Madhya 9.100
 
+> অর্জুনেরে কহিতেছেন হিত-উপদেশ ।
+> তাঁরে দেখি’ হয় মোর আনন্দ-আবেশ ॥১০০॥
+
 > arjunere kahitechena hita-upadeśa
 > tāṅre dekhi' haya mora ānanda-āveśa
 

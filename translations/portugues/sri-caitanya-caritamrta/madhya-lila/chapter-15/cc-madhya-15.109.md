@@ -1,5 +1,8 @@
 ### CC Madhya 15.109
 
+> অনুষঙ্গ-ফলে করে সংসারের ক্ষয় ।
+> চিত্ত আকর্ষিয়া করায় কৃষ্ণে প্রেমোদয় ॥১০৯॥
+
 anuṣaṅga-phale kare saṁsārera kṣaya
 
 citta ākarṣiyā karāya kṛṣṇe premodaya

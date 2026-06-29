@@ -1,5 +1,8 @@
 ### SB 6.16.28
 
+> ततः स सप्तरात्रान्ते विद्यया धार्यमाणया
+> विद्याधराधिपत्यं च लेभेऽप्रतिहतं नृप ॥२८॥
+
 > tataḥ sa sapta-rātrānte
 > vidyayā dhāryamāṇayā
 > vidyādharādhipatyaṁ ca

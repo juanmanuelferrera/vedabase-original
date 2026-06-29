@@ -1,5 +1,8 @@
 ### CC Madhya 1.113
 
+> শ্রীরঙ্গপুরী সহ তাহাঞি মিলন ।
+> রামদাস বিপ্রের কৈল দুঃখবিমোচন ॥১১৩॥
+
 > śrī-raṅga-purī saha tāhāñi milana
 > rāma-dāsa viprera kaila duḥkha-vimocana
 

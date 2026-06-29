@@ -1,5 +1,8 @@
 ### CC Madhya 18.5
 
+> তীর্থ ‘লুপ্ত’ জানি’ প্রভু সর্বজ্ঞ ভগবান্ ।
+> দুই ধান্যক্ষেত্রে অল্পজলে কৈলা স্নান ॥৫॥
+
 tīrtha 'lupta' jāni' prabhu sarvajña bhagavān
 dui dhānya-kṣetre alpa-jale kailā snāna
 

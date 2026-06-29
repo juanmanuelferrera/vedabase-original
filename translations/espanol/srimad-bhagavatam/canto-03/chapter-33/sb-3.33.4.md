@@ -1,5 +1,8 @@
 ### SB 3.33.4
 
+> स त्वं भृतो मे जठरेण नाथ कथं नु यस्योदर एतदासीत् ।
+> विश्वं युगान्ते वटपत्र एकः शेते स्म मायाशिशुरङ्घ्रिपानः ॥४॥
+
 > sa tvaṁ bhṛto me jaṭhareṇa nātha
 > kathaṁ nu yasyodara etad āsīt
 > viśvaṁ yugānte vaṭa-patra ekaḥ

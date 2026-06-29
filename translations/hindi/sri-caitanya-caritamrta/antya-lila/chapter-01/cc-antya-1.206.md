@@ -1,5 +1,8 @@
 ### CC Antya 1.206
 
+> তবে মহাপ্রভু কৈলা রূপে আলিঙ্গন ।
+> তাঁরে করাইলা সবার চরণ বন্দন ॥২০৬॥
+
 > tabe mahāprabhu kailā rūpe āliṅgana
 > tāṅre karāilā sabāra caraṇa vandana
 

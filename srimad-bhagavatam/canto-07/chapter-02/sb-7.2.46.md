@@ -1,5 +1,8 @@
 ### SB 7.2.46
 
+> भूतेन्द्रियमनोलिङ्गान्देहानुच्चावचान्विभुः
+> भजत्युत्सृजति ह्यन्यस्तच्चापि स्वेन तेजसा ॥४६॥
+
 > bhūtendriya-mano-liṅgān
 > dehān uccāvacān vibhuḥ
 > bhajaty utsṛjati hy anyas

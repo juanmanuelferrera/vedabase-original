@@ -1,5 +1,8 @@
 ### SB 6.13.18
 
+> तं च ब्रह्मर्षयोऽभ्येत्य हयमेधेन भारत
+> यथावद्दीक्षयां चक्रुः पुरुषाराधनेन ह ॥१८॥
+
 > taṁ ca brahmarṣayo 'bhyetya
 > hayamedhena bhārata
 > yathāvad dīkṣayāṁ cakruḥ

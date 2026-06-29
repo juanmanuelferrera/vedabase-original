@@ -1,5 +1,8 @@
 ### CC Madhya 17.65
 
+> ভট্টাচার্য সেবা করে, স্নেহে যৈছে ‘দাস’ ।
+> তাঁর বিপ্র বহে জলপাত্র-বহিৰ্বাস ॥৬৫॥
+
 > bhaṭṭācārya sevā kare, snehe yaiche 'dāsa'
 > tāṅra vipra vahe jala-pātra-bahirvāsa
 

@@ -1,5 +1,8 @@
 ### CC Antya 7.145
 
+> তাঁর প্রণয়-রোষ দেখিতে প্রভুর ইচ্ছা হয় ।
+> ঐশ্বর্য-জ্ঞানে তাঁর রোষ নাহি উপজয় ॥১৪৫॥
+
 > tāṅra praṇaya-roṣa dekhite prabhura icchā haya
 > aiśvarya-jñāne tāṅra roṣa nāhi upajaya
 

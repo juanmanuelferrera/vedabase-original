@@ -1,5 +1,7 @@
 ### SB 5.26.12
 
+> एवमेव महारौरवो यत्र निपतितं पुरुषं क्रव्यादा नाम रुरवस्तं क्रव्येण घातयन्ति यःकेवलं देहम्भरः ॥११॥
+
 > evam eva mahārauravo yatra nipatitaṁ puruṣaṁ kravyādā nāma ruravas taṁ kravyeṇa ghātayanti yaḥ kevalaṁ dehambharaḥ.
 
 *evam*—así; *eva*—ciertamente; *mahā-rauravah*—el infierno conocido con el nombre de Mahāraurava; *yatra*—donde; *nipatitam*—arrojada; *puruṣam*—la persona; *kravyādāḥ nāma*—que recibe el nombre de *kravyāda*; *ruravaḥ*—los animales *ruru*; *tam*—a él (la persona condenada); *kravyeṇa*—para comer su carne; *ghātayanti*—matan; *yaḥ*—quien; *kevalam*—solamente; *dehambharaḥ*—resuelto a mantener su propio cuerpo.

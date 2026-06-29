@@ -1,5 +1,8 @@
 ### CC Madhya 20.384
 
+> ক্রমে বাল্য-পৌগণ্ড-কৈশোরতা-প্রাপ্তি ।
+> রাস-আদি লীলা করে, কৈশোরে নিত্যস্থিতি ॥৩৮৪॥
+
 > krame bālya-paugaṇḍa-kaiśoratā-prāpti
 > rāsa-ādi līlā kare, kaiśore nitya-sthiti
 

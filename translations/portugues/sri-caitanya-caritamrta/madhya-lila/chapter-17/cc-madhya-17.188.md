@@ -1,5 +1,8 @@
 ### CC Madhya 17.188
 
+> লক্ষ-সংখ্য লোক আইসে, নাহিক গণন ।
+> বাহির হঞা প্রভু দিল দরশন ॥১৮৮॥
+
 lakṣa-saṅkhya loka āise, nāhika gaṇana
 
 bāhira hañā prabhu dila daraśana

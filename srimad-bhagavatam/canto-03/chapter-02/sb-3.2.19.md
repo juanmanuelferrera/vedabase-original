@@ -1,5 +1,8 @@
 ### SB 3.2.19
 
+> दृष्टा भवद्भिर्ननु राजसूये चैद्यस्य कृष्णं द्विषतोऽपि सिद्धिः ।
+> यां योगिनः संस्पृहयन्ति सम्यग्योगेन कस्तद्विरहं सहेत ॥१९॥
+
 > dṛṣṭā bhavadbhir nanu rājasūye
 > caidyasya kṛṣṇaṁ dviṣato 'pi siddhiḥ
 > yāṁ yoginaḥ saṁspṛhayanti samyag

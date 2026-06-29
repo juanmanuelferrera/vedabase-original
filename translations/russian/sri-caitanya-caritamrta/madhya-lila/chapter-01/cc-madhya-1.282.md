@@ -1,5 +1,8 @@
 ### CC Madhya 1.282
 
+> এত বলি’ লোকে করি’ শুভদৃষ্টি দান ।
+> অভ্যন্তরে গেলা, লোকের পূর্ণ হৈল কাম ॥২৮২॥
+
 > eta bali' loke kari' śubha-dṛṣṭi dāna
 > abhyantare gelā, lokera pūrṇa haila kāma
 

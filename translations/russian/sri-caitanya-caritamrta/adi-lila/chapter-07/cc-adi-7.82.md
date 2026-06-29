@@ -1,5 +1,8 @@
 ### CC Adi 7.82
 
+> হাসায়, নাচায়, মোরে করায় ক্রন্দন ।
+> এত শুনি’ গুরু হাসি বলিলা বচন ॥৮২॥
+
 > hāsāya, nācāya, more karāya krandana
 > eta śuni' guru hāsi balilā vacana
 

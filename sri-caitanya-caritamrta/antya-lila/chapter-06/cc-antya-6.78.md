@@ -1,5 +1,8 @@
 ### CC Antya 6.78
 
+> মহাপ্রভু আইলা দেখি’ নিতাই উঠিলা ।
+> তাঁরে লঞা সবার চিড়া দেখিতে লাগিলা ॥৭৮॥
+
 > mahāprabhu āilā dekhi' nitāi uṭhilā
 > tāṅre lañā sabāra ciḍā dekhite lāgilā
 

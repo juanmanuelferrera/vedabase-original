@@ -1,5 +1,8 @@
 ### CC Adi 7.55
 
+> না যাহ সন্ন্যাসি-গোষ্ঠী, ইহা আমি জানি ।
+> মোরে অনুগ্রহ কর নিমন্ত্রণ মানি’ ॥৫৫॥
+
 > nā yāha sannyāsi-goṣṭhī, ihā āmi jāni
 > more anugraha kara nimantraṇa māni'
 

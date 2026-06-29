@@ -1,5 +1,7 @@
 ### SB 5.20.37
 
+> स लोकत्रयान्ते परित ईश्वरेण विहितो यस्मात्सूर्यादीनां ध्रुवापवर्गाणां ज्योतिर्गणानांगभस्तयोऽर्वाचीनांस्त्रीन्लोकानावितन्वाना न कदाचित्पराचीना भवितुमुत्सहन्ते तावदुन्नहनायामः ॥३७॥
+
 *sa loka*-trayānte parita īśvareṇa vihito yasmāt sūryādīnāṁ dhruvāpavargāṇāṁ jyotir-gaṇānāṁ gabhastayo 'rvācīnāṁs trīḹ lokān āvitanvānā na kadācit parācīnā bhavitum utsahante tāvad un-nahanāyāmaḥ.
 
 *saḥ*—essa montanha; *loka-traya-ante*—no fim dos três *lokas* (Bhūrloka, Bhuvarloka e Svarloka); *paritaḥ*—por todos os lados; *īśvareṇa*—pela Suprema Personalidade de Deus, Kṛṣṇa; *vihitaḥ*—criada; *yasmāt*—da qual; *sūrya-ādīnām*—do planeta sol; *dhruva-apavargāṇām*—até Dhruvaloka e outros luminares inferiores; *jyotiḥ-gaṇānām*—de todos os luminares; *gabhastayaḥ*—os raios; *arvācīnān*—deste lado; *trīn*—os três; *lokān*—sistemas planetários; *āvitanvānāḥ*—espalhando-se por toda parte; *na*—não; *kadācit*—em momento algum; *parācīnāḥ*—além da jurisdição daquela montanha; *bhavitum*—ser; *utsahante*—são capazes; *tāvat*—outro tanto; *unnahana-āyāmaḥ*—a medida da altura da montanha.

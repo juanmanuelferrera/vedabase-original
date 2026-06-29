@@ -1,5 +1,8 @@
 ### CC Madhya 1.253
 
+> জগদানন্দ, ভগবান্, গোবিন্দ, কাশীশ্বর ।
+> পরমানন্দপুরী, আর স্বরূপ-দামোদর ॥২৫৩॥
+
 jagadānanda, bhagavān, govinda, kāsīśvara
 
 paramānanda-purī, āra svarūpa-dāmodara

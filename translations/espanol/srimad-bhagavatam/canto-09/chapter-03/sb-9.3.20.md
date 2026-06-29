@@ -1,5 +1,8 @@
 ### SB 9.3.20
 
+> चिकीर्षितं ते किमिदं पतिस्त्वया प्रलम्भितो लोकनमस्कृतो मुनिः
+> यत्त्वं जराग्रस्तमसत्यसम्मतं विहाय जारं भजसेऽमुमध्वगम ॥२०॥
+
 > cikīrṣitaṁ te kim idaṁ patis tvayā
 > pralambhito loka-namaskṛto muniḥ
 > yat tvaṁ jarā-grastam asaty asammataṁ

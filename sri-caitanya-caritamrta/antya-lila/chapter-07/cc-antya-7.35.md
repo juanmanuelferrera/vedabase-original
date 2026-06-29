@@ -1,5 +1,8 @@
 ### CC Antya 7.35
 
+> ঐশ্বর্য দেখিলেহ ‘শুদ্ধের’ নহে ঐশ্বর্য জ্ঞান ।
+> অতএব ঐশ্বর্য হইতে ‘কেবল’-ভাব প্রধান ॥৩৫॥
+
 > aiśvarya dekhileha 'śuddhera' nahe aiśvarya-jñāna
 > ataeva aiśvarya ha-ite 'kevala'-bhāva pradhāna
 

@@ -1,5 +1,8 @@
 ### CC Adi 7.50
 
+> কতেক শুনিব প্রভু তোমার নিন্দন ।
+> না পারি সহিতে, এবে ছাড়িব জীবন ॥৫০॥
+
 > kateka śuniba prabhu tomāra nindana
 > nā pāri sahite, ebe chāḍiba jīvana
 

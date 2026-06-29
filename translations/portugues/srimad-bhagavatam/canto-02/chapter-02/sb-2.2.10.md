@@ -1,5 +1,8 @@
 ### SB 2.2.10
 
+> उन्निद्रहृत्पङ्कजकर्णिकालये योगेश्वरास्थापितपादपल्लवम् ।
+> श्रीलक्षणं कौस्तुभरत्नकन्धरमम्लानलक्ष्म्या वनमालयाचितम् ॥१०॥
+
 unnidra-hṛt-paṅkaja-karṇikālaye
 yogeśvarāsthāpita-pāda-pallavam
 śrī-lakṣaṇaṁ kaustubha-ratna-kandharam

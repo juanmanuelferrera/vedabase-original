@@ -1,5 +1,7 @@
 ### SB 5.8.7
 
+> तं त्वेणकुणकं कृपणं स्रोतसानूह्यमानमभिवीक्ष्यापविद्धं बन्धुरिवानुकम्पयाराजर्षिर्भरत आदाय मृतमातरमित्याश्रमपदमनयत ॥७॥
+
 > taṁ tv eṇa-kuṇakaṁ kṛpaṇaṁ srotasānūhyamānam abhivīkṣyāpaviddhaṁ bandhur ivānukampayā rājarṣir bharata ādāya mṛta-mātaram ity āśrama-padam anayat.
 
 *tam*—that; *tu*—but; *eṇa-kuṇakam*—the deer calf; *kṛpaṇam*—helpless; *srotasā*—by the waves; *anūhyamānam*—floating; *abhivīkṣya*—seeing; *apaviddham*—removed from its own kind; *bandhuḥ iva*—just like a friend; *anukampayā*—with compassion; *rāja-ṛṣiḥ bharataḥ*—the great, saintly King Bharata; *ādāya*—taking; *mṛta-mātaram*—who lost its mother; *iti*—thus thinking; *āśrama-padam*—to the *āśrama*; *anayat*—brought.

@@ -1,5 +1,8 @@
 ### SB 3.9.38
 
+> यच्चकर्थाङ्ग मत्स्तोत्रं मत्कथाभ्युदयाङ्कितम् ।
+> यद्वा तपसि ते निष्ठा स एष मदनुग्रहः ॥३८॥
+
 > yac cakarthāṅga mat-stotraṁ
 > mat-kathābhyudayāṅkitam
 > yad vā tapasi te niṣṭhā

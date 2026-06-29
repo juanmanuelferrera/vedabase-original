@@ -1,5 +1,8 @@
 ### CC Madhya 5.38
 
+> শুনি’ সব গোষ্ঠী তার করে হাহাকার ।
+> ‘ঐছে বাত়্ মুখে তুমি না আনিবে আর ॥৩৮॥
+
 śuni' saba goṣṭhī tāra kare hāhā-kāra
 
 'aiche bāt mukhe tumi nā ānibe āra

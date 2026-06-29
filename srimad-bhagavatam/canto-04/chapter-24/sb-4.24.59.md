@@ -1,5 +1,8 @@
 ### SB 4.24.59
 
+> न यस्य चित्तं बहिरर्थविभ्रमं तमोगुहायां च विशुद्धमाविशत् ।
+> यद्भक्तियोगानुगृहीतमञ्जसा मुनिर्विचष्टे ननु तत्र ते गतिम् ॥५९॥
+
 > na yasya cittaṁ bahir-artha-vibhramaṁ
 > tamo-guhāyāṁ ca viśuddham āviśat
 > yad-bhakti-yogānugṛhītam añjasā

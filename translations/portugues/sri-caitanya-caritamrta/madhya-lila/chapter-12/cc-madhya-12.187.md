@@ -1,5 +1,8 @@
 ### CC Madhya 12.187
 
+> তবে প্রভু প্রত্যেকে, সব ভক্তের নাম লঞা ।
+> পিঠা-পানা দেওয়াইল প্রসাদ করিয়া ॥১৮৭॥
+
 tabe prabhu pratyeke, saba bhaktera nāma lañā
 
 piṭhā-pānā deoyāila prasāda kariyā

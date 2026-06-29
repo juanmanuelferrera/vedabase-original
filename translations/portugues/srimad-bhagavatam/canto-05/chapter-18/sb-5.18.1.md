@@ -1,5 +1,8 @@
 ### SB 5.18.1
 
+> श्रीशुक उवाच
+> तथा च भद्रश्रवा नाम धर्मसुतस्तत्कुलपतयः पुरुषा भद्राश्ववर्षे साक्षाद्भगवतोवासुदेवस्य प्रियां तनुं धर्ममयीं हयशीर्षाभिधानां परमेण समाधिनासन्निधाप्येदमभिगृणन्त उपधावन्ति ॥१॥
+
 śrī-śuka uvāca
 
 *tathā ca bhadraśravā nāma dharma*-sutas tat-kula-patayaḥ puruṣā bhadrāśva-varṣe sākṣād bhagavato vāsudevasya priyāṁ tanuṁ dharmamayīṁ hayaśīrṣābhidhānāṁ parameṇa samādhinā sannidhāpyedam abhigṛṇanta upadhāvanti.

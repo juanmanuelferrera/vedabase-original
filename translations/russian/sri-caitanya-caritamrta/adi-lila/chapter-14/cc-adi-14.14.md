@@ -1,5 +1,8 @@
 ### CC Adi 14.14
 
+> বত্রিশ লক্ষণ — মহাপুরুষ-ভূষণ ।
+> এই শিশু অঙ্গে দেখি সে সব লক্ষণ ॥১৪॥
+
 > batriśa lakṣaṇa—mahāpuruṣa-bhūṣaṇa
 > ei śiśu aṅge dekhi se saba lakṣaṇa
 

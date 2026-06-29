@@ -1,5 +1,8 @@
 ### SB 7.5.36
 
+> विष्णोर्वा साध्वसौ किं नु करिष्यत्यसमञ्जसः
+> सौहृदं दुस्त्यजं पित्रोरहाद्यः पञ्चहायनः ॥३६॥
+
 > viṣṇor vā sādhv asau kiṁ nu
 > kariṣyaty asamañjasaḥ
 > sauhṛdaṁ dustyajaṁ pitror

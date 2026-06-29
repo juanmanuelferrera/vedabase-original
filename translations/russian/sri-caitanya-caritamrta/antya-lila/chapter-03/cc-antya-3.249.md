@@ -1,5 +1,8 @@
 ### CC Antya 3.249
 
+> হরিদাস ঠাকুর কহেন, — “আমি কি করিমু ?
+> নিয়ম করিয়াছি, তাহা কেমনে ছাড়িমু ?” ॥ ২৪৯ ॥
+
 > haridāsa ṭhākura kahena,—"āmi ki karimu?
 > niyama kariyāchi, tāhā kemane chāḍimu?"
 

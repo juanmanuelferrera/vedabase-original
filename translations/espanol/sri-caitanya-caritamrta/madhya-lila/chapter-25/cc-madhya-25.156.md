@@ -1,5 +1,7 @@
 ### CC Madhya 25.156
 
+> “মুক্তা অপি লীলয়া বিগ্রহং কৃত্বা ভগবন্তং ভজন্তে ৷৷” ১৫৬ ৷৷ ॥১৫৬॥
+
 > «muktā api līlayā vigrahaṁ
 > kṛtvā bhagavantaṁ bhajante»
 

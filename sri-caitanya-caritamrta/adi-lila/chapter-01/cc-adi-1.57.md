@@ -1,5 +1,10 @@
 ### CC Adi 1.57
 
+> চিন্তামণির্জয়তি সোমগিরির্গুরুর্মে
+> শিক্ষাগুরুশ্চ ভগবান্ শিখিপিঞ্ছমৌলিঃ ।
+> যৎপাদকল্পতরুপল্লবশেখরেষু
+> লীলাস্বয়ম্বররসং লভতে জয়শ্রীঃ ॥৫৭॥
+
 > cintāmaṇir jayati somagirir gurur me
 > śikṣā-guruś ca bhagavān śikhi-piñcha-mauliḥ
 > yat-pāda-kalpataru-pallava-śekhareṣu

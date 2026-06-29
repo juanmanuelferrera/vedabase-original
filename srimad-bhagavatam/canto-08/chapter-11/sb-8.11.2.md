@@ -1,5 +1,8 @@
 ### SB 8.11.2
 
+> वैरोचनाय संरब्धो भगवान्पाकशासनः
+> उदयच्छद्यदा वज्रं प्रजा हा हेति चुक्रुशुः ॥२॥
+
 > vairocanāya saṁrabdho
 > bhagavān pāka-śāsanaḥ
 > udayacchad yadā vajraṁ

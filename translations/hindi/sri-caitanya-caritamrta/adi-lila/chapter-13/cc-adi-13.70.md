@@ -1,5 +1,8 @@
 ### CC Adi 13.70
 
+> কৃষ্ণ অবতারিতে আচার্য প্রতিজ্ঞা করিয়া ।
+> কৃষ্ণপূজা করে তুলসী-গঙ্গাজল দিয়া ॥৭০॥
+
 > kṛṣṇa avatārite ācārya pratijñā kariyā
 > kṛṣṇa-pūjā kare tulasī-gaṅgājala diyā
 

@@ -1,5 +1,8 @@
 ### SB 7.13.6
 
+> नाभिनन्देद्ध्रुवं मृत्युमध्रुवं वास्य जीवितम
+> कालं परं प्रतीक्षेत भूतानां प्रभवाप्ययम ॥६॥
+
 > nābhinanded dhruvaṁ mṛtyum
 > adhruvaṁ vāsya jīvitam
 > kālaṁ paraṁ pratīkṣeta

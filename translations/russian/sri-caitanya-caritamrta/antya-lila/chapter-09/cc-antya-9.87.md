@@ -1,5 +1,8 @@
 ### CC Antya 9.87
 
+> শুনিয়া ক্ষোভিত হৈল মহাপ্রভুর মন ।
+> ক্রোধে গোপীনাথে কৈলা বহুত ভর্ৎসন ॥৮৭॥
+
 > śuniyā kṣobhita haila mahāprabhura mana
 > krodhe gopīnāthe kailā bahuta bhartsana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 16.140
 
+> আমার সঙ্গে রহিতে চাহ, — বাঞ্ছ নিজ-সুখ ।
+> তোমার দুই ধর্ম যায়, — আমার হয় ‘দুঃখ’ ॥১৪০॥
+
 āmāra saṅge rahite cāha,--vāñcha nija-sukha
 
 tomāra dui dharma yāya,--āmāra haya 'duḥkha'

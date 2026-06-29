@@ -1,5 +1,8 @@
 ### CC Antya 9.14
 
+> তলে খড়্গ পাতি’ তারে উপরে ডারিবে ।
+> প্রভু রক্ষা করেন যবে, তবে নিস্তারিবে ॥১৪॥
+
 tale khaḍga pāti' tāre upare ḍāribe
 prabhu rakṣā karena yabe, tabe nistāribe
 

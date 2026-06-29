@@ -1,5 +1,8 @@
 ### SB 3.27.6
 
+> यमादिभिर्योगपथैरभ्यसञ्श्रद्धयान्वितः ।
+> मयि भावेन सत्येन मत्कथाश्रवणेन च ॥६॥
+
 > yamādibhir yoga-pathair
 > abhyasañ śraddhayānvitaḥ
 > mayi bhāvena satyena

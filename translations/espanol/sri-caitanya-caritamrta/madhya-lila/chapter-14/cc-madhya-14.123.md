@@ -1,5 +1,8 @@
 ### CC Madhya 14.123
 
+> বৃন্দাবন-লীলায় কৃষ্ণের সহায় গোপীগণ ।
+> গোপীগণ বিনা কৃষ্ণের হরিতে নারে মন ॥১২৩॥
+
 > vṛndāvana-līlāya kṛṣṇera sahāya gopī-gaṇa
 > gopī-gaṇa vinā kṛṣṇera harite nāre mana
 

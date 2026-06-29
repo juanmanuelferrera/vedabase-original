@@ -1,5 +1,8 @@
 ### CC Madhya 4.49
 
+> অত্যন্ত নিবিড় কুঞ্জ, — নারি প্ৰবেশিতে ।
+> কুঠারি কোদালি লহ দ্বার করিতে ॥৪৯॥
+
 > atyanta niviḍa kuñja,—nāri praveśite
 > kuṭhāri kodāli laha dvāra karite
 

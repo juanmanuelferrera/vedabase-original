@@ -1,5 +1,8 @@
 ### CC Madhya 11.204
 
+> আচার্য আসিয়াছেন ভিক্ষার প্রসাদান্ন লঞা ।
+> পুরী, ভারতী আছেন তোমার অপেক্ষা করিয়া ॥২০৪॥
+
 > ācārya āsiyāchena bhikṣāra prasādānna lañā
 > purī, bhāratī āchena tomāra apekṣā kariyā
 

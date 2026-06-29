@@ -1,5 +1,8 @@
 ### CC Adi 10.93
 
+> ষোড়শ বৎসর কৈল অন্তরঙ্গা-সেবন ।
+> স্বরূপের অন্তর্ধানে আইলা বৃন্দাবন ॥৯৩॥
+
 > ṣoḍaśa vatsara kaila antaraṅga-sevana
 > svarūpera antardhāne āilā vṛndāvana
 

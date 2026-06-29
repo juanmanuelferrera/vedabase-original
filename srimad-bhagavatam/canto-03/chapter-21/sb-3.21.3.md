@@ -1,5 +1,8 @@
 ### SB 3.21.3
 
+> तस्य वै दुहिता ब्रह्मन्देवहूतीति विश्रुता ।
+> पत्नी प्रजापतेरुक्ता कर्दमस्य त्वयानघ ॥३॥
+
 > tasya vai duhitā brahman
 > devahūtīti viśrutā
 > patnī prajāpater uktā

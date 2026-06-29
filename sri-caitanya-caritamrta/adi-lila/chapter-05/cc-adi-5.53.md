@@ -1,5 +1,8 @@
 ### CC Adi 5.53
 
+> বৈকুণ্ঠের পৃথিব্যাদি সকল চিন্ময় ।
+> মায়িক ভূতের তথি জন্ম নাহি হয় ॥৫৩॥
+
 > vaikuṇṭhera pṛthivy-ādi sakala cinmaya
 > māyika bhūtera tathi janma nāhi haya
 

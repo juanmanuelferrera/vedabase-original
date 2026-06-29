@@ -1,5 +1,7 @@
 ### SB 5.14.10
 
+> क्वचित्सकृदवगतविषयवैतथ्यः स्वयं पराभिध्यानेन विभ्रंशितस्मृतिस्तयैव मरीचितोयप्रायांस्तानेवाभिधावति ॥१०॥
+
 *kvacit sakṛd avagata*-viṣaya-vaitathyaḥ svayaṁ parābhidhyānena vibhraṁśita-smṛtis tayaiva marīci-toya-prāyāṁs tān evābhidhāvati.
 
 *kvacit*—às vezes; *sakṛt*—uma vez; *avagata-viṣaya-vaitathyaḥ*—tornando-se consciente da inutilidade de desfrutar da gratificação material dos sentidos; *svayam*—ele próprio; *para-abhidhyānena*—pelo conceito corporal do eu; *vibhraṁśita*—destruída; *smṛtiḥ*—cuja lembrança; *tayā*—por isso; *eva*—certamente; *marīci-toya*—água numa miragem; *prāyān*—semelhantes a; *tān*—aqueles objetos dos sentidos; *eva*—certamente; *abhidhāvati*—corre atrás.

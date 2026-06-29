@@ -1,5 +1,8 @@
 ### CC Antya 10.33
 
+> কহিতে না জানি নাম এ-জন্মে যাহার ।
+> ঐছে নানা ভক্ষ্যদ্রব্য সহস্রপ্রকার ॥৩৩॥
+
 > kahite nā jāni nāma e-janme yāhāra
 > aiche nānā bhakṣya-dravya sahasra-prakāra
 

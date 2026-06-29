@@ -1,5 +1,8 @@
 ### CC Madhya 3.148
 
+> তুমি যাহাঁ কহ, আমি তাহাঁই রহিব ।
+> তুমি যেই আজ্ঞা কর, সেই ত’ করিব ॥১৪৮॥
+
 tumi yāhāṅ kaha, āmi tāhāṅi rahiba
 
 tumi yei ājñā kara, sei ta' kariba

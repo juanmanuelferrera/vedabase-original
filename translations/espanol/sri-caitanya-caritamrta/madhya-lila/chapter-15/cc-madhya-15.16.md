@@ -1,5 +1,8 @@
 ### CC Madhya 15.16
 
+> চারিমাস রহিলা সবে মহাপ্রভু-সঙ্গে ।
+> জগন্নাথের নানা যাত্রা দেখে মহারঙ্গে ॥১৬॥
+
 > cāri-māsa rahilā sabe mahāprabhu-saṅge
 > jagannāthera nānā yātrā dekhe mahā-raṅge
 

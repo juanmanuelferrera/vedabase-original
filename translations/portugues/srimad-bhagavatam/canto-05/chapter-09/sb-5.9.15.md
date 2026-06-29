@@ -1,5 +1,7 @@
 ### SB 5.9.15
 
+> अथ पणयस्तं स्वविधिनाभिषिच्याहतेन वाससाच्छाद्य भूषणालेपस्रक्तिलकादिभिरुपस्कृतंभुक्तवन्तं धूपदीपमाल्यलाजकिसलयाङ्कुरफलोपहारोपेतया वैशससंस्थया महता गीतस्तुतिमृदङ्गपणवघोषेण च पुरुषपशुं भद्रकाल्याः पुरत उपवेशयामासुः ॥१५॥
+
 *atha paṇayas taṁ sva*-vidhinābhiṣicyāhatena vāsasācchādya bhūṣaṇālepa-srak-tilakādibhir upaskṛtaṁ bhuktavantaṁ dhūpa-dīpa-mālya-lāja-kisalayāṅkura-phalopahāropetayā vaiśasa-saṁsthayā mahatā gīta-stuti-mṛdaṅga-paṇava-ghoṣeṇa ca puruṣa-paśuṁ bhadra-kālyāḥ purata upaveśayām āsuḥ.
 
 *atha*—em seguida; *paṇayaḥ*—todos os seguidores do salteador; *tam*—ele (Jaḍa Bharata); *sva-vidhinā*—segundo seus próprios princípios ritualísticos; *abhiṣicya*—banhando; *ahatena*—com novas; *vāsasā*—vestimentas; *ācchādya*—cobrindo; *bhūṣaṇa*—ornamentos; *ālepa*—untando o corpo com pasta de sândalo; *srak*—uma guirlanda de flores; *tilaka-ādibhiḥ*—com marcas no corpo etc.; *upaskṛtam*—completamente decorado; *bhuktavantam*—tendo comido; *dhūpa*—com incenso; *dīpa*—lamparinas; *mālya*—guirlandas; *lāja*—grãos torrados; *kisalaya-aṅkura*—galhos e brotos; *phala*—frutas; *upahāra*—outra parafernália; *upetayā*—plenamente equipados; *vaiśasa-saṁsthayā*—com os arranjos completos para o sacrifício; *mahatā*—grande; *gīta-stuti*—de canções e orações; *mṛdaṅga*—dos tambores; *paṇava*—das cornetas; *ghoṣeṇa*—pela vibração; *ca*—também; *puruṣa-paśum*—o homem-animal; *bhadra-kālyāḥ*—da deusa Kālī; *purataḥ*—bem em frente; *upaveśayām āsuḥ*—fizeram-no sentar-se.

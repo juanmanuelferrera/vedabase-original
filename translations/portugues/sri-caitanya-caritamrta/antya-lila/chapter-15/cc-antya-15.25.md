@@ -1,5 +1,8 @@
 ### CC Antya 15.25
 
+> এইমত গৌরপ্রভু প্রতি দিনে-দিনে ।
+> বিলাপ করেন স্বরূপ-রামানন্দ-সনে ॥২৫॥
+
 ei-mata gaura-prabhu prati dine-dine
 
 vilāpa karena svarūpa-rāmānanda-sane

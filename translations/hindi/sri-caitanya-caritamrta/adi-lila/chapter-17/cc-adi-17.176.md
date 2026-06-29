@@ -1,5 +1,8 @@
 ### CC Adi 17.176
 
+> শুন, গৌরহরি, এই প্রশ্নের কারণ ।
+> নিভৃত হও যদি, তবে করি নিবেদন ॥১৭৬॥
+
 > śuna, gaurahari, ei praśnera kāraṇa
 > nibhṛta hao yadi, tabe kari nivedana
 

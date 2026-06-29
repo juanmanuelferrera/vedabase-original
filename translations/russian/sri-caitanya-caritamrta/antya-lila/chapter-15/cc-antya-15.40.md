@@ -1,5 +1,8 @@
 ### CC Antya 15.40
 
+> “তুলসি, মালতি, যূথি, মাধবি, মল্লিকে ।
+> তোমার প্রিয় কৃষ্ণ আইলা তোমার অন্তিকে ? ॥ ৪০ ॥
+
 > "tulasi, mālati, yūthi, mādhavi, mallike
 > tomāra priya kṛṣṇa āilā tomāra antike?
 

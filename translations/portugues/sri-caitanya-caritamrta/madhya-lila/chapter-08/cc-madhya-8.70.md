@@ -1,5 +1,10 @@
 ### CC Madhya 8.70
 
+> কৃষ্ণভক্তিরসভাবিতা মতিঃ
+> ক্রীয়তাং যদি কুতোঽপি লভ্যতে ৷
+> তত্র লৌল্যমপি মূল্যমেকলং
+> জন্মকোটিসুকৃতৈর্ন লভ্যতে ৷৷ ৭০ ৷৷ ॥৭০॥
+
 kṛṣṇa-bhakti-rasa-bhāvitā matiḥ
 krīyatāṁ yadi kuto 'pi labhyate
 tatra laulyam api mūlyam ekalaṁ

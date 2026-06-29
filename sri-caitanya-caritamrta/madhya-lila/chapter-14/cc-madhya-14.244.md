@@ -1,5 +1,8 @@
 ### CC Madhya 14.244
 
+> আর দিনে জগন্নাথের ভিতর-বিজয় ।
+> রথে চড়ি’ জগন্নাথ চলে নিজালয় ॥২৪৪॥
+
 > āra dine jagannāthera bhitara-vijaya
 > rathe caḍi' jagannātha cale nijālaya
 

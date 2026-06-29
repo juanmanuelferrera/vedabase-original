@@ -1,5 +1,10 @@
 ### SB 1.16.16
 
+> सारथ्यपारषदसेवनसख्यदौत्य
+> वीरासनानुगमनस्तवनप्रणामान् ।
+> स्निग्धेषु पाण्डुषु जगत्प्रणतिं च विष्णोर्
+> भक्तिं करोति नृपतिश्चरणारविन्दे ॥१६॥
+
 > sārathya-pāraṣada-sevana-sakhya-dautya-
 > vīrāsanānugamana-stavana-praṇāmān
 > snigdheṣu pāṇḍuṣu jagat-praṇatiṁ ca viṣṇor

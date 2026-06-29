@@ -1,5 +1,8 @@
 ### SB 3.27.27
 
+> यदैवमध्यात्मरतः कालेन बहुजन्मना ।
+> सर्वत्र जातवैराग्य आब्रह्मभुवनान्मुनिः ॥२७॥
+
 > yadaivam adhyātma-rataḥ
 > kālena bahu-janmanā
 > sarvatra jāta-vairāgya

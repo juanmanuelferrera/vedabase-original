@@ -1,5 +1,8 @@
 ### CC Antya 16.54
 
+> তবে প্রভু করিলা জগন্নাথ দরশন ।
+> ঘরে আসি’ করিলা মধ্যাহ্ন ভোজন ॥৫৪॥
+
 tabe prabhu karilā jagannātha daraśana
 
 ghare āsi' madhyāhna kari' karila bhojana

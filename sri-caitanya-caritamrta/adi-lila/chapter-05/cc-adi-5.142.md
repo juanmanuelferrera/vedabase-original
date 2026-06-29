@@ -1,5 +1,8 @@
 ### CC Adi 5.142
 
+> একলে ঈশ্বর কৃষ্ণ, আর সব ভৃত্য ।
+> যারে যৈছে নাচায়, সে তৈছে করে নৃত্য ॥১৪২॥
+
 > ekale īśvara kṛṣṇa, āra saba bhṛtya
 > yāre yaiche nācāya, se taiche kare nṛtya
 

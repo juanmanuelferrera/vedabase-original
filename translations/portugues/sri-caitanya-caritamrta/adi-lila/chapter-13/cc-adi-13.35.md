@@ -1,5 +1,8 @@
 ### CC Adi 13.35
 
+> তার মধ্যে নীলাচলে ছয় বৎসর ।
+> নৃত্য, গীত, প্রেমভক্তি-দান নিরন্তর ॥৩৫॥
+
 tāra madhye nīlācale chaya vatsara
 nṛtya, gīta, premabhakti-dāna nirantara
 

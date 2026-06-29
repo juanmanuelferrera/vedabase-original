@@ -1,5 +1,8 @@
 ### CC Madhya 20.218
 
+> এইমত ব্রহ্মাণ্ড-মধ্যে সবার ‘পরকাশ’ ।
+> সপ্তদ্বীপে নবখণ্ডে যাঁহার বিলাস ॥২১৮॥
+
 > ei-mata brahmāṇḍa-madhye sabāra 'parakāśa'
 > sapta-dvīpe nava-khaṇḍe yāṅhāra vilāsa
 

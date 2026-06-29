@@ -1,5 +1,8 @@
 ### CC Madhya 3.17
 
+> বৃন্দাবনপথ প্রভু পুছেন তোমারে ।
+> গঙ্গাতীর-পথ তবে দেখাইহ তাঁরে ॥১৭॥
+
 vṛndāvana-patha prabhu puchena tomāre
 
 gaṅgā-tīra-patha tabe dekhāiha tāṅre

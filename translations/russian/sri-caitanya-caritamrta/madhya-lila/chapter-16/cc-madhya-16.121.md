@@ -1,5 +1,8 @@
 ### CC Madhya 16.121
 
+> এমন কৃপালু নাহি শুনি ত্রিভুবনে ।
+> কৃষ্ণপ্রেমা হয় যাঁর দূর দরশনে ॥১২১॥
+
 > emana kṛpālu nāhi śuni tribhuvane
 > kṛṣṇa-premā haya yāṅra dūra daraśane
 

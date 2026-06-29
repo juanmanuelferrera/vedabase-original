@@ -1,5 +1,8 @@
 ### CC Madhya 8.199
 
+> ত্রিভুবন-মধ্যে ঐছে হয় কোন্ ধীর ।
+> যে তোমার মায়া-নাটে হইবেক স্থির ॥১৯৯॥
+
 > tribhuvana-madhye aiche haya kon dhīra
 > ye tomāra māyā-nāṭe ha-ibeka sthira
 

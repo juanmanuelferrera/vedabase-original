@@ -1,5 +1,8 @@
 ### CC Madhya 20.192
 
+> পুনঃ কৃষ্ণ চতুর্ব্যূহ লঞা পূর্বরূপে ।
+> পরব্যোম-মধ্যে বৈসে নারায়ণরূপে ॥১৯২॥
+
 > punaḥ kṛṣṇa catur-vyūha lañā pūrva-rūpe
 > paravyoma-madhye vaise nārāyaṇa-rūpe
 

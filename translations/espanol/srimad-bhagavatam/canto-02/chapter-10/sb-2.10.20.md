@@ -1,5 +1,8 @@
 ### SB 2.10.20
 
+> नासिके निरभिद्येतां दोधूयति नभस्वति ।
+> तत्र वायुर्गन्धवहो घ्राणो नसि जिघृक्षतः ॥२०॥
+
 > nāsike nirabhidyetāṁ
 > dodhūyati nabhasvati
 > tatra vāyur gandha-vaho

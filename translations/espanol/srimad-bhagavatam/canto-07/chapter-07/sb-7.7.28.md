@@ -1,5 +1,8 @@
 ### SB 7.7.28
 
+> तस्माद्भवद्भिः कर्तव्यं कर्मणां त्रिगुणात्मनाम
+> बीजनिर्हरणं योगः प्रवाहोपरमो धियः ॥२८॥
+
 > tasmād bhavadbhiḥ kartavyaṁ
 > karmaṇāṁ tri-guṇātmanām
 > bīja-nirharaṇaṁ yogaḥ

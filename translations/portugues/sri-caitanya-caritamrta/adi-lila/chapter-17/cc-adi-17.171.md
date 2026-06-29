@@ -1,5 +1,8 @@
 ### CC Adi 17.171
 
+> সহজে যবন-শাস্ত্রে অদৃঢ় বিচার ।
+> হাসি’ তাহে মহাপ্রভু পুছেন আর বার ॥১৭১॥
+
 sahaje yavana-śāstre adṛḍha vicāra
 
 hāsi' tāhe mahāprabhu puchena āra-vāra

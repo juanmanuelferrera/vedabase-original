@@ -1,5 +1,8 @@
 ### CC Madhya 15.97
 
+> প্রতিবর্ষে আমার সব ভক্তগণ লঞা ।
+> গুণ্ডিচায় আসিবে সবায় পালন করিয়া ॥৯৭॥
+
 > prati-varṣe āmāra saba bhakta-gaṇa lañā
 > guṇḍicāya āsibe sabāya pālana kariyā
 

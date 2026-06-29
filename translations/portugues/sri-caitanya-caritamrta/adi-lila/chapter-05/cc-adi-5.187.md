@@ -1,5 +1,8 @@
 ### CC Adi 5.187
 
+> চন্দনলেপিত-অঙ্গ, তিলক সুঠাম ।
+> মত্তগজ জিনি’ মদ-মন্থর পয়ান ॥১৮৭॥
+
 candana-lepita-aṅga, tilaka suṭhāma
 matta-gaja jini' mada-manthara payāna
 

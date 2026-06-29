@@ -1,5 +1,8 @@
 ### CC Antya 5.100
 
+> আদৌ তুমি শুন, যদি তোমার মন মানে ।
+> পাছে মহাপ্রভুরে তবে করাইমু শ্রবণে ॥১০০॥
+
 ādau tumi śuna, yadi tomāra mana māne
 
 pāche mahāprabhure tabe karāimu śravaṇe

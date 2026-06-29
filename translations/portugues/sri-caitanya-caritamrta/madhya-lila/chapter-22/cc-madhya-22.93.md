@@ -1,5 +1,8 @@
 ### CC Madhya 22.93
 
+> এত সব ছাড়ি’ আর বর্ণাশ্রম-ধর্ম ।
+> অকিঞ্চন হঞা লয় কৃষ্ণৈক-শরণ ॥৯৩॥
+
 eta saba chāḍi' āra varṇāśrama-dharma
 
 akiñcana hañā laya kṛṣṇaika-śaraṇa

@@ -1,5 +1,8 @@
 ### CC Madhya 4.141
 
+> ‘ঠাকুর মোরে ক্ষীর দিল — লোক সব শুনি’ ।
+> দিনে লোক-ভিড় হবে মোর প্রতিষ্ঠা জানি’ ॥১৪১॥
+
 > 'ṭhākura more kṣīra dila—loka saba śuni'
 > dine loka-bhiḍa habe mora pratiṣṭhā jāni'
 

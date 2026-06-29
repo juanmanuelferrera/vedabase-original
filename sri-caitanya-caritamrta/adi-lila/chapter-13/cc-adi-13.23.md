@@ -1,5 +1,8 @@
 ### CC Adi 13.23
 
+> বাল্যভাব ছলে প্রভু করেন ক্রন্দন ।
+> ‘কৃষ্ণ’ ‘হরি’ নাম শুনি’ রহয়ে রোদন ॥২৩॥
+
 > bālya-bhāva chale prabhu karena krandana
 > 'kṛṣṇa' 'hari' nāma śuni' rahaye rodana
 

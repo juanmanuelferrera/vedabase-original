@@ -1,5 +1,10 @@
 ### SB 3.31.19
 
+> पश्यत्ययं धिषणया ननु सप्तवध्रिः
+> शारीरके दमशरीर्यपरः स्वदेहे ।
+> यत्सृष्टयासं तमहं पुरुषं पुराणं
+> पश्ये बहिर्हृदि च चैत्यमिव प्रतीतम् ॥१९॥
+
 > paśyaty ayaṁ dhiṣaṇayā nanu sapta-vadhriḥ
 > śārīrake dama-śarīry aparaḥ sva-dehe
 > yat-sṛṣṭayāsaṁ tam ahaṁ puruṣaṁ purāṇaṁ

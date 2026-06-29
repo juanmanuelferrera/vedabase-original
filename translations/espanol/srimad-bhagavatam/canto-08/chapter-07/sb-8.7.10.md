@@ -1,5 +1,8 @@
 ### SB 8.7.10
 
+> तमुत्थितं वीक्ष्य कुलाचलं पुनः समुद्यता निर्मथितुं सुरासुराः
+> दधार पृष्ठेन स लक्षयोजन प्रस्तारिणा द्वीप इवापरो महान ॥१०॥
+
 > surāsurendrair bhuja-vīrya-vepitaṁ
 > paribhramantaṁ girim aṅga pṛṣṭhataḥ
 > bibhrat tad-āvartanam ādi-kacchapo

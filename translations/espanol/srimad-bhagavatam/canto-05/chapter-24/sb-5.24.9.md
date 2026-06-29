@@ -1,5 +1,7 @@
 ### SB 5.24.9
 
+> येषु महाराज मयेन मायाविना विनिर्मिताः पुरो नानामणिप्रवरप्रवेकविरचितविचित्रभवनप्राकारगोपुरसभाचैत्यचत्वरायतनादिभिर्नागासुरमिथुनपारावतशुकसारिकाकीर्णकृत्रिमभूमिभिर्विवरेश्वरगृहोत्तमैः समलङ्कृताश्चकासति ॥९॥
+
 > yeṣu mahārāja mayena māyāvinā vinirmitāḥ puro nānā-maṇi-pravara-praveka-viracita-vicitra-bhavana-prākāra-gopura-sabhā-caitya-catvarāyatanādibhir nāgāsura-mithuna-pārāvata-śuka-sārikākīrṇa-kṛtrima-bhūmibhir vivareśvara-gṛhottamaiḥ samalaṅkṛtāś cakāsati.
 
 *yeṣu*—en esos sistemas planetarios inferiores; *mahā-rāja*—¡oh, mi querido rey!; *mayena*—por el demonio llamado Maya; *māyā-vinā*—que posee conocimiento avanzado en la construcción de comodidades materiales; *vinirmitāḥ*—construidas; *puraḥ*—ciudades; *nānā-maṇi-pravara*—de piedras preciosas; *praveka*—con excelentes; *viracita*—construidas; *vicitra*—maravillosas; *bhavana*—casas; *prākāra*—murallas; *gopura*—pórticos; *sabhā*—salas de juntas legislativas; *caitya*—templos; *catvara*—escuelas; *āyatana-ādibhiḥ*—con hoteles, salones recreativos, etc.; *nāga*—de entidades vivientes con cuerpos serpentinos; *asura*—de demonios o personas ateas; *mithuna*—por parejas; *pārāvata*—palomas; *śuka*—loros; *sārikā*—mirlos; *ākīrṇa*—pobladas; *kṛtrima*—artificiales; *bhūmibhiḥ*—con zonas; *vivara-īśvara*—de los líderes de los planetas; *gṛha-uttamaiḥ*—con casas magníficas; *samalaṅkṛtāḥ*—decoradas; *cakāsati*—brillan con esplendor.

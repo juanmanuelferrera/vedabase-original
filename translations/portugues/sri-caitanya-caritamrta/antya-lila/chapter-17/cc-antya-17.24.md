@@ -1,5 +1,8 @@
 ### CC Antya 17.24
 
+> সঙ্কেত-বেণু-নাদে রাধা আনি’ কুঞ্জঘরে ।
+> কুঞ্জেরে চলিলা কৃষ্ণ ক্রীড়া করিবারে ॥২৪॥
+
 saṅketa-veṇu-nāde rādhā āni' kuñja-ghare
 
 kuñjere calilā kṛṣṇa krīḍā karibāre

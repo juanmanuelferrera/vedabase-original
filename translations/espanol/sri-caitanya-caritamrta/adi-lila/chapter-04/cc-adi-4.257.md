@@ -1,5 +1,8 @@
 ### CC Adi 4.257
 
+> দোঁহার যে সমরস, ভরতমুনি মানে ।
+> আমার ব্রজের রস সেহ নাহি জানে ॥২৫৭॥
+
 > doṅhāra ye sama-rasa, bharata-muni māne
 > āmāra vrajera rasa seha nāhi jāne
 

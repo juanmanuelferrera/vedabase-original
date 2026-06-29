@@ -1,5 +1,10 @@
 ### SB 2.7.26
 
+> भूमेः सुरेतरवरूथविमर्दितायाः
+> क्लेशव्ययाय कलया सितकृष्णकेशः ।
+> जातः करिष्यति जनानुपलक्ष्यमार्गः
+> कर्माणि चात्ममहिमोपनिबन्धनानि ॥२६॥
+
 > bhūmeḥ suretara-varūtha-vimarditāyāḥ
 > kleśa-vyayāya kalayā sita-kṛṣṇa-keśaḥ
 > jātaḥ kariṣyati janānupalakṣya-mārgaḥ

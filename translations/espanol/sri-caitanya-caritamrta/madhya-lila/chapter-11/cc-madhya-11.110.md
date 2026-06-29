@@ -1,5 +1,8 @@
 ### CC Madhya 11.110
 
+> ভট্ট কহে, — ভক্তগণ আইল জানিঞা ৷
+> প্রভুর ইঙ্গিতে প্রসাদ যায় তাঁরা লঞা ৷৷ ১১০ ৷৷ ॥১১০॥
+
 > bhaṭṭa kahe,-bhakta-gaṇa āila jāniñā
 > prabhura iṅgite prasāda yāya tāṅrā lañā
 

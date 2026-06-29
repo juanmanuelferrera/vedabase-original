@@ -1,5 +1,8 @@
 ### CC Madhya 4.32
 
+> এত বলি’ গেলা বালক না দেখিয়ে আর ।
+> মাধব-পুরীর চিত্তে হইল চমৎকার ॥৩২॥
+
 > eta bali' gelā bālaka nā dekhiye āra
 > mādhava-purīra citte ha-ila camatkāra
 

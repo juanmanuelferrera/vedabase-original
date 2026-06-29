@@ -1,5 +1,8 @@
 ### CC Adi 17.295
 
+> সেই নন্দসূত — ইহঁ চৈতন্য-গোসাঞি ।
+> সেই বলদেব — ইহঁ নিত্যানন্দ ভাই ॥২৯৫॥
+
 > sei nanda-suta—ihaṅ caitanya-gosāñi
 > sei baladeva—ihaṅ nityānanda bhāi
 

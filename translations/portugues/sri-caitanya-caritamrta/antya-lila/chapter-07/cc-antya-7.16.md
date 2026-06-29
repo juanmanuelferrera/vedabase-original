@@ -1,5 +1,8 @@
 ### CC Antya 7.16
 
+> মহাপ্রভু কহে — “শুন, ভট্ট মহামতি ।
+> মায়াবাদী সন্ন্যাসী আমি, না জানি কৃষ্ণভক্তি ॥১৬॥
+
 mahāprabhu kahe--"śuna, bhaṭṭa mahā-mati
 
 māyāvādī sannyāsī āmi, nā jāni kṛṣṇa-bhakti

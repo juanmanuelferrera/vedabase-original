@@ -1,5 +1,8 @@
 ### CC Madhya 24.147
 
+> “নির্গ্রন্থাঃ” — অবিদ্যাহীন, কেহ — বিধিহীন ।
+> যাহাঁ যেই যুক্ত, সেই অর্থের অধীন ॥১৪৭॥
+
 "nirgranthāḥ"--avidyā-hīna, keha--vidhi-hīna
 
 yāhāṅ yei yukta, sei arthera adhīna

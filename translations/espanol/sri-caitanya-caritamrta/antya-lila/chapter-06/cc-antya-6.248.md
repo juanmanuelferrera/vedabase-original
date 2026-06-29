@@ -1,5 +1,8 @@
 ### CC Antya 6.248
 
+> চারি মাস রহি’ ভক্তগণ গৌড়ে গেলা ।
+> শুনি’ রঘুনাথের পিতা মনুষ্য পাঠাইলা ॥২৪৮॥
+
 > cāri māsa rahi' bhakta-gaṇa gauḍe gelā
 > śuni' raghunāthera pitā manuṣya pāṭhāilā
 

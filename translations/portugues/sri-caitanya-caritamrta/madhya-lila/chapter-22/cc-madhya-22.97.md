@@ -1,5 +1,8 @@
 ### CC Madhya 22.97
 
+> বিজ্ঞ-জনের হয় যদি কৃষ্ণগুণ-জ্ঞান ।
+> অন্য ত্যজি’ ভজে, তাতে উদ্ধব — প্রমাণ ॥৯৭॥
+
 vijña-janera haya yadi kṛṣṇa-guṇa-jñāna
 
 anya tyaji', bhaje, tāte uddhava--pramāṇa

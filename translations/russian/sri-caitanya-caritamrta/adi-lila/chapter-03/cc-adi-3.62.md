@@ -1,5 +1,8 @@
 ### CC Adi 3.62
 
+> বাহু তুলি’ হরি বলি’ প্রেমদৃষ্ট্যে চায় ।
+> করিয়া কল্মষ নাশ প্রেমেতে ভাসায় ॥৬২॥
+
 > bāhu tuli' hari bali' prema-dṛṣṭye cāya
 > kariyā kalmaṣa nāśa premete bhāsāya
 

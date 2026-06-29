@@ -1,5 +1,10 @@
 ### CC Adi 13.57-58
 
+> সপ্ত মিশ্র তাঁর পুত্র — সপ্ত ঋষীশ্বর ।
+> কংসারি, পরমানন্দ, পদ্মনাভ, সর্বেশ্বর ॥৫৭॥
+> জগন্নাথ, জনার্দন, ত্রৈলোক্যনাথ ।
+> নদীয়াতে গঙ্গাবাস কৈল জগন্নাথ ॥৫৮॥
+
 sapta miśra tāṅra putra--sapta ṛṣīśvara
 kaṁsāri, paramānanda, padmanābha, sarveśvara
 jagannātha, janārdana, trailokyanātha

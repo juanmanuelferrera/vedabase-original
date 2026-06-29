@@ -1,5 +1,8 @@
 ### CC Antya 15.50
 
+> কৃষ্ণে দেখি’ এই সব করেন নমস্কার ।
+> কৃষ্ণগমন পুছে তারে করিয়া নির্ধার ॥৫০॥
+
 kṛṣṇe dekhi' ei saba karena namaskāra
 
 kṛṣṇa-gamana puche tāre kariyā nirdhāra

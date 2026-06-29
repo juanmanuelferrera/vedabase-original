@@ -1,5 +1,8 @@
 ### SB 3.19.19
 
+> द्यौर्नष्टभगणाभ्रौघैः सविद्युत्स्तनयित्नुभिः ।
+> वर्षद्भिः पूयकेशासृग् विण्मूत्रास्थीनि चासकृत् ॥१९॥
+
 > dyaur naṣṭa-bhagaṇābhraughaiḥ
 > sa-vidyut-stanayitnubhiḥ
 > varṣadbhiḥ pūya-keśāsṛg-

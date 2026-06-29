@@ -1,5 +1,8 @@
 ### CC Antya 18.39
 
+> প্রভুর বিচ্ছেদে কার দেহে নাহি প্রাণ ।
+> অনিষ্টাশঙ্কা বিনা কার মনে নাহি আর ॥৩৯॥
+
 > prabhura vicchede kāra dehe nāhi prāṇa
 > aniṣṭā-śaṅkā vinā kāra mane nāhi āna
 

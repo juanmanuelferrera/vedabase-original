@@ -1,5 +1,8 @@
 ### CC Madhya 13.11
 
+> উচ্চ দৃঢ় তুলী সব পাতি’ স্থানে স্থানে ৷
+> এক তুলী হৈতে ত্বরায় আর তুলীতে আনে ॥১১॥
+
 > ucca dṛḍha tulī saba pāti' sthāne sthāne
 > eka tulī haite tvarāya āra tulīte āne
 

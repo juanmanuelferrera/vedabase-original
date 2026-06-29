@@ -1,5 +1,8 @@
 ### CC Adi 10.90
 
+> শাস্ত্রদৃষ্ট্যে কৈল লুপ্ততীর্থের উদ্ধার ।
+> বৃন্দাবনে কৈল শ্রীমূর্তি-সেবার প্রচার ॥৯০॥
+
 > śāstra-dṛṣṭye kaila lupta-tīrthera uddhāra
 > vṛndāvane kaila śrīmūrti-sevāra pracāra
 

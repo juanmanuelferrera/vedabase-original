@@ -1,5 +1,8 @@
 ### CC Antya 5.19
 
+> কাষ্ঠ-পাষাণ-স্পর্শে হয় যৈছে ভাব ।
+> তরুণী-স্পর্শে রামানন্দের তৈছে ‘স্বভাব’ ॥১৯॥
+
 > kāṣṭha-pāṣāṇa-sparśe haya yaiche bhāva
 > taruṇī-sparśe rāmānandera taiche 'svabhāva'
 

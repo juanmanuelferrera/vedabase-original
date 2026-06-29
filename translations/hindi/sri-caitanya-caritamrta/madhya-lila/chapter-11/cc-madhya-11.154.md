@@ -1,5 +1,8 @@
 ### CC Madhya 11.154
 
+> তৃণ দুইগুচ্ছ মুরারি দশনে ধরিয়া ।
+> মহাপ্রভু আগে গেলা দৈন্যাধীন হঞা ॥১৫৪॥
+
 > tṛṇa dui-guccha murāri daśane dhariyā
 > mahāprabhu āge gelā dainyādhīna hañā
 

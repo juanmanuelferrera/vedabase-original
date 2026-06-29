@@ -1,5 +1,8 @@
 ### CC Adi 10.85
 
+> তাঁর মধ্যে রূপ-সনাতন — বড় শাখা ।
+> অনুপম, জীব, রাজেন্দ্রাদি উপশাখা ॥৮৫॥
+
 > tāṅra madhye rūpa-sanātana--baḍa śākhā
 > anupama, jīva, rājendrādi upaśākhā
 

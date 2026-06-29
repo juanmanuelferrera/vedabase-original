@@ -1,5 +1,8 @@
 ### CC Madhya 4.79
 
+> একদিনের উদ্যোগে ঐছে মহোত্সব কৈল ।
+> গোপাল-প্রভাবে হয়, অন্যে না জানিল ॥৭৯॥
+
 > eka-dinera udyoge aiche mahotsava kaila
 > gopāla-prabhāve haya, anye nā jānila
 

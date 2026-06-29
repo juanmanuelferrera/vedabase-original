@@ -1,5 +1,8 @@
 ### SB 3.2.34
 
+> शरच्छशिकरैर्मृष्टं मानयन्रजनीमुखम् ।
+> गायन्कलपदं रेमे स्त्रीणां मण्डलमण्डनः ॥३४॥
+
 > śarac-chaśi-karair mṛṣṭaṁ
 > mānayan rajanī-mukham
 > gāyan kala-padaṁ reme

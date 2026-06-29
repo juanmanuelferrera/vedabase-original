@@ -1,5 +1,8 @@
 ### CC Madhya 3.84
 
+> শুনি’ নিত্যানন্দের কথা ঠাকুর অদ্বৈত ।
+> কহেন তাঁহারে কিছু পাইয়া পিরীত ॥৮৪॥
+
 śuni' nityānandera kathā ṭhākura advaita
 
 kahena tāṅhāre kichu pāiyā pirīta

@@ -1,5 +1,8 @@
 ### CC Madhya 13.60
 
+> রাজার তুচ্ছ সেবা দেখি’ প্রভুর তুষ্ট মন ।
+> সেই ত’ প্রসাদে পাইল ‘রহস্য-দর্শন’ ॥৬০॥
+
 > rājāra tuccha sevā dekhi' prabhura tuṣṭa mana
 > sei ta' prasāde pāila 'rahasya-darśana'
 

@@ -1,5 +1,8 @@
 ### CC Madhya 3.47
 
+> কোমল নিম্বপত্র সহ ভাজা বার্তাকী ।
+> পটোল-ফুলবড়ি-ভাজা, কুষ্মাণ্ড-মানচাকি ॥৪৭॥
+
 > komala nimba-patra saha bhājā vārtākī
 > paṭola-phula-baḍi-bhājā, kuṣmāṇḍa-mānacāki
 

@@ -1,5 +1,10 @@
 ### CC Antya 3.179
 
+> এবংব্রতঃ স্বপ্রিয়নামকীর্ত্যা
+> জাতানুরাগো দ্রুতচিত্ত উচ্চৈঃ ।
+> হসত্যথো রোদিতি রৌতি গায়-
+> ত্যুন্মাদবন্নৃত্যতি লোকবাহ্যঃ ॥১৭৯॥
+
 > evaṁ-vrataḥ sva-priya-nāma-kīrtyā
 > jātānurāgo druta-citta uccaiḥ
 > hasaty atho roditi rauti gāyaty

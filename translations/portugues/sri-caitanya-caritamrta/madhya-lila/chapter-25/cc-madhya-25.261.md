@@ -1,5 +1,8 @@
 ### CC Madhya 25.261
 
+> পঞ্চবিংশে — কাশীবাসীরে বৈষ্ণবকরণ ।
+> কাশী হৈতে পুনঃ নীলাচলে আগমন ॥২৬১॥
+
 pañcaviṁśe-kāśī-vāsīre vaiṣṇava-karaṇa
 
 kāśī haite punaḥ nīlācale āgamana

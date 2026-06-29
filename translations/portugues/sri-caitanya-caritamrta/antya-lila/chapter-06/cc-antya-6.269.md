@@ -1,5 +1,8 @@
 ### CC Antya 6.269
 
+> তবে রঘুনাথ করি’ অনেক যতন ।
+> মাসে দুইদিন কৈলা প্রভুর নিমন্ত্রণ ॥২৬৯॥
+
 tabe raghunātha kari' aneka yatana
 
 māse dui-dina kailā prabhura nimantraṇa

@@ -1,5 +1,8 @@
 ### CC Madhya 16.203
 
+> ‘প্ৰভু আইলা’ বলি’ লোকে হৈল কোলাহল ।
+> মনুষ্য ভরিল সব, কিবা জল, স্থল ॥২০৩॥
+
 > 'prabhu āilā' bali' loke haila kolāhala
 > manuṣya bharila saba, kibā jala, sthala
 

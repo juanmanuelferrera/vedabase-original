@@ -1,5 +1,8 @@
 ### CC Adi 11.32
 
+> মহেশ পণ্ডিত — ব্রজের উদার গোপাল ।
+> ঢক্কাবাদ্যে নৃত্য করে প্রেমে মাতোয়াল ॥৩২॥
+
 > maheśa paṇḍita—vrajera udāra gopāla
 > ḍhakkā-vādye nṛtya kare preme mātoyāla
 

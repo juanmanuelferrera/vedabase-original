@@ -1,5 +1,8 @@
 ### CC Antya 10.55
 
+> গোবিন্দ-ঠাঞি রাঘব ঝালি সমর্পিলা ।
+> ভোজন-গৃহের কোণে ঝালি গোবিন্দ রাখিলা ॥৫৫॥
+
 > govinda-ṭhāñi rāghava jhāli samarpilā
 > bhojana-gṛhera koṇe jhāli govinda rākhilā
 

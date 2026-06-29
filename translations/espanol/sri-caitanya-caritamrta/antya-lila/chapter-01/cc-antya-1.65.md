@@ -1,5 +1,8 @@
 ### CC Antya 1.65
 
+> আর দিন প্রভু রূপে মিলিয়া বসিলা  ।
+> সর্বজ্ঞ-শিরোমণি প্রভু কহিতে লাগিলা ॥৬৫॥
+
 > āra dina prabhu rūpe miliyā vasilā
 > sarvajña-śiromaṇi prabhu kahite lāgilā
 

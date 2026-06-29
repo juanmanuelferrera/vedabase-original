@@ -1,5 +1,8 @@
 ### CC Antya 20.111
 
+> তার মধ্যে ‘বাঙ্গাল’-কবির নাটক-উপেক্ষণ  ।
+> স্বরূপ-গোসাঞি কৈলা বিগ্রহের মহিমা-স্থাপন ॥১১১॥
+
 > tāra madhye 'bāṅgāla'-kavira nāṭaka-upekṣaṇa
 > svarūpa-gosāñi kailā vigrahera mahimā-sthāpana
 

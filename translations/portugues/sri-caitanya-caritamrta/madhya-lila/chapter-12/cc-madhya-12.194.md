@@ -1,5 +1,8 @@
 ### CC Madhya 12.194
 
+> তোমার সিদ্ধান্ত-সঙ্গ করে যেই জনে ।
+> ‘এক’ বস্তু বিনা সেই ‘দ্বিতীয়’ নাহি মানে ॥১৯৪॥
+
 tomāra siddhānta-saṅga kare yei jane
 
 'eka' vastu vinā sei 'dvitīya' nāhi māne

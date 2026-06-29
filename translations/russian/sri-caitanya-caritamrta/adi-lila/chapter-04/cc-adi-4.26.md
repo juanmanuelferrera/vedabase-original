@@ -1,5 +1,8 @@
 ### CC Adi 4.26
 
+> প্রিয়া যদি মান করি’ করয়ে ভর্ৎসন ।
+> বেদস্তুতি হৈতে হরে সেই মোর মন ॥২৬॥
+
 > priyā yadi māna kari' karaye bhartsana
 > veda-stuti haite hare sei mora mana
 

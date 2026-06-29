@@ -1,5 +1,8 @@
 ### CC Madhya 20.32
 
+> গোসাঞি কহে, — “কেহ দ্রব্য লইবে আমা মারি’ ।
+> আমার প্রাণ রক্ষা কর দ্রব্য অঙ্গীকরি’ ।।” ॥ ৩২ ॥
+
 > gosāñi kahe,—"keha dravya la-ibe āmā māri'
 > āmāra prāṇa rakṣā kara dravya aṅgīkari' "
 

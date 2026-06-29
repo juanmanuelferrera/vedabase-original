@@ -1,5 +1,8 @@
 ### CC Madhya 23.5
 
+> শুদ্ধসত্ত্ববিশেষাত্মা প্রেম-সূর্যাংশু-সাম্যভাক্ ।
+> রুচিভিশ্চিত্তম সৃণ্যকৃদসৌ ভাব উচ্যতে ॥৫॥
+
 śuddha-sattva-viśeṣātmā
 prema-sūryāṁśu-sāmya-bhāk
 rucibhiś citta-masṛṇya-

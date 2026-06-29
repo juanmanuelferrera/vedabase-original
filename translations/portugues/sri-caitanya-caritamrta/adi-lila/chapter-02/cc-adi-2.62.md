@@ -1,5 +1,8 @@
 ### CC Adi 2.62
 
+> এইমতে নানারূপ করে পূর্বপক্ষ ।
+> তাহারে নির্জিতে ভাগবত-পদ্য দক্ষ ॥৬২॥
+
 ei-mate nānā-rūpa kare pūrva-pakṣa
 tāhāre nirjite bhāgavata-padya dakṣa
 

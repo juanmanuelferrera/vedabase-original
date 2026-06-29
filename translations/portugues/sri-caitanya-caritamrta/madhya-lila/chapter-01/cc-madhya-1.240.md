@@ -1,5 +1,8 @@
 ### CC Madhya 1.240
 
+> লীলাস্থল দেখি’ প্রেমে হইলা অস্থির ।
+> বলভদ্র কৈল তাঁরে মথুরার বাহির ॥২৪০॥
+
 līlā-sthala dekhi' preme ha-ilā asthira
 
 balabhadra kaila tāṅre mathurāra bāhira

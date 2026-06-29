@@ -1,5 +1,8 @@
 ### CC Antya 1.140
 
+> রায় কহে, — “কহ দেখি প্রেমোৎপত্তি-কারণ ?
+> পূর্বরাগ, বিকার, চেষ্টা, কামলিখন?” ॥১৪০॥
+
 rāya kahe,--"kaha dekhi premotpatti-kāraṇa?
 
 pūrva-rāga, vikāra, ceṣṭā, kāma-likhana?"

@@ -1,5 +1,8 @@
 ### CC Adi 1.31
 
+> সকল বৈষ্ণব, শুন করি’ একমন ।
+> চৈতন্য-কৃষ্ণের শাস্ত্র-মত-নিরূপণ ॥৩১॥
+
 > sakala vaiṣṇava, śuna kari' eka-mana
 > caitanya-kṛṣṇera śāstra-mata-nirūpaṇa
 

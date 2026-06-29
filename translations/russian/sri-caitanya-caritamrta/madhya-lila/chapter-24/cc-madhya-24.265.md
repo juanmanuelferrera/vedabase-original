@@ -1,5 +1,8 @@
 ### CC Madhya 24.265
 
+> যথা-স্থানে নারদ গেলা, ব্যাধ ঘরে আইল ।
+> নারদের উপদেশে সকল করিল ॥২৬৫॥
+
 > yathā-sthāne nārada gelā, vyādha ghare āila
 > nāradera upadeśe sakala karila
 

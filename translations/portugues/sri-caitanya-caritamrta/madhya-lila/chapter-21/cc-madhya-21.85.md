@@ -1,5 +1,8 @@
 ### CC Madhya 21.85
 
+> কোন ব্রহ্মাণ্ড শতকোটি, কোন লক্ষকোটি ।
+> কোন নিযুতকোটি, কোন কোটি-কোটি ॥৮৫॥
+
 kona brahmāṇḍa śata-koṭi, kona lakṣa-koṭi
 
 kona niyuta-koṭi, kona koṭi-koṭi

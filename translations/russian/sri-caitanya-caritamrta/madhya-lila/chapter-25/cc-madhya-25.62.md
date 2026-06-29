@@ -1,5 +1,8 @@
 ### CC Madhya 25.62
 
+> মাধব-সৌন্দর্য দেখি’ আবিষ্ট হইলা ।
+> অঙ্গনেতে আসি’ প্রেমে নাচিতে লাগিলা ॥৬২॥
+
 > mādhava-saundarya dekhi' āviṣṭa ha-ilā
 > aṅganete āsi' preme nācite lāgilā
 

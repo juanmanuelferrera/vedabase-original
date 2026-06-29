@@ -1,5 +1,7 @@
 ### SB 5.9.4
 
+> स चापि तदु ह पितृसन्निधावेवासध्रीचीनमिव स्म करोति छन्दांस्यध्यापयिष्यन्सहव्याहृतिभिः सप्रणवशिरस्त्रिपदीं सावित्रीं ग्रैष्मवासन्तिकान्मासानधीयानमप्यसमवेतरूपंग्राहयामास ॥४॥
+
 > tasyāpi ha vā ātmajasya vipraḥ putra-snehānubaddha-manā āsamāvartanāt saṁskārān yathopadeśaṁ vidadhāna upanītasya ca punaḥ śaucācamanādīn karma-niyamān anabhipretān api samaśikṣayad anuśiṣṭena hi bhāvyaṁ pituḥ putreṇeti.
 
 *tasya*—de él; *api ha vā*—ciertamente; *ātma-jasya*—de su hijo; *vipraḥ*—el padre *brāhmaṇa* de Jaḍa Bharata (Bharata el loco, el demente); *putra-sneha-anubaddha-manāḥ*—que se sentía obligado por cariño hacia su hijo; *ā-sama-āvartanāt*—hasta completar el *brahmacarya-āśrama*; *saṁskārān*—los procesos purificatorios; *yathā-upadeśam*—como se recomiendan en los *śāstras*; *vidadhānaḥ*—llevar a cabo; *upanītasya*—del que tiene un cordón sagrado; *ca*—también; *punaḥ*—de nuevo; *śauca-ācamana-ādīn*—prácticas de limpieza, lavarse la boca, las piernas, las manos, etc.; *karma-niyamān*—los principios regulativos de las actividades fruitivas; *anabhipretān api*—aunque no deseados por Jaḍa Bharata; *samaśikṣayat*—enseñó; *anuśiṣṭena*—enseñó a seguir los principios regulativos; *hi*—en verdad; *bhāvyam*—debe ser; *pituḥ*—del padre; *putreṇa*—al hijo; *iti*—así.

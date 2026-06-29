@@ -1,5 +1,10 @@
 ### CC Madhya 21.130
 
+> এই চান্দের বড় নাট, পসারি’ চান্দের হাট,
+> বিনিমূলে বিলায় নিজামৃত ।
+> কাহোঁ স্মিত-জ্যোত্স্নামৃতে, কাঁহারে অধরামৃতে,
+> সব লোক করে আপ্যায়িত ॥১৩০॥
+
 > ei cāndera baḍa nāṭa, pasāri' cāndera hāṭa,
 > vinimūle vilāya nijāmṛta
 > kāhoṅ smita-jyotsnāmṛte, kāṅhāre adharāmṛte,

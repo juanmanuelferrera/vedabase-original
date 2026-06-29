@@ -1,5 +1,8 @@
 ### CC Madhya 8.263
 
+> ‘কৃষ্ণতত্ত্ব’, ‘রাধাতত্ত্ব’, ‘প্রেমতত্ত্বসার’ ।
+> ‘রসতত্ত্ব’ ‘লীলাতত্ত্ব’ বিবিধ প্রকার ॥২৬৩॥
+
 > 'kṛṣṇa-tattva', 'rādhā-tattva', 'prema-tattva-sāra'
 > 'rasa-tattva' 'līlā-tattva' vividha prakāra
 

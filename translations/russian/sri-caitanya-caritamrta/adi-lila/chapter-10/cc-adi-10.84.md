@@ -1,5 +1,8 @@
 ### CC Adi 10.84
 
+> অনুপম-বল্লভ, শ্রীরূপ, সনাতন ।
+> এই তিন শাখা বৃক্ষের পশ্চিমে সর্বোত্তম ॥৮৪॥
+
 > anupama-vallabha, śrī-rūpa, sanātana
 > ei tina śākhā vṛkṣera paścime sarvottama
 

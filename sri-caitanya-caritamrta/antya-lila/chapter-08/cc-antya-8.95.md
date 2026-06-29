@@ -1,5 +1,8 @@
 ### CC Antya 8.95
 
+> ঈশ্বর-চরিত্র প্রভুর — বুদ্ধির অগোচর ।
+> যবে যেই করেন, সেই সব — মনোহর ॥৯৫॥
+
 > īśvara-caritra prabhura—buddhira agocara
 > yabe yei karena, sei saba—manohara
 

@@ -1,5 +1,8 @@
 ### CC Madhya 3.179
 
+> শুনিয়া প্ৰভুর এই মধুর বচন ৷
+> শচীপাশ আচার্যাদি করিল গমন ॥১৭৯॥
+
 > śuniyā prabhura ei madhura vacana
 > śacī-pāśa ācāryādi karila gamana
 

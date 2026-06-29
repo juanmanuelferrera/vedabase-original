@@ -1,5 +1,8 @@
 ### CC Madhya 20.317
 
+> ব্রহ্মা, শিব — আজ্ঞাকারী ভক্ত-অবতার ।
+> পালনার্থে বিষ্ণু — কৃষ্ণের স্বরূপ-আকার ॥৩১৭॥
+
 brahmā, śiva--ājñā-kārī bhakta-avatāra
 
 pālanārthe viṣṇu--kṛṣṇera svarūpa-ākāra

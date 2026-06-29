@@ -1,5 +1,8 @@
 ### CC Madhya 16.188
 
+> সেই কহে, — ‘মোরে যদি কৈলা অঙ্গীকার ।
+> এক আজ্ঞা দেহ, — সেবা করি যে তোমার ॥১৮৮॥
+
 > sei kahe,—'more yadi kailā aṅgīkāra
 > eka ājñā deha,—sevā kari ye tomāra
 

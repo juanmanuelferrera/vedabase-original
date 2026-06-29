@@ -1,5 +1,8 @@
 ### SB 3.18.2
 
+> ददर्श तत्राभिजितं धराधरं प्रोन्नीयमानावनिमग्रदंष्ट्रया ।
+> मुष्णन्तमक्ष्णा स्वरुचोऽरुणश्रिया जहास चाहो वनगोचरो मृगः ॥२॥
+
 > dadarśa tatrābhijitaṁ dharā-dharaṁ
 > pronnīyamānāvanim agra-daṁṣṭrayā
 > muṣṇantam akṣṇā sva-ruco 'ruṇa-śriyā

@@ -1,5 +1,8 @@
 ### SB 9.24.5
 
+> करम्भिः शकुनेः पुत्रो देवरातस्तदात्मजः
+> देवक्षत्रस्ततस्तस्य मधुः कुरुवशादनुः ॥५॥
+
 > karambhiḥ śakuneḥ putro
 > devarātas tad-ātmajaḥ
 > devakṣatras tatas tasya

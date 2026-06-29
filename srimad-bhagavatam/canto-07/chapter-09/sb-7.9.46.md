@@ -1,5 +1,10 @@
 ### SB 7.9.46
 
+> मौनव्रतश्रुततपोऽध्ययनस्वधर्म
+> व्याख्यारहोजपसमाधय आपवर्ग्याः
+> प्रायः परं पुरुष ते त्वजितेन्द्रियाणां
+> वार्ता भवन्त्युत न वात्र तु दाम्भिकानाम ॥४६॥
+
 > mauna-vrata-śruta-tapo-'dhyayana-sva-dharma-
 > vyākhyā-raho-japa-samādhaya āpavargyāḥ
 > prāyaḥ paraṁ puruṣa te tv ajitendriyāṇāṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 9.234
 
+> সেই দিন চলি’ আইলা পয়স্বিনী-তীরে ।
+> স্নান করি’ গেলা আদিকেশব-মন্দিরে ॥২৩৪॥
+
 > sei dina cali' āilā payasvinī-tīre
 > snāna kari' gelā ādi-keśava-mandire
 

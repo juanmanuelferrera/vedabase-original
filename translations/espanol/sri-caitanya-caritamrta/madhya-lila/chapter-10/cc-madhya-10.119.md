@@ -1,5 +1,10 @@
 ### CC Madhya 10.119
 
+> হেলোদ্ধূনিত-খেদয়া বিশদয়া প্রোন্মীলদামোদয়া
+> শাম্যচ্ছাস্ত্রবিবাদয়া রসদয়া চিত্তার্পিতোন্মাদয়া ৷
+> শশ্বদ্ভক্তিবিনোদয়া স-মদয়া মাধুর্যমর্যাদয়া
+> শ্রীচৈতন্য দয়ানিধে তব দয়া ভূয়াদমন্দোদয়া ৷৷ ১১৯ ৷৷ ॥১১৯॥
+
 > heloddhūnita-khedayā viśadayā pronmīlad-āmodayā
 > śāmyac-chāstra-vivādayā rasa-dayā cittārpitonmādayā
 > śaśvad-bhakti-vinodayā sa-madayā mādhurya-maryādayā

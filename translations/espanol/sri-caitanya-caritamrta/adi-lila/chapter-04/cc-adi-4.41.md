@@ -1,5 +1,8 @@
 ### CC Adi 4.41
 
+> এইমত ভক্তভাব করি’ অঙ্গীকার ।
+> আপনি আচরি’ ভক্তি করিল প্রচার ॥৪১॥
+
 > ei-mata bhakta-bhāva kari' aṅgīkāra
 > āpani ācari' bhakti karila pracāra
 

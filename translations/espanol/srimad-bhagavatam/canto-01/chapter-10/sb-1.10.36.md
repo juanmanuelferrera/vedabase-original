@@ -1,5 +1,8 @@
 ### SB 1.10.36
 
+> तत्र तत्र ह तत्रत्यैर्हरिः प्रत्युद्यतार्हणः ।
+> सायं भेजे दिशं पश्चाद्गविष्ठो गां गतस्तदा ॥३६॥
+
 > tatra tatra ha tatratyair
 > hariḥ pratyudyatārhaṇaḥ
 > sāyaṁ bheje diśaṁ paścād

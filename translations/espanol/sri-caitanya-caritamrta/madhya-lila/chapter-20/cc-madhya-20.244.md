@@ -1,5 +1,8 @@
 ### CC Madhya 20.244
 
+> সঙ্কর্ষণ, মৎস্যাদিক, — দুই ভেদ তাঁর ।
+> সঙ্কর্ষণ — পুরুষাবতার, লীলাবতার আর ॥২৪৪॥
+
 > saṅkarṣaṇa, matsyādika,--dui bheda tāṅra
 > saṅkarṣaṇa--puruṣāvatāra, līlāvatāra āra
 

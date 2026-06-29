@@ -1,5 +1,8 @@
 ### CC Madhya 20.146
 
+> মুখ্য-গৌণ-বৃত্তি, কিংবা অন্বয়-ব্যতিরেকে ।
+> বেদের প্রতিজ্ঞা কেবল কহয়ে কৃষ্ণকে ॥১৪৬॥
+
 mukhya-gauṇa-vṛtti, kiṁvā anvaya-vyatireke
 
 vedera pratijñā kevala kahaye kṛṣṇake

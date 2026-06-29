@@ -1,5 +1,8 @@
 ### CC Antya 19.84
 
+> “ললিত-লবঙ্গলতা” পদ গাওয়াঞা ।
+> নৃত্য করি’ বুলেন প্রভু নিজগণ লঞা ॥৮৪॥
+
 "lalita-lavaṅga-latā" pada gāoyāñā
 
 nṛtya kari' bulena prabhu nija-gaṇa lañā

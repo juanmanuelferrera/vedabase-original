@@ -1,5 +1,8 @@
 ### CC Madhya 17.182
 
+> তোমারে ‘ভিক্ষা’ দিব — বড় ভাগ্য সে আমার । 
+> তুমি — ঈশ্বর, নাহি তোমার বিধি-ব্যবহার ॥১৮২॥
+
 > tomāre 'bhikṣā' diba—baḍa bhāgya se āmāra
 > tumi—īśvara, nāhi tomāra vidhi-vyavahāra
 

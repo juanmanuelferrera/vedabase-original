@@ -1,5 +1,8 @@
 ### CC Madhya 13.77
 
+> নমো ব্রহ্মণ্যদেবায় গোব্রাহ্মণহিতায় চ ।
+> জগদ্ধিতায় কৃষ্ণায় গোবিন্দায় নমো নমঃ ॥৭৭॥
+
 > namo brahmaṇya-devāya
 > go-brāhmaṇa-hitāya ca
 > jagad-dhitāya kṛṣṇāya

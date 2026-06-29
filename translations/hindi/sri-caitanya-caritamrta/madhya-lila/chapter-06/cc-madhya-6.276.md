@@ -1,5 +1,8 @@
 ### CC Madhya 6.276
 
+> মুক্তি-শব্দ কহিতে মনে হয় ঘৃণা-ত্রাস ।
+> ভক্তি-শব্দ কহিতে মনে হয় ত’ উল্লাস ॥২৭৬॥
+
 > mukti-śabda kahite mane haya ghṛṇā-trāsa
 > bhakti-śabda kahite mane haya ta' ullāsa
 

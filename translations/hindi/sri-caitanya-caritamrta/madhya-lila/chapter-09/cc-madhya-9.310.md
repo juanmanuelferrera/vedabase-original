@@ -1,5 +1,8 @@
 ### CC Madhya 9.310
 
+> তাপী স্নান করি’ আইলা মাহিষ্মতীপুরে ।
+> নানা তীর্থ দেখি তাহাঁ নর্মদার তীরে ॥৩১০॥
+
 > tāpī snāna kari' āilā māhiṣmatī-pure
 > nānā tīrtha dekhi tāhāṅ narmadāra tīre
 

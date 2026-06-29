@@ -1,5 +1,8 @@
 ### CC Madhya 25.137
 
+> ন সাধয়তি মাং যোগো ন সাংখ্যং ধর্ম উদ্ধব ।
+> ন স্বাধ্যায়স্তপস্ত্যাগো যথা ভক্তির্মমোর্জিতা ॥১৩৭॥
+
 > na sādhayati māṁ yogo
 > na sāṅkhyaṁ dharma uddhava
 > na svādhyāyas tapas tyāgo

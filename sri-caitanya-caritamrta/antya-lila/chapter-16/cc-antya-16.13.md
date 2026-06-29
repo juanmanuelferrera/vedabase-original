@@ -1,5 +1,8 @@
 ### CC Antya 16.13
 
+> শূদ্র-বৈষ্ণবের ঘরে যায় ভেট লঞা ।
+> এইমত তাঁর উচ্ছিষ্ট খায় লুকাঞা ॥১৩॥
+
 > śūdra-vaiṣṇavera ghare yāya bheṭa lañā
 > ei-mata tāṅra ucchiṣṭa khāya lukāñā
 

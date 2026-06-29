@@ -1,5 +1,8 @@
 ### CC Antya 9.147
 
+> প্রভুর কৃপা দেখি’ সবার হৈল চমৎকার ।
+> তাহারা বুঝিতে নারে প্রভুর ব্যবহার ॥১৪৭॥
+
 prabhura kṛpā dekhi' sabāra haila camatkāra
 
 tāhārā bujhite nāre prabhura vyavahāra

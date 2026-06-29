@@ -1,5 +1,8 @@
 ### CC Madhya 25.74
 
+> যদ্যপি তোমারে সব ব্রহ্ম-সম ভাসে ।
+> লোকশিক্ষা লাগি’ ঐছে করিতে না আইসে ।।’ ॥ ৭৪ ॥
+
 yadyapi tomāre saba brahma-sama bhāse
 
 loka-śikṣā lāgi' aiche karite nā āise'

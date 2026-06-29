@@ -1,5 +1,8 @@
 ### SB 3.14.6
 
+> ययोत्तानपदः पुत्रो मुनिना गीतयार्भकः ।
+> मृत्योः कृत्वैव मूर्ध्न्यङ्घ्रिमारुरोह हरेः पदम् ॥६॥
+
 > yayottānapadaḥ putro
 > muninā gītayārbhakaḥ
 > mṛtyoḥ kṛtvaiva mūrdhny aṅghrim

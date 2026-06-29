@@ -1,5 +1,8 @@
 ### CC Madhya 17.147
 
+> সেই তিন সঙ্গে চলে, প্রভু নিষেধিল ।
+> দূর হৈতে তিনজনে ঘরে পাঠাইল ॥১৪৭॥
+
 sei tina saṅge cale, prabhu niṣedhila
 
 dūra haite tina-jane ghare pāṭhāila

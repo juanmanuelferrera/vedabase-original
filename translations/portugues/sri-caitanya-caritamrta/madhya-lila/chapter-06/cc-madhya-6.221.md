@@ -1,5 +1,8 @@
 ### CC Madhya 6.221
 
+> বাহিরে প্রভুর তেঁহো পাইল দরশন ।
+> আস্তে-ব্যস্তে আসি’ কৈল চরণ বন্দন ॥২২১॥
+
 bāhire prabhura teṅho pāila daraśana
 āste-vyaste āsi' kaila caraṇa vandana
 

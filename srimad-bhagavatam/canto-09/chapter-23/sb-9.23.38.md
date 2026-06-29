@@ -1,5 +1,8 @@
 ### SB 9.23.38
 
+> अहं बन्ध्यासपत्नी च स्नुषा मे युज्यते कथम
+> जनयिष्यसि यं राज्ञइ तस्येयमुपयुज्यते ॥३८॥
+
 > anvamodanta tad viśve-
 > devāḥ pitara eva ca
 > śaibyā garbham adhāt kāle

@@ -1,5 +1,8 @@
 ### CC Madhya 20.365
 
+> কলিকালে সেই ‘কৃষ্ণাবতার’ নিশ্চয় ।
+> সুদৃঢ় করিয়া কহ, যাউক সংশয় ।।” ॥ ৩৬৫ ॥
+
 kali-kāle sei 'kṛṣṇāvatāra' niścaya
 
 sudṛḍha kariyā kaha, yāuka saṁśaya"

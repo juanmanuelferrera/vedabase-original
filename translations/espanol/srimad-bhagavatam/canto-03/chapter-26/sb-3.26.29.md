@@ -1,5 +1,8 @@
 ### SB 3.26.29
 
+> तैजसात्तु विकुर्वाणाद्बुद्धितत्त्वमभूत्सति ।
+> द्रव्यस्फुरणविज्ञानमिन्द्रियाणामनुग्रहः ॥२९॥
+
 > taijasāt tu vikurvāṇād
 > buddhi-tattvam abhūt sati
 > dravya-sphuraṇa-vijñānam

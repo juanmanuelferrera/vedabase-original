@@ -1,5 +1,7 @@
 ### SB 5.9.8
 
+> स च प्राकृतैर्द्विपदपशुभिरुन्मत्तजडबधिरमूकेत्यभिभाष्यमाणो यदा तदनुरूपाणिप्रभाषते कर्माणि च कार्यमाणः परेच्छया करोति विष्टितो वेतनतो वा याचञ्या यदृच्छया वोपसादितमल्पंबहु मृष्टं कदन्नं वाभ्यवहरति परं नेन्द्रियप्रीतिनिमित्तम्नित्यनिवृत्तनिमित्तस्वसिद्धविशुद्धानुभवानन्दस्वात्मलाभाधिगमः सुखदुःखयोर्द्वन्द्वनिमित्तयोरसम्भावितदेहाभिमानः ॥८॥
+
 > pitary uparate bhrātara enam atat-prabhāva-vidas trayyāṁ vidyāyām eva paryavasita-matayo na para-vidyāyāṁ jaḍa-matir iti bhrātur anuśāsana-nirbandhān nyavṛtsanta.
 
 *pitari uparate*—tras la muerte del padre; *bhrātaraḥ*—los hermanastros; *enam*—a este Bharata (Jaḍa Bharata); *a-tat-prabhāva-vidaḥ*—sin entender lo excelso de su posición; *trayyām*—de los tres *Vedas*; *vidyāyām*—en cuestión de conocimiento de rituales materiales; *eva*—en verdad; *paryavasita*—resolvieron; *matayaḥ*—cuyas mentes; *na*—no; *para-vidyāyām*—en el conocimiento trascendental de la vida espiritual (servicio devocional); *jaḍa-matiḥ*—de inteligencia muy torpe; *iti*—así; *bhrātuḥ*—su hermano (Jaḍa Bharata); *anuśāsana-nirbandhāt*—del esfuerzo por enseñar; *nyavṛtsanta*—cesaron.

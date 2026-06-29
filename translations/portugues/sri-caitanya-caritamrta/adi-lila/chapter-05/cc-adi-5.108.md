@@ -1,5 +1,8 @@
 ### CC Adi 5.108
 
+> দশম শ্লোকের অর্থ কৈল বিবরণ ।
+> একাদশ শ্লোকের অর্থ শুন দিয়া মন ॥১০৮॥
+
 daśama ślokera artha kaila vivaraṇa
 ekādaśa ślokera artha śuna diyā mana
 

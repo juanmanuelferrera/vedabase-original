@@ -1,5 +1,8 @@
 ### CC Madhya 20.232
 
+> পদ্মনাভ — শঙ্খপদ্মচক্রগদাকর ।
+> দামোদর — পদ্মচক্রগদাশঙ্খধর ॥২৩২॥
+
 padmanābha--śaṅkha-padma-cakra-gadā-kara
 
 dāmodara--padma-cakra-gadā-śaṅkha-dhara

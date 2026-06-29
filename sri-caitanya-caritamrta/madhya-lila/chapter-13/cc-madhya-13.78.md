@@ -1,5 +1,10 @@
 ### CC Madhya 13.78
 
+> জয়তি জয়তি দেবো দেবকীনন্দনোঽসৌ
+> জয়তি জয়তি কৃষ্ণো বৃষ্ণিবংশপ্রদীপঃ ।
+> জয়তি জয়তি মেঘশ্যামলঃ কোমলাঙ্গো
+> জয়তি জয়তি পৃথ্বীভারনাশো মুকুন্দঃ ॥৭৮॥
+
 > jayati jayati devo devakī-nandano 'sau
 > jayati jayati ko vṛṣṇi-vaṁśa-pradīpaḥ
 > jayati jayati megha-śyāmalaḥ komalāṅgo

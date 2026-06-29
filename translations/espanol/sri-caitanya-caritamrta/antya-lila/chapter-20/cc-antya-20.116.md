@@ -1,5 +1,8 @@
 ### CC Antya 20.116
 
+> নবমে — গোপীনাথ-পট্টনায়ক-মোচন ।
+> ত্রিজগতের লোক প্রভুর পাইল দরশন ॥১১৬॥
+
 > navame--gopīnātha-paṭṭanāyaka-mocana
 > trijagatera loka prabhura pāila daraśana
 

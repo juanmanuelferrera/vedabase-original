@@ -1,5 +1,8 @@
 ### CC Madhya 6.168
 
+> বেদ না মানিয়া বৌদ্ধ হয় ত’ নাস্তিক ।
+> বেদাশ্রয় নাস্তিক্য-বাদ বৌদ্ধকে অধিক ॥১৬৮॥
+
 > veda nā māniyā bauddha haya ta' nāstika
 > vedāśraya nāstikya-vāda bauddhake adhika
 

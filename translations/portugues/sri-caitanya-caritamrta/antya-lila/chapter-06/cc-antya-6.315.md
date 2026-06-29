@@ -1,5 +1,8 @@
 ### CC Antya 6.315
 
+> প্রসাদান্ন পসারির যত না বিকায় ।
+> দুই-তিন দিন হৈলে ভাত সড়ি’ যায় ॥৩১৫॥
+
 prasādānna pasārira yata nā vikāya
 
 dui-tina dina haile bhāta saḍi' yāya

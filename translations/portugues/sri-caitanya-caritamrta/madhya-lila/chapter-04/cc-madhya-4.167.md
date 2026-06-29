@@ -1,5 +1,8 @@
 ### CC Madhya 4.167
 
+> এই মত চন্দন দেয় প্রত্যহ ঘষিয়া ।
+> পরায় সেবক সব আনন্দ করিয়া ॥১৬৭॥
+
 ei mata candana deya pratyaha ghaṣiyā
 parāya sevaka saba ānanda kariyā
 

@@ -1,5 +1,10 @@
 ### CC Adi 13.107
 
+> কেবা আসে কেবা যায়, কেবা নাচে কেবা গায়,
+> সম্ভালিতে নারে কার বোল ।
+> খণ্ডিলেক দুঃখ-শোক, প্রমোদপূরিত লোক,
+> মিশ্র হৈলা আনন্দে বিহ্বল ॥১০৭॥
+
 > kebā āse kebā yāya, kebā nāce kebā gāya,
 > sambhālite nāre kāra bola
 > khaṇḍileka duḥkha-śoka, pramoda-pūrita loka,

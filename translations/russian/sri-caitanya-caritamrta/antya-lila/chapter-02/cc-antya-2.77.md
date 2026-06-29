@@ -1,5 +1,8 @@
 ### CC Antya 2.77
 
+> ‘গতবর্ষ পৌষে মোরে করাইল ভোজন ।
+> কভু নাহি খাই ঐছে মিষ্টান্ন-ব্যঞ্জন ॥৭৭॥
+
 > 'gata-varṣa pauṣe more karāila bhojana
 > kabhu nāhi khāi aiche miṣṭānna-vyañjana'
 

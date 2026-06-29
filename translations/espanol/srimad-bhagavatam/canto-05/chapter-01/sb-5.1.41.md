@@ -1,5 +1,8 @@
 ### SB 5.1.41
 
+> भौमं दिव्यं मानुषं च महित्वं कर्मयोगजम
+> यश्चक्रे निरयौपम्यं पुरुषानुजनप्रियः ॥४०॥
+
 > bhaumaṁ divyaṁ mānuṣaṁ ca
 > mahitvaṁ karma-yogajam
 > yaś cakre nirayaupamyaṁ

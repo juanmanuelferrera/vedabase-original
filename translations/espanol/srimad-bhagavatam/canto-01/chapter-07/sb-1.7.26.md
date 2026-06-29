@@ -1,5 +1,8 @@
 ### SB 1.7.26
 
+> किमिदं स्वित्कुतो वेति देवदेव न वेद्म्यहम् ।
+> सर्वतो मुखमायाति तेजः परमदारुणम् ॥२६॥
+
 > kim idaṁ svit kuto veti
 > deva-deva na vedmy aham
 > sarvato mukham āyāti

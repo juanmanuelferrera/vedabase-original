@@ -1,5 +1,8 @@
 ### CC Madhya 17.64
 
+> পরম সন্তোষ প্রভুর বন্য-ভোজনে ।
+> মহাসুখ পান, যে দিন রহেন নির্জনে ॥৬৪॥
+
 > parama santoṣa prabhura vanya-bhojane
 > mahā-sukha pāna, ye dina rahena nirjane
 

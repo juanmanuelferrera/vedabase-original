@@ -1,5 +1,8 @@
 ### CC Antya 12.72
 
+> আমি এই নীলাচলে রহি যে বসিয়া ।
+> পরিশ্রম নাহি মোর তোমা সবার লাগিয়া ॥৭২॥
+
 āmi ei nīlācale rahi ye vasiyā
 
 pariśrama nāhi mora tomā sabāra lāgiyā

@@ -1,5 +1,8 @@
 ### CC Antya 16.114
 
+> অনেক ‘সুকৃতে’ ইহা হঞাছে সম্প্রাপ্তি ।
+> সবে এই আস্বাদ কর করি’ মহাভক্তি ।।” ॥ ১১৪ ॥
+
 > aneka 'sukṛte' ihā hañāche samprāpti
 > sabe ei āsvāda kara kari' mahā-bhakti"
 

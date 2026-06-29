@@ -1,5 +1,8 @@
 ### CC Madhya 8.110
 
+> সাধারণ-প্রেমে দেখি সর্বত্র ‘সমতা’ ।
+> রাধার কুটিল-প্রেমে হইল ‘বামতা’ ॥১১০॥
+
 > sādhāraṇa-preme dekhi sarvatra 'samatā'
 > rādhāra kuṭila-preme ha-ila 'vāmatā'
 

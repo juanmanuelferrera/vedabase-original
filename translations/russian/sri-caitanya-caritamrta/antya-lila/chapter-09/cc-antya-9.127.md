@@ -1,5 +1,8 @@
 ### CC Antya 9.127
 
+> শুনিয়া রাজার বিনয় প্রভুর আনন্দ ।
+> হেনকালে আইলা তথা রায় ভবানন্দ ॥১২৭॥
+
 > śuniyā rājāra vinaya prabhura ānanda
 > hena-kāle āilā tathā rāya bhavānanda
 

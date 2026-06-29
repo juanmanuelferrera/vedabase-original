@@ -1,5 +1,8 @@
 ### CC Madhya 11.197
 
+> সমুদ্রস্নান করি’ প্রভু আইলা নিজ স্থানে ৷
+> অদ্বৈতাদি গেলা সিন্ধু করিবারে স্নানে ৷৷ ১৯৭ ৷৷ ॥১৯৭॥
+
 samudra-snāna kari' prabhu āilā nija sthāne
 advaitādi gelā sindhu karibāre snāne
 

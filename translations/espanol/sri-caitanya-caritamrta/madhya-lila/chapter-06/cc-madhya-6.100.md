@@ -1,5 +1,8 @@
 ### CC Madhya 6.100
 
+> প্রতিযুগে করেন কৃষ্ণ যুগ-অবতার ।
+> তর্কনিষ্ঠ হৃদয় তোমার নাহিক বিচার ॥১০০॥
+
 > pratiyuge karena kṛṣṇa yuga-avatāra
 > tarka-niṣṭha hṛdaya tomāra nāhika vicāra
 

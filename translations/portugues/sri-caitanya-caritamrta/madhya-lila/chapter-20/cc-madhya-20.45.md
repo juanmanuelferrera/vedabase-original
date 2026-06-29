@@ -1,5 +1,8 @@
 ### CC Madhya 20.45
 
+> তবে বারাণসী গোসাঞি আইলা কতদিনে ।
+> শুনি আনন্দিত হইলা প্রভুর আগমনে ॥৪৫॥
+
 tabe vārāṇasī gosāñi āilā kata-dine
 
 śuni ānandita ha-ilā prabhura āgamane

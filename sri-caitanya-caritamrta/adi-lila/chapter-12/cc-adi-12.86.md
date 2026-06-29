@@ -1,5 +1,8 @@
 ### CC Adi 12.86
 
+> শ্রীহর্ষ, রঘুমিশ্র, পণ্ডিত লক্ষ্মীনাথ ।
+> বঙ্গবাটী-চৈতন্যদাস, শ্রীরঘুনাথ ॥৮৬॥
+
 > śrīharṣa, raghu-miśra, paṇḍita lakṣmīnātha
 > baṅgavāṭī-caitanya-dāsa, śrī-raghunātha
 

@@ -1,5 +1,8 @@
 ### CC Madhya 25.13
 
+> ভক্ত-দুঃখ দেখি’ প্রভু মনেতে চিন্তিল ।
+> সন্ন্যাসীর মন ফিরাইতে মন হইল ॥১৩॥
+
 bhakta-duḥkha dekhi' prabhu manete cintila
 sannyāsīra mana phirāite mana ha-ila
 

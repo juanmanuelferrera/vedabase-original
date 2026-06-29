@@ -1,5 +1,8 @@
 ### CC Madhya 20.250
 
+> প্রথমেই করে কৃষ্ণ ‘পুরুষাবতার’ ।
+> সেইত পুরুষ হয় ত্রিবিধ প্রকার ॥২৫০॥
+
 > prathamei kare kṛṣṇa 'puruṣāvatāra'
 > seita puruṣa haya trividha prakāra
 

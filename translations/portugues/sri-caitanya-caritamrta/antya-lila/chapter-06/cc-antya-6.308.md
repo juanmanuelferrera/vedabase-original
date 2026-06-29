@@ -1,5 +1,8 @@
 ### CC Antya 6.308
 
+> আনন্দে রঘুনাথের বাহ্য বিস্মরণ ।
+> কায়মনে সেবিলেন গৌরাঙ্গ-চরণ ॥৩০৮॥
+
 ānande raghunāthera bāhya vismaraṇa
 
 kāya-mane sevilena gaurāṅga-caraṇa

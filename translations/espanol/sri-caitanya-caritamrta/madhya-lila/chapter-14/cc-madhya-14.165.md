@@ -1,5 +1,8 @@
 ### CC Madhya 14.165
 
+> ‘অধিরূঢ় মহাভাব’ — রাধিকার প্রেম ৷
+> বিশুদ্ধ, নির্মল, যৈছে দশবাণ হেম ॥১৬৫॥
+
 > 'adhirūḍha mahābhāva'-rādhikāra prema
 > viśuddha, nirmala, yaiche daśa-vāṇa hema
 

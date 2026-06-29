@@ -1,5 +1,8 @@
 ### CC Antya 3.140
 
+> মাথা মুড়ি’ একবস্ত্রে রহিল সেই ঘরে ।
+> রাত্রি-দিনে তিন-লক্ষ নাম গ্রহণ করে ॥১৪০॥
+
 > māthā muḍi' eka-vastre rahila sei ghare
 > rātri-dine tina-lakṣa nāma grahaṇa kare
 

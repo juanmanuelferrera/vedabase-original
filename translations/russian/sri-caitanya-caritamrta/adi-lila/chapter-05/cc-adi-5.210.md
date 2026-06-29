@@ -1,5 +1,8 @@
 ### CC Adi 5.210
 
+> মো-পাপিষ্ঠে আনিলেন শ্রীবৃন্দাবন ।
+> মো-হেন অধমে দিলা শ্রীরূপ-চরণ ॥২১০॥
+
 > mo-pāpiṣṭhe ānilena śrī-vṛndāvana
 > mo-hena adhame dilā śrī-rūpa-caraṇa
 

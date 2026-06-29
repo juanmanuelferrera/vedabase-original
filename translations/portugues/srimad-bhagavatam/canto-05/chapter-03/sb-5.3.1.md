@@ -1,5 +1,8 @@
 ### SB 5.3.1
 
+> श्रीशुक उवाच
+> नाभिरपत्यकामोऽप्रजया मेरुदेव्या भगवन्तं यज्ञअपुरुषमवहितात्मायजत ॥१॥
+
 śrī-śuka uvāca
 
 *nābhir apatya*-kāmo 'prajayā merudevyā bhagavantaṁ yajña-puruṣam avahitātmāyajata.

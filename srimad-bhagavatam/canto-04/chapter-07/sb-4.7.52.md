@@ -1,5 +1,8 @@
 ### SB 4.7.52
 
+> तस्मिन्ब्रह्मण्यद्वितीये केवले परमात्मनि ।
+> ब्रह्मरुद्रौ च भूतानि भेदेनाज्ञोऽनुपश्यति ॥५२॥
+
 > tasmin brahmaṇy advitīye
 > kevale paramātmani
 > brahma-rudrau ca bhūtāni

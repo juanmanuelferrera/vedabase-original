@@ -1,5 +1,10 @@
 ### CC Madhya 8.93
 
+> ন পারয়েঽহং নিরবদ্যসংযুজাং
+> স্বসাধুকৃত্যং বিবুধায়ুষাপি বঃ ৷
+> যা মাভজন্ দুর্জয়-গেহশৃঙ্খলাঃ
+> সংবৃশ্চ্য তদ্বঃ প্ৰতিযাতু সাধুনা ৷৷ ৯৩ ৷৷ ॥৯৩॥
+
 > na pāraye 'haṁ niravadya-saṁyujāṁ
 > sva-sādhu-kṛtyaṁ vibudhāyuṣāpi vaḥ
 > yā mābhajan durjara-geha-śṛṅkhalāḥ

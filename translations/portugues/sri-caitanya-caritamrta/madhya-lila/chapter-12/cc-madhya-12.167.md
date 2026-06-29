@@ -1,5 +1,8 @@
 ### CC Madhya 12.167
 
+> প্রভু কহে, — মোরে দেহ’ লাফ্রা-ব্যঞ্জনে ।
+> পিঠা-পানা, অমৃত-গুটিকা দেহ’ ভক্তগণে ॥১৬৭॥
+
 prabhu kahe,-more deha' lāphrā-vyañjane
 
 piṭhā-pānā, amṛta-guṭikā deha' bhakta-gaṇe

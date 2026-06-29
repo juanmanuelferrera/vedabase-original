@@ -1,5 +1,8 @@
 ### CC Adi 16.26
 
+> বৃন্দাবনদাস ইহা করিয়াছেন বিস্তার ।
+> স্ফুট নাহি করে দোষ-গুণের বিচার ॥২৬॥
+
 > vṛndāvana-dāsa ihā kariyāchena vistāra
 > sphuṭa nāhi kare doṣa-guṇera vicāra
 

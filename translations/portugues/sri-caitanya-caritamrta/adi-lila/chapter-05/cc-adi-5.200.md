@@ -1,5 +1,8 @@
 ### CC Adi 5.200
 
+> জয় জয় নিত্যানন্দ, নিত্যানন্দ-রাম ।
+> যাঁহার কৃপাতে পাইনু বৃন্দাবন-ধাম ॥২০০॥
+
 jaya jaya nityānanda, nityānanda-rāma
 
 yāṅhāra kṛpāte pāinu vṛndāvana-dhāma

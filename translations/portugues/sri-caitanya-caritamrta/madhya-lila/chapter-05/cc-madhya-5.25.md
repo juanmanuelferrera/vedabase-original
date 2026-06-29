@@ -1,5 +1,8 @@
 ### CC Madhya 5.25
 
+> বড়বিপ্ৰ কহে, — “তুমি না কর সংশয় ।
+> তোমাকে কন্যা দিব আমি, করিল নিশ্চয় ।।” ॥ ২৫ ॥
+
 baḍa-vipra kahe,--"tumi nā kara saṁśaya
 
 tomāke kanyā diba āmi, karila niścaya"

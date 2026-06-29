@@ -1,5 +1,8 @@
 ### SB 6.14.25
 
+> लोकपालैरपि प्रार्थ्याः साम्राज्यैश्वर्यसम्पदः
+> न नन्दयन्त्यप्रजं मां क्षुत्तृट्काममिवापरे ॥२५॥
+
 > loka-pālair api prārthyāḥ
 > sāmrājyaiśvarya-sampadaḥ
 > na nandayanty aprajaṁ māṁ

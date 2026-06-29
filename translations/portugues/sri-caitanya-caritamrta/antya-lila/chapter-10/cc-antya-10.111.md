@@ -1,5 +1,8 @@
 ### CC Antya 10.111
 
+> ধরিতে ধরিতে ঘরের ভরিল এক কোণ ।
+> শত-জনের ভক্ষ্য যত হৈল সঞ্চয়ন ॥১১১॥
+
 dharite dharite gharera bharila eka koṇa
 
 śata-janera bhakṣya yata haila sañcayana

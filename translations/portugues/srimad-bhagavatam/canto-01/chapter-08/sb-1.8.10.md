@@ -1,5 +1,8 @@
 ### SB 1.8.10
 
+> अभिद्रवति मामीश शरस्तप्तायसो विभो ।
+> कामं दहतु मां नाथ मा मे गर्भो निपात्यताम् ॥१०॥
+
 abhidravati mām īśa
 śaras taptāyaso vibho
 kāmaṁ dahatu māṁ nātha

@@ -1,5 +1,8 @@
 ### CC Madhya 20.406
 
+> শ্রীরূপ-রঘুনাথ-পদে যার আশ ।
+> চৈতন্যচরিতামৃত কহে কৃষ্ণদাস ॥৪০৬॥
+
 śrī-rūpa-raghunātha pade yāra āśa
 
 caitanya-caritāmṛta kahe kṛṣṇadāsa

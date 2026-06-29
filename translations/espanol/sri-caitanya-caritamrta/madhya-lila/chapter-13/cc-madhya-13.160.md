@@ -1,5 +1,8 @@
 ### CC Madhya 13.160
 
+> ময়ি ভক্তির্হি ভূতানামমৃতত্বায় কল্পতে ।
+> দিষ্ট্যা যদাসীন্মৎস্নেহো ভবতীনাং মদাপনঃ ॥১৬০॥
+
 > mayi bhaktir hi bhūtānām
 > amṛtatvāya kalpate
 > diṣṭyā yad āsīn mat-sneho

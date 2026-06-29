@@ -1,5 +1,8 @@
 ### SB 3.22.19
 
+> अतो भजिष्ये समयेन साध्वीं यावत्तेजो बिभृयादात्मनो मे ।
+> अतो धर्मान्पारमहंस्यमुख्यान्शुक्लप्रोक्तान्बहु मन्येऽविहिंस्रान् ॥१९॥
+
 > ato bhajiṣye samayena sādhvīṁ
 > yāvat tejo bibhṛyād ātmano me
 > ato dharmān pāramahaṁsya-mukhyān

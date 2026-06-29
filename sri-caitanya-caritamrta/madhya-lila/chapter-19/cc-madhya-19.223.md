@@ -1,5 +1,8 @@
 ### CC Madhya 19.223
 
+> কান্ধে চড়ে, কান্ধে চড়ায়, করে ক্রীড়া-রণ ।
+> কৃষ্ণে সেবে, কৃষ্ণে করায় আপন-সেবন ॥২২৩॥
+
 > kāndhe caḍe, kāndhe caḍāya, kare krīḍā-raṇa
 > kṛṣṇe seve, kṛṣṇe karāya āpana-sevana!
 

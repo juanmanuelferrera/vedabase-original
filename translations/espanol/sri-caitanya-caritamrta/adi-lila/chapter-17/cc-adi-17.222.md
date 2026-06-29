@@ -1,5 +1,8 @@
 ### CC Adi 17.222
 
+> কাজী কহে, — মোর বংশে যত উপজিবে ।
+> তাহাকে ‘তালাক’ দিব, — কীর্তন না বাধিবে ॥২২২॥
+
 > kājī kahe,--mora vaṁśe yata upajibe
 > tāhāke 'tālāka' diba,--kīrtana nā bādhibe
 

@@ -1,5 +1,10 @@
 ### SB 3.9.15
 
+> यस्यावतारगुणकर्मविडम्बनानि
+> नामानि येऽसुविगमे विवशा गृणन्ति ।
+> तेऽनैकजन्मशमलं सहसैव हित्वा
+> संयान्त्यपावृतामृतं तमजं प्रपद्ये ॥१५॥
+
 > yasyāvatāra-guṇa-karma-viḍambanāni
 > nāmāni ye 'su-vigame vivaśā gṛṇanti
 > te 'naika-janma-śamalaṁ sahasaiva hitvā

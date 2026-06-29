@@ -1,5 +1,8 @@
 ### SB 4.20.29
 
+> भजन्त्यथ त्वामत एव साधवो व्युदस्तमायागुणविभ्रमोदयम् ।
+> भवत्पदानुस्मरणादृते सतां निमित्तमन्यद्भगवन्न विद्महे ॥२९॥
+
 > bhajanty atha tvām ata eva sādhavo
 > vyudasta-māyā-guṇa-vibhramodayam
 > bhavat-padānusmaraṇād ṛte satāṁ

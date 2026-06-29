@@ -1,5 +1,8 @@
 ### CC Madhya 14.175
 
+> আর সাত ভাব আসি’ সহজে মিলয় ।
+> অষ্টভাব-সম্মিলনে ‘মহাভাব’ হয় ॥১৭৫॥
+
 āra sāta bhāva āsi' sahaje milaya
 
 asta-bhāva-sammilane 'mahābhāva' haya

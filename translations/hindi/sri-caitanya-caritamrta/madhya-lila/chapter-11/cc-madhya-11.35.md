@@ -1,5 +1,8 @@
 ### CC Madhya 11.35
 
+> প্রভু কহে, — রায়, দেখিলে কমলনয়ন ?
+> রায় কহে — এবে যাই পাব দরশন ॥৩৫॥
+
 > prabhu kahe,-rāya, dekhile kamala-nayana?
 > rāya kahe-ebe yāi pāba daraśana
 

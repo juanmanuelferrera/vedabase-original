@@ -1,5 +1,7 @@
 ### SB 5.26.6
 
+> यत्र ह वाव भगवान्पितृराजो वैवस्वतः स्वविषयं प्रापितेषु स्वपुरुषैर्जन्तुषु सम्परेतेषुयथाकर्मावद्यं दोषमेवानुल्लङ्घितभगवच्छासनः सगणो दमं धारयति ॥५॥
+
 *yatra ha vāva bhagavān pitṛ*-rājo vaivasvataḥ sva-viṣayaṁ prāpiteṣu sva-puruṣair jantuṣu sampareteṣu yathā-karmāvadyaṁ doṣam evānullaṅghita-bhagavac-chāsanaḥ sagaṇo damaṁ dhārayati.
 
 *yatra*—onde; *ha vāva*—de fato; *bhagavān*—o mais poderoso; *pitṛ-rājaḥ*—Yamarāja, o rei dos pitās; *vaivasvataḥ*—o filho do deus do sol; *sva-viṣayam*—seu próprio reino; *prāpiteṣu*—quando levados a alcançar; *sva-puruṣaiḥ*—por seus próprios mensageiros; *jantuṣu*—os seres humanos; *sampareteṣu*—mortos; *yathā-karma-avadyam*—de acordo com o quanto violaram as regras e regulações da vida condicionada; *doṣam*—a falta; *eva*—certamente; *anullaṅghita-bhagavat-śāsanaḥ*—que nunca transgride a ordem da Suprema Personalidade de Deus; *sagaṇaḥ*—junto com seus seguidores; *damam*—a punição; *dhārayati*—executa.

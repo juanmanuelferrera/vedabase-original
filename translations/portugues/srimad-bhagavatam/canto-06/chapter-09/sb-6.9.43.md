@@ -1,5 +1,7 @@
 ### SB 6.9.43
 
+> अत एव स्वयं तदुपकल्पयास्माकं भगवतः परमगुरोस्तव चरणशतपलाशच्छायांविविधवृजिनसंसारपरिश्रमोपशमनीमुपसृतानां वयं यत्कामेनोपसादिताः ॥४३॥
+
 *ata eva svayaṁ tad upakalpayāsmākaṁ bhagavataḥ parama*-guros tava caraṇa-śata-palāśac-chāyāṁ vividha-vṛjina-saṁsāra-pariśramopaśamanīm upasṛtānāṁ vayaṁ yat-kāmenopasāditāḥ.
 
 *ata eva*—por isso; *svayam*—Vós mesmo; *tat*—isto; *upakalpaya*—por favor providenciai; *asmākam*—de nós; *bhagavataḥ*—da Suprema Personalidade de Deus; *parama-guroḥ*—o mestre espiritual supremo; *tava*—de Vós; *caraṇa*—dos pés; *śata-palāśat*—como flores de lótus com centenas de pétalas; *chāyām*—a sombra; *vividha*—várias; *vṛjina*—com posições perigosas; *saṁsāra*—desta vida condicionada; *pariśrama*—a dor; *upaśamanīm*—aliviando; *upasṛtānām*—dos devotos que se refugiaram a Vossos pés de lótus; *vayam*—nós; *yat*—por cujos; *kāmena*—desejos; *upasāditāḥ*—induzidos a aproximarmo-nos (do refúgio de Vossos pés de lótus).

@@ -1,5 +1,8 @@
 ### CC Madhya 16.191
 
+> তাহাঁ যাইতে কর তুমি সহায়-প্রকার  ।
+> এই বড় আজ্ঞা, এই বড় উপকার ।।’ ১৯১ ॥১৯১॥
+
 tāhāṅ yāite kara tumi sahāya-prakāra
 
 ei baḍa ājñā, ei baḍa upakāra'

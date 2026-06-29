@@ -1,5 +1,8 @@
 ### CC Antya 1.68
 
+> এত কহি’ মহাপ্রভু মধ্যাহ্নে চলিলা ।
+> রূপ-গোসাঞি মনে কিছু বিস্ময় হইলা ॥৬৮॥
+
 > eta kahi' mahāprabhu madhyāhne calilā
 > rūpa-gosāñi mane kichu vismaya ha-ilā
 

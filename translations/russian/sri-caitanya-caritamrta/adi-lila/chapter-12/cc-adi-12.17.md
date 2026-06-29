@@ -1,5 +1,8 @@
 ### CC Adi 12.17
 
+> পঞ্চম বর্ষের বালক কহে সিদ্ধান্তের সার ।
+> শুনিয়া পাইলা আচার্য সন্তোষ অপার ॥১৭॥
+
 > pañcama varṣera bālaka kahe siddhāntera sāra
 > śuniyā pāilā ācārya santoṣa apāra
 

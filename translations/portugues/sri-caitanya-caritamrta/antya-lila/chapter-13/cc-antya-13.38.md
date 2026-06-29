@@ -1,5 +1,8 @@
 ### CC Antya 13.38
 
+> সনাতন-সঙ্গে করিহ বন দরশন ।
+> সনাতনের সঙ্গ না ছাড়িবা একক্ষণ ॥৩৮॥
+
 sanātana-saṅge kariha vana daraśana
 
 sanātanera saṅga nā chāḍibā eka-kṣaṇa

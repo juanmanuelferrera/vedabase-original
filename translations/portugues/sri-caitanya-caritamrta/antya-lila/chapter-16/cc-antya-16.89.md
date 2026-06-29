@@ -1,5 +1,8 @@
 ### CC Antya 16.89
 
+> ভোগ সরিলে জগন্নাথের সেবকগণ ।
+> প্রসাদ লঞা প্রভু-ঠাঞি কৈল আগমন ॥৮৯॥
+
 bhoga sarile jagannāthera sevaka-gaṇa
 
 prasāda lañā prabhu-ṭhāñi kaila āgamana

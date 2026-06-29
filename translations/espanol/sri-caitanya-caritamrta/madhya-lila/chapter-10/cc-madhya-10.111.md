@@ -1,5 +1,8 @@
 ### CC Madhya 10.111
 
+> কৃষ্ণরস-তত্ত্ব-বেত্তা, দেহ — প্রেমরূপ ৷
+> সাক্ষাৎ মহাপ্রভুর দ্বিতীয় স্বরূপ ৷৷ ১১১ ৷৷ ॥১১১॥
+
 > kṛṣṇa-rasa-tattva-vettā, deha-prema-rūpa
 > sākṣāt mahāprabhura dvitīya svarūpa
 

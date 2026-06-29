@@ -1,5 +1,8 @@
 ### CC Antya 18.114
 
+> সব রাত্রি সবে বেড়াই তোমারে অন্বেষিয়া ।
+> জালিয়ার মুখে শুনি’ পাইনু আসিয়া ॥১১৪॥
+
 > saba rātri sabe beḍāi tomāre anveṣiyā
 > jāliyāra mukhe śuni' pāinu āsiyā
 

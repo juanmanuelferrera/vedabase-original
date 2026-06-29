@@ -1,5 +1,8 @@
 ### CC Madhya 4.133
 
+> ক্ষীর লহ এই, যার নাম ‘মাধবপুরী’ ।
+> তোমা লাগি’ গোপীনাথ ক্ষীর কৈল চুরি ॥১৩৩॥
+
 > kṣīra laha ei, yāra nāma 'mādhava-purī'
 > tomā lāgi' gopīnātha kṣīra kaila curi
 

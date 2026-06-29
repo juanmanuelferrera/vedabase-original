@@ -1,5 +1,8 @@
 ### CC Madhya 9.77
 
+> দেবস্থানে আসি’ কৈল বিষ্ণু দরশন ৷
+> শ্রী-বৈষ্ণবের সঙ্গে তাহাঁ গোষ্ঠী অনুক্ষণ ৷৷ ৭৭ ৷৷ ॥৭৭॥
+
 deva-sthāne āsi' kaila viṣṇu daraśana
 
 śrī-vaiṣṇavera saṅge tāhāṅ goṣṭhī anukṣaṇa

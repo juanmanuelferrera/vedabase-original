@@ -1,5 +1,8 @@
 ### CC Madhya 12.119
 
+> তবে প্রক্ষালন কৈল শ্রীজগমোহন ।
+> ভোগমন্দির-আদি তবে কৈল প্রক্ষালন ॥১১৯॥
+
 > tabe prakṣālana kaila śrī-jagamohana
 > bhoga-mandira-ādi tabe kaila prakṣālana
 

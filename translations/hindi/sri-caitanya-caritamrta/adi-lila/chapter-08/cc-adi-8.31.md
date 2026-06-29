@@ -1,5 +1,8 @@
 ### CC Adi 8.31
 
+> চৈতন্য-নিত্যানন্দে নাহি এসব বিচার ।
+> নাম লৈতে প্রেম দেন, বহে অশ্রুধার ॥৩১॥
+
 > caitanya-nityānande nāhi esaba vicāra
 > nāma laite prema dena, vahe aśrudhāra
 

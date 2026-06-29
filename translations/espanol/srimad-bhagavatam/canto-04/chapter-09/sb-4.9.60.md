@@ -1,5 +1,8 @@
 ### SB 4.9.60
 
+> महामणिव्रातमये स तस्मिन्भवनोत्तमे ।
+> लालितो नितरां पित्रा न्यवसद्दिवि देववत् ॥६०॥
+
 > mahāmaṇi-vrātamaye
 > sa tasmin bhavanottame
 > lālito nitarāṁ pitrā

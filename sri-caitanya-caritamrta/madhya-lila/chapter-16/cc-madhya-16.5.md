@@ -1,5 +1,8 @@
 ### CC Madhya 16.5
 
+> নীলাদ্রি ছাড়ি’ প্ৰভুর মন অন্যত্র যাইতে ।
+> তোমরা করহ যত্ন তাঁহারে রাখিতে ॥৫॥
+
 > nīlādri chāḍi' prabhura mana anyatra yāite
 > tomarā karaha yatna tāṅhāre rākhite
 

@@ -1,5 +1,8 @@
 ### SB 9.4.27
 
+> गृहेषु दारेषु सुतेषु बन्धुषु द्विपोत्तमस्यन्दनवाजिवस्तुषु
+> अक्षय्यरत्नाभरणाम्बरादिष्वनन्तकोशेष्वकरोदसन्मतिम ॥२७॥
+
 > gṛheṣu dāreṣu suteṣu bandhuṣu
 > dvipottama-syandana-vāji-vastuṣu
 > akṣayya-ratnābharaṇāmbarādiṣv

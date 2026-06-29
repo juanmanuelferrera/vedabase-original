@@ -1,5 +1,8 @@
 ### CC Madhya 9.290
 
+> এত বলি’ প্রভুকে উঠাঞা কৈল আলিঙ্গন ।
+> গলাগলি করি’ দুঁহে করেন ক্রন্দন ॥২৯০॥
+
 > eta bali' prabhuke uthāñā kaila āliṅgana
 > galāgali kari' duṅhe karena krandana
 

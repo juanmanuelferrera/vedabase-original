@@ -1,5 +1,10 @@
 ### CC Antya 14.42
 
+> প্রাপ্তরত্ন হারাঞা, তার গুণ সঙরিয়া,
+> মহাপ্রভু সন্তাপে বিহ্বল ।
+> রায় স্বরূপের কণ্ঠ ধরি’, কহে ‘হাহা হরি হরি’,
+> ধৈর্য গেল, হইলা চপল ॥৪২॥
+
 > prāpta-ratna hārāñā, tāra guṇa saṅariyā,
 > mahāprabhu santāpe vihvala
 > rāya-svarūpera kaṇṭha dhari', kahe 'hāhā hari hari',

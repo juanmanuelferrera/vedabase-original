@@ -1,5 +1,8 @@
 ### SB 7.8.28
 
+> तं श्येनवेगं शतचन्द्रवर्त्मभिश्चरन्तमच्छिद्रमुपर्यधो हरिः
+> कृत्वाट्टहासं खरमुत्स्वनोल्बणं निमीलिताक्षं जगृहे महाजवः ॥२८॥
+
 > taṁ śyena-vegaṁ śata-candra-vartmabhiś
 > carantam acchidram upary-adho hariḥ
 > kṛtvāṭṭa-hāsaṁ kharam utsvanolbaṇaṁ

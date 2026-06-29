@@ -1,5 +1,8 @@
 ### CC Madhya 9.161
 
+> এবে সে জানিনু কৃষ্ণভক্তি সর্বোপরি ।
+> কৃতার্থ করিলে, মোরে কহিলে কৃপা করি’ ॥১৬১॥
+
 > ebe se jāninu kṛṣṇa-bhakti sarvopari
 > kṛtārtha karile, more kahile kṛpā kari'
 

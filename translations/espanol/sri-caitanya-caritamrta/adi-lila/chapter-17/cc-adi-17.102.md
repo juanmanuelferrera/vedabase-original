@@ -1,5 +1,8 @@
 ### CC Adi 17.102
 
+> প্রভু-সঙ্গে নৃত্য করে পরম উল্লাসে ।
+> প্রভু তারে প্রেম দিল, প্রেমরসে ভাসে ॥১০২॥
+
 > prabhu-saṅge nṛtya kare parama ullāse
 > prabhu tāre prema dila, prema-rase bhāse
 

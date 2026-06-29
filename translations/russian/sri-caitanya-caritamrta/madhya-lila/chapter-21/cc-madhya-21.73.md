@@ -1,5 +1,8 @@
 ### CC Madhya 21.73
 
+> যোড়-হাতে ব্রহ্মা-রুদ্রাদি করয়ে স্তবন ।
+> “বড় কৃপা করিলা প্রভু, দেখাইলা চরণ ॥৭৩॥
+
 > yoḍa-hāte brahmā-rudrādi karaye stavana
 > "baḍa kṛpā karilā prabhu, dekhāilā caraṇa
 

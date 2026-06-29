@@ -1,5 +1,8 @@
 ### CC Madhya 15.219
 
+> শ্রদ্ধা করি’ ভট্টাচার্য সব করাইল  ।
+> শুভ্র-পীঠোপরি সূক্ষ্ম বসন পাতিল ॥২১৯॥
+
 > śraddhā kari' bhaṭṭācārya saba karāila
 > śubhra-pīṭhopari sūkṣma vasana pātila
 

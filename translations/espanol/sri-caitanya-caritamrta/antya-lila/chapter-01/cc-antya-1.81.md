@@ -1,5 +1,8 @@
 ### CC Antya 1.81
 
+> হেনকালে প্রভু আইলা তাঁহারে মিলিতে ।
+> চালে শ্লোক দেখি প্রভু লাগিলা পড়িতে ॥৮১॥
+
 > hena-kāle prabhu āilā tāṅhāre milite
 > cāle śloka dekhi prabhu lāgilā paḍite
 

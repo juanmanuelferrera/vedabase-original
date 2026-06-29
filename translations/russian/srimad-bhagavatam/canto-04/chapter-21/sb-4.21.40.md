@@ -1,5 +1,8 @@
 ### SB 4.21.40
 
+> पुमान्लभेतानतिवेलमात्मनः प्रसीदतोऽत्यन्तशमं स्वतः स्वयम् ।
+> यन्नित्यसम्बन्धनिषेवया ततः परं किमत्रास्ति मुखं हविर्भुजाम् ॥४०॥
+
 > pumāḹ labhetānativelam ātmanaḥ
 > prasīdato 'tyanta-śamaṁ svataḥ svayam
 > yan-nitya-sambandha-niṣevayā tataḥ

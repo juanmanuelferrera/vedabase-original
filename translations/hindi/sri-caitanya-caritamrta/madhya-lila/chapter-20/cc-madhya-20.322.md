@@ -1,5 +1,8 @@
 ### CC Madhya 20.322
 
+> শতেক বৎসর হয় ‘জীবন’ ব্রহ্মার ।
+> পঞ্চলক্ষ চারিসহস্র মন্বন্তরাবতার ॥৩২২॥
+
 > śateka vatsara haya jīvana' brahmāra
 > pañca-lakṣa cāri-sahasra manvantarāvatāra
 

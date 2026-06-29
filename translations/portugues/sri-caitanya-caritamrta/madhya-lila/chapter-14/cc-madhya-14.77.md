@@ -1,5 +1,8 @@
 ### CC Madhya 14.77
 
+> কভু এক মণ্ডল, কভু অনেক মণ্ডল ।
+> জলমণ্ডূক-বাদ্যে সবে বাজায় করতাল ॥৭৭॥
+
 kabhu eka maṇḍala, kabhu aneka maṇḍala
 
 jala-maṇḍūka-vādye sabe bājāya karatāla

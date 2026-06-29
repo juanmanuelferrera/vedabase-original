@@ -1,5 +1,8 @@
 ### SB 4.8.28
 
+> विकल्पे विद्यमानेऽपि न ह्यसन्तोषहेतवः ।
+> पुंसो मोहमृते भिन्ना यल्लोके निजकर्मभिः ॥२८॥
+
 > vikalpe vidyamāne 'pi
 > na hy asantoṣa-hetavaḥ
 > puṁso moham ṛte bhinnā

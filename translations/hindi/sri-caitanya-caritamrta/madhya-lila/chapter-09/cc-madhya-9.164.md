@@ -1,5 +1,8 @@
 ### CC Madhya 9.164
 
+> সঙ্গেতে চলিলা ভট্ট, না যায় ভবনে ।
+> তাঁরে বিদায় দিলা প্রভু অনেক যতনে ॥১৬৪॥
+
 > saṅgete calilā bhaṭṭa, nā yāya bhavane
 > tāṅre vidāya dilā prabhu aneka yatane
 

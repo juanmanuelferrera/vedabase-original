@@ -1,5 +1,8 @@
 ### CC Adi 2.25
 
+> ভক্তিযোগে ভক্ত পায় যাঁহার দর্শন ।
+> সূর্য যেন সবিগ্রহ দেখে দেবগণ ॥২৫॥
+
 > bhakti-yoge bhakta pāya yāṅhāra darśana
 > sūrya yena savigraha dekhe deva-gaṇa
 

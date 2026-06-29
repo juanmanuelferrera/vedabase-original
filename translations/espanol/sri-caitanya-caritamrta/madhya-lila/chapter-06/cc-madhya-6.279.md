@@ -1,5 +1,8 @@
 ### CC Madhya 6.279
 
+> লোহাকে যাবৎ স্পর্শি’ হেম নাহি করে ।
+> তাবৎ স্পর্শমণি কেহ চিনিতে না পারে ॥২৭৯॥
+
 > lohāke yāvat sparśi' hema nāhi kare
 > tāvat sparśa-maṇi keha cinite nā pāre
 

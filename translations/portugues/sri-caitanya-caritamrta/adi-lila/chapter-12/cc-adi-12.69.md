@@ -1,5 +1,8 @@
 ### CC Adi 12.69
 
+> ক্রুদ্ধ হঞা স্কন্ধ তারে জল না সঞ্চারে ।
+> জলাভাবে কৃশ শাখা শুকাইয়া মরে ॥৬৯॥
+
 kruddha hañā skandha tāre jala nā sañcāre
 
 jalābhāve kṛśa śākhā śukāiyā mare

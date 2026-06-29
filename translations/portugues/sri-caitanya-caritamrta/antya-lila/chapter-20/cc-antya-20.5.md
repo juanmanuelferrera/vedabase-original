@@ -1,5 +1,8 @@
 ### CC Antya 20.5
 
+> নানা-ভাব উঠে প্রভুর হর্ষ, শোক, রোষ ।
+> দৈন্যোদ্বেগ-আর্তি উৎকণ্ঠা, সন্তোষ ॥৫॥
+
 nānā-bhāva uṭhe prabhura harṣa, śoka, roṣa
 dainyodvega-ārti utkaṇṭhā, santoṣa
 

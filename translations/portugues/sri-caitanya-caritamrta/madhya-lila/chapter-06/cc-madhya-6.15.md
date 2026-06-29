@@ -1,5 +1,8 @@
 ### CC Madhya 6.15
 
+> তাঁহা শুনে লোকে কহে অন্যোন্যে বাত়্  ।
+> এক সন্ন্যাসী আসি’ দেখি’ জগন্নাথ ॥১৫॥
+
 tāṅhā śune loke kahe anyonye bāt
 eka sannyāsī āsi' dekhi' jagannātha
 

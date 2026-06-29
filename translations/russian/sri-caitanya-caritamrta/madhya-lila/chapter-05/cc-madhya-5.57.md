@@ -1,5 +1,8 @@
 ### CC Madhya 5.57
 
+> বিপ্র কহে, — ‘শুন, লোক, মোর নিবেদন ।
+> কবে কি বলিয়াছি, মোর নাহিক স্মরণ ।।’ ॥ ৫৭ ॥
+
 > vipra kahe,—'śuna, loka, mora nivedana
 > kabe ki baliyāchi, mora nāhika smaraṇa'
 

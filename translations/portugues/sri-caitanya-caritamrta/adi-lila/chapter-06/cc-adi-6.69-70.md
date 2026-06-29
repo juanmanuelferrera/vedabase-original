@@ -1,5 +1,10 @@
 ### CC Adi 6.69-70
 
+> তাঁ-সবার কথা রহু, — শ্রীমতী রাধিকা ।
+> সবা হৈতে সকলাংশে পরম-অধিকা ॥৬৯॥
+> তেঁহো যাঁর দাসী হৈঞা সেবেন চরণ ।
+> যাঁর প্রেমগুণে কৃষ্ণ বদ্ধ অনুক্ষণ ॥৭০॥
+
 tāṅ-sabāra kathā rahu,--śrīmatī rādhikā
 sabā haite sakalāṁśe parama-adhikā
 teṅho yāṅra dāsī haiñā sevena caraṇa

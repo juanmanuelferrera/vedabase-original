@@ -1,5 +1,8 @@
 ### CC Madhya 9.351
 
+> দিব্য মহাপ্রসাদ অনেক আনাইল ।
+> পীঠা-পানা আদি জগন্নাথ যে খাইল ॥৩৫১॥
+
 > divya mahā-prasāda aneka ānāila
 > pīṭhā-pānā ādi jagannātha ye khāila
 

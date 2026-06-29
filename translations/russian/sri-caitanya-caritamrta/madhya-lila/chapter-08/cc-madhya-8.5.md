@@ -1,5 +1,8 @@
 ### CC Madhya 8.5
 
+> “শ্রীনৃসিংহ, জয় নৃসিংহ, জয় জয় নৃসিংহ ।
+> প্রহ্লাদেশ জয় পদ্মামুখপদ্মভৃঙ্গ ।।” ॥৫॥
+
 > "śrī-nṛsiṁha, jaya nṛsiṁha, jaya jaya nṛsiṁha
 > prahlādeśa jaya padmā-mukha-padma-bhṛṅga"
 

@@ -1,5 +1,8 @@
 ### CC Antya 1.195
 
+> “কিং কাব্যেন কবেস্তস্য কিং কাণ্ডেন ধনুষ্মতঃ ।
+> পরস্য হৃদয়ে লগ্নং ন ঘূর্ণয়তি যচ্ছিরঃ ।।” ॥ ১৯৫ ॥
+
 kiṁ kāvyena kaves tasya
 kiṁ kāṇḍena dhanuṣ-mataḥ
 parasya hṛdaye lagnaṁ

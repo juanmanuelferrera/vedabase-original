@@ -1,5 +1,8 @@
 ### CC Madhya 14.47
 
+> ইহাঁ জগন্নাথের রথ-চলন-সময় ।
+> গৌড় সব রথ টানে, আগে নাহি যায় ॥৪৭॥
+
 > ihāṅ jagannāthera ratha-calana-samaya
 > gauḍa saba ratha ṭāne, āge nāhi yāya
 

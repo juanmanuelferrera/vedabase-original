@@ -1,5 +1,8 @@
 ### CC Madhya 14.114
 
+> নীলাচলে আইলা পুনঃ ভক্তগণ-সঙ্গে ।
+> দেখিতে উত্কণ্ঠা হেরা-পঞ্চমীর রঙ্গে ॥১১৪॥
+
 nīlācale āilā punaḥ bhakta-gaṇa-saṅge
 
 dekhite utkaṇṭhā herā-pañcamīra raṅge

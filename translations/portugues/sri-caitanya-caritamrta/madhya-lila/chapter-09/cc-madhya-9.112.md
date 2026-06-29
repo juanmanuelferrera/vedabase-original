@@ -1,5 +1,8 @@
 ### CC Madhya 9.112
 
+> আমার ঠাকুর কৃষ্ণ — গোপ, গো-চারক ৷
+> সাধ্বী হঞা কেনে চাহে তাঁহার সঙ্গম ৷৷ ১১২ ৷৷ ॥১১২॥
+
 āmāra ṭhākura kṛṣṇa--gopa, go-cāraka
 sādhvī hañā kene cāhe tāṅhāra saṅgama
 

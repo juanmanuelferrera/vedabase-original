@@ -1,5 +1,8 @@
 ### CC Madhya 9.78
 
+> কুম্ভকর্ণ-কপালে দেখি’ সরোবর ৷
+> শিব-ক্ষেত্রে শিব দেখে গৌরাঙ্গসুন্দর ৷৷ ৭৮ ৷৷ ॥৭৮॥
+
 > kumbhakarṇa-kapāle dekhi' sarovara
 > śiva-kṣetre śiva dekhe gaurāṅga-sundara
 

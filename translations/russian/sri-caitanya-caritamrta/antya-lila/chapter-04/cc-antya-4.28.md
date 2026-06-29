@@ -1,5 +1,8 @@
 ### CC Antya 4.28
 
+> সনাতন কহে, — “নীচ-বংশে মোর জন্ম  ।
+> অধর্ম অন্যায় যত, — আমার কুলধর্ম ॥২৮॥
+
 > sanātana kahe,—"nīca-vaṁśe mora janma
 > adharma anyāya yata,—āmāra kula-dharma
 

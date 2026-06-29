@@ -1,5 +1,10 @@
 ### CC Madhya 2.74
 
+> মারঃ স্বয়ং নু মধুরদ্যুতিমণ্ডলং নু
+> মাধুর্যমেব নু মনোনয়নামৃতং নু ।
+> বেণীমৃজো নু মম জীবিতবল্লভো নু
+> কৃষ্ণোঽয়মভ্যুদয়তে মম লোচনায় ॥৭৪॥
+
 māraḥ svayaṁ nu madhura-dyuti-maṇḍalaṁ nu
 mādhuryam eva nu mano-nayanāmṛtaṁ nu
 veṇī-mṛjo nu mama jīvita-vallabho nu

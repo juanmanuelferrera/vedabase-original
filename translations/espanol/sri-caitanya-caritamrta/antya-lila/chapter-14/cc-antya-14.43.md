@@ -1,5 +1,9 @@
 ### CC Antya 14.43
 
+> “শুন, বান্ধব, কৃষ্ণের মাধুরী ।
+> যার লোভে মোর মন, ছাড়ি’ লোক-বেদধর্ম,
+> যোগী হঞা হইল ভিখারী ।। ৪৩ ।। ধ্রু ।। ॥৪৩॥
+
 > "śuna, bāndhava, kṛṣṇera mādhurī
 > yāra lobhe mora mana, chāḍi' loka-veda-dharma,
 > yogī hañā ha-ila bhikhārī

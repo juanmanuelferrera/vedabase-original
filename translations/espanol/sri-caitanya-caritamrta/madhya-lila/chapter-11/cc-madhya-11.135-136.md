@@ -3,6 +3,9 @@
 > advaita kahe,-īśvarera ei svabhāva haya
 > yadyapi āpane pūrṇa, sarvaiśvarya-maya
 
+> advaita kahe,-īśvarera ei svabhāva haya
+> yadyapi āpane pūrṇa, sarvaiśvarya-maya
+
 > tathāpi bhakta-saṅge haya sukhollāsa
 > bhakta-saṅge kare nitya vividha vilāsa
 

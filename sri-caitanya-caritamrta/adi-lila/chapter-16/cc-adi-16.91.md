@@ -1,5 +1,8 @@
 ### CC Adi 16.91
 
+> এত ভাবি’ কহে, — শুন, নিমাঞি পণ্ডিত ।
+> তব ব্যাখ্যা শুনি’ আমি হইলাঙ বিস্মিত ॥৯১॥
+
 > eta bhāvi' kahe—śuna, nimāñi paṇḍita
 > tava vyākhyā śuni' āmi ha-ilāṅ vismita
 

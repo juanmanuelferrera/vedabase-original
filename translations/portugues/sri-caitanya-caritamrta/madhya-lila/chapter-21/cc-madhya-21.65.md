@@ -1,5 +1,8 @@
 ### CC Madhya 21.65
 
+> ‘কোন্ ব্রহ্মা?’ পুছিলে তুমি কোন্ অভিপ্রায়ে ?
+> আমা বই জগতে আর কোন্ ব্রহ্মা হয়ে ?’ ॥ ৬৫ ॥
+
 'kon brahmā?' puchile tumi kon abhiprāye?
 
 āmā ba-i jagate āra kon brahmā haye?'

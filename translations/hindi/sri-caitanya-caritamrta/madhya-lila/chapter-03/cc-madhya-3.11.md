@@ -1,5 +1,8 @@
 ### CC Madhya 3.11
 
+> নিত্যানন্দ, আচার্যরত্ন, মুকুন্দ, — তিন জন ।
+> প্রভু-পাছে-পাছে তিনে করেন গমন ॥১১॥
+
 > nityānanda, ācāryaratna, mukunda, tina jana
 > prabhu-pāche-pāche tine karena gamana
 

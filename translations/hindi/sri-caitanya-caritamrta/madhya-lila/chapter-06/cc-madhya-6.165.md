@@ -1,5 +1,8 @@
 ### CC Madhya 6.165
 
+> অপরেয়মিতস্ত্বন্যাং প্ৰকৃতিং বিদ্ধি মে পরাম্ ।
+> জীবভূতাং মহাবাহো যয়েদং ধার্যতে জগৎ ॥১৬৫॥
+
 > apareyam itas tv anyāṁ
 > prakṛtiṁ viddhi me parām
 > jīva-bhūtāṁ mahā-bāho

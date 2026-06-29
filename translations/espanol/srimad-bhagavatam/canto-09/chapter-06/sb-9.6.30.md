@@ -1,5 +1,8 @@
 ### SB 9.6.30
 
+> ततः काल उपावृत्ते कुक्षिं निर्भिद्य दक्षिणम
+> युवनाश्वस्य तनयश्चक्रवर्ती जजान ह ॥३०॥
+
 > tataḥ kāla upāvṛtte
 > kukṣiṁ nirbhidya dakṣiṇam
 > yuvanāśvasya tanayaś

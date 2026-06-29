@@ -1,5 +1,7 @@
 ### SB 5.1.10
 
+> भगवानपि भारत तदुपनीतार्हणः सूक्तवाकेनातितरामुदितगुणगणावतारसुजयःप्रियव्रतमादिपुरुषस्तं सदयहासावलोक इति होवाच ॥१०॥
+
 > bhagavān api bhārata tad-upanītārhaṇaḥ sūkta-vākenātitarām udita-guṇa-gaṇāvatāra-sujayaḥ priyavratam ādi-puruṣas taṁ sadaya-hāsāvaloka iti hovāca.
 
 *bhagavān*—el Señor Brahmā; *api*—además; *bhārata*—¡oh, rey Parīkṣit!; *tat*—por ellos; *upanīta*—que se habían adelantado; *arhaṇaḥ*—artículos de adoración; *sūkta*—conforme a la etiqueta védica; *vākena*—con lenguaje; *atitarām*—elevado; *udita*—alabaron; *guṇa-gaṇa*—cualidades; *avatāra*—debido al descenso; *su-jayaḥ*—cuyas glorias; *priyavratam*—a Priyavrata; *ādi-puruṣaḥ*—la persona original; *tam*—a él; *sa-daya*—con compasión; *hāsa*—sonreír; *avalokaḥ*—cuya mirada; *iti*—de ese modo; *ha*—ciertamente; *uvāca*—dijo.

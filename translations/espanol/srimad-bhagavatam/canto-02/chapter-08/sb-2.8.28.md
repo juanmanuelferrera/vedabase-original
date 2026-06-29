@@ -1,5 +1,8 @@
 ### SB 2.8.28
 
+> प्राह भागवतं नाम पुराणं ब्रह्मसम्मितम् ।
+> ब्रह्मणे भगवत्प्रोक्तं ब्रह्मकल्प उपागते ॥२८॥
+
 > prāha bhāgavataṁ nāma
 > purāṇaṁ brahma-sammitam
 > brahmaṇe bhagavat-proktaṁ

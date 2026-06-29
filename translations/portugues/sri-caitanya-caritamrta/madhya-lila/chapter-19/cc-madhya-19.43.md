@@ -1,5 +1,8 @@
 ### CC Madhya 19.43
 
+> প্রভুর মহিমা দেখি’ লোকে চমৎকার ।
+> প্রয়াগে প্রভুর লীলা নারি বর্ণিবার ॥৪৩॥
+
 prabhura mahimā dekhi' loke camatkāra
 
 prayāge prabhura līlā nāri varṇibāra

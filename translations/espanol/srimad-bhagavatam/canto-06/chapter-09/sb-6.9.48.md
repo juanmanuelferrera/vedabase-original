@@ -1,5 +1,8 @@
 ### SB 6.9.48
 
+> किं दुरापं मयि प्रीते तथापि विबुधर्षभाः
+> मय्येकान्तमतिर्नान्यन्मत्तो वाञ्छति तत्त्ववित ॥४८॥
+
 > kiṁ durāpaṁ mayi prīte
 > tathāpi vibudharṣabhāḥ
 > mayy ekānta-matir nānyan

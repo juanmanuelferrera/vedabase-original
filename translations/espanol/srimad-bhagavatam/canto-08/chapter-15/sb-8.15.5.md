@@ -1,5 +1,8 @@
 ### SB 8.15.5
 
+> ततो रथः काञ्चनपट्टनद्धो हयाश्च हर्यश्वतुरङ्गवर्णाः
+> ध्वजश्च सिंहेन विराजमानो हुताशनादास हविर्भिरिष्टात ॥५॥
+
 > tato rathaḥ kāñcana-paṭṭa-naddho
 > hayāś ca haryaśva-turaṅga-varṇāḥ
 > dhvajaś ca siṁhena virājamāno

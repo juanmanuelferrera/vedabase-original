@@ -1,5 +1,8 @@
 ### CC Adi 14.93
 
+> এই মত শিশুলীলা করে গৌরচন্দ্র ।
+> দিনে দিনে পিতা-মাতার বাড়ায় আনন্দ ॥৯৩॥
+
 ei mata śiśu-līlā kare gauracandra
 dine dine pitā-mātāra bāḍāya ānanda
 

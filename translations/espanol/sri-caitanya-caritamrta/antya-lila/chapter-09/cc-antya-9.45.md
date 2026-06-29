@@ -1,5 +1,8 @@
 ### CC Antya 9.45
 
+> ইহাঁ যদি মহাপ্রভু এতেক কহিলা  ।
+> হরিচন্দন-পাত্র যাই’ রাজারে কহিলা ॥৪৫॥
+
 > ihāṅ yadi mahāprabhu eteka kahilā
 > haricandana-pātra yāi' rājāre kahilā
 

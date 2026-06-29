@@ -1,5 +1,8 @@
 ### SB 8.11.25
 
+> अलक्षयन्तस्तमतीव विह्वला विचुक्रुशुर्देवगणाः सहानुगाः
+> अनायकाः शत्रुबलेन निर्जिता वणिक्पथा भिन्ननवो यथार्णवे ॥२५॥
+
 > alakṣayantas tam atīva vihvalā
 > vicukruśur deva-gaṇāḥ sahānugāḥ
 > anāyakāḥ śatru-balena nirjitā

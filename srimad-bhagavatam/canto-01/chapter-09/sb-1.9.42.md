@@ -1,5 +1,8 @@
 ### SB 1.9.42
 
+> तमिममहमजं शरीरभाजां हृदि हृदि धिष्ठितमात्मकल्पितानाम् ।
+> प्रतिदृशमिव नैकधार्कमेकं समधिगतोऽस्मि विधूतभेदमोहः ॥४२॥
+
 > tam imam aham ajaṁ śarīra-bhājāṁ
 > hṛdi hṛdi dhiṣṭhitam ātma-kalpitānām
 > pratidṛśam iva naikadhārkam ekaṁ

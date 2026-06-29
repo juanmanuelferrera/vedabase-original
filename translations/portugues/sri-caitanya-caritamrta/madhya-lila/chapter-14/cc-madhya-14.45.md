@@ -1,5 +1,8 @@
 ### CC Madhya 14.45
 
+> কাঙ্গালের ভোজন-রঙ্গ দেখে গৌরহরি ।
+> ‘হরিবোল’ বলি’ তারে উপদেশ করি ॥৪৫॥
+
 kāṅgālera bhojana-raṅga dekhe gaurahari
 
 'hari-bola' bali' tāre upadeśa kari

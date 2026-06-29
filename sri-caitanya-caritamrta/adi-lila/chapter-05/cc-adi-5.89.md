@@ -1,5 +1,8 @@
 ### CC Adi 5.89
 
+> আমি ত’ জগতে বসি, জগৎ আমাতে ।
+> না আমি জগতে বসি, না আমা জগতে ॥৮৯॥
+
 > āmi ta' jagate vasi, jagat āmāte
 > nā āmi jagate vasi, nā āmā jagate
 

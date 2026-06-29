@@ -1,5 +1,8 @@
 ### CC Antya 7.53
 
+> ভট্টের হৃদয়ে দৃঢ় অভিমান জানি’ ।
+> ভঙ্গী করি’ মহাপ্রভু কহে এত বাণী ॥৫৩॥
+
 > bhaṭṭera hṛdaye dṛḍha abhimāna jāni'
 > bhaṅgī kari' mahāprabhu kahe eta vāṇī
 

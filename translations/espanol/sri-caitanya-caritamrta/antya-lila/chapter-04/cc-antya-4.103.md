@@ -1,5 +1,8 @@
 ### CC Antya 4.103
 
+> ‘আচার’, ‘প্রচার’, — নামের করহ ‘দুই’ কার্য  ।
+> তুমি — সর্ব-গুরু, তুমি জগতের আর্য ।।” ১০৩ ॥১০৩॥
+
 > 'ācāra', 'pracāra',--nāmera karaha 'dui' kārya
 > tumi--sarva-guru, tumi jagatera ārya
 

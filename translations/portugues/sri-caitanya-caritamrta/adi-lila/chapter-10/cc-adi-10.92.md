@@ -1,5 +1,8 @@
 ### CC Adi 10.92
 
+> প্রভু সমর্পিল তাঁরে স্বরূপের হাতে ।
+> প্রভুর গুপ্তসেবা কৈল স্বরূপের সাথে ॥৯২॥
+
 prabhu samarpila tāṅre svarūpera hāte
 
 prabhura gupta-sevā kaila svarūpera sāthe

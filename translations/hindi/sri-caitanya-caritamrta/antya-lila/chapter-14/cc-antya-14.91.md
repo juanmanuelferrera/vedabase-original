@@ -1,5 +1,8 @@
 ### CC Antya 14.91
 
+> প্রথমে চলিলা প্রভু, — যেন বায়ু গতি ।
+> স্তম্ভভাব পথে হৈল, চলিতে নাহি শক্তি ॥৯১॥
+
 > prathame calilā prabhu,--yena vāyu-gati
 > stambha-bhāva pathe haila, calite nāhi śakti
 

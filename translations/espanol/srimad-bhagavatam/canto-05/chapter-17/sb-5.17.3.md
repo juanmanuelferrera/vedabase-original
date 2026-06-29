@@ -1,5 +1,7 @@
 ### SB 5.17.3
 
+> ततः सप्त ऋषयस्तत्प्रभावाभिज्ञआ यां ननु तपस आत्यन्तिकी सिद्धिरेतावती भगवतिसर्वात्मनि वासुदेवेऽनुपरतभक्तियोगलाभेनैवोपेक्षितान्यार्थात्मगतयो मुक्तिमिवागतां मुमुक्षवइव सबहुमानमद्यापि जटाजूटैरुद्वहन्ति ॥३॥
+
 > tataḥ sapta ṛṣayas tat prabhāvābhijñā yāṁ nanu tapasa ātyantikī siddhir etāvatī bhagavati sarvātmani vāsudeve 'nuparata-bhakti-yoga-lābhenaivopekṣitānyārthātma-gatayo muktim ivāgatāṁ mumukṣava iva sabahu-mānam adyāpi jaṭā-jūṭair udvahanti.
 
 *tataḥ*—a continuación; *sapta ṛṣayaḥ*—los siete grandes sabios (comenzando por Marīci); *tat prabhāva-abhijñāḥ*—que conocen muy bien la influencia del río Ganges; *yām*—esa agua del Ganges; *nanu*—en verdad; *tapasaḥ*—de nuestras austeridades; *ātyantikī*—la suprema; *siddhiḥ*—perfección; *etāvatī*—en esta medida; *bhagavati*—a la Suprema Personalidad de Dios; *sarva-ātmani*—en el omnipresente; *vāsudeve*—Kṛṣṇa; *anuparata*—continuado; *bhakti-yoga*—del proceso místico del servicio devocional; *lābhena*—simplemente con alcanzar ese plano; *eva*—ciertamente; *upekṣita*—dejados de lado; *anya*—otros; *artha-ātma-gatayaḥ*—todos los demás sistemas para la perfección (es decir, la religión, el crecimiento económico, la complacencia de los sentidos y la liberación); *muktim*—liberación del cautiverio material; *iva*—como; *āgatām*—obtenido; *mumukṣavaḥ*—personas que desean la liberación; *iva*—como; *sa-bahu-mānam*—con gran honor; *adya api*—incluso ahora; *jaṭā-jūṭaiḥ*—con mechones de cabello enredado; *udvahanti*—llevan.

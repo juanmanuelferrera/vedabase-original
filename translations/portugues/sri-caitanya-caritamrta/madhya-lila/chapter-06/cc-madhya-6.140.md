@@ -1,5 +1,8 @@
 ### CC Madhya 6.140
 
+> সর্বৈশ্বর্যপরিপূর্ণ স্বয়ং ভগবান্ ।
+> তাঁরে নিরাকার করি’ করহ ব্যাখ্যান ॥১৪০॥
+
 sarvaiśvarya-paripūrṇa svayaṁ bhagavān
 
 tāṅre nirākāra kari' karaha vyākhyāna

@@ -1,5 +1,8 @@
 ### CC Madhya 15.183
 
+> গদাধর-পণ্ডিত রহিলা প্রভুর পাশে ৷
+> যমেশ্বরে প্রভু যাঁরে করাইলা আবাসে ॥১৮৩॥
+
 gadādhara-paṇḍita rahilā prabhura pāśe
 
 yameśvare prabhu yāṅre karāilā āvāse

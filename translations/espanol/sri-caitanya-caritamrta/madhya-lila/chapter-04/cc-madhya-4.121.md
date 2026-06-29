@@ -1,5 +1,8 @@
 ### CC Madhya 4.121
 
+> এই ইচ্ছায় লজ্জা পাঞা বিষ্ণুস্মরণ কৈল ।
+> হেনকালে ভোগ সরি’ আরতি বাজিল ॥১২১॥
+
 > ei icchāya lajjā pāñā viṣṇu-smaraṇa kaila
 > hena-kāle bhoga sari' ārati bājila
 

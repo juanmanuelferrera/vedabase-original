@@ -1,5 +1,8 @@
 ### CC Antya 17.18
 
+> গাভী সব চৌদিকে শুঁকে প্রভুর শ্রীঅঙ্গ ।
+> দূর কৈলে নাহি ছাড়ে প্রভুর শ্রীঅঙ্গ-সঙ্গ ॥১৮॥
+
 > gābhī saba caudike śuṅke prabhura śrī-aṅga
 > dūra kaile nāhi chāḍe prabhura śrī-aṅga-saṅga
 

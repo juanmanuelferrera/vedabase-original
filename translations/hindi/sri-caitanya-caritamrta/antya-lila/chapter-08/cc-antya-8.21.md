@@ -1,5 +1,8 @@
 ### CC Antya 8.21
 
+> “তুমি — পূর্ণ-ব্রহ্মানন্দ, করহ স্মরণ ।
+> ব্রহ্মবিৎ হঞা কেনে করহ রোদন?” ॥২১॥
+
 > "tumi--pūrṇa-brahmānanda, karaha smaraṇa
 > brahmavit hañā kene karaha rodana?"
 

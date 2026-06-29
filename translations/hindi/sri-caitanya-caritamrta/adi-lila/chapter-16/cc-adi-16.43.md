@@ -1,5 +1,8 @@
 ### CC Adi 16.43
 
+> ঝঞ্ঝাবাত-প্রায় আমি শ্লোক পড়িল ।
+> তার মধ্যে শ্লোক তুমি কৈছে কণ্ঠে কৈল ॥৪৩॥
+
 > jhañjhāvāta-prāya āmi śloka paḍila
 > tāra madhye śloka tumi kaiche kaṇṭhe kaila
 

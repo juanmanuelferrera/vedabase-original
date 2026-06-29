@@ -1,5 +1,8 @@
 ### CC Madhya 14.200
 
+> পাণিরোধমবিরোধিতবাঞ্ছং ভর্ৎসনাশ্চ মধুরস্মিতগর্ভাঃ ।
+> মাধবস্য কুরুতে করভোরুর্হারি শুষ্করুদিতঞ্চ মুখেঽপি ॥২০০॥
+
 > pāṇi-rodham avirodhita-vāñchaṁ
 > bhartsanāś ca madhura-smita-garbhāḥ
 > mādhavasya kurute karabhorur

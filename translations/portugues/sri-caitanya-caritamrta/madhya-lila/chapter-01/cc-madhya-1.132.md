@@ -1,5 +1,8 @@
 ### CC Madhya 1.132
 
+> নরহরি দাস আদি যত খণ্ডবাসী ।
+> শিবানন্দসেন-সঙ্গে মিলিলা সবে আসি’ ॥১৩২॥
+
 narahari dāsa ādi yata khaṇḍa-vāsī
 śivānanda-sena-saṅge mililā sabe āsi'
 

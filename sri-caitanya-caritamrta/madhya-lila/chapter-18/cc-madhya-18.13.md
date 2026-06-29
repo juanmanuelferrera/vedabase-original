@@ -1,5 +1,8 @@
 ### CC Madhya 18.13
 
+> এইমত স্তুতি করে প্রেমাবিষ্ট হঞা ।
+> তীরে নৃত্য করে কুণ্ডলীলা সঙরিয়া ॥১৩॥
+
 > ei-mata stuti kare premāviṣṭa hañā
 > tīre nṛtya kare kuṇḍa-līlā saṅariyā
 

@@ -1,5 +1,8 @@
 ### CC Adi 13.29
 
+> সূত্র-বৃত্তি-পাঁজি-টীকা কৃষ্ণেতে তাৎপর্য ।
+> শিষ্যের প্রতীত হয়, — প্রভাব আশ্চর্য ॥২৯॥
+
 sūtra-vṛtti-pāṅji-ṭīkā kṛṣṇete tātparya
 
 śiṣyera pratīta haya,--prabhāva āścarya

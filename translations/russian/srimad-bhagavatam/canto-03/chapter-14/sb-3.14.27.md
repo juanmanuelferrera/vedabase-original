@@ -1,5 +1,8 @@
 ### SB 3.14.27
 
+> यस्यानवद्याचरितं मनीषिणो गृणन्त्यविद्यापटलं बिभित्सवः ।
+> निरस्तसाम्यातिशयोऽपि यत्स्वयं पिशाचचर्यामचरद्गतिः सताम् ॥२७॥
+
 > yasyānavadyācaritaṁ manīṣiṇo
 > gṛṇanty avidyā-paṭalaṁ bibhitsavaḥ
 > nirasta-sāmyātiśayo 'pi yat svayaṁ

@@ -1,5 +1,8 @@
 ### CC Madhya 24.273
 
+> এতে ন হ্যদ্ভুতা ব্যাধ তবাহিংসাদয়ো গুণাঃ ।
+> হরিভক্তৌ প্রবৃত্তা যে ন তে স্যুঃ পরতাপিনঃ ॥২৭৩॥
+
 > ete na hy adbhutā vyādha
 > tavāhiṁsādayo guṇāḥ
 > hari-bhaktau pravṛttā ye

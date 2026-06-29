@@ -1,5 +1,8 @@
 ### CC Antya 9.134
 
+> কাহাঁ চাঙ্গের উপর সেই মরণ-প্রমাদ !
+> কাঁহা ‘নেতধটী’ পুনঃ, — এসব প্রসাদ ! ॥ ১৩৪ ॥
+
 > kāhāṅ cāṅgera upara sei maraṇa-pramāda!
 > kāhāṅ 'neta-dhaṭī' punaḥ,--e-saba prasāda!
 

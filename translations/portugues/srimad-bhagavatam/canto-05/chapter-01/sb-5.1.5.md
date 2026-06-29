@@ -1,5 +1,8 @@
 ### SB 5.1.5
 
+> श्रीशुक उवाच
+> बाढमुक्तं भगवत उत्तमश्लोकस्य श्रीमच्चरणारविन्दमकरन्दरस आवेशितचेतसोभागवतपरमहंसदयितकथां किञ्चिदन्तरायविहतां स्वां शिवतमां पदवीं न प्रायेण हिन्वन्ति ॥५॥
+
 śrī-śuka uvāca
 
 *bāḍham uktaṁ bhagavata uttamaślokasya śrīmac*-caraṇāravinda-makaranda-rasa āveśita-cetaso bhāgavata-paramahaṁsa-dayita-kathāṁ kiñcid antarāya-vihatāṁ svāṁ śivatamāṁ padavīṁ na prāyeṇa hinvanti.

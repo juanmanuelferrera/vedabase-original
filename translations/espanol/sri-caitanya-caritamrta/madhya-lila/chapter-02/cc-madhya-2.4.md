@@ -1,5 +1,8 @@
 ### CC Madhya 2.4
 
+> শ্রীরাধিকার চেষ্টা যেন উদ্ধব-দর্শনে ।
+> এইমত দশা প্রভুর হয় রাত্রি-দিনে ॥৪॥
+
 > śrī-rādhikāra ceṣṭā yena uddhava-darśane
 > ei-mata daśā prabhura haya rātri-dine
 

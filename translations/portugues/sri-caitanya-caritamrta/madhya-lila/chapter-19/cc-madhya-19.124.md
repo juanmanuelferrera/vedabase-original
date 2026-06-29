@@ -1,5 +1,8 @@
 ### CC Madhya 19.124
 
+> কেহ যদি দেশে যায় দেখি’ বৃন্দাবন ।
+> তাঁরে প্রশ্ন করেন প্ৰভুর পারিষদগণ ॥১২৪॥
+
 keha yadi deśe yāya dekhi' vṛndāvana
 
 tāṅre praśna karena prabhura pāriṣada-gaṇa

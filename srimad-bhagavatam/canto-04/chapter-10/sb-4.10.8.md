@@ -1,5 +1,8 @@
 ### SB 4.10.8
 
+> स तानापततो वीर उग्रधन्वा महारथः ।
+> एकैकं युगपत्सर्वानहन्बाणैस्त्रिभिस्त्रिभिः ॥८॥
+
 > sa tān āpatato vīra
 > ugra-dhanvā mahā-rathaḥ
 > ekaikaṁ yugapat sarvān

@@ -1,5 +1,8 @@
 ### CC Antya 5.162
 
+> শ্রীকৃষ্ণচৈতন্য-লীলা — অমৃতের সার ।
+> একলীলা-প্রবাহে বহে শত-শত ধার ॥১৬২॥
+
 > śrī-kṛṣṇa-caitanya-līlā—amṛtera sāra
 > eka-līlā-pravāhe vahe śata-śata dhāra
 

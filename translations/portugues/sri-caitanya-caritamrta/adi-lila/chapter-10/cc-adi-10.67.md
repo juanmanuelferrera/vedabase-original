@@ -1,5 +1,8 @@
 ### CC Adi 10.67
 
+> খোলা-বেচা শ্রীধর প্রভুর প্রিয়দাস ।
+> যাঁহা-সনে প্রভু করে নিত্য পরিহাস ॥৬৭॥
+
 kholā-vecā śrīdhara prabhura priya-dāsa
 
 yāṅhā-sane prabhu kare nitya parihāsa

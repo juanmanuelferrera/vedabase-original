@@ -1,5 +1,8 @@
 ### CC Madhya 14.214
 
+> দুগ্ধ আউটি’ দধি মথে তোমার গোপীগণে ।
+> আমার ঠাকুরাণী বৈসে রত্নসিংহাসনে ॥২১৪॥
+
 dugdha āuṭi' dadhi mathe tomāra gopī-gaṇe
 
 āmāra ṭhākurāṇī vaise ratna-siṁhāsane

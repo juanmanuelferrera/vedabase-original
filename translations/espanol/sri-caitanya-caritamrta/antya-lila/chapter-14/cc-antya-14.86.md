@@ -1,5 +1,10 @@
 ### CC Antya 14.86
 
+> হন্তায়মদ্রিরবলা হরিদাসবর্যো
+> যদ্রামকৃষ্ণচরণ-স্পরশ-প্রমোদঃ ।
+> মানং তনোতি সহ-গোগণয়োস্তয়োর্যৎ
+> পানীয়-সূযবস-কন্দর-কন্দমূলৈঃ ॥৮৬॥
+
 > hantāyam adrir abalā hari-dāsa-varyo
 > yad rāma-kṛṣṇa-caraṇa-sparaśa-pramodaḥ
 > mānaṁ tanoti saha-go-gaṇayos tayor yat

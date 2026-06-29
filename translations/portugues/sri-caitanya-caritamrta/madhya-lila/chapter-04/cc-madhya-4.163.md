@@ -1,5 +1,8 @@
 ### CC Madhya 4.163
 
+> প্রভুর আজ্ঞা হৈল, — এই কর্পূর-চন্দন ।
+> গোপীনাথের অঙ্গে নিত্য করহ লেপন ॥১৬৩॥
+
 prabhura ājñā haila,--ei karpūra-candana
 gopīnāthera aṅge nitya karaha lepana
 

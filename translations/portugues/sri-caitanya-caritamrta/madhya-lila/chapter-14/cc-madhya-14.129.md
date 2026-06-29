@@ -1,5 +1,8 @@
 ### CC Madhya 14.129
 
+> ছত্র-চামর-ধ্বজা পতাকার গণ  ।
+> নানাবাদ্য-আগে নাচে দেবদাসীগণ ॥১২৯॥
+
 chatra-cāmara-dhvajā patākāra gaṇa
 
 nānā-vādya-āge nāce deva-dāsī-gaṇa

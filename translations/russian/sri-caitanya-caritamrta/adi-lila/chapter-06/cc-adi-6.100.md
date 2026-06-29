@@ -1,5 +1,8 @@
 ### CC Adi 6.100
 
+> কৃষ্ণের সমতা হৈতে বড় ভক্তপদ ।
+> আত্মা হৈতে কৃষ্ণের ভক্ত হয় প্রেমাস্পদ ॥১০০॥
+
 > kṛṣṇera samatā haite baḍa bhakta-pada
 > ātmā haite kṛṣṇera bhakta haya premāspada
 

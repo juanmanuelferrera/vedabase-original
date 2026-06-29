@@ -1,5 +1,10 @@
 ### CC Madhya 19.230
 
+> ইতীদৃক্স্বলীলাভিরানন্দকুণ্ডে
+> স্বঘোষং নিমজ্জন্তমাখ্যাপয়ন্তম্ ।
+> তদীয়েশিতজ্ঞেষু ভক্তৈর্জিতত্বং
+> পুনঃ প্রেমতস্তং শতাবৃত্তি বন্দে ॥২৩০॥
+
 > itīdṛk-svalīlābhir ānanda-kuṇḍe
 > svaghoṣaṁ nimajjantam ākhyāpayantam
 > tadīyeśita-jñeṣu bhaktair jitatvaṁ

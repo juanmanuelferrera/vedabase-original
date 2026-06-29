@@ -1,5 +1,8 @@
 ### CC Madhya 6.148
 
+> বেদের নিগূঢ় অর্থ বুঝন না হয় ।
+> পুরাণ-বাক্যে সেই অর্থ করয় নিশ্চয় ॥১৪৮॥
+
 > vedera nigūḍha artha bujhana nā haya
 > purāṇa-vākye sei artha karaya niścaya
 

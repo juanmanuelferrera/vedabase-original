@@ -1,5 +1,8 @@
 ### SB 7.1.16
 
+> एतद्वेदितुमिच्छामः सर्व एव वयं मुने
+> भगवन्निन्दया वेनो द्विजैस्तमसि पातितः ॥१६॥
+
 > śrī-yudhiṣṭhira uvāca
 > aho aty-adbhutaṁ hy etad
 > durlabhaikāntinām api

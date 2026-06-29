@@ -1,5 +1,8 @@
 ### CC Adi 15.14
 
+> ভাল হৈল, — বিশ্বরূপ সন্ন্যাস করিল ।
+> পিতৃকুল, মাতৃকুল, — দুই উদ্ধারিল ॥১৪॥
+
 > bhāla haila,--viśvarūpa sannyāsa karila
 > pitṛ-kula, mātṛ-kula,--dui uddhārila
 

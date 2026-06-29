@@ -1,5 +1,7 @@
 ### SB 5.16.25
 
+> यानुपजुषाणानां न कदाचिदपि प्रजानां वलीपलितक्लमस्वेददौर्गन्ध्यजरामयमृत्युशीतोष्णवैवर्ण्योपसर्गादयस्तापविशेषा भवन्ति यावज्जीवं सुखं निरतिशयमेव ॥२५॥
+
 > yān upajuṣāṇānāṁ na kadācid api prajānāṁ valī-palita-klama-sveda-daurgandhya-jarāmaya-mṛtyu-śītoṣṇa-vaivarṇyopasargādayas tāpa-viśeṣā bhavanti yāvaj jīvaṁ sukhaṁ niratiśayam eva.
 
 *yān*—los cuales (todos los productos debidos a los ríos mencionados); *upajuṣāṇānām*—de personas que están utilizando completamente; *na*—no; *kadācit*—en ningún momento; *api*—ciertamente; *prajānām*—de los ciudadanos; *valī*—arrugas; *palita*—canas; *klama*—fatiga; *sveda*—sudor; *daurgandhya*—malos olores debidos a la transpiración; *jarā*—vejez; *āmaya*—enfermedad; *mṛtyu*—muerte prematura; *śīta*—frío intenso; *uṣṇa*—calor sofocante; *vaivarṇya*—pérdida del lustre corporal; *upasarga*—problemas; *ādayaḥ*—etc.; *tāpa*—de sufrimientos; *viśeṣāḥ*—diversidad; *bhavanti*—son; *yāvat*—mientras que; *jīvam*—vida; *sukham*—felicidad; *niratiśayam*—ilimitada; *eva*—solamente.

@@ -1,5 +1,8 @@
 ### CC Madhya 17.14
 
+> নূতন সঙ্গী হইবেক, — স্নিগ্ধ যাঁর মন ।
+> ঐছে যবে পাই, তবে লই ‘এক’ জন ॥১৪॥
+
 nūtana saṅgī ha-ibeka,--snigdha yāṅra mana
 aiche yabe pāi, tabe la-i 'eka' jana
 

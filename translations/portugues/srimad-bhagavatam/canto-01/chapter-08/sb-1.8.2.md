@@ -1,5 +1,8 @@
 ### SB 1.8.2
 
+> ते निनीयोदकं सर्वे विलप्य च भृशं पुनः ।
+> आप्लुता हरिपादाब्जरजःपूतसरिज्जले ॥२॥
+
 te ninīyodakaṁ sarve
 vilapya ca bhṛśaṁ punaḥ
 *āplutā hari*-pādābja-

@@ -1,5 +1,8 @@
 ### CC Adi 17.224
 
+> কীর্তন করিতে প্রভু করিলা গমন ।
+> সঙ্গে চলি’ আইসে কাজী উল্লসিত মন ॥২২৪॥
+
 > kīrtana karite prabhu karilā gamana
 > saṅge cali' āise kājī ullasita mana
 

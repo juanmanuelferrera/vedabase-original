@@ -1,5 +1,8 @@
 ### CC Madhya 6.234
 
+> আজি কৃষ্ণপ্রাপ্তি-যোগ্য হৈল তোমার মন ৷
+> বেদ-ধর্ম লঙ্ঘি’ কৈলে প্রসাদ ভক্ষণ ।।” ॥ ২৩৪ ॥
+
 > āji kṛṣṇa-prāpti-yogya haila tomāra mana
 > veda-dharma laṅghi' kaile prasāda bhakṣaṇa"
 

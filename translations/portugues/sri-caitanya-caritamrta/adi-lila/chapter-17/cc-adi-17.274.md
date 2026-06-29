@@ -1,5 +1,8 @@
 ### CC Adi 17.274
 
+> এই আদি-লীলার কৈল সূত্র গণন ।
+> বিস্তারি বর্ণিলা ইহা দাস বৃন্দাবন ॥২৭৪॥
+
 ei ādi-līlāra kaila sūtra gaṇana
 
 vistāri varṇilā ihā dāsa vṛndāvana

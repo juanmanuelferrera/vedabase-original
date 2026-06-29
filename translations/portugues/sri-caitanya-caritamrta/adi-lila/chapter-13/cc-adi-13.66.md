@@ -1,5 +1,8 @@
 ### CC Adi 13.66
 
+> তাঁর সঙ্গে আনন্দ করে বৈষ্ণবের গণ ।
+> কৃষ্ণকথা, কৃষ্ণপূজা, নামসংকীর্তন ॥৬৬॥
+
 tāṅra saṅge ānanda kare vaiṣṇavera gaṇa
 kṛṣṇa-kathā, kṛṣṇa-pūjā, nāma-saṅkīrtana
 

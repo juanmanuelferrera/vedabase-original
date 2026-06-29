@@ -1,5 +1,8 @@
 ### CC Antya 14.29
 
+> জগন্নাথে আবিষ্ট ইহার তনু-মন-প্রাণে ।
+> মোর স্কন্ধে পদ দিয়াছে, তাহা নাহি জানে ॥২৯॥
+
 jagannāthe āviṣṭa ihāra tanu-mana-prāṇe
 
 mora skandhe pada diyāche, tāho nāhi jāne

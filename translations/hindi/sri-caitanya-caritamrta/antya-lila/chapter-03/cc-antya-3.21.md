@@ -1,5 +1,8 @@
 ### CC Antya 3.21
 
+> প্রভু কহে, — “দামোদর, চলহ নদীয়া  ।
+> মাতার সমীপে তুমি রহ তাঁহা যাঞা ॥২১॥
+
 > prabhu kahe,--"dāmodara, calaha nadīyā
 > mātāra samīpe tumi raha tāṅhā yāñā
 

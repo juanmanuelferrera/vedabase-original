@@ -1,5 +1,8 @@
 ### SB 5.10.14
 
+> श्रीशुक उवाच
+> एतावदनुवादपरिभाषया प्रत्युदीर्य मुनिवर उपशमशील उपरतानात्म्यनिमित्त उपभोगेनकर्मारब्धं व्यपनयन्राजयानमपि तथोवाह ॥१४॥
+
 śrī-śuka uvāca
 
 *etāvad anuvāda*-paribhāṣayā pratyudīrya muni-vara upaśama-śīla uparatānātmya-nimitta upabhogena karmārabdhaṁ vyapanayan rāja-yānam api tathovāha.

@@ -1,5 +1,8 @@
 ### CC Antya 2.18
 
+> গ্রহগ্রস্তপ্রায় নকুল প্রেমাবিষ্ট হঞা ।
+> হাসে, কান্দে, নাচে, গায় উন্মত্ত হঞা ॥১৮॥
+
 > graha-grasta-prāya nakula premāviṣṭa hañā
 > hāse, kānde, nāce, gāya unmatta hañā
 

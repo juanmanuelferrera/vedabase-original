@@ -1,5 +1,8 @@
 ### CC Antya 12.106
 
+> তাঁর ইচ্ছা, — প্রভু অল্প মস্তকে লাগায়  ।
+> পিত্ত-বায়ু-ব্যাধি-প্রকোপ শান্ত হঞা যায় ॥১০৬॥
+
 > tāṅra icchā,—prabhu alpa mastake lāgāya
 > pitta-vāyu-vyādhi-prakopa śānta hañā yāya
 

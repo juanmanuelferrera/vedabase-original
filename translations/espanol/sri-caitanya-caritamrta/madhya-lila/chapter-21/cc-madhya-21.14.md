@@ -1,5 +1,8 @@
 ### CC Madhya 21.14
 
+> সেহো রহু — সর্বজ্ঞ-শিরোমণি শ্রীকৃষ্ণ ।
+> নিজ-গুণের অন্ত না পাঞা হয়েন সতৃষ্ণ ॥১৪॥
+
 > seho rahu--sarvajña-śiromaṇi śrī-kṛṣṇa
 > nija-guṇera anta nā pāñā hayena satṛṣṇa
 

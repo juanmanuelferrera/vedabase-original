@@ -1,5 +1,8 @@
 ### CC Madhya 15.8
 
+> সুগন্ধি-সলিলে দেন পাদ্য, আচমন ।
+> সর্বাঙ্গে লেপয়ে প্রভুর সুগন্ধি চন্দন ॥৮॥
+
 sugandhi-salile dena pādya, ācamana
 sarvāṅge lepaye prabhura sugandhi candana
 

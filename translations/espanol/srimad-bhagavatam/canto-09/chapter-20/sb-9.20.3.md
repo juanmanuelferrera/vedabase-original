@@ -1,5 +1,8 @@
 ### SB 9.20.3
 
+> तस्य सुद्युरभूत्पुत्रस्तस्माद्बहुगवस्ततः
+> संयातिस्तस्याहंयाती रौद्राश्वस्तत्सुतः स्मृतः ॥३॥
+
 > tasya sudyur abhūt putras
 > tasmād bahugavas tataḥ
 > saṁyātis tasyāhaṁyātī

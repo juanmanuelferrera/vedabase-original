@@ -1,5 +1,8 @@
 ### SB 5.11.5
 
+> स वासनात्मा विषयोपरक्तो गुणप्रवाहो विकृतः षोडशात्मा
+> बिभ्रत्पृथङ्नामभि रूपभेदमन्तर्बहिष्ट्वं च पुरैस्तनोति ॥५॥
+
 > sa vāsanātmā viṣayoparakto
 > guṇa-pravāho vikṛtaḥ ṣoḍaśātmā
 > bibhrat pṛthaṅ-nāmabhi rūpa-bhedam

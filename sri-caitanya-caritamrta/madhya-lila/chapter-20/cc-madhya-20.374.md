@@ -1,5 +1,8 @@
 ### CC Madhya 20.374
 
+> ‘বিভূতি’ কহিয়ে যৈছে গীতা-একাদশে ।
+> জগৎ ব্যাপিল কৃষ্ণশক্ত্যাভাসাবেশে ॥৩৭৪॥
+
 > 'vibhūti' kahiye yaiche gītā-ekādaśe
 > jagat vyāpila kṛṣṇa-śakty-ābhāsāveśe
 

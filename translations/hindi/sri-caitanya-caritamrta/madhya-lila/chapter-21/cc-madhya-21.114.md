@@ -1,5 +1,9 @@
 ### CC Madhya 21.114
 
+> সখি হে, কোন্ তপ কৈল গোপীগণ ।
+> কৃষ্ণরূপ-সুমাধুরী, পিবি’ পিবি’ নেত্র ভরি’,
+> শ্লাঘ্য করে জন্ম-তনু-মন ।। ১১৪ ।। ধ্রু ।। ॥১১৪॥
+
 > sakhī he, kon tapa kaila gopī-gaṇa
 > kṛṣṇa-rūpa-sumādhurī, pibi' pibi' netra bhari',
 > ślāghya kare janma-tanu-mana

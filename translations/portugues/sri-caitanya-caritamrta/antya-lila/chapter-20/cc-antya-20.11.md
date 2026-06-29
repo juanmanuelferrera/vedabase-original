@@ -1,5 +1,8 @@
 ### CC Antya 20.11
 
+> নামসঙ্কীর্তন হৈতে সর্বানর্থ-নাশ ।
+> সর্ব-শুভোদয়, কৃষ্ণ-প্রেমের উল্লাস ॥১১॥
+
 nāma-saṅkīrtana haite sarvānartha-nāśa
 sarva-śubhodaya, kṛṣṇa-premera ullāsa
 

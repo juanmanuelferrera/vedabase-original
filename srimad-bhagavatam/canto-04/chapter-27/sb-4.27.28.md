@@ -1,5 +1,8 @@
 ### SB 4.27.28
 
+> मया निरूपितस्तुभ्यं पतिरात्मसमाधिना ।
+> नाभिनन्दति लोकोऽयं त्वामभद्रामसम्मताम् ॥२८॥
+
 > mayā nirūpitas tubhyaṁ
 > patir ātma-samādhinā
 > nābhinandati loko 'yaṁ

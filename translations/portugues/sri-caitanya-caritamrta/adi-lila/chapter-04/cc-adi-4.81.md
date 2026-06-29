@@ -1,5 +1,8 @@
 ### CC Adi 4.81
 
+> তার মধ্যে ব্রজে নানা ভাব-রস-ভেদে ।
+> কৃষ্ণকে করায় রাসাদিক-লীলাস্বাদে ॥৮১॥
+
 tāra madhye vraje nānā bhāva-rasa-bhede
 kṛṣṇake karāya rāsādika-līlāsvāde
 

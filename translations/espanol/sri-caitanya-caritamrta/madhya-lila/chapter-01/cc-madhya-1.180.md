@@ -1,5 +1,8 @@
 ### CC Madhya 1.180
 
+> রাজা কহে, শুন, মোর মনে যেই লয় ।
+> সাক্ষাৎ ঈশ্বর ইহঁ নাহিক সংশয় ॥১৮০॥
+
 > rājā kahe, śuna, mora mane yei laya
 > sākṣāt īśvara ihaṅ nāhika saṁśaya
 

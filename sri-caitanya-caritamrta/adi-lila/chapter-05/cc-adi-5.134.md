@@ -1,5 +1,8 @@
 ### CC Adi 5.134
 
+> এইরূপে নিত্যানন্দ ‘অনন্ত’-প্রকাশ ।
+> সেইভাবে — কহে মুঞি চৈতন্যের দাস ॥১৩৪॥
+
 > ei-rūpe nityānanda 'ananta'-prakāśa
 > sei-bhāve—kahe muñi caitanyera dāsa
 

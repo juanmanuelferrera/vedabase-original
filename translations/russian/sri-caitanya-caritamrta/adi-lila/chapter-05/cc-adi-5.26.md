@@ -1,5 +1,8 @@
 ### CC Adi 5.26
 
+> পরব্যোম-মধ্যে করি’ স্বরূপ প্রকাশ ।
+> নারায়ণরূপে করেন বিবিধ বিলাস ॥২৬॥
+
 > para-vyoma-madhye kari' svarūpa prakāśa
 > nārāyaṇa-rūpe karena vividha vilāsa
 

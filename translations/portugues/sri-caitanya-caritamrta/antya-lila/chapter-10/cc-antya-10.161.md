@@ -1,5 +1,8 @@
 ### CC Antya 10.161
 
+> শুনিতে অমৃত-সম জুড়ায় কর্ণ-মন ।
+> সেই ভাগ্যবান্, যেই করে আস্বাদন ॥১৬১॥
+
 śunite amṛta-sama juḍāya karṇa-mana
 
 sei bhāgyavān, yei kare āsvādana

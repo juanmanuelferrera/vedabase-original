@@ -1,5 +1,8 @@
 ### CC Madhya 4.52
 
+> আবরণ দূর করি’ করিল বিদিতে ।
+> মহা-ভারী ঠাকুর — কেহ নারে চালাইতে ॥৫২॥
+
 āvaraṇa dūra kari' karila vidite
 mahā-bhārī ṭhākura--keha nāre cālāite
 

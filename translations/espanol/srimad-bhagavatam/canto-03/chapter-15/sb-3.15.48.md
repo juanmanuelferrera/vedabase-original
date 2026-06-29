@@ -1,5 +1,10 @@
 ### SB 3.15.48
 
+> नात्यन्तिकं विगणयन्त्यपि ते प्रसादं
+> किम्वन्यदर्पितभयं भ्रुव उन्नयैस्ते ।
+> येऽङ्ग त्वदङ्घ्रिशरणा भवतः कथायाः
+> कीर्तन्यतीर्थयशसः कुशला रसज्ञाः ॥४८॥
+
 > nātyantikaṁ vigaṇayanty api te prasādaṁ
 > kimv anyad arpita-bhayaṁ bhruva unnayais te
 > ye 'ṅga tvad-aṅghri-śaraṇā bhavataḥ kathāyāḥ

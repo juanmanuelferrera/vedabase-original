@@ -1,5 +1,8 @@
 ### CC Madhya 13.125
 
+> জগন্নাথ দেখি’ প্রভুর সে ভাব উঠিল  ।
+> সেই ভাবাবিষ্ট হঞা ধুয়া গাওয়াইল ॥১২৫॥
+
 > jagannātha dekhi' prabhura se bhāva uṭhila
 > sei bhāvāviṣṭa hañā dhuyā gāoyāila
 

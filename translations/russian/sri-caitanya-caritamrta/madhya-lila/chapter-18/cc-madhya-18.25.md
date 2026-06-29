@@ -1,5 +1,8 @@
 ### CC Madhya 18.25
 
+> অনারুরুক্ষবে শৈলং স্বস্মৈ ভক্তাভিমানিনে ।
+> অবরুহ্য গিরেঃ কৃষ্ণো গৌরায় স্বমদর্শয়ৎ ॥২৫॥
+
 > anārurukṣave śailaṁ
 > svasmai bhaktābhimānine
 > avaruhya gireḥ kṛṣṇo

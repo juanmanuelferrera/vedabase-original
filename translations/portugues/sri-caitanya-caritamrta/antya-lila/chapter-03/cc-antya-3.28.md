@@ -1,5 +1,8 @@
 ### CC Antya 3.28
 
+> ‘নিরন্তর নিজ-কথা তোমারে শুনাইতে ।
+> এই লাগি’ প্রভু মোরে পাঠাইলা ইহাঁতে’ ॥২৮॥
+
 'nirantara nija-kathā tomāre śunāite
 
 ei lāgi' prabhu more pāṭhāilā ihāṅte'

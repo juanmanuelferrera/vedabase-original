@@ -1,5 +1,8 @@
 ### CC Madhya 21.54
 
+> এই তিন ধামের হয় কৃষ্ণ অধীশ্বর ।
+> গোলোক-পরব্যোম — প্রকৃতির পর ॥৫৪॥
+
 > ei tina dhāmera haya kṛṣṇa adhīśvara
 > goloka-paravyoma—prakṛtira para
 

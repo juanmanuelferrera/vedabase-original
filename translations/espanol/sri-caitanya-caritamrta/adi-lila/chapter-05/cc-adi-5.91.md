@@ -1,5 +1,8 @@
 ### CC Adi 5.91
 
+> সেই ত’ পুরুষ যাঁর ‘অংশ’ ধরে নাম ।
+> চৈতন্যের সঙ্গে সেই নিত্যানন্দ-রাম ॥৯১॥
+
 > sei ta' puruṣa yāṅra 'aṁśa' dhare nāma
 > caitanyera saṅge sei nityānanda-rāma
 

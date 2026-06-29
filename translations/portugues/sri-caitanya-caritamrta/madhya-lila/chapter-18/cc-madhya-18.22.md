@@ -1,5 +1,8 @@
 ### CC Madhya 18.22
 
+> সে-রাত্রি রহিলা হরিদেবের মন্দিরে  ।
+> রাত্রে মহাপ্রভু করে মনেতে বিচারে ॥২২॥
+
 se-rātri rahilā haridevera maṇḍire
 
 rātre mahāprabhu kare manete vicāre

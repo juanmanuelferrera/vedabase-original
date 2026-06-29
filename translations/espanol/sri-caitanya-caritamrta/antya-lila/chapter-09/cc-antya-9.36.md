@@ -1,5 +1,8 @@
 ### CC Antya 9.36
 
+> তবে স্বরূপাদি যত প্রভুর ভক্তগণ  ।
+> প্রভুর চরণে সবে কৈলা নিবেদন ॥৩৬॥
+
 > tabe svarūpādi yata prabhura bhakta-gaṇa
 > prabhura caraṇe sabe kailā nivedana
 

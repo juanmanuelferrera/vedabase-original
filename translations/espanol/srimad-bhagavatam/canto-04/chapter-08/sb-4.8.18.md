@@ -1,5 +1,8 @@
 ### SB 4.8.18
 
+> सत्यं सुरुच्याभिहितं भवान्मे यद्दुर्भगाया उदरे गृहीतः ।
+> स्तन्येन वृद्धश्च विलज्जते यां भार्येति वा वोढुमिडस्पतिर्माम् ॥१८॥
+
 > satyaṁ surucyābhihitaṁ bhavān me
 > yad durbhagāyā udare gṛhītaḥ
 > stanyena vṛddhaś ca vilajjate yāṁ

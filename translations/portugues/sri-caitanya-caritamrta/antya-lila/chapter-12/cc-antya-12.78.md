@@ -1,5 +1,8 @@
 ### CC Antya 12.78
 
+> অদ্বৈত অবধূত কিছু কহে প্রভু-পায় ।
+> “সহজে তোমার গুণে জগৎ বিকায় ॥৭৮॥
+
 advaita avadhūta kichu kahe prabhu-pāya
 
 "sahaje tomāra guṇe jagat vikāya

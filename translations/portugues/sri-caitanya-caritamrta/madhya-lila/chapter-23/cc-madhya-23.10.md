@@ -1,5 +1,8 @@
 ### CC Madhya 23.10
 
+> সাধুসঙ্গ হৈতে হয় ‘শ্রবণ-কীর্তন’ ।
+> সাধনভক্ত্যে হয় ‘সর্বানর্থনিবর্তন’ ॥১০॥
+
 sādhu-saṅga haite haya 'śravaṇa-kīrtana'
 sādhana-bhaktye haya 'sarvānartha-nivartana'
 

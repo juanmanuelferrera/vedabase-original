@@ -1,5 +1,10 @@
 ### CC Madhya 16.186
 
+> যন্নামধেয়শ্রবণানুকীর্তনাদ্
+> যত্প্রহ্বণাদ্ যৎস্মরণাদপি ক্বচিৎ ।
+> শ্বাদোঽপি সদ্যঃ সবনায় কল্পতে
+> কুতঃ পুনস্তে ভগবন্নু দর্শনাৎ ॥১৮৬॥
+
 > yan-nāmadheya-śravaṇānukīrtanād
 > yat-prahvaṇād yat-smaraṇād api kvacit
 > śvādo 'pi sadyaḥ savanāya kalpate

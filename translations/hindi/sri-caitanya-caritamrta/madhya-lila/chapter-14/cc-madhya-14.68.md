@@ -1,5 +1,8 @@
 ### CC Madhya 14.68
 
+> চারি মাসের দিন মুখ্যভক্ত বাঁটি’ নিল ।
+> আর ভক্তগণ অবসর না পাইল ॥৬৮॥
+
 > cāri māsera dina mukhya-bhakta bāṅṭi' nila
 > āra bhakta-gaṇa avasara nā pāila
 

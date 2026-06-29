@@ -1,5 +1,8 @@
 ### SB 6.5.17
 
+> पञ्चविंशतितत्त्वानां पुरुषोऽद्भुतदर्पणः
+> अध्यात्ममबुधस्येह किमसत्कर्मभिर्भवेत ॥१७॥
+
 > pañca-viṁśati-tattvānāṁ
 > puruṣo 'dbhuta-darpaṇaḥ
 > adhyātmam abudhasyeha

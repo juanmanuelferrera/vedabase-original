@@ -1,5 +1,8 @@
 ### CC Antya 18.72
 
+> অতিদীর্ঘ শিথিল তনু-চর্ম নট্কায় ।
+> দূর পথ উঠাঞা ঘরে আনান না যায় ॥৭২॥
+
 ati-dīrgha śithila tanu-carma naṭkāya
 
 dūra patha uṭhāñā ghare ānāna nā yāya

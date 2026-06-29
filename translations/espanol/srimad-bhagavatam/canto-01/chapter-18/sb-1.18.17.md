@@ -1,5 +1,8 @@
 ### SB 1.18.17
 
+> तन्नः परं पुण्यमसंवृतार्थमाख्यानमत्यद्भुतयोगनिष्ठम् ।
+> आख्याह्यनन्ताचरितोपपन्नं पारीक्षितं भागवताभिरामम् ॥१७॥
+
 > tan naḥ paraṁ puṇyam asaṁvṛtārtham
 > ākhyānam atyadbhuta-yoga-niṣṭham
 > ākhyāhy anantācaritopapannaṁ

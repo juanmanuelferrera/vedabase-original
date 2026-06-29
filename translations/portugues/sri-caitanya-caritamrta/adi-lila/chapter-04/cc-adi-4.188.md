@@ -1,5 +1,8 @@
 ### CC Adi 4.188
 
+> তাঁ সবার নাহি নিজসুখ-অনুরোধ ।
+> তথাপি বাঢ়য়ে সুখ, পড়িল বিরোধ ॥১৮৮॥
+
 tāṅ sabāra nāhi nija-sukha-anurodha
 tathāpi bāḍhaye sukha, paḍila virodha
 

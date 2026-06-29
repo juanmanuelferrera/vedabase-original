@@ -1,5 +1,7 @@
 ### SB 5.21.19
 
+> लक्षोत्तरं सार्धनवकोटियोजनपरिमण्डलं भूवलयस्य क्षणेन सगव्यूत्युत्तरं द्विसहस्रयोजनानि स भुङ्क्ते ॥१९॥
+
 > lakṣottaraṁ sārdha-nava-koṭi-yojana-parimaṇḍalaṁ bhū-valayasya kṣaṇena sagavyūty-uttaraṁ dvi-sahasra-yojanāni sa bhuṅkte.
 
 *lakṣa-uttaram*—increased by 100,000; *sārdha*—with 5,000,000; *nava-koṭi-yojana*—of 90,000,000 *yojanas*; *parimaṇḍalam*—circumference; *bhū-valayasya*—of the earthly sphere; *kṣaṇena*—in one moment; *sagavyūti-uttaram*—augmented by two *krośas* (four miles); *dvi-sahasra-yojanāni*—2,000 *yojanas*; *saḥ*—the sun-god; *bhuṅkte*—traverses.

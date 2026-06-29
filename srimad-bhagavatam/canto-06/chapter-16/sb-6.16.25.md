@@ -1,5 +1,7 @@
 ### SB 6.16.25
 
+> ओं नमो भगवते महापुरुषाय महानुभावाय महाविभूतिपतयेसकलसात्वतपरिवृढनिकरकरकमलकुड्मलोपलालितचरणारविन्दयुगल परमपरमेष्ठिन्नमस्ते ॥२५॥
+
 > oṁ namo bhagavate mahā-puruṣāya mahānubhāvāya mahā-vibhūti-pataye sakala-sātvata-parivṛḍha-nikara-kara-kamala-kuḍmalopalālita-caraṇāravinda-yugala parama-parameṣṭhin namas te.
 
 *oṁ*—O Supreme Personality of Godhead; *namaḥ*—respectful obeisances; *bhagavate*—unto You, the Lord, who are full in six opulences; *mahā-puruṣāya*—the supreme enjoyer; *mahā-anubhāvāya*—the most perfect realized soul, or the Supersoul; *mahā-vibhūti-pataye*—the master of all mystic power; *sakala-sātvata-parivṛḍha*—of all the best devotees; *nikara*—of the multitude; *kara-kamala*—of the lotus hands; *kuḍmala*—by the buds; *upalālita*—served; *caraṇa-aravinda-yugala*—whose two lotus feet; *parama*—topmost; *parame-ṣṭhin*—who are situated in the spiritual planet; *namaḥ te*—respectful obeisances unto You.

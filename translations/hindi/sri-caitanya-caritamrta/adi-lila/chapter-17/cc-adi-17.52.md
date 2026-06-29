@@ -1,5 +1,8 @@
 ### CC Adi 17.52
 
+> শ্রীবাসে করাইলি তুই ভবানী-পূজন ।
+> কোটি জন্ম হবে তোর রৌরবে পতন ॥৫২॥
+
 > śrīvāse karāili tui bhavānī-pūjana
 > koṭi janma habe tora raurave patana
 

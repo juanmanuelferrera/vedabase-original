@@ -1,5 +1,8 @@
 ### CC Antya 15.84
 
+> রাসে হরিমিহ বিহিতবিলাসম্ ।
+> স্মরতি মনো মম কৃতপরিহাসম্ ॥৮৪॥
+
 rāse harim iha vihita-vilāsam
 
 smarati mano mama kṛta-parihāsam

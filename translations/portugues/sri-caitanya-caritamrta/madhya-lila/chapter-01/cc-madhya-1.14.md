@@ -1,5 +1,8 @@
 ### CC Madhya 1.14
 
+> ভক্তি করি’ শিরে ধরি তাঁহার চরণ ।
+> শেষলীলার সূত্রগণ করিয়ে বর্ণন ॥১৪॥
+
 bhakti kari' śire dhari tāṅhāra caraṇa
 śeṣa-līlāra sūtra-gaṇa kariye varṇana
 

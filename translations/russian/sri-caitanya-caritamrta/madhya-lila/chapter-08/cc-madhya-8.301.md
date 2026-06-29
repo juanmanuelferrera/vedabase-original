@@ -1,5 +1,8 @@
 ### CC Madhya 8.301
 
+> ‘বিদ্যাপুরে’ নানা-মত লোক বৈসে যত ।
+> প্রভু-দর্শনে ‘বৈষ্ণব’ হৈল ছাড়ি’ নিজমত ॥৩০১॥
+
 > 'vidyāpūre' nānā-mata loka vaise yata
 > prabhu-darśane 'vaiṣṇava' haila chāḍi' nija-mata
 

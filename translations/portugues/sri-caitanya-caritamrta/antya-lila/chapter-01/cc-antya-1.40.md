@@ -1,5 +1,8 @@
 ### CC Antya 1.40
 
+> উড়িয়া-দেশে ‘সত্যভামাপুর’-নামে গ্রাম ।
+> এক রাত্রি সেই গ্রামে করিলা বিশ্রাম ॥৪০॥
+
 uḍiyā-deśe 'satyabhāmā-pura'-nāme grāma
 
 eka rātri sei grāme karilā viśrāma

@@ -1,5 +1,8 @@
 ### CC Madhya 21.91
 
+> গোলোকাখ্য গোকুল, মথুরা, দ্বারাবতী ।
+> এই তিন লোকে কৃষ্ণের সহজে নিত্যস্থিতি ॥৯১॥
+
 golokākhya gokula, mathurā, dvārāvatī
 
 ei tina loke kṛṣṇera sahaje nitya-sthiti

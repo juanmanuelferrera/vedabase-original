@@ -1,5 +1,7 @@
 ### SB 5.16.12
 
+> चतुर्ष्वेतेषु चूतजम्बूकदम्बन्यग्रोधाश्चत्वारः पादपप्रवराः पर्वतकेतव इवाधिसहस्रयोजनोन्नाहास्तावद्विटपविततयः शतयोजनपरिणाहाः ॥१२॥
+
 > caturṣv eteṣu cūta-jambū-kadamba-nyagrodhāś catvāraḥ pādapa-pravarāḥ parvata-ketava ivādhi-sahasra-yojanonnāhās tāvad viṭapa-vitatayaḥ śata-yojana-pariṇāhāḥ.
 
 *caturṣu*—sobre las cuatro; *eteṣu*—sobre esas montañas, comenzando con Mandara; *cūta-jambū-kadamba*—de árboles como el mango, el yambo y el *kadamba*; *nyagrodhāḥ*—y el árbol de los banianos; *catvāraḥ*—cuatro clases; *pādapa-pravarāḥ*—los mejores entre los árboles; *parvata-ketavaḥ*—las astas de bandera sobre las montañas; *iva*—como; *adhi*—sobre; *sahasra-yojana-unnāhāḥ*—mil *yojanas* de alto; *tāvat*—tanto como; *viṭapa-vitatayaḥ*—la largura de las ramas; *śata-yojana*—cien*yojanas*; *pariṇāhāḥ*—ancho.

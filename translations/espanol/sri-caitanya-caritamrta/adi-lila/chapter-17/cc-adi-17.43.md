@@ -1,5 +1,8 @@
 ### CC Adi 17.43
 
+> তবে সব শিষ্টলোক করে হাহাকার ।
+> ঐছে কর্ম হেথা কৈল কোন্ দুরাচার ॥৪৩॥
+
 > tabe saba śiṣṭa-loka kare hāhākāra
 > aiche karma hethā kaila kon durācāra
 

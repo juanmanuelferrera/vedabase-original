@@ -1,5 +1,8 @@
 ### CC Antya 5.20
 
+> সেব্য-বুদ্ধি আরোপিয়া করেন সেবন ।
+> স্বাভাবিক দাসীভাব করেন আরোপণ ॥২০॥
+
 > sevya-bujhi āropiyā karena sevana
 > svābhāvika dāsī-bhāva karena āropaṇa
 

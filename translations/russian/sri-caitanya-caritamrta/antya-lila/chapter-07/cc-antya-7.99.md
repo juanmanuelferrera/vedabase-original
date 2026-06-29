@@ -1,5 +1,8 @@
 ### CC Antya 7.99
 
+> যদ্যপি বিচারে পণ্ডিতের নাহি কিছু দোষ ।
+> তথাপি প্রভুর গণ তাঁরে করে প্রণয়-রোষ ॥৯৯॥
+
 > yadyapi vicāre paṇḍitera nāhi kichu doṣa
 > tathāpi prabhura gaṇa tāṅre kare praṇaya-roṣa
 

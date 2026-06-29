@@ -1,5 +1,8 @@
 ### CC Antya 3.49
 
+> একদিন প্রভু হরিদাসেরে মিলিলা  ।
+> তাঁহা লঞা গোষ্ঠী করি’ তাঁহারে পুছিলা ॥৪৯॥
+
 eka-dina prabhu haridāsere mililā
 
 tāṅhā lañā goṣṭhī kari' tāṅhāre puchilā

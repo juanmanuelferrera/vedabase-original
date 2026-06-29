@@ -1,5 +1,8 @@
 ### CC Madhya 15.258
 
+> এত বলি’ মহাপ্ৰভু চলিলা ভবনে ।
+> ভট্টাচার্য তাঁর ঘরে গেলা তাঁর সনে ॥২৫৮॥
+
 > eta bali' mahāprabhu calilā bhavane
 > bhaṭṭācārya tāṅra ghare gelā tāṅra sane
 

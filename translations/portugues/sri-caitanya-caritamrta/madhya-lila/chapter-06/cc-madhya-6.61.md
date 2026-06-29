@@ -1,5 +1,8 @@
 ### CC Madhya 6.61
 
+> আজি যে হৈল আমার বড়ই বিপত্তি ।
+> তাহা হৈতে কৈলে তুমি আমার অব্যাহতি ।।” ॥ ৬১ ॥
+
 āji ye haila āmāra baḍa-i vipatti
 tāhā haite kaile tumi āmāra avyāhati"
 

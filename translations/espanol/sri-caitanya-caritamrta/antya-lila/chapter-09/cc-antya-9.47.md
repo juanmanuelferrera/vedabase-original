@@ -1,5 +1,8 @@
 ### CC Antya 9.47
 
+> বিশেষ তাহার ঠাঞি কৌড়ি বাকী হয় ।
+> প্রাণ নিলে কিবা লাভ? নিজ ধনক্ষয় ॥৪৭॥
+
 > viśeṣa tāhāra ṭhāñi kauḍi bākī haya
 > prāṇa nile kibā lābha? nija dhana-kṣaya
 

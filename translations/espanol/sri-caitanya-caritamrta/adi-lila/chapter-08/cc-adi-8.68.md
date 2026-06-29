@@ -1,5 +1,8 @@
 ### CC Adi 8.68
 
+> পণ্ডিত-গোসাঞির শিষ্য — ভুগর্ভ গোসাঞি ।
+> গৌরকথা বিনা আর মুখে অন্য নাই ॥৬৮॥
+
 > paṇḍita-gosāñira śiṣya--bhugarbha gosāñi
 > gaura-kathā vinā āra mukhe anya nāi
 

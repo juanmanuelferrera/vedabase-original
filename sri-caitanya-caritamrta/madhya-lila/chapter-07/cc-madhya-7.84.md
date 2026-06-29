@@ -1,5 +1,8 @@
 ### CC Madhya 7.84
 
+> মধ্যাহ্ন করিতে গেলা প্ৰভুকে লঞা ।
+> তাহা দেখি’ লোক আইসে চৌদিকে ধাঞা ॥৮৪॥
+
 > madhyāhna karite gelā prabhuke lañā
 > tāhā dekhi' loka āise caudike dhāñā
 

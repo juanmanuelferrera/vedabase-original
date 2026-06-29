@@ -1,5 +1,8 @@
 ### CC Adi 3.51
 
+> ইতি দ্বাপর উর্বীশ স্তুবন্তি জগদীশ্বরম্ ।
+> নানাতন্ত্রবিধানেন কলাবপি যথা শৃণু ॥৫১॥
+
 > iti dvāpara urv-īśa
 > stuvanti jagad-īśvaram
 > nānā-tantra-vidhānena

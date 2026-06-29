@@ -1,5 +1,8 @@
 ### CC Adi 16.63
 
+> ভবানী-শব্দে কহে মহাদেবের গৃহিণী ।
+> তাঁর ভর্তা কহিলে দ্বিতীয় ভর্তা জানি ॥৬৩॥
+
 > bhavānī-śabde kahe mahādevera gṛhiṇī
 > tāṅra bhartā kahile dvitīya bhartā jāni
 

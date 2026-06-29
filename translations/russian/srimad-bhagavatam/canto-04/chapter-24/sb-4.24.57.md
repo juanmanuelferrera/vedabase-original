@@ -1,5 +1,8 @@
 ### SB 4.24.57
 
+> क्षणार्धेनापि तुलये न स्वर्गं नापुनर्भवम् ।
+> भगवत्सङ्गिसङ्गस्य मर्त्यानां किमुताशिषः ॥५७॥
+
 > kṣaṇārdhenāpi tulaye
 > na svargaṁ nāpunar-bhavam
 > bhagavat-saṅgi-saṅgasya

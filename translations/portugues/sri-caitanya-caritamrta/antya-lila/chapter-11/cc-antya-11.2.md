@@ -1,5 +1,8 @@
 ### CC Antya 11.2
 
+> জয় জয় শ্রীচৈতন্য জয় দয়াময় ।
+> জয়াদ্বৈতপ্রিয় নিত্যানন্দপ্রিয় জয় ॥২॥
+
 jaya jaya śrī-caitanya jaya dayāmaya
 jayādvaita-priya nityānanda-priya jaya
 

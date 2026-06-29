@@ -1,5 +1,8 @@
 ### CC Madhya 17.92
 
+> মিশ্রের সখা তেঁহো প্রভুর পূর্ব দাস ।
+> বৈদ্যজাতি, লিখনবৃত্তি, বারাণসী-বাস ॥৯২॥
+
 miśrera sakhā teṅho prabhura pūrva dāsa
 
 vaidya-jāti, likhana-vṛtti, vārāṇasī-vāsa

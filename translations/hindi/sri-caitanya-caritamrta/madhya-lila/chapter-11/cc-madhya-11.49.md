@@ -1,5 +1,8 @@
 ### CC Madhya 11.49
 
+> যদি সেই মহাপ্রভুর না পাই কৃপা-ধন ।
+> কিবা রাজ্য, কিবা দেহ, — সব অকারণ ॥৪৯॥
+
 > yadi sei mahāprabhura nā pāi kṛpā-dhana
 > kibā rājya, kibā deha,-saba akāraṇa
 

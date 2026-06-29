@@ -1,5 +1,8 @@
 ### CC Antya 5.115
 
+> সহজে জড়জগতের চেতন করাইতে ।
+> নীলাচলে মহাপ্রভু হৈলা আবির্ভূতে ।।” ॥ ১১৫ ॥
+
 sahaje jaḍa-jagatera cetana karāite
 
 nīlācale mahāprabhu hailā āvirbhute

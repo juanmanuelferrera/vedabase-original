@@ -1,5 +1,8 @@
 ### CC Antya 16.5
 
+> তাঁ-সবার সঙ্গে আইল কালিদাস নাম ।
+> কৃষ্ণনাম বিনা তেঁহো নাহি কহে আন ॥৫॥
+
 > tāṅ-sabāra saṅge āila kālidāsa nāma
 > kṛṣṇa-nāma vinā teṅho nāhi kahe āna
 

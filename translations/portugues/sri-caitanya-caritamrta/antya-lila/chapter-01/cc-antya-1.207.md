@@ -1,5 +1,8 @@
 ### CC Antya 1.207
 
+> অদ্বৈত-নিত্যানন্দাদি সব ভক্তগণ ।
+> কৃপা করি’ রূপে সবে কৈলা আলিঙ্গন ॥২০৭॥
+
 advaita-nityānandādi saba bhakta-gaṇa
 
 kṛpā kari' rūpe sabe kailā āliṅgana

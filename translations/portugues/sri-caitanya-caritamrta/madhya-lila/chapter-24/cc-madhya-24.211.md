@@ -1,5 +1,8 @@
 ### CC Madhya 24.211
 
+> এই উনিশ অর্থ করিলু, আগে শুন আর ।
+> ‘আত্মা’-শব্দে ‘দেহ’ কহে, — চারি অর্থ তার ॥২১১॥
+
 ei ūniśa artha karilu, āge śuna āra
 
 'ātma'-śabde 'deha' kahe,--cāri artha tāra

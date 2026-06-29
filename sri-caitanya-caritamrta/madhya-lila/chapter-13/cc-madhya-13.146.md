@@ -1,5 +1,10 @@
 ### CC Madhya 13.146
 
+> তোমার যে অন্য বেশ, অন্য সঙ্গ, অন্য দেশ,
+> ব্রজজনে কভু নাহি ভায় ।
+> ব্রজভূমি ছাড়িতে নারে, তোমা না দেখিলে মরে,
+> ব্ৰজজনের কি হবে উপায় ॥১৪৬॥
+
 > tomāra ye anya veśa, anya saṅga, anya deśa,
 > vraja-jane kabhu nāhi bhāya
 > vraja-bhūmi chāḍite nāre, tomā nā dekhile mare,

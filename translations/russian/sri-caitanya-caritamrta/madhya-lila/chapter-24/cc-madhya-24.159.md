@@ -1,5 +1,8 @@
 ### CC Madhya 24.159
 
+> আরুরুক্ষোর্মুনের্যোগং কর্ম কারণমুচ্যতে ।
+> যোগারূঢ়স্য তস্যৈব শমঃ কারণমুচ্যতে ॥১৫৯॥
+
 > ārurukṣor muner yogaṁ
 > karma kāraṇam ucyate
 > yogārūḍhasya tasyaiva

@@ -1,5 +1,8 @@
 ### CC Madhya 13.175
 
+> জগন্নাথ-সেবক যত রাজপাত্রগণ  ।
+> যাত্রিক লোক, নীলাচলবাসী যত জন ॥১৭৫॥
+
 jagannātha-sevaka yata rāja-pātra-gaṇa
 
 yātrika loka, nīlācala-vāsī yata jana

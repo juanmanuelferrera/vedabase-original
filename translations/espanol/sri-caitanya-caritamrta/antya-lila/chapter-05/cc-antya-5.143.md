@@ -1,5 +1,8 @@
 ### CC Antya 5.143
 
+> জরাসন্ধ কহে, — “কৃষ্ণ — পুরুষ-অধম ।
+> তোর সঙ্গে না যুঝিমু, “যাহি বন্ধুহন্” ॥১৪৩॥
+
 > jarāsandha kahe,--"kṛṣṇa--puruṣa-adhama
 > tora saṅge nā yujhimu, "yāhi bandhu-han"
 

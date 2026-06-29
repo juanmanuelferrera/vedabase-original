@@ -1,5 +1,8 @@
 ### CC Madhya 8.280
 
+> নিজগূঢ়কার্য তোমার — প্রেম আস্বাদন ।
+> আনুষঙ্গে প্রেমময় কৈলে ত্রিভুবন ॥২৮০॥
+
 > nija-gūḍha-kārya tomāra—prema āsvādana
 > ānuṣaṅge prema-maya kaile tribhuvana
 

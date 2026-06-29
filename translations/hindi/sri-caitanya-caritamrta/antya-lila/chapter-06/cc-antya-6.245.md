@@ -1,5 +1,8 @@
 ### CC Antya 6.245
 
+> রঘুনাথ-দাস যবে সবারে মিলিলা ।
+> অদ্বৈত-আচার্য তাঁরে বহু কৃপা কৈলা ॥২৪৫॥
+
 > raghunātha-dāsa yabe sabāre mililā
 > advaita-ācārya tāṅre bahu kṛpā kailā
 

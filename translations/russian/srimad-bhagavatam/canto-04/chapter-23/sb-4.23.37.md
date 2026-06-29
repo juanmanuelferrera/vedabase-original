@@ -1,5 +1,8 @@
 ### SB 4.23.37
 
+> मुक्तान्यसङ्गो भगवत्यमलां भक्तिमुद्वहन् ।
+> वैन्यस्य चरितं पुण्यं शृणुयाच्छ्रावयेत्पठेत् ॥३७॥
+
 > muktānya-saṅgo bhagavaty
 > amalāṁ bhaktim udvahan
 > vainyasya caritaṁ puṇyaṁ

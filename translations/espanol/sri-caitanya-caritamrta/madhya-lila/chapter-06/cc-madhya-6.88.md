@@ -1,5 +1,8 @@
 ### CC Madhya 6.88
 
+> সার্বভৌম কহে, — আচার্য, কহ সাবধানে ।
+> তোমাতে ঈশ্বর-কৃপা ইথে কি প্রমাণে ॥৮৮॥
+
 > sārvabhauma kahe,--ācārya, kaha sāvadhāne
 > tomāte īśvara-kṛpā ithe ki pramāṇe
 

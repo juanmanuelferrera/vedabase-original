@@ -1,5 +1,8 @@
 ### CC Adi 10.70
 
+> জগদীশ পণ্ডিত, আর হিরণ্য মহাশয় ।
+> যারে কৃপা কৈল বাল্যে প্রভু দয়াময় ॥৭০॥
+
 jagadīśa paṇḍita, āra hiraṇya mahāśaya
 
 yāre kṛpā kaila bālye prabhu dayāmaya

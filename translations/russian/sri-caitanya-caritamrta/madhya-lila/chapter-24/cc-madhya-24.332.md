@@ -1,5 +1,8 @@
 ### CC Madhya 24.332
 
+> দন্তধাবন, স্নান, সন্ধ্যাদি বন্দন ।
+> গুরুসেবা, ঊর্ধ্বপুণ্ড্রচক্রাদি-ধারণ ॥৩৩২॥
+
 > danta-dhāvana, snāna, sandhyādi vandana
 > guru-sevā, ūrdhva-puṇḍra-cakrādi-dhāraṇa
 

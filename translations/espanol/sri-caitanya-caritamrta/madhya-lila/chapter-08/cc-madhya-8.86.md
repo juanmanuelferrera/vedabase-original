@@ -1,5 +1,8 @@
 ### CC Madhya 8.86
 
+> গুণাধিক্যে স্বাদাধিক্য বাড়ে প্রতি-রসে ৷
+> শান্ত-দাস্য-সখ্য-বাত্সল্যের গুণ মধুরেতে বৈসে ৷৷ ৮৬ ৷৷ ॥৮৬॥
+
 > guṇādhikye svādādhikya bāḍe prati-rase
 > śānta-dāsya-sakhya-vātsalyera guṇa madhurete vaise
 

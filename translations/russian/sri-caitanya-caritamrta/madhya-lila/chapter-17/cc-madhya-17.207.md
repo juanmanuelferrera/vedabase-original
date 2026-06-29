@@ -1,5 +1,8 @@
 ### CC Madhya 17.207
 
+> মৃগের গলা ধরি’ প্রভু করেন রোদনে ।
+> মৃগের পুলক অঙ্গে, অশ্রু নয়নে ॥২০৭॥
+
 > mṛgera galā dhari' prabhu karena rodane
 > mṛgera pulaka aṅge, aśru nayane
 

@@ -1,5 +1,8 @@
 ### CC Madhya 13.30
 
+> পরমানন্দ পুরী, আর ভারতী ব্রহ্মানন্দ ।
+> শ্রীহস্তে চন্দন পাঞা বাড়িল আনন্দ ॥৩০॥
+
 paramānanda purī, āra bhāratī brahmānanda
 
 śrī-haste candana pāñā bāḍila ānanda

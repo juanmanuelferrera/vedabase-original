@@ -1,5 +1,8 @@
 ### CC Antya 7.9
 
+> তোমারে যে স্মরণ করে, সে হয় পবিত্র ।
+> দর্শনে পবিত্র হবে, — ইথে কি বিচিত্র ? ॥৯॥
+
 > tomāre ye smaraṇa kare, se haya pavitra
 > darśane pavitra habe,--ithe ki vicitra?
 

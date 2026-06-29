@@ -1,5 +1,8 @@
 ### CC Madhya 11.72
 
+> আমি কাহো নাহি চিনি, চিনিতে মন হয় ।
+> গোপীনাথাচার্য সবারে করা’বে পরিচয় ॥৭২॥
+
 > āmi kāho nāhi cini, cinite mana haya
 > gopīnāthācārya sabāre karā'be paricaya
 

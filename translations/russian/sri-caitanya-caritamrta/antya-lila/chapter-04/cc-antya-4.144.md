@@ -1,5 +1,8 @@
 ### CC Antya 4.144
 
+> সনাতন কহে, — “ভাল কৈলা উপদেশ ।
+> তাহাঁ যাব, সেই মোর ‘প্রভুদত্ত দেশ’ ।।” ॥ ১৪৪ ॥
+
 > sanātana kahe,—"bhāla kailā upadeśa
 > tāhāṅ yāba, sei mora 'prabhu-datta deśa' "
 

@@ -1,5 +1,8 @@
 ### CC Antya 5.146
 
+> এইমত শিশুপাল করিল নিন্দন ।
+> সেইবাক্যে সরস্বতী করেন স্তবন ॥১৪৬॥
+
 ei-mata śiśupāla karila nindana
 
 sei-vākye sarasvatī karena stavana

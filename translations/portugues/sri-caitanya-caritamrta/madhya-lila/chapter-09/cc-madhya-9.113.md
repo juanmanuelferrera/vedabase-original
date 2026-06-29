@@ -1,5 +1,8 @@
 ### CC Madhya 9.113
 
+> এই লাগি’ সুখভোগ ছাড়ি’ চিরকাল ৷
+> ব্রত-নিয়ম করি’ তপ করিল অপার ৷৷ ১১৩ ৷৷ ॥১১৩॥
+
 ei lāgi' sukha-bhoga chāḍi' cira-kāla
 vrata-niyama kari' tapa karila apāra
 

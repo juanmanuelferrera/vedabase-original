@@ -1,5 +1,8 @@
 ### CC Madhya 15.209
 
+> কেয়াপত্র-কলাখোলা-ডোঙ্গা সারি সারি ।
+> চারিদিকে ধরিয়াছে নানা ব্যঞ্জন ভরি’ ॥২০৯॥
+
 keyāpatra-kalākholā-ḍoṅgā sāri sāri
 
 cāri-dike dhariyāche nānā vyañjana bhari'

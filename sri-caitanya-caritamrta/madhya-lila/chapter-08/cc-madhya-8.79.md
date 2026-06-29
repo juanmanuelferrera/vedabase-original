@@ -1,5 +1,8 @@
 ### CC Madhya 8.79
 
+> প্রভু কহে, — “এহো উত্তম, আগে কহ আর ।”
+> রায় কহে, “কান্তাপ্রেম সর্বসাধ্যসার ।।” ॥৭৯॥
+
 > prabhu kahe, "eho uttama, āge kaha āra"
 > rāya kahe, "kāntā-prema sarva-sādhya-sāra"
 

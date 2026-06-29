@@ -1,5 +1,8 @@
 ### CC Madhya 11.53
 
+> তথাপি কহিয়ে আমি এক উপায় ৷
+> এই উপায় কর’ প্রভু দেখিবে যাহায় ৷৷ ৫৩ ৷৷ ॥৫৩॥
+
 tathāpi kahiye āmi eka upāya
 ei upāya kara' prabhu dekhibe yāhāya
 

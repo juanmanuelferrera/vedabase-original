@@ -1,5 +1,8 @@
 ### CC Madhya 24.242
 
+> ব্যাধ কহে, — “শুন, গোসাঞি, ‘মৃগারি’ মোর নাম ।
+> পিতার শিক্ষাতে আমি করি ঐছে কাম ॥২৪২॥
+
 vyādha kahe,--"śuna, gosāñi, 'mṛgāri' mora nāma
 
 pitāra śikṣāte āmi kari aiche kāma

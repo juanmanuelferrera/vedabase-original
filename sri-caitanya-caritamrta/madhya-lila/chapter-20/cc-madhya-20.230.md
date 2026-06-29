@@ -1,5 +1,8 @@
 ### CC Madhya 20.230
 
+> ত্রিবিক্রম — পদ্মগদাচক্রশঙ্খকর ।
+> শ্রীবামন — শঙ্খচক্রগদাপদ্মধর ॥২৩০॥
+
 > trivikrama—padma-gadā-cakra-śaṅkha-kara
 > śrī-vāmana—śaṅkha-cakra-gadā-padma-dhara
 

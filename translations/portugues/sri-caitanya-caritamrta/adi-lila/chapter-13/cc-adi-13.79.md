@@ -1,5 +1,8 @@
 ### CC Adi 13.79
 
+> পুত্র পাঞা দম্পতি হৈলা আনন্দিত মন ।
+> বিশেষে সেবন করে গোবিন্দচরণ ॥৭৯॥
+
 putra pāñā dampati hailā ānandita mana
 viśeṣe sevana kare govinda-caraṇa
 

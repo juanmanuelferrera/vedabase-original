@@ -1,5 +1,8 @@
 ### SB 1.15.8
 
+> यत्सन्निधावहमु खाण्डवमग्नयेऽदामिन्द्रं च सामरगणं तरसा विजित्य ।
+> लब्धा सभा मयकृताद्भुतशिल्पमाया दिग्भ्योऽहरन्नृपतयो बलिमध्वरे ते ॥८॥
+
 > yat-sannidhāv aham u khāṇḍavam agnaye 'dām
 > indraṁ ca sāmara-gaṇaṁ tarasā vijitya
 > labdhā sabhā maya-kṛtādbhuta-śilpa-māyā

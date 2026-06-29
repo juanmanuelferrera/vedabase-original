@@ -1,5 +1,8 @@
 ### CC Madhya 21.34
 
+> পরম ঈশ্বর কৃষ্ণ স্বয়ং ভগবান্ ।
+> তাতে বড়, তাঁর সম কেহ নাহি আন ॥৩৪॥
+
 parama īśvara kṛṣṇa svayaṁ bhagavān
 
 tāte baḍa, tāṅra sama keha nāhi āna

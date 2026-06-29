@@ -1,5 +1,8 @@
 ### CC Madhya 17.77
 
+> তেঁহো কহেন, — “তুমি ‘কৃষ্ণ’, তুমি ‘দয়াময়’ ।
+> অধম জীব মুঞি, মোরে হইলা সদয় ॥৭৭॥
+
 > teṅho kahena,--"tumi 'kṛṣṇa', tumi 'dayāmaya'
 > adhama jīva muñi, more ha-ilā sadaya
 

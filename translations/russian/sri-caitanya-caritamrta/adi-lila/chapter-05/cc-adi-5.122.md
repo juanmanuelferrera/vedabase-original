@@ -1,5 +1,8 @@
 ### CC Adi 5.122
 
+> সনকাদি ভাগবত শুনে যাঁর মুখে ।
+> ভগবানের গুণ কহে, ভাসে প্রেমসুখে ॥১২২॥
+
 > sanakādi bhāgavata śune yāṅra mukhe
 > bhagavānera guṇa kahe, bhāse prema-sukhe
 

@@ -1,5 +1,8 @@
 ### CC Adi 2.90
 
+> তৈছে সব অবতারের কৃষ্ণ সে কারণ ।
+> আর এক শ্লোক শুন, কুব্যাখ্যা-খণ্ডন ॥৯০॥
+
 > taiche saba avatārera kṛṣṇa se kāraṇa
 > āra eka śloka śuna, kuvyākhyā-khaṇḍana
 

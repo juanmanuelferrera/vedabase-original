@@ -1,5 +1,8 @@
 ### CC Antya 2.99
 
+> জীবাজ্ঞান-কল্পিত ঈশ্বরে, সকলই অজ্ঞান ।
+> যাহার শ্রবণে ভক্তের ফাটে মন প্রাণ ।।” ॥ ৯৯ ॥
+
 > jīvājñāna-kalpita īśvare, sakala-i ajñāna
 > yāhāra śravaṇe bhaktera phāṭe mana prāṇa"
 

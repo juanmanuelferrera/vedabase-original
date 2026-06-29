@@ -1,5 +1,8 @@
 ### CC Antya 4.55
 
+> “সনাতন, দেহত্যাগে কৃষ্ণ যদি পাইয়ে  ।
+> কোটি-দেহ ক্ষণেকে তবে ছাড়িতে পারিয়ে ॥৫৫॥
+
 > "sanātana, deha-tyāge kṛṣṇa yadi pāiye
 > koṭi-deha kṣaṇeke tabe chāḍite pāriye
 

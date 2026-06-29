@@ -1,5 +1,10 @@
 ### CC Antya 14.41
 
+> প্রাপ্তপ্রণষ্টাচ্যুতবিত্ত আত্মা
+> যযৌ বিষাদোজ্ঝিত-দেহগেহঃ ।
+> গৃহীতকাপালিকধর্মকো মে
+> বৃন্দাবনং সেন্দ্রিয়শিষ্যবৃন্দঃ ॥৪১॥
+
 > prāpta-praṇaṣṭācyuta-vitta ātmā
 > yayau viṣādojjhita-deha-gehaḥ
 > gṛhīta-kāpālika-dharmako me

@@ -1,5 +1,8 @@
 ### CC Adi 2.1
 
+> শ্রীচৈতন্যপ্রভুং বন্দে বালোঽপি যদনুগ্রহাৎ ।
+> তরেন্নানমতগ্রাহব্যাপ্তং সিদ্ধান্তসাগরম্ ॥১॥
+
 > śrī-caitanya-prabhuṁ vande
 > bālo 'pi yad-anugrahāt
 > taren nānā-mata-grāha-

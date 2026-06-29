@@ -1,5 +1,8 @@
 ### CC Antya 7.148
 
+> বল্লভ-ভট্টের হয় বাৎসল্য-উপাসন  ।
+> বালগোপাল-মন্ত্রে তেঁহো করেন সেবন ॥১৪৮॥
+
 > vallabha-bhaṭṭera haya vātsalya-upāsana
 > bāla-gopāla-mantre teṅho karena sevana
 

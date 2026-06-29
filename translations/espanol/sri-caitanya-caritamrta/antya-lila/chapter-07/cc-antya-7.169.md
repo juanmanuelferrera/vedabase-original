@@ -1,5 +1,8 @@
 ### CC Antya 7.169
 
+> নিগূঢ় চৈতন্যলীলা বুঝিতে কা’র শক্তি ?
+> সেই বুঝে, গৌরচন্দ্রে যাঁর দৃঢ় ভক্তি ॥১৬৯॥
+
 > nigūḍha caitanya-līlā bujhite kā'ra śakti?
 > sei bujhe, gauracandre yāṅra dṛḍha bhakti
 

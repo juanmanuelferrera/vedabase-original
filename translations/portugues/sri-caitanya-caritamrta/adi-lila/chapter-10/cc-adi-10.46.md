@@ -1,5 +1,8 @@
 ### CC Adi 10.46
 
+> তেঁহো সিদ্ধি পাইলে তাঁর দেহ লঞা কোলে ।
+> নাচিল চৈতন্যপ্রভু মহাকুতূহলে ॥৪৬॥
+
 teṅho siddhi pāile tāṅra deha lañā kole
 
 nācila caitanya-prabhu mahā-kutūhale

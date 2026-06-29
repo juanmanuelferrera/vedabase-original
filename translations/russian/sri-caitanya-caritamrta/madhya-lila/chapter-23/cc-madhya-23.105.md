@@ -1,5 +1,8 @@
 ### CC Madhya 23.105
 
+> যুক্তবৈরাগ্য-স্থিতি সব শিখাইল ।
+> শুষ্কবৈরাগ্য-জ্ঞান সব নিষেধিল ॥১০৫॥
+
 > yukta-vairāgya-sthiti saba śikhāila
 > śuṣka-vairāgya-jñāna saba niṣedhila
 

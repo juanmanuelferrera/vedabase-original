@@ -1,5 +1,8 @@
 ### CC Madhya 20.380
 
+> বয়সো বিবিধত্বেঽপি সর্বভক্তিরসাশ্রয়ঃ ।
+> ধর্মী কিশোর এবাত্র নিত্যলীলা-বিলাসবান্ ॥৩৮০॥
+
 > vayaso vividhatve 'pi
 > sarva-bhakti-rasāśrayaḥ
 > dharmī kiśora evātra

@@ -1,5 +1,8 @@
 ### CC Antya 12.21
 
+> শুনি’ শিবানন্দের পত্নী কান্দিতে লাগিলা ।
+> হেনকালে শিবানন্দ ঘাটী হৈতে আইলা ॥২১॥
+
 śuni' śivānandera patnī kāndite lāgilā
 
 hena-kāle śivānanda ghāṭī haite āilā

@@ -1,5 +1,8 @@
 ### CC Antya 1.202
 
+> এই দুই ভাইয়ে আমি পাঠাইলুঁ বৃন্দাবনে ।
+> শক্তি দিয়া ভক্তিশাস্ত্র করিতে প্রবর্তনে ॥২০২॥
+
 > ei dui bhāiye āmi pāṭhāiluṅ vṛndāvane
 > śakti diyā bhakti-śāstra karite pravartane
 

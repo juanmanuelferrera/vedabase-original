@@ -1,5 +1,8 @@
 ### CC Madhya 17.127
 
+> তিনবারে ‘কৃষ্ণনাম’ না আইল তার মুখে ।
+> ‘অবজ্ঞা’তে নাম লয়, শুনি’ পাই দুঃখে ॥১২৭॥
+
 tina-bāre 'kṛṣṇa-nāma' nā āila tāra mukhe
 
 'avajñā'te nāma laya, śuni' pāi duḥkhe

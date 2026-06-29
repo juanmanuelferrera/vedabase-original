@@ -1,5 +1,8 @@
 ### CC Antya 11.39
 
+> চরণে ধরি’ কহে হরিদাস, — “না করিহ ‘মায়া’ ।
+> অবশ্য মো-অধমে, প্রভু, কর এই ‘দয়া’ ॥৩৯॥
+
 caraṇe dhari' kahe haridāsa,--"nā kariha 'māyā'
 
 avaśya mo-adhame, prabhu, kara ei 'dayā'

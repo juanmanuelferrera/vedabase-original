@@ -1,5 +1,8 @@
 ### CC Madhya 5.123
 
+> তাঁর ভক্তিবশে গোপাল তাঁরে আজ্ঞা দিল ।
+> গোপাল লইয়া সেই কটকে আইল ॥১২৩॥
+
 > tāṅra bhakti-vaśe gopāla tāṅre ājñā dila
 > gopāla la-iyā sei kaṭake āila
 

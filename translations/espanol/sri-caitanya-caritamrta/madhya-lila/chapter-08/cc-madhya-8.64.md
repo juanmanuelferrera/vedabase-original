@@ -1,5 +1,8 @@
 ### CC Madhya 8.64
 
+> প্রভু কহে, — “এহো বাহ্য, আগে কহ আর ৷”
+> রায় কহে, — “জ্ঞানমিশ্রা ভক্তি — সাধ্যসার ৷৷” ৬৪ ৷৷ ॥৬৪॥
+
 > prabhu kahe,--"eho bāhya, āge kaha āra"
 > rāya kahe,--"jñāna-miśrā bhakti--sādhya-sāra"
 

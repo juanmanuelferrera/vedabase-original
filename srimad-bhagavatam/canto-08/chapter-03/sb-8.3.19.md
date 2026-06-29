@@ -1,5 +1,8 @@
 ### SB 8.3.19
 
+> यं धर्मकामार्थविमुक्तिकामा भजन्त इष्टां गतिमाप्नुवन्ति
+> किं चाशिषो रात्यपि देहमव्ययं करोतु मेऽदभ्रदयो विमोक्षणम ॥१९॥
+
 > yaṁ dharma-kāmārtha-vimukti-kāmā
 > bhajanta iṣṭāṁ gatim āpnuvanti
 > kiṁ cāśiṣo rāty api deham avyayaṁ

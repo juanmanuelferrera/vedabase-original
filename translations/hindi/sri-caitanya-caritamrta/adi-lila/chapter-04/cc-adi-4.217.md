@@ -1,5 +1,8 @@
 ### CC Adi 4.217
 
+> রাধাসহ ক্রীড়া রস-বৃদ্ধির কারণ ।
+> আর সব গোপীগণ রসোপকরণ ॥২১৭॥
+
 > rādhā-saha krīḍā rasa-vṛddhira kāraṇa
 > āra saba gopī-gaṇa rasopakaraṇa
 

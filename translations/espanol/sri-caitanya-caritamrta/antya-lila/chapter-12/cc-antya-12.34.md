@@ -1,5 +1,8 @@
 ### CC Antya 12.34
 
+> শিবানন্দের ভাগিনা, — শ্রীকান্ত-সেন নাম  ।
+> মামার অগোচরে কহে করি’ অভিমান ॥৩৪॥
+
 > śivānandera bhāginā,--śrīkānta-sena nāma
 > māmāra agocare kahe kari' abhimāna
 

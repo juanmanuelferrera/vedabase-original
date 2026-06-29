@@ -1,5 +1,8 @@
 ### CC Adi 3.42
 
+> দৈর্ঘ্য-বিস্তারে যেই আপনার হাত ।
+> চারি হস্ত হয় ‘মহাপুরুষ’ বিখ্যাত ॥৪২॥
+
 dairghya-vistāre yei āpanāra hāta
 cāri hasta haya 'mahā-puruṣa' vikhyāta
 

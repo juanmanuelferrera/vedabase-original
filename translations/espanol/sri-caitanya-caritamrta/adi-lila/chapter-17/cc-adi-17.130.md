@@ -1,5 +1,8 @@
 ### CC Adi 17.130
 
+> প্রভু আজ্ঞা দিল — যাহ করহ কীর্তন ।
+> মুঞি সংহারিমু আজি সকল যবন ॥১৩০॥
+
 > prabhu ājñā dila--yāha karaha kīrtana
 > muñi saṁhārimu āji sakala yavana
 

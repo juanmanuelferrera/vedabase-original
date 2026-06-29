@@ -1,5 +1,8 @@
 ### CC Madhya 20.92
 
+> তিন মুদ্রার ভোট গায়, মাধুকরী গ্রাস ।
+> ধর্মহানি হয়, লোক করে উপহাস ।।” ॥ ৯২ ॥
+
 > tina mudrāra bhoṭa gāya, mādhukarī grāsa
 > dharma-hāni haya, loka kare upahāsa"
 

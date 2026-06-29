@@ -1,5 +1,8 @@
 ### CC Madhya 7.120
 
+> যেই গ্রামে যায় তাহাঁ এই ব্যবহার ৷
+> এক ঠাঞি কহিল, না কহিব আর বার ৷৷ ১২০ ৷৷ ॥১২০॥
+
 > yei grāme yāya tāhāṅ ei vyavahāra
 > eka ṭhāñi kahila, nā kahiba āra bāra
 

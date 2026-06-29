@@ -1,5 +1,8 @@
 ### CC Antya 6.163
 
+> অঙ্গনে আসিয়া তেঁহো যবে দাণ্ডাইলা ।
+> রঘুনাথ আসি’ তবে দণ্ডবৎ কৈলা ॥১৬৩॥
+
 aṅgane āsiyā teṅho yabe dāṇḍāilā
 
 raghunātha āsi' tabe daṇḍavat kailā

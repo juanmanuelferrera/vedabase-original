@@ -1,5 +1,8 @@
 ### CC Madhya 19.85
 
+> আনন্দিত হঞা ভট্ট দিল দিব্যাসন ।
+> আপনে করিল প্রভুর পাদপ্রক্ষালন ॥৮৫॥
+
 ānandita hañā bhaṭṭa dila divyāsana
 
 āpane karila prabhura pāda-prakṣālana

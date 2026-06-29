@@ -1,5 +1,9 @@
 ### CC Madhya 25.272
 
+> ভক্তগণ, শুন মোর দৈন্য-বচন ।
+> তোমা-সবার পদধূলি, অঙ্গে বিভূষণ করি’,
+> কিছু মুঞি করোঁ নিবেদন ।। ২৭২ ।। ধ্রু ।। ॥২৭২॥
+
 > bhakta-gaṇa, śuna mora dainya-vacana
 > tomā-sabāra pada-dhūli, aṅge vibhūṣaṇa kari',
 > kichu muñi karoṅ nivedana

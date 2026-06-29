@@ -1,5 +1,7 @@
 ### CC Madhya 7.61
 
+> তবে সার্বভৌম কহে প্ৰভুর চরণে । অবশ্য পালিবে, প্রভু, মোর নিবেদনে । ‘রামানন্দ রায়’ আছে গোদাবরী-তীরে । অধিকারী হয়েন তেঁহো বিদ্যানগরে ॥৬১॥
+
 > tabe sārvabhauma kahe prabhura caraṇe
 > avaśya pālibe, prabhu, mora nivedane
 

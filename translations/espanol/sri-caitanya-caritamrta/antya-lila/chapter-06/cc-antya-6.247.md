@@ -1,5 +1,8 @@
 ### CC Antya 6.247
 
+> তোমারে পাঠাইতে পত্রী পাঠাইল মোরে  ।
+> ঝাঁকরা হইতে তোমা না পাঞা গেল ঘরে ॥২৪৭॥
+
 > tomāre pāṭhāite patrī pāṭhāila more
 > jhāṅkarā ha-ite tomā nā pāñā gela ghare
 

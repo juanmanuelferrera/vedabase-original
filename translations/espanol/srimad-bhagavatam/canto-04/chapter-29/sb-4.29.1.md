@@ -1,5 +1,9 @@
 ### SB 4.29.1
 
+> प्राचीनबर्हिरुवाच
+> भगवंस्ते वचोऽस्माभिर्न सम्यगवगम्यते ।
+> कवयस्तद्विजानन्ति न वयं कर्ममोहिताः ॥१॥
+
 > prācīnabarhir uvāca
 > bhagavaṁs te vaco 'smābhir
 > na samyag avagamyate

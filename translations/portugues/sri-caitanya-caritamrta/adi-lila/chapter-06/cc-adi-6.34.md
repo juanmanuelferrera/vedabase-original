@@ -1,5 +1,8 @@
 ### CC Adi 6.34
 
+> যাঁহার তুলসীজলে, যাঁহার হুঙ্কারে ।
+> স্বগণ সহিতে চৈতন্যের অবতারে ॥৩৪॥
+
 yāṅhāra tulasī-jale, yāṅhāra huṅkāre
 sva-gaṇa sahite caitanyera avatāre
 

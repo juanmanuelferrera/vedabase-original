@@ -1,5 +1,8 @@
 ### CC Madhya 16.287
 
+> ভিক্ষাতে পণ্ডিতের স্নেহ, প্রভুর আস্বাদন ।
+> মনুষ্যের শক্ত্যে দুই না যায় বর্ণন ॥২৮৭॥
+
 bhikṣāte paṇḍitera sneha, prabhura āsvādana
 
 manuṣyera śaktye dui nā yāya varṇana

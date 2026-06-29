@@ -1,5 +1,8 @@
 ### CC Antya 13.64
 
+> এইমত মাস দুই রহিলা বৃন্দাবনে ।
+> চৈতন্যবিরহ-দুঃখ না যায় সহনে ॥৬৪॥
+
 ei-mata māsa dui rahilā vṛndāvane
 
 caitanya-viraha-duḥkha nā yāya sahane

@@ -1,5 +1,10 @@
 ### SB 7.9.45
 
+> यन्मैथुनादिगृहमेधिसुखं हि तुच्छं
+> कण्डूयनेन करयोरिव दुःखदुःखम
+> तृप्यन्ति नेह कृपणा बहुदुःखभाजः
+> कण्डूतिवन्मनसिजं विषहेत धीरः ॥४५॥
+
 > yan maithunādi-gṛhamedhi-sukhaṁ hi tucchaṁ
 > kaṇḍūyanena karayor iva duḥkha-duḥkham
 > tṛpyanti neha kṛpaṇā bahu-duḥkha-bhājaḥ

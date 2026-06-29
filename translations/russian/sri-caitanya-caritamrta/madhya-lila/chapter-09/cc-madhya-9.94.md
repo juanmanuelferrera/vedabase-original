@@ -1,5 +1,8 @@
 ### CC Madhya 9.94
 
+> অষ্টাদশাধ্যায় পড়ে আনন্দ-আবেশে ।
+> অশুদ্ধ পড়েন, লোক করে উপহাসে ॥৯৪॥
+
 > aṣṭādaśādhyāya paḍe ānanda-āveśe
 > aśuddha paḍena, loka kare upahāse
 

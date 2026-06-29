@@ -1,5 +1,8 @@
 ### CC Madhya 15.116
 
+> আমা সবার কৃষ্ণভক্তি রঘুনন্দন হৈতে ।
+> অতএব পিতা — রঘুনন্দন আমার নিশ্চিতে ॥১১৬॥
+
 > āmā sabāra kṛṣṇa-bhakti raghunandana haite
 > ataeva pitā--raghunandana āmāra niścite
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.91
 
+> এইমত প্রেমের সেবা করে অনুপম  ।
+> যাহা দেখি’ সর্বলোকের জুড়ায় নয়ন ॥৯১॥
+
 ei-mata premera sevā kare anupama
 
 yāhā dekhi' sarva-lokera juḍāna nayana

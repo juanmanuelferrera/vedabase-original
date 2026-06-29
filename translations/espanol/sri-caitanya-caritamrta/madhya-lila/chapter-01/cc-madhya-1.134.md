@@ -1,5 +1,8 @@
 ### CC Madhya 1.134
 
+> সবা-সঙ্গে রথযাত্রা কৈল দরশন ।
+> রথ-অগ্রে নৃত্য করি’ উদ্যানে গমন ॥১৩৪॥
+
 > sabā-saṅge ratha-yātrā kaila daraśana
 > ratha-agre nṛtya kari' udyāne gamana
 

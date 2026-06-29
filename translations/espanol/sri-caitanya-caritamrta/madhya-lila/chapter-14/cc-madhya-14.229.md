@@ -1,5 +1,8 @@
 ### CC Madhya 14.229
 
+> শুনি’প্রেমাবেশে নৃত্য করে শ্রীনিবাস ৷
+> কক্ষতালি বাজায়, করে অট্ট-অট্ট হাস ॥২২৯॥
+
 > śuni' premāveśe nṛtya kare śrīnivāsa
 > kakṣa-tāli bājāya, kare aṭṭa-aṭṭa hāsa
 

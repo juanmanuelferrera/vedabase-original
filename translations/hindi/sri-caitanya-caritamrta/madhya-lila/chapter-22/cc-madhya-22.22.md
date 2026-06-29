@@ -1,5 +1,10 @@
 ### CC Madhya 22.22
 
+> শ্রেয়ঃসৃতিং ভক্তিমুদস্য তে বিভো
+> ক্লিশ্যন্তি যে কেবলবোধলব্ধয়ে ।
+> তেষামসৌ ক্লেশল এব শিষ্যতে
+> নান্যদ্ যথা স্থূলতুষাবঘাতিনাম্ ॥২২॥
+
 > śreyaḥ-sṛtiṁ bhaktim udasya te vibho
 > kliśyanti ye kevala-bodha-labdhaye
 > teṣām asau kleśala eva śiṣyate

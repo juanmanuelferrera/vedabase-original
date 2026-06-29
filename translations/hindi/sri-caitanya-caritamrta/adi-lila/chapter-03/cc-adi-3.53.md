@@ -1,5 +1,8 @@
 ### CC Adi 3.53
 
+> শুন, ভাই, এই সব চৈতন্য-মহিমা ।
+> এই শ্লোকে কহে তাঁর মহিমার সীমা ॥৫৩॥
+
 > śuna, bhāi, ei saba caitanya-mahimā
 > ei śloke kahe tāṅra mahimāra sīmā
 

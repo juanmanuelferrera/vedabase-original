@@ -1,5 +1,8 @@
 ### CC Antya 5.34
 
+> তবে মিশ্র রামানন্দের বৃত্তান্ত কহিলা  ।
+> শুনি’ মহাপ্রভু তবে কহিতে লাগিলা ॥৩৪॥
+
 tabe miśra rāmānandera vṛttānta kahilā
 
 śuni' mahāprabhu tabe kahite lāgilā

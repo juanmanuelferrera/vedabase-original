@@ -1,5 +1,8 @@
 ### SB 3.24.46
 
+> आत्मानं सर्वभूतेषु भगवन्तमवस्थितम् ।
+> अपश्यत्सर्वभूतानि भगवत्यपि चात्मनि ॥४६॥
+
 *ātmānaṁ sarva-bhūteṣu
 bhagavantam avasthitam
 apaśyat sarva-bhūtāni

@@ -1,5 +1,8 @@
 ### CC Madhya 19.78
 
+> যমুনার জল দেখি’ চিক্কণ শ্যামল ।
+> প্রেমাবেশে মহাপ্রভু হইলা বিহ্বল ॥৭৮॥
+
 > yamunāra jala dekhi' cikkaṇa śyāmala
 > premāveśe mahāprabhu ha-ilā vihvala
 

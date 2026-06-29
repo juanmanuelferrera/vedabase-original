@@ -1,5 +1,8 @@
 ### CC Madhya 15.28
 
+> বহুমূল্য বস্ত্র প্রভু মস্তকে বান্ধিল  ।
+> আচার্যাদি প্রভুর গণেরে পরাইল ॥২৮॥
+
 > bahu-mūlya vastra prabhu-mastake bāndhila
 > ācāryādi prabhura gaṇere parāila
 

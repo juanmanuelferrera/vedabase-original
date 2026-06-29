@@ -1,5 +1,8 @@
 ### CC Madhya 18.170
 
+> এই যতি ব্যাধিতে কভু হয়েন মূর্চ্ছিত ।
+> অবঁহি চেতন পাইবে, হইবে সম্বিত ॥১৭০॥
+
 > ei yati vyādhite kabhu hayena mūrcchita
 > abaṅhi cetana pāibe, ha-ibe samvita
 

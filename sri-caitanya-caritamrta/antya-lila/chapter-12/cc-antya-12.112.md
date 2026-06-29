@@ -1,5 +1,8 @@
 ### CC Antya 12.112
 
+> শুনি’ প্রভু কহে কিছু সক্রোধ বচন ।
+> মর্দনিয়া এক রাখ করিতে মর্দন ! ॥ ১১২ ॥
+
 > śuni' prabhu kahe kichu sakrodha vacana
 > mardaniyā eka rākha karite mardana!
 

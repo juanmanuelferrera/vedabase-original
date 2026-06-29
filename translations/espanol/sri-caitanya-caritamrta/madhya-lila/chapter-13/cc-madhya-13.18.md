@@ -1,5 +1,8 @@
 ### CC Madhya 13.18
 
+> মহাপ্রভু সুখ পাইল সে-সেবা দেখিতে ।
+> মহাপ্রভুর কৃপা হৈল সে-সেবা হইতে ॥১৮॥
+
 > mahāprabhu sukha pāila se-sevā dekhite
 > mahāprabhura kṛpā haila se-sevā ha-ite
 

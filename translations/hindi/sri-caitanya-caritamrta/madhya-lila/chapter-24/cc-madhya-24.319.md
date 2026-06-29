@@ -1,5 +1,8 @@
 ### CC Madhya 24.319
 
+> প্ৰশ্নোত্তরে ভাগবতে করিয়াছে নির্ধার ।
+> যাঁহার শ্রবণে লোকে লাগে চমৎকার ॥৩১৯॥
+
 > praśnottare bhāgavate kariyāche nirdhāra
 > yāṅhāra śravaṇe loke lāge camatkāra
 

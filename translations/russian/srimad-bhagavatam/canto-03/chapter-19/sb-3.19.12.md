@@ -1,5 +1,8 @@
 ### SB 3.19.12
 
+> स्वपौरुषे प्रतिहते हतमानो महासुरः ।
+> नैच्छद्गदां दीयमानां हरिणा विगतप्रभः ॥१२॥
+
 > sva-pauruṣe pratihate
 > hata-māno mahāsuraḥ
 > naicchad gadāṁ dīyamānāṁ

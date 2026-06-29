@@ -1,5 +1,8 @@
 ### CC Madhya 11.189
 
+> প্রভু কহে, — তোমা স্পর্শি পবিত্র হইতে ৷
+> তোমার পবিত্র ধর্ম নাহিক আমাতে ৷৷ ১৮৯ ৷৷ ॥১৮৯॥
+
 prabhu kahe,-tomā sparśi pavitra ha-ite
 tomāra pavitra dharma nāhika āmāte
 

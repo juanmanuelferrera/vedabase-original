@@ -1,5 +1,8 @@
 ### CC Adi 12.24
 
+> নানা মন্ত্র পড়েন আচার্য, না হয় চেতন ।
+> আচার্যের দুঃখে বৈষ্ণব করেন ক্রন্দন ॥২৪॥
+
 nānā mantra paḍena ācārya, nā haya cetana
 
 ācāryera duḥkhe vaiṣṇava karena krandana

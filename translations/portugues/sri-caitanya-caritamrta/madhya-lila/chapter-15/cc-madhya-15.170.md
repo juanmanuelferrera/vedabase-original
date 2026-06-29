@@ -1,5 +1,10 @@
 ### CC Madhya 15.170
 
+> যস্ত্বিন্দ্রগোপমথবেন্দ্রমহো স্বকর্ম-
+> বন্ধানুরূপফলভাজনমাতনোতি ।
+> কর্মাণি নির্দহতি কিন্তু চ ভক্তিভাজাং
+> গোবিন্দমাদিপুরুষং তমহং ভজামি ॥১৭০॥
+
 yas tv indra-gopam athavendram aho sva-karma-
 
 bandhānurūpa-phala-bhājanam ātanoti

@@ -1,5 +1,8 @@
 ### CC Madhya 9.214
 
+> বিপ্র কহে, — তুমি সাক্ষাৎ শ্রীরঘুনন্দন ।
+> সন্ন্যাসীর বেষে মোরে দিলা দরশন ॥২১৪॥
+
 > vipra kahe,--tumi sākṣāt śrī-raghunandana
 > sannyāsīra veṣe more dilā daraśana
 

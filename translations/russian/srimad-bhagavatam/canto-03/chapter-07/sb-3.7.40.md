@@ -1,5 +1,8 @@
 ### SB 3.7.40
 
+> एतान्मे पृच्छतः प्रश्नान्हरेः कर्मविवित्सया ।
+> ब्रूहि मेऽज्ञस्य मित्रत्वादजया नष्टचक्षुषः ॥४०॥
+
 > etān me pṛcchataḥ praśnān
 > hareḥ karma-vivitsayā
 > brūhi me 'jñasya mitratvād

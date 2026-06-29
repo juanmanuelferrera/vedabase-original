@@ -1,5 +1,7 @@
 ### SB 5.14.18
 
+> क्वचिद्गृहाश्रमकर्मचोदनातिभरगिरिमारुरुक्षमाणो लोकव्यसनकर्षितमनाः कण्टकशर्कराक्षेत्रं प्रविशन्निव सीदति ॥१८॥
+
 > kvacid gṛhāśrama-karma-codanāti-bhara-girim ārurukṣamāṇo loka-vyasana-karṣita-manāḥ kaṇṭaka-śarkarā-kṣetraṁ praviśann iva sīdati.
 
 *kvacit*—sometimes; *gṛha-āśrama*—in householder life; *karma-codana*—of the rules of fruitive activity; *ati-bhara-girim*—the big hill; *ārurukṣamāṇaḥ*—desiring to ascend; *loka*—material; *vyasana*—to pursuits; *karṣita-manāḥ*—whose mind is attracted; *kaṇṭaka-śarkarā-kṣetram*—a field covered with thorns and sharp pebbles; *praviśan*—entering; *iva*—like; *sīdati*—he laments.

@@ -1,5 +1,8 @@
 ### CC Adi 15.29
 
+> পূর্বসিদ্ধ ভাব দুঁহার উদয় করিল ।
+> দৈবে বনমালী ঘটক শচী-স্থানে আইল ॥২৯॥
+
 > pūrva-siddha bhāva duṅhāra udaya karila
 > daive vanamālī ghaṭaka śacī-sthāne āila
 

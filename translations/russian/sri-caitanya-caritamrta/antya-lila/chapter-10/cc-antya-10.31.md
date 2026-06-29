@@ -1,5 +1,8 @@
 ### CC Antya 10.31
 
+> শালি-ধান্যের খই পুনঃ ঘৃতেতে ভাজিয়া ।
+> চিনি-পাক উখ্ড়া কৈলা কর্পূরাদি দিয়া ॥৩১॥
+
 > śāli-dhānyera kha-i punaḥ ghṛtete bhājiyā
 > cini-pāka ukhḍā kailā karpūrādi diyā
 

@@ -1,5 +1,8 @@
 ### CC Antya 3.185
 
+> ঐছে নামোদয়ারম্ভে পাপ-আদির ক্ষয়  ।
+> উদয় কৈলে কৃষ্ণপদে হয় প্রেমোদয় ॥১৮৫॥
+
 > aiche nāmodayārambhe pāpa-ādira kṣaya
 > udaya kaile kṛṣṇa-pade haya premodaya
 

@@ -1,5 +1,8 @@
 ### CC Adi 2.23
 
+> পরব্যোমেতে বৈসে নারায়ণ নাম ।
+> ষড়ৈশ্বর্যপূর্ণ লক্ষ্মীকান্ত ভগবান্ ॥২৩॥
+
 > para-vyomete vaise nārāyaṇa nāma
 > ṣaḍ-aiśvarya-pūrṇa lakṣmī-kānta bhagavān
 

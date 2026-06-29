@@ -1,5 +1,8 @@
 ### CC Antya 16.40
 
+> প্রতিদিন প্রভু যদি যা’ন দরশনে ।
+> জল-করঙ্গ লঞা গোবিন্দ যায় প্রভু-সনে ॥৪০॥
+
 > prati-dina prabhu yadi yā'na daraśane
 > jala-karaṅga lañā govinda yāya prabhu-sane
 

@@ -1,5 +1,8 @@
 ### CC Madhya 22.149
 
+> রাগাত্মিকা-ভক্তি — ‘মুখ্যা’ ব্রজবাসি-জনে ৷
+> তার অনুগত ভক্তির ‘রাগানুগা’-নামে ॥১৪৯॥
+
 > rāgātmikā-bhakti--'mukhyā' vraja-vāsi-jane
 > tāra anugata bhaktira 'rāgānugā'-nāme
 

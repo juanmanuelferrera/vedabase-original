@@ -1,5 +1,8 @@
 ### CC Madhya 24.5
 
+> আত্মারামাশ্চ মুনয়ো নির্গ্রন্থা অপ্যুরুক্রমে ।
+> কুর্বন্ত্যহৈতুকীং ভক্তিমিত্থম্ভূতগুণো হরিঃ ॥৫॥
+
 > ātmārāmāś ca munayo
 > nirgranthā apy urukrame
 > kurvanty ahaitukīṁ bhaktim

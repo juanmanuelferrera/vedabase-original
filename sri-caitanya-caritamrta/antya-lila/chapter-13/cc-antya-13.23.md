@@ -1,5 +1,8 @@
 ### CC Antya 13.23
 
+> প্রভু কহে, — “মথুরা যাইবা আমায় ক্রোধ করি’ ।
+> আমায় দোষ লাগাঞা তুমি হইবা ভিখারী ।।” ॥ ২৩ ॥
+
 > prabhu kahe,—"mathurā yāibā āmāya krodha kari'
 > āmāya doṣa lāgāñā tumi ha-ibā bhikhāri"
 

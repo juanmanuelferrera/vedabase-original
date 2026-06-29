@@ -1,5 +1,8 @@
 ### CC Madhya 9.225
 
+> তমাল-কার্তিক দেখি’ আইল বেতাপনি ।
+> রঘুনাথ দেখি’ তাহাঁ বঞ্চিলা রজনী ॥২২৫॥
+
 > tamāla-kārtika dekhi' āila vetāpani
 > raghunātha dekhi' tāhāṅ vañcilā rajanī
 

@@ -1,5 +1,8 @@
 ### CC Madhya 25.51
 
+> ‘ন্যায়’ কহে, — ‘পরমাণু হৈতে বিশ্ব হয়’ ।
+> ‘মায়াবাদী’ নির্বিশেষ-ব্রহ্মে ‘হেতু’ কয় ॥৫১॥
+
 'nyāya' kahe,-'paramāṇu haite viśva haya'
 
 'māyāvādī' nirviśeṣa-brahme 'hetu' kaya

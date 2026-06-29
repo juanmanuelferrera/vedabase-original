@@ -1,5 +1,8 @@
 ### SB 3.12.11
 
+> हृदिन्द्रियाण्यसुर्व्योम वायुरग्निर्जलं मही ।
+> सूर्यश्चन्द्रस्तपश्चैव स्थानान्यग्रे कृतानि ते ॥११॥
+
 > hṛd indriyāṇy asur vyoma
 > vāyur agnir jalaṁ mahī
 > sūryaś candras tapaś caiva

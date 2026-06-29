@@ -1,5 +1,8 @@
 ### CC Madhya 15.70
 
+> আর দ্রব্য রহু — শুন নারিকেলের কথা  ।
+> পাঁচ গণ্ডা করি’ নারিকেল বিকায় তথা ॥৭০॥
+
 āra dravya rahu--śuna nārikelera kathā
 
 pāṅca gaṇḍā kari' nārikela vikāya tathā

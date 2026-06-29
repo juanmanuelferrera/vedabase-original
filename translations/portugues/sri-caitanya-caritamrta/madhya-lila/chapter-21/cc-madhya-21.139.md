@@ -1,5 +1,8 @@
 ### CC Madhya 21.139
 
+> মধুর হৈতে সুমধুর, তাহা হৈতে সুমধুর, তাহা হৈতে অতি সুমধুর  ।
+> আপনার এক কণে, ব্যাপে সব ত্রিভুবনে, দশদিক্ ব্যাপে যার পূর ॥১৩৯॥
+
 madhura haite sumadhura, tāhā haite sumadhura,
 
 tāhā haite ati sumadhura

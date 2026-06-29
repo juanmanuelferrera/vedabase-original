@@ -1,5 +1,8 @@
 ### SB 4.12.3
 
+> न भवानवधीद्यक्षान्न यक्षा भ्रातरं तव ।
+> काल एव हि भूतानां प्रभुरप्ययभावयोः ॥३॥
+
 > na bhavān avadhīd yakṣān
 > na yakṣā bhrātaraṁ tava
 > kāla eva hi bhūtānāṁ

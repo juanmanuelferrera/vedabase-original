@@ -1,5 +1,8 @@
 ### SB 3.15.6
 
+> ये त्वानन्येन भावेन भावयन्त्यात्मभावनम् ।
+> आत्मनि प्रोतभुवनं परं सदसदात्मकम् ॥६॥
+
 > ye tvānanyena bhāvena
 > bhāvayanty ātma-bhāvanam
 > ātmani prota-bhuvanaṁ

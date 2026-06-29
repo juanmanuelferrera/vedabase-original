@@ -1,5 +1,8 @@
 ### CC Madhya 20.118
 
+> কভু স্বর্গে উঠায়, কভু নরকে ডুবায় ।
+> দণ্ড্যজনে রাজা যেন নদীতে চুবায় ॥১১৮॥
+
 > kabhu svarge uṭhāya, kabhu narake ḍubāya
 > daṇḍya-jane rājā yena nadīte cubāya
 

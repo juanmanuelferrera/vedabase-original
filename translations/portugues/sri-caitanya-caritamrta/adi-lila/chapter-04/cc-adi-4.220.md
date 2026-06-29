@@ -1,5 +1,8 @@
 ### CC Adi 4.220
 
+> সেই রাধার ভাব লঞা চৈতন্যাবতার ।
+> যুগধর্ম নাম-প্রেম কৈল পরচার ॥২২০॥
+
 sei rādhāra bhāva lañā caitanyāvatāra
 yuga-dharma nāma-prema kaila paracāra
 

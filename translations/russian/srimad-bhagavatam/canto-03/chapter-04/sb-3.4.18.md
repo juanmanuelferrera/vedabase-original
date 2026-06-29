@@ -1,5 +1,8 @@
 ### SB 3.4.18
 
+> ज्ञानं परं स्वात्मरहःप्रकाशं प्रोवाच कस्मै भगवान्समग्रम् ।
+> अपि क्षमं नो ग्रहणाय भर्तर्वदाञ्जसा यद्वृजिनं तरेम ॥१८॥
+
 > jñānaṁ paraṁ svātma-rahaḥ-prakāśaṁ
 > provāca kasmai bhagavān samagram
 > api kṣamaṁ no grahaṇāya bhartar

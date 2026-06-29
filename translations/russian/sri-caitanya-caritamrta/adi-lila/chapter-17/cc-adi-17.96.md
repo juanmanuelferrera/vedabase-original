@@ -1,5 +1,8 @@
 ### CC Adi 17.96
 
+> শ্রীবাস বলেন, — যে তোমার নাম লয় ।
+> তার কোটি অপরাধ সব হয় ক্ষয় ॥৯৬॥
+
 > śrīvāsa balena,—ye tomāra nāma laya
 > tāra koṭi aparādha saba haya kṣaya
 

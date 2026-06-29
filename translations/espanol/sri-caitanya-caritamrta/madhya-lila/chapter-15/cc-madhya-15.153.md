@@ -1,5 +1,8 @@
 ### CC Madhya 15.153
 
+> সাধু সাধু, গুপ্ত, তোমার সুদৃঢ় ভজন  ।
+> আমার বচনেহ তোমার না টলিল মন ॥১৫৩॥
+
 > sādhu sādhu, gupta, tomāra sudṛḍha bhajana
 > āmāra vacaneha tomāra nā ṭalila mana
 

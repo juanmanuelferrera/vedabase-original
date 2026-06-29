@@ -1,5 +1,8 @@
 ### CC Antya 2.91
 
+> আচার্য-সম্বন্ধে বাহ্যে করে প্রীত্যাভাস ।
+> কৃষ্ণভক্তি বিনা প্রভুর না হয় উল্লাস ॥৯১॥
+
 ācārya-sambandhe bāhye kare prītyābhāsa
 
 kṛṣṇa-bhakti vinā prabhura nā haya ullāsa

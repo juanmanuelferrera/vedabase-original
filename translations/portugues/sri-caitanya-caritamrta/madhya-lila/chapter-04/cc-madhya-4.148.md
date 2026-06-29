@@ -1,5 +1,8 @@
 ### CC Madhya 4.148
 
+> যদ্যপি উদ্বেগ হৈল পলাইতে মন ।
+> ঠাকুরের চন্দন-সাধন হইল বন্ধন ॥১৪৮॥
+
 yadyapi udvega haila palāite mana
 ṭhākurera candana-sādhana ha-ila bandhana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 8.76
 
+> প্রভু কহে, — “এহো উত্তম, আগে কহ আর ৷”
+> রায় কহে, “বাৎসল্য-প্রেম — সর্বসাধ্যসার ৷৷” ৭৬ ৷৷ ॥৭৬॥
+
 prabhu kahe,--"eho uttama, āge kaha āra"
 rāya kahe, "vātsalya-prema--sarva-sādhya-sāra"
 

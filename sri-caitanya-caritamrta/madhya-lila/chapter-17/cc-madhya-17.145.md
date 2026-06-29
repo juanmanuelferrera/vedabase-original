@@ -1,5 +1,8 @@
 ### CC Madhya 17.145
 
+> ভারী বোঝা লঞা আইলাঙ, কেমনে লঞা যাব ?
+> অল্প-স্বল্প-মূল্য পাইলে, এথাই বেচিব ॥১৪৫॥
+
 > bhārī bojhā lañā āilāṅa, kemane lañā yāba?
 > alpa-svalpa-mūlya pāile, ethāi veciba
 

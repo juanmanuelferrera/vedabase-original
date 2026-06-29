@@ -1,5 +1,8 @@
 ### CC Antya 20.28
 
+> প্রেমের স্বভাব — যাহাঁ প্রেমের সম্বন্ধ ।
+> সেই মানে, — ‘কৃষ্ণে মোর নাহি প্রেম-গন্ধ’ ॥২৮॥
+
 premera svabhāva--yāhāṅ premera sambandha
 
 sei māne,--'kṛṣṇe mora nāhi prema-gandha'

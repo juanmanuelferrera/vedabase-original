@@ -1,5 +1,8 @@
 ### CC Adi 4.269
 
+> সর্বভাবে কৈল কৃষ্ণ এই ত’ নিশ্চয় ।
+> হেনকালে আইল যুগাবতার-সময় ॥২৬৯॥
+
 > sarva-bhāve kaila kṛṣṇa ei ta' niścaya
 > hena-kāle āila yugāvatāra-samaya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 17.160
 
+> লোক ‘হরি’ ‘হরি’ বলে, কোলাহল হৈল ।
+> ‘কেশব’-সেবক প্রভুকে মালা পরাইল ॥১৬০॥
+
 > loka 'hari' 'hari' bale, kolāhala haila
 > 'keśava'-sevaka prabhuke mālā parāila
 

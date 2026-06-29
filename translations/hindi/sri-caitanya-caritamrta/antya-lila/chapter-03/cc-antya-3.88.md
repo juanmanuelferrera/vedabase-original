@@ -1,5 +1,8 @@
 ### CC Antya 3.88
 
+> তোমার যে লীলা মহা-অমৃতের সিন্ধু  ।
+> মোর মনোগোচর নহে তার এক বিন্দু ।।” ৮৮ ॥৮৮॥
+
 > tomāra ye līlā mahā-amṛtera sindhu
 > mora mano-gocara nahe tāra eka bindu"
 

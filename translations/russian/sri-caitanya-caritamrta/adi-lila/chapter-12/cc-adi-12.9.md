@@ -1,5 +1,8 @@
 ### CC Adi 12.9
 
+> কেহ ত’ আচার্য আজ্ঞায়, কেহ ত’ স্বতন্ত্র ।
+> স্বমত কল্পনা করে দৈব-পরতন্ত্র ॥৯॥
+
 > keha ta' ācārya ājñāya, keha ta' svatantra
 > sva-mata kalpanā kare daiva-paratantra
 

@@ -1,5 +1,7 @@
 ### SB 5.26.32
 
+> ये त्विह वा अनागसोऽरण्ये ग्रामे वा वैश्रम्भकैरुपसृतानुपविश्रम्भय्य जिजीविषून्शूलसूत्रादिषूपप्रोतान्क्रीडनकतया यातयन्ति तेऽपि च प्रेत्य यमयातनासु शूलादिषु प्रोतात्मानः क्षुत्तृड्भ्यांचाभिहताः कङ्कवटादिभिश्चेतस्ततस्तिग्मतुण्डैराहन्यमाना आत्मशमलं स्मरन्ति ॥३१॥
+
 > ye tv iha vā anāgaso 'raṇye grāme vā vaiśrambhakair upasṛtān upaviśrambhayya jijīviṣūn śūla-sūtrādiṣūpaprotān krīḍanakatayā yātayanti te 'pi ca pretya yama-yātanāsu śūlādiṣu protātmānaḥ kṣut-tṛḍbhyāṁ cābhihatāḥ kaṅka-vaṭādibhiś cetas tatas tigma-tuṇḍair āhanyamānā ātma-śamalaṁ smaranti.
 
 *ye*—personas que; *tu*—pero; *iha*—en esta vida; *vā*—o; *anāgasaḥ*—que están libres de culpa; *araṇye*—en el bosque; *grāme*—en la aldea; *vā*—o; *vaiśrambhakaiḥ*—con buena fe; *upasṛtān*—venidas cerca; *upaviśrambhayya*—inspirándoles confianza; *jijīviṣūn*—que desean ser protegidos; *śūla-sūtra-ādiṣu*—con una lanza, lazo, etc.; *upaprotān*—inmovilizados; *krīḍanakatayā*—como un juguete; *yātayanti*—causan dolor; *te*—esas personas; *api*—ciertamente; *ca*—y; *pretya*—después de morir; *yama-yātanāsu*—las persecuciones de Yamarāja; *śūla-ādiṣu*—con lanzas, etc.; *prota-ātmānaḥ*—cuyos cuerpos están inmovilizados; *kṣut-tṛḍbhyām*—con hambre y sed; *ca*—también; *abhihatāḥ*—abrumadas; *kaṅka-vaṭa-ādibhiḥ*—por aves como las garzas y los buitres; *ca*—y; *itaḥ tataḥ*—aquí y allí; *tigma-tuṇḍaiḥ*—de picos afilados; *āhanyamānāḥ*—torturadas; *ātma-śamalam*—actividades pecaminosas propias; *smaranti*—recuerdan.

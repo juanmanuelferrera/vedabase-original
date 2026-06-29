@@ -1,5 +1,8 @@
 ### CC Madhya 24.272
 
+> নারদ কহে, — “ব্যাধ, এই না হয় আশ্চর্য ।
+> হরিভক্ত্যে হিংসা-শূন্য হয় সাধুবর্য ॥২৭২॥
+
 > nārada kahe,--"vyādha, ei nā haya āścarya
 > hari-bhaktye hiṁsā-śūnya haya sādhu-varya
 

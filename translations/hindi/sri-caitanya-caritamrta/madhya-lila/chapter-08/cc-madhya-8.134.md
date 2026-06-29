@@ -1,5 +1,8 @@
 ### CC Madhya 8.134
 
+> পরম ঈশ্বর কৃষ্ণ — স্বয়ং ভগবান্ ।
+> সর্ব-অবতারী, সর্বকারণ-প্রধান ॥১৩৪॥
+
 > parama īśvara kṛṣṇa--svayaṁ bhagavān
 > sarva-avatārī, sarva-kāraṇa-pradhāna
 

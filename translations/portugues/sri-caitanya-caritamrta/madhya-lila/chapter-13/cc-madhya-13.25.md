@@ -1,5 +1,8 @@
 ### CC Madhya 13.25
 
+> সূক্ষ্ম শ্বেতবালু পথে পুলিনের সম ।
+> দুই দিকে টোটা, সব — যেন বৃন্দাবন ॥২৫॥
+
 sūkṣma śveta-bālu pathe pulinera sama
 
 dui dike ṭoṭā, saba-yena vṛndāvana

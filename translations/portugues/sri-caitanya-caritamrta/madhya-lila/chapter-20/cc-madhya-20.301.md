@@ -1,5 +1,8 @@
 ### CC Madhya 20.301
 
+> ব্রহ্মা, বিষ্ণু, শিব, — তিন গুণ অবতার ।
+> ত্রিগুণ অঙ্গীকরি’ করে সৃষ্ট্যাদি-ব্যবহার ॥৩০১॥
+
 brahmā, viṣṇu, śiva,--tina guṇa avatāra
 
 tri-guṇa aṅgīkari' kare sṛṣṭy-ādi-vyavahāra

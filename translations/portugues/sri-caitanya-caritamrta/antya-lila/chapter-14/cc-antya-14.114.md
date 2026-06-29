@@ -1,5 +1,8 @@
 ### CC Antya 14.114
 
+> নিপট্ট-বাহ্য হইলে প্রভু দুঁহারে বন্দিলা ।
+> মহাপ্রভুরে দুইজন প্রেমালিঙ্গন কৈলা ॥১১৪॥
+
 nipaṭṭa-bāhya ha-ile prabhu duṅhāre vandilā
 
 mahāprabhure dui-jana premāliṅgana kailā

@@ -1,5 +1,8 @@
 ### SB 4.2.21
 
+> य एतन्मर्त्यमुद्दिश्य भगवत्यप्रतिद्रुहि ।
+> द्रुह्यत्यज्ञः पृथग्दृष्टिस्तत्त्वतो विमुखो भवेत् ॥२१॥
+
 > ya etan martyam uddiśya
 > bhagavaty apratidruhi
 > druhyaty ajñaḥ pṛthag-dṛṣṭis

@@ -1,5 +1,8 @@
 ### CC Adi 7.48
 
+> তাঁরে শিখাইলা সব বৈষ্ণবের ধর্ম ।
+> ভাগবত-আদি শাস্ত্রের যত গূঢ় মর্ম ॥৪৮॥
+
 > tāṅre śikhāilā saba vaiṣṇavera dharma
 > bhāgavata-ādi śāstrera yata gūḍha marma
 

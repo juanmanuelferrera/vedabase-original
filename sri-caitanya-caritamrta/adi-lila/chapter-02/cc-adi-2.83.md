@@ -1,5 +1,8 @@
 ### CC Adi 2.83
 
+> কৃষ্ণের স্বয়ং-ভগবত্তা — ইহা হৈল সাধ্য ।
+> স্বয়ং-ভগবানের কৃষ্ণত্ব হৈল বাধ্য ॥৮৩॥
+
 > kṛṣṇera svayaṁ-bhagavattā—ihā haila sādhya
 > svayaṁ-bhagavānera kṛṣṇatva haila bādhya
 

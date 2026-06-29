@@ -1,5 +1,8 @@
 ### CC Madhya 16.189
 
+> গো-ব্রাহ্মণ-বৈষ্ণবে হিংসা কর্যাছি অপার ।
+> সেই পাপ হইতে মোর হউক নিস্তার ॥১৮৯॥
+
 go-brāhmaṇa-vaiṣṇave hiṁsā karyāchi apāra
 
 sei pāpa ha-ite mora ha-uka nistāra

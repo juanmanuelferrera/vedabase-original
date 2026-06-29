@@ -1,5 +1,8 @@
 ### CC Antya 9.132
 
+> ‘নেতধটী’-মাথে গোপীনাথ চরণে পড়িলা ।
+> রাজার কৃপা-বৃত্তান্ত সকল কহিলা ॥১৩২॥
+
 > 'netadhaṭī'-māthe gopīnātha caraṇe paḍilā
 > rājāra kṛpā-vṛttānta sakala kahilā
 

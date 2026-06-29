@@ -1,5 +1,8 @@
 ### CC Madhya 12.98
 
+> খাপরা ভরিয়া জল ঊর্ধ্বে চালাইল ।
+> সেই জলে ঊর্ধ্ব শোধি ভিত্তি প্রক্ষালিল ॥৯৮॥
+
 > khāparā bhariyā jala ūrdhve cālāila
 > sei jale ūrdhva śodhi bhitti prakṣālila
 

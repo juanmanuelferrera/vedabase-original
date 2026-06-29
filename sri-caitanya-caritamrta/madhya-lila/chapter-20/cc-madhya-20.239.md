@@ -1,5 +1,8 @@
 ### CC Madhya 20.239
 
+> নারায়ণ-ভেদে নানা অস্ত্র-ভেদ-ধর ।
+> ইত্যাদিক ভেদ এই সব অস্ত্রকর ॥২৩৯॥
+
 > nārāyaṇa-bhede nānā astra-bheda-dhara
 > ityādika bheda ei saba astra-kara
 

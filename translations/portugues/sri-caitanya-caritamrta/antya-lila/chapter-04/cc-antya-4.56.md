@@ -1,5 +1,8 @@
 ### CC Antya 4.56
 
+> দেহত্যাগে কৃষ্ণ না পাই, পাইয়ে ভজনে ।
+> কৃষ্ণপ্রাপ্ত্যের উপায় কোন নাহি ‘ভক্তি’ বিনে ॥৫৬॥
+
 deha-tyāge kṛṣṇa nā paī, pāiye bhajane
 
 kṛṣṇa-prāptyera upāya kona nāhi 'bhakti' vine

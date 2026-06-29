@@ -1,5 +1,8 @@
 ### CC Madhya 8.105
 
+> গোপীগণের রাস-নৃত্য-মণ্ডলী ছাড়িয়া ৷
+> রাধা চাহি’ বনে ফিরে বিলাপ করিয়া ৷৷ ১০৫ ৷৷ ॥১০৫॥
+
 > gopī-gaṇera rāsa-nṛtya-maṇḍalī chāḍiyā
 > rādhā cāhi' vane phire vilāpa kariyā
 

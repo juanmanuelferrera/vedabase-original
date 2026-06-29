@@ -1,5 +1,8 @@
 ### CC Madhya 1.43
 
+> শ্রীভাগবতসন্দর্ভ-নাম গ্রন্থ-বিস্তার ।
+> ভক্তিসিদ্ধান্তের তাতে দেখাইয়াছেন পার ॥৪৩॥
+
 > śrī-bhāgavata-sandarbha-nāma grantha-vistāra
 > bhakti-siddhāntera tāte dekhāiyāchena pāra
 

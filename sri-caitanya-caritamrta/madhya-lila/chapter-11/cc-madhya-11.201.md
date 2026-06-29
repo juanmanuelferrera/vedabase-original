@@ -1,5 +1,8 @@
 ### CC Madhya 11.201
 
+> প্রভু না খাইলে কেহ না করে ভোজন ।
+> ঊর্ধ্ব-হস্তে বসি’ রহে সর্ব ভক্তগণ ॥২০১॥
+
 > prabhu nā khāile keha nā kare bhojana
 > ūrdhva-haste vasi' rahe sarva bhakta-gaṇa
 

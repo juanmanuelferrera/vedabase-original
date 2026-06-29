@@ -1,5 +1,8 @@
 ### CC Antya 9.92
 
+> রাজ-কড়ি না দেয়, আমারে ফুকারে ।
+> এই মহাদুঃখ ইঁহা কে সহিতে পারে ? ॥ ৯২ ॥
+
 rājā-kaḍi nā deya, āmāre phukāre
 
 ei mahā-duḥkha ihāṅ ke sahite pāre?

@@ -1,5 +1,8 @@
 ### CC Adi 5.128
 
+> অবতার-অবতারী — অভেদ, যে জানে ।
+> পূর্বে যৈছে কৃষ্ণকে কেহো কাহো করি’ মানে ॥১২৮॥
+
 avatāra-avatārī--abheda, ye jāne
 
 pūrve yaiche kṛṣṇake keho kāho kari' māne

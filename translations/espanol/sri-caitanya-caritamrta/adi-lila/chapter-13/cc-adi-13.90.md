@@ -3,6 +3,9 @@
 > siṁha-rāśi, siṁha-lagna, ucca graha-gaṇa
 > ṣaḍ-varga, aṣṭa-varga, sarva sulakṣaṇa
 
+> siṁha-rāśi, siṁha-lagna, ucca graha-gaṇa
+> ṣaḍ-varga, aṣṭa-varga, sarva sulakṣaṇa
+
 *siṁha*—el león; *rāśi*—signo del zodíaco; *siṁha*—el león; *lagna*—momento del nacimiento; *ucca*—elevados; *graha-gaṇa*—todos los planetas; *ṣaṭ-varga*—seis áreas; *aṣṭa-varga*—ocho áreas; *sarva*—todo; *su-lakṣaṇa*—propicio.
 
 **Según el *Jyotir-veda*, o astronomía Védica, cuando la figura del león aparece tanto en el zodíaco como en el momento del nacimiento [*lagna*], esto indica una conjunción de planetas muy elevada, un área bajo la influencia de *ṣaḍ-varga* y *aṣṭa-varga*, lo cual constituye un momento enteramente propicio.**

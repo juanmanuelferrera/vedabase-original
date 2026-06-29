@@ -1,5 +1,8 @@
 ### CC Adi 16.81
 
+> ঈশ্বর-অচিন্ত্যশক্ত্যে গঙ্গার প্রকাশ ।
+> ইহাতে বিরোধ নাহি, বিরোধ-আভাস ॥৮১॥
+
 īśvara-acintya-śaktye gaṅgāra prakāśa
 
 ihāte virodha nāhi, virodha-ābhāsa

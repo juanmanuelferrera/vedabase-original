@@ -1,5 +1,8 @@
 ### CC Adi 17.223
 
+> শুনি’ প্রভু ‘হরি’ বলি’ উঠিলা আপনি ।
+> উঠিল বৈষ্ণব সব করি’ হরি-ধ্বনি ॥২২৩॥
+
 śuni' prabhu 'hari' bali' uṭhilā āpani
 uṭhila vaiṣṇava saba kari' hari-dhvani
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.75
 
+> কৃষ্ণ সেই নারিকেল-জল পান করি’ ।
+> কভু শূন্য ফল রাখেন, কভু জল ভরি’ ॥৭৫॥
+
 > kṛṣṇa sei nārikela-jala pāna kari'
 > kabhu śūnya phala rākhena, kabhu jala bhari'
 

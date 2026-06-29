@@ -1,5 +1,10 @@
 ### 9
 
+> वैकुण्ठाज्जनितो वरा मधुपुरी तत्रापि रासोत्सवाद्
+> वृन्दारण्यमुदारपाणिरमणात्तत्रापि गोवर्धनः ।
+> राधाकुन्डमिहापि गोकुलापतेः प्रेमामृताप्लावनात्
+> कुर्यादस्य विराजतो गिरितटे सेवां विवेकी न् कः ॥९॥
+
 > vaikuṇṭhāj janito varā madhu-purī tatrāpi rāsotsavād
 > vṛndāraṇyam udāra-pāṇi-ramaṇāt tatrāpi govardhanaḥ
 > rādhā-kuṇḍam ihāpi gokula-pateḥ premāmṛtāplāvanāt

@@ -1,5 +1,8 @@
 ### SB 3.2.14
 
+> यस्यानुरागप्लुतहासरास लीलावलोकप्रतिलब्धमानाः ।
+> व्रजस्त्रियो दृग्भिरनुप्रवृत्त धियोऽवतस्थुः किल कृत्यशेषाः ॥१४॥
+
 > yasyānurāga-pluta-hāsa-rāsa-
 > līlāvaloka-pratilabdha-mānāḥ
 > vraja-striyo dṛgbhir anupravṛtta-

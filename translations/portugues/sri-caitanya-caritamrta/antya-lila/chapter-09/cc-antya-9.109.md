@@ -1,5 +1,8 @@
 ### CC Antya 9.109
 
+> ‘রাজ্য-বিষয়’-ফল এই — কৃপার ‘আভাসে’ !
+> তাহার গণনা কারো মনে নাহি আইসে ! ॥ ১০৯ ॥
+
 'rājya-viṣaya'-phala ei--kṛpāra 'ābhāse'!
 
 tāhāra gaṇanā kāro mane nāhi āise!

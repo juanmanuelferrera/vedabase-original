@@ -1,5 +1,8 @@
 ### SB 1.16.24
 
+> इदं ममाचक्ष्व तवाधिमूलं वसुन्धरे येन विकर्शितासि ।
+> कालेन वा ते बलिनां बलीयसा सुरार्चितं किं हृतमम्ब सौभगम् ॥२४॥
+
 > idaṁ mamācakṣva tavādhi-mūlaṁ
 > vasundhare yena vikarśitāsi
 > kālena vā te balināṁ balīyasā

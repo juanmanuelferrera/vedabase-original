@@ -1,5 +1,8 @@
 ### CC Madhya 17.198
 
+> মৃগ-মৃগী মুখ দেখি’ প্রভু-অঙ্গ চাটে ।
+> ভয় নাহি করে, সঙ্গে যায় বাটে-বাটে ॥১৯৮॥
+
 mṛga-mṛgī mukha dekhi' prabhu-aṅga cāṭe
 
 bhaya nāhi kare, saṅge yāya vāṭe-vāṭe

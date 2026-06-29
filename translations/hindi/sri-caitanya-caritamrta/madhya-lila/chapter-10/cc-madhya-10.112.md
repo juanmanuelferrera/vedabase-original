@@ -1,5 +1,8 @@
 ### CC Madhya 10.112
 
+> গ্রন্থ, শ্লোক, গীত কেহ প্রভু-পাশে আনে ।
+> স্বরূপ পরীক্ষা কৈলে, পাছে প্রভু শুনে ॥১১২॥
+
 > grantha, śloka, gīta keha prabhu-pāśe āne
 > svarūpa parīkṣā kaile, pāche prabhu śune
 

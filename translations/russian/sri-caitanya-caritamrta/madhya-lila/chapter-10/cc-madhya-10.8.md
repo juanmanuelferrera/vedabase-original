@@ -1,5 +1,8 @@
 ### CC Madhya 10.8
 
+> বিরক্ত সন্ন্যাসী তেঁহো রহেন নির্জনে ।
+> স্বপ্নেহ না করেন তেঁহো রাজদরশনে ॥৮॥
+
 > virakta sannyāsī teṅho rahena nirjane
 > svapneha nā karena teṅho rāja-daraśane
 

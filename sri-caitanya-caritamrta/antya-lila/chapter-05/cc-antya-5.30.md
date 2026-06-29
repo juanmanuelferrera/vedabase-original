@@ -1,5 +1,8 @@
 ### CC Antya 5.30
 
+> তোমার আগমনে মোর পবিত্র হৈল ঘর  ।
+> আজ্ঞা কর, ক্যা করোঁ তোমার কিঙ্কর ।।” ৩০ ॥৩০॥
+
 > tomāra āgamane mora pavitra haila ghara
 > ājñā kara, kyā karoṅ tomāra kiṅkara"
 

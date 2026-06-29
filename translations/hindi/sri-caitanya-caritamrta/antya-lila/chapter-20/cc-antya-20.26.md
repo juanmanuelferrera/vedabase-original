@@ -1,5 +1,8 @@
 ### CC Antya 20.26
 
+> এইমত হঞা যেই কৃষ্ণনাম লয় ।
+> শ্রীকৃষ্ণচরণে তাঁর প্রেম উপজয় ॥২৬॥
+
 > ei-mata hañā yei kṛṣṇa-nāma laya
 > śrī-kṛṣṇa-caraṇe tāṅra prema upajaya
 

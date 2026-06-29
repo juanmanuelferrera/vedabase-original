@@ -1,5 +1,8 @@
 ### CC Antya 7.137
 
+> অপরাধ ছাড়ি’ কর কৃষ্ণসঙ্কীর্তন ।
+> অচিরাৎ পাবে তবে কৃষ্ণের চরণ ।।” ॥ ১৩৭ ॥
+
 > aparādha chāḍi' kara kṛṣṇa-saṅkīrtana
 > acirāt pābe tabe kṛṣṇera caraṇa"
 

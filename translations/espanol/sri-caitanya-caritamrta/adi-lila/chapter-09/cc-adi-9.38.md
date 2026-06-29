@@ -1,5 +1,8 @@
 ### CC Adi 9.38
 
+> আত্ম-ইচ্ছামৃতে বৃক্ষ সিঞ্চি নিরন্তর ।
+> তাহাতে অসংখ্য ফল বৃক্ষের উপর ॥৩৮॥
+
 > ātma-icchāmṛte vṛkṣa siñci nirantara
 > tāhāte asaṅkhya phala vṛkṣera upara
 

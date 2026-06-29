@@ -1,5 +1,8 @@
 ### CC Antya 9.49
 
+> রাজা কহে, — “এই বাত্ আমি নাহি জানি ।
+> প্রাণ কেনে লইব, তার দ্রব্য চাহি আমি ॥৪৯॥
+
 > rājā kahe,—"ei vāt āmi nāhi jāni
 > prāṇa kene la-iba, tāra dravya cāhi āmi
 

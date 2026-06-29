@@ -1,5 +1,8 @@
 ### CC Adi 17.4
 
+> বিদ্যা-সৌন্দর্য-সদ্বেশ-সম্ভোগ-নৃত্য কীর্তনৈঃ ।
+> প্রেমনামপ্রদানৈশ্চ গৌরো দীব্যতি যৌবনে ॥৪॥
+
 vidyā-saundarya-sad-veśa-
 sambhoga-nṛtya-kīrtanaiḥ
 prema-nāma-pradānaiś ca

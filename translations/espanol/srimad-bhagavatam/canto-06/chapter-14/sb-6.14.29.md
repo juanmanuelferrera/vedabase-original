@@ -1,5 +1,8 @@
 ### SB 6.14.29
 
+> अथाह नृपतिं राजन्भवितैकस्तवात्मजः
+> हर्षशोकप्रदस्तुभ्यमिति ब्रह्मसुतो ययौ ॥२९॥
+
 > athāha nṛpatiṁ rājan
 > bhavitaikas tavātmajaḥ
 > harṣa-śoka-pradas tubhyam

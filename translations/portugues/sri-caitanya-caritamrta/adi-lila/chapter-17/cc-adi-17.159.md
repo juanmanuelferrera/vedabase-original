@@ -1,5 +1,8 @@
 ### CC Adi 17.159
 
+> প্রভু কহে, — বেদে কহে গোবধ নিষেধ  ।
+> অতএব হিন্দুমাত্র না করে গোবধ ॥১৫৯॥
+
 prabhu kahe,--vede kahe go-vadha niṣedha
 
 ataeva hindu-mātra nā kare go-vadha

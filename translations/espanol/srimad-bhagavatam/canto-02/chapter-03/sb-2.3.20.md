@@ -1,5 +1,8 @@
 ### SB 2.3.20
 
+> बिले बतोरुक्रमविक्रमान्ये न शृण्वतः कर्णपुटे नरस्य ।
+> जिह्वासती दार्दुरिकेव सूत न चोपगायत्युरुगायगाथाः ॥२०॥
+
 > bile batorukrama-vikramān ye
 > na śṛṇvataḥ karṇa-puṭe narasya
 > jihvāsatī dārdurikeva sūta

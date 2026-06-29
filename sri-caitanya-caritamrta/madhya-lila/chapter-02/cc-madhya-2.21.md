@@ -1,5 +1,10 @@
 ### CC Madhya 2.21
 
+> কুটিল প্রেমা অগেয়ান, নাহি জানে স্থানাস্থান,
+> ভাল-মন্দ নারে বিচারিতে ।
+> ক্রূর শঠের গুণডোরে, হাতে-গলে বান্ধি’ মোরে,
+> রাখিয়াছে, নারি’ উকাশিতে ॥২১॥
+
 > kuṭila premā ageyāna, nāhi jāne sthānāsthāna,
 > bhāla-manda nāre vicārite
 > krūra śaṭhera guṇa-ḍore, hāte-gale bāndhi' more,

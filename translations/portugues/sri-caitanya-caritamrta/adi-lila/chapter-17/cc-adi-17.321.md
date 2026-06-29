@@ -1,5 +1,8 @@
 ### CC Adi 17.321
 
+> অষ্টমে ‘চৈতন্যলীলা-বর্ণন’-কারণ ।
+> এক কৃষ্ণনামের মহা-মহিমা-কথন ॥৩২১॥
+
 aṣṭame 'caitanya-līlā-varṇana'-kāraṇa
 eka kṛṣṇa-nāmera mahā-mahimā-kathana
 

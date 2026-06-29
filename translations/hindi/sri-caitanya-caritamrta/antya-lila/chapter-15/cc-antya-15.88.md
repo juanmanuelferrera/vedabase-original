@@ -1,5 +1,8 @@
 ### CC Antya 15.88
 
+> সেই পদ পুনঃ পুনঃ করায় গায়ন ।
+> পুনঃ পুনঃ আস্বাদয়ে, করেন নর্তন ॥৮৮॥
+
 > sei pada punaḥ punaḥ karāya gāyana
 > punaḥ punaḥ āsvādaye, karena nartana
 

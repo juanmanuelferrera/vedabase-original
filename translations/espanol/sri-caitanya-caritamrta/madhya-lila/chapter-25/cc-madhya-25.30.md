@@ -1,5 +1,8 @@
 ### CC Madhya 25.30
 
+> ভক্তি বিনা মুক্তি নহে, ভাগবতে কয় ।
+> কলিকালে নামাভাসে সুখে মুক্তি হয় ॥৩০॥
+
 > bhakti vinā mukti nahe, bhāgavate kaya
 > kali-kāle nāmābhāse sukhe mukti haya
 > SYNONYMS

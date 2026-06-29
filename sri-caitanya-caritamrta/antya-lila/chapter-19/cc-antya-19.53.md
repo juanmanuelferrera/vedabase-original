@@ -1,5 +1,10 @@
 ### CC Antya 19.53
 
+> এইমত গৌর-রায়, বিষাদে করে হায় হায়,
+> ‘হা হা কৃষ্ণ, তুমি গেলা কতি ?’
+> গোপীভাব হৃদয়ে, তার বাক্যে বিলাপয়ে,
+> ‘গোবিন্দ দামোদর মাধবেতি’ ॥৫৩॥
+
 > ei-mata gaura-rāya, viṣāde kare hāya hāya,
 > 'hā hā kṛṣṇa, tumi gelā kati?'
 > gopī-bhāva hṛdaye, tāra vākye vilāpaye,

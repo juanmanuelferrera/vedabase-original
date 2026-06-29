@@ -1,5 +1,8 @@
 ### CC Antya 3.32
 
+> এই-মাঘ-সংক্রান্ত্যে তুমি রন্ধন করিলা  ।
+> নানা ব্যঞ্জন, ক্ষীর, পিঠা, পায়স রান্ধিলা ॥৩২॥
+
 > ei māgha-saṅkrāntye tumi randhana karilā
 > nānā vyañjana, kṣīra, piṭhā, pāyasa rāndhilā
 

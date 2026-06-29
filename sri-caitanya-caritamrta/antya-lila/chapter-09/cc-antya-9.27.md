@@ -1,5 +1,8 @@
 ### CC Antya 9.27
 
+> শুনি’ রাজপুত্র-মনে ক্রোধ উপজিল ।
+> রাজার ঠাঞি যাই’ বহু লাগানি করিল ॥২৭॥
+
 > śuni' rājaputra-mane krodha upajila
 > rājāra ṭhāñi yāi' bahu lāgāni karila
 

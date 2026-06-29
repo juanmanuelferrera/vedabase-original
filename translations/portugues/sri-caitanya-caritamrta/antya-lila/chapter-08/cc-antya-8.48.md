@@ -1,5 +1,8 @@
 ### CC Antya 8.48
 
+> একদিন প্রাতঃকালে আইলা প্রভুর ঘর ।
+> পিপীলিকা দেখি’ কিছু কহেন উত্তর ॥৪৮॥
+
 eka-dina prātaḥ-kāle āilā prabhura ghara
 
 pipīlikā dekhi' kichu kahena uttara

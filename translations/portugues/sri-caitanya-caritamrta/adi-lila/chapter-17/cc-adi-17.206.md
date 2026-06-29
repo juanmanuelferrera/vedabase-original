@@ -1,5 +1,8 @@
 ### CC Adi 17.206
 
+> পূর্বে ভাল ছিল এই নিমাই পণ্ডিত ।
+> গয়া হৈতে আসিয়া চালায় বিপরীত ॥২০৬॥
+
 pūrve bhāla chila ei nimāi paṇḍita
 
 gayā haite āsiyā cālāya viparīta

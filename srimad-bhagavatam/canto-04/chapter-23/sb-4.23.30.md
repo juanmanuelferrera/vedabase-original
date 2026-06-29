@@ -1,5 +1,8 @@
 ### SB 4.23.30
 
+> इत्थम्भूतानुभावोऽसौ पृथुः स भगवत्तमः ।
+> कीर्तितं तस्य चरितमुद्दामचरितस्य ते ॥३०॥
+
 > ittham-bhūtānubhāvo 'sau
 > pṛthuḥ sa bhagavattamaḥ
 > kīrtitaṁ tasya caritam

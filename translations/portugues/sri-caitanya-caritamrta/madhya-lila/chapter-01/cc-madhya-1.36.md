@@ -1,5 +1,8 @@
 ### CC Madhya 1.36
 
+> এই সব গ্রন্থ কৈল গোসাঞি সনাতন ।
+> রূপগোসাঞি কৈল যত, কে করু গণন ॥৩৬॥
+
 ei saba grantha kaila gosāñi sanātana
 
 rūpa-gosāñi kaila yata, ke karu gaṇana

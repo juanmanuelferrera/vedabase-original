@@ -1,5 +1,8 @@
 ### CC Madhya 11.237
 
+> কীর্তন দেখিয়া রাজার হৈল চমৎকার ৷
+> প্রভুকে মিলিতে উত্কণ্ঠা বাড়িল অপার ৷৷ ২৩৭ ৷৷ ॥২৩৭॥
+
 > kīrtana dekhiyā rājāra haila camatkāra
 > prabhuke milite utkaṇṭhā bāḍila apāra
 

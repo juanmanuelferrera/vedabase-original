@@ -1,5 +1,8 @@
 ### SB 4.8.22
 
+> तमेव वत्साश्रय भृत्यवत्सलं मुमुक्षुभिर्मृग्यपदाब्जपद्धतिम् ।
+> अनन्यभावे निजधर्मभाविते मनस्यवस्थाप्य भजस्व पूरुषम् ॥२२॥
+
 > tam eva vatsāśraya bhṛtya-vatsalaṁ
 > mumukṣubhir mṛgya-padābja-paddhatim
 > ananya-bhāve nija-dharma-bhāvite

@@ -1,5 +1,8 @@
 ### SB 8.24.43
 
+> तमूचुर्मुनयः प्रीता राजन्ध्यायस्व केशवम
+> स वै नः सङ्कटादस्मादविता शं विधास्यति ॥४३॥
+
 > tam ūcur munayaḥ prītā
 > rājan dhyāyasva keśavam
 > sa vai naḥ saṅkaṭād asmād

@@ -1,5 +1,7 @@
 ### SB 5.24.13
 
+> न वा एतेषु वसतां दिव्यौषधिरसरसायनान्नपानस्नानादिभिराधयो व्याधयो वलीपलितजरादयश्च देहवैवर्ण्यदौर्गन्ध्यस्वेदक्लमग्लानिरिति वयोऽवस्थाश्च भवन्ति ॥१३॥
+
 > na vā eteṣu vasatāṁ divyauṣadhi-rasa-rasāyanānna-pāna-snānādibhir ādhayo vyādhayo valī-palita-jarādayaś ca deha-vaivarṇya-daurgandhya-sveda-klama-glānir iti vayo 'vasthāś ca bhavanti.
 
 *na*—not; *vā*—either; *eteṣu*—in these planets; *vasatām*—of those residing; *divya*—wonderful; *auṣadhi*—of herbs; *rasa*—the juices; *rasāyana*—and elixirs; *anna*—by eating; *pāna*—drinking; *snāna-ādibhiḥ*—by bathing in and so on; *ādhayaḥ*—mental troubles; *vyādhayaḥ*—diseases; *valī*—wrinkles; *palita*—grey hair; *jarā*—old age; *ādayaḥ*—and so on; *ca*—and; *deha-vaivarṇya*—the fading of bodily luster; *daurgandhya*—bad odor; *sveda*—perspiration; *klama*—fatigue; *glāniḥ*—lack of energy; *iti*—thus; *vayaḥ avasthāḥ*—miserable conditions due to increasing age; *ca*—and; *bhavanti*—are.

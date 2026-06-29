@@ -1,5 +1,8 @@
 ### CC Madhya 19.145
 
+> তার মধ্যে মনুষ্য-জাতি অতি অল্পতর ।
+> তার মধ্যে ম্লেচ্ছ, পুলিন্দ, বৌদ্ধ, শবর ॥১৪৫॥
+
 > tāra madhye manuṣya-jāti ati alpatara
 > tāra madhye mleccha, pulinda, bauddha, śabara
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.99
 
+> গুণরাজ-খাঁন কৈল শ্রীকৃষ্ণবিজয় ।
+> তাহাঁ একবাক্য তাঁর আছে প্রেমময় ॥৯৯॥
+
 guṇarāja-khāṅna kaila śrī-kṛṣṇa-vijaya
 
 tāhāṅ eka-vākya tāṅra āche premamaya

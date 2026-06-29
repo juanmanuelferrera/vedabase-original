@@ -1,5 +1,8 @@
 ### SB 7.13.38
 
+> श्रद्धयोपहृतं क्वापि कदाचिन्मानवर्जितम
+> भुञ्जे भुक्त्वाथ कस्मिंश्चिद्दिवा नक्तं यदृच्छया ॥३८॥
+
 > kvacid alpaṁ kvacid bhūri
 > bhuñje 'nnaṁ svādv asvādu vā
 > kvacid bhūri guṇopetaṁ

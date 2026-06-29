@@ -1,5 +1,8 @@
 ### CC Antya 20.149
 
+> অনিপুণা বাণী আপনে নাচিতে না জানে ।
+> যত নাচাইলা, নাচি’ করিলা বিশ্রামে ॥১৪৯॥
+
 anipuṇā vāṇī āpane nācite nā jāne
 
 yata nācāilā, nāci' karilā viśrāme

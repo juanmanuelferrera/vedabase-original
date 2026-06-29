@@ -1,5 +1,8 @@
 ### CC Madhya 7.104
 
+> সেই যাই’ আর গ্রামে করে উপদেশ ।
+> এইমত ‘বৈষ্ণব’ হৈল সব দক্ষিণ-দেশ ॥১০৪॥
+
 > sei yāi' āra grāme kare upadeśa
 > ei-mata 'vaiṣṇava' haila saba dakṣiṇa-deśa
 

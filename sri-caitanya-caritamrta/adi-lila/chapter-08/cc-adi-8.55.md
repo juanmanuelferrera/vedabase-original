@@ -1,5 +1,8 @@
 ### CC Adi 8.55
 
+> সুশীল, সহিষ্ণু, শান্ত, বদান্য, গম্ভীর ।
+> মধুর-বচন, মধুর-চেষ্টা, মহাধীর ॥৫৫॥
+
 > suśīla, sahiṣṇu, śānta, vadānya, gambhīra
 > madhura-vacana, madhura-ceṣṭā, mahā-dhīra
 

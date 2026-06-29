@@ -1,5 +1,8 @@
 ### CC Antya 1.134
 
+> রায় কহে, — “কোন্ আমুখে পাত্র-সন্নিধান ?”
+> রূপ কহে, — “কালসাম্যে ‘প্রবর্তক’ নাম” ॥১৩৪॥
+
 > rāya kahe,—"kon āmukhe pātra-sannidhāna?"
 > rūpa kahe,—"kāla-sāmye 'pravartaka' nāma"
 

@@ -1,5 +1,10 @@
 ### SB 6.15.28
 
+> यत्पादमूलमुपसृत्य नरेन्द्र पूर्वे
+> शर्वादयो भ्रममिमं द्वितयं विसृज्य
+> सद्यस्तदीयमतुलानधिकं महित्वं
+> प्रापुर्भवानपि परं न चिरादुपैति ॥२८॥
+
 > yat-pāda-mūlam upasṛtya narendra pūrve
 > śarvādayo bhramam imaṁ dvitayaṁ visṛjya
 > sadyas tadīyam atulānadhikaṁ mahitvaṁ

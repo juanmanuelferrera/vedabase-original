@@ -1,5 +1,8 @@
 ### CC Madhya 19.201
 
+> কৃষ্ণ যদি রুক্মিণীরে কৈলা পরিহাস ।
+> ‘কৃষ্ণ ছাড়িবেন’ — জানি’ রুক্মিণীর হৈল ত্রাস ॥২০১॥
+
 > kṛṣṇa yadi rukmiṇīre kailā parihāsa
 > 'kṛṣṇa chāḍibena'—jāni' rukmiṇīra haila trāsa
 

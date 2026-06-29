@@ -1,5 +1,8 @@
 ### CC Madhya 10.69
 
+> অদ্বৈত-শ্রীবাসাদি যত ভক্তগণ ।
+> সবেই আসিবে শুনি’ প্রভুর আগমন ॥৬৯॥
+
 > advaita-śrīvāsādi yata bhakta-gaṇa
 > sabei āsibe śuni' prabhura āgamana
 

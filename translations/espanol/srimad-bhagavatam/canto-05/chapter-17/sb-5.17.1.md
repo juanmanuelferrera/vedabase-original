@@ -1,5 +1,8 @@
 ### SB 5.17.1
 
+> श्रीशुक उवाच
+> तत्र भगवतः साक्षाद्यज्ञअलिङ्गस्य विष्णोर्विक्रमतो वामपादाङ्गुष्ठनखनिर्भिन्नोर्ध्वाण्डकटाहविवरेणान्तःप्रविष्टा या बाह्यजलधारा तच्चरणपङ्कजावनेजनारुणकिञ्जल्कोपरञ्जिताखिलजगदघमलापहोपस्पर्शनामला साक्षाद्भगवत्पदीत्यनुपलक्षितवचोऽभिधीयमानातिमहता कालेन युगसहस्रोपलक्षणेन दिवो मूर्धन्यवततार यत्तद्विष्णुपदमाहुः ॥१॥
+
 > śrī-śuka uvāca
 > tatra bhagavataḥ sākṣād yajña-liṅgasya viṣṇor vikramato vāma-pādāṅguṣṭha-nakha-nirbhinnordhvāṇḍa-kaṭāha-vivareṇāntaḥ-praviṣṭā yā bāhya-jala-dhārā tac-caraṇa-paṅkajāvanejanāruṇa-kiñjalkoparañjitākhila-jagad-agha-malāpahopasparśanāmalā sākṣād bhagavat-padīty anupalakṣita-vaco 'bhidhīyamānāti-mahatā kālena yuga-sahasropalakṣaṇena divo mūrdhany avatatāra yat tad viṣṇu-padam āhuḥ.
 

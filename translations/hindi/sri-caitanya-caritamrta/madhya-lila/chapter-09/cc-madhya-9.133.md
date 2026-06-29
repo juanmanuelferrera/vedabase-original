@@ -1,5 +1,8 @@
 ### CC Madhya 9.133
 
+> শ্রুতিগণ গোপীগণের অনুগত হঞা ।
+> ব্রজেশ্বরীসুত ভজে গোপীভাব লঞা ॥১৩৩॥
+
 > śruti-gaṇa gopī-gaṇera anugata hañā
 > vrajeśvarī-suta bhaje gopī-bhāva lañā
 

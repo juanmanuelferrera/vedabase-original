@@ -1,5 +1,8 @@
 ### CC Adi 3.57
 
+> দেহকান্ত্যে হয় তেঁহো অকৃষ্ণবরণ ।
+> অকৃষ্ণবরণে কহে পীতবরণ ॥৫৭॥
+
 > deha-kāntye haya teṅho akṛṣṇa-varaṇa
 > akṛṣṇa-varaṇe kahe pīta-varaṇa
 

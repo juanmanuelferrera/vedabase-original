@@ -1,5 +1,8 @@
 ### CC Madhya 3.14
 
+> শুনি’ তা-সবার নিকট গেলা গৌরহরি ।
+> ‘বল’ ‘বল’ বলে সবারে শিরে হস্ত ধরি’ ॥১৪॥
+
 > śuni' tā-sabāra nikaṭa gelā gaurahari
 > 'bala' 'bala' bale sabāra śire hasta dhari'
 

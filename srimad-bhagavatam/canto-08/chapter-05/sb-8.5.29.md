@@ -1,5 +1,8 @@
 ### SB 8.5.29
 
+> य एकवर्णं तमसः परं तदलोकमव्यक्तमनन्तपारम
+> आसां चकारोपसुपर्णमेनमुपासते योगरथेन धीराः ॥२९॥
+
 > ya eka-varṇaṁ tamasaḥ paraṁ tad
 > alokam avyaktam ananta-pāram
 > āsāṁ cakāropasuparṇam enam

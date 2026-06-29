@@ -1,5 +1,8 @@
 ### CC Antya 5.62
 
+> ভাল, মন্দ — কিছু আমি পুছিতে না জানি ।
+> ‘দীন’ দেখি’ কৃপা করি’ কহিবা আপনি ।।” ॥ ৬২ ॥
+
 > bhāla, manda--kichu āmi puchite nā jāni
 > 'dīna' dekhi' kṛpā kari' kahibā āpani"
 

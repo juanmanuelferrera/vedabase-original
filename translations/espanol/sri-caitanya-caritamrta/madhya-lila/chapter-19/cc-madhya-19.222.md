@@ -1,5 +1,8 @@
 ### CC Madhya 19.222
 
+> শান্তের গুণ, দাস্যের সেবন — সখ্যে দুই হয় ।
+> দাস্যের ‘সম্ভ্রমংগৌরব’-সেবা, সখ্যে ‘বিশ্বাস’-ময় ॥২২২॥
+
 > śāntera guṇa, dāsyera sevana--sakhye dui haya
 > dāsyera 'sambhrama-gaurava'-sevā, sakhye 'viśvāsa'-maya
 

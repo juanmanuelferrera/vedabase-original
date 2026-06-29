@@ -1,5 +1,8 @@
 ### CC Madhya 1.146
 
+> কৃষ্ণজন্ম-যাত্রাতে প্রভু গোপবেশ হৈলা ।
+> দধিভার বহি’ তবে লগুড় ফিরাইলা ॥১৪৬॥
+
 > kṛṣṇa-janma-yātrāte prabhu gopa-veśa hailā
 > dadhi-bhāra vahi' tabe laguḍa phirāilā
 

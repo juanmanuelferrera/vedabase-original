@@ -1,5 +1,8 @@
 ### CC Madhya 6.198
 
+> সনকাদি-শুকদেব তাহাতে প্রমাণ ।
+> এইমত নানা অর্থ করেন ব্যাখ্যান ॥১৯৮॥
+
 > sanakādi-śukadeva tāhāte pramāṇa
 > ei-mata nānā artha karena vyākhyāna
 

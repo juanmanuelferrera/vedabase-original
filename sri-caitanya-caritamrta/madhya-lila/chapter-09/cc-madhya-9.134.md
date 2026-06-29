@@ -1,5 +1,8 @@
 ### CC Madhya 9.134
 
+> বাহ্যান্তরে গোপীদেহ ব্রজে যবে পাইল ।
+> সেই দেহে কৃষ্ণসঙ্গে রাসক্রীড়া কৈল ॥১৩৪॥
+
 > bāhyāntare gopī-deha vraje yabe pāila
 > sei dehe kṛṣṇa-saṅge rāsa-krīḍā kaila
 

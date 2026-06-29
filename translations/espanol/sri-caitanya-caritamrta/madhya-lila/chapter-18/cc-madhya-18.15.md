@@ -1,5 +1,8 @@
 ### CC Madhya 18.15
 
+> তবে চলি’ আইলা প্রভু ‘সুমনঃ-সরোবর’ ।
+> তাহাঁ ‘গোবর্ধন’ দেখি’ হইলা বিহ্বল ॥১৫॥
+
 > tabe cali' āilā prabhu 'sumanaḥ-sarovara'
 > tāhāṅ 'govardhana' dekhi' ha-ilā vihvala
 

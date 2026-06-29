@@ -1,5 +1,8 @@
 ### CC Madhya 12.51
 
+> শুক্লবস্ত্রে মসি-বিন্দু যৈছে না লুকায় ।
+> সন্ন্যাসীর অল্প ছিদ্র সর্বলোকে গায় ॥৫১॥
+
 śukla-vastre masi-bindu yaiche nā lukāya
 
 sannyāsīra alpa chidra sarva-loke gāya

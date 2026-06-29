@@ -1,5 +1,8 @@
 ### CC Adi 7.135
 
+> সকল সন্ন্যাসী কহে, — ‘শুনহ শ্রীপাদ ।
+> তুমি যে খণ্ডিলে অর্থ, এ নহে বিবাদ ॥১৩৫॥
+
 sakala sannyāsī kahe,--'śunaha śrīpāda
 
 tumi ye khaṇḍile artha, e nahe vivāda

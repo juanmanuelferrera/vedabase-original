@@ -1,5 +1,8 @@
 ### CC Madhya 6.263
 
+> ভট্টাচার্য কহে — ‘ভক্তি’-সম নহে মুক্তি-ফল ।
+> ভগবদ্ভক্তিবিমুখের হয় দণ্ড কেবল ॥২৬৩॥
+
 > bhaṭṭācārya kahe,—'bhakti'-sama nahe mukti-phala
 > bhagavad-bhakti-vimukhera haya daṇḍa kevala
 

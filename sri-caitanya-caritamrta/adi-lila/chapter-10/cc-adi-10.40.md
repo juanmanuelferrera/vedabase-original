@@ -1,5 +1,8 @@
 ### CC Adi 10.40
 
+> শ্রীমুকুন্দ-দত্ত শাখা — প্রভুর সমাধ্যায়ী ।
+> যাঁহার কীর্তনে নাচে চৈতন্য-গোসাঞি ॥৪০॥
+
 > śrī-mukunda-datta śākhā—prabhura samādhyāyī
 > yāṅhāra kīrtane nāce caitanya-gosāñi
 

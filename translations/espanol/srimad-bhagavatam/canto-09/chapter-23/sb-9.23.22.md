@@ -1,5 +1,8 @@
 ### SB 9.23.22
 
+> धर्मस्तु हैहयसुतो नेत्रः कुन्तेः पिता ततः
+> सोहञ्जिरभवत्कुन्तेर्महिष्मान्भद्रसेनकः ॥२२॥
+
 > dharmas tu haihaya-suto
 > netraḥ kunteḥ pitā tataḥ
 > sohañjir abhavat kunter

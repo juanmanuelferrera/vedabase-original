@@ -1,5 +1,8 @@
 ### CC Antya 6.116
 
+> দুর্বাসার ঠাঞি তেঁহো পাঞাছেন বর ।
+> অমৃত হইতে পাক তাঁর অধিক মধুর ॥১১৬॥
+
 > durvāsāra ṭhāñi teṅho pāñāchena vara
 > amṛta ha-ite pāka tāṅra adhika madhura
 

@@ -1,5 +1,10 @@
 ### CC Adi 13.122
 
+> ঐছে প্রভু শচী-ঘরে, কৃপায় কৈল অবতারে,
+> যেই ইহা করয়ে শ্রবণ ।
+> গৌরপ্রভু দয়াময়, তাঁরে হয়েন সদয়,
+> সেই পায় তাঁহার চরণ ॥১২২॥
+
 aiche prabhu śacī-ghare, kṛpāya kaila avatāre,
 yei ihā karaye śravaṇa
 gaura-prabhu dayāmaya, tāṅre hayena sadaya,

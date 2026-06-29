@@ -1,5 +1,8 @@
 ### CC Madhya 11.209
 
+> নানা পিঠাপানা খায় আকণ্ঠ পূরিয়া ৷
+> মধ্যে মধ্যে ‘হরি’ কহে আনন্দিত হঞা ৷৷ ২০৯ ৷৷ ॥২০৯॥
+
 > nānā piṭhā-pānā khāya ākaṇṭha pūriyā
 > madhye madhye 'hari' kahe ānandita hañā
 

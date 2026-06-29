@@ -1,5 +1,7 @@
 ### CC Madhya 23.78
 
+> অথ পঞ্চগুণা যে স্যুরংশেন গিরিশাদিষু ॥৭৮॥
+
 > atha pañca-guṇā ye syur
 > aṁśena giriśādiṣu
 

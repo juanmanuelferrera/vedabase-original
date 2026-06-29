@@ -1,5 +1,8 @@
 ### SB 7.1.8
 
+> जयकाले तु सत्त्वस्य देवर्षीन्रजसोऽसुरान
+> तमसो यक्षरक्षांसि तत्कालानुगुणोऽभजत ॥८॥
+
 > jaya-kāle tu sattvasya
 > devarṣīn rajaso 'surān
 > tamaso yakṣa-rakṣāṁsi

@@ -1,5 +1,8 @@
 ### CC Adi 11.28
 
+> নিত্যানন্দ প্রভুর প্রিয় — পণ্ডিত পুরন্দর ।
+> প্রেমার্ণব-মধ্যে ফিরে যৈছন মন্দর ॥২৮॥
+
 nityānanda prabhura priya--paṇḍita purandara
 premārṇava-madhye phire yaichana mandara
 

@@ -1,5 +1,10 @@
 ### CC Madhya 23.114
 
+> চীরাণি কিং পথি ন সন্তি দিশন্তি ভিক্ষাং
+> নৈবাঙ্ঘ্রিপাঃ পরভৃতঃ সরিতোঽপ্যশুষ্যন্ ।
+> রুদ্ধা গুহাঃ কিমজিতোঽবতি নোপসন্নান্
+> কস্মাদ্ভজন্তি কবয়ো ধনদুর্মদান্ধান্ ॥১১৪॥
+
 > cīrāṇi kiṁ pathi na santi diśanti bhikṣāṁ
 > naivāṅghri-pāḥ parabhṛtaḥ sarito 'py aśuṣyan
 > ruddhā guhāḥ kim ajito 'vati nopasannān

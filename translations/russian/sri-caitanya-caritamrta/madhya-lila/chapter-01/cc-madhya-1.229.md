@@ -1,5 +1,8 @@
 ### CC Madhya 1.229
 
+> মথুরা যাইব আমি এত লোক সঙ্গে ।
+> কিছু সুখ না পাইব, হবে রসভঙ্গে ॥২২৯॥
+
 > mathurā yāiba āmi eta loka saṅge
 > kichu sukha nā pāiba, habe rasa-bhaṅge
 

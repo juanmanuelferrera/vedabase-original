@@ -1,5 +1,8 @@
 ### CC Adi 5.60
 
+> কৃষ্ণশক্ত্যে প্রকৃতি হয় গৌণ কারণ ।
+> অগ্নিশক্ত্যে লৌহ যৈছে করয়ে জারণ ॥৬০॥
+
 kṛṣṇa-śaktye prakṛti haya gauṇa kāraṇa
 agni-śaktye lauha yaiche karaye jāraṇa
 

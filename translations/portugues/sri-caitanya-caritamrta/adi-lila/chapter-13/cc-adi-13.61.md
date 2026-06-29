@@ -1,5 +1,8 @@
 ### CC Adi 13.61
 
+> রাঢ়দেশে জন্মিলা ঠাকুর নিত্যানন্দ ।
+> গঙ্গাদাস পণ্ডিত, গুপ্ত মুরারি, মুকুন্দ ॥৬১॥
+
 rāḍhadeśe janmilā ṭhākura nityānanda
 gaṅgādāsa paṇḍita, gupta murāri, mukunda
 

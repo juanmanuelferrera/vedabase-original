@@ -1,5 +1,8 @@
 ### CC Adi 2.99
 
+> কিশোরস্বরূপ কৃষ্ণ স্বয়ং অবতারী ।
+> ক্রীড়া করে এই ছয়-রূপে বিশ্ব ভরি’ ॥৯৯॥
+
 > kiśora-svarūpa kṛṣṇa svayaṁ avatārī
 > krīḍā kare ei chaya-rūpe viśva bhari'
 

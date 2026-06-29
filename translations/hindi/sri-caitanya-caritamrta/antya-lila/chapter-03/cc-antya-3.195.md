@@ -1,5 +1,8 @@
 ### CC Antya 3.195
 
+> হরিদাস কহেন, — কেনে করহ সংশয় ?
+> শাস্ত্রে কহে, — নামাভাস-মাত্রে ‘মুক্তি’ হয় ॥১৯৫॥
+
 > haridāsa kahena,--kene karaha saṁśaya?
 > śāstre kahe,--nāmābhāsa-mātre 'mukti' haya
 

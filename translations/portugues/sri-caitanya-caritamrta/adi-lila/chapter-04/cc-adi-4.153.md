@@ -1,5 +1,10 @@
 ### CC Adi 4.153
 
+> গোপ্যশ্চ কৃষ্ণমুপলভ্য চিরাদভীষ্টং
+> যৎপ্রেক্ষণে দৃশিষু পক্ষ্মকৃতং শপন্তি ।
+> দৃগ্ভির্হৃদীকৃতমলং পরিরভ্য সর্বা-
+> স্তদ্ভাবমাপুরপি নিত্যযুজাং দুরাপম্ ॥১৫৩॥
+
 gopyaś ca kṛṣṇam upalabhya cirād abhīṣṭaṁ
 yat-prekṣaṇe dṛśiṣu pakṣma-kṛtaṁ śapanti
 dṛgbhir hṛdi kṛtam alaṁ parirabhya sarvās

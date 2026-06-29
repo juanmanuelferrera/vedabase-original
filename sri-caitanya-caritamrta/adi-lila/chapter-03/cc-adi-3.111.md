@@ -1,5 +1,10 @@
 ### CC Adi 3.111
 
+> ত্বং ভক্তিযোগপরিভাবিত-হৃৎসরোজ
+> আস্সে শ্রুতেক্ষিতপথো ননু নাথ পুংসাম্ ।
+> যদ্যদ্ধিয়া ত উ়রুগায় বিভাবয়ন্তি
+> তত্তদ্বপুঃ প্রণয়সে সদনুগ্রহায় ॥১১১॥
+
 > tvaṁ bhakti-yoga-paribhāvita-hṛt-saroja
 > āsse śrutekṣita-patho nanu nātha puṁsām
 > yad yad dhiyā ta urugāya vibhāvayanti

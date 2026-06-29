@@ -1,5 +1,8 @@
 ### SB 4.11.28
 
+> यः पञ्चवर्षो जननीं त्वं विहाय मातुः सपत्न्या वचसा भिन्नमर्मा ।
+> वनं गतस्तपसा प्रत्यगक्षमाराध्य लेभे मूर्ध्नि पदं त्रिलोक्याः ॥२८॥
+
 > yaḥ pañca-varṣo jananīṁ tvaṁ vihāya
 > mātuḥ sapatnyā vacasā bhinna-marmā
 > vanaṁ gatas tapasā pratyag-akṣam

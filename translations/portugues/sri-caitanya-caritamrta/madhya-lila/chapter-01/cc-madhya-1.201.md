@@ -1,5 +1,8 @@
 ### CC Madhya 1.201
 
+> সত্য এক বাত কহোঁ, শুন, দয়াময় ।
+> মো-বিনু দয়ার পাত্র জগতে না হয় ॥২০১॥
+
 satya eka bāta kahoṅ, śuna, dayā-maya
 
 mo-vinu dayāra pātra jagate nā haya

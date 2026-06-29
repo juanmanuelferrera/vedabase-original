@@ -1,5 +1,8 @@
 ### CC Antya 7.41
 
+> গোপীগণের শুদ্ধপ্রেম ঐশ্বর্যজ্ঞানহীন ।
+> প্রেমেতে ভর্ৎসনা করে এই তার চিহ্ন ॥৪১॥
+
 gopī-gaṇera śuddha-prema aiśvarya-jñāna-hīna
 
 premete bhartsanā kare ei tāra cihna

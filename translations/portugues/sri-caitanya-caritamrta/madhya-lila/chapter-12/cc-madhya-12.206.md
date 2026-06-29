@@ -1,5 +1,8 @@
 ### CC Madhya 12.206
 
+> মহাপ্রভু সুখে লঞা সব ভক্তগণ ।
+> জগন্নাথ-দরশনে করিলা গমন ॥২০৬॥
+
 mahāprabhu sukhe lañā saba bhakta-gaṇa
 
 jagannātha-daraśane karilā gamana

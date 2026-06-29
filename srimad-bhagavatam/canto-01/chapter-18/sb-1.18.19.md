@@ -1,5 +1,8 @@
 ### SB 1.18.19
 
+> कुतः पुनर्गृणतो नाम तस्य महत्तमैकान्तपरायणस्य ।
+> योऽनन्तशक्तिर्भगवाननन्तो महद्गुणत्वाद्यमनन्तमाहुः ॥१९॥
+
 > kutaḥ punar gṛṇato nāma tasya
 > mahattamaikānta-parāyaṇasya
 > yo 'nanta-śaktir bhagavān ananto

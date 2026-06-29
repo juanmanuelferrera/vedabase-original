@@ -1,5 +1,8 @@
 ### CC Antya 13.86
 
+> এ-ঋণ শোধিতে আমি নারিমু তোমার ।”
+> গোবিন্দ কহে, — ‘জগন্নাথ রাখেন মুই কোন্ ছার’ ? ॥ ৮৬ ॥
+
 > e-ṛṇa śodhite āmi nārimu tomāra"
 > govinda kahe,—jagannātha rākhena mui kon chāra'?
 

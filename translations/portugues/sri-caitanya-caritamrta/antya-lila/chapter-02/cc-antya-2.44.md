@@ -1,5 +1,8 @@
 ### CC Antya 2.44
 
+> শ্রীকান্ত আসিয়া গৌড়ে সন্দেশ কহিল ।
+> শুনি’ ভক্তগণ-মনে আনন্দ হইল ॥৪৪॥
+
 śrī-kānta āsiyā gauḍe sandeśa kahila
 
 śuni' bhakta-gaṇa-mane ānanda ha-ila

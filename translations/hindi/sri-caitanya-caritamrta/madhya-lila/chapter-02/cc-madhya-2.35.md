@@ -1,5 +1,10 @@
 ### CC Madhya 2.35
 
+> করি’ এত বিলপন, প্রভু শচীনন্দন,
+> উঘাড়িয়া হৃদয়ের শোক ।
+> দৈন্য-নির্বেদ-বিষাদে, হৃদয়ের অবসাদে,
+> পুনরপি পড়ে এক শ্লোক ॥৩৫॥
+
 > kari' eta vilapana, prabhu śacī-nandana,
 > ughāḍiyā hṛdayera śoka
 > dainya-nirveda-viṣāde, hṛdayera avasāde,

@@ -1,5 +1,8 @@
 ### CC Adi 5.86
 
+> প্রকৃতি-সহিতে তাঁর উভয় সম্বন্ধ ।
+> তথাপি প্রকৃতি-সহ নাহি স্পর্শগন্ধ ॥৮৬॥
+
 > prakṛti-sahite tāṅra ubhaya sambandha
 > tathāpi prakṛti-saha nāhi sparśa-gandha
 

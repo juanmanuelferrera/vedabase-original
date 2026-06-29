@@ -1,5 +1,8 @@
 ### CC Madhya 7.93
 
+> বিচ্ছেদে ব্যাকুল প্রভু চলিলা দুঃখী হঞা ।
+> পাছে কৃষ্ণদাস যায় জলপাত্র লঞা ॥৯৩॥
+
 > vicchede vyākula prabhu calilā duḥkhī hañā
 > pāche kṛṣṇadāsa yāya jala-pātra lañā
 

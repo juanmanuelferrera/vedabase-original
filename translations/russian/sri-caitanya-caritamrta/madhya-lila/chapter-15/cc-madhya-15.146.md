@@ -1,5 +1,8 @@
 ### CC Madhya 15.146
 
+> কেমনে ছাড়িব রঘুনাথের চরণ ।
+> আজি রাত্র্যে প্রভু মোর করাহ মরণ ॥১৪৬॥
+
 > kemane chāḍiba raghunāthera caraṇa
 > āji rātrye prabhu mora karāha maraṇa
 

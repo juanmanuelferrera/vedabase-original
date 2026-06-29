@@ -1,5 +1,8 @@
 ### CC Madhya 9.228
 
+> প্রাতে উঠি’ আইলা বিপ্র ভট্টথারি-ঘরে ৷
+> তাহার উদ্দেশে প্রভু আইলা সত্বরে ৷৷ ২২৮ ৷৷ ॥২২৮॥
+
 > prāte uṭhi' āilā vipra bhaṭṭathāri-ghare
 > tāhāra uddeśe prabhu āilā satvare
 

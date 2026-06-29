@@ -1,5 +1,8 @@
 ### CC Madhya 9.279
 
+> ত্রিতকূপে বিশালার করি’ দরশন ।
+> পঞ্চাপ্সরা-তীর্থে আইলা শচীর নন্দন ॥২৭৯॥
+
 > tritakūpe viśālāra kari' daraśana
 > pañcāpsarā-tīrthe āilā śacīra nandana
 

@@ -1,5 +1,8 @@
 ### SB 8.20.8
 
+> यैरियं बुभुजे ब्रह्मन्दैत्येन्द्रैरनिवर्तिभिः
+> तेषां कालोऽग्रसील्लोकान्न यशोऽधिगतं भुवि ॥८॥
+
 > yair iyaṁ bubhuje brahman
 > daityendrair anivartibhiḥ
 > teṣāṁ kālo 'grasīl lokān

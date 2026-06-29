@@ -1,5 +1,10 @@
 ### CC Adi 2.2
 
+> কৃষ্ণোৎকীর্তনগাননর্তনকলাপাথোজনি-ভ্রাজিতা
+> সদ্ভক্তাবলিহংসচক্রমধুপশ্রেণীবিহারাস্পদম্ ।
+> কর্ণানন্দিকলধ্বনির্বহতু মে জিহ্বামরুপ্রাঙ্গণে
+> শ্রীচৈতন্যদয়ানিধে তব লসল্লীলাসুধাস্বর্ধুনী ॥২॥
+
 kṛṣṇotkīrtana-gāna-nartana-kalā-pāthojani-bhrājitā
 sad-bhaktāvali-haṁsa-cakra-madhupa-śreṇī-vihārāspadam
 karṇānandi-kala-dhvanir vahatu me jihvā-maru-prāṅgaṇe

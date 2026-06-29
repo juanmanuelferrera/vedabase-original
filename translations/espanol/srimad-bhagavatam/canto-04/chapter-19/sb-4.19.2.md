@@ -1,5 +1,8 @@
 ### SB 4.19.2
 
+> तदभिप्रेत्य भगवान्कर्मातिशयमात्मनः ।
+> शतक्रतुर्न ममृषे पृथोर्यज्ञमहोत्सवम् ॥२॥
+
 > tad abhipretya bhagavān
 > karmātiśayam ātmanaḥ
 > śata-kratur na mamṛṣe

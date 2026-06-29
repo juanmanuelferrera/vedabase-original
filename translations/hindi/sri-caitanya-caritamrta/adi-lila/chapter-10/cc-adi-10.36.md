@@ -1,5 +1,8 @@
 ### CC Adi 10.36
 
+> নারায়ণ-পণ্ডিত এক বড়ই উদার ।
+> চৈতন্যচরণ বিনু নাহি জানে আর ॥৩৬॥
+
 > nārāyaṇa-paṇḍita eka baḍa-i udāra
 > caitanya-caraṇa vinu nāhi jāne āra
 

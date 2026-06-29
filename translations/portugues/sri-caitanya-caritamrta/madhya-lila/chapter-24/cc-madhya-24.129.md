@@ -1,5 +1,8 @@
 ### CC Madhya 24.129
 
+> ‘জীবন্মুক্ত’ অনেক, সেই দুই ভেদ জানি ।
+> ‘ভক্ত্যে জীবন্মুক্ত’, ‘জ্ঞানে জীবন্মুক্ত’ মানি ॥১২৯॥
+
 jīvan-mukta' aneka, sei dui bheda jāni
 
 'bhaktye jīvan-mukta', jñāne jīvan-mukta' māni

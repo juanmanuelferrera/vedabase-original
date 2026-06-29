@@ -1,5 +1,10 @@
 ### SB 3.16.6
 
+> यस्यामृतामलयशःश्रवणावगाहः
+> सद्यः पुनाति जगदाश्वपचाद्विकुण्ठः ।
+> सोऽहं भवद्भ्य उपलब्धसुतीर्थकीर्तिश्
+> छिन्द्यां स्वबाहुमपि वः प्रतिकूलवृत्तिम् ॥६॥
+
 *yasyāmṛtāmala*-yaśaḥ-śravaṇāvagāhaḥ
 sadyaḥ punāti jagad āśvapacād vikuṇṭhaḥ
 *so 'haṁ bhavadbhya upalabdha*-sutīrtha-kīrtiś

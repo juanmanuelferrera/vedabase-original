@@ -1,5 +1,8 @@
 ### CC Madhya 9.322
 
+> কতক্ষণে দুই জনা সুস্থির হঞা ।
+> নানা ইষ্টগোষ্ঠী করে একত্র বসিয়া ॥৩২২॥
+
 > kata-kṣaṇe dui janā susthira hañā
 > nānā iṣṭa-goṣṭhī kare ekatra vasiyā
 

@@ -1,5 +1,10 @@
 ### SB 2.7.33
 
+> क्रीडन्वने निशि निशाकररश्मिगौर्यां
+> रासोन्मुखः कलपदायतमूर्च्छितेन ।
+> उद्दीपितस्मररुजां व्रजभृद्वधूनां
+> हर्तुर्हरिष्यति शिरो धनदानुगस्य ॥३३॥
+
 > krīḍan vane niśi niśākara-raśmi-gauryāṁ
 > rāsonmukhaḥ kala-padāyata-mūrcchitena
 > uddīpita-smara-rujāṁ vraja-bhṛd-vadhūnāṁ

@@ -1,5 +1,8 @@
 ### SB 4.7.17
 
+> वैष्णवं यज्ञसन्तत्यै त्रिकपालं द्विजोत्तमाः ।
+> पुरोडाशं निरवपन्वीरसंसर्गशुद्धये ॥१७॥
+
 > vaiṣṇavaṁ yajña-santatyai
 > tri-kapālaṁ dvijottamāḥ
 > puroḍāśaṁ niravapan

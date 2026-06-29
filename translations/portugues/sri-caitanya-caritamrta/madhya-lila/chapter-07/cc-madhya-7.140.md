@@ -1,5 +1,8 @@
 ### CC Madhya 7.140
 
+> অনেক প্রকার বিলাপ করিতে লাগিলা ৷
+> সেইক্ষণে আসি’ প্রভু তাঁরে আলিঙ্গিলা ৷৷ ১৪০ ৷৷ ॥১৪০॥
+
 aneka prakāra vilāpa karite lāgilā
 
 sei-kṣaṇe āsi' prabhu tāṅre āliṅgilā

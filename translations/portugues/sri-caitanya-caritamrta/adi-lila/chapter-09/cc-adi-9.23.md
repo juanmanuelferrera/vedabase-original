@@ -1,5 +1,8 @@
 ### CC Adi 9.23
 
+> বড় শাখা, উপশাখা, তার উপশাখা ।
+> যত উপজিল তার কে করিবে লেখা ॥২৩॥
+
 baḍa śākhā, upaśākhā, tāra upaśākhā
 yata upajila tāra ke karibe lekhā
 

@@ -1,5 +1,8 @@
 ### CC Adi 7.62
 
+> প্রকাশানন্দ-নামে সর্ব সন্ন্যাসী-প্রধান ।
+> প্রভুকে কহিল কিছু করিয়া সম্মান ॥৬২॥
+
 prakāśānanda-nāme sarva sannyāsi-pradhāna
 
 prabhuke kahila kichu kariyā sammāna

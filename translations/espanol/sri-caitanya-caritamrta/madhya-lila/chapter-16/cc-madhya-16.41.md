@@ -1,5 +1,8 @@
 ### CC Madhya 16.41
 
+> পুনঃ মালা দিয়া স্বরূপাদি নিজগণ ।
+> আগু বাড়ি’ পাঠাইল শচীর নন্দন ॥৪১॥
+
 > punaḥ mālā diyā svarūpādi nija-gaṇa
 > āgu bāḍi' pāṭhāila śacīra nandana
 

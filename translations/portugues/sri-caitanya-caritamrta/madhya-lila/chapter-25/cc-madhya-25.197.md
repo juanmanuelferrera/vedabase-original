@@ -1,5 +1,8 @@
 ### CC Madhya 25.197
 
+> তবে যদি মহাপ্রভু বারাণসী আইলা ।
+> তাঁরে মিলি’ রায় আপন-বৃত্তান্ত কহিলা ॥১৯৭॥
+
 tabe yadi mahāprabhu vārāṇasī āilā
 
 tāṅre mili' rāya āpana-vṛttānta kahilā

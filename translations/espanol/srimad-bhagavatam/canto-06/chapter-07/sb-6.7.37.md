@@ -1,5 +1,8 @@
 ### SB 6.7.37
 
+> तथापि न प्रतिब्रूयां गुरुभिः प्रार्थितं कियत
+> भवतां प्रार्थितं सर्वं प्राणैरर्थैश्च साधये ॥३७॥
+
 > tathāpi na pratibrūyāṁ
 > gurubhiḥ prārthitaṁ kiyat
 > bhavatāṁ prārthitaṁ sarvaṁ

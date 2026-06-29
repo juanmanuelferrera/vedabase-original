@@ -1,5 +1,8 @@
 ### CC Madhya 25.267
 
+> ভক্ত লাগি’ বিস্তারিলা আপন-বদনে ।
+> কাহাঁ ভক্ত-মুখে কহাই শুনিলা আপনে ॥২৬৭॥
+
 bhakta lāgi' vistārilā āpana-vadane
 
 kāhāṅ bhakta-mukhe kahāi śunilā āpane

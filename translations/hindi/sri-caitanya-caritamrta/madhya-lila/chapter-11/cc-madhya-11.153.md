@@ -1,5 +1,8 @@
 ### CC Madhya 11.153
 
+> মুরারি না দেখিয়া প্রভু করে অন্বেষণ ।
+> মুরারি লইতে ধাঞা আইলা বহুজন ॥১৫৩॥
+
 > murāri nā dekhiyā prabhu kare anveṣaṇa
 > murāri la-ite dhāñā āilā bahu-jana
 

@@ -1,5 +1,8 @@
 ### CC Madhya 5.73
 
+> তবে ইঁহো গোপালের আগেতে কহিল ।
+> তুমি জান, এই বিপ্রে কন্যা আমি দিল ॥৭৩॥
+
 tabe iṅho gopālera āgete kahila
 
 tumi jāna, ei vipre kanyā āmi dila

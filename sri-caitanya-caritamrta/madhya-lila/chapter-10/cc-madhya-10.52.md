@@ -1,5 +1,8 @@
 ### CC Madhya 10.52
 
+> রামানন্দ-হেন রত্ন যাঁহার তনয় ।
+> তাঁহার মহিমা লোকে কহন না যায় ॥৫২॥
+
 > rāmānanda-hena ratna yāṅhāra tanaya
 > tāṅhāra mahimā loke kahana nā yāya
 

@@ -1,5 +1,8 @@
 ### CC Madhya 15.41
 
+> আচার্যেরে আজ্ঞা দিল করিয়া সম্মান ।
+> ‘আ-চণ্ডাল আদি কৃষ্ণভক্তি দিও দান’ ॥৪১॥
+
 > ācāryere ājñā dila kariyā sammāna
 > 'ā-caṇḍāla ādi kṛṣṇa-bhakti dio dāna'
 

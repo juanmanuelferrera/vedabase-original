@@ -1,5 +1,8 @@
 ### CC Madhya 1.63
 
+> হরিদাস ঠাকুর আর রূপ-সনাতন ।
+> জগন্নাথ-মন্দিরে না যা’ন তিন জন ॥৬৩॥
+
 > haridāsa ṭhākura āra rūpa-sanātana
 > jagannātha-mandire nā yā'na tina jana
 

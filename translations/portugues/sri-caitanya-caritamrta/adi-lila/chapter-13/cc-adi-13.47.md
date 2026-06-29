@@ -1,5 +1,8 @@
 ### CC Adi 13.47
 
+> সেই, অনুসারে লিখি লীলা-সূত্রগণ ।
+> বিস্তারি’ বর্ণিয়াছেন তাহা দাস-বৃন্দাবন ॥৪৭॥
+
 sei, anusāre likhi līlā-sūtragaṇa
 vistāri' varṇiāchena tāhā dāsa-vṛndāvana
 

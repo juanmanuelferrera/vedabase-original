@@ -1,5 +1,8 @@
 ### SB 6.9.19
 
+> तं निजघ्नुरभिद्रुत्य सगणा विबुधर्षभाः
+> स्वैः स्वैर्दिव्यास्त्रशस्त्रौघैः सोऽग्रसत्तानि कृत्स्नशः ॥१९॥
+
 > taṁ nijaghnur abhidrutya
 > sagaṇā vibudharṣabhāḥ
 > svaiḥ svair divyāstra-śastraughaiḥ

@@ -1,5 +1,8 @@
 ### CC Madhya 20.211
 
+> ইঁহা-সবার পৃথক্ বৈকুণ্ঠ — পরব্যোম-ধামে ।
+> পূর্বাদি অষ্টদিকে তিন তিন ক্রমে ॥২১১॥
+
 iṅhā-sabāra pṛthak vaikuṇṭha--paravyoma-dhāme
 
 pūrvādi aṣṭa-dike tina tina krame

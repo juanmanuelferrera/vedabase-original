@@ -1,5 +1,8 @@
 ### CC Madhya 15.256
 
+> নিন্দা করাইতে তোমা আনিনু নিজ-ঘরে  ।
+> এই অপরাধ, প্রভু, ক্ষমা কর মোরে ॥২৫৬॥
+
 > nindā karāite tomā āninu nija-ghare
 > ei aparādha, prabhu, kṣamā kara more
 

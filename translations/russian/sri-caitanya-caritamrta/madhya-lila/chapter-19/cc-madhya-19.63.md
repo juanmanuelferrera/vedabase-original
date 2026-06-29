@@ -1,5 +1,8 @@
 ### CC Madhya 19.63
 
+> কৃষ্ণকথায় প্রভুর মহাপ্রেম উথলিল ।
+> ভট্টের সঙ্কোচে প্রভু সম্বরণ কৈল ॥৬৩॥
+
 > kṛṣṇa-kathāya prabhura mahā-prema uthalila
 > bhaṭṭera saṅkoce prabhu samvaraṇa kaila
 

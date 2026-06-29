@@ -1,5 +1,8 @@
 ### CC Madhya 25.67
 
+> দেখিয়া প্রভুর নৃত্য, প্রেম, দেহের মাধুরী ।
+> শিষ্যগণ-সঙ্গে সেই বলে ‘হরি’ ‘হরি’ ॥৬৭॥
+
 dekhiyā prabhura nṛtya, prema, dehera mādhurī
 
 śisya-gaṇa-saṅge sei bale 'hari' 'hari'

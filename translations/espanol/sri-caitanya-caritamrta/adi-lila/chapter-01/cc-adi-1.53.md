@@ -1,5 +1,8 @@
 ### CC Adi 1.53
 
+> অহমেবাসমেবাগ্রে নান্যদ্ যৎ সদসৎপরম্ ।
+> পশ্চাদহং যদেতচ্চ যোঽবশিষ্যেত সোঽস্ম্যহম্ ॥৫৩॥
+
 > aham evāsam evāgre
 > nānyad yat sad-asat param
 > paścād ahaṁ yad etac ca

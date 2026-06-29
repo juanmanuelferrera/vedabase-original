@@ -1,5 +1,8 @@
 ### CC Antya 1.189
 
+> হ্রিয়মবগৃহ্য গৃহেভ্যঃ কর্ষতি রাধাং বনায় যা নিপুণা ।
+> সা জয়তি নিসৃষ্টার্থা বরবংশজকাকলী দূতী ॥১৮৯॥
+
 > hriyam avagṛhya gṛhebhyaḥ karṣati
 > rādhāṁ vanāya yā nipuṇā
 > sā jayati nisṛṣṭārthā

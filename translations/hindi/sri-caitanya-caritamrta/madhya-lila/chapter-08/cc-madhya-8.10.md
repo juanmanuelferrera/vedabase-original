@@ -1,5 +1,8 @@
 ### CC Madhya 8.10
 
+> পূর্ববৎ ‘বৈষ্ণব’ করি’ সর্ব লোকগণে ।
+> গোদাবরী-তীরে প্রভু আইলা কতদিনে ॥১০॥
+
 > pūrvavat 'vaiṣṇava' kari' sarva loka-gaṇe
 > godāvarī-tīre prabhu āilā kata-dine
 

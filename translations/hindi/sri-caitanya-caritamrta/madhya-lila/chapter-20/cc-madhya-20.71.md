@@ -1,5 +1,8 @@
 ### CC Madhya 20.71
 
+> সেই বস্ত্র সনাতন না কৈল অঙ্গীকার ।
+> শুনিয়া প্রভুর মনে আনন্দ অপার ॥৭১॥
+
 > sei vastra sanātana nā kaila aṅgīkāra
 > śuniyā prabhura mane ānanda apāra
 

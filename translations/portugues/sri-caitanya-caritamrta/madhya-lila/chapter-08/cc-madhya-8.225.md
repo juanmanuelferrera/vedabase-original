@@ -1,5 +1,8 @@
 ### CC Madhya 8.225
 
+> ‘সমদৃশঃ’-শব্দে কহে ‘সেই ভাবে অনুগতি’ ৷
+> ‘সমাঃ’-শব্দে কহে শ্রুতির গোপীদেহ-প্রাপ্তি ৷৷ ২২৫ ৷৷ ॥২২৫॥
+
 'sama-dṛśaḥ'-śabde kahe 'sei bhāve anugati'
 
 'samāḥ'-śabde kahe śrutira gopī-deha-prāpti

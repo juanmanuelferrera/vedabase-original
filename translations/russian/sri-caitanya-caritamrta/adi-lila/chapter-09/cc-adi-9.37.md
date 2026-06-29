@@ -1,5 +1,8 @@
 ### CC Adi 9.37
 
+> একলা মালাকার আমি কত ফল খাব ।
+> না দিয়া বা এই ফল আর কি করিব ॥৩৭॥
+
 > ekalā mālākāra āmi kata phala khāba
 > nā diyā vā ei phala āra ki kariba
 

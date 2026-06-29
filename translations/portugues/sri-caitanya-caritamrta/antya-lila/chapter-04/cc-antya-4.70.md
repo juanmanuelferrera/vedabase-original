@@ -1,5 +1,8 @@
 ### CC Antya 4.70
 
+> ভজনের মধ্যে শ্রেষ্ঠ নববিধা ভক্তি ।
+> ‘কৃষ্ণপ্রেম’, ‘কৃষ্ণ’ দিতে ধরে মহাশক্তি ॥৭০॥
+
 bhajanera madhye śreṣṭha nava-vidhā bhakti
 
 'kṛṣṇa-prema', 'kṛṣṇa' dite dhare mahā-śakti

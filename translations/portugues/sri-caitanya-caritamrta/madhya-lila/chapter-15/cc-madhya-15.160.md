@@ -1,5 +1,7 @@
 ### CC Madhya 15.160
 
+> জগৎ তারিতে প্রভু তোমার অবতার ৷ মোর নিবেদন এক করহ অঙ্গীকার ॥১৬০॥
+
 jagat tārite prabhu tomāra avatāra
 
 mora nivedana eka karaha aṅgīkāra

@@ -1,5 +1,8 @@
 ### SB 5.19.5
 
+> मर्त्यावतारस्त्विह मर्त्यशिक्षणं रक्षोवधायैव न केवलं विभोः
+> कुतोऽन्यथा स्याद्रमतः स्व आत्मनः सीताकृतानि व्यसनानीश्वरस्य ॥५॥
+
 martyāvatāras tv iha martya-śikṣaṇaṁ
 *rakṣo*-vadhāyaiva na kevalaṁ vibhoḥ
 kuto 'nyathā syād ramataḥ sva ātmanaḥ

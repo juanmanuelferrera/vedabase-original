@@ -1,5 +1,8 @@
 ### CC Antya 3.218
 
+> হরিদাস কহে, — “গোসাঞি, করি নিবেদনে ।
+> মোরে প্রত্যহ অন্ন দেহ’ কোন্ প্রয়োজনে ? ॥ ২১৮ ॥
+
 > haridāsa kahe,--"gosāñi, kari nivedane
 > more pratyaha anna deha' kon prayojane?
 

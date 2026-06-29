@@ -1,5 +1,8 @@
 ### CC Madhya 25.22
 
+> প্রভুরে প্রণত হৈল সন্ন্যাসীর গণ ।
+> আত্মমধ্যে গোষ্ঠী করে ছাড়ি’ অধ্যয়ন ॥২২॥
+
 > prabhure praṇata haila sannyāsīra gaṇa
 > ātma-madhye goṣṭhī kare chāḍi' adhyayana
 > SYNONYMS

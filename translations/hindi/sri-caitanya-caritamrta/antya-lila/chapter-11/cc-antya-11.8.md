@@ -1,5 +1,8 @@
 ### CC Antya 11.8
 
+> জয় গৌরভক্তগণ, — গৌর যাঁর প্রাণ ।
+> সব ভক্ত মিলি’ মোরে ভক্তি দেহ’ দান ॥৮॥
+
 > jaya gaura-bhakta-gaṇa,--gaura yāṅra prāṇa
 > saba bhakta mili' more bhakti deha' dāna
 

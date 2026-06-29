@@ -1,5 +1,8 @@
 ### CC Madhya 20.269
 
+> কারণাব্ধি-পারে মায়ার নিত্য অবস্থিতি ।
+> বিরজার পারে পরব্যোমে নাহি গতি ॥২৬৯॥
+
 kāraṇābdhi-pāre māyāra nitya avasthiti
 
 virajāra pāre paravyome nāhi gati

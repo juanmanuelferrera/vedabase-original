@@ -1,5 +1,8 @@
 ### CC Adi 14.16
 
+> নারায়ণের চিহ্নযুক্ত শ্রীহস্ত-চরণ ।
+> এই শিশু সর্ব লোকে করিবে তারণ ॥১৬॥
+
 nārāyaṇera cihna-yukta śrī-hasta caraṇa
 ei śiśu sarva loke karibe tāraṇa
 

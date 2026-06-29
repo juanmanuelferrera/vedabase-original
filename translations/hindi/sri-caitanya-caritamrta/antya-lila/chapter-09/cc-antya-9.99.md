@@ -1,5 +1,8 @@
 ### CC Antya 9.99
 
+> পুরুষোত্তম-জানারে তেঁহ কৈল পরিহাস ।
+> সেই ‘জানা’ তারে দেখাইল মিথ্যা ত্রাস ॥৯৯॥
+
 > puruṣottama-jānāre teṅha kaila parihāsa
 > sei 'jānā' tāre dekhāila mithyā trāsa
 

@@ -1,5 +1,8 @@
 ### CC Antya 2.118
 
+> দুর্বার ইন্দ্রিয় করে বিষয়-গ্রহণ ।
+> দারবী প্রকৃতি হরে মুনেরপি মন ॥১১৮॥
+
 durvāra indriya kare viṣaya-grahaṇa
 
 dāravī prakṛti hare munerapi mana

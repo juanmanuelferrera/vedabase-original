@@ -1,5 +1,8 @@
 ### CC Antya 6.143
 
+> নিশ্চিন্ত হঞা যাহ আপন-ভবন  ।
+> অচিরে নির্বিঘ্নে পাবে চৈতন্য-চরণ ।।” ১৪৩ ॥১৪৩॥
+
 > niścinta hañā yāha āpana-bhavana
 > acire nirvighne pābe caitanya-caraṇa"
 

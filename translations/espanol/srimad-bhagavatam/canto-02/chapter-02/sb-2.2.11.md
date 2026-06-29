@@ -1,5 +1,8 @@
 ### SB 2.2.11
 
+> विभूषितं मेखलयाङ्गुलीयकैर्महाधनैर्नूपुरकङ्कणादिभिः ।
+> स्निग्धामलाकुञ्चितनीलकुन्तलैर्विरोचमानाननहासपेशलम् ॥११॥
+
 > vibhūṣitaṁ mekhalayāṅgulīyakair
 > mahā-dhanair nūpura-kaṅkaṇādibhiḥ
 > snigdhāmalākuñcita-nīla-kuntalair

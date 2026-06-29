@@ -1,5 +1,8 @@
 ### CC Madhya 1.70
 
+> এত বলি’ তাঁরে বহু প্রসাদ করিয়া ।
+> স্বরূপ-গোসাঞিরে শ্লোক দেখাইল লঞা ॥৭০॥
+
 eta bali' tāṇre bahu prasāda kariyā
 svarūpa-gosāñire śloka dekhāila lañā
 

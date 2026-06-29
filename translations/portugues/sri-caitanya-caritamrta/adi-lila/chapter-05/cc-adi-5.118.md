@@ -1,5 +1,8 @@
 ### CC Adi 5.118
 
+> সহস্র বিস্তীর্ণ যাঁর ফণার মণ্ডল ।
+> সূর্য জিনি’ মণিগণ করে ঝলমল ॥১১৮॥
+
 sahasra vistīrṇa yāṅra phaṇāra maṇḍala
 
 sūrya jini' maṇi-gaṇa kare jhala-mala

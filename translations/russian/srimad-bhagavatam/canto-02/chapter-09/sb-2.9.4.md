@@ -1,5 +1,8 @@
 ### SB 2.9.4
 
+> आत्मतत्त्वविशुद्ध्यर्थं यदाह भगवानृतम् ।
+> ब्रह्मणे दर्शयन्रूपमव्यलीकव्रतादृतः ॥४॥
+
 > ātma-tattva-viśuddhy-arthaṁ
 > yad āha bhagavān ṛtam
 > brahmaṇe darśayan rūpam

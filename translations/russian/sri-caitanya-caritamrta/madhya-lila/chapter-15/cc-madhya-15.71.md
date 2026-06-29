@@ -1,5 +1,8 @@
 ### CC Madhya 15.71
 
+> বাটিতে কত শত বৃক্ষে লক্ষ লক্ষ ফল  ।
+> তথাপি শুনেন যথা মিষ্ট নারিকেল ॥৭১॥
+
 > vāṭite kata śata vṛkṣe lakṣa lakṣa phala
 > tathāpi śunena yathā miṣṭa nārikela
 

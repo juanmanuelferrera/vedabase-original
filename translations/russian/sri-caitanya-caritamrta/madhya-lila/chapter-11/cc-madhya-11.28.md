@@ -1,5 +1,8 @@
 ### CC Madhya 11.28
 
+> যে মে ভক্তজনাঃ পার্থ ন মে ভক্তাশ্চ তে জনাঃ ।
+> মদ্ভক্তানাঞ্চ যে ভক্তাস্তে মে ভক্ততমা মতাঃ ॥২৮॥
+
 > ye me bhakta-janāḥ pārtha
 > na me bhaktāś ca te janāḥ
 > mad-bhaktānāṁ ca ye bhaktās

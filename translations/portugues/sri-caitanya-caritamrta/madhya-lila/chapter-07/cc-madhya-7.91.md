@@ -1,5 +1,8 @@
 ### CC Madhya 7.91
 
+> প্রাতঃকালে স্নান করি’ করিলা গমন ৷
+> ভক্তগণে বিদায় দিলা করি’ আলিঙ্গন ৷৷ ৯১ ৷৷ ॥৯১॥
+
 prātaḥ-kāle snāna kari' karilā gamana
 
 bhakta-gaṇe vidāya dilā kari' āliṅgana

@@ -1,5 +1,8 @@
 ### CC Antya 6.164
 
+> তাঁর এক শিষ্য তাঁর ঠাকুরের সেবা করে ।
+> সেবা ছাড়িয়াছে, তারে সাধিবার তরে ॥১৬৪॥
+
 tāṅra eka śiṣya tāṅra ṭhākurera sevā kare
 
 sevā chāḍiyāche, tāre sādhibāra tare

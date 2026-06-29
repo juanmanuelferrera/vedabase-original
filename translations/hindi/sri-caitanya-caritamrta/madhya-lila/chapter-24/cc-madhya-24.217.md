@@ -1,5 +1,10 @@
 ### CC Madhya 24.217
 
+> যৎপাদসেবাভিরুচিস্তপস্বিনা-
+> মশেষজন্মোপচিতং মলং ধিয়ঃ ।
+> সদ্যঃ ক্ষিণোত্যন্বহমেধতী সতী
+> যথা পদাঙ্গুষ্ঠবিনিঃসৃতা সরিৎ ॥২১৭॥
+
 > yat-pāda-sevābhirucis tapasvinām
 > aśeṣa-janmopacitaṁ malaṁ dhiyaḥ
 > sadyaḥ kṣiṇoty anvaham edhatī satī

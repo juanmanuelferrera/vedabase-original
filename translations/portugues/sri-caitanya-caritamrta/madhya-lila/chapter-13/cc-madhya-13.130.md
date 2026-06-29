@@ -1,5 +1,8 @@
 ### CC Madhya 13.130
 
+> ব্রজে তোমার সঙ্গে যেই সুখ-আস্বাদন ।
+> সেই সুখসমুদ্রের ইহাঁ নাহি এক কণ ॥১৩০॥
+
 vraje tomāra saṅge yei sukha-āsvādana
 
 sei sukha-samudrera ihāṅ nāhi eka kaṇa

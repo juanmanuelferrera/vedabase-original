@@ -1,5 +1,8 @@
 ### CC Antya 15.87
 
+> ভাবোদয়, ভাব-সন্ধি, ভাব-শাবল্য ।
+> ভাবে-ভাবে মহাযুদ্ধে সবার প্রাবল্য ॥৮৭॥
+
 > bhāvodaya, bhāva-sandhi, bhāva-śābalya
 > bhāve-bhāve mahā-yuddhe sabāra prābalya
 

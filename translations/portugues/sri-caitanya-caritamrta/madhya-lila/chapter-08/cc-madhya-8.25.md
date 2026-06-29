@@ -1,5 +1,8 @@
 ### CC Madhya 8.25
 
+> দেখিয়া ব্রাহ্মণগণের হৈল চমৎকার ৷
+> বৈদিক ব্রাহ্মণ সব করেন বিচার ৷৷ ২৫ ৷৷ ॥২৫॥
+
 dekhiyā brāhmaṇa-gaṇera haila camatkāra
 
 vaidika brāhmaṇa saba karena vicāra

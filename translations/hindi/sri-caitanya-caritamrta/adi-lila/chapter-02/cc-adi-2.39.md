@@ -1,5 +1,8 @@
 ### CC Adi 2.39
 
+> অতএব তুমি হও মূল নারায়ণ ।
+> এই এক হেতু, শুন দ্বিতীয় কারণ ॥৩৯॥
+
 > ataeva tumi hao mūla nārāyaṇa
 > ei eka hetu, śuna dvitīya kāraṇa
 

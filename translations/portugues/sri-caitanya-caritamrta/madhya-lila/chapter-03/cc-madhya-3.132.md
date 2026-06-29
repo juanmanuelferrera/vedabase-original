@@ -1,5 +1,8 @@
 ### CC Madhya 3.132
 
+> এই মত প্ৰহরেক নাচে প্রভু রঙ্গে ৷
+> কভু হর্ষ, কভু বিষাদ, ভাবের তরঙ্গে ॥১৩২॥
+
 ei mata prahareka nāce prabhu raṅge
 
 kabhu harṣa, kabhu viṣāda, bhāvera taraṅge

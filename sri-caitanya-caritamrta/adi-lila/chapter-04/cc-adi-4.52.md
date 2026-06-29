@@ -1,5 +1,10 @@
 ### CC Adi 4.52
 
+> অপারং কস্যাপি প্রণয়িজনবৃন্দস্য কুতুকী
+> রসস্তোমং হৃত্বা মধুরমুপভোক্তুং কমপি যঃ ।
+> রুচং স্বামাবব্রে দ্যুতিমিহ তদীয়াং প্রকটয়ন্
+> স দেবশ্চৈতন্যাকৃতিরতিতরাং নঃ কৃপয়তু ॥৫২॥
+
 > apāraṁ kasyāpi praṇayi-jana-vṛndasya kutukī
 > rasa-stomaṁ hṛtvā madhuram upabhoktuṁ kam-api yaḥ
 > rucaṁ svām āvavre dyutim iha tadīyāṁ prakaṭayan

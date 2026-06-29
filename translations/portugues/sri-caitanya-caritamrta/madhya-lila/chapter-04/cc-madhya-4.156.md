@@ -1,5 +1,8 @@
 ### CC Madhya 4.156
 
+> পুরী দেখি’ সেবক সব সম্মান করিল ।
+> ক্ষীরপ্রসাদ দিয়া তাঁরে ভিক্ষা করাইল ॥১৫৬॥
+
 purī dekhi' sevaka saba sammāna karila
 kṣīra-prasāda diyā tāṅre bhikṣā karāila
 

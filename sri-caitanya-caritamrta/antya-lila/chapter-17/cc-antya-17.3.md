@@ -1,5 +1,8 @@
 ### CC Antya 17.3
 
+> এইমত মহাপ্রভু রাত্রি-দিবসে ।
+> উন্মাদের চেষ্টা, প্রলাপ করে প্রেমাবেশে ॥৩॥
+
 > ei-mata mahāprabhu rātri-divase
 > unmādera ceṣṭā, pralāpa kare premāveśe
 

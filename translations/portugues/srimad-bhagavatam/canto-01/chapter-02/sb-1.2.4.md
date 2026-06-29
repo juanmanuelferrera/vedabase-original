@@ -1,5 +1,8 @@
 ### SB 1.2.4
 
+> नारायणं नमस्कृत्य नरं चैव नरोत्तमम् ।
+> देवीं सरस्वतीं व्यासं ततो जयमुदीरयेत् ॥४॥
+
 nārāyaṇaṁ namaskṛtya
 naraṁ caiva narottamam
 devīṁ sarasvatīṁ vyāsaṁ

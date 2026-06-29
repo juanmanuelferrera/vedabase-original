@@ -1,5 +1,8 @@
 ### CC Adi 17.270
 
+> তুমি ত’ ঈশ্বর বট, — সাক্ষাৎ নারায়ণ ।
+> কৃপা করি’ কর মোর সংসার মোচন ॥২৭০॥
+
 > tumi ta' īśvara baṭa,--sākṣāt nārāyaṇa
 > kṛpā kari' kara mora saṁsāra mocana
 

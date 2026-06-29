@@ -1,5 +1,8 @@
 ### CC Madhya 17.199
 
+> শুক, পিক, ভৃঙ্গ প্রভুরে দেখি’ ‘পঞ্চম’ গায় ।
+> শিখিগণ নৃত্য করি’ প্রভু-আগে যায় ॥১৯৯॥
+
 > śuka, pika, bhṛṅga prabhure dekhi' 'pañcama' gāya
 > śikhi-gaṇa nṛtya kari' prabhu-āge yāya
 

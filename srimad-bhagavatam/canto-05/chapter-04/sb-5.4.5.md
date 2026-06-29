@@ -1,5 +1,7 @@
 ### SB 5.4.5
 
+> विदितानुरागमापौरप्रकृति जनपदो राजा नाभिरात्मजं समयसेतुरक्षायामभिषिच्यब्राह्मणेषूपनिधाय सह मेरुदेव्या विशालायां प्रसन्ननिपुणेन तपसा समाधियोगेन नरनारायणाख्यं भगवन्तं वासुदेवमुपासीनः कालेन तन्महिमानमवाप ॥५॥
+
 > viditānurāgam āpaura-prakṛti jana-pado rājā nābhir ātmajaṁ samaya-setu-rakṣāyām abhiṣicya brāhmaṇeṣūpanidhāya saha merudevyā viśālāyāṁ prasanna-nipuṇena tapasā samādhi-yogena nara-nārāyaṇākhyaṁ bhagavantaṁ vāsudevam upāsīnaḥ kālena tan-mahimānam avāpa.
 
 *vidita*—known very well; *anurāgam*—popularity; *āpaura-prakṛti*—among all the citizens and government officers; *jana-padaḥ*—desiring to serve the people in general; *rājā*—the King; *nābhiḥ*—Nābhi; *ātmajam*—his son; *samaya-setu-rakṣāyām*—to protect the people strictly according to the Vedic principles of religious life; *abhiṣicya*—enthroning; *brāhmaṇeṣu*—to the learned *brāhmaṇas*; *upanidhāya*—entrusting; *saha*—with; *merudevyā*—his wife. Merudevī; *viśālāyām*—in Badarikāśrama; *prasanna-nipuṇena*—performed with great satisfaction and expertise; *tapasā*—by austerities and penances; *samādhi-yogena*—by full *samādhi*; *nara-nārāyaṇa-ākhyam*—named Nara-Nārāyaṇa; *bhagavantam*—the Supreme Personality of Godhead; *vāsudevam*—Kṛṣṇa; *upāsīnaḥ*—worshiping; *kālena*—in due course of time; *tat-mahimānam*—His glorious abode, the spiritual world, Vaikuṇṭha; *avāpa*—achieved.

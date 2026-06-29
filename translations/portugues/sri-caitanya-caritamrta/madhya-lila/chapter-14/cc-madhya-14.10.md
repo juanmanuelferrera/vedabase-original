@@ -1,5 +1,8 @@
 ### CC Madhya 14.10
 
+> “তব কথামৃতং” শ্লোক রাজা যে পড়িল ।
+> উঠি’ প্রেমাবেশে প্রভু আলিঙ্গন কৈল ॥১০॥
+
 "tava kathāmṛtaṁ" śloka rājā ye paḍila
 uṭhi' premāveśe prabhu āliṅgana kaila
 

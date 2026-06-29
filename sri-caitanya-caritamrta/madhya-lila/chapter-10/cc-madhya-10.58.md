@@ -1,5 +1,8 @@
 ### CC Madhya 10.58
 
+> প্রভু কহে, — কি সঙ্কোচ, তুমি নহ পর ।
+> জন্মে জন্মে তুমি আমার সবংশে কিঙ্কর ॥৫৮॥
+
 > prabhu kahe,-ki saṅkoca, tumi naha para
 > janme janme tumi āmāra savaṁśe kiṅkara
 

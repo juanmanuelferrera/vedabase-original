@@ -1,5 +1,8 @@
 ### CC Madhya 14.167
 
+> অষ্ট ‘সাত্ত্বিক’, হর্ষাদি ‘ব্যভিচারী’ যাঁর ।
+> ‘সহজ প্রেম’, বিংশতি ‘ভাব’-অলঙ্কার ॥১৬৭॥
+
 > aṣṭa 'sāttvika', harṣādi 'vyabhicārī' yāṅra
 > 'sahaja prema', viṁśati 'bhāva'-alaṅkāra
 

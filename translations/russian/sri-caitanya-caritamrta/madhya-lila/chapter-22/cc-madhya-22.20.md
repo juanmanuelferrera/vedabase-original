@@ -1,5 +1,10 @@
 ### CC Madhya 22.20
 
+> তপস্বিনো দানপরা যশস্বিনো
+> মনস্বিনো মন্ত্রবিদঃ সুমঙ্গলাঃ ।
+> ক্ষেমং ন বিন্দন্তি বিনা যদর্পণং
+> তস্মৈ সুভদ্রশ্রবসে নমো নমঃ ॥২০॥
+
 > tapasvino dāna-parā yaśasvino
 > manasvino mantra-vidaḥ sumaṅgalāḥ
 > kṣemaṁ na vindanti vinā yad-arpaṇaṁ

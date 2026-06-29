@@ -1,5 +1,8 @@
 ### SB 9.19.15
 
+> यदा न कुरुते भावं सर्वभूतेष्वमङ्गलम
+> समदृष्टेस्तदा पुंसः सर्वाः सुखमया दिशः ॥१५॥
+
 > yadā na kurute bhāvaṁ
 > sarva-bhūteṣv amaṅgalam
 > sama-dṛṣṭes tadā puṁsaḥ

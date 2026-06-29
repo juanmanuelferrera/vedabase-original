@@ -1,5 +1,8 @@
 ### CC Adi 2.110
 
+> অতএব চৈতন্য গোসাঞি পরতত্ত্ব-সীমা ।
+> তাঁরে ক্ষীরোদশায়ী কহি, কি তাঁর মহিমা ॥১১০॥
+
 > ataeva caitanya gosāñi paratattva-sīmā
 > tāṅre kṣīroda-śāyī kahi, ki tāṅra mahimā
 

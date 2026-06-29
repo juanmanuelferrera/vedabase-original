@@ -1,5 +1,8 @@
 ### CC Antya 4.200
 
+> এ-বৎসর তুমি ইহাঁ রহ আমা-সনে ।
+> বৎসর রহি’ তোমারে আমি পাঠাইমু বৃন্দাবনে ॥২০০॥
+
 > e-vatsara tumi ihāṅ raha āmā-sane
 > vatsara rahi' tomāre āmi pāṭhāimu vṛndāvane
 

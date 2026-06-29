@@ -1,5 +1,8 @@
 ### CC Adi 5.181
 
+> নৈহাটি নিকটে ‘ঝামটপুর’ নামে গ্রাম ।
+> তাঁহা স্বপ্নে দেখা দিলা নিত্যানন্দ-রাম ॥১৮১॥
+
 > naihāṭi-nikaṭe 'jhāmaṭapura' nāme grāma
 > tāṅhā svapne dekhā dilā nityānanda-rāma
 

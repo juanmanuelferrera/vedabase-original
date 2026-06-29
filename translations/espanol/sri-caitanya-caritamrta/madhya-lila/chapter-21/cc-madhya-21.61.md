@@ -1,5 +1,8 @@
 ### CC Madhya 21.61
 
+> বিস্মিত হঞা ব্রহ্মা দ্বারীকে কহিলা ।
+> ‘কহ গিয়া সনক-পিতা চতুর্মুখ আইলা’ ॥৬১॥
+
 > vismita hañā brahmā dvārīke kahilā
 > 'kaha giyā sanaka-pitā caturmukha āilā'
 

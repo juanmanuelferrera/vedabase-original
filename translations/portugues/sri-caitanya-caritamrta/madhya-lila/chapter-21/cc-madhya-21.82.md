@@ -1,5 +1,8 @@
 ### CC Madhya 21.82
 
+> ব্রহ্মা বলে, — পূর্বে আমি যে নিশ্চয় করিলুঁ ।
+> তার উদাহরণ আমি আজি ত’ দেখিলুঁ ॥৮২॥
+
 brahmā bale,--pūrve āmi ye niścaya kariluṅ
 
 tāra udāharaṇa āmi āji ta' dekhiluṅ

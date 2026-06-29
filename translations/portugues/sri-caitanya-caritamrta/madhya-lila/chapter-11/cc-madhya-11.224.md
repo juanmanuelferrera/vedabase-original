@@ -1,5 +1,8 @@
 ### CC Madhya 11.224
 
+> ‘বেড়ানৃত্য’ মহাপ্রভু করি’ কতক্ষণ ৷
+> মন্দিরের পাছে রহি’ করয়ে কীর্তন ৷৷ ২২৪ ৷৷ ॥২২৪॥
+
 'beḍā-nṛtya' mahāprabhu kari' kata-kṣaṇa
 mandirera pāche rahi' karaye kīrtana
 

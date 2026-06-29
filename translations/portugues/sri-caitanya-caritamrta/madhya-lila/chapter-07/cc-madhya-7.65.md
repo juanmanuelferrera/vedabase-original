@@ -1,5 +1,8 @@
 ### CC Madhya 7.65
 
+> পাণ্ডিত্য আর ভক্তিরস, — দুঁহের তেঁহো সীমা ৷
+> সম্ভাষিলে জানিবে তুমি তাঁহার মহিমা ৷৷ ৬৫ ৷৷ ॥৬৫॥
+
 pāṇḍitya āra bhakti-rasa,--duṅhera teṅho sīmā
 sambhāṣile jānibe tumi tāṅhāra mahimā
 

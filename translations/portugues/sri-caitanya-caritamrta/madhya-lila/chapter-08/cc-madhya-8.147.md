@@ -1,5 +1,10 @@
 ### CC Madhya 8.147
 
+> কস্যানুভাবোঽস্য ন দেব বিদ্মহে
+> তবাঙ্ঘ্রিরেণুস্পরশাধিকারঃ ৷
+> যদ্বাঞ্ছয়া শ্রীর্ললনাচরত্তপো
+> বিহায় কামান্ সুচিরং ধৃতব্রতা ৷৷ ১৪৭ ৷৷ ॥১৪৭॥
+
 kasyānubhāvo 'sya na deva vidmahe
 tavāṅghri-reṇu-sparaśādhikāraḥ
 yad-vāñchayā śrīr lalanācarat tapo

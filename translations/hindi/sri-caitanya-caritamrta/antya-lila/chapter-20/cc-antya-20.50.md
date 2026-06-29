@@ -1,5 +1,10 @@
 ### CC Antya 20.50
 
+> ছাড়ি’ অন্য নারীগণ, মোর বশ তনুমন,
+> মোর সৌভাগ্য প্রকট করিয়া ।
+> তা-সবারে দেয় পীড়া, আমা-সনে করে ক্রীড়া,
+> সেই নারীগণে দেখাঞা ॥৫০॥
+
 > chāḍi' anya nārī-gaṇa, mora vaśa tanu-mana,
 > mora saubhāgya prakaṭa kariyā
 > tā-sabāre deya pīḍā, āmā-sane kare krīḍā,

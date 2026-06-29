@@ -1,5 +1,8 @@
 ### CC Antya 19.7
 
+> কহিহ তাঁহারে — ‘তুমি করহ স্মরণ ।
+> নিত্য আসি’ আমি তোমার বন্দিয়ে চরণ ॥৭॥
+
 > kahiha tāṅhāre—'tumi karaha smaraṇa
 > nitya āsi' āmi tomāra vandiye caraṇa
 

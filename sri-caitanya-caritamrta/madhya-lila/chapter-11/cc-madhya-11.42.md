@@ -1,5 +1,8 @@
 ### CC Madhya 11.42
 
+> মোর লাগি’ প্রভুপদে কৈলে নিবেদন ?
+> সার্বভৌম কহে, — কৈনু অনেক যতন ॥৪২॥
+
 > mora lāgi' prabhu-pade kaile nivedana?
 > sārvabhauma kahe,-kainu aneka yatana
 

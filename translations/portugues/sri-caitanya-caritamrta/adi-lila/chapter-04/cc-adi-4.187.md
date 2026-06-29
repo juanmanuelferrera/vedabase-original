@@ -1,5 +1,8 @@
 ### CC Adi 4.187
 
+> গোপিকা-দর্শনে কৃষ্ণের যে আনন্দ হয় ।
+> তাহা হৈতে কোটিগুণ গোপী আস্বাদয় ॥১৮৭॥
+
 gopīkā-darśane kṛṣṇera ye ānanda haya
 tāhā haite koṭi-guṇa gopī āsvādaya
 

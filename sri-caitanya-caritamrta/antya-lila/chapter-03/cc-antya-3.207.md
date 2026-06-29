@@ -1,5 +1,8 @@
 ### CC Antya 3.207
 
+> যাহ ঘর, কৃষ্ণ করুন কুশল সবার ।
+> আমার সম্বন্ধে দুঃখ না হউক কাহার" ॥২০৭॥
+
 > yāha ghara, kṛṣṇa karuna kuśala sabāra
 > āmāra sambandhe duḥkha nā ha-uka kāhāra"
 

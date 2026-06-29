@@ -1,5 +1,8 @@
 ### CC Madhya 19.68
 
+> ভট্টের বিস্ময় হৈল, প্রভুর হর্ষ মন ।
+> ভট্টেরে কহিলা প্রভু তাঁর বিবরণ ॥৬৮॥
+
 bhaṭṭera vismaya haila, prabhura harṣa mana
 
 bhaṭṭere kahilā prabhu tāṅra vivaraṇa

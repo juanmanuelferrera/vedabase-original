@@ -1,5 +1,8 @@
 ### CC Adi 17.39
 
+> কলার পাত উপরে থুইল ওড়-ফুল ।
+> হরিদ্রা, সিন্দূর আর রক্তচন্দন, তণ্ডুল ॥৩৯॥
+
 kalāra pāta upare thuila oḍa-phula
 haridrā, sindūra āra rakta-candana, taṇḍula
 

@@ -1,5 +1,8 @@
 ### CC Madhya 8.260
 
+> এইমত দুই জন কৃষ্ণকথা-রসে ৷
+> নৃত্য-গীত-রোদনে হৈল রাত্রি-শেষে ৷৷ ২৬০ ৷৷ ॥২৬০॥
+
 ei-mata dui jana kṛṣṇa-kathā-rase
 
 nṛtya-gīta-rodane haila rātri-śeṣe

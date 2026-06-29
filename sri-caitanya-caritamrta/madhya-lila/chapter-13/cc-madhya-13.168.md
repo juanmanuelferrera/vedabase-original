@@ -1,5 +1,8 @@
 ### CC Madhya 13.168
 
+> শ্রীজগন্নাথের দেখে শ্রীমুখ-কমল ।
+> তাহার উপর সুন্দর নয়নযুগল ॥১৬৮॥
+
 > śrī-jagannāthera dekhe śrī-mukha-kamala
 > tāhāra upara sundara nayana-yugala
 

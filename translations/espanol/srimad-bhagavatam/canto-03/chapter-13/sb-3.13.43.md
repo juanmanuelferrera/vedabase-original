@@ -1,5 +1,8 @@
 ### SB 3.13.43
 
+> कः श्रद्दधीतान्यतमस्तव प्रभो रसां गताया भुव उद्विबर्हणम् ।
+> न विस्मयोऽसौ त्वयि विश्वविस्मये यो माययेदं ससृजेऽतिविस्मयम् ॥४३॥
+
 > kaḥ śraddadhītānyatamas tava prabho
 > rasāṁ gatāyā bhuva udvibarhaṇam
 > na vismayo 'sau tvayi viśva-vismaye

@@ -1,5 +1,8 @@
 ### SB 8.19.36
 
+> न तद्दानं प्रशंसन्ति येन वृत्तिर्विपद्यते
+> दानं यज्ञअस्तपः कर्म लोके वृत्तिमतो यतः ॥३६॥
+
 > na tad dānaṁ praśaṁsanti
 > yena vṛttir vipadyate
 > dānaṁ yajñas tapaḥ karma

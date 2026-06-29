@@ -1,5 +1,8 @@
 ### CC Antya 3.108
 
+> বেশ্যা কহে, — “মোর সঙ্গ হউক একবার ।
+> দ্বিতীয়বারে ধরিতে পাইক লইমু তোমার ।।” ॥ ১০৮ ॥
+
 > veśyā kahe,--"mora saṅga ha-uka eka-bāra
 > dvitīya-bāre dharite pāika la-imu tomāra"
 

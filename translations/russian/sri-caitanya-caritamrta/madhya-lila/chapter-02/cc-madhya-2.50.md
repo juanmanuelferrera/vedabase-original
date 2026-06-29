@@ -1,5 +1,8 @@
 ### CC Madhya 2.50
 
+> এই মত দিনে দিনে, স্বরূপ-রামানন্দ-সনে,
+> নিজ-ভাব করেন বিদিত । ॥৫০॥
+
 > ei mata dine dine, svarūpa-rāmānanda-sane,
 > nija-bhāva karena vidita
 > bāhye viṣa-jvālā haya, bhitare ānanda-maya,

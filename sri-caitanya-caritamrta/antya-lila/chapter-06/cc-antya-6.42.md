@@ -1,5 +1,8 @@
 ### CC Antya 6.42
 
+> তবে রঘুনাথ কিছু বিচারিলা মনে ।
+> নিত্যানন্দ-গোসাঞির পাশ চলিলা আর দিনে ॥৪২॥
+
 > tabe raghunātha kichu vicārilā mane
 > nityānanda-gosāñira pāśa calilā āra dine
 

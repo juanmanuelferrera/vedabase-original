@@ -1,5 +1,8 @@
 ### SB 1.18.21
 
+> अथापि यत्पादनखावसृष्टं जगद्विरिञ्चोपहृतार्हणाम्भः ।
+> सेशं पुनात्यन्यतमो मुकुन्दात्को नाम लोके भगवत्पदार्थः ॥२१॥
+
 > athāpi yat-pāda-nakhāvasṛṣṭaṁ
 > jagad viriñcopahṛtārhaṇāmbhaḥ
 > seśaṁ punāty anyatamo mukundāt

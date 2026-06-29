@@ -1,5 +1,10 @@
 ### SB 9.10.9
 
+> रक्षःस्वसुर्व्यकृत रूपमशुद्धबुद्धेस
+> तस्याः खरत्रिशिरदूषणमुख्यबन्धून
+> जघ्ने चतुर्दशसहस्रमपारणीय
+> कोदण्डपाणिरटमान उवास कृच्छ्रम ॥९॥
+
 > rakṣaḥ-svasur vyakṛta rūpam aśuddha-buddhes
 > tasyāḥ khara-triśira-dūṣaṇa-mukhya-bandhūn
 > jaghne caturdaśa-sahasram apāraṇīya-

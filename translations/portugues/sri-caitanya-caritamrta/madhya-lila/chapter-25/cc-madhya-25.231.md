@@ -1,5 +1,8 @@
 ### CC Madhya 25.231
 
+> আনন্দ-সমুদ্রে ভাসে সব ভক্তগণে ।
+> সবা লঞা চলে প্রভু জগন্নাথ-দরশনে ॥২৩১॥
+
 ānanda-samudre bhāse saba bhakta-gaṇe
 
 sabā lañā cale prabhu jagannātha-daraśane

@@ -1,5 +1,8 @@
 ### CC Madhya 14.254
 
+> তবে জগন্নাথ যাই’ বসিলা সিংহাসনে ।
+> মহাপ্রভু ঘরে আইলা লঞা ভক্তগণে ॥২৫৪॥
+
 tabe jagannātha yāi' vasilā siṁhāsane
 
 mahāprabhu ghare āilā lañā bhakta-gaṇe

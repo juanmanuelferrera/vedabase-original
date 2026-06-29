@@ -1,5 +1,8 @@
 ### CC Madhya 17.66
 
+> নির্ঝরেতে উষ্ণোদকে স্নান তিনবার ।
+> দুইসন্ধ্যা অগ্নিতাপ কাষ্ঠের অপার ॥৬৬॥
+
 nirjharete uṣṇodake snāna tina-bāra
 
 dui-sandhyā agni-tāpa kāṣṭhera apāra

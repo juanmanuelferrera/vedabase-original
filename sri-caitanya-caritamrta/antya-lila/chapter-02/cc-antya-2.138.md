@@ -1,5 +1,8 @@
 ### CC Antya 2.138
 
+> স্বরূপ-গোসাঞি কহে, “শুন, হরিদাস  ।
+> সবে তোমার হিত বাঞ্ছি, করহ বিশ্বাস ॥১৩৮॥
+
 > svarūpa-gosāñi kahe,—"śuna, haridāsa
 > sabe tomāra hita vāñchi, karaha viśvāsa
 

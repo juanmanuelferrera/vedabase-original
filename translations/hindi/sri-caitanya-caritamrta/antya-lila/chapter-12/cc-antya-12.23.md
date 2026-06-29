@@ -1,5 +1,8 @@
 ### CC Antya 12.23
 
+> তেঁহো কহে, — “বাউলি, কেনে মরিস্ কান্দিয়া ?
+> মরুক আমার তিন পুত্র তাঁর বালাই লঞা ।।” ॥ ২৩ ॥
+
 > teṅho kahe,--"bāuli, kene maris kāndiyā?
 > maruka āmāra tina putra tāṅra bālāi lañā"
 

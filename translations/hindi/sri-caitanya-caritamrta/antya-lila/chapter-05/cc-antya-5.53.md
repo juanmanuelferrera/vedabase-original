@@ -1,5 +1,8 @@
 ### CC Antya 5.53
 
+> মোর নাম লইহ, — ‘তেহো পাঠাইলা মোরে ।
+> তোমার স্থানে কৃষ্ণকথা শুনিবার তরে ।।’ ॥ ৫৩ ॥
+
 > mora nāma la-iha,--'teho pāṭhāilā more
 > toṁāra sthāne kṛṣṇa-kathā śunibāra tare'
 

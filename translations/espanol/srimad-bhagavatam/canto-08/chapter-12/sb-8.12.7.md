@@ -1,5 +1,10 @@
 ### SB 8.12.7
 
+> त्वं ब्रह्म पूर्णममृतं विगुणं विशोकम
+> आनन्दमात्रमविकारमनन्यदन्यत
+> विश्वस्य हेतुरुदयस्थितिसंयमानाम
+> आत्मेश्वरश्च तदपेक्षतयानपेक्षः ॥७॥
+
 > tvaṁ brahma pūrṇam amṛtaṁ viguṇaṁ viśokam
 > ānanda-mātram avikāram ananyad anyat
 > viśvasya hetur udaya-sthiti-saṁyamānām

@@ -1,5 +1,7 @@
 ### SB 5.16.8
 
+> उत्तरोत्तरेणेलावृतं नीलः श्वेतः शृङ्गवानिति त्रयो रम्यकहिरण्मयकुरूणां वर्षाणां मर्यादागिरयः प्रागायता उभयतः क्षारोदावधयो द्विसहस्रपृथव एकैकशः पूर्वस्मात्पूर्वस्मादुत्तरउत्तरो दशांशाधिकांशेन दैर्घ्य एव ह्रसन्ति ॥८॥
+
 *uttarottareṇelāvṛtaṁ nīlaḥ śvetaḥ śṛṅgavān iti trayo ramyaka*-hiraṇmaya-kurūṇāṁ varṣāṇāṁ maryādā-girayaḥ prāg-āyatā ubhayataḥ kṣārodāvadhayo dvi-sahasra-pṛthava ekaikaśaḥ pūrvasmāt pūrvasmād uttara uttaro daśāṁśādhikāṁśena dairghya eva hrasanti.
 
 *uttara-uttareṇa ilāvṛtam*—cada vez mais ao norte de Ilāvṛta-varṣa; *nīlaḥ*—Nīla; *śvetaḥ*—Śveta; *śṛṅgavān*—Śṛṅgavān; *iti*—assim; *trayaḥ*—três montanhas; *ramyaka*—Ramyaka; *hiraṇmaya*—Hiraṇmaya; *kurūṇām*—da divisão Kuru; *varṣāṇām*—dos *varṣas*; *maryādā-girayaḥ*—as montanhas que marcam as fronteiras; *prāk-āyatāḥ*—estendidas no lado oriental; *ubhayataḥ*—a leste e oeste; *kṣāroda*—o oceano de água salgada; *avadhayaḥ*—estendendo-se até; *dvi-sahasra-pṛthavaḥ*—que têm dois mil yojanas de largura; *eka-ekaśaḥ*—uma após a outra; *pūrvasmāt*—do que a anterior; *pūrvasmāt*—do que a anterior; *uttaraḥ*—mais ao norte; *uttaraḥ*—mais ao norte; *daśa-aṁśa-adhika-aṁśena*—em um décimo da anterior; *dairghyaḥ*—em comprimento; *eva*—de fato; *hrasanti*—tornam-se mais curtas.

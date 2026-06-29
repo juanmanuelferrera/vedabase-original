@@ -1,5 +1,8 @@
 ### CC Adi 14.18
 
+> মহোৎসব কর, সব বোলাহ ব্রাহ্মণ ।
+> আজি দিন ভাল, — করিব নামকরণ ॥১৮॥
+
 mahotsava kara, saba bolāha brāhmaṇa
 āji dina bhāla,--kariba nāma-karaṇa
 

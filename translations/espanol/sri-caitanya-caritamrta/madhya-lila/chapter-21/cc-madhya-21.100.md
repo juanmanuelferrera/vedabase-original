@@ -1,5 +1,8 @@
 ### CC Madhya 21.100
 
+> যন্মর্ত্যলীলৌপয়িকং স্বযোগমায়াবলং দর্শয়তা গৃহীতম্ ।
+> বিস্মাপনং স্বস্য চ সৌভগর্ধেঃ পরং পদং ভূষণভূষণাঙ্গম্ ॥১০০॥
+
 > yan martya-līlaupayikaṁ svayoga-
 > māyā-balaṁ darśayatā gṛhītam
 > vismāpanaṁ svasya ca saubhagardheḥ

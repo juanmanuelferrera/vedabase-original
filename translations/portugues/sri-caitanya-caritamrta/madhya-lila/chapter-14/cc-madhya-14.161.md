@@ -1,5 +1,8 @@
 ### CC Madhya 14.161
 
+> বয়সে ‘মধ্যমা’তেঁহো স্বভাবেতে ‘সমা’ ।
+> গাঢ় প্রেমভাবে তেঁহো নিরন্তর ‘বামা’ ॥১৬১॥
+
 vayase 'madhyamā' teṅho svabhāvete 'samā'
 
 gāḍha prema-bhāve teṅho nirantara 'vāmā'

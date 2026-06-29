@@ -1,5 +1,8 @@
 ### CC Antya 2.119
 
+> মাত্রা স্বস্রা দুহিত্রা বা নাবিবিক্তাসনো ভবেৎ ।
+> বলবানিন্দ্রিয়গ্রামো বিদ্বাংসমপি কর্ষতি ॥১১৯॥
+
 > mātrā svasrā duhitrā vā
 > nā viviktāsano bhavet
 > balavān indriya-grāmo

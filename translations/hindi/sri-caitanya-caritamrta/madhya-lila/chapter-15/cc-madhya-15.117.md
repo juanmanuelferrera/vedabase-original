@@ -1,5 +1,8 @@
 ### CC Madhya 15.117
 
+> শুনি’ হর্ষে কহে প্রভু — “কহিলে নিশ্চয় ।
+> যাঁহা হৈতে কৃষ্ণভক্তি সেই গুরু হয়” ॥১১৭॥
+
 > śuni' harṣe kahe prabhu--"kahile niścaya
 > yāṅhā haite kṛṣṇa-bhakti sei guru haya"
 

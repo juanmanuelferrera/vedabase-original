@@ -1,5 +1,10 @@
 ### CC Antya 14.48
 
+> বৃন্দাবনে প্রজাগণ, যত স্থাবর-জঙ্গম,
+> বৃক্ষ-লতা গৃহস্থ-আশ্রমে ।
+> তার ঘরে ভিক্ষাটন, ফল-মূল-পত্রাশন,
+> এই বৃত্তি করে শিষ্যসনে ॥৪৮॥
+
 > vṛndāvane prajā-gaṇa, yata sthāvara-jaṅgama,
 > vṛkṣa-latā gṛhastha-āśrame
 > tāra ghare bhikṣāṭana, phala-mūla-patrāśana,

@@ -1,5 +1,8 @@
 ### CC Madhya 21.95
 
+> মণি-পীঠে ঠেকাঠেকি, উঠে ঝন্ঝনি ।
+> পীঠের স্তুতি করে মুকুট — হেন অনুমানি ॥৯৫॥
+
 maṇi-pīṭhe ṭhekāṭheki, uṭhe jhanjhani
 
 pīṭhera stuti kare mukuṭa--hena anumāni

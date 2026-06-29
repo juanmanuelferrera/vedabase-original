@@ -1,5 +1,8 @@
 ### SB 7.5.51
 
+> तथेति गुरुपुत्रोक्तमनुज्ञआयेदमब्रवीत
+> धर्मो ह्यस्योपदेष्टव्यो राज्ञआं यो गृहमेधिनाम ॥५१॥
+
 > tatheti guru-putroktam
 > anujñāyedam abravīt
 > dharmo hy asyopadeṣṭavyo

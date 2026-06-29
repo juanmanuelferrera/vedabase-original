@@ -1,5 +1,8 @@
 ### SB 8.20.5
 
+> नाहं बिभेमि निरयान्नाधन्यादसुखार्णवात
+> न स्थानच्यवनान्मृत्योर्यथा विप्रप्रलम्भनात ॥५॥
+
 > nāhaṁ bibhemi nirayān
 > nādhanyād asukhārṇavāt
 > na sthāna-cyavanān mṛtyor

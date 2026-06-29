@@ -1,5 +1,8 @@
 ### CC Madhya 13.189
 
+> তবে মহাপ্ৰভু রথ প্রদক্ষিণ করিয়া ।
+> রথ-পাছে যাই’ ঠেলে রথে মাথা দিয়া ॥১৮৯॥
+
 > tabe mahāprabhu ratha pradakṣiṇa kariyā
 > ratha-pāche yāi' ṭhele rathe māthā diyā
 

@@ -1,5 +1,7 @@
 ### SB 5.26.18
 
+> यस्त्विह वा असंविभज्याश्नाति यत्किञ्चनोपनतमनिर्मितपञ्चयज्ञओ वायससंस्तुतः सपरत्र कृमिभोजने नरकाधमे निपतति तत्र शतसहस्रयोजने कृमिकुण्डे कृमिभूतः स्वयंकृमिभिरेव भक्ष्यमाणः कृमिभोजनो यावत्तदप्रत्ताप्रहूतादोऽनिर्वेशमात्मानं यातयते ॥१७॥
+
 > yas tv iha vā asaṁvibhajyāśnāti yat kiñcanopanatam anirmita-pañca-yajño vāyasa-saṁstutaḥ sa paratra kṛmibhojane narakādhame nipatati tatra śata-sahasra-yojane kṛmi-kuṇḍe kṛmi-bhūtaḥ svayaṁ kṛmibhir eva bhakṣyamāṇaḥ kṛmi-bhojano yāvat tad aprattāprahūtādo 'nirveśam ātmānaṁ yātayate.
 
 *yaḥ*—any person who; *tu*—but; *iha*—in this life; *vā*—or; *asaṁ-vibhajya*—without dividing; *aśnāti*—eats; *yat kiñcana*—whatever; *upanatam*—obtained by Kṛṣṇa's grace; *anirmita*—not performing; *pañca-yajñaḥ*—the five kinds of sacrifice; *vāyasa*—with the crows; *saṁstutaḥ*—who is described as equal; *saḥ*—such a person; *paratra*—in the next life; *kṛmibhojane*—named Kṛmibhojana; *naraka-adhame*—into the most abominable of all hells; *nipatati*—falls down; *tatra*—there; *śata-sahasra-yojane*—measuring 100,000 *yojanas* (800,000 miles); *kṛmi-kuṇḍe*—in a lake of worms; *kṛmi-bhūtaḥ*—becoming one of the worms; *svayam*—he himself; *kṛmibhiḥ*—by the other worms; *eva*—certainly; *bhakṣyamāṇaḥ*—being eaten; *kṛmi-bhojanaḥ*—eating worms; *yāvat*—as long as; *tat*—that lake is wide; *apratta-aprahūta*—unshared and unoffered food; *adaḥ*—one who eats; *anirveśam*—who has not performed atonement; *ātmānam*—to himself; *yātayate*—gives pain.

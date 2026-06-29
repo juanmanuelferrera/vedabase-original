@@ -1,5 +1,8 @@
 ### CC Adi 17.188
 
+> কাজী কহে — ইহা আমি কারে না কহিল ।
+> সেই দিন আমার এক পিয়াদা আইল ॥১৮৮॥
+
 kājī kahe,--ihā āmi kāre nā kahila
 sei dina āmāra eka piyādā āila
 

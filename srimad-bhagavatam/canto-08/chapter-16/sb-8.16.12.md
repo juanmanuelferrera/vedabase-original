@@ -1,5 +1,8 @@
 ### SB 8.16.12
 
+> अग्नयोऽतिथयो भृत्या भिक्षवो ये च लिप्सवः
+> सर्वं भगवतो ब्रह्मन्ननुध्यानान्न रिष्यति ॥१२॥
+
 > agnayo 'tithayo bhṛtyā
 > bhikṣavo ye ca lipsavaḥ
 > sarvaṁ bhagavato brahmann

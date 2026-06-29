@@ -1,5 +1,8 @@
 ### CC Madhya 5.45
 
+> তুমি যদি কহ, — ‘আমি কিছুই না জানি ।
+> তবে আমি ন্যায় করি’ ব্রাহ্মণেরে জিনি ।।” ॥ ৪৫ ॥
+
 > tumi yadi kaha,--'āmi kichui nā jāni'
 > tabe āmi nyāya kari' brāhmaṇere jini"
 

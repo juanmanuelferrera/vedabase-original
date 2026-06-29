@@ -1,5 +1,8 @@
 ### CC Antya 8.30
 
+> তুষ্ট হঞা পুরী তাঁরে কৈলা আলিঙ্গন ।
+> বর দিলা — ‘কৃষ্ণে তোমার হউক প্রেমধন’ ॥৩০॥
+
 > tuṣṭa hañā purī tāṅre kailā āliṅgana
 > vara dilā--'kṛṣṇe tomāra ha-uka prema-dhana'
 

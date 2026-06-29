@@ -1,5 +1,8 @@
 ### SB 2.1.29
 
+> इन्द्रादयो बाहव आहुरुस्राः कर्णौ दिशः श्रोत्रममुष्य शब्दः ।
+> नासत्यदस्रौ परमस्य नासे घ्राणोऽस्य गन्धो मुखमग्निरिद्धः ॥२९॥
+
 > indrādayo bāhava āhur usrāḥ
 > karṇau diśaḥ śrotram amuṣya śabdaḥ
 > nāsatya-dasrau paramasya nāse

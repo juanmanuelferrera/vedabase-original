@@ -1,5 +1,9 @@
 ### SB 4.13.6
 
+> मैत्रेय उवाच
+> ध्रुवस्य चोत्कलः पुत्रः पितरि प्रस्थिते वनम् ।
+> सार्वभौमश्रियं नैच्छदधिराजासनं पितुः ॥६॥
+
 > maitreya uvāca
 > dhruvasya cotkalaḥ putraḥ
 > pitari prasthite vanam

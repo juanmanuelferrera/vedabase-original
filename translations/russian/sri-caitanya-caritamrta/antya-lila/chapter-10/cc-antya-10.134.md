@@ -1,5 +1,8 @@
 ### CC Antya 10.134
 
+> মধ্যে মধ্যে আচার্যাদি করে নিমন্ত্রণ ।
+> ঘরে ভাত রান্ধে আর বিবিধ ব্যঞ্জন ॥১৩৪॥
+
 > madhye madhye ācāryādi kare nimantraṇa
 > ghare bhāta rāndhe āra vividha vyañjana
 

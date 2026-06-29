@@ -1,5 +1,8 @@
 ### CC Madhya 20.18
 
+> সেই ভূঞার সঙ্গে হয় হাতগণিতা  ।
+> ভূঞার কাণে কহে সেই জানি’ এই কথা ॥১৮॥
+
 > sei bhūñāra saṅge haya hāta-gaṇitā
 > bhūñāra kāṇe kahe sei jāni' ei kathā
 

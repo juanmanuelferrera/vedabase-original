@@ -1,5 +1,8 @@
 ### CC Madhya 8.271
 
+> এইমত তোমা দেখি’ হয় চমৎকার ।
+> অকপটে কহ, প্রভু, কারণ ইহার ॥২৭১॥
+
 > ei-mata tomā dekhi' haya camatkāra
 > akapaṭe kaha, prabhu, kāraṇa ihāra
 

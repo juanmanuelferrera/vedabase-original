@@ -1,5 +1,8 @@
 ### CC Antya 13.108
 
+> পরম সন্তোষে প্রভু করেন ভোজন ।
+> প্রভুর অবশিষ্ট-পাত্র ভট্টের ভক্ষণ ॥১০৮॥
+
 parama santoṣe prabhu karena bhojana
 
 prabhura avaśiṣṭa-pātra bhaṭṭera bhakṣaṇa

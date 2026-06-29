@@ -1,5 +1,8 @@
 ### CC Antya 6.34
 
+> রঘুনাথ আসি’ তবে জ্যেঠারে মিলাইল ।
+> ম্লেচ্ছ-সহিত বশ কৈল — সব শান্ত হৈল ॥৩৪॥
+
 > raghunātha āsi' tabe jyeṭhāre milāila
 > mleccha-sahita vaśa kaila—saba śānta haila
 

@@ -1,5 +1,8 @@
 ### CC Madhya 7.116
 
+> দর্শনে ‘বৈষ্ণব’ হৈল, বলে ‘কৃষ্ণ’ ‘হরি’ ।
+> প্রেমাবেশে নাচে লোক ঊর্ধ্ববাহু করি’ ॥১১৬॥
+
 > darśane 'vaiṣṇava' haila, bale 'kṛṣṇa' 'hari'
 > premāveśe nāce loka ūrdhva bāhu kari'
 

@@ -1,5 +1,10 @@
 ### CC Madhya 2.34
 
+> কৃষ্ণ-কর-পদতল, কোটিচন্দ্র-সুশীতল,
+> তার স্পর্শ যেন স্পর্শমণি ।
+> তার স্পর্শ নাহি যার, সে যাউক্ ছারখার,
+> সেই বপু লৌহ-সম জানি ॥৩৪॥
+
 > kṛṣṇa-kara-pada-tala, koṭi-candra-suśītala,
 > tāra sparśa yena sparśa-maṇi
 > tāra sparśa nāhi yāra, se yāuk chārakhāra,

@@ -1,5 +1,8 @@
 ### CC Antya 9.90
 
+> রাজার বর্তন খায়, আর চুরি করে ।
+> রাজদণ্ড্য হয় সেই শাস্ত্রের বিচারে ॥৯০॥
+
 rājāra vartana khāya, āra curi kare
 
 rāja-daṇḍya haya sei śāstrera vicāre

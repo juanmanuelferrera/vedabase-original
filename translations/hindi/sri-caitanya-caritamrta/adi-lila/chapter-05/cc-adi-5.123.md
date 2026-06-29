@@ -1,5 +1,8 @@
 ### CC Adi 5.123
 
+> ছত্র, পাদুকা, শয্যা, উপাধান, বসন ।
+> আরাম, আবাস, যজ্ঞসূত্র, সিংহাসন ॥১২৩॥
+
 > chatra, pādukā, śayyā, upādhāna, vasana
 > ārāma, āvāsa, yajña-sūtra, siṁhāsana
 

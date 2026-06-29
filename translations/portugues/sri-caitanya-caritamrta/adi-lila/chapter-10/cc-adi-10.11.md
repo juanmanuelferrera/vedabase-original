@@ -1,5 +1,8 @@
 ### CC Adi 10.11
 
+> চারি ভাই সবংশে করে চৈতন্যের সেবা ।
+> গৌরচন্দ্র বিনা নাহি জানে দেবী-দেবা ॥১১॥
+
 cāri bhāi sa-vaṁśe kare caitanyera sevā
 gauracandra vinā nāhi jāne devī-devā
 

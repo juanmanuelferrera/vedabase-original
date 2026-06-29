@@ -1,5 +1,8 @@
 ### CC Madhya 19.11
 
+> রূপ-গোসাঞি নীলাচলে পাঠাইল দুইজন ।
+> প্রভু যবে বৃন্দাবন করেন গমন ॥১১॥
+
 > rūpa-gosāñi nīlācale pāṭhāila dui-jana
 > prabhu yabe vṛndāvana karena gamana
 

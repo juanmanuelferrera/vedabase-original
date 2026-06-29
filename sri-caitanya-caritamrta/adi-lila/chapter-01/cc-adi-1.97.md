@@ -1,5 +1,8 @@
 ### CC Adi 1.97
 
+> সূর্য চন্দ্র বাহিরের তমঃ সে বিনাশে ।
+> বহির্বস্তু ঘট-পট-আদি সে প্রকাশে ॥৯৭॥
+
 > sūrya candra bāhirera tamaḥ se vināśe
 > bahir-vastu ghaṭa-paṭa-ādi se prakāśe
 

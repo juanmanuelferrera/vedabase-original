@@ -1,5 +1,8 @@
 ### CC Adi 13.59
 
+> জগন্নাথ মিশ্রবর — পদবী ‘পুরন্দর’ ।
+> নন্দ-বসুদেব-রূপ সদ্গুণ-সাগর ॥৫৯॥
+
 > jagannātha miśravara--padavī 'purandara'
 > nanda-vasudeva-rūpa sadguṇa-sāgara
 

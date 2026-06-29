@@ -1,5 +1,8 @@
 ### CC Antya 17.14
 
+> তবে স্বরূপ-গোসাঞি সঙ্গে লঞা ভক্তগণ ।
+> দেউটি জ্বালিয়া করেন প্রভুর অন্বেষণ ॥১৪॥
+
 tabe svarūpa-gosāñi saṅge lañā bhakta-gaṇa
 deuṭi jvāliyā karena prabhura anveṣaṇa
 

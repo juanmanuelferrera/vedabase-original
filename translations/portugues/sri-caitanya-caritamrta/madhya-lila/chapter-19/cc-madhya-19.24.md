@@ -1,5 +1,8 @@
 ### CC Madhya 19.24
 
+> তবে ক্রুদ্ধ হঞা রাজা কহে আরবার ।
+> তোমার ‘বড় ভাই’ করে দস্যুব্যবহার ॥২৪॥
+
 tabe kruddha hañā rājā kahe āra-bāra
 
 tomāra 'baḍa bhāi' kare dasyu-vyavahāra

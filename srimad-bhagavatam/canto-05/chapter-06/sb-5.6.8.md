@@ -1,5 +1,7 @@
 ### SB 5.6.8
 
+> अथ समीरवेगविधूतवेणुविकर्षणजातोग्रदावानलस्तद्वनमालेलिहानः सह तेन ददाह ॥८॥
+
 > atha samīra-vega-vidhūta-veṇu-vikarṣaṇa-jātogra-dāvānalas tad vanam ālelihānaḥ saha tena dadāha.
 
 *atha*—thereafter; *samīra-vega*—by the force of the wind; *vidhūta*—tossed about; *veṇu*—of bamboos; *vikarṣaṇa*—by the rubbing; *jāta*—produced; *ugra*—fierce; *dāva-analaḥ*—a forest fire; *tat*—that; *vanam*—forest near Kuṭakācala; *ālelihānaḥ*—devouring all around; *saha*—with; *tena*—that body; *dadāha*—burned to ashes.

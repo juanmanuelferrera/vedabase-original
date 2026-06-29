@@ -1,5 +1,10 @@
 ### Bg 9.21
 
+> ते तं भुक्त्वा स्वर्गलोकं विशालं
+> क्षीणे पुण्ये मर्त्यलोकं विशन्ति ।
+> एवं त्रयीधर्ममनुप्रपन्ना
+> गतागतं कामकामा लभन्ते ॥२१॥
+
 > te taṁ bhuktvā svarga-lokaṁ viśālaṁ
 > kṣīṇe puṇye martya-lokaṁ viśanti
 > evaṁ trayī-dharmam anuprapannā

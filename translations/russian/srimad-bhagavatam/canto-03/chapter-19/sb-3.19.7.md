@@ -1,5 +1,8 @@
 ### SB 3.19.7
 
+> स तं निशाम्यात्तरथाङ्गमग्रतो व्यवस्थितं पद्मपलाशलोचनम् ।
+> विलोक्य चामर्षपरिप्लुतेन्द्रियो रुषा स्वदन्तच्छदमादशच्छ्वसन् ॥७॥
+
 > sa taṁ niśāmyātta-rathāṅgam agrato
 > vyavasthitaṁ padma-palāśa-locanam
 > vilokya cāmarṣa-pariplutendriyo

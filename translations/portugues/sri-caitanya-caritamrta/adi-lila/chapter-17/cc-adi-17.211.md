@@ -1,5 +1,8 @@
 ### CC Adi 17.211
 
+> কৃষ্ণের কীর্তন করে নীচ বাড় বাড় ।
+> এই পাপে নবদ্বীপ হইবে উজাড় ॥২১১॥
+
 kṛṣṇera kīrtana kare nīca bāḍa bāḍa
 
 ei pāpe navadvīpa ha-ibe ujāḍa

@@ -1,5 +1,8 @@
 ### CC Madhya 16.96
 
+> জগন্নাথে আজ্ঞা মাগি’ প্রভাতে চলিলা ।
+> উড়িয়া-ভক্তগণ সঙ্গে পাছে চলি’ আইলা ॥৯৬॥
+
 jagannāthe ājñā māgi' prabhāte calilā
 
 uḍiyā-bhakta-gaṇa saṅge pāche cali' āilā

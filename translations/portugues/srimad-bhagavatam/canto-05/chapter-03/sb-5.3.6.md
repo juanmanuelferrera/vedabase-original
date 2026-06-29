@@ -1,5 +1,7 @@
 ### SB 5.3.6
 
+> अथानयापि न भवत इज्ययोरुभारभरया समुचितमर्थमिहोपलभामहे ॥६॥
+
 *parijanānurāga*-viracita-śabala-saṁśabda-salila-sita-kisalaya-tulasikā-dūrvāṅkurair api sambhṛtayā saparyayā kila parama parituṣyasi.
 
 *parijana*—por Teus servos; *anurāga*—em grande êxtase; *viracita*—executado; *śabala*—com voz vacilante; *saṁśabda*—com orações; *salila*—água; *sita-kisalaya*—ramos com folhas novas; *tulasikā*—folhas de tulasī; *dūrvā-aṅkuraiḥ*—e com grama recém-brotada; *api*—também; *sambhṛtayā*—realizada; *saparyayā*—pela adoração; *kila*—na verdade; *parama*—ó Senhor Supremo; *parituṣyasi*—ficas satisfeito.

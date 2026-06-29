@@ -1,5 +1,8 @@
 ### CC Madhya 8.31
 
+> তোমা মিলিবারে মোর এথা আগমন ।
+> ভাল হৈল, অনায়াসে পাইলুঁ দরশন ॥৩১॥
+
 > tomā milibāre mora ethā āgamana
 > bhāla haila, anāyāse pāiluṅ daraśana'
 

@@ -1,5 +1,8 @@
 ### CC Antya 4.233
 
+> প্রভু প্রীত্যে তাঁর মাথে ধরিলা চরণ ।
+> রূপ-সনাতন-সম্বন্ধে কৈলা আলিঙ্গন ॥২৩৩॥
+
 prabhu prītye tāṅra māthe dharilā caraṇa
 
 rūpa-sanātana-sambandhe kailā āliṅgana

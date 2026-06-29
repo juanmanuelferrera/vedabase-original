@@ -1,5 +1,8 @@
 ### CC Antya 13.82
 
+> অঙ্গে কাঁটা লাগিল, কিছু না জানিলা !
+> আস্তে-ব্যস্তে গোবিন্দ তাঁর পাছেতে ধাইলা ॥৮২॥
+
 > aṅge kāṅṭā lāgila, kichu nā jānila!
 > āste-vyaste govinda tāṅra pāchete dhāilā
 

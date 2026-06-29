@@ -1,5 +1,7 @@
 ### SB 5.22.5
 
+> अथ स एष आत्मा लोकानां द्यावापृथिव्योरन्तरेण नभोवलयस्य कालचक्रगतो द्वादशमासान्भुङ्क्ते राशिसंज्ञआन्संवत्सरावयवान्मासः पक्षद्वयं दिवा नक्तं चेति सपादर्क्षद्वयमुपदिशन्ति यावता षष्ठमंशं भुञ्जीत स वै ऋतुरित्युपदिश्यते संवत्सरावयवः ॥५॥
+
 > atha sa eṣa ātmā lokānāṁ dyāv-āpṛthivyor antareṇa nabho-valayasya kālacakra-gato dvādaśa māsān bhuṅkte rāśi-saṁjñān saṁvatsarāvayavān māsaḥ pakṣa-dvayaṁ divā naktaṁ ceti sapādarkṣa-dvayam upadiśanti yāvatā ṣaṣṭham aṁśaṁ bhuñjīta sa vai ṛtur ity upadiśyate saṁvatsarāvayavaḥ.
 
 *atha*—por lo tanto; *saḥ*—Él; *eṣaḥ*—este; *ātmā*—la fuerza viviente; *lokānām*—del conjunto de los tres mundos; *dyāv-ā-pṛthivyoḥ antareṇa*—entre las partes superior e inferior del universo; *nabhaḥ-valayasya*—del espacio exterior; *kāla-cakra-gataḥ*—situado en la rueda del tiempo; *dvādaśa māsān*—doce meses; *bhuṅkte*—pasa; *rāśi-saṁjñān*—que recibe sus nombres a partir de los signos del Zodíaco; *saṁvatsara-avayavān*—las partes del año; *māsaḥ*—un mes; *pakṣa-dvayam*—dos quincenas; *divā*—un día; *naktam ca*—y una noche; *iti*—así; *sapāda-ṛkṣa-dvayam*—en cálculos estelares, dos constelaciones y cuarto; *upadiśanti*—enseñan; *yāvatā*—por tanto tiempo; *ṣaṣṭham aṁśam*—un sexto de su órbita; *bhuñjīta*—pasa; *saḥ*—esa parte; *vai*—en verdad; *ṛtuḥ*—una estación; *iti*—así; *upadiśyate*—se enseña; *saṁvatsara-avayavaḥ*—una parte de un año.

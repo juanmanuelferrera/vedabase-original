@@ -1,5 +1,8 @@
 ### CC Madhya 15.90
 
+> কাশম্দি, আচার আদি অনেক প্রকার  ।
+> গন্ধ, বস্ত্র, অলঙ্কার, সর্ব দ্রব্য-সার ॥৯০॥
+
 > kāśamdi, ācāra ādi aneka prakāra
 > gandha, vastra, alaṅkāra, sarva dravya-sāra
 

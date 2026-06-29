@@ -1,5 +1,8 @@
 ### SB 2.1.35
 
+> विज्ञानशक्तिं महिमामनन्ति सर्वात्मनोऽन्तःकरणं गिरित्रम् ।
+> अश्वाश्वतर्युष्ट्रगजा नखानि सर्वे मृगाः पशवः श्रोणिदेशे ॥३५॥
+
 > vijñāna-śaktiṁ mahim āmananti
 > sarvātmano 'ntaḥ-karaṇaṁ giritram
 > aśvāśvatary-uṣṭra-gajā nakhāni

@@ -1,5 +1,8 @@
 ### CC Madhya 12.14
 
+> সবে কহে, — প্রভু তাঁরে কভু না মিলিবে ।
+> আমি-সব কহি যদি, দুঃখ সে মানিবে ॥১৪॥
+
 sabe kahe,—prabhu tāṅre kabhu nā milibe
 āmi-saba kahi yadi, duḥkha se mānibe
 

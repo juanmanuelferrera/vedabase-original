@@ -1,5 +1,8 @@
 ### CC Antya 5.4
 
+> একদিন প্রদ্যুম্ন-মিশ্র প্রভুর চরণে  ।
+> দণ্ডবৎ করি’ কিছু করে নিবেদনে ॥৪॥
+
 > eka-dina pradyumna-miśra prabhura caraṇe
 > daṇḍavat kari' kichu kare nivedane
 

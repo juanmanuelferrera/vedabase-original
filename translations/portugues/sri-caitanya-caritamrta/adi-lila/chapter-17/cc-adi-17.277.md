@@ -1,5 +1,8 @@
 ### CC Adi 17.277
 
+> গোপী-ভাব যাতে প্রভু ধরিয়াছে একান্ত ।
+> ব্রজেন্দ্রনন্দনে মানে আপনার কান্ত ॥২৭৭॥
+
 gopī-bhāva yāte prabhu dhariyāche ekānta
 
 vrajendra-nandane māne āpanāra kānta

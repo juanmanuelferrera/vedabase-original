@@ -1,5 +1,8 @@
 ### CC Antya 12.59
 
+> মুকুন্দার মাতার নাম শুনি’ প্রভু সঙ্কোচ হৈলা ।
+> তথাপি তাহার প্রীতে কিছু না বলিলা ॥৫৯॥
+
 mukundāra mātāra nāma śuni' prabhu saṅkoca hailā
 
 tathāpi tāhāra prīte kichu nā balilā

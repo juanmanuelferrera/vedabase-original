@@ -1,5 +1,10 @@
 ### CC Madhya 21.11
 
+> গুণাত্মনস্তেঽপি গুণান্ বিমাতুং
+> হিতাবতীর্ণস্য ক ঈশিরেঽস্য ।
+> কালেন যৈর্বা বিমিতাঃ সুকল্পৈ-
+> র্ভূ-পাংশবঃ খে মিহিকা দ্যুভাসঃ ॥১১॥
+
 guṇātmanas te 'pi guṇān vimātuṁ
 hitāvatīrṇasya ka īśire 'sya
 kālena yair vā vimitāḥ sukalpair

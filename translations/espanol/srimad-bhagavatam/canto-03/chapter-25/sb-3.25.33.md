@@ -1,5 +1,7 @@
 ### SB 3.25.33
 
+> जरयत्याशु या कोशं निगीर्णमनलो यथ् ॥३३॥
+
 > jarayaty āśu yā kośaṁ
 > nigīrṇam analo yathā
 

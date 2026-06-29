@@ -1,5 +1,8 @@
 ### CC Madhya 12.99
 
+> শ্রীহস্তে করেন সিংহাসনের মার্জন ।
+> প্রভু আগে জল আনি’ দেয় ভক্তগণ ॥৯৯॥
+
 > śrī-haste karena siṁhāsanera mārjana
 > prabhu āge jala āni' deya bhakta-gaṇa
 

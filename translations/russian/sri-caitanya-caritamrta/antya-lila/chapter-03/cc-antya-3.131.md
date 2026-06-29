@@ -1,5 +1,8 @@
 ### CC Antya 3.131
 
+> দণ্ডবৎ হঞা পড়ে ঠাকুর-চরণে ।
+> রামচন্দ্র-খাঁনের কথা কৈল নিবেদনে ॥১৩১॥
+
 > daṇḍavat hañā paḍe ṭhākura-caraṇe
 > rāmacandra-khāṅnera kathā kaila nivedane
 

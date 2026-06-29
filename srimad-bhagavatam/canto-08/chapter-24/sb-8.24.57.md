@@ -1,5 +1,8 @@
 ### SB 8.24.57
 
+> अतीतप्रलयापाय उत्थिताय स वेधसे
+> हत्वासुरं हयग्रीवं वेदान्प्रत्याहरद्धरिः ॥५७॥
+
 > atīta-pralayāpāya
 > utthitāya sa vedhase
 > hatvāsuraṁ hayagrīvaṁ

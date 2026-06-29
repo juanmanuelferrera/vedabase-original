@@ -1,5 +1,8 @@
 ### CC Antya 20.93
 
+> বৃদ্ধ জরাতুর আমি অন্ধ, বধির ।
+> হস্ত হালে, মনোবুদ্ধি নহে মোর স্থির ॥৯৩॥
+
 vṛddha jarātura āmi andha, badhira
 
 hasta hāle, manobuddhi nahe mora sthira

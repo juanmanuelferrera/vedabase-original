@@ -1,5 +1,8 @@
 ### CC Madhya 13.192
 
+> তাহাঁ নৃত্য করি’ জগন্নাথ আগে আইলা ।
+> জগন্নাথ দেখি’ নৃত্য করিতে লাগিলা ॥১৯২॥
+
 tāhāṅ nṛtya kari' jagannātha āge āilā
 
 jagannātha dekhi' nṛtya karite lāgilā

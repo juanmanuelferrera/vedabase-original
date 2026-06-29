@@ -1,5 +1,7 @@
 ### SB 5.3.18
 
+> तत आग्नीध्रीयेंऽशकलयावतरिष्याम्यात्मतुल्यमनुपलभमान: ॥ १८ ॥
+
 > tata āgnīdhrīye 'ṁśa-kalayāvatariṣyāmy ātma-tulyam anupalabhamānaḥ.
 
 *tataḥ*—therefore; *āgnīdhrīye*—in the wife of Nābhi, the son of Āgnīdhra; *aṁśa-kalayā*—by an expansion of My personal form; *avatariṣyāmi*—I shall advent Myself; *ātma-tulyam*—My equal; *anupalabhamānaḥ*—not finding.

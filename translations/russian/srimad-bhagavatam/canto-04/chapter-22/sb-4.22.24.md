@@ -1,5 +1,8 @@
 ### SB 4.22.24
 
+> अहिंसया पारमहंस्यचर्यया स्मृत्या मुकुन्दाचरिताग्र्यसीधुना ।
+> यमैरकामैर्नियमैश्चाप्यनिन्दया निरीहया द्वन्द्वतितिक्षया च ॥२४॥
+
 > ahiṁsayā pāramahaṁsya-caryayā
 > smṛtyā mukundācaritāgrya-sīdhunā
 > yamair akāmair niyamaiś cāpy anindayā

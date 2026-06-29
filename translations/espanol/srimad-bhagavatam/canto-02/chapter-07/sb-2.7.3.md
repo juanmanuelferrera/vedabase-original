@@ -1,5 +1,10 @@
 ### SB 2.7.3
 
+> जज्ञे च कर्दमगृहे द्विज देवहूत्यां
+> स्त्रीभिः समं नवभिरात्मगतिं स्वमात्रे ।
+> ऊचे ययात्मशमलं गुणसङ्गपङ्कम्
+> अस्मिन्विधूय कपिलस्य गतिं प्रपेदे ॥३॥
+
 > jajñe ca kardama-gṛhe dvija devahūtyāṁ
 > strībhiḥ samaṁ navabhir ātma-gatiṁ sva-mātre
 > ūce yayātma-śamalaṁ guṇa-saṅga-paṅkam

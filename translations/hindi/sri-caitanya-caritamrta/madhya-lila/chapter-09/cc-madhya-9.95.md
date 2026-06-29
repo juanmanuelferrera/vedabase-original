@@ -1,5 +1,8 @@
 ### CC Madhya 9.95
 
+> কেহ হাসে, কেহ নিন্দে, তাহা নাহি মানে ।
+> আবিষ্ট হঞা গীতা পড়ে আনন্দিত-মনে ॥৯৫॥
+
 > keha hāse, keha ninde, tāhā nāhi māne
 > āviṣṭa hañā gītā paḍe ānandita-mane
 

@@ -1,5 +1,8 @@
 ### SB 3.21.44
 
+> तथैव हरिणैः क्रोडैः श्वाविद्गवयकुञ्जरैः ।
+> गोपुच्छैर्हरिभिर्मर्कैर्नकुलैर्नाभिभिर्वृतम् ॥४४॥
+
 > tathaiva hariṇaiḥ kroḍaiḥ
 > śvāvid-gavaya-kuñjaraiḥ
 > gopucchair haribhir markair

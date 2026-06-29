@@ -1,5 +1,8 @@
 ### CC Antya 13.39
 
+> শীঘ্র আসিহ, তাঁহা না রহিহ চিরকাল ।
+> গোবর্ধনে না চড়িহ দেখিতে ‘গোপাল’ ॥৩৯॥
+
 śīghra āsiha, tāhāṅ nā rahiha cira-kāla
 
 govardhane nā caḍiha dekhite 'gopāla'

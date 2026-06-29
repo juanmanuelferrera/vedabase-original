@@ -1,5 +1,8 @@
 ### CC Madhya 5.160
 
+> শ্রদ্ধাযুক্ত হঞা ইহা শুনে যেই জন ।
+> অচিরে মিলয়ে তারে গোপাল-চরণ ॥১৬০॥
+
 śraddhā-yukta hañā ihā śune yei jana
 acire milaye tāre gopāla-caraṇa
 

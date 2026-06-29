@@ -1,5 +1,8 @@
 ### CC Antya 12.3
 
+> জয়াদ্বৈতচন্দ্র জয় করুণা-সাগর ।
+> জয় গৌরভক্তগণ কৃপা-পূর্ণান্তর ॥৩॥
+
 > jayādvaita-candra jaya karuṇā-sāgara
 > jaya gaura-bhakta-gaṇa kṛpā-pūrṇāntara
 

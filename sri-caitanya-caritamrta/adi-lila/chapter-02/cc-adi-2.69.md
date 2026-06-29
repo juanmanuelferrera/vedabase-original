@@ -1,5 +1,8 @@
 ### CC Adi 2.69
 
+> তবে সূত গোসাঞি মনে পাঞা বড় ভয় ।
+> যার যে লক্ষণ তাহা করিল নিশ্চয় ॥৬৯॥
+
 > tabe sūta gosāñi mane pāñā baḍa bhaya
 > yāra ye lakṣaṇa tāhā karila niścaya
 

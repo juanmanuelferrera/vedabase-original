@@ -1,5 +1,7 @@
 ### SB 5.7.4
 
+> स बहुविन्महीपतिः पितृपितामहवदुरुवत्सलतया स्वे स्वे कर्मणि वर्तमानाः प्रजाः स्वधर्ममनुवर्तमानः पर्यपालयत ॥४॥
+
 > sa bahuvin mahī-patiḥ pitṛ-pitāmahavad uru-vatsalatayā sve sve karmaṇi vartamānāḥ prajāḥ sva-dharmam anuvartamānaḥ paryapālayat.
 
 *saḥ*—that King (Mahārāja Bharata); *bahu-vit*—being very advanced in knowledge; *mahī-patiḥ*—the ruler of the earth; *pitṛ*—father; *pitāmaha*—grandfather; *vat*—exactly like; *uru-vatsalatayā*—with the quality of being very affectionate to the citizens; *sve sve*—in their own respective; *karmaṇi*—duties; *vartamānāḥ*—remaining; *prajāḥ*—the citizens; *sva-dharmam anuvartamānaḥ*—being perfectly situated in his own occupational duty; *paryapālayat*—ruled.

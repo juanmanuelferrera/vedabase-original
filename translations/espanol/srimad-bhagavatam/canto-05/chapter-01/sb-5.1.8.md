@@ -1,5 +1,7 @@
 ### SB 5.1.8
 
+> स तत्र तत्र गगनतल उडुपतिरिव विमानावलिभिरनुपथममरपरिवृढैरभिपूज्यमानः पथि पथि च वरूथशः सिद्धगन्धर्वसाध्यचारणमुनिगणैरुपगीयमानो गन्धमादनद्रोणीमवभासयन्नुपससर्प ॥८॥
+
 > sa tatra tatra gagana-tala uḍu-patir iva vimānāvalibhir anupatham amara-parivṛḍhair abhipūjyamānaḥ pathi pathi ca varūthaśaḥ siddha-gandharva-sādhya-cāraṇa-muni-gaṇair upagīyamāno gandha-mādana-droṇīm avabhāsayann upasasarpa.
 
 *saḥ*—él (el Señor Brahmā); *tatra tatra*—aquí y allá; *gagana-tale*—bajo el dosel del cielo; *uḍu-patiḥ*—la Luna; *iva*—como; *vimāna-āvalibhiḥ*—en sus aviones; *anupatham*—a lo largo del camino; *amara*—de los semidioses; *parivṛḍhaiḥ*—por los líderes; *abhipūjyamānaḥ*—adorado; *pathi pathi*—en el camino, uno tras otro; *ca*—también; *varūthaśaḥ*—en grupos; *siddha*—por los habitantes de Siddhaloka; *gandharva*—por los habitantes de Gandharvaloka; *sādhya*—por los habitantes de Sādhyaloka; *cāraṇa*—por los habitantes de Cāraṇaloka; *muni-gaṇaiḥ*—y por grandes sabios; *upagīyamānaḥ*—adorado; *gandha-mādana*—del planeta en que se encuentra la montaña Gandhamādana; *droṇīm*—a los límites; *avabhāsayan*—luminoso; *upasasarpa*—se acercó.

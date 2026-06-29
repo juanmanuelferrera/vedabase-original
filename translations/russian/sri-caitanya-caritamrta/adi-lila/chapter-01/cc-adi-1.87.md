@@ -1,5 +1,8 @@
 ### CC Adi 1.87
 
+> শ্রীকৃষ্ণচৈতন্য আর প্রভু নিত্যানন্দ ।
+> যাঁহার প্রকাশে সর্ব জগৎ আনন্দ ॥৮৭॥
+
 > śrī-kṛṣṇa-caitanya āra prabhu nityānanda
 > yāṅhāra prakāśe sarva jagat ānanda
 

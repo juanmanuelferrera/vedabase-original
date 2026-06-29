@@ -1,5 +1,8 @@
 ### CC Madhya 6.78
 
+> ‘ভট্টাচার্য তুমি ইঁহার না জান মহিমা ।
+> ভগবত্তা-লক্ষণের ইঁহাতেই সীমা ॥৭৮॥
+
 'bhaṭṭācārya' tumi iṅhāra nā jāna mahimā
 bhagavattā-lakṣaṇera iṅhātei sīmā
 

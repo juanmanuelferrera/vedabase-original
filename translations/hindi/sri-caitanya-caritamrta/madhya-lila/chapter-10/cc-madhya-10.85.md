@@ -1,5 +1,8 @@
 ### CC Madhya 10.85
 
+> শুনিয়া সবার হৈল পরম উল্লাস ।
+> সবে মেলি’ গেলা শ্রীঅদ্বৈতের পাশ ॥৮৫॥
+
 > śuniyā sabāra haila parama ullāsa
 > sabe meli' gelā śrī-advaitera pāśa
 

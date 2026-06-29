@@ -1,5 +1,8 @@
 ### CC Madhya 10.87
 
+> দিন দুই-তিন আচার্য মহোৎসব কৈল ৷
+> নীলাচল যাইতে আচার্য যুক্তি দৃঢ় কৈল ৷৷ ৮৭ ৷৷ ॥৮৭॥
+
 dina dui-tina ācārya mahotsava kaila
 
 nīlācala yāite ācārya yukti dṛḍha kaila

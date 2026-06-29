@@ -1,5 +1,8 @@
 ### CC Adi 8.35
 
+> বৃন্দাবন-দাস কৈল ‘চৈতন্যমঙ্গল’ ।
+> যাঁহার শ্রবণে নাশে সর্ব অমঙ্গল ॥৩৫॥
+
 > vṛndāvana-dāsa kaila 'caitanya-maṅgala'
 > yāṅhāra śravaṇe nāśe sarva amaṅgala
 

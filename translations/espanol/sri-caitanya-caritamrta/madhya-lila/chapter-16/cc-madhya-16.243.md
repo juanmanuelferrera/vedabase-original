@@ -1,5 +1,8 @@
 ### CC Madhya 16.243
 
+> বাহ্য বৈরাগ্য, বাতুলতা সকল ছাড়িয়া ৷
+> যথাযোগ্য কার্য করে অনাসক্ত হঞা ॥২৪৩॥
+
 > bāhya vairāgya, vātulatā sakala chāḍiyā
 > yathā-yogya kārya kare anāsakta hañā
 

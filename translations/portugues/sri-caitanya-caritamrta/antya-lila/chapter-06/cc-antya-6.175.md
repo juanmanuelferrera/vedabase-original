@@ -1,5 +1,8 @@
 ### CC Antya 6.175
 
+> উপবাসী দেখি’ গোপ দুগ্ধ আনি’ দিলা ।
+> সেই দুগ্ধ পান করি’ পড়িয়া রহিলা ॥১৭৫॥
+
 upavāsī dekhi' gopa dugdha āni' dilā
 
 sei dugdha pāna kari' paḍiyā rahilā

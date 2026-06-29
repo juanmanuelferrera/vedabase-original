@@ -1,5 +1,8 @@
 ### CC Madhya 23.86
 
+> অনন্ত গুণ শ্রীরাধিকার, পঁচিশ — প্রধান ।
+> যেই গুণের ‘বশ’ হয় কৃষ্ণ ভগবান্ ॥৮৬॥
+
 > ananta guṇa śrī-rādhikāra, pañciśa--pradhāna
 > yei guṇera 'vaśa' haya kṛṣṇa bhagavān
 

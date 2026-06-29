@@ -1,5 +1,8 @@
 ### CC Madhya 20.329
 
+> যুগাবতার এবে শুন, সনাতন ।
+> সত্য-ত্রেতা-দ্বাপর-কলি-যুগের গণন ॥৩২৯॥
+
 yugāvatāra ebe śuna, sanātana
 
 satya-tretā-dvāpara-kali-yugera gaṇana

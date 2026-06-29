@@ -1,5 +1,8 @@
 ### CC Madhya 24.196
 
+> উদার মহতী যাঁর সর্বোত্তমা বুদ্ধি ।
+> নানা কামে ভজে, তবু পায় ভক্তিসিদ্ধি ॥১৯৬॥
+
 udāra mahatī yāṅra sarvottamā buddhi
 
 nānā kāme bhaje, tabu pāya bhakti-siddhi

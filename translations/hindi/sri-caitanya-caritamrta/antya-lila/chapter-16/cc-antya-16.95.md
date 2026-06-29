@@ -1,5 +1,8 @@
 ### CC Antya 16.95
 
+> এই বুদ্ধ্যে মহাপ্রভুর প্রেমাবেশ হৈল ।
+> জগন্নাথের সেবক দেখি’ সম্বরণ কৈল ॥৯৫॥
+
 > ei buddhye mahāprabhura premāveśa haila
 > jagannāthera sevaka dekhi' samvaraṇa kaila
 

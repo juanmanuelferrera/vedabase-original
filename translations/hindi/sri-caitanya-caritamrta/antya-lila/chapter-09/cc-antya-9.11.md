@@ -1,5 +1,8 @@
 ### CC Antya 9.11
 
+> বাহিরে ফুকারে লোক, দর্শন না পাঞা ।
+> ‘কৃষ্ণ কহ’ বলেন প্রভু বাহিরে আসিয়া ॥১১॥
+
 > bāhire phukāre loka, darśana nā pāñā
 > 'kṛṣṇa kaha' balena prabhu bāhire āsiyā
 

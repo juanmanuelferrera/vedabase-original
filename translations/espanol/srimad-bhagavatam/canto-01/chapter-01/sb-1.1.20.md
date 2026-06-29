@@ -1,5 +1,8 @@
 ### SB 1.1.20
 
+> कृतवान्किल कर्माणि सह रामेण केशवः ।
+> अतिमर्त्यानि भगवान्गूढः कपटमानुषः ॥२०॥
+
 > kṛtavān kila karmāṇi
 > saha rāmeṇa keśavaḥ
 > atimartyāni bhagavān

@@ -1,5 +1,8 @@
 ### CC Madhya 4.87
 
+> সকল ব্রাহ্মণে পুরী বৈষ্ণব করিল ।
+> সেই সেই সেবা-মধ্যে সবা নিয়োজিল ॥৮৭॥
+
 sakala brāhmaṇe purī vaiṣṇava karila
 sei sei sevā-madhye sabā niyojila
 

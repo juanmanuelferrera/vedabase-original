@@ -1,5 +1,8 @@
 ### SB 3.8.21
 
+> ततो निवृत्तोऽप्रतिलब्धकामः स्वधिष्ण्यमासाद्य पुनः स देवः ।
+> शनैर्जितश्वासनिवृत्तचित्तो न्यषीददारूढसमाधियोगः ॥२१॥
+
 > tato nivṛtto 'pratilabdha-kāmaḥ
 > sva-dhiṣṇyam āsādya punaḥ sa devaḥ
 > śanair jita-śvāsa-nivṛtta-citto

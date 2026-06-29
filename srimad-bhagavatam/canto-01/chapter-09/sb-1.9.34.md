@@ -1,5 +1,8 @@
 ### SB 1.9.34
 
+> युधि तुरगरजोविधूम्रविष्वक्कचलुलितश्रमवार्यलङ्कृतास्ये ।
+> मम निशितशरैर्विभिद्यमान त्वचि विलसत्कवचेऽस्तु कृष्ण आत्मा ॥३४॥
+
 > yudhi turaga-rajo-vidhūmra-viṣvak-
 > kaca-lulita-śramavāry-alaṅkṛtāsye
 > mama niśita-śarair vibhidyamāna-

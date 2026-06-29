@@ -1,5 +1,10 @@
 ### SB 3.15.30
 
+> तान्वीक्ष्य वातरशनांश्चतुरः कुमारान्
+> वृद्धान्दशार्धवयसो विदितात्मतत्त्वान् ।
+> वेत्रेण चास्खलयतामतदर्हणांस्तौ
+> तेजो विहस्य भगवत्प्रतिकूलशीलौ ॥३०॥
+
 > tān vīkṣya vāta-raśanāṁś caturaḥ kumārān
 > vṛddhān daśārdha-vayaso viditātma-tattvān
 > vetreṇa cāskhalayatām atad-arhaṇāṁs tau

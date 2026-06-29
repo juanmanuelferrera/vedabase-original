@@ -1,5 +1,7 @@
 ### SB 5.25.4
 
+> यस्याङ्घ्रिकमलयुगलारुणविशदनखमणिषण्डमण्डलेष्वहिपतयः सहसात्वतर्षभैरेकान्तभक्तियोगेनावनमन्तः स्ववदनानि परिस्फुरत्कुण्डलप्रभामण्डितगण्डस्थलान्यतिमनोहराणि प्रमुदितमनसः खलु विलोकयन्ति ॥४॥
+
 > yasyāṅghri-kamala-yugalāruṇa-viśada-nakha-maṇi-ṣaṇḍa-maṇḍaleṣv ahi-patayaḥ saha sātvatarṣabhair ekānta-bhakti-yogenāvanamantaḥ sva-vadanāni parisphurat-kuṇḍala-prabhā-maṇḍita-gaṇḍa-sthalāny ati-manoharāṇi pramudita-manasaḥ khalu vilokayanti.
 
 *yasya*—de quien; *aṅghri-kamala*—de pies de loto; *yugala*—del par; *aruṇa-viśada*—color rosa brillante; *nakha*—de las uñas; *maṇi-ṣaṇḍa*—como gemas; *maṇḍaleṣu*—sobre la redonda superficie; *ahi-patayaḥ*—los líderes de las serpientes; *saha*—con; *sātvata-ṛṣabhaiḥ*—los mejores devotos; *ekānta-bhakti-yogena*—con servicio devocional puro; *avanamantaḥ*—ofrecer reverencias; *sva-vadanāni*—sus propios rostros; *parisphurat*—deslumbrantes; *kuṇḍala*—de los pendientes; *prabhā*—con la refulgencia; *maṇḍita*—adornadas; *gaṇḍa-sthalāni*—cuyas mejillas; *ati-manoharāṇi*—muy hermosas; *pramudita-manasaḥ*—con las mentes refrescadas; *khalu*—en verdad; *vilokayanti*—ellos ven.

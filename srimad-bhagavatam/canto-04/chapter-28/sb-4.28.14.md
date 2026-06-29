@@ -1,5 +1,8 @@
 ### SB 4.28.14
 
+> न शेके सोऽवितुं तत्र पुरुकृच्छ्रोरुवेपथुः ।
+> गन्तुमैच्छत्ततो वृक्ष कोटरादिव सानलात् ॥१४॥
+
 > na śeke so 'vituṁ tatra
 > puru-kṛcchroru-vepathuḥ
 > gantum aicchat tato vṛkṣa-

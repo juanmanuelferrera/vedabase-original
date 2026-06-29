@@ -1,5 +1,7 @@
 ### CC Madhya 14.185
 
+> রাধা বসি’ আছে, কিবা বৃন্দাবনে যায় । তাহাঁ যদি আচম্বিতে কৃষ্ণ-দরশন পায় ॥১৮৫॥
+
 > rādhā vasi' āche, kibā vṛndāvane yāya
 > tāhāṅ yadi ācambite kṛṣṇa-daraśana pāya
 

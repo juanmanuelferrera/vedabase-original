@@ -1,5 +1,8 @@
 ### CC Antya 3.66
 
+> শুনিয়া প্রভুর সুখ বাড়য়ে অন্তরে  ।
+> পুনরপি ভঙ্গী করি’ পুছয়ে তাঁহারে ॥৬৬॥
+
 > śuniyā prabhura sukha bāḍaye antare
 > punarapi bhaṅgī kari' puchaye tāṅhāre
 

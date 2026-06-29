@@ -1,5 +1,8 @@
 ### CC Adi 3.74
 
+> নিত্যানন্দ গোসাঞি সাক্ষাৎ হলধর ।
+> অদ্বৈত আচার্য গোসাঞি সাক্ষাৎ ঈশ্বর ॥৭৪॥
+
 nityānanda gosāñi sākṣāt haladhara
 advaita ācārya gosāñi sākṣāt īśvara
 

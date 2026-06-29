@@ -1,5 +1,8 @@
 ### CC Adi 4.264
 
+> রস আস্বাদিতে আমি কৈল অবতার ।
+> প্রেমরস আস্বাদিল বিবিধ প্রকার ॥২৬৪॥
+
 > rasa āsvādite āmi kaila avatāra
 > prema-rasa āsvādiba vividha prakāra
 

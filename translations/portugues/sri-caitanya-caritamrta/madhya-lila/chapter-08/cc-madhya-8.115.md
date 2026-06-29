@@ -1,5 +1,8 @@
 ### CC Madhya 8.115
 
+> ইতস্ততঃ ভ্রমি’ কাহাঁ রাধা না পাঞা ৷
+> বিষাদ করেন কামবাণে খিন্ন হঞা ৷৷ ১১৫ ৷৷ ॥১১৫॥
+
 itas-tataḥ bhrami' kāhāṅ rādhā nā pāñā
 viṣāda karena kāma-bāṇe khinna hañā
 

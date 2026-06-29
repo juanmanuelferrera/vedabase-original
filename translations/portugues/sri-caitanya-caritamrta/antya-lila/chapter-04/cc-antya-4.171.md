@@ -1,5 +1,8 @@
 ### CC Antya 4.171
 
+> যদ্যপি কাহার ‘মমতা’ বহুজনে হয় ।
+> প্রীতি-স্বভাবে কাহাতে কোন ভাবোদয় ॥১৭১॥
+
 yadyapi kāhāra 'mamatā' bahu-jane haya
 
 prīti-svabhāve kāhāte kona bhāvodaya

@@ -1,5 +1,8 @@
 ### CC Madhya 13.3
 
+> জয় শ্রোতাগণ, শুন, করি’ এক মন ।
+> রথযাত্রায় নৃত্য প্রভুর পরম মোহন ॥৩॥
+
 > jaya śrotā-gaṇa, śuna, kari' eka mana
 > ratha-yātrāya nṛtya prabhura parama mohana
 

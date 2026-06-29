@@ -1,5 +1,7 @@
 ### CC Antya 3.63
 
+> নামাভাস হৈতে হয় সংসারের ক্ষয় ॥৬৩॥
+
 > nāmābhāsa haite haya saṁsārera kṣaya
 
 *nāma-ābhāsa haite*—even on account of *nāmābhāsa*; *haya*—there is; *saṁsārera kṣaya*—deliverance from material bondage;

@@ -1,5 +1,8 @@
 ### SB 4.29.48
 
+> स्वं लोकं न विदुस्ते वै यत्र देवो जनार्दनः ।
+> आहुर्धूम्रधियो वेदं सकर्मकमतद्विदः ॥४८॥
+
 > svaṁ lokaṁ na vidus te vai
 > yatra devo janārdanaḥ
 > āhur dhūmra-dhiyo vedaṁ

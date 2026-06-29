@@ -1,5 +1,8 @@
 ### CC Adi 11.1
 
+> নিত্যানন্দপদাম্ভোজ-ভৃঙ্গান্ প্রেমমধূন্মদান্ ।
+> নত্বাখিলান্ তেষু মুখ্যা লিখ্যন্তে কতিচিন্ময়া ॥১॥
+
 > nityānanda-padāmbhoja-
 > bhṛṅgān prema-madhūnmadān
 > natvākhilān teṣu mukhyā

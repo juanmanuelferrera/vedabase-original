@@ -1,5 +1,8 @@
 ### CC Madhya 20.120
 
+> সাধু-শাস্ত্র-কৃপায় যদি কৃষ্ণোন্মুখ হয় ৷
+> সেই জীব নিস্তরে, মায়া তাহারে ছাড়য় ৷৷ ১২০ ৷৷ ॥১২০॥
+
 > sādhu-śāstra-kṛpāya yadi kṛṣṇonmukha haya
 > sei jīva nistare, māyā tāhāre chāḍaya
 

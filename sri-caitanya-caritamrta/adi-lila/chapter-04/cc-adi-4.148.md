@@ -1,5 +1,8 @@
 ### CC Adi 4.148
 
+> শ্রবণে, দর্শনে আকর্ষয়ে সর্বমন ।
+> আপনা আস্বাদিতে কৃষ্ণ করেন যতন ॥১৪৮॥
+
 > śravaṇe, darśane ākarṣaye sarva-mana
 > āpanā āsvādite kṛṣṇa karena yatana
 

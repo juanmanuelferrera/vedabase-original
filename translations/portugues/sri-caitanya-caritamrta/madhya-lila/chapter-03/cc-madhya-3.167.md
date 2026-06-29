@@ -1,5 +1,8 @@
 ### CC Madhya 3.167
 
+> এইমত শচীদেবী বাৎসল্যে বিহ্বল ।
+> হর্ষ-ভয়-দৈন্যভাবে হইল বিকল ॥১৬৭॥
+
 ei-mata śacīdevī vātsalye vihvala
 harṣa-bhaya-dainya-bhāve ha-ila vikala
 

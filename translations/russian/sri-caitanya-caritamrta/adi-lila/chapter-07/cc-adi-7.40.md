@@ -1,5 +1,8 @@
 ### CC Adi 7.40
 
+> বৃন্দাবন যাইতে প্রভু রহিলা কাশীতে ।
+> মায়াবাদিগণ তাঁরে লাগিল নিন্দিতে ॥৪০॥
+
 > vṛndāvana yāite prabhu rahilā kāśīte
 > māyāvādi-gaṇa tāṅre lāgila nindite
 

@@ -1,5 +1,8 @@
 ### CC Antya 16.75
 
+> সাত বৎসরের শিশু, নাহি অধ্যয়ন ।
+> ঐছে শ্লোক করে, — লোকের চমৎকার মন ॥৭৫॥
+
 > sāta vatsarera śiśu, nāhi adhyayana
 > aiche śloka kare,—lokera camatkāra mana
 

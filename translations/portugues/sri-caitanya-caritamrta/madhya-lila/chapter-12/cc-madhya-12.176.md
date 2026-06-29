@@ -1,5 +1,8 @@
 ### CC Madhya 12.176
 
+> এই মত দুইজন করে বারবার ।
+> বিচিত্র এই দুই ভক্তের স্নেহ-ব্যবহার ॥১৭৬॥
+
 ei mata dui-jana kare bāra-bāra
 
 vicitra ei dui bhaktera sneha-vyavahāra

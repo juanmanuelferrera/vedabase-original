@@ -1,5 +1,8 @@
 ### CC Madhya 5.135
 
+> গোপালের আগে যবে প্রভুর হয় স্থিতি ।
+> ভক্তগণে দেখে — যেন দুঁহে একমূর্তি ॥১৩৫॥
+
 gopālera āge yabe prabhura haya sthiti
 bhakta-gaṇe dekhe--yena duṅhe eka-mūrti
 

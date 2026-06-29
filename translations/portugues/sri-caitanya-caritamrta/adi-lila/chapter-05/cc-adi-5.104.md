@@ -1,5 +1,8 @@
 ### CC Adi 5.104
 
+> বিষ্ণুরূপ হঞা করে জগৎ পালনে ।
+> গুণাতীত-বিষ্ণু স্পর্শ নাহি মায়া-গুণে ॥১০৪॥
+
 viṣṇu-rūpa hañā kare jagat pālane
 guṇātīta-viṣṇu sparśa nāhi māyā-guṇe
 

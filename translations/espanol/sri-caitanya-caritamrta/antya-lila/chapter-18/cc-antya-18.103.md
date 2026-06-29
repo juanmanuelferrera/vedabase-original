@@ -1,5 +1,10 @@
 ### CC Antya 18.103
 
+> উত্তম সংস্কার করি’, বড় বড় থালী ভরি’,
+> রত্ন-মন্দিরে পিণ্ডার উপরে ।
+> ভক্ষণের ক্রম করি’, ধরিয়াছে সারি সারি,
+> আগে আসন বসিবার তরে ॥১০৩॥
+
 > uttama saṁskāra kari', baḍa baḍa thālī bhari',
 > ratna-mandire piṇḍāra upare
 > bhakṣaṇera krama kari', dhariyāche sāri sāri,

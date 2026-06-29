@@ -1,5 +1,8 @@
 ### CC Antya 15.26
 
+> সেই দুইজন প্রভুরে করে আশ্বাসন ।
+> স্বরূপ গায়, রায় করে শ্লোক পঠন ॥২৬॥
+
 > sei dui-jana prabhure kare āśvāsana
 > svarūpa gāya, rāya kare śloka paṭhana
 

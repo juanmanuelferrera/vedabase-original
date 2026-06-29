@@ -1,5 +1,8 @@
 ### CC Antya 9.74
 
+> তার দুঃখ দেখি’ তার সেবকাদিগণ ।
+> তোমারে জানাইল, — যাতে ‘অনন্যশরণ’ ॥৭৪॥
+
 > tāra duḥkha dekhi' tāra sevakādi-gaṇa
 > tomāre jānāila,--yāte 'ananya-śaraṇa'
 

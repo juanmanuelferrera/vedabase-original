@@ -1,5 +1,8 @@
 ### SB 3.32.22
 
+> तस्मात्त्वं सर्वभावेन भजस्व परमेष्ठिनम् ।
+> तद्गुणाश्रयया भक्त्या भजनीयपदाम्बुजम् ॥२२॥
+
 > tasmāt tvaṁ sarva-bhāvena
 > bhajasva parameṣṭhinam
 > tad-guṇāśrayayā bhaktyā

@@ -1,5 +1,8 @@
 ### CC Antya 6.216
 
+> সিংহদ্বারে অন্নার্থী বৈষ্ণবে দেখিয়া  ।
+> পসারির ঠাঞি অন্ন দেন কৃপা ত’ করিয়া ॥২১৬॥
+
 siṁha-dvāre annārthī vaiṣṇave dekhiyā
 
 pasārira ṭhāñi anna dena kṛpā ta' kariyā

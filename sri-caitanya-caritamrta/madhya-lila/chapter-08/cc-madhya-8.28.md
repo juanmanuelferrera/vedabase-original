@@ -1,5 +1,8 @@
 ### CC Madhya 8.28
 
+> এইমত বিপ্রগণ ভাবে মনে মন ।
+> বিজাতীয় লোক দেখি, প্রভু কৈল সম্বরণ ॥২৮॥
+
 > ei-mata vipra-gaṇa bhāve mane mana
 > vijātīya loka dekhi, prabhu kaila saṁvaraṇa
 

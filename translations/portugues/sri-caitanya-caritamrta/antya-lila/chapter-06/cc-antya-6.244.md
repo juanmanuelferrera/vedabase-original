@@ -1,5 +1,8 @@
 ### CC Antya 6.244
 
+> রথযাত্রায় সবা লঞা করিলা নর্তন ।
+> দেখি’ রঘুনাথের চমৎকার হৈল মন ॥২৪৪॥
+
 ratha-yātrāya sabā lañā karilā nartana
 
 dekhi' raghunāthera camatkāra haila mana

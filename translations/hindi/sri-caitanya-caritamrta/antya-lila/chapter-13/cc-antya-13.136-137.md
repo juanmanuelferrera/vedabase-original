@@ -1,5 +1,10 @@
 ### CC Antya 13.136-137
 
+> জগদানন্দের কহিলুঁ বৃন্দাবনগমন ।
+> তার মধ্যে দেবদাসীর গান-শ্রবণ ॥১৩৬॥
+> মহাপ্রভুর রঘুনাথে কৃপা-প্রেম-ফল ।
+> একপরিচ্ছেদে তিন কথা কহিলুঁ সকল ॥১৩৭॥
+
 > jagadānandera kahiluṅ vṛndāvana-gamana
 > tāra madhye deva-dāsīra gāna-śravaṇa
 > mahāprabhura raghunāthe kṛpā-prema-phala

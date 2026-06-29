@@ -1,5 +1,8 @@
 ### CC Madhya 20.4
 
+> পত্রী পাঞা সনাতন আনন্দিত হৈলা ।
+> যবন-রক্ষক-পাশ কহিতে লাগিলা ॥৪॥
+
 patrī pāñā sanātana ānandita hailā
 yavana-rakṣaka-pāśa kahite lāgilā
 

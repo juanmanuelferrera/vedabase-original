@@ -1,5 +1,7 @@
 ### SB 5.6.6
 
+> अथैवमखिललोकपालललामोऽपि विलक्षणैर्जडवदवधूतवेषभाषाचरितैरविलक्षितभगवत्प्रभावो योगिनां साम्परायविधिमनुशिक्षयन्स्वकलेवरंजिहासुरात्मन्यात्मानमसंव्यवहितमनर्थान्तरभावेनान्वीक्षमाण उपरतानुवृत्तिरुपरराम ॥६॥
+
 > athaivam akhila-loka-pāla-lalāmo 'pi vilakṣaṇair jaḍavad avadhūta-veṣa-bhāṣā-caritair avilakṣita-bhagavat-prabhāvo yogināṁ sāmparāya-vidhim anuśikṣayan sva-kalevaraṁ jihāsur ātmany ātmānam asaṁvyavahitam anarthāntara-bhāvenānvīkṣamāṇa uparatānuvṛttir upararāma.
 
 *atha*—thereafter; *evam*—in this way; *akhila-loka-pāla-lalāmaḥ*—the head of all kings and monarchs of the universe; *api*—although; *vilakṣaṇaiḥ*—various; *jaḍa-vat*—as if stupid; *avadhūta-veṣa-bhāṣā-caritaiḥ*—by the dress, language and characteristics of an *avadhūta*; *avilakṣita-bhagavat-prabhāvaḥ*—hiding the opulence of the Supreme Personality of Godhead (keeping Himself like an ordinary human being); *yoginām*—of the *yogīs*; *sāmparāya-vidhim*—the method of giving up this material body; *anuśikṣayan*—teaching; *sva-kalevaram*—His own personal body, which is not at all material; *jihāsuḥ*—desiring to give up like an ordinary human being; *ātmani*—unto Vāsudeva, the original person; *ātmānam*—Himself, Lord Ṛṣabhadeva, being an *āveśa-avatāra* of Lord Viṣṇu; *asaṁvyavahitam*—without intervention by the illusory energy; *anartha-antara-bhāvena*—Himself in the status of Viṣṇu; *anvīkṣamāṇaḥ*—always seeing; *uparata-anuvṛttiḥ*—who was acting as if giving up His material body; *upararāma*—ceased His pastimes as the King of this planet.

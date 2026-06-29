@@ -1,5 +1,8 @@
 ### CC Madhya 20.213
 
+> পরব্যোম-মধ্যে নারায়ণের নিত্য-স্থিতি ।
+> পরব্যোম-উপরি কৃষ্ণলোকের বিভূতি ॥২১৩॥
+
 paravyoma-madhye nārāyaṇera nitya-sthiti
 
 paravyoma-upari kṛṣṇalokera vibhuti

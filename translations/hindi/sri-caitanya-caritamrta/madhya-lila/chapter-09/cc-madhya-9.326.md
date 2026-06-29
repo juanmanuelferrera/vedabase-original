@@ -1,5 +1,8 @@
 ### CC Madhya 9.326
 
+> ‘গোসাঞি আইলা’ গ্রামে হইল কোলাহল ।
+> প্রভুকে দেখিতে লোক আইল সকল ॥৩২৬॥
+
 > 'gosāñi' āilā' grāme haila kolāhala
 > prabhuke dekhite loka āila sakala
 

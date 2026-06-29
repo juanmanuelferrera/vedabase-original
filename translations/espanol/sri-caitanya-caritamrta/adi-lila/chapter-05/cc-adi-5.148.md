@@ -1,5 +1,8 @@
 ### CC Adi 5.148
 
+> আচার্য-গোসাঞির তত্ত্ব না যায় কথন ।
+> কৃষ্ণ অবতারি যেঁহো তারিল ভুবন ॥১৪৮॥
+
 > ācārya-gosāñira tattva nā yāya kathana
 > kṛṣṇa avatāri yeṅho tārila bhuvana
 

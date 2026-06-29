@@ -1,5 +1,8 @@
 ### SB 3.32.28
 
+> ज्ञानमेकं पराचीनैरिन्द्रियैर्ब्रह्म निर्गुणम् ।
+> अवभात्यर्थरूपेण भ्रान्त्या शब्दादिधर्मिणा ॥२८॥
+
 > jñānam ekaṁ parācīnair
 > indriyair brahma nirguṇam
 > avabhāty artha-rūpeṇa

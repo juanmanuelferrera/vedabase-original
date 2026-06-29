@@ -1,5 +1,8 @@
 ### CC Madhya 13.116
 
+> জগন্নাথে নেত্র দিয়া সবে নাচে, গায় ।
+> কীর্তনীয়া সহ প্রভু পাছে পাছে যায় ॥১১৬॥
+
 > jagannāthe netra diyā sabe nāce, gāya
 > kīrtanīyā saha prabhu pāche pāche yāya
 

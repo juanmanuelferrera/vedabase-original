@@ -1,5 +1,8 @@
 ### SB 8.16.3
 
+> स पत्नीं दीनवदनां कृतासनपरिग्रहः
+> सभाजितो यथान्यायमिदमाह कुरूद्वह ॥३॥
+
 > sa patnīṁ dīna-vadanāṁ
 > kṛtāsana-parigrahaḥ
 > sabhājito yathā-nyāyam

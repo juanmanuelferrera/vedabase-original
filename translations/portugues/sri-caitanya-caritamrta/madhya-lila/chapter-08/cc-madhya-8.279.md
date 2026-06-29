@@ -1,5 +1,8 @@
 ### CC Madhya 8.279
 
+> রাধিকার ভাবকান্তি করি’ অঙ্গীকার ৷
+> নিজরস আস্বাদিতে করিয়াছ অবতার ৷৷ ২৭৯ ৷৷ ॥২৭৯॥
+
 rādhikāra bhāva-kānti kari' aṅgīkāra
 
 nija-rasa āsvādite kariyācha avatāra

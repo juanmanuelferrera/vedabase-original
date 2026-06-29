@@ -1,5 +1,10 @@
 ### SB 7.9.37
 
+> तस्मै भवान्हयशिरस्तनुवं हि बिभ्रद
+> वेदद्रुहावतिबलौ मधुकैटभाख्यौ
+> हत्वानयच्छ्रुतिगणांश्च रजस्तमश्च
+> सत्त्वं तव प्रियतमां तनुमामनन्ति ॥३७॥
+
 > tasmai bhavān haya-śiras tanuvaṁ hi bibhrad
 > veda-druhāv atibalau madhu-kaiṭabhākhyau
 > hatvānayac chruti-gaṇāṁś ca rajas tamaś ca

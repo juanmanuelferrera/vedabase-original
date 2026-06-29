@@ -1,5 +1,8 @@
 ### CC Adi 13.60
 
+> তাঁর পত্নী ‘শচী’-নাম, পতিব্রতা সতী ।
+> যাঁর পিতা ‘নীলাম্বর’ নাম চক্রবর্তী ॥৬০॥
+
 tāṅra patnī 'śacī'-nāma, pativratā satī
 yāṅra pitā 'nīlāmbara' nāma cakravartī
 

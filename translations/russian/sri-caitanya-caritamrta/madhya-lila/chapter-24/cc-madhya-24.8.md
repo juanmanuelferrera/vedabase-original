@@ -1,5 +1,8 @@
 ### CC Madhya 24.8
 
+> কিবা প্ৰলাপিলাঙ, কিছু নাহিক স্মরণে ।
+> তোমার সঙ্গ-বলে যদি কিছু হয় মনে ॥৮॥
+
 > kibā pralāpilāṅa, kichu nāhika smaraṇe
 > tomāra saṅga-bale yadi kichu haya mane
 

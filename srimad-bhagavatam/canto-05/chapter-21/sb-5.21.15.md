@@ -1,5 +1,7 @@
 ### SB 5.21.15
 
+> रथनीडस्तु षट्त्रिंशल्लक्षयोजनायतस्तत्तुरीयभागविशालस्तावान्रविरथयुगो यत्रहयाश्छन्दोनामानः सप्तारुणयोजिता वहन्ति देवमादित्यम ॥१५॥
+
 > ratha-nīḍas tu ṣaṭ-triṁśal-lakṣa-yojanāyatas tat-turīya-bhāga-viśālas tāvān ravi-ratha-yugo yatra hayāś chando-nāmānaḥ saptāruṇa-yojitā vahanti devam ādityam.
 
 *ratha-nīḍaḥ*—the interior of the chariot; *tu*—but; *ṣaṭ-triṁśat-lakṣa-yojana-āyataḥ*—3,600,000 *yojanas* long; *tat-turīya-bhāga*—one quarter of that measure (900,000 *yojanas)*; *viśālaḥ*—having a width; *tāvān*—so much also; *ravi-ratha-yugaḥ*—the yoke for the horses; *yatra*—where; *hayāḥ*—horses; *chandaḥ-nāmānaḥ*—having the different names of Vedic meters; *sapta*—seven; *aruṇa-yojitāḥ*—hooked up by Aruṇadeva; *vahanti*—carry; *devam*—the demigod; *ādityam*—the sun-god.

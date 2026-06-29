@@ -1,5 +1,8 @@
 ### CC Antya 16.115
 
+> হরিধ্বনি করি’ সবে কৈলা আস্বাদন ।
+> আস্বাদিতে প্রেমে মত্ত হইল সবার মন ॥১১৫॥
+
 hari-dhvani kari' sabe kailā āsvādana
 
 āsvādite preme matta ha-ila sabāra mana

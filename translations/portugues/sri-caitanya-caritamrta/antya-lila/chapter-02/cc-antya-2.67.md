@@ -1,5 +1,8 @@
 ### CC Antya 2.67
 
+> স্বয়ং ভগবান্ কৃষ্ণচৈতন্য-গোসাঞি ।
+> জগন্নাথ-নৃসিংহ-সহ কিছু ভেদ নাই ॥৬৭॥
+
 svayaṁ bhagavān kṛṣṇa-caitanya-gosāñi
 
 jagannātha-nṛsiṁha-saha kichu bheda nāi

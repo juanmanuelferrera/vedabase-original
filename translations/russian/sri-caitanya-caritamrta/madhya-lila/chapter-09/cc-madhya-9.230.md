@@ -1,5 +1,8 @@
 ### CC Madhya 9.230
 
+> আমিহ সন্ন্যাসী দেখ, তুমিহ সন্ন্যাসী ।
+> মোরে দুঃখ দেহ, — তোমার ‘ন্যায়’ নাহি বাসি’ ॥২৩০॥
+
 > āmiha sannyāsī dekha, tumiha sannyāsī
 > more duḥkha deha,—tomāra 'nyāya' nāhi vāsi
 

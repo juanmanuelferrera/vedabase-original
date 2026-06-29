@@ -1,5 +1,8 @@
 ### CC Antya 10.44
 
+> সেইকালে আইলা সব গৌড়ের ভক্তগণ ।
+> নরেন্দ্রেতে প্রভু-সঙ্গে হইল মিলন ॥৪৪॥
+
 > sei-kāle āilā saba gauḍera bhakta-gaṇa
 > narendrete prabhu-saṅge ha-ila milana
 

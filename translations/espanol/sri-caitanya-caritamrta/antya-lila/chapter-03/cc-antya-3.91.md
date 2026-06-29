@@ -1,5 +1,8 @@
 ### CC Antya 3.91
 
+> ঈশ্বর-স্বভাব, — ঐশ্বর্য চাহে আচ্ছাদিতে ।
+> ভক্ত-ঠাঞি লুকাইতে নারে, হয় ত’ বিদিতে ॥৯১॥
+
 > īśvara-svabhāva,--aiśvarya cāhe ācchādite
 > bhakta-ṭhāñi lukāite nāre, haya ta' vidite
 

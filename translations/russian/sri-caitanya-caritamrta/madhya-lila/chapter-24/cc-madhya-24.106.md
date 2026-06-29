@@ -1,5 +1,8 @@
 ### CC Madhya 24.106
 
+> শ্লোকব্যাখ্যা লাগি’ এই করিলুঁ আভাস ।
+> এবে করি শ্লোকের মূলার্থ প্রকাশ ॥১০৬॥
+
 > śloka-vyākhyā lāgi' ei kariluṅ ābhāsa
 > ebe kari ślokera mūlārtha prakāśa
 

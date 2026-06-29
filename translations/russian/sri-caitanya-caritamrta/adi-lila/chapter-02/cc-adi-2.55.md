@@ -1,5 +1,8 @@
 ### CC Adi 2.55
 
+> এতদীশনমীশস্য প্রকৃতিস্থোঽপি তদ্গুণৈঃ ।
+> ন যুজ্যতে সদাত্মস্থৈর্যথা বুদ্ধিস্তদাশ্রয়া ॥৫৫॥
+
 > etad īśanam īśasya
 > prakṛti-stho 'pi tad-guṇaiḥ
 > na yujyate sadātma-sthair

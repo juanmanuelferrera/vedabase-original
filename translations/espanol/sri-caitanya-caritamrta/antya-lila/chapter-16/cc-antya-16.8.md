@@ -1,5 +1,8 @@
 ### CC Antya 16.8
 
+> রঘুনাথ-দাসের তেঁহো হয় জ্ঞাতি-খুড়া ।
+> বৈষ্ণবের উচ্ছিষ্ট খাইতে তেঁহো হৈল বুড়া ॥৮॥
+
 > raghunātha-dāsera teṅho haya jñāti-khuḍā
 > vaiṣṇavera ucchiṣṭa khāite teṅho haila buḍā
 

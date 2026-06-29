@@ -1,5 +1,8 @@
 ### SB 4.17.23
 
+> यवसं जग्ध्यनुदिनं नैव दोग्ध्यौधसं पयः ।
+> तस्यामेवं हि दुष्टायां दण्डो नात्र न शस्यते ॥२३॥
+
 > yavasaṁ jagdhy anudinaṁ
 > naiva dogdhy audhasaṁ payaḥ
 > tasyām evaṁ hi duṣṭāyāṁ

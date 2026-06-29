@@ -1,5 +1,8 @@
 ### CC Madhya 4.90
 
+> একেক দিন একেক গ্রামে লইল মাগিঞা ৷
+> অন্নকূট করে সবে হরষিত হঞা ॥৯০॥
+
 ekeka dina ekeka grāme la-ila māgiñā
 anna-kūṭa kare sabe haraṣita hañā
 

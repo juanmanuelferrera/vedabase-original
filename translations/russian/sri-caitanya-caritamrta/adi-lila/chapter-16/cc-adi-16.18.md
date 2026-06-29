@@ -1,5 +1,8 @@
 ### CC Adi 16.18
 
+> প্রভুর অতর্ক্যলীলা বুঝিতে না পারি ।
+> স্বসঙ্গ ছাড়াঞা কেনে পাঠায় কাশীপুরী ॥১৮॥
+
 > prabhura atarkya-līlā bujhite nā pāri
 > sva-saṅga chāḍāñā kene pāṭhāya kāśīpurī
 

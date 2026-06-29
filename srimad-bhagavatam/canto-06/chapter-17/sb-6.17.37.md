@@ -1,5 +1,8 @@
 ### SB 6.17.37
 
+> इति भागवतो देव्याः प्रतिशप्तुमलन्तमः
+> मूर्ध्ना स जगृहे शापमेतावत्साधुलक्षणम ॥३७॥
+
 > iti bhāgavato devyāḥ
 > pratiśaptum alantamaḥ
 > mūrdhnā sa jagṛhe śāpam

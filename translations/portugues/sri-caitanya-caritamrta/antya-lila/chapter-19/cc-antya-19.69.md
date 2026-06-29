@@ -1,5 +1,8 @@
 ### CC Antya 19.69
 
+> ‘প্রভু-পাদোপাধান’ বলি’ তাঁর নাম হইল ।
+> পূর্বে বিদুরে যেন শ্রীশুক বর্ণিল ॥৬৯॥
+
 'prabhu-pādopādhāna' bali' tāṅra nāma ha-ila
 
 pūrve vidure yena śrī-śuka varṇila

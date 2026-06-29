@@ -1,5 +1,8 @@
 ### CC Adi 5.185
 
+> সুবলিত হস্ত, পদ, কমল-নয়ান ।
+> পট্টবস্ত্র শিরে, পট্টবস্ত্র পরিধান ॥১৮৫॥
+
 > suvalita hasta, pada, kamala-nayāna
 > paṭṭa-vastra śire, paṭṭa-vastra paridhāna
 

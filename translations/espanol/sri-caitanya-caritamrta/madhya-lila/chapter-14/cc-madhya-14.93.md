@@ -1,5 +1,8 @@
 ### CC Madhya 14.93
 
+> বাণীনাথ আর যত প্রসাদ আনিল ।
+> মহাপ্ৰভুর গণে সেই প্রসাদ খাইল ॥৯৩॥
+
 > vāṇīnātha āra yata prasāda ānila
 > mahāprabhura gaṇe sei prasāda khāila
 

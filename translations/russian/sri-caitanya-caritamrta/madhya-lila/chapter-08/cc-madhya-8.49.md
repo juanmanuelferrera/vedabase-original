@@ -1,5 +1,8 @@
 ### CC Madhya 8.49
 
+> নিমন্ত্রণ মানিল তাঁরে বৈষ্ণব জানিয়া ।
+> রামানন্দে কহে প্রভু ঈষৎ হাসিয়া ॥৪৯॥
+
 > nimantraṇa mānila tāṅre vaiṣṇava jāniyā
 > rāmānande kahe prabhu īṣat hāsiyā
 

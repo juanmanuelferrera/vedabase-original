@@ -1,5 +1,8 @@
 ### CC Madhya 24.204
 
+> ব্যাস-শুক-সনকাদির প্রসিদ্ধ ভজন ।
+> ‘নির্গ্রন্থ’ স্থাবরাদির শুন বিবরণ ॥২০৪॥
+
 vyāsa-śuka-sanakādira prasiddha bhajana
 
 'nirgrantha' sthāvarādira śuna vivaraṇa

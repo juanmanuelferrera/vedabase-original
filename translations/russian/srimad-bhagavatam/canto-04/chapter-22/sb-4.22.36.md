@@ -1,5 +1,8 @@
 ### SB 4.22.36
 
+> परेऽवरे च ये भावा गुणव्यतिकरादनु ।
+> न तेषां विद्यते क्षेममीशविध्वंसिताशिषाम् ॥३६॥
+
 > pare 'vare ca ye bhāvā
 > guṇa-vyatikarād anu
 > na teṣāṁ vidyate kṣemam

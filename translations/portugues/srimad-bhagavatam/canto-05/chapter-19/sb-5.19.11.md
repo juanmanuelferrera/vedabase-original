@@ -1,5 +1,7 @@
 ### SB 5.19.11
 
+> ओं नमो भगवते उपशमशीलायोपरतानात्म्याय नमोऽकिञ्चनवित्ताय ऋषिऋषभाय नरनारायणाय परमहंसपरमगुरवे आत्मारामाधिपतये नमो नम इति ॥११॥
+
 *oṁ namo bhagavate upaśama-śīlāyoparatānātmyāya namo 'kiñcana*-vittāya ṛṣi-ṛṣabhāya nara-nārāyaṇāya paramahaṁsa-parama-gurave ātmārāmādhipataye namo nama iti.
 
 *om*—ó Senhor Supremo; *namaḥ*—minhas respeitosas reverências; *bhagavate*—à Suprema Personalidade de Deus; *upaśama-śīlāya*—que dominou os sentidos; *uparata-anātmyāya*—que não tem apego por este mundo material; *namaḥ*—minhas respeitosas reverências; *akiñcana-vittāya*—à Suprema Personalidade de Deus, que é o único bem das pessoas que não têm posses materiais; *ṛṣi-ṛṣabhāya*—o mais excelso das pessoas santas; *nara-nārāyaṇāya*—Nara-Nārāyaṇa; *paramahaṁsa-parama-gurave*—o mestre espiritual mais excelso de todos os *paramahaṁsas*, pessoas liberadas; *ātmārāma-adhipataye*—o melhor das pessoas autorrealizadas; *namaḥ namaḥ*—minhas respeitosas reverências repetidas vezes; *iti*—assim.

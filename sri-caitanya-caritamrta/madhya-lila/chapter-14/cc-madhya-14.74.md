@@ -1,5 +1,8 @@
 ### CC Madhya 14.74
 
+> রাধা-সঙ্গে কৃষ্ণ-লীলা — এই হৈল জ্ঞানে ।
+> এই রসে মগ্ন প্রভু হইলা আপনে ॥৭৪॥
+
 > rādhā-saṅge kṛṣṇa-līlā-ei haila jñāne
 > ei rase magna prabhu ha-ilā āpane
 

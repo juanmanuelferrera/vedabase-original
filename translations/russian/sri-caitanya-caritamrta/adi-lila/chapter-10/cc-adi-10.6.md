@@ -1,5 +1,8 @@
 ### CC Adi 10.6
 
+> অতএব তাঁ-সবারে করি’ নমস্কার ।
+> নাম-মাত্র করি, দোষ না লবে আমার ॥৬॥
+
 > ataeva tāṅ-sabāre kari' namaskāra
 > nāma-mātra kari, doṣa nā labe āmāra
 

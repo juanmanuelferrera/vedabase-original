@@ -1,5 +1,8 @@
 ### CC Madhya 24.237
 
+> ক্রুদ্ধ হঞা ব্যাধ তাঁরে গালি দিতে চায় ।
+> নারদ-প্রভাবে মুখে গালি নাহি আয় ॥২৩৭॥
+
 kruddha hañā vyādha tāṅre gāli dite cāya
 
 nārada-prabhāve mukhe gāli nāhi āya

@@ -1,5 +1,8 @@
 ### CC Madhya 21.23
 
+> এক কৃষ্ণদেহ হৈতে সবার প্রকাশে ।
+> ক্ষণেকে সবাই সেই শরীরে প্রবেশে ॥২৩॥
+
 > eka kṛṣṇa-deha haite sabāra prakāśe
 > kṣaṇeke sabāi sei śarīre praveśe
 

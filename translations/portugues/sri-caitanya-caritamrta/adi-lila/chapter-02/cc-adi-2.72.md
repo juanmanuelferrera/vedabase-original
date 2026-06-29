@@ -1,5 +1,8 @@
 ### CC Adi 2.72
 
+> তেঁহ আসি’ কৃষ্ণরূপে করেন অবতার ।
+> এই অর্থ শ্লোকে দেখি কি আর বিচার ॥৭২॥
+
 teṅha āsi' kṛṣṇa-rūpe karena avatāra
 ei artha śloke dekhi ki āra vicāra
 

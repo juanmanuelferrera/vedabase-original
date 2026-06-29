@@ -1,5 +1,8 @@
 ### CC Adi 15.28
 
+> দৈবে এক দিন প্রভু পড়িয়া আসিতে ।
+> বল্লভাচার্যের কন্যা দেখে গঙ্গা-পথে ॥২৮॥
+
 daive eka dina prabhu paḍiyā āsite
 vallabhācāryera kanyā dekhe gaṅgā-pathe
 

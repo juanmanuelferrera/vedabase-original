@@ -1,5 +1,8 @@
 ### SB 4.4.13
 
+> नाश्चर्यमेतद्यदसत्सु सर्वदा महद्विनिन्दा कुणपात्मवादिषु ।
+> सेर्ष्यं महापूरुषपादपांसुभिर्निरस्ततेजःसु तदेव शोभनम् ॥१३॥
+
 > nāścaryam etad yad asatsu sarvadā
 > mahad-vinindā kuṇapātma-vādiṣu
 > serṣyaṁ mahāpūruṣa-pāda-pāṁsubhir

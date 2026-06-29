@@ -1,5 +1,8 @@
 ### SB 1.5.35
 
+> यदत्र क्रियते कर्म भगवत्परितोषणम् ।
+> ज्ञानं यत्तदधीनं हि भक्तियोगसमन्वितम् ॥३५॥
+
 > yad atra kriyate karma
 > bhagavat-paritoṣaṇam
 > jñānaṁ yat tad adhīnaṁ hi

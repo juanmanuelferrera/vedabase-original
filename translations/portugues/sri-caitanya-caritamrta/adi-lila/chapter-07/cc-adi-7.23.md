@@ -1,5 +1,8 @@
 ### CC Adi 7.23
 
+> পাত্রাপাত্র-বিচার নাহি, নাহি স্থানাস্থান ।
+> যেই যাঁহা পায়, তাঁহা করে প্রেমদান ॥২৩॥
+
 pātrāpātra-vicāra nāhi, nāhi sthānāsthāna
 
 yei yāṅhā pāya, tāṅhā kare prema-dāna

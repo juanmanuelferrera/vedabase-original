@@ -1,5 +1,8 @@
 ### CC Madhya 21.4
 
+> শত, সহস্র, অযুত, লক্ষ, কোটী-যোজন ।
+> এক এক বৈকুণ্ঠের বিস্তার বর্ণন ॥৪॥
+
 > śata, sahasra, ayuta, lakṣa, koṭī-yojana
 > eka eka vaikuṇṭhera vistāra varṇana
 

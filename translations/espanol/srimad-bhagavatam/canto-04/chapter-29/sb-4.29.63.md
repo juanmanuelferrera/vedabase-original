@@ -1,5 +1,8 @@
 ### SB 4.29.63
 
+> यथानुमीयते चित्तमुभयैरिन्द्रियेहितैः ।
+> एवं प्राग्देहजं कर्म लक्ष्यते चित्तवृत्तिभिः ॥६३॥
+
 > yathānumīyate cittam
 > ubhayair indriyehitaiḥ
 > evaṁ prāg-dehajaṁ karma

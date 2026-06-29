@@ -1,5 +1,7 @@
 ### SB 5.26.27
 
+> ये त्विह वै दस्यवोऽग्निदा गरदा ग्रामान्सार्थान्वा विलुम्पन्ति राजानो राजभटा वा तांश्चापि हिपरेत्य यमदूता वज्रदंष्ट्राः श्वानः सप्तशतानि विंशतिश्च सरभसं खादन्ति ॥२६॥
+
 *ye tv iha vai dasyavo 'gnidā garadā grāmān sārthān vā vilumpanti rājāno rāja*-bhaṭā vā tāṁś cāpi hi paretya yamadūtā vajra-daṁṣṭrāḥ śvānaḥ sapta-śatāni viṁśatiś ca sarabhasaṁ khādanti.
 
 *ye*—pessoas que; *tu*—mas; *iha*—nesta vida; *vai*—de fato; *dasyavaḥ*—ladrões e saqueadores; *agni-dāḥ*—que ateiam fogo; *garadāḥ*—que administram veneno; *grāmān*—aldeias; *sārthān*—a classe mercantil dos homens; *vā*—ou; *vilumpanti*—saqueiam; *rājānaḥ*—reis; *rāja-bhaṭāḥ*—oficiais do governo; *vā*—ou; *tān*—a eles; *ca*—também; *api*—de fato; *hi*—certamente; *paretya*—tendo morrido; *yamadūtāḥ*—os assistentes de Yamarāja; *vajra-daṁṣṭrāḥ*—dentes poderosos; *śvānaḥ*—cães; *sapta-śatāni*—setecentos; *viṁśatiḥ*—vinte; *ca*—e; *sarabhasam*—vorazmente; *khādanti*—devoram.

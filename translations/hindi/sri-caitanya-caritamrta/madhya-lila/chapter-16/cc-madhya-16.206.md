@@ -1,5 +1,8 @@
 ### CC Madhya 16.206
 
+> তাহাঁ হৈতে আগে গেলা শিবানন্দ-ঘর ।
+> বাসুদেব-গৃহে পাছে আইলা ঈশ্বর ॥২০৬॥
+
 > tāhāṅ haite āge gelā śivānanda-ghara
 > vāsudeva-gṛhe pāche āilā īśvara
 

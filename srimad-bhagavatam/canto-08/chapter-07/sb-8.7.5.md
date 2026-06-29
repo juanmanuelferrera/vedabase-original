@@ -1,5 +1,10 @@
 ### SB 8.7.5
 
+> कृतस्थानविभागास्त
+> एवं कश्यपनन्दनाः
+> ममन्थुः परमं यत्ता
+> अमृतार्थं पयोनिधिम् ॥५॥
+
 > kṛta-sthāna-vibhāgās ta
 > evaṁ kaśyapa-nandanāḥ
 > mamanthuḥ paramaṁ yattā

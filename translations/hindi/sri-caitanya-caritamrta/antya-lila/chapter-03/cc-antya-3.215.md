@@ -1,5 +1,8 @@
 ### CC Antya 3.215
 
+> আচার্যে মিলিয়া কৈলা দণ্ডবৎ প্রণাম ।
+> অদ্বৈত আলিঙ্গন করি’ করিলা সম্মান ॥২১৫॥
+
 > ācārye miliyā kailā daṇḍavat praṇāma
 > advaita āliṅgana kari' karilā sammāna
 

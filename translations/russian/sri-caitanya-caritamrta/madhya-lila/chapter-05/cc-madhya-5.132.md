@@ -1,5 +1,8 @@
 ### CC Madhya 5.132
 
+> পরাইল মুক্তা নাসার ছিদ্র দেখিঞা ।
+> মহামহোৎসব কৈল আনন্দিত হঞা ॥১৩২॥
+
 > parāila muktā nāsāya chidra dekhiñā
 > mahā-mahotsava kaila ānandita hañā
 

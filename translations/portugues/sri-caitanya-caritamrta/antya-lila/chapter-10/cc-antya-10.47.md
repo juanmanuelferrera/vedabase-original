@@ -1,5 +1,8 @@
 ### CC Antya 10.47
 
+> জলক্রীড়া, বাদ্য, গীত, নর্তন, কীর্তন ।
+> মহাকোলাহল তীরে, সলিলে খেলন ॥৪৭॥
+
 jala-krīḍā, vādya, gīta, nartana, kīrtana
 
 mahā-kolāhala tīre, salile khelana

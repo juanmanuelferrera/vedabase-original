@@ -1,5 +1,8 @@
 ### CC Adi 2.97
 
+> কৃষ্ণের স্বরূপের হয় ষড়্বিধ বিলাস ।
+> প্রাভব-বৈভব-রূপে দ্বিবিধ প্রকাশ ॥৯৭॥
+
 > kṛṣṇera svarūpera haya ṣaḍ-vidha vilāsa
 > prābhava-vaibhava-rūpe dvi-vidha prakāśa
 

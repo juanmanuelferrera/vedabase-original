@@ -1,5 +1,8 @@
 ### CC Madhya 9.327
 
+> লোক দেখি’ রামানন্দ গেলা নিজ-ঘরে ।
+> মধ্যাহ্নে উঠিলা প্রভু ভিক্ষা করিবারে ॥৩২৭॥
+
 > loka dehki' rāmānanda gelā nija-ghare
 > madhyāhne uṭhilā prabhu bhikṣā karibāre
 

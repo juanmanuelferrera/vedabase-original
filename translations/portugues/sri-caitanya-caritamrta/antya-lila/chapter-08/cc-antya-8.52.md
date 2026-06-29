@@ -1,5 +1,8 @@
 ### CC Antya 8.52
 
+> শুনি’ তাহা প্রভুর সঙ্কোচ-ভয় মনে  ।
+> গোবিন্দে বোলাঞা কিছু কহেন বচনে ॥৫২॥
+
 śuni' tāhā prabhura saṅkoca-bhaya mane
 
 govinde bolāñā kichu kahena vacane

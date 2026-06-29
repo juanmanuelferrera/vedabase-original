@@ -1,5 +1,8 @@
 ### CC Antya 16.37
 
+> সেই খোলা, আঁঠি, চোকলা চূষে কালিদাস ।
+> চূষিতে চূষিতে হয় প্রেমেতে উল্লাস ॥৩৭॥
+
 > sei kholā, āṅṭhi, cokalā cūṣe kālidāsa
 > cūṣite cūṣite haya premete ullāsa
 

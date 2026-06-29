@@ -1,5 +1,8 @@
 ### CC Antya 1.1
 
+> পঙ্গুং লঙ্ঘয়তে শৈলং মূকমাবর্তয়েচ্ছ্রুতিম্ ।
+> যত্কৃপা তমহং বন্দে কৃষ্ণচৈতন্যমীশ্বরম্ ॥১॥
+
 > paṅguṁ laṅghayate śailaṁ
 > mūkam āvartayec chrutim
 > yat-kṛpā tam ahaṁ vande

@@ -1,5 +1,8 @@
 ### CC Antya 5.3
 
+> জয়াদ্বৈত কৃপাসিন্ধু জয় ভক্তগণ ।
+> জয় স্বরূপ, গদাধর, রূপ, সনাতন ॥৩॥
+
 jayādvaita kṛpā-sindhu jaya bhakta-gaṇa
 jaya svarūpa, gadādhara, rūpa, sanātana
 

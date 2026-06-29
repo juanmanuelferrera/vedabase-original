@@ -1,5 +1,8 @@
 ### CC Madhya 13.90
 
+> বাহিরে প্রতাপরুদ্র লঞা পাত্রগণ ।
+> মণ্ডল হঞা করে লোক নিবারণ ॥৯০॥
+
 bāhire pratāparudra lañā pātra-gaṇa
 
 maṇḍala hañā kare loka nivāraṇa

@@ -1,5 +1,8 @@
 ### SB 3.13.24
 
+> ब्रह्माणं हर्षयामास हरिस्तांश्च द्विजोत्तमान् ।
+> स्वगर्जितेन ककुभः प्रतिस्वनयता विभुः ॥२४॥
+
 > brahmāṇaṁ harṣayām āsa
 > haris tāṁś ca dvijottamān
 > sva-garjitena kakubhaḥ

@@ -1,5 +1,8 @@
 ### CC Antya 8.35
 
+> এই শ্লোকে কৃষ্ণপ্রেম করে উপদেশ ।
+> কৃষ্ণের বিরহে ভক্তের ভাববিশেষ ॥৩৫॥
+
 > ei śloke kṛṣṇa-prema kare upadeśa
 > kṛṣṇera virahe bhaktera bhāva-viśeṣa
 

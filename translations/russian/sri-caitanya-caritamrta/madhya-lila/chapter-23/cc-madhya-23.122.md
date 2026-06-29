@@ -1,5 +1,8 @@
 ### CC Madhya 23.122
 
+> পঙ্গু নাচাইতে যদি হয় তোমার মন  ।
+> বর দেহ’ মোর মাথে ধরিয়া চরণ ॥১২২॥
+
 > paṅgu nācāite yadi haya tomāra mana
 > vara deha' mora māthe dhariyā caraṇa
 

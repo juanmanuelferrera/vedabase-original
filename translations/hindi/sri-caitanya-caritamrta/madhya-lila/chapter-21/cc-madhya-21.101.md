@@ -1,5 +1,10 @@
 ### CC Madhya 21.101
 
+> কৃষ্ণের যতেক খেলা, সর্বোত্তম নরলীলা,
+> নরবপু তাহার স্বরূপ ।
+> গোপবেশ, বেণুকর, নবকিশোর, নটবর,
+> নরলীলার হয় অনুরূপ ॥১০১॥
+
 > kṛṣṇera yateka khelā, sarvottama nara-līlā,
 > nara-vapu tāhāra svarūpa
 > gopa-veśa, veṇu-kara, nava-kiśora, naṭa-vara,

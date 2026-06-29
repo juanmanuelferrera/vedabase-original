@@ -1,5 +1,8 @@
 ### CC Adi 5.228
 
+> বৃন্দাবনে বৈসে যত বৈষ্ণব-মণ্ডল ।
+> কৃষ্ণনাম-পরায়ণ, পরম-মঙ্গল ॥২২৮॥
+
 vṛndāvane vaise yata vaiṣṇava-maṇḍala
 
 kṛṣṇa-nāma-parāyaṇa, parama-maṅgala

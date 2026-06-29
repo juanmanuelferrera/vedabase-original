@@ -1,5 +1,8 @@
 ### CC Madhya 17.25
 
+> নির্জন-বনে চলে প্রভু কৃষ্ণনাম লঞা ।
+> হস্তি-ব্যাঘ্র পথ ছাড়ে প্রভুরে দেখিয়া ॥২৫॥
+
 > nirjana-vane cale prabhu kṛṣṇa-nāma lañā
 > hasti-vyāghra patha chāḍe prabhure dekhiyā
 

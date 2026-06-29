@@ -1,5 +1,8 @@
 ### CC Madhya 18.117
 
+> লোক কহে, — তোমাতে কভু নহে ‘জীব’-মতি  ।
+> কৃষ্ণের সদৃশ তোমার আকৃতি-প্রকৃতি ॥১১৭॥
+
 > loka kahe,—tomāte kabhu nahe jīva'-mati
 > kṛṣṇera sadṛśa tomāra ākṛti-prakṛti
 

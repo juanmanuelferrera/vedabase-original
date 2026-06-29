@@ -1,5 +1,7 @@
 ### SB 5.18.35
 
+> ओं नमो भगवते मन्त्रतत्त्वलिङ्गाय यज्ञअक्रतवे महाध्वरावयवाय महापुरुषाय नमःकर्मशुक्लाय त्रियुगाय नमस्ते ॥३५॥
+
 > oṁ namo bhagavate mantra-tattva-liṅgāya yajña-kratave mahā-dhvarāvayavāya mahā-puruṣāya namaḥ karma-śuklāya tri-yugāya namas te.
 
 *om*—O Lord; *namaḥ*—respectful obeisances; *bhagavate*—unto the Supreme Personality of Godhead; *mantra-tattva-liṅgāya*—who is understood in truth by different *mantras*; *yajña*—in the form of animal sacrifices; *kratave*—and animal sacrifice; *mahā-dhvara*—great sacrifices; *avayavāya*—whose limbs and bodily parts; *mahā-puruṣāya*—unto the Supreme Person; *namaḥ*—respectful obeisances; *karma-śuklāya*—who purifies the fruitive activities of the living entities; *tri-yugāya*—unto the Supreme Personality of Godhead, who is full with six opulences and who appears in three *yugas* (remaining concealed in the fourth *yuga*); *namaḥ*—my respectful obeisances; *te*—unto You.

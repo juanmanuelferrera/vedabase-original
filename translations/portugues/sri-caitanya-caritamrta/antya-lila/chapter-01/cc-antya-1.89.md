@@ -1,5 +1,8 @@
 ### CC Antya 1.89
 
+> তবে শক্তি সঞ্চারি’ আমি কৈলুঁ উপদেশ ।
+> তুমিহ কহিও ইহাঁয় রসের বিশেষ ।।” ॥ ৮৯ ॥
+
 tabe śakti sañcāri' āmi kailuṅ upadeśa
 
 tumiha kahio ihāṅya rasera viśeṣa"

@@ -1,5 +1,8 @@
 ### SB 4.13.47
 
+> एवं स निर्विण्णमना नृपो गृहान्निशीथ उत्थाय महोदयोदयात् ।
+> अलब्धनिद्रोऽनुपलक्षितो नृभिर्हित्वा गतो वेनसुवं प्रसुप्ताम् ॥४७॥
+
 > evaṁ sa nirviṇṇa-manā nṛpo gṛhān
 > niśītha utthāya mahodayodayāt
 > alabdha-nidro 'nupalakṣito nṛbhir

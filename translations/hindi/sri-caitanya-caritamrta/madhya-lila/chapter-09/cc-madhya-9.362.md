@@ -1,5 +1,8 @@
 ### CC Madhya 9.362
 
+> এই কলিকালে আর নাহি কোন ধর্ম ।
+> বৈষ্ণব, বৈষ্ণবশাস্ত্র, এই কহে মর্ম ॥৩৬২॥
+
 > ei kali-kāle āra nāhi kona dharma
 > vaiṣṇava, vaiṣṇava-śāstra, ei kahe marma
 

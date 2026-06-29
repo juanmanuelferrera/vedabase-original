@@ -1,5 +1,8 @@
 ### SB 3.30.34
 
+> अधस्तान्नरलोकस्य यावतीर्यातनादयः ।
+> क्रमशः समनुक्रम्य पुनरत्राव्रजेच्छुचिः ॥३४॥
+
 > adhastān nara-lokasya
 > yāvatīr yātanādayaḥ
 > kramaśaḥ samanukramya
