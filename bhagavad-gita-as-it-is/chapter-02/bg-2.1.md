@@ -1,13 +1,13 @@
 ### Bg 2.1
 
-> सञ्जय उवाच ।
-> तं तथा कृपयाविष्टमश्रुपूर्णाकुलेक्षणम् ।
+> सञ्जय उवाच ।\
+> तं तथा कृपयाविष्टमश्रुपूर्णाकुलेक्षणम् ।\
 > विषीदन्तमिदं वाक्यमुवाच मधुसूदनः ॥१॥
 
-> sañjaya uvāca
-> taṁ tathā kṛpayāviṣṭam
-> aśru-pūrṇākulekṣaṇam
-> viṣīdantam idaṁ vākyam
+> sañjaya uvāca\
+> taṁ tathā kṛpayāviṣṭam\
+> aśru-pūrṇākulekṣaṇam\
+> viṣīdantam idaṁ vākyam\
 > uvāca madhusūdanaḥ
 
 *sañjayaḥ uvāca*—Sañjaya said; *tam*—unto Arjuna; *tathā*—thus; *kṛpayā*—by compassion; *āviṣṭam*—overwhelmed; *aśru-pūrṇa*—full of tears; *ākula*—depressed; *īkṣaṇam*—eyes; *viṣīdantam*—lamenting; *idam*—this; *vākyam*—words; *uvāca*—said; *madhusūdanaḥ*—the killer of Madhu.

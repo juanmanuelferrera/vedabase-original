@@ -1,18 +1,18 @@
 ### SB 1.2.28-29
 
-> वासुदेवपरा वेदा वासुदेवपरा मखाः ।
-> वासुदेवपरा योग वासुदेवपराः क्रियाः ॥२८॥
-> वासुदेवपरं ज्ञानं वासुदेवपरं तपः ।
+> वासुदेवपरा वेदा वासुदेवपरा मखाः ।\
+> वासुदेवपरा योग वासुदेवपराः क्रियाः ॥२८॥\
+> वासुदेवपरं ज्ञानं वासुदेवपरं तपः ।\
 > वासुदेवपरो धर्मो वासुदेवपरा गतिः ॥२९॥
 
-> vāsudeva-parā vedā
-> vāsudeva-parā makhāḥ
-> vāsudeva-parā yogā
+> vāsudeva-parā vedā\
+> vāsudeva-parā makhāḥ\
+> vāsudeva-parā yogā\
 > vāsudeva-parāḥ kriyāḥ
 
-> vāsudeva-paraṁ jñānaṁ
-> vāsudeva-paraṁ tapaḥ
-> vāsudeva-paro dharmo
+> vāsudeva-paraṁ jñānaṁ\
+> vāsudeva-paraṁ tapaḥ\
+> vāsudeva-paro dharmo\
 > vāsudeva-parā gatiḥ
 
 *vāsudeva*—the Personality of Godhead; *parāḥ*—the ultimate goal; *vedāḥ*—revealed scriptures; *vāsudeva*—the Personality of Godhead; *parāḥ*—for worshiping; *makhāḥ*—sacrifices; *vāsudeva*—the Personality of Godhead; *parāḥ*—the means of attaining; *yogāḥ*—mystic paraphernalia; *vāsudeva*—the Personality of Godhead; *parāḥ*—under His control; *kriyāḥ*—fruitive activities; *vāsudeva*—the Personality of Godhead; *param*—the supreme; *jñānam*—knowledge; *vāsudeva*—the Personality of Godhead; *param*—best; *tapaḥ*—austerity; *vāsudeva*—the Personality of Godhead; *paraḥ*—superior quality; *dharmaḥ*—religion; *vāsudeva*—the Personality of Godhead; *parāḥ*—ultimate; *gatiḥ*—goal of life.
