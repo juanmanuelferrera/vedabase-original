@@ -151,6 +151,9 @@ its own Markdown file** — so each unit is individually addressable for search,
 parallel processing. Each file's content is verbatim from the database; only structural divider
 headings (chapter/canto labels) are omitted, since that information is carried in the file names.
 
+Translations in Spanish, Hindi, Portuguese, and Russian live under
+[`translations/`](translations/) — see the [Translations](#translations) section below.
+
 ### Book folders
 
 | Folder | One file per | Example file |
@@ -215,9 +218,10 @@ database, and so are not here.
 
 ## Translations
 
-`translations/` holds the books in four languages — Spanish (`espanol/`), Hindi (`hindi/`),
-Portuguese (`portugues/`), Russian (`russian/`) — plus English (`english/`), in the same book
-folders as the originals above.
+[**`translations/`**](translations/) holds the books in four languages —
+[Spanish](translations/espanol/), [Hindi](translations/hindi/),
+[Portuguese](translations/portugues/), [Russian](translations/russian/) — plus
+[English](translations/english/), in the same book folders as the originals above.
 
 Each language carries two things per book:
 
